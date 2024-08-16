@@ -1,3 +1,18 @@
+### الدوري الانجليزي (N/A, Fri, 16 Aug 2024 13:50:00 -0700)
+
+- **تقنية "التنين".. ثورة جديدة في الدوري الإنجليزي الممتاز**: [Link](https://m.elbotola.com/article/2024-08-15-11-49-515.html)
+- **منها التسلل ولمسة اليد: تغييرات منتظرة في موسم البريميرليج الجديد**: [Link](https://www.kooora.com/?n=1348173)
+- **أبرز التحديثات والقواعد التحكيمية التي سيتم تطبيقها في الموسم الجديد من 
+الدوري الإنجليزي الممتاز**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%AA%D8%AD%D8%AF%D9%8A%D8%AB%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D8%B3%D9%8A%D8%AA%D9%85-%D8%AA%D8%B7%D8%A8%D9%8A%D9%82%D9%87%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2-2024-08-15)
+
+
+### bayern (N/A, Fri, 16 Aug 2024 12:20:00 -0700)
+
+- **FC Bayern: Deutliche Eberl-Botschaft an Leon Goretzka!**: [Link](https://www.bild.de/sport/fussball/fc-bayern-vincent-kompany-schweigt-zum-aus-von-leon-goretzka-66bf90631eff0b2e311c8a5d)
+- **Bericht: Kompany rasiert Bayern-Star vor Pokal-Spiel**: [Link](https://www.90min.de/posts/kompany-rasiert-bayern-star-vor-pokal-spiel)
+- **Effenberg rät Bayern-Star zu Abgang – „gerade mit Blick auf die WM“**: [Link](https://www.kreiszeitung.de/sport/fussball/effenberg-raet-bayern-star-zu-abgang-gerade-mit-blick-auf-die-wm-zr-93245808.html)
+
+
 ### جدري القردة المغرب (N/A, Fri, 16 Aug 2024 14:40:00 -0700)
 
 - **وزارة الصحة: جدري القردة ينتشر أكثر بسبب الاتصال الجنسي بين الرجال وتسجيل 5 
