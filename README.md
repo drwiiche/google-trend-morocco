@@ -1,3 +1,25 @@
+### las palmas vs sevilla (N/A, Fri, 16 Aug 2024 13:50:00 -0700)
+
+- **Las Palmas - Sevilla, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/las-palmas-sevilla/2024/08/16/01_0101_20240816_407_179-directo.html)
+- **García Pimienta vuelve a casa**: [Link](https://as.com/futbol/primera/garcia-pimienta-vuelve-a-casa-n/)
+- **Dos autogoles al descanso en el Estadio de Gran Canaria (1-1)**: [Link](https://www.infobae.com/espana/agencias/2024/08/16/dos-autogoles-al-descanso-en-el-estadio-de-gran-canaria-1-1/)
+
+
+### باريس سان جيرمان (N/A, Fri, 16 Aug 2024 13:40:00 -0700)
+
+- **إمباي يُحقق رقما تاريخيا مع باريس سان جيرمان**: [Link](https://hihi2.com/2024/08/16/p2795360.html)
+- **بالصور.. باريس يفترس لوهافر في 5 دقائق**: [Link](https://www.kooora.com/?n=1348426)
+- **باريس سان جيرمان يكتسح لوفاهر برباعية في افتتاح الدوري الفرنسي**: [Link](https://hihi2.com/2024/08/16/p2795392.html)
+
+
+### pl (N/A, Fri, 16 Aug 2024 13:40:00 -0700)
+
+- **CHICAGO'S LINCOLN PARK TO HOST PREMIER LEAGUE AND NBC SPORTS 10TH "PREMIER 
+LEAGUE MORNINGS LIVE" FAN FESTIVAL ON SEPTEMBER 21-22, 2024**: [Link](https://www.nbcsports.com/pressbox/press-releases/chicagos-lincoln-park-to-host-premier-league-and-nbc-sports-10th-premier-league-mornings-live-fan-festival-on-september-21-22-2024)
+- **Speed Reads....**: [Link](https://www.sportsbusinessjournal.com/Articles/2024/08/16/speed-reads-closing-bell-0816)
+- **Manchester United 1-0 Fulham: Premier League – live reaction**: [Link](https://www.theguardian.com/football/live/2024/aug/16/manchester-united-v-fulham-premier-league-live)
+
+
 ### مانشستر يونايتد (N/A, Fri, 16 Aug 2024 12:00:00 -0700)
 
 - **مانشستر يونايتد يمحو آثار أمرابط**: [Link](https://www.hespress.com/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D9%85%D8%AD%D9%88-%D8%A2%D8%AB%D8%A7%D8%B1-%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-1416768.html)
