@@ -1,3 +1,19 @@
+### جدري القردة المغرب (N/A, Fri, 16 Aug 2024 14:40:00 -0700)
+
+- **وزارة الصحة: جدري القردة ينتشر أكثر بسبب الاتصال الجنسي بين الرجال وتسجيل 5 
+حالات في المغرب**: [Link](https://alyaoum24.com/1911058.html)
+- **هل يتجه العالم نحو وباء جديد مع انتشار جدري القردة؟**: [Link](https://www.aljazeera.net/news/2024/8/16/%D9%87%D9%84-%D9%8A%D8%AA%D8%AC%D9%87-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%86%D8%AD%D9%88-%D9%88%D8%A8%D8%A7%D8%A1-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D8%B9-%D8%A7%D9%86%D8%AA%D8%B4%D8%A7%D8%B1)
+- **هل يتجه العالم نحو انتشار وباء جديد؟**: [Link](https://www.hespress.com/%D9%87%D9%84-%D9%8A%D8%AA%D8%AC%D9%87-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%86%D8%AD%D9%88-%D8%A7%D9%86%D8%AA%D8%B4%D8%A7%D8%B1-%D9%88%D8%A8%D8%A7%D8%A1-%D8%AC%D8%AF%D9%8A%D8%AF%D8%9F-1417222.html)
+
+
+### bundesliga (N/A, Fri, 16 Aug 2024 12:40:00 -0700)
+
+- **Nach starker Vorbereitung: Leipzig bindet Top-Talent Gebel**: [Link](https://www.kicker.de/nach-starker-vorbereitung-leipzig-bindet-top-talent-gebel-1044816/artikel)
+- **RB Leipzig: Beim Xavi-Comeback! Rose: Dieser 16-Jährige wird Bundesliga 
+spielen**: [Link](https://www.bild.de/sport/fussball/rb-leipzig-beim-xavi-comeback-rose-dieser-16-jaehrige-wird-bundesliga-spielen-66b8668756b3740ce4d96ab9)
+- **Fußball-Bundesliga: RB Leipzig plant langfristig mit Talent Viggo Gebel**: [Link](https://www.volksstimme.de/panorama/rb-leipzig-plant-langfristig-mit-talent-viggo-gebel-3899845)
+
+
 ### u. d. las palmas - sevilla (N/A, Fri, 16 Aug 2024 14:00:00 -0700)
 
 - **Unregistered Sevilla number 9 Iheanacho in travelling squad to face Las 
