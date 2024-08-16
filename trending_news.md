@@ -1,3 +1,82 @@
+### celta vigo – deportivo alavés (N/A, Fri, 16 Aug 2024 10:00:00 -0700)
+
+- **Celta - Alavés, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/celta-alaves/2024/08/16/01_0101_20240816_176_173-directo.html)
+- **Guaita recibe el alta del hombro y se lesiona el gemelo. Luca de la Torre sufre un esguince**: [Link](https://www.futbolfantasy.com/laliga/noticias/118656-guaita-recibe-el-alta-del-hombro-y-se-lesiona-el-gemelo-luca-de-la-torre-sufre-un-esguince)
+- **Sin entradas en Balaídos para ver al Alavés**: [Link](https://nortexpres.com/sin-entradas-en-balaidos-para-ver-al-alaves/)
+
+
+### جدري القردة بالمغرب (N/A, Fri, 16 Aug 2024 06:50:00 -0700)
+
+- **إصابات بجدري القرود في باكستان وأوروبا وسط حالة طوارئ عالمية**: [Link](https://www.aljazeera.net/news/2024/8/16/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8%D8%AC%D8%AF%D8%B1%D9%8A-%D8%A7%D9%84%D9%82%D8%B1%D9%88%D8%AF-%D8%A8%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D9%88%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **ما الفرق بين جدري القردة وكورونا.. وهل يمكن أن يتحول لجائحة؟**: [Link](https://www.alarabiya.net/medicine-and-health/2024/08/16/%D9%85%D8%A7-%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D8%A8%D9%8A%D9%86-%D8%AC%D8%AF%D8%B1%D9%8A-%D8%A7%D9%84%D9%82%D8%B1%D8%AF%D8%A9-%D9%88%D9%83%D9%88%D8%B1%D9%88%D9%86%D8%A7-%D9%88%D9%87%D9%84-%D9%8A%D9%85%D9%83%D9%86-%D8%A3%D9%86-%D9%8A%D8%AA%D8%AD%D9%88%D9%84-%D9%84%D8%AC%D8%A7%D8%A6%D8%AD%D8%A9)
+- **رصيف الصحافة: خبراء مغاربة يوصون بحملة تلقيح ضد "جدري القردة"**: [Link](https://www.hespress.com/%D8%B1%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D9%88%D8%B5%D9%88%D9%86-%D8%A8%D8%AD%D9%85%D9%84%D8%A9-1416848.html)
+
+
+### nemat shafik (N/A, Fri, 16 Aug 2024 05:50:00 -0700)
+
+- **A Message from Katrina Armstrong**: [Link](https://president.columbia.edu/news/message-katrina-armstrong)
+- **Columbia President Resigns After Months of Turmoil on Campus**: [Link](https://www.nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html)
+- **Higher-Ed Transitions: Will New Leadership Offer Opportunities for Needed 
+Reform?**: [Link](https://www.philanthropyroundtable.org/higher-ed-transitions-will-new-leadership-offer-opportunities-for-needed-reform/)
+
+
+### epic games (N/A, Fri, 16 Aug 2024 05:30:00 -0700)
+
+- **The Epic Games Store Launches on Mobile**: [Link](https://www.epicgames.com/site/en-US/news/the-epic-games-store-launches-on-mobile)
+- **Fornite returns to iPhone, but not for all users**: [Link](https://www.notebookcheck.net/Fornite-returns-to-iPhone-but-not-for-all-users.876495.0.html)
+- **The Epic Games Store debuts on AltStore, Android, and iOS devices**: [Link](https://www.gamedeveloper.com/business/the-epic-games-store-debuts-on-altstore-android-and-ios-devices)
+
+
+### variole du singe au maroc (N/A, Fri, 16 Aug 2024 04:00:00 -0700)
+
+- **Inquiétudes autour du mpox, attaque mortelle au Niger, présidentielle 
+algérienne : l'hebdo Afrique**: [Link](https://www.france24.com/fr/afrique/20240816-inqui%C3%A9tudes-autour-du-mpox-attaque-mortelle-au-niger-pr%C3%A9sidentielle-alg%C3%A9rienne-l-hebdo-afrique)
+- **Variole du singe (Mpox) : la propagation, les symptômes et les mesures à 
+prendre au Maroc**: [Link](https://medias24.com/2024/08/16/variole-du-singe-mpox-la-propagation-les-symptomes-et-les-mesures-a-prendre-au-maroc/)
+- **Ait Taleb tient une réunion consacrée à l'examen de l'évolution de la 
+situation épidémiologique de Mpox**: [Link](https://fr.hespress.com/382470-ait-taleb-tient-une-reunion-consacree-a-lexamen-de-levolution-de-la-situation-epidemiologique-de-mpox.html)
+
+
+### joao felix (N/A, Fri, 16 Aug 2024 04:00:00 -0700)
+
+- **Napoli offer Victor Osimhen to Chelsea as part of Romelu Lukaku transfer**: [Link](https://www.thetimes.com/sport/football/article/chelsea-victor-osimhen-napoli-signing-transfer-new-zcd69b93z)
+- **“The club knows…” – Enzo Maresca wants more transfers before the window 
+closes**: [Link](https://chelsea.news/2024/08/the-club-knows-enzo-maresca-wants-more-transfers-before-the-window-closes/)
+- **Chelsea on verge of phenomenal £39m Victor Osimhen swap transfer with TWO 
+stars set to join Napoli...**: [Link](https://www.thesun.co.uk/sport/29880677/chelsea-osimhen-transfer-napoli-lukaku/)
+
+
+### outlook (N/A, Fri, 16 Aug 2024 03:30:00 -0700)
+
+- **Walmart beats sales, raises outlook as higher-income consumers continue to 
+turn to the retail giant**: [Link](https://finance.yahoo.com/news/walmart-beats-sales-raises-outlook-as-higher-income-consumers-continue-to-turn-to-the-retail-giant-121337374.html)
+- **4 Key Takeaways From Walmart's Earnings Call**: [Link](https://www.investopedia.com/4-key-takeaways-from-walmart-earnings-call-8695732)
+- **Americans are still shopping. They’re just going to Walmart**: [Link](https://www.cnn.com/2024/08/15/investing/walmart-stock-earnings-retail/index.html)
+
+
+### jordan chiles (N/A, Fri, 16 Aug 2024 02:50:00 -0700)
+
+- **Romanian gymnast Ana Bărbosu gets Olympic medal amid Jordan Chiles 
+controversy**: [Link](https://www.usatoday.com/story/sports/olympics/2024/08/16/ana-barbosu-jordan-chiles-bronze-medal/74827630007/)
+- **Romanian Gymnast Ana Barbosu Kisses Bronze Medal After Jordan Chiles Ruling**: [Link](https://www.tmz.com/2024/08/16/romanian-gymnast-bronze-medal-jordan-chiles/)
+- **Chiles: Decision to strip her bronze 'feels unjust'**: [Link](https://www.espn.com/olympics/story/_/id/40872646/jordan-chiles-says-decision-strip-bronze-feels-unjust)
+
+
+### mazraoui (N/A, Fri, 16 Aug 2024 00:00:00 -0700)
+
+- **Man Utd team news for Fulham season opener 2024 25**: [Link](https://www.manutd.com/en/news/detail/man-utd-team-news-for-fulham-season-opener-2024-25)
+- **Wan-Bissaka completes £15m move to West Ham from Manchester United**: [Link](https://www.theguardian.com/football/article/2024/aug/13/aaron-wan-bissaka-completes-15m-manchester-united-to-west-ham-move)
+- **Noussair Mazraoui officially joins Manchester United**: [Link](https://en.yabiladi.com/articles/details/153020/noussair-mazraoui-officially-joins-manchester.html)
+
+
+### mounir erramach maroc (N/A, Thu, 15 Aug 2024 22:10:00 -0700)
+
+- **Libération ce jeudi de l’ex-baron de la drogue Mounir Erramach**: [Link](https://fr.le360.ma/societe/liberation-ce-jeudi-de-lex-baron-de-la-drogue-mounir-erramach_5LPC2J5VVNCLXMGDAR3QL2VXMM/)
+- **Fin de l’incarcération de Mounir Erramach après 21 ans en prison**: [Link](https://fr.hespress.com/382324-fin-de-lincarceration-de-mounir-erramach-apres-21-ans-en-prison.html)
+- **Libération de Mounir Erramach, le baron de la drogue surnommé “l’Escobar du 
+Nord”**: [Link](https://mobile.telquel.ma/instant-t/2024/08/16/liberation-de-mounir-erramach-le-baron-de-la-drogue-surnomme-lescobar-du-nord_1889214/)
+
+
 | جدري القردة بالمغرب | N/A | Fri, 16 Aug 2024 06:50:00 -0700 | [إصابات بجدري القرود في باكستان وأوروبا وسط حالة طوارئ عالمية](https://www.aljazeera.net/news/2024/8/16/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8%D8%AC%D8%AF%D8%B1%D9%8A-%D8%A7%D9%84%D9%82%D8%B1%D9%88%D8%AF-%D8%A8%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D9%88%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)<br>[ما الفرق بين جدري القردة وكورونا.. وهل يمكن أن يتحول لجائحة؟](https://www.alarabiya.net/medicine-and-health/2024/08/16/%D9%85%D8%A7-%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D8%A8%D9%8A%D9%86-%D8%AC%D8%AF%D8%B1%D9%8A-%D8%A7%D9%84%D9%82%D8%B1%D8%AF%D8%A9-%D9%88%D9%83%D9%88%D8%B1%D9%88%D9%86%D8%A7-%D9%88%D9%87%D9%84-%D9%8A%D9%85%D9%83%D9%86-%D8%A3%D9%86-%D9%8A%D8%AA%D8%AD%D9%88%D9%84-%D9%84%D8%AC%D8%A7%D8%A6%D8%AD%D8%A9)<br>[رصيف الصحافة: خبراء مغاربة يوصون بحملة تلقيح ضد "جدري القردة"](https://www.hespress.com/%D8%B1%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D9%88%D8%B5%D9%88%D9%86-%D8%A8%D8%AD%D9%85%D9%84%D8%A9-1416848.html) |
 | nemat shafik | N/A | Fri, 16 Aug 2024 05:50:00 -0700 | [Announcement from President Minouche Shafik](https://president.columbia.edu/news/announcement-president-minouche-shafik)<br>[Columbia President Resigns After Months of Turmoil on Campus](https://www.nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html)<br>[This school year is starting like the last one ended: In chaos](https://www.cnn.com/2024/08/15/business/campus-protests-columbia-president-shafik-analysis/index.html) |
 | epic games | N/A | Fri, 16 Aug 2024 05:30:00 -0700 | ['Fortnite' Maker Epic Games Challenges Apple’s Dominance With New iOS App 
