@@ -1,3 +1,35 @@
+### manchester united – fulham (N/A, Fri, 16 Aug 2024 11:00:00 -0700)
+
+- **Man Utd team news for Fulham season opener 2024 25**: [Link](https://www.manutd.com/en/news/detail/man-utd-team-news-for-fulham-season-opener-2024-25)
+- **Wan-Bissaka completes £15m move to West Ham from Manchester United**: [Link](https://www.theguardian.com/football/article/2024/aug/13/aaron-wan-bissaka-completes-15m-manchester-united-to-west-ham-move)
+- **Noussair Mazraoui officially joins Manchester United**: [Link](https://en.yabiladi.com/articles/details/153020/noussair-mazraoui-officially-joins-manchester.html)
+
+
+### sylvain vilebrequin (N/A, Fri, 16 Aug 2024 11:00:00 -0700)
+
+- **"Il m'a tout pris": le duo Vilebrequin se déchire, quelques mois après leur 
+rupture sur Youtube**: [Link](https://www.bfmtv.com/tech/youtube/il-m-a-tout-pris-le-duo-vilebrequin-se-dechire-quelques-mois-apres-leur-rupture-sur-youtube_AV-202408160252.html)
+- **Les deux youtubeurs de Vilebrequin règlent leurs comptes en ligne**: [Link](https://www.20minutes.fr/high-tech/by-the-web/4106029-20240816-apres-etre-separes-youtubeurs-vilebrequin-reglent-comptes-ligne)
+- **Le duo Vilebrequin, déjà séparé, se déchire sur la garde du fameux « 
+1000tipla »**: [Link](https://www.huffingtonpost.fr/people/article/youtube-le-duo-vilebrequin-deja-separe-se-dechire-desormais-sur-la-garde-du-fameux-1000tipla_238453.html)
+
+
+### manchester united (N/A, Fri, 16 Aug 2024 10:40:00 -0700)
+
+- **Matthijs de Ligt to Man United: The Athletic 500 transfer ratings**: [Link](https://www.nytimes.com/athletic/5608964/2024/08/13/matthijs-de-ligt-to-man-united-the-athletic-500-transfer-ratings/)
+- **How to watch the 2024-25 English Premier League season**: [Link](https://sports.yahoo.com/how-to-watch-the-2024-25-english-premier-league-season-160037795.html)
+- **Erik ten Hag says Man United ‘aren’t ready’ – Arne Slot could not be any 
+different**: [Link](https://www.thisisanfield.com/2024/08/erik-ten-hag-says-man-united-arent-ready-arne-slot-could-not-be-any-different/)
+
+
+### visa ivoirien maroc (N/A, Fri, 16 Aug 2024 04:20:00 -0700)
+
+- **Côte d'Ivoire: réintroduction du visa pour se rendre au Maroc afin 
+d'enrayer l'immigration illégale**: [Link](https://www.rfi.fr/fr/afrique/20240815-c%C3%B4te-d-ivoire-r%C3%A9introduction-du-visa-pour-se-rendre-au-maroc-afin-d-enrayer-l-immigration-ill%C3%A9gale)
+- **Abidjan réintroduit le visa d'entrée au Maroc pour le citoyen ivoirien**: [Link](https://fr.hespress.com/382318-abidjan-reintroduit-le-visa-dentree-au-maroc-pour-le-citoyen-ivoirien.html)
+- **La Côte d’Ivoire introduit un visa d’entrée pour les voyages au Maroc**: [Link](https://maroc-diplomatique.net/la-cote-divoire-introduit-un-visa-dentree-pour-les-voyages-au-maroc/)
+
+
 ### man united (N/A, Fri, 16 Aug 2024 10:30:00 -0700)
 
 - **Man Utd team news for Fulham season opener 2024 25**: [Link](https://www.manutd.com/en/news/detail/man-utd-team-news-for-fulham-season-opener-2024-25)
