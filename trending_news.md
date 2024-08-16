@@ -1,3 +1,10 @@
+### man united (N/A, Fri, 16 Aug 2024 10:30:00 -0700)
+
+- **Man Utd team news for Fulham season opener 2024 25**: [Link](https://www.manutd.com/en/news/detail/man-utd-team-news-for-fulham-season-opener-2024-25)
+- **Wan-Bissaka completes £15m move to West Ham from Manchester United**: [Link](https://www.theguardian.com/football/article/2024/aug/13/aaron-wan-bissaka-completes-15m-manchester-united-to-west-ham-move)
+- **Noussair Mazraoui officially joins Manchester United**: [Link](https://en.yabiladi.com/articles/details/153020/noussair-mazraoui-officially-joins-manchester.html)
+
+
 ### psg (N/A, Fri, 16 Aug 2024 10:20:00 -0700)
 
 - **Manchester United tente un coup, le PSG va halluciner**: [Link](https://www.foot01.com/equipe/paris/manchester-united-tente-un-coup-le-psg-va-halluciner-441499)
