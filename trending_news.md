@@ -1,3 +1,12 @@
+### u. d. las palmas - sevilla (N/A, Fri, 16 Aug 2024 14:00:00 -0700)
+
+- **Unregistered Sevilla number 9 Iheanacho in travelling squad to face Las 
+Palmas; Ejuke also called up**: [Link](https://www.allnigeriasoccer.com/read_news.php?nid=52552)
+- **Friday Football Tips: Back Scots to scrap in Gran Canaria in 3/1 double**: [Link](https://onefootball.com/en/news/friday-football-tips-back-scots-to-scrap-in-gran-canaria-in-31-double-39899786)
+- **Las Palmas vs Sevilla Prediction, 8/16/2024 La Liga Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/las-palmas-vs-sevilla-prediction-8-16-2024-la-liga-soccer-pick-tips-and-odds.html)
+
+
 ### las palmas vs sevilla (N/A, Fri, 16 Aug 2024 13:50:00 -0700)
 
 - **Las Palmas - Sevilla, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/las-palmas-sevilla/2024/08/16/01_0101_20240816_407_179-directo.html)
