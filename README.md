@@ -1,3 +1,28 @@
+### amrabat (N/A, Fri, 16 Aug 2024 12:10:00 -0700)
+
+- **Sofyan Amrabat saga takes intriguing twist as Manchester United update 
+squad information**: [Link](https://www.manchestereveningnews.co.uk/sport/football/transfer-news/sofyan-amrabat-saga-takes-intriguing-29736707)
+- **Man Utd drop major hint on next transfer after update on official club 
+website**: [Link](https://www.mirror.co.uk/sport/football/transfer-news/manutd-squad-sofyan-amrabat-future-33469277)
+- **Man Utd may have just ruled out summer transfer by making subtle change on 
+club website**: [Link](https://www.express.co.uk/sport/football/1936338/man-utd-sofyan-amrabat-transfer-news)
+
+
+### celta vigo (N/A, Fri, 16 Aug 2024 12:00:00 -0700)
+
+- **Preview: Celta Vigo vs. Alaves - prediction, team news, lineups**: [Link](https://amp.sportsmole.co.uk/football/celta-vigo/preview/preview-celta-vigo-vs-alaves-prediction-team-news-lineups_550338.html)
+- **Celta Vigo vs Deportivo Alaves Prediction and Betting Tips | August 16th 
+2024**: [Link](https://www.sportskeeda.com/football/celta-vigo-vs-deportivo-alaves-prediction-betting-tips-august-16th-2024)
+- **Celta Vigo coach Giraldez ready for Alaves: But we need to sell**: [Link](https://www.tribalfootball.com/article/soccer-laliga-celta-vigo-coach-giraldez-ready-for-alaves-but-we-need-to-sell-28a413a0-2306-47d2-badf-56ba2d7510e8)
+
+
+### konyaspor vs galatasaray (N/A, Fri, 16 Aug 2024 12:00:00 -0700)
+
+- **Preview: Konyaspor vs. Galatasaray - prediction, team news, lineups**: [Link](https://amp.sportsmole.co.uk/football/konyaspor/preview/preview-konyaspor-vs-galatasaray-prediction-team-news-lineups_550306.html)
+- **Turkish Super Lig week 2 kicks off with exciting matches**: [Link](https://www.turkiyetoday.com/sports/turkish-super-lig-week-2-kicks-off-with-exciting-matches-40521/)
+- **How to Watch Konyaspor vs. Galatasaray: Live Stream, TV Channel, Start Time**: [Link](https://ftw.usatoday.com/article/how-to-watch-konyaspor-vs-galatasaray-live-stream-tv-channel-start-time-3)
+
+
 ### le havre vs psg (N/A, Fri, 16 Aug 2024 11:40:00 -0700)
 
 - **Le Havre - PSG : Paris ouvre une ère sans garantie**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/le-havre-psg-paris-ouvre-une-ere-sans-garantie_sto10301751/story.shtml)
