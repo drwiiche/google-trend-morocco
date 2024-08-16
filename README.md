@@ -1,3 +1,10 @@
+### لوهافر ضد بي اس جي (N/A, Fri, 16 Aug 2024 11:20:00 -0700)
+
+- **حكيمي قائدا لباريس في انطلاقة الدوري الفرنسي**: [Link](https://www.kooora.com/?n=1348389)
+- **اسامة ترغالين غائب عن قمة باريس سان جيرمان**: [Link](https://www.almountakhab.com/node/16203154)
+- **باريس سان جيرمان يرتدي القميص الاحتياطي في مباراة و لوهافر**: [Link](https://hihi2.com/2024/08/16/p2794925.html)
+
+
 ### bayern munich (N/A, Fri, 16 Aug 2024 12:00:00 -0700)
 
 - **SSV Ulm vs Bayern Munich: 2024/25 DFB Pokal full coverage**: [Link](https://www.bavarianfootballworks.com/2024/8/16/24221204/ssv-ulm-vs-bayern-munich-2024-25-dfb-pokal-full-coverage)
