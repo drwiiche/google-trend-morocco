@@ -1,3 +1,10 @@
+### mahmoud abbas (N/A, Fri, 16 Aug 2024 13:30:00 -0700)
+
+- **Palestinian Prez says ‘recognition’ of unified Palestine key to peace**: [Link](https://pune.news/international/palestinian-prez-says-recognition-of-unified-palestine-key-to-peace-213873/)
+- **Palestinian President Abbas, Erdoğan discuss Gaza ceasefire in Ankara**: [Link](https://www.turkishminute.com/2024/08/15/palestinian-president-abbas-erdogan-discussed-gaza-ceasefire-in-ankara/)
+- **Turkey's Erdogan welcomes Palestinian President Mahmoud Abbas in Ankara**: [Link](https://www.africanews.com/2024/08/15/turkeys-erdogan-welcomes-palestinian-president-mahmoud-abbas-in-ankara/)
+
+
 ### psg vs (N/A, Fri, 16 Aug 2024 13:20:00 -0700)
 
 - **Where to Watch Le Havre AC vs. Paris Saint-Germain: TV Channel, Start Time 
