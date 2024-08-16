@@ -1,3 +1,33 @@
+### le havre – paris-sg (N/A, Fri, 16 Aug 2024 11:10:00 -0700)
+
+- **Le Havre - PSG : les compositions officielles**: [Link](https://www.footmercato.net/a7479258959112831150-le-havre-psg-les-compositions-officielles)
+- **L1 : Le Havre-Paris SG, les compos**: [Link](https://news.maxifoot.fr/ligue-1/le-havre-paris-sg-les-compos-foot-417383.htm)
+- **DIRECT. Le Havre-PSG (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/le-havre-psg-live/655865)
+
+
+### ssv ulm 1846 fußball – bayern (N/A, Fri, 16 Aug 2024 11:10:00 -0700)
+
+- **Vorbericht DFB-Pokal: SSV Ulm 1846**: [Link](https://fcbayern.com/de/spiele/profis/dfb-pokal/2024-2025/ssv-ulm-1846-fussball-fc-bayern-muenchen-16-08-2024/vorbericht)
+- **Bayern-Personalien nach der Vorbereitung & Testspielen**: [Link](https://sport.sky.de/fussball/artikel/bayern-personalien-nach-der-vorbereitung-testspielen/13197013/34130)
+- **Gewinner und Verlierer der Saisonvorbereitung des FC Bayern München: Ein 
+Youngster-Quartett bietet sich Vincent Kompany an**: [Link](https://www.spox.com/de/sport/listen/fussball/bundesliga/fc-bayern/2408/muenchen-gewinner-und-verlierer-der-vorbereitung-vier-youngster-empfehlen-sich-vincent-kompany-leon-goretzka-auf-dem-abstellgleis-ftr.html)
+
+
+### man united vs fulham (N/A, Fri, 16 Aug 2024 11:10:00 -0700)
+
+- **Matthijs de Ligt to Man United: The Athletic 500 transfer ratings**: [Link](https://www.nytimes.com/athletic/5608964/2024/08/13/matthijs-de-ligt-to-man-united-the-athletic-500-transfer-ratings/)
+- **'Not ready' - Erik ten Hag makes worrying admission ahead of Man Utd's 
+Premier League opener**: [Link](https://www.90min.com/erik-ten-hag-worrying-admission-man-utd-premier-league-opener)
+- **Sky Bet 50/1 Manchester United to Wear Red Vs Fulham Odds Boost**: [Link](https://www.whoscored.com/Articles/l9hsaLWjL0ilxdr7BIgQOA/Show/Sky-Bet-501-Manchester-United-to-Wear-Red-Vs-Fulham-Odds-Boost)
+
+
+### مان يونايتد ضد فولهام (N/A, Fri, 16 Aug 2024 11:10:00 -0700)
+
+- **حسم موقف مزراوي ودي ليخت من افتتاح البريميرليج**: [Link](https://www.kooora.com/?n=1348174)
+- **تشكيلة مانشستر يونايتد الرسمية لمباراة فولهام**: [Link](https://hihi2.com/2024/08/16/p2795032.html)
+- **الموسم الجديد من البريميرليغ.. مدربون ووافدون جدد وفرق تريد استعادة أمجادها**: [Link](https://www.aljazeera.net/sport/2024/8/15/%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D9%85%D8%AF%D8%B1%D8%A8%D9%88%D9%86)
+
+
 ### manchester united – fulham (N/A, Fri, 16 Aug 2024 11:00:00 -0700)
 
 - **Man Utd team news for Fulham season opener 2024 25**: [Link](https://www.manutd.com/en/news/detail/man-utd-team-news-for-fulham-season-opener-2024-25)
