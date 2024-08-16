@@ -1,3 +1,18 @@
+### galatasaray (N/A, Fri, 16 Aug 2024 11:30:00 -0700)
+
+- **Okan Buruk'tan sakatlık açıklaması! "Hakim Ziyech..."**: [Link](https://beinsports.com.tr/haber/okan-buruktan-sakatlik-aciklamasi-hakim-ziyech)
+- **Konyaspor - Galatasaray (Canlı anlatım)**: [Link](https://www.ntvspor.net/futbol/konyaspor-galatasaray-canli-anlatim-66bf91acec7add04396d440a)
+- **Okan Buruk'tan 3 değişiklik**: [Link](https://www.samsunsonhaber.com/haber/5500015/okan-buruktan-3-degisiklik)
+
+
+### kim dotcom (N/A, Fri, 16 Aug 2024 11:30:00 -0700)
+
+- **New Zealand to extradite internet mogul Kim Dotcom to the US**: [Link](https://www.cnn.com/2024/08/15/asia/kim-dotcom-new-zealand-us-extradition-intl/index.html)
+- **Kim Dotcom to be extradited from New Zealand to the US**: [Link](https://www.bbc.com/news/articles/c5y363lw204o)
+- **Kim Dotcom, roguish face of 2010s online piracy, will finally be extradited 
+to the US**: [Link](https://www.engadget.com/entertainment/kim-dotcom-roguish-face-of-2010s-online-piracy-will-finally-be-extradited-to-the-us-172100627.html)
+
+
 ### le havre – paris-sg (N/A, Fri, 16 Aug 2024 11:10:00 -0700)
 
 - **Le Havre - PSG : les compositions officielles**: [Link](https://www.footmercato.net/a7479258959112831150-le-havre-psg-les-compositions-officielles)
