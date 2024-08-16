@@ -1,3 +1,10 @@
+### le havre vs psg (N/A, Fri, 16 Aug 2024 11:40:00 -0700)
+
+- **Le Havre - PSG : Paris ouvre une ère sans garantie**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/le-havre-psg-paris-ouvre-une-ere-sans-garantie_sto10301751/story.shtml)
+- **PSG : le départ de Mbappé va libérer Kolo Muani et Gonçalo Ramos**: [Link](https://www.footmercato.net/a8512416414296378081-psg-le-depart-de-mbappe-va-liberer-kolo-muani-et-goncalo-ramos)
+- **Kylian Mbappé, c’est déjà terminé !**: [Link](https://www.football365.fr/kylian-mbappe-cest-deja-termine-10196308.html)
+
+
 ### galatasaray (N/A, Fri, 16 Aug 2024 11:30:00 -0700)
 
 - **Okan Buruk'tan sakatlık açıklaması! "Hakim Ziyech..."**: [Link](https://beinsports.com.tr/haber/okan-buruktan-sakatlik-aciklamasi-hakim-ziyech)
