@@ -1,3 +1,11 @@
+### psg vs (N/A, Fri, 16 Aug 2024 13:20:00 -0700)
+
+- **Where to Watch Le Havre AC vs. Paris Saint-Germain: TV Channel, Start Time 
+and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2024/08/15/where-to-watch-le-havre-ac-vs-paris-saint-germain-tv-channel-start-time-and-live-stream/)
+- **Le Havre AC vs. PSG (17 Aug, 2024) Live Score - ESPN (IN)**: [Link](https://www.espn.in/football/match/_/gameId/706429)
+- **Le Havre vs PSG LIVE: Ligue 1 team news, line-ups and more**: [Link](https://sports.yahoo.com/le-havre-vs-psg-live-164515586.html)
+
+
 ### لوهافر ضد بي اس جي (N/A, Fri, 16 Aug 2024 11:20:00 -0700)
 
 - **حكيمي قائدا لباريس في انطلاقة الدوري الفرنسي**: [Link](https://www.kooora.com/?n=1348389)
