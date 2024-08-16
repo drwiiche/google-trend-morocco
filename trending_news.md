@@ -1,3 +1,10 @@
+### psg (N/A, Fri, 16 Aug 2024 10:20:00 -0700)
+
+- **Manchester United tente un coup, le PSG va halluciner**: [Link](https://www.foot01.com/equipe/paris/manchester-united-tente-un-coup-le-psg-va-halluciner-441499)
+- **Ugarte est forfait pour le premier match de Ligue 1**: [Link](https://www.koha.net/fr/futboll/429002/ugarte-lihet-jashte-per-ndeshjen-e-pare-ne-ligue-1)
+- **Mercato - PSG : Un transfert bientôt bouclé à contrecoeur ?**: [Link](https://le10sport.com/football/mercato/mercato-psg-un-transfert-bientot-boucle-a-contrecoeur-709262)
+
+
 ### celta vigo – deportivo alavés (N/A, Fri, 16 Aug 2024 10:00:00 -0700)
 
 - **Celta - Alavés, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/celta-alaves/2024/08/16/01_0101_20240816_176_173-directo.html)
