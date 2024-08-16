@@ -1,3 +1,10 @@
+### bayern munich (N/A, Fri, 16 Aug 2024 12:00:00 -0700)
+
+- **SSV Ulm vs Bayern Munich: 2024/25 DFB Pokal full coverage**: [Link](https://www.bavarianfootballworks.com/2024/8/16/24221204/ssv-ulm-vs-bayern-munich-2024-25-dfb-pokal-full-coverage)
+- **German Cup turns into first stress test for Bayern coach**: [Link](https://pune.news/sports/german-cup-turns-into-first-stress-test-for-bayern-coach-213435/)
+- **Bayern Munich Predicted Lineup Vs Ssv ULM for August 16**: [Link](https://lastwordonsports.com/football/2024/08/16/bayern-munich-predicted-lineup-ssv-ulm/)
+
+
 ### amrabat (N/A, Fri, 16 Aug 2024 12:10:00 -0700)
 
 - **Sofyan Amrabat saga takes intriguing twist as Manchester United update 
