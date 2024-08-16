@@ -44,16 +44,16 @@ def parse_rss(xml_content):
 def update_markdown(new_items, markdown_file, processed_file):
     # Create the markdown file if it doesn't exist
     if not os.path.exists(markdown_file):
-        with open(markdown_file, 'w', encoding='utf-8') as md:
-            md.write("# END\n\n")
+        with open(markdown_file, 'w') as md:
+            md.write("# Trending News\n\n")
 
     if os.path.exists(processed_file):
-        with open(processed_file, 'r', encoding='utf-8') as f:
+        with open(processed_file, 'r') as f:
             processed_hashes = set(f.read().splitlines())
     else:
         processed_hashes = set()
 
-    with open(markdown_file, 'r+', encoding='utf-8') as md:
+    with open(markdown_file, 'r+') as md:
         content = md.read()
         md.seek(0, 0)
 
@@ -66,7 +66,7 @@ def update_markdown(new_items, markdown_file, processed_file):
         if new_entries:
             md.write("\n".join(new_entries) + "\n" + content)
 
-    with open(processed_file, 'w', encoding='utf-8') as f:
+    with open(processed_file, 'w') as f:
         f.write("\n".join(processed_hashes))
 
 # Configuration
