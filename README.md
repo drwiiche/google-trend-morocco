@@ -1,3 +1,10 @@
+### مانشستر يونايتد (N/A, Fri, 16 Aug 2024 12:00:00 -0700)
+
+- **مانشستر يونايتد يمحو آثار أمرابط**: [Link](https://www.hespress.com/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D9%85%D8%AD%D9%88-%D8%A2%D8%AB%D8%A7%D8%B1-%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-1416768.html)
+- **أمرابط يتحول إلى "الخطة ب" في أتلتيكو مدريد**: [Link](https://www.kooora.com/?n=1348234)
+- **سيميوني يفتح طريق النجاة لأمرابط والأهلي يستهدف "أسدا" مغربيا ثانيا**: [Link](https://madar21.com/269437.html)
+
+
 ### mahmoud abbas (N/A, Fri, 16 Aug 2024 13:30:00 -0700)
 
 - **Palestinian Prez says ‘recognition’ of unified Palestine key to peace**: [Link](https://pune.news/international/palestinian-prez-says-recognition-of-unified-palestine-key-to-peace-213873/)
