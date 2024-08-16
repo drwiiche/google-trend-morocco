@@ -27,12 +27,16 @@ jobs:
       run: |
         python rss_checker.py
 
+    - name: Copy content to README.md
+      run: |
+        cp trending_news.md README.md
+
     - name: Commit changes
       run: |
         git config --global user.name "github-actions"
         git config --global user.email "actions@github.com"
-        git add trending_news.md processed_hashes.txt
-        git commit -m "Update trending news"
-        git push
+        git add trending_news.md README.md processed_hashes.txt
+        git commit -m "Update trending news and README"
+        git push https://<PAT_TOKEN>@github.com/drwiiche/google-trend-morocco.git HEAD:main
       env:
-        GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        PAT_TOKEN: ${{ secrets.PAT_TOKEN }}
