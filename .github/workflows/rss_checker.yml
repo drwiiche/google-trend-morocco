@@ -2,7 +2,7 @@ name: RSS Checker
 
 on:
   schedule:
-    - cron: "*/10 * * * *" # Runs every 4 hours
+    - cron: "0 */4 * * *" # Runs every 4 hours
   workflow_dispatch:
 
 jobs:
@@ -37,6 +37,4 @@ jobs:
         git config --global user.email "actions@github.com"
         git add trending_news.md README.md processed_hashes.txt
         git commit -m "Update trending news and README"
-        git push https://<PAT_TOKEN>@github.com/<your-username>/<your-repo>.git HEAD:main
-      env:
-        PAT_TOKEN: ${{ secrets.PAT_TOKEN }}
+        git push https://${{ secrets.PAT_TOKEN }}@github.com/drwiiche/google-trend-morocco.git HEAD:main
