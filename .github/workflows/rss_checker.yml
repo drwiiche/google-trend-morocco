@@ -2,7 +2,7 @@ name: RSS Checker
 
 on:
   schedule:
-    - cron: "0 */4 * * *" # Runs every 4 hours
+    - cron: "*/10 * * * *" # Runs every 4 hours
   workflow_dispatch:
 
 jobs:
