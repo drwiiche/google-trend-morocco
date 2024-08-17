@@ -1,3 +1,10 @@
+### west ham – aston villa (N/A, Sat, 17 Aug 2024 08:40:00 -0700)
+
+- **As It Happened | Julen Lopetegui's pre-Aston Villa press conference**: [Link](https://www.whufc.com/news/it-happened-julen-lopeteguis-pre-aston-villa-press-conference)
+- **'A great honour': West Ham name Jarrod Bowen as new captain**: [Link](https://www.standard.co.uk/sport/football/jarrod-bowen-west-ham-captain-b1176629.html)
+- **West Ham’s Lopetegui Faces Selection Dilemma**: [Link](https://www.claretandhugh.info/west-hams-lopetegui-faces-selection-dilemma/)
+
+
 ### al-nassr vs al-hilal (N/A, Sat, 17 Aug 2024 08:30:00 -0700)
 
 - **Saudi Super Cup 2024 final: Al Hilal meets Al Nassr again**: [Link](https://english.alarabiya.net/sports/2024/08/16/saudi-super-cup-2024-final-al-hilal-meets-al-nassr-again)
