@@ -1,3 +1,10 @@
+### montréal (N/A, Sat, 17 Aug 2024 12:00:00 -0700)
+
+- **[Couverture en direct] Fuite d’eau à Montréal : l’heure est au nettoyage**: [Link](https://ici.radio-canada.ca/info/en-direct/1011810/fuite-eau-geyser-montreal)
+- **Fuite d’eau majeure dans le Centre-Sud | Après la pluie vient le geyser**: [Link](https://www.lapresse.ca/actualites/grand-montreal/2024-08-16/fuite-d-eau-majeure-dans-le-centre-sud/apres-la-pluie-vient-le-geyser.php)
+- **Bris d’aqueduc: des conduites plus vulnérables**: [Link](https://www.journaldemontreal.com/2024/08/17/un-type-daqueduc-deja-en-cause-dans-dautres-bris-majeurs)
+
+
 ### barca (N/A, Sat, 17 Aug 2024 12:10:00 -0700)
 
 - **FC Barcelona Star Gundogan Hands In Shock Transfer Request And Asks To 
