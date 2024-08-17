@@ -1,3 +1,20 @@
+### netanyahu (N/A, Sat, 17 Aug 2024 14:10:00 -0700)
+
+- **Gaza pastor: May the ceasefire talks move us toward 'miracle' of peace**: [Link](https://www.vaticannews.va/en/church/news/2024-08/fr-gabriel-romanelli-parish-priest-of-latin-rite-church-gaza.html)
+- **‘Sign a deal now’: Tens of thousands around country say hostage release is 
+now or never**: [Link](https://www.timesofisrael.com/sign-a-deal-now-tens-of-thousands-around-country-say-hostage-release-is-now-or-never/)
+- **Hundreds demonstrate in Tel Aviv to demand prisoner exchange with 
+Palestinian factions**: [Link](https://www.aa.com.tr/en/middle-east/hundreds-demonstrate-in-tel-aviv-to-demand-prisoner-exchange-with-palestinian-factions/3305190)
+
+
+### barcelona vs (N/A, Sat, 17 Aug 2024 13:10:00 -0700)
+
+- **Gündogan ha pedido salir**: [Link](https://www.sport.es/es/noticias/barca/gundogan-pedido-salir-107091761)
+- **Gündogan quiere irse del Barça**: [Link](https://www.superdeporte.es/futbol/2024/08/17/gundogan-quiere-irse-barca-107093793.html)
+- **Gündogan pide abandonar el Barcelona: estos son los motivos de su decisión 
+- El Gráfico**: [Link](https://www.elgrafico.com/futbol/Gundogan-pide-abandonar-el-Barcelona-estos-son-los-motivos-de-su-decision-20240817-0011.html)
+
+
 ### الدومينيكان (N/A, Sat, 17 Aug 2024 14:00:00 -0700)
 
 - **الدومينيكان تدعم سيادة المغرب على الصحراء .. وتفتح قنصلية بالداخلة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%88%D9%85%D9%8A%D9%86%D9%8A%D9%83%D8%A7%D9%86-%D8%AA%D8%AF%D8%B9%D9%85-%D8%B3%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5-1417743.html)
