@@ -1,3 +1,11 @@
+### arsenal – wolves (N/A, Sat, 17 Aug 2024 06:10:00 -0700)
+
+- **Team news: Havertz, Rice and Saka all start opener**: [Link](https://www.arsenal.com/news/team-news-havertz-rice-and-saka-all-start-opener)
+- **Arsenal vs Wolves live updates**: [Link](https://www.nytimes.com/athletic/live-blogs/arsenal-wolves-live-updates-premier-league-score-result/Ph3IeO2RcmzF/)
+- **Soccer picks: English Premier League parlay for Saturday 8/17 (+2226 odds): 
+Arsenal make a statement against Wolves**: [Link](https://www.pickswise.com/news/soccer-picks-english-premier-league-parlay-for-saturday-8-17-2226-odds-arsenal-make-a-statement-against-wolves/)
+
+
 ### disparition lina suspect (N/A, Sat, 17 Aug 2024 02:50:00 -0700)
 
 - **DOCUMENT RTL - Disparition de Lina : le gérant de la station-service, où 
