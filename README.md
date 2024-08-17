@@ -1,3 +1,10 @@
+### فيروس جدري القردة (N/A, Fri, 16 Aug 2024 20:40:00 -0700)
+
+- **نصائح خبراء الصحة لتفادي الإصابة بجدري القردة**: [Link](https://ar.le360.ma/societe/ULFEJQ5KNNARPLGZM7C2M6XGFE/)
+- **وزارة الصحة تدعو المواطنين لليقظة والإلتزام بالتوجيهات لمواجهة تفشي جدري القردة**: [Link](https://rue20.com/830246.html)
+- **وزارة الصحة: جدري القردة انتشر أكثر بسبب الاتصال الجنسي بين الرجال وتسجيل 5 حالات في المغرب**: [Link](https://alyaoum24.com/1911058.html)
+
+
 ### kick live (N/A, Fri, 16 Aug 2024 17:40:00 -0700)
 
 - **Man City given major boost for Chelsea amid Rodri doubt**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-city-given-major-boost-29724437)
