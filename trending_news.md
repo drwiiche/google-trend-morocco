@@ -1,3 +1,11 @@
+### crash avion lavandou (N/A, Sat, 17 Aug 2024 16:20:00 -0700)
+
+- **Ce que l'on sait du crash mortel d'un avion civil en mer au Lavandou**: [Link](https://www.bfmtv.com/var/ce-que-l-on-sait-du-crash-mortel-d-un-avion-civil-en-mer-au-lavandou_AV-202408160513.html)
+- **Un Fouga magister s’abîme en mer lors d’un spectacle aérien de la 
+Patrouille de France dans le Var**: [Link](https://fr.yahoo.com/news/avion-s-ab%C3%AEme-mer-lors-160358550.html)
+- **Lavandou : le crash d'un avion civil en mer fait un mort**: [Link](https://www.linternaute.com/actualite/faits-divers/5982277-lavandou-le-crash-d-un-avion-civil-en-mer-fait-un-mort/)
+
+
 ### kick live (N/A, Sat, 17 Aug 2024 15:30:00 -0700)
 
 - **Premier League Newcastle United 1 Southampton 0 Full time**: [Link](https://www.bbc.com/sport/football/live/c2041nprd9nt)
