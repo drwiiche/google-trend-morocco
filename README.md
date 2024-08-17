@@ -1,3 +1,8 @@
+### twitch (N/A, Fri, 16 Aug 2024 17:00:00 -0700)
+
+- **Support a Streamer and Twitch Drops Ahead! — World of Warcraft**: [Link](https://news.blizzard.com/en-us/world-of-warcraft/24126707/support-a-streamer-and-twitch-drops-ahead)
+
+
 ### kick (N/A, Fri, 16 Aug 2024 16:20:00 -0700)
 
 - **'We are no longer debating facts', says Harry in Colombia**: [Link](https://www.bbc.com/news/articles/ce31qld552lo)
