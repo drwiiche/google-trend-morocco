@@ -1,3 +1,20 @@
+### kick (N/A, Sat, 17 Aug 2024 15:50:00 -0700)
+
+- **Being overlooked by Formula 1 teams “hurts quite a lot” – Pourchaire**: [Link](https://www.racefans.net/2024/08/17/racefans-round-up-17-08-7/)
+- **Alleged court documents attributed to Adin Ross suggest Kick streamer hired 
+Ant as security without checking his criminal history**: [Link](https://www.sportskeeda.com/us/streamers/news-alleged-court-documents-attributed-adin-ross-suggest-kick-streamer-hired-ant-security-without-checking-criminal-history)
+- **System76's new COSMIC Linux desktop is out of this world**: [Link](https://www.zdnet.com/article/system76s-new-cosmic-linux-desktop-is-out-of-this-world/)
+
+
+### لطيفة رأفت (N/A, Sat, 17 Aug 2024 15:20:00 -0700)
+
+- **بعد اكتساح مشاهد العري للشارع المغربي .. هل نصل لشواطئ مخصصة للعراة؟ (صور)**: [Link](https://www.akhbarona.com/social/390766.html)
+- **السعيدية .. الفنان "عصام كمال" يتحف جماهير مهرجان الشواطئ بأجمل مقاطعه 
+الفنية**: [Link](https://ar.hibapress.com/details-542455.html)
+- **المحافظون ينتهكون الحياة الخاصة لفتاة غضبا من تجولها بكاش مايوه شفاف في 
+بولفار طنجة**: [Link](https://www.tanja7.com/141438/)
+
+
 ### stake (N/A, Sat, 17 Aug 2024 15:30:00 -0700)
 
 - **Stake concede Audi 'tension' after point-less F1 season**: [Link](https://racingnews365.com/stake-concede-audi-tension-after-point-less-f1-season)
