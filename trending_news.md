@@ -1,3 +1,10 @@
+### marrakech accident voiture (N/A, Sat, 17 Aug 2024 04:20:00 -0700)
+
+- **Marrakech : un Marocain résidant en Suisse fauche plusieurs piétons**: [Link](https://www.bladi.net/marrakech-marocain-residant-suisse-fauche-pietons,109969.html)
+- **Marrakech : un conducteur ivre renverse plusieurs personnes, des blessés**: [Link](https://mobile.telquel.ma/2024/08/16/marrakech-un-conducteur-ivre-renverse-plusieurs-personnes-des-blesses-2_1889354)
+- **Marrakech : La DGSN arrête un conducteur ayant percuté plusieurs piétons**: [Link](https://www.leconomiste.com/flash-infos/marrakech-la-dgsn-arrete-un-conducteur-ayant-percute-plusieurs-pietons)
+
+
 ### طقس (N/A, Sat, 17 Aug 2024 04:10:00 -0700)
 
 - **درجات الحرارة تعود إلى الارتفاع بالمغرب**: [Link](https://www.hespress.com/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA-1417416.html)
