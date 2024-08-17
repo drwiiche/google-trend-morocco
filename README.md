@@ -1,3 +1,12 @@
+### arsenal vs (N/A, Sat, 17 Aug 2024 08:50:00 -0700)
+
+- **Arsenal get the job done while Brighton revel in summer sun – F365’s 3pm 
+Blackout returns**: [Link](https://www.football365.com/news/arsenal-saka-havertz-newcastle-win-brighton-thrash-everton-blackout)
+- **The Premier League: Follow all of the action in our live hub**: [Link](https://www.sportsjoe.ie/football/the-premier-league-follow-all-of-the-action-in-our-live-hub-2-333696)
+- **Premier League live: Scores and updates from 3pm kick-offs, including 
+Arsenal vs Wolves**: [Link](https://www.telegraph.co.uk/football/2024/08/17/premier-league-live-scores-updates-arsenal-vs-wolves/)
+
+
 ### supercoupe d'arabie saoudite (N/A, Sat, 17 Aug 2024 10:10:00 -0700)
 
 - **Supercoupe d’Arabie Saoudite : Bounou décisif une nouvelle fois (VIDEO)**: [Link](https://www.lesiteinfo.com/sport/625225-supercoupe-darabie-saoudite-bounou-decisif-une-nouvelle-fois-video.html)
