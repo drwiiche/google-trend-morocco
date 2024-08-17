@@ -1,3 +1,12 @@
+### leverkusen – stuttgart (N/A, Sat, 17 Aug 2024 10:50:00 -0700)
+
+- **Bayer Leverkusen vs. Stuttgart Supercup preview: Team news and predicted 
+lineups**: [Link](https://bulinews.com/bayer-leverkusen-stuttgart-supercup-preview-team-news-and-predicted-lineups)
+- **For the first time in 13 years, Bayern won't be battling it for the German 
+Supercup**: [Link](https://www.mozzartsport.co.ke/football/news/for-the-first-time-in-13-years-bayern-wont-be-battling-it-for-the-german-supercup/45126)
+- **Alonso and Hoeneß do battle once more**: [Link](https://www.bundesliga.com/en/bundesliga/news/xabi-alonso-sebastian-hoeness-coach-comparison-leverkusen-stuttgart-supercup-28505)
+
+
 ### inter milan (N/A, Sat, 17 Aug 2024 10:40:00 -0700)
 
 - **Inter Milan vs. Genoa how to watch, stream, time, odds, prediction: Aug. 
