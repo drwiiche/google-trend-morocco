@@ -1,3 +1,18 @@
+### arsenal (N/A, Sat, 17 Aug 2024 06:20:00 -0700)
+
+- **Premier League: 'One signing could give Arsenal the title' - Alan Shearer**: [Link](https://www.bbc.com/sport/football/articles/c4ge329304qo)
+- **Alan Shearer warns Mikel Arteta that he has to start winning trophies soon**: [Link](https://www.justarsenal.com/4-2/373694)
+- **EPL: Alan Shearer predicts Chelsea vs Man City, Leicester vs Tottenham, 
+other fixtures**: [Link](https://dailypost.ng/2024/08/17/epl-alan-shearer-predicts-chelsea-vs-man-city-leicester-vs-tottenham-other-fixtures/)
+
+
+### pl (N/A, Sat, 17 Aug 2024 06:20:00 -0700)
+
+- **Premier League 2024-25 preview: Key stats, questions, predictions for all 20 teams**: [Link](https://www.espn.com/soccer/insider/story/_/id/40852804/premier-league-2024-25-preview-offseason-moves-stats-analysis-teams-finish)
+- **How to watch the Premier League wherever you are in the U.S, UK and Canada - The Athletic**: [Link](https://www.nytimes.com/athletic/5688430/2024/08/15/premier-league-how-to-watch-us-canada-uk/)
+- **Premier League predictions: Who will finish where in 2024-25?**: [Link](https://www.bbc.com/sport/football/articles/cdrlyg088r5o)
+
+
 ### arsenal – wolves (N/A, Sat, 17 Aug 2024 06:10:00 -0700)
 
 - **Team news: Havertz, Rice and Saka all start opener**: [Link](https://www.arsenal.com/news/team-news-havertz-rice-and-saka-all-start-opener)
