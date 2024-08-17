@@ -1,3 +1,11 @@
+### west ham (N/A, Sat, 17 Aug 2024 09:10:00 -0700)
+
+- **West Ham United U18 2 - 3 Under 18 - Match Report**: [Link](https://www.arsenal.com/fixture/under-18/2024-Aug-17/west-ham-united-u18-under-18-match-report)
+- **As It Happened | Julen Lopetegui's pre-Aston Villa press conference**: [Link](https://www.whufc.com/news/it-happened-julen-lopeteguis-pre-aston-villa-press-conference)
+- **‘Go down as a legend’ - Newcastle United given definitive answer for £100m 
+Miguel Almiron replacement**: [Link](https://www.newcastleworld.com/sport/football/newcastle-united/go-down-as-a-legend-newcastle-united-given-definitive-answer-for-ps100m-miguel-almiron-replacement-4744769)
+
+
 ### genoa – inter (N/A, Sat, 17 Aug 2024 08:50:00 -0700)
 
 - **Inzaghi: "Vogliamo regalare altre emozioni ai nostri tifosi"**: [Link](https://www.inter.it/it/notizie/conferenza-stampa-inzaghi-genoa-inter-16-08-2024)
