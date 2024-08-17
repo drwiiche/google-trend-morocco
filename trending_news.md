@@ -1,3 +1,21 @@
+### ssc sport (N/A, Sat, 17 Aug 2024 09:50:00 -0700)
+
+- **38 قناة تنقل مباريات السوبر السعودي**: [Link](https://www.kooora.com/?n=1347718)
+- **" بث مباشر " تردد قناة SSC SPORT 5-1 لمشاهدة مباراة النصر والهلال اليوم 
+نهائي كأس السوبر السعودي 2024**: [Link](https://real.alsaudinews.com/141392/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-ssc-sport-5-1-%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%87/)
+- **“ثبتها الآن”.. تردد قناة SSC SPORTS 1 الرياضية السعودية 2024 لمشاهدة مباراة 
+الأهلي والهلال تويتر مباشر اليوم**: [Link](https://ar.sports-leb.com/11330/%D8%AB%D8%A8%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%A2%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-ssc-sports-1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9/)
+
+
+### newcastle (N/A, Sat, 17 Aug 2024 08:20:00 -0700)
+
+- **Premier League Newcastle United 1 Southampton 0 Full time**: [Link](https://www.bbc.com/sport/football/live/c2041nprd9nt)
+- **Martin's family 'excited' by landmark moment - but he is focused on only 
+one thing**: [Link](https://www.dailyecho.co.uk/sport/24524597.martins-family-excited-focused-one-thing/)
+- **Latest. Team news: Livramento starts against Saints, Kelly and Osula on 
+bench**: [Link](https://www.newcastleunited.com/en/news/team-news-livramento-starts-against-saints-kelly-and-osula-on-bench)
+
+
 ### nayef aguerd (N/A, Sat, 17 Aug 2024 09:30:00 -0700)
 
 - **"Not a fan" | Lopetegui makes Mavropanos available for sale**: [Link](https://www.thewesthamway.com/2024/08/12/not-a-fan-lopetegui-makes-mavropanos-available-for-sale/)
