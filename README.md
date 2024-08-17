@@ -1,3 +1,21 @@
+### nayef aguerd (N/A, Sat, 17 Aug 2024 09:30:00 -0700)
+
+- **"Not a fan" | Lopetegui makes Mavropanos available for sale**: [Link](https://www.thewesthamway.com/2024/08/12/not-a-fan-lopetegui-makes-mavropanos-available-for-sale/)
+- **West Ham United told to make Konstantinos Mavrpanos transfer call after 
+exit update**: [Link](https://www.westhamzone.com/transfers/west-ham-united-told-to-make-konstantinos-mavrpanos-transfer-call-after-exit-update/)
+- **West Ham eye Bastien Meupiyou from Nantes with exits on cards**: [Link](https://www.westhamzone.com/transfers/west-ham-united-interested-in-bastien-meupiyou-as-nayef-aguerd-and-kurt-zouma-head-for-exit/)
+
+
+### brest vs marseille (N/A, Sat, 17 Aug 2024 09:10:00 -0700)
+
+- **VIDEO: Mason Greenwood scores brilliant goal for Marseille just three 
+minutes into Ligue 1 debut as ex-Man Utd forward makes instant impact in 
+France**: [Link](https://www.goal.com/en/lists/video-mason-greenwood-scores-brilliant-goal-marseille-ligue-1-debut-ex-man-utd-scores-twice-in-first-half/blt25c5f9502be496ef)
+- **Brest vs Olympique Marseille LIVE: Ligue 1 latest score, goals and updates 
+from fixture**: [Link](https://sports.yahoo.com/brest-vs-olympique-marseille-live-130013087.html)
+- **Ligue 1 Predictions | Round 1**: [Link](https://www.getfootballnewsfrance.com/2024/ligue-1-predictions-round-1-2/)
+
+
 ### west ham (N/A, Sat, 17 Aug 2024 09:10:00 -0700)
 
 - **West Ham United U18 2 - 3 Under 18 - Match Report**: [Link](https://www.arsenal.com/fixture/under-18/2024-Aug-17/west-ham-united-u18-under-18-match-report)
