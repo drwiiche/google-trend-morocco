@@ -1,3 +1,10 @@
+### brest – marseille (N/A, Sat, 17 Aug 2024 07:10:00 -0700)
+
+- **Les compositions probables de Stade Brestois-OM**: [Link](https://www.footmercato.net/a1430079448488609794-les-compositions-probables-de-stade-brestois-om)
+- **Brest - Marseille | À l'OM, le changement, c'est tout le temps**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/brest-marseille-a-l-om-le-changement-c-est-tout-le-temps_sto10300476/story.shtml)
+- **Ligue 1 - Brest-OM : compos probables, chaîne TV et heure du match**: [Link](https://www.footmarseille.com/105044-brest-om-compos-probables-chaine-tv-et-heure-du-match)
+
+
 ### everton – brighton (N/A, Sat, 17 Aug 2024 07:00:00 -0700)
 
 - **Premier League Soccer: Livestream Everton vs. Brighton From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-everton-vs-brighton-from-anywhere/)
