@@ -1,3 +1,10 @@
+### fcb vs (N/A, Sat, 17 Aug 2024 13:50:00 -0700)
+
+- **Relive the four El Clásico wins in the USA**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4075478/relive-the-four-el-clasico-wins-in-the-usa/featured)
+- **Pau Víctor leads the first team in scoring**: [Link](https://www.mundodeportivo.com/us/en/soccer/20240804/696666/pau-victor-leads-the-first-team-in-scoring-nrt.html)
+- **3 Barca stars who stood out in the first El Clasico of the 2024/25 campaign**: [Link](https://everythingbarca.com/posts/3-barca-stars-who-stood-out-in-the-first-el-clasico-of-the-2024-25-campaign-01j4e28y6ehg)
+
+
 ### milan ac (N/A, Sat, 17 Aug 2024 14:20:00 -0700)
 
 - **AC Milan - Torino : Pronostic, Chaîne TV, Streaming, Compo, 100€ Offerts 
