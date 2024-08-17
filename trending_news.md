@@ -1,3 +1,19 @@
+### fenerbahçe (N/A, Sat, 17 Aug 2024 13:00:00 -0700)
+
+- **U19 ve U17 takımımız sezonun ilk maçına çıkıyor**: [Link](https://www.fenerbahce.org/215/849/137672/143062/143390)
+- **Potanın Kraliçeleri Taraftarımızın Desteğini Bekliyor! Fenerbahçe Kadın 
+Basketbol Takımımızın 2024-25 sezonu kombine satışı başlıyor**: [Link](https://www.fenerbahce.org/haberler/basketbol-kadin/2024/8/potanin-kraliceleri-taraftarimizin-destegini-bekliyor-fenerbahce-kadin-basketbol-takimimizin-2024-2)
+- **İstanbul Haberleri - Fenerbahçe Kadın Basketbol Takımı yeni sezon 
+hazırlıklarına başladı - Son Dakika Yerel Haberler**: [Link](https://www.hurriyet.com.tr/yerel-haberler/istanbul/fenerbahce-kadin-basketbol-takimi-yeni-sezon-ha-42505460)
+
+
+### ليفركوزن ضد شتوتغارت (N/A, Sat, 17 Aug 2024 13:00:00 -0700)
+
+- **ليفركوزن يتعرض لضربة قوية في السوبر الألماني**: [Link](https://www.kooora.com/?n=1348634&o=n)
+- **موقعة تاريخية بين ليفركوزن وشتوتغارت على لقب السوبر**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86-%D9%88%D8%B4%D8%AA%D9%88%D8%AA%D8%BA%D8%A7%D8%B1%D8%AA-%D8%B9%D9%84%D9%89-%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-2024-08-17)
+- **عدلي يبحث عن السوبر الألماني الأول له**: [Link](https://www.almountakhab.com/node/16203177)
+
+
 ### marc casadó (N/A, Sat, 17 Aug 2024 12:40:00 -0700)
 
 - **Nadie quiere la losa del dorsal 10**: [Link](https://as.com/futbol/nadie-quiere-la-losa-del-dorsal-10-n/)
