@@ -1,3 +1,27 @@
+### al-nassr fc – al-hilal (N/A, Sat, 17 Aug 2024 08:20:00 -0700)
+
+- **Cristiano Ronaldo is back, baby! Al-Nassr superstar begins new season with 
+goal & assist against Al-Taawoun in Saudi Super Cup semi-final as more 
+silverware moves into sight | Goal.com US**: [Link](https://www.goal.com/en-us/lists/cristiano-ronaldo-al-nassr-al-taawoun-saudi-super-cup-semi-final/bltfa422f084c23018e)
+- **Cristiano Ronaldo defies time and makes soccer history**: [Link](https://playingfor90.com/posts/cristiano-ronaldo-defies-time-and-makes-soccer-history-01j59j498vfp)
+- **Watch the highlights as Cristiano Ronaldo begins new season with goal and 
+assist against Al-Taawoun**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/Watch-the-highlights-as-Cristiano-Ronaldo-begins-new-season-with-goal-and-assist-against-Al-Taawoun-1945712)
+
+
+### 1. fc phönix lübeck – dortmund (N/A, Sat, 17 Aug 2024 08:20:00 -0700)
+
+- **Fakten zum DFB-Pokal: Borussia und die Revanche für 38**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2024/8/16/Fakten-zum-DFB-Pokal-Borussia-und-die-Revanche-fuer-38.html)
+- **DFB-Pokal: BVB-Trainer Sahin: „Sind noch in den Flitterwochen“**: [Link](https://ga.de/news/nrw/bvb-trainer-sahin-sind-noch-in-den-flitterwochen_aid-117844637)
+- **Phönix-Trainer Adigo: „Wir sind die Adler“**: [Link](https://www.wz.de/nrw/phoenix-trainer-adigo-wir-sind-die-adler_aid-117848099)
+
+
+### النصر ضد الهلال (N/A, Sat, 17 Aug 2024 08:20:00 -0700)
+
+- **رونالدو على موعد مع "كابوس متجدد" في الديربي**: [Link](https://www.kooora.com/?n=1348503)
+- **الدعيع يتحدى الحارس المغربي بونو**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%B9%D9%8A%D8%B9-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D9%88%D9%86%D9%88-1416867.html)
+- **تاريخ مواجهات الهلال والنصر**: [Link](https://hihi2.com/2024/08/17/p2797009.html)
+
+
 ### om (N/A, Sat, 17 Aug 2024 08:00:00 -0700)
 
 - **Brest vs Marseille Odds: Ligue 1 Season Opener Preview**: [Link](https://www.pointspreads.com/news/ligue-1/marseille-open-season-at-brest-after-busy-summer/)
