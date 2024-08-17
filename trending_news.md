@@ -1,3 +1,18 @@
+### everton – brighton (N/A, Sat, 17 Aug 2024 07:00:00 -0700)
+
+- **Premier League Soccer: Livestream Everton vs. Brighton From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-everton-vs-brighton-from-anywhere/)
+- **Everton v Brighton score prediction shared by Owen Hargreaves**: [Link](https://www.goodisonnews.com/2024/08/17/everton-v-brighton-score-prediction-shared-by-owen-hargreaves/)
+- **New Look Toffees: Everton Predicted Line Up To Face Brighton**: [Link](https://lastwordonsports.com/football/2024/08/17/everton-predicted-lineup-vs-brighton/)
+
+
+### liverpool fc (N/A, Sat, 17 Aug 2024 06:50:00 -0700)
+
+- **Arne Slot makes decisive Luis Diaz statement after Man City transfer links**: [Link](https://www.liverpool.com/liverpool-fc-news/transfer-news/slot-luis-diaz-mancity-transfer-29751134)
+- **How Liverpool could sell superstar - to fund huge Anthony Gordon raid**: [Link](https://www.fourfourtwo.com/news/how-liverpool-could-sell-superstar-to-fund-huge-anthony-gordon-raid)
+- **Barcelona transfers: Deco 'reactivates' pursuit of Liverpool star who's 
+been outed as a Catalans fan**: [Link](https://www.teamtalk.com/liverpool/barcelona-reactivate-transfer-liverpool-whos-been-outed-fan-price-tag-revealed)
+
+
 ### newcastle – southampton (N/A, Sat, 17 Aug 2024 06:30:00 -0700)
 
 - **Saints trio "in a good place" ahead of Premier League opener**: [Link](https://www.southamptonfc.com/en/news/article/saints-trio-in-a-good-place-ahead-of-premier-league-opener)
