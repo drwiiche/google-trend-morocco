@@ -1,3 +1,10 @@
+### noussair mazraoui (N/A, Sat, 17 Aug 2024 02:10:00 -0700)
+
+- **Wan-Bissaka completes £15m move to West Ham from Manchester United**: [Link](https://www.theguardian.com/football/article/2024/aug/13/aaron-wan-bissaka-completes-15m-manchester-united-to-west-ham-move)
+- **Man Utd team news for Fulham season opener 2024 25**: [Link](https://www.manutd.com/en/news/detail/man-utd-team-news-for-fulham-season-opener-2024-25)
+- **Noussair Mazraoui officially joins Manchester United**: [Link](https://en.yabiladi.com/articles/details/153020/noussair-mazraoui-officially-joins-manchester.html)
+
+
 ### abonnement wizz air (N/A, Sat, 17 Aug 2024 01:10:00 -0700)
 
 - **Wizz Air: Is budget airline 'all you can fly' subscription too good to be 
