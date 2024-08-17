@@ -1,3 +1,10 @@
+### kick live (N/A, Sat, 17 Aug 2024 15:30:00 -0700)
+
+- **Premier League Newcastle United 1 Southampton 0 Full time**: [Link](https://www.bbc.com/sport/football/live/c2041nprd9nt)
+- **Newcastle 1 Southampton 0 – Instant Newcastle United fan / writer reaction**: [Link](https://onefootball.com/id/berita/newcastle-1-southampton-0-instant-newcastle-united-fan-writer-reaction-39906490)
+- **Eddie Howe: Newcastle 'magnificently' fought for victory against Saints**: [Link](https://www.planetsport.com/soccer/news/eddie-howe-newcastle-magnificently-fought-for-victory-against-saints)
+
+
 ### kick (N/A, Sat, 17 Aug 2024 15:50:00 -0700)
 
 - **Being overlooked by Formula 1 teams “hurts quite a lot” – Pourchaire**: [Link](https://www.racefans.net/2024/08/17/racefans-round-up-17-08-7/)
