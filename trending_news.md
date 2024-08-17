@@ -1,3 +1,26 @@
+### الدومينيكان (N/A, Sat, 17 Aug 2024 14:00:00 -0700)
+
+- **الدومينيكان تدعم سيادة المغرب على الصحراء .. وتفتح قنصلية بالداخلة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%88%D9%85%D9%8A%D9%86%D9%8A%D9%83%D8%A7%D9%86-%D8%AA%D8%AF%D8%B9%D9%85-%D8%B3%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5-1417743.html)
+- **رئيس دومينيكان يعلن فتح قنصلية بالداخلة و يؤكد دعم بلاده الثابت لمغربية 
+الصحراء**: [Link](https://rue20.com/830713.html)
+- **بوريطة يمثل الملك محمد السادس في مراسم تنصيب رئيس جمهورية الدومينيكان – 
+اليوم 24**: [Link](https://alyaoum24.com/1911086.html)
+
+
+### ufc 305 (N/A, Sat, 17 Aug 2024 14:00:00 -0700)
+
+- **'It's the old Izzy, but also old Izzy': A motivated Israel Adesanya is back**: [Link](https://www.espn.com/mma/story/_/id/40870031/at-ufc-305-israel-adesanya-makes-motivated-return-versus-dricus-du-plessis)
+- **UFC 305 Results: Winners And Losers From Du Plessis Vs. Adesanya Card**: [Link](https://www.forbes.com/sites/trentreinsmith/2024/08/17/ufc-305-results-winners-and-losers-from-du-plessis-vs-adesanya-card/)
+- **UFC 305 predictions**: [Link](https://www.mmafighting.com/2024/8/17/24221098/ufc-305-predictions)
+
+
+### lewandowski (N/A, Sat, 17 Aug 2024 13:50:00 -0700)
+
+- **Trump campaign brings Corey Lewandowski back on board**: [Link](https://www.politico.com/news/2024/08/15/trump-campaign-brings-corey-lewandowski-back-on-board-00174155)
+- **Vice President Kamala Harris has been a 'chameleon': Corey Lewandowski**: [Link](https://www.foxnews.com/video/6360527536112)
+- **Top Trump advisers in turmoil after campaign’s worst month of 2024**: [Link](https://www.theguardian.com/us-news/article/2024/aug/15/trump-campaign-leadership)
+
+
 ### dominican republic (N/A, Sat, 17 Aug 2024 13:40:00 -0700)
 
 - **Dominican Republic's Abinader vows economic growth, social reforms in second term**: [Link](https://www.reuters.com/world/americas/dominican-republics-abinader-names-cabinet-posts-leaders-gather-inauguration-2024-08-16/)
