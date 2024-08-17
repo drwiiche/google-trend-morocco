@@ -1,3 +1,11 @@
+### milan (N/A, Sat, 17 Aug 2024 13:10:00 -0700)
+
+- **Champions Inter held at Genoa after late penalty drama**: [Link](https://www.france24.com/en/live-news/20240817-champions-inter-held-at-genoa-after-late-penalty-drama)
+- **Inter start season without Zielinski and De Vrij, Inzaghi says**: [Link](https://www.egypttoday.com/Article/8/134205/Inter-start-season-without-Zielinski-and-De-Vrij-Inzaghi-says)
+- **Genoa vs. Inter Milan odds, line, predictions: Serie A picks and best bets 
+for Aug. 17, 2024 from soccer insider**: [Link](https://www.sportsline.com/insiders/genoa-vs-inter-milan-odds-line-predictions-serie-a-picks-and-best-bets-for-aug-17-2024-from-soccer-insider/)
+
+
 ### fenerbahçe (N/A, Sat, 17 Aug 2024 13:00:00 -0700)
 
 - **U19 ve U17 takımımız sezonun ilk maçına çıkıyor**: [Link](https://www.fenerbahce.org/215/849/137672/143062/143390)
