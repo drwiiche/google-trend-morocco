@@ -1,3 +1,10 @@
+### ناصر الزفزافي (N/A, Sat, 17 Aug 2024 07:40:00 -0700)
+
+- **إطلاق سراح قادة "حراك الريف".. هل ينهي المغرب الجدل الحقوقي؟**: [Link](https://www.alhurra.com/morocco/2024/08/16/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%B3%D8%B1%D8%A7%D8%AD-%D9%82%D8%A7%D8%AF%D8%A9-%D8%AD%D8%B1%D8%A7%D9%83-%D8%A7%D9%84%D8%B1%D9%8A%D9%81-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A7%D9%84%D8%AD%D9%82%D9%88%D9%82%D9%8A%D8%9F)
+- **بمناسبة ذكرى ثورة الملك والشعب.. ترقب واسع لإطلاق سراح معتقلي الريف**: [Link](https://m.alayam24.com/articles-521053.html)
+- **العفو عن بعض معتقلي الرأي… تفكير داخل الصندوق أم خارجه؟**: [Link](https://lakome2.com/opinion/353036/)
+
+
 ### liverpool vs (N/A, Sat, 17 Aug 2024 06:00:00 -0700)
 
 - **Premier League: Build-up to four Premier League matches after Liverpool 
