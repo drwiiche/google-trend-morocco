@@ -1,3 +1,12 @@
+### the union (N/A, Sat, 17 Aug 2024 14:50:00 -0700)
+
+- **‘The Union’ Director Reveals Why Mark Wahlberg and Halle Berry Never Kiss: 
+‘You Have to Think of This As a Three Movie Idea’**: [Link](https://variety.com/2024/film/news/mark-wahlberg-halle-berry-the-union-netflix-kiss-1236105392/)
+- **‘The Union’ Review: Old Flames and Spy Games**: [Link](https://www.nytimes.com/2024/08/15/movies/the-union-review.html)
+- **‘The Union’ Review: Mark Wahlberg & Halle Berry Give Spy Romp Chemistry, 
+Style And A Really Great Car Chase**: [Link](https://deadline.com/2024/08/the-union-review-mark-wahlberg-halle-berry-spy-romp-with-chemistry-style-great-car-chase-1236040856/)
+
+
 ### fcb vs (N/A, Sat, 17 Aug 2024 13:50:00 -0700)
 
 - **Relive the four El Clásico wins in the USA**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4075478/relive-the-four-el-clasico-wins-in-the-usa/featured)
