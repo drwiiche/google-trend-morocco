@@ -1,3 +1,10 @@
+### kick live (N/A, Fri, 16 Aug 2024 17:40:00 -0700)
+
+- **Man City given major boost for Chelsea amid Rodri doubt**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-city-given-major-boost-29724437)
+- **Take The Over: Back Goals At Stamford Bridge**: [Link](https://www.goal.com/en-in/betting/chelsea-manchester-city-betting-goals-maresca/blt38bb99638e3db351)
+- **Guardiola explains mass squad rotation as star players earn much needed rest**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-guardiola-explains-mass-squad-rotation-as-star-players-earn-much-needed-rest-e350f51d-c8e5-4c73-9703-7f5069ca3829)
+
+
 ### twitch (N/A, Fri, 16 Aug 2024 17:00:00 -0700)
 
 - **Support a Streamer and Twitch Drops Ahead! — World of Warcraft**: [Link](https://news.blizzard.com/en-us/world-of-warcraft/24126707/support-a-streamer-and-twitch-drops-ahead)
