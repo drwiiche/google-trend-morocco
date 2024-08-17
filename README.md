@@ -1,3 +1,10 @@
+### marc casadó (N/A, Sat, 17 Aug 2024 12:40:00 -0700)
+
+- **Nadie quiere la losa del dorsal 10**: [Link](https://as.com/futbol/nadie-quiere-la-losa-del-dorsal-10-n/)
+- **Así quedan los dorsales del Barça para el debut liguero**: [Link](https://www.sport.es/es/noticias/barca/quedan-dorsales-barca-debut-liguero-107060474)
+- **Pablo Torre y Casadó ya tienen nuevo dorsal**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240816/1002299521/son-azulgrana-dorsal-opciones-disponibles.html)
+
+
 ### montréal (N/A, Sat, 17 Aug 2024 12:00:00 -0700)
 
 - **[Couverture en direct] Fuite d’eau à Montréal : l’heure est au nettoyage**: [Link](https://ici.radio-canada.ca/info/en-direct/1011810/fuite-eau-geyser-montreal)
