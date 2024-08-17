@@ -1,3 +1,19 @@
+### israel adesanya (N/A, Fri, 16 Aug 2024 23:40:00 -0700)
+
+- **'It's the old Izzy, but also old Izzy': A motivated Israel Adesanya is back**: [Link](https://www.espn.com/mma/story/_/id/40870031/at-ufc-305-israel-adesanya-makes-motivated-return-versus-dricus-du-plessis)
+- **Weigh-In Results | UFC 305: Du Plessis vs Adesanya**: [Link](https://www.ufc.com/news/weigh-results-ufc-305-du-plessis-vs-adesanya)
+- **UFC 305 predictions -- Dricus du Plessis vs. Israel Adesanya: Fight card, 
+odds, preview, prelims, expert picks**: [Link](https://www.cbssports.com/mma/news/ufc-305-predictions-dricus-du-plessis-vs-israel-adesanya-fight-card-odds-preview-prelims-expert-picks/)
+
+
+### plus belle la vie encore plus belle (N/A, Fri, 16 Aug 2024 22:00:00 -0700)
+
+- **Plus belle la vie, encore plus belle du vendredi 16 août 2024 - Episode 149**: [Link](https://www.tf1.fr/tf1/plus-belle-la-vie/videos/plus-belle-la-vie-encore-plus-belle-du-vendredi-16-aout-2024-episode-149-60407971.html)
+- **Plus belle la vie : ce geste des mistraliens peut-il aider Thomas ?**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000097547.html)
+- **Plus Belle La Vie spoiler : Vanessa interrogée par la police (VIDÉO épisode 
+du 19 août)**: [Link](https://www.plusbellelavie.org/2024/08/14/plus-belle-la-vie-spoiler-vanessa-interrogee-par-la-police-video-episode-du-19-aout/)
+
+
 ### فيروس جدري القردة (N/A, Fri, 16 Aug 2024 20:40:00 -0700)
 
 - **نصائح خبراء الصحة لتفادي الإصابة بجدري القردة**: [Link](https://ar.le360.ma/societe/ULFEJQ5KNNARPLGZM7C2M6XGFE/)
