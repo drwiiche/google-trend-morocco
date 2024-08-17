@@ -1,3 +1,19 @@
+### ipswich town – liverpool (N/A, Sat, 17 Aug 2024 03:30:00 -0700)
+
+- **FPL mailbag: Is Son being overlooked? Nkunku great value?**: [Link](https://www.nytimes.com/athletic/5697632/2024/08/15/fpl-advice-son-nkunku/)
+- **Liverpool team vs Ipswich predicted as Ryan Gravenberch and Jarell Quansah 
+decisions made**: [Link](https://www.liverpool.com/liverpool-fc-news/features/liverpool-team-lineup-ipswich-gravenberch-29756909)
+- **Premier League Saturday Tips: Six tempting bets including a 13/2 shout**: [Link](https://onefootball.com/es/noticias/premier-league-saturday-tips-six-tempting-bets-including-a-132-shout-39899669)
+
+
+### liverpool (N/A, Sat, 17 Aug 2024 03:30:00 -0700)
+
+- **Every word from Arne Slot's pre-Ipswich press conference**: [Link](https://www.liverpoolfc.com/news/every-word-arne-slots-pre-ipswich-press-conference)
+- **How Martín Zubimendi saga left Liverpool in a tight but familiar spot**: [Link](https://www.thetimes.com/sport/football/article/martin-zubimendi-liverpool-arne-slot-transfer-news-jz89zc0dz)
+- **Arne Slot says Liverpool still trying to strengthen after failing to sign 
+Martin Zubimendi**: [Link](https://www.bbc.com/sport/football/articles/czx61n6drn6o)
+
+
 ### noussair mazraoui (N/A, Sat, 17 Aug 2024 02:10:00 -0700)
 
 - **Wan-Bissaka completes £15m move to West Ham from Manchester United**: [Link](https://www.theguardian.com/football/article/2024/aug/13/aaron-wan-bissaka-completes-15m-manchester-united-to-west-ham-move)
