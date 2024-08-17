@@ -1,3 +1,46 @@
+### newcastle – southampton (N/A, Sat, 17 Aug 2024 06:30:00 -0700)
+
+- **Saints trio "in a good place" ahead of Premier League opener**: [Link](https://www.southamptonfc.com/en/news/article/saints-trio-in-a-good-place-ahead-of-premier-league-opener)
+- **Why Newcastle’s starting XI will be very familiar despite five signings - 
+The Athletic**: [Link](https://www.nytimes.com/athletic/5700155/2024/08/15/newcastle-starting-xi-summer-window/)
+- **Newcastle United striker ruled out of next two Premier League matches after 
+Aston Villa & West Ham heroics**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/callum-wilson-newcastle-united-striker-ruled-out-of-next-two-matches-after-aston-villa-west-ham-heroics-4745692)
+
+
+### fantasy premier league (N/A, Sat, 17 Aug 2024 06:30:00 -0700)
+
+- **FPL tips for the 2024-25 Premier League: Wildcards, Haaland, budget options 
+and ‘the template’ - The Athletic**: [Link](https://www.nytimes.com/athletic/5697856/2024/08/16/fpl-tips-advice-premier-league/)
+- **2024/25 PL Season: Predicted GW1 Lineups of All 20 PL Teams**: [Link](https://allaboutfpl.com/2024/08/2024-25-pl-season-predicted-gw1-lineups-of-all-20-pl-teams/)
+- **A group of Fantasy Premier League experts have come together to name the 
+best gameweek 1 team**: [Link](https://www.givemesport.com/fantasy-premier-league-experts-pick-best-team/)
+
+
+### fpl live (N/A, Sat, 17 Aug 2024 06:30:00 -0700)
+
+- **FPL GW1: Advice and injury news from Ben Dinnery in live Q&A - The Athletic**: [Link](https://www.nytimes.com/athletic/5704750/2024/08/16/fpl-advice-injury-news-ben-dinnery/)
+- **FPL injury update: Solanke, Grealish, Bobb, Vardy, Branthwaite and Schar 
+latest news**: [Link](https://www.express.co.uk/sport/football/1936486/fpl-team-news-injury-update-solanke-grealish-bobb)
+- **FPL Gameweek 1 team news: Live injury updates from Pep, Slot, Howe + more**: [Link](https://www.fantasyfootballscout.co.uk/2024/08/16/fpl-gameweek-1-team-news-live-injury-updates-from-pep-slot-howe-more?hc_page=21&hc_sort_by=comment_date)
+
+
+### ipswich town (N/A, Sat, 17 Aug 2024 05:20:00 -0700)
+
+- **Ipswich Town sign Sammie Szmodics from Blackburn and Kalvin Phillips from 
+Manchester City**: [Link](https://www.bbc.com/sport/football/articles/czdp3gjpqq4o)
+- **Leeds United suffer transfer blow as £9m deal 'agreed'**: [Link](https://www.leeds-live.co.uk/sport/leeds-united/leeds-united-suffer-transfer-blow-29749776)
+- **Ipswich Town make enquiry over signing Chelsea star... as they also agree 
+deal to sign Sammie Szmodics with th**: [Link](https://www.dailymail.co.uk/sport/football/article-13748705/Ipswich-Town-make-enquiry-signing-Chelsea-star-agree-deal-sign-Sammie-Szmodics-Blackburn-forward-set-undergo-medical.html)
+
+
+### ipswich town vs liverpool (N/A, Sat, 17 Aug 2024 04:00:00 -0700)
+
+- **Every word from Arne Slot's pre-Ipswich press conference**: [Link](https://www.liverpoolfc.com/news/every-word-arne-slots-pre-ipswich-press-conference)
+- **How Martín Zubimendi saga left Liverpool in a tight but familiar spot**: [Link](https://www.thetimes.com/sport/football/article/martin-zubimendi-liverpool-arne-slot-transfer-news-jz89zc0dz)
+- **Arne Slot says Liverpool still trying to strengthen after failing to sign 
+Martin Zubimendi**: [Link](https://www.bbc.com/sport/football/articles/czx61n6drn6o)
+
+
 ### arsenal (N/A, Sat, 17 Aug 2024 06:20:00 -0700)
 
 - **Premier League: 'One signing could give Arsenal the title' - Alan Shearer**: [Link](https://www.bbc.com/sport/football/articles/c4ge329304qo)
