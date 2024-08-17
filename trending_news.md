@@ -1,3 +1,11 @@
+### al-nassr vs al-hilal (N/A, Sat, 17 Aug 2024 08:30:00 -0700)
+
+- **Saudi Super Cup 2024 final: Al Hilal meets Al Nassr again**: [Link](https://english.alarabiya.net/sports/2024/08/16/saudi-super-cup-2024-final-al-hilal-meets-al-nassr-again)
+- **Will Ronaldo play in the Saudi Super Cup Final How to Watch Al-Nassr vs 
+Al-Hilal Live Streaming?**: [Link](https://www.republicworld.com/sports/football/will-cristiano-ronaldo-play-in-the-saudi-super-cup-final-how-to-watch-al-nassr-vs-al-hilal-live-streaming)
+- **Al-Nassr vs Al-Hilal Prediction and Betting Tips | 17th August 2024**: [Link](https://www.sportskeeda.com/football/al-nassr-vs-al-hilal-prediction-betting-tips-17th-august-2024)
+
+
 ### al-nassr fc – al-hilal (N/A, Sat, 17 Aug 2024 08:20:00 -0700)
 
 - **Cristiano Ronaldo is back, baby! Al-Nassr superstar begins new season with 
