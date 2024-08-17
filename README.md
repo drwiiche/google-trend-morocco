@@ -1,3 +1,26 @@
+### epic games ios (N/A, Sat, 17 Aug 2024 13:30:00 -0700)
+
+- **How to get the Katalina ‘Mobile App Bonus Goals’ skin on Fortnite iOS and 
+Android**: [Link](https://www.polygon.com/fortnite-guide/441148/mobile-app-bonus-goals-ios-android-katakina)
+- **The Epic Games Store Launches on Mobile**: [Link](https://store.epicgames.com/en-US/news/epic-games-store-available-now-on-mobile)
+- **Fortnite app comes to iPhones - but only in the EU**: [Link](https://www.bbc.com/news/articles/c70j5rx72yvo)
+
+
+### barca match (N/A, Sat, 17 Aug 2024 13:20:00 -0700)
+
+- **La Liga LIVE: Valencia vs Barcelona - score & text updates**: [Link](https://www.bbc.com/sport/football/live/c7v5z3rp4lrt)
+- **La Liga Soccer Livestream: How to Watch Valencia vs. Barcelona From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-valencia-vs-barcelona-from-anywhere/)
+- **Hansi Flick: 'I believe in this team'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4083561/hansi-flick-i-believe-in-this-team)
+
+
+### weather tomorrow (N/A, Sat, 17 Aug 2024 13:00:00 -0700)
+
+- **Impact weather: Storms possible through the weekend**: [Link](https://www.wlky.com/article/impact-weather-storms-possible-late-tonight-into-friday-in-louisville-southern-indiana/61881821)
+- **FIRST ALERT WEATHER DAY: Rounds of strong storms return later in day 
+Saturday**: [Link](https://www.wkyt.com/2024/08/17/first-alert-weather-day-rounds-strong-storms-return-later-day-saturday/)
+- **Turning stormy for Friday**: [Link](https://www.lex18.com/weather/daily-forecast/turning-stormy-for-friday)
+
+
 ### fcb (N/A, Sat, 17 Aug 2024 12:10:00 -0700)
 
 - **FC Barcelona Star Gundogan Hands In Shock Transfer Request And Asks To 
