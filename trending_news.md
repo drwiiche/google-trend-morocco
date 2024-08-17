@@ -1,3 +1,43 @@
+### valencia vs barcelona (N/A, Sat, 17 Aug 2024 11:40:00 -0700)
+
+- **Alineación confirmada del Barcelona ante el Valencia en LaLiga EA Sports**: [Link](https://as.com/futbol/posible-alineacion-del-barcelona-ante-el-valencia-en-en-laliga-ea-sports-n/)
+- **Las grandes incógnitas de la alineación del Barça en Mestalla**: [Link](https://www.sport.es/es/noticias/barca/grandes-incognitas-alineacion-barca-mestalla-107064281)
+- **Valencia - Barcelona: confianza ciega**: [Link](https://www.marca.com/futbol/primera-division/2024/08/17/66bf814a268e3e86218b45a3.html)
+
+
+### valencia c. f. - barcelona (N/A, Sat, 17 Aug 2024 11:40:00 -0700)
+
+- **Valencia vs. Barcelona - Football Match Preview - August 17, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704668)
+- **FC Barcelona News: 17 August 2024**: [Link](https://www.barcablaugranes.com/2024/8/17/24222099/fc-barcelona-news-17-august-2024-all-set-for-la-liga-debut-pep-guardiola-joao-cancelo)
+- **La Liga Soccer Livestream: How to Watch Valencia vs. Barcelona From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-valencia-vs-barcelona-from-anywhere/)
+
+
+### monaco – saint-étienne (N/A, Sat, 17 Aug 2024 11:40:00 -0700)
+
+- **Football Bet of the Day: Les Verts look a bit too green**: [Link](https://betting.betfair.com/football/the-jokers-bet-of-the-day/monaco-v-st-etienne-betting-tips---les-verts-look-a-bit-too-green-160824-140.html)
+- **Where to Watch AS Monaco vs. AS Saint-Etienne: TV Channel, Start Time and 
+Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2024/08/16/where-to-watch-as-monaco-vs-as-saint-etienne-tv-channel-start-time-and-live-stream/)
+- **Monaco vs Saint-Etienne: Where and how to watch Live 2024/2025 Ligue 1 
+Matchday 1**: [Link](https://bolavip.com/en/soccer/monaco-vs-saint-etienne-where-and-how-to-watch-live-2024-2025-ligue-1-matchday-1)
+
+
+### bayer leverkusen (N/A, Sat, 17 Aug 2024 11:40:00 -0700)
+
+- **Ipswich Town vs. Liverpool - Football Match Preview - August 17, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704280)
+- **Martin Zubimendi, Liverpool and how Basque loyalty trumped personal 
+ambition – for now - The Athletic**: [Link](https://www.nytimes.com/athletic/5704778/2024/08/17/martin-zubimendi-liverpool-real-sociedad/)
+- **Arne Slot says Liverpool still trying to strengthen after failing to sign 
+Martin Zubimendi**: [Link](https://www.bbc.com/sport/football/articles/czx61n6drn6o)
+
+
+### bundesliga (N/A, Sat, 17 Aug 2024 11:30:00 -0700)
+
+- **Lacroix agrees to personal terms with Palace, Plettenberg reports**: [Link](https://bulinews.com/lacroix-agrees-personal-terms-palace-plettenberg)
+- **Four-year deal on the table for £35m-rated Crystal Palace target that 
+Newcastle love**: [Link](https://www.caughtoffside.com/2024/08/17/crystal-palace-newcastle-guehi/)
+- **Crystal Palace boss Glasner trying again for Wolfsburg defender Lacroix**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-crystal-palace-boss-glasner-trying-again-for-wolfsburg-defender-lacroix-7a7bb218-871b-444f-a7ff-7d52ef17c4fa)
+
+
 ### valence – barcelone (N/A, Sat, 17 Aug 2024 11:30:00 -0700)
 
 - **Barça : le groupe pour affronter Valence avec Pedri mais deux absents**: [Link](https://www.footmercato.net/a7950784028775235473-barca-le-groupe-pour-affronter-valence-avec-pedri-mais-deux-absents)
