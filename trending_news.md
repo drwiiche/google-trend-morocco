@@ -1,3 +1,38 @@
+### ac milan – torino (N/A, Sat, 17 Aug 2024 11:10:00 -0700)
+
+- **Serie A official line-ups: Milan vs. Torino**: [Link](https://football-italia.net/serie-a-official-line-ups-milan-vs-torino/)
+- **The five key battles that could win or lose the game for Milan against 
+Torino**: [Link](https://sempremilan.com/five-key-battles-milan-torino-leao-vojvoda)
+- **AC Milan vs Torino preview & predicted XI: Red-hot Chukwueze poised to 
+ignite Milan's season opener**: [Link](https://www.afrik-foot.com/en-ng/ac-milan-vs-torino-preview-predicted-xi)
+
+
+### ronaldo (N/A, Sat, 17 Aug 2024 11:10:00 -0700)
+
+- **VIDEO: Another final, another goal! Cristiano Ronaldo puts Al-Nassr ahead 
+in Saudi Super Cup final with the least Cristiano Ronaldo goal ever**: [Link](https://www.goal.com/en-bh/lists/video-cristiano-ronaldo-al-nassr-saudi-super-cup-final-goal/bltb94320b1b7a462f9)
+- **Al-Taawoun coach: We have the lowest budget, but we have a passion to win 
+the Super Cup**: [Link](https://www.ysscores.com/en/news/2555483/Al-Taawoun-coach:-We-have-the-lowest-budget,-but-we-have-a-passion-to-win-the-Super-Cup)
+- **The new trophy Cristiano Ronaldo can win for the first time at the age of 39**: [Link](https://en.as.com/soccer/the-new-trophy-cristiano-ronaldo-can-win-for-the-first-time-at-the-age-of-39-n/)
+
+
+### inter (N/A, Sat, 17 Aug 2024 10:50:00 -0700)
+
+- **Inzaghi: "We want to bring more joy to our fans"**: [Link](https://www.inter.it/en/news/press-conference-inzaghi-genoa-inter-16-08-2024)
+- **Genoa vs Inter Milan Prediction, 8/17/2024 Serie A Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/genoa-vs-inter-milan-prediction-8-17-2024-serie-a-soccer-pick-tips-and-odds.html)
+- **Inter without Zielinski and De Vrij for opener**: [Link](https://www.beinsports.com/en-au/football/serie-a/articles/inter-without-zielinski-and-de-vrij-for-opener-2024-08-16)
+
+
+### aston villa (N/A, Sat, 17 Aug 2024 10:20:00 -0700)
+
+- **How to watch the Premier Sports Cup**: [Link](https://spfl.co.uk/news/how-to-watch-the-premier-sports-cup)
+- **Premier League West Ham United versus Aston Villa kick off 17:30 Sat 17 Aug 
+2024**: [Link](https://www.bbc.com/sport/football/live/c0jpg84009vt)
+- **West Ham United Vs Aston Villa LIVE: Premier League score, commentary, 
+line-ups stats & latest updates**: [Link](https://www.bbc.co.uk/sport/football/live/cv2g265e8ddt)
+
+
 ### leverkusen – stuttgart (N/A, Sat, 17 Aug 2024 10:50:00 -0700)
 
 - **Bayer Leverkusen vs. Stuttgart Supercup preview: Team news and predicted 
