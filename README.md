@@ -1,3 +1,11 @@
+### genoa – inter (N/A, Sat, 17 Aug 2024 08:50:00 -0700)
+
+- **Inzaghi: "Vogliamo regalare altre emozioni ai nostri tifosi"**: [Link](https://www.inter.it/it/notizie/conferenza-stampa-inzaghi-genoa-inter-16-08-2024)
+- **CdS - Bisseck e Dumfries dal 1', sovraccarico per Asllani: la probabile 
+formazione**: [Link](https://www.fcinternews.it/rassegna/i-cds-i-bisseck-e-dumfries-dal-1-sovraccarico-per-asllani-la-probabile-formazione-961533)
+- **Genoa-Inter: orario, probabili formazioni e dove vederla in tv e streaming**: [Link](https://www.ilmessaggero.it/sport/schede/genoa_inter_orario_probabili_formazioni_dove_vederla_tv_streaming-8299945.html)
+
+
 ### west ham – aston villa (N/A, Sat, 17 Aug 2024 08:40:00 -0700)
 
 - **As It Happened | Julen Lopetegui's pre-Aston Villa press conference**: [Link](https://www.whufc.com/news/it-happened-julen-lopeteguis-pre-aston-villa-press-conference)
