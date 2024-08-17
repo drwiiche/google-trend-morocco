@@ -1,3 +1,13 @@
+### liverpool vs (N/A, Sat, 17 Aug 2024 06:00:00 -0700)
+
+- **Premier League: Build-up to four Premier League matches after Liverpool 
+beat Ipswich**: [Link](https://www.bbc.co.uk/sport/football/live/cv2g265e8ddt)
+- **How to watch today's Ipswich Town vs Liverpool Premier League game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en/news/watch-ipswich-town-vs-liverpool-premier-league-live-stream-tv/blt617aa9a7d39ec2cc)
+- **Premier League: Four Premier League matches including Arsenal v Wolves - 
+after Liverpool win**: [Link](https://www.bbc.com/sport/football/live/cv2g265e8ddt?page=2)
+
+
 ### brest – marseille (N/A, Sat, 17 Aug 2024 07:10:00 -0700)
 
 - **Les compositions probables de Stade Brestois-OM**: [Link](https://www.footmercato.net/a1430079448488609794-les-compositions-probables-de-stade-brestois-om)
