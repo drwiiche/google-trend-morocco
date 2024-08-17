@@ -1,3 +1,20 @@
+### abonnement wizz air (N/A, Sat, 17 Aug 2024 01:10:00 -0700)
+
+- **Wizz Air: Is budget airline 'all you can fly' subscription too good to be 
+true?**: [Link](https://www.bbc.com/news/articles/c3rdng423ydo)
+- **European airline announces annual ‘all you can fly’ pass**: [Link](https://news.yahoo.com/european-airline-announces-annual-fly-121038447.html)
+- **European airline launches €499 all-you-can-fly annual subscription**: [Link](https://www.euronews.com/travel/2024/08/14/wizz-air-has-launched-an-unlimited-flight-subscription-service-but-whats-the-catch)
+
+
+### serie a (N/A, Fri, 16 Aug 2024 14:30:00 -0700)
+
+- **Serie A, le ultime dai campi: Inter, c'è Bisseck. Conte con Raspadori. 
+Milan, Reijnders in panca**: [Link](https://www.gazzetta.it/calcio/fantanews/storie/16-08-2024/serie-a-1-giornata-serie-a-le-ultime-dai-campi/le-probabili-formazioni-della-1a-giornata-di-serie-a.shtml)
+- **Il prezzo del pallone**: [Link](https://ilmanifesto.it/il-prezzo-del-pallone)
+- **Mi terrei Jovic, Okafor e prenderei... un altro Fofana. Per Kalulu dolore 
+comprensibile, ma formula da...**: [Link](https://www.milannews.it/editoriale/mi-terrei-jovic-okafor-e-prenderei-un-altro-fofana-per-kalulu-dolore-comprensibile-ma-formula-da-non-sbagliare-prime-2-partite-piu-di-120-000-a-san-si-545755)
+
+
 ### israel adesanya (N/A, Fri, 16 Aug 2024 23:40:00 -0700)
 
 - **'It's the old Izzy, but also old Izzy': A motivated Israel Adesanya is back**: [Link](https://www.espn.com/mma/story/_/id/40870031/at-ufc-305-israel-adesanya-makes-motivated-return-versus-dricus-du-plessis)
