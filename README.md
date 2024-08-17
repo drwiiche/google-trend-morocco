@@ -1,3 +1,37 @@
+### supercoupe d'arabie saoudite (N/A, Sat, 17 Aug 2024 10:10:00 -0700)
+
+- **Supercoupe d’Arabie Saoudite : Bounou décisif une nouvelle fois (VIDEO)**: [Link](https://www.lesiteinfo.com/sport/625225-supercoupe-darabie-saoudite-bounou-decisif-une-nouvelle-fois-video.html)
+- **Mahrez privé de tirer les penalties à Al Ahli ? Tout s'explique**: [Link](https://fennecfootball.com/mahrez-interdit-de-tirer-les-penalties-a-al-ahli-les-vraies-raisons-revelees/)
+- **Al Hilal se qualifie pour la finale de la Super Coupe d'Arabie Saoudite de 
+Diriyah**: [Link](https://www.spa.gov.sa/fr/N2155734)
+
+
+### cristiano ronaldo (N/A, Sat, 17 Aug 2024 10:10:00 -0700)
+
+- **Inside Lionel Messi's nearly-transfer to Man City**: [Link](https://www.dailymail.co.uk/sport/football/article-13743351/Pep-Guardiola-Lionel-Messi-Man-City-transfer.html)
+- **Cristiano Ronaldo offered himself to Manchester City, but Pep Guardiola 
+brutally rejected him: report**: [Link](https://www.fourfourtwo.com/news/cristiano-ronaldo-offered-himself-to-manchester-city-but-pep-guardiola-brutally-rejected-him-report)
+- **Lionel Messi’s five-word text message about Man City transfer before six 
+hour meeting on Pep Guardiola’s so...**: [Link](https://www.thesun.co.uk/sport/29895546/lionel-messi-pep-guardiola-join-manchester-city-meeting-transfer/)
+
+
+### ansu fati (N/A, Sat, 17 Aug 2024 09:40:00 -0700)
+
+- **Report: Jose Mourinho wants injury-prone Barcelona forward at Fenerbahce**: [Link](https://barcauniversal.com/report-jose-mourinho-wants-injury-prone-barcelona-forward-at-fenerbahce/)
+- **Ansu Fati told to look for a new team as Barcelona decide to sell winger 
+after arrival of Dani Olmo and potential Nico Williams signing**: [Link](https://www.goal.com/en-us/lists/ansu-fati-new-club-transfer-barcelona-dani-olmo-brighton/blt80a8ae9cfede8afb)
+- **Fenerbahce favourites to sign Barcelona outcast, Wolves and Marseille also 
+eyeing up move**: [Link](https://www.football-espana.net/2024/08/17/fenerbahce-favourites-to-sign-barcelona-outcast-wolves-and-marseille-also-eyeing-up-move)
+
+
+### fiorentina (N/A, Sat, 17 Aug 2024 09:20:00 -0700)
+
+- **Parma-Fiorentina, le formazioni ufficiali**: [Link](https://www.fantacalcio.it/news/calcio-italia/17_08_2024/parma-fiorentina-formazioni-ufficiali-464828)
+- **PAR-FIO 0-0, Il ct Spalletti al Tardini con Di Chiara**: [Link](https://www.firenzeviola.it/news/par-fio-0-0-il-ct-spalletti-al-tardini-con-di-chiara-430571)
+- **La formazione dei crociati: Bonny in campo guiderà l'attacco contro la 
+Fiorentina - Video: il commento di Sandro Piovani**: [Link](https://www.gazzettadiparma.it/il-parma/2024/08/17/video/la-formazione-dei-crociati-bonny-in-campo-guidera-l-attacco-contro-la-fiorentina-video-il-commento-di-sandro-piovani-806286/)
+
+
 ### ssc sport (N/A, Sat, 17 Aug 2024 09:50:00 -0700)
 
 - **38 قناة تنقل مباريات السوبر السعودي**: [Link](https://www.kooora.com/?n=1347718)
