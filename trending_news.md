@@ -1,3 +1,12 @@
+### disparition lina suspect (N/A, Sat, 17 Aug 2024 02:50:00 -0700)
+
+- **DOCUMENT RTL - Disparition de Lina : le gérant de la station-service, où 
+est passé le principal suspect, se confie**: [Link](https://www.rtl.fr/actu/justice-faits-divers/document-rtl-disparition-de-lina-le-gerant-d-une-station-service-qui-avait-porte-plainte-contre-le-principal-suspect-temoigne-7900408860)
+- **Exclusif. Disparition de Lina : de nouveaux éléments accablent Samuel Gonin**: [Link](https://www.estrepublicain.fr/faits-divers-justice/2024/08/15/disparition-de-lina-samuel-gonin-filme-48-h-avant-l-enlevement-au-volant-de-la-ford)
+- **Affaire Lina : le suspect filmé l’avant-veille de la disparition dans la 
+voiture où l’ADN de l’adolescente a été retrouvée**: [Link](https://www.lefigaro.fr/faits-divers/affaire-lina-le-suspect-filme-l-avant-veille-de-la-disparition-dans-la-voiture-ou-l-adn-de-l-adolescente-a-ete-retrouve-20240816)
+
+
 ### marrakech accident voiture (N/A, Sat, 17 Aug 2024 04:20:00 -0700)
 
 - **Marrakech : un Marocain résidant en Suisse fauche plusieurs piétons**: [Link](https://www.bladi.net/marrakech-marocain-residant-suisse-fauche-pietons,109969.html)
