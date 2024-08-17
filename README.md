@@ -1,3 +1,33 @@
+### مباراة الرجاء اليوم (N/A, Sat, 17 Aug 2024 08:00:00 -0700)
+
+- **تشكيلة الرجاء الرياضي الرسمية أمام الحرس الوطني النيجري**: [Link](https://ar.hibapress.com/details-542546.html)
+- **تشكيلة الرجاء لمواجهة حرس النيجر**: [Link](https://www.almountakhab.com/node/16203185)
+- **إرث زينباور يطارد مدرب الرجاء الجديد على جبهتين**: [Link](https://www.kooora.com/?n=1348377)
+
+
+### ligue des champions de la caf (N/A, Sat, 17 Aug 2024 08:00:00 -0700)
+
+- **Le Raja de Casablanca et l'AS FAR à la conquête de la Ligue des Champions 
+CAF**: [Link](https://fr.hespress.com/382547-le-raja-de-casablanca-et-las-far-a-la-conquete-de-la-ligue-des-champions-caf.html)
+- **C1 et C3 de la CAF: combien d'argent vont toucher les clubs marocains 
+engagés?**: [Link](https://sport.le360.ma/football/c1-et-c3-de-la-caf-combien-dargent-vont-toucher-les-clubs-marocains-engages-113808)
+- **Le Raja retrouve la ligue des champions ce week-end à Niamey**: [Link](https://lematin.ma/sports/le-raja-retrouve-la-ligue-des-champions-ce-week-end-a-niamey/239448)
+
+
+### raja casablanca (N/A, Sat, 17 Aug 2024 08:00:00 -0700)
+
+- **Le Maroc dribble le MCA et l'USMA**: [Link](https://fennecfootball.com/algerie-le-maroc-dribble-le-mca-et-lusma/)
+- **Mercato : Al-Wehda en passe de signer Alexandru Crețu et Yousri Bouzok**: [Link](https://africafootunited.com/mercato-accord-entre-al-wehda-alexandru-cretu-et-yousri-bouzok/)
+- **Mercato - Maroc : Bouzok piège le Raja Casablanca**: [Link](https://fennecfootball.com/mercato-maroc-yousri-bouzok-piege-le-raja-casablanca/)
+
+
+### raja club athletic (N/A, Sat, 17 Aug 2024 07:50:00 -0700)
+
+- **Le Raja sort un film après sa saison historique**: [Link](https://sport.le360.ma/botola-pro-1/le-raja-sort-un-film-apres-sa-saison-historique-113799)
+- **الحرس الوطني في النيجر يحشد أنصاره برسالة عاجلة لهزم الرجاء في دوري الأبطال**: [Link](http://ar.sport.le360.ma/ldc-afrique/157636)
+- **مسؤولو الحرس الوطني يحشدون الجماهير لحضور مباراة الرجاء في عصبة الأبطال**: [Link](https://m.elbotola.com/article/2024-08-17-11-20-23.html)
+
+
 ### ناصر الزفزافي (N/A, Sat, 17 Aug 2024 07:40:00 -0700)
 
 - **إطلاق سراح قادة "حراك الريف".. هل ينهي المغرب الجدل الحقوقي؟**: [Link](https://www.alhurra.com/morocco/2024/08/16/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%B3%D8%B1%D8%A7%D8%AD-%D9%82%D8%A7%D8%AF%D8%A9-%D8%AD%D8%B1%D8%A7%D9%83-%D8%A7%D9%84%D8%B1%D9%8A%D9%81-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A7%D9%84%D8%AD%D9%82%D9%88%D9%82%D9%8A%D8%9F)
