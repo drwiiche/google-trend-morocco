@@ -1,3 +1,26 @@
+### inter milan (N/A, Sat, 17 Aug 2024 10:40:00 -0700)
+
+- **Inter Milan vs. Genoa how to watch, stream, time, odds, prediction: Aug. 
+17, 2024 Serie A expert picks**: [Link](https://www.cbssports.com/soccer/news/inter-milan-vs-genoa-how-to-watch-stream-time-odds-prediction-aug-17-2024-serie-a-expert-picks/)
+- **Serie A Week 1 official line-ups: Genoa vs. Inter**: [Link](https://football-italia.net/serie-a-week-1-official-line-ups-genoa-inter/)
+- **Genoa vs. Inter Milan odds, line, predictions: Serie A picks and best bets 
+for Aug. 17, 2024 from soccer insider**: [Link](https://www.sportsline.com/insiders/genoa-vs-inter-milan-odds-line-predictions-serie-a-picks-and-best-bets-for-aug-17-2024-from-soccer-insider/)
+
+
+### accident voiture marrakech (N/A, Sat, 17 Aug 2024 10:30:00 -0700)
+
+- **Marrakech : un conducteur ivre renverse plusieurs personnes, des blessés**: [Link](https://mobile.telquel.ma/2024/08/16/marrakech-un-conducteur-ivre-renverse-plusieurs-personnes-des-blesses-2_1889354)
+- **Marrakech : un Marocain résidant en Suisse fauche plusieurs piétons**: [Link](https://www.bladi.net/marrakech-marocain-residant-suisse-fauche-pietons,109969.html)
+- **Marrakech : La DGSN arrête un conducteur ayant percuté plusieurs piétons**: [Link](https://www.leconomiste.com/flash-infos/marrakech-la-dgsn-arrete-un-conducteur-ayant-percute-plusieurs-pietons)
+
+
+### نايف أكرد (N/A, Sat, 17 Aug 2024 10:00:00 -0700)
+
+- **نايف أكرد غاب عن أولى مباريات ويست هام بالبريمرليغ**: [Link](https://www.almountakhab.com/node/16203193)
+- **محادثات مكثفة لبيع عقد أكرد**: [Link](https://www.almountakhab.com/node/16203118)
+- **خبر غير سار لمحبي اللاعب نايف أكرد**: [Link](https://www.achewa9e3.com/195264.html)
+
+
 ### arsenal vs (N/A, Sat, 17 Aug 2024 08:50:00 -0700)
 
 - **Arsenal get the job done while Brighton revel in summer sun – F365’s 3pm 
