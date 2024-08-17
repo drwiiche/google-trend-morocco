@@ -1,3 +1,12 @@
+### gundogan (N/A, Sat, 17 Aug 2024 13:30:00 -0700)
+
+- **Just in: Ilkay Gundogan asks to leave Barcelona**: [Link](https://barcauniversal.com/just-in-ilkay-gundogan-asks-to-leave-barcelona/)
+- **Barcelona midfield star asks to leave the club before the transfer window 
+ends – report**: [Link](https://sports.yahoo.com/barcelona-midfield-star-asks-leave-181600749.html)
+- **Barcelona 'ready to sell three players immediately' with five stars still 
+unregistered ahead of new season**: [Link](https://www.sportbible.com/football/la-liga/fc-barcelona/transfers-dani-olmo-player-registration-financial-990779-20240815)
+
+
 ### the union (N/A, Sat, 17 Aug 2024 14:50:00 -0700)
 
 - **‘The Union’ Director Reveals Why Mark Wahlberg and Halle Berry Never Kiss: 
