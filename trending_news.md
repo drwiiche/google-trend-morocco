@@ -1,3 +1,19 @@
+### إيبسويتش تاون ضد ليفربول (N/A, Sat, 17 Aug 2024 04:00:00 -0700)
+
+- **تشكيلة ليفربول الرسمية للقاء إبسويتش في الدوري الانجليزي**: [Link](https://hihi2.com/2024/08/17/p2796570.html)
+- **مواجهة مصرية في لقاء ليفربول وإيبسويتش تاون**: [Link](https://www.kooora.com/?n=1348500)
+- **"بي.بي.سي" تحذّر: صلاح سيريح "ساقيه".. ويخسر "حريته"**: [Link](https://www.alarabiya.net/sport/2024/08/15/-%D8%A8%D9%8A-%D8%A8%D9%8A-%D8%B3%D9%8A-%D8%AA%D8%AD%D8%B0%D9%91%D8%B1-%D8%B5%D9%84%D8%A7%D8%AD-%D8%B3%D9%8A%D8%B1%D9%8A%D8%AD-%D8%B3%D8%A7%D9%82%D9%8A%D9%87-%D9%88%D9%8A%D8%AE%D8%B3%D8%B1-%D8%AD%D8%B1%D9%8A%D8%AA%D9%87-)
+
+
+### thiago alcântara (N/A, Sat, 17 Aug 2024 02:00:00 -0700)
+
+- **Arnau Blanco replaces Thiago Alcántara**: [Link](https://www.fcbarcelona.com/en/news/4083139/arnau-blanco-replaces-thiago-alcantara)
+- **Barcelona confirm Thiago exit from Hansi Flick’s coaching staff - The 
+Athletic**: [Link](https://www.nytimes.com/athletic/5704806/2024/08/16/thiago-barcelona-exit-hansi-flick/)
+- **Why has Thiago Alcântara already left as Barcelona assistant coach after 
+less than a month?**: [Link](https://en.as.com/soccer/why-has-thiago-alcantara-already-left-as-barcelona-assistant-coach-after-less-than-a-month-n/)
+
+
 ### ipswich town – liverpool (N/A, Sat, 17 Aug 2024 03:30:00 -0700)
 
 - **FPL mailbag: Is Son being overlooked? Nkunku great value?**: [Link](https://www.nytimes.com/athletic/5697632/2024/08/15/fpl-advice-son-nkunku/)
