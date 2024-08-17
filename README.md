@@ -1,3 +1,26 @@
+### valence – barcelone (N/A, Sat, 17 Aug 2024 11:30:00 -0700)
+
+- **Barça : le groupe pour affronter Valence avec Pedri mais deux absents**: [Link](https://www.footmercato.net/a7950784028775235473-barca-le-groupe-pour-affronter-valence-avec-pedri-mais-deux-absents)
+- **La présence de Lamine Yamal suffira-t-elle pour que la première saison de Hansi Flick au Barça soit une réussite ?**: [Link](https://www.goal.com/fr/listes/la-presence-de-lamine-yamal-suffira-t-elle-pour-que-la-premiere-saison-de-hansi-flick-au-barca-soit-une-reussite/blt50c1cb132383a000)
+- **Valence - Barça : Coup d'envoi de la Liga à Mestalla**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4083680/valence-barca-coup-denvoi-de-la-liga-a-mestalla)
+
+
+### فالنسيا ضد برشلونة (N/A, Sat, 17 Aug 2024 11:30:00 -0700)
+
+- **مدرب البارصا يكشف موقف يامال من المشاركة ضد فالنسيا بعد واقعة الإعتداء على والده**: [Link](http://ar.sport.le360.ma/botola-pro-1/157617)
+- **تشكيلة برشلونة الرسمية للقاء فالنسيا في الليغا**: [Link](https://hihi2.com/2024/08/17/p2797741.html)
+- **من الأقرب لتعويض غياب جوندوجان أمام فالنسيا؟**: [Link](https://www.kooora.com/?n=1348537)
+
+
+### bet 365 (N/A, Sat, 17 Aug 2024 11:30:00 -0700)
+
+- **Special Bet365 Bonus Code “DIMERS” unlocks $150 Bonus Bet and $1K Safety 
+Net in NJ, NC, OH, VA, and PA for NFL Preseason, EPL, MLB, and PGA**: [Link](https://www.syracuse.com/betting/2024/08/bet365-bonus-code-dimers-unlocks-150-deal-for-saturday-sports-betting-odds.html)
+- **Bet365’s $5 Bet Hack — Turn Pocket Change into $150 for NFL Preseason**: [Link](https://www.bettorsinsider.com/sports-betting/2024/08/16/bet365s-5-bet-hack-turn-pocket-change-into-150-for-nfl-preseason)
+- **bet365 bonus code RGNEWS: Wager on NFL preseason or any game with one of 
+two sign-up bonuses Saturday**: [Link](https://rotogrinders.com/articles/bet365-bonus-code-rgnews-wager-on-nfl-preseason-or-any-game-with-one-of-two-sign-up-bonuses-saturday-4055001)
+
+
 ### ac milan – torino (N/A, Sat, 17 Aug 2024 11:10:00 -0700)
 
 - **Serie A official line-ups: Milan vs. Torino**: [Link](https://football-italia.net/serie-a-official-line-ups-milan-vs-torino/)
