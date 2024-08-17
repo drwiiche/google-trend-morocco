@@ -1,3 +1,20 @@
+### om (N/A, Sat, 17 Aug 2024 08:00:00 -0700)
+
+- **Brest vs Marseille Odds: Ligue 1 Season Opener Preview**: [Link](https://www.pointspreads.com/news/ligue-1/marseille-open-season-at-brest-after-busy-summer/)
+- **Brest vs Marseille Prediction and Betting Tips | August 17th 2024**: [Link](https://www.sportskeeda.com/football/brest-vs-marseille-prediction-betting-tips-august-17th-2024)
+- **Olympique Marseille vs. Stade Brest 29 Prediction, Picks, Live Odds - 
+August 17**: [Link](https://www.bleachernation.com/picks/2024/08/17/olympique-marseille-vs-stade-brest-29-prediction-picks-live-odds-august-17/)
+
+
+### arsenal vs wolves (N/A, Sat, 17 Aug 2024 06:30:00 -0700)
+
+- **Team news: Havertz, Rice and Saka all start opener**: [Link](https://www.arsenal.com/news/team-news-havertz-rice-and-saka-all-start-opener)
+- **Arsenal vs. Wolverhampton English Premier League match: FREE live stream, 
+time, channel**: [Link](https://www.pennlive.com/tv/2024/08/arsenal-vs-wolverhampton-english-premier-league-match-free-live-stream-time-channel.html)
+- **Timber returns, Vieira to be checked – Arteta issues pre-Wolves fitness 
+update**: [Link](https://arseblog.news/2024/08/timber-returns-vieira-to-be-checked-arteta-issues-pre-wolves-fitness-update/)
+
+
 ### مباراة الرجاء اليوم (N/A, Sat, 17 Aug 2024 08:00:00 -0700)
 
 - **تشكيلة الرجاء الرياضي الرسمية أمام الحرس الوطني النيجري**: [Link](https://ar.hibapress.com/details-542546.html)
