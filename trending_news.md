@@ -1,3 +1,14 @@
+### fcb (N/A, Sat, 17 Aug 2024 12:10:00 -0700)
+
+- **FC Barcelona Star Gundogan Hands In Shock Transfer Request And Asks To 
+Leave Club, Reports SPORT**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/17/fc-barcelona-hands-in-shock-transfer-request-aand-asks-to-leave-club-reports-sport/)
+- **Ilkay Gundogan has asked to leave Barcelona after being left out of squad 
+for La Liga opener as Jose Mourinho plans to 'do everything possible' to 
+bring ex-Man City star to Fenerbahce**: [Link](https://www.goal.com/en/lists/ilkay-gundogan-asked-to-leave-barcelona-jose-mourinho-ex-man-city-star-to-fenerbahce/blt2f2ee31e96079f3c)
+- **Barcelona midfield star asks to leave the club before the transfer window 
+ends – report**: [Link](https://sports.yahoo.com/barcelona-midfield-star-asks-leave-181600749.html)
+
+
 ### milan (N/A, Sat, 17 Aug 2024 13:10:00 -0700)
 
 - **Champions Inter held at Genoa after late penalty drama**: [Link](https://www.france24.com/en/live-news/20240817-champions-inter-held-at-genoa-after-late-penalty-drama)
