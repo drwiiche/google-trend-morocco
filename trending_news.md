@@ -1,3 +1,34 @@
+### barca (N/A, Sat, 17 Aug 2024 12:10:00 -0700)
+
+- **FC Barcelona Star Gundogan Hands In Shock Transfer Request And Asks To 
+Leave Club, Reports SPORT**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/17/fc-barcelona-hands-in-shock-transfer-request-aand-asks-to-leave-club-reports-sport/)
+- **Barcelona midfield star asks to leave the club before the transfer window 
+ends – report**: [Link](https://sports.yahoo.com/barcelona-midfield-star-asks-leave-181600749.html)
+- **Just in: Ilkay Gundogan asks to leave Barcelona**: [Link](https://barcauniversal.com/just-in-ilkay-gundogan-asks-to-leave-barcelona/)
+
+
+### fc barcelone (N/A, Sat, 17 Aug 2024 12:10:00 -0700)
+
+- **La présidence du FC Barcelone s’exprime sur Nico Williams**: [Link](https://www.blaugranas.fr/divers/la-presidence-du-fc-barcelone-srexprime-sur-nico-williams-6471)
+- **Barça : après Nico Williams, un autre dossier XXL prend l'eau**: [Link](https://www.onzemondial.com/transferts/barca-apres-nico-williams-un-autre-dossier-xxl-prend-l-eau-907014)
+- **Nico Williams : le joueur accepte enfin de rejoindre le Barça**: [Link](https://yop.l-frii.com/nico-williams-le-joueur-accepte-enfin-de-rejoindre-le-barca/)
+
+
+### leverkusen vs vfb stuttgart (N/A, Sat, 17 Aug 2024 12:10:00 -0700)
+
+- **LEVERKUSEN 1:0 Stuttgart | Boniface drückt den Ball über die Linie (11. 
+Min.) | In-Match Video Supercup**: [Link](https://sport.sky.de/fussball/artikel/leverkusen-1-0-stuttgart-boniface-drueckt-den-ball-ueber-die-linie-11-min-in-match-video-supercup/13198834/34376)
+- **„Nicht mit uns!“ Supercup sorgt für Riesen-Ärger bei den Fans**: [Link](https://www.mopo.de/sport/fussball/nicht-mit-uns-supercup-sorgt-fuer-riesen-aerger-bei-den-fans/)
+- **Leverkusen gut gerüstet für den nächsten Titel**: [Link](https://www.rhein-zeitung.de/sport/top-ligen/bundesliga_artikel,-leverkusen-gut-geruestet-fuer-den-naechsten-titel-_arid,2682972.html)
+
+
+### ميلان ضد تورينو (N/A, Sat, 17 Aug 2024 12:00:00 -0700)
+
+- **فونسيكا عن مشاركة موراتا أمام تورينو: الأفضل سيلعب**: [Link](https://www.kooora.com/?n=1348356)
+- **تشكيلة ميلان الرسمية لمباراة تورينو**: [Link](https://hihi2.com/2024/08/17/p2797691.html)
+- **ميلان بالقوة الضاربة أمام تورينو**: [Link](https://m.kooora.com/?n=1348605&o=n)
+
+
 ### valencia vs barcelona (N/A, Sat, 17 Aug 2024 11:40:00 -0700)
 
 - **Alineación confirmada del Barcelona ante el Valencia en LaLiga EA Sports**: [Link](https://as.com/futbol/posible-alineacion-del-barcelona-ante-el-valencia-en-en-laliga-ea-sports-n/)
