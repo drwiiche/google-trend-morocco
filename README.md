@@ -1,3 +1,10 @@
+### dominican republic (N/A, Sat, 17 Aug 2024 13:40:00 -0700)
+
+- **Dominican Republic's Abinader vows economic growth, social reforms in second term**: [Link](https://www.reuters.com/world/americas/dominican-republics-abinader-names-cabinet-posts-leaders-gather-inauguration-2024-08-16/)
+- **Haiti - Diplomacy : The real reason for Haiti's absence at Abinader's inauguration (Official)**: [Link](https://www.haitilibre.com/en/news-42989-haiti-diplomacy-the-real-reason-for-haiti-s-absence-at-abinader-s-inauguration-official.html)
+- **Haitian Minister responds to Roberto Álvarez’s statement**: [Link](https://dominicantoday.com/dr/world/2024/08/14/haitian-minister-responds-to-roberto-alvarezs-statement/)
+
+
 ### epic games ios (N/A, Sat, 17 Aug 2024 13:30:00 -0700)
 
 - **How to get the Katalina ‘Mobile App Bonus Goals’ skin on Fortnite iOS and 
