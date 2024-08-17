@@ -1,3 +1,10 @@
+### stake (N/A, Sat, 17 Aug 2024 15:30:00 -0700)
+
+- **Stake concede Audi 'tension' after point-less F1 season**: [Link](https://racingnews365.com/stake-concede-audi-tension-after-point-less-f1-season)
+- **Michael Burry Raises Alibaba Stake, Cuts Stock Portfolio in Half**: [Link](https://www.bloomberg.com/news/articles/2024-08-14/michael-burry-raises-alibaba-stake-cuts-stock-portfolio-in-half)
+- **Baidu Q2 Preview: Michael Burry May Be Early With This Bet (NASDAQ:BIDU)**: [Link](https://seekingalpha.com/article/4715196-baidu-q2-preview-michael-burry-may-be-early-with-this-bet)
+
+
 ### ain vittel (N/A, Sat, 17 Aug 2024 15:10:00 -0700)
 
 - **Parc Ain Vittel d'Ifrane : Une rénovation réussie entre nature, sport et 
