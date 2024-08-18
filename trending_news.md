@@ -1,3 +1,18 @@
+### vedat muriqi (N/A, Sun, 18 Aug 2024 14:30:00 -0700)
+
+- **Mallorca vs. Real Madrid (18 Aug, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/704663)
+- **Mallorca 1-1 Real Madrid (Aug 18, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704663)
+- **Real Madrid can't beat Mallorca in Mbappe's LaLiga opener**: [Link](https://www.marca.com/en/football/real-madrid/cronica/2024/08/18/66c26b3cca47416a0c8b4573.html)
+
+
+### madrid fc (N/A, Sun, 18 Aug 2024 13:30:00 -0700)
+
+- **Vinicius, tras la reprimenda de Soto Grado: "Habla con Carvajal"**: [Link](https://www.marca.com/futbol/real-madrid/2024/08/18/66c25023ca47416b0c8b457b.html)
+- **El enésimo show de Vinicius**: [Link](https://www.sport.es/es/noticias/real-madrid/enesimo-show-vinicius-107124954)
+- **Iturralde empieza la Liga liándola con el penalti no pitado a Mbappé: "Para 
+mí..."**: [Link](https://www.defensacentral.com/real_madrid/1709325453-iturralde-empieza-la-liga-liandola-con-el-penalti-no-pitado-a-mbappe-para-mi)
+
+
 ### الدوري الاسباني (N/A, Sun, 18 Aug 2024 14:30:00 -0700)
 
 - **فليك: لفتة يامال طبيعية.. وأتوقع بقاء نجم برشلونة**: [Link](https://www.kooora.com/?n=1348721)
