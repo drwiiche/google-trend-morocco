@@ -1,3 +1,29 @@
+### rodrygo (N/A, Sun, 18 Aug 2024 13:00:00 -0700)
+
+- **Confirmado, Florentino se lo anuncia a Ancelotti: "Le vendemos por 120 
+kilos"**: [Link](https://www.defensacentral.com/real_madrid/1709325420-confirmado-florentino-se-lo-anuncia-a-ancelotti-le-vendemos-por-120-kilos)
+- **Hay acuerdo: el Manchester City le confirma a Guardiola lo de Rodrygo**: [Link](https://www.defensacentral.com/real_madrid/1709325418-hay-acuerdo-el-manchester-city-le-confirma-a-guardiola-lo-de-rodrygo)
+- **Ancelotti no lo puede creer: el jugador que puede irse en 2025 del Real 
+Madrid**: [Link](https://www.pasionfutbol.com/fichajes/Ancelotti-no-lo-puede-creer-el-jugador-que-puede-irse-en-2025-del-Real-Madrid-20240816-0013.html)
+
+
+### kylian mbappé (N/A, Sun, 18 Aug 2024 12:50:00 -0700)
+
+- **Real Madrid were already Spanish champions, and then they signed Mbappé. Is 
+LaLiga ready?**: [Link](https://www.espn.com/soccer/story/_/id/40870242/real-madrid-laliga-kylian-mbappe-spanish-champions-season-predictions)
+- **Watching Kylian Mbappe – our writers on witnessing his magic up close - The 
+Athletic**: [Link](https://www.nytimes.com/athletic/5705299/2024/08/18/kylian-mbappe-real-madrid-psg-france-world-cup/)
+- **‘A magical night’: Kylian Mbappé scores first Real Madrid goal in UEFA 
+Super Cup victory over Atalanta**: [Link](https://www.cnn.com/2024/08/15/sport/kylian-mbappe-real-madrid-uefa-super-cup-spt-intl/index.html)
+
+
+### r.c.d. mallorca - real madrid (N/A, Sun, 18 Aug 2024 11:40:00 -0700)
+
+- **Real Madrid predicted lineup vs Mallorca - La Liga**: [Link](https://www.90min.com/real-madrid-predicted-lineup-vs-mallorca-la-liga-18-8-24)
+- **We must help ‘extraordinary talent’ Mbappe adapt at Madrid, says Ancelotti**: [Link](https://www.vanguardngr.com/2024/08/we-must-help-extraordinary-talent-mbappe-adapt-at-madrid-says-ancelotti/)
+- **Kylian Mbappé to make LaLiga debut as Madrid name XI for season opener**: [Link](https://onefootball.com/en/news/kylian-mbappe-to-make-laliga-debut-as-madrid-name-xi-for-season-opener-39910784)
+
+
 ### ريال مدريد (N/A, Sun, 18 Aug 2024 12:30:00 -0700)
 
 - **الرسم التكتيكي لـ تشكيلة الريال ضد مايوركا**: [Link](https://hihi2.com/2024/08/18/p2800024.html)
