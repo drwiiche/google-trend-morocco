@@ -1,3 +1,11 @@
+### man city (N/A, Sun, 18 Aug 2024 08:30:00 -0700)
+
+- **‘Let’s write some beautiful chapters’ – Arsenal ‘closing gap’ to champions 
+Manchester City**: [Link](https://www.bbc.com/sport/football/articles/cz07d150m7xo)
+- **Arteta reveals squad's hunger to start new season | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-reveals-squads-hunger-start-new-season)
+- **Arsenal players believe they can take PL title**: [Link](https://bvmsports.com/2024/08/16/arsenal-players-believe-they-can-take-pl-title/)
+
+
 ### chelsea vs man city (N/A, Sun, 18 Aug 2024 07:40:00 -0700)
 
 - **Chelsea vs Man City: Enzo Maresca’s reunion with grandmaster Pep Guardiola is a story of football and chess**: [Link](https://www.skysports.com/football/news/11662/13196266/chelsea-vs-man-city-enzo-maresca-s-reunion-with-grandmaster-pep-guardiola-is-a-story-of-football-and-chess)
