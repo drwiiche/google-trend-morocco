@@ -1,3 +1,12 @@
+### enfant disparu berck sur mer (N/A, Sun, 18 Aug 2024 03:00:00 -0700)
+
+- **Enfant disparu à Berck : un corps de petite taille retrouvé sur une plage, 
+"vraisemblablement" celui du garçon**: [Link](https://www.francebleu.fr/infos/faits-divers-justice/stella-plage-un-corps-de-petite-taille-decouvert-par-une-baigneuse-1909655)
+- **Enfant disparu à Berck : le corps de Safwan, 10 ans, retrouvé à Stella-Plage**: [Link](https://www.lavoixdunord.fr/1493330/article/2024-08-17/enfant-disparu-berck-un-corps-retrouve-stella-plage-une-autopsie-doit-etre-menee)
+- **Enfant disparu dans la Manche : un corps sans vie retrouvé sur la plage, 
+qui pourrait "vraisemblablement" être le sien**: [Link](https://www.ladepeche.fr/2024/08/18/enfant-disparu-dans-la-manche-un-corps-sans-vie-retrouve-sur-la-plage-qui-pourrait-vraisemblablement-etre-le-sien-12147106.php)
+
+
 ### brentford – crystal palace (N/A, Sun, 18 Aug 2024 05:30:00 -0700)
 
 - **Opposition briefing: Everything you need to know about Brentford**: [Link](https://www.cpfc.co.uk/news/match-previews/brentford-opposition-preview-premier-league-opening-weekend/)
