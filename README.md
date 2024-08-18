@@ -1,3 +1,11 @@
+### الدخول المدرسي 2025 المغرب (N/A, Sat, 17 Aug 2024 14:50:00 -0700)
+
+- **" رزنامة الدراسة " موعد الدخول المدرسي بالجزائر 2025 وقائمة العطلات الرسمية 
+بالعام الدراسي الجديد**: [Link](https://article.iqraa.news/894289/%D8%B1%D8%B2%D9%86%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-%D8%A8/)
+- **لائحة العطل المدرسية بالمغرب لموسم 2024-2025**: [Link](https://presstetouan.com/%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%B9%D8%B7%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%85%D9%88%D8%B3%D9%85-2024-2025/)
+- **هل يؤجل الإحصاء موعد الدخول المدرسي بالمغرب؟**: [Link](https://m.alayam24.com/articles-521032.html)
+
+
 ### ufc (N/A, Sat, 17 Aug 2024 17:40:00 -0700)
 
 - **Prelim Results | UFC 305: Du Plessis vs Adesanya**: [Link](https://www.ufc.com/news/prelim-results-highlights-winner-interviews-ufc-305-du-plessis-vs-adesanya)
