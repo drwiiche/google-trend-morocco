@@ -1,3 +1,11 @@
+### juventus (N/A, Sun, 18 Aug 2024 12:10:00 -0700)
+
+- **Juventus boss Motta hints at McKennie stay**: [Link](https://www.espn.com/soccer/story/_/id/40904774/juventus-manager-thiago-motta-hints-weston-mckennie-stay-transfer-window)
+- **Reports: Juventus to consider keeping Weston McKennie for season - SBI 
+Soccer**: [Link](https://sbisoccer.com/2024/08/reports-juventus-to-consider-keeping-weston-mckennie-for-season)
+- **Thiago Motta opens up about McKennie and Weah situations at Juventus**: [Link](https://football-italia.net/thiago-motta-opens-mckennie-weah-juventus/)
+
+
 ### rodrygo (N/A, Sun, 18 Aug 2024 13:00:00 -0700)
 
 - **Confirmado, Florentino se lo anuncia a Ancelotti: "Le vendemos por 120 
