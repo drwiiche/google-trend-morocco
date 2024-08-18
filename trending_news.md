@@ -1,3 +1,10 @@
+### ufc (N/A, Sat, 17 Aug 2024 17:40:00 -0700)
+
+- **Prelim Results | UFC 305: Du Plessis vs Adesanya**: [Link](https://www.ufc.com/news/prelim-results-highlights-winner-interviews-ufc-305-du-plessis-vs-adesanya)
+- **How to watch UFC 305: Du Plessis vs. Adesanya Prelims: Live stream, TV channel**: [Link](https://sports.yahoo.com/watch-ufc-305-du-plessis-120029904.html)
+- **Dricus du Plessis explains why his opinion changed on Israel Adesanya’s stunning loss to Sean Strickland**: [Link](https://www.mmafighting.com/2024/8/17/24220894/dricus-du-plessis-explains-why-his-opinion-changed-on-israel-adesanya-stunning-loss-sean-strickland)
+
+
 ### لا ليغا (N/A, Sat, 17 Aug 2024 14:10:00 -0700)
 
 - **غيابان بارزان عن ريال مدريد أمام مايوركا**: [Link](https://www.kooora.com/?n=1348523)
