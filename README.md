@@ -1,3 +1,19 @@
+### easyjet (N/A, Sun, 18 Aug 2024 00:20:00 -0700)
+
+- **EasyJet cancels 232 flights over next three days for destination popular 
+with Brits**: [Link](https://www.mirror.co.uk/travel/easyjet-cancels-232-flights-over-33461279)
+- **Strike forces cancellation of 232 EasyJet Portugal flights**: [Link](http://travelweekly.co.uk/news/air/strike-forces-cancellation-of-232-easyjet-portugal-flights)
+- **Hundreds of flights cancelled to key holiday destination by easyJet in 
+passenger blow**: [Link](https://www.express.co.uk/travel/europe/1936053/hundreds-of-flights-cancelled-key)
+
+
+### adesanya (N/A, Sat, 17 Aug 2024 16:50:00 -0700)
+
+- **Main Card Results | UFC 305: Du Plessis vs Adesanya**: [Link](https://www.ufc.com/news/main-card-results-highlights-winner-interviews-ufc-305-du-plessis-vs-adesanya)
+- **UFC 305 results: Dricus Du Plessis vs. Israel Adesanya fight card highlights**: [Link](https://www.usatoday.com/story/sports/ufc/2024/08/17/ufc-305-live-results-fights-du-plessis-adesanya/74838916007/)
+- **UFC 305 Results: Du Plessis vs. Adesanya**: [Link](https://www.mmafighting.com/2024/8/17/24220495/ufc-305-results-du-plessis-vs-adesanya)
+
+
 ### dricus du plessis (N/A, Sat, 17 Aug 2024 22:00:00 -0700)
 
 - **Résumé UFC 305 : Du Plessis soumet Israel Adesanya et reste champion des moins de 84 kilos**: [Link](https://rmcsport.bfmtv.com/sports-de-combat/mma/ufc/resume-ufc-305-du-plessis-soumet-israel-adesanya-et-reste-champion-des-moins-de-84-kilos_VN-202408180051.html)
