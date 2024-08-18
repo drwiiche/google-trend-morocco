@@ -1,3 +1,27 @@
+### majorque – real madrid (N/A, Sun, 18 Aug 2024 11:30:00 -0700)
+
+- **Foot : Pour la première de Kylian Mbappé avec le Real Madrid en Liga, ESPN 
+va diffuser son match en caméra isolée**: [Link](https://www.lequipe.fr/Football/Actualites/Pour-le-premier-match-de-kylian-mbappe-avec-le-real-madrid-en-liga-espn-va-diffuser-son-match-en-camera-isolee/1502083)
+- **PRONOS PARIS RMC Le buteur du jour du 18 août – Liga – Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-18-aout-liga-espagne_AN-202408170301.html)
+- **Real Madrid : ESPN va diffuser le match de Kylian Mbappé en caméra isolée**: [Link](https://www.footmercato.net/a7502345077566917677-real-madrid-espn-va-diffuser-le-match-de-kylian-mbappe-en-camera-isolee)
+
+
+### rennes – lyon (N/A, Sun, 18 Aug 2024 11:30:00 -0700)
+
+- **Rennes - OL : les compositions officielles**: [Link](https://www.footmercato.net/a8007079093100058927-rennes-ol-les-compositions-officielles)
+- **L’OL lance le vrai départ de la saga Sage - France - Olympique lyonnais**: [Link](https://www.sofoot.com/articles/ligue-1-lol-se-prepare-a-la-saison-dune-nouvelle-ere-avec-pierre-sage)
+- **Stade Rennais - Lyon. L’historique des débuts de saison rennais en Ligue 1 
+. Sport**: [Link](https://dinan.maville.com/sport/detail_-stade-rennais-lyon.-l-historique-des-debuts-de-saison-rennais-en-ligue-1-_-6425148_actu.Htm)
+
+
+### kovacic (N/A, Sun, 18 Aug 2024 10:40:00 -0700)
+
+- **Premier League: Who is the referee and VAR for Chelsea vs Manchester City?**: [Link](https://www.fourfourtwo.com/features/premier-league-who-is-the-referee-and-var-for-chelsea-vs-manchester-city)
+- **Chelsea fans are LIVID after referee for their opening day clash with Man 
+City is revealed - as Blues supporte**: [Link](https://www.dailymail.co.uk/sport/football/article-13738713/Chelsea-fans-livid-referee-revealed-opening-Premier-League-game-Manchester-City.html)
+- **Confirmed Match Officials: Chelsea vs Manchester City (Premier League)**: [Link](https://cityxtra.co.uk/16550/confirmed-match-officials-chelsea-vs-manchester-city-premier-league-2/)
+
+
 ### destitution macron (N/A, Sun, 18 Aug 2024 11:00:00 -0700)
 
 - **« Démettre le président plutôt que nous soumettre » (par Jean-Luc 
