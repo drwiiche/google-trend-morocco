@@ -1,3 +1,29 @@
+### brentford – crystal palace (N/A, Sun, 18 Aug 2024 05:30:00 -0700)
+
+- **Opposition briefing: Everything you need to know about Brentford**: [Link](https://www.cpfc.co.uk/news/match-previews/brentford-opposition-preview-premier-league-opening-weekend/)
+- **Crystal Palace boss Oliver Glasner provides key fitness update ahead of PL 
+opener**: [Link](https://www.newsshopper.co.uk/sport/24523352.glasner-franca-will-unavailable-weeks/)
+- **Brentford vs Crystal Palace Prediction, 8/18/2024 EPL Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/brentford-vs-crystal-palace-prediction-8-18-2024-epl-soccer-pick-tips-and-odds.html)
+
+
+### طقس طنجة (N/A, Sun, 18 Aug 2024 05:20:00 -0700)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1417909.html)
+- **درجات الحرارة غدا الأحد ستصل إلى 45 في بعض المدن**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/401205.html)
+- **طقس السبت.. استمرار حرارة الجو بعموم مناطق المملكة**: [Link](https://ar.hibapress.com/details-542449.html)
+
+
+### republique dominicaine (N/A, Sun, 18 Aug 2024 05:10:00 -0700)
+
+- **Sahara : Le président de la République dominicaine soutient la souveraineté 
+du Maroc et compte ouvrir un consu**: [Link](https://fr.hespress.com/382607-sahara-le-president-de-la-republique-dominicaine-soutient-la-souverainete-du-maroc-et-compte-ouvrir-un-consulat-a-dakhla.html)
+- **Le nouveau gouvernement dominicain prête serment pour un second mandat du 
+président Abinader**: [Link](https://al24news.com/fr/le-nouveau-gouvernement-dominicain-prete-serment-pour-un-second-mandat-du-president-abinader/)
+- **Sahara marocain : La République Dominicaine envisage d'ouvrir un consulat à 
+Dakhla**: [Link](https://www.maroc-hebdo.press.ma/sahara-marocain-republique-dominicaine-envisage-douvrir-consulat-dakhla)
+
+
 ### الان ديلون (N/A, Sun, 18 Aug 2024 04:50:00 -0700)
 
 - **الموت يطفئ نجم ألان ديلون .. "نسر برأسين" وآخر عمالقة السينما الفرنسية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D8%B7%D9%81%D8%A6-%D9%86%D8%AC%D9%85-%D8%A3%D9%84%D8%A7%D9%86-%D8%AF%D9%8A%D9%84%D9%88%D9%86-%D9%86%D8%B3%D8%B1-%D8%A8%D8%B1%D8%A3%D8%B3%D9%8A%D9%86-%D9%88-1417933.html)
