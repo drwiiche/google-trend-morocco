@@ -1,3 +1,27 @@
+### الان ديلون (N/A, Sun, 18 Aug 2024 04:50:00 -0700)
+
+- **الموت يطفئ نجم ألان ديلون .. "نسر برأسين" وآخر عمالقة السينما الفرنسية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D8%B7%D9%81%D8%A6-%D9%86%D8%AC%D9%85-%D8%A3%D9%84%D8%A7%D9%86-%D8%AF%D9%8A%D9%84%D9%88%D9%86-%D9%86%D8%B3%D8%B1-%D8%A8%D8%B1%D8%A3%D8%B3%D9%8A%D9%86-%D9%88-1417933.html)
+- **فرنسا.. وفاة الممثل الشهير آلان ديلون صاحب العلاقات مع المافيا**: [Link](https://www.alhurra.com/varieties/2024/08/18/%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D8%B4%D9%87%D9%8A%D8%B1-%D8%A2%D9%84%D8%A7%D9%86-%D8%AF%D9%8A%D9%84%D9%88%D9%86-%D8%B5%D8%A7%D8%AD%D8%A8-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%A7%D9%81%D9%8A%D8%A7)
+- **وفــ..اة الممثل الفرنسي ألان ديلون**: [Link](https://ar.hibapress.com/details-542742.html)
+
+
+### heracles – psv eindhoven (N/A, Sun, 18 Aug 2024 04:50:00 -0700)
+
+- **Alles over | PSV met scoringsdrift op weg naar nieuwe natuurgras van Almelo**: [Link](https://www.psv.nl/media/artikel/alles-over-psv-met-scoringsdrift-op-weg-naar-nieuwe-natuurgras-van-almelo)
+- **Verwachte opstelling in Almelo: Boscagli en Teze gewoon aan de aftrap, Til én Lozano reserve**: [Link](https://www.psvinside.nl/verwachte-opstelling-in-almelo-boscagli-en-teze-gewoon-aan-de-aftrap-til-reserve/)
+- **Fredrik Oppegard geeft weer een penalty weg: Heracles al vroeg op voorsprong tegen PSV**: [Link](https://sportnieuws.nl/voetbal/nieuws/fredrik-oppegard-geeft-weer-een-penalty-weg-heracles-al-vroeg-op-voorsprong-tegen-psv-2024081810294889677/)
+
+
+### variole du singe mpox (N/A, Sun, 18 Aug 2024 04:00:00 -0700)
+
+- **Infection à Monkeypox (Mpox) ou variole du singe : définition et 
+trasmission | ameli.fr**: [Link](https://www.ameli.fr/assure/sante/themes/variole-singe-monkeypox/infection-monkeypox-mpox-ou-variole-du-singe-definition-et-trasmission)
+- **Nouveau variant du virus mpox : mode de transmission, virulence, souches... 
+Tout ce que l'on sait sur l'épidémie**: [Link](https://www.cnews.fr/sante/2024-08-15/variole-du-singe-mode-de-transmission-virulence-souches-tout-ce-que-lon-sait-sur-la)
+- **Variole du singe au Maroc: le ministère de la Santé renforce le dispositif 
+de veille**: [Link](https://fr.le360.ma/societe/variole-du-singe-au-maroc-le-ministere-de-la-sante-renforce-le-dispositif-de-veille_LB4GOX6MJNHKHIXSTMJUXDMRRY/)
+
+
 ### dragon bleu des mers (N/A, Sun, 18 Aug 2024 03:20:00 -0700)
 
 - **Il attaque s’il se sent menacé et sa piqûre est venimeuse : plusieurs plages espagnoles fermées à cause du "dragon bleu des mers"**: [Link](https://www.lindependant.fr/2024/08/17/il-attaque-sil-se-sent-menace-et-sa-piqure-est-venimeuse-plusieurs-plages-espagnoles-fermees-a-cause-du-dragon-bleu-des-mers-12144917.php)
