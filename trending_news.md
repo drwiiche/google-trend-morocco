@@ -1,3 +1,10 @@
+### dricus du plessis (N/A, Sat, 17 Aug 2024 22:00:00 -0700)
+
+- **Résumé UFC 305 : Du Plessis soumet Israel Adesanya et reste champion des moins de 84 kilos**: [Link](https://rmcsport.bfmtv.com/sports-de-combat/mma/ufc/resume-ufc-305-du-plessis-soumet-israel-adesanya-et-reste-champion-des-moins-de-84-kilos_VN-202408180051.html)
+- **UFC305: Israël Adesanya-Du Plessis, l'échange tendu se termine dans les larmes**: [Link](https://rmcsport.bfmtv.com/sports-de-combat/mma/ufc/ufc305-israel-adesanya-du-plessis-l-echange-tendu-se-termine-dans-les-larmes_AV-202408160305.html)
+- **Du Plessis vs Adesanya : à quelle heure et sur quelle chaîne suivre le combat de l’UFC 305 ?**: [Link](https://rmcsport.bfmtv.com/sports-de-combat/mma/du-plessis-vs-adesanya-a-quelle-heure-et-sur-quelle-chaine-suivre-le-combat-de-l-ufc-305_AN-202408170024.html)
+
+
 ### alain delon (N/A, Sat, 17 Aug 2024 23:30:00 -0700)
 
 - **Alain Delon, la légende du cinéma, est mort**: [Link](https://www.lefigaro.fr/cinema/alain-delon-la-legende-du-cinema-est-mort-20240818)
