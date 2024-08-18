@@ -1,3 +1,10 @@
+### chelsea vs man city (N/A, Sun, 18 Aug 2024 07:40:00 -0700)
+
+- **Chelsea vs Man City: Enzo Maresca’s reunion with grandmaster Pep Guardiola is a story of football and chess**: [Link](https://www.skysports.com/football/news/11662/13196266/chelsea-vs-man-city-enzo-maresca-s-reunion-with-grandmaster-pep-guardiola-is-a-story-of-football-and-chess)
+- **Premier League Soccer: Livestream Brentford vs. Crystal Palace From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-brentford-vs-crystal-palace-from-anywhere/)
+- **Chelsea vs Manchester City Predictions: Visitors to win at Stamford Bridge | Goal.com Nigeria**: [Link](https://www.goal.com/en-ng/betting/chelsea-vs-manchester-city-predictions-18-08-2024/blt48fc5ee7bf7688a8)
+
+
 ### joão félix (N/A, Sun, 18 Aug 2024 08:10:00 -0700)
 
 - **Joao Felix to Chelsea is ON! Blues & Atletico Madrid closing in on transfer 
