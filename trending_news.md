@@ -1,3 +1,12 @@
+### dragon bleu des mers espagne (N/A, Sun, 18 Aug 2024 10:20:00 -0700)
+
+- **Il attaque s’il se sent menacé et sa piqûre est venimeuse : plusieurs 
+plages espagnoles fermées à cause du "dragon bleu des mers"**: [Link](https://www.lindependant.fr/2024/08/17/il-attaque-sil-se-sent-menace-et-sa-piqure-est-venimeuse-plusieurs-plages-espagnoles-fermees-a-cause-du-dragon-bleu-des-mers-12144917.php)
+- **Le « dragon bleu des mers » entraîne la fermeture de plages en Espagne**: [Link](https://www.lepoint.fr/environnement/le-dragon-bleu-des-mers-entraine-la-fermeture-de-plages-en-espagne-17-08-2024-2568108_1927.php)
+- **"Une piqûre venimeuse": qu'est-ce que le dragon bleu des mers, qui a 
+entraîné des interdictions de baignade...**: [Link](https://www.bfmtv.com/animaux/une-piqure-venimeuse-qu-est-ce-que-le-dragon-bleu-des-mers-qui-a-entraine-des-interdictions-de-baignade-en-espagne_AN-202408170179.html)
+
+
 ### real sociedad – rayo (N/A, Sun, 18 Aug 2024 09:40:00 -0700)
 
 - **Bienvenidos a vuestra casa**: [Link](https://www.realsociedad.eus/es/noticias/detalle/bienvenidos-a-vuestra-casa-1)
