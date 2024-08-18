@@ -1,3 +1,10 @@
+### séisme russie (N/A, Sat, 17 Aug 2024 20:40:00 -0700)
+
+- **Un séisme de magnitude 7 enregistré au large de la Russie, l'alerte au tsunami levée**: [Link](https://www.bfmtv.com/international/asie/russie/un-seisme-de-magnitude-7-enregistre-en-russie-alerte-au-tsunami_AD-202408170331.html)
+- **Russie : un séisme de magnitude 7 recensé à l’est du pays, l’alerte tsunami levée**: [Link](https://www.lefigaro.fr/international/russie-un-seisme-de-magnitude-7-recense-a-l-est-du-pays-une-alerte-tsunami-declenchee-par-les-autorites-americaines-20240817)
+- **Un séisme de magnitude 7 enregistré au large de la Russie, une alerte au tsunami émise par les autorités américaines**: [Link](https://www.ladepeche.fr/2024/08/17/un-seisme-de-magnitude-7-enregistre-au-large-de-la-russie-une-alerte-au-tsunami-emise-par-les-autorites-americaines-12146684.php)
+
+
 ### الدخول المدرسي 2025 المغرب (N/A, Sat, 17 Aug 2024 14:50:00 -0700)
 
 - **" رزنامة الدراسة " موعد الدخول المدرسي بالجزائر 2025 وقائمة العطلات الرسمية 
