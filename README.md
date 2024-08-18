@@ -1,3 +1,14 @@
+### crystal palace (N/A, Sun, 18 Aug 2024 06:00:00 -0700)
+
+- **Why Wilfried Zaha transfer is unlikely despite ‘in a heartbeat’ admission 
+from Crystal Palace chairman – with Ivory Coast international enduring a 
+difficult time at Galatasaray**: [Link](https://www.goal.com/en-gb/lists/why-wilfried-zaha-transfer-unlikely-despite-heartbeat-admission-crystal-palace-chairman-ivory-coast-international-galatasaray/blt78bf9ce4bc5d77b4)
+- **Steve Parish now shares update on whether Wilfried Zaha will return to 
+Crystal Palace**: [Link](https://www.wearepalace.uk/news/steve-parish-now-shares-update-on-whether-wilfried-zaha-will-return-to-crystal-palace/)
+- **Crystal Palace urged to beat West Ham and Leicester City to 'really good 
+signing' of 68-goal bagsman**: [Link](https://www.londonworld.com/sport/football/crystal-palace/crystal-palace-urged-to-beat-west-ham-and-leicester-city-to-really-good-signing-of-68-goal-bagsman-4746670)
+
+
 ### electricite liban (N/A, Sun, 18 Aug 2024 06:30:00 -0700)
 
 - **Liban : coupures d’électricité dans toutes les régions du pays en raison du 
