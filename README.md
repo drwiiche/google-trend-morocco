@@ -1,3 +1,19 @@
+### ilkay gündoğan (N/A, Sat, 17 Aug 2024 18:00:00 -0700)
+
+- **Transfer Talk: Gündogan eyes Barça exit, Turkish giants circling**: [Link](https://www.espn.com/soccer/story/_/id/40898158/transfer-talk-gundogan-eyes-barca-exit-turkish-giants-circling)
+- **FC Barcelona Star Gundogan Hands In Shock Transfer Request And Asks To 
+Leave Club, Reports SPORT**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/17/fc-barcelona-hands-in-shock-transfer-request-aand-asks-to-leave-club-reports-sport/)
+- **Just in: Ilkay Gundogan asks to leave Barcelona**: [Link](https://barcauniversal.com/just-in-ilkay-gundogan-asks-to-leave-barcelona/)
+
+
+### danilo nottingham forest (N/A, Sat, 17 Aug 2024 16:50:00 -0700)
+
+- **Nottingham Forest 1-1 AFC Bournemouth: Late Antoine Semenyo strike earns 
+draw**: [Link](https://www.bbc.com/sport/football/live/cy8437kll7vt)
+- **WATCH: All Whites striker Chris Wood scores in English Premier League opener**: [Link](https://www.friendsoffootballnz.com/2024/08/18/watch-all-whites-striker-chris-wood-scores-in-english-premier-league-opener/)
+- **Danilo's injury is serious - Forest boss Espirito Santo**: [Link](https://supersport.com/hereforher/news/4fbef1c4-b1c7-4b0d-824d-94382e13ba15/danilo-s-injury-is-serious-forest-boss-espirito-santo)
+
+
 ### crash avion lavandou (N/A, Sat, 17 Aug 2024 16:20:00 -0700)
 
 - **Ce que l'on sait du crash mortel d'un avion civil en mer au Lavandou**: [Link](https://www.bfmtv.com/var/ce-que-l-on-sait-du-crash-mortel-d-un-avion-civil-en-mer-au-lavandou_AV-202408160513.html)
