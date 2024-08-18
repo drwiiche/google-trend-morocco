@@ -1,3 +1,10 @@
+### real madrid fc (N/A, Sun, 18 Aug 2024 13:50:00 -0700)
+
+- **FC Barcelona News: 5 August 2024; Preparations begin for AC Milan friendly, 
+Clément Lenglet wanted by Villarreal**: [Link](https://www.barcablaugranes.com/2024/8/5/24213266/fc-barcelona-news-5-august-2024-preparations-begin-ac-milan-friendly-clement-lenglet-villarreal)
+- **Framed #225: Real Madrid v Barcelona**: [Link](https://www.soccerbible.com/design/photography/2024/08/framed-225-real-madrid-v-barcelona/)
+
+
 ### modric (N/A, Sun, 18 Aug 2024 14:20:00 -0700)
 
 - **Modrić becomes the player with most titles in Real Madrid history with 27**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/modric-el-jugador-con-mas-titulos-en-la-historia-del-real-madrid-27-14-08-2024)
