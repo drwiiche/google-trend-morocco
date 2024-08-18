@@ -1,3 +1,20 @@
+### destitution macron (N/A, Sun, 18 Aug 2024 11:00:00 -0700)
+
+- **« Démettre le président plutôt que nous soumettre » (par Jean-Luc 
+Mélenchon, Mathilde Panot et Manuel Bompard)**: [Link](https://www.latribune.fr/opinions/demettre-le-president-plutot-que-nous-soumettre-par-jean-luc-melenchon-mathilde-panot-et-manuel-bompard-1004412.html)
+- **La France insoumise esseulée au sein du Nouveau Front populaire après avoir 
+menacé d’engager une procédure de destitution contre Emmanuel Macron**: [Link](https://www.lemonde.fr/politique/article/2024/08/18/la-france-insoumise-menace-d-engager-une-procedure-de-destitution-contre-emmanuel-macron_6285474_823448.html)
+- **La France insoumise menace d'engager une procédure de destitution contre 
+Emmanuel Macron**: [Link](https://www.france24.com/fr/info-en-continu/20240818-lfi-menace-macron-d-engager-une-proc%C3%A9dure-de-destitution)
+
+
+### far (N/A, Sun, 18 Aug 2024 08:00:00 -0700)
+
+- **Volcano Eruption Follows Earthquake In Russia**: [Link](https://weather.com/news/video/volcano-eruption-after-russia-earthquake-and-tsunami-warnings)
+- **7.0-magnitude earthquake triggers Russian volcano eruption and ash cloud warning for aircraft**: [Link](https://news.sky.com/story/7-0-magnitude-earthquake-triggers-volcanic-eruption-and-ash-cloud-warning-for-aircraft-13197584)
+- **Shiveluch volcano erupts in Russia after powerful magnitude-7.0 earthquake**: [Link](https://www.cbsnews.com/news/shiveluch-volcano-erupts-russia-magnitude-7-0-earthquake-pacific/)
+
+
 ### napoli (N/A, Sun, 18 Aug 2024 10:30:00 -0700)
 
 - **Verona-Napoli, le formazioni ufficiali: out Buongiorno, l'ex Simeone punta 
