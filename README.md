@@ -1,3 +1,19 @@
+### ريال مدريد (N/A, Sun, 18 Aug 2024 12:30:00 -0700)
+
+- **الرسم التكتيكي لـ تشكيلة الريال ضد مايوركا**: [Link](https://hihi2.com/2024/08/18/p2800024.html)
+- **بالأرقام.. ريال مدريد لا يُقهر في افتتاح الليجا**: [Link](https://www.kooora.com/?n=1348751)
+- **أنشيلوتي: "لا نعرف لا متى ولا كيف سيلعب كأس العالم للأندية 
+والإنتركونتينانتال"**: [Link](https://m.elbotola.com/article/2024-08-17-17-38-395.html)
+
+
+### cagliari – roma (N/A, Sun, 18 Aug 2024 12:30:00 -0700)
+
+- **Cagliari-Roma, queste sono le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/71686/cagliari-roma-queste-sono-le-formazioni-ufficiali)
+- **Un solo ballottaggio: Zalewski o El Shaarawy. Svolta a destra: Assignon e 
+Abdulhamid**: [Link](https://laroma24.it/rubriche/la-penna-degli-altri/2024/08/un-solo-ballottaggio-zalewski-o-el-shaarawy-svolta-a-destra-assignon-e-abdulhamid)
+- **Di nuovo Serie A: Pavoletti recordman, 4 esordienti**: [Link](https://www.calciocasteddu.it/2024/08/18/di-nuovo-serie-a-pavoletti-recordman-4-esordienti/)
+
+
 ### real vs (N/A, Sun, 18 Aug 2024 12:20:00 -0700)
 
 - **Mallorca vs. Real Madrid - Football Match Preview - August 18, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704663)
