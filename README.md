@@ -1,3 +1,12 @@
+### modric (N/A, Sun, 18 Aug 2024 14:20:00 -0700)
+
+- **Modrić becomes the player with most titles in Real Madrid history with 27**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/modric-el-jugador-con-mas-titulos-en-la-historia-del-real-madrid-27-14-08-2024)
+- **Luka Modrić sends public message to Kylian Mbappé after first Real Madrid 
+trophy**: [Link](https://sports.yahoo.com/luka-modri-sends-public-message-171600510.html)
+- **King of Santiago Bernabeu! Luka Modric becomes most-decorated player in 
+Real Madrid's history with 27 titles**: [Link](https://www.goal.com/en-us/lists/king-santiago-bernabeu-luka-modric-most-decorated-player-real-madrid-history-27-titles/bltcc37dfa0141fb724)
+
+
 ### madrid real (N/A, Sun, 18 Aug 2024 12:40:00 -0700)
 
 - **Arsenal captain Martin Odegaard explains what was 'annoying' about Real 
