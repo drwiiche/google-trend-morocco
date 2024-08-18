@@ -1,3 +1,11 @@
+### real madrid club de fútbol (N/A, Sun, 18 Aug 2024 11:50:00 -0700)
+
+- **Mbappé explora el territorio Pirri**: [Link](https://www.marca.com/futbol/real-madrid/2024/08/18/66c0c435268e3ef7688b4571.html)
+- **El presidente y la plantilla inauguran ‘The Corner by Real Madrid’**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/actualidad/el-presidente-y-el-equipo-inauguran-the-corner-by-real-madrid-18-08-2024)
+- **La última de Florentino Pérez: inaugura el restaurante del Real Madrid en 
+Barajas con Mbappé y compañía**: [Link](https://www.relevo.com/futbol/ultima-florentino-perez-inaugura-restaurante-20240818144243-nt.html)
+
+
 ### mallorca vs real madrid (N/A, Sun, 18 Aug 2024 11:40:00 -0700)
 
 - **Alineación confirmada del Real Madrid contra el Mallorca en Liga**: [Link](https://as.com/futbol/primera/alineacion-confirmada-del-real-madrid-contra-el-mallorca-en-liga-n/)
