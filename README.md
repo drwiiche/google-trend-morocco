@@ -1,3 +1,33 @@
+### roma (N/A, Sun, 18 Aug 2024 13:50:00 -0700)
+
+- **Serie A: Cagliari-Roma 0-0 - Lazio-Venezia 3-1**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/08/18/serie-a-cagliari-roma-0-0-lazio-venezia-3-1_224df3de-8aec-405a-9c53-0b442fabfb85.html)
+- **FORMAZIONI UFFICIALI – Da Dybala a El Shaarawy, Noslin e Pavoletti: tutte 
+le decisioni**: [Link](https://www.sosfanta.com/focus/formazioni-ufficiali-da-dybala-a-el-shaarawy-noslin-e-pavoletti-tutte-le-decisioni/)
+- **Un solo ballottaggio: Zalewski o ElSha. Svolta a destra, Assignon e 
+Abdulhamid**: [Link](https://www.forzaroma.info/rassegna-stampa/il-messaggero/un-solo-ballottaggio-zalewski-o-elsha-svolta-a-destra-assignon-e-abdulhamid/)
+
+
+### لا ليغا (N/A, Sun, 18 Aug 2024 13:50:00 -0700)
+
+- **فليك: لفتة يامال طبيعية.. وأتوقع بقاء نجم برشلونة**: [Link](https://www.kooora.com/?n=1348721)
+- **شاهد ملخص فوز برشلونة على فالنسيا في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/17/barcelona-valencia-mestalla)
+- **البارصا يفتتح "الليغا" بفوز على بلنسية**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%A8%D9%81%D9%88%D8%B2-%D8%B5%D8%B9%D8%A8-1417824.html)
+
+
+### premier satellite senegal (N/A, Sun, 18 Aug 2024 13:00:00 -0700)
+
+- **Le Sénégal lance avec succès son premier satellite**: [Link](https://al24news.com/fr/le-senegal-lance-avec-succes-son-premier-satellite/)
+- **Le Sénégal lance son premier satellite en orbite**: [Link](https://www.rfi.fr/fr/afrique/20240818-le-s%C3%A9n%C3%A9gal-lance-son-premier-satellite-en-orbite)
+- **Sénégal : lancement réussi pour le premier satellite du pays**: [Link](https://www.lefigaro.fr/international/senegal-lancement-reussi-pour-le-premier-satellite-du-pays-20240817)
+
+
+### madrid vs (N/A, Sun, 18 Aug 2024 12:40:00 -0700)
+
+- **Mallorca vs. Real Madrid (18 de Ago., 2024) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/704663)
+- **Palmeiras vs. São Paulo (18 de Ago., 2024) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/699577)
+- **Mallorca - Real Madrid, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/mallorca-real-madrid-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+
+
 ### mallorca (N/A, Sun, 18 Aug 2024 13:00:00 -0700)
 
 - **Monday's weather in Mallorca**: [Link](https://www.majorcadailybulletin.com/weather/weather/2024/08/18/126731/mallorca-weather-for-monday-august-2024-2.html)
