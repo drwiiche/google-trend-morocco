@@ -1,3 +1,11 @@
+### alain delon (N/A, Sat, 17 Aug 2024 23:30:00 -0700)
+
+- **Alain Delon, la légende du cinéma, est mort**: [Link](https://www.lefigaro.fr/cinema/alain-delon-la-legende-du-cinema-est-mort-20240818)
+- **Alain Delon s'est éteint à Douchy, ses trois enfants Anthony, Alain-Fabien 
+et Anouchka unis pour annoncer sa disparition**: [Link](https://www.purepeople.com/article/alain-delon-s-est-eteint-a-douchy-ses-trois-enfants-anthony-alain-fabien-et-anouchka-unis-pour-annoncer-sa-disparition_a373244/1)
+- **Mort d’Alain Delon : sa carrière en 12 films**: [Link](https://www.leparisien.fr/culture-loisirs/cinema/mort-dalain-delon-sa-carriere-en-12-films-18-08-2024-CZ4HM27P65C5XHUZLTDVS4QJII.php)
+
+
 ### angel gomes (N/A, Sat, 17 Aug 2024 16:50:00 -0700)
 
 - **Angel Gomes: Former Man Utd midfielder in hospital after serious head 
