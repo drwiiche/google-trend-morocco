@@ -1,3 +1,10 @@
+### mallorca (N/A, Sun, 18 Aug 2024 13:00:00 -0700)
+
+- **Monday's weather in Mallorca**: [Link](https://www.majorcadailybulletin.com/weather/weather/2024/08/18/126731/mallorca-weather-for-monday-august-2024-2.html)
+- **Sunday's weather in Mallorca - Alert for heavy rain**: [Link](https://www.majorcadailybulletin.com/weather/weather/2024/08/17/126715/mallorca-weather-for-sunday-august-2024-2.html)
+- **La Liga LIVE: Mallorca vs Real Madrid - score & text updates**: [Link](https://www.bbc.com/sport/football/live/c1jlp71k167t)
+
+
 ### bet 365 (N/A, Sun, 18 Aug 2024 13:30:00 -0700)
 
 - **BetMGM bonus + bet365 promo code: Unlock $2.5K MLB bonus**: [Link](https://www.nola.com/betmgm-bonus--bet365-promo-code-unlock-25k-mlb-bonus/article_a55c9ea8-5d81-11ef-97f0-9b5212ae62bd.html)
