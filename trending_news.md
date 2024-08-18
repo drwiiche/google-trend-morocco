@@ -1,3 +1,19 @@
+### city (N/A, Sun, 18 Aug 2024 08:00:00 -0700)
+
+- **Kansas City Chiefs QB Patrick Mahomes throws audacious behind-the-back pass 
+to Travis Kelce in loss to Detroit Lions**: [Link](https://www.cnn.com/2024/08/18/sport/patrick-mahomes-behind-back-pass-spt-intl/index.html)
+- **Patrick Mahomes Unveils a Behind-the-Back Pass in Preseason Matchup Against 
+Detroit**: [Link](https://www.chiefs.com/news/patrick-mahomes-unveils-a-behind-the-back-pass-in-preseason-matchup-against-detroit)
+- **Patrick Mahomes threw behind-the-back pass to Travis Kelce "out of spite"**: [Link](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/patrick-mahomes-threw-behind-the-back-pass-to-travis-kelce-out-of-spite)
+
+
+### frenkie de jong (N/A, Sun, 18 Aug 2024 07:50:00 -0700)
+
+- **Man United handed major Frenkie de Jong blow after ex-Man City star's 'decision'**: [Link](https://www.manchestereveningnews.co.uk/sport/football/transfer-news/man-united-handed-major-frenkie-29761963)
+- **Man Utd transfer: Barcelona 'attracted' by Ratcliffe's 'bold exchange offer' to sign Ten Hag's 'obsession'**: [Link](https://www.football365.com/news/man-utd-transfer-barcelona-attracted-ratcliffe-bold-exchange-offer-sign-ten-hag-obsession)
+- **Barcelona’s midfield maestro staying put, not in talks with any club – report**: [Link](https://barcauniversal.com/barcelonas-midfield-maestro-staying-put-not-in-talks-with-any-club-report/)
+
+
 ### تشيلسي ضد مان سيتي (N/A, Sun, 18 Aug 2024 07:40:00 -0700)
 
 - **نكونكو يواجه هالاند في قمة مانشستر سيتي وتشيلسي**: [Link](https://www.kooora.com/?n=1348796&o=n)
