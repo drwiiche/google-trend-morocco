@@ -1,3 +1,10 @@
+### real madrid cf (N/A, Sun, 18 Aug 2024 12:20:00 -0700)
+
+- **‘I knew he'd be the best player in the world'— Real Madrid legend gushes over Lionel Messi**: [Link](https://www.pulsesports.ng/football/story/i-knew-hed-be-the-best-player-in-the-world-real-madrid-legend-gushes-over-lionel-messi-2024081521573640085)
+- **Roberto Carlos ‘lucky’ he didn’t face ‘new Maradona’ Lionel Messi very often – with Real Madrid legend revealing when he knew Barcelona icon would be ‘best player in the world’**: [Link](https://www.goal.com/en-gb/lists/roberto-carlos-lucky-didnt-face-new-maradona-lionel-messi-very-often-real-madrid-legend-when-knew-barcelona-icon-best-player-world/bltaa07f59d4e910d20)
+- **Trent Alexander-Arnold dodges Liverpool contract question with 12-word message to reporters**: [Link](https://www.liverpool.com/liverpool-fc-news/features/trent-alexander-arnold-liverpool-contract-29763198)
+
+
 ### juventus (N/A, Sun, 18 Aug 2024 12:10:00 -0700)
 
 - **Juventus boss Motta hints at McKennie stay**: [Link](https://www.espn.com/soccer/story/_/id/40904774/juventus-manager-thiago-motta-hints-weston-mckennie-stay-transfer-window)
