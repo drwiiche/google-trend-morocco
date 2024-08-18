@@ -1,3 +1,10 @@
+### bls (N/A, Sun, 18 Aug 2024 02:00:00 -0700)
+
+- **Mississippi achieves unemployment records**: [Link](https://www.wcbi.com/mississippi-achieves-unemployment-records/)
+- **Mississippi sees new record low unemployment rate of 2.7%**: [Link](https://www.supertalk.fm/mississippi-sees-new-record-low-unemployment-rate-of-2-7/)
+- **BLS: Mississippi unemployment rate falls slightly to 2.7% (as of July 2024)**: [Link](https://www.pressregister.com/documents-state-press-releases/bls-mississippi-unemployment-rate-falls-slightly-27-july-2024-66bfc7793a865)
+
+
 ### liban électricité (N/A, Sun, 18 Aug 2024 02:00:00 -0700)
 
 - **Le Liban est dans le noir complet ce soir**: [Link](https://fr.hibapress.com/news-126433.html)
