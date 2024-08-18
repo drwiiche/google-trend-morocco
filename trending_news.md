@@ -1,3 +1,22 @@
+### joão félix (N/A, Sun, 18 Aug 2024 08:10:00 -0700)
+
+- **Joao Felix to Chelsea is ON! Blues & Atletico Madrid closing in on transfer 
+agreement as timeline is set - with Conor Gallagher preparing to head in 
+opposite direction**: [Link](https://www.goal.com/en-us/lists/joao-felix-chelsea-atletico-madrid-transfer-agreement-timeline-set-conor-gallagher/bltff5ebaee2b16b952)
+- **Joao Felix's behaviour in dressing room tells Chelsea everything they need 
+to know**: [Link](https://www.football.london/chelsea-fc/transfer-news/joao-felixs-behaviour-dressing-room-29763080)
+- **Chelsea, Atlético Madrid getting close to finalizing João Félix transfer — 
+reports**: [Link](https://weaintgotnohistory.sbnation.com/chelsea-fc-transfer-rumours-news/2024/8/18/24222809/chelsea-atletico-madrid-getting-close-to-finalizing-joao-felix-transfer-reports)
+
+
+### الجيش الملكي (N/A, Sun, 18 Aug 2024 08:00:00 -0700)
+
+- **تشكيلة الجيش الملكي أمام ريموس تارز النيجيري**: [Link](https://www.almountakhab.com/node/16203218)
+- **عصبة الأبطال/ الجيش الملكي يدشن مساره بمواجهة ريمو ستارز النيجيري برسم ذهاب 
+الدور التمهيدي**: [Link](https://m.elbotola.com/article/2024-08-18-10-10-727.html)
+- **مواجهات قوية للفرق المغربية في أبطال إفريقيا**: [Link](https://m.alayam24.com/articles-520996.html)
+
+
 ### city (N/A, Sun, 18 Aug 2024 08:00:00 -0700)
 
 - **Kansas City Chiefs QB Patrick Mahomes throws audacious behind-the-back pass 
