@@ -1,3 +1,12 @@
+### angel gomes (N/A, Sat, 17 Aug 2024 16:50:00 -0700)
+
+- **Angel Gomes: Former Man Utd midfielder in hospital after serious head 
+injury in Lille game**: [Link](https://www.bbc.com/sport/football/articles/c8jlge1vxrvo)
+- **Angel Gomes: Ex-Manchester United midfielder hospitalised after head injury 
+- The Athletic**: [Link](https://www.nytimes.com/athletic/5706800/2024/08/17/angel-gomes-head-injury-lille/)
+- **The Terrible Tackle in Ligue 1: Player Carted Off**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles-video/the-terrible-tackle-in-ligue-1-player-carted-off-2024-08-17)
+
+
 ### séisme russie (N/A, Sat, 17 Aug 2024 20:40:00 -0700)
 
 - **Un séisme de magnitude 7 enregistré au large de la Russie, l'alerte au tsunami levée**: [Link](https://www.bfmtv.com/international/asie/russie/un-seisme-de-magnitude-7-enregistre-en-russie-alerte-au-tsunami_AD-202408170331.html)
