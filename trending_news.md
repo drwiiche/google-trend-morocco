@@ -1,3 +1,19 @@
+### مانشستر سيتي (N/A, Sun, 18 Aug 2024 08:50:00 -0700)
+
+- **مانشستر سيتي مهدد بعقوبة مخيفة**: [Link](https://www.kooora.com/?n=1348312)
+- **رقم قياسي ينفرد به مانشستر سيتي في تاريخ البريميرليج**: [Link](https://hihi2.com/2024/08/18/p2799365.html)
+- **ما مصير غوارديولا إذا هبط مانشستر سيتي من البريميرليغ؟**: [Link](https://www.aljazeera.net/sport/2024/8/14/%D9%85%D8%A7-%D9%85%D8%B5%D9%8A%D8%B1-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A5%D8%B0%D8%A7-%D9%87%D8%A8%D8%B7-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
+
+
+### leverkusen (N/A, Sun, 18 Aug 2024 08:50:00 -0700)
+
+- **Leverkusen 2-2 Stuttgart (Aug 17, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/703190)
+- **Bayer Leverkusen’s Super Cup win sends a message to their rivals – they 
+will not ease off - The Athletic**: [Link](https://www.nytimes.com/athletic/5706988/2024/08/18/bayer-leverkusen-super-cup-stuttgart/)
+- **German Super Cup: Bayer Leverkusen beat Stuttgart on penalties after late 
+Patrik Schick goal**: [Link](https://www.bbc.com/sport/football/live/cj627k1j4j3t)
+
+
 ### man city (N/A, Sun, 18 Aug 2024 08:30:00 -0700)
 
 - **‘Let’s write some beautiful chapters’ – Arsenal ‘closing gap’ to champions 
