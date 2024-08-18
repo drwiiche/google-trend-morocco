@@ -1,3 +1,19 @@
+### klopp dortmund (N/A, Sun, 18 Aug 2024 15:20:00 -0700)
+
+- **Jurgen Klopp back in the dugout: Ex-Liverpool boss accepts call to take 
+charge of former club after special request**: [Link](https://www.goal.com/en-us/lists/jurgen-klopp-back-in-the-dugout-ex-liverpool-boss-accepts-call-to-take-charge-of-former-club-after-special-request/blt9078c7d209a0fe57)
+- **Jürgen Klopp to return to Borussia Dortmund dugout for one game**: [Link](https://bvbbuzz.com/posts/jurgen-klopp-to-return-to-borussia-dortmund-dugout-for-one-game-01j5edjz249w)
+- **Jurgen Klopp confirms managerial return after Liverpool seal ‘signing of 
+the summer’**: [Link](https://www.teamtalk.com/news/jurgen-klopp-confirms-managerial-return-reds-seal-signing-of-the-summer)
+
+
+### muriqi (N/A, Sun, 18 Aug 2024 14:10:00 -0700)
+
+- **Mallorca 1-1 Real Madrid (Aug 18, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704663)
+- **Ancelotti: "Last year I was happy with some draws, today I am not"**: [Link](https://www.managingmadrid.com/2024/8/19/24223195/ancelotti-last-year-i-was-happy-with-some-draws-today-i-am-not)
+- **La Liga LIVE: Mallorca vs Real Madrid - score & text updates**: [Link](https://www.bbc.com/sport/football/live/c1jlp71k167t)
+
+
 ### vedat muriqi (N/A, Sun, 18 Aug 2024 14:30:00 -0700)
 
 - **Mallorca vs. Real Madrid (18 Aug, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/704663)
