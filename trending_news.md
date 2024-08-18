@@ -1,3 +1,12 @@
+### electricite liban (N/A, Sun, 18 Aug 2024 06:30:00 -0700)
+
+- **Liban : coupures d’électricité dans toutes les régions du pays en raison du 
+manque d’énergie**: [Link](https://al24news.com/fr/liban-coupures-delectricite-dans-toutes-les-regions-du-pays-en-raison-du-manque-denergie/)
+- **Le gouvernement adopte trois mesures pour désamorcer la crise de 
+l'électricité**: [Link](https://www.lorientlejour.com/article/1423810/le-gouvernement-adopte-trois-mesures-pour-desamorcer-la-crise-de-lelectricite.html)
+- **Black-out: un prêt pour acheminer 5.000 litres de gazole**: [Link](https://icibeyrouth.com/economie/375895)
+
+
 ### وزارة التربية والتعليم (N/A, Sun, 18 Aug 2024 05:50:00 -0700)
 
 - **في سبتمبر موعد بداية العام الدراسي الجديد في المغرب 2024 ومواعيد العطل 
