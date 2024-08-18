@@ -1,3 +1,17 @@
+### تشيلسي ضد مان سيتي (N/A, Sun, 18 Aug 2024 07:40:00 -0700)
+
+- **نكونكو يواجه هالاند في قمة مانشستر سيتي وتشيلسي**: [Link](https://www.kooora.com/?n=1348796&o=n)
+- **أرقام بيب غوارديولا في المباريات الإفتتاحية**: [Link](https://hihi2.com/2024/08/18/p2799252.html)
+- **مباشر.. قمة مانشستر سيتي وتشلسي في البريميرليغ**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/18/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%82%D9%85%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%81%D9%8A)
+
+
+### bolivia (N/A, Sun, 18 Aug 2024 07:40:00 -0700)
+
+- **The community where people age more slowly than the rest of the world**: [Link](https://www.bbc.com/news/articles/ceq55l2gdxxo)
+- **Di pipo wey dia hearts dey age slower dan di rest of di world**: [Link](https://www.bbc.com/pidgin/articles/cj9ljvjye74o)
+- **Abuse victims praise inquiry on Jesuit provincials in Bolivia**: [Link](https://cruxnow.com/church-in-the-americas/2024/08/abuse-victims-praise-inquiry-on-jesuit-provincials-in-bolivia/)
+
+
 ### chelsea – manchester city (N/A, Sun, 18 Aug 2024 07:30:00 -0700)
 
 - **Premier League Soccer: Livestream Brentford vs. Crystal Palace From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-brentford-vs-crystal-palace-from-anywhere/)
