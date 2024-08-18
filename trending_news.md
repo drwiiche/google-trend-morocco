@@ -1,3 +1,11 @@
+### chelsea – manchester city (N/A, Sun, 18 Aug 2024 07:30:00 -0700)
+
+- **Premier League Soccer: Livestream Brentford vs. Crystal Palace From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-brentford-vs-crystal-palace-from-anywhere/)
+- **Chelsea vs Manchester City Predictions: Visitors to win at Stamford Bridge 
+| Goal.com Nigeria**: [Link](https://www.goal.com/en-ng/betting/chelsea-vs-manchester-city-predictions-18-08-2024/blt48fc5ee7bf7688a8)
+- **Man City given major boost for Chelsea amid Rodri doubt**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-city-given-major-boost-29724437)
+
+
 ### crystal palace (N/A, Sun, 18 Aug 2024 06:00:00 -0700)
 
 - **Why Wilfried Zaha transfer is unlikely despite ‘in a heartbeat’ admission 
