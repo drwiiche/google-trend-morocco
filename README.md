@@ -1,3 +1,11 @@
+### mallorca vs real madrid (N/A, Sun, 18 Aug 2024 11:40:00 -0700)
+
+- **Alineación confirmada del Real Madrid contra el Mallorca en Liga**: [Link](https://as.com/futbol/primera/alineacion-confirmada-del-real-madrid-contra-el-mallorca-en-liga-n/)
+- **Este es el once titular del Real Madrid para el primer partido de Liga**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20240818/1002300259/once-titular-real-madrid-primer-partido-liga.html)
+- **Alineación confirmada hoy del Real Madrid - Mallorca en el partido de 
+LaLiga EA Sports**: [Link](https://www.marca.com/apuestas-deportivas/alineaciones/2024/08/17/66c08203ca4741713e8b45a7.html)
+
+
 ### majorque – real madrid (N/A, Sun, 18 Aug 2024 11:30:00 -0700)
 
 - **Foot : Pour la première de Kylian Mbappé avec le Real Madrid en Liga, ESPN 
