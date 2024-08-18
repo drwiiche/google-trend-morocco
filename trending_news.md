@@ -1,3 +1,11 @@
+### وزارة التربية والتعليم (N/A, Sun, 18 Aug 2024 05:50:00 -0700)
+
+- **في سبتمبر موعد بداية العام الدراسي الجديد في المغرب 2024 ومواعيد العطل 
+الرسمية - إقرأ نيوز**: [Link](https://article.iqraa.news/894962/%D9%81%D9%8A-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D9%8A-%D8%A7%D9%84%D8%AC/)
+- **الكشف عن موعد انطلاق الدراسة بشكل فعلي برسم موسم 2024-2025**: [Link](https://sabahagadir.ma/309051.html)
+- **هل يؤجل الإحصاء موعد الدخول المدرسي بالمغرب؟**: [Link](https://m.alayam24.com/articles-521032.html)
+
+
 ### enfant disparu berck sur mer (N/A, Sun, 18 Aug 2024 03:00:00 -0700)
 
 - **Enfant disparu à Berck : un corps de petite taille retrouvé sur une plage, 
