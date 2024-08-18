@@ -1,3 +1,21 @@
+### napoli (N/A, Sun, 18 Aug 2024 10:30:00 -0700)
+
+- **Verona-Napoli, le formazioni ufficiali: out Buongiorno, l'ex Simeone punta 
+centrale**: [Link](https://www.fantacalcio.it/news/calcio-italia/18_08_2024/verona-napoli-formazioni-ufficiali-464876)
+- **Zanetti: "Domani inizia il nostro percorso, cerchiamo un'altra impresa 
+lavorando giorno dopo giorno" / VIDEO**: [Link](https://www.hellasverona.it/news/zanetti-domani-inizia-il-nostro-percorso-cerchiamo-unaltra-impresa-lavorando-giorno-dopo-giorno-video)
+- **Ultime di formazione Sky - Buongiorno recupera, Di Lorenzo scala! Dubbio 
+per il '9'**: [Link](https://www.tuttonapoli.net/notizie/ultime-di-formazione-i-sky-i-buongiorno-recupera-di-lorenzo-scala-dubbio-per-il-9-584679)
+
+
+### haaland (N/A, Sun, 18 Aug 2024 09:10:00 -0700)
+
+- **Premier League: Who will win Golden Boot in 2024-25?**: [Link](https://www.bbc.com/sport/football/articles/c2j391m2j78o)
+- **Alan Shearer makes huge demand of Alexander Isak as he issues Newcastle 
+transfer call**: [Link](https://www.mirror.co.uk/sport/football/news/alan-shearer-newcastle-united-isak-33468569)
+- **Predicting Every Premier League Team's Top Goalscorer for the 2024-25 Season**: [Link](https://www.bleacherreport.com/articles/10131647-predicting-every-premier-league-teams-top-goalscorer-for-the-2024-25-season)
+
+
 ### dragon bleu des mers espagne (N/A, Sun, 18 Aug 2024 10:20:00 -0700)
 
 - **Il attaque s’il se sent menacé et sa piqûre est venimeuse : plusieurs 
