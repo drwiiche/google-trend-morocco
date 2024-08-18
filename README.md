@@ -1,3 +1,17 @@
+### الدوري الاسباني (N/A, Sun, 18 Aug 2024 14:30:00 -0700)
+
+- **فليك: لفتة يامال طبيعية.. وأتوقع بقاء نجم برشلونة**: [Link](https://www.kooora.com/?n=1348721)
+- **شاهد ملخص فوز برشلونة على فالنسيا في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/17/barcelona-valencia-mestalla)
+- **البارصا يفتتح "الليغا" بفوز على بلنسية**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%A8%D9%81%D9%88%D8%B2-%D8%B5%D8%B9%D8%A8-1417824.html)
+
+
+### real madrid (N/A, Sun, 18 Aug 2024 12:10:00 -0700)
+
+- **Mallorca - Real Madrid, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/mallorca-real-madrid-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Este es el once titular del Real Madrid para el primer partido de Liga**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20240818/1002300259/once-titular-real-madrid-primer-partido-liga.html)
+- **El Real Madrid se está entrenando**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-real-madrid-se-esta-entrenando-17-08-2024)
+
+
 ### real madrid fc (N/A, Sun, 18 Aug 2024 13:50:00 -0700)
 
 - **FC Barcelona News: 5 August 2024; Preparations begin for AC Milan friendly, 
