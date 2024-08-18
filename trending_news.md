@@ -1,3 +1,10 @@
+### الريال (N/A, Sun, 18 Aug 2024 14:20:00 -0700)
+
+- **ريال مدريد يصمد أمام عرض سعودي ضخم**: [Link](https://www.kooora.com/?n=1348781)
+- **7 نجوم كبار على رادار دوري روشن في الصيف**: [Link](https://hihi2.com/2024/08/18/p2797292.html)
+- **ليس فينيسيوس.. اهتمام سعودي بنجم ريال مدريد**: [Link](https://www.skynewsarabia.com/sport/1735884-%D9%84%D9%8A%D8%B3-%D9%81%D9%8A%D9%86%D8%B3%D9%8A%D9%88%D8%B3-%D8%A7%D9%87%D8%AA%D9%85%D8%A7%D9%85-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A8%D9%86%D8%AC%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+
+
 ### danilo nottingham forest (N/A, Sun, 18 Aug 2024 16:00:00 -0700)
 
 - **Nottingham Forest’s Danilo discharged from hospital after horror ankle injury**: [Link](https://www.theguardian.com/football/article/2024/aug/18/nottingham-forest-danilo-ankle-injury)
