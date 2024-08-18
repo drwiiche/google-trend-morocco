@@ -1,3 +1,11 @@
+### real sociedad (N/A, Sun, 18 Aug 2024 12:00:00 -0700)
+
+- **Preview: Real Sociedad vs. Rayo Vallecano - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/preview-real-sociedad-vs-rayo-vallecano-prediction-team-news-lineups_550518.html)
+- **Real Sociedad vs Rayo Vallecano Predictions**: [Link](https://bettingtips4you.com/predictions/real-sociedad-vs-rayo-vallecano-predictions-betting-tips-match-previews/)
+- **Real Sociedad vs Rayo Vallecano Predicted lineup, betting tips, odds, 
+injury news, H2H, telecast | LaLiga 2024-25**: [Link](https://khelnow.com/football/world-football-real-sociedad-vs-rayo-vallecano-laliga-match-preview-202408)
+
+
 ### real madrid club de fútbol (N/A, Sun, 18 Aug 2024 11:50:00 -0700)
 
 - **Mbappé explora el territorio Pirri**: [Link](https://www.marca.com/futbol/real-madrid/2024/08/18/66c0c435268e3ef7688b4571.html)
