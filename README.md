@@ -1,3 +1,10 @@
+### real vs (N/A, Sun, 18 Aug 2024 12:20:00 -0700)
+
+- **Mallorca vs. Real Madrid - Football Match Preview - August 18, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704663)
+- **CONFIRMED lineups: Mallorca vs Real Madrid, 2024 La Liga**: [Link](https://www.managingmadrid.com/2024/8/18/24222873/mallorca-vs-real-madrid-2024-la-liga-live-online-stream)
+- **Real Madrid Line Up Versus Mallorca: Ancelotti Changes Tactics**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/18/real-madrid-line-up-versus-mallorca-ancelotti-changes-tactics/)
+
+
 ### real sociedad (N/A, Sun, 18 Aug 2024 12:00:00 -0700)
 
 - **Preview: Real Sociedad vs. Rayo Vallecano - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/preview-real-sociedad-vs-rayo-vallecano-prediction-team-news-lineups_550518.html)
