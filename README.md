@@ -1,3 +1,17 @@
+### real sociedad – rayo (N/A, Sun, 18 Aug 2024 09:40:00 -0700)
+
+- **Bienvenidos a vuestra casa**: [Link](https://www.realsociedad.eus/es/noticias/detalle/bienvenidos-a-vuestra-casa-1)
+- **Entradas para el Real Sociedad**: [Link](https://www.rayovallecano.es/noticias/informacion-de-las-entradas-para-el-real-sociedad-rayo-vallecano)
+- **Iñigo Pérez confirma la baja de Álvaro García**: [Link](https://www.jornadaperfecta.com/blog/inigo-perez-previa-real-sociedad-rayo-j1/)
+
+
+### ajax (N/A, Sun, 18 Aug 2024 09:40:00 -0700)
+
+- **Ajax moet rekening houden met vertrek Forbs**: [Link](https://www.vi.nl/nieuws/ajax-moet-rekening-houden-met-vertrek-forbs)
+- **Verbazing om Ajax-aanvaller Forbs: 'Dan moet je echt naar de dokter'**: [Link](https://www.voetbalprimeur.nl/videos/1219918/donedeal-over-forbs-bij-ajax.html)
+- **‘Ajax verbaast alweer met dure transfer’**: [Link](https://www.soccernews.nl/news/ajax-verbaast-alweer-met-dure-transfer/)
+
+
 ### مانشستر سيتي (N/A, Sun, 18 Aug 2024 08:50:00 -0700)
 
 - **مانشستر سيتي مهدد بعقوبة مخيفة**: [Link](https://www.kooora.com/?n=1348312)
