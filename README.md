@@ -1,3 +1,12 @@
+### bet 365 (N/A, Sun, 18 Aug 2024 13:30:00 -0700)
+
+- **BetMGM bonus + bet365 promo code: Unlock $2.5K MLB bonus**: [Link](https://www.nola.com/betmgm-bonus--bet365-promo-code-unlock-25k-mlb-bonus/article_a55c9ea8-5d81-11ef-97f0-9b5212ae62bd.html)
+- **bet365 North Carolina Bonus Code BOOKIESNC: Bet $5, Get $150 In Bonuses For 
+August 19th, 2024**: [Link](https://bookies.com/news/promo/bet365-north-carolina-bonus-code-bookiesnc-bet-5-get-150-bonuses-august-19-2024)
+- **Best MLB Betting Promos & Bonuses for Sunday, August 18 | Make MLB Bets 
+Today**: [Link](https://sportsbookwire.usatoday.com/2024/08/18/mlb-betting-promos-bonuses-make-best-mlb-bets-today/)
+
+
 ### real madrid cf (N/A, Sun, 18 Aug 2024 12:20:00 -0700)
 
 - **‘I knew he'd be the best player in the world'— Real Madrid legend gushes over Lionel Messi**: [Link](https://www.pulsesports.ng/football/story/i-knew-hed-be-the-best-player-in-the-world-real-madrid-legend-gushes-over-lionel-messi-2024081521573640085)
