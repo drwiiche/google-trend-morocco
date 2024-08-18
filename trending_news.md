@@ -1,3 +1,10 @@
+### danilo nottingham forest (N/A, Sun, 18 Aug 2024 16:00:00 -0700)
+
+- **Nottingham Forest’s Danilo discharged from hospital after horror ankle injury**: [Link](https://www.theguardian.com/football/article/2024/aug/18/nottingham-forest-danilo-ankle-injury)
+- **Nottingham Forest player suffers gruesome leg injury in opening minutes of Premier League opener**: [Link](https://www.foxnews.com/sports/nottingham-forest-player-suffers-gruesome-leg-injury-opening-minutes-premier-league-opener)
+- **Nottm Forest 1-1 Bournemouth (Aug 17, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704284)
+
+
 ### klopp dortmund (N/A, Sun, 18 Aug 2024 15:20:00 -0700)
 
 - **Jurgen Klopp back in the dugout: Ex-Liverpool boss accepts call to take 
