@@ -1,3 +1,33 @@
+### liban électricité (N/A, Sun, 18 Aug 2024 02:00:00 -0700)
+
+- **Le Liban est dans le noir complet ce soir**: [Link](https://fr.hibapress.com/news-126433.html)
+- **Le gouvernement adopte trois mesures pour désamorcer la crise de 
+l'électricité**: [Link](https://www.lorientlejour.com/article/1423810/le-gouvernement-adopte-trois-mesures-pour-desamorcer-la-crise-de-lelectricite.html)
+- **Black-out: un prêt pour acheminer 5.000 litres de gazole**: [Link](https://icibeyrouth.com/economie/375895)
+
+
+### venezuela maduro (N/A, Sun, 18 Aug 2024 02:00:00 -0700)
+
+- **Protests across Venezuela as election dispute continues**: [Link](https://www.bbc.com/news/articles/cgedgqqy7x9o)
+- **Venezuelan opposition protests as election dispute drags on**: [Link](https://www.reuters.com/world/americas/venezuelan-opposition-protests-election-dispute-drags-2024-08-17/)
+- **Protesters rally in Venezuela’s capital as post-election crisis persists**: [Link](https://www.aljazeera.com/news/2024/8/17/protesters-rally-in-venezuelas-capital-as-post-election-crisis-persists)
+
+
+### ifrane (N/A, Sun, 18 Aug 2024 02:00:00 -0700)
+
+- **Parc Ain Vittel d'Ifrane : Une rénovation réussie entre nature, sport et 
+culture**: [Link](https://medias24.com/2024/08/17/parc-ain-vittel-difrane-une-renovation-reussie-entre-nature-sport-et-culture/)
+- **Ifrane : Le parc Ain Vittel dévoile son nouveau visage aux visiteurs**: [Link](https://www.leconomiste.com/flash-infos/ifrane-le-parc-ain-vittel-devoile-son-nouveau-visage-aux-visiteurs)
+- **Ifrane: Le parc Ain Vittel fait peau neuve**: [Link](https://www.lavieeco.com/influences/ifrane-le-parc-ain-vittel-fait-peau-neuve/)
+
+
+### حالة الطقس (N/A, Sat, 17 Aug 2024 22:30:00 -0700)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1417909.html)
+- **موجة حر شديدة تضرب المغرب غداً: مراكش وبني ملال في الصدارة بـ 45 و 44 درجة**: [Link](https://www.akhbarona.com/national/390773.html)
+- **تفاصيل تغير مفاجئ في الطقس بالمغرب**: [Link](https://www.analkhabar.com/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AA%D8%BA%D9%8A%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%81%D9%8A-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+
+
 ### easyjet (N/A, Sun, 18 Aug 2024 00:20:00 -0700)
 
 - **EasyJet cancels 232 flights over next three days for destination popular 
