@@ -1,3 +1,10 @@
+### لا ليغا (N/A, Sat, 17 Aug 2024 14:10:00 -0700)
+
+- **غيابان بارزان عن ريال مدريد أمام مايوركا**: [Link](https://www.kooora.com/?n=1348523)
+- **ريال مدريد ينهي تحضيراته استعداداُ لمواجهة مايوركا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%86%D9%87%D9%8A-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA%D9%87-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-2024-08-17)
+- **تعرف على الأندية الأكثر تتويجا بالدوري الإسباني (إنفوغراف)**: [Link](https://arabi21.com/story/1618681/%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%83%D8%AB%D8%B1-%D8%AA%D8%AA%D9%88%D9%8A%D8%AC%D8%A7-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%A5%D9%86%D9%81%D9%88%D8%BA%D8%B1%D8%A7%D9%81)
+
+
 ### ilkay gündoğan (N/A, Sat, 17 Aug 2024 18:00:00 -0700)
 
 - **Transfer Talk: Gündogan eyes Barça exit, Turkish giants circling**: [Link](https://www.espn.com/soccer/story/_/id/40898158/transfer-talk-gundogan-eyes-barca-exit-turkish-giants-circling)
