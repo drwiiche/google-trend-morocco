@@ -1,3 +1,13 @@
+### madrid real (N/A, Sun, 18 Aug 2024 12:40:00 -0700)
+
+- **Arsenal captain Martin Odegaard explains what was 'annoying' about Real 
+Madrid spell before he joined Gunners**: [Link](https://www.goal.com/en-us/lists/arsenal-martin-odegaard-explains-annoying-about-real-madrid-spell-before-he-joined-gunners/bltf9a36d6bdc7282a3)
+- **Martin Odegaard openly admits what 'annoyed' him at Real Madrid before 
+Arsenal move**: [Link](https://www.mirror.co.uk/sport/football/news/arsenal-real-madrid-martin-odegaard-33485382)
+- **I was annoyed at Real Madrid and treated differently but Arsenal transfer 
+changed everything**: [Link](https://www.football.london/arsenal-fc/news/annoyed-real-madrid-treated-differently-29761754)
+
+
 ### roma (N/A, Sun, 18 Aug 2024 13:50:00 -0700)
 
 - **Serie A: Cagliari-Roma 0-0 - Lazio-Venezia 3-1**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/08/18/serie-a-cagliari-roma-0-0-lazio-venezia-3-1_224df3de-8aec-405a-9c53-0b442fabfb85.html)
