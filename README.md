@@ -1,3 +1,11 @@
+### aide militaire (N/A, Mon, 19 Aug 2024 09:10:00 -0700)
+
+- **L’Allemagne gèle toute nouvelle aide militaire à l’Ukraine**: [Link](https://www.lefigaro.fr/international/l-allemagne-gele-toute-nouvelle-aide-militaire-a-l-ukraine-20240818)
+- **L’Allemagne prévoit de réduire de moitié son aide militaire à l’Ukraine**: [Link](https://al24news.com/fr/lallemagne-prevoit-de-reduire-de-moitie-son-aide-militaire-a-lukraine/)
+- **Des interrogations sur l'aide allemande à l'Ukraine font vaciller les 
+groupes de défense en Bourse**: [Link](https://www.tradingsat.com/actualites/informations-societes/des-interrogations-sur-l-aide-allemande-a-l-ukraine-font-vaciller-les-groupes-de-defense-en-bourse-1121453.html)
+
+
 ### gundogan (N/A, Mon, 19 Aug 2024 09:20:00 -0700)
 
 - **Ilkay Gundogan: Former Man City captain could leave Barcelona this summer**: [Link](https://www.bbc.com/sport/football/articles/c935kk15p0do)
