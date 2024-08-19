@@ -1,3 +1,24 @@
+### prince andrew (N/A, Mon, 19 Aug 2024 14:00:00 -0700)
+
+- **Prince Andrew offered another new residence as Royal Lodge row escalates**: [Link](https://www.express.co.uk/news/royal/1937482/prince-andrew-offered-another-new-home)
+- **Reports of the King axing Prince Andrew's private security are not surprising | ITV News**: [Link](https://www.itv.com/news/2024-08-19/reports-of-the-king-axing-prince-andrews-private-security-are-not-surprising)
+- **Prince Andrew 'refusing to give up Beatrice and Eugenie's inheritance' as feud with King Charles escalates**: [Link](https://www.gbnews.com/royal/princess-beatrice-princess-eugenie-inheritance-prince-andrew-news)
+
+
+### jean paul belmondo (N/A, Mon, 19 Aug 2024 13:40:00 -0700)
+
+- **Mort d'Alain Delon : qui est Jean-François Delon, son demi-frère ?**: [Link](https://www.programme-tv.net/news/people/358842-mort-d-alain-delon-qui-est-jean-francois-delon-son-demi-frere/)
+- **Mort d’Alain Delon: «Ses enfants ne m'ont même pas permis de lui dire “Au revoir”», réagit Hiromi Rollin, la dame de l’ombre de l’acteur**: [Link](https://www.lefigaro.fr/faits-divers/mort-d-alain-delon-ses-enfants-ne-m-ont-meme-pas-permis-de-lui-dire-au-revoir-reagit-hiromi-rollin-la-dame-de-l-ombre-de-l-acteur-20240819)
+- **Mort d'Alain Delon: l'acteur sera enterré en milieu de semaine à Douchy**: [Link](https://www.bfmtv.com/people/cinema/mort-d-alain-delon-l-acteur-sera-enterre-en-milieu-de-semaine-a-douchy_AV-202408190231.html)
+
+
+### lecce - atalanta (N/A, Mon, 19 Aug 2024 12:40:00 -0700)
+
+- **Le formazioni di Lecce-Atalanta**: [Link](https://www.atalanta.it/news/serie-a-enilive-24-25-le-formazioni-di-lecce-atalanta)
+- **Gasp: "Lookman e Koop? Nessuno si aspettava di trovarsi in questa situazione"**: [Link](https://www.gazzetta.it/Calcio/Calciomercato/Atalanta/19-08-2024/gasperini-su-lookman-e-koopmeiners-situazione-inattesa.shtml)
+- **Gotti: “Krstovic forte, oggi non facile per nessuno. I nuovi arrivati e sul mercato…”**: [Link](https://www.sosfanta.com/news/gotti-krstovic-forte-oggi-non-facile-per-nessuno-i-nuovi-arrivati-e-sul-mercato/)
+
+
 ### smara (N/A, Mon, 19 Aug 2024 12:40:00 -0700)
 
 - **Azrael: Exclusive Trailer**: [Link](https://www.ign.com/videos/azrael-exclusive-trailer)
