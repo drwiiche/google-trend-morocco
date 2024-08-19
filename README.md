@@ -1,3 +1,12 @@
+### incendie frontignan (N/A, Mon, 19 Aug 2024 05:00:00 -0700)
+
+- **PHOTOS - Incendie à Canet-en-Roussillon : 3.000 vacanciers évacués 
+d'urgence en pleine nuit, le feu maîtrisé**: [Link](https://www.francebleu.fr/infos/faits-divers-justice/incendie-a-canet-en-roussillon-3-000-vacanciers-evacues-d-urgence-en-pleine-nuit-3360500)
+- **France : Incendies dans le sud, 3.000 vacanciers évacués d'un camping**: [Link](https://lematin.ma/monde/france-incendies-dans-le-sud-3000-vacanciers-evacues-dun-camping/239653)
+- **Un feu de végétation se propage dans un camping des Pyrénées-Orientales : 
+le dernier bilan fait état de 11 blessés légers**: [Link](https://www.lindependant.fr/2024/08/19/3-000-personnes-evacuees-104-pompiers-mobilises-un-feu-de-vegetation-sest-propage-a-un-camping-des-pyrenees-orientales-dans-la-nuit-de-dimanche-a-12148125.php)
+
+
 ### walid regragui (N/A, Mon, 19 Aug 2024 04:30:00 -0700)
 
 - **Prochains matchs du Maroc : le casse-tête de Walid Regragui**: [Link](https://www.bladi.net/prochains-matchs-maroc-casse-tete-walid-regragui,109987.html)
