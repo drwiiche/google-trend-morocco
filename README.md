@@ -1,3 +1,10 @@
+### villarreal - atlético madrid (N/A, Mon, 19 Aug 2024 13:00:00 -0700)
+
+- **Villarreal 2-2 Atlético (Aug 19, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704669)
+- **Sørloth returns to haunt Villarreal with debut goal in Atleti colours 👻**: [Link](https://sports.yahoo.com/rloth-returns-haunt-villarreal-debut-205100019.html)
+- **Villarreal - Atletico live**: [Link](https://www.marca.com/en/soccer/laliga/villarreal-atletico/2024/08/19/01_0101_20240819_449_175-live.html)
+
+
 ### jannik sinner (N/A, Mon, 19 Aug 2024 15:50:00 -0700)
 
 - **Sinner-Zverev, a che ora e dove vedere in tv il match del Masters 1000 
