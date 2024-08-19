@@ -1,3 +1,11 @@
+### villarreal – atlético madrid (N/A, Mon, 19 Aug 2024 11:40:00 -0700)
+
+- **Villarreal vs. Atlético Madrid - Football Match Preview - August 19, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704669)
+- **Preview: Villarreal vs. Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/preview/preview-villarreal-vs-atletico-prediction-team-news-lineups_550617.html)
+- **Arnaut Danjuma and Alexander Sorloth both to score BOOSTED to 7/1 - as 
+Villarreal and Atletico Madrid meet in LaLiga**: [Link](https://www.dailymail.co.uk/sport/skybet/article-13756639/Arnaut-Danjuma-Alexander-Sorloth-Villarreal-Atletico-Madrid-La-Liga.html)
+
+
 ### juventus – côme (N/A, Mon, 19 Aug 2024 11:30:00 -0700)
 
 - **Juventus-Como: dove vederla in diretta tv e streaming, probabili formazioni**: [Link](https://www.repubblica.it/sport/calcio/serie-a/2024/08/18/news/juventus_como_dove_vedere_tv_formazioni-423451831/)
