@@ -1,3 +1,13 @@
+### super lune bleue (N/A, Mon, 19 Aug 2024 01:30:00 -0700)
+
+- **À quelle heure observer la super lune «bleue» lundi 19 août depuis la 
+France ?**: [Link](https://www.lefigaro.fr/sciences/a-quelle-heure-observer-la-super-lune-bleue-lundi-19-aout-depuis-la-france-20240818)
+- **Ce lundi, c'est la pleine lune de l'esturgeon (et aussi une super lune 
+bleue) : ce que ça signifie**: [Link](https://actu.fr/sciences-technologie/ce-lundi-c-est-la-pleine-lune-de-l-esturgeon-et-aussi-une-super-lune-bleue-ce-que-ca-signifie_61484995.html)
+- **La super lune de l'esturgeon : un spectacle astronomique à ne pas manquer 
+au cours des prochaines heures !**: [Link](https://www.tameteo.com/actualites/actualite/la-super-lune-de-l-esturgeon-un-spectacle-astronomique-a-ne-pas-manquer-au-cours-des-prochaines-heures-astronomie-calendrier-aout.html)
+
+
 ### tebboune (N/A, Mon, 19 Aug 2024 02:10:00 -0700)
 
 - **Tebboune en campagne depuis Constantine : un accent sur le soutien à la 
