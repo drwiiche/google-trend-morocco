@@ -1,3 +1,26 @@
+### tebboune (N/A, Mon, 19 Aug 2024 02:10:00 -0700)
+
+- **Tebboune en campagne depuis Constantine : un accent sur le soutien à la 
+Palestine, la poursuite des réformes économiques et la sécurité**: [Link](https://al24news.com/fr/tebboune-en-campagne-depuis-constantine-un-accent-sur-le-soutien-a-la-palestine-la-poursuite-des-reformes-economiques-et-la-securite/)
+- **Nationale - Aouchiche : «Je veux redonner espoir aux jeunes**: [Link](https://www.lexpressiondz.com/nationale/aouchiche-je-veux-redonner-espoir-aux-jeunes-384834)
+- **Algérie : la campagne présidentielle est lancée !**: [Link](https://afrique.tv5monde.com/information/algerie-la-campagne-presidentielle-est-lancee)
+
+
+### ademola lookman (N/A, Mon, 19 Aug 2024 02:10:00 -0700)
+
+- **Atalanta fight Juventus for Nico Gonzalez after PSG poach Lookman**: [Link](https://football-italia.net/atalanta-juventus-nico-gonzalez-psg-lookman/)
+- **Ademola Lookman dropped from Atalanta squad amid interest from PSG**: [Link](https://www.vanguardngr.com/2024/08/ademola-lookman-dropped-from-atalanta-squad-amid-interest-from-psg/)
+- **Lookman Slaps In Transfer Request Following Interest From PSG, Opt Out Of 
+Game Against Lecce**: [Link](https://owngoalnigeria.com/2024/08/18/lookman-slaps-in-transfer-request-following-interest-from-psg-opt-out-of-game-against-lecce/)
+
+
+### ثورة الملك والشعب (N/A, Mon, 19 Aug 2024 02:10:00 -0700)
+
+- **الثورة الجديدة..**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-1418156.html)
+- **المغاربة على موعد مع عطلة جديدة**: [Link](https://m.alayam24.com/articles-521241.html)
+- **المغرب في حاجة لكتلة تاريخية تخرج البلاد من السنوات العجاف…**: [Link](https://lakome2.com/opinion/353109/)
+
+
 ### yahoo (N/A, Mon, 19 Aug 2024 01:20:00 -0700)
 
 - **Gay man says he was assaulted by Shake Shack employees after kissing his 
