@@ -1,3 +1,18 @@
+### leicester – tottenham (N/A, Mon, 19 Aug 2024 11:10:00 -0700)
+
+- **Leicester vs Spurs | ‘Talking Tactics’ with Rob Daly**: [Link](https://www.tottenhamhotspur.com/news/2024/august/leicester-vs-spurs-talking-tactics-with-rob-daly/)
+- **‘Enjoyable To Be Back’ - Winks Looks To Tottenham Clash**: [Link](https://www.lcfc.com/news/4086101/enjoyable-to-be-back--winks-looks-to-tottenham-clash)
+- **Premier League Predictions & best bets: Dominic Solanke to make instant 
+impact for Tottenham at Leicester**: [Link](https://www.skysports.com/football/news/12028/13196909/premier-league-predictions-and-best-bets-new-season-same-old-woeful-man-utd-jones-knows-tips-up-14-1-treble)
+
+
+### saudia airlines (N/A, Mon, 19 Aug 2024 10:20:00 -0700)
+
+- **OTP**: [Link](https://www.travelandtourworld.com/news/article/tag/otp/)
+- **Saudia leads world in on-time flights again**: [Link](https://economymiddleeast.com/news/saudia-leads-world-in-on-time-flights-again/)
+- **Saudia ranks first globally for on-time performance in July**: [Link](https://www.siasat.com/saudia-ranks-first-globally-for-on-time-performance-in-july-3081415/)
+
+
 ### atletico madrid (N/A, Mon, 19 Aug 2024 10:40:00 -0700)
 
 - **Chelsea agree fee for Joao Felix to allow Gallagher to join Atleti**: [Link](https://www.bbc.com/sport/football/articles/c0jp78g449qo)
