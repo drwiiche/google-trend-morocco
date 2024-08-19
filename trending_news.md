@@ -1,3 +1,11 @@
+### juventus (N/A, Mon, 19 Aug 2024 11:50:00 -0700)
+
+- **Serie A Week 1 line-ups: Juventus vs. Como**: [Link](https://football-italia.net/serie-a-week-1-line-ups-juventus-vs-como/)
+- **Game Time Thread: Juventus vs. Como**: [Link](https://www.blackwhitereadallover.com/2024/8/19/24216375/juventus-como-2024-serie-a-round-1-lineups-team-news-live-online-streaming)
+- **Timothy Weah starts, Weston McKennie available off the bench as Juventus 
+name XI vs Cesc Fabregas's Como in Serie A opener**: [Link](https://www.goal.com/en-us/lists/tim-weah-weston-mckennie-juventus-xi-cesc-fabregas-como-serie-a/bltef4757f994dedce0)
+
+
 ### villarreal – atlético madrid (N/A, Mon, 19 Aug 2024 11:40:00 -0700)
 
 - **Villarreal vs. Atlético Madrid - Football Match Preview - August 19, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704669)
