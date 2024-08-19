@@ -1,3 +1,11 @@
+### atp cincinnati (N/A, Mon, 19 Aug 2024 03:50:00 -0700)
+
+- **Novak Djokovic calls for video replays in tennis after Jack Draper 
+controversy**: [Link](https://www.theguardian.com/sport/article/2024/aug/18/novak-djokovic-tennis-video-replay-jack-draper)
+- **Auger-Aliassime and his elegant message after the controversy in Cincinnati**: [Link](https://www.puntodebreak.com/en/2024/08/18/auger-aliassime-and-his-elegant-message-after-the-controversy-in-cincinnati)
+- **Tennis star suggests umpire should be banned from US Open after Cincy drama**: [Link](https://www.express.co.uk/sport/tennis/1937774/tennis-us-open-jack-drapper-felix-auger-aliassime)
+
+
 ### هبة بريس (N/A, Sun, 18 Aug 2024 22:20:00 -0700)
 
 - **مشاركون في عملية إحصاء السكان يشتكون مشاكل تقنية في اللوحات الإلكترونية**: [Link](https://www.hespress.com/%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D9%88%D9%86-%D9%81%D9%8A-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D9%83%D8%A7%D9%86-%D9%8A%D8%B4%D8%AA%D9%83%D9%88%D9%86-%D9%85-1417978.html)
