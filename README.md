@@ -1,3 +1,11 @@
+### gundogan (N/A, Mon, 19 Aug 2024 09:20:00 -0700)
+
+- **Ilkay Gundogan: Former Man City captain could leave Barcelona this summer**: [Link](https://www.bbc.com/sport/football/articles/c935kk15p0do)
+- **Transfer Talk: Gündogan eyes Barça exit, Turkish giants circling**: [Link](https://www.espn.com/soccer/story/_/id/40898158/transfer-talk-gundogan-eyes-barca-exit-turkish-giants-circling)
+- **Manchester City interested in move for Ilkay Gundogan as midfielder’s 
+Barcelona future in doubt - The Athletic**: [Link](https://www.nytimes.com/athletic/5709651/2024/08/19/manchester-city-ilkay-gundogan-transfer-latest/)
+
+
 ### lecce – atalanta (N/A, Mon, 19 Aug 2024 09:00:00 -0700)
 
 - **Preview: Lecce vs. Atalanta BC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lecce/preview/preview-lecce-vs-atalanta-prediction-team-news-lineups_550602.html)
