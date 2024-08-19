@@ -1,3 +1,12 @@
+### raheem sterling (N/A, Mon, 19 Aug 2024 07:20:00 -0700)
+
+- **Exclusive: Chelsea signing linked to likely Sterling exit, five more names 
+could leave Blues soon**: [Link](https://www.caughtoffside.com/2024/08/19/chelsea-transfers-sterling-exit-lukaku-napoli/)
+- **Raheem Sterling statement shows size of Enzo Maresca's task at Chelsea**: [Link](https://www.bbc.com/sport/football/articles/cwy5j7pzxwpo)
+- **Raheem Sterling is 'seeking clarity' over his Chelsea future after being 
+DROPPED from matchday squad for Man C**: [Link](https://www.dailymail.co.uk/sport/football/article-13754823/Raheem-Sterling-Chelsea-future-DROPPED-Man-City.html)
+
+
 ### mason greenwood (N/A, Mon, 19 Aug 2024 05:20:00 -0700)
 
 - **Manager admits ex-Manchester United man was 'the first player' he wanted in 
