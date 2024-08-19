@@ -1,3 +1,11 @@
+### walid regragui (N/A, Mon, 19 Aug 2024 04:30:00 -0700)
+
+- **Prochains matchs du Maroc : le casse-tête de Walid Regragui**: [Link](https://www.bladi.net/prochains-matchs-maroc-casse-tete-walid-regragui,109987.html)
+- **Lions de l’Atlas: la défense inquiète Walid Regragui**: [Link](https://www.lesiteinfo.com/sport/625453-lions-de-latlas-la-defense-inquiete-walid-regragui.html)
+- **Nouvelle surprise! Un nouveau "olympique" choisi de représenter le Maroc à 
+la France. à découvrir**: [Link](https://fr.hibapress.com/news-126200.html)
+
+
 ### atp cincinnati (N/A, Mon, 19 Aug 2024 03:50:00 -0700)
 
 - **Novak Djokovic calls for video replays in tennis after Jack Draper 
