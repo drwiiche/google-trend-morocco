@@ -1,3 +1,11 @@
+### joao cancelo (N/A, Mon, 19 Aug 2024 07:40:00 -0700)
+
+- **Man City given £17m transfer ultimatum as striker 'agreement' reached**: [Link](https://www.manchestereveningnews.co.uk/sport/football/transfer-news/man-city-given-17m-transfer-29761196)
+- **Barcelona given fresh hopes in pursuit of star full-back – report**: [Link](https://barcauniversal.com/barcelona-given-fresh-hopes-in-pursuit-of-star-full-back-report/)
+- **Guardiola confirms world class star could make stunning Man City return, as 
+champions announce latest transfer**: [Link](https://www.teamtalk.com/manchester-city/guardiola-confirms-world-class-star-could-make-stunning-man-city-return-champions-announce-latest-transfer)
+
+
 ### raheem sterling (N/A, Mon, 19 Aug 2024 07:20:00 -0700)
 
 - **Exclusive: Chelsea signing linked to likely Sterling exit, five more names 
