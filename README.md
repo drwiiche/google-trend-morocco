@@ -1,3 +1,18 @@
+### juventus – côme (N/A, Mon, 19 Aug 2024 11:30:00 -0700)
+
+- **Juventus-Como: dove vederla in diretta tv e streaming, probabili formazioni**: [Link](https://www.repubblica.it/sport/calcio/serie-a/2024/08/18/news/juventus_como_dove_vedere_tv_formazioni-423451831/)
+- **La prima sorpresa di Thiago Motta: il capitano Danilo verso la panchina, 
+gioca Cabal**: [Link](https://www.goal.com/it/liste/la-prima-sorpresa-di-thiago-motta-il-capitano-danilo-verso-la-panchina-gioca-cabal/bltd9503ba4c58e4311)
+- **Tuttosport: "Napoli horror show. Le sberle di Conte"**: [Link](https://www.tuttonapoli.net/rassegna-stampa/i-tuttosport-i-napoli-horror-show-le-sberle-di-conte-584763)
+
+
+### tottenham (N/A, Mon, 19 Aug 2024 11:10:00 -0700)
+
+- **Tottenham Hotspur sign Wilson Odobert from Burnley for about £25m on deal until 2029**: [Link](https://www.bbc.com/sport/football/articles/cn9l17l9e97o)
+- **Tottenham announce shock £30 million signing of winger**: [Link](https://hotspurhq.com/posts/tottenham-announce-shock-30-million-signing-of-winger-01j5dcfanbyw)
+- **Tottenham sign winger Odobert, Ipswich land Phillips and Szmodics**: [Link](https://www.theguardian.com/football/article/2024/aug/16/transfer-news-tottenham-wilson-odobert)
+
+
 ### leicester – tottenham (N/A, Mon, 19 Aug 2024 11:10:00 -0700)
 
 - **Leicester vs Spurs | ‘Talking Tactics’ with Rob Daly**: [Link](https://www.tottenhamhotspur.com/news/2024/august/leicester-vs-spurs-talking-tactics-with-rob-daly/)
