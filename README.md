@@ -1,3 +1,12 @@
+### visa maroc (N/A, Mon, 19 Aug 2024 15:30:00 -0700)
+
+- **Pourquoi la Côte d’Ivoire a-t-elle demandé au Maroc de réintroduire un visa 
+d’entrée pour ses ressortissants**: [Link](https://www.jeuneafrique.com/1599907/politique/pourquoi-la-cote-divoire-a-t-elle-demande-au-maroc-de-reintroduire-un-visa-dentree-pour-ses-ressortissants/)
+- **Le visa réinstauré pour les citoyens ivoiriens entrant au Maroc dès 
+septembre 2024**: [Link](https://medias24.com/2024/08/19/le-visa-pour-les-citoyens-ivoiriens-entrant-au-maroc-reinstaure-des-septembre-2024/)
+- **La Côte d’Ivoire introduit un visa d’entrée pour les voyages au Maroc**: [Link](https://maroc-diplomatique.net/la-cote-divoire-introduit-un-visa-dentree-pour-les-voyages-au-maroc/)
+
+
 ### tebboune israel (N/A, Mon, 19 Aug 2024 15:20:00 -0700)
 
 - **Tebboune déclare que l’armée algérienne est prête à entrer à Gaza si 
