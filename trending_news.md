@@ -1,3 +1,11 @@
+### أتلتيكو مدريد (N/A, Mon, 19 Aug 2024 14:50:00 -0700)
+
+- **تعادل مثير بين فياريال وأتلتيكو مدريد**: [Link](https://www.kooora.com/?n=1349107)
+- **تعادل مثير بين أتلتيكو مدريد وفياريال**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%AB%D9%8A%D8%B1-%D8%A8%D9%8A%D9%86-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-2024-08-19)
+- **مباشر beIN SPORTS HD .. القنوات الناقلة لمباراة فياريال واتليتكو مدريد في 
+الدوري الإسباني**: [Link](https://www.sports-leb.com/16479/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-bein-sports-hd-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7/)
+
+
 ### prince andrew (N/A, Mon, 19 Aug 2024 14:00:00 -0700)
 
 - **Prince Andrew offered another new residence as Royal Lodge row escalates**: [Link](https://www.express.co.uk/news/royal/1937482/prince-andrew-offered-another-new-home)
