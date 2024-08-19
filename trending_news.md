@@ -1,3 +1,11 @@
+### villarreal vs atlético madrid (N/A, Mon, 19 Aug 2024 12:20:00 -0700)
+
+- **¿Se viene el debut? Julián Álvarez, entre los convocados para la visita de 
+Atlético Madrid a Villarreal**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/14058333/cuando-debuta-julian-alvarez-en-atletico-madrid-formacion-contra-villarreal-en-vivo)
+- **Gerard o Terrats, la duda más destacada para empezar**: [Link](https://as.com/futbol/primera/gerard-o-terrats-la-duda-mas-destacada-para-empezar-n/)
+- **Ayoze se recupera a tiempo y entra en la lista para recibir al Atlético**: [Link](https://www.futbolfantasy.com/laliga/noticias/118741-ayoze-se-recupera-a-tiempo-y-entra-en-la-lista-para-recibir-al-atletico)
+
+
 ### villarreal (N/A, Mon, 19 Aug 2024 11:30:00 -0700)
 
 - **Alineación confirmada del Atlético contra el Villarreal hoy en Liga**: [Link](https://as.com/futbol/primera/alineacion-posible-del-atletico-contra-el-villarreal-hoy-en-liga-n/)
