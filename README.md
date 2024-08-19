@@ -1,3 +1,10 @@
+### 20 غشت (N/A, Mon, 19 Aug 2024 01:50:00 -0700)
+
+- **الثورة الجديدة..**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-1418156.html)
+- **المغاربة على موعد مع عطلة جديدة**: [Link](https://m.alayam24.com/articles-521241.html)
+- **المغرب في حاجة لكتلة تاريخية تخرج البلاد من السنوات العجاف…**: [Link](https://lakome2.com/opinion/353109/)
+
+
 ### super lune bleue (N/A, Mon, 19 Aug 2024 01:30:00 -0700)
 
 - **À quelle heure observer la super lune «bleue» lundi 19 août depuis la 
