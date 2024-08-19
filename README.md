@@ -1,3 +1,19 @@
+### juventus vs como (N/A, Mon, 19 Aug 2024 13:20:00 -0700)
+
+- **🚨 Juventus confirma XI para el debut en Serie A**: [Link](https://onefootball.com/es/noticias/juventus-confirma-xi-para-el-debut-en-serie-a-39915498)
+- **Juventus – Como: pronósticos, horario y alineaciones – Serie A (19/08)**: [Link](https://www.elnuevodiario.com.ni/deportes/futbol/futbol-europeo/italia/juventus-como-pronosticos-horario-y-alineaciones-serie-a-19-08)
+- **Juventus vs Como: cómo ver el partido, alineaciones y pronóstico**: [Link](https://www.90min.com/es/posts/juventus-vs-como-como-ver-alineaciones-y-pronostico-19-8-2024)
+
+
+### leicester city vs tottenham (N/A, Mon, 19 Aug 2024 12:10:00 -0700)
+
+- **Leicester vs Tottenham LIVE: Premier League score, line-ups, commentary, 
+stats & latest updates**: [Link](https://www.bbc.com/sport/football/live/c5ydpp2gw8dt)
+- **‘I am hearing a lot of nonsense’ – Ex-Chelsea striker gives fierce defence 
+of Spurs boss Postecoglou**: [Link](https://www.caughtoffside.com/2024/08/16/tottenham-hotspur-manager-ange-postecoglou-pressure-chris-sutton/)
+- **This is what Tottenham's Starting Eleven could look like on EPL Opening Day**: [Link](https://hotspurhq.com/posts/tottenham-starting-eleven-look-epl-opening-day)
+
+
 ### juventus - como (N/A, Mon, 19 Aug 2024 13:00:00 -0700)
 
 - **Juventus-Como, en directo**: [Link](https://as.com/futbol/internacional/juventus-como-en-directo-n/)
