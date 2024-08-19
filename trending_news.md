@@ -1,3 +1,13 @@
+### cristiano ronaldo (N/A, Mon, 19 Aug 2024 02:40:00 -0700)
+
+- **Ranking Cristiano Ronaldo’s biggest and most theatrical tantrums - The 
+Athletic**: [Link](https://www.nytimes.com/athletic/5708051/2024/08/19/ranking-cristiano-ronaldos-biggest-tantrums/)
+- **Ronaldo scores but Al Nassr routed in Super Cup**: [Link](https://www.espn.com/soccer/story/_/id/40895601/cristiano-ronaldo-al-nassr-al-hilal-saudi-super-cup-final)
+- **Cristiano Ronaldo’s angry gesture to cost boss his job? Luis Castro facing 
+Al-Nassr chop after Super Cup capitulation – with Saudi Pro League season 
+yet to start**: [Link](https://www.goal.com/en-us/lists/cristiano-ronaldo-gesture-cost-boss-job-luis-castro-al-nassr-chop-super-cup-capitulation-saudi-pro-league-season/blt63fde2eac5e3c857)
+
+
 ### 20 غشت (N/A, Mon, 19 Aug 2024 01:50:00 -0700)
 
 - **الثورة الجديدة..**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-1418156.html)
