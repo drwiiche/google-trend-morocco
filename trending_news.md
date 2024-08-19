@@ -1,3 +1,12 @@
+### smara (N/A, Mon, 19 Aug 2024 12:40:00 -0700)
+
+- **Azrael: Exclusive Trailer**: [Link](https://www.ign.com/videos/azrael-exclusive-trailer)
+- **Azrael Trailer: Ready Or Not Star Fights Demons & Mute Cultists In 
+Post-Rapture Horror Movie**: [Link](https://screenrant.com/azrael-movie-trailer-horror-samara-weaving/)
+- **'Azrael' Trailer Pits Samara Weaving Against Horde of Enemies in Real-Time 
+Survival Horror**: [Link](https://bloody-disgusting.com/movie/3826446/azrael-trailer-pits-samara-weaving-against-horde-of-enemies-in-real-time-survival-horror/)
+
+
 ### juventus vs como (N/A, Mon, 19 Aug 2024 13:20:00 -0700)
 
 - **🚨 Juventus confirma XI para el debut en Serie A**: [Link](https://onefootball.com/es/noticias/juventus-confirma-xi-para-el-debut-en-serie-a-39915498)
