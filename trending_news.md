@@ -1,3 +1,12 @@
+### mason greenwood (N/A, Mon, 19 Aug 2024 05:20:00 -0700)
+
+- **Manager admits ex-Manchester United man was 'the first player' he wanted in 
+£26m deal**: [Link](https://www.unitedinfocus.com/news/manager-admits-manchester-united-man-was-the-first-player-he-wanted-in-26m-deal/)
+- **Mason Greenwood’s debut goals will ‘calm controversies’, says Roberto De 
+Zerbi**: [Link](https://www.irishnews.com/sport/soccer/mason-greenwoods-debut-goals-will-calm-controversies-says-roberto-de-zerbi-TXCPOC3UCBM6XNDWGA5OO66IRA/)
+- **VIDEO | Ligue 1 2024 Highlights: Brest vs Marseille**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles-video/marseille-thrashes-in-debut-with-greenwood-at-the-helm-2024-08-17)
+
+
 ### incendie frontignan (N/A, Mon, 19 Aug 2024 05:00:00 -0700)
 
 - **PHOTOS - Incendie à Canet-en-Roussillon : 3.000 vacanciers évacués 
