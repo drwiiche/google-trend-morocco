@@ -1,3 +1,10 @@
+### زلزال يضرب روسيا (N/A, Sun, 18 Aug 2024 18:00:00 -0700)
+
+- **زلزال عنيف يضرب شرق روسيا وتحذير من تسونامي**: [Link](https://kech24.com/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%B9%D9%86%D9%8A%D9%81-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B4%D8%B1%D9%82-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%88%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%AA%D8%B3%D9%88%D9%86%D8%A7%D9%85%D9%8A.html)
+- **وزارة الطوارئ الروسية: لا مخاوف من تسونامي بعد زلزال كامشاتكا**: [Link](https://www.aljazeera.net/news/2024/8/17/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-7-2-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%83%D8%A7%D9%85%D8%B4%D8%A7%D8%AA%D9%83%D8%A7-%D8%A8%D8%B4%D8%B1%D9%82)
+- **ثوران بركان في روسيا بعد زلزال بقوة 7 درجات**: [Link](https://arabic.cnn.com/world/article/2024/08/18/volcano-in-russia-erupts-after-7-earthquake)
+
+
 ### ماريا نديم (N/A, Sun, 18 Aug 2024 16:40:00 -0700)
 
 - **الحزن يخيم على بيت أسرة الفنانة ماريا نديم**: [Link](https://ar.lesiteinfo.com/cultures/%D8%A7%D9%84%D8%AD%D8%B2%D9%86-%D9%8A%D8%AE%D9%8A%D9%85-%D8%B9%D9%84%D9%89-%D8%A8%D9%8A%D8%AA-%D8%A3%D8%B3%D8%B1%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D9%85%D8%A7%D8%B1%D9%8A%D8%A7-%D9%86-874244.html)
