@@ -1,3 +1,19 @@
+### lecce – atalanta (N/A, Mon, 19 Aug 2024 09:00:00 -0700)
+
+- **Preview: Lecce vs. Atalanta BC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lecce/preview/preview-lecce-vs-atalanta-prediction-team-news-lineups_550602.html)
+- **How to watch today's Lecce vs Atalanta Serie A game: Live stream, TV 
+channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-lecce-vs-atalanta-serie-a-game-live-stream-tv-channel-start-time/blte5420bb7159161f6)
+- **Serie A: Lecce v Atalanta – Preview, predictions, tips, offers and odds**: [Link](https://www.101greatgoals.com/betting-tips/serie-a-odds/serie-a-lecce-v-atalanta-preview-predictions-tips-offers-odds/)
+
+
+### 20 aout (N/A, Mon, 19 Aug 2024 06:50:00 -0700)
+
+- **Les pronos hippiques du mardi 20 août 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-20-aout-2024_AN-202408190293.html)
+- **Les pronostics quinté du 18/08/2024 à Deauville**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-18082024-a-deauville-4262777)
+- **3 pros analysent leurs chances dans le Quinté+ de ce dimanche 18 août à 
+Deauville**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/3-pros-analysent-leurs-chances-dans-le-quinte-de-ce-dimanche-18-aout-a-deauville)
+
+
 ### joao cancelo (N/A, Mon, 19 Aug 2024 07:40:00 -0700)
 
 - **Man City given £17m transfer ultimatum as striker 'agreement' reached**: [Link](https://www.manchestereveningnews.co.uk/sport/football/transfer-news/man-city-given-17m-transfer-29761196)
