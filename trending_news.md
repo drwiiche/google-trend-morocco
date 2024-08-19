@@ -1,3 +1,12 @@
+### emmanuel macron (N/A, Sun, 18 Aug 2024 17:50:00 -0700)
+
+- **Nomination du premier ministre : Marine Le Pen dénonce «un coup de force» 
+au sujet de la venue de Lucie Castets à l'Élysée**: [Link](https://www.lefigaro.fr/politique/nomination-du-premier-ministre-marine-le-pen-denonce-un-coup-de-force-au-sujet-de-la-venue-de-lucie-castets-a-l-elysee-20240818)
+- **Nouveau gouvernement : Emmanuel Macron prêt à recevoir Lucie Castets**: [Link](https://www.leparisien.fr/politique/nouveau-gouvernement-emmanuel-macron-pret-a-recevoir-lucie-castets-16-08-2024-UN4T3D6KYFFHLFRSFPRGTALVBQ.php)
+- **Chefs de partis invités par Macron : «Aucun autre bloc politique n’est au 
+niveau du Nouveau Front populaire», estime Fabien Roussel**: [Link](https://www.liberation.fr/politique/chefs-de-partis-invites-par-macron-aucun-autre-bloc-politique-nest-au-niveau-du-nouveau-front-populaire-estime-fabien-roussel-20240816_4HGILGEMFZCPFKWLB4RZNLDWTQ/)
+
+
 ### زلزال يضرب روسيا (N/A, Sun, 18 Aug 2024 18:00:00 -0700)
 
 - **زلزال عنيف يضرب شرق روسيا وتحذير من تسونامي**: [Link](https://kech24.com/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%B9%D9%86%D9%8A%D9%81-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B4%D8%B1%D9%82-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%88%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%AA%D8%B3%D9%88%D9%86%D8%A7%D9%85%D9%8A.html)
