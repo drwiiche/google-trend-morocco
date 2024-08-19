@@ -1,3 +1,11 @@
+### هبة بريس (N/A, Sun, 18 Aug 2024 22:20:00 -0700)
+
+- **مشاركون في عملية إحصاء السكان يشتكون مشاكل تقنية في اللوحات الإلكترونية**: [Link](https://www.hespress.com/%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D9%88%D9%86-%D9%81%D9%8A-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D9%83%D8%A7%D9%86-%D9%8A%D8%B4%D8%AA%D9%83%D9%88%D9%86-%D9%85-1417978.html)
+- **بعد وصف غالي "الأساتذة" بـ"العطاشة".. "العثماني" يستقيل من الجمعية المغربية 
+لحقوق الإنسان**: [Link](https://ar.hibapress.com/details-542905.html)
+- **بزمن الرقمنة.. الحليمي يحن للتواصل التقليدي ويترك الإحصاء عرضة للادعاء**: [Link](https://madar21.com/270080.html)
+
+
 ### cristiano ronaldo (N/A, Mon, 19 Aug 2024 02:40:00 -0700)
 
 - **Ranking Cristiano Ronaldo’s biggest and most theatrical tantrums - The 
