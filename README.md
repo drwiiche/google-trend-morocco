@@ -1,3 +1,18 @@
+### juventus - como (N/A, Mon, 19 Aug 2024 13:00:00 -0700)
+
+- **Juventus-Como, en directo**: [Link](https://as.com/futbol/internacional/juventus-como-en-directo-n/)
+- **Celta De Vigo, Primer Equipo En Ganar En La Nueva Temporada De La Liga**: [Link](https://www.barrons.com/news/spanish/celta-de-vigo-primer-equipo-en-ganar-en-la-nueva-temporada-de-la-liga-7bf6b307)
+- **Iago Aspas comanda la remontada frente al Alavés**: [Link](https://www.foxdeportes.com/la-liga/nota/iago-aspas-comanda-la-remontada-frente-al-alaves)
+
+
+### serie a (N/A, Mon, 19 Aug 2024 12:50:00 -0700)
+
+- **Juventus-Como: dove vederla in diretta tv e streaming, probabili formazioni**: [Link](https://www.repubblica.it/sport/calcio/serie-a/2024/08/18/news/juventus_como_dove_vedere_tv_formazioni-423451831/)
+- **Juve-Como LIVE: diretta Serie A**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/19-08-2024/juve-como-live-diretta-serie-a.shtml)
+- **Samuel Mbangula: età, ruolo, statistiche e quanto spendere al fantacalcio. 
+Chi è il giovane in gol con la Juve**: [Link](https://www.ilmessaggero.it/sport/schede/samuel_mbangula_chi_e_titolare_gol_juventus_como_eta_ruolo_statistiche_fantacalcio-8305047.html)
+
+
 ### villarreal vs atlético madrid (N/A, Mon, 19 Aug 2024 12:20:00 -0700)
 
 - **¿Se viene el debut? Julián Álvarez, entre los convocados para la visita de 
