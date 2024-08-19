@@ -1,3 +1,10 @@
+### felix auger aliassime (N/A, Mon, 19 Aug 2024 00:20:00 -0700)
+
+- **Novak Djokovic calls for video replays in tennis after Jack Draper controversy**: [Link](https://www.theguardian.com/sport/article/2024/aug/18/novak-djokovic-tennis-video-replay-jack-draper)
+- **'Horrible call.' Reactions to controversial match point in Draper's Cincinnati Open win**: [Link](https://www.cincinnati.com/story/sports/tennis/2024/08/17/horrible-draper-advances-in-controversial-cincinnati-open-finish/74839377007/)
+- **Felix Auger-Aliassime fumes after wild match-point ending v Jack Draper in Cincinnati - 'He shanked it onto the floor!'**: [Link](https://www.eurosport.com/tennis/atp-cincinnati/2024/jack-draper-controversy-felix-auger-aliassime-match-point-double-bounce_sto20029732/story.shtml)
+
+
 ### حالة الطقس (N/A, Sun, 18 Aug 2024 22:10:00 -0700)
 
 - **أمطار متوقعة اليوم وتنبيه برتقالي بسبب الغبار والرياح**: [Link](https://www.khaleejtimes.com/arabic/uae/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%88%D8%AA%D9%86%D8%A8%D9%8A%D9%87-%D8%A8%D8%B1%D8%AA%D9%82%D8%A7%D9%84%D9%8A-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%BA%D8%A8%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%AD)
