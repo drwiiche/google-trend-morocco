@@ -1,3 +1,19 @@
+### jannik sinner (N/A, Mon, 19 Aug 2024 15:50:00 -0700)
+
+- **Sinner-Zverev, a che ora e dove vedere in tv il match del Masters 1000 
+Cincinnati**: [Link](https://www.corriere.it/sport/tennis/24_agosto_18/sinner-zverev-dove-vedere-in-tv-match-masters-1000-cincinnati-5ad61c85-ed07-46b3-a7ba-73b2ed7daxlk.shtml)
+- **Sinner-Tiafoe: a che ora si gioca la finale a Cincinnati e dove vederla**: [Link](https://www.gazzetta.it/Tennis/ATP/19-08-2024/sinner-tiafoe-finale-a-cincinnati-a-che-ora-si-gioca-e-dove-vederla-in-tv-e-in-streaming.shtml)
+- **Tennis: Sinner, a Cincinnati, sulla scia di Wilander, Agassi e Federer**: [Link](https://www.pressgiochi.it/tennis-sinner-a-cincinnati-sulla-scia-di-wilander-agassi-e-federer/125034)
+
+
+### atletico de madrid (N/A, Mon, 19 Aug 2024 14:30:00 -0700)
+
+- **João Félix, vendido al Chelsea; Gallagher llega a Madrid hoy**: [Link](https://as.com/futbol/primera/acuerdo-cerrado-joao-al-chelsea-y-gallagher-vuelve-manana-a-madrid-n/)
+- **Joao Félix se cae de la convocatoria para el partido ante el Villarreal y 
+su venta al Chelsea es inminente**: [Link](https://www.marca.com/futbol/atletico/2024/08/19/66c37c92ca4741743f8b4578.html)
+- **Simeone le soltó la mano: Atlético Madrid cerró la venta de una figura**: [Link](https://www.pasionfutbol.com/noticias/Simeone-le-solto-la-mano-Atletico-Madrid-cerro-la-venta-de-una-figura-20240819-0014.html)
+
+
 ### visa maroc (N/A, Mon, 19 Aug 2024 15:30:00 -0700)
 
 - **Pourquoi la Côte d’Ivoire a-t-elle demandé au Maroc de réintroduire un visa 
