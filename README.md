@@ -1,3 +1,12 @@
+### atletico madrid (N/A, Mon, 19 Aug 2024 10:40:00 -0700)
+
+- **Chelsea agree fee for Joao Felix to allow Gallagher to join Atleti**: [Link](https://www.bbc.com/sport/football/articles/c0jp78g449qo)
+- **Transfer news live: Chelsea agree Joao Felix deal; Premier League latest 
+and more - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/transfer-news-latest-live-updates/aVykqJplm4AQ/)
+- **Chelsea transfers: PSG clear path for Blues to sign Victor Osimhen but 
+issues remain over 'blocked' €100m deal**: [Link](https://www.teamtalk.com/chelsea/psg-clear-path-chelsea-sign-e100m-superstar-issues-remain-blocked-transfer)
+
+
 ### aide militaire (N/A, Mon, 19 Aug 2024 09:10:00 -0700)
 
 - **L’Allemagne gèle toute nouvelle aide militaire à l’Ukraine**: [Link](https://www.lefigaro.fr/international/l-allemagne-gele-toute-nouvelle-aide-militaire-a-l-ukraine-20240818)
