@@ -1,3 +1,11 @@
+### regragui (N/A, Mon, 19 Aug 2024 01:30:00 -0700)
+
+- **Prochains matchs du Maroc : le casse-tête de Walid Regragui**: [Link](https://www.bladi.net/prochains-matchs-maroc-casse-tete-walid-regragui,109987.html)
+- **Nouvelle surprise! Un nouveau "olympique" choisi de représenter le Maroc à 
+la France. à découvrir**: [Link](https://fr.hibapress.com/news-126200.html)
+- **Walid Regragui prêt à lancer Adam Aznou en équipe nationale**: [Link](https://www.bladi.net/walid-regragui-pret-lancer-adam-aznou-equipe-nationale,109965.html)
+
+
 ### felix auger aliassime (N/A, Mon, 19 Aug 2024 00:20:00 -0700)
 
 - **Novak Djokovic calls for video replays in tennis after Jack Draper controversy**: [Link](https://www.theguardian.com/sport/article/2024/aug/18/novak-djokovic-tennis-video-replay-jack-draper)
