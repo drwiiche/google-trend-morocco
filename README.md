@@ -1,3 +1,12 @@
+### tebboune israel (N/A, Mon, 19 Aug 2024 15:20:00 -0700)
+
+- **Tebboune déclare que l’armée algérienne est prête à entrer à Gaza si 
+l’Égypte l’y autorise**: [Link](https://fr.le360.ma/monde/tebboune-declare-que-larmee-algerienne-est-prete-a-entrer-a-gaza-si-legypte-ly-autorise_DSIVOBBX6BGHHBAKUT6NP2DEZY/)
+- **Présidentielles en Algérie : ce qu’a vraiment dit Tebboune sur Gaza**: [Link](https://www.tsa-algerie.com/presidentielles-en-algerie-ce-qua-vraiment-dit-tebboune-sur-gaza/)
+- **Intervention militaire à Gaza : Quand Tebboune exploite la tragédie des 
+gazaouis pour se faire réélire**: [Link](https://www.lopinion.ma/Intervention-militaire-a-Gaza-Quand-Tebboune-exploite-la-tragedie-des-gazaouis-pour-se-faire-reelire_a57145.html)
+
+
 ### أتلتيكو مدريد (N/A, Mon, 19 Aug 2024 14:50:00 -0700)
 
 - **تعادل مثير بين فياريال وأتلتيكو مدريد**: [Link](https://www.kooora.com/?n=1349107)
