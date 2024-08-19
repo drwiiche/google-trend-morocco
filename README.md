@@ -1,3 +1,10 @@
+### الطقس (N/A, Sun, 18 Aug 2024 23:10:00 -0700)
+
+- **توقعات أحوال الطقس اليوم الاثنين**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-1418181.html)
+- **طقس الأحد.. ارتفاع في درجات الحرارة**: [Link](https://ar.hibapress.com/details-542722.html)
+- **لائحة المدن المغربية التي ستعرف حرارة مفرطة**: [Link](https://www.alayam24.com/articles-521220.html)
+
+
 ### emmanuel macron (N/A, Sun, 18 Aug 2024 17:50:00 -0700)
 
 - **Nomination du premier ministre : Marine Le Pen dénonce «un coup de force» 
