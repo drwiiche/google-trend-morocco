@@ -1,3 +1,13 @@
+### yahoo (N/A, Mon, 19 Aug 2024 01:20:00 -0700)
+
+- **Gay man says he was assaulted by Shake Shack employees after kissing his 
+boyfriend at D.C. location**: [Link](https://www.yahoo.com/news/gay-man-says-assaulted-shake-051338085.html)
+- **DC Police investigating attack outside of Dupont Circle Shake Shack as 
+suspected hate crime**: [Link](https://www.nbcwashington.com/news/local/man-recovering-after-alleged-attack-outside-dupont-circle-shake-shack/3696864/)
+- **Gay man says he was assaulted by Shake Shack employees after kissing his 
+boyfriend at D.C. location**: [Link](https://www.nbcnews.com/nbc-out/out-news/gay-man-says-was-assaulted-shake-shack-employees-kissing-boyfriend-dc-rcna167072)
+
+
 ### regragui (N/A, Mon, 19 Aug 2024 01:30:00 -0700)
 
 - **Prochains matchs du Maroc : le casse-tête de Walid Regragui**: [Link](https://www.bladi.net/prochains-matchs-maroc-casse-tete-walid-regragui,109987.html)
