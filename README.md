@@ -1,3 +1,11 @@
+### villarreal (N/A, Mon, 19 Aug 2024 11:30:00 -0700)
+
+- **Alineación confirmada del Atlético contra el Villarreal hoy en Liga**: [Link](https://as.com/futbol/primera/alineacion-posible-del-atletico-contra-el-villarreal-hoy-en-liga-n/)
+- **Joao apunta a Villarreal y Samu no viajará**: [Link](https://www.marca.com/futbol/atletico/2024/08/18/66c24d0946163fe8438b456f.html)
+- **Simeone desvela quién es, en su opinión, el favorito para el título de 
+LaLiga**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20240818/1002300179/simeone-madrid-parte-mejor-equipo-detras-competir.html)
+
+
 ### juventus (N/A, Mon, 19 Aug 2024 11:50:00 -0700)
 
 - **Serie A Week 1 line-ups: Juventus vs. Como**: [Link](https://football-italia.net/serie-a-week-1-line-ups-juventus-vs-como/)
