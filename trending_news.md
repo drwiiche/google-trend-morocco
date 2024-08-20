@@ -1,3 +1,19 @@
+### champions league (N/A, Tue, 20 Aug 2024 12:00:00 -0700)
+
+- **PSG at risk of potential Champions League EXPULSION as Kylian Mbappe makes 
+contact with UEFA & LFP over alleged €55m unpaid wages prior to Real Madrid 
+transfer**: [Link](https://www.goal.com/en-us/lists/psg-risk-champions-league-expulsion-kylian-mbappe-contact-uefa-lfp-alleged-55m-unpaid-wages-real-madrid-transfer/blt707fc05df2f2081d)
+- **Kylian Mbappé counterattacks to reclaim unpaid sums from PSG**: [Link](https://www.lemonde.fr/en/france/article/2024/08/20/kylian-mbappe-counterattacks-to-reclaim-unpaid-sums-from-psg_6718633_7.html)
+- **Mbappe Files 55 Million Euro Complaint At PSG**: [Link](https://sports.ndtv.com/webstories/sports/mbappe-files-55-million-euro-complaint-at-psg-22786)
+
+
+### حورية فرغلي (N/A, Tue, 20 Aug 2024 11:50:00 -0700)
+
+- **خاص "لها" - حورية فرغلي تكشف سراً عن فيلمها الجديد**: [Link](https://www.lahamag.com/article/213789-%D8%AE%D8%A7%D8%B5-%D9%84%D9%87%D8%A7--%D8%AD%D9%88%D8%B1%D9%8A%D8%A9-%D9%81%D8%B1%D8%BA%D9%84%D9%8A-%D8%AA%D9%83%D8%B4%D9%81-%D8%B3%D8%B1%D8%A7-%D8%B9%D9%86-%D9%81%D9%8A%D9%84%D9%85%D9%87%D8%A7-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF)
+- **فرغلي تفجر مفاجآت عن "المدرسة"**: [Link](https://www.alsumaria.tv/news/miscellaneous/497563/%D9%81%D8%B1%D8%BA%D9%84%D9%8A-%D8%AA%D9%81%D8%AC%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D8%A9)
+- **حورية فرغلي لـ"فيتو": ركبت مناخير سيليكون بسبب فيلم المدرسة - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/76442/%D8%AD%D9%88%D8%B1%D9%8A%D8%A9-%D9%81%D8%B1%D8%BA%D9%84%D9%8A-%D9%84%D9%80%D9%81%D9%8A%D8%AA%D9%88-%D8%B1%D9%83%D8%A8%D8%AA-%D9%85%D9%86%D8%A7%D8%AE%D9%8A%D8%B1-%D8%B3%D9%8A%D9%84%D9%8A%D9%83%D9%88%D9%86-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%81%D9%8A%D9%84%D9%85-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D8%A9---AARC-%D9%85%D8%B5%D8%B1.html)
+
+
 ### naufrage sicile (N/A, Tue, 20 Aug 2024 11:10:00 -0700)
 
 - **Naufrage en Sicile : une troublante coïncidence**: [Link](https://www.lepoint.fr/monde/naufrage-en-sicile-une-troublante-coincidence-20-08-2024-2568354_24.php)
