@@ -1,3 +1,20 @@
+### berrechid (N/A, Mon, 19 Aug 2024 18:10:00 -0700)
+
+- **Maroc : une demande en mariage qui finit en drame**: [Link](https://www.bladi.net/maroc-demande-mariage-qui-finit-drame,110003.html)
+- **Berrechid: cinq personnes périssent dans un terrible accident**: [Link](https://www.lesiteinfo.com/maroc/625451-berrechid-cinq-personnes-perissent-dans-un-terrible-accident.html)
+- **Il a été tué et blessé dans un accident de la route entre Berrechid et 
+Soualem**: [Link](https://fr.hibapress.com/news-126430.html)
+
+
+### real madrid kylian mbappé (N/A, Mon, 19 Aug 2024 18:10:00 -0700)
+
+- **Real Madrid player ratings vs Mallorca: You're not in Ligue 1 anymore, 
+Kylian! Mbappe fails to fire on La Liga debut as Vinicius Jr also struggles 
+in disappointing draw**: [Link](https://www.goal.com/en/lists/real-madrid-player-ratings-vs-mallorca-kylian-mbappe-vinicius-jr/blt1623d9b7e98e6847)
+- **La Liga LIVE: Mallorca vs Real Madrid - score & text updates**: [Link](https://www.bbc.com/sport/football/live/c1jlp71k167t)
+- **Mbappe kept quiet as Mallorca matches Madrid**: [Link](https://www.beinsports.com/en-au/football/laliga/articles-video/mbappe-kept-quiet-as-mallorca-matches-madrid-2024-08-18)
+
+
 ### mike lynch (N/A, Mon, 19 Aug 2024 17:20:00 -0700)
 
 - **Search continues for British tech magnate and 5 others after luxury 
