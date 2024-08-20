@@ -1,3 +1,12 @@
+### rodrygo (N/A, Tue, 20 Aug 2024 07:20:00 -0700)
+
+- **El mensaje borrado en el canal de Whatsapp de Rodrygo sobre la falta de la 
+'R' en la 'BMV'**: [Link](https://www.marca.com/futbol/real-madrid/2024/08/20/66c44a9822601d1f7f8b4583.html)
+- **Rodrygo borra un mensaje en el Whatsapp por su ausencia en la 'BMV'**: [Link](https://www.sport.es/es/noticias/real-madrid/rodrygo-borra-mensaje-whatsapp-ausencia-107167566)
+- **El polémico mensaje de Rodrygo que fue borrado en su canal de Whatsapp: 
+“Hablaron del trío Bellingham, Mbappé y Vini...”**: [Link](https://www.diez.hn/internacionales/rodrygo-whatsapp-canal-mensaje-real-madrid-bellingham-mbappe-vinicius-liga-espanola-GM20975377)
+
+
 ### virus variole du singe (N/A, Tue, 20 Aug 2024 07:10:00 -0700)
 
 - **Mpox : quels sont les pays africains touchés par la variole du singe ?**: [Link](https://information.tv5monde.com/science/mpox-quels-sont-les-pays-africains-touches-par-la-variole-du-singe-2736361)
