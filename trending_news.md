@@ -1,3 +1,11 @@
+### black myth wukong (N/A, Mon, 19 Aug 2024 22:40:00 -0700)
+
+- **Tencent-Backed ‘Wukong’ Makes Gaming History in First-Day Frenzy**: [Link](https://www.bloomberg.com/news/articles/2024-08-20/black-myth-wukong-makes-gaming-history-in-launch-day-frenzy)
+- **Tencent-backed video game 'Black Myth: Wukong' hits record player numbers 
+on debut**: [Link](https://www.reuters.com/business/media-telecom/tencent-backed-video-game-black-myth-wukong-hits-record-player-numbers-debut-2024-08-20/)
+- **Black Myth: Wukong hits PS5s and PCs in Chinese industry 'milestone'**: [Link](https://asia.nikkei.com/Business/Media-Entertainment/Black-Myth-Wukong-hits-PS5s-and-PCs-in-Chinese-industry-milestone)
+
+
 ### bayern – grasshopper (N/A, Tue, 20 Aug 2024 02:00:00 -0700)
 
 - **Bayern Munich vs Grasshopper Club Zürich: Gamethread and Live Blog**: [Link](https://www.bavarianfootballworks.com/2024/8/20/24224239/bayern-munich-vs-grasshoppers-club-zurich-live-stream-how-to-watch-club-friendly-updates-highlights)
