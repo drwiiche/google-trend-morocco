@@ -1,3 +1,11 @@
+### أحمد فتوح (N/A, Tue, 20 Aug 2024 08:50:00 -0700)
+
+- **قضية نجم الزمالك.. ما حقيقة "قبول" عائلة الشرطي الضحية مبلغ 300 ألف دولار 
+للتنازل؟**: [Link](https://www.alhurra.com/egypt/2024/08/20/%D9%82%D8%B6%D9%8A%D8%A9-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%85%D8%A7-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%82%D8%A8%D9%88%D9%84-%D8%B9%D8%A7%D8%A6%D9%84%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D9%8A-%D8%A7%D9%84%D8%B6%D8%AD%D9%8A%D8%A9-%D9%85%D8%A8%D9%84%D8%BA-300-%D8%A3%D9%84%D9%81-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%84%D9%84%D8%AA%D9%86%D8%A7%D8%B2%D9%84%D8%9F)
+- **في أولى جلسات محاكمته.. القاضي يواجه أحمد فتوح بسؤال صعب**: [Link](https://kech24.com/%D9%81%D9%8A-%D8%A3%D9%88%D9%84%D9%89-%D8%AC%D9%84%D8%B3%D8%A7%D8%AA-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%AA%D9%87-%D8%A7%D9%84%D9%82%D8%A7%D8%B6%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A3%D8%AD%D9%85%D8%AF-%D9%81%D8%AA%D9%88%D8%AD-%D8%A8%D8%B3%D8%A4%D8%A7%D9%84-%D8%B5%D8%B9%D8%A8.html)
+- **بشروط.. أسرة ضحية اللاعب أحمد فتوح توافق على التصالح**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/08/18/%D8%A3%D8%B3%D8%B1%D8%A9-%D8%B6%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A3%D8%AD%D9%85%D8%AF-%D9%81%D8%AA%D9%88%D8%AD-%D8%AA%D9%88%D8%A7%D9%81%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%B5%D8%A7%D9%84%D8%AD-%D8%A8%D8%B4%D8%B1%D9%88%D8%B7)
+
+
 ### carlo ancelotti (N/A, Tue, 20 Aug 2024 08:00:00 -0700)
 
 - **Jude Bellingham's tunnel frustration highlights teething problems for Real Madrid's high-powered attack - but Kylian Mbappe & Co. have no need to panic yet**: [Link](https://www.goal.com/en-us/lists/jude-bellingham-half-time-tactical-chat-teething-problems-real-madrid-attack-kylian-mbappe-panic/blt8b575f0dbafe65d2)
