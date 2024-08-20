@@ -1,3 +1,14 @@
+### koh lanta (N/A, Mon, 19 Aug 2024 22:10:00 -0700)
+
+- **« Koh-Lanta » : la production promet de porter plainte en cas de 
+cyberharcèlement contre des candidats**: [Link](https://www.leparisien.fr/culture-loisirs/tv/koh-lanta-la-production-promet-de-porter-plainte-en-cas-de-cyberharcelement-contre-des-candidats-19-08-2024-MIO6FGDRV5A2PDINSEEWNC7RP4.php)
+- **« Je ne suis pas une pro de la survie » : Cassandre, candidate lyonnaise à 
+l’épreuve de Koh-Lanta**: [Link](https://www.leprogres.fr/societe/2024/08/18/je-ne-suis-pas-une-pro-de-la-survie-cassandre-candidate-lyonnaise-a-l-epreuve-de-koh-lanta)
+- **“On n’a plus à manger, il fait hyper-chaud, les conditions sont 
+radicalement opposées à ce qu’on connaît dans notre vie de tous les jours”: 
+Emmanuelle Boisseau, une Charentaise à la conquête de Koh-Lanta sur TF1**: [Link](https://www.charentelibre.fr/societe/medias/emmanuelle-boisseau-une-charentaise-a-la-conquete-de-koh-lanta-21046250.php)
+
+
 ### nintendo switch 2 (N/A, Mon, 19 Aug 2024 20:00:00 -0700)
 
 - **The Nintendo Switch 2 price could be eye-wateringly high**: [Link](https://www.independent.co.uk/extras/indybest/gadgets-tech/video-games-consoles/nintendo-switch-2-release-date-price-rumours-b2598333.html)
