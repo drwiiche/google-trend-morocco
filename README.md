@@ -1,3 +1,10 @@
+### lille fc (N/A, Tue, 20 Aug 2024 13:10:00 -0700)
+
+- **LOSC Lille vs Slavia Praha facts**: [Link](https://www.uefa.com/uefachampionsleague/news/0290-1b9db5994a19-b977023bbe02-1000--losc-lille-vs-slavia-praha-facts/)
+- **Preview: Lille vs. Slavia Prague - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/champions-league/preview/preview-lille-vs-slavia-prague-prediction-team-news-lineups_550675.html)
+- **Lille 0-0 Slavia P.: results, summary and goals**: [Link](https://en.as.com/resultados/futbol/champions/2024_2025/directo/playoffs_a_1_497678/)
+
+
 ### champions league (N/A, Tue, 20 Aug 2024 12:00:00 -0700)
 
 - **PSG at risk of potential Champions League EXPULSION as Kylian Mbappe makes 
