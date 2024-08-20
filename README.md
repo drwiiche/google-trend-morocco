@@ -1,3 +1,10 @@
+### soufiane rahimi (N/A, Tue, 20 Aug 2024 01:40:00 -0700)
+
+- **Soufiane Rahimi : une offre qui ne se refuse pas**: [Link](https://www.bladi.net/soufiane-rahimi-offre-qui-refuse,110021.html)
+- **Après le PSG, Soufiane Rahimi dans le viseur d’Al-Nassr saoudien**: [Link](https://www.h24info.ma/apres-le-psg-soufiane-rahimi-dans-le-viseur-dal-nassr-saoudien/)
+- **Une nouvelle équipe fait pression pour recruter Sofiane Rahimi**: [Link](https://fr.hibapress.com/news-126620.html)
+
+
 ### koh lanta (N/A, Mon, 19 Aug 2024 22:10:00 -0700)
 
 - **« Koh-Lanta » : la production promet de porter plainte en cas de 
