@@ -1,3 +1,12 @@
+### naufrage sicile (N/A, Tue, 20 Aug 2024 11:10:00 -0700)
+
+- **Naufrage en Sicile : une troublante coïncidence**: [Link](https://www.lepoint.fr/monde/naufrage-en-sicile-une-troublante-coincidence-20-08-2024-2568354_24.php)
+- **Trombe marine, hommes d'affaires disparus… Ce que l'on sait du naufrage 
+d'un voilier de luxe au large de la Sicile**: [Link](https://www.francetvinfo.fr/monde/italie/italie-ce-que-l-on-sait-du-naufrage-d-un-voilier-de-luxe-en-sicile_6734100.html)
+- **Un haut responsable de la banque Morgan Stanley et Mike Lynch, le «Bill 
+Gates britannique», parmi les disparus du naufrage en Sicile**: [Link](https://www.lefigaro.fr/conjoncture/un-haut-responsable-de-la-banque-morgan-stanley-et-mike-lynch-le-bill-gates-britannique-parmi-les-disparus-du-naufrage-en-sicile-20240820)
+
+
 ### osimhen (N/A, Tue, 20 Aug 2024 10:30:00 -0700)
 
 - **‘We need a striker’ – Chelsea fans on Man City loss**: [Link](https://www.bbc.com/sport/football/videos/czxl0jvqldjo)
