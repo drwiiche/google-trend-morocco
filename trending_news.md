@@ -1,3 +1,10 @@
+### carlo ancelotti (N/A, Tue, 20 Aug 2024 08:00:00 -0700)
+
+- **Jude Bellingham's tunnel frustration highlights teething problems for Real Madrid's high-powered attack - but Kylian Mbappe & Co. have no need to panic yet**: [Link](https://www.goal.com/en-us/lists/jude-bellingham-half-time-tactical-chat-teething-problems-real-madrid-attack-kylian-mbappe-panic/blt8b575f0dbafe65d2)
+- **Ancelotti slams Madrid: No 'commitment, attitude'**: [Link](https://www.espn.com/soccer/story/_/id/40909300/real-madrid-lacked-commitment-attitude-mallorca-draw)
+- **Jude Bellingham scolds new teammate Kylian Mbappe: ‘Finish the attack’**: [Link](https://www.independent.co.uk/tv/sport/bellingham-mbappe-real-madrid-argument-b2598654.html)
+
+
 ### rodrygo (N/A, Tue, 20 Aug 2024 07:20:00 -0700)
 
 - **El mensaje borrado en el canal de Whatsapp de Rodrygo sobre la falta de la 
