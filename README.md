@@ -1,3 +1,11 @@
+### stake (N/A, Mon, 19 Aug 2024 20:10:00 -0700)
+
+- **Bottas addresses 'challenging' year for Kick Sauber as he hopes 'clear 
+direction' can pay off after summer break**: [Link](https://www.formula1.com/en/latest/article/baby-steps-rather-than-big-jumps-bottas-speaks-on-challenging-year-for-sauber.5fNusDH31Jdais3U8BSccF)
+- **Stake concede Audi 'tension' after point-less F1 season**: [Link](https://racingnews365.com/stake-concede-audi-tension-after-point-less-f1-season)
+- **Bottas makes Stake stability admission**: [Link](https://racingnews365.com/bottas-makes-stake-stability-admission)
+
+
 ### berrechid (N/A, Mon, 19 Aug 2024 18:10:00 -0700)
 
 - **Maroc : une demande en mariage qui finit en drame**: [Link](https://www.bladi.net/maroc-demande-mariage-qui-finit-drame,110003.html)
