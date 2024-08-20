@@ -1,3 +1,28 @@
+### bayern – grasshopper (N/A, Tue, 20 Aug 2024 02:00:00 -0700)
+
+- **Bayern Munich vs Grasshopper Club Zürich: Gamethread and Live Blog**: [Link](https://www.bavarianfootballworks.com/2024/8/20/24224239/bayern-munich-vs-grasshoppers-club-zurich-live-stream-how-to-watch-club-friendly-updates-highlights)
+- **Bayern engages in a league-stage matchup against Grasshopper Zurich.**: [Link](https://aussiedlerbote.de/en/bayern-engages-in-a-league-stage-matchup-against-grasshopper-zurich/)
+
+
+### تاجيل الدخول المدرسي (N/A, Tue, 20 Aug 2024 01:00:00 -0700)
+
+- **ما حقيقة تأجيل الدخول المدرسي 2024-2025 بالمغرب؟**: [Link](https://almashhad.com/article/459217420284850-entertainment/264002627192157-%D9%85%D8%A7-%D9%87%D9%8A-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-20242025-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+- **موعد بداية العام الدراسي الجديد في الجزائر 2024 وجدول العطلات الرسمية خلال 
+العام الميلادي الجديد**: [Link](https://www.sports-leb.com/16319/%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC/)
+- **تأجيل الدراسة حقيقة أم إشاعة.. حقيقة تأجيل الدراسة في المغرب وأهم العطلات 
+الرسمية في العام بالمغرب**: [Link](https://news.elbadil.com/607852/%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A3%D9%85-%D8%A5%D8%B4%D8%A7%D8%B9%D8%A9-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D8%A3%D8%AC/)
+
+
+### joao felix chelsea (N/A, Mon, 19 Aug 2024 23:40:00 -0700)
+
+- **Joao Felix: Chelsea agree fee for Atletico Madrid forward to allow Conor 
+Gallagher to go other way**: [Link](https://www.bbc.com/sport/football/articles/c0jp78g449qo)
+- **Joao Felix is the most laughable of all Chelsea signings as Sterling fears 
+shared by at least four others**: [Link](https://www.football365.com/news/joao-felix-is-the-most-laughable-of-all-chelsea-signings)
+- **Transfer news live: Chelsea agree Joao Felix deal; Premier League latest 
+and more - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/transfer-news-latest-live-updates/aVykqJplm4AQ/)
+
+
 ### soufiane rahimi (N/A, Tue, 20 Aug 2024 01:40:00 -0700)
 
 - **Soufiane Rahimi : une offre qui ne se refuse pas**: [Link](https://www.bladi.net/soufiane-rahimi-offre-qui-refuse,110021.html)
