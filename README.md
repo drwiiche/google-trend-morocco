@@ -1,3 +1,11 @@
+### البايرن ضد غراسهوبرز (N/A, Tue, 20 Aug 2024 02:50:00 -0700)
+
+- **تشكيلة بايرن ميونخ الرسمية للقاء غراسهوبرز**: [Link](https://hihi2.com/2024/08/20/p2802963.html)
+- **القنوات الناقلة لمباراة بايرن ميونخ اليوم ضد غراسهوبر مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/151718344342046-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B6%D8%AF-%D8%BA%D8%B1%D8%A7%D8%B3%D9%87%D9%88%D8%A8%D8%B1-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **شاهد مباراة بايرن ميونيخ وغراسهوبر زيوريخ الودية 2024 بث مباشر اليوم 
+الثلاثاء 20/8/2024**: [Link](https://ar.pressbee.net/show8523436.html?title=%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-%D9%88%D8%BA%D8%B1%D8%A7%D8%B3%D9%87%D9%88%D8%A8%D8%B1-%D8%B2%D9%8A%D9%88%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2024-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84)
+
+
 ### bayern vs grasshoppers (N/A, Tue, 20 Aug 2024 03:00:00 -0700)
 
 - **Liveticker: FC Bayern vs. Zürich - Freundschaftsspiel 24/25**: [Link](https://fcbayern.com/de/spiele/profis/friendly/2024-2025/testspiel-fc-bayern-grasshopper-club-zuerich-20-08-2024/liveticker)
