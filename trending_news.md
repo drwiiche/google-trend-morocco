@@ -1,3 +1,13 @@
+### paul pogba (N/A, Tue, 20 Aug 2024 09:10:00 -0700)
+
+- **Andre Onana set to move out of Alexis Sanchez's house with Man Utd 
+goalkeeper considering Paul Pogba's old mansion | Goal.com English Oman**: [Link](https://www.goal.com/en-om/lists/andre-onana-alexis-sanchez-man-utd-goalkeeper-paul-pogba/blt3442d0fc5615c32d)
+- **Chelsea wonderkid Carney Chukwuemeka’s transfer exit hits stumbling block 
+as Barcelona eye shock move...**: [Link](https://www.thesun.co.uk/sport/29940832/chelsea-carney-chukwuemeka-transfer-barcelona/)
+- **Crystal Palace now favourites to sign £20m player who is like "Pogba mixed 
+with Iniesta"**: [Link](https://www.wearepalace.uk/transfers/crystal-palace-now-favourites-to-sign-20m-player-who-is-like-pogba-mixed-with-iniesta/)
+
+
 ### madère (N/A, Tue, 20 Aug 2024 13:00:00 -0700)
 
 - **"On n'en peut plus": coincés à Madère à cause des incendies, ces touristes 
