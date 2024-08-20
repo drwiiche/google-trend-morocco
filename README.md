@@ -1,3 +1,24 @@
+### bayern vs grasshoppers (N/A, Tue, 20 Aug 2024 03:00:00 -0700)
+
+- **Liveticker: FC Bayern vs. Zürich - Freundschaftsspiel 24/25**: [Link](https://fcbayern.com/de/spiele/profis/friendly/2024-2025/testspiel-fc-bayern-grasshopper-club-zuerich-20-08-2024/liveticker)
+- **FC Bayern: Nächste Goretzka-Überraschung bei Bayern!**: [Link](https://www.bild.de/sport/fussball/fc-bayern-naechste-goretzka-ueberraschung-bei-bayern-66c454578e840b14905e3e8d)
+- **Fussball-Leckerbissen! GC testet nächste Woche gegen Bayern München!**: [Link](https://www.nau.ch/sport/fussball/fussball-leckerbissen-gc-testet-nachste-woche-gegen-bayern-munchen-66811544)
+
+
+### grace royale maroc (N/A, Tue, 20 Aug 2024 02:50:00 -0700)
+
+- **Au Maroc, Mohammed VI gracie plus de 4 800 cultivateurs de cannabis**: [Link](https://www.lemonde.fr/afrique/article/2024/08/20/au-maroc-mohammed-vi-gracie-plus-de-4-800-cultivateurs-de-cannabis_6287468_3212.html)
+- **Grâce Royale au profit de 5.516 individus dont des personnes condamnées, poursuivies ou recherchées dans des affaires liées à la culture du cannabis**: [Link](https://lematin.ma/activites-royales/grace-royale-a-loccasion-de-la-revolution-du-roi-et-du-peuple/239786)
+- **Cannabis : Plus de 3,7 millions de semences certifiées**: [Link](https://www.leconomiste.com/flash-infos/cannabis-plus-de-3-7-millions-de-semences-certifiees)
+
+
+### destitution macron (N/A, Tue, 20 Aug 2024 02:00:00 -0700)
+
+- **INVITÉ RTL - Manuel Bompard : "Si le président décide de s'asseoir sur le résultat des élections, ça ne restera pas impuni"**: [Link](https://www.rtl.fr/actu/politique/invite-rtl-manuel-bompard-si-le-president-decide-de-s-asseoir-sur-le-resultat-des-elections-ca-ne-restera-pas-impuni-7900409253)
+- **« Démettre le président plutôt que nous soumettre » (par Jean-Luc Mélenchon, Mathilde Panot et Manuel Bompard)**: [Link](https://www.latribune.fr/opinions/demettre-le-president-plutot-que-nous-soumettre-par-jean-luc-melenchon-mathilde-panot-et-manuel-bompard-1004412.html)
+- **Lucie Castets affirme que le sujet « n’est pas la destitution mais la cohabitation » avec Emmanuel Macron, sur fond de divisions à gauche**: [Link](https://www.lemonde.fr/politique/article/2024/08/19/la-destitution-d-emmanuel-macron-est-une-possibilite-credible-maintient-la-france-insoumise-contre-l-avis-du-reste-de-la-gauche_6286136_823448.html)
+
+
 ### black myth wukong (N/A, Mon, 19 Aug 2024 22:40:00 -0700)
 
 - **Tencent-Backed ‘Wukong’ Makes Gaming History in First-Day Frenzy**: [Link](https://www.bloomberg.com/news/articles/2024-08-20/black-myth-wukong-makes-gaming-history-in-launch-day-frenzy)
