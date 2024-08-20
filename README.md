@@ -1,3 +1,12 @@
+### dragon bleu des mers (N/A, Tue, 20 Aug 2024 16:40:00 -0700)
+
+- **Canaries : un dangereux dragon bleu entraîne la fermeture d’une plage**: [Link](https://www.lefigaro.fr/voyages/canaries-un-dangereux-dragon-bleu-entraine-la-fermeture-d-une-plage-20240820)
+- **Il attaque s’il se sent menacé et sa piqûre est venimeuse : plusieurs 
+plages espagnoles fermées à cause du "dragon bleu des mers"**: [Link](https://www.lindependant.fr/2024/08/17/il-attaque-sil-se-sent-menace-et-sa-piqure-est-venimeuse-plusieurs-plages-espagnoles-fermees-a-cause-du-dragon-bleu-des-mers-12144917.php)
+- **Qu'est-ce que le dragon bleu des mers, ce mollusque qui inquiète les 
+baigneurs en Espagne ?**: [Link](https://www.sciencesetavenir.fr/animaux/animaux-marins/qu-est-ce-que-le-dragon-bleu-des-mers-ce-mollusque-qui-inquiete-les-baigneurs-en-espagne_180136)
+
+
 ### paul pogba (N/A, Tue, 20 Aug 2024 09:10:00 -0700)
 
 - **Andre Onana set to move out of Alexis Sanchez's house with Man Utd 
