@@ -1,3 +1,10 @@
+### osimhen (N/A, Tue, 20 Aug 2024 10:30:00 -0700)
+
+- **‘We need a striker’ – Chelsea fans on Man City loss**: [Link](https://www.bbc.com/sport/football/videos/czxl0jvqldjo)
+- **Chelsea decide 'only' way to sign Osimhen as £45m PL alternative is tipped to 'prefer' Boehly offer**: [Link](https://www.football365.com/news/chelsea-only-way-sign-osimhen-45m-pl-alternative-prefer-boehly-offer)
+- **'His desire is clear' - Napoli deliver Victor Osimhen transfer update as Chelsea & PSG battle for his signature**: [Link](https://www.goal.com/en-us/lists/napoli-deliver-victor-osimhen-transfer-update-chelsea-and-psg-battle-for-his-signature/blte7d2c609da8f4d29)
+
+
 ### أحمد فتوح (N/A, Tue, 20 Aug 2024 08:50:00 -0700)
 
 - **قضية نجم الزمالك.. ما حقيقة "قبول" عائلة الشرطي الضحية مبلغ 300 ألف دولار 
