@@ -1,3 +1,10 @@
+### nintendo switch 2 (N/A, Mon, 19 Aug 2024 20:00:00 -0700)
+
+- **The Nintendo Switch 2 price could be eye-wateringly high**: [Link](https://www.independent.co.uk/extras/indybest/gadgets-tech/video-games-consoles/nintendo-switch-2-release-date-price-rumours-b2598333.html)
+- **Nintendo Switch 2: Hopes for a new console release in early 2025 take a hit**: [Link](https://www.standard.co.uk/news/tech/nintendo-switch-2-hopes-for-a-new-console-release-in-early-2025-take-a-hit-b1111671.html)
+- **PS5 Pro, Switch 2 chips have been shipped out by Chinese supplier**: [Link](https://www.tweaktown.com/news/99975/ps5-pro-switch-2-chips-have-been-shipped-out-by-chinese-supplier/index.html)
+
+
 ### stake (N/A, Mon, 19 Aug 2024 20:10:00 -0700)
 
 - **Bottas addresses 'challenging' year for Kick Sauber as he hopes 'clear 
