@@ -1,3 +1,11 @@
+### virus variole du singe (N/A, Tue, 20 Aug 2024 07:10:00 -0700)
+
+- **Mpox : quels sont les pays africains touchés par la variole du singe ?**: [Link](https://information.tv5monde.com/science/mpox-quels-sont-les-pays-africains-touches-par-la-variole-du-singe-2736361)
+- **Mpox: l’OMS recommande la vaccination mais écarte «les restrictions 
+générales»**: [Link](https://www.challenge.ma/mpox-loms-recommande-la-vaccination-mais-ecarte-les-restrictions-generales-285573/)
+- **Mpox : risques, symptômes, prévention, mesures au Maroc… ce que l’on sait !**: [Link](https://lematin.ma/societe/mpox-risques-symptomes-prevention-mesures-au-maroc/239360)
+
+
 ### agadir24 (N/A, Tue, 20 Aug 2024 00:40:00 -0700)
 
 
