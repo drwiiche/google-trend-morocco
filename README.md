@@ -1,3 +1,22 @@
+### mike lynch (N/A, Mon, 19 Aug 2024 17:20:00 -0700)
+
+- **Search continues for British tech magnate and 5 others after luxury 
+superyacht sinks off Sicily**: [Link](https://apnews.com/article/italy-sicily-storm-tourists-missing-060bf26f426708c8eb59e81d88787d11)
+- **Bayesian yacht: Morgan Stanley International chairman Jonathan Bloomer 
+missing, reports say**: [Link](https://www.telegraph.co.uk/news/2024/08/19/four-britons-missing-yacht-sicily-live-latest/)
+- **UK tycoon Mike Lynch, 18-year-old daughter, and chef among missing after 
+yacht sinks**: [Link](https://www.bbc.com/news/live/ce38n4egqwzt)
+
+
+### kick live (N/A, Mon, 19 Aug 2024 17:00:00 -0700)
+
+- **What time is Biden speaking at the DNC tonight? Full schedule and what to 
+know**: [Link](https://www.nbcchicago.com/dnc-chicago-2024/what-time-is-biden-speaking-at-the-dnc-tonight-full-schedule-and-what-to-know/3525991/)
+- **Tim Walz is everywhere at the DNC**: [Link](https://www.politico.com/live-updates/2024/08/19/dnc-live-updates-coverage/tim-walz-dnc-00174763)
+- **Monday DNC speaker schedule: Biden delivering keynote as Dems look toward 
+future with Kamala Harris**: [Link](https://abc7chicago.com/post/chicago-dnc-speaker-schedule-2024-democratic-national-convention-program-released-dems-look-future-kamala-harris/15205124/)
+
+
 ### villarreal - atlético madrid (N/A, Mon, 19 Aug 2024 13:00:00 -0700)
 
 - **Villarreal 2-2 Atlético (Aug 19, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704669)
