@@ -1,3 +1,13 @@
+### madère (N/A, Tue, 20 Aug 2024 13:00:00 -0700)
+
+- **"On n'en peut plus": coincés à Madère à cause des incendies, ces touristes 
+français sont à bout**: [Link](https://www.bfmtv.com/economie/entreprises/transports/on-n-en-peut-plus-de-nombreux-touristes-bloques-a-l-aeroport-de-madere-a-cause-des-incendies-et-de-ryanair_AV-202408200336.html)
+- **«On ne sait plus quoi faire» : à Madère, le cauchemar de touristes français 
+bloqués à l’aéroport depuis des jours**: [Link](https://www.lefigaro.fr/international/on-ne-sait-plus-quoi-faire-a-madere-le-cauchemar-de-touristes-francais-bloques-a-l-aeroport-depuis-des-jours-20240820)
+- **Aéroport de Madère : piste sur pilotis, isolé au milieu de l’océan, vents 
+violents… pourquoi est-il considéré comme l’un des plus dangereux au monde**: [Link](https://www.ladepeche.fr/2024/08/20/piste-sur-pilotis-isole-au-milieu-de-locean-vents-violents-pourquoi-laeroport-de-madere-est-il-considere-comme-lun-des-plus-dangereux-au-monde-12150343.php)
+
+
 ### lille fc (N/A, Tue, 20 Aug 2024 13:10:00 -0700)
 
 - **LOSC Lille vs Slavia Praha facts**: [Link](https://www.uefa.com/uefachampionsleague/news/0290-1b9db5994a19-b977023bbe02-1000--losc-lille-vs-slavia-praha-facts/)
