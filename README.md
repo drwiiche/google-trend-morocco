@@ -1,3 +1,18 @@
+### حالة الطقس (N/A, Wed, 21 Aug 2024 00:10:00 -0700)
+
+- **ارتفاع جديد بالحرارة.. الأرصاد تحذر من حالة الطقس غدا الثلاثاء والرطوبة 
+لمدة 6 أيام مقبلة**: [Link](https://www.almasryalyoum.com/news/details/3241284)
+- **الأرصاد الجوية تكشف تفاصيل طقس اليوم الأربعاء**: [Link](https://arqam.news/370773/)
+- **حالة الطقس اليوم: حار رطب نهارا على أغلب الأنحاء**: [Link](https://www.algomhor.com/article/126225/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AD%D8%A7%D8%B1-%D8%B1%D8%B7%D8%A8-%D9%86%D9%87%D8%A7%D8%B1%D8%A7-%D8%B9%D9%84%D9%89)
+
+
+### الطقس (N/A, Tue, 20 Aug 2024 23:50:00 -0700)
+
+- **درجات الحرارة غدا الأربعاء في المغرب**: [Link](https://www.hespress.com/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1418846.html)
+- **توقعات أحوال الطقس ليومه الثلاثاء**: [Link](https://aljarida24.ma/p/actualites/285458/)
+- **طقس الأربعاء: توقع جو حار مع ضباب وأمطار رعدية بهذه المناطق**: [Link](https://ar.le360.ma/societe/LTHKMPGDVZE2FOAMPBLPRVHU5I/)
+
+
 ### naufrage voilier sicile (N/A, Tue, 20 Aug 2024 23:40:00 -0700)
 
 - **«Rien ne pouvait être fait pour ce bateau» : de la soirée festive au 
