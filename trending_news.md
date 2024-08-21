@@ -1,3 +1,10 @@
+### خليل المقدح (N/A, Wed, 21 Aug 2024 04:30:00 -0700)
+
+- **غارة إسرائيلية تقتل مسؤولا في "فتح"**: [Link](https://www.hespress.com/%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D9%84-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D8%A7-%D9%81%D9%8A-%D8%AD%D8%B1%D9%83%D8%A9-%D9%81%D8%AA%D8%AD-1419229.html)
+- **فتح: إسرائيل قتلت عضواً في الحركة لإشعال حرب إقليمية**: [Link](https://www.alarabiya.net/arab-and-world/2024/08/21/%D9%81%D8%AA%D8%AD-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%82%D8%AA%D9%84%D8%AA-%D8%B9%D8%B6%D9%88%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D9%83%D8%A9-%D9%84%D8%A7%D8%B4%D8%B9%D8%A7%D9%84-%D8%AD%D8%B1%D8%A8-%D8%A7%D9%82%D9%84%D9%8A%D9%85%D9%8A%D8%A9)
+- **اغتيال قيادي بكتائب شهداء الأقصى في غارة على صيدا**: [Link](https://www.aljazeera.net/news/2024/8/21/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%B9%D9%86-%D9%85%D8%B5%D8%AF%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D9%84%D8%A8%D9%86%D8%A7%D9%86%D9%8A)
+
+
 ### azzedine ounahi (N/A, Wed, 21 Aug 2024 06:10:00 -0700)
 
 - **Mercato, Azzedine Ounahi défie l’OM**: [Link](https://www.goal.com/fr/news/mercato-azzedine-ounahi-defie-l-om/blt4c59b66b9ab2c34d)
