@@ -1,3 +1,18 @@
+### azzedine ounahi (N/A, Wed, 21 Aug 2024 06:10:00 -0700)
+
+- **Mercato, Azzedine Ounahi défie l’OM**: [Link](https://www.goal.com/fr/news/mercato-azzedine-ounahi-defie-l-om/blt4c59b66b9ab2c34d)
+- **Mercato : L'OM refuse deux offres pour Azzedine Ounahi**: [Link](https://fr.hespress.com/382883-mercato-lom-refuse-deux-offres-pour-azzedine-ounahi.html)
+- **L’Olympique de Marseille choque Ezzedine Ouanahi, et le joueur attend**: [Link](https://fr.hibapress.com/news-126945.html)
+
+
+### gamescom 2024 (N/A, Wed, 21 Aug 2024 05:50:00 -0700)
+
+- **Gamescom - Weltweit größte Messe der Videospiel- und Computerspielbranche 
+in Köln eröffnet**: [Link](https://www.deutschlandfunk.de/weltweit-groesste-messe-der-videospiel-und-computerspielbranche-in-koeln-eroeffnet-104.html)
+- **Zumeldung Computerspiele: Land will Förderung nicht aufstocken**: [Link](https://www.presseportal.de/pm/127902/5848163)
+- **Showcase 2024 : Xbox Tag 1 Livestream startet um 15:00 Uhr**: [Link](https://www.xboxdynasty.de/news/showcase-2024/xbox-tag-1-livestream-startet-um-1500-uhr/)
+
+
 ### barack obama (N/A, Wed, 21 Aug 2024 04:40:00 -0700)
 
 - **Takeaways from the second night of the Democratic National Convention**: [Link](https://www.cnn.com/2024/08/21/politics/takeaways-dnc-day-2/index.html)
