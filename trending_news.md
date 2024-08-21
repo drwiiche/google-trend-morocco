@@ -1,3 +1,29 @@
+### programme tv (N/A, Wed, 21 Aug 2024 12:20:00 -0700)
+
+- **Programme TV sportif du 21 août 2024 : sur quelles chaînes regarder du 
+sport ? (Tous Sports)**: [Link](https://www.lequipe.fr/Tous-sports/Actualites/Programme-tv-sportif-du-21-aout-2024-sur-quelles-chaines-regarder-du-sport/1502538)
+- **Programme TV sportif du 20 août 2024 : sur quelles chaînes regarder du 
+sport ? (Tous Sports)**: [Link](https://www.lequipe.fr/Tous-sports/Actualites/Programme-tv-sportif-du-20-aout-2024-sur-quelles-chaines-regarder-du-sport/1502378)
+- **"Que faire ?" : Démunie, Cathy (L'amour est dans le pré 15) annonce une 
+très mauvaise nouvelle**: [Link](https://www.programme-tv.net/news/tv/359067-que-faire-demunie-cathy-l-amour-est-dans-le-pre-15-annonce-une-tres-mauvaise-nouvelle/)
+
+
+### ligue des champions (N/A, Wed, 21 Aug 2024 12:10:00 -0700)
+
+- **LOSC-Slavia Prague: après la victoire, Jonathan David en dit plus sur son 
+avenir chez les Dogues**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-losc-slavia-prague-suivez-en-live-le-barrage-aller-de-ligue-des-champions-pour-les-dogues_LS-202408200258.html)
+- **Lille 2-0 Slavia Prague, Ligue des champions : résumé du match (20/08/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/lille-slavia-prague-live/663435)
+- **Ligue des Champions : Olivier Létang « agacé » par le résultat de LOSC – 
+Slavia Prague**: [Link](https://lepetitlillois.com/2024/08/21/ligue-des-champions-olivier-letang-agace-par-le-resultat-de-losc-slavia-prague/)
+
+
+### maroc billet de 20 dirhams (N/A, Wed, 21 Aug 2024 10:00:00 -0700)
+
+- **Mise en circulation du nouveau billet de 20 DH, ce mercredi 21 août**: [Link](https://medias24.com/2024/08/21/mise-en-circulation-du-nouveau-billet-de-20-dh-ce-mercredi-21-aou%CC%82t/)
+- **Bank Al-Maghrib émet un nouveau billet de 20DH pour la fête de la jeunesse**: [Link](https://fr.hespress.com/382928-bank-al-maghrib-emet-un-nouveau-billet-de-20dh-pour-la-fete-de-la-jeunesse.html)
+- **BAM lance un nouveau billet de 20 dirhams**: [Link](https://www.leconomiste.com/flash-infos/bam-lance-un-nouveau-billet-de-20-dirhams)
+
+
 ### champions league (N/A, Wed, 21 Aug 2024 12:10:00 -0700)
 
 - **Raheem Sterling is 'seeking clarity' over his Chelsea future after being 
