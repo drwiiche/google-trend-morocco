@@ -1,3 +1,10 @@
+### المغرب (N/A, Tue, 20 Aug 2024 22:40:00 -0700)
+
+- **الملك ينهي معاناة مزارعي القنب الهندي.. وهسبريس في قلب أرض "الكيف"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D9%86%D9%87%D9%8A-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D9%85%D8%B2%D8%A7%D8%B1%D8%B9%D9%8A-%D8%A7%D9%84%D9%82%D9%86%D8%A8-%D8%A7%D9%84%D9%87%D9%86%D8%AF%D9%8A-1419045.html)
+- **عفو ملكي عن 708 سجناء بمناسبة عيد الشباب – اليوم 24**: [Link](https://alyaoum24.com/1911560.html)
+- **بوليفيا.. بوعياش تدعو إلى جعل حقوق الإنسان في قلب مكافحة التغيرات المناخية**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%AD%D9%82%D9%88%D9%82-%D8%A7%D9%84%D8%A5%D9%86%D8%B3%D8%A7%D9%86-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D8%B9/)
+
+
 ### sidy diop (N/A, Tue, 20 Aug 2024 20:00:00 -0700)
 
 - **Affaire Sidy Diop : de nouvelles révélations**: [Link](https://www.seneweb.com/news/Justice/affaire-sidy-diop-de-nouvelles-revelatio_n_448375.html)
