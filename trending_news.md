@@ -1,3 +1,12 @@
+### karim bouamrane (N/A, Wed, 21 Aug 2024 03:20:00 -0700)
+
+- **Karim Bouamrane, la « hype » soudaine d’un maire PS que certains voient à 
+Matignon**: [Link](https://www.lemonde.fr/politique/article/2024/08/21/choix-du-premier-ministre-la-hype-soudaine-de-karim-bouamrane_6288956_823448.html)
+- **Karim Bouamrane envisagé comme Premier ministre ? Pourquoi son profil 
+pourrait séduire Emmanuel Macron**: [Link](https://www.linternaute.com/actualite/politique/5995397-karim-bouamrane-cite-pour-le-poste-de-premier-ministre-un-profil-qui-pourrait-seduire-emmanuel-macron/)
+- **Karim Bouamrane : un maire d’origine marocaine pour gouverner la France ?**: [Link](https://www.bladi.net/karim-bouamrane-maire-origine-marocaine-gouverner-france,110024.html)
+
+
 ### paul watson (N/A, Wed, 21 Aug 2024 03:50:00 -0700)
 
 - **Greenland court rejects whaling activist Paul Watson's appeal against 
