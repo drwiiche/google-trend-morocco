@@ -1,3 +1,10 @@
+### غلطة سراي (N/A, Wed, 21 Aug 2024 13:40:00 -0700)
+
+- **غلطة سراي ضيفاً ثقيلاً على يونغ بويز**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D8%B6%D9%8A%D9%81%D8%A7-%D8%AB%D9%82%D9%8A%D9%84%D8%A7-%D8%B9%D9%84%D9%89-%D9%8A%D9%88%D9%86%D8%BA-%D8%A8%D9%88%D9%8A%D8%B2-2024-08-21)
+- **غلطة سراي أمل تركيا الوحيد في دوري أبطال أوروبا و180 دقيقة تفصله**: [Link](https://www.alaraby.co.uk/sport/%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D8%A3%D9%85%D9%84-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%AD%D9%8A%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%88180-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%81%D8%B5%D9%84%D9%87)
+- **قائمة لاعبي غلطة سراي موسم 2024-2025**: [Link](https://almashhad.com/article/218257510540304-sports/624914008559667-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%85%D9%88%D8%B3%D9%85-20242025/)
+
+
 ### fete de la jeunesse maroc (N/A, Wed, 21 Aug 2024 13:10:00 -0700)
 
 - **Fête de la Jeunesse : célébration de l’espoir et de l’avenir de la Nation**: [Link](https://fr.hespress.com/382895-fete-de-la-jeunesse-celebration-de-lespoir-et-de-lavenir-de-la-nation.html)
