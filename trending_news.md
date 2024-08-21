@@ -1,3 +1,17 @@
+### sidy diop (N/A, Tue, 20 Aug 2024 20:00:00 -0700)
+
+- **Affaire Sidy Diop : de nouvelles révélations**: [Link](https://www.seneweb.com/news/Justice/affaire-sidy-diop-de-nouvelles-revelatio_n_448375.html)
+- **Sidy Diop placé sous mandat dépôt, Kharagne parle d’un accident…(vidéo)**: [Link](https://senego.com/sidy-diop-place-sous-mandat-depot-kharagne-parle-dun-accident-video_1735538.html)
+- **People : Mia Guissé apporte son soutien à Sidy Diop après son incarcération**: [Link](https://www.senenews.com/senenews-people/people/buzz-people/people-mia-guisse-apporte-son-soutien-a-sidy-diop-apres-son-incarceration_505191.html)
+
+
+### koh lanta 2024 (N/A, Tue, 20 Aug 2024 13:00:00 -0700)
+
+- **« Koh-Lanta » : Pourquoi la nouvelle saison n’a pas souhaité la parité parmi les capitaines d’équipes**: [Link](https://www.20minutes.fr/arts-stars/television/koh_lanta/4102611-20240820-koh-lanta-pourquoi-nouvelle-saison-souhaite-parite-parmi-capitaines-equipes)
+- **«C'était devenu un effort surhumain» : les explications de Cécile sur son échec dans «Koh-Lanta»**: [Link](https://tvmag.lefigaro.fr/programme-tv/tele-realite/c-etait-devenu-un-effort-surhumain-les-explications-de-cecile-sur-son-echec-dans-koh-lanta-20240820)
+- **Koh-Lanta : le Catalan Ugo Latriche, l’un des candidats les plus emblématiques, fait son grand retour dans la nouvelle saison**: [Link](https://www.midilibre.fr/2024/08/20/koh-lanta-le-catalan-ugo-latriche-lun-des-candidats-les-plus-emblematiques-fait-son-grand-retour-dans-la-nouvelle-saison-12150131.php)
+
+
 ### هنادي الكندري (N/A, Tue, 20 Aug 2024 15:20:00 -0700)
 
 - **هنادي الكندري تثير الجدل بفيديو إعلان حملها**: [Link](https://www.lahamag.com/article/213875-%D9%87%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%83%D9%86%D8%AF%D8%B1%D9%8A-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A8%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%AD%D9%85%D9%84%D9%87%D8%A7)
