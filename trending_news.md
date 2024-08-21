@@ -1,3 +1,12 @@
+### chiesa (N/A, Wed, 21 Aug 2024 11:30:00 -0700)
+
+- **La Juve mette le ali: rilancio per Nico Gonzalez. Chiesa al Barça può 
+liberare Sancho**: [Link](https://www.gazzetta.it/Calcio/Calciomercato/Juventus/21-08-2024/juve-stretta-per-nico-gonzalez-chiesa-al-barcellona-puo-liberare-sancho.shtml)
+- **Nico Gonzalez più vicino, ecco Kalulu e Papadopoulos: le ultime sul mercato 
+Juve**: [Link](https://www.tuttosport.com/news/calcio/calciomercato/2024/08/20-131700931/nico_gonzalez_piu_vicino_ecco_kalulu_e_papadopoulos_le_ultime_sul_mercato_juve)
+- **Prima pagina Corriere dello Sport: “Juventus, basta follie”**: [Link](https://www.pianetamilan.it/news-milan/rassegna-stampa/prima-pagina-corriere-dello-sport-oggi-21-08-2024/)
+
+
 ### galatasaray (N/A, Wed, 21 Aug 2024 11:30:00 -0700)
 
 - **Enver Göçener’i kaybettik**: [Link](https://www.sporbursa.com/enver-goceneri-kaybettik/)
