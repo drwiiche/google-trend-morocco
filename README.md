@@ -1,3 +1,13 @@
+### champions league (N/A, Wed, 21 Aug 2024 12:10:00 -0700)
+
+- **Raheem Sterling is 'seeking clarity' over his Chelsea future after being 
+DROPPED from matchday squad for Man C**: [Link](https://www.dailymail.co.uk/sport/football/article-13754823/Raheem-Sterling-Chelsea-future-DROPPED-Man-City.html)
+- **How many players do Chelsea have and is there a Premier League squad size 
+limit?...**: [Link](https://talksport.com/football/2015321/chelsea-players-squad-size-homegrown-premier-league/)
+- **'I can never agree' - Gary Neville and Jamie Carragher in fiery clash over 
+Chelsea star**: [Link](https://www.football.london/chelsea-fc/news/i-can-never-agree-gary-29772118)
+
+
 ### chiesa (N/A, Wed, 21 Aug 2024 11:30:00 -0700)
 
 - **La Juve mette le ali: rilancio per Nico Gonzalez. Chiesa al Barça può 
