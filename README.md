@@ -1,3 +1,12 @@
+### adrien rabiot (N/A, Wed, 21 Aug 2024 14:30:00 -0700)
+
+- **Rumour Mongering: Rabiot Targeted By Reds For 387th Summer in a Row**: [Link](https://liverpooloffside.sbnation.com/liverpool-fc-transfer-news/2024/8/21/24225405/liverpool-fc-transfer-news-adrien-rabiot-targeted-reds-free-out-of-contract-juventus-man-united)
+- **Euro Paper Talk: Liverpool take centre stage for bargain signing after Man 
+Utd decision; Arsenal get second chance at striker deal**: [Link](https://www.teamtalk.com/news/liverpool-transfers-hughes-takes-centre-stage-bargain-signing-man-utd-decision)
+- **Inter Milan & Bayern Munich Put Off By Ex Juventus & PSG Star’s High Wage 
+Demands**: [Link](https://sempreinter.com/2024/08/21/inter-bayern-munich-put-off-adrien-rabiot-high-wage-demands/)
+
+
 ### galatasaray vs (N/A, Wed, 21 Aug 2024 13:50:00 -0700)
 
 - **Young Boys vs Galatasaray facts**: [Link](https://www.uefa.com/uefachampionsleague/news/0290-1b920dce69ab-5b76487be3fa-1000--young-boys-vs-galatasaray-facts/)
