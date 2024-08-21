@@ -1,3 +1,10 @@
+### العفو الملكي (N/A, Tue, 20 Aug 2024 17:20:00 -0700)
+
+- **السيمو: العفو الملكي فرصة سانحة للصلح مع سكان مناطق زراعة "العشبة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%8A%D9%85%D9%88-%D8%A7%D9%84%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%AB%D9%84%D8%AC-%D8%B5%D8%AF%D9%88%D8%B1-%D8%B3%D9%83%D8%A7%D9%86-%D9%85%D9%86%D8%A7-1418868.html)
+- **عفو ملكي عن 708 سجناء بمناسبة عيد الشباب – اليوم 24**: [Link](https://alyaoum24.com/1911560.html)
+- **"إفراجات المغرب" والحاجة إلى المصالحة السياسية عربيًا**: [Link](https://www.aljazeera.net/opinions/2024/8/18/%D8%A5%D9%81%D8%B1%D8%A7%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AD%D8%A7%D8%AC%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D9%84%D8%AD%D8%A9)
+
+
 ### dragon bleu des mers (N/A, Tue, 20 Aug 2024 16:40:00 -0700)
 
 - **Canaries : un dangereux dragon bleu entraîne la fermeture d’une plage**: [Link](https://www.lefigaro.fr/voyages/canaries-un-dangereux-dragon-bleu-entraine-la-fermeture-d-une-plage-20240820)
