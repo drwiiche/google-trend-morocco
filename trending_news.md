@@ -1,3 +1,10 @@
+### fete de la jeunesse maroc (N/A, Wed, 21 Aug 2024 13:10:00 -0700)
+
+- **Fête de la Jeunesse : célébration de l’espoir et de l’avenir de la Nation**: [Link](https://fr.hespress.com/382895-fete-de-la-jeunesse-celebration-de-lespoir-et-de-lavenir-de-la-nation.html)
+- **Fête de la Jeunesse: Mohammed VI gracie 798 personnes**: [Link](https://ledesk.ma/encontinu/fete-de-la-jeunesse-mohammed-vi-gracie-798-personnes/)
+- **« Malik Al Qulob », une chanson hassanie célébrant le Roi présentée à Casablanca**: [Link](https://www.h24info.ma/malik-al-qulob-une-chanson-hassanie-celebrant-le-roi-presentee-a-casablanca/)
+
+
 ### زهير فضال (N/A, Wed, 21 Aug 2024 13:20:00 -0700)
 
 - **فضال يعتزل الكرة ويودع الجماهير**: [Link](https://www.hespress.com/%D9%81%D8%B6%D8%A7%D9%84-%D9%8A%D8%B9%D8%AA%D8%B2%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D9%88%D9%8A%D9%88%D8%AF%D8%B9-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-1419528.html)
