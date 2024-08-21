@@ -1,3 +1,11 @@
+### jennifer lopez (N/A, Wed, 21 Aug 2024 01:40:00 -0700)
+
+- **Jennifer Lopez Files for Divorce from Ben Affleck After 2 Years of Marriage**: [Link](https://people.com/jennifer-lopez-ben-affleck-divorce-8649120)
+- **If only Ben and Jennifer had followed my divorcees guide to marriage**: [Link](https://www.smh.com.au/lifestyle/life-and-relationships/if-only-ben-and-jennifer-had-followed-my-divorcees-guide-to-marriage-20240821-p5k436.html)
+- **‘Not perfect’ Ben Affleck revealed why he exercised ‘a little restraint’ in 
+Jennifer Lopez relationship pre-divorce**: [Link](https://nypost.com/2024/08/20/entertainment/ben-affleck-on-why-he-exercised-restraint-in-j-lo-relationship-pre-divorce/)
+
+
 ### حالة الطقس (N/A, Wed, 21 Aug 2024 00:10:00 -0700)
 
 - **ارتفاع جديد بالحرارة.. الأرصاد تحذر من حالة الطقس غدا الثلاثاء والرطوبة 
