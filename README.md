@@ -1,3 +1,12 @@
+### paul watson (N/A, Wed, 21 Aug 2024 03:50:00 -0700)
+
+- **Greenland court rejects whaling activist Paul Watson's appeal against 
+detention**: [Link](https://www.lemonde.fr/en/international/article/2024/08/20/greenland-court-rejects-whaling-activist-captain-paul-watson-s-appeal_6718991_4.html)
+- **Greenland court extends whale activist Watson's custody**: [Link](https://www.lemonde.fr/en/international/article/2024/08/15/greenland-court-extends-whale-activist-watson-s-custody_6716108_4.html)
+- **Watch: GOJIRA's JOSEPH DUPLANTIER Takes Part In Peaceful Protest Demanding 
+Release Of Ocean Conservationist**: [Link](https://blabbermouth.net/news/watch-gojiras-joseph-duplantier-takes-part-in-peaceful-protest-demanding-release-of-ocean-conservationist)
+
+
 ### الملك محمد السادس (N/A, Wed, 21 Aug 2024 03:30:00 -0700)
 
 - **السيمو: العفو الملكي فرصة سانحة للصلح مع سكان مناطق زراعة "العشبة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%8A%D9%85%D9%88-%D8%A7%D9%84%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%AB%D9%84%D8%AC-%D8%B5%D8%AF%D9%88%D8%B1-%D8%B3%D9%83%D8%A7%D9%86-%D9%85%D9%86%D8%A7-1418868.html)
