@@ -1,3 +1,12 @@
+### naufrage voilier sicile (N/A, Tue, 20 Aug 2024 23:40:00 -0700)
+
+- **«Rien ne pouvait être fait pour ce bateau» : de la soirée festive au 
+naufrage, la nuit où tout a basculé pour Mike Lynch et ses invités**: [Link](https://www.lefigaro.fr/conjoncture/rien-ne-pouvait-etre-fait-pour-ce-bateau-de-la-soiree-festive-au-naufrage-la-nuit-ou-tout-a-bascule-pour-mike-lynch-et-ses-invites-20240820)
+- **Naufrage en Sicile : une troublante coïncidence**: [Link](https://www.lepoint.fr/monde/naufrage-en-sicile-une-troublante-coincidence-20-08-2024-2568354_24.php)
+- **Ce que l’on sait du naufrage du super-voilier « Bayesian » dans les eaux 
+siciliennes**: [Link](https://www.lemonde.fr/international/article/2024/08/20/ce-que-l-on-sait-du-naufrage-du-super-voilier-bayesian-dans-les-eaux-siciliennes_6288324_3210.html)
+
+
 ### المغرب (N/A, Tue, 20 Aug 2024 22:40:00 -0700)
 
 - **الملك ينهي معاناة مزارعي القنب الهندي.. وهسبريس في قلب أرض "الكيف"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D9%86%D9%87%D9%8A-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D9%85%D8%B2%D8%A7%D8%B1%D8%B9%D9%8A-%D8%A7%D9%84%D9%82%D9%86%D8%A8-%D8%A7%D9%84%D9%87%D9%86%D8%AF%D9%8A-1419045.html)
