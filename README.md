@@ -1,3 +1,11 @@
+### barack obama (N/A, Wed, 21 Aug 2024 04:40:00 -0700)
+
+- **Takeaways from the second night of the Democratic National Convention**: [Link](https://www.cnn.com/2024/08/21/politics/takeaways-dnc-day-2/index.html)
+- **Obamas mock Trump over 'black jobs' and crowd sizes at DNC**: [Link](https://www.bbc.com/news/videos/cvgep7d752jo)
+- **‘America is ready for a better story’: Barack Obama lauds Kamala Harris in 
+rousing speech**: [Link](https://www.theguardian.com/us-news/article/2024/aug/20/barack-obama-speech-dnc-kamala-harris)
+
+
 ### محمد السادس (N/A, Wed, 21 Aug 2024 05:20:00 -0700)
 
 - **صدقي: العفو الملكي يشجع المزارعين على الانخراط في "سلسلة القنب المقنن"**: [Link](https://www.hespress.com/%D8%B5%D8%AF%D9%82%D9%8A-%D8%A7%D9%84%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%B4%D8%AC%D8%B9-%D8%A7%D9%84%D9%85%D8%B2%D8%A7%D8%B1%D8%B9%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7-1419171.html)
