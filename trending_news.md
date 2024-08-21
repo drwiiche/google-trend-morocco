@@ -1,3 +1,11 @@
+### عيد ميلاد الملك محمد السادس (N/A, Wed, 21 Aug 2024 07:00:00 -0700)
+
+- **ثورة الملك والشعب: رمز للوحدة الوطنية وصمود الأمة المغربية من أجل الحرية**: [Link](https://www.menara.ma/article/%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%88%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D8%B1%D9%85%D8%B2%D9%8C-%D9%84%D9%84%D9%88%D8%AD%D8%AF%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9)
+- **وفد استقلالي يزور قبر المغفور لهما محمد الخامس والحسن الثاني وزعيمهم علال 
+الفاسي**: [Link](https://www.ahdath.info/article/227801/%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D9%88%D9%81%D8%AF-%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84%D9%8A-%D9%8A%D8%B2%D9%88%D8%B1-%D9%82%D8%A8%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D9%81%D9%88%D8%B1-%D9%84%D9%87%D9%85%D8%A7-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D9%88%D8%A7%D9%84%D8%AD%D8%B3%D9%86-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%88%D8%B2%D8%B9%D9%8A%D9%85%D9%87%D9%85-%D8%B9%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A)
+- **أعياد في مغرب الأمجاد**: [Link](https://www.almountakhab.com/node/16203265)
+
+
 ### saudia airlines (N/A, Wed, 21 Aug 2024 09:50:00 -0700)
 
 - **Saudia announces 50% discount on international flights: Here’s how to use it**: [Link](https://gulfbusiness.com/saudia-50-discount-international-flights/)
