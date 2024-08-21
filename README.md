@@ -1,3 +1,10 @@
+### saudia airlines (N/A, Wed, 21 Aug 2024 09:50:00 -0700)
+
+- **Saudia announces 50% discount on international flights: Here’s how to use it**: [Link](https://gulfbusiness.com/saudia-50-discount-international-flights/)
+- **Saudia offers up to 50% discount on flights from Jeddah And Riyadh airports**: [Link](https://gulfnews.com/business/aviation/saudia-offers-up-to-50-discount-on-flights-from-jeddah-and-riyadh-airports-1.1724082231528)
+- **Saudia’s limited-time offer: up to 50% off international flights**: [Link](https://www.traveldailymedia.com/saudia-slashes-international-fares-by-50-in-bold-move-to-boost-global-tourism/)
+
+
 ### cassius mailula (N/A, Wed, 21 Aug 2024 06:30:00 -0700)
 
 - **Toronto FC loan forward Cassius Mailula to Wydad Athletic Club**: [Link](https://www.torontofc.ca/news/toronto-fc-loan-forward-cassius-mailula-to-wydad-athletic-club)
