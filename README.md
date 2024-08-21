@@ -1,3 +1,10 @@
+### variole du singe confinement (N/A, Wed, 21 Aug 2024 04:50:00 -0700)
+
+- **Le Directeur général déclare une urgence de santé publique de portée internationale pour la flambée de variole simienne (mpox)**: [Link](https://www.who.int/fr/news/item/14-08-2024-who-director-general-declares-mpox-outbreak-a-public-health-emergency-of-international-concern)
+- **Épidémie de Mpox : « Nous sommes prêts à tester et vacciner »**: [Link](https://www.pasteur.fr/fr/espace-presse/documents-presse/epidemie-mpox-nous-sommes-prets-tester-vacciner)
+- **Virus mpox : La variole du singe, « n’est pas le nouveau Covid », assure le directeur Europe de l’OMS**: [Link](https://www.20minutes.fr/sante/4106330-20240820-virus-mpox-variole-singe-nouveau-covid-assure-directeur-europe-oms)
+
+
 ### karim bouamrane (N/A, Wed, 21 Aug 2024 03:20:00 -0700)
 
 - **Karim Bouamrane, la « hype » soudaine d’un maire PS que certains voient à 
