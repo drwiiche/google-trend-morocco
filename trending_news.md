@@ -1,3 +1,10 @@
+### galatasaray vs (N/A, Wed, 21 Aug 2024 13:50:00 -0700)
+
+- **Young Boys vs Galatasaray facts**: [Link](https://www.uefa.com/uefachampionsleague/news/0290-1b920dce69ab-5b76487be3fa-1000--young-boys-vs-galatasaray-facts/)
+- **Galatasaray eyes Champions League qualification in Young Boys playoff**: [Link](https://www.turkiyetoday.com/sports/galatasaray-eyes-champions-league-qualification-in-young-boys-playoff-42970/)
+- **Young Boys vs Galatasaray: Preview, predictions, team news**: [Link](https://www.90min.com/posts/young-boys-vs-galatasaray-preview-predictions-team-news-21-8-24)
+
+
 ### غلطة سراي (N/A, Wed, 21 Aug 2024 13:40:00 -0700)
 
 - **غلطة سراي ضيفاً ثقيلاً على يونغ بويز**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D8%B6%D9%8A%D9%81%D8%A7-%D8%AB%D9%82%D9%8A%D9%84%D8%A7-%D8%B9%D9%84%D9%89-%D9%8A%D9%88%D9%86%D8%BA-%D8%A8%D9%88%D9%8A%D8%B2-2024-08-21)
