@@ -1,3 +1,30 @@
+### galatasaray (N/A, Wed, 21 Aug 2024 11:30:00 -0700)
+
+- **Enver Göçener’i kaybettik**: [Link](https://www.sporbursa.com/enver-goceneri-kaybettik/)
+- **Young Boys - Galatasaray maçı canlı yayın bilgisi | Young Boys - 
+Galatasaray maçı hangi kanalda, saat kaçta ve ne zaman? GS- Young Boys maçı 
+şifresiz mi?**: [Link](https://www.ntvspor.net/futbol/young-boys-galatasaray-maci-canli-yayin-bilgisi-young-boys-galatasaray-maci-hangi-kanalda-saat-kacta-ve-ne-zaman-gs-young-boys-maci-sifresiz-mi-66c61a66ec7add04396d84c6)
+- **Şampiyonlar Ligi katılım ücreti 2024 ne kadar? Şampiyonlar ligi ayak bastı 
+parası 2024-2025!**: [Link](https://www.hurriyet.com.tr/sporarena/galeri-sampiyonlar-ligi-katilim-ucreti-2024-ne-kadar-sampiyonlar-ligi-ayak-basti-parasi-2024-2025-42509458)
+
+
+### wydad (N/A, Wed, 21 Aug 2024 11:30:00 -0700)
+
+- **Mercato : Cassius Mailula signe au WAC en provenance de Toronto FC**: [Link](https://lematin.ma/sports/mercato-cassius-mailula-signe-au-wac-en-provenance-de-toronto-fc/239821)
+- **Officiel: le Wydad annonce l’arrivée de Cassius Mailula**: [Link](https://sport.le360.ma/botola-pro-1/officiel-le-wydad-annonce-larrivee-de-cassius-mailula-113883)
+- **Le Wydad Athletic Club annonce son contrat avec un nouveau joueur**: [Link](https://fr.hibapress.com/news-127050.html)
+
+
+### karim bouamrane premier ministre (N/A, Wed, 21 Aug 2024 10:30:00 -0700)
+
+- **France : qui est Karim Bouamrane, le maire socialiste pressenti pour être 
+Premier ministre ?**: [Link](https://mobile.telquel.ma/instant-t/2024/08/21/france-qui-est-karim-bouamrane-le-maire-socialiste-pressenti-pour-etre-premier-ministre_1889859/)
+- **Karim Bouamrane, la « hype » soudaine d’un maire PS que certains voient à 
+Matignon**: [Link](https://www.lemonde.fr/politique/article/2024/08/21/choix-du-premier-ministre-la-hype-soudaine-de-karim-bouamrane_6288956_823448.html)
+- **Nouveau Premier ministre : Karim Bouamrane estime que Lucie Castets "doit 
+être nommée" à Matignon pour "trouver un compromis global"**: [Link](https://www.ladepeche.fr/2024/08/21/nouveau-premier-ministre-karim-bouamrane-estime-que-lucie-castets-doit-etre-nommee-pour-trouver-un-compromis-global-12152318.php)
+
+
 ### عيد ميلاد الملك محمد السادس (N/A, Wed, 21 Aug 2024 07:00:00 -0700)
 
 - **ثورة الملك والشعب: رمز للوحدة الوطنية وصمود الأمة المغربية من أجل الحرية**: [Link](https://www.menara.ma/article/%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%88%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D8%B1%D9%85%D8%B2%D9%8C-%D9%84%D9%84%D9%88%D8%AD%D8%AF%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9)
