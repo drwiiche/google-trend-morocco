@@ -1,3 +1,11 @@
+### cassius mailula (N/A, Wed, 21 Aug 2024 06:30:00 -0700)
+
+- **Toronto FC loan forward Cassius Mailula to Wydad Athletic Club**: [Link](https://www.torontofc.ca/news/toronto-fc-loan-forward-cassius-mailula-to-wydad-athletic-club)
+- **Cassius Mailula is set to join North African giants Wydad Casablanca — 
+reports**: [Link](https://www.iol.co.za/sport/soccer/psl/cassius-mailula-is-set-to-join-north-african-giants-wydad-casablanca-reports-aac5e76d-c014-4308-875d-ae52f4891cee)
+- **Mokwena still wants Zungu at Wydad**: [Link](https://www.citizen.co.za/sport/soccer/local-soccer/mokwena-still-wants-zungu-wydad/)
+
+
 ### koh lanta tribu maudite (N/A, Wed, 21 Aug 2024 08:40:00 -0700)
 
 - **Koh-Lanta La Tribu Maudite - Emission 1 du 20 août 2024 - Partie 1**: [Link](https://www.tf1.fr/tf1/koh-lanta/videos/koh-lanta-la-tribu-maudite-emission-1-du-20-aout-2024-partie-1-55552460.html)
