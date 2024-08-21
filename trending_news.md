@@ -1,3 +1,10 @@
+### زهير فضال (N/A, Wed, 21 Aug 2024 13:20:00 -0700)
+
+- **فضال يعتزل الكرة ويودع الجماهير**: [Link](https://www.hespress.com/%D9%81%D8%B6%D8%A7%D9%84-%D9%8A%D8%B9%D8%AA%D8%B2%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D9%88%D9%8A%D9%88%D8%AF%D8%B9-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-1419528.html)
+- **زهير فضال يعلن اعتزال كرة القدم**: [Link](https://www.akhbarona.com/sport/proplayers/390950.html)
+- **برسالة مؤثرة.. زهير فضال يعلن اعتزاله كرة القدم**: [Link](https://ar.hibapress.com/details-543666.html)
+
+
 ### programme tv (N/A, Wed, 21 Aug 2024 12:20:00 -0700)
 
 - **Programme TV sportif du 21 août 2024 : sur quelles chaînes regarder du 
