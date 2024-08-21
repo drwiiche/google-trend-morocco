@@ -1,3 +1,10 @@
+### الحسين الحياني (N/A, Tue, 20 Aug 2024 19:00:00 -0700)
+
+- **قيدوم الصحافيين الرياضيين الحسين الحياني يغادر إلى دار ال?...**: [Link](https://kech24.com/%D9%82%D9%8A%D8%AF%D9%88%D9%85-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%86-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D9%86%D9%8A-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A5%D9%84%D9%89-%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%82%D8%A7%D8%A1.html)
+- **الاعلامي والناقد الرياضي الحسين الحياني في ذمة الله**: [Link](https://www.ahdath.info/article/227799/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A7%D9%84%D8%A7%D8%B9%D9%84%D8%A7%D9%85%D9%8A-%D9%88%D8%A7%D9%84%D9%86%D8%A7%D9%82%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%86-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%B0%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D9%87)
+- **وفاة الصحفي الرياضي الشهير الحسين الحياني**: [Link](http://ar.sport.le360.ma/maroc/157776)
+
+
 ### jennifer lopez (N/A, Wed, 21 Aug 2024 01:40:00 -0700)
 
 - **Jennifer Lopez Files for Divorce from Ben Affleck After 2 Years of Marriage**: [Link](https://people.com/jennifer-lopez-ben-affleck-divorce-8649120)
