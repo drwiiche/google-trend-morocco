@@ -1,3 +1,18 @@
+### محمد السادس (N/A, Wed, 21 Aug 2024 05:20:00 -0700)
+
+- **صدقي: العفو الملكي يشجع المزارعين على الانخراط في "سلسلة القنب المقنن"**: [Link](https://www.hespress.com/%D8%B5%D8%AF%D9%82%D9%8A-%D8%A7%D9%84%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%B4%D8%AC%D8%B9-%D8%A7%D9%84%D9%85%D8%B2%D8%A7%D8%B1%D8%B9%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7-1419171.html)
+- **حزب « البام » يشيد بخطوة العفو الملكي واعتبرها التفاتة للريف – اليوم 24**: [Link](https://alyaoum24.com/1911576.html)
+- **"إفراجات المغرب" والحاجة إلى المصالحة السياسية عربيًا**: [Link](https://www.aljazeera.net/opinions/2024/8/18/%D8%A5%D9%81%D8%B1%D8%A7%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AD%D8%A7%D8%AC%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D9%84%D8%AD%D8%A9)
+
+
+### leao (N/A, Wed, 21 Aug 2024 05:10:00 -0700)
+
+- **LIVE Transfer Talk: Forest near deal for Arsenal's Eddie Nketiah**: [Link](https://www.espn.com/soccer/story/_/id/40932686/transfer-talk-barca-priced-move-milan-star-leao)
+- **FC Barcelona Accelerates Signing Of Euros Winner, Reports SPORT**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/20/fc-barcelona-accelerates-signing-of-euros-winner-reports-sport/)
+- **Di Marzio: Leao-Barcelona rumours ‘wild’ as Milan fully close the door – 
+the situation**: [Link](https://sempremilan.com/di-marzio-leao-barcelona-rumours-wild-milan-close-door)
+
+
 ### variole du singe confinement (N/A, Wed, 21 Aug 2024 04:50:00 -0700)
 
 - **Le Directeur général déclare une urgence de santé publique de portée internationale pour la flambée de variole simienne (mpox)**: [Link](https://www.who.int/fr/news/item/14-08-2024-who-director-general-declares-mpox-outbreak-a-public-health-emergency-of-international-concern)
