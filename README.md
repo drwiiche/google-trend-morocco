@@ -1,3 +1,11 @@
+### mailula (N/A, Wed, 21 Aug 2024 06:50:00 -0700)
+
+- **Toronto FC loan Cassius Mailula to Wydad AC**: [Link](https://www.mlssoccer.com/news/toronto-fc-loan-cassius-mailula-to-wydad-ac)
+- **Cassius Mailula: How reuniting with Rhulani Mokwena at Wydad Casablanca 
+could spark his career comeback**: [Link](https://www.goal.com/en/lists/cassius-mailula-how-reuniting-with-rhulani-mokwena-at-wydad-casablanca-could-spark-his-career-comeback/blt77af24152719921f)
+- **Mailula Agreement Reached, Announcement Imminent? | Soccer Laduma**: [Link](https://www.snl24.com/soccerladuma/local/siyagobhoza/cassius-mailula-announcement-expected-at-wydad-athletic-casablanca-toronto-20240819)
+
+
 ### خليل المقدح (N/A, Wed, 21 Aug 2024 04:30:00 -0700)
 
 - **غارة إسرائيلية تقتل مسؤولا في "فتح"**: [Link](https://www.hespress.com/%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D9%84-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D8%A7-%D9%81%D9%8A-%D8%AD%D8%B1%D9%83%D8%A9-%D9%81%D8%AA%D8%AD-1419229.html)
