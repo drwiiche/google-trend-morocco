@@ -1,3 +1,13 @@
+### jannik sinner (N/A, Wed, 21 Aug 2024 07:40:00 -0700)
+
+- **Sinner, la foto del fisioterapista a Indian Wells: la ferita al dito da cui 
+è arrivata la contaminazione**: [Link](https://www.gazzetta.it/Tennis/ATP/21-08-2024/sinner-foto-del-fisioterapista-naldi-ferita-al-dito-qui-la-trasmissione-del-clostebol.shtml)
+- **Caso Sinner, Kyrgios non ci sta: "Ridicolo, dovresti essere squalificato 
+due anni" - Sportmediaset**: [Link](https://www.sportmediaset.mediaset.it/tennis/caso-sinner-kyrgios-non-ci-sta-ridicolo-dovresti-essere-squalificato-due-anni_86199510-202402k.shtml)
+- **Sinner positivo ad un controllo antidoping: è innocente, giocherà gli Us 
+Open. Ma attenzione ai ricorsi**: [Link](https://www.repubblica.it/sport/tennis/2024/08/20/news/sinner_positivo_antidoping_ma_innocente_giochera_us_open-423454599/)
+
+
 ### mailula (N/A, Wed, 21 Aug 2024 06:50:00 -0700)
 
 - **Toronto FC loan Cassius Mailula to Wydad AC**: [Link](https://www.mlssoccer.com/news/toronto-fc-loan-cassius-mailula-to-wydad-ac)
