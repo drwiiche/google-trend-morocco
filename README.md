@@ -1,3 +1,27 @@
+### koh lanta tribu maudite (N/A, Wed, 21 Aug 2024 08:40:00 -0700)
+
+- **Koh-Lanta La Tribu Maudite - Emission 1 du 20 août 2024 - Partie 1**: [Link](https://www.tf1.fr/tf1/koh-lanta/videos/koh-lanta-la-tribu-maudite-emission-1-du-20-aout-2024-partie-1-55552460.html)
+- **Ce candidat n’a pas compris le concept de « Koh-Lanta » et Denis Brogniart 
+l’a fait savoir**: [Link](https://www.huffingtonpost.fr/divertissement/article/dans-koh-lanta-sur-tf1-gustin-n-a-pas-compris-le-concept-de-l-emission-et-denis-brogniart-l-a-fait-savoir_238599.html)
+- **« Koh-Lanta » : Pourquoi la nouvelle saison n’a pas souhaité la parité 
+parmi les capitaines d’équipes**: [Link](https://www.20minutes.fr/arts-stars/television/koh_lanta/4102611-20240820-koh-lanta-pourquoi-nouvelle-saison-souhaite-parite-parmi-capitaines-equipes)
+
+
+### mike lynch (N/A, Wed, 21 Aug 2024 08:40:00 -0700)
+
+- **The theories on what caused Bayesian superyacht to sink so quickly**: [Link](https://uk.news.yahoo.com/bayesian-yacht-theories-how-sank-111421612.html)
+- **Who is Jonathan Bloomer, Morgan Stanley’s chairman who is presumed dead in 
+the Bayesian yacht disaster?**: [Link](https://fortune.com/2024/08/20/jonathan-bloomer-morgan-stanley-chairman-presumed-dead-bayesian-yacht-prudential-mike-lynch/)
+- **Sicily yacht sinking: four bodies reportedly found – updates**: [Link](https://www.theguardian.com/world/live/2024/aug/21/slugs-sicily-bayesian-yacht-sinking-search-mike-lynch-six-people-missing-updates)
+
+
+### مايك لينش (N/A, Wed, 21 Aug 2024 08:40:00 -0700)
+
+- **ابتلعت يختا فاخرا.. خبراء: مياه البحر المتوسط تزداد خطورة**: [Link](https://www.alarabiya.net/last-page/2024/08/20/%D8%A8%D8%B9%D8%AF-%D8%BA%D8%B1%D9%82-%D9%8A%D8%AE%D8%AA-%D9%81%D8%A7%D8%AE%D8%B1-%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%85%D9%8A%D8%A7%D9%87-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D8%B3%D8%B7-%D8%AA%D8%B2%D8%AF%D8%A7%D8%AF-%D8%AE%D8%B7%D9%88%D8%B1%D8%A9)
+- **العثور على جثة "ملك التكنولوجيا" وابنته قبالة إيطاليا**: [Link](https://www.alhurra.com/arabic-and-international/2024/08/21/%D8%A7%D9%84%D8%B9%D8%AB%D9%88%D8%B1-%D8%AC%D8%AB%D8%A9-%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%AA%D9%83%D9%86%D9%88%D9%84%D9%88%D8%AC%D9%8A%D8%A7-%D9%88%D8%A7%D8%A8%D9%86%D8%AA%D9%87-%D9%82%D8%A8%D8%A7%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7)
+- **"بيل غيتس البريطاني" ما زال مفقودا قبالة سواحل صقلية**: [Link](https://www.aljazeera.net/tech/2024/8/20/%D8%A8%D9%8A%D9%84-%D8%BA%D9%8A%D8%AA%D8%B3-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A-%D9%85%D8%A7-%D8%B2%D8%A7%D9%84-%D9%85%D9%81%D9%82%D9%88%D8%AF%D8%A7)
+
+
 ### jannik sinner (N/A, Wed, 21 Aug 2024 07:40:00 -0700)
 
 - **Sinner, la foto del fisioterapista a Indian Wells: la ferita al dito da cui 
