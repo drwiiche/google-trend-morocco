@@ -1,3 +1,12 @@
+### حياة الماعز (N/A, Thu, 22 Aug 2024 00:30:00 -0700)
+
+- **هذه قصته.. فيلم سينمائي هندي يثير ضجة وسخطا واسعا بدول خليجية بسبب تمرده 
+على نظام "الكفالة"**: [Link](https://www.akhbarona.com/culture/390986.html)
+- **حياة الماعز. صرخة نقدية تهز مجتمعات عرب البترودولار ..هل المغاربة معنيون؟**: [Link](https://le12.ma/article/523964/)
+- **“الآن حصرياً: فيلم حياة الماعز: The Goat Life متاح للمشاهدة مع تجربة 
+استثنائية”**: [Link](https://zahraa.mr/3096843/%D8%A7%D9%84%D8%A2%D9%86-%D8%AD%D8%B5%D8%B1%D9%8A%D8%A7%D9%8B-%D9%81%D9%8A%D9%84%D9%85-%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B9%D8%B2-the-goat-life-%D9%85%D8%AA%D8%A7%D8%AD-%D9%84/)
+
+
 ### naufrage yacht sicile (N/A, Thu, 22 Aug 2024 05:50:00 -0700)
 
 - **Naufrage d’un voilier de luxe en Sicile : six corps retrouvés par des 
