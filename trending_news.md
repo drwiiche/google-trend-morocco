@@ -1,3 +1,17 @@
+### fiorentina (N/A, Thu, 22 Aug 2024 12:20:00 -0700)
+
+- **Nico Gonzalez, il dg della Fiorentina gela la Juve: "Ora non ci sono le condizioni" - Sportmediaset**: [Link](https://www.sportmediaset.mediaset.it/mercato/juventus/nico-gonzalez-juventus-commisso_86251010-202402k.shtml)
+- **Bergomi: "Nico Gonzalez vale tutti questi soldi, per la Juventus sarebbe un acquisto importante"**: [Link](https://www.tuttojuve.com/calciomercato/bergomi-nico-gonzalez-vale-tutti-questi-soldi-per-la-juventus-sarebbe-un-acquisto-importante-699384)
+- **Il punto sul mercato: Nico abbraccia Palladino ma si allena lontano dai compagni, la Juve è sempre più vicina. Ranieri ha rinnovato, mentre Amrabat ha aperto a Conte**: [Link](https://www.fiorentinanews.com/news/283320946182/il-punto-sul-mercato-nico-abbraccia-palladino-ma-si-allena-lontano-dai-compagni-la-juve-e-sempre-piu-vicina-ranieri-ha-rinnovato-mentre-amrabat-ha-aperto-a-conte)
+
+
+### real betis (N/A, Thu, 22 Aug 2024 12:20:00 -0700)
+
+- **Real Betis in advanced talks with Barcelona over Vitor Roque loan - The Athletic**: [Link](https://www.nytimes.com/athletic/5713853/2024/08/22/vitor-roque-betis-loan-transfer-barcelona/)
+- **Barcelona agree Vitor Roque loan deal with Real Betis**: [Link](https://www.barcablaugranes.com/2024/8/21/24225106/barcelona-agree-vitor-roque-loan-deal-with-real-betis)
+- **Barcelona forward all but confirms imminent exit through social media activity**: [Link](https://barcauniversal.com/barcelona-forward-confirms-imminent-exit-from-club-through-social-media-activity/)
+
+
 ### chelsea (N/A, Thu, 22 Aug 2024 12:10:00 -0700)
 
 - **Raheem Sterling is 'seeking clarity' over his Chelsea future after being 
