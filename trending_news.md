@@ -1,3 +1,30 @@
+### championnat d'arabie saoudite (N/A, Thu, 22 Aug 2024 13:20:00 -0700)
+
+- **Al-Nassr Riyad 1-1 Al-Raed, Championnat d'Arabie Saoudite : résumé du match 
+(22/08/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-arabie-saoudite/2024-2025/al-nassr-riyad-al-raed-live/667129)
+- **Ça se tend sérieusement entre Sadio Mané et Al-Nassr**: [Link](https://www.footmercato.net/a7597691893258578765-ca-se-tend-serieusement-entre-sadio-mane-et-al-nassr)
+- **« Je veux jouer avec lui, » Benzema réclame une recrue à Al-Ittihad !**: [Link](https://www.football365.fr/je-veux-jouer-avec-lui-benzema-reclame-une-recrue-a-al-ittihad-10197240.html)
+
+
+### chiesa (N/A, Thu, 22 Aug 2024 13:10:00 -0700)
+
+- **Chiesa al Barcellona, si può fare? Ecco quali sono gli ostacoli**: [Link](https://www.gazzetta.it/Calcio/Calciomercato/Juventus/22-08-2024/chiesa-al-barcellona-il-punto-sulla-trattativa.shtml)
+- **Juventus, Chiesa cambia il mercato: le cifre dell’offerta in arrivo, quanti 
+esterni arriveranno ora**: [Link](https://www.calciomercato.com/news/juventus-chiesa-cambia-il-mercato-le-cifre-dellofferta-in-arrivo-94822)
+- **Chiesa Juve, l'agente dell'attaccante è al lavoro per portarlo al 
+Barcellona: COSA MANCA per la cessione**: [Link](https://www.juventusnews24.com/chiesa-juve-agente-ramadani-barcellona-cessione-tuttosport-offerta-olmo-roma-champions-bilancio/)
+
+
+### al nassr (N/A, Thu, 22 Aug 2024 12:00:00 -0700)
+
+- **The time has come for Cristiano Ronaldo to retire: No one wants to see 
+all-time great continue to humiliate himself after latest Al-Nassr tantrum**: [Link](https://www.goal.com/en/lists/cristiano-ronaldo-retire-all-time-great-humiliate-himself-latest-al-nassr-tantrum/blte485299b2bf35ab0)
+- **Three takeaways: Familiar feel as Al Hilal fights back to lift Saudi Super 
+Cup**: [Link](https://english.alarabiya.net/sports/2024/08/18/three-takeaways-familiar-feel-as-al-hilal-fights-back-to-lift-saudi-super-cup)
+- **Castro's agent enumerates the reasons for the Super Cup loss and the fact 
+of his dismissal**: [Link](https://www.ysscores.com/en/news/2801094/Castro's-agent-enumerates-the-reasons-for-the-Super-Cup-loss-and-the-fact-of-his-dismissal)
+
+
 ### anass zaroury (N/A, Thu, 22 Aug 2024 12:10:00 -0700)
 
 - **Anass Zaroury Signs with Ligue 1’s Racing Club de Lens Until 2028**: [Link](https://www.moroccoworldnews.com/2024/08/364711/anass-zaroury-signs-with-ligue-1s-racing-club-de-lens-until-2028)
