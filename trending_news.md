@@ -1,3 +1,10 @@
+### manuel neuer (N/A, Thu, 22 Aug 2024 04:20:00 -0700)
+
+- **Germany goalkeeper Manuel Neuer retires from international football**: [Link](https://www.theguardian.com/football/article/2024/aug/21/manuel-neuer-retires-internationals-germany)
+- **Germany GK Neuer retires from int'l football**: [Link](https://www.espn.com/soccer/story/_/id/40939782/germany-gk-manuel-neuer-retires-international-football)
+- **Gallery: The best images from Manuel Neuer's international career**: [Link](https://fcbayern.com/en/photos/2024/08/gallery-manuel-neuers-international-career-in-pictures)
+
+
 ### كريستيانو رونالدو (N/A, Thu, 22 Aug 2024 04:00:00 -0700)
 
 - **كم يجني رونالدو من قناته الجديدة على يوتيوب؟**: [Link](https://www.aljazeera.net/sport/2024/8/22/%D9%83%D9%85-%D9%8A%D8%AC%D9%86%D9%8A-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%85%D9%86-%D9%82%D9%86%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%B9%D9%84%D9%89)
