@@ -1,3 +1,10 @@
+### النصر (N/A, Thu, 22 Aug 2024 12:30:00 -0700)
+
+- **مباشر مباراة النصر ضد الرائد 1-1 في الدوري السعودي لكرة القدم 2024-2025**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/22/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B1%D8%A7%D8%A6%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **تشكيلة الرائد الرسمية لمواجهة النصر**: [Link](https://hihi2.com/2024/08/22/p2807478.html)
+- **رونالدو يبدأ رحلة الحفاظ على لقب هداف دوري روشن**: [Link](https://www.kooora.com/?n=1349714)
+
+
 ### fiorentina (N/A, Thu, 22 Aug 2024 12:20:00 -0700)
 
 - **Nico Gonzalez, il dg della Fiorentina gela la Juve: "Ora non ci sono le condizioni" - Sportmediaset**: [Link](https://www.sportmediaset.mediaset.it/mercato/juventus/nico-gonzalez-juventus-commisso_86251010-202402k.shtml)
