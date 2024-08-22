@@ -1,3 +1,40 @@
+### al-nassr fc – al-raed (N/A, Thu, 22 Aug 2024 10:00:00 -0700)
+
+- **Saudi Pro League: What has happened to big spending? Will Ivan Toney go?**: [Link](https://www.bbc.com/sport/football/articles/credqx5w2z7o)
+- **Saudis geared up for season kick-off with focus on performance and domestic 
+development**: [Link](https://www.insideworldfootball.com/2024/08/21/saudis-geared-season-kick-off-focus-performance-domestic-development/)
+- **Al-Nasr’s absences against Al-Raed in the Roshen League**: [Link](https://www.ysscores.com/en/news/2945651/Al-Nasr%E2%80%99s-absences-against-Al-Raed-in-the-Roshen-League)
+
+
+### joão cancelo (N/A, Thu, 22 Aug 2024 10:00:00 -0700)
+
+- **Source: Al Hilal eye Cancelo after Walker snub**: [Link](https://www.espn.com/soccer/story/_/id/40948911/al-hilal-eye-man-city-cancelo-walker-no-go-source)
+- **Man City man with 'many enemies' agrees Saudi transfer after 'behaviour' 
+issue 'reaches Pep's ears'**: [Link](https://www.football365.com/news/man-city-man-created-enemies-barcelona-irked-stars-pleased-34m-saudi-agreement-cancelo)
+- **Manchester City pair Kyle Walker and João Cancelo on Al-Hilal’s shortlist**: [Link](https://www.theguardian.com/football/article/2024/aug/19/manchester-city-kyle-walker-joao-cancelo-al-hilal-shortlist)
+
+
+### rappeur rk accident (N/A, Thu, 22 Aug 2024 09:50:00 -0700)
+
+- **Le rappeur RK dément être impliqué dans un accident mortel au Maroc**: [Link](https://www.13or-du-hiphop.fr/2024/08/22/le-rappeur-rk-dement-etre-implique-dans-un-accident-mortel-au-maroc/)
+
+
+### الصافي سعيد (N/A, Thu, 22 Aug 2024 07:50:00 -0700)
+
+- **السلطات التونسية توقف مرشحا للرئاسة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A%D8%A9-%D8%AA%D9%88%D9%82%D9%81-%D9%85%D8%B1%D8%B4%D8%AD%D8%A7-%D9%84%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-1419591.html)
+- **توقيف مرشح سابق للانتخابات الرئاسية في تونس لاجتيازه الحدود بشكل غير قانوني 
+– اليوم 24**: [Link](https://alyaoum24.com/1911728.html)
+- **تفاصيل القبض على الصافي سعيد في بوشبكة الجزائرية**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1304390/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D9%82%D8%A8%D8%B6-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D8%A7%D9%81%D9%8A-%D8%B3%D8%B9%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A8%D9%88%D8%B4%D8%A8%D9%83%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9)
+
+
+### rima hassan (N/A, Thu, 22 Aug 2024 07:20:00 -0700)
+
+- **How Bad Is Antisemitism in France? This French Politician Just Marched in a 
+Pro-Hamas Rally and Flaunted It**: [Link](https://www.nysun.com/article/how-bad-is-antisemitism-in-france-this-french-politician-just-marched-in-a-pro-hamas-rally-and-flaunted-it)
+- **Some 50 MPs call for the parliamentary immunity of far-left French MEP Rima 
+Hassan to be lifted 'for apology of terrorism'**: [Link](https://ejpress.org/some-50-mps-call-for-the-parliamentary-immunity-of-far-left-french-mep-rima-hassan-to-be-lifted-for-apology-of-terrorism/)
+
+
 ### carlos tavares (N/A, Thu, 22 Aug 2024 08:50:00 -0700)
 
 - **Stellantis CEO visits US to create plan to reverse lagging profit, sources 
