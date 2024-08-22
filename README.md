@@ -1,3 +1,10 @@
+### safi said (N/A, Thu, 22 Aug 2024 02:40:00 -0700)
+
+- **Les détails de l'arrestation de Safi Saïd en Algérie**: [Link](https://www.mosaiquefm.net/fr/actualite-national-tunisie/1304396/les-details-de-l-arrestation-de-safi-said-en-algerie)
+- **Tunisie : Safi Said placé en garde à vue**: [Link](https://www.webdo.tn/fr/actualite/national/tunisie-safi-said-place-en-garde-a-vue/215924)
+- **Safi Saïd mis en garde à vue**: [Link](https://www.tunisienumerique.com/safi-said-mis-en-garde-a-vue/)
+
+
 ### one piece 1124 spoilers (N/A, Wed, 21 Aug 2024 21:40:00 -0700)
 
 - **One Piece: Egghead Arc Officially Ends**: [Link](https://gamerant.com/one-piece-egghead-arc-officially-ends/)
