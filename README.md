@@ -1,3 +1,13 @@
+### angoulême (N/A, Thu, 22 Aug 2024 00:40:00 -0700)
+
+- **Angoulême : les motivations de l’homme qui a tenté d’incendier la mairie 
+inconnues, deux enquêtes ouvertes**: [Link](https://www.lemonde.fr/societe/article/2024/08/21/angouleme-les-motivations-de-l-homme-qui-a-tente-d-incendier-la-mairie-inconnues-deux-enquetes-ouvertes_6289327_3225.html)
+- **Vidéo. “Ce matin, il est descendu comme un dingue”: le témoignage de la 
+voisine de l’assaillant de la mairie d’Angoulême**: [Link](https://www.charentelibre.fr/charente/angouleme/angouleme-la-mairie-evacuee-le-centre-ville-boucle-operation-de-police-en-cours-21088792.php)
+- **Angoulême: un homme répand de l'essence dans la mairie avant d’être 
+neutralisé par la police municipale**: [Link](https://www.bfmtv.com/police-justice/angouleme-un-homme-repand-de-l-essence-dans-la-mairie-avant-d-etre-neutralise-par-la-police-municipale_AN-202408210345.html)
+
+
 ### safi said (N/A, Thu, 22 Aug 2024 02:40:00 -0700)
 
 - **Les détails de l'arrestation de Safi Saïd en Algérie**: [Link](https://www.mosaiquefm.net/fr/actualite-national-tunisie/1304396/les-details-de-l-arrestation-de-safi-said-en-algerie)
