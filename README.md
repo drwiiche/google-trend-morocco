@@ -1,3 +1,10 @@
+### cristiano ronaldo (N/A, Wed, 21 Aug 2024 19:20:00 -0700)
+
+- **Cristiano Ronaldo Launches YouTube Channel**: [Link](https://variety.com/2024/digital/global/cristiano-ronaldo-launches-youtube-channel-ur-1236113655/)
+- **WATCH: Did Cristiano Ronaldo just tease his next endeavour after football?**: [Link](https://www.geo.tv/latest/559649-watch-did-cristiano-ronaldo-just-tease-his-next-endeavour-after-football)
+- **Cristiano Ronaldo's New Launch Sparks Online Frenzy**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/cristiano-ronaldo-s-new-launch-sparks-online-frenzy-2024-08-21)
+
+
 ### pedrinho corinthians (N/A, Wed, 21 Aug 2024 15:10:00 -0700)
 
 - **Presidente de clube marroquino vem ao Brasil e prepara oferta por ‘pacotão’ 
