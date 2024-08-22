@@ -1,3 +1,13 @@
+### pissevin (N/A, Thu, 22 Aug 2024 13:30:00 -0700)
+
+- **A Nîmes, le trafic de drogue demeure, mais de façon plus discrète, un an 
+après le décès de Fayed**: [Link](https://www.lemonde.fr/societe/article/2024/08/21/a-nimes-le-trafic-de-drogue-demeure-mais-de-facon-plus-discrete-un-an-apres-le-deces-de-fayed_6289577_3224.html)
+- **Enquête ouverte après l'incendie d'un commerce mitoyen d'un nouveau poste 
+de police à Nîmes**: [Link](https://www.francetvinfo.fr/faits-divers/enquete-ouverte-apres-l-incendie-d-un-commerce-mitoyen-d-un-nouveau-poste-de-police-a-nimes_6735849.html)
+- **Banditisme : "Nîmes est à la porte de Marseille", estime Bruno Bartocetti 
+du syndicat Un1té qui demande des renforts d’effectifs**: [Link](https://www.midilibre.fr/2024/08/22/banditisme-nimes-est-a-la-porte-de-marseille-estime-bruno-bartocetti-sgp-fo-qui-demande-des-renforts-deffectifs-12154072.php)
+
+
 ### chelsea vs servette (N/A, Thu, 22 Aug 2024 11:20:00 -0700)
 
 - **Enzo Maresca dealt fresh Chelsea injury concern amid worrying Cole Palmer 
