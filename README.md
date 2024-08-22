@@ -1,3 +1,19 @@
+### fiorentina – puskás akadémia (N/A, Thu, 22 Aug 2024 10:30:00 -0700)
+
+- **Fiorentina vs Puskás Akadémia: Preview**: [Link](https://www.violanation.com/2024/8/21/24224880/fiorentina-puskas-akademia-conference-league-playoff-preview-predict-lineup-formation-score)
+- **Conference League: Fiorentina vs. Puskas Akademia line-ups**: [Link](https://football-italia.net/conference-league-fiorentina-puskas-akademia/)
+- **Preview: Fiorentina vs. Puskas Academy - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fiorentina/europa-conference-league/preview/preview-fiorentina-vs-puskas-academy-prediction-team-news-lineups_550818.html)
+
+
+### al-nassr vs al-raed (N/A, Thu, 22 Aug 2024 10:30:00 -0700)
+
+- **Preview: Al-Nassr vs. Al Raed - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/preview-al-nassr-vs-al-raed-prediction-team-news-lineups_550835.html)
+- **Al-Nassr vs Al-Raed Live Streaming: When & Where To Watch Cristiano Ronaldo 
+Live In India?**: [Link](https://www.timesnownews.com/sports/football/al-nassr-vs-al-raed-live-streaming-when-where-to-watch-cristiano-ronaldo-live-in-india-article-112663372)
+- **Will Cristiano Ronaldo Play Tonight in Al-Nassr vs Al-Raed Saudi Pro League 
+2024–25 Match? Here's**: [Link](https://www.latestly.com/sports/football/will-cristiano-ronaldo-play-tonight-in-al-nassr-vs-al-raed-saudi-pro-league-2024-25-match-heres-possibility-of-cr7-featuring-in-starting-xi-6207246.html)
+
+
 ### kryvbas – betis (N/A, Thu, 22 Aug 2024 10:20:00 -0700)
 
 - **Preview: Kryvbas Kryvyi Rih vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/hirnyk/europa-conference-league/preview/preview-kryvbas-kryvyi-vs-betis-prediction-team-news-lineups_550800.html)
