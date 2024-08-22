@@ -1,3 +1,11 @@
+### carlos tavares (N/A, Thu, 22 Aug 2024 08:50:00 -0700)
+
+- **Stellantis CEO visits US to create plan to reverse lagging profit, sources 
+say**: [Link](https://www.reuters.com/business/autos-transportation/stellantis-ceo-visit-us-create-plan-reverse-lagging-profit-source-says-2024-08-21/)
+- **The wheels are coming off at Stellantis**: [Link](https://qz.com/stellantis-sales-profits-earnings-jeep-cars-1851627703)
+- **Stellantis ‘Starting To Come Apart’ As CEO Flies To Detroit To Salvage Sales**: [Link](https://jalopnik.com/stellantis-starting-to-come-apart-as-ceo-flies-to-det-1851627500)
+
+
 ### حياة الماعز (N/A, Thu, 22 Aug 2024 00:30:00 -0700)
 
 - **هذه قصته.. فيلم سينمائي هندي يثير ضجة وسخطا واسعا بدول خليجية بسبب تمرده 
