@@ -1,3 +1,11 @@
+### one piece 1124 spoilers (N/A, Wed, 21 Aug 2024 21:40:00 -0700)
+
+- **One Piece: Egghead Arc Officially Ends**: [Link](https://gamerant.com/one-piece-egghead-arc-officially-ends/)
+- **One Piece Cliffhanger Finally Sets Up Elbaf Arc Debut**: [Link](https://comicbook.com/anime/news/one-piece-manga-elbaf-arc-cliffhanger/)
+- **One Piece Chapter 1124 full spoilers leaked online, check out release date 
+and time**: [Link](https://www.hindustantimes.com/entertainment/anime/one-piece-chapter-1124-full-spoilers-leaked-online-check-out-release-date-and-time-101724160685504.html)
+
+
 ### abdellatif hammouchi (N/A, Thu, 22 Aug 2024 00:40:00 -0700)
 
 - **La France décore Abdellatif Hammouchi**: [Link](https://www.atalayar.com/fr/articulo/politique/france-decore-abdellatif-hammouchi/20240821123725204321.html)
