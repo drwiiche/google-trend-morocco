@@ -1,3 +1,20 @@
+### naufrage yacht sicile (N/A, Thu, 22 Aug 2024 05:50:00 -0700)
+
+- **Naufrage d’un voilier de luxe en Sicile : six corps retrouvés par des 
+plongeurs, dont celui de Mike Lynch**: [Link](https://www.liberation.fr/international/europe/naufrage-dun-voilier-de-luxe-en-sicile-deux-corps-retrouves-par-des-plongeurs-20240821_PL7KZ6WYGRAWTJKQYPZCF3DOUE/)
+- **"La Méditerranée est moins prévisible": des experts alertent sur les 
+dangers de la mer après le naufrage en...**: [Link](https://www.bfmtv.com/international/europe/italie/la-mediterranee-est-moins-previsible-les-experts-alertent-sur-les-dangers-de-la-mer-apres-le-naufrage-en-sicile_AV-202408210299.html)
+- **Qui est Mike Lynch, « Bill Gates britannique » disparu dans un naufrage ?**: [Link](https://www.20minutes.fr/monde/4106285-20240820-mike-lynch-bill-gates-britannique-disparu-fille-naufrage-voilier-sicile)
+
+
+### الدخول المدرسي (N/A, Thu, 22 Aug 2024 05:00:00 -0700)
+
+- **الدخول المدرسي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-14-1418459.html)
+- **ما حقيقة تأجيل الدخول المدرسي 2024-2025 بالمغرب؟**: [Link](https://almashhad.com/article/459217420284850-entertainment/264002627192157-%D9%85%D8%A7-%D9%87%D9%8A-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-20242025-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+- **تأجيل موعد الدخول المدرسي 2024-2025 بالمغرب وإجازة الـ 10 أيام متتالية.. ما 
+الحقيقة والتفاصيل؟**: [Link](https://trading-secrets.guru/52417/%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%89-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+
+
 ### manuel neuer (N/A, Thu, 22 Aug 2024 04:20:00 -0700)
 
 - **Germany goalkeeper Manuel Neuer retires from international football**: [Link](https://www.theguardian.com/football/article/2024/aug/21/manuel-neuer-retires-internationals-germany)
