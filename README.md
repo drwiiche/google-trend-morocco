@@ -1,3 +1,11 @@
+### جنيفر لوبيز (N/A, Wed, 21 Aug 2024 18:30:00 -0700)
+
+- **بعد سنتين من الزواج.. جينفر لوبيز تطلب الطلاق من بن أفليك**: [Link](https://ar.hibapress.com/details-543513.html)
+- **في ذكرى زواجهما الثاني.. طلاق جينيفر لوبيز من بن أفليك**: [Link](https://kech24.com/%D9%81%D9%8A-%D8%B0%D9%83%D8%B1%D9%89-%D8%B2%D9%88%D8%A7%D8%AC%D9%87%D9%85%D8%A7-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%B7%D9%84%D8%A7%D9%82-%D8%AC%D9%8A%D9%86%D9%8A%D9%81%D8%B1-%D9%84%D9%88%D8%A8%D9%8A%D8%B2-%D9%85%D9%86-%D8%A8%D9%86-%D8%A3%D9%81%D9%84%D9%8A%D9%83.html)
+- **علاقات الحب الطويلة من إليزابيث تايلور إلى جنيفر لوبيز... ما السبب وراء 
+النهايات الحزينة؟**: [Link](https://aawsat.com/%D9%8A%D9%88%D9%85%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%B1%D9%82/5052898-%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%A8-%D8%A7%D9%84%D8%B7%D9%88%D9%8A%D9%84%D8%A9-%D9%85%D9%86-%D8%A5%D9%84%D9%8A%D8%B2%D8%A7%D8%A8%D9%8A%D8%AB-%D8%AA%D8%A7%D9%8A%D9%84%D9%88%D8%B1-%D8%A5%D9%84%D9%89-%D8%AC%D9%86%D9%8A%D9%81%D8%B1-%D9%84%D9%88%D8%A8%D9%8A%D8%B2-%D9%85%D8%A7-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8-%D9%88%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D8%A7%D8%AA)
+
+
 ### cristiano ronaldo (N/A, Wed, 21 Aug 2024 19:20:00 -0700)
 
 - **Cristiano Ronaldo Launches YouTube Channel**: [Link](https://variety.com/2024/digital/global/cristiano-ronaldo-launches-youtube-channel-ur-1236113655/)
