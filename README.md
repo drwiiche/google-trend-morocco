@@ -1,3 +1,11 @@
+### anass zaroury (N/A, Thu, 22 Aug 2024 12:10:00 -0700)
+
+- **Anass Zaroury Signs with Ligue 1’s Racing Club de Lens Until 2028**: [Link](https://www.moroccoworldnews.com/2024/08/364711/anass-zaroury-signs-with-ligue-1s-racing-club-de-lens-until-2028)
+- **Anass Zaroury: Burnley winger joins RC Lens for undisclosed fee**: [Link](https://www.bbc.co.uk/sport/football/articles/ckg2zr8yym4o)
+- **Anass Zaroury becomes 13th departure of Burnley's summer after linking up 
+with French outfit**: [Link](https://www.burnleyexpress.net/sport/football/anass-zaroury-becomes-13th-departure-of-burnleys-summer-after-linking-up-with-french-outfit-4753274)
+
+
 ### النصر (N/A, Thu, 22 Aug 2024 12:30:00 -0700)
 
 - **مباشر مباراة النصر ضد الرائد 1-1 في الدوري السعودي لكرة القدم 2024-2025**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/22/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B1%D8%A7%D8%A6%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
