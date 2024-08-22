@@ -1,3 +1,10 @@
+### safi saïd (N/A, Thu, 22 Aug 2024 10:40:00 -0700)
+
+- **Les détails de l'arrestation de Safi Saïd en Algérie**: [Link](https://www.mosaiquefm.net/fr/actualite-national-tunisie/1304396/les-details-de-l-arrestation-de-safi-said-en-algerie)
+- **Tunisie : Safi Said, ex-candidat à la présidentielle, remis en liberté**: [Link](https://afrique.tv5monde.com/information/tunisie-safi-said-ex-candidat-la-presidentielle-remis-en-liberte)
+- **Tunisie. Présidentielle : Arrestation de l’ex candidat Safi Saïd**: [Link](https://www.lecourrierdelatlas.com/tunisie-presidentielle-arrestation-de-lex-candidat-safi-said/)
+
+
 ### fiorentina – puskás akadémia (N/A, Thu, 22 Aug 2024 10:30:00 -0700)
 
 - **Fiorentina vs Puskás Akadémia: Preview**: [Link](https://www.violanation.com/2024/8/21/24224880/fiorentina-puskas-akademia-conference-league-playoff-preview-predict-lineup-formation-score)
