@@ -1,3 +1,12 @@
+### chelsea (N/A, Thu, 22 Aug 2024 12:10:00 -0700)
+
+- **Raheem Sterling is 'seeking clarity' over his Chelsea future after being 
+DROPPED from matchday squad for Man C**: [Link](https://www.dailymail.co.uk/sport/football/article-13754823/Raheem-Sterling-Chelsea-future-DROPPED-Man-City.html)
+- **Sterling wants permanent move as Maresca continues Chelsea clearout**: [Link](https://www.theguardian.com/football/article/2024/aug/21/sterling-wants-permanent-move-as-maresca-continues-chelsea-clearout)
+- **Chelsea offer Raheem Sterling to Premier League rival as transfer stance 
+made crystal clear**: [Link](https://www.mirror.co.uk/sport/football/transfer-news/chelsea-offer-raheem-sterling-premier-33511887)
+
+
 ### تشيلسي ضد سيرفيت (N/A, Thu, 22 Aug 2024 11:20:00 -0700)
 
 - **جمهور تشيلسي يتوافد على ساحات ملعب ستامفورد بريدج قبل مواجهة سيرفيت**: [Link](https://hihi2.com/2024/08/22/p2807283.html)
