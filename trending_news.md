@@ -1,3 +1,13 @@
+### chelsea vs servette (N/A, Thu, 22 Aug 2024 11:20:00 -0700)
+
+- **Enzo Maresca dealt fresh Chelsea injury concern amid worrying Cole Palmer 
+moment after Servette**: [Link](https://www.football.london/chelsea-fc/news/enzo-maresca-dealt-fresh-chelsea-29794821)
+- **Enzo Maresca press conference LIVE - Chelsea boss on Servette, Christopher 
+Nkunku, Cole Palmer**: [Link](https://www.football.london/chelsea-fc/news/enzo-maresca-press-conference-live-29793915)
+- **Chelsea vs Servette LIVE: Uefa Conference League - live updates, line-ups, 
+score and stats**: [Link](https://www.bbc.com/sport/football/live/c623g3e0885t)
+
+
 ### ligue europa conférence (N/A, Thu, 22 Aug 2024 12:10:00 -0700)
 
 
