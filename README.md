@@ -1,3 +1,18 @@
+### تشيلسي ضد سيرفيت (N/A, Thu, 22 Aug 2024 11:20:00 -0700)
+
+- **جمهور تشيلسي يتوافد على ساحات ملعب ستامفورد بريدج قبل مواجهة سيرفيت**: [Link](https://hihi2.com/2024/08/22/p2807283.html)
+- **تشلسي يتأهب لمواجهة سيرفيت في الدور المؤهل لدوري المؤتمر الأوروبي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%8A%D8%AA%D8%A3%D9%87%D8%A8-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D9%8A%D8%B1%D9%81%D9%8A%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%A4%D9%87%D9%84-%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-2024-08-22)
+- **"طعام سجن" و"انتهاك لاتفاقية جنيف".. وجبة سويسرية تثير غضب جماهير تشلسي**: [Link](https://www.aljazeera.net/sport/2024/8/16/%D8%B7%D8%B9%D8%A7%D9%85-%D8%B3%D8%AC%D9%86-%D9%88%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D9%83-%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A9-%D8%AC%D9%86%D9%8A%D9%81-%D9%88%D8%AC%D8%A8%D8%A9)
+
+
+### chelsea – servette (N/A, Thu, 22 Aug 2024 11:10:00 -0700)
+
+- **Chelsea’s confirmed squad vs Servette | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/chelseas-confirmed-squad-vs-servette)
+- **Chelsea vs Servette Free Bet Offers – UEFA Conference League Qualifying**: [Link](https://www.101greatgoals.com/free-bets/chelsea-vs-servette-free-bet-offers-uefa-conference-league-qualifying/)
+- **Chelsea vs Servette: Get £30 in free bets to spend on tonight’s Conference 
+League play-off with talkSPORT B...**: [Link](https://www.thesun.co.uk/sport/29960636/chelsea-vs-servette-talksport-bet-free-betting-tips/)
+
+
 ### safi saïd (N/A, Thu, 22 Aug 2024 10:40:00 -0700)
 
 - **Les détails de l'arrestation de Safi Saïd en Algérie**: [Link](https://www.mosaiquefm.net/fr/actualite-national-tunisie/1304396/les-details-de-l-arrestation-de-safi-said-en-algerie)
