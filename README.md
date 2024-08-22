@@ -1,3 +1,20 @@
+### pedrinho corinthians (N/A, Wed, 21 Aug 2024 15:10:00 -0700)
+
+- **Presidente de clube marroquino vem ao Brasil e prepara oferta por ‘pacotão’ 
+do Corinthians**: [Link](https://www.itatiaia.com.br/esportes/futebol/corinthians/2024/08/20/presidente-de-clube-marroquino-vem-ao-brasil-e-prepara-oferta-por-pacotao-do-corinthians)
+- **Presidente de clube marroquino anuncia acordo com artilheiro do Sub-20 do 
+Corinthians; veja**: [Link](https://www.meutimao.com.br/noticias-do-corinthians/484709/presidente-de-clube-marroquino-anuncia-acordo-com-artilheiro-do-sub-20-do-corinthians-veja)
+- **Corinthians libera meia Pedrinho a clube do Marrocos e mantém 20% dos 
+direitos**: [Link](https://ge.globo.com/futebol/times/corinthians/noticia/2024/08/21/corinthians-libera-meia-pedrinho-a-clube-do-marrocos-e-mantem-20percent-dos-direitos.ghtml)
+
+
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Wed, 21 Aug 2024 14:50:00 -0700)
+
+- **بنموسى يتهرب من "تسليع التعليم" .. ومجلس المنافسة يطالب بتقييم الجودة**: [Link](https://www.hespress.com/%D8%A8%D9%86%D9%85%D9%88%D8%B3%D9%89-%D9%8A%D8%AA%D9%87%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA%D8%B3%D9%84%D9%8A%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D9%88%D9%85%D8%AC%D9%84%D8%B3-%D8%A7-1418495.html)
+- **المدارس الخاصة تبدأ الموسم بعقد نموذجي مع الأسر.. ما هي مضامينه؟**: [Link](https://snrtnews.com/article/101637)
+- **الدخول المدرسي.. عقد جديد يعيد تشكيل العلاقة بين الأسر والمدارس الخاصة**: [Link](https://febrayer.com/1068116.html)
+
+
 ### هنادي الكندري (N/A, Wed, 21 Aug 2024 15:10:00 -0700)
 
 - **هنادي الكندري تثير الجدل بفيديو إعلان حملها**: [Link](https://www.lahamag.com/article/213875-%D9%87%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%83%D9%86%D8%AF%D8%B1%D9%8A-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A8%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%AD%D9%85%D9%84%D9%87%D8%A7)
