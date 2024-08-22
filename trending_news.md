@@ -1,3 +1,23 @@
+### abdellatif hammouchi (N/A, Thu, 22 Aug 2024 00:40:00 -0700)
+
+- **La France décore Abdellatif Hammouchi**: [Link](https://www.atalayar.com/fr/articulo/politique/france-decore-abdellatif-hammouchi/20240821123725204321.html)
+- **France. Parution au BO de la décoration officielle de Hammouchi de la 
+Médaille d'honneur de la Police Nationale française à titre exceptionnel | 
+L'observateur**: [Link](https://lobservateur.info/article/111593/actualites/france-parution-au-bo-de-la-decoration-officielle-de-hammouchi-de-la-medaille-dhonneur-de-la-police-nationale-francaise-a-titre-exceptionnel)
+- **Le BO français publie la liste des décorations parmi lesquelles figure M. 
+Abdellatif Hammouchi**: [Link](https://lareleve.ma/129272/)
+
+
+### amoxicilline (N/A, Wed, 21 Aug 2024 23:10:00 -0700)
+
+- **Antibiotiques: 110.000 boîtes d'amoxicilline rappelées en raison "de 
+résultats microbiologiques non...**: [Link](https://www.bfmtv.com/sante/antibiotiques-110-000-boites-d-amoxicilline-rappelees-en-raison-de-resultats-microbiologiques-non-conformes_AN-202408200485.html)
+- **Actualité - Défaut qualité de quatre lots d’amoxicilline 1 g comprimé 
+dispersible**: [Link](https://ansm.sante.fr/actualites/defaut-qualite-de-quatre-lots-damoxicilline-1-g-comprime-dispersible)
+- **Rappel d'urgence : 110 000 boîtes d'amoxicilline jugées non conformes en 
+France**: [Link](https://www.doctissimo.fr/medicaments/enjeux-des-medicaments/rappel-durgence-110-000-boites-damoxicilline-jugees-non-conformes-en-france/0fb708_ar.html)
+
+
 ### جنيفر لوبيز (N/A, Wed, 21 Aug 2024 18:30:00 -0700)
 
 - **بعد سنتين من الزواج.. جينفر لوبيز تطلب الطلاق من بن أفليك**: [Link](https://ar.hibapress.com/details-543513.html)
