@@ -1,3 +1,10 @@
+### نادية الجندي (N/A, Fri, 23 Aug 2024 14:40:00 -0700)
+
+- **عمرها قارب على الـ 80 .. نادية الجندي تُشعل مواقع التواصل (صور)**: [Link](https://ar.hibapress.com/details-544130.html)
+- **"شورت قصير"..نادية الجندي تظهر بإطلالة شبابية والجمهور يغازلها (صور)**: [Link](https://www.masrawy.com/arts/zoom/details/2024/8/22/2631434/-%D8%B4%D9%88%D8%B1%D8%AA-%D9%82%D8%B5%D9%8A%D8%B1-%D9%86%D8%A7%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D8%AF%D9%8A-%D8%AA%D8%B8%D9%87%D8%B1-%D8%A8%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A9-%D8%B4%D8%A8%D8%A7%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D9%8A%D8%BA%D8%A7%D8%B2%D9%84%D9%87%D8%A7-%D8%B5%D9%88%D8%B1-)
+- **نادية الجندي تفاجئ الجمهور بإطلالة شبابية جريئة**: [Link](https://www.lahamag.com/article/213988-%D9%86%D8%A7%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D8%AF%D9%8A-%D8%AA%D9%81%D8%A7%D8%AC%D8%A6-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A8%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A9-%D8%B4%D8%A8%D8%A7%D8%A8%D9%8A%D8%A9-%D8%AC%D8%B1%D9%8A%D8%A6%D8%A9)
+
+
 ### leverkusen (N/A, Fri, 23 Aug 2024 12:50:00 -0700)
 
 - **Gladbach - Leverkusen: Sah Wolff Fuss Fledermaus während Pyro-Pause?**: [Link](https://www.bild.de/sport/fussball/gladbach-leverkusen-sah-wolff-fuss-fledermaus-waehrend-pyro-pause-66c8d93d7a5c4250f1a79358)
