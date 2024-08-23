@@ -1,3 +1,11 @@
+### achraf dari (N/A, Fri, 23 Aug 2024 14:10:00 -0700)
+
+- **اتفاق نهائي بين الأهلي المصري وداري**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%88%D8%AF%D8%A7%D8%B1%D9%8A-1420387.html)
+- **قبل حسم انتقاله إلى "الأهلي".. "دراي" يثير ضجة كبرى بـ"مصر" بسبب سلوك غريب 
+(صورة)**: [Link](https://www.akhbarona.com/sport/proplayers/391007.html)
+- **الكشف عن قيمة صفقة انتقال أشرف داري للأهلي**: [Link](https://sport.lesiteinfo.com/internationaux/443047.html)
+
+
 ### نادية الجندي (N/A, Fri, 23 Aug 2024 14:40:00 -0700)
 
 - **عمرها قارب على الـ 80 .. نادية الجندي تُشعل مواقع التواصل (صور)**: [Link](https://ar.hibapress.com/details-544130.html)
