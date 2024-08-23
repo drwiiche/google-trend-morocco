@@ -1,3 +1,12 @@
+### bart de wever (N/A, Fri, 23 Aug 2024 12:50:00 -0700)
+
+- **Koning stelt Maxime Prévot (Les Engagés) aan als bemiddelaar**: [Link](https://www.hln.be/binnenland/koning-stelt-maxime-prevot-les-engages-aan-als-bemiddelaar~a0469103/)
+- **Meerwaardebelasting én de figuur van MR-voorzitter Bouchez: hoe het fout 
+liep in de formatie**: [Link](https://www.vrt.be/vrtnws/nl/2024/08/22/hoe-kon-de-formatie-foutlopen/)
+- **Ondanks alles is er toch hoop voor Arizona, en die moet de koning levend 
+houden**: [Link](https://www.nieuwsblad.be/cnt/dmf20240822_97671506)
+
+
 ### sevilla vs villarreal (N/A, Fri, 23 Aug 2024 12:40:00 -0700)
 
 - **Preview: Sevilla vs. Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/preview/preview-sevilla-vs-villarreal-prediction-team-news-lineups_550860.html)
