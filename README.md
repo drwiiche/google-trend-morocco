@@ -1,3 +1,11 @@
+### mönchengladbach vs leverkusen (N/A, Fri, 23 Aug 2024 12:20:00 -0700)
+
+- **Gladbach vs. Leverkusen preview: Team news and predicted lineups**: [Link](https://bulinews.com/gladbach-leverkusen-preview-team-news-and-predicted-lineups)
+- **Preview: Borussia Monchengladbach vs. Bayer Leverkusen - prediction, team 
+news, lineups**: [Link](https://www.sportsmole.co.uk/football/borussia-monchengladbach/preview/preview-borussia-mbach-vs-bpoint-leverkusen-prediction-team-news-lineups_550872.html)
+- **Granit Xhaka to score from outside the area tonight boosted to 16/1**: [Link](https://www.dailymail.co.uk/sport/skybet/article-13756691/Granit-Xhaka-Bayer-Leverkusen-Bundesliga.html)
+
+
 ### بوروسيا مونشنغلادباخ ضد ليفركوزن (N/A, Fri, 23 Aug 2024 12:10:00 -0700)
 
 - **ليفركوزن بالقوة الضاربة في افتتاح البوندسليجا أمام جلادباخ**: [Link](https://www.kooora.com/?n=1349925)
