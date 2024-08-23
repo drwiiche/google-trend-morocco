@@ -1,3 +1,10 @@
+### munir el haddadi (N/A, Thu, 22 Aug 2024 17:00:00 -0700)
+
+- **Munir El Haddadi rebondit à Leganés**: [Link](https://www.footmercato.net/a2778368942162714631-munir-el-haddadi-rebondit-a-leganes)
+- **Munir El Haddadi, 8ème recrue pour les “Pepineros” ?**: [Link](https://www.mountakhab.net/munir-el-haddadi-8eme-recrue-pour-les-pepineros/)
+- **Leganés : El Haddadi jusqu'en 2026 (officiel)**: [Link](https://m.maxifoot.fr/leganes/el-haddadi-jusqu-en-2026-officiel-foot-417773.htm)
+
+
 ### pissevin (N/A, Thu, 22 Aug 2024 13:30:00 -0700)
 
 - **A Nîmes, le trafic de drogue demeure, mais de façon plus discrète, un an 
