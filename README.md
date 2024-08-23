@@ -1,3 +1,28 @@
+### wydad (N/A, Fri, 23 Aug 2024 07:00:00 -0700)
+
+- **Officiel: le Wydad recrute un Brésilien**: [Link](https://sport.le360.ma/maroc/officiel-le-wydad-recrute-un-bresilien-113893)
+- **Mercato : Après Mailula, le Wydad de Casablanca signe Pedrinho**: [Link](https://lematin.ma/sports/mercato-apres-mailula-le-wydad-de-casablanca-signe-pedrinho/239949)
+- **Arrivée du Brésilien Pedro Henrique de Assis au Wydad Athletic Club**: [Link](https://mobile.telquel.ma/instant-t/2024/08/22/arrivee-du-bresilien-pedro-henrique-de-assis-au-wydad-athletic-club_1889996/)
+
+
+### premier ministre emmanuel macron (N/A, Fri, 23 Aug 2024 06:40:00 -0700)
+
+- **En direct, nouveau premier ministre : les consultations avec le camp 
+présidentiel sont terminées, Emmanuel Macron va recevoir les chefs de file 
+de la droite**: [Link](https://www.lemonde.fr/politique/live/2024/08/23/en-direct-nouveau-premier-ministre-les-consultations-avec-le-camp-presidentiel-sont-terminees-emmanuel-macron-va-recevoir-les-chefs-de-file-de-la-droite_6291289_823448.html)
+- **Nouveau gouvernement : Emmanuel Macron s'entretient à l'Elysée avec la 
+droite menée par Laurent Wauquiez**: [Link](https://www.francetvinfo.fr/politique/direct-nouveau-premier-ministre-emmanuel-macron-debute-ses-rencontres-a-10-heures-en-recevant-lucie-castets-et-les-leaders-du-nouveau-front-populaire_6737808.html)
+- **Consultations pour Matignon : Lucie Castets (NFP) «satisfaite» de sa 
+rencontre avec Emmanuel Macron**: [Link](https://www.lefigaro.fr/politique/consultations-pour-matignon-lucie-castets-nfp-satisfaite-de-sa-rencontre-avec-emmanuel-macron-20240823)
+
+
+### f1 (N/A, Fri, 23 Aug 2024 04:40:00 -0700)
+
+- **2024 Ducth Grand Prixview**: [Link](https://www.visacashapprb.com/en/2024-ducth-grand-prixview/)
+- **F1 – Norris beats Verstappen to top of FP1 timesheet at Zandvoort**: [Link](https://www.fia.com/news/f1-norris-beats-verstappen-top-fp1-timesheet-zandvoort)
+- **The Dutch GP Briefing - powered by Google Cloud**: [Link](https://www.mclaren.com/racing/formula-1/2024/dutch-grand-prix/the-dutch-gp-briefing-powered-by-google-cloud/)
+
+
 ### وزارة الأوقاف والشؤون الإسلامية (N/A, Fri, 23 Aug 2024 05:40:00 -0700)
 
 - **حج مبرور وذنب مغفور "habous.gov.ma" .. رابط الاستعلام عن نتائج قرعة الحج 
