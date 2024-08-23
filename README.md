@@ -1,3 +1,10 @@
+### leverkusen (N/A, Fri, 23 Aug 2024 12:50:00 -0700)
+
+- **Gladbach - Leverkusen: Sah Wolff Fuss Fledermaus während Pyro-Pause?**: [Link](https://www.bild.de/sport/fussball/gladbach-leverkusen-sah-wolff-fuss-fledermaus-waehrend-pyro-pause-66c8d93d7a5c4250f1a79358)
+- **Leverkusen und das verflixte Jahr nach dem Titel**: [Link](https://www.sportschau.de/fussball/bundesliga/das-verflixte-jahr-nach-der-ueberraschungsmeisterschaft,fussball-1338.html)
+- **Bundesliga: Mission Titelverteidigung - Diese Baustellen hat Leverkusen**: [Link](https://www.ran.de/sports/fussball/bundesliga/news/bundesliga-mission-titelverteidigung-diese-baustellen-hat-leverkusen-421723)
+
+
 ### باريس سان جيرمان (N/A, Fri, 23 Aug 2024 13:20:00 -0700)
 
 - **إنريكي يستبعد 5 أسماء بارزة من قائمة باريس**: [Link](https://www.kooora.com/?n=1349809)
