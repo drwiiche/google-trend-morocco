@@ -1,3 +1,10 @@
+### safi said tunisie (N/A, Fri, 23 Aug 2024 01:40:00 -0700)
+
+- **Tunisie: remise en liberté de Safi Said, ex-candidat à la présidentielle**: [Link](https://www.h24info.ma/tunisie-remise-en-liberte-de-safi-said-ex-candidat-a-la-presidentielle/)
+- **Les détails de l'arrestation de Safi Saïd en Algérie**: [Link](https://www.mosaiquefm.net/fr/actualite-national-tunisie/1304396/les-details-de-l-arrestation-de-safi-said-en-algerie)
+- **Tunisie. Présidentielle : Arrestation de l’ex candidat Safi Saïd**: [Link](https://www.lecourrierdelatlas.com/tunisie-presidentielle-arrestation-de-lex-candidat-safi-said/)
+
+
 ### premier ministre karim bouamrane (N/A, Thu, 22 Aug 2024 23:10:00 -0700)
 
 - **Karim Bouamrane (PS), cité pour Matignon : « Le compromis est le seul chemin pour sauver la France**: [Link](https://www.lavoixdunord.fr/1494302/article/2024-08-21/karim-bouamrane-ps-cite-pour-matignon-le-compromis-est-le-seul-chemin-pour)
