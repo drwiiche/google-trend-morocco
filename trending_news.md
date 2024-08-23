@@ -1,3 +1,12 @@
+### aljazeera net (N/A, Thu, 22 Aug 2024 23:10:00 -0700)
+
+- **الحرب على غزة مباشر.. شهداء وجرحى بقصف وسط القطاع وجنوبه وإطلاق مستمر 
+للصواريخ من جنوب لبنان**: [Link](https://www.aljazeera.net/news/liveblog/2024/8/22/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%8A%D8%B1%D8%A7%D9%83%D9%85)
+- **حرب غزة: مواصلة الغارات الإسرائيلية على عدة مناطق في القطاع، ومسيرات 
+استخبارية لحزب الله تحلق فوق إسرائيل**: [Link](https://www.bbc.com/arabic/articles/cvg502dg2r1o)
+- **مجازر في غزة أكثرها وحشية في المغازي وبيت لاهيا**: [Link](https://www.alquds.co.uk/%D9%85%D8%AC%D8%A7%D8%B2%D8%B1-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9-%D8%A3%D9%83%D8%AB%D8%B1%D9%87%D8%A7-%D9%88%D8%AD%D8%B4%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B2%D9%8A-%D9%88%D8%A8/)
+
+
 ### venezuela (N/A, Fri, 23 Aug 2024 02:00:00 -0700)
 
 - **Maduro re-election: Venezuelan court upholds president's victory**: [Link](https://www.bbc.com/news/articles/c3w658z4403o)
