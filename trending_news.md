@@ -1,3 +1,13 @@
+### maduro (N/A, Fri, 23 Aug 2024 15:30:00 -0700)
+
+- **Regime-dominated Venezuelan Supreme Court rules Maduro election winner 
+despite allegations of fraud**: [Link](https://www.foxnews.com/world/regime-dominated-venezuelan-supreme-court-rules-maduro-election-winner-despite-allegations-fraud)
+- **Venezuela Supreme Court validates Maduro's re-election amid claims of vote 
+fraud**: [Link](https://www.france24.com/en/americas/20240822-venezuela-supreme-court-validates-maduro-s-reelection-amid-claims-of-vote-rigging)
+- **Venezuela’s Supreme Court certifies Maduro’s claims that he won 
+presidential election**: [Link](https://www.nbcnews.com/news/latino/venezuelas-supreme-court-certifies-maduros-claims-won-presidential-ele-rcna168020)
+
+
 ### achraf dari (N/A, Fri, 23 Aug 2024 14:10:00 -0700)
 
 - **اتفاق نهائي بين الأهلي المصري وداري**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%88%D8%AF%D8%A7%D8%B1%D9%8A-1420387.html)
