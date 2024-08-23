@@ -1,3 +1,11 @@
+### nasr (N/A, Thu, 22 Aug 2024 13:10:00 -0700)
+
+- **Al-Nasr wants to include Wesley Gasova**: [Link](https://www.ysscores.com/en/news/2993395/Al-Nasr-wants-to-include-Wesley-Gasova)
+- **Al Ain’s Soufiane Rahimi on the radar of Saudi giants**: [Link](https://africanfootball.com/news/820065/Al-Ains-Soufiane-Rahimi-on-the-radar-of-Saudi-giants)
+- **Al-Nassr launch bid for Brazilian forward to help Cristiano Ronaldo in 
+attack - Reports**: [Link](https://www.sportskeeda.com/football/rumor-al-nassr-launch-bid-brazilian-forward-help-cristiano-ronaldo-attack-reports)
+
+
 ### raheem sterling (N/A, Thu, 22 Aug 2024 13:40:00 -0700)
 
 - **Raheem Sterling humiliated by Chelsea after shirt number stripped and 
