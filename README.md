@@ -1,3 +1,28 @@
+### sevilla vs villarreal (N/A, Fri, 23 Aug 2024 12:40:00 -0700)
+
+- **Preview: Sevilla vs. Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/preview/preview-sevilla-vs-villarreal-prediction-team-news-lineups_550860.html)
+- **Sevilla vs Villarreal Prediction prediction and betting tips on August 23, 
+2024**: [Link](https://ratingbet.com/predictions/sevilla-vs-villarreal-prediction-prediction-and-betting-tips-on-august-23-2024/)
+- **Sevilla vs Villarreal Prediction, 8/23/2024 La Liga Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/sevilla-vs-villarreal-prediction-8-23-2024-la-liga-soccer-pick-tips-and-odds.html)
+
+
+### villarreal (N/A, Fri, 23 Aug 2024 12:40:00 -0700)
+
+- **NERVIÓN, AQUÍ ESTAMOS OTRA VEZ**: [Link](http://sevillafc.es/actualidad/noticias/previa-sevilla-fc-villarreal-cf-2425)
+- **Canal Sur ofrecerá esta campaña partidos de Primera División**: [Link](https://www.diariosur.es/deportes/futbol/canalsur-cerca-acuerdo-television-laliga-diezpartidos-futbol-20240822165933-nt.html)
+- **Luiz Junior, Logan Costa y Thierno Barry entran en la convocatoria**: [Link](https://www.futbolfantasy.com/laliga/noticias/118944-luiz-junior-logan-costa-y-thierno-barry-entran-en-la-convocatoria)
+
+
+### bayer leverkusen (N/A, Fri, 23 Aug 2024 12:10:00 -0700)
+
+- **Can lightning strike twice? Can Bayer Leverkusen defend their Bundesliga 
+crown?**: [Link](https://www.espn.com/soccer/insider/story/_/id/40917906/can-bayer-leverkusen-defend-their-bundesliga-crown)
+- **Bundesliga 2024/25 previews**: [Link](https://www.bundesliga.com/en/bundesliga/news/2024-25-season-preview-leverkusen-bayern-dortmund-leipzig-28508)
+- **Bundesliga 2024-25: Bayer Leverkusen to retain title or will Bayern Munich 
+bounce back?**: [Link](https://www.bbc.com/sport/football/articles/cn9l17nv8npo)
+
+
 ### mönchengladbach vs leverkusen (N/A, Fri, 23 Aug 2024 12:20:00 -0700)
 
 - **Gladbach vs. Leverkusen preview: Team news and predicted lineups**: [Link](https://bulinews.com/gladbach-leverkusen-preview-team-news-and-predicted-lineups)
