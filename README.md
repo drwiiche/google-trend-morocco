@@ -1,3 +1,10 @@
+### باريس سان جيرمان (N/A, Fri, 23 Aug 2024 13:20:00 -0700)
+
+- **إنريكي يستبعد 5 أسماء بارزة من قائمة باريس**: [Link](https://www.kooora.com/?n=1349809)
+- **تقييم لاعبو باريس سان جيرمان في الشوط الاول**: [Link](https://hihi2.com/2024/08/23/p2809524.html)
+- **بطولة فرنسا: سان جرمان ينشد الثبات عندما يستضيف مونبلييه**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20240822-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D9%86%D8%B4%D8%AF-%D8%A7%D9%84%D8%AB%D8%A8%D8%A7%D8%AA-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D9%85%D9%88%D9%86%D8%A8%D9%84%D9%8A%D9%8A%D9%87)
+
+
 ### sevilla (N/A, Fri, 23 Aug 2024 13:10:00 -0700)
 
 - **Valentín Barco ya está en Sevilla**: [Link](https://www.marca.com/futbol/sevilla/2024/08/22/66c76c7322601db9098b45b3.html)
