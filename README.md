@@ -1,3 +1,28 @@
+### وزارة الأوقاف والشؤون الإسلامية (N/A, Fri, 23 Aug 2024 05:40:00 -0700)
+
+- **حج مبرور وذنب مغفور "habous.gov.ma" .. رابط الاستعلام عن نتائج قرعة الحج 
+2025 في المغرب والشروط اللازمة من وزارة الأوقاف والشؤون الإسلامية**: [Link](https://www.elsob7.com/1009158/%D8%B1%D8%A7%D8%A8%D8%B7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D9%84%D8%A7%D9%85-%D8%B9%D9%86-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%82%D8%B1%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%AC-2025-%D9%81%D9%8A-%D8%A7/)
+- **“اسمك موجود” رابط الاستعلام عن نتائج قرعة الحج 2025 المغرب عبر 
+habous.gov.ma.. حج مبرور**: [Link](https://www.sports-leb.com/17543/%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D9%84%D8%A7%D9%85-%D8%B9%D9%86-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%82%D8%B1%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%AC-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+- **"شوف لو اسمك منهم!!" رابط الاستعلام عن نتائج قرعة الحج 2025 في المغرب 
+والشروط الواجب توافرها**: [Link](https://news.elbadil.com/609724/%D8%B4%D9%88%D9%81-%D9%84%D9%88-%D8%A7%D8%B3%D9%85%D9%83-%D9%85%D9%86%D9%87%D9%85-%D8%B1%D8%A7%D8%A8%D8%B7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D9%84%D8%A7%D9%85-%D8%B9%D9%86-%D9%86%D8%AA%D8%A7/)
+
+
+### bellingham (N/A, Fri, 23 Aug 2024 05:10:00 -0700)
+
+- **Bellingham set for month out with lower leg injury**: [Link](https://www.nytimes.com/athletic/5718838/2024/08/23/real-madrid-jude-bellingham-injury/)
+- **Official: Real Madrid talisman suffers leg injury; ruled out for one month**: [Link](https://madriduniversal.com/official-real-madrid-talisman-suffers-leg-injury-ruled-out-for-one-month/)
+- **Real Madrid superstar a doubt for Valladolid clash after training knock**: [Link](https://sports.yahoo.com/real-madrid-superstar-doubt-valladolid-111800398.html)
+
+
+### mike lynch yacht (N/A, Fri, 23 Aug 2024 04:00:00 -0700)
+
+- **What we know about the sinking of the superyacht off Sicily**: [Link](https://www.reuters.com/world/europe/what-we-know-about-sinking-superyacht-off-sicily-2024-08-20/)
+- **Body of UK tech tycoon's daughter found in yacht wreck**: [Link](https://www.bbc.com/news/articles/c985d6ypv4lo)
+- **Superyacht sinks latest: Tributes pour in for Mike Lynch and his daughter 
+Hannah; divers recover body of final missing person**: [Link](https://news.sky.com/story/superyacht-sinks-latest-mike-lynch-bayesian-sicily-skynews-live-13199663)
+
+
 ### حميد الشاعري (N/A, Fri, 23 Aug 2024 04:50:00 -0700)
 
 - **"سب وبصق".. مشادة بين حميد الشاعري وحلاق يوثقها فيديو**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/08/22/-%D8%B3%D8%A8-%D9%88%D8%A8%D8%B5%D9%82-%D9%85%D8%B4%D8%A7%D8%AF%D8%A9-%D8%A8%D9%8A%D9%86-%D8%AD%D9%85%D9%8A%D8%AF-%D8%A7%D9%84%D8%B4%D8%A7%D8%B9%D8%B1%D9%8A-%D9%88%D8%AD%D9%84%D8%A7%D9%82-%D9%8A%D9%88%D8%AB%D9%82%D9%87%D8%A7-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
