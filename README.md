@@ -1,3 +1,18 @@
+### federico chiesa (N/A, Fri, 23 Aug 2024 08:30:00 -0700)
+
+- **Juventus winger ‘limits comments’ after Barcelona fans raid his social media**: [Link](https://barcauniversal.com/juventus-winger-limits-comments-after-barcelona-fans-raid-his-social-media/)
+- **Federico Chiesa set for shock cut-price Barcelona transfer with Juventus 
+desperate to shift winger**: [Link](https://www.goal.com/en-gb/lists/federico-chiesa-barcelona-transfer-juventus-desperate-to-shift-winger/blt313089cb951c0687)
+- **Ex-Barcelona captain examines pros and cons of signing Chiesa from Juventus**: [Link](https://football-italia.net/chiesa-barcelona-pros-cons-examine-captain/)
+
+
+### تاجيل الدخول المدرسي (N/A, Fri, 23 Aug 2024 06:30:00 -0700)
+
+- **الدخول المدرسي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-14-1418459.html)
+- **✅ هذه حقيقة تأجيل موعد الدخول المدرسى 2024-2025 بالمغرب**: [Link](https://tanja24.com/%D9%87%D8%B0%D9%87-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%89-2024-2025/)
+- **تاريخ التحاق الأساتذة والتلاميذ بالمدارس**: [Link](https://ar.lesiteinfo.com/maroc/%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%AA%D8%AD%D8%A7%D9%82-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%AA%D8%B0%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D9%85%D9%8A%D8%B0-%D8%A8%D8%A7%D9%84%D9%85-874756.html)
+
+
 ### saudia airlines (N/A, Fri, 23 Aug 2024 07:10:00 -0700)
 
 - **Saudia offers up to 50% off on International Flights**: [Link](http://travelbizmonitor.com/saudia-offers-up-to-50-off-on-international-flights/)
