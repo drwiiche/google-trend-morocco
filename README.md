@@ -1,3 +1,10 @@
+### premier ministre karim bouamrane (N/A, Thu, 22 Aug 2024 23:10:00 -0700)
+
+- **Karim Bouamrane (PS), cité pour Matignon : « Le compromis est le seul chemin pour sauver la France**: [Link](https://www.lavoixdunord.fr/1494302/article/2024-08-21/karim-bouamrane-ps-cite-pour-matignon-le-compromis-est-le-seul-chemin-pour)
+- **Karim Bouamrane pourrait-il devenir le 1er Premier ministre français d'origine marocaine ?**: [Link](https://fr.hespress.com/383064-karim-bouamrane-pourrait-il-devenir-le-1er-premier-ministre-francais-dorigine-marocaine.html)
+- **Karim Bouamrane, la « hype » soudaine d’un maire PS que certains voient à Matignon**: [Link](https://www.lemonde.fr/politique/article/2024/08/21/choix-du-premier-ministre-la-hype-soudaine-de-karim-bouamrane_6288956_823448.html)
+
+
 ### nasr (N/A, Thu, 22 Aug 2024 13:10:00 -0700)
 
 - **Al-Nasr wants to include Wesley Gasova**: [Link](https://www.ysscores.com/en/news/2993395/Al-Nasr-wants-to-include-Wesley-Gasova)
