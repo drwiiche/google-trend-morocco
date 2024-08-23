@@ -1,3 +1,19 @@
+### paulo dybala (N/A, Fri, 23 Aug 2024 09:30:00 -0700)
+
+- **Dybala commits to Roma, rejects big Saudi offer**: [Link](https://www.espn.com/soccer/story/_/id/40956739/paulo-dybala-stay-roma-rejects-saudi-transfer-al-qadsiah)
+- **Nainggolan talks Dybala's shocking turnaround, De Rossi's first year as 
+Roma head coach and more**: [Link](https://romapress.net/nainggolan-talks-dybalas-shocking-turnaround-de-rossis-first-year-as-roma-head-coach-and-more/)
+- **‘Even Totti would put in a good word’ for Dybala’s No. 10 at Roma**: [Link](https://football-italia.net/totti-put-in-good-word-dybala-n-10-roma/)
+
+
+### celta vigo – valence (N/A, Fri, 23 Aug 2024 09:10:00 -0700)
+
+- **Pronostic Celta Vigo Valence : Analyse, cotes et prono du match de Liga**: [Link](https://www.sofoot.com/breves/pronostic-celta-vigo-valence-analyse-cotes-et-prono-du-match-de-liga)
+- **La Liga : Celta vs Valencia : Sur quelles chaînes TV suivre le match en 
+direct ?**: [Link](https://africafootunited.com/la-liga-celta-vs-valencia-sur-quelles-chaines-tv-suivre-le-match-en-direct/)
+- **Pronostic Celta Vigo - Valence, Liga**: [Link](https://www.sportytrader.com/pronostics/celta-vigo-valence-211010/)
+
+
 ### federico chiesa (N/A, Fri, 23 Aug 2024 08:30:00 -0700)
 
 - **Juventus winger ‘limits comments’ after Barcelona fans raid his social media**: [Link](https://barcauniversal.com/juventus-winger-limits-comments-after-barcelona-fans-raid-his-social-media/)
