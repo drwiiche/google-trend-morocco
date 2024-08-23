@@ -1,3 +1,26 @@
+### celta vigo vs valencia (N/A, Fri, 23 Aug 2024 11:00:00 -0700)
+
+- **Preview: Celta Vigo vs. Valencia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/celta-vigo/preview/preview-celta-vigo-vs-valencia-prediction-team-news-lineups_550858.html)
+- **Celta vs Valencia prediction and betting tips on August 23, 2024**: [Link](https://ratingbet.com/predictions/celta-vs-valencia-prediction-and-betting-tips-on-august-23-2024/)
+- **Match Preview: Valencia CF vs FC Barcelona**: [Link](https://www.valenciacf.com/match-preview-valencia-cf-vs-fc-barcelona)
+
+
+### celta de vigo - valencia c. f. (N/A, Fri, 23 Aug 2024 11:00:00 -0700)
+
+- **CENTRAL DE DATOS DEL RC CELTA-VALENCIA CF**: [Link](https://www.valenciacf.com/central-de-datos-del-rc-celta-valencia-cf1)
+- **#VCF | Baraja repite once en Balaídos**: [Link](https://plazadeportiva.valenciaplaza.com/baraja-repite-once-en-balaidos)
+- **Al menos un cambio por línea para un partido entre dos rivales con estilo 
+definido**: [Link](https://www.lavozdegalicia.es/noticia/gradario/2024/08/23/cambio-linea-partido-dos-rivales-estilo-definido/0003_202408V23P27992.htm)
+
+
+### mönchengladbach – leverkusen (N/A, Fri, 23 Aug 2024 10:40:00 -0700)
+
+- **WDR-Sport: Bundesliga startet wieder: So können Nicht-Fußball-Fans mitreden**: [Link](https://www.sportschau.de/regional/wdr/wdr-bundesliga-startet-wieder-so-koennen-nicht-fussball-fans-mitreden-100.html)
+- **Bundesligavorschau: Schlag den Xabi**: [Link](https://www.zeit.de/sport/2024-08/bundesliga-vorschau-erster-spieltag-bayer-04-leverkusen-borussia-moenchengladbach-xabi-alonso)
+- **Neuer Meister, frischer BVB und Langeweile-Gefahr – sieben Thesen zur 
+Bundesliga**: [Link](https://www.stern.de/sport/fussball/sieben-thesen-zum-bundesligastart--neuer-meister-und-langeweile-gefahr-35002658.html)
+
+
 ### paulo dybala (N/A, Fri, 23 Aug 2024 09:30:00 -0700)
 
 - **Dybala commits to Roma, rejects big Saudi offer**: [Link](https://www.espn.com/soccer/story/_/id/40956739/paulo-dybala-stay-roma-rejects-saudi-transfer-al-qadsiah)
