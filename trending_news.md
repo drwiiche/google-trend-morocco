@@ -1,3 +1,10 @@
+### حميد الشاعري (N/A, Fri, 23 Aug 2024 04:50:00 -0700)
+
+- **"سب وبصق".. مشادة بين حميد الشاعري وحلاق يوثقها فيديو**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/08/22/-%D8%B3%D8%A8-%D9%88%D8%A8%D8%B5%D9%82-%D9%85%D8%B4%D8%A7%D8%AF%D8%A9-%D8%A8%D9%8A%D9%86-%D8%AD%D9%85%D9%8A%D8%AF-%D8%A7%D9%84%D8%B4%D8%A7%D8%B9%D8%B1%D9%8A-%D9%88%D8%AD%D9%84%D8%A7%D9%82-%D9%8A%D9%88%D8%AB%D9%82%D9%87%D8%A7-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+- **بعد محمد فؤاد.. الفنان حميد الشاعري يهاجم حلاقا بسبب "قصة شعر"**: [Link](https://ar.hibapress.com/details-543813.html)
+- **شاهد.. حميد الشاعري يعتدي على حلاقه داخل الصالون**: [Link](https://almesryoon.com/Section_439/%D8%A2%D8%AE%D8%B1-%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B4%D8%A7%D9%87%D8%AF-%D8%AD%D9%85%D9%8A%D8%AF-%D8%A7%D9%84%D8%B4%D8%A7%D8%B9%D8%B1%D9%8A-%D9%8A%D8%B9%D8%AA%D8%AF%D9%8A-%D8%B9%D9%84%D9%89-%D8%AD%D9%84%D8%A7%D9%82%D9%87-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D8%B5%D8%A7%D9%84%D9%88%D9%86_1346726)
+
+
 ### gundogan (N/A, Fri, 23 Aug 2024 03:50:00 -0700)
 
 - **City reach agreement with Gundogan over return to Etihad Stadium**: [Link](https://www.nytimes.com/athletic/5711610/2024/08/21/manchester-city-ilkay-gundogan-barcelona/)
