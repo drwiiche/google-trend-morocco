@@ -1,3 +1,10 @@
+### gundogan (N/A, Fri, 23 Aug 2024 03:50:00 -0700)
+
+- **City reach agreement with Gundogan over return to Etihad Stadium**: [Link](https://www.nytimes.com/athletic/5711610/2024/08/21/manchester-city-ilkay-gundogan-barcelona/)
+- **Football transfers latest as Gundogan heads to Manchester**: [Link](https://www.bbc.com/sport/football/live/cql30q9kllwt)
+- **Toni Kroos's Viral Comment on Gündogan's Departure**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/toni-kroos-s-viral-comment-on-g%C3%BCndogan-s-departure-2024-08-21)
+
+
 ### endrick real madrid (N/A, Fri, 23 Aug 2024 03:00:00 -0700)
 
 - **Endrick already considering Real Madrid exit as Brazilian wonderkid comes 
