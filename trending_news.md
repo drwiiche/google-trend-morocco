@@ -1,3 +1,11 @@
+### raheem sterling (N/A, Thu, 22 Aug 2024 13:40:00 -0700)
+
+- **Raheem Sterling humiliated by Chelsea after shirt number stripped and 
+first-team banishment**: [Link](https://www.telegraph.co.uk/football/2024/08/21/raheem-sterling-banished-chelsea-bomb-squad-ben-chilwell/)
+- **Fabrizio Romano confirms transfer-linked Chelsea duo are ostracised**: [Link](https://theprideoflondon.com/posts/fabrizio-romano-transfer-linked-chelsea-duo-ostracised)
+- **Enzo Maresca trying to navigate Chelsea’s bloated squad with brutal honesty**: [Link](https://weaintgotnohistory.sbnation.com/2024/8/22/24225878/enzo-maresca-trying-to-navigate-chelseas-bloated-squad-with-brutal-honesty)
+
+
 ### munir el haddadi (N/A, Thu, 22 Aug 2024 17:00:00 -0700)
 
 - **Munir El Haddadi rebondit à Leganés**: [Link](https://www.footmercato.net/a2778368942162714631-munir-el-haddadi-rebondit-a-leganes)
