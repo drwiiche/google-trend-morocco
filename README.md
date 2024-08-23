@@ -1,3 +1,12 @@
+### sevilla (N/A, Fri, 23 Aug 2024 13:10:00 -0700)
+
+- **Valentín Barco ya está en Sevilla**: [Link](https://www.marca.com/futbol/sevilla/2024/08/22/66c76c7322601db9098b45b3.html)
+- **Con imágenes de Diego Maradona y exfutbolistas de River: así se presentó a 
+Valentín Barco en su nuevo club**: [Link](https://tn.com.ar/deportes/2024/08/23/con-imagenes-de-diego-maradona-y-exfutbolistas-de-river-el-sevilla-presento-a-valentin-barco/)
+- **Riquelme dejó que se vaya: el ex jugador de Boca Juniors que cambió de club 
+en Europa**: [Link](https://www.pasionfutbol.com/fichajes/Riquelme-dejo-que-se-vaya-el-ex-jugador-de-Boca-Juniors-que-cambio-de-club-en-Europa-20240823-0019.html)
+
+
 ### bart de wever (N/A, Fri, 23 Aug 2024 12:50:00 -0700)
 
 - **Koning stelt Maxime Prévot (Les Engagés) aan als bemiddelaar**: [Link](https://www.hln.be/binnenland/koning-stelt-maxime-prevot-les-engages-aan-als-bemiddelaar~a0469103/)
