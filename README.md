@@ -1,3 +1,19 @@
+### endrick real madrid (N/A, Fri, 23 Aug 2024 03:00:00 -0700)
+
+- **Endrick already considering Real Madrid exit as Brazilian wonderkid comes 
+up with 'Plan B' following Kylian Mbappe's arrival from PSG**: [Link](https://www.goal.com/en-us/lists/endrick-considering-real-madrid-exit-brazilian-wonderkid-plan-b-kylian-mbappe-arrival/bltfbb3fa7b8f677182)
+- **Real Madrid star considers surprisingly early transfer exit**: [Link](https://therealchamps.com/posts/real-madrid-star-considers-surprisingly-early-transfer-exit)
+- **Endrick Felipe considering immediate Real Madrid departure due to lack of 
+prominence**: [Link](https://www.football-espana.net/2024/08/20/endrick-felipe-considering-immediate-real-madrid-departure-due-to-lack-of-prominence)
+
+
+### الدعم الاجتماعي المباشر (N/A, Thu, 22 Aug 2024 13:30:00 -0700)
+
+- **تاريخ بداية الإحصاء العام للسكان والدخول المدرسي**: [Link](https://www.analkhabar.com/%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%84%D9%84%D8%B3%D9%83%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D8%AF/)
+- **الحليمي: وفرنا كافة الشروط الضرورية لإنجاح عملية الإحصاء**: [Link](https://ar.hibapress.com/details-544058.html)
+- **حسن الفد**: [Link](https://febrayer.com/1068531.html)
+
+
 ### agadir24 (N/A, Thu, 22 Aug 2024 23:00:00 -0700)
 
 - **أكادير تستعد لإفتتاح أكبر مستشفى جامعي بوسط وجنوب المملكة بتجهيزات حديثة 
