@@ -1,3 +1,12 @@
+### venezuela (N/A, Fri, 23 Aug 2024 02:00:00 -0700)
+
+- **Maduro re-election: Venezuelan court upholds president's victory**: [Link](https://www.bbc.com/news/articles/c3w658z4403o)
+- **Venezuela Supreme Court validates Maduro's reelection amid claims of vote 
+rigging**: [Link](https://www.france24.com/en/americas/20240822-venezuela-supreme-court-validates-maduro-s-reelection-amid-claims-of-vote-rigging)
+- **Venezuela’s Supreme Court certifies Maduro’s claims that he won 
+presidential election**: [Link](https://www.yahoo.com/news/venezuela-supreme-court-certifies-maduro-164101119.html)
+
+
 ### safi said tunisie (N/A, Fri, 23 Aug 2024 01:40:00 -0700)
 
 - **Tunisie: remise en liberté de Safi Said, ex-candidat à la présidentielle**: [Link](https://www.h24info.ma/tunisie-remise-en-liberte-de-safi-said-ex-candidat-a-la-presidentielle/)
