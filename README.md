@@ -1,3 +1,18 @@
+### بوروسيا مونشنغلادباخ ضد ليفركوزن (N/A, Fri, 23 Aug 2024 12:10:00 -0700)
+
+- **ليفركوزن بالقوة الضاربة في افتتاح البوندسليجا أمام جلادباخ**: [Link](https://www.kooora.com/?n=1349925)
+- **تشكيلة باير ليفركوزن الرسمية لمباراة بوروسيا مونشنجلادباخ**: [Link](https://hihi2.com/2024/08/23/p2809324.html)
+- **ألونسو: إنجازنا أصبح من الماضي وبايرن مرشح للتتويج بلقب هذا الموسم**: [Link](https://www.aljazeera.net/sport/2024/8/22/%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2%D9%86%D8%A7-%D8%A3%D8%B5%D8%A8%D8%AD-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A-%D9%88%D8%A8%D8%A7%D9%8A%D8%B1%D9%86)
+
+
+### francis ngannou (N/A, Fri, 23 Aug 2024 10:50:00 -0700)
+
+- **Dana White takes 'full responsibility' for erasing Francis Ngannou's name 
+from UFC 305 promotion videos as he issues apology**: [Link](https://bloodyelbow.com/2024/08/21/dana-white-takes-full-responsibility-for-erasing-francis-ngannous-name-from-ufc-305-promotion-videos-as-he-issues-apology/)
+- **Adesanya on UFC’s Treatment of Ngannou: ‘You Can Never Erase History’**: [Link](https://www.sherdog.com/news/news/Adesanya-on-UFCs-Treatment-of-Ngannou-You-Can-Never-Erase-History-194654)
+- **Dana White Issues Apology To Israel Adesanya For Production Decision**: [Link](https://www.forbes.com/sites/brianmazique/2024/08/21/dana-white-issues-apology-to-israel-adesanya-for-production-decision/)
+
+
 ### séville – villarreal (N/A, Fri, 23 Aug 2024 11:40:00 -0700)
 
 - **Composition Sevilla - Villarreal, Liga, 2ème journée, match du vendredi 23 
