@@ -1,3 +1,20 @@
+### séville – villarreal (N/A, Fri, 23 Aug 2024 11:40:00 -0700)
+
+- **Composition Sevilla - Villarreal, Liga, 2ème journée, match du vendredi 23 
+août 2024**: [Link](https://rmcsport.bfmtv.com/football/liga/live/2024/match-Sevilla-Villarreal-journee-02_FM-240618258223.html)
+- **Séville - Villarreal : Pronostic, Chaîne TV, Streaming, Compo, 100€ Offerts 
+pour Parier**: [Link](https://www.journee-mondiale.com/seville-villarreal-pronostic-chaine-tv-streaming-compo-100-offerts-pour-parier-4751.htm)
+- **Pronostic FC Séville Villarreal : Analyse, cotes et prono du match de Liga**: [Link](https://www.sofoot.com/breves/pronostic-fc-seville-villarreal-analyse-cotes-et-prono-du-match-de-liga)
+
+
+### bundesliga (N/A, Fri, 23 Aug 2024 11:30:00 -0700)
+
+- **Mit Rückenwind und 15.000 Fans an den Maschsee**: [Link](https://www.hsv.de/news/mit-rueckenwind-und-15000-fans-an-den-maschsee)
+- **Lüttjes vom Tage: Die 96-Kurznachrichten vom Donnerstag**: [Link](https://www.hannover96.de/newscenter/news/details/34028-luettjes-vom-tage-die-96-kurznachrichten-vom-donnerstag.html)
+- **2. Fußball-Bundesliga: Harmloser Hamburger SV kassiert erste 
+Saisonniederlage**: [Link](https://www.spiegel.de/sport/fussball/2-fussball-bundesliga-harmloser-hamburger-sv-kassiert-erste-saisonniederlage-a-75047812-4064-43bc-83b4-530ca14fc4f4)
+
+
 ### psg vs montpellier (N/A, Fri, 23 Aug 2024 11:40:00 -0700)
 
 - **Preview: Paris Saint-Germain vs. Montpellier HSC - prediction, team news, 
