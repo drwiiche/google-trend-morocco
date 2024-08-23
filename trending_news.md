@@ -1,3 +1,21 @@
+### saudia airlines (N/A, Fri, 23 Aug 2024 07:10:00 -0700)
+
+- **Saudia offers up to 50% off on International Flights**: [Link](http://travelbizmonitor.com/saudia-offers-up-to-50-off-on-international-flights/)
+- **Saudia Launches Up To 50% Off Travel Discounts On International Routes From 
+Jeddah And Riyadh**: [Link](https://www.travelandtourworld.com/news/article/saudia-launches-up-to-50-off-travel-discounts-on-international-routes-from-jeddah-and-riyadh/)
+- **Saudia’s limited-time offer: up to 50% off international flights**: [Link](https://www.traveldailymedia.com/saudia-slashes-international-fares-by-50-in-bold-move-to-boost-global-tourism/)
+
+
+### coca cola plastique (N/A, Fri, 23 Aug 2024 05:50:00 -0700)
+
+- **Des micro et nanoparticules de plastique retrouvées dans les bouteilles de 
+Coca-Cola et Schweppes**: [Link](https://fr.hespress.com/383039-des-micro-et-nanoparticules-de-plastique-retrouvees-dans-les-bouteilles-de-coca-cola-et-schweppes.html)
+- **Coca, Schweppes… Agir pour l’environnement a trouvé des particules de 
+plastique dans des bouteilles de sodas**: [Link](https://www.leparisien.fr/societe/sante/coca-schweppes-agir-pour-lenvironnement-a-trouve-des-particules-de-plastique-dans-des-bouteilles-de-sodas-21-08-2024-VBWRVOIPNVCG5K2JMMVKGL34BU.php)
+- **La réponse de Coca et Schweppes à l’étude mesurant les microplastiques dans 
+les bouteilles**: [Link](https://www.huffingtonpost.fr/science/article/coca-cola-et-schweppes-repondent-a-cette-etude-sur-la-presence-de-microplastiques-dans-leurs-bouteilles_238672.html)
+
+
 ### wydad (N/A, Fri, 23 Aug 2024 07:00:00 -0700)
 
 - **Officiel: le Wydad recrute un Brésilien**: [Link](https://sport.le360.ma/maroc/officiel-le-wydad-recrute-un-bresilien-113893)
