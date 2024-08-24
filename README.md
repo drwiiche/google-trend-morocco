@@ -1,3 +1,12 @@
+### lucie castets (N/A, Sat, 24 Aug 2024 01:00:00 -0700)
+
+- **Nouveau premier ministre : ce qu’il faut retenir de la première journée de 
+consultation des forces politiques par Emmanuel Macron**: [Link](https://www.lemonde.fr/politique/live/2024/08/23/en-direct-nouveau-premier-ministre-ce-qu-il-faut-retenir-de-cette-journee-de-consultations-des-forces-politiques-par-emmanuel-macron_6291289_823448.html)
+- **Pourquoi Emmanuel Macron ne nommera pas Lucie Castets à Matignon**: [Link](https://www.lepoint.fr/politique/pourquoi-emmanuel-macron-ne-nommera-pas-lucie-castets-a-matignon-23-08-2024-2568519_20.php)
+- **Gabriel Attal a "défendu" auprès du président la nomination d'un Premier 
+ministre qui ne fait pas partie du "bloc central"**: [Link](https://www.bfmtv.com/politique/gouvernement/gabriel-attal-a-defendu-aupres-du-president-la-nomination-d-un-premier-ministre-qui-ne-fait-pas-partie-du-bloc-central_AP-202408230483.html)
+
+
 ### anwar el ghazi (N/A, Fri, 23 Aug 2024 22:10:00 -0700)
 
 - **Anwar El Ghazi says he has received €1.5m Mainz payout after unfair 
