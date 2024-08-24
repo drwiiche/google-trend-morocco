@@ -1,3 +1,12 @@
+### venezuela (N/A, Sat, 24 Aug 2024 02:40:00 -0700)
+
+- **Venezuela’s Supreme Court certifies Maduro’s claims that he won 
+presidential election**: [Link](https://apnews.com/article/venezuela-election-supreme-court-certifies-maduro-39d9f3b9beb0fe96fa052e4d2a3c106b)
+- **On the ruling of Venezuela’s Supreme Tribunal of Justice**: [Link](https://www.state.gov/on-the-ruling-of-venezuelas-supreme-tribunal-of-justice/)
+- **Venezuela's top court ratifies Maduro election win as government tightens 
+control**: [Link](https://www.reuters.com/world/americas/venezuelas-top-court-ratifies-maduro-election-win-government-tightens-control-2024-08-22/)
+
+
 ### mathis lambourde (N/A, Sat, 24 Aug 2024 00:20:00 -0700)
 
 - **Un espoir du football condamné pour avoir tué une piétonne en trottinette**: [Link](https://www.20minutes.fr/justice/4106800-20240823-pire-savait-joueur-stade-rennais-condamne-avoir-tue-pietonne-trottinette)
