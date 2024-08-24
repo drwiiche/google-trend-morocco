@@ -1,3 +1,11 @@
+### ticad japon polisario (N/A, Fri, 23 Aug 2024 20:50:00 -0700)
+
+- **L’Algérie et le polisario enveniment la scène du TICAD 2024**: [Link](https://fr.hespress.com/383258-lalgerie-et-le-polisario-enveniment-la-scene-du-ticad-2024.html)
+- **Un ambassadeur sahraoui agressé par la délégation marocaine à Tokyo**: [Link](https://www.tsa-algerie.com/un-ambassadeur-sahraoui-agresse-par-la-delegation-marocaine-a-tokyo/)
+- **Comment le polisario a accédé par supercherie et usage de faux à une 
+réunion du TICAD à Tokyo (vidéo)**: [Link](https://medias24.com/2024/08/23/ticad/)
+
+
 ### lucie castets (N/A, Sat, 24 Aug 2024 01:00:00 -0700)
 
 - **Nouveau premier ministre : ce qu’il faut retenir de la première journée de 
