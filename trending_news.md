@@ -1,3 +1,26 @@
+### crystal palace – west ham (N/A, Sat, 24 Aug 2024 06:20:00 -0700)
+
+- **Crystal Palace v West Ham United | All You Need To Know**: [Link](https://www.whufc.com/news/crystal-palace-v-west-ham-united-all-you-need-know-2)
+- **After eight summer signings, Julen Lopetegui’s new transfer hint will be 
+music to West Ham fans' ears**: [Link](https://www.hammers.news/news/after-eight-summer-signings-julen-lopeteguis-new-transfer-hint-will-be-music-to-west-ham-fans-ears/)
+- **Crystal Palace v West Ham Utd: match preview**: [Link](https://www.kumb.com/article.php?id=44915)
+
+
+### مان سيتي ضد إيبسويتش تاون (N/A, Sat, 24 Aug 2024 06:20:00 -0700)
+
+- **تقارير.. فودين خارج قائمة مانشستر سيتي لمواجهة إيبسويتش تاون**: [Link](https://hihi2.com/2024/08/24/p2811280.html)
+- **جوندوجان على دكة بدلاء السيتي أمام إبسويتش**: [Link](https://m.kooora.com/?n=1350083&o=n27338)
+- **جوارديولا يغلق باب العودة في وجه سترلينج**: [Link](https://m.kooora.com/?n=1349833&o=n)
+
+
+### amad diallo (N/A, Sat, 24 Aug 2024 06:20:00 -0700)
+
+- **Man United winger Amad Diallo announces tragic death of his mother in 
+emotional eight-word message**: [Link](https://www.dailymail.co.uk/sport/football/article-13774421/Man-United-winger-Amad-Diallo-confirms-tragic-news-mothers-death-short-emotional-message.html)
+- **Man Utd star Amad Diallo clarifies his biological mum hasn't passed away**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-manutd-amad-mum-dead-33529454)
+- **Man Utd star Amad Diallo clarifies his biological mother has not died**: [Link](https://metro.co.uk/2024/08/23/man-utd-star-amad-diallo-clarifies-biological-mother-not-passed-away-21480213/)
+
+
 ### manchester city – ipswich town (N/A, Sat, 24 Aug 2024 06:10:00 -0700)
 
 - **Guardiola provides fitness update on Savinho and Rodrigo**: [Link](https://www.mancity.com/news/mens/manchester-city-v-ipswich-injury-updates-pep-guardiola-63860009)
