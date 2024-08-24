@@ -1,3 +1,27 @@
+### arsenal (N/A, Sat, 24 Aug 2024 09:00:00 -0700)
+
+- **Every word from Mikel's pre-Aston Villa presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikels-pre-aston-villa-presser-1)
+- **Mikel Arteta: Arsenal boss to start new contract talks when transfer window 
+closes**: [Link](https://www.bbc.com/sport/football/articles/c75nqxwn130o)
+- **Mikel Arteta on mission to avenge Arsenal’s double defeat to Aston Villa | 
+Ed Aarons**: [Link](https://www.theguardian.com/football/article/2024/aug/23/mikel-arteta-on-mission-to-avenge-arsenals-double-defeat-to-aston-villa)
+
+
+### الشوبي (N/A, Sat, 24 Aug 2024 08:10:00 -0700)
+
+- **"التشفي" من الحالة الصحية للفنان الشوبي يلقى رفضا واسعا في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B4%D9%81%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%B4%D9%88%D8%A8-1420662.html)
+- **في آخر ظهور له.. الفنان محمد الشوبي يقلق جمهوره والأخير يعلق**: [Link](https://kech24.com/%D9%81%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%B8%D9%87%D9%88%D8%B1-%D9%84%D9%87-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B4%D9%88%D8%A8%D9%8A-%D9%8A%D9%82%D9%84%D9%82-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%87-%D9%88%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1-%D9%8A%D8%B9%D9%84%D9%82.html)
+- **قضية فيسبوكية: الشوبي يسخر من الشامتين**: [Link](https://assabah.ma/795371.html)
+
+
+### tottenham vs everton (N/A, Sat, 24 Aug 2024 07:30:00 -0700)
+
+- **Saturday clockwatch: Manchester City v Ipswich, Spurs v Everton and more**: [Link](https://www.theguardian.com/football/live/2024/aug/24/saturday-clockwatch-manchester-city-v-ipswich-spurs-v-everton-and-more)
+- **Premier League LIVE: Matchweek 2 updates, score, highlights including 
+Manchester City vs Ipswich, Tottenham vs Everton**: [Link](https://www.nbcsports.com/soccer/live/premier-league-live-matchweek-2-updates-score-highlights-including-manchester-city-vs-ipswich-tottenham-vs-everton)
+- **The Premier League: Follow all of the action in our live hub**: [Link](https://www.joe.ie/sport/the-premier-league-follow-all-of-the-action-in-our-live-hub-3-815232)
+
+
 ### aston villa – arsenal (N/A, Sat, 24 Aug 2024 08:40:00 -0700)
 
 - **Team news for Arsenal encounter**: [Link](https://www.avfc.co.uk/news/2024/august/23/team-news-for-arsenal-encounter/)
