@@ -1,3 +1,20 @@
+### dybala (N/A, Fri, 23 Aug 2024 18:40:00 -0700)
+
+- **Dybala commits to Roma, rejects big Saudi offer**: [Link](https://www.espn.com/soccer/story/_/id/40956739/paulo-dybala-stay-roma-rejects-saudi-transfer-al-qadsiah)
+- **Nainggolan talks Dybala’s shocking turnaround, De Rossi’s first year, and 
+more**: [Link](https://romapress.net/nainggolan-talks-dybalas-shocking-turnaround-de-rossis-first-year-as-roma-head-coach-and-more/)
+- **Today’s Papers – Dybala stays at Roma, Lukaku’s marathon**: [Link](https://football-italia.net/today-papers-dybala-stays-roma-lukaku-marathon/)
+
+
+### hannah lynch (N/A, Fri, 23 Aug 2024 17:50:00 -0700)
+
+- **Mike Lynch and daughter among missing after yacht sinks: What we know about 
+disaster - and 'alarming' potential cause**: [Link](https://news.sky.com/story/bayesian-yacht-everything-we-know-so-far-about-luxury-vessel-sunk-by-tornado-off-coast-of-italy-13199753)
+- **Tributes to Mike and Hannah Lynch as family speak of shock**: [Link](https://www.bbc.com/news/articles/c4gzk4r8293o)
+- **‘I’ve never seen a vessel this size go down so quickly’: why did the 
+Bayesian sink in 60 seconds?**: [Link](https://www.theguardian.com/world/article/2024/aug/23/ive-never-seen-a-vessel-this-size-go-down-so-quickly-why-did-the-bayesian-sink-in-60-seconds-mike-lynch)
+
+
 ### robert kennedy jr (N/A, Fri, 23 Aug 2024 17:00:00 -0700)
 
 - **Trump says he’d consider appointing RFK Jr. to role in administration**: [Link](https://www.cnn.com/2024/08/20/politics/trump-consider-appointing-rfk-jr-administration-role/index.html)
