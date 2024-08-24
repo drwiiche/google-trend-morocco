@@ -1,3 +1,10 @@
+### f1 (N/A, Sat, 24 Aug 2024 03:00:00 -0700)
+
+- **FP3: Gasly tops final practice after heavy Sargeant crash**: [Link](https://www.formula1.com/en/latest/article/fp3-gasly-tops-final-practice-at-zandvoort-as-heavy-sargeant-crash.1v5yy6fPVO2P6y4buQRLHQ)
+- **Sargeant’s Heavy Crash at Zandvoort: Williams Catches Fire**: [Link](https://www.gpkingdom.it/en/30647/sargeants-heavy-crash-at-zandvoort-williams-catches-fire/)
+- **2024 F1 Dutch Grand Prix - Free Practice 3 results**: [Link](https://racingnews365.com/2024-f1-dutch-grand-prix-free-practice-3-results)
+
+
 ### brighton – manchester united (N/A, Sat, 24 Aug 2024 03:40:00 -0700)
 
 - **Ten Hag rules one Red out of Brighton**: [Link](https://www.manutd.com/en/news/detail/team-news-for-brighton-v-man-utd-24-august-2024)
