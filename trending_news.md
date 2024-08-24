@@ -1,3 +1,11 @@
+### premier league (N/A, Sat, 24 Aug 2024 06:00:00 -0700)
+
+- **Premier League Brighton & Hove Albion 2 Manchester United 1 Full time**: [Link](https://www.bbc.com/sport/football/live/cj9lw1vnkm8t)
+- **Ten Hag rules one Red out of Brighton**: [Link](https://www.manutd.com/en/news/detail/team-news-for-brighton-v-man-utd-24-august-2024)
+- **Alejandro Garnacho goal ruled out for one of the most bizarre offside calls 
+you'll see as unlucky Joshua Zirkz**: [Link](https://www.dailymail.co.uk/sport/football/article-13775987/Joshua-Zirkzee-offside-Manchester-United.html)
+
+
 ### man city (N/A, Sat, 24 Aug 2024 07:10:00 -0700)
 
 - **Man City could now pay ‘unlimited damages’ to PL rivals – Keith Wyness**: [Link](https://www.footballinsider247.com/man-city-could-now-pay-unlimited-damages-to-pl-rivals-keith-wyness/)
