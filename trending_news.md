@@ -1,3 +1,26 @@
+### محمد الشوبي (N/A, Sat, 24 Aug 2024 07:50:00 -0700)
+
+- **"التشفي" من الحالة الصحية للفنان الشوبي تلقى رفضا واسعا في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B4%D9%81%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%B4%D9%88%D8%A8-1420662.html)
+- **في آخر ظهور له.. الفنان محمد الشوبي يقلق جمهوره والأخير يعلق**: [Link](https://kech24.com/%D9%81%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%B8%D9%87%D9%88%D8%B1-%D9%84%D9%87-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B4%D9%88%D8%A8%D9%8A-%D9%8A%D9%82%D9%84%D9%82-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%87-%D9%88%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1-%D9%8A%D8%B9%D9%84%D9%82.html)
+- **قضية فيسبوكية: الشوبي يسخر من الشامتين**: [Link](https://assabah.ma/795371.html)
+
+
+### tottenham (N/A, Sat, 24 Aug 2024 07:40:00 -0700)
+
+- **Premier League Tottenham Hotspur versus Everton kick off 15:00 Sat 24 Aug 
+2024**: [Link](https://www.bbc.com/sport/football/live/c8xl5qvp0jdt)
+- **Tottenham vs Everton LIVE! Premier League match stream, latest score and 
+updates today after Son goal**: [Link](https://www.standard.co.uk/sport/football/tottenham-vs-everton-live-stream-premier-league-2024-latest-score-result-watch-tv-team-news-b1177844.html)
+- **Premier League Soccer: Livestream Tottenham vs. Everton From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-tottenham-vs-everton-from-anywhere/)
+
+
+### الدوري الانجليزي (N/A, Sat, 24 Aug 2024 06:40:00 -0700)
+
+- **هالاند يحقق رقمًا إعجازيًا في البريميرليج**: [Link](https://www.kooora.com/?n=1350117)
+- **تساؤلات بشأن حلول غوارديولا بعد رحيل ألفاريز**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B3%D8%A7%D8%A4%D9%84%D8%A7%D8%AA-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AD%D9%84%D9%88%D9%84-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%B1%D8%AD%D9%8A%D9%84-%D8%A3%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-2024-08-22)
+- **هالاند هداف شهر أغسطس!**: [Link](https://hihi2.com/2024/08/24/p2811378.html)
+
+
 ### crystal palace (N/A, Sat, 24 Aug 2024 07:40:00 -0700)
 
 - **Joachim Andersen: Fulham sign Crystal Palace centre-back for about £30m**: [Link](https://www.bbc.com/sport/football/articles/cj4xyz4ly1eo)
