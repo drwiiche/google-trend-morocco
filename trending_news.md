@@ -1,3 +1,34 @@
+### inter – lecce (N/A, Sat, 24 Aug 2024 11:30:00 -0700)
+
+- **La prima in casa: torna il Matchday Programme!**: [Link](https://www.inter.it/it/notizie/matchday-programme-inter-lecce-campionato-2024)
+- **"Mi ispiravo a Djorkaeff e Ronaldo": il pupillo di Inzaghi fa impazzire i 
+tifosi dell'Inter**: [Link](https://www.spaziointer.it/2024/08/24/mi-ispiravo-a-djorkaeff-e-ronaldo-il-pupillo-di-inzaghi-fa-impazzire-i-tifosi-dellinter/)
+- **Mkhitaryan: "La seconda stella non succede spesso, felice di esserne stato 
+parte. Il rinnovo è un...**: [Link](https://www.fcinternews.it/in-primo-piano/mkhitaryan-la-seconda-stella-non-succede-spesso-felice-di-esserne-stato-parte-il-rinnovo-e-un-orgoglio-962201)
+
+
+### barcelona vs bilbao (N/A, Sat, 24 Aug 2024 11:30:00 -0700)
+
+- **Jon Uriarte: "Ha habido faltas de respeto en el caso Nico"**: [Link](https://www.sport.es/es/noticias/barca/jon-uriarte-habido-faltas-respeto-107323886)
+- **Finalmente, Nico llega a Barcelona**: [Link](https://as.com/futbol/primera/finalmente-nico-llega-a-barcelona-n/)
+- **Cancelada la comida de directivas con el Athletic**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240824/1002303234/cancelada-comida-directivas-athletic.html)
+
+
+### القنوات الناقلة لمباراة الرجاء اليوم (N/A, Sat, 24 Aug 2024 11:30:00 -0700)
+
+- **الرجاء يستعد لحسم التأهل الإفريقي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-1420704.html)
+- **عصبة الأبطال: الرجاء.. إسقاط الحرس مربط الفرس**: [Link](https://www.almountakhab.com/node/16203454)
+- **الموعد والقناة الناقلة لمباراة الرجاء والحرس الوطني النيج...**: [Link](https://sport.lesiteinfo.com/elbotola/443130.html)
+
+
+### serie a (N/A, Sat, 24 Aug 2024 11:30:00 -0700)
+
+- **Inter - Lecce**: [Link](https://www.uslecce.it/news/64925109766/inter-lecce)
+- **Orsi: "Dybala? De Rossi non è impazzito, sa che è importante. L'Inter mi è 
+piaciuta a Genova"**: [Link](https://www.tuttomercatoweb.com/serie-a/orsi-dybala-de-rossi-non-e-impazzito-sa-che-e-importante-l-inter-mi-e-piaciuta-a-genova-2003906)
+- **Roma Empoli in streaming gratis? Guarda la partita in diretta**: [Link](https://www.calcioefinanza.it/2024/08/23/roma-empoli-in-streaming-gratis-dove-vederla/)
+
+
 ### اتحاد تواركة (N/A, Sat, 24 Aug 2024 11:20:00 -0700)
 
 - **برقي يوضح لـ”العمق” أحقية اتحاد تواركة بالمركز الرابع في البطولة الاحترافية**: [Link](https://al3omk.com/959450.html)
