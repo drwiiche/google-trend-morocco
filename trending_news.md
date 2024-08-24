@@ -1,3 +1,35 @@
+### espanyol – real sociedad (N/A, Sat, 24 Aug 2024 13:10:00 -0700)
+
+- **Espanyol - Real Sociedad: horario y dónde ver hoy en TV el partido de 
+LaLiga EA Sports**: [Link](https://www.marca.com/futbol/primera-division/2024/08/24/66c4baaa22601d54538b457c.html)
+- **Manolo González sacude el once perico en el debut en casa**: [Link](https://www.mundodeportivo.com/futbol/rcd-espanyol/20240824/1002303498/manolo-gonzalez-sacude-once-perico-debut-casa.html)
+- **Fernando Calero trabaja con el grupo**: [Link](https://el1900.com/fernando-calero-trabaja-grupo/)
+
+
+### inter milan (N/A, Sat, 24 Aug 2024 13:10:00 -0700)
+
+- **Inter Milan Defender To Join Reggiana On Loan Despite Late Spezia Attempt**: [Link](https://sempreinter.com/2024/08/24/inter-alessandro-fontanarosa-to-join-reggiana-despite-spezia-attempt/)
+- **Serie A line-ups: Inter vs. Lecce**: [Link](https://football-italia.net/serie-a-line-ups-inter-vs-lecce-3/)
+- **Inter Milan Coach Anticipates Iran Star Will ‘Have A Great Match’ Vs Lecce, 
+Explains Why Argentina Copa America Hero Left Out**: [Link](https://sempreinter.com/2024/08/24/inzaghi-taremi-will-have-great-match-lecce-preferred-not-to-risk-lautaro/)
+
+
+### الرجاء (N/A, Sat, 24 Aug 2024 12:10:00 -0700)
+
+- **الرجاء يستعد لحسم التأهل الإفريقي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-1420704.html)
+- **تشكيلة الرجاء الرياضي لمواجهة حرس النيجر**: [Link](https://www.almountakhab.com/node/16203457)
+- **لاعبو الرجاء يتفقدون أرضية ملعب مباراة الحرس الوطني تحت تصفيقات الجمهور**: [Link](https://m.elbotola.com/video/details/66ca23279a49491f4a2ae49c/)
+
+
+### liga (N/A, Sat, 24 Aug 2024 12:00:00 -0700)
+
+- **Olmo in Barça squad despite registration wait**: [Link](https://www.espn.com/soccer/story/_/id/40974020/barcelona-include-dani-olmo-squad-amid-registration-wait)
+- **Primera División Barcelona versus Athletic Club kick off 18:00 Sat 24 Aug 
+2024**: [Link](https://www.bbc.com/sport/football/live/c1epjz07edgt)
+- **Lamine Yamal and Lewandowski Secure Barcelona's Victory Against Athletic 
+Club**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/lamine-yamal-and-lewandowski-secure-barcelona-s-victory-against-athletic-club-2024-08-24)
+
+
 ### marca (N/A, Sat, 24 Aug 2024 12:50:00 -0700)
 
 
