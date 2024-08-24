@@ -1,3 +1,47 @@
+### يلا شوت (N/A, Sat, 24 Aug 2024 10:30:00 -0700)
+
+- **مباشر.. مباراة برشلونة ضد بلباو 0-0 في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/24/barcelona-vs-athletic-club)
+- **بيدري وويليامز على رأس تشكيل موقعة برشلونة وبيلباو**: [Link](https://www.kooora.com/?n=1350143)
+- **ماذا قال فليك عن فشل برشلونة في تسجيل أولمو حتى الآن؟**: [Link](https://hihi2.com/2024/08/24/p2812034.html)
+
+
+### الأخدود ضد الهلال (N/A, Sat, 24 Aug 2024 10:30:00 -0700)
+
+- **تعديلات في تشكيل الهلال لمواجهة الأخدود**: [Link](https://www.kooora.com/?n=1350168)
+- **جيسوس يفاضل بين هذا الثنائي للدفع بأحدهما أمام الاخدود في دوري روشن**: [Link](https://hihi2.com/2024/08/24/p2811258.html)
+- **موعد مباراة الهلال والأخدود في الدوري السعودي والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/8/23/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A3%D8%AE%D8%AF%D9%88%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+
+
+### مباريات اليوم مباشر (N/A, Sat, 24 Aug 2024 10:30:00 -0700)
+
+- **ابرز الاحداث الرياضية ليوم السبت في 24-08-2024**: [Link](https://sa.blogksa.com/uncategorized/16093/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D9%81%D9%8A-24-08-2024---%D8%AA%D8%AF%D9%88%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A.html)
+- **جدول مباريات اليوم السبت بجميع الدوريات.. ظهور الأهلي والزمالك ومحمد صلاح**: [Link](https://sport.elwatannews.com/ar/1/2/1156554/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-17-8-2024-%D9%81%D9%8A-%D8%AC%D9%85%D9%8A%D8%B9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA)
+- **برشلونة يواجه بلباو.. مواعيد مباريات السبت 24 أغسطس 2024**: [Link](https://sports.asharq.com/football/50373/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-24-%D8%A3%D8%BA%D8%B3%D8%B7%D8%B3-2024/)
+
+
+### monaco fc (N/A, Sat, 24 Aug 2024 10:30:00 -0700)
+
+- **Defining season for USMNT's starting striker Balogun at Monaco**: [Link](https://worldsoccertalk.com/news/defining-season-for-usmnts-starting-striker-balogun-at-monaco/)
+- **Preview: Lyon vs. Monaco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lyon/preview/preview-lyon-vs-monaco-prediction-team-news-lineups_550965.html)
+- **Olympique Lyonnais vs Monaco LIVE: Latest Ligue 1 updates**: [Link](https://www.independent.co.uk/sport/football/olympique-lyonnais-monaco-live-stream-ligue-1-2024-b2601309.html)
+
+
+### dortmund (N/A, Sat, 24 Aug 2024 10:30:00 -0700)
+
+- **Ukraine: Unabhängigkeitstag unter Raketendrohung**: [Link](https://www.zdf.de/nachrichten/politik/ausland/uabhaengigkeit-jahrestag-ukraine-krieg-russland-100.html)
+- **Rund 1000 Teilnehmer bei Kundgebung zu ukrainischem Unabhängigkeitstag in 
+Saarbrücken**: [Link](https://www.sr.de/sr/home/nachrichten/politik_wirtschaft/unabhaengigkeitstag_ukraine_veranstaltungen_in_saarbruecken_100.html)
+- **So­li­da­ri­tät: Stadt hisst an drei Orten ukrai­ni­sche Na­tio­nal­flag­ge**: [Link](https://www.rheinpfalz.de/lokal/ludwigshafen_artikel,-solidarit%C3%A4t-stadt-hisst-an-drei-orten-ukrainische-nationalflagge-_arid,5683715.html)
+
+
+### nico williams (N/A, Sat, 24 Aug 2024 10:30:00 -0700)
+
+- **Finalmente, Nico llega a Barcelona**: [Link](https://as.com/futbol/primera/finalmente-nico-llega-a-barcelona-n/)
+- **Cancelada la comida de directivas con el Athletic**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240824/1002303234/cancelada-comida-directivas-athletic.html)
+- **Fichajes que provocaron heridas y rupturas entre clubes: «Es como que tu 
+vecino te clave un puñal en la espalda y se vaya con la sonrisa puesta**: [Link](https://www.relevo.com/futbol/liga-primera/vecino-clave-punal-espalda-vaya-20240821205450-nt.html)
+
+
 ### barca (N/A, Sat, 24 Aug 2024 10:20:00 -0700)
 
 - **Estate in diretta 2021 - Naufragio Bayesian, il bilancio della tragedia: 7 
