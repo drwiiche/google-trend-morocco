@@ -1,3 +1,12 @@
+### joão cancelo (N/A, Sat, 24 Aug 2024 08:00:00 -0700)
+
+- **Man City man with 'many enemies' agrees Saudi transfer after 'behaviour' 
+issue 'reaches Pep's ears'**: [Link](https://www.football365.com/news/man-city-man-created-enemies-barcelona-irked-stars-pleased-34m-saudi-agreement-cancelo)
+- **Barcelona remain determined to agree deal with Manchester City for Joao 
+Cancelo**: [Link](https://www.football-espana.net/2024/08/22/barcelona-remain-determined-to-agree-deal-with-manchester-city-for-joao-cancelo)
+- **Juventus set to miss out on Man City outcast this summer**: [Link](https://www.juvefc.com/juventus-set-to-miss-out-on-man-city-outcast-this-summer/)
+
+
 ### محمد الشوبي (N/A, Sat, 24 Aug 2024 07:50:00 -0700)
 
 - **"التشفي" من الحالة الصحية للفنان الشوبي تلقى رفضا واسعا في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B4%D9%81%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%B4%D9%88%D8%A8-1420662.html)
