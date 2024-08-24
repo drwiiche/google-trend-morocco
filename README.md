@@ -1,3 +1,26 @@
+### barca (N/A, Sat, 24 Aug 2024 10:20:00 -0700)
+
+- **Estate in diretta 2021 - Naufragio Bayesian, il bilancio della tragedia: 7 
+morti - 23/08/2024 - Video**: [Link](https://www.raiplay.it/video/2024/08/Naufragio-Bayesian-il-bilancio-della-tragedia-7-morti---Estate-in-diretta---23082024-4d1a94c2-30d8-4515-b15c-34037307a65f.html)
+- **Il Pm Cartosio: 'La legge Cartabia ostacola la libera informazione'**: [Link](https://www.ansa.it/sito/notizie/politica/2024/08/24/il-pm-cartosio-la-legge-cartabia-ostacola-la-libera-informazione_b8f7e99c-977e-4439-b2e3-5897e643d562.html)
+- **Domina Zagarella, annullata la serata danzante «per motivi inerenti al 
+brutto evento accaduto nei giorn**: [Link](https://palermo.gds.it/articoli/cronaca/2024/08/24/domina-zagarella-annullata-la-serata-danzante-per-motivi-inerenti-al-brutto-evento-accaduto-nei-giorni-scorsi-40a9953b-617e-4cf8-9c3b-41baf3dcd535/)
+
+
+### fc barcelone (N/A, Sat, 24 Aug 2024 10:20:00 -0700)
+
+- **FC Barcelone - Bilbao : les compositions officielles**: [Link](https://www.footmercato.net/a2568498072693338580-fc-barcelone-bilbao-les-compositions-officielles)
+- **Sur quelle chaîne et à quelle heure voir Barça - Athletic Club ?**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4088362/sur-quelle-chaine-et-a-quelle-heure-voir-barca--athletic-club-)
+- **PRONOS PARIS RMC Le pari à domicile du 24 août - Liga - Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-24-aout-liga-espagne_AN-202408230330.html)
+
+
+### بث مباشر (N/A, Sat, 24 Aug 2024 10:20:00 -0700)
+
+- **بيدري وويليامز على رأس تشكيل موقعة برشلونة وبيلباو**: [Link](https://www.kooora.com/?n=1350143)
+- **ماذا قال فليك عن فشل برشلونة في تسجيل أولمو حتى الآن؟**: [Link](https://hihi2.com/2024/08/24/p2812034.html)
+- **مباشر.. مباراة برشلونة ضد بلباو 0-0 في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/24/barcelona-vs-athletic-club)
+
+
 ### fcb (N/A, Sat, 24 Aug 2024 09:50:00 -0700)
 
 - **Olmo in Barça squad despite registration wait**: [Link](https://www.espn.com/soccer/story/_/id/40974020/barcelona-include-dani-olmo-squad-amid-registration-wait)
