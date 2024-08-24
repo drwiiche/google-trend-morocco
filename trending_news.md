@@ -1,3 +1,18 @@
+### man city (N/A, Sat, 24 Aug 2024 07:10:00 -0700)
+
+- **Man City could now pay ‘unlimited damages’ to PL rivals – Keith Wyness**: [Link](https://www.footballinsider247.com/man-city-could-now-pay-unlimited-damages-to-pl-rivals-keith-wyness/)
+- **'Hopefully' - Pep Guardiola breaks silence on 115 charges timeline as Man 
+City await decision**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/hopefully-pep-guardiola-breaks-silence-29796925)
+- **Pep Guardiola happy hearing into 115 charges facing Man City will start soon**: [Link](https://www.westernpeople.ie/sport/world-sport/pep-guardiola-happy-hearing-into-115-charges-facing-man-city-will-start-soon_arid-29403.html)
+
+
+### man united (N/A, Sat, 24 Aug 2024 04:30:00 -0700)
+
+- **U18s: City v United**: [Link](https://www.manutd.com/en/news/detail/match-report-manchester-city-v-manchester-united-under-18s-24-aug)
+- **City U18s fall to frustrating league defeat at the hands of United**: [Link](https://onefootball.com/es/noticias/city-u18s-fall-to-frustrating-league-defeat-at-the-hands-of-united-39938635)
+- **Premier League Brighton & Hove Albion 2 Manchester United 1 Full time**: [Link](https://www.bbc.com/sport/football/live/cj9lw1vnkm8t)
+
+
 ### black myth wukong (N/A, Sat, 24 Aug 2024 06:50:00 -0700)
 
 - **China’s ‘Wukong’ Hit Sells 10 Million Copies in Three Days**: [Link](https://www.bloomberg.com/news/articles/2024-08-24/china-s-wukong-hit-sells-10-million-copies-in-three-days)
