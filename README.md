@@ -1,3 +1,10 @@
+### kevin danso (N/A, Fri, 23 Aug 2024 22:00:00 -0700)
+
+- **Roma continue negotiations for Kevin Danso**: [Link](https://romapress.net/roma-continue-negotiations-for-kevin-danso/)
+- **Roma nears €23 million deal for Lens defender Kevin Danso**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/Roma-nears-23-million-deal-for-Lens-defender-Kevin-Danso-1947271)
+- **From France: Lens reject Roma’s first offer for Kevin Danso**: [Link](https://romapress.net/from-france-lens-reject-romas-first-offer-for-kevin-danso/)
+
+
 ### ons jabeur (N/A, Sat, 24 Aug 2024 00:20:00 -0700)
 
 
