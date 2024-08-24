@@ -1,3 +1,12 @@
+### jerome powell (N/A, Sat, 24 Aug 2024 14:40:00 -0700)
+
+- **Powell may use Jackson Hole speech to hint at how fast and how far the Fed 
+could cut rates**: [Link](https://apnews.com/article/interest-rates-prices-inflation-federal-reserve-economy-7e581f4da9c0c228c997ea8eb361e7ca)
+- **What you need to know about the Fed's big Jackson Hole gathering**: [Link](https://www.axios.com/2024/08/22/jackson-hole-federal-reserve-powell-interest-rates)
+- **Fed Chair Powell indicates interest rate cuts ahead: 'The time has come for 
+policy to adjust'**: [Link](https://www.cnbc.com/2024/08/23/fed-chair-powell-indicates-interest-rate-cuts-ahead-the-time-has-come-for-policy-to-adjust.html)
+
+
 ### pavel durov (N/A, Sat, 24 Aug 2024 15:10:00 -0700)
 
 - **Telegram messaging app CEO Pavel Durov arrested in France, TF1 TV says**: [Link](https://www.reuters.com/world/europe/telegram-messaging-app-ceo-pavel-durov-arrested-france-tf1-tv-says-2024-08-24/)
