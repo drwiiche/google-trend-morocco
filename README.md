@@ -1,3 +1,10 @@
+### mathis lambourde (N/A, Sat, 24 Aug 2024 00:20:00 -0700)
+
+- **Un espoir du football condamné pour avoir tué une piétonne en trottinette**: [Link](https://www.20minutes.fr/justice/4106800-20240823-pire-savait-joueur-stade-rennais-condamne-avoir-tue-pietonne-trottinette)
+- **Accident mortel à trottinette: le Rennais Mathis Lambourde condamné à deux ans de prison avec sursis**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-accident-mortel-a-trottinette-suivez-le-proces-pour-homicide-involontaire-de-l-attaquant-rennais-mathis-lambourde_LN-202408230436.html)
+- **Justice : Lambourde (Rennes) condamné à deux ans de prison avec sursis**: [Link](https://www.foot-national.com/ligue-1/justice-lambourde-rennes-condamne-a-deux-ans-de-prison-avec-sursis-884699)
+
+
 ### kevin danso (N/A, Fri, 23 Aug 2024 22:00:00 -0700)
 
 - **Roma continue negotiations for Kevin Danso**: [Link](https://romapress.net/roma-continue-negotiations-for-kevin-danso/)
