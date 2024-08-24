@@ -1,3 +1,21 @@
+### robert kennedy jr (N/A, Fri, 23 Aug 2024 17:00:00 -0700)
+
+- **Trump says he’d consider appointing RFK Jr. to role in administration**: [Link](https://www.cnn.com/2024/08/20/politics/trump-consider-appointing-rfk-jr-administration-role/index.html)
+- **What polling shows about Americans’ views of Robert F. Kennedy Jr.**: [Link](https://apnews.com/article/robert-f-kennedy-jr-polls-rfk-trump-harris-fd8463cfcdd1bb9399466be59ce0db97)
+- **RFK Jr. is planning to drop out of the 2024 presidential race and endorse 
+Trump**: [Link](https://www.nbcnews.com/politics/2024-election/rfk-jr-plans-speech-path-forward-talk-potentially-backing-trump-rcna167606)
+
+
+### angoulême (N/A, Fri, 23 Aug 2024 16:50:00 -0700)
+
+- **Vidéo. “Ce matin, il est descendu comme un dingue”: le témoignage de la 
+voisine de l’assaillant de la mairie d’Angoulême**: [Link](https://www.charentelibre.fr/charente/angouleme/angouleme-la-mairie-evacuee-le-centre-ville-boucle-operation-de-police-en-cours-21088792.php)
+- **Angoulême : un homme déclenche un incendie dans la mairie avant d’être 
+blessé par balles par la police**: [Link](https://www.lemonde.fr/societe/article/2024/08/21/angouleme-un-homme-declenche-un-incendie-dans-la-mairie-avant-d-etre-blesse-par-balles-par-la-police_6289327_3225.html)
+- **Angoulême: "pas de lien fait avec une entreprise terroriste", assure la 
+procureure de la République**: [Link](https://www.bfmtv.com/international/angouleme-pas-de-lien-fait-avec-une-entreprise-terroriste-assure-la-procureure-de-la-republique_VN-202408210577.html)
+
+
 ### تنغير (N/A, Fri, 23 Aug 2024 16:40:00 -0700)
 
 - **سيول في أقاليم ورزازات وتنغير وميدلت**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%88%D9%84-%D9%81%D9%8A-%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D9%88%D8%B1%D8%B2%D8%A7%D8%B2%D8%A7%D8%AA-%D9%88%D8%AA%D9%86%D8%BA%D9%8A%D8%B1-%D9%88%D9%85%D9%8A%D8%AF%D9%84%D8%AA-1420575.html)
