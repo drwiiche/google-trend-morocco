@@ -1,3 +1,12 @@
+### éruption volcanique (N/A, Sat, 24 Aug 2024 01:50:00 -0700)
+
+- **Les images de la spectaculaire éruption du volcan Sundhnuksgigarod, en 
+Islande**: [Link](https://www.20minutes.fr/diaporama/diaporama-4106788-images-spectaculaire-eruption-volcan-sundhnuksgigarod-islande)
+- **En Islande, une faille volcanique sous surveillance près de Grindavik**: [Link](https://fr.euronews.com/my-europe/2024/08/23/en-islande-une-faille-volcanique-sous-surveillance-pres-de-grindavik)
+- **Une fissure de 4 km de long crache de la lave aux portes d’une ville en 
+Islande !**: [Link](https://www.futura-sciences.com/planete/breves/terre-fissure-4-km-long-crache-lave-portes-ville-islande-9874/)
+
+
 ### venezuela (N/A, Sat, 24 Aug 2024 02:40:00 -0700)
 
 - **Venezuela’s Supreme Court certifies Maduro’s claims that he won 
