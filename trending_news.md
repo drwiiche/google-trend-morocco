@@ -1,3 +1,21 @@
+### اتحاد تواركة (N/A, Sat, 24 Aug 2024 11:20:00 -0700)
+
+- **برقي يوضح لـ”العمق” أحقية اتحاد تواركة بالمركز الرابع في البطولة الاحترافية**: [Link](https://al3omk.com/959450.html)
+- **بانينكا ح 15 | برقي: تواركة احتل المركز الرابع عن جدارة.. وأحلم بالمساهمة 
+في تطوير الكرة المغربية**: [Link](https://sport.al3omk.com/66190.html)
+- **كأس الكونفدرالية/ بالركلات الترجيحية.. اتحاد تواركة ينهزم أمام راسينغ كلوب 
+أبيدجان (2-1) ويفشل في بلوغ الدور التمهيدي الثاني**: [Link](https://m.elbotola.com/article/2024-08-24-16-57-432.html)
+
+
+### nicolás maduro (N/A, Sat, 24 Aug 2024 11:10:00 -0700)
+
+- **Venezuela is facing a ‘decisive moment’: Opposition leader Maria Corina 
+Machado**: [Link](https://www.foxnews.com/video/6360949415112)
+- **Venezuela’s Supreme Court, Loyal to Maduro, Rules Him Election Winner**: [Link](https://www.nytimes.com/2024/08/22/world/americas/venezuela-supreme-court-maduro-election.html)
+- **Venezuela’s Supreme Court certifies Maduro’s claims that he won 
+presidential election**: [Link](https://www.nbcnews.com/news/latino/venezuelas-supreme-court-certifies-maduros-claims-won-presidential-ele-rcna168020)
+
+
 ### fc barcelona (N/A, Sat, 24 Aug 2024 10:50:00 -0700)
 
 - **¡El Barça no puede inscribir a Dani Olmo!**: [Link](https://www.sport.es/es/noticias/barca/barca-inscribir-dani-olmo-107320752)
