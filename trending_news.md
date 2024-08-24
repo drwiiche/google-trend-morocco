@@ -1,3 +1,12 @@
+### 7 soleils chine (N/A, Fri, 23 Aug 2024 15:10:00 -0700)
+
+- **7 soleils ont été vus alignés dans le ciel en Chine et il n’y a qu’une 
+seule explication possible !**: [Link](https://www.futura-sciences.com/planete/breves/meteorologie-7-soleils-ont-ete-vus-alignes-ciel-chine-il-ny-quune-seule-explication-possible-9867/)
+- **Chine: Et tout à coup, sept soleils apparaissent dans le ciel**: [Link](https://www.lessentiel.lu/fr/video/chine-et-tout-a-coup-sept-soleils-apparaissent-dans-le-ciel-103172429)
+- **7 soleils en Chine : qu’est-ce que ce phénomène d’optique atmosphérique 
+rare, cause de la "multiplication" de l’étoile ?**: [Link](https://www.science-et-vie.com/ciel-et-espace/7-soleils-en-chine-quest-ce-que-ce-phenomene-doptique-atmospherique-rare-cause-de-la-multiplication-de-letoile-176355.html)
+
+
 ### dybala (N/A, Fri, 23 Aug 2024 18:40:00 -0700)
 
 - **Dybala commits to Roma, rejects big Saudi offer**: [Link](https://www.espn.com/soccer/story/_/id/40956739/paulo-dybala-stay-roma-rejects-saudi-transfer-al-qadsiah)
