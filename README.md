@@ -1,3 +1,11 @@
+### fcb (N/A, Sat, 24 Aug 2024 09:50:00 -0700)
+
+- **Olmo in Barça squad despite registration wait**: [Link](https://www.espn.com/soccer/story/_/id/40974020/barcelona-include-dani-olmo-squad-amid-registration-wait)
+- **FC Barcelona Coach Flick Reveals New Player News And Discusses Gundogan Exit**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/23/fc-barcelona-coach-flick-reveals-new-player-news-and-discusses-gundogan-exit/)
+- **Dani Olmo in limbo at Barcelona: Why €60m summer signing still cannot play 
+- The Athletic**: [Link](https://www.nytimes.com/athletic/5718867/2024/08/23/dani-olmo-barcelona-la-liga-registration-update/)
+
+
 ### العين ضد خورفكان (N/A, Sat, 24 Aug 2024 09:30:00 -0700)
 
 - **مدرب العين: هذا وقت سفيان رحيمي**: [Link](https://www.kooora.com/?n=1349706)
