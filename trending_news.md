@@ -1,3 +1,11 @@
+### inter miami – cincinnati (N/A, Sat, 24 Aug 2024 16:00:00 -0700)
+
+- **360 View: Can LA Galaxy or FC Cincinnati catch Inter Miami?**: [Link](https://www.mlssoccer.com/news/360-view-can-la-galaxy-or-fc-cincinnati-catch-inter-miami)
+- **FC Cincinnati's Supporters' Shield hopes are at stake against Inter Miami. 
+Here's why**: [Link](https://www.cincinnati.com/story/sports/soccer/fc-cincinnati/2024/08/23/will-inter-miamis-lionel-messi-play-vs-fc-cincinnati-in-mls/74899039007/)
+- **Inter Miami vs. FC Cincinnati odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/2024/08/24/inter-miami-vs-fc-cincinnati-odds-picks-and-predictions-3/)
+
+
 ### jerome powell (N/A, Sat, 24 Aug 2024 14:40:00 -0700)
 
 - **Powell may use Jackson Hole speech to hint at how fast and how far the Fed 
