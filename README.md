@@ -1,3 +1,32 @@
+### hakimi (N/A, Sat, 24 Aug 2024 09:20:00 -0700)
+
+- **سؤال اليوم: كيف سيوظف وليد ثنائية حكيمي ومزراوي؟**: [Link](https://www.almountakhab.com/node/16203450)
+- **لويس إنريكي يستبعد 5 أسماء بارزة من قائمة باريس**: [Link](https://sport.lesiteinfo.com/monde/443076.html)
+- **حكيمي يرفع سقف البداية بهدف واسيست واعلى تنقيط**: [Link](https://www.almountakhab.com/node/16203423)
+
+
+### برشلونة ضد أتلتيك بيلباو (N/A, Sat, 24 Aug 2024 09:10:00 -0700)
+
+- **بيدري على رأس تشكيل برشلونة أمام أتلتيك بيلباو**: [Link](https://www.kooora.com/?n=1350143)
+- **استبعاد أولمو من مباراة برشلونة و اتلتيك بلباو**: [Link](https://hihi2.com/2024/08/24/p2811869.html)
+- **موعد مباراة برشلونة وبلباو في الدوري الإسباني والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/8/23/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+
+
+### barcelona vs athletic club (N/A, Sat, 24 Aug 2024 09:10:00 -0700)
+
+- **Barcelona - Athletic, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/barcelona-athletic/2024/08/24/01_0101_20240824_178_174-directo.html)
+- **Flick medita un solo cambio en el once titular contra el Athletic**: [Link](https://www.sport.es/es/noticias/barca/flick-medita-cambio-once-titular-107297226)
+- **Ya hay once oficial del Barça ante el Athletic con una novedad**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240824/1002303384/hay-once-oficial-barca-athletic-novedad.html)
+
+
+### fpl live (N/A, Sat, 24 Aug 2024 09:10:00 -0700)
+
+- **Tottenham injury update: Dominic Solanke, Pedro Porro, Rodrigo Bentancur 
+latest news and return dates**: [Link](https://www.standard.co.uk/sport/football/tottenham-injury-update-solanke-porro-bentancur-latest-news-return-dates-b1177491.html)
+- **Solanke RULED out for Spurs massive clash against Everton**: [Link](https://www.vavel.com/en-us/soccer/2024/08/24/1193710-solanke-ruled-out-for-spurs-massive-clash-against-everton.html)
+- **Best Solanke replacements in FPL**: [Link](https://www.fantasyfootballscout.co.uk/2024/08/24/best-solanke-replacements-in-fpl/)
+
+
 ### arsenal (N/A, Sat, 24 Aug 2024 09:00:00 -0700)
 
 - **Every word from Mikel's pre-Aston Villa presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikels-pre-aston-villa-presser-1)
