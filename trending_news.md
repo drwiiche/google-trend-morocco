@@ -1,3 +1,11 @@
+### inter (N/A, Sat, 24 Aug 2024 14:00:00 -0700)
+
+- **Serie A | Inter 2-0 Lecce: Scudetto holders get first win**: [Link](https://football-italia.net/serie-a-inter-2-0-lecce-scudetto-holders-win/)
+- **Official Starting Lineups – Inter Milan Vs Lecce: Mehdi Taremi & Benjamin 
+Pavard Start**: [Link](https://sempreinter.com/2024/08/24/official-starting-lineups-inter-milan-vs-lecce-mehdi-taremi-benjamin-pavard-start/)
+- **Inter See Off Lecce As AC Milan Crash At Promoted Parma**: [Link](https://www.barrons.com/news/inter-see-off-lecce-as-ac-milan-crash-at-promoted-parma-293863ce)
+
+
 ### almere – psv eindhoven (N/A, Sat, 24 Aug 2024 12:50:00 -0700)
 
 - **Preview: Almere City vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/almere-city/preview/preview-almere-city-vs-psv-prediction-team-news-lineups_551015.html)
