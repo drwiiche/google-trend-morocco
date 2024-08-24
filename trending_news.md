@@ -1,3 +1,28 @@
+### lewandowski (N/A, Sat, 24 Aug 2024 11:40:00 -0700)
+
+- **FC Barcelona News: 24 August 2024; New captains announced, Ilkay Gundogan 
+leaves**: [Link](https://www.barcablaugranes.com/2024/8/24/24226929/fc-barcelona-news-24-august-2024-new-captains-announced-ilkay-gundogan-leaves)
+- **New first team captains confirmed**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4092240/new-first-team-captains-confirmed)
+- **Barcelona’s five captains for the 2024/25 season – No Lewandowski and a 
+surprise**: [Link](https://barcauniversal.com/barcelonas-five-captains-for-the-2024-25-season-no-lewandowski-and-a-surprise/)
+
+
+### raja casablanca (N/A, Sat, 24 Aug 2024 11:40:00 -0700)
+
+- **Ligue des Champions: voici où se jouera le match retour entre le Raja et 
+l'ASGNN**: [Link](https://sport.le360.ma/ldc-afrique/ligue-des-champions-voici-ou-se-jouera-le-match-retour-entre-le-raja-et-lasgnn-113847)
+- **Ligue des champions : le Raja pour confirmer, l’AS FAR veut chasser le 
+spectre de l’élimination**: [Link](https://lematin.ma/sports/ligue-des-champions-le-raja-et-las-far-en-quete-de-la-qualification/240110)
+- **Raja-ASGNN: on sait où aura lieu le match retour (Ligue des champions)**: [Link](https://www.lesiteinfo.com/sport/625473-raja-asgnn-on-sait-ou-aura-lieu-le-match-retour-ligue-des-champions.html)
+
+
+### حمد الله (N/A, Sat, 24 Aug 2024 11:30:00 -0700)
+
+- **لا يجد لاعبين.. دكة الشباب "منقوصة" أمام الاتفاق**: [Link](https://www.kooora.com/?n=1350179)
+- **ضربة موجعة للشباب بسب الظهور الأول لحمد الله**: [Link](http://ar.sport.le360.ma/maroc/157863)
+- **عبد الرزاق حمد الله غير جاهز**: [Link](https://sport.lesiteinfo.com/internationaux/443095.html)
+
+
 ### inter – lecce (N/A, Sat, 24 Aug 2024 11:30:00 -0700)
 
 - **La prima in casa: torna il Matchday Programme!**: [Link](https://www.inter.it/it/notizie/matchday-programme-inter-lecce-campionato-2024)
