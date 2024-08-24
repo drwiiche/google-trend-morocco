@@ -1,3 +1,19 @@
+### manchester city – ipswich town (N/A, Sat, 24 Aug 2024 06:10:00 -0700)
+
+- **Guardiola provides fitness update on Savinho and Rodrigo**: [Link](https://www.mancity.com/news/mens/manchester-city-v-ipswich-injury-updates-pep-guardiola-63860009)
+- **Kieran McKenna press conference: Man City vs Ipswich preview**: [Link](https://www.bbc.com/sport/football/articles/c5y3531emdno)
+- **Troy Deeney has shared his 'horrible' score prediction for Man City vs 
+Ipswich Town**: [Link](https://www.manchestercity.news/troy-deeney-has-shared-his-horrible-score-prediction-for-man-city-vs-ipswich-town/)
+
+
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Sat, 24 Aug 2024 02:40:00 -0700)
+
+- **باحثون يراهنون على الإحصاء العام للسكان بالمغرب لتقوية جاذبية الاستثمار**: [Link](https://www.hespress.com/%D8%A8%D8%A7%D8%AD%D8%AB%D9%88%D9%86-%D9%8A%D8%B1%D8%A7%D9%87%D9%86%D9%88%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%84%D9%84%D8%B3%D9%83-1419876.html)
+- **دور التشريع في إحصاء السكان : تحليل لمقتضياته وأثره**: [Link](https://ar.hibapress.com/details-544076.html)
+- **الحليمي: التعبئة الشاملة عنوان لنجاح الإحصاء... وقمنا بتوطين خرائطي لـ 4.1 
+ملايين بناية و33.6 ألف دوار**: [Link](https://alyaoum24.com/1911859.html)
+
+
 ### مانشستر يونايتد (N/A, Sat, 24 Aug 2024 05:40:00 -0700)
 
 - **مزراوي في التشكيل الرسمي للمرة الثانية تواليا**: [Link](https://www.almountakhab.com/node/13203435)
