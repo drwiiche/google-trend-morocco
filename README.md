@@ -1,3 +1,18 @@
+### وزارة التربية الوطنية (N/A, Sat, 24 Aug 2024 03:10:00 -0700)
+
+- **الدخول المدرسي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-14-1418459.html)
+- **✅ هذه حقيقة تأجيل موعد الدخول المدرسى 2024-2025 بالمغرب**: [Link](https://tanja24.com/%D9%87%D8%B0%D9%87-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%89-2024-2025/)
+- **تاريخ التحاق الأساتذة والتلاميذ بالمدارس**: [Link](https://ar.lesiteinfo.com/maroc/%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%AA%D8%AD%D8%A7%D9%82-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%AA%D8%B0%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D9%85%D9%8A%D8%B0-%D8%A8%D8%A7%D9%84%D9%85-874756.html)
+
+
+### المهدي بلخياط (N/A, Sat, 24 Aug 2024 01:30:00 -0700)
+
+- **وفا.ة المنتج ومدير أعمال الفنانين المهدي بلخياط**: [Link](https://ar.hibapress.com/details-544363.html)
+- **وفاة المهدي بلخياط بإحدى المصحات الخاصة.**: [Link](https://agadir24.info/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D9%8A-%D8%A8%D9%84%D8%AE%D9%8A%D8%A7%D8%B7-%D8%A8%D8%A5%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D9%85%D8%B5%D8%AD%D8%A7%D8%AA-%D8%A7%D9%84%D8%AE%D8%A7/)
+- **صدمة كبيرة وسط عائلته وأصدقائه.. المنتج و مدير أعمال الفنانين مهدي بلخياط 
+في ذمة الله**: [Link](https://l3assima.ma/ar/18440)
+
+
 ### éruption volcanique (N/A, Sat, 24 Aug 2024 01:50:00 -0700)
 
 - **Les images de la spectaculaire éruption du volcan Sundhnuksgigarod, en 
