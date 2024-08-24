@@ -1,3 +1,20 @@
+### brighton – manchester united (N/A, Sat, 24 Aug 2024 03:40:00 -0700)
+
+- **Ten Hag rules one Red out of Brighton**: [Link](https://www.manutd.com/en/news/detail/team-news-for-brighton-v-man-utd-24-august-2024)
+- **Premier League Brighton & Hove Albion versus Manchester United kick off 
+12:30 Sat 24 Aug 2024**: [Link](https://www.bbc.com/sport/football/live/cj9lw1vnkm8t)
+- **Shaw, Hojlund, Yoro, Sancho - Man United injury news and return dates for 
+Brighton**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/shaw-hojlund-yoro-sancho-man-29800828)
+
+
+### peter lundgren (N/A, Sat, 24 Aug 2024 02:40:00 -0700)
+
+- **Peter Lundgren, Roger Federer’s iconic former coach, dead at 59**: [Link](https://nypost.com/2024/08/23/sports/peter-lundgren-roger-federers-iconic-former-coach-dead-at-59/)
+- **Remembering Peter Lundgren, former Top 25 player and coach to Federer & more**: [Link](https://www.atptour.com/en/news/peter-lundgren-obituary)
+- **Roger Federer's former tennis coach dead at 59: Peter Lundgren's family pay 
+tribute to man who steered legenda**: [Link](https://www.dailymail.co.uk/sport/tennis/article-13726899/Roger-Federers-tennis-coach-Peter-Lundgren-dead.html)
+
+
 ### وزارة التربية الوطنية (N/A, Sat, 24 Aug 2024 03:10:00 -0700)
 
 - **الدخول المدرسي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-14-1418459.html)
