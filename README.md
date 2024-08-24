@@ -1,3 +1,11 @@
+### black myth wukong (N/A, Sat, 24 Aug 2024 06:50:00 -0700)
+
+- **China’s ‘Wukong’ Hit Sells 10 Million Copies in Three Days**: [Link](https://www.bloomberg.com/news/articles/2024-08-24/china-s-wukong-hit-sells-10-million-copies-in-three-days)
+- **‘Black Myth: Wukong’ Is a Hit. But Why Is the Game So Controversial?**: [Link](https://www.rollingstone.com/culture/rs-gaming/black-myth-wukong-controversy-explained-1235084372/)
+- **Even If Black Myth: Wukong Isn't a Soulslike, FromSoftware Has Changed 
+Action Games Forever**: [Link](https://www.ign.com/articles/even-if-black-myth-wukong-isnt-a-soulslike-fromsoftware-has-changed-action-games-forever)
+
+
 ### fulham – leicester (N/A, Sat, 24 Aug 2024 06:30:00 -0700)
 
 - **Mr Khan's Programme Notes**: [Link](https://www.fulhamfc.com/news/2024/august/24/mr-khans-programme-notes/)
