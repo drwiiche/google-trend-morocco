@@ -1,3 +1,10 @@
+### مهدي بلخياط (N/A, Sat, 24 Aug 2024 01:00:00 -0700)
+
+- **وفا.ة المنتج ومدير أعمال الفنانين المهدي بلخياط**: [Link](https://ar.hibapress.com/details-544363.html)
+- **وفاة المهدي بلخياط بإحدى المصحات الخاصة.**: [Link](https://agadir24.info/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D9%8A-%D8%A8%D9%84%D8%AE%D9%8A%D8%A7%D8%B7-%D8%A8%D8%A5%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D9%85%D8%B5%D8%AD%D8%A7%D8%AA-%D8%A7%D9%84%D8%AE%D8%A7/)
+- **صدمة في الوسط الفني.. وفاة المنتج ومدير أعمال الفنانين مهدي...**: [Link](https://ar.lesiteinfo.com/cultures/%D8%AE%D9%84%D9%81-%D8%B5%D8%AF%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%81%D9%86%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AC-%D9%88%D9%85-875139.html)
+
+
 ### f1 (N/A, Sat, 24 Aug 2024 03:00:00 -0700)
 
 - **FP3: Gasly tops final practice after heavy Sargeant crash**: [Link](https://www.formula1.com/en/latest/article/fp3-gasly-tops-final-practice-at-zandvoort-as-heavy-sargeant-crash.1v5yy6fPVO2P6y4buQRLHQ)
