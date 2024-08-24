@@ -1,3 +1,22 @@
+### marca (N/A, Sat, 24 Aug 2024 12:50:00 -0700)
+
+
+
+
+### البطولة (N/A, Sat, 24 Aug 2024 12:50:00 -0700)
+
+- **عادل تاعرابت يتألق بهدفين وأسيست في الدوري الإماراتي (فيديو)**: [Link](https://ar.hibapress.com/details-544269.html)
+- **ثنائية رائعة لتاعرابت في افتتاح الدوري الإماراتي(فيديو)**: [Link](https://www.akhbarona.com/sport/proplayers/391028.html)
+- **بالصور: تاعرابت يتوهج في فوز النصر على العروبة**: [Link](https://m.kooora.com/?n=1349905&pg=1&o=n)
+
+
+### botola (N/A, Sat, 24 Aug 2024 12:50:00 -0700)
+
+- **Première journée de Botola Pro D1 Inwi: demandez le programme!**: [Link](https://sport.le360.ma/botola-pro-1/premiere-journee-de-botola-pro-d1-inwi-demandez-le-programme-113889)
+- **Botola : la journée inaugurale démarre sur le rythme du choc RCA-RSB**: [Link](https://lematin.ma/sports/botola-la-journee-inaugurale-demarre-sur-le-rythme-du-choc-rca-rsb/239945)
+- **Botola 2024-2025: la LNFP refuse le report du démarrage**: [Link](https://www.lopinion.ma/Botola-2024-2025-la-LNFP-refuse-le-report-du-demarrage_a57182.html)
+
+
 ### getafe – rayo (N/A, Sat, 24 Aug 2024 12:40:00 -0700)
 
 - **Íñigo Pérez: "Entiendo el revuelo por James, pero me centro en los 
