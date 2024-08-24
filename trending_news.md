@@ -1,3 +1,11 @@
+### ansu fati (N/A, Sat, 24 Aug 2024 16:10:00 -0700)
+
+- **Barcelona rethink Fati plans**: [Link](https://www.tribalfootball.com/article/soccer-laliga-barcelona-rethink-fati-plans-20ef975d-57ef-46eb-bfb0-e6752e8ab503)
+- **Barcelona young forward determined to stay at club despite injury blow**: [Link](https://sports.yahoo.com/barcelona-young-forward-determined-stay-180200866.html)
+- **Ansu Fati holding onto Hansi Flick promise with a week to go in the 
+transfer market**: [Link](https://www.yardbarker.com/soccer/articles/ansu_fati_holding_onto_hansi_flick_promise_with_a_week_to_go_in_the_transfer_market/s1_15980_40784040)
+
+
 ### inter miami – cincinnati (N/A, Sat, 24 Aug 2024 16:00:00 -0700)
 
 - **360 View: Can LA Galaxy or FC Cincinnati catch Inter Miami?**: [Link](https://www.mlssoccer.com/news/360-view-can-la-galaxy-or-fc-cincinnati-catch-inter-miami)
