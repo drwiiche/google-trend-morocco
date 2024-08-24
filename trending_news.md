@@ -1,3 +1,17 @@
+### محسن بدة (N/A, Sat, 24 Aug 2024 10:20:00 -0700)
+
+- **موكوينا "يطرد" لاعبا جديدا من الوداد**: [Link](http://ar.sport.le360.ma/maroc/157887)
+- **ولد بانا يفجر انقساما كبيرا بالوداد**: [Link](https://www.kooora.com/?n=1350156&o=n8000071)
+- **ودادي يرد على موكوينا بالتوقيع لفريق الرجاء**: [Link](https://sport.lesiteinfo.com/elbotola/443188.html)
+
+
+### barcelona - athletic (N/A, Sat, 24 Aug 2024 09:20:00 -0700)
+
+- **¡El Barça no puede inscribir a Dani Olmo!**: [Link](https://www.sport.es/es/noticias/barca/barca-inscribir-dani-olmo-107320752)
+- **Flick: “Es importante tener a Olmo lo antes posible”**: [Link](https://as.com/futbol/primera/flick-es-importante-tener-a-olmo-lo-antes-posible-n/)
+- **Olmo no jugará frente al Athletic; el Barça no logra inscribirlo**: [Link](https://www.marca.com/futbol/barcelona/2024/08/24/66c9fae4ca474119288b457d.html)
+
+
 ### يلا شوت (N/A, Sat, 24 Aug 2024 10:30:00 -0700)
 
 - **مباشر.. مباراة برشلونة ضد بلباو 0-0 في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/24/barcelona-vs-athletic-club)
