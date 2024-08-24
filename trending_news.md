@@ -1,3 +1,11 @@
+### anwar el ghazi (N/A, Fri, 23 Aug 2024 22:10:00 -0700)
+
+- **Anwar El Ghazi says he has received €1.5m Mainz payout after unfair 
+dismissal - The Athletic**: [Link](https://www.nytimes.com/athletic/5719487/2024/08/23/anwar-el-ghazi-gaza-israel-mainz/)
+- **Anwar El Ghazi pledges third of £1.27m Mainz payout to Gaza children**: [Link](https://www.telegraph.co.uk/football/2024/08/23/anwar-el-ghazi-mainz-money-severance-gaza-donate/)
+- **Anwar El Ghazi pledges third of £1.27m Mainz payout to Gaza children**: [Link](https://www.yahoo.com/news/anwar-el-ghazi-pledges-third-201434440.html)
+
+
 ### حالة الطقس (N/A, Fri, 23 Aug 2024 22:50:00 -0700)
 
 - **«أمطار رعدية في عز الصيف».. الأرصاد تحذر من حالة الطقس اليوم وتغير مفاجئ 
