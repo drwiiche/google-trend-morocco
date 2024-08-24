@@ -1,3 +1,36 @@
+### fulham – leicester (N/A, Sat, 24 Aug 2024 06:30:00 -0700)
+
+- **Mr Khan's Programme Notes**: [Link](https://www.fulhamfc.com/news/2024/august/24/mr-khans-programme-notes/)
+- **‘We’re Very Much A Collective’ – Cooper’s Call For Continued Unity**: [Link](https://www.lcfc.com/news/4092306/were-very-much-a-collective--coopers-call-for-continued-unity/featured)
+- **Leicester CLOSE to signings with Skipp ready to start vs Fulham**: [Link](https://foxesofleicester.com/posts/leicester-close-to-signings-with-skipp-ready-to-start-vs-fulham-01j5zwpx1yzm)
+
+
+### man utd (N/A, Sat, 24 Aug 2024 06:00:00 -0700)
+
+- **U18s: City v United**: [Link](https://www.manutd.com/en/news/detail/match-report-manchester-city-v-manchester-united-under-18s-24-aug)
+- **Ten Hag rules one Red out of Brighton**: [Link](https://www.manutd.com/en/news/detail/team-news-for-brighton-v-man-utd-24-august-2024)
+- **Dan’s EPL 2024/25 predictions Week 2 – Can Arsenal finally overcome Aston 
+Villa?**: [Link](https://www.justarsenal.com/dans-epl-2024-25-predictions-week-2-can-arsenal-finally-overcome-aston-villa/374235)
+
+
+### pl (N/A, Sat, 24 Aug 2024 05:30:00 -0700)
+
+- **Premier League Predictions & best bets: Everton set to shock sleepy Spurs 
+as Jones Knows tips up 12/1 treble**: [Link](https://www.skysports.com/football/news/11661/13200625/premier-league-predictions-and-best-bets-everton-set-to-shock-sleepy-spurs-as-jones-knows-tips-up-12-1-treble)
+- **Nuno previews Southampton clash**: [Link](https://www.nottinghamforest.co.uk/news/2024/august/22/nuno-previews-southampton-clash/)
+- **Southampton vs Nottingham Forest predictions: Chris Sutton on Premier 
+League game**: [Link](https://www.bbc.com/sport/football/articles/c4glzxrd4jdo)
+
+
+### manchester united (N/A, Sat, 24 Aug 2024 04:30:00 -0700)
+
+- **Mason Greenwood set to turn back on England to play for Jamaica under 
+former Man Utd coach Steve McClaren...**: [Link](https://www.thesun.co.uk/sport/30055172/mason-greenwood-england-jamaica-man-utd-steve-mcclaren/)
+- **Mason Greenwood 'turns back on England' for different national team as FA 
+approach made**: [Link](https://www.express.co.uk/sport/football/1939824/mason-greenwood-england-FA-man-utd)
+- **Mason Greenwood makes major career change just weeks after joining new club**: [Link](https://www.caughtoffside.com/2024/08/23/mason-greenwood-marseille-jamaica/)
+
+
 ### crystal palace – west ham (N/A, Sat, 24 Aug 2024 06:20:00 -0700)
 
 - **Crystal Palace v West Ham United | All You Need To Know**: [Link](https://www.whufc.com/news/crystal-palace-v-west-ham-united-all-you-need-know-2)
