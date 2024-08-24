@@ -1,3 +1,18 @@
+### aston villa – arsenal (N/A, Sat, 24 Aug 2024 08:40:00 -0700)
+
+- **Team news for Arsenal encounter**: [Link](https://www.avfc.co.uk/news/2024/august/23/team-news-for-arsenal-encounter/)
+- **LIVE: Aston Villa vs Arsenal – English Premier League football match**: [Link](https://www.aljazeera.com/sports/liveblog/2024/8/24/live-aston-villa-vs-arsenal-premier-league-football-match)
+- **Arsenal's Premier League credentials face Villa test, Man Utd travel to 
+Brighton**: [Link](https://www.france24.com/en/live-news/20240823-arsenal-s-premier-league-credentials-face-villa-test-man-utd-travel-to-brighton)
+
+
+### مانشستر سيتي (N/A, Sat, 24 Aug 2024 08:10:00 -0700)
+
+- **نزيل جديد في مستشفى مانشستر سيتي**: [Link](https://m.kooora.com/?n=1350126&o=n)
+- **هالاند يحقق رقمًا إعجازيًا في البريميرليج**: [Link](https://www.kooora.com/?n=1350117)
+- **انطلاق الشوط الثاني من مباراة مانشستر سيتي و إبسويتش**: [Link](https://hihi2.com/2024/08/24/p2811740.html)
+
+
 ### joão cancelo (N/A, Sat, 24 Aug 2024 08:00:00 -0700)
 
 - **Man City man with 'many enemies' agrees Saudi transfer after 'behaviour' 
