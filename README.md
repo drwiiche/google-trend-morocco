@@ -1,3 +1,17 @@
+### كووورة (N/A, Sat, 24 Aug 2024 12:00:00 -0700)
+
+- **لاعب ريال مدريد يعلن رحيله**: [Link](https://www.kooora.com/?n=1350136)
+- **رومانو: نيكو باز وقع عقده مع كومو**: [Link](https://hihi2.com/2024/08/24/p2809917.html)
+- **فابريجاس يتدخل لبيع نجم ريال مدريد.. وشرط واحد من الميرنجي!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%A7%D8%A8%D8%B1%D9%8A%D8%AC%D8%A7%D8%B3-%D9%8A%D8%AA%D8%AF%D8%AE%D9%84-%D8%A8%D9%8A%D8%B9-%D9%86%D8%AC%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B4%D8%B1%D8%B7-%D9%83%D9%88%D9%85%D9%88-%D9%86%D9%8A%D9%83%D9%88-%D8%A8%D8%A7%D8%B2/bltcc327e57e2242db7)
+
+
+### milan (N/A, Sat, 24 Aug 2024 11:50:00 -0700)
+
+- **Preview: Inter Milan vs. Lecce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/preview/preview-inter-milan-vs-lecce-prediction-team-news-lineups_550941.html)
+- **Lautaro Martinez could miss next Inter match after missing training – report**: [Link](https://football-italia.net/lautaro-martinez-doubt-for-inter-before-lecce/)
+- **Inter Milan Coach Anticipates Iran Star Will ‘Have A Great Match’ Vs Lecce, Explains Why Argentina Copa America Hero Left Out**: [Link](https://sempreinter.com/2024/08/24/inzaghi-taremi-will-have-great-match-lecce-preferred-not-to-risk-lautaro/)
+
+
 ### saint-étienne – le havre (N/A, Sat, 24 Aug 2024 11:50:00 -0700)
 
 - **Les infos à connaître pour ce premier match à domicile**: [Link](https://www.asse.fr/actualites/les-infos-a-connaitre-pour-ce-premier-match-a-domicile-ac37058)
