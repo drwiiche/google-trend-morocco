@@ -1,3 +1,24 @@
+### fc barcelona (N/A, Sat, 24 Aug 2024 10:50:00 -0700)
+
+- **¡El Barça no puede inscribir a Dani Olmo!**: [Link](https://www.sport.es/es/noticias/barca/barca-inscribir-dani-olmo-107320752)
+- **Flick: “Es importante tener a Olmo lo antes posible”**: [Link](https://as.com/futbol/primera/flick-es-importante-tener-a-olmo-lo-antes-posible-n/)
+- **Olmo no jugará frente al Athletic; el Barça no logra inscribirlo**: [Link](https://www.marca.com/futbol/barcelona/2024/08/24/66c9fae4ca474119288b457d.html)
+
+
+### marc bernal (N/A, Sat, 24 Aug 2024 10:50:00 -0700)
+
+- **Barcelona coach makes his preference clear between two La Masia midfield starlets**: [Link](https://barcauniversal.com/barcelona-coach-makes-his-preference-clear-between-two-la-masia-midfield-starlets/)
+- **Primera División Barcelona 0 Athletic Club 0 7 minutes played. In progress**: [Link](https://www.bbc.com/sport/football/live/c1epjz07edgt)
+- **Barcelona vs Athletic Bilbao, La Liga: TV & Streaming, Live Thread**: [Link](https://www.barcablaugranes.com/2024/8/24/24227094/barcelona-athletic-bilbao-live-stream-lineups-kickoff-time-tv-channel-how-to-watch-la-liga-online)
+
+
+### ac milan (N/A, Sat, 24 Aug 2024 10:50:00 -0700)
+
+- **Ibrahimovic on Morata, new Milan character and transfer strategy**: [Link](https://football-italia.net/ibrahimovic-on-morata-new-milan-character/)
+- **Tuttosport: Ibrahimovic could yet bring Fonseca a new striker – the 
+situation**: [Link](https://sempremilan.com/tuttosport-ibrahimovic-fonseca-new-striker-situation)
+
+
 ### محسن بدة (N/A, Sat, 24 Aug 2024 10:20:00 -0700)
 
 - **موكوينا "يطرد" لاعبا جديدا من الوداد**: [Link](http://ar.sport.le360.ma/maroc/157887)
