@@ -1,3 +1,12 @@
+### getafe – rayo (N/A, Sat, 24 Aug 2024 12:40:00 -0700)
+
+- **Íñigo Pérez: "Entiendo el revuelo por James, pero me centro en los 
+futbolistas que tengo"**: [Link](https://www.marca.com/futbol/rayo/2024/08/23/66c8c13122601dc9288b458f.html)
+- **Íñigo Pérez, sobre Camello, Ratiu, Álvaro García, Isi, James, Nteka y el 
+calendario**: [Link](https://www.futbolfantasy.com/laliga/noticias/118980-inigo-perez-sobre-camello-ratiu-alvaro-garcia-isi-james-nteka-y-el-calendario)
+- **Aleñá, novedad en el Getafe; Balliu, Ciss y Trejo en el Rayo**: [Link](https://quepasamedia.com/noticias/deportes/alena-novedad-en-el-getafe-balliu-ciss-y-trejo-en-el-rayo/)
+
+
 ### ملعب العربي الزاولي (N/A, Sat, 24 Aug 2024 12:30:00 -0700)
 
 - **إصلاحات مرتقبة بمركب بنجلون وملعب الوازيس**: [Link](https://m.elbotola.com/article/2024-08-23-10-53-636.html)
