@@ -1,3 +1,20 @@
+### pavel durov (N/A, Sat, 24 Aug 2024 15:10:00 -0700)
+
+- **Telegram messaging app CEO Pavel Durov arrested in France, TF1 TV says**: [Link](https://www.reuters.com/world/europe/telegram-messaging-app-ceo-pavel-durov-arrested-france-tf1-tv-says-2024-08-24/)
+- **Telegram’s native Toncoin tumbles as app’s founder is arrested in France**: [Link](https://www.turkiyetoday.com/business/telegrams-native-toncoin-tumbles-as-apps-founder-is-arrested-in-france-44545/)
+- **Founder and CEO of Telegram arrested at French airport - report**: [Link](https://www.jpost.com/breaking-news/article-816149)
+
+
+### phil foden (N/A, Sat, 24 Aug 2024 15:10:00 -0700)
+
+- **Bukayo Saka’s 100th Premier League Win Sees Him Among the Youngest to Hit 
+the Landmark**: [Link](https://theanalyst.com/2024/08/bukayo-saka-100-premier-league-wins-arsenal)
+- **Bukayo Saka becomes fourth player in Premier League history to reach major 
+milestone**: [Link](https://www.nowarsenal.com/?p=23619)
+- **Bukayo Saka joins elite club including Phil Foden and Arsenal and 
+Manchester United legends with...**: [Link](https://talksport.com/football/2020358/arsenal-bukao-saka-record-aston-villa-win/)
+
+
 ### real sociedad (N/A, Sat, 24 Aug 2024 14:40:00 -0700)
 
 - **Sources: Arsenal agree Merino deal; Nketiah to exit**: [Link](https://www.espn.com/soccer/story/_/id/40953156/arsenal-close-mikel-merino-deal-nketiah-forest-sources)
