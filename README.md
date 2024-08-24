@@ -1,3 +1,19 @@
+### العين ضد خورفكان (N/A, Sat, 24 Aug 2024 09:30:00 -0700)
+
+- **مدرب العين: هذا وقت سفيان رحيمي**: [Link](https://www.kooora.com/?n=1349706)
+- **أسطورة "الأرجنتين" يرفع القبعة لرحيمي**: [Link](https://aljarida24.ma/p/actualites/285777/)
+- **مدرب العين الإماراتي يشيد برحيمي: هذا هو وقته**: [Link](https://www.almountakhab.com/node/16203407)
+
+
+### barca vs bilbao (N/A, Sat, 24 Aug 2024 09:20:00 -0700)
+
+- **Olmo in Barça squad despite registration wait**: [Link](https://www.espn.com/soccer/story/_/id/40974020/barcelona-include-dani-olmo-squad-amid-registration-wait)
+- **FC Barcelona Versus Athletic Club Starting Line Up And Preview: A Major 
+Change From Flick**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/24/fc-barcelona-versus-athletic-club-starting-line-up-and-preview-a-major-change-from-flick/)
+- **Barcelona vs Athletic Bilbao, La Liga: Team News, Preview, Lineups, Score 
+Prediction**: [Link](https://www.barcablaugranes.com/2024/8/24/24227072/barcelona-athletic-bilbao-la-liga-team-news-match-preview-lineups-score-prediction)
+
+
 ### hakimi (N/A, Sat, 24 Aug 2024 09:20:00 -0700)
 
 - **سؤال اليوم: كيف سيوظف وليد ثنائية حكيمي ومزراوي؟**: [Link](https://www.almountakhab.com/node/16203450)
