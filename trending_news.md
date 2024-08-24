@@ -1,3 +1,26 @@
+### saint-étienne – le havre (N/A, Sat, 24 Aug 2024 11:50:00 -0700)
+
+- **Les infos à connaître pour ce premier match à domicile**: [Link](https://www.asse.fr/actualites/les-infos-a-connaitre-pour-ce-premier-match-a-domicile-ac37058)
+- **Saint-Étienne-Le Havre : avec la fermeture des deux kops, la fièvre verte 
+attendra septembre**: [Link](https://www.leparisien.fr/sports/football/ligue-1/saint-etienne-le-havre-avec-la-fermeture-des-deux-kops-la-fievre-verte-attendra-septembre-24-08-2024-ZXPKHU242NBSLHYUMNSGXPNBUU.php)
+- **Dall'Oglio : "Très content de revenir à GG, mais on le préfère plein" - ASSE**: [Link](https://www.envertetcontretous.fr/articles/dall-oglio-qtres-content-de-revenir-a-gg-mais-on-le-prefere-pleinq-64864-1.html)
+
+
+### ارسنال (N/A, Sat, 24 Aug 2024 11:50:00 -0700)
+
+- **بالصور: آرسنال يثأر من أستون فيلا في عقر داره**: [Link](https://www.kooora.com/?n=1350196)
+- **يلا شوت MGA4K.. بدون تقطيع مشاهدة مباراة ارسنال واستون فيلا اليوم بث مباشر 
+تويتر في الدوري الانجليزي**: [Link](https://real.alsaudinews.com/145475/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-mga4k-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%B1%D8%B3/)
+- **60 دقيقة .. التعادل السلبي سيد الموقف بين أرسنال وأستون فيلا**: [Link](https://hihi2.com/2024/08/24/p2812303.html)
+
+
+### la liga (N/A, Sat, 24 Aug 2024 11:20:00 -0700)
+
+- **FC Barcelona Coach Flick Reveals New Player News And Discusses Gundogan Exit**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/23/fc-barcelona-coach-flick-reveals-new-player-news-and-discusses-gundogan-exit/)
+- **Hansi Flick Hoping Barcelona Can Register 'Unbelievable' Dani Olmo**: [Link](https://sports.ndtv.com/football/hansi-flick-hoping-barcelona-can-register-unbelievable-dani-olmo-6402600)
+- **Was Olmo registered before the Bilbao match?**: [Link](https://www.ysscores.com/en/news/2833219/Was-Olmo-registered-before-the-Bilbao-match?)
+
+
 ### lewandowski (N/A, Sat, 24 Aug 2024 11:40:00 -0700)
 
 - **FC Barcelona News: 24 August 2024; New captains announced, Ilkay Gundogan 
