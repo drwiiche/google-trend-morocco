@@ -1,3 +1,10 @@
+### real sociedad (N/A, Sat, 24 Aug 2024 14:40:00 -0700)
+
+- **Sources: Arsenal agree Merino deal; Nketiah to exit**: [Link](https://www.espn.com/soccer/story/_/id/40953156/arsenal-close-mikel-merino-deal-nketiah-forest-sources)
+- **Arsenal reach Mikel Merino agreement with Real Sociedad - The Athletic**: [Link](https://www.nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/)
+- **3 positions Arsenal could target after Mikel Merino signing**: [Link](https://paininthearsenal.com/posts/3-positions-arsenal-target-after-mikel-merino-signing/3)
+
+
 ### inter (N/A, Sat, 24 Aug 2024 14:00:00 -0700)
 
 - **Serie A | Inter 2-0 Lecce: Scudetto holders get first win**: [Link](https://football-italia.net/serie-a-inter-2-0-lecce-scudetto-holders-win/)
