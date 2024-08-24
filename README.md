@@ -1,3 +1,10 @@
+### crystal palace (N/A, Sat, 24 Aug 2024 07:40:00 -0700)
+
+- **Joachim Andersen: Fulham sign Crystal Palace centre-back for about £30m**: [Link](https://www.bbc.com/sport/football/articles/cj4xyz4ly1eo)
+- **Fulham complete signing of Andersen from Crystal Palace**: [Link](https://www.nytimes.com/athletic/live-blogs/transfer-news-updates-live-latest/se5P38VIpmxP/XeUIcy4qujIK/)
+- **Andersen's Fulham Return**: [Link](https://www.fulhamfc.com/news/2024/august/23/andersens-fulham-return/)
+
+
 ### lyon – monaco (N/A, Sat, 24 Aug 2024 07:30:00 -0700)
 
 - **Football, Ligue 1 - Contre Monaco, Georges Mikautadze face à ses choix**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/football-ligue-1-contre-monaco-georges-mikautadze-face-a-ses-choix_sto10309583/story.shtml)
