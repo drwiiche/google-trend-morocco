@@ -1,3 +1,10 @@
+### نادي برشلونة (N/A, Sat, 24 Aug 2024 12:10:00 -0700)
+
+- **أكبر نجاح حققه برشلونة**: [Link](https://hihi2.com/2024/08/24/p2811729.html)
+- **جواهر لاماسيا تعوض جفاف ميركاتو برشلونة الصيفي**: [Link](https://www.kooora.com/?n=1349256)
+- **في زمن الأزمة.. برشلونة يتسلح بالشباب**: [Link](https://arriyadiyah.com/847314)
+
+
 ### espanyol – real sociedad (N/A, Sat, 24 Aug 2024 13:10:00 -0700)
 
 - **Espanyol - Real Sociedad: horario y dónde ver hoy en TV el partido de 
