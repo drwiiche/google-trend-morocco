@@ -1,3 +1,13 @@
+### wolves vs chelsea (N/A, Sun, 25 Aug 2024 05:30:00 -0700)
+
+- **Chelsea's Romeo Lavia out injured again as he misses Wolves match with 
+hamstring problem**: [Link](https://www.kentuckytoday.com/sports/national/chelseas-romeo-lavia-out-injured-again-as-he-misses-wolves-match-with-hamstring-problem/article_e9165c55-8c68-5c1c-a918-8da63b2740cd.html)
+- **Enzo Maresca explains Romeo Lavia’s absence after Chelsea star is left out 
+of squad against Wolves...**: [Link](https://www.thesun.co.uk/sport/30078195/enzo-maresca-injury-romeo-lavia-chelsea-wolves/)
+- **Enzo Maresca explains why Romeo Lavia misses Chelsea’s Premier League clash 
+with Wolves**: [Link](https://metro.co.uk/2024/08/25/enzo-maresca-explains-romeo-lavia-misses-chelseas-clash-wolves-21485169/)
+
+
 ### lens – brest (N/A, Sun, 25 Aug 2024 05:50:00 -0700)
 
 - **« Il n'y a pas de match plus important qu'un autre pour moi (...) Le 
