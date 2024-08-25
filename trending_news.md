@@ -1,3 +1,31 @@
+### liverpool – brentford (N/A, Sun, 25 Aug 2024 07:40:00 -0700)
+
+- **Virgil van Dijk: We must work hard - I believe in the talent within this group**: [Link](https://www.liverpoolfc.com/news/virgil-van-dijk-we-must-work-hard-i-believe-talent-within-group)
+- **Liverpool team from 2021 Brentford thriller compared to Arne Slot lineup**: [Link](https://www.liverpool.com/liverpool-fc-news/features/liverpool-brentford-jurgen-klopp-slot-29786636)
+- **Jan Molby predicts 3-0 Liverpool win over Brentford – ‘Slot’s football will do the talking’**: [Link](https://anfieldindex.com/72033/jan-molby-predicts-3-0-liverpool-win-over-brentford-slots-football-will-do-the-talking.html)
+
+
+### madueke (N/A, Sun, 25 Aug 2024 07:40:00 -0700)
+
+- **Noni Madueke deletes controversial social media post ahead of Wolves game**: [Link](https://www.expressandstar.com/sport/football/wolverhampton-wanderers-fc/2024/08/25/noni-madueke-deletes-controversial-social-media-post-ahead-of-wolves-game/)
+- **Chelsea star booed against Wolves for what he said in deleted social media post**: [Link](https://www.sportbible.com/football/football-news/chelsea/chelsea-wolves-noni-madueke-instagram-810574-20240825)
+- **Chelsea winger Noni Madueke calls Wolverhampton 's***' on his official Instagram page, before deleting and adm**: [Link](https://www.dailymail.co.uk/sport/football/article-13777155/Chelsea-Noni-Madueke-Wolverhampton-Instagram.html)
+
+
+### bundesliga (N/A, Sun, 25 Aug 2024 07:40:00 -0700)
+
+- **Zorniger entschuldigt sich nach Torwart-Kritik: "Total daneben"**: [Link](https://www.br.de/nachrichten/sport/spvgg-greuther-nach-torwart-kritik-von-trainer-zorniger-meldet-sich-fc-bayern-keeper-sven-ulreich,UMRivC6)
+- **FC Bayern München, News und Gerüchte - Unfassbar!: Sven Ulreich wettert gegen Zweitliga-Trainer - Wolfsburg-Star verlost VIP-Karten für FCB-Spiel**: [Link](https://www.spox.com/de/sport/fussball/bundesliga/fc-bayern/2408/Artikel/muenchen-news-und-geruechte-unfassbar-sven-ulreich-wettert-gegen-zweitliga-trainer-wolfsburg-star-verlost-vip-karten-fuer-fcb-spiel.html)
+- **2. Bundesliga: Trainer Zorniger kritisiert Fehler des Fürther Torwarts scharf**: [Link](https://www.sueddeutsche.de/sport/2-bundesliga-greuther-fuerth-sc-paderborn-lux.UGbibxyZtu5p3AmE4541K9)
+
+
+### احوال الطقس (N/A, Sun, 25 Aug 2024 07:40:00 -0700)
+
+- **البحث يتواصل عن فتاة مفقودة في وادٍ**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A8%D8%AD%D8%AB-%D9%8A%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%B9%D9%86-%D9%81%D8%AA%D8%A7%D8%A9-%D9%85%D9%81%D9%82%D9%88%D8%AF%D8%A9-%D9%81%D9%8A-%D9%88%D8%A7%D8%AF%D9%8D-1421274.html)
+- **حمولة أودية بدرعة تافيلالت تسائل السياسة المائية لمواجهة مخاطر الجفاف (فيديو)**: [Link](https://ar.hibapress.com/details-544685.html)
+- **الحياة تعود لسد المنصور الذهبي…بعد جفاف حاد أمطار الغيث تملئ أحد أكبر سدود المملكة ضواحي ورزازات**: [Link](https://rue20.com/831893.html)
+
+
 ### dani olmo (N/A, Sun, 25 Aug 2024 07:00:00 -0700)
 
 - **Flick tenia razón: partidazo de Koundé**: [Link](https://as.com/futbol/primera/flick-tenia-razon-partidazo-de-kounde-n/)
