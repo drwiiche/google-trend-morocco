@@ -1,3 +1,19 @@
+### real madrid vs valladolid (N/A, Sun, 25 Aug 2024 07:00:00 -0700)
+
+- **Real Madrid-Valladolid: football is back at the Santiago Bernabéu**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/fixtures/real-madrid-valladolid-vuelve-el-futbol-al-santiago-bernabeu-25-08-2024)
+- **Kylian Mbappe's Bernabeu debut: How Ronaldo, Beckham and others started at 
+Real Madrid**: [Link](https://www.nytimes.com/athletic/5719143/2024/08/25/kylian-mbappe-bernabeu-debut-real-madrid-ronaldo-beckham/)
+- **Ancelotti dismisses questions on Real’s playing style, saying ‘We won two 
+CL’ playing that way**: [Link](https://pune.news/sports/ancelotti-dismisses-questions-on-reals-playing-style-saying-we-won-two-cl-playing-that-way-218267/)
+
+
+### bayern (N/A, Sun, 25 Aug 2024 06:50:00 -0700)
+
+- **Vorbericht Bundesliga: VfL Wolfsburg**: [Link](https://fcbayern.com/de/spiele/profis/bundesliga/2024-2025/vfl-wolfsburg-fc-bayern-muenchen-24-08-2024/vorbericht)
+- **Bayerns Auftaktbilanz gegen die Wölfe**: [Link](https://www.90min.de/posts/bayerns-auftaktbilanz-gegen-die-wolfe-25-08-2024)
+- **Kompany vor Premiere gelassen - neue Rolle für Goretzka?**: [Link](https://www.freenet.de/sport/bundesliga/kompany-vor-premiere-gelassen-neue-rolle-fuer-goretzka-40481648.html)
+
+
 ### wolfsburg vs bayern (N/A, Sun, 25 Aug 2024 06:40:00 -0700)
 
 - **Vorbericht Bundesliga: VfL Wolfsburg**: [Link](https://fcbayern.com/de/spiele/profis/bundesliga/2024-2025/vfl-wolfsburg-fc-bayern-muenchen-24-08-2024/vorbericht)
