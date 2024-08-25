@@ -1,3 +1,40 @@
+### torino – atalanta (N/A, Sun, 25 Aug 2024 09:00:00 -0700)
+
+- **Serie A, Torino-Atalanta in campo alle 18:30**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/08/24/serie-a-torino-atalanta-diretta_6da85aab-930b-4f16-a612-150fd7e7744a.html)
+- **Da Retegui e Carnesecchi a De Ketelaere e Brescianini: la formazione 
+dell’Atalanta**: [Link](https://www.sosfanta.com/news/da-retegui-e-carnesecchi-a-de-ketelaere-e-brescianini-la-formazione-dellatalanta/)
+- **Precedenti ok con Rapuano, ma rigori e rossi solo contro**: [Link](https://www.torinogranata.it/notizie/precedenti-ok-con-rapuano-ma-rigori-e-rossi-solo-contro-165076)
+
+
+### liverpool (N/A, Sun, 25 Aug 2024 08:50:00 -0700)
+
+- **Jamie Redknapp tells Liverpool the cold harsh reality of Arne Slot's side**: [Link](https://www.liverpool.com/liverpool-fc-news/redknapp-slot-liverpool-title-premierleague-29808438)
+- **Liverpool’s Zubimendi Pursuit: A New Twist in the Transfer Saga?**: [Link](https://www.empireofthekop.com/2024/08/23/zubimedi-liverpool-transfer-twist-sociedad/)
+- **Zubimendi U-turn and £65m hijack - Liverpool's dream final two weeks of 
+transfer window**: [Link](https://www.express.co.uk/sport/football/1938532/Liverpool-transfer-news-Zubimendi-Guehi-dream)
+
+
+### ليفربول ضد برينتفورد (N/A, Sun, 25 Aug 2024 08:50:00 -0700)
+
+- **بدلاء ليفربول ضد برينتفورد**: [Link](https://hihi2.com/2024/08/25/p2814327.html)
+- **مدرب ليفربول يوضح خطته لـ"إخراج أفضل ما لدى صلاح"**: [Link](https://www.alhurra.com/sport/2024/08/24/%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D9%88%D8%B6%D8%AD-%D8%AE%D8%B7%D8%AA%D9%87-%D9%84%D9%80%D8%A5%D8%AE%D8%B1%D8%A7%D8%AC-%D8%A3%D9%81%D8%B6%D9%84-%D9%85%D8%A7-%D9%84%D8%AF%D9%89-%D8%B5%D9%84%D8%A7%D8%AD)
+- **نتائج أخر 5 مباريات لـ ليفربول قبل مواجهة برينتفورد**: [Link](https://hihi2.com/2024/08/25/p2813657.html)
+
+
+### لا ليغا (N/A, Sun, 25 Aug 2024 08:40:00 -0700)
+
+- **4 حلول أمام برشلونة لتسجيل أولمو**: [Link](https://www.kooora.com/?n=1350344)
+- **أولمو نفد صبره مع إدارة برشلونة!**: [Link](https://hihi2.com/2024/08/25/p2814095.html)
+- **فليك: "تسجيل أولمو؟ لا أعرف ما إذا كان بإمكاننا الاعتماد عليه"**: [Link](https://m.elbotola.com/article/2024-08-25-12-11-67.html)
+
+
+### ريال مدريد (N/A, Sun, 25 Aug 2024 08:20:00 -0700)
+
+- **ريال مدريد يسقط في فخ مايوركا**: [Link](https://www.hespress.com/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D9%82%D8%B7-%D9%81%D9%8A-%D9%81%D8%AE-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-1418293.html)
+- **وداعا للدوري الاسباني … تصريح فاضح من انشلوتي**: [Link](https://hihi2.com/2024/08/20/p2802458.html)
+- **ميندي يتسبب في عقوبة لريال مدريد**: [Link](http://ar.sport.le360.ma/foot/157809)
+
+
 ### يلا شوت (N/A, Sun, 25 Aug 2024 08:20:00 -0700)
 
 - **مفاجأة في تشكيل الريال أمام بلد الوليد**: [Link](https://www.kooora.com/?n=1350349)
