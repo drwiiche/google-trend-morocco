@@ -1,3 +1,17 @@
+### bayern munich (N/A, Sun, 25 Aug 2024 06:30:00 -0700)
+
+- **Manuel Neuer raves about new signings at Bayern Munich**: [Link](https://www.bavarianfootballworks.com/2024/8/25/24226358/bayern-munich-transfers-manuel-neuer-joao-palhinha-hiroki-ito-michael-olise-vincent-kompany)
+- **Live blog: Kompany’s press conference before away game at Wolfsburg**: [Link](https://fcbayern.com/en/news/2024/08/live-blog-kompany-press-conference-before-away-game-at-wolfsburg)
+- **Honesty the best policy for Kompany at Bayern**: [Link](https://www.beinsports.com/en-nz/football/bundesliga/articles/honesty-the-best-policy-for-kompany-at-bayern-2024-08-24)
+
+
+### رصد الزلازل (N/A, Sun, 25 Aug 2024 06:30:00 -0700)
+
+- **هزة أرضية تضرب سواحل مدينتي آسفي والجديدة**: [Link](https://thevoice.ma/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D9%85%D8%AF%D9%8A%D9%86%D8%AA%D9%8A-%D8%A2%D8%B3%D9%81%D9%8A-%D9%88%D8%A7%D9%84%D8%AC%D8%AF/)
+- **هزة أرضية تضرب سواحل آسفي**: [Link](https://ar.hibapress.com/details-544664.html)
+- **هزة أرضية جديدة تسجل بسواحل من المملكة.**: [Link](https://agadir24.info/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B3%D8%AC%D9%84-%D8%A8%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9/)
+
+
 ### chelsea (N/A, Sun, 25 Aug 2024 06:20:00 -0700)
 
 - **Football gossip: Osimhen, Calvert-Lewin, Sancho, Broja, Lukaku, Omorodion**: [Link](https://www.bbc.com/sport/football/articles/cd9dk293q0do)
