@@ -1,3 +1,44 @@
+### endrick (N/A, Sun, 25 Aug 2024 10:00:00 -0700)
+
+- **Huge shock at Real Madrid as world class striker signed this summer already 
+threatening to leave**: [Link](https://www.caughtoffside.com/2024/08/21/real-madrid-striker-threatening-leave/)
+- **Endrick Felipe considering immediate Real Madrid departure due to lack of 
+prominence**: [Link](https://www.football-espana.net/2024/08/20/endrick-felipe-considering-immediate-real-madrid-departure-due-to-lack-of-prominence)
+- **Endrick's Real Madrid career could be about to take an unexpected turn**: [Link](https://www.sportbible.com/football/la-liga/real-madrid/endrick-real-madrid-la-liga-brazil-spain-transfers-178131-20240820)
+
+
+### la liga (N/A, Sun, 25 Aug 2024 10:00:00 -0700)
+
+- **Olmo in Barça squad despite registration wait**: [Link](https://www.espn.com/soccer/story/_/id/40974020/barcelona-include-dani-olmo-squad-amid-registration-wait)
+- **Primera División Barcelona 2 Athletic Club 1 Full time**: [Link](https://www.bbc.com/sport/football/live/c1epjz07edgt)
+- **FC Barcelona - Athletic Club live: La Liga - Football**: [Link](https://www.eurosport.com/football/la-liga/2024-2025/live-fc-barcelona-athletic-club_mtc1524223/live-commentary.shtml)
+
+
+### ترتيب الدوري الاسباني (N/A, Sun, 25 Aug 2024 10:00:00 -0700)
+
+- **مهاجم بايرن ميونخ وحده يتفوق على يامال**: [Link](https://www.kooora.com/?n=1350184)
+- **شاهد ملخص فوز برشلونة على بلباو 2-1 في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/24/barcelona-vs-athletic-club)
+- **مفاجأة فليك الكبرى في مواجهة بيلباو**: [Link](https://hihi2.com/2024/08/25/p2812931.html)
+
+
+### brahim diaz (N/A, Sun, 25 Aug 2024 09:50:00 -0700)
+
+- **Frustrated Bellingham claims 'body needs rest'**: [Link](https://www.espn.com/soccer/story/_/id/40962025/real-madrid-jude-bellingham-month-injury-source)
+- **Jude Bellingham finds his smile again! 'Frustrated' Real Madrid superstar 
+joins fellow injury victim David Alaba for gym session after being ruled 
+out of Blancos & England fixtures**: [Link](https://www.goal.com/en-gb/lists/jude-bellingham-smile-frustrated-real-madrid-superstar-injury-victim-david-alaba-gym-blancos-england-fixtures/bltd08163686a210973)
+- **Jude Bellingham: Real Madrid midfielder injured in lead-up to England 
+Nations League fixtures**: [Link](https://www.bbc.com/sport/football/articles/c1m0xknzx1eo)
+
+
+### real madrid – real valladolid : temps forts (N/A, Sun, 25 Aug 2024 09:50:00 -0700)
+
+- **DIRECT. Real Madrid-Valladolid (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-madrid-valladolid-live/657298)
+- **La Liga : Valverde débloque la situation pour le Real avec un coup franc 
+surpuissant !**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/la-liga-valverde-d%C3%A9bloque-la-situation-pour-le-real-avec-un-coup-franc-surpuissant-2024-08-25)
+- **Kylian Mbappé choque le vestiaire du Real Madrid !**: [Link](https://www.footmercato.net/a6479339842829779843-kylian-mbappe-choque-le-vestiaire-du-real-madrid)
+
+
 ### arda güler (N/A, Sun, 25 Aug 2024 09:40:00 -0700)
 
 - **Mbappé’s Bernabeu debut sets stadium on fire: Real Madrid fans deliver 
