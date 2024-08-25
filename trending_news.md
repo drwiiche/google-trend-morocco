@@ -1,3 +1,10 @@
+### inter miami vs cincinnati (N/A, Sat, 24 Aug 2024 16:50:00 -0700)
+
+- **Inter Miami clinch playoff spot with Suárez double**: [Link](https://www.espn.com/soccer/story/_/id/40982179/inter-miami-clinch-mls-playoffs-luis-suarez-goals-cincinnati)
+- **Two Luis Suarez goals for Inter Miami CF sink FC Cincinnati in 2-0 loss**: [Link](https://www.cincinnati.com/story/sports/soccer/fc-cincinnati/2024/08/24/fc-cincinnati-inter-miami-play-in-high-stakes-mls-2024-match-live/74939905007/)
+- **Photo Gallery: Inter Miami vs. FC Cincinnati | Saturday, Aug. 24, 2024**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article291437135.html)
+
+
 ### mls (N/A, Sat, 24 Aug 2024 18:30:00 -0700)
 
 - **Lionel Messi update: Inter Miami star "close" to return**: [Link](https://www.mlssoccer.com/news/lionel-messi-update-inter-miami-star-close-to-return)
