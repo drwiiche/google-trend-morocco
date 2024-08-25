@@ -1,3 +1,28 @@
+### atlético madrid – girona (N/A, Sun, 25 Aug 2024 11:40:00 -0700)
+
+- **Alineación posible del Atlético de Madrid hoy contra el Girona en LaLiga EA 
+Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-atletico-de-madrid-hoy-contra-el-girona-en-laliga-ea-sports-n/)
+- **El encaje de Julián Alvarez en el paraíso de Simeone**: [Link](https://elpais.com/deportes/futbol/2024-08-25/el-encaje-de-julian-alvarez-en-el-paraiso-de-simeone.html)
+- **Más de 30.000 aficionados recibEN a lo grande a los nuevos fichajes del 
+Atlético**: [Link](https://www.telemadrid.es/programas/juntos/Mas-de-30000-aficionados-recibEN-a-lo-grande-a-los-nuevos-fichajes-del-Atletico-2-2699450067--20240821105758.html)
+
+
+### rizespor – fenerbahçe (N/A, Sun, 25 Aug 2024 11:40:00 -0700)
+
+- **İlhan Palut: "Tempolu olmak zorundayız"**: [Link](https://beinsports.com.tr/haber/ilhan-palut-tempolu-olmak-zorundayiz)
+- **Mourinho'dan rakibe övgü: "Bu ligde gördüğüm en iyi takım"**: [Link](https://www.ntvspor.net/futbol/mourinho-dan-rakibe-ovgu-bu-ligde-gordugum-en-iyi-takim-66cb728bec7add04396dc280)
+- **Casper Hojer, Fenerbahçe maçı öncesi rahatsızlandı - Ajans Manisa**: [Link](https://www.ajansmanisa.com/haber-2480345-casper-hojer-fenerbahce-maci-oncesi-rahatsizlandi)
+
+
+### om (N/A, Sun, 25 Aug 2024 11:40:00 -0700)
+
+- **OM : Longoria a rencontré les lofteurs...**: [Link](https://www.lephoceen.fr/infos-om/autour-de-l-om/om-longoria-a-rencontre-les-lofteurs-218579)
+- **Hamas Rejects Latest Hostage Deal Offer As Israeli Delegation Returns From 
+Cairo**: [Link](https://www.i24news.tv/en/news/israel-at-war/artc-hamas-rejects-latest-hostage-deal-offer-as-israeli-delegation-returns-from-cairo)
+- **After NATO Nation Joins Hands With Russia, Israel Army Attacks Putin's 
+Ally: Ordered By Panicky USA?**: [Link](https://www.hindustantimes.com/videos/world-news/after-nato-nation-joins-hands-with-russia-israel-army-attacks-putins-ally-ordered-by-panicky-usa-101724568820629.html)
+
+
 ### marseille – reims (N/A, Sun, 25 Aug 2024 11:10:00 -0700)
 
 - **DIRECT. OM-Reims (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/om-reims-live/655875)
