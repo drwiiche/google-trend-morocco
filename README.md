@@ -1,3 +1,19 @@
+### arda güler (N/A, Sun, 25 Aug 2024 09:40:00 -0700)
+
+- **Mbappé’s Bernabeu debut sets stadium on fire: Real Madrid fans deliver 
+historic welcome to new no. 9**: [Link](https://en.as.com/videos/mbappes-bernabeu-debut-sets-stadium-on-fire-real-madrid-fans-deliver-historic-welcome-to-new-no-9-v/)
+- **French Superstar Mbappé Exudes Confidence In Real Madrid Greatness**: [Link](https://www.zimeye.net/2024/08/21/french-superstar-mbappe-exudes-confidence-in-real-madrid-greatness/)
+- **Mbappé dazzles in first Bernabeu training with stunning goal following 
+Modric’s incredible assist**: [Link](https://en.as.com/videos/mbappe-dazzles-in-first-bernabeu-training-with-stunning-goal-following-modrics-incredible-assist-v/)
+
+
+### achraf hakimi (N/A, Sun, 25 Aug 2024 09:40:00 -0700)
+
+- **أشرف حكيمي لصحفي فرنسي: "أن تريد إثارة الجدل!"**: [Link](https://m.elbotola.com/article/2024-08-24-17-33-252.html)
+- **حكيمي "يقمع" صحفيا بسبب مبابي**: [Link](http://ar.sport.le360.ma/marocains-du-monde/157909)
+- **حكيمي يقص شريط أهدافه في الموسم الجديد**: [Link](https://www.kooora.com/?n=1349979)
+
+
 ### deportivo alavés – betis (N/A, Sun, 25 Aug 2024 09:30:00 -0700)
 
 - **Alavés - Betis, en directo: resumen, goles y minuto a minuto del partido de 
