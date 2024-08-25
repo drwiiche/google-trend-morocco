@@ -1,3 +1,11 @@
+### silesia (N/A, Sun, 25 Aug 2024 08:00:00 -0700)
+
+- **Diamentowa Liga. Duplantis, Kaczmarek i inne gwiazdy w Chorzowie**: [Link](https://www.pap.pl/aktualnosci/diamentowa-liga-duplantis-kaczmarek-i-inne-gwiazdy-w-chorzowie)
+- **Niespodziewany efekt klęski Polski na igrzyskach. W końcu dobre wieści**: [Link](https://sportowefakty.wp.pl/la/1142297/tym-razem-dzialacze-nie-beda-musieli-sie-tlumaczyc-w-koncu-jakis-sukces)
+- **Dziś Silesia Memoriał Kamili Skolimowskiej: Program, bilety, dojazd, 
+atrakcje**: [Link](https://dziennikzachodni.pl/dzis-silesia-memorial-kamili-skolimowskiej-program-bilety-dojazd-atrakcje/ar/c2-18759481)
+
+
 ### liverpool – brentford (N/A, Sun, 25 Aug 2024 07:40:00 -0700)
 
 - **Virgil van Dijk: We must work hard - I believe in the talent within this group**: [Link](https://www.liverpoolfc.com/news/virgil-van-dijk-we-must-work-hard-i-believe-talent-within-group)
