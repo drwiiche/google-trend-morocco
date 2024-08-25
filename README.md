@@ -1,3 +1,10 @@
+### wolfsburg vs bayern (N/A, Sun, 25 Aug 2024 06:40:00 -0700)
+
+- **Vorbericht Bundesliga: VfL Wolfsburg**: [Link](https://fcbayern.com/de/spiele/profis/bundesliga/2024-2025/vfl-wolfsburg-fc-bayern-muenchen-24-08-2024/vorbericht)
+- **Bayerns Auftaktbilanz gegen die Wölfe**: [Link](https://www.90min.de/posts/bayerns-auftaktbilanz-gegen-die-wolfe-25-08-2024)
+- **Kompany vor Premiere gelassen - neue Rolle für Goretzka?**: [Link](https://de.nachrichten.yahoo.com/sport/kompany-premiere-gelassen-neue-rolle-091545711.html)
+
+
 ### bayern munich (N/A, Sun, 25 Aug 2024 06:30:00 -0700)
 
 - **Manuel Neuer raves about new signings at Bayern Munich**: [Link](https://www.bavarianfootballworks.com/2024/8/25/24226358/bayern-munich-transfers-manuel-neuer-joao-palhinha-hiroki-ito-michael-olise-vincent-kompany)
