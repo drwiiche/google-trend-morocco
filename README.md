@@ -1,3 +1,17 @@
+### leganés – las palmas (N/A, Sun, 25 Aug 2024 10:40:00 -0700)
+
+- **Leganés - Las Palmas, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/leganes-las-palmas/2024/08/25/01_0101_20240825_957_407-directo.html)
+- **Butarque examina a una UD en construcción**: [Link](https://tiempodecanarias.com/noticia/deportes/butarque-examina-a-una-ud-en-construccion)
+- **Carrión y el mercado: «No queremos tener a gente aquí parada»**: [Link](https://www.udlaspalmas.net/2024/08/23/luis-carrion-y-una-cesion-de-clemente-no-queremos-tener-a-gente-aqui-parada/)
+
+
+### strasbourg – rennes (N/A, Sun, 25 Aug 2024 09:40:00 -0700)
+
+- **Strasbourg 3-1 Rennes, Ligue 1 : les Alsaciens surclassent les Bretons**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/strasbourg-rennes-live/655868)
+- **Strasbourg - Rennes : les compositions officielles**: [Link](https://www.footmercato.net/a3908039360917547264-strasbourg-rennes-les-compositions-officielles)
+- **Vidéo. Liam Rosenior (Racing): « Un très bon début »**: [Link](https://www.dna.fr/sport/2024/08/24/liam-rosenior-(racing)-un-tres-bon-debut)
+
+
 ### madrid fc (N/A, Sun, 25 Aug 2024 10:00:00 -0700)
 
 - **El Milan quiere fichar en el Madrid en la última semana de agosto: “La 
