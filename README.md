@@ -1,3 +1,27 @@
+### mls (N/A, Sat, 24 Aug 2024 18:30:00 -0700)
+
+- **Lionel Messi update: Inter Miami star "close" to return**: [Link](https://www.mlssoccer.com/news/lionel-messi-update-inter-miami-star-close-to-return)
+- **Inter Miami vs FC Cincinnati live streaming: Prediction, head-to-head, 
+Lionel Messi injury update, how to**: [Link](https://m.economictimes.com/news/international/us/inter-miami-vs-fc-cincinnati-live-streaming-prediction-head-to-head-lionel-messi-injury-update-how-to-watch/articleshow/112750442.cms)
+- **When Will Messi Return? This Is What "Tata" Martino Said**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/when-will-messi-return-this-is-what-tata-martino-said-2024-08-23)
+
+
+### هيفاء وهبي (N/A, Sat, 24 Aug 2024 18:20:00 -0700)
+
+- **بالصور.. زحام وتكدس على هيفاء وهبي في الساحل الشمالي**: [Link](https://www.masrawy.com/arts/zoom/details/2024/8/23/2631687/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D8%B2%D8%AD%D8%A7%D9%85-%D9%88%D8%AA%D9%83%D8%AF%D8%B3-%D8%B9%D9%84%D9%89-%D9%87%D9%8A%D9%81%D8%A7%D8%A1-%D9%88%D9%87%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A-)
+- **بالفيديو - هيفاء وهبي تحيي أولى حفلاتها في مصر بعد إلغاء إيقافها**: [Link](https://www.lahamag.com/article/214017-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%87%D9%8A%D9%81%D8%A7%D8%A1-%D9%88%D9%87%D8%A8%D9%8A-%D8%AA%D8%AD%D9%8A%D9%8A-%D8%A3%D9%88%D9%84%D9%89-%D8%AD%D9%81%D9%84%D8%A7%D8%AA%D9%87%D8%A7-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D8%A5%D9%8A%D9%82%D8%A7%D9%81%D9%87%D8%A7)
+- **21:44 المشاهير العرب بالفيديو - الجمهور المصري يتدافع بقوة حول هيفا وهبي 
+للحصول على صورة معها - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/108056/2144%0A%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%0A%0A%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88---%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%AA%D8%AF%D8%A7%D9%81%D8%B9-%D8%A8%D9%82%D9%88%D8%A9-%D8%AD%D9%88%D9%84-%D9%87%D9%8A%D9%81%D8%A7-%D9%88%D9%87%D8%A8%D9%8A-%D9%84%D9%84%D8%AD%D8%B5%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%B5%D9%88%D8%B1%D8%A9-%D9%85%D8%B9%D9%87%D8%A7---AARC-%D9%85%D8%B5%D8%B1.html)
+
+
+### apple iphone 16 (N/A, Sat, 24 Aug 2024 17:40:00 -0700)
+
+- **List of iPhone models to support Apple’s iOS 18 and Apple Intelligence**: [Link](https://www.hindustantimes.com/technology/list-of-iphone-models-to-support-apple-s-ios-18-and-apple-intelligence-101724312970433.html)
+- **Exclusive: every iPhone 16 & iPhone 16 Pro camera spec & Capture Button 
+detail revealed**: [Link](https://appleinsider.com/articles/24/08/22/exclusive-every-iphone-16-iphone-16-pro-camera-spec-capture-button-detail-revealed)
+- **Apple Targets Sept. 10 Debut for New iPhones, AirPods and Watches**: [Link](https://www.bloomberg.com/news/articles/2024-08-23/when-is-apple-announcing-the-iphone-16-apple-planning-event-on-sept-10-2024)
+
+
 ### ansu fati (N/A, Sat, 24 Aug 2024 16:10:00 -0700)
 
 - **Barcelona rethink Fati plans**: [Link](https://www.tribalfootball.com/article/soccer-laliga-barcelona-rethink-fati-plans-20ef975d-57ef-46eb-bfb0-e6752e8ab503)
