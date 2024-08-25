@@ -1,3 +1,10 @@
+### dani olmo (N/A, Sun, 25 Aug 2024 07:00:00 -0700)
+
+- **Flick tenia razón: partidazo de Koundé**: [Link](https://as.com/futbol/primera/flick-tenia-razon-partidazo-de-kounde-n/)
+- **¿Qué necesita el Barça para inscribir a Olmo antes de la visita al Rayo?**: [Link](https://www.sport.es/es/noticias/barca/necesita-barca-inscribir-olmo-visita-107343482)
+- **Olmo no jugará frente al Athletic; el Barça no logra inscribirlo**: [Link](https://www.marca.com/futbol/barcelona/2024/08/24/66c9fae4ca474119288b457d.html)
+
+
 ### real madrid vs valladolid (N/A, Sun, 25 Aug 2024 07:00:00 -0700)
 
 - **Real Madrid-Valladolid: football is back at the Santiago Bernabéu**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/fixtures/real-madrid-valladolid-vuelve-el-futbol-al-santiago-bernabeu-25-08-2024)
