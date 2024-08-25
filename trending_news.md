@@ -1,3 +1,27 @@
+### العمق المغربي (N/A, Sun, 25 Aug 2024 01:40:00 -0700)
+
+- **غينيا الاستوائية تدخل المنافسة على الغاز النيجيري.. هل تسحب البساط من 
+المغرب والجزائر؟**: [Link](https://al3omk.com/959848.html)
+- **نيجيريا وغينيا الاستوائية تتفقان على إنشاء خط أنابيب غاز**: [Link](https://asharqbusiness.com/power/51360/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%88%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%88%D8%A7%D8%A6%D9%8A%D8%A9-%D8%AA%D8%AA%D9%81%D9%82%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%A5%D9%86%D8%B4%D8%A7%D8%A1-%D8%AE%D8%B7-%D8%A3%D9%86%D8%A7%D8%A8%D9%8A%D8%A8-%D8%BA%D8%A7%D8%B2/)
+- **خط الغاز بين المغرب ونيجيريا: غينيا الإستوائية ونيجريا يتفقان لتشغيل الخط**: [Link](https://chouftv.ma/press/718244.html)
+
+
+### الجزيرة (N/A, Sat, 24 Aug 2024 22:20:00 -0700)
+
+- **الحرب على غزة مباشر.. جولة مفصلية بمفاوضات القاهرة وحزب الله يشن هجوما واسعا**: [Link](https://www.aljazeera.net/news/liveblog/2024/8/25/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B9%D8%B4%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D9%87%D8%AF%D8%A7%D8%A1-7)
+- **معاناة غزة تتفاقم... و«فيلادلفيا» بلا حل**: [Link](https://aawsat.com/%D8%B4%D8%A4%D9%88%D9%86-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A%D8%A9/5053920-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D8%BA%D8%B2%D8%A9-%D8%AA%D8%AA%D9%81%D8%A7%D9%82%D9%85-%D9%88%D9%81%D9%8A%D9%84%D8%A7%D8%AF%D9%84%D9%81%D9%8A%D8%A7-%D8%A8%D9%84%D8%A7-%D8%AD%D9%84)
+- **القوات الإسرائيلية تواصل قصفها بغزة والجماعات الفلسطينية المسلحة تهاجم 
+القوات الإسرائيلية**: [Link](https://arabic.cgtn.com/news/2024-08-25/1827571232836780034/index.html)
+
+
+### al jazeera (N/A, Sat, 24 Aug 2024 22:00:00 -0700)
+
+- **Israel launches strikes in Lebanon and Hezbollah fires hundreds of rockets 
+in major escalation**: [Link](https://www.bbc.com/news/live/cxx2y4dpr3et)
+- **Israeli military says jets striking in Lebanon**: [Link](https://thesun.my/world/israeli-military-says-jets-striking-in-lebanon-DK12904878)
+- **Heavy exchange of shelling erupts across Lebanese-Israeli border**: [Link](https://www.africanews.com/2024/08/23/heavy-exchange-of-shelling-erupts-across-lebanese-israeli-border//)
+
+
 ### aljazeera net (N/A, Sun, 25 Aug 2024 02:10:00 -0700)
 
 
