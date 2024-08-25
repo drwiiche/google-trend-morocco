@@ -1,3 +1,39 @@
+### bournemouth – newcastle (N/A, Sun, 25 Aug 2024 05:30:00 -0700)
+
+- **Premier League Predictions & best bets: Back 11/1 Dominik Szoboszlai to net 
+in Liverpool win vs Brentford**: [Link](https://www.skysports.com/football/news/11661/13200625/premier-league-predictions-and-best-bets-everton-set-to-shock-sleepy-spurs-as-jones-knows-tips-up-12-1-treble)
+- **Fresh NUFC injury blow confirmed as new signing called-up & Kieran Trippier 
+call made**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/fresh-newcastle-united-injury-blow-confirmed-as-new-signing-called-up-kieran-trippier-call-made-4755917)
+- **£5m man set to start and Howe’s defensive dilemma – Predicted team vs 
+Bournemouth**: [Link](https://www.nufcblog.co.uk/2024/08/25/5m-man-set-to-start-and-howes-defensive-dilemma-predicted-team-vs-bournemouth/)
+
+
+### وولفرهامبتون ضد تشيلسي (N/A, Sun, 25 Aug 2024 05:30:00 -0700)
+
+- **بالصور.. لاعب تشيلسي يسيء لوولفرهامبتون**: [Link](https://www.kooora.com/?n=1350320)
+- **تشكيلة تشيلسي الرسمية لمواجهة ولفرهامبتون في البريميرليغ**: [Link](https://hihi2.com/2024/08/25/p2814070.html)
+- **يلا شوت MGA4K.. بدون تقطيع مشاهدة مباراة تشيلسي وولفرهامبتون اليوم بث مباشر 
+تويتر في الدوري السعودي**: [Link](https://real.alsaudinews.com/146446/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-mga4k-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%88%D9%84%D9%81/)
+
+
+### wolves – chelsea (N/A, Sun, 25 Aug 2024 05:10:00 -0700)
+
+- **Premier League LIVE: Build-up to Bournemouth vs Newcastle United (14:00 
+kick off) & two other games**: [Link](https://www.bbc.com/sport/football/live/crg5gv0l203t)
+- **Wolves vs. Chelsea, Premier League: Preview, team news, how to watch**: [Link](https://weaintgotnohistory.sbnation.com/2024/8/25/24227607/wolverhampton-wanderers-wolves-vs-chelsea-premier-league-preview-team-news-how-to-watch)
+- **Wolves vs. Chelsea FREE LIVE STREAM (8/25/24) | Time, TV, channel for 
+Premier League soccer match**: [Link](https://www.nj.com/sports/2024/08/wolves-vs-chelsea-free-live-stream-82524-time-tv-channel-for-premier-league-soccer-match.html)
+
+
+### real madrid – valladolid (N/A, Sun, 25 Aug 2024 03:50:00 -0700)
+
+- **Alineación posible del Real Madrid hoy contra el Valladolid en LaLiga EA 
+Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-hoy-contra-el-valladolid-en-laliga-ea-sports-n/)
+- **Ancelotti paró el entrenamiento, tuvo que separar a Rudiger y Mbappé: “Eso 
+no se hace…”**: [Link](https://www.defensacentral.com/real_madrid/1709325758-ancelotti-paro-el-entrenamiento-tuvo-que-separar-a-rudiger-y-mbappe-eso-no-se-hace)
+- **Convocatoria del Real Madrid frente al Valladolid**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-frente-al-valladolid-24-08-2024)
+
+
 ### formula 1 (N/A, Sun, 25 Aug 2024 03:30:00 -0700)
 
 - **Norris surges to stunning Dutch GP pole ahead of Verstappen**: [Link](https://www.formula1.com/en/latest/article/norris-surges-to-stunning-pole-ahead-of-verstappen-and-piastri-during.GBxgPngEFHZeb7FheBo67)
