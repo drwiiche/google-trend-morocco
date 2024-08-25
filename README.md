@@ -1,3 +1,39 @@
+### quinté du jour (N/A, Sun, 25 Aug 2024 02:00:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 2 Climate 
+Change**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-2-climate-change-125415.html)
+- **Deauville Prix «ParisTurf» (Prix François André - Grand Prix des Femmes 
+Jockeys)**: [Link](https://www.paris-turf.com/course/deauville-prix-paristurf-prix-francois-andre-grand-prix-des-femmes-jockeys-idc-fcaff64fef4369e91edf40fb324fae4e)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 13 Hisa du 
+Margas**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-13-hisa-du-margas-125398.html)
+
+
+### inondations ouarzazate (N/A, Sun, 25 Aug 2024 01:00:00 -0700)
+
+- **Alerte météo: De fortes averses orageuses ce samedi dans certaines provinces**: [Link](https://fr.hespress.com/383284-alerte-meteo-de-fortes-averses-orageuses-ce-samedi-dans-certaines-provinces.html)
+- **Forts orages dans l'est du Haut Atlas... provoquant des pertes et des 
+inondations dans les vallées + vidéo**: [Link](https://fr.hibapress.com/news-127523.html)
+- **Alerte Météo. Fortes averses et grêle dans cinq provinces**: [Link](https://medias24.com/2024/08/24/alerte-meteo-fortes-averses-et-grele-dans-cinq-provinces/)
+
+
+### الجزيرة نت (N/A, Sat, 24 Aug 2024 22:40:00 -0700)
+
+- **حزب الله يشن هجوما واسعا على عمق إسرائيل ويعلن قصف هدف نوعي**: [Link](https://www.aljazeera.net/news/2024/8/25/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B9%D9%84%D9%86-%D8%A8%D8%AF%D8%A1-%D9%87%D8%AC%D9%88%D9%85-%D8%AC%D9%88%D9%8A-%D9%83%D8%A8%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%B9%D9%85%D9%82)
+- **🔴 مباشر: إسرائيل تنفذ ضربات "استباقية" على جنوب لبنان وحزب الله يعلن شن 
+هجوم واسع النطاق**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20240825-%F0%9F%94%B4%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B9%D9%84%D9%86-%D8%B4%D9%86%D9%91-%D9%87%D8%AC%D9%88%D9%85-%D9%88%D8%A7%D8%B3%D8%B9-%D8%B6%D8%AF-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A8%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D8%A7%D9%85-%D9%85%D8%B3%D9%8A%D9%91%D8%B1%D8%A7%D8%AA-%D9%81%D8%A4%D8%A7%D8%AF-%D8%B4%D9%83%D8%B1-%D8%BA%D8%B2%D8%A9-%D8%AD%D9%85%D8%A7%D8%B3)
+- **حزب الله: الهجوم الاستباقي الإسرائيلي "ادعاءات فارغة"**: [Link](https://www.skynewsarabia.com/middle-east/1737579-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%A8%D8%A7%D9%82%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84%D9%8A-%D8%A7%D8%AF%D8%B9%D8%A7%D8%A1%D8%A7%D8%AA-%D9%81%D8%A7%D8%B1%D8%BA%D8%A9)
+
+
+### inter miami (N/A, Sat, 24 Aug 2024 17:30:00 -0700)
+
+- **Tom Brady joins David Beckham at Inter Miami match as NFL legend takes in 
+some MLS action - with injured Lione**: [Link](https://www.dailymail.co.uk/sport/football/article-13777185/tom-brady-lionel-messi-inter-miami-luis-suarez-mls.html)
+- **VIDEO: GOAT sightings! Lionel Messi & NFL legend Tom Brady join David 
+Beckham in the stands for Inter Miami’s crucial MLS victory over FC 
+Cincinnati**: [Link](https://www.goal.com/en-sg/lists/video-lionel-messi-nfl-legend-tom-brady-david-beckham-inter-miami-mls-victory-fc-cincinnati/bltac62f9386b537e54)
+- **Will Messi play before end of MLS season? Inter Miami star's injury update**: [Link](https://www.usatoday.com/story/sports/mls/2024/08/23/lionel-messi-injury-update-inter-miami-cincinnati/74917833007/)
+
+
 ### mike lynch (N/A, Sun, 25 Aug 2024 01:40:00 -0700)
 
 - **Questions for Investigators Trying to Unravel Mystery of Luxury Yacht’s Sinking**: [Link](https://www.nytimes.com/2024/08/25/world/europe/bayesian-yacht-investigation.html)
