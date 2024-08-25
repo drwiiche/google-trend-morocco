@@ -1,3 +1,10 @@
+### formula 1 (N/A, Sun, 25 Aug 2024 03:30:00 -0700)
+
+- **Norris surges to stunning Dutch GP pole ahead of Verstappen**: [Link](https://www.formula1.com/en/latest/article/norris-surges-to-stunning-pole-ahead-of-verstappen-and-piastri-during.GBxgPngEFHZeb7FheBo67)
+- **F1 Dutch GP qualifying - Start time, how to watch & more**: [Link](https://www.autosport.com/f1/news/f1-dutch-gp-qualifying-start-time-how-to-watch-more-10647016/10647016/)
+- **Motor racing-Norris ends Verstappen’s 100% Zandvoort pole run**: [Link](https://whtc.com/2024/08/24/motor-racing-norris-ends-verstappens-100-zandvoort-pole-run/)
+
+
 ### mélenchon premier ministre (N/A, Sun, 25 Aug 2024 03:50:00 -0700)
 
 
