@@ -1,3 +1,19 @@
+### يلا شوت (N/A, Sun, 25 Aug 2024 08:20:00 -0700)
+
+- **مفاجأة في تشكيل الريال أمام بلد الوليد**: [Link](https://www.kooora.com/?n=1350349)
+- **١٥ دقيقة بدون أهداف بين الريال و بلد الوليد**: [Link](https://hihi2.com/2024/08/25/p2814416.html)
+- **مباشر مباراة ريال مدريد ضد بلد الوليد 0-0 في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/25/real-madrid-v-valladolid)
+
+
+### diamond league (N/A, Sun, 25 Aug 2024 08:20:00 -0700)
+
+- **Silesia: Live Updates**: [Link](https://www.diamondleague.com/news/general/silesia-live-updates-2/)
+- **Neeraj Chopra Finishes Second in the Lausanne Diamond League! A Close Call 
+for Gold**: [Link](https://www.jagranjosh.com/general-knowledge/neeraj-chopra-sets-season-best-89-49m-in-lausanne-1724399783-1)
+- **Diamond League: Matthew Hudson-Smith set to renew Quincy Hall rivalry in 
+400m**: [Link](https://www.bbc.com/sport/athletics/articles/c5y39l6jr9jo)
+
+
 ### bet 365 (N/A, Sun, 25 Aug 2024 08:10:00 -0700)
 
 - **Upgraded Bet365 Bonus Code “DIMERS” unlocks $150 Bonus Bet in NC, NJ, and 
