@@ -1,3 +1,20 @@
+### jannik sinner (N/A, Sun, 25 Aug 2024 10:20:00 -0700)
+
+- **Djokovic urges 'clear protocols' after Sinner ruling**: [Link](https://www.espn.com/tennis/story/_/id/40981135/djokovic-faults-tennis-lack-consistency-sinner-doping-ruling)
+- **Tennis’s No. 1 Player Dodged a Doping Ban. Would the Same Be True for No. 
+100?**: [Link](https://www.wsj.com/sports/tennis/jannik-sinner-doping-ban-us-open-c2811abf)
+- **Novak Djokovic demands change in doping rules after Jannik Sinner case**: [Link](https://www.theguardian.com/sport/article/2024/aug/24/novak-djokovic-demands-change-in-doping-rules-after-jannik-sinner-case)
+
+
+### fiorentina (N/A, Sun, 25 Aug 2024 10:10:00 -0700)
+
+- **Juve-Nico Gonzalez, è fatta. Intesa raggiunta con la Fiorentina**: [Link](https://www.gazzetta.it/Calcio/Calciomercato/Juventus/24-08-2024/calciomercato-juve-fatta-per-nico-gonzalez-arriva-dalla-fiorentina-per-38-milioni.shtml)
+- **La Juventus è scatenata. Nico c'è, Conceicao quasi: e la ciliegina sarà 
+Koopmeiners**: [Link](https://www.tuttoatalanta.com/calciomercato/la-juventus-e-scatenata-nico-c-e-conceicao-quasi-e-la-ciliegina-sara-koopmeiners-105743)
+- **E Commisso è costretto a 'tifare' Juve in campionato e in Champions: sul 
+piatto ci sono gli ultimi bonus per Gonzalez da mettere in saccoccia**: [Link](https://www.fiorentinanews.com/news/410022481414/e-commisso-e-costretto-a-tifare-juve-in-campionato-e-in-champions-sul-piatto-ci-sono-gli-ultimi-bonus-per-gonzalez-da-mettere-in-saccoccia)
+
+
 ### real madrid cf (N/A, Sun, 25 Aug 2024 10:10:00 -0700)
 
 - **Real Madrid Officially Announces Transfer**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/23/real-madrid-officially-announces-transfer/)
