@@ -1,3 +1,18 @@
+### fiorentina – venezia (N/A, Sun, 25 Aug 2024 09:20:00 -0700)
+
+- **Serie A: alle 18.30 Fiorentina-Venezia e Torino-Atalanta, alle 20.45 
+Napoli-Bologna e Roma-Empoli - Torino-Atalanta, le formazioni ufficiali**: [Link](https://www.rainews.it/maratona/2024/08/calcio-serie-a-tutte-le-partite-della-seconda-giornata-con-highlights-e-cronaca-testuale-in-diretta-8bacf86c-8d3d-4f58-b798-7aff73230e6b.html)
+- **✅ Le UFFICIALI delle 18:30: la scelta su De Gea, Musso, Kean e Samardzic**: [Link](https://onefootball.com/it/notizie/le-ufficiali-delle-1830-la-scelta-su-de-gea-musso-kean-e-samardzic-39943626)
+- **IKONÈ, Il motivo dell'assenza di oggi. Christensen...**: [Link](https://www.firenzeviola.it/primo-piano/ikone-il-motivo-dell-assenza-di-oggi-christensen-431163)
+
+
+### مباريات اليوم مباشر (N/A, Sun, 25 Aug 2024 08:40:00 -0700)
+
+- **مهاجم بايرن ميونخ وحده يتفوق على يامال**: [Link](https://www.kooora.com/?n=1350184)
+- **مفاجأة فليك الكبرى في مواجهة بيلباو**: [Link](https://hihi2.com/2024/08/25/p2812931.html)
+- **شاهد ملخص فوز برشلونة على بلباو 2-1 في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/24/barcelona-vs-athletic-club)
+
+
 ### torino – atalanta (N/A, Sun, 25 Aug 2024 09:00:00 -0700)
 
 - **Serie A, Torino-Atalanta in campo alle 18:30**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/08/24/serie-a-torino-atalanta-diretta_6da85aab-930b-4f16-a612-150fd7e7744a.html)
