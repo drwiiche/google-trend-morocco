@@ -1,3 +1,19 @@
+### marseille fc (N/A, Sun, 25 Aug 2024 13:30:00 -0700)
+
+- **Ligue 1**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/liveevent.shtml)
+- **L1 (J1) : les compos du multiplex**: [Link](https://www.foot-national.com/ligue-1/l1-j1-les-compos-du-multiplex-883734)
+- **Reims : un point important pour Akieme**: [Link](https://news.maxifoot.fr/reims/un-point-important-pour-akieme-foot-418017.htm)
+
+
+### claude marquis (N/A, Sun, 25 Aug 2024 12:10:00 -0700)
+
+- **Basket. Ancien pivot de Cholet et de l’équipe de France, Claude Marquis est 
+mort à l’âge de 44 ans**: [Link](https://www.ouest-france.fr/sport/basket/cholet/basket-ancien-pivot-de-cholet-et-de-lequipe-de-france-claude-marquis-est-mort-a-lage-de-44-ans-30ce3478-62c4-11ef-9def-0ffd2dc3a11f)
+- **Disparition : Mort de l'ancien international français Claude Marquis à 44 
+ans**: [Link](https://www.lequipe.fr/Basket/Actualites/Mort-de-l-ancien-international-francais-claude-marquis-a-44-ans/1503354)
+- **Claude Marquis, ancien basketteur originaire de Guyane, décédé à 44 ans**: [Link](https://www.franceguyane.fr/actualite/societe-social-emploi/necrologie/claude-marquis-ancien-basketteur-originaire-de-guyane-decede-a-44-ans-1000479.php)
+
+
 ### kim kardashian (N/A, Sun, 25 Aug 2024 13:40:00 -0700)
 
 - **Kim Kardashian Shares Highlights of Soccer Mom Trip to Real Madrid with Son 
