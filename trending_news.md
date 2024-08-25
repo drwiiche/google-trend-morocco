@@ -1,3 +1,10 @@
+### mike lynch (N/A, Sun, 25 Aug 2024 01:40:00 -0700)
+
+- **Questions for Investigators Trying to Unravel Mystery of Luxury Yacht’s Sinking**: [Link](https://www.nytimes.com/2024/08/25/world/europe/bayesian-yacht-investigation.html)
+- **Mike Lynch and daughter among missing after yacht sinks: What we know about disaster - and 'alarming' potential cause**: [Link](https://news.sky.com/story/bayesian-yacht-everything-we-know-so-far-about-luxury-vessel-sunk-by-tornado-off-coast-of-italy-13199753)
+- **Last body from superyacht sinking off Sicily found: Italian coastguard**: [Link](https://www.aljazeera.com/news/2024/8/23/last-body-from-superyacht-sinking-off-sicily-found-italian-coastguard)
+
+
 ### telegram (N/A, Sat, 24 Aug 2024 15:30:00 -0700)
 
 - **IDF strikes Hezbollah after detecting readiness for major attack on Israeli 
