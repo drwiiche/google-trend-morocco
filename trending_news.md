@@ -1,3 +1,8 @@
+### roma – empoli (N/A, Sun, 25 Aug 2024 12:10:00 -0700)
+
+- **Roma Prepares for Crucial Match Against Empoli After Dybala Decides to Stay**: [Link](https://www.ilmessaggero.it/en/roma_prepares_for_crucial_match_against_empoli_after_dybala_decides_to_stay-8312479.html)
+
+
 ### naples – bologne (N/A, Sun, 25 Aug 2024 12:00:00 -0700)
 
 - **DIRECT. Naples-Bologne (Serie A 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2024-2025/naples-bologne-live/659920)
