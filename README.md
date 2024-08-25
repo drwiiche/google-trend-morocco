@@ -1,3 +1,11 @@
+### telegram (N/A, Sat, 24 Aug 2024 15:30:00 -0700)
+
+- **IDF strikes Hezbollah after detecting readiness for major attack on Israeli 
+civilians**: [Link](https://www.timesofisrael.com/liveblog-august-25-2024/)
+- **Pavel Durov: Telegram CEO arrested at French airport**: [Link](https://www.bbc.com/news/articles/ckg2kz9kn93o)
+- **Founder and CEO of Telegram arrested at French airport on multiple charges**: [Link](https://www.jpost.com/breaking-news/article-816149)
+
+
 ### inter miami vs cincinnati (N/A, Sat, 24 Aug 2024 16:50:00 -0700)
 
 - **Inter Miami clinch playoff spot with Suárez double**: [Link](https://www.espn.com/soccer/story/_/id/40982179/inter-miami-clinch-mls-playoffs-luis-suarez-goals-cincinnati)
