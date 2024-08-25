@@ -1,3 +1,19 @@
+### hakimi (N/A, Sun, 25 Aug 2024 13:10:00 -0700)
+
+- **أشرف حكيمي لصحفي فرنسي: "أن تريد إثارة الجدل!"**: [Link](https://m.elbotola.com/article/2024-08-24-17-33-252.html)
+- **حكيمي "يقمع" صحفيا بسبب مبابي**: [Link](http://ar.sport.le360.ma/marocains-du-monde/157909)
+- **حكيمي يقص شريط أهدافه في الموسم الجديد**: [Link](https://www.kooora.com/?n=1349979)
+
+
+### leon marchand (N/A, Sun, 25 Aug 2024 13:10:00 -0700)
+
+- **Léon Marchand : ce cadeau reçu juste avant les JO… à plus de 100 000 euros !**: [Link](https://www.gala.fr/l_actu/news_de_stars/leon-marchand-apres-ses-prouesses-aux-jo-de-paris-le-nageur-recoit-un-cadeau-a-plus-de-100-000-euros_550544)
+- **Léon Marchand reçoit un cadeau de plus de 100 000 euros ! Mais attention, 
+il reste "fidèle à ses valeurs"**: [Link](https://www.purepeople.com/article/leon-marchand-recoit-un-cadeau-de-plus-de-100-000-euros-mais-attention-il-reste-fidele-a-ses-valeurs_a526574/1)
+- **Léon Marchand nommé « ami de la marque » par Porsche, il reçoit une Taycan 
+blanche !**: [Link](https://www.public.fr/leon-marchand-nomme-ami-de-la-marque-par-porsche-il-recoit-une-taycan-blanche)
+
+
 ### marseille vs reims (N/A, Sun, 25 Aug 2024 13:00:00 -0700)
 
 - **Mohammed Salisu shines in Monaco's victory over Lyon**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/Mohammed-Salisu-shines-in-Monaco-s-victory-over-Lyon-1947381)
