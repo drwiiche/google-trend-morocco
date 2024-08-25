@@ -1,3 +1,12 @@
+### madrid fc (N/A, Sun, 25 Aug 2024 10:00:00 -0700)
+
+- **El Milan quiere fichar en el Madrid en la última semana de agosto: “La 
+oportunidad…"**: [Link](https://www.defensacentral.com/real_madrid/1709325773-el-milan-quiere-fichar-en-el-madrid-en-la-ultima-semana-de-agosto-la-oportunidad)
+- **Oferta sobre la mesa: un gigante de Europa lanza una oferta TOP por Brahim 
+Díaz**: [Link](https://www.planetarealmadrid.com/fichajes-y-precios/oferta-sobre-mesa-gigante-europa-lanza-por-brahim-diaz_158015_102.html)
+- **Endrick levanta la feria**: [Link](https://as.com/futbol/primera/endrick-levanta-la-feria-n/)
+
+
 ### jannik sinner (N/A, Sun, 25 Aug 2024 10:20:00 -0700)
 
 - **Djokovic urges 'clear protocols' after Sinner ruling**: [Link](https://www.espn.com/tennis/story/_/id/40981135/djokovic-faults-tennis-lack-consistency-sinner-doping-ruling)
