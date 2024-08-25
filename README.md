@@ -1,3 +1,19 @@
+### chelsea (N/A, Sun, 25 Aug 2024 06:20:00 -0700)
+
+- **Football gossip: Osimhen, Calvert-Lewin, Sancho, Broja, Lukaku, Omorodion**: [Link](https://www.bbc.com/sport/football/articles/cd9dk293q0do)
+- **Chelsea could sign 'outstanding' striker as Victor Osimhen alternative**: [Link](https://www.thechelseachronicle.com/transfer-news/chelsea-could-sign-outstanding-striker-as-victor-osimhen-alternative/)
+- **How to watch today's Chelsea vs Servette Europa Conference League game: 
+Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-gb/news/chelsea-v-servette-live-stream-online-tv-where-to-watch/bltee9a705adeddf21b)
+
+
+### floyd mayweather (N/A, Sun, 25 Aug 2024 06:20:00 -0700)
+
+- **Mayweather goes the distance against Gotti III in Mexico City**: [Link](https://apnews.com/article/mayweather-gotti-iii-box-mexico-city-b8dfd803593983108be8e0f1f4078fe0)
+- **Floyd Mayweather Jr. Vs. John Gotti III Results: Winner And Reaction**: [Link](https://www.forbes.com/sites/brianmazique/2024/08/25/floyd-mayweather-jr-vs-john-gotti-iii-results-winner-and-reaction/)
+- **Floyd Mayweather dominates John Gotti III in exhibition that includes 
+bizarre referee substitution**: [Link](https://sports.yahoo.com/floyd-mayweather-dominates-john-gotti-063050450.html)
+
+
 ### wolves vs chelsea (N/A, Sun, 25 Aug 2024 05:30:00 -0700)
 
 - **Chelsea's Romeo Lavia out injured again as he misses Wolves match with 
