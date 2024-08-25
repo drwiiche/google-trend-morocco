@@ -1,3 +1,13 @@
+### ademola lookman (N/A, Sun, 25 Aug 2024 16:00:00 -0700)
+
+- **Arsenal prepare huge player-plus-cash offer for Atalanta 'rebel' Ademola 
+Lookman - but Mikel Arteta's Gunners face competition from Premier League 
+title rivals**: [Link](https://www.goal.com/en-us/lists/arsenal-prepare-offer-atalanta-ademola-lookman-competition-premier-league-title-rivals-liverpool/blta5dfddd041d28a74)
+- **Transfer: Atalanta drop Lookman for Torino clash amid Arsenal, PSG links**: [Link](https://dailypost.ng/2024/08/24/transfer-atalanta-drop-lookman-for-torino-clash-amid-arsenal-psg-links/)
+- **Arsenal one transfer away from unleashing Bukayo Saka with dream £60m 
+deadline deal**: [Link](https://www.football.london/arsenal-fc/transfer-news/arsenal-one-transfer-away-unleashing-29786855)
+
+
 ### marseille fc (N/A, Sun, 25 Aug 2024 13:30:00 -0700)
 
 - **Ligue 1**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/liveevent.shtml)
