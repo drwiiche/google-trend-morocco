@@ -1,3 +1,11 @@
+### f1 (N/A, Sun, 25 Aug 2024 03:10:00 -0700)
+
+- **Hamilton hit with grid penalty for Dutch Grand Prix after impeding Perez in 
+qualifying**: [Link](https://www.formula1.com/en/latest/article/breaking-hamilton-hit-with-grid-penalty-for-dutch-grand-prix-after-impeding.14fmYircVGRKMylOx0a5BO)
+- **Dutch GP: Second Row on the Grid for George at Zandvoort**: [Link](https://www.mercedesamgf1.com/news/dutch-gp-second-row-on-the-grid-for-george-at-zandvoort)
+- **Hamilton hit with three-place grid penalty for impeding Perez**: [Link](https://www.racefans.net/2024/08/24/hamilton-hit-with-three-place-grid-penalty-for-impeding-perez/)
+
+
 ### العمق المغربي (N/A, Sun, 25 Aug 2024 01:40:00 -0700)
 
 - **غينيا الاستوائية تدخل المنافسة على الغاز النيجيري.. هل تسحب البساط من 
