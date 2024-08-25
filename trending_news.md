@@ -1,3 +1,11 @@
+### deportivo alavés – betis (N/A, Sun, 25 Aug 2024 09:30:00 -0700)
+
+- **Alavés - Betis, en directo: resumen, goles y minuto a minuto del partido de 
+LaLiga EA Sports 2024-2025**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/alaves-betis-directo-resumen-goles-minuto-minuto-20240825175231-dis.html)
+- **Menos de 800 entradas para el estreno liguero en Mendi**: [Link](https://nortexpres.com/menos-de-800-entradas-para-el-estreno-liguero-en-mendi/)
+- **Deportivo Alavés - Real Betis: horario, fecha y dónde ver por televisión**: [Link](https://www.elcorreoweb.es/betis/2024/08/24/alaves-betis-horario-ver-television-liga-107316427.html)
+
+
 ### fiorentina – venezia (N/A, Sun, 25 Aug 2024 09:20:00 -0700)
 
 - **Serie A: alle 18.30 Fiorentina-Venezia e Torino-Atalanta, alle 20.45 
