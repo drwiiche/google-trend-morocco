@@ -1,3 +1,18 @@
+### atletico madrid (N/A, Sun, 25 Aug 2024 12:40:00 -0700)
+
+- **Simeone hopes Atleti's home crowd can dull Girona**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles/simeone-hopes-atleti-s-home-crowd-can-dull-girona-2024-08-24)
+- **Atletico Madrid vs Girona Prediction, 8/25/2024 La Liga Soccer Pick, Tips 
+and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/atletico-madrid-vs-girona-prediction-8-25-2024-la-liga-soccer-pick-tips-and-odds.html)
+- **Atletico Madrid v Girona Betting Preview & Best Bets**: [Link](https://andysbetclub.co.uk/predictions/atletico-madrid-v-girona-betting-preview/)
+
+
+### الجيش الملكي (N/A, Sun, 25 Aug 2024 12:40:00 -0700)
+
+- **بعثة الجيش الملكي المغربي تحط رحالها بالجزائر**: [Link](https://www.kooora.com/?n=1349956)
+- **النظام العسكري الجزائري يواصل الدوس على قوانين الكاف بمنع رفع العلم الوطني المغربي بالمنافسات الأفريقية**: [Link](https://rue20.com/831993.html)
+- **خاص ..الجزائر تستفز المغرب بعدم رفع العلم الوطني ورد الفريق العسكري كان قاسي**: [Link](https://www.hibasport.com/details-276410.html)
+
+
 ### roma – empoli (N/A, Sun, 25 Aug 2024 12:10:00 -0700)
 
 - **Roma Prepares for Crucial Match Against Empoli After Dybala Decides to Stay**: [Link](https://www.ilmessaggero.it/en/roma_prepares_for_crucial_match_against_empoli_after_dybala_decides_to_stay-8312479.html)
