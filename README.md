@@ -1,3 +1,11 @@
+### bet 365 (N/A, Sun, 25 Aug 2024 08:10:00 -0700)
+
+- **Upgraded Bet365 Bonus Code “DIMERS” unlocks $150 Bonus Bet in NC, NJ, and 
+PA for NFL Preseason, BMW PGA Round 4, and MLB this Sunday**: [Link](https://www.syracuse.com/betting/2024/08/upgraded-bet365-bonus-code-dimers-unlocks-150-bonus-bet-in-nc-nj-and-pa-for-nfl-preseason-bmw-pga-round-4-and-mlb-this-sunday.html)
+- **Bet365 Bonus Code: 2 Offers for College Football, MLB Saturday Games**: [Link](https://www.newsweek.com/bet365-bonus-code-2-offers-college-football-mlb-saturday-games-august-24-1943778)
+- **Bet365 promo code PWEVG gets $1,000 boost for Browns vs Seahawks**: [Link](https://www.pickswise.com/news/bet365-new-user-promo-code-pwevg-unlocks-1000-boost-for-browns-vs-seahawks/)
+
+
 ### silesia (N/A, Sun, 25 Aug 2024 08:00:00 -0700)
 
 - **Diamentowa Liga. Duplantis, Kaczmarek i inne gwiazdy w Chorzowie**: [Link](https://www.pap.pl/aktualnosci/diamentowa-liga-duplantis-kaczmarek-i-inne-gwiazdy-w-chorzowie)
