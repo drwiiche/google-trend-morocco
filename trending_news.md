@@ -1,3 +1,11 @@
+### marseille – reims (N/A, Sun, 25 Aug 2024 11:10:00 -0700)
+
+- **DIRECT. OM-Reims (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/om-reims-live/655875)
+- **OM-Reims, compos : grosse surprise dans le 11 marseillais !**: [Link](https://www.football365.fr/om-reims-compos-grosse-surprise-dans-le-11-marseillais-10197736.html)
+- **DIRECT. OM: la compo probable des Marseillais face à Reims, avec des 
+retours importants**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-om-suivez-la-conference-de-presse-de-roberto-de-zerbi-avant-reims-en-live_LN-202408230291.html)
+
+
 ### incendie kenitra (N/A, Sun, 25 Aug 2024 11:00:00 -0700)
 
 - **Kénitra: Un incendie s'est déclaré dans la friperie "Joutiya ben Abbad"**: [Link](https://fr.hespress.com/383357-kenitra-un-incendie-sest-declare-dans-la-friperie-joutiya-ben-abbad.html)
