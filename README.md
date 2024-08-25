@@ -1,3 +1,18 @@
+### aljazeera net (N/A, Sun, 25 Aug 2024 02:10:00 -0700)
+
+
+
+
+### quinte du jour (N/A, Sun, 25 Aug 2024 01:30:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 2 Climate 
+Change**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-2-climate-change-125415.html)
+- **Deauville Prix «ParisTurf» (Prix François André - Grand Prix des Femmes 
+Jockeys)**: [Link](https://www.paris-turf.com/course/deauville-prix-paristurf-prix-francois-andre-grand-prix-des-femmes-jockeys-idc-fcaff64fef4369e91edf40fb324fae4e)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 13 Hisa du 
+Margas**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-13-hisa-du-margas-125398.html)
+
+
 ### quinté du jour (N/A, Sun, 25 Aug 2024 02:00:00 -0700)
 
 - **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 2 Climate 
