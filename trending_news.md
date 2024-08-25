@@ -1,3 +1,20 @@
+### marseille vs reims (N/A, Sun, 25 Aug 2024 13:00:00 -0700)
+
+- **Mohammed Salisu shines in Monaco's victory over Lyon**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/Mohammed-Salisu-shines-in-Monaco-s-victory-over-Lyon-1947381)
+- **Olympique Marseille vs Reims LIVE: Ligue 1 team news, line-ups and more**: [Link](https://sports.yahoo.com/olympique-marseille-vs-reims-live-164511590.html)
+- **Ligue 1 Roundup: Lyon fans jeer their team after a loss to Monaco**: [Link](https://www.sportsnet.ca/ligue-1/article/ligue-1-roundup-lyon-fans-jeer-their-team-after-a-loss-to-monaco/)
+
+
+### napoli (N/A, Sun, 25 Aug 2024 12:50:00 -0700)
+
+- **CONTE: "SCONFITTA VERONA CAZZOTTO CHE CI HA RIPORTATO ALLA REALTÀ" - 
+Sportmediaset**: [Link](https://www.sportmediaset.mediaset.it/calcio/conte-sconfitta-verona-cazzotto-che-ci-ha-riportato-alla-realta-_86301900-202402k.shtml)
+- **HELLAS-NAPOLI | Livramento: “Volevo ballare sotto la curva, ma ero troppo 
+emozionato”**: [Link](https://tggialloblu.telenuovo.it/hellas/2024/08/hellas-napoli-livramento-volevo-ballare-sotto-la-curva-ma-ero-troppo-emozionato)
+- **Mollichelli: “Lobotka è stanco e va aiutato, Raspadori grande calo in 
+azzurro”**: [Link](https://www.calcionapoli1926.it/interviste/mollichelli-lobotka-e-stanco-e-va-aiutato-raspadori-grande-calo-in-azzurro/)
+
+
 ### atletico madrid (N/A, Sun, 25 Aug 2024 12:40:00 -0700)
 
 - **Simeone hopes Atleti's home crowd can dull Girona**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles/simeone-hopes-atleti-s-home-crowd-can-dull-girona-2024-08-24)
