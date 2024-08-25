@@ -1,3 +1,12 @@
+### lens – brest (N/A, Sun, 25 Aug 2024 05:50:00 -0700)
+
+- **« Il n'y a pas de match plus important qu'un autre pour moi (...) Le 
+meilleur onze sera sur le terrain ». Face à Brest, Will Still en veut encore**: [Link](https://www.lequipe.fr/Football/Actualites/-il-n-y-a-pas-de-match-plus-important-qu-un-autre-pour-moi-le-meilleur-onze-sera-sur-le-terrain-face-a-brest-will-still-en-veut-encore/1503311)
+- **RC Lens-Stade Brestois 29 : le groupe lensois**: [Link](https://www.rclens.fr/fr/news/groupe-lensois-rclens-brest-2e-journee-ligue1-mcdonalds-20240824)
+- **Face à Brest, le Stade Bollaert va atteindre la barre des 50 matches de 
+suite à guichets fermés**: [Link](https://www.lensois.com/face-a-brest-le-stade-bollaert-va-atteindre-la-barre-des-50-matches-de-suite-a-guichets-fermes/)
+
+
 ### bournemouth – newcastle (N/A, Sun, 25 Aug 2024 05:30:00 -0700)
 
 - **Premier League Predictions & best bets: Back 11/1 Dominik Szoboszlai to net 
