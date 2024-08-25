@@ -1,3 +1,11 @@
+### incendie kenitra (N/A, Sun, 25 Aug 2024 11:00:00 -0700)
+
+- **Kénitra: Un incendie s'est déclaré dans la friperie "Joutiya ben Abbad"**: [Link](https://fr.hespress.com/383357-kenitra-un-incendie-sest-declare-dans-la-friperie-joutiya-ben-abbad.html)
+- **Kénitra: La mythique « Joutya Ben Abbad » prend feu**: [Link](https://www.lavieeco.com/influences/societe/kenitra-la-mythique-joutya-ben-abbad-prend-feu/)
+- **Urgent..un incendie massif..au magasin de vêtements « Joutia de Benabad » à 
+Kénitra**: [Link](https://fr.hibapress.com/news-127732.html)
+
+
 ### leganés – las palmas (N/A, Sun, 25 Aug 2024 10:40:00 -0700)
 
 - **Leganés - Las Palmas, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/leganes-las-palmas/2024/08/25/01_0101_20240825_957_407-directo.html)
