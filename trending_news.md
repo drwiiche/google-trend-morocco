@@ -1,3 +1,17 @@
+### naples – bologne (N/A, Sun, 25 Aug 2024 12:00:00 -0700)
+
+- **DIRECT. Naples-Bologne (Serie A 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2024-2025/naples-bologne-live/659920)
+- **Naples contre Bologne : compositions officielles de la semaine 2 de Serie A**: [Link](https://fr.football-italia.net/Serie-A-%3A-composition-Naples-vs-Bologne-3/)
+- **Pronostic Naples - Bologne, Serie A**: [Link](https://www.sportytrader.com/pronostics/naples-bologne-211374/)
+
+
+### سليم الحص (N/A, Sun, 25 Aug 2024 10:50:00 -0700)
+
+- **وفاة رئيس الوزراء اللبناني الأسبق سليم الحص عن 94 عاما**: [Link](https://www.aljazeera.net/news/2024/8/25/%D9%88%D9%81%D8%A7%D8%A9-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%84%D8%A8%D9%86%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%82)
+- **هاشمية: “بيروت خسرت شخصية كانت ميزاناً للحق و النزاهة” ..اخبار محلية**: [Link](https://ar.pressbee.net/show8546037.html?title=%D9%87%D8%A7%D8%B4%D9%85%D9%8A%D8%A9-%D8%A8%D9%8A%D8%B1%D9%88%D8%AA-%D8%AE%D8%B3%D8%B1%D8%AA-%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D9%83%D8%A7%D9%86%D8%AA-%D9%85%D9%8A%D8%B2%D8%A7%D9%86%D8%A7-%D9%84%D9%84%D8%AD%D9%82-%D9%88-%D8%A7%D9%84%D9%86%D8%B2%D8%A7%D9%87%D8%A9)
+- **وفاة رئيس الوزراء اللبناني الأسبق سليم الحص**: [Link](https://www.raialyoum.com/%D9%88%D9%81%D8%A7%D8%A9-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%B3%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%AD%D8%B5/)
+
+
 ### atlético madrid – girona (N/A, Sun, 25 Aug 2024 11:40:00 -0700)
 
 - **Alineación posible del Atlético de Madrid hoy contra el Girona en LaLiga EA 
