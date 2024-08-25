@@ -1,3 +1,12 @@
+### kim kardashian (N/A, Sun, 25 Aug 2024 13:40:00 -0700)
+
+- **Kim Kardashian Shares Highlights of Soccer Mom Trip to Real Madrid with Son 
+Saint**: [Link](https://people.com/kim-kardashian-highlights-soccer-mom-trip-real-madrid-son-saint-8700983)
+- **Pouting Kim Kardashian poses with Jude Bellingham & Vinicius Jr as she pays 
+special visit to Real Madrid's training ground**: [Link](https://www.goal.com/en-gb/lists/kim-kardashian-jude-bellingham-vinicius-jr-real-madrid-training-ground/bltd46453a449f8926b)
+- **Jude Bellingham surprises in pouty selfies with Kim Kardashian**: [Link](https://www.hellomagazine.com/celebrities/714497/jude-bellingham-kim-kardashian-selfies/)
+
+
 ### hakimi (N/A, Sun, 25 Aug 2024 13:10:00 -0700)
 
 - **أشرف حكيمي لصحفي فرنسي: "أن تريد إثارة الجدل!"**: [Link](https://m.elbotola.com/article/2024-08-24-17-33-252.html)
