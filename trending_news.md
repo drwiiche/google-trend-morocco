@@ -1,3 +1,15 @@
+### real madrid cf (N/A, Sun, 25 Aug 2024 10:10:00 -0700)
+
+- **Real Madrid Officially Announces Transfer**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/23/real-madrid-officially-announces-transfer/)
+- **Official: Real Madrid midfield starlet completes La Liga loan move**: [Link](https://madriduniversal.com/official-real-madrid-midfield-starlet-completes-la-liga-loan-move/)
+- **Real Madrid send 20-year-old talent on loan to La Liga side**: [Link](https://www.football-espana.net/2024/08/23/real-madrid-send-20-year-old-talent-on-loan-to-la-liga-side)
+
+
+### eliesse ben seghir (N/A, Sun, 25 Aug 2024 09:00:00 -0700)
+
+
+
+
 ### endrick (N/A, Sun, 25 Aug 2024 10:00:00 -0700)
 
 - **Huge shock at Real Madrid as world class striker signed this summer already 
