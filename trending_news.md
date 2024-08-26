@@ -1,3 +1,17 @@
+### hibapress (N/A, Sun, 25 Aug 2024 23:40:00 -0700)
+
+- **نفوق ستة خيول ونقل شخصين إلى المستعجلات يستنفران السلطات بسطات**: [Link](https://ar.hibapress.com/details-544765.html)
+- **نفوق 06 خيول ونقل شخصين إلى المستعجلات ،وضع استنفر السلطات الامنية**: [Link](https://sabahagadir.ma/311460.html)
+- **رحلة طائرة " رايان اير" تربط بين اكادير وبورتو تتحول إلى كابوس مرهق**: [Link](https://ar.hibapress.com/details-544713.html)
+
+
+### رصد الزلازل (N/A, Sun, 25 Aug 2024 21:20:00 -0700)
+
+- **هزة أرضية تضرب سواحل مدينتي آسفي والجديدة**: [Link](https://thevoice.ma/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D9%85%D8%AF%D9%8A%D9%86%D8%AA%D9%8A-%D8%A2%D8%B3%D9%81%D9%8A-%D9%88%D8%A7%D9%84%D8%AC%D8%AF/)
+- **هزة أرضية تضرب سواحل آسفي**: [Link](https://www.akhbarona.com/society/391106.html)
+- **هزة أرضية تضرب سواحل آسفي**: [Link](https://ar.hibapress.com/details-544664.html)
+
+
 ### هسبريس (N/A, Sun, 25 Aug 2024 22:10:00 -0700)
 
 
