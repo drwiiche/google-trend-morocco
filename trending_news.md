@@ -1,3 +1,9 @@
+### moncton (N/A, Mon, 26 Aug 2024 14:40:00 -0700)
+
+- **Moncton council tells staff to draft budget with eye to tax-rate cut**: [Link](https://www.cbc.ca/news/canada/new-brunswick/moncton-council-budget-finances-1.7305183)
+- **Celebrating pride in Greater Moncton**: [Link](https://www.919thebend.ca/2024/08/20/88445/)
+
+
 ### فياريال (N/A, Mon, 26 Aug 2024 14:30:00 -0700)
 
 - **مينغيزا يبدع ويتألق في أول لقائين له بالليغا**: [Link](https://hihi2.com/2024/08/27/p2816410.html)
