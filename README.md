@@ -1,3 +1,10 @@
+### girona fc (N/A, Sun, 25 Aug 2024 14:00:00 -0700)
+
+- **Girona vs. Osasuna Prediction, Odds, La Liga Picks [8/29/2024]**: [Link](https://www.dimers.com/news/girona-vs-osasuna-prediction-la-liga-ac-august-29-2024)
+- **Watch Girona FC vs. CA Osasuna Online: Live Stream, Start Time**: [Link](https://ftw.usatoday.com/article/watch-girona-fc-vs-ca-osasuna-online-live-stream-start-time-3)
+- **Girona vs Osasuna Prediction and Tips - 30 August 2024**: [Link](https://www.statsinsider.com.au/news/girona-vs-osasuna-prediction-and-tips-30-august-2024)
+
+
 ### armand duplantis (N/A, Sun, 25 Aug 2024 19:40:00 -0700)
 
 - **Watch: Diamond League Silesia - Neita, Tebogo & Duplantis in action**: [Link](https://www.bbc.com/sport/athletics/live/cd05lxx84znt)
