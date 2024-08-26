@@ -1,3 +1,10 @@
+### زلزال اليوم المغرب (N/A, Sun, 25 Aug 2024 23:50:00 -0700)
+
+- **تسجيل هزة أرضية خفيفة بمدينة مغربية**: [Link](https://www.analkhabar.com/%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D8%A8%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9/)
+- **مراكز رصد الزلازل تسجل هزة أرضية شمال المغرب.**: [Link](https://agadir24.info/%D9%85%D8%B1%D8%A7%D9%83%D8%B2-%D8%B1%D8%B5%D8%AF-%D8%A7%D9%84%D8%B2%D9%84%D8%A7%D8%B2%D9%84-%D8%AA%D8%B3%D8%AC%D9%84-%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A7/)
+- **هزة بقوة 2.0 درجة شمال الحسيمة**: [Link](https://ar.hibapress.com/details-542804.html)
+
+
 ### seisme (N/A, Sun, 25 Aug 2024 21:50:00 -0700)
 
 - **Un séisme d'une magnitude de 5,4 au large du Portugal, des secousses 
