@@ -1,3 +1,11 @@
+### prix resort barriere deauville trouville (N/A, Sun, 25 Aug 2024 22:10:00 -0700)
+
+- **Quinté+: PRIX RESORT BARRIERE DEAUVILLE-TROUVILLE - DEAUVILLE - 25/08/2024 
+: partants,...**: [Link](https://www.equidia.fr/courses/2024-08-25/R1/C3)
+- **Les pronos hippiques du dimanche 25 août 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-25-aout-2024_AN-202408240316.html)
+- **Quinté+ du dimanche 25/08/2024 à Deauville : Miami Voice a des atouts**: [Link](https://www.paris-turf.com/actualites/france/quinte-du-dimanche-25-08-2024-a-deauville-miami-voice-a-des-atouts-30135088368)
+
+
 ### جمال براوي (N/A, Mon, 26 Aug 2024 02:00:00 -0700)
 
 - **وفاة الصحافي جمال براوي بعد معاناة مع المرض – اليوم 24**: [Link](https://alyaoum24.com/1912192.html)
