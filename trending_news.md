@@ -1,3 +1,11 @@
+### villarreal (N/A, Mon, 26 Aug 2024 12:40:00 -0700)
+
+- **Villarreal - Celta de Vigo en directo: ¡Golazo de falta directa de 
+Mingueza! | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/villarreal-celta/2024/08/26/01_0101_20240826_449_176-directo.html)
+- **Las predicciones del Bielsa del Fantasy para la jornada 3**: [Link](https://www.futbolfantasy.com/laliga/noticias/119061-las-predicciones-del-bielsa-del-fantasy-para-la-jornada-3)
+- **Giráldez, sobre el mercado: “Auguro movimientos”**: [Link](https://as.com/futbol/primera/giraldez-sobre-el-mercado-auguro-movimientos-n/)
+
+
 ### villarreal vs celta vigo (N/A, Mon, 26 Aug 2024 12:50:00 -0700)
 
 - **Preview: Villarreal vs. Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/preview/preview-villarreal-vs-celta-vigo-prediction-team-news-lineups_551153.html)
