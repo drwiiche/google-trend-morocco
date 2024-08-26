@@ -1,3 +1,10 @@
+### atletico (N/A, Sun, 25 Aug 2024 14:40:00 -0700)
+
+- **Atletico Madrid 3-0 Girona: Conor Gallagher makes La Liga debut**: [Link](https://www.bbc.com/sport/football/live/c20l6yy3l52t)
+- **Atletico Madrid v Girona Betting Preview & Best Bets**: [Link](https://andysbetclub.co.uk/predictions/atletico-madrid-v-girona-betting-preview/)
+- **Simeone keen to use Atletico's home advantage to overcome Girona**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles/simeone-keen-to-use-atleticos-home-advantage-to-overcome-girona-2024-08-24)
+
+
 ### prix resort barriere deauville trouville (N/A, Sun, 25 Aug 2024 22:10:00 -0700)
 
 - **Quinté+: PRIX RESORT BARRIERE DEAUVILLE-TROUVILLE - DEAUVILLE - 25/08/2024 
