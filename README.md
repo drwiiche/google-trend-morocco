@@ -1,3 +1,12 @@
+### brahim díaz (N/A, Mon, 26 Aug 2024 07:20:00 -0700)
+
+- **Real Madrid 3-0 Valladolid (Aug 25, 2024) Final Score**: [Link](https://www.espn.com/soccer/match/_/gameId/704677/real-valladolid-real-madrid)
+- **Real Madrid Boss Ancelotti Talks Replacing Star And Sale Decision After 
+Valladolid Win**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/25/real-madrid-boss-ancelotti-talks-replacing-rodrygo-and-sale-decision-after-valladolid-win/)
+- **Kylian Mbappe’s Bernabeu debut: How Ronaldo, Beckham and others started at 
+Real Madrid - The Athletic**: [Link](https://www.nytimes.com/athletic/5719143/2024/08/25/kylian-mbappe-bernabeu-debut-real-madrid-ronaldo-beckham/)
+
+
 ### vinicius júnior (N/A, Mon, 26 Aug 2024 06:20:00 -0700)
 
 - **Source: Vinícius Jr. delays Saudi move decision**: [Link](https://www.espn.com/soccer/story/_/id/40977811/real-madrid-vinicius-jr-delays-saudi-decision-source)
