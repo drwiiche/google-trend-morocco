@@ -1,3 +1,18 @@
+### salim hoss (N/A, Mon, 26 Aug 2024 06:00:00 -0700)
+
+- **Former five-time Lebanese prime minister Salim Hoss dies at 94**: [Link](https://apnews.com/article/lebanon-former-prime-minister-salim-hoss-died-obituary-2612d4cc9d551c9fd9c319a78ebb8dd9)
+- **Five-time Lebanese prime minister Salim Al Hoss dies at 94**: [Link](https://www.thenationalnews.com/news/mena/2024/08/25/five-time-lebanese-prime-minister-salim-al-hoss-dies-at-94/)
+- **Former five-time Lebanese prime minister Salim Hoss dies at 94 | Today News**: [Link](https://www.livemint.com/news/former-five-time-lebanese-prime-minister-salim-hoss-dies-at-94-11724605251648.html)
+
+
+### seisme maroc (N/A, Sun, 25 Aug 2024 21:20:00 -0700)
+
+- **Un séisme d'une magnitude de 5,4 au large du Portugal, des secousses 
+ressenties au Maroc**: [Link](https://ledesk.ma/encontinu/un-seisme-dune-magnitude-de-54-au-large-du-portugal-des-secousses-ressenties-au-maroc/)
+- **Un séisme au large de Lisbonne, ressenti jusqu'au Maroc**: [Link](https://medias24.com/2024/08/26/un-seisme-au-large-de-lisbonne-ressenti-jusquau-maroc/)
+- **Un séisme de magnitude 5,3 au large du Portugal**: [Link](https://www.lefigaro.fr/flash-actu/un-seisme-de-magnitude-5-3-au-large-du-portugal-20240826)
+
+
 ### sven goran eriksson (N/A, Mon, 26 Aug 2024 05:40:00 -0700)
 
 - **Tributes paid as former England manager Sven-Goran Eriksson dies aged 76**: [Link](https://www.bbc.com/sport/football/live/cwywd2e5317t)
