@@ -1,3 +1,11 @@
+### juventus (N/A, Mon, 26 Aug 2024 12:00:00 -0700)
+
+- **Source: Chelsea could rival Juve for Sancho deal**: [Link](https://www.espn.com/soccer/story/_/id/40998815/chelsea-set-rival-juventus-jadon-sancho-deal-source)
+- **Chelsea interested in Jadon Sancho-Raheem Sterling swap deal with Man Utd**: [Link](https://www.telegraph.co.uk/football/2024/08/25/chelsea-transfer-news-jadon-sancho-raheem-sterling-swap/)
+- **Football gossip: Sancho, McTominay, Kone, Arrizabalaga, Williams, Vieira, 
+Ramsdale**: [Link](https://www.bbc.com/sport/football/articles/c5y84vygvgpo)
+
+
 ### villarreal – celta vigo (N/A, Mon, 26 Aug 2024 11:40:00 -0700)
 
 - **Alineación posible del Celta ante el Villarreal en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-celta-ante-el-villarreal-en-laliga-ea-sports-n/)
