@@ -1,3 +1,10 @@
+### هيلاس فيرونا ضد يوفنتوس (N/A, Mon, 26 Aug 2024 13:10:00 -0700)
+
+- **بالصور: يوفنتوس يواصل انتصاراته العريضة في الكالتشيو**: [Link](https://m.kooora.com/?n=1350707&o=n)
+- **تقييم لاعبي يوفنتوس بعد الفوز على هيلاس فيرونا**: [Link](https://hihi2.com/2024/08/26/p2816463.html)
+- **ثنائية فلاهوفيتش تقود يوفنتوس للفوز 3-صفر على فيرونا**: [Link](https://www.raialyoum.com/%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%81%D9%84%D8%A7%D9%87%D9%88%D9%81%D9%8A%D8%AA%D8%B4-%D8%AA%D9%82%D9%88%D8%AF-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%84%D9%84%D9%81%D9%88%D8%B2-3-%D8%B5/)
+
+
 ### villarreal (N/A, Mon, 26 Aug 2024 12:40:00 -0700)
 
 - **Villarreal - Celta de Vigo en directo: ¡Golazo de falta directa de 
