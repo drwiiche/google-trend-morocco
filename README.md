@@ -1,3 +1,11 @@
+### seisme (N/A, Sun, 25 Aug 2024 21:50:00 -0700)
+
+- **Un séisme d'une magnitude de 5,4 au large du Portugal, des secousses 
+ressenties au Maroc**: [Link](http://ledesk.ma/encontinu/un-seisme-dune-magnitude-de-54-au-large-du-portugal-des-secousses-ressenties-au-maroc/)
+- **Un séisme au large de Lisbonne, ressenti jusqu'au Maroc**: [Link](https://medias24.com/2024/08/26/un-seisme-au-large-de-lisbonne-ressenti-jusquau-maroc/)
+- **Un tremblement de terre d’une magnitude de 5,3 enregistré au Portugal**: [Link](https://www.virgule.lu/international/un-tremblement-de-terre-d-une-magnitude-de-53-enregistre-au-portugal/18475390.html)
+
+
 ### hibapress (N/A, Sun, 25 Aug 2024 23:40:00 -0700)
 
 - **نفوق ستة خيول ونقل شخصين إلى المستعجلات يستنفران السلطات بسطات**: [Link](https://ar.hibapress.com/details-544765.html)
