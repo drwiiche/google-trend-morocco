@@ -1,3 +1,11 @@
+### villarreal – celta vigo (N/A, Mon, 26 Aug 2024 11:40:00 -0700)
+
+- **Alineación posible del Celta ante el Villarreal en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-celta-ante-el-villarreal-en-laliga-ea-sports-n/)
+- **Las predicciones del Bielsa del Fantasy para la jornada 3**: [Link](https://www.futbolfantasy.com/laliga/noticias/119061-las-predicciones-del-bielsa-del-fantasy-para-la-jornada-3)
+- **Giráldez sobre Ilaix Moriba, Mingueza, Borja Iglesias y la posible rotación 
+de Iago Aspas**: [Link](https://www.comuniate.com/noticias/24859/giraldez-sobre-ilaix-moriba-mingueza-borja-iglesias-y-la-posible-rotacion-de-iago-aspas)
+
+
 ### hellas vérone – juventus (N/A, Mon, 26 Aug 2024 11:10:00 -0700)
 
 - **Preview: Hellas Verona vs. Juventus - prediction, team news, lineups**: [Link](https://amp.sportsmole.co.uk/football/verona/preview/preview-hellas-verona-vs-juventus-prediction-team-news-lineups_551137.html)
