@@ -1,3 +1,11 @@
+### ryanair (N/A, Sun, 25 Aug 2024 22:40:00 -0700)
+
+- **Ryanair not interested in slots to be ceded by ITA for Lufthansa merger, 
+CEO says**: [Link](https://www.reuters.com/business/aerospace-defense/ryanair-not-interested-slots-be-ceded-by-ita-lufthansa-merger-ceo-says-2024-08-23/)
+- **Ryanair gives up slots: An overview of the competition at Linate Airport**: [Link](https://aviation.direct/en/ryanair-verzichtet-auf-slots-ein-ueberblick-ueber-den-wettbewerb-am-flughafen-linate)
+- **Why Ryanair's CEO Isn't Interested In Taking ITA/Lufthansa Merger Slots**: [Link](https://simpleflying.com/ryanair-ceo-not-interested-ita-airways-merger-slots/)
+
+
 ### زلزال (N/A, Sun, 25 Aug 2024 21:10:00 -0700)
 
 - **بعد مرور عام على كارثة "زلزال الحوز".. ورزازات تنهض من جديد بأمل مشرق**: [Link](https://www.hespress.com/%D8%A8%D8%B9%D8%AF-%D9%85%D8%B1%D9%88%D8%B1-%D8%B9%D8%A7%D9%85-%D8%B9%D9%84%D9%89-%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A7%D9%84%D8%AD%D9%88%D8%B2-%D9%88%D8%B1%D8%B2-1420535.html)
