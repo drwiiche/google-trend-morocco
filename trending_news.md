@@ -1,3 +1,12 @@
+### stake (N/A, Sun, 25 Aug 2024 18:50:00 -0700)
+
+- **Amanda Staveley 'wants to BUY' a stake in a Premier League club valued at 
+£2.4bn and is being backed by 'serio**: [Link](https://www.dailymail.co.uk/sport/football/article-13777725/Amanda-Staveley-wants-BUY-stake-Premier-League-club-valued-2-4bn-backed-money-fresh-funding-team-just-one-month-leaving-Newcastle.html)
+- **Major twist in financier's choice between West Ham and Spurs for £0.5bn 
+investment**: [Link](https://www.hammers.news/news/major-twist-in-financiers-choice-between-west-ham-and-spurs-for-0-5bn-investment/)
+- **Amanda Staveley new Tottenham ‘exclusive’ – Just a little embarrassing…**: [Link](https://www.themag.co.uk/2024/08/amanda-staveley-new-tottenham-exclusive-just-a-little-embarrassing-newcastle-united/)
+
+
 ### ademola lookman (N/A, Sun, 25 Aug 2024 16:00:00 -0700)
 
 - **Arsenal prepare huge player-plus-cash offer for Atalanta 'rebel' Ademola 
