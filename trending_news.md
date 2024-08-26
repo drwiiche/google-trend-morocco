@@ -1,3 +1,28 @@
+### vinicius júnior (N/A, Mon, 26 Aug 2024 06:20:00 -0700)
+
+- **Source: Vinícius Jr. delays Saudi move decision**: [Link](https://www.espn.com/soccer/story/_/id/40977811/real-madrid-vinicius-jr-delays-saudi-decision-source)
+- **Real Madrid and Vinicius clear on Brazilian's future after Saudi Arabian 
+offer**: [Link](https://www.marca.com/en/football/real-madrid/2024/08/18/66c20bae46163f1e5c8b458c.html)
+- **Real Madrid superstar delays £300m contract call in the wake of Saudi 
+transfer interest**: [Link](https://www.teamtalk.com/news/real-madrid-superstar-delays-300m-contract-call-wake-saudi-transfer-interest)
+
+
+### nuage dioxyde de soufre (N/A, Mon, 26 Aug 2024 05:30:00 -0700)
+
+- **Un nuage de dioxyde de soufre survole la France ces 25 et 26 août**: [Link](https://meteo-express.com/article/un-nuage-de-dioxyde-de-soufre-survole-la-france-ces-25-et-26-aout/%20)
+- **Volcan en éruption en Islande: un nuage de dioxyde de soufre survole la 
+France jusqu'à mardi**: [Link](https://www.bfmtv.com/societe/volcan-en-eruption-en-islande-un-nuage-de-dioxyde-de-soufre-survole-la-france-jusqu-a-mardi_AN-202408250257.html)
+- **Quel est ce nuage de soufre issu d'un volcan islandais qui survole la 
+France jusqu’à mardi ?**: [Link](https://www.lefigaro.fr/meteo/quel-est-ce-nuage-de-soufre-issu-d-un-volcan-islandais-qui-survole-la-france-jusqu-a-mardi-20240825)
+
+
+### sch (N/A, Mon, 26 Aug 2024 04:40:00 -0700)
+
+- **Friend of French rapper SCH shot dead after concert**: [Link](https://www.mydailyrecord.com/news/national/friend-of-french-rapper-sch-shot-dead-after-concert/article_0fcdc3e9-b30d-5ad8-bce1-5a7160a1acda.html)
+- **Friend of French rapper SCH shot dead after concert**: [Link](https://www.benningtonbanner.com/news/national/friend-of-french-rapper-sch-shot-dead-after-concert/article_53d17f06-f10c-5f38-809c-b26c351843cb.html)
+- **Friend of French rapper SCH shot dead after concert**: [Link](https://www.heraldpalladium.com/news/national/friend-of-french-rapper-sch-shot-dead-after-concert/article_2c42917f-be41-5319-8411-355502366921.html)
+
+
 ### salim hoss (N/A, Mon, 26 Aug 2024 06:00:00 -0700)
 
 - **Former five-time Lebanese prime minister Salim Hoss dies at 94**: [Link](https://apnews.com/article/lebanon-former-prime-minister-salim-hoss-died-obituary-2612d4cc9d551c9fd9c319a78ebb8dd9)
