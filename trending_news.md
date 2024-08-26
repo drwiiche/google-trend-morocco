@@ -1,3 +1,17 @@
+### algerie maroc tokyo (N/A, Mon, 26 Aug 2024 14:20:00 -0700)
+
+- **Au Japon, Marocains et Algériens en viennent aux mains au sujet du Sahara 
+occidental**: [Link](https://www.lemonde.fr/afrique/article/2024/08/26/au-japon-marocains-et-algeriens-en-viennent-aux-mains-au-sujet-du-sahara-occidental_6295610_3212.html)
+- **Bagarre entre diplomates marocain et algérien au sujet du Sahara occidental**: [Link](https://www.lefigaro.fr/international/bagarre-entre-diplomates-marocain-et-algerien-au-sujet-du-sahara-occidental-20240824)
+- **Maroc-Algérie : à Tokyo, énième round de la guerre diplomatique autour du 
+Sahara occidental**: [Link](https://www.jeuneafrique.com/1601927/politique/maroc-algerie-a-tokyo-enieme-round-de-la-guerre-diplomatique-autour-du-sahara-occidental/)
+
+
+### journaliste jamal berraoui (N/A, Mon, 26 Aug 2024 13:30:00 -0700)
+
+
+
+
 ### moncton (N/A, Mon, 26 Aug 2024 14:40:00 -0700)
 
 - **Moncton council tells staff to draft budget with eye to tax-rate cut**: [Link](https://www.cbc.ca/news/canada/new-brunswick/moncton-council-budget-finances-1.7305183)
