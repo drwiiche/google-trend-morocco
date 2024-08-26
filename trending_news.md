@@ -1,3 +1,41 @@
+### hellas vérone – juventus (N/A, Mon, 26 Aug 2024 11:10:00 -0700)
+
+- **Preview: Hellas Verona vs. Juventus - prediction, team news, lineups**: [Link](https://amp.sportsmole.co.uk/football/verona/preview/preview-hellas-verona-vs-juventus-prediction-team-news-lineups_551137.html)
+- **Motta: The team is doing well, it has been a good week**: [Link](https://www.juventus.com/en/news/articles/motta-the-team-is-doing-well-it-has-been-a-good-week-25-08-2024)
+- **Monday's Football Tips: Juventus head to Verona as new boss bids to build 
+on promising Serie A start**: [Link](https://mrfixitstips.co.uk/mondays-football-tips-juventus-head-to-verona-as-new-boss-bids-to-build-on-promising-serie-a-start/)
+
+
+### james rodriguez (N/A, Mon, 26 Aug 2024 11:10:00 -0700)
+
+- **El Rayo Vallecano ficha a James Rodríguez**: [Link](https://www.marca.com/futbol/rayo/2024/08/26/66cc4532ca4741f2198b456e.html)
+- **James, el 'bombazo' del mercado del Rayo**: [Link](https://www.mundodeportivo.com/futbol/rayo-vallecano/20240826/1002304343/james-bombazo-mercado-rayo.html)
+- **Regalo para el Rayo Vallecano antes de recibir al Barça**: [Link](https://www.sport.es/es/noticias/barca/regalo-rayo-vallecano-recibir-barca-107356091)
+
+
+### يحيى السنوار (N/A, Mon, 26 Aug 2024 10:50:00 -0700)
+
+- **"يتقدم بخطوة".. كيف يتنقل السنوار حتى الآن في قطاع غزة؟**: [Link](https://www.alhurra.com/palestine/2024/08/25/%D9%8A%D8%AA%D9%82%D8%AF%D9%85-%D8%A8%D8%AE%D8%B7%D9%88%D8%A9-%D9%8A%D8%AA%D9%86%D9%82%D9%84-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A2%D9%86-%D9%81%D9%8A-%D9%82%D8%B7%D8%A7%D8%B9-%D8%BA%D8%B2%D8%A9%D8%9F)
+- **رادار أميركي تخترق موجاته الأرض لملاحقة السنوار في غزة**: [Link](https://www.alarabiya.net/alarabiya-media/2024/08/25/%D8%B1%D8%A7%D8%AF%D8%A7%D8%B1-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%AA%D8%AE%D8%AA%D8%B1%D9%82-%D9%85%D9%88%D8%AC%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D9%84%D9%85%D9%84%D8%A7%D8%AD%D9%82%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9)
+- **يخترق الأرض ... إسرائيل تستعين برادار أمريكي متطور من أجل البحث عن "السنوار"**: [Link](https://www.akhbarona.com/world/391113.html)
+
+
+### us open (N/A, Mon, 26 Aug 2024 09:10:00 -0700)
+
+- **Zheng Qinwen rides an Olympic gold-medal high to 2024 US Open**: [Link](https://www.usopen.org/en_US/news/articles/2024-08-23/zheng_qinwen_rides_an_olympic_goldmedal_high_to_2024_us_open.html)
+- **Zheng Qinwen just wants to keep ‘winning, winning, winning’ after Olympic 
+gold**: [Link](https://www.scmp.com/sport/tennis/article/3275750/zheng-qinwen-just-wants-keep-winning-winning-winning-after-paris-olympics-gold)
+- **US Open 2024 day one: Zheng through and Shelton, Zverev in action – live**: [Link](https://www.theguardian.com/sport/live/2024/aug/26/us-open-2024-day-one-tennis-gauff-zverev-updates-live)
+
+
+### séisme maroc portugal (N/A, Mon, 26 Aug 2024 09:00:00 -0700)
+
+- **Un séisme d'une magnitude de 5,4 au large du Portugal, des secousses 
+ressenties au Maroc**: [Link](https://ledesk.ma/encontinu/un-seisme-dune-magnitude-de-54-au-large-du-portugal-des-secousses-ressenties-au-maroc/)
+- **Un séisme au large de Lisbonne, ressenti jusqu'au Maroc**: [Link](https://medias24.com/2024/08/26/un-seisme-au-large-de-lisbonne-ressenti-jusquau-maroc/)
+- **Portugal : un tremblement de terre ressenti jusqu’au Maroc et en Espagne**: [Link](https://mobile.telquel.ma/instant-t/2024/08/26/un-tremblement-de-terre-de-magnitude-55-ressenti-au-maroc-et-en-espagne_1890291/)
+
+
 ### karim benzema (N/A, Mon, 26 Aug 2024 07:00:00 -0700)
 
 - **Benzema promises Al Ittihad fans a season to remember: 'They'll be proud of us'**: [Link](https://www.saudigazette.com.sa/article/645076/Sports/Benzema-promises-Al-Ittihad-fans-a-season-to-remember-Theyll-be-proud-of-us)
