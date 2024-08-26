@@ -1,3 +1,19 @@
+### sven goran eriksson (N/A, Mon, 26 Aug 2024 05:40:00 -0700)
+
+- **Tributes paid as former England manager Sven-Goran Eriksson dies aged 76**: [Link](https://www.bbc.com/sport/football/live/cwywd2e5317t)
+- **Heartbreaking Sven Goran Eriksson health update as he's too ill for 
+favourite lakeside walk**: [Link](https://www.mirror.co.uk/3am/celebrity-news/sven-goran-eriksson-heartbreaking-health-33532656)
+- **Sven-Göran Eriksson: a life in pictures**: [Link](https://www.theguardian.com/football/gallery/2024/aug/26/sven-goran-eriksson-a-life-in-pictures)
+
+
+### binance (N/A, Mon, 26 Aug 2024 05:10:00 -0700)
+
+- **Binance Says It Protects Over $2.4 Billion From Crypto Scams This Year**: [Link](https://news.bitcoin.com/binance-says-it-protects-over-2-4-billion-from-crypto-scams-this-year/)
+- **Binance Prevents $2.4 Billion in Crypto Scams and Frauds**: [Link](https://www.cryptotimes.io/2024/08/20/binance-prevents-2-4-billion-in-crypto-scams-and-frauds/)
+- **Binance and crypto scam: $2.4 million of users protected from potential 
+frauds**: [Link](https://en.cryptonomist.ch/2024/08/21/binance-and-crypto-scam-2-4-million-of-users-protected-from-potential-frauds/)
+
+
 ### atletico (N/A, Sun, 25 Aug 2024 14:40:00 -0700)
 
 - **Atletico Madrid 3-0 Girona: Conor Gallagher makes La Liga debut**: [Link](https://www.bbc.com/sport/football/live/c20l6yy3l52t)
