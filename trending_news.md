@@ -1,3 +1,12 @@
+### manuel ugarte (N/A, Mon, 26 Aug 2024 07:50:00 -0700)
+
+- **Manuel Ugarte transfer: Talks advance between Manchester United and PSG 
+over signing of midfielder**: [Link](https://www.skysports.com/football/news/11667/13200119/manuel-ugarte-transfer-talks-advancing-between-manchester-united-and-psg-over-signing-of-midfielder)
+- **Manchester United hope to force PSG into lowering Manuel Ugarte’s asking 
+price**: [Link](https://www.theguardian.com/football/article/2024/aug/19/manchester-united-hope-to-force-psg-to-lower-manuel-agartes-asking-price)
+- **Erik ten Hag suggests there will be more transfers before deadline day**: [Link](https://thepeoplesperson.com/2024/08/22/erik-ten-hag-suggests-there-will-be-more-transfers-before-deadline-day-284442/)
+
+
 ### brahim díaz (N/A, Mon, 26 Aug 2024 07:20:00 -0700)
 
 - **Real Madrid 3-0 Valladolid (Aug 25, 2024) Final Score**: [Link](https://www.espn.com/soccer/match/_/gameId/704677/real-valladolid-real-madrid)
