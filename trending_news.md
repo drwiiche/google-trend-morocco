@@ -1,3 +1,17 @@
+### karim benzema (N/A, Mon, 26 Aug 2024 07:00:00 -0700)
+
+- **Benzema promises Al Ittihad fans a season to remember: 'They'll be proud of us'**: [Link](https://www.saudigazette.com.sa/article/645076/Sports/Benzema-promises-Al-Ittihad-fans-a-season-to-remember-Theyll-be-proud-of-us)
+- **Benzema: Eternity is a good and organized team, and the match was difficult**: [Link](https://www.ysscores.com/en/news/3126289/Benzema:-Eternity-is-a-good-and-organized-team,-and-the-match-was-difficult)
+- **Benzema talks about the match of eternity**: [Link](https://www.ysscores.com/en/news/3104561/Benzema-talks-about-the-match-of-eternity)
+
+
+### seisme portugal maroc (N/A, Mon, 26 Aug 2024 05:10:00 -0700)
+
+- **Un séisme d'une magnitude de 5,4 au large du Portugal, des secousses ressenties au Maroc**: [Link](http://ledesk.ma/encontinu/un-seisme-dune-magnitude-de-54-au-large-du-portugal-des-secousses-ressenties-au-maroc/)
+- **Un séisme au large de Lisbonne, ressenti jusqu'au Maroc**: [Link](https://medias24.com/2024/08/26/un-seisme-au-large-de-lisbonne-ressenti-jusquau-maroc/)
+- **Un séisme de magnitude 5,3 secoue la mer du Portugal au Maroc**: [Link](https://www.20minutes.fr/faits_divers/4106981-20240826-portugal-seisme-magnitude-5-3-secoue-mer-espagne-maroc)
+
+
 ### manuel ugarte (N/A, Mon, 26 Aug 2024 07:50:00 -0700)
 
 - **Manuel Ugarte transfer: Talks advance between Manchester United and PSG 
