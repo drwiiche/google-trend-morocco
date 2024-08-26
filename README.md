@@ -1,3 +1,16 @@
+### earthquake morocco (N/A, Sun, 25 Aug 2024 21:30:00 -0700)
+
+
+
+
+### portugal (N/A, Sun, 25 Aug 2024 21:20:00 -0700)
+
+- **“Chega ao FC Porto um dos grandes jovens talentos do futebol mundial”**: [Link](https://www.fcporto.pt/pt/noticias/20240825-pt-chega-ao-fc-porto-um-dos-grandes-jovens-talentos-do-futebol-mundial)
+- **«Um dos maiores erros da história»: adeptos do At. Madrid protestam saída 
+de Samu para o FC Porto**: [Link](https://www.abola.pt/futebol/noticias/um-dos-maiores-erros-da-historia-adeptos-do-at-madrid-protestam-saida-de-samu-para-o-fc-porto-2024082411294976872)
+- **Villas-Boas e o reforço Omorodion: «Um dos grandes jovens talentos do mundo»**: [Link](https://www.zerozero.pt/noticias/villas-boas-e-o-reforco-omorodion-um-dos-grandes-jovens-talentos-do-mundo-/663377)
+
+
 ### زلزال اليوم (N/A, Sun, 25 Aug 2024 21:20:00 -0700)
 
 - **هزة أرضية تضرب سواحل مدينتي آسفي والجديدة**: [Link](https://thevoice.ma/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D9%85%D8%AF%D9%8A%D9%86%D8%AA%D9%8A-%D8%A2%D8%B3%D9%81%D9%8A-%D9%88%D8%A7%D9%84%D8%AC%D8%AF/)
