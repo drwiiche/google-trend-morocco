@@ -1,3 +1,11 @@
+### armand duplantis (N/A, Sun, 25 Aug 2024 19:40:00 -0700)
+
+- **Watch: Diamond League Silesia - Neita, Tebogo & Duplantis in action**: [Link](https://www.bbc.com/sport/athletics/live/cd05lxx84znt)
+- **Ingebrigtsen breaks 28-year-old 3K world record**: [Link](https://www.espn.com/olympics/trackandfield/story/_/id/40989379/jakob-ingebrigtsen-breaks-3k-world-record-3-seconds)
+- **Jamaica's Tia Clayton wins dramatic women's 100m at Silesia Diamond League 
+meet with top three separated by 0.01 seconds**: [Link](https://olympics.com/en/news/tia-clayton-wins-womens-100m-silesia-diamond-league-meet-photo-finish)
+
+
 ### stake (N/A, Sun, 25 Aug 2024 18:50:00 -0700)
 
 - **Amanda Staveley 'wants to BUY' a stake in a Premier League club valued at 
