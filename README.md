@@ -1,3 +1,24 @@
+### زلزال اليوم (N/A, Sun, 25 Aug 2024 21:20:00 -0700)
+
+- **هزة أرضية تضرب سواحل مدينتي آسفي والجديدة**: [Link](https://thevoice.ma/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D9%85%D8%AF%D9%8A%D9%86%D8%AA%D9%8A-%D8%A2%D8%B3%D9%81%D9%8A-%D9%88%D8%A7%D9%84%D8%AC%D8%AF/)
+- **هزة أرضية تضرب سواحل آسفي**: [Link](https://www.akhbarona.com/society/391106.html)
+- **هزة أرضية تضرب سواحل آسفي**: [Link](https://ar.hibapress.com/details-544664.html)
+
+
+### earthquake (N/A, Sun, 25 Aug 2024 21:20:00 -0700)
+
+- **Scientists complete necropsy on deep-sea oarfish washed ashore in La Jolla**: [Link](https://www.kpbs.org/news/environment/2024/08/23/scientists-complete-necropsy-deep-sea-oarfish-washed-ashore-la-jolla)
+- **Two Days After 'Doomsday Fish' Appears In California, Earthquake Hits Los 
+Angeles**: [Link](https://www.ndtv.com/science/two-days-after-doomsday-fish-appears-in-california-earthquake-hits-los-angeles-6409382)
+- **Rare 'doomsday fish' said to bring earthquakes spotted in California days 
+before LA quake**: [Link](https://www.livescience.com/animals/fish/rare-doomsday-fish-said-to-bring-earthquakes-spotted-in-california-days-before-la-quake)
+
+
+### tremblement de terre (N/A, Sun, 25 Aug 2024 21:20:00 -0700)
+
+
+
+
 ### girona fc (N/A, Sun, 25 Aug 2024 14:00:00 -0700)
 
 - **Girona vs. Osasuna Prediction, Odds, La Liga Picks [8/29/2024]**: [Link](https://www.dimers.com/news/girona-vs-osasuna-prediction-la-liga-ac-august-29-2024)
