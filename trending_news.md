@@ -1,3 +1,16 @@
+### al-fateh – al-ahli saudi (N/A, Tue, 27 Aug 2024 08:10:00 -0700)
+
+- **Murad Batna’s position on playing the Al-Ahly match**: [Link](https://www.ysscores.com/en/news/3240588/Murad-Batna%E2%80%99s-position-on-playing-the-Al-Ahly-match)
+- **Alexander is in Al-Ahly’s starting lineup against Al-Fateh**: [Link](https://www.ysscores.com/en/news/3233003/Alexander-is-in-Al-Ahly%E2%80%99s-starting-lineup-against-Al-Fateh)
+
+
+### محمد الشوبي (N/A, Tue, 27 Aug 2024 08:10:00 -0700)
+
+- **الشوبي: "شكرا لكل محب الخير للناس"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D9%88%D8%A8%D9%8A-%D8%B4%D9%83%D8%B1%D8%A7-%D9%84%D9%83%D9%84-%D9%85%D8%AD%D8%A8-%D8%A7%D9%84%D8%AE%D9%8A%D8%B1-%D9%84%D9%84%D9%86%D8%A7%D8%B3-1422117.html)
+- **في آخر ظهور له.. الفنان محمد الشوبي يقلق جمهوره والأخير يعلق**: [Link](https://kech24.com/%D9%81%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%B8%D9%87%D9%88%D8%B1-%D9%84%D9%87-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B4%D9%88%D8%A8%D9%8A-%D9%8A%D9%82%D9%84%D9%82-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%87-%D9%88%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1-%D9%8A%D8%B9%D9%84%D9%82.html)
+- **الشوبي: مروجو إشاعة وفاتي والمتنبئون بدخولي للنار “مرضى نفسيون يفتقرون للتربية”**: [Link](https://al3omk.com/958888.html)
+
+
 ### mehdi ghezzar (N/A, Tue, 27 Aug 2024 07:00:00 -0700)
 
 - **André Azoulay, Le Conseiller Du Roi Du Maroc, Pris Pour Cible À La 
