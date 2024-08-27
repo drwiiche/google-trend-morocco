@@ -1,3 +1,12 @@
+### mehdi ghezzar (N/A, Tue, 27 Aug 2024 07:00:00 -0700)
+
+- **André Azoulay, Le Conseiller Du Roi Du Maroc, Pris Pour Cible À La 
+Télévision Algérienne**: [Link](https://www.i24news.tv/fr/actu/international/afrique/artc-andre-azoulay-le-conseiller-du-roi-du-maroc-pris-pour-cible-a-la-television-algerienne)
+- **André Azoulay pris pour cible à la télévision algérienne**: [Link](https://www.tribunejuive.info/2024/08/27/andre-azoulay-pris-pour-cible-a-la-television-algerienne/)
+- **Alpes-Maritimes: mort d'un gendarme après un refus d'obtempérer, le 
+conducteur en fuite**: [Link](https://www.bfmtv.com/cote-d-azur/alpes-maritimes-mort-d-un-gendarme-apres-d-un-refus-d-obtemperer-le-conducteur-en-fuite_AN-202408260855.html)
+
+
 ### oasis (N/A, Tue, 27 Aug 2024 01:10:00 -0700)
 
 - **Oasis Announces Reunion Tour After 15 Years of Brotherly War**: [Link](https://www.nytimes.com/2024/08/27/arts/music/oasis-reunion-tour.html)
