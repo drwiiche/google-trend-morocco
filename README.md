@@ -1,3 +1,12 @@
+### jeux paralympiques (N/A, Tue, 27 Aug 2024 16:10:00 -0700)
+
+- **Jeux paralympiques : une flamme pour changer le regard sur les personnes en 
+situation de handicap**: [Link](https://www.france24.com/fr/sports/20240827-jeux-paralympiques-flamme-pour-changer-regard-sur-les-personnes-en-situation-handicap)
+- **PROGRAMME TV. Jeux paralympiques Paris 2024 à la télévision : sur quelles 
+chaînes suivre les épreuves ?**: [Link](https://www.sudouest.fr/sport/jeux-paralympiques/programme-tv-jeux-paralympiques-paris-2024-a-la-television-sur-quelles-chaines-suivre-les-epreuves-21147651.php)
+- **La flamme paralympique fait escale à Strasbourg**: [Link](https://maroc-diplomatique.net/la-flamme-paralympique-fait-escale-a-strasbourg/)
+
+
 ### barca vs rayo (N/A, Tue, 27 Aug 2024 13:30:00 -0700)
 
 - **Dani Olmo: Barcelona register forward, leaving him free to make debut**: [Link](https://www.bbc.com/sport/football/articles/c1l5z50pjjyo)
