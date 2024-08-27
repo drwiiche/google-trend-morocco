@@ -1,3 +1,11 @@
+### oasis groupe (N/A, Tue, 27 Aug 2024 05:10:00 -0700)
+
+- **Les frères Gallagher font la paix et reforment Oasis pour une tournée 
+mondiale**: [Link](https://www.lefigaro.fr/musique/oasis-annonce-sa-reformation-pour-une-tournee-mondiale-en-2025-20240827)
+- **Le mythique groupe britannique Oasis se reforme pour une tournée en 2025**: [Link](https://fr.hespress.com/383588-le-mythique-groupe-britannique-oasis-se-reforme-pour-une-tournee-en-2025.html)
+- **Le groupe Oasis annonce sa reformation pour une tournée en 2025**: [Link](https://www.lemonde.fr/culture/article/2024/08/27/le-groupe-oasis-annonce-sa-reformation-pour-une-tournee-en-2025_6296417_3246.html)
+
+
 ### dani olmo barca (N/A, Tue, 27 Aug 2024 03:10:00 -0700)
 
 - **Sources: Barça clear cap space for Olmo vs Rayo**: [Link](https://www.espn.com/soccer/story/_/id/41003203/barcelona-register-olmo-place-christensen-sources)
