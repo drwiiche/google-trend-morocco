@@ -1,3 +1,10 @@
+### dani olmo barca (N/A, Tue, 27 Aug 2024 03:10:00 -0700)
+
+- **Sources: Barça clear cap space for Olmo vs Rayo**: [Link](https://www.espn.com/soccer/story/_/id/41003203/barcelona-register-olmo-place-christensen-sources)
+- **Dani Olmo’s Barcelona registration set to be temporarily approved by La Liga - The Athletic**: [Link](https://www.nytimes.com/athletic/5724435/2024/08/26/barcelona-dani-olmo-registered/)
+- **FC Barcelona Finally Manages To Register New Signing, Reports RAC1**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/26/fc-barcelona-finally-manages-to-register-new-signing-reports-rac1/)
+
+
 ### الزلزال البرتغال (N/A, Mon, 26 Aug 2024 18:50:00 -0700)
 
 - **جبور: زلزال لشبونة لا يعني المغرب .. وارتدادات "8 شتنبر" تمتد شهورا أخرى‎**: [Link](https://www.hespress.com/%D8%AC%D8%A8%D9%88%D8%B1-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%84%D8%B4%D8%A8%D9%88%D9%86%D8%A9-%D9%84%D8%A7-%D9%8A%D8%B9%D9%86%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D8%B1%D8%AA-1421592.html)
