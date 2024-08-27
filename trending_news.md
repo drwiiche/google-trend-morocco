@@ -1,3 +1,11 @@
+### dani olmo (N/A, Tue, 27 Aug 2024 13:50:00 -0700)
+
+- **Manu Carreño, tajante tras conocer la letra pequeña de la inscripción de 
+Dani Olmo por el FC Barcelona: "Es terrible todo"**: [Link](https://cadenaser.com/nacional/2024/08/27/manu-carreno-tajante-tras-conocer-la-letra-pequena-de-la-inscripcion-de-dani-olmo-por-el-fc-barcelona-es-terrible-todo-cadena-ser/)
+- **Dani Olmo cumple su sueño: debuta con el primer equipo del Barcelona**: [Link](https://www.marca.com/futbol/barcelona/2024/08/27/66ce1584ca474157278b4597.html)
+- **El Barça tranquiliza a Christensen**: [Link](https://www.sport.es/es/noticias/barca/barca-tranquiliza-christensen-107405829)
+
+
 ### marc bernal (N/A, Tue, 27 Aug 2024 15:00:00 -0700)
 
 - **Marc Bernal o la normalidad de un fenómeno que no es normal**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240827/1002304639/marc-bernal-normalidad-fenomeno-normal.html)
