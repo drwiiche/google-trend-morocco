@@ -1,3 +1,13 @@
+### champions league (N/A, Tue, 27 Aug 2024 12:40:00 -0700)
+
+- **Champions League mock draw: How Arsenal, Liverpool, Real Madrid could fare**: [Link](https://www.espn.com/soccer/story/_/id/40894613/champions-league-mock-draw-how-new-format-plays-out)
+- **Champions League, Europa League and Conference League league phase draws: 
+All you need to know about the European Club Football Season Kick-off in 
+Monaco**: [Link](https://www.uefa.com/uefachampionsleague/news/0290-1bae12b1cac5-290efb63f023-1000--champions-league-europa-league-and-conference-league-lea/)
+- **New Champions League format explained: Qualified teams, schedule, playoffs, 
+group stage draw, dates**: [Link](https://www.nbcsports.com/soccer/news/champions-league-new-format-explained-qualified-teams-schedule-playoffs-group-stage-draw-dates)
+
+
 ### jannik sinner (N/A, Tue, 27 Aug 2024 12:30:00 -0700)
 
 - **Panichi-Zimaglia, un ticket di numeri uno per la nuova squadra di Sinner**: [Link](https://www.gazzetta.it/Tennis/atp/slam/us-open/26-08-2024/tennis-panichi-e-zamaglia-nel-team-sinner.shtml)
