@@ -1,3 +1,10 @@
+### النصر (N/A, Tue, 27 Aug 2024 12:20:00 -0700)
+
+- **هدف واحد يفصل رونالدو عن عرش ميسي**: [Link](https://m.kooora.com/?n=1350905&o=n)
+- **النصر يتقدم على الفيحاء بثنائية في الشوط الأول**: [Link](https://hihi2.com/2024/08/27/p2818135.html)
+- **مباشر مباراة النصر ضد الفيحاء 2-0 في الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/27/ronaldo-al-nassr-2)
+
+
 ### birmingham – fulham (N/A, Tue, 27 Aug 2024 12:10:00 -0700)
 
 - **Birmingham Matchday Preview**: [Link](https://www.fulhamfc.com/news/2024/august/27/birmingham-matchday-preview/)
