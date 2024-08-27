@@ -1,3 +1,27 @@
+### galatasaray (N/A, Tue, 27 Aug 2024 11:50:00 -0700)
+
+- **TV'de bugün: Hangi maç hangi kanalda?**: [Link](https://www.gazeteduvar.com.tr/tvde-bugun-hangi-mac-hangi-kanalda-haber-1716054)
+- **27 AĞUSTOS 2024 BUGÜNKÜ MAÇLAR ⚽ Bugün maç var mı? Salı günü hangi maçlar 
+var, hangi kanalda?**: [Link](https://www.milliyet.com.tr/galeri/bugun-mac-var-mi-27-agustos-bugunku-maclar-sali-gunu-hangi-maclar-var-7179292)
+- **Bu Akşam Hangi Maçlar Var, Hangi Kanalda? 26 Ağustos 2024 Günün Maçları!**: [Link](https://www.cnnturk.com/spor/bu-aksam-hangi-maclar-var-hangi-kanalda-26-agustos-2024-gunun-maclari-2129017)
+
+
+### rayo vallecano - barcelona (N/A, Tue, 27 Aug 2024 11:40:00 -0700)
+
+- **FC Barcelona Versus Rayo Vallecano Line Up: Flick Makes Changes To Hand 
+Debut**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/27/fc-barcelona-versus-rayo-vallecano-line-up-flick-makes-a-huge-change/)
+- **Rayo Vallecano vs. Barcelona - Football Match Preview - August 27, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704685)
+- **The squad for Rayo v Barça**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4097495/the-squad-for-rayo-v-barca)
+
+
+### keynote apple iphone 16 (N/A, Tue, 27 Aug 2024 11:20:00 -0700)
+
+- **Apple announces iPhone 16 event ‘It’s Glowtime’ for September 9: All you 
+need to know**: [Link](https://www.thehindu.com/sci-tech/technology/gadgets/apple-confirms-september-9-for-new-iphone-16-series-launch-apple-intelligence-and-ios-18-to-play-big/article68570299.ece)
+- **Apple to Hold ‘Glowtime’ iPhone 16 Launch Event on Sept. 9**: [Link](https://finance.yahoo.com/news/apple-hold-glowtime-product-launch-161223005.html)
+- **Apple Targets Sept. 10 Debut for New iPhones, AirPods and Watches**: [Link](https://www.bloomberg.com/news/articles/2024-08-23/when-is-apple-announcing-the-iphone-16-apple-planning-event-on-sept-10-2024)
+
+
 ### rayo vallecano vs barcelona (N/A, Tue, 27 Aug 2024 11:40:00 -0700)
 
 - **Alineación del Barcelona contra el Rayo Vallecano para la jornada 3 de 
