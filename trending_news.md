@@ -1,3 +1,19 @@
+### oasis (N/A, Tue, 27 Aug 2024 01:10:00 -0700)
+
+- **Oasis Announces Reunion Tour After 15 Years of Brotherly War**: [Link](https://www.nytimes.com/2024/08/27/arts/music/oasis-reunion-tour.html)
+- **The Gallagher brothers are reviving Oasis. Here's a look at their 
+decades-long feud**: [Link](https://www.npr.org/2024/08/26/nx-s1-5090011/oasis-reunion-liam-noel-gallagher-band-breakup-feud)
+- **Oasis announce major reunion tour 15 years after warring Gallagher brothers 
+split**: [Link](https://www.nbcnews.com/news/world/oasis-announce-reunion-tour-15-years-warring-gallagher-broth-rcna168186)
+
+
+### celta vigo (N/A, Mon, 26 Aug 2024 14:30:00 -0700)
+
+- **Celta's first female president is taking gambles, and they're paying off**: [Link](https://www.espn.com/soccer/story/_/id/41002066/celta-vigos-rebirth-makes-surprise-laliga-package)
+- **Spain: Celta celebrates birthday at Balaídos in best way possible**: [Link](http://stadiumdb.com/news/2024/08/spain_celta_celebrates_birthday_at_balaidos_in_best_way_possible)
+- **Celta Vigo vs Valencia - La Liga Round 2, 2024**: [Link](https://www.foxsports.com.au/football/la-liga/match-centre/LAL2024-250204)
+
+
 ### oasis groupe (N/A, Tue, 27 Aug 2024 05:10:00 -0700)
 
 - **Les frères Gallagher font la paix et reforment Oasis pour une tournée 
