@@ -1,3 +1,12 @@
+### mehdi ghezzar maroc (N/A, Tue, 27 Aug 2024 13:10:00 -0700)
+
+- **Après un déchainement de haine anti-Maroc, RMC appelée à se séparer du 
+chroniqueur Mehdi Ghezzar**: [Link](https://www.lopinion.ma/Apres-un-dechainement-de-haine-anti-Maroc-RMC-appelee-a-se-separer-du-chroniqueur-Mehdi-Ghezzar_a57360.html)
+- **Ghezzar : le venin médiatique d’un chroniqueur aux ordres d’Alger**: [Link](https://fr.hespress.com/383636-ghezzar-le-venin-mediatique-dun-chroniqueur-aux-ordres-dalger.html)
+- **André Azoulay, Le Conseiller Du Roi Du Maroc, Pris Pour Cible À La 
+Télévision Algérienne**: [Link](https://www.i24news.tv/fr/actu/international/afrique/artc-andre-azoulay-le-conseiller-du-roi-du-maroc-pris-pour-cible-a-la-television-algerienne)
+
+
 ### olmo (N/A, Tue, 27 Aug 2024 13:30:00 -0700)
 
 - **Dani Olmo: Barcelona register forward, leaving him free to make debut**: [Link](https://www.bbc.com/sport/football/articles/c1l5z50pjjyo)
