@@ -1,3 +1,10 @@
+### majorque – séville (N/A, Tue, 27 Aug 2024 09:10:00 -0700)
+
+- **DIRECT. Majorque-Séville FC (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/majorque-seville-fc-live/657305)
+- **Pronostic Majorque Séville : Analyse, cotes et prono du match de Liga**: [Link](https://www.sofoot.com/breves/pronostic-majorque-seville-analyse-cotes-et-prono-du-match-de-liga)
+- **Pronostic Majorque - Séville, Liga**: [Link](https://www.sportytrader.com/pronostics/majorque-seville-211690/)
+
+
 ### al-fateh – al-ahli saudi (N/A, Tue, 27 Aug 2024 08:10:00 -0700)
 
 - **Murad Batna’s position on playing the Al-Ahly match**: [Link](https://www.ysscores.com/en/news/3240588/Murad-Batna%E2%80%99s-position-on-playing-the-Al-Ahly-match)
