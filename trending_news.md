@@ -1,3 +1,20 @@
+### brighton – crawley town (N/A, Tue, 27 Aug 2024 11:10:00 -0700)
+
+- **Harrogate Town vs Preston North End LIVE updates**: [Link](https://www.lep.co.uk/sport/football/preston-north-end/harrogate-vs-preston-live-score-team-news-teams-starting-lineups-north-end-pne-carabao-cup-efl-4757518)
+- **Preview: Harrogate Town vs. Preston North End - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/harrogate-town/league-cup/preview/preview-harrogate-vs-preston-prediction-team-news-lineups_551227.html)
+- **PNE predicted team vs Harrogate as Heckingbottom set to make changes**: [Link](https://www.lep.co.uk/sport/football/preston-north-end/preston-north-end-predicted-team-vs-harrogate-town-news-paul-heckingbottom-carabao-cup-4756328)
+
+
+### everton – doncaster (N/A, Tue, 27 Aug 2024 11:10:00 -0700)
+
+- **Football Daily | Sean Dyche, bucket hat connoisseur, is a sucker for a 
+reunion tour**: [Link](https://www.theguardian.com/football/article/2024/aug/27/sean-dyche-everton-carabao-cup-football-daily)
+- **Everton vs Doncaster: Carabao Cup Predicted Line-Up | All Change?**: [Link](https://royalbluemersey.sbnation.com/2024/8/27/24228539/everton-vs-doncaster-carabao-cup-predicted-line-up-all-change-dyche-armstrong-ndiaye-lindstrom)
+- **Predicted Everton XI vs Doncaster as Sean Dyche hands first start to three 
+new signings and drops exit-linked star**: [Link](https://www.everton.news/predicted-everton-xi-vs-doncaster-as-sean-dyche-hands-first-start-to-three-new-signings-and-drops-exit-linked-star/)
+
+
 ### الشوبي (N/A, Tue, 27 Aug 2024 08:20:00 -0700)
 
 - **الفنان الشوبي يرد على "الاستهزاء" بشكله**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D9%88%D8%A8%D9%8A-%D8%B4%D9%83%D8%B1%D8%A7-%D9%84%D9%83%D9%84-%D9%85%D8%AD%D8%A8-%D8%A7%D9%84%D8%AE%D9%8A%D8%B1-%D9%84%D9%84%D9%86%D8%A7%D8%B3-1422117.html)
