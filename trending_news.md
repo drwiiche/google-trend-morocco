@@ -1,3 +1,11 @@
+### مباريات اليوم مباشر (N/A, Tue, 27 Aug 2024 13:10:00 -0700)
+
+- **بالفيديو.. دياز وإندريك يسرقان يوم مبابي وريال مدريد يفتقد كروس أكثر من 
+رونالدو**: [Link](https://www.aljazeera.net/sport/2024/8/26/brahim-diaz-endrick-mbapp)
+- **احتفال فالفيردي.. وفرحة مبابي بالبرنابيو.. وحلم أندريك في سحق بلد الوليد**: [Link](https://www.kooora.com/?n=1350779)
+- **إبراهيم يفعل ما عجز عنه الثالوث الذهبي**: [Link](https://www.almountakhab.com/node/16203494)
+
+
 ### fcb vs (N/A, Tue, 27 Aug 2024 13:50:00 -0700)
 
 - **Barcelona vs Athletic Club LIVE Streaming: How To Watch La Liga Live In 
