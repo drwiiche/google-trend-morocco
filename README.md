@@ -1,3 +1,10 @@
+### mallorca vs sevilla (N/A, Tue, 27 Aug 2024 10:40:00 -0700)
+
+- **Mallorca - Sevilla en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/mallorca-sevilla/2024/08/27/01_0101_20240827_181_179-directo.html)
+- **Arrasate anuncia la lista de convocados sin los dos lesionados**: [Link](https://www.futbolfantasy.com/laliga/noticias/119089-arrasate-anuncia-la-lista-de-convocados-sin-los-dos-lesionados)
+- **La visita a Son Moix ya tiene arbitro designado**: [Link](https://www.elsevillista.net/2024/08/la-visita-son-moix-ya-tiene-arbitro.html)
+
+
 ### garmin fenix 8 (N/A, Tue, 27 Aug 2024 08:30:00 -0700)
 
 - **Push your limits with the Enduro 3 from Garmin, a lightweight 
