@@ -1,3 +1,27 @@
+### rayo vallecano vs barcelona (N/A, Tue, 27 Aug 2024 11:40:00 -0700)
+
+- **Alineación del Barcelona contra el Rayo Vallecano para la jornada 3 de 
+LaLiga**: [Link](https://www.sport.es/es/noticias/barca/alineacion-barcelona-rayo-vallecano-liga-107416169)
+- **Rayo - Barcelona en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/rayo-barcelona/2024/08/27/01_0101_20240827_184_178-directo.html)
+- **Dani Olmo, en Madrid para jugar; Laporta, de inauguración**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240827/1002304953/dani-olmo-madrid-jugar-laporta-inauguracion.html)
+
+
+### غلطة سراي ضد يونغ بويز (N/A, Tue, 27 Aug 2024 11:40:00 -0700)
+
+- **غلطة سراي يسعى للتدارك إياباً أمام يونغ بويز**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%83-%D8%A5%D9%8A%D8%A7%D8%A8%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D9%8A%D9%88%D9%86%D8%BA-%D8%A8%D9%88%D9%8A%D8%B2-2024-08-26)
+- **سحر زياش يبقي غلطة سراي على قيد الحياة قبل مباراة حاسمة في دوري الأبطال**: [Link](http://ar.sport.le360.ma/marocains-du-monde/157816)
+- **زياش يعود متوهجا.. لكن بثمن غالي للدفاع**: [Link](https://www.almountakhab.com/node/13203336)
+
+
+### sevilla (N/A, Tue, 27 Aug 2024 11:40:00 -0700)
+
+- **La adictiva serie de Amazon Prime que une Roma con Sevilla**: [Link](https://www.abc.es/sevilla/ciudad/adictiva-serie-amazon-prime-une-roma-sevilla-20240827140637-nts.html)
+- **Se busca personal en Sevilla para el almacén de pedidos online de 
+Mercadona: Parcial hasta 829 € más pluses**: [Link](https://andaluciainforma.eldiario.es/se-busca-personal-en-sevilla-para-el-almacen-de-pedidos-online-de-mercadona-parcial-hasta-829-e-mas-pluses/)
+- **La Justicia respalda la estrategia de Sevilla contra los pisos turísticos: 
+tres sentencias avalan que corten el agua si son ilegales**: [Link](https://elpais.com/espana/2024-08-24/la-justicia-respalda-la-estrategia-de-sevilla-contra-los-pisos-turisticos-tres-sentencias-avalan-que-corten-el-agua-si-son-ilegales.html)
+
+
 ### crystal palace – norwich city (N/A, Tue, 27 Aug 2024 11:30:00 -0700)
 
 - **NCFC LIVE: City face Premier League test in Carabao Cup**: [Link](https://www.pinkun.com/sport/norwich-city/24544153.crystal-palace-v-norwich-city-follow-carabao-cup-updates/)
