@@ -1,3 +1,12 @@
+### silesia (N/A, Mon, 26 Aug 2024 11:40:00 -0700)
+
+- **Prezydent kibicował zawodnikom podczas Memoriału Kamili Skolimowskiej \ 
+Aktualności**: [Link](https://www.prezydent.pl/aktualnosci/wydarzenia/chorzow-zawody,90472)
+- **Lekkoatletyczne diamenty w Kotle Czarownic**: [Link](https://www.slaskie.pl/content/lekkoatletyczne-diamenty-w-kotle-czarownic)
+- **Jakob Ingebrigtsen mógł nie wystartować po rekord świata. Akcja ratunkowa, 
+a potem słynny SMS**: [Link](https://sport.tvp.pl/81830899/jakob-ingebrigtsen-mogl-nie-wystartowac-po-rekord-swiata-akcja-ratunkowa-a-potem-slynny-sms)
+
+
 ### algerie maroc tokyo (N/A, Mon, 26 Aug 2024 14:20:00 -0700)
 
 - **Au Japon, Marocains et Algériens en viennent aux mains au sujet du Sahara 
