@@ -1,3 +1,10 @@
+### birmingham – fulham (N/A, Tue, 27 Aug 2024 12:10:00 -0700)
+
+- **Birmingham Matchday Preview**: [Link](https://www.fulhamfc.com/news/2024/august/27/birmingham-matchday-preview/)
+- **Fulham set to hand debuts to new trio as Carabao Cup plan revealed**: [Link](https://www.standard.co.uk/sport/football/fulham-birmingham-carabao-cup-andersen-cuenca-berge-b1178408.html)
+- **Preview: Birmingham City vs. Fulham - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/birmingham-city/league-cup/preview/preview-birmingham-vs-fulham-prediction-team-news-lineups_551217.html)
+
+
 ### galatasaray (N/A, Tue, 27 Aug 2024 11:50:00 -0700)
 
 - **TV'de bugün: Hangi maç hangi kanalda?**: [Link](https://www.gazeteduvar.com.tr/tvde-bugun-hangi-mac-hangi-kanalda-haber-1716054)
