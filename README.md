@@ -1,3 +1,10 @@
+### mélenchon (N/A, Tue, 27 Aug 2024 09:50:00 -0700)
+
+- **En direct, nouveau premier ministre : un « nouveau cycle de consultations » à l’Elysée, LFI appelle à une manifestation « face au coup de force de Macron » mais pas le PS**: [Link](https://www.lemonde.fr/politique/live/2024/08/27/en-direct-nouveau-premier-ministre-un-nouveau-cycle-de-consultations-a-l-elysee-sans-les-partis-de-gauche-qui-denoncent-un-deni-de-democratie_6296182_823448.html)
+- **🔴 En direct : nouvelles concertations à l'Élysée, LFI appelle à manifester le 7 septembre**: [Link](https://www.france24.com/fr/france/20240827-%F0%9F%94%B4-en-direct-olivier-faure-n-ira-pas-%C3%A0-l-%C3%A9lys%C3%A9e-refusant-d-%C3%AAtre-complice-d-une-parodie-de-d%C3%A9mocratie)
+- **DIRECT. Premier ministre: la gauche dénonce un "déni de démocratie", Macron poursuit ses consultations**: [Link](https://www.bfmtv.com/politique/gouvernement/direct-nouveau-premier-ministre-macron-refuse-un-gouvernement-nfp-de-nouvelles-consultations-ce-mardi_LN-202408270033.html)
+
+
 ### al feiha – al-nassr fc (N/A, Tue, 27 Aug 2024 10:10:00 -0700)
 
 - **The expected formation of Al-Nasr against Al-Fayhaa**: [Link](https://www.ysscores.com/en/news/3233939/The-expected-formation-of-Al-Nasr-against-Al-Fayhaa)
