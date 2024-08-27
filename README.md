@@ -1,3 +1,17 @@
+### livescore (N/A, Tue, 27 Aug 2024 14:20:00 -0700)
+
+- **LiveScore CEO on overregulation and users’ “endless” demand for sports 
+content**: [Link](https://igamingbusiness.com/sports-betting/livescore-ceo-sam-sadi-overregulation-for-sports-content/)
+
+
+### lewandowski (N/A, Tue, 27 Aug 2024 14:20:00 -0700)
+
+- **European roundup: Lewandowski fires Barcelona past Athletic Bilbao**: [Link](https://www.theguardian.com/football/article/2024/aug/24/european-roundup-lewandowski-fires-barcelona-past-athletic-bilbao)
+- **Lamine Yamal shines on the pitch, melts hearts playing with younger brother 
+after Barcelona’s victory**: [Link](https://en.as.com/videos/lamine-yamal-shines-on-the-pitch-melts-hearts-playing-with-younger-brother-after-barcelonas-victory-v/)
+- **Barcelona 2-1 Athletic (Aug 24, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704672)
+
+
 ### مباريات اليوم مباشر (N/A, Tue, 27 Aug 2024 13:10:00 -0700)
 
 - **بالفيديو.. دياز وإندريك يسرقان يوم مبابي وريال مدريد يفتقد كروس أكثر من 
