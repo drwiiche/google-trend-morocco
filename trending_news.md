@@ -1,3 +1,12 @@
+### al feiha – al-nassr fc (N/A, Tue, 27 Aug 2024 10:10:00 -0700)
+
+- **The expected formation of Al-Nasr against Al-Fayhaa**: [Link](https://www.ysscores.com/en/news/3233939/The-expected-formation-of-Al-Nasr-against-Al-Fayhaa)
+- **Al Feiha vs Al Nassr: Where and how to watch live Saudi Pro League 2024-25 
+Matchday 2**: [Link](https://bolavip.com/en/soccer/al-feiha-vs-al-nassr-where-and-how-to-watch-live-saudi-pro-league-2024-25-matchday-1)
+- **Is Cristiano Ronaldo Playing Tonight for Al Nassr vs Al Feiha in Saudi Pro 
+League?**: [Link](https://www.essentiallysports.com/soccer-football-news-is-cristiano-ronaldo-playing-tonight-for-al-nassr-vs-al-feiha-in-saudi-pro-league/)
+
+
 ### orange (N/A, Tue, 27 Aug 2024 04:50:00 -0700)
 
 - **Code Orange unhealthy air in the forecast for Tuesday**: [Link](https://www.insidenova.com/headlines/code-orange-unhealthy-air-in-the-forecast-for-tuesday/article_935396fe-640b-11ef-a831-d330ab08facc.html)
