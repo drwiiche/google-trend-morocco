@@ -1,3 +1,11 @@
+### paralympics (N/A, Tue, 27 Aug 2024 16:20:00 -0700)
+
+- **Paris Paralympics begin on Wednesday (28) with opening ceremony; Brazil 
+debuts on Thursday (29)**: [Link](https://www.brasildefato.com.br/2024/08/27/paris-paralympics-begin-on-wednesday-28-with-opening-ceremony-brazil-debuts-on-thursday-29)
+- **Celebrating the Paralympic Games throughout France**: [Link](https://olympics.com/en/news/celebrating-the-paralympic-games-throughout-france?uxreference=seealso)
+- **Paris 2024: Para athletics stars share excitement as Games set to kick off**: [Link](https://www.paralympic.org/news/paris-2024-para-athletics-stars-share-excitement-games-set-kick)
+
+
 ### jeux paralympiques (N/A, Tue, 27 Aug 2024 16:10:00 -0700)
 
 - **Jeux paralympiques : une flamme pour changer le regard sur les personnes en 
