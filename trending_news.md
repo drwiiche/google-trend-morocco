@@ -1,3 +1,11 @@
+### garmin fenix 8 (N/A, Tue, 27 Aug 2024 08:30:00 -0700)
+
+- **Push your limits with the Enduro 3 from Garmin, a lightweight 
+ultraperformance GPS smartwatch with best-in-class solar battery life**: [Link](https://www.prnewswire.com/news-releases/push-your-limits-with-the-enduro-3-from-garmin-a-lightweight-ultraperformance-gps-smartwatch-with-best-in-class-solar-battery-life-302230759.html)
+- **Garmin's Fenix 8 Takes on Apple Watch Ultra 2 With Monthlong Battery**: [Link](https://www.cnet.com/tech/mobile/garmins-fenix-8-takes-on-apple-watch-ultra-2-with-monthlong-battery/)
+- **Garmin's top GPS watches get an AMOLED facelift in the new Fenix 8 series**: [Link](https://www.androidauthority.com/garmin-announces-fenix-8-series-enduro-3-3474247/)
+
+
 ### mélenchon (N/A, Tue, 27 Aug 2024 09:50:00 -0700)
 
 - **En direct, nouveau premier ministre : un « nouveau cycle de consultations » à l’Elysée, LFI appelle à une manifestation « face au coup de force de Macron » mais pas le PS**: [Link](https://www.lemonde.fr/politique/live/2024/08/27/en-direct-nouveau-premier-ministre-un-nouveau-cycle-de-consultations-a-l-elysee-sans-les-partis-de-gauche-qui-denoncent-un-deni-de-democratie_6296182_823448.html)
