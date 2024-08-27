@@ -1,3 +1,26 @@
+### ترتيب الدوري الاسباني (N/A, Tue, 27 Aug 2024 14:30:00 -0700)
+
+- **بالفيديو.. دياز وإندريك يسرقان يوم مبابي وريال مدريد يفتقد كروس أكثر من 
+رونالدو**: [Link](https://www.aljazeera.net/sport/2024/8/26/brahim-diaz-endrick-mbapp)
+- **احتفال فالفيردي.. وفرحة مبابي بالبرنابيو.. وحلم أندريك في سحق بلد الوليد**: [Link](https://www.kooora.com/?n=1350779)
+- **إبراهيم يفعل ما عجز عنه الثالوث الذهبي**: [Link](https://www.almountakhab.com/node/16203494)
+
+
+### laliga (N/A, Tue, 27 Aug 2024 14:30:00 -0700)
+
+- **Mbappé and Álvarez bring superhero vibes but La Liga sidekicks pack a punch 
+| Sid Lowe**: [Link](https://www.theguardian.com/football/article/2024/aug/26/mbappe-and-alvarez-bring-superhero-factor-but-sidekicks-pack-a-punch)
+- **Breakout players to watch across Europe's top five leagues**: [Link](https://www.espn.com/soccer/story/_/id/40834630/breakout-players-watch-premier-league-laliga-more)
+- **The Numbers Narrative: Mallorca 1-1 Real Madrid**: [Link](https://www.managingmadrid.com/2024/8/24/24227318/the-numbers-narrative-mallorca-1-1-real-madrid)
+
+
+### lima (N/A, Tue, 27 Aug 2024 14:20:00 -0700)
+
+- **Lima Fire Department responds to a 2-alarm fire in Crestwood Estates**: [Link](https://www.hometownstations.com/news/lima-fire-department-responds-to-a-2-alarm-fire-in-crestwood-estates/article_e7672aae-63e2-11ef-b376-a35b745f8d2a.html)
+- **Coaches' Club returns at WU20 Lima 24**: [Link](https://worldathletics.org/news/news/coaches-club-returns-wu20-lima-24)
+- **Fredric Zimerle Obituary (2024) - Lima, OH - The Lima News**: [Link](https://www.legacy.com/us/obituaries/limaohio/name/fredric-zimerle-obituary?id=56105383)
+
+
 ### livescore (N/A, Tue, 27 Aug 2024 14:20:00 -0700)
 
 - **LiveScore CEO on overregulation and users’ “endless” demand for sports 
