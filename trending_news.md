@@ -1,3 +1,11 @@
+### regragui (N/A, Tue, 27 Aug 2024 09:30:00 -0700)
+
+- **Lions de l’Atlas: Adam Aznou dans la liste de Walid Regragui?**: [Link](https://sport.le360.ma/marocains-du-monde/lions-de-latlas-adam-aznou-dans-la-liste-de-walid-regragui-114007)
+- **Éliminatoires CAN-2025 : 24 joueurs convoqués par le sélectionneur du Gabon 
+pour affronter le Maroc**: [Link](https://mobile.telquel.ma/instant-t/2024/08/26/eliminatoires-can-2025-24-joueurs-convoques-par-le-selectionneur-du-gabon-pour-affronter-le-maroc_1890370/)
+- **Conférence de presse du coach Regragui : Ouverture des accréditations médias**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D9%85%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D9%86%D8%AF%D9%88%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-3/)
+
+
 ### majorque – séville (N/A, Tue, 27 Aug 2024 09:10:00 -0700)
 
 - **DIRECT. Majorque-Séville FC (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/majorque-seville-fc-live/657305)
