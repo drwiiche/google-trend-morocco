@@ -1,3 +1,10 @@
+### هسبريس (N/A, Mon, 26 Aug 2024 23:00:00 -0700)
+
+- **شاب ينهي حياة شقيقه طعنا في كلميم**: [Link](https://www.hespress.com/%D8%B4%D8%A7%D8%A8-%D9%8A%D9%82%D8%AA%D9%84-%D8%B4%D9%82%D9%8A%D9%82%D9%87-%D8%B7%D8%B9%D9%86%D8%A7-%D9%81%D9%8A-%D9%83%D9%84%D9%85%D9%8A%D9%85-1421978.html)
+- **كلميم.. شخص يقتل شقيقه بسبب خلاف كلامي**: [Link](https://almasdare.com/%D9%83%D9%84%D9%85%D9%8A%D9%85-%D8%B4%D8%AE%D8%B5-%D9%8A%D9%82%D8%AA%D9%84-%D8%B4%D9%82%D9%8A%D9%82%D9%87-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AE%D9%84%D8%A7%D9%81-%D9%83%D9%84%D8%A7%D9%85%D9%8A/)
+- **رصيف الصحافة: فقدان لاعبين دوليين التنافسية يربك لائحة "الأسود" الجديدة**: [Link](https://www.hespress.com/%D8%B1%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D9%81%D9%82%D8%AF%D8%A7%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%AF%D9%88%D9%84%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D8%AA%D9%86-1421904.html)
+
+
 ### novak djokovic (N/A, Mon, 26 Aug 2024 22:20:00 -0700)
 
 - **US Open 2024: Novak Djokovic starts title defence with comfortable win over 
