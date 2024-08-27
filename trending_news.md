@@ -1,3 +1,18 @@
+### olmo (N/A, Tue, 27 Aug 2024 13:30:00 -0700)
+
+- **Dani Olmo: Barcelona register forward, leaving him free to make debut**: [Link](https://www.bbc.com/sport/football/articles/c1l5z50pjjyo)
+- **FC Barcelona Finally Manages To Register New Signing, Reports RAC1**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/26/fc-barcelona-finally-manages-to-register-new-signing-reports-rac1/)
+- **Sources: Barça clear cap space for Olmo vs Rayo**: [Link](https://www.espn.com/soccer/story/_/id/41003203/barcelona-register-olmo-place-christensen-sources)
+
+
+### neymar (N/A, Tue, 27 Aug 2024 13:30:00 -0700)
+
+- **¡Neymar desmiente que vaya a fichar por el Barcelona!**: [Link](https://www.marca.com/futbol/barcelona/2024/08/26/66cce52522601d9e428b45a9.html)
+- **¿Vuelve Neymar al Barcelona? Con comunicado oficial, el brasileño despejó 
+todas las dudas sobre un posible regreso a España**: [Link](https://www.eltiempo.com/deportes/futbol-internacional/vuelve-neymar-al-barcelona-con-comunicado-oficial-el-brasileno-despejo-todas-las-dudas-sobre-un-posible-regreso-a-espana-3375562)
+- **Neymar desmiente que haya pedido volver al Barça**: [Link](https://www.sport.es/es/noticias/barca/neymar-desmiente-haya-pedido-volver-107392647)
+
+
 ### fcb (N/A, Tue, 27 Aug 2024 13:10:00 -0700)
 
 - **FC Barcelona Announces Incoming Transfer**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/27/fc-barcelona-announces-incoming-transfer/)
