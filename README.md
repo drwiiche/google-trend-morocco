@@ -1,3 +1,13 @@
+### julien arnaud (N/A, Mon, 26 Aug 2024 15:50:00 -0700)
+
+- **« Télématin » : Julien Arnaud quitte TF1 et remplace Thomas Sotto sur 
+France 2**: [Link](https://www.leparisien.fr/culture-loisirs/tv/telematin-julien-arnaud-quitte-tf1-et-remplace-thomas-sotto-sur-france-2-26-08-2024-HLDM256KW5FSDAV2LWDJTMWOKA.php)
+- **"Je ne vous cache pas ma très grande déception" : Jean-Baptiste Marteau ne 
+présentera pas "Télématin" sur France 2**: [Link](https://www.ozap.com/actu/-je-ne-vous-cache-pas-ma-tres-grande-deception-jean-baptiste-marteau-ne-presentera-pas-telematin-sur-france-2/645467)
+- **Le joker du 20h de TF1 et présentateur de LCI depuis la fin des années 90, 
+Julien Arnaud quitte le group...**: [Link](https://www.jeanmarcmorandini.com/article-581582-le-joker-du-20h-de-tf1-et-presentateur-de-lci-depuis-la-fin-des-annees-90-julien-arnaud-quitte-le-groupe-pour-rejoindre-telematin-sur-france-2-ou-il-va-rejoindre-flavie-flament-egalement-ex-tf1.html)
+
+
 ### silesia (N/A, Mon, 26 Aug 2024 11:40:00 -0700)
 
 - **Prezydent kibicował zawodnikom podczas Memoriału Kamili Skolimowskiej \ 
