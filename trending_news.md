@@ -1,3 +1,19 @@
+### fcb vs (N/A, Tue, 27 Aug 2024 13:50:00 -0700)
+
+- **Barcelona vs Athletic Club LIVE Streaming: How To Watch La Liga Live In 
+India, USA, UK, Australia**: [Link](https://www.republicworld.com/sports/football/barcelona-vs-athletic-club-live-streaming-how-to-watch-la-liga-live-in-india-usa-uk-australia)
+- **Hansi Flick: 'The team is responding well'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4095101/hansi-flick-the-team-is-responding-well)
+- **(VIDEO) Lamine Yamal's Stunning Goal Against Athletic Club**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/-video-lamine-yamal-s-stunning-goal-against-athletic-club-2024-08-24)
+
+
+### leicester – tranmere (N/A, Tue, 27 Aug 2024 13:00:00 -0700)
+
+- **Tranmere Cup Tie Coverage On Foxes Hub**: [Link](https://www.lcfc.com/news/4097260/tranmere-cup-tie-coverage-on-foxes-hub)
+- **Leicester City team news v Tranmere as Caleb Okoli makes debut amid eight 
+changes**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-9513368)
+- **Leicester vs Tranmere: Injury news and predicted XI in EFL Cup**: [Link](https://foxesofleicester.com/posts/leicester-vs-tranmere-injury-news-and-predicted-xi-in-efl-cup-01j67ep6ehmm)
+
+
 ### mehdi ghezzar maroc (N/A, Tue, 27 Aug 2024 13:10:00 -0700)
 
 - **Après un déchainement de haine anti-Maroc, RMC appelée à se séparer du 
