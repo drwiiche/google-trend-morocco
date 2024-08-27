@@ -1,3 +1,11 @@
+### magnitude seisme maroc (N/A, Mon, 26 Aug 2024 19:50:00 -0700)
+
+- **Un séisme d'une magnitude de 5,4 au large du Portugal, des secousses 
+ressenties au Maroc**: [Link](https://ledesk.ma/encontinu/un-seisme-dune-magnitude-de-54-au-large-du-portugal-des-secousses-ressenties-au-maroc/)
+- **Un séisme au large de Lisbonne, ressenti jusqu'au Maroc**: [Link](https://medias24.com/2024/08/26/un-seisme-au-large-de-lisbonne-ressenti-jusquau-maroc/)
+- **Portugal : un tremblement de terre ressenti jusqu’au Maroc et en Espagne**: [Link](https://mobile.telquel.ma/instant-t/2024/08/26/un-tremblement-de-terre-de-magnitude-55-ressenti-au-maroc-et-en-espagne_1890291/)
+
+
 ### julien arnaud (N/A, Mon, 26 Aug 2024 15:50:00 -0700)
 
 - **« Télématin » : Julien Arnaud quitte TF1 et remplace Thomas Sotto sur 
