@@ -1,3 +1,19 @@
+### novak djokovic (N/A, Mon, 26 Aug 2024 22:20:00 -0700)
+
+- **US Open 2024: Novak Djokovic starts title defence with comfortable win over 
+Radu Albot**: [Link](https://www.bbc.com/sport/tennis/articles/clyw3p72k32o)
+- **US Open 2024: How to watch the Novak Djokovic vs. Radu Albot tennis match 
+tonight**: [Link](https://sports.yahoo.com/us-open-2024-how-to-watch-the-novak-djokovic-vs-radu-albot-tennis-match-tonight-213728595.html)
+- **Why is Rafael Nadal not playing US Open tennis? Everything we know**: [Link](https://www.express.co.uk/sport/tennis/1939367/rafael-nadal-us-open-absence)
+
+
+### twitter (N/A, Mon, 26 Aug 2024 20:10:00 -0700)
+
+- **Elon Musk’s X Is Leaving San Francisco. City Officials Say ‘Good Riddance.’**: [Link](https://www.nytimes.com/2024/08/24/technology/elon-musk-x-san-francisco.html)
+- **Elon Musk was just forced to reveal who really owns X. Here’s the list.**: [Link](https://fortune.com/2024/08/22/elon-musk-x-twitter-owner-list/)
+- **Here Are the People Who Lost Millions Backing Musk’s Twitter Takeover**: [Link](https://www.rollingstone.com/culture/culture-features/twitter-x-shareholders-court-order-diddy-jack-dorsey-1235085804/)
+
+
 ### magnitude seisme maroc (N/A, Mon, 26 Aug 2024 19:50:00 -0700)
 
 - **Un séisme d'une magnitude de 5,4 au large du Portugal, des secousses 
