@@ -1,3 +1,26 @@
+### barca (N/A, Tue, 27 Aug 2024 12:50:00 -0700)
+
+- **Barca a vela sorpresa dalla mareggiata si incaglia sugli scogli in Salento: 
+salvati due naufraghi tedeschi…**: [Link](https://www.ilfattoquotidiano.it/2024/08/27/barca-a-vela-sorpresa-dalla-mareggiata-si-incaglia-sugli-scogli-in-salento-salvati-due-naufraghi-tedeschi-video/7670934/)
+- **San Foca, barca rischia il naufragio: coppia salvata con elisoccorso**: [Link](https://www.trnews.it/2024/08/27/san-foca-barca-rischia-il-naufragio-coppia-salvata-con-elisoccorso/)
+- **Salento, la barca si incaglia alla deriva: due persone salvate 
+dall'elicottero Sar**: [Link](https://www.quotidianodipuglia.it/lecce/san_foca_barca_incagliata_uomini_salvati-8318575.html)
+
+
+### برشلونة (N/A, Tue, 27 Aug 2024 12:50:00 -0700)
+
+- **مباشر مباراة برشلونة ضد رايو فايكانو 0-1 في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/27/barcelona-v-rayo)
+- **استبعاد مفاجئ من قائمة برشلونة لموقعة رايو فاليكانو**: [Link](https://www.kooora.com/?n=1350781)
+- **بدلاء برشلونة أمام رايو فاليكانو**: [Link](https://hihi2.com/2024/08/27/p2818110.html)
+
+
+### barcelone (N/A, Tue, 27 Aug 2024 12:40:00 -0700)
+
+- **Walid Cheddira débarque à Barcelone**: [Link](https://www.footmercato.net/a9143210727982103961-walid-cheddira-debarque-a-barcelone)
+- **Liga : l’international marocain Walid Cheddira rejoint l’Espanyol**: [Link](https://mobile.telquel.ma/instant-t/2024/08/27/liga-linternational-marocain-walid-cheddira-rejoint-lespanyol_1890630/)
+- **Mercato : Walid Cheddira rejoint l'Espanyol Barcelone**: [Link](https://lematin.ma/sports/mercato-walid-cheddira-rejoint-lespanyol-barcelone/240544)
+
+
 ### champions league (N/A, Tue, 27 Aug 2024 12:40:00 -0700)
 
 - **Champions League mock draw: How Arsenal, Liverpool, Real Madrid could fare**: [Link](https://www.espn.com/soccer/story/_/id/40894613/champions-league-mock-draw-how-new-format-plays-out)
