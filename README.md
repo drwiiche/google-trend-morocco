@@ -1,3 +1,25 @@
+### crystal palace – norwich city (N/A, Tue, 27 Aug 2024 11:30:00 -0700)
+
+- **NCFC LIVE: City face Premier League test in Carabao Cup**: [Link](https://www.pinkun.com/sport/norwich-city/24544153.crystal-palace-v-norwich-city-follow-carabao-cup-updates/)
+- **Captaincy "an honour" – Guehi says ahead of cup tie.**: [Link](https://www.vavel.com/en/football/2024/08/27/crystal-palace/1194127-captaincy-an-honourguehi-says-ahead-of-cuptie.html)
+- **Tuesday's EFL Cup predictions including Crystal Palace vs. Norwich City**: [Link](https://www.sportsmole.co.uk/football/middlesbrough/efl-cup-predictions/feature/tuesdays-efl-cup-predictions-including-crystal-palace-vs-norwich-city_551255.html)
+
+
+### rayo – barcelone (N/A, Tue, 27 Aug 2024 11:30:00 -0700)
+
+- **PRONOS PARIS RMC Le pari du jour du 27 août – Liga – Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-27-aout-liga-espagne_AN-202408260393.html)
+- **Le groupe convoqué pour Rayo-Barça**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4097495/le-groupe-convoque-pour-rayo-barca)
+- **Pronostic Rayo Vallecano Barcelone : Analyse, cotes et prono du match de 
+Liga**: [Link](https://www.sofoot.com/breves/pronostic-rayo-vallecano-barcelone-analyse-cotes-et-prono-du-match-de-liga-4)
+
+
+### r.c.d. mallorca - sevilla (N/A, Tue, 27 Aug 2024 11:30:00 -0700)
+
+- **Mallorca - Sevilla en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/mallorca-sevilla/2024/08/27/01_0101_20240827_181_179-directo.html)
+- **Arrasate anuncia la lista de convocados sin los dos lesionados**: [Link](https://www.futbolfantasy.com/laliga/noticias/119089-arrasate-anuncia-la-lista-de-convocados-sin-los-dos-lesionados)
+- **La visita a Son Moix ya tiene arbitro designado**: [Link](https://www.elsevillista.net/2024/08/la-visita-son-moix-ya-tiene-arbitro.html)
+
+
 ### brighton – crawley town (N/A, Tue, 27 Aug 2024 11:10:00 -0700)
 
 - **Harrogate Town vs Preston North End LIVE updates**: [Link](https://www.lep.co.uk/sport/football/preston-north-end/harrogate-vs-preston-live-score-team-news-teams-starting-lineups-north-end-pne-carabao-cup-efl-4757518)
