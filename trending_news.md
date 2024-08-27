@@ -1,3 +1,18 @@
+### marc bernal (N/A, Tue, 27 Aug 2024 15:00:00 -0700)
+
+- **Marc Bernal o la normalidad de un fenómeno que no es normal**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240827/1002304639/marc-bernal-normalidad-fenomeno-normal.html)
+- **Flick quiere retenerlo: Operación blindaje para una joya del Barcelona**: [Link](https://www.pasionfutbol.com/noticias/Flick-quiere-retenerlo-Operacion-blindaje-para-una-joya-del-Barcelona-20240825-0031.html)
+- **280 goles en 286 partidos: Bernal y sus increíbles cifras en La Masia**: [Link](https://www.sport.es/es/noticias/barca/280-goles-286-partidos-bernal-106823486)
+
+
+### leicester city (N/A, Tue, 27 Aug 2024 14:10:00 -0700)
+
+- **Tranmere Cup Tie Coverage On Foxes Hub**: [Link](https://www.lcfc.com/news/4097260/tranmere-cup-tie-coverage-on-foxes-hub)
+- **Carabao Cup: Super Eagles star Ndidi scores first goal in Leicester City 
+colours sporting number 6**: [Link](https://www.allnigeriasoccer.com/read_news.php?nid=52708)
+- **Leicester score four past Tranmere to ease into Carabao Cup third round**: [Link](https://www.ireland-live.ie/news/football/1589895/leicester-score-four-past-tranmere-to-ease-into-carabao-cup-third-round.html)
+
+
 ### la liga (N/A, Tue, 27 Aug 2024 14:40:00 -0700)
 
 - **Mbappé and Álvarez bring superhero vibes but La Liga sidekicks pack a punch 
