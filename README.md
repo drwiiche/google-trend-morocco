@@ -1,3 +1,20 @@
+### la liga (N/A, Tue, 27 Aug 2024 14:40:00 -0700)
+
+- **Mbappé and Álvarez bring superhero vibes but La Liga sidekicks pack a punch 
+| Sid Lowe**: [Link](https://www.theguardian.com/football/article/2024/aug/26/mbappe-and-alvarez-bring-superhero-factor-but-sidekicks-pack-a-punch)
+- **Rodrygo has scored the first Real Madrid league goal in the last two seasons**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/rodrygo-primer-gol-madridista-en-las-dos-ultimas-ligas-18-08-2024)
+- **Ancelotti bemoans 'lack of balance' in Real Madrid's LaLiga opener**: [Link](https://www.sportsmax.tv/football/international/item/150878-ancelotti-bemoans-lack-of-balance-in-real-madrid-s-laliga-opener)
+
+
+### barca match (N/A, Tue, 27 Aug 2024 14:10:00 -0700)
+
+- **Rayo Vallecano 1-2 Barcelona - Dani Olmo emerges from bench to rescue win 
+for Barca on debut**: [Link](https://www.tntsports.co.uk/football/la-liga/2024-2025/rayo-vallecano-v-fc-barcelona-la-liga-live_sto10313849/story.shtml)
+- **(VIDEO) Dani Olmo Shines in Barcelona Debut with a Match-Winning Goal**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/-video-dani-olmo-shines-in-barcelona-debut-with-a-match-winning-goal-2024-08-27)
+- **Dani Olmo 9.0, Lamine Yamal 8.5 | Rayo Vallecano 1-2 Barcelona: Player 
+ratings**: [Link](https://barcauniversal.com/dani-olmo-9-0-lamine-yamal-8-5-rayo-vallecano-1-2-barcelona-player-ratings/)
+
+
 ### ترتيب الدوري الاسباني (N/A, Tue, 27 Aug 2024 14:30:00 -0700)
 
 - **بالفيديو.. دياز وإندريك يسرقان يوم مبابي وريال مدريد يفتقد كروس أكثر من 
