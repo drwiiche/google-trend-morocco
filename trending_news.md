@@ -1,3 +1,30 @@
+### jannik sinner (N/A, Tue, 27 Aug 2024 12:30:00 -0700)
+
+- **Panichi-Zimaglia, un ticket di numeri uno per la nuova squadra di Sinner**: [Link](https://www.gazzetta.it/Tennis/atp/slam/us-open/26-08-2024/tennis-panichi-e-zamaglia-nel-team-sinner.shtml)
+- **Evans critica aspramente l’ITIA: “Un’organizzazione improvvisata e 
+amatoriale”**: [Link](https://www.livetennis.it/post/420745/evans-critica-aspramente-litia-unorganizzazione-improvvisata-e-amatoriale/)
+- **Solidarietà social a Giacomo Naldi, il fisioterapista di Sinner licenziato: 
+post con cuore dal capitano della Virtus Bologna Belinelli e sostegno 
+dell'ad Baraldi**: [Link](https://corrieredibologna.corriere.it/notizie/sport/24_agosto_26/giacomo-naldi-solidarieta-social-al-fisioterapista-di-sinner-licenziato-post-con-cuore-dal-capitano-della-virtus-bologna-belinelli-0cf42cfa-1a61-476c-bf02-2289108edxlk.shtml)
+
+
+### rayo vallecano (N/A, Tue, 27 Aug 2024 12:20:00 -0700)
+
+- **The squad for Rayo v Barça**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4097495/the-squad-for-rayo-v-barca)
+- **Fermin, Casado start in a 4-2-3-1 – How Barcelona could line up against 
+Rayo Vallecano**: [Link](https://barcauniversal.com/fermin-casado-start-in-a-4-2-3-1-how-barcelona-could-line-up-against-rayo-vallecano/)
+- **Barcelona's list to face Rayo Vallecano**: [Link](https://www.ysscores.com/en/news/3225539/Barcelona's-list-to-face-Rayo-Vallecano)
+
+
+### james rodriguez (N/A, Tue, 27 Aug 2024 12:20:00 -0700)
+
+- **Martín Presa: "Prefiero a James antes que Messi"**: [Link](https://www.sport.es/es/noticias/rayo-vallecano/martin-presa-prefiero-james-messi-107405620)
+- **El Rayo Vallecano, un arte de hacer posible lo imposible: Cunningham, Hugo 
+Sánchez, Polster, Falcao... y ahora James Rodríguez**: [Link](https://www.marca.com/futbol/rayo/2024/08/27/66cd855a22601dae5c8b457a.html)
+- **Refuerzo que SOÑABA la afición del Club América confirma su NUEVO EQUIPO en 
+La Liga de España**: [Link](https://www.pasionaguila.com/news/2024/8/26/refuerzo-que-sonaba-la-aficion-del-club-america-confirma-su-nuevo-equipo-en-la-liga-de-espana-36361.html)
+
+
 ### النصر (N/A, Tue, 27 Aug 2024 12:20:00 -0700)
 
 - **هدف واحد يفصل رونالدو عن عرش ميسي**: [Link](https://m.kooora.com/?n=1350905&o=n)
