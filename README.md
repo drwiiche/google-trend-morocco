@@ -1,3 +1,10 @@
+### مايوركا ضد إشبيلية (N/A, Tue, 27 Aug 2024 09:40:00 -0700)
+
+- **تشكيلة ريال مايوركا لمواجهة إشبيلية**: [Link](https://hihi2.com/2024/08/27/p2817754.html)
+- **نتائج آخر 4 مباريات بين إشبيلية ومايوركا**: [Link](https://hihi2.com/2024/08/27/p2816746.html)
+- **القنوات الناقلة لمباراة إشبيلية ومايوركا اليوم مع التشكيلة والموعد**: [Link](https://almashhad.com/article/218257510540304-sports/905561350650181-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%88%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D8%B9-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF/)
+
+
 ### regragui (N/A, Tue, 27 Aug 2024 09:30:00 -0700)
 
 - **Lions de l’Atlas: Adam Aznou dans la liste de Walid Regragui?**: [Link](https://sport.le360.ma/marocains-du-monde/lions-de-latlas-adam-aznou-dans-la-liste-de-walid-regragui-114007)
