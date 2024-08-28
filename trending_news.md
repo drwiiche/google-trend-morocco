@@ -1,3 +1,12 @@
+### james rodríguez (N/A, Wed, 28 Aug 2024 08:40:00 -0700)
+
+- **PREVIEW | Rayo Vallecano v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4097426/preview-rayo-vallecano-v-fc-barcelona)
+- **James Rodriguez: Ex-Real Madrid and Everton playmaker joins Rayo Vallecano**: [Link](https://www.bbc.com/sport/football/articles/c6283ldk17do)
+- **'Like Napoli signing Diego Maradona' - James Rodriguez to be treated as a 
+'Formula 1 driver' by Rayo Vallecano after ex-Real Madrid star's surprise 
+La Liga return**: [Link](https://www.goal.com/en-us/lists/napoli-signing-diego-maradona-james-rodriguez-formula-1-driver-rayo-vallecano-ex-real-madrid-return-la-liga/blt57fadf8549253357)
+
+
 ### rmc mehdi ghezzar maroc (N/A, Wed, 28 Aug 2024 07:50:00 -0700)
 
 - **“État voyou” : les violentes injures du chroniqueur algérien Mehdi Ghezzar 
