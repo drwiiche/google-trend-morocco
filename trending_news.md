@@ -1,3 +1,10 @@
+### losc (N/A, Wed, 28 Aug 2024 14:50:00 -0700)
+
+- **Slavia Prague 2-1 Lille, Ligue des champions : résumé du match (28/08/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/slavia-prague-lille-live/663442)
+- **Ligue des Champions : un LOSC laborieux se qualifie dans la douleur à Prague**: [Link](https://www.footmercato.net/a2066690099347436988-ligue-des-champions-un-losc-laborieux-se-qualifie-dans-la-douleur-a-prague)
+- **LdC : Dans la douleur, Lille valide sa place en poules**: [Link](https://www.foot01.com/coupe-d-europe/ligue-des-champions/ldc-dans-la-douleur-lille-valide-sa-place-en-poules-442091)
+
+
 ### atletico (N/A, Wed, 28 Aug 2024 14:30:00 -0700)
 
 - **Atletico Madrid exploring Matheus Nunes loan deal, Manchester City yet to 
