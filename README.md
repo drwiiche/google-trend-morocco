@@ -1,3 +1,12 @@
+### juegos paralímpicos 2024 (N/A, Tue, 27 Aug 2024 17:20:00 -0700)
+
+- **Juegos Paralímpicos de París 2024: datos, cifras y curiosidades**: [Link](https://olympics.com/es/noticias/juegos-paralimpicos-de-paris-2024-datos-cifras-y-curiosidades)
+- **Una Ceremonia Espectacular Para "Poner En Valor Los Cuerpos" En Los Campos 
+Elíseos**: [Link](https://www.barrons.com/news/una-ceremonia-espectacular-para-poner-en-valor-los-cuerpos-en-los-campos-eliseos-17dce76a)
+- **París 2024: Para atletas comparten su entusiasmo con los Juegos a punto de 
+comenzar**: [Link](https://www.paralympic.org/es/news/paris-2024-para-atletas-comparten-su-entusiasmo-con-los-juegos-punto-de-comenzar)
+
+
 ### الألعاب البارالمبية (N/A, Tue, 27 Aug 2024 16:20:00 -0700)
 
 - **بارالمبياد باريس 2024: الرياضيون المغاربة يتمتعون بمعنويات عالية**: [Link](https://www.menara.ma/article/%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D8%AF-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-2024-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8)
