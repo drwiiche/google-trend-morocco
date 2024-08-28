@@ -1,3 +1,12 @@
+### rmc mehdi ghezzar maroc (N/A, Wed, 28 Aug 2024 07:50:00 -0700)
+
+- **“État voyou” : les violentes injures du chroniqueur algérien Mehdi Ghezzar 
+envers le Maroc déchaînent la Toile**: [Link](https://mobile.telquel.ma/instant-t/2024/08/27/etat-voyou-les-violentes-injures-du-chroniqueur-algerien-mehdi-ghezzar-envers-le-maroc-dechainent-la-toile_1890632/)
+- **Après un déchainement de haine anti-Maroc, RMC appelée à se séparer du 
+chroniqueur Mehdi Ghezzar**: [Link](https://www.lopinion.ma/Apres-un-dechainement-de-haine-anti-Maroc-RMC-appelee-a-se-separer-du-chroniqueur-Mehdi-Ghezzar_a57360.html)
+- **Ghezzar : le venin médiatique d’un chroniqueur aux ordres d’Alger**: [Link](https://fr.hespress.com/383636-ghezzar-le-venin-mediatique-dun-chroniqueur-aux-ordres-dalger.html)
+
+
 ### mehdi ghezzar rmc (N/A, Wed, 28 Aug 2024 04:10:00 -0700)
 
 - **“État voyou” : les violentes injures du chroniqueur algérien Mehdi Ghezzar 
