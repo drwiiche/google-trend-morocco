@@ -1,3 +1,20 @@
+### أتلتيك بيلباو ضد فالنسيا (N/A, Wed, 28 Aug 2024 09:40:00 -0700)
+
+- **فالفيردي: لست متوترا**: [Link](https://www.kooora.com/?n=1350891)
+- **توقيت مباراة أتلتيك بيلباو و فالنسيا حول العالم**: [Link](https://hihi2.com/2024/08/28/p2819546.html)
+- **نيكو ويليامز يخضع للفحص الطبي بعد إنزعاجات بالعضلات أمام برشلونة**: [Link](https://www.365scores.com/ar/news/magazine/%D9%86%D9%8A%D9%83%D9%88-%D9%88%D9%8A%D9%84%D9%8A%D8%A7%D9%85%D8%B2-%D9%8A%D8%AE%D8%B6%D8%B9-%D9%84%D9%84%D9%81%D8%AD%D8%B5-%D8%A7%D9%84%D8%B7%D8%A8%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A5%D9%86%D8%B2%D8%B9/)
+
+
+### dominic thiem (N/A, Wed, 28 Aug 2024 08:40:00 -0700)
+
+- **Dominic Thiem finally gets celebratory sendoff at US Open in final Grand 
+Slam appearance**: [Link](https://www.usatoday.com/story/sports/columnist/dan-wolken/2024/08/26/dominic-thiem-us-open-retirement/74957544007/)
+- **US Open 2024: How to watch the Naomi Osaka vs. Jelena Ostapenko tennis 
+match today**: [Link](https://sports.yahoo.com/us-open-2024-how-to-watch-the-naomi-osaka-vs-jelena-ostapenko-tennis-match-today-161604917.html)
+- **How to watch the US Open tennis tournament today: Livestream options, full 
+schedule, more**: [Link](https://www.cbsnews.com/essentials/how-to-watch-the-us-open-tennis-tournament-today-livestream-options-more/)
+
+
 ### valladolid – leganés (N/A, Wed, 28 Aug 2024 09:10:00 -0700)
 
 - **Valladolid - Leganés | Recién ascendidos sólo sobre el papel: previa, 
