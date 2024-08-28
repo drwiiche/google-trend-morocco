@@ -1,3 +1,12 @@
+### jeux paralympique date (N/A, Tue, 27 Aug 2024 19:00:00 -0700)
+
+- **Cérémonie d’ouverture des Jeux paralympiques : à quelle heure, sur quelle 
+chaîne suivre la soirée du 28 août**: [Link](https://www.leparisien.fr/jo-paralympiques-paris-2024/ceremonie-douverture-des-jeux-paralympiques-a-quelle-heure-sur-quelle-chaine-suivre-la-soiree-du-28-aout-28-08-2024-GEMIGN6LZVCGRJP4ZL2PRF4IDQ.php)
+- **La rentrée scolaire de 2024 sera reportée pour plusieurs élèves français**: [Link](https://www.linternaute.com/actualite/magazine/5998975-article/)
+- **Jeux paralympiques 2024 : la carte des restrictions de circulation à Paris 
+pendant la cérémonie d’ouverture et les épreuves**: [Link](https://www.lemonde.fr/les-decodeurs/article/2024/08/27/jeux-paralympiques-2024-la-carte-des-restrictions-de-circulation-a-paris-pendant-la-ceremonie-d-ouverture-et-les-epreuves_6236285_4355771.html)
+
+
 ### paralympische spelen (N/A, Tue, 27 Aug 2024 18:50:00 -0700)
 
 - **Manon Claeys en Joachim Gérard zijn de Belgische vlaggendragers tijdens 
