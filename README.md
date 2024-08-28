@@ -1,3 +1,31 @@
+### atletico madrid (N/A, Wed, 28 Aug 2024 13:00:00 -0700)
+
+- **Atletico Madrid exploring Matheus Nunes loan deal, Manchester City yet to 
+receive offer for midfielder - The Athletic**: [Link](https://www.nytimes.com/athletic/5724493/2024/08/26/matheus-nunes-atletico-madrid-manchester-city/)
+- **Liverpool, Newcastle and Atletico among SIX in scramble to sign £53m Man 
+City star pushed out by Gundogan**: [Link](https://www.teamtalk.com/manchester-city/liverpool-newcastle-atletico-madrid-among-six-scramble-sign-53m-man-city-star-pushed-out-by-gundogan)
+- **Pep Guardiola happy to green light Liverpool transfer for frustrated Man 
+City star**: [Link](https://www.mirror.co.uk/sport/football/news/man-city-matheus-nunes-liverpool-33533960)
+
+
+### al hilal (N/A, Wed, 28 Aug 2024 13:00:00 -0700)
+
+- **Al Hilal confirm Cancelo signing from Man City**: [Link](https://www.espn.com/soccer/story/_/id/41015222/al-hilal-confirm-joao-cancelo-transfer-man-city)
+- **Joao Cancelo: Manchester City agree deal with Saudi Pro League club Al-Hilal**: [Link](https://www.bbc.com/sport/football/articles/cr5nz7q14dlo)
+- **Man City announce £21m sale of world class star; Fabrizio Romano confirms 
+second exit is ‘completed’**: [Link](https://www.teamtalk.com/manchester-city/man-city-announce-21m-sale-world-class-star-fabrizio-romano-confirms-second-exit-completed)
+
+
+### destitution macron assemblée nationale (N/A, Wed, 28 Aug 2024 11:20:00 -0700)
+
+- **En quoi la procédure de destitution d’Emmanuel Macron annoncée par LFI 
+consiste-t-elle ?**: [Link](https://www.lemonde.fr/les-decodeurs/article/2024/08/28/en-quoi-consiste-la-procedure-de-destitution-d-emmanuel-macron-annoncee-par-la-france-insoumise_6297607_4355770.html)
+- **«Tout autre gouvernement que celui du NFP conduit par Lucie Castets recevra 
+une motion de censure de notre part», prévient Bompard**: [Link](https://www.lefigaro.fr/politique/tout-autre-gouvernement-que-celui-du-nfp-conduit-par-lucie-castets-recevra-une-motion-de-censure-de-notre-part-previent-bompard-20240828)
+- **Futur Premier ministre : Jean-Luc Mélenchon demande au camp présidentiel et 
+à la droite s'ils censureraient un gouvernement Castets sans LFI**: [Link](https://www.francetvinfo.fr/politique/parlement-francais/assemblee-nationale/futur-premier-ministre-jean-luc-melenchon-demande-au-camp-presidentiel-et-a-la-droite-s-ils-censureraient-un-gouvernement-castets-sans-lfi_6741658.html)
+
+
 ### atlético madrid vs espanyol (N/A, Wed, 28 Aug 2024 12:40:00 -0700)
 
 - **Atletico Madrid vs Espanyol Predictions: Match predictions and analysis**: [Link](https://www.goal.com/en-in/betting/atletico-madrid-vs-espanyol-predictions-29-08-2024/bltcf682b1fbfa8404a)
