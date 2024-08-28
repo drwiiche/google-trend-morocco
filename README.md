@@ -1,3 +1,8 @@
+### al-hilal – damac (N/A, Wed, 28 Aug 2024 10:10:00 -0700)
+
+- **Preview: Al-Hilal vs. Damac - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/preview-al-hilal-vs-damac-prediction-team-news-lineups_551313.html)
+
+
 ### أتلتيك بيلباو ضد فالنسيا (N/A, Wed, 28 Aug 2024 09:40:00 -0700)
 
 - **فالفيردي: لست متوترا**: [Link](https://www.kooora.com/?n=1350891)
