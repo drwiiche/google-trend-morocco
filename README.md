@@ -1,3 +1,13 @@
+### aymeric caron (N/A, Wed, 28 Aug 2024 14:20:00 -0700)
+
+- **Aymeric Caron (LFI) et un représentant musulman portent plainte contre le 
+grand rabbin de France**: [Link](https://www.la-croix.com/religion/aymeric-caron-lfi-et-un-representant-musulman-portent-plainte-contre-le-grand-rabbin-de-france-20240828)
+- **Aymeric Caron porte plainte contre Haïm Korsia pour avoir affirmé que "les 
+morts civiles à Gaza sont un fait de guerre qui incombe au Hamas"**: [Link](https://www.i24news.tv/fr/actu/israel-en-guerre/artc-les-civils-morts-a-gaza-sont-un-fait-de-guerre-qui-incombe-au-hamas-aymeric-caron-porte-plainte-contre-haim-korsia)
+- **Aymeric Caron saisit la justice pour "apologie de crimes de guerre" après 
+des propos du grand rabbin de France**: [Link](https://actu.orange.fr/france/aymeric-caron-saisit-la-justice-pour-apologie-de-crimes-de-guerre-apres-des-propos-du-grand-rabbin-de-france-magic-CNT000002eQt8Y.html)
+
+
 ### موعد قرعة دوري ابطال اوروبا 2025 (N/A, Wed, 28 Aug 2024 14:30:00 -0700)
 
 - **قرعة الأبطال.. فرصة ثمينة لإنتر وطموح جديد ليوفنتوس وصدمات نارية لميلان**: [Link](https://www.kooora.com/?n=1351131)
