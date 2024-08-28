@@ -1,3 +1,13 @@
+### paralympische spelen (N/A, Tue, 27 Aug 2024 18:50:00 -0700)
+
+- **Manon Claeys en Joachim Gérard zijn de Belgische vlaggendragers tijdens 
+openingsceremonie**: [Link](https://sporza.be/nl/2024/08/26/manon-claeys-en-joachim-gerard-zijn-de-belgische-vlaggendragers-tijdens-openingsceremonie~1724684923478/)
+- **Rolstoeltennisser Joachim Gérard is vlaggendrager bij paralympische 
+openingsceremonie**: [Link](https://www.bruzz.be/actua/sport/rolstoeltennisser-joachim-gerard-vlaggendrager-bij-paralympische-openingsceremonie-2024)
+- **Basketbalster De Rooij vlaggendrager bij Paralympische Spelen: 'Verbaasd en 
+vereerd'**: [Link](https://www.rtvutrecht.nl/sport/3777290/basketbalster-de-rooij-vlaggendrager-bij-paralympische-spelen-verbaasd-en-vereerd)
+
+
 ### حميد المهداوي (N/A, Tue, 27 Aug 2024 15:00:00 -0700)
 
 - **بتهم السب العلني والقذف.. وهبي يجر حميد المهداوي للقضاء**: [Link](https://ar.hibapress.com/details-545183.html)
