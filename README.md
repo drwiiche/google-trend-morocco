@@ -1,3 +1,12 @@
+### bagage cabine (N/A, Wed, 28 Aug 2024 11:00:00 -0700)
+
+- **Bagages cabines : ce qui change au 1er septembre 2024 dans les aéroports 
+européens**: [Link](https://www.sudouest.fr/economie/transports/bagages-cabines-ce-qui-change-au-1er-septembre-2024-dans-les-aeroports-europeens-21141530.php)
+- **Voyager en Europe : les nouvelles règles qui concernent aussi les Marocains**: [Link](https://www.bladi.net/aeroports-europeens-nouvelles-regles-imposent-voyageurs-compris,110105.html)
+- **La limite de 100 ml pour les liquides rétablie dans tous les aéroports de 
+l'UE à partir de septembre**: [Link](https://fr.euronews.com/my-europe/2024/08/23/la-limite-de-100-ml-pour-les-liquides-retablie-dans-tous-les-aeroports-de-lue-a-partir-de-)
+
+
 ### wolves – burnley (N/A, Wed, 28 Aug 2024 11:20:00 -0700)
 
 - **Matchday Blog | Wolves vs Burnley | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20240828-matchday-blog-wolves-vs-burnley/)
