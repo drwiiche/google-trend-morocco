@@ -1,3 +1,11 @@
+### real sociedad – deportivo alavés (N/A, Wed, 28 Aug 2024 12:20:00 -0700)
+
+- **Hambre de derbi, hambre de Reale Arena**: [Link](https://www.realsociedad.eus/es/noticias/detalle/hambre-de-derbi-hambre-de-reale-arena)
+- **Mouriño y Toni Martínez fichan y entran directamente en la convocatoria 
+para medirse a la Real Sociedad en el derbi**: [Link](https://www.elcorreo.com/alaves/mourino-toni-martinez-fichan-entran-directamente-convocatoria-20240827201448-nt.html)
+- **Árbitro Real Sociedad-Alavés: Gatillo fácil de rojas contra vitorianos**: [Link](https://nortexpres.com/arbitro-real-sociedad-alaves-gatillo-facil-con-rojas-contra-vitorianos/)
+
+
 ### nottm forest – newcastle (N/A, Wed, 28 Aug 2024 12:10:00 -0700)
 
 - **NUFC confirmed XI v Forest: Tonali & Gordon decisions made - six changes**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/newcastle-united-confirmed-xi-v-nottingham-forest-sandro-tonali-anthony-gordon-decision-made-six-changes-4760197)
