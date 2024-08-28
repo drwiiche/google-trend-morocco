@@ -1,3 +1,29 @@
+### west ham – bournemouth (N/A, Wed, 28 Aug 2024 11:00:00 -0700)
+
+- **Starting XI | Todibo and Füllkrug make Carabao Cup debuts, Fabiański hits 
+landmark against AFC Bournemouth**: [Link](https://www.whufc.com/news/starting-xi-todibo-and-fullkrug-make-carabao-cup-debuts-fabianski-hits-landmark-against-afc)
+- **Irons Faces Controversial Referee for EFL Cup Match**: [Link](https://www.claretandhugh.info/irons-faces-controversial-referee-for-efl-cup-match/)
+- **Teenager drops hint on X that he will make his first competitive West Ham 
+start vs Bournemouth**: [Link](https://www.hammers.news/match-report/teenager-drops-hint-on-x-that-he-will-make-his-first-competitive-west-ham-start-vs-bournemouth/)
+
+
+### athletic - valencia c. f. (N/A, Wed, 28 Aug 2024 10:50:00 -0700)
+
+- **Alineaciones del Valencia vs Athletic Club de la Jornada 3 de LaLiga**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/14096578/valencia-vs-athletic-club-alineaciones-jornada-3-laliga)
+- **Agirrezabala en la portería y Nico, al banquillo; Mir-Hugo Duro, delantera 
+del Valencia**: [Link](https://www.infobae.com/espana/agencias/2024/08/28/agirrezabala-en-la-porteria-y-nico-al-banquillo-mir-hugo-duro-delantera-del-valencia/)
+- **Valverde, sobre Nico Williams, Yuri, Djaló, Agirrezabala, Padilla, el 
+Leganés y el mercado**: [Link](https://www.futbolfantasy.com/laliga/noticias/119128-valverde-sobre-nico-williams-yuri-djalo-agirrezabala-padilla-el-valencia-y-el-mercado)
+
+
+### sundowns – stellenbosch football club (N/A, Wed, 28 Aug 2024 10:30:00 -0700)
+
+- **Big Match Feature: Sundowns v Stellenbosch**: [Link](https://supersport.com/football/mtn8/news/5a6d6dea-18fc-4641-9295-0e5878b91779/big-match-feature-sundowns-v-stellenbosch)
+- **Manqoba Provides MTN8 Injury Update**: [Link](https://www.idiskitimes.co.za/mtn8/manqoba-provides-mtn8-injury-update/)
+- **Stellenbosch’s Steve Barker feels this is the best time to face Mamelodi 
+Sundowns**: [Link](https://www.sowetanlive.co.za/sport/soccer/2024-08-28-stellenboschs-steve-barker-feels-this-is-the-best-time-to-face-mamelodi-sundowns/)
+
+
 ### الهلال ضد ضمك (N/A, Wed, 28 Aug 2024 10:30:00 -0700)
 
 - **موعد مباراة الهلال وضمك في دوري روشن السعودي 2024-2025 والقنوات الناقلة**: [Link](https://m.kooora.com/?n=1350881&o=n)
