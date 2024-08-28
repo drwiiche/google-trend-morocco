@@ -1,3 +1,10 @@
+### الهلال ضد ضمك (N/A, Wed, 28 Aug 2024 10:30:00 -0700)
+
+- **موعد مباراة الهلال وضمك في دوري روشن السعودي 2024-2025 والقنوات الناقلة**: [Link](https://m.kooora.com/?n=1350881&o=n)
+- **أخطر 3 لاعبين في تشكيلة الهلال أمام ضمك**: [Link](https://hihi2.com/2024/08/28/p2819407.html)
+- **موعد مباراة الهلال وضمك في الدوري السعودي للمحترفين والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/8/28/saudi-pro-league-al-hilal)
+
+
 ### al-hilal – damac (N/A, Wed, 28 Aug 2024 10:10:00 -0700)
 
 - **Preview: Al-Hilal vs. Damac - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/preview-al-hilal-vs-damac-prediction-team-news-lineups_551313.html)
