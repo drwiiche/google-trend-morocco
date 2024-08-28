@@ -1,3 +1,18 @@
+### atlético madrid vs espanyol (N/A, Wed, 28 Aug 2024 12:40:00 -0700)
+
+- **Atletico Madrid vs Espanyol Predictions: Match predictions and analysis**: [Link](https://www.goal.com/en-in/betting/atletico-madrid-vs-espanyol-predictions-29-08-2024/bltcf682b1fbfa8404a)
+- **Wednesday's La Liga predictions including Atletico Madrid vs. Espanyol**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/la-liga-predictions/feature/wednesdays-la-liga-predictions-including-atletico-vs-espanyol_551331.html)
+- **Atletico Madrid vs Espanyol Live Stream & Tips - Atletico to Win to Nil in 
+La Liga**: [Link](https://www.freetips.com/football/spanish-la-liga/atletico-madrid-vs-espanyol-live-stream-20240828-0015/)
+
+
+### cheddira (N/A, Wed, 28 Aug 2024 12:40:00 -0700)
+
+- **Walid Cheddira Joins RCD Espanyol Barcelona on Loan from SSC Napoli**: [Link](https://www.moroccoworldnews.com/2024/08/364793/walid-cheddira-joins-rcd-espanyol-barcelona-on-loan-from-ssc-napoli)
+- **Espanyol signs Moroccan international Walid Cheddira on loan**: [Link](https://en.yabiladi.com/articles/details/153417/espanyol-signs-moroccan-international-walid.html)
+- **DONE DEAL: Espanyol sign Napoli attacker Cheddira**: [Link](https://www.tribalfootball.com/article/soccer-laliga-done-deal-espanyol-sign-napoli-attacker-cheddira-e6752f3c-5e41-4e08-a794-0adac8e24aff)
+
+
 ### real sociedad – deportivo alavés (N/A, Wed, 28 Aug 2024 12:20:00 -0700)
 
 - **Hambre de derbi, hambre de Reale Arena**: [Link](https://www.realsociedad.eus/es/noticias/detalle/hambre-de-derbi-hambre-de-reale-arena)
