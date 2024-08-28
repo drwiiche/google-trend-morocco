@@ -1,3 +1,20 @@
+### nottm forest – newcastle (N/A, Wed, 28 Aug 2024 12:10:00 -0700)
+
+- **NUFC confirmed XI v Forest: Tonali & Gordon decisions made - six changes**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/newcastle-united-confirmed-xi-v-nottingham-forest-sandro-tonali-anthony-gordon-decision-made-six-changes-4760197)
+- **Newcastle team news, predicted XI vs Nottingham Forest**: [Link](https://nothingbutnewcastle.com/2024/08/latest-news/newcastle-united-carabao-cup-team-news-predicted-xi-howe-tonali-nufc-nffc/)
+- **Nottingham Forest boss Nuno names team to face Newcastle United in Carabao 
+Cup clash**: [Link](https://www.nottinghampost.com/sport/football/football-news/nottingham-forest-team-news-newcastle-9515120)
+
+
+### federico chiesa (N/A, Wed, 28 Aug 2024 12:10:00 -0700)
+
+- **Chiesa-Liverpool, ci siamo! Fede in volo per l'Inghilterra: "Sono pronto 
+per questa nuova avventura"**: [Link](https://www.gazzetta.it/Calcio/Calciomercato/Juventus/28-08-2024/chiesa-al-liverpool-ci-siamo-la-juve-e-la-trattativa.shtml)
+- **Juve, è fatta per la cessione di Chiesa al Liverpool: "Grazie ai tifosi 
+bianconeri"**: [Link](https://www.sportmediaset.mediaset.it/mercato/juventus/juve-e-fatta-per-la-cessione-di-chiesa-al-liverpool-grazie-ai-tifosi-bianconeri-_86522264-202402k.shtml)
+- **Juventus, Chiesa aspetta il Barcellona: su di lui anche il Liverpool**: [Link](https://sport.sky.it/calciomercato/2024/08/27/chiesa-liverpool-juventus-calciomercato-news)
+
+
 ### atlético madrid – espanyol (N/A, Wed, 28 Aug 2024 11:40:00 -0700)
 
 - **Atlético 1-Espanyol 17**: [Link](https://as.com/futbol/primera/atletico-1-espanyol-17-n/)
