@@ -1,3 +1,10 @@
+### el khannouss (N/A, Wed, 28 Aug 2024 06:20:00 -0700)
+
+- **Leicester on verge of breakthrough in £19.5m bid to sign Morocco’s Bilal El Khannouss**: [Link](https://www.telegraph.co.uk/football/2024/08/27/leicester-breakthrough-genk-midfielder-bilal-el-khannouss/)
+- **Leicester hopeful of completing Bilal El Khannouss signing**: [Link](https://www.nytimes.com/athletic/5728300/2024/08/28/bilal-el-khannouss-leicester-transfer/)
+- **Steve Cooper holds transfer meeting as Leicester City close in on Bilal El Khannouss**: [Link](https://www.leicestermercury.co.uk/sport/football/transfer-news/steve-cooper-holds-transfer-meeting-9513601)
+
+
 ### concert oasis 2025 (N/A, Wed, 28 Aug 2024 03:40:00 -0700)
 
 - **Oasis tickets and pre-sale ballot - everything you need to know about reunion**: [Link](https://www.bbc.com/news/articles/ckg1ljn80geo)
