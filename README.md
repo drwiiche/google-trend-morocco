@@ -1,3 +1,10 @@
+### concert oasis 2025 (N/A, Wed, 28 Aug 2024 03:40:00 -0700)
+
+- **Oasis tickets and pre-sale ballot - everything you need to know about reunion**: [Link](https://www.bbc.com/news/articles/ckg1ljn80geo)
+- **Oasis: Timeline of a Sibling Rivalry for the Ages**: [Link](https://www.nytimes.com/2024/08/27/arts/music/oasis-reunion-gallagher-breakup-feud.html)
+- **Oasis reunites for tour, ending a 15-year hiatus driven by Gallagher brothers’ feud**: [Link](https://apnews.com/article/oasis-reunion-liam-noel-gallagher-a3e462ea153fec65c5220b43415055b3)
+
+
 ### destitution macron (N/A, Wed, 28 Aug 2024 05:20:00 -0700)
 
 - **En quoi la procédure de destitution d’Emmanuel Macron annoncée par LFI 
