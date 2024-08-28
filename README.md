@@ -1,3 +1,11 @@
+### west ham (N/A, Wed, 28 Aug 2024 12:20:00 -0700)
+
+- **"Many clubs interested" | Nayef Aguerd to leave West Ham this week**: [Link](https://www.thewesthamway.com/2024/08/28/many-clubs-interested-nayef-aguerd-to-leave-west-ham-this-week/)
+- **Two clubs make West Ham defender their priority – Chance of move could 
+accelerate**: [Link](https://sportwitness.co.uk/two-clubs-make-west-ham-defender-their-priority-chance-of-move-could-accelerate/)
+- **West Ham’s Nayef Aguerd rejects Wolfsburg**: [Link](https://www.getfootballnewsfrance.com/2024/west-hams-nayef-aguerd-rejects-wolfsburg/)
+
+
 ### الطقس غدًا (N/A, Wed, 28 Aug 2024 13:00:00 -0700)
 
 - **أمطار تصل لرعدية ورياح وحرارة.. حالة الطقس غدا الخميس**: [Link](https://www.masrawy.com/news/news_egypt/details/2024/8/28/2634482/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B5%D9%84-%D9%84%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%88%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3)
