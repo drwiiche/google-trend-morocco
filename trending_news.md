@@ -1,3 +1,19 @@
+### wolves – burnley (N/A, Wed, 28 Aug 2024 11:20:00 -0700)
+
+- **Matchday Blog | Wolves vs Burnley | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20240828-matchday-blog-wolves-vs-burnley/)
+- **Burnley hand out three debuts for Wolves cup clash as 13 miss out on eve of 
+transfer deadline**: [Link](https://www.burnleyexpress.net/sport/football/burnley-hand-out-three-debuts-for-wolves-cup-clash-as-13-miss-out-on-eve-of-transfer-deadline-4760192)
+- **Five Wolves stars who have a point to prove to Gary O’Neil vs Burnley in 
+Carabao Cup**: [Link](https://www.molineux.news/match/five-wolves-stars-who-have-a-point-to-prove-to-gary-oneil-vs-burnley-in-carabao-cup/)
+
+
+### athletic club vs valencia (N/A, Wed, 28 Aug 2024 11:10:00 -0700)
+
+- **Athletic - Valencia live**: [Link](https://www.marca.com/en/soccer/laliga/athletic-valencia/2024/08/28/01_0101_20240828_174_191-live.html)
+- **ATH vs VAL Dream11 Prediction: Ultimate Guide to Building Your Winning Fantasy Team**: [Link](https://qrius.com/ath-vs-val-dream11-prediction-ultimate-guide-to-building-your-winning-fantasy-team/)
+- **Athletic Bilbao vs Valencia Prediction, 8/28/2024 La Liga Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/athletic-bilbao-vs-valencia-prediction-8-28-2024-la-liga-soccer-pick-tips-and-odds.html)
+
+
 ### west ham – bournemouth (N/A, Wed, 28 Aug 2024 11:00:00 -0700)
 
 - **Starting XI | Todibo and Füllkrug make Carabao Cup debuts, Fabiański hits 
