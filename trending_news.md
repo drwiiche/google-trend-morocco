@@ -1,3 +1,11 @@
+### valladolid – leganés (N/A, Wed, 28 Aug 2024 09:10:00 -0700)
+
+- **Valladolid - Leganés | Recién ascendidos sólo sobre el papel: previa, 
+análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2024/08/28/66ce2939268e3eec358b45b3.html)
+- **El Pucela busca blindarse en casa ante un Leganés invicto**: [Link](https://www.tribunavalladolid.com/noticias/377571/el-pucela-busca-blindarse-en-casa-ante-un-leganes-invicto)
+- **Auvasa habilita líneas especiales para el partido del Leganés**: [Link](https://www.eldiadevalladolid.com/noticia/zd28ab3fc-01f0-2d93-07b29d2803056b8e/202408/auvasa-habilita-lineas-especiales-para-el-partido-del-leganes)
+
+
 ### james rodríguez (N/A, Wed, 28 Aug 2024 08:40:00 -0700)
 
 - **PREVIEW | Rayo Vallecano v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4097426/preview-rayo-vallecano-v-fc-barcelona)
