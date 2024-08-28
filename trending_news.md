@@ -1,3 +1,11 @@
+### newcastle (N/A, Wed, 28 Aug 2024 13:40:00 -0700)
+
+- **FA rule prevents Newcastle United key man from playing against Nottingham 
+Forest - six out & one doubt**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/fa-rule-prevents-newcastle-united-key-man-from-playing-against-nottingham-forest-six-out-one-doubt-4759457)
+- **Newcastle team news, predicted XI vs Nottingham Forest**: [Link](https://nothingbutnewcastle.com/2024/08/latest-news/newcastle-united-carabao-cup-team-news-predicted-xi-howe-tonali-nufc-nffc/)
+- **6 changes and Tonali starts! – Confirmed Newcastle team vs Nottingham Forest**: [Link](https://www.nufcblog.co.uk/2024/08/28/6-changes-and-sandro-tonali-starts-confirmed-newcastle-team-vs-nottingham-forest/)
+
+
 ### west ham (N/A, Wed, 28 Aug 2024 12:20:00 -0700)
 
 - **"Many clubs interested" | Nayef Aguerd to leave West Ham this week**: [Link](https://www.thewesthamway.com/2024/08/28/many-clubs-interested-nayef-aguerd-to-leave-west-ham-this-week/)
