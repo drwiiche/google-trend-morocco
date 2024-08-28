@@ -1,3 +1,28 @@
+### atletico (N/A, Wed, 28 Aug 2024 14:30:00 -0700)
+
+- **Atletico Madrid exploring Matheus Nunes loan deal, Manchester City yet to 
+receive offer for midfielder - The Athletic**: [Link](https://www.nytimes.com/athletic/5724493/2024/08/26/matheus-nunes-atletico-madrid-manchester-city/)
+- **Liverpool, Newcastle and Atletico among SIX in scramble to sign £53m Man 
+City star pushed out by Gundogan**: [Link](https://www.teamtalk.com/manchester-city/liverpool-newcastle-atletico-madrid-among-six-scramble-sign-53m-man-city-star-pushed-out-by-gundogan)
+- **Matheus Nunes on his way out of Man City? Atletico Madrid weigh up late bid 
+for midfielder after signing Julian Alvarez from Premier League champions**: [Link](https://www.goal.com/en-us/lists/matheus-nunes-man-city-atletico-madrid-bid-signing-julian-alvarez-premier-league-champions/blt5c4a201ff6b3a698)
+
+
+### real sociedad (N/A, Wed, 28 Aug 2024 14:30:00 -0700)
+
+- **15 things you need to know about Mikel Merino | Feature | News**: [Link](https://www.arsenal.com/news/15-things-you-need-know-about-mikel-merino)
+- **Arsenal reach Mikel Merino agreement with Real Sociedad - The Athletic**: [Link](https://www.nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/)
+- **Transfer updates as they happened: Merino signs for Arsenal and Man Utd 
+close in on Ugarte plus your Oasis XI**: [Link](https://www.bbc.com/sport/football/live/c24p6r7znqyt)
+
+
+### achraf dari (N/A, Wed, 28 Aug 2024 13:40:00 -0700)
+
+- **Ahly land Morocco defender Dari for 4 years - Egyptian Football - Sports**: [Link](https://english.ahram.org.eg/NewsContent/6/51/530919/Sports/Egyptian-Football/Ahly-land-Morocco-defender-Dari-for--years-.aspx)
+- **Ashraf Dari's arrival time in Cairo**: [Link](https://www.ysscores.com/en/news/3160466/Ashraf-Dari's-arrival-time-in-Cairo)
+- **Morocco’s Achraf Dari on verge of Al Ahly move**: [Link](https://www.kingfut.com/2024/08/22/achraf-dari-al-ahly-verge/)
+
+
 ### reddit (N/A, Wed, 28 Aug 2024 13:20:00 -0700)
 
 - **Reddit Down: Community Site Experiencing Widespread Errors**: [Link](https://variety.com/2024/digital/news/reddit-down-widespread-outage-1236121632/)
