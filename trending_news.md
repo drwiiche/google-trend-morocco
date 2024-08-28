@@ -1,3 +1,10 @@
+### حالة الطقس (N/A, Tue, 27 Aug 2024 23:00:00 -0700)
+
+- **زخات رعدية قوية مرتقبة بمناطق مغربية**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-2-1422398.html)
+- **منخفض مداري في الطريق سينهي حالة الجفاف بالمغرب**: [Link](https://www.analkhabar.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D9%85%D8%AF%D8%A7%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%D8%B3%D9%8A%D9%86%D9%87%D9%8A-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%AC%D9%81%D8%A7/)
+- **الرشيدية تسجل أعلى مقاييس الأمطار خلال آخر 24 ساعة**: [Link](https://ar.hibapress.com/details-544417.html)
+
+
 ### jeux paralympique date (N/A, Tue, 27 Aug 2024 19:00:00 -0700)
 
 - **Cérémonie d’ouverture des Jeux paralympiques : à quelle heure, sur quelle 
