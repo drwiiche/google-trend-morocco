@@ -1,3 +1,10 @@
+### حميد المهداوي (N/A, Tue, 27 Aug 2024 15:00:00 -0700)
+
+- **بتهم السب العلني والقذف.. وهبي يجر حميد المهداوي للقضاء**: [Link](https://ar.hibapress.com/details-545183.html)
+- **وهبي يرفع دعوى قضائية ضد الصحفي حميد المهداوي**: [Link](https://madar21.com/272294.html)
+- **وهبي يعاكس إرادة التغيير ويجر المهدوي للقضاء**: [Link](https://badil.info/156889)
+
+
 ### juegos paralímpicos 2024 (N/A, Tue, 27 Aug 2024 17:20:00 -0700)
 
 - **Juegos Paralímpicos de París 2024: datos, cifras y curiosidades**: [Link](https://olympics.com/es/noticias/juegos-paralimpicos-de-paris-2024-datos-cifras-y-curiosidades)
