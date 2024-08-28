@@ -1,3 +1,10 @@
+### موعد قرعة دوري ابطال اوروبا 2025 (N/A, Wed, 28 Aug 2024 14:30:00 -0700)
+
+- **قرعة الأبطال.. فرصة ثمينة لإنتر وطموح جديد ليوفنتوس وصدمات نارية لميلان**: [Link](https://www.kooora.com/?n=1351131)
+- **موعد قرعة دوري أبطال أوروبا 2024-2025 والقنوات الناقلة والنظام الجديد**: [Link](https://www.aljazeera.net/sport/2024/8/27/%D9%85%D9%88%D8%B9%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-2024-2025)
+- **قبل القرعة.. تعرف على الخصوم المحتملين لـ برشلونة**: [Link](https://hihi2.com/2024/08/28/p2819617.html)
+
+
 ### losc (N/A, Wed, 28 Aug 2024 14:50:00 -0700)
 
 - **Slavia Prague 2-1 Lille, Ligue des champions : résumé du match (28/08/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/slavia-prague-lille-live/663442)
