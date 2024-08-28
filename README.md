@@ -1,3 +1,10 @@
+### atlético madrid – espanyol (N/A, Wed, 28 Aug 2024 11:40:00 -0700)
+
+- **Atlético 1-Espanyol 17**: [Link](https://as.com/futbol/primera/atletico-1-espanyol-17-n/)
+- **Simeone ensaya un once con Sorloth, Julián Álvarez y Gallagher**: [Link](https://www.marca.com/futbol/atletico/2024/08/27/66ce14ece2704eff088b457c.html)
+- **Simeone ensaya once sin Griezmann**: [Link](https://www.jornadaperfecta.com/blog/simeone-ensaya-once-sin-griezmann/)
+
+
 ### bagage cabine (N/A, Wed, 28 Aug 2024 11:00:00 -0700)
 
 - **Bagages cabines : ce qui change au 1er septembre 2024 dans les aéroports 
