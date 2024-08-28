@@ -1,3 +1,12 @@
+### destitution macron (N/A, Wed, 28 Aug 2024 05:20:00 -0700)
+
+- **En quoi la procédure de destitution d’Emmanuel Macron annoncée par LFI 
+consiste-t-elle ?**: [Link](https://www.lemonde.fr/les-decodeurs/article/2024/08/28/en-quoi-consiste-la-procedure-de-destitution-d-emmanuel-macron-annoncee-par-la-france-insoumise_6297607_4355770.html)
+- **Refus d'un gouvernement NFP : La France insoumise appelle à manifester le 7 
+septembre, pas le PS**: [Link](https://www.francetvinfo.fr/politique/refus-d-un-gouvernement-nfp-lfi-et-des-syndicats-etudiants-appellent-a-manifester-le-7-septembre_6746593.html)
+- **LFI veut destituer Macron, mais est-ce vraiment faisable ?**: [Link](https://www.20minutes.fr/politique/assemblee_nationale/4107184-20240827-futur-premier-ministre-lfi-veut-destituer-macron-si-simple-faire)
+
+
 ### moustique etats unis (N/A, Wed, 28 Aug 2024 04:50:00 -0700)
 
 - **Un virus mortel transmis par les moustiques met les États-Unis en alerte**: [Link](https://fr.le360.ma/monde/un-virus-mortel-transmis-par-les-moustiques-met-les-etats-unis-en-alerte_ZUOTDEOU2BHXZHYE3PHTI3FTUA/)
