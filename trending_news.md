@@ -1,3 +1,10 @@
+### reddit (N/A, Wed, 28 Aug 2024 13:20:00 -0700)
+
+- **Reddit Down: Community Site Experiencing Widespread Errors**: [Link](https://variety.com/2024/digital/news/reddit-down-widespread-outage-1236121632/)
+- **Reddit down for thousands of users, Downdetector shows**: [Link](https://finance.yahoo.com/news/reddit-down-thousands-users-downdetector-204002327.html)
+- **Reddit is back online after a brief outage**: [Link](https://www.theverge.com/2024/8/28/24230832/reddit-down-outage-server-error-try-again-later-message)
+
+
 ### newcastle (N/A, Wed, 28 Aug 2024 13:40:00 -0700)
 
 - **FA rule prevents Newcastle United key man from playing against Nottingham 
