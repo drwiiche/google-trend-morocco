@@ -1,3 +1,11 @@
+### moustique etats unis (N/A, Wed, 28 Aug 2024 04:50:00 -0700)
+
+- **Un virus mortel transmis par les moustiques met les États-Unis en alerte**: [Link](https://fr.le360.ma/monde/un-virus-mortel-transmis-par-les-moustiques-met-les-etats-unis-en-alerte_ZUOTDEOU2BHXZHYE3PHTI3FTUA/)
+- **Un virus mortel transmis par les moustiques met en alerte les Etats-Unis**: [Link](https://www.20minutes.fr/monde/etats-unis/4107170-20240827-etats-unis-alerte-massachusetts-apres-apparition-virus-mortel-transmis-moustiques)
+- **Panique et confinement dans le Massachusetts, où les moustiques 
+transmettent un nouveau virus mortel**: [Link](https://www.doctissimo.fr/sante/panique-et-confinement-dans-le-massachusetts-ou-les-moustiques-transmettent-un-nouveau-virus-mortel/a92738_ar.html)
+
+
 ### ماريا كاري (N/A, Wed, 28 Aug 2024 04:00:00 -0700)
 
 - **في نفس اليوم.. النجمة الأمريكية ماريا كاري تعلن وفاة والدتها وأختها**: [Link](https://ar.hibapress.com/details-545093.html)
