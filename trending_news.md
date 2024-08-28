@@ -1,3 +1,12 @@
+### juan izquierdo (N/A, Wed, 28 Aug 2024 02:20:00 -0700)
+
+- **Muere Juan Izquierdo, futbolista de Nacional que se desplomó jugando un 
+partido de la Libertadores**: [Link](https://www.marca.com/futbol/copa-libertadores/2024/08/28/66ce8cddca4741d13b8b45d8.html)
+- **Sebastián Bauzá: “A Izquierdo se le informó una arritmia hace diez años, no 
+significa que no pudiera jugar”**: [Link](https://ladiaria.com.uy/deporte/articulo/2024/8/sebastian-bauza-a-izquierdo-se-le-informo-una-arritmia-hace-diez-anos-no-significa-que-no-pudiera-jugar/)
+- **Muere Juan Izquierdo después de colapsar durante un partido**: [Link](https://www.mundodeportivo.com/futbol/america/20240828/1002305399/muere-juan-izquierdo-colapsar-partido.html)
+
+
 ### al3omk (N/A, Tue, 27 Aug 2024 23:30:00 -0700)
 
 - **زخات رعدية قوية مرتقبة بمناطق مغربية**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-2-1422398.html)
