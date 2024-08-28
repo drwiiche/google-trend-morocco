@@ -1,3 +1,26 @@
+### الطقس غدًا (N/A, Wed, 28 Aug 2024 13:00:00 -0700)
+
+- **أمطار تصل لرعدية ورياح وحرارة.. حالة الطقس غدا الخميس**: [Link](https://www.masrawy.com/news/news_egypt/details/2024/8/28/2634482/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B5%D9%84-%D9%84%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%88%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3)
+- **أحذروا الساعات المقبلة.. الأرصاد تكشف تفاصيل طقس اليوم وتحذر من هذه الظاهرة**: [Link](https://zahraa.mr/3123982/%D8%A3%D8%AD%D8%B0%D8%B1%D9%88%D8%A7-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D9%83%D8%B4%D9%81-%D8%AA/)
+- **الأرصاد الجوية تكشف موعد انتهاء الموجة السحابية (فيديو)**: [Link](https://blogksa.com/uncategorized/60219/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%B3%D8%AD%D8%A7%D8%A8%D9%8A%D8%A9-%D9%81%D9%8A%D8%AF%D9%8A%D9%88---%D8%AA%D8%AF%D9%88%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A.html)
+
+
+### الهلال (N/A, Wed, 28 Aug 2024 13:00:00 -0700)
+
+- **كومان على أعتاب الهلال السعودي**: [Link](https://m.kooora.com/?n=1351080&o=n)
+- **الهلال يحسم صفقة نجم بايرن ميونخ**: [Link](https://sport.lesiteinfo.com/monde/443487.html)
+- **هل وافق كومان على عرض الهلال؟**: [Link](https://hihi2.com/2024/08/28/p2819727.html)
+
+
+### championnat d'arabie saoudite (N/A, Wed, 28 Aug 2024 12:50:00 -0700)
+
+- **Saudi Pro League : Sadio Mané passeur décisif, Al Nassr signe son premier 
+succès face à Al Feiha (1-4)**: [Link](https://wiwsport.com/2024/08/27/saudi-pro-league-sadio-mane-passeur-decisif-al-nassr-signe-son-premier-succes-face-a-al-feiha-1-4/)
+- **Pronostic AL Faiha - Al Nassr, Saudi Pro League**: [Link](https://www.sportytrader.com/pronostics/al-faiha-al-nasr-211687/)
+- **Première division saoudienne (J2) : Al-Fayha vs Al-Nassr, sur quelles 
+chaînes TV suivre le match en direct**: [Link](https://africafootunited.com/premiere-division-saoudienne-j2-al-fayha-vs-al-nassr-sur-quelles-chaines-tv-suivre-le-match-en-direct/)
+
+
 ### atletico madrid (N/A, Wed, 28 Aug 2024 13:00:00 -0700)
 
 - **Atletico Madrid exploring Matheus Nunes loan deal, Manchester City yet to 
