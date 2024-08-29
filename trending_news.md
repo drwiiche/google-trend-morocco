@@ -1,3 +1,10 @@
+### oasis (N/A, Wed, 28 Aug 2024 19:00:00 -0700)
+
+- **Stop the celebrations – Oasis are the most damaging pop-cultural force in recent British history | Simon Price**: [Link](https://www.theguardian.com/commentisfree/article/2024/aug/28/stop-the-celebrations-oasis-are-the-most-damaging-pop-cultural-force-in-recent-british-history)
+- **You can’t seriously be excited about the Oasis comeback. What’s the story? Boring, surely**: [Link](https://www.smh.com.au/culture/music/you-can-t-seriously-be-excited-about-the-oasis-comeback-what-s-the-story-boring-surely-20240828-p5k66n.html)
+- **Oasis: Timeline of a Sibling Rivalry for the Ages**: [Link](https://www.nytimes.com/2024/08/27/arts/music/oasis-reunion-gallagher-breakup-feud.html)
+
+
 ### novak djokovic (N/A, Wed, 28 Aug 2024 18:50:00 -0700)
 
 - **US Open 2024: How to watch the Novak Djokovic vs. Laslo Djere tennis match 
