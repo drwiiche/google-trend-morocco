@@ -1,3 +1,12 @@
+### kingsley coman (N/A, Thu, 29 Aug 2024 00:00:00 -0700)
+
+- **Arsenal receive fresh Kingsley Coman transfer hope as statement released**: [Link](https://www.football.london/arsenal-fc/transfer-news/arsenal-receive-fresh-kingsley-coman-29825331)
+- **Tottenham transfers: Spurs join chase for explosive attacker despite Saudi 
+talks and Arsenal preference**: [Link](https://www.teamtalk.com/news/spurs-join-chase-for-explosive-attacker-despite-saudi-talks-and-arsenal-preference)
+- **Transfer Update: Bayern Munich’s Kingsley Coman could wait until after 
+August 31st to decide to leave**: [Link](https://www.bavarianfootballworks.com/2024/8/27/24229706/bayern-munich-al-hilal-saudi-arabia-liverpool-kingsley-coman-summer-transfer-window-kompany-slot-ucl)
+
+
 ### حالة الطقس اليوم (N/A, Wed, 28 Aug 2024 23:30:00 -0700)
 
 
