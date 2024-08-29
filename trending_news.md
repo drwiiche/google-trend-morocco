@@ -1,3 +1,10 @@
+### ريال بيتيس (N/A, Thu, 29 Aug 2024 14:00:00 -0700)
+
+- **ريال مدريد يحدد سعر سيبايوس**: [Link](https://www.kooora.com/?n=1351203)
+- **تحركات لريال مدريد في سوق الانتقالات بالساعات الأخيرة**: [Link](https://hihi2.com/2024/08/29/p2820849.html)
+- **نجم ريال مدريد يصر على الرحيل**: [Link](https://www.kooora.com/?n=1351159)
+
+
 ### moulay hafid elalamy (N/A, Thu, 29 Aug 2024 13:30:00 -0700)
 
 - **Moulay Hafid Elalamy, nommé président du conseil d’administration de 
