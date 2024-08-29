@@ -1,3 +1,12 @@
+### matchs de ligue des champions de l'uefa (N/A, Thu, 29 Aug 2024 12:00:00 -0700)
+
+- **27.08.24 | La Youth League à Le Blé**: [Link](https://www.sb29.bzh/27-08-24-la-youth-league-a-le-ble.php)
+- **Ligue des champions : le Stade Brestois remercie l'En Avant Guingamp pour 
+son accueil (Foot)**: [Link](https://www.lequipe.fr/Football/Actualites/Ligue-des-champions-le-stade-brestois-remercie-l-en-avant-guingamp-pour-son-accueil/1503766)
+- **Ligue des champions: où en sont les aménagements du Roudourou, qui 
+accueillera les matchs de Brest?**: [Link](https://fr.news.yahoo.com/sport/ligue-champions-o%C3%B9-am%C3%A9nagements-roudourou-131519742.html)
+
+
 ### الاتحاد ضد التعاون (N/A, Thu, 29 Aug 2024 12:00:00 -0700)
 
 - **بنزيما يقود الهجوم.. تغييران في تشكيل اتحاد جدة أمام التعاون**: [Link](https://m.kooora.com/?n=1351312&o=n)
