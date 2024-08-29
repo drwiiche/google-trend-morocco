@@ -1,3 +1,11 @@
+### zidane (N/A, Thu, 29 Aug 2024 00:40:00 -0700)
+
+- **Cristiano Ronaldo puts Zinedine Zidane forward as 'ideal' replacement for 
+Luis Castro at Al-Nassr as he eyes reunion with ex-Real Madrid boss**: [Link](https://www.goal.com/en-in/lists/cristiano-ronaldo-puts-zinedine-zidane-forward-replacement-for-luis-castro-al-nassr-reunion-ex-real-madrid-boss/blt8c0e7edb7be83ddc)
+- **REVEALED: Ronaldo wants Zidane to join him at Al Nassr**: [Link](https://www.tribalfootball.com/article/soccer-laliga-revealed-ronaldo-wants-zidane-to-join-him-at-al-nassr-8b99f0d4-ab7d-4789-85f3-f2017bd9b3f4)
+- **Cristiano Ronaldo Wants Al Nassr To Appoint 3-Time UCL Winning Coach: Report**: [Link](https://www.msn.com/en-in/news/world/cristiano-ronaldo-wants-al-nassr-to-appoint-3-time-ucl-winning-coach-report/ar-AA1pwpvF)
+
+
 ### موعد قرعة دوري ابطال اوروبا (N/A, Thu, 29 Aug 2024 01:30:00 -0700)
 
 - **دوري أبطال أوروبا الجديد.. صدامات نارية تثير شغف الجماهير من اليوم الأول**: [Link](https://www.kooora.com/?n=1351183)
