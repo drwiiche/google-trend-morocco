@@ -1,3 +1,12 @@
+### champions league (N/A, Thu, 29 Aug 2024 08:20:00 -0700)
+
+- **Champions League: League phase draw pots confirmed**: [Link](https://www.uefa.com/uefachampionsleague/news/0290-1bb8f464468e-3d7a47f2094d-1000--champions-league-league-phase-draw-pots-confirmed/)
+- **Champions League: Inter, Juventus, Milan, Atalanta and Bologna pots 
+confirmed**: [Link](https://football-italia.net/2024-25-champions-league-pots-confirmed/)
+- **Champions League draw 2024-25: Format, time, schedule, plus how to watch on 
+BBC**: [Link](https://www.bbc.com/sport/football/articles/c17gn9vde8lo)
+
+
 ### المنتخب المغربي (N/A, Thu, 29 Aug 2024 03:40:00 -0700)
 
 - **الركراكي يكشف "لائحة الأسود" .. حضور آدم أزنو وغياب سايس وعطية الله**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%AD%D8%B6%D9%88%D8%B1-%D8%A2%D8%AF%D9%85-%D8%A3-1422977.html)
