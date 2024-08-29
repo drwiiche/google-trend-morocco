@@ -1,3 +1,13 @@
+### garmin fenix 8 (N/A, Thu, 29 Aug 2024 03:20:00 -0700)
+
+- **'Is Epix dead for now? Yes, it is': Top Garmin insider reveals why the Epix 
+smartwatch was axed in favour of Fenix 8**: [Link](https://www.techradar.com/health-fitness/is-epix-dead-for-now-yes-it-is-top-garmin-insider-reveals-why-the-epix-smartwatch-was-axed-in-favour-of-fenix-8)
+- **Apple Watch 3 can sit and watch as Garmin Fenix 8 Smartwatch arrives with 
+AMOLED display**: [Link](https://www.yankodesign.com/2024/08/27/apple-watch-3-can-sit-and-watch-as-garmin-fenix-8-smartwatch-arrives-with-amoled-display/)
+- **Garmin Fenix E now official as cheaper sibling to new Fenix 8 smartwatch 
+with AMOLED display**: [Link](https://www.notebookcheck.net/Garmin-Fenix-E-now-official-as-cheaper-sibling-to-new-Fenix-8-smartwatch-with-AMOLED-display.880293.0.html)
+
+
 ### temu (N/A, Thu, 29 Aug 2024 03:50:00 -0700)
 
 - **China fast-fashion retailer Temu soared like a rocket for two years—in just 
