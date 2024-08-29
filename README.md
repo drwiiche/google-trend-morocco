@@ -1,3 +1,19 @@
+### las palmas – real madrid (N/A, Thu, 29 Aug 2024 11:30:00 -0700)
+
+- **Alineación confirmada del Real Madrid ante Las Palmas hoy en LaLiga EA 
+Sports**: [Link](https://as.com/futbol/alineacion-posible-del-real-madrid-ante-las-palmas-hoy-en-laliga-ea-sports-n/)
+- **Alineación del Real Madrid contra Las Palmas hoy, partido de la jornada 3 
+de LaLiga EA Sports**: [Link](https://www.marca.com/futbol/real-madrid/2024/08/29/66cf41fe268e3e732e8b459c.html)
+- **Último entrenamiento antes de visitar a la UD Las Palmas**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-real-madrid-se-esta-entrenando-28-08-2024)
+
+
+### حمد الله (N/A, Thu, 29 Aug 2024 11:30:00 -0700)
+
+- **غموض بشأن موقف حمدالله أمام الخليج**: [Link](https://www.kooora.com/?n=1350961)
+- **شكوك حول إمكانية ظهور حمد الله اليوم**: [Link](https://www.almountakhab.com/node/13203640)
+- **ضربة موجعة للشباب في الدوري السعودي بسبب حمد اله**: [Link](http://ar.sport.le360.ma/espagne/158048)
+
+
 ### betis – kryvbas (N/A, Thu, 29 Aug 2024 11:10:00 -0700)
 
 - **Preview: Real Betis vs. Kryvbas Kryvyi Rih - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/europa-conference-league/preview/preview-betis-vs-kryvbas-kryvyi-prediction-team-news-lineups_551335.html)
