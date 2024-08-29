@@ -1,3 +1,17 @@
+### puskás akadémia – fiorentina (N/A, Thu, 29 Aug 2024 11:40:00 -0700)
+
+- **Sokk Firenzében, veszélyben a továbbjutás, írják az olasz lapok**: [Link](https://www.origo.hu/sport/sport-futball/2024/08/konferencia-liga-puskas-akademia-fiorentina-ezt-irjak-az-olasz-lapok)
+- **A Puskás megmutatta, hogyan tud egy kis csapat élvezetes játékkal meglepetést okozni**: [Link](https://bunteto.com/a-puskas-megmutatta-hogyan-tud-egy-kis-csapat-elvezetes-jatekkal-meglepetest-okozni)
+- **De Gea rémálmaiban tér vissza az európai „törpe”, a Puskás Akadémia**: [Link](https://magyarnemzet.hu/sport/2024/08/de-gea-puskas-akademia-fiorentina-konferencialiga)
+
+
+### سيرفيت ضد تشيلسي (N/A, Thu, 29 Aug 2024 11:40:00 -0700)
+
+- **تشلسي ينهي استعداداته لملاقاة سيرفيت**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%B3%D9%8A%D8%B1%D9%81%D9%8A%D8%AA-2024-08-29)
+- **طلقة بدون تقطيع HD.. بث مباشر تشيلسي وسيرفيت الآن يلا شوت twitter قمة دوري المؤتمر 2025**: [Link](https://real.alsaudinews.com/150227/%D8%B7%D9%84%D9%82%D8%A9-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9-hd-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%B3%D9%8A%D8%B1%D9%81/)
+- **بث مباشر مباراة تشيلسي وسيرفيت في دوري المؤتمر الأوروبي....**: [Link](https://alhorianews.com/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%B3%D9%8A%D8%B1%D9%81%D9%8A%D8%AA-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A/)
+
+
 ### las palmas – real madrid (N/A, Thu, 29 Aug 2024 11:30:00 -0700)
 
 - **Alineación confirmada del Real Madrid ante Las Palmas hoy en LaLiga EA 
