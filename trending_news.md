@@ -1,3 +1,13 @@
+### temu (N/A, Thu, 29 Aug 2024 03:50:00 -0700)
+
+- **China fast-fashion retailer Temu soared like a rocket for two years—in just 
+a few hours, its parent company lost more than $50 billion in market value**: [Link](https://fortune.com/2024/08/26/temu-pdd-stock-plunges-government-scrutiny-amazon-rivals/)
+- **Temu’s billionaire founder lost his title as China’s richest person just 20 
+days after winning it**: [Link](https://finance.yahoo.com/news/temu-billionaire-founder-lost-title-164736639.html)
+- **China’s Once-Richest Person Loses $14 Billion As Temu Parent Company Falls 
+Almost 30%**: [Link](https://www.forbes.com/sites/maryroeloffs/2024/08/26/chinas-richest-colin-huang-loses-14-billion-temu-parent-company-pdd-holdings-shares-revenue-fall/)
+
+
 ### sofyan amrabat (N/A, Thu, 29 Aug 2024 04:00:00 -0700)
 
 - **Man United 'unwilling' to pay £12.7m transfer fee as Manuel Ugarte 
