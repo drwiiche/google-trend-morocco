@@ -1,3 +1,25 @@
+### يلا شوت (N/A, Thu, 29 Aug 2024 13:00:00 -0700)
+
+- **مبابي يقود التشكيل المتوقع للريال أمام لاس بالماس**: [Link](https://www.kooora.com/?n=1351176)
+- **تشكيلة ريال مدريد الرسمية للقاء لاس بالماس في الليجا**: [Link](https://hihi2.com/2024/08/29/p2821609.html)
+- **دياز يتصدر تشكيل ريال مدريد ضد لاس بالماس**: [Link](https://www.kooora.com/?n=1351322)
+
+
+### live tv (N/A, Thu, 29 Aug 2024 13:00:00 -0700)
+
+- **What is Fran Brown most nervous about heading into his coaching debut? 
+‘Everything else is easy to me’**: [Link](https://www.syracuse.com/orangefootball/2024/08/what-is-fran-brown-most-nervous-about-heading-into-his-coaching-debut-everything-else-is-easy-to-me.html)
+- **Syracuse football: what to watch for vs Ohio**: [Link](https://www.nunesmagician.com/2024/8/29/24230645/syracuse-orange-football-what-to-watch-for-vs-ohio-bobcats)
+- **A new dawn for Syracuse football: Fans and businesses rally around 2024 team**: [Link](https://cnycentral.com/sports/college/a-new-dawn-for-syracuse-football-fans-and-businesses-rally-around-2024-team)
+
+
+### real madrid cf (N/A, Thu, 29 Aug 2024 12:30:00 -0700)
+
+- **Official Announcement: Yabusele**: [Link](https://www.realmadrid.com/en-US/news/club/announcements/comunicado-oficial-yabusele-29-08-2024)
+- **76ers Rumors: Must-watch wrinkle emerges as team finalizes tricky deal**: [Link](https://thesixersense.com/posts/76ers-rumors-must-watch-wrinkle-emerges-as-team-finalizes-tricky-deal)
+- **Guerschon Yabusele Taking Financial Sacrifice?**: [Link](https://athlonsports.com/nba/inside-the-spurs/victor-wembanyama-san-antonio-spurs-paris-olympics-guerschon-yabusele-real-madrid)
+
+
 ### real madrid (N/A, Thu, 29 Aug 2024 12:40:00 -0700)
 
 - **Sorteo Champions League, en directo hoy: cruces, partidos y rivales de Real 
