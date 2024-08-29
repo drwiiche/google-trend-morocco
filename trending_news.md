@@ -1,3 +1,25 @@
+### mbappe (N/A, Thu, 29 Aug 2024 15:00:00 -0700)
+
+- **Kylian Mbappé’s ‘X’ Twitter Account Hacked!**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/kylian-mbapp%C3%A9-s-x-account-hacked-2024-08-29)
+- **How hackers attacked Messi, Chelsea after taking over Mbappe’s X Account**: [Link](https://dailytrust.com/how-hackers-attacked-messi-chelsea-after-taking-over-mbappes-x-account/)
+- **Kylian Mbappe hacker makes Cristiano Ronaldo claim, teases Manchester 
+United transfer and trolls Tottenham...**: [Link](https://talksport.com/football/2025815/kylian-mbappe-hacked-cristiano-ronaldo-manchester-united/)
+
+
+### liga (N/A, Thu, 29 Aug 2024 14:30:00 -0700)
+
+- **Primera División Las Palmas 1 Real Madrid 1 Full time**: [Link](https://www.bbc.com/sport/football/live/cjdkrl1ve30t)
+- **Ancelotti talks Mbappe, Valverde, Alaba, Tchouameni, Dani Olmo ahead of Las 
+Palmas vs Real Madrid**: [Link](https://madriduniversal.com/ancelotti-talks-mbappe-valverde-alaba-tchouameni-dani-olmo-ahead-of-las-palmas-vs-real-madrid/)
+- **La Liga Soccer Livestream: How to Watch Las Palmas vs. Real Madrid From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-las-palmas-vs-real-madrid-from-anywhere/)
+
+
+### ligue europa conférence (N/A, Thu, 29 Aug 2024 14:10:00 -0700)
+
+
+
+
 ### ترتيب الدوري الاسباني (N/A, Thu, 29 Aug 2024 14:30:00 -0700)
 
 - **وافد جديد على مران برشلونة**: [Link](https://www.kooora.com/?n=1351067)
