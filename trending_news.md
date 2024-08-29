@@ -1,3 +1,11 @@
+### tirage au sort ligue des champions (N/A, Thu, 29 Aug 2024 02:20:00 -0700)
+
+- **Un énorme scandale éclate dans la nouvelle Ligue des Champions !**: [Link](https://www.footmercato.net/a5880175908982683567-un-enorme-scandale-eclate-dans-la-nouvelle-ligue-des-champions)
+- **Ligue des champions - Nouveau format, chapeaux... Tout savoir sur le tirage 
+au sort de la C1**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/nouveau-format-chapeaux.-tout-savoir-sur-le-tirage-au-sort-de-la-ligue-des-champions_sto10317127/story.shtml)
+- **Ligue des champions 2024/25, la phase de ligue au complet**: [Link](https://www.uefa.com/uefachampionsleague/news/028b-1a4e6f460c77-e9944e510e43-1000--ligue-des-champions-2024-25-la-phase-de-ligue-au-complet/)
+
+
 ### hibapress (N/A, Wed, 28 Aug 2024 23:00:00 -0700)
 
 - **نادي المحامين يضع شكاية ضد الجزائري مهدي غزار بعد تصريحاته العنصرية ضد 
