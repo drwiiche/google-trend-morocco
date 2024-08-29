@@ -1,3 +1,18 @@
+### resultat quinte (N/A, Thu, 29 Aug 2024 09:20:00 -0700)
+
+- **Les pronostics Quinté du 27/08/2024 à Dieppe**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-27082024-a-dieppe-4264025)
+- **Equidia met le feu au Quinté+ du mardi 27 août à Dieppe**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-mardi-27-aout-a-dieppe)
+- **Résultats PMU : Arrivée du Tiercé du jour**: [Link](https://www.zone-turf.fr/quinte/resultats-pmu-arrivee-du-tierce-du-jour-125437.html)
+
+
+### girona – osasuna (N/A, Thu, 29 Aug 2024 09:10:00 -0700)
+
+- **Osasuna afronta con confianza su primer partido fuera**: [Link](https://www.navarratelevision.es/noticia/z2de1f79a-fcf7-d330-72fa7c1514ac6ff0/202408/osasuna-afronta-con-confianza-su-primer-partido-fuera)
+- **Girona vs. Osasuna hoy por LaLiga: horario, formaciones y dónde ver el 
+partido**: [Link](https://www.directvsports.com/futbol/Girona-vs.-Osasuna-hoy-por-LaLiga-horario-formaciones-y-donde-ver-el-partido-20240829-0010.html)
+- **El Girona necesita Montilivi**: [Link](https://www.mundodeportivo.com/futbol/girona-fc/20240826/1002304104/girona-necesita-montilivi.html)
+
+
 ### amrabat (N/A, Thu, 29 Aug 2024 09:00:00 -0700)
 
 - **Everton make move for Man Utd flop but face competition**: [Link](https://metro.co.uk/2024/08/28/everton-make-move-manchester-united-flop-face-competition-21501298/)
