@@ -1,3 +1,10 @@
+### frmf (N/A, Thu, 29 Aug 2024 03:30:00 -0700)
+
+- **لقجع يستقبل أعضاء منتخب "الفوتسال"**: [Link](https://www.hespress.com/%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7-1422876.html)
+- **هشام الدكيك لكووورة: الجميع أصبح يتحضر للمغرب بشكل قوي**: [Link](https://www.kooora.com/?n=1350831)
+- **كأس إفريقيا للفوتسال.. الجماهير المغربية تصنع الحدث قبل نصف النهائي**: [Link](https://ar.telquel.ma/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%88%D8%AF%D9%8A%D8%AA%D8%A7%D9%86-%D8%AA%D9%81%D8%B5%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D9%85/)
+
+
 ### maroc foot (N/A, Thu, 29 Aug 2024 03:20:00 -0700)
 
 - **Botola : la Renaissance de Berkane et le Difaâ d’El Jadida s'activent sur le mercato**: [Link](https://lematin.ma/sports/botola-la-rsb-et-le-dhj-sactivent-sur-le-mercato/240691)
