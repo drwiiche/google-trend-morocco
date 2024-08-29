@@ -1,3 +1,39 @@
+### adrien rabiot (N/A, Thu, 29 Aug 2024 11:00:00 -0700)
+
+- **Deschamps on Rabiot’s lack of a club: “He has offers, he must make a choice”**: [Link](https://sempremilan.com/deschamps-rabiot-offers-make-choice)
+- **Gazzetta: Milan prepare contract offer for Rabiot**: [Link](https://football-italia.net/gazzetta-milan-prepare-contract-offer-rabiot/)
+- **Liverpool could swoop for player Jurgen Klopp spoke to as 'next' Moises 
+Caicedo 'eyed'**: [Link](https://www.liverpoolecho.co.uk/sport/football/transfer-news/liverpool-could-swoop-player-jurgen-29785890)
+
+
+### girona fc (N/A, Thu, 29 Aug 2024 10:50:00 -0700)
+
+- **Rivales del Girona en Champions: cruces y emparejamientos en la fase liga 
+de la Champions League**: [Link](https://as.com/futbol/champions/rivales-del-girona-en-champions-cruces-y-emparejamientos-en-la-fase-liga-de-la-champions-league-n/)
+- **Terrorífico grupo para el Girona: ¡Cuatro campeones y dos subcampeones de 
+Europa!**: [Link](https://www.mundodeportivo.com/futbol/girona-fc/20240829/1002306474/terrorifico-grupo-girona-cuatro-campeones-dos-subcampeones-europa.html)
+- **Así queda la nueva fase de Liga de la Champions**: [Link](https://es.besoccer.com/noticia/sorteo-fase-liga-nueva-champions-league-2024-25-1328600)
+
+
+### mehdi ghezzar maroc (N/A, Thu, 29 Aug 2024 10:50:00 -0700)
+
+- **(Vidéo) La cinglante réponse de Marc Menent contre Mehdi Ghezzar**: [Link](https://maroc-diplomatique.net/video-la-cinglante-reponse-de-marc-menent-contre-mehdi-ghezzar/)
+- **L’œil de Carlos. Affaire Ghezzar: le Maroc, qui s’y frotte s’y casse les 
+dents**: [Link](https://fr.le360.ma/medias/loeil-de-carlos-affaire-ghezzar-le-maroc-qui-sy-frotte-sy-casse-les-dents_FPH5M4VUGBF3HCOC7J5HBT3OU4/)
+- **Affaire Mehdi Ghezzar: RMC met fin à sa collaboration avec le chroniqueur 
+algérien**: [Link](https://ledesk.ma/encontinu/affaire-mehdi-ghezzar-rmc-met-fin-a-sa-collaboration-avec-le-chroniqueur-algerien/)
+
+
+### bein sport (N/A, Thu, 29 Aug 2024 09:20:00 -0700)
+
+- **تردد قناة بي ان سبورت bein sports 1-2 الجديد 2024 لمتابعة الدوري الأنجليزي 
+والأسباني**: [Link](https://www.sports-leb.com/18972/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-bein-sports-1-2-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-2024-%D9%84%D9%85%D8%AA%D8%A7%D8%A8/)
+- **تابع كوره براحتك.. تردد قناة بي ان سبورت 2 Bein Sport علي الأقمار الصناعية 
+المختلفة**: [Link](https://real.alsaudinews.com/144906/%D8%AA%D8%A7%D8%A8%D8%B9-%D9%83%D9%88%D8%B1%D9%87-%D8%A8%D8%B1%D8%A7%D8%AD%D8%AA%D9%83-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-2-be/)
+- **beIN Sport HD 1.. تردد قناة بي إن سبورت 1 الجديد 2024 لمشاهدة مباراة 
+ليفربول وبرينتفورد**: [Link](https://real.alsaudinews.com/146757/bein-sport-hd-1-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-1-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-2024-%D9%84%D9%85%D8%B4%D8%A7%D9%87/)
+
+
 ### servette – chelsea (N/A, Thu, 29 Aug 2024 10:40:00 -0700)
 
 - **Enzo Maresca confirms four Blues miss 'tough' Servette trip | News | 
