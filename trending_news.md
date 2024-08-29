@@ -1,3 +1,10 @@
+### lima (N/A, Thu, 29 Aug 2024 15:10:00 -0700)
+
+- **Dana announces closure of Lima plant, around 280 employees impacted**: [Link](https://www.hometownstations.com/news/dana-announces-closure-of-lima-plant-around-280-employees-impacted/article_cb574852-655f-11ef-91b0-9bb0456b359b.html)
+- **Dana closing Lima plant after nearly 55 years of business**: [Link](https://www.limaohio.com/top-stories/2024/08/29/dana-closing-lima-plant-after-nearly-55-years-of-business/)
+- **Dana Announces Closing of Lima Plant**: [Link](https://wktn.com/dana-announces-closing-of-lima-plant)
+
+
 ### mbappe (N/A, Thu, 29 Aug 2024 15:00:00 -0700)
 
 - **Kylian Mbappé’s ‘X’ Twitter Account Hacked!**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/kylian-mbapp%C3%A9-s-x-account-hacked-2024-08-29)
