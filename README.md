@@ -1,3 +1,10 @@
+### zeturf (N/A, Thu, 29 Aug 2024 09:40:00 -0700)
+
+- **Les pronos hippiques du vendredi 30 août 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-30-aout-2024_AN-202408290546.html)
+- **Quinté Plus PMU : Head of State est un lauréat en puissance**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-head-of-state-est-un-laureat-en-puissance-125446.html)
+- **Tiercé. Les pronostics de « L'Alsace » pour vendredi 30 août - Prix Diotima**: [Link](https://www.lalsace.fr/sport/2024/08/29/les-pronostics-de-l-alsace-pour-vendredi-30-aout-prix-diotima)
+
+
 ### resultat quinte (N/A, Thu, 29 Aug 2024 09:20:00 -0700)
 
 - **Les pronostics Quinté du 27/08/2024 à Dieppe**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-27082024-a-dieppe-4264025)
