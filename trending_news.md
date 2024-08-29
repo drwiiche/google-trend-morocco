@@ -1,3 +1,15 @@
+### inoxtag (N/A, Thu, 29 Aug 2024 16:40:00 -0700)
+
+- **Après l’Everest, Inoxtag annonce son retour avec un colis mystère**: [Link](https://gensdinternet.fr/2024/08/29/apres-leverest-inoxtag-annonce-son-retour-avec-un-colis-mystere/)
+
+
+### bernard cazeneuve premier ministre (N/A, Thu, 29 Aug 2024 16:00:00 -0700)
+
+- **En direct, nouveau premier ministre : après une cinquième journée de « consultations » sans avancée, Emmanuel Macron a commencé une visite en Serbie**: [Link](https://www.lemonde.fr/politique/live/2024/08/29/en-direct-nouveau-premier-ministre-emmanuel-macron-poursuit-ses-consultations-en-recevant-des-grands-elus-locaux_6298240_823448.html)
+- **Telegram, Matignon, Rafale : ce qu'il faut retenir de l'intervention d'Emmanuel Macron**: [Link](https://www.rtl.fr/actu/international/telegram-matignon-rafale-ce-qu-il-faut-retenir-de-l-intervention-d-emmanuel-macron-7900412551)
+- **EN DIRECT Futur Premier ministre : Emmanuel Macron est arrivé en Serbie...**: [Link](https://www.20minutes.fr/politique/4107484-20240829-direct-futur-premier-ministre-macron-rend-serbie-alors-nom-matignon-fait-attendre)
+
+
 ### يلا شووت (N/A, Thu, 29 Aug 2024 14:10:00 -0700)
 
 
