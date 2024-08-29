@@ -1,3 +1,17 @@
+### météo (N/A, Wed, 28 Aug 2024 23:00:00 -0700)
+
+- **Le temps qu'il fera ce mercredi 28 août 2024**: [Link](https://fr.hespress.com/383697-le-temps-quil-fera-ce-mercredi-28-aout-2024.html)
+- **INM: Les quantités de pluies enregistrées en millimètres durant les dernières 24H**: [Link](https://www.tunisienumerique.com/inm-les-quantites-de-pluies-enregistrees-en-millimetres-durant-les-dernieres-24h-17/)
+- **Météo lundi 26 août : retour du beau temps**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2024-08-25/meteo-lundi-26-aout-retour-du-beau-temps-72079)
+
+
+### weather (N/A, Wed, 28 Aug 2024 22:50:00 -0700)
+
+- **Summer Storms With Hail, Tornado Or Two Likely**: [Link](https://weather.com/storms/severe/video/severe-forecast-plains-midwest-northeast-hail)
+- **Matt Davenport's Storm Tracker Forecast for Monday, August 26**: [Link](https://www.kpvi.com/weather/stormtracker_forecast/matt-davenports-storm-tracker-forecast-for-monday-august-26/video_68e16216-5774-5929-b6cb-250b31c24d92.html)
+- **Heavy thunderstorms possible Thursday**: [Link](https://rocktownnow.com/weather/15019/)
+
+
 ### حالة الطقس (N/A, Wed, 28 Aug 2024 22:40:00 -0700)
 
 - **أمطار تصل لرعدية ورياح وحرارة.. حالة الطقس غدا الخميس**: [Link](https://www.masrawy.com/news/news_egypt/details/2024/8/28/2634482/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B5%D9%84-%D9%84%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%88%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3)
