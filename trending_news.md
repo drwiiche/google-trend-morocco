@@ -1,3 +1,19 @@
+### sofyan amrabat (N/A, Thu, 29 Aug 2024 04:00:00 -0700)
+
+- **Man United 'unwilling' to pay £12.7m transfer fee as Manuel Ugarte 
+alternative mooted**: [Link](https://www.manchestereveningnews.co.uk/sport/football/transfer-news/man-united-unwilling-pay-127m-29810230)
+- **Fabrizio Romano confirms Premier League club made 'approach' for ex-Man Utd 
+star who played under Erik ten Hag**: [Link](https://www.unitedinfocus.com/transfer-news/fabrizio-romano-confirms-premier-league-club-made-approach-for-ex-man-utd-star-who-played-under-erik-ten-hag/)
+- **Everton make move for Man Utd flop but face competition**: [Link](https://metro.co.uk/2024/08/28/everton-make-move-manchester-united-flop-face-competition-21501298/)
+
+
+### adam aznou (N/A, Thu, 29 Aug 2024 03:40:00 -0700)
+
+- **هل ينسحب منتخب الجابون أمام المغرب؟**: [Link](https://www.kooora.com/?n=1349403)
+- **الموريتاني بيدة حكما لمباراة المغرب والغابون للمرة الثانية**: [Link](https://ar.lesiteinfo.com/sport/%D8%A7%D9%84%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A-%D8%A8%D9%8A%D8%AF%D8%A9-%D8%AD%D9%83%D9%85%D8%A7-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88-874972.html)
+- **مفاجآت بلائحة المنتخب المغربي لمباراتي الغابون وليسوتو**: [Link](https://ar.hibapress.com/details-545672.html)
+
+
 ### frmf (N/A, Thu, 29 Aug 2024 03:30:00 -0700)
 
 - **لقجع يستقبل أعضاء منتخب "الفوتسال"**: [Link](https://www.hespress.com/%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7-1422876.html)
