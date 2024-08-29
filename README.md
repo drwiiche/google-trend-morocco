@@ -1,3 +1,20 @@
+### teleperformance (N/A, Thu, 29 Aug 2024 05:00:00 -0700)
+
+- **Centres d’appels: Moulay Hafid Elalamy nommé président du groupe 
+Teleperformance**: [Link](https://fr.le360.ma/economie/centres-dappels-moulay-hafid-elalamy-nomme-president-du-groupe-teleperformance_CNWUUO3EJZF6JLQQ2NZBV3SLDI/)
+- **MHE accède à la présidence du conseil d’administration de Teleperformance**: [Link](https://ledesk.ma/enoff/mhe-accede-a-la-presidence-du-conseil-dadministration-de-teleperformance/)
+- **Moulay Hafid Elalamy nommé PCA du géant des centres d’appels Teleperformance**: [Link](https://www.h24info.ma/moulay-hafid-elalamy-nomme-pca-du-geant-des-centres-dappels-teleperformance/)
+
+
+### champions league draw (N/A, Thu, 29 Aug 2024 05:00:00 -0700)
+
+- **Champions League: League phase draw pots confirmed | UEFA Champions League**: [Link](https://www.uefa.com/uefachampionsleague/news/0290-1bb8f464468e-3d7a47f2094d-1000--champions-league-league-phase-draw-pots-confirmed/)
+- **Champions League draw 2024-25: Format, time, schedule, plus how to watch on 
+BBC**: [Link](https://www.bbc.com/sport/football/articles/c17gn9vde8lo)
+- **Champions League: Inter, Juventus, Milan, Atalanta and Bologna pots 
+confirmed**: [Link](https://football-italia.net/2024-25-champions-league-pots-confirmed/)
+
+
 ### قرعة دوري ابطال اوروبا 2025 (N/A, Thu, 29 Aug 2024 02:50:00 -0700)
 
 - **دوري أبطال أوروبا الجديد.. صدامات نارية تثير شغف الجماهير من اليوم الأول**: [Link](https://www.kooora.com/?n=1351183)
