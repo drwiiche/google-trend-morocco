@@ -1,3 +1,13 @@
+### pékin express (N/A, Wed, 28 Aug 2024 15:30:00 -0700)
+
+- **«Pékin express : l’épopée des Maharadjas» : candidats «all stars», 
+parcours, diffusion... ce qu’il faut savoir**: [Link](https://www.lavoixdunord.fr/1496153/article/2024-08-28/pekin-express-l-epopee-des-maharadjas-candidats-all-stars-parcours-diffusion-ce)
+- **Pour son édition All Stars, "Pékin Express" change de jour de diffusion sur 
+M6 en espérant une meilleure...**: [Link](https://www.jeanmarcmorandini.com/article-581708-pour-son-edition-all-stars-pekin-express-change-de-jour-de-diffusion-sur-m6-en-esperant-une-meilleure-audience-voici-le-jour-choisi-par-la-chaine-pour-le-jeu-d-aventure.html)
+- **Pekin Express de retour : des "handicaps" de plus en plus compliqués, 
+Stéphane Rotenberg "va demander de faire du stop nu"**: [Link](https://www.public.fr/pekin-express-de-retour-des-handicaps-de-plus-en-plus-compliques-stephane-rotenberg-va-demander-de-faire-du-stop-nu)
+
+
 ### oasis (N/A, Wed, 28 Aug 2024 19:00:00 -0700)
 
 - **Stop the celebrations – Oasis are the most damaging pop-cultural force in recent British history | Simon Price**: [Link](https://www.theguardian.com/commentisfree/article/2024/aug/28/stop-the-celebrations-oasis-are-the-most-damaging-pop-cultural-force-in-recent-british-history)
