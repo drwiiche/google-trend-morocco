@@ -1,3 +1,13 @@
+### carole delga (N/A, Thu, 29 Aug 2024 04:40:00 -0700)
+
+- **En direct, nouveau premier ministre : Emmanuel Macron a reçu Carole Delga 
+et Renaud Muselier, le PS ouvre son université d’été**: [Link](https://www.lemonde.fr/politique/live/2024/08/29/en-direct-nouveau-premier-ministre-emmanuel-macron-a-recu-carole-delga-et-renaud-muselier-le-ps-ouvre-son-universite-d-ete_6298240_823448.html)
+- **François Hollande : « “Censurer” Lucie Castets est une faute 
+institutionnelle de Macron »**: [Link](https://www.lepoint.fr/politique/francois-hollande-censurer-lucie-castets-est-une-faute-institutionnelle-de-macron-28-08-2024-2568777_20.php)
+- **Carole Delga : « Il faut que la gauche s’ouvre aux autres forces 
+républicaines »**: [Link](https://www.leparisien.fr/politique/carole-delga-il-faut-que-la-gauche-souvre-aux-autres-forces-republicaines-28-08-2024-HLE7SOJH7VCJ5L2TRNTPX454BA.php)
+
+
 ### garmin fenix 8 (N/A, Thu, 29 Aug 2024 03:20:00 -0700)
 
 - **'Is Epix dead for now? Yes, it is': Top Garmin insider reveals why the Epix 
