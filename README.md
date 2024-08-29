@@ -1,3 +1,21 @@
+### moulay hafid elalamy (N/A, Thu, 29 Aug 2024 13:30:00 -0700)
+
+- **Moulay Hafid Elalamy, nommé président du conseil d’administration de 
+Téléperformance**: [Link](https://medias24.com/2024/08/28/moulay-hafid-elalamy-nomme-president-du-conseil-dadministration-de-teleperformance/)
+- **Centres d’appels: Moulay Hafid Elalamy nommé président du groupe 
+Teleperformance**: [Link](https://fr.le360.ma/economie/centres-dappels-moulay-hafid-elalamy-nomme-president-du-groupe-teleperformance_CNWUUO3EJZF6JLQQ2NZBV3SLDI/)
+- **MHE accède à la présidence du conseil d’administration de Teleperformance**: [Link](https://ledesk.ma/enoff/mhe-accede-a-la-presidence-du-conseil-dadministration-de-teleperformance/)
+
+
+### match real aujourd'hui (N/A, Thu, 29 Aug 2024 12:10:00 -0700)
+
+- **La Liga : le Real Madrid climatisé d'entrée à Las Palmas**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/la-liga-le-real-madrid-climatis%C3%A9-d-entr%C3%A9e-%C3%A0-las-palmas-2024-08-29)
+- **Kylian Mbappé pour régler la mire : des images de l'entraînement du Real 
+Madrid avant de jouer contre Las Palmas [vidéo]**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/kylian-mbappe-pour-regler-la-mire-des-images-de-l-entrainement-du-real-madrid-avant-de-jouer-contre-las-palmas-video_vid2226719/video.shtml)
+- **Las Palmas - Real Madrid : Diffusion TV et en clair, streaming et compos 
+probables**: [Link](https://www.goal.com/fr/news/las-palmas-real-madrid-diffusion-tv-et-en-clair-streaming-et-compos-probables/blt37056114215102a6)
+
+
 ### real betis (N/A, Thu, 29 Aug 2024 13:20:00 -0700)
 
 - **Real Madrid considering offers for midfielder Dani Ceballos, with Real 
