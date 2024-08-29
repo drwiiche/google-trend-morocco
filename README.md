@@ -1,3 +1,26 @@
+### الاتحاد ضد التعاون (N/A, Thu, 29 Aug 2024 12:00:00 -0700)
+
+- **بنزيما يقود الهجوم.. تغييران في تشكيل اتحاد جدة أمام التعاون**: [Link](https://m.kooora.com/?n=1351312&o=n)
+- **أخطر 3 لاعبين في تشكيلة الاتحاد**: [Link](https://hihi2.com/2024/08/29/p2821156.html)
+- **في سباق البدايات المثالية.. اتحاد جدة يصطدم بالتعاون | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2024-08-29/%D9%81%D9%8A-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AC%D8%AF%D8%A9-%D9%8A%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+
+
+### girona vs osasuna (N/A, Thu, 29 Aug 2024 12:00:00 -0700)
+
+- **Preview: Girona vs. Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/preview/preview-girona-vs-osasuna-prediction-team-news-lineups_551362.html)
+- **Girona bounce back against Osasuna to secure first victory of historic 
+season**: [Link](https://www.football-espana.net/2024/08/29/girona-bounce-back-against-osasuna-to-secure-first-victory-of-historic-season)
+- **Girona vs Osasuna Live Stream & Tips - Girona to Win at Home in La Liga**: [Link](https://www.freetips.com/football/spanish-la-liga/girona-vs-osasuna-live-stream-20240829-0006/)
+
+
+### لائحة المنتخب المغربي (N/A, Thu, 29 Aug 2024 11:50:00 -0700)
+
+- **الركراكي: وضعية سايس مع السد غير واضحة .. وعطية الله عاش فترة صعبة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%88%D8%B6%D8%B9%D9%8A%D8%A9-%D8%B3%D8%A7%D9%8A%D8%B3-%D9%85%D8%B9-%D8%A7%D9%84%D8%B3%D8%AF-%D8%BA%D9%8A%D8%B1-%D9%88%D8%A7%D8%B6%D8%AD%D8%A9-1423075.html)
+- **مزراوي.. تواجده مع السكتيوي واستدعاء أكرد.. ملخص الندوة الصحفية لوليد 
+الركراكي**: [Link](https://m.elbotola.com/article/2024-08-29-13-42-338.html)
+- **مفاجآت بلائحة المنتخب المغربي لمباراتي الغابون وليسوتو**: [Link](https://ar.hibapress.com/details-545672.html)
+
+
 ### puskás akadémia – fiorentina (N/A, Thu, 29 Aug 2024 11:40:00 -0700)
 
 - **Sokk Firenzében, veszélyben a továbbjutás, írják az olasz lapok**: [Link](https://www.origo.hu/sport/sport-futball/2024/08/konferencia-liga-puskas-akademia-fiorentina-ezt-irjak-az-olasz-lapok)
