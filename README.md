@@ -1,3 +1,10 @@
+### maroc foot (N/A, Thu, 29 Aug 2024 03:20:00 -0700)
+
+- **Botola : la Renaissance de Berkane et le Difaâ d’El Jadida s'activent sur le mercato**: [Link](https://lematin.ma/sports/botola-la-rsb-et-le-dhj-sactivent-sur-le-mercato/240691)
+- **Botola : Le Wydad de Casablanca aspire à un rebond après une saison décevante**: [Link](https://fr.hespress.com/383730-botola-le-wydad-de-casablanca-aspire-a-un-rebond-apres-une-saison-decevante.html)
+- **Botola Pro D1 2024-2025: le HUSA déterminé à faire bonne figure**: [Link](https://www.maroc24.com/fr/94990-botola-pro-d1-2024-2025-le-husa-determine-a-faire-bonne-figure/)
+
+
 ### tirage au sort ligue des champions (N/A, Thu, 29 Aug 2024 02:20:00 -0700)
 
 - **Un énorme scandale éclate dans la nouvelle Ligue des Champions !**: [Link](https://www.footmercato.net/a5880175908982683567-un-enorme-scandale-eclate-dans-la-nouvelle-ligue-des-champions)
