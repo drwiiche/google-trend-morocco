@@ -1,3 +1,10 @@
+### ترتيب الدوري الاسباني (N/A, Thu, 29 Aug 2024 14:30:00 -0700)
+
+- **وافد جديد على مران برشلونة**: [Link](https://www.kooora.com/?n=1351067)
+- **شاهد ملخص فوز برشلونة متصدر الدوري الإسباني على رايو فايكانو**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/27/barcelona-v-rayo)
+- **نتائج برشلونة مع حكم مباراة بلد الوليد**: [Link](https://hihi2.com/2024/08/29/p2819831.html)
+
+
 ### bet365 (N/A, Thu, 29 Aug 2024 14:20:00 -0700)
 
 - **bet365 Bonus Code: Bet $5, Enjoy $200 In Bonus Bets**: [Link](https://winnersandwhiners.com/betting/online-sports-betting/bet365-bonus-code-bet-5-enjoy-200-in-bonus-bets-6-18570/)
