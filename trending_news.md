@@ -1,3 +1,10 @@
+### موعد قرعة دوري ابطال اوروبا (N/A, Thu, 29 Aug 2024 01:30:00 -0700)
+
+- **دوري أبطال أوروبا الجديد.. صدامات نارية تثير شغف الجماهير من اليوم الأول**: [Link](https://www.kooora.com/?n=1351183)
+- **قلق وحيد.. الاستقرار سلاح ليفربول في دوري أبطال أوروبا**: [Link](https://www.kooora.com/?n=1351150)
+- **صور… جلسة التصوير الرسمية للاعبي الريال الخاصة ببطولة دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/08/29/p2820284.html)
+
+
 ### teams (N/A, Thu, 29 Aug 2024 00:20:00 -0700)
 
 - **NFL practice squad tracker: Team-by-team roster signings ahead of 2024 season**: [Link](https://www.nfl.com/news/nfl-practice-squad-tracker-team-by-team-roster-signings-ahead-of-2024-season)
