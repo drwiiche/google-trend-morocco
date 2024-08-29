@@ -1,3 +1,24 @@
+### fiorentina (N/A, Thu, 29 Aug 2024 14:10:00 -0700)
+
+- **Milan, la Roma studia lo sgarbo. Il futuro di Jovic e il punto su Koné**: [Link](https://www.pianetamilan.it/news-milan/rassegna-stampa/calciomercato-milan-abraham-kone-roma-jovic-ultime-news-oggi-29-08-2024/)
+- **@ML – Lavori in corso: cessione in Serie A quasi fatta, i dettagli**: [Link](https://www.milanlive.it/2024/08/27/ml-lavori-in-corso-cessione-in-serie-a-quasi-fatta-i-dettagli/)
+- **Adli alla Fiorentina, Corbetta: 'Palladino ha carattere, ma basta cercare i giocatori di Nesta'**: [Link](https://www.monza-news.it/news/292422061574/adli-alla-fiorentina-corbetta-palladino-ha-carattere-ma-basta-cercare-i-giocatori-di-nesta)
+
+
+### بث مباشر للمباريات (N/A, Thu, 29 Aug 2024 14:10:00 -0700)
+
+- **بطولة إسبانيا: جيرونا يُحقق فوزه الأول برباعية في مرمى أوساسونا**: [Link](https://elaph.com/Web/Sports/2024/08/1546963.html)
+- **هيريرا يعلق على خسارة اوساسونا الثقيلة امام جيرونا**: [Link](https://blogksa.com/uncategorized/64335/%D9%87%D9%8A%D8%B1%D9%8A%D8%B1%D8%A7-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A7%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D8%A7%D9%84%D8%AB%D9%82%D9%8A%D9%84%D8%A9-%D8%A7%D9%85%D8%A7%D9%85-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7---%D8%AA%D8%AF%D9%88%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A.html)
+- **القنوات الناقلة لمباراة جيرونا وأوساسونا اليوم في الدوري الإسباني مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/298723384896859-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D9%88%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### ريال مدريد مباشر (N/A, Thu, 29 Aug 2024 13:10:00 -0700)
+
+- **مباشر مباراة ريال مدريد ضد لاس بالماس 0-1 في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/29/real-madrid-laliga)
+- **فينيسيوس يدرك هدف التعادل لـ ريال مدريد أمام لاس بالماس**: [Link](https://hihi2.com/2024/08/30/p2821874.html)
+- **مبابي يقود التشكيل المتوقع للريال أمام لاس بالماس**: [Link](https://www.kooora.com/?n=1351176)
+
+
 ### ريال بيتيس (N/A, Thu, 29 Aug 2024 14:00:00 -0700)
 
 - **ريال مدريد يحدد سعر سيبايوس**: [Link](https://www.kooora.com/?n=1351203)
