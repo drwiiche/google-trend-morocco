@@ -1,3 +1,28 @@
+### bet365 (N/A, Thu, 29 Aug 2024 14:20:00 -0700)
+
+- **bet365 Bonus Code: Bet $5, Enjoy $200 In Bonus Bets**: [Link](https://winnersandwhiners.com/betting/online-sports-betting/bet365-bonus-code-bet-5-enjoy-200-in-bonus-bets-6-18570/)
+- **Bet365 Bonus Code PITTSXLM: Lock in $150 MLB Bonus or Use $1K Safety Net**: [Link](https://pittsburghsportsnow.com/2024/08/21/bet365-bonus-code-pittsxlm-lock-in-150-mlb-bonus-or-use-1k-safety-net/)
+- **bet365 Bonus Code SBKWIRE - $1000 First Bet Safety Net for College 
+Football, MLB & More**: [Link](https://golfweek.usatoday.com/2024/08/29/bet365-bonus-code-sbkwire-choose-1000-or-150-bonus-now-for-college-football-mlb-more/)
+
+
+### la liga (N/A, Thu, 29 Aug 2024 14:20:00 -0700)
+
+- **Girona 4-0 Osasuna: Gil on target as Blanquivermells earn first LaLiga win**: [Link](https://www.beinsports.com/en-my/football/la-liga/articles/girona-4-0-osasuna-gil-on-target-as-blanquivermells-earn-first-laliga-win-2024-08-29)
+- **Girona bounce back against Osasuna to secure first victory of historic 
+season**: [Link](https://www.football-espana.net/2024/08/29/girona-bounce-back-against-osasuna-to-secure-first-victory-of-historic-season)
+- **Preview: Girona vs. Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/preview/preview-girona-vs-osasuna-prediction-team-news-lineups_551362.html)
+
+
+### endrick (N/A, Thu, 29 Aug 2024 14:20:00 -0700)
+
+- **Real Madrid 3-0 Valladolid (Aug 25, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704677)
+- **Real Madrid briefing: Endrick steals the Mbappe show, Guler in the 
+Bellingham role and more - The Athletic**: [Link](https://www.nytimes.com/athletic/5722905/2024/08/26/real-madrid-mbappe-endrick-bellingham-valladolid-guler/)
+- **Real Madrid Boss Ancelotti Talks Replacing Star And Sale Decision After 
+Valladolid Win**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/25/real-madrid-boss-ancelotti-talks-replacing-rodrygo-and-sale-decision-after-valladolid-win/)
+
+
 ### fiorentina (N/A, Thu, 29 Aug 2024 14:10:00 -0700)
 
 - **Milan, la Roma studia lo sgarbo. Il futuro di Jovic e il punto su Koné**: [Link](https://www.pianetamilan.it/news-milan/rassegna-stampa/calciomercato-milan-abraham-kone-roma-jovic-ultime-news-oggi-29-08-2024/)
