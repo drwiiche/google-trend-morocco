@@ -1,3 +1,12 @@
+### hibapress (N/A, Wed, 28 Aug 2024 23:00:00 -0700)
+
+- **نادي المحامين يضع شكاية ضد الجزائري مهدي غزار بعد تصريحاته العنصرية ضد 
+المغرب**: [Link](https://ar.hibapress.com/details-545638.html)
+- **قناة RMC الفرنسية تطرد صحفي جزائري موالٍ لنظام العسكر أدلى بتصريحات عنصرية 
+ضد المغرب ومستشار للملك**: [Link](https://rue20.com/832459.html)
+- **لماذا يجب التضامن مع مهدي خزار؟**: [Link](https://www.elkhabar.com/press/article/248965/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%AC%D8%A8-%D8%A7%D9%84%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D9%85%D8%B9-%D9%85%D9%87%D8%AF%D9%8A-%D8%AE%D8%B2%D8%A7%D8%B1/)
+
+
 ### zidane (N/A, Thu, 29 Aug 2024 00:40:00 -0700)
 
 - **Cristiano Ronaldo puts Zinedine Zidane forward as 'ideal' replacement for 
