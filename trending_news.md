@@ -1,3 +1,10 @@
+### ucl (N/A, Thu, 29 Aug 2024 09:40:00 -0700)
+
+- **Preview: LOSC Lille Attempt to Punch UCL Group Stage Ticket**: [Link](https://ligue1.fr/articles/l1_article_676-preview-losc-lille-attempt-to-punch-ucl-group-stage-ticket)
+- **Preview: Slavia Prague vs. Lille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/slavia-prague/champions-league/preview/preview-slavia-prague-vs-lille-prediction-team-news-lineups_551271.html)
+- **Lille and Red Star Belgrade seal Champions League spots**: [Link](https://www.socceramerica.com/172026-2/)
+
+
 ### zeturf (N/A, Thu, 29 Aug 2024 09:40:00 -0700)
 
 - **Les pronos hippiques du vendredi 30 août 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-30-aout-2024_AN-202408290546.html)
