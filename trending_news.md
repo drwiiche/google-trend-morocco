@@ -1,3 +1,21 @@
+### real madrid (N/A, Thu, 29 Aug 2024 12:40:00 -0700)
+
+- **Sorteo Champions League, en directo hoy: cruces, partidos y rivales de Real 
+Madrid, Barcelona, Atlético y Girona**: [Link](https://as.com/futbol/champions/sorteo-champions-league-en-directo-cruces-partidos-y-rivales-de-real-madrid-barcelona-atletico-y-girona-n/)
+- **Rivales del FC Barcelona en la liguilla de la Champions League 2024-25**: [Link](https://www.sport.es/es/noticias/champions/rivales-fc-barcelona-liguilla-champions-107506282)
+- **Los ocho rivales del Real Madrid en la fase liga de la Champions: 
+Liverpool, el más duro**: [Link](https://www.defensacentral.com/real_madrid/1709326035-los-ocho-rivales-del-real-madrid-en-la-fase-liga-de-la-champions-liverpool-el-mas-duro)
+
+
+### real vs (N/A, Thu, 29 Aug 2024 12:40:00 -0700)
+
+- **Las Palmas vs. Real Madrid - Football Match Preview - August 29, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704683)
+- **Las Palmas vs Real Madrid Prediction, 8/29/2024 La Liga Soccer Pick, Tips 
+and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/las-palmas-vs-real-madrid-prediction-8-29-2024-la-liga-soccer-pick-tips-and-odds.html)
+- **LaLiga: Las Palmas vs Real Madrid – Preview, predictions, picks, offers and 
+odds**: [Link](https://www.101greatgoals.com/us/betting-picks/laliga-las-palmas-vs-real-madrid-preview-predictions-picks-offers-odds/)
+
+
 ### matchs de ligue des champions de l'uefa (N/A, Thu, 29 Aug 2024 12:00:00 -0700)
 
 - **27.08.24 | La Youth League à Le Blé**: [Link](https://www.sb29.bzh/27-08-24-la-youth-league-a-le-ble.php)
