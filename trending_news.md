@@ -1,3 +1,11 @@
+### chiesa (N/A, Thu, 29 Aug 2024 06:50:00 -0700)
+
+- **Chiesa-Liverpool, ci siamo! Fede in volo per l'Inghilterra: "Sono pronto 
+per questa nuova avventura"**: [Link](https://www.gazzetta.it/Calcio/Calciomercato/Juventus/28-08-2024/chiesa-al-liverpool-ci-siamo-la-juve-e-la-trattativa.shtml)
+- **Mercato Milan: l'obiettivo ha fatto le visite con quella squadra**: [Link](https://www.milannews24.com/calciomercato-milan-chiesa-liverpool-juventus-visite-mediche-firma-dettagli-ultime-notizie/)
+- **📢 Juventus, doppia cessione a sorpresa: operazione last minute!**: [Link](https://www.fantamaster.it/cessioni-juventus-chiesa-kostic-operazione-last-minute-calciomercato-news/)
+
+
 ### teleperformance (N/A, Thu, 29 Aug 2024 05:00:00 -0700)
 
 - **Centres d’appels: Moulay Hafid Elalamy nommé président du groupe 
