@@ -1,3 +1,53 @@
+### real betis (N/A, Thu, 29 Aug 2024 13:20:00 -0700)
+
+- **Real Madrid considering offers for midfielder Dani Ceballos, with Real 
+Betis interested**: [Link](https://www.nytimes.com/athletic/5729792/2024/08/28/dani-ceballos-real-madrid-betis-transfer/)
+- **Real Madrid name asking price for Dani Ceballos — report**: [Link](https://www.managingmadrid.com/2024/8/29/24230948/real-madrid-name-asking-price-for-dani-ceballos-report)
+- **Real Madrid star misses trip to Las Palmas in attempt to seal late transfer 
+departure**: [Link](https://www.football-espana.net/2024/08/29/real-madrid-star-misses-trip-to-las-palmas-in-attempt-to-seal-late-transfer-departure)
+
+
+### madrid (N/A, Thu, 29 Aug 2024 13:20:00 -0700)
+
+- **Sorteo perfecto para la nueva Champions**: [Link](https://www.marca.com/futbol/champions-league/2024/08/29/66d09aa3e2704eb0888b456c.html)
+- **Sorteo de la fase liga de la UEFA Champions League**: [Link](https://es.uefa.com/uefachampionsleague/draws/)
+- **Nueva Champions con bombazos**: [Link](https://as.com/futbol/champions/nueva-champions-con-bombazos-n/)
+
+
+### betis (N/A, Thu, 29 Aug 2024 13:20:00 -0700)
+
+- **Fekir pone rumbo a Emiratos y llegarán Lo Celso o Ceballos**: [Link](https://as.com/futbol/fekir-pone-rumbo-a-qatar-n/)
+- **Fekir viaja para cerrar su salida del Betis: ¿Vía libre para Ceballos?**: [Link](https://www.marca.com/futbol/betis/2024/08/28/66cf47f046163f0d9f8b4577.html)
+- **El mensaje de Pellegrini a la dirección deportiva: «Ya el año pasado las 
+consecuencias se pagaron»**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/mensaje-pellegrini-direccion-deportiva-ano-pasado-consecuencias-20240828183718-nts.html)
+
+
+### leicester city (N/A, Thu, 29 Aug 2024 13:20:00 -0700)
+
+- **Morocco’s Bilal El Khannouss Set to Join Leicester City After Protracted 
+Transfer Saga**: [Link](https://www.moroccoworldnews.com/2024/08/364812/moroccos-bilal-el-khannouss-set-to-join-leicester-city-after-protracted-transfer-saga)
+- **Bilal El Khannouss to Leicester City transfer update as Genk boss breaks 
+silence**: [Link](https://www.leicestermercury.co.uk/sport/football/transfer-news/bilal-el-khannouss-leicester-city-9517834)
+- **Leicester City secures Moroccan star Bilal El Khannouss for €20.5M**: [Link](https://en.yabiladi.com/articles/details/153424/leicester-city-secures-moroccan-star.html)
+
+
+### madrid vs (N/A, Thu, 29 Aug 2024 13:10:00 -0700)
+
+- **Atlético de Madrid 0-0 Espanyol: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/atletico-de-madrid-espanyol-en-directo-laliga-ea-sports-hoy-en-vivo-n/)
+- **'Puntazo' del Espanyol ante el Atlético**: [Link](https://www.mundodeportivo.com/futbol/laliga/20240828/1002305945/espanyol-atletico.html)
+- **Pablo Barrios: “Hoy la pelota no ha querido entrar, hemos tenido ocasiones 
+muy claras”**: [Link](https://onefootball.com/es/noticias/pablo-barrios-hoy-la-pelota-no-ha-querido-entrar-hemos-tenido-ocasiones-muy-claras-39960015)
+
+
+### las palmas fc (N/A, Thu, 29 Aug 2024 12:40:00 -0700)
+
+- **La Liga Soccer Livestream: How to Watch Las Palmas vs. Real Madrid From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-las-palmas-vs-real-madrid-from-anywhere/)
+- **Ancelotti talks Mbappe, Valverde, Alaba, Tchouameni, Dani Olmo ahead of Las 
+Palmas vs Real Madrid**: [Link](https://madriduniversal.com/ancelotti-talks-mbappe-valverde-alaba-tchouameni-dani-olmo-ahead-of-las-palmas-vs-real-madrid/)
+- **CONFIRMED lineups: Las Palmas vs Real Madrid, 2024 La Liga**: [Link](https://www.managingmadrid.com/2024/8/29/24231504/las-palmas-vs-real-madrid-2024-la-liga-live-online-stream)
+
+
 ### يلا شوت (N/A, Thu, 29 Aug 2024 13:00:00 -0700)
 
 - **مبابي يقود التشكيل المتوقع للريال أمام لاس بالماس**: [Link](https://www.kooora.com/?n=1351176)
