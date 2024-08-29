@@ -1,3 +1,10 @@
+### teams (N/A, Thu, 29 Aug 2024 00:20:00 -0700)
+
+- **NFL practice squad tracker: Team-by-team roster signings ahead of 2024 season**: [Link](https://www.nfl.com/news/nfl-practice-squad-tracker-team-by-team-roster-signings-ahead-of-2024-season)
+- **Giants sign 15 players to practice squad**: [Link](https://www.giants.com/news/giants-sign-15-players-to-practice-squad-miles-boykin-lawrence-cager-kj-cloyd-isaiah-hodgins-dante-miller)
+- **2024 NFL practice squad tracker: Full list of team-by-team moves, signings for all 32 clubs after cut deadline**: [Link](https://www.cbssports.com/nfl/news/2024-nfl-practice-squad-tracker-full-list-of-team-by-team-moves-signings-for-all-32-clubs-after-cut-deadline/)
+
+
 ### kingsley coman (N/A, Thu, 29 Aug 2024 00:00:00 -0700)
 
 - **Arsenal receive fresh Kingsley Coman transfer hope as statement released**: [Link](https://www.football.london/arsenal-fc/transfer-news/arsenal-receive-fresh-kingsley-coman-29825331)
