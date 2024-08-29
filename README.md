@@ -1,3 +1,20 @@
+### amrabat (N/A, Thu, 29 Aug 2024 09:00:00 -0700)
+
+- **Everton make move for Man Utd flop but face competition**: [Link](https://metro.co.uk/2024/08/28/everton-make-move-manchester-united-flop-face-competition-21501298/)
+- **Jose Mourinho verdict on Erik ten Hag's Man United signing is clear as 
+'talks held'**: [Link](https://www.manchestereveningnews.co.uk/sport/football/transfer-news/jose-mourinho-verdict-erik-ten-29831749)
+- **Sofyan Amrabat offered Premier League transfer lifeline after flopping at 
+Man Utd**: [Link](https://www.mirror.co.uk/sport/football/transfer-news/manchester-united-amrabat-everton-fenerbahce-33552202)
+
+
+### nabil fekir (N/A, Thu, 29 Aug 2024 08:50:00 -0700)
+
+- **Fekir Set to Depart Betis, Paving the Way for Ceballos?**: [Link](https://www.managingmadrid.com/2024/8/28/24230857/fekir-set-to-depart-betis-paving-the-way-for-ceballos)
+- **La Liga Transfer Round-Up: Nabil Fekir to exit Real Betis, Athletic Club 
+sign new centre-back**: [Link](https://sports.yahoo.com/la-liga-transfer-round-nabil-130300567.html)
+- **BREAKING NEWS: Nabil Fekir leaves Betis**: [Link](https://www.fichajes.net/en/news/breaking-news-nabil-fekir-leaves-betis-20240828.html)
+
+
 ### champions league (N/A, Thu, 29 Aug 2024 08:20:00 -0700)
 
 - **Champions League: League phase draw pots confirmed**: [Link](https://www.uefa.com/uefachampionsleague/news/0290-1bb8f464468e-3d7a47f2094d-1000--champions-league-league-phase-draw-pots-confirmed/)
