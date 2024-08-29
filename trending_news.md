@@ -1,3 +1,12 @@
+### servette – chelsea (N/A, Thu, 29 Aug 2024 10:40:00 -0700)
+
+- **Enzo Maresca confirms four Blues miss 'tough' Servette trip | News | 
+Official Site**: [Link](https://www.chelseafc.com/en/news/article/maresca-confirms-four-blues-miss-tough-servette-trip)
+- **Chelsea fans will love Enzo Maresca if he responds to 4 absences by doing 
+this**: [Link](https://chelsea.news/2024/08/chelsea-fans-will-love-enzo-maresca-if-he-responds-to-4-absences-by-doing-this/)
+- **Pedro Neto, Malo Gusto rested for second leg against Servette**: [Link](https://weaintgotnohistory.sbnation.com/2024/8/28/24230718/pedro-neto-malo-gusto-rested-for-second-leg-against-servette)
+
+
 ### hihi2 (N/A, Thu, 29 Aug 2024 10:10:00 -0700)
 
 
