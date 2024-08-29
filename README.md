@@ -1,3 +1,10 @@
+### لا ليغا (N/A, Thu, 29 Aug 2024 14:30:00 -0700)
+
+- **نفس الاخطاء نفس المشاكل نفس الكوارث … لماذا خسر ريال مدريد…!**: [Link](https://hihi2.com/2024/08/30/p2821915.html)
+- **هذا الثنائي.. أحد أسباب سقوط ريال مدريد في الليغا!**: [Link](https://hihi2.com/2024/08/30/p2822004.html)
+- **ريال مدريد لم يتأقلم بعد على غياب كروس !**: [Link](https://hihi2.com/2024/08/30/p2821993.html)
+
+
 ### lima (N/A, Thu, 29 Aug 2024 15:10:00 -0700)
 
 - **Dana announces closure of Lima plant, around 280 employees impacted**: [Link](https://www.hometownstations.com/news/dana-announces-closure-of-lima-plant-around-280-employees-impacted/article_cb574852-655f-11ef-91b0-9bb0456b359b.html)
