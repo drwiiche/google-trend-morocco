@@ -1,3 +1,13 @@
+### novak djokovic (N/A, Wed, 28 Aug 2024 18:50:00 -0700)
+
+- **US Open 2024: How to watch the Novak Djokovic vs. Laslo Djere tennis match 
+tonight**: [Link](https://sports.yahoo.com/us-open-2024-how-to-watch-the-novak-djokovic-vs-laslo-djere-tennis-match-tonight-181056573.html)
+- **What to watch at U.S. Open: Alcaraz, Sinner, and Swiatek headline second 
+day - The Athletic**: [Link](https://www.nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/)
+- **The U.S. Open begins under a cloud, after 1-seed Jannik Sinner is cleared 
+of doping**: [Link](https://www.npr.org/2024/08/26/g-s1-19491/us-open-jannik-sinner-doping)
+
+
 ### aymeric caron (N/A, Wed, 28 Aug 2024 14:20:00 -0700)
 
 - **Aymeric Caron (LFI) et un représentant musulman portent plainte contre le 
