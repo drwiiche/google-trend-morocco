@@ -1,3 +1,19 @@
+### inter vs atalanta (N/A, Fri, 30 Aug 2024 12:10:00 -0700)
+
+- **Serie A Week 3 line-ups: Inter vs. Atalanta**: [Link](https://football-italia.net/serie-a-week-3-line-ups-inter-vs-atalanta/)
+- **Three Key Atalanta Stars Risk Missing Inter Milan Serie A Clash**: [Link](https://sempreinter.com/2024/08/29/atalanta-stars-lookman-hien-zaniolo-risk-missing-inter-milan-clash/)
+- **Official Starting Lineups – Inter Milan Vs Atalanta: Lautaro Martinez & 
+Marcus Thuram Start**: [Link](https://sports.yahoo.com/official-starting-lineups-inter-milan-174200518.html)
+
+
+### plus belle la vie encore plus belle (N/A, Fri, 30 Aug 2024 12:10:00 -0700)
+
+- **Plus belle la vie, encore plus belle du vendredi 30 août 2024 - Episode 159**: [Link](https://www.tf1.fr/tf1/plus-belle-la-vie/videos/plus-belle-la-vie-encore-plus-belle-du-vendredi-30-aout-2024-episode-159-75980250.html)
+- **Plus belle la vie en avance : ce qui vous attend dans l'épisode 160 du 
+lundi 2 septembre 2024 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000100473.html)
+- **PBLVEPB - [SPOILER] - Kilian s'enfonce dans son mensonge…**: [Link](https://www.tf1.fr/tf1/plus-belle-la-vie/videos/pblvepb-spoiler-kilian-senfonce-dans-son-mensonge-97146569.html)
+
+
 ### الجيش الملكي (N/A, Fri, 30 Aug 2024 12:00:00 -0700)
 
 - **استنفار في المريخ السوداني بسبب الجيش الملكي**: [Link](https://sport.lesiteinfo.com/elbotola/443587.html)
