@@ -1,3 +1,12 @@
+### inter - atalanta (N/A, Fri, 30 Aug 2024 12:50:00 -0700)
+
+- **LIVE Inter-Atalanta alle 20.45: Inzaghi conferma la ThuTa, Lautaro in 
+panchina**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/30-08-2024/inter-atalanta-live-la-cronaca-in-diretta-della-partita.shtml)
+- **Thuram al 90': "I gol? Ho imitato Barella. Grande prestazione contro un 
+avversario difficile"**: [Link](https://www.fcinternews.it/focus/thuram-al-90-i-gol-ho-imitato-barella-grande-prestazione-contro-un-avversario-difficile-962678)
+- **Inter: Marotta, rivincere è una questione di mentalità**: [Link](https://www.ansalatina.com/sito/notizie/sport/calcio/2024/08/30/inter-marotta-rivincere-e-una-questione-di-mentalita_c409fb31-5acd-4bab-9a32-10e78cf46ab9.html)
+
+
 ### lahlimi (N/A, Fri, 30 Aug 2024 13:30:00 -0700)
 
 - **Tout ce qu’il faut savoir sur le Recensement 2024 qui démarre ce dimanche**: [Link](https://lematin.ma/nation/tout-ce-quil-faut-savoir-sur-le-recensement-2024-qui-demarre-ce-dimanche/241025)
