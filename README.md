@@ -1,3 +1,12 @@
+### lahlimi (N/A, Fri, 30 Aug 2024 13:30:00 -0700)
+
+- **Tout ce qu’il faut savoir sur le Recensement 2024 qui démarre ce dimanche**: [Link](https://lematin.ma/nation/tout-ce-quil-faut-savoir-sur-le-recensement-2024-qui-demarre-ce-dimanche/241025)
+- **Budget, RSU, langue … : à la veille du RGPH 2024, Lahlimi fait un dernier 
+point**: [Link](https://ledesk.ma/2024/08/30/budget-rsu-langue-a-la-veille-du-rgph-2024-lahlimi-fait-un-dernier-point/)
+- **RGPH 2024: les principaux points de la conférence de presse d'Ahmed Lahlimi 
+Alami**: [Link](https://medias24.com/2024/08/30/rgph-2024-les-principaux-points-de-la-conference-de-presse-dahmed-lahlimi-alami/)
+
+
 ### benfica (N/A, Fri, 30 Aug 2024 14:20:00 -0700)
 
 - **Al Hilal formaliza proposta por Marcos Leonardo: Benfica continua a resistir**: [Link](https://www.abola.pt/futebol/noticias/al-hilal-formaliza-proposta-por-marcos-leonardo-benfica-continua-a-resistir-2024083013200064069)
