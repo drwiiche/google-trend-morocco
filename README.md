@@ -1,3 +1,12 @@
+### snrt (N/A, Fri, 30 Aug 2024 09:30:00 -0700)
+
+- **الحليمي يفجر تساؤلات بشأن خلفيات "الصراع" بين الحكومات ومندوبية التخطيط**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%84%D9%8A%D9%85%D9%8A-%D9%8A%D9%81%D8%AC%D8%B1-%D8%AA%D8%B3%D8%A7%D8%A4%D9%84%D8%A7%D8%AA-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AE%D9%84%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B5%D8%B1-1423556.html)
+- **بالفيديو: عشية انطلاق الإحصاء العام للسكان بالمغرب.. اكتشف مجالات الأسئلة 
+التي ستُطرح عليك**: [Link](https://ar.le360.ma/societe/4PO6DGDQAVF6PAGDJFS3YF6HTU/)
+- **ميزانية الإحصاء تصل مليار و460 مليون درهم وهذه هي الأسئلة التي ستوجه للأسر 
+– اليوم 24**: [Link](https://alyaoum24.com/1912757.html)
+
+
 ### victor osimhen (N/A, Fri, 30 Aug 2024 08:50:00 -0700)
 
 - **Chelsea await Victor Osimhen’s decision before advancing talks with Napoli 
