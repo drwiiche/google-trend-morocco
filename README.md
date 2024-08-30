@@ -1,3 +1,20 @@
+### nayef aguerd (N/A, Fri, 30 Aug 2024 15:20:00 -0700)
+
+- **Nayef Aguerd heads to Real Sociedad on loan**: [Link](https://www.whufc.com/news/nayef-aguerd-heads-real-sociedad-loan)
+- **“Advanced Talks” | Aguerd Finally Close to Departure**: [Link](https://www.claretandhugh.info/advanced-talks-aguerd-finally-close-to-departure/)
+- **Whether Wolves will make any more signings on Deadline Day after Carlos 
+Forbes now revealed**: [Link](https://www.molineux.news/transfer-news/whether-wolves-will-make-any-more-signings-on-deadine-day-after-carlos-forbes-now-revealed/)
+
+
+### maria angelina jolie (N/A, Fri, 30 Aug 2024 15:20:00 -0700)
+
+- **Venice Film Festival 2024: All Of Deadline’s Movie Reviews**: [Link](https://deadline.com/feature/venice-2024-movie-reviews-1236046290/)
+- **‘Maria’ Review: Angelina Jolie Is Commanding as Maria Callas in Pablo 
+Larraín’s Lavish but Overly Fatalistic Drama**: [Link](https://variety.com/2024/film/reviews/maria-review-angelina-jolie-pablo-larrain-maria-callas-venice-film-festival-1236121302/)
+- **Angelina Jolie Says She Shares 'Vulnerability' with Maria Callas at Venice: 
+'There's a Lot I Won't Say'**: [Link](https://people.com/venice-film-festival-2024-angelina-jolie-maria-callas-vulnerability-8703821)
+
+
 ### inter - atalanta (N/A, Fri, 30 Aug 2024 12:50:00 -0700)
 
 - **LIVE Inter-Atalanta alle 20.45: Inzaghi conferma la ThuTa, Lautaro in 
