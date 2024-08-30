@@ -1,3 +1,10 @@
+### nomination conseil de gouvernement (N/A, Fri, 30 Aug 2024 05:20:00 -0700)
+
+- **Conseil de gouvernement : trois nouvelles nominations à de hautes fonctions**: [Link](https://lematin.ma/nation/conseil-de-gouvernement-trois-nouvelles-nominations-a-de-hautes-fonctions/240845)
+- **Conseil de gouvernement : Trois nouvelles nominations à de hautes fonctions**: [Link](https://www.lavieeco.com/pouvoirs/conseil-de-gouvernement-trois-nouvelles-nominations-a-de-hautes-fonctions-3/)
+- **Nominations à des fonctions supérieures**: [Link](https://www.leconomiste.com/flash-infos/nominations-des-fonctions-superieures-2)
+
+
 ### rolstoelbasketbal paralympische spelen (N/A, Fri, 30 Aug 2024 02:40:00 -0700)
 
 - **Rolstoelbasketbalster Ylonne Post (22) maakt paralympisch debuut: 'Knijp 
