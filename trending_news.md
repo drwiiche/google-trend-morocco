@@ -1,3 +1,12 @@
+### carlos alcaraz (N/A, Thu, 29 Aug 2024 21:20:00 -0700)
+
+- **Carlos Alcaraz no se encuentra en Nueva York y firma su peor resultado en 
+'Grand Slam' en tres años**: [Link](https://www.marca.com/tenis/us-open/2024/08/30/66d135bd22601d587c8b457e.html)
+- **Derrota sorpresa, un problema menos para Alcaraz en el US Open**: [Link](https://www.mundodeportivo.com/tenis/20240829/1002306482/derrota-sorpresa-problema-alcaraz-us-open.html)
+- **¿Quién es Botic van de Zandschulp? El holandés que será rival de Alcaráz en 
+Us Open**: [Link](https://record.com.do/tenis/quien-es-botic-van-de-zandschulp-el-holandes-que-sera-rival-de-alcaraz-en-us-open-189082.html)
+
+
 ### wheelchair basketball paralympics (N/A, Thu, 29 Aug 2024 16:20:00 -0700)
 
 - **Paris 2024 Paralympic Games Opening Ceremony: Preview, how to watch, plus 
