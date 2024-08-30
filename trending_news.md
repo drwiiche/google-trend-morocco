@@ -1,3 +1,11 @@
+### pegasus (N/A, Fri, 30 Aug 2024 07:00:00 -0700)
+
+- **Pegasus Airlines launches new connection between Istanbul and Bremen**: [Link](https://aviation.direct/en/Pegasus-Airlines-launches-new-connection-between-Istanbul-and-Bremen)
+- **Nike releases FSU running shoe to celebrate start of college football season**: [Link](https://sports.yahoo.com/nike-releases-fsu-running-shoe-140254050.html)
+- **Michigan State Football News: Spartans Kick Off 2024 Season with New Coach 
+and Nike Sneaker**: [Link](https://athlonsports.com/college/inside-spartans/michigan-state-football-news-spartans-kick-off-2024-season-with-new-coach-and-nike-sneaker-aw1)
+
+
 ### ps5 pro (N/A, Fri, 30 Aug 2024 04:50:00 -0700)
 
 - **PS5 Pro: the latest on rumored specs, price, and release date speculation**: [Link](https://www.techradar.com/news/ps5-pro)
