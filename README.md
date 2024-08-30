@@ -1,3 +1,11 @@
+### wydad (N/A, Fri, 30 Aug 2024 10:00:00 -0700)
+
+- **Mercato : le Wydad parvient à lever l’interdiction de recrutement, à la 
+veille du coup d’envoi de la Botola**: [Link](https://lematin.ma/sports/mercato-le-wydad-parvient-a-lever-linterdiction-de-recrutement/240991)
+- **Officiel: levée d’interdiction de recrutement pour le Wydad de Casablanca**: [Link](https://sport.le360.ma/botola-pro-1/officiel-levee-dinterdiction-de-recrutement-pour-le-wydad-de-casablanca-114067)
+- **Qui est Pedrinho, le nouveau joueur brésilien du WAC ?**: [Link](https://www.lesiteinfo.com/sport/625626-qui-est-pedrinho-le-nouveau-joueur-bresilien-du-wac.html)
+
+
 ### snrt (N/A, Fri, 30 Aug 2024 09:30:00 -0700)
 
 - **الحليمي يفجر تساؤلات بشأن خلفيات "الصراع" بين الحكومات ومندوبية التخطيط**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%84%D9%8A%D9%85%D9%8A-%D9%8A%D9%81%D8%AC%D8%B1-%D8%AA%D8%B3%D8%A7%D8%A4%D9%84%D8%A7%D8%AA-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AE%D9%84%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B5%D8%B1-1423556.html)
