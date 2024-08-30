@@ -1,3 +1,11 @@
+### وزارة الأوقاف والشؤون الإسلامية (N/A, Fri, 30 Aug 2024 05:40:00 -0700)
+
+- **وزارة الأوقاف تقر اجراءات مشددة للراغبين في الحج لتفادي سيناريو السنة 
+الماضية**: [Link](https://agadir24.info/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%AA%D9%82%D8%B1-%D8%A7%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D9%85%D8%B4%D8%AF%D8%AF%D8%A9-%D9%84%D9%84%D8%B1%D8%A7%D8%BA/)
+- **مصاريف الحج بالمغرب: 65 ألف درهم**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%A7%D8%B1%D9%8A%D9%81-%D8%A7%D9%84%D8%AD%D8%AC-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-65-%D8%A3%D9%84%D9%81-%D8%AF%D8%B1%D9%87%D9%85-1420369.html)
+- **الأوقاف تتشدد مع الراغبين في الحج**: [Link](https://assabah.ma/796225.html)
+
+
 ### pegasus (N/A, Fri, 30 Aug 2024 07:00:00 -0700)
 
 - **Pegasus Airlines launches new connection between Istanbul and Bremen**: [Link](https://aviation.direct/en/Pegasus-Airlines-launches-new-connection-between-Istanbul-and-Bremen)
