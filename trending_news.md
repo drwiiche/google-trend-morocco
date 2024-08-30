@@ -1,3 +1,19 @@
+### الإنتر ضد أتالانتا (N/A, Fri, 30 Aug 2024 12:10:00 -0700)
+
+- **الرسم التكتيكي لتشكيلة إنتر ميلان أمام أتالانتا في الكالتشيو**: [Link](https://hihi2.com/2024/08/30/p2823000.html)
+- **ترقب لموقف سعود.. روما الجريح يتحدى انطلاقة يوفنتوس**: [Link](https://www.kooora.com/?n=1351198)
+- **يلا شوت MGA4K الإنتر.. بدون تقطيع مشاهدة مباراة انتر ميلان واتلانتا اليوم 
+بث مباشر تويتر في الدوري الإيطالي**: [Link](https://real.alsaudinews.com/150499/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-mga4k-%D8%A7%D9%84%D8%A5%D9%86%D8%AA%D8%B1-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7/)
+
+
+### fenerbahçe – alanyaspor (N/A, Fri, 30 Aug 2024 10:50:00 -0700)
+
+- **Help raise £500 to [JUSTIN@TV!!]＊Fenerbahçe Alanyaspor Maçı Canlı izle 30 
+Ağustos 2024**: [Link](https://www.justgiving.com/crowdfunding/histate-downww)
+- **Jose Mourinho'dan Amrabat yanıtı**: [Link](https://www.ntvspor.net/futbol/jose-mourinho-dan-amrabat-yaniti-66d1ffb3ec7add04396e1086)
+- **Kadıköy'de 30 Ağustos coşkuyla kutlandı**: [Link](https://www.ntv.com.tr/galeri/sporskor/kadikoyde-30-agustos-coskuyla-kutlandi,oPihsJBHlkymXVUCCicW2g)
+
+
 ### inter vs atalanta (N/A, Fri, 30 Aug 2024 12:10:00 -0700)
 
 - **Serie A Week 3 line-ups: Inter vs. Atalanta**: [Link](https://football-italia.net/serie-a-week-3-line-ups-inter-vs-atalanta/)
