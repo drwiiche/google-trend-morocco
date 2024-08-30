@@ -1,3 +1,19 @@
+### البطولة (N/A, Fri, 30 Aug 2024 11:00:00 -0700)
+
+- **عجلة بطولة المغرب لكرة القدم تشرع في الدوران بطموحات وتحديات متعددة**: [Link](https://www.hespress.com/%D8%B9%D8%AC%D9%84%D8%A9-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7-1422651.html)
+- **البطولة الإحترافية1..الدفاع الجديدي يكتفي بالتعادل أمام شباب السوالم**: [Link](https://www.almountakhab.com/node/16203699)
+- **البطولة الاحترافية/ الدفاع الجديدي وشباب السوالم يقصان شريط الموسم الجديد 
+يومه الجمعة**: [Link](https://m.elbotola.com/article/2024-08-30-09-32-993.html)
+
+
+### inter – atalanta (N/A, Fri, 30 Aug 2024 10:50:00 -0700)
+
+- **Inter vs. Atalanta: Serie A Week 3 official line-ups**: [Link](https://football-italia.net/serie-a-week-3-line-ups-inter-vs-atalanta/)
+- **Official Starting Lineups – Inter Milan Vs Atalanta: Lautaro Martinez & 
+Marcus Thuram Start**: [Link](https://sports.yahoo.com/official-starting-lineups-inter-milan-174200518.html)
+- **Three Key Atalanta Stars Risk Missing Inter Milan Serie A Clash**: [Link](https://sempreinter.com/2024/08/29/atalanta-stars-lookman-hien-zaniolo-risk-missing-inter-milan-clash/)
+
+
 ### venezia – torino (N/A, Fri, 30 Aug 2024 10:10:00 -0700)
 
 - **Preview: Venezia vs. Torino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/venezia/preview/preview-venezia-vs-torino-prediction-team-news-lineups_551407.html)
