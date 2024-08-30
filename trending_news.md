@@ -1,3 +1,20 @@
+### kylian mbappé (N/A, Fri, 30 Aug 2024 02:50:00 -0700)
+
+- **Kylian Mbappé’s X Account Hacked with Bizarre, Inflammatory Posts**: [Link](https://www.moroccoworldnews.com/2024/08/364842/kylian-mbappes-x-account-hacked-with-bizarre-inflammatory-posts)
+- **Hackers tweet ‘F*ck Israel’ during takeover of soccer star Kylian Mbappe’s 
+account**: [Link](https://www.timesofisrael.com/liveblog_entry/hackers-tweet-fck-israel-during-brief-takeover-of-soccer-star-kylian-mbappes-account/)
+- **Kylian Mbappe X account hacked with Manchester United transfer claim made**: [Link](https://thepeoplesperson.com/2024/08/29/kylian-mbappe-x-account-hacked-with-manchester-united-transfer-claim-made-284785/)
+
+
+### alcaraz (N/A, Fri, 30 Aug 2024 00:10:00 -0700)
+
+- **Carlos Alcaraz no se encuentra en Nueva York y firma su peor resultado en 
+'Grand Slam' en tres años**: [Link](https://www.marca.com/tenis/us-open/2024/08/30/66d135bd22601d587c8b457e.html)
+- **Van de Zandschulp da el golpe de su vida y apea a un perdido Alcaraz del 
+Abierto de EEUU**: [Link](https://www.sport.es/es/noticias/us-open/alcaraz-eliminado-segunda-ronda-us-open-abierto-tenis-107525871)
+- **Desastre total de Carlos Alcaraz en el US Open**: [Link](https://as.com/tenis/us_open/desastre-total-de-carlos-alcaraz-en-el-us-open-n/)
+
+
 ### hibapress (N/A, Thu, 29 Aug 2024 22:40:00 -0700)
 
 - **مصرع طفل سقط من أعلى لعبة بـ"أكادير بـاي"**: [Link](https://ar.hibapress.com/details-545960.html)
