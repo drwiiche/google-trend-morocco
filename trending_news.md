@@ -1,3 +1,19 @@
+### مروة عبدالمنعم (N/A, Thu, 29 Aug 2024 16:50:00 -0700)
+
+- **بالفيديو - شابة تُحرج مروة عبد المنعم على الهواء**: [Link](https://www.lahamag.com/article/214182-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%B4%D8%A7%D8%A8%D8%A9-%D8%AA%D8%AD%D8%B1%D8%AC-%D9%85%D8%B1%D9%88%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%85%D9%86%D8%B9%D9%85-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%A1)
+- **مروة عبدالمنعم تتحدث عن الحجاب وتكشف تفاصيل عن التنمر الذي تعرضت له**: [Link](https://www.raialyoum.com/%D9%85%D8%B1%D9%88%D8%A9-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%85%D9%86%D8%B9%D9%85-%D8%AA%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%A8-%D9%88%D8%AA%D9%83%D8%B4%D9%81-%D8%AA/)
+- **«بتكلم مع ربنا وبقرأ رسايله».. مروة عبدالمنعم تريند وسائل التواصل بسبب 
+الحجاب (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3246445)
+
+
+### عصام صاصا (N/A, Thu, 29 Aug 2024 16:30:00 -0700)
+
+- **بالصور.. عصام صاصا يظهر ببدلة السجناء و"حلاقة ميري"**: [Link](https://www.alarabiya.net/culture-and-art/2024/08/29/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D8%B9%D8%B5%D8%A7%D9%85-%D8%B5%D8%A7%D8%B5%D8%A7-%D9%8A%D8%B7%D9%84-%D8%A8%D8%A8%D8%AF%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D8%AC%D9%86%D8%A7%D8%A1-%D9%88%D8%B4%D8%B9%D8%B1%D9%87-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B2%D9%8A%D8%B1%D9%88-)
+- **الحبس سنة للمطرب المصري عصام صاصا بقضية التزوير**: [Link](https://johinanews.com/article/252191)
+- **عضو بهيئة محكمة الجنايات لـ عصام صاصا: «أنت لسه لابس الكاب ليه؟» (تفاصيل 
+الجلسة)**: [Link](https://www.almasryalyoum.com/news/details/3248396)
+
+
 ### inoxtag (N/A, Thu, 29 Aug 2024 16:40:00 -0700)
 
 - **Après l’Everest, Inoxtag annonce son retour avec un colis mystère**: [Link](https://gensdinternet.fr/2024/08/29/apres-leverest-inoxtag-annonce-son-retour-avec-un-colis-mystere/)
