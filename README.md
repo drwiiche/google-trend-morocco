@@ -1,3 +1,21 @@
+### athlétisme jeux paralympiques (N/A, Fri, 30 Aug 2024 16:20:00 -0700)
+
+- **Jeux Paralympique 2024: Aymane El Haddaoui offre au Maroc sa première 
+médaille**: [Link](https://sport.le360.ma/athletisme/jeux-paralympique-2024-aymane-el-haddaoui-offre-au-maroc-sa-premiere-medaille-114092)
+- **Jeux paralympiques: Le Marocain Aymane El Haddaoui remporte la médaille 
+bronze**: [Link](https://fr.hespress.com/384059-jeux-paralympiques-le-marocain-aymane-el-haddaoui-remporte-la-medaille-bronze.html)
+- **Le Marocain Ayman El Haddaoui qualifié pour la finale du 100 m aux Jeux 
+paralympiques (Paris-2024)**: [Link](https://medias24.com/2024/08/30/le-marocain-ayman-el-haddaoui-qualifie-pour-la-finale-du-100-m-aux-jeux-paralympiques-paris-2024/)
+
+
+### athletics paralympics (N/A, Fri, 30 Aug 2024 16:20:00 -0700)
+
+- **Paralympics schedule: Today's guide to key events & GB medal hopes at Paris 
+2024**: [Link](https://www.bbc.com/sport/articles/cg4y131ge2ko)
+- **Paris Paralympics 2024: day two – in pictures**: [Link](https://www.theguardian.com/sport/gallery/2024/aug/30/paris-paralympics-2024-day-two-in-pictures)
+- **Paris 2024: Para athletics and wheelchair tennis join the party on Day 2**: [Link](https://www.paralympic.org/paris-2024/news/day-two-preview)
+
+
 ### wydad athletic club (N/A, Fri, 30 Aug 2024 13:00:00 -0700)
 
 - **Mercato : le Wydad parvient à lever l’interdiction de recrutement, à la 
