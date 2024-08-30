@@ -1,3 +1,10 @@
+### خطبة الجمعة اليوم (N/A, Fri, 30 Aug 2024 06:20:00 -0700)
+
+- **بث مباشر.. شعائر خطبة الجمعة اليوم من الحرمين الشريفين**: [Link](https://www.elbalad.news/6307299)
+- **بث مباشر.. شعائر صلاة الجمعة من المسجد الحرام .. فيديو**: [Link](https://www.akhbarkalaan.com/uncategorized/209893/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%B9%D8%A7%D8%A6%D8%B1-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D8%AF-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D9%85--%D9%81%D9%8A%D8%AF%D9%8A%D9%88---%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1%D9%83-%D8%A7%D9%84%D8%A7%D9%86.html)
+- **بث مباشر.. شعائر صلاة الجمعة من المسجد النبوي الشريف .. فيديو**: [Link](https://blogksa.com/uncategorized/66435/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%B9%D8%A7%D8%A6%D8%B1-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D8%AF-%D8%A7%D9%84%D9%86%D8%A8%D9%88%D9%8A-%D8%A7%D9%84%D8%B4%D8%B1%D9%8A%D9%81--%D9%81%D9%8A%D8%AF%D9%8A%D9%88---%D8%AA%D8%AF%D9%88%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A.html)
+
+
 ### nomination conseil de gouvernement (N/A, Fri, 30 Aug 2024 05:20:00 -0700)
 
 - **Conseil de gouvernement : trois nouvelles nominations à de hautes fonctions**: [Link](https://lematin.ma/nation/conseil-de-gouvernement-trois-nouvelles-nominations-a-de-hautes-fonctions/240845)
