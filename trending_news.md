@@ -1,3 +1,11 @@
+### الجيش الملكي (N/A, Fri, 30 Aug 2024 12:00:00 -0700)
+
+- **استنفار في المريخ السوداني بسبب الجيش الملكي**: [Link](https://sport.lesiteinfo.com/elbotola/443587.html)
+- **خطوة غريبة من مدرب المريخ السوداني قبل مواجهة الجيش الملكي**: [Link](http://ar.sport.le360.ma/ldc-afrique/158127)
+- **المريخ السوداني يضيف 3 لاعبين جدد إلى قائمته الأفريقية قبل مواجهة الجيش 
+الملكي في عصبة الأبطال**: [Link](https://m.elbotola.com/article/2024-08-27-19-02-693.html)
+
+
 ### lyon – strasbourg (N/A, Fri, 30 Aug 2024 11:30:00 -0700)
 
 - **Ligue 1 : L'OL en 3-5-2 contre Strasbourg avec le duo Lacazette-Mikautadze**: [Link](https://www.lequipe.fr/Football/Actualites/L-ol-en-3-5-2-contre-strasbourg-avec-le-duo-lacazette-mikautadze/1504582)
