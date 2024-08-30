@@ -1,3 +1,20 @@
+### البطائح ضد العين (N/A, Fri, 30 Aug 2024 07:10:00 -0700)
+
+- **مدرب العين: لن نفكر في الماضي.. نحن بصدد كتابة تاريخ جديد**: [Link](https://m.kooora.com/?n=1351239&pg=1&o=n)
+- **اختبارات متباينة للعين والوحدة وشباب الأهلي**: [Link](https://www.emaratalyoum.com/sports/local/2024-08-30-1.1878421)
+- **القنوات الناقلة لمباراة العين اليوم ضد البطائح في الدوري الإماراتي مع 
+الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/809110568562738-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A8%D8%B7%D8%A7%D8%A6%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### paralympiques 2024 (N/A, Fri, 30 Aug 2024 06:20:00 -0700)
+
+- **DIRECT. Jeux Paralympiques : suivez la journée du 30 août**: [Link](https://www.lequipe.fr/Tous-sports/actu-en-direct/jeux-paralympiques-live/11576)
+- **Jeux Paralympiques 2024 : Le tableau des médailles remportées par pays et 
+par athlète ce jeudi 29 août**: [Link](https://www.20minutes.fr/sport/4107625-20240829-jeux-paralympiques-2024-tableau-medailles-remportees-pays-athlete-jeudi-29-aout)
+- **Marie Patouillet médaillée aux Jeux paralympiques : sa femme Soraya n’est 
+pas une inconnue**: [Link](https://www.gala.fr/l_actu/news_de_stars/marie-patouillet-medaillee-aux-jeux-paralympiques-sa-femme-soraya-nest-pas-une-inconnue_550937)
+
+
 ### وزارة الأوقاف والشؤون الإسلامية (N/A, Fri, 30 Aug 2024 05:40:00 -0700)
 
 - **وزارة الأوقاف تقر اجراءات مشددة للراغبين في الحج لتفادي سيناريو السنة 
