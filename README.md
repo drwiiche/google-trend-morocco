@@ -1,3 +1,10 @@
+### hibapress (N/A, Thu, 29 Aug 2024 22:40:00 -0700)
+
+- **مصرع طفل سقط من أعلى لعبة بـ"أكادير بـاي"**: [Link](https://ar.hibapress.com/details-545960.html)
+- **فضاء ألعاب “غير مرخص” ينهي حياة طفل بأكادير**: [Link](https://al3omk.com/960917.html)
+- **قطعة من لعبة تنهي حياة طفل قادم من فرنسا بأكادير.**: [Link](https://agadir24.info/%D9%82%D8%B7%D8%B9%D8%A9-%D9%85%D9%86-%D9%84%D8%B9%D8%A8%D8%A9-%D8%AA%D9%86%D9%87%D9%8A-%D8%AD%D9%8A%D8%A7%D8%A9-%D8%B7%D9%81%D9%84-%D9%82%D8%A7%D8%AF%D9%85-%D9%85%D9%86-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/)
+
+
 ### jadon sancho (N/A, Thu, 29 Aug 2024 21:30:00 -0700)
 
 - **Jadon Sancho holds out hope for Chelsea offer as Juventus wait in wings**: [Link](https://www.theguardian.com/football/article/2024/aug/28/jadon-sancho-holds-out-hope-for-chelsea-offer-as-juventus-wait-in-wings)
