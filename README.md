@@ -1,3 +1,26 @@
+### real sociedad (N/A, Fri, 30 Aug 2024 12:50:00 -0700)
+
+- **Mikel Merino | Players | Men**: [Link](https://www.arsenal.com/men/players/mikel-merino)
+- **Arsenal sign Spain midfielder Mikel Merino from Real Sociedad**: [Link](https://www.bbc.com/sport/football/articles/c89wqwdk5qeo)
+- **Arsenal reach Mikel Merino agreement with Real Sociedad - The Athletic**: [Link](https://www.nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/)
+
+
+### inter milan (N/A, Fri, 30 Aug 2024 12:10:00 -0700)
+
+- **Official – Argentina U-20 Star Completes Inter Milan Transfer**: [Link](https://sempreinter.com/2024/08/30/official-tomas-palacios-joins-inter-milan-five-year-deal/)
+- **Official: Palacios joins Inter**: [Link](https://football-italia.net/official-palacios-joins-inter/)
+- **Tiago Tomás Palacios joins Inter**: [Link](https://www.inter.it/en/news/tiago-tomas-palacios-joins-inter)
+
+
+### الوداد (N/A, Fri, 30 Aug 2024 11:50:00 -0700)
+
+- **بتواجد الوافدين الجدد.. موكوينا يكشف عن قائمته لأول مباراة مع الوداد ضمن 
+البطولة الاحترافية**: [Link](https://m.elbotola.com/article/2024-08-30-10-15-264.html)
+- **الماص يلعب مباراته أمام الوداد محروما من اللاعبين الجدد بسبب عدم تسويته 
+نزاعات عالقة**: [Link](https://aljarida24.ma/p/actualites/286400/)
+- **موكوينا إختار لائحته لمواجهة نمور فاس اليوم في البطولة**: [Link](https://www.almountakhab.com/node/13203687)
+
+
 ### الجريدة الرسمية (N/A, Fri, 30 Aug 2024 12:30:00 -0700)
 
 
