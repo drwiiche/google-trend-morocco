@@ -1,3 +1,18 @@
+### lyon – strasbourg (N/A, Fri, 30 Aug 2024 11:30:00 -0700)
+
+- **Ligue 1 : L'OL en 3-5-2 contre Strasbourg avec le duo Lacazette-Mikautadze**: [Link](https://www.lequipe.fr/Football/Actualites/L-ol-en-3-5-2-contre-strasbourg-avec-le-duo-lacazette-mikautadze/1504582)
+- **Ligue 1. Racing : Sebas remplace Sobol dans un groupe élargi de 23 joueurs**: [Link](https://www.dna.fr/sport/2024/08/29/racing-sebas-remplace-sobol-dans-un-groupe-elargi-de-23-joueurs)
+- **Lyon-Strasbourg : Anthony Lopes absent du groupe, Cherki également**: [Link](https://www.lefigaro.fr/sports/football/ligue-1/lyon-strasbourg-anthony-lopes-absent-du-groupe-cherki-egalement-20240830)
+
+
+### fenerbahçe (N/A, Fri, 30 Aug 2024 11:30:00 -0700)
+
+- **Help raise £500 to [JUSTIN@TV!!]＊Fenerbahçe Alanyaspor Maçı Canlı izle 30 
+Ağustos 2024**: [Link](https://www.justgiving.com/crowdfunding/histate-downww)
+- **Jose Mourinho'dan Amrabat yanıtı**: [Link](https://www.ntvspor.net/futbol/jose-mourinho-dan-amrabat-yaniti-66d1ffb3ec7add04396e1086)
+- **Kadıköy'de bayram havası!**: [Link](https://spor.haber7.com/foto-galeri/87563-kadikoyde-bayram-havasi)
+
+
 ### البطولة (N/A, Fri, 30 Aug 2024 11:00:00 -0700)
 
 - **عجلة بطولة المغرب لكرة القدم تشرع في الدوران بطموحات وتحديات متعددة**: [Link](https://www.hespress.com/%D8%B9%D8%AC%D9%84%D8%A9-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7-1422651.html)
