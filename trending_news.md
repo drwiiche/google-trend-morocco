@@ -1,3 +1,12 @@
+### wheelchair basketball paralympics (N/A, Thu, 29 Aug 2024 16:20:00 -0700)
+
+- **Paris 2024 Paralympic Games Opening Ceremony: Preview, how to watch, plus 
+highlights of first two days of competition**: [Link](https://olympics.com/en/news/paris-2024-paralympic-games-opening-ceremony-preview-how-to-watch)
+- **A Parisian Found Patriotism as He Designed Paralympics Costumes**: [Link](https://www.nytimes.com/2024/08/28/style/paralympics-opening-ceremony-designer.html)
+- **All the ways to watch the 2024 Paris Paralympics: TV and stream info, 
+schedule**: [Link](https://www.nbcolympics.com/news/all-ways-watch-2024-paris-paralympics-tv-and-stream-info-schedule)
+
+
 ### t (N/A, Thu, 29 Aug 2024 20:00:00 -0700)
 
 - **Harris explains in exclusive CNN interview why she’s shifted her position 
