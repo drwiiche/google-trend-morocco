@@ -1,3 +1,11 @@
+### benfica (N/A, Fri, 30 Aug 2024 14:20:00 -0700)
+
+- **Al Hilal formaliza proposta por Marcos Leonardo: Benfica continua a resistir**: [Link](https://www.abola.pt/futebol/noticias/al-hilal-formaliza-proposta-por-marcos-leonardo-benfica-continua-a-resistir-2024083013200064069)
+- **E os Meninos da Vila? Veja como está trio de atacantes vendido pelo Santos 
+para clubes da Europa**: [Link](https://ge.globo.com/sp/santos-e-regiao/futebol/times/santos/noticia/2024/08/29/e-os-meninos-da-vila-veja-como-esta-trio-de-atacantes-vendido-pelo-santos-para-clubes-da-europa.ghtml)
+- **Bggbet**: [Link](https://www.jornaldaregiaoonline.com.br/bmw/2024-Bggbet-0827.shtm)
+
+
 ### الدوري المغربي (N/A, Fri, 30 Aug 2024 13:10:00 -0700)
 
 - **الجيش يزور شباك المحمدية خمس مرات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%8A%D8%B2%D9%88%D8%B1-%D8%B4%D8%A8%D8%A7%D9%83-%D8%A7%D9%84%D9%85%D8%AD%D9%85%D8%AF%D9%8A%D8%A9-%D8%AE%D9%85%D8%B3-%D9%85%D8%B1%D8%A7%D8%AA-1423662.html)
