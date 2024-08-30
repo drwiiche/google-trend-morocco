@@ -1,3 +1,11 @@
+### weather (N/A, Thu, 29 Aug 2024 22:40:00 -0700)
+
+- **September Weather Changes You Can Expect**: [Link](https://weather.com/science/weather-explainers/news/2024-08-26-september-weather-typical-changes)
+- **Colorado is now above 50 days with daytime high temperature readings of 90 
+or higher**: [Link](https://www.cbsnews.com/colorado/news/colorado-90-degree-daytime-high-temperatures-hot-year-trend/)
+- **The monsoon persists — but the long term pattern is warm and dry**: [Link](https://www.telluridenews.com/news/article_6b919e30-62f9-11ef-b2f5-b7a012c625a0.html)
+
+
 ### carlos alcaraz (N/A, Thu, 29 Aug 2024 21:20:00 -0700)
 
 - **Carlos Alcaraz no se encuentra en Nueva York y firma su peor resultado en 
