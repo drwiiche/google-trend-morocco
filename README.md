@@ -1,3 +1,11 @@
+### jadon sancho (N/A, Thu, 29 Aug 2024 21:30:00 -0700)
+
+- **Jadon Sancho holds out hope for Chelsea offer as Juventus wait in wings**: [Link](https://www.theguardian.com/football/article/2024/aug/28/jadon-sancho-holds-out-hope-for-chelsea-offer-as-juventus-wait-in-wings)
+- **Juventus pull out of race for Man Utd star with Chelsea still 'trying' to 
+complete huge deadline day deal**: [Link](https://www.football365.com/news/man-utd-juventus-pull-out-sancho-transfer-chelsea-deadline-day-deal)
+- **Sources: Utd, Chelsea talk Sancho, Sterling deal**: [Link](https://www.espn.com/soccer/story/_/id/41014436/man-united-chelsea-discuss-sancho-sterling-swap-deal-sources)
+
+
 ### météo (N/A, Thu, 29 Aug 2024 22:50:00 -0700)
 
 - **Averses orageuses, grêle et rafales de vent ce jeudi dans plusieurs 
