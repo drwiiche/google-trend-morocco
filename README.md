@@ -1,3 +1,10 @@
+### ps5 pro (N/A, Fri, 30 Aug 2024 04:50:00 -0700)
+
+- **PS5 Pro: the latest on rumored specs, price, and release date speculation**: [Link](https://www.techradar.com/news/ps5-pro)
+- **PS5 Pro Was an Open Secret at Gamescom 2024**: [Link](https://wccftech.com/ps5-pro-was-an-open-secret-at-gamescom-2024/)
+- **PlayStation 5 Pro Design Leaked - IGN Daily Fix**: [Link](https://www.ign.com/videos/playstation-5-pro-design-leaked-ign-daily-fix)
+
+
 ### خطبة الجمعة اليوم (N/A, Fri, 30 Aug 2024 06:20:00 -0700)
 
 - **بث مباشر.. شعائر خطبة الجمعة اليوم من الحرمين الشريفين**: [Link](https://www.elbalad.news/6307299)
