@@ -1,3 +1,17 @@
+### انجلينا جولي (N/A, Fri, 30 Aug 2024 12:20:00 -0700)
+
+- **أنجلينا جولي تخشى أن تخيّب أمل محبي الأوبرا وماريا كالاس**: [Link](https://www.aljazeera.net/arts/2024/8/30/%D8%A3%D9%86%D8%AC%D9%84%D9%8A%D9%86%D8%A7-%D8%AC%D9%88%D9%84%D9%8A-%D8%AA%D8%AE%D8%B4%D9%89-%D8%A3%D9%86-%D8%AA%D8%AE%D9%8A%D8%A8-%D8%A3%D9%85%D9%84-%D9%85%D8%AD%D8%A8%D9%8A)
+- **مجوهرات عجيبة في إطلالة أنجلينا جولي... تتفتح كالورود**: [Link](https://www.lahamag.com/article/214224-%D9%85%D8%AC%D9%88%D9%87%D8%B1%D8%A7%D8%AA-%D8%B9%D8%AC%D9%8A%D8%A8%D8%A9-%D9%81%D9%8A-%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A9-%D8%A3%D9%86%D8%AC%D9%84%D9%8A%D9%86%D8%A7-%D8%AC%D9%88%D9%84%D9%8A-%D8%AA%D8%AA%D9%81%D8%AA%D8%AD-%D9%83%D8%A7%D9%84%D9%88%D8%B1%D9%88%D8%AF)
+- **أنجلينا جولي تبكي تأثراً بعد عرض فيلمها ماريا بمهرجان فينيسيا**: [Link](https://arabic.cnn.com/entertainment/article/2024/08/30/angelina-jolie-cried-emotionally-after-the-screening-of-her-film-maria-in-venice)
+
+
+### botola 2 (N/A, Fri, 30 Aug 2024 12:10:00 -0700)
+
+- **أخوماش يرفض اللحاق بياسين بونو في الهلال**: [Link](https://www.almountakhab.com/node/16203658)
+- **مفاجأة..لاعب مميز في منتخب الأسود يقترب من مجاورة ياسين بونو في الهلال**: [Link](http://ar.sport.le360.ma/maroc/158109)
+- **إلياس اخوماش يرفض عرضا رسميا من الهلال السعودي - موقع كوول - gool**: [Link](https://achtari24.com/gool/2024/08/30/%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D8%AE%D9%88%D9%85%D8%A7%D8%B4-%D9%8A%D8%B1%D9%81%D8%B6-%D8%B9%D8%B1%D8%B6%D8%A7-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/)
+
+
 ### real sociedad (N/A, Fri, 30 Aug 2024 12:50:00 -0700)
 
 - **Mikel Merino | Players | Men**: [Link](https://www.arsenal.com/men/players/mikel-merino)
