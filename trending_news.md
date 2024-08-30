@@ -1,3 +1,10 @@
+### rappeur zola (N/A, Fri, 30 Aug 2024 14:40:00 -0700)
+
+- **Essonne : le rappeur Zola en garde à vue, après un refus d’obtempérer sur l’A6**: [Link](https://www.lefigaro.fr/faits-divers/essonne-le-rappeur-zola-en-garde-a-vue-apres-un-refus-d-obtemperer-sur-l-a6-20240829)
+- **Essonne : refus d’obtempérer, contrôlé à 200 km/h, le rappeur Zola, originaire d’Evry, en garde à vue**: [Link](https://www.le-republicain.fr/faits-divers/essonne-refus-dobtemperer-controle-a-200-km-h-le-rappeur-zola-originaire-devry-en-garde-a-vue)
+- **Essonne : le rappeur Zola placé en garde à vue après un refus d’obtempérer sous l'emprise de stupéfiants**: [Link](https://www.cnews.fr/faits-divers/2024-08-29/essonne-le-rappeur-zola-place-en-garde-vue-apres-un-refus-dobtemperer-alors)
+
+
 ### nayef aguerd (N/A, Fri, 30 Aug 2024 15:20:00 -0700)
 
 - **Nayef Aguerd heads to Real Sociedad on loan**: [Link](https://www.whufc.com/news/nayef-aguerd-heads-real-sociedad-loan)
