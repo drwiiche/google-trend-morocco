@@ -1,3 +1,13 @@
+### ice (N/A, Fri, 30 Aug 2024 03:40:00 -0700)
+
+- **'Law & Order: SVU' star Ice-T slams fan who thinks show has become too 
+'woke'**: [Link](https://www.foxnews.com/entertainment/law-order-svu-star-ice-t-slams-fan-thinks-show-become-too-woke)
+- **Ice T Got Asked If ‘Law & Order: SVU’ Will Go ‘Back to Normal’ After It 
+‘Started Going Woke.’ He Responded: ‘What the F Is Woke? Like I Give a F—‘**: [Link](https://variety.com/2024/tv/news/ice-t-shuts-down-claim-law-and-order-svu-woke-1236120848/)
+- **Ice-T reacts to fan saying 'Law & Order': SVU has gone 'woke': 'Lol like I 
+give a f‑‑‑'**: [Link](https://ew.com/ice-t-reacts-to-fan-saying-law-and-order-svu-has-gone-woke-8703577)
+
+
 ### kylian mbappé (N/A, Fri, 30 Aug 2024 02:50:00 -0700)
 
 - **Kylian Mbappé’s X Account Hacked with Bizarre, Inflammatory Posts**: [Link](https://www.moroccoworldnews.com/2024/08/364842/kylian-mbappes-x-account-hacked-with-bizarre-inflammatory-posts)
