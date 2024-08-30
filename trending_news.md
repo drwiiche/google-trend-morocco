@@ -1,3 +1,13 @@
+### rolstoelbasketbal paralympische spelen (N/A, Fri, 30 Aug 2024 02:40:00 -0700)
+
+- **Rolstoelbasketbalster Ylonne Post (22) maakt paralympisch debuut: 'Knijp 
+mezelf soms in de arm'**: [Link](https://www.gld.nl/sport/8194693/rolstoelbasketbalster-ylonne-post-22-maakt-paralympisch-debuut-knijp-mezelf-soms-in-de-arm)
+- **Aanvoerder Quinten Zantinge wil vlammen met Nederlands 
+rolstoelbasketbalteam: 'In Parijs laten zien wat we kunnen'**: [Link](https://meppelercourant.nl/sport/Aanvoerder-Quinten-Zantinge-wil-vlammen-met-Nederlands-rolstoelbasketbalteam-In-Parijs-laten-zien-wat-we-kunnen-29183032.html)
+- **Rolstoelbasketballer Frank uit Hellevoetsluis in actie tijdens de 
+Paralympische Spelen**: [Link](https://www.linqmedia.nl/nieuws/rolstoelbasketballer-frank-uit-hellevoetsluis-in-actie-tijdens-de-paralympische-spelen)
+
+
 ### مشروع قانون المسطرة الجنائية (N/A, Thu, 29 Aug 2024 22:40:00 -0700)
 
 - **المسطرة الجنائية الجديدة تمنع المجتمع المدني من وضع شكايات أمام القضاء بشأن 
