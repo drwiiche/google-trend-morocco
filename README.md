@@ -1,3 +1,22 @@
+### angelina jolie (N/A, Thu, 29 Aug 2024 17:40:00 -0700)
+
+- **Angelina Jolie is spotted with a new man sparking romance rumours as they 
+leave hotel in Venice together - so**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-13793543/angelina-jolie-dating-rumor-british-rapper-akala-venice.html)
+- **Angelina Jolie spotted with mystery man leaving Venice hotel—His sister is 
+a big star**: [Link](https://www.thenews.com.pk/latest/1225204-taylor-russell-turns-heads-in-sophisticated-strapless-dress-at-maria-premiere-venice-film-festival)
+- **Angelina Jolie Is Not Dating British Rapper Akala, Contrary To Reports**: [Link](https://www.tmz.com/2024/08/29/angelina-jolie-not-dating-british-rapper-akala/)
+
+
+### basket fauteuil jeux paralympiques (N/A, Thu, 29 Aug 2024 16:20:00 -0700)
+
+- **Jeux paralympiques de Paris 2024 | Mariska Beijer, basketteuse 
+néerlandaise, rêve de conserver son titre !**: [Link](https://olympics.com/fr/infos/jeux-paralympiques-de-paris-2024-mariska-beijer-basketteuse-neerlandaise-reve-de-conserver-son-titre)
+- **"On y va pour la médaille" : le Ponot Franck Bornerand fixe des ambitions 
+élevées à l'équipe de France de basket fauteuil**: [Link](https://www.leveil.fr/puy-en-velay-43000/sports/on-y-va-pour-la-medaille-le-ponot-franck-bornerand-fixe-des-ambitions-elevees-a-l-equipe-de-france-de-basket-fauteuil_14553523/)
+- **Paris 2024 : Le basket a débuté avec une victoire des vice-championnes 
+olympiques Chinoises**: [Link](https://www.postup.fr/2024/08/29/paris-2024-le-basket-a-debute-avec-une-victoire-des-vice-championnes-olympiques-chinoises/)
+
+
 ### مروة عبدالمنعم (N/A, Thu, 29 Aug 2024 16:50:00 -0700)
 
 - **بالفيديو - شابة تُحرج مروة عبد المنعم على الهواء**: [Link](https://www.lahamag.com/article/214182-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%B4%D8%A7%D8%A8%D8%A9-%D8%AA%D8%AD%D8%B1%D8%AC-%D9%85%D8%B1%D9%88%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%85%D9%86%D8%B9%D9%85-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%A1)
