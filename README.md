@@ -1,3 +1,13 @@
+### basket fauteuil jeux paralympiques programme (N/A, Fri, 30 Aug 2024 07:40:00 -0700)
+
+- **Jeux paralympiques 2024 : vingt ans après Athènes, le retour de l’équipe de 
+basket fauteuil**: [Link](https://www.lemonde.fr/sport/article/2024/08/30/jeux-paralympiques-2024-vingt-ans-apres-athenes-le-retour-de-l-equipe-de-basket-fauteuil_6299018_3242.html)
+- **Paris 2024 : Le basket a débuté avec une victoire des vice-championnes 
+olympiques Chinoises**: [Link](https://www.postup.fr/2024/08/29/paris-2024-le-basket-a-debute-avec-une-victoire-des-vice-championnes-olympiques-chinoises/)
+- **"On y va pour la médaille" : le Ponot Franck Bornerand fixe des ambitions 
+élevées à l'équipe de France de basket fauteuil**: [Link](https://www.leveil.fr/puy-en-velay-43000/sports/on-y-va-pour-la-medaille-le-ponot-franck-bornerand-fixe-des-ambitions-elevees-a-l-equipe-de-france-de-basket-fauteuil_14553523/)
+
+
 ### programme basket fauteuil jeux paralympiques (N/A, Fri, 30 Aug 2024 04:20:00 -0700)
 
 - **Jeux paralympiques 2024 : vingt ans après Athènes, le retour de l’équipe de 
