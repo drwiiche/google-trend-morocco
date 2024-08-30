@@ -1,3 +1,12 @@
+### t (N/A, Thu, 29 Aug 2024 20:00:00 -0700)
+
+- **Harris explains in exclusive CNN interview why she’s shifted her position 
+on key issues since her first run for president**: [Link](https://www.cnn.com/2024/08/29/politics/kamala-harris-tim-walz-cnntv/index.html)
+- **Key takeaways from Kamala Harris and Tim Walz’s first major TV interview**: [Link](https://www.aljazeera.com/news/2024/8/30/key-takeaways-from-kamala-harris-and-tim-walzs-first-major-tv-interview)
+- **Conservatives react to Kamala Harris' latest 'word salad' on climate change 
+'deadlines'**: [Link](https://www.foxnews.com/politics/conservatives-react-kamala-harris-latest-word-salad-climate-change-deadlines)
+
+
 ### angelina jolie (N/A, Thu, 29 Aug 2024 17:40:00 -0700)
 
 - **Angelina Jolie is spotted with a new man sparking romance rumours as they 
