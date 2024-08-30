@@ -1,3 +1,12 @@
+### film maria angelina jolie (N/A, Fri, 30 Aug 2024 16:40:00 -0700)
+
+- **This Biopic Could Be Angelina Jolie’s Oscar Comeback**: [Link](https://www.nytimes.com/2024/08/29/movies/maria-callas-biopic-angelina-jolie-venice.html)
+- **Angelina Jolie Needed 'Almost 7 Months' Of Training To Portray Famed Opera 
+Singer**: [Link](https://www.huffpost.com/entry/angelina-jolie-spills-on-almost-7-months-of-training-to-portray-famed-opera-singer_n_66d202f9e4b013957161c22e)
+- **Angelina Jolie Weeps Through Rapturous 8-Minute Venice Standing Ovation for 
+‘Maria,’ Launching Oscar Buzz**: [Link](https://variety.com/2024/film/festivals/angelina-jolie-weeps-maria-venice-standing-ovation-pablo-larrain-oscar-buzz-1236115537/)
+
+
 ### بارالمبياد ألعاب القوى (N/A, Fri, 30 Aug 2024 16:30:00 -0700)
 
 - **الحداوي يمنح المغرب ميدالية برونزية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D8%AF%D8%A7%D9%88%D9%8A-%D9%8A%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%8A%D8%AF%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D8%B1%D9%88%D9%86%D8%B2%D9%8A%D8%A9-1423667.html)
