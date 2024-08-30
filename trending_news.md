@@ -1,3 +1,11 @@
+### typhon shanshan (N/A, Fri, 30 Aug 2024 03:20:00 -0700)
+
+- **Planes abort landings as Typhoon Shanshan batters Japan**: [Link](https://www.bbc.com/news/videos/clyn88zvl04o)
+- **Planes struggle to land at Japan’s Fukuoka airport as Shanshan brings 
+strong winds, heavy rain**: [Link](https://www.yahoo.com/news/planes-struggle-land-japan-fukuoka-102351881.html)
+- **Japan Typhoon Shanshan: Evacuation alerts issued for parts of Tokyo**: [Link](https://www.independent.co.uk/asia/japan/japan-typhoon-shanshan-tracker-path-tokyo-b2604380.html)
+
+
 ### ice (N/A, Fri, 30 Aug 2024 03:40:00 -0700)
 
 - **'Law & Order: SVU' star Ice-T slams fan who thinks show has become too 
