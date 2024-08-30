@@ -1,3 +1,18 @@
+### victor osimhen (N/A, Fri, 30 Aug 2024 08:50:00 -0700)
+
+- **Chelsea await Victor Osimhen’s decision before advancing talks with Napoli 
+- The Athletic**: [Link](https://www.nytimes.com/athletic/5723540/2024/08/30/victor-osimhen-chelsea-napoli/)
+- **BREAKING: Saudi Arabian club Al Ahli reach agreement to sign Osimhen for 
+€80m**: [Link](https://thesun.ng/breaking-saudi-arabian-club-al-ahli-reach-agreement-to-sign-osimhen-for-e80m/)
+- **Chelsea’s management travel to Napoli to convince Victor Osimhen**: [Link](https://www.getfootballnewsfrance.com/2024/chelseas-management-travel-to-napoli-to-convince-victor-osimhen/)
+
+
+### osame sahraoui (N/A, Fri, 30 Aug 2024 08:10:00 -0700)
+
+- **Footballer Osame Sahraoui Switches to Moroccan National Team from Norway**: [Link](https://www.moroccoworldnews.com/2024/08/364850/footballer-osame-sahraoui-switches-to-moroccan-national-team-from-norway)
+- **Striker Osame Sahraoui switches football allegiance from Norway to Morocco**: [Link](https://en.yabiladi.com/articles/details/153526/striker-osame-sahraoui-switches-football.html)
+
+
 ### basket fauteuil jeux paralympiques programme (N/A, Fri, 30 Aug 2024 07:40:00 -0700)
 
 - **Jeux paralympiques 2024 : vingt ans après Athènes, le retour de l’équipe de 
