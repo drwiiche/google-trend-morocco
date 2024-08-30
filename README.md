@@ -1,3 +1,30 @@
+### météo (N/A, Thu, 29 Aug 2024 22:50:00 -0700)
+
+- **Averses orageuses, grêle et rafales de vent ce jeudi dans plusieurs 
+provinces**: [Link](https://ledesk.ma/encontinu/averses-orageuses-grele-et-rafales-de-vent-ce-jeudi-dans-plusieurs-provinces/)
+- **Alerte météo. Averses orageuses, grêle et rafales de vent dans plusieurs 
+provinces**: [Link](https://medias24.com/2024/08/29/alerte-meteo-averses-orageuses-grele-et-rafales-de-vent-dans-plusieurs-provinces/)
+- **Drâa-Oued Noun : les dernières précipitations ont apporté 25,5 millions de 
+m3 d’eau au barrage Mansour Eddahbi**: [Link](https://telquel.ma/instant-t/2024/08/27/draa-oued-noun-les-dernieres-precipitations-ont-apporte-255-millions-de-m3-deau-au-barrage-mansour-eddahbi_1890614/)
+
+
+### الطقس (N/A, Thu, 29 Aug 2024 22:50:00 -0700)
+
+- **نشرة إنذارية: زخات رعدية في عدة مناطق**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-1422969.html)
+- **سيناريوهات مقلقة حول حالة الطقس بالمغرب في هذا التاريخ**: [Link](https://www.analkhabar.com/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D9%85%D9%82%D9%84%D9%82%D8%A9-%D8%AD%D9%88%D9%84-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA/)
+- **نشرة إنذارية: زخات رعدية مصحوبة برياح وحبات برَد بهذه المناطق**: [Link](https://ar.hibapress.com/details-545679.html)
+
+
+### botola (N/A, Thu, 29 Aug 2024 22:50:00 -0700)
+
+- **Les clubs marocains lancent leur saison africaine avec une étape à Alger 
+dépourvue de fraternité**: [Link](https://sport.le360.ma/ldc-afrique/les-clubs-marocains-lancent-leur-saison-africaine-avec-une-etape-alger-depourvue-de-fraternite-114005)
+- **Botola : Le Wydad de Casablanca aspire à un rebond après une saison 
+décevante**: [Link](https://fr.hespress.com/383730-botola-le-wydad-de-casablanca-aspire-a-un-rebond-apres-une-saison-decevante.html)
+- **Après 16 ans d'absence, le CODM prêt à relever le défi de la Botola Pro D1 
+2024-2025**: [Link](https://www.menara.ma/fr/article/apres-16-ans-dabsence-le-codm-pret-a-relever-le-defi-de-la-botola-pro-d1-2024-2025)
+
+
 ### weather (N/A, Thu, 29 Aug 2024 22:40:00 -0700)
 
 - **September Weather Changes You Can Expect**: [Link](https://weather.com/science/weather-explainers/news/2024-08-26-september-weather-typical-changes)
