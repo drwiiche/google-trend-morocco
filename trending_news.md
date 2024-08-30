@@ -1,3 +1,11 @@
+### wydad athletic club (N/A, Fri, 30 Aug 2024 13:00:00 -0700)
+
+- **Mercato : le Wydad parvient à lever l’interdiction de recrutement, à la 
+veille du coup d’envoi de la Botola**: [Link](https://lematin.ma/sports/mercato-le-wydad-parvient-a-lever-linterdiction-de-recrutement/240991)
+- **La FIFA lève l'interdiction de recrutement du Wydad de Casablanca**: [Link](https://fr.hespress.com/384031-la-fifa-leve-linterdiction-de-recrutement-du-wydad-de-casablanca.html)
+- **Qui est Pedrinho, le nouveau joueur brésilien du WAC ?**: [Link](https://www.lesiteinfo.com/sport/625626-qui-est-pedrinho-le-nouveau-joueur-bresilien-du-wac.html)
+
+
 ### rappeur zola (N/A, Fri, 30 Aug 2024 14:40:00 -0700)
 
 - **Essonne : le rappeur Zola en garde à vue, après un refus d’obtempérer sur l’A6**: [Link](https://www.lefigaro.fr/faits-divers/essonne-le-rappeur-zola-en-garde-a-vue-apres-un-refus-d-obtemperer-sur-l-a6-20240829)
