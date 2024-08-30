@@ -1,3 +1,17 @@
+### venezia – torino (N/A, Fri, 30 Aug 2024 10:10:00 -0700)
+
+- **Preview: Venezia vs. Torino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/venezia/preview/preview-venezia-vs-torino-prediction-team-news-lineups_551407.html)
+- **Venezia 0-0 Torino: results, summary and goals**: [Link](https://en.as.com/resultados/futbol/italia/2024_2025/directo/regular_a_3_484273/)
+- **Venezia vs Torino Prediction, 8/30/2024 Serie A Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/venezia-vs-torino-prediction-8-30-2024-serie-a-soccer-pick-tips-and-odds.html)
+
+
+### gazoduc nigeria maroc (N/A, Fri, 30 Aug 2024 10:10:00 -0700)
+
+- **Finalisation de l’accord pour le projet du gazoduc Nigéria-Maroc**: [Link](https://mobile.telquel.ma/instant-t/2024/08/29/finalisation-de-laccord-pour-le-projet-du-gazoduc-nigeria-maroc_1891088/)
+- **Gazoduc Nigéria-Maroc : Validation des accords IGA et HGA du projet**: [Link](https://www.lavieeco.com/affaires/gazoduc-nigeria-maroc-validation-des-accords-iga-et-hga-du-projet/)
+- **Gazoduc Nigeria Maroc : l’accord intergouvernemental bientôt finalisé**: [Link](https://lematin.ma/nation/gazoduc-nigeria-maroc-laccord-intergouvernemental-bientot-finalise/240948)
+
+
 ### wydad (N/A, Fri, 30 Aug 2024 10:00:00 -0700)
 
 - **Mercato : le Wydad parvient à lever l’interdiction de recrutement, à la 
