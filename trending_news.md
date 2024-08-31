@@ -1,3 +1,10 @@
+### آرسنال ضد برايتون (N/A, Sat, 31 Aug 2024 04:10:00 -0700)
+
+- **تعديل وحيد في تشكيل آرسنال أمام برايتون**: [Link](https://m.kooora.com/?n=1351667&o=n)
+- **آرسنال يبحث عن رقم غائب في البريميرليج منذ 20 عاما**: [Link](https://hihi2.com/2024/08/31/p2823841.html)
+- **ساكا يبحث معادلة رقم تييري هنري الأسطوري مع آرسنال**: [Link](https://hihi2.com/2024/08/31/p2823839.html)
+
+
 ### anne claire coudray (N/A, Sat, 31 Aug 2024 03:50:00 -0700)
 
 - **Exclu. "Je lui ai envoyé un message" : Anne-Claire Coudray révèle ce 
