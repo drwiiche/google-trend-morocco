@@ -1,3 +1,11 @@
+### arsenal vs brighton (N/A, Sat, 31 Aug 2024 03:50:00 -0700)
+
+- **Arteta: ‘The commitment of the team is superb’ | Quotes | News**: [Link](https://www.arsenal.com/news/arteta-commitment-team-superb)
+- **Brighton boss praises Havertz ahead of tomorrow’s Emirates match “One of 
+the best”**: [Link](https://www.justarsenal.com/brighton-boss-praises-havertz-ahead-of-tomorrows-emirates-match-one-of-the-best/374660)
+- **Saturday’s Football Tips: High-flying Brighton face acid test at Arsenal**: [Link](https://mrfixitstips.co.uk/saturdays-football-tips-high-flying-brighton-face-acid-test-at-arsenal/)
+
+
 ### arsenal – brighton (N/A, Sat, 31 Aug 2024 03:40:00 -0700)
 
 - **Merino to miss Brighton game through injury | Team news | News**: [Link](https://www.arsenal.com/news/merino-miss-brighton-game-through-injury)
