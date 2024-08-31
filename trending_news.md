@@ -1,3 +1,18 @@
+### leicester – aston villa (N/A, Sat, 31 Aug 2024 06:20:00 -0700)
+
+- **Cooper: No Changes To Available Squad**: [Link](https://www.lcfc.com/news/4099617/cooper-no-changes-to-available-squad)
+- **Leicester v Aston Villa, Everton v Bournemouth: Premier League – live**: [Link](https://www.theguardian.com/football/live/2024/aug/31/leicester-v-aston-villa-everton-v-bournemouth-premier-league-live)
+- **Leicester v Aston Villa: Defender urges Villa to remember their bread and 
+butter**: [Link](https://www.expressandstar.com/sport/football/aston-villa/2024/08/30/leicester-v-aston-villa-defender-urges-villa-to-remember-their-bread-and-butter/)
+
+
+### ademola lookman (N/A, Sat, 31 Aug 2024 06:20:00 -0700)
+
+- **Transfer Talk: Chelsea consider late move for Ivan Toney**: [Link](https://www.espn.com/soccer/story/_/id/41019179/transfer-talk-chelsea-consider-late-move-ivan-toney)
+- **Lookman returns for Inter clash today**: [Link](https://punchng.com/lookman-returns-for-inter-clash-today/)
+- **Arsenal have found their Victor Osimhen alternative**: [Link](https://sixsports.in/arsenal-have-found-their-victor-osimhen-alternative/)
+
+
 ### r1c4 (N/A, Sat, 31 Aug 2024 05:10:00 -0700)
 
 - **Les Notes des partants du Quinté+ de ce samedi 31 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-samedi-31-aout)
