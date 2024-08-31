@@ -1,3 +1,21 @@
+### bernard cazeneuve premier ministre (N/A, Fri, 30 Aug 2024 22:20:00 -0700)
+
+- **« Pour Emmanuel Macron, nommer Bernard Cazeneuve à Matignon serait 
+implicitement acter le fait que le “nouveau monde” a échoué »**: [Link](https://www.lemonde.fr/politique/article/2024/08/31/pour-emmanuel-macron-nommer-bernard-cazeneuve-a-matignon-serait-implicitement-acter-le-fait-que-le-nouveau-monde-a-echoue_6300058_823448.html)
+- **Nouveau Premier ministre, en direct : un week-end décisif et une décision 
+imminente**: [Link](https://www.linternaute.com/actualite/politique/5537797-nouveau-premier-ministre-en-direct-macron-fixe-une-date-un-nom-deja-retenu/)
+- **Les Insoumis voteront la censure contre un gouvernement dirigé par Bernard 
+Cazeneuve, prévient Mathilde Panot**: [Link](https://www.lefigaro.fr/politique/les-insoumis-voteront-la-censure-contre-un-gouvernement-dirige-par-bernard-cazeneuve-previent-mathilde-panot-20240830)
+
+
+### atletiek paralympische spelen (N/A, Fri, 30 Aug 2024 19:40:00 -0700)
+
+- **Nienke Timmer 7e in de finale 100 meter T35 Paralympische Spelen**: [Link](https://www.runnersworld.com/nl/nieuws/a62015240/nienke-timmer-finale-100-meter-t35/)
+- **Hardlopen met een blade, hoe werkt dat eigenlijk?**: [Link](https://www.trouw.nl/sport/hardlopen-met-een-blade-hoe-werkt-dat-eigenlijk~b4f9ab5c/)
+- **Terugkijken: documentaire 'Willen is Kunnen' over paralympisch atlete Fleur 
+Jong**: [Link](https://www.nhnieuws.nl/nieuws/339865/terugkijken-documentaire-willen-is-kunnen-over-paralympisch-atlete-fleur-jong)
+
+
 ### julien arnaud (N/A, Fri, 30 Aug 2024 23:00:00 -0700)
 
 - **Exclu. "Je lui ai envoyé un message" : Anne-Claire Coudray révèle ce 
