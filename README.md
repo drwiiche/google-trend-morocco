@@ -1,3 +1,18 @@
+### prix jockey criterium 5 ans q2 (N/A, Sat, 31 Aug 2024 07:30:00 -0700)
+
+- **Les 3 tuyaux du Quinté+ du samedi 31 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-3-tuyaux-du-quinte-du-samedi-31-aout)
+- **Les pronos hippiques du samedi 31 août 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-31-aout-2024_AN-202408300581.html)
+- **Les pronostics Quinté du 31/08/2024 à Vincennes**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-31082024-a-vincennes-4264805)
+
+
+### leicester (N/A, Sat, 31 Aug 2024 07:10:00 -0700)
+
+- **Bilal El Khannouss Signs Four-Year Deal**: [Link](https://www.lcfc.com/news/4099581/bilal-el-khannouss-signs-fouryear-deal)
+- **Bilal El Khannouss: Leicester sign Morocco midfielder from Genk for £21m**: [Link](https://www.bbc.com/sport/football/articles/cn87z47qj20o)
+- **Morocco’s Bilal El Khannouss Set to Join Leicester City After Protracted 
+Transfer Saga**: [Link](https://www.moroccoworldnews.com/2024/08/364812/moroccos-bilal-el-khannouss-set-to-join-leicester-city-after-protracted-transfer-saga)
+
+
 ### barcelona - valladolid (N/A, Sat, 31 Aug 2024 07:20:00 -0700)
 
 - **Olmo se estrena como titular en un once con otra novedad ante el Valladolid**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240831/1002307671/olmo-estrena-titular-once-novedad-valladolid.html)
