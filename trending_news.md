@@ -1,3 +1,17 @@
+### طقس (N/A, Fri, 30 Aug 2024 23:00:00 -0700)
+
+- **زخات مطرية مهمة نهاية الأسبوع.. والطقس حار نسبيا في الجنوب الشرقي**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85%D9%87%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%88%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%AD-1423613.html)
+- **طقس الجمعة.. زخات مطرية متوقعة بهذه المناطق**: [Link](https://ar.hibapress.com/details-545958.html)
+- **اللهم أغثنا .. ترقب نزول قطرات مطرية وتسجيل هبات رياح قوية**: [Link](https://www.akhbarona.com/national/391267.html)
+
+
+### para athlétisme paris 2024 (N/A, Fri, 30 Aug 2024 20:50:00 -0700)
+
+- **Paris Paralympics 2024: day two – in pictures**: [Link](https://www.theguardian.com/sport/gallery/2024/aug/30/paris-paralympics-2024-day-two-in-pictures)
+- **Best photos from the Paris Paralympics: Day 2**: [Link](https://www.reuters.com/pictures/best-photos-paris-paralympics-day-2-2024-08-30/)
+- **Paris 2024: Big moments on Day 2**: [Link](https://www.paralympic.org/paris-2024/news/big-moments-day-two)
+
+
 ### طقس مراكش (N/A, Sat, 31 Aug 2024 01:30:00 -0700)
 
 - **زخات مطرية مهمة نهاية الأسبوع.. والطقس حار نسبيا في الجنوب الشرقي**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85%D9%87%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%88%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%AD-1423613.html)
