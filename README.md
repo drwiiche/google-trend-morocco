@@ -1,3 +1,10 @@
+### الطقس (N/A, Fri, 30 Aug 2024 23:00:00 -0700)
+
+- **مقاييس الأمطار بالمغرب خلال 24 ساعة**: [Link](https://www.akhbarona.com/national/391346.html)
+- **تزامنا مع الأمطار الأخيرة.. نشرات "أحوال الطقس" تثير فضول المغاربة**: [Link](https://ar.hibapress.com/details-545655.html)
+- **وجدة تسجل أعلى نسبة تساقطات مطرية بالمغرب**: [Link](https://zaiocity.net/2024/08/30/%D9%88%D8%AC%D8%AF%D8%A9-%D8%AA%D8%B3%D8%AC%D9%84-%D8%A3%D8%B9%D9%84%D9%89-%D9%86%D8%B3%D8%A8%D8%A9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85/)
+
+
 ### sterling (N/A, Fri, 30 Aug 2024 18:20:00 -0700)
 
 - **Raheem Sterling: Arsenal sign Chelsea forward on loan**: [Link](https://www.bbc.com/sport/football/articles/cevj7r81ggwo)
