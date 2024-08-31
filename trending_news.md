@@ -1,3 +1,10 @@
+### barcelona - valladolid (N/A, Sat, 31 Aug 2024 07:20:00 -0700)
+
+- **Olmo se estrena como titular en un once con otra novedad ante el Valladolid**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240831/1002307671/olmo-estrena-titular-once-novedad-valladolid.html)
+- **Posible alineación del Barça contra el Valladolid hoy en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-barca-contra-el-valladolid-hoy-en-laliga-ea-sports-n/)
+- **Casadó coge el relevo de Marc Bernal**: [Link](https://www.sport.es/es/noticias/barca/casado-coge-relevo-marc-bernal-107556261)
+
+
 ### barcelone – valladolid (N/A, Sat, 31 Aug 2024 07:00:00 -0700)
 
 - **Le onze de départ du Barça contre le Real Valladolid**: [Link](https://www.blaugranas.fr/match/le-onze-de-depart-du-barca-contre-le-real-valladolid-6590)
