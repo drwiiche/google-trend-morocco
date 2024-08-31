@@ -1,3 +1,43 @@
+### athletic club vs atlético madrid (N/A, Sat, 31 Aug 2024 10:10:00 -0700)
+
+- **Atletico boss Simeone in terse mood before Bilbao clash**: [Link](https://www.reuters.com/sports/soccer/atletico-boss-simeone-terse-mood-before-bilbao-clash-2024-08-30/)
+- **Preview: Athletic Bilbao vs. Atletico Madrid - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/preview/preview-athletic-bilbao-vs-atletico-prediction-team-news-lineups_551523.html)
+- **Preview: New-look Atlético has a major test to pass at San Mamés on Saturday**: [Link](https://www.intothecalderon.com/2024/8/30/24231503/athletic-bilbao-atletico-madrid-laliga-preview-how-to-watch-simeone-alvarez-nico-williams)
+
+
+### fatman scoop (N/A, Sat, 31 Aug 2024 10:10:00 -0700)
+
+- **Fatman Scoop dead at 53 after collapsing on stage in Connecticut**: [Link](https://abc7ny.com/post/rapper-dj-fatman-scoop-dead-53-after-collapsing-during-performance-connecticut/15252161/)
+- **Fatman Scoop New Video Shows Rapper Collapsing Onstage, Getting CPR**: [Link](https://www.tmz.com/2024/08/30/fatman-scoop-collapses-onstage-cpr/)
+- **Fatman Scoop DIES aged 53 after collapsing on stage mid-performance**: [Link](https://www.dailymail.co.uk/usshowbiz/article-13799609/Fatman-Scoop-DIES-53-collapsing-stage-Connecticut.html)
+
+
+### lamine yamal (N/A, Sat, 31 Aug 2024 10:10:00 -0700)
+
+- **El primer amago de lío desde que llegó: esto hizo Mbappé cuando Vinicius no 
+le pasó el balón**: [Link](https://as.com/videos/primera-division/el-primer-amago-de-incendio-desde-que-llego-esto-hizo-mbappe-cuando-vinicius-no-le-paso-el-balon-v/)
+- **"Voy a sancionar a Oyarzabal con tarjeta roja. Juego brusco grave": el 
+audio del VAR de Sánchez Martínez que confirmó la expulsión del capitán de 
+la Real Sociedad contra el Alavés**: [Link](https://www.dazn.com/es-ES/news/f%C3%BAtbol/sancionar-oyarzabal-tarjeta-roja-juego-brusco-grave-audio-var-sanchez-martinez-expulsion-real-sociedad-alaves/e2az20z1earn1kdpslwd0i2v8)
+- **Análisis arbitral: Acierta en la expulsión y el penalti**: [Link](https://nortexpres.com/analisis-arbitral-acierta-en-la-expulsion-y-el-penalti/)
+
+
+### البطولة (N/A, Sat, 31 Aug 2024 10:10:00 -0700)
+
+- **البطولة الاحترافية تنطلق على إيقاع "فضيحة" تحكيمية**: [Link](http://ar.sport.le360.ma/botola-pro-1/158176)
+- **الدفاع الجديدي يتعادل أمام السوالم**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D9%88%D8%A7%D9%84%D9%85-1423636.html)
+- **البطولة الإحترافية1..الدفاع الجديدي يكتفي بالتعادل أمام شباب السوالم**: [Link](https://www.almountakhab.com/node/16203699)
+
+
+### dani olmo (N/A, Sat, 31 Aug 2024 10:00:00 -0700)
+
+- **LaLiga explica el 'caso Dani Olmo': "Está inscrito hasta el 31 de diciembre"**: [Link](https://www.marca.com/futbol/barcelona/2024/08/30/66d22a23e2704e0a748b456e.html)
+- **La explicación oficial sobre cómo el Barça ha podido inscribir a Dani Olmo: 
+muchos no están conformes**: [Link](https://as.com/futbol/videos/dani-olmo-esta-inscrito-solo-hasta-el-31-de-diciembre-v/)
+- **LaLiga aclara la norma que permitió la inscripción de Olmo**: [Link](https://www.sport.es/es/noticias/barca/laliga-aclara-norma-permitio-inscripcion-107562377)
+
+
 ### liga (N/A, Sat, 31 Aug 2024 10:00:00 -0700)
 
 - **Financial relief for Barcelona? La Liga chief hints at brighter days**: [Link](https://www.football-espana.net/2024/08/30/financial-relief-barcelona-la-liga-chief)
