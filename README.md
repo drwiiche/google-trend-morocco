@@ -1,3 +1,17 @@
+### lazio vs milan (N/A, Sat, 31 Aug 2024 13:30:00 -0700)
+
+- **Player Ratings: Lazio 2-2 AC Milan – Emerson disaster; subs life-saving**: [Link](https://sempremilan.com/player-ratings-lazio-2-2-ac-milan-emerson)
+- **Lazio 2-2 Milan (Aug 31, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/712138)
+- **Christian Pulisic logs assist, Yunus Musah supports off bench as USMNT duo 
+help AC Milan to a point vs Lazio**: [Link](https://www.goal.com/en-us/lists/christian-pulisic-assist-yunus-musah-usmnt-milan-draw-lazio/blt5215b82e4973e30e)
+
+
+### osame sahraoui maroc (N/A, Sat, 31 Aug 2024 12:40:00 -0700)
+
+- **Footballer Osame Sahraoui Switches to Moroccan National Team from Norway**: [Link](https://www.moroccoworldnews.com/2024/08/364850/footballer-osame-sahraoui-switches-to-moroccan-national-team-from-norway)
+- **Striker Osame Sahraoui switches football allegiance from Norway to Morocco**: [Link](https://en.yabiladi.com/articles/details/153526/striker-osame-sahraoui-switches-football.html)
+
+
 ### villarreal (N/A, Sat, 31 Aug 2024 14:10:00 -0700)
 
 - **Valencia - Villarreal en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/valencia-villarreal/2024/08/31/01_0101_20240831_191_449-directo.html)
