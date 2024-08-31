@@ -1,3 +1,11 @@
+### sterling (N/A, Fri, 30 Aug 2024 18:20:00 -0700)
+
+- **Raheem Sterling: Arsenal sign Chelsea forward on loan**: [Link](https://www.bbc.com/sport/football/articles/cevj7r81ggwo)
+- **Transfer Deadline Day as it happened: Sancho to Chelsea, Sterling to 
+Arsenal deals pending**: [Link](https://www.espn.in/football/story/_/id/41004275/transfer-deadline-day-summer-2024-live-blog-news-gossip-updates)
+- **Arsenal sign Raheem Sterling on loan as Jadon Sancho agrees Chelsea move**: [Link](https://www.theguardian.com/football/article/2024/aug/30/transfer-latest-arsenal-bournemouth-neto-arteta)
+
+
 ### météo (N/A, Fri, 30 Aug 2024 23:00:00 -0700)
 
 - **Météo : Risque de violents orages la semaine prochaine au Maroc**: [Link](https://lematin.ma/regions/meteo-risque-de-violents-orages-la-semaine-prochaine-au-maroc/240990)
