@@ -1,3 +1,18 @@
+### لاتسيو ضد ميلان (N/A, Sat, 31 Aug 2024 12:30:00 -0700)
+
+- **ميلان يستعين بوافد جديد في التشكيل المتوقع أمام لاتسيو**: [Link](https://www.kooora.com/?n=1351663)
+- **يلا شوت twitter matches مشاهدة مباراة ميلان ولاتسيو اليوم بث مباشر تويتر 
+القنوات الناقلة**: [Link](https://real.alsaudinews.com/150990/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-twitter-matches-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D9%84%D8%A7%D8%AA%D8%B3%D9%8A/)
+- **قرارات صادمة و قوية من فونسيكا بخصوص التشكيلة الأساسية اليوم ضد لازيو**: [Link](https://milanreports.com/ar/2024/08/31/%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D9%88-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D9%86-%D9%81%D9%88%D9%86%D8%B3%D9%8A%D9%83%D8%A7/)
+
+
+### atletico madrid (N/A, Sat, 31 Aug 2024 12:00:00 -0700)
+
+- **Athletic vs Atletico prediction and betting tips on August 31, 2024**: [Link](https://ratingbet.com/predictions/athletic-vs-atletico-prediction-and-betting-tips-on-august-31-2024/)
+- **Football Bet of the Day: We can Basque in the glory of a home win**: [Link](https://onefootball.com/en/news/football-bet-of-the-day-we-can-basque-in-the-glory-of-a-home-win-39972872)
+- **Preview: New-look Atlético has a major test to pass at San Mamés on Saturday**: [Link](https://www.intothecalderon.com/2024/8/30/24231503/athletic-bilbao-atletico-madrid-laliga-preview-how-to-watch-simeone-alvarez-nico-williams)
+
+
 ### adana demirspor vs galatasaray (N/A, Sat, 31 Aug 2024 12:20:00 -0700)
 
 - **Preview: Adana Demirspor vs. Galatasaray - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/adana-demirspor/preview/preview-adana-demirspor-vs-galatasaray-prediction-team-news-lineups_551587.html)
