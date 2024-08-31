@@ -1,3 +1,30 @@
+### montpellier – nantes (N/A, Sat, 31 Aug 2024 10:30:00 -0700)
+
+- **DIRECT - FC Nantes : un déplacement pour confirmer à Montpellier**: [Link](https://www.francebleu.fr/sports/football/direct-fc-nantes-un-deplacement-pour-confirmer-a-montpellier-2996129)
+- **Der Zakarian pret à rebondir après la cinglante défaite face au PSG !**: [Link](https://www.football365.fr/der-zakarian-pret-a-rebondir-apres-la-cinglante-defaite-face-au-psg-10198699.html)
+- **[MHSC-FCN] Khalil Fayad : « Je me sens fort et prêt à jouer**: [Link](https://www.allezpaillade.com/mhsc-fcn/khalil-fayad-je-me-sens-fort-et-pret-a-jouer/)
+
+
+### leverkusen (N/A, Sat, 31 Aug 2024 10:30:00 -0700)
+
+- **Leverkusen's Tah to stay amid Barça, Bayern links**: [Link](https://www.espn.com/soccer/story/_/id/41055803/tah-stay-leverkusen-amid-barcelona-bayern-munich-links)
+- **Bayern Munich’s Max Eberl all good with transfer window performance**: [Link](https://www.bavarianfootballworks.com/2024/8/30/24232104/bayern-munich-max-eberl-all-good-with-transfer-window-performance-olise-plahinha-ito)
+- **Transfer Talk: Chelsea eyeing Osimhen loan deal**: [Link](https://www.espn.co.uk/football/story/_/id/41032869/transfer-talk-barcelona-chase-tah-deal-deadline)
+
+
+### leverkusen vs rb leipzig (N/A, Sat, 31 Aug 2024 10:30:00 -0700)
+
+- **Preview: Bayer Leverkusen vs. RB Leipzig - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/preview-bpoint-leverkusen-vs-rb-leipzig-prediction-team-news-lineups_551576.html)
+- **Bayer Leverkusen vs. RB Leipzig preview: A mouthwatering 'Topspiel'**: [Link](https://bulinews.com/bayer-leverkusen-leipzig-preview-mouthwatering-topspiel)
+- **Bundesliga Tips: Back BayArena battle to feature goals**: [Link](https://betting.betfair.com/football/german-football/bundesliga-tips-back-bayarena-battle-to-feature-goals-290824-140.html)
+
+
+### barcellona - valladolid (N/A, Sat, 31 Aug 2024 10:30:00 -0700)
+
+- **Barcellona-Valladolid, probabili formazioni e dove vederla**: [Link](https://www.sportpaper.it/barcellona-valladolid-probabili-formazioni-e-dove-vederla/2024/08/30/)
+- **Pronostici Liga: i nostri consigli per le gare della 4°giornata**: [Link](https://www.football-magazine.it/pronostici-liga-i-nostri-consigli-per-la-4giornata-di-campionato/)
+
+
 ### ترتيب الدوري الاسباني (N/A, Sat, 31 Aug 2024 10:20:00 -0700)
 
 - **التشكيلة المثالية للجولة الثالثة من الدوري الإسباني**: [Link](https://hihi2.com/2024/08/30/p2822890.html)
