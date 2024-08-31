@@ -1,3 +1,25 @@
+### archery paralympics (N/A, Sat, 31 Aug 2024 16:20:00 -0700)
+
+- **Tracy Otto: Paralysed by her ex-boyfriend, now a Paralympian**: [Link](https://www.bbc.com/sport/archery/articles/cp089q32yrqo)
+- **Five years after brutal attack severed her spine, Tracy Otto proudly calls 
+herself a Paralympian**: [Link](https://apnews.com/article/paralympics-archery-otto-8c082052fcb2766865bd00c3b14ee515)
+- **'I Never Thought That My Life Would Rise From the Ashes'**: [Link](https://www.newser.com/story/355304/an-ex-left-her-paralyzed-today-shes-a-paralympian.html)
+
+
+### avocat henri leclerc (N/A, Sat, 31 Aug 2024 16:20:00 -0700)
+
+
+
+
+### tir à l'arc jeux paralympiques (N/A, Sat, 31 Aug 2024 16:10:00 -0700)
+
+- **Jeux paralympiques : une para-archère indienne de 17 ans tire avec les 
+pieds et bat le record du monde**: [Link](https://www.lefigaro.fr/sports/jeux-olympiques/jeux-paralympiques-une-para-archere-indienne-de-17-ans-tire-avec-les-pieds-et-bat-le-record-du-monde-20240830)
+- **VIDÉO. Paralympiques de Paris 2024 : en tirant avec ses pieds, cette 
+para-archère de 17 ans bat le record du monde**: [Link](https://www.centrepresseaveyron.fr/2024/08/30/video-paralympiques-de-paris-2024-en-tirant-avec-ses-pieds-cette-para-archere-de-17-ans-bat-le-record-du-monde-12168030.php)
+- **Julie Rigault-Chupin, éliminée aux portes du carré final.**: [Link](https://www.ffta.fr/actualites/julie-rigault-chupin-eliminee-aux-portes-du-carre-final)
+
+
 ### ali bongo (N/A, Sat, 31 Aug 2024 15:40:00 -0700)
 
 - **Le Gabon célèbre le 1er anniversaire de la chute de la dynastie Bongo**: [Link](https://www.h24info.ma/le-gabon-celebre-le-1er-anniversaire-de-la-chute-de-la-dynastie-bongo/)
