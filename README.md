@@ -1,3 +1,17 @@
+### ath. bilbao – atlético madrid (N/A, Sat, 31 Aug 2024 09:10:00 -0700)
+
+- **A por la segunda victoria de la semana**: [Link](https://radiopopular.com/2024/08/a-por-la-segunda-victoria-de-la-semana)
+- **Sólo un descarte en la convocatoria del Atlético para San Mamés**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20240830/1002307184/solo-descarte-convocatoria-atletico-san-mames.html)
+- **Simeone convoca a toda la plantilla a excepción de Lemar**: [Link](https://www.futbolfantasy.com/laliga/noticias/119317-simeone-convoca-a-toda-la-plantilla-a-excepcion-de-lemar)
+
+
+### يلا شوت (N/A, Sat, 31 Aug 2024 08:50:00 -0700)
+
+- **نبأ سار لفليك في قائمة برشلونة أمام بلد الوليد**: [Link](https://www.kooora.com/?n=1351659)
+- **ليفاندوفسكي يكرر إنجاز ميسي الفريد**: [Link](https://m.kooora.com/?n=1351737&o=n)
+- **تشكيلة برشلونة الرسمية للقاء بلد الوليد في الدوري الاسباني**: [Link](https://hihi2.com/2024/08/31/p2824533.html)
+
+
 ### la liga (N/A, Sat, 31 Aug 2024 09:00:00 -0700)
 
 - **Toni Kroos Predicts Real Madrid Will Win La Liga**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/toni-kroos-predicts-real-madrid-will-win-la-liga-2024-08-29)
