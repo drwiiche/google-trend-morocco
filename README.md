@@ -1,3 +1,19 @@
+### leicester city (N/A, Sat, 31 Aug 2024 06:30:00 -0700)
+
+- **Bilal El Khannouss Signs Four-Year Deal**: [Link](https://www.lcfc.com/news/4099581/bilal-el-khannouss-signs-fouryear-deal)
+- **Bilal El Khannouss: Leicester sign Morocco midfielder from Genk for £21m**: [Link](https://www.bbc.com/sport/football/articles/cn87z47qj20o)
+- **Morocco’s Bilal El Khannouss Set to Join Leicester City After Protracted 
+Transfer Saga**: [Link](https://www.moroccoworldnews.com/2024/08/364812/moroccos-bilal-el-khannouss-set-to-join-leicester-city-after-protracted-transfer-saga)
+
+
+### tennis us open (N/A, Sat, 31 Aug 2024 06:30:00 -0700)
+
+- **Two of tennis' biggest names are knocked out of the U.S. Open in the 2nd 
+round**: [Link](https://www.npr.org/2024/08/30/nx-s1-5095924/us-open-carlos-alcaraz-naomi-osaka)
+- **Djokovic stunned by Popyrin at US Open, Sabalenka survives late scare**: [Link](https://www.reuters.com/sports/tennis/djokovic-stunned-by-inspired-popyrin-us-open-gauff-survives-2024-08-31/)
+- **US Open: Djokovic falls; Gauff, Badosa survive | Tennis News | Onmanorama**: [Link](https://www.onmanorama.com/sports/tennis/2024/08/31/us-open-djokovic-falls-gauff-badosa-survive.html)
+
+
 ### leicester – aston villa (N/A, Sat, 31 Aug 2024 06:20:00 -0700)
 
 - **Cooper: No Changes To Available Squad**: [Link](https://www.lcfc.com/news/4099617/cooper-no-changes-to-available-squad)
