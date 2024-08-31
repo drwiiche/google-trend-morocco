@@ -1,3 +1,44 @@
+### la liga (N/A, Sat, 31 Aug 2024 09:00:00 -0700)
+
+- **Toni Kroos Predicts Real Madrid Will Win La Liga**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/toni-kroos-predicts-real-madrid-will-win-la-liga-2024-08-29)
+- **Real Madrid legend Toni Kroos predicts where Barcelona will finish in La 
+Liga this season**: [Link](https://barcauniversal.com/real-madrid-legend-toni-kroos-predicts-where-barcelona-will-finish-in-la-liga-this-season/)
+- **Toni Kroos backing Real Madrid to retain La Liga title, predicts Atletico 
+Madrid to pip Barcelona**: [Link](https://www.football-espana.net/2024/08/29/toni-kroos-backing-real-madrid-to-retain-la-liga-title-predicts-atletico-madrid-to-pip-barcelona)
+
+
+### وست هام ضد مان سيتي (N/A, Sat, 31 Aug 2024 09:00:00 -0700)
+
+- **تشكيلة مانشستر سيتي الرسمية لمباراة وست هام في البريميرليج**: [Link](https://hihi2.com/2024/08/31/p2824612.html)
+- **فودين وسافينيو خارج تشكيل السيتي لمواجهة وست هام**: [Link](https://www.kooora.com/?n=1351734)
+- **موعد مباراة مان سيتي ضد وست هام في الدوري الإنجليزي والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/8/30/manchester-city-and-west-ham-united)
+
+
+### west ham – manchester city (N/A, Sat, 31 Aug 2024 08:50:00 -0700)
+
+- **Pep provides squad update ahead of trip to West Ham**: [Link](https://www.mancity.com/news/mens/pep-guardiola-west-ham-v-manchester-city-team-news-63860613)
+- **West Ham United - Manchester City Live - Premier League: Football Scores & 
+Highlights - 31/08/2024**: [Link](https://www.tntsports.co.uk/football/premier-league/2024-2025/live-west-ham-united-manchester-city_mtc1523834/live-commentary.shtml)
+- **Soccer picks: English Premier League parlay for Saturday 8/31 (+855 odds): 
+Manchester City power past West Ham**: [Link](https://www.pickswise.com/news/soccer-picks-english-premier-league-parlay-for-saturday-8-31-855-odds-manchester-city-power-past-west-ham/)
+
+
+### leverkusen – rb leipzig (N/A, Sat, 31 Aug 2024 08:50:00 -0700)
+
+- **Leverkusen - Leipzig: Top-Duell der Verunsicherten**: [Link](https://www.sportschau.de/fussball/bundesliga/leverkusen-leipzig-top-duell-der-leicht-verunsicherten,leverkusen-leipzig-vorbericht-100.html)
+- **Orban-Ersatz und Torwart-Rotation: Rose lässt Fragen offen**: [Link](https://www.wz.de/nrw/orban-ersatz-und-torwart-rotation-rose-laesst-fragen-offen_aid-118370335)
+- **Xavi gegen Wirtz! Das Duell der Super-Dribbler**: [Link](https://www.bild.de/sport/fussball/bundesliga-leipzigs-xavi-gegen-leverkusens-wirtz-der-grosse-bild-vergleich-66d071a478f47027c38aa9f2)
+
+
+### concert oasis 2025 (N/A, Sat, 31 Aug 2024 08:50:00 -0700)
+
+- **Error messages and lengthy online queues frustrate fans scrambling to 
+secure Oasis reunion tickets**: [Link](https://apnews.com/article/oasis-reunion-tour-tickets-sale-0ae64966bcb589faafcc5dfa28dc18bf)
+- **Oasis fans frustrated by technical issues in battle to nab reunion show 
+tickets**: [Link](https://www.theguardian.com/music/article/2024/aug/31/oasis-reunion-tickets-technical-issues)
+- **Oasis tickets on sale as band warns against reselling**: [Link](https://www.bbc.com/news/articles/c5y8wer58x6o)
+
+
 ### fc barcelone (N/A, Sat, 31 Aug 2024 08:30:00 -0700)
 
 - **Le Barça recrute un attaquant dans les dernières heures du mercato**: [Link](https://www.blaugranas.fr/mercato/le-barca-recrute-un-attaquant-dans-les-dernieres-heures-du-mercato-6591)
