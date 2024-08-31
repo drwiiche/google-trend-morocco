@@ -1,3 +1,10 @@
+### حالة الطقس اليوم (N/A, Fri, 30 Aug 2024 23:20:00 -0700)
+
+- **زخات مطرية مهمة نهاية الأسبوع.. والطقس حار نسبيا في الجنوب الشرقي**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85%D9%87%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%88%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%AD-1423613.html)
+- **طقس الجمعة.. زخات مطرية متوقعة بهذه المناطق**: [Link](https://ar.hibapress.com/details-545958.html)
+- **اللهم أغثنا .. ترقب نزول قطرات مطرية وتسجيل هبات رياح قوية**: [Link](https://www.akhbarona.com/national/391267.html)
+
+
 ### bernard cazeneuve premier ministre (N/A, Fri, 30 Aug 2024 22:20:00 -0700)
 
 - **« Pour Emmanuel Macron, nommer Bernard Cazeneuve à Matignon serait 
