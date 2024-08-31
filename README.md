@@ -1,3 +1,11 @@
+### marseille foot (N/A, Sat, 31 Aug 2024 13:10:00 -0700)
+
+- **OM : Mason Greenwood, le tube de l’été !**: [Link](https://www.footmercato.net/a5983423047651550957-om-mason-greenwood-le-tube-de-lete)
+- **Ligue 1 – 3e journée – Double buteur avec l’OM à Toulouse (1-3), Mason 
+Greenwood, une classe au-dessus**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/ligue-1-3e-journee-double-buteur-avec-lom-a-toulouse-1-3-mason-greenwood-une-classe-au-dessus_sto10323675/story.shtml)
+- **Marseille relance la machine - Débrief et NOTES des joueurs (TFC 1-3 OM)**: [Link](https://m.maxifoot.fr/football/article-58813.htm)
+
+
 ### archery paralympics (N/A, Sat, 31 Aug 2024 16:20:00 -0700)
 
 - **Tracy Otto: Paralysed by her ex-boyfriend, now a Paralympian**: [Link](https://www.bbc.com/sport/archery/articles/cp089q32yrqo)
