@@ -1,3 +1,11 @@
+### werder – dortmund (N/A, Sat, 31 Aug 2024 05:50:00 -0700)
+
+- **Cooler Joker Njinmah und 4 weitere Werder-Fakten vor dem BVB-Duell**: [Link](https://www.butenunbinnen.de/sport/fussball-bundesliga-werder-dortmund-100.html)
+- **Seit sieben Spielen ungeschlagen: Werder will eigene Positiv-Serie auch 
+gegen Dortmund nicht reißen lassen**: [Link](https://www.deichstube.de/news/werder-bremen-liveticker-borussia-dortmund-live-ticker-positiv-serie-ausbauen-bundesliga-ole-werner-samstag-erstes-heimspiel-zr-93271179.html)
+- **Werder Bremen gegen BVB: Njinmah oder Topp – wen lässt Werner stürmen?**: [Link](https://www.weser-kurier.de/werder/profis/werder-bremen-gegen-bvb-njinmah-oder-topp-wen-laesst-werner-stuermen-doc7wypljjgrbp13eeyr8am)
+
+
 ### arsenal (N/A, Sat, 31 Aug 2024 04:50:00 -0700)
 
 - **Arsenal sign Raheem Sterling: Why signing Chelsea exile may be a 'masterstroke'**: [Link](https://www.bbc.com/sport/football/articles/cq5d7nxv61po)
