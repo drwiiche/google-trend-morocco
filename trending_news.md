@@ -1,3 +1,12 @@
+### kylian mbappé real madrid (N/A, Fri, 30 Aug 2024 23:20:00 -0700)
+
+- **Transfer window winners & losers: How Chelsea, Arsenal and other top clubs 
+fared**: [Link](https://www.espn.com/soccer/story/_/id/41053493/atletico-arsenal-win-transfer-window-chelsea-biggest-losers)
+- **Transfer window roundtable: Debating the best, worst and most surprising 
+deals of the summer - The Athletic**: [Link](https://www.nytimes.com/athletic/5734008/2024/08/31/transfer-window-summer-2024/)
+- **LIST: Major signings in 2024-25 pre-season transfer window**: [Link](https://www.kfm.co.ug/sports/list-major-signings-in-2024-25-pre-season-transfer-window.html)
+
+
 ### طقس (N/A, Fri, 30 Aug 2024 23:00:00 -0700)
 
 - **زخات مطرية مهمة نهاية الأسبوع.. والطقس حار نسبيا في الجنوب الشرقي**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85%D9%87%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%88%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%AD-1423613.html)
