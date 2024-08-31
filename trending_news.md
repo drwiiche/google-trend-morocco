@@ -1,3 +1,33 @@
+### barcelone – valladolid (N/A, Sat, 31 Aug 2024 07:00:00 -0700)
+
+- **Le onze de départ du Barça contre le Real Valladolid**: [Link](https://www.blaugranas.fr/match/le-onze-de-depart-du-barca-contre-le-real-valladolid-6590)
+- **Barça - Valladolid : les compos probables !**: [Link](https://www.onzemondial.com/liga/barca-valladolid-les-compos-probables-909406)
+- **FC Barcelone - Valladolid : sur quelle chaîne voir le match du Championnat d'Espagne ? (Foot)**: [Link](https://www.lequipe.fr/Football/Actualites/Fc-barcelone-valladolid-sur-quelle-chaine-voir-le-match-du-championnat-d-espagne/1504739)
+
+
+### barcelona vs valladolid (N/A, Sat, 31 Aug 2024 07:00:00 -0700)
+
+- **Predicted Teams Barcelona-Real Valladolid: Dani Olmo to make home debut**: [Link](https://www.football-espana.net/2024/08/31/predicted-teams-barcelona-real-valladolid-dani-olmo-to-make-home-debut)
+- **Real Valladolid lineup vs. Barcelona: Predicted XI for La Liga contest**: [Link](https://www.sportsmole.co.uk/football/barcelona/race-for-the-la-liga-title/predicted-lineups/will-ex-real-madrid-man-start-real-valladolid-predicted-lineup-against-barca_551507.html)
+- **LaLiga: Barcelona v Real Valladolid – Preview, predictions, tips, offers and odds**: [Link](https://www.101greatgoals.com/betting-tips/la-liga-odds/laliga-barcelona-v-real-valladolid-preview-predictions-tips-offers-and-odds/)
+
+
+### ليستر سيتي (N/A, Sat, 31 Aug 2024 07:00:00 -0700)
+
+- **تشكيلة ليستر سيتي الرسمية أمام أستون فيلا في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/08/31/p2824429.html)
+- **بلال الخنوس.. التشكيلة الأساسية لليستر سيتي أمام أستون فيلا**: [Link](https://sport.lesiteinfo.com/internationaux/443707.html)
+- **أستون فيلا يختتم إستعداداته لمواجهة ليستر سيتي**: [Link](https://hihi2.com/2024/08/31/p2824541.html)
+
+
+### everton – bournemouth (N/A, Sat, 31 Aug 2024 06:50:00 -0700)
+
+- **Everton vs Bournemouth: Starting Lineups & How to Watch | Ndiaye & Coleman 
+start**: [Link](https://royalbluemersey.sbnation.com/2024/8/31/24232811/everton-vs-bournemouth-starting-lineups-tv-schedule-live-stream-how-to-watch-online-ndiaye)
+- **Kepa to start as Cherries travel to Everton in search of first league win**: [Link](https://www.bournemouthecho.co.uk/sport/24554278.everton-vs-afc-bournemouth-updates/)
+- **Chris Sutton predicts result of Everton clash v Bournemouth in ‘massive’ 
+Sean Dyche verdict**: [Link](https://www.goodisonnews.com/2024/08/31/chris-sutton-predicts-result-of-everton-clash-v-bournemouth-in-massive-sean-dyche-verdict/)
+
+
 ### ipswich town – fulham (N/A, Sat, 31 Aug 2024 06:40:00 -0700)
 
 - **Pre-Ipswich Press Conference**: [Link](https://www.fulhamfc.com/news/2024/august/29/pre-ipswich-press-conference/)
