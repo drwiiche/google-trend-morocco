@@ -1,3 +1,18 @@
+### haaland (N/A, Sat, 31 Aug 2024 10:40:00 -0700)
+
+- **Pep Guardiola warns City’s rivals ‘goal machine’ Haaland is fitter than ever**: [Link](https://www.theguardian.com/football/article/2024/aug/30/pep-guardiola-warns-citys-rivals-goal-machine-haaland-is-fitter-than-ever)
+- **“No way to play football” – Legendary commentator issues scathing criticism 
+of 94-goal Manchester City star**: [Link](https://sports.yahoo.com/no-way-play-football-legendary-111500749.html)
+- **Pep hails 'ridiculous' Haaland after 10th hat trick**: [Link](https://www.espn.com/soccer/story/_/id/40977753/haaland-rival-ronaldo-messi-goal-records-guardiola)
+
+
+### raja casablanca (N/A, Sat, 31 Aug 2024 10:40:00 -0700)
+
+- **Un défenseur français sur les tablettes du Raja Casablanca**: [Link](https://www.lesiteinfo.com/sport/625989-un-defenseur-francais-sur-les-tablettes-du-raja-casablanca.html)
+- **Botola Pro Inwi: le Maghreb de Fès bat le Wydad de Casablanca**: [Link](https://sport.le360.ma/botola-pro/botola-pro-inwi-le-maghreb-de-fes-bat-le-wydad-de-casablanca-114099)
+- **MAS-WAC : ce qu’à dit Rulani Mokweana après la défaite (VIDEO)**: [Link](https://www.lesiteinfo.com/maroc/626054-mas-wac-ce-qua-dit-rulani-mokweana-apres-la-defaite-video.html)
+
+
 ### montpellier – nantes (N/A, Sat, 31 Aug 2024 10:30:00 -0700)
 
 - **DIRECT - FC Nantes : un déplacement pour confirmer à Montpellier**: [Link](https://www.francebleu.fr/sports/football/direct-fc-nantes-un-deplacement-pour-confirmer-a-montpellier-2996129)
