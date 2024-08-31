@@ -1,3 +1,10 @@
+### aston villa (N/A, Sat, 31 Aug 2024 07:40:00 -0700)
+
+- **Team news for Foxes fixture**: [Link](https://www.avfc.co.uk/news/2024/august/30/team-news-for-foxes-fixture/)
+- **Unai Emery confirms double Aston Villa injury blow ahead of Leicester City clash**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/unai-emery-confirms-double-aston-29835136)
+- **Unai Emery reveals surprise Aston Villa decision involving Diego Carlos and Kosta Nedeljkovic**: [Link](https://www.birminghamworld.uk/sport/football/aston-villa/unai-emery-explains-aston-villa-decision-diego-carlos-kosta-nedeljkovic-dilemma-ezri-konsa-matty-cash-4755704)
+
+
 ### prix jockey criterium 5 ans q2 (N/A, Sat, 31 Aug 2024 07:30:00 -0700)
 
 - **Les 3 tuyaux du Quinté+ du samedi 31 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-3-tuyaux-du-quinte-du-samedi-31-aout)
