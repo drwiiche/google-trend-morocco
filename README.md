@@ -1,3 +1,10 @@
+### dortmund (N/A, Sat, 31 Aug 2024 08:10:00 -0700)
+
+- **RN+ Hafen wird 125 Jahre alt: Die besten Fotos vom Festakt am Freitagabend**: [Link](https://www.ruhrnachrichten.de/dortmund/hafen-wird-125-jahre-alt-die-besten-fotos-vom-festakt-am-freitagabend-w930104-2001350942/)
+- **RN+ Eine verlorene Wohnsiedlung und ein Kaiser in Eile: Kurioses aus 125 
+Jahren Hafengeschichte**: [Link](https://www.ruhrnachrichten.de/dortmund/dortmunder-hafen-125-jahre-jubilaeum-geschichte-kuriositaeten-kaiser-schiffe-wohnsiedlung-w927757-2001349221/)
+
+
 ### f1 (N/A, Sat, 31 Aug 2024 07:50:00 -0700)
 
 - **What the teams said – Friday at the 2024 Italian Grand Prix | Formula 1®**: [Link](https://www.formula1.com/en/latest/article/what-the-teams-said-friday-in-italy-2024.Wy6LusX8sTIRpYtN3Z8ps)
