@@ -1,3 +1,19 @@
+### hansi flick (N/A, Fri, 30 Aug 2024 17:00:00 -0700)
+
+- **Dani Olmo time: the end of a 16-year odyssey to score for Barcelona | Sid 
+Lowe**: [Link](https://www.theguardian.com/football/article/2024/aug/29/dani-olmo-time-the-end-of-a-16-year-odyssey-to-score-for-barcelona)
+- **FC Barcelona Star Olmo Shines Light On Coach Hansi Flick ‘Raising Voice’**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/30/fc-barcelona-star-olmo-shines-light-on-flick-raising-voice/)
+- **"I came here to win" - Dani Olmo discusses Barcelona move**: [Link](https://www.barcablaugranes.com/2024/8/30/24232086/came-here-to-win-dani-olmo-discusses-barcelona-move)
+
+
+### far (N/A, Fri, 30 Aug 2024 13:00:00 -0700)
+
+- **Germany on brink of far-right political earthquake**: [Link](https://www.bbc.com/news/articles/c05jvve89g3o)
+- **Far-right AfD on track for its first win in eastern German state vote**: [Link](https://www.reuters.com/world/europe/far-right-afd-track-its-first-win-eastern-german-state-vote-2024-08-30/)
+- **The Guardian view on Germany’s disaffected east: a growing crisis for Olaf 
+Scholz | Editorial**: [Link](https://www.theguardian.com/commentisfree/article/2024/aug/30/the-guardian-view-on-germanys-disaffected-east-a-growing-crisis-for-olaf-scholz)
+
+
 ### film maria angelina jolie (N/A, Fri, 30 Aug 2024 16:40:00 -0700)
 
 - **This Biopic Could Be Angelina Jolie’s Oscar Comeback**: [Link](https://www.nytimes.com/2024/08/29/movies/maria-callas-biopic-angelina-jolie-venice.html)
