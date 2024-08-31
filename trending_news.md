@@ -1,3 +1,29 @@
+### ali bongo (N/A, Sat, 31 Aug 2024 15:40:00 -0700)
+
+- **Le Gabon célèbre le 1er anniversaire de la chute de la dynastie Bongo**: [Link](https://www.h24info.ma/le-gabon-celebre-le-1er-anniversaire-de-la-chute-de-la-dynastie-bongo/)
+- **Ali Bongo «n’a absolument pas l’intention de quitter le Gabon», un an après 
+le coup d’État**: [Link](https://www.rfi.fr/fr/afrique/20240830-ali-bongo-n-a-absolument-pas-l-intention-de-quitter-le-gabon-un-an-apr%C3%A8s-le-coup-d-%C3%A9tat)
+- **Série d’inaugurations dans les transports gabonais avant l’anniversaire du 
+coup d’État**: [Link](https://www.jeuneafrique.com/1603485/economie-entreprises/serie-dinaugurations-dans-les-transports-gabonais-avant-lanniversaire-du-coup-detat/)
+
+
+### sol bamba (N/A, Sat, 31 Aug 2024 15:30:00 -0700)
+
+- **Sol Bamba dead: Ex-Premier League defender dies aged 39 after falling ill**: [Link](https://www.express.co.uk/sport/football/1942875/Sol-Bamba-dead-Adanaspor)
+- **Sol Bamba, former Leeds, Cardiff and Middlesbrough defender, dies aged just 
+39 after falling ill before he was**: [Link](https://www.dailymail.co.uk/sport/football/article-13796319/Sol-Bamba-former-Leeds-Cardiff-Middlesbrough-defender-tragically-dies-aged-39.html)
+- **Former Leeds and Cardiff defender Sol Bamba dies aged 39**: [Link](https://www.theguardian.com/football/article/2024/aug/31/leeds-cardiff-sol-bamba-football)
+
+
+### frenkie de jong (N/A, Sat, 31 Aug 2024 14:40:00 -0700)
+
+- **"We’ll see what happens" - Hansi Flick sets tentative date for Frenkie de 
+Jong’s Barcelona return**: [Link](https://www.barcablaugranes.com/2024/8/30/24232115/see-what-happens-hansi-flick-sets-tentative-date-for-frenkie-de-jong-barcelona-return)
+- **Barcelona 'send ultimatum to Frankie de Jong' after growing frustrated by 
+his injury situation' with the midfi**: [Link](https://www.dailymail.co.uk/sport/football/article-13799431/Barcelona-send-ultimatum-Frankie-Jong-growing-frustrated-injury-situation-midfielder-April-ankle-problem.html)
+- **Barcelona hand 15-day ultimatum to star midfielder amid fitness concerns**: [Link](https://barcauniversal.com/barcelona-hand-15-day-ultimatum-to-star-midfielder-amid-fitness-concerns/)
+
+
 ### ac milan (N/A, Sat, 31 Aug 2024 12:30:00 -0700)
 
 - **Player Ratings: Lazio 2-2 AC Milan – Emerson disaster; subs life-saving**: [Link](https://sempremilan.com/player-ratings-lazio-2-2-ac-milan-emerson)
