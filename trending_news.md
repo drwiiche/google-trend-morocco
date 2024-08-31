@@ -1,3 +1,19 @@
+### météo (N/A, Fri, 30 Aug 2024 23:00:00 -0700)
+
+- **Météo : Risque de violents orages la semaine prochaine au Maroc**: [Link](https://lematin.ma/regions/meteo-risque-de-violents-orages-la-semaine-prochaine-au-maroc/240990)
+- **Hauteur des pluies enregistrées ces dernières 24H**: [Link](https://fr.hespress.com/384024-hauteur-des-pluies-enregistrees-ces-dernieres-24h-3.html)
+- **Averses orageuses, grêle et rafales de vent ce jeudi dans plusieurs 
+provinces**: [Link](https://ledesk.ma/encontinu/averses-orageuses-grele-et-rafales-de-vent-ce-jeudi-dans-plusieurs-provinces/)
+
+
+### weather (N/A, Fri, 30 Aug 2024 23:00:00 -0700)
+
+- **More August temperature records expected to fall amid warm weather and 
+winds across east coast**: [Link](https://www.theguardian.com/australia-news/article/2024/aug/31/more-august-temperature-records-expected-to-fall-amid-warm-weather-and-winds-across-east-coast)
+- **Australia sweats under record triple-digit heat — in the heart of winter**: [Link](https://www.yahoo.com/news/australia-sweats-under-record-triple-224646619.html)
+- **New South Wales and Queensland are to experience heatwave**: [Link](http://www.msn.com/en-au/news/australia/new-south-wales-and-queensland-are-to-experience-heatwave/vi-AA1pGwxn)
+
+
 ### aguerd (N/A, Fri, 30 Aug 2024 15:50:00 -0700)
 
 - **West Ham sign Carlos Soler on loan from Paris St-Germain**: [Link](https://www.bbc.com/sport/football/articles/cd6yz67pneqo)
