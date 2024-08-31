@@ -1,3 +1,10 @@
+### botola 2 (N/A, Sat, 31 Aug 2024 11:30:00 -0700)
+
+- **فوز مثير للمغرب الفاسي على الوداد**: [Link](https://www.hespress.com/%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D9%85%D8%AB%D9%8A%D8%B1%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1423696.html)
+- **رولاني موكوينا يحصد الهزيمة في أول ظهور رسمي له مع الوداد**: [Link](http://ar.sport.le360.ma/botola-pro-1/158183)
+- **الماص يفاجئ وداد موكوينا ويقتنص فوزا ثمينا**: [Link](https://sport.lesiteinfo.com/elbotola/443669.html)
+
+
 ### lazio vs milan (N/A, Sat, 31 Aug 2024 13:30:00 -0700)
 
 - **Player Ratings: Lazio 2-2 AC Milan – Emerson disaster; subs life-saving**: [Link](https://sempremilan.com/player-ratings-lazio-2-2-ac-milan-emerson)
