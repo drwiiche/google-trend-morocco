@@ -1,3 +1,11 @@
+### raheem sterling (N/A, Fri, 30 Aug 2024 21:30:00 -0700)
+
+- **Arsenal in talks to sign Raheem Sterling from Chelsea on loan - The Athletic**: [Link](https://www.nytimes.com/athletic/5714397/2024/08/30/arsenal-raheem-sterling-chelsea-transfer/)
+- **Raheem Sterling signs for Arsenal on loan | News**: [Link](https://www.arsenal.com/news/raheem-sterling-signs-arsenal-loan)
+- **Transfer Deadline Day LIVE: Toney, Sterling, Osimhen, Sancho latest news, 
+deals & updates**: [Link](https://www.bbc.com/sport/football/live/ckgwnwk4dgrt?page=2)
+
+
 ### atletismo paralímpicos (N/A, Fri, 30 Aug 2024 17:50:00 -0700)
 
 
