@@ -1,3 +1,11 @@
+### f1 (N/A, Sat, 31 Aug 2024 07:50:00 -0700)
+
+- **What the teams said – Friday at the 2024 Italian Grand Prix | Formula 1®**: [Link](https://www.formula1.com/en/latest/article/what-the-teams-said-friday-in-italy-2024.Wy6LusX8sTIRpYtN3Z8ps)
+- **F1 Qualifying LIVE: Italian Grand Prix 2024 times, results & commentary 
+from Monza**: [Link](https://www.bbc.com/sport/live/cy0nkz8rzg5t)
+- **Rain again to disrupt F1 weekend at Monza**: [Link](https://www.motorsinside.com/en/f1/news/34514-rain-again-disrupt-f1-weekend-monza.html)
+
+
 ### aston villa (N/A, Sat, 31 Aug 2024 07:40:00 -0700)
 
 - **Team news for Foxes fixture**: [Link](https://www.avfc.co.uk/news/2024/august/30/team-news-for-foxes-fixture/)
