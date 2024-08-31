@@ -1,3 +1,37 @@
+### liga (N/A, Sat, 31 Aug 2024 10:00:00 -0700)
+
+- **Financial relief for Barcelona? La Liga chief hints at brighter days**: [Link](https://www.football-espana.net/2024/08/30/financial-relief-barcelona-la-liga-chief)
+- **Barcelona vs Real Valladolid LIVE Streaming: How To Watch La Liga Live In 
+India, USA, UK, Australia**: [Link](https://www.republicworld.com/sports/football/barcelona-vs-real-valladolid-live-streaming-how-to-watch-la-liga-live-in-india-usa-uk-australia)
+- **Barcelona's list to face Valladolid**: [Link](https://www.ysscores.com/en/news/3446227/Barcelona's-list-to-face-Valladolid)
+
+
+### athlétisme jeux paralympiques 2024 (N/A, Sat, 31 Aug 2024 10:00:00 -0700)
+
+- **Jeux paralympiques: Le Marocain Aymane El Haddaoui remporte la médaille 
+bronze**: [Link](https://fr.hespress.com/384059-jeux-paralympiques-le-marocain-aymane-el-haddaoui-remporte-la-medaille-bronze.html)
+- **Jeux paralympiques : Ayman El Haddaoui qualifié pour la finale du 100 m**: [Link](https://telquel.ma/instant-t/2024/08/30/jeux-paralympiques-ayman-el-haddaoui-qualifie-pour-la-finale-du-100-m_1891184/)
+- **Jeux Paralympique 2024: record d’Afrique pour le sprinter marocain Aymane 
+El Haddaoui**: [Link](https://sport.le360.ma/athletisme/jeux-paralympique-2024-record-dafrique-pour-le-sprinter-marocain-aymane-el-haddaoui-114085)
+
+
+### raja vs (N/A, Sat, 31 Aug 2024 10:00:00 -0700)
+
+- **'It Seems Entire Nation Has A Problem With Babar Azam's Form': Ex-PCB Chief**: [Link](https://sports.ndtv.com/cricket/it-seems-entire-nation-has-a-problem-with-babar-azams-form-ex-pcb-chief-6451048)
+- **"When you lose a match and you haven't scored runs and you are Babar Azam, 
+then you become a headline" - Ramiz Raja**: [Link](https://www.sportskeeda.com/cricket/news-when-lose-match-scored-runs-babar-azam-become-headline-ramiz-raja)
+- **Aap Log Toh Bradman Ho Na: Basit Ali Lashes Out At Pakistan Players After 
+Humiliating Loss To Bangladesh In**: [Link](https://www.freepressjournal.in/sports/aap-log-toh-bradman-ho-na-basit-ali-lashes-out-at-pakistan-players-after-humiliating-loss-to-bangladesh-in-rawalpindi-video)
+
+
+### hansi flick (N/A, Sat, 31 Aug 2024 09:50:00 -0700)
+
+- **Flick accepts Barça transfer woe on deadline day**: [Link](https://www.espn.com/soccer/story/_/id/41053492/hansi-flick-accepts-barcelona-transfer-woe-deadline-day)
+- **Hansi Flick tells Barcelona not to sell Eric García on Deadline Day**: [Link](https://www.barcablaugranes.com/2024/8/30/24231676/hansi-flick-tells-barcelona-not-to-sell-eric-garcia-deadline-day)
+- **Hansi Flick talks Bernal, De Jong, Eric, Casado, Fermin, Tah ahead of 
+Barcelona vs Valladolid**: [Link](https://barcauniversal.com/hansi-flick-talks-bernal-de-jong-eric-casado-fermin-tah-ahead-of-barcelona-vs-valladolid/)
+
+
 ### raphinha (N/A, Sat, 31 Aug 2024 09:30:00 -0700)
 
 - **Barcelona vs. Valladolid (31 Aug, 2024) Live Score**: [Link](https://africa.espn.com/football/match/_/gameId/704692)
