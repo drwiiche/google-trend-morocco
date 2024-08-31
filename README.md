@@ -1,3 +1,11 @@
+### arsenal – brighton (N/A, Sat, 31 Aug 2024 03:40:00 -0700)
+
+- **Merino to miss Brighton game through injury | Team news | News**: [Link](https://www.arsenal.com/news/merino-miss-brighton-game-through-injury)
+- **Arteta on integrating injured Merino, Ramsdale’s impact & a difficult 
+transfer window**: [Link](https://arseblog.news/2024/08/arteta-on-integrating-injured-merino-ramsdales-impact-a-difficult-transfer-window/)
+- **Arsenal’s new signing Merino injured, Ramsdale joins Southampton**: [Link](https://punchng.com/arsenals-new-signing-merino-injured-ramsdale-joins-southampton/)
+
+
 ### recensement maroc 2024 (N/A, Sat, 31 Aug 2024 02:40:00 -0700)
 
 - **Lahlimi: « Le roi ne m’a jamais fait de reproche alors que des chefs de 
