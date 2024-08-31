@@ -1,3 +1,11 @@
+### adana demirspor vs galatasaray (N/A, Sat, 31 Aug 2024 12:20:00 -0700)
+
+- **Preview: Adana Demirspor vs. Galatasaray - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/adana-demirspor/preview/preview-adana-demirspor-vs-galatasaray-prediction-team-news-lineups_551587.html)
+- **Kasimpasa 2-2 Adana Demirspor (25 Aug, 2024) Final Score - ESPN (IN)**: [Link](https://www.espn.in/football/match/_/gameId/713913/adana-demirspor-kasimpasa)
+- **How to Watch Adana Demirspor vs. Galatasaray: Live Stream, TV Channel, 
+Start Time**: [Link](https://ftw.usatoday.com/article/how-to-watch-adana-demirspor-vs-galatasaray-live-stream-tv-channel-start-time-2)
+
+
 ### الرجاء (N/A, Sat, 31 Aug 2024 12:00:00 -0700)
 
 - **الرجاء يفتتح البطولة بهزيمة أمام بركان**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A8%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D9%83%D8%A7-1423978.html)
