@@ -1,3 +1,34 @@
+### adana demirspor – galatasaray (N/A, Sat, 31 Aug 2024 11:00:00 -0700)
+
+- **VAR Hakemi Halil Umut Meler**: [Link](https://www.kocaelitv.com.tr/haber/21482934/var-hakemi-halil-umut-meler)
+- **SON DAKİKA | Galatasaray, Adana Demirspor karşısında! Okan Buruk'tan 
+Batshuayi kararı**: [Link](https://www.milliyet.com.tr/skorer/live-galatasaray-adana-demirspor-karsisinda-okan-buruktan-batshuayi-karari-7182110)
+- **Adana Demirspor Galatasaray maçı CANLI izle! (FULL HD) Adana GS maçı canlı 
+yayın nerede ve nasıl izlenir?**: [Link](https://www.haberler.com/haberler/adana-demirspor-galatasaray-maci-canli-izle-17774419-haberi/)
+
+
+### lazio – ac milan (N/A, Sat, 31 Aug 2024 11:00:00 -0700)
+
+- **Fonseca confident Milan will bounce back against Lazio**: [Link](https://www.beinsports.com/en-my/football/serie-a/articles/fonseca-confident-milan-will-bounce-back-against-lazio-2024-08-30)
+- **MN: Cardinale and management speak with squad at Milanello – the details**: [Link](https://sempremilan.com/mn-cardinale-management-speak-with-squad-milanello)
+- **The five key battles that could win or lose the game for Milan against Lazio**: [Link](https://onefootball.com/en/news/the-five-key-battles-that-could-win-or-lose-the-game-for-milan-against-lazio-39973565)
+
+
+### منير المحمدي (N/A, Sat, 31 Aug 2024 11:00:00 -0700)
+
+- **الرجاء يستقبل ن. بركان في أول مباراة في رحلة الدفاع عن اللقب**: [Link](https://m.elbotola.com/article/2024-08-31-10-39-924.html)
+- **بكل روح رياضية.. عناق بين لاعبي الرجاء وبركان قبل المواجهة**: [Link](https://www.akhbarona.com/videos/391403.html)
+- **المحمدي يفتح الباب أمام المحترفين المغاربة للعودة إلى البطولة الوطنية**: [Link](https://aljarida24.ma/p/actualites/286283/)
+
+
+### الدوري المغربي (N/A, Sat, 31 Aug 2024 11:00:00 -0700)
+
+- **فوز مثير للمغرب الفاسي على الوداد**: [Link](https://www.hespress.com/%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D9%85%D8%AB%D9%8A%D8%B1%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1423696.html)
+- **موكوينا: "لا أعرف الشيء الكثير عن البطولة المغربية ولا يمكن الحكم على 
+الفريق من مباراة واحدة"**: [Link](https://m.elbotola.com/article/2024-08-31-10-06-694.html)
+- **أرمادة الوداد تسقط فريسة بفاس أمام النمور**: [Link](https://www.almountakhab.com/node/16203710)
+
+
 ### haaland (N/A, Sat, 31 Aug 2024 10:40:00 -0700)
 
 - **Pep Guardiola warns City’s rivals ‘goal machine’ Haaland is fitter than ever**: [Link](https://www.theguardian.com/football/article/2024/aug/30/pep-guardiola-warns-citys-rivals-goal-machine-haaland-is-fitter-than-ever)
