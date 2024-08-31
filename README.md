@@ -1,3 +1,17 @@
+### valence – villarreal (N/A, Sat, 31 Aug 2024 11:40:00 -0700)
+
+- **CD Leganés - Majorque en direct - La Liga : Football Scores & Résultats - 31/08/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-cd-leganes-majorque_mtc1524190/live.shtml)
+- **Composition Valencia CF - Villarreal, Liga, 4ème journée, match du samedi 31 août 2024**: [Link](https://rmcsport.bfmtv.com/football/liga/live/2024/match-Valencia-CF-Villarreal-journee-04_FM-240618421727.html)
+- **La Liga J4 : Valence vs Villarreal. Sur quelles chaînes TV suivre le match en direct ?**: [Link](https://africafootunited.com/la-liga-j4-valence-vs-villarreal-sur-quelles-chaines-tv-suivre-le-match-en-direct/)
+
+
+### bundesliga (N/A, Sat, 31 Aug 2024 11:40:00 -0700)
+
+- **Borussia landet Auswärtssieg in Bochum**: [Link](https://www.borussia.de/news/borussia-landet-auswaertssieg-in-bochum)
+- **A40-Sperrung beim VfL-Spiel: So kommen die Fans ins Stadion**: [Link](https://www.waz.de/lokales/bochum/article407130519/vfl-heimspiel-und-a40-sperrung-das-raet-der-verein-den-fans.html)
+- **„Er erinnert an Juan Arango“ – ein Blick nach Gladbach**: [Link](https://einsachtvieracht.de/2024/08/31/er-erinnert-an-juan-arango-ein-blick-nach-gladbach/)
+
+
 ### toulouse – marseille (N/A, Sat, 31 Aug 2024 11:20:00 -0700)
 
 - **Preview: Toulouse vs. Marseille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/toulouse/preview/preview-toulouse-vs-marseille-prediction-team-news-lineups_551583.html)
