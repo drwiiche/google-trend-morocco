@@ -1,3 +1,11 @@
+### aguerd (N/A, Fri, 30 Aug 2024 15:50:00 -0700)
+
+- **West Ham sign Carlos Soler on loan from Paris St-Germain**: [Link](https://www.bbc.com/sport/football/articles/cd6yz67pneqo)
+- **West Ham sign PSG’s Carlos Soler after offloading Aguerd and Ward-Prowse**: [Link](https://www.theguardian.com/football/article/2024/aug/31/west-ham-sign-psg-carlos-soler-offload-aguerd-and-ward-prowse)
+- **West Ham’s Long-Term Admiration for PSG Loanee Comes to Fruition with 
+Official Transfer**: [Link](https://sports.yahoo.com/west-ham-long-term-admiration-034200764.html)
+
+
 ### raheem sterling (N/A, Fri, 30 Aug 2024 21:30:00 -0700)
 
 - **Arsenal in talks to sign Raheem Sterling from Chelsea on loan - The Athletic**: [Link](https://www.nytimes.com/athletic/5714397/2024/08/30/arsenal-raheem-sterling-chelsea-transfer/)
