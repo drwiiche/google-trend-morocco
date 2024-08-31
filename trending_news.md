@@ -1,3 +1,12 @@
+### inoxtag everest (N/A, Sat, 31 Aug 2024 14:00:00 -0700)
+
+- **Inoxtag: le youtubeur annonce enfin son retour, après son ascension de 
+l’Everest**: [Link](https://www.bfmtv.com/tech/youtube/inoxtag-enfin-de-retour-apres-l-everest-le-youtubeur-donne-rendez-vous-sur-instagram_AV-202408300546.html)
+- **Inoxtag présente le film « Kaizen » sur son ascension du mont Everest**: [Link](https://actustream.fr/articles/Inoxtag-Kaizen-ascension-mont-Everest)
+- **De retour sur Youtube, Inoxtag dévoile la bande-annonce de son documentaire 
+«Kaizen»**: [Link](https://www.lefigaro.fr/secteur/high-tech/de-retour-sur-youtube-inoxtag-devoile-la-bande-annonce-de-son-documentaire-kaizen-20240831)
+
+
 ### botola 2 (N/A, Sat, 31 Aug 2024 11:30:00 -0700)
 
 - **فوز مثير للمغرب الفاسي على الوداد**: [Link](https://www.hespress.com/%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D9%85%D8%AB%D9%8A%D8%B1%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1423696.html)
