@@ -1,3 +1,12 @@
+### recensement maroc 2024 (N/A, Sat, 31 Aug 2024 02:40:00 -0700)
+
+- **Lahlimi: « Le roi ne m’a jamais fait de reproche alors que des chefs de 
+gouvernement ont tenté de me virer**: [Link](https://fr.le360.ma/politique/lahlimi-le-roi-ne-ma-jamais-fait-de-reproche-alors-que-des-chefs-de-gouvernement-ont-tente-de-me_4W6F46XGTRARLHFCDPNPJDCZLI/)
+- **RGPH 2024: les principaux points de la conférence de presse d'Ahmed Lahlimi 
+Alami**: [Link](https://medias24.com/2024/08/30/rgph-2024-les-principaux-points-de-la-conference-de-presse-dahmed-lahlimi-alami/)
+- **Tout ce qu’il faut savoir sur le Recensement 2024 qui démarre ce dimanche**: [Link](https://lematin.ma/nation/tout-ce-quil-faut-savoir-sur-le-recensement-2024-qui-demarre-ce-dimanche/241025)
+
+
 ### kylian mbappé real madrid (N/A, Fri, 30 Aug 2024 23:20:00 -0700)
 
 - **Transfer window winners & losers: How Chelsea, Arsenal and other top clubs 
