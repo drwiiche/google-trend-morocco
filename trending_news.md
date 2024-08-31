@@ -1,3 +1,24 @@
+### espanyol – rayo (N/A, Sat, 31 Aug 2024 09:30:00 -0700)
+
+- **Información de las entradas para el RCD Espanyol**: [Link](https://www.rayovallecano.es/noticias/informacion-de-las-entradas-para-el-rcd-espanyol-rayo-vallecano)
+- **El que tuvo, retuvo**: [Link](https://as.com/futbol/primera/el-que-tuvo-retuvo-n/)
+- **Irvin Cardona supera las molestias. Cabrera y Expósito son las únicas bajas**: [Link](https://www.futbolfantasy.com/laliga/noticias/119341-irvin-cardona-supera-las-molestias-cabrera-y-exposito-son-las-unicas-bajas)
+
+
+### أتلتيك بيلباو ضد أتلتيكو مدريد (N/A, Sat, 31 Aug 2024 09:30:00 -0700)
+
+- **أتلتيكو مدريد بصفوف مكتملة لمواجهة بيلباو**: [Link](https://m.kooora.com/?n=1351542&o=n27345)
+- **التشكيلة الرسمية لأتليتكو مدريد أمام أتليتك بلباو في الدوري الإسباني**: [Link](https://hihi2.com/2024/08/31/p2824760.html)
+- **حالة سيميوني المزاجية السيئة تسيطر عليه قبل مواجهة بيلباو بالدوري الإسباني**: [Link](https://www.raialyoum.com/%D8%AD%D8%A7%D9%84%D8%A9-%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D8%A7%D9%84%D9%85%D8%B2%D8%A7%D8%AC%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%A6%D8%A9-%D8%AA%D8%B3%D9%8A%D8%B7%D8%B1-%D8%B9%D9%84/)
+
+
+### snrt (N/A, Sat, 31 Aug 2024 09:30:00 -0700)
+
+- **منير المحمدي يرفض العودة للسعودية**: [Link](https://www.kooora.com/?n=1349882)
+- **نهضة بركان يتطلع إلى مواصلة اللعب على الصفوف الأمامية**: [Link](https://alittihad.info/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%AA%D8%B7%D9%84%D8%B9-%D8%A5%D9%84%D9%89-%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7/)
+- **المحمدي يفتح الباب أمام المحترفين المغاربة للعودة إلى البطولة الوطنية**: [Link](https://aljarida24.ma/p/actualites/286283/)
+
+
 ### ath. bilbao – atlético madrid (N/A, Sat, 31 Aug 2024 09:10:00 -0700)
 
 - **A por la segunda victoria de la semana**: [Link](https://radiopopular.com/2024/08/a-por-la-segunda-victoria-de-la-semana)
