@@ -1,3 +1,11 @@
+### raphinha (N/A, Sat, 31 Aug 2024 09:30:00 -0700)
+
+- **Barcelona vs. Valladolid (31 Aug, 2024) Live Score**: [Link](https://africa.espn.com/football/match/_/gameId/704692)
+- **Barcelona vs. Valladolid (31 Aug, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/704692)
+- **Primera División Barcelona 6 Real Valladolid 0 86 minutes played. In 
+progress**: [Link](https://www.bbc.co.uk/sport/football/live/cql34620dp9t)
+
+
 ### espanyol – rayo (N/A, Sat, 31 Aug 2024 09:30:00 -0700)
 
 - **Información de las entradas para el RCD Espanyol**: [Link](https://www.rayovallecano.es/noticias/informacion-de-las-entradas-para-el-rcd-espanyol-rayo-vallecano)
