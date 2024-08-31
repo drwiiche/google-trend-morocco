@@ -1,3 +1,14 @@
+### anne claire coudray (N/A, Sat, 31 Aug 2024 03:50:00 -0700)
+
+- **Exclu. "Je lui ai envoyé un message" : Anne-Claire Coudray révèle ce 
+qu'elle a dit à Julien Arnaud après l'annonce de son départ de TF1 pour 
+Télématin**: [Link](https://www.programme-tv.net/news/tv/359604-exclu-je-lui-ai-envoye-un-message-anne-claire-coudray-revele-ce-qu-elle-a-dit-a-julien-arnaud-apres-l-annonce-de-son-depart-de-tf1-pour-telematin/)
+- **« Télématin » : Julien Arnaud quitte TF1 et remplace Thomas Sotto sur 
+France 2**: [Link](https://www.leparisien.fr/culture-loisirs/tv/telematin-julien-arnaud-quitte-tf1-et-remplace-thomas-sotto-sur-france-2-26-08-2024-HLDM256KW5FSDAV2LWDJTMWOKA.php)
+- **"Je ne vous cache pas..." : Jean-Baptiste Marteau très amer après une 
+déception de taille**: [Link](https://www.closermag.fr/tv_tele_realite/je-ne-vous-cache-pas-jean-baptiste-marteau-tres-amer-apres-une-deception-de-taille-3469886)
+
+
 ### arsenal vs brighton (N/A, Sat, 31 Aug 2024 03:50:00 -0700)
 
 - **Arteta: ‘The commitment of the team is superb’ | Quotes | News**: [Link](https://www.arsenal.com/news/arteta-commitment-team-superb)
