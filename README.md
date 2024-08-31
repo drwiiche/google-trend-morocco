@@ -1,3 +1,20 @@
+### الرجاء (N/A, Sat, 31 Aug 2024 12:00:00 -0700)
+
+- **الرجاء يفتتح البطولة بهزيمة أمام بركان**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A8%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D9%83%D8%A7-1423978.html)
+- **الرجاء الرياضي يقص شريط البطولة الوطنية وهو يردد "العبرة بالخواتيم"**: [Link](http://ar.sport.le360.ma/botola-pro-1/158159)
+- **بركان يقدم المحمدي**: [Link](https://assabah.ma/796849.html)
+
+
+### para athlétisme paris 2024 programme (N/A, Sat, 31 Aug 2024 10:40:00 -0700)
+
+- **En direct, Jeux paralympiques 2024 : Dorian Foulon en or en cyclisme sur 
+piste, les frères Portal deuxième et troisième du 400 mètres nage libre... 
+Suivez les épreuves**: [Link](https://www.lemonde.fr/sport/live/2024/08/31/en-direct-jeux-paralympiques-2024-les-freres-portal-deuxieme-et-troisieme-du-400-metres-nage-libre-dorian-foulon-en-or-en-cyclisme-sur-piste-suivez-les-epreuves_6300132_3242.html)
+- **Jeux paralympiques - Natation : Alex Portal remporte sa deuxième médaille, 
+le bronze sur 100 m dos**: [Link](https://www.francebleu.fr/sports/tous-les-sports/jeux-paralympiques-natation-alex-portal-remporte-une-deuxieme-medaille-le-bronze-sur-100-m-dos-8765968)
+- **Le tableau des médailles remportées par pays et par athlète le 30 août**: [Link](https://www.20minutes.fr/sport/4107766-20240830-jeux-paralympiques-2024-tableau-medailles-remportees-pays-athlete-vendredi-30-aout)
+
+
 ### bayer leverkusen (N/A, Sat, 31 Aug 2024 11:30:00 -0700)
 
 - **RB Leipzig boss Marco Rose ejected, swipes seat from Bayer Leverkusen fan**: [Link](https://www.bavarianfootballworks.com/2024/8/31/24233001/bundesliga-wildness-reigns-supreme-rb-leipzig-boss-marco-rose-ejected-bayer-leverkusen-fan-wirtz)
