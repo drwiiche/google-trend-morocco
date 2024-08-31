@@ -1,3 +1,10 @@
+### ac milan (N/A, Sat, 31 Aug 2024 12:30:00 -0700)
+
+- **Player Ratings: Lazio 2-2 AC Milan – Emerson disaster; subs life-saving**: [Link](https://sempremilan.com/player-ratings-lazio-2-2-ac-milan-emerson)
+- **Milan stars Leao and Theo Hernandez snub Fonseca after Lazio equaliser**: [Link](https://football-italia.net/milan-stars-leao-theo-hernandez-snub-fonseca/)
+- **AC Milan stay winless; Napoli's Lukaku scores on debut**: [Link](https://www.ftbl.com.au/news/ac-milan-stay-winless-napolis-lukaku-scores-on-debut-611240)
+
+
 ### ayoub adouich (N/A, Sat, 31 Aug 2024 15:20:00 -0700)
 
 - **Jeux Paralympiques 2024: médaille de bronze pour Rajae Akermach en 
