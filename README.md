@@ -1,3 +1,27 @@
+### barca (N/A, Sat, 31 Aug 2024 08:20:00 -0700)
+
+- **Perché Luna Rossa vola sull’acqua: come funzionano le barche di America’s 
+Cup**: [Link](https://www.fanpage.it/sport/altri-sport/perche-luna-rossa-vola-sullacqua-come-funzionano-le-barche-di-americas-cup-2/)
+- **Vela, Alinghi: frustrante secondo giorno della Vuitton Cup**: [Link](https://www.gazzettamatin.com/2024/08/30/vela-alinghi-frustrante-secondo-giorno-della-vuitton-cup/)
+- **Battaglie navali in Coppa America: chi sfiderà Emirates Team New Zealand?**: [Link](https://www.milanofinanza.it/news/battaglie-navali-in-coppa-america-chi-sfidera-emirates-team-new-zealand-202408081115461690)
+
+
+### برشلونة (N/A, Sat, 31 Aug 2024 08:20:00 -0700)
+
+- **مباشر.. مباراة برشلونة ضد بلد الوليد (0-0) في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/8/31/barcelona-spain-football)
+- **تشكيلة برشلونة الرسمية للقاء بلد الوليد في الدوري الاسباني**: [Link](https://hihi2.com/2024/08/31/p2824533.html)
+- **بطولة إسبانيا لكرة القدم.. برنامج الدورة الرابعة**: [Link](https://www.almountakhab.com/node/16203698)
+
+
+### bet 365 (N/A, Sat, 31 Aug 2024 08:20:00 -0700)
+
+- **bet365 Bonus Code SBKWIRE - Get $1000 First Bet Safety Net for College 
+Football, MLB & More**: [Link](https://golfweek.usatoday.com/2024/08/31/bet365-bonus-code-sbkwire-choose-1000-or-150-bonus-now-for-college-football-mlb-more/)
+- **Bet365 Bonus Code RSRXLM: $200 Bonus Bets, $1K Safety Net for Labor Day 
+Weekend**: [Link](https://russellstreetreport.com/2024/08/30/sports-betting/bet365-bonus-code-rsrxlm-200-bonus-bets-1k-safety-net-for-labor-day-weekend/)
+- **bet365 Big League Tuesdays, Get $25 in Bonus Bets for MLB Betting**: [Link](https://www.101greatgoals.com/us/baseball/mlb/bet365-big-league-tuesdays-get-25-in-bonus-bets-for-mlb-betting/)
+
+
 ### dortmund (N/A, Sat, 31 Aug 2024 08:10:00 -0700)
 
 - **RN+ Hafen wird 125 Jahre alt: Die besten Fotos vom Festakt am Freitagabend**: [Link](https://www.ruhrnachrichten.de/dortmund/hafen-wird-125-jahre-alt-die-besten-fotos-vom-festakt-am-freitagabend-w930104-2001350942/)
