@@ -1,3 +1,36 @@
+### fc barcelone (N/A, Sat, 31 Aug 2024 08:30:00 -0700)
+
+- **Le Barça recrute un attaquant dans les dernières heures du mercato**: [Link](https://www.blaugranas.fr/mercato/le-barca-recrute-un-attaquant-dans-les-dernieres-heures-du-mercato-6591)
+- **Barça : un chouchou de Flick prolonge (officiel)**: [Link](https://www.onzemondial.com/liga/barca-un-chouchou-de-flick-prolonge-officiel-908651)
+- **Le FC Barcelone signe un milieu de terrain et prête un autre**: [Link](https://www.blaugranas.fr/mercato/le-fc-barcelone-signe-un-milieu-de-terrain-et-prete-un-autre-6588)
+
+
+### fcb (N/A, Sat, 31 Aug 2024 08:30:00 -0700)
+
+- **FC Barcelona Announces Two Transfers On Deadline Day**: [Link](https://www.forbes.com/sites/tomsanderson/2024/08/31/fc-barcelona-announces-two-transfers-on-deadline-day/)
+- **Ghanaian talent David Oduro set to join Barcelona's La Masia Academy**: [Link](https://www.gbcghanaonline.com/sport/barcelona-david-oduro/2024/)
+- **Dreams FC and Ghana U20 wonder-kid Abdul Aziz Issah offered trial 
+opportunity at FC Barcelona**: [Link](https://www.modernghana.com/sports/1336440/dreams-fc-and-ghana-u20-wonder-kid-abdul-aziz-issa.html)
+
+
+### maria callas film angelina jolie (N/A, Sat, 31 Aug 2024 08:20:00 -0700)
+
+- **Angelina Jolie Weeps Through Rapturous 8-Minute Venice Standing Ovation for 
+‘Maria,’ Launching Oscar Buzz**: [Link](https://variety.com/2024/film/festivals/angelina-jolie-weeps-maria-venice-standing-ovation-pablo-larrain-oscar-buzz-1236115537/)
+- **Maria film review: Pablo Larraín's biopic of Maria Callas, starring 
+Angelina Jolie, is 'too adoring and reverential'**: [Link](https://www.bbc.com/culture/article/20240829-pablo-larrans-maria-starring-angelina-jolie-is-too-adoring-and-reverential)
+- **‘I Like to Think It Made Her Smile’: Angelina Jolie on the Deeper Meaning 
+Behind Her Dazzling Cartier Jewelry in Maria**: [Link](https://www.vogue.com/article/angelina-jolie-maria-callas-cartier-jewelry-interview)
+
+
+### brentford – southampton (N/A, Sat, 31 Aug 2024 07:30:00 -0700)
+
+- **Premier League Brentford 1 Southampton 0 52 minutes played. In progress**: [Link](https://www.bbc.com/sport/football/live/cgl28xezy29t)
+- **Football Accumulator Tips: Saturday Acca For August 31st 2024**: [Link](https://www.bettingodds.com/news/football-accumulator-tips-saturday-31-august-2024)
+- **Alfie House, Southampton reporter: Saints will seek to dominate possession 
+at Gtech**: [Link](https://www.brentfordfc.com/en/news/article/analysis-brentford-v-southampton-premier-league-alfie-house-daily-echo)
+
+
 ### barca (N/A, Sat, 31 Aug 2024 08:20:00 -0700)
 
 - **Perché Luna Rossa vola sull’acqua: come funzionano le barche di America’s 
