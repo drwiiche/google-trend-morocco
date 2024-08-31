@@ -1,3 +1,10 @@
+### bayer leverkusen (N/A, Sat, 31 Aug 2024 11:30:00 -0700)
+
+- **RB Leipzig boss Marco Rose ejected, swipes seat from Bayer Leverkusen fan**: [Link](https://www.bavarianfootballworks.com/2024/8/31/24233001/bundesliga-wildness-reigns-supreme-rb-leipzig-boss-marco-rose-ejected-bayer-leverkusen-fan-wirtz)
+- **Preview: Bayer Leverkusen vs. RB Leipzig - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/preview-bpoint-leverkusen-vs-rb-leipzig-prediction-team-news-lineups_551576.html)
+- **Bundesliga Tips: Back BayArena battle to feature goals**: [Link](https://betting.betfair.com/football/german-football/bundesliga-tips-back-bayarena-battle-to-feature-goals-290824-140.html)
+
+
 ### valence – villarreal (N/A, Sat, 31 Aug 2024 11:40:00 -0700)
 
 - **CD Leganés - Majorque en direct - La Liga : Football Scores & Résultats - 31/08/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-cd-leganes-majorque_mtc1524190/live.shtml)
