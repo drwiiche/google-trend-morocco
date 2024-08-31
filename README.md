@@ -1,3 +1,28 @@
+### ayoub adouich (N/A, Sat, 31 Aug 2024 15:20:00 -0700)
+
+- **Jeux Paralympiques 2024: médaille de bronze pour Rajae Akermach en 
+para-taekwondo**: [Link](https://sport.le360.ma/autres/jeux-paralympiques-2024-medaille-de-bronze-pour-rajae-akermach-en-para-taekwondo-114116)
+- **Paralympiques/taekwondo: la Marocaine Rajae Akermach remporte le bronze des 
++65 kg (K44)**: [Link](https://fr.hespress.com/384231-paralympiques-taekwondo-la-marocaine-rajae-akermach-remporte-le-bronze-des-65-kg-k44.html)
+- **Le Marocain Ayman El Haddaoui qualifié pour la finale du 100 m aux Jeux 
+paralympiques (Paris-2024)**: [Link](https://medias24.com/2024/08/30/le-marocain-ayman-el-haddaoui-qualifie-pour-la-finale-du-100-m-aux-jeux-paralympiques-paris-2024/)
+
+
+### مباريات الغد (N/A, Sat, 31 Aug 2024 15:10:00 -0700)
+
+- **الرجاء يفتتح البطولة بهزيمة أمام بركان**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A8%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D9%83%D8%A7-1423978.html)
+- **المحمدي: "الأجواء جيدة في البطولة ولا يوجد أفضل من الفوز لبدء مشوارنا"**: [Link](https://m.elbotola.com/article/2024-08-31-21-25-846.html)
+- **غضبة رجاوية كبيرة على المدرب البوسني روفيسكو**: [Link](https://sport.lesiteinfo.com/elbotola/443737.html)
+
+
+### toulouse vs marseille (N/A, Sat, 31 Aug 2024 12:30:00 -0700)
+
+- **Toulouse 1-3 OM, Ligue 1 : L'OM prend provisoirement la tête**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/toulouse-om-live/655884)
+- **Ligue 1 - 3e journée : Marseille déroule à Toulouse (1-3), doublé de Mason 
+Greenwood**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/ligue-1-3e-journee-marseille-deroule-a-toulouse-1-3-double-de-mason-greenwood_sto10323535/story.shtml)
+- **Toulouse - OM : les notes du match**: [Link](https://www.footmercato.net/a3123783049306088124-toulouse-om-les-notes-du-match)
+
+
 ### inoxtag everest (N/A, Sat, 31 Aug 2024 14:00:00 -0700)
 
 - **Inoxtag: le youtubeur annonce enfin son retour, après son ascension de 
