@@ -1,3 +1,10 @@
+### ترتيب الدوري الاسباني (N/A, Sat, 31 Aug 2024 10:20:00 -0700)
+
+- **التشكيلة المثالية للجولة الثالثة من الدوري الإسباني**: [Link](https://hihi2.com/2024/08/30/p2822890.html)
+- **ترتيب الدوري الإسباني 2024/25 بعد نهاية الجولة الثالثة**: [Link](https://www.btolat.com/news/350983)
+- **جدول ترتيب هدافي الدوري الإسباني 2024-2025**: [Link](https://www.kooora.com/?n=1350261)
+
+
 ### athletic club vs atlético madrid (N/A, Sat, 31 Aug 2024 10:10:00 -0700)
 
 - **Atletico boss Simeone in terse mood before Bilbao clash**: [Link](https://www.reuters.com/sports/soccer/atletico-boss-simeone-terse-mood-before-bilbao-clash-2024-08-30/)
