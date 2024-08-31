@@ -1,3 +1,19 @@
+### ipswich town – fulham (N/A, Sat, 31 Aug 2024 06:40:00 -0700)
+
+- **Pre-Ipswich Press Conference**: [Link](https://www.fulhamfc.com/news/2024/august/29/pre-ipswich-press-conference/)
+- **McKenna: We're Going to Attack the Game as Best We Can**: [Link](https://www.twtd.co.uk/forum/592035/mckenna-were-going-to-attack-the-game-as-best-we-can)
+- **Premier League Soccer: Livestream Ipswich vs. Fulham From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-ipswich-vs-fulham-from-anywhere/)
+
+
+### nottm forest – wolves (N/A, Sat, 31 Aug 2024 06:40:00 -0700)
+
+- **Matchday Blog | Nottm Forest vs Wolves | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20240831-matchday-blog-nottm-forest-vs-wolves/)
+- **Danilo targeting December return from ankle injury – Nuno Espirito Santo - 
+The Athletic**: [Link](https://www.nytimes.com/athletic/5731128/2024/08/29/danilo-injury-forest/)
+- **Chris Sutton drops concerning admission in score prediction for Nottingham 
+Forest v Wolves**: [Link](https://www.molineux.news/match/chris-sutton-drops-concerning-admission-in-score-prediction-for-nottingham-forest-v-wolves/)
+
+
 ### leicester city (N/A, Sat, 31 Aug 2024 06:30:00 -0700)
 
 - **Bilal El Khannouss Signs Four-Year Deal**: [Link](https://www.lcfc.com/news/4099581/bilal-el-khannouss-signs-fouryear-deal)
