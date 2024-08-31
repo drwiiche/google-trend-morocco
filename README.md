@@ -1,3 +1,18 @@
+### novak djokovic (N/A, Fri, 30 Aug 2024 18:10:00 -0700)
+
+- **Tiafoe outduels Shelton in all-American thriller**: [Link](https://www.espn.com/tennis/story/_/id/41059540/ben-shelton-frances-tiafoe-taylor-fritz-third-round-matches-highlight-us-open-day-5)
+- **Tiafoe out-duels Shelton in five-set US Open thriller**: [Link](https://sports.yahoo.com/tiafoe-duels-shelton-five-set-013845097.html)
+- **US Open 2024 live updates: Day 5 latest with Novak Djokovic to come after Coco Gauff's victory**: [Link](https://www.nytimes.com/athletic/live-blogs/us-open-2024-tennis-live-updates-day-5-schedule-results/3mIp1WQRRyDx/)
+
+
+### إلهام شاهين (N/A, Fri, 30 Aug 2024 16:50:00 -0700)
+
+- **"يوم جميل لأعدائي".. إلهام شاهين ترد بعد جدل تصريحاتها**: [Link](https://www.alarabiya.net/culture-and-art/2024/08/30/-%D9%8A%D9%88%D9%85-%D8%AC%D9%85%D9%8A%D9%84-%D9%84%D8%A3%D8%B9%D8%AF%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%87%D8%A7%D9%85-%D8%B4%D8%A7%D9%87%D9%8A%D9%86-%D8%AA%D8%B1%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%AC%D8%AF%D9%84-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA%D9%87%D8%A7)
+- **الإعلامية أميرة بدر تهاجم تصريحات إلهام شاهين عن مخرج أوقف التصوير لأداء 
+الصلاة: كلام استفز مشاعر مسلمين كتير**: [Link](https://www.filfan.com/news/173277)
+- **إلهام شاهين ترد على المنتقدين: "مبشغلش بالي"**: [Link](https://etbilarabi.com/%D9%85%D9%8A%D9%83%D8%B3/%D8%A5%D9%84%D9%87%D8%A7%D9%85-%D8%B4%D8%A7%D9%87%D9%8A%D9%86-%D8%AA%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D9%82%D8%AF%D9%8A%D9%86-%D9%85%D8%A8%D8%B4%D8%BA%D9%84%D8%B4-%D8%A8%D8%A7%D9%84%D9%8A)
+
+
 ### hansi flick (N/A, Fri, 30 Aug 2024 17:00:00 -0700)
 
 - **Dani Olmo time: the end of a 16-year odyssey to score for Barcelona | Sid 
