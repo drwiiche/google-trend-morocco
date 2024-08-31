@@ -1,3 +1,12 @@
+### napoli (N/A, Sat, 31 Aug 2024 13:00:00 -0700)
+
+- **Osimhen resta a Napoli ed è fuori rosa: cosa succede adesso. Danso-Roma: 
+perchè l'affare è saltato**: [Link](https://www.corriere.it/sport/24_agosto_31/osimhen-napoli-fuori-rosa-danso-roma-cosa-e-successo-0a6a7b2f-303f-4ef7-99a5-6cf16bcdfxlk.shtml)
+- **Mercato chiuso? Non ancora, in Arabia si tratta sino a lunedì. Tutte le 
+deadline all'estero**: [Link](https://www.gazzetta.it/Calciomercato/31-08-2024/mercato-in-arabia-chiude-lunedi-2-settembre-le-date-degli-altri-campionati.shtml)
+- **Napoli, Osimhen non andrà all'Al Ahli: cosa succede al Fantacalcio?**: [Link](https://www.fantacalcio.it/calciomercato/31_08_2024/napoli-osimhen-non-andra-all-al-ahli-cosa-succede-al-fantacalcio-465528)
+
+
 ### لاتسيو ضد ميلان (N/A, Sat, 31 Aug 2024 12:30:00 -0700)
 
 - **ميلان يستعين بوافد جديد في التشكيل المتوقع أمام لاتسيو**: [Link](https://www.kooora.com/?n=1351663)
