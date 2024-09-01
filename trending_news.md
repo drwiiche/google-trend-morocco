@@ -1,3 +1,27 @@
+### الاميرة مارثا لويز (N/A, Sun, 1 Sep 2024 14:50:00 -0700)
+
+- **أميرة نرويجية تتزوج رجلا زعم أنه كان فرعونا**: [Link](https://www.skynewsarabia.com/varieties/1738739-%D8%A7%D9%94%D9%85%D9%8A%D8%B1%D8%A9-%D9%86%D8%B1%D9%88%D9%8A%D8%AC%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B2%D9%88%D8%AC-%D8%B1%D8%AC%D9%84%D8%A7-%D8%B2%D8%B9%D9%85-%D8%A7%D9%94%D9%86%D9%87-%D9%81%D8%B1%D8%B9%D9%88%D9%86%D8%A7)
+- **الأميرة الغريبة وزوجها الساحر.. كيف علق مغردون على حفل زواجهما؟**: [Link](https://www.aljazeera.net/programs/networks/2024/9/1/%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%BA%D8%B1%D9%8A%D8%A8%D8%A9-%D9%88%D8%B2%D9%88%D8%AC%D9%87%D8%A7-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D8%B1-%D9%83%D9%8A%D9%81-%D8%B9%D9%84%D9%82)
+- **صور.. حفل زفاف ابنة ملك النرويج من "فرعون"**: [Link](https://ar.hibapress.com/details-547131.html)
+
+
+### ترتيبات الدوري الإسباني (N/A, Sun, 1 Sep 2024 14:10:00 -0700)
+
+- **جدول مواعيد مباريات دوري أبطال أوروبا 2024-2025**: [Link](https://www.aljazeera.net/sport/2024/9/1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **باريس يبدأ مشواره في مجموعة الموت بمواجهة جيرونا**: [Link](https://www.kooora.com/?n=1351685)
+- **الفرجة مضمونة.. البرنامج الكامل لمباريات عصبة الأبطال الأوروبية في نسختها 
+الجديدة**: [Link](https://www.akhbarona.com/sport/worldfoot/391395.html)
+
+
+### madrid (N/A, Sun, 1 Sep 2024 13:40:00 -0700)
+
+- **Mercado de fichajes: última hora de Real Madrid, Barcelona, Atlético...**: [Link](https://as.com/futbol/primera/mercado-de-fichajes-ultima-hora-de-real-madrid-barcelona-atletico-n/)
+- **¿Cuándo cierra el mercado de verano en Europa? La fecha límite para 
+contratar refuerzos**: [Link](https://redgol.cl/internacional/fecha-y-hora-del-cierre-del-mercado-de-verano-de-las-principales-ligas-del-futbol-europeo)
+- **Cierre de Mercado: Real Madrid anuncia su última baja, bombazo en España y 
+se va del PSG a la Premier**: [Link](https://www.laprensa.hn/fotogalerias/deportes/mercado-fichajes-cierre-en-vivo-real-madrid-baja-reineir-arabia-barcelona-chelsea-AE21163740)
+
+
 ### live tv (N/A, Sun, 1 Sep 2024 13:00:00 -0700)
 
 - **CPL 2024 FAQs: New team, new players, new intrigues**: [Link](https://www.espncricinfo.com/story/cpl-2024-faqs-who-are-in-action-where-will-the-matches-be-played-how-can-we-watch-the-matches-1448734)
