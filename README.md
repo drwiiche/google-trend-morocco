@@ -1,3 +1,17 @@
+### ليلى علوي (N/A, Sun, 1 Sep 2024 08:10:00 -0700)
+
+- **بالفيديو - ليلى علوي تستمتع بأجواء الصيف بطريقتها الخاصة**: [Link](https://www.lahamag.com/article/214329-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%84%D9%8A%D9%84%D9%89-%D8%B9%D9%84%D9%88%D9%8A-%D8%AA%D8%B3%D8%AA%D9%85%D8%AA%D8%B9-%D8%A8%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%B5%D9%8A%D9%81-%D8%A8%D8%B7%D8%B1%D9%8A%D9%82%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%AE%D8%A7%D8%B5%D8%A9)
+
+
+### premier league (N/A, Sun, 1 Sep 2024 07:30:00 -0700)
+
+- **Arsenal 1-1 Brighton: Declan Rice sent off as Gunners held at home**: [Link](https://www.bbc.com/sport/football/live/ce8dg42zeg3t)
+- **How to watch Arsenal vs Brighton: TV channel and live stream for Premier 
+League game today**: [Link](https://www.standard.co.uk/sport/football/how-to-watch-arsenal-fc-vs-brighton-tv-channel-live-stream-premier-league-today-b1178912.html)
+- **Premier League LIVE: Build-up to Arsenal vs Brighton & Hove Albion followed 
+by six other games**: [Link](https://www.bbc.co.uk/sport/football/live/ckrgr4nlp33t)
+
+
 ### manchester united (N/A, Sun, 1 Sep 2024 08:00:00 -0700)
 
 - **Jadon Sancho squad number confirmed | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/jadon-sancho-squad-number-confirmed)
