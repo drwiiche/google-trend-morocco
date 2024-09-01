@@ -1,3 +1,28 @@
+### ملك النرويج (N/A, Sat, 31 Aug 2024 18:00:00 -0700)
+
+- **أميرة نرويجية تتزوج رجلا زعم أنه كان فرعونا**: [Link](https://www.skynewsarabia.com/varieties/1738739-%D8%A7%D9%94%D9%85%D9%8A%D8%B1%D8%A9-%D9%86%D8%B1%D9%88%D9%8A%D8%AC%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B2%D9%88%D8%AC-%D8%B1%D8%AC%D9%84%D8%A7-%D8%B2%D8%B9%D9%85-%D8%A7%D9%94%D9%86%D9%87-%D9%81%D8%B1%D8%B9%D9%88%D9%86%D8%A7)
+- **صور.. حفل زفاف ابنة ملك النرويج من "فرعون"**: [Link](https://ar.hibapress.com/details-547131.html)
+- **أميرة "الاستبصار" النرويجية تتزوج من معلمها الروحي "الشامان"**: [Link](https://www.dw.com/ar/%D8%A3%D9%85%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%A8%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B2%D9%88%D8%AC-%D9%85%D9%86-%D9%85%D8%B9%D9%84%D9%85%D9%87%D8%A7-%D8%A7%D9%84%D8%B1%D9%88%D8%AD%D9%8A-%D8%A7%D9%84%D8%B4%D8%A7%D9%85%D8%A7%D9%86/a-70102366)
+
+
+### inter miami (N/A, Sat, 31 Aug 2024 17:40:00 -0700)
+
+- **Will Messi play against Chicago Fire? Injury update ahead of Inter Miami 
+game**: [Link](https://www.palmbeachpost.com/story/sports/mls/2024/08/30/lionel-messi-injury-update-inter-miami-chicago-fire/75018906007/)
+- **Latest Update: Lionel Messi ruled out for Inter Miami game at Chicago Fire 
+on Saturday**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article291697255.html)
+- **Lionel Messi to remain sidelined for Inter Miami through international break**: [Link](https://www.foxsports.com/stories/soccer/lionel-messi-remain-sidelined-inter-miami-through-international-break)
+
+
+### brésil (N/A, Sat, 31 Aug 2024 16:50:00 -0700)
+
+- **Brésil : Le réseau X suspendu sur décision du Tribunal suprême**: [Link](https://fr.hespress.com/384123-bresil-le-reseau-x-suspendu-sur-decision-du-tribunal-supreme.html)
+- **Brésil: quelles conséquences après le blocage du réseau social X par la 
+Cour suprême?**: [Link](https://www.rfi.fr/fr/am%C3%A9riques/20240831-br%C3%A9sil-quelles-cons%C3%A9quences-apr%C3%A8s-le-blocage-du-r%C3%A9seau-social-x-par-la-cour-supr%C3%AAme)
+- **Au Brésil, avec la suspension de X, le Tribunal suprême fédéral durcit son 
+bras de fer avec Elon Musk**: [Link](https://www.lemonde.fr/pixels/article/2024/08/31/au-bresil-avec-la-suspension-de-x-le-tribunal-supreme-durcit-son-bras-de-fer-avec-elon-musk_6300056_4408996.html)
+
+
 ### babygirl film (N/A, Sat, 31 Aug 2024 17:40:00 -0700)
 
 - **Nicole Kidman Bares Everything in the Sexy Drama ‘Babygirl’**: [Link](https://www.nytimes.com/2024/08/30/movies/nicole-kidman-babygirl-venice-film-festival.html)
