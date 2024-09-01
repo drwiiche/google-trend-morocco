@@ -1,3 +1,21 @@
+### reims – rennes (N/A, Sun, 1 Sep 2024 08:40:00 -0700)
+
+- **EN DIRECT - Multiplex Ligue 1 : Ito égalise pour Reims contre Rennes, Nice 
+à l’abri à Angers**: [Link](https://www.lefigaro.fr/sports/football/ligue-1/en-direct-multiplex-ligue-1-nice-rennes-et-reims-en-piste-20240901)
+- **Ligue 1 : Sergio Akieme absent au moins un mois, Teddy Teuma de retour avec 
+Reims contre Rennes**: [Link](https://www.lequipe.fr/Football/Actualites/Sergio-akieme-absent-au-moins-un-mois-teddy-teuma-de-retour-avec-reims-contre-rennes/1504493)
+- **PRONOS PARIS RMC Le pari à l'extérieur du 1er septembre - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-1er-septembre-ligue-1_AN-202408310238.html)
+
+
+### man utd (N/A, Sun, 1 Sep 2024 08:40:00 -0700)
+
+- **Arne Slot on Man United’s £200m Spend: Liverpool’s Focus is on the Pitch**: [Link](https://anfieldindex.com/72371/arne-slot-on-man-uniteds-200m-spend-liverpools-focus-is-on-the-pitch.html)
+- **'Listen to me' - Fiery Erik ten Hag points out Man Utd trophy 'facts' and 
+hits back at 'very subjective' claims over his playing style**: [Link](https://www.goal.com/en-gb/lists/fiery-erik-ten-hag-points-out-man-utd-trophy-facts-hits-back-at-claims-over-playing-style/blta9ab56b5ed6e3557)
+- **Arne Slot’s chance to match Bob Paisley and break 131-year record vs. Man 
+United**: [Link](https://www.thisisanfield.com/2024/09/arne-slots-chance-to-match-bob-paisley-and-break-131-year-record-vs-man-united/)
+
+
 ### ليلى علوي (N/A, Sun, 1 Sep 2024 08:10:00 -0700)
 
 - **بالفيديو - ليلى علوي تستمتع بأجواء الصيف بطريقتها الخاصة**: [Link](https://www.lahamag.com/article/214329-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%84%D9%8A%D9%84%D9%89-%D8%B9%D9%84%D9%88%D9%8A-%D8%AA%D8%B3%D8%AA%D9%85%D8%AA%D8%B9-%D8%A8%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%B5%D9%8A%D9%81-%D8%A8%D8%B7%D8%B1%D9%8A%D9%82%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%AE%D8%A7%D8%B5%D8%A9)
