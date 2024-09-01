@@ -1,3 +1,11 @@
+### live tv (N/A, Sun, 1 Sep 2024 13:00:00 -0700)
+
+- **CPL 2024 FAQs: New team, new players, new intrigues**: [Link](https://www.espncricinfo.com/story/cpl-2024-faqs-who-are-in-action-where-will-the-matches-be-played-how-can-we-watch-the-matches-1448734)
+- **Caribbean Premier League 2024: TV channel, online live stream and how to 
+watch CPL from India**: [Link](https://www.sportingnews.com/in/cricket/news/caribbean-premier-league-2024-tv-channel-online-live-stream-and-how-watch-cpl-india/0414f1e289b28049ae7cdb5d)
+- **Amir Is Top Pick - Falcons Vs Patriots Fantasy XI**: [Link](https://www.hindustantimes.com/videos/amir-is-top-pick-falcons-vs-patriots-fantasy-xi-101724913885237.html)
+
+
 ### ترتيب الدوري الاسباني (N/A, Sun, 1 Sep 2024 14:30:00 -0700)
 
 - **تصرف توريس يثير إعجاب فليك**: [Link](https://www.kooora.com/?n=1351912)
