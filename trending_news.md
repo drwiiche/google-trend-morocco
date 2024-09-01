@@ -1,3 +1,13 @@
+### kingsley coman (N/A, Sun, 1 Sep 2024 10:50:00 -0700)
+
+- **Arsenal eye up last-minute move for Bayern Munich star Kingsley Coman, with 
+the Gunners facing competition fro**: [Link](https://www.dailymail.co.uk/sport/football/article-13792091/Arsenal-Bayern-Munich-Kingsley-Coman.html)
+- **Arsenal transfer news LIVE: Gunners ‘explore Coman deal’, Sterling move 
+weighed up, Neto ‘eyed as Ramsdale...**: [Link](https://www.thesun.co.uk/sport/29952119/arsenal-transfer-news-live-coman-ramsdale-nketiah-updates/)
+- **Edu Gaspar now told 'very fast' player is the 'perfect' Deadline Day 
+signing for Arsenal**: [Link](https://www.arsenalinsider.com/transfers/edu-gaspar-now-told-very-fast-player-is-the-perfect-deadline-day-signing-for-arsenal/)
+
+
 ### bundesliga (N/A, Sun, 1 Sep 2024 10:30:00 -0700)
 
 - **Trotz starkem Kampf: S04 unterliegt Köln mit 1:3**: [Link](https://schalke04.de/2-bundesliga/trotz-starkem-kampf-s04-unterliegt-koeln-mit-13/)
