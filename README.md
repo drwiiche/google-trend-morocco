@@ -1,3 +1,24 @@
+### manchester united (N/A, Sun, 1 Sep 2024 08:00:00 -0700)
+
+- **Jadon Sancho squad number confirmed | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/jadon-sancho-squad-number-confirmed)
+- **Raheem Sterling: Arsenal sign England winger on loan from Chelsea in 
+last-minute deadline day deal**: [Link](https://www.eurosport.com/football/premier-league/2024-2025/raheem-sterling-chelsea-arsenal-loan-deadline-day_sto20033170/story.shtml)
+- **Chelsea sign Sancho on loan from Man Utd**: [Link](https://www.premierleague.com/news/4101328)
+
+
+### man united (N/A, Sun, 1 Sep 2024 08:00:00 -0700)
+
+- **Arne Slot on Man United’s £200m Spend: Liverpool’s Focus is on the Pitch**: [Link](https://anfieldindex.com/72371/arne-slot-on-man-uniteds-200m-spend-liverpools-focus-is-on-the-pitch.html)
+- **Erik Ten Hag Boasts About His Trophy Record At Manchester United**: [Link](https://www.forbes.com/sites/sampilger/2024/09/01/erik-ten-hag-boasts-about-his-trophy-record-at-manchester-united/)
+- **Arne Slot’s chance to match Bob Paisley and break 131-year record vs. Man 
+United**: [Link](https://www.thisisanfield.com/2024/09/arne-slots-chance-to-match-bob-paisley-and-break-131-year-record-vs-man-united/)
+
+
+### bayern – fribourg (N/A, Sun, 1 Sep 2024 07:50:00 -0700)
+
+
+
+
 ### le havre – auxerre (N/A, Sun, 1 Sep 2024 07:40:00 -0700)
 
 - **Football – HAC : face à Auxerre, Didier Digard revisite son « onze » de 
