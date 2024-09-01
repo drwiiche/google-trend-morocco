@@ -1,3 +1,18 @@
+### laliga (N/A, Sun, 1 Sep 2024 14:40:00 -0700)
+
+- **Barcelona 7-0 Real Valladolid - Highlights**: [Link](https://www.beinsports.com/en-mena/football/la-liga/articles-video/barcelona-7-0-real-valladolid-highlights-2024-08-31)
+- **Rafinha: We want more, we don't need new players**: [Link](https://www.ysscores.com/en/news/3468833/Rafinha:-We-want-more,-we-don't-need-new-players)
+- **Lewandowski and Raphinha confirm FC Barcelona's supremacy in the race for 
+the Pichichi**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/lewandowski-raphinha-confirm-supremacy-fc-barcelona-fight-for-pichichi_306972_102.html)
+
+
+### madrid vs (N/A, Sun, 1 Sep 2024 14:00:00 -0700)
+
+- **Real Madrid vs. Betis (1 de Sep., 2024) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/704699)
+- **Liverpool 3-0 Man Utd (1 de Sep., 2024) Resultado Final**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/704305)
+- **Grêmio vs. Atlético-MG (1 de Sep., 2024) Resultados en Vivo**: [Link](https://espndeportes.espn.com/futbol/partido/_/juegoId/699596)
+
+
 ### الاميرة مارثا لويز (N/A, Sun, 1 Sep 2024 14:50:00 -0700)
 
 - **أميرة نرويجية تتزوج رجلا زعم أنه كان فرعونا**: [Link](https://www.skynewsarabia.com/varieties/1738739-%D8%A7%D9%94%D9%85%D9%8A%D8%B1%D8%A9-%D9%86%D8%B1%D9%88%D9%8A%D8%AC%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B2%D9%88%D8%AC-%D8%B1%D8%AC%D9%84%D8%A7-%D8%B2%D8%B9%D9%85-%D8%A7%D9%94%D9%86%D9%87-%D9%81%D8%B1%D8%B9%D9%88%D9%86%D8%A7)
