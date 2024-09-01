@@ -1,3 +1,31 @@
+### ترتيب الدوري الاسباني (N/A, Sun, 1 Sep 2024 14:30:00 -0700)
+
+- **تصرف توريس يثير إعجاب فليك**: [Link](https://www.kooora.com/?n=1351912)
+- **فوز برشلونة بسباعية قد يكون امر سلبي اكثر منه ايجابي**: [Link](https://hihi2.com/2024/09/01/p2827183.html)
+- **برشلونة يسحق ضيفه بلد الوليد بسباعية**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AD%D9%82-%D8%A8%D9%84%D8%AF-%D8%A7%D9%84%D9%88%D9%84%D9%8A%D8%AF-%D8%A8%D8%B3%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-1423946.html)
+
+
+### kylian mbappé (N/A, Sun, 1 Sep 2024 14:30:00 -0700)
+
+- **Carlo Ancelotti Confirms Real Madrid’s First-Choice Penalty Taker**: [Link](https://www.forbes.com/sites/samleveridge/2024/08/31/carlo-ancelotti-confirms-real-madrids-first-choice-penalty-taker/)
+- **Managing Madrid Podcast: Diagnosing the Vinicius - Mbappe connection issues**: [Link](https://www.managingmadrid.com/2024/8/30/24232483/managing-madrid-podcast-diagnosing-the-vinicius-mbappe-connection-issues)
+- **Carlo Ancelotti confirms who'll take penalties for Real Madrid**: [Link](https://therealchamps.com/posts/carlo-ancelotti-confirms-take-penalties-real-madrid)
+
+
+### real betis balompié (N/A, Sun, 1 Sep 2024 14:00:00 -0700)
+
+- **Mbappé Marca Su Primer Gol En Liga Con El Real Madrid Ante El Betis**: [Link](https://www.barrons.com/news/mbappe-marca-su-primer-gol-en-liga-con-el-real-madrid-ante-el-betis-01b8c887?refsec=topics_afp-news)
+- **Mbappé se desata**: [Link](https://okdiario.com/diariomadridista/real-madrid/real-madrid-betis-mbappe-desata-459071)
+- **¡Otro tiro que le bloquean a Mbappé!**: [Link](https://es.besoccer.com/noticia/directo-real-madrid-real-betis-laliga-primera-division-en-vivo-1329012)
+
+
+### psg vs lille (N/A, Sun, 1 Sep 2024 13:40:00 -0700)
+
+- **Ligue 1 Soccer: Livestream Lille vs. PSG From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/ligue-1-soccer-livestream-lille-vs-psg-from-anywhere/)
+- **Ligue 1 Predictions | Round 3**: [Link](https://www.getfootballnewsfrance.com/2024/ligue-1-predictions-round-3-2/)
+- **WATCH!! PSG vs Lille OSC LIVE Streams Lille OSC vs Paris Saint Germain Live On Tv Channel 01 September 2024**: [Link](https://www.nature.com/naturecareers/employer/3c8c85d4-70be-4ffe-a11c-762eb8d7c9a6/watch-psg-vs-lille-osc-live-streams-lille-osc-vs-paris-saint-germain-live-on-tv-channel-01-september-2024)
+
+
 ### modric (N/A, Sun, 1 Sep 2024 14:20:00 -0700)
 
 - **10 Most Intelligent Players in Football History [Ranked]**: [Link](https://www.givemesport.com/10-most-intelligent-players-football-history-ranked-messi-modric/)
