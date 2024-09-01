@@ -1,3 +1,28 @@
+### chelsea – crystal palace (N/A, Sun, 1 Sep 2024 04:40:00 -0700)
+
+- **Stamford Bridge & squad games: Everything you need to know about Chelsea**: [Link](https://www.cpfc.co.uk/news/match-previews/chelsea-opposition-briefing-everything-you-need-to-know/)
+- **Enzo Maresca on Crystal Palace, Cole Palmer and his relationship with 
+supporters | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-on-crystal-palace-cole-palmer-and-his-relationship-with)
+- **Enzo Maresca drops big team news ahead of Crystal Palace game**: [Link](https://chelsea.news/2024/08/enzo-maresca-drops-big-team-news-ahead-of-crystal-palace-game/)
+
+
+### newcastle – tottenham (N/A, Sun, 1 Sep 2024 04:40:00 -0700)
+
+- **Spurs without Solanke, Richarlison for Newcastle trip**: [Link](https://www.france24.com/en/live-news/20240830-spurs-without-solanke-richarlison-for-newcastle-trip)
+- **Premier League Predictions & best bets: Away wins for Tottenham and 
+Liverpool on Super Sunday**: [Link](https://www.skysports.com/football/news/11095/13206095/premier-league-predictions-and-best-bets-away-wins-for-tottenham-and-liverpool-on-super-sunday)
+- **Howe facing four dilemmas and £125m duo out for Spurs – Predicted line-ups**: [Link](https://www.nufcblog.co.uk/2024/09/01/howe-facing-four-dilemmas-and-125m-spurs-duo-ruled-out-predicted-line-ups/)
+
+
+### formula 1 (N/A, Sun, 1 Sep 2024 04:40:00 -0700)
+
+- **Norris seals pole position ahead of Piastri at Monza as McLaren secure 
+front row lockout**: [Link](https://www.formula1.com/en/latest/article/norris-seals-pole-position-ahead-of-piastri-at-monza-as-mclaren-secure-front.4ZYpKyV7XxYPQoJ8WzLTtX)
+- **Italian GP: Lando Norris aims to take advantage of F1 world championship 
+rival Max Verstappen's poor Monza qualifying**: [Link](https://www.skysports.com/f1/news/12433/13206614/italian-gp-lando-norris-aims-to-take-advantage-of-f1-world-championship-rival-max-verstappens-poor-monza-qualifying)
+- **F1 Italian Grand Prix – Start time, starting grid, how to watch, & more**: [Link](https://www.autosport.com/f1/news/f1-italian-grand-prix-start-time-starting-grid-how-to-watch-more-10649791/10649791/)
+
+
 ### raphaël varane (N/A, Sun, 1 Sep 2024 03:20:00 -0700)
 
 - **El Como de Cesc no inscribe en Serie A a Raphael Varane y se especula con 
