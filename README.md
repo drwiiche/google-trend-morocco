@@ -1,3 +1,19 @@
+### arne slot (N/A, Sun, 1 Sep 2024 09:50:00 -0700)
+
+- **Ten Hag: Slot inherited better team than I did**: [Link](https://www.espn.com/soccer/story/_/id/41064981/arne-slot-inherited-better-team-did-man-utd-ten-hag)
+- **Dutch delight as Ten Hag and Slot lead United and Liverpool into battle**: [Link](https://www.theguardian.com/football/article/2024/aug/31/dutch-delight-as-ten-hag-and-slot-lead-united-and-liverpool-into-battle)
+- **Jordi Cruyff interview: Ten Hag and Slot doing battle at Man Utd and 
+Liverpool would make Dad proud**: [Link](https://www.telegraph.co.uk/football/2024/09/01/manchester-united-liverpool-premier-league-ten-hag-slot/)
+
+
+### banque brics algérie (N/A, Sun, 1 Sep 2024 09:50:00 -0700)
+
+- **BRICS : l’Algérie est désormais membre de la Nouvelle banque de 
+développement (NDB)**: [Link](https://al24news.com/fr/brics-lalgerie-est-desormais-membre-de-la-nouvelle-banque-de-developpement-ndb/)
+- **L’Algérie adhère à la Nouvelle banque de développement des Brics**: [Link](https://www.jeuneafrique.com/1604001/politique/lalgerie-adhere-a-la-nouvelle-banque-de-developpement-des-brics/)
+- **L’Algérie autorisée à rejoindre la banque des Brics**: [Link](https://www.algerie-eco.com/2024/08/31/lalgerie-autorisee-a-rejoindre-la-banque-des-brics/)
+
+
 ### getafe – real sociedad (N/A, Sun, 1 Sep 2024 09:30:00 -0700)
 
 - **Fotos | Las portadas de la prensa deportiva hoy**: [Link](https://www.sport.es/es/galerias/comunicacion/20240901/portadas-prensa-deportiva-hoy-107610514)
