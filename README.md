@@ -1,3 +1,12 @@
+### temu (N/A, Sat, 31 Aug 2024 23:50:00 -0700)
+
+- **Temu owner PDD builds $38bn cash pile as it denies investors payouts**: [Link](https://www.ft.com/content/651ea111-4fc2-4e88-a4fa-4dc5fca48c1e)
+- **September is a historically rough month for Apple shares. Here’s what could 
+happen next**: [Link](https://www.cnbc.com/2024/08/31/september-is-a-historically-rough-month-for-apple-shares.html)
+- **Temu’s billionaire founder lost his title as China’s richest person just 20 
+days after winning it**: [Link](https://fortune.com/2024/08/28/temu-founder-colin-huang-billionaire-richest-man/)
+
+
 ### sofyan amrabat (N/A, Sun, 1 Sep 2024 00:50:00 -0700)
 
 - **Fiorentina fans thank ‘true professional’ Amrabat after Fenerbahce move**: [Link](https://football-italia.net/fiorentina-fan-professional-amrabat-fenerbahce/)
