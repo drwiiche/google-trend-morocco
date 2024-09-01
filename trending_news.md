@@ -1,3 +1,10 @@
+### sofyan amrabat (N/A, Sun, 1 Sep 2024 00:50:00 -0700)
+
+- **Fiorentina fans thank ‘true professional’ Amrabat after Fenerbahce move**: [Link](https://football-italia.net/fiorentina-fan-professional-amrabat-fenerbahce/)
+- **Man Utd make Sofyan Amrabat transfer announcement as Jose Mourinho role emerges**: [Link](https://www.mirror.co.uk/sport/football/transfer-news/manutd-sofyan-amrabat-mourinho-fenerbahce-33576189)
+- **Amrabat completes switch to Turkey**: [Link](https://www.manutd.com/en/news/detail/former-man-utd-midfielder-sofyan-amrabat-completes-move-to-fenerbahce-joins-jose-mourinho-and-fred)
+
+
 ### بارالمبياد النبالة (N/A, Sat, 31 Aug 2024 16:20:00 -0700)
 
 - **بارالمبياد باريس 2024 .. لاعبو المنتخب المغربي للسيسيفوت متحمسون ومصرون على 
