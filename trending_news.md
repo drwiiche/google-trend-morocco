@@ -1,3 +1,16 @@
+### fiorentina – monza (N/A, Sun, 1 Sep 2024 09:20:00 -0700)
+
+- **Preview: Fiorentina vs. Monza - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fiorentina/preview/preview-fiorentina-vs-monza-prediction-team-news-lineups_551627.html)
+- **Fiorentina vs Monza Prediction & Picks - Serie A**: [Link](https://www.sportytrader.com/us/picks/fiorentina-monza-212770/)
+
+
+### casemiro (N/A, Sun, 1 Sep 2024 09:10:00 -0700)
+
+- **(1) Manchester United v Liverpool: Premier League – live**: [Link](https://www.theguardian.com/football/live/2024/sep/01/manchester-united-v-liverpool-premier-league-live)
+- **Casemiro told to RETIRE after first-half horror show vs Liverpool as Man Utd fans insist Brazilian midfielder is 'worst player at the club'**: [Link](https://www.goal.com/en-us/lists/casemiro-told-to-retire-after-first-half-horror-show-vs-liverpool-as-man-utd-fans-insist-brazilian-midfielder-is-worst-player-at-the-club/bltfabdc1437931ef0b)
+- **Diaz's double gives Liverpool 2-0 lead v. Man Utd**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/luis-diaz-doubles-his-tally-to-give-liverpool-2-0-lead-v-manchester-united)
+
+
 ### bayern vs sc freiburg (N/A, Sun, 1 Sep 2024 08:50:00 -0700)
 
 - **Viele personelle Optionen in München**: [Link](https://www.scfreiburg.com/aktuell/nachrichten/profis/vorberichte/2024-25/viele-personelle-moeglichkeiten-in-muenchen/)
