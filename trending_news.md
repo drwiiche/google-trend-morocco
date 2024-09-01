@@ -1,3 +1,12 @@
+### raphaël varane (N/A, Sun, 1 Sep 2024 03:20:00 -0700)
+
+- **El Como de Cesc no inscribe en Serie A a Raphael Varane y se especula con 
+una posible retirada**: [Link](https://www.marca.com/futbol/liga-italiana/2024/08/31/66d304baca4741d1298b4572.html)
+- **¡El Como no inscribe a Varane en la Serie A!**: [Link](https://www.sport.es/es/noticias/calcio/inscribe-varane-serie-107584150)
+- **Varane no es inscrito en el Como de Cesc Fábregas en la Serie A: una lesión 
+podría retirarle**: [Link](https://www.eldesmarque.com/futbol/serie-a/20240831/varane-no-es-inscrito-en-el-como-de-cesc-fabregas-en-la-serie-a-una-lesion-podria-retirarle_300430449.html)
+
+
 ### f1 (N/A, Sun, 1 Sep 2024 04:10:00 -0700)
 
 - **F1 Italian Grand Prix – Start time, starting grid, how to watch, & more**: [Link](https://www.autosport.com/f1/news/f1-italian-grand-prix-start-time-starting-grid-how-to-watch-more-10649791/10649791/)
