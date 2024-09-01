@@ -1,3 +1,17 @@
+### modric (N/A, Sun, 1 Sep 2024 14:20:00 -0700)
+
+- **10 Most Intelligent Players in Football History [Ranked]**: [Link](https://www.givemesport.com/10-most-intelligent-players-football-history-ranked-messi-modric/)
+- **Ancelotti’s ‘strategic bet’ on Güler spurs Real Madrid triumph | Daily Sabah**: [Link](https://www.dailysabah.com/sports/football/ancelottis-strategic-bet-on-guler-spurs-real-madrid-triumph)
+- **Ancelotti sees veteran Real Madrid midfielder ‘behind’ Arda Guler and Brahim Diaz – report**: [Link](https://madriduniversal.com/ancelotti-sees-veteran-real-madrid-midfielder-behind-arda-guler-and-brahim-diaz-report/)
+
+
+### endrick (N/A, Sun, 1 Sep 2024 14:20:00 -0700)
+
+- **Transfer window winners & losers: How Chelsea, Arsenal and other top clubs fared**: [Link](https://www.espn.com/soccer/story/_/id/41053493/atletico-arsenal-win-transfer-window-chelsea-biggest-losers)
+- **Inside Arsenal’s transfer window: Sterling loan terms and goalkeeper frustration - The Athletic**: [Link](https://www.nytimes.com/athletic/5734053/2024/08/31/arsenal-transfer-window-latest-news-inside/)
+- **Transfer Deadline Day Summer 2024 - All the done deals in the Premier League as Raheem Sterling joins Arsenal**: [Link](https://www.eurosport.com/football/premier-league/2024-2025/transfer-deadline-day-all-done-deals-premier-league_sto20033257/story.shtml)
+
+
 ### madrid fc (N/A, Sun, 1 Sep 2024 14:10:00 -0700)
 
 - **El Madrid de los franceses**: [Link](https://www.sport.es/es/noticias/opinion/madrid-franceses-mbpabbe-barca-cantera-107282388)
