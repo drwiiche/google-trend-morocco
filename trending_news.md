@@ -1,3 +1,12 @@
+### isco (N/A, Sun, 1 Sep 2024 13:40:00 -0700)
+
+- **Sorpresa en el Betis: baja muy importante contra el Real Madrid en el 
+Bernabéu**: [Link](https://www.defensacentral.com/real_madrid/1709326167-sorpresa-en-el-betis-baja-muy-importante-contra-el-real-madrid-en-el-bernabeu)
+- **Vitor Roque, novedad en la lista de Pellegrini para el Bernabéu**: [Link](https://www.marca.com/futbol/betis/2024/08/31/66d30fea268e3eaf668b45a0.html)
+- **Chimy Ávila se ejercita con el grupo en la última sesión antes de visitar 
+al Real Madrid**: [Link](https://betis.besoccer.com/noticia/chimy-avila-se-ejercita-con-el-grupo-en-la-ultima-sesion-antes-de-visitar-al-real-madrid-1328853)
+
+
 ### مباريات اليوم مباشر (N/A, Sun, 1 Sep 2024 12:50:00 -0700)
 
 - **مواعيد مباريات اليوم.. السيتى يواجه وست هام وبرشلونة يستضيف بلد الوليد**: [Link](https://www.youm7.com/story/2024/8/31/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%89-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%A8%D9%84%D8%AF/6690659)
