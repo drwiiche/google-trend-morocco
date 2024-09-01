@@ -1,3 +1,12 @@
+### chelsea (N/A, Sun, 1 Sep 2024 06:10:00 -0700)
+
+- **Jadon Sancho completes Chelsea move! | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/jadon-sancho-completes-chelsea-move)
+- **Raheem Sterling rejected incredible £650,000-a-week transfer in favour of 
+joining Arsenal**: [Link](https://www.mirror.co.uk/sport/football/transfer-news/raheem-sterling-transfer-arsenal-saudi-33573220)
+- **£70m deals, Simon Adingra interest, Aaron Ramsdale future - Arsenal 
+deadline day transfer plans**: [Link](https://www.football.london/arsenal-fc/transfer-news/70m-sales-simon-adingra-price-29812991)
+
+
 ### monaco – lens (N/A, Sun, 1 Sep 2024 05:20:00 -0700)
 
 - **AS Monaco-RC Lens : le groupe lensois**: [Link](https://www.rclens.fr/fr/news/groupe-lensois-monaco-rclens-3e-journee-ligue1-mcdonalds-20240831)
