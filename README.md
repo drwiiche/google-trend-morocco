@@ -1,3 +1,17 @@
+### fatima ezzahra el idrissi (N/A, Sun, 1 Sep 2024 10:10:00 -0700)
+
+- **Jeux paralympiques : le Marocain Abdelilah Gani remporte l’or au F53 et établit un nouveau record du monde**: [Link](https://ledesk.ma/encontinu/jeux-paralympiques-le-marocain-abdelilah-gani-remporte-lor-au-f53-et-etablit-un-nouveau-record-du-monde/)
+- **Jeux Paralympiques 2024: la médaille d’Abdelillah Gani au lancer du poids (F53) réévaluée en or**: [Link](https://sport.le360.ma/athletisme/jeux-paralympiques-2024-la-medaille-dabdelillah-gani-au-lancer-du-poids-f53-reevaluee-en-or-114129)
+- **Paralympiques/taekwondo: la Marocaine Rajae Akermach remporte le bronze des +65 kg (K44)**: [Link](https://fr.hespress.com/384231-paralympiques-taekwondo-la-marocaine-rajae-akermach-remporte-le-bronze-des-65-kg-k44.html)
+
+
+### bayern (N/A, Sun, 1 Sep 2024 09:20:00 -0700)
+
+- **Fußball-Bundesliga: FC Bayern ehrt seine Europokal-Helden von 1974**: [Link](https://www.volksstimme.de/panorama/fc-bayern-ehrt-seine-europokal-helden-von-1974-3908795)
+- **EuroLeague-Erfahrung für Herberts Staff durch Berrocal und Parker**: [Link](https://fcbayern.com/basketball/de/news/2024-25/09/staff2024)
+- **Gordon Herbert exklusiv: "Meisterschafts-Kultur" beim FC Bayern**: [Link](https://www.br.de/nachrichten/sport/gordon-herbert-exklusiv-meisterschafts-kultur-beim-fc-bayern,UMHPW99)
+
+
 ### arne slot (N/A, Sun, 1 Sep 2024 09:50:00 -0700)
 
 - **Ten Hag: Slot inherited better team than I did**: [Link](https://www.espn.com/soccer/story/_/id/41064981/arne-slot-inherited-better-team-did-man-utd-ten-hag)
