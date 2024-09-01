@@ -1,3 +1,19 @@
+### getafe – real sociedad (N/A, Sun, 1 Sep 2024 09:30:00 -0700)
+
+- **Fotos | Las portadas de la prensa deportiva hoy**: [Link](https://www.sport.es/es/galerias/comunicacion/20240901/portadas-prensa-deportiva-hoy-107610514)
+- **Espanyol - Rayo Vallecano | El gol de Carlos Romero**: [Link](https://www.sport.es/es/videos/resumenes-liga/20240831/espanyol-rayo-vallecano-gol-carlos/107596819.shtml)
+- **Manchester United - Liverpool en directo de 3a Jornada en Old Trafford**: [Link](https://www.sport.es/es/directo/premier-league/directo-manchester-united-liverpool-107304384/narracion)
+
+
+### ليلى عبداللطيف (N/A, Sun, 1 Sep 2024 09:30:00 -0700)
+
+- **وفاة ليلى عبد اللطيف تثير مواقع التواصل الاجتماعي.. وكيل أعمالها يوضح 
+الحقيقة بوش**: [Link](https://www.swatan.news/295131/%D9%84%D9%8A%D9%84%D9%89-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D8%B7%D9%8A%D9%81/)
+- **حقيقة وفاة خبيرة التوقعات اللبنانية ليلي عبد اللطيف.. وهل تحققت النبوءة 
+الأخيرة؟**: [Link](https://zahraa.mr/3145601/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%88%D9%81%D8%A7%D8%A9-%D8%AE%D8%A8%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%84%D8%A8%D9%86%D8%A7%D9%86%D9%8A%D8%A9-%D9%84/)
+- **ليلى عبداللطيف تنفي شائعة وفاتها**: [Link](https://etbilarabi.com/%D9%85%D9%8A%D9%83%D8%B3/%D9%84%D9%8A%D9%84%D9%89-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D8%B7%D9%8A%D9%81-%D8%AA%D9%86%D9%81%D9%8A-%D8%B4%D8%A7%D8%A6%D8%B9%D8%A9-%D9%88%D9%81%D8%A7%D8%AA%D9%87%D8%A7)
+
+
 ### fiorentina – monza (N/A, Sun, 1 Sep 2024 09:20:00 -0700)
 
 - **Preview: Fiorentina vs. Monza - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fiorentina/preview/preview-fiorentina-vs-monza-prediction-team-news-lineups_551627.html)
