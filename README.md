@@ -1,3 +1,25 @@
+### manchester united – liverpool (N/A, Sun, 1 Sep 2024 07:10:00 -0700)
+
+- **Why Ugarte will not make Man Utd debut today**: [Link](https://www.standard.co.uk/sport/football/why-ugarte-will-not-make-man-utd-debut-today-liverpool-b1179412.html)
+- **Premier League Manchester United versus Liverpool kick off 16:00 Sun 1 Sep 
+2024**: [Link](https://www.bbc.com/sport/football/live/cx2npz4yx3gt)
+- **Team news for United v Liverpool**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-liverpool-at-old-trafford-1-september-2024)
+
+
+### deportivo alavés – las palmas (N/A, Sun, 1 Sep 2024 07:10:00 -0700)
+
+- **LA PREVIA: Regreso a Mendizorroza**: [Link](https://www.udlaspalmas.es/noticias/la-previa-jornada-4-deportivo-alaves)
+- **Manu Fuster, Mata y Álex Muñoz: las sorpresas del once amarillo en Mendizorroza**: [Link](https://tiempodecanarias.com/noticia/deportes/manu-fuster-mata-y-alex-munoz-las-sorpresas-del-once-amarillo-en-mendizorroza)
+- **El Alavés busca un triunfo que allane la construcción**: [Link](https://www.elcorreo.com/alaves/alaves-busca-triunfo-allane-construccion-20240901003534-nt.html)
+
+
+### مان يونايتد ضد ليفربول (N/A, Sun, 1 Sep 2024 07:10:00 -0700)
+
+- **صلاح يواجه راشفورد.. التشكيل المتوقع لقمة يونايتد وليفربول**: [Link](https://www.kooora.com/?n=1351859)
+- **مباشر.. مباراة مانشستر يونايتد ضد ليفربول في البريميرليغ**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/1/manchester-united-liverpool-premier-league)
+- **أرقام أرني سلوت أمام تين هاج**: [Link](https://hihi2.com/2024/09/01/p2825744.html)
+
+
 ### liverpool (N/A, Sun, 1 Sep 2024 06:40:00 -0700)
 
 - **Liverpool trio’s contract situation amplifies every miffed moment this 
