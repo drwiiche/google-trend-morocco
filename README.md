@@ -1,3 +1,18 @@
+### madrid fc (N/A, Sun, 1 Sep 2024 14:10:00 -0700)
+
+- **El Madrid de los franceses**: [Link](https://www.sport.es/es/noticias/opinion/madrid-franceses-mbpabbe-barca-cantera-107282388)
+- **Del Real Madrid no se va nadie**: [Link](https://www.eldebate.com/deportes/futbol/20240827/real-madrid-no-nadie_222526.html)
+- **Real Madrid - Betis en directo: ¡Posible penalti a Ceballos y amarilla a 
+Vinicius por protestar! | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/r-madrid-betis/2024/09/01/01_0101_20240901_186_185-directo.html)
+
+
+### real madrid match (N/A, Sun, 1 Sep 2024 14:00:00 -0700)
+
+- **0-2: Real Madrid win final friendly before start of league campaign**: [Link](https://www.realmadrid.com/en-US/news/football/womens-team/reports/0-2-el-real-madrid-gana-el-ultimo-amistoso-antes-del-inicio-de-liga-01-09-2024)
+- **Real Madrid - Real Betis live: La Liga - Football**: [Link](https://www.tntsports.co.uk/football/la-liga/2024-2025/live-real-madrid-real-betis_mtc1524189/live-commentary.shtml)
+- **Real Madrid announce squad for La Liga match against Betis**: [Link](https://www.managingmadrid.com/2024/8/31/24233013/real-madrid-betis-2024-news-squad-list)
+
+
 ### mbappe (N/A, Sun, 1 Sep 2024 14:00:00 -0700)
 
 - **Kylian Mbappe sets unwanted record ahead of Real Betis showdown**: [Link](https://www.football-espana.net/2024/08/31/kylian-mbappe-unwanted-record-real-betis)
