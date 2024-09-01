@@ -1,3 +1,11 @@
+### uruguay – guatemala (N/A, Sun, 1 Sep 2024 15:30:00 -0700)
+
+- **Selección: la nómina de 23**: [Link](https://www.tenfield.com.uy/seleccion-la-nomina-de-23/)
+- **La selección local ya está en Miami para enfrentar a Guatemala**: [Link](https://www.carasycaretas.com.uy/deportes/la-seleccion-local-ya-esta-miami-enfrentar-guatemala-n76873)
+- **¿A qué hora juega la selección de Uruguay vs Guatemala este domingo y dónde 
+verlo?**: [Link](https://www.elobservador.com.uy/seleccion/a-que-hora-juega-la-seleccion-uruguay-vs-guatemala-este-domingo-y-donde-verlo-n5958786)
+
+
 ### laliga (N/A, Sun, 1 Sep 2024 14:40:00 -0700)
 
 - **Barcelona 7-0 Real Valladolid - Highlights**: [Link](https://www.beinsports.com/en-mena/football/la-liga/articles-video/barcelona-7-0-real-valladolid-highlights-2024-08-31)
