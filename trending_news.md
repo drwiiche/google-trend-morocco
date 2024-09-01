@@ -1,3 +1,34 @@
+### mbappe (N/A, Sun, 1 Sep 2024 14:00:00 -0700)
+
+- **Kylian Mbappe sets unwanted record ahead of Real Betis showdown**: [Link](https://www.football-espana.net/2024/08/31/kylian-mbappe-unwanted-record-real-betis)
+- **Real Madrid: Ancelotti esclarece relação entre Mbappé e Vini Jr. após 
+polêmicas**: [Link](https://gazetadourubu.com/noticia/real-madrid-ancelotti-esclarece-relacao-entre-mbappe-e-vini-jr-apos-polemicas?lang=en)
+- **No problem with Kylian Mbappe’s start at Real Madrid – Carlo Ancelotti**: [Link](https://www.cumnockchronicle.com/sport/national/24554697.no-problem-kylian-mbappes-start-real-madrid---carlo-ancelotti/)
+
+
+### لا ليغا (N/A, Sun, 1 Sep 2024 14:00:00 -0700)
+
+- **تصرف توريس يثير إعجاب فليك**: [Link](https://www.kooora.com/?n=1351912)
+- **فوز برشلونة بسباعية قد يكون امر سلبي اكثر منه ايجابي**: [Link](https://hihi2.com/2024/09/01/p2827183.html)
+- **برشلونة يسحق ضيفه بلد الوليد بسباعية**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AD%D9%82-%D8%A8%D9%84%D8%AF-%D8%A7%D9%84%D9%88%D9%84%D9%8A%D8%AF-%D8%A8%D8%B3%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-1423946.html)
+
+
+### yallakora (N/A, Sun, 1 Sep 2024 13:50:00 -0700)
+
+- **بالصور: انضمام النني ولاعبي الأهلي والزمالك لمعسكر الفراعنة**: [Link](http://www.kooora.com/default.aspx?n=1352037&pg=1&o=n)
+- **منتخب مصر يخوض اليوم أول مران جماعي بمشاركة اللاعبين الدوليين**: [Link](https://www.youm7.com/story/2024/9/1/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%AE%D9%88%D8%B6-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D9%88%D9%84-%D9%85%D8%B1%D8%A7%D9%86-%D8%AC%D9%85%D8%A7%D8%B9%D9%8A-%D8%A8%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A%D9%8A%D9%86/6692489)
+- **إبراهيم حسن: باب المنتخب المصري مفتوح للجميع... ونريد التأهل مبكراً**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/5054758-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AD%D8%B3%D9%86-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%85%D9%81%D8%AA%D9%88%D8%AD-%D9%84%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D9%88%D9%86%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%85%D8%A8%D9%83%D8%B1%D8%A7%D9%8B)
+
+
+### live (N/A, Sun, 1 Sep 2024 13:00:00 -0700)
+
+- **Thousands protest in Israel over hostage deaths, as union calls general 
+strike**: [Link](https://www.bbc.com/news/articles/cze5x793569o)
+- **Bodies of 6 hostages, murdered by Hamas just days ago, found in Rafah – IDF**: [Link](https://www.timesofisrael.com/bodies-of-6-hostages-murdered-by-hamas-just-days-earlier-found-in-rafah-idf/)
+- **Hersh Goldberg-Polin: The ‘happy-go-lucky’ Israeli American who became a 
+symbol of Israel’s enduring hostage heartbreak**: [Link](https://www.cnn.com/2024/09/01/middleeast/israel-gaza-hostage-polin-goldberg-profile-intl-hnk/index.html)
+
+
 ### isco (N/A, Sun, 1 Sep 2024 13:40:00 -0700)
 
 - **Sorpresa en el Betis: baja muy importante contra el Real Madrid en el 
