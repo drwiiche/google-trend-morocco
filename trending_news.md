@@ -1,3 +1,19 @@
+### le havre – auxerre (N/A, Sun, 1 Sep 2024 07:40:00 -0700)
+
+- **Football – HAC : face à Auxerre, Didier Digard revisite son « onze » de 
+départ**: [Link](https://www.paris-normandie.fr/id555267/article/2024-09-01/football-hac-face-auxerre-didier-digard-revisite-son-onze-de-depart)
+- **AJ Auxerre : Trois recrues dans le groupe pour affronter Le Havre AC !**: [Link](https://madeinfoot.ouest-france.fr/infos/article-aj-auxerre-trois-recrues-dans-le-groupe-pour-affronter-le-havre-ac-456286.html)
+- **PRONOS PARIS RMC Le nul du jour du 1er septembre - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-1er-septembre-ligue-1_AN-202408310235.html)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 1 Sep 2024 07:40:00 -0700)
+
+- **ترتيب هدافي الدوري الإنجليزي حتى الآن**: [Link](https://hihi2.com/2024/09/01/p2826137.html)
+- **ترتيب هدافي الدوري الإنجليزي بعد هاتريك هالاند في مباراة مانشستر سيتي ووست 
+هام**: [Link](https://www.btolat.com/news/351094)
+- **برنامج الدورة 3 من "البريمير ليغ"**: [Link](https://badil.info/157194)
+
+
 ### osasuna – celta vigo (N/A, Sun, 1 Sep 2024 07:30:00 -0700)
 
 - **Osasuna se entrena y comienza a preparar el partido contra el Celta**: [Link](https://www.osasuna.es/news/read/35900/osasuna-se-entrena-y-comienza-a-preparar-el-partido-contra-el-celta)
