@@ -1,3 +1,10 @@
+### monaco – lens (N/A, Sun, 1 Sep 2024 05:20:00 -0700)
+
+- **AS Monaco-RC Lens : le groupe lensois**: [Link](https://www.rclens.fr/fr/news/groupe-lensois-monaco-rclens-3e-journee-ligue1-mcdonalds-20240831)
+- **PRONOS PARIS RMC Le pari de folie du 1er septembre - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-de-folie-du-1er-septembre-ligue-1_AN-202408310225.html)
+- **ASM-RCL : Les compositions probables**: [Link](https://asm-supporters.fr/actualites/59969-asm-rcl-les-compositions-probables-5)
+
+
 ### تشيلسي ضد كريستال بالاس (N/A, Sun, 1 Sep 2024 05:00:00 -0700)
 
 - **مدرب كريستال بالاس: الصفقات الجديدة لن تشارك أمام تشيلسي**: [Link](https://www.kooora.com/?n=1351715)
