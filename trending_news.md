@@ -1,3 +1,17 @@
+### kylian mbappé real madrid (N/A, Sun, 1 Sep 2024 12:10:00 -0700)
+
+- **Brazilian player leaves Real Madrid on deadline day**: [Link](https://therealchamps.com/posts/brazilian-player-leaves-real-madrid-deadline-day)
+- **Real Madrid out-of-favour youngster closing in on loan move to Spanish club**: [Link](https://madriduniversal.com/real-madrid-out-of-favour-youngster-closing-in-on-loan-move-to-spanish-club/)
+- **Norwich City set for Real Madrid transfer blow as fresh destination revealed**: [Link](https://footballleagueworld.co.uk/norwich-city-reinier-real-madrid-transfer-blow-granada/)
+
+
+### الريال ضد ريال بتيس (N/A, Sun, 1 Sep 2024 11:40:00 -0700)
+
+- **4 غيابات تضرب قائمة ريال مدريد أمام بيتيس**: [Link](https://www.kooora.com/?n=1351704)
+- **موعد مباراة ريال مدريد ضد ريال بيتيس بالدوري الإسباني والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/8/31/real-madrid-vs-real-betis)
+- **مواجهة مثيرة بين دياز و الزلزولي قبل تواجدهما في تجمع "الأسود"**: [Link](http://ar.sport.le360.ma/espagne/158234)
+
+
 ### girona fc (N/A, Sun, 1 Sep 2024 11:30:00 -0700)
 
 - **Sevilla - Girona, en directo | Sigue el partido de LaLiga EA Sports, hoy en 
