@@ -1,3 +1,11 @@
+### amrabat (N/A, Sun, 1 Sep 2024 06:30:00 -0700)
+
+- **Amrabat completes switch to Turkey**: [Link](https://www.manutd.com/en/news/detail/former-man-utd-midfielder-sofyan-amrabat-completes-move-to-fenerbahce-joins-jose-mourinho-and-fred)
+- **Man Utd make Sofyan Amrabat transfer announcement as Jose Mourinho role 
+emerges**: [Link](https://www.mirror.co.uk/sport/football/transfer-news/manutd-sofyan-amrabat-mourinho-fenerbahce-33576189)
+- **Fiorentina fans thank ‘true professional’ Amrabat after Fenerbahce move**: [Link](https://football-italia.net/fiorentina-fan-professional-amrabat-fenerbahce/)
+
+
 ### abdelillah gani (N/A, Sun, 1 Sep 2024 06:10:00 -0700)
 
 - **Jeux Paralympiques 2024: la médaille d’Abdelillah Gani au lancer du poids 
