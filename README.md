@@ -1,3 +1,32 @@
+### lille – paris-sg (N/A, Sun, 1 Sep 2024 11:20:00 -0700)
+
+- **Le PSG frappe fort face au LOSC**: [Link](https://www.footmercato.net/a7758297516585232363-le-psg-frappe-fort-face-au-losc)
+- **Groupe PSG : 6 absents, 1 retour ! - Ligue 1 - Paris PSG**: [Link](https://www.paristeam.fr/actu-psg/ligue-1/groupe-psg-6-absents-1-retour-68797)
+- **Match : Les compositions officielles de Lille/PSG dévoilées**: [Link](https://www.culturepsg.com/news/match/les-compositions-officielles-de-lille-psg-devoilees/52833)
+
+
+### juventus – roma (N/A, Sun, 1 Sep 2024 11:20:00 -0700)
+
+- **Juve-Roma LIVE: sorpresa Pisilli, fuori Dybala**: [Link](https://sport.sky.it/calcio/serie-a/partite/2024/giornata-3/juventus-roma/risultato-gol)
+- **Motta e De Rossi, l'amicizia nata da una maglia**: [Link](https://laroma24.it/rubriche/la-penna-degli-altri/2024/09/motta-e-de-rossi-lamicizia-nata-da-una-maglia)
+- **Juve, tifosi al settimo cielo: la notizia ora è ufficiale**: [Link](https://www.spazioj.it/2024/09/01/juve-tifosi-al-settimo-cielo-la-notizia-ora-e-ufficiale/)
+
+
+### sevilla vs girona (N/A, Sun, 1 Sep 2024 11:10:00 -0700)
+
+- **Sevilla vs Girona Prediction and Betting Tips | 1st September 2024**: [Link](https://www.sportskeeda.com/football/sevilla-vs-girona-prediction-betting-tips-1st-september-2024)
+- **Sevilla vs. Girona - Football Match Preview - September 1, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704697)
+- **Sevilla vs Girona Prediction, 9/1/2024 La Liga Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/sevilla-vs-girona-prediction-9-1-2024-la-liga-soccer-pick-tips-and-odds.html)
+
+
+### real madrid vs real betis (N/A, Sun, 1 Sep 2024 11:10:00 -0700)
+
+- **Real Madrid Vs. Real Betis Line Up: Two Changes From Ancelotti For Must Win**: [Link](https://www.forbes.com/sites/tomsanderson/2024/09/01/real-madrid-vs-real-betis-line-up-two-changes-from-ancelotti-for-must-win/)
+- **CONFIRMED lineups: Real Madrid vs Betis, 2024 La Liga**: [Link](https://www.managingmadrid.com/2024/9/1/24233536/real-madrid-vs-betis-2024-la-liga-live-online-stream)
+- **La Liga Soccer Livestream: How to Watch Real Madrid vs. Real Betis From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-real-madrid-vs-real-betis-from-anywhere/)
+
+
 ### kingsley coman (N/A, Sun, 1 Sep 2024 10:50:00 -0700)
 
 - **Arsenal eye up last-minute move for Bayern Munich star Kingsley Coman, with 
