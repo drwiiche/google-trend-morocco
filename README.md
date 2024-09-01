@@ -1,3 +1,19 @@
+### تشيلسي ضد كريستال بالاس (N/A, Sun, 1 Sep 2024 05:00:00 -0700)
+
+- **مدرب كريستال بالاس: الصفقات الجديدة لن تشارك أمام تشيلسي**: [Link](https://www.kooora.com/?n=1351715)
+- **تشكيلة تشيلسي الرسمية لمواجهة كريستال بالاس في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/09/01/p2826328.html)
+- **تشيلسي ضد كريستال بالاس| تفوق كاسح للبلوز وقصة انتصار تاريخي**: [Link](https://www.korabia.net/news/13393/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D8%AA%D9%81%D9%88%D9%82-%D9%83%D8%A7%D8%B3%D8%AD-%D9%84%D9%84%D8%A8%D9%84%D9%88%D8%B2-%D9%88%D9%82%D8%B5%D8%A9-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A/%D9%83%D8%B1%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9)
+
+
+### brics algérie (N/A, Sun, 1 Sep 2024 04:40:00 -0700)
+
+- **BRICS : l’Algérie est désormais membre de la Nouvelle banque de 
+développement (NDB)**: [Link](https://al24news.com/fr/brics-lalgerie-est-desormais-membre-de-la-nouvelle-banque-de-developpement-ndb/)
+- **L’Algérie autorisée à rejoindre la banque des BRICS**: [Link](https://www.tsa-algerie.com/alerte-lalgerie-autorisee-a-rejoindre-la-banque-des-brics/)
+- **BRICS: L’Algérie intègre officiellement la nouvelle banque du développement 
+du groupe**: [Link](https://www.aa.com.tr/fr/afrique/brics-l-alg%C3%A9rie-int%C3%A8gre-officiellement-la-nouvelle-banque-du-d%C3%A9veloppement-du-groupe/3318074)
+
+
 ### chelsea – crystal palace (N/A, Sun, 1 Sep 2024 04:40:00 -0700)
 
 - **Stamford Bridge & squad games: Everything you need to know about Chelsea**: [Link](https://www.cpfc.co.uk/news/match-previews/chelsea-opposition-briefing-everything-you-need-to-know/)
