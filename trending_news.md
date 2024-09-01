@@ -1,3 +1,20 @@
+### abdelillah gani (N/A, Sun, 1 Sep 2024 06:10:00 -0700)
+
+- **Jeux Paralympiques 2024: la médaille d’Abdelillah Gani au lancer du poids 
+(F53) réévaluée en or**: [Link](https://sport.le360.ma/athletisme/jeux-paralympiques-2024-la-medaille-dabdelillah-gani-au-lancer-du-poids-f53-reevaluee-en-or-114129)
+- **Paralympiques: Record et argent pour Abdelillah Gani au lancer du poids**: [Link](https://fr.hespress.com/384256-paralympiques-record-et-argent-pour-abdelillah-gani-au-lancer-du-poids.html)
+- **Jeux paralympiques : le Marocain Abdelilah Gani remporte l’or au F53 et 
+établit un nouveau record du monde**: [Link](https://ledesk.ma/encontinu/jeux-paralympiques-le-marocain-abdelilah-gani-remporte-lor-au-f53-et-etablit-un-nouveau-record-du-monde/)
+
+
+### paralympics 2024 (N/A, Sun, 1 Sep 2024 05:20:00 -0700)
+
+- **Paris 2024: From Olympics to Paralympics, Bruna Alexandre is on a mission**: [Link](https://www.paralympic.org/paris-2024/feature/olympics-paralympics-bruna-alexandre-mission)
+- **FEATURE: After Olympic debut, Alexandre eyes para table tennis gold**: [Link](https://english.kyodonews.net/paralympics/news/2024/08/2ff400dda8c8-feature-after-olympic-debut-alexandre-eyes-para-table-tennis-gold.html)
+- **Bruna Alexandre breaks new ground after competing in both Olympics and 
+Paralympics this year**: [Link](https://www.insidesport.in/chak-de-india/bruna-alexandre-breaks-new-ground-after-competing-in-both-olympics-and-paralympics-this-year/)
+
+
 ### chelsea (N/A, Sun, 1 Sep 2024 06:10:00 -0700)
 
 - **Jadon Sancho completes Chelsea move! | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/jadon-sancho-completes-chelsea-move)
