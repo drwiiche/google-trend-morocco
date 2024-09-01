@@ -1,3 +1,27 @@
+### bayern vs sc freiburg (N/A, Sun, 1 Sep 2024 08:50:00 -0700)
+
+- **Viele personelle Optionen in München**: [Link](https://www.scfreiburg.com/aktuell/nachrichten/profis/vorberichte/2024-25/viele-personelle-moeglichkeiten-in-muenchen/)
+- **Kompany erstmals "dahoam" - Augsburg in Heidenheim**: [Link](https://www.idowa.de/bayern/kompany-erstmals-dahoam-augsburg-in-heidenheim-3899990.html)
+- **Miese Bilanz, breite Brust: Schusters Reise zu den Bayern**: [Link](https://www.antenne.de/nachrichten/bayern/miese-bilanz-breite-brust-schusters-reise-zu-den-bayern)
+
+
+### bayern munich (N/A, Sun, 1 Sep 2024 08:50:00 -0700)
+
+- **Bayern Munich coach Vincent Kompany mum about Joshua Kimmich being Germany 
+captain one day**: [Link](https://www.bavarianfootballworks.com/2024/9/1/24233391/bayern-munich-coach-vincent-kompany-joshua-kimmich-being-germany-captain-manuel-neuer-philipp-lahm)
+- **João Palhinha speaks on the love from Bayern Munich fans**: [Link](https://www.bavarianfootballworks.com/2024/9/1/24232933/bayern-munich-joao-palhinha-speaks-on-love-from-fans-transfer)
+- **Manuel Neuer reflects on the impact of his Germany retirement on his Bayern 
+Munich future**: [Link](https://www.bavarianfootballworks.com/2024/9/1/24232053/manuel-neuer-reflects-on-impact-of-retirement-on-bayern-munich-future-nubel-champions-league-kroos)
+
+
+### psv eindhoven – go ahead eagles (N/A, Sun, 1 Sep 2024 08:50:00 -0700)
+
+- **LIVE | Smetje op ogenschijnlijk zorgeloze middag: Luuk de Jong met blessure 
+naar de kant**: [Link](https://www.ed.nl/psv/live-smetje-op-ogenschijnlijk-zorgeloze-middag-luuk-de-jong-met-blessure-naar-de-kant~af5c12c9/)
+- **Terug naar het eerste jaar van Luuk de Jong bij PSV**: [Link](https://www.psvinside.nl/terug-naar-het-eerste-jaar-van-luuk-de-jong-bij-psv/)
+- **Geen zorgeloze middag voor PSV: De Jong geblesseerd van het veld**: [Link](https://www.vi.nl/nieuws/geen-zorgeloze-middag-voor-psv-de-jong-geblesseerd-van-het-veld)
+
+
 ### reims – rennes (N/A, Sun, 1 Sep 2024 08:40:00 -0700)
 
 - **EN DIRECT - Multiplex Ligue 1 : Ito égalise pour Reims contre Rennes, Nice 
