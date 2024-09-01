@@ -1,3 +1,10 @@
+### ريال مدريد اليوم (N/A, Sun, 1 Sep 2024 14:00:00 -0700)
+
+- **ماذا قال أنشيلوتي عقب الفوز على بيتيس؟**: [Link](https://hihi2.com/2024/09/02/p2827738.html)
+- **أنشيلوتي: أتحمل مسؤولية ما يحدث.. ولن نضم صفقات جديدة**: [Link](https://m.kooora.com/?n=1351411&o=n)
+- **أنشيلوتي يعلّق على بوادر أزمة بين مبابي وفينيسيوس**: [Link](https://m.elbotola.com/article/2024-08-31-16-19-251.html)
+
+
 ### mohamed salah (N/A, Sun, 1 Sep 2024 16:00:00 -0700)
 
 - **Arne Slot wants to enjoy Mohamed Salah’s talents for as long as possible**: [Link](https://www.alloaadvertiser.com/sport/national/24555554.arne-slot-wants-enjoy-mohamed-salahs-talents-long-possible/)
