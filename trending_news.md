@@ -1,3 +1,19 @@
+### f1 (N/A, Sun, 1 Sep 2024 04:10:00 -0700)
+
+- **F1 Italian Grand Prix – Start time, starting grid, how to watch, & more**: [Link](https://www.autosport.com/f1/news/f1-italian-grand-prix-start-time-starting-grid-how-to-watch-more-10649791/10649791/)
+- **The subtle McLaren upgrades that highlight its F1 title focus**: [Link](https://www.motorsport.com/f1/news/the-subtle-mclaren-upgrades-that-highlight-its-f1-title-focus/10649555/)
+- **Red Bull put on notice by Zak Brown comment before Italian GP as Jos 
+Verstappen panics**: [Link](https://www.express.co.uk/sport/f1-autosport/1942499/Zak-Brown-Jos-Verstappen-Red-Bull-Italian-Grand-Prix)
+
+
+### henri leclerc avocat (N/A, Sun, 1 Sep 2024 03:50:00 -0700)
+
+- **L’avocat Henri Leclerc, ardent défenseur des libertés publiques, est mort**: [Link](https://www.lemonde.fr/disparitions/article/2024/08/31/l-avocat-henri-leclerc-ardent-defenseur-des-libertes-publiques-est-mort_6300505_3382.html)
+- **L’avocat Henri Leclerc, figure tutélaire du Barreau français, est mort**: [Link](https://www.lefigaro.fr/actualite-france/l-avocat-henri-leclerc-figure-tutelaire-du-barreau-francais-est-mort-20240831)
+- **Henri Leclerc, célèbre avocat et défenseur des droits de l'homme, est mort 
+à l'âge de 90 ans**: [Link](https://www.francetvinfo.fr/societe/justice/henri-leclerc-celebre-avocat-et-defenseur-des-droits-de-l-homme-est-mort-a-l-age-de-90-ans_6755839.html)
+
+
 ### bernard cazeneuve (N/A, Sun, 1 Sep 2024 03:00:00 -0700)
 
 - **En direct, nomination du premier ministre : Emmanuel Macron rencontrera 
