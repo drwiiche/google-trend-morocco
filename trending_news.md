@@ -1,3 +1,13 @@
+### liverpool (N/A, Sun, 1 Sep 2024 06:40:00 -0700)
+
+- **Liverpool trio’s contract situation amplifies every miffed moment this 
+season | Jonathan Wilson**: [Link](https://www.theguardian.com/football/blog/article/2024/aug/31/liverpool-trio-contract-situation-amplifies-every-miffed-moment-trent-alexander-arnold-virgil-van-dijk-mohamed-salah)
+- **Steve Nicol says Liverpool must soon ‘make a decision’ regarding 
+‘outstanding’ Academy graduate**: [Link](https://www.empireofthekop.com/2024/08/27/liverpool-player-contract-decision-ex-red/)
+- **Fabrizio Romano comments on Trent Alexander-Arnold future amid Real Madrid 
+links**: [Link](https://thehardtackle.com/transfer-news/2024/08/26/fabrizio-romano-comments-on-trent-alexander-arnold-future-amid-real-madrid-links/)
+
+
 ### amrabat (N/A, Sun, 1 Sep 2024 06:30:00 -0700)
 
 - **Amrabat completes switch to Turkey**: [Link](https://www.manutd.com/en/news/detail/former-man-utd-midfielder-sofyan-amrabat-completes-move-to-fenerbahce-joins-jose-mourinho-and-fred)
