@@ -1,3 +1,13 @@
+### bernard cazeneuve (N/A, Sun, 1 Sep 2024 03:00:00 -0700)
+
+- **En direct, nomination du premier ministre : Emmanuel Macron rencontrera 
+Bernard Cazeneuve lundi matin**: [Link](https://www.lemonde.fr/politique/live/2024/09/01/en-direct-nomination-du-premier-ministre-emmanuel-macron-rencontrera-bernard-cazeneuve-lundi-matin_6300912_823448.html)
+- **ENTRETIEN. Anne Hidalgo : « Avec Bernard Cazeneuve, nous aurions une vraie 
+cohabitation »**: [Link](https://www.ouest-france.fr/politique/entretien-anne-hidalgo-avec-bernard-cazeneuve-nous-aurions-une-vraie-cohabitation-dbebc8d2-6799-11ef-9827-8f066c8ca511)
+- **Matignon : pour Mélenchon, la nomination de Cazeneuve «ferait des dégâts» 
+au PS et «affaiblirait» le NFP**: [Link](https://www.lefigaro.fr/politique/matignon-pour-melenchon-la-nomination-de-cazeneuve-ferait-des-degats-au-ps-et-affaiblirait-le-nfp-20240829)
+
+
 ### temu (N/A, Sat, 31 Aug 2024 23:50:00 -0700)
 
 - **Temu owner PDD builds $38bn cash pile as it denies investors payouts**: [Link](https://www.ft.com/content/651ea111-4fc2-4e88-a4fa-4dc5fca48c1e)
