@@ -1,3 +1,10 @@
+### bundesliga (N/A, Sun, 1 Sep 2024 10:30:00 -0700)
+
+- **Trotz starkem Kampf: S04 unterliegt Köln mit 1:3**: [Link](https://schalke04.de/2-bundesliga/trotz-starkem-kampf-s04-unterliegt-koeln-mit-13/)
+- **POL-GE: Polizei zieht vorläufig positive Bilanz nach Zweitliga-Spiel**: [Link](https://www.presseportal.de/blaulicht/pm/51056/5855051)
+- **Downs lässt den Knoten platzen: "Das ist schon ein Ausrufezeichen"**: [Link](https://www.kicker.de/downs-laesst-den-knoten-platzen-das-ist-schon-ein-ausrufezeichen-1048288/artikel)
+
+
 ### fatima ezzahra el idrissi (N/A, Sun, 1 Sep 2024 10:10:00 -0700)
 
 - **Jeux paralympiques : le Marocain Abdelilah Gani remporte l’or au F53 et établit un nouveau record du monde**: [Link](https://ledesk.ma/encontinu/jeux-paralympiques-le-marocain-abdelilah-gani-remporte-lor-au-f53-et-etablit-un-nouveau-record-du-monde/)
