@@ -1,3 +1,11 @@
+### girona fc (N/A, Sun, 1 Sep 2024 11:30:00 -0700)
+
+- **Sevilla - Girona, en directo | Sigue el partido de LaLiga EA Sports, hoy en 
+vivo**: [Link](https://www.mundodeportivo.com/futbol/laliga/20240901/1002305307/sevilla-girona-directo-laliga-ea-sports.html)
+- **Sevilla FC - Girona FC: horario, fecha y dónde ver por televisión**: [Link](https://www.elcorreoweb.es/sevilla-fc/2024/08/31/sevilla-girona-horario-ver-television-liga-107583391.html)
+- **El Sevilla, a reafirmarse ante un Girona que busca confirmar su despegue**: [Link](https://andaluciainformacion.es/cadiz/1744948/el-sevilla-a-reafirmarse-ante-un-girona-que-busca-confirmar-su-despegue/)
+
+
 ### lille – paris-sg (N/A, Sun, 1 Sep 2024 11:20:00 -0700)
 
 - **Le PSG frappe fort face au LOSC**: [Link](https://www.footmercato.net/a7758297516585232363-le-psg-frappe-fort-face-au-losc)
