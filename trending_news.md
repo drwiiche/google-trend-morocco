@@ -1,3 +1,24 @@
+### juventus vs roma (N/A, Sun, 1 Sep 2024 12:30:00 -0700)
+
+- **Motta: Roma clash will be a great spectacle**: [Link](https://www.juventus.com/en/news/articles/thiago-motta-roma-clash-will-be-a-great-spectacle-31-08-2024)
+- **Daniele De Rossi discusses Roma’s transfer window, talks Koné signing**: [Link](https://romapress.net/daniele-de-rossi-discusses-romas-transfer-window-talks-kone-signing/)
+- **Serie A Weekend Tips: Back Juve wager to keep on working at 9/5**: [Link](https://betting.betfair.com/football/italian-football/serie-a-tips-back-juventus-v-roma-wager-to-keep-on-working-at-9-5-290824-629.html)
+
+
+### juventus (N/A, Sun, 1 Sep 2024 12:30:00 -0700)
+
+- **Serie A femminile eBay | Sassuolo-Juventus**: [Link](https://www.sassuolocalcio.it/in-evidenza/serie-a-femminile-ebay-sassuolo-juventus/)
+- **Arianna Caruso: “Con Canzi è una Juve bella e pure divertente”**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2024/08/31-132093123/arianna_caruso_con_canzi_e_una_juve_bella_e_pure_divertente_)
+- **Serie A Femminile | Sassuolo-Juventus Women | Il commento di coach Canzi**: [Link](https://www.juventus.com/it/news/articoli/serie-a-femminile-sassuolo-juventus-women-il-commento-di-coach-canzi)
+
+
+### ريال مدريد (N/A, Sun, 1 Sep 2024 12:20:00 -0700)
+
+- **الاستراتيجية البرازيلية الالمانية صعقت ريال مدريد**: [Link](https://hihi2.com/2024/09/01/p2827376.html)
+- **4 غيابات تضرب قائمة ريال مدريد أمام بيتيس**: [Link](https://www.kooora.com/?n=1351704)
+- **موعد مباراة ريال مدريد ضد ريال بيتيس بالدوري الإسباني والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/8/31/real-madrid-vs-real-betis)
+
+
 ### kylian mbappé real madrid (N/A, Sun, 1 Sep 2024 12:10:00 -0700)
 
 - **Brazilian player leaves Real Madrid on deadline day**: [Link](https://therealchamps.com/posts/brazilian-player-leaves-real-madrid-deadline-day)
