@@ -1,3 +1,19 @@
+### babygirl film (N/A, Sat, 31 Aug 2024 17:40:00 -0700)
+
+- **Nicole Kidman Bares Everything in the Sexy Drama ‘Babygirl’**: [Link](https://www.nytimes.com/2024/08/30/movies/nicole-kidman-babygirl-venice-film-festival.html)
+- **Nicole Kidman Wears a Dangerously Low-Cut Dress at the Venice Film Festival**: [Link](https://www.yahoo.com/entertainment/nicole-kidman-wears-dangerously-low-182041332.html)
+- **Babygirl review: In erotic drama Nicole Kidman gives her 'bravest and best 
+performance in quite some time'**: [Link](https://www.bbc.com/culture/article/20240830-babygirl-review)
+
+
+### chicago fire – inter miami (N/A, Sat, 31 Aug 2024 17:00:00 -0700)
+
+- **Know Before You Go | Chicago Fire FC vs. Inter Miami CF | August 31, 2024**: [Link](https://www.chicagofirefc.com/news/know-before-you-go-chicago-fire-fc-vs-inter-miami-cf-august-31-2024)
+- **Chicago Fire FC vs. Inter Miami CF - Football Match Preview - August 31, 
+2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/692989)
+- **Chicago Fire: Can the historic club rediscover their flame?**: [Link](https://www.mlssoccer.com/news/chicago-fire-can-the-historic-club-rediscover-their-flame)
+
+
 ### marseille foot (N/A, Sat, 31 Aug 2024 13:10:00 -0700)
 
 - **OM : Mason Greenwood, le tube de l’été !**: [Link](https://www.footmercato.net/a5983423047651550957-om-mason-greenwood-le-tube-de-lete)
