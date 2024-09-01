@@ -1,3 +1,38 @@
+### كورة لايف بث مباشر (N/A, Sun, 1 Sep 2024 13:00:00 -0700)
+
+- **بالأرقام.. محمد صلاح يحتل أولد ترافورد**: [Link](https://www.kooora.com/?n=1351968)
+- **صلاح يتألق.. وليفربول يقسو على مانشستر يونايتد في عرينه**: [Link](https://www.alhurra.com/sport/2024/09/01/%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D9%82%D8%B3%D9%88-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%B9%D8%B1%D9%8A%D9%86%D9%87)
+- **مزراوي تلقى خسارة كبيرة في قمة ليفربول**: [Link](https://www.almountakhab.com/node/13203788)
+
+
+### bellingham (N/A, Sun, 1 Sep 2024 13:00:00 -0700)
+
+- **Frustrated Bellingham claims 'body needs rest'**: [Link](https://www.espn.com/soccer/story/_/id/40962025/real-madrid-jude-bellingham-month-injury-source)
+- **Jude Bellingham: Real Madrid midfielder injured in lead-up to England Nations League fixtures**: [Link](https://www.bbc.com/sport/football/articles/c1m0xknzx1eo)
+- **Crunch fixture identified as target return date for Jude Bellingham**: [Link](https://www.football-espana.net/2024/08/24/crunch-fixture-identified-as-target-return-date-for-jude-bellingham)
+
+
+### real vs (N/A, Sun, 1 Sep 2024 12:50:00 -0700)
+
+- **Ancelotti: "We're struggling to find last year's solidity"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rueda-de-prensa-de-ancelotti-29-08-2024)
+- **Real Madrid held by Las Palmas**: [Link](https://www.france24.com/en/live-news/20240829-real-madrid-held-by-las-palmas)
+- **Florentino Perez enters Real Madrid’s locker room following second draw of the season**: [Link](https://madriduniversal.com/florentino-perez-enters-real-madrids-locker-room-following-second-draw-of-the-season/)
+
+
+### yalla kora (N/A, Sun, 1 Sep 2024 12:50:00 -0700)
+
+- **مواعيد مباريات روما الإيطالي في الدوري الأوروبي**: [Link](https://hihi2.com/2024/09/01/p2826011.html)
+- **"يونايتد ضد مورينيو".. صدامات نارية في قرعة الدوري الأوروبي**: [Link](https://www.kooora.com/?n=1351470)
+- **نتائج قرعة مسابقة الدوري الأوروبي بنظامها الجديد**: [Link](https://www.alquds.co.uk/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%82%D8%B1%D8%B9%D8%A9-%D9%85%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%A8%D9%86%D8%B8/)
+
+
+### psg vs (N/A, Sun, 1 Sep 2024 12:50:00 -0700)
+
+- **Luis Enrique: "A Champions League level match"**: [Link](https://en.psg.fr/teams/first-team/content/luis-enrique-a-champions-league-level-match-conference-de-presse-losc-lille-paris-saint-germain-ligue-1-2024-2025)
+- **Can Barcola Shine Again in Ligue 1 Lille Showdown?**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles-video/can-barcola-shine-again-in-ligue-1-lille-showdown-2024-08-30)
+- **Any Other Bets: Serie A and Ligue 1 for Sunday 1 September**: [Link](https://www.sportinglife.com/football/news/any-other-bets-serie-a-and-ligue-1-for-sunday-1-september/220180)
+
+
 ### juventus vs roma (N/A, Sun, 1 Sep 2024 12:30:00 -0700)
 
 - **Motta: Roma clash will be a great spectacle**: [Link](https://www.juventus.com/en/news/articles/thiago-motta-roma-clash-will-be-a-great-spectacle-31-08-2024)
