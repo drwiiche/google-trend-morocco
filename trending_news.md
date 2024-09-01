@@ -1,3 +1,19 @@
+### osasuna – celta vigo (N/A, Sun, 1 Sep 2024 07:30:00 -0700)
+
+- **Osasuna se entrena y comienza a preparar el partido contra el Celta**: [Link](https://www.osasuna.es/news/read/35900/osasuna-se-entrena-y-comienza-a-preparar-el-partido-contra-el-celta)
+- **Cambio radical con otro partido en El Sadar**: [Link](https://www.noticiasdenavarra.com/osasuna/2024/08/31/cambio-radical-partido-sadar-8639560.html)
+- **Balaídos abre sus puertas para ver el Osasuna - Celta**: [Link](http://www.moiceleste.com/2024/08/balaidos-abre-sus-puertas-para-ver-el.html)
+
+
+### monaco fc (N/A, Sun, 1 Sep 2024 07:30:00 -0700)
+
+- **Gift Orban stuns with humble gesture, hands Man of the Match award to 
+Lacazette**: [Link](https://soccernet.ng/2024/08/gift-orban-stuns-with-humble-gesture-hands-man-of-the-match-award-to-lacazette.html)
+- **Lyon’s first win of Ligue 1 season comes Gift-wrapped**: [Link](https://www.socceramerica.com/lyons-first-win-of-ligue-1-season-comes-gift-wrapped/)
+- **PLAYER RATINGS | Lyon 4-3 Strasbourg: Les Gones mount remarkable comeback 
+to kickstart season**: [Link](https://www.getfootballnewsfrance.com/2024/player-ratings-lyon-4-3-strasbourg-les-gones-mount-remarkable-comeback-to-kickstart-season/)
+
+
 ### manchester united – liverpool (N/A, Sun, 1 Sep 2024 07:10:00 -0700)
 
 - **Why Ugarte will not make Man Utd debut today**: [Link](https://www.standard.co.uk/sport/football/why-ugarte-will-not-make-man-utd-debut-today-liverpool-b1179412.html)
