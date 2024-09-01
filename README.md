@@ -1,3 +1,27 @@
+### mohamed salah (N/A, Sun, 1 Sep 2024 16:00:00 -0700)
+
+- **Arne Slot wants to enjoy Mohamed Salah’s talents for as long as possible**: [Link](https://www.alloaadvertiser.com/sport/national/24555554.arne-slot-wants-enjoy-mohamed-salahs-talents-long-possible/)
+- **How Daniel Sturridge and Roy Keane reacted after Mo Salah’s bombshell 
+post-match statement**: [Link](https://www.empireofthekop.com/2024/09/01/sturridge-keane-salah-hint-liverpool-future/)
+- **Mohamed Salah makes shock Liverpool announcement after Man Utd win**: [Link](https://metro.co.uk/2024/09/01/mohamed-salah-makes-shock-liverpool-announcement-man-utd-win-21529427/)
+
+
+### la liga table (N/A, Sun, 1 Sep 2024 15:00:00 -0700)
+
+- **Football: Spanish La Liga Table**: [Link](https://www.barrons.com/news/football-spanish-la-liga-table-64adc8b9)
+- **La Liga Summaries | Today News**: [Link](https://www.livemint.com/news/la-liga-summaries-11725138206413.html)
+- **La Liga Round Up: First 2024/25 wins for Espanyol and Mallorca as rock 
+bottom Valencia hold Villarreal**: [Link](https://sports.yahoo.com/la-liga-round-first-2024-225700173.html)
+
+
+### liga (N/A, Sun, 1 Sep 2024 14:40:00 -0700)
+
+- **Hansi Flick talks Raphinha, Olmo, Casado, Deco after Barcelona 7:0 
+Valladolid**: [Link](https://barcauniversal.com/hansi-flick-talks-raphinha-olmo-casado-deco-after-barcelona-70-valladolid/)
+- **Three out of three**: [Link](https://www.fcbarcelona.com/en/news/4098879/three-out-of-three)
+- **Barcelona’s perfect start to the season is no accident**: [Link](https://www.barcablaugranes.com/2024/8/28/24230179/barcelona-perfect-start-to-the-season-is-no-accident)
+
+
 ### uruguay – guatemala (N/A, Sun, 1 Sep 2024 15:30:00 -0700)
 
 - **Selección: la nómina de 23**: [Link](https://www.tenfield.com.uy/seleccion-la-nomina-de-23/)
