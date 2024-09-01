@@ -1,3 +1,17 @@
+### rma vs (N/A, Sun, 1 Sep 2024 12:50:00 -0700)
+
+- **Real Madrid vs. Betis (1 Sep, 2024) Live Score**: [Link](https://africa.espn.com/football/match/_/gameId/704699)
+- **Real Madrid vs Real Betis - La Liga Round 4, 2024**: [Link](https://www.foxsports.com.au/football/la-liga/match-centre/LAL2024-250406)
+- **Real Madrid vs. Betis (2 Sep, 2024) Live Score**: [Link](https://www.espn.com.au/football/match/_/gameId/704699)
+
+
+### ليل ضد بي اس جي (N/A, Sun, 1 Sep 2024 11:30:00 -0700)
+
+- **حكيمي على رأس قائمة باريس لمواجهة ليل**: [Link](https://www.kooora.com/?n=1351893)
+- **باريس سان جيرمان ضيفاً على ليل**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B6%D9%8A%D9%81%D8%A7-%D8%B9%D9%84%D9%89-%D9%84%D9%8A%D9%84-2024-09-01)
+- **أشرف حكيمي يلتقي بطوطو على هامش مباراة ليل**: [Link](https://sport.lesiteinfo.com/elbotola/443834.html)
+
+
 ### كورة لايف بث مباشر (N/A, Sun, 1 Sep 2024 13:00:00 -0700)
 
 - **بالأرقام.. محمد صلاح يحتل أولد ترافورد**: [Link](https://www.kooora.com/?n=1351968)
