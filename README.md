@@ -1,3 +1,11 @@
+### wheelchair tennis paralympics (N/A, Mon, 2 Sep 2024 16:20:00 -0700)
+
+- **Paris 2024: Caverzaschi targets wheelchair tennis gold where Nadal reigned**: [Link](https://www.paralympic.org/feature/paris-2024-caverzaschi-targets-wheelchair-tennis-gold-where-nadal-reigned)
+- **Paris 2024 Paralympics | Para athletics: A Day for world record breaking 
+and history making at the Stade De France**: [Link](https://olympics.com/en/news/paris-2024-paralympics-para-athletics-a-day-for-world-record-breaking-and-history-making-at-the-stade-de-france)
+- **Israel’s Paralympic tennis stars make their mark in Paris**: [Link](https://www.jpost.com/israel-news/sports/article-817469)
+
+
 ### adolescent disparu à bali (N/A, Mon, 2 Sep 2024 15:10:00 -0700)
 
 - **Un adolescent français disparu à Bali, des recherches sont en cours**: [Link](https://www.blick.ch/fr/news/monde/30-personnes-mobilisees-un-adolescent-francais-disparu-a-bali-des-recherches-sont-en-cours-id20095909.html)
