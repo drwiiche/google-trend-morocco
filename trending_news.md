@@ -1,3 +1,12 @@
+### recensement maroc 2024 (N/A, Mon, 2 Sep 2024 10:50:00 -0700)
+
+- **Recensement général: voici le genre de questions que vont poser les 
+enquêteurs aux ménages**: [Link](https://fr.le360.ma/societe/recensement-general-voici-le-genre-de-questions-que-vont-poser-les-enqueteurs-aux-menages_DIGSRUDZMRCAPE5HMBM7N7R5UI/)
+- **Les petites phrases d'Ahmed Lahlimi dans sa conférence de presse**: [Link](https://medias24.com/2024/08/30/lahlimi-verbatim/)
+- **Informations essentielles sur le recensement général de la population et de 
+l'habitat 2024**: [Link](https://www.hcp.ma/Informations-essentielles-sur-le-recensement-general-de-la-population-et-de-l-habitat-2024_a3933.html)
+
+
 ### audi q5 (N/A, Mon, 2 Sep 2024 09:30:00 -0700)
 
 - **View Photos of the 2025 Audi Q5**: [Link](https://www.caranddriver.com/photos/g62017557/2025-audi-q5-gallery/)
