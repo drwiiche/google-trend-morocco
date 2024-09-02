@@ -1,3 +1,10 @@
+### المنتخب المغربي (N/A, Mon, 2 Sep 2024 11:30:00 -0700)
+
+- **الأسود يتوافدون على مركز محمد السادس**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%8A%D8%AA%D9%88%D8%A7%D9%81%D8%AF%D9%88%D9%86-%D8%B9%D9%84%D9%89-%D9%85%D8%B1%D9%83%D8%B2-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-1424899.html)
+- **إبراهيم يصل متحمسا وسعيدا لمعسكر الأسود**: [Link](https://www.almountakhab.com/node/16203828)
+- **دياز يصل معسكر المغرب بطموح فك النحس**: [Link](https://www.kooora.com/?n=1352188)
+
+
 ### maroc foot (N/A, Mon, 2 Sep 2024 11:20:00 -0700)
 
 - **Coupe d’excellence de football 2024-2025 : le coup d’envoi prévu ce mardi**: [Link](https://mobile.telquel.ma/instant-t/2024/09/02/coupe-dexcellence-de-football-2024-2025-le-coup-denvoi-prevu-ce-mardi_1891382/)
