@@ -1,3 +1,10 @@
+### almountakhab (N/A, Mon, 2 Sep 2024 01:10:00 -0700)
+
+- **ريتشاردسون الأب: رؤية أمير وهو يلعب أمر مبهج**: [Link](https://www.almountakhab.com/node/13203801)
+- **مبابي: لا يمكن وصف ما فعله فالفيردي.. وأعيش لحظة رائعة**: [Link](https://www.kooora.com/?n=1352069)
+- **ريال بيتيس يثبت مثالية ريال مدريد**: [Link](https://hihi2.com/2024/09/02/p2828380.html)
+
+
 ### ines de ramon (N/A, Mon, 2 Sep 2024 00:20:00 -0700)
 
 - **Venice Film Festival welcomes Pitt and Clooney, and their new film ‘Wolfs’**: [Link](https://apnews.com/article/pitt-clooney-venice-film-festival-3af1903dc8e8b453e89173afd50a0bf0)
