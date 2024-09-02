@@ -1,3 +1,25 @@
+### film the deliverance (N/A, Mon, 2 Sep 2024 03:50:00 -0700)
+
+- **The Horrifying True Story Behind Netflix’s ‘The Deliverance’—What Happened 
+To Latoya Ammons?**: [Link](https://www.forbes.com/sites/monicamercuri/2024/08/31/the-horrifying-true-story-behind-netflixs-the-deliverance-what-happened-to-latoya-ammons/)
+- **The Real Story Behind Netflix’s Demonic Possession Horror The Deliverance**: [Link](https://time.com/7015254/the-deliverance-true-story-netflix/)
+- **'The Deliverance' 2024: Lee Daniels' new Netflix movie based on true story**: [Link](https://www.indystar.com/story/entertainment/movies/2024/08/30/netlix-movie-the-deliverance-2024-lee-daniels-true-story-latoya-ammons-family-new-shows-cast-trailer/75010346007/)
+
+
+### pablo castrillo (N/A, Mon, 2 Sep 2024 03:30:00 -0700)
+
+- **Doblete para la historia de Pablo Castrillo: el español triunfa en el Cuitu Negru donde Roglic pega otro mordisco**: [Link](https://www.marca.com/ciclismo/vuelta-espana/2024/09/01/66d4781622601dbf0a8b4570.html)
+- **Vuelta a España 2024: resumen, resultado y ganador de la decimoquinta etapa**: [Link](https://as.com/ciclismo/vuelta_espana/vuelta-a-espana-2024-en-directo-etapa-15-colladiella-cuitu-negru-hoy-en-vivo-n/)
+- **Doblete Pro Conti en La Vuelta; O’Connor salva la roja**: [Link](https://ciclismointernacional.com/doblete-pro-conti-en-la-vuelta-oconnor-salva-la-roja/)
+
+
+### xxl (N/A, Sun, 1 Sep 2024 16:50:00 -0700)
+
+- **Chrisean Rock’s Release Date From Jail Revealed – Report**: [Link](https://www.xxlmag.com/chrisean-rock-release-date-jail-revealed/)
+- **Chrisean Rock Receives Next Court Date Amid Oklahoma Arrest**: [Link](https://theshaderoom.com/chrisean-rock-oklahoma-update-court-date-prison/)
+- **Rapper Chrisean Rock jailed in Craig County on cannabis charges**: [Link](https://www.kjrh.com/news/local-news/rapper-chrisean-rock-jailed-in-craig-county-on-cannabis-charges)
+
+
 ### almountakhab (N/A, Mon, 2 Sep 2024 01:10:00 -0700)
 
 - **ريتشاردسون الأب: رؤية أمير وهو يلعب أمر مبهج**: [Link](https://www.almountakhab.com/node/13203801)
