@@ -1,3 +1,10 @@
+### محاكم (N/A, Mon, 2 Sep 2024 01:00:00 -0700)
+
+- **قانون جديد ينظم المؤسسات السجنية بالمغرب.. اعتماد السوار الإلكتروني مؤجل**: [Link](https://www.hespress.com/%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D9%86%D8%B8%D9%85-%D8%A7%D9%84%D9%85%D8%A4%D8%B3%D8%B3%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D8%AC%D9%86%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85-1424268.html)
+- **بعد نشره بالجريدة الرسمية .. قانون العقوبات البديلة يدخل حيز التنفيذ**: [Link](https://www.ahdath.info/article/228142/%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A8%D8%B9%D8%AF-%D9%86%D8%B4%D8%B1%D9%87-%D8%A8%D8%A7%D9%84%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A8%D8%AF%D9%8A%D9%84%D8%A9-%D9%8A%D8%AF%D8%AE%D9%84-%D8%AD%D9%8A%D8%B2-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D9%8A%D8%B0)
+- **قانون "شراء السجن" يصدر بالجريدة الرسمية مع وقف التنفيذ**: [Link](https://rue20.com/833426.html)
+
+
 ### bernard cazeneuve (N/A, Sun, 1 Sep 2024 23:50:00 -0700)
 
 - **En direct, nomination du premier ministre : Emmanuel Macron recevra lundi 
