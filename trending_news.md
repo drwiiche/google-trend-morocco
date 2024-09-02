@@ -1,3 +1,11 @@
+### maroc foot (N/A, Mon, 2 Sep 2024 11:20:00 -0700)
+
+- **Coupe d’excellence de football 2024-2025 : le coup d’envoi prévu ce mardi**: [Link](https://mobile.telquel.ma/instant-t/2024/09/02/coupe-dexcellence-de-football-2024-2025-le-coup-denvoi-prevu-ce-mardi_1891382/)
+- **La coupe d'excellence de football 2024-2025 débute mardi**: [Link](https://www.leconomiste.com/flash-infos/la-coupe-d-excellence-de-football-2024-2025-debute-mardi)
+- **Ce qu'il faut savoir sur la Coupe d’Excellence, la nouvelle compétition de 
+la LNFP qui démarre ce mardi**: [Link](https://lematin.ma/sports/coupe-dexcellence-la-nouvelle-competition-de-la-lnfp-demarre-ce-mardi/241337)
+
+
 ### recensement maroc 2024 (N/A, Mon, 2 Sep 2024 10:50:00 -0700)
 
 - **Recensement général: voici le genre de questions que vont poser les 
