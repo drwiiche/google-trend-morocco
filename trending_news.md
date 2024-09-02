@@ -1,3 +1,10 @@
+### anass zaroury (N/A, Mon, 2 Sep 2024 04:30:00 -0700)
+
+- **Anass Zaroury: Burnley winger joins RC Lens for undisclosed fee**: [Link](https://www.bbc.com/sport/football/articles/ckg2zr8yym4o)
+- **Zaroury signs for Lens from Burnley**: [Link](https://www.nytimes.com/athletic/live-blogs/transfer-news-latest-live-updates/vBvLaPiexa9h/UjbLYRz0XqwX/)
+- **Anass Zaroury Signs with Ligue 1’s Racing Club de Lens Until 2028**: [Link](https://www.moroccoworldnews.com/2024/08/364711/anass-zaroury-signs-with-ligue-1s-racing-club-de-lens-until-2028)
+
+
 ### mohamed salah (N/A, Mon, 2 Sep 2024 08:00:00 -0700)
 
 - **'This is my last year' - Salah says no talks over new Liverpool deal**: [Link](https://www.bbc.com/sport/football/articles/c4glv4enpzlo)
