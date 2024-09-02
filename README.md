@@ -1,3 +1,18 @@
+### pastèque (N/A, Mon, 2 Sep 2024 14:30:00 -0700)
+
+- **Rabat/Stress hydrique: Plusieurs "contrevenants" défient les mesures de 
+restriction**: [Link](https://fr.hespress.com/384425-rabat-stress-hydrique-plusieurs-contrevenants-defient-les-mesures-de-restriction.html)
+- **Agriculture: un modèle à revoir**: [Link](https://fr.le360.ma/economie/agriculture-un-modele-a-revoir_IPXKUS6AQJG7VK3BT6POKX5RYQ/)
+- **Sécheresse : La politique gouvernementale est-elle à bout de souffle ?**: [Link](https://maroc-diplomatique.net/secheresse-la-politique-gouvernementale-est-elle-a-bout-de-souffle/)
+
+
+### memphis depay (N/A, Mon, 2 Sep 2024 13:50:00 -0700)
+
+- **West Ham to capitalise on Sevilla woes in Lucas Ocampos move**: [Link](https://www.westhamzone.com/transfers/west-ham-united-to-capitalise-on-sevilla-woes-as-lucas-ocampos-move-made/)
+- **Sevilla in talks to sell heavyweight attacker to Mexican giants**: [Link](https://www.football-espana.net/2024/08/31/sevilla-in-talks-to-sell-heavyweight-attacker-to-mexican-giants)
+- **The details on Memphis Depay to Sevilla talks**: [Link](https://sports.yahoo.com/details-memphis-depay-sevilla-talks-182800247.html)
+
+
 ### maroc algérie (N/A, Mon, 2 Sep 2024 14:00:00 -0700)
 
 - **Algérie : démantèlement d’un « réseau d’espionnage » constitué d’Algériens 
