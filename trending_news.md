@@ -1,3 +1,12 @@
+### ines de ramon (N/A, Mon, 2 Sep 2024 00:20:00 -0700)
+
+- **Venice Film Festival welcomes Pitt and Clooney, and their new film ‘Wolfs’**: [Link](https://apnews.com/article/pitt-clooney-venice-film-festival-3af1903dc8e8b453e89173afd50a0bf0)
+- **Brad Pitt, 60, goes public with glamorous girlfriend Ines de Ramon, 34, at 
+the 81st Venice Film Festival premi**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-13802643/Dapper-Brad-Pitt-60-makes-red-carpet-debut-glamorous-girlfriend-Ines-Ramon-34-join-George-Clooney-stunning-wife-Amal-Wolfs-premiere-Venice-Film-Festival.html)
+- **Brad Pitt, Ines de Ramon, George Clooney and Amal Clooney chanel simple 
+elegance on double date in Venice. Pics inside**: [Link](https://www.hindustantimes.com/lifestyle/fashion/brad-pitt-with-ines-de-ramon-george-clooney-amal-clooney-chanel-simple-elegance-on-double-date-in-venice-pics-inside-101725245924013.html)
+
+
 ### محاكم (N/A, Mon, 2 Sep 2024 01:00:00 -0700)
 
 - **قانون جديد ينظم المؤسسات السجنية بالمغرب.. اعتماد السوار الإلكتروني مؤجل**: [Link](https://www.hespress.com/%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D9%86%D8%B8%D9%85-%D8%A7%D9%84%D9%85%D8%A4%D8%B3%D8%B3%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D8%AC%D9%86%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85-1424268.html)
