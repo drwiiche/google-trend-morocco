@@ -1,3 +1,13 @@
+### bernard cazeneuve (N/A, Sun, 1 Sep 2024 23:50:00 -0700)
+
+- **En direct, nomination du premier ministre : Emmanuel Macron recevra lundi 
+Bernard Cazeneuve, Xavier Bertand, François Hollande et Nicolas Sarkozy**: [Link](https://www.lemonde.fr/politique/live/2024/09/01/en-direct-nomination-du-premier-ministre-emmanuel-macron-recevra-lundi-a-l-elysee-bernard-cazeneuve-et-francois-hollande_6300912_823448.html)
+- **EN DIRECT - Nouveau premier ministre : «Bernard Cazeneuve continuera une 
+politique macroniste», cingle Mathilde Panot**: [Link](https://www.lefigaro.fr/politique/en-direct-nouveau-premier-ministre-cazeneuve-recu-par-macron-ce-matin-une-semaine-decisive-se-dessine-20240902)
+- **Nouveau Premier ministre: Xavier Bertrand sera également reçu à l'Élysée ce 
+lundi**: [Link](https://www.bfmtv.com/politique/direct-nouveau-premier-ministre-la-decision-d-emmanuel-macron-toujours-attendue_LN-202409010113.html)
+
+
 ### yulia putintseva (N/A, Sun, 1 Sep 2024 19:00:00 -0700)
 
 - **Yulia Putintseva Issues Apology Over Ball Girl Controversy at US Open**: [Link](https://www.si.com/tennis/us-open-ball-girl-yulia-putintseva-apology)
