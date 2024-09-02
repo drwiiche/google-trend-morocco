@@ -1,3 +1,10 @@
+### equipe maroc (N/A, Mon, 2 Sep 2024 10:00:00 -0700)
+
+- **CM Féminine U20: défaite du Maroc face au Paraguay (Gr C)**: [Link](https://frmf.ma/fr/%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86/)
+- **Colombie 2024 : L'Espagne et le Maroc sur le pont**: [Link](https://www.fifa.com/fr/tournaments/womens/u20womensworldcup/colombia-2024/articles/presentation-jour-2-colombie-2024)
+- **Mondial féminin U20: les Lioncelles s’inclinent face au Paraguay**: [Link](https://sport.le360.ma/maroc/mondial-feminin-u20-les-lioncelles-sinclinent-face-au-paraguay-114143)
+
+
 ### anass zaroury (N/A, Mon, 2 Sep 2024 04:30:00 -0700)
 
 - **Anass Zaroury: Burnley winger joins RC Lens for undisclosed fee**: [Link](https://www.bbc.com/sport/football/articles/ckg2zr8yym4o)
