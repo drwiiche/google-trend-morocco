@@ -1,3 +1,11 @@
+### ps5 pro (N/A, Mon, 2 Sep 2024 12:30:00 -0700)
+
+- **Leaked PS5 Pro Design Leaves Players Concerned**: [Link](https://www.yahoo.com/tech/leaked-ps5-pro-design-leaves-114422338.html)
+- **What are implications of potential PlayStation 5 Pro launch on Sony's 
+financials**: [Link](https://www.investing.com/news/stock-market-news/what-are-implications-of-potential-playstation-5-pro-launch-on-sonys-financials-3595630)
+- **The PS5 Pro could get me to buy a Samsung 8K TV — here's why**: [Link](https://www.tomsguide.com/tvs/the-ps5-pro-could-get-me-to-buy-a-samsung-8k-tv-heres-why)
+
+
 ### حكيم زياش (N/A, Mon, 2 Sep 2024 11:40:00 -0700)
 
 - **بعد “قطع” علاقته بغلطة سراي.. العروض تنهال على زياش**: [Link](https://al3omk.com/961768.html)
