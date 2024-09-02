@@ -1,3 +1,12 @@
+### maroc algérie (N/A, Mon, 2 Sep 2024 14:00:00 -0700)
+
+- **Algérie : démantèlement d’un « réseau d’espionnage » constitué d’Algériens 
+et de Marocains, selon le parquet**: [Link](https://www.lemonde.fr/afrique/article/2024/09/02/algerie-demantelement-d-un-reseau-d-espionnage-constitue-d-algeriens-et-de-marocains-selon-le-parquet_6302047_3212.html)
+- **Que cache l'accusation algérienne d'espionnage contre quatre Marocains ?**: [Link](https://medias24.com/2024/09/02/que-cache-laccusation-algerienne-despionnage-contre-4-marocains/)
+- **Algérie: Quand la campagne électorale est une occasion pour accuser le 
+Maroc d'espionnage**: [Link](https://fr.hespress.com/384350-algerie-quand-la-campagne-electorale-est-une-occasion-pour-accuser-le-maroc-despionnage.html)
+
+
 ### brad pitt (N/A, Mon, 2 Sep 2024 12:50:00 -0700)
 
 - **George Clooney, Brad Pitt hit red carpet at Venice Film Festival**: [Link](https://www.today.com/video/george-clooney-brad-pitt-hit-red-carpet-at-venice-film-festival-218436677544)
