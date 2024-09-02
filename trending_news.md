@@ -1,3 +1,18 @@
+### yulia putintseva (N/A, Sun, 1 Sep 2024 19:00:00 -0700)
+
+- **Yulia Putintseva Issues Apology Over Ball Girl Controversy at US Open**: [Link](https://www.si.com/tennis/us-open-ball-girl-yulia-putintseva-apology)
+- **Piers Morgan fumes ‘ball girl should have thrown ball in her face’ after US 
+Open star’s ‘disgusting arrogan...**: [Link](https://www.thesun.co.uk/sport/30202692/putintseva-ball-girl-piers-morgan-blast-paolini-us-open/)
+- **Ball girl goes viral after star’s ‘disgusting’ act**: [Link](https://www.news.com.au/sport/tennis/tennis-hothead-booed-for-disgusting-ball-girl-act/news-story/5dc42d7ed0e99113f36ce0ea6fdcd365)
+
+
+### الريال (N/A, Sun, 1 Sep 2024 14:20:00 -0700)
+
+- **بسبب التسريبات.. ريال مدريد ينسحب من سباق مع برشلونة**: [Link](https://www.kooora.com/?n=1351873)
+- **بعد ابتعاد ريال مدريد.. مانشستر يونايتد يخطط لضم موهوب الارجنتين**: [Link](https://hihi2.com/2024/09/01/p2826499.html)
+- **رئيس ريفر بليت يكشف عن حقيقة اهتمام الريال بماستانتونو**: [Link](https://www.riyadiyatv.com/77758)
+
+
 ### real madrid betis seville (N/A, Sun, 1 Sep 2024 20:40:00 -0700)
 
 - **Primera División Real Madrid 2 Real Betis 0 Full time**: [Link](https://www.bbc.com/sport/football/live/cx2eyzvnwprt)
