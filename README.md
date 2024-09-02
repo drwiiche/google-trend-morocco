@@ -1,3 +1,10 @@
+### mohamed salah (N/A, Mon, 2 Sep 2024 08:00:00 -0700)
+
+- **'This is my last year' - Salah says no talks over new Liverpool deal**: [Link](https://www.bbc.com/sport/football/articles/c4glv4enpzlo)
+- **The Briefing: Salah’s future, Casemiro’s ‘Neville moment’ – and when will Southampton learn? - The Athletic**: [Link](https://www.nytimes.com/athletic/5738273/2024/09/02/salah-casemiro-man-united-liverpool/)
+- **'I can talk for hours' - Arne Slot responds to Mohamed Salah's bombshell 'last year' at Liverpool statement after seeing star forward torment Man Utd**: [Link](https://www.goal.com/en-gb/lists/arne-slot-mohamed-salah-s-bombshell-last-year-liverpool-statement-forward-torment-man-utd/bltcce1c8b2eea4f64b)
+
+
 ### resultat quinte (N/A, Mon, 2 Sep 2024 05:30:00 -0700)
 
 - **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 13 Hymne du 
