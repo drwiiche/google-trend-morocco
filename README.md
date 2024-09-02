@@ -1,3 +1,12 @@
+### adolescent disparu à bali (N/A, Mon, 2 Sep 2024 15:10:00 -0700)
+
+- **Un adolescent français disparu à Bali, des recherches sont en cours**: [Link](https://www.blick.ch/fr/news/monde/30-personnes-mobilisees-un-adolescent-francais-disparu-a-bali-des-recherches-sont-en-cours-id20095909.html)
+- **Un adolescent français de 14 ans disparait à Bali lors d'un trek, des 
+recherches en cours**: [Link](https://www.nicematin.com/faits-divers/un-adolescent-francais-de-14-ans-disparait-a-bali-lors-d-un-treck-des-recherches-en-cours-942123)
+- **Indonésie : ce que l'on sait de la disparition d'un Français de 14 ans à 
+Bali depuis une semaine**: [Link](https://www.cnews.fr/monde/2024-09-01/indonesie-ce-que-lon-sait-de-la-disparition-dun-francais-de-14-ans-bali-depuis-une)
+
+
 ### pastèque (N/A, Mon, 2 Sep 2024 14:30:00 -0700)
 
 - **Rabat/Stress hydrique: Plusieurs "contrevenants" défient les mesures de 
