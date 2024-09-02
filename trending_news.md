@@ -1,3 +1,10 @@
+### إلهام شاهين (N/A, Mon, 2 Sep 2024 16:30:00 -0700)
+
+- **أزمة إلهام شاهين مستمرة.. داعية ترد: "كم عمرك ولا تزالين بعيدة عن الآداب؟"**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/09/02/%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%87%D8%A7%D9%85-%D8%B4%D8%A7%D9%87%D9%8A%D9%86-%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9-%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D8%AA%D8%B1%D8%AF-%D9%83%D9%85-%D8%B9%D9%85%D8%B1%D9%83-%D9%88%D9%84%D8%A7-%D8%AA%D8%B2%D8%A7%D9%84%D9%8A-%D8%A8%D8%B9%D9%8A%D8%AF%D8%A9-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D8%AF%D8%A7%D8%A8-)
+- **خاص "لها" - إلهام شاهين تحسم جدل تصريحها عن الصلاة**: [Link](https://www.lahamag.com/article/214279-%D8%AE%D8%A7%D8%B5-%D9%84%D9%87%D8%A7--%D8%A5%D9%84%D9%87%D8%A7%D9%85-%D8%B4%D8%A7%D9%87%D9%8A%D9%86-%D8%AA%D8%AD%D8%B3%D9%85-%D8%AC%D8%AF%D9%84-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D9%87%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9)
+- **داعية تقصف إلهام شاهين بعد الضجة التي أثارتها بشأن الصلاة!**: [Link](https://www.echoroukonline.com/%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D8%AA%D9%82%D8%B5%D9%81-%D8%A5%D9%84%D9%87%D8%A7%D9%85-%D8%B4%D8%A7%D9%87%D9%8A%D9%86-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%B6%D8%AC%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D8%A3)
+
+
 ### wheelchair tennis paralympics (N/A, Mon, 2 Sep 2024 16:20:00 -0700)
 
 - **Paris 2024: Caverzaschi targets wheelchair tennis gold where Nadal reigned**: [Link](https://www.paralympic.org/feature/paris-2024-caverzaschi-targets-wheelchair-tennis-gold-where-nadal-reigned)
