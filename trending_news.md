@@ -1,3 +1,11 @@
+### brad pitt (N/A, Mon, 2 Sep 2024 12:50:00 -0700)
+
+- **George Clooney, Brad Pitt hit red carpet at Venice Film Festival**: [Link](https://www.today.com/video/george-clooney-brad-pitt-hit-red-carpet-at-venice-film-festival-218436677544)
+- **Brad Pitt, Ines de Ramon, George Clooney and Amal Clooney chanel simple 
+elegance on double date in Venice. Pics inside**: [Link](https://www.hindustantimes.com/lifestyle/fashion/brad-pitt-with-ines-de-ramon-george-clooney-amal-clooney-chanel-simple-elegance-on-double-date-in-venice-pics-inside-101725245924013.html)
+- **Brad Pitt's sheer shirt isn't even the best detail of his Venice suit**: [Link](https://www.gq-magazine.co.uk/article/brad-pitt-flared-trousers)
+
+
 ### ps5 pro (N/A, Mon, 2 Sep 2024 12:30:00 -0700)
 
 - **Leaked PS5 Pro Design Leaves Players Concerned**: [Link](https://www.yahoo.com/tech/leaked-ps5-pro-design-leaves-114422338.html)
