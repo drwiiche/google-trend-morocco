@@ -1,3 +1,10 @@
+### real madrid betis seville (N/A, Sun, 1 Sep 2024 20:40:00 -0700)
+
+- **Primera División Real Madrid 2 Real Betis 0 Full time**: [Link](https://www.bbc.com/sport/football/live/cx2eyzvnwprt)
+- **Mbappe ends scoring drought in Spanish league**: [Link](https://www.riverineherald.com.au/aap-soccer/mbappe-ends-scoring-drought-in-spanish-league/)
+- **Mbappé emulates Ronaldo Nazário at the Bernabéu**: [Link](https://en.as.com/soccer/mbappe-emulates-ronaldo-nazario-at-the-bernabeu-n/)
+
+
 ### الأميرة النرويجية مارثا لويز (N/A, Sun, 1 Sep 2024 20:20:00 -0700)
 
 - **أميرة نرويجية تتزوج رجلا زعم أنه كان فرعونا**: [Link](https://www.skynewsarabia.com/varieties/1738739-%D8%A7%D9%94%D9%85%D9%8A%D8%B1%D8%A9-%D9%86%D8%B1%D9%88%D9%8A%D8%AC%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B2%D9%88%D8%AC-%D8%B1%D8%AC%D9%84%D8%A7-%D8%B2%D8%B9%D9%85-%D8%A7%D9%94%D9%86%D9%87-%D9%81%D8%B1%D8%B9%D9%88%D9%86%D8%A7)
