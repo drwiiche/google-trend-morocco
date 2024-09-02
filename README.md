@@ -1,3 +1,11 @@
+### audi q5 (N/A, Mon, 2 Sep 2024 09:30:00 -0700)
+
+- **View Photos of the 2025 Audi Q5**: [Link](https://www.caranddriver.com/photos/g62017557/2025-audi-q5-gallery/)
+- **2026 Audi Q5 and SQ5 First Look: This Compact Luxury SUV Exudes Stylish 
+Restraint**: [Link](https://www.motortrend.com/news/2026-audi-q5-sq5-first-look-review/)
+- **Audi shares a first look at the new Q5**: [Link](https://www.audi-mediacenter.com/en/press-releases/audi-shares-a-first-look-at-the-new-q5-16224)
+
+
 ### equipe maroc (N/A, Mon, 2 Sep 2024 10:00:00 -0700)
 
 - **CM Féminine U20: défaite du Maroc face au Paraguay (Gr C)**: [Link](https://frmf.ma/fr/%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86/)
