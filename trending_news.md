@@ -1,3 +1,10 @@
+### combat youssef boughanem (N/A, Tue, 3 Sep 2024 08:00:00 -0700)
+
+- **Les conseils de Youssef Boughanem pour devenir un champion**: [Link](https://www.voxcatch.fr/2024/08/27/conseils-de-boughanem-devenir-champion/)
+- **Boughanem s’incline dans l’ancienne organisation de Cédric Doumbé**: [Link](https://www.actumma.com/youssef-boughanem-sincline-pour-la-premiere-fois-dans-lancienne-organisation-de-cedric-doumbe/110823/)
+- **GLORY 94 – Youssef Boughanem s’incline via décision partagée**: [Link](https://lasueur.com/glory-94-youssef-boughanem-s-incline-decision-partagee-01-09-2024)
+
+
 ### souleymane bamba (N/A, Tue, 3 Sep 2024 07:00:00 -0700)
 
 - **Sol Bamba: Cardiff City and Leeds United plan September match tribute**: [Link](https://www.bbc.com/sport/football/articles/cn7l5l2vgpro)
