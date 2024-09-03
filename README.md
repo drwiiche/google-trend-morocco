@@ -1,3 +1,12 @@
+### quotidien (N/A, Mon, 2 Sep 2024 23:00:00 -0700)
+
+- **"On voudrait faire un mea culpa" : Yann Barthès lance la 9e saison de 
+Quotidien avec des excuses... Bravo**: [Link](https://www.purepeople.com/article/-on-voudrait-faire-un-mea-culpa-yann-barthes-lance-la-9e-saison-de-quotidien-avec-des-excuses-bravo_a526896/1)
+- **Yann Barthès : « Nous allons arrêter d’inviter des politiques »**: [Link](https://www.latribune.fr/culture-lifestyle/yann-barthes-nous-allons-arreter-d-inviter-des-politiques-1005233.html)
+- **Arrêt de C8: "Problématique", Christine Kelly a un avis bien tranché et ça 
+concerne Cyril Hanouna et Yann Barthès**: [Link](https://www.telestar.fr/actu_tv/arret-de-c8-problematique-christine-kelly-a-un-avis-bien-tranche-et-ca-concerne-cyril-hanouna-et-yann-barthes-1688677)
+
+
 ### x (N/A, Mon, 2 Sep 2024 20:00:00 -0700)
 
 - **Brazil X ban upheld by supreme court panel after Musk refuses to comply 
