@@ -1,3 +1,20 @@
+### شباب المسيرة (N/A, Tue, 3 Sep 2024 10:20:00 -0700)
+
+- **"كأس التميز"/ تشكيلة الوداد أمام ش.المسيرة.. موكوينا يعتمد على غيلان وناسي 
+ومايلولا وحضور أساسي للاعب الأمل العفوري**: [Link](https://m.elbotola.com/article/2024-09-03-16-31-142.html)
+- **مفاجآت في لائحة موكىينا في أول مباراة للوداد بكأس التميز**: [Link](http://ar.sport.le360.ma/botola-pro-1/158317)
+- **موكوينا ينوي إشراك بيدرينهو أمام شباب المسيرة**: [Link](https://www.kooora.com/?n=1352010)
+
+
+### wydad (N/A, Tue, 3 Sep 2024 10:20:00 -0700)
+
+- **Le Wydad de Casablanca peine à enregistrer ses nouvelles recrues après un 
+litige avec Brest**: [Link](https://fr.hespress.com/384511-le-wydad-de-casablanca-peine-a-enregistrer-ses-nouvelles-recrues-apres-un-litige-avec-brest.html)
+- **Officiel: levée d’interdiction de recrutement pour le Wydad de Casablanca**: [Link](https://sport.le360.ma/botola-pro-1/officiel-levee-dinterdiction-de-recrutement-pour-le-wydad-de-casablanca-114067)
+- **Le Wydad freiné par un litige avec Brest : l’enregistrement des recrues 
+suspendu**: [Link](https://www.lesinfos.ma/article/149636151-Le%20Wydad%20frein%C3%A9%20par%20un%20litige%20avec%20Brest%20:%20l%E2%80%99enregistrement%20des%20recrues%20suspendu)
+
+
 ### الوداد (N/A, Tue, 3 Sep 2024 10:10:00 -0700)
 
 - **أندية عديدة تتربص بابن الوداد في "الميركاتو" الصيفي**: [Link](http://ar.sport.le360.ma/maroc/158325)
