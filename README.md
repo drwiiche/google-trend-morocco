@@ -1,3 +1,12 @@
+### souleymane bamba (N/A, Tue, 3 Sep 2024 07:00:00 -0700)
+
+- **Sol Bamba: Cardiff City and Leeds United plan September match tribute**: [Link](https://www.bbc.com/sport/football/articles/cn7l5l2vgpro)
+- **‘It was never a fair fight’: Former Premier League defender Sol Bamba dies 
+aged 39**: [Link](https://www.telegraph.co.uk/sport/2024/08/31/former-premier-league-defender-sol-bamba-dies-aged-39/)
+- **Sol Bamba was a colossus on the pitch and a beacon of humanity in private | 
+Dominic Booth**: [Link](https://www.theguardian.com/football/article/2024/sep/03/sol-bamba-neil-warnock-cardiff-city-middlesbrough-tribute)
+
+
 ### audi q5 2025 (N/A, Tue, 3 Sep 2024 05:10:00 -0700)
 
 - **2025 Audi Q5 First Look: Styling and Tech Changes Lead the Way**: [Link](https://www.edmunds.com/car-news/2025-audi-q5-debut-first-look.html)
