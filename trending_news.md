@@ -1,3 +1,11 @@
+### الألعاب البارالمبية للتنس على الكراسي المتحرّكة (N/A, Tue, 3 Sep 2024 16:20:00 -0700)
+
+- **بارالمبياد النبالة.. جوجل يحتفل بأقدم رياضيات العالم إليك أبرز المعلومات 
+عنها**: [Link](https://www.swatan.news/295292/%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D8%AF-%D8%A7%D9%84%D9%86%D8%A8%D8%A7%D9%84%D8%A9-%D8%AC%D9%88%D8%AC%D9%84-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%A3%D9%82%D8%AF%D9%85-%D8%B1/)
+- **قناة "الرياضية" تستعد لزف خبر سار للجماهير المغربية**: [Link](http://ar.sport.le360.ma/maroc/158012)
+- **بعد تصدرها التريند.. كل ما تريد معرفته عن تنس الكراسي المتحركة - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/157685/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%AF%D8%B1%D9%87%D8%A7-%D8%A7%D9%84%D8%AA%D8%B1%D9%8A%D9%86%D8%AF-%D9%83%D9%84-%D9%85%D8%A7-%D8%AA%D8%B1%D9%8A%D8%AF-%D9%85%D8%B9%D8%B1%D9%81%D8%AA%D9%87-%D8%B9%D9%86-%D8%AA%D9%86%D8%B3-%D8%A7%D9%84%D9%83%D8%B1%D8%A7%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%B1%D9%83%D8%A9---AARC-%D9%85%D8%B5%D8%B1.html)
+
+
 ### luis suarez (N/A, Tue, 3 Sep 2024 15:20:00 -0700)
 
 - **Luis Suárez se retira de la selección uruguaya**: [Link](https://as.com/futbol/internacional/luis-suarez-se-retira-de-la-seleccion-uruguaya-n/)
