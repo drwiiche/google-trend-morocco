@@ -1,3 +1,11 @@
+### wheelchair tennis paralympics 2024 (N/A, Tue, 3 Sep 2024 08:40:00 -0700)
+
+- **Google Doodle marks Paralympics wheelchair tennis with engaging artwork**: [Link](https://indianexpress.com/article/trending/trending-globally/google-doodle-today-wheelchair-tennis-paralympics-engaing-artwork-9547620/)
+- **Google Doodle celebrates Archery at Paris Paralympic Games 2024, Rakesh 
+Kumar set for semifinals | Today News**: [Link](https://www.livemint.com/news/google-doodle-celebrates-archery-sports-event-paris-paralympic-games-2024-shooting-rakesh-kumar-badminton-semifinals-11725151899418.html)
+- **Paralympics-themed Google Doodle celebrates wheelchair basketball**: [Link](https://ca.sports.yahoo.com/news/paralympics-themed-google-doodle-celebrates-114207705.html)
+
+
 ### boufal (N/A, Tue, 3 Sep 2024 07:20:00 -0700)
 
 - **Al-Ahly: Boufal’s salary is an obstacle to contracting with him**: [Link](https://www.ysscores.com/en/news/3582573/Al-Ahly:-Boufal%E2%80%99s-salary-is-an-obstacle-to-contracting-with-him)
