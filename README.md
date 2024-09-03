@@ -1,3 +1,10 @@
+### tennis fauteuil paris 2024 (N/A, Tue, 3 Sep 2024 00:10:00 -0700)
+
+- **Stéphane Houdet, qualifié pour les quarts de finale du tennis fauteuil : « Yannick (Noah) est magique ! » (Tennis (H))**: [Link](https://www.lequipe.fr/Tous-sports/Actualites/Stephane-houdet-qualifie-pour-les-quarts-de-finale-du-tennis-fauteuil-yannick-noah-est-magique/1505400)
+- **Jeux paralympiques. Frédéric Cattanéo, instant crucial pour la médaille**: [Link](https://www.ouest-france.fr/jeux-olympiques/jeux-paralympiques-frederic-cattaneo-instant-crucial-pour-la-medaille-4a042ab8-67ad-11ef-9d50-2c54e32f1f3d)
+- **« C’est un vrai truc ? Oh merde ! » : Yannick Noah, déchaîné, découvre soudainement qu’il est en direct sur L’Équipe**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/c-est-un-vrai-truc-oh-merde-yannick-noah-dechaine-decouvre-soudainement-qu-il-est-en-direct-sur-l-equipe-20240830)
+
+
 ### آدم أزنو (N/A, Tue, 3 Sep 2024 02:20:00 -0700)
 
 - **المنتخب المغربي يخوض أول حصة تدريبية استعدادا لمواجهتي الغابون وليسوتو**: [Link](https://m.elbotola.com/article/2024-09-02-22-27-737.html)
