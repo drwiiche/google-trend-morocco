@@ -1,3 +1,11 @@
+### luis suarez (N/A, Tue, 3 Sep 2024 15:20:00 -0700)
+
+- **Luis Suárez se retira de la selección uruguaya**: [Link](https://as.com/futbol/internacional/luis-suarez-se-retira-de-la-seleccion-uruguaya-n/)
+- **Luis Suárez anuncia entre lágrimas que se retira de la selección de Uruguay**: [Link](https://www.marca.com/futbol/futbol-internacional/2024/09/03/66d64cbc268e3e73608b45b5.html)
+- **Tras emitirse una orden de captura en su contra trasciende que Edmundo 
+González está escondido**: [Link](https://www.telemundo.com/noticias/noticias-telemundonoticias-telemundo-mediodia/internacional/video/tras-emitirse-una-orden-de-captura-en-su-contra-trasciende-que-edmundo-gonzalez-esta-tmvo12746966)
+
+
 ### tennis fauteuil aux jeux paralympiques (N/A, Tue, 3 Sep 2024 16:10:00 -0700)
 
 - **Paralympiques 2024 : le tennis fauteuil, service gagnant pour ce handisport**: [Link](https://www.francetvinfo.fr/jeux-paralympiques/paralympiques-2024-le-tennis-fauteuil-service-gagnant-pour-ce-handisport_6761383.html)
