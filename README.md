@@ -1,3 +1,12 @@
+### algérie (N/A, Mon, 2 Sep 2024 19:00:00 -0700)
+
+- **Algérie : démantèlement d’un « réseau d’espionnage » constitué d’Algériens 
+et de Marocains, selon le parquet**: [Link](https://www.lemonde.fr/afrique/article/2024/09/02/algerie-demantelement-d-un-reseau-d-espionnage-constitue-d-algeriens-et-de-marocains-selon-le-parquet_6302047_3212.html)
+- **Algérie: Quand la campagne électorale est une occasion pour accuser le 
+Maroc d'espionnage**: [Link](https://fr.hespress.com/384350-algerie-quand-la-campagne-electorale-est-une-occasion-pour-accuser-le-maroc-despionnage.html)
+- **Alger annonce l’arrestation de quatre Marocains accusés « d’espionnage »**: [Link](https://ledesk.ma/encontinu/alger-annonce-larrestation-de-quatre-marocains-accuses-despionnage/)
+
+
 ### إلهام شاهين (N/A, Mon, 2 Sep 2024 16:30:00 -0700)
 
 - **أزمة إلهام شاهين مستمرة.. داعية ترد: "كم عمرك ولا تزالين بعيدة عن الآداب؟"**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/09/02/%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%87%D8%A7%D9%85-%D8%B4%D8%A7%D9%87%D9%8A%D9%86-%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9-%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D8%AA%D8%B1%D8%AF-%D9%83%D9%85-%D8%B9%D9%85%D8%B1%D9%83-%D9%88%D9%84%D8%A7-%D8%AA%D8%B2%D8%A7%D9%84%D9%8A-%D8%A8%D8%B9%D9%8A%D8%AF%D8%A9-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D8%AF%D8%A7%D8%A8-)
