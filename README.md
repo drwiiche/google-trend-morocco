@@ -1,3 +1,10 @@
+### widad (N/A, Tue, 3 Sep 2024 10:00:00 -0700)
+
+- **أيت مانة يسارع الزمن لإنهاء ملف بارز هذا الأسبوع**: [Link](http://ar.sport.le360.ma/maroc/158302)
+- **الوداد يفشل في التعاقد مع لاعب بارز**: [Link](https://sport.lesiteinfo.com/elbotola/443928.html)
+- **مستجد يهم صفقة الوداد الخاصة بالمهاجم البرازيلي**: [Link](https://sport.lesiteinfo.com/elbotola/443905.html)
+
+
 ### iphone 16 pro max (N/A, Tue, 3 Sep 2024 11:10:00 -0700)
 
 - **iPhone 16 Series Launch: Here’s when you can pre-order and how it could be 
