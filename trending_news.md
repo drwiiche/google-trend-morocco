@@ -1,3 +1,10 @@
+### boufal (N/A, Tue, 3 Sep 2024 07:20:00 -0700)
+
+- **Al-Ahly: Boufal’s salary is an obstacle to contracting with him**: [Link](https://www.ysscores.com/en/news/3582573/Al-Ahly:-Boufal%E2%80%99s-salary-is-an-obstacle-to-contracting-with-him)
+- **Morocco’s Boufal Leaves Al Rayyan by Mutual Consent**: [Link](https://www.msn.com/en-xl/news/other/morocco-s-boufal-leaves-al-rayyan-by-mutual-consent/ar-AA1pSiAm)
+- **Neraysho Kasanwirjo Joins Rangers From Feyenoord**: [Link](https://www.rangers.co.uk/article/neraysho-kasanwirjo-joins-rangers-from-feyenoord/7Kk2taN0B9bw1XR37rBBEs)
+
+
 ### combat youssef boughanem (N/A, Tue, 3 Sep 2024 08:00:00 -0700)
 
 - **Les conseils de Youssef Boughanem pour devenir un champion**: [Link](https://www.voxcatch.fr/2024/08/27/conseils-de-boughanem-devenir-champion/)
