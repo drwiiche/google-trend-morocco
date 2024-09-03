@@ -1,3 +1,12 @@
+### x (N/A, Mon, 2 Sep 2024 20:00:00 -0700)
+
+- **Brazil X ban upheld by supreme court panel after Musk refuses to comply 
+with law**: [Link](https://www.axios.com/2024/09/03/brazil-x-ban-elon-musk-supreme-court)
+- **Elon Musk says Brazilian judge should go to prison in latest attack after X 
+ban upheld in country**: [Link](https://www.foxbusiness.com/fox-news-world/elon-musk-says-brazilian-judge-should-go-prison-latest-attack-x-ban-upheld-country)
+- **Starlink tells Brazil regulator it will not comply with X suspension**: [Link](https://www.cnbc.com/2024/09/02/starlink-tells-brazil-regulator-it-will-not-comply-with-x-suspension.html)
+
+
 ### algérie (N/A, Mon, 2 Sep 2024 19:00:00 -0700)
 
 - **Algérie : démantèlement d’un « réseau d’espionnage » constitué d’Algériens 
