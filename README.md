@@ -1,3 +1,14 @@
+### tennis fauteuil jeux paralympiques programme (N/A, Tue, 3 Sep 2024 09:10:00 -0700)
+
+- **DIRECT. Jeux Paralympiques : Trois médailles mais pas d'or, suivez la 
+journée du 3 septembre**: [Link](https://www.lequipe.fr/Tous-sports/actu-en-direct/jeux-paralympiques-live/11580)
+- **Jeux paralympiques : comment une compétition "parallèle" est devenue un 
+évènement sportif majeur**: [Link](https://www.nationalgeographic.fr/histoire/olympisme-sports-comment-les-jeux-paralympiques-sont-ils-devenus-un-evenement-sportif-majeur-histoire-angleterre-handicap-visuel-mental-inclusion)
+- **En direct, Jeux paralympiques : les nageurs Ugo Didier et Laurent Chardard 
+sur le podium, Matéo Bohéas en bronze en tennis de table… Suivez les 
+épreuves**: [Link](https://www.lemonde.fr/sport/live/2024/09/03/en-direct-jeux-paralympiques-fabien-lamirault-assure-d-une-medaille-en-tennis-de-table-jean-louis-michaud-termine-septieme-de-sa-finale-de-tir-suivez-les-epreuves_6302750_3242.html)
+
+
 ### wydad athletic club (N/A, Tue, 3 Sep 2024 09:20:00 -0700)
 
 - **Wydad: le beau message de Samuel Eto’o à Hicham Ait Menna (PHOTO)**: [Link](https://www.lesiteinfo.com/sport/626134-wydad-le-beau-message-de-samuel-etoo-a-hicham-ait-menna-photo.html)
