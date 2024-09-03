@@ -1,3 +1,10 @@
+### منال الصديقي (N/A, Tue, 3 Sep 2024 15:30:00 -0700)
+
+- **الممثلة الصديقي تتعافى من حادث سقوط**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AF%D9%8A%D9%82%D9%8A-%D8%AA%D8%AA%D8%B9%D8%A7%D9%81%D9%89-%D9%85%D9%86-%D8%AD%D8%A7%D8%AF%D8%AB-%D8%B3%D9%82%D9%88%D8%B7-1424763.html)
+- **"نبغي نطمنكم انا الحمد لله هاد الساعة".. منال تطمئن متابعيها بعد الحادثة**: [Link](https://ar.hibapress.com/details-547265.html)
+- **الصديقي تكشف تفاصيل إصابتها البليغة في "بلاطو" التصوير**: [Link](https://aljarida24.ma/p/actualites/286667/)
+
+
 ### iphone 16 pro (N/A, Tue, 3 Sep 2024 15:10:00 -0700)
 
 - **Apple Phone 16, iPhone 16 Pro Release Date Schedule: Your Complete Countdown**: [Link](https://www.forbes.com/sites/davidphelan/2024/09/02/apple-phone-16-iphone-16-pro-release-date-schedule-your-complete-countdown/)
