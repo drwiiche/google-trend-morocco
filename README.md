@@ -1,3 +1,11 @@
+### آدم أزنو (N/A, Tue, 3 Sep 2024 02:20:00 -0700)
+
+- **المنتخب المغربي يخوض أول حصة تدريبية استعدادا لمواجهتي الغابون وليسوتو**: [Link](https://m.elbotola.com/article/2024-09-02-22-27-737.html)
+- **بالفيديو.. الأسود تخوض أول حصة تدريبية بمركز "محمد السادس" بحضور الوافدين 
+الجديدين**: [Link](https://www.akhbarona.com/sport/lionatlas/391518.html)
+- **أزنو: إن شاء الله نجيبو شي ربحة**: [Link](https://www.almountakhab.com/node/16203838)
+
+
 ### ayachi zammel (N/A, Tue, 3 Sep 2024 00:40:00 -0700)
 
 - **Tunisian police detain presidential hopeful as candidacy confirmed**: [Link](https://www.aljazeera.com/news/2024/9/2/tunisian-police-detain-presidential-hopeful-as-candidacy-confirmed)
