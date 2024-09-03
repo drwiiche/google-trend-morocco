@@ -1,3 +1,28 @@
+### panathinaikos (N/A, Tue, 3 Sep 2024 14:40:00 -0700)
+
+- **Conference League Logbook: Panathinaikos | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/conference-league-logbook-panathinaikos)
+- **Leeds United justified in £25m transfer hesitation as former target to 
+leave top league after loss of form**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-justified-in-ps25-million-transfer-hesitation-as-former-target-to-leave-top-league-after-loss-of-form-azzedine-ounahi-marseille-4767511)
+- **Marseille’s Azzedine Ounahi chooses Panathinaikos over Olympiacos**: [Link](https://www.getfootballnewsfrance.com/2024/marseilles-azzedine-ounahi-chooses-panathinaikos-over-olympiacos/)
+
+
+### tchouameni (N/A, Tue, 3 Sep 2024 14:40:00 -0700)
+
+- **Real Madrid 2-0 Betis (Sep 1, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704699)
+- **Mbappe: "People talk about me and Vinicius but we’re still getting to know 
+each other on the field"**: [Link](https://www.managingmadrid.com/2024/9/2/24233999/mbappe-real-madrid-2024-quotes-betis-goals-vinicius)
+- **Real Madrid briefing: Kylian Mbappe’s first La Liga goals, Tchouameni 
+impresses, Ceballos rewarded - The Athletic**: [Link](https://www.nytimes.com/athletic/5738921/2024/09/02/real-madrid-mbappe-tchouameni-ceballos/)
+
+
+### quebec (N/A, Tue, 3 Sep 2024 14:40:00 -0700)
+
+- **La chaleur échappe au Québec : voici le coupable**: [Link](https://www.meteomedia.com/fr/nouvelles/meteo/previsions/la-chaleur-echappe-au-quebec-voici-le-coupable)
+- **“On a failli enregistrer nos premiers gels au sol” Géraldine Lamarche 
+annonce une météo surprenante pour la première semaine de septembre**: [Link](https://www.salutbonjour.ca/2024/09/03/on-a-failli-enregistrer-nos-premiers-gels-au-sol-geraldine-lamarche-annonce-une-meteo-surprenante-pour-la-premiere-semaine-de-septembre)
+- **La chaleur échappe au Québec : voici le coupable**: [Link](https://www.msn.com/fr-ca/meteo/articles-principaux/la-chaleur-%C3%A9chappe-au-qu%C3%A9bec-voici-le-coupable/ar-AA1pVlDJ)
+
+
 ### العطل الرسمية في المغرب 2024 (N/A, Tue, 3 Sep 2024 14:00:00 -0700)
 
 - **موعد الدخول المدرسي بالمغرب للموسم 2024-2025**: [Link](https://madar21.com/272610.html)
