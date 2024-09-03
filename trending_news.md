@@ -1,3 +1,11 @@
+### wydad athletic club (N/A, Tue, 3 Sep 2024 09:20:00 -0700)
+
+- **Wydad: le beau message de Samuel Eto’o à Hicham Ait Menna (PHOTO)**: [Link](https://www.lesiteinfo.com/sport/626134-wydad-le-beau-message-de-samuel-etoo-a-hicham-ait-menna-photo.html)
+- **Mercato XXL: la somme colossale des transferts des Lions de l’Atlas**: [Link](https://www.h24info.ma/mercato-xxl-la-somme-colossale-des-transferts-des-lions-de-latlas/)
+- **Hamza Igamane Archives - Médias24 numéro un de l'information économique 
+marocaine**: [Link](https://medias24.com/sujet/hamza-igamane/)
+
+
 ### wheelchair tennis paralympics 2024 (N/A, Tue, 3 Sep 2024 08:40:00 -0700)
 
 - **Google Doodle marks Paralympics wheelchair tennis with engaging artwork**: [Link](https://indianexpress.com/article/trending/trending-globally/google-doodle-today-wheelchair-tennis-paralympics-engaing-artwork-9547620/)
