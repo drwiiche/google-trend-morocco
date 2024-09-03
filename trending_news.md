@@ -1,3 +1,11 @@
+### iphone 16 pro max (N/A, Tue, 3 Sep 2024 11:10:00 -0700)
+
+- **iPhone 16 Series Launch: Here’s when you can pre-order and how it could be 
+cheaper**: [Link](https://www.cnbctv18.com/technology/iphone-16-series-launch-pre-order-date-expected-price-in-india-19468642.htm)
+- **Apple Phone 16, iPhone 16 Pro Release Date Schedule: Your Complete Countdown**: [Link](https://www.forbes.com/sites/davidphelan/2024/09/02/apple-phone-16-iphone-16-pro-release-date-schedule-your-complete-countdown/)
+- **This is probably the new gold titanium iPhone 16 Pro color**: [Link](https://9to5mac.com/2024/08/30/iphone-16-pro-gold-titanium/)
+
+
 ### brahim diaz (N/A, Tue, 3 Sep 2024 10:40:00 -0700)
 
 - **Brahim: “We were solid defensively and very effective, especially in the 
