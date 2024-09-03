@@ -1,3 +1,11 @@
+### كأس التميز المغربي (N/A, Tue, 3 Sep 2024 02:50:00 -0700)
+
+- **انطلاق "كأس التميز" يرفع إيقاع التنافسية ويفتح الباب أمام المواهب المغربية**: [Link](https://www.hespress.com/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-%D9%8A%D8%B1%D9%81%D8%B9-%D8%A5%D9%8A%D9%82%D8%A7%D8%B9-%D8%A7%D9%84%D8%AA%D9%86%D8%A7%D9%81%D8%B3-1425086.html)
+- **الرياضية تزف خبرا سارا لجمهور الوداد والرجاء**: [Link](http://ar.sport.le360.ma/botola-pro-1/158257)
+- **✅ اتحاد طنجة يواجه السطاد المغربي.. انطلاق النسخة الأولى من كأس التميز لكرة 
+القدم يوم غد الثلاثاء**: [Link](https://tanja24.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%B3%D8%B7%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%86%D8%B7%D9%84%D8%A7/)
+
+
 ### tennis fauteuil paris 2024 (N/A, Tue, 3 Sep 2024 00:10:00 -0700)
 
 - **Stéphane Houdet, qualifié pour les quarts de finale du tennis fauteuil : « Yannick (Noah) est magique ! » (Tennis (H))**: [Link](https://www.lequipe.fr/Tous-sports/Actualites/Stephane-houdet-qualifie-pour-les-quarts-de-finale-du-tennis-fauteuil-yannick-noah-est-magique/1505400)
