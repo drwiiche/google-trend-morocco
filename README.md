@@ -1,3 +1,13 @@
+### nasser bourita (N/A, Tue, 3 Sep 2024 03:30:00 -0700)
+
+- **Coopération Sud-Sud: Bourita représente Mohammed VI au 2ème Forum 
+Indonésie-Afrique**: [Link](https://ledesk.ma/encontinu/cooperation-sud-sud-bourita-represente-mohammed-vi-au-2eme-forum-indonesie-afrique/)
+- **Bali : le Maroc prêt à partager son expérience avec l’Indonésie et les pays 
+africains, selon Bourita**: [Link](https://mobile.telquel.ma/instant-t/2024/09/02/bali-le-maroc-pret-a-partager-son-experience-avec-lindonesie-et-les-pays-africains-selon-bourita_1891278/)
+- **Bourita s'entretient à Bali avec la ministre indonésienne des Affaires 
+étrangères**: [Link](https://fr.hespress.com/384379-bourita-sentretient-a-bali-avec-la-ministre-indonesienne-des-affaires-etrangeres.html)
+
+
 ### kingsley coman (N/A, Tue, 3 Sep 2024 03:20:00 -0700)
 
 - **Kingsley Coman to stay at Bayern Munich despite transfer exit speculation - 
