@@ -1,3 +1,13 @@
+### kingsley coman (N/A, Tue, 3 Sep 2024 03:20:00 -0700)
+
+- **Kingsley Coman to stay at Bayern Munich despite transfer exit speculation - 
+The Athletic**: [Link](https://www.nytimes.com/athletic/5739262/2024/09/02/bayern-munich-kinglsey-coman-future/)
+- **Arsenal eye up last-minute move for Bayern Munich star Kingsley Coman, with 
+the Gunners facing competition fro**: [Link](https://www.dailymail.co.uk/sport/football/article-13792091/Arsenal-Bayern-Munich-Kingsley-Coman.html)
+- **Arsenal weighing up Deadline Day move for Bayern star but concerns over 
+injury record**: [Link](https://www.caughtoffside.com/2024/08/30/arsenal-kingsley-coman-transfer/)
+
+
 ### كأس التميز المغربي (N/A, Tue, 3 Sep 2024 02:50:00 -0700)
 
 - **انطلاق "كأس التميز" يرفع إيقاع التنافسية ويفتح الباب أمام المواهب المغربية**: [Link](https://www.hespress.com/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-%D9%8A%D8%B1%D9%81%D8%B9-%D8%A5%D9%8A%D9%82%D8%A7%D8%B9-%D8%A7%D9%84%D8%AA%D9%86%D8%A7%D9%81%D8%B3-1425086.html)
