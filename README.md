@@ -1,3 +1,20 @@
+### brahim diaz (N/A, Tue, 3 Sep 2024 10:40:00 -0700)
+
+- **Brahim: “We were solid defensively and very effective, especially in the 
+second half, in terms of scoring chances"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/declaraciones-de-brahim-01-09-2024)
+- **Real Madrid’s ‘game-changer’ proved himself again with cameo off bench vs 
+Real Betis**: [Link](https://sports.yahoo.com/real-madrid-game-changer-proved-221100268.html)
+- **Diaz: This is what I told Mbappe, and Valverde's presence with us is great**: [Link](https://www.ysscores.com/en/news/3544706/Diaz:-This-is-what-I-told-Mbappe,-and-Valverde's-presence-with-us-is-great)
+
+
+### elections allemagne (N/A, Tue, 3 Sep 2024 05:30:00 -0700)
+
+- **L’Allemagne, boulet de l’Europe**: [Link](https://www.lepoint.fr/editos-du-point/l-allemagne-boulet-de-l-europe-03-09-2024-2569247_32.php)
+- **Allemagne : Percée de l'extrême droite dans les élections régionales**: [Link](https://fr.hespress.com/384325-allemagne-percee-de-lextreme-droite-dans-les-elections-regionales.html)
+- **Allemagne: l'extrême droite provoque un séisme politique à l'est et 
+fragilise Scholz**: [Link](https://medias24.com/agence-presse/allemagne-lextreme-droite-provoque-un-seisme-politique-a-lest-et-fragilise-scholz/)
+
+
 ### شباب المسيرة (N/A, Tue, 3 Sep 2024 10:20:00 -0700)
 
 - **"كأس التميز"/ تشكيلة الوداد أمام ش.المسيرة.. موكوينا يعتمد على غيلان وناسي 
