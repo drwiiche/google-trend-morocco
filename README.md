@@ -1,3 +1,10 @@
+### ayachi zammel (N/A, Tue, 3 Sep 2024 00:40:00 -0700)
+
+- **Tunisian police detain presidential hopeful as candidacy confirmed**: [Link](https://www.aljazeera.com/news/2024/9/2/tunisian-police-detain-presidential-hopeful-as-candidacy-confirmed)
+- **Tunisia election: Just two candidates approved to challenge Tunisia president**: [Link](https://www.bbc.com/news/articles/cz072yl775zo)
+- **Tunisia's electoral authority approves just 2 candidates to challenge Saied. 1 has been detained**: [Link](https://apnews.com/article/tunisia-presidential-election-candidates-arrest-4a317c51e06627f3d3aa11c01b1a9ae8)
+
+
 ### sofiane boufal (N/A, Mon, 2 Sep 2024 22:00:00 -0700)
 
 
