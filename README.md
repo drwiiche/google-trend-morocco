@@ -1,3 +1,19 @@
+### iphone 16 pro (N/A, Tue, 3 Sep 2024 15:10:00 -0700)
+
+- **Apple Phone 16, iPhone 16 Pro Release Date Schedule: Your Complete Countdown**: [Link](https://www.forbes.com/sites/davidphelan/2024/09/02/apple-phone-16-iphone-16-pro-release-date-schedule-your-complete-countdown/)
+- **This is probably the new gold titanium iPhone 16 Pro color**: [Link](https://9to5mac.com/2024/08/30/iphone-16-pro-gold-titanium/)
+- **Apple Targets Sept. 10 Debut for New iPhones, AirPods and Watches**: [Link](https://www.bloomberg.com/news/articles/2024-08-23/when-is-apple-announcing-the-iphone-16-apple-planning-event-on-sept-10-2024)
+
+
+### wout van aert (N/A, Tue, 3 Sep 2024 13:20:00 -0700)
+
+- **Drama voor Wout van Aert in Vuelta: leider in punten- en bergklassement 
+moet opgeven na stevige val**: [Link](https://sporza.be/nl/2024/09/03/drama-voor-wout-van-aert-in-vuelta-leider-in-punten-en-bergklassement-moet-opgeven-na-stevige-val~1725366745115/)
+- **Bij Visma-Lease a Bike kunnen ze niet wachten op de jaarwisseling**: [Link](https://www.ed.nl/wielrennen/bij-visma-lease-a-bike-kunnen-ze-niet-wachten-op-de-jaarwisseling~ab34e54c/)
+- **Van Aert stapt uit Vuelta na val, Roglic komt op slotklim net tekort voor 
+rode trui**: [Link](https://nos.nl/video/2535710-van-aert-stapt-uit-vuelta-na-val-roglic-komt-op-slotklim-net-tekort-voor-rode-trui)
+
+
 ### panathinaikos (N/A, Tue, 3 Sep 2024 14:40:00 -0700)
 
 - **Conference League Logbook: Panathinaikos | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/conference-league-logbook-panathinaikos)
