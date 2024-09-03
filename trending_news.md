@@ -1,3 +1,10 @@
+### الوداد (N/A, Tue, 3 Sep 2024 10:10:00 -0700)
+
+- **أندية عديدة تتربص بابن الوداد في "الميركاتو" الصيفي**: [Link](http://ar.sport.le360.ma/maroc/158325)
+- **المصري ينافس الاتحاد السكندري على صفقة زهير المترجي**: [Link](https://sport.elwatannews.com/ar/1/1/1160520/%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D9%86%D8%A7%D9%81%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D9%83%D9%86%D8%AF%D8%B1%D9%8A-%D8%B9%D9%84%D9%89-%D8%B5%D9%81%D9%82%D8%A9-%D8%B2%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%AA%D8%B1%D8%AC%D9%8A)
+- **أيت مانة يسارع الزمن لإنهاء ملف بارز هذا الأسبوع**: [Link](http://ar.sport.le360.ma/maroc/158302)
+
+
 ### tennis fauteuil jeux paralympiques programme (N/A, Tue, 3 Sep 2024 09:10:00 -0700)
 
 - **DIRECT. Jeux Paralympiques : Trois médailles mais pas d'or, suivez la 
