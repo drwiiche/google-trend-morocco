@@ -1,3 +1,10 @@
+### audi q5 2025 (N/A, Tue, 3 Sep 2024 05:10:00 -0700)
+
+- **2025 Audi Q5 First Look: Styling and Tech Changes Lead the Way**: [Link](https://www.edmunds.com/car-news/2025-audi-q5-debut-first-look.html)
+- **For 2025, Audi Gives Q5 and SQ5 a Fresh Face and Familiar Engines**: [Link](https://www.caranddriver.com/news/a62027214/2025-audi-q5-sq5-revealed/)
+- **Audi shares a first look at the new Q5**: [Link](https://www.audi-mediacenter.com/en/press-releases/audi-shares-a-first-look-at-the-new-q5-16224)
+
+
 ### zeturf (N/A, Tue, 3 Sep 2024 05:00:00 -0700)
 
 - **Quinté+: PRIX DES TERRES NOIRES - CHANTILLY - 03/09/2024 : partants, 
