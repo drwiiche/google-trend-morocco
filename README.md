@@ -1,3 +1,27 @@
+### zeturf (N/A, Tue, 3 Sep 2024 05:00:00 -0700)
+
+- **Quinté+: PRIX DES TERRES NOIRES - CHANTILLY - 03/09/2024 : partants, 
+pronostics et résultats...**: [Link](https://www.equidia.fr/courses/2024-09-03/R1/C1)
+- **Les pronos hippiques du mardi 3 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-3-septembre-2024_AN-202409020445.html)
+- **Quinté Plus PMU : Calas possède une première chance**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-calas-possede-une-premiere-chance-125470.html)
+
+
+### resultat quinte (N/A, Tue, 3 Sep 2024 05:00:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 10 Marzouk**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-10-marzouk-125471.html)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 13 Hymne du 
+Gers**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-13-hymne-du-gers-125461.html)
+- **ParisLongchamp Prix du Bois de Boulogne**: [Link](https://www.paris-turf.com/course/parislongchamp-prix-du-bois-de-boulogne-idc-e0ffc3889bb8f5a5f98a4fea9c2d0172)
+
+
+### jules koundé (N/A, Tue, 3 Sep 2024 05:00:00 -0700)
+
+- **Koundé sorprende a todos con otro nuevo look**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240902/1002309055/kounde-sorprende-todos-nuevo-look.html)
+- **El reencuentro de los Blues, Jules Koundé en falda, la apropiación indebida 
+de los internautas**: [Link](https://www.entrevue.fr/es/les-retrouvailles-des-bleus-jules-kounde-en-jupe-les-detournements-des-internautes/)
+- **El pisotón de Courtois no se revisó, el de Koundé sí**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240902/1002308590/pisoton-courtois-reviso-kounde.html)
+
+
 ### kylian mbappé real madrid (N/A, Tue, 3 Sep 2024 03:40:00 -0700)
 
 - **Mbappe: "People talk about me and Vinicius but we’re still getting to know 
