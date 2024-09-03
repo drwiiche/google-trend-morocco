@@ -1,3 +1,20 @@
+### kylian mbappé real madrid (N/A, Tue, 3 Sep 2024 03:40:00 -0700)
+
+- **Mbappe: "People talk about me and Vinicius but we’re still getting to know 
+each other on the field"**: [Link](https://www.managingmadrid.com/2024/9/2/24233999/mbappe-real-madrid-2024-quotes-betis-goals-vinicius)
+- **Primera División Real Madrid 2 Real Betis 0 Full time**: [Link](https://www.bbc.com/sport/football/live/cx2eyzvnwprt)
+- **Mbappé Talks About His La Liga Drought After Breaking Goal Scoring Streak**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/mbapp%C3%A9-talks-about-his-la-liga-drought-after-breaking-goal-scoring-streak-2024-09-02)
+
+
+### yann barthès (N/A, Tue, 3 Sep 2024 02:00:00 -0700)
+
+- **Yann Barthès : « Nous allons arrêter d’inviter des politiques »**: [Link](https://www.latribune.fr/culture-lifestyle/yann-barthes-nous-allons-arreter-d-inviter-des-politiques-1005233.html)
+- **Arrêt de C8: "Problématique", Christine Kelly a un avis bien tranché et ça 
+concerne Cyril Hanouna et Yann Barthès**: [Link](https://www.telestar.fr/actu_tv/arret-de-c8-problematique-christine-kelly-a-un-avis-bien-tranche-et-ca-concerne-cyril-hanouna-et-yann-barthes-1688677)
+- **Yann Barthès heureux de voir Cyril Hanouna et TPMP disparaître de la TNT ? 
+L'animateur de Quotidien réagit, "Certains propos qui ont été tenus..."**: [Link](https://www.purebreak.com/news/yann-barthes-heureux-de-voir-cyril-hanouna-et-tpmp-disparaitre-de-la-tnt-l-animateur-de-quotidien-reagit-certains-propos-qui-ont-ete-tenus/250788)
+
+
 ### nasser bourita (N/A, Tue, 3 Sep 2024 03:30:00 -0700)
 
 - **Coopération Sud-Sud: Bourita représente Mohammed VI au 2ème Forum 
