@@ -1,3 +1,13 @@
+### programme tv (N/A, Wed, 4 Sep 2024 12:20:00 -0700)
+
+- **EXCLUSIF. Édouard Philippe : « Je serai candidat à la prochaine élection 
+présidentielle »**: [Link](https://www.lepoint.fr/politique/exclusif-edouard-philippe-je-serai-candidat-a-la-prochaine-election-presidentielle-03-09-2024-2569359_20.php)
+- **En pleine crise politique, Édouard Philippe annonce sa candidature à 
+l'Élysée**: [Link](https://www.france24.com/fr/france/20240903-en-pleine-crise-politique-%C3%A9douard-philippe-annonce-sa-candidature-%C3%A0-l-%C3%A9lys%C3%A9e)
+- **En direct : Edouard Philippe annonce sa candidature à la « prochaine 
+élection présidentielle »**: [Link](https://www.lemonde.fr/politique/live/2024/09/03/en-direct-nouveau-premier-ministre-olivier-faure-et-boris-vallaud-vont-s-entretenir-avec-emmanuel-macron_6302644_823448.html)
+
+
 ### كاس التميز المغرب (N/A, Wed, 4 Sep 2024 11:10:00 -0700)
 
 - **دوري التميز للعصبة الاحترافية ينطلق على إيقاع فضيحة مدوية**: [Link](http://ar.sport.le360.ma/maroc/158342)
