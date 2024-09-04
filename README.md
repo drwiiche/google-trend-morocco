@@ -1,3 +1,11 @@
+### victor osimhen galatasaray (N/A, Tue, 3 Sep 2024 23:30:00 -0700)
+
+- **Victor Osimhen spending a prime year at Galatasaray is a huge waste of one 
+of the world's best strikers**: [Link](https://www.goal.com/en/lists/victor-osimhen-spending-prime-year-galatasaray-loan-huge-waste-world-best-strikers/bltcdda09affb23ea19)
+- **Osimhen in Istanbul amid Galatasaray loan talks**: [Link](https://www.espn.com/soccer/story/_/id/41100000/galatasaray-negotiations-sign-osimhen-loan-napoli)
+- **Chelsea news: Why did Victor Osimhen join Galatasaray?**: [Link](https://www.bbc.com/sport/football/articles/c87g2gdx48lo)
+
+
 ### vladimir poutine (N/A, Tue, 3 Sep 2024 18:30:00 -0700)
 
 - **En direct, guerre en Ukraine : Vladimir Poutine est en Mongolie, un pays 
