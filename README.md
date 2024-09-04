@@ -1,3 +1,18 @@
+### vladimir poutine (N/A, Wed, 4 Sep 2024 13:40:00 -0700)
+
+- **La visite de Vladimir Poutine en Mongolie, "un pied de nez" lancé à la CPI**: [Link](https://www.france24.com/fr/europe/20240903-la-visite-de-vladimir-poutine-en-mongolie-un-pied-de-nez-lanc%C3%A9-%C3%A0-la-cpi)
+- **En direct, guerre en Ukraine : Vladimir Poutine est en Mongolie, un pays 
+qui désormais « partage la responsabilité de ses crimes », accuse Kiev**: [Link](https://www.lemonde.fr/international/live/2024/09/03/en-direct-guerre-en-ukraine-les-dernieres-informations-et-les-reponses-a-vos-questions_6300754_3210.html)
+- **En Mongolie, Poutine nargue l'Ukraine et la Cour pénale internationale**: [Link](https://www.lefigaro.fr/international/vladimir-poutine-en-mongolie-malgre-le-mandat-d-arret-de-la-cpi-20240903)
+
+
+### المرشحين للكرة الذهبية 2024 (N/A, Wed, 4 Sep 2024 12:40:00 -0700)
+
+- **لأول مرة منذ 21 عاما.. شمس ميسي ورونالدو تغيب عن الكرة الذهبية**: [Link](https://www.kooora.com/?n=1352695)
+- **المرشحين للفوز بالكرة الذهبية من الدوري الإسباني!**: [Link](https://hihi2.com/2024/09/04/p2832846.html)
+- **الكشف عن القائمة النهائية لجائزة الكرة الذهبية لعام 2024**: [Link](https://www.aljazeera.net/sport/2024/9/4/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9)
+
+
 ### casemiro (N/A, Wed, 4 Sep 2024 13:20:00 -0700)
 
 - **Manchester United: Casemiro's wife hits back after criticism**: [Link](https://www.bbc.com/sport/football/articles/cdxlp5jke9yo)
