@@ -1,3 +1,11 @@
+### kim jong un (N/A, Wed, 4 Sep 2024 13:50:00 -0700)
+
+- **Kim Jong Un Executes Officials After Deadly Floods, Media Says**: [Link](https://www.bloomberg.com/news/articles/2024-09-04/kim-jong-un-executes-officials-after-deadly-floods-media-says)
+- **North Korea’s Kim Jong Un reportedly ordered dozens of officials executed 
+after deadly floods**: [Link](https://www.yahoo.com/news/north-korea-kim-jong-un-015918288.html)
+- **North Korea reportedly executes 30 officials in purge over flood response**: [Link](https://www.independent.co.uk/asia/southeast-asia/north-korea-kim-jong-un-executes-officials-floods-b2606762.html)
+
+
 ### vladimir poutine (N/A, Wed, 4 Sep 2024 13:40:00 -0700)
 
 - **La visite de Vladimir Poutine en Mongolie, "un pied de nez" lancé à la CPI**: [Link](https://www.france24.com/fr/europe/20240903-la-visite-de-vladimir-poutine-en-mongolie-un-pied-de-nez-lanc%C3%A9-%C3%A0-la-cpi)
