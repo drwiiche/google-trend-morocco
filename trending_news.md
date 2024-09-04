@@ -1,3 +1,17 @@
+### zeturf (N/A, Wed, 4 Sep 2024 05:00:00 -0700)
+
+- **Les pronostics Quinté du 04/09/2024 à La Capelle**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-04092024-a-la-capelle-4265448)
+- **Les 3 belles cotes des experts de ce mercredi 4 septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-3-belles-cotes-des-experts-de-ce-mercredi-4-septembre)
+- **Les pronos hippiques du mercredi 4 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mercredi-4-septembre-2024_AN-202409020976.html)
+
+
+### عز الدين أوناحي (N/A, Wed, 4 Sep 2024 04:50:00 -0700)
+
+- **أوناحي يصل اليونان ويرفض إغراء قطر**: [Link](https://www.hespress.com/%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D8%B5%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86-%D9%88%D9%8A%D8%B1%D9%81%D8%B6-%D8%A5%D8%BA%D8%B1%D8%A7%D8%A1-%D9%82%D8%B7%D8%B1-1425659.html)
+- **هذا ما قاله اوناحي بعد تعاقده مع باناتينايكوس**: [Link](https://www.almountakhab.com/node/16203890)
+- **رسميًا.. باناثينايكوس يعلن ضم أوناحي**: [Link](https://www.kooora.com/?n=1352539)
+
+
 ### turquie brics (N/A, Wed, 4 Sep 2024 04:30:00 -0700)
 
 - **La Turquie pourrait rejoindre les BRICS**: [Link](https://www.lemonde.fr/international/article/2024/09/03/la-turquie-demande-a-rejoindre-les-brics_6302520_3210.html)
