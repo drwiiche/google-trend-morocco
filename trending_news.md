@@ -1,3 +1,12 @@
+### كأس التميز (N/A, Wed, 4 Sep 2024 10:50:00 -0700)
+
+- **دوري التميز للعصبة الاحترافية ينطلق على إيقاع فضيحة مدوية**: [Link](http://ar.sport.le360.ma/maroc/158342)
+- **الكوكب المراكشي يفوز على شباب السوالم (2-1) في أولى مبارياته ضمن "كأس 
+التميز"**: [Link](https://m.elbotola.com/article/2024-09-03-21-45-912.html)
+- **✅ اتحاد طنجة يواجه السطاد المغربي.. انطلاق النسخة الأولى من كأس التميز لكرة 
+القدم يوم غد الثلاثاء**: [Link](https://tanja24.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%B3%D8%B7%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%86%D8%B7%D9%84%D8%A7/)
+
+
 ### arda güler (N/A, Wed, 4 Sep 2024 10:30:00 -0700)
 
 - **Arda Güler's Reaction Takes Over Social Media: Did the Young Talent Make a 
