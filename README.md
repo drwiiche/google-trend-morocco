@@ -1,3 +1,12 @@
+### accident avignon lamborghini (N/A, Wed, 4 Sep 2024 01:20:00 -0700)
+
+- **Avignon : un chauffard, dont le permis a été suspendu, loue une Lamborghini 
+et tue un cycliste**: [Link](https://www.lefigaro.fr/faits-divers/avignon-un-chauffard-dont-le-permis-a-ete-suspendu-loue-une-lamborghini-et-tue-un-cycliste-20240903)
+- **Vaucluse. Choc mortel avec une Lamborghini : « Une vraie vision d’horreur »**: [Link](https://www.ledauphine.com/faits-divers-justice/2024/09/01/choc-mortel-avec-une-lamborghini-une-vraie-vision-d-horreur)
+- **Avignon : un cycliste tué par une Lamborghini, le conducteur et sa 
+passagère en garde à vue**: [Link](https://www.leparisien.fr/faits-divers/avignon-une-lamborghini-tue-un-cycliste-le-conducteur-et-sa-passagere-en-garde-a-vue-02-09-2024-WHVD7XL73FF7DJYQKK7EPZZGIY.php)
+
+
 ### laurent vinatier (N/A, Wed, 4 Sep 2024 01:40:00 -0700)
 
 - **En direct, guerre en Ukraine : Laurent Vinatier, citoyen français arrêté en 
