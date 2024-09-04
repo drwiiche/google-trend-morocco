@@ -1,3 +1,18 @@
+### raja casablanca (N/A, Wed, 4 Sep 2024 11:30:00 -0700)
+
+- **Raja Casablanca : Des anciens ministres en lice pour la présidence**: [Link](https://maroc-diplomatique.net/raja-casablanca-des-anciens-ministres-en-lice-pour-la-presidence/)
+- **Présidence du Raja de Casablanca : les clarifications de Abdelkrim Benatiq**: [Link](https://www.maroc-hebdo.press.ma/presidence-raja-casablanca-clarifications-abdelkrim-benatiq)
+- **Jawad Ziyat candidat à la présidence du Raja ? Il répond**: [Link](https://www.lesiteinfo.com/sport/626253-jawad-ziyat-candidat-a-la-presidence-du-raja-il-repond.html)
+
+
+### ballon d'or 2024 (N/A, Wed, 4 Sep 2024 11:00:00 -0700)
+
+- **The date for announcing the nominees for the Golden Ball Award**: [Link](https://www.ysscores.com/en/news/3619640/The-date-for-announcing-the-nominees-for-the-Golden-Ball-Award)
+- **Inter Milan Captain Included In 30-Man Ballon D’Or Shortlist With Man City 
+& Real Madrid Superstars – Ex AC Milan Star Also On List**: [Link](https://sempreinter.com/2024/09/04/inter-lautaro-martinez-hakan-calhanoglu-ballon-dor-shortlist/)
+- **Football Ballon d’or 2024 winner leaked**: [Link](https://en.africatopsports.com/2024/09/04/ballon-dor-2024-winner-leaked/)
+
+
 ### كأس التميز (N/A, Wed, 4 Sep 2024 10:50:00 -0700)
 
 - **دوري التميز للعصبة الاحترافية ينطلق على إيقاع فضيحة مدوية**: [Link](http://ar.sport.le360.ma/maroc/158342)
