@@ -1,3 +1,12 @@
+### harry potter (N/A, Wed, 4 Sep 2024 08:40:00 -0700)
+
+- **Why You Can't Watch the Harry Potter Movies on Peacock Anymore**: [Link](https://www.cbr.com/why-did-peacock-remove-harry-potter/)
+- **‘Harry Potter’ Star Bonnie Wright Wants Ginny’s ‘Nuanced Moments’ From 
+Books Added in HBO TV Series**: [Link](https://variety.com/2024/tv/news/harry-potter-hbo-tv-series-bonnie-wright-ginny-harry-moments-1236126801/)
+- **Harry Potter star on what was missing from films and should be in series 
+remake**: [Link](https://www.radiotimes.com/tv/fantasy/harry-potter-star-missing-remake-newsupdate/)
+
+
 ### melilla (N/A, Wed, 4 Sep 2024 07:50:00 -0700)
 
 - **Tensión en la frontera entre Melilla y Marruecos**: [Link](https://melillahoy.es/tension-en-la-frontera-entre-melilla-y-marruecos/)
