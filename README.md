@@ -1,3 +1,17 @@
+### كاس التميز المغرب (N/A, Wed, 4 Sep 2024 11:10:00 -0700)
+
+- **دوري التميز للعصبة الاحترافية ينطلق على إيقاع فضيحة مدوية**: [Link](http://ar.sport.le360.ma/maroc/158342)
+- **الكوكب المراكشي يفوز على شباب السوالم (2-1) في أولى مبارياته ضمن "كأس التميز"**: [Link](https://m.elbotola.com/article/2024-09-03-21-45-912.html)
+- **نهضة بركان يعلن عن قرار جديد بشأن مشاركته في كأس التميز**: [Link](https://al3omk.com/961956.html)
+
+
+### hunter x hunter (N/A, Wed, 4 Sep 2024 09:30:00 -0700)
+
+- **The Hunter x Hunter manga is back! New chapters get release date**: [Link](https://www.oneesports.gg/anime/hunter-x-hunter-returns-with-new-chapters/)
+- **Hunter x Hunter Volume 38 Trailer Spotlights Phantom Troupe**: [Link](https://otakuusamagazine.com/hunter-x-hunter-volume-38-trailer/)
+- **Gon's Return in Hunter X Hunter Can Fix the Biggest Problem with the Series**: [Link](https://www.cbr.com/gons-return-in-hunter-x-hunter-problem-with-the-series/)
+
+
 ### raja casablanca (N/A, Wed, 4 Sep 2024 11:30:00 -0700)
 
 - **Raja Casablanca : Des anciens ministres en lice pour la présidence**: [Link](https://maroc-diplomatique.net/raja-casablanca-des-anciens-ministres-en-lice-pour-la-presidence/)
