@@ -1,3 +1,17 @@
+### cupra terramar (N/A, Wed, 4 Sep 2024 02:20:00 -0700)
+
+- **Watch out Qashqai, this is the new Cupra Terramar**: [Link](https://www.topgear.com/car-news/first-look/watch-out-qashqai-new-cupra-terramar)
+- **US-bound Cupra unveils Terramar SUV**: [Link](https://www.motorauthority.com/news/1144347_2025-cupra-terramar-revealed)
+- **New Cupra Terramar Is VW Tiguan’s Sexy Relative From Spain**: [Link](https://www.carscoops.com/2024/09/new-cupra-terramar-is-vw-tiguans-sexy-relative-from-spain/)
+
+
+### paul watson (N/A, Tue, 3 Sep 2024 22:10:00 -0700)
+
+- **Japan ex-whaler says Watson activists endangered lives**: [Link](https://www.thestandard.com.hk/breaking-news/section/6/220135/Japan-ex-whaler-says-Watson-activists-endangered-lives)
+- **Anti-whaling activist Watson set to remain behind bars in Greenland**: [Link](https://www.djournal.com/news/national/anti-whaling-activist-watson-set-to-remain-behind-bars-in-greenland/article_2258f126-b023-5038-8ecb-d68431677212.html)
+- **Greenland court to rule on extradition of anti-whaling activist Paul Watson**: [Link](https://uk.news.yahoo.com/greenland-court-rule-anti-whaling-023258997.html)
+
+
 ### accident avignon lamborghini (N/A, Wed, 4 Sep 2024 01:20:00 -0700)
 
 - **Avignon : un chauffard, dont le permis a été suspendu, loue une Lamborghini 
