@@ -1,3 +1,10 @@
+### محاكم (N/A, Wed, 4 Sep 2024 01:20:00 -0700)
+
+- **وزير العدل وهبي يفعل قرار "الأجر مقابل العمل" في وجه الموظفين المضربين**: [Link](https://www.hespress.com/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D9%8A%D9%81%D8%B9%D9%84-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%AC%D8%B1-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D9%84%D8%B9%D9%85%D9%84-1425520.html)
+- **وزارة العدل تشرع في الاقتطاع من أجور موظفيها المضربين – اليوم 24**: [Link](https://alyaoum24.com/1913341.html)
+- **مسيـرة لكتـاب الضبـط**: [Link](https://assabah.ma/797884.html)
+
+
 ### laurent chardard (N/A, Wed, 4 Sep 2024 03:50:00 -0700)
 
 - **Laurent Chardard, médaillé de bronze paralympique du 50 m papillon : « On 
