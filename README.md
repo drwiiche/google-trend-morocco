@@ -1,3 +1,13 @@
+### laurent vinatier (N/A, Wed, 4 Sep 2024 01:40:00 -0700)
+
+- **En direct, guerre en Ukraine : Laurent Vinatier, citoyen français arrêté en 
+Russie, restera en détention provisoire jusqu’au 21 février**: [Link](https://www.lemonde.fr/international/live/2024/09/03/en-direct-guerre-en-ukraine-le-directeur-general-de-l-aiea-en-route-pour-la-centrale-nucleaire-de-zaporijia_6300754_3210.html)
+- **Le condamner pour mieux l'échanger? Le procès de Laurent Vinatier s’ouvre à 
+Moscou**: [Link](https://www.letemps.ch/monde/garnir-le-fonds-d-echange-le-proces-de-laurent-vinatier-s-ouvre-a-moscou)
+- **Français arrêté en Russie : la détention provisoire de Laurent Vinatier 
+prolongée jusqu’au 21 février**: [Link](https://www.nouvelobs.com/monde/20240903.OBS93135/francais-arrete-en-russie-la-detention-provisoire-de-laurent-vinatier-prolongee-jusqu-au-21-fevrier.html)
+
+
 ### us open (N/A, Tue, 3 Sep 2024 23:20:00 -0700)
 
 - **Emma Navarro reaches her first Grand Slam at the U.S. Open with win over Paula Badosa**: [Link](https://www.npr.org/2024/09/04/g-s1-20727/emma-navarro-us-open-taylor-fritz-frances-tiafoe)
