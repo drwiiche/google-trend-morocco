@@ -1,3 +1,13 @@
+### vladimir poutine (N/A, Tue, 3 Sep 2024 18:30:00 -0700)
+
+- **En direct, guerre en Ukraine : Vladimir Poutine est en Mongolie, un pays 
+qui désormais « partage la responsabilité de ses crimes », accuse Kiev**: [Link](https://www.lemonde.fr/international/live/2024/09/03/en-direct-guerre-en-ukraine-les-dernieres-informations-et-les-reponses-a-vos-questions_6300754_3210.html)
+- **Poutine en Mongolie: que risque le président russe en visitant un pays 
+membre de la Cour pénale...**: [Link](https://www.bfmtv.com/international/asie/russie/poutine-en-mongolie-que-risque-le-president-russe-en-visitant-un-pays-membre-de-la-cour-penale-internationale_AN-202409030029.html)
+- **Russie: Vladimir Poutine en déplacement en Mongolie, première visite dans 
+un État membre de la CPI**: [Link](https://www.rfi.fr/fr/monde/20240903-russie-vladimir-poutine-en-d%C3%A9placement-en-mongolie-premi%C3%A8re-visite-dans-un-%C3%A9tat-membre-de-la-cpi)
+
+
 ### هيفاء وهبي (N/A, Tue, 3 Sep 2024 17:10:00 -0700)
 
 - **بـ"المايوه".. هيفاء تفاجئ جمهورها بـ"إطلالة جريئة" في الساحل الشمالي**: [Link](https://www.masrawy.com/arts/zoom/details/2024/9/2/2636759/%D8%A8%D9%80-%D8%A7%D9%84%D9%85%D8%A7%D9%8A%D9%88%D9%87-%D9%87%D9%8A%D9%81%D8%A7%D8%A1-%D8%AA%D9%81%D8%A7%D8%AC%D8%A6-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%87%D8%A7-%D8%A8%D9%80-%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A9-%D8%AC%D8%B1%D9%8A%D8%A6%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A)
