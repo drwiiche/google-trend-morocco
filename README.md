@@ -1,3 +1,11 @@
+### turquie brics (N/A, Wed, 4 Sep 2024 04:30:00 -0700)
+
+- **La Turquie pourrait rejoindre les BRICS**: [Link](https://www.lemonde.fr/international/article/2024/09/03/la-turquie-demande-a-rejoindre-les-brics_6302520_3210.html)
+- **La Turquie veut adhérer aux Brics, le bloc des pays émergents**: [Link](https://www.nouvelobs.com/monde/20240903.OBS93143/la-turquie-veut-adherer-aux-brics-le-bloc-des-pays-emergents.html)
+- **La Turquie propose de rejoindre les BRICS dans le but de construire des 
+alliances au-delà de l'Occident**: [Link](https://www.i24news.tv/fr/actu/international/artc-la-turquie-propose-de-rejoindre-les-brics-dans-le-but-de-construire-des-alliances-au-dela-de-l-occident)
+
+
 ### محاكم (N/A, Wed, 4 Sep 2024 01:20:00 -0700)
 
 - **وزير العدل وهبي يفعل قرار "الأجر مقابل العمل" في وجه الموظفين المضربين**: [Link](https://www.hespress.com/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D9%8A%D9%81%D8%B9%D9%84-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%AC%D8%B1-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D9%84%D8%B9%D9%85%D9%84-1425520.html)
