@@ -1,3 +1,17 @@
+### arda güler (N/A, Wed, 4 Sep 2024 10:30:00 -0700)
+
+- **Arda Güler's Reaction Takes Over Social Media: Did the Young Talent Make a 
+Mistake?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/arda-g%C3%BCler-s-reaction-takes-over-social-media-did-the-young-talent-make-a-mistake-2024-09-02)
+- **Guler throws wobbler as Real Madrid defeat Betis**: [Link](https://www.tribalfootball.com/article/soccer-laliga-guler-throws-wobbler-as-real-madrid-defeat-betis-9db1424b-d0c7-491c-b11c-cdb7f6029d0b)
+- **Real Madrid’s victory overshadowed by focus on Arda Guler’s post-match 
+behavior**: [Link](https://www.turkiyetoday.com/sports/real-madrids-victory-overshadowed-by-focus-on-arda-gulers-post-match-ehavior-48510/)
+
+
+### بارالمبياد 2024 تنس الكراسي المتحركة (N/A, Wed, 4 Sep 2024 08:10:00 -0700)
+
+
+
+
 ### tanzanie – éthiopie (N/A, Wed, 4 Sep 2024 08:50:00 -0700)
 
 - **Éliminatoires CAN 2025: six journées de qualifications en deux mois, la 
