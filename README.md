@@ -1,3 +1,12 @@
+### casemiro (N/A, Wed, 4 Sep 2024 13:20:00 -0700)
+
+- **Manchester United: Casemiro's wife hits back after criticism**: [Link](https://www.bbc.com/sport/football/articles/cdxlp5jke9yo)
+- **Bruno Fernandes is 'fully aware Man Utd aren't ready' for Premier League 
+title challenge and defends under-fire Casemiro after horrific display 
+against Liverpool**: [Link](https://www.goal.com/en-in/lists/bruno-fernandes-man-utd-win-premier-league-defends-casemiro-horrific-display-liverpool/blt69c1e4bfe7c2f357)
+- **Rio Ferdinand left looking foolish after calling out wrong Jamie Carragher**: [Link](https://www.liverpool.com/liverpool-fc-news/features/rio-ferdinand-wrong-jamie-carragher-29856579)
+
+
 ### programme tv (N/A, Wed, 4 Sep 2024 12:20:00 -0700)
 
 - **EXCLUSIF. Édouard Philippe : « Je serai candidat à la prochaine élection 
