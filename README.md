@@ -1,3 +1,10 @@
+### resultat quinte (N/A, Wed, 4 Sep 2024 05:10:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 10 Marzouk**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-10-marzouk-125471.html)
+- **ParisLongchamp Prix du Bois de Boulogne**: [Link](https://www.paris-turf.com/course/parislongchamp-prix-du-bois-de-boulogne-idc-e0ffc3889bb8f5a5f98a4fea9c2d0172)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 9 Robinie**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-9-robinie-125456.html)
+
+
 ### zeturf (N/A, Wed, 4 Sep 2024 05:00:00 -0700)
 
 - **Les pronostics Quinté du 04/09/2024 à La Capelle**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-04092024-a-la-capelle-4265448)
