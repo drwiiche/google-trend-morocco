@@ -1,3 +1,10 @@
+### us open (N/A, Tue, 3 Sep 2024 23:20:00 -0700)
+
+- **Emma Navarro reaches her first Grand Slam at the U.S. Open with win over Paula Badosa**: [Link](https://www.npr.org/2024/09/04/g-s1-20727/emma-navarro-us-open-taylor-fritz-frances-tiafoe)
+- **Tiafoe advances to all-American SF vs. Fritz after Dimitrov retires**: [Link](https://www.atptour.com/en/news/dimitrov-tiafoe-us-open-2024-qf)
+- **Tiafoe, Fritz and Navarro boost home hopes of US Open title sweep**: [Link](https://www.wataugademocrat.com/news/national/tiafoe-fritz-and-navarro-boost-home-hopes-of-us-open-title-sweep/article_00c3ad61-a466-5612-8915-f52110770b5b.html)
+
+
 ### victor osimhen galatasaray (N/A, Tue, 3 Sep 2024 23:30:00 -0700)
 
 - **Victor Osimhen spending a prime year at Galatasaray is a huge waste of one 
