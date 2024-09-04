@@ -1,3 +1,20 @@
+### laurent chardard (N/A, Wed, 4 Sep 2024 03:50:00 -0700)
+
+- **Laurent Chardard, médaillé de bronze paralympique du 50 m papillon : « On 
+ne croise pas tous les jours un gars qui s’est fait attaquer par un requin »**: [Link](https://www.lemonde.fr/sport/article/2024/09/03/laurent-chardard-medaille-de-bronze-paralympique-du-50-m-papillon-on-ne-croise-pas-tous-les-jours-un-gars-qui-s-est-fait-attaquer-par-un-requin_6302632_3243.html)
+- **Jeux paralympiques : nouvelle médaille pour un licencié girondin !**: [Link](https://www.arlradio.fr/jeux-paralympiques-nouvelle-medaille-pour-la-gironde)
+- **Laurent Chardard, natation : « Un requin m’a pris un bras et une jambe »**: [Link](https://www.parismatch.com/actu/sport/laurent-chardard-natation-un-requin-ma-pris-un-bras-et-une-jambe-241095)
+
+
+### beni mellal (N/A, Wed, 4 Sep 2024 03:40:00 -0700)
+
+- **Rétablissement de l’eau potable à Beni Mellal après résolution des 
+problèmes liés aux inondations**: [Link](https://mobile.telquel.ma/instant-t/2024/09/03/retablissement-de-leau-potable-a-beni-mellal-apres-resolution-des-problemes-lies-aux-inondations_1891642/)
+- **Béni Mellal : la distribution de l’eau rétablie après des perturbations**: [Link](https://lematin.ma/regions/beni-mellal-la-distribution-de-leau-retablie-apres-des-perturbations/241426)
+- **Conservation des ressources en eau et en sols. Un schéma directeur régional 
+en projet à Béni Mellal-Khénifra**: [Link](https://leseco.ma/maroc/conservation-des-ressources-en-eau-et-en-sols-un-schema-directeur-regional-en-projet-a-beni-mellal-khenifra.html)
+
+
 ### cupra terramar (N/A, Wed, 4 Sep 2024 02:20:00 -0700)
 
 - **Watch out Qashqai, this is the new Cupra Terramar**: [Link](https://www.topgear.com/car-news/first-look/watch-out-qashqai-new-cupra-terramar)
