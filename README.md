@@ -1,3 +1,12 @@
+### tanzanie – éthiopie (N/A, Wed, 4 Sep 2024 08:50:00 -0700)
+
+- **Éliminatoires CAN 2025: six journées de qualifications en deux mois, la 
+voie express pour le Maroc**: [Link](https://www.rfi.fr/fr/afrique-foot/20240903-%C3%A9liminatoires-can-2025-six-journ%C3%A9es-de-qualifications-en-deux-mois-la-voie-express-pour-le-maroc)
+- **Début des éliminatoires de la Coupe d'Afrique des Nations CAF TotalEnergies 
+Maroc 2025**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/debut-des-eliminatoires-de-la-coupe-dafrique-des-nations-caf-totalenergies-maroc-2025/)
+- **CAN 2025 au Maroc: stades, dates clés… tout ce qu’il faut savoir**: [Link](https://www.h24info.ma/can-2025-au-maroc-stades-dates-cles-tout-ce-quil-faut-savoir/)
+
+
 ### harry potter (N/A, Wed, 4 Sep 2024 08:40:00 -0700)
 
 - **Why You Can't Watch the Harry Potter Movies on Peacock Anymore**: [Link](https://www.cbr.com/why-did-peacock-remove-harry-potter/)
