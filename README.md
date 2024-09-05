@@ -1,3 +1,13 @@
+### premier ministre emmanuel macron (N/A, Wed, 4 Sep 2024 23:00:00 -0700)
+
+- **DIRECT. Le nom du nouveau Premier ministre ne sera pas annoncé ce mercredi 
+soir**: [Link](https://www.bfmtv.com/politique/gouvernement/direct-nouveau-premier-ministre-macron-poursuit-ses-consultations-bertrand-et-cazeneuve-tiennent-la-corde_LN-202409040046.html)
+- **En direct, nouveau premier ministre : après l’échec des « consultations » 
+mardi, Emmanuel Macron toujours à la recherche d’une solution politique**: [Link](https://www.lemonde.fr/politique/live/2024/09/04/en-direct-nouveau-premier-ministre-apres-l-echec-des-consultations-mardi-emmanuel-macron-toujours-a-la-recherche-d-une-solution-politique_6303420_823448.html)
+- **«Aucune des options qui tournent ne convient»: dans l’impasse, Macron 
+cherche de nouveaux noms pour Matignon**: [Link](https://www.lefigaro.fr/politique/aucune-des-options-qui-tournent-ne-convient-dans-l-impasse-macron-cherche-de-nouveaux-noms-pour-matignon-20240904)
+
+
 ### force athlétique jeux paralympiques (N/A, Wed, 4 Sep 2024 16:10:00 -0700)
 
 - **Jeux paralympiques 2024: Adou Hervé Ano, l’Ivoirien porté par une force 
