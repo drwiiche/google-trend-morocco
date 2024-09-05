@@ -1,3 +1,18 @@
+### rich homie quan (N/A, Thu, 5 Sep 2024 12:30:00 -0700)
+
+- **Rich Homie Quan Dead At 34**: [Link](https://www.tmz.com/2024/09/05/rich-homie-quan-dead/)
+- **Rapper Rich Homie Quan dead at 34**: [Link](https://pagesix.com/2024/09/05/celebrity-news/rapper-rich-homie-quan-dead-at-34/)
+- **Rapper Rich Homie Quan dead at 34: Tributes pour in to musician after shock passing in Atlanta**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-13818427/rich-homie-quan-dead-passes-away-drug-overdose.html)
+
+
+### ميشيل بارنييه (N/A, Thu, 5 Sep 2024 11:30:00 -0700)
+
+- **بارنييه يتعهد للفرنسيين بالاحترام والوحدة**: [Link](https://www.hespress.com/%D8%A8%D8%A7%D8%B1%D9%86%D9%8A%D9%8A%D9%87-%D9%8A%D8%AA%D8%B9%D9%87%D8%AF-%D9%84%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85-%D9%88%D8%A7-1426720.html)
+- **هل تدخل فرنسا في أزمة داخلية بعد اختيار بارنييه رئيسا للوزراء؟**: [Link](https://www.aljazeera.net/politics/2024/9/5/%D9%87%D9%84-%D8%AA%D8%AF%D8%AE%D9%84-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%81%D9%8A-%D8%A3%D8%B2%D9%85%D8%A9-%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1)
+- **ماكرون يعين ميشال بارنيي رئيسا للوزراء وميلونشون يتهمه بسرقة نتائج 
+الانتخابات – اليوم 24**: [Link](https://alyaoum24.com/1913542.html)
+
+
 ### tunisie – madagascar (N/A, Thu, 5 Sep 2024 11:50:00 -0700)
 
 
