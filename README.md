@@ -1,3 +1,11 @@
+### azzedine ounahi (N/A, Wed, 4 Sep 2024 22:40:00 -0700)
+
+- **Vivement critiqué pour son choix du Panathinaïkos, Azzedine Ounahi 
+s'explique**: [Link](https://fr.hespress.com/384719-vivement-critique-pour-son-choix-du-panathinaikos-azzedine-ounahi-sexplique.html)
+- **OM : Azzedine Ounahi explique son départ du club**: [Link](https://www.footmercato.net/a7672473791597754188-om-azzedine-ounahi-explique-son-depart-du-club)
+- **Les premiers mots de Azzedine Ounahi au Panathinaikos**: [Link](https://sport.le360.ma/football/les-premiers-mots-de-azzedine-ounahi-au-panathinaikos-114195)
+
+
 ### عيد المولد النبوي (N/A, Thu, 5 Sep 2024 00:40:00 -0700)
 
 - **ذكرى المولد النبوي 16 شتنبر بالمغرب**: [Link](https://www.hespress.com/%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D9%85%D9%88%D9%84%D8%AF-%D8%A7%D9%84%D9%86%D8%A8%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-16-%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-1425666.html)
