@@ -1,3 +1,17 @@
+### algerie foot (N/A, Thu, 5 Sep 2024 11:30:00 -0700)
+
+- **Angleterre : à peine arrivé à Hull City, Belloumi fait déjà le buzz !**: [Link](https://fennecfootball.com/angleterre-a-peine-arrive-a-hull-city-bachir-belloumi-fait-deja-parler-de-lui/)
+- **Surprise totale : Bachir Belloumi rejoint un club inattendu ! (Officiel)**: [Link](https://fennecfootball.com/surprise-totale-bachir-belloumi-rejoint-un-club-inattendu-officiel/)
+- **Après avoir signé en Angleterre, Bachir Belloumi débarque à Paris !**: [Link](https://fennecfootball.com/apres-avoir-signe-en-angleterre-bachir-belloumi-debarque-a-paris/)
+
+
+### مباراة المغرب (N/A, Thu, 5 Sep 2024 11:30:00 -0700)
+
+- **الركراكي يتخذ قراره بشأن ثنائي المغرب**: [Link](https://www.kooora.com/?n=1352708)
+- **الركراكي: أنا محظوظ بإمتلاك حكيمي ومزراوي وقد أغير مركزهما**: [Link](https://www.almountakhab.com/node/16203947)
+- **"الأسود" يرفعون وتيرة التحضير للغابون**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B1%D9%81%D8%B9-%D9%88%D8%AA%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D9%84-1426306.html)
+
+
 ### algérie – guinée équatoriale (N/A, Thu, 5 Sep 2024 11:20:00 -0700)
 
 - **À quelle heure et sur quelle chaîne regarder Algérie - Guinée Equatoriale ?**: [Link](https://www.20minutes.fr/guide-achat/4108324-20240905-algerie-guinee-equatoriale-heure-chaine-regarder-match-jeudi)
