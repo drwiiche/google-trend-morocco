@@ -1,3 +1,22 @@
+### الأرجنتين ضد تشيلي (N/A, Thu, 5 Sep 2024 16:20:00 -0700)
+
+- **موعد مباراة الأرجنتين وتشيلي في تصفيات كأس العالم 2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1352633)
+- **تشكيلة تشيلي الرسمية أمام الأرجنتين**: [Link](https://hihi2.com/2024/09/06/p2834950.html)
+- **المنتخب الأرجنتيني يعدّ العدّة لمواجهة تشيلي في غياب ميسي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A-%D9%8A%D8%B9%D8%AF-%D8%A7%D9%84%D8%B9%D8%AF-%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D9%8A-%D9%81%D9%8A-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%85%D9%8A%D8%B3%D9%8A-2024-09-04)
+
+
+### argentina vs chile (N/A, Thu, 5 Sep 2024 16:20:00 -0700)
+
+- **Canales TV para ver Argentina vs. Chile GRATIS por fecha 7 de las Eliminatorias 2026**: [Link](https://gestion.pe/mix/sports/que-canal-transmite-argentina-vs-chile-por-eliminatorias-2026-mexico-usa-y-espana-nnda-nnrt-noticia/)
+- **Argentina se pone a prueba sin Messi y Di María en el premundial; Suárez dice adiós en Uruguay**: [Link](https://www.france24.com/es/minuto-a-minuto/20240905-argentina-se-pone-a-prueba-sin-messi-y-di-mar%C3%ADa-en-el-premundial-su%C3%A1rez-dice-adi%C3%B3s-en-uruguay)
+- **A defender el invicto: los números de la Scaloneta en el Monumental**: [Link](https://www.ole.com.ar/seleccion/argentina-invicto-monumental-scaloneta-river-estadio_0_D9RK0opxSN.html)
+
+
+### بارالمبياد رفع الأثقال (N/A, Thu, 5 Sep 2024 16:20:00 -0700)
+
+
+
+
 ### argentine – chili (N/A, Thu, 5 Sep 2024 16:10:00 -0700)
 
 - **L’Argentine va rendre hommage à Angel Di Maria**: [Link](https://www.footmercato.net/a2441983102582530954-largentine-va-rendre-hommage-a-angel-di-maria)
