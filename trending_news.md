@@ -1,3 +1,22 @@
+### زلزال الحوز (N/A, Thu, 5 Sep 2024 15:20:00 -0700)
+
+- **تعزيز البنيات التحتية الطرقية بعد زلزال الحوز، رهان ناجح في شيشاوة**: [Link](https://ar.hibapress.com/details-548531.html)
+- **ربورتاج: الذكرى السنوية للفاجعة.. شاهد فرحة متضررين من الزلزال بعد انتقالهم 
+إلى منازلهم الجديدة بإقليم تارودانت**: [Link](https://ar.le360.ma/societe/KZZIGNSP5REGLCSJ3RRE2RITBQ/)
+- **هل يفاقم إرجاء افتتاح أزيد من ألف مؤسسة تعليمية الهدر المدرسي بمناطق 
+الزلزال؟**: [Link](https://www.hespress.com/%D9%87%D9%84-%D9%8A%D9%81%D8%A7%D9%82%D9%85-%D8%A5%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A3%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-%D8%A3%D9%84%D9%81-%D9%85%D8%A4%D8%B3%D8%B3%D8%A9-1425463.html)
+
+
+### morata (N/A, Thu, 5 Sep 2024 14:50:00 -0700)
+
+- **Alvaro Morata had on-pitch argument with wife Alice Campello after Euro 
+2024 victory over England just weeks before 'painful' split**: [Link](https://www.goal.com/en-us/lists/alvaro-morata-argument-wife-alice-campello-euro-2024-victory-england-split/blte2fc22e924a9f7c1)
+- **Football star splits from wife after row during England and Spain Euro 2024 
+final**: [Link](https://www.gbnews.com/sport/football/alvaro-morata-wife-divorce-spain-euro-2024)
+- **Revealed: Spain captain Alvaro Morata's divorce from wife Alice 'was caused 
+by an argument ON THE PITCH after**: [Link](https://www.dailymail.co.uk/sport/football/article-13808259/Spain-Alvaro-Morata-divorce-England-Euro-2024.html)
+
+
 ### نتائج مباريات اليوم (N/A, Thu, 5 Sep 2024 14:40:00 -0700)
 
 - **هذه نتائج مباريات اليوم في كأس التميز**: [Link](https://www.hespress.com/%D9%87%D8%B0%D9%87-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-1426271.html)
