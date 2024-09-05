@@ -1,3 +1,12 @@
+### force athlétique jeux paralympiques (N/A, Wed, 4 Sep 2024 16:10:00 -0700)
+
+- **Jeux paralympiques 2024: Adou Hervé Ano, l’Ivoirien porté par une force 
+intérieure**: [Link](https://www.rfi.fr/fr/afrique/20240904-jeux-paralympiques-2024-adou-herv%C3%A9-ano-l-ivoirien-port%C3%A9-par-une-force-int%C3%A9rieure)
+- **Jeux de Paris 2024 : Tidjane Thiam rend visite à la délégation ivoirienne 
+paralympique**: [Link](https://sports.abidjan.net/actualites/734023/jeux-de-paris-2024-tidjane-thiam-rend-visite-a-la-delegation-ivoirienne-paralympique)
+- **Jeux Paralympiques : un record national établi par l'Ivoirien Ye Kah à Paris**: [Link](https://sports.abidjan.net/actualites/734046/jeux-paralympiques-un-record-national-etabli-par-l-ivoirien-ye-kah-a-paris)
+
+
 ### us open (N/A, Wed, 4 Sep 2024 21:10:00 -0700)
 
 - **Draper: 'I've had times when I've thought I'm not cut out for this sport'**: [Link](https://www.atptour.com/en/news/draper-us-open-2024-qf-reaction)
