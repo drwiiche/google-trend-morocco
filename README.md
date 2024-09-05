@@ -1,3 +1,38 @@
+### jordan vs kuwait (N/A, Thu, 5 Sep 2024 13:00:00 -0700)
+
+- **Sellami: No time to waste in Jordan's World Cup quest**: [Link](https://www.fifa.com/en/articles/jamal-sellami-jordan-interview)
+- **Kuwait wraps up training camp in Dubai**: [Link](https://www.arabtimesonline.com/news/kuwait-wraps-up-training-camp-in-dubai/)
+- **Summary: Jordan 1-1 Kuwait in 2026 World Cup AFC Qualifiers**: [Link](https://www.vavel.com/en-us/soccer/2024/09/05/1195021-jordan-vs-kuwait-live-score-updates-stream-info-and-how-to-watch-2026-world-cup-afc-qualifiers-match.html)
+
+
+### spain (N/A, Thu, 5 Sep 2024 13:00:00 -0700)
+
+- **Luis de la Fuente Hits Back at Vinícius Jr.'s Comments About Spain**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/luis-de-la-fuente-hits-back-at-vin%C3%ADcius-jr-s-comments-about-spain-2024-09-04)
+- **'Spain is not racist' - Dani Carvajal responds to Real Madrid team-mate 
+Vinícius Jr's World Cup 2030 call**: [Link](https://www.goal.com/en-sg/lists/dani-carvajal-real-madrid-vinicius-jr-world-cup-2030-call/blt9328c3d7b5a7d90f)
+- **Madrid Mayor Almeida To Vinicius: "I ask you to rectify. You have to 
+rectify, apologize."**: [Link](https://www.managingmadrid.com/2024/9/4/24235766/madrid-mayor-almeida-to-vinicius-i-ask-you-to-rectify-you-have-to-rectify-apologize)
+
+
+### ronaldo (N/A, Thu, 5 Sep 2024 12:30:00 -0700)
+
+- **Cristiano Ronaldo scores 900th career goal with strike against Croatia in 
+UEFA Nations League**: [Link](https://www.tntsports.co.uk/football/cristiano-ronaldo-900th-goal-portugal-croatia_sto20034855/story.shtml)
+- **The 3 players in football history to have scored more goals than Messi & 
+Ronaldo**: [Link](https://www.planetfootball.com/stats-tables/lionel-messi-cristiano-ronaldo-goalscoring-history-records-three-players-scored-more)
+- **Video: Cristiano Ronaldo scores for Portugal vs Croatia to reach 900 career 
+goals**: [Link](https://bolavip.com/en/soccer/video-cristiano-ronaldo-scores-for-portugal-vs-croatia-to-reach-900-career-goals)
+
+
+### uefa nations league (N/A, Thu, 5 Sep 2024 12:00:00 -0700)
+
+- **How to watch today's Scotland vs Poland Nations League game: Live stream, 
+TV channel, and start time**: [Link](https://www.goal.com/en-gb/news/how-to-watch-today-s-scotland-vs-poland-nations-league-game-live-stream-tv-channel-start-time/blt2ac5407271c80c9b)
+- **UEFA Nations League Matchday 1: What to look out for**: [Link](https://www.uefa.com/uefanationsleague/news/0291-1bc250cebe09-a9f56c1ff887-1000--uefa-nations-league-matchday-1-what-to-look-out-for/)
+- **Nations League Free Bets, Odds & Betting Offers - Claim Over £750 in Free 
+Bets**: [Link](https://bookies.com/uk/news/uefa-nations-league-free-bets-betting-offers-odds-best-new-customer-offers-2024)
+
+
 ### bet 365 (N/A, Thu, 5 Sep 2024 12:40:00 -0700)
 
 - **Bet365 promo: $200 in bonus bets OR a First Bet Safety Net**: [Link](https://www.cbssports.com/betting/news/bet365-promo-200-in-bonus-bets-or-a-first-bet-safety-net/)
