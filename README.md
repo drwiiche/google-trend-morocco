@@ -1,3 +1,36 @@
+### الجزائر (N/A, Thu, 5 Sep 2024 13:20:00 -0700)
+
+- **انتخابات الجزائر.. إقبال كبير على التصويت للجالية في الخارج**: [Link](https://www.skynewsarabia.com/middle-east/1739799-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D8%A7%D9%95%D9%82%D8%A8%D8%A7%D9%84-%D9%83%D8%A8%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D8%B5%D9%88%D9%8A%D8%AA-%D9%84%D9%84%D8%AC%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC)
+- **الجزائر.. شخصيات سياسية تدعو للتصويت في الانتخابات بـ"ورقة بيضاء"**: [Link](https://ar.hibapress.com/details-547948.html)
+- **مرشح رئاسيات الجزائر يوسف أوشيش للجزيرة نت: أتطلع إلى الحفاظ على حياد الجيش 
+وهذه تعهداتي**: [Link](https://www.aljazeera.net/politics/2024/9/4/%D9%85%D8%B1%D8%B4%D8%AD-%D8%B1%D8%A6%D8%A7%D8%B3%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D9%88%D8%B3%D9%81-%D8%A3%D9%88%D8%B4%D9%8A%D8%B4)
+
+
+### المنتخب المغربي (N/A, Thu, 5 Sep 2024 13:20:00 -0700)
+
+- **كاس العالم لكرة القدم سيدات لاقل من 20سنة ‎المنتخب المغربي ينهزم امام منتخب 
+الولايات المتحدة الأمريكية**: [Link](https://frmf.ma/%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-20%D8%B3/)
+- **"لبؤات U20" يخسرن بهدفين للاشيء**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-u20-%D9%8A%D8%AE%D8%B3%D8%B1%D9%86-%D8%A8%D9%87%D8%AF%D9%81%D9%8A%D9%86-%D9%84%D9%84%D8%A7%D8%B4%D9%8A%D8%A1-1426360.html)
+- **شابات المغرب يخسرن من أمريكا في كأس العالم**: [Link](https://www.kooora.com/?n=1352761)
+
+
+### modric (N/A, Thu, 5 Sep 2024 13:20:00 -0700)
+
+- **Differing reactions mark closing stages of Luka Modric’s and Ronaldo’s 
+careers**: [Link](https://www.theguardian.com/football/article/2024/sep/05/luka-modric-cristiano-ronaldo-croatia-portugal-nations-league)
+- **Uncomfortable truth surrounding Ronaldo and Modric as legendary duo face off**: [Link](https://www.mirror.co.uk/sport/football/news/cristiano-ronaldo-portugal-croatia-modric-33596685)
+- **Modric names Portugal player he likes apart from Ronaldo**: [Link](https://dailypost.ng/2024/09/05/modric-names-portugal-player-he-likes-apart-from-ronaldo/)
+
+
+### algerie (N/A, Thu, 5 Sep 2024 13:00:00 -0700)
+
+- **Présidentielle en Algérie: Un candidat fait son chantage au Maroc pour une 
+reprise des relations diplomatiques**: [Link](https://fr.hespress.com/384545-presidentielle-en-algerie-un-candidat-fait-son-chantage-au-maroc-pour-une-reprise-des-relations-diplomatiques.html)
+- **«Si le peuple venait à m’élire…»**: [Link](https://www.lexpressiondz.com/nationale/si-le-peuple-venait-a-m-elire-385409)
+- **Il a sillonné hier les wilayas de Bordj Bou Arréridj, Sétif et Biskra : 
+Hassani Cherif plaide pour la «libération du commerce**: [Link](https://elwatan-dz.com/il-a-sillonne-hier-les-wilayas-de-bordj-bou-arreridj-setif-et-biskra-hassani-cherif-plaide-pour-la-liberation-du-commerce)
+
+
 ### jordan vs kuwait (N/A, Thu, 5 Sep 2024 13:00:00 -0700)
 
 - **Sellami: No time to waste in Jordan's World Cup quest**: [Link](https://www.fifa.com/en/articles/jamal-sellami-jordan-interview)
