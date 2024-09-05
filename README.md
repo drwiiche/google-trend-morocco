@@ -1,3 +1,11 @@
+### maroc vs gabon (N/A, Thu, 5 Sep 2024 07:20:00 -0700)
+
+- **Morocco vs Gabon Predictions: Morocco to Take Control in the First Half and 
+Win Comfortably**: [Link](https://www.goal.com/en-gh/betting/morocco-vs-gabon-predictions-06-09-24/bltd6fea3e0a063f853)
+- **Pre-Match Conference for Morocco AFCON Qualifier Game To Take Place Thursday**: [Link](https://www.moroccoworldnews.com/2024/09/364930/pre-match-conference-for-morocco-afcon-qualifier-game-to-take-place-thursday)
+- **Preview: Morocco vs. Gabon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/morocco/africa-cup-of-nations/preview/preview-morocco-vs-gabon-prediction-team-news-lineups_552166.html)
+
+
 ### match maroc gabon (N/A, Thu, 5 Sep 2024 07:30:00 -0700)
 
 - **Maroc-Gabon: Les Lions de l’Atlas s'envolent pour Agadir**: [Link](https://sport.le360.ma/maroc/maroc-gabon-les-lions-de-latlas-senvolent-pour-agadir-114207)
