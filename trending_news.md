@@ -1,3 +1,11 @@
+### gisele pelicot (N/A, Thu, 5 Sep 2024 14:50:00 -0700)
+
+- **Woman describes horror of learning husband drugged her so others could rape 
+her**: [Link](https://www.bbc.com/news/articles/cd9dwxexp77o)
+- **Husband on trial ‘for drugging wife and inviting 80 men to rape her’**: [Link](https://www.thetimes.com/world/europe/article/husband-on-trial-for-drugging-wife-and-inviting-80-men-to-rape-her-0fvpmgb95)
+- **France Confronts Horror of Rape and Drugging Case as 51 Men Go on Trial**: [Link](https://www.nytimes.com/2024/09/02/world/europe/france-husband-rape-drug-trial-mazan.html)
+
+
 ### زلزال الحوز (N/A, Thu, 5 Sep 2024 15:20:00 -0700)
 
 - **تعزيز البنيات التحتية الطرقية بعد زلزال الحوز، رهان ناجح في شيشاوة**: [Link](https://ar.hibapress.com/details-548531.html)
