@@ -1,3 +1,10 @@
+### maroc foot (N/A, Thu, 5 Sep 2024 10:20:00 -0700)
+
+- **Botola Pro: Mercato ou Moroccoto?**: [Link](https://sport.le360.ma/botola-pro-1/botola-pro-mercato-ou-moroccoto-114206)
+- **Botola : Le Raja s'incline à domicile face à la RS Berkane**: [Link](https://lematin.ma/sports/botola-le-raja-sincline-a-domicile-face-a-la-renaissance-de-berkane/241072)
+- **Football : Lekjaa provoque une énorme grève au Maroc !**: [Link](https://fennecfootball.com/fouzi-lekjaa-suscite-un-boycott-du-football-au-maroc/)
+
+
 ### ghana – angola (N/A, Thu, 5 Sep 2024 09:30:00 -0700)
 
 - **LIVESTREAMING: Ghana vs Angola (2025 AFCON qualifiers)**: [Link](https://www.ghanaweb.com/GhanaHomePage/NewsArchive/LIVESTREAMING-Ghana-vs-Angola-2025-AFCON-qualifiers-1949295)
