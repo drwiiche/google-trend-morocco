@@ -1,3 +1,10 @@
+### éliminatoires de la can (N/A, Thu, 5 Sep 2024 06:50:00 -0700)
+
+- **CAN 2025: Calendrier, résultats, et classements des éliminatoires**: [Link](https://www.rfi.fr/fr/afrique-foot/20240904-can-2025-calendrier-r%C3%A9sultats-et-classements-des-%C3%A9liminatoires)
+- **Début des éliminatoires de la Coupe d'Afrique des Nations CAF TotalEnergies Maroc 2025**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/debut-des-eliminatoires-de-la-coupe-dafrique-des-nations-caf-totalenergies-maroc-2025/)
+- **CAN 2025 au Maroc: stades, dates clés… tout ce qu’il faut savoir**: [Link](https://www.h24info.ma/can-2025-au-maroc-stades-dates-cles-tout-ce-quil-faut-savoir/)
+
+
 ### premier ministre france (N/A, Thu, 5 Sep 2024 05:30:00 -0700)
 
 
