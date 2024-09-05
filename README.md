@@ -1,3 +1,10 @@
+### ghana – angola (N/A, Thu, 5 Sep 2024 09:30:00 -0700)
+
+- **LIVESTREAMING: Ghana vs Angola (2025 AFCON qualifiers)**: [Link](https://www.ghanaweb.com/GhanaHomePage/NewsArchive/LIVESTREAMING-Ghana-vs-Angola-2025-AFCON-qualifiers-1949295)
+- **Preview: Ghana vs. Angola - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ghana/africa-cup-of-nations/preview/preview-ghana-vs-angola-prediction-team-news-lineups_552098.html)
+- **Ghana vs Angola Prediction and Betting Tips | September 6th 2024**: [Link](https://www.sportskeeda.com/football/ghana-vs-angola-prediction-betting-tips-september-6th-2024)
+
+
 ### resultat quinte (N/A, Thu, 5 Sep 2024 09:10:00 -0700)
 
 - **Tiercé. Les pronostics de «L'Alsace» pour jeudi 5 septembre - Prix de la 
