@@ -1,3 +1,11 @@
+### الخبزة العجيبة (N/A, Thu, 5 Sep 2024 10:40:00 -0700)
+
+- **"الخبزة العجيبة" ترسل 35 شخصا للمستعجلات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AE%D8%A8%D8%B2%D8%A9-%D8%A7%D9%84%D8%B9%D8%AC%D9%8A%D8%A8%D8%A9-%D8%AA%D8%B1%D8%B3%D9%84-35-%D8%B4%D8%AE%D8%B5%D8%A7-%D9%84%D9%84%D9%85%D8%B3%D8%AA%D8%B9%D8%AC%D9%84%D8%A7%D8%AA-1426558.html)
+- **« الخبزة العجيبة » تتسبب في تسمم 35 شخصا بالدار البيضاء (+فيديو) – اليوم 24**: [Link](https://alyaoum24.com/1913558.html)
+- **الخبزة العجيبة ترسل أكثر من 30 شخصاً إلى المستعجلات وعائلاتهم في حالة 
+هيستيرية**: [Link](https://www.akhbarona.com/videos/391628.html)
+
+
 ### ligue des nations (N/A, Thu, 5 Sep 2024 09:50:00 -0700)
 
 - **Ligue des nations | Équipe de France : Avec son début de saison canon, 
