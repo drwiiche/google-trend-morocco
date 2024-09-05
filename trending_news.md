@@ -1,3 +1,31 @@
+### algérie – guinée équatoriale (N/A, Thu, 5 Sep 2024 11:20:00 -0700)
+
+- **À quelle heure et sur quelle chaîne regarder Algérie - Guinée Equatoriale ?**: [Link](https://www.20minutes.fr/guide-achat/4108324-20240905-algerie-guinee-equatoriale-heure-chaine-regarder-match-jeudi)
+- **Algérie : mais que se passe-t-il avec Farès Chaïbi ?**: [Link](https://www.footmercato.net/a3296169150078961943-algerie-mais-que-se-passe-t-il-avec-fares-chaibi)
+- **Algérie - Guinée équatoriale : Où voir le match ?**: [Link](https://www.dzfoot.com/equipes-nationales/algerie-guinee-equatoriale-ou-voir-le-match-264179.html)
+
+
+### serbia - españa (N/A, Thu, 5 Sep 2024 11:20:00 -0700)
+
+- **Serbia - España, en directo: Nations League hoy, en vivo**: [Link](https://as.com/futbol/seleccion/serbia-espana-en-directo-nations-league-hoy-en-vivo-n/)
+- **Serbia - España, en directo | UEFA Nations League de fútbol**: [Link](https://www.mundodeportivo.com/seleccion-espanola/20240905/1002310622/serbia-espana-directo-uefa-nations-league-futbol.html)
+- **Serbia - España en directo | Nations League hoy en vivo**: [Link](https://www.marca.com/futbol/uefa-nations-league/serbia-espana/2024/09/05/01_0195_20240905_364_118-directo.html)
+
+
+### الأردن ضد الكويت (N/A, Thu, 5 Sep 2024 11:20:00 -0700)
+
+- **موعد مباراة الأردن ضد الكويت في تصفيات كأس العالم والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/9/3/kuwait-jordan)
+- **الأردن يتطلع إلى المونديال مع السلامي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%8A%D8%AA%D8%B7%D9%84%D8%B9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B3-1425966.html)
+- **يعترف بالكفاءة والجاهزية فقط ..سلامي يفاجئ الجميع ويبعد 8 لاعبين عن منتخب الأردن في تصفيات المونديال**: [Link](http://ar.sport.le360.ma/foot/158405)
+
+
+### nations league (N/A, Thu, 5 Sep 2024 11:00:00 -0700)
+
+- **How to watch today's Portugal vs Croatia Nations league game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-portugal-vs-croatia-nations-league-game-live-stream-tv-channel-start-time/bltb6bd5380c3bd3622)
+- **Nations League Tips: Nine bets for nine games on Thursday**: [Link](https://betting.betfair.com/football/internationals/nations-league-tips-nine-bets-for-nine-games-on-thursday-040924-629.html)
+- **Nations League and EFL Picks | Premier League Gambling Podcast (ep.209)**: [Link](https://www.sportsgamblingpodcast.com/2024/09/04/nations-league-and-efl-picks-premier-league-gambling-podcast-ep-209/)
+
+
 ### serbie – espagne (N/A, Thu, 5 Sep 2024 11:00:00 -0700)
 
 - **Ligue des nations: l'heure de la confirmation pour l'Espagne**: [Link](https://sport.le360.ma/espagne/ligue-des-nations-lheure-de-la-confirmation-pour-lespagne-114199)
