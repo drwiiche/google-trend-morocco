@@ -1,3 +1,20 @@
+### portugal (N/A, Thu, 5 Sep 2024 12:10:00 -0700)
+
+- **ULS de Coimbra contratou 47 médicos especialistas para cuidados hospitalares**: [Link](https://www.cmjornal.pt/sociedade/detalhe/uls-de-coimbra-contratou-47-medicos-especialistas-para-cuidados-hospitalares)
+- **Mariana Mortágua acusa Governo PSD de fazer "gestão sádica" do SNS**: [Link](https://www.cmjornal.pt/politica/detalhe/mariana-mortagua-acusa-governo-psd-de-fazer-gestao-sadica-do-sns)
+- **Como é que França tem um primeiro-ministro do quarto partido mais votado?**: [Link](https://www.cmjornal.pt/mundo/detalhe/como-e-que-franca-tem-um-primeiro-ministro-do-quarto-partido-mais-votado)
+
+
+### cristiano ronaldo (N/A, Thu, 5 Sep 2024 12:10:00 -0700)
+
+- **Cristiano Ronaldo cheekily grabs Georgina Rodriguez's bottom as the VERY 
+tactile couple relax on superyacht in**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-13811901/Georgina-Rodriguez-Cristiano-Ronaldo-yacht-France.html)
+- **Cristiano Ronaldo gets handsy with girlfriend Georgina Rodriguez in steamy 
+yacht vacation photos**: [Link](https://nypost.com/2024/09/02/sports/cristiano-ronaldo-gets-handsy-with-girlfriend-in-steamy-yacht-photos/)
+- **Cristiano Ronaldo and partner Georgina Rodriguez soak up sun amid secret 
+marriage rumours**: [Link](https://www.mirror.co.uk/sport/football/news/cristiano-ronaldo-georgina-rodriguez-married-33583809)
+
+
 ### الجزائر ضد غينيا الاستوائية (N/A, Thu, 5 Sep 2024 11:40:00 -0700)
 
 - **القنوات الناقلة لمباراة الجزائر وغينيا الاستوائية**: [Link](https://www.awras.com/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%BA%D9%8A%D9%86-2/)
