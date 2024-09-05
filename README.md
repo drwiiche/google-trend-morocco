@@ -1,3 +1,11 @@
+### sinner (N/A, Wed, 4 Sep 2024 22:00:00 -0700)
+
+- **Sinner ousts Medvedev, makes first Open semi**: [Link](https://www.espn.com/tennis/story/_/id/41129471/jannik-sinner-beats-daniil-medvedev-reach-us-open-semis)
+- **Sinner shakes off Medvedev, reaches US Open SFs**: [Link](https://www.atptour.com/en/news/medvedev-sinner-us-open-2024-qf)
+- **US Open 2024 live updates: Sinner defeats Medvedev in final quarterfinal - 
+The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/us-open-2024-tennis-live-updates-schedule-results-quarterfinals/SI3eP19OL4Hq/)
+
+
 ### premier ministre emmanuel macron (N/A, Wed, 4 Sep 2024 23:00:00 -0700)
 
 - **DIRECT. Le nom du nouveau Premier ministre ne sera pas annoncé ce mercredi 
