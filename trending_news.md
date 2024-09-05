@@ -1,3 +1,21 @@
+### alvaro morata (N/A, Thu, 5 Sep 2024 03:40:00 -0700)
+
+- **La causa final de la ruptura entre Morata y Campello fue tras la final de 
+la Eurocopa en el mismo césped, según Alexia Rivas**: [Link](https://www.marca.com/tiramillas/television/2024/09/03/66d6ca6046163ff8178b45ce.html)
+- **Alfonso Arús analiza el "postureo barato" de las parejas de famosos: "Mira 
+Álvaro Morata y Alic**: [Link](https://www.lasexta.com/programas/arusitys/alfonso-arus-analiza-postureo-barato-parejas-famosos-mira-alvaro-morata-alice-campello_2024090366d6bfad1dd440000197c403.html)
+- **Alice Campello nos aclara todas las dudas: si habrá o no divorcio con 
+Álvaro Morata y dónde vivirá con sus hijos**: [Link](https://www.vanitatis.elconfidencial.com/famosos/2024-09-03/alice-campello-divorcio-alvaro-morata-donde-vivira_3954540/)
+
+
+### rebecca cheptegei (N/A, Thu, 5 Sep 2024 02:40:00 -0700)
+
+- **Ugandan athlete Rebecca Cheptegei fighting for life after petrol attack**: [Link](https://www.standardmedia.co.ke/western/article/2001502056/ugandan-athlete-rebecca-cheptegei-fighting-for-life-after-petrol-attack)
+- **A Ugandan Olympic athlete was set on fire by her boyfriend**: [Link](https://apnews.com/article/kenya-rebecca-cheptegei-ugandan-athlete-3d51be6c201edca7f079e53315033972)
+- **Ugandan Olympic runner Rebecca Cheptegei, 33, dies after being set on fire 
+by partner**: [Link](https://www.theguardian.com/sport/article/2024/sep/05/ugandan-runner-rebecca-cheptegei-dies-from-injuries-after-being-set-on-fire)
+
+
 ### michel barnier (N/A, Thu, 5 Sep 2024 03:10:00 -0700)
 
 - **France still in political deadlock as Macron grapples with choosing prime 
