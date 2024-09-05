@@ -1,3 +1,11 @@
+### ligue des nations (N/A, Thu, 5 Sep 2024 09:50:00 -0700)
+
+- **Ligue des nations | Équipe de France : Avec son début de saison canon, 
+Bradley Barcola peut rêver d'une promotion**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2022-2023/ligue-des-nations-equipe-de-france-avec-son-debut-de-saison-canon-bradley-barcola-peut-rever-d-une-p_sto10327968/story.shtml)
+- **Kylian Mbappé adoube Bradley Barcola**: [Link](https://www.footmercato.net/a2857999193531863989-kylian-mbappe-adoube-bradley-barcola)
+- **[Podcasts] L'analyse de Manu Petit l'économiste sur Lyon !**: [Link](https://rmcsport.bfmtv.com/replay-emissions/rothen-regale/l-analyse-de-manu-petit-l-economiste-sur-lyon_EN-202409050440.html)
+
+
 ### maroc foot (N/A, Thu, 5 Sep 2024 10:20:00 -0700)
 
 - **Botola Pro: Mercato ou Moroccoto?**: [Link](https://sport.le360.ma/botola-pro-1/botola-pro-mercato-ou-moroccoto-114206)
