@@ -1,3 +1,10 @@
+### argentine – chili (N/A, Thu, 5 Sep 2024 16:10:00 -0700)
+
+- **L’Argentine va rendre hommage à Angel Di Maria**: [Link](https://www.footmercato.net/a2441983102582530954-largentine-va-rendre-hommage-a-angel-di-maria)
+- **Messi, c’est terminé**: [Link](https://www.football.fr/international/messi-cest-termine-2-711751.html)
+- **PRONOS PARIS RMC Le pari sûr du 5 septembre - CDM Qualifications**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-5-septembre-cdm-qualifications_AN-202409040613.html)
+
+
 ### gisele pelicot (N/A, Thu, 5 Sep 2024 14:50:00 -0700)
 
 - **Woman describes horror of learning husband drugged her so others could rape 
