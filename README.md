@@ -1,3 +1,10 @@
+### diana holding (N/A, Thu, 5 Sep 2024 04:20:00 -0700)
+
+- **Diana Holding opère un nouveau casting**: [Link](https://fr.le360.ma/economie/diana-holding-opere-un-nouveau-casting_6PVEWXV4Q5CQFIXLTB4ZTCSDO4/)
+- **Pourquoi Rita Maria Zniber renouvelle le conseil d’administration de Diana 
+Holding**: [Link](https://www.jeuneafrique.com/1604735/economie-entreprises/pourquoi-rita-maria-zniber-renouvelle-le-conseil-dadministration-de-diana-holding/)
+
+
 ### alvaro morata (N/A, Thu, 5 Sep 2024 03:40:00 -0700)
 
 - **La causa final de la ruptura entre Morata y Campello fue tras la final de 
