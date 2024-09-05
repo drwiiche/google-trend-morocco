@@ -1,3 +1,10 @@
+### الجزائر ضد غينيا الاستوائية (N/A, Thu, 5 Sep 2024 11:40:00 -0700)
+
+- **القنوات الناقلة لمباراة الجزائر وغينيا الاستوائية**: [Link](https://www.awras.com/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%BA%D9%8A%D9%86-2/)
+- **محرز وعوار أساسيين أمام غينيا الاستوائية**: [Link](https://m.kooora.com/?n=1352884&o=n)
+- **هذه هي القنوات الناقلة لمباراة اليوم "الخضر وغينيا الاستوائية" - الرياضي**: [Link](https://www.elbilad.net/sports/%D9%87%D8%B0%D9%87-%D9%87%D9%8A-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1-%D9%88%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%88%D8%A7%D8%A6%D9%8A%D8%A9-132839)
+
+
 ### algerie foot (N/A, Thu, 5 Sep 2024 11:30:00 -0700)
 
 - **Angleterre : à peine arrivé à Hull City, Belloumi fait déjà le buzz !**: [Link](https://fennecfootball.com/angleterre-a-peine-arrive-a-hull-city-bachir-belloumi-fait-deja-parler-de-lui/)
