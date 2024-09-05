@@ -1,3 +1,11 @@
+### resultat quinte (N/A, Thu, 5 Sep 2024 09:10:00 -0700)
+
+- **Tiercé. Les pronostics de «L'Alsace» pour jeudi 5 septembre - Prix de la 
+Galerie des Variétés**: [Link](https://www.lalsace.fr/sport/2024/09/04/les-pronostics-de-l-alsace-pour-jeudi-5-septembre-prix-de-la-galerie-des-varietes)
+- **Les 3 belles cotes des experts de ce jeudi 5 septembre 2024**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-3-belles-cotes-des-experts-de-ce-jeudi-5-septembre-2024)
+- **Les pronos hippiques du jeudi 5 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-5-septembre-2024_AN-202409040442.html)
+
+
 ### maroc vs gabon (N/A, Thu, 5 Sep 2024 07:20:00 -0700)
 
 - **Morocco vs Gabon Predictions: Morocco to Take Control in the First Half and 
