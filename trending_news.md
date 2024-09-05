@@ -1,3 +1,19 @@
+### نتائج مباريات اليوم (N/A, Thu, 5 Sep 2024 14:40:00 -0700)
+
+- **هذه نتائج مباريات اليوم في كأس التميز**: [Link](https://www.hespress.com/%D9%87%D8%B0%D9%87-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-1426271.html)
+- **الفتح الرباطي يدشن مشاركته في كأس التميز بالفوز وهذه باقي نتائج الجولة 
+الأولى**: [Link](http://ar.sport.le360.ma/maroc/158390)
+- **الدشيرة واللويسي يعريان عيوب الحسنية**: [Link](https://assabah.ma/798043.html)
+
+
+### منصف بوجا (N/A, Thu, 5 Sep 2024 14:10:00 -0700)
+
+- **بوجا يهدي المغرب أول ميدالية ذهبية**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%B5%D9%81-%D8%A8%D9%88%D8%AC%D8%A7-%D9%8A%D9%87%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%88%D9%84-%D9%85%D9%8A%D8%AF%D8%A7%D9%84%D9%8A%D8%A9-%D8%B0%D9%87%D8%A8%D9%8A-1426363.html)
+- **الأبطال المتوجون في بارالمبية باريس يحصلون على 725 مليونا**: [Link](https://ar.le360.ma/sports/MTGUFBV3HJC35CVD5SWUGNGMBE/)
+- **الثامنة في بارالمبياد باريس.. منصف بوجا يهدي المغرب أول ميدالية ذهبية في 
+الدورة**: [Link](https://lakome2.com/sport/354226/)
+
+
 ### san marino (N/A, Thu, 5 Sep 2024 14:30:00 -0700)
 
 - **UEFA Nations League San Marino 1 Liechtenstein 0 84 minutes played. In 
