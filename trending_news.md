@@ -1,3 +1,30 @@
+### bet 365 (N/A, Thu, 5 Sep 2024 12:40:00 -0700)
+
+- **Bet365 promo: $200 in bonus bets OR a First Bet Safety Net**: [Link](https://www.cbssports.com/betting/news/bet365-promo-200-in-bonus-bets-or-a-first-bet-safety-net/)
+- **Chiefs vs Ravens Betting Promos: Claim $4950 for Thursday Night Football 
+Odds & Props**: [Link](https://www.rotowire.com/news/chiefs-vs-ravens-betting-promos-claim-4950-for-thursday-night-football-odds-props-84717)
+- **bet365 and Fanatics Sportsbook Promo Codes: $2,000 in NFL Betting Bonuses 
+For Ravens vs Chiefs**: [Link](https://www.lineups.com/betting/bet365-fanatics-sportsbook-promo-codes-nfl-ravens-chiefs-9-5-24/)
+
+
+### algeria vs equatorial guinea (N/A, Thu, 5 Sep 2024 12:20:00 -0700)
+
+- **Petković: African football Is witnessing great transformation**: [Link](https://www.cafonline.com/news/petkovic-african-football-is-witnessing-great-transformation/)
+- **Riyad Mahrez hopes for Afcon redemption after return to Algeria set-up**: [Link](https://www.thenationalnews.com/sport/football/2024/09/05/riyad-mahrez-hopes-for-afcon-redemption-after-return-to-algeria-set-up/)
+- **AFCON 2025 Qualifiers: blow for Algeria as it records a forfeit**: [Link](https://en.africatopsports.com/2024/09/03/afcon-2025-qualifiers-blow-for-algeria-as-it-records-a-forfeit/)
+
+
+### les 12 coups de midi (N/A, Thu, 5 Sep 2024 11:40:00 -0700)
+
+- **"Murs troués, limace dans la douche" : Avant de cartonner dans Les 12 Coups 
+de midi, Emilien et sa chérie Jessica ont bien galéré, leur première 
+rentrée horrifique**: [Link](https://www.programme-tv.net/news/tv/359668-murs-troues-limace-dans-la-douche-avant-de-cartonner-dans-les-12-coups-de-midi-emilien-et-sa-cherie-jessica-ont-bien-galere-leur-premiere-rentree-horrifique/)
+- **Émilien, ce record de gains atteint en seulement un mois dans "Les 12 coups 
+de midi"**: [Link](https://fr.style.yahoo.com/%C3%A9milien-record-gains-atteint-seulement-192450792.html)
+- **Les 12 coups de midi (TF1) : Jean-Luc Reichmann taquine Emilien et sa 
+compagne, “le plus jeune vieux couple que je connaisse”**: [Link](https://www.programme-television.org/news/tv/emissions-tele/les-12-coups-de-midi-tf1-jean-luc-reichmann-taquine-emilien-et-sa-compagne-le-plus-jeune-vieux-couple-que-je-connaisse-4732175)
+
+
 ### rich homie quan (N/A, Thu, 5 Sep 2024 12:30:00 -0700)
 
 - **Rich Homie Quan Dead At 34**: [Link](https://www.tmz.com/2024/09/05/rich-homie-quan-dead/)
