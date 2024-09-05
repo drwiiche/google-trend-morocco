@@ -1,3 +1,12 @@
+### us open (N/A, Wed, 4 Sep 2024 21:10:00 -0700)
+
+- **Draper: 'I've had times when I've thought I'm not cut out for this sport'**: [Link](https://www.atptour.com/en/news/draper-us-open-2024-qf-reaction)
+- **US Open Tennis 2024 Results: Winners, Losers and Highlights from 
+Wednesday's Bracket**: [Link](https://bleacherreport.com/articles/10134193-us-open-tennis-2024-results-winners-losers-and-highlights-from-wednesdays-bracket)
+- **Jack Draper reaches US Open semifinals and Karolina Muchova gets back there 
+after wrist surgery**: [Link](https://www.heraldandnews.com/ap_news/sports/jack-draper-reaches-us-open-semifinals-and-karolina-muchova-gets-back-there-after-wrist-surgery/article_13849883-9f71-5e79-a683-05b82735ed03.html)
+
+
 ### ليلى عبد اللطيف (N/A, Wed, 4 Sep 2024 16:10:00 -0700)
 
 - **ليلى عبد اللطيف تتصدر تريندات جوجل بعد توقعاتها الأخيرة.. اعرف قالت إيه؟**: [Link](https://www.youm7.com/story/2024/9/4/%D9%84%D9%8A%D9%84%D9%89-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D8%B7%D9%8A%D9%81-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AA%D8%B1%D9%8A%D9%86%D8%AF%D8%A7%D8%AA-%D8%AC%D9%88%D8%AC%D9%84-%D8%A8%D8%B9%D8%AF-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D8%A7%D8%B9%D8%B1%D9%81/6695640)
