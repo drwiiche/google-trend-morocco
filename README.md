@@ -1,3 +1,11 @@
+### عيد المولد النبوي (N/A, Thu, 5 Sep 2024 00:40:00 -0700)
+
+- **ذكرى المولد النبوي 16 شتنبر بالمغرب**: [Link](https://www.hespress.com/%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D9%85%D9%88%D9%84%D8%AF-%D8%A7%D9%84%D9%86%D8%A8%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-16-%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-1425666.html)
+- **فاتح ربيع الأول لعام 1446 هـ يوم الخميس وعيد المولد النبوي يوم 16 شتنبر 
+الجاري**: [Link](https://lakome2.com/%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9/354065/)
+- **ذكرى المولد النبوي 16 شتنبر بالمغرب**: [Link](https://ar.hibapress.com/details-547874.html)
+
+
 ### sinner (N/A, Wed, 4 Sep 2024 22:00:00 -0700)
 
 - **Sinner ousts Medvedev, makes first Open semi**: [Link](https://www.espn.com/tennis/story/_/id/41129471/jannik-sinner-beats-daniil-medvedev-reach-us-open-semis)
