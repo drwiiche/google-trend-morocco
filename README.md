@@ -1,3 +1,12 @@
+### michel barnier (N/A, Thu, 5 Sep 2024 03:10:00 -0700)
+
+- **France still in political deadlock as Macron grapples with choosing prime 
+minister**: [Link](https://www.france24.com/en/europe/20240904-france-still-in-political-deadlock-as-macron-grapples-with-choice-of-prime-minister)
+- **Macron’s whirlwind hunt for new prime minister sends French politics into a 
+frenzy**: [Link](https://www.politico.eu/article/france-president-emmanuel-macron-new-prime-minister-french-politics/)
+- **Michel Barnier emerges as contender to be French prime minister**: [Link](https://www.ft.com/content/65441c19-5143-4503-9919-b46cdd38b5ea)
+
+
 ### هبة بريس (N/A, Wed, 4 Sep 2024 23:30:00 -0700)
 
 - **"الخبزة العجيبة" ترسل أزيد من 20 شخصا للمستعجلات بالبيضاء + (فيديو)**: [Link](https://ar.hibapress.com/details-548312.html)
