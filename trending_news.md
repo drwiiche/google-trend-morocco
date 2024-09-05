@@ -1,3 +1,61 @@
+### serbie – espagne (N/A, Thu, 5 Sep 2024 11:00:00 -0700)
+
+- **Ligue des nations: l'heure de la confirmation pour l'Espagne**: [Link](https://sport.le360.ma/espagne/ligue-des-nations-lheure-de-la-confirmation-pour-lespagne-114199)
+- **Espagne : Lamine Yamal, la très bonne nouvelle**: [Link](https://www.football365.fr/lamine-yamal-la-tres-bonne-nouvelle-10200137.html)
+- **Ligue des Nations : l’Espagne à la reconquête de son titre**: [Link](https://www.lesiteinfo.com/sport/626402-ligue-des-nations-lespagne-a-la-reconquete-de-son-titre.html)
+
+
+### البرتغال ضد كرواتيا (N/A, Thu, 5 Sep 2024 11:00:00 -0700)
+
+- **موعد مباراة البرتغال وكرواتيا في دوري الأمم الأوروبية 2024-25 .. والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1352383)
+- **ملعب لشبونة يعيد ذكريات اللقب العاشر لريال مدريد في أذهان مودريتش**: [Link](https://hihi2.com/2024/09/05/p2834123.html)
+- **مارتينيز: لاعبو البرتغال متلهفون للعودة**: [Link](https://www.kooora.com/?n=1352691)
+
+
+### صربيا ضد إسبانيا (N/A, Thu, 5 Sep 2024 11:00:00 -0700)
+
+
+
+
+### serbia vs spain (N/A, Thu, 5 Sep 2024 11:00:00 -0700)
+
+- **UEFA Nations League hub: 2024-25 Fixtures, results, history, winners**: [Link](https://www.nbcsports.com/soccer/news/uefa-nations-league-hub-2024-25-fixtures-results-history-winners)
+- **Preview: Serbia vs. Spain - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/serbia/uefa-nations-league/preview/preview-serbia-vs-spain-prediction-team-news-lineups_552060.html)
+- **Official: Real Madrid veteran Carvajal captains Spain against Serbia**: [Link](https://madriduniversal.com/official-real-madrid-veteran-carvajal-captains-spain-against-serbia/)
+
+
+### portugal – croatie (N/A, Thu, 5 Sep 2024 10:50:00 -0700)
+
+- **Portugal: Roberto Martinez rappelle l'importance de Cristiano Ronaldo**: [Link](https://sport.le360.ma/football/portugal-roberto-martinez-rappelle-limportance-de-cristiano-ronaldo-114191)
+- **PSG : Vitinha, Nuno Mendes et Joao Neves en clair ! - Actualite - Paris PSG**: [Link](https://www.paristeam.fr/actu-psg/actualite/psg-vitinha-nuno-mendes-et-joao-neves-en-clair-68829)
+- **LOSC : Tiago Santos appelé en sélection pour la première fois !**: [Link](https://le11hdf.fr/losc-tiago-santos-appele-en-selection-pour-la-premiere-fois/)
+
+
+### portugal fc (N/A, Thu, 5 Sep 2024 10:50:00 -0700)
+
+- **Novo técnico do Sport brinca com pronúncia e explica origem do apelido 
+Pepa: "Não é Pig..."**: [Link](https://ge.globo.com/pe/futebol/times/sport/noticia/2024/09/05/novo-tecnico-do-sport-brinca-com-pronuncia-e-explica-origem-do-apelido-pepa-nao-e-pig.ghtml)
+- **Pepa, ex-técnico do Cruzeiro, vai assinar com clube da Série B; saiba qual**: [Link](https://www.otempo.com.br/sports/futebol-nacional/2024/9/2/pepa--ex-tecnico-do-cruzeiro--vai-assinar-com-clube-da-serie-b--)
+- **Técnicos estrangeiros viram maioria no futebol brasileiro, veja lista**: [Link](https://sportbuzz.com.br/futebol/2024/09/05/tecnicos-estrangeiros-viram-maioria-no-futebol-brasileiro-veja-lista/)
+
+
+### vinicius júnior (N/A, Thu, 5 Sep 2024 10:50:00 -0700)
+
+- **“The only thing I have to say” – Spanish government issues response to 
+Vinicius Junior**: [Link](https://sports.yahoo.com/only-thing-spanish-government-issues-120300259.html)
+- **Luis de la Fuente responds to Vinicius Jr’s criticism: ‘Spain is not racist’**: [Link](https://www.nytimes.com/athletic/5745141/2024/09/04/vinicius-junior-de-la-fuente-spain-racism/)
+- **Vini Jr: Spain must reduce racism to host '30 WC**: [Link](https://www.espn.com/soccer/story/_/id/41117960/vinicius-jr-spain-reduce-racism-lose-2030-world-cup)
+
+
+### portugal vs croatia (N/A, Thu, 5 Sep 2024 10:40:00 -0700)
+
+- **Portugal vs. Croatia - Football Match Preview - September 5, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/698888)
+- **LIVE: Portugal vs Croatia – UEFA Nations League Group A1**: [Link](https://www.aljazeera.com/sports/liveblog/2024/9/5/live-portugal-vs-croatia-uefa-nations-league-group-a1?update=3159239)
+- **Differing reactions mark closing stages of Luka Modric’s and Ronaldo’s 
+careers**: [Link](https://www.theguardian.com/football/article/2024/sep/05/luka-modric-cristiano-ronaldo-croatia-portugal-nations-league)
+
+
 ### الخبزة العجيبة (N/A, Thu, 5 Sep 2024 10:40:00 -0700)
 
 - **"الخبزة العجيبة" ترسل 35 شخصا للمستعجلات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AE%D8%A8%D8%B2%D8%A9-%D8%A7%D9%84%D8%B9%D8%AC%D9%8A%D8%A8%D8%A9-%D8%AA%D8%B1%D8%B3%D9%84-35-%D8%B4%D8%AE%D8%B5%D8%A7-%D9%84%D9%84%D9%85%D8%B3%D8%AA%D8%B9%D8%AC%D9%84%D8%A7%D8%AA-1426558.html)
