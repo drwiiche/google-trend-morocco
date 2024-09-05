@@ -1,3 +1,13 @@
+### memphis depay (N/A, Thu, 5 Sep 2024 04:20:00 -0700)
+
+- **Premier League transfers: Who are the best free agents still looking for a 
+club?**: [Link](https://www.bbc.com/sport/football/articles/cpvyjwjr17no)
+- **Free agent list: Memphis Depay, USMNT defender, Real Madrid legends and 
+best out-of-contract players available**: [Link](https://www.cbssports.com/soccer/news/free-agent-list-memphis-depay-usmnt-defender-real-madrid-legends-and-best-out-of-contract-players-available/)
+- **Anthony Martial, Memphis Depay and 10 of the best free agents still 
+available as the summer transfer window slams shut**: [Link](https://www.goal.com/en-us/lists/best-free-agents-2024-transfer-window-closed/blt15c3773f4d696510)
+
+
 ### diana holding (N/A, Thu, 5 Sep 2024 04:20:00 -0700)
 
 - **Diana Holding opère un nouveau casting**: [Link](https://fr.le360.ma/economie/diana-holding-opere-un-nouveau-casting_6PVEWXV4Q5CQFIXLTB4ZTCSDO4/)
