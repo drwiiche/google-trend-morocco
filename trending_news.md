@@ -1,3 +1,10 @@
+### هبة بريس (N/A, Wed, 4 Sep 2024 23:30:00 -0700)
+
+- **"الخبزة العجيبة" ترسل أزيد من 20 شخصا للمستعجلات بالبيضاء + (فيديو)**: [Link](https://ar.hibapress.com/details-548312.html)
+- **''الخبزة العجيبة'' تُرسل 30 شخصا إلى المستعجلات بالدار البيضاء**: [Link](https://www.achkayen.com/568655/.html)
+- **تسمم غذائي يصيب أزيد من 20 شخصًا في الدار البيضاء**: [Link](https://aljarida24.ma/p/actualites/286934/)
+
+
 ### coupe du monde féminine (N/A, Thu, 5 Sep 2024 00:50:00 -0700)
 
 - **CM Féminine U20: La composition du Maroc face aux USA (Gr C)**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%86%D8%B3-25/)
