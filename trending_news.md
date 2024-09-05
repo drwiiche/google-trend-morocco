@@ -1,3 +1,17 @@
+### tunisie – madagascar (N/A, Thu, 5 Sep 2024 11:50:00 -0700)
+
+
+
+
+### espagne (N/A, Thu, 5 Sep 2024 11:40:00 -0700)
+
+- **L’Espagne se retourne contre Vinicius Junior !**: [Link](https://www.footmercato.net/a7206847072284869898-lespagne-se-retourne-contre-vinicius-junior)
+- **Déplacer le Mondial-2030 ? Vinicius relance le débat sur le racisme en 
+Espagne**: [Link](https://mobile.telquel.ma/instant-t/2024/09/05/deplacer-le-mondial-2030%E2%80%89-vinicius-relance-le-debat-sur-le-racisme-en-espagne_1892054/)
+- **Football. Carvajal répond à son coéquipier Vinicius : « L’Espagne n’est pas 
+un pays raciste »**: [Link](https://www.ouest-france.fr/sport/football/equipe-espagne/football-carvajal-repond-a-son-coequipier-vinicius-lespagne-nest-pas-un-pays-raciste-4644b270-6b50-11ef-bffb-cb4513feb8f2)
+
+
 ### portugal (N/A, Thu, 5 Sep 2024 12:10:00 -0700)
 
 - **ULS de Coimbra contratou 47 médicos especialistas para cuidados hospitalares**: [Link](https://www.cmjornal.pt/sociedade/detalhe/uls-de-coimbra-contratou-47-medicos-especialistas-para-cuidados-hospitalares)
