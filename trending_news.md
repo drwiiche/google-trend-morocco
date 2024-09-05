@@ -1,3 +1,11 @@
+### match maroc gabon (N/A, Thu, 5 Sep 2024 07:30:00 -0700)
+
+- **Maroc-Gabon: Les Lions de l’Atlas s'envolent pour Agadir**: [Link](https://sport.le360.ma/maroc/maroc-gabon-les-lions-de-latlas-senvolent-pour-agadir-114207)
+- **Eliminatoires CAN Maroc-2025 : deux nouvelles séances d’entrainement des 
+Lions de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AA%D8%AD%D8%B3%D8%A8/)
+- **Walid Regragui sous le feu des critiques**: [Link](https://www.bladi.net/walid-regragui-sous-feu-critiques,110284.html)
+
+
 ### المولد النبوي (N/A, Wed, 4 Sep 2024 23:50:00 -0700)
 
 - **ذكرى المولد النبوي 16 شتنبر بالمغرب**: [Link](https://www.hespress.com/%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D9%85%D9%88%D9%84%D8%AF-%D8%A7%D9%84%D9%86%D8%A8%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-16-%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-1425666.html)
