@@ -1,3 +1,10 @@
+### renault r17 (N/A, Fri, 6 Sep 2024 02:40:00 -0700)
+
+- **Renault Gives the R17 the EV Treatment with Sleek Restomod**: [Link](https://www.caranddriver.com/news/a62068853/renault-r17-electric-restomod-concept-specs-details/)
+- **Renault's New R17 Concept Is a Spectacular Revival of a 1970s Beauty**: [Link](https://www.roadandtrack.com/news/a62058288/renault-r17-electric-concept-car/)
+- **Renault 17 resurrected as a one-off resto-modded electric coupe**: [Link](https://www.autoblog.com/2024/09/05/renault-17-resurrected-as-a-one-off-resto-modded-electric-coupe/)
+
+
 ### argentine (N/A, Thu, 5 Sep 2024 18:50:00 -0700)
 
 - **Argentine : le nouveau dérapage obscène d’Emiliano Martínez**: [Link](https://www.footmercato.net/a7673915527361434700-argentine-le-nouveau-derapage-obscene-demiliano-martinez)
