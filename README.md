@@ -1,3 +1,11 @@
+### egypte foot (N/A, Fri, 6 Sep 2024 13:00:00 -0700)
+
+- **Séance de physiothérapie pour Emam Ashour**: [Link](https://www.alahlyegypt.com/fr/news/article/41604)
+- **Éliminatoires CAN 2025 : Egypte vs Cap-Vert, des retrouvailles attendues**: [Link](https://fr.africanews.com/2024/09/06/eliminatoires-can-2025-egypte-vs-cap-vert-des-retrouvailles-attendues//)
+- **Les Pharaons s’imposent largement face au Cap-Vert en début des 
+qualifications pour la CAN 2025 - Sports - Sports**: [Link](https://french.ahram.org.eg/NewsContent/6/51/52477/Sports/Sports/Les-Pharaons-s%E2%80%99imposent-largement-face-au-CapVert-.aspx)
+
+
 ### sinner (N/A, Fri, 6 Sep 2024 14:40:00 -0700)
 
 - **US Open: Jessica Pegula defeats Karolina Muchova in second semi-final after 
