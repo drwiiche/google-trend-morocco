@@ -1,3 +1,17 @@
+### حالة الطقس (N/A, Thu, 5 Sep 2024 18:50:00 -0700)
+
+- **"الوطني للأرصاد": طقس الجمعة صحو إلى غائم جزئياً**: [Link](https://sharjah24.ae/ar/Articles/2024/09/05/al0644)
+- **طقس صحو ورياح تنشط أحيانا مثيرة الغبار غدا**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/4512284/%D8%B7%D9%82%D8%B3-%D8%B5%D8%AD%D9%88-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D8%AA%D9%86%D8%B4%D8%B7-%D8%A3%D8%AD%D9%8A%D8%A7%D9%86%D8%A7-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%BA%D8%A8%D8%A7%D8%B1-%D8%BA%D8%AF%D8%A7)
+- **الإمارات | ضباب خفيف قد يصل لحد الضباب على بعض المناطق فجر وصباح الجمعة**: [Link](https://www.arabiaweather.com/ar/content/%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B6%D8%A8%D8%A7%D8%A8-%D8%AE%D9%81%D9%8A%D9%81-%D9%82%D8%AF-%D9%8A%D8%B5%D9%84-%D9%84%D8%AD%D8%AF-%D8%A7%D9%84%D8%B6%D8%A8%D8%A7%D8%A8-%D8%B9%D9%84%D9%89-%D8%A8%D8%B9%D8%B6-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%81%D8%AC%D8%B1-%D9%88%D8%B5%D8%A8%D8%A7%D8%AD-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9)
+
+
+### فرنسا (N/A, Thu, 5 Sep 2024 18:20:00 -0700)
+
+- **ماكرون يكلف ميشال بارنييه بتشكيل الحكومة**: [Link](https://www.alhurra.com/arabic-and-international/2024/09/05/%D9%85%D8%A7%D9%83%D8%B1%D9%88%D9%86-%D9%8A%D9%83%D9%84%D9%81-%D9%85%D9%8A%D8%B4%D8%A7%D9%84-%D8%A8%D8%A7%D8%B1%D9%86%D9%8A%D9%8A%D9%87-%D8%A8%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9)
+- **لوبان: لن نكون جزءا من الحكومة الفرنسية**: [Link](https://ar.hibapress.com/details-548428.html)
+- **هل تدخل فرنسا في أزمة داخلية بعد اختيار بارنييه رئيسا للوزراء؟**: [Link](https://www.aljazeera.net/politics/2024/9/5/%D9%87%D9%84-%D8%AA%D8%AF%D8%AE%D9%84-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%81%D9%8A-%D8%A3%D8%B2%D9%85%D8%A9-%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1)
+
+
 ### argentine foot (N/A, Thu, 5 Sep 2024 16:50:00 -0700)
 
 - **Ballon d’Or 2024 : les trois favoris sont déjà connus !**: [Link](https://www.footmercato.net/a4571760478294017004-ballon-dor-2024-les-trois-favoris-sont-deja-connus)
