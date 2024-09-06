@@ -1,3 +1,38 @@
+### brahim diaz (N/A, Fri, 6 Sep 2024 12:30:00 -0700)
+
+- **Tuttosport: Milan could have bought Real Madrid playmaker on ‘favourable 
+terms’**: [Link](https://sempremilan.com/tuttosport-milan-brahim-diaz-favourable-terms)
+
+
+### yalla (N/A, Fri, 6 Sep 2024 12:30:00 -0700)
+
+- **A Nightlife-Oriented Lebanese Kitchen Lands in a Storied U Street Space**: [Link](https://www.washingtonian.com/2024/09/05/a-nightlife-oriented-lebanese-kitchen-lands-in-a-storied-u-street-space/)
+- **"We Got Funded!" KSA-Based Yalla Plus Raises US$2.7 Million In Seed Funding 
+As It Aims To Reach 100,000 Hospitality Entrepreneurs**: [Link](https://www.entrepreneur.com/en-ae/growth-strategies/we-got-funded-ksa-based-yalla-plus-raises-us27-million/479371)
+
+
+### كورة بث مباشر (N/A, Fri, 6 Sep 2024 12:30:00 -0700)
+
+- **تالاييتش منبهر بلاعبي البحرين بعد قهر أستراليا**: [Link](https://www.kooora.com/?n=1352840)
+- **فوز تاريخي للبحرين على أستراليا واليابان تدكّ الصين بسباعية في تصفيات 
+المونديال**: [Link](https://www.aljazeera.net/sport/2024/9/5/asian-qualification)
+- **تصفيات كأس العالم 2026: البحرين وفلسطين يتعملقان**: [Link](https://www.almountakhab.com/node/16203931)
+
+
+### حكيم زياش (N/A, Fri, 6 Sep 2024 12:30:00 -0700)
+
+- **زياش باق بتركيا وغلطة سراي يكذب شائعات رحيله**: [Link](https://www.almountakhab.com/node/13203994)
+- **خطوة مفاجأة جديدة من غلطة سراي تثير الشكوك حول مستقبل زياش**: [Link](http://ar.sport.le360.ma/marocains-du-monde/158424)
+- **غلطة سراي يقطع الشك باليقين بخصوص رحيل زياش**: [Link](https://m.alayam24.com/articles-524601.html)
+
+
+### caf 2025 (N/A, Fri, 6 Sep 2024 12:30:00 -0700)
+
+- **DR Congo, Tunisia kickstart TotalEnergies AFCON 2025 qualifiers with wins**: [Link](https://www.cafonline.com/caf-africa-cup-of-nations/news/dr-congo-tunisia-kickstart-totalenergies-afcon-2025-qualifiers-with-wins/)
+- **Preview: Sudan vs. Niger - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sudan/africa-cup-of-nations/preview/preview-sudan-vs-niger-prediction-team-news-lineups_552032.html)
+- **FULL LIST: 2025 Africa Cup of Nations qualifying tables**: [Link](https://punchng.com/full-list-2025-africa-cup-of-nations-qualifying-tables/)
+
+
 ### egypt vs cape verde (N/A, Fri, 6 Sep 2024 12:20:00 -0700)
 
 - **Preview: Egypt vs. Cape Verde - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/egypt/africa-cup-of-nations/preview/preview-egypt-vs-cape-verde-prediction-team-news-lineups_552165.html)
