@@ -1,3 +1,18 @@
+### koora (N/A, Fri, 6 Sep 2024 10:10:00 -0700)
+
+- **دي بروين في تصريحات نارية: المال يتحدث نيابة عن الفيفا ويويفا**: [Link](https://www.kooora.com/?n=1353081)
+- **مانشستر سيتي مضطر لخوض مباراتين في 48 ساعة**: [Link](https://www.aljazeera.net/sport/2024/9/5/manchester-city-match-49-hours)
+- **بدأ بكاء اللاعبين من جدول المباريات … رسالة المسؤلين واضحه ” استرجل أو 
+اعتزل الكرة “**: [Link](https://hihi2.com/2024/09/06/p2835584.html)
+
+
+### مباريات اليوم المغرب (N/A, Fri, 6 Sep 2024 07:20:00 -0700)
+
+- **المغرب ينتظر خبرًا سارًا قبل مواجهة ليسوتو**: [Link](https://www.kooora.com/?n=1353052)
+- **منافس الأسود القادم خسر أولى جولات التصفيات الإفريقية**: [Link](https://www.almountakhab.com/node/16203948)
+- **مدرب ليسوتو يعترف قبل مواجهة المغرب في التصفيات المؤهلة لـ...**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/444057.html)
+
+
 ### megarama (N/A, Fri, 6 Sep 2024 10:00:00 -0700)
 
 - **Une société de distribution autour des films LGBT+ lancée par un habitant 
