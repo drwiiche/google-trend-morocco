@@ -1,3 +1,43 @@
+### egypt vs cape verde (N/A, Fri, 6 Sep 2024 12:20:00 -0700)
+
+- **Preview: Egypt vs. Cape Verde - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/egypt/africa-cup-of-nations/preview/preview-egypt-vs-cape-verde-prediction-team-news-lineups_552165.html)
+- **The Pharaohs of Egypt ready to meet Cape Verde in AFCON qualifying match**: [Link](https://www.africanews.com/2024/09/06/the-pharaohs-of-egypt-ready-to-meet-cape-verde-in-afcon-qualifying-match//)
+- **Ramy Rabia Speaks on Egypt's Game Against Cape Verde**: [Link](https://www.kingfut.com/2024/09/06/ramy-rabia-cape-verde-win/)
+
+
+### marokko - gabon (N/A, Fri, 6 Sep 2024 12:20:00 -0700)
+
+- **Marokko-Gabon: om hoe laat en op welke zender?**: [Link](https://www.bladna.nl/voetbal-wedstrijd-marokko-gabon-live,57573.html)
+- **Marokko treft Gabon vanavond in voorbereiding op Afrika Cup 2025**: [Link](https://nieuws.marokko.nl/96365/marokko-treft-gabon-vanavond-in-voorbereiding-op-afrika-cup-2025/)
+- **Marokko – Gabon Voorspelling, Odds & Opstellingen**: [Link](https://www.bettingodds.com/nl/nieuws/marokko-gabon-afrika-cup-kwalificatie-voorspelling-odds-opstellingen-6-september-2024)
+
+
+### live tv (N/A, Fri, 6 Sep 2024 12:20:00 -0700)
+
+- **Kansas State at Tulane: How to watch, TV channel, kickoff time, game odds**: [Link](https://247sports.com/college/kansas-state/article/kansas-state-football-schedule-how-to-watch-k-state-tulane-2024-tv-television-channel-info-radio-station-235665135/)
+- **Kansas State at Tulane odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/2024/09/06/kansas-state-at-tulane-odds-picks-and-predictions/)
+- **Predictions as Tulane Green Wave Host Huge Matchup With Kansas State 
+Wildcats**: [Link](https://www.si.com/college/tulane/news/predictions-as-tulane-green-wave-host-huge-matchup-with-kansas-state-wildcats)
+
+
+### marruecos (N/A, Fri, 6 Sep 2024 12:20:00 -0700)
+
+- **Marruecos derriba decenas de viviendas de saharauis en los territorios 
+ocupados del Sáhara**: [Link](https://www.elindependiente.com/internacional/2024/09/06/marruecos-derriba-decenas-viviendas-saharauis-territorios-ocupados-sahara/)
+- **Familias saharauis obligadas a abandonar sus lugares de residencia •**: [Link](https://kaosenlared.net/familias-saharauis-obligadas-a-abandonar-sus-lugares-de-residencia/)
+- **MARRUECOS DERRIBA CASAS Y ENVENENA POZOS DE SAHARAUIS CON LA COMPLICIDAD 
+INTERNACIONAL**: [Link](https://canarias-semanal.org/art/36703/marruecos-derriba-casas-y-envenena-pozos-de-saharauis-con-la-complicidad-internacional)
+
+
+### france (N/A, Fri, 6 Sep 2024 12:00:00 -0700)
+
+- **Il fait deux fois plus chaud en Scandinavie qu'en France en ce moment : 
+voilà pourquoi**: [Link](https://www.futura-sciences.com/planete/breves/meteorologie-il-fait-deux-fois-plus-chaud-scandinavie-quen-france-ce-moment-voila-9954/)
+- **Arctique: aux avant-postes du changement climatique, l'archipel du Svalbard 
+bat des records de chaleur**: [Link](https://www.rfi.fr/fr/environnement/20240903-dans-l-arctique-le-svalbard-a-v%C3%A9cu-son-%C3%A9t%C3%A9-le-plus-chaud-pour-la-troisi%C3%A8me-ann%C3%A9e-cons%C3%A9cutive)
+- **La Laponie finlandaise s'apprête à connaître des records de chaleur**: [Link](https://fr.euronews.com/green/2024/08/28/pourquoi-la-laponie-est-elle-en-feu-lextreme-nord-de-la-finlande-subit-des-chaleur-record-)
+
+
 ### match live (N/A, Fri, 6 Sep 2024 12:10:00 -0700)
 
 - **Goals and Best moments: South Africa 2-2 Uganda in African Cup of Nations 
