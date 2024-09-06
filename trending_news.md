@@ -1,3 +1,10 @@
+### خريطة المغرب نتنياهو (N/A, Fri, 6 Sep 2024 06:40:00 -0700)
+
+- **لماذا أثارت خريطة نتنياهو غضب المغاربة؟**: [Link](https://www.aljazeera.net/news/2024/9/5/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A3%D8%AB%D8%A7%D8%B1%D8%AA-%D8%AE%D8%A7%D8%B1%D8%B7%D8%A9-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%BA%D8%B6%D8%A8-2)
+- **خرائط نتانياهو وخاطر تحيحيت**: [Link](https://thevoice.ma/%D8%AE%D8%B1%D8%A7%D8%A6%D8%B7-%D9%86%D8%AA%D8%A7%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%88%D8%AE%D8%A7%D8%B7%D8%B1-%D8%AA%D8%AD%D9%8A%D8%AD%D9%8A%D8%AA/)
+- **"الصحراء الغربية".. خريطة جديدة لنتنياهو تثير جدلا واسعا في المغرب**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/20240905-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%AC%D8%AF%D9%84%D8%A7-%D9%88%D8%A7%D8%B3%D8%B9%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+
+
 ### rd congo – guinée (N/A, Fri, 6 Sep 2024 09:00:00 -0700)
 
 - **LOSC : les pépins s’enchaînent sur ce début de saison !**: [Link](https://le11hdf.fr/losc-les-pepins-senchainent-sur-ce-debut-de-saison/)
