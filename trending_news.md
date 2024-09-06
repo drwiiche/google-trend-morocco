@@ -1,3 +1,19 @@
+### diaz (N/A, Fri, 6 Sep 2024 13:30:00 -0700)
+
+- **Exclusive: Liverpool trio likely to seal Saudi transfers, replacements already lined up**: [Link](https://www.caughtoffside.com/2024/09/05/liverpool-transfer-news-salah-van-dijk-alisson-saudi/)
+- **Football gossip: Salah, Chilwell, Fofana, Huerta, Cardoso, Casemiro**: [Link](https://www.bbc.com/sport/football/articles/cly975e75lxo)
+- **Mohamed Salah's daughter may have final say on Liverpool forward's future**: [Link](https://www.liverpool.com/liverpool-fc-news/features/mohamed-salah-liverpool-contract-daughter-29881542)
+
+
+### bono (N/A, Fri, 6 Sep 2024 13:30:00 -0700)
+
+- **Born Into Fame, This Actress Could Soon Have More of Her Own**: [Link](https://www.nytimes.com/2024/09/02/arts/television/eve-hewson-a-perfect-couple-netflix.html)
+- **Meet Bono's stunning daughter starring in new show with Nicole Kidman, Eve 
+Hewson**: [Link](https://www.hellomagazine.com/healthandbeauty/mother-and-baby/716390/meet-bono-daughter-stunning-actress-eve-hewson-all-we-know/)
+- **Eve Hewson's famous father, partner and real name explored as she leads The 
+Perfect Couple**: [Link](https://www.manchestereveningnews.co.uk/news/tv/eve-hewson-father-real-name-29866868)
+
+
 ### الطقس غدًا (N/A, Fri, 6 Sep 2024 13:00:00 -0700)
 
 - **«نهاية الأيام العجاف».. مفاجأة بشأن حالة الطقس الأسبوع القادم ودرجات 
