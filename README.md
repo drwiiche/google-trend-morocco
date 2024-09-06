@@ -1,3 +1,32 @@
+### الرياضية مباشر (N/A, Fri, 6 Sep 2024 11:20:00 -0700)
+
+- **دي لا فوينتي: إصابة مهاجم إسبانيا سيئة**: [Link](https://m.kooora.com/?n=1352977&o=n)
+- **إحصائية مرعبة لـ إسبانيا**: [Link](https://hihi2.com/2024/09/05/p2834686.html)
+- **مواجهة صربيا وضيفتها إسبانيا تنتهي بالتعادل**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B5%D8%B1%D8%A8%D9%8A%D8%A7-%D9%88%D8%B6%D9%8A%D9%81%D8%AA%D9%87%D8%A7-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%86%D8%AA%D9%87%D9%8A-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-2024-09-05)
+
+
+### belgique – israël (N/A, Fri, 6 Sep 2024 11:10:00 -0700)
+
+- **Belgique-Israël : les coulisses de la délocalisation en Hongrie**: [Link](https://www.sofoot.com/articles/mais-pourquoi-la-belgique-delocalise-t-elle-son-match-contre-israel-en-hongrie)
+- **Domenico Tedesco : 'Une pression supplémentaire sur mes épaules depuis 
+l'Euro ? Sincèrement, non'**: [Link](https://www.rtbf.be/article/domenico-tedesco-je-ne-ressens-pas-de-pression-supplementaire-depuis-l-euro-11430019)
+- **Une présence surprise à l'entraînement des Diables, ce mercredi !**: [Link](https://www.walfoot.be/news/2024-09-04/une-presence-surprise-a-lentranement-des-diables-ce-mercredi)
+
+
+### match day (N/A, Fri, 6 Sep 2024 11:00:00 -0700)
+
+- **Andrew Flintoff moves Josh Hull’s mother to tears with first cap speech**: [Link](https://www.cumnockchronicle.com/sport/national/24569237.andrew-flintoff-moves-josh-hulls-mother-tears-first-cap-speech/)
+- **Ollie Pope finds form as England captain on return to Kia Oval**: [Link](https://www.heraldseries.co.uk/sport/national/24569073.ollie-pope-finds-form-england-captain-return-kia-oval/)
+- **England vs Sri Lanka: Captain Ollie Pope hits timely century to put hosts 
+in commanding position after day one**: [Link](https://www.skysports.com/cricket/news/12123/13210535/england-vs-sri-lanka-captain-ollie-pope-hits-timely-century-to-put-hosts-in-commanding-position-after-day-one)
+
+
+### koor (N/A, Fri, 6 Sep 2024 11:00:00 -0700)
+
+- **Rob Baas 25 jaar dirigent bij koor ’t Ni-je Geluud**: [Link](https://www.montferlandjournaal.nl/nieuws/muziek/494864/rob-baas-25-jaar-dirigent-bij-koor-t-ni-je-geluud)
+- **Zangkoor Phoenix Oss kan nog wel wat versterking gebruiken**: [Link](https://www.kliknieuwsoss.nl/nieuws/verenigingen/226353/zangkoor-phoenix-oss-kan-nog-wel-wat-versterking-gebruiken)
+
+
 ### فرنسا ضد إيطاليا (N/A, Fri, 6 Sep 2024 11:00:00 -0700)
 
 - **تشكيلة إيطاليا الرسمية لمواجهة فرنسا في دوري الأمم الأوروبية**: [Link](https://hihi2.com/2024/09/06/p2835912.html)
