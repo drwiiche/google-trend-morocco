@@ -1,3 +1,10 @@
+### مباراة المغرب اليوم (N/A, Fri, 6 Sep 2024 03:40:00 -0700)
+
+- **لقاء الغابون يضع اختيارات الركراكي على المحك في تصفيات كأس إفريقيا 2025**: [Link](https://www.hespress.com/%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86-%D9%8A%D8%B6%D8%B9-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%B9%D9%84-1426673.html)
+- **موعد مباراة المغرب ضد الغابون بتصفيات كأس أمم أفريقيا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/9/5/morocco-gabon)
+- **تشكيلة المنتخب المغربي المتوقعة لمباراة الغابون**: [Link](https://ar.hibapress.com/details-548640.html)
+
+
 ### renault r17 (N/A, Fri, 6 Sep 2024 02:40:00 -0700)
 
 - **Renault Gives the R17 the EV Treatment with Sleek Restomod**: [Link](https://www.caranddriver.com/news/a62068853/renault-r17-electric-restomod-concept-specs-details/)
