@@ -1,3 +1,13 @@
+### megarama (N/A, Fri, 6 Sep 2024 10:00:00 -0700)
+
+- **Une société de distribution autour des films LGBT+ lancée par un habitant 
+de Dieppe**: [Link](https://actu.fr/normandie/dieppe_76217/une-societe-de-distribution-autour-des-films-lgbt-lancee-par-un-habitant-de-dieppe_61554587.html)
+- **Inoxtag : Kaizen, son film sur l’Everest, fait planter les sites de cinéma**: [Link](https://www.mon-sejour-en-montagne.com/actualites/inoxtag-kaizen-son-film-sur-l-everest-fait-planter-les-sites-de-cinema/)
+- **"Vous avez fait crash Allociné", les fans se ruent sur les billets du 
+documentaire d’Inoxtag au point de faire "buguer les sites de plateformes 
+de cinéma"**: [Link](https://www.lindependant.fr/2024/09/05/vous-avez-fait-crash-allocine-les-fans-se-ruent-sur-les-billets-du-documentaire-dinoxtag-au-point-de-faire-buguer-les-sites-de-plateformes-de-cinema-12177976.php)
+
+
 ### خريطة المغرب نتنياهو (N/A, Fri, 6 Sep 2024 06:40:00 -0700)
 
 - **لماذا أثارت خريطة نتنياهو غضب المغاربة؟**: [Link](https://www.aljazeera.net/news/2024/9/5/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A3%D8%AB%D8%A7%D8%B1%D8%AA-%D8%AE%D8%A7%D8%B1%D8%B7%D8%A9-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%BA%D8%B6%D8%A8-2)
