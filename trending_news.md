@@ -1,3 +1,24 @@
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Fri, 6 Sep 2024 10:30:00 -0700)
+
+
+
+
+### frmf (N/A, Fri, 6 Sep 2024 10:30:00 -0700)
+
+- **Tournoi de développement des talents de la FIFA: composition de la 
+sélection nationale U17 face à la zambie**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17/)
+- **Les Lionceaux de l’Atlas tombent d’entrée au Tournoi de développement des 
+Talents de la FIFA**: [Link](https://www.mountakhab.net/les-lionceaux-de-latlas-tombent-dentree-au-tournoi-de-developpement-des-talents-de-la-fifa/)
+- **L'équipe d'Algérie concède une nouvelle défaite !**: [Link](https://fennecfootball.com/lequipe-dalgerie-concede-une-nouvelle-defaite/)
+
+
+### match today (N/A, Fri, 6 Sep 2024 10:20:00 -0700)
+
+- **Vitality Blast QF preview | Birmingham Bears vs Gloucestershire**: [Link](https://www.gloscricket.co.uk/news/vitality-blast-qf-preview-birmingham-bears-vs-gloucestershire/)
+- **Birmingham Bears' Jacob Bethell & Dan Mousley seek Finals Day & England 
+double**: [Link](https://www.bbc.com/sport/cricket/articles/ce81kjwr62zo)
+
+
 ### koora (N/A, Fri, 6 Sep 2024 10:10:00 -0700)
 
 - **دي بروين في تصريحات نارية: المال يتحدث نيابة عن الفيفا ويويفا**: [Link](https://www.kooora.com/?n=1353081)
