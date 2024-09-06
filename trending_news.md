@@ -1,3 +1,25 @@
+### زياش (N/A, Fri, 6 Sep 2024 13:00:00 -0700)
+
+- **زياش باق بتركيا وغلطة سراي يكذب شائعات رحيله**: [Link](https://www.almountakhab.com/node/13203994)
+- **خطوة مفاجأة جديدة من غلطة سراي تثير الشكوك حول مستقبل زياش**: [Link](http://ar.sport.le360.ma/marocains-du-monde/158424)
+- **غلطة سراي يقطع الشك باليقين بخصوص رحيل زياش**: [Link](https://m.alayam24.com/articles-524601.html)
+
+
+### weather tomorrow (N/A, Fri, 6 Sep 2024 12:50:00 -0700)
+
+- **Wet conditions are here to stay**: [Link](https://www.wdsu.com/article/wet-conditions-are-here-to-stay/62083208)
+- **Flood risk lingers into the weekend**: [Link](https://www.fox8live.com/2024/09/06/flood-risk-lingers-into-weekend/)
+- **Large Storm Could Bring 10 Inches of Rain to Parts of Gulf Coast**: [Link](https://www.nytimes.com/2024/09/05/us/storm-system-louisiana-flooding.html)
+
+
+### hakim ziyech (N/A, Fri, 6 Sep 2024 12:30:00 -0700)
+
+- **Hakim Ziyech Nears Transfer from Galatasaray to Qatar’s Al-Arabi**: [Link](https://www.moroccoworldnews.com/2024/09/364962/hakim-ziyech-nears-transfer-from-galatasaray-to-qatars-al-arabi)
+- **In the opponent's camp. Hakim Ziyes plans to terminate his contract with 
+Galatasaray (Sept. 4, 2024)**: [Link](https://dynamo.kiev.ua/en/news/607065-in-the-opponents-camp-hakim-ziyes-plans-to-terminate-his-contract-with-galatasaray)
+- **Hakim Ziyech set to leave Galatasaray**: [Link](https://www.turkiyetoday.com/sports/hakim-ziyech-set-to-leave-galatasaray-48529/)
+
+
 ### brahim diaz (N/A, Fri, 6 Sep 2024 12:30:00 -0700)
 
 - **Tuttosport: Milan could have bought Real Madrid playmaker on ‘favourable 
