@@ -1,3 +1,12 @@
+### morocco (N/A, Fri, 6 Sep 2024 05:20:00 -0700)
+
+- **Israel Reaffirms Moroccan Sovereignty of Western Sahara After Netanyahu 
+Gaffe**: [Link](https://www.haaretz.com/israel-news/2024-09-05/ty-article/.premium/israel-reaffirms-moroccan-sovereignty-of-western-sahara-after-netanyahu-gaffe/00000191-c25b-d870-a59d-e67b87690000)
+- **Netanyahu says map he displayed showing Western Sahara as separate from 
+Morocco was a mistake**: [Link](https://www.middleeasteye.net/news/netanyahu-israel-mistakenly-showed-western-sahara-morocco-separate-map)
+- **Netanyahu Displays Truncated Moroccan Map, Reigniting Tensions with Morocco**: [Link](https://www.moroccoworldnews.com/2024/09/364971/netanyahu-displays-truncated-moroccan-map-reigniting-tensions-with-morocco)
+
+
 ### jakob ingebrigtsen (N/A, Fri, 6 Sep 2024 03:00:00 -0700)
 
 - **Ingebrigtsen and Kerr left trailing by Nuguse’s sprint in Olympic rematch**: [Link](https://www.theguardian.com/sport/article/2024/sep/05/ingebrigtsen-and-kerr-left-trailing-by-nuguses-sprint-in-olympic-rematch)
