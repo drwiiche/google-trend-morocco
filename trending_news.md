@@ -1,3 +1,10 @@
+### premier ministre michel barnier (N/A, Fri, 6 Sep 2024 07:40:00 -0700)
+
+- **Le gouvernement Barnier peut-il échapper à la censure de l’Assemblée nationale ? Testez notre simulateur**: [Link](https://www.lemonde.fr/les-decodeurs/article/2024/09/06/le-gouvernement-barnier-peut-il-echapper-a-la-censure-de-l-assemblee-nationale-testez-notre-simulateur_6305669_4355770.html)
+- **«Comment on a pu passer à côté de l'histoire ?» : Hidalgo estime que le PS a empêché la nomination d'un premier ministre de gauche**: [Link](https://www.lefigaro.fr/politique/comment-on-a-pu-passer-a-cote-de-l-histoire-hidalgo-estime-que-le-ps-a-empeche-la-nomination-d-un-premier-ministre-de-gauche-20240906)
+- **Lucie Castets : « Michel Barnier, c’est la poursuite de la politique de Macron, voire pire »**: [Link](https://www.mediapart.fr/journal/politique/050924/lucie-castets-michel-barnier-c-est-la-poursuite-de-la-politique-de-macron-voire-pire)
+
+
 ### maarifi imane infirmière (N/A, Fri, 6 Sep 2024 07:30:00 -0700)
 
 - **Veut-on faire taire Imane Maarifi l'infirmière qui a témoigné de l'enfer de 
