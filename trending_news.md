@@ -1,3 +1,20 @@
+### sénégal – burkina faso (N/A, Fri, 6 Sep 2024 11:40:00 -0700)
+
+- **Eliminatoires CAN 2025 : Les Lions au complet avant le duel face au Burkina 
+Faso**: [Link](https://wiwsport.com/2024/09/05/eliminatoires-can-2025-les-lions-au-complet-avant-le-duel-face-au-burkina-faso/)
+- **VIDEO / Sénégal-Burkina : Moussa Niakhaté se projette sur le match et 
+décline ses ambitions à Lyon**: [Link](https://aps.sn/senegal-burkina-moussa-niakhate-joue-le-match-et-decline-ses-ambitions-a-lyon/)
+- **L'OBJECTIF D'UN LION**: [Link](https://www.seneplus.com/sports/lobjectif-dun-lion)
+
+
+### مباراة التعليم (N/A, Fri, 6 Sep 2024 11:00:00 -0700)
+
+- **بنموسى: الإحصاء عملية وطنية ومشاركة الأساتذة لن تؤثر على الأقسام**: [Link](https://ar.hibapress.com/details-548657.html)
+- **بنموسى يعلق على مشاركة الأساتذة في الإحصاء ويقول إن وزارته مولت شراء أجهزة 
+الـ »تابليت » – اليوم 24**: [Link](https://alyaoum24.com/1913685.html)
+- **بنموسى و"أساتذة الإحصاء"**: [Link](https://www.hespress.com/%D8%A8%D9%86%D9%85%D9%88%D8%B3%D9%89-%D9%88%D8%A3%D8%B3%D8%A7%D8%AA%D8%B0%D8%A9-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-1427057.html)
+
+
 ### koora tv (N/A, Fri, 6 Sep 2024 11:30:00 -0700)
 
 - **ريال مدريد يستقبل نبأ إصابة ميليتاو بغضب وسخرية**: [Link](https://www.kooora.com/?n=1353053)
