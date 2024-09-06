@@ -1,3 +1,11 @@
+### bim (N/A, Fri, 6 Sep 2024 00:20:00 -0700)
+
+- **BİM 10 Eylül 2024 aktüel ürünler kataloğu! BİM’e yeni gelecek indirimli 
+ürünler listesi**: [Link](https://www.bayburtmedya.com/bim-10-eylul-2024-aktuel-urunler-katalogu-bime-yeni-gelecek-indirimli-urunler-listesi/96244/)
+- **BİM’de katlanabilir elektrikli bisiklet kampanyası**: [Link](https://gazetesehir.com/haber/21489453/bimde-katlanabilir-elektrikli-bisiklet-kampanyasi)
+- **BİM ete doyuracak! 1 kilo dana kıyma 349.00 TL, kasap köfte 107.50 TL...**: [Link](https://www.ensonhaber.com/bilgi/bim-ete-doyuracak-1-kilo-dana-kiyma-34900-tl-kasap-kofte-10750-tl)
+
+
 ### الطقس (N/A, Thu, 5 Sep 2024 22:50:00 -0700)
 
 - **الأرصاد: تساقطات مطرية رعدية بالمغرب**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1426804.html)
