@@ -1,3 +1,12 @@
+### eliminatoire can 2025 (N/A, Fri, 6 Sep 2024 14:10:00 -0700)
+
+- **Éliminatoires CAN 2025: le Maroc et l'Égypte se baladent, le Sénégal et le 
+Mali déçoivent**: [Link](https://www.rfi.fr/fr/afrique-foot/20240906-%C3%A9liminatoires-can-2025-le-maroc-et-l-%C3%A9gypte-se-baladent-le-s%C3%A9n%C3%A9gal-et-le-mali-d%C3%A9%C3%A7oivent)
+- **Début des éliminatoires de la Coupe d'Afrique des Nations CAF TotalEnergies 
+Maroc 2025**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/debut-des-eliminatoires-de-la-coupe-dafrique-des-nations-caf-totalenergies-maroc-2025/)
+- **CAN 2025 au Maroc: stades, dates clés… tout ce qu’il faut savoir**: [Link](https://www.h24info.ma/can-2025-au-maroc-stades-dates-cles-tout-ce-quil-faut-savoir/)
+
+
 ### ورزازات (N/A, Fri, 6 Sep 2024 15:30:00 -0700)
 
 - **ورزازات تواجه تساقطات مطرية غزيرة**: [Link](https://www.hespress.com/%D9%88%D8%B1%D8%B2%D8%A7%D8%B2%D8%A7%D8%AA-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-1427312.html)
