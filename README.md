@@ -1,3 +1,52 @@
+### مباريات اليوم مباشر (N/A, Fri, 6 Sep 2024 10:40:00 -0700)
+
+- **مواعيد مباريات اليوم الجمعة في تصفيات أمم إفريقيا ودوري الأمم الأوروبية**: [Link](https://www.vetogate.com/5231672)
+- **ابرز الاحداث الرياضية ليوم الجمعة في 06-09-2024 - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/172975/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%81%D9%8A-06-09-2024---AARC-%D9%85%D8%B5%D8%B1.html)
+- **"تعادل فلسطين وفوز البرتغال".. نتائج مباريات أمس بمختلف البطولات ..رياضة**: [Link](https://ar.pressbee.net/show8593116.html)
+
+
+### kooora.com (N/A, Fri, 6 Sep 2024 10:40:00 -0700)
+
+- **بالصور: مونديال السعودية 2034.. 15 ملعبًا أيقونيًا في 5 مدن**: [Link](https://www.kooora.com/?n=1353014)
+- **شركة الدار تقدم استراتيجية مفصّلة للتصميم والاستدامة لمشروع ملعب أرامكو 
+الجديد بمدينة الخبر**: [Link](https://www.ajmannews.ae/news.php?id=126861&cat_id=3)
+- **أذهل العالم بتصميمه .. شاهد أولى صور استاد أرامكو في السعودية استعدادا لكاس 
+العالم 2034**: [Link](https://saudiawindow.com/news10398.html)
+
+
+### africa cup of nations qualification (N/A, Fri, 6 Sep 2024 10:40:00 -0700)
+
+- **AFCON 2025 qualifiers: Seven matches to watch as road to Morocco begins**: [Link](https://www.cafonline.com/caf-africa-cup-of-nations/news/afcon-2025-qualifiers-seven-matches-to-watch-as-road-to-morocco-begins/)
+- **Preview: Sudan vs. Niger - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sudan/africa-cup-of-nations/preview/preview-sudan-vs-niger-prediction-team-news-lineups_552032.html)
+- **FULL LIST: 2025 Africa Cup of Nations qualifying tables**: [Link](https://punchng.com/full-list-2025-africa-cup-of-nations-qualifying-tables/)
+
+
+### جدول مباريات اليوم (N/A, Fri, 6 Sep 2024 10:40:00 -0700)
+
+- **جدول مباريات وترتيب برشلونة في دوري أبطال أوروبا 2024-2025.. والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1353066)
+- **كارفخال يكشف عن رأيه في النظام الجديد لدوري أبطال أوروبا**: [Link](https://hihi2.com/2024/09/05/p2832894.html)
+- **دوري أبطال أوروبا.. ما علاقة الشطرنج وسويسرا بالنظام الجديد؟**: [Link](https://www.alriyadh.com/2093211)
+
+
+### michèle alliot marie (N/A, Fri, 6 Sep 2024 10:30:00 -0700)
+
+- **L’ex-ministre Michèle Alliot-Marie condamnée à six mois de prison avec 
+sursis pour prise illégale d’intérêts**: [Link](https://www.lemonde.fr/politique/article/2024/09/06/l-ex-ministre-michele-alliot-marie-condamnee-a-six-mois-de-prison-avec-sursis-pour-prise-illegale-d-interets_6305678_823448.html)
+- **L'ancienne ministre Michèle Alliot-Marie condamnée à six mois de prison 
+avec sursis pour prise illégale d'intérêts**: [Link](https://www.francetvinfo.fr/faits-divers/justice-proces/l-ancienne-ministre-michele-alliot-marie-condamnee-a-six-mois-de-prison-avec-sursis-pour-prise-illegale-d-interets_6766645.html)
+- **L’ancienne ministre Michèle Alliot-Marie condamnée à six mois de prison 
+avec sursis**: [Link](https://www.lefigaro.fr/politique/michele-alliot-marie-condamnee-a-six-mois-de-prison-avec-sursis-20240906)
+
+
+### وزارة التربية الوطنية (N/A, Fri, 6 Sep 2024 10:30:00 -0700)
+
+- **بنموسى يحذر كبار المسؤولين في وزارة التربية الوطنية الإقتراب من المال العام 
+لتفادي تكرار فضيحة المخطط الإستعجالي**: [Link](https://rue20.com/835036.html)
+- **ندوة صحفية لوزير التربية الوطنية**: [Link](https://snrtnews.com/live/ndwt-shfyt-lwzyr-altrbyt-alwtnyt-102613)
+- **18 الف مدرس جديد و189 مؤسسة جديدة.. بنموسى يستعرض مستجدات الموسم الدراسي**: [Link](https://ar.hibapress.com/details-548639.html)
+
+
 ### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Fri, 6 Sep 2024 10:30:00 -0700)
 
 
