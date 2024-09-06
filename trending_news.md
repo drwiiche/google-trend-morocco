@@ -1,3 +1,11 @@
+### maroc (N/A, Fri, 6 Sep 2024 06:20:00 -0700)
+
+- **À quelle heure et sur quelle chaîne regarder le match Maroc - Gabon ?**: [Link](https://www.20minutes.fr/guide-achat/4108524-20240906-maroc-gabon-heure-chaine-regarder-match-vendredi)
+- **Qualifs CAN 2025, Maroc : Walid Regragui encore attendu au tournant**: [Link](https://www.footmercato.net/a2527613560671508621-qualifs-can-2025-maroc-walid-regragui-encore-attendu-au-tournant)
+- **Qualifications CAN 2025 : J'espère que tous les joueurs évolueront au 
+niveau de Hakimi (Regragui)**: [Link](https://lematin.ma/sports/jespere-que-tous-les-joueurs-evolueront-au-niveau-de-hakimi-regragui/241844)
+
+
 ### morocco (N/A, Fri, 6 Sep 2024 05:20:00 -0700)
 
 - **Israel Reaffirms Moroccan Sovereignty of Western Sahara After Netanyahu 
