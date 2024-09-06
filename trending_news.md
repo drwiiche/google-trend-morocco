@@ -1,3 +1,11 @@
+### uruguay – paraguay (N/A, Fri, 6 Sep 2024 16:00:00 -0700)
+
+- **Preview: Uruguay vs. Paraguay - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/uruguay/preview/preview-uruguay-vs-paraguay-prediction-team-news-lineups_552138.html)
+- **Uruguay vs Paraguay Prediction and Betting Tips | September 6th 2024**: [Link](https://www.sportskeeda.com/football/uruguay-vs-paraguay-prediction-betting-tips-september-6th-2024)
+- **Football Bet of the Day: Uruguay to be too strong for poor-travelling 
+Paraguay**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-uruguay-to-be-too-strong-for-poor-travelling-paraguay/)
+
+
 ### eliminatoire can 2025 (N/A, Fri, 6 Sep 2024 14:10:00 -0700)
 
 - **Éliminatoires CAN 2025: le Maroc et l'Égypte se baladent, le Sénégal et le 
