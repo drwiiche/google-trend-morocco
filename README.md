@@ -1,3 +1,24 @@
+### koora tv (N/A, Fri, 6 Sep 2024 11:30:00 -0700)
+
+- **ريال مدريد يستقبل نبأ إصابة ميليتاو بغضب وسخرية**: [Link](https://www.kooora.com/?n=1353053)
+- **روديغر يزيد من مصائب ريال مدريد**: [Link](https://hihi2.com/2024/09/06/p2834840.html)
+- **لعنة التوقف الدولي.. إصابة جديدة تضرب صفوف ريال مدريد**: [Link](https://www.btolat.com/news/351450)
+
+
+### sports (N/A, Fri, 6 Sep 2024 11:30:00 -0700)
+
+- **Fantasy Football Week 1 Rankings: WRs (Half-PPR)**: [Link](https://sports.yahoo.com/fantasy-football-week-1-rankings-wrs-half-ppr-174110476.html)
+- **7 keys to winning your Week 1 fantasy football matchup**: [Link](https://sports.yahoo.com/7-keys-to-winning-your-week-1-fantasy-football-matchup-162358498.html)
+- **The Playbook: Your fantasy football guide for Week 1 games**: [Link](https://www.espn.com/fantasy/football/insider/story/_/id/41026668/nfl-fantasy-football-2024-ultimate-playbook-projections-win-probabilities-week-1-mike-clay)
+
+
+### بث مباشر (N/A, Fri, 6 Sep 2024 11:10:00 -0700)
+
+- **رونالدو: تتويجنا باليورو يعادل الفوز بكأس العالم**: [Link](https://www.kooora.com/?n=1352959)
+- **رونالدو يتفاعل مع بيان ريال مدريد بشأن إنجازه التاريخي.. صورة**: [Link](https://hihi2.com/2024/09/06/p2835853.html)
+- **أين يقف ميسي بعد تسجيل رونالدو 900 هدف؟**: [Link](https://arabic.cnn.com/sport/article/2024/09/06/messi-number-goals-vs-ronaldo-900-comparasion)
+
+
 ### الرياضية مباشر (N/A, Fri, 6 Sep 2024 11:20:00 -0700)
 
 - **دي لا فوينتي: إصابة مهاجم إسبانيا سيئة**: [Link](https://m.kooora.com/?n=1352977&o=n)
