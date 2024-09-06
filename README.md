@@ -1,3 +1,34 @@
+### match live (N/A, Fri, 6 Sep 2024 12:10:00 -0700)
+
+- **Goals and Best moments: South Africa 2-2 Uganda in African Cup of Nations 
+Qualifiers**: [Link](https://www.vavel.com/en-us/soccer/2024/09/06/1195296-south-africa-vs-uganda-live-score-updates-stream-info-and-how-to-watch-african-qualifiers-match.html)
+- **Bafana Bafana battle back to deny Uganda in their opening 2025 Africa Cup 
+of Nations qualifier**: [Link](https://www.goal.com/en/lists/bafana-bafana-battle-back-to-deny-uganda-in-their-opening-2025-africa-cup-of-nations-qualifier/bltcb932993ce87aabd)
+- **NKARENG MATSHE | Williams' absence shows we're sitting on keeper crisis**: [Link](https://www.sowetanlive.co.za/sport/soccer/2024-09-06-nkareng-matshe-williams-absence-shows-were-sitting-on-keeper-crisis/)
+
+
+### live (N/A, Fri, 6 Sep 2024 12:10:00 -0700)
+
+- **Ferris Wheel Cabins No Match For Typhoon Yagi**: [Link](https://weather.com/news/weather/video/typhoon-yagi-ferris-wheel-cabins-blow-around-hainan-china)
+- **Yagi: China evacuates 410,000 ahead of super typhoon**: [Link](https://www.bbc.com/news/articles/c4gz3rk71n7o)
+- **Securities and Derivatives Market Trading Arrangements under Typhoon Signal 
+No. 8**: [Link](https://www.hkex.com.hk/News/Market-Communications/2024/240906news?sc_lang=en)
+
+
+### ytv (N/A, Fri, 6 Sep 2024 12:10:00 -0700)
+
+- **天理 車や運転手に向けレーザー光線照射の疑い 会社員を逮捕**: [Link](https://www3.nhk.or.jp/lnews/nara/20240905/2050016861.html)
+- **無免許運転で対向車などにレーザーポインターを照射 29歳の男を逮捕「失明させるつもりでやった」**: [Link](https://news.ntv.co.jp/n/ytv/category/society/yt08e59c3c06484d28b2c12926ddb8e502)
+
+
+### ko (N/A, Fri, 6 Sep 2024 12:00:00 -0700)
+
+- **Former Taiwan presidential candidate suspected in corruption case is sent 
+back to jail**: [Link](https://apnews.com/article/taiwan-corruption-ko-detention-cf2a8e014ffa81cb708e0570be7be7e2)
+- **Taiwan's Ko Wen-je accuses government of witch hunt ahead of fresh arrest**: [Link](https://asia.nikkei.com/Editor-s-Picks/Interview/Taiwan-s-Ko-Wen-je-accuses-government-of-witch-hunt-ahead-of-fresh-arrest)
+- **Ko Wen-je release quashed**: [Link](https://www.taipeitimes.com/News/front/archives/2024/09/05/2003823293)
+
+
 ### francia - italia (N/A, Fri, 6 Sep 2024 12:00:00 -0700)
 
 - **En qué canal pasan Francia vs. Italia por la Liga de Naciones hoy**: [Link](https://www.lanacion.com.ar/deportes/futbol/en-que-canal-pasan-francia-vs-italia-por-la-liga-de-naciones-hoy-nid06092024/)
