@@ -1,3 +1,13 @@
+### afrique du sud – ouganda (N/A, Fri, 6 Sep 2024 08:40:00 -0700)
+
+- **Afrique du Sud - Ouganda en direct - Qualifications CAN : Football Scores & 
+Résultats - 06/09/2024**: [Link](https://www.eurosport.fr/football/qualifications-can/2025/live-afrique-du-sud-ouganda_mtc1509888/live.shtml)
+- **Eliminatoires CAN 2025 - Afrique du Sud : Hugo Broos vise une belle entrée 
+avec les Bafana Bafana**: [Link](https://africafootunited.com/eliminatoires-can-2025-afrique-du-sud-hugo-broos-vise-une-belle-entree-avec-les-bafana-bafana/)
+- **Afrique du Sud – Ouganda : Chaîne, streaming, où voir le match en France ? 
+| Football**: [Link](https://www.hommedumatch.fr/p-2791290)
+
+
 ### premier ministre michel barnier (N/A, Fri, 6 Sep 2024 07:40:00 -0700)
 
 - **Le gouvernement Barnier peut-il échapper à la censure de l’Assemblée nationale ? Testez notre simulateur**: [Link](https://www.lemonde.fr/les-decodeurs/article/2024/09/06/le-gouvernement-barnier-peut-il-echapper-a-la-censure-de-l-assemblee-nationale-testez-notre-simulateur_6305669_4355770.html)
