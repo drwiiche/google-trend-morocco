@@ -1,3 +1,13 @@
+### الطقس غدًا (N/A, Fri, 6 Sep 2024 13:00:00 -0700)
+
+- **«نهاية الأيام العجاف».. مفاجأة بشأن حالة الطقس الأسبوع القادم ودرجات 
+الحرارة (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3253991)
+- **طقس القاهرة الكبري .. الأرصاد تبشر بأجواء لطيفة.. وتحذر: سحب منخفضة على بعض 
+المناطق**: [Link](https://www.masrawy.com/news/news_egypt/details/2024/9/6/2638442/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%A8%D8%B4%D8%B1-%D8%A8%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D9%84%D8%B7%D9%8A%D9%81%D8%A9-%D9%88%D8%AA%D8%AD%D8%B0%D8%B1-%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D8%B9%D9%84%D9%89-%D8%A8%D8%B9%D8%B6-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-)
+- **الأرصاد: ظاهرة جوية تجتاح هذه المحافظات اليوم الجمعة.. وتصل إلى القاهرة 
+الكبرى**: [Link](https://zahraa.mr/3167495/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AC%D8%AA%D8%A7%D8%AD-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%81%D8%B8%D8%A7/)
+
+
 ### belgium vs israel (N/A, Fri, 6 Sep 2024 13:10:00 -0700)
 
 - **Preview: Belgium vs. Israel - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/belgium/uefa-nations-league/preview/preview-belgium-vs-israel-prediction-team-news-lineups_552137.html)
