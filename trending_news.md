@@ -1,3 +1,11 @@
+### argentine foot (N/A, Thu, 5 Sep 2024 16:50:00 -0700)
+
+- **Ballon d’Or 2024 : les trois favoris sont déjà connus !**: [Link](https://www.footmercato.net/a4571760478294017004-ballon-dor-2024-les-trois-favoris-sont-deja-connus)
+- **Ballon d'or 2024 - Liste des 30 : Messi-Ronaldo absents, vainqueur 
+inédit... Une nouvelle ère s'ouvre**: [Link](https://www.eurosport.fr/football/ballon-dor-2024-liste-des-30-messi-ronaldo-absents-vainqueur-inedit...-une-nouvelle-ere-souvre_sto20034604/story.shtml)
+- **Ballon d'Or 2024 : la liste complète des nommés (Foot)**: [Link](https://www.lequipe.fr/Football/Actualites/Ballon-d-or-2024-la-liste-complete-des-nommes/1505785)
+
+
 ### الأرجنتين ضد تشيلي (N/A, Thu, 5 Sep 2024 16:20:00 -0700)
 
 - **موعد مباراة الأرجنتين وتشيلي في تصفيات كأس العالم 2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1352633)
