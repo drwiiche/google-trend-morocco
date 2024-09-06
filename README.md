@@ -1,3 +1,50 @@
+### francia - italia (N/A, Fri, 6 Sep 2024 12:00:00 -0700)
+
+- **En qué canal pasan Francia vs. Italia por la Liga de Naciones hoy**: [Link](https://www.lanacion.com.ar/deportes/futbol/en-que-canal-pasan-francia-vs-italia-por-la-liga-de-naciones-hoy-nid06092024/)
+- **¿Cuál es la diferencia entre la UEFA Nations League y la Eurocopa?**: [Link](https://www.goal.com/es-ar/listados/diferencia-uefa-nations-league-eurocopa/bltdb8484a1c375a4d0)
+- **Francia - Italia: horario, TV, cómo y dónde ver en directo la UEFA Nations 
+League**: [Link](https://as.com/futbol/internacional/francia-italia-horario-tv-como-y-donde-ver-en-directo-la-uefa-nations-league-n/)
+
+
+### côte d'ivoire – zambie (N/A, Fri, 6 Sep 2024 11:50:00 -0700)
+
+- **CAN 2025 au Maroc : la CAF fait un clin d'oeil à l'Algérie**: [Link](https://fennecfootball.com/can-2025-au-maroc-la-caf-fait-un-clin-doeil-a-algerie/)
+- **Côte d’Ivoire - Zambie. À quelle heure et sur quelle chaîne suivre le match 
+éliminatoire à la CAN ?**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/cote-divoire-zambie-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-eliminatoire-a-la-can-5b90e54a-6b8c-11ef-87ff-6b83746dd621)
+- **El. CAN 2025 : Emerse Faé : « Nous avons un titre à défendre »**: [Link](https://www.sport-ivoire.ci/football-can/el-can-2025-emerse-fa%C3%A9-%C2%AB%C2%A0nous-avons-un-titre-%C3%A0-d%C3%A9fendre%C2%A0%C2%BB)
+
+
+### syria live (N/A, Fri, 6 Sep 2024 11:50:00 -0700)
+
+- **Syria knock out Mauritius to make Blue Tigers' task tougher**: [Link](https://www.the-aiff.com/article/syria-knock-out-mauritius-to-make-blue-tigers-task-tougher)
+- **Syria announce 23-man squad for Intercontinental Cup 2024; Mohammed Dahoud 
+excluded**: [Link](https://khelnow.com/football/indian-football-syria-announce-squad-intercontinental-cup-202408)
+- **Confident Mauritius take on new-look Syria**: [Link](https://www.the-aiff.com/article/confident-mauritius-take-on-new-look-syria)
+
+
+### مصر ضد الرأس الأخضر (N/A, Fri, 6 Sep 2024 11:40:00 -0700)
+
+- **حسام حسن يدافع عن قراره قبل لقاء كاب فيردي**: [Link](https://www.kooora.com/?n=1352872)
+- **إحداها مفتوحة.. القنوات الناقلة لمباراة منتخب مصر والمعلق**: [Link](https://www.almasryalyoum.com/news/details/3253984)
+- **تريزيجيه: "لا نسعى فقط للتأهل إلى كأس أمم أفريقيا المقبلة بالمغرب إنما 
+هدفنا التتويج باللقب"**: [Link](https://m.elbotola.com/article/2024-09-05-16-42-394.html)
+
+
+### يلا كورة مباريات اليوم (N/A, Fri, 6 Sep 2024 11:10:00 -0700)
+
+- **أوباما يوجه رسالة وداع لجمهور الزمالك**: [Link](https://www.kooora.com/?n=1352906)
+- **بيراميدز يضم يوسف أوباما في صفقة انتقال حر**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%8A%D8%B6%D9%85-%D9%8A%D9%88%D8%B3%D9%81-%D8%A3%D9%88%D8%A8%D8%A7%D9%85%D8%A7-%D9%81%D9%8A-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%AD%D8%B1-2024-09-06)
+- **بيراميدز المصري يتعاقد مع أوباما في صفقة انتقال حر**: [Link](https://arabi21.com/story/1623372/%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A3%D9%88%D8%A8%D8%A7%D9%85%D8%A7-%D9%81%D9%8A-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%AD%D8%B1)
+
+
+### كورة مباشر (N/A, Fri, 6 Sep 2024 11:00:00 -0700)
+
+- **محرز: افتقدت هذا الشعور طويلًا مع المنتخب**: [Link](https://www.kooora.com/?n=1352964)
+- **منتخب الجزائر يستهل التصفيات بالفوز**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D9%81%D9%88%D8%B2-2024-09-05)
+- **استفاد المنتخب الجزائري، من ركلة جزاء، بعد دفع أحد مدافعي منتخب غينيا 
+الإستوائية للمهاجم، بونجاح، في منطقة الجزاء.**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%AD%D9%82%D9%82-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7-%D8%AB%D9%85%D9%8A%D9%86%D8%A7-%D8%B9%D9%84%D9%89-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%A5%D8%B3%D8%AA%D9%88%D8%A7%D8%A6%D9%8A%D8%A9-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D8%AA%D9%81%D9%88%D8%B2-%D8%A8%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%AF%D8%BA%D8%B4%D9%82%D8%B1-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/)
+
+
 ### sénégal – burkina faso (N/A, Fri, 6 Sep 2024 11:40:00 -0700)
 
 - **Eliminatoires CAN 2025 : Les Lions au complet avant le duel face au Burkina 
