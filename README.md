@@ -1,3 +1,10 @@
+### belgium vs israel (N/A, Fri, 6 Sep 2024 13:10:00 -0700)
+
+- **Preview: Belgium vs. Israel - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/belgium/uefa-nations-league/preview/preview-belgium-vs-israel-prediction-team-news-lineups_552137.html)
+- **Football Bet of the Day: Back Red Devils to entertain**: [Link](https://onefootball.com/en/news/football-bet-of-the-day-back-red-devils-to-entertain-39999245)
+- **Ben Shimon leads blue-and-white into Nations League duels vs Belgium, Italy**: [Link](https://www.jpost.com/israel-news/sports/article-818947)
+
+
 ### زياش (N/A, Fri, 6 Sep 2024 13:00:00 -0700)
 
 - **زياش باق بتركيا وغلطة سراي يكذب شائعات رحيله**: [Link](https://www.almountakhab.com/node/13203994)
