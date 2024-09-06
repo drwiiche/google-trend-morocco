@@ -1,3 +1,12 @@
+### maarifi imane infirmière (N/A, Fri, 6 Sep 2024 07:30:00 -0700)
+
+- **Veut-on faire taire Imane Maarifi l'infirmière qui a témoigné de l'enfer de 
+Gaza ?**: [Link](https://www.humanite.fr/societe/femme-du-jour/veut-on-faire-taire-imane-maarifi-linfirmiere-qui-a-temoigne-de-lenfer-de-gaza)
+- **France : une infirmière connue pour son soutien à la Palestine placée en 
+garde à vue**: [Link](https://www.aa.com.tr/fr/monde/france-une-infirmi%C3%A8re-connue-pour-son-soutien-%C3%A0-la-palestine-plac%C3%A9e-en-garde-%C3%A0-vue/3322522)
+- **France : Imane Maarifi, une infirmière témoin de l’enfer de Gaza, arrêtée**: [Link](https://www.tsa-algerie.com/france-imane-maarifi-une-infirmiere-temoin-de-lenfer-de-gaza-arretee/)
+
+
 ### maroc (N/A, Fri, 6 Sep 2024 06:20:00 -0700)
 
 - **À quelle heure et sur quelle chaîne regarder le match Maroc - Gabon ?**: [Link](https://www.20minutes.fr/guide-achat/4108524-20240906-maroc-gabon-heure-chaine-regarder-match-vendredi)
