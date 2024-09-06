@@ -1,3 +1,12 @@
+### sinner (N/A, Fri, 6 Sep 2024 14:40:00 -0700)
+
+- **US Open: Jessica Pegula defeats Karolina Muchova in second semi-final after 
+Sabalenko victory**: [Link](https://sports.yahoo.com/emma-navarro-v-aryna-sabalenka-212149441.html)
+- **US Open 2024: How does Jack Draper beat Jannik Sinner in New York 
+semi-final?**: [Link](https://www.bbc.com/sport/tennis/articles/cj623yznn86o)
+- **Fritz vs Tiafoe; when to watch the US Open semifinal**: [Link](https://www.northjersey.com/story/sports/2024/09/06/taylor-fritz-vs-francis-tiafoe-when-to-watch-us-open-match/75097201007/)
+
+
 ### belgique foot (N/A, Fri, 6 Sep 2024 14:20:00 -0700)
 
 - **Belgique 3-1 Israël, Ligue des nations A : La Belgique l'emporte contre Israël !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/belgique-israel-live/632619)
