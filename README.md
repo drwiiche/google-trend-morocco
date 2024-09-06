@@ -1,3 +1,51 @@
+### ليسوتو (N/A, Fri, 6 Sep 2024 14:00:00 -0700)
+
+- **المغرب ينتظر خبرًا سارًا قبل مواجهة ليسوتو**: [Link](https://www.kooora.com/?n=1353052)
+- **منافس الأسود القادم خسر أولى جولات التصفيات الإفريقية**: [Link](https://www.almountakhab.com/node/16203948)
+- **مدرب ليسوتو يعترف قبل مواجهة المغرب في التصفيات المؤهلة لـ...**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/444057.html)
+
+
+### نتائج مباريات اليوم (N/A, Fri, 6 Sep 2024 14:00:00 -0700)
+
+- **جدول مباريات وترتيب برشلونة في دوري أبطال أوروبا 2024-2025.. والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1353066)
+- **كارفخال يكشف عن رأيه في النظام الجديد لدوري أبطال أوروبا**: [Link](https://hihi2.com/2024/09/05/p2832894.html)
+- **دوري أبطال أوروبا.. ما علاقة الشطرنج وسويسرا بالنظام الجديد؟**: [Link](https://www.alriyadh.com/2093211)
+
+
+### ounahi (N/A, Fri, 6 Sep 2024 13:50:00 -0700)
+
+- **Marseille’s Azzedine Ounahi chooses Panathinaikos over Olympiacos**: [Link](https://www.getfootballnewsfrance.com/2024/marseilles-azzedine-ounahi-chooses-panathinaikos-over-olympiacos/)
+- **Al-Sadd is close to annexing the Moroccan star**: [Link](https://www.ysscores.com/en/news/3270566/Al-Sadd-is-close-to-annexing-the-Moroccan-star)
+- **The unexpected fate of the player who charmed Luis Enrique**: [Link](https://www.fichajes.net/en/news/the-unexpected-fate-of-the-player-who-charmed-luis-enrique-20240905.html)
+
+
+### senegal vs burkina (N/A, Fri, 6 Sep 2024 13:50:00 -0700)
+
+- **LIVE Qualif' CAN 2025 : Suivez Sénégal vs Burkina en direct sur wiwsport.com**: [Link](https://wiwsport.com/2024/09/06/live-qualif-can-2025-suivez-senegal-vs-burkina-en-direct-sur-wiwsport-com/)
+- **Italie: l'AC Milan fait du surplace, Naples respire grâce à Lukaku**: [Link](https://www.la-croix.com/italie-l-ac-milan-fait-du-surplace-naples-respire-grace-a-lukaku-20240831)
+- **Naples - Parme en direct - Serie A : Football Scores & Résultats - 
+31/08/2024**: [Link](https://www.eurosport.fr/football/serie-a/2024-2025/live-naples-parme_mtc1533878/live.shtml)
+
+
+### mazraoui (N/A, Fri, 6 Sep 2024 13:40:00 -0700)
+
+- **Noussair Mazraoui sends perfect three-word message to Man Utd fans after 
+linking up with Morocco teammates**: [Link](https://www.unitedinfocus.com/news/noussair-mazraoui-sends-perfect-three-word-message-to-man-utd-fans-after-linking-up-with-morocco-teammates/)
+- **"He’s comfortable on the ball and gets forward" - Andy Cole backs 
+Manchester United summer recruit to do well with the club**: [Link](https://www.sportskeeda.com/football/news-he-s-comfortable-ball-gets-forward-andy-cole-backs-manchester-united-summer-recruit-well-club)
+- **Man Utd star admits to transfer frustration and says 'things can easily go 
+wrong'**: [Link](https://www.mirror.co.uk/sport/football/transfer-news/manchester-united-transfer-noussair-mazraoui-33558191)
+
+
+### nations league (N/A, Fri, 6 Sep 2024 13:10:00 -0700)
+
+- **Portugal 2-1 Croatia - Highlights**: [Link](https://www.beinsports.com/en-mena/football/uefa-nations-league/articles-video/portugal-2-1-croatia-highlights-2024-09-06)
+- **Cristiano Ronaldo: 900 career goals - the numbers behind the Portugal 
+striker's landmark**: [Link](https://www.bbc.com/sport/football/articles/cvg5j08n694o)
+- **Euro winners Spain held in Nations League**: [Link](https://www.besoccer.com/new/euro-winners-spain-held-in-nations-league-1329557)
+
+
 ### diaz (N/A, Fri, 6 Sep 2024 13:30:00 -0700)
 
 - **Exclusive: Liverpool trio likely to seal Saudi transfers, replacements already lined up**: [Link](https://www.caughtoffside.com/2024/09/05/liverpool-transfer-news-salah-van-dijk-alisson-saudi/)
