@@ -1,3 +1,19 @@
+### meteo maroc (N/A, Thu, 5 Sep 2024 19:00:00 -0700)
+
+- **De très fortes averses orageuses annoncées pour le week-end**: [Link](https://medias24.com/2024/09/04/de-tres-fortes-averses-orageuses-annoncees-pour-le-week-end/)
+- **Très fortes averses orageuses, grêle et rafales de vent sous orages du 
+vendredi au dimanche dans plusieurs pro**: [Link](https://fr.hespress.com/384972-tres-fortes-averses-orageuses-grele-et-rafales-de-vent-sous-orages-du-vendredi-au-dimanche-dans-plusieurs-provinces.html)
+- **Averses orageuses samedi et dimanche dans plusieurs villes du Maroc**: [Link](https://lematin.ma/regions/averses-orageuses-samedi-et-dimanche-dans-plusieurs-villes/241656)
+
+
+### طقس (N/A, Thu, 5 Sep 2024 18:50:00 -0700)
+
+- **Thunderstorms Continue to Hit Several Moroccan Provinces**: [Link](https://www.moroccoworldnews.com/2024/09/364953/thunderstorms-continue-to-hit-several-moroccan-provinces)
+- **Latest developments - Maghreb | Global weather centers monitor a wide and 
+very heavy wet wave of rain in the coming days (details)**: [Link](https://www.arabiaweather.com/en/content/latest-developments-maghreb-global-weather-centers-monitor-a-wide-and-very-heavy-wet-wave-of-rain-in-the-coming-days-details)
+- **Severe thunderstorms expected in Morocco this weekend**: [Link](https://en.yabiladi.com/articles/details/153741/severe-thunderstorms-expected-morocco-this.html)
+
+
 ### حالة الطقس (N/A, Thu, 5 Sep 2024 18:50:00 -0700)
 
 - **"الوطني للأرصاد": طقس الجمعة صحو إلى غائم جزئياً**: [Link](https://sharjah24.ae/ar/Articles/2024/09/05/al0644)
