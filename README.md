@@ -1,3 +1,10 @@
+### belgique foot (N/A, Fri, 6 Sep 2024 14:20:00 -0700)
+
+- **Belgique 3-1 Israël, Ligue des nations A : La Belgique l'emporte contre Israël !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/belgique-israel-live/632619)
+- **Belgique-Israël : les coulisses de la délocalisation en Hongrie**: [Link](https://www.sofoot.com/articles/mais-pourquoi-la-belgique-delocalise-t-elle-son-match-contre-israel-en-hongrie)
+- **Kevin De Bruyne en premier de cordée pour montrer la voie aux Diables**: [Link](https://www.sudinfo.be/id877700/article/2024-09-06/kevin-de-bruyne-en-premier-de-cordee-pour-montrer-la-voie-aux-diables)
+
+
 ### bouanga (N/A, Fri, 6 Sep 2024 14:00:00 -0700)
 
 - **MLS : Ces Africains qui enflamment la Ligue**: [Link](https://afrique.tv5monde.com/information/mls-ces-africains-qui-enflamment-la-ligue)
