@@ -1,3 +1,12 @@
+### الطقس اليوم (N/A, Thu, 5 Sep 2024 18:50:00 -0700)
+
+- **طقس الجمعة.. الأرصاد: أجواء لطيفة وسحب منخفضة على القاهرة الكبرى**: [Link](https://www.masrawy.com/news/news_egypt/details/2024/9/6/2638442/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D9%84%D8%B7%D9%8A%D9%81%D8%A9-%D9%88%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89-)
+- **«نهاية غير متوقعة لشهور الصيف الساخنة».. بيان مهم بشأن حالة الطقس غدًا 
+الخميس 5 سبتمبر 2024**: [Link](https://www.almasryalyoum.com/news/details/3252844)
+- **الأرصاد: ظاهرة جوية تجتاح هذه المحافظات اليوم الجمعة.. وتصل إلى القاهرة 
+الكبرى**: [Link](https://zahraa.mr/3167495/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AC%D8%AA%D8%A7%D8%AD-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%81%D8%B8%D8%A7/)
+
+
 ### meteo maroc (N/A, Thu, 5 Sep 2024 19:00:00 -0700)
 
 - **De très fortes averses orageuses annoncées pour le week-end**: [Link](https://medias24.com/2024/09/04/de-tres-fortes-averses-orageuses-annoncees-pour-le-week-end/)
