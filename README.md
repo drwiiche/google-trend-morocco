@@ -1,3 +1,10 @@
+### argentine (N/A, Thu, 5 Sep 2024 18:50:00 -0700)
+
+- **Argentine : le nouveau dérapage obscène d’Emiliano Martínez**: [Link](https://www.footmercato.net/a7673915527361434700-argentine-le-nouveau-derapage-obscene-demiliano-martinez)
+- **Argentine: l'infernal "Dibu" Martinez a reproduit sa célébration obscène**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/argentine-l-infernal-dibu-martinez-a-reproduit-sa-celebration-obscene_AV-202409060362.html)
+- **Vidéo. No Comment : manifestation des retraités réprimée en Argentine**: [Link](https://fr.euronews.com/video/2024/09/05/no-comment-manifestation-des-retraites-reprimee-en-argentine)
+
+
 ### محاكم (N/A, Fri, 6 Sep 2024 02:20:00 -0700)
 
 - **وزارة العدل تحاور الجامعة الوطنية للقطاع.. تفاصيل أبرز ما تم الاتفاق عليه**: [Link](https://ar.telquel.ma/%D8%B4%D9%84%D9%84-%D8%A8%D9%85%D8%AD%D8%A7%D9%83%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%86%D9%82%D8%A7%D8%A8%D9%8A%D9%88%D9%86-%D9%8A%D9%86%D8%AA%D9%82%D8%AF%D9%88%D9%86-%D9%85%D9%86/)
