@@ -1,3 +1,17 @@
+### bouanga (N/A, Fri, 6 Sep 2024 14:00:00 -0700)
+
+- **MLS : Ces Africains qui enflamment la Ligue**: [Link](https://afrique.tv5monde.com/information/mls-ces-africains-qui-enflamment-la-ligue)
+- **Denis Bouanga : Le Gabonais impressionne en ce début de saison aux 
+États-Unis**: [Link](https://www.africatopsports.com/2024/09/05/denis-bouanga-le-gabonais-impressionne-en-ce-debut-de-saison-aux-etats-unis/)
+
+
+### رياضة (N/A, Fri, 6 Sep 2024 13:00:00 -0700)
+
+- **دي بروين في تصريحات نارية: المال يتحدث نيابة عن الفيفا ويويفا**: [Link](https://www.kooora.com/?n=1353081)
+- **برناردو ينتقد ضغط المباريات هذا الموسم**: [Link](https://hihi2.com/2024/09/06/p2836134.html)
+- **دي بروين منتقدا 'الفيفا' و'اليويفا': "إنهم لا يهتمون.. المال هو من يتحدث"**: [Link](https://m.elbotola.com/article/2024-09-06-17-05-389.html)
+
+
 ### ليسوتو (N/A, Fri, 6 Sep 2024 14:00:00 -0700)
 
 - **المغرب ينتظر خبرًا سارًا قبل مواجهة ليسوتو**: [Link](https://www.kooora.com/?n=1353052)
