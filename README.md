@@ -1,3 +1,10 @@
+### كاس التميز (N/A, Sat, 7 Sep 2024 12:30:00 -0700)
+
+- **كأس التميز تخرج العصبة عن صمتها**: [Link](https://assabah.ma/798513.html)
+- **كأس التميز لكرة القدم 2024-2025.. مواعيد مباريات الجولة الثانية**: [Link](https://m.alayam24.com/articles-524639.html)
+- **العزوف الجماهيري يهدد كأس التميز بفشل مبكر**: [Link](https://sport.lesiteinfo.com/sport/444095.html)
+
+
 ### germany vs hungary (N/A, Sat, 7 Sep 2024 12:10:00 -0700)
 
 - **Germany vs. Hungary - Football Match Preview - September 7, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/698906)
