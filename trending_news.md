@@ -1,3 +1,11 @@
+### memphis depay (N/A, Sat, 7 Sep 2024 04:30:00 -0700)
+
+- **Football gossip: Depay, Van Dijk, Elanga, Williams**: [Link](https://www.bbc.com/sport/football/articles/cz075505d9go)
+- **Newcastle deadline day truths emerge as 'hugely increased' bid for former 
+Man Utd man shot down**: [Link](https://www.teamtalk.com/newcastle-united/newcastle-deadline-day-truths-emerge-hugely-increased-bid-former-man-utd-man-shot-down)
+- **Newcastle “exploring” late “big-money” swoop**: [Link](https://nothingbutnewcastle.com/2024/08/transfer-news/newcastle-anthony-elanga-eddie-howe-premier-league-deadline-day-transfers-news-rumours-nufc/)
+
+
 ### sandro tonali (N/A, Sat, 7 Sep 2024 03:00:00 -0700)
 
 - **Nations League roundup: Italy stun France despite conceding in 12 seconds**: [Link](https://www.theguardian.com/football/article/2024/sep/06/nations-league-roundup-italy-stun-france-despite-conceding-in-12-seconds)
