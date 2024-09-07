@@ -1,3 +1,21 @@
+### premier ministre michel barnier (N/A, Sat, 7 Sep 2024 09:10:00 -0700)
+
+- **EN DIRECT Michel Barnier Premier ministre : Bardella demande à ce que « les…**: [Link](https://www.20minutes.fr/politique/4108749-20240907-direct-michel-barnier-premier-ministre-changements-prevoir-reforme-retraites-juste-amelioration)
+- **Michel Barnier à Matignon : «La situation est favorable à la gauche 
+puisqu’elle se retrouve en position d’avoir une sorte de monopole de 
+l’opposition**: [Link](https://www.liberation.fr/politique/michel-barnier-a-matignon-la-situation-est-favorable-a-la-gauche-puisquelle-se-retrouve-en-position-davoir-une-sorte-de-monopole-de-lopposition-20240906_QEJQ7IXR7BC75AXU3UDEE4CJGE/)
+- **Sondage : ce que pensent les Français de la nomination de Michel Barnier à 
+Matignon**: [Link](https://www.lepoint.fr/politique/sondage-exclusif-ce-que-pensent-les-francais-de-la-nomination-de-michel-barnier-a-matignon-parti-par-parti-07-09-2024-2569630_20.php)
+
+
+### lamine yamal (N/A, Sat, 7 Sep 2024 09:10:00 -0700)
+
+- **El 'entrenamiento' de Lamine con perros funciona: es el rey de los regates**: [Link](https://www.marca.com/futbol/barcelona/2024/09/07/66db08a9e2704efa3d8b4596.html)
+- **El impactante récord de Yamal, con el que pulverizó a Mbappé**: [Link](https://www.tycsports.com/futbol-internacional/el-impactante-record-de-lamile-yamal-con-el-que-pulverizo-a-kylian-mbappe-en-el-balon-de-oro-id606278.html)
+- **La infancia de Lamine Yamal, la joven estrella del Barcelona que ilusiona a 
+todos**: [Link](https://www.minutoneuquen.com/deportes/2024/9/2/la-infancia-de-lamine-yamal-la-joven-estrella-del-barcelona-que-ilusiona-todos-358833.html)
+
+
 ### cameroun – namibie (N/A, Sat, 7 Sep 2024 09:00:00 -0700)
 
 - **Le vainqueur historique de l'équipe d'Algérie risque un forfait !**: [Link](https://fennecfootball.com/can-le-vainqueur-historique-de-l-equipe-d-algerie-risque-un-forfait/)
