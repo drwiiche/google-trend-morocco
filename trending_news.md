@@ -1,3 +1,10 @@
+### wayne rooney (N/A, Sat, 7 Sep 2024 16:00:00 -0700)
+
+- **Report: United Legends v Celtic**: [Link](https://www.manutd.com/en/news/detail/match-report-and-summary-from-man-utd-legends-v-celtic-legends-07-september-2024)
+- **'It's just the running' - Wayne Rooney pokes fun at himself after scoring stunning free-kick for Man Utd in legends match against Celtic**: [Link](https://www.goal.com/en-gb/lists/wayne-rooney-trolls-himself-after-stunning-free-kick-man-utd-legends-match-celtic/bltc70c0e0d162a6840)
+- **Man Utd 1-3 Celtic – Simon Donnelly and ‘trialist’ Chic Charnley lit up Old Trafford**: [Link](https://thecelticstar.com/man-utd-1-3-celtic-simon-donnelly-and-trialist-chic-charnley-lit-up-old-trafford/)
+
+
 ### ليسوتو (N/A, Sat, 7 Sep 2024 14:50:00 -0700)
 
 - **المغرب ينتظر خبرًا سارًا قبل مواجهة ليسوتو**: [Link](https://www.kooora.com/?n=1353052)
