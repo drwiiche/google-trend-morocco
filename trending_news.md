@@ -1,3 +1,22 @@
+### ireland vs england (N/A, Sat, 7 Sep 2024 08:20:00 -0700)
+
+- **Republic of Ireland 0% England 0%**: [Link](https://www.bbc.com/sport/football/live/cx2ldk0gr90t)
+- **England starting lineup vs Republic of Ireland as Trent Alexander-Arnold 
+decision made**: [Link](https://www.mirror.co.uk/sport/football/news/england-starting-lineup-ireland-trent-33618270)
+- **Seamus Coleman warns Republic not to be ‘gung-ho with emotion’ against 
+England**: [Link](https://www.irishnews.com/sport/soccer/seamus-coleman-warns-republic-not-to-be-gung-ho-with-emotion-against-england-FVKOOTOVRZIZNCWWMVPOKXZB5A/)
+
+
+### marrakech (N/A, Sat, 7 Sep 2024 08:20:00 -0700)
+
+- **LGV Kénitra-Marrakech : 350 MDH pour les travaux d'installation du réseau 
+de communication**: [Link](https://medias24.com/2024/09/06/lgv-kenitra-marrakech-350-mdh-pour-les-travaux-dinstallation-du-reseau-de-communication/)
+- **LGV Kénitra-Marrakech: le chinois CREC 4 remporte un contrat de 3,4 
+milliards de dirhams**: [Link](https://fr.le360.ma/economie/lgv-kenitra-marrakech-le-chinois-crec-4-remporte-un-contrat-de-34-milliards-de-dirhams_IJ5TQTHHAJEE7JCPXBIIEQQTAY/)
+- **LGV Kénitra-Marrakech : l'ONCF lance la compétition pour le réseau radio 
+GSM-R budgétisé à 350 MDH**: [Link](https://ledesk.ma/enoff/lgv-kenitra-marrakech-loncf-lance-la-competition-pour-le-reseau-radio-gsm-r-budgetise-a-350-mdh/)
+
+
 ### irlande – angleterre (N/A, Sat, 7 Sep 2024 08:10:00 -0700)
 
 - **Ligue des Nations - Lee Carlsey, d'intérimaire à "homme idéal" à la tête de 
