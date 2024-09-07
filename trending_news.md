@@ -1,3 +1,10 @@
+### طقس (N/A, Fri, 6 Sep 2024 22:30:00 -0700)
+
+- **المغرب.. انهيار منازل وتضرر طرقات بسبب الفيضانات**: [Link](https://www.alarabiya.net/north-africa/morocco/2024/09/07/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D9%88-%D8%AA%D8%B6%D8%B1%D8%B1-%D8%B7%D8%B1%D9%82%D8%A7%D8%AA-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA)
+- **سيول عارمة تغمر الشوارع والمنازل بورزازات.. تحذيرات واستنفار السلطات**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%88%D9%84-%D8%B9%D8%A7%D8%B1%D9%85%D8%A9-%D8%AA%D8%BA%D9%85%D8%B1-%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D9%88%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D8%A8%D9%88%D8%B1%D8%B2-1427449.html)
+- **الأحوال الجوية تؤجل مباراة توظيف**: [Link](https://www.akhbarona.com/society/391741.html)
+
+
 ### borussia dortmund (N/A, Sat, 7 Sep 2024 05:50:00 -0700)
 
 - **Jurgen Klopp returns to Dortmund! Ex-Liverpool coach is all smiles as he prepares to take charge of first game since Anfield exit**: [Link](https://www.goal.com/en-us/lists/jurgen-klopp-returns-dortmund-ex-liverpool-coach-prepares-take-charge-first-game-anfield-exit/bltb2a82a6411fae2a5)
