@@ -1,3 +1,11 @@
+### wetter (N/A, Fri, 6 Sep 2024 23:00:00 -0700)
+
+- **FIRST ALERT WEATHER - Scattered light showers Friday night then clouds 
+linger this weekend**: [Link](https://www.wistv.com/2024/09/06/first-alert-weather-rain-returns-this-evening-tonight/)
+- **Humidity rising but showers Saturday should cool temperatures**: [Link](https://www.wbaltv.com/article/humidity-rising-showers-saturday-should-cool-temperatures/62085460)
+- **Weather washout forecast Friday**: [Link](https://weartv.com/news/local/weather-washout-forecast-friday)
+
+
 ### حالة الطقس اليوم (N/A, Fri, 6 Sep 2024 20:50:00 -0700)
 
 
