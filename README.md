@@ -1,3 +1,19 @@
+### فيضانات ورزازات (N/A, Sat, 7 Sep 2024 07:50:00 -0700)
+
+- **سيول عارمة تغمر الشوارع والمنازل بورزازات.. تحذيرات واستنفار السلطات**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%88%D9%84-%D8%B9%D8%A7%D8%B1%D9%85%D8%A9-%D8%AA%D8%BA%D9%85%D8%B1-%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D9%88%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D8%A8%D9%88%D8%B1%D8%B2-1427449.html)
+- **المغرب.. انهيار منازل وتضرر طرقات بسبب الفيضانات**: [Link](https://www.alarabiya.net/north-africa/morocco/2024/09/07/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D9%88-%D8%AA%D8%B6%D8%B1%D8%B1-%D8%B7%D8%B1%D9%82%D8%A7%D8%AA-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA)
+- **الأحوال الجوية تؤجل مباراة توظيف**: [Link](https://www.akhbarona.com/society/391741.html)
+
+
+### linkin park (N/A, Sat, 7 Sep 2024 07:40:00 -0700)
+
+- **New Linkin Park Singer Emily Armstrong Responds to Criticism Over Danny 
+Masterson Support**: [Link](https://variety.com/2024/music/news/linkin-emily-armstrong-criticism-danny-masterson-1236135990/)
+- **Linkin Park's Emily Armstrong Responds to Danny Masterson Support Claims: 
+'I Misjudged Him'**: [Link](https://www.rollingstone.com/music/music-news/linkin-park-emily-armstrong-responds-danny-masterson-support-claims-1235097245/)
+- **Inside Linkin Park’s Secret Comeback**: [Link](https://www.billboard.com/music/rock/linkin-park-singer-tour-album-cover-story-interview-1235766805/)
+
+
 ### طقس (N/A, Fri, 6 Sep 2024 22:30:00 -0700)
 
 - **المغرب.. انهيار منازل وتضرر طرقات بسبب الفيضانات**: [Link](https://www.alarabiya.net/north-africa/morocco/2024/09/07/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D9%88-%D8%AA%D8%B6%D8%B1%D8%B1-%D8%B7%D8%B1%D9%82%D8%A7%D8%AA-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA)
