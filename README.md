@@ -1,3 +1,11 @@
+### arda güler (N/A, Sat, 7 Sep 2024 16:20:00 -0700)
+
+- **Arda Güler limps off in Turkey’s 0-0 draw with Wales**: [Link](https://www.managingmadrid.com/2024/9/6/24237872/arda-guler-limps-off-in-turkeys-0-0-draw-with-wales)
+- **Real Madrid’s Arda Güler injured: what is the injury and how long is he out 
+for?**: [Link](https://en.as.com/soccer/real-madrids-arda-guler-injured-what-is-the-injury-and-how-long-is-he-out-for-n/)
+- **Real Madrid relieved as 19-year-old wonderkid’s injury fears dismissed**: [Link](https://madriduniversal.com/real-madrid-relieved-as-19-year-old-wonderkids-injury-fears-dismissed/)
+
+
 ### wayne rooney (N/A, Sat, 7 Sep 2024 16:00:00 -0700)
 
 - **Report: United Legends v Celtic**: [Link](https://www.manutd.com/en/news/detail/match-report-and-summary-from-man-utd-legends-v-celtic-legends-07-september-2024)
