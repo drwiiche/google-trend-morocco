@@ -1,3 +1,11 @@
+### cameroun – namibie (N/A, Sat, 7 Sep 2024 09:00:00 -0700)
+
+- **Le vainqueur historique de l'équipe d'Algérie risque un forfait !**: [Link](https://fennecfootball.com/can-le-vainqueur-historique-de-l-equipe-d-algerie-risque-un-forfait/)
+- **André Onana : « On a notre patron qui est notre coach »**: [Link](https://www.camfoot.com/actualites/andre-onana-on-a-notre-patron-qui-est-notre-coach,498554.html)
+- **Face à la Namibie, ça passe ou ça passe, avantage psychologique pour les 
+Braves Warriors contre les Lions**: [Link](https://actucameroun.com/2024/09/07/face-a-la-namibie-ca-passe-ou-ca-passe-avantage-psychologique-pour-les-braves-warriors-contre-les-lions/)
+
+
 ### أيرلندا ضد إنجلترا (N/A, Sat, 7 Sep 2024 08:40:00 -0700)
 
 - **مدرب إنجلترا لن يغني "ليحفظ الله الملك" في مواجهة إيرلندا**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%84%D9%86-%D9%8A%D8%BA%D9%86%D9%8A-%D9%84%D9%8A%D8%AD%D9%81%D8%B8-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%85%D9%84%D9%83-1427433.html)
