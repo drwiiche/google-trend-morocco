@@ -1,3 +1,12 @@
+### declan rice (N/A, Sat, 7 Sep 2024 10:30:00 -0700)
+
+- **Real life of Arsenal’s Declan Rice: Childhood sweetheart, Irish heritage 
+and pre-match meal**: [Link](https://www.football.london/international-football/real-life-arsenals-declan-rice-29888705)
+- **Who are Declan Rice’s parents Stephanie and Sean?...**: [Link](https://www.thesun.ie/sport/13769662/declan-rice-parents-teresa-sean-who/)
+- **Do not boo Declan Rice and Jack Grealish, Ireland fans – boo the system 
+that let them slip away**: [Link](https://www.telegraph.co.uk/football/2024/09/07/dont-boo-declan-rice-jack-grealish-ireland-fans-england/)
+
+
 ### england foot (N/A, Sat, 7 Sep 2024 10:10:00 -0700)
 
 - **Angleterre : Lee Carsley ferme la porte à Mason Greenwood**: [Link](https://www.footmercato.net/a9012004725470417832-angleterre-lee-carsley-ferme-la-porte-a-mason-greenwood)
