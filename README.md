@@ -1,3 +1,22 @@
+### brazil (N/A, Fri, 6 Sep 2024 19:10:00 -0700)
+
+- **Eagles vs. Packers live updates: Score, how to watch, latest on NFL game in 
+Brazil**: [Link](https://www.usatoday.com/story/sports/nfl/2024/09/06/eagles-packers-score-how-watch-predictions-brazil/75097727007/)
+- **Playing field conditions in Brazil for Packers-Eagles had everyone slipping 
+around**: [Link](https://sports.yahoo.com/playing-field-conditions-in-brazil-for-packers-eagles-had-everyone-slipping-around-011544810.html)
+- **Live updates: Green Bay Packers vs. Philadelphia Eagles game tonight in 
+Brazil**: [Link](https://www.nbcnews.com/news/sports/live-blog/eagles-packers-game-nfl-live-updates-rcna169867)
+
+
+### palestine (N/A, Fri, 6 Sep 2024 17:00:00 -0700)
+
+- **US-Turkish protester killed in West Bank as Israeli forces open fire**: [Link](https://www.bbc.com/news/articles/cdx6771gyqzo)
+- **‘Deeply disturbed’ White House calls for inquiry into killing of Ayşenur 
+Eygi**: [Link](https://www.theguardian.com/us-news/article/2024/sep/06/aysenur-eygi-killing-west-bank-reaction)
+- **American activist shot dead by Israeli forces at West Bank protest, 
+eyewitnesses say**: [Link](https://www.cnn.com/2024/09/06/middleeast/american-activist-killed-west-bank-intl/index.html)
+
+
 ### البرازيل ضد الإكوادور (N/A, Fri, 6 Sep 2024 18:40:00 -0700)
 
 - **الرباط الصليبي ينهي أحلام هداف البرازيل**: [Link](https://www.kooora.com/?n=1352752)
