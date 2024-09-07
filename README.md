@@ -1,3 +1,13 @@
+### aziza chaouni (N/A, Fri, 6 Sep 2024 22:10:00 -0700)
+
+- **Prix du design 2024 : Aziza Chaouni récompensée pour une maison durable 
+antisismique inspirée du séisme d'Al H**: [Link](https://fr.hespress.com/384908-prix-du-design-2024-aziza-chaouni-recompensee-pour-une-maison-durable-antisismique-inspiree-du-seisme-dal-haouz.html)
+- **L'architecte marocaine Aziza Chaouni primée à l'IMA pour son prototype de 
+“maison durable antisismique”**: [Link](https://medias24.com/2024/09/06/larchitecte-marocaine-aziza-chaouni-primee-a-lima-pour-son-prototype-de-maison-durable-antisismique/)
+- **Aziza Chaouni et sa « maison durable antisismique » remportent le Prix du 
+design de l’IMA**: [Link](https://www.h24info.ma/aziza-chaouni-et-sa-maison-durable-antisismique-remportent-le-prix-du-design-de-lima/)
+
+
 ### alerte météo maroc (N/A, Fri, 6 Sep 2024 21:40:00 -0700)
 
 - **Fortes averses orageuses: les usagers des routes appelés à faire preuve de 
