@@ -1,3 +1,19 @@
+### f (N/A, Fri, 6 Sep 2024 20:30:00 -0700)
+
+- **US F-35s Landed on NATO Ally Finland's Highway for the First Time**: [Link](https://www.businessinsider.com/us-f35s-landed-nato-ally-finlands-highway-the-first-time-2024-9)
+- **U.S. F-35s Make Historic Highway Landing Is Russia’s Hood! Ex-IAF Chief 
+Explains Why It’s A Big Deal**: [Link](https://www.eurasiantimes.com/u-s-f-35s-make-historic-highway-landing/)
+- **In first, F-35s land on Finnish highway to drill for future wars**: [Link](https://www.defensenews.com/air/2024/09/06/in-first-f-35s-land-on-finnish-highway-to-drill-for-future-wars/)
+
+
+### éder militão (N/A, Fri, 6 Sep 2024 19:40:00 -0700)
+
+- **Madrid's Militão exits Brazil camp with leg injury**: [Link](https://www.espn.com/soccer/story/_/id/41138323/real-madrid-militao-brazil-camp-injury)
+- **Real Madrid’s Eder Militao withdraws from Brazil squad with thigh injury - 
+The Athletic**: [Link](https://www.nytimes.com/athletic/5748456/2024/09/05/real-madrid-eder-miliato-brazil-injury/)
+- **Militao out two weeks with muscle injury**: [Link](https://www.managingmadrid.com/2024/9/6/24237356/militao-real-madrid-injury-2024-news-injury)
+
+
 ### brésil – équateur (N/A, Fri, 6 Sep 2024 17:20:00 -0700)
 
 - **Pronostic Brésil - Équateur, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/bresil-equateur-213513/)
