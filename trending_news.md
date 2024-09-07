@@ -1,3 +1,13 @@
+### us open (N/A, Fri, 6 Sep 2024 23:00:00 -0700)
+
+- **US Open 2024: How to watch the Frances Tiafoe vs. Taylor Fritz tennis match 
+tonight**: [Link](https://sports.yahoo.com/us-open-2024-how-to-watch-the-frances-tiafoe-vs-taylor-fritz-tennis-match-tonight-131122205.html)
+- **US Open 2024: How does Jack Draper beat Jannik Sinner in New York 
+semi-final?**: [Link](https://www.bbc.com/sport/tennis/articles/cj623yznn86o)
+- **Fritz wins an all-American matchup against Tiafoe in 5 to reach the US Open 
+final against Sinner**: [Link](https://www.lakelandtoday.ca/national-sports/fritz-wins-an-all-american-matchup-against-tiafoe-in-5-to-reach-the-us-open-final-against-sinner-9487624)
+
+
 ### météo (N/A, Fri, 6 Sep 2024 22:40:00 -0700)
 
 - **Météo de votre mardi : forte dégradation orageuse par le sud-ouest**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2024-09-03/meteo-de-votre-mardi-forte-degradation-orageuse-par-le-sud-ouest-72196)
