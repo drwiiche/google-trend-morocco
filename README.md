@@ -1,3 +1,17 @@
+### الطقس (N/A, Fri, 6 Sep 2024 22:30:00 -0700)
+
+- **مقاييس الأمطار المسجلة بإقليم تنغير**: [Link](https://www.hespress.com/%D9%87%D8%B0%D9%87-%D9%85%D9%82%D8%A7%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D9%84%D8%A9-%D8%A8%D8%A5%D9%82%D9%84%D9%8A%D9%85-%D8%AA%D9%86%D8%BA-1427357.html)
+- **السلطات المحلية تستنفر عناصرها بعد تسبب سيول طوفانية في انهيار منازل بورزازات(صور)**: [Link](https://www.akhbarona.com/society/391731.html)
+- **عواصف رعدية عشوائية بهذه المناطق ليلة السبت إلى الأحد**: [Link](https://www.analkhabar.com/%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%B9%D8%B4%D9%88%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A8%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82/)
+
+
+### weather (N/A, Fri, 6 Sep 2024 22:30:00 -0700)
+
+- **Copernicus: Summer 2024 – Hottest on record globally and for Europe**: [Link](https://climate.copernicus.eu/copernicus-summer-2024-hottest-record-globally-and-europe)
+- **Summer 2024 was world's hottest on record**: [Link](https://www.bbc.com/weather/articles/c93p5kz9elro)
+- **This year may end up as the warmest humanity has measured**: [Link](https://www.kkco11news.com/2024/09/06/this-year-may-end-up-warmest-humanity-has-measured/)
+
+
 ### حالة الطقس (N/A, Fri, 6 Sep 2024 21:10:00 -0700)
 
 - **الجنوب الشرقي في "حالة تأهب قصوى" بعد نشرة إنذارية من "مستوى أحمر"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A-%D9%81%D9%8A-%D8%AD%D8%A7%D9%84%D8%A9-%D8%AA%D8%A3%D9%87%D8%A8-%D9%82%D8%B5%D9%88%D9%89-%D8%A8%D8%B9%D8%AF-%D9%86%D8%B4-1427066.html)
