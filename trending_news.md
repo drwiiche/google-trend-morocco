@@ -1,3 +1,19 @@
+### brésil – équateur (N/A, Fri, 6 Sep 2024 17:20:00 -0700)
+
+- **Pronostic Brésil - Équateur, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/bresil-equateur-213513/)
+- **Pronostic Brésil Équateur : Analyse, cotes et prono du match des 
+éliminatoires de la Coupe du monde**: [Link](https://www.sofoot.com/breves/pronostic-bresil-equateur-analyse-cotes-et-prono-du-match-des-eliminatoires-de-la-coupe-du-monde)
+- **Équateur - Becaccece : "Le Brésil reste le Brésil"**: [Link](https://www.beinsports.com/fr-fr/football/coupe-du-monde/articles-video/%C3%A9quateur-becaccece-le-br%C3%A9sil-reste-le-br%C3%A9sil-2024-09-06)
+
+
+### بارالمبياد 2024 الفروسية (N/A, Fri, 6 Sep 2024 16:20:00 -0700)
+
+- **جوجل يحتفل بـإنطلاق تنس الكراسي المتحركة في البارالمبياد: ما القصة؟**: [Link](https://www.yallakora.com/paralympics-paris-2024/2937/news/484247/%D8%AC%D9%88%D8%AC%D9%84-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D9%80%D8%A5%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%AA%D9%86%D8%B3-%D8%A7%D9%84%D9%83%D8%B1%D8%A7%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D8%AF-%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D8%B5%D8%A9-)
+- **عاجل. بارالمبياد 2024 الفروسية.. رياضة الخيالة على صدر الصفحة الرئيسية 
+لـ"Google"**: [Link](https://rosaelyoussef.com/1221909/%D8%B9%D8%A7%D8%AC%D9%84--%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D8%AF-2024-%D8%A7%D9%84%D9%81%D8%B1%D9%88%D8%B3%D9%8A%D8%A9-%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%A7%D9%84%D8%AE%D9%8A%D8%A7%D9%84%D8%A9-%D8%B9%D9%84%D9%89-%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D8%A9-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9-%D9%84%D9%80Google)
+- **مرسى مطروح الأعلى بحثًا عن الرياضة البارالمبية**: [Link](https://www.almasryalyoum.com/news/details/3251812)
+
+
 ### brazil (N/A, Fri, 6 Sep 2024 19:10:00 -0700)
 
 - **Eagles vs. Packers live updates: Score, how to watch, latest on NFL game in 
