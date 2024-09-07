@@ -1,3 +1,8 @@
+### مباي نيانغ (N/A, Sat, 7 Sep 2024 09:30:00 -0700)
+
+
+
+
 ### premier ministre michel barnier (N/A, Sat, 7 Sep 2024 09:10:00 -0700)
 
 - **EN DIRECT Michel Barnier Premier ministre : Bardella demande à ce que « les…**: [Link](https://www.20minutes.fr/politique/4108749-20240907-direct-michel-barnier-premier-ministre-changements-prevoir-reforme-retraites-juste-amelioration)
