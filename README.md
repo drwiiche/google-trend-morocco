@@ -1,3 +1,17 @@
+### الطقس غدًا (N/A, Sat, 7 Sep 2024 12:50:00 -0700)
+
+- **«نهاية الأيام العجاف».. مفاجأة بشأن حالة الطقس الأسبوع القادم ودرجات الحرارة (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3253991)
+- **طقس الجمعة.. الأرصاد: أجواء لطيفة وسحب منخفضة على القاهرة الكبرى**: [Link](https://www.masrawy.com/news/news_egypt/details/2024/9/6/2638442/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D9%84%D8%B7%D9%8A%D9%81%D8%A9-%D9%88%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89-)
+- **ظواهر جوية تتسبب في سقوط أمطار لمدة 6 أيام.. ماذا يحدث؟ - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/176260/%D8%B8%D9%88%D8%A7%D9%87%D8%B1-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B3%D8%A8%D8%A8-%D9%81%D9%8A-%D8%B3%D9%82%D9%88%D8%B7-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%84%D9%85%D8%AF%D8%A9-6-%D8%A3%D9%8A%D8%A7%D9%85-%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%AD%D8%AF%D8%AB%D8%9F---AARC-%D9%85%D8%B5%D8%B1.html)
+
+
+### weather tomorrow (N/A, Sat, 7 Sep 2024 12:50:00 -0700)
+
+- **Cooler and drier for many, rain returns next week**: [Link](https://www.wdsu.com/article/cold-front-moves-through-but-rain-returning/62092289)
+- **Flood risk lingers into the weekend**: [Link](https://www.fox8live.com/2024/09/06/flood-risk-lingers-into-weekend/)
+- **Large Storm Could Bring 10 Inches of Rain to Parts of Gulf Coast**: [Link](https://www.nytimes.com/2024/09/05/us/storm-system-louisiana-flooding.html)
+
+
 ### كاس التميز (N/A, Sat, 7 Sep 2024 12:30:00 -0700)
 
 - **كأس التميز تخرج العصبة عن صمتها**: [Link](https://assabah.ma/798513.html)
