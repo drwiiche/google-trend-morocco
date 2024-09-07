@@ -1,3 +1,17 @@
+### nigeria – bénin (N/A, Sat, 7 Sep 2024 10:40:00 -0700)
+
+- **Nigeria vs Benin: Afcon qualifiers team news & kick-off time**: [Link](https://www.bbc.com/pidgin/articles/ce38092205xo)
+- **Exclusive - Osimhen Benched, Eguavoen Picks Boniface To Lead Super Eagles Attack Against Benin Republic**: [Link](https://owngoalnigeria.com/2024/09/07/exclusive-osimhen-benched-eguavoen-picks-boniface-to-lead-super-eagles-attack-against-benin-republic/)
+- **Ademola Lookman for Ballon d’Or: Nigerian praise Super Eagles star after solo goal against Benin Republic**: [Link](https://www.pulsesports.ng/football/story/ademola-lookman-for-ballon-dor-nigerian-praise-super-eagles-star-after-solo-goal-against-benin-republic-2024090717010085040)
+
+
+### mauritanie – botswana (N/A, Sat, 7 Sep 2024 10:40:00 -0700)
+
+- **Éliminatoires CAN 2025: le Maroc et l'Égypte se baladent, le Sénégal et le Mali déçoivent**: [Link](https://www.rfi.fr/fr/afrique-foot/20240906-%C3%A9liminatoires-can-2025-le-maroc-et-l-%C3%A9gypte-se-baladent-le-s%C3%A9n%C3%A9gal-et-le-mali-d%C3%A9%C3%A7oivent)
+- **Coupe d'Afrique des Nations 2025 : Le Soudan bat le Niger**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/coupe-dafrique-des-nations-2025-le-soudan-bat-le-niger/)
+- **CAN 2025 au Maroc: stades, dates clés… tout ce qu’il faut savoir**: [Link](https://www.h24info.ma/can-2025-au-maroc-stades-dates-cles-tout-ce-quil-faut-savoir/)
+
+
 ### declan rice (N/A, Sat, 7 Sep 2024 10:30:00 -0700)
 
 - **Real life of Arsenal’s Declan Rice: Childhood sweetheart, Irish heritage 
