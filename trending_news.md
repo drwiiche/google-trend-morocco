@@ -1,3 +1,13 @@
+### frances tiafoe (N/A, Sat, 7 Sep 2024 12:50:00 -0700)
+
+- **Frances Tiafoe ended up losing after he thought he was about to beat Taylor 
+Fritz at the US Open**: [Link](https://apnews.com/article/frances-tiafoe-us-open-2024-fritz-85852e990b5bef19c5ae9b89fc29d5e1)
+- **The end of the 2024 US Open is looming. Here is when the semifinals are and 
+who is playing**: [Link](https://www.courier-journal.com/story/sports/2024/09/05/when-semifinals-us-open-2024-women-men-singles-tennis-match/75082961007/)
+- **Live streaming, Jannik Sinner vs Taylor Fritz, US Open 2024 tennis final: 
+where to watch in India**: [Link](https://olympics.com/en/news/us-open-tennis-2024-men-final-jannik-sinner-vs-taylor-fritz-watch-live-india)
+
+
 ### الطقس غدًا (N/A, Sat, 7 Sep 2024 12:50:00 -0700)
 
 - **«نهاية الأيام العجاف».. مفاجأة بشأن حالة الطقس الأسبوع القادم ودرجات الحرارة (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3253991)
