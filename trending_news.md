@@ -1,3 +1,10 @@
+### زيت الزيتون (N/A, Fri, 6 Sep 2024 16:30:00 -0700)
+
+- **✅ بعد ارتفاع أسعاره.. هذا هو ثمن لتر زيت الزيتون للموسم الحالي**: [Link](https://tanja24.com/%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1%D9%87-%D9%87%D8%B0%D8%A7-%D9%87%D9%88-%D8%AB%D9%85%D9%86-%D9%84%D8%AA%D8%B1-%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84/)
+- **مخاوف من ارتفاع أسعار زيت الزيتون تفتح الباب أمام الاستيراد في المغرب**: [Link](https://www.hespress.com/%D9%85%D8%AE%D8%A7%D9%88%D9%81-%D9%85%D9%86-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86-%D8%AA%D9%81%D8%AA%D8%AD-1425915.html)
+- **فلاحون يطمئنون المغاربة: "زيت الزيتون لن تصل الى 150 درهما.. وسماسرة وراء الإشاعة"**: [Link](https://ar.hibapress.com/details-548760.html)
+
+
 ### uruguay – paraguay (N/A, Fri, 6 Sep 2024 16:00:00 -0700)
 
 - **Preview: Uruguay vs. Paraguay - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/uruguay/preview/preview-uruguay-vs-paraguay-prediction-team-news-lineups_552138.html)
