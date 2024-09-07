@@ -1,3 +1,10 @@
+### أيرلندا ضد إنجلترا (N/A, Sat, 7 Sep 2024 08:40:00 -0700)
+
+- **مدرب إنجلترا لن يغني "ليحفظ الله الملك" في مواجهة إيرلندا**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%84%D9%86-%D9%8A%D8%BA%D9%86%D9%8A-%D9%84%D9%8A%D8%AD%D9%81%D8%B8-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%85%D9%84%D9%83-1427433.html)
+- **ماجواير يعود لتشكيل إنجلترا أمام أيرلندا**: [Link](https://www.kooora.com/?n=1353280)
+- **التشكيلة الرسمية لمنتخب إنجلترا أمام أيرلندا في دوري الأمم الأوروبية**: [Link](https://hihi2.com/2024/09/07/p2837628.html)
+
+
 ### ireland vs england (N/A, Sat, 7 Sep 2024 08:20:00 -0700)
 
 - **Republic of Ireland 0% England 0%**: [Link](https://www.bbc.com/sport/football/live/cx2ldk0gr90t)
