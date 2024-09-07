@@ -1,3 +1,10 @@
+### sandro tonali (N/A, Sat, 7 Sep 2024 03:00:00 -0700)
+
+- **Nations League roundup: Italy stun France despite conceding in 12 seconds**: [Link](https://www.theguardian.com/football/article/2024/sep/06/nations-league-roundup-italy-stun-france-despite-conceding-in-12-seconds)
+- **Today’s Papers – Italy reborn, lesson to France**: [Link](https://football-italia.net/today-papers-italy-reborn-lesson-france/)
+- **UEFA Nations League France 1 Italy 3 Full time**: [Link](https://www.bbc.com/sport/football/live/c5yd7zewe5wt)
+
+
 ### wetter (N/A, Fri, 6 Sep 2024 23:00:00 -0700)
 
 - **FIRST ALERT WEATHER - Scattered light showers Friday night then clouds 
