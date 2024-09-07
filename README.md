@@ -1,3 +1,11 @@
+### germany vs hungary (N/A, Sat, 7 Sep 2024 12:10:00 -0700)
+
+- **Germany vs. Hungary - Football Match Preview - September 7, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/698906)
+- **Germany vs Hungary: Gamethread and Live Blog**: [Link](https://www.bavarianfootballworks.com/2024/9/7/24237688/germany-vs-hungary-lineups-live-stream-how-to-watch-nations-league-updates-highlights)
+- **Watch UEFA Nations League Soccer: Livestream Republic of Ireland vs. 
+England From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/watch-uefa-nations-league-soccer-livestream-republic-of-ireland-vs-england-from-anywhere/)
+
+
 ### england (N/A, Sat, 7 Sep 2024 10:20:00 -0700)
 
 - **Lee Carsley: Sir Keir Starmer asked about England manager not singing the 
