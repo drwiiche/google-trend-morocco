@@ -1,3 +1,10 @@
+### زلزال الحوز (N/A, Sat, 7 Sep 2024 13:30:00 -0700)
+
+- **صعوبات ترافق إعمار المناطق المتضررة من زلزال 2023 بالمغرب**: [Link](https://www.aljazeera.net/videos/2024/9/7/%D8%B5%D8%B9%D9%88%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B1%D8%A7%D9%81%D9%82-%D8%A5%D8%B9%D9%85%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D8%AA%D8%B6%D8%B1%D8%B1%D8%A9)
+- **معاناة العالم المنسي**: [Link](https://ar.hibapress.com/details-549023.html)
+- **وزارة الصحة تعيد بناء وتأهيل 42 مركزا صحيا في المناطق المتضررة من الزلزال**: [Link](https://ar.le360.ma/societe/DXBT4HA4ENBU3BZEKASU3WAJAU/)
+
+
 ### frances tiafoe (N/A, Sat, 7 Sep 2024 12:50:00 -0700)
 
 - **Frances Tiafoe ended up losing after he thought he was about to beat Taylor 
