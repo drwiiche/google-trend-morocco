@@ -1,3 +1,10 @@
+### ليسوتو (N/A, Sat, 7 Sep 2024 14:50:00 -0700)
+
+- **المغرب ينتظر خبرًا سارًا قبل مواجهة ليسوتو**: [Link](https://www.kooora.com/?n=1353052)
+- **"الأسود" أمام إفريقيا الوسطى بوجدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87%D9%88%D9%86-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7%D9%89-%D8%A8%D9%88%D8%AC%D8%AF%D8%A9-1427604.html)
+- **موعد مباراة المغرب وليسوتو في تصفيات كأس أمم أفريقيا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/9/7/morocco)
+
+
 ### aryna sabalenka (N/A, Sat, 7 Sep 2024 13:50:00 -0700)
 
 - **Experts' picks: Who will win the 2024 US Open women's title?**: [Link](https://www.espn.com/tennis/story/_/id/41143591/experts-picks-2024-us-open-sabalenka-pegula-win)
