@@ -1,3 +1,10 @@
+### météo (N/A, Fri, 6 Sep 2024 22:40:00 -0700)
+
+- **Météo de votre mardi : forte dégradation orageuse par le sud-ouest**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2024-09-03/meteo-de-votre-mardi-forte-degradation-orageuse-par-le-sud-ouest-72196)
+- **Météo - La Nièvre passe en vigilance jaune pour les orages lundi 2 septembre**: [Link](https://www.lejdc.fr/nevers-58000/actualites/la-nievre-passe-en-vigilance-jaune-pour-les-orages-lundi-2-septembre_14556579/)
+- **La météo du mardi 3 septembre : retour de la pluie et des orages**: [Link](https://www.lefigaro.fr/meteo/la-meteo-du-mardi-3-septembre-retour-de-la-pluie-et-des-orages-20240902)
+
+
 ### الطقس (N/A, Fri, 6 Sep 2024 22:30:00 -0700)
 
 - **مقاييس الأمطار المسجلة بإقليم تنغير**: [Link](https://www.hespress.com/%D9%87%D8%B0%D9%87-%D9%85%D9%82%D8%A7%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D9%84%D8%A9-%D8%A8%D8%A5%D9%82%D9%84%D9%8A%D9%85-%D8%AA%D9%86%D8%BA-1427357.html)
