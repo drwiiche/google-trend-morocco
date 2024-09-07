@@ -1,3 +1,40 @@
+### sabalenka (N/A, Sat, 7 Sep 2024 14:00:00 -0700)
+
+- **US Open 2024 tennis tournament: How to watch the finals today, where to 
+stream free, plus the full TV schedule**: [Link](https://sports.yahoo.com/us-open-2024-tennis-tournament-how-to-watch-the-finals-today-where-to-stream-free-plus-the-full-tv-schedule-180847000.html)
+- **Sabalenka, Pegula clash for US Open title after private heartbreak**: [Link](https://supersport.com/hereforher/news/929fed69-5391-4c2b-bf46-c8c1e2390bc5/sabalenka-pegula-clash-for-us-open-title-after-private-heartbreak)
+- **How to Watch 2024 US Open Women's Tennis Finals: Live Stream, Start Times, 
+More**: [Link](https://m.imdb.com/news/ni64810982/?ref_=nws_nwr_li)
+
+
+### محمد الخلفي (N/A, Sat, 7 Sep 2024 14:00:00 -0700)
+
+- **كيفاش تسد الحساب البنكي ديالك بطريقة سليمة**: [Link](https://ar.hibapress.com/details-549011.html)
+- **مخرجون فلسطينيون ينقلون قصصا من داخل قطاع غرة لمهرجان الفيلم بالبيضاء**: [Link](https://aljarida24.ma/p/actualites/286983/)
+- **بالصور.. مهرجان الدار البيضاء للفيلم العربي يعود في دورته الخامسة ويحتفي بمجموعة من الوجوه السينمائية**: [Link](https://2m.ma/news/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D9%84%D9%84%D9%81%D9%8A%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D8%AA%D9%87-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3%D8%A9-%D9%88%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%88%D8%AC%D9%88%D9%87-%D8%A7%D9%84%D8%B3%D9%8A%D9%86%D9%85%D8%A7%D8%A6%D9%8A%D8%A9-20240907)
+
+
+### élection présidentielle algérie (N/A, Sat, 7 Sep 2024 14:00:00 -0700)
+
+- **Présidentielle en Algérie : les bureaux de vote ferment à 21 heures ; la victoire d’Abdelmadjid Tebboune attendue**: [Link](https://www.lemonde.fr/afrique/article/2024/09/07/presidentielle-en-algerie-les-bureaux-de-vote-ont-ouvert-avant-une-victoire-attendue-d-abdelmadjid-tebboune_6306293_3212.html)
+- **Le bilan diplomatique du Président Tebboune : Une boussole géostratégique démagnétisée**: [Link](https://maroc-diplomatique.net/le-bilan-diplomatique-du-president-tebboune-une-boussole-geostrategique-demagnetisee/)
+- **Le rideau de fumée de l’Algérie : réélection par la force et le silence**: [Link](https://fr.hespress.com/384912-le-rideau-de-fumee-de-lalgerie-reelection-par-la-force-et-le-silence.html)
+
+
+### états-unis – canada (N/A, Sat, 7 Sep 2024 13:50:00 -0700)
+
+- **CONCACAF | Le Canada veut se démarquer contre ses rivaux**: [Link](https://www.lapresse.ca/sports/soccer/2024-09-06/concacaf/le-canada-veut-se-demarquer-contre-ses-rivaux.php)
+- **USA – Canada : Où et comment suivre le duel entre Jonathan David et Timothy Weah (ex-LOSC)**: [Link](https://lepetitlillois.com/2024/09/07/usa-canada-ou-et-comment-suivre-le-duel-entre-jonathan-david-et-timothy-weah-ex-losc/)
+- **Pronostic États-Unis - Canada, Matchs Amicaux**: [Link](https://www.sportytrader.com/pronostics/usa-canada-213705/)
+
+
+### netherlands vs bosnia and herzegovina (N/A, Sat, 7 Sep 2024 13:30:00 -0700)
+
+- **Netherlands Bosnia Nations League Soccer**: [Link](https://www.idahostatejournal.com/sports/national/netherlands-bosnia-nations-league-soccer/image_74441e0e-08d4-5853-bb18-f2c37a77f0fd.html)
+- **BiH Fans on the Streets of Eindhoven, a spectacular Football Atmosphere awaits us**: [Link](https://sarajevotimes.com/bih-fans-on-the-streets-of-eindhoven-a-spectacular-football-atmosphere-awaits-us/)
+- **Oranje start their UEFA Nations League campaign with a 5-2 win against Bosnia**: [Link](https://nltimes.nl/2024/09/07/oranje-start-uefa-nations-league-campaign-5-2-win-bosnia)
+
+
 ### زلزال الحوز (N/A, Sat, 7 Sep 2024 13:30:00 -0700)
 
 - **صعوبات ترافق إعمار المناطق المتضررة من زلزال 2023 بالمغرب**: [Link](https://www.aljazeera.net/videos/2024/9/7/%D8%B5%D8%B9%D9%88%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B1%D8%A7%D9%81%D9%82-%D8%A5%D8%B9%D9%85%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D8%AA%D8%B6%D8%B1%D8%B1%D8%A9)
