@@ -1,3 +1,12 @@
+### aryna sabalenka (N/A, Sat, 7 Sep 2024 13:50:00 -0700)
+
+- **Experts' picks: Who will win the 2024 US Open women's title?**: [Link](https://www.espn.com/tennis/story/_/id/41143591/experts-picks-2024-us-open-sabalenka-pegula-win)
+- **US Open 2024 live updates: Women's final with USA's Jessica Pegula on court 
+against Aryna Sabalenka**: [Link](https://www.nytimes.com/athletic/live-blogs/us-open-2024-tennis-live-updates-schedule-results-final/zXqjXk8AcovL/)
+- **Time, channel for US Open tennis final: How to watch Jessica Pegula vs 
+Aryna Sabalenka**: [Link](https://www.democratandchronicle.com/story/sports/2024/09/06/channel-streaming-us-open-tennis-final-jessica-pegula-vs-aryna-sabalenk/75104863007/)
+
+
 ### sabalenka (N/A, Sat, 7 Sep 2024 14:00:00 -0700)
 
 - **US Open 2024 tennis tournament: How to watch the finals today, where to 
