@@ -1,3 +1,11 @@
+### england foot (N/A, Sat, 7 Sep 2024 10:10:00 -0700)
+
+- **Angleterre : Lee Carsley ferme la porte à Mason Greenwood**: [Link](https://www.footmercato.net/a9012004725470417832-angleterre-lee-carsley-ferme-la-porte-a-mason-greenwood)
+- **🎙️ Lucas Moura ❤️💙 See you at 2PM CEST! #Shorts**: [Link](https://www.pausefoot.com/video/%F0%9F%8E%99%EF%B8%8F-lucas-moura-%E2%9D%A4%EF%B8%8F%F0%9F%92%99-see-you-at-2pm-cest-shorts/?utm_source=pausefoot&utm_medium=recirculated_sidebar&utm_campaign=fr-stories-giant-clubs-cheat-oh-my-goal)
+- **OM: "Il n’était pas dans les plans", le sélectionneur de l'Angleterre cash 
+sur l’absence de Greenwood**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-nations/om-il-n-etait-pas-dans-les-plans-le-selectionneur-de-l-angleterre-cash-sur-l-absence-de-greenwood_AV-202409070286.html)
+
+
 ### مباي نيانغ (N/A, Sat, 7 Sep 2024 09:30:00 -0700)
 
 
