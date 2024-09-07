@@ -1,3 +1,11 @@
+### england (N/A, Sat, 7 Sep 2024 10:20:00 -0700)
+
+- **Lee Carsley: Sir Keir Starmer asked about England manager not singing the 
+national anthem**: [Link](https://news.sky.com/video/sir-keir-starmer-asked-about-england-manager-lee-carsley-not-singing-the-national-anthem-13211057)
+- **Lee Carsley will not sing England’s national anthem before first game**: [Link](https://www.theguardian.com/football/article/2024/sep/06/lee-carsley-will-not-sing-englands-national-anthem-before-first-game)
+- **Declan Rice makes an English-born Ireland XI alongside three Liverpool men**: [Link](https://www.football365.com/news/decan-rice-english-born-ireland-xi)
+
+
 ### allemagne – hongrie (N/A, Sat, 7 Sep 2024 11:20:00 -0700)
 
 - **PRONOS PARIS RMC Le pari football de Rolland Courbis du 7 septembre - Ligue 
