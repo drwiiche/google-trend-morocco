@@ -1,3 +1,10 @@
+### الطقس اليوم (N/A, Fri, 6 Sep 2024 22:30:00 -0700)
+
+- **توقعات أحوال الطقس السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1427264.html)
+- **لائحة المدن التي تعرف حرارة مفرطة غدا الجمعة**: [Link](https://m.alayam24.com/articles-524323.html)
+- **طقس الأربعاء.. زخات مطرية متوقعة بعدد من مناطق المملكة**: [Link](https://ar.hibapress.com/details-547923.html)
+
+
 ### us open (N/A, Fri, 6 Sep 2024 23:00:00 -0700)
 
 - **US Open 2024: How to watch the Frances Tiafoe vs. Taylor Fritz tennis match 
