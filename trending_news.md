@@ -1,3 +1,28 @@
+### irlande – angleterre (N/A, Sat, 7 Sep 2024 08:10:00 -0700)
+
+- **Ligue des Nations - Lee Carlsey, d'intérimaire à "homme idéal" à la tête de 
+la sélection anglaise**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2024-2025/ligue-des-nations-lee-carlsey-d-interimaire-a-homme-ideal-a-la-tete-de-la-selection-anglaise_sto10332365/story.shtml)
+- **Pronostic Irlande - Angleterre, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/irlande-angleterre-213446/)
+- **Coleman n'en veut pas aux «Irlanglais» Rice et Grealish - Foot - L. nations 
+- IRL**: [Link](https://sports.orange.fr/videos/football/coleman-n-en-veut-pas-aux-irlanglais-rice-et-grealish-foot-l-nations-irl-CNT000002eWIwk.html)
+
+
+### العين ضد كلباء (N/A, Sat, 7 Sep 2024 08:10:00 -0700)
+
+- **مواجهات صعبة في إياب كأس المحترفين الإماراتي**: [Link](https://m.kooora.com/?n=1353077&pg=1&o=n)
+- **3 مباريات تدشن «الإياب الحاسم» لكأس «أبوظبي الإسلامي»**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4513261/3-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AA%D8%AF%D8%B4%D9%86--%D8%A7%D9%84%D8%A5%D9%8A%D8%A7%D8%A8-%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D9%85--%D9%84%D9%83%D8%A3%D8%B3--%D8%A3%D8%A8%D9%88%D8%B8%D8%A8%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A)
+- **كريسبو يعلن موقف نجمي العين من المشاركة ضد كلباء**: [Link](https://www.365scores.com/ar/news/magazine/%D9%83%D8%B1%D9%8A%D8%B3%D8%A8%D9%88-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%88%D9%82%D9%81-%D9%86%D8%AC%D9%85%D9%8A-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83/)
+
+
+### jack draper (N/A, Sat, 7 Sep 2024 08:10:00 -0700)
+
+- **When is US Open women's final? How to watch Jessica Pegula vs Aryna 
+Sabalenka**: [Link](https://www.usatoday.com/story/sports/tennis/open/2024/09/07/us-open-womens-final-how-to-watch-pegula-vs-sabalenka-time/75096662007/)
+- **Taylor Fritz Likes His Chances of Victory at the U.S. Open Final**: [Link](https://time.com/7018904/taylor-fritz-chances-us-open-final-jannik-sinner/)
+- **US Open 2024: Jack Draper sick on court in semi-final defeat by Jannik 
+Sinner in New York**: [Link](https://www.bbc.com/sport/tennis/articles/c049kw6dln5o)
+
+
 ### فيضانات ورزازات (N/A, Sat, 7 Sep 2024 07:50:00 -0700)
 
 - **سيول عارمة تغمر الشوارع والمنازل بورزازات.. تحذيرات واستنفار السلطات**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%88%D9%84-%D8%B9%D8%A7%D8%B1%D9%85%D8%A9-%D8%AA%D8%BA%D9%85%D8%B1-%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D9%88%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D8%A8%D9%88%D8%B1%D8%B2-1427449.html)
