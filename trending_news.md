@@ -1,3 +1,17 @@
+### allemagne – hongrie (N/A, Sat, 7 Sep 2024 11:20:00 -0700)
+
+- **PRONOS PARIS RMC Le pari football de Rolland Courbis du 7 septembre - Ligue 
+des nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-rolland-courbis-du-7-septembre-ligue-des-nations_AN-202409060904.html)
+- **La nouvelle vie de la Mannschaft sans ses quatre fantastiques : "Nous 
+voulons tourner cela à notre avantage"**: [Link](https://www.dhnet.be/sports/football/nations-league/2024/09/07/la-nouvelle-vie-de-la-mannschaft-sans-ses-quatre-fantastiques-nous-voulons-tourner-cela-a-notre-avantage-TMK2AXDTBVBBFFO3IW32MGGNSE/)
+- **Pronostic Allemagne - Hongrie, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/allemagne-hongrie-213452/)
+
+
+### rdr (N/A, Sat, 7 Sep 2024 10:40:00 -0700)
+
+- **Why a Red Dead Redemption TV Show Should Be the Next Video Game Adaptation**: [Link](https://screenrant.com/video/red-dead-redemption-tv-show-should-be-next-video-game-adaptation/)
+
+
 ### pays-bas – bosnie-herzégovine (N/A, Sat, 7 Sep 2024 11:00:00 -0700)
 
 - **Pronostic Pays-Bas - Bosnie-Herzégovine, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/pays-bas-bosnie-herzegovine-213455/)
