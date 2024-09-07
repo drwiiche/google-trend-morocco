@@ -1,3 +1,20 @@
+### pays-bas – bosnie-herzégovine (N/A, Sat, 7 Sep 2024 11:00:00 -0700)
+
+- **Pronostic Pays-Bas - Bosnie-Herzégovine, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/pays-bas-bosnie-herzegovine-213455/)
+- **Memphis Depay n’est pas dans la liste des Pays-Bas**: [Link](https://www.sofoot.com/breves/les-pays-bas-sans-memphis-depay-pour-le-prochain-rassemblement)
+- **Netherlands - Bosnia and Herzegovina en direct - Ligue des Nations : 
+Football Scores & Résultats - 07/09/2024**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2024-2025/live-netherlands-bosnia-and-herzegovina_mtc1561297/live.shtml)
+
+
+### jurgen klopp (N/A, Sat, 7 Sep 2024 11:00:00 -0700)
+
+- **Why Jurgen Klopp is set for managerial return this weekend after leaving 
+Liverpool**: [Link](https://www.liverpool.com/liverpool-fc-news/features/jurgen-klopp-borussia-dortmund-liverpool-29886714)
+- **Hummels to feature in Błaszczykowski and Piszczek’s farewell match**: [Link](https://romapress.net/hummels-to-feature-in-blaszczykowski-and-piszczeks-farewell-match/)
+- **Jurgen's happy return: Klopp pictured back at Dortmund as ex-Liverpool boss 
+prepares to take charge of testimo**: [Link](https://www.dailymail.co.uk/sport/football/article-13824085/Klopp-pictured-Dortmund-training-returns-management-testimonial-match.html)
+
+
 ### nigeria – bénin (N/A, Sat, 7 Sep 2024 10:40:00 -0700)
 
 - **Nigeria vs Benin: Afcon qualifiers team news & kick-off time**: [Link](https://www.bbc.com/pidgin/articles/ce38092205xo)
