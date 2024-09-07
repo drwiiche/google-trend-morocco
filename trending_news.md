@@ -1,3 +1,12 @@
+### alerte météo maroc (N/A, Fri, 6 Sep 2024 21:40:00 -0700)
+
+- **Fortes averses orageuses: les usagers des routes appelés à faire preuve de 
+prudence**: [Link](https://ledesk.ma/encontinu/fortes-averses-orageuses-les-usagers-des-routes-appeles-a-faire-preuve-de-prudence/)
+- **Très fortes averses orageuses, grêle et rafales de vent sous orages du 
+vendredi au dimanche dans plusieurs pro**: [Link](https://fr.hespress.com/384972-tres-fortes-averses-orageuses-grele-et-rafales-de-vent-sous-orages-du-vendredi-au-dimanche-dans-plusieurs-provinces.html)
+- **Météo : Code rouge pour des orages violents et de la grêle ce week-end**: [Link](https://maroc-diplomatique.net/meteo-code-rouge-pour-des-orages-violents-et-de-la-grele-ce-week-end/)
+
+
 ### الطقس اليوم (N/A, Fri, 6 Sep 2024 22:30:00 -0700)
 
 - **توقعات أحوال الطقس السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1427264.html)
