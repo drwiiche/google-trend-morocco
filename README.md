@@ -1,3 +1,15 @@
+### borussia dortmund (N/A, Sat, 7 Sep 2024 05:50:00 -0700)
+
+- **Jurgen Klopp returns to Dortmund! Ex-Liverpool coach is all smiles as he prepares to take charge of first game since Anfield exit**: [Link](https://www.goal.com/en-us/lists/jurgen-klopp-returns-dortmund-ex-liverpool-coach-prepares-take-charge-first-game-anfield-exit/bltb2a82a6411fae2a5)
+- **Borussia Dortmund announce squads for Lukasz Piszczek and Jakub Blaszczykowski farewell match**: [Link](https://bvbbuzz.com/posts/borussia-dortmund-announce-squads-for-lukasz-piszczek-and-jakub-blaszczykowski-farewell-match-01j6vsehg9vj)
+- **Why Jurgen Klopp is set for managerial return this weekend after leaving Liverpool**: [Link](https://www.liverpool.com/liverpool-fc-news/features/jurgen-klopp-borussia-dortmund-liverpool-29886714)
+
+
+### هسبريس (N/A, Fri, 6 Sep 2024 23:00:00 -0700)
+
+
+
+
 ### طقس اليوم (N/A, Fri, 6 Sep 2024 23:50:00 -0700)
 
 - **توقعات أحوال الطقس السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1427264.html)
