@@ -1,3 +1,12 @@
+### cristiano ronaldo (N/A, Sun, 8 Sep 2024 14:00:00 -0700)
+
+- **Scoring 900 goals, Ronaldo's goal-scoring achievements play pivotal role in 
+numerous victories for his teams**: [Link](https://www.aa.com.tr/en/sports/scoring-900-goals-ronaldos-goal-scoring-achievements-play-pivotal-role-in-numerous-victories-for-his-teams/3324331)
+- **Cristiano Ronaldo: 900 career goals - the numbers behind the Portugal 
+striker's landmark**: [Link](https://www.bbc.com/sport/football/articles/cvg5j08n694o)
+- **[VIDEO] Behind the scenes: Portugal's victory with Ronaldo's 900th goal**: [Link](https://koreajoongangdaily.joins.com/news/2024-09-08/sports/football/VIDEO-Behind-the-scenes-Portugals-victory-with-Ronaldos-900th-goal/2130182)
+
+
 ### croatie foot (N/A, Sun, 8 Sep 2024 14:10:00 -0700)
 
 - **Ligue des Nations - "Mon dernier objectif" : Et maintenant, Cristiano 
