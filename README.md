@@ -1,3 +1,20 @@
+### giggs (N/A, Sun, 8 Sep 2024 07:50:00 -0700)
+
+- **Paul Scholes reveals how he and Ryan Giggs influenced Derby County transfer**: [Link](https://www.derbytelegraph.co.uk/sport/football/football-news/derby-county-transfers-tyrese-fornah-9526811)
+- **Paul Scholes reveals how he and Ryan Giggs influenced Derby County transfer**: [Link](https://uk.news.yahoo.com/paul-scholes-reveals-ryan-giggs-090637625.html)
+- **Ryan Giggs vs Bukayo Saka vs Eden Hazard Stats Comparison**: [Link](https://www.givemesport.com/ryan-giggs-bukayo-saka-eden-hazard-stats-compared-football/)
+
+
+### typhon chine (N/A, Sun, 8 Sep 2024 06:40:00 -0700)
+
+- **Des toits arrachés, des bateaux coulés: le typhon Yagi a tout balayé sur 
+son passage**: [Link](https://www.lessentiel.lu/fr/video/super-typhon-en-asie-des-toits-arraches-des-bateaux-coules-le-typhon-yagi-a-tout-balaye-sur-son-passage-103181651)
+- **Vidéo. No comment : aux Philippines, la tempête tropicale Yagi fait 
+plusieurs morts**: [Link](https://fr.euronews.com/video/2024/09/02/philippines-la-tempete-tropicale-yagi-fait-plusieurs-morts)
+- **(Multimédia) Chine : reprise graduelle du trafic aérien et maritime à 
+Hainan après le passage du supertyphon Yagi**: [Link](https://french.news.cn/20240908/8a2a09708bdb4fa283d4dccd31caee8e/c.html)
+
+
 ### fatima ezzahra el idrissi (N/A, Sun, 8 Sep 2024 03:20:00 -0700)
 
 - **Jeux Paralympiques 2024: médaille d’or et record du monde pour Fatima 
