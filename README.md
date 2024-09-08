@@ -1,3 +1,12 @@
+### فيضانات المغرب (N/A, Sun, 8 Sep 2024 07:50:00 -0700)
+
+- **إقليم كلميم يغرق في الوحل والعزلة بعد فاجعة الفيضانات (صور)**: [Link](https://rue20.com/835449.html)
+- **توقع حصيلة ثقيلة من الغرقى في إقليم كلميم.. الوالي انتظر حتى الصباح لتفقد 
+المناطق المنكوبة ورئيسة الهجة غائبة**: [Link](https://lakome2.com/societe/354428/)
+- **بالصور: السيول الجارفة بإقليم طاطا.. الحصيلة الأولية للمفقودين وعدد المنازل 
+المُنهارة**: [Link](https://ar.le360.ma/societe/HJKSBLJDBBFGPCKWVY7S2BW2A4/)
+
+
 ### mike maignan (N/A, Sun, 8 Sep 2024 08:00:00 -0700)
 
 - **Kylian Mbappe and Antoine Griezmann 'stunned into silence by France 
