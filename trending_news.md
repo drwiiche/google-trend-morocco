@@ -1,3 +1,11 @@
+### jannik sinner (N/A, Sun, 8 Sep 2024 11:50:00 -0700)
+
+- **US Open 2024 live updates: Men's final with USA's Taylor Fritz against 
+Jannik Sinner - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/us-open-2024-tennis-live-updates-schedule-results-final-mens/LWiir7uI3DiQ/)
+- **Jannik Sinner - Taylor Fritz live: US Open men - Tennis**: [Link](https://www.eurosport.com/tennis/us-open-men/2024/live-jannik-sinner-taylor-fritz_mtc1497539/live-commentary.shtml)
+- **When is US Open men's final? How to watch Taylor Fritz vs Jannik Sinner**: [Link](https://www.usatoday.com/story/sports/tennis/open/2024/09/08/us-open-final-taylor-fritz-jannik-sinner-watch-when/75108618007/)
+
+
 ### suiza - españa (N/A, Sun, 8 Sep 2024 11:40:00 -0700)
 
 - **Suiza - España, en directo: Nations League hoy, en vivo**: [Link](https://as.com/futbol/seleccion/suiza-espana-en-directo-nations-league-hoy-en-vivo-n/)
