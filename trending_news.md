@@ -1,3 +1,12 @@
+### sarah friedland (N/A, Sun, 8 Sep 2024 01:00:00 -0700)
+
+- **Israel-Gaza Conflict In Focus At Venice Awards Ceremony As Multiple Winners 
+Voice Support For Palestinian People**: [Link](https://deadline.com/2024/09/venice-awards-ceremony-winners-voice-support-palestinian-people-1236081073/)
+- **Tunisian film crew protests Gaza genocide at Venice Film Festival**: [Link](https://en.royanews.tv/news/53991)
+- **American-Japanese film director attends festival wearing Palestinian 
+‘keffiyeh’**: [Link](https://www.arabnews.jp/en/arts-culture/article_129675/)
+
+
 ### klopp dortmund (N/A, Sat, 7 Sep 2024 23:20:00 -0700)
 
 - **Dortmunds Legenden-Spiel mit Klopp, Hummels & Co.: Alles wie früher beim BVB**: [Link](https://www.bild.de/sport/fussball/bvb-dortmunder-legenden-gipfel-juergen-klopp-wieder-schwarz-gelb-66dc462e850ab075339c9feb)
