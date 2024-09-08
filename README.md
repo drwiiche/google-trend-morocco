@@ -1,3 +1,20 @@
+### portugal (N/A, Sun, 8 Sep 2024 12:20:00 -0700)
+
+- **Portugal pede que a UE comece a se preparar para a inclusão da Ucrânia**: [Link](https://valor.globo.com/mundo/noticia/2024/09/07/portugal-pede-que-a-ue-comece-a-se-preparar-para-a-inclusao-da-ucrania.ghtml)
+- **Ucrânia: "Terei curiosidade no desempenho do presidente do Conselho 
+Europeu. Costa disse não à adesão e tornou-se crente"**: [Link](https://cnnportugal.iol.pt/videos/ucrania-terei-curiosidade-no-desempenho-do-presidente-do-conselho-europeu-costa-disse-nao-a-adesao-e-tornou-se-crente/66ddd4b40cf28c51602e11fc)
+- **Portugal tem sido desde o início da guerra um apoiante acérrimo da Ucrânia 
+e tem tido uma postura bastante coerente**: [Link](https://cnnportugal.iol.pt/videos/portugal-tem-sido-desde-o-inicio-da-guerra-um-apoiante-acerrimo-da-ucrania-e-tem-tido-uma-postura-bastante-coerente/66ddb6aa0cf2f130c2996e6e)
+
+
+### portugal fc (N/A, Sun, 8 Sep 2024 12:00:00 -0700)
+
+- **"Pepalizados": torcida do Sport se derrete por técnico português após 
+estreia com vitória na Série B**: [Link](https://ge.globo.com/pe/futebol/times/sport/noticia/2024/09/08/pepalizados-torcida-do-sport-se-derrete-por-tecnico-portugues-apos-estreia-com-vitoria.ghtml)
+- **Avaí amarga derrota em casa e se distancia do G-4**: [Link](https://noticias.r7.com/santa-catarina/nd-mais/avai-amarga-derrota-em-casa-e-se-distancia-do-g-4-08092024/)
+- **Na estreia de Pepa, o Sport vence Avaí e se aproxima do G4**: [Link](https://www.fpf-pe.com.br/pt/noticias/view.php?q=10603)
+
+
 ### lamine yamal (N/A, Sun, 8 Sep 2024 12:20:00 -0700)
 
 - **Líder Lamine Yamal**: [Link](https://as.com/futbol/primera/lider-lamine-yamal-n/)
