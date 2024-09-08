@@ -1,3 +1,17 @@
+### مباي نيانغ (N/A, Sun, 8 Sep 2024 05:20:00 -0700)
+
+- **الوداد يقترب من حسم صفقة مهاجم من "العيار الثقيل"**: [Link](http://ar.sport.le360.ma/maroc/158520)
+- **تحرك آيت منا وتوضيح من مصدر “سيت أنفو” بشأن المهاجم ا?...**: [Link](https://sport.lesiteinfo.com/elbotola/444327.html)
+- **الوداد يتبرأ من شائعة صفقة هداف يانج أفريكانز**: [Link](https://www.kooora.com/?n=1353050)
+
+
+### paralympics 2024 (N/A, Sun, 8 Sep 2024 03:20:00 -0700)
+
+- **Swiss double in wheelchair marathons on final day of Paralympics**: [Link](https://www.standardspeaker.com/news/nation-world/swiss-double-in-wheelchair-marathons-on-final-day-of-paralympics/article_9e775a4b-ce9e-5ba5-8a2a-bce20dbffa00.html)
+- **De Rozario second as six-medal Swiss nabs marathon gold**: [Link](https://theqldr.com.au/sport/2024/09/08/para24_aust-17/)
+- **Swiss double in wheelchair marathons on final day of Paralympics**: [Link](https://www.wataugademocrat.com/news/national/swiss-double-in-wheelchair-marathons-on-final-day-of-paralympics/article_e0c0694b-5974-5406-be4b-231287e76352.html)
+
+
 ### pluies maroc (N/A, Sun, 8 Sep 2024 04:50:00 -0700)
 
 - **Le Sud-Est du Maroc frappé par de fortes intempéries causant d’importants 
