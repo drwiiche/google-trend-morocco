@@ -1,3 +1,17 @@
+### طاطا (N/A, Sat, 7 Sep 2024 17:10:00 -0700)
+
+- **المغرب.. انهيار منازل وتضرر طرقات بسبب الفيضانات**: [Link](https://www.alarabiya.net/north-africa/morocco/2024/09/07/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D9%88-%D8%AA%D8%B6%D8%B1%D8%B1-%D8%B7%D8%B1%D9%82%D8%A7%D8%AA-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA)
+- **نشرة حمراء: أمطار رعدية جد قوية بالمغرب**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%AC%D8%AF-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1427777.html)
+- **فيضانات في ورزازات وتحذير من أمطار قوية بمناطق مغربية**: [Link](https://www.aljazeera.net/news/2024/9/7/%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+
+
+### élections présidentielles algérie (N/A, Sat, 7 Sep 2024 17:10:00 -0700)
+
+- **Le bilan diplomatique du Président Tebboune : Une boussole géostratégique démagnétisée**: [Link](https://maroc-diplomatique.net/le-bilan-diplomatique-du-president-tebboune-une-boussole-geostrategique-demagnetisee/)
+- **Elections présidentielles : consensus sur l'importance du vote pour renforcer la voie démocratique**: [Link](https://al24news.com/fr/elections-presidentielles-consensus-sur-limportance-de-leligibilite-pour-renforcer-la-voie-democratique/)
+- **Le rideau de fumée de l’Algérie : réélection par la force et le silence**: [Link](https://fr.hespress.com/384912-le-rideau-de-fumee-de-lalgerie-reelection-par-la-force-et-le-silence.html)
+
+
 ### arda güler (N/A, Sat, 7 Sep 2024 16:20:00 -0700)
 
 - **Arda Güler limps off in Turkey’s 0-0 draw with Wales**: [Link](https://www.managingmadrid.com/2024/9/6/24237872/arda-guler-limps-off-in-turkeys-0-0-draw-with-wales)
