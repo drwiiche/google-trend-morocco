@@ -1,3 +1,10 @@
+### bls (N/A, Sat, 7 Sep 2024 23:50:00 -0700)
+
+- **Leaked Reports and Political Heat Are Testing Trust in Economic Data**: [Link](https://www.nytimes.com/2024/09/05/business/economy/bls-economic-data-jobs-report-cpi.html)
+- **Jobs: Downward Revisions and Weak Numbers Everywhere**: [Link](https://www.schiffgold.com/commentaries/jobs-downward-revisions-and-weak-numbers-everywhere)
+- **Did the Government Lie About Jobs?**: [Link](https://www.rasmussenreports.com/public_content/politics/general_politics/did_the_government_lie_about_jobs)
+
+
 ### jeux paralympiques 2024 (N/A, Sat, 7 Sep 2024 23:20:00 -0700)
 
 - **Jeux Paralympiques 2024: médaille d’or et nouveau record du monde pour 
