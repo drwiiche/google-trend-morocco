@@ -1,3 +1,19 @@
+### élection présidentielle algérienne (N/A, Sun, 8 Sep 2024 09:20:00 -0700)
+
+- **Algérie-élection : taux faible, scrutin déserté et vote prolongé…**: [Link](https://fr.hespress.com/385203-algerie-election-taux-faible-scrutin-deserte-et-vote-prolonge.html)
+- **Présidentielle en Algérie : participation faible sous les 50 %, les 
+résultats attendus dimanche**: [Link](https://www.france24.com/fr/afrique/20240908-presidentielle-algerie-resultats-vainqueur-participation-dimanche-tebboune)
+- **L’œil de Carlos. Présidentielle algérienne: des rivaux plus caporalistes 
+que les caporaux**: [Link](https://fr.le360.ma/medias/loeil-de-carlos-presidentielle-algerienne-des-rivaux-plus-caporalistes-que-les-caporaux_VY4MA64DVNCBZMVAADXRIT5NVI/)
+
+
+### wydad (N/A, Sun, 8 Sep 2024 09:10:00 -0700)
+
+- **Wydad Casablanca ou MCA ? Andy Delort lâche un énorme indice**: [Link](https://fennecfootball.com/wydad-casablanca-ou-mca-andy-delort-lache-un-enorme-indice/)
+- **Delort échappe à l’Algérie pour rejoindre le Maroc ?**: [Link](https://fennecfootball.com/le-maroc-chipe-andy-delort-a-lalgerie/)
+- **Delort banni de l'EN, un club algérien veut le sauver**: [Link](https://fennecfootball.com/delort-banni-de-lequipe-dalgerie-un-club-algerien-veut-le-sauver/)
+
+
 ### danemark – serbie (N/A, Sun, 8 Sep 2024 08:50:00 -0700)
 
 - **Pronostic Danemark - Serbie, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/danemark-serbie-213849/)
