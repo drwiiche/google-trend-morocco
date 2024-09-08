@@ -1,3 +1,20 @@
+### maroc paralympiques 2024 (N/A, Sun, 8 Sep 2024 03:00:00 -0700)
+
+- **Jeux Paralympiques 2024: médaille d’or et nouveau record du monde pour 
+Aymane El Haddaoui, l’argent pour Ayoub Sadni**: [Link](https://sport.le360.ma/athletisme/jeux-paralympiques-2024-medaille-dor-et-nouveau-record-du-monde-pour-aymane-el-haddaoui-largent-pour-114247)
+- **Jeux Paralympiques : Azeddine Nouiri décroche la médaille d’argent au 
+lancer du poids (F34)**: [Link](https://fr.hespress.com/385166-jeux-paralympiques-azeddine-nouiri-decroche-la-medaille-dargent-au-lancer-du-poids-f34.html)
+- **Jeux Paralympiques 2024 : trois nouvelles médailles pour le Maroc**: [Link](https://lematin.ma/sports/jeux-paralympiques-2024-trois-nouvelles-medailles-pour-le-maroc/242037)
+
+
+### election algerie (N/A, Sun, 8 Sep 2024 01:50:00 -0700)
+
+- **Présidentielle en Algérie : participation faible sous les 50 %, les 
+résultats attendus dimanche**: [Link](https://www.france24.com/fr/afrique/20240908-presidentielle-algerie-resultats-vainqueur-participation-dimanche-tebboune)
+- **Algérie-élection : taux faible, scrutin déserté et vote prolongé…**: [Link](https://fr.hespress.com/385203-algerie-election-taux-faible-scrutin-deserte-et-vote-prolonge.html)
+- **En Algérie, faible engouement pour une présidentielle sans suspense**: [Link](https://www.lemonde.fr/afrique/article/2024/09/07/en-algerie-faible-engouement-pour-une-presidentielle-sans-suspens_6306913_3212.html)
+
+
 ### paralympiques 2024 (N/A, Sun, 8 Sep 2024 02:50:00 -0700)
 
 - **Jeux Paralympiques 2024: médaille d’or et nouveau record du monde pour Aymane El Haddaoui, l’argent pour Ayoub Sadni**: [Link](https://sport.le360.ma/athletisme/jeux-paralympiques-2024-medaille-dor-et-nouveau-record-du-monde-pour-aymane-el-haddaoui-largent-pour-114247)
