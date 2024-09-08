@@ -1,3 +1,19 @@
+### danemark – serbie (N/A, Sun, 8 Sep 2024 08:50:00 -0700)
+
+- **Pronostic Danemark - Serbie, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/danemark-serbie-213849/)
+- **Ligue des Nations : Danemark – Serbie pour la première place de la poule D**: [Link](https://africafootunited.com/ligue-des-nations-danemark-serbie-pour-la-premiere-place-de-la-poule-d/)
+- **Danemark / Serbie (TV/Streaming) - Sur quelle chaîne regarder le match de 
+Ligue des Nations**: [Link](https://www.sport-tv.org/sports/football/monde/ligue-des-nations/danemark-serbie-tv-streaming-sur-quelle-chaine-regarder-le-match-de-ligue-des-nations/)
+
+
+### apple iphone 16 pro max (N/A, Sun, 8 Sep 2024 08:50:00 -0700)
+
+- **Apple iPhone 16 Launch: Last Minute Leaks Emerge**: [Link](https://www.forbes.com/sites/paulmonckton/2024/09/07/apple-iphone-16-launch-last-minute-leaks-emerge/)
+- **Apple’s AI Rollout Is Too Staggered to Spur iPhone ‘Super Cycle’**: [Link](https://www.bloomberg.com/news/newsletters/2024-09-08/apple-event-staggered-ai-rollout-and-same-iphone-design-means-no-super-cycle-m0tkgzqg)
+- **iPhone 16 Pro to shoot 4K 120fps videos, Camera Button works with 
+third-party apps**: [Link](https://9to5mac.com/2024/09/06/iphone-16-pro-4k-120fps-video-camera/)
+
+
 ### galatasaray – erokspor (N/A, Sun, 8 Sep 2024 08:20:00 -0700)
 
 
