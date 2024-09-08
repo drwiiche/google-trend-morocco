@@ -1,3 +1,37 @@
+### كرواتيا ضد بولندا (N/A, Sun, 8 Sep 2024 13:00:00 -0700)
+
+- **مودريتش يعادل إنجاز سيرجيو راموس**: [Link](https://hihi2.com/2024/09/08/p2839932.html)
+- **يلا شوت MGA4K.. بدون تقطيع مشاهدة مباراة كرواتيا وبولندا اليوم بث مباشر 
+تويتر في دوري الأمم الأوروبية**: [Link](https://real.alsaudinews.com/157638/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-mga4k-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D8%B1%D9%88/)
+- **كرواتيا وبولندا في دوري الأمم الأوروبية.. الموعد والقنوات الناقلة**: [Link](https://almashhadalaraby.com/news/470198)
+
+
+### inondations maroc (N/A, Sun, 8 Sep 2024 13:00:00 -0700)
+
+- **Le Sud-Est du Maroc frappé par de fortes intempéries causant d’importants 
+dégâts**: [Link](https://ledesk.ma/encontinu/le-sud-est-du-maroc-frappe-par-de-fortes-intemperies-causant-dimportants-degats/)
+- **Bilan provisoire des intempéries : 11 décès, 9 disparus et 40 maisons 
+effondrées (ministère de l'intérieur)**: [Link](https://medias24.com/2024/09/08/bilan-provisoire-des-intemperies-11-deces-9-disparus-et-40-maisons-effondrees-ministere-de-linterieur/)
+- **Averses orageuses ce dimanche dans plusieurs villes du Maroc**: [Link](https://lematin.ma/regions/averses-orageuses-ce-dimanche-dans-plusieurs-villes-du-maroc/242107)
+
+
+### spain (N/A, Sun, 8 Sep 2024 12:50:00 -0700)
+
+- **Venezuela opposition leader Edmundo González leaves country for Spain**: [Link](https://www.theguardian.com/world/article/2024/sep/08/venezuela-opposition-leader-edmundo-gonzalez-reportedly-leaves-country-for-spain)
+- **Venezuelan judge issues arrest warrant for opposition’s former presidential 
+candidate**: [Link](https://apnews.com/article/venezuela-edmundo-gonzalez-arrest-warrant-d34272422cddb42c1dde9166539a85d5)
+- **Venezuela: Opposition candidate arrives in Spain after fleeing country**: [Link](https://www.bbc.com/news/articles/c14zdypxr7no)
+
+
+### borussia dortmund (N/A, Sun, 8 Sep 2024 12:30:00 -0700)
+
+- **Nach erster Saisonphase gibt es beim BVB drei Verlierer - und drei Gewinner**: [Link](https://www.focus.de/sport/fussball/bundesliga1/nach-erster-saisonphase-gibt-es-beim-bvb-drei-verlierer-und-drei-gewinner_id_260291915.html)
+- **RN+ Viel BVB-Magerkost zum Saisonstart: Spätestens im Herbst müssen 
+Fortschritte erkennbar sein**: [Link](https://www.ruhrnachrichten.de/bvb/viel-bvb-magerkost-zum-saisonstart-spaetestens-im-herbst-muessen-fortschritte-erkennbar-sein-w930272-2001352050/)
+- **(CLUB) Borussia Dortmund unter Nuri Sahin: Wann kehrt der Vollgasfußball 
+zurück?**: [Link](https://www.11freunde.de/bundesliga/borussia-dortmund-unter-nuri-sahin-wann-kehrt-der-vollgasfussball-zurueck-a-a5939a01-21d6-4495-b649-86ac5b2dce95)
+
+
 ### portugal (N/A, Sun, 8 Sep 2024 12:20:00 -0700)
 
 - **Portugal pede que a UE comece a se preparar para a inclusão da Ucrânia**: [Link](https://valor.globo.com/mundo/noticia/2024/09/07/portugal-pede-que-a-ue-comece-a-se-preparar-para-a-inclusao-da-ucrania.ghtml)
