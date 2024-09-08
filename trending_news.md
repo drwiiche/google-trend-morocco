@@ -1,3 +1,17 @@
+### lamine yamal (N/A, Sun, 8 Sep 2024 12:20:00 -0700)
+
+- **Líder Lamine Yamal**: [Link](https://as.com/futbol/primera/lider-lamine-yamal-n/)
+- **El 'entrenamiento' de Lamine con perros funciona: es el rey de los regates**: [Link](https://www.marca.com/futbol/barcelona/2024/09/07/66db08a9e2704efa3d8b4596.html)
+- **'Jugaba con perros, y eso es lo más difícil'**: [Link](https://es.besoccer.com/noticia/entrevista-lamine-yamal-jugaba-con-perros-1329468)
+
+
+### us open 2024 (N/A, Sun, 8 Sep 2024 12:20:00 -0700)
+
+- **Taylor Swift, Travis Kelce, Patrick and Brittany Mahomes take in US Open**: [Link](https://www.espn.com/video/clip/_/id/41179325)
+- **Taylor Swift Is in Her Tennis Era as She Attends the U.S. Open Men's Finals**: [Link](https://www.townandcountrymag.com/style/fashion-trends/a62103378/taylor-swift-us-open-2024-photos/)
+- **Taylor Swift & Travis Kelce attend US Open final**: [Link](https://www.atptour.com/en/news/taylor-swift-travis-kelce-us-open-2024-final)
+
+
 ### uefa nations league (N/A, Sun, 8 Sep 2024 12:10:00 -0700)
 
 - **2024/25 UEFA Nations League: All you need to know**: [Link](https://www.uefa.com/uefanationsleague/news/0288-19a14a0f77d0-8b88a4fd8106-1000--2024-25-uefa-nations-league-all-you-need-to-know/)
