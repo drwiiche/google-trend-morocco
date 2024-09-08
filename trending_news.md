@@ -1,3 +1,10 @@
+### croatia vs poland (N/A, Sun, 8 Sep 2024 13:30:00 -0700)
+
+- **Croatia vs Poland LIVE Score Updates (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2024/09/08/1195398-croatia-vs-poland-live-score-updates-stream-info-and-how-to-watch-uefa-nations-league-match.html)
+- **Croatia vs Poland Predictions: Croatia to win, both teams to score**: [Link](https://www.goal.com/en-in/betting/croatia-vs-poland-predictions-09-09-2024/blt5ad170bffa150951)
+- **Preview: Croatia vs. Poland - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/croatia/uefa-nations-league/preview/preview-croatia-vs-poland-prediction-team-news-lineups_552331.html)
+
+
 ### spain fc (N/A, Sun, 8 Sep 2024 13:30:00 -0700)
 
 - **Spain: FC Barcelona sure of quick return to Camp Nou**: [Link](https://stadiumdb.com/news/2024/09/spain_fc_barcelona_sure_of_quick_return_to_camp_nou)
