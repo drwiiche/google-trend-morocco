@@ -1,3 +1,28 @@
+### croatie foot (N/A, Sun, 8 Sep 2024 14:10:00 -0700)
+
+- **Ligue des Nations - "Mon dernier objectif" : Et maintenant, Cristiano 
+Ronaldo vise la barre des 1 000 buts**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2024-2025/ligue-des-nations-mon-dernier-objectif-et-maintenant-cristiano-ronaldo-vise-la-barre-des-1-000-buts_sto10332020/story.shtml)
+- **Ligue des Nations : le Portugal dompte la Croatie grâce à un Cristiano 
+Ronaldo historique, l’Espagne bute face à la Serbie**: [Link](https://www.footmercato.net/a3532071869683888934-ligue-des-nations-le-portugal-dompte-la-croatie-grace-a-un-cristiano-ronaldo-historique-lespagne-bute-face-a-la-serbie)
+- **Malgré des performances décevantes à l'Euro, Cristiano Ronaldo toujours 
+titulaire et tête d'affiche du Portugal**: [Link](https://www.lequipe.fr/Football/Actualites/Malgre-des-performances-decevantes-a-l-euro-cristiano-ronaldo-toujours-titulaire-et-tete-d-affiche-du-portugal/1506412)
+
+
+### joselu (N/A, Sun, 8 Sep 2024 12:50:00 -0700)
+
+- **Lamine Yamal, qué locura: lo que hizo en el gol de Joselu fue una salvajada**: [Link](https://as.com/futbol/videos/lamine-yamal-que-locura-lo-que-hizo-en-el-gol-de-joselu-fue-una-salvajada-v/)
+- **Lamine decide y nadie se lesiona, por Joan Vehils**: [Link](https://www.sport.es/es/noticias/opinion/lamine-decide-nadie-lesiona-107910255)
+- **Joselu: “Dudar del Real Madrid es como escupir al cielo...”**: [Link](https://as.com/futbol/seleccion/joselu-mbappe-es-como-un-bote-de-ketchup-n/)
+
+
+### nations league (N/A, Sun, 8 Sep 2024 12:40:00 -0700)
+
+- **France vs Italy 1-3: UEFA Nations League football Group A2 – as it happened**: [Link](https://www.aljazeera.com/sports/liveblog/2024/9/6/live-france-vs-italy-uefa-nations-league-football-group-a2)
+- **Nations League highlights and round-up: High fives as Germany and 
+Netherlands win**: [Link](https://www.uefa.com/uefanationsleague/news/0291-1bc9041d42bf-c14ea717ef26-1000--nations-league-highlights-and-round-up-high-fives-as-germany/)
+- **Germany thrash Hungary in Nations League opener**: [Link](https://www.bbc.com/sport/football/live/cy9erxvydwqt)
+
+
 ### croatia vs poland (N/A, Sun, 8 Sep 2024 13:30:00 -0700)
 
 - **Croatia vs Poland LIVE Score Updates (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2024/09/08/1195398-croatia-vs-poland-live-score-updates-stream-info-and-how-to-watch-uefa-nations-league-match.html)
