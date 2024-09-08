@@ -1,3 +1,20 @@
+### imane khelif (N/A, Sun, 8 Sep 2024 16:00:00 -0700)
+
+- **Après la polémique des JO 2024, Imen Khelif répond à Elon Musk**: [Link](https://fr.hespress.com/385235-apres-la-polemique-des-jo-2024-imen-khelif-repond-a-elon-musk.html)
+- **Jeux Olympiques: Vladimir Poutine qualifie la victoire d'Imane Khelif de 
+«ridicule»**: [Link](https://sport.le360.ma/combats/jeux-olympiques-vladimir-poutine-qualifie-la-victoire-dimane-khelif-de-ridicule-114173)
+- **Imane Khelif répond à Elon Musk**: [Link](https://www.tsa-algerie.com/imane-khelif-repond-a-elon-musk/)
+
+
+### arda güler (N/A, Sun, 8 Sep 2024 15:50:00 -0700)
+
+- **Arda Güler limps off in Turkey’s 0-0 draw with Wales**: [Link](https://www.managingmadrid.com/2024/9/6/24237872/arda-guler-limps-off-in-turkeys-0-0-draw-with-wales)
+- **Real Madrid take note: Turkey boss Montella provides fresh injury update on 
+Arda Güler**: [Link](https://sports.yahoo.com/real-madrid-note-turkey-boss-130000792.html)
+- **"He could not walk comfortably yesterday" - Turkiye coach provides fitness 
+update on Real Madrid star Arda Guler after Nations League clash**: [Link](https://www.sportskeeda.com/football/news-he-walk-comfortably-yesterday-turkey-coach-provides-fitness-update-real-madrid-star-arda-guler-nations-league-clash)
+
+
 ### tempête de sable marrakech (N/A, Sun, 8 Sep 2024 14:50:00 -0700)
 
 - **Tempête de sable à Marrakech**: [Link](https://www.bladi.net/tempete-sable-marrakech,110378.html)
