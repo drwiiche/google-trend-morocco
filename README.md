@@ -1,3 +1,47 @@
+### سويسرا ضد إسبانيا (N/A, Sun, 8 Sep 2024 11:00:00 -0700)
+
+- **منتخب إسبانيا يغادر إلى سويسرا دون نجمه**: [Link](https://www.kooora.com/?n=1353038)
+- **تفاصيل إصابة نجم منتخب إسبانيا**: [Link](https://hihi2.com/2024/09/06/p2835498.html)
+- **دي لا فوينتي: إصابة مهاجم إسبانيا سيئة**: [Link](https://www.kooora.com/?n=1352977)
+
+
+### croatie – pologne (N/A, Sun, 8 Sep 2024 11:00:00 -0700)
+
+- **Pronostic Croatie - Pologne, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/croatie-pologne-213721/)
+- **RC Lens : un joueur sur le pont ce 8 septembre**: [Link](https://le11hdf.fr/rc-lens-un-joueur-sur-le-pont-ce-8-septembre/)
+- **Przemyslaw Frankowski va retrouver le gardien du Panathinaïkos en septembre…**: [Link](https://www.lensois.com/przemyslaw-frankowski-va-retrouver-le-gardien-du-panathinaikos-en-septembre/)
+
+
+### portugal vs scotland (N/A, Sun, 8 Sep 2024 11:00:00 -0700)
+
+- **Scotland prepare for Portugal trip**: [Link](https://www.scottishfa.co.uk/news/scotland-prepare-for-portugal-trip/)
+- **UEFA Nations League 2024: POR vs SCO, SUI vs ESP live time and streaming**: [Link](https://www.business-standard.com/sports/football-news/uefa-nations-league-2024-ronaldo-s-portugal-champions-spain-to-play-today-124090800234_1.html)
+- **Sunday’s Football Tips: Portugal to pile on Nations League pain for Scotland**: [Link](https://mrfixitstips.co.uk/sundays-football-tips-portugal-to-pile-on-nations-league-pain-for-scotland/)
+
+
+### البرتغال ضد إسكتلندا (N/A, Sun, 8 Sep 2024 11:00:00 -0700)
+
+- **مفاجأة.. رونالدو بديلا مع البرتغال أمام إسكتلندا**: [Link](https://m.kooora.com/?n=1353524&o=n)
+- **البرتغال تسعى لمواصلة انتصاراتها عندما تستضيف اسكتلندا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%AA%D8%B3%D8%B9%D9%89-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA%D9%87%D8%A7-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D8%AA%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%A7%D8%B3%D9%83%D8%AA%D9%84%D9%86%D8%AF%D8%A7-2024-09-08)
+- **أرقام روبرتو مارتينيز أمام ستيف كلارك**: [Link](https://hihi2.com/2024/09/08/p2838594.html)
+
+
+### suisse – espagne (N/A, Sun, 8 Sep 2024 10:50:00 -0700)
+
+- **Ligue des nations : La Roja doit trouver des solutions en attaque**: [Link](https://www.lequipe.fr/Football/Actualites/La-roja-doit-trouver-des-solutions-en-attaque/1506431)
+- **Murat Yakin: « Le défi est magnifique »**: [Link](https://www.lemanbleu.ch/fr/Actualite/Sport/Murat-Yakin-Le-defi-est-magnifique.html)
+- **PRONOS PARIS RMC Le pari football de Rolland Courbis du 8 septembre - Ligue 
+des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-rolland-courbis-du-8-septembre-ligue-des-nations_AN-202409070281.html)
+
+
+### portugal – écosse (N/A, Sun, 8 Sep 2024 10:50:00 -0700)
+
+- **PRONOS PARIS RMC Le buteur du jour du 8 septembre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-8-septembre-ligue-des-nations_AN-202409070041.html)
+- **Pronostic Portugal - Écosse, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/portugal-ecosse-213860/)
+- **L'Écosse vise la rédemption à Lisbonne alors que le combat de la Ligue des 
+Nations approche**: [Link](https://www.footboom1.com/br/news/football/1804413-scotland-eyes-redemption-in-lisbon-as-nations-league-battle-approaches)
+
+
 ### élection présidentielle algérienne (N/A, Sun, 8 Sep 2024 09:20:00 -0700)
 
 - **Algérie-élection : taux faible, scrutin déserté et vote prolongé…**: [Link](https://fr.hespress.com/385203-algerie-election-taux-faible-scrutin-deserte-et-vote-prolonge.html)
