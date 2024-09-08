@@ -1,3 +1,12 @@
+### mike maignan (N/A, Sun, 8 Sep 2024 08:00:00 -0700)
+
+- **Kylian Mbappe and Antoine Griezmann 'stunned into silence by France 
+team-mate's furious rant after 3-1 defeat**: [Link](https://www.dailymail.co.uk/sport/football/article-13826179/Kylian-Mbappe-Antoine-Griezmann-left-SILENT-chastised-Mike-Maignan-post-match-rant-following-Frances-3-1-defeat-Italy.html)
+- **Maignan furious at France teammates and ‘silent Mbappe’ after Italy defeat**: [Link](https://football-italia.net/maignan-raged-france-teammates-mbappe-italy/)
+- **Maignan reacts to Italy loss with leadership qualities: “A defeat that 
+hurts”**: [Link](https://sempremilan.com/maignan-reacts-italy-loss-leadership-qualities)
+
+
 ### giggs (N/A, Sun, 8 Sep 2024 07:50:00 -0700)
 
 - **Paul Scholes reveals how he and Ryan Giggs influenced Derby County transfer**: [Link](https://www.derbytelegraph.co.uk/sport/football/football-news/derby-county-transfers-tyrese-fornah-9526811)
