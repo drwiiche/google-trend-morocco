@@ -1,3 +1,24 @@
+### suiza - españa (N/A, Sun, 8 Sep 2024 11:40:00 -0700)
+
+- **Suiza - España, en directo: Nations League hoy, en vivo**: [Link](https://as.com/futbol/seleccion/suiza-espana-en-directo-nations-league-hoy-en-vivo-n/)
+- **Sorprendente once de De la Fuente, que no se guarda nada**: [Link](https://www.mundodeportivo.com/seleccion-espanola/20240908/1002312120/sorprendente-once-fuente-guarda.html)
+- **Suiza - España en directo | Nations League hoy en vivo**: [Link](https://www.marca.com/futbol/uefa-nations-league/suiza-espana/2024/09/08/01_0195_20240908_497_118-directo.html)
+
+
+### espagne foot (N/A, Sun, 8 Sep 2024 11:40:00 -0700)
+
+- **Mercato : Vinicius, le PSG se frotte les mains**: [Link](https://www.football365.fr/vinicius-le-psg-se-frotte-les-mains-10200454.html)
+- **Mondial 2030: Vinicius appelle à écarter l'Espagne de l'organisation**: [Link](https://sport.le360.ma/football/mondial-2030-vinicius-appelle-ecarter-lespagne-de-lorganisation-114208)
+- **Carvajal - Vinicius, le clash**: [Link](https://www.goal.com/fr/news/carvajal-vinicius-le-clash/bltc6d1a54c60a4896a)
+
+
+### sinner (N/A, Sun, 8 Sep 2024 11:40:00 -0700)
+
+- **Surrey: Jack Draper says vomiting on court 'worst feeling ever'**: [Link](https://www.bbc.co.uk/news/articles/c4gekr55dx7o)
+- **Jannik Sinner Vs. Taylor Fritz: How To Watch US Open 2024 Men’s Final Live?**: [Link](https://www.forbes.com/advisor/in/business/software/jannik-sinner-vs-taylor-fritz-how-to-watch-us-open-2024-mens-final-live/)
+- **Jack Draper 'came unstuck' in US Open semi-final**: [Link](https://news.sky.com/video/jack-draper-came-unstuck-in-us-open-semi-final-13210849)
+
+
 ### switzerland vs spain (N/A, Sun, 8 Sep 2024 11:10:00 -0700)
 
 - **LIVE: Switzerland vs Spain – Nations League football Group A4**: [Link](https://www.aljazeera.com/sports/liveblog/2024/9/8/live-switzerland-vs-spain-nations-league-football-group-a4?update=3165413)
