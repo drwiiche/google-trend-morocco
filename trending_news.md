@@ -1,3 +1,26 @@
+### uefa nations league (N/A, Sun, 8 Sep 2024 12:10:00 -0700)
+
+- **2024/25 UEFA Nations League: All you need to know**: [Link](https://www.uefa.com/uefanationsleague/news/0288-19a14a0f77d0-8b88a4fd8106-1000--2024-25-uefa-nations-league-all-you-need-to-know/)
+- **Republic of Ireland vs England 0-2: Nations League – as it happened**: [Link](https://www.aljazeera.com/sports/liveblog/2024/9/7/live-republic-of-ireland-vs-england-nations-league-football-group-b2)
+- **England and Ireland football fans clash as supporter dragged through street 
+by police**: [Link](https://www.mirror.co.uk/news/uk-news/england-ireland-football-fans-clash-33621219)
+
+
+### portugal foot (N/A, Sun, 8 Sep 2024 12:00:00 -0700)
+
+- **REPORT | Portugal 2-5 WU17**: [Link](https://www.fai.ie/latest/report-portugal-2-5-wu17/)
+- **Treaty United players star for Rep of Ireland women's U17 side**: [Link](https://www.limerickleader.ie/news/treaty-utd/1597997/treaty-united-players-star-for-ireland-women-s-u17-side.html)
+- **Irish WU17s set for double-header with Portugal**: [Link](https://www.irishpost.com/sport/irish-wu17s-set-for-double-header-with-portugal-277183)
+
+
+### espagne (N/A, Sun, 8 Sep 2024 12:00:00 -0700)
+
+- **L’Espagne exporte 12,1 M$ vers le Maroc et le commerce bilatéral prospère**: [Link](https://fr.hespress.com/385096-lespagne-exporte-121-m-vers-le-maroc-et-le-commerce-bilateral-prospere.html)
+- **La ministre de la Défense espagnole loue la collaboration « totale » du 
+Maroc dans la gestion de l'immigration**: [Link](https://ledesk.ma/encontinu/la-ministre-de-la-defense-espagnole-loue-la-collaboration-totale-du-maroc-dans-la-gestion-de-limmigration/)
+- **Nouvelles tensions entre l’Espagne et le Maroc ?**: [Link](https://www.bladi.net/nouvelles-tensions-espagne-maroc,110289.html)
+
+
 ### jannik sinner (N/A, Sun, 8 Sep 2024 11:50:00 -0700)
 
 - **US Open 2024 live updates: Men's final with USA's Taylor Fritz against 
