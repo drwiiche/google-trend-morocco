@@ -1,3 +1,12 @@
+### pluies maroc (N/A, Sun, 8 Sep 2024 04:50:00 -0700)
+
+- **Le Sud-Est du Maroc frappé par de fortes intempéries causant d’importants 
+dégâts**: [Link](https://ledesk.ma/encontinu/le-sud-est-du-maroc-frappe-par-de-fortes-intemperies-causant-dimportants-degats/)
+- **Averses orageuses localement fortes ce dimanche dans plusieurs provinces**: [Link](https://fr.hespress.com/385212-averses-orageuses-localement-fortes-ce-dimanche-dans-plusieurs-provinces.html)
+- **Alerte météo : Fortes averses orageuses, grêle et rafales de vent samedi et 
+dimanche**: [Link](https://lematin.ma/regions/fortes-averses-orageuses-grele-et-rafales-de-vent-samedi-et-dimanche/242035)
+
+
 ### tempete sable marrakech (N/A, Sun, 8 Sep 2024 04:20:00 -0700)
 
 - **Tempête de sable à Marrakech**: [Link](https://www.bladi.net/tempete-sable-marrakech,110378.html)
