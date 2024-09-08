@@ -1,3 +1,11 @@
+### spain fc (N/A, Sun, 8 Sep 2024 13:30:00 -0700)
+
+- **Spain: FC Barcelona sure of quick return to Camp Nou**: [Link](https://stadiumdb.com/news/2024/09/spain_fc_barcelona_sure_of_quick_return_to_camp_nou)
+- **Espai Barça unveils fresh website with project updates**: [Link](https://www.mundodeportivo.com/us/en/soccer/20240903/699717/espai-barca-unveils-fresh-website-with-project-updates-nrt.html)
+- **The return to Spotify Camp Nou is near! This is how the works on the Barça 
+stadium are progressing**: [Link](https://www.fcbarcelonanoticias.com/en/football-barca/more-progress-at-the-spotify-camp-nou-this-is-how-the-stadium-works-are-progressing_307126_102.html)
+
+
 ### ليسوتو (N/A, Sun, 8 Sep 2024 13:10:00 -0700)
 
 - **الركراكي: لم أحسم في الظهير الأيسر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%84%D9%85-%D8%A3%D8%AD%D8%B3%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%B8%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D9%8A%D8%B3%D8%B1-1428258.html)
