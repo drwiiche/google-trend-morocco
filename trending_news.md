@@ -1,3 +1,13 @@
+### jeux paralympiques 2024 (N/A, Sat, 7 Sep 2024 23:20:00 -0700)
+
+- **Jeux Paralympiques 2024: médaille d’or et nouveau record du monde pour 
+Aymane El Haddaoui, l’argent pour Ayoub Sadni**: [Link](https://sport.le360.ma/athletisme/jeux-paralympiques-2024-medaille-dor-et-nouveau-record-du-monde-pour-aymane-el-haddaoui-largent-pour-114247)
+- **Jeux Paralympiques : Azeddine Nouiri décroche la médaille d’argent au 
+lancer du poids (F34)**: [Link](https://fr.hespress.com/385166-jeux-paralympiques-azeddine-nouiri-decroche-la-medaille-dargent-au-lancer-du-poids-f34.html)
+- **Jeux paralympiques : les Marocains Ayoub Sadni et Aymane El Haddaoui en 
+finale du 400 m**: [Link](https://mobile.telquel.ma/instant-t/2024/09/06/jeux-paralympiques-les-marocains-ayoub-sadni-et-aymane-el-haddaoui-en-finale-du-400-m_1892411/)
+
+
 ### alyaoum24 (N/A, Sun, 8 Sep 2024 01:20:00 -0700)
 
 
