@@ -1,3 +1,11 @@
+### tempête de sable marrakech (N/A, Sun, 8 Sep 2024 14:50:00 -0700)
+
+- **Tempête de sable à Marrakech**: [Link](https://www.bladi.net/tempete-sable-marrakech,110378.html)
+- **En images : Une tempête de sable balaie la ville de Marrakech et obscurcit 
+la vue - HIBAPRESS**: [Link](https://fr.hibapress.com/news-130443.html)
+- **Vents forts et tempête de poussière à Marrakech (VIDEO)**: [Link](https://www.lesiteinfo.com/maroc/626626-vents-forts-et-tempete-de-poussiere-a-marrakech-ce-samedi-video.html)
+
+
 ### cristiano ronaldo (N/A, Sun, 8 Sep 2024 14:00:00 -0700)
 
 - **Scoring 900 goals, Ronaldo's goal-scoring achievements play pivotal role in 
