@@ -1,3 +1,29 @@
+### ليسوتو (N/A, Sun, 8 Sep 2024 13:10:00 -0700)
+
+- **الركراكي: لم أحسم في الظهير الأيسر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%84%D9%85-%D8%A3%D8%AD%D8%B3%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%B8%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D9%8A%D8%B3%D8%B1-1428258.html)
+- **الركراكي يعد بتغييرات في تشكيلة المنتخب المغربي خلال مواجهته ليسوتو سعيا 
+إلى انتصار ثان**: [Link](https://alyaoum24.com/1914039.html)
+- **موعد مباراة المغرب وليسوتو في تصفيات كأس أمم أفريقيا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/9/7/morocco)
+
+
+### us open (N/A, Sun, 8 Sep 2024 13:00:00 -0700)
+
+- **Taylor Swift & Travis Kelce attend US Open final**: [Link](https://www.atptour.com/en/news/taylor-swift-travis-kelce-us-open-2024-final)
+- **Taylor Swift, Travis Kelce, Patrick Mahomes and Brittany Mahomes Attend US 
+Open Final Together**: [Link](https://www.today.com/news/sports/taylor-swift-travis-kelce-us-open-rcna170129)
+- **Taylor Swift and Travis Kelce's Romantic Weekend Includes Wedding and U.S. 
+Open Dates**: [Link](https://www.eonline.com/news/1407008/taylor-swift-and-travis-kelces-romantic-weekend-includes-wedding-and-u-s-open-dates)
+
+
+### portugal match (N/A, Sun, 8 Sep 2024 12:40:00 -0700)
+
+- **Cristiano Ronaldo: 900 career goals - the numbers behind the Portugal 
+striker's landmark**: [Link](https://www.bbc.com/sport/football/articles/cvg5j08n694o)
+- **Martinez hails Ronaldo's 'historic' landmark**: [Link](https://www.beinsports.com/en-nz/football/uefa-nations-league/articles/martinez-hails-ronaldos-historic-landmark-2024-09-06)
+- **Scoring 900 goals, Ronaldo's goal-scoring achievements play pivotal role in 
+numerous victories for his teams**: [Link](https://www.aa.com.tr/en/sports/scoring-900-goals-ronaldos-goal-scoring-achievements-play-pivotal-role-in-numerous-victories-for-his-teams/3324331)
+
+
 ### كرواتيا ضد بولندا (N/A, Sun, 8 Sep 2024 13:00:00 -0700)
 
 - **مودريتش يعادل إنجاز سيرجيو راموس**: [Link](https://hihi2.com/2024/09/08/p2839932.html)
