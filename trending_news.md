@@ -1,3 +1,16 @@
+### switzerland vs spain (N/A, Sun, 8 Sep 2024 11:10:00 -0700)
+
+- **LIVE: Switzerland vs Spain – Nations League football Group A4**: [Link](https://www.aljazeera.com/sports/liveblog/2024/9/8/live-switzerland-vs-spain-nations-league-football-group-a4?update=3165413)
+- **Preview: Switzerland vs. Spain - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spain/uefa-nations-league/preview/preview-switzerland-vs-spain-prediction-team-news-lineups_552339.html)
+- **Spain to make significant changes for second UEFA Nations League clash 
+against Switzerland**: [Link](https://sports.yahoo.com/spain-significant-changes-second-uefa-200300261.html)
+
+
+### galatasaray vs erokspor (N/A, Sun, 8 Sep 2024 10:10:00 -0700)
+
+
+
+
 ### سويسرا ضد إسبانيا (N/A, Sun, 8 Sep 2024 11:00:00 -0700)
 
 - **منتخب إسبانيا يغادر إلى سويسرا دون نجمه**: [Link](https://www.kooora.com/?n=1353038)
