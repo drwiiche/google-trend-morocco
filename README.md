@@ -1,3 +1,11 @@
+### klopp dortmund (N/A, Sat, 7 Sep 2024 23:20:00 -0700)
+
+- **Dortmunds Legenden-Spiel mit Klopp, Hummels & Co.: Alles wie früher beim BVB**: [Link](https://www.bild.de/sport/fussball/bvb-dortmunder-legenden-gipfel-juergen-klopp-wieder-schwarz-gelb-66dc462e850ab075339c9feb)
+- **RN+ Große BVB-Emotionen bei Piszczek und Blaszczykowski: Todesfall 
+überschattet Abschiedsspiel**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-emotionen-beim-abschied-von-piszczek-und-blaszykowski-klopp-rueckkehr-und-hummels-gestaendnis-w933280-2001362468/)
+- **„Für immer Borussia Dortmund“: Piszczek und „Kuba“ emotional**: [Link](https://www.waz.de/sport/borussia-dortmund/article407200152/fuer-immer-borussia-dortmund-pisczek-und-kuba-emotional.html)
+
+
 ### tata (N/A, Sat, 7 Sep 2024 17:40:00 -0700)
 
 - **Tata Motors business split: Should you invest in the stock? Check share 
