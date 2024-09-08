@@ -1,3 +1,12 @@
+### fatima ezzahra el idrissi (N/A, Sun, 8 Sep 2024 03:20:00 -0700)
+
+- **Jeux Paralympiques 2024: médaille d’or et record du monde pour Fatima 
+Ezzahra El Idrissi au marathon (T12), l’argent pour Meryem En-Nourhi**: [Link](https://sport.le360.ma/athletisme/jeux-paralympiques-2024-medaille-dor-et-record-du-monde-pour-fatima-ezzahra-el-idrissi-au-marathon-114254)
+- **Jeux Paralympiques : Fatima El Idrissi survole le marathon T12 avec un 
+record**: [Link](https://fr.hespress.com/385207-jeux-paralympiques-fatima-el-idrissi-survole-le-marathon-t12-avec-un-record.html)
+- **Jeux Paralympiques 2024 : une moisson de 15 médailles pour le Maroc**: [Link](https://lematin.ma/sports/jeux-paralympiques-2024-une-moisson-de-15-medailles-pour-le-maroc/242118)
+
+
 ### مباي نيانغ (N/A, Sun, 8 Sep 2024 05:20:00 -0700)
 
 - **الوداد يقترب من حسم صفقة مهاجم من "العيار الثقيل"**: [Link](http://ar.sport.le360.ma/maroc/158520)
