@@ -1,3 +1,20 @@
+### tata (N/A, Sat, 7 Sep 2024 17:40:00 -0700)
+
+- **Tata Motors business split: Should you invest in the stock? Check share 
+ratio**: [Link](https://www.etnownews.com/markets/tata-motors-business-split-should-you-invest-in-the-stock-check-share-ratio-article-113127917)
+- **5 Reasons Why Tata Motors Share Price Is Set For Growth In 2024**: [Link](https://localharyana.com/trending-news/5-reasons-why-tata-motors-share-price-is-set-for-growth-in-2024/)
+- **Tata Motors registered total sales of 71,693 units in August 2024**: [Link](https://www.tatamotors.com/press-releases/tata-motors-registered-total-sales-of-71693-units-in-august-2024/)
+
+
+### film rebel ridge (N/A, Sat, 7 Sep 2024 17:10:00 -0700)
+
+- **Rebel Ridge’s Ending, Explained: Inside All the Twists and Turns**: [Link](https://www.netflix.com/tudum/articles/rebel-ridge-ending-explained)
+- **Netflix's new action-thriller movie drops today — and it's 98% on Rotten 
+Tomatoes**: [Link](https://www.yahoo.com/entertainment/netflixs-action-thriller-movie-drops-111905945.html)
+- **How Aaron Pierre Went from Sports Dreams to Movie-Star Trajectory: 'Acting 
+Requires Athleticism' (Exclusive)**: [Link](https://people.com/aaron-pierre-rebel-ridge-acting-career-after-sports-dreams-exclusive-8706491)
+
+
 ### طاطا (N/A, Sat, 7 Sep 2024 17:10:00 -0700)
 
 - **المغرب.. انهيار منازل وتضرر طرقات بسبب الفيضانات**: [Link](https://www.alarabiya.net/north-africa/morocco/2024/09/07/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D9%88-%D8%AA%D8%B6%D8%B1%D8%B1-%D8%B7%D8%B1%D9%82%D8%A7%D8%AA-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA)
