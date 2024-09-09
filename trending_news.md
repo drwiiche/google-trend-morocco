@@ -1,3 +1,13 @@
+### niger – ghana (N/A, Mon, 9 Sep 2024 09:20:00 -0700)
+
+- **Ghana vs Niger live: Kudus, Partey dey Black Stars line up for Afcon 2025 
+qualifiers match**: [Link](https://www.bbc.com/pidgin/articles/ckgwq22qle5o)
+- **Otto Addo makes two changes as Inaki Williams returns to starting line-up 
+for Niger clash**: [Link](https://www.ghanafa.org/otto-addo-makes-two-changes-as-inaki-williams-returns-to-starting-line-up-for-niger-clash)
+- **2025 AFCON Qualifiers: Jerome Opoku’s back injury worsened by poor Baba 
+Yara Stadium pitch conditions – Otto Addo**: [Link](https://www.modernghana.com/sports/1340029/2025-afcon-qualifiers-jerome-opokus-back-injury.html)
+
+
 ### guinée équatoriale – togo (N/A, Mon, 9 Sep 2024 08:50:00 -0700)
 
 - **Echéances cruciales**: [Link](https://www.republicoftogo.com/toutes-les-rubriques/sport/echeances-cruciales)
