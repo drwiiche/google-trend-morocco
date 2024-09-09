@@ -1,3 +1,10 @@
+### محاكم (N/A, Mon, 9 Sep 2024 01:00:00 -0700)
+
+- **البيجيدي يدعو الحكومة إلى "الإسراع بفتح حوار جاد" مع النقابات بقطاع العدل بعد سلسلة إضرابات متواصلة**: [Link](https://alyaoum24.com/1914068.html)
+- **وزير العدل وهبي يفعل قرار "الأجر مقابل العمل" في وجه الموظفين المضربين**: [Link](https://www.hespress.com/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D9%8A%D9%81%D8%B9%D9%84-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%AC%D8%B1-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D9%84%D8%B9%D9%85%D9%84-1425520.html)
+- **وهبي يقرر إعادة تفعيل الاقتطاع من الأجور في حق المضربين عن العمل**: [Link](https://ar.hibapress.com/details-547962.html)
+
+
 ### inondations au maroc (N/A, Mon, 9 Sep 2024 02:30:00 -0700)
 
 - **Inondations au Maroc : Nouveau bilan provisoire (ministère de l'Intérieur)**: [Link](https://lematin.ma/nation/inondations-au-maroc-nouveau-bilan-provisoire-ministere-de-linterieur/242172)
