@@ -1,3 +1,12 @@
+### apple (N/A, Mon, 9 Sep 2024 09:30:00 -0700)
+
+- **Apple 'Glowtime' event to see iPhone 16, iPhone 16 Pro, Apple Watch 
+releases: Live updates**: [Link](https://www.usatoday.com/story/tech/news/2024/09/09/apple-event-2024-live-updates-iphone-watch-airpod/75104890007/)
+- **iPhone 16, Apple Intelligence and more: Everything revealed at Apple Event 
+2024**: [Link](https://techcrunch.com/2024/09/09/iphone-16-apple-intelligence-and-more-everything-revealed-at-apple-event-2024/)
+- **iPhone 16 event live blog: all the news from Apple’s keynote**: [Link](https://www.theverge.com/2024/9/9/24236176/apple-iphone-16-liveblog-apple-watch-x-airpods-keynote)
+
+
 ### niger – ghana (N/A, Mon, 9 Sep 2024 09:20:00 -0700)
 
 - **Ghana vs Niger live: Kudus, Partey dey Black Stars line up for Afcon 2025 
