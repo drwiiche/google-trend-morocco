@@ -1,3 +1,29 @@
+### match (N/A, Mon, 9 Sep 2024 11:30:00 -0700)
+
+- **Emotional Morgan exits early in her final game**: [Link](https://www.espn.com/soccer/story/_/id/41185132/alex-morgan-exits-final-game-early-san-diego)
+- **USWNT legend Alex Morgan says goodbye in an eventful 13 minute cameo 
+sendoff for San Diego Wave FC**: [Link](https://www.cbssports.com/soccer/news/uswnt-legend-alex-morgan-says-goodbye-in-an-eventful-13-minute-cameo-sendoff-for-san-diego-wave-fc/)
+- **Bryce Miller: Alex Morgan’s unforgettable soccer runs ends with tears, 
+promise**: [Link](https://www.sandiegouniontribune.com/2024/09/08/bryce-miller-alex-morgans-unforgettable-soccer-runs-ends-with-tears-promise/)
+
+
+### كرة (N/A, Mon, 9 Sep 2024 11:20:00 -0700)
+
+- **الكرة الصينية... سفينة تائهة في بحر الأزمات**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5059004-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D9%86%D9%8A%D8%A9-%D8%B3%D9%81%D9%8A%D9%86%D8%A9-%D8%AA%D8%A7%D8%A6%D9%87%D8%A9-%D9%81%D9%8A-%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D8%A3%D8%B2%D9%85%D8%A7%D8%AA)
+- **«دوري أبطال أوروبا للسيدات»: مواجهات ساخنة في الدور الثاني ...السعودية**: [Link](https://ar.pressbee.net/show8608278.html?title=%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%B3%D8%A7%D8%AE%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A)
+- **فضيحة تلاعب بنتائج المباريات تهز كرة القدم الألمانية**: [Link](https://sport.al3omk.com/67233.html)
+
+
+### maroc (N/A, Mon, 9 Sep 2024 10:50:00 -0700)
+
+- **Pluies torrentielles, inondations et crues dévastatrices dans le centre-est 
+du Maroc: les explications de la DGM**: [Link](https://fr.le360.ma/societe/pluies-torrentielles-inondations-et-crues-devastatrices-dans-le-sud-est-du-maroc-les-explications-de_JCJUVEIZQBG53ALUE77NMIX2UA/)
+- **Pluies torrentielles au Maroc : 18 décès, des disparus et d’importants 
+dégâts matériels**: [Link](https://fr.hespress.com/385362-pluies-torrentielles-18-deces-des-disparus-et-dimportants-degats-materiels.html)
+- **Intempéries du Sud-Est : le bilan provisoire grimpe à onze morts et 9 
+portés disparus**: [Link](https://ledesk.ma/encontinu/intemperies-du-sud-est-le-bilan-provisoire-grimpe-a-onze-morts-et-9-portes-disparus/)
+
+
 ### مباريات اليوم مباشر (N/A, Mon, 9 Sep 2024 11:20:00 -0700)
 
 - **ليسوتو ضد المغرب.. مواعيد مباريات اليوم في تصفيات كأس الأمم الأفريقية 
