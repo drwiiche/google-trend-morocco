@@ -1,3 +1,27 @@
+### maroc aujourd hui (N/A, Mon, 9 Sep 2024 14:20:00 -0700)
+
+- **Maroc : ciel perturbé, aviation à genoux et vols déroutés**: [Link](https://fr.hespress.com/385229-maroc-ciel-perturbe-aviation-a-genoux-et-vols-deroutes.html)
+- **Intempéries du Sud-Est : le bilan provisoire grimpe à onze morts et 9 
+portés disparus**: [Link](https://ledesk.ma/encontinu/intemperies-du-sud-est-le-bilan-provisoire-grimpe-a-onze-morts-et-9-portes-disparus/)
+- **Pluies torrentielles, inondations et crues dévastatrices dans le centre-est 
+du Maroc: les explications de la DGM**: [Link](https://fr.le360.ma/societe/pluies-torrentielles-inondations-et-crues-devastatrices-dans-le-sud-est-du-maroc-les-explications-de_JCJUVEIZQBG53ALUE77NMIX2UA/)
+
+
+### achraf hakimi (N/A, Mon, 9 Sep 2024 13:30:00 -0700)
+
+- **El 'dardazo' envenenado de Hiba Abouk a Achraf Hakimi en redes sociales**: [Link](https://www.mundodeportivo.com/vaya-mundo/20240909/1002312352/dardazo-envenenado-hiba-abouk-achraf-hakimi-redes-sociales-dct.html)
+- **✅ حكيمي يكشف لأول مرة تفاصيل تحويله لكافة أمواله لوالدته وصدمة طليقته**: [Link](https://tanja24.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%84%D8%A3%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D9%87-%D9%84%D9%83%D8%A7%D9%81/)
+- **حكيمي يكشف تفاصيل جديدة بخصوص طلاقه من هبة عبوك**: [Link](https://larachenews.com/183025.html)
+
+
+### italie foot (N/A, Mon, 9 Sep 2024 13:10:00 -0700)
+
+- **Israël 1-2 Italie, Ligue des nations A : résumé du match (09/09/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/israel-italie-live/632622)
+- **Pronostic Israël Italie : Analyse, cotes et prono du match de Ligue des 
+nations**: [Link](https://www.sofoot.com/breves/pronostic-israel-italie-analyse-cotes-et-prono-du-match-de-ligue-des-nations)
+- **Pronostic Israël - Italie, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/israel-italie-213926/)
+
+
 ### diaz (N/A, Mon, 9 Sep 2024 14:10:00 -0700)
 
 - **'Special day' as Díaz brothers pitch in same game for 1st time**: [Link](https://www.mlb.com/news/alexis-diaz-edwin-diaz-pitch-in-same-game-for-first-time)
