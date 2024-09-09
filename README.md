@@ -1,3 +1,19 @@
+### africa cup of nations qualification (N/A, Mon, 9 Sep 2024 12:40:00 -0700)
+
+- **TotalEnergies AFCON 2025 qualifiers: Matchday 2 fixtures, timings and 
+results**: [Link](https://www.cafonline.com/caf-africa-cup-of-nations/news/totalenergies-afcon-2025-qualifiers-matchday-2-fixtures-timings-and-results/)
+- **4 Wins Out of 5: Here is Kwasi Appiah's outstanding record as Sudan coach 
+in 2024**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/4-Wins-Out-of-5-Here-is-Kwasi-Appiah-s-outstanding-record-as-Sudan-coach-in-2024-1949212)
+- **FULL LIST: 2025 Africa Cup of Nations qualifying tables**: [Link](https://punchng.com/full-list-2025-africa-cup-of-nations-qualifying-tables/)
+
+
+### yallakora (N/A, Mon, 9 Sep 2024 12:30:00 -0700)
+
+- **ليبريا تخطف تعادلا قاتلا أمام توجو في تصفيات أمم أفريقيا**: [Link](https://www.kooora.com/?n=1353160)
+- **منتخب طوغو يقدّم هديّة لبيتكوفيتش**: [Link](https://www.awras.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B7%D9%88%D8%BA%D9%88-%D9%8A%D9%82%D8%AF%D9%91%D9%85-%D9%87%D8%AF%D9%8A%D9%91%D8%A9-%D9%84%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%81%D9%8A%D8%AA%D8%B4/)
+- **اتحاد الكرة الليبيري يلمّح إلى عدم القدرة على مواصلة التصفيات**: [Link](https://www.echoroukonline.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D9%84%D9%85%D9%91%D8%AD-%D8%A5%D9%84%D9%89-%D8%B9%D8%AF%D9%85-%D8%A7%D9%84%D9%82)
+
+
 ### bet365 (N/A, Mon, 9 Sep 2024 12:30:00 -0700)
 
 - **NFL bet365 promo: Bet $200 bonus bets or $1K first-bet insurance**: [Link](https://www.cbssports.com/betting/news/nfl-bet365-promo-bet-200-bonus-bets-or-1k-first-bet-insurance/)
