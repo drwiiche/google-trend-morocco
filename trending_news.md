@@ -1,3 +1,32 @@
+### match live (N/A, Mon, 9 Sep 2024 13:00:00 -0700)
+
+- **LIVESTREAMED: Niger vs Ghana (2025 AFCON qualifier)**: [Link](https://www.ghanaweb.com/GhanaHomePage/NewsArchive/LIVESTREAMED-Niger-vs-Ghana-2025-AFCON-qualifier-1949874)
+- **Summary: Niger 1-1 Ghana in African Cup Qualifiers**: [Link](https://www.vavel.com/en-us/soccer/2024/09/09/1195553-niger-vs-ghana-live-score-updates-stream-info-and-how-to-watch-africa-cup-of-nations-qualifiers-match.html)
+- **Niger vs Ghana Predictions: Ghana to win, both teams to score**: [Link](https://www.goal.com/en-in/betting/niger-vs-ghana-predictions-09-09-2024/blt7252e5940223f6aa)
+
+
+### israel vs italy (N/A, Mon, 9 Sep 2024 12:50:00 -0700)
+
+- **Preview: Israel vs. Italy - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/israel/uefa-nations-league/preview/preview-israel-vs-italy-prediction-team-news-lineups_552396.html)
+- **Why is Israel in UEFA?**: [Link](https://en.as.com/soccer/why-is-israel-in-uefa-n/)
+- **Spalletti: ‘No change in Italy approach, game like a trap’**: [Link](https://football-italia.net/spalletti-no-change-italy-approach-game-trap/)
+
+
+### vinicius jr (N/A, Mon, 9 Sep 2024 12:50:00 -0700)
+
+- **'Spain is not racist' - Dani Carvajal responds to Real Madrid team-mate 
+Vinícius Jr's World Cup 2030 call**: [Link](https://www.goal.com/en-gb/lists/dani-carvajal-real-madrid-vinicius-jr-world-cup-2030-call/blt9328c3d7b5a7d90f)
+- **Vini Jr: Spain must reduce racism to host '30 WC**: [Link](https://www.espn.com/soccer/story/_/id/41117960/vinicius-jr-spain-reduce-racism-lose-2030-world-cup)
+- **Luis de la Fuente responds to Vinicius Jr’s criticism: ‘Spain is not racist’**: [Link](https://www.nytimes.com/athletic/5745141/2024/09/04/vinicius-junior-de-la-fuente-spain-racism/)
+
+
+### المنتخب المغربي اليوم (N/A, Mon, 9 Sep 2024 12:50:00 -0700)
+
+- **كرة السلة .. انتصار كبير للمنتخب المغربي للشبان على جنوب إفريقيا**: [Link](https://www.almountakhab.com/node/13204125)
+- **وفد مغربي يشارك في اجتماع الاتحاد الإفريقي لمناقشة تحديات كرة السلة**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%88%D9%81%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B4%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/)
+- **المنتخب المغربي يتواضع أمام نظيره الرواندي في مباراة جنوب إفريقيا**: [Link](http://ar.sport.le360.ma/basket-ball/158474)
+
+
 ### africa cup of nations qualification (N/A, Mon, 9 Sep 2024 12:40:00 -0700)
 
 - **TotalEnergies AFCON 2025 qualifiers: Matchday 2 fixtures, timings and 
