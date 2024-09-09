@@ -1,3 +1,39 @@
+### brahim diaz (N/A, Mon, 9 Sep 2024 13:30:00 -0700)
+
+- **Tuttosport: Milan could have bought Real Madrid playmaker on ‘favourable 
+terms’**: [Link](https://sports.yahoo.com/tuttosport-milan-could-bought-real-142200976.html)
+- **Tuttosport: Milan could have bought Real Madrid playmaker on ‘favourable 
+terms’**: [Link](https://sempremilan.com/tuttosport-milan-brahim-diaz-favourable-terms)
+- **Real Madrid coaches view 25-year-old star as a crucial asset amid stellar 
+cameos**: [Link](https://sports.yahoo.com/real-madrid-coaches-view-25-075900446.html)
+
+
+### ios 18 release date (N/A, Mon, 9 Sep 2024 13:30:00 -0700)
+
+- **Apple debuts iPhone 16 Pro and iPhone 16 Pro Max**: [Link](https://www.apple.com/newsroom/2024/09/apple-debuts-iphone-16-pro-and-iphone-16-pro-max/)
+- **iOS 18 release — here's when it will launch**: [Link](https://www.tomsguide.com/phones/iphones/ios-18-release-date-rumors-heres-when-it-might-launch)
+- **Apple introduces iPhone 16 and iPhone 16 Plus**: [Link](https://www.apple.com/newsroom/2024/09/apple-introduces-iphone-16-and-iphone-16-plus/)
+
+
+### france fc (N/A, Mon, 9 Sep 2024 13:30:00 -0700)
+
+- **Ordine suggests Maignan caused ‘explosive charge’: “Motivation, desire, 
+redemption”**: [Link](https://sempremilan.com/ordine-suggests-maignan-explosive-charge)
+- **Players upset at being left out, furious dressing-room team-talks and stars 
+being told to put their individual**: [Link](https://www.dailymail.co.uk/sport/football/article-13826877/Inside-turmoil-France-camp-3-1-defeat-Italy.html)
+- **Maignan reacts to Italy loss with leadership qualities: 'A defeat that 
+hurts'**: [Link](https://www.yardbarker.com/soccer/articles/maignan_reacts_to_italy_loss_with_leadership_qualities_a_defeat_that_hurts/s1_15965_40860352)
+
+
+### تصفيات كاس افريقيا 2025 (N/A, Mon, 9 Sep 2024 13:30:00 -0700)
+
+- **غانا والسنغال يسعيان للتدارك خلال الجولة الثانية من تصفيات كأس أمم إفريقيا 
+توتال إنيرجيز**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D8%A7%D9%86%D8%A7-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%8A%D8%B3%D8%B9%D9%8A%D8%A7%D9%86-%D9%84%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%83-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D9%85%D9%86-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/)
+- **المغرب والجزائر ومصر وتونس والسودان إلى فوز ثان بتصفيات أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/2024/9/7/caf-africa-cup-of-nations)
+- **القنوات الناقلة لمباراة منتخب السودان ضد أنغولا في تصفيات أمم إفريقيا 2025 
+مع التشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/942644571430608-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D8%B6%D8%AF-%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%85%D8%B9-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
 ### يلا كورة (N/A, Mon, 9 Sep 2024 13:00:00 -0700)
 
 
