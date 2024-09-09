@@ -1,3 +1,13 @@
+### keynote apple iphone 16 (N/A, Mon, 9 Sep 2024 08:40:00 -0700)
+
+- **iPhone 16 sale date: Here's when you could buy Apple's latest series phone 
+in India**: [Link](https://m.economictimes.com/news/new-updates/iphone-16-sale-date-heres-when-you-could-buy-apples-latest-series-phone-in-india/articleshow/113182938.cms)
+- **iPhone 16 Pro to shoot 4K 120fps videos, Camera Button works with 
+third-party apps**: [Link](https://9to5mac.com/2024/09/06/iphone-16-pro-4k-120fps-video-camera/)
+- **Apple event tonight at 10:30PM: iPhone 16 Pro and Pro Max likely to get big 
+upgrades**: [Link](https://www.indiatoday.in/technology/news/story/apple-event-tonight-at-1030pm-iphone-16-pro-and-pro-max-likely-to-get-big-upgrades-2596357-2024-09-09)
+
+
 ### fifa (N/A, Mon, 9 Sep 2024 08:20:00 -0700)
 
 - **Where to watch Peru vs Colombia live in the USA: Conmebol World Cup 
