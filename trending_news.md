@@ -1,3 +1,11 @@
+### al haouz (N/A, Sun, 8 Sep 2024 22:00:00 -0700)
+
+- **One Year Mark Since Al Haouz Earthquake: High Atlas on Slow but Sturdy 
+Recovery h**: [Link](https://www.moroccoworldnews.com/2024/09/365047/one-year-mark-since-al-haouz-earthquake-high-atlas-on-slow-but-sturdy-recovery)
+- **A year after the quake in Morocco many homes still not re-built**: [Link](https://www.euronews.com/2024/09/08/a-year-after-the-quake-in-morocco-many-homes-still-not-re-built)
+- **Ongoing hardship for Moroccan quake survivors still struggling to rebuild**: [Link](https://uk.news.yahoo.com/ongoing-hardship-moroccan-quake-survivors-122457791.html)
+
+
 ### spain vs switzerland (N/A, Sun, 8 Sep 2024 13:40:00 -0700)
 
 - **Arsenal 28yo tipped to start international after rival’s injury**: [Link](https://dailycannon.com/2024/09/raya-spain-start/)
