@@ -1,3 +1,11 @@
+### spain vs switzerland (N/A, Sun, 8 Sep 2024 13:40:00 -0700)
+
+- **Arsenal 28yo tipped to start international after rival’s injury**: [Link](https://dailycannon.com/2024/09/raya-spain-start/)
+- **Spanish media deliver their verdicts on Arsenal's David Raya’s performance 
+in 4-1 win vs Switzerland**: [Link](https://tbrfootball.com/spanish-media-deliver-their-verdicts-on-arsenals-david-rayas-performance-in-4-1-win-vs-switzerland/)
+- **Arsenal goalkeeper keeps another clean sheet on international duty**: [Link](https://dailycannon.com/2024/09/raya-spain-serbia-clean-sheet/)
+
+
 ### أخبارنا (N/A, Sun, 8 Sep 2024 23:10:00 -0700)
 
 - **سائقون مغاربة يتحدون سوء الأحوال الجوية .. "مغامرةٌ قاتلة" تواجه تدفق السيول**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D8%A6%D9%82%D9%88%D9%86-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D8%AA%D8%AD%D8%AF%D9%88%D9%86-%D8%B3%D9%88%D8%A1-%D8%A7%D9%84%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88-1428154.html)
