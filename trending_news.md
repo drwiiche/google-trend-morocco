@@ -1,3 +1,20 @@
+### est (N/A, Mon, 9 Sep 2024 06:00:00 -0700)
+
+- **Ligue des nations : Belgique, cure de jouvence encadrée par maître De Bruyne**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2024-2025/ligue-des-nations-belgique-cure-de-jouvence-encadree-par-maitre-de-bruyne_sto10335812/story.shtml)
+- **Equipe de France, Deschamps annonce un retour inattendu**: [Link](https://www.goal.com/fr/news/equipe-de-france-deschamps-annonce-un-retour-inattendu/blt01da7d06c5a4c755)
+- **Bleus : Kylian Mbappé ménagé, Didier Deschamps va faire tourner pour 
+France-Belgique**: [Link](https://www.lequipe.fr/Football/Actualites/Kylian-mbappe-menage-didier-deschamps-va-faire-tourner-pour-france-belgique/1506594)
+
+
+### orientation (N/A, Mon, 9 Sep 2024 05:50:00 -0700)
+
+- **Census will now include questions on sexual orientation and gender identity**: [Link](https://theconversation.com/census-will-now-include-questions-on-sexual-orientation-and-gender-identity-238521)
+- **‘We have listened’: gender identity question added to Australia’s 2026 
+census after federal government backflip**: [Link](https://www.theguardian.com/australia-news/article/2024/sep/08/we-have-listened-gender-identity-question-added-to-australias-2026-census-after-federal-government-backflip)
+- **Jim Chalmers confirms census will include questions on sexual orientation 
+and gender**: [Link](https://www.abc.net.au/news/2024-09-08/census-sexual-orientation-gender-to-be-included-jim-chalmers/104325074)
+
+
 ### burundi – sénégal (N/A, Mon, 9 Sep 2024 05:30:00 -0700)
 
 - **Burundi-Sénégal : sorti de la délégation des Lions, Abdoulaye Sow stoppé à 
