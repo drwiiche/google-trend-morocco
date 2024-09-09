@@ -1,3 +1,47 @@
+### الرياضية tnt (N/A, Mon, 9 Sep 2024 12:20:00 -0700)
+
+- **مباراة المغرب vs ليسوتو: تردد قناة المغربية الرياضية 2024 على النايل سات 
+بتقنية SD ,HD**: [Link](https://news.elsob7.com/1081240/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-vs-%D9%84%D9%8A%D8%B3%D9%88%D8%AA%D9%88-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1/)
+- **تردد قناة المغربية الرياضية 2024 Arriadia Olympics الجديدة عبر نايل وعرب سات**: [Link](https://zahraa.mr/3176198/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-2024-arriadia-olympics-%D8%A7%D9%84%D8%AC%D8%AF/)
+- **محدث تردد قناة المغربية الرياضية tnt الجديد 2024 نايل سات وعرب سات**: [Link](https://nsemnews.co/%D9%85%D8%AD%D8%AF%D8%AB-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-tnt-%D8%A7%D9%84%D8%AC/)
+
+
+### sports (N/A, Mon, 9 Sep 2024 12:20:00 -0700)
+
+- **NFL Week 1's big questions, takeaways: Huge days for Sam Darnold, Kenneth 
+Walker, Jameson Williams**: [Link](https://www.espn.com/nfl/story/_/id/41108416/nfl-week-1-2024-questions-takeaways-lessons-stats-recap-every-game)
+- **NFL Week 1 Takeaways: Chicago Bears Hold On, Justin Fields Gets Clutch Win, 
+& More**: [Link](https://deadspin.com/nfl-week-1-takeaways-chicago-bears-hold-on-justin-fields-gets-clutch-win/)
+- **Time to bench Deshaun, Patriots shock the world: Week 1 instant reactions | 
+Inside Coverage**: [Link](https://sports.yahoo.com/time-to-bench-deshaun-patriots-shock-the-world-week-1-instant-reactions--inside-coverage-062753761.html)
+
+
+### vs (N/A, Mon, 9 Sep 2024 12:20:00 -0700)
+
+- **Lions win OT thriller, newly-minted Cowboys dominate Browns and Caleb 
+Williams has debut victory: NFL Week 1 Sunday review**: [Link](https://www.cnn.com/2024/09/09/sport/nfl-week-1-sunday-review-spt-intl/index.html)
+- **Was the Rams vs. Lions a preview of the NFC Championship? | The Herd**: [Link](https://www.foxsports.com/watch/fmc-v8x37n2obbi5wg8q)
+- **Lions vs. Rams game balls: David Montgomery among 3 big winners in gritty 
+OT battle**: [Link](https://www.freep.com/story/sports/nfl/lions/2024/09/09/detroit-lions-winners-losers-david-montgomery-delivers-victory/75133930007/)
+
+
+### live (N/A, Mon, 9 Sep 2024 12:20:00 -0700)
+
+- **Typhoon Yagi collapses busy bridge in Vietnam**: [Link](https://www.bbc.com/news/articles/cqxjn3w9228o)
+- **Typhoon Yagi Tears Windows Off Balcony**: [Link](https://weather.com/storms/hurricane/video/yagi-wreaks-havoc-across-asia-with-deadly-winds-floods)
+- **China mobilizes emergency responses as impacts of Typhoon Yagi persist**: [Link](https://news.cgtn.com/news/2024-09-08/China-mobilizes-emergency-responses-as-impacts-of-Typhoon-Yagi-persist-1wJa4q4THoY/p.html)
+
+
+### syria live (N/A, Mon, 9 Sep 2024 12:10:00 -0700)
+
+- **Intercontinental Cup 2024 football: Syria beat defending champions India 
+3-0 to win title**: [Link](https://olympics.com/en/news/intercontinental-cup-football-2024-india-vs-syria-report)
+- **Manolo Marquez warns fans about ‘reality’ of Indian football team ahead of 
+Syria clash**: [Link](https://www.socialnews.xyz/2024/09/07/manolo-marquez-warns-fans-about-reality-of-indian-football-team-ahead-of-syria-clash/)
+- **Rahul Bheke believes Intercontinental Cup is a step towards India’s ‘main 
+goal’**: [Link](https://pune.news/sports/rahul-bheke-believes-intercontinental-cup-is-a-step-towards-indias-main-goal-227331/)
+
+
 ### آدم أزنو (N/A, Mon, 9 Sep 2024 12:10:00 -0700)
 
 - **لأول مرة.. حكيمي قائدا لمنتخب المغرب الأول**: [Link](https://m.kooora.com/?n=1353746&o=n27102)
