@@ -1,3 +1,20 @@
+### match maroc lesotho (N/A, Mon, 9 Sep 2024 06:40:00 -0700)
+
+- **Lesotho-Maroc : Conférence de presse du sélectionneur national Walid 
+Regragui le 8 septembre**: [Link](https://frmf.ma/fr/%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%8A%D8%B3%D9%88%D8%AA%D9%88-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D9%86/)
+- **Lions de l’Atlas: les bons et les mauvais signaux**: [Link](https://sport.le360.ma/maroc/lions-de-latlas-les-bons-et-les-mauvais-signaux-114271)
+- **Qualifications CAN 2025 : à quelle heure et sur quelles chaînes suivre le 
+match Maroc-Lesotho ?**: [Link](https://lematin.ma/sports/maroc-lesotho-a-quelle-heure-et-sur-quelles-chaines/242212)
+
+
+### morocco vs lesotho (N/A, Mon, 9 Sep 2024 06:00:00 -0700)
+
+- **Morocco vs Lesotho: Match Time, Preview and More**: [Link](https://www.moroccoworldnews.com/2024/09/365056/morocco-vs-lesotho-match-time-preview-and-more)
+- **Preview: Lesotho vs. Morocco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lesotho/africa-cup-of-nations/preview/preview-lesotho-vs-morocco-prediction-team-news-lineups_552395.html)
+- **AFCON 2025: Morocco will approach Lesotho game with ‘utmost seriousness’ – 
+Regragui**: [Link](https://en.africatopsports.com/2024/09/09/afcon-2025-morocco-will-approach-lesotho-game-with-utmost-seriousness-regragui/)
+
+
 ### senegal vs burundi (N/A, Mon, 9 Sep 2024 07:30:00 -0700)
 
 - **Preview: Burundi vs. Senegal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/burundi-football/africa-cup-of-nations/preview/preview-burundi-vs-senegal-prediction-team-news-lineups_552439.html)
