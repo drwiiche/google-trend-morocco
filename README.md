@@ -1,3 +1,11 @@
+### senegal vs burundi (N/A, Mon, 9 Sep 2024 07:30:00 -0700)
+
+- **Preview: Burundi vs. Senegal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/burundi-football/africa-cup-of-nations/preview/preview-burundi-vs-senegal-prediction-team-news-lineups_552439.html)
+- **Burundi vs Senegal LIVE Score Updates, Stream Info and How to Watch African 
+Cup of Nations Match**: [Link](https://www.vavel.com/en-us/soccer/2024/09/09/1195436-burundi-vs-senegal-live-score-updates-stream-info-and-how-to-watch-african-cup-of-nations-match.html)
+- **Burundi vs Senegal Predictions: Senegal Fancied For Win**: [Link](https://www.goal.com/en-ng/betting/burundi-vs-senegal-predictions-09-09-2024/bltf7dcf78c21c94790)
+
+
 ### freeview (N/A, Mon, 9 Sep 2024 06:50:00 -0700)
 
 - **Your Freeview TV finally gets free boost that Sky users have enjoyed for 
