@@ -1,3 +1,11 @@
+### fifa (N/A, Mon, 9 Sep 2024 08:20:00 -0700)
+
+- **Where to watch Peru vs Colombia live in the USA: Conmebol World Cup 
+Qualifiers**: [Link](https://bolavip.com/en/soccer/where-to-watch-peru-vs-colombia-live-in-the-usa-conmebol-world-cup-qualifiers)
+- **Rodrygo leading Brazil I World Cup 26 qualifying**: [Link](https://www.fifa.com/en/tournaments/mens/worldcup/canadamexicousa2026/articles/rodrygo-leading-brazil-conmebol-qualifying)
+- **Real Madrid forward expresses his admiration for former Barcelona superstar**: [Link](https://madriduniversal.com/real-madrid-forward-expresses-his-admiration-for-former-barcelona-superstar/)
+
+
 ### match maroc lesotho (N/A, Mon, 9 Sep 2024 06:40:00 -0700)
 
 - **Lesotho-Maroc : Conférence de presse du sélectionneur national Walid 
