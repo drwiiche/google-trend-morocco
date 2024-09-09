@@ -1,3 +1,12 @@
+### ronaldo (N/A, Sun, 8 Sep 2024 13:30:00 -0700)
+
+- **Cristiano Ronaldo put off at worst time as pitch invader halts Portugal vs 
+Scotland**: [Link](https://www.express.co.uk/sport/football/1945967/Cristiano-Ronaldo-Portugal-Scotland-pitch-invader)
+- **Security guard slips on his bum chasing down pitch invader targeting Ronaldo**: [Link](https://www.dailyrecord.co.uk/sport/football/football-news/cristiano-ronaldo-pitch-invader-scotland-33624465)
+- **Scoring 900 goals, Ronaldo's goal-scoring achievements play pivotal role in 
+numerous victories for his teams**: [Link](https://www.aa.com.tr/en/sports/scoring-900-goals-ronaldos-goal-scoring-achievements-play-pivotal-role-in-numerous-victories-for-his-teams/3324331)
+
+
 ### maroc inondations (N/A, Sun, 8 Sep 2024 17:20:00 -0700)
 
 - **Averses orageuses localement fortes ce dimanche dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/averses-orageuses-localement-fortes-ce-dimanche-dans-plusieurs-provinces/)
