@@ -1,3 +1,11 @@
+### inondations au maroc (N/A, Mon, 9 Sep 2024 02:30:00 -0700)
+
+- **Inondations au Maroc : Nouveau bilan provisoire (ministère de l'Intérieur)**: [Link](https://lematin.ma/nation/inondations-au-maroc-nouveau-bilan-provisoire-ministere-de-linterieur/242172)
+- **Intempéries au Maroc, entre brin de soulagement et angoisse**: [Link](https://fr.hespress.com/385090-intemperies-au-maroc-entre-brin-de-soulagement-et-angoisse.html)
+- **Crues dévastatrices ayant fait plusieurs morts dans la province de Tata: 
+les victimes témoignent**: [Link](https://fr.le360.ma/societe/crues-devastatrices-ayant-fait-plusieurs-morts-dans-la-province-de-tata-les-victimes-temoignent_F6T6Z4E5ZZBILPO7RPFRE7PYKM/)
+
+
 ### al haouz (N/A, Sun, 8 Sep 2024 22:00:00 -0700)
 
 - **One Year Mark Since Al Haouz Earthquake: High Atlas on Slow but Sturdy 
