@@ -1,3 +1,19 @@
+### maroc inondations (N/A, Sun, 8 Sep 2024 17:20:00 -0700)
+
+- **Averses orageuses localement fortes ce dimanche dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/averses-orageuses-localement-fortes-ce-dimanche-dans-plusieurs-provinces/)
+- **Pluies diluviennes au Sud-Est marocain : tragédie et désarroi**: [Link](https://fr.hespress.com/385210-pluies-diluviennes-au-sud-est-marocain-tragedie-et-desarroi.html)
+- **Nouveau bilan des intempéries : 11 décès, 9 disparus et 40 maisons 
+effondrées (ministère de l'intérieur)**: [Link](https://medias24.com/2024/09/08/bilan-provisoire-des-intemperies-11-deces-9-disparus-et-40-maisons-effondrees-ministere-de-linterieur/)
+
+
+### إلهام شاهين (N/A, Sun, 8 Sep 2024 17:20:00 -0700)
+
+- **إلهام شاهين في عزاء وزفاف عائليين في يوم واحد- (فيديو)**: [Link](https://www.alquds.co.uk/%D8%A5%D9%84%D9%87%D8%A7%D9%85-%D8%B4%D8%A7%D9%87%D9%8A%D9%86-%D9%81%D9%8A-%D8%B9%D8%B2%D8%A7%D8%A1-%D9%88%D8%B2%D9%81%D8%A7%D9%81-%D8%B9%D8%A7%D8%A6%D9%84%D9%8A%D9%8A%D9%86-%D9%81%D9%8A-%D9%8A%D9%88/)
+- **التعليق الأول من إلهام شاهين على زفاف نجل شقيقها**: [Link](https://www.lahamag.com/article/214547-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D9%86-%D8%A5%D9%84%D9%87%D8%A7%D9%85-%D8%B4%D8%A7%D9%87%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%B2%D9%81%D8%A7%D9%81-%D9%86%D8%AC%D9%84-%D8%B4%D9%82%D9%8A%D9%82%D9%87%D8%A7)
+- **محمد حماقي ونجلاء بدر وناهد السباعي وعماد متعب والنجوم في حفل زفاف ابن شقيق 
+إلهام شاهين**: [Link](https://www.msn.com/ar-sa/entertainment/gallery/%D9%85%D8%AD%D9%85%D8%AF-%D8%AD%D9%85%D8%A7%D9%82%D9%8A-%D9%88%D9%86%D8%AC%D9%84%D8%A7%D8%A1-%D8%A8%D8%AF%D8%B1-%D9%88%D9%86%D8%A7%D9%87%D8%AF-%D8%A7%D9%84%D8%B3%D8%A8%D8%A7%D8%B9%D9%8A-%D9%88%D8%B9%D9%85%D8%A7%D8%AF-%D9%85%D8%AA%D8%B9%D8%A8-%D9%88%D8%A7%D9%84%D9%86%D8%AC%D9%88%D9%85-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D8%B2%D9%81%D8%A7%D9%81-%D8%A7%D8%A8%D9%86-%D8%B4%D9%82%D9%8A%D9%82-%D8%A5%D9%84%D9%87%D8%A7%D9%85-%D8%B4%D8%A7%D9%87%D9%8A%D9%86/ss-AA1q5YUE)
+
+
 ### imane khelif (N/A, Sun, 8 Sep 2024 16:00:00 -0700)
 
 - **Après la polémique des JO 2024, Imen Khelif répond à Elon Musk**: [Link](https://fr.hespress.com/385235-apres-la-polemique-des-jo-2024-imen-khelif-repond-a-elon-musk.html)
