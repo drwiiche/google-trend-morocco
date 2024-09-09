@@ -1,3 +1,25 @@
+### آدم أزنو (N/A, Mon, 9 Sep 2024 12:10:00 -0700)
+
+- **لأول مرة.. حكيمي قائدا لمنتخب المغرب الأول**: [Link](https://m.kooora.com/?n=1353746&o=n27102)
+- **الواحدي وتيرغالين لـ"زنقة 20 الرياضية": العمل الجماعي هو الأهم وفرصتنا 
+قادمة مع المنتخب في المستقبل**: [Link](https://rue20.com/835323.html)
+- **أشرف حكيمي يتجاوز المايسترو**: [Link](https://www.almountakhab.com/node/13204021)
+
+
+### turquie – islande (N/A, Mon, 9 Sep 2024 12:10:00 -0700)
+
+- **Pronostic Turquie - Islande, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/turquie-islande-213930/)
+- **Ligue des Nations : La Turquie à l’épreuve de l’Islande**: [Link](https://africafootunited.com/ligue-des-nations-la-turquie-a-lepreuve-de-lislande/)
+- **Ligue des Nations : Turquie – Islande, les compositions officielles**: [Link](https://africafootunited.com/ligue-des-nations-turquie-islande-les-compositions-officielles/)
+
+
+### ytv (N/A, Mon, 9 Sep 2024 12:10:00 -0700)
+
+- **『降り積もれ孤独な死よ』灰川十三、最後の会話に視聴者ら涙 「演出素晴らしい」「優しい顔見せるのずるいのよ」**: [Link](https://www.chunichi.co.jp/article/955509)
+- **『降り積もれ孤独な死よ』最終回 主演・成田凌が願い「思い出に残る作品になってほしい」【コメント全文】**: [Link](https://www.oricon.co.jp/news/2343935/full/)
+- **降り積もれ孤独な死よ：最終回、ついに事件の真相が明らかに ラストの“手つなぎ”シーンに視聴者「最高すぎる」「いい終わり方」（ネタバレあり）**: [Link](https://mantan-web.jp/article/20240909dog00m200051000c.html)
+
+
 ### bein sport (N/A, Mon, 9 Sep 2024 12:00:00 -0700)
 
 - **افضل إشارة تردد قناة بي إن سبورت bein Sports hd الجديد 2024**: [Link](https://newsy.almesasports.com/232124/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA/)
