@@ -1,3 +1,15 @@
+### يلا كورة (N/A, Mon, 9 Sep 2024 13:00:00 -0700)
+
+
+
+
+### bein sports (N/A, Mon, 9 Sep 2024 12:50:00 -0700)
+
+- **البليهي يزيد متاعب مانشيني قبل مواجهة الصين**: [Link](https://www.kooora.com/?n=1353709)
+- **8 معلومات عن ملعب مباراة الصين والسعودية**: [Link](https://hihi2.com/2024/09/09/p2839526.html)
+- **مجنسو الصين.. لاعب أرسنال وحفيد "طباخ" في مانشستر**: [Link](https://www.alarabiya.net/sport/2024/09/09/%D9%85%D8%AC%D9%86%D8%B3%D9%88-%D8%A7%D9%84%D8%B5%D9%8A%D9%86-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%AD%D9%81%D9%8A%D8%AF-%D8%B7%D8%A8%D8%A7%D8%AE-%D9%81%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1)
+
+
 ### coupe d'afrique 2025 (N/A, Mon, 9 Sep 2024 12:50:00 -0700)
 
 - **Qualifs CAN 2025 : Ismaïla Sarr sauve le Sénégal contre le Burundi**: [Link](https://www.footmercato.net/a5910316181088319932-qualifs-can-2025-ismaila-sarr-sauve-le-senegal-contre-le-burundi)
