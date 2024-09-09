@@ -1,3 +1,16 @@
+### lesoto - marruecos (N/A, Mon, 9 Sep 2024 11:40:00 -0700)
+
+- **Qué canal televisa en España el Lesoto vs Marruecos, Clasificación a la 
+Copa Africana de Naciones: Dónde ver, TV, canal y Streaming**: [Link](https://www.goal.com/es-cl/listados/que-canal-televisa-espana-lesoto-vs-marruecos-clasificacion-copa-africana-naciones-donde-ver-tv-canal-streaming/bltcb5b329e122ff22a)
+
+
+### lesotho vs morocco (N/A, Mon, 9 Sep 2024 11:00:00 -0700)
+
+- **Morocco vs Lesotho: Match Time, Preview and More**: [Link](https://www.moroccoworldnews.com/2024/09/365056/morocco-vs-lesotho-match-time-preview-and-more)
+- **Preview: Lesotho vs. Morocco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lesotho/africa-cup-of-nations/preview/preview-lesotho-vs-morocco-prediction-team-news-lineups_552395.html)
+- **Morocco & DR Congo target second successive win**: [Link](https://africanfootball.com/news/820877/Morocco-DR-Congo-target-second-successive-win)
+
+
 ### match (N/A, Mon, 9 Sep 2024 11:30:00 -0700)
 
 - **Emotional Morgan exits early in her final game**: [Link](https://www.espn.com/soccer/story/_/id/41185132/alex-morgan-exits-final-game-early-san-diego)
