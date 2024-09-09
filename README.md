@@ -1,3 +1,40 @@
+### bein sport (N/A, Mon, 9 Sep 2024 12:00:00 -0700)
+
+- **افضل إشارة تردد قناة بي إن سبورت bein Sports hd الجديد 2024**: [Link](https://newsy.almesasports.com/232124/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA/)
+- **تردد قناة بين سبورت المفتوحة 2024 عبر القمرين الصناعيين نايل سات وعرب سات**: [Link](https://www.swatan.news/302633/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-2024-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D9%82%D9%85/)
+- **تردد بين سبورتس الاخبارية المفتوحة bein sport على جميع الأقمار**: [Link](https://news.elsob7.com/1079093/%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A8%D9%8A%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%A7%D9%84%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-bein-sport/)
+
+
+### yalla kora (N/A, Mon, 9 Sep 2024 12:00:00 -0700)
+
+
+
+
+### éthiopie – rd congo (N/A, Mon, 9 Sep 2024 11:50:00 -0700)
+
+- **Éliminatoires CAN 2025 : la Tanzanie et l’Éthiopie se neutralisent à Dar es 
+Salam**: [Link](https://mediaguinee.com/2024/09/eliminatoires-can-2025-la-tanzanie-et-lethiopie-se-neutralisent-a-dar-es-salam/)
+- **Actualité | Éliminatoires/CAN Maroc 2025 : les Léopards embarquent pour 
+Dar-es-Salam**: [Link](https://www.mediacongo.net/article-actualite-141664_eliminatoires_can_maroc_2025_les_leopards_embarquent_pour_dar_es_salam.html)
+- **EcoNews : « Eliminatoires CAN Maroc 2025 : Ethiopie vs RDC, un choc 
+prometteur ce lundi »**: [Link](https://www.radiookapi.net/2024/09/09/actualite/revue-de-presse/econews-eliminatoires-can-maroc-2025-ethiopie-vs-rdc-un-choc)
+
+
+### kooora.com (N/A, Mon, 9 Sep 2024 11:50:00 -0700)
+
+- **ناجلسمان: أتقبل تصريحات تير شتيجن "غير اللطيفة"**: [Link](https://www.kooora.com/?n=1353704)
+- **ناغلسمان يكشف عن المكالمة التي أثارت شكوكه حول شتيغن**: [Link](https://hihi2.com/2024/09/09/p2841403.html)
+- **بعد طول انتظار.. تير شتيغن يتسلم الراية من نوير "المعتزل"**: [Link](https://www.skynewsarabia.com/sport/1739938-%D8%B7%D9%88%D9%84-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1-%D8%AA%D9%8A%D8%B1-%D8%B4%D8%AA%D9%8A%D8%BA%D9%86-%D9%8A%D8%AA%D8%B3%D9%84%D9%85-%D8%A7%D9%84%D8%B1%D8%A7%D9%8A%D8%A9-%D9%86%D9%88%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B9%D8%AA%D8%B2%D9%84)
+
+
+### يلا كورة مباريات اليوم (N/A, Mon, 9 Sep 2024 11:50:00 -0700)
+
+- **المنياوي يتوج بذهبية في رفع الأثقال البارالمبي**: [Link](https://www.kooora.com/?n=1352832)
+- **الثالث عربيًا.. تعرف على ترتيب مصر في دورة الألعاب البارالمبية قبل اليوم 
+الأخير**: [Link](https://www.yallakora.com/paralympics-paris-2024/2937/news/484521/%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D8%B9%D8%B1%D8%A8%D9%8A-%D8%A7-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%A8%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1)
+- **السيسي يهنئ أبطال مصر الحاصلين على ميداليات بارالمبية في باريس**: [Link](https://arabic.cnn.com/sport/article/2024/09/08/alsissi-congratulates-egypts-paralympic-champions)
+
+
 ### lesoto - marruecos (N/A, Mon, 9 Sep 2024 11:40:00 -0700)
 
 - **Qué canal televisa en España el Lesoto vs Marruecos, Clasificación a la 
