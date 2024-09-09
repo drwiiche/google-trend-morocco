@@ -1,3 +1,70 @@
+### france vs belgium (N/A, Mon, 9 Sep 2024 11:00:00 -0700)
+
+- **Preview: France vs. Belgium - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/france/uefa-nations-league/preview/preview-france-vs-belgium-prediction-team-news-lineups_552387.html)
+- **UEFA Nations League Matchday 2: What to look out for**: [Link](https://www.uefa.com/uefanationsleague/news/0291-1bcd02d9fac0-f4e3086f4c6c-1000--uefa-nations-league-matchday-2-what-to-look-out-for/)
+- **Soccer-Belgium need improvement for Monday’s French test**: [Link](https://wmbdradio.com/2024/09/07/soccer-belgium-need-improvement-for-mondays-french-test/)
+
+
+### israël – italie (N/A, Mon, 9 Sep 2024 11:00:00 -0700)
+
+- **PRONOS PARIS RMC Le pari sûr du 9 septembre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-9-septembre-ligue-des-nations_AN-202409080043.html)
+- **Pronostic Israël Italie : Analyse, cotes et prono du match de Ligue des 
+nations**: [Link](https://www.sofoot.com/breves/pronostic-israel-italie-analyse-cotes-et-prono-du-match-de-ligue-des-nations)
+- **Les DERNIÈRES infos sur le onze italien face à Israël, turnover en vue ?**: [Link](https://www.calciomio.fr/les-dernieres-infos-sur-le-onze-italien-face-a-israel-turnover-en-vue-id-167091)
+
+
+### فرنسا ضد بلجيكا (N/A, Mon, 9 Sep 2024 11:00:00 -0700)
+
+- **دي بروين يستهدف كسر عقدة بلجيكا أمام فرنسا**: [Link](https://www.kooora.com/?n=1353492)
+- **قرار هام من مدرب فرنسا تجاه مبابي**: [Link](https://hihi2.com/2024/09/09/p2841068.html)
+- **دوري الأمم الأوروبية: الفوز أو الدخول في الأزمة بالنسبة لفرنسا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20240909-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A3%D9%88-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%B2%D9%85%D8%A9-%D8%A8%D8%A7%D9%84%D9%86%D8%B3%D8%A8%D8%A9-%D9%84%D9%81%D8%B1%D9%86%D8%B3%D8%A7)
+
+
+### morocco (N/A, Mon, 9 Sep 2024 11:00:00 -0700)
+
+- **Severe Floods in Morocco Result in 11 Deaths, Multiple Missing Persons**: [Link](https://www.moroccoworldnews.com/2024/09/365054/severe-floods-in-morocco-result-in-11-deaths-multiple-missing-persons)
+- **Torrential floods leave several people dead in southeastern Morocco**: [Link](https://www.france24.com/en/africa/20240908-torrential-floods-kill-several-people-southeastern-morocco)
+- **11 dead, 9 missing after torrential rains in Morocco**: [Link](https://en.yabiladi.com/articles/details/153847/dead-missing-after-torrential-rains.html)
+
+
+### kooora (N/A, Mon, 9 Sep 2024 10:50:00 -0700)
+
+- **​​​​​​​أزمة جديدة تؤرق أنشيلوتي في ريال مدريد**: [Link](https://www.kooora.com/?n=1353708)
+- **أربعة لاعبين يمكنهم إنقاذ أنشيلوتي**: [Link](https://hihi2.com/2024/09/09/p2840592.html)
+- **ريال مدريد يعلن إصابة لاعب جديد في صفوفه**: [Link](https://m.elbotola.com/article/2024-09-02-15-18-955.html)
+
+
+### france – belgique (N/A, Mon, 9 Sep 2024 10:50:00 -0700)
+
+- **DIRECT. France-Belgique (Ligue des nations A 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/france-belgique-live/632621)
+- **Equipe de France, Deschamps annonce un retour inattendu**: [Link](https://www.goal.com/fr/news/equipe-de-france-deschamps-annonce-un-retour-inattendu/blt01da7d06c5a4c755)
+- **Comment suivre le match de Ligue des Nations France - Belgique en direct**: [Link](https://www.20minutes.fr/sport/football/ligue-nations/4108936-20240908-france-belgique-chaine-heure-voir-match-ligue-nations)
+
+
+### المغرب (N/A, Mon, 9 Sep 2024 10:50:00 -0700)
+
+- **عاجل.. الداخلية تكشف رسميا عن ارتفاع حصيلة ضحايا الفيضانات وحجم الأضرار**: [Link](https://www.akhbarona.com/society/391877.html)
+- **فيضانات الجنوب الشرقي تسائل الأولويات في الجماعات الترابية**: [Link](https://rue20.com/835751.html)
+- **شاهد عيان يروي لـ »اليوم24″ رعب السكان من هول الطوفان في دوار بإقليم طاطا 
+(+فيديو) – اليوم 24**: [Link](https://alyaoum24.com/1914080.html)
+
+
+### المغرب اليوم (N/A, Mon, 9 Sep 2024 10:50:00 -0700)
+
+- **مديرية الأرصاد الجوية تَبسط أسباب هطول أمطار رعدية في مناطق بالمغرب**: [Link](https://www.hespress.com/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D9%8E%D8%A8%D8%B3%D8%B7-%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D9%87%D8%B7%D9%88-1428020.html)
+- **حالة جوية صعبة الأربعاء القادم ـ المناطق المعنية ـ**: [Link](https://www.analkhabar.com/%D8%AD%D8%A7%D9%84%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D9%85-%D9%80/)
+- **هذه مقاييس الأمطار خلال 24 ساعة بالمغرب**: [Link](https://www.akhbarona.com/national/391849.html)
+
+
+### maroc foot (N/A, Mon, 9 Sep 2024 10:00:00 -0700)
+
+- **Lesotho-Maroc: la compo probable des Lions de l’Atlas**: [Link](https://sport.le360.ma/maroc/lesotho-maroc-la-compo-probable-des-lions-de-latlas-114276)
+- **Lesotho-Maroc : Conférence de presse du sélectionneur national Walid 
+Regragui le 8 septembre**: [Link](https://frmf.ma/fr/%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%8A%D8%B3%D9%88%D8%AA%D9%88-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D9%86/)
+- **La presse espagnole encense Abdessamad Ezzalzouli après sa performance en 
+sélection**: [Link](https://fr.hespress.com/385219-la-presse-espagnole-encense-abdessamad-ezzalzouli-apres-sa-performance-en-selection.html)
+
+
 ### apple (N/A, Mon, 9 Sep 2024 09:30:00 -0700)
 
 - **Apple 'Glowtime' event to see iPhone 16, iPhone 16 Pro, Apple Watch 
