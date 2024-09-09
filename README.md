@@ -1,3 +1,12 @@
+### madagascar comores (N/A, Mon, 9 Sep 2024 15:10:00 -0700)
+
+- **Coupe d’Afrique des Nations 2025 : La Tunisie reçue 2 sur 2**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/coupe-d-afrique-des-nations-2025-la-tunisie-recue-2-sur-2/)
+- **Qualifications CAN 2025 : la Tunisie poursuit avec une victoire face à la 
+Gambie !**: [Link](https://www.beinsports.com/fr-fr/football/ligue-des-nations/articles-video/qualifications-can-2025-la-tunisie-poursuit-avec-une-victoire-face-%C3%A0-la-gambie-2024-09-08)
+- **La Gambie entend récupérer les points perdus: Attention à la piqûre des 
+Scorpions !**: [Link](https://lapresse.tn/2024/09/08/la-gambie-entend-recuperer-les-points-perdus-attention-a-la-piqure-des-scorpions/)
+
+
 ### مايا رعيدي (N/A, Mon, 9 Sep 2024 15:40:00 -0700)
 
 - **تستعد لحفل زفافها الثاني.. من هي ملكة جمال لبنان مايا رغيدي؟**: [Link](https://www.elwatannews.com/news/details/7543935)
