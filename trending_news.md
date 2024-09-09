@@ -1,3 +1,10 @@
+### ismaël bennacer (N/A, Mon, 9 Sep 2024 04:20:00 -0700)
+
+- **CorSera: A big blow after a strange summer – Bennacer facing long absence**: [Link](https://sempremilan.com/corsera-big-blow-strange-summer-bennacer)
+- **Bianchin: Milan fear ‘longer stop’ as Bennacer picks up calf injury in training**: [Link](https://sempremilan.com/bianchin-milan-fear-longer-stop-bennacer-injury)
+- **Di Marzio: Initial tests show calf lesion as Bennacer could be out for three months**: [Link](https://sempremilan.com/di-marzio-tests-calf-lesion-bennacer-three-months)
+
+
 ### pate a tartiner algerienne (N/A, Mon, 9 Sep 2024 02:50:00 -0700)
 
 
