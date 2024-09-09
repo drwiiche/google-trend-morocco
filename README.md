@@ -1,3 +1,10 @@
+### coupe d'afrique 2025 (N/A, Mon, 9 Sep 2024 12:50:00 -0700)
+
+- **Qualifs CAN 2025 : Ismaïla Sarr sauve le Sénégal contre le Burundi**: [Link](https://www.footmercato.net/a5910316181088319932-qualifs-can-2025-ismaila-sarr-sauve-le-senegal-contre-le-burundi)
+- **Qualif’ CAN 2025 : Le Burundi tient en échec le Sénégal à la pause (0-0) !**: [Link](https://wiwsport.com/2024/09/09/qualif-can-2025-le-burundi-tient-en-echec-le-senegal-a-la-pause-0-0/)
+- **Niakhaté (OL) titulaire et vainqueur avec le Sénégal**: [Link](https://www.olympique-et-lyonnais.com/niakhate-ol-titulaire-et-vainqueur-avec-le-senegal,339596.html)
+
+
 ### match live (N/A, Mon, 9 Sep 2024 13:00:00 -0700)
 
 - **LIVESTREAMED: Niger vs Ghana (2025 AFCON qualifier)**: [Link](https://www.ghanaweb.com/GhanaHomePage/NewsArchive/LIVESTREAMED-Niger-vs-Ghana-2025-AFCON-qualifier-1949874)
