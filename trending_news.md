@@ -1,3 +1,11 @@
+### مايا رعيدي (N/A, Mon, 9 Sep 2024 15:40:00 -0700)
+
+- **تستعد لحفل زفافها الثاني.. من هي ملكة جمال لبنان مايا رغيدي؟**: [Link](https://www.elwatannews.com/news/details/7543935)
+- **أخبار الفن.. عمرو دياب يحيي حفل زفاف ملكة جمال لبنان والكشف عن سبب توقف 
+مشروع ما وراء الطبيعة**: [Link](https://www.elbalad.news/6317096)
+- **مايا رعيدي تشوّق الجمهور لحفل زفافها الثاني في أثينا**: [Link](https://etbilarabi.com/%D9%85%D9%8A%D9%83%D8%B3/%D9%85%D8%A7%D9%8A%D8%A7-%D8%B1%D8%B9%D9%8A%D8%AF%D9%8A-%D8%AA%D8%B4%D9%88%D9%91%D9%82-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D9%84%D8%AD%D9%81%D9%84-%D8%B2%D9%81%D8%A7%D9%81%D9%87%D8%A7-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%A3%D8%AB%D9%8A%D9%86%D8%A7)
+
+
 ### caf 2025 (N/A, Mon, 9 Sep 2024 14:00:00 -0700)
 
 - **TotalEnergies AFCON 2025 qualifiers: Matchday 2 fixtures, timings and 
