@@ -1,3 +1,17 @@
+### مباريات اليوم مباشر (N/A, Mon, 9 Sep 2024 11:20:00 -0700)
+
+- **ليسوتو ضد المغرب.. مواعيد مباريات اليوم في تصفيات كأس الأمم الأفريقية 
+والقنوات الناقلة**: [Link](https://www.almasryalyoum.com/news/details/3255749)
+- **مواعيد مباريات اليوم.. البرتغال أمام كرواتيا واسبانيا مع صربيا بدوري الأمم 
+الأوروبية**: [Link](https://www.youm7.com/story/2024/9/5/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7-%D9%88%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%85%D8%B9-%D8%B5%D8%B1%D8%A8%D9%8A%D8%A7-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A/6696126)
+- **أبرز المباريات العربية والعالمية اليوم الأحد**: [Link](https://24.ae/article/842739/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF)
+
+
+### يلا شووت (N/A, Mon, 9 Sep 2024 11:20:00 -0700)
+
+
+
+
 ### france vs belgium (N/A, Mon, 9 Sep 2024 11:00:00 -0700)
 
 - **Preview: France vs. Belgium - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/france/uefa-nations-league/preview/preview-france-vs-belgium-prediction-team-news-lineups_552387.html)
