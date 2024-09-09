@@ -1,3 +1,19 @@
+### resultat quinte (N/A, Mon, 9 Sep 2024 05:10:00 -0700)
+
+- **Quinté+: PRIX RFM - SUPER HANDICAP DE LA RENTREE - LONGCHAMP - 08/09/2024 : 
+partants,...**: [Link](https://www.equidia.fr/courses/2024-09-08/R1/C4)
+- **Les pronostics Quinté du 08/09/2024 à Longchamp**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-08092024-a-longchamp-4266190)
+- **Les pronos hippiques du dimanche 8 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-8-septembre-2024_AN-202409070287.html)
+
+
+### baye niang (N/A, Mon, 9 Sep 2024 04:50:00 -0700)
+
+- **M’Baye Niang rejoint le Maroc**: [Link](https://www.footmercato.net/a269357494993018265-mbaye-niang-rejoint-le-maroc)
+- **Mercato : M'Baye Niang s'engage avec le Wydad Casablanca**: [Link](https://lematin.ma/sports/mercato-mbaye-niang-sengage-avec-le-wydad-casablanca/242183)
+- **Mercato : l'ancien joueur de Rennes M'Baye Niang s'engage avec le Wydad 
+Casablanca (Transferts)**: [Link](https://www.lequipe.fr/Football/Actualites/Mercato-l-ancien-joueur-de-rennes-m-baye-niang-s-engage-avec-le-wydad-casablanca/1506550)
+
+
 ### ismaël bennacer (N/A, Mon, 9 Sep 2024 04:20:00 -0700)
 
 - **CorSera: A big blow after a strange summer – Bennacer facing long absence**: [Link](https://sempremilan.com/corsera-big-blow-strange-summer-bennacer)
