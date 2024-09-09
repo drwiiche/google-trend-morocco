@@ -1,3 +1,10 @@
+### diaz (N/A, Mon, 9 Sep 2024 14:10:00 -0700)
+
+- **'Special day' as Díaz brothers pitch in same game for 1st time**: [Link](https://www.mlb.com/news/alexis-diaz-edwin-diaz-pitch-in-same-game-for-first-time)
+- **Edwin Diaz makes family history with brother in electric Mets outing**: [Link](https://nypost.com/2024/09/07/sports/edwin-diaz-makes-history-with-brother-in-electric-mets-outing/)
+- **Edwin Díaz Makes Brotherly History in Dramatic Mets’ Win**: [Link](https://www.si.com/mlb/mets/news/edwin-diaz-makes-brotherly-history-in-dramatic-mets-win-john9)
+
+
 ### brahim diaz (N/A, Mon, 9 Sep 2024 13:30:00 -0700)
 
 - **Tuttosport: Milan could have bought Real Madrid playmaker on ‘favourable 
