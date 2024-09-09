@@ -1,3 +1,12 @@
+### caf 2025 (N/A, Mon, 9 Sep 2024 14:00:00 -0700)
+
+- **TotalEnergies AFCON 2025 qualifiers: Matchday 2 fixtures, timings and 
+results**: [Link](https://www.cafonline.com/caf-africa-cup-of-nations/news/totalenergies-afcon-2025-qualifiers-matchday-2-fixtures-timings-and-results/)
+- **4 Wins Out of 5: Here is Kwasi Appiah's outstanding record as Sudan coach 
+in 2024**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/4-Wins-Out-of-5-Here-is-Kwasi-Appiah-s-outstanding-record-as-Sudan-coach-in-2024-1949212)
+- **Football: 2025 Africa Cup Of Nations Qualifying Results**: [Link](https://www.barrons.com/news/football-2025-africa-cup-of-nations-qualifying-results-cb519481)
+
+
 ### مغرب (N/A, Mon, 9 Sep 2024 14:00:00 -0700)
 
 - **مصرع سائحة ومرشد في سيول تمرزيت**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%88%D9%84-%D8%AA%D8%B5%D8%B1%D8%B9-%D8%B3%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D9%88%D9%85%D8%B1%D8%B4%D8%AF%D8%A7-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7-1428730.html)
