@@ -1,3 +1,12 @@
+### james earl jones (N/A, Mon, 9 Sep 2024 14:40:00 -0700)
+
+- **James Earl Jones Dies: Revered ‘Field Of Dreams’ Star, Darth Vader Voice & 
+Broadway Regular Was 93**: [Link](https://deadline.com/2024/09/james-earl-jones-dead-1236082801/)
+- **Remembering the 'Stars Wars' Actors We've Lost Through the Years**: [Link](https://people.com/star-wars-actors-who-have-died-7489212)
+- **Mark Hamill had the most heartbreaking reaction to the death of James Earl 
+Jones**: [Link](https://uk.news.yahoo.com/mark-hamill-had-most-heartbreaking-212802319.html)
+
+
 ### maroc aujourd hui (N/A, Mon, 9 Sep 2024 14:20:00 -0700)
 
 - **Maroc : ciel perturbé, aviation à genoux et vols déroutés**: [Link](https://fr.hespress.com/385229-maroc-ciel-perturbe-aviation-a-genoux-et-vols-deroutes.html)
