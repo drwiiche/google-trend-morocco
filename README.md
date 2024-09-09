@@ -1,3 +1,19 @@
+### brahim díaz (N/A, Mon, 9 Sep 2024 14:00:00 -0700)
+
+- **Tuttosport: Milan could have bought Real Madrid playmaker on ‘favourable 
+terms’**: [Link](https://sports.yahoo.com/tuttosport-milan-could-bought-real-142200976.html)
+- **Tuttosport: Milan could have bought Real Madrid playmaker on ‘favourable 
+terms’**: [Link](https://sempremilan.com/tuttosport-milan-brahim-diaz-favourable-terms)
+- **LIVESTREAMED: Niger vs Ghana (2025 AFCON qualifier)**: [Link](https://www.ghanaweb.com/GhanaHomePage/NewsArchive/LIVESTREAMED-Niger-vs-Ghana-2025-AFCON-qualifier-1949874)
+
+
+### نتائج مباريات اليوم (N/A, Mon, 9 Sep 2024 14:00:00 -0700)
+
+- **رسميا.. عساف مدربا لشباب الأردن**: [Link](https://m.kooora.com/?n=1353729&o=ncjo)
+- **سر تعاقد شباب الأردن مع اليوتيوبر أبو سروال.. وشلباية مصدوم!**: [Link](https://www.winwin.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%B1-%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%85%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8%D8%B1-%D8%A3%D8%A8%D9%88-%D8%B3%D8%B1%D9%88%D8%A7%D9%84-%D9%88%D8%B4%D9%84%D8%A8%D8%A7%D9%8A%D8%A9-%D9%85%D8%B5%D8%AF%D9%88%D9%85)
+- **عساف مدربا لشباب الأردن**: [Link](https://www.addustour.com/articles/1440403-%D8%B9%D8%B3%D8%A7%D9%81-%D9%85%D8%AF%D8%B1%D8%A8%D8%A7-%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86)
+
+
 ### james earl jones (N/A, Mon, 9 Sep 2024 14:40:00 -0700)
 
 - **James Earl Jones Dies: Revered ‘Field Of Dreams’ Star, Darth Vader Voice & 
