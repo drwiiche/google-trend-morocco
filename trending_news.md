@@ -1,3 +1,10 @@
+### مغرب (N/A, Mon, 9 Sep 2024 14:00:00 -0700)
+
+- **مصرع سائحة ومرشد في سيول تمرزيت**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%88%D9%84-%D8%AA%D8%B5%D8%B1%D8%B9-%D8%B3%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D9%88%D9%85%D8%B1%D8%B4%D8%AF%D8%A7-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7-1428730.html)
+- **خسائر مادية وبشرية.. حزن يطغى على المنصات بعد سيول المغرب**: [Link](https://www.aljazeera.net/programs/networks/2024/9/9/%D8%AE%D8%B3%D8%A7%D8%A6%D8%B1-%D9%85%D8%A7%D8%AF%D9%8A%D8%A9-%D9%88%D8%A8%D8%B4%D8%B1%D9%8A%D8%A9-%D8%AD%D8%B2%D9%86-%D9%8A%D8%B7%D8%BA%D9%89-%D8%B9%D9%84%D9%89)
+- **وزارة الداخلية : ارتفاع ضحايا الفيضانات إلى 18 حالة وفاة**: [Link](https://rue20.com/835891.html)
+
+
 ### brahim díaz (N/A, Mon, 9 Sep 2024 14:00:00 -0700)
 
 - **Tuttosport: Milan could have bought Real Madrid playmaker on ‘favourable 
