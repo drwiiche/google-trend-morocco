@@ -1,3 +1,35 @@
+### bet365 (N/A, Mon, 9 Sep 2024 12:30:00 -0700)
+
+- **NFL bet365 promo: Bet $200 bonus bets or $1K first-bet insurance**: [Link](https://www.cbssports.com/betting/news/nfl-bet365-promo-bet-200-bonus-bets-or-1k-first-bet-insurance/)
+- **bet365 Bonus Code EBNEWS: Claim $1,000 or $200 Monday Night Football Bonus 
+for Jets vs 49ers**: [Link](https://www.101greatgoals.com/us/american-football/nfl/bet365-bonus-code-ebnews-claim-1000-or-200-monday-night-football-bonus-for-jets-vs-49ers/)
+- **Bet365 Bonus Code AZ DIMERS: Secure $200 or $1K sports betting bonus for 
+Sunday Night Football today**: [Link](https://www.dimers.com/news/bet365-bonus-code-az-dimers-secure-200-or-1k-sports-betting-bonus-for-sunday-night-football-today)
+
+
+### بين سبورت (N/A, Mon, 9 Sep 2024 12:30:00 -0700)
+
+- **افضل إشارة تردد قناة بي إن سبورت bein Sports hd الجديد 2024**: [Link](https://newsy.almesasports.com/232124/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA/)
+- **مع المعلق جواد بدة.. تردد قناة بي إن سبورت beIN Sport 5 الجديد 2024 لمشاهدة 
+مباراة المغرب والغابون**: [Link](https://real.alsaudinews.com/155984/%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82-%D8%AC%D9%88%D8%A7%D8%AF-%D8%A8%D8%AF%D8%A9-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1/)
+- **تردد قناة بين سبورت المفتوحة 2024 عبر القمرين الصناعيين نايل سات وعرب سات**: [Link](https://www.swatan.news/302633/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-2024-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D9%82%D9%85/)
+
+
+### hakimi (N/A, Mon, 9 Sep 2024 12:30:00 -0700)
+
+- **El 'dardazo' envenenado de Hiba Abouk a Achraf Hakimi en redes sociales**: [Link](https://www.mundodeportivo.com/vaya-mundo/20240909/1002312352/dardazo-envenenado-hiba-abouk-achraf-hakimi-redes-sociales-dct.html)
+- **✅ حكيمي يكشف لأول مرة تفاصيل تحويله لكافة أمواله لوالدته وصدمة طليقته**: [Link](https://tanja24.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%84%D8%A3%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D9%87-%D9%84%D9%83%D8%A7%D9%81/)
+- **حكيمي يكشف تفاصيل جديدة بخصوص طلاقه من هبة عبوك**: [Link](https://larachenews.com/183025.html)
+
+
+### france (N/A, Mon, 9 Sep 2024 12:30:00 -0700)
+
+- **France won't 'change course' after loss to Italy**: [Link](https://www.espn.com/soccer/story/_/id/41179110/france-change-course-belgium-loss-italy)
+- **UEFA Nations League France 1 Italy 3 Full time**: [Link](https://www.bbc.com/sport/football/live/c5yd7zewe5wt)
+- **Italy lean on Premier League contingent to end Luciano Spalletti’s cruel 
+summer - The Athletic**: [Link](https://www.nytimes.com/athletic/5751008/2024/09/07/italy-tonali-calafiori-udogie-spalletti-france/)
+
+
 ### الرياضية tnt (N/A, Mon, 9 Sep 2024 12:20:00 -0700)
 
 - **مباراة المغرب vs ليسوتو: تردد قناة المغربية الرياضية 2024 على النايل سات 
