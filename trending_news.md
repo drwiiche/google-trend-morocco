@@ -1,3 +1,19 @@
+### zambie – sierra leone (N/A, Tue, 10 Sep 2024 12:30:00 -0700)
+
+- **Éliminatoires CAN 2025 - Zambie : Avram Grant attend mieux des Chipolopolo 
+contre la Sierra Leone**: [Link](https://africafootunited.com/eliminatoires-can-2025-zambie-avram-grant-attend-mieux-des-chipolopolo-contre-la-sierra-leone/)
+- **Éliminatoires CAN 2025 – Sierra Leone : Amidu Karim, prudent avant 
+d’affronter la Zambie**: [Link](https://africafootunited.com/eliminatoires-can-2025-sierra-leone-amidu-karim-prudent-avant-daffronter-la-zambie/)
+
+
+### germany (N/A, Tue, 10 Sep 2024 12:20:00 -0700)
+
+- **Neighbours criticise German move to extend border controls**: [Link](https://www.bbc.com/news/articles/cq5dvzj81g3o)
+- **Germany expands border controls to curb irregular migration and extremism 
+risks**: [Link](https://apnews.com/article/germany-border-controls-migration-extremism-2f66ce42140309e9141216cd927e3f11)
+- **‘The end of Schengen’: Germany’s new border controls put EU unity at risk**: [Link](https://www.theguardian.com/world/article/2024/sep/10/the-end-of-schengen-germanys-new-border-controls-put-eu-unity-at-risk)
+
+
 ### tchad – côte d'ivoire (N/A, Tue, 10 Sep 2024 12:20:00 -0700)
 
 - **Éliminatoires de la CAN 2025-Maroc: le programme complet, les chocs des deux premières journées**: [Link](https://afrique.le360.ma/sports/eliminatoires-de-la-can-2025-maroc-le-programme-complet-les-chocs-des-deux-premieres-journees_J2FV46OERVA6VNUCQC5YXOBITE/)
