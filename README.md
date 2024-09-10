@@ -1,3 +1,12 @@
+### nikocado avocado (N/A, Tue, 10 Sep 2024 09:50:00 -0700)
+
+- **YouTuber Nikocado Avocado bamboozles viewers with secret weight loss 
+transformation**: [Link](https://www.nbcnews.com/pop-culture/pop-culture-news/nikocado-avocado-secret-weight-loss-rcna170142)
+- **YouTuber Nikocado Avocado, known for grotesque ‘Mukbang’ videos, reveals 
+shock 250-lb. weight loss — and how he hid it from fans for months**: [Link](https://www.yahoo.com/entertainment/youtuber-nikocado-avocado-known-grotesque-130018757.html)
+- **Nikocado Avocado loses 114 kg in 7 months: How it happened**: [Link](https://timesofindia.indiatimes.com/life-style/health-fitness/weight-loss/nikocado-avocado-loses-114-kg-in-7-months-how-it-happened/articleshow/113154581.cms)
+
+
 ### algerie foot (N/A, Tue, 10 Sep 2024 10:00:00 -0700)
 
 - **ALG : Top et fin pour la taupe de Sidi Moussa ?**: [Link](https://www.footafrique.com/alg-top-et-fin-pour-la-taupe-de-sidi-moussa/)
