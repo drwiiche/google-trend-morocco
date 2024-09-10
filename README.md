@@ -1,3 +1,12 @@
+### kevin de bruyne (N/A, Tue, 10 Sep 2024 11:40:00 -0700)
+
+- **De Bruyne blasts Belgium after loss: Do your job**: [Link](https://www.espn.com/soccer/story/_/id/41197946/kevin-de-bruyne-blasts-belgium-france-loss)
+- **Furious Kevin De Bruyne launches extraordinary outburst and can’t repeat 
+what he told ‘unacceptable’ teamm...**: [Link](https://talksport.com/football/2041066/kevin-de-bruyne-outburst-belgium-nations-league-france/)
+- **Nations League: Kevin de Bruyne says Belgium have to 'be better in every 
+way' after defeat by France**: [Link](https://www.bbc.com/sport/football/articles/c9d1zdze94zo)
+
+
 ### zambie – sierra leone (N/A, Tue, 10 Sep 2024 12:30:00 -0700)
 
 - **Éliminatoires CAN 2025 - Zambie : Avram Grant attend mieux des Chipolopolo 
