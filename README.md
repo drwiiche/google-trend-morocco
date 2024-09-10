@@ -1,3 +1,30 @@
+### liberia – algérie (N/A, Tue, 10 Sep 2024 08:20:00 -0700)
+
+- **Liberia - Algérie : Où voir le match ?**: [Link](https://www.dzfoot.com/programme-tv/liberia-algerie-ou-voir-le-match-264396.html)
+- **CAN 2025, Libéria – Algérie : nouvelle défection dans le camp des Verts**: [Link](https://www.tsa-algerie.com/can-2025-liberia-algerie-nouvelle-defection-dans-le-camp-des-verts/)
+- **Libéria Algérie : la CAF change l'arbitre à la dernière minute**: [Link](https://fennecfootball.com/liberia-algerie-la-caf-change-larbitre-a-la-derniere-minute/)
+
+
+### فلسطين ضد الأردن (N/A, Tue, 10 Sep 2024 08:20:00 -0700)
+
+- **مدرب فلسطين: مواجهة الأردن "لقاء أعصاب"**: [Link](https://www.kooora.com/?n=1353778)
+- **المنتخب الفلسطيني على موعد مع مواجهة عربية قوية أمام الأردن**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%B9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-2024-09-09)
+- **سلامي يكشف عن هدفه ضد فلسطين و يتحدث عن بديل نجم "النشامى"**: [Link](http://ar.sport.le360.ma/maroc/158578)
+
+
+### sanija ameti (N/A, Tue, 10 Sep 2024 08:10:00 -0700)
+
+- **Swiss city councilor apologizes for firing gun at a Mary and Jesus poster**: [Link](https://apnews.com/article/switzerland-councilor-gun-madonna-poster-4afd5921f843c60dc668cd2f4e7c85e2)
+- **Swiss politician resigns after firing shots at Jesus picture**: [Link](https://www.swissinfo.ch/eng/swiss-politics/criminal-charges-against-sanija-ameti-after-shots-fired-at-jesus-picture/87516891)
+- **Swiss politician says sorry for using poster of Mary and Jesus for target 
+practice**: [Link](https://www.independent.co.uk/news/world/europe/sanija-ameti-switzerland-gun-instagram-b2610173.html)
+
+
+### adam aznou maroc (N/A, Tue, 10 Sep 2024 01:40:00 -0700)
+
+
+
+
 ### wissam ben yedder (N/A, Tue, 10 Sep 2024 08:00:00 -0700)
 
 - **Ben Yedder charged with sexual assault in France**: [Link](https://www.espn.com/soccer/story/_/id/41196832/french-striker-wissam-ben-yedder-charged-sexual-assault)
