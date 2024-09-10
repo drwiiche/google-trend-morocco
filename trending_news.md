@@ -1,3 +1,25 @@
+### كولومبيا ضد الأرجنتين (N/A, Tue, 10 Sep 2024 13:20:00 -0700)
+
+- **الأرجنتين تقترب من حسم التأهل.. والبرازيل تتابع النهوض**: [Link](https://www.kooora.com/?n=1353617)
+- **رقم قياسي تاريخي ينتظر حارس الارجنتين أمام كولومبيا**: [Link](https://hihi2.com/2024/09/10/p2843152.html)
+- **مونديال 2026 لكرة القدم.. برنامج الجولة الـ 8 من تصفيات أمريكا الجنوبية**: [Link](https://www.almountakhab.com/node/13204114)
+
+
+### colombia vs argentina (N/A, Tue, 10 Sep 2024 13:20:00 -0700)
+
+- **En vivo: Argentina vs. Colombia online en TyC Sports y Telefé**: [Link](https://www.lanacion.com.ar/deportes/futbol/en-vivo-argentina-vs-colombia-online-en-tyc-sports-y-telefe-nid10092024/)
+- **Néstor Lorenzo tiró ‘palito’ a Lionel Scaloni tras quejas por el clima: “No 
+me escucharon diciendo nada”**: [Link](https://www.infobae.com/colombia/deportes/2024/09/10/nestor-lorenzo-tiro-palito-a-lionel-scaloni-tras-quejas-por-el-clima-no-me-escucharon-diciendo-nada/)
+- **Histórico de Argentina calienta duelo ante Colombia: 'No gana la Copa'**: [Link](https://www.futbolred.com/curiosidades-de-futbol/mario-alberto-kempes-enciende-polemica-en-colombia-vs-argentina-si-colombia-gana-no-gana-la-copa-221283)
+
+
+### جمال موسيالا (N/A, Tue, 10 Sep 2024 13:20:00 -0700)
+
+- **رئيس بايرن ميونخ: ما قاله موسيالا صحيح**: [Link](https://www.kooora.com/?n=1353804)
+- **جمال موسيالا .. مولر جديد في البايرن**: [Link](https://hihi2.com/2024/09/10/p2842436.html)
+- **هاينر: سنرى جمال موسيالا مع البايرن لفترة طويلة**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5059533-%D9%87%D8%A7%D9%8A%D9%86%D8%B1-%D8%B3%D9%86%D8%B1%D9%89-%D8%AC%D9%85%D8%A7%D9%84-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%84%D9%81%D8%AA%D8%B1%D8%A9-%D8%B7%D9%88%D9%8A%D9%84%D8%A9)
+
+
 ### colombie – argentine (N/A, Tue, 10 Sep 2024 13:10:00 -0700)
 
 - **Colombie-Argentine : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/?p=10200767)
