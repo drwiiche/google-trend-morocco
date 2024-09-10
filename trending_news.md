@@ -1,3 +1,28 @@
+### botswana vs egypt (N/A, Tue, 10 Sep 2024 09:00:00 -0700)
+
+- **Egypt clash against Botswana delayed by few hours - National Teams - Sports**: [Link](https://english.ahram.org.eg/NewsContentP/6/531545/Sports/Egypt-clash-against-Botswana-delayed-by-few-hours.aspx)
+- **Ahmed Eid was summoned to the Egyptian national team camp before facing 
+Botswana**: [Link](https://www.ysscores.com/en/news/3796264/Ahmed-Eid-was-summoned-to-the-Egyptian-national-team-camp-before-facing-Botswana)
+- **CAF grants Botswana's request to move Zebras-Egypt kick-off time**: [Link](https://www.mmegi.bw/sports/caf-grants-botswanas-request-to-move-zebras-egypt-kick-off-time/news)
+
+
+### gabon – rép. centrafricaine (N/A, Tue, 10 Sep 2024 08:50:00 -0700)
+
+- **Eliminatoires Maroc CAN 25 / Groupe du Maroc: Gabon - Centrafrique 
+aujourd'hui**: [Link](https://www.lopinion.ma/Eliminatoires-Maroc-CAN-25-Groupe-du-Maroc-Gabon-Centrafrique-aujourd-hui_a57840.html)
+- **CAN TOTALENERGIES 2025 : Les Panthères déjà dans le dur ! -**: [Link](https://gabonactu.com/blog/2024/09/09/can-totalenergies-2025-les-pantheres-deja-dans-le-dur/)
+- **Gabon – RCA : Mouyouma veut gagner à tout prix !**: [Link](https://gabonmediatime.com/gabon-rca-mouyouma-veut-gagner-a-tout-prix/)
+
+
+### botswana – égypte (N/A, Tue, 10 Sep 2024 08:20:00 -0700)
+
+- **CAN 2025 : L'Algérie victime du même fléau que l'Egypte ! (Officiel)**: [Link](https://fennecfootball.com/can-2025-algerie-et-egypte-meme-sort-meme-deception-officiel/)
+- **Sénégal - Burkina Faso en direct - Qualifications CAN : Football Scores & 
+Résultats - 06/09/2024**: [Link](https://www.eurosport.fr/football/qualifications-can/2025/live-senegal-burkina-faso_mtc1509900/live.shtml)
+- **L'Egyptien Ashour absent des éliminatoires de la CAN en raison d'une 
+blessure au genou - Sports - Sports**: [Link](https://french.ahram.org.eg/News/52449.aspx)
+
+
 ### بوتسوانا ضد مصر (N/A, Tue, 10 Sep 2024 08:40:00 -0700)
 
 - **رسميا.. الاتحاد المصري يعترض على قرار كاف**: [Link](https://www.kooora.com/?n=1353707)
