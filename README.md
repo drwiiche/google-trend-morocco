@@ -1,3 +1,12 @@
+### kamala harris donald trump (N/A, Tue, 10 Sep 2024 13:00:00 -0700)
+
+- **Debate Rules for "Kamala Harris and Donald Trump – ABC News Presidential 
+Debate" on Tuesday, Sept. 10**: [Link](https://abc.com/news/5e38600c-4732-4cd2-a99c-3dedfa81beb0/category/1138628)
+- **Harris braces for the most critical moment of her political career at 
+debate with Trump**: [Link](https://www.cnn.com/2024/09/10/politics/harris-crucial-test-debate-analysis/index.html)
+- **Harris campaign agrees to muted mics in debate against Trump**: [Link](https://www.cbsnews.com/news/harris-trump-debate-muted-mics-rules/)
+
+
 ### futsal world cup (N/A, Tue, 10 Sep 2024 14:30:00 -0700)
 
 - **Official FIFA Futsal World Cup Uzbekistan 2024 squads named**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/squads-announced)
