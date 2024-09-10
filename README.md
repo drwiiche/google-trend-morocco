@@ -1,3 +1,10 @@
+### marocco calcio (N/A, Mon, 9 Sep 2024 14:20:00 -0700)
+
+- **Lesotho - Marocco 0-1: diretta live e risultato finale**: [Link](https://www.calciomagazine.net/lesotho-marocco-diretta-risultato-9-settembre-2024-208657.html)
+- **Richardson titolare al posto di Amrabat, per lui un’ora di gioco nella 
+vittoria del Marocco**: [Link](https://www.labaroviola.com/richardson-titolare-al-posto-di-amrabat-per-lui-unora-di-gioco-nella-vittoria-del-marocco/267604/)
+
+
 ### typhon yagi vietnam (N/A, Mon, 9 Sep 2024 19:40:00 -0700)
 
 - **Typhoon Yagi collapses busy bridge in Vietnam**: [Link](https://www.bbc.com/news/articles/cqxjn3w9228o)
