@@ -1,3 +1,10 @@
+### هولندا ضد ألمانيا (N/A, Tue, 10 Sep 2024 12:10:00 -0700)
+
+- **مهاجم ألمانيا قبل مواجهة هولندا: يعلمون ما ينتظرهم!**: [Link](https://www.kooora.com/?n=1353661)
+- **سجل حكم لقاء ألمانيا وهولندا مع البطاقات**: [Link](https://hihi2.com/2024/09/10/p2842092.html)
+- **قمة مرتقبة بين هولندا وألمانيا في دوري الأمم الأوروبية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D9%88%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-2024-09-10)
+
+
 ### netherlands vs germany (N/A, Tue, 10 Sep 2024 11:30:00 -0700)
 
 - **Netherlands vs. Germany: LIVE build-up!**: [Link](https://www.bundesliga.com/en/bundesliga/news/netherlands-germany-preview-live-blog-report-nations-league-de-ligt-28770)
