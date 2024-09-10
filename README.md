@@ -1,3 +1,21 @@
+### colombie – argentine (N/A, Tue, 10 Sep 2024 13:10:00 -0700)
+
+- **Colombie-Argentine : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/?p=10200767)
+- **Pronostic Colombie Argentine : Analyse, cotes et prono du match des 
+éliminatoires de la Coupe du monde**: [Link](https://www.sofoot.com/breves/pronostic-colombie-argentine-analyse-cotes-et-prono-du-match-des-eliminatoires-de-la-coupe-du-monde)
+- **Éliminatoires Coupe du Monde 2026 - Colombie : Luis Diaz évoque le match 
+contre l'Argentine**: [Link](https://africafootunited.com/eliminatoires-coupe-du-monde-2026-colombie-luis-diaz-evoque-le-match-contre-largentine/)
+
+
+### ملكة جمال لبنان مايا رعيدي (N/A, Tue, 10 Sep 2024 13:10:00 -0700)
+
+- **عمرو دياب يحيي حفل زفاف ملكة جمال لبنان مايا رعيدي (فيديو)**: [Link](https://www.almasryalyoum.com/news/details/3256104)
+- **06:41 المشاهير العرب سهام تويني والدة زوج مايا رعيدي تشاركهما الرقص في حفل 
+الزفاف.. وإطلالتها تلفت الأنظار - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/192370/0641%0A%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%0A%0A%D8%B3%D9%87%D8%A7%D9%85-%D8%AA%D9%88%D9%8A%D9%86%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D8%A9-%D8%B2%D9%88%D8%AC-%D9%85%D8%A7%D9%8A%D8%A7-%D8%B1%D8%B9%D9%8A%D8%AF%D9%8A-%D8%AA%D8%B4%D8%A7%D8%B1%D9%83%D9%87%D9%85%D8%A7-%D8%A7%D9%84%D8%B1%D9%82%D8%B5-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%B2%D9%81%D8%A7%D9%81-%D9%88%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%AA%D9%87%D8%A7-%D8%AA%D9%84%D9%81%D8%AA-%D8%A7%D9%84%D8%A3%D9%86%D8%B8%D8%A7%D8%B1---AARC-%D9%85%D8%B5%D8%B1.html)
+- **هي من أصل روسي.. والدة العروس مايا رعيدي بغاية الجمال والجمهور يُشبهها 
+بجورجينا رزق (صورة)**: [Link](https://www.lebanon24.com/news/arts-celebrities/1245164/%D9%87%D9%8A-%D9%85%D9%86-%D8%A3%D8%B5%D9%84-%D8%B1%D9%88%D8%B3%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B3-%D9%85%D8%A7%D9%8A%D8%A7-%D8%B1%D8%B9%D9%8A%D8%AF%D9%8A-%D8%A8%D8%BA%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D9%8A%D9%8F%D8%B4%D8%A8%D9%87%D9%87%D8%A7-%D8%A8)
+
+
 ### angleterre – finlande (N/A, Tue, 10 Sep 2024 12:50:00 -0700)
 
 - **Angleterre - Finlande (Nations League B): Les compositions**: [Link](https://www.walfoot.be/europe/nations-league-b/2024-2025/calendrier/journee-2/angleterre/finlande/compositions)
