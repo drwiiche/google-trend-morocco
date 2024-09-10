@@ -1,3 +1,12 @@
+### rafa mir (N/A, Tue, 10 Sep 2024 15:10:00 -0700)
+
+- **Pepelu responde a las disculpas de Rafa Mir: "Es una falta de respeto al 
+club y a la afición que no se puede consentir"**: [Link](https://www.marca.com/futbol/valencia/2024/09/10/66e0883f46163fcb998b45e7.html)
+- **La reveladora frase de un amigo de Rafa Mir a la presunta víctima tras 
+salir de la casa**: [Link](https://www.larazon.es/deportes/reveladora-frase-amigo-rafa-mir-presunta-victima-salir-casa_2024091066e06ba7fcf7b30001558773.html)
+- **Rafa Mir pide las imágenes de las cámaras de la discoteca**: [Link](https://as.com/tikitakas/famosos/rafa-mir-pide-las-imagenes-de-las-camaras-de-la-discoteca-n/)
+
+
 ### colombia - argentina (N/A, Tue, 10 Sep 2024 15:50:00 -0700)
 
 - **Colombia v Argentina I CONMEBOL qualifying**: [Link](https://www.fifa.com/en/tournaments/mens/worldcup/canadamexicousa2026/articles/conmebol-qualifying-round-eight)
