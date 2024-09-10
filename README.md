@@ -1,3 +1,11 @@
+### iphone 16 pro max prix (N/A, Tue, 10 Sep 2024 04:20:00 -0700)
+
+- **iPhone 16 Pro et iPhone 16 Pro Max**: [Link](https://www.apple.com/fr/iphone-16-pro/)
+- **iPhone 16, 16 Plus, 16 Pro et 16 Pro Max : les prix, les précommandes et la 
+date de sortie des nouveaux smartphones Apple**: [Link](https://www.lesnumeriques.com/telephone-portable/iphone-16-16-plus-16-pro-et-16-pro-max-les-prix-les-precommandes-et-la-date-de-sortie-des-nouveaux-smartphones-apple-n226145.html)
+- **Réveil Courrier du 10 septembre 2024**: [Link](https://www.courrierinternational.com/reveil/2024-09-10)
+
+
 ### المجلس الأعلى للسلطة القضائية (N/A, Tue, 10 Sep 2024 04:10:00 -0700)
 
 - **الملك يوافق على تعيين مسؤولين قضائيين جدد**: [Link](https://rue20.com/836163.html)
