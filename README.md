@@ -1,3 +1,24 @@
+### abbé pierre (N/A, Mon, 9 Sep 2024 17:30:00 -0700)
+
+- **ENQUETE. Quand l’abbé Pierre menaçait ceux qui dénonçaient ses agissements**: [Link](https://www.francetvinfo.fr/enquetes-franceinfo/enquete-quand-l-abbe-pierre-menacait-ceux-qui-denoncaient-ses-agissements_6770512.html)
+- **Abus sexuels connus, indemnisations, suites judiciaires... Retour sur l'affaire abbé Pierre**: [Link](https://www.france24.com/fr/france/20240909-abus-sexuels-connus-de-l-%C3%A9glise-indemnisations-suites-judiciaires-retour-sur-l-affaire-abb%C3%A9-pierre)
+- **Nouvelles accusations contre l’abbé Pierre, « un prédateur » : Véronique Margron veut une instance de réparation**: [Link](https://www.leparisien.fr/societe/religions/nouvelles-accusations-contre-labbe-pierre-un-predateur-veronique-margron-veut-une-instance-de-reparation-07-09-2024-ZAUI3DKTCJABXOY4NFLS2X6THQ.php)
+
+
+### زلزال المغرب (N/A, Mon, 9 Sep 2024 17:00:00 -0700)
+
+- **"الحوز خيمتنا.. الحوز نجمتنا".. نريد بيتا يعيد لنا دفئا فقدناه منذ عام**: [Link](https://www.aljazeera.net/politics/2024/9/9/%D8%A7%D9%84%D8%AD%D9%88%D8%B2-%D8%AE%D9%8A%D9%85%D8%AA%D9%86%D8%A7%D8%8C-%D8%A7%D9%84%D8%AD%D9%88%D8%B2-%D9%86%D8%AC%D9%85%D8%AA%D9%86%D8%A7-%D9%86%D8%B1%D9%8A%D8%AF)
+- **بدون عنوان | سنة على زلزال الحوز**: [Link](https://www.hespress.com/%D8%A8%D8%AF%D9%88%D9%86-%D8%B9%D9%86%D9%88%D8%A7%D9%86-%D8%B3%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A7%D9%84%D8%AD%D9%88%D8%B2-1428226.html)
+- **“العدالة والتنمية” يطالب الحكومة بالتجاوب مع شكايات متضرري الزلزال وإلغاء العقوبات في حق طلبة الطب**: [Link](https://lakome2.com/politique/354452/)
+
+
+### earthquake (N/A, Mon, 9 Sep 2024 14:30:00 -0700)
+
+- **Swarm of quakes rattles Northern California**: [Link](https://www.sfchronicle.com/bayarea/article/earthquake-shakes-sf-bay-area-19598940.php)
+- **Multiple Earthquakes Rattle Northern California**: [Link](https://patch.com/california/sonomavalley/multiple-earthquakes-rattle-northern-california)
+- **Magnitude 4.3 earthquake hits near Geysers in Sonoma County**: [Link](https://www.cbsnews.com/sanfrancisco/news/magnitude-4-3-earthquake-hits-near-geysers-in-sonoma-county/)
+
+
 ### madagascar comores (N/A, Mon, 9 Sep 2024 15:10:00 -0700)
 
 - **Coupe d’Afrique des Nations 2025 : La Tunisie reçue 2 sur 2**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/coupe-d-afrique-des-nations-2025-la-tunisie-recue-2-sur-2/)
