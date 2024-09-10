@@ -1,3 +1,12 @@
+### colombia - argentina (N/A, Tue, 10 Sep 2024 15:50:00 -0700)
+
+- **Colombia v Argentina I CONMEBOL qualifying**: [Link](https://www.fifa.com/en/tournaments/mens/worldcup/canadamexicousa2026/articles/conmebol-qualifying-round-eight)
+- **Colombia vs Argentina LIVE Score, FIFA World Cup 2026 qualifier: COL 2 - 1 
+ARG; James puts host in front after Gonzalez equaliser**: [Link](https://sportstar.thehindu.com/football/argentina-vs-colombia-live-score-fifa-world-cup-qualifier-col-v-arg-match-updates-goal-lineup-messi-highlights-streaming-info/article68627645.ece)
+- **Colombia - Argentina live online: score, stats & updates | South American 
+Qualifiers**: [Link](https://en.as.com/soccer/colombia-argentina-live-online-score-stats-updates-south-american-qualifiers-n/)
+
+
 ### venezuela – uruguay (N/A, Tue, 10 Sep 2024 15:10:00 -0700)
 
 - **Preview: Venezuela vs. Uruguay - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/venezuela/world-cup/preview/preview-venezuela-vs-uruguay-prediction-team-news-lineups_552452.html)
