@@ -1,3 +1,13 @@
+### pays-bas – allemagne (N/A, Tue, 10 Sep 2024 11:10:00 -0700)
+
+- **Pays-Bas - Allemagne : à quelle heure et sur quelle chaîne suivre le match 
+de la Ligue des nations ? (Foot)**: [Link](https://www.lequipe.fr/Football/Actualites/Pays-bas-allemagne-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-de-la-ligue-des-nations/1506733)
+- **Ligue des Nations : Julian Nagelsmann se méfie des Pays-Bas "extrêmement 
+talentueux"**: [Link](https://www.flashscore.fr/actualites/julian-nagelsmann-se-mefie-des-pays-bas-extremement-talentueux/bF1UsapR/)
+- **DIRECT. Pays-Bas - Allemagne : suivez le match de la 2e journée de Ligue 
+des nations en live**: [Link](https://www.francelive.fr/teaser/ouest-france/direct-pays-bas-allemagne-suivez-le-match-de-la-2e-journee-de-ligue-des-nations-en-live-8713725/)
+
+
 ### nikocado avocado (N/A, Tue, 10 Sep 2024 09:50:00 -0700)
 
 - **YouTuber Nikocado Avocado bamboozles viewers with secret weight loss 
