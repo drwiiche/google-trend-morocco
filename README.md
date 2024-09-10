@@ -1,3 +1,12 @@
+### uefa nations league (N/A, Tue, 10 Sep 2024 13:50:00 -0700)
+
+- **The UEFA Nations League: How does it work, what’s changed and why does it 
+matter?**: [Link](https://www.nytimes.com/athletic/5746756/2024/09/05/uefa-nations-league-changes-explained/)
+- **Nations League highlights and round-up: High fives as Germany and 
+Netherlands win**: [Link](https://www.uefa.com/uefanationsleague/news/0291-1bc9041d42bf-c14ea717ef26-1000--nations-league-highlights-and-round-up-high-fives-as-germany/)
+- **Jamal Musiala: A future Ballon d'Or winner?**: [Link](https://www.bundesliga.com/en/bundesliga/news/jamal-musiala-future-ballon-d-or-winner-ronaldo-messi-28826)
+
+
 ### cap-vert – mauritanie (N/A, Tue, 10 Sep 2024 13:00:00 -0700)
 
 - **Éliminatoires de la CAN 2025-Maroc: le programme complet, les chocs des 
