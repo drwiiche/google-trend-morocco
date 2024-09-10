@@ -1,3 +1,10 @@
+### typhon yagi vietnam (N/A, Mon, 9 Sep 2024 19:40:00 -0700)
+
+- **Typhoon Yagi collapses busy bridge in Vietnam**: [Link](https://www.bbc.com/news/articles/cqxjn3w9228o)
+- **Dozens dead after Typhoon Yagi hammers Vietnam, causing floods, landslides**: [Link](https://www.reuters.com/world/asia-pacific/vietnams-death-toll-typhoon-yagi-rises-24-govt-says-2024-09-09/)
+- **Dashcam shows moment bridge collapses in Vietnam, survivor recalls accident**: [Link](https://www.yahoo.com/news/dashcam-shows-moment-bridge-collapses-144130750.html)
+
+
 ### abbé pierre (N/A, Mon, 9 Sep 2024 17:30:00 -0700)
 
 - **ENQUETE. Quand l’abbé Pierre menaçait ceux qui dénonçaient ses agissements**: [Link](https://www.francetvinfo.fr/enquetes-franceinfo/enquete-quand-l-abbe-pierre-menacait-ceux-qui-denoncaient-ses-agissements_6770512.html)
