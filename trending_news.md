@@ -1,3 +1,18 @@
+### netherlands vs germany (N/A, Tue, 10 Sep 2024 11:30:00 -0700)
+
+- **Netherlands vs. Germany: LIVE build-up!**: [Link](https://www.bundesliga.com/en/bundesliga/news/netherlands-germany-preview-live-blog-report-nations-league-de-ligt-28770)
+- **Tuesday's Nations League predictions including England vs. Finland**: [Link](https://www.sportsmole.co.uk/football/latvia/nations-league-predictions/feature/tuesdays-nations-league-predictions-including-england-vs-finland_552527.html)
+- **Tuesday's Nations League Tipsheet: Nine bets include boosting England up to 
+11/8**: [Link](https://betting.betfair.com/football/uefa-nations-league/nations-league-tips-nine-bets-for-nine-games-on-tuesday-include-boosting-lee-carsleys-england-at-wembley-090924-629.html)
+
+
+### classroom (N/A, Tue, 10 Sep 2024 11:30:00 -0700)
+
+- **Why a noisy classroom must not be silenced**: [Link](https://indianexpress.com/article/opinion/columns/why-a-noisy-classroom-must-not-be-silenced-9559194/)
+- **Row over aircons in classrooms as China swelters**: [Link](https://www.bbc.com/news/articles/ce9zlkz0ypyo)
+- **In China, Extreme Heat Is Disrupting the Start of the School Year**: [Link](https://www.sixthtone.com/news/1015834)
+
+
 ### pays-bas – allemagne (N/A, Tue, 10 Sep 2024 11:10:00 -0700)
 
 - **Pays-Bas - Allemagne : à quelle heure et sur quelle chaîne suivre le match 
