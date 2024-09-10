@@ -1,3 +1,12 @@
+### cap-vert – mauritanie (N/A, Tue, 10 Sep 2024 13:00:00 -0700)
+
+- **Éliminatoires de la CAN 2025-Maroc: le programme complet, les chocs des 
+deux premières journées**: [Link](https://afrique.le360.ma/sports/eliminatoires-de-la-can-2025-maroc-le-programme-complet-les-chocs-des-deux-premieres-journees_J2FV46OERVA6VNUCQC5YXOBITE/)
+- **Coupe d’Afrique des Nations 2025 : Le Ghana et le Sénégal visent la 
+rédemption**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/coupe-d-afrique-des-nations-2025-le-ghana-et-le-senegal-visent-la-redemption/)
+- **Qualifications CAN-2025 : Le programme complet de la 2e journée**: [Link](https://wiwsport.com/2024/09/09/qualifications-can-2025-le-programme-complet-de-la-2e-journee/)
+
+
 ### كولومبيا ضد الأرجنتين (N/A, Tue, 10 Sep 2024 13:20:00 -0700)
 
 - **الأرجنتين تقترب من حسم التأهل.. والبرازيل تتابع النهوض**: [Link](https://www.kooora.com/?n=1353617)
