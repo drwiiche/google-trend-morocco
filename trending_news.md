@@ -1,3 +1,20 @@
+### abdelmadjid tebboune (N/A, Tue, 10 Sep 2024 02:00:00 -0700)
+
+- **Coup de tonnerre en Algérie : les résultats de la présidentielle réfutés 
+par les trois candidats, dont Tebboune**: [Link](https://www.lepoint.fr/monde/coup-de-tonnerre-en-algerie-les-resultats-de-la-presidentielle-refutes-par-les-trois-candidats-dont-tebboune-09-09-2024-2569831_24.php)
+- **Algérie: Abdelmadjid Tebboune, premier président au monde à contester les 
+résultats qui le donnent vainqueur**: [Link](https://fr.le360.ma/monde/algerie-abdelmadjid-tebboune-premier-president-au-monde-a-contester-les-resultats-qui-le-donnent_DPIAY2HTWJA47KUBX3XPIHN57A/)
+- **Algérie : “triomphe“ d'un mal nommé vainqueur avant même le vote**: [Link](https://fr.hespress.com/385306-algerie-triomphe-dun-mal-nomme-vainqueur-avant-meme-le-vote.html)
+
+
+### michèl barnier premier ministre (N/A, Tue, 10 Sep 2024 01:10:00 -0700)
+
+- **Les dix jours qui ont propulsé Michel Barnier à Matignon**: [Link](https://www.lemonde.fr/politique/article/2024/09/10/les-dix-jours-qui-ont-propulse-michel-barnier-a-matignon_6310396_823448.html)
+- **Gérard Larcher au Figaro : «Le président de la République devra respecter 
+le premier ministre»**: [Link](https://www.lefigaro.fr/politique/gerard-larcher-au-figaro-le-president-de-la-republique-devra-respecter-le-premier-ministre-20240909)
+- **Marine Le Pen : « Nous attendons de Michel Barnier des actes »**: [Link](https://www.latribune.fr/economie/politique/marine-le-pen-nous-attendons-de-michel-barnier-des-actes-1005846.html)
+
+
 ### marocco calcio (N/A, Mon, 9 Sep 2024 14:20:00 -0700)
 
 - **Lesotho - Marocco 0-1: diretta live e risultato finale**: [Link](https://www.calciomagazine.net/lesotho-marocco-diretta-risultato-9-settembre-2024-208657.html)
