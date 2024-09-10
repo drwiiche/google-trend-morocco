@@ -1,3 +1,10 @@
+### المجلس الأعلى للسلطة القضائية (N/A, Tue, 10 Sep 2024 04:10:00 -0700)
+
+- **الملك يوافق على تعيين مسؤولين قضائيين جدد**: [Link](https://rue20.com/836163.html)
+- **مجلس السلطة القضائية يحدد موعد افتتاح دورته**: [Link](https://thevoice.ma/%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A9-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD/)
+- **المجلس الأعلى للسلطة القضائية يعقد دورة شتنبر وتعيينات جد?...**: [Link](https://kech24.com/%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A3%D8%B9%D9%84%D9%89-%D9%84%D9%84%D8%B3%D9%84%D8%B7%D8%A9-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D9%8A%D8%B9%D9%82%D8%AF-%D8%AF%D9%88%D8%B1%D8%A9-%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-%D9%88%D8%AA%D8%B9%D9%8A%D9%8A%D9%86%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%AC%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%A3%D8%B9%D9%85%D8%A7%D9%84.html)
+
+
 ### soudan du sud – afrique du sud (N/A, Tue, 10 Sep 2024 06:20:00 -0700)
 
 - **Soudan du Sud - Afrique du Sud en direct - Qualifications CAN : Football 
