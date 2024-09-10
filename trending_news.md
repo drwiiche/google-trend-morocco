@@ -1,3 +1,17 @@
+### بوتسوانا ضد مصر (N/A, Tue, 10 Sep 2024 08:40:00 -0700)
+
+- **رسميا.. الاتحاد المصري يعترض على قرار كاف**: [Link](https://www.kooora.com/?n=1353707)
+- **موعد مباراة مصر ضد بوتسوانا في تصفيات كأس أمم أفريقيا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/9/9/egypt-mohamed-salah)
+- **تفاصيل أزمة مباراة بوتسوانا.. منتخب مصر متشبث بالموعد**: [Link](https://www.skynewsarabia.com/sport/1740638-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%88%D8%AA%D8%B3%D9%88%D8%A7%D9%86%D8%A7-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%85%D8%AA%D8%B4%D8%A8%D8%AB-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF)
+
+
+### ليبيريا ضد الجزائر (N/A, Tue, 10 Sep 2024 08:40:00 -0700)
+
+- **بعثة المحاربين تغادر إلى ليبيريا بغيابات مؤثرة**: [Link](https://www.kooora.com/?n=1353504)
+- **إليكم التشكيلة الأساسية للمنتخب الجزائري في مواجهة ليبيريا**: [Link](https://www.awras.com/%D8%A5%D9%84%D9%8A%D9%83%D9%85-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2/)
+- **صدمة.. ما سر ارتفاع معدل إصابات نجوم الجزائر؟**: [Link](https://www.alquds.co.uk/%D8%B5%D8%AF%D9%85%D8%A9-%D9%85%D8%A7-%D8%B3%D8%B1-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%85%D8%B9%D8%AF%D9%84-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%AC/)
+
+
 ### guinée – tanzanie (N/A, Tue, 10 Sep 2024 08:30:00 -0700)
 
 - **Le Syli à fond dans les derniers réglages avant d’affronter la Tanzanie**: [Link](https://guineefoot.info/le-syli-a-fond-dans-les-derniers-reglages-avant-daffronter-la-tanzanie/)
