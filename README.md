@@ -1,3 +1,17 @@
+### futsal world cup (N/A, Tue, 10 Sep 2024 14:30:00 -0700)
+
+- **Official FIFA Futsal World Cup Uzbekistan 2024 squads named**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/squads-announced)
+- **The Uzbekistan 2024 squads in stats**: [Link](https://www.fifa.com/en/articles/squads-statistics-numbers)
+- **FIFA Futsal World Cup Uzbekistan 2024™ squad lists announced**: [Link](https://inside.fifa.com/news/fifa-futsal-world-cup-uzbekistan-2024-tm-squad-lists-announced)
+
+
+### germany foot (N/A, Tue, 10 Sep 2024 13:50:00 -0700)
+
+- **Allemagne : Antonio Rüdiger a voulu claquer la porte**: [Link](https://www.footmercato.net/a7788506508804632938-allemagne-antonio-rudiger-a-voulu-claquer-la-porte)
+- **Antonio Rüdiger, la grosse révélation**: [Link](https://www.goal.com/fr/news/antonio-ruediger-la-grosse-revelation/blta2126325fc294525)
+- **Pays-Bas 2-2 Allemagne, Ligue des nations A : résumé du match (10/09/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/pays-bas-allemagne-live/632670)
+
+
 ### uefa nations league (N/A, Tue, 10 Sep 2024 13:50:00 -0700)
 
 - **The UEFA Nations League: How does it work, what’s changed and why does it 
