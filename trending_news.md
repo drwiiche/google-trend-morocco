@@ -1,3 +1,19 @@
+### guinée – tanzanie (N/A, Tue, 10 Sep 2024 08:30:00 -0700)
+
+- **Le Syli à fond dans les derniers réglages avant d’affronter la Tanzanie**: [Link](https://guineefoot.info/le-syli-a-fond-dans-les-derniers-reglages-avant-daffronter-la-tanzanie/)
+- **Élim/Maroc 2025: Ibrahima Sory Conté appelé au pied levé, après le forfait 
+Saïdou Sow ( officiel )**: [Link](https://guineenews.org/elim-maroc-2025-ibrahima-sory-conte-appele-a-pied-leve-pres-le-forfait-saidou-sow-officiel/)
+- **Éliminatoires CAN 2025 - Guinée : Les raisons de l'absence de Kandet 
+Diawara au regroupement**: [Link](https://africafootunited.com/eliminatoires-can-2025-guinee-les-raisons-de-labsence-de-kandet-diawara-au-regroupement/)
+
+
+### ps5 pro (N/A, Tue, 10 Sep 2024 08:30:00 -0700)
+
+- **Welcome PlayStation 5 Pro, the most visually impressive way to play games on PlayStation**: [Link](https://blog.playstation.com/2024/09/10/welcome-playstation-5-pro-the-most-visually-impressive-way-to-play-games-on-playstation/)
+- **Sony might have confirmed the PS5 Pro while it was busy celebrating**: [Link](https://www.theverge.com/2024/9/5/24236967/sony-ps5-pro-design-leak-image)
+- **AMD Debuts New SoC With 60 Compute Units, Faster GDDR6 Memory, Advanced Raytracing & PSSR AI Upscaling In PlayStation 5 Pro**: [Link](https://wccftech.com/amd-new-soc-60-compute-units-faster-gddr6-memory-advanced-raytracing-pssr-ai-upscaling-playstation-5-pro/)
+
+
 ### liberia – algérie (N/A, Tue, 10 Sep 2024 08:20:00 -0700)
 
 - **Liberia - Algérie : Où voir le match ?**: [Link](https://www.dzfoot.com/programme-tv/liberia-algerie-ou-voir-le-match-264396.html)
