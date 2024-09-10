@@ -1,3 +1,28 @@
+### venezuela – uruguay (N/A, Tue, 10 Sep 2024 15:10:00 -0700)
+
+- **Preview: Venezuela vs. Uruguay - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/venezuela/world-cup/preview/preview-venezuela-vs-uruguay-prediction-team-news-lineups_552452.html)
+- **Venezuela vs Uruguay Predictions, Odds & Betting Preview**: [Link](https://insights.betfred.com/football/venezuela-vs-uruguay-predictions-betting-tips-tuesday-10-september-2024/)
+- **Venezuela (Bolivarian Republic of) vs Uruguay: previous stats | 
+Clasificación Mundial 2026 - Sudamérica 2023**: [Link](https://en.as.com/resultados/futbol/clasificacion_mundial_sudamerica/2023/directo/regular_a_8_451583/)
+
+
+### sony ps5 pro (N/A, Tue, 10 Sep 2024 15:10:00 -0700)
+
+- **Welcome PlayStation 5 Pro, the most visually impressive way to play games 
+on PlayStation**: [Link](https://blog.playstation.com/2024/09/10/welcome-playstation-5-pro-the-most-visually-impressive-way-to-play-games-on-playstation/)
+- **PlayStation 5 Pro: 5 Burning Questions We Have About Sony's New Console**: [Link](https://www.ign.com/articles/playstation-5-pro-x-burning-questions-sony-console-price-enhanced-gta)
+- **Exclusive Hands-On: I Played Sony's All-New PS5 Pro**: [Link](https://www.cnet.com/tech/gaming/exclusive-hands-on-i-played-sonys-all-new-ps5-pro/)
+
+
+### huawei mate xt (N/A, Tue, 10 Sep 2024 14:40:00 -0700)
+
+- **Huawei racks up 3 mln pre-orders for tri-fold phone before Apple's iPhone 
+16 reveal**: [Link](https://www.reuters.com/technology/huawei-racks-up-3-mln-pre-orders-tri-fold-phone-before-apples-iphone-16-reveal-2024-09-09/)
+- **Huawei’s upcoming tri-fold is called Mate XT - GSMArena.com news**: [Link](https://www.gsmarena.com/huaweis_mate_xt_tri_fold-news-64379.php)
+- **Huawei looks to upstage Apple with product launch just hours after expected 
+iPhone 16 unveiling**: [Link](https://www.cnbc.com/2024/09/02/huawei-plans-sept-10-launch-event-just-hours-after-apple-iphone-launch.html)
+
+
 ### kamala harris donald trump (N/A, Tue, 10 Sep 2024 13:00:00 -0700)
 
 - **Debate Rules for "Kamala Harris and Donald Trump – ABC News Presidential 
