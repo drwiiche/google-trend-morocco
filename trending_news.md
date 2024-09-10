@@ -1,3 +1,10 @@
+### الزلزال المغرب (N/A, Tue, 10 Sep 2024 09:10:00 -0700)
+
+- **بعد ساعات من الذكرى الاولى لفاجعة الحوز.. تسجيل هزة ارضية ج?...**: [Link](https://kech24.com/%D8%A8%D8%B9%D8%AF-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D8%A7%D9%88%D9%84%D9%89-%D9%84%D9%81%D8%A7%D8%AC%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D9%88%D8%B2-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D9%87%D8%B2%D8%A9-%D8%A7%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D8%A7%D9%84%D8%A7%D9%82%D9%84%D9%8A%D9%85.html)
+- **"الحوز خيمتنا.. الحوز نجمتنا".. نريد بيتا يعيد لنا دفئا فقدناه منذ عام**: [Link](https://www.aljazeera.net/politics/2024/9/9/%D8%A7%D9%84%D8%AD%D9%88%D8%B2-%D8%AE%D9%8A%D9%85%D8%AA%D9%86%D8%A7%D8%8C-%D8%A7%D9%84%D8%AD%D9%88%D8%B2-%D9%86%D8%AC%D9%85%D8%AA%D9%86%D8%A7-%D9%86%D8%B1%D9%8A%D8%AF)
+- **ديابو: تقدم إنجاز المشاريع المبرمجة في القطاع الفلاحي بالحوز**: [Link](https://ar.le360.ma/societe/NBJOPGII2ZA6JM2QI3ZWCWIXIA/)
+
+
 ### botswana vs egypt (N/A, Tue, 10 Sep 2024 09:00:00 -0700)
 
 - **Egypt clash against Botswana delayed by few hours - National Teams - Sports**: [Link](https://english.ahram.org.eg/NewsContentP/6/531545/Sports/Egypt-clash-against-Botswana-delayed-by-few-hours.aspx)
