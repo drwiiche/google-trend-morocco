@@ -1,3 +1,10 @@
+### wissam ben yedder (N/A, Tue, 10 Sep 2024 08:00:00 -0700)
+
+- **Ben Yedder charged with sexual assault in France**: [Link](https://www.espn.com/soccer/story/_/id/41196832/french-striker-wissam-ben-yedder-charged-sexual-assault)
+- **Wissam Ben Yedder to go on trial for sexual assault while intoxicated**: [Link](https://www.getfootballnewsfrance.com/2024/wissam-ben-yedder-to-go-on-trial-for-sexual-assault-while-intoxicated/)
+- **France star Wissam Ben Yedder arrested on suspicion of sexually assaulting a woman while drunk...**: [Link](https://www.the-sun.com/sport/12417137/wissam-ben-yedder-arrested-sexual-assault/)
+
+
 ### iphone 16 pro max prix (N/A, Tue, 10 Sep 2024 04:20:00 -0700)
 
 - **iPhone 16 Pro et iPhone 16 Pro Max**: [Link](https://www.apple.com/fr/iphone-16-pro/)
