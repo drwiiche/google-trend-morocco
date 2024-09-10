@@ -1,3 +1,12 @@
+### soudan du sud – afrique du sud (N/A, Tue, 10 Sep 2024 06:20:00 -0700)
+
+- **Soudan du Sud - Afrique du Sud en direct - Qualifications CAN : Football 
+Scores & Résultats - 10/09/2024**: [Link](https://www.eurosport.fr/football/qualifications-can/2025/live-soudan-du-sud-afrique-du-sud_mtc1509885/live.shtml)
+- **Cranes appelés à tirer parti d'un point durement gagné**: [Link](https://www.footboom1.com/br/news/football/1806170-cranes-urged-to-capitalize-on-hard-earned-point)
+- **Afrique du Sud – Ouganda : Chaîne, streaming, où voir le match en France ? 
+| Football**: [Link](https://www.hommedumatch.fr/p-2791290)
+
+
 ### abdelmadjid tebboune (N/A, Tue, 10 Sep 2024 02:00:00 -0700)
 
 - **Coup de tonnerre en Algérie : les résultats de la présidentielle réfutés 
