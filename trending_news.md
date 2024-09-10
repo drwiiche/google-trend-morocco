@@ -1,3 +1,22 @@
+### algerie foot (N/A, Tue, 10 Sep 2024 10:00:00 -0700)
+
+- **ALG : Top et fin pour la taupe de Sidi Moussa ?**: [Link](https://www.footafrique.com/alg-top-et-fin-pour-la-taupe-de-sidi-moussa/)
+- **Trahison : Walid Sadi aurait trouvé la taupe et prépare une riposte !**: [Link](https://fennecfootball.com/coup-de-theatre-walid-sadi-aurait-decouvert-la-taupe-derriere-les-fuites-internes-chez-les-verts/)
+- **Le clin d’œil de Karim Benzema à l’Algérie sur Instagram**: [Link](https://www.tsa-algerie.com/le-clin-doeil-de-karim-benzema-a-lalgerie-sur-instagram/)
+
+
+### liberia vs algeria (N/A, Tue, 10 Sep 2024 09:50:00 -0700)
+
+- **Preview: Liberia vs. Algeria - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/liberia/africa-cup-of-nations/preview/preview-liberia-vs-algeria-prediction-team-news-lineups_552484.html)
+
+
+### zimbabwe – cameroun (N/A, Tue, 10 Sep 2024 09:30:00 -0700)
+
+- **Zimbabwe-Cameroun : à quelle heure et sur quelle chaîne TV suivre le match des éliminatoires de la CAN 2025**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/zimbabwe-cameroun-a-quelle-heure-et-sur-quelle-chaine-tv-suivre-le-match-des-eliminatoires-de-la-can-2025-10-09-2024-UKMZVKT3JZFWZFEZLDKFDTXVYM.php)
+- **Cyrille Tollo explique sa rencontre avec Nkou Mvondo**: [Link](https://www.camfoot.com/actualites/cyrille-tollo-explique-sa-rencontre-avec-nkou-mvondo,501383.html)
+- **Marc Brys n’a pas été chassé par la CAF**: [Link](https://actucameroun.com/2024/09/10/marc-brys-na-pas-ete-chasse-par-la-caf/)
+
+
 ### gabon vs central african republic (N/A, Tue, 10 Sep 2024 09:30:00 -0700)
 
 - **Preview: Gabon vs. Central African Republic - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/gabon/africa-cup-of-nations/preview/preview-gabon-vs-car-prediction-team-news-lineups_552505.html)
