@@ -1,3 +1,10 @@
+### angleterre – finlande (N/A, Tue, 10 Sep 2024 12:50:00 -0700)
+
+- **Angleterre - Finlande (Nations League B): Les compositions**: [Link](https://www.walfoot.be/europe/nations-league-b/2024-2025/calendrier/journee-2/angleterre/finlande/compositions)
+- **Pronostic Ligue des Nations D**: [Link](https://www.ruedesjoueurs.com/pronostics/ligue-des-nations-d-890841.html)
+- **Montenegro - Pays de Galles (Nations League B): Les compositions**: [Link](https://www.walfoot.be/europe/nations-league-b/2024-2025/calendrier/journee-2/montenegro/pays-de-galles/compositions)
+
+
 ### kevin de bruyne (N/A, Tue, 10 Sep 2024 11:40:00 -0700)
 
 - **De Bruyne blasts Belgium after loss: Do your job**: [Link](https://www.espn.com/soccer/story/_/id/41197946/kevin-de-bruyne-blasts-belgium-france-loss)
