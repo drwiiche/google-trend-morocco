@@ -1,3 +1,12 @@
+### paraguay – brésil (N/A, Tue, 10 Sep 2024 17:00:00 -0700)
+
+- **Pronostic Paraguay - Brésil, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/paraguay-bresil-213949/)
+- **Brésil - Gabriel Magalhaes : “Placer l'équipe brésilienne là où elle doit 
+être”**: [Link](https://www.beinsports.com/fr-fr/football/articles-video/br%C3%A9sil-gabriel-magalhaes-placer-l-%C3%A9quipe-br%C3%A9silienne-l%C3%A0-o%C3%B9-elle-doit-%C3%AAtre-2024-09-09)
+- **Paraguay / Brésil (TV/Streaming) - Sur quelle chaîne regarder le match de 
+qualification pour la Coupe du Monde 2026**: [Link](https://www.sport-tv.org/sports/football/monde/coupe-du-monde-2026/paraguay-bresil-tv-streaming-sur-quelle-chaine-regarder-le-match-de-qualification-pour-la-coupe-du-monde-2026/)
+
+
 ### rafa mir (N/A, Tue, 10 Sep 2024 15:10:00 -0700)
 
 - **Pepelu responde a las disculpas de Rafa Mir: "Es una falta de respeto al 
