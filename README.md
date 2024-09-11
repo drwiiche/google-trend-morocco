@@ -1,3 +1,11 @@
+### trump vs harris (N/A, Tue, 10 Sep 2024 20:20:00 -0700)
+
+- **Takeaways from the ABC presidential debate between Donald Trump and Kamala 
+Harris**: [Link](https://www.cnn.com/2024/09/10/politics/debate-takeaways-trump-harris/index.html)
+- **Fox News voter panel says Harris won debate**: [Link](https://www.foxnews.com/politics/fox-news-voter-panel-says-harris-won-debate)
+- **Five Debate Moments That Mattered Most**: [Link](https://www.wsj.com/politics/policy/five-debate-moments-that-mattered-most-58a1c307)
+
+
 ### زنقة 20 (N/A, Wed, 11 Sep 2024 00:50:00 -0700)
 
 - **أزمة "البام": أبو الغالي يكشف كواليس خلافه مع المنصوري جراء التعديل الحكومي 
