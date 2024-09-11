@@ -1,3 +1,12 @@
+### taylor swift (N/A, Wed, 11 Sep 2024 01:20:00 -0700)
+
+- **Taylor Swift endorses Kamala Harris for president in post signed 'Childless 
+Cat Lady'**: [Link](https://www.bbc.com/news/articles/c89w4110n89o)
+- **Taylor Swift endorses Kamala Harris following presidential debate**: [Link](https://www.nbcnews.com/politics/2024-election/taylor-swift-endorses-kamala-harris-rcna170547)
+- **Elon Musk took a jab at Taylor Swift after she endorsed Kamala Harris — and 
+now China's Swifties are up in arms**: [Link](https://www.businessinsider.com/china-swifties-mad-elon-musk-harris-cat-lady-endorsement-post-2024-9)
+
+
 ### accident koba la d (N/A, Wed, 11 Sep 2024 07:30:00 -0700)
 
 - **Le rappeur Koba LaD impliqué dans un accident mortel à Créteil**: [Link](https://www.leparisien.fr/faits-divers/le-rappeur-koba-lad-implique-dans-un-accident-mortel-a-creteil-11-09-2024-7FY7DHFTVFB7THY2K54HNGEOCY.php)
