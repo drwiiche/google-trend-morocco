@@ -1,3 +1,10 @@
+### 11 septembre (N/A, Wed, 11 Sep 2024 01:30:00 -0700)
+
+- **PRIX PASSENAUD - DU MANS - 11/09/2024 : partants, pronostics et résultats en vidéos - Course 8**: [Link](https://www.equidia.fr/courses/2024-09-11/R1/C8)
+- **Le conseil de jeu de Dylan Venet pour le Pick 5 (R1C8) du mercredi 11 septembre au Mans**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/le-conseil-de-jeu-de-dylan-venet-pour-le-pick-5-r1c8-du-mercredi-11-septembre-au-mans)
+- **Programme TV du mercredi 11 septembre : « Good Doctor », « Tout simplement noir », « Vol 93 »… Notre sélection**: [Link](https://www.leparisien.fr/culture-loisirs/tv/programme-tv-du-mercredi-11-septembre-good-doctor-tout-simplement-noir-vol-93-notre-selection-11-09-2024-6CZTIMKWOVA2FMA745YIGD2PS4.php)
+
+
 ### trump vs harris (N/A, Tue, 10 Sep 2024 20:20:00 -0700)
 
 - **Takeaways from the ABC presidential debate between Donald Trump and Kamala 
