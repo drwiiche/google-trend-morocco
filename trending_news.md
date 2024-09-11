@@ -1,3 +1,11 @@
+### matchs amicaux (N/A, Wed, 11 Sep 2024 10:50:00 -0700)
+
+- **Amical : Le Canada s'impose pour la première fois aux États-Unis en 67 ans**: [Link](https://www.lequipe.fr/Football/Actualites/Le-canada-s-impose-pour-la-premiere-fois-aux-etats-unis-en-67-ans/1506500)
+- **Historique Jonathan David**: [Link](https://www.football365.fr/historique-jonathan-david-10200672.html)
+- **LOSC : un Jonathan David record fait tomber les États-Unis presque à lui 
+seul**: [Link](https://le11hdf.fr/losc-un-jonathan-david-record-fait-tomber-les-etats-unis-presque-a-lui-seul/)
+
+
 ### ايهاب جلال (N/A, Wed, 11 Sep 2024 10:40:00 -0700)
 
 - **وفاة مدرب منتخب مصر السابق إيهاب جلال**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A5%D9%8A%D9%87%D8%A7%D8%A8-%D8%AC%D9%84%D8%A7%D9%84-1429776.html)
