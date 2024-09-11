@@ -1,3 +1,12 @@
+### debat trump harris (N/A, Tue, 10 Sep 2024 21:00:00 -0700)
+
+- **Takeaways from the ABC presidential debate between Donald Trump and Kamala 
+Harris**: [Link](https://www.cnn.com/2024/09/10/politics/debate-takeaways-trump-harris/index.html)
+- **Harris’s powerful abortion stance and Trump’s fact-checks: key takeaways 
+from the debate | US elections 2024**: [Link](https://www.theguardian.com/us-news/article/2024/sep/11/harris-trump-debate-takeaways)
+- **Five Debate Moments That Mattered Most**: [Link](https://www.wsj.com/politics/policy/five-debate-moments-that-mattered-most-58a1c307)
+
+
 ### paraguay vs brazil (N/A, Tue, 10 Sep 2024 20:00:00 -0700)
 
 - **Rodrygo: Brazil need Neymar to win '26 World Cup**: [Link](https://www.espn.com/soccer/story/_/id/41191276/brazil-need-neymar-fit-win-2026-world-cup-rodrygo)
