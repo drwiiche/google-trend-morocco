@@ -1,3 +1,18 @@
+### زنقة 20 (N/A, Wed, 11 Sep 2024 00:50:00 -0700)
+
+- **أزمة "البام": أبو الغالي يكشف كواليس خلافه مع المنصوري جراء التعديل الحكومي 
+واجتماعات الأغلبية وسمير كودار**: [Link](https://alyaoum24.com/1914454.html)
+- **"الجرار" يجمد عضوية القيادي صلاح الدين أبو الغالي**: [Link](https://ar.hibapress.com/details-550152.html)
+- **أزمة داخل قيادة "البام".. هل قدم أبو الغالي استقالته أم جمدت عضويته؟**: [Link](https://ar.telquel.ma/%D8%A3%D8%B2%D9%85%D8%A9-%D8%AF%D8%A7%D8%AE%D9%84-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A8%D8%A7%D9%85-%D9%87%D9%84-%D9%82%D8%AF%D9%85-%D8%A3%D8%A8%D9%88-%D8%A7%D9%84%D8%BA%D8%A7%D9%84/)
+
+
+### باراغواي ضد البرازيل (N/A, Tue, 10 Sep 2024 23:40:00 -0700)
+
+- **بالصور.. باراجواي تصعق البرازيل في تصفيات أمريكا الجنوبية**: [Link](https://www.kooora.com/?n=1354003)
+- **ماذا قدم فينيسيوس في خسارة البرازيل أمام باراغواي؟**: [Link](https://hihi2.com/2024/09/11/p2843781.html)
+- **مدرب البرازيل: سنصل لنهائي مونديال 2026**: [Link](https://www.almountakhab.com/node/13204164)
+
+
 ### cnn (N/A, Tue, 10 Sep 2024 23:30:00 -0700)
 
 - **ABC News releases rules for Sept. 10 debate between Harris and Trump**: [Link](https://abcnews.go.com/US/abc-news-releases-rules-sept-10-debate-harris/story?id=113019909)
