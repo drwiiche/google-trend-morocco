@@ -1,3 +1,22 @@
+### accident koba la d (N/A, Wed, 11 Sep 2024 07:30:00 -0700)
+
+- **Le rappeur Koba LaD impliqué dans un accident mortel à Créteil**: [Link](https://www.leparisien.fr/faits-divers/le-rappeur-koba-lad-implique-dans-un-accident-mortel-a-creteil-11-09-2024-7FY7DHFTVFB7THY2K54HNGEOCY.php)
+- **Le rappeur Koba LaD impliqué dans un accident de la route mortel dans le 
+Val-de-Marne**: [Link](https://www.lemonde.fr/societe/article/2024/09/11/le-rappeur-koba-lad-implique-dans-un-accident-de-la-route-mortel-dans-le-val-de-marne_6312912_3224.html)
+- **Koba laD impliqué dans un dramatique accident : un mort dans le choc entre 
+la voiture du rappeur et un camion**: [Link](https://www.midilibre.fr/2024/09/11/koba-la-d-implique-dans-un-dramatique-accident-hospitalise-le-rappeur-aurait-percute-un-camion-un-passager-declare-mort-12190307.php)
+
+
+### marine russe (N/A, Wed, 11 Sep 2024 07:00:00 -0700)
+
+- **Guerre en Ukraine : 90 000 hommes, 400 navires et sous-marins, 120 avions 
+et hélicoptères, l’impressionnant exercice Ocean 2024 de la marine russe a 
+débuté**: [Link](https://www.lindependant.fr/2024/09/10/guerre-en-ukraine-90-000-hommes-400-navires-et-sous-marins-120-avions-et-helicopteres-limpressionnant-exercice-ocean-2024-de-la-marine-russe-a-debute-12188111.php)
+- **Les exercices militaires navals sino-russes ont commencé en mer du Japon**: [Link](https://fr.euronews.com/2024/09/11/les-exercices-militaires-navals-sino-russes-ont-commence-en-mer-du-japon)
+- **Le président russe Vladimir Poutine dit attendre son homologue chinois Xi 
+Jinping au sommet des Brics prévu en octobre**: [Link](https://video.lefigaro.fr/figaro/video/le-president-russe-vladimir-poutine-dit-attendre-son-homologue-chinois-xi-jinping-au-sommet-des-brics-prevu-en-octobre/)
+
+
 ### debat trump kamala harris (N/A, Wed, 11 Sep 2024 06:30:00 -0700)
 
 - **Who won the debate? Harris goads Trump into flustered performance**: [Link](https://www.bbc.com/news/articles/c4gdnl9pg1wo)
