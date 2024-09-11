@@ -1,3 +1,10 @@
+### إيهاب جلال (N/A, Wed, 11 Sep 2024 09:10:00 -0700)
+
+- **وفاة مدرب منتخب مصر السابق إيهاب جلال**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A5%D9%8A%D9%87%D8%A7%D8%A8-%D8%AC%D9%84%D8%A7%D9%84-1429776.html)
+- **وفاة إيهاب جلال المدير الفني للإسماعيلي**: [Link](https://www.kooora.com/?n=1354082)
+- **وفاة إيهاب جلال المدير الفني للإسماعيلي بعد صراع مع المرض**: [Link](https://www.youm7.com/story/2024/9/11/%D9%88%D9%81%D8%A7%D8%A9-%D8%A5%D9%8A%D9%87%D8%A7%D8%A8-%D8%AC%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D9%81%D9%86%D9%8A-%D9%84%D9%84%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%B1%D8%B6/6704424)
+
+
 ### taylor swift (N/A, Wed, 11 Sep 2024 01:20:00 -0700)
 
 - **Taylor Swift endorses Kamala Harris for president in post signed 'Childless 
