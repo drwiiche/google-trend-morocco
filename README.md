@@ -1,3 +1,10 @@
+### argentine (N/A, Tue, 10 Sep 2024 15:40:00 -0700)
+
+- **L’Argentine tremble pour Lionel Messi !**: [Link](https://www.footmercato.net/a3236615914254648960-largentine-tremble-pour-lionel-messi)
+- **Argentine - Lionel Scaloni : "Cela aurait été prématuré d'appeler Messi"**: [Link](https://www.beinsports.com/fr-fr/football/articles-video/argentine-lionel-scaloni-cela-aurait-%C3%A9t%C3%A9-pr%C3%A9matur%C3%A9-d-appeler-messi-2024-09-05)
+- **Lionel Messi, la grosse frayeur**: [Link](https://www.goal.com/fr/news/lionel-messi-la-grosse-frayeur/blt75d663828f076536)
+
+
 ### kamala harris (N/A, Tue, 10 Sep 2024 19:20:00 -0700)
 
 - **Debate Rules for "Kamala Harris and Donald Trump – ABC News Presidential 
