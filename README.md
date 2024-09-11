@@ -1,3 +1,11 @@
+### samsung galaxy s25 ultra (N/A, Wed, 11 Sep 2024 13:50:00 -0700)
+
+- **iPhone 16 Pro Max Specs vs. Galaxy S24 Ultra: Big Phones Compared**: [Link](https://www.cnet.com/tech/mobile/iphone-16-pro-max-specs-vs-galaxy-s24-ultra-big-phones-compared/)
+- **Apple iPhone 16 vs. Samsung Galaxy S24: The Best Flagship Phone**: [Link](https://www.pcmag.com/comparisons/apple-iphone-16-vs-samsung-galaxy-s24-the-best-flagship-phone)
+- **Samsung Galaxy S25 Ultra leaks in first renders, its weight is revealed too 
+- GSMArena.com news**: [Link](https://www.gsmarena.com/samsung_galaxy_s25_ultra_leaks_in_first_renders_its_weight_is_revealed_too-news-64479.php)
+
+
 ### achraf hakimi (N/A, Wed, 11 Sep 2024 12:40:00 -0700)
 
 - **Las imágenes del reencuentro exprés de Hiba Abouk y su ex, Achraf Hakimi, 
