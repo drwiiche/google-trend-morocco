@@ -1,3 +1,15 @@
+### ايهاب جلال (N/A, Wed, 11 Sep 2024 10:40:00 -0700)
+
+- **وفاة مدرب منتخب مصر السابق إيهاب جلال**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A5%D9%8A%D9%87%D8%A7%D8%A8-%D8%AC%D9%84%D8%A7%D9%84-1429776.html)
+- **وفاة المدرب الأسبق للمنتخب المصري إيهاب جلال عن عمر 57 سنة**: [Link](https://2m.ma/news/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%82-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A5%D9%8A%D9%87%D8%A7%D8%A8-%D8%AC%D9%84%D8%A7%D9%84-%D8%B9%D9%86-%D8%B9%D9%85%D8%B1-57-%D8%B3%D9%86%D8%A9--20240911)
+- **الإسماعيلي المصري يعلن وفاة مدربه إيهاب جلال ...**: [Link](https://arabi21.com/story/1624459/%D8%A7%D9%84%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8%D9%87-%D8%A5%D9%8A%D9%87%D8%A7%D8%A8-%D8%AC%D9%84%D8%A7%D9%84)
+
+
+### real madrid – monaco (N/A, Wed, 11 Sep 2024 10:00:00 -0700)
+
+- **Chus Mateo: “This is an important game for our preparations”**: [Link](https://www.realmadrid.com/de-DE/news/basket/erste-mannshaft/pressekonferenz/chus-mateo-este-encuentro-es-importante-para-seguir-preparandonos-10-09-2024)
+
+
 ### débat trump kamala harris (N/A, Wed, 11 Sep 2024 09:40:00 -0700)
 
 - **See Trump's reaction when asked about his debate performance**: [Link](https://www.cnn.com/2024/09/11/politics/video/trump-debate-performance-spin-room-collins-digvid)
