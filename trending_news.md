@@ -1,3 +1,12 @@
+### paraguay vs brazil (N/A, Tue, 10 Sep 2024 20:00:00 -0700)
+
+- **Rodrygo: Brazil need Neymar to win '26 World Cup**: [Link](https://www.espn.com/soccer/story/_/id/41191276/brazil-need-neymar-fit-win-2026-world-cup-rodrygo)
+- **Paraguay vs Brazil live stream: how to watch FIFA World Cup 2026 qualifier 
+anywhere today**: [Link](https://www.techradar.com/streaming/entertainment/watch-paraguay-vs-brazil-live-stream-fifa-world-cup-2026-qualifier)
+- **FIFA World Cup 2026 Qualifier: Diego Gomez’s strike gives Paraguay historic 
+win over Brazil**: [Link](https://sportstar.thehindu.com/football/paraguay-vs-brazil-win-conmebol-fifa-world-cup-2026-qualifier-par-v-bra-gomez-vinicius-rodrygo-result-match-news/article68628633.ece)
+
+
 ### argentine (N/A, Tue, 10 Sep 2024 15:40:00 -0700)
 
 - **L’Argentine tremble pour Lionel Messi !**: [Link](https://www.footmercato.net/a3236615914254648960-largentine-tremble-pour-lionel-messi)
