@@ -1,3 +1,12 @@
+### didier roustan (N/A, Wed, 11 Sep 2024 02:40:00 -0700)
+
+- **Le journaliste Didier Roustan, charismatique commentateur de football, est 
+mort à l'âge de 66 ans**: [Link](https://www.francetvinfo.fr/sports/foot/didier-roustan-journaliste-commentateur-et-chroniqueur-de-l-actualite-du-football-est-mort_6775360.html)
+- **Didier Roustan est décédé**: [Link](https://www.sofoot.com/articles/le-journaliste-didier-roustan-amoureux-du-foot-est-decede-a-lage-de-66-ans)
+- **URGENT - Le journaliste Didier Roustan, figure du journalisme sportif, est 
+décédé à l'âge de 66 ans**: [Link](https://www.jeanmarcmorandini.com/article-583202-urgent-le-journaliste-didier-roustan-figure-du-journalisme-sportif-est-decede-a-l-age-de-66-ans.html)
+
+
 ### 11 septembre (N/A, Wed, 11 Sep 2024 01:30:00 -0700)
 
 - **PRIX PASSENAUD - DU MANS - 11/09/2024 : partants, pronostics et résultats en vidéos - Course 8**: [Link](https://www.equidia.fr/courses/2024-09-11/R1/C8)
