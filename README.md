@@ -1,3 +1,10 @@
+### débat trump kamala harris (N/A, Wed, 11 Sep 2024 09:40:00 -0700)
+
+- **See Trump's reaction when asked about his debate performance**: [Link](https://www.cnn.com/2024/09/11/politics/video/trump-debate-performance-spin-room-collins-digvid)
+- **Analysis | How resounding was Kamala Harris’s debate win? Let’s look at the polls.**: [Link](https://www.washingtonpost.com/politics/2024/09/11/kamala-harris-debate-performance-polls/)
+- **Pundits Said Harris Won the Debate. Undecided Voters Weren’t So Sure.**: [Link](https://www.nytimes.com/2024/09/11/us/politics/undecided-voters-react-debate.html)
+
+
 ### إيهاب جلال (N/A, Wed, 11 Sep 2024 09:10:00 -0700)
 
 - **وفاة مدرب منتخب مصر السابق إيهاب جلال**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A5%D9%8A%D9%87%D8%A7%D8%A8-%D8%AC%D9%84%D8%A7%D9%84-1429776.html)
