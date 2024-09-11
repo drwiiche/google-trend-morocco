@@ -1,3 +1,12 @@
+### kamala harris (N/A, Tue, 10 Sep 2024 19:20:00 -0700)
+
+- **Debate Rules for "Kamala Harris and Donald Trump – ABC News Presidential 
+Debate" on Tuesday, Sept. 10**: [Link](https://abc.com/news/5e38600c-4732-4cd2-a99c-3dedfa81beb0/category/1138628)
+- **Harris campaign agrees to muted mics in debate against Trump**: [Link](https://www.cbsnews.com/news/harris-trump-debate-muted-mics-rules/)
+- **Can Harris prosecute the political case against Trump? Key questions ahead 
+of their debate**: [Link](https://apnews.com/article/debate-presidential-trump-harris-what-to-watch-7626480de7d1240565a92d92cae51e02)
+
+
 ### argentine foot (N/A, Tue, 10 Sep 2024 14:20:00 -0700)
 
 - **L’Argentine tremble pour Lionel Messi !**: [Link](https://www.footmercato.net/a3236615914254648960-largentine-tremble-pour-lionel-messi)
