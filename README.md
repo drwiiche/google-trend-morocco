@@ -1,3 +1,9 @@
+### epic games (N/A, Wed, 11 Sep 2024 12:10:00 -0700)
+
+- **Fall Guys players are battling with Epic to get a broken Xbox achievement unlocked**: [Link](https://www.trueachievements.com/news/fall-guys-big-bully-xbox-achievevement-broken-epic-support)
+- **Upcoming pricing changes for V-Bucks and Packs in certain regions.**: [Link](https://www.fortnite.com/news/upcoming-fortnite-pricing-alignment-in-brazil-chile-colombia-nigeria-vietnam-and-the-philippines-in-october-2024?lang=en-US)
+
+
 ### paul pogba (N/A, Wed, 11 Sep 2024 11:50:00 -0700)
 
 - **Pogba's brother to stand trial in extortion case**: [Link](https://www.espn.com/soccer/story/_/id/41210947/paul-pogba-brother-stand-trial-extortion-case)
