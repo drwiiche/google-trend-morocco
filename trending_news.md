@@ -1,3 +1,17 @@
+### debat trump kamala harris (N/A, Wed, 11 Sep 2024 06:30:00 -0700)
+
+- **Who won the debate? Harris goads Trump into flustered performance**: [Link](https://www.bbc.com/news/articles/c4gdnl9pg1wo)
+- **Five takeaways from Donald Trump and Kamala Harris’s US presidential debate**: [Link](https://www.aljazeera.com/news/2024/9/11/five-takeaways-from-donald-trump-and-kamala-harriss-us-presidential-debate)
+- **The biggest loser in the Trump-Harris debate**: [Link](https://www.foxnews.com/opinion/biggest-loser-trump-harris-debate)
+
+
+### resultat quinte (N/A, Wed, 11 Sep 2024 05:10:00 -0700)
+
+- **Les 3 tuyaux du Quinté+ de ce mercredi 11 septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-3-tuyaux-du-quinte-de-ce-mercredi-11-septembre)
+- **Les pronos hippique du mercredi 11 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippique-du-mercredi-11-septembre-2024_AN-202409100316.html)
+- **Quinté+ 11/9 - GNT : Hede Darling, un “Bazire” peut en cacher un autre**: [Link](https://www.paris-turf.com/actualites/france/quinte-mercredi-11-septembre-au-mans-grand-national-du-trot-hede-darling-un-bazire-qui-peut-en-cacher-un-autre-30194161435)
+
+
 ### koba lad (N/A, Wed, 11 Sep 2024 05:50:00 -0700)
 
 - **Le rappeur Koba LaD impliqué dans un accident mortel à Créteil**: [Link](https://www.leparisien.fr/faits-divers/le-rappeur-koba-lad-implique-dans-un-accident-mortel-a-creteil-11-09-2024-7FY7DHFTVFB7THY2K54HNGEOCY.php)
