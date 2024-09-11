@@ -1,3 +1,12 @@
+### paul pogba (N/A, Wed, 11 Sep 2024 11:50:00 -0700)
+
+- **Pogba's brother to stand trial in extortion case**: [Link](https://www.espn.com/soccer/story/_/id/41210947/paul-pogba-brother-stand-trial-extortion-case)
+- **Paul Pogba was the target of a kidnapping and extortion attempt, 
+prosecutors say**: [Link](https://www.islandernews.com/news/national/paul-pogba-was-the-target-of-a-kidnapping-and-extortion-attempt-prosecutors-say/image_51dc9f87-15e6-5bf3-91d3-f4160924d1db.html)
+- **Paul Pogba's brother and five others 'will face trial' in £11m extortion 
+plot that targeted the France World C**: [Link](https://www.dailymail.co.uk/sport/football/article-13837427/Paul-Pogba-brother-face-trial-extortion-plot-France-World-Cup-Man-United-Paris-apartment.html)
+
+
 ### matchs amicaux (N/A, Wed, 11 Sep 2024 10:50:00 -0700)
 
 - **Amical : Le Canada s'impose pour la première fois aux États-Unis en 67 ans**: [Link](https://www.lequipe.fr/Football/Actualites/Le-canada-s-impose-pour-la-premiere-fois-aux-etats-unis-en-67-ans/1506500)
