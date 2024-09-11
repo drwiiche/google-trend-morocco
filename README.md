@@ -1,3 +1,11 @@
+### koba la d (N/A, Wed, 11 Sep 2024 05:10:00 -0700)
+
+- **Le rappeur Koba LaD impliqué dans un accident mortel à Créteil**: [Link](https://www.leparisien.fr/faits-divers/le-rappeur-koba-lad-implique-dans-un-accident-mortel-a-creteil-11-09-2024-7FY7DHFTVFB7THY2K54HNGEOCY.php)
+- **Le rappeur Koba LaD impliqué dans un accident de la route mortel dans le 
+Val-de-Marne**: [Link](https://www.lemonde.fr/societe/article/2024/09/11/le-rappeur-koba-lad-implique-dans-un-accident-de-la-route-mortel-dans-le-val-de-marne_6312912_3224.html)
+- **Koba LaD : un mort dans un accident de la route, le rappeur était au volant**: [Link](https://www.linternaute.com/actualite/personnalites/6152547-koba-lad-un-mort-dans-un-accident-de-la-route-le-rappeur-etait-au-volant/)
+
+
 ### iphone 16 pro max apple (N/A, Wed, 11 Sep 2024 04:30:00 -0700)
 
 - **iPhone 16 Pro and iPhone 16 Pro Max**: [Link](https://www.apple.com/iphone-16-pro/)
