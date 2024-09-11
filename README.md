@@ -1,3 +1,12 @@
+### cnn (N/A, Tue, 10 Sep 2024 23:30:00 -0700)
+
+- **ABC News releases rules for Sept. 10 debate between Harris and Trump**: [Link](https://abcnews.go.com/US/abc-news-releases-rules-sept-10-debate-harris/story?id=113019909)
+- **Debate Rules for "Kamala Harris and Donald Trump – ABC News Presidential 
+Debate" on Tuesday, Sept. 10**: [Link](https://abc.com/news/5e38600c-4732-4cd2-a99c-3dedfa81beb0/category/1138628)
+- **Harris warns of ‘what’s at stake’ for US as vice-president appears to win 
+debate with Trump – live**: [Link](https://www.theguardian.com/us-news/live/2024/sep/10/harris-trump-presidential-debate-updates)
+
+
 ### هبة بريس (N/A, Tue, 10 Sep 2024 22:30:00 -0700)
 
 
