@@ -1,3 +1,10 @@
+### iphone 16 pro max apple (N/A, Wed, 11 Sep 2024 04:30:00 -0700)
+
+- **iPhone 16 Pro and iPhone 16 Pro Max**: [Link](https://www.apple.com/iphone-16-pro/)
+- **Apple picks the low-hanging fruit in iPhone unveil: Morning Brief**: [Link](https://finance.yahoo.com/news/apple-picks-the-low-hanging-fruit-in-iphone-unveil-morning-brief-100010195.html)
+- **AI will not fix Apple’s sluggish iPhone sales any time soon**: [Link](https://www.economist.com/business/2024/09/10/ai-will-not-fix-apples-sluggish-iphone-sales-any-time-soon)
+
+
 ### frenkie de jong (N/A, Wed, 11 Sep 2024 02:10:00 -0700)
 
 - **What’s Going On with Frenkie de Jong at Barcelona?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/what-s-going-on-with-frenkie-de-jong-at-barcelona-2024-09-09)
