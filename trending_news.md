@@ -1,3 +1,12 @@
+### frenkie de jong (N/A, Wed, 11 Sep 2024 02:10:00 -0700)
+
+- **What’s Going On with Frenkie de Jong at Barcelona?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/what-s-going-on-with-frenkie-de-jong-at-barcelona-2024-09-09)
+- **Barcelona midfield superstar does not trust the club’s medical services – 
+report**: [Link](https://barcauniversal.com/barcelona-midfield-superstar-does-not-trust-the-clubs-medical-services-report/)
+- **Flick considers it fundamental: the Barcelona coach waits for the recovery 
+of one of the team's figures**: [Link](https://www.msn.com/en-us/sports/other/flick-considers-it-fundamental-the-barcelona-coach-waits-for-the-recovery-of-one-of-the-team-s-figures/ar-AA1q4iJ4)
+
+
 ### didier roustan (N/A, Wed, 11 Sep 2024 02:40:00 -0700)
 
 - **Le journaliste Didier Roustan, charismatique commentateur de football, est 
