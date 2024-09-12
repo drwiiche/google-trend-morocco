@@ -1,3 +1,11 @@
+### driss bencheikh (N/A, Thu, 12 Sep 2024 10:00:00 -0700)
+
+- **Conseil de gouvernement : trois nominations à de hautes fonctions, Driss 
+Bencheikh à la tête de l'Office des changes**: [Link](https://lematin.ma/nation/conseil-de-gouvernement-trois-nouvelles-nominations-a-de-hautes-fonctions/242724)
+- **Nomination de Driss Bencheikh à la tête de l’Office des Changes**: [Link](https://maroc-diplomatique.net/nomination-de-driss-bencheikh-a-la-tete-de-loffice-des-changes/)
+- **Driss Bencheikh confirmé directeur de l’Office des Changes**: [Link](https://www.leconomiste.com/flash-infos/driss-bencheikh-confirme-directeur-de-l-office-des-changes)
+
+
 ### efootball 2024 (N/A, Thu, 12 Sep 2024 00:30:00 -0700)
 
 - **INFO DETAIL**: [Link](https://www.konami.com/efootball/en-us/topic/promotion/campaign/415/)
