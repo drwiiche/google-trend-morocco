@@ -1,3 +1,20 @@
+### achraf hakimi real madrid (N/A, Thu, 12 Sep 2024 03:50:00 -0700)
+
+- **El defensa que más suena para el Madrid, pillado en la capital: está 
+deseando fichar**: [Link](https://www.defensacentral.com/real_madrid/1709326711-el-defensa-que-mas-suena-para-el-madrid-pillado-en-la-capital-esta-deseando-fichar)
+- **Mbappé y Achraf, cazados juntos en Madrid y disparan todos los rumores: 
+Florentino pasa a la acción**: [Link](https://www.realmadridexclusivo.com/fichajes/mbappe-achraf-cazados-juntos-en-madrid-disparan-todos-rumores_159246_102.html)
+- **El Real Madrid no se olvida del fichaje del amigo de Kylian Mbappé: gratis 
+en 2026**: [Link](https://edatv.news/deportes/real-madrid-no-se-olvida-del-fichaje-del-amigo-kylian-mbappe-gratis-2026)
+
+
+### konami (N/A, Thu, 12 Sep 2024 03:50:00 -0700)
+
+- **Bandai Namco announces TGS 2024 lineup, schedule**: [Link](https://www.gematsu.com/2024/09/bandai-namco-announces-tgs-2024-lineup-schedule)
+- **Konami Reveals TGS 2024 Lineup and Schedule**: [Link](https://www.vgchartz.com/article/462382/konami-reveals-tgs-2024-lineup-and-schedule/)
+- **TGS 2024: Level-5 announces lineup**: [Link](https://mynintendonews.com/2024/09/11/tgs-2024-level-5-announces-lineup/)
+
+
 ### didier roustan journaliste (N/A, Thu, 12 Sep 2024 02:10:00 -0700)
 
 - **Disparition : Amoureux et défenseur du beau football, le journaliste Didier 
