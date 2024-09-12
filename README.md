@@ -1,3 +1,21 @@
+### جدري القردة في المغرب (N/A, Thu, 12 Sep 2024 11:40:00 -0700)
+
+- **وزارة الصحة تعلن عن تسجيل حالة إصابة مؤكدة بجدري القردة بالمغرب**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A4-1430350.html)
+- **مسؤول بوزارة الصحة يوضح لـ"أخبارنا" معطيات دقيقة عن أول حالة مصابة بـ"جدري 
+القردة" بالمغرب**: [Link](https://www.akhbarona.com/national/392053.html)
+- **المغرب يسجل أول إصابة بجدري القردة.. وهذه التفاصيل**: [Link](https://www.alarabiya.net/north-africa/morocco/2024/09/12/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AC%D9%84-%D8%A3%D9%88%D9%84-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A8%D8%AC%D8%AF%D8%B1%D9%8A-%D8%A7%D9%84%D9%82%D8%B1%D8%AF%D8%A9)
+
+
+### rorqual commun (N/A, Thu, 12 Sep 2024 05:50:00 -0700)
+
+- **En marge du procès Paul Watson, le Japon tue pour la première fois en 50 
+ans un rorqual commun**: [Link](https://www.huffingtonpost.fr/environnement/article/en-marge-du-proces-paul-watson-le-japon-tue-pour-la-premiere-fois-en-50-ans-un-rorqual-commun_239495.html)
+- **Japon : Un rorqual commun tué à des fins commerciales, une première depuis 
+50 ans**: [Link](https://fr.news.yahoo.com/sport/japon-rorqual-commun-tu%C3%A9-%C3%A0-144706123.html)
+- **Une dégustation est prévue à Tokyo : le Japon continue sa chasse aux 
+cétacés et a capturé le premier rorqual commun en 50 ans**: [Link](https://www.lindependant.fr/2024/09/11/une-degustation-est-prevue-a-tokyo-le-japon-continue-sa-chasse-aux-cetaces-et-a-capture-le-premier-rorqual-commun-en-50-ans-12191036.php)
+
+
 ### naybet (N/A, Thu, 12 Sep 2024 12:10:00 -0700)
 
 - **FRMF: Noureddine Naybet devient le sélectionneur des U18**: [Link](https://fr.hespress.com/385803-frmf-noureddine-naybet-devient-le-selectionneur-des-u18.html)
