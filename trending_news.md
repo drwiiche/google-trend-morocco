@@ -1,3 +1,10 @@
+### efootball (N/A, Thu, 12 Sep 2024 04:30:00 -0700)
+
+- **INFO DETAIL**: [Link](https://www.konami.com/efootball/en-us/topic/promotion/campaign/415/)
+- **eFootball™ KICKS OFF A BRAND NEW SEASON**: [Link](https://www.konami.com/games/eu/en/topics/18189/)
+- **معلومات الإصدار**: [Link](https://www.konami.com/efootball/ar/page/2024/versioninfo_v3-00)
+
+
 ### achraf hakimi real madrid (N/A, Thu, 12 Sep 2024 03:50:00 -0700)
 
 - **El defensa que más suena para el Madrid, pillado en la capital: está 
