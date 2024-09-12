@@ -1,3 +1,12 @@
+### didier roustan journaliste (N/A, Thu, 12 Sep 2024 02:10:00 -0700)
+
+- **Disparition : Amoureux et défenseur du beau football, le journaliste Didier 
+Roustan est mort**: [Link](https://www.lequipe.fr/Medias/Actualites/Amoureux-et-defenseur-du-beau-football-le-journaliste-didier-roustan-est-mort/1507062)
+- **Didier Roustan, figure du journalisme sportif, est mort**: [Link](https://www.lemonde.fr/disparitions/article/2024/09/11/didier-roustan-figure-du-journalisme-de-sport-est-mort_6312775_3382.html)
+- **"Il nous a quittés de manière abrupte" : L'Équipe de Greg rend hommage à 
+Didier Roustan, les chroniqueurs ne retiennent pas leurs larmes (VIDEO)**: [Link](https://www.programme-tv.net/news/tv/360437-il-nous-a-quittes-de-maniere-abrupte-l-equipe-de-greg-rend-hommage-a-didier-roustan-les-chroniqueurs-ne-retiennent-pas-leurs-larmes-video/)
+
+
 ### iphone 16 pro max apple (N/A, Wed, 11 Sep 2024 22:10:00 -0700)
 
 - **iPhone 16 Pro and iPhone 16 Pro Max**: [Link](https://www.apple.com/iphone-16-pro/)
