@@ -1,3 +1,12 @@
+### rappeur koba lad (N/A, Wed, 11 Sep 2024 16:50:00 -0700)
+
+- **Le rappeur Koba LaD impliqué dans un accident mortel à Créteil**: [Link](https://www.leparisien.fr/faits-divers/le-rappeur-koba-lad-implique-dans-un-accident-mortel-a-creteil-11-09-2024-7FY7DHFTVFB7THY2K54HNGEOCY.php)
+- **Le rappeur Koba LaD impliqué dans un accident de la route mortel dans le 
+Val-de-Marne**: [Link](https://www.lemonde.fr/societe/article/2024/09/11/le-rappeur-koba-lad-implique-dans-un-accident-de-la-route-mortel-dans-le-val-de-marne_6312912_3224.html)
+- **Koba laD impliqué dans un dramatique accident : un mort dans le choc entre 
+la voiture du rappeur et un camion**: [Link](https://www.midilibre.fr/2024/09/11/koba-la-d-implique-dans-un-dramatique-accident-hospitalise-le-rappeur-aurait-percute-un-camion-un-passager-declare-mort-12190307.php)
+
+
 ### samsung galaxy s25 ultra (N/A, Wed, 11 Sep 2024 13:50:00 -0700)
 
 - **iPhone 16 Pro Max Specs vs. Galaxy S24 Ultra: Big Phones Compared**: [Link](https://www.cnet.com/tech/mobile/iphone-16-pro-max-specs-vs-galaxy-s24-ultra-big-phones-compared/)
