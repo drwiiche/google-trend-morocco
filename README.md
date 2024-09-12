@@ -1,3 +1,12 @@
+### sonia dahmani (N/A, Thu, 12 Sep 2024 05:00:00 -0700)
+
+- **Sonia Dahmani, l’avocate tunisienne arrêtée pendant un direct de France 24, 
+condamnée à 8 mois de prison ferme**: [Link](https://www.nouvelobs.com/monde/20240911.OBS93471/sonia-dahmani-l-avocate-tunisienne-arretee-pendant-un-direct-de-france-24-condamnee-a-8-mois-de-prison-ferme.html)
+- **L'Ordre national des avocats annonce le port du bandeau rouge**: [Link](https://www.mosaiquefm.net/fr/actualite-national-tunisie/1311458/l-ordre-national-des-avocats-annonce-le-port-du-bandeau-rouge)
+- **Revue de presse du 11 septembre 2024 – Centre d’Études Stratégiques de 
+l’Afrique**: [Link](https://africacenter.org/fr/daily-media-review/revue-de-presse-du-11-septembre-2024/)
+
+
 ### efootball (N/A, Thu, 12 Sep 2024 04:30:00 -0700)
 
 - **INFO DETAIL**: [Link](https://www.konami.com/efootball/en-us/topic/promotion/campaign/415/)
