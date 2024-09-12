@@ -1,3 +1,10 @@
+### iphone 16 pro max apple (N/A, Wed, 11 Sep 2024 22:10:00 -0700)
+
+- **iPhone 16 Pro and iPhone 16 Pro Max**: [Link](https://www.apple.com/iphone-16-pro/)
+- **Apple has officially discontinued these three iPhones**: [Link](https://www.yahoo.com/tech/apple-officially-discontinued-three-iphones-150844446.html)
+- **AI will not fix Apple’s sluggish iPhone sales any time soon**: [Link](https://www.economist.com/business/2024/09/10/ai-will-not-fix-apples-sluggish-iphone-sales-any-time-soon)
+
+
 ### twitter (N/A, Wed, 11 Sep 2024 20:40:00 -0700)
 
 - **What Musk's Twitter takeover could tell us about a possible government 
