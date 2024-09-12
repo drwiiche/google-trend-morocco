@@ -1,3 +1,15 @@
+### variole du singe (N/A, Thu, 12 Sep 2024 10:50:00 -0700)
+
+- **Variole du singe (Monkeypox) : un premier cas confirmé au Maroc**: [Link](https://medias24.com/2024/09/12/variole-du-singe-monkeypox-un-premier-cas-confirme-au-maroc/)
+- **Le Maroc enregistre un premier cas de Mpox**: [Link](https://fr.hespress.com/385806-le-maroc-enregistre-un-premier-cas-de-mpox.html)
+- **Un cas de variole du singe confirmé à Marrakech**: [Link](https://www.menara.ma/fr/article/un-cas-de-variole-du-singe-confirme-a-marrakech)
+
+
+### huawei mate xt prix (N/A, Thu, 12 Sep 2024 05:10:00 -0700)
+
+
+
+
 ### mpox (N/A, Thu, 12 Sep 2024 10:10:00 -0700)
 
 - **Opinion | Mpox is coming back deadlier than before. The U.S. must respond 
