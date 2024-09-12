@@ -1,3 +1,20 @@
+### mpox (N/A, Thu, 12 Sep 2024 10:10:00 -0700)
+
+- **Opinion | Mpox is coming back deadlier than before. The U.S. must respond 
+now.**: [Link](https://www.washingtonpost.com/opinions/2024/09/10/mpox-outbreak-congo-africa/)
+- **Mpox deaths rise by 107 in a week as Africa CDC calls the toll unacceptable**: [Link](https://www.seattletimes.com/seattle-news/health/mpox-deaths-rise-by-107-in-a-week-as-africa-cdc-calls-the-toll-unacceptable/)
+- **Mpox: UNHCR launches appeal to support refugees in African countries**: [Link](https://news.un.org/en/story/2024/09/1154161)
+
+
+### monkeypox (N/A, Thu, 12 Sep 2024 10:10:00 -0700)
+
+- **Hum: I enjoyed Nagi Sushi, which continues the tasty legacy of C'est Japon 
+à Suisha**: [Link](https://www.msn.com/en-ca/foodanddrink/foodnews/hum-i-enjoyed-nagi-sushi-which-continues-the-tasty-legacy-of-c-est-japon-%C3%A0-suisha/ar-AA1qsLUL)
+- **Alaska Air raises profit forecast on summer demand, outage-linked bookings**: [Link](https://www.msn.com/en-ca/travel/news/alaska-air-raises-profit-forecast-on-summer-demand-outage-linked-bookings/ar-AA1qs18W)
+- **Ex-Boks call on All Blacks to put ‘Eden Park record on the line’ against 
+Springboks**: [Link](https://www.msn.com/en-gb/sport/other/ex-boks-call-on-all-blacks-to-put-eden-park-record-on-the-line-against-springboks/ar-AA1qsfTu)
+
+
 ### driss bencheikh (N/A, Thu, 12 Sep 2024 10:00:00 -0700)
 
 - **Conseil de gouvernement : trois nominations à de hautes fonctions, Driss 
