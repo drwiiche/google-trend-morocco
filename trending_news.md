@@ -1,3 +1,10 @@
+### naybet (N/A, Thu, 12 Sep 2024 12:10:00 -0700)
+
+- **FRMF: Noureddine Naybet devient le sélectionneur des U18**: [Link](https://fr.hespress.com/385803-frmf-noureddine-naybet-devient-le-selectionneur-des-u18.html)
+- **Lekjaa nomme un nouveau coach pour l'équipe du Maroc (Officiel)**: [Link](https://fennecfootball.com/frmf-lekjaa-nomme-un-nouveau-selectionneur-pour-equipe-du-maroc-officiel/)
+- **Foot: Naybet nouvel entraîneur de la sélection marocaine U18**: [Link](https://www.h24info.ma/foot-naybet-nouvel-entraineur-de-la-selection-marocaine-u18/)
+
+
 ### variole du singe (N/A, Thu, 12 Sep 2024 10:50:00 -0700)
 
 - **Variole du singe (Monkeypox) : un premier cas confirmé au Maroc**: [Link](https://medias24.com/2024/09/12/variole-du-singe-monkeypox-un-premier-cas-confirme-au-maroc/)
