@@ -1,3 +1,10 @@
+### variole du singe maroc (N/A, Thu, 12 Sep 2024 16:40:00 -0700)
+
+- **Variole du singe: un premier cas détecté au Maroc (Officiel)**: [Link](https://ledesk.ma/encontinu/variole-du-singe-un-premier-cas-detecte-au-maroc-officiel/)
+- **Le Maroc enregistre un premier cas de Mpox**: [Link](https://fr.hespress.com/385806-le-maroc-enregistre-un-premier-cas-de-mpox.html)
+- **Variole du singe (Monkeypox) : un premier cas confirmé au Maroc**: [Link](https://medias24.com/2024/09/12/variole-du-singe-monkeypox-un-premier-cas-confirme-au-maroc/)
+
+
 ### brigitte macron (N/A, Thu, 12 Sep 2024 16:30:00 -0700)
 
 - **Infox sur Brigitte Macron femme transgenre : deux femmes condamnées pour 
