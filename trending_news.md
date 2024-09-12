@@ -1,3 +1,13 @@
+### twitter (N/A, Wed, 11 Sep 2024 20:40:00 -0700)
+
+- **What Musk's Twitter takeover could tell us about a possible government 
+appointment**: [Link](https://www.npr.org/2024/09/11/nx-s1-5107969/elon-musk-twitter-x-trump-audit)
+- **“Are You Saying No to Elon Musk?”: Scenes from the Slash-and-Burn Buyout of 
+Twitter**: [Link](https://www.vanityfair.com/news/story/elon-musk-twitter-buyout)
+- **What Musk’s Twitter takeover could tell us about a possible government 
+appointment**: [Link](https://www.wliw.org/radio/news/what-musks-twitter-takeover-could-tell-us-about-a-possible-government-appointment/)
+
+
 ### rappeur koba lad (N/A, Wed, 11 Sep 2024 16:50:00 -0700)
 
 - **Le rappeur Koba LaD impliqué dans un accident mortel à Créteil**: [Link](https://www.leparisien.fr/faits-divers/le-rappeur-koba-lad-implique-dans-un-accident-mortel-a-creteil-11-09-2024-7FY7DHFTVFB7THY2K54HNGEOCY.php)
