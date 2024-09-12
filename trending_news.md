@@ -1,3 +1,18 @@
+### resultat quinte (N/A, Thu, 12 Sep 2024 05:10:00 -0700)
+
+- **Les pronostics Quinté du 12/09/2024 à Longchamp**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-12092024-a-longchamp-4266967)
+- **Les Notes des partants du Quinté+ de ce jeudi 12 septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-jeudi-12-septembre)
+- **Les pronos hippiques du jeudi 12 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-12-septembre-2024_AN-202409110603.html)
+
+
+### efootball 2025 (N/A, Wed, 11 Sep 2024 19:30:00 -0700)
+
+- **معلومات الإصدار**: [Link](https://www.konami.com/efootball/ar/page/2024/versioninfo_v3-00)
+- **Konami secures exclusive licensing rights for AC Milan and Inter Milan**: [Link](https://sportsmintmedia.com/konami-secures-exclusive-licensing-rights-for-ac-milan-and-inter-milan/)
+- **Konami confirms that Inter and AC Milan will be exclusive to eFootball this 
+year**: [Link](https://www.videogameschronicle.com/news/konami-confirms-that-inter-and-ac-milan-will-be-exclusive-to-efootball-this-year/)
+
+
 ### sonia dahmani (N/A, Thu, 12 Sep 2024 05:00:00 -0700)
 
 - **Sonia Dahmani, l’avocate tunisienne arrêtée pendant un direct de France 24, 
