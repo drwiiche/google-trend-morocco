@@ -1,3 +1,13 @@
+### brigitte macron (N/A, Thu, 12 Sep 2024 16:30:00 -0700)
+
+- **Infox sur Brigitte Macron femme transgenre : deux femmes condamnées pour 
+diffamation**: [Link](https://www.lemonde.fr/societe/article/2024/09/12/infox-sur-brigitte-macron-femme-transgenre-deux-femmes-condamnees-pour-diffamation_6315011_3224.html)
+- **Rumeurs transphobes contre Brigitte Macron: deux femmes condamnées pour 
+complicité de diffamation publique**: [Link](https://www.bfmtv.com/police-justice/rumeurs-transphobes-contre-brigitte-macron-deux-femmes-condamnees-pour-complicite-de-diffamation-publique_AV-202409120572.html)
+- **"S'ils s'imaginent qu'on va chialer..." : dans l'affaire Jean-Michel 
+Trogneux, la voyante et la "journaliste" condamnées**: [Link](https://www.marianne.net/societe/police-et-justice/s-ils-s-imaginent-qu-on-va-chialer-dans-l-affaire-jean-michel-trogneux-la-voyante-et-la-journaliste-condamnees)
+
+
 ### جدري القردة المغرب (N/A, Thu, 12 Sep 2024 15:40:00 -0700)
 
 - **وزارة الصحة تعلن عن تسجيل حالة إصابة مؤكدة بجدري القردة بالمغرب**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A4-1430350.html)
