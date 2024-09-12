@@ -1,3 +1,10 @@
+### efootball 2024 (N/A, Thu, 12 Sep 2024 00:30:00 -0700)
+
+- **INFO DETAIL**: [Link](https://www.konami.com/efootball/en-us/topic/promotion/campaign/415/)
+- **eFootball 2024 Large-Scale Maintenance from September 11 detail**: [Link](https://khelnow.com/e-sports-football/efootball-maintenance-september-11-details-202409)
+- **eFootball™ KICKS OFF A BRAND NEW SEASON**: [Link](https://www.konami.com/games/eu/en/topics/18189/)
+
+
 ### resultat quinte (N/A, Thu, 12 Sep 2024 05:10:00 -0700)
 
 - **Les pronostics Quinté du 12/09/2024 à Longchamp**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-12092024-a-longchamp-4266967)
