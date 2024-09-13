@@ -1,3 +1,18 @@
+### الطائر الرفراف (N/A, Fri, 13 Sep 2024 16:00:00 -0700)
+
+- **إطلاق الإعلان الرسمي الثاني لـ مسلسل الطائر الرفراف الموسم 3**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%84%D9%80-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%B1%D9%81%D8%B1%D8%A7%D9%81-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-3)
+- **بعد انضمامها إلى "طائر الرفراف".. بيلين أكيل تتعرض للهجوم**: [Link](https://www.foochia.com/celebrities/ve8e1v4)
+- **دخول سيران المستشفي وانفصالها عن فريد.. مسلسل الطائر الرفراف الموسم الثالث 
+مواعيد العرض والقنوات**: [Link](https://real.alsaudinews.com/160201/%D8%AF%D8%AE%D9%88%D9%84-%D8%B3%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%8A-%D9%88%D8%A7%D9%86%D9%81%D8%B5%D8%A7%D9%84%D9%87%D8%A7-%D8%B9%D9%86-%D9%81%D8%B1%D9%8A%D8%AF/)
+
+
+### bts (N/A, Fri, 13 Sep 2024 15:50:00 -0700)
+
+- **Greatest Pop Stars of the 21st Century Podcast: BTS & The Weeknd**: [Link](https://www.billboard.com/music/pop/greatest-pop-stars-21st-century-podcast-bts-the-weeknd-1235774755/)
+- **Bruno Mars: Best Pop Singers of 21st Century (No. 20)**: [Link](https://www.billboard.com/music/pop/bruno-mars-greatest-pop-stars-21st-century-1235768954/)
+- **BTS' V wows ARMY with jaw-dropping military selfie in fans' group chat**: [Link](https://timesofindia.indiatimes.com/entertainment/k-pop/music/news/btss-v-wows-army-with-jaw-dropping-military-selfie-in-fans-group-chat/articleshow/113191827.cms)
+
+
 ### les 12 coups de midi (N/A, Fri, 13 Sep 2024 15:30:00 -0700)
 
 - **"Il y a un énorme problème, on est obligé d’arrêter l’émission" : La 
