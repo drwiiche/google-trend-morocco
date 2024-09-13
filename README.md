@@ -1,3 +1,24 @@
+### bet365 (N/A, Fri, 13 Sep 2024 12:20:00 -0700)
+
+- **NFL Week 2 bet365 promo: $200 in bonus bets or first-bet insurance**: [Link](https://www.cbssports.com/betting/news/nfl-week-2-bet365-promo-200-in-bonuses-or-first-bet-insurance/)
+- **Bet365 bonus code WRAL365: $200 bonus or $1K safety net for Bills-Dolphins 
+TNF**: [Link](https://www.wral.com/story/bet365-bonus-code-wral365-200-bonus-or-1k-safety-net-for-bills-dolphins-tnf/21619502/)
+- **Ohio's Best Sports Betting Promos For September 12th, 2024**: [Link](https://bookies.com/news/promo/ohio-best-sports-betting-promos-september-12-2024)
+
+
+### nasr (N/A, Fri, 13 Sep 2024 12:20:00 -0700)
+
+- **Al-Omran: Deliberations are continuing to nominate two members of Al-Nasr**: [Link](https://www.ysscores.com/en/news/4007957/Al-Omran:-Deliberations-are-continuing-to-nominate-two-members-of-Al-Nasr)
+- **Qataf joins Al-Nasr as a replacement for Amer**: [Link](https://www.arabtimesonline.com/news/qataf-joins-al-nasr-as-a-replacement-for-amer/)
+
+
+### al nassr (N/A, Fri, 13 Sep 2024 10:50:00 -0700)
+
+- **Planet Premier League: Cesc Fabregas on Cristiano Ronaldo**: [Link](https://www.bbc.com/sport/football/videos/cdjwjx0kev2o)
+- **Portugal 2-1 Croatia - Highlights**: [Link](https://www.beinsports.com/en-mena/football/uefa-nations-league/articles-video/portugal-2-1-croatia-highlights-2024-09-06)
+- **Scoring 900 goals, Ronaldo's goal-scoring achievements play pivotal role in numerous victories for his teams**: [Link](https://www.aa.com.tr/en/sports/scoring-900-goals-ronaldos-goal-scoring-achievements-play-pivotal-role-in-numerous-victories-for-his-teams/3324331)
+
+
 ### real betis vs leganes (N/A, Fri, 13 Sep 2024 12:10:00 -0700)
 
 - **How to watch today's Real Betis vs Leganes La Liga game: Live stream, TV 
