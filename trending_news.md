@@ -1,3 +1,13 @@
+### les traitres m6 (N/A, Fri, 13 Sep 2024 02:10:00 -0700)
+
+- **Télévision : Pourquoi « Les Traîtres » ne sera plus de la partie le jeudi 
+sur M6 ?**: [Link](https://www.20minutes.fr/arts-stars/television/4109659-20240912-television-pourquoi-traitres-plus-partie-jeudi-m6)
+- **"Les traîtres, nouvelle génération" : Date de diffusion, candidats... Tout 
+savoir sur la version "influenceurs" du jeu de M6**: [Link](https://www.ozap.com/actu/-les-traitres-nouvelle-generation-date-de-diffusion-candidats-tout-savoir-sur-la-version-influenceurs-du-jeu-de-m6/645629)
+- **"On ne saura jamais" : Frédérique Bel révèle qu'elle n'a pas du tout 49 ans 
+comme tout le monde le pense ! (ZAPTV)**: [Link](https://www.voici.fr/tele/on-ne-saura-jamais-frederique-bel-revele-qu-elle-n-a-pas-du-tout-49-ans-comme-tout-le-monde-le-pense-zaptv-789672)
+
+
 ### mbour (N/A, Thu, 12 Sep 2024 15:40:00 -0700)
 
 - **Au Sénégal, le président promet une « traque sans répit » du trafic de 
