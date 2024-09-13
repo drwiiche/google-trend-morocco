@@ -1,3 +1,27 @@
+### betis (N/A, Fri, 13 Sep 2024 12:40:00 -0700)
+
+- **Real Betis: el club de negocios alcanza las 180 empresas tras triplicar su 
+número en cuatro años**: [Link](https://www.2playbook.com/clubes/real-betis-club-negocios-alcanza-180-empresas-triplicar-su-numero-en-cuatro-anos_16617_102.html)
+- **Esther Martín-Pozuelo: "Para mí el Real Madrid siempre va a ser especial"**: [Link](https://www.marca.com/futbol/futbol-femenino/primera-division/2024/09/13/66e1c80622601da3468b459f.html)
+- **Previa RM Fem | A la defensa del liderato**: [Link](https://onefootball.com/en/news/previa-rm-fem-a-la-defensa-del-liderato-40029569)
+
+
+### دورتموند ضد هايدينهايم (N/A, Fri, 13 Sep 2024 12:40:00 -0700)
+
+- **بوروسيا دورتموند من أجل تحقيق الفوز أمام هايدنهايم**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A3%D9%85%D8%A7%D9%85-%D9%87%D8%A7%D9%8A%D8%AF%D9%86%D9%87%D8%A7%D9%8A%D9%85-2024-09-13)
+- **تقييم لاعبي بروسيا دورتموند و هايدنهايم في الشوط الأول**: [Link](https://hihi2.com/2024/09/13/p2846960.html)
+- **جيراسي يترقب قرار مدرب دورتموند.. وإشادة بنجم الجزائر**: [Link](https://www.kooora.com/?n=1354061)
+
+
+### سفيان البقالي (N/A, Fri, 13 Sep 2024 12:40:00 -0700)
+
+- **سفيان البقالي يفشل في الفوز بسباق 3000 متر موانع في نهائي الدوري الماسي 
+ببروكسيل – اليوم 24**: [Link](https://alyaoum24.com/1915061.html)
+- **البطل المغربي سفيان البقالي يخفق في نهائي الدوري الماسي ببروكسيل**: [Link](https://www.akhbarona.com/sport/others/392102.html)
+- **نهائي الدوري الماسي/ البقالي يخوض سباق 3000 متر موانع في ملتقى "بروكسيل" 
+غدا الجمعة**: [Link](https://m.elbotola.com/article/2024-09-12-20-03-671.html)
+
+
 ### live score (N/A, Fri, 13 Sep 2024 12:30:00 -0700)
 
 - **England play Australia live on Sky Sports: Fixtures, squads and team news ahead of three T20 internationals and five ODIs**: [Link](https://www.skysports.com/cricket/news/12173/13210434/england-play-australia-live-on-sky-sports-fixtures-squads-and-team-news-ahead-of-three-t20-internationals-and-five-odis)
