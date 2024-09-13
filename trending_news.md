@@ -1,3 +1,17 @@
+### diamond league (N/A, Fri, 13 Sep 2024 11:40:00 -0700)
+
+- **WDL Final in Brussels: Live updates**: [Link](https://www.diamondleague.com/news/general/wdl-final-in-brussels-live-updates/)
+- **How to watch and follow the Wanda Diamond League Final in Brussels**: [Link](https://worldathletics.org/competitions/diamond-league/news/how-to-watch-athletics-2024-diamond-league-brussels)
+- **More than 100 Olympic Medals at Allianz Memorial Van Damme**: [Link](https://www.athletics.africa/news/world/europe/more-than-100-olympic-medals-at-allianz-memorial-van-damme-18604)
+
+
+### saint-étienne – lille (N/A, Fri, 13 Sep 2024 11:20:00 -0700)
+
+- **PRONOS PARIS RMC Les paris sur Saint-Etienne - Lille du 13 septembre - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-les-paris-sur-saint-etienne-lille-du-13-septembre-ligue-1_AN-202409120030.html)
+- **Saint-Étienne : touché au ménisque, Yvann Maçon va être opéré (Ligue 1)**: [Link](https://www.lequipe.fr/Football/Actualites/Saint-etienne-touche-au-menisque-yvann-macon-va-etre-opere/1506995)
+- **Bruno Genesio annonce 6 joueurs forfaits pour affronter l'ASSE**: [Link](https://madeindogues.ouest-france.fr/infos/article-losc-bruno-genesio-annonce-6-joueurs-forfaits-pour-affronter-l-asse-457479.html)
+
+
 ### betis – leganés (N/A, Fri, 13 Sep 2024 11:00:00 -0700)
 
 - **Betis - Leganés, en directo: resumen, goles y minuto a minuto del partido de LaLiga EA Sports 2024-2025**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/publicar-betis-leganes-directo-resumen-goles-minuto-20240913235546-dis.html)
