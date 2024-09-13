@@ -1,3 +1,18 @@
+### betis – leganés (N/A, Fri, 13 Sep 2024 11:00:00 -0700)
+
+- **Betis - Leganés, en directo: resumen, goles y minuto a minuto del partido de LaLiga EA Sports 2024-2025**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/publicar-betis-leganes-directo-resumen-goles-minuto-20240913235546-dis.html)
+- **Pellegrini, sobre Lo Celso, Cardoso, Bartra, Juanmi, Jesús, Juan Cruz, Vitor Roque, Ruibal, Isco, Bakambu y Rodri**: [Link](https://www.futbolfantasy.com/laliga/noticias/119708-pellegrini-sobre-lo-celso-cardoso-bartra-juanmi-jesus-juan-cruz-vitor-roque-ruibal-isco-bakam)
+- **Baile de arietes en Heliópolis**: [Link](https://as.com/futbol/primera/baile-de-arietes-en-heliopolis-n/)
+
+
+### haaland (N/A, Fri, 13 Sep 2024 11:00:00 -0700)
+
+- **Haaland wait, Rodri and Foden back in training while Ake out – Pep**: [Link](https://www.mancity.com/news/mens/pep-guardiola-injury-news-manchester-city-brentford-63861823)
+- **Erling Haaland will be allowed to take compassionate leave by Pep Guardiola 
+after death of close friend, with**: [Link](https://www.dailymail.co.uk/sport/football/article-13843869/Erling-Haaland-compassionate-leave-Pep-Guardiola-man-city.html)
+- **Man City XI vs Brentford: Predicted lineup and confirmed team news**: [Link](https://www.standard.co.uk/sport/football/man-city-xi-brentford-predicted-lineup-confirmed-team-news-injury-latest-premier-league-2024-b1181615.html)
+
+
 ### dortmund – heidenheim (N/A, Fri, 13 Sep 2024 10:40:00 -0700)
 
 - **Wie der 1. FC Heidenheim sich erneuert: Vor BVB-Duell in Fußball-Bundesliga**: [Link](https://www.faz.net/aktuell/sport/fussball/bundesliga/wie-der-1-fc-heidenheim-sich-erneuert-vor-bvb-duell-in-fussball-bundesliga-19979627.html)
