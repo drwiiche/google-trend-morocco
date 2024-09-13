@@ -1,3 +1,12 @@
+### lille fc (N/A, Fri, 13 Sep 2024 13:10:00 -0700)
+
+- **Saint-Étienne predicted XI v Lille: Yvann Macon absent, Pierre Ekwah set 
+for debut**: [Link](https://www.getfootballnewsfrance.com/2024/saint-etienne-predicted-xi-v-lille-yvann-macon-absent-pierre-ekwah-set-for-debut/)
+- **Football Bet of the Day: Another tough night expected for struggling 
+Saint-Etienne**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-another-tough-night-expected-for-struggling-saint-etienne/)
+- **Preview: Saint-Etienne vs. Lille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/saint-etienne/preview/preview-st-etienne-vs-lille-prediction-team-news-lineups_552606.html)
+
+
 ### inoxtag (N/A, Fri, 13 Sep 2024 12:20:00 -0700)
 
 - **Un projet « grandiose » et « stressant », les coulisses du docu haute tension d’Inoxtag**: [Link](https://www.huffingtonpost.fr/culture/video/kaizen-le-documentaire-d-inoxtag-un-projet-grandiose-et-stressant-jusqu-en-haut-de-l-everest_239527.html)
