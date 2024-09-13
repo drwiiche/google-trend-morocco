@@ -1,3 +1,19 @@
+### real betis vs leganes (N/A, Fri, 13 Sep 2024 12:10:00 -0700)
+
+- **How to watch today's Real Betis vs Leganes La Liga game: Live stream, TV 
+channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-real-betis-vs-leganes-la-liga-game-live-stream-tv-channel-start-time/blt4483226ef049ffd0)
+- **Best Bets Today for All Sports: Friday's Picks Include Leganes vs. Real 
+Betis La Liga Play [9/13/2024]**: [Link](https://www.dimers.com/news/best-bets-today-ac-friday-september-13-2024)
+- **Betis vs Leganes Prediction, 9/13/2024 La Liga Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/betis-vs-leganes-prediction-9-13-2024-la-liga-soccer-pick-tips-and-odds.html)
+
+
+### dortmund (N/A, Fri, 13 Sep 2024 11:50:00 -0700)
+
+- **Handballerinnen wollen THC im Topspiel die Stirn bieten**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2024/9/12/Handballerinnen-wollen-THC-im-Topspiel-die-Stirn-bieten.html)
+- **Der Klang der Titel**: [Link](https://www.thueringer-allgemeine.de/sport/article407192299/der-klang-der-titel.html)
+- **THC-Coach Herbert Müller: "In der Abwehr müssen wir uns noch finden"**: [Link](https://www.mdr.de/sport/sport-im-osten/video-thueringer-hc-herbert-mueller-ziele-100.html)
+
+
 ### diamond league (N/A, Fri, 13 Sep 2024 11:40:00 -0700)
 
 - **WDL Final in Brussels: Live updates**: [Link](https://www.diamondleague.com/news/general/wdl-final-in-brussels-live-updates/)
