@@ -1,3 +1,10 @@
+### vendredi 13 (N/A, Fri, 13 Sep 2024 04:10:00 -0700)
+
+- **Pourquoi le vendredi 13 suscite-t-il tant de crainte ?**: [Link](https://www.lepoint.fr/eureka/pourquoi-le-vendredi-13-suscite-t-il-tant-de-crainte-13-09-2024-2570145_4706.php)
+- **Vendredi 13 : les Françaises, leurs superstitions et les jeux d’argent**: [Link](https://www.echodumardi.com/actualite/vendredi-13-les-francaises-leurs-superstitions-et-les-jeux-dargent/)
+- **Etes-vous superstitieux ? Aujourd’hui, nous sommes le vendredi 13 !**: [Link](https://www.deltafm.fr/etes-vous-superstitieux-aujourd-hui-nous-sommes-le-vendredi-13)
+
+
 ### men gov ma (N/A, Fri, 13 Sep 2024 03:40:00 -0700)
 
 
