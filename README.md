@@ -1,3 +1,11 @@
+### erling haaland (N/A, Fri, 13 Sep 2024 14:30:00 -0700)
+
+- **Guardiola to make a late decision on Haaland**: [Link](https://www.premierleague.com/news/4115817)
+- **Haaland wait, Rodri and Foden back in training while Ake out – Pep**: [Link](https://www.mancity.com/news/mens/pep-guardiola-injury-news-manchester-city-brentford-63861823)
+- **Erling Haaland will be allowed to take compassionate leave by Pep Guardiola 
+after death of close friend, with**: [Link](https://www.dailymail.co.uk/sport/football/article-13843869/Erling-Haaland-compassionate-leave-Pep-Guardiola-man-city.html)
+
+
 ### مباريات الغد (N/A, Fri, 13 Sep 2024 14:10:00 -0700)
 
 - **ريال مدريد يخسر نجميه أمام سوسيداد**: [Link](https://www.kooora.com/?n=1354416)
