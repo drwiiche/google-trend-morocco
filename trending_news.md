@@ -1,3 +1,11 @@
+### gaz maroc (N/A, Fri, 13 Sep 2024 06:40:00 -0700)
+
+- **Exploration gazière: Chariot annonce la présence de réservoirs de gaz dans 
+son puits Anchois-3**: [Link](https://fr.le360.ma/economie/exploration-gaziere-chariot-annonce-la-presence-de-reservoirs-de-gaz-dans-son-puits-anchois-3_Y6WW2T6ROBCU3HFTHW6RO624YY/)
+- **Forage d’Anchois-3: Chariot annonce la présence de gaz**: [Link](https://ledesk.ma/encontinu/forage-danchois-3-chariot-annonce-la-presence-de-gaz/)
+- **Nouvelle découverte de gaz au Maroc**: [Link](https://www.bladi.net/decouverte-gaz-maroc,110457.html)
+
+
 ### bruno le maire (N/A, Fri, 13 Sep 2024 05:20:00 -0700)
 
 - **Bruno Le Maire devient professeur à Lausanne, mais dit à bientôt aux 
