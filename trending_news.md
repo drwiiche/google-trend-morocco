@@ -1,3 +1,18 @@
+### النصر ضد الأهلي (N/A, Fri, 13 Sep 2024 10:10:00 -0700)
+
+- **مباشر.. مباراة النصر ضد الأهلي في الدوري السعودي للمحترفين**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/13/al-nassr-vs-al-ahly)
+- **شاهد تشكيلة النصر والأهلي في أول كلاسيكو هذا الموسم**: [Link](https://hihi2.com/2024/09/13/p2845653.html)
+- **نجم أهلي جدة يثير الجدل بتعليق غامض**: [Link](https://www.kooora.com/?n=1354438)
+
+
+### al-nassr fc – al-ahli saudi (N/A, Fri, 13 Sep 2024 10:00:00 -0700)
+
+- **Pinto's return to Riyadh was delayed**: [Link](https://www.ysscores.com/en/news/4012527/Pinto's-return-to-Riyadh-was-delayed)
+- **Al Nassr vs Al Ahli: Where and how to watch live Saudi Pro League 2024-25 
+Matchday 3**: [Link](https://bolavip.com/en/soccer/al-nassr-vs-al-ahli-where-and-how-to-watch-live-saudi-pro-league-2024-25-matchday-3)
+- **Preview: Al-Nassr vs. Al-Ahli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/preview-al-nassr-vs-al-ahli-prediction-team-news-lineups_552644.html)
+
+
 ### quinté (N/A, Fri, 13 Sep 2024 09:40:00 -0700)
 
 - **Faites le papier du Quinté+ de ce vendredi 13 septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-vendredi-13-septembre)
