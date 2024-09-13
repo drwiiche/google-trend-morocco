@@ -1,3 +1,11 @@
+### الفنيدق (N/A, Fri, 13 Sep 2024 14:30:00 -0700)
+
+- **دعوات "الحريك" تستنفر الأمن بالشمال**: [Link](https://www.hespress.com/%D8%AF%D8%B9%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D9%8A%D9%83-%D8%AA%D8%B3%D8%AA%D9%86%D9%81%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A8%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84-1430998.html)
+- **تعبئة أمنية غير مسبوقة من السلطات المغربية لمواجهة محاولة هجرة جماعية إلى 
+سبتة – اليوم 24**: [Link](https://alyaoum24.com/1914960.html)
+- **استنفار كبير بالفنيدق.. تعزيزات أمنية وحملة تمشيطية بالأحياء**: [Link](https://ar.hibapress.com/details-550956.html)
+
+
 ### erling haaland (N/A, Fri, 13 Sep 2024 14:30:00 -0700)
 
 - **Guardiola to make a late decision on Haaland**: [Link](https://www.premierleague.com/news/4115817)
