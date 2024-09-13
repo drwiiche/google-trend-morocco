@@ -1,3 +1,10 @@
+### dortmund – heidenheim (N/A, Fri, 13 Sep 2024 10:40:00 -0700)
+
+- **Wie der 1. FC Heidenheim sich erneuert: Vor BVB-Duell in Fußball-Bundesliga**: [Link](https://www.faz.net/aktuell/sport/fussball/bundesliga/wie-der-1-fc-heidenheim-sich-erneuert-vor-bvb-duell-in-fussball-bundesliga-19979627.html)
+- **Bundesliga-Prognose: Vorhersage & Tipps zum 3. Spieltag 24/25**: [Link](https://www.90min.de/posts/bundesliga-prognose-vorhersage-tipps-zum-3-spieltag-24-25)
+- **Freitagsspiele: Borussia Dortmund vor neuem Rekord**: [Link](https://www.waz.de/sport/borussia-dortmund/article407224498/freitagsspiele-borussia-dortmund-vor-neuem-rekord.html)
+
+
 ### النصر ضد الأهلي (N/A, Fri, 13 Sep 2024 10:10:00 -0700)
 
 - **مباشر.. مباراة النصر ضد الأهلي في الدوري السعودي للمحترفين**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/13/al-nassr-vs-al-ahly)
