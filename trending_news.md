@@ -1,3 +1,12 @@
+### est (N/A, Fri, 13 Sep 2024 12:20:00 -0700)
+
+- **n°990. Qui est Nio, le constructeur automobile chinois qui a reçu Mohcine 
+Jazouli ?**: [Link](https://ledesk.ma/enclair/qui-est-nio-le-constructeur-automobile-chinois-qui-a-recu-mohcine-jazouli/)
+- **Mohcine Jazouli visite la NIO House à la Shanghai Tower**: [Link](https://medias24.com/2024/09/12/mohcine-jazouli-visite-la-nio-house-a-la-shanghai-tower/)
+- **Maroc-Chine : que pèsent les entreprises chinoises sondées par Aziz 
+Akhannouch ?**: [Link](https://mobile.telquel.ma/2024/09/10/maroc-chine-que-pesent-les-entreprises-chinoises-sondees-par-aziz-akhannouch_1892798)
+
+
 ### الفنيدق (N/A, Fri, 13 Sep 2024 14:30:00 -0700)
 
 - **دعوات "الحريك" تستنفر الأمن بالشمال**: [Link](https://www.hespress.com/%D8%AF%D8%B9%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D9%8A%D9%83-%D8%AA%D8%B3%D8%AA%D9%86%D9%81%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A8%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84-1430998.html)
