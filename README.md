@@ -1,3 +1,15 @@
+### men gov ma (N/A, Fri, 13 Sep 2024 03:40:00 -0700)
+
+
+
+
+### بوسي (N/A, Fri, 13 Sep 2024 01:40:00 -0700)
+
+- **رقصت مع ابنها وحكيم ومسلم.. لقطات من عيد ميلاد بوسي الـ43**: [Link](https://www.elbalad.news/6319988)
+- **"أصبح شابا وشاركها الرقص".. ظهور نادر لابن المطربة بوسي بعيد ميلادها (صور وفيديو)**: [Link](https://www.masrawy.com/arts/zoom/details/2024/9/12/2641943/-%D8%A3%D8%B5%D8%A8%D8%AD-%D8%B4%D8%A7%D8%A8%D8%A7-%D9%88%D8%B4%D8%A7%D8%B1%D9%83%D9%87%D8%A7-%D8%A7%D9%84%D8%B1%D9%82%D8%B5-%D8%B8%D9%87%D9%88%D8%B1-%D9%86%D8%A7%D8%AF%D8%B1-%D9%84%D8%A7%D8%A8%D9%86-%D8%A7%D9%84%D9%85%D8%B7%D8%B1%D8%A8%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A-%D8%A8%D8%B9%D9%8A%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D8%AF%D9%87%D8%A7-%D8%B5%D9%88%D8%B1-%D9%88%D9%81%D9%8A%D8%AF%D9%8A%D9%88-)
+- **مش هتتخيل عندها كام سنة.. بوسي تشعل مواقع التواصل الاجتماعي بصور وفيديوهات جريئة**: [Link](https://www.christian-dogma.com/2239649)
+
+
 ### les traitres m6 (N/A, Fri, 13 Sep 2024 02:10:00 -0700)
 
 - **Télévision : Pourquoi « Les Traîtres » ne sera plus de la partie le jeudi 
