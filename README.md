@@ -1,3 +1,13 @@
+### mbour (N/A, Thu, 12 Sep 2024 15:40:00 -0700)
+
+- **Au Sénégal, le président promet une « traque sans répit » du trafic de 
+migrants**: [Link](https://www.lemonde.fr/afrique/article/2024/09/12/au-senegal-le-president-promet-une-traque-sans-repit-du-trafic-de-migrants_6314644_3212.html)
+- **Naufrage d'un bateau de migrants au large du Sénégal: au moins 39 morts, 
+selon, un nouveau bilan**: [Link](https://afrique.tv5monde.com/information/naufrage-dun-bateau-de-migrants-au-large-du-senegal-au-moins-39-morts-selon-un-nouveau)
+- **Migration vers l’Europe : la Marine sénégalaise intercepte plus de 400 
+migrants clandestins en mer**: [Link](https://www.jeuneafrique.com/1607317/societe/migration-vers-leurope-la-marine-senegalaise-intercepte-plus-de-400-migrants-clandestins-en-mer/)
+
+
 ### variole du singe maroc (N/A, Thu, 12 Sep 2024 16:40:00 -0700)
 
 - **Variole du singe: un premier cas détecté au Maroc (Officiel)**: [Link](https://ledesk.ma/encontinu/variole-du-singe-un-premier-cas-detecte-au-maroc-officiel/)
