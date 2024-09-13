@@ -1,3 +1,10 @@
+### inoxtag (N/A, Fri, 13 Sep 2024 12:20:00 -0700)
+
+- **Un projet « grandiose » et « stressant », les coulisses du docu haute tension d’Inoxtag**: [Link](https://www.huffingtonpost.fr/culture/video/kaizen-le-documentaire-d-inoxtag-un-projet-grandiose-et-stressant-jusqu-en-haut-de-l-everest_239527.html)
+- **"Himalaya business" : embouteillage sur le toit du monde**: [Link](https://www.sciencesetavenir.fr/decouvrir/himalaya-business-embouteillage-sur-le-toit-du-monde_180293)
+- **"Ce qui compte, c’est de rentrer vivant de l’Everest" : le Toulousain Samy Bouyssié a produit "Kaizen", le documentaire du Youtubeur Inoxtag**: [Link](https://www.ladepeche.fr/2024/09/12/ce-qui-compte-cest-de-rentrer-vivant-de-leverest-le-toulousain-samy-bouyssie-a-produit-kaizen-le-documentaire-dinoxtag-12193340.php)
+
+
 ### betis (N/A, Fri, 13 Sep 2024 12:40:00 -0700)
 
 - **Real Betis: el club de negocios alcanza las 180 empresas tras triplicar su 
