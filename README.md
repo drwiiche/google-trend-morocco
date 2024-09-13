@@ -1,3 +1,12 @@
+### les 12 coups de midi (N/A, Fri, 13 Sep 2024 15:30:00 -0700)
+
+- **"Il y a un énorme problème, on est obligé d’arrêter l’émission" : La 
+déclaration inattendue de Jean-Luc Reichmann dans Les 12 coups de midi**: [Link](https://www.programme-tv.net/news/tv/360498-il-y-a-un-enorme-probleme-on-est-oblige-darreter-lemission-la-declaration-inattendue-de-jean-luc-reichmann-dans-les-12-coups-de-midi/)
+- **La cagnotte des «12 coups de midi» dépasse les 2 millions d'euros**: [Link](https://www.lematin.ch/story/television-la-cagnotte-des-12-coups-de-midi-depasse-les-2-millions-d-euros-103182360)
+- **Les 12 Coups de Midi : grosse boulette sur le plateau, Emilien sauve une 
+concurrente d'une défaite injuste, "C'est assez extraordinaire..."**: [Link](https://www.purebreak.com/news/les-12-coups-de-midi-grosse-boulette-sur-le-plateau-emilien-sauve-une-concurrente-d-une-defaite-injuste-c-est-assez-extraordinaire/250906)
+
+
 ### est (N/A, Fri, 13 Sep 2024 12:20:00 -0700)
 
 - **n°990. Qui est Nio, le constructeur automobile chinois qui a reçu Mohcine 
