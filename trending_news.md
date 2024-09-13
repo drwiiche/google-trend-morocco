@@ -1,3 +1,21 @@
+### bruno le maire (N/A, Fri, 13 Sep 2024 05:20:00 -0700)
+
+- **Bruno Le Maire devient professeur à Lausanne, mais dit à bientôt aux 
+Français**: [Link](https://www.lemonde.fr/politique/article/2024/09/13/bruno-le-maire-devient-professeur-a-lausanne-mais-dit-a-bientot-aux-francais_6315767_823448.html)
+- **Changement de gouvernement : le ministre de l'Économie, Bruno Le Maire, 
+fait les choses en grand pour son départ de Bercy**: [Link](https://www.francetvinfo.fr/replay-radio/le-brief-politique/changement-de-gouvernement-le-ministre-de-l-economie-bruno-le-maire-fait-les-choses-en-grand-pour-son-depart-de-bercy_6750205.html)
+- **“Avec un serrement de coeur”, Bruno Le Maire est venu dire qu'il s'en va**: [Link](https://medias24.com/agence-presse/avec-un-serrement-de-coeur-bruno-le-maire-est-venu-dire-quil-sen-va/)
+
+
+### françois ruffin (N/A, Fri, 13 Sep 2024 04:10:00 -0700)
+
+- **François Ruffin : « Un désaccord électoral et moral s’est creusé avec 
+Jean-Luc Mélenchon »**: [Link](https://www.nouvelobs.com/politique/20240911.OBS93439/francois-ruffin-un-desaccord-electoral-et-moral-s-est-creuse-avec-jean-luc-melenchon.html)
+- **LFI : entre François Ruffin et les Insoumis, la guerre est déclarée**: [Link](https://www.lefigaro.fr/politique/lfi-entre-francois-ruffin-et-les-insoumis-la-guerre-est-declaree-20240913)
+- **"Quand je tombais sur un noir ou un arabe, je sortais la tête de Mélenchon 
+en bien gros", raconte François Ruffin**: [Link](https://www.i24news.tv/fr/actu/france/artc-quand-je-tombais-sur-un-noir-ou-un-arabe-je-sortais-la-tete-de-melenchon-en-bien-gros-sur-les-tracts-raconte-francois-ruffin)
+
+
 ### vendredi 13 (N/A, Fri, 13 Sep 2024 04:10:00 -0700)
 
 - **Pourquoi le vendredi 13 suscite-t-il tant de crainte ?**: [Link](https://www.lepoint.fr/eureka/pourquoi-le-vendredi-13-suscite-t-il-tant-de-crainte-13-09-2024-2570145_4706.php)
