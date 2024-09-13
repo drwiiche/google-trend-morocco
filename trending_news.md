@@ -1,3 +1,13 @@
+### visa angleterre (N/A, Fri, 13 Sep 2024 06:50:00 -0700)
+
+- **À partir de 2025, les touristes auront besoin d'un visa pour voyager au 
+Royaume-Uni**: [Link](https://www.francetvinfo.fr/monde/royaume-uni/a-partir-de-2025-les-touristes-auront-besoin-d-un-visa-pour-voyager-au-royaume-uni_6775666.html)
+- **Vous comptez visiter le Royaume-Uni l'année prochaine? Attention, un gros 
+changement aura lieu début 2025**: [Link](https://www.rtl.be/actu/monde/europe/vous-comptez-visiter-le-royaume-uni-lannee-prochaine-attention-un-gros/2024-09-12/article/710137)
+- **Le Royaume-Uni va généraliser l'obligation pour les visiteurs étrangers de 
+présenter une autorisation électronique d’entrée sur le territoire**: [Link](https://www.bfmtv.com/grand-lille/replay-emissions/bonjour-lille/le-royaume-uni-va-generaliser-l-obligation-pour-les-visiteurs-etrangers-de-presenter-une-autorisation-electronique-d-entree-sur-le-territoire_VN-202409130254.html)
+
+
 ### gaz maroc (N/A, Fri, 13 Sep 2024 06:40:00 -0700)
 
 - **Exploration gazière: Chariot annonce la présence de réservoirs de gaz dans 
