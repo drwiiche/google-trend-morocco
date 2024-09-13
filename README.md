@@ -1,3 +1,10 @@
+### live score (N/A, Fri, 13 Sep 2024 12:30:00 -0700)
+
+- **England play Australia live on Sky Sports: Fixtures, squads and team news ahead of three T20 internationals and five ODIs**: [Link](https://www.skysports.com/cricket/news/12173/13210434/england-play-australia-live-on-sky-sports-fixtures-squads-and-team-news-ahead-of-three-t20-internationals-and-five-odis)
+- **4,4,6,6,6,4: Travis Head Equals Ricky Ponting, Mitchell Marsh's Record During 1st T20I vs England**: [Link](https://sports.ndtv.com/cricket/4-4-6-6-6-4-travis-head-equals-ricky-ponting-mitchell-marshs-record-during-1st-t20i-vs-england-6549632)
+- **ENG vs AUS, 2nd T20I Match Prediction: Who Will Win Today's Match?**: [Link](https://cricket.one/cricket-analysis/eng-vs-aus-2nd-t20i-match-prediction-who-will-win-todays-match/66e3dbe8ac94d32b0f021271)
+
+
 ### bet365 (N/A, Fri, 13 Sep 2024 12:20:00 -0700)
 
 - **NFL Week 2 bet365 promo: $200 in bonus bets or first-bet insurance**: [Link](https://www.cbssports.com/betting/news/nfl-week-2-bet365-promo-200-in-bonuses-or-first-bet-insurance/)
