@@ -1,3 +1,21 @@
+### al-riyadh vs al-hilal (N/A, Sat, 14 Sep 2024 12:50:00 -0700)
+
+- **Surging Al Ettifaq, Al Riyadh out to stop Al Hilal**: [Link](https://onefootball.com/en/news/surging-al-ettifaq-al-riyadh-out-to-stop-al-hilal-40031233)
+- **Saudi Pro League: Al Fateh vs. Al-Ettifaq Offshore Odds, Preview, and Picks 
+(Sep 14)**: [Link](https://www.offshoresportsbooks.com/news/saudi-pro-league-al-fateh-vs-al-ettifaq-offshore-odds-preview-and-picks-sep-14/)
+- **Revealing the referee of the match between Al Hilal and Riyadh**: [Link](https://www.ysscores.com/en/news/3896252/Revealing-the-referee-of-the-match-between-Al-Hilal-and-Riyadh)
+
+
+### botola pro (N/A, Sat, 14 Sep 2024 12:10:00 -0700)
+
+- **'Rhulani Mokwena is concentrating on Mamelodi Sundowns & Wydad Casablanca 
+at the same time! He is going back home early. Even Kaizer Chiefs & Orlando 
+Pirates struggle vs lower-tier teams' - Fans**: [Link](https://www.goal.com/en-za/lists/rhulani-mokwena-is-concentrating-on-mamelodi-sundowns-and-wydad-casablanca-at-the-same-time-he-is-going-back-home-early-even-kaizer-chiefs-and-orlando-pirates-struggle-vs-lower-tier-teams-fans/blteb0ef56b1bcb03da)
+- **Rulani Picks Up First In Botola With Wydad**: [Link](https://www.idiskitimes.co.za/sa-stars-abroad/rulani-picks-up-first-in-botola-with-wydad/)
+- **Rhulani Mokwena’s Wydad Casablanca fail to beat second-tier club KAC 
+Marrakech in Excellence Cup**: [Link](https://www.goal.com/en-za/lists/rhulani-mokwena-s-wydad-casablanca-fail-to-beat-second-tier-club-kac-marrakech-in-excellence-cup/bltb50161423a0b1c0b)
+
+
 ### real madrid cf (N/A, Sat, 14 Sep 2024 12:20:00 -0700)
 
 - **The dream Real Madrid lineup for next season with five incredible 2025 
