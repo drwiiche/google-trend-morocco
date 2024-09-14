@@ -1,3 +1,12 @@
+### milan vs venezia (N/A, Sat, 14 Sep 2024 13:20:00 -0700)
+
+- **AC Milan-Venezia 4-0, Serie A 2024/2025: le statistiche**: [Link](https://www.acmilan.com/it/news/articoli/statistiche/2024-09-14/milan-venezia-tutti-i-numeri-della-gara)
+- **Theo Hernandez e Leao indispensabili: “Senza di loro lotti per la 
+Conference”**: [Link](https://www.milanlive.it/2024/09/13/theo-hernandez-e-leao-indispensabili-senza-di-loro-lotti-per-la-conference/)
+- **FLASH – Gol di Gabbia o gol di Fofana: la decisione! E la scelta 
+sull’assist a Pulisic**: [Link](https://www.sosfanta.com/box-focus/flash-gol-di-gabbia-gol-di-fofana-la-decisione-e-la-scelta-sullassist-a-pulisic/)
+
+
 ### laliga (N/A, Sat, 14 Sep 2024 14:00:00 -0700)
 
 - **Vitor Roque's dream debut at Villamarín**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/vitor-roque-s-dream-debut-at-villamar%C3%ADn-2024-09-14)
