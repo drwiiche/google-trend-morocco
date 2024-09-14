@@ -1,3 +1,12 @@
+### abbé pierre (N/A, Sat, 14 Sep 2024 05:10:00 -0700)
+
+- **Le Vatican était au courant des agressions sexuelles commises par l’abbé 
+Pierre depuis des années, selon le pape François**: [Link](https://www.lemonde.fr/international/article/2024/09/13/agressions-sexuelles-de-l-abbe-pierre-le-vatican-savait-depuis-des-annees-selon-le-pape-francois_6316750_3210.html)
+- **ENQUÊTE. Quand l’abbé Pierre menaçait ceux qui dénonçaient ses agissements**: [Link](https://www.francetvinfo.fr/enquetes-franceinfo/enquete-quand-l-abbe-pierre-menacait-ceux-qui-denoncaient-ses-agissements_6770512.html)
+- **Abbé Pierre : le pape reconnaît que le Vatican était informé des abus 
+sexuels**: [Link](https://www.lefigaro.fr/flash-actu/le-pape-reconnait-que-le-vatican-etait-informe-des-abus-sexuels-commis-par-l-abbe-pierre-20240913)
+
+
 ### manchester united (N/A, Sat, 14 Sep 2024 04:30:00 -0700)
 
 - **Two wonderkids 'officially' joined Manchester United on Friday including 
