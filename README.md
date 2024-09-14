@@ -1,3 +1,31 @@
+### holstein kiel – bayern (N/A, Sat, 14 Sep 2024 08:50:00 -0700)
+
+- **Wiedersehen mit Fiete Arp: Gekommen, um zu bleiben**: [Link](https://fcbayern.com/de/news/2024/09/wiedersehen-mit-fiete-arp-gekommen-um-zu-bleiben)
+- **Wenn Bayern-Stars nach Kiel kommen: So bereiten sich die Ostholsteiner 
+Bayernfans vor**: [Link](https://www.ndr.de/sport/fussball/bundesliga/Ostholsteiner-Bayernfans-Auswaertsspiel-in-eigener-Heimat,fcbayern142.html)
+- **Vorbericht: Der Rekordmeister zu Gast im Holstein-Stadion**: [Link](https://www.holstein-kiel.de/news-profis/vorbericht-der-rekordmeister-zu-gast-im-holstein-stadion/)
+
+
+### séville – getafe (N/A, Sat, 14 Sep 2024 08:50:00 -0700)
+
+- **DIRECT. Séville FC-Getafe (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/seville-fc-getafe-live/657324)
+- **Pronostic Séville - CF Getafe, Liga**: [Link](https://www.sportytrader.com/pronostics/seville-cf-getafe-214586/)
+
+
+### empoli – juventus (N/A, Sat, 14 Sep 2024 08:50:00 -0700)
+
+- **Serie A: Empoli-Juventus in campo alle 18**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/09/14/serie-a-empoli-juventus-in-campo-alle-18_cb29e3dc-cb86-4663-a8a9-12015aa46647.html)
+- **Juve, la formazione ufficiale: la scelta a sorpresa di Motta**: [Link](https://www.tuttosport.com/foto/calcio/serie-a/juventus/2024/09/14-132682270/juve_la_formazione_ufficiale_la_scelta_a_sorpresa_di_motta)
+- **Domani possibile debutto di Adzic? Le ultime novità**: [Link](https://www.tuttojuve.com/altre-notizie/domani-possibile-debutto-di-adzic-le-ultime-novita-702163)
+
+
+### koursk (N/A, Sat, 14 Sep 2024 08:50:00 -0700)
+
+- **Russian Offensive Campaign Assessment, September 11, 2024**: [Link](https://www.understandingwar.org/backgrounder/russian-offensive-campaign-assessment-september-11-2024)
+- **Russia claims it liberated 10 settlements in Kursk region**: [Link](https://www.aa.com.tr/en/russia-ukraine-war/russia-claims-it-liberated-10-settlements-in-kursk-region/3327529)
+- **Ukrainian Defense Forces Achieve New Breakthrough in Kursk Oblast**: [Link](https://mil.in.ua/en/news/ukrainian-defense-forces-achieve-new-breakthrough-in-kursk-oblast/)
+
+
 ### مانشستر سيتي (N/A, Sat, 14 Sep 2024 08:10:00 -0700)
 
 - **هالاند يضم أسطورة اليونايتد لقائمة ضحاياه**: [Link](https://m.kooora.com/?n=1354663&o=n)
