@@ -1,3 +1,12 @@
+### paris-sg – brest (N/A, Sat, 14 Sep 2024 11:30:00 -0700)
+
+- **PSG-Brest : la composition probable de Paris avec un milieu inédit autour 
+de Fabian Ruiz**: [Link](https://www.leparisien.fr/sports/football/psg/psg-brest-la-composition-probable-de-paris-avec-un-milieu-inedit-autour-de-fabian-ruiz-13-09-2024-S7AV6K2LSFHNDMQ2CCQOPHSVVI.php)
+- **Le gros défaut du PSG que Luis Enrique ne veut pas corriger**: [Link](https://www.footmercato.net/a5105969319386157611-le-gros-defaut-du-psg-que-luis-enrique-ne-veut-pas-corriger)
+- **Paris Saint-Germain - Brest I Bancal et limité : les réalités de l'effectif 
+du PSG**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/paris-saint-germain-brest-i-bancal-et-limite-les-realites-de-l-effectif-du-psg_sto10337563/story.shtml)
+
+
 ### bournemouth – chelsea (N/A, Sat, 14 Sep 2024 11:10:00 -0700)
 
 - **Bournemouth vs Chelsea: All you need to know | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/bournemouth-vs-chelsea-all-you-need-to-know)
