@@ -1,3 +1,34 @@
+### bayern (N/A, Sat, 14 Sep 2024 11:00:00 -0700)
+
+- **Didi Hamann Kolumne über Deutschland, FC Bayern, Jamal Musiala und Florian 
+Wirtz**: [Link](https://sport.sky.de/fussball/artikel/didi-hamann-kolumne-ueber-deutschland-fc-bayern-jamal-musiala-und-florian-wirtz/13212918/34090)
+- **Bayerns Sportchef verpasst Sky-Experte eine Ohrfeige wegen Musiala-Kritik**: [Link](https://www.focus.de/sport/fussball/bayerns-sportchef-verpasst-sky-experte-eine-ohrfeige-wegen-musiala-kritik_3a6bed17-aaa7-457e-bc5e-1e4345edcdac.html)
+- **Kritik vs. Lob: Bei Jungstar Musiala scheiden sich aktuell die Geister…**: [Link](https://abseits.at/fusball-international/deutschland/kritik-vs-lob-bei-jungstar-musiala-scheiden-sich-aktuell-die-geister/)
+
+
+### real sociedad – real madrid (N/A, Sat, 14 Sep 2024 11:00:00 -0700)
+
+- **Real Sociedad - Real Madrid en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/real-sociedad-r-madrid/2024/09/14/01_0101_20240914_188_186-directo.html)
+- **Posible alineación del Real Madrid hoy contra la Real Sociedad en LaLiga EA 
+Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-hoy-contra-la-real-sociedad-en-laliga-ea-sports-n/)
+- **Bultzada y toda Anoeta, claves hoy**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20240914/1002315338/bultzada-toda-anoeta-claves-hoy.html)
+
+
+### galatasaray vs rizespor (N/A, Sat, 14 Sep 2024 10:50:00 -0700)
+
+- **Super Eagles striker Victor Osimhen resumes training with Galatasaray, 
+reunites with ex-Napoli mate**: [Link](https://www.pulsesports.ng/football/story/super-eagles-striker-victor-osimhen-resumes-training-with-galatasaray-reunites-with-ex-napoli-mate-2024091217151452042)
+- **Old Napoli teammates Osimhen and Mertens reunited in Turkey – pictures**: [Link](https://football-italia.net/napoli-teammates-osimhen-mertens-galatasaray/)
+- **Osimhen loan move not entirely football related – Hamsik**: [Link](https://punchng.com/osimhen-loan-move-not-entirely-football-related-hamsik/)
+
+
+### juventus (N/A, Sat, 14 Sep 2024 10:50:00 -0700)
+
+- **Game Time Thread: Juventus vs. Empoli**: [Link](https://www.blackwhitereadallover.com/2024/9/14/24243582/empoli-juventus-2024-serie-a-round-4-lineups-team-news-live-online-streaming)
+- **Serie A line-ups: Empoli vs. Juventus**: [Link](https://football-italia.net/serie-a-line-ups-empoli-vs-juventus-3/)
+- **Preview: Empoli vs. Juventus - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/empoli/preview/preview-empoli-vs-juventus-prediction-team-news-lineups_552682.html)
+
+
 ### al riyad – al-hilal (N/A, Sat, 14 Sep 2024 10:20:00 -0700)
 
 - **Revealing the referee of the match between Al Hilal and Riyadh**: [Link](https://www.ysscores.com/en/news/3896252/Revealing-the-referee-of-the-match-between-Al-Hilal-and-Riyadh)
