@@ -1,3 +1,19 @@
+### هوفنهايم ضد ليفركوزن (N/A, Sat, 14 Sep 2024 07:40:00 -0700)
+
+- **ألونسو يدافع عن نجم ليفركوزن بعد هجوم كومان**: [Link](https://www.kooora.com/?n=1354470)
+- **ليفركوزن لتصحيح المسار وبايرن ميونيخ للفوز الثالث**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86-%D9%84%D8%AA%D8%B5%D8%AD%D9%8A%D8%AD-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%B1-%D9%88%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-%D9%84%D9%84%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-2024-09-13)
+- **بايرن ميونخ يواجه تحدي كيل بحثًا عن العلامة الكاملة واستعادة هيبته**: [Link](https://www.ajmannews.ae/news.php?id=127278&cat_id=4)
+
+
+### haaland (N/A, Sat, 14 Sep 2024 07:40:00 -0700)
+
+- **Haaland, Savinho and Gundogan all start against Brentford**: [Link](https://www.mancity.com/news/mens/manchester-city-brentford-202425-team-news-63861910)
+- **Pep Guardiola issues Erling Haaland update after death of close family 
+friend**: [Link](https://sports.yahoo.com/pep-guardiola-issues-erling-haaland-122113425.html)
+- **Erling Haaland: Pep Guardiola reveals whether Man City striker will miss 
+Brentford clash**: [Link](https://www.sportsmole.co.uk/football/man-city/news/haaland-update-will-man-city-striker-play-against-brentford_552841.html)
+
+
 ### hoffenheim vs leverkusen (N/A, Sat, 14 Sep 2024 07:30:00 -0700)
 
 - **Preview: Hoffenheim vs. Bayer Leverkusen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/hoffenheim/preview/preview-hoffenheim-vs-bpoint-leverkusen-prediction-team-news-lineups_552756.html)
