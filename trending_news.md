@@ -1,3 +1,11 @@
+### dortmund vs heidenheim (N/A, Fri, 13 Sep 2024 13:10:00 -0700)
+
+- **BVB: Karim Adeyemi überragend! Guirassy-Debüt! Schwarz-Gelber Spektakel-Sieg**: [Link](https://www.bild.de/sport/fussball/bvb-karim-adeyemi-ueberragend-guirassy-debuet-schwarz-gelber-spektakel-sieg-66e479918a8d962b48bbd30a)
+- **Frank Schmidt: "Ähnlich wie letztes Jahr" | Heidenheims Trainer nach 
+Auswärtspleite | Video**: [Link](https://www.kicker.at/frank-schmidt-aehnlich-wie-letztes-jahr-1051034/video)
+- **Bundesliga - Dortmund-Heidenheim 4:2**: [Link](https://www.deutschlandfunk.de/dortmund-heidenheim-4-104.html)
+
+
 ### ناهد رشدي (N/A, Fri, 13 Sep 2024 18:00:00 -0700)
 
 - **بعد صراع مع المرض.. وفاة نجمة "لن أعيش في جلباب أبي"**: [Link](https://www.alarabiya.net/culture-and-art/2024/09/14/%D8%A8%D8%B9%D8%AF-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%B1%D8%B6-%D9%88%D9%81%D8%A7%D8%A9-%D9%86%D8%AC%D9%85%D8%A9-%D9%84%D9%86-%D8%A3%D8%B9%D9%8A%D8%B4-%D9%81%D9%8A-%D8%AC%D9%84%D8%A8%D8%A7%D8%A8-%D8%A3%D8%A8%D9%8A-)
