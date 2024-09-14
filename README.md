@@ -1,3 +1,10 @@
+### hoffenheim vs leverkusen (N/A, Sat, 14 Sep 2024 07:30:00 -0700)
+
+- **Preview: Hoffenheim vs. Bayer Leverkusen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/hoffenheim/preview/preview-hoffenheim-vs-bpoint-leverkusen-prediction-team-news-lineups_552756.html)
+- **#TSGB04: Baumann set for milestone against champions**: [Link](https://onefootball.com/en/news/tsgb04-baumann-set-for-milestone-against-champions-40016289)
+- **Leverkusen look to shore up defence, Bayern eye third straight win**: [Link](https://www.reuters.com/sports/soccer/leverkusen-look-shore-up-defence-bayern-eye-third-straight-win-2024-09-12/)
+
+
 ### marseille – nice (N/A, Sat, 14 Sep 2024 07:20:00 -0700)
 
 - **L’OM punit Nice**: [Link](https://www.footmercato.net/a3688424320433261407-lom-punit-nice)
