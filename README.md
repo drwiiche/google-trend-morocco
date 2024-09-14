@@ -1,3 +1,19 @@
+### sebta (N/A, Sat, 14 Sep 2024 02:30:00 -0700)
+
+- **État d’alerte à Ceuta suite aux appels à l’immigration massive ce dimanche**: [Link](https://ledesk.ma/encontinu/etat-dalerte-a-ceuta-suite-aux-appels-a-limmigration-massive-ce-dimanche/)
+- **Emigration: grâce aux hommes de Hammouchi, l’Espagne retire ses forces 
+spéciales de Sebta et Melilla**: [Link](https://fr.le360.ma/politique/emigration-grace-aux-hommes-de-hammouchi-lespagne-retire-ses-forces-speciales-de-sebta-et-melilla_6BQW4JGKVVB3JGUP3O5NHCN47U/)
+- **Fnideq : Mobilisation sécuritaire massive face à des appels à une migration 
+collective vers Ceuta**: [Link](https://maroc-diplomatique.net/fnideq-mobilisation-securitaire-massive-face-a-des-appels-a-une-migration-collective-vers-ceuta/)
+
+
+### عطلة المولد النبوي 2024 (N/A, Sat, 14 Sep 2024 01:30:00 -0700)
+
+- **موعد وعدد أيام عطلة ذكرى المولد النبوي بالمغرب 2024**: [Link](https://m.alayam24.com/articles-526123.html)
+- **عطلة رسمية على الأبواب للشعب المغربي.**: [Link](https://sabahagadir.ma/315627.html)
+- **الشعب المغربي على أبواب عطلة الأسبوع المقبل**: [Link](https://www.analkhabar.com/%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D9%84%D9%89-%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D8%A7/)
+
+
 ### pape françois (N/A, Sat, 14 Sep 2024 02:00:00 -0700)
 
 - **Le pape admet que le Vatican était au courant des agissements de l’abbé Pierre, «un terrible pêcheur**: [Link](https://www.liberation.fr/societe/religions/le-pape-admet-que-le-vatican-etait-au-courant-des-accusations-visant-labbe-pierre-un-terrible-pecheur-20240913_U6CNGKO3XJGUJJFOWUDAUECWRE/)
