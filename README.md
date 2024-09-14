@@ -1,3 +1,10 @@
+### الجيش الملكي (N/A, Sat, 14 Sep 2024 06:40:00 -0700)
+
+- **ثلاثي الجيش الملكي يغيب أمام المريخ**: [Link](https://m.kooora.com/?n=1354327)
+- **عصبة أبطال إفريقيا.. استقبال استثنائي للجيش بجنوب السودان**: [Link](https://www.almountakhab.com/node/13204288)
+- **الأندية المغربية تسعى للاقتراب من التأهل لدور المجموعات بالمسابقات القارية**: [Link](https://al3omk.com/964836.html)
+
+
 ### brighton – ipswich town (N/A, Sat, 14 Sep 2024 06:30:00 -0700)
 
 - **AWAY DAY GUIDE | BRIGHTON & HOVE ALBION**: [Link](https://www.itfc.co.uk/news/2024/september/13/away-day-guide---brighton/)
