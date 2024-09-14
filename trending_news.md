@@ -1,3 +1,18 @@
+### هولشتاين كيل ضد البايرن (N/A, Sat, 14 Sep 2024 09:30:00 -0700)
+
+- **بالينيا أساسيا للمرة الأولى مع بايرن ميونخ**: [Link](https://m.kooora.com/?n=1354673&o=n)
+- **نوير وإنجاز منتظر حال الفوز على هولشتاين كيل**: [Link](https://hihi2.com/2024/09/14/p2847652.html)
+- **سانيه يعود إلى تشكيلة بايرن ميونيخ**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B3%D8%A7%D9%86%D9%8A%D9%87-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-2024-09-13)
+
+
+### vinicius jr (N/A, Sat, 14 Sep 2024 09:30:00 -0700)
+
+- **Ancelotti: “We're aware that we're entering a very demanding period of the 
+schedule”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rueda-de-prensa-de-ancelotti-previa-al-real-sociedad-real-madrid-13-09-2024)
+- **Mbappe, Vinicius unaffected by criticism- Madrid coach**: [Link](https://www.jamaicaobserver.com/2024/09/13/mbappe-vinicius-unaffected-criticism-madrid-coach/)
+- **Vinicius backed to return to best form by Ancelotti**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/vinicius-backed-to-return-to-best-form-by-ancelotti-2024-09-13)
+
+
 ### galatasaray – rizespor (N/A, Sat, 14 Sep 2024 09:20:00 -0700)
 
 - **RAMS Park'ta oynanacak maç saat 20.00'de başlayacak**: [Link](https://www.bagimsiz.com/rams-parkta-oynanacak-mac-saat-2000de-baslayacak)
