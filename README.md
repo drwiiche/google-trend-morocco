@@ -1,3 +1,10 @@
+### مانشستر سيتي (N/A, Sat, 14 Sep 2024 08:10:00 -0700)
+
+- **هالاند يضم أسطورة اليونايتد لقائمة ضحاياه**: [Link](https://m.kooora.com/?n=1354663&o=n)
+- **التشكيلة الرسمية لمواجهة مانشستر سيتي وبرينتفورد**: [Link](https://hihi2.com/2024/09/14/p2847671.html)
+- **مدربون بالبريميرليغ حائرون: كيف نوقف هالاند؟**: [Link](https://www.aljazeera.net/sport/2024/9/13/haaland-manchester-city-premierleague)
+
+
 ### wydad (N/A, Sat, 14 Sep 2024 08:00:00 -0700)
 
 - **Botola : le Wydad présente ses nouvelles recrues avant de croiser le fer 
