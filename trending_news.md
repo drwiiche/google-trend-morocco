@@ -1,3 +1,19 @@
+### bayern munich (N/A, Sat, 14 Sep 2024 09:40:00 -0700)
+
+- **Holstein Kiel vs Bayern Munich: Lineups, team news, injuries, and more!**: [Link](https://www.bavarianfootballworks.com/2024/9/13/24243834/holstein-kiel-vs-bayern-munich-lineups-team-news-injuries-jamal-musiala-joao-palhinha-sacha-boey)
+- **Holstein Kiel - FC Bayern Munich live: Bundesliga - Football**: [Link](https://www.tntsports.co.uk/football/bundesliga/2024-2025/live-holstein-kiel-fc-bayern-munich_mtc1533047/live-commentary.shtml)
+- **Holstein Kiel vs Bayern Munich prediction and betting tips on September 14, 
+2024**: [Link](https://ratingbet.com/predictions/holstein-kiel-vs-bayern-munich-prediction-and-betting-tips-on-september-14-2024/)
+
+
+### bundesliga (N/A, Sat, 14 Sep 2024 09:40:00 -0700)
+
+- **Spielbericht Bundesliga RB Leipzig gegen 1. FC Union Berlin**: [Link](https://rbleipzig.com/news/2024-2025/spielbericht-bundesliga-rb-leipzig-gegen-1-fc-union-berlin-am-14-september-2024/)
+- **Trotz Elfmeter-Geschenks: Nullnummer gegen Union: RB verpasst 
+Tabellenführung**: [Link](https://rblive.de/news/trotz-elfmeter-geschenks-nullnummer-gegen-union-rb-verpasst-tabellenfuehrung-3916301)
+- **Rose & Svensson nicht an der Seitenlinie bei Leipzig gegen Union**: [Link](https://sport.sky.de/fussball/artikel/rose-svensson-nicht-an-der-seitenlinie-bei-leipzig-gegen-union/13214411/33896)
+
+
 ### هولشتاين كيل ضد البايرن (N/A, Sat, 14 Sep 2024 09:30:00 -0700)
 
 - **بالينيا أساسيا للمرة الأولى مع بايرن ميونخ**: [Link](https://m.kooora.com/?n=1354673&o=n)
