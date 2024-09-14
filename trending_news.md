@@ -1,3 +1,39 @@
+### al riyad – al-hilal (N/A, Sat, 14 Sep 2024 10:20:00 -0700)
+
+- **Revealing the referee of the match between Al Hilal and Riyadh**: [Link](https://www.ysscores.com/en/news/3896252/Revealing-the-referee-of-the-match-between-Al-Hilal-and-Riyadh)
+- **Al Riyadh vs Al Hilal Predicted Lineup, betting tips, odds, injury news, 
+H2H, telecast | Saudi Pro League 2024-25**: [Link](https://khelnow.com/football/world-football-al-riyadh-vs-al-hilal-saudi-pro-league-match-preview-202409)
+- **Al-Riyadh vs Al-Hilal Prediction and Betting Tips | 14th September 2024**: [Link](https://www.sportskeeda.com/football/al-riyadh-vs-al-hilal-prediction-betting-tips-14th-september-2024)
+
+
+### aston villa (N/A, Sat, 14 Sep 2024 10:20:00 -0700)
+
+- **Team news for Toffees test**: [Link](https://www.avfc.co.uk/news/2024/september/13/team-news-for-toffees-test/)
+- **Unai Emery sees competition as a good thing for Ollie Watkins and Jhon Duran**: [Link](https://www.gazetteherald.co.uk/sport/national/24583983.unai-emery-sees-competition-good-thing-ollie-watkins-jhon-duran/)
+- **Villa v Everton team news: Konsa and Watkins start**: [Link](https://www.fantasyfootballscout.co.uk/2024/09/14/villa-v-everton-team-news-konsa-and-watkins-start/)
+
+
+### widad (N/A, Sat, 14 Sep 2024 10:20:00 -0700)
+
+- **Widad to acquire Nilai industrial lands; purchase price to be determined**: [Link](https://www.thestar.com.my/business/business-news/2024/09/11/widad-to-acquire-nilai-industrial-lands-purchase-price-to-be-determined)
+- **Hextar Technologies in exclusive talks with Widad Group to sell Negeri 
+Sembilan land**: [Link](https://themalaysianreserve.com/2024/09/11/hextar-technologies-in-exclusive-talks-with-widad-group-to-sell-negeri-sembilan-land/)
+- **Hextar Technologies in talks to sell five industrial plots to Widad**: [Link](https://www.edgeprop.my/content/1910450/hextar-technologies-talks-sell-five-industrial-plots-widad)
+
+
+### el bakkali (N/A, Sat, 14 Sep 2024 10:20:00 -0700)
+
+- **سفيان البقالي يفشل في الفوز بسباق 3000 متر موانع في نهائي الدوري الماسي 
+ببروكسيل**: [Link](https://alyaoum24.com/1915061.html)
+- **البقالي يفشل في التتويج بالدوري الماسي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A8%D9%82%D8%A7%D9%84%D9%8A-%D9%8A%D9%81%D8%B4%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%A7%D8%B3-1431002.html)
+- **أفضل إنجاز عالمي في السنة.. البقالي يفوز بسباق 3000م موانع**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A8%D9%82%D8%A7%D9%84%D9%8A-%D9%88%D8%AA%D9%8A%D9%86%D8%AF%D9%88%D9%81%D8%AA-%D9%8A%D8%AE%D9%88%D8%B6%D8%A7%D9%86-%D8%AA%D8%AD%D8%AF%D9%8A%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7-%D8%A8/)
+
+
+### arryadia (N/A, Sat, 14 Sep 2024 10:00:00 -0700)
+
+
+
+
 ### auxerre – monaco (N/A, Sat, 14 Sep 2024 10:10:00 -0700)
 
 - **DIRECT. Auxerre-Monaco (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/auxerre-monaco-live/655885)
