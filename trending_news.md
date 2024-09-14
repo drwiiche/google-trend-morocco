@@ -1,3 +1,37 @@
+### manchester city – brentford (N/A, Sat, 14 Sep 2024 06:10:00 -0700)
+
+- **Haaland, Savinho and Gundogan all start against Brentford**: [Link](https://www.mancity.com/news/mens/manchester-city-brentford-202425-team-news-63861910)
+- **Pep Guardiola provides important fitness update on Rodri and Phil Foden 
+ahead of Brentford clash**: [Link](https://onefootball.com/fr/news/pep-guardiola-provides-important-fitness-update-on-rodri-and-phil-foden-ahead-of-brentford-clash-40031836)
+- **Alan Shearer shares Man City prediction for Brentford clash**: [Link](https://www.manchestercity.news/alan-shearer-has-now-shared-who-he-thinks-will-win-out-of-man-city-and-brentford/)
+
+
+### liverpool – nottm forest (N/A, Sat, 14 Sep 2024 06:10:00 -0700)
+
+- **Injury and availability news: Updates on Federico Chiesa, Harvey Elliott 
+and Alexis Mac Allister**: [Link](https://www.liverpoolfc.com/news/injury-and-availability-news-updates-federico-chiesa-harvey-elliott-and-alexis-mac-allister)
+- **Curtis Jones returns to Liverpool training ahead of Nottingham Forest game 
+- The Athletic**: [Link](https://www.nytimes.com/athletic/5758354/2024/09/10/curtis-jones-liverpool-nottingham-forest/)
+- **Paddy Power Free Bets: Get 40/1 On Luis Diaz To Have A Shot On Target vs 
+Nott’m Forest**: [Link](https://www.101greatgoals.com/free-bets/paddy-power-free-bets-get-40-1-on-luis-diaz-to-have-a-shot-on-target-vs-nottm-forest/)
+
+
+### مانشستر يونايتد (N/A, Sat, 14 Sep 2024 06:10:00 -0700)
+
+- **راشفورد ينهي نحسا دام 6 أشهر في البريميرليج**: [Link](https://m.kooora.com/?n=1354626&o=n)
+- **أونانا يتصدى لركلة جزاء ساوثهامبتون**: [Link](https://hihi2.com/2024/09/14/p2847602.html)
+- **مباراة مانشستر يونايتد وساوثهامبتون اليوم مباشر لحظة بلحظة (0-0) في فرصة 
+أخيرة لتين هاج في الدوري الإنجليزي**: [Link](https://www.alkhabarpress.ma/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%B3%D8%A7%D9%88%D8%AB%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86/2849/)
+
+
+### villarreal (N/A, Sat, 14 Sep 2024 06:00:00 -0700)
+
+- **Mallorca - Villarreal, en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/mallorca-villarreal/2024/09/14/01_0101_20240914_181_449-directo.html)
+- **Arrasate habla de Muriqi, Abdón, Darder, Morlanes, Chiquinho, Valery, 
+Doménech, Maffeo, Morey, Llabrés y el Villarreal**: [Link](https://www.futbolfantasy.com/laliga/noticias/119760-arrasate-habla-de-muriqi-abdon-darder-morlanes-chiquinho-valery-domenech-maffeo-morey-llabres)
+- **Marcelino García Toral busca su primer triunfo en Son Moix al sexto intento**: [Link](https://www.castelloninformacion.com/marcelino-garcia-toral-busca-su-primer-triunfo-en-son-moix-al-sexto-intento/)
+
+
 ### hoffenheim – leverkusen (N/A, Sat, 14 Sep 2024 05:40:00 -0700)
 
 - **Die TSG-Startelf gegen Leverkusen**: [Link](https://www.tsg-hoffenheim.de/aktuelles/news/2024/09/die-tsg-startelf-gegen-leverkusen)
