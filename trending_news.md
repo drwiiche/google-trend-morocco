@@ -1,3 +1,17 @@
+### بي اس جي ضد بريست (N/A, Sat, 14 Sep 2024 11:50:00 -0700)
+
+- **الشبل المغربي يرافق حكيمي في لائحة لويس إنريكي**: [Link](https://www.almountakhab.com/node/13204309)
+- **رغم الظرف الطارئ.. دوناروما يحمي عرين باريس أمام بريست**: [Link](https://m.kooora.com/?n=1354736&o=n)
+- **لويس إنريكي يضم وجها مغربيا جديدا لقائمة باريس سان جيرمان أمام بريست**: [Link](https://ar.hibapress.com/details-551306.html)
+
+
+### real sociedad (N/A, Sat, 14 Sep 2024 11:50:00 -0700)
+
+- **Preview: Real Sociedad vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/preview/preview-real-sociedad-vs-real-madrid-prediction-team-news-lineups_552747.html)
+- **Ancelotti: Bellingham not yet ready to return**: [Link](https://www.espn.com/soccer/story/_/id/41243318/jude-bellingham-not-fit-real-sociedad-match-ancelotti)
+- **Real Madrid’s Ancelotti hints at more playing time for Arda Guler**: [Link](https://www.turkiyetoday.com/sports/ancelotti-arda-guler-52702/)
+
+
 ### paris-sg – brest (N/A, Sat, 14 Sep 2024 11:30:00 -0700)
 
 - **PSG-Brest : la composition probable de Paris avec un milieu inédit autour 
