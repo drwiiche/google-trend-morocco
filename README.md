@@ -1,3 +1,11 @@
+### brighton – ipswich town (N/A, Sat, 14 Sep 2024 06:30:00 -0700)
+
+- **AWAY DAY GUIDE | BRIGHTON & HOVE ALBION**: [Link](https://www.itfc.co.uk/news/2024/september/13/away-day-guide---brighton/)
+- **Joao Pedro update provided by Brighton manager Fabian Hurzeler**: [Link](https://metro.co.uk/2024/09/12/joao-pedro-update-provided-brighton-manager-fabian-hurzeler-21593587/)
+- **Preview: Brighton & Hove Albion vs. Ipswich Town - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/brighton-and-hove-albion/preview/preview-brighton-vs-ipswich-prediction-team-news-lineups_552768.html)
+
+
 ### crystal palace – leicester (N/A, Sat, 14 Sep 2024 06:20:00 -0700)
 
 - **Cooper: No Changes To Availability For Palace**: [Link](https://www.lcfc.com/news/4115123/cooper-no-changes-to-availability-for-palace)
