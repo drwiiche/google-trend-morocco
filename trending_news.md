@@ -1,3 +1,18 @@
+### auxerre – monaco (N/A, Sat, 14 Sep 2024 10:10:00 -0700)
+
+- **DIRECT. Auxerre-Monaco (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/auxerre-monaco-live/655885)
+- **Adi Hütter : "Nous ne devons pas encore penser à Barcelone"**: [Link](https://www.asmonaco.com/adi-hutter-nous-ne-devons-pas-encore-penser-a-barcelone/)
+- **AJA-ASM : Les compositions probables**: [Link](https://asm-supporters.fr/actualites/60058-aja-asm-les-compositions-probables-2)
+
+
+### pleine lune septembre 2024 (N/A, Sat, 14 Sep 2024 09:50:00 -0700)
+
+- **La Pleine Lune du 18 septembre 2024 sera une Super Lune doublée d’une 
+éclipse !**: [Link](https://www.vogue.fr/article/pleine-lune-septembre-2024-super-lune-eclipse)
+- **La Harvester Moon illuminera le ciel la semaine prochaine**: [Link](https://www.arabiaweather.com/fr/content/%D9%82%D9%85%D8%B1-%D8%A7%D9%84%D8%AD%D8%B5%D8%A7%D8%AF%D9%8A%D9%86-%D9%8A%D8%B6%D9%8A%D8%A1-%D8%A7%D9%84%D8%B3%D9%85%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84)
+- **Ne ratez pas l’éclipse lunaire partielle en Tunisie !**: [Link](https://www.tuniscope.com/article/390017/actualites/tunisie/ne-ratez-pas-l-eclipse-lunaire-partielle-en-tunisie-512912)
+
+
 ### الوداد (N/A, Sat, 14 Sep 2024 09:50:00 -0700)
 
 - **بالصور.. مبارك يؤكد انفراد كووورة بقميص الوداد**: [Link](https://www.kooora.com/?n=1354537)
