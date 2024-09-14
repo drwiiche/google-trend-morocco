@@ -1,3 +1,11 @@
+### inter miami (N/A, Sat, 14 Sep 2024 14:50:00 -0700)
+
+- **Messi’s back! Inter Miami captain expected to play vs. Philadelphia after 
+injury layoff**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article292329429.html)
+- **Messi poised for Inter Miami return**: [Link](https://thesun.my/sport/messi-poised-for-inter-miami-return-HC13001699)
+- **Sickness Derails Lionel Messi's Inter Miami Comeback**: [Link](https://www.si.com/soccer/sickness-derails-lionel-messi-s-inter-miami-comeback)
+
+
 ### pâte à tartiner algérienne (N/A, Sat, 14 Sep 2024 14:40:00 -0700)
 
 - **El Mordjene : coup d’arrêt pour l’exportation vers l’Europe**: [Link](https://www.tsa-algerie.com/el-mordjene-coup-darret-pour-lexportation-vers-leurope/)
