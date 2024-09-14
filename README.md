@@ -1,3 +1,10 @@
+### pape françois (N/A, Sat, 14 Sep 2024 02:00:00 -0700)
+
+- **Le pape admet que le Vatican était au courant des agissements de l’abbé Pierre, «un terrible pêcheur**: [Link](https://www.liberation.fr/societe/religions/le-pape-admet-que-le-vatican-etait-au-courant-des-accusations-visant-labbe-pierre-un-terrible-pecheur-20240913_U6CNGKO3XJGUJJFOWUDAUECWRE/)
+- **Le Vatican était au courant des agressions sexuelles commises par l’abbé Pierre depuis des années, selon le pape François**: [Link](https://www.lemonde.fr/international/article/2024/09/13/agressions-sexuelles-de-l-abbe-pierre-le-vatican-savait-depuis-des-annees-selon-le-pape-francois_6316750_3210.html)
+- **ENQUÊTE. Quand l’abbé Pierre menaçait ceux qui dénonçaient ses agissements**: [Link](https://www.francetvinfo.fr/enquetes-franceinfo/enquete-quand-l-abbe-pierre-menacait-ceux-qui-denoncaient-ses-agissements_6770512.html)
+
+
 ### zone-turf (N/A, Sat, 14 Sep 2024 00:20:00 -0700)
 
 - **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 8 Jazzman 
