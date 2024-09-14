@@ -1,3 +1,12 @@
+### pate el mordjene (N/A, Sat, 14 Sep 2024 06:00:00 -0700)
+
+- **El Mordjene : coup d’arrêt pour l’exportation vers l’Europe**: [Link](https://www.tsa-algerie.com/el-mordjene-coup-darret-pour-lexportation-vers-leurope/)
+- **La pâte à tartiner Mordjene est interdite en Europe, des containers entiers 
+seraient bloqués à Marseille**: [Link](https://www.lavoixdunord.fr/1501960/article/2024-09-14/la-pate-tartiner-mordjene-est-interdite-en-europe-des-containers-entiers)
+- **VIDÉO. « J’en ai vendu 5000 en un été » : cette pâte à tartiner algérienne 
+que le monde s’arrache**: [Link](https://www.leparisien.fr/video/video-jen-ai-vendu-5000-en-un-ete-quelle-est-cette-pate-a-tartiner-algerienne-que-le-monde-sarrache-07-09-2024-AYXGSTTYUBGSRMGW67QRYE4NBE.php)
+
+
 ### الجيش الملكي (N/A, Sat, 14 Sep 2024 06:40:00 -0700)
 
 - **ثلاثي الجيش الملكي يغيب أمام المريخ**: [Link](https://m.kooora.com/?n=1354327)
