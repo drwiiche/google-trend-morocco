@@ -1,3 +1,26 @@
+### marseille – nice (N/A, Sat, 14 Sep 2024 07:20:00 -0700)
+
+- **L’OM punit Nice**: [Link](https://www.footmercato.net/a3688424320433261407-lom-punit-nice)
+- **OM-Nice : le groupe retenu par De Zerbi avec un forfait de taille**: [Link](https://www.lephoceen.fr/infos-om/autour-de-l-om/om-nice-le-groupe-retenu-par-de-zerbi-avec-un-forfait-de-taille-219061)
+- **Pronostic OM Nice : Analyse, cotes et prono de l’affiche de Ligue 1**: [Link](https://www.sofoot.com/breves/pronostic-om-nice-analyse-cotes-et-prono-de-laffiche-de-ligue-1)
+
+
+### espanyol – deportivo alavés (N/A, Sat, 14 Sep 2024 07:20:00 -0700)
+
+- **Con la moral por las nubes para recibir al Alavés**: [Link](https://www.lavanguardia.com/deportes/rcde-espanyol/20240914/9939827/moral-nubes-recibir-alaves.html)
+- **García Plaza alerta de los agarrones en el área**: [Link](https://nortexpres.com/garcia-plaza-alerta-de-los-agarrones-en-el-area/)
+- **Manolo, sobre Cabrera, Calero, Kumbulla, Ünüvar, Cheddira, Véliz y el Alavés**: [Link](https://www.futbolfantasy.com/laliga/noticias/119765-manolo-sobre-cabrera-calero-kumbulla-unuvar-cheddira-veliz-y-el-alaves)
+
+
+### manchester city (N/A, Sat, 14 Sep 2024 07:10:00 -0700)
+
+- **Man City hearing: Manager Pep Guardiola says Premier League rivals want to 
+see us punished**: [Link](https://www.bbc.com/sport/football/articles/c79w9p114d5o)
+- **Man City hearing into 115 Premier League charges to begin next week**: [Link](https://www.thetimes.com/sport/football/article/manchester-city-legal-battle-hearing-start-3br3tp8zt)
+- **Man City 115 charges punishment: Expulsion to non-league an option but 
+titles and trophies likely to remain**: [Link](https://www.standard.co.uk/sport/football/man-city-115-charges-explained-punishment-verdict-b1159138.html)
+
+
 ### man city (N/A, Sat, 14 Sep 2024 07:10:00 -0700)
 
 - **Man City hearing: Manager Pep Guardiola says Premier League rivals want to 
