@@ -1,3 +1,28 @@
+### bournemouth – chelsea (N/A, Sat, 14 Sep 2024 11:10:00 -0700)
+
+- **Bournemouth vs Chelsea: All you need to know | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/bournemouth-vs-chelsea-all-you-need-to-know)
+- **Andoni Iraola admits 'difficulty' with Chelsea tactics preparation**: [Link](https://metro.co.uk/2024/09/13/andoni-iraola-admits-difficulty-chelsea-tactics-preparation-21602670/)
+- **Opinion: The starting Xl Enzo Maresca could go for against Bournemouth**: [Link](https://www.talkchelsea.net/opinions/opinion-the-starting-xl-enzo-maresca-could-go-for-against-bournemouth/)
+
+
+### ac milan – venezia (N/A, Sat, 14 Sep 2024 11:10:00 -0700)
+
+- **Fonseca treating Venezia as tough test for Milan**: [Link](https://www.beinsports.com/en-nz/football/serie-a/articles/fonseca-treating-venezia-as-tough-test-for-milan-2024-09-13)
+- **Gallery: ‘Rely on Abraham’, ‘Maignan optimism’ – Today’s headlines in 
+Gazzetta dello Sport**: [Link](https://sempremilan.com/galley-abraham-maignan-optimism-headlines-gazzetta)
+- **Milan vs Venezia prediction and betting tips on September 14, 2024 – 
+Ratingbet.com**: [Link](https://ratingbet.com/predictions/milan-vs-venezia-prediction-and-betting-tips-on-september-14-2024/)
+
+
+### les 12 coups de midi étoile (N/A, Sat, 14 Sep 2024 11:10:00 -0700)
+
+- **"Il y a un énorme problème, on est obligé d’arrêter l’émission" : La 
+déclaration inattendue de Jean-Luc Reichmann dans Les 12 coups de midi**: [Link](https://www.programme-tv.net/news/tv/360498-il-y-a-un-enorme-probleme-on-est-oblige-darreter-lemission-la-declaration-inattendue-de-jean-luc-reichmann-dans-les-12-coups-de-midi/)
+- **La cagnotte des «12 coups de midi» dépasse les 2 millions d'euros**: [Link](https://www.lematin.ch/story/television-la-cagnotte-des-12-coups-de-midi-depasse-les-2-millions-d-euros-103182360)
+- **Les 12 Coups de Midi : grosse boulette sur le plateau, Emilien sauve une 
+concurrente d'une défaite injuste, "C'est assez extraordinaire..."**: [Link](https://www.purebreak.com/news/les-12-coups-de-midi-grosse-boulette-sur-le-plateau-emilien-sauve-une-concurrente-d-une-defaite-injuste-c-est-assez-extraordinaire/250906)
+
+
 ### bayern (N/A, Sat, 14 Sep 2024 11:00:00 -0700)
 
 - **Didi Hamann Kolumne über Deutschland, FC Bayern, Jamal Musiala und Florian 
