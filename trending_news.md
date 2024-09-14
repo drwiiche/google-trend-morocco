@@ -1,3 +1,11 @@
+### real sociedad – real madrid : temps forts (N/A, Sat, 14 Sep 2024 13:50:00 -0700)
+
+- **DIRECT. Real Sociedad-Real Madrid (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-sociedad-real-madrid-live/657327)
+- **Liga : Le Real Madrid bat difficilement le Real Sociedad avec deux 
+penalties de Vinicius et Mbappé**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-le-real-madrid-bat-difficilement-le-real-sociedad-avec-deux-penalties-de-vinicius-et-mbappe_sto10340019/story.shtml)
+- **Liga : Kylian Mbappé marque et fait le break !**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/liga-kylian-mbapp%C3%A9-marque-et-fait-le-break-2024-09-14)
+
+
 ### milan vs venezia (N/A, Sat, 14 Sep 2024 13:20:00 -0700)
 
 - **AC Milan-Venezia 4-0, Serie A 2024/2025: le statistiche**: [Link](https://www.acmilan.com/it/news/articoli/statistiche/2024-09-14/milan-venezia-tutti-i-numeri-della-gara)
