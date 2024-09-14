@@ -1,3 +1,18 @@
+### hoffenheim – leverkusen (N/A, Sat, 14 Sep 2024 05:40:00 -0700)
+
+- **Die TSG-Startelf gegen Leverkusen**: [Link](https://www.tsg-hoffenheim.de/aktuelles/news/2024/09/die-tsg-startelf-gegen-leverkusen)
+- **Bundesliga live Nach gebrochener Siegesserie: Kann Meister Leverkusen in 
+Hoffenheim wieder punkten?**: [Link](https://www.express.de/sport/fussball/bundesliga-live-fuenf-partien-am-samstag-718034)
+- **#TSGB04: Baumann vor Meilenstein gegen den Meister**: [Link](https://onefootball.com/de/news/tsgb04-baumann-vor-meilenstein-gegen-den-meister-40015957)
+
+
+### mallorca vs villarreal (N/A, Sat, 14 Sep 2024 05:40:00 -0700)
+
+- **Mallorca - Villarreal en directo | LaLiga EA Sports, hoy, en vivo**: [Link](https://as.com/futbol/mallorca-villarreal-en-directo-laliga-ea-sports-hoy-en-vivo-n/)
+- **Mallorca - Villarreal, en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/mallorca-villarreal/2024/09/14/01_0101_20240914_181_449-directo.html)
+- **Jagoba Arrasate: "Muriqi está para jugar mañana"**: [Link](https://www.abc.es/deportes/jagoba-arrasate-muriqi-jugar-manana-20240913205716-vi.html)
+
+
 ### abbé pierre (N/A, Sat, 14 Sep 2024 05:10:00 -0700)
 
 - **Le Vatican était au courant des agressions sexuelles commises par l’abbé 
