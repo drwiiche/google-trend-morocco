@@ -1,3 +1,18 @@
+### crystal palace – leicester (N/A, Sat, 14 Sep 2024 06:20:00 -0700)
+
+- **Cooper: No Changes To Availability For Palace**: [Link](https://www.lcfc.com/news/4115123/cooper-no-changes-to-availability-for-palace)
+- **Crystal Palace’s Trevoh Chalobah to miss Leicester City game with abdominal 
+injury**: [Link](https://www.nytimes.com/athletic/5765028/2024/09/13/crystal-palace-trevor-chalobah-injury/)
+- **Football Accumulator Tips: Saturday's Shots on Target 19/1 Punt**: [Link](https://news.paddypower.com/football/2024/09/14/football-accumulator-tips-premier-league-betting/)
+
+
+### fulham – west ham (N/A, Sat, 14 Sep 2024 06:20:00 -0700)
+
+- **Starting XI | Souček returns for Fulham derby**: [Link](https://www.whufc.com/news/starting-xi-soucek-returns-fulham-derby)
+- **Paul Merson sends blunt Premier League warning to ex-Leeds United star Crysencio Summerville**: [Link](https://www.leeds-live.co.uk/sport/leeds-united/paul-merson-sends-blunt-premier-29930929)
+- **Fulham v West Ham United: match preview**: [Link](https://www.kumb.com/article.php?id=44928)
+
+
 ### manchester city – brentford (N/A, Sat, 14 Sep 2024 06:10:00 -0700)
 
 - **Haaland, Savinho and Gundogan all start against Brentford**: [Link](https://www.mancity.com/news/mens/manchester-city-brentford-202425-team-news-63861910)
