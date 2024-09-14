@@ -1,3 +1,60 @@
+### laliga (N/A, Sat, 14 Sep 2024 14:00:00 -0700)
+
+- **Vitor Roque's dream debut at Villamarín**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/vitor-roque-s-dream-debut-at-villamar%C3%ADn-2024-09-14)
+- **Betis fire late goals to sink Legane in Spanish league**: [Link](https://www.mailtimes.com.au/story/8763258/betis-fire-late-goals-to-sink-legane-in-spanish-league/)
+- **Barcelona loanee elated after scoring first goal for new club – ‘Never 
+imagined…’**: [Link](https://barcauniversal.com/barcelona-loanee-elated-after-scoring-first-goal-for-new-club-never-imagined/)
+
+
+### kubo (N/A, Sat, 14 Sep 2024 14:00:00 -0700)
+
+- **Kubo, Surprise Sale by Real Sociedad?**: [Link](https://www.fichajes.net/en/news/kubo-surprise-sale-by-real-sociedad-20240913.html)
+- **Take Kubo: "Real Madrid’s three attackers play the same position, which is 
+why they are struggling"**: [Link](https://www.managingmadrid.com/2024/9/14/24244223/take-kubo-real-madrids-three-attackers-play-the-same-position-which-is-why-they-are-struggling)
+- **LaLiga: He’s unstoppable – Ancelotti told Mbappe’s best position**: [Link](https://platformtimes.com.ng/laliga-hes-unstoppable-ancelotti-told-mbappes-best-position/)
+
+
+### mbappe (N/A, Sat, 14 Sep 2024 14:00:00 -0700)
+
+- **Real Madrid reveal rest plan for Kylian Mbappe before October international 
+window**: [Link](https://www.football-espana.net/2024/09/13/real-madrid-rest-plan-kylian-mbappe-october-window)
+- **He will only miss two matches. Mbappe's holiday plan in Real Madrid's busy 
+schedule revealed**: [Link](https://dailysports.net/news/he-will-only-miss-two-matches-mbappes-holiday-plan-in-real-madrids-busy-schedule-revealed/)
+- **PSG refuse League order to pay Mbappé disputed €55 million**: [Link](https://www.lemonde.fr/en/football/article/2024/09/12/psg-refuse-league-order-to-pay-mbappe-disputed-55-million_6725825_130.html)
+
+
+### bet 365 (N/A, Sat, 14 Sep 2024 13:50:00 -0700)
+
+- **bet365 promo code for College Football Week 3**: [Link](https://www.cbssports.com/betting/news/bet365-promo-code-for-college-football-week-3/)
+- **Bet365 bonus code WRAL365: $200 bonus or $1K safety net for Bills-Dolphins 
+TNF**: [Link](https://www.wral.com/story/bet365-bonus-code-wral365-200-bonus-or-1k-safety-net-for-bills-dolphins-tnf/21619502/)
+- **bet365 bonus code RGNEWS: $200 guaranteed bonus bets available following $5 
+first bet settling**: [Link](https://rotogrinders.com/articles/bet365-bonus-code-rgnews-200-guaranteed-bonus-bets-available-following-5-first-bet-settling-4062599)
+
+
+### psg vs (N/A, Sat, 14 Sep 2024 13:50:00 -0700)
+
+- **Pre-Brest medical update**: [Link](https://en.psg.fr/teams/first-team/content/medical-update-paris-saint-germain-v-stade-brestois-29-ligue-1-2024-2025)
+- **(VIDEO) Luis Enrique Criticizes Press Over Treatment of Bradley Barcola**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles-video/-video-luis-enrique-criticizes-press-over-treatment-of-bradley-barcola-2024-09-13)
+- **Paris Saint-Germain vs Stade Brestois 29: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2024/09/13/psg-vs-stade-brestois-29-preview-and-prediction-2/)
+
+
+### بورنموث ضد تشيلسي (N/A, Sat, 14 Sep 2024 13:50:00 -0700)
+
+- **سانشو على دكة بدلاء تشيلسي أمام بورنموث**: [Link](https://www.kooora.com/?n=1354731)
+- **تشلسي ضيفاً على بورنموث**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%B6%D9%8A%D9%81%D8%A7-%D8%B9%D9%84%D9%89-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-2024-09-14)
+- **تشكيلة تشيلسي الرسمية لمواجهة بورنموث**: [Link](https://hihi2.com/2024/09/14/p2848144.html)
+
+
+### ترتيب الدوري الاسباني (N/A, Sat, 14 Sep 2024 13:40:00 -0700)
+
+- **تغطية حية مباشر لمباراة فريقي ريال سوسيداد و ريال مدريد في بطولة الدوري 
+الإسباني - الأسبوع 5**: [Link](https://www.filgoal.com/articles/490216/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **الريال في مطاردة مثيرة مع برشلونة**: [Link](https://www.raya.com/2024/09/14/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%81%D9%8A-%D9%85%D8%B7%D8%A7%D8%B1%D8%AF%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/)
+- **®✓ موعد أهم مباريات الليغا الإسبانية السبت والأحد والقنوات الناقلة وموعد 
+الكلاسيكو**: [Link](https://www.almaghreb24.com/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D9%87%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3/)
+
+
 ### al-riyadh vs al-hilal (N/A, Sat, 14 Sep 2024 12:50:00 -0700)
 
 - **Surging Al Ettifaq, Al Riyadh out to stop Al Hilal**: [Link](https://onefootball.com/en/news/surging-al-ettifaq-al-riyadh-out-to-stop-al-hilal-40031233)
