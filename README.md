@@ -1,3 +1,11 @@
+### الوداد (N/A, Sat, 14 Sep 2024 09:50:00 -0700)
+
+- **بالصور.. مبارك يؤكد انفراد كووورة بقميص الوداد**: [Link](https://www.kooora.com/?n=1354537)
+- **الوداد يسعى للتعاقد مع مهاجم من تشيلسي**: [Link](https://www.almountakhab.com/node/13204278)
+- **مباريك يوقع عقد انضمامه إلى الوداد لموسم واحد على سبيل الإعارة بعد اجتيازه 
+الفحص الطبي بنجاح**: [Link](https://m.elbotola.com/article/2024-09-12-18-05-577.html)
+
+
 ### bayern munich (N/A, Sat, 14 Sep 2024 09:40:00 -0700)
 
 - **Holstein Kiel vs Bayern Munich: Lineups, team news, injuries, and more!**: [Link](https://www.bavarianfootballworks.com/2024/9/13/24243834/holstein-kiel-vs-bayern-munich-lineups-team-news-injuries-jamal-musiala-joao-palhinha-sacha-boey)
