@@ -1,3 +1,20 @@
+### inter miami – philadelphie union (N/A, Sat, 14 Sep 2024 15:50:00 -0700)
+
+- **Messi poised for Inter Miami return**: [Link](https://thesun.my/sport/messi-poised-for-inter-miami-return-HC13001699)
+- **Sickness Derails Lionel Messi's Inter Miami Comeback**: [Link](https://www.si.com/soccer/sickness-derails-lionel-messi-s-inter-miami-comeback)
+- **How to watch today's Inter Miami vs Philadelphia Union MLS game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-inter-miami-vs-philadelphia-union-mls-game-live-stream-tv-channel-start-time/blt806625022f30ae5b)
+
+
+### abdelmadjid tebboune (N/A, Sat, 14 Sep 2024 15:50:00 -0700)
+
+- **En Algérie, le président sortant Abdelmadjid Tebboune réélu avec 84,3 % des 
+voix**: [Link](https://www.france24.com/fr/afrique/20240914-en-alg%C3%A9rie-le-pr%C3%A9sident-sortant-abdelmadjid-tebboune-r%C3%A9%C3%A9lu-avec-84-3-des-voix)
+- **Le36. EP426. Fraude électorale en Algérie: le gardien des urnes, Mohamed 
+Charfi, convoqué par la Brigade**: [Link](https://fr.le360.ma/medias/le36-ep426-fraude-electorale-en-algerie-le-gardien-des-urnes-mohamed-charfi-convoque-par-la-brigade_JPZVMXYOYBAU3ML3IMGHR4MUC4/)
+- **Algérie : la participation à la présidentielle aurait été d'à peine 10 %**: [Link](https://www.lopinion.fr/international/algerie-la-participation-a-la-presidentielle-aurait-ete-da-peine-10)
+
+
 ### inter miami (N/A, Sat, 14 Sep 2024 14:50:00 -0700)
 
 - **Messi’s back! Inter Miami captain expected to play vs. Philadelphia after 
