@@ -1,3 +1,11 @@
+### zone-turf (N/A, Sat, 14 Sep 2024 00:20:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 8 Jazzman 
+Debailleul**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-8-jazzman-debailleul-125549.html)
+- **Joumba de Guez, l'outsider séduisant du Quinté+ de ce samedi 14 septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/joumba-de-guez-loutsider-seduisant-du-quinte-de-ce-samedi-14-septembre)
+- **Quinté du samedi 14 septembre 2024 à Vincennes : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-samedi-14-septembre-2024-a-vincennes-les-pronostics-7900417517)
+
+
 ### soufiane el bakkali (N/A, Fri, 13 Sep 2024 23:40:00 -0700)
 
 - **El Bakkali Finishes Second in Diamond League 3000m Steeplechase Final in 
