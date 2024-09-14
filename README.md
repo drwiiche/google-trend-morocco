@@ -1,3 +1,11 @@
+### wydad (N/A, Sat, 14 Sep 2024 08:00:00 -0700)
+
+- **Botola : le Wydad présente ses nouvelles recrues avant de croiser le fer 
+avec le MAT**: [Link](https://lematin.ma/sports/botola-le-wydad-presente-ses-nouvelles-recrues-avant-le-match-face-au-mat/242878)
+- **Wydad : M'Baye Niang a signé ! (officiel)**: [Link](https://news.maxifoot.fr/wydad/m-baye-niang-a-signe-officiel-foot-418923.htm)
+- **Le Maroc zappe Andy Delort et attire un joueur du Milan AC**: [Link](https://fennecfootball.com/le-maroc-zappe-andy-delort-et-attire-un-joueur-du-milan-ac/)
+
+
 ### هوفنهايم ضد ليفركوزن (N/A, Sat, 14 Sep 2024 07:40:00 -0700)
 
 - **ألونسو يدافع عن نجم ليفركوزن بعد هجوم كومان**: [Link](https://www.kooora.com/?n=1354470)
