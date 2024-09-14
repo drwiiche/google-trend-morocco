@@ -1,3 +1,11 @@
+### pâte à tartiner algérienne (N/A, Sat, 14 Sep 2024 14:40:00 -0700)
+
+- **El Mordjene : coup d’arrêt pour l’exportation vers l’Europe**: [Link](https://www.tsa-algerie.com/el-mordjene-coup-darret-pour-lexportation-vers-leurope/)
+- **El Mordjene: la pâte à tartiner algérienne interdite en Europe**: [Link](https://www.bfmtv.com/economie/consommation/el-mordjene-la-pate-a-tartiner-algerienne-interdite-en-europe_AV-202409140396.html)
+- **Rupture de stock, prix exorbitant… Pourquoi tout le monde s’arrache la pâte 
+à tartiner algérienne El Mordjene ?**: [Link](https://www.20minutes.fr/high-tech/by-the-web/4110095-20240914-rupture-stock-prix-exorbitant-pourquoi-tout-monde-arrache-pate-tartiner-algerienne-el-mordjene)
+
+
 ### real sociedad – real madrid : temps forts (N/A, Sat, 14 Sep 2024 13:50:00 -0700)
 
 - **DIRECT. Real Sociedad-Real Madrid (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-sociedad-real-madrid-live/657327)
