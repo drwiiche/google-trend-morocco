@@ -1,3 +1,12 @@
+### man city (N/A, Sat, 14 Sep 2024 07:10:00 -0700)
+
+- **Man City hearing: Manager Pep Guardiola says Premier League rivals want to 
+see us punished**: [Link](https://www.bbc.com/sport/football/articles/c79w9p114d5o)
+- **Man City hearing into 115 Premier League charges to begin next week**: [Link](https://www.thetimes.com/sport/football/article/manchester-city-legal-battle-hearing-start-3br3tp8zt)
+- **Man City 115 charges punishment: Expulsion to non-league an option but 
+titles and trophies likely to remain**: [Link](https://www.standard.co.uk/sport/football/man-city-115-charges-explained-punishment-verdict-b1159138.html)
+
+
 ### pate el mordjene (N/A, Sat, 14 Sep 2024 06:00:00 -0700)
 
 - **El Mordjene : coup d’arrêt pour l’exportation vers l’Europe**: [Link](https://www.tsa-algerie.com/el-mordjene-coup-darret-pour-lexportation-vers-leurope/)
