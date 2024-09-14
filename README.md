@@ -1,3 +1,11 @@
+### southampton – manchester united (N/A, Sat, 14 Sep 2024 03:40:00 -0700)
+
+- **Erik ten Hag reveals team news for Southampton trip**: [Link](https://www.manutd.com/en/news/detail/erik-ten-hag-reveals-team-news-for-southampton-v-man-utd-14-sep)
+- **Internationals return with a clean bill of health**: [Link](https://www.southamptonfc.com/en/news/article/internationals-return-with-a-clean-bill-of-health)
+- **Sky Bet Enhanced Odds Offer – Bruno Fernandes To have 1+ Shot On Target vs 
+Southampton**: [Link](https://www.101greatgoals.com/free-bets/sky-bet-enhanced-odds-offer-bruno-fernandes-to-have-1-shot-on-target-vs-southampton/)
+
+
 ### futsal world cup (N/A, Sat, 14 Sep 2024 03:10:00 -0700)
 
 - **Croatia v Thailand | Group B | FIFA Futsal World Cup Uzbekistan 2024™**: [Link](https://www.plus.fifa.com/content/6334e746-764b-470f-a81f-afaec6aedb66)
