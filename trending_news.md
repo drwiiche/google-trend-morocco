@@ -1,3 +1,17 @@
+### real madrid vs real sociedad aujourd hui (N/A, Sat, 14 Sep 2024 12:40:00 -0700)
+
+- **Real Sociedad - Real Madrid en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-real-sociedad-real-madrid_mtc1524254/live-commentary.shtml)
+- **Real Sociedad-Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a3162856014191366119-real-sociedad-real-madrid-les-compositions-officielles)
+- **Real Madrid: Bellingham et Tchouaméni absents face à la Real Sociedad**: [Link](https://www.lesiteinfo.com/sport/627094-real-madrid-bellingham-et-tchouameni-absents-face-a-la-real-sociedad.html)
+
+
+### psg (N/A, Sat, 14 Sep 2024 12:20:00 -0700)
+
+- **Achraf Hakimi de retour à Madrid, c’est fait**: [Link](https://www.goal.com/fr/news/achraf-hakimi-de-retour-a-madrid-c-est-fait/blt155bf4aed1669a25)
+- **PSG et équipe du Maroc : Achraf Hakimi, la montée en puissance d’un leader**: [Link](https://www.bladi.net/achraf-hakimi-leader-psg-lions-atlas,110465.html)
+- **Achraf Hakimi parti pour rester au PSG**: [Link](https://sport.le360.ma/football/ligue-1/achraf-hakimi-parti-pour-rester-au-psg_K67APTWHY5HJVFU3ZTBVU2OENY/)
+
+
 ### madrid vs (N/A, Sat, 14 Sep 2024 12:20:00 -0700)
 
 - **¡Vuelve LaLiga al Cívitas Metropolitano!**: [Link](https://www.atleticodemadrid.com/noticias/vuelve-laliga-al-civitas-metropolitano-3)
