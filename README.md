@@ -1,3 +1,12 @@
+### manchester united (N/A, Sat, 14 Sep 2024 04:30:00 -0700)
+
+- **Two wonderkids 'officially' joined Manchester United on Friday including 
+new attacker**: [Link](https://www.unitedinfocus.com/news/two-wonderkids-officially-joined-manchester-united-on-friday-including-new-attacker/)
+- **Manchester United confirm 2024/25 Premier League squad**: [Link](https://strettynews.com/2024/09/13/manchester-united-confirm-2024-25-premier-league-squad/)
+- **Sekou Kone included as Manchester United confirm 2024/25 Premier League 
+squad list**: [Link](https://thepeoplesperson.com/2024/09/13/sekou-kone-included-as-manchester-united-confirm-2024-25-premier-league-squad-list-285425/)
+
+
 ### southampton – manchester united (N/A, Sat, 14 Sep 2024 03:40:00 -0700)
 
 - **Erik ten Hag reveals team news for Southampton trip**: [Link](https://www.manutd.com/en/news/detail/erik-ten-hag-reveals-team-news-for-southampton-v-man-utd-14-sep)
