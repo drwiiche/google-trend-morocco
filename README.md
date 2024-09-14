@@ -1,3 +1,10 @@
+### futsal world cup (N/A, Sat, 14 Sep 2024 03:10:00 -0700)
+
+- **Croatia v Thailand | Group B | FIFA Futsal World Cup Uzbekistan 2024™**: [Link](https://www.plus.fifa.com/content/6334e746-764b-470f-a81f-afaec6aedb66)
+- **FUTSAL WORLD CUP: Telemundo, Universo to show, stream tourney**: [Link](https://www.frontrowsoccer.com/2024/09/13/futsal-world-cup-telemundo-universo-to-show-stream-tourney/)
+- **WATCH: Futsal Whites prepare for their first-ever FIFA Futsal World Cup**: [Link](https://www.friendsoffootballnz.com/2024/09/14/watch-futsal-whites-prepare-for-their-first-ever-fifa-futsal-world-cup/)
+
+
 ### sebta (N/A, Sat, 14 Sep 2024 02:30:00 -0700)
 
 - **État d’alerte à Ceuta suite aux appels à l’immigration massive ce dimanche**: [Link](https://ledesk.ma/encontinu/etat-dalerte-a-ceuta-suite-aux-appels-a-limmigration-massive-ce-dimanche/)
