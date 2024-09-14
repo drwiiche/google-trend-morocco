@@ -1,3 +1,51 @@
+### real (N/A, Sat, 14 Sep 2024 12:10:00 -0700)
+
+- **TSA announces proposed rule to provide necessary flexibility as federal agencies prepare to enforce REAL ID requirements beginning May 7, 2025**: [Link](https://www.tsa.gov/news/press/releases/2024/09/12/tsa-announces-proposed-rule-provide-necessary-flexibility-federal)
+- **TSA sets final deadline for Real ID mandate**: [Link](https://www.sfgate.com/travel/article/tsa-sets-final-deadline-real-id-mandate-19760658.php)
+- **US proposes delaying full enforcement of stricter ID rules until up to May 2027**: [Link](https://www.reuters.com/world/us/us-proposes-delaying-full-enforcement-stricter-id-rules-until-may-2027-2024-09-12/)
+
+
+### botola (N/A, Sat, 14 Sep 2024 12:00:00 -0700)
+
+- **Botola Pro D1 "Inwi": Programme de la 2è journée**: [Link](https://fr.hespress.com/385952-botola-pro-d1-inwi-programme-de-la-2e-journee.html)
+- **Botola Pro D1 Inwi: Les enjeux de la deuxième journée**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-les-enjeux-de-la-deuxieme-journee_QM6LOW7B7JAKZNIDO7TI5KUQQY/)
+- **Botola: WAC, Raja… Le programme de la 2ème journée**: [Link](https://www.lesiteinfo.com/sport/627119-botola-wac-raja-le-programme-de-la-2eme-journee.html)
+
+
+### ريال مدريد (N/A, Sat, 14 Sep 2024 12:00:00 -0700)
+
+- **شكاوى الجيران تُكبد ريال مدريد خسارة مالية**: [Link](https://m.kooora.com/?n=1354607)
+- **"جيران سانتياغو برنابيو" يجبرون الريال على تعليق الحفلات**: [Link](https://www.skynewsarabia.com/varieties/1741766-%D8%AC%D9%8A%D8%B1%D8%A7%D9%86-%D8%B3%D8%A7%D9%86%D8%AA%D9%8A%D8%A7%D8%BA%D9%88-%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88-%D9%8A%D8%AC%D8%A8%D8%B1%D9%88%D9%86-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%AD%D9%81%D9%84%D8%A7%D8%AA)
+- **بيان رسمي من ريال مدريد لإعلان ايقاف الاحتفالات والاحداث في البرنابيو**: [Link](https://hihi2.com/2024/09/14/p2847081.html)
+
+
+### nayef aguerd (N/A, Sat, 14 Sep 2024 12:00:00 -0700)
+
+- **Aguerd Might Grow to Appreciate Unpopular Decision**: [Link](https://www.claretandhugh.info/aguerd-might-grow-to-appreciate-unpopular-decision/)
+- **Nayef Aguerd makes West Ham United exit admission after deadline-day loan 
+transfer**: [Link](https://www.westhamzone.com/transfers/nayef-aguerd-makes-west-ham-united-exit-admission-after-deadline-day-loan-transfer/)
+- **President admits Arsenal deal helped secure two transfers - Late scramble 
+required for West Ham man**: [Link](https://sportwitness.co.uk/president-admits-arsenal-deal-helped-secure-two-transfers-late-scramble-required-for-west-ham-man/)
+
+
+### pâte à tartiner el mordjene (N/A, Sat, 14 Sep 2024 12:00:00 -0700)
+
+- **El Mordjene : coup d’arrêt pour l’exportation vers l’Europe**: [Link](https://www.tsa-algerie.com/el-mordjene-coup-darret-pour-lexportation-vers-leurope/)
+- **Rupture de stock, prix exorbitant… Pourquoi tout le monde s’arrache la pâte 
+à tartiner algérienne El Mordjene ?**: [Link](https://www.20minutes.fr/high-tech/by-the-web/4110095-20240914-rupture-stock-prix-exorbitant-pourquoi-tout-monde-arrache-pate-tartiner-algerienne-el-mordjene)
+- **«El Mordjene» : pourquoi la pâte à tartiner qui fait le buzz sur les 
+réseaux sociaux devrait-elle être interdite en France ?**: [Link](https://www.cnews.fr/monde/2024-09-14/el-mordjene-pourquoi-la-pate-tartiner-qui-fait-le-buzz-sur-les-reseaux-sociaux)
+
+
+### real madrid club de fútbol (N/A, Sat, 14 Sep 2024 11:30:00 -0700)
+
+- **El Real Madrid suspende los conciertos previstos en el Bernabéu tras las 
+quejas por el ruido**: [Link](https://www.marca.com/futbol/real-madrid/2024/09/13/66e47d93e2704e73078b4582.html)
+- **Aitana, en ‘shock’ tras la cancelación de sus conciertos en el Bernabéu**: [Link](https://as.com/tikitakas/videos/el-video-que-aitana-ha-publicado-tras-la-cancelacion-de-sus-conciertos-en-el-bernabeu-estoy-en-shock-v/)
+- **Frenazo en el Bernabéu: el Real Madrid retrasa todos los conciertos hasta 
+abril tras las protestas de los vecinos por el ruido**: [Link](https://www.relevo.com/futbol/liga-primera/frenazo-bernabeu-real-madrid-retrasa-20240913184704-nt.html)
+
+
 ### بي اس جي ضد بريست (N/A, Sat, 14 Sep 2024 11:50:00 -0700)
 
 - **الشبل المغربي يرافق حكيمي في لائحة لويس إنريكي**: [Link](https://www.almountakhab.com/node/13204309)
