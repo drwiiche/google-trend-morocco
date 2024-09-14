@@ -1,3 +1,31 @@
+### galatasaray – rizespor (N/A, Sat, 14 Sep 2024 09:20:00 -0700)
+
+- **RAMS Park'ta oynanacak maç saat 20.00'de başlayacak**: [Link](https://www.bagimsiz.com/rams-parkta-oynanacak-mac-saat-2000de-baslayacak)
+- **Galatasaray’da yeni transfer Ismail Jakobs, ilk antrenmanına çıktı**: [Link](https://www.milliyet.com.tr/yerel-haberler/istanbul/galatasarayda-yeni-transfer-ismail-jakobs-ilk-7189879)
+- **CANLI YAYIN | Galatasaray Rizespor Maçı**: [Link](https://haberglobal.com.tr/son-dakika/canli-yayin-galatasaray-rizespor-maci-bein-sports-sifresiz-canli-izle-377677)
+
+
+### aston villa – everton (N/A, Sat, 14 Sep 2024 09:10:00 -0700)
+
+- **Aston Villa - Everton Live - Premier League: Football Scores & Highlights - 14/09/2024**: [Link](https://www.tntsports.co.uk/football/premier-league/2024-2025/live-aston-villa-everton_mtc1523839/live-commentary.shtml)
+- **Premier League Predictions & best bets: Ollie Watkins to pour more misery on Everton**: [Link](https://www.skysports.com/football/news/11095/13213703/premier-league-predictions-best-bets-erik-ten-hag-to-deliver-important-win-for-manchester-united)
+- **Friday’s Everton News: Everton release Textor statement, Dyche talks Aston Villa and injuries**: [Link](https://royalbluemersey.sbnation.com/2024/9/13/24243270/everton-news-release-textor-statement-dyche-talks-aston-villa-branthwaite-coleman-injury)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sat, 14 Sep 2024 09:10:00 -0700)
+
+- **مانشستر يونايتد يعود بنقاط الفوز من أرض ساوثهامبتون**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D9%86%D9%82%D8%A7%D8%B7-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D9%85%D9%86-%D8%A3%D8%B1%D8%B6-%D8%B3%D8%A7%D9%88%D8%AB%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-2024-09-14)
+- **تين هاج: دي ليخت لم يفاجئني.. وتصدي أونانا نقطة التحول**: [Link](http://www.kooora.com/default.aspx?n=1354680&pg=1&o=n)
+- **مزراوي غادر مباراة ساوثامبطون مصابا وبتنقيط جيد**: [Link](https://www.almountakhab.com/node/13204312)
+
+
+### ليفربول (N/A, Sat, 14 Sep 2024 09:10:00 -0700)
+
+- **في قلب آنفيلد.. نوتنجهام يكبد ليفربول الهزيمة الاولى**: [Link](https://m.kooora.com/?n=1354683&o=n)
+- **شوط سلبي بين ليفربول و نوتنجهام فورست في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/09/14/p2847788.html)
+- **ليفربول لتأكيد انطلاقته القوية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D8%AA%D8%A3%D9%83%D9%8A%D8%AF-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%AA%D9%87-%D8%A7%D9%84%D9%82%D9%88%D9%8A%D8%A9-2024-09-13)
+
+
 ### holstein kiel – bayern (N/A, Sat, 14 Sep 2024 08:50:00 -0700)
 
 - **Wiedersehen mit Fiete Arp: Gekommen, um zu bleiben**: [Link](https://fcbayern.com/de/news/2024/09/wiedersehen-mit-fiete-arp-gekommen-um-zu-bleiben)
