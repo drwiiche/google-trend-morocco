@@ -1,3 +1,26 @@
+### ميلان ضد فينيزيا (N/A, Sat, 14 Sep 2024 13:00:00 -0700)
+
+- **لياو يعود لتشكيل ميلان أمام فينيسيا**: [Link](https://www.kooora.com/?n=1354721)
+- **ميلان يُحدد سعراً مرتفعاً لبيع عقد نجمه بوليسيتش**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D9%8F%D8%AD%D8%AF%D8%AF-%D8%B3%D8%B9%D8%B1%D8%A7%D9%8B-%D9%85%D8%B1%D8%AA%D9%81%D8%B9%D8%A7%D9%8B-%D9%84%D8%A8%D9%8A%D8%B9-%D8%B9%D9%82%D8%AF-%D9%86%D8%AC%D9%85%D9%87-%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D9%8A%D8%AA%D8%B4?ocid=Nabd_App&utm_campaign=nabdapp.com&utm_medium=referral&utm_source=nabdapp.com)
+- **نجم ميلان يؤكد تضامن اللاعبين مع فونسيكا: نحن نؤمن به**: [Link](https://arabic.sport360.com/article/italianfootball/%D9%85%D9%8A%D9%84%D8%A7%D9%86/1290521/%D9%86%D8%AC%D9%85-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D8%A4%D9%83%D8%AF-%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%85%D8%B9-%D9%81%D9%88%D9%86%D8%B3%D9%8A)
+
+
+### chelsea (N/A, Sat, 14 Sep 2024 12:50:00 -0700)
+
+- **Maresca on Cole Palmer’s fitness and Jadon Sancho’s quality | News | 
+Official Site**: [Link](https://www.chelseafc.com/en/news/article/maresca-on-cole-palmers-fitness-and-jadon-sanchos-quality)
+- **Chelsea Suffer ‘Major Injury Blow’ Ahead of Tricky Bournemouth Clash**: [Link](https://sports.yahoo.com/chelsea-suffer-major-injury-blow-201500296.html)
+- **Is Cole Palmer injured this weekend? Premier League injury update**: [Link](https://www.fourfourtwo.com/news/is-cole-palmer-injured-this-weekend-premier-league-injury-update)
+
+
+### سعد الصغير (N/A, Sat, 14 Sep 2024 12:50:00 -0700)
+
+- **في تهمة "المخدرات".. قرار قضائي جديد بحق سعد الصغير**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/09/13/%D9%84%D8%AD%D9%8A%D8%A7%D8%B2%D8%AA%D9%87-%D8%B3%D8%AC%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D9%83%D8%AA%D8%B1%D9%88%D9%86%D9%8A%D8%A9-%D9%88%D9%85%D8%A7%D8%B1%D9%8A%D8%AC%D9%88%D8%A7%D9%86%D8%A7-%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AD%D8%A8%D8%B3-%D8%B3%D8%B9%D8%AF-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1-)
+- **تطورات جديدة في قضية سعد الصغير بعد اعترافاته المثيرة**: [Link](https://www.lahamag.com/article/214705-%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%B3%D8%B9%D8%AF-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D9%85%D8%AB%D9%8A%D8%B1%D8%A9)
+- **18:55 المشاهير العرب بعد حبسه.. شقيقة زوجة بهاء سلطان تدافع عن سعد الصغير - 
+AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/210512/1855%0A%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%0A%0A%D8%A8%D8%B9%D8%AF-%D8%AD%D8%A8%D8%B3%D9%87-%D8%B4%D9%82%D9%8A%D9%82%D8%A9-%D8%B2%D9%88%D8%AC%D8%A9-%D8%A8%D9%87%D8%A7%D8%A1-%D8%B3%D9%84%D8%B7%D8%A7%D9%86-%D8%AA%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86-%D8%B3%D8%B9%D8%AF-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1---AARC-%D9%85%D8%B5%D8%B1.html)
+
+
 ### real madrid vs real sociedad aujourd hui (N/A, Sat, 14 Sep 2024 12:40:00 -0700)
 
 - **Real Sociedad - Real Madrid en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-real-sociedad-real-madrid_mtc1524254/live-commentary.shtml)
