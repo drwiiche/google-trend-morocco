@@ -1,3 +1,11 @@
+### soufiane el bakkali (N/A, Fri, 13 Sep 2024 23:40:00 -0700)
+
+- **El Bakkali Finishes Second in Diamond League 3000m Steeplechase Final in 
+Brussels**: [Link](https://www.moroccoworldnews.com/2024/09/365174/el-bakkali-finishes-second-in-diamond-league-3000m-steeplechase-final-in-brussels)
+- **Mary Moraa 'proud of herself' after reclaiming Diamond League Trophy**: [Link](https://www.pulsesports.co.ke/athletics/story/mary-moraa-proud-of-herself-after-reclaiming-diamond-league-trophy-2024091403301227466)
+- **Moraa looks to end season on a high in Brussels**: [Link](https://www.the-star.co.ke/sports/athletics/2024-09-09-moraa-looks-to-end-season-on-a-high-in-brussels/)
+
+
 ### dortmund vs heidenheim (N/A, Fri, 13 Sep 2024 13:10:00 -0700)
 
 - **BVB: Karim Adeyemi überragend! Guirassy-Debüt! Schwarz-Gelber Spektakel-Sieg**: [Link](https://www.bild.de/sport/fussball/bvb-karim-adeyemi-ueberragend-guirassy-debuet-schwarz-gelber-spektakel-sieg-66e479918a8d962b48bbd30a)
