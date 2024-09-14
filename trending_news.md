@@ -1,3 +1,15 @@
+### real madrid cf (N/A, Sat, 14 Sep 2024 12:20:00 -0700)
+
+- **The dream Real Madrid lineup for next season with five incredible 2025 
+Galactico signings**: [Link](https://www.teamtalk.com/news/dream-real-madrid-lineup-next-season-five-incredible-2025-galactico-signings)
+- **Daily Schmankerl: Why Manchester City, Arsenal could be in mix for Bayern 
+Munich’s Alphonso Davies; Real Madrid coveting Florian Wirtz?; Kingsley 
+Coman eyeing FC Barcelona move; PSG, Juventus wants Liverpool’s Mo Salah; + 
+MORE!**: [Link](https://www.bavarianfootballworks.com/2024/9/10/24238216/manchester-city-arsenal-bayern-munich-davies-real-madrid-wirtz-fc-barcelona-psg-juventus-liverpool)
+- **Real Madrid’s pursuit of 23-year-old Bundesliga speedster entering the 
+final stretch**: [Link](https://madriduniversal.com/real-madrids-pursuit-of-23-year-old-bundesliga-speedster-entering-the-final-stretch/)
+
+
 ### ميلان ضد فينيزيا (N/A, Sat, 14 Sep 2024 13:00:00 -0700)
 
 - **لياو يعود لتشكيل ميلان أمام فينيسيا**: [Link](https://www.kooora.com/?n=1354721)
