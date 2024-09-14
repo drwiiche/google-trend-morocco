@@ -1,3 +1,17 @@
+### madrid vs (N/A, Sat, 14 Sep 2024 12:20:00 -0700)
+
+- **¡Vuelve LaLiga al Cívitas Metropolitano!**: [Link](https://www.atleticodemadrid.com/noticias/vuelve-laliga-al-civitas-metropolitano-3)
+- **Salir vivos del túnel del terror**: [Link](https://plazadeportiva.valenciaplaza.com/salir-vivos-del-tunel-del-terror)
+- **El Atleti recibe a un Valencia herido**: [Link](https://onefootball.com/id/berita/el-atleti-recibe-a-un-valencia-herido-40032672)
+
+
+### wydad athletic club (N/A, Sat, 14 Sep 2024 12:20:00 -0700)
+
+- **En direct : le Wydad présente ses nouvelles recrues**: [Link](https://lematin.ma/videos/en-direct-le-wydad-presente-ses-nouvelles-recrues/242937)
+- **Le WAC présente ses nouvelles recrues (PHOTOS)**: [Link](https://www.lesiteinfo.com/sport/627196-le-wac-presente-ses-nouvelles-recrues-photos.html)
+- **Wydad: les nouvelles recrues présentées aux supporters**: [Link](https://sport.le360.ma/football/botola/wydad-les-nouvelles-recrues-presentees-aux-supporters_3FJOVV3GFNHQJKRTBVGWE7WCAA/)
+
+
 ### real (N/A, Sat, 14 Sep 2024 12:10:00 -0700)
 
 - **TSA announces proposed rule to provide necessary flexibility as federal agencies prepare to enforce REAL ID requirements beginning May 7, 2025**: [Link](https://www.tsa.gov/news/press/releases/2024/09/12/tsa-announces-proposed-rule-provide-necessary-flexibility-federal)
