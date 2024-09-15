@@ -1,3 +1,52 @@
+### wolves – newcastle (N/A, Sun, 15 Sep 2024 08:00:00 -0700)
+
+- **Matchday Blog | Wolves vs Newcastle | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20240915-matchday-blog-wolves-vs-newcastle/)
+- **‘We hope’ - Eddie Howe issues major Bruno Guimaraes fitness update and 
+‘positive’ Joe Willock news**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/we-hope-eddie-howe-issues-major-bruno-guimaraes-fitness-update-and-positive-joe-willock-news-4780607)
+- **Paul Merson reveals Newcastle’s five-club battle and predicts Sunday’s trip 
+to Wolves**: [Link](https://www.nufcblog.co.uk/2024/09/14/paul-merson-reveals-newcastles-five-club-battle-and-predicts-sundays-trip-to-wolves/)
+
+
+### bet 365 (N/A, Sun, 15 Sep 2024 08:00:00 -0700)
+
+- **Bet365 Bonus Code WEEK365: $200 Bonus or $1K Safety Net for NFL Sunday**: [Link](https://www.newsweek.com/bet365-bonus-code-week365-200-bonus-1k-safety-net-nfl-sunday-september-15-1954058)
+- **bet365 Bonus Code - Get Either $200 Bonus Bets or $1,000 First Bet Safety 
+Net for Betting on UFC 306**: [Link](https://www.covers.com/daily-promos/bet365-bonus-code-ufc-306-omalley-dvalishvili-september-15-2024)
+- **Bet365 welcome offer PWEVG365 gives $1,000 boost for Raiders vs Ravens**: [Link](https://www.pickswise.com/news/bet365-welcome-offer-pwevg365-gives-1000-boost-for-raiders-vs-ravens/)
+
+
+### raja casablanca (N/A, Sun, 15 Sep 2024 08:00:00 -0700)
+
+- **Foot: Adil Hala élu président du Raja Casablanca**: [Link](https://fr.hespress.com/385929-foot-adil-hala-elu-president-du-raja-casablanca.html)
+- **Adil Hala prend les rênes du Raja Club Athletic**: [Link](https://telquel.ma/instant-t/2024/09/13/adil-hala-prend-les-renes-du-raja-club-athletic_1893547/)
+- **Officiellement : Adel Hala est le nouveau président du Raja Athletic Club 
+pour 4 ans - HIBAPRESS**: [Link](https://fr.hibapress.com/news-131659.html)
+
+
+### yalla kora (N/A, Sun, 15 Sep 2024 08:00:00 -0700)
+
+
+
+
+### gp f1 azerbaïdjan (N/A, Sun, 15 Sep 2024 08:00:00 -0700)
+
+- **Piastri remporte le GP d'Azerbaïdjan, Sainz et Perez se percutent en fin de 
+course**: [Link](https://www.lequipe.fr/Formule-1/Actualites/Piastri-remporte-le-gp-d-azerbaidjan-sainz-et-perez-se-percutent-en-fin-de-course/1507865)
+- **Oscar Piastri frustre Charles Leclerc à Bakou, McLaren prend la tête du 
+classement constructeurs**: [Link](https://www.eurosport.fr/formule-1/grand-prix-d-azerbaidjan/2024/oscar-piastri-frustre-charles-leclerc-a-bakou-mclaren-prend-la-tete-du-classement-constructeurs_sto10340584/story.shtml)
+- **F1 : le programme TV du Grand Prix d'Azerbaïdjan 2024**: [Link](https://f1i.autojournal.fr/infos/saison-f1-2024/programme-tv-horaires-grand-prix-azerbaidjan-f1-2024-bakou/)
+
+
+### lamine yamal (N/A, Sun, 15 Sep 2024 07:50:00 -0700)
+
+- **Lo que se cuece en el Barça: servicio de contravigilancia para Lamine Yamal 
+y el contrato de por vida que rechazó Aitana Bonmatí**: [Link](https://www.relevo.com/futbol/liga-primera/lamine-yamal-renovacion-pedri-20240913150152-nt.html)
+- **Blindado: la decisión del Barcelona con Lamine Yamal tras el atentado 
+contra su padre**: [Link](https://www.minutoneuquen.com/deportes/2024/9/15/blindado-la-decision-del-barcelona-con-lamine-yamal-tras-el-atentado-contra-su-padre-360448.html)
+- **Preocupación por Lamine Yamal antes de su encuentro con Pablo Motos: 'Está 
+en...'**: [Link](https://edatv.news/corazon/preocupacion-lamine-yamal-antes-encuentro-pablo-motos)
+
+
 ### charles leclerc (N/A, Sun, 15 Sep 2024 05:40:00 -0700)
 
 - **Who starts where for the Azerbaijan Grand Prix**: [Link](https://www.formula1.com/en/latest/article/official-grid-who-starts-where-in-azerbaijan-after-hamilton-ocon-gasly-and.3ug2VLWWT5dL8BboBjnyRt)
