@@ -1,3 +1,17 @@
+### هسبريس (N/A, Sun, 15 Sep 2024 01:10:00 -0700)
+
+
+
+
+### wwe smackdown (N/A, Sun, 15 Sep 2024 00:00:00 -0700)
+
+- **WWE SmackDown Results: Winners, Live Grades, Reaction and Highlights From 
+Sept. 13**: [Link](https://www.bleacherreport.com/articles/10135279-wwe-smackdown-results-winners-live-grades-reaction-and-highlights-from-sept-13)
+- **Smackdown results: Cody Rhodes retains against Solo Sikoa, Roman Reigns 
+agrees to team with champ**: [Link](https://www.postwrestling.com/2024/09/13/smackdown-results-cody-rhodes-retains-against-solo-sikoa-roman-reigns-agrees-to-team-with-champ/)
+- **SmackDown Results – September 13, 2024**: [Link](https://bvmsports.com/2024/09/13/smackdown-results-september-13-2024/)
+
+
 ### ram (N/A, Sat, 14 Sep 2024 22:40:00 -0700)
 
 - **iPhone 16 Pro and iPhone 16 Pro Max**: [Link](https://www.apple.com/iphone-16-pro/)
