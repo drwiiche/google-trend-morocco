@@ -1,3 +1,11 @@
+### las palmas – ath. bilbao (N/A, Sun, 15 Sep 2024 08:40:00 -0700)
+
+- **LA PREVIA: ¡En busca del primer triunfo de la temporada!**: [Link](https://www.udlaspalmas.es/noticias/la-previa-jornada-5-athletic-club)
+- **Las Palmas: anotar, pero sin que te anoten**: [Link](https://as.com/futbol/primera/las-palmas-anotar-peor-sin-que-te-anoten-n/)
+- **Carrión apuesta por su 'once de gala' para lograr el primer triunfo del 
+curso**: [Link](https://tiempodecanarias.com/noticia/deportes/carrion-apuesta-por-su-once-de-gala-para-lograr-el-primer-triunfo-del-curso)
+
+
 ### toulouse – le havre (N/A, Sun, 15 Sep 2024 08:30:00 -0700)
 
 - **PRONOS PARIS RMC Le nul du jour du 15 septembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-15-septembre-ligue-1_AN-202409140414.html)
