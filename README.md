@@ -1,3 +1,25 @@
+### atlético madrid vs valencia (N/A, Sun, 15 Sep 2024 12:10:00 -0700)
+
+- **Atlético vs Valencia: Sin red... ¡en septiembre!**: [Link](https://www.marca.com/futbol/atletico/2024/09/15/66e5e39f268e3e20518b45a6.html)
+- **Primer kilómetro de la maratón nocturna**: [Link](https://as.com/futbol/primera/primer-kilometro-de-la-maraton-nocturna-n/)
+- **El Atlético busca recuperar su fortaleza como local**: [Link](https://madridpress.com/art/336940/el-atletico-busca-recuperar-su-fortaleza-como-local)
+
+
+### lens – lyon (N/A, Sun, 15 Sep 2024 12:10:00 -0700)
+
+- **Ligue 1: Can Olympique de Lyon’s leaky defense refocus for Lens?**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles-video/ligue-1-can-olympique-de-lyon-s-leaky-defense-refocus-for-lens-2024-09-11)
+- **RC Lens vs. Lyon: Ligue 1 Match Preview! - Scoreline**: [Link](https://247sports.com/college/louisville/video/rc-lens-vs-lyon-ligue-1-match-preview-scoreline-12604043/)
+- **Sunday's Ligue 1 predictions including Lens vs. Lyon**: [Link](https://www.sportsmole.co.uk/football/rennes/ligue-1-predictions/feature/sundays-ligue-1-predictions-including-lens-vs-lyon_552910.html)
+
+
+### atletico madrid (N/A, Sun, 15 Sep 2024 12:00:00 -0700)
+
+- **Atletico Madrid vs Valencia Predictions: Hosts to Consign Valencia to a 
+Fourth Loss in Five Games**: [Link](https://www.goal.com/en-ng/betting/atletico-madrid-vs-valencia-15-09-24/blt82bfd18840e943b6)
+- **Sunday Football Tips: Focus on fouls for 7/2 Atletico treble**: [Link](https://onefootball.com/de/news/sunday-football-tips-focus-on-fouls-for-72-atletico-treble-40035983)
+- **Atletico vs Valencia: Match Preview and Predictions**: [Link](https://www.footboom1.com/br/news/football/1824754-atletico-vs-valencia-match-preview-and-predictions)
+
+
 ### programme tv (N/A, Sun, 15 Sep 2024 12:00:00 -0700)
 
 - **Ce soir à la télé : Brad Pitt face à Aaron Taylor-Johnson... Qui gagne ?**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000101674.html)
