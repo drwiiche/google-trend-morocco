@@ -1,3 +1,10 @@
+### liga (N/A, Sun, 15 Sep 2024 09:20:00 -0700)
+
+- **Primera División Real Sociedad 0 Real Madrid 2 Full time**: [Link](https://www.bbc.com/sport/football/live/cq5dvjz671wt)
+- **Courtois: 'It was a very important win'**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/declaraciones-jugador-post-partido-14-09-2024)
+- **La Liga: Two penalties helped Real beat Sociedad**: [Link](https://terrikon.com/en/posts/493375)
+
+
 ### samartex (N/A, Sun, 15 Sep 2024 09:40:00 -0700)
 
 - **Samartex coach Nurudeen Amadu promises tough challenge for Raja Casablanca**: [Link](https://ghanasoccernet.com/samartex-coach-nurudeen-amadu-promises-tough-challenge-for-raja-casablanca)
