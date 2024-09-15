@@ -1,3 +1,17 @@
+### barca (N/A, Sun, 15 Sep 2024 07:10:00 -0700)
+
+- **Barca arenata, avviso della Guardia Costiera**: [Link](https://www.gardapost.it/2024/09/15/barca-arenata-avviso-della-guardia-costiera/)
+- **Barca a vela dispersa nel Tirreno, ricerche della Capitaneria**: [Link](https://www.ansa.it/calabria/notizie/2024/09/14/barca-a-vela-dispersa-nel-tirreno-ricerche-della-capitaneria_4395ed47-4634-4db5-8556-ee70100c044b.html)
+- **Ritrovata la barca a vela partita da Vibo e diretta a Olbia: è a Ponza**: [Link](https://www.lanuovacalabria.it/ritrovata-la-barca-a-vela-partita-da-vibo-e-diretta-a-olbia-e-a-ponza)
+
+
+### القنوات الناقلة لمباراة الرجاء اليوم (N/A, Sun, 15 Sep 2024 07:10:00 -0700)
+
+- **موعد مباراة الرجاء ضد سامارتكس الغاني والقنوات الناقلة**: [Link](https://m.alayam24.com/articles-526469.html)
+- **"سامارتيكس": لن نبالغ في احترام الرجاء**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%83%D8%B3-%D9%84%D9%86-%D9%86%D8%A8%D8%A7%D9%84%D8%BA-%D9%81%D9%8A-%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-1431227.html)
+- **الموعد والقنوات الناقلةمجانا لمباراة الرجاء وسمارتيكس الغاني**: [Link](https://ar.sport.le360.ma/football/ligue-des-champions-caf/JJZGSWVOA5HTPMM6LQFXXKKOQY/)
+
+
 ### fc barcelone (N/A, Sun, 15 Sep 2024 07:00:00 -0700)
 
 - **Hansi Flick met en garde Lamine Yamal**: [Link](https://www.footmercato.net/a2665712520435658021-hansi-flick-met-en-garde-lamine-yamal)
