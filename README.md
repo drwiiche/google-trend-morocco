@@ -1,3 +1,17 @@
+### غيرونا ضد برشلونة (N/A, Sun, 15 Sep 2024 06:20:00 -0700)
+
+- **تشكيلة برشلونة الرسمية للقاء جيرونا في الدوري الاسباني**: [Link](https://hihi2.com/2024/09/15/p2849320.html)
+- **ليفاندوفسكي يقود هجوم برشلونة في الديربي**: [Link](https://m.kooora.com/?n=1354891&o=n)
+- **فليك يحفز لاعبي برشلونة.. ويهدد الأساسيين**: [Link](https://www.raialyoum.com/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AD%D9%81%D8%B2-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%8A%D9%87%D8%AF%D8%AF-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A/)
+
+
+### girona vs barcelona (N/A, Sun, 15 Sep 2024 06:20:00 -0700)
+
+- **Ya hay once del Barça**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240915/1002315961/hay-once-barca.html)
+- **Consejo de Hansi Flick a Lamine Yamal: "Si quiere ser un gran campeón..."**: [Link](https://www.marca.com/futbol/barcelona/2024/09/14/66e586c622601dbb168b45a1.html)
+- **“A Lamine le digo que los campeones no descansan nunca”**: [Link](https://as.com/futbol/primera/a-lamine-le-digo-que-los-campeones-no-descansan-nunca-n/)
+
+
 ### tottenham (N/A, Sun, 15 Sep 2024 06:10:00 -0700)
 
 - **Tottenham Hotspur Partners with Global Online Trading Platform AIMS #AIMS**: [Link](https://www.media-outreach.com/news/australia/2024/09/13/326510/tottenham-hotspur-partners-with-global-online-trading-platform-aims/)
