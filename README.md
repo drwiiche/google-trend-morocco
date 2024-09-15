@@ -1,3 +1,11 @@
+### x (N/A, Sun, 15 Sep 2024 00:20:00 -0700)
+
+- **Brazil top court lifts Starlink, X bank account freeze after $3 mln transfer**: [Link](https://www.reuters.com/technology/brazil-top-court-lifts-starlink-x-account-blockage-after-3-million-transfer-2024-09-13/)
+- **Elon Musk's battle for free speech is getting expensive**: [Link](https://www.businessinsider.com/elon-musk-brazil-free-speech-content-moderation-fines-seizure-2024-9)
+- **Brazil unfreezes Starlink, X bank accounts after ordering $3 million fines 
+paid amid Musk legal battle**: [Link](https://www.foxbusiness.com/fox-news-world/brazil-unfreezes-starlink-x-bank-accounts-after-ordering-3-million-fines-paid-amid-elon-musk-legal-battle)
+
+
 ### باريس سان جيرمان (N/A, Sat, 14 Sep 2024 14:20:00 -0700)
 
 - **حكيمي يبلغ باريس بقرار مصيري**: [Link](https://www.kooora.com/?n=1354481)
