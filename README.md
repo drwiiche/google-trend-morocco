@@ -1,3 +1,19 @@
+### atalanta – fiorentina (N/A, Sun, 15 Sep 2024 05:30:00 -0700)
+
+- **Alle 15 Atalanta a caccia dei 3 punti contro la Fiorentina nel suo stadio 
+rinnovato**: [Link](https://www.rainews.it/tgr/lombardia/articoli/2024/09/atalanta-caccia-3-punti--fiorentina-stadio-rinnovato-gewiss-stadium-aa72c206-77d7-43d8-a0db-3b97169c5f2d.html)
+- **FORMAZIONI UFFICIALI – La scelta su Rebic, Lookman, Kolasinac, De Gea, 
+Bove, Sosa e Adams**: [Link](https://www.sosfanta.com/focus/formazioni-ufficiali-la-scelta-su-rebic-lookman-kolasinac-de-gea-bove-sosa-e-adams/)
+- **FORM. UFFICIALI, DE GEA IN PORTA. A 5 NEL MEZZO, DAVANTI COLPANI-KEAN**: [Link](https://www.firenzeviola.it/copertina/form-ufficiali-de-gea-in-porta-a-5-nel-mezzo-davanti-colpani-kean-432767)
+
+
+### tottenham – arsenal (N/A, Sun, 15 Sep 2024 05:10:00 -0700)
+
+- **Team news: Jorginho one of two changes at Spurs**: [Link](https://www.arsenal.com/news/team-news-jorginho-one-two-changes-spurs)
+- **Tottenham vs Arsenal: 3 key battles for the North London Derby**: [Link](https://paininthearsenal.com/posts/tottenham-vs-arsenal-3-key-battles-north-london-derby-15-09-24/3)
+- **Premier League Soccer: Livestream Tottenham vs. Arsenal From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-tottenham-vs-arsenal-from-anywhere/)
+
+
 ### تهنئة عيد المولد النبوي (N/A, Sun, 15 Sep 2024 03:20:00 -0700)
 
 - **خطيب المسجد النبوي يُعلق على حكم الاحتفال بالمولد النبوي (فيديو)**: [Link](https://ar.hibapress.com/details-551562.html)
