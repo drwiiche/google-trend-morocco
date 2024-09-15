@@ -1,3 +1,11 @@
+### atlético madrid – valence (N/A, Sun, 15 Sep 2024 11:10:00 -0700)
+
+- **Atlético Madrid / Valence en streaming direct et replay sur CANAL+**: [Link](https://www.canalplus.com/sport/atletico-madrid-valence/h/26314320_50009)
+- **Liga : Très attendu avec un recrutement étoffé, l'Atlético a beaucoup de 
+travail devant lui**: [Link](https://www.flashscore.fr/actualites/tres-attendu-avec-un-recrutement-etoffe-l-atletico-a-beaucoup-de-travail-devant-lui/EPlPKqTj/)
+- **Pronostic Atlético Valence : Analyse, cotes et prono du match de Liga**: [Link](https://www.sofoot.com/breves/pronostic-atletico-valence-analyse-cotes-et-prono-du-match-de-liga)
+
+
 ### raja vs samartex (N/A, Sun, 15 Sep 2024 09:00:00 -0700)
 
 - **Samartex surrender lead to draw 2-2 with Raja Casablanca in CAF Champions 
