@@ -1,3 +1,10 @@
+### تهاني عيد المولد النبوي الشريف (N/A, Sun, 15 Sep 2024 14:40:00 -0700)
+
+- **سكنفل: الاحتفال بالمولد النبوي سنة حسنة وقد يكون واجبا (حوار)**: [Link](https://al3omk.com/965263.html)
+- **خطيب المسجد النبوي يُعلق على حكم الاحتفال بالمولد النبوي (فيديو)**: [Link](https://ar.hibapress.com/details-551562.html)
+- **إفتاء مصر تذكر دليل الاحتفال بالمولد النبوي.. ما رأي ابن باز؟**: [Link](https://arabic.cnn.com/middle-east/article/2024/09/07/egypt-fatwa-saudi-ibn-baz-celebrating-rophet-mohammad-birthday)
+
+
 ### تهنئة ذكرى المولد النبوي (N/A, Sun, 15 Sep 2024 14:30:00 -0700)
 
 - **تهنئة المولد النبوي 2024.. أجمل الرسائل والعبارات والأناشيد في حب الرسول**: [Link](https://www.elwatannews.com/news/details/7556100)
