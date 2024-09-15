@@ -1,3 +1,10 @@
+### al ittihad (N/A, Sun, 15 Sep 2024 13:40:00 -0700)
+
+- **Al-Ittihad 7-1 Al-Wehda: Benzema treble keeps hosts perfect**: [Link](https://www.sportsmax.tv/football/item/152028-al-ittihad-7-1-al-wehda-benzema-treble-keeps-hosts-perfect)
+- **Al-Wahda coach: We will play the Al-Ittihad match without any pressure**: [Link](https://www.ysscores.com/en/news/4173876/Al-Wahda-coach:-We-will-play-the-Al-Ittihad-match-without-any-pressure)
+- **Preview: Al Ittihad vs. Al Wahda - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittihad/preview/preview-al-ittihad-vs-al-wahda-prediction-team-news-lineups_552874.html)
+
+
 ### inter (N/A, Sun, 15 Sep 2024 13:00:00 -0700)
 
 - **Lionel Messi: Two goals and an assist on Inter Miami injury return in MLS**: [Link](https://www.bbc.com/sport/football/articles/cwy93d53jjlo)
