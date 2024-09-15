@@ -1,3 +1,12 @@
+### trump (N/A, Sun, 15 Sep 2024 12:40:00 -0700)
+
+- **Baseless rumors about Haitian immigrants threaten to unravel Springfield, 
+Ohio**: [Link](https://www.nbcnews.com/news/us-news/baseless-rumors-haitian-immigrants-threaten-unravel-springfield-ohio-rcna170513)
+- **Why Thousands of Haitians Have Settled in Springfield, Ohio**: [Link](https://www.nytimes.com/2024/09/14/us/haitian-migrants-springfield-ohio.html)
+- **Springfield police say no reports of pets stolen, eaten, after viral social 
+media post**: [Link](https://www.springfieldnewssun.com/news/springfield-police-say-no-reports-of-pets-stolen-after-viral-social-media-post/3WSIZQNHQVE4NP4TS5BVHBB2PY/)
+
+
 ### al ittihad – al wehda (N/A, Sun, 15 Sep 2024 10:20:00 -0700)
 
 - **Al Ittihad vs. Al Wehda (15 Sep, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/715944)
