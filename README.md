@@ -1,3 +1,10 @@
+### marrakech (N/A, Sun, 15 Sep 2024 00:50:00 -0700)
+
+- **La cuisine marocaine récompensée**: [Link](https://www.bladi.net/cuisine-marocaine-recompensee,110477.html)
+- **Marrakech: le Maroc remporte le prix culinaire Bocuse d’Or Afrique 2024**: [Link](https://www.h24info.ma/marrakech-le-maroc-remporte-le-prix-culinaire-bocuse-dor-afrique-2024/)
+- **Les grands chefs d’Afrique en compétition culinaire à Marrakech**: [Link](https://mobile.telquel.ma/instant-t/2024/09/12/les-grands-chefs-dafrique-en-competition-culinaire-a-marrakech_1893401/)
+
+
 ### fnideq (N/A, Sun, 15 Sep 2024 01:30:00 -0700)
 
 - **État d’alerte à Ceuta suite aux appels à l’immigration massive ce dimanche**: [Link](https://ledesk.ma/encontinu/etat-dalerte-a-ceuta-suite-aux-appels-a-limmigration-massive-ce-dimanche/)
