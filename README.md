@@ -1,3 +1,12 @@
+### napoli (N/A, Sun, 15 Sep 2024 10:30:00 -0700)
+
+- **Cagliari-Napoli, le formazioni ufficiali: Kvara c'è, Neres e McTominay in 
+panchina**: [Link](https://www.fantacalcio.it/news/calcio-italia/15_09_2024/cagliari-napoli-le-formazioni-ufficiali-466148)
+- **Antonio Conte e il siparietto con Giaccherini: cosa ha detto**: [Link](https://www.ilbianconero.com/a/antonio-conte-e-il-siparietto-con-giaccherini-cosa-ha-detto-37119)
+- **FLASH – Gol di Di Lorenzo o autogol di Mina, la decisione della Lega Serie 
+A. E l’assist a Lukaku…**: [Link](https://www.sosfanta.com/box-focus/flash-gol-di-di-lorenzo-o-autogol-di-mina-la-decisione-della-lega-serie-a-e-lassist-a-lukaku/)
+
+
 ### ceuta immigration (N/A, Sun, 15 Sep 2024 10:10:00 -0700)
 
 - **Les forces de sécurité marocaines et espagnoles empêchent un vaste 
