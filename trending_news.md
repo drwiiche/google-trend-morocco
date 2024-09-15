@@ -1,3 +1,11 @@
+### classement la liga (N/A, Sat, 14 Sep 2024 13:40:00 -0700)
+
+- **Real Sociedad 0-2 Real Madrid, La Liga : Le Real souffre et fait mal**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-sociedad-real-madrid-live/657327)
+- **Liga : Le Real Madrid bat difficilement le Real Sociedad avec deux 
+penalties de Vinicius et Mbappé**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-le-real-madrid-bat-difficilement-le-real-sociedad-avec-deux-penalties-de-vinicius-et-mbappe_sto10340019/story.shtml)
+- **Mbappé-Vinicius, une histoire de penalty**: [Link](https://www.sports.fr/football/espagne/mbappe-vinicius-une-histoire-de-penalty-865487.html)
+
+
 ### inter miami – philadelphie union (N/A, Sat, 14 Sep 2024 15:50:00 -0700)
 
 - **Messi poised for Inter Miami return**: [Link](https://thesun.my/sport/messi-poised-for-inter-miami-return-HC13001699)
