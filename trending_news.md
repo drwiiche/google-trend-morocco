@@ -1,3 +1,16 @@
+### programme tv (N/A, Sun, 15 Sep 2024 12:00:00 -0700)
+
+- **Ce soir à la télé : Brad Pitt face à Aaron Taylor-Johnson... Qui gagne ?**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000101674.html)
+- **Bullet train : l'un des acteurs du film pourrait être le prochain James Bond**: [Link](https://www.linternaute.com/cinema/tous-les-films/2643217-bullet-train-l-un-des-acteurs-du-film-pourrait-etre-le-prochain-james-bond/)
+
+
+### inter milan (N/A, Sun, 15 Sep 2024 11:50:00 -0700)
+
+- **Murder exposes growing ties between the mafia and Italian football**: [Link](https://www.thetimes.com/world/europe/article/inter-milan-ultras-murder-mafia-7flmmqr8n)
+- **Calm before derby storm for Inter as dark fan underbelly revealed**: [Link](https://www.mydailyrecord.com/news/national/calm-before-derby-storm-for-inter-as-dark-fan-underbelly-revealed/article_651600c1-4dec-5074-9fa0-3405c30f3842.html)
+- **Calm before derby storm for Inter as dark fan underbelly revealed**: [Link](https://www.leader-call.com/news/national/calm-before-derby-storm-for-inter-as-dark-fan-underbelly-revealed/article_7309641e-2330-50e2-9728-b93421bf7a7b.html)
+
+
 ### monza – inter (N/A, Sun, 15 Sep 2024 11:40:00 -0700)
 
 - **Preview: Monza vs. Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/monza/preview/preview-monza-vs-inter-milan-prediction-team-news-lineups_552816.html)
