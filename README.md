@@ -1,3 +1,19 @@
+### samartex (N/A, Sun, 15 Sep 2024 09:40:00 -0700)
+
+- **Samartex coach Nurudeen Amadu promises tough challenge for Raja Casablanca**: [Link](https://ghanasoccernet.com/samartex-coach-nurudeen-amadu-promises-tough-challenge-for-raja-casablanca)
+- **The Knowledge: Ghanaian clubs v Moroccan clubs all time meetings in the CAF 
+Champions League**: [Link](https://sportsworldghana.com/the-knowledge-ghanaian-clubs-v-moroccan-clubs-all-time-meetings-in-the-caf-champions-league/)
+- **CAF Champions League: Samartex look to Dreams FC and Karim Zito for 
+inspiration**: [Link](https://www.myjoyonline.com/caf-champions-league-samartex-look-to-dreams-fc-and-karim-zito-for-inspiration/)
+
+
+### cagliari – naples (N/A, Sun, 15 Sep 2024 09:30:00 -0700)
+
+- **Serie A official line-ups: Cagliari vs. Napoli**: [Link](https://football-italia.net/serie-a-official-line-ups-cagliari-vs-napoli/)
+- **Cagliari Calcio vs SSC Napoli: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2024/09/14/cagliari-calcio-vs-ssc-napoli-preview-and-prediction/)
+- **Preview: Cagliari vs. Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cagliari/preview/preview-cagliari-vs-napoli-prediction-team-news-lineups_552805.html)
+
+
 ### match raja aujourd'hui (N/A, Sun, 15 Sep 2024 08:30:00 -0700)
 
 - **Samartex – Raja Casablanca : Chaîne, streaming, où voir le match ? | 
