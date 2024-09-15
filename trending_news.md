@@ -1,3 +1,45 @@
+### raja live (N/A, Sun, 15 Sep 2024 08:10:00 -0700)
+
+- **Harsh Goenka flags ‘unequal treatment’ at Lalbagucha Raja as commoners 
+struggle amid VIP photo ops | Video | Today News**: [Link](https://www.livemint.com/news/india/harsh-goenka-flags-unequal-treatment-at-lalbagucha-raja-as-commoners-struggle-amid-vip-photo-ops-ganesh-chaturthi-mumbai-11726397442587.html)
+- **'They Pushed My Mother': Pandya Store Actor Simran Budharup Opens Up On 
+Lalbaugcha Raja Incident**: [Link](https://timesofindia.indiatimes.com/videos/tv/hindi/they-pushed-my-mother-pandya-store-actor-simran-budharup-opens-up-on-lalbaugcha-raja-incident/videoshow/113327910.cms)
+- **Public, VIPs Treated Differently At Lalbaugcha Raja: Complaint To Mumbai 
+Cops**: [Link](https://www.ndtv.com/mumbai-news/public-vips-treated-differently-at-lalbaugcha-raja-complaint-to-mumbai-cops-6571080)
+
+
+### la liga (N/A, Sun, 15 Sep 2024 08:10:00 -0700)
+
+- **La Liga side will return for 28-year-old Real Madrid midfielder in January 
+– report**: [Link](https://madriduniversal.com/la-liga-side-will-return-for-28-year-old-real-madrid-midfielder-in-january-report/)
+- **BIG NEWS: The star that Real Betis are considering to replace William 
+Carvalho**: [Link](https://www.fichajes.net/en/news/big-news-the-star-that-real-betis-are-considering-to-replace-william-carvalho-20240914.html)
+- **Real Betis star ruled out for the rest of the season with Achilles injury**: [Link](https://sports.yahoo.com/real-betis-star-ruled-rest-161300325.html)
+
+
+### laliga (N/A, Sun, 15 Sep 2024 08:10:00 -0700)
+
+- **Ayoze Perez late show keeps Villarreal in touch**: [Link](https://www.beinsports.com/en-au/football/laliga/articles-video/ayoze-perez-late-show-keeps-villarreal-in-touch-2024-09-15)
+- **Mallorca vs Villarreal Prediction, 9/14/2024 La Liga Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/mallorca-vs-villarreal-prediction-9-14-2024-la-liga-soccer-pick-tips-and-odds.html)
+- **Mallorca vs. Villarreal - Football Match Preview - September 14, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704709)
+
+
+### ligue des champions de la caf (N/A, Sun, 15 Sep 2024 08:10:00 -0700)
+
+- **C3 – 2E TOUR ALLER (16H00) RUKINZO-CSS: Un statut à assumer**: [Link](https://lapresse.tn/2024/09/15/c3-2e-tour-aller-16h00-rukinzo-css-un-statut-a-assumer/)
+- **DSC - EST : C'est le grand jour !**: [Link](https://e-s-tunis.com/fr/news/2024/09/15/15325-dsc-est-c-est-le-grand-jour)
+- **Compétitions CAF : Le programme des matches des clubs tunisiens**: [Link](https://www.tuniscope.com/ar/article/389811/actualites/sport/competitions-caf-le-programme-des-matches-des-clubs-tunisiens-301913)
+
+
+### بث مباشر (N/A, Sun, 15 Sep 2024 07:40:00 -0700)
+
+- **موعد مباراة الأهلي وجورماهيا في دوري أبطال أفريقيا 2024-2025 والقنوات 
+الناقلة**: [Link](https://m.kooora.com/?n=1354649)
+- **يحيى عطية الله: “أحلم بدوري الأبطال مع الأهلي”**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/444921.html)
+- **الأهلي المصري يتفوق بثلاثية نظيفة على جورماهيا الكيني**: [Link](https://www.raialyoum.com/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D9%86%D8%B8%D9%8A%D9%81%D8%A9-%D8%B9%D9%84%D9%89/)
+
+
 ### wolves – newcastle (N/A, Sun, 15 Sep 2024 08:00:00 -0700)
 
 - **Matchday Blog | Wolves vs Newcastle | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20240915-matchday-blog-wolves-vs-newcastle/)
