@@ -1,3 +1,10 @@
+### tottenham (N/A, Sun, 15 Sep 2024 06:10:00 -0700)
+
+- **Tottenham Hotspur Partners with Global Online Trading Platform AIMS #AIMS**: [Link](https://www.media-outreach.com/news/australia/2024/09/13/326510/tottenham-hotspur-partners-with-global-online-trading-platform-aims/)
+- **Team news: Jorginho one of two changes at Spurs**: [Link](https://www.arsenal.com/news/team-news-jorginho-one-two-changes-spurs)
+- **Tottenham vs Arsenal: 3 key battles for the North London Derby**: [Link](https://paininthearsenal.com/posts/tottenham-vs-arsenal-3-key-battles-north-london-derby-15-09-24/3)
+
+
 ### coupe du monde futsal 2024 (N/A, Sun, 15 Sep 2024 05:50:00 -0700)
 
 - **Coupe du monde de Futsal : Début de l'aventure pour les Lions de l'Atlas**: [Link](https://fr.hespress.com/386035-coupe-du-monde-de-futsal-debut-de-laventure-pour-les-lions-de-latlas.html)
