@@ -1,3 +1,15 @@
+### f1 (N/A, Sun, 15 Sep 2024 03:00:00 -0700)
+
+- **Azerbaijan GP: Lando Norris 'still hopeful' of good result**: [Link](https://www.bbc.com/sport/formula1/articles/c70w3ln102do)
+- **Leclerc beats Piastri to pole in Azerbaijan as Norris suffers shock Q1 exit**: [Link](https://www.formula1.com/en/latest/article/leclerc-beats-piastri-to-pole-in-azerbaijan-as-norris-suffers-shock-q1-exit.62ohN93LSZDFfUV1wbPt5H)
+- **Close Qualifying for the Team at the Azerbaijan GP**: [Link](https://www.mercedesamgf1.com/news/close-qualifying-for-the-team-at-the-azerbaijan-gp)
+
+
+### kech24 (N/A, Sun, 15 Sep 2024 01:30:00 -0700)
+
+
+
+
 ### alyaoum24 (N/A, Sun, 15 Sep 2024 02:40:00 -0700)
 
 
