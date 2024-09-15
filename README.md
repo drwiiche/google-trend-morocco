@@ -1,3 +1,27 @@
+### tremblement de terre marseille (N/A, Sun, 15 Sep 2024 04:00:00 -0700)
+
+- **Un séisme ressenti sur la Côte d’Azur, l’épicentre situé au large de Fréjus**: [Link](https://www.lefigaro.fr/sciences/un-seisme-ressenti-sur-la-cote-d-azur-l-epicentre-situe-au-large-de-frejus-20240914)
+- **"J’étais sur mon canapé et j’ai bougé de gauche à droite" : un séisme de 
+magnitude 4,3 secoue le Var et les Alpes-Maritimes**: [Link](https://www.ladepeche.fr/2024/09/15/jetais-sur-mon-canape-et-jai-bouge-de-gauche-a-droite-un-seisme-de-magnitude-43-secoue-le-var-et-les-alpes-maritimes-12198785.php)
+- **Séisme au large de la Côte d'Azur, des secousses ressenties jusqu'à 
+Marseille : "On a senti le canapé trembler"**: [Link](https://www.laprovence.com/article/ecoplanete/4453367811897914/seisme-au-large-la-cote-dazur-des-secousses-ressenties-jusqua-marseille-on-a-senti-le-canape-trembler)
+
+
+### genoa – roma (N/A, Sun, 15 Sep 2024 03:50:00 -0700)
+
+- **De Rossi explains unexpected Roma picks and shows love for Totti**: [Link](https://football-italia.net/de-rossi-explains-unexpected-roma-picks-totti/)
+- **Genoa vs AS Roma Prediction, 9/15/2024 Serie A Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/genoa-vs-as-roma-prediction-9-15-2024-serie-a-soccer-pick-tips-and-odds.html)
+- **Watch Genoa CFC vs. AS Roma Online: Live Stream, Start Time**: [Link](https://bvmsports.com/2024/09/10/watch-genoa-cfc-vs-as-roma-online-live-stream-start-time/)
+
+
+### كاس العالم للفوتسال (N/A, Sun, 15 Sep 2024 02:50:00 -0700)
+
+- **"مونديال الفوتسال".. البرازيل تضرب بقوة والمغرب يراهن على إنجاز تاريخي**: [Link](https://www.hespress.com/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A8%D9%82%D9%88%D8%A9-1431538.html)
+- **لاعبو المنتخب المغربي لـ"الفوتسال": "نحن في أتم الاستعداد للمونديال 
+والمباراة الأولى هي مفتاح البطولة"**: [Link](https://m.elbotola.com/article/2024-09-14-22-06-492.html)
+- **شاهد القاعة الساحرة التي ستحتضن مباراة المغرب وطاجيكستان**: [Link](https://www.akhbarona.com/videos/392154.html)
+
+
 ### f1 (N/A, Sun, 15 Sep 2024 03:00:00 -0700)
 
 - **Azerbaijan GP: Lando Norris 'still hopeful' of good result**: [Link](https://www.bbc.com/sport/formula1/articles/c70w3ln102do)
