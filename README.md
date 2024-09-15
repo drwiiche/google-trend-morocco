@@ -1,3 +1,11 @@
+### girona - barcelona (N/A, Sun, 15 Sep 2024 06:40:00 -0700)
+
+- **Preview: Girona vs. Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/preview/preview-girona-vs-barcelona-prediction-team-news-lineups_552879.html)
+- **Hansi Flick talks Gavi, Ansu, Yamal, Raphinha, Eric Garcia ahead of Girona 
+vs Barcelona**: [Link](https://barcauniversal.com/hansi-flick-talks-gavi-ansu-yamal-raphinha-eric-garcia-ahead-of-girona-vs-barcelona/)
+- **FCBN cover 09/15/2024: GIRONA-BARÇA, A CHAMPIONS DUEL!**: [Link](https://www.fcbarcelonanoticias.com/en/football-covers/cover-fcbn-15-09-2024-girona-barca-a-duel-champions_307285_102.html)
+
+
 ### barca (N/A, Sun, 15 Sep 2024 07:10:00 -0700)
 
 - **Barca arenata, avviso della Guardia Costiera**: [Link](https://www.gardapost.it/2024/09/15/barca-arenata-avviso-della-guardia-costiera/)
