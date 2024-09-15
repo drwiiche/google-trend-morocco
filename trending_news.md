@@ -1,3 +1,17 @@
+### toulouse – le havre (N/A, Sun, 15 Sep 2024 08:30:00 -0700)
+
+- **PRONOS PARIS RMC Le nul du jour du 15 septembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-15-septembre-ligue-1_AN-202409140414.html)
+- **Les chiffres clés de l'avant-match TéFéCé/Havre**: [Link](https://www.toulousefc.com/play/blog/2024/09-septembre/les-chiffres-cles-de-l-avant-match-tefece-havre)
+- **Le TFC persiste, les médaillés des JO seront célébrés face à Lyon, les supporters ne comprennent pas**: [Link](https://www.lesviolets.com/actu/le-tfc-persiste-les-medailles-des-jo-seront-celebres-face-a-lyon-les-supporters-ne-comprennent-pas,73706.html)
+
+
+### كاس العالم لكرة الصالات 2024 (N/A, Sun, 15 Sep 2024 08:30:00 -0700)
+
+- **"مونديال الفوتسال".. البرازيل تضرب بقوة والمغرب يراهن على إنجاز تاريخي**: [Link](https://www.hespress.com/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A8%D9%82%D9%88%D8%A9-1431538.html)
+- **لاعبو المنتخب المغربي لـ"الفوتسال": "نحن في أتم الاستعداد للمونديال والمباراة الأولى هي مفتاح البطولة"**: [Link](https://m.elbotola.com/article/2024-09-14-22-06-492.html)
+- **شاهد القاعة الساحرة التي ستحتضن مباراة المغرب وطاجيكستان**: [Link](https://www.akhbarona.com/videos/392154.html)
+
+
 ### raja live (N/A, Sun, 15 Sep 2024 08:10:00 -0700)
 
 - **Harsh Goenka flags ‘unequal treatment’ at Lalbagucha Raja as commoners 
