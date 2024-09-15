@@ -1,3 +1,13 @@
+### raja vs samartex (N/A, Sun, 15 Sep 2024 09:00:00 -0700)
+
+- **Samartex surrender lead to draw 2-2 with Raja Casablanca in CAF Champions 
+League thriller**: [Link](https://ghanasoccernet.com/samartex-surrender-lead-to-draw-2-2-with-raja-casablanca-in-caf-champions-league-thriller)
+- **The Knowledge: Ghanaian clubs v Moroccan clubs all time meetings in the CAF 
+Champions League**: [Link](https://sportsworldghana.com/the-knowledge-ghanaian-clubs-v-moroccan-clubs-all-time-meetings-in-the-caf-champions-league/)
+- **CAF Champions League prelims: FC Samartex coach Nurudeen Amadu pledges 
+tough challenge for Raja Casablanca**: [Link](https://www.modernghana.com/sports/1341201/caf-champions-league-prelims-fc-samartex-coach.html)
+
+
 ### napoli (N/A, Sun, 15 Sep 2024 10:30:00 -0700)
 
 - **Cagliari-Napoli, le formazioni ufficiali: Kvara c'è, Neres e McTominay in 
