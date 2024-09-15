@@ -1,3 +1,11 @@
+### la liga (N/A, Sat, 14 Sep 2024 13:40:00 -0700)
+
+- **When and where to watch Girona FC v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/news/4111045/when-and-where-to-watch-girona-fc-v-fc-barcelona)
+- **'It's a Champions League game and we have to give 100 per cent to win'**: [Link](https://www.besoccer.com/new/it-s-a-champions-league-game-and-we-have-to-give-100-per-cent-to-win-1330603)
+- **Hansi Flick talks Gavi, Ansu, Yamal, Raphinha, Eric Garcia ahead of Girona 
+vs Barcelona**: [Link](https://barcauniversal.com/hansi-flick-talks-gavi-ansu-yamal-raphinha-eric-garcia-ahead-of-girona-vs-barcelona/)
+
+
 ### ufc (N/A, Sat, 14 Sep 2024 18:30:00 -0700)
 
 - **Prelim Results | UFC 306: O'Malley vs Dvalishvili**: [Link](https://www.ufc.com/news/prelim-results-highlights-winner-interviews-ufc-306-omalley-vs-dvalishvili-noche-ufc-sphere)
