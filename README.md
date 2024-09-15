@@ -1,3 +1,24 @@
+### monza – inter (N/A, Sun, 15 Sep 2024 11:40:00 -0700)
+
+- **Preview: Monza vs. Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/monza/preview/preview-monza-vs-inter-milan-prediction-team-news-lineups_552816.html)
+- **Serie A: Monza vs Inter – probable line-ups**: [Link](https://football-italia.net/serie-a-monza-vs-inter-probable-line-ups-2/)
+- **Man City, AC Milan & More – A Fiery Month Awaits Inter Milan**: [Link](https://sempreinter.com/2024/09/13/man-city-ac-milan-more-fiery-month-awaits-inter-milan/)
+
+
+### الاتحاد ضد الوحدة (N/A, Sun, 15 Sep 2024 11:40:00 -0700)
+
+- **زينباور: "الكرة المغربية مهارية عكس نظيرتها السعودية التكتيكية ومع الرجاء كنت أهاجم لأنه فريق ينافس على الألقاب"**: [Link](https://m.elbotola.com/article/2024-09-15-13-19-588.html)
+- **بالصور.. تيفو عالمي للاتحاد في مواجهة الوحدة**: [Link](https://m.kooora.com/?n=1354980&o=n27332)
+- **تشكيلة الاتحاد الرسمية لمواجهة الوحدة**: [Link](https://hihi2.com/2024/09/15/p2849714.html)
+
+
+### fenerbahçe (N/A, Sun, 15 Sep 2024 11:20:00 -0700)
+
+- **Futbolcularımız, Kasımpaşa galibiyetinin ardından açıklamalarda bulundu**: [Link](https://www.fenerbahce.org/haberler/futbol/2024/9/futbolcularimiz-kasimpasa-galibiyetinin-ardindan-aciklamalarda-bulundu)
+- **Fenerbahçe'den inanılmaz seri: 60 yıllık rekoru kırdı**: [Link](http://mobil.hurriyet.com.tr/sporarena/fenerbahceden-inanilmaz-seri-60-yillik-rekoru-kirdi-42532486)
+- **Barış Kanbak: "Gösterdiğimiz mücadele bizim için çok değerli"**: [Link](https://www.ntvspor.net/futbol/baris-kanbak-gosterdigimiz-mucadele-bizim-icin-cok-degerli-66e71a57051e620433664c66)
+
+
 ### atlético madrid – valence (N/A, Sun, 15 Sep 2024 11:10:00 -0700)
 
 - **Atlético Madrid / Valence en streaming direct et replay sur CANAL+**: [Link](https://www.canalplus.com/sport/atletico-madrid-valence/h/26314320_50009)
