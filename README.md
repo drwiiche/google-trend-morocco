@@ -1,3 +1,17 @@
+### fc barcelone (N/A, Sun, 15 Sep 2024 07:00:00 -0700)
+
+- **Hansi Flick met en garde Lamine Yamal**: [Link](https://www.footmercato.net/a2665712520435658021-hansi-flick-met-en-garde-lamine-yamal)
+- **Le groupe du Barça convoqué pour le derby à Gérone**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4116386/le-groupe-du-barca-convoque-pour-le-derby-a-gerone)
+- **Le onze de départ du Barça contre Gérone**: [Link](https://www.blaugranas.fr/match/le-onze-de-depart-du-barca-contre-gerone-6712)
+
+
+### kasımpaşa – fenerbahçe (N/A, Sun, 15 Sep 2024 06:50:00 -0700)
+
+- **Kasımpaşa-Fenerbahçe (Canlı anlatım)**: [Link](https://www.ntvspor.net/futbol/kasimpasa-fenerbahce-canli-anlatim-66e6e678051e6204336648b5)
+- **Fenerbahçe, Kasımpaşa deplasmanında galibiyet arıyor: İlk 11’ler**: [Link](https://gundemfethiye.com/fenerbahce-kasimpasa-deplasmaninda-galibiyet-ariyor-ilk-11ler-69157/)
+- **Fenerbahçe’nin Kasımpaşa karşısındaki ilk 11’i belli oldu**: [Link](https://t24.com.tr/haber/fenerbahce-nin-rakibi-kasimpasa-,1184033)
+
+
 ### barca vs girona (N/A, Sun, 15 Sep 2024 06:10:00 -0700)
 
 - **PREVIEW: Girona v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4116733/preview-girona-v-fc-barcelona)
