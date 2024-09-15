@@ -1,3 +1,10 @@
+### al ittihad – al wehda (N/A, Sun, 15 Sep 2024 10:20:00 -0700)
+
+- **Al Ittihad vs. Al Wehda (15 Sep, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/715944)
+- **Al-Wahda coach: We will play the Al-Ittihad match without any pressure**: [Link](https://www.ysscores.com/en/news/4173876/Al-Wahda-coach:-We-will-play-the-Al-Ittihad-match-without-any-pressure)
+- **Historic foes clash in 'The Old Derby'**: [Link](https://onefootball.com/en/news/historic-foes-clash-in-the-old-derby-40032467)
+
+
 ### atlético madrid vs valencia (N/A, Sun, 15 Sep 2024 12:10:00 -0700)
 
 - **Atlético vs Valencia: Sin red... ¡en septiembre!**: [Link](https://www.marca.com/futbol/atletico/2024/09/15/66e5e39f268e3e20518b45a6.html)
