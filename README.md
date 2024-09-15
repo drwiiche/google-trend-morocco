@@ -1,3 +1,29 @@
+### champions league (N/A, Sun, 15 Sep 2024 08:50:00 -0700)
+
+- **PSG goalkeeper Donnarumma ruled out of Champions League opener against Girona**: [Link](https://www.ottumwacourier.com/sports/national_sports/psg-goalkeeper-donnarumma-ruled-out-of-champions-league-opener-against-girona/article_ad4ca1dc-a1cc-50f9-8821-c456ec8ed315.html)
+- **Italy captain Donnarumma might miss PSG game after son’s birth**: [Link](https://football-italia.net/italy-donnarumma-miss-psg-game-sons-birth/)
+- **PSG goalkeeper Donnarumma ruled out of Champions League opener against Girona**: [Link](https://www.wdtimes.com/sports/national_sports/psg-goalkeeper-donnarumma-ruled-out-of-champions-league-opener-against-girona/article_d3939afd-b366-510a-b3a0-2a6f164bcb9d.html)
+
+
+### يلا شووت (N/A, Sun, 15 Sep 2024 08:40:00 -0700)
+
+
+
+
+### raja club athletic (N/A, Sun, 15 Sep 2024 08:10:00 -0700)
+
+- **Botola Pro D1 "Inwi": Programme de la 2è journée**: [Link](https://fr.hespress.com/385952-botola-pro-d1-inwi-programme-de-la-2e-journee.html)
+- **Botola : Le Wydad bat le Moghreb de Tétouan, l'UTS s’impose face au MAS**: [Link](https://lematin.ma/sports/botola-le-wydad-bat-le-moghreb-de-tetouan-luts-simpose-face-au-mas/242973)
+- **Botola Pro D1 : Le Wydad Casablanca s’impose face au Moghreb Tétouan**: [Link](https://www.menara.ma/fr/article/botola-pro-d1-le-wydad-casablanca-simpose-face-au-moghreb-tetouan)
+
+
+### مباراة الرجاء اليوم (N/A, Sun, 15 Sep 2024 08:00:00 -0700)
+
+- **مباشر مباراة الرجاء المغربي ضد سامارتكس الغاني في دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/15/raja-samartex)
+- **"سامارتيكس": لن نبالغ في احترام الرجاء**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%83%D8%B3-%D9%84%D9%86-%D9%86%D8%A8%D8%A7%D9%84%D8%BA-%D9%81%D9%8A-%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-1431227.html)
+- **الموعد والقنوات الناقلةمجانا لمباراة الرجاء وسمارتيكس الغاني**: [Link](https://ar.sport.le360.ma/football/ligue-des-champions-caf/JJZGSWVOA5HTPMM6LQFXXKKOQY/)
+
+
 ### las palmas – ath. bilbao (N/A, Sun, 15 Sep 2024 08:40:00 -0700)
 
 - **LA PREVIA: ¡En busca del primer triunfo de la temporada!**: [Link](https://www.udlaspalmas.es/noticias/la-previa-jornada-5-athletic-club)
