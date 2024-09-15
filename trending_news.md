@@ -1,3 +1,11 @@
+### ram (N/A, Sat, 14 Sep 2024 22:40:00 -0700)
+
+- **iPhone 16 Pro and iPhone 16 Pro Max**: [Link](https://www.apple.com/iphone-16-pro/)
+- **iPhone 16 Pro vs. 15 Pro vs. 14 Pro vs. 13 Pro: Should You Upgrade This 
+Year?**: [Link](https://www.cnet.com/tech/mobile/iphone-16-pro-vs-15-pro-vs-14-pro-vs-13-pro-should-you-upgrade-this-year/)
+- **How to get a ‘free’ iPhone 16 and why maybe you shouldn’t**: [Link](https://www.washingtonpost.com/technology/2024/09/14/iphone-16-price-deals-should-you-upgrade/)
+
+
 ### x (N/A, Sun, 15 Sep 2024 00:20:00 -0700)
 
 - **Brazil top court lifts Starlink, X bank account freeze after $3 mln transfer**: [Link](https://www.reuters.com/technology/brazil-top-court-lifts-starlink-x-account-blockage-after-3-million-transfer-2024-09-13/)
