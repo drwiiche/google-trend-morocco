@@ -1,3 +1,10 @@
+### تهنئة عيد المولد النبوي (N/A, Sun, 15 Sep 2024 03:20:00 -0700)
+
+- **خطيب المسجد النبوي يُعلق على حكم الاحتفال بالمولد النبوي (فيديو)**: [Link](https://ar.hibapress.com/details-551562.html)
+- **تهنئة المولد النبوي 2024.. أجمل الصور والعبارات والأناشيد في حب الرسول**: [Link](https://www.elwatannews.com/news/details/7556100)
+- **بين التقاليد والدين: مواقف متباينة لمغاربة حول الاحتفال بالمولد النبوي**: [Link](https://febrayer.com/1071518.html)
+
+
 ### tremblement de terre marseille (N/A, Sun, 15 Sep 2024 04:00:00 -0700)
 
 - **Un séisme ressenti sur la Côte d’Azur, l’épicentre situé au large de Fréjus**: [Link](https://www.lefigaro.fr/sciences/un-seisme-ressenti-sur-la-cote-d-azur-l-epicentre-situe-au-large-de-frejus-20240914)
