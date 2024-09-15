@@ -1,3 +1,18 @@
+### ufc (N/A, Sat, 14 Sep 2024 18:30:00 -0700)
+
+- **Prelim Results | UFC 306: O'Malley vs Dvalishvili**: [Link](https://www.ufc.com/news/prelim-results-highlights-winner-interviews-ufc-306-omalley-vs-dvalishvili-noche-ufc-sphere)
+- **UFC at Sphere, first ever sporting event at the venue**: [Link](https://news3lv.com/sports/sports-night-in-las-vegas/ufc-at-sphere-first-ever-sporting-event-at-the-venue)
+- **The Future of Fight Nights: 10 Groundbreaking Elements that Make Noche UFC 
+306at The Sphere a Game-Changer**: [Link](https://www.blackbeltmag.com/the-future-of-fight-nights-10-groundbreaking-elements-that-make-noche-ufc-306at-the-sphere-a-game-c)
+
+
+### mls (N/A, Sat, 14 Sep 2024 18:20:00 -0700)
+
+- **Carlos Vela Joins New Team**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/carlos-vela-joins-new-team-2024-09-14)
+- **Report: Former MLS MVP Vela finalizing deal to return to LAFC**: [Link](https://thescore.com/mls/news/3074244)
+- **Carlos Vela agrees to new contract with LAFC: Sources**: [Link](https://www.givemesport.com/carlos-vela-agrees-new-contract-lafc-sources/)
+
+
 ### classement la liga (N/A, Sat, 14 Sep 2024 13:40:00 -0700)
 
 - **Real Sociedad 0-2 Real Madrid, La Liga : Le Real souffre et fait mal**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-sociedad-real-madrid-live/657327)
