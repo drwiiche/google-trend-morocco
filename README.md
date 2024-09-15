@@ -1,3 +1,19 @@
+### ceuta immigration (N/A, Sun, 15 Sep 2024 10:10:00 -0700)
+
+- **Les forces de sécurité marocaines et espagnoles empêchent un vaste 
+migratoire illégal**: [Link](https://fr.hespress.com/386139-les-forces-de-securite-marocaines-et-espagnoles-empechent-un-vaste-migratoire-illegal.html)
+- **Fnideq: près de 400 migrants franchissent le dispositif sécuritaire vers 
+Bab Sebta (vidéos)**: [Link](https://www.h24info.ma/fnideq-pres-de-400-migrants-franchissent-le-dispositif-securitaire-vers-bab-sebta-videos/)
+- **État d’alerte à Ceuta suite aux appels à l’immigration massive ce dimanche**: [Link](https://ledesk.ma/encontinu/etat-dalerte-a-ceuta-suite-aux-appels-a-limmigration-massive-ce-dimanche/)
+
+
+### الرجاء (N/A, Sun, 15 Sep 2024 08:10:00 -0700)
+
+- **الرجاء يتعادل أمام "سامارتكس" الغاني**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%A7%D9%85%D8%A7%D8%B1%D8%AA%D9%83%D8%B3-%D8%A7%D9%84%D8%BA%D8%A7%D9%86%D9%8A-1431869.html)
+- **الرجاء يعود بتعادل ثمين من غانا في عصبة الأبطال الإفريقية**: [Link](https://ar.hibapress.com/details-551783.html)
+- **موعد مباراة الرجاء المغربي ضد سامارتكس الغاني والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/9/15/1raja-club-athletic)
+
+
 ### liga (N/A, Sun, 15 Sep 2024 09:20:00 -0700)
 
 - **Primera División Real Sociedad 0 Real Madrid 2 Full time**: [Link](https://www.bbc.com/sport/football/live/cq5dvjz671wt)
