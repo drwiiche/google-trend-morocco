@@ -1,3 +1,17 @@
+### alyaoum24 (N/A, Sun, 15 Sep 2024 02:40:00 -0700)
+
+
+
+
+### bertrand latour (N/A, Sun, 15 Sep 2024 02:20:00 -0700)
+
+- **Bertrand Latour débauché par la concurrence, sa dernière compliquée sur la 
+chaîne L'Equipe : "Même si je suis agaçant..."**: [Link](https://www.purepeople.com/article/bertrand-latour-debauche-par-la-concurrence-sa-derniere-compliquee-sur-la-chaine-l-equipe-meme-si-je-suis-agacant_a527373/1)
+- **"C'est huit ans de ma vie" : En larmes, Bertrand Latour fait ses adieux 
+dans L’équipe du soir (VIDEO)**: [Link](https://www.programme-tv.net/news/tv/360637-c-est-huit-ans-de-ma-vie-en-larmes-bertrand-latour-fait-ses-adieux-dans-lequipe-du-soir-video/)
+- **Bertrand Latour, une page se tourne**: [Link](https://www.sports.fr/medias/bertrand-latour-une-page-se-tourne-865150.html)
+
+
 ### marrakech (N/A, Sun, 15 Sep 2024 00:50:00 -0700)
 
 - **La cuisine marocaine récompensée**: [Link](https://www.bladi.net/cuisine-marocaine-recompensee,110477.html)
