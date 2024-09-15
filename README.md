@@ -1,3 +1,10 @@
+### charles leclerc (N/A, Sun, 15 Sep 2024 05:40:00 -0700)
+
+- **Who starts where for the Azerbaijan Grand Prix**: [Link](https://www.formula1.com/en/latest/article/official-grid-who-starts-where-in-azerbaijan-after-hamilton-ocon-gasly-and.3ug2VLWWT5dL8BboBjnyRt)
+- **Close Qualifying for the Team at the Azerbaijan GP**: [Link](https://www.mercedesamgf1.com/news/close-qualifying-for-the-team-at-the-azerbaijan-gp)
+- **Mark Hughes: Leclerc's key skill that made the rest look average**: [Link](https://www.the-race.com/formula-1/mark-hughes-charles-leclerc-key-skill-f1-azerbaijan-gp-qualifying/)
+
+
 ### girona - barcelona (N/A, Sun, 15 Sep 2024 06:40:00 -0700)
 
 - **Preview: Girona vs. Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/preview/preview-girona-vs-barcelona-prediction-team-news-lineups_552879.html)
