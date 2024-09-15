@@ -1,3 +1,17 @@
+### تهنئة ذكرى المولد النبوي (N/A, Sun, 15 Sep 2024 14:30:00 -0700)
+
+- **تهنئة المولد النبوي 2024.. أجمل الرسائل والعبارات والأناشيد في حب الرسول**: [Link](https://www.elwatannews.com/news/details/7556100)
+- **خطيب المسجد النبوي يُعلق على حكم الاحتفال بالمولد النبوي (فيديو)**: [Link](https://ar.hibapress.com/details-551562.html)
+- **إفتاء مصر تذكر دليل الاحتفال بالمولد النبوي.. ما رأي ابن باز؟**: [Link](https://arabic.cnn.com/middle-east/article/2024/09/07/egypt-fatwa-saudi-ibn-baz-celebrating-rophet-mohammad-birthday)
+
+
+### al-ittihad vs al-wehda (N/A, Sun, 15 Sep 2024 13:00:00 -0700)
+
+- **Al-Wahda coach: We will play the Al-Ittihad match without any pressure**: [Link](https://www.ysscores.com/en/news/4173876/Al-Wahda-coach:-We-will-play-the-Al-Ittihad-match-without-any-pressure)
+- **Historic foes clash in 'The Old Derby'**: [Link](https://onefootball.com/en/news/historic-foes-clash-in-the-old-derby-40032467)
+- **Preview: Al Ittihad vs. Al Wahda - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittihad/preview/preview-al-ittihad-vs-al-wahda-prediction-team-news-lineups_552874.html)
+
+
 ### تهنئة عيد المولد النبوي الشريف (N/A, Sun, 15 Sep 2024 13:10:00 -0700)
 
 
