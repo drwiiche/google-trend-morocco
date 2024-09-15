@@ -1,3 +1,11 @@
+### barca vs girona (N/A, Sun, 15 Sep 2024 06:10:00 -0700)
+
+- **PREVIEW: Girona v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4116733/preview-girona-v-fc-barcelona)
+- **Hansi Flick talks Gavi, Ansu, Yamal, Raphinha, Eric Garcia ahead of Girona 
+vs Barcelona**: [Link](https://barcauniversal.com/hansi-flick-talks-gavi-ansu-yamal-raphinha-eric-garcia-ahead-of-girona-vs-barcelona/)
+- **FCBN cover 09/15/2024: GIRONA-BARÇA, A CHAMPIONS DUEL!**: [Link](https://www.fcbarcelonanoticias.com/en/football-covers/cover-fcbn-15-09-2024-girona-barca-a-duel-champions_307285_102.html)
+
+
 ### غيرونا ضد برشلونة (N/A, Sun, 15 Sep 2024 06:20:00 -0700)
 
 - **تشكيلة برشلونة الرسمية للقاء جيرونا في الدوري الاسباني**: [Link](https://hihi2.com/2024/09/15/p2849320.html)
