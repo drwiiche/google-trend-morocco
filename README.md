@@ -1,3 +1,12 @@
+### coupe du monde futsal 2024 (N/A, Sun, 15 Sep 2024 05:50:00 -0700)
+
+- **Coupe du monde de Futsal : Début de l'aventure pour les Lions de l'Atlas**: [Link](https://fr.hespress.com/386035-coupe-du-monde-de-futsal-debut-de-laventure-pour-les-lions-de-latlas.html)
+- **Mondial de futsal : voici le calendrier des matchs de l'équipe nationale du 
+Maroc**: [Link](https://medias24.com/2024/09/13/mondial-de-futsal-voici-le-calendrier-des-matchs-de-lequipe-nationale-du-maroc/)
+- **Présentation | Jour 3 | Coupe du Monde de Futsal de la FIFA, Ouzbékistan 
+2024™**: [Link](https://www.fifa.com/fr/articles/presentation-jour-3-ouzbekistan-2024)
+
+
 ### atalanta – fiorentina (N/A, Sun, 15 Sep 2024 05:30:00 -0700)
 
 - **Alle 15 Atalanta a caccia dei 3 punti contro la Fiorentina nel suo stadio 
