@@ -1,3 +1,21 @@
+### maroc ceuta (N/A, Sun, 15 Sep 2024 16:40:00 -0700)
+
+- **Comment les forces de l’ordre ont anticipé une tentative de migration 
+massive à Bab Sebta**: [Link](https://fr.le360.ma/societe/comment-les-forces-de-lordre-ont-anticipe-une-tentative-de-migration-massive-a-bab-sebta_E2OT65AZDVFSTLLKSW6KJJMOLM/)
+- **Les forces de sécurité marocaines et espagnoles empêchent un vaste 
+migratoire illégal**: [Link](https://fr.hespress.com/386139-les-forces-de-securite-marocaines-et-espagnoles-empechent-un-vaste-migratoire-illegal.html)
+- **Fnideq: près de 400 migrants franchissent le dispositif sécuritaire vers 
+Bab Sebta (vidéos)**: [Link](https://www.h24info.ma/fnideq-pres-de-400-migrants-franchissent-le-dispositif-securitaire-vers-bab-sebta-videos/)
+
+
+### لورا لومر (N/A, Sun, 15 Sep 2024 16:40:00 -0700)
+
+- **لورا لومر: من هي حليفة ترامب التي تروج لنظريات مؤامرة مثيرة للجدل؟**: [Link](https://www.bbc.com/arabic/articles/c93yp90l62vo)
+- **أغرب تصريحات لورا لومر مروّجة نظريات المؤامرة التي تتقرب من ترمب**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9%E2%80%8B/5061198-%D8%A3%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%84%D9%88%D8%B1%D8%A7-%D9%84%D9%88%D9%85%D8%B1-%D9%85%D8%B1%D9%88%D9%91%D8%AC%D8%A9-%D9%86%D8%B8%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%A4%D8%A7%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D8%AA%D8%AA%D9%82%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA%D8%B1%D9%85%D8%A8)
+- **من هي لورا لومر الناشطة اليمينية المتطرفة التي انضمت إلى دونالد ترامب في 
+الحملة الانتخابية؟**: [Link](https://www.i24news.tv/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D9%85%D8%B1%D9%8A%D9%83%D8%A7/artc-cd2f70c5)
+
+
 ### تهاني عيد المولد النبوي الشريف (N/A, Sun, 15 Sep 2024 14:40:00 -0700)
 
 - **سكنفل: الاحتفال بالمولد النبوي سنة حسنة وقد يكون واجبا (حوار)**: [Link](https://al3omk.com/965263.html)
