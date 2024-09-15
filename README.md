@@ -1,3 +1,11 @@
+### fnideq (N/A, Sun, 15 Sep 2024 01:30:00 -0700)
+
+- **État d’alerte à Ceuta suite aux appels à l’immigration massive ce dimanche**: [Link](https://ledesk.ma/encontinu/etat-dalerte-a-ceuta-suite-aux-appels-a-limmigration-massive-ce-dimanche/)
+- **Emigration: grâce aux hommes de Hammouchi, l’Espagne retire ses forces 
+spéciales de Sebta et Melilla**: [Link](https://fr.le360.ma/politique/emigration-grace-aux-hommes-de-hammouchi-lespagne-retire-ses-forces-speciales-de-sebta-et-melilla_6BQW4JGKVVB3JGUP3O5NHCN47U/)
+- **Vidéo. Fnideq: la frontière de Sebta sous haute surveillance**: [Link](https://www.h24info.ma/video-fnideq-la-frontiere-de-sebta-sous-haute-surveillance/)
+
+
 ### هسبريس (N/A, Sun, 15 Sep 2024 01:10:00 -0700)
 
 
