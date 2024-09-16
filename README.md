@@ -1,3 +1,10 @@
+### فوزي لقجع (N/A, Mon, 16 Sep 2024 13:10:00 -0700)
+
+- **فوزي لقجع يتعرض لحادث سير بالرباط**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%B2%D9%8A-%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%AD%D8%A7%D8%AF%D8%AB-%D8%B3%D9%8A%D8%B1-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-1432482.html)
+- **لقجع يتعرض لحادث سير بالتزامن مع افتتاح كأس العالم للصالات**: [Link](https://www.akhbarona.com/society/392279.html)
+- **فوزي لقجع يتعرض لحادث سير**: [Link](https://www.almountakhab.com/node/16204405)
+
+
 ### lazio (N/A, Mon, 16 Sep 2024 13:00:00 -0700)
 
 - **Serie A: in campo Lazio-Verona 2-1, a segno Dia, pari di Tengstedt, vantaggio Castellanos LIVE LIVE**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/09/16/serie-a-in-campo-lazio-verona-2-1-a-segno-dia-pari-di-tengstedt-vantaggio-castellanos_07a0f8c1-1e23-4966-8b46-db52f0defb73.html)
