@@ -1,3 +1,11 @@
+### maroc futsal (N/A, Mon, 16 Sep 2024 02:30:00 -0700)
+
+- **Coupe du monde de Futsal : Début de l'aventure pour les Lions de l'Atlas**: [Link](https://fr.hespress.com/386035-coupe-du-monde-de-futsal-debut-de-laventure-pour-les-lions-de-latlas.html)
+- **Mondial de futsal : où et quand regarder le match Maroc-Tadjikistan ?**: [Link](https://www.bladi.net/mondial-futsal-regarder-match-maroc-tadjikistan,110505.html)
+- **Présentation | Jour 3 | Coupe du Monde de Futsal de la FIFA, Ouzbékistan 
+2024™**: [Link](https://www.fifa.com/fr/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/presentation-jour-3-ouzbekistan-2024)
+
+
 ### كاس العالم لكرة الصالات 2024 (N/A, Mon, 16 Sep 2024 02:10:00 -0700)
 
 - **"منتخب الفوتسال" يضع آخر اللمسات قبل لقاء طاجيكستان في كأس العالم**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%8A%D8%B6%D8%B9-%D8%A2%D8%AE%D8%B1-%D8%A7%D9%84%D9%84%D9%85%D8%B3%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D9%84%D9%82-1432011.html)
