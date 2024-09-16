@@ -1,3 +1,10 @@
+### العين (N/A, Mon, 16 Sep 2024 11:30:00 -0700)
+
+- **بمشاركة رحيمي.. العين الإماراتي يتعادل أمام السد القطري في دوري أبطال آسيا**: [Link](https://ar.hibapress.com/details-552100.html)
+- **مدرب العين: ندرك صعوبة المهمة الآسيوية**: [Link](https://www.kooora.com/?n=1354931)
+- **الأندية السعودية تستحوذ على 58 % من القيمة السوقية لنخبة آسيا**: [Link](https://www.menara.ma/article/%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AA%D8%AD%D9%88%D8%B0-%D8%B9%D9%84%D9%89-58-%D9%85%D9%86-%D8%A7%D9%84%D9%82%D9%8A%D9%85)
+
+
 ### thierry breton demission (N/A, Mon, 16 Sep 2024 11:50:00 -0700)
 
 - **Stéphane Séjourné proposé par la France pour remplacer Thierry Breton, qui 
