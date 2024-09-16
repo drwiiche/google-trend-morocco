@@ -1,3 +1,13 @@
+### matteo salvini (N/A, Sun, 15 Sep 2024 15:40:00 -0700)
+
+- **Matteo Salvin: Six-year jail term sought for Italian deputy PM for blocking 
+migrant boat**: [Link](https://www.bbc.com/news/articles/crl88np8k2zo)
+- **Italy's deputy premier Matteo Salvini faces a potential 6-year prison 
+sentence in migration trial**: [Link](https://abcnews.go.com/International/wireStory/italian-wing-leader-salvini-faces-potential-6-year-113696869)
+- **Italy's prosecutor seeks 6-year jail sentence for Salvini on migrant 
+kidnapping charges**: [Link](https://www.reuters.com/world/europe/italys-prosecutor-seeks-6-year-jail-sentence-salvini-migrant-kidnapping-charges-2024-09-14/)
+
+
 ### maroc ceuta (N/A, Sun, 15 Sep 2024 16:40:00 -0700)
 
 - **Comment les forces de l’ordre ont anticipé une tentative de migration 
