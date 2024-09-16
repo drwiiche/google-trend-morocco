@@ -1,3 +1,20 @@
+### ralph lauren (N/A, Mon, 16 Sep 2024 06:10:00 -0700)
+
+- **Is Selena Gomez Trying to Tell Us Something With Her Emmys Red Carpet 2024 
+Look?**: [Link](https://www.yahoo.com/entertainment/selena-gomez-trying-tell-us-231937511.html)
+- **Selena Gomez and Benny Blanco Cuddle Up During Glamorous Date Night at 
+Emmys 2024**: [Link](https://people.com/selena-gomez-and-benny-blanco-cuddle-up-during-glamorous-date-night-at-emmys-2024-8712992)
+- **Selena Gomez stuns in black Ralph Lauren gown at the 2024 Emmy Awards**: [Link](https://www.the-independent.com/life-style/fashion/selena-gomez-emmys-2024-dress-b2613345.html)
+
+
+### futsal (N/A, Mon, 16 Sep 2024 04:20:00 -0700)
+
+- **Futsal: Portugal, França, Irã e Marrocos estreiam no 3º dia**: [Link](https://www.fifa.com/pt/articles/mundial-futsal-terceiro-dia-jogos-uzbequistao)
+- **"Este Mundial vai ser dos mais renhidos": Tunha, "a responsabilidade" e a 
+ansiedade de ver Marrocos em ação**: [Link](https://rr.sapo.pt/bola-branca/noticia/modalidades/2024/09/16/este-mundial-vai-ser-dos-mais-renhidos-tunha-a-responsabilidade-e-a-ansiedade-de-ver-marrocos-em-acao/393810/)
+- **12h30m Edição de José Pedro Pinto**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/12h30m-edicao-de-jose-pedro-pinto_a1_1600040)
+
+
 ### thierry breton (N/A, Mon, 16 Sep 2024 04:50:00 -0700)
 
 - **Breton quits as France's EU commissioner, criticises von der Leyen**: [Link](https://www.reuters.com/world/europe/frances-breton-says-he-steps-down-eu-commissioner-2024-09-16/)
