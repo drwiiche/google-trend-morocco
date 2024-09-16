@@ -1,3 +1,11 @@
+### ligue des champions (N/A, Mon, 16 Sep 2024 13:40:00 -0700)
+
+- **Ligue des champions : Le programme de la J1 (et le rappel du format)**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/ligue-des-champions-le-programme-de-la-j1-et-le-rappel-du-format_VN-202409160348.html)
+- **LDC. UEFA: Dix-huit matchs entre mardi , mercredi et jeudi**: [Link](https://www.lopinion.ma/LDC-UEFA-Dix-huit-matchs-entre-mardi--mercredi-et-jeudi_a58012.html)
+- **PSG, Monaco, Brest, LOSC : qu'ont fait les premiers adversaires européens 
+des clubs français en championnat ce week-end ?**: [Link](https://www.foot-national.com/ligue-des-champions/psg-monaco-brest-losc-qu-ont-fait-les-premiers-adversaires-europeens-des-clubs-francais-en-championnat-ce-week-end-887485)
+
+
 ### maroc ceuta frontiere (N/A, Mon, 16 Sep 2024 10:00:00 -0700)
 
 - **La police marocaine empêche des centaines de migrants d'entrer à Ceuta**: [Link](https://fr.euronews.com/my-europe/2024/09/16/la-police-marocaine-empeche-des-centaines-de-migrants-dentrer-dans-lenclave-espagnole-de-c)
