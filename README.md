@@ -1,3 +1,19 @@
+### rayo vallecano (N/A, Mon, 16 Sep 2024 13:50:00 -0700)
+
+- **James Rodríguez's Debut with Rayo Vallecano Closer Than Ever**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/james-rodr%C3%ADguez-s-debut-with-rayo-vallecano-closer-than-ever-2024-09-15)
+- **When will James Rodriguez make his debut for Rayo Vallecano?**: [Link](https://en.as.com/soccer/james-rodriguez-eyes-rayo-vallecano-debut-on-monday-n/)
+- **Preview: Rayo Vallecano vs. Osasuna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rayo-vallecano/preview/preview-rayo-vallecano-vs-osasuna-prediction-team-news-lineups_552944.html)
+
+
+### futsal maroc tadjikistan (N/A, Mon, 16 Sep 2024 10:50:00 -0700)
+
+- **Mondial de futsal : voici le calendrier des matchs de l'équipe nationale du 
+Maroc**: [Link](https://medias24.com/2024/09/13/mondial-de-futsal-voici-le-calendrier-des-matchs-de-lequipe-nationale-du-maroc/)
+- **Coupe du monde Futsal : Le Maroc débute sa campagne par une victoire face 
+au Tadjikistan**: [Link](https://fr.hespress.com/386325-coupe-du-monde-futsal-le-maroc-debute-sa-campagne-par-une-victoire-face-au-tadjikistan.html)
+- **Mondial de futsal: Les Lions de l’Atlas s’extirpent du piège tadjik**: [Link](https://sport.le360.ma/football/futsal/mondial-de-futsal-les-lions-de-latlas-sextirpent-du-piege-tadjik_6BEQK5VOAJAD3NPVWFYF5IDS6Y/)
+
+
 ### ligue des champions (N/A, Mon, 16 Sep 2024 13:40:00 -0700)
 
 - **Ligue des champions : Le programme de la J1 (et le rappel du format)**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/ligue-des-champions-le-programme-de-la-j1-et-le-rappel-du-format_VN-202409160348.html)
