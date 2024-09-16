@@ -1,3 +1,18 @@
+### jakob ingebrigtsen (N/A, Mon, 16 Sep 2024 00:00:00 -0700)
+
+- **Sawe and Kipkemboi claim Copenhagen Half Marathon crowns**: [Link](https://worldathletics.org/competitions/world-athletics-label-road-races/news/sawe-kipkemboi-copenhagen-half-marathon-2024)
+- **Jakob Ingebrigtsen: I felt like I was about to die during half-marathon**: [Link](https://www.thetimes.com/sport/athletics/article/jakob-ingebrigtsen-10km-half-marathon-copenhagen-kpm9f62mt)
+- **Copenhagen Half Marathon - News - Copenhagen Half Marathon Live Webcast Info**: [Link](https://www.runnerspace.com/eprofile.php?event_id=12954&do=news&news_id=669776)
+
+
+### abbé pierre (N/A, Sun, 15 Sep 2024 23:40:00 -0700)
+
+- **ENQUÊTE. Quand l’abbé Pierre menaçait ceux qui dénonçaient ses agissements**: [Link](https://www.francetvinfo.fr/enquetes-franceinfo/enquete-quand-l-abbe-pierre-menacait-ceux-qui-denoncaient-ses-agissements_6770512.html)
+- **Affaire l'abbé Pierre : l'ex-présidente du Secours catholique pointe la 
+part de responsabilité de l'Église**: [Link](https://www.linternaute.com/actualite/personnalites/6191865-affaire-l-abbe-pierre-l-ex-presidente-du-secours-catholique-pointe-la-part-de-responsabilite-de-l-eglise/)
+- **Perpignan : le maire RN Louis Aliot veut débaptiser la rue de l'Abbé Pierre**: [Link](https://www.tf1info.fr/politique/perpignan-le-maire-rn-louis-aliot-veut-faire-debaptiser-la-rue-de-l-abbe-pierre-2319739.html)
+
+
 ### dani olmo (N/A, Sun, 15 Sep 2024 15:20:00 -0700)
 
 - **Dani Olmo, baja para Mónaco**: [Link](https://as.com/futbol/dani-olmo-baja-para-monaco-n/)
