@@ -1,3 +1,10 @@
+### كرة القدم داخل القاعة (N/A, Mon, 16 Sep 2024 04:30:00 -0700)
+
+- **"منتخب الفوتسال" يضع آخر اللمسات قبل لقاء طاجيكستان في كأس العالم**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%8A%D8%B6%D8%B9-%D8%A2%D8%AE%D8%B1-%D8%A7%D9%84%D9%84%D9%85%D8%B3%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D9%84%D9%82-1432011.html)
+- **تحفيزات مالية لأسود الصالات قبل المونديال**: [Link](https://m.kooora.com/?n=1354518&o=ncma)
+- **الموعد والقنوات الناقلة لمباراة المغرب وطاجكستان بكأس ال?...**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/445002.html)
+
+
 ### ralph lauren (N/A, Mon, 16 Sep 2024 06:10:00 -0700)
 
 - **Is Selena Gomez Trying to Tell Us Something With Her Emmys Red Carpet 2024 
