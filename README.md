@@ -1,3 +1,12 @@
+### thierry breton demission (N/A, Mon, 16 Sep 2024 11:50:00 -0700)
+
+- **Stéphane Séjourné proposé par la France pour remplacer Thierry Breton, qui 
+a démissionné de la Commission européenne**: [Link](https://www.lemonde.fr/international/article/2024/09/16/stephane-sejourne-propose-par-emmanuel-macron-pour-remplacer-thierry-breton-apres-sa-demission-de-son-poste-de-commissaire-europeen_6319845_3211.html)
+- **Stéphane Séjourné proposé à la Commission européenne**: [Link](https://fr.hespress.com/386248-stephane-sejourne-propose-a-la-commission-europeenne.html)
+- **Union européenne : Thierry Breton démissionne de ses fonctions de 
+commissaire**: [Link](https://www.lefigaro.fr/international/union-europeenne-thierry-breton-demissionne-de-ses-fonctions-de-commissaire-20240916)
+
+
 ### rayo – osasuna (N/A, Mon, 16 Sep 2024 11:10:00 -0700)
 
 - **Capítulo III en LaLiga: James debuta en Rayo Vallecano**: [Link](https://colombia.as.com/futbol/colombianos-por-el-mundo/capitulo-iii-en-laliga-james-debuta-en-rayo-vallecano-n/)
