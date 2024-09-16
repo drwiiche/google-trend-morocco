@@ -1,3 +1,10 @@
+### thierry breton (N/A, Mon, 16 Sep 2024 04:50:00 -0700)
+
+- **Breton quits as France's EU commissioner, criticises von der Leyen**: [Link](https://www.reuters.com/world/europe/frances-breton-says-he-steps-down-eu-commissioner-2024-09-16/)
+- **France’s European commissioner resigns amid row with von der Leyen**: [Link](https://www.theguardian.com/world/2024/sep/16/france-european-commissioner-thierry-breton-resigns-amid-row-with-von-der-leyen)
+- **France nominates foreign minister Séjourné for European Commission**: [Link](https://www.ft.com/content/59777ced-9832-4691-93ea-c14f4f64504b)
+
+
 ### alyaoum24 (N/A, Mon, 16 Sep 2024 00:40:00 -0700)
 
 
