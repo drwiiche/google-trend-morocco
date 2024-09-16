@@ -1,3 +1,17 @@
+### uzbekistan (N/A, Mon, 16 Sep 2024 07:40:00 -0700)
+
+- **Germany Seals Migration Deal With Uzbekistan During Scholz Visit**: [Link](https://www.bloomberg.com/news/articles/2024-09-15/germany-seals-migration-deal-with-uzbekistan-during-scholz-visit)
+- **Germany signs agreement on migration with Uzbekistan**: [Link](https://www.reuters.com/world/germany-signs-agreement-migration-with-uzbekistan-2024-09-15/)
+- **Scholz and Mirziyoyev ink worker entry deal in Uzbekistan**: [Link](https://www.euronews.com/my-europe/2024/09/16/scholz-mirziyoyev-ink-migration-deal-to-simplify-entry-of-skilled-uzbek-workers)
+
+
+### fifa (N/A, Mon, 16 Sep 2024 02:30:00 -0700)
+
+- **‘For FIFA, futsal has gone from being a sport to being a tool’**: [Link](https://www.atalayar.com/en/articulo/sports/pour-fifa-futsal-est-passe-du-statut-sport-celui-doutil/20240915103031205183.html)
+- **Futsal World Cup poster with Cristiano Ronaldo and Messi sparks controversy**: [Link](https://en.as.com/soccer/futsal-world-cup-poster-with-cristiano-ronaldo-and-messi-sparks-controversy-n/)
+- **Morocco’s Futsal World Cup Journey: When, How to Watch the Game Against Tajikistan**: [Link](https://www.moroccoworldnews.com/2024/09/365208/moroccos-futsal-world-cup-journey-when-how-to-watch-the-game-against-tajikistan)
+
+
 ### futsal world cup matches (N/A, Mon, 16 Sep 2024 06:20:00 -0700)
 
 - **Argentina 5-1 Ukraine | Match report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/argentina-ukraine-report-highlights)
