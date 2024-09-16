@@ -1,3 +1,19 @@
+### rayo – osasuna (N/A, Mon, 16 Sep 2024 11:10:00 -0700)
+
+- **Capítulo III en LaLiga: James debuta en Rayo Vallecano**: [Link](https://colombia.as.com/futbol/colombianos-por-el-mundo/capitulo-iii-en-laliga-james-debuta-en-rayo-vallecano-n/)
+- **Presa sobre el Estadio de Vallecas: "Es el más atractivo para jugar"**: [Link](https://unionrayo.com/presa-declaraciones-estadio-de-vallecas-atractivo/)
+- **Íñigo Pérez, sobre James, Cárdenas, Batalla, RDT, Guardiola, Osasuna y las 
+alternativas de ataque**: [Link](https://www.futbolfantasy.com/laliga/noticias/119828-inigo-perez-sobre-james-cardenas-batalla-rdt-guardiola-osasuna-y-las-alternativas-de-ataque)
+
+
+### al ain vs al sadd (N/A, Mon, 16 Sep 2024 11:10:00 -0700)
+
+- **The new AFC Champions League format explained**: [Link](https://www.espn.in/football/story/_/id/41270886/new-afc-champions-league-format-explained)
+- **Virus-hit Cristiano Ronaldo to miss Asian Champions League opener**: [Link](https://www.rfi.fr/en/sports/20240915-ronaldo-primed-to-add-asian-club-crown-to-long-list-of-accolades)
+- **A new era in Asian soccer begins Monday when the AFC Champions League Elite 
+debuts**: [Link](https://www.beloitdailynews.com/sports/pro-sports/a-new-era-in-asian-soccer-begins-monday-when-the-afc-champions-league-elite-debuts/article_383b75aa-ab1e-55b1-85c9-38e73a352716.html)
+
+
 ### الرياضية مباشر (N/A, Mon, 16 Sep 2024 08:10:00 -0700)
 
 - **موكوينا: سأمنح الوداد هوية مميزة.. وهذا ما أعجبني ضد التطواني**: [Link](https://www.kooora.com/?n=1354817)
