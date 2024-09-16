@@ -1,3 +1,41 @@
+### bein sports (N/A, Mon, 16 Sep 2024 08:10:00 -0700)
+
+- **تحديد موعد بطولة إفريقيا للاعبين المحليين**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%AD%D9%84%D9%8A%D9%8A%D9%86-2024-09-16)
+- **الكاف يحدد موعد إقامة كأس إفريقيا المحليين**: [Link](https://www.almountakhab.com/node/16204392)
+- **موتسيبي: 2 مليار شخص تابع مباريات "الكان" ونسخة المغرب ستكون أفضل**: [Link](https://ar.telquel.ma/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%8A%D8%B2%D9%88%D8%B1-%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D9%83%D9%8A%D9%86%D9%8A%D8%A7-%D9%82%D8%A8%D9%84-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81/)
+
+
+### تردد قناة bein sport المفتوحة نايل سات (N/A, Mon, 16 Sep 2024 08:10:00 -0700)
+
+- **تردد قناة أبو ظبي الرياضية على النايل سات 2024 AD Sport الناقلة لمباراة 
+الزمالك والشرطة الكيني بكأس**: [Link](https://real.alsaudinews.com/162440/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A3%D8%A8%D9%88-%D8%B8%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D8%A7%D9%8A%D9%84-2/)
+- **قناة مفتوحة لنقل مباراتي الأهلي وبيراميدز في دوري أبطال إفريقيا - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/222100/%D9%82%D9%86%D8%A7%D8%A9-%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D9%84%D9%86%D9%82%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7---AARC-%D9%85%D8%B5%D8%B1.html)
+- **قنوات “أون تايم سبورتس” تخسر حقوق مباريات دور الـ32 بدوري الأبطال 
+والكونفدرالية الإفريقية**: [Link](https://alhorianews.com/%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A3%D9%88%D9%86-%D8%AA%D8%A7%D9%8A%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%AA%D8%AE%D8%B3%D8%B1-%D8%AD%D9%82%D9%88%D9%82-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A/)
+
+
+### futsal live (N/A, Mon, 16 Sep 2024 08:00:00 -0700)
+
+- **Argentina 5-1 Ukraine | Match report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/argentina-ukraine-report-highlights)
+- **FIFA Futsal World Cup 2024 live stream: how to watch from anywhere**: [Link](https://www.tomsguide.com/entertainment/sports/fifa-futsal-world-cup-2024-live-stream-how-to-watch-from-anywhere)
+- **Thais off to great start at futsal worlds**: [Link](https://www.bangkokpost.com/sports/2865532/thais-off-to-great-start-at-futsal-worlds)
+
+
+### fifa futsal world cup 2024 (N/A, Mon, 16 Sep 2024 07:50:00 -0700)
+
+- **Matchday 2 preview: All-contender clashes take top billing**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/matchday-two-preview-andijan-tashkent)
+- **Libya beats New Zealand in opening match of FIFA Futsal World Cup**: [Link](https://libyaobserver.ly/inbrief/libya-beats-new-zealand-opening-match-fifa-futsal-world-cup)
+- **World Cup finally reality for Hawkins, NZ team-mates**: [Link](https://www.odt.co.nz/sport/football/world-cup-finally-reality-hawkins-nz-team-mates)
+
+
+### morocco futsal (N/A, Mon, 16 Sep 2024 07:00:00 -0700)
+
+- **Morocco’s Futsal World Cup Journey: When, How to Watch the Game Against 
+Tajikistan**: [Link](https://www.moroccoworldnews.com/2024/09/365208/moroccos-futsal-world-cup-journey-when-how-to-watch-the-game-against-tajikistan)
+- **FIFA: ‘Morocco is Sensation of World Futsal’**: [Link](https://www.moroccoworldnews.com/2024/09/365211/fifa-morocco-is-sensation-of-world-futsal)
+- **‘For FIFA, futsal has gone from being a sport to being a tool’**: [Link](https://www.atalayar.com/en/articulo/sports/pour-fifa-futsal-est-passe-du-statut-sport-celui-doutil/20240915103031205183.html)
+
+
 ### bein sport (N/A, Mon, 16 Sep 2024 07:50:00 -0700)
 
 - **" تبث بالمجان " تردد قناة beIN Sports AFC بي ان سبورت اسيا 1و2و3 الجديد 
