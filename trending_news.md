@@ -1,3 +1,12 @@
+### maroc ceuta frontiere (N/A, Mon, 16 Sep 2024 10:00:00 -0700)
+
+- **La police marocaine empêche des centaines de migrants d'entrer à Ceuta**: [Link](https://fr.euronews.com/my-europe/2024/09/16/la-police-marocaine-empeche-des-centaines-de-migrants-dentrer-dans-lenclave-espagnole-de-c)
+- **Comment les forces de l’ordre ont anticipé une tentative de migration 
+massive à Bab Sebta**: [Link](https://fr.le360.ma/societe/comment-les-forces-de-lordre-ont-anticipe-une-tentative-de-migration-massive-a-bab-sebta_E2OT65AZDVFSTLLKSW6KJJMOLM/)
+- **Des tentatives massives d'émigration à partir de Fnideq mettent les 
+projecteurs sur les conditions des mineurs marocains**: [Link](https://medias24.com/2024/09/16/des-tentatives-massives-demigration-a-partir-de-fnideq-mettent-les-projecteurs-sur-les-conditions-des-mineurs-marocains/)
+
+
 ### فوزي لقجع (N/A, Mon, 16 Sep 2024 13:10:00 -0700)
 
 - **فوزي لقجع يتعرض لحادث سير بالرباط**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%B2%D9%8A-%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%AD%D8%A7%D8%AF%D8%AB-%D8%B3%D9%8A%D8%B1-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-1432482.html)
