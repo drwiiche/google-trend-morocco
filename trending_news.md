@@ -1,3 +1,11 @@
+### ios 18 iphone (N/A, Mon, 16 Sep 2024 16:20:00 -0700)
+
+- **iOS 18 Is Here: A Worthy iPhone Upgrade, No AI Necessary**: [Link](https://www.wsj.com/tech/personal-tech/apple-ios18-update-features-iphone-961dd2e8)
+- **Apple releases iOS 18 update for iPhone: Customizations, Messages, other 
+top changes**: [Link](https://www.usatoday.com/story/tech/2024/09/16/apple-ios-18-update-iphone-top-features/75253031007/)
+- **iOS 18 Is Out Now. Here Are the Best New Features.**: [Link](https://www.nytimes.com/wirecutter/reviews/ios-18-best-new-features/)
+
+
 ### dani olmo barca (N/A, Mon, 16 Sep 2024 14:40:00 -0700)
 
 - **Dani Olmo injury update**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4120110/dani-olmo-injury-update)
