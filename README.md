@@ -1,3 +1,12 @@
+### endrick (N/A, Mon, 16 Sep 2024 10:10:00 -0700)
+
+- **Endrick Gets Married!**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/endrick-gets-married-2024-09-16)
+- **Endrick gets married! Real Madrid teenager stuns fans as he ties knot with 
+new wife Gabriely Mirandy and couple show off wedding snaps**: [Link](https://www.goal.com/en-sa/lists/endrick-real-madrid-la-liga-gabriely-mirandy-wedding/blt3f22a34fcddc5871)
+- **Endrick and his new wife Gabriely Miranda have relationship 'contract' with 
+several bizarre clauses**: [Link](https://www.sportbible.com/football/la-liga/real-madrid/endrick-fiancee-contract-brazil-468726-20240916)
+
+
 ### nintendo switch 2 (N/A, Mon, 16 Sep 2024 10:00:00 -0700)
 
 - **Nintendo Switch 2: everything we know about a potential Switch successor**: [Link](https://www.techradar.com/news/nintendo-switch-2)
