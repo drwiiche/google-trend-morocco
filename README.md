@@ -1,3 +1,10 @@
+### lazio (N/A, Mon, 16 Sep 2024 13:00:00 -0700)
+
+- **Serie A: in campo Lazio-Verona 2-1, a segno Dia, pari di Tengstedt, vantaggio Castellanos LIVE LIVE**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/09/16/serie-a-in-campo-lazio-verona-2-1-a-segno-dia-pari-di-tengstedt-vantaggio-castellanos_07a0f8c1-1e23-4966-8b46-db52f0defb73.html)
+- **Baroni: “Dia e Taty insieme, vi spiego. In che ruolo vedo bene Guendouzi”**: [Link](https://www.sosfanta.com/news/baroni-dia-e-taty-insieme-vi-spiego-in-che-ruolo-vedo-bene-guendouzi/)
+- **2-1 Castellanos**: [Link](https://www.hellaslive.it/news/2-1-castellanos/)
+
+
 ### ronaldo (N/A, Mon, 16 Sep 2024 12:20:00 -0700)
 
 - **France Midfielder Rabiot Set to Join Marseille as Free Agent**: [Link](https://english.aawsat.com/sports/5061483-france-midfielder-rabiot-set-join-marseille-free-agent)
