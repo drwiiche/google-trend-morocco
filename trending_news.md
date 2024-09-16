@@ -1,3 +1,22 @@
+### bein sport (N/A, Mon, 16 Sep 2024 07:50:00 -0700)
+
+- **" تبث بالمجان " تردد قناة beIN Sports AFC بي ان سبورت اسيا 1و2و3 الجديد 
+2024 الناقلة لمباريات دوري**: [Link](https://real.alsaudinews.com/164888/%D8%AA%D8%A8%D8%AB-%D8%A8%D8%A7%D9%84%D9%85%D8%AC%D8%A7%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-afc-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7/)
+- **تردد قناة BEIN SPORT AFC الناقلة لدوري اسيا للنخبة نايل سات وعربسات**: [Link](https://news.elsob7.com/1117236/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sport-afc-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8/)
+- **تردد قناة Abu Dhabi Sports Asia 1 على نايل سات| القنوات الناقلة لمباريات 
+دوري ابطال اسيا**: [Link](https://kora7sry.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-abu-dhabi-sports-asia-1-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D9%8A%D9%84-%D8%B3%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86/)
+
+
+### teddy riner (N/A, Mon, 16 Sep 2024 07:50:00 -0700)
+
+- **Parade des JO, Rabiot à l'OM, le Stade toulousain ému... Les infos sport du 
+week-end**: [Link](https://www.france24.com/fr/sports/20240916-parade-des-jo-rabiot-%C3%A0-l-om-le-stade-toulousain-%C3%A9mu-les-infos-sport-du-week-end)
+- **Légion d'honneur, ordre national du Mérite... Quelles décorations recevront 
+les médaillés français ?**: [Link](https://www.rtl.fr/actu/debats-societe/les-infos-de-12h30-legion-d-honneur-ordre-national-du-merite-quelles-decorations-recevront-les-medailles-francais-7900417752)
+- **JO Paris 2024 : pourquoi Teddy Riner n’a pas reçu le grade de commandeur de 
+la Légion d’honneur**: [Link](https://www.leparisien.fr/sports/jo-paris-2024-pourquoi-teddy-riner-na-pas-recu-le-grade-de-commandeur-de-la-legion-dhonneur-15-09-2024-ZTTG5K5UGBACLC6UKG6R7RPSSE.php)
+
+
 ### uzbekistan (N/A, Mon, 16 Sep 2024 07:40:00 -0700)
 
 - **Germany Seals Migration Deal With Uzbekistan During Scholz Visit**: [Link](https://www.bloomberg.com/news/articles/2024-09-15/germany-seals-migration-deal-with-uzbekistan-during-scholz-visit)
