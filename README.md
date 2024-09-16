@@ -1,3 +1,11 @@
+### dani olmo barca (N/A, Mon, 16 Sep 2024 14:40:00 -0700)
+
+- **Dani Olmo injury update**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4120110/dani-olmo-injury-update)
+- **FC Barcelona Confirms Huge Champions League Injury Blow**: [Link](https://www.forbes.com/sites/tomsanderson/2024/09/16/fc-barcelona-confirms-huge-champions-league-injury-blow/)
+- **Barcelona’s Dani Olmo to miss up to five weeks with hamstring injury - The 
+Athletic**: [Link](https://www.nytimes.com/athletic/5770702/2024/09/16/dani-olmo-injury-barcelona/)
+
+
 ### جدعون ساعر الاسرائيلي (N/A, Mon, 16 Sep 2024 15:10:00 -0700)
 
 - **توقعات بتولي ساعر وزارة الدفاع الإسرائيلية والأحزاب المتشددة تهدد**: [Link](https://www.aljazeera.net/news/2024/9/16/%D8%B9%D8%A7%D8%AC%D9%84-%D9%87%D9%8A%D8%A6%D8%A9-%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AC%D8%AF%D8%B9%D9%88%D9%86-%D8%B3%D8%A7%D8%B9%D8%B1)
