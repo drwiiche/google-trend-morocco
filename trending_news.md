@@ -1,3 +1,26 @@
+### nintendo switch 2 (N/A, Mon, 16 Sep 2024 10:00:00 -0700)
+
+- **Nintendo Switch 2: everything we know about a potential Switch successor**: [Link](https://www.techradar.com/news/nintendo-switch-2)
+- **PS5 Pro’s Pricing Backlash Is A Warning To Nintendo And Switch 2**: [Link](https://www.ign.com/articles/ps5-pros-pricing-backlash-warning-to-nintendo-switch-2)
+- **Nintendo Switch 2 Is the Official Name of the Next Nintendo Console; Has 
+Entered Full Production – Rumor**: [Link](https://wccftech.com/nintendo-switch-2-official-name-production/)
+
+
+### النصر (N/A, Mon, 16 Sep 2024 09:50:00 -0700)
+
+- **مباشر مباراة الشرطة العراقي ضد النصر السعودي 0-0 بدوري أبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/16/al-shorta-v-al-nassr)
+- **الغنام يضع أولى بصماته الآسيوية**: [Link](http://www.kooora.com/default.aspx?n=1355179&pg=1&o=n)
+- **غياب رونالدو يضرب "السوق السوداء" في العراق**: [Link](https://www.alarabiya.net/sport/2024/09/15/%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82)
+
+
+### tadjikistan (N/A, Mon, 16 Sep 2024 07:50:00 -0700)
+
+- **FIFA: ‘Morocco is Sensation of World Futsal’**: [Link](https://www.moroccoworldnews.com/2024/09/365211/fifa-morocco-is-sensation-of-world-futsal)
+- **Tajikistan 2-4 Morocco | Report & highlights**: [Link](https://www.fifa.com/en/articles/tajikistan-morocco-match-report-highlights)
+- **Morocco’s Futsal World Cup Journey: When, How to Watch the Game Against 
+Tajikistan**: [Link](https://www.moroccoworldnews.com/2024/09/365208/moroccos-futsal-world-cup-journey-when-how-to-watch-the-game-against-tajikistan)
+
+
 ### المغرب اليوم (N/A, Mon, 16 Sep 2024 08:40:00 -0700)
 
 - **الهدوء يعود تدريجيا إلى مدينة الفنيدق بعد محاولات الهجرة الجماعية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%87%D8%AF%D9%88%D8%A1-%D9%8A%D8%B9%D9%88%D8%AF-%D8%AA%D8%AF%D8%B1%D9%8A%D8%AC%D9%8A%D8%A7-%D8%A5%D9%84%D9%89-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D9%8A%D8%AF%D9%82-1432339.html)
