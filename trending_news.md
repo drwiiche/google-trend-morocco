@@ -1,3 +1,10 @@
+### futsal world cup matches (N/A, Mon, 16 Sep 2024 06:20:00 -0700)
+
+- **Argentina 5-1 Ukraine | Match report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/argentina-ukraine-report-highlights)
+- **FIFA Futsal World Cup 2024 live stream: how to watch from anywhere**: [Link](https://www.tomsguide.com/entertainment/sports/fifa-futsal-world-cup-2024-live-stream-how-to-watch-from-anywhere)
+- **Thais off to great start at futsal worlds**: [Link](https://www.bangkokpost.com/sports/2865532/thais-off-to-great-start-at-futsal-worlds)
+
+
 ### arnaud danjean (N/A, Mon, 16 Sep 2024 06:10:00 -0700)
 
 - **L’ex-eurodéputé LR Arnaud Danjean rejoint le cabinet de Michel Barnier**: [Link](https://www.lemonde.fr/politique/article/2024/09/16/l-ex-eurodepute-lr-arnaud-danjean-rejoint-le-cabinet-de-michel-barnier_6319808_823448.html)
