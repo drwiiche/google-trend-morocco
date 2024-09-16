@@ -1,3 +1,15 @@
+### تهنئة المولد النبوي (N/A, Mon, 16 Sep 2024 01:10:00 -0700)
+
+- **خطيب المسجد النبوي يُعلق على حكم الاحتفال بالمولد النبوي (فيديو)**: [Link](https://ar.hibapress.com/details-551562.html)
+- **أجمل رسائل التهنئة بمناسبة المولد النبوي الشريف 2024**: [Link](https://www.masrawy.com/howa_w_hya/relationship/details/2024/9/14/2642473/%D8%A3%D8%AC%D9%85%D9%84-%D8%B1%D8%B3%D8%A7%D8%A6%D9%84-%D8%A7%D9%84%D8%AA%D9%87%D9%86%D8%A6%D8%A9-%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%84%D8%AF-%D8%A7%D9%84%D9%86%D8%A8%D9%88%D9%8A-%D8%A7%D9%84%D8%B4%D8%B1%D9%8A%D9%81-2024)
+- **سكنفل: الاحتفال بالمولد النبوي سنة حسنة وقد يكون واجبا (حوار)**: [Link](https://al3omk.com/965263.html)
+
+
+### transavia (N/A, Mon, 16 Sep 2024 00:00:00 -0700)
+
+- **Portugal continues to be “strategic” market**: [Link](https://www.theportugalnews.com/news/2024-09-15/portugal-continues-to-be-strategic-market/92076)
+
+
 ### jakob ingebrigtsen (N/A, Mon, 16 Sep 2024 00:00:00 -0700)
 
 - **Sawe and Kipkemboi claim Copenhagen Half Marathon crowns**: [Link](https://worldathletics.org/competitions/world-athletics-label-road-races/news/sawe-kipkemboi-copenhagen-half-marathon-2024)
