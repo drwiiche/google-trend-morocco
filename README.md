@@ -1,3 +1,10 @@
+### المغرب طاجيكستان (N/A, Mon, 16 Sep 2024 08:00:00 -0700)
+
+- **منتخب "الفوتسال" يهزم طاجيكستان‎ في أولى مباريات نهائيات كأس العالم**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%8A%D9%87%D8%B2%D9%85-%D8%B7%D8%A7%D8%AC%D9%8A%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D9%81%D9%8A-%D8%A3%D9%88-1432393.html)
+- **أسود الفوتصال يبدؤون مشوارهم في كأس العالم بفوز شاق أمام طاجيكستان**: [Link](https://www.akhbarona.com/sport/lionatlas/392268.html)
+- **فيفا يختار "رجل مباراة" المغرب وطاجيكستان في مونديال "أوزبكستان 2024" (صور)**: [Link](https://ar.hibapress.com/details-552046.html)
+
+
 ### tajikistan (N/A, Mon, 16 Sep 2024 08:00:00 -0700)
 
 - **Tajikistan 2-4 Morocco | Report & highlights**: [Link](https://www.fifa.com/en/articles/tajikistan-morocco-match-report-highlights)
