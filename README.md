@@ -1,3 +1,19 @@
+### adrien rabiot (N/A, Mon, 16 Sep 2024 02:00:00 -0700)
+
+- **Marseille have 'agreement' in place to sign Rabiot**: [Link](https://www.espn.com/soccer/story/_/id/41276934/marseille-agreement-principle-sign-adrien-rabiot)
+- **Man Utd latest: Fabrizio Romano confirms imminent Adrien Rabiot move as 
+Ratcliffe target finally finds new club**: [Link](https://www.teamtalk.com/news/fabrizio-romano-confirms-adrien-rabiot-move-agreed-as-man-utd-target-finally-finds-new-club)
+- **Adrien Rabiot: Marseille agree deal for free agent midfielder**: [Link](https://www.bbc.com/sport/football/articles/c62mm5214ypo)
+
+
+### ios 18 (N/A, Mon, 16 Sep 2024 01:50:00 -0700)
+
+- **When does iOS 18 come out? Date and time you can download the new iPhone 
+operating system around the world**: [Link](https://www.fastcompany.com/91187699/ios-18-release-date-time-download-iphone-operating-system-worldwide)
+- **iOS 18 Is Releasing Today. Here's How To Download the Latest iPhone OS**: [Link](https://www.cnet.com/tech/services-and-software/ios-18-is-releasing-today-heres-how-to-download-the-latest-iphone-os/)
+- **Apple iPhone 16 Pro and iPhone 16 Pro Max: First Impressions**: [Link](https://www.businesstoday.in/tech-today/unboxing-reviews/story/apple-iphone-16-pro-and-iphone-16-pro-max-first-impressions-445893-2024-09-13)
+
+
 ### maroc futsal (N/A, Mon, 16 Sep 2024 02:30:00 -0700)
 
 - **Coupe du monde de Futsal : Début de l'aventure pour les Lions de l'Atlas**: [Link](https://fr.hespress.com/386035-coupe-du-monde-de-futsal-debut-de-laventure-pour-les-lions-de-latlas.html)
