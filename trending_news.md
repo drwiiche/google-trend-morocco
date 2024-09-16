@@ -1,3 +1,11 @@
+### shogun (N/A, Mon, 16 Sep 2024 03:20:00 -0700)
+
+- **Emmy Awards 2024 recap: Biggest moments from the 76th annual awards show**: [Link](https://abcnews.go.com/GMA/Culture/live-updates/emmys-2024/?id=113663208)
+- **Check out the fashion as stars arrive at the 2024 Emmys red carpet**: [Link](https://www.npr.org/sections/the-picture-show/2024/09/15/nx-s1-5107661/emmys-2024-fashion-awards-red-carpet-looks)
+- **'Shogun' wins record-breaking 14 Emmys at Creative Arts ceremony as Jamie 
+Lee Curtis gets her first**: [Link](https://apnews.com/article/emmys-shogun-creative-arts-jamie-lee-curtis-641b33fcad195467a39df91ce673d32f)
+
+
 ### ios 18 release date (N/A, Mon, 16 Sep 2024 01:40:00 -0700)
 
 - **When does iOS 18 come out? Date and time you can download the new iPhone 
