@@ -1,3 +1,10 @@
+### coupe du monde futsal 2024 (N/A, Mon, 16 Sep 2024 01:40:00 -0700)
+
+- **Coupe du monde de Futsal : Début de l'aventure pour les Lions de l'Atlas**: [Link](https://fr.hespress.com/386035-coupe-du-monde-de-futsal-debut-de-laventure-pour-les-lions-de-latlas.html)
+- **Mondial de futsal : où et quand regarder le match Maroc-Tadjikistan ?**: [Link](https://www.bladi.net/mondial-futsal-regarder-match-maroc-tadjikistan,110505.html)
+- **Présentation | Jour 3 | Coupe du Monde de Futsal de la FIFA, Ouzbékistan 2024™**: [Link](https://www.fifa.com/fr/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/presentation-jour-3-ouzbekistan-2024)
+
+
 ### تهنئة المولد النبوي (N/A, Mon, 16 Sep 2024 01:10:00 -0700)
 
 - **خطيب المسجد النبوي يُعلق على حكم الاحتفال بالمولد النبوي (فيديو)**: [Link](https://ar.hibapress.com/details-551562.html)
