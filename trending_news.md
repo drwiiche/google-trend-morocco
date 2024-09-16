@@ -1,3 +1,12 @@
+### ios 18 release date (N/A, Mon, 16 Sep 2024 01:40:00 -0700)
+
+- **When does iOS 18 come out? Date and time you can download the new iPhone 
+operating system around the world**: [Link](https://www.fastcompany.com/91187699/ios-18-release-date-time-download-iphone-operating-system-worldwide)
+- **iOS 18 Is Releasing Today. Here's How To Download the Latest iPhone OS**: [Link](https://www.cnet.com/tech/services-and-software/ios-18-is-releasing-today-heres-how-to-download-the-latest-iphone-os/)
+- **iOS 18 is just days away – here’s the full Apple list of new features 
+coming to your iPhone**: [Link](https://www.techradar.com/phones/ios-18-is-just-days-away-heres-the-full-apple-list-of-new-features-coming-to-your-iphone)
+
+
 ### adrien rabiot (N/A, Mon, 16 Sep 2024 02:00:00 -0700)
 
 - **Marseille have 'agreement' in place to sign Rabiot**: [Link](https://www.espn.com/soccer/story/_/id/41276934/marseille-agreement-principle-sign-adrien-rabiot)
