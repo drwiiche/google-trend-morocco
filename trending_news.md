@@ -1,3 +1,10 @@
+### ronaldo (N/A, Mon, 16 Sep 2024 12:20:00 -0700)
+
+- **France Midfielder Rabiot Set to Join Marseille as Free Agent**: [Link](https://english.aawsat.com/sports/5061483-france-midfielder-rabiot-set-join-marseille-free-agent)
+- **Al-Nassr’s Sadio Mane comments ahead of Iraq’s Al-Shorta game**: [Link](https://www.iraqinews.com/iraq/al-nassrs-sadio-mane-comments-ahead-of-iraqs-al-shorta-game/)
+- **Abu Al-Taman: The news of Ronaldo’s absence is just a camouflage**: [Link](https://www.ysscores.com/en/news/4160644/Abu-Al-Taman:-The-news-of-Ronaldo%E2%80%99s-absence-is-just-a-camouflage)
+
+
 ### العين (N/A, Mon, 16 Sep 2024 11:30:00 -0700)
 
 - **بمشاركة رحيمي.. العين الإماراتي يتعادل أمام السد القطري في دوري أبطال آسيا**: [Link](https://ar.hibapress.com/details-552100.html)
