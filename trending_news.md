@@ -1,3 +1,18 @@
+### ايمان الحصري (N/A, Mon, 16 Sep 2024 14:20:00 -0700)
+
+- **بعد خطأ طبي و7 جراحات في 21 يوماً.. جراحة جديدة وخطيرة لمذيعة مصرية**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/09/15/%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B7%D8%A3-%D8%B7%D8%A8%D9%8A-%D9%887-%D8%AC%D8%B1%D8%A7%D8%AD%D8%A7%D8%AA-%D9%81%D9%8A-21-%D9%8A%D9%88%D9%85%D8%A7%D9%8B-%D8%AC%D8%B1%D8%A7%D8%AD%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%88%D8%AE%D8%B7%D9%8A%D8%B1%D8%A9-%D9%84%D9%85%D8%B0%D9%8A%D8%B9%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)
+- **سبب خضوع الإعلامية إيمان الحصري لـ7 عمليات جراحية خلال 21 يوما**: [Link](https://alhorianews.com/%D8%B3%D8%A8%D8%A8-%D8%AE%D8%B6%D9%88%D8%B9-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D8%A5%D9%8A%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D8%B5%D8%B1%D9%8A-%D9%84%D9%807-%D8%B9%D9%85%D9%84/)
+- **بعد خطأ طبي و7 جراحات.. إيمان الحصري تريند بسبب حالتها الصحية مجدداً**: [Link](https://24.ae/article/844455/%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B7%D8%A3-%D8%B7%D8%A8%D9%8A-%D9%887-%D8%AC%D8%B1%D8%A7%D8%AD%D8%A7%D8%AA-%D8%A5%D9%8A%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D8%B5%D8%B1%D9%8A-%D8%AA%D8%B1%D9%8A%D9%86%D8%AF-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AD%D8%A7%D9%84%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%85%D8%AC%D8%AF%D8%AF%D8%A7%D9%8B)
+
+
+### messi (N/A, Mon, 16 Sep 2024 14:20:00 -0700)
+
+- **Lamine Yamal set to smash Ansu Fati record & make more history as teenage 
+wonderkid continues to star for Barcelona**: [Link](https://www.goal.com/en-gb/lists/lamine-yamal-ansu-fati-record-history-wonderkid-barcelona/blta0ff7e6db04aad66)
+- **“We could have scored one or two more goals,' claims Flick**: [Link](https://www.besoccer.com/new/ldquo-we-could-have-scored-one-or-two-more-goals-claims-flick-1330771)
+- **3 Barca stars who stood out in the club's 4-1 victory against Girona**: [Link](https://everythingbarca.com/posts/3-barca-stars-who-stood-out-in-the-club-s-4-1-victory-against-girona-01j7whqapmeg)
+
+
 ### rayo vallecano (N/A, Mon, 16 Sep 2024 13:50:00 -0700)
 
 - **James Rodríguez's Debut with Rayo Vallecano Closer Than Ever**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/james-rodr%C3%ADguez-s-debut-with-rayo-vallecano-closer-than-ever-2024-09-15)
