@@ -1,3 +1,10 @@
+### dani olmo (N/A, Sun, 15 Sep 2024 15:20:00 -0700)
+
+- **Dani Olmo, baja para Mónaco**: [Link](https://as.com/futbol/dani-olmo-baja-para-monaco-n/)
+- **Pendientes del isquiotibial de Dani Olmo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240915/1002316109/pendientes-isquiotibial-dani-olmo.html)
+- **El cambio que enciende las alarmas en el Barça: problemas musculares**: [Link](https://cronicaglobal.elespanol.com/culemania/primer-equipo/20240915/el-cambio-enciende-alarmas-barca-problemas-musculares/886161420_0.html)
+
+
 ### reflect orbital (N/A, Sun, 15 Sep 2024 17:40:00 -0700)
 
 - **Social Media Digest**: [Link](https://www.chinadaily.com.cn/a/202409/05/WS66d8dfd2a3108f29c1fca2c8_2.html)
