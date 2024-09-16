@@ -1,3 +1,18 @@
+### arnaud danjean (N/A, Mon, 16 Sep 2024 06:10:00 -0700)
+
+- **L’ex-eurodéputé LR Arnaud Danjean rejoint le cabinet de Michel Barnier**: [Link](https://www.lemonde.fr/politique/article/2024/09/16/l-ex-eurodepute-lr-arnaud-danjean-rejoint-le-cabinet-de-michel-barnier_6319808_823448.html)
+- **L’ex-député européen Arnaud Danjean rejoint Michel Barnier à Matignon**: [Link](https://www.liberation.fr/politique/lex-depute-europeen-arnaud-danjean-rejoint-michel-barnier-a-matignon-20240915_K7WCL5VK75FH3CYPEUTZL7MMGY/)
+- **Arnaud Danjean au Figaro : «Pourquoi je rejoins Michel Barnier à Matignon»**: [Link](https://www.lefigaro.fr/politique/arnaud-danjean-au-figaro-pourquoi-je-rejoins-michel-barnier-a-matignon-20240915)
+
+
+### aid mawlid 2024 (N/A, Mon, 16 Sep 2024 00:30:00 -0700)
+
+- **Aid Al-Mawlid Annabaoui Acharif: Hespress Français souhaite Dikra moubaraka 
+à tous ses lecteurs**: [Link](https://fr.hespress.com/386189-aid-al-mawlid-annabaoui-acharif-hespress-francais-souhaite-dikra-moubaraka-a-tous-ses-lecteurs-2.html)
+- **Mawlid Annabaoui : Le Roi gracie 638 personnes**: [Link](https://www.leconomiste.com/flash-infos/mawlid-annabaoui-le-roi-gracie-638-personnes)
+- **Aïd Al Mawlid Annabaoui : grâce royale au profit de 638 personnes**: [Link](https://ledesk.ma/encontinu/aid-al-mawlid-annabaoui-grace-royale-au-profit-de-638-personnes/)
+
+
 ### كرة القدم داخل القاعة (N/A, Mon, 16 Sep 2024 04:30:00 -0700)
 
 - **"منتخب الفوتسال" يضع آخر اللمسات قبل لقاء طاجيكستان في كأس العالم**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%8A%D8%B6%D8%B9-%D8%A2%D8%AE%D8%B1-%D8%A7%D9%84%D9%84%D9%85%D8%B3%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D9%84%D9%82-1432011.html)
