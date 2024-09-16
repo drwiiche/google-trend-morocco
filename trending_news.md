@@ -1,3 +1,11 @@
+### tajikistan (N/A, Mon, 16 Sep 2024 08:00:00 -0700)
+
+- **Tajikistan 2-4 Morocco | Report & highlights**: [Link](https://www.fifa.com/en/articles/tajikistan-morocco-match-report-highlights)
+- **FIFA: ‘Morocco is Sensation of World Futsal’**: [Link](https://www.moroccoworldnews.com/2024/09/365211/fifa-morocco-is-sensation-of-world-futsal)
+- **Morocco’s Futsal World Cup Journey: When, How to Watch the Game Against 
+Tajikistan**: [Link](https://www.moroccoworldnews.com/2024/09/365208/moroccos-futsal-world-cup-journey-when-how-to-watch-the-game-against-tajikistan)
+
+
 ### endrick (N/A, Mon, 16 Sep 2024 10:10:00 -0700)
 
 - **Endrick Gets Married!**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/endrick-gets-married-2024-09-16)
