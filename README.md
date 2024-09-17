@@ -1,3 +1,37 @@
+### endrick (N/A, Tue, 17 Sep 2024 13:40:00 -0700)
+
+- **Endrick Gets Married!**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/endrick-gets-married-2024-09-16)
+- **Inside Endrick’s surprise wedding to stunning model, 23, after Real Madrid 
+star, 18, revealed wild r...**: [Link](https://www.thesun.co.uk/sport/30479724/endrick-wedding-model-gabriely-miranda-madrid/)
+- **Endrick and his new wife Gabriely Miranda have relationship 'contract' with 
+several bizarre clauses**: [Link](https://www.sportbible.com/football/la-liga/real-madrid/endrick-fiancee-contract-brazil-468726-20240916)
+
+
+### liverpool vs (N/A, Tue, 17 Sep 2024 13:40:00 -0700)
+
+- **Champions League: Build-up to Young Boys v Aston Villa - plus five more 
+games**: [Link](https://www.bbc.com/sport/football/live/cpw8e5lv9knt)
+- **BSC Young Boys 0-3 Aston Villa**: [Link](https://www.avfc.co.uk/news/2024/september/17/bsc-young-boys-v-aston-villa-report/)
+- **Unai Emery dedicates Aston Villa’s Champions League win to ex-striker Gary 
+Shaw**: [Link](https://www.alloaadvertiser.com/sport/national/24591991.unai-emery-dedicates-aston-villas-champions-league-win-ex-striker-gary-shaw/)
+
+
+### rma vs (N/A, Tue, 17 Sep 2024 13:10:00 -0700)
+
+- **Real Madrid 2-0 Real Sociedad (Sep 14, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704704)
+- **Real Sociedad boss warns 'football is being ruined' as Carlo Ancelotti 
+admits Real Madrid victory was undeserved**: [Link](https://sports.yahoo.com/real-sociedad-boss-warns-football-093000872.html)
+- **Real Madrid briefing: Mbappe’s growing influence, Vinicius Jr penalty 
+controversy and why Kroos is missed**: [Link](https://www.nytimes.com/athletic/5767576/2024/09/15/real-madrid-briefing-mbappe-vinicius-kroos/)
+
+
+### match real madrid aujourd'hui (N/A, Tue, 17 Sep 2024 12:40:00 -0700)
+
+- **DIRECT. Real Madrid-VfB Stuttgart (Ligue des champions 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/real-madrid-vfb-stuttgart-live/667963)
+- **C1. Real Madrid - Stuttgart : suivez le match en direct**: [Link](https://www.linternaute.com/sport/foot/6182659-c1-real-madrid-stuttgart-suivez-le-match-en-direct/)
+- **Le Real Madrid met Kylian Mbappé sous pression**: [Link](https://www.footmercato.net/a8756931013648154957-le-real-madrid-met-kylian-mbappe-sous-pression)
+
+
 ### league cup (N/A, Tue, 17 Sep 2024 13:30:00 -0700)
 
 - **Stevens and Rose return for Carabao Cup contest**: [Link](https://www.stokecityfc.com/news/2024/september/17/stevens-and-rose-return-for-carabao-cup-contest/)
