@@ -1,3 +1,11 @@
+### bayern munich (N/A, Tue, 17 Sep 2024 12:10:00 -0700)
+
+- **Bayern Munich vs Dinamo Zagreb live stream info: How to watch Champions 
+League online**: [Link](https://bayernstrikes.com/posts/bayern-munich-vs-dinamo-zagreb-live-stream-info-how-to-watch-champions-league-online-01j7x92xpszm)
+- **Preview: Bayern Munich vs. Dinamo Zagreb - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayern-munich/champions-league/preview/preview-bayern-vs-dinamo-zagreb-prediction-team-news-lineups_552969.html)
+- **Harry Kane to score a hat-trick in the Champions League Tuesday 10/1**: [Link](https://www.dailymail.co.uk/sport/skybet/article-13854697/Harry-Kane-Bayern-Munich-Champions-League.html)
+
+
 ### ac milan (N/A, Tue, 17 Sep 2024 12:00:00 -0700)
 
 - **What’s new in the UEFA Champions League 2024-25 season?**: [Link](https://www.aljazeera.com/sports/2024/9/16/uefa-champions-league-2024-25-matches-teams-format-key-dates-draw-final-favourites-record)
