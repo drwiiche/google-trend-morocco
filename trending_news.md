@@ -1,3 +1,12 @@
+### pager (N/A, Tue, 17 Sep 2024 07:10:00 -0700)
+
+- **Pagers explode across Lebanon in attack targeting Hezbollah members: Live 
+updates**: [Link](https://www.cnn.com/world/live-news/lebanon-pagers-attack-hezbollah/index.html)
+- **Hundreds of Hezbollah pagers explode in apparent attack across Lebanon**: [Link](https://www.usatoday.com/story/news/world/2024/09/17/hezbollah-pagers-lebanon-attack-israel/75261807007/)
+- **Pagers Explode Across Lebanon in Attack on Hezbollah: Israel-Gaza War Live 
+Updates**: [Link](https://www.nytimes.com/live/2024/09/17/world/israel-hamas-war-news)
+
+
 ### اجهزة بيجر (N/A, Tue, 17 Sep 2024 06:50:00 -0700)
 
 - **أجهزة "البيجر" المتفجرة جديدة .. تفاصيل مفاجئة لاختراق حزب الله**: [Link](https://www.alarabiya.net/arab-and-world/2024/09/17/%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A8%D9%8A%D8%AC%D8%B1-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%AA-%D9%84%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-%D9%86%D8%B5%D9%81-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B9%D9%85%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%81%D9%8A-%D9%84%D8%A8%D9%86%D8%A7%D9%86)
