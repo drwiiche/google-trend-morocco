@@ -1,3 +1,27 @@
+### نتائج مباريات اليوم (N/A, Tue, 17 Sep 2024 14:40:00 -0700)
+
+- **كيسي المُنقذ.. سلاح يايسله المميز في المواقف المُعقدة**: [Link](https://www.kooora.com/?n=1355281)
+- **رياضة - كيسيه.. تخصص «عالمي» - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/215874/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9---%D9%83%D9%8A%D8%B3%D9%8A%D9%87-%D8%AA%D8%AE%D8%B5%D8%B5-%D8%B9%D8%A7%D9%84%D9%85%D9%8A---AARC-%D9%85%D8%B5%D8%B1.html)
+- **"ديمبلي" يوجه رسالة ساخرة إلى كيسييه**: [Link](https://alsaudia-web.com/news2373812.html)
+
+
+### شاكيرا (N/A, Tue, 17 Sep 2024 14:20:00 -0700)
+
+- **فيديو لشاكيرا تنسحب غاضبة.. صوروا ما تحت تنورتها على المسرح**: [Link](https://www.alarabiya.net/social-media/2024/09/17/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D8%B4%D8%A7%D9%83%D9%8A%D8%B1%D8%A7-%D8%AA%D9%86%D8%B3%D8%AD%D8%A8-%D8%BA%D8%A7%D8%B6%D8%A8%D8%A9-%D8%B5%D9%88%D8%B1%D9%88%D8%A7-%D9%85%D8%A7-%D8%AA%D8%AD%D8%AA-%D8%AA%D9%86%D9%88%D8%B1%D8%AA%D9%87%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%B1%D8%AD)
+- **شاكيرا تغادر فجأةً المسرح بسبب تصرّف غير أخلاقي**: [Link](https://www.lahamag.com/article/214959-%D8%B4%D8%A7%D9%83%D9%8A%D8%B1%D8%A7-%D8%AA%D9%86%D8%B3%D8%AD%D8%A8-%D9%81%D8%AC%D8%A3%D8%A9-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%B1%D8%AD-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AA%D8%B5%D8%B1%D9%81-%D8%BA%D9%8A%D8%B1-%D8%A3%D8%AE%D9%84%D8%A7%D9%82%D9%8A)
+- **انسحبت من المسرح وهي غاضبة.. شاهدوا ما حصل مع شاكيرا بسبب فستانها الجريء 
+(فيديو)**: [Link](https://www.lebanon24.com/news/arts-celebrities/1247371/%D8%A7%D9%86%D8%B3%D8%AD%D8%A8%D8%AA-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%B1%D8%AD-%D9%88%D9%87%D9%8A-%D8%BA%D8%A7%D8%B6%D8%A8%D8%A9-%D8%B4%D8%A7%D9%87%D8%AF%D9%88%D8%A7-%D9%85%D8%A7-%D8%AD%D8%B5%D9%84-%D9%85%D8%B9-%D8%B4%D8%A7%D9%83%D9%8A%D8%B1%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%81%D8%B3%D8%AA%D8%A7%D9%86%D9%87%D8%A7-%D8%A7%D9%84%D8%AC%D8%B1%D9%8A%D8%A1)
+
+
+### classement real madrid – vfb stuttgart (N/A, Tue, 17 Sep 2024 14:00:00 -0700)
+
+- **Real Madrid : la blague de Thibaut Courtois sur Endrick**: [Link](https://www.footmercato.net/a4710538852464801600-real-madrid-la-blague-de-thibaut-courtois-sur-endrick)
+- **Real Madrid - Stuttgart : le but sublime d'Endrick avec une frappe 
+surpuissante (vidéo)**: [Link](https://www.onzemondial.com/ligue-des-champions/real-madrid-stuttgart-le-but-sublime-d-endrick-avec-une-frappe-surpuissante-video-913665)
+- **Ligue des champions : Mbappé buteur, le Real s'impoe au finish face à 
+Stuttgart**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-mbappe-buteur-le-real-s-en-sort-de-justesse-face-a-stuttgart_sto10342904/story.shtml)
+
+
 ### modric (N/A, Tue, 17 Sep 2024 14:20:00 -0700)
 
 - **Man Utd transfers: Real Madrid legend urges side to beat Red Devils to 
