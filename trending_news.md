@@ -1,3 +1,23 @@
+### juventus – psv eindhoven (N/A, Tue, 17 Sep 2024 08:50:00 -0700)
+
+- **Squad List | Juventus-PSV**: [Link](https://www.juventus.com/en/news/articles/squad-list-juventus-psv)
+- **Koopmeiners backed to shine in Champions League opener by Motta**: [Link](https://www.beinsports.com/en-au/football/uefa-champions-league/articles/koopmeiners-backed-to-shine-in-champions-league-opener-by-motta-2024-09-16)
+- **Yildiz aims for Del Piero’s record – The most interesting stats leading to 
+Juventus vs PSV**: [Link](https://onefootball.com/fr/news/yildiz-aims-for-del-pieros-record-the-most-interesting-stats-leading-to-juventus-vs-psv-40045864)
+
+
+### 12 coups de midi étoile mystérieuse (N/A, Tue, 17 Sep 2024 08:30:00 -0700)
+
+
+
+
+### incendie portugal (N/A, Tue, 17 Sep 2024 07:00:00 -0700)
+
+- **Le Portugal sans répit face aux feux de forêt**: [Link](https://medias24.com/agence-presse/le-portugal-sans-repit-face-aux-feux-de-foret/)
+- **Des incendies mortels ravagent le Portugal**: [Link](https://fr.euronews.com/my-europe/2024/09/17/des-incendies-mortels-ravagent-le-portugal)
+- **Au moins deux morts dans des incendies de forêt au Portugal**: [Link](https://www.tap.info.tn/fr/Portail-Monde/17889110-au-moins-deux-morts)
+
+
 ### ucl (N/A, Tue, 17 Sep 2024 08:40:00 -0700)
 
 - **Why are there Champions League games on Thursday and will it be every week?**: [Link](https://www.mirror.co.uk/sport/football/news/champions-league-why-thursday-arsenal-33678747)
