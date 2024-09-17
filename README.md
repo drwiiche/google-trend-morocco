@@ -1,3 +1,10 @@
+### دنيا بطمة (N/A, Tue, 17 Sep 2024 13:20:00 -0700)
+
+- **ظهور جديد لابنتَي دنيا بطمة بعدما كبُرتا**: [Link](https://www.lahamag.com/article/214967-%D8%B8%D9%87%D9%88%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D8%A7%D8%A8%D9%86%D8%AA%D9%8A-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A8%D8%B7%D9%85%D8%A9-%D8%A8%D8%B9%D8%AF%D9%85%D8%A7-%D9%83%D8%A8%D8%B1%D8%AA%D8%A7)
+- **ظهور جديد لابنتي دنيا بطمة بعدما كبرتا**: [Link](https://jfranews.com.jo/article/468551)
+- **إبتسام بطمة توجه رسالة لزوجها فؤاد قبيبو**: [Link](https://ar.lesiteinfo.com/cultures/%D8%A5%D8%A8%D8%AA%D8%B3%D8%A7%D9%85-%D8%A8%D8%B7%D9%85%D8%A9-%D8%AA%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%84%D8%B2%D9%88%D8%AC%D9%87%D8%A7-%D9%81%D8%A4%D8%A7%D8%AF-%D9%82%D8%A8%D9%8A-879603.html)
+
+
 ### stuttgart (N/A, Tue, 17 Sep 2024 12:30:00 -0700)
 
 - **Stuttgarter Olympia- und Paralympicsteilnehmerinnen und -teilnehmer im Rathaus empfangen**: [Link](https://www.stuttgart.de/service/aktuelle-meldungen/september/ob-frank-nopper-empfaengt-stuttgarter-olympia-und-paralympicsteilnehmerinnen-und-teilnehmer-im-rathaus.php)
