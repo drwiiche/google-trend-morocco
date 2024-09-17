@@ -1,3 +1,10 @@
+### بيجر (N/A, Tue, 17 Sep 2024 07:10:00 -0700)
+
+- **اختراق أمني كبير.. إصابة مئات من حزب الله بانفجار أجهزة اتصال يحملونها**: [Link](https://www.aljazeera.net/news/2024/9/17/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D8%A3%D8%AC%D9%87%D8%B2%D8%A9-%D8%A7%D8%AA%D8%B5%D8%A7%D9%84)
+- **عاجل: عدد من الإصابات في حدث أمني غير واضح في الضاحية الجنوبية لبيروت**: [Link](https://www.bbc.com/arabic/articles/cg567dnrmd9o)
+- **إسرائيل فجرت أجهزة لاسلكية لحزب الله.. وأكثر من 45 إصابة**: [Link](https://www.alarabiya.net/arab-and-world/2024/09/17/%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%81%D8%AC%D8%B1%D8%AA-%D8%A3%D8%AC%D9%87%D8%B2%D8%A9-%D9%84%D8%A7%D8%B3%D9%84%D9%83%D9%8A%D8%A9-%D9%84%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%88%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-45-%D8%A7%D8%B5%D8%A7%D8%A8%D8%A9-)
+
+
 ### pagers (N/A, Tue, 17 Sep 2024 07:00:00 -0700)
 
 - **Hundreds of Hezbollah members wounded in Lebanon when pagers explode, 
