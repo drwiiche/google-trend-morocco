@@ -1,3 +1,49 @@
+### الريال ضد شتوتغارت (N/A, Tue, 17 Sep 2024 11:10:00 -0700)
+
+- **عودة بيلينجهام لتشكيل ريال مدريد أمام شتوتجارت**: [Link](https://www.kooora.com/?n=1355371)
+- **رسالة حماسية من فينيسيوس قبل مواجهة ريال مدريد ضد شتوتغارت .. صورة**: [Link](https://hihi2.com/2024/09/17/p2852214.html)
+- **ريال مدريد يبدأ مشواره بمواجهة لا تخلو من الصعوبة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%A8%D8%AF%D8%A3-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D8%A7-%D8%AA%D8%AE%D9%84%D9%88-%D9%85%D9%86-%D8%A7%D9%84%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-2024-09-17)
+
+
+### manchester united – barnsley (N/A, Tue, 17 Sep 2024 11:10:00 -0700)
+
+- **Erik ten Hag on injuries after Man Utd beat Southampton**: [Link](https://www.manutd.com/en/news/detail/erik-ten-hag-on-injuries-after-man-utd-beat-southampton)
+- **Donovan Pines to miss pair of Barnsley matches with concussion - SBI Soccer**: [Link](https://sbisoccer.com/2024/09/donovan-pines-to-miss-pair-of-barnsley-matches-with-concussion)
+- **Carabao Cup draw: Fixtures, match schedule and results for third round of 
+EFL Cup**: [Link](https://www.sportingnews.com/au/football/news/carabao-cup-draw-fixtures-match-schedule-results-efl-cup/383c9c9af127ceedce174456)
+
+
+### real madrid vs vfb stuttgart (N/A, Tue, 17 Sep 2024 11:10:00 -0700)
+
+- **Champions League, Sendeplan: Diese Spiele werden bei Amazon Prime live im 
+TV und Livestream gezeigt**: [Link](https://www.spox.com/de/sport/fussball/championsleague/2409/Artikel/champions-league-sendeplan-diese-spiele-werden-bei-amazon-prime-live-im-tv-und-livestream-gezeigt.html)
+- **DAZN oder Amazon Prime: Wo läuft Bayern gegen Zagreb?**: [Link](https://www.dazn.com/de-DE/news/fussball/dazn-oder-amazon-prime-wo-laeuft-bayern-gegen-zagreb-uefa-champions-league-dienstag-ligaphase/1dln5ounar9791onf0fh00lsfo)
+- **Champions League: Real Madrid gegen Stuttgart im Bernabeu**: [Link](https://www.ilmessaggero.it/de/champions_league_real_madrid_gegen_stuttgart_im_bernabeu-8359513.html)
+
+
+### bayern – dinamo zagreb (N/A, Tue, 17 Sep 2024 11:10:00 -0700)
+
+- **Champions League, Sendeplan: Diese Spiele werden bei Amazon Prime live im 
+TV und Livestream gezeigt**: [Link](https://www.spox.com/de/sport/fussball/championsleague/2409/Artikel/champions-league-sendeplan-diese-spiele-werden-bei-amazon-prime-live-im-tv-und-livestream-gezeigt.html)
+- **Aufstellungen: So starten die Bayern und Dinamo in die Champions League**: [Link](https://www.skysportaustria.at/aufstellungen-so-starten-die-bayern-und-dinamo-in-die-champions-league/)
+- **FC Bayern - Dinamo Zagreb LIVE: Champions League im LIVE-TICKER**: [Link](https://www.dazn.com/de-DE/news/fussball/fc-bayern-muenchen-dinamo-zagreb-live-ticker-blog-champions-league-ticker/150pd7gvzqtgm1qsuikjv5m7k1)
+
+
+### ميلان ضد ليفربول (N/A, Tue, 17 Sep 2024 11:10:00 -0700)
+
+- **بسبب المباريات.. حارس ليفربول يعبر عن استيائه**: [Link](https://www.skynewsarabia.com/sport/1742217-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B1%D8%B3-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%B9%D8%A8%D8%B1-%D8%A7%D8%B3%D8%AA%D9%8A%D8%A7%D9%8A%D9%94%D9%87)
+- **صلاح على رأس تشكيل ليفربول.. وموراتا يقود هجوم ميلان**: [Link](https://www.kooora.com/?n=1355382)
+- **مباشر..مباراة ميلان وليفربول بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/17/milan-vs-liverpool)
+
+
+### real madrid – stuttgart (N/A, Tue, 17 Sep 2024 10:50:00 -0700)
+
+- **Real Madrid-Stuttgart: European champions get their Champions League 
+campaign underway**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/fixtures/real-madrid-stuttgart-comienza-la-champions-para-el-campeon-16-09-2024)
+- **Bellingham, Tchouameni back for Madrid's Champions League opener**: [Link](https://www.besoccer.com/new/bellingham-tchouameni-back-for-madrid-s-champions-league-opener-1330803)
+- **Managing Madrid Podcast: Real Madrid vs Stuttgart PREVIEW**: [Link](https://www.managingmadrid.com/2024/9/16/24246321/managing-madrid-podcast-real-madrid-vs-stuttgart-preview)
+
+
 ### ac milan – liverpool (N/A, Tue, 17 Sep 2024 11:00:00 -0700)
 
 - **Slot doubles down on selection policy ahead of Champions League opener**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/slot-doubles-down-on-selection-policy-ahead-of-champions-league-opener-2024-09-16)
