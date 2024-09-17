@@ -1,3 +1,25 @@
+### real madrid (N/A, Tue, 17 Sep 2024 12:10:00 -0700)
+
+- **Real Madrid - Stuttgart, en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/r-madrid-vfb-stuttgart/2024/09/17/01_0103_20240917_186_169-directo.html)
+- **Vuelve Bellingham... ¡y Carvajal central!**: [Link](https://as.com/futbol/champions/vuelve-bellingham-y-carvajal-central-n/)
+- **El equipo se está entrenando**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-16-09-2024)
+
+
+### sporting – lille (N/A, Tue, 17 Sep 2024 12:10:00 -0700)
+
+- **Preview: Sporting Lisbon vs. Lille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sporting-lisbon/champions-league/preview/preview-sporting-lisbon-vs-lille-prediction-team-news-lineups_552977.html)
+- **Football Bet of the Day: Sporting to continue their strong start to the 
+season**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-sporting-to-continue-their-strong-start-to-the-season/)
+- **Sporting CP vs Lille: Preview, predictions and lineups**: [Link](https://www.90min.com/sporting-cp-vs-lille-preview-predictions-lineups-17-9-24)
+
+
+### milan ac (N/A, Tue, 17 Sep 2024 12:00:00 -0700)
+
+- **DIRECT. AC Milan-Liverpool (Ligue des champions 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/ac-milan-liverpool-live/667966)
+- **AC Milan - Liverpool : les compositions officielles**: [Link](https://www.footmercato.net/a8569523362986118936-ac-milan-liverpool-les-compositions-officielles)
+- **Prédiction, six minutes, enfer : On a revu la finale légendaire Milan-Liverpool de 2005**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/prediction-six-minutes-enfer-on-a-revu-la-finale-legendaire-milan-liverpool-de-2005_sto20037721/story.shtml)
+
+
 ### brentford – leyton orient (N/A, Tue, 17 Sep 2024 12:00:00 -0700)
 
 - **Brentford v Leyton Orient matchday guide**: [Link](https://www.brentfordfc.com/en/news/article/supporter-information-brentford-v-leyton-orient-17-09-2024)
