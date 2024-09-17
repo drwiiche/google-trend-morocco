@@ -1,3 +1,10 @@
+### stuttgart (N/A, Tue, 17 Sep 2024 12:30:00 -0700)
+
+- **Stuttgarter Olympia- und Paralympicsteilnehmerinnen und -teilnehmer im Rathaus empfangen**: [Link](https://www.stuttgart.de/service/aktuelle-meldungen/september/ob-frank-nopper-empfaengt-stuttgarter-olympia-und-paralympicsteilnehmerinnen-und-teilnehmer-im-rathaus.php)
+- **Olympia und Paralymics: Stuttgarts Sportlerinnen und Sportler – in Paris erfolgreich, in der Heimat geehrt**: [Link](https://www.stuttgarter-zeitung.de/inhalt.olympia-und-paralymics-stuttgarts-sportlerinnen-und-sportler-in-paris-erfolgreich-in-der-heimat-geehrt.bffde323-3057-448e-9865-3a9e43f82b26.html)
+- **Optifast Zentrum Stuttgart: Abnehmen mit System: endlich erfolgreich**: [Link](https://www.shz.de/advertorials/test-67421/mittelholstein_nortorfer_land/optifast-zentrum-stuttgart-abnehmen-system-endlich-erfolgreich-213018)
+
+
 ### manchester united (N/A, Tue, 17 Sep 2024 12:50:00 -0700)
 
 - **Man Utd: Antony must earn right to play - Erik ten Hag**: [Link](https://www.bbc.com/sport/football/articles/cd9885pjdlxo)
