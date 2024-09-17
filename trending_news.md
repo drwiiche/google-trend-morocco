@@ -1,3 +1,10 @@
+### جهاز بيجر (N/A, Tue, 17 Sep 2024 07:00:00 -0700)
+
+- **Hundreds of Hezbollah members wounded in Lebanon when pagers explode, security source says**: [Link](https://www.reuters.com/world/middle-east/dozens-hezbollah-members-wounded-lebanon-when-pagers-exploded-sources-witnesses-2024-09-17/)
+- **Pagers Explode Across Lebanon in Attack on Hezbollah: Israel-Gaza War Live Updates**: [Link](https://www.nytimes.com/live/2024/09/17/world/israel-hamas-war-news)
+- **Dozens of Hezbollah members reportedly hurt by exploding pagers**: [Link](https://www.bbc.com/news/articles/cd7xnelvpepo)
+
+
 ### بيجر (N/A, Tue, 17 Sep 2024 07:10:00 -0700)
 
 - **اختراق أمني كبير.. إصابة مئات من حزب الله بانفجار أجهزة اتصال يحملونها**: [Link](https://www.aljazeera.net/news/2024/9/17/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D8%A3%D8%AC%D9%87%D8%B2%D8%A9-%D8%A7%D8%AA%D8%B5%D8%A7%D9%84)
