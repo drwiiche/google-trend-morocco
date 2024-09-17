@@ -1,3 +1,21 @@
+### real sociedad (N/A, Tue, 17 Sep 2024 10:30:00 -0700)
+
+- **The Premier League club that wants to sign Sheraldo Becker**: [Link](https://www.fichajes.net/en/news/the-premier-league-club-that-wants-to-sign-sheraldo-becker-20240916.html)
+- **Crystal Palace readying £8m+ move to sign "quality" new star for Glasner**: [Link](https://www.footballfancast.com/crystal-palace-ready-move-for-sheraldo-becker-for-glasner-report/)
+- **Ancelotti: ‘We held on, we suffered and we were committed’**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rueda-de-prensa-de-ancelotti-post-partido-14-09-2024)
+
+
+### destitution macron (N/A, Tue, 17 Sep 2024 09:20:00 -0700)
+
+- **L’actualité politique en direct : la proposition de destitution d’Emmanuel 
+Macron portée par LFI franchit une première étape à l’Assemblée nationale**: [Link](https://www.lemonde.fr/politique/live/2024/09/17/en-direct-budget-les-oppositions-vont-a-matignon-pour-faire-pression_6314327_823448.html)
+- **DIRECT. Nouveau gouvernement : le bureau de l'Assemblée nationale valide la 
+procédure de destitution d'Emmanuel Macron et la transmet à la commission 
+des lois**: [Link](https://www.francetvinfo.fr/politique/gouvernement-de-michel-barnier/direct-michel-garnier-au-gouvernement-le-premier-ministre-va-recevoir-fabien-roussel-dans-l-apres-midi_6785851.html)
+- **Pour la première fois, une procédure de destitution franchit cette étape à 
+l’Assemblée**: [Link](https://www.huffingtonpost.fr/politique/article/la-procedure-de-destitution-d-emmanuel-macron-lancee-par-lfi-arrive-a-l-assemblee-et-le-plus-dur-reste-a-faire_239684.html)
+
+
 ### aston villa (N/A, Tue, 17 Sep 2024 10:10:00 -0700)
 
 - **Villa unchanged for Young Boys test**: [Link](https://www.avfc.co.uk/news/2024/september/17/bsc-young-boys-v-aston-villa-team-news/)
