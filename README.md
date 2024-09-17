@@ -1,3 +1,10 @@
+### apple ios 18 (N/A, Tue, 17 Sep 2024 05:10:00 -0700)
+
+- **iOS 18: How to Lock and Hide iPhone Apps for Additional Security**: [Link](https://www.cnet.com/tech/services-and-software/ios-18-how-to-lock-and-hide-iphone-apps-for-additional-security/)
+- **iOS 18 is officially available for iPhone. Here's how to download it (and which models support it)**: [Link](https://www.zdnet.com/article/ios-18-is-officially-available-for-iphone-heres-how-to-download-it-and-which-models-support-it/)
+- **iOS 18 release date and time: How to download the update**: [Link](https://www.standard.co.uk/news/tech/ios-18-release-date-when-download-apple-iphone-software-update-b1182263.html)
+
+
 ### achkayen (N/A, Mon, 16 Sep 2024 23:40:00 -0700)
 
 - **"الهروب الكبير".. رحلة "عذاب" لآلاف الشباب والقٌصر الحالمين بالهجرة الجماعية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%87%D8%B1%D9%88%D8%A8-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1-%D8%B1%D8%AD%D9%84%D8%A9-%D8%B9%D8%B0%D8%A7%D8%A8-%D9%84%D8%A2%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7-1432525.html)
