@@ -1,3 +1,20 @@
+### bipeur (N/A, Tue, 17 Sep 2024 09:40:00 -0700)
+
+- **🔴 En direct : des centaines de membres du Hezbollah blessés par 
+l'explosion simultanée de leurs bipeurs**: [Link](https://www.france24.com/fr/moyen-orient/20240917-direct-israel-hamas-gaza-retour-isra%C3%A9liens-dans-le-nord-but-de-guerre)
+- **Explosion massive de bipeurs au Liban : au moins huit morts et 2750 blessés**: [Link](https://www.lefigaro.fr/international/guerre-israel-hamas-des-centaines-de-membres-du-hezbollah-blesses-dans-l-explosion-de-leurs-bipeurs-au-liban-20240917)
+- **En direct, explosions de bipeurs au Liban : huit personnes sont mortes et 2 
+750 ont été blessées ; le Hezbollah accuse Israël**: [Link](https://www.lemonde.fr/international/live/2024/09/17/en-direct-au-liban-plusieurs-centaines-de-personnes-blessees-apres-l-explosion-de-leur-bipeur-selon-le-ministere-de-la-sante_6321740_3210.html)
+
+
+### al hilal (N/A, Tue, 17 Sep 2024 09:40:00 -0700)
+
+- **Jesus: Al Hilal is one of the strongest teams in Asia**: [Link](https://www.ysscores.com/en/news/4223081/Jesus:-Al-Hilal-is-one-of-the-strongest-teams-in-Asia)
+- **Al Rayyan vs Al Hilal Predicted lineup, betting tips, odds, injury news, 
+H2H, telecast | AFC Champions League Elite 2024-25**: [Link](https://khelnow.com/football/world-football-al-rayyan-vs-al-hilal-afc-champions-league-elite-match-preview-202409)
+- **Surging Al Ettifaq, Al Riyadh out to stop Al Hilal**: [Link](https://onefootball.com/en/news/surging-al-ettifaq-al-riyadh-out-to-stop-al-hilal-40031233)
+
+
 ### mallorca vs real sociedad (N/A, Tue, 17 Sep 2024 09:30:00 -0700)
 
 - **Mallorca - Real Sociedad, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/mallorca-real-sociedad-en-directo-laliga-ea-sports-hoy-en-vivo-n/)
