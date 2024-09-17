@@ -1,3 +1,29 @@
+### preston north end – fulham (N/A, Tue, 17 Sep 2024 14:00:00 -0700)
+
+- **Preston North End vs Fulham LIVE updates from Carabao Cup clash**: [Link](https://www.lep.co.uk/sport/football/preston-north-end/preston-vs-fulham-live-stream-score-teams-team-news-lineups-north-end-carabao-cup-efl-pne-4786244)
+- **Preston North End vs Fulham: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2024/09/16/preston-north-end-vs-fulham-preview-and-prediction/)
+- **Preview: Preston North End vs. Fulham - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/preston-north-end/league-cup/preview/preview-preston-vs-fulham-prediction-team-news-lineups_552995.html)
+
+
+### rudiger (N/A, Tue, 17 Sep 2024 13:50:00 -0700)
+
+- **‘Be careful’ – Khabib Nurmagomedov issues warning to Real Madrid star 
+Antonio Rudiger after ‘1 vs 1’ challe...**: [Link](https://talksport.com/sport/2061147/ufc-khabib-nurmagomedov-warning-real-madrid-antonio-rudiger/)
+- **Stuttgart forward hails Real Madrid veteran star as ‘one of the best in the 
+world’**: [Link](https://madriduniversal.com/stuttgart-forward-hails-real-madrid-veteran-star-as-one-of-the-best-in-the-world/)
+- **Stuttgart forward wary of Real Madrid defender – ‘He pinches a lot’**: [Link](https://madriduniversal.com/stuttgart-forward-wary-of-real-madrid-defender-he-pinches-a-lot/)
+
+
+### karim tadjeddine (N/A, Tue, 17 Sep 2024 13:10:00 -0700)
+
+- **ENQUETE FRANCETV. Affaire McKinsey : "Cash Investigation" révèle les 
+dessous d'un dîner confidentiel autour d'Emmanuel Macron à Bercy dès 2015**: [Link](https://www.francetvinfo.fr/replay-magazine/france-2/cash-investigation/video-cash-investigation-affaire-mckinsey-un-diner-confidentiel-a-bercy_6777565.html)
+- **« EM souhaite qu’on avance vite » : les mails d’un patron de McKinsey 
+accablent le président**: [Link](https://www.mediapart.fr/journal/france/170924/em-souhaite-qu-avance-vite-les-mails-d-un-patron-de-mckinsey-accablent-le-president)
+- **Qu’est-ce que le « Chicxulub », le projet autour de Macron en 2017 et 
+pointé par « Cash Investigation » ?**: [Link](https://www.huffingtonpost.fr/politique/article/mckinsey-cash-investigation-pointe-le-chicxulub-autour-de-macron-en-2017-de-quoi-s-agit-il_239742.html)
+
+
 ### endrick (N/A, Tue, 17 Sep 2024 13:40:00 -0700)
 
 - **Endrick Gets Married!**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/endrick-gets-married-2024-09-16)
