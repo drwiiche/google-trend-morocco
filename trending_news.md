@@ -1,3 +1,18 @@
+### galatasaray vs gaziantep (N/A, Tue, 17 Sep 2024 10:40:00 -0700)
+
+- **Preview: Galatasaray vs. Gaziantep - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/preview/preview-galatasaray-vs-gaziantep-prediction-team-news-lineups_552955.html)
+- **Turkish Super Lig: Osimhen not included in Galatasaray’s squad against 
+Gaziantep**: [Link](https://dailypost.ng/2024/09/17/turkish-super-lig-osimhen-not-included-in-galatasarays-squad-against-gaziantep/)
+- **Osimhen misses Galatasaray rescheduled match**: [Link](https://scorenigeria.com.ng/osimhen-misses-galatasaray-rescheduled-match/)
+
+
+### champions league 2024 (N/A, Tue, 17 Sep 2024 10:20:00 -0700)
+
+- **USMNT Player Tracker: Balogun’s bit-part role, star man Pulisic, and Busio calls for character - The Athletic**: [Link](https://www.nytimes.com/athletic/5771238/2024/09/16/usmnt-balogun-pulisic-busio-koleosho-tracker/)
+- **Americans in the Champions League: From Trittschuh to Pepi**: [Link](https://www.socceramerica.com/americans-in-the-champions-league-from-trittschuh-to-pepi/)
+- **Americans in Champions League 2024/25: USMNT players in Europe's top UEFA club competition**: [Link](https://www.sportingnews.com/us/soccer/news/americans-champions-league-2024-2025-usmnt-players-uefa/08b61f284d5ab402e476dc71)
+
+
 ### real sociedad (N/A, Tue, 17 Sep 2024 10:30:00 -0700)
 
 - **The Premier League club that wants to sign Sheraldo Becker**: [Link](https://www.fichajes.net/en/news/the-premier-league-club-that-wants-to-sign-sheraldo-becker-20240916.html)
