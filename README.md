@@ -1,3 +1,11 @@
+### هبة بريس (N/A, Mon, 16 Sep 2024 23:10:00 -0700)
+
+- **مصادر رسمية محلية توضح حقيقة "موقوفين عراة" في مدينة الفنيدق**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%85%D8%AD%D9%84%D9%8A%D8%A9-%D8%AA%D9%88%D8%B6%D8%AD-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%85%D9%88%D9%82%D9%88%D9%81%D9%8A%D9%86-%D8%B9-1432672.html)
+- **توضيحات من السلطات بعد جدل انتشار صور لشبان شبه « عراة » عليهم آثار الضرب.. 
+– اليوم 24**: [Link](https://alyaoum24.com/1915665.html)
+- **مصادر تكشف علاقة صورة منتشرة لأشخاص "عراة" بالأحداث الجارية بالفنيدق**: [Link](https://madar21.com/278349.html)
+
+
 ### جهاز بيجر (N/A, Tue, 17 Sep 2024 07:00:00 -0700)
 
 - **Hundreds of Hezbollah members wounded in Lebanon when pagers explode, security source says**: [Link](https://www.reuters.com/world/middle-east/dozens-hezbollah-members-wounded-lebanon-when-pagers-exploded-sources-witnesses-2024-09-17/)
