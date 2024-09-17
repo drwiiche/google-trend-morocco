@@ -1,3 +1,10 @@
+### achkayen (N/A, Mon, 16 Sep 2024 23:40:00 -0700)
+
+- **"الهروب الكبير".. رحلة "عذاب" لآلاف الشباب والقٌصر الحالمين بالهجرة الجماعية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%87%D8%B1%D9%88%D8%A8-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1-%D8%B1%D8%AD%D9%84%D8%A9-%D8%B9%D8%B0%D8%A7%D8%A8-%D9%84%D8%A2%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7-1432525.html)
+- **رابطة تدعو إلى عدم متابعة "الحراكة"**: [Link](https://www.hespress.com/%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D8%B9%D8%AF%D9%85-%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D9%83%D8%A9-1432386.html)
+- **تجدد المواجهات في معبر باب سبتة مع فشل محاولة اقتحام جديدة – اليوم 24**: [Link](https://alyaoum24.com/1915572.html)
+
+
 ### teams (N/A, Tue, 17 Sep 2024 00:10:00 -0700)
 
 - **Which 0-2 teams still have a shot at the playoffs? Barnwell ranks all nine from first to worst**: [Link](https://www.espn.com/nfl/insider/story/_/id/41277098/ranking-winless-nfl-teams-2024-season-teams-eliminated-playoffs-super-bowl)
