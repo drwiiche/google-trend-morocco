@@ -1,3 +1,26 @@
+### يوفنتوس ضد بي اس في (N/A, Tue, 17 Sep 2024 09:50:00 -0700)
+
+- **ثنائي يوفنتوس خارج قائمة مباراة آيندهوفن**: [Link](https://www.kooora.com/?n=1355290)
+- **الصيباري حاضر ضمن قائمة آيندهوفن في أولى مبارياته بدوري الأبطال أمام يوفنتوس**: [Link](https://m.elbotola.com/article/2024-09-16-20-21-674.html)
+- **غوس هيدينغ: صيباري لاعب رائع يجب رؤيته أمام يوفنتوس**: [Link](https://www.almountakhab.com/node/16204415)
+
+
+### psv (N/A, Tue, 17 Sep 2024 09:50:00 -0700)
+
+- **Noa Lang op de bank bij PSV in Champions League-kraker tegen Juventus**: [Link](https://www.nu.nl/voetbal/6328538/noa-lang-op-de-bank-bij-psv-in-champions-league-kraker-tegen-juventus.html)
+- **Van Basten heeft tactisch advies voor Bosz: 'Het is geen oplossing, maar 
+noodzaak'**: [Link](https://www.voetbalprimeur.nl/nieuws/1226223/van-basten-adviseert-bosz-in-aanloop-naar-juventus-dat-is-noodzaak.html)
+- **Aanstormende Europese topspelers Tillman, Bakayoko en Saibari schitteren in 
+matchday-video 'schuldenvrij' PSV**: [Link](https://www.psvinside.nl/aanstormende-europese-topspelers-tillman-bakayoko-en-saibari-schitteren-in-matchday-video-schuldenvrij-psv/)
+
+
+### دوري ابطال اوروبا (N/A, Tue, 17 Sep 2024 09:50:00 -0700)
+
+- **تشكيلة ريال مدريد امام شتوتغارت هذا المساء**: [Link](https://hihi2.com/2024/09/17/p2851457.html)
+- **الريال لا يخسر مباراته الافتتاحية امام خصم الماني في دوري الابطال**: [Link](https://hihi2.com/2024/09/17/p2852050.html)
+- **خضيرة يكشف مفتاح صمود شتوتجارت أمام ريال مدريد**: [Link](https://www.kooora.com/?n=1355258)
+
+
 ### bipeur (N/A, Tue, 17 Sep 2024 09:40:00 -0700)
 
 - **🔴 En direct : des centaines de membres du Hezbollah blessés par 
