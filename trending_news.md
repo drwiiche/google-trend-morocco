@@ -1,3 +1,11 @@
+### lewis hamilton (N/A, Mon, 16 Sep 2024 17:00:00 -0700)
+
+- **Norris surprised to finish ahead of Verstappen in Azerbaijan**: [Link](https://www.motorsport.com/f1/news/norris-surprised-to-finish-ahead-of-verstappen-in-azerbaijan/10654650/)
+- **2024 F1 Azerbaijan GP | F1 Baku start time today**: [Link](https://racingnews365.com/start-time-for-2024-f1-azerbaijan-grand-prix-today)
+- **Leclerc hails ‘amazing’ Baku pole run as he hopes Ferrari can ‘play a team 
+game’ to keep rivals behind on race day**: [Link](https://www.formula1.com/en/latest/article/leclerc-hails-amazing-baku-pole-run-as-he-hopes-ferrari-can-play-a-team-game.7fXrvJmVof44xJq2gmpfz4)
+
+
 ### صوفيا لورين (N/A, Mon, 16 Sep 2024 17:40:00 -0700)
 
 - **بعد فيديوهات خليعة .. "صوفيا لورين العرب" في قبضة الأمن (صورة)**: [Link](https://ar.hibapress.com/details-552233.html)
