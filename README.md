@@ -1,3 +1,18 @@
+### pagers (N/A, Tue, 17 Sep 2024 07:00:00 -0700)
+
+- **Hundreds of Hezbollah members wounded in Lebanon when pagers explode, 
+security source says**: [Link](https://www.reuters.com/world/middle-east/dozens-hezbollah-members-wounded-lebanon-when-pagers-exploded-sources-witnesses-2024-09-17/)
+- **Hundreds of Hezbollah fighters said injured in Beirut blasts**: [Link](https://www.timesofisrael.com/liveblog_entry/hundreds-of-hezbollah-fighters-said-injured-in-beirut-blasts/)
+- **Dozens of Hezbollah members reportedly hurt by exploding pagers**: [Link](https://www.bbc.com/news/articles/cd7xnelvpepo)
+
+
+### fantasy champions league (N/A, Tue, 17 Sep 2024 06:30:00 -0700)
+
+- **UCL Fantasy: Bundesliga players to consider**: [Link](https://bulinews.com/ucl-fantasy-bundesliga-players-consider)
+- **UCL Fantasy expert’s Matchday 1 team reveal + differentials**: [Link](https://www.fantasyfootballscout.co.uk/2024/09/17/ucl-fantasy-experts-matchday-1-team-reveal-differentials/)
+- **DraftKings DFS Preview for Tuesday, Sept. 17: New Champions**: [Link](https://www.rotowire.com/soccer/article/draftkings-dfs-preview-for-tuesday-sept-17-new-champions-85146)
+
+
 ### apple ios 18 (N/A, Tue, 17 Sep 2024 05:10:00 -0700)
 
 - **iOS 18: How to Lock and Hide iPhone Apps for Additional Security**: [Link](https://www.cnet.com/tech/services-and-software/ios-18-how-to-lock-and-hide-iphone-apps-for-additional-security/)
