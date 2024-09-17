@@ -1,3 +1,38 @@
+### manchester united (N/A, Tue, 17 Sep 2024 12:50:00 -0700)
+
+- **Man Utd: Antony must earn right to play - Erik ten Hag**: [Link](https://www.bbc.com/sport/football/articles/cd9885pjdlxo)
+- **'We want our 80 million back', 'Has to start ' - Fans react to Ten Hag's 
+assessment of Manchester United star**: [Link](https://reddevilarmada.com/posts/we-want-our-80-million-back-has-to-start-fans-react-to-ten-hag-assessment-manchester-united-star)
+- **Barnsley clash could prove pivotal for one Man United star desperate to 
+impress Erik ten Hag**: [Link](https://www.unitedinfocus.com/opinion/barnsley-clash-could-prove-pivotal-for-one-man-united-star-desperate-to-impress-erik-ten-hag/)
+
+
+### sporting (N/A, Tue, 17 Sep 2024 12:50:00 -0700)
+
+- **Sporting CP - Lille**: [Link](https://www.rtp.pt/noticias/desporto/sporting-cp-lille_e1600490)
+- **AO VIVO: Morita atira ao lado o primeiro remate da partida (13')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-dos-campeoes-ao-vivo-equipas-ainda-em-fase-de-estudo-9/KzwDI7K7/)
+- **Tiago Santos: «Sporting? Não podia haver melhor maneira de começar a 
+Champions»**: [Link](https://cnnportugal.iol.pt/lille/tiago-santos/tiago-santos-sporting-nao-podia-haver-melhor-maneira-de-comecar-a-champions)
+
+
+### madrid (N/A, Tue, 17 Sep 2024 12:50:00 -0700)
+
+- **El Tribunal Superior de Justicia de Madrid anula las Zonas de Bajas 
+Emisiones de Almeida: caen Madrid Central y Plaza Elíptica**: [Link](https://www.elmundo.es/madrid/2024/09/17/66e972d3fdddffc6248b45b4.html)
+- **Ortega Smith pide la dimisión de Almeida y estudiarán la ejecución 
+provisional de la sentencia**: [Link](https://www.abc.es/espana/ortega-smith-pide-dimision-almeida-estudiaran-ejecucion-20240917195718-vi.html)
+- **Maroto lamenta una sentencia sobre las ZBE con la que “sólo gana la 
+ultraderecha y el negacionismo climático”**: [Link](https://www.lavanguardia.com/local/madrid/20240917/9948443/maroto-lamenta-sentencia-sobre-zbe-solo-gana-ultraderecha-negacionismo-climatico-agenciaslv20240917.html)
+
+
+### mbappe (N/A, Tue, 17 Sep 2024 12:50:00 -0700)
+
+- **Vinícius and Mbappé: Real Madrid’s Champions League Duo Honored**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/vin%C3%ADcius-and-mbapp%C3%A9-real-madrid-s-champions-league-duo-honored-2024-09-16)
+- **Champions League: Vinícius Jr receives 2023-24 Best Player Award**: [Link](https://dailypost.ng/2024/09/16/champions-league-vinicius-jr-receives-2023-24-best-player-award/)
+- **Real Madrid Stars Dominate UCL Awards: Bellingham, Vinícius Jr., and Mbappé 
+Shine Bright**: [Link](https://en.africatopsports.com/2024/09/16/real-madrid-stars-dominate-ucl-awards-bellingham-vinicius-jr-and-mbappe-shine-bright/)
+
+
 ### bet 365 (N/A, Tue, 17 Sep 2024 12:40:00 -0700)
 
 - **Updated Bet365 Bonus Code “DIMERS”: Secure $1,200 Bonus and exclusive UEFA 
