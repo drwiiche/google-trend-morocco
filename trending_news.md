@@ -1,3 +1,11 @@
+### صوفيا لورين (N/A, Mon, 16 Sep 2024 17:40:00 -0700)
+
+- **بعد فيديوهات خليعة .. "صوفيا لورين العرب" في قبضة الأمن (صورة)**: [Link](https://ar.hibapress.com/details-552233.html)
+- **بعد فيديو مخل.. "صوفيا لورين" المصرية في قبضة الأمن**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/09/16/%D8%A8%D8%B9%D8%AF-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%AE%D9%84-%D8%B5%D9%88%D9%81%D9%8A%D8%A7-%D9%84%D9%88%D8%B1%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D9%82%D8%A8%D8%B6%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%86)
+- **«كان عندي نمرة».. راقصة شهيرة تكشف تفاصيل القبض عليها في التحريض على الفسق 
+(خاص)**: [Link](https://www.almasryalyoum.com/news/details/3261216)
+
+
 ### maroc migrants ceuta (N/A, Mon, 16 Sep 2024 17:00:00 -0700)
 
 - **n°991. Assaut « 15/9 » sur Ceuta, révélateur d’une jeunesse déboussolée et sans horizon**: [Link](https://ledesk.ma/enclair/assaut-15-9-sur-ceuta-revelateur-dune-jeunesse-deboussolee-et-sans-horizon/)
