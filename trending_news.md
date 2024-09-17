@@ -1,3 +1,10 @@
+### man united (N/A, Tue, 17 Sep 2024 12:50:00 -0700)
+
+- **Man Utd: Antony must earn right to play - Erik ten Hag**: [Link](https://www.bbc.com/sport/football/articles/cd9885pjdlxo)
+- **Antony on the spot for United**: [Link](https://www.manutd.com/en/news/detail/match-feature-antony-becomes-fifth-penalty-scorer-under-ten-hag)
+- **Antony thought he was a baller in Eredivisie – but Premier League showed him his level...**: [Link](https://talksport.com/football/2062463/antony-baller-eredivisie-premier-league-level-man-united/)
+
+
 ### bellingham (N/A, Tue, 17 Sep 2024 12:40:00 -0700)
 
 - **Real Madrid will implement special plan for key talisman to reduce injury 
