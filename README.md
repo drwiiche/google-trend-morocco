@@ -1,3 +1,21 @@
+### ac milan – liverpool (N/A, Tue, 17 Sep 2024 11:00:00 -0700)
+
+- **Slot doubles down on selection policy ahead of Champions League opener**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/slot-doubles-down-on-selection-policy-ahead-of-champions-league-opener-2024-09-16)
+- **‘I love Italy’ – Liverpool goalkeeper Alisson on Milan, Maignan, Chiesa and 
+UCL plan**: [Link](https://football-italia.net/liverpool-alisson-on-milan-chiesa-maignan-ucl/)
+- **Chiesa will play for Liverpool ‘if needed’ against Milan, but not as a 
+starter**: [Link](https://sports.yahoo.com/chiesa-play-liverpool-needed-against-193800386.html)
+
+
+### yildiz (N/A, Tue, 17 Sep 2024 10:20:00 -0700)
+
+- **Video: Yildiz emulates Juventus hero Del Piero, McKennie doubles lead**: [Link](https://sports.yahoo.com/video-yildiz-emulates-juventus-hero-173600054.html)
+- **Champions League first scorers: Kenan Yıldız makes history with inaugural 
+league phase goal**: [Link](https://www.uefa.com/uefachampionsleague/news/0219-0e8c384ee79a-e94c0f9968ee-1000--champions-league-first-scorers-kenan-yildiz-makes-history-wi/)
+- **VIDEO: USMNT's Weston McKennie scores close-range strike for Juventus in 
+Champions League opener against PSV**: [Link](https://www.goal.com/en-us/lists/weston-mckennie-scores-close-juventus-champions-league-psv/blt472a9802a9dea327)
+
+
 ### galatasaray vs gaziantep (N/A, Tue, 17 Sep 2024 10:40:00 -0700)
 
 - **Preview: Galatasaray vs. Gaziantep - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/preview/preview-galatasaray-vs-gaziantep-prediction-team-news-lineups_552955.html)
