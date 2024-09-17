@@ -1,3 +1,11 @@
+### liverpool fc (N/A, Tue, 17 Sep 2024 13:20:00 -0700)
+
+- **Arne Slot reveals Cody Gakpo was not meant to get first start vs. AC Milan**: [Link](https://www.thisisanfield.com/2024/09/arne-slot-reveals-cody-gakpo-was-not-meant-to-get-first-start-vs-ac-milan/)
+- **Champions League LIVE: AC Milan vs Liverpool score & updates plus three 
+more fixtures as Aston Villa win**: [Link](https://www.bbc.com/sport/football/live/cpw8e5lv9knt)
+- **UEFA Champions League 2024-25: Schedule, title favourites, players to watch**: [Link](https://www.aljazeera.com/sports/2024/9/16/uefa-champions-league-2024-25-matches-teams-format-key-dates-draw-final-favourites-record)
+
+
 ### نتائج مباريات اليوم (N/A, Tue, 17 Sep 2024 14:40:00 -0700)
 
 - **كيسي المُنقذ.. سلاح يايسله المميز في المواقف المُعقدة**: [Link](https://www.kooora.com/?n=1355281)
