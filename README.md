@@ -1,3 +1,11 @@
+### bellingham (N/A, Tue, 17 Sep 2024 12:40:00 -0700)
+
+- **Real Madrid will implement special plan for key talisman to reduce injury 
+risk**: [Link](https://madriduniversal.com/real-madrid-will-implement-special-plan-for-key-talisman-to-reduce-injury-risk/)
+- **Real Madrid devising special Jude Bellingham plan due to persistent issue**: [Link](https://www.football-espana.net/2024/09/13/real-madrid-devising-special-jude-bellingham-plan-due-to-persistent-issue)
+- **Vinícius and Mbappé: Real Madrid’s Champions League Duo Honored**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/vin%C3%ADcius-and-mbapp%C3%A9-real-madrid-s-champions-league-duo-honored-2024-09-16)
+
+
 ### liverpool fc (N/A, Tue, 17 Sep 2024 13:20:00 -0700)
 
 - **Arne Slot reveals Cody Gakpo was not meant to get first start vs. AC Milan**: [Link](https://www.thisisanfield.com/2024/09/arne-slot-reveals-cody-gakpo-was-not-meant-to-get-first-start-vs-ac-milan/)
