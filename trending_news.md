@@ -1,3 +1,11 @@
+### league cup (N/A, Tue, 17 Sep 2024 13:30:00 -0700)
+
+- **Stevens and Rose return for Carabao Cup contest**: [Link](https://www.stokecityfc.com/news/2024/september/17/stevens-and-rose-return-for-carabao-cup-contest/)
+- **Manchester United vs Barnsley LIVE: League Cup team news, line-ups and more**: [Link](https://sports.yahoo.com/manchester-united-vs-barnsley-live-170009118.html)
+- **Charlie Adam reveals biggest challenge as he prepares to go head-to-head 
+with old pal Ryan Shawcross**: [Link](https://www.stokesentinel.co.uk/sport/football/football-news/charlie-adam-reveals-biggest-challenge-9560662)
+
+
 ### دنيا بطمة (N/A, Tue, 17 Sep 2024 13:20:00 -0700)
 
 - **ظهور جديد لابنتَي دنيا بطمة بعدما كبُرتا**: [Link](https://www.lahamag.com/article/214967-%D8%B8%D9%87%D9%88%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D8%A7%D8%A8%D9%86%D8%AA%D9%8A-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A8%D8%B7%D9%85%D8%A9-%D8%A8%D8%B9%D8%AF%D9%85%D8%A7-%D9%83%D8%A8%D8%B1%D8%AA%D8%A7)
