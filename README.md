@@ -1,3 +1,23 @@
+### modric (N/A, Tue, 17 Sep 2024 14:20:00 -0700)
+
+- **Man Utd transfers: Real Madrid legend urges side to beat Red Devils to 
+£25m-rated rising star**: [Link](https://www.teamtalk.com/news/real-madrid-legend-urges-los-blancos-beat-man-utd-25m-rated-rising-star)
+- **Manchester United linked with ‘next Luka Modric’, with view to move next 
+summer: report**: [Link](https://www.fourfourtwo.com/news/manchester-united-linked-with-next-luka-modric-report)
+- **Real Madrid join Manchester United in race for ‘next Luka Modric’ Martin 
+Baturina**: [Link](https://thepeoplesperson.com/2024/09/16/real-madrid-join-manchester-united-in-race-for-next-luka-modric-martin-baturina-285524/)
+
+
+### bayern vs (N/A, Tue, 17 Sep 2024 13:50:00 -0700)
+
+- **Arsenal plot January swoop for LaLiga star with Real Madrid clause as 
+Arteta eyes Zinchenko upgrade**: [Link](https://www.teamtalk.com/arsenal/arsenal-plot-january-swoop-for-laliga-star-with-real-madrid-clause-as-arteta-eyes-zinchenko-upgrade)
+- **Arsenal one of four teams to show interest in left-back this summer – and 
+why a move didn’t happen**: [Link](https://www.football-espana.net/2024/09/16/arsenal-one-of-four-teams-to-show-interest-in-left-back-this-summer-and-why-a-move-didnt-happen)
+- **Arsenal, Bayern Munich and Bayer are interested in one of Girona's leaders 
+Gutierrez**: [Link](https://dailysports.net/news/arsenal-bayern-munich-and-bayer-are-interested-in-one-of-gironas-leaders-gutierrez/)
+
+
 ### preston north end – fulham (N/A, Tue, 17 Sep 2024 14:00:00 -0700)
 
 - **Preston North End vs Fulham LIVE updates from Carabao Cup clash**: [Link](https://www.lep.co.uk/sport/football/preston-north-end/preston-vs-fulham-live-stream-score-teams-team-news-lineups-north-end-carabao-cup-efl-pne-4786244)
