@@ -1,3 +1,60 @@
+### liban (N/A, Tue, 17 Sep 2024 09:20:00 -0700)
+
+- **The Israeli Ministerial Council to Decide Sunday on Returning Northern 
+Evacuees, Effectively Making Them War Targets / Hochstein Prepares for a 
+New Round of Mediation Between Beirut and Tel Aviv Under the Banner of 
+De-escalation and Reducing Threat**: [Link](https://www.al-binaa.com/archives/413459)
+- **Israel adds securing northern front against Hizbollah to war aims**: [Link](https://www.ft.com/content/e337939b-47ce-4dde-93db-93f3e33a600a)
+- **PM to Hochstein: Can’t return evacuees without fundamental change in 
+security in north**: [Link](https://www.timesofisrael.com/liveblog_entry/pm-to-hochstein-cant-return-evacuees-without-fundamental-change-in-security-in-north/)
+
+
+### majorque – real sociedad (N/A, Tue, 17 Sep 2024 09:10:00 -0700)
+
+
+
+
+### galatasaray – gaziantep (N/A, Tue, 17 Sep 2024 09:10:00 -0700)
+
+- **Galatasaray - Gaziantep FK maçı ne zaman, saat kaçta ve hangi kanalda? 
+(Süper Lig 3. hafta erteleme maçı)**: [Link](https://www.ntvspor.net/futbol/galatasaray-gaziantep-fk-maci-ne-zaman-saat-kacta-ve-hangi-kanalda-super-lig-3-hafta-erteleme-maci-66d84a07f3d057042f4590b7)
+- **Süper Lig’de erteleme maçlarının hakemleri belli oldu**: [Link](https://www.linehaber.com.tr/super-ligde-erteleme-maclarinin-hakemleri-belli-oldu/)
+- **Galatasaray maçı CANLI YAYIN | Galatasaray Gaziantep FK şifresiz izle! GS 
+Gaziantep maçı canlı izleme linki ve canlı anlatım - Galatasaray (GS) 
+Haberleri - Spor**: [Link](https://www.fanatik.com.tr/galatasaray/galatasaray-maci-canli-yayin-galatasaray-gaziantep-fk-sifresiz-izle-gs-gaziantep-maci-canli-izleme-linki-ve-canli-anlatim-2558275)
+
+
+### مايوركا ضد ريال سوسيداد (N/A, Tue, 17 Sep 2024 09:10:00 -0700)
+
+- **مدرب سوسيداد يعول على أكرد أمام مايوركا اليوم**: [Link](https://www.almountakhab.com/node/16204413)
+- **في أول مباراة له …مدرب ريال سوسيداد يشيد بالدولي المغربي “نايف أكرد “**: [Link](https://ar.hibapress.com/details-551681.html)
+- **نايف أكرد: اللعب بـ"الليغا" حلم الصغر**: [Link](https://www.hespress.com/%D9%86%D8%A7%D9%8A%D9%81-%D8%A3%D9%83%D8%B1%D8%AF-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D8%A8%D9%80%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%AD%D9%84%D9%85-%D8%A7%D9%84%D8%B5%D8%BA%D8%B1-1430553.html)
+
+
+### plus belle la vie encore plus belle (N/A, Tue, 17 Sep 2024 09:10:00 -0700)
+
+- **Plus belle la vie en avance : ce qui vous attend dans l'épisode 172 du 
+mercredi 18 septembre 2024 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000103570.html)
+- **Plus belle la vie spoiler : Jennifer craque, Samuel sur leur piste (VIDÉO 
+épisode du 18 septembre)**: [Link](https://www.plusbellelavie.org/2024/09/15/plus-belle-la-vie-spoiler-jennifer-craque-samuel-sur-leur-piste-video-episode-du-18-septembre/)
+- **Plus belle la vie : Luna va-t-elle finir en prison ? Anne Décis lâche une 
+bombe qui nous inquiète !**: [Link](https://www.programme-tv.net/news/series-tv/360385-plus-belle-la-vie-luna-va-t-elle-finir-en-prison-anne-decis-lache-une-bombe-qui-nous-inquiete/)
+
+
+### uefa champions league (N/A, Tue, 17 Sep 2024 09:10:00 -0700)
+
+- **Belgrade and Zagreb Look Forward to Feast of Champions League Football**: [Link](https://balkaninsight.com/2024/09/17/belgrade-and-zagreb-look-forward-to-feast-of-champions-league-football/)
+- **UEFA Champions League 2024-25: Schedule, title favourites, players to watch**: [Link](https://www.aljazeera.com/sports/2024/9/16/uefa-champions-league-2024-25-matches-teams-format-key-dates-draw-final-favourites-record)
+- **Best AC Milan vs Liverpool Free Bets and Betting Offers**: [Link](https://www.101greatgoals.com/free-bets/best-ac-milan-vs-liverpool-free-bets-and-betting-offers/)
+
+
+### juventus (N/A, Tue, 17 Sep 2024 08:40:00 -0700)
+
+- **Sarà una Juve d'assalto: ecco i tre duelli chiave col Psv**: [Link](https://www.gazzetta.it/Calcio/Champions-League/storie/17-09-2024/juve-assalto-champions-i-tre-duelli-chiave-col-psv/i-punti-caldi.shtml)
+- **Champions League, quando e dove vedere Juventus-PSV Eindhoven**: [Link](https://www.skuola.net/news/spettacolo/champions-league-quando-dove-vedere-juventus-psv-eindhoven.html)
+- **Probabile formazione, qualche cambio rispetto ad Empoli**: [Link](https://www.tuttojuve.com/altre-notizie/probabile-formazione-qualche-cambio-rispetto-ad-empoli-702507)
+
+
 ### juventus – psv eindhoven (N/A, Tue, 17 Sep 2024 08:50:00 -0700)
 
 - **Squad List | Juventus-PSV**: [Link](https://www.juventus.com/en/news/articles/squad-list-juventus-psv)
