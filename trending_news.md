@@ -1,3 +1,10 @@
+### teams (N/A, Tue, 17 Sep 2024 00:10:00 -0700)
+
+- **Which 0-2 teams still have a shot at the playoffs? Barnwell ranks all nine from first to worst**: [Link](https://www.espn.com/nfl/insider/story/_/id/41277098/ranking-winless-nfl-teams-2024-season-teams-eliminated-playoffs-super-bowl)
+- **The First Read: Time to exercise panic or patience for winless NFL teams heading into Week 3?**: [Link](https://www.nfl.com/news/the-first-read-time-to-exercise-panic-or-patience-for-winless-nfl-teams-heading-into-week-3)
+- **Which 0-2 NFL teams have the best chance to rebound and make the playoffs?**: [Link](https://sports.yahoo.com/which-0-2-nfl-teams-have-the-best-chance-to-rebound-and-make-the-playoffs-180921305.html)
+
+
 ### عطلة عيد المولد النبوي 2024 (N/A, Mon, 16 Sep 2024 22:40:00 -0700)
 
 - **هل يوم الأحد عطلة رسمية في الأردن؟ مجلس الوزراء يُجيب**: [Link](https://almashhad.com/article/459217420284850-entertainment/190202053760861-%D9%87%D9%84-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%B9%D8%B7%D9%84%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D9%8A%D8%AC%D9%8A%D8%A8/)
