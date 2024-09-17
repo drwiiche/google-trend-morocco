@@ -1,3 +1,28 @@
+### brentford – leyton orient (N/A, Tue, 17 Sep 2024 12:00:00 -0700)
+
+- **Brentford v Leyton Orient matchday guide**: [Link](https://www.brentfordfc.com/en/news/article/supporter-information-brentford-v-leyton-orient-17-09-2024)
+- **League Cup: Manchester United v Barnsley & six other games from the third 
+round - live text**: [Link](https://www.bbc.com/sport/football/live/c785ylg62j2t)
+- **Carabao Cup draw: Fixtures, match schedule and results for third round of 
+EFL Cup**: [Link](https://www.sportingnews.com/au/football/news/carabao-cup-draw-fixtures-match-schedule-results-efl-cup/383c9c9af127ceedce174456)
+
+
+### real madrid vs stuttgart (N/A, Tue, 17 Sep 2024 11:50:00 -0700)
+
+- **Real Madrid - Stuttgart, en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/r-madrid-vfb-stuttgart/2024/09/17/01_0103_20240917_186_169-directo.html)
+- **Vuelve Bellingham... ¡y Carvajal central!**: [Link](https://as.com/futbol/champions/vuelve-bellingham-y-carvajal-central-n/)
+- **El equipo se está entrenando**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-16-09-2024)
+
+
+### qpr – crystal palace (N/A, Tue, 17 Sep 2024 11:50:00 -0700)
+
+- **Carabao Cup draw: Fixtures, match schedule and results for third round of 
+EFL Cup**: [Link](https://www.sportingnews.com/au/football/news/carabao-cup-draw-fixtures-match-schedule-results-efl-cup/383c9c9af127ceedce174456)
+- **QPR vs Crystal Palace: How to watch the Carabao Cup third round, live 
+stream, team news and more**: [Link](https://www.wearepalace.uk/match-coverage/qpr-vs-crystal-palace-how-to-watch-the-carabao-cup-third-round-live-stream-team-news-and-more/)
+- **Ebere Eze sends QPR message ahead of EFL Cup tie return with Crystal Palace**: [Link](https://footballleagueworld.co.uk/ebere-eze-sends-qpr-message-ahead-of-efl-cup-tie-return-with-crystal-palace/)
+
+
 ### البايرن ضد دينامو زغرب (N/A, Tue, 17 Sep 2024 11:40:00 -0700)
 
 - **كين وموسيالا على رأس تشكيل بايرن أمام دينامو زغرب**: [Link](https://www.kooora.com/?n=1355380)
