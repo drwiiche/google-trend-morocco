@@ -1,3 +1,12 @@
+### ucl (N/A, Tue, 17 Sep 2024 08:40:00 -0700)
+
+- **Why are there Champions League games on Thursday and will it be every week?**: [Link](https://www.mirror.co.uk/sport/football/news/champions-league-why-thursday-arsenal-33678747)
+- **Champions League: Aston Villa, Arsenal, Liverpool, Real Madrid, Man City, 
+Celtic, Barcelona, Bayern Munich - who will win?**: [Link](https://www.bbc.com/sport/football/articles/c8699yqxzxlo)
+- **The Super League has arrived (sort of)! New Champions League format is 
+already p*ssing off players and leaving fans confused**: [Link](https://www.goal.com/en/lists/super-league-arrived-new-champions-league-format-upsetting-players-fans-confused/bltb3c58b82923de287)
+
+
 ### pager (N/A, Tue, 17 Sep 2024 07:10:00 -0700)
 
 - **Pagers explode across Lebanon in attack targeting Hezbollah members: Live 
