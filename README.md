@@ -1,3 +1,19 @@
+### bet 365 (N/A, Tue, 17 Sep 2024 12:40:00 -0700)
+
+- **Updated Bet365 Bonus Code “DIMERS”: Secure $1,200 Bonus and exclusive UEFA 
+Champions League parlay boosts for Tuesday’s matches**: [Link](https://www.syracuse.com/betting/2024/09/updated-bet365-bonus-code-dimers-secure-1200-bonus-and-exclusive-uefa-champions-league-parlay-boosts-for-tuesdays-matches.html)
+- **bet365 Bonus Code SBKWIRE Scores $1000 First-Bet Offer for MLB Odds, NFL 
+Week 3 betting**: [Link](https://sportsbookwire.usatoday.com/2024/09/17/bet365-bonus-code-sbkwire-scores-1000-first-bet-offer-for-mlb-odds-nfl-week-3-betting/)
+- **Bet365 Bonus Code WEEK365: Choose Between 2 Eagles-Falcons MNF Bonuses**: [Link](https://www.newsweek.com/bet365-bonus-code-week365-choose-between-2-eagles-falcons-mnf-bonuses-september-16-1954806)
+
+
+### ldc (N/A, Tue, 17 Sep 2024 12:20:00 -0700)
+
+- **Juventus Turin 3-1 PSV Eindhoven, Ligue des champions : résumé du match (17/09/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/juventus-turin-psv-eindhoven-live/667961)
+- **Vidéo : le bijou de Kenan Yildiz pour lancer la saison de Ligue des Champions**: [Link](https://www.footmercato.net/a3753686887425917776-video-le-bijou-de-kenan-yildiz-pour-lancer-la-saison-de-ligue-des-champions)
+- **Ismael Saibari contre la Juventus**: [Link](https://sport.le360.ma/internal-gallery/ismael-saibari-contre-la-juventus_MSJRSPKAD5DGNFK4CFI66NNLBA/)
+
+
 ### bayern munich (N/A, Tue, 17 Sep 2024 12:10:00 -0700)
 
 - **Bayern Munich vs Dinamo Zagreb live stream info: How to watch Champions 
