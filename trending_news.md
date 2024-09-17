@@ -1,3 +1,27 @@
+### مان يونايتد ضد بارنسلي (N/A, Tue, 17 Sep 2024 11:30:00 -0700)
+
+- **تين هاج عن لقب البريميرليج: الكؤوس مهمة أيضا**: [Link](https://www.kooora.com/?n=1355209)
+- **تين هاغ يؤكد جاهزية مزراوي لمباراة مانشستر يونايتد ضد بارنسلي**: [Link](https://m.elbotola.com/article/2024-09-16-18-10-605.html)
+- **تين هاج يكشف تطورات عملية تعافي لوك شاو**: [Link](https://hihi2.com/2024/09/16/p2850929.html)
+
+
+### real madrid club de fútbol (N/A, Tue, 17 Sep 2024 11:30:00 -0700)
+
+- **Real Madrid - Stuttgart, en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/r-madrid-vfb-stuttgart/2024/09/17/01_0103_20240917_186_169-directo.html)
+- **Vuelve Bellingham... ¡y Carvajal central!**: [Link](https://as.com/futbol/champions/vuelve-bellingham-y-carvajal-central-n/)
+- **El equipo se está entrenando**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-16-09-2024)
+
+
+### fnideq (N/A, Tue, 17 Sep 2024 11:10:00 -0700)
+
+- **n°991. Assaut « 15/9 » sur Ceuta, révélateur d’une jeunesse déboussolée et 
+sans horizon**: [Link](https://ledesk.ma/enclair/assaut-15-9-sur-ceuta-revelateur-dune-jeunesse-deboussolee-et-sans-horizon/)
+- **Images de migrants amassés nus et à terre devant des véhicules des Forces 
+Auxiliaires: le vrai du faux**: [Link](https://fr.le360.ma/societe/images-de-migrants-amasses-nus-et-a-terre-devant-des-vehicules-des-forces-auxiliaires-le-vrai-du_RF5TS66QQ5B4ZLUBXUC6CDZBG4/)
+- **Tétouan : Enquête sur la diffusion de photos de personnes en tenues de 
+natation assises par terre**: [Link](https://lematin.ma/societe/enquete-sur-des-photos-de-personnes-en-tenues-de-natation-assises-par-terre/243110)
+
+
 ### الريال ضد شتوتغارت (N/A, Tue, 17 Sep 2024 11:10:00 -0700)
 
 - **عودة بيلينجهام لتشكيل ريال مدريد أمام شتوتجارت**: [Link](https://www.kooora.com/?n=1355371)
