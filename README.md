@@ -1,3 +1,10 @@
+### maroc migrants ceuta (N/A, Mon, 16 Sep 2024 17:00:00 -0700)
+
+- **n°991. Assaut « 15/9 » sur Ceuta, révélateur d’une jeunesse déboussolée et sans horizon**: [Link](https://ledesk.ma/enclair/assaut-15-9-sur-ceuta-revelateur-dune-jeunesse-deboussolee-et-sans-horizon/)
+- **Fnideq : Affrontements et blessés graves aux portes de Sebta**: [Link](https://fr.hespress.com/386228-fnideq-affrontements-et-blesses-graves-aux-portes-de-sebta.html)
+- **La police marocaine empêche des centaines de migrants d'entrer à Ceuta**: [Link](https://fr.euronews.com/my-europe/2024/09/16/la-police-marocaine-empeche-des-centaines-de-migrants-dentrer-dans-lenclave-espagnole-de-c)
+
+
 ### ios 18 iphone (N/A, Mon, 16 Sep 2024 16:20:00 -0700)
 
 - **iOS 18 Is Here: A Worthy iPhone Upgrade, No AI Necessary**: [Link](https://www.wsj.com/tech/personal-tech/apple-ios18-update-features-iphone-961dd2e8)
