@@ -1,3 +1,46 @@
+### liverpool (N/A, Tue, 17 Sep 2024 12:20:00 -0700)
+
+- **The real reason behind the Champions League’s new format**: [Link](https://www.independent.co.uk/sport/football/champions-league-uefa-liverpool-real-madrid-b2611449.html)
+- **Liverpool goalkeeper Alisson says 'Nobody asks players about adding more 
+games'**: [Link](https://www.bbc.com/sport/football/articles/c8699nq8e5go)
+- **'Our opinion does not matter': Alisson wants player input into football 
+calendar – video**: [Link](https://www.theguardian.com/football/video/2024/sep/17/our-opinion-does-not-matter-alisson-wants-player-input-into-football-calendar-video)
+
+
+### everton – southampton (N/A, Tue, 17 Sep 2024 12:20:00 -0700)
+
+- **Match Pack: Everton vs Saints**: [Link](https://www.southamptonfc.com/en/news/article/match-pack-everton-vs-saints-carabao-cup)
+- **EFL Cup third round predictions, betting odds and tips: Troubled Toffees 
+can bounce back**: [Link](https://www.racingpost.com/sport/football-tips/efl-cup/efl-cup-third-round-predictions-betting-odds-and-tips-aG06F4H5NJ7a/)
+- **Sean Dyche admits Everton decisions to be influenced by 'vital' Leicester 
+City game**: [Link](https://uk.news.yahoo.com/sean-dyche-admits-everton-decisions-111109076.html)
+
+
+### yalla kora (N/A, Tue, 17 Sep 2024 12:20:00 -0700)
+
+- **ملعب مملكة أرينا بالرياض سيحتضن نهائي كأس السوبر الإفريقي 2024 برعاية توتال 
+إنيرجيز**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%84%D8%B9%D8%A8-%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%A3%D8%B1%D9%8A%D9%86%D8%A7-%D8%A8%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6-%D8%B3%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-2024-%D8%A8%D8%B1%D8%B9%D8%A7%D9%8A%D8%A9-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/)
+- **تعيين المغربي زكرياء برينسي كمساعد لتقنية الفيديو في كأس السوبر الأفريقي 
+بين الأهلي والزمالك**: [Link](https://m.elbotola.com/article/2024-09-17-10-22-36.html)
+- **تقارير: طاقم مغربي لإدارة السوبر الأفريقي بين الأهلي والزمالك**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=17092024&id=c40bd157-8549-4237-9c9f-18027301cd27)
+
+
+### live tv (N/A, Tue, 17 Sep 2024 12:20:00 -0700)
+
+- **New York Liberty at Washington Mystics odds, picks and predictions**: [Link](https://sportsbookwire.usatoday.com/2024/09/17/new-york-liberty-at-washington-mystics-odds-picks-and-predictions-2/)
+- **New York Liberty-Washington Mystics free livestream: How to watch WNBA 
+game, TV, time**: [Link](https://www.al.com/sports/2024/09/new-york-liberty-washington-mystics-free-livestream-how-to-watch-wnba-game-tv-time.html)
+- **Liberty vs Mystics Prediction, Picks, Odds & How to Watch for Tuesday, 
+September 17**: [Link](https://www.actionnetwork.com/wnba/new-york-liberty-vs-washington-mystics-prediction-picks-odds-for-tuesday-september-17)
+
+
+### matchs de ligue des champions de l'uefa (N/A, Tue, 17 Sep 2024 12:00:00 -0700)
+
+- **Real Madrid - Stuttgart en direct: Ligue des champions - Football**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/live-real-madrid-stuttgart_mtc1525308/live-commentary.shtml)
+- **Real Madrid-Stuttgart : les compositions officielles**: [Link](https://www.footmercato.net/a4296947156635481187-real-madrid-stuttgart-les-compositions-officielles)
+- **Ancelotti : "On a un meilleur effectif que l'année dernière"**: [Link](https://real-france.fr/ancelotti-on-a-un-meilleur-effectif-que-lannee-derniere/)
+
+
 ### real madrid (N/A, Tue, 17 Sep 2024 12:10:00 -0700)
 
 - **Real Madrid - Stuttgart, en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/r-madrid-vfb-stuttgart/2024/09/17/01_0103_20240917_186_169-directo.html)
