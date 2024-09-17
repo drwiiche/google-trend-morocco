@@ -1,3 +1,10 @@
+### ac milan (N/A, Tue, 17 Sep 2024 12:00:00 -0700)
+
+- **What’s new in the UEFA Champions League 2024-25 season?**: [Link](https://www.aljazeera.com/sports/2024/9/16/uefa-champions-league-2024-25-matches-teams-format-key-dates-draw-final-favourites-record)
+- **Milan vs Liverpool: Federico Chiesa won't start UEFA Champions League match**: [Link](https://www.bbc.com/sport/football/live/c2kdj54je70t)
+- **Confirmed Liverpool line-up v AC Milan**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-ac-milan-1)
+
+
 ### liverpool (N/A, Tue, 17 Sep 2024 12:20:00 -0700)
 
 - **The real reason behind the Champions League’s new format**: [Link](https://www.independent.co.uk/sport/football/champions-league-uefa-liverpool-real-madrid-b2611449.html)
