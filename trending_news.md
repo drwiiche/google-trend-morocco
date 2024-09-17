@@ -1,3 +1,10 @@
+### mallorca vs real sociedad (N/A, Tue, 17 Sep 2024 09:30:00 -0700)
+
+- **Mallorca - Real Sociedad, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/mallorca-real-sociedad-en-directo-laliga-ea-sports-hoy-en-vivo-n/)
+- **Mallorca - Real Sociedad, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/mallorca-real-sociedad/2024/09/17/01_0101_20240917_181_188-directo.html)
+- **«Seguramente entren piernas frescas en el once de Imanol»**: [Link](https://www.diariovasco.com/real-sociedad/ultima-hora-mallorca-once-imanol-alguacil-20240917131150-nt.html)
+
+
 ### liban (N/A, Tue, 17 Sep 2024 09:20:00 -0700)
 
 - **The Israeli Ministerial Council to Decide Sunday on Returning Northern 
