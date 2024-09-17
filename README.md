@@ -1,3 +1,12 @@
+### aston villa (N/A, Tue, 17 Sep 2024 10:10:00 -0700)
+
+- **Villa unchanged for Young Boys test**: [Link](https://www.avfc.co.uk/news/2024/september/17/bsc-young-boys-v-aston-villa-team-news/)
+- **Bailey? Duran? Who has been selected in Villa's first-ever Champions League 
+XI**: [Link](https://www.sportsmole.co.uk/football/aston-villa/champions-league/news/bailey-duran-who-has-been-selected-in-villas-first-ever-champions-league-xi_553153.html)
+- **Aston Villa midfielder Youri Tielemans says club want to 'make their mark' 
+in this season's Champions League a**: [Link](https://www.dailymail.co.uk/sport/football/article-13857365/Aston-Villa-midfielder-Youri-Tielemans-says-club-want-make-mark-seasons-Champions-League-1982-winners-gear-appearance-41-years.html)
+
+
 ### يوفنتوس ضد بي اس في (N/A, Tue, 17 Sep 2024 09:50:00 -0700)
 
 - **ثنائي يوفنتوس خارج قائمة مباراة آيندهوفن**: [Link](https://www.kooora.com/?n=1355290)
