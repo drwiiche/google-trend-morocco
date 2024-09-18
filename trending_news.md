@@ -1,3 +1,20 @@
+### heure maroc (N/A, Wed, 18 Sep 2024 00:00:00 -0700)
+
+- **Mondial de Futsal : Abdelkrim Anbia, une valeur sûre pour Hicham Dguig**: [Link](https://fr.hespress.com/386394-mondial-de-futsal-abdelkrim-anbia-une-valeur-sure-pour-hicham-dguig.html)
+- **Futsal : les Lions de l’Atlas démarrent leur Coupe du monde par une victoire**: [Link](https://mobile.telquel.ma/instant-t/2024/09/17/futsal-les-lions-de-latlas-demarrent-leur-coupe-du-monde-par-une-victoire_1893809/)
+- **Coupe du Monde de futsal de la FIFA : le gardien Abdelkrim Anbia désigné 
+l’Homme du match Maroc-Tadjikistan (FIFA)**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%83%D8%B1%D9%8A%D9%85-%D8%A3%D9%86%D8%A8%D9%8A%D8%A7-%D8%A7%D8%AD%D8%B3%D9%86-%D9%84/)
+
+
+### الجزيرة (N/A, Tue, 17 Sep 2024 22:40:00 -0700)
+
+- **الحرب على غزة.. إسرائيل تستنفر وحزب الله يطلق مسيرات باتجاه نهاريا وطبريا**: [Link](https://www.aljazeera.net/news/liveblog/2024/9/18/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%AA%D8%A3%D9%87%D8%A8)
+- **حزب الله يؤكد أن اندلاع "حرب شاملة" سيؤدي إلى نزوح مئات الآلاف من سكان شمال 
+إسرائيل**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20240914-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%86-%D8%A7%D9%86%D8%AF%D9%84%D8%A7%D8%B9-%D8%AD%D8%B1%D8%A8-%D8%B4%D8%A7%D9%85%D9%84%D8%A9-%D8%B3%D9%8A%D8%A4%D8%AF%D9%8A-%D8%A5%D9%84%D9%89-%D9%86%D8%B2%D9%88%D8%AD-%D9%85%D8%A6%D8%A7%D8%AA-%D8%A7%D9%84%D8%A2%D9%84%D8%A7%D9%81-%D9%85%D9%86-%D8%B3%D9%83%D8%A7%D9%86-%D8%B4%D9%85%D8%A7%D9%84-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **نتنياهو يريد توسيع العمليات في الشمال وحزب الله يحذر من حرب ستجبر آلاف 
+الإسرائيليين على النزوح**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20240914-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D9%86%D9%88%D9%8A-%D8%AA%D9%88%D8%B3%D9%8A%D8%B9-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84-%D9%88%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%AD%D8%B1%D8%A8-%D8%B4%D8%A7%D9%85%D9%84%D8%A9-%D8%AA%D8%AC%D8%A8%D8%B1-%D8%A2%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D8%B2%D9%88%D8%AD)
+
+
 ### ميلان (N/A, Tue, 17 Sep 2024 14:00:00 -0700)
 
 - **هدف يفصل هالاند عن التفوق على نسخة "رونالدو الريال"**: [Link](https://www.kooora.com/?n=1355379)
