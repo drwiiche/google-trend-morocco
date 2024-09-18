@@ -1,3 +1,11 @@
+### كاس العالم للصالات (N/A, Wed, 18 Sep 2024 06:10:00 -0700)
+
+- **صدمة جديدة لمنتخب الصالات المغربي**: [Link](https://www.kooora.com/?n=1355244)
+- **كواليس آخر حصة تدريبية لأسود الفوتصال قبل مواجهة بنما..مسرار: سنلعب مباراة 
+نهائية**: [Link](https://www.akhbarona.com/videos/392345.html)
+- **نهاية مشوار الإدريسي في "المونديال"**: [Link](https://www.hespress.com/%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%85%D8%B4%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A5%D8%AF%D8%B1%D9%8A%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-1432976.html)
+
+
 ### wissam ben yedder (N/A, Wed, 18 Sep 2024 06:00:00 -0700)
 
 - **Wissam Ben Yedder avoids detainment ahead of sexual assault while 
