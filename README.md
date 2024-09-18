@@ -1,3 +1,38 @@
+### sparta prague (N/A, Wed, 18 Sep 2024 10:20:00 -0700)
+
+- **Preview: Sparta Prague vs. Red Bull Salzburg - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/sparta-prague/champions-league/preview/preview-sparta-prague-vs-salzburg-prediction-team-news-lineups_553088.html)
+- **Sparta Prague vs Salzburg: Preview, predictions and lineup**: [Link](https://www.90min.com/posts/sparta-prague-vs-salzburg-preview-predictions-and-lineup-18-9-24)
+- **Watch AC Sparta Praha vs. RB Salzburg: UEFA Champions League free live 
+stream**: [Link](https://www.masslive.com/tv/2024/09/watch-ac-sparta-praha-vs-rb-salzburg-uefa-champions-league-free-live-stream.html)
+
+
+### trump (N/A, Wed, 18 Sep 2024 10:20:00 -0700)
+
+- **Trump is safe after an apparent assassination attempt at his Florida golf 
+club. Read how the news unfolded**: [Link](https://apnews.com/live/trump-shooting-west-palm-beach-updates)
+- **In 2023 interview, alleged Trump plotter decried hurdles to get foreign 
+soldiers for Kyiv**: [Link](https://www.semafor.com/article/09/15/2024/alleged-trump-plotter-ryan-routh-complained-of-obstacles-to-getting-foreign-soldiers-to-ukraine)
+- **A New York Times Reporter Revisits Earlier Interview With Suspect at Trump 
+Golf Course**: [Link](https://www.nytimes.com/2024/09/15/us/politics/trump-routh-ukraine-interview.html)
+
+
+### tempête boris (N/A, Wed, 18 Sep 2024 10:20:00 -0700)
+
+- **Tempête Boris: le bilan monte à 21 morts en Europe centrale et orientale**: [Link](https://medias24.com/agence-presse/tempete-boris-le-bilan-monte-a-21-morts-en-europe-centrale-et-orientale/)
+- **Quel est l'impact économique des inondations en Europe ?**: [Link](https://fr.euronews.com/business/2024/09/18/inondations-meurtrieres-en-europe-combien-cela-va-t-il-couter)
+- **Un barrage a cédé sous la pression de l’eau en Pologne, conséquence des 
+inondations dramatiques**: [Link](https://www.futura-sciences.com/planete/breves/environnement-barrage-cede-sous-pression-eau-pologne-consequence-inondations-dramatiques-9990/)
+
+
+### bologna fc (N/A, Wed, 18 Sep 2024 10:10:00 -0700)
+
+- **Champions, in campo Bologna-Shaktar 0-0 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/09/18/champions-in-campo-bologna-shaktar-0-0-diretta-e-foto_00180d98-8220-4d35-b129-666eb0d663be.html)
+- **Orsolini sullo Shakhtar: "Io non la definirei la partita del riscatto"**: [Link](https://www.tuttosport.com/video/calcio/champions-league/2024/09/17-132878232/orsolini_sullo_shakhtar_io_non_la_definirei_la_partita_del_riscatto_)
+- **Italiano: “Con i viola due finali perse ma conta il percorso. Pronti per la 
+UCL”**: [Link](https://www.violanews.com/altri-campionati/champions-league/italiano-con-i-viola-due-finali-perse-ma-conta-il-percorso-pronti-per-la-ucl/)
+
+
 ### web app fc 25 (N/A, Wed, 18 Sep 2024 09:20:00 -0700)
 
 - **EA FC 25 Companion App release date announced**: [Link](https://www.si.com/videogames/news/ea-fc-25-companion-app-release-date)
