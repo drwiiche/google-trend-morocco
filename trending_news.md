@@ -1,3 +1,10 @@
+### rodri (N/A, Wed, 18 Sep 2024 02:40:00 -0700)
+
+- **Javier Tebas y la posible huelga de futbolistas: "Rodri tiene razón"**: [Link](https://www.marca.com/futbol/primera-division/2024/09/18/66ea9c8e268e3e997c8b45c1.html)
+- **Rodri amenaza con la huelga de futbolistas: "Estamos cerca de ello"**: [Link](https://www.sport.es/es/noticias/champions/rodri-amenaza-huelga-futbolistas-cerca-108251226)
+- **Rodri: “Estamos a punto de ir a la huelga”**: [Link](https://as.com/futbol/champions/rodri-estamos-a-punto-de-ir-a-la-huelga-n/)
+
+
 ### toto schillaci (N/A, Wed, 18 Sep 2024 03:30:00 -0700)
 
 - **Morto Totò Schillaci, calcio in lutto per l'addio all'eroe di Italia 90**: [Link](https://tg24.sky.it/sport/2024/09/18/toto-schillaci-morto)
