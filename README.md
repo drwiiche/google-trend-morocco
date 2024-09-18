@@ -1,3 +1,34 @@
+### classement ligue des champions de l'uefa (N/A, Wed, 18 Sep 2024 14:00:00 -0700)
+
+- **Ligue des Champions : Ce qu'il faut savoir sur le nouveau format**: [Link](https://fr.hespress.com/386465-ligue-des-champions-ce-quil-faut-savoir-sur-le-nouveau-format.html)
+- **Ligue des champions: PSG, Real, City, Bayern... Le classement général après 
+la 1ère journée**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/ligue-des-champions-lille-real-bayern-le-classement-general-apres-la-1ere-journee_AV-202409170962.html)
+- **Ligue des champions de football : tout savoir sur le nouveau format**: [Link](https://www.lemonde.fr/sport/article/2024/09/17/ligue-des-champions-de-football-tout-savoir-sur-le-nouveau-format_6321289_3242.html)
+
+
+### gundogan (N/A, Wed, 18 Sep 2024 13:50:00 -0700)
+
+- **Ilkay Gundogan's Man City return hailed as 'masterstroke' that shows Pep 
+Guardiola bond**: [Link](https://www.mirror.co.uk/sport/football/news/ilkay-gundogan-pep-guardiola-mancity-33685221)
+
+
+### دوري الأبطال (N/A, Wed, 18 Sep 2024 13:50:00 -0700)
+
+- **فليك: برشلونة يستطيع الفوز بدوري الأبطال**: [Link](https://www.kooora.com/?n=1355622)
+- **حديث فليك عن مواجهة موناكو**: [Link](https://hihi2.com/2024/09/18/p2853596.html)
+- **دوري أبطال أوروبا: برشلونة يعوّل على نجمه جمال لاستعادة بريقه**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20240918-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B9%D9%88%D9%91%D9%84-%D8%B9%D9%84%D9%89-%D9%86%D8%AC%D9%85%D9%87-%D8%AC%D9%85%D8%A7%D9%84-%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A8%D8%B1%D9%8A%D9%82%D9%87)
+
+
+### paris (N/A, Wed, 18 Sep 2024 13:50:00 -0700)
+
+- **Paris : des explosions et un grave incendie sur le toit d’un immeuble du 
+13e arrondissement, deux blessés**: [Link](https://www.lefigaro.fr/faits-divers/paris-des-explosions-et-un-grave-incendie-sur-le-toit-d-un-immeuble-du-13e-arrondissement-20240917)
+- **Paris : une explosion impressionnante dans le XIIIe arrondissement, les 
+images**: [Link](https://www.linternaute.com/actualite/faits-divers/6192141-paris-une-explosion-impressionnante-dans-le-xiiie-arrondissement-les-images/)
+- **« Une boule de feu » : vent de panique à Paris après deux fortes explosions 
+dans un immeuble**: [Link](https://www.lavoixdunord.fr/1503095/article/2024-09-17/une-boule-de-feu-vent-de-panique-paris-apres-deux-fortes-explosions-dans-un)
+
+
 ### city vs (N/A, Wed, 18 Sep 2024 13:40:00 -0700)
 
 - **Valley City vs. Grand Forks Red River Tennis Results**: [Link](https://www.newsdakota.com/2024/09/18/valley-city-vs-grand-forks-red-river-tennis-results/)
