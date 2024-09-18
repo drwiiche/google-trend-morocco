@@ -1,3 +1,10 @@
+### atlanta utd – inter miami (N/A, Wed, 18 Sep 2024 15:50:00 -0700)
+
+- **Atlanta United vs Inter Miami LIVE Score: ATL v MIA, Messi expected in action, Major League Soccer updates**: [Link](https://sportstar.thehindu.com/football/atlanta-united-vs-inter-miami-live-score-major-league-soccer-updates-atl-v-mia-lionel-messi-goals-highlights/article68657754.ece)
+- **Lionel Messi returns: Inter Miami to rotate star ahead of busy MLS week**: [Link](https://www.sportingnews.com/in/football/news/lionel-messi-inter-miami-rotate-star-ahead-busy-mls-week/25ecaa3bc6e54b46c877f863)
+- **Wednesday's Major League Soccer predictions including Atlanta United vs. Inter Miami**: [Link](https://www.sportsmole.co.uk/football/new-england-revolution/mls-predictions/feature/wednesdays-major-league-soccer-predictions-including-atlanta-vs-inter-miami_553115.html)
+
+
 ### مسلسل ليلى (N/A, Wed, 18 Sep 2024 15:20:00 -0700)
 
 - **بوسترات "برغم القانون" بالذكاء الاصطناعى بتوقيع محمود صبرى**: [Link](https://www.youm7.com/story/2024/9/18/%D8%A8%D9%88%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA-%D8%A8%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A8%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%89-%D8%A8%D8%AA%D9%88%D9%82%D9%8A%D8%B9-%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D8%B5%D8%A8%D8%B1%D9%89/6712076)
