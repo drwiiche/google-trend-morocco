@@ -1,3 +1,11 @@
+### toto schillaci (N/A, Wed, 18 Sep 2024 03:30:00 -0700)
+
+- **Morto Totò Schillaci, calcio in lutto per l'addio all'eroe di Italia 90**: [Link](https://tg24.sky.it/sport/2024/09/18/toto-schillaci-morto)
+- **Addio a Totò Schillaci, se ne va il bomber delle Notti Magiche. Aveva 59 
+anni**: [Link](https://www.gazzetta.it/Basket/SerieA/18-09-2024/toto-schillaci-e-morto-il-bomber-delle-notti-magiche-aveva-59-anni.shtml)
+- **Ciao, Totò.**: [Link](https://www.juventus.com/it/news/articoli/ciao-toto)
+
+
 ### michaela deprince (N/A, Wed, 18 Sep 2024 02:20:00 -0700)
 
 - **Ballerina Michaela Mabinty DePrince, 29, and her mom died within 24 hours of each other**: [Link](https://www.yahoo.com/entertainment/ballerina-michaela-mabinty-deprince-29-093124239.html)
