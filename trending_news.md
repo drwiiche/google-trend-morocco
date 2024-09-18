@@ -1,3 +1,29 @@
+### brighton – wolves (N/A, Wed, 18 Sep 2024 12:50:00 -0700)
+
+- **Preview: Brighton & Hove Albion vs. Wolverhampton Wanderers - prediction, 
+team news, lineups**: [Link](https://www.sportsmole.co.uk/football/brighton-and-hove-albion/league-cup/preview/preview-brighton-vs-wolves-prediction-team-news-lineups_553045.html)
+- **Carabao Cup draw: Fixtures, match schedule and results for third round of 
+EFL Cup**: [Link](https://www.sportingnews.com/us/soccer/news/carabao-cup-draw-fixtures-match-schedule-results-efl-cup/383c9c9af127ceedce174456)
+- **Wolves predicted XI as Rodrigo Gomes & Goncalo Guedes both start v Brighton**: [Link](https://www.molineux.news/opinion/wolves-predicted-xi-as-rodrigo-gomes-goncalo-guedes-both-start-v-brighton/)
+
+
+### tottenham (N/A, Wed, 18 Sep 2024 12:50:00 -0700)
+
+- **Tottenham 0-1 Arsenal - Highlights**: [Link](https://www.beinsports.com/en-mena/football/premier-league/articles-video/tottenham-0-1-arsenal-highlights-2024-09-15)
+- **'Worst captain we've ever had' - Son Heung-min labelled 'deluded' for 
+interview after Arsenal north London derby defeat as Spurs fans slam 
+'disgrace of a captain'**: [Link](https://www.goal.com/en-us/lists/son-heung-min-deluded-interview-arsenal-north-london-derby-spurs-fans/bltfd2a630b8eb1f36a)
+- **Spurs sunk again! Player ratings, Arteta’s reaction and Arsenal’s £55m 
+bargain**: [Link](https://charleswatts.football/news/inside-arsenal-news-gabriel-magalhaes-william-saliba/)
+
+
+### دوري ابطال اوروبا (N/A, Wed, 18 Sep 2024 12:20:00 -0700)
+
+- **أنشيلوتي: إندريك فاجأني.. ومخطئ من يظن أننا لا نعاني**: [Link](https://www.kooora.com/?n=1355456)
+- **كلمة يجب أن تقال في حق إندريك**: [Link](https://hihi2.com/2024/09/18/p2852788.html)
+- **البرازيلي إندريك حطم رقم راوول**: [Link](https://www.almountakhab.com/node/13204449)
+
+
 ### psg vs (N/A, Wed, 18 Sep 2024 12:40:00 -0700)
 
 - **Medical update after Brest**: [Link](https://en.psg.fr/teams/first-team/content/medical-update-after-brest-paris-saint-germain-20242025)
