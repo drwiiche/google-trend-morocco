@@ -1,3 +1,12 @@
+### real madrid fc (N/A, Tue, 17 Sep 2024 13:20:00 -0700)
+
+- **Miguel Delaney drops bombshell Liverpool transfer news that will concern 
+fans**: [Link](https://www.empireofthekop.com/2024/09/17/delaney-bombshell-liverpool-transfer-news/)
+- **Real Madrid planning on new midfield signing for 2025, looking at options – 
+report**: [Link](https://madriduniversal.com/real-madrid-planning-on-new-midfield-signing-for-2025-looking-at-options-report/)
+- **'They could dominate' - how Real Madrid built a new team of Galacticos**: [Link](https://www.bbc.com/sport/football/videos/c20j42wj3ego)
+
+
 ### real madrid – vfb stuttgart : temps forts (N/A, Tue, 17 Sep 2024 13:40:00 -0700)
 
 - **Real Madrid 3-1 VfB Stuttgart, Ligue des champions : Le Real réaliste dans 
