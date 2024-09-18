@@ -1,3 +1,9 @@
+### jean marie le pen (N/A, Tue, 17 Sep 2024 16:20:00 -0700)
+
+- **Jean-Marie Le Pen : un état de santé très fragile, ses facultés 
+"considérablement altérées"**: [Link](https://www.linternaute.com/actualite/biographie/1776796-jean-marie-le-pen-un-etat-de-sante-tres-fragile-ses-facultes-considerablement-alterees/)
+
+
 ### man united (N/A, Tue, 17 Sep 2024 12:50:00 -0700)
 
 - **Man Utd: Antony must earn right to play - Erik ten Hag**: [Link](https://www.bbc.com/sport/football/articles/cd9885pjdlxo)
