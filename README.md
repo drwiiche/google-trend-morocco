@@ -1,3 +1,11 @@
+### ucl (N/A, Wed, 18 Sep 2024 10:40:00 -0700)
+
+- **Real Madrid 3-1 Stuttgart: Endrick breaks record and Mbappe scores as Real 
+Madrid seal Champions League win**: [Link](https://www.bbc.com/sport/football/live/crr5l0kl81lt)
+- **Real Madrid - VfB Stuttgart live: Champions League - Football**: [Link](https://www.tntsports.co.uk/football/champions-league/2024-2025/live-real-madrid-vfb-stuttgart_mtc1525308/live-commentary.shtml)
+- **(VIDEO) Kylian Mbappé Scores Real Madrid's First Champions League Goal**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles-video/-video-kylian-mbapp%C3%A9-scores-real-madrid-s-first-champions-league-goal-2024-09-17)
+
+
 ### sparta prague (N/A, Wed, 18 Sep 2024 10:20:00 -0700)
 
 - **Preview: Sparta Prague vs. Red Bull Salzburg - prediction, team news, 
