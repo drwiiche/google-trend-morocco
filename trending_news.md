@@ -1,3 +1,13 @@
+### wissam ben yedder (N/A, Wed, 18 Sep 2024 06:00:00 -0700)
+
+- **Wissam Ben Yedder avoids detainment ahead of sexual assault while 
+intoxicated trial**: [Link](https://www.getfootballnewsfrance.com/2024/wissam-ben-yedder-avoids-detainment-ahead-of-sexual-assault-while-intoxicated-trial/)
+- **Unemployed France striker Wissam Ben Yedder admits to being an alcoholic as 
+he's handed travel ban while facin**: [Link](https://www.dailymail.co.uk/sport/football/article-13846361/France-Wissam-Ben-Yedder-alcoholic-sex-act.html)
+- **French soccer star Wissam Ben Yedder stays free ahead of trial on charges 
+of sexual assault**: [Link](https://lufkindailynews.com/anpa/sports/french-soccer-star-wissam-ben-yedder-stays-free-ahead-of-trial-on-charges-of-sexual/article_25bfc926-cf8f-5a10-8524-9270498a7014.html)
+
+
 ### zeturf (N/A, Wed, 18 Sep 2024 05:30:00 -0700)
 
 - **Les pronostics Quinté du 18/09/2024 à Lyon-Parilly**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-18092024-a-lyon-parilly-4268103)
