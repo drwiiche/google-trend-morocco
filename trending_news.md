@@ -1,3 +1,23 @@
+### explosions au liban (N/A, Wed, 18 Sep 2024 14:50:00 -0700)
+
+- **En direct, nouvelle série d’explosions au Liban : Israël annonce une 
+réorientation de ses forces vers la frontière libanaise**: [Link](https://www.lemonde.fr/international/live/2024/09/19/en-direct-nouvelle-serie-d-explosions-au-liban-israel-annonce-une-reorientation-de-ses-forces-vers-la-frontiere-libanaise_6321740_3210.html)
+- **L’Iran, l'autre grand perdant de l’opération de sabotage des bipeurs du 
+Hezbollah**: [Link](https://www.france24.com/fr/moyen-orient/20240918-l-iran-l-autre-grand-perdant-de-l-op%C3%A9ration-de-sabotage-des-bipeurs-du-hezbollah)
+- **DIRECT. Liban: au moins 14 morts et plus de 250 blessés dans une deuxième 
+série d'explosions**: [Link](https://www.bfmtv.com/international/moyen-orient/direct-explosions-de-bipeurs-au-liban-le-hezbollah-affirme-qu-il-continuera-le-combat-pour-soutenir-gaza_LN-202409180097.html)
+
+
+### plus belle la vie encore plus belle (N/A, Wed, 18 Sep 2024 14:50:00 -0700)
+
+- **Plus belle la vie, encore plus belle : PBLV**: [Link](https://www.tf1.fr/tf1/plus-belle-la-vie)
+- **Luna en prison et Jules gravement malade - Plus belle la vie (spoilers) 
+jusqu'au 11 octobre 2024**: [Link](https://www.nouveautes-tele.com/266658-luna-en-prison-et-jules-gravement-malade-plus-belle-la-vie-spoilers-jusquau-11-octobre-2024.html)
+- **Plus belle la vie en avance : Barbara veut se dénoncer à la police, Ariane 
+quitte Djawad, Kilian et Aya s'embrassent... Le résumé de l'épisode 173 du 
+jeudi 19 septembre 2024**: [Link](https://www.programme-tv.net/news/series-tv/360889-plus-belle-la-vie-en-avance-barbara-veut-se-denoncer-a-la-police-ariane-quitte-djawad-kilian-et-aya-s-embrassent-le-resume-de-l-episode-173-du-jeudi-19-septembre-2024/)
+
+
 ### inzaghi (N/A, Wed, 18 Sep 2024 13:00:00 -0700)
 
 - **Champions: Barella,'abbiamo dimostrato di potercela giocare'**: [Link](https://www.ansalatina.com/sito/notizie/sport/calcio/2024/09/18/champions-barellaabbiamo-dimostrato-di-potercela-giocare_dabb7f04-ae6c-488d-a95b-fd87e351a596.html)
