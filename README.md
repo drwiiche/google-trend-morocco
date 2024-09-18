@@ -1,3 +1,12 @@
+### bamako actualité (N/A, Wed, 18 Sep 2024 08:00:00 -0700)
+
+- **Au Mali, de nombreuses interrogations persistent au lendemain des attaques 
+à Bamako**: [Link](https://www.lemonde.fr/afrique/article/2024/09/18/au-mali-de-nombreuses-interrogations-persistent-au-lendemain-des-attaques-a-bamako_6322945_3212.html)
+- **Mali : ce que l’on sait de la double attaque terroriste qui a visé 
+plusieurs bases militaires à Bamako**: [Link](https://www.jeuneafrique.com/1610181/politique/mali-ce-que-lon-sait-de-la-double-attaque-terroriste-qui-a-vise-plusieurs-bases-militaires-a-bamako/)
+- **Mali : tirs et explosions à Bamako, l'armée rassure**: [Link](https://fr.hespress.com/386401-mali-tirs-et-explosions-a-bamako-larmee-rassure.html)
+
+
 ### كاس العالم للصالات (N/A, Wed, 18 Sep 2024 06:10:00 -0700)
 
 - **صدمة جديدة لمنتخب الصالات المغربي**: [Link](https://www.kooora.com/?n=1355244)
