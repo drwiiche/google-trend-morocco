@@ -1,3 +1,10 @@
+### web app fc 25 (N/A, Wed, 18 Sep 2024 09:20:00 -0700)
+
+- **EA FC 25 Companion App release date announced**: [Link](https://www.si.com/videogames/news/ea-fc-25-companion-app-release-date)
+- **EA Sports FC 25: Release Date, Release Times & Xbox Game Pass Details**: [Link](https://www.purexbox.com/guides/ea-sports-fc-25-release-date-release-times-and-xbox-game-pass-details)
+- **Play FC 25 for £1 / $1 with New EA Play Offer**: [Link](https://www.pushsquare.com/news/2024/09/play-fc-25-for-p1-usd1-with-new-ea-play-offer)
+
+
 ### انفجار أجهزة البيجر (N/A, Wed, 18 Sep 2024 05:30:00 -0700)
 
 - **انفجارات جديدة لأجهزة اتصالات لاسلكية بعدد من المناطق اللبنانية**: [Link](https://www.aljazeera.net/news/2024/9/18/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%B3%D9%85%D8%A7%D8%B9-%D8%AF%D9%88%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D9%81%D9%8A)
