@@ -1,3 +1,11 @@
+### أحمد فتوح (N/A, Wed, 18 Sep 2024 16:10:00 -0700)
+
+- **في بيان رسمي.. فتوح يقدم طلبا لأسرة ضحيته**: [Link](https://www.kooora.com/?n=1355504)
+- **بعد الإفراج عنه بكفالة ضمن قضية "الدهس".. جدل في مصر إثر خوض فتوح تدريبات 
+الزمالك**: [Link](https://www.alhurra.com/egypt/2024/09/18/%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D8%A7%D8%AC-%D8%B9%D9%86%D9%87-%D8%A8%D9%83%D9%81%D8%A7%D9%84%D8%A9-%D8%B6%D9%85%D9%86-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D9%87%D8%B3-%D8%AC%D8%AF%D9%84-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A5%D8%AB%D8%B1-%D8%AE%D9%88%D8%B6-%D9%81%D8%AA%D9%88%D8%AD-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83)
+- **نجم الزمالك السابق: «أتمنى فتوح يتعلم من اللي حصل له»**: [Link](https://www.almasryalyoum.com/news/details/3262835)
+
+
 ### atlanta utd – inter miami (N/A, Wed, 18 Sep 2024 15:50:00 -0700)
 
 - **Atlanta United vs Inter Miami LIVE Score: ATL v MIA, Messi expected in action, Major League Soccer updates**: [Link](https://sportstar.thehindu.com/football/atlanta-united-vs-inter-miami-live-score-major-league-soccer-updates-atl-v-mia-lionel-messi-goals-highlights/article68657754.ece)
