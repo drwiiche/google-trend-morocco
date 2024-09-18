@@ -1,3 +1,11 @@
+### ميلان (N/A, Tue, 17 Sep 2024 14:00:00 -0700)
+
+- **هدف يفصل هالاند عن التفوق على نسخة "رونالدو الريال"**: [Link](https://www.kooora.com/?n=1355379)
+- **تشكيلة مانشستر سيتي المتوقعة أمام إنتر ميلان**: [Link](https://hihi2.com/2024/09/18/p2852884.html)
+- **دوري أبطال أوروبا: سيتي مستعد للقاء إنتر وسان جرمان لانطلاقة إيجابية أمام 
+جيرونا**: [Link](https://ar.sport.le360.ma/football/ligue-des-champions-uefa/B2K7PB2LEJHJBP5WKUC2DK46HU/)
+
+
 ### real madrid fc (N/A, Tue, 17 Sep 2024 13:20:00 -0700)
 
 - **Miguel Delaney drops bombshell Liverpool transfer news that will concern 
