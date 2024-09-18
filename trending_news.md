@@ -1,3 +1,10 @@
+### bet 365 (N/A, Wed, 18 Sep 2024 11:40:00 -0700)
+
+- **bet365 promo: $200 in bonus bets or first bet insurance up to $1k**: [Link](https://www.cbssports.com/betting/news/bet365-promo-200-in-bonus-bets-or-first-bet-insurance-up-to-1k/)
+- **Bet365 bonus code "DIMERS" for AZ: New $200 bonus for MLB betting today**: [Link](https://www.dimers.com/news/bet365-bonus-code-dimers-for-az-new-200-bonus-for-mlb-betting-today)
+- **bet365 Bonus Code SBRBONUS Gets You a $1,000 Safety Net for NFL Sunday**: [Link](https://www.sportsbookreview.com/picks/promos/bet365-bonus-code-1000-safety-net-nfl-sunday-sept-15-2024/)
+
+
 ### man city vs inter (N/A, Wed, 18 Sep 2024 11:30:00 -0700)
 
 - **LIVE: Manchester City vs Inter Milan – UEFA Champions League**: [Link](https://www.aljazeera.com/sports/liveblog/2024/9/18/live-manchester-city-vs-inter-milan-uefa-champions-league?update=3187174)
