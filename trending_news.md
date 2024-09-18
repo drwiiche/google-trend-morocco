@@ -1,3 +1,17 @@
+### betis – getafe (N/A, Wed, 18 Sep 2024 09:10:00 -0700)
+
+- **Precedentes positivos del Betis ante el Getafe como local**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/precedentes-positivos-betis-ante-getafe-local-20240918105741-nts.html)
+- **Pellegrini: “Bordalás ha demostrado su valía”**: [Link](https://as.com/futbol/primera/pellegrini-bordalas-ha-demostrado-su-valia-n/)
+- **Real Betis - Getafe CF: horario, fecha y dónde ver por televisión**: [Link](https://www.elcorreoweb.es/betis/2024/09/17/betis-getafe-horario-ver-television-liga-108251600.html)
+
+
+### احمد فتوح (N/A, Wed, 18 Sep 2024 05:10:00 -0700)
+
+- **فتوح يقدم طلبا لأسرة ضحيته**: [Link](https://www.kooora.com/?n=1355504)
+- **نجم الزمالك ينتظم في التدريبات بعد الإفراج عنه**: [Link](https://www.alarabiya.net/sport/2024/09/17/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%86%D8%AA%D8%B8%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D9%81%D8%B1%D8%A7%D8%AC-%D8%B9%D9%86%D9%87)
+- **محامي نجم الزمالك يكشف قيمة "الديّة" وتطورات التصالح بعد حادث الدهس**: [Link](https://www.alhurra.com/sport/2024/09/17/%D9%85%D8%AD%D8%A7%D9%85%D9%8A-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%83%D8%B4%D9%81-%D9%82%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D9%8A%D9%91%D8%A9-%D9%88%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B5%D8%A7%D9%84%D8%AD-%D8%AD%D8%A7%D8%AF%D8%AB-%D8%A7%D9%84%D8%AF%D9%87%D8%B3)
+
+
 ### bamako actualité (N/A, Wed, 18 Sep 2024 08:00:00 -0700)
 
 - **Au Mali, de nombreuses interrogations persistent au lendemain des attaques 
