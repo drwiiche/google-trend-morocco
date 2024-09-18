@@ -1,3 +1,10 @@
+### michaela deprince (N/A, Wed, 18 Sep 2024 02:20:00 -0700)
+
+- **Ballerina Michaela Mabinty DePrince, 29, and her mom died within 24 hours of each other**: [Link](https://www.yahoo.com/entertainment/ballerina-michaela-mabinty-deprince-29-093124239.html)
+- **Renowned ballet dancer and mom die within 1 day of each other**: [Link](https://abcnews.go.com/GMA/Family/renowned-ballet-dancer-mom-die-1-day/story?id=113752315)
+- **Mother of Ballerina Michaela DePrince Dies Day After Daughter’s Sudden Death at 29: ‘Truly Unimaginably Painful’**: [Link](https://people.com/mother-ballerina-michaela-deprince-dies-day-after-daughter-sudden-death-8713570)
+
+
 ### محاكم (N/A, Wed, 18 Sep 2024 01:10:00 -0700)
 
 - **إضراب جديد يكبل وهبي ويشل محاكم المملكة**: [Link](https://rue20.com/837760.html)
