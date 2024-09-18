@@ -1,3 +1,10 @@
+### محاكم (N/A, Wed, 18 Sep 2024 01:10:00 -0700)
+
+- **إضراب جديد يكبل وهبي ويشل محاكم المملكة**: [Link](https://rue20.com/837760.html)
+- **نقابات العدل تقرر مواصلة إضراب هيئة كتاب الضبط**: [Link](https://thevoice.ma/%D9%86%D9%82%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D9%82%D8%B1%D8%B1-%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A5%D8%B6%D8%B1%D8%A7%D8%A8-%D9%87%D9%8A%D8%A6%D8%A9-%D9%83%D8%AA/)
+- **إضراب يشل المحاكم لـ5 أيام**: [Link](https://m.alayam24.com/articles-526814.html)
+
+
 ### heure maroc (N/A, Wed, 18 Sep 2024 00:00:00 -0700)
 
 - **Mondial de Futsal : Abdelkrim Anbia, une valeur sûre pour Hicham Dguig**: [Link](https://fr.hespress.com/386394-mondial-de-futsal-abdelkrim-anbia-une-valeur-sure-pour-hicham-dguig.html)
