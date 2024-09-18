@@ -1,3 +1,11 @@
+### psg vs (N/A, Wed, 18 Sep 2024 12:40:00 -0700)
+
+- **Medical update after Brest**: [Link](https://en.psg.fr/teams/first-team/content/medical-update-after-brest-paris-saint-germain-20242025)
+- **Girona veteran Stuani merits Champions League dream against PSG, says Michel**: [Link](https://www.beinsports.com/en-nz/football/uefa-champions-league/articles/girona-veteran-stuani-merits-champions-league-dream-against-psg-says-michel-2024-09-17)
+- **PSG goalkeeper Donnarumma ruled out of Champions League opener against 
+Girona**: [Link](https://www.dailyunion.com/sports/national/psg-goalkeeper-donnarumma-ruled-out-of-champions-league-opener-against-girona/article_6873f37a-c85e-51bb-a718-859f52fa435b.html)
+
+
 ### savinho (N/A, Wed, 18 Sep 2024 12:30:00 -0700)
 
 - **Who is Savinho’s wife Anna Carolina Barbosa Moreira and do they have 
