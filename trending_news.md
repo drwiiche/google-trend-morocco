@@ -1,3 +1,27 @@
+### savinho (N/A, Wed, 18 Sep 2024 12:30:00 -0700)
+
+- **Who is Savinho’s wife Anna Carolina Barbosa Moreira and do they have 
+children?...**: [Link](https://www.thesun.ie/sport/13840817/savinho-wife-anna-carolina-barbosa-moreira-children-who/)
+- **‘I don’t give presents’ - Pep Guardiola reveals Phil Foden’s position for 
+Manchester City when he returns**: [Link](https://cityxtra.co.uk/17942/i-dont-give-presents-pep-guardiola-reveals-phil-fodens-position-for-manchester-city-when-he-returns/)
+- **Phil Foden injury update from Pep Guardiola as Man City face Inter Milan 
+then Arsenal**: [Link](https://www.dailystar.co.uk/sport/football/phil-foden-injury-pep-guardiola-33678628)
+
+
+### celtic (N/A, Wed, 18 Sep 2024 12:30:00 -0700)
+
+- **Preview: Celtic vs. Slovan Bratislava - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/celtic/champions-league/preview/preview-celtic-vs-slovan-bratislava-prediction-team-news-lineups_553069.html)
+- **Manager: We're looking forward to playing in this special competition again**: [Link](https://www.celticfc.com/news/2024/september/17/manager--we-re-/)
+- **Celtic’s £67m Champions League bonanza explained**: [Link](https://thecelticstar.com/celtics-67m-champions-league-bonanza-explained/)
+
+
+### club brugge – dortmund (N/A, Wed, 18 Sep 2024 12:30:00 -0700)
+
+- **Borussia Dortmund vs. Club Brugge Live Stream of UEFA Champions League**: [Link](https://www.cbssports.com/watch/champions-league/LET-189693995)
+- **Manchester City vs. Inter Milan Live Stream (9/18/24) | How to watch UEFA Champions League match**: [Link](https://www.nj.com/sports/2024/09/manchester-city-vs-inter-milan-live-stream-91824-how-to-watch-uefa-champions-league-match.html)
+- **Club Bruges-Borussia Dortmund - Champions League 2024/2025 Statistical Preview**: [Link](https://www.whoscored.com/Matches/1866130/Preview/Europe-Champions-League-2024-2025-Club-Bruges-Borussia-Dortmund)
+
+
 ### coventry city – tottenham (N/A, Wed, 18 Sep 2024 12:20:00 -0700)
 
 - **Coventry City vs Spurs | Talking tactics, with Rob Daly**: [Link](https://www.tottenhamhotspur.com/news/2024/september/coventry-city-vs-spurs-talking-tactics-with-rob-daly/)
