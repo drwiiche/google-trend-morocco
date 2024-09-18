@@ -1,3 +1,32 @@
+### barca vs monaco (N/A, Wed, 18 Sep 2024 12:00:00 -0700)
+
+- **When and where to watch AS Monaco v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4120719/when-and-where-to-watch-as-monaco-v-fc-barcelona)
+- **Special Marking for Lamine Yamal? Monaco Coach Reveals His Plan**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles-video/special-marking-for-lamine-yamal-monaco-coach-reveals-his-plan-2024-09-16)
+- **Champions League: Monaco v Barcelona – Preview, predictions, tips, offers 
+and odds**: [Link](https://www.101greatgoals.com/betting-tips/champions-league-odds/champions-league-monaco-v-barcelona-preview-predictions-tips-offers-and-odds/)
+
+
+### betis (N/A, Wed, 18 Sep 2024 11:50:00 -0700)
+
+- **Los estatutos sociales del Sevilla y el Betis no contemplan las actividades 
+indiscriminadas que quiere otorgarles Sanz cambiando el PGOU**: [Link](https://www.manueljesusflorencio.com/2024/09/los-estatutos-sociales-del-sevilla-y-el-betis-no-contemplan-las-actividades-indiscriminadas-que-quiere-otorgarles-sanz-cambiando-el-pgou/)
+- **El PSOE apoya el plan del PP de dar carta blanca a Sevilla y Betis en sus 
+estadios**: [Link](https://www.manueljesusflorencio.com/2024/09/el-psoe-apoya-el-plan-del-pp-de-dar-carta-blanca-a-sevilla-y-betis-en-sus-estadios/)
+- **Precedentes positivos del Betis ante el Getafe como local**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/precedentes-positivos-betis-ante-getafe-local-20240918105741-nts.html)
+
+
+### paris saint germain (N/A, Wed, 18 Sep 2024 11:50:00 -0700)
+
+- **Ligue des Champions : pourquoi le nouveau PSG effraye l’Europe**: [Link](https://www.footmercato.net/a4370176103937447961-ligue-des-champions-pourquoi-le-nouveau-psg-effraye-leurope)
+- **Achraf Hakimi : comment il est devenu incontournable au PSG**: [Link](https://www.bladi.net/achraf-hakimi-comment-est-devenu-incontournable-psg,110549.html)
+- **Mercato - PSG : Luis Enrique a trouvé le successeur de Mbappé**: [Link](https://le10sport.com/football/mercato-psg-luis-enrique-a-trouve-le-successeur-de-mbappe-713657)
+
+
+### real betis vs getafe (N/A, Wed, 18 Sep 2024 11:40:00 -0700)
+
+- **Preview: Real Betis vs. Getafe - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/preview-betis-vs-getafe-prediction-team-news-lineups_553101.html)
+
+
 ### bet 365 (N/A, Wed, 18 Sep 2024 11:40:00 -0700)
 
 - **bet365 promo: $200 in bonus bets or first bet insurance up to $1k**: [Link](https://www.cbssports.com/betting/news/bet365-promo-200-in-bonus-bets-or-first-bet-insurance-up-to-1k/)
