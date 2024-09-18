@@ -1,3 +1,21 @@
+### paris-sg – girona (N/A, Wed, 18 Sep 2024 11:10:00 -0700)
+
+- **PSG - Gérone : sur quelle chaîne et à quelle heure voir le match de Ligue 
+des Champions en direct ?**: [Link](https://www.ouest-france.fr/sport/football/paris-sg/psg-gerone-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-des-champions-en-direct-4b3e4e96-74db-11ef-a1b1-27949002d4f5)
+- **Le PSG pulvérise Girone**: [Link](https://www.footmercato.net/a1635572703187966392-le-psg-pulverise-girone)
+- **La composition du PSG face à Gérone : avec Vitinha dès le coup d'envoi ? 
+(Ligue des champions)**: [Link](https://www.lequipe.fr/Football/Actualites/La-composition-du-psg-face-a-gerone-avec-vitinha-des-le-coup-d-envoi/1508305)
+
+
+### manchester city – inter (N/A, Wed, 18 Sep 2024 11:10:00 -0700)
+
+- **Champions, Manchester City-Inter DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/09/18/champions-manchester-city-inter-diretta_4ef39e60-d11d-4ef7-bac5-6a7e5bc6888f.html)
+- **La dirigenza nerazzurra al pranzo UEFA. Stasera squadra con il lutto al 
+braccio**: [Link](https://www.fcinternews.it/news/la-dirigenza-nerazzurra-al-pranzo-uefa-stasera-squadra-con-il-lutto-al-braccio-964055)
+- **Inzaghi: “Lautaro tornerà bomber. Gioca dal 1′? Vediamo, dobbiamo dosare le 
+forze”**: [Link](https://www.fcinter1908.it/ultimora/inzaghi-lautaro-bomber-vediamo/)
+
+
 ### ucl (N/A, Wed, 18 Sep 2024 10:40:00 -0700)
 
 - **Real Madrid 3-1 Stuttgart: Endrick breaks record and Mbappe scores as Real 
