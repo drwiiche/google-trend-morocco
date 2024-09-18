@@ -1,3 +1,41 @@
+### man city vs inter (N/A, Wed, 18 Sep 2024 11:30:00 -0700)
+
+- **LIVE: Manchester City vs Inter Milan – UEFA Champions League**: [Link](https://www.aljazeera.com/sports/liveblog/2024/9/18/live-manchester-city-vs-inter-milan-uefa-champions-league?update=3187174)
+- **Inter Milan Coach Declares ‘We Have To Play Our Game’ Vs Man City, Explains 
+Dropping Captain & Ex Arsenal Veteran**: [Link](https://sempreinter.com/2024/09/18/inter-inzaghi-we-have-to-play-our-game-man-city/)
+- **Ex Bayern Munich Veteran Must Repeat Man United Star’s Heroics In Inter 
+Milan Champions League Showdown Vs Man City**: [Link](https://onefootball.com/id/berita/ex-bayern-munich-veteran-must-repeat-man-united-stars-heroics-in-inter-milan-champions-league-showdown-vs-man-city-40051314)
+
+
+### مان سيتي ضد الإنتر (N/A, Wed, 18 Sep 2024 11:30:00 -0700)
+
+- **التشكيلة الرسمية لـ مانشستر سيتي وإنتر ميلان في دوري الابطال**: [Link](https://hihi2.com/2024/09/18/p2853570.html)
+- **هل ينجو إنتر ميلان من مقبرة السيتي؟**: [Link](https://www.kooora.com/?n=1355494)
+- **عصبة أبطال أوروبا لكرة القدم.. برنامج الأربعاء ضمن الجولة 1**: [Link](https://www.almountakhab.com/node/16204423)
+
+
+### psg vs girona (N/A, Wed, 18 Sep 2024 11:30:00 -0700)
+
+- **PSG - Girona, en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/paris-saint-germain-girona/2024/09/18/01_0103_20240918_149_2893-directo.html)
+- **Previsiones Deportes AFP De Las 21H00 GMT**: [Link](https://www.barrons.com/news/previsiones-deportes-afp-de-las-21h00-gmt-3e0beaec)
+- **Miércoles 18 de septiembre de 2024**: [Link](https://www.infobae.com/america/agencias/2024/09/18/miercoles-18-de-septiembre-de-2024/)
+
+
+### daniele de rossi (N/A, Wed, 18 Sep 2024 11:30:00 -0700)
+
+- **Dalla cena di ieri sera alla riunione di stamattina: cosa c'è dietro 
+l'esonero di De Rossi**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Roma/18-09-2024/roma-cosa-c-e-dietro-l-esonero-di-de-rossi.shtml)
+- **Roma, inizia l'era Juric: ufficiale l'accordo fino al 2025**: [Link](https://www.sportmediaset.mediaset.it/calcio/roma/roma-inizia-l-era-juric-ufficiale-l-accordo-fino-al-2025_87542733-202402k.shtml)
+- **Nota del Club**: [Link](https://www.asroma.com/it/notizie/71903/nota-del-club)
+
+
+### uefa champions league (N/A, Wed, 18 Sep 2024 11:30:00 -0700)
+
+- **Barcelona lineup vs. Monaco: Predicted XI for Champions League encounter**: [Link](https://www.sportsmole.co.uk/football/barcelona/champions-league/predicted-lineups/olmo-setback-gives-flick-midfield-headache-barcelona-predicted-xi-vs-monaco_553144.html)
+- **Barca's 4-1 victory over Girona comes with an injury to Spanish ace star**: [Link](https://everythingbarca.com/posts/barca-s-4-1-victory-over-girona-comes-with-an-injury-to-spanish-ace-star-01j7wky5kbck)
+- **Barcelona’s Dani Olmo to miss 4 to 5 weeks with hamstring injury**: [Link](https://apnews.com/article/dani-olmo-barcelona-hamstring-injury-d9ad6b1e0215b09447e3cf3ad2d9e6c8)
+
+
 ### paris-sg – girona (N/A, Wed, 18 Sep 2024 11:10:00 -0700)
 
 - **PSG - Gérone : sur quelle chaîne et à quelle heure voir le match de Ligue 
