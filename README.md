@@ -1,3 +1,27 @@
+### zeturf (N/A, Wed, 18 Sep 2024 05:30:00 -0700)
+
+- **Les pronostics Quinté du 18/09/2024 à Lyon-Parilly**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-18092024-a-lyon-parilly-4268103)
+- **Le conseil de jeu de Lucas Quentin pour le Pick 5 de ce mercredi 18 
+septembre à Lyon-Parilly (R1C8)**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/le-conseil-de-jeu-de-lucas-quentin-pour-le-pick-5-de-ce-mercredi-18-septembre-a-lyon-parilly-r1c8)
+- **Les pronos hippiques du mercredi 18 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mercredi-18-septembre-2024_AN-202409160589.html)
+
+
+### resultat quinte (N/A, Wed, 18 Sep 2024 05:10:00 -0700)
+
+- **Quinté+: PRIX DE LA VALLEE DE L'OISE - COMPIEGNE - 17/09/2024 : partants, 
+pronostics et...**: [Link](https://www.equidia.fr/courses/2024-09-17/R1/C1)
+- **Tiercé. Les pronostics de «L'Alsace» pour mardi 17 septembre - Prix de la 
+Vallée de l'Oise**: [Link](https://www.lalsace.fr/sport/2024/09/16/nos-pronostics-pour-mardi-17-septembre-prix-de-la-vallee-de-l-oise)
+- **Les pronos hippiques du mardi 17 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-17-septembre-2024_AN-202409160591.html)
+
+
+### اخبارنا (N/A, Tue, 17 Sep 2024 23:10:00 -0700)
+
+- **قلق متزايد بعد خبر إدماج "كنوبس" في الصندوق الوطني للضمان الاجتماعي (CNSS)**: [Link](https://www.akhbarona.com/social/392341.html)
+- **نقابة تستنكر المساس بالتأمين الصحي**: [Link](https://www.hespress.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%B3%D8%AA%D9%86%D9%83%D8%B1-%D8%A7%D9%84%D9%85%D8%B3-%D8%A8%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D8%B5%D8%AD-1432961.html)
+- **آيت الطالب يبرر توحيد صناديق وأنظمة التغطية الصحية والتخلي عن CNOPS**: [Link](https://aljarida24.ma/p/actualites/287943/)
+
+
 ### visa france (N/A, Wed, 18 Sep 2024 04:20:00 -0700)
 
 - **Visa Schengen : Nouveau système de prise de rendez-vous par appel vidéo à 
