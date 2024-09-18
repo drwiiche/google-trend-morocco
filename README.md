@@ -1,3 +1,17 @@
+### بي اس جي ضد غيرونا (N/A, Wed, 18 Sep 2024 12:10:00 -0700)
+
+- **مفاجأة سارة في قائمة باريس لمواجهة جيرونا**: [Link](https://www.kooora.com/?n=1355501)
+- **باريس سان جيرمان يستضيف جيرونا وعينه على النقاط الثلاث**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D9%88%D8%B9%D9%8A%D9%86%D9%87-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB-2024-09-18)
+- **باريس سان جيرمان يتحدى طموح جيرونا بديمبلي وحديقة الأمراء**: [Link](https://www.alaraby.co.uk/sport/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%B7%D9%85%D9%88%D8%AD-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D8%A8%D8%AF%D9%8A%D9%85%D8%A8%D9%84%D9%8A-%D9%88%D8%AD%D8%AF%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D8%A7%D8%A1)
+
+
+### man city (N/A, Wed, 18 Sep 2024 11:50:00 -0700)
+
+- **UEFA Champions League 2024-25: Schedule, title favourites, players to watch**: [Link](https://www.aljazeera.com/sports/2024/9/16/uefa-champions-league-2024-25-matches-teams-format-key-dates-draw-final-favourites-record)
+- **Manchester City-Inter - Champions League 2024/2025 Statistical Preview**: [Link](https://www.whoscored.com/Matches/1866097/Preview/Europe-Champions-League-2024-2025-Manchester-City-Inter)
+- **Parimatch Sign-Up Offer: Get 60/1 on Erling Haaland to score anytime vs Inter Milan**: [Link](https://www.101greatgoals.com/free-bets/parimatch-sign-up-offer-get-60-1-on-erling-haaland-to-score-anytime-vs-inter-milan/)
+
+
 ### barca vs monaco (N/A, Wed, 18 Sep 2024 12:00:00 -0700)
 
 - **When and where to watch AS Monaco v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4120719/when-and-where-to-watch-as-monaco-v-fc-barcelona)
