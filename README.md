@@ -1,3 +1,12 @@
+### inzaghi (N/A, Wed, 18 Sep 2024 13:00:00 -0700)
+
+- **Champions: Barella,'abbiamo dimostrato di potercela giocare'**: [Link](https://www.ansalatina.com/sito/notizie/sport/calcio/2024/09/18/champions-barellaabbiamo-dimostrato-di-potercela-giocare_dabb7f04-ae6c-488d-a95b-fd87e351a596.html)
+- **Inzaghi: “I ragazzi sono stati bravissimi. Potevamo far male. Darmian mi ha 
+detto…”**: [Link](https://www.fcinter1908.it/copertina/inzaghi-city-inter-post-prime/)
+- **Un tacco di troppo. Darmian spreca, Inzaghi non la prende bene: "Ma vaff... 
+Matteo"**: [Link](https://www.tuttomercatoweb.com/serie-a/un-tacco-di-troppo-darmian-spreca-inzaghi-non-la-prende-bene-ma-vaff-matteo-2013631)
+
+
 ### classement ligue des champions de l'uefa (N/A, Wed, 18 Sep 2024 14:00:00 -0700)
 
 - **Ligue des Champions : Ce qu'il faut savoir sur le nouveau format**: [Link](https://fr.hespress.com/386465-ligue-des-champions-ce-quil-faut-savoir-sur-le-nouveau-format.html)
