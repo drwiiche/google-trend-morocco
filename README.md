@@ -1,3 +1,26 @@
+### coventry city – tottenham (N/A, Wed, 18 Sep 2024 12:20:00 -0700)
+
+- **Coventry City vs Spurs | Talking tactics, with Rob Daly**: [Link](https://www.tottenhamhotspur.com/news/2024/september/coventry-city-vs-spurs-talking-tactics-with-rob-daly/)
+- **Ange Postecoglou: I dream about ending Tottenham trophy drought**: [Link](https://www.standard.co.uk/sport/football/ange-postecoglou-tottenham-trophy-drought-carabao-cup-b1182694.html)
+- **Carabao Cup draw: Fixtures, match schedule and results for third round of 
+EFL Cup**: [Link](https://www.sportingnews.com/us/soccer/news/carabao-cup-draw-fixtures-match-schedule-results-efl-cup/383c9c9af127ceedce174456)
+
+
+### dortmund (N/A, Wed, 18 Sep 2024 12:20:00 -0700)
+
+- **Betrug mit Pflegekosten, Explosion und Gaseinsatz: Die beliebtesten Storys 
+aus Dortmund**: [Link](https://www.ruhrnachrichten.de/dortmund/betrug-mit-pflegekosten-explosion-gaseinsatz-beliebteste-storys-aus-dortmund-w937901-2001376522/)
+- **E-Sport im BaseStack: Zocken, wo die BVB-Profis trainieren**: [Link](https://www.waz.de/lokales/dortmund/article407237074/e-sport-im-basestack-zocken-wo-die-bvb-profis-trainieren.html)
+- **BVB-Sportdirektor Sebastian Kehl zu Gast bei Sky90 - Liveblog**: [Link](https://sport.sky.de/fussball/artikel/bvb-boss-sebastian-kehl-zu-gast-bei-sky90-liveblog/13215626/34942)
+
+
+### manchester city (N/A, Wed, 18 Sep 2024 11:50:00 -0700)
+
+- **Champions League build-up: Rodri - 'Players close to going on strike'**: [Link](https://www.bbc.com/sport/football/live/cx2llgw4v7nt)
+- **Brendan Rodgers Backs Man City Star’s Complaints**: [Link](https://celtsarehere.com/brendan-rodgers-backs-man-city-stars-complaints/)
+- **Aston Villa's John McGinn issues mental health warning amid fixture schedule**: [Link](https://www.expressandstar.com/sport/football/aston-villa/2024/09/18/aston-villas-john-mcginn-issues-mental-health-warning-amid-fixture-schedule/)
+
+
 ### بي اس جي ضد غيرونا (N/A, Wed, 18 Sep 2024 12:10:00 -0700)
 
 - **مفاجأة سارة في قائمة باريس لمواجهة جيرونا**: [Link](https://www.kooora.com/?n=1355501)
