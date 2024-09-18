@@ -1,3 +1,11 @@
+### real madrid – vfb stuttgart : temps forts (N/A, Tue, 17 Sep 2024 13:40:00 -0700)
+
+- **Real Madrid 3-1 VfB Stuttgart, Ligue des champions : Le Real réaliste dans 
+le money time**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/real-madrid-vfb-stuttgart-live/667963)
+- **Real Madrid : la blague de Thibaut Courtois sur Endrick**: [Link](https://www.footmercato.net/a4710538852464801600-real-madrid-la-blague-de-thibaut-courtois-sur-endrick)
+- **Ancelotti : "Endrick a des c..."**: [Link](https://real-france.fr/ancelotti-endrick-a-des-c/)
+
+
 ### jean marie le pen (N/A, Tue, 17 Sep 2024 16:20:00 -0700)
 
 - **Jean-Marie Le Pen : un état de santé très fragile, ses facultés 
