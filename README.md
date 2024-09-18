@@ -1,3 +1,10 @@
+### انفجار أجهزة البيجر (N/A, Wed, 18 Sep 2024 05:30:00 -0700)
+
+- **انفجارات جديدة لأجهزة اتصالات لاسلكية بعدد من المناطق اللبنانية**: [Link](https://www.aljazeera.net/news/2024/9/18/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%B3%D9%85%D8%A7%D8%B9-%D8%AF%D9%88%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D9%81%D9%8A)
+- **قتلى في انفجار أجهزة "ووكي توكي" بلبنان**: [Link](https://www.hespress.com/%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D8%AC%D9%87%D8%A7%D8%B2-%D9%88%D9%88%D9%83%D9%8A-%D8%AA%D9%88%D9%83%D9%8A-%D8%A8%D9%84%D8%A8%D9%86%D8%A7%D9%86-1433252.html)
+- **دولة أوروبية تخرج عن صمتها بعد اتهامها بتصنيع أجهزة حزب الله المنفجرة**: [Link](https://www.alhurra.com/arabic-and-international/2024/09/18/%D8%AF%D9%88%D9%84%D8%A9-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AE%D8%B1%D8%AC-%D8%B5%D9%85%D8%AA%D9%87%D8%A7-%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D9%87%D8%A7-%D8%A8%D8%AA%D8%B5%D9%86%D9%8A%D8%B9-%D8%A3%D8%AC%D9%87%D8%B2%D8%A9-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%85%D9%86%D9%81%D8%AC%D8%B1%D8%A9)
+
+
 ### betis – getafe (N/A, Wed, 18 Sep 2024 09:10:00 -0700)
 
 - **Precedentes positivos del Betis ante el Getafe como local**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/precedentes-positivos-betis-ante-getafe-local-20240918105741-nts.html)
