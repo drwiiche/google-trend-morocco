@@ -1,3 +1,20 @@
+### city vs (N/A, Wed, 18 Sep 2024 13:40:00 -0700)
+
+- **Valley City vs. Grand Forks Red River Tennis Results**: [Link](https://www.newsdakota.com/2024/09/18/valley-city-vs-grand-forks-red-river-tennis-results/)
+- **Valley City Results from Sheyenne Tennis Invite**: [Link](https://www.newsdakota.com/2024/09/16/valley-city-results-from-sheyenne-tennis-invite/)
+- **Pressing Points | Urgency in NYC**: [Link](https://www.philadelphiaunion.com/news/pressing-points-urgency-in-nyc)
+
+
+### totò schillaci (N/A, Wed, 18 Sep 2024 13:30:00 -0700)
+
+- **Cancro al colon, sintomi e cure del tumore che ha colpito Totò Schillaci. 
+L'importanza della prevenzione**: [Link](https://www.ilgiornale.it/news/farmaci-e-terapie/cancro-colon-cosa-tumore-che-ha-colpito-toto-schillaci-e-2370232.html)
+- **Addio a Totò Schillaci, se ne va il bomber delle Notti Magiche. Aveva 59 
+anni**: [Link](https://www.gazzetta.it/Basket/SerieA/18-09-2024/toto-schillaci-e-morto-il-bomber-delle-notti-magiche-aveva-59-anni.shtml)
+- **Totò Schillaci: Catania (preside scuola Cep), “dimostrò ai ragazzi del suo 
+quartiere che si può avere successo e restare umili”**: [Link](https://www.difesapopolo.it/Rubriche/Sport/Toto-Schillaci-Catania-preside-scuola-Cep-dimostro-ai-ragazzi-del-suo-quartiere-che-si-puo-avere-successo-e-restare-umili)
+
+
 ### brighton – wolves (N/A, Wed, 18 Sep 2024 12:50:00 -0700)
 
 - **Preview: Brighton & Hove Albion vs. Wolverhampton Wanderers - prediction, 
