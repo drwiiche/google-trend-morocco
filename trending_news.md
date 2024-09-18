@@ -1,3 +1,12 @@
+### visa france (N/A, Wed, 18 Sep 2024 04:20:00 -0700)
+
+- **Visa Schengen : Nouveau système de prise de rendez-vous par appel vidéo à 
+partir du 18 septembre**: [Link](https://lematin.ma/societe/visa-schengen-nouveau-systeme-de-prise-de-rendez-vous-par-appel-video/243108)
+- **Visas pour la France: TLScontact annonce une nouveau dispositif**: [Link](https://www.infomediaire.net/visas-pour-la-france-tlscontact-annonce-une-nouveau-dispositif/)
+- **Visas Schengen : TLS annonce le passage à la visioconférence pour lutter 
+contre les intermédiaires**: [Link](https://mobile.telquel.ma/instant-t/2024/09/17/visas-schengen-tls-annonce-le-passage-a-la-visioconference-pour-lutter-contre-les-intermediaires_1893920/)
+
+
 ### man utd (N/A, Tue, 17 Sep 2024 14:10:00 -0700)
 
 - **Manchester United task force to deliver Old Trafford recommendation by end 
