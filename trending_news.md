@@ -1,3 +1,13 @@
+### man utd (N/A, Tue, 17 Sep 2024 14:10:00 -0700)
+
+- **Manchester United task force to deliver Old Trafford recommendation by end 
+of year - The Athletic**: [Link](https://www.nytimes.com/athletic/5775943/2024/09/18/manchester-united-stadium-plans-old-trafford/)
+- **Man United stadium twist will go down ‘very badly’ with public – Stefan 
+Borson**: [Link](https://www.footballinsider247.com/man-united-stadium-twist-will-go-down-very-badly-with-public-stefan-borson/)
+- **Man Utd: Ratcliffe sent 'truth' warning with Wembley of the North a 'no-go' 
+unless one change is made**: [Link](https://www.football365.com/news/man-utd-ratcliffe-truth-warning-wembley-north-no-go-one-change)
+
+
 ### rodri (N/A, Wed, 18 Sep 2024 02:40:00 -0700)
 
 - **Javier Tebas y la posible huelga de futbolistas: "Rodri tiene razón"**: [Link](https://www.marca.com/futbol/primera-division/2024/09/18/66ea9c8e268e3e997c8b45c1.html)
