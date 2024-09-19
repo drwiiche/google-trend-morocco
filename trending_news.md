@@ -1,3 +1,12 @@
+### lewandowski (N/A, Thu, 19 Sep 2024 13:20:00 -0700)
+
+- **Robert Lewandowski w wyszukiwarce. O co Polacy pytają Google? Interesują 
+zarobki, dzieci, ale też wykształcenie czy tatuaże**: [Link](https://gol24.pl/robert-lewandowski-w-wyszukiwarce-o-co-polacy-pytaja-google-interesuja-zarobki-dzieci-ale-tez-wyksztalcenie-czy-tatuaze/ar/c2-18818321)
+- **AS Monaco - FC Barcelona [RELACJA NA ŻYWO]**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/as-monaco-fc-barcelona-na-zywo-lewy-i-spolka-zaczynaja-lige-mistrzow/ncfzh1k)
+- **Koszmarny błąd Marca-André ter Stegena! Czerwona kartka dla FC Barcelony i 
+szybko stracony gol [WIDEO]**: [Link](https://transfery.info/aktualnosci/koszmarny-blad-marca-andre-ter-stegena-czerwona-kartka-dla-fc-barcelony-i-szybko-stracony-gol-wideo/223425)
+
+
 ### barca (N/A, Thu, 19 Sep 2024 12:10:00 -0700)
 
 - **Monaco vs. Barcelona odds, prediction, pick: Champions League live stream, 
