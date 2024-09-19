@@ -1,3 +1,11 @@
+### tupperware (N/A, Wed, 18 Sep 2024 21:20:00 -0700)
+
+- **‘The party is over’ as Tupperware files for bankruptcy after years of 
+troubles**: [Link](https://www.cnn.com/2024/09/18/business/tupperware-files-bankruptcy/index.html)
+- **How Tupperware, trusted by moms and the Queen, went bankrupt**: [Link](https://timesofindia.indiatimes.com/business/international-business/how-tupperware-trusted-by-moms-and-the-queen-went-bankrupt/articleshow/113480300.cms)
+- **Tupperware files for bankruptcy as its colorful containers lose relevance**: [Link](https://www.reuters.com/business/retail-consumer/tupperware-brands-files-chapter-11-bankruptcy-2024-09-18/)
+
+
 ### meteo (N/A, Wed, 18 Sep 2024 23:20:00 -0700)
 
 - **Storm Boris batters northern Italy bringing severe flooding and landslides**: [Link](https://www.theguardian.com/world/2024/sep/18/storm-boris-batters-northern-italy-bringing-severe-flooding-and-landslides)
