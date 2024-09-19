@@ -1,3 +1,13 @@
+### fnideq (N/A, Wed, 18 Sep 2024 17:20:00 -0700)
+
+- **n°991. Assaut « 15/9 » sur Ceuta, révélateur d’une jeunesse déboussolée et 
+sans horizon**: [Link](https://ledesk.ma/enclair/assaut-15-9-sur-ceuta-revelateur-dune-jeunesse-deboussolee-et-sans-horizon/)
+- **Hrig collectif à Fnideq : les raisons d’une volonté d’immigration à tout 
+prix**: [Link](https://mobile.telquel.ma/2024/09/18/hrig-collectif-a-fnideq-les-raisons-dune-volonte-dimmigration-a-tout-prix_1893959)
+- **Diffusion de photos de migrants assis par terre devant des véhicules des 
+Forces auxiliaires: le parquet ordonne une enquête**: [Link](https://fr.le360.ma/societe/diffusion-de-photos-de-migrants-assis-par-terre-devant-des-vehicules-des-forces-auxiliaires-le_F43LBB7RLFEVZDOUXZBY6PYRVU/)
+
+
 ### أحمد فتوح (N/A, Wed, 18 Sep 2024 16:10:00 -0700)
 
 - **في بيان رسمي.. فتوح يقدم طلبا لأسرة ضحيته**: [Link](https://www.kooora.com/?n=1355504)
