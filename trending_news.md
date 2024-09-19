@@ -1,3 +1,12 @@
+### joachim du bellay (N/A, Wed, 18 Sep 2024 17:30:00 -0700)
+
+- **Le poète Joachim Du Bellay identifié dans un cercueil retrouvé à Notre-Dame 
+de Paris**: [Link](https://www.lemonde.fr/culture/article/2024/09/17/le-poete-joachim-du-bellay-identifie-dans-un-cercueil-retrouve-a-notre-dame-de-paris_6321666_3246.html)
+- **Exceptionnelles découvertes archéologiques sous Notre-Dame de Paris**: [Link](https://www.lepoint.fr/histoire/exceptionnelles-decouvertes-archeologiques-sous-notre-dame-de-paris-17-09-2024-2570511_1615.php)
+- **Notre-Dame de Paris : l'identité du mystérieux cavalier au sarcophage de 
+plomb enfin révélée ?**: [Link](https://www.connaissancedesarts.com/monuments-patrimoine/notre-dame-paris/notre-dame-de-paris-lidentite-du-mysterieux-cavalier-au-sarcophage-de-plomb-enfin-revelee-11194816/)
+
+
 ### transfermarkt (N/A, Wed, 18 Sep 2024 16:40:00 -0700)
 
 - **Mikel Arteta signs new Arsenal contract**: [Link](https://www.arsenal.com/news/mikel-arteta-signs-new-arsenal-contract)
