@@ -1,3 +1,11 @@
+### feyenoord – leverkusen (N/A, Thu, 19 Sep 2024 09:00:00 -0700)
+
+- **Bayer Leverkusen op bezoek bij Feyenoord in Champions League • Basisplaats 
+voor Hwang In-beom?**: [Link](https://nos.nl/liveblog/2537775-bayer-leverkusen-op-bezoek-bij-feyenoord-in-champions-league-basisplaats-voor-hwang-in-beom)
+- **Enorme files en veel extra reistijd: verkeer van en naar Rotterdam muurvast**: [Link](https://www.pzc.nl/rotterdam/enorme-files-en-veel-extra-reistijd-verkeer-van-en-naar-rotterdam-muurvast~a7bfd314/)
+- **Chaos op de snelweg: duizenden supporters in de file**: [Link](https://1908.nl/artikelen/chaos-op-de-snelweg-duizenden-supporters-in-de-file)
+
+
 ### كاس العالم للفوتسال 2024 (N/A, Thu, 19 Sep 2024 07:30:00 -0700)
 
 - **فرنسا وإيران والمغرب والبرتغال يتطلعون إلى التأهل للدور الثاني**: [Link](https://www.fifa.com/ar/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/matchday-six-preview-ar)
