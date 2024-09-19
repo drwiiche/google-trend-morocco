@@ -1,3 +1,35 @@
+### lamine yamal (N/A, Thu, 19 Sep 2024 12:30:00 -0700)
+
+- **Cristiano admite que Lamine hace cosas que ni él ni Messi hacían a su edad**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240919/1002318524/futbol-fc-barcelona.html)
+- **Cristiano Ronaldo reveló a su candidato para ganar el Balón de Oro**: [Link](https://sinmordaza.com/noticia/412850-cristiano-ronaldo-revelo-a-su-candidato-para-ganar-el-balon-de-oro.html)
+- **Hoy en 'Buenas Noches y Buenos Goles': "Cristiano 'se olvida' de Vinicius 
+(Balón de Oro)"**: [Link](https://www.marca.com/radio/2024/09/10/66e0a8b822601d84778b459a.html)
+
+
+### bet 365 (N/A, Thu, 19 Sep 2024 12:30:00 -0700)
+
+- **DraftKings promo for NFL Week 3: Bet $5, get $250 in bonus bets**: [Link](https://www.cbssports.com/betting/draftkings-promo-for-nfl-week-3-bet-5-get-250-in-bonus-bets/)
+- **Best Patriots vs Jets Betting Promos | Get $5900+ in Bonuses Today**: [Link](https://patriotswire.usatoday.com/2024/09/19/best-patriots-vs-jets-betting-promos-get-5900-in-bonuses-today/)
+- **Fanatics Sportsbook Promo – Up to $1000 in Bonus Bets for Eagles-Falcons 
+MNF, NFL & More**: [Link](https://www.freep.com/betting/sports/fanatics-sportsbook-promo-up-to-1000-in-bonus-bets-for-eagles-falcons-mnf-nfl-more)
+
+
+### كورة سيتي (N/A, Thu, 19 Sep 2024 12:30:00 -0700)
+
+- **دوري أبطال أوروبا: سان جيرمان يهزم جيرونا ودورتموند يستعرض ضد بروج**: [Link](https://www.aljazeera.net/sport/2024/9/19/uefa-champions-league-1)
+- **شمايكل: أجواء موقعة السيتي وإنتر مملة**: [Link](https://www.kooora.com/?n=1355807)
+- **لعنة صاحبة الاذنين تطارد ارلينغ هالاند مع مانشستر سيتي**: [Link](https://hihi2.com/2024/09/19/p2854722.html)
+
+
+### akliouche (N/A, Thu, 19 Sep 2024 12:20:00 -0700)
+
+- **Foot : Brillant en Bundesliga et déjà décisif avec les Espoirs, revoilà 
+Ekitike**: [Link](https://www.lequipe.fr/Football/Article/Brillant-en-bundesliga-et-deja-decisif-avec-les-espoirs-revoila-ekitike/1507034)
+- **Maghnes Akliouche buteur, Folarin Balogun passeur décisif**: [Link](https://www.asmonaco.com/maghnes-akliouche-buteur-folarin-balogun-passeur-decisif/)
+- **Football : les Bleuets dominent la Bosnie-Herzégovine et se replacent dans 
+la course à l’Euro**: [Link](https://www.leparisien.fr/sports/football/equipe-de-france/football-les-bleuets-dominent-la-bosnie-herzegovine-et-se-replacent-dans-la-course-a-leuro-10-09-2024-62SAZS4BO5AGPG7IA26K3QGHTI.php)
+
+
 ### barcelona (N/A, Thu, 19 Sep 2024 12:20:00 -0700)
 
 - **Mónaco - Barcelona, en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/monaco-barcelona/2024/09/19/01_0103_20240919_146_178-directo.html)
