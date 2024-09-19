@@ -1,3 +1,17 @@
+### barça (N/A, Thu, 19 Sep 2024 12:30:00 -0700)
+
+- **Tebas, sobre el Caso Negreira: “Creo que el Barcelona tendrá su sanción”**: [Link](https://as.com/futbol/primera/tebas-sobre-el-caso-negreira-el-barcelona-tendra-su-sancion-n/)
+- **Javier Tebas: "Creo que el FC Barcelona terminará recibiendo su sanción''**: [Link](https://www.marca.com/videojuegos/streamers/2024/09/19/66ec472b22601deb288b4593.html)
+- **Rajadón de Tebas contra Florentino y sus "presiones"**: [Link](https://www.sport.es/es/noticias/real-madrid/rajadon-tebas-florentino-presiones-108326890)
+
+
+### othman nasrou (N/A, Thu, 19 Sep 2024 12:10:00 -0700)
+
+- **Natif de Casablanca et ancien du Lycée Lyautey, Othman Nasrou sur le point de rejoindre le gouvernement Barnier**: [Link](https://www.challenge.ma/natif-de-casablanca-et-ancien-du-lycee-lyautey-othman-nasrou-sur-le-point-de-rejoindre-le-gouvernement-barnier-287161/)
+- **Gouvernement Barnier : Bruno Retailleau annoncé au ministère de l’Intérieur**: [Link](https://www.lepoint.fr/politique/gouvernement-barnier-bruno-retailleau-annonce-au-ministere-de-l-interieur-19-09-2024-2570714_20.php)
+- **Laurence Garnier au gouvernement ? « Le Premier ministre a proposé son nom »**: [Link](https://www.ouest-france.fr/politique/gouvernement/laurence-garnier-au-gouvernement-le-premier-ministre-a-propose-son-nom-56804d60-76af-11ef-a1b1-27949002d4f5)
+
+
 ### lamine yamal (N/A, Thu, 19 Sep 2024 12:30:00 -0700)
 
 - **Cristiano admite que Lamine hace cosas que ni él ni Messi hacían a su edad**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240919/1002318524/futbol-fc-barcelona.html)
