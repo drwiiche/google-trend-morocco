@@ -1,3 +1,13 @@
+### michèl barnier premier ministre (N/A, Thu, 19 Sep 2024 16:10:00 -0700)
+
+- **En direct, gouvernement Barnier : l’exécutif sera présenté « avant dimanche 
+», Laurent Wauquiez n’en fera pas partie**: [Link](https://www.lemonde.fr/politique/live/2024/09/20/en-direct-gouvernement-barnier-l-executif-sera-presente-avant-dimanche-laurent-wauquiez-n-en-fera-pas-partie_6314327_823448.html)
+- **DIRECT. Michel Barnier va "proposer au président de la République un 
+gouvernement" à 19 heures**: [Link](https://www.bfmtv.com/politique/gouvernement/direct-gouvernement-liste-des-ministres-impots-tensions-entre-barnier-et-le-camp-macron_LN-202409190058.html)
+- **INFO RTL - Wauquiez à Bercy, Retailleau à l’Intérieur, Genevard à 
+l’Agriculture… La liste de Barnier qui fait tousser Macron**: [Link](https://www.rtl.fr/actu/politique/info-rtl-wauquiez-a-bercy-retailleau-a-l-interieur-genevard-a-l-agriculture-la-liste-de-barnier-qui-fait-tousser-macron-7900419223)
+
+
 ### matchs de ligue des champions de l'uefa (N/A, Thu, 19 Sep 2024 14:00:00 -0700)
 
 - **Ligue des champions: PSG, Real, City, Bayern... Le classement général après 
