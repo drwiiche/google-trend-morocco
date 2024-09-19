@@ -1,3 +1,69 @@
+### fifa (N/A, Thu, 19 Sep 2024 05:40:00 -0700)
+
+- **FIFA hires top executive from UEFA as chief operating officer**: [Link](https://apnews.com/article/fifa-uefa-coo-lamour-532380981dceee253b9c327e293bc45a)
+- **FIFA hires Lamour from UEFA to take COO role**: [Link](https://www.insideworldfootball.com/2024/09/19/fifa-hires-lamour-uefa-take-coo-role/)
+- **FIFA hires top executive from UEFA as chief operating officer**: [Link](https://sportstar.thehindu.com/football/fifa-hires-uefa-kevin-lamour-news-gianni-infantino-ceferin/article68659036.ece)
+
+
+### المغرب ضد بنما بث مباشر (N/A, Thu, 19 Sep 2024 05:30:00 -0700)
+
+- **القنوات الناقلة لمباراة المنتخب المغربي اليوم ضد بنما في كأس العالم للفوتسال 2024**: [Link](https://ar.hibapress.com/details-552987.html)
+- **من طشقند..حضور الجماهير المغربية والأجواء قبل مواجهة بنما في مونديال الفوتصال**: [Link](https://www.akhbarona.com/videos/392391.html)
+- **منتخب "الفوتسال" ينهي التحضير لبنما**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D8%A8%D9%86%D9%85%D8%A7-1433470.html)
+
+
+### maroc panama futsal live (N/A, Thu, 19 Sep 2024 05:30:00 -0700)
+
+- **Futsal. Panama-Maroc : à quelle heure et sur quelles chaînes ?**: [Link](https://medias24.com/2024/09/19/panama-maroc-a-quelle-heure-et-sur-quelles-chaines/)
+- **Coupe du Monde de futsal de la FIFA : le gardien Abdelkrim Anbia désigné l’Homme du match Maroc-Tadjikistan (FIFA)**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%83%D8%B1%D9%8A%D9%85-%D8%A3%D9%86%D8%A8%D9%8A%D8%A7-%D8%A7%D8%AD%D8%B3%D9%86-%D9%84/)
+- **Mondial de Futsal : L'équipe nationale en quête d'une seconde victoire face au Panama**: [Link](https://fr.hespress.com/386642-mondial-de-futsal-lequipe-nationale-en-quete-dune-seconde-victoire-face-au-panama.html)
+
+
+### bein sport (N/A, Thu, 19 Sep 2024 05:30:00 -0700)
+
+- **المعلق عصام الشوالي.. تردد قناة بي إن سبورت beIN Sport الجديد 2024 لمشاهدة مباراة مانشستر سيتي وانتر**: [Link](https://real.alsaudinews.com/166280/%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82-%D8%B9%D8%B5%D8%A7%D9%85-%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D9%84%D9%8A-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8/)
+- **تابع أقوى المباريات مجاناً| تردد قناة beIN Sports المفتوحة على نايل سات ومختلف الأقمار الصناعية 2024**: [Link](https://alkhabarkw.com/channels/%D8%AA%D8%A7%D8%A8%D8%B9-%D8%A3%D9%82%D9%88%D9%89-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%85%D8%AC%D8%A7%D9%86%D8%A7%D9%8B-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sp/8165/)
+- **تردد بين سبورت المفتوحة hd على النايل سات.. شاهد مبارياتك المفضلة الآن**: [Link](https://aleqaria.com.eg/post/details/229282/%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A8%D9%8A%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-hd-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D8%A7%D9%8A%D9%84-%D8%B3%D8%A7%D8%AA..-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA%D9%83-%D8%A7%D9%84%D9%85%D9%81%D8%B6%D9%84%D8%A9-%D8%A7%D9%84%D8%A2%D9%86)
+
+
+### panama (N/A, Thu, 19 Sep 2024 05:30:00 -0700)
+
+- **Panamá inicia excavación del primer túnel de transporte**: [Link](https://www.dw.com/es/panam%C3%A1-inicia-excavaci%C3%B3n-del-t%C3%BAnel-de-transporte-bajo-el-canal/a-70263317)
+- **Metro de Panamá: estación de Albrook se prepara para integrar la futura línea 3**: [Link](https://www.prensa.com/sociedad/metro-de-panama-estacion-de-albrook-se-prepara-para-integrar-la-futura-linea-3/)
+- **EDITORIAL: Tuneladora**: [Link](https://www.metrolibre.com/opinion/editorial/editorial-tuneladora-DL8580647)
+
+
+### جدول مباريات كأس العالم للفوتسال 2024 (N/A, Thu, 19 Sep 2024 05:30:00 -0700)
+
+- **فرنسا وإيران والمغرب والبرتغال يتطلعون إلى التأهل للدور الثاني**: [Link](https://www.fifa.com/ar/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/matchday-six-preview-ar)
+- **أجندة كأس العالم لكرة القدم داخل القاعة ـ طاجيكستان 2024 ـ**: [Link](https://www.almountakhab.com/node/13204476)
+- **الأرجنتين تفوز على أفغانستان وتتأهل لدور ثمن نهائي كأس العالم داخل القاعة**: [Link](https://rue20.com/838264.html)
+
+
+### futsal (N/A, Thu, 19 Sep 2024 05:20:00 -0700)
+
+- **Futsal: "Não viemos para dar show", diz Pito após 8 a 1 na Croácia**: [Link](https://www.fifa.com/pt/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/futsal-mundial-brasil-croacia-golacos-pito-arthur-neguinho)
+- **Arthur sai da defesa, dribla goleiro e faz golaço em vitória do Brasil na 
+Copa do Mundo**: [Link](https://lnfoficial.com.br/noticias/arthur-sai-da-defesa-dribla-goleiro-e-faz-golaco-em-vitoria-do-brasil-na-copa-do-mundo/)
+- **LPF - Mundial 2024: Confira os craques da seleção brasileira que já 
+disputaram a LPF**: [Link](https://ligapaulistafutsal.com.br/noticias/leitura/3278/mundial-2024-confira-os-craques-da-selecao-brasileira-que-ja-disputaram-a-lpf)
+
+
+### zeturf (N/A, Thu, 19 Sep 2024 05:10:00 -0700)
+
+- **Quinté+ du vendredi 20 septembre : Jasmin du Vallon, ça sent bon !**: [Link](https://www.equidia.fr/articles/quinte/quinte-du-vendredi-20-septembre-jasmin-du-vallon-ca-sent-bon)
+- **Les pronostics Quinté du 19/09/2024 à Vincennes**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-19092024-a-vincennes-4268320)
+- **Quinté+ du jeudi 19/09/2024 à Vincennes : Iguski Sautonne, une base solide**: [Link](https://www.paris-turf.com/actualites/france/quinte-du-jeudi-19-09-2024-a-vincennes-iguski-sautonne-une-base-solide-30219686928)
+
+
+### resultat quinte (N/A, Thu, 19 Sep 2024 05:10:00 -0700)
+
+- **Quinté+: PRIX DE LA VALLEE DE L'OISE - COMPIEGNE - 17/09/2024 : partants, 
+pronostics et...**: [Link](https://www.equidia.fr/courses/2024-09-17/R1/C1)
+- **Les pronos hippiques du mardi 17 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-17-septembre-2024_AN-202409160591.html)
+- **Nos Bonnes Notes en Piste - Mardi 17 septembre**: [Link](https://www.paris-turf.com/actualites/france/nos-bonnes-notes-en-piste-mardi-17-septembre-30212546979)
+
+
 ### futsal world cup (N/A, Thu, 19 Sep 2024 05:00:00 -0700)
 
 - **Futsal World Cup: Where, When to Watch Morocco vs Panama**: [Link](https://www.moroccoworldnews.com/2024/09/365261/futsal-world-cup-where-when-to-watch-morocco-vs-panama)
