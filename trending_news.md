@@ -1,3 +1,10 @@
+### futsal world cup live (N/A, Thu, 19 Sep 2024 06:40:00 -0700)
+
+- **France, Iran, Morocco and Portugal eye knockout phase**: [Link](https://www.fifa.com/en/articles/matchday-six-preview)
+- **Iran and Portugal dazzle in their FIFA Futsal World Cup openers**: [Link](https://www.ariananews.af/iran-and-portugal-dazzle-in-their-fifa-futsal-world-cup-openers/)
+- **Iran start 2024 Futsal World Cup on high**: [Link](https://www.tehrantimes.com/news/503743/Iran-start-2024-Futsal-World-Cup-on-high)
+
+
 ### fifa futsal world cup 2024 (N/A, Thu, 19 Sep 2024 06:20:00 -0700)
 
 - **Spain 1-1 Kazakhstan | Match report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/spain-kazakhstan-report-highlights)
