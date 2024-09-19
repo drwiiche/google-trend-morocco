@@ -1,3 +1,17 @@
+### ترتيب دوري أبطال أوروبا (N/A, Thu, 19 Sep 2024 14:20:00 -0700)
+
+- **ريال مدريد الأوفر حظا للفوز بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2024/9/19/marca-survey-champions-league)
+- **جدول ترتيب هدافي دوري أبطال أوروبا 2024-2025**: [Link](https://www.kooora.com/?n=1355647)
+- **أفضل 10 هدافين في دوري أبطال أوروبا.. مبابي يقتحم القائمة**: [Link](https://hihi2.com/2024/09/18/p2853443.html)
+
+
+### champions (N/A, Thu, 19 Sep 2024 14:00:00 -0700)
+
+- **Monaco vs Barcelona Live**: [Link](https://www.uefa.com/uefachampionsleague/match/2042033--monaco-vs-barcelona/)
+- **Paris vs Girona**: [Link](https://www.uefa.com/uefachampionsleague/match/2042039--paris-vs-girona/)
+- **Watch every Champions League goal plus latest Premier League news**: [Link](https://www.bbc.com/sport/football/live/c99vrpgg3mrt)
+
+
 ### fcb (N/A, Thu, 19 Sep 2024 12:20:00 -0700)
 
 - **AS Monaco 2-1 FC Barcelona: Beaten with ten men**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4122766/as-monaco-2-1-fc-barcelona-beaten-with-ten-men)
