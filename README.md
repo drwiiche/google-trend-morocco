@@ -1,3 +1,10 @@
+### كاس العالم للفوتسال 2024 (N/A, Thu, 19 Sep 2024 07:30:00 -0700)
+
+- **فرنسا وإيران والمغرب والبرتغال يتطلعون إلى التأهل للدور الثاني**: [Link](https://www.fifa.com/ar/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/matchday-six-preview-ar)
+- **أجندة كأس العالم لكرة القدم داخل القاعة ـ طاجيكستان 2024 ـ**: [Link](https://www.almountakhab.com/node/13204476)
+- **الأرجنتين تفوز على أفغانستان وتتأهل لدور ثمن نهائي كأس العالم داخل القاعة**: [Link](https://rue20.com/838264.html)
+
+
 ### فهد موفي (N/A, Thu, 19 Sep 2024 05:50:00 -0700)
 
 - **فهد موفي بالوداد وارتور وفيانا في الطريق**: [Link](https://www.almountakhab.com/node/16204502)
