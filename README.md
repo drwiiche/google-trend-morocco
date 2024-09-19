@@ -1,3 +1,29 @@
+### futsal world cup (N/A, Thu, 19 Sep 2024 05:00:00 -0700)
+
+- **Futsal World Cup: Where, When to Watch Morocco vs Panama**: [Link](https://www.moroccoworldnews.com/2024/09/365261/futsal-world-cup-where-when-to-watch-morocco-vs-panama)
+- **Tajikistan 2-4 Morocco | Report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/tajikistan-morocco-match-report-highlights)
+- **Futsal World Cup : Morocco aims for new heights after 2021 quarter finals**: [Link](https://en.yabiladi.com/articles/details/153971/futsal-world-morocco-aims-heights.html)
+
+
+### maroc panama futsal (N/A, Thu, 19 Sep 2024 04:50:00 -0700)
+
+
+
+
+### المغرب بنما (N/A, Thu, 19 Sep 2024 04:50:00 -0700)
+
+- **منتخب "الفوتسال" ينهي التحضير لبنما**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D8%A8%D9%86%D9%85%D8%A7-1433470.html)
+- **موعد مباراة المنتخب المغربي ضد بنما في مونديال الفوتسال**: [Link](https://ar.hibapress.com/details-552978.html)
+- **الموعد والقنوات الناقلة لمباراة المغرب وبنما في كأس العال?...**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/445238.html)
+
+
+### samir nasri (N/A, Thu, 19 Sep 2024 04:20:00 -0700)
+
+- **OM : Jérôme Rothen cartonne Adrien Rabiot**: [Link](https://www.footmercato.net/a7063651890267957661-om-jerome-rothen-cartonne-adrien-rabiot)
+- **"J'assume mes choix de carrière" : formé au PSG, Adrien Rabiot s'explique après avoir choisi l'OM**: [Link](https://www.tf1info.fr/sport/football-marseille-paris-j-assume-mes-choix-de-carriere-forme-au-psg-adrien-rabiot-s-explique-apres-avoir-choisi-l-om-2320380.html)
+- **Ligue 1 - Marseille - Rabiot : "Je n'ai rien à expliquer à qui que ce soit"**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/ligue-1-marseille-rabiot-je-n-ai-rien-a-expliquer-a-qui-que-ce-soit_sto10343426/story.shtml)
+
+
 ### cash investigation mckinsey (N/A, Thu, 19 Sep 2024 02:40:00 -0700)
 
 - **Cash Investigation consacré à McKinsey : le débrief**: [Link](https://www.consultor.fr/articles/cash-investigation-consacre-a-mckinsey-le-debrief)
