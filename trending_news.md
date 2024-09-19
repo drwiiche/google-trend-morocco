@@ -1,3 +1,18 @@
+### mónaco - barcelona (N/A, Thu, 19 Sep 2024 11:30:00 -0700)
+
+- **Mónaco - Barcelona, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/monaco-barcelona-en-directo-champions-league-hoy-en-vivo-n/)
+- **Flick saca un once inédito ante el Mónaco**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240919/1002318589/flick-decanta-suplir-olmo.html)
+- **El plan 'antiLamine' del Mónaco**: [Link](https://www.sport.es/es/noticias/barca/plan-antilamine-monaco-108324306)
+
+
+### leverkusen (N/A, Thu, 19 Sep 2024 10:30:00 -0700)
+
+- **Das schaffte noch kein Deutscher! Bayer-Star Wirtz schreibt bei CL-Debüt 
+Geschichte**: [Link](https://www.sport1.de/news/fussball/champions-league/2024/09/champions-league-bayer-star-wirtz-mit-blitz-tor-bei-cl-debut)
+- **Auftakt im Hexenkessel: Bayers brisantes Spiel in Rotterdam**: [Link](https://www.mainpost.de/sport/auftakt-im-hexenkessel-bayers-brisantes-spiel-in-rotterdam-art-11613200)
+- **Monaco empfängt Barcelona, Leverkusen gastiert in Rotterdam**: [Link](https://www.sarganserlaender.ch/artikel/monaco-empfaengt-barcelona-leverkusen-gastiert-in-rotterdam)
+
+
 ### أتالانتا ضد آرسنال (N/A, Thu, 19 Sep 2024 11:20:00 -0700)
 
 - **تشكيلة أرسنال الرسمية لمواجهة أتالانتا في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/09/19/p2854816.html)
