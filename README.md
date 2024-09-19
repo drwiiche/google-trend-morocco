@@ -1,3 +1,19 @@
+### فهد موفي (N/A, Thu, 19 Sep 2024 05:50:00 -0700)
+
+- **فهد موفي بالوداد وارتور وفيانا في الطريق**: [Link](https://www.almountakhab.com/node/16204502)
+- **الوداد يتفق مع لاعبين برازيليين قبل إغلاق الميركاتو**: [Link](https://www.kooora.com/?n=1355757)
+- **أيت مانة يضرب بقوة.. ويقرب لاعبا برازيليا من الوداد قبل إغلاق الميركاتو**: [Link](https://ar.sport.le360.ma/football/botola/BADOCGQ3JJBHLJBKBHO7TORIDU/)
+
+
+### المغرب ضد بنما مباشر (N/A, Thu, 19 Sep 2024 05:40:00 -0700)
+
+- **مباشر.. تحليل مباراة المغرب و بنما 6-3 / واش هادو هوما أسود القاعة لي كنعرفو**: [Link](https://www.almountakhab.com/node/16204504)
+- **لأول مرة المنتخب المغربي بدون زياش وابراهيم بعد التحاقه.. أبرز الحلول مع 
+بدرالدين و منعم**: [Link](https://www.almountakhab.com/node/16204480)
+- **هكذا علّــق بدرالدين و منعم عن أخطاء الزنيتي و الهجوم لي تعرض ليه بعد 
+مباراة العصبة**: [Link](https://www.almountakhab.com/node/16204457)
+
+
 ### bein sports live (N/A, Thu, 19 Sep 2024 05:30:00 -0700)
 
 - **Live on beIN SPORTS: Legends Match from Monterrey Stadium Featuring Xavi, 
