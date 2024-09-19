@@ -1,3 +1,26 @@
+### hihi2 (N/A, Thu, 19 Sep 2024 14:50:00 -0700)
+
+
+
+
+### champions league 2024 (N/A, Thu, 19 Sep 2024 13:50:00 -0700)
+
+- **Champions League state of play: How many points do teams need to qualify 
+for the knockout rounds?**: [Link](https://www.skysports.com/football/news/11095/13216638/champions-league-state-of-play-how-many-points-do-teams-need-to-qualify-for-the-knockout-rounds)
+- **Atalanta vs Arsenal 0-0: UEFA Champions League – as it happened**: [Link](https://www.aljazeera.com/sports/liveblog/2024/9/19/live-atalanta-vs-arsenal-uefa-champions-league)
+- **Champions League winners: Man Utd, Liverpool or Real Madrid best?**: [Link](https://www.bbc.com/sport/football/articles/cn9l0vy0j30o)
+
+
+### barça vs monaco (N/A, Thu, 19 Sep 2024 13:10:00 -0700)
+
+- **NBA icon Michael Jordan adds extra glamour to Monaco - Barcelona Champions 
+League game**: [Link](https://en.as.com/soccer/nba-icon-michael-jordan-adds-extra-glamour-to-monaco-barcelona-champions-league-game-n/)
+- **Michael Jordan and stunning wife Yvette Prieto enjoy Champions League 
+soccer in France as loved-up couple atte**: [Link](https://www.dailymail.co.uk/sport/nba/article-13870799/michael-jordan-wife-yvette-prieto-champions-league-monaco-barcelona.html)
+- **Monaco 2-1 Barcelona: George Ilenikhena scores as 10-man Barca beaten in 
+Champions League**: [Link](https://www.bbc.com/sport/football/live/c04ppddv50et)
+
+
 ### abdeslam bouchouareb (N/A, Thu, 19 Sep 2024 14:40:00 -0700)
 
 - **Algérie : un ancien ministre de l’industrie demande à la France de refuser 
