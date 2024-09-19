@@ -1,3 +1,11 @@
+### abdeslam bouchouareb (N/A, Thu, 19 Sep 2024 14:40:00 -0700)
+
+- **Algérie : un ancien ministre de l’industrie demande à la France de refuser 
+son extradition**: [Link](https://www.lemonde.fr/afrique/article/2024/09/19/algerie-un-ancien-ministre-de-l-industrie-demande-a-la-france-de-refuser-son-extradition_6324020_3212.html)
+- **L’ex-ministre Abdeslam Bouchouareb réclame la protection de la France**: [Link](https://www.tsa-algerie.com/lex-ministre-abdeslam-bouchouareb-reclame-la-protection-de-la-france/)
+- **Maghreb: un ancien ministre condamné fait une demande à la France**: [Link](https://lanouvelletribune.info/2024/09/maghreb-un-ancien-ministre-condamne-fait-une-demande-a-la-france/)
+
+
 ### ترتيب دوري أبطال أوروبا (N/A, Thu, 19 Sep 2024 14:20:00 -0700)
 
 - **ريال مدريد الأوفر حظا للفوز بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2024/9/19/marca-survey-champions-league)
