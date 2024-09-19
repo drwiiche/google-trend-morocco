@@ -1,3 +1,12 @@
+### golden bachelor (N/A, Thu, 19 Sep 2024 07:20:00 -0700)
+
+- **Joan Vassos 'Felt Like' She 'Was Cheating on' Late Husband by Falling for a 
+Golden Bachelorette Suitor (Exclusive)**: [Link](https://people.com/joan-vassos-felt-like-she-was-cheating-on-late-husband-on-golden-bachelorette-exclusive-8713458)
+- **'Golden Bachelorette' Cast: Meet the 24 Men Chosen for Joan Vassos**: [Link](https://www.today.com/popculture/tv/golden-bachelorette-contestants-cast-joan-vassos-2024-rcna166416)
+- **‘The Golden Bachelorette’ Recap: Joan Vassos Begins Her Search For A 
+Second-Chance Love In Series Premiere**: [Link](https://deadline.com/2024/09/the-golden-bachelorette-season-1-premiere-recap-1236093470/)
+
+
 ### futsal world cup live (N/A, Thu, 19 Sep 2024 06:40:00 -0700)
 
 - **France, Iran, Morocco and Portugal eye knockout phase**: [Link](https://www.fifa.com/en/articles/matchday-six-preview)
