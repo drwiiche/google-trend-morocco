@@ -1,3 +1,11 @@
+### salvatore totò schillaci (N/A, Thu, 19 Sep 2024 09:10:00 -0700)
+
+- **Ciao Totò Schillaci, the wide-eyed dreamer who stole Italian hearts**: [Link](https://www.theguardian.com/football/the-gentleman-ultra/2024/sep/19/toto-schillaci-italy-football-tribute)
+- **Salvatore Schillaci: Italy's World Cup icon dies aged 59**: [Link](https://www.bbc.com/sport/football/articles/cqlvrp4nylwo)
+- **‘He made a nation dream’: Tributes pour in for Italy soccer legend Totò 
+Schillaci after his death aged 59**: [Link](https://www.cnn.com/2024/09/18/sport/salvatore-toto-schillaci-death-italy-spt-intl/index.html)
+
+
 ### feyenoord – leverkusen (N/A, Thu, 19 Sep 2024 09:00:00 -0700)
 
 - **Bayer Leverkusen op bezoek bij Feyenoord in Champions League • Basisplaats 
