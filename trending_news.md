@@ -1,3 +1,11 @@
+### athletic bilbao (N/A, Thu, 19 Sep 2024 12:10:00 -0700)
+
+- **Athletic Bilbao vs Celta Vigo - La Liga Round 6, 2024**: [Link](https://www.foxsports.com.au/football/la-liga/match-centre/LAL2024-250602)
+- **Where to Watch CD Leganes vs. Athletic Bilbao: TV Channel, Start Time and 
+Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2024/09/18/where-to-watch-cd-leganes-vs-athletic-bilbao-tv-channel-start-time-and-live-stream/)
+- **Second half goals see Athletic Club to victory against Leganes**: [Link](https://www.football-espana.net/2024/09/19/second-half-goals-see-athletic-club-to-victory-against-leganes)
+
+
 ### brest – sturm graz (N/A, Thu, 19 Sep 2024 11:50:00 -0700)
 
 - **Pressekonferenz vor Brest auswärts**: [Link](https://sksturm.at/n/pressekonferenz-vor-brest-auswaerts)
