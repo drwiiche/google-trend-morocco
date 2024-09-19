@@ -1,3 +1,30 @@
+### barcelona (N/A, Thu, 19 Sep 2024 12:20:00 -0700)
+
+- **Mónaco - Barcelona, en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/monaco-barcelona/2024/09/19/01_0103_20240919_146_178-directo.html)
+- **Alineación posible del Barcelona contra el Mónaco hoy en la fase liga de la 
+Champions League**: [Link](https://as.com/futbol/primera/posible-alineacion-del-barcelona-contra-el-monaco-en-la-fase-liga-de-la-champions-league-n/)
+- **Flick saca un once inédito ante el Mónaco**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240919/1002318589/flick-decanta-suplir-olmo.html)
+
+
+### michael jordan (N/A, Thu, 19 Sep 2024 12:20:00 -0700)
+
+- **‘All straight vodka’ – Michael Jordan teammate recalls MJ’s hardcore summer 
+workouts that included strict d...**: [Link](https://talksport.com/basketball/2068862/antoine-walker-michael-jordan-lebron-james-summer-workout-vodka/)
+- **Kevin Garnett opens up about Michael Jordan's ruthless revenge in 
+Timberwolves matchup**: [Link](https://bolavip.com/en/nba/kevin-garnett-opens-up-about-michael-jordans-ruthless-revenge-in-timberwolves-matchup)
+- **Michael Jordan had the coldest response ever to NBA star who spoke out of 
+line in front of him during a match**: [Link](https://www.sportbible.com/nba/michael-jordan-kevin-garnett-basketball-162871-20240919)
+
+
+### atalanta vs arsenal (N/A, Thu, 19 Sep 2024 11:30:00 -0700)
+
+- **Champions League LIVE: Atalanta vs Arsenal plus five more fixtures - score 
+& text updates**: [Link](https://www.bbc.com/sport/football/live/cp8nr1lpn4et)
+- **Champions League expert picks, predictions, best bets: Barcelona cruise 
+while Arsenal battle with Atalanta**: [Link](https://www.cbssports.com/soccer/news/champions-league-expert-picks-predictions-best-bets-barcelona-cruise-while-arsenal-battle-with-atalanta/)
+- **🔴 LIVE: 10-man Barcelona behind; Leipzig lead Atlético; Arsenal goalless**: [Link](https://onefootball.com/id/berita/live-10-man-barcelona-behind-leipzig-lead-atletico-arsenal-goalless-40056990)
+
+
 ### athletic bilbao (N/A, Thu, 19 Sep 2024 12:10:00 -0700)
 
 - **Athletic Bilbao vs Celta Vigo - La Liga Round 6, 2024**: [Link](https://www.foxsports.com.au/football/la-liga/match-centre/LAL2024-250602)
