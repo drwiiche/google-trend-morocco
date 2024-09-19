@@ -1,3 +1,12 @@
+### barca vs monaco (N/A, Thu, 19 Sep 2024 09:40:00 -0700)
+
+- **PREVIEW | AS Monaco v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4121484/preview-as-monaco-v-fc-barcelona)
+- **‘That’s the key’ - Monaco boss talks defending Lewandowski, Raphinha and 
+Lamine Yamal**: [Link](https://www.barcablaugranes.com/2024/9/18/24248066/thats-the-key-monaco-boss-talks-defending-lewandowski-raphinha-and-lamine-yamal)
+- **Monaco vs. Barcelona odds, prediction, pick: Champions League live stream, 
+where to watch, what to know**: [Link](https://www.cbssports.com/soccer/news/monaco-vs-barcelona-odds-prediction-pick-champions-league-live-stream-where-to-watch-what-to-know/)
+
+
 ### salvatore totò schillaci (N/A, Thu, 19 Sep 2024 09:10:00 -0700)
 
 - **Ciao Totò Schillaci, the wide-eyed dreamer who stole Italian hearts**: [Link](https://www.theguardian.com/football/the-gentleman-ultra/2024/sep/19/toto-schillaci-italy-football-tribute)
