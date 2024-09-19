@@ -1,3 +1,21 @@
+### matchs de ligue des champions de l'uefa (N/A, Thu, 19 Sep 2024 14:00:00 -0700)
+
+- **Ligue des champions: PSG, Real, City, Bayern... Le classement général après 
+la 1ère journée**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/ligue-des-champions-lille-real-bayern-le-classement-general-apres-la-1ere-journee_AV-202409170962.html)
+- **Ligue des Champions 2024-2025 : sur quelle chaîne voir la compétition cette 
+année en direct ?**: [Link](https://www.ouest-france.fr/sport/football/ligue-des-champions/ligue-des-champions-2024-2025-sur-quelle-chaine-voir-la-competition-cette-annee-en-direct-56971944-7436-11ef-9856-77086801e3cb)
+- **Ligue des champions : la nouvelle ère débute avec des affiches à foison**: [Link](https://lematin.ma/sports/ligue-des-champions-la-nouvelle-ere-debute-avec-des-affiches-a-foison/243107)
+
+
+### barca monaco (N/A, Thu, 19 Sep 2024 13:20:00 -0700)
+
+- **Monaco vs. Barcelona odds, prediction, pick: Champions League live stream, 
+where to watch, what to know**: [Link](https://www.cbssports.com/soccer/news/monaco-vs-barcelona-odds-prediction-pick-champions-league-live-stream-where-to-watch-what-to-know/)
+- **‘That’s the key’ - Monaco boss talks defending Lewandowski, Raphinha and 
+Lamine Yamal**: [Link](https://www.barcablaugranes.com/2024/9/18/24248066/thats-the-key-monaco-boss-talks-defending-lewandowski-raphinha-and-lamine-yamal)
+- **How to watch Monaco vs. Barcelona online for free**: [Link](https://mashable.com/article/monaco-barcelona-champions-league-2024-live-stream-for-free)
+
+
 ### حلا شيحة (N/A, Thu, 19 Sep 2024 15:10:00 -0700)
 
 - **حلا شيحة تتصدر محركات البحث بإطلالتها على إنستغرام (صور)**: [Link](https://ar.hibapress.com/details-552831.html)
