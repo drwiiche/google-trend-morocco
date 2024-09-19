@@ -1,3 +1,22 @@
+### barca (N/A, Thu, 19 Sep 2024 12:10:00 -0700)
+
+- **Monaco vs. Barcelona odds, prediction, pick: Champions League live stream, 
+where to watch, what to know**: [Link](https://www.cbssports.com/soccer/news/monaco-vs-barcelona-odds-prediction-pick-champions-league-live-stream-where-to-watch-what-to-know/)
+- **‘That’s the key’ - Monaco boss talks defending Lewandowski, Raphinha and 
+Lamine Yamal**: [Link](https://www.barcablaugranes.com/2024/9/18/24248066/thats-the-key-monaco-boss-talks-defending-lewandowski-raphinha-and-lamine-yamal)
+- **How to watch Monaco vs. Barcelona online for free**: [Link](https://mashable.com/article/monaco-barcelona-champions-league-2024-live-stream-for-free)
+
+
+### barcelona vs monaco (N/A, Thu, 19 Sep 2024 11:50:00 -0700)
+
+- **Barcelona's perfect start to the season hit by early red card in the 
+Champions League**: [Link](https://www.goskagit.com/spotlight/barcelonas-perfect-start-to-the-season-hit-by-early-red-card-in-the-champions-league/article_d7cf3ae3-6694-5ee1-8f05-aac9d00ce169.html)
+- **Barcelona's Eric Garcia Receives Red Card, Sent Off vs. AS Monaco – 
+Champions League**: [Link](https://www.si.com/soccer/barcelona-eric-garcia-red-card-vs-as-monaco-champions-league)
+- **Barcelona have player sent off against Monaco after referee shows him WRONG 
+card**: [Link](https://www.sportbible.com/football/football-news/barcelona-monaco-champions-league-eric-garcia-108175-20240919)
+
+
 ### barça (N/A, Thu, 19 Sep 2024 12:30:00 -0700)
 
 - **Tebas, sobre el Caso Negreira: “Creo que el Barcelona tendrá su sanción”**: [Link](https://as.com/futbol/primera/tebas-sobre-el-caso-negreira-el-barcelona-tendra-su-sancion-n/)
