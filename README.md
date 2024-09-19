@@ -1,3 +1,12 @@
+### transfermarkt (N/A, Wed, 18 Sep 2024 16:40:00 -0700)
+
+- **Mikel Arteta signs new Arsenal contract**: [Link](https://www.arsenal.com/news/mikel-arteta-signs-new-arsenal-contract)
+- **David Ornstein believes Arsenal and Mikel Arteta have done something that 
+will upset Premier League rivals**: [Link](https://www.arsenalinsider.com/news/david-ornstein-believes-arsenal-and-mikel-arteta-have-done-something-that-will-upset-premier-league-rivals/)
+- **Premier League build-up: Ten Hag confirms Ugarte's available for debut plus 
+Arteta signs new contract**: [Link](https://www.bbc.com/sport/football/live/cze5790xjjlt?page=4)
+
+
 ### دنيا بطمة (N/A, Wed, 18 Sep 2024 18:30:00 -0700)
 
 - **ظهور جديد لابنتَي دنيا بطمة بعدما كبُرتا**: [Link](https://www.lahamag.com/article/214967-%D8%B8%D9%87%D9%88%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D8%A7%D8%A8%D9%86%D8%AA%D9%8A-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A8%D8%B7%D9%85%D8%A9-%D8%A8%D8%B9%D8%AF%D9%85%D8%A7-%D9%83%D8%A8%D8%B1%D8%AA%D8%A7)
