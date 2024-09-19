@@ -1,3 +1,19 @@
+### weather (N/A, Wed, 18 Sep 2024 23:00:00 -0700)
+
+- **KCBD News at 6 Weather - Thursday, Sept. 18**: [Link](https://www.kcbd.com/video/2024/09/18/kcbd-news-6-weather-thursday-sept-18/)
+- **Wednesday evening First Alert Forecast from Chief Meteorologist Ron 
+Childers-September 18, 2024**: [Link](https://www.actionnews5.com/video/2024/09/18/wednesday-evening-first-alert-forecast-chief-meteorologist-ron-childers-september-18-2024/)
+- **Hot final few days of summer expected, rain chance on the horizon | Sep. 
+18, 2024**: [Link](https://www.wishtv.com/weather/weather-blog/hot-final-few-days-of-summer-expected-rain-chance-on-the-horizon-sep-18-2024/)
+
+
+### الطقس (N/A, Wed, 18 Sep 2024 22:50:00 -0700)
+
+- **المغرب يشهد تقلبات في الحالة الجوية .. وزخات رعدية مرتقبة بمناطق عديدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B4%D9%87%D8%AF-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%88-1433138.html)
+- **نشرة إنذارية: أمطار رعدية غزيرة ورياح من الخميس إلى الأحد ب...**: [Link](https://kech24.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D9%86-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%B9%D8%AF%D8%A9-%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9.html)
+- **عاصفة رعدية في ميدلت تُسفر عن خسائر كبيرة في محاصيل التفاح**: [Link](https://ar.hibapress.com/details-552865.html)
+
+
 ### حالة الطقس اليوم (N/A, Wed, 18 Sep 2024 22:10:00 -0700)
 
 - **المغرب يشهد تقلبات في الحالة الجوية .. وزخات رعدية مرتقبة بمناطق عديدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B4%D9%87%D8%AF-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%88-1433138.html)
