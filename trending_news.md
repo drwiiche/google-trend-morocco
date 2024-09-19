@@ -1,3 +1,10 @@
+### فيينورد ضد ليفركوزن (N/A, Thu, 19 Sep 2024 10:30:00 -0700)
+
+- **الرسم التكتيكي لفريقي باير ليفركوزن و فينورد**: [Link](https://hihi2.com/2024/09/19/p2854736.html)
+- **فيرتز يوقع على هدف تاريخي**: [Link](https://www.kooora.com/?n=1355828&o=n)
+- **فاينورد ضد باير ليفركوزن: نتائج مباشرة، تشكيلات ومواجهات سابقة**: [Link](https://www.365scores.com/ar/football/match/uefa-champions-league-572/bayer-leverkusen-feyenoord-333-691-572)
+
+
 ### leganés – ath. bilbao (N/A, Thu, 19 Sep 2024 09:10:00 -0700)
 
 - **El Lega regresa a Butarque con el Athletic como nuevo reto**: [Link](https://www.cdleganes.com/noticias/el-lega-regresa-a-butarque-con-el-athletic-como-nuevo-reto)
