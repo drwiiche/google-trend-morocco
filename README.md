@@ -1,3 +1,11 @@
+### météo (N/A, Wed, 18 Sep 2024 23:10:00 -0700)
+
+- **Averses orageuses accompagnées de la grêle et de rafales de vent, de jeudi 
+à dimanche**: [Link](https://ledesk.ma/encontinu/averses-orageuses-accompagnees-de-la-grele-et-de-rafales-de-vent-de-jeudi-a-dimanche/)
+- **Le temps qu'il fera ce jeudi 19 septembre 2024**: [Link](https://fr.hespress.com/386614-le-temps-quil-fera-ce-jeudi-19-septembre-2024.html)
+- **Analyse. Comprendre le passé des crues catastrophiques du Maroc**: [Link](https://medias24.com/2024/09/16/analyse-comprendre-le-passe-des-crues-catastrophiques-du-maroc/)
+
+
 ### weather (N/A, Wed, 18 Sep 2024 23:00:00 -0700)
 
 - **KCBD News at 6 Weather - Thursday, Sept. 18**: [Link](https://www.kcbd.com/video/2024/09/18/kcbd-news-6-weather-thursday-sept-18/)
