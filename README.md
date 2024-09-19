@@ -1,3 +1,12 @@
+### bein sports live (N/A, Thu, 19 Sep 2024 05:30:00 -0700)
+
+- **Live on beIN SPORTS: Legends Match from Monterrey Stadium Featuring Xavi, 
+Buffon, Puyol**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/live-on-bein-sports-legends-match-from-monterrey-stadium-featuring-xavi-buffon-puyol-2024-09-17)
+- **Celtic: Slovan win a Champions League career high for Callum McGregor**: [Link](https://www.bbc.com/sport/articles/cly4nvv9z34o)
+- **Celtic's five-goal Champions League thriller shows opportunity for smaller 
+teams in cup's new format**: [Link](https://www.cbssports.com/soccer/news/celtics-five-goal-champions-league-thriller-shows-opportunity-for-smaller-teams-in-cups-new-format/)
+
+
 ### golden bachelor (N/A, Thu, 19 Sep 2024 07:20:00 -0700)
 
 - **Joan Vassos 'Felt Like' She 'Was Cheating on' Late Husband by Falling for a 
