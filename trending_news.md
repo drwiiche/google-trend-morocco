@@ -1,3 +1,10 @@
+### leganés – ath. bilbao (N/A, Thu, 19 Sep 2024 09:10:00 -0700)
+
+- **El Lega regresa a Butarque con el Athletic como nuevo reto**: [Link](https://www.cdleganes.com/noticias/el-lega-regresa-a-butarque-con-el-athletic-como-nuevo-reto)
+- **Borja Jiménez, sobre Neyou, Naïm, Javi Hernández, Juan Cruz, Tapia, Miguel, Haller, Munir, Diego, Raba, las rotaciones y el Athletic**: [Link](https://www.futbolfantasy.com/laliga/noticias/119934-borja-jimenez-sobre-neyou-naim-javi-hernandez-juan-cruz-tapia-miguel-haller-munir-diego-raba-)
+- **«Queremos dar un pequeño salto»**: [Link](https://www.elcorreo.com/athletic/queremos-dar-pequeno-salto-20240918170601-nt.html)
+
+
 ### bayer leverkusen (N/A, Thu, 19 Sep 2024 10:10:00 -0700)
 
 - **Xabi Alonso grinst: "Haben letztes Jahr zu sehr genossen" | Leverkusen-Coach will von Null starten | Video**: [Link](https://www.kicker.de/xabi-alonso-grinst-haben-letztes-jahr-zu-sehr-genossen-1052204/video)
