@@ -1,3 +1,18 @@
+### monaco – barcelone (N/A, Thu, 19 Sep 2024 11:00:00 -0700)
+
+- **Ligue des champions - Monaco a-t-il toujours la culture de l'Europe ?**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-monaco-a-t-il-toujours-la-culture-de-l-europe_sto10342556/story.shtml)
+- **EN DIRECT AS Monaco-FC Barcelone : Les Monégasques en quête d’exploit face …**: [Link](https://www.20minutes.fr/sport/football/ligue_des_champions/4110912-20240919-direct-monaco-fc-barcelone-monegasques-quete-exploit-face-barca-retour-ligue-champions-suivez-choc)
+- **Tactique : avec Flick, déjà le divertissement - C1 - J1 - AS Monaco-FC 
+Barcelone**: [Link](https://www.sofoot.com/articles/tactique-pourquoi-le-fc-barcelone-dhansi-flick-est-il-si-divertissant)
+
+
+### موناكو ضد برشلونة (N/A, Thu, 19 Sep 2024 11:00:00 -0700)
+
+- **كوندي يتضامن مع رودري.. ويهدد بالإضراب**: [Link](https://www.kooora.com/?n=1355600)
+- **ليفاندوفسكي على رأس تشكيل برشلونة ضد موناكو**: [Link](http://www.kooora.com/default.aspx?n=1355833&pg=1&o=n)
+- **طلب عاجل من إدارة برشلونة**: [Link](https://hihi2.com/2024/09/19/p2854497.html)
+
+
 ### فيينورد ضد ليفركوزن (N/A, Thu, 19 Sep 2024 10:30:00 -0700)
 
 - **الرسم التكتيكي لفريقي باير ليفركوزن و فينورد**: [Link](https://hihi2.com/2024/09/19/p2854736.html)
