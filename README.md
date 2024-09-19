@@ -1,3 +1,11 @@
+### cash investigation mckinsey (N/A, Thu, 19 Sep 2024 02:40:00 -0700)
+
+- **Cash Investigation consacré à McKinsey : le débrief**: [Link](https://www.consultor.fr/articles/cash-investigation-consacre-a-mckinsey-le-debrief)
+- **«Vous êtes dangereuse» : Jean-Michel Blanquer exaspéré par Élise Lucet dans 
+«Cash Investigation»**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/vous-etes-dangereuse-jean-michel-blanquer-exaspere-par-elise-lucet-dans-cash-investigation-20240918)
+- **Cash Investigation McKinsey, une firme au coeur du pouvoir**: [Link](https://www.france.tv/france-2/cash-investigation/6472865-mckinsey-une-firme-au-coeur-du-pouvoir.html)
+
+
 ### tupperware (N/A, Wed, 18 Sep 2024 21:20:00 -0700)
 
 - **‘The party is over’ as Tupperware files for bankruptcy after years of 
