@@ -1,3 +1,31 @@
+### ansu fati (N/A, Thu, 19 Sep 2024 14:00:00 -0700)
+
+- **Ansu Fati declared fit and included in squad for Monaco**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4121496/ansu-fati-declared-fit-and-included-in-squad-for-monaco)
+- **FC Barcelona News: 19 September 2024; All set for Champions League debut, Ansu Fati returns to squad**: [Link](https://www.barcablaugranes.com/2024/9/19/24248377/fc-barcelona-news-19-september-2024-all-set-for-champions-league-debut-ansu-fati-returns-to-squad)
+- **Monaco vs. Barcelona: Forgotten man back in Catalan team's squad for European clash**: [Link](https://www.sportsmole.co.uk/football/barcelona/injury-news/news/hes-back-forgotten-man-returns-for-barcelona-against-monaco_553213.html)
+
+
+### classement ligue des champions de l'uefa (N/A, Thu, 19 Sep 2024 14:00:00 -0700)
+
+- **Ligue des champions: PSG, Real, City, Bayern... Le classement général après la 1ère journée**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/ligue-des-champions-lille-real-bayern-le-classement-general-apres-la-1ere-journee_AV-202409170962.html)
+- **Ligue des champions : la nouvelle ère débute avec des affiches à foison**: [Link](https://lematin.ma/sports/ligue-des-champions-la-nouvelle-ere-debute-avec-des-affiches-a-foison/243107)
+- **Ligue des champions - Hervé Mathoux (Canal Plus): "Avec le nouveau format, la magie opère plus que jamais"**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-herve-mathoux-avec-le-nouveau-format-la-magie-opere-plus-que-jamais_sto10343252/story.shtml)
+
+
+### brest fc (N/A, Thu, 19 Sep 2024 13:50:00 -0700)
+
+- **Brest vs Toulouse Prediction, 9/22/2024 Ligue 1 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/brest-vs-toulouse-prediction-9-22-2024-ligue-1-soccer-pick-tips-and-odds.html)
+- **Champions League LIVE: Atalanta vs Arsenal locked at 0-0, Yamal becomes second-youngest scorer, Boniface...**: [Link](https://talksport.com/football/2060197/champions-league-live-latest-news-scores-results-arsenal-liverpool-real-madrid/)
+- **🔴 LIVE: Atlético, 10-man Barcelona level; Brest lead; Arsenal goalless**: [Link](https://onefootball.com/id/berita/live-atletico-10-man-barcelona-level-brest-lead-arsenal-goalless-40056990)
+
+
+### adrien rabiot om (N/A, Thu, 19 Sep 2024 13:50:00 -0700)
+
+- **Adrien Rabiot's agent slammed after France star joins Marseille**: [Link](https://www.goal.com/en-us/lists/adrien-rabiot-mother-agent-slammed-france-star-joins-mason-greenwood-roberto-de-zerbi-marseille/bltb7288cd346d841ce)
+- **Tottenham, Man Utd rejected chance to sign 48-cap star on a free as mother is branded 'incompetent'**: [Link](https://www.teamtalk.com/news/man-utd-tottenham-transfer-miss-comes-to-light-with-stars-mother-and-agent-branded-incompetent)
+- **Ex-PSG star Rabiot joins Marseille on free transfer**: [Link](https://www.espn.com/soccer/story/_/id/41301775/france-adrien-rabiot-signs-marseille-transfer)
+
+
 ### lewandowski (N/A, Thu, 19 Sep 2024 13:20:00 -0700)
 
 - **Robert Lewandowski w wyszukiwarce. O co Polacy pytają Google? Interesują 
