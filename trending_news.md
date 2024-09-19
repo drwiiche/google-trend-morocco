@@ -1,3 +1,10 @@
+### uefa champions league (N/A, Thu, 19 Sep 2024 12:40:00 -0700)
+
+- **Monaco vs Barcelona Live**: [Link](https://www.uefa.com/uefachampionsleague/match/2042033--monaco-vs-barcelona/)
+- **Paris vs Girona**: [Link](https://www.uefa.com/uefachampionsleague/match/2042039--paris-vs-girona/)
+- **Watch Champions League Match of the Day**: [Link](https://www.bbc.co.uk/sport/football/live/clywr6d1epyt)
+
+
 ### ansu fati (N/A, Thu, 19 Sep 2024 14:00:00 -0700)
 
 - **Ansu Fati declared fit and included in squad for Monaco**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4121496/ansu-fati-declared-fit-and-included-in-squad-for-monaco)
