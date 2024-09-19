@@ -1,3 +1,10 @@
+### حالة الطقس اليوم (N/A, Wed, 18 Sep 2024 22:10:00 -0700)
+
+- **المغرب يشهد تقلبات في الحالة الجوية .. وزخات رعدية مرتقبة بمناطق عديدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B4%D9%87%D8%AF-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%88-1433138.html)
+- **عاصفة رعدية في ميدلت تُسفر عن خسائر كبيرة في محاصيل التفاح**: [Link](https://ar.hibapress.com/details-552865.html)
+- **توقعات أحوال الطقس اليوم الأربعاء**: [Link](https://aljarida24.ma/p/actualites/287964/)
+
+
 ### joachim du bellay (N/A, Wed, 18 Sep 2024 17:30:00 -0700)
 
 - **Le poète Joachim Du Bellay identifié dans un cercueil retrouvé à Notre-Dame 
