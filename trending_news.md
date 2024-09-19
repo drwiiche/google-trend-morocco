@@ -1,3 +1,18 @@
+### fifa futsal (N/A, Thu, 19 Sep 2024 05:50:00 -0700)
+
+- **Brazil 8-1 Croatia**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/brazil-croatia-match-report-highlights)
+- **Australians are flocking to play futsal, a sport that helped launch many 
+elite soccer careers**: [Link](https://theconversation.com/australians-are-flocking-to-play-futsal-a-sport-that-helped-launch-many-elite-soccer-careers-238434)
+- **Futsal World Cup results and fixtures**: [Link](https://www.uefa.com/futsalworldcup/news/028e-1b2711b56f2a-d5140b97e7e3-1000--futsal-world-cup-results-and-fixtures/)
+
+
+### bein sports (N/A, Thu, 19 Sep 2024 05:40:00 -0700)
+
+- **إنريكي: لا تظلموا باريس.. ولم أعد مهتما بمبابي!**: [Link](https://www.kooora.com/?n=1355678)
+- **حكيمي: إنريكي يطالبني دائما باستغلال المساحات**: [Link](https://www.almountakhab.com/node/16204496)
+- **باريس سان جيرمان يحقق فوزاً صعباً على جيرونا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D8%B5%D8%B9%D8%A8%D8%A7-%D8%B9%D9%84%D9%89-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-2024-09-18)
+
+
 ### fifa (N/A, Thu, 19 Sep 2024 05:40:00 -0700)
 
 - **FIFA hires top executive from UEFA as chief operating officer**: [Link](https://apnews.com/article/fifa-uefa-coo-lamour-532380981dceee253b9c327e293bc45a)
