@@ -1,3 +1,32 @@
+### أتالانتا ضد آرسنال (N/A, Thu, 19 Sep 2024 11:20:00 -0700)
+
+- **تشكيلة أرسنال الرسمية لمواجهة أتالانتا في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/09/19/p2854816.html)
+- **جيسوس يقود هجوم آرسنال أمام أتالانتا**: [Link](https://www.kooora.com/?n=1355836&o=n1000001)
+- **أتالانتا يلاقي آرسنال وعينه على النقاط الثلاث**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%8A%D9%84%D8%A7%D9%82%D9%8A-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%B9%D9%8A%D9%86%D9%87-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB-2024-09-19)
+
+
+### monaco vs barcelona (N/A, Thu, 19 Sep 2024 11:10:00 -0700)
+
+- **PREVIEW | AS Monaco v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4121484/preview-as-monaco-v-fc-barcelona)
+- **‘That’s the key’ - Monaco boss talks defending Lewandowski, Raphinha and 
+Lamine Yamal**: [Link](https://www.barcablaugranes.com/2024/9/18/24248066/thats-the-key-monaco-boss-talks-defending-lewandowski-raphinha-and-lamine-yamal)
+- **FC Barcelona Vs AS Monaco Preview: Barca eyeing a dream start in UCL**: [Link](https://everythingbarca.com/posts/fc-barcelona-vs-as-monaco-preview-barca-eyeing-a-dream-start-in-ucl-01j84v7akns0)
+
+
+### atalanta – arsenal (N/A, Thu, 19 Sep 2024 11:10:00 -0700)
+
+- **Atalanta vs Arsenal LIVE: Champions League score, line-ups, commentary & stats**: [Link](https://www.bbc.com/sport/football/live/cdrjj33nx22t)
+- **Atalanta-Arsenal - Champions League 2024/2025 Statistical Preview**: [Link](https://www.whoscored.com/Matches/1866171/Preview/Europe-Champions-League-2024-2025-Atalanta-Arsenal)
+- **Jorginho says unbelievable Arsenal talent is improving daily**: [Link](https://www.nowarsenal.com/latest-news/jorginho-says-unbelievable-arsenal-talent-is-improving-daily/)
+
+
+### atlético madrid – rb leipzig (N/A, Thu, 19 Sep 2024 11:10:00 -0700)
+
+- **Preview: Atletico Madrid vs. RB Leipzig - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/champions-league/preview/preview-atletico-vs-rb-leipzig-prediction-team-news-lineups_553151.html)
+- **Simeone: "We Have to Demand More of Ourselves"**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles-video/simeone-we-have-to-demand-more-of-ourselves-2024-09-18)
+- **Atlético de Madrid - RB Leipzig: A new era in the Champions League**: [Link](https://www.intothecalderon.com/2024/9/18/24247713/atletico-madrid-leipzig-champions-league-laliga-bundesliga-preview-griezmann-alvarez-xavi-simons)
+
+
 ### monaco – barcelone (N/A, Thu, 19 Sep 2024 11:00:00 -0700)
 
 - **Ligue des champions - Monaco a-t-il toujours la culture de l'Europe ?**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-monaco-a-t-il-toujours-la-culture-de-l-europe_sto10342556/story.shtml)
