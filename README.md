@@ -1,3 +1,28 @@
+### feyenoord vs leverkusen (N/A, Thu, 19 Sep 2024 10:00:00 -0700)
+
+- **Preview: Feyenoord vs. Bayer Leverkusen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/champions-league/preview/preview-feyenoord-vs-bpoint-leverkusen-prediction-team-news-lineups_553121.html)
+- **Feyenoord vs. Bayer Leverkusen: UEFA Champions League team news, match 
+stats & LIVE blog!**: [Link](https://www.bundesliga.com/en/bundesliga/news/feyenoord-bayer-leverkusen-live-champions-league-blog-preview-report-wirtz-28885)
+- **Feyenoord vs Bayer Leverkusen: Preview, predictions and lineups**: [Link](https://www.90min.com/feyenoord-vs-bayer-leverkusen-preview-predictions-lineups-19-9-24)
+
+
+### benfica (N/A, Thu, 19 Sep 2024 10:00:00 -0700)
+
+- **Estrela Vermelha - SL Benfica**: [Link](https://www.rtp.pt/noticias/desporto/estrela-vermelha-sl-benfica_e1601135)
+- **«Estou pronto para ajudar a equipa no campo ou fora dele»**: [Link](https://www.abola.pt/futebol/noticias/estou-pronto-para-ajudar-a-equipa-no-campo-ou-fora-dele-2024091915305833570)
+- **AO VIVO: Akturkoglu testa a atenção de Glazer (2')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-dos-campeoes-ao-vivo-akturkoglu-testa-a-atencao-de-glazer-2/0jpg4mu3/)
+
+
+### بت مباشرة (N/A, Thu, 19 Sep 2024 06:00:00 -0700)
+
+- **CBS’s stars, BBC’s debut and Prime delivers: How the Champions League 
+broadcasters compare so far - The Athletic**: [Link](https://www.nytimes.com/athletic/5776157/2024/09/19/champions-league-broadcasters-cbs-prime-bbc-tnt/)
+- **Where to watch Juventus vs. PSV live stream, prediction: UEFA Champions 
+League live online, TV channel, odds**: [Link](https://www.cbssports.com/soccer/news/where-to-watch-juventus-vs-psv-live-stream-prediction-uefa-champions-league-live-online-tv-channel-odds/)
+- **TV and Streaming Viewing Picks for September 17, 2024; how to watch UEFA 
+Champions League**: [Link](https://awfulannouncing.com/viewing-picks/september-17-2024-watch-uefa-champions-league.html)
+
+
 ### barca vs monaco (N/A, Thu, 19 Sep 2024 09:40:00 -0700)
 
 - **PREVIEW | AS Monaco v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4121484/preview-as-monaco-v-fc-barcelona)
