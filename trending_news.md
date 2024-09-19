@@ -1,3 +1,34 @@
+### fifa futsal world cup 2024 (N/A, Thu, 19 Sep 2024 06:20:00 -0700)
+
+- **Spain 1-1 Kazakhstan | Match report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/spain-kazakhstan-report-highlights)
+- **Futsal World Cup results and fixtures**: [Link](https://www.uefa.com/futsalworldcup/news/028e-1b2711b56f2a-d5140b97e7e3-1000--futsal-world-cup-results-and-fixtures/)
+- **FIFA Futsal World Cup Uzbekistan 2024™ to be broadcast live in over 175 
+territories**: [Link](https://inside.fifa.com/news/fifa-futsal-world-cup-uzbekistan-2024-be-broadcast-live-in-over-175-territories)
+
+
+### الرياضية (N/A, Thu, 19 Sep 2024 06:10:00 -0700)
+
+- **ترحيب واسع بتعيين رشيد جابر مدربا لعمان**: [Link](https://www.kooora.com/?n=1355716)
+- **إنهاء التعاقد مع مدرب منتخب عُمان تشيلافي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D9%86%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B9-%D9%85%D8%A7%D9%86-%D8%AA%D8%B4%D9%8A%D9%84%D8%A7%D9%81%D9%8A-2024-09-19)
+- **الاتحاد العماني يعلن رحيل التشيكي شيلهافي عن تدريب المنتخب - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/237597/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%AA%D8%B4%D9%8A%D9%83%D9%8A-%D8%B4%D9%8A%D9%84%D9%87%D8%A7%D9%81%D9%8A-%D8%B9%D9%86-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8---AARC-%D9%85%D8%B5%D8%B1.html)
+
+
+### uzbekistan (N/A, Thu, 19 Sep 2024 06:10:00 -0700)
+
+- **Azerbaijan, Uzbekistan discuss diversification of joint activities on 
+Middle Corridor**: [Link](https://www.azernews.az/business/231485.html)
+- **Azerbaijan, Central Asia merge paths for new frontier | Daily Sabah**: [Link](https://www.dailysabah.com/opinion/op-ed/azerbaijan-central-asia-merge-paths-for-new-frontier)
+- **Azerbaijan, Uzbekistan hold regular consular consultations**: [Link](https://azertag.az/en/xeber/azerbaijan_uzbekistan_hold_regular_consular_consultations-3186338)
+
+
+### المغرب وبنما مباشر (N/A, Thu, 19 Sep 2024 05:30:00 -0700)
+
+- **القنوات الناقلة لمباراة المنتخب المغربي اليوم ضد بنما في كأس العالم 
+للفوتسال 2024**: [Link](https://ar.hibapress.com/details-552987.html)
+- **الموعد والقنوات الناقلة لمباراة المغرب وبنما في كأس العال?...**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/445238.html)
+- **منتخب "الفوتسال" ينهي التحضير لبنما**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D8%A8%D9%86%D9%85%D8%A7-1433470.html)
+
+
 ### fifa futsal (N/A, Thu, 19 Sep 2024 05:50:00 -0700)
 
 - **Brazil 8-1 Croatia**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/brazil-croatia-match-report-highlights)
