@@ -1,3 +1,12 @@
+### fcb (N/A, Thu, 19 Sep 2024 12:20:00 -0700)
+
+- **AS Monaco 2-1 FC Barcelona: Beaten with ten men**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4122766/as-monaco-2-1-fc-barcelona-beaten-with-ten-men)
+- **Marc-Andre ter Stegen says he ‘feels bad for Eric Garcia’ after Champions 
+League red card for Barcelona**: [Link](https://www.barcablaugranes.com/2024/9/19/24249354/marc-andre-ter-stegen-feels-bad-eric-garcia-champions-league-red-card-barcelona)
+- **Barcelona's perfect start to the season hit by early red card in the 
+Champions League**: [Link](https://www.dailyunion.com/sports/national/barcelonas-perfect-start-to-the-season-hit-by-early-red-card-in-the-champions-league/article_76a18063-4b6c-5563-bfd2-084d7d47a9e8.html)
+
+
 ### uefa champions league (N/A, Thu, 19 Sep 2024 12:40:00 -0700)
 
 - **Monaco vs Barcelona Live**: [Link](https://www.uefa.com/uefachampionsleague/match/2042033--monaco-vs-barcelona/)
