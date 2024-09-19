@@ -1,3 +1,10 @@
+### bayer leverkusen (N/A, Thu, 19 Sep 2024 10:10:00 -0700)
+
+- **Xabi Alonso grinst: "Haben letztes Jahr zu sehr genossen" | Leverkusen-Coach will von Null starten | Video**: [Link](https://www.kicker.de/xabi-alonso-grinst-haben-letztes-jahr-zu-sehr-genossen-1052204/video)
+- **Auftakt im Hexenkessel: Bayers brisantes Spiel in Rotterdam**: [Link](https://www.mainpost.de/sport/auftakt-im-hexenkessel-bayers-brisantes-spiel-in-rotterdam-art-11613200)
+- **Feyenoord Rotterdam gegen Bayer Leverkusen heute live im TV und Stream: Hier läuft die Champions League**: [Link](https://www.fr.de/sport/fussball/league-feyenoord-rotterdam-gegen-bayer-leverkusen-live-im-tv-und-stream-hier-laeuft-champions-93302924.html)
+
+
 ### feyenoord vs leverkusen (N/A, Thu, 19 Sep 2024 10:00:00 -0700)
 
 - **Preview: Feyenoord vs. Bayer Leverkusen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/feyenoord/champions-league/preview/preview-feyenoord-vs-bpoint-leverkusen-prediction-team-news-lineups_553121.html)
