@@ -1,3 +1,13 @@
+### laurence garnier (N/A, Fri, 20 Sep 2024 05:20:00 -0700)
+
+- **Emmanuel Macron demande que Laurence Garnier n'entre pas dans le 
+gouvernement de Michel Barnier**: [Link](https://www.bfmtv.com/politique/gouvernement/emmanuel-macron-demande-que-laurence-garnier-n-entre-pas-dans-le-gouvernement-de-michel-barnier_AN-202409200345.html)
+- **Laurence Garnier nommée ministre des Familles ? Ces positions très 
+contestées qui dissuadent Macron**: [Link](https://www.linternaute.com/actualite/politique/6218321-laurence-garnier-nomme-ministre-des-familles-ces-positions-tres-contestees-qui-dissuadent-macron/)
+- **Mariage gay, IVG… pressentie ministre de la Famille, Laurence Garnier fait 
+polémique pour ses prises de position**: [Link](https://www.leparisien.fr/politique/mariage-gay-ivg-pressentie-ministre-de-la-famille-laurence-garnier-fait-polemique-pour-ses-prises-de-position-20-09-2024-J452NEXYMRCSZF4BEPGQQSC54Q.php)
+
+
 ### salima naji (N/A, Fri, 20 Sep 2024 02:50:00 -0700)
 
 - **L'Académie d’architecture récompense l’écosystème de la profession**: [Link](https://www.lemoniteur.fr/article/l-academie-d-architecture-recompense-l-ecosysteme-de-la-profession.2335016)
