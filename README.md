@@ -1,3 +1,11 @@
+### al-ahli saudi – damac (N/A, Fri, 20 Sep 2024 08:10:00 -0700)
+
+- **Damak regains the team's trio before facing Al-Ahly**: [Link](https://www.ysscores.com/en/news/4347240/Damak-regains-the-team's-trio-before-facing-Al-Ahly)
+- **Al-Ahli vs Damac Predicted lineup, betting tips, odds, injury news, H2H, 
+telecast | Saudi Pro League 2024-25**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-damac-saudi-pro-league-match-preview-202409)
+- **Al-Ahli vs Damac prediction, H2H & Probable Line-ups - September 20, 2024**: [Link](https://dailysports.net/predictions/alahli-vs-damac-prediction-h2h-probable-lineups-september-20-2024/)
+
+
 ### ابراهيم عقيل (N/A, Fri, 20 Sep 2024 06:30:00 -0700)
 
 - **مقتل الرجل الثاني في جماعة "حزب الله"**: [Link](https://www.hespress.com/%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D8%B1%D8%AC%D9%84-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%AC%D9%85%D8%A7%D8%B9%D8%A9-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-1434253.html)
