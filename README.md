@@ -1,3 +1,10 @@
+### sevilla (N/A, Fri, 20 Sep 2024 13:50:00 -0700)
+
+- **Sevilla ofrece un adelanto de su programación y anuncia el pase de 'Flow' en la Sección Oficial**: [Link](https://kinotico.es/actualidad/2024-09-19/festival-sevilla-ofrece-adelanto-su-programacion-y-anuncia-pase-flow-seccion-oficial)
+- **El Festival de Sevilla se expande con cuatro nuevas secciones y la incorporación de ocho sedes**: [Link](https://www.mundoplus.tv/cine/el-festival-de-sevilla-se-expande-con-cuatro-nuevas-secciones-y-la-incorporacion-de-ocho-sedes/)
+- **La Fundación Cajasol se suma un año más a La Noche en Blanco 2024 en Sevilla**: [Link](https://fundacioncajasol.com/la-noche-en-blanco-sevilla-2024/)
+
+
 ### ألافيس ضد إشبيلية (N/A, Fri, 20 Sep 2024 13:00:00 -0700)
 
 - **ترتيب الدوري الإسباني قبل مباريات الجولة السادسة**: [Link](https://hihi2.com/2024/09/20/p2856065.html)
