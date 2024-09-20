@@ -1,3 +1,29 @@
+### الوداد (N/A, Fri, 20 Sep 2024 12:10:00 -0700)
+
+- **الوداد يحتفي بقدوم الثنائي البرازيلي**: [Link](https://www.kooora.com/?n=1355935)
+- **الوداد يعلن التعاقد مع نجمين برازيليين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%86%D8%AC%D9%85%D9%8A%D9%86-%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A%D9%8A-1434211.html)
+- **رسميا/ الوداد يتعاقد مع البرازيليين رينان فيانا وآرثور وينديروسكي**: [Link](https://m.elbotola.com/article/2024-09-20-09-41-392.html)
+
+
+### ministres gouvernement barnier (N/A, Fri, 20 Sep 2024 12:00:00 -0700)
+
+- **En direct, gouvernement Barnier : « L’architecture et la composition 
+finalisées du gouvernement ont été transmises à l’Elysée », selon 
+l’entourage de Michel Barnier**: [Link](https://www.lemonde.fr/politique/live/2024/09/20/en-direct-gouvernement-barnier-il-n-y-a-pas-de-gouvernement-qui-a-ete-mis-sur-la-table-mais-un-travail-du-premier-ministre-declare-emmanuel-macron_6325006_823448.html)
+- **DIRECT. Emmanuel Macron appelle "tous les groupes politiques "à faire 
+"réussir" Michel Barnier**: [Link](https://www.bfmtv.com/politique/gouvernement/direct-gouvernement-la-liste-des-ministres-presentee-avant-dimanche-barnier-a-propose-38-noms-a-macron_LN-202409200087.html)
+- **DIRECT. Nouveau gouvernement : la liste des nouveaux ministres a été 
+transmise à l'Élysée, indique l’entourage de Barnier**: [Link](https://www.leparisien.fr/politique/direct-nouveau-gouvernement-apres-lechange-constructif-sur-sa-composition-entre-michel-barnier-et-emmanuel-macron-une-annonce-imminente-20-09-2024-6J3VC3G3EBGVVMKXTYNQFJMBCU.php)
+
+
+### al nassr (N/A, Fri, 20 Sep 2024 11:50:00 -0700)
+
+- **Ronaldo's Al Nassr appoint former AC Milan boss Pioli**: [Link](https://www.france24.com/en/live-news/20240918-ronaldo-s-al-nassr-appoint-former-ac-milan-boss-pioli)
+- **Guido: We were not late in dismissing Castro and we are making the right 
+decisions**: [Link](https://www.ysscores.com/en/news/4321166/Guido:-We-were-not-late-in-dismissing-Castro-and-we-are-making-the-right-decisions)
+- **Ronaldo gets new coach in Saudi Arabia with Pioli hired by Al-Nassr**: [Link](https://www.ptinews.com/story/sports/ronaldo-gets-new-coach-in-saudi-arabia-with-pioli-hired-by-al-nassr/1830329)
+
+
 ### francis ngannou (N/A, Fri, 20 Sep 2024 10:50:00 -0700)
 
 - **Joshua vs Dubois: Fight date, time, location, undercard, ringwalk, Liam 
