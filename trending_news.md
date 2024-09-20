@@ -1,3 +1,10 @@
+### ارسنال (N/A, Thu, 19 Sep 2024 14:00:00 -0700)
+
+- **جوارديولا: لا أعرف ما هي مشكلة دي بروين**: [Link](https://www.kooora.com/?n=1355710)
+- **تعليق غوارديولا على إصابة دي بروين وجاهزيته لمواجهة أرسنال**: [Link](https://hihi2.com/2024/09/19/p2853982.html)
+- **جورجينيو يشعل قمة السيتي وأرسنال مبكراً: أهداف هالاند تجعلنا نضحك**: [Link](https://www.alaraby.co.uk/sport/%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%B4%D8%B9%D9%84-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%85%D8%A8%D9%83%D8%B1%D8%A7%D9%8B-%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%AA%D8%AC%D8%B9%D9%84%D9%86%D8%A7-%D9%86%D8%B6%D8%AD%D9%83)
+
+
 ### netflix (N/A, Thu, 19 Sep 2024 19:50:00 -0700)
 
 - **Joe Manganiello to Host Netflix’s Geeked Week 2024 Live From Atlanta 
