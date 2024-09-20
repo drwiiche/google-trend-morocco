@@ -1,3 +1,12 @@
+### mohamed al fayed (N/A, Fri, 20 Sep 2024 14:10:00 -0700)
+
+- **‘A monster’: lawyers for Mohamed Al Fayed’s alleged victims liken case to 
+Savile**: [Link](https://www.theguardian.com/world/2024/sep/20/mohamed-al-fayed-alleged-victims)
+- **Mohamed Al Fayed was 'a monster enabled by' Harrods, says lawyer**: [Link](https://www.bbc.com/news/articles/c89lxz09jzjo)
+- **Harrods ‘utterly appalled’ by allegations that former owner Mohamed Al 
+Fayed raped staff**: [Link](https://www.cnn.com/2024/09/19/uk/harrods-mohamed-al-fayed-accused-sexual-assault-intl/index.html)
+
+
 ### sevilla (N/A, Fri, 20 Sep 2024 13:50:00 -0700)
 
 - **Sevilla ofrece un adelanto de su programación y anuncia el pase de 'Flow' en la Sección Oficial**: [Link](https://kinotico.es/actualidad/2024-09-19/festival-sevilla-ofrece-adelanto-su-programacion-y-anuncia-pase-flow-seccion-oficial)
