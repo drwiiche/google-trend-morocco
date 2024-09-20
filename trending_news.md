@@ -1,3 +1,10 @@
+### mrbeast (N/A, Fri, 20 Sep 2024 11:50:00 -0700)
+
+- **MrBeast, Amazon Sued by Contestants on 'Beast Games' Competition Show**: [Link](https://variety.com/2024/digital/news/mrbeast-amazon-sued-beast-games-contestants-class-action-1236148181/)
+- **‘A Fyre Fest Feeling’: Inside the ‘Chaos’ of MrBeast’s New Reality Show**: [Link](https://www.rollingstone.com/culture/culture-features/mrbeast-beast-games-reality-tv-show-controversy-1235103504/)
+- **MrBeast, Amazon Face Trial Over Abuse of Reality TV Show Contestants**: [Link](https://www.moroccoworldnews.com/2024/09/365276/mrbeast-amazon-face-trial-over-abuse-of-reality-tv-show-contestants)
+
+
 ### الوداد (N/A, Fri, 20 Sep 2024 12:10:00 -0700)
 
 - **الوداد يحتفي بقدوم الثنائي البرازيلي**: [Link](https://www.kooora.com/?n=1355935)
