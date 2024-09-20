@@ -1,3 +1,10 @@
+### ابراهيم عقيل (N/A, Fri, 20 Sep 2024 06:30:00 -0700)
+
+- **مقتل الرجل الثاني في جماعة "حزب الله"**: [Link](https://www.hespress.com/%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D8%B1%D8%AC%D9%84-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%AC%D9%85%D8%A7%D8%B9%D8%A9-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-1434253.html)
+- **غارة إسرائيلية تستهدف القيادي بحزب الله إبراهيم عقيل**: [Link](https://www.aljazeera.net/news/2024/9/20/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%86%D9%81%D8%B0%D9%86%D8%A7-%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A)
+- **عاجل: الجيش الإسرائيلي ينقذ غارة "محددة الهدف" في الضاحية الجنوبية للبنان**: [Link](https://www.bbc.com/arabic/articles/cx25v2z1ppeo)
+
+
 ### sophie charnavel (N/A, Fri, 20 Sep 2024 04:30:00 -0700)
 
 - **Mort à 47 ans de Sophie Charnavel, PDG des éditions Robert Laffont**: [Link](https://www.lemonde.fr/disparitions/article/2024/09/20/mort-a-47-ans-de-sophie-charnavel-pdg-des-editions-robert-laffont_6324929_3382.html)
