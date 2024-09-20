@@ -1,3 +1,19 @@
+### deportivo alavés – séville (N/A, Fri, 20 Sep 2024 11:10:00 -0700)
+
+- **How to watch today's Alaves vs Sevilla La Liga game: Live stream, TV 
+channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-alaves-vs-sevilla-la-liga-live-stream-tv/bltcded26e2cadebf73)
+- **Alaves vs Sevilla Prediction and Betting Tips**: [Link](https://mrfixitstips.co.uk/previews/alaves-vs-sevilla-prediction-and-betting-tips/)
+- **Alavés vs Sevilla: Live Match Coverage**: [Link](https://www.footboom1.com/en/news/football/1842439-alaves-vs-sevilla-live-match-coverage)
+
+
+### wydad (N/A, Fri, 20 Sep 2024 11:10:00 -0700)
+
+- **Botola Pro: deux nouveaux Brésiliens pour le Wydad**: [Link](https://www.h24info.ma/botola-pro-deux-nouveaux-bresiliens-pour-le-wydad/)
+- **Le WAC présente ses nouvelles recrues (PHOTOS)**: [Link](https://www.lesiteinfo.com/sport/627196-le-wac-presente-ses-nouvelles-recrues-photos.html)
+- **Le Wydad présente Mehdi Moubarik et son nouveau maillot pour la saison 
+2024-25**: [Link](https://sport.le360.ma/football/botola/le-wydad-presente-mehdi-moubarik-et-son-nouveau-maillot-pour-la-saison-2024-25_2XACOURP2JAUXB53N7D5KZAWBE/)
+
+
 ### الاتفاق ضد النصر (N/A, Fri, 20 Sep 2024 10:50:00 -0700)
 
 - **كريستيانو يقود هجوم النصر أمام الاتفاق بإسناد من الوافد الجديد**: [Link](https://www.kooora.com/?n=1356024)
