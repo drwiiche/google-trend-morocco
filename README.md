@@ -1,3 +1,10 @@
+### atalanta bergame (N/A, Thu, 19 Sep 2024 18:10:00 -0700)
+
+- **Vidéo : l’énorme double parade de David Raya sur pénalty**: [Link](https://www.footmercato.net/a5135211397635834978-video-lenorme-double-parade-de-raya-sur-penalty)
+- **Atalanta Bergame 0-0 Arsenal, Ligue des champions : Raya sauve les Gunners**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/atalanta-bergame-arsenal-live/667976)
+- **Mikel Arteta remercie David Raya pour son double-arrêt face à l'Atalanta**: [Link](https://www.flashscore.fr/actualites/football-ligue-des-champions-mikel-arteta-remercie-david-raya-pour-son-double-arret-face-a-l-atalanta/Ox3e17yo/)
+
+
 ### laurence garnier (N/A, Fri, 20 Sep 2024 05:20:00 -0700)
 
 - **Emmanuel Macron demande que Laurence Garnier n'entre pas dans le 
