@@ -1,3 +1,19 @@
+### ابراهيم عقيل حزب الله (N/A, Fri, 20 Sep 2024 06:50:00 -0700)
+
+- **مقتل قائد قوة الرضوان في حزب الله إبراهيم عقيل بغارة إسرائيلية على بيروت**: [Link](https://www.alarabiya.net/arab-and-world/2024/09/20/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%82%D8%AA%D9%84-%D8%A3%D8%AD%D8%AF-%D8%B9%D9%86%D8%A7%D8%B5%D8%B1%D9%87-%D9%81%D9%8A-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9%D8%8C-%D9%88%D9%82%D9%88%D8%A9%D9%8F-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D9%8A%D9%81%D9%8A%D9%84-%D8%AA%D8%AF%D8%B9%D9%88-%D9%84%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF)
+- **من هو إبراهيم عقيل الذي قتل في غارة الضاحية الجنوبية لبيروت؟**: [Link](https://www.skynewsarabia.com/middle-east/1743060-%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%B9%D9%82%D9%8A%D9%84-%D9%82%D8%AA%D9%84-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B6%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9-%D9%84%D8%A8%D9%8A%D8%B1%D9%88%D8%AA%D8%9F)
+- **مطلوب بـ7 مليون دولار.. من هو "المستهدف" ابراهيم عقيل؟**: [Link](https://www.aljadeed.tv/news/%D8%B9%D8%B1%D8%A8%D9%8A%D8%A7%D8%AA/503119/%D9%85%D8%B7%D9%84%D9%88%D8%A8-%D8%A8%D9%807-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%85%D9%86-%D9%87%D9%88-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%A7%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%B9%D9%82%D9%8A%D9%84%D8%9F)
+
+
+### petit avion disparu italie (N/A, Fri, 20 Sep 2024 05:30:00 -0700)
+
+- **Disparition inquiétante d’un petit avion en Italie : les trois Français 
+disparus retrouvés morts**: [Link](https://www.ladepeche.fr/2024/09/19/disparition-inquietante-dun-petit-avion-en-italie-les-3-francais-disparus-retrouves-morts-12208730.php)
+- **Italie : un petit avion se crashe, trois Français retrouvés morts**: [Link](https://www.cnews.fr/monde/2024-09-18/italie-un-petit-avion-se-crashe-trois-francais-retrouves-morts-1558269)
+- **Italie: l'avion avec trois Français à bord toujours recherché, des 
+conditions météo difficiles pour les localiser**: [Link](https://www.nicematin.com/faits-divers/italie-l-avion-avec-trois-francois-a-bord-toujours-recherche-des-conditions-meteo-difficiles-pour-les-localiser-945698)
+
+
 ### amazon télétravail (N/A, Fri, 20 Sep 2024 05:10:00 -0700)
 
 - **Amazon revient sur le télétravail, à contre-courant des entreprises 
