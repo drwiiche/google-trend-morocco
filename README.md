@@ -1,3 +1,11 @@
+### amazon télétravail (N/A, Fri, 20 Sep 2024 05:10:00 -0700)
+
+- **Amazon revient sur le télétravail, à contre-courant des entreprises 
+françaises**: [Link](https://www.lemonde.fr/economie/article/2024/09/19/amazon-revient-sur-le-teletravail-a-contre-courant-des-entreprises-francaises_6324299_3234.html)
+- **Fin du télétravail, Amazon impose un retour à temps plein au bureau**: [Link](https://www.menara.ma/fr/article/fin-du-teletravail-amazon-impose-un-retour-a-temps-plein-au-bureau)
+- **Le chiffre du jour : télétravail, marche arrière ?**: [Link](https://www.tf1.fr/tf1/bonjour-la-matinale-tf1/videos/le-chiffre-du-jour-teletravail-marche-arriere-08140580.html)
+
+
 ### atalanta bergame (N/A, Thu, 19 Sep 2024 18:10:00 -0700)
 
 - **Vidéo : l’énorme double parade de David Raya sur pénalty**: [Link](https://www.footmercato.net/a5135211397635834978-video-lenorme-double-parade-de-raya-sur-penalty)
