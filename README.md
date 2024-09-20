@@ -1,3 +1,11 @@
+### nice fc (N/A, Fri, 20 Sep 2024 14:30:00 -0700)
+
+- **Nice vs. St. Etienne (20 Sep, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/706468)
+- **Preview: Nice vs. Saint-Etienne - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/nice/preview/preview-nice-vs-st-etienne-prediction-team-news-lineups_553208.html)
+- **Historic failure. In a Ligue 1 match, Nice scored six goals against 
+Saint-Étienne in one half**: [Link](https://dailysports.net/news/historic-failure-in-a-ligue-1-match-nice-scored-six-goals-against-sainttienne-in-one-half/)
+
+
 ### mohamed al fayed (N/A, Fri, 20 Sep 2024 14:10:00 -0700)
 
 - **‘A monster’: lawyers for Mohamed Al Fayed’s alleged victims liken case to 
