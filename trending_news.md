@@ -1,3 +1,11 @@
+### francis ngannou (N/A, Fri, 20 Sep 2024 10:50:00 -0700)
+
+- **Joshua vs Dubois: Fight date, time, location, undercard, ringwalk, Liam 
+Gallagher and how to watch with Sky Sports**: [Link](https://www.skysports.com/boxing/news/12183/13214647/joshua-vs-dubois-fight-date-time-location-undercard-ringwalk-liam-gallagher-and-how-to-watch-with-sky-sports)
+- **Eubank tips Joshua to beat Fury**: [Link](https://punchng.com/eubank-tips-joshua-to-beat-fury/)
+- **Anthony Joshua can move out of Tyson Fury’s shadow with dominant win**: [Link](https://www.telegraph.co.uk/boxing/2024/09/19/anthony-joshua-can-move-out-of-tyson-fury-shadow/)
+
+
 ### deportivo alavés – séville (N/A, Fri, 20 Sep 2024 11:10:00 -0700)
 
 - **How to watch today's Alaves vs Sevilla La Liga game: Live stream, TV 
