@@ -1,3 +1,11 @@
+### يونس النجاري (N/A, Thu, 19 Sep 2024 16:20:00 -0700)
+
+- **الرجاء يتفق مع نهيري.. ويرفع حظر التعاقدات**: [Link](https://www.kooora.com/?n=1355811)
+- **نهيري تعامل بمرونة مع الرجاء والخضر يرفعون المنع**: [Link](https://www.almountakhab.com/node/16204515)
+- **خاص/ الرجاء يتعاقد مع المدافعين عيسى بنعمر لموسمين وياسر بالدي لموسم واحد 
+قابل للتجديد**: [Link](https://m.elbotola.com/article/2024-09-18-22-58-44.html)
+
+
 ### andré azoulay (N/A, Fri, 20 Sep 2024 01:00:00 -0700)
 
 - **Azoulay honoré : une distinction pour la coexistence entre le Maroc et 
