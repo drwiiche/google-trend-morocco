@@ -1,3 +1,22 @@
+### al-ettifaq – al-nassr fc (N/A, Fri, 20 Sep 2024 10:30:00 -0700)
+
+- **Al Ettifaq vs Al Nassr LIVE updates, Saudi Pro League 2024-25: Cristiano 
+Ronaldo starts, Lineups out, ETT v NAS, 11:30 PM IST kick-off**: [Link](https://sportstar.thehindu.com/football/al-ettifaq-vs-al-nassr-live-score-saudi-pro-league-updates-cristiano-ronaldo-ett-v-nas-goals-highlights-live-streaming/article68665404.ece)
+- **Al-Ettifaq vs Al-Nassr Live Football Streaming For Saudi Pro League 2024-25 
+Match: How to Watch ITF vs NSR**: [Link](https://www.news18.com/football/al-ettifaq-vs-al-nassr-live-football-streaming-for-saudi-pro-league-2024-25-match-how-to-watch-itf-vs-nsr-coverage-on-tv-and-online-9055418.html)
+- **Al Ettifaq vs Al Nassr Live Streaming: Saudi League Schedule, Where to 
+Watch in India, UK, USA**: [Link](https://www.mykhel.com/football/al-ettifaq-vs-al-nassr-live-streaming-saudi-league-schedule-where-to-watch-in-india-uk-usa-309165.html)
+
+
+### camavinga (N/A, Fri, 20 Sep 2024 09:30:00 -0700)
+
+- **Obsesión Camavinga: regreso para el derbi ante el Atlético en el 
+Metropolitano**: [Link](https://www.marca.com/futbol/real-madrid/2024/09/20/66ec4e0bca4741e00a8b45ab.html)
+- **Ancelotti, aliviado, recibe la mejor noticia posible tras la lesión de 
+Brahim: el fichaje está listo**: [Link](https://www.realmadridconfidencial.com/actualidad/ancelotti-aliviado-recibe-mejor-noticia-posible-lesion-brahim-fichaje-esta-listo_159914_102.html)
+- **Paciencia con Camavinga**: [Link](https://okdiario.com/diariomadridista/real-madrid/paciencia-camavinga-463026)
+
+
 ### raja casablanca (N/A, Fri, 20 Sep 2024 09:20:00 -0700)
 
 - **Le Raja Casablanca s'attache les services de Benaissa Benamar et Yasser 
