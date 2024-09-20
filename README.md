@@ -1,3 +1,11 @@
+### wydad athletic club (N/A, Fri, 20 Sep 2024 12:10:00 -0700)
+
+- **Botola Pro: deux nouveaux Brésiliens pour le Wydad**: [Link](https://www.h24info.ma/botola-pro-deux-nouveaux-bresiliens-pour-le-wydad/)
+- **Le WAC présente ses nouvelles recrues (PHOTOS)**: [Link](https://www.lesiteinfo.com/sport/627196-le-wac-presente-ses-nouvelles-recrues-photos.html)
+- **Le Wydad présente Mehdi Moubarik et son nouveau maillot pour la saison 
+2024-25**: [Link](https://sport.le360.ma/football/botola/le-wydad-presente-mehdi-moubarik-et-son-nouveau-maillot-pour-la-saison-2024-25_2XACOURP2JAUXB53N7D5KZAWBE/)
+
+
 ### mrbeast (N/A, Fri, 20 Sep 2024 11:50:00 -0700)
 
 - **MrBeast, Amazon Sued by Contestants on 'Beast Games' Competition Show**: [Link](https://variety.com/2024/digital/news/mrbeast-amazon-sued-beast-games-contestants-class-action-1236148181/)
