@@ -1,3 +1,17 @@
+### ألافيس ضد إشبيلية (N/A, Fri, 20 Sep 2024 13:00:00 -0700)
+
+- **ترتيب الدوري الإسباني قبل مباريات الجولة السادسة**: [Link](https://hihi2.com/2024/09/20/p2856065.html)
+- **بطولة إسبانيا.. برنامج الدورة السادسة**: [Link](https://www.almountakhab.com/node/13204534)
+- **إشبيلية لرد الدين أمام ألافيس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%84%D8%B1%D8%AF-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-2024-09-20)
+
+
+### requin (N/A, Fri, 20 Sep 2024 12:30:00 -0700)
+
+- **VIDÉO. La touriste tuée par un requin au large des Canaries naviguait « sur un corridor à requins**: [Link](https://www.leparisien.fr/animaux/video-la-touriste-tuee-par-un-requin-au-large-des-canaries-naviguait-sur-un-corridor-a-requins-20-09-2024-JAM6VACFQ5CYLIF3BPPQHI4LUA.php)
+- **Tragédie au large de Dakhla : une allemande victime d'une attaque de requin**: [Link](https://fr.hespress.com/386619-tragedie-au-large-de-dakhla-une-allemande-victime-dune-attaque-de-requin.html)
+- **Attaque de requin mortelle : les secours marocains sollicités**: [Link](https://www.bladi.net/attaque-requin-mortelle-secours-marocains-sollicites,110553.html)
+
+
 ### wydad athletic club (N/A, Fri, 20 Sep 2024 12:10:00 -0700)
 
 - **Botola Pro: deux nouveaux Brésiliens pour le Wydad**: [Link](https://www.h24info.ma/botola-pro-deux-nouveaux-bresiliens-pour-le-wydad/)
