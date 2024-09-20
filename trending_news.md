@@ -1,3 +1,12 @@
+### salima naji (N/A, Fri, 20 Sep 2024 02:50:00 -0700)
+
+- **L'Académie d’architecture récompense l’écosystème de la profession**: [Link](https://www.lemoniteur.fr/article/l-academie-d-architecture-recompense-l-ecosysteme-de-la-profession.2335016)
+- **L’architecte et anthropologue Salima Naji reçoit la Grande médaille d’or de 
+l’Académie d’architecture française**: [Link](https://medias24.com/2024/09/20/larchitecte-et-anthropologue-salima-naji-recoit-la-grande-medaille-dor-de-lacademie-darchitecture-francaise/)
+- **Salima Naji reçoit la Grande Médaille d’Or de l’Académie d’Architecture 
+française**: [Link](https://www.btpnews.ma/salima-naji-recoit-la-grande-medaille-dor-de-lacademie-darchitecture-francaise/)
+
+
 ### يونس النجاري (N/A, Thu, 19 Sep 2024 16:20:00 -0700)
 
 - **الرجاء يتفق مع نهيري.. ويرفع حظر التعاقدات**: [Link](https://www.kooora.com/?n=1355811)
