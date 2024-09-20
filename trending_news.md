@@ -1,3 +1,11 @@
+### raja casablanca (N/A, Fri, 20 Sep 2024 09:20:00 -0700)
+
+- **Le Raja Casablanca s'attache les services de Benaissa Benamar et Yasser 
+Baldé**: [Link](https://fr.hespress.com/386716-le-raja-casablanca-sattache-les-services-de-benaissa-benamar-et-yasser-balde.html)
+- **Mercato : la bonne nouvelle du Raja Casablanca à ses supporters**: [Link](https://www.lesiteinfo.com/sport/627574-la-bonne-nouvelle-du-raja-casablanca-a-ses-supporters.html)
+- **Le Raja s’offre trois nouveaux joueurs**: [Link](https://www.lesiteinfo.com/sport/627516-le-raja-soffre-trois-nouveaux-joueurs.html)
+
+
 ### al-ahli saudi – damac (N/A, Fri, 20 Sep 2024 08:10:00 -0700)
 
 - **Damak regains the team's trio before facing Al-Ahly**: [Link](https://www.ysscores.com/en/news/4347240/Damak-regains-the-team's-trio-before-facing-Al-Ahly)
