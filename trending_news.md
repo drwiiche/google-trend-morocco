@@ -1,3 +1,12 @@
+### andré azoulay (N/A, Fri, 20 Sep 2024 01:00:00 -0700)
+
+- **Azoulay honoré : une distinction pour la coexistence entre le Maroc et 
+l'Espagne**: [Link](https://fr.hespress.com/386746-azoulay-honore-une-distinction-pour-la-coexistence-entre-le-maroc-et-lespagne.html)
+- **André Azoulay reçoit à Madrid la Grand-Croix de l'Ordre d'Alphonse X le Sage**: [Link](https://medias24.com/2024/09/19/andre-azoulay-recoit-a-madrid-la-grande-croix-de-lordre-dalphonse-x-le-sage/)
+- **L'Espagne décerne à André Azoulay l'une de ses plus illustres distinctions 
+honorifiques**: [Link](https://www.lopinion.ma/L-Espagne-decerne-a-Andre-Azoulay-l-une-de-ses-plus-illustres-distinctions-honorifiques_a58092.html)
+
+
 ### فهد المولد (N/A, Fri, 20 Sep 2024 00:00:00 -0700)
 
 - **تحركات رسمية لنقل فهد المولد إلى الرياض**: [Link](https://www.kooora.com/?n=1355717)
