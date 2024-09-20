@@ -1,3 +1,10 @@
+### الاتفاق ضد النصر (N/A, Fri, 20 Sep 2024 10:50:00 -0700)
+
+- **كريستيانو يقود هجوم النصر أمام الاتفاق بإسناد من الوافد الجديد**: [Link](https://www.kooora.com/?n=1356024)
+- **صدمة للنصر قبل مواجهة الاتفاق في دوري روشن**: [Link](https://alsaudia-web.com/news2374029.html)
+- **مفاتيح فوز النصر أمام الاتفاق هذا المساء**: [Link](https://hihi2.com/2024/09/20/p2855726.html)
+
+
 ### wac (N/A, Fri, 20 Sep 2024 10:40:00 -0700)
 
 - **Branding and Style Guide**: [Link](https://wacsports.com/sports/2024/9/18/brand-style-guide.aspx)
