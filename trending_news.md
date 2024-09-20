@@ -1,3 +1,11 @@
+### wac (N/A, Fri, 20 Sep 2024 10:40:00 -0700)
+
+- **Branding and Style Guide**: [Link](https://wacsports.com/sports/2024/9/18/brand-style-guide.aspx)
+- **16 members of Switzerland parliament send written request to executive 
+regarding return of Karabakh Armenians**: [Link](https://news.am/eng/news/843273.html)
+- **WAC condemns Swiss Federal Assembly's biased request against Azerbaijan**: [Link](https://www.azernews.az/nation/231543.html)
+
+
 ### al-ettifaq – al-nassr fc (N/A, Fri, 20 Sep 2024 10:30:00 -0700)
 
 - **Al Ettifaq vs Al Nassr LIVE updates, Saudi Pro League 2024-25: Cristiano 
