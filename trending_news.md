@@ -1,3 +1,19 @@
+### netflix (N/A, Thu, 19 Sep 2024 19:50:00 -0700)
+
+- **Joe Manganiello to Host Netflix’s Geeked Week 2024 Live From Atlanta 
+Thursday, September 19**: [Link](https://about.netflix.com/news/netflixs-geeked-week-returns-the-week-of-september-16)
+- **Zack Snyder Reveals First Look at Netflix’s ‘Rebel Moon’ Video Game ‘Blood 
+Line’**: [Link](https://variety.com/2024/digital/news/zack-snyder-rebel-moon-video-game-blood-line-netflix-1236149445/)
+- **Netflix Geeked Week 2024: all the news and trailers**: [Link](https://www.theverge.com/2024/9/16/24246099/netflix-geeked-week-2024-news-trailers-stranger-things-squid-game)
+
+
+### fst fes (N/A, Thu, 19 Sep 2024 13:50:00 -0700)
+
+- **Everything to know about this weekend’s HFStival**: [Link](https://www.washingtonpost.com/dc-md-va/2024/09/16/hfstival-everything-to-know/)
+- **40 Things to Do in the DC Area This Week and Weekend**: [Link](https://www.washingtonian.com/2024/09/16/things-to-do-in-the-dc-area-september-16-22-2024/)
+- **The 30 best things to do in D.C. this weekend and next week**: [Link](https://www.washingtonpost.com/dc-md-va/2024/09/19/best-things-to-do-dc/)
+
+
 ### michèl barnier premier ministre (N/A, Thu, 19 Sep 2024 16:10:00 -0700)
 
 - **En direct, gouvernement Barnier : l’exécutif sera présenté « avant dimanche 
