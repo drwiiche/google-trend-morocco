@@ -1,3 +1,8 @@
+### botola pro (N/A, Fri, 20 Sep 2024 12:10:00 -0700)
+
+- **Wydad Drop Points Mokwena’s Third League Game**: [Link](https://www.idiskitimes.co.za/sa-stars-abroad/wydad-drop-points-mokwenas-third-league-game/)
+
+
 ### nice fc (N/A, Fri, 20 Sep 2024 14:30:00 -0700)
 
 - **Nice vs. St. Etienne (20 Sep, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/706468)
