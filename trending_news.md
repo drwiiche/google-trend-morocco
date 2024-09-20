@@ -1,3 +1,11 @@
+### sophie charnavel (N/A, Fri, 20 Sep 2024 04:30:00 -0700)
+
+- **Mort à 47 ans de Sophie Charnavel, PDG des éditions Robert Laffont**: [Link](https://www.lemonde.fr/disparitions/article/2024/09/20/mort-a-47-ans-de-sophie-charnavel-pdg-des-editions-robert-laffont_6324929_3382.html)
+- **Le sort s'acharne ! Matthieu Lartot dévasté par la perte d'une personne 
+chère : "Je n'oublierai jamais..."**: [Link](https://www.purepeople.com/article/matthieu-lartot-en-deuil-sa-grande-amie-l-editrice-sophie-charnavel-est-morte_a527629/1)
+- **Matthieu Lartot, le cancer s’acharne**: [Link](https://www.sports.fr/medias/matthieu-lartot-le-cancer-sacharne-866862.html)
+
+
 ### ابراهيم عقيل حزب الله (N/A, Fri, 20 Sep 2024 06:50:00 -0700)
 
 - **مقتل قائد قوة الرضوان في حزب الله إبراهيم عقيل بغارة إسرائيلية على بيروت**: [Link](https://www.alarabiya.net/arab-and-world/2024/09/20/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%82%D8%AA%D9%84-%D8%A3%D8%AD%D8%AF-%D8%B9%D9%86%D8%A7%D8%B5%D8%B1%D9%87-%D9%81%D9%8A-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9%D8%8C-%D9%88%D9%82%D9%88%D8%A9%D9%8F-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D9%8A%D9%81%D9%8A%D9%84-%D8%AA%D8%AF%D8%B9%D9%88-%D9%84%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF)
