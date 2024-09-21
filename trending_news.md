@@ -1,3 +1,43 @@
+### real madrid (N/A, Sat, 21 Sep 2024 12:20:00 -0700)
+
+- **Real Madrid - Barcelona, en directo: Supercopa España Baloncesto 2024, hoy 
+en vivo**: [Link](https://as.com/baloncesto/acb/real-madrid-barcelona-en-directo-supercopa-espana-baloncesto-2024-hoy-en-vivo-n/)
+- **Real Madrid - Barcelona en directo | Semifinal de la Supercopa de España de 
+baloncesto hoy en vivo**: [Link](https://www.marca.com/baloncesto/supercopa/real-madrid-barcelona/2024/09/21/02_0208_20240921_6210_6216-directo.html)
+- **Real Madrid 89-83 Barcelona: resultado, resumen y estadísticas del partido 
+de Supercopa de España**: [Link](https://www.sport.es/es/noticias/baloncesto-barca/real-madrid-barcelona-directo-semifinal-108326040)
+
+
+### reims vs psg (N/A, Sat, 21 Sep 2024 12:20:00 -0700)
+
+- **PSG official lineup vs Stade de Reims - Ligue 1**: [Link](https://psgpost.com/posts/psg-official-lineup-vs-stade-de-reims-ligue-1)
+- **Reims vs PSG: Match Preview and Prediction**: [Link](https://www.footboom1.com/en/news/football/1843900-reims-vs-psg-match-preview-and-prediction)
+- **Saturday's Ligue 1 predictions including Reims vs. PSG**: [Link](https://www.sportsmole.co.uk/football/lille/ligue-1-predictions/feature/saturdays-ligue-1-predictions-including-reims-vs-psg_553396.html)
+
+
+### ريال مدريد (N/A, Sat, 21 Sep 2024 12:20:00 -0700)
+
+- **مباشر مباراة ريال مدريد ضد إسبانيول في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/21/real-madrid-v-espanyol)
+- **مكافأة أنشيلوتي لـ إندريك**: [Link](https://hihi2.com/2024/09/21/p2856340.html)
+- **ريال مدريد يستقبل إسبانيول وعينه على النقاط الثلاث**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%88%D8%B9%D9%8A%D9%86%D9%87-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB-2024-09-21)
+
+
+### algerie (N/A, Sat, 21 Sep 2024 12:20:00 -0700)
+
+- **Quand la liberté d'expression “soumise“ s'effondre en Algérie**: [Link](https://fr.hespress.com/386891-quand-la-liberte-dexpression-soumise-seffondre-en-algerie.html)
+- **L'Algérie cesse de publier un journal accusant le Maroc de tentative 
+d'assassinat de Tebboune -**: [Link](https://fr.hibapress.com/news-133666.html)
+- **Communication : Suspension du quotidien El Djazaïr El Ghed**: [Link](https://lapatrienews.dz/communication-suspension-du-quotidien-el-djazair-el-ghed/)
+
+
+### valencia vs girona (N/A, Sat, 21 Sep 2024 12:00:00 -0700)
+
+- **Valencia vs Girona: Match Preview and Prediction**: [Link](https://www.footboom1.com/en/news/football/1843468-valencia-vs-girona-match-preview-and-prediction)
+- **La Liga round-up: Valencia topple Girona, Las Palmas winless run goes on 
+and Real Sociedad held to draw**: [Link](https://www.football-espana.net/2024/09/21/la-liga-round-up-valencia-topple-girona-las-palmas-winless-run-goes-on-and-real-sociedad-held-to-draw)
+- **Preview: Valencia vs. Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/preview-valencia-vs-girona-prediction-team-news-lineups_553345.html)
+
+
 ### antoine armand (N/A, Sat, 21 Sep 2024 12:10:00 -0700)
 
 - **Antoine Armand et Laurent Saint-Martin à Bercy : la « forteresse » scindée 
