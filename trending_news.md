@@ -1,3 +1,28 @@
+### liverpool – bournemouth (N/A, Sat, 21 Sep 2024 06:10:00 -0700)
+
+- **Liverpool to check on Alisson Becker fitness ahead of Bournemouth**: [Link](https://www.liverpoolfc.com/news/liverpool-check-alisson-becker-fitness-ahead-bournemouth)
+- **Premier League 2024-25: Liverpool’s Alisson doubtful for clash against 
+Bournemouth due to muscle injury**: [Link](https://sportstar.thehindu.com/football/epl/premier-league-2024-25-liverpool-goalkeeper-alisson-doubtful-clash-v-bournemouth-muscle-injury-news/article68663670.ece)
+- **Slott: There are doubts about Alisson's readiness, and this is what we hope 
+for tomorrow**: [Link](https://www.ysscores.com/en/news/4389713/Slott:-There-are-doubts-about-Alisson's-readiness,-and-this-is-what-we-hope-for-tomorrow)
+
+
+### tottenham – brentford (N/A, Sat, 21 Sep 2024 06:10:00 -0700)
+
+- **Wilson Odobert set for period out with hamstring injury, Yves Bissouma in 
+contention to return**: [Link](https://www.nytimes.com/athletic/5781889/2024/09/20/wilson-odobert-injury-update/)
+- **Tottenham vs Brentford: Preview, predictions and lineups**: [Link](https://sports.yahoo.com/tottenham-vs-brentford-preview-predictions-020000611.html)
+- **Ange Postecoglou press conference - Tottenham boss on injuries, Timo Werner 
+and Mikey Moore**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/ange-postecoglou-press-conference-live-29972888)
+
+
+### werder – bayern (N/A, Sat, 21 Sep 2024 06:00:00 -0700)
+
+- **FC Bayern München - Werder Bremen live: TV, LIVE-STREAM - die Übertragung**: [Link](https://www.dazn.com/de-DE/news/fussball/fc-bayern-muenchen-werder-bremen-tv-live-stream-uebertragung/1uoupazj0uof11xjsrj9rye1py)
+- **Die Sport-Höhepunkte am Samstag, 21. September**: [Link](https://www.ran.de/sports/mehr/news/die-sport-hoehepunkte-am-samstag21-september-435045)
+- **Wer ersetzt Kapitän Friedl?**: [Link](https://onefootball.com/de/news/wer-ersetzt-kapitaen-friedl-40064826)
+
+
 ### بلد الوليد ضد ريال سوسيداد (N/A, Sat, 21 Sep 2024 04:40:00 -0700)
 
 - **موعد مباراة بلد الوليد وريال سوسيداد في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/472266)
