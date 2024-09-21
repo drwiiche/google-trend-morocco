@@ -1,3 +1,19 @@
+### al-hilal – al ittihad (N/A, Sat, 21 Sep 2024 10:10:00 -0700)
+
+- **Bono: Excited about Al-Ittihad’s defeat**: [Link](https://www.ysscores.com/en/news/4424747/Bono:-Excited-about-Al-Ittihad%E2%80%99s-defeat)
+- **Preview: Al-Hilal vs. Al Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/preview-al-hilal-vs-al-ittihad-prediction-team-news-lineups_553362.html)
+- **Blanc identifies Al-Ittihad's foreigners against Al-Hilal**: [Link](https://www.ysscores.com/en/news/4421070/Blanc-identifies-Al-Ittihad's-foreigners-against-Al-Hilal)
+
+
+### hakim ziyech maroc (N/A, Sat, 21 Sep 2024 08:30:00 -0700)
+
+- **Maroc-Palestine-Israël: Quand Ziyech dérape, puis se rattrape**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-palestine-israel-quand-ziyech-derape-puis-se-rattrape_FWV4WUCZNBCTXB2QXCNQYFQOTU/)
+- **"F*** Israël": dans sa story Instagram, l'international marocain Hakim 
+Ziyech s'exprime brutalement sur le conflit israélo-palestinien**: [Link](https://www.rtl.be/sport/football/football-etranger/f-israel-dans-sa-story-instagram-linternational-marocain-hakim-ziyech-sexprime/2024-09-21/article/713511)
+- **« Honte à vous » : le footballeur marocain Hakim Ziyech dénonce la 
+normalisation avec Israël**: [Link](https://www.tsa-algerie.com/honte-a-vous-le-footballeur-marocain-hakim-ziyech-denonce-la-normalisation-avec-israel/)
+
+
 ### فيضانات طاطا (N/A, Sat, 21 Sep 2024 09:50:00 -0700)
 
 - **السيول تهدم منازل في إقليم طاطا .. وقرى معزولة تنتظر التدخل بالمروحيات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84-%D8%AA%D9%87%D8%AF%D9%85-%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D9%81%D9%8A-%D8%A5%D9%82%D9%84%D9%8A%D9%85-%D8%B7%D8%A7%D8%B7%D8%A7-%D9%88%D9%82%D8%B1%D9%89-%D9%85-1434661.html)
