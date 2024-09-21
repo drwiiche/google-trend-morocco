@@ -1,3 +1,11 @@
+### antoine armand (N/A, Sat, 21 Sep 2024 12:10:00 -0700)
+
+- **Antoine Armand et Laurent Saint-Martin à Bercy : la « forteresse » scindée 
+entre deux trentenaires macronistes**: [Link](https://www.lemonde.fr/politique/article/2024/09/21/antoine-armand-et-laurent-saint-martin-a-bercy-la-forteresse-scindee-entre-deux-trentenaires-macronistes_6327114_823448.html)
+- **Laurent Saint-Martin, une figure économique du macronisme au Budget**: [Link](https://www.la-croix.com/laurent-saint-martin-une-figure-economique-du-macronisme-au-budget-20240921)
+- **4 locaux représentés au Gouvernement**: [Link](https://www.laradioplus.com/news/locales/117759/4-locaux-representes-au-gouvernement?utm_source=Site&utm_medium=RSS&utm_campaign=Link)
+
+
 ### poupette kenza (N/A, Sat, 21 Sep 2024 11:50:00 -0700)
 
 - **Le salon de bronzage de l'influenceuse Poupette Kenza et de son mari fermé 
