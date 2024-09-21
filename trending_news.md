@@ -1,3 +1,12 @@
+### raja casablanca (N/A, Sat, 21 Sep 2024 14:10:00 -0700)
+
+- **Ligue des Champions: le Raja bat le FC Samartex et assure sa qualification 
+pour la phase de groupes**: [Link](https://fr.le360.ma/sports/ligue-des-champions-le-raja-bat-le-fc-samartex-et-assure-sa-qualification-pour-la-phase-de-groupes_UNWF4JGVHBENLGXNIO2W3IHQ2Q/)
+- **LdC: le Raja en phase de poules après sa victoire face au FC Samartex (2-0)**: [Link](https://www.h24info.ma/ldc-le-raja-en-phase-de-poules-apres-sa-victoire-face-au-fc-samartex-2-0/)
+- **Compétitions interclubs de la CAF : Les clubs marocains à un pas de la 
+phase de poules**: [Link](https://www.menara.ma/fr/article/competitions-interclubs-de-la-caf-les-clubs-marocains-a-un-pas-de-la-phase-de-poules)
+
+
 ### joshua vs dubois (N/A, Sat, 21 Sep 2024 14:00:00 -0700)
 
 - **Anthony Joshua vs Daniel Dubois LIVE: Start time, undercard results and 
