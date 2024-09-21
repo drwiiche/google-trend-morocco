@@ -1,3 +1,10 @@
+### la liga (N/A, Sat, 21 Sep 2024 13:30:00 -0700)
+
+- **Mamardashvili: "It was our best game of the season so far"**: [Link](https://www.valenciacf.com/mamardashvili-it-was-our-best-game-of-the-season-so-far)
+- **Preview: Valencia vs. Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/preview-valencia-vs-girona-prediction-team-news-lineups_553345.html)
+- **Valencia 2-0 Girona: Los Che up and running with upset win**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/valencia-2-0-girona-los-che-up-and-running-with-upset-win-2024-09-21)
+
+
 ### psg (N/A, Sat, 21 Sep 2024 12:50:00 -0700)
 
 - **PSG : Nicolas Sarkozy tacle Kylian Mbappé**: [Link](https://www.footmercato.net/a5761580134503688779-psg-nicolas-sarkozy-tacle-kylian-mbappe)
