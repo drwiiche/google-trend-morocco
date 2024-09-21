@@ -1,3 +1,13 @@
+### anthony joshua (N/A, Sat, 21 Sep 2024 14:30:00 -0700)
+
+- **Anthony Joshua defeated by Daniel Dubois in IBF world heavyweight title at 
+Wembley Stadium**: [Link](https://news.sky.com/story/anthony-joshua-defeated-by-daniel-dubois-in-ibf-world-heavyweight-title-at-wembley-stadium-13219526)
+- **BBC Radio 5 Live and BBC Sounds secure audio rights for heavyweight clash 
+Anthony Joshua versus Daniel Dubois as part of Riyadh Season Card Wembley 
+Edition**: [Link](https://www.bbc.com/mediacentre/2024/bbc-radio-5-live-and-bbc-sounds-secure-audio-rights-for-heavyweight-clash-anthony-joshua-versus-daniel-dubois)
+- **Anthony Joshua vs. Daniel Dubois live results and analysis**: [Link](https://www.espn.com/boxing/story/_/id/41330045/anthony-joshua-vs-daniel-dubois-live-boxing-results-analysis)
+
+
 ### mbappe (N/A, Sat, 21 Sep 2024 14:20:00 -0700)
 
 - **PSG appeal order to pay Kylian Mbappe €55m in withheld salary - The Athletic**: [Link](https://www.nytimes.com/athletic/5783375/2024/09/21/psg-kylian-mbappe-salary-dispute/)
