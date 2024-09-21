@@ -1,3 +1,16 @@
+### west ham – chelsea (N/A, Sat, 21 Sep 2024 03:40:00 -0700)
+
+- **Team News | Lopetegui updates on Emerson and Füllkrug**: [Link](https://www.whufc.com/news/team-news-lopetegui-updates-emerson-and-fullkrug)
+- **Fitness Hint I Prospect of Intriguing Match – Up**: [Link](https://www.claretandhugh.info/hammers-fitness-hint-creates-mouth-watering-match-up/)
+- **West Ham fan site believe they now have a ‘huge boost’ over Chelsea this 
+weekend**: [Link](https://chelsea.news/2024/09/west-ham-fan-site-believes-they-now-have-a-huge-boost-over-chelsea-this-weekend/)
+
+
+### maroc vs portugal futsal (N/A, Sat, 21 Sep 2024 03:30:00 -0700)
+
+
+
+
 ### ceuta (N/A, Sat, 21 Sep 2024 03:30:00 -0700)
 
 - **El tiempo en Ceuta: previsión meteorológica de hoy, sábado 21 de septiembre**: [Link](https://www.elconfidencial.com/el-tiempo/2024-09-21/el-tiempo-en-ceuta-sabado_3961954/)
