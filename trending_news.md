@@ -1,3 +1,10 @@
+### bls (N/A, Sat, 21 Sep 2024 02:00:00 -0700)
+
+- **BLS Took 20 Minutes to Realize the Public Couldn’t See Jobs Data**: [Link](https://www.bloomberg.com/news/articles/2024-09-20/bls-needed-20-minutes-to-realize-public-couldn-t-see-jobs-data)
+- **BLS Took 20 Minutes to Realize the Public Couldn’t See Jobs Data**: [Link](https://www.bnnbloomberg.ca/business/company-news/2024/09/20/bls-took-20-minutes-to-realize-the-public-couldnt-see-jobs-data/)
+- **BLS Took 20 Minutes to Realize the Public Couldn’t See Jobs Data**: [Link](https://www.msn.com/en-us/money/markets/bls-took-20-minutes-to-realize-the-public-couldn-t-see-jobs-data/ar-AA1qVorh)
+
+
 ### fnideq (N/A, Fri, 20 Sep 2024 21:20:00 -0700)
 
 - **Incidents de Fnideq : le CNDH entre en jeu**: [Link](https://lematin.ma/nation/incidents-de-fnideq-le-cndh-entre-en-jeu/243626)
