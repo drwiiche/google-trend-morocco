@@ -1,3 +1,35 @@
+### ترتيب الدوري الاسباني (N/A, Sat, 21 Sep 2024 13:40:00 -0700)
+
+- **سوبر هاتريك كين يمنحه صدارة هدافي أبطال أوروبا**: [Link](https://www.kooora.com/?n=1355934)
+- **النتائج الكاملة وترتيب الفرق بعد أولى جولات دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2024/9/20/barcleona-real-madrid-bayer-munich-champions-league)
+- **خسارة لبرشلونة وفوز عريض لباير ليفركوزن.. نتائج مباريات اليوم الخميس ضمن 
+أولى جولات دوري أبطال أوروبا**: [Link](https://m.elbotola.com/article/2024-09-19-22-42-260.html)
+
+
+### real madrid cf (N/A, Sat, 21 Sep 2024 13:40:00 -0700)
+
+- **Real Madrid will play the Intercontinental Cup final on 18 December in 
+Qatar.**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/el-real-madrid-jugara-la-final-de-la-copa-intercontinental-el-18-de-diciembre-en-catar-20-09-2024)
+- **Albert Riera: The Spanish backpacker and part-time player now coach of 
+Auckland City ready to take on Al Ain**: [Link](https://www.thenationalnews.com/sport/football/2024/09/20/albert-riera-the-spanish-backpacker-and-part-time-player-now-coach-of-auckland-city-ready-to-take-on-al-ain/)
+- **Preview: Al-Ain vs. Auckland City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ain/preview/preview-al-ain-vs-auckland-city-prediction-team-news-lineups_553467.html)
+
+
+### rma vs (N/A, Sat, 21 Sep 2024 13:40:00 -0700)
+
+- **Real Madrid vs. Espanyol (21 Sep, 2024) Live Score**: [Link](https://africa.espn.com/football/match/_/gameId/704717)
+- **Real Madrid-Espanyol - LaLiga 2024/2025 Statistical Preview**: [Link](https://www.whoscored.com/Matches/1825700/Preview/Spain-LaLiga-2024-2025-Real-Madrid-Espanyol)
+- **Real Madrid vs. Espanyol (22 Sep, 2024) Live Score**: [Link](https://www.espn.com.au/football/match/_/gameId/704717)
+
+
+### real madrid fc (N/A, Sat, 21 Sep 2024 13:40:00 -0700)
+
+- **Real Madrid Poised to Seal New Deal for Loyal Defender Dani Carvajal**: [Link](https://www.footboom1.com/en/news/football/1846484-real-madrid-poised-to-seal-new-deal-for-loyal-defender-dani-carvajal)
+- **Three reasons why Real Madrid veteran’s imminent renewal is great news for 
+the club**: [Link](https://madriduniversal.com/three-reasons-why-real-madrid-veteran-imminent-renewal-is-great-news-for-the-club/)
+- **Real Madrid defensive mainstay will renew his contract with club – report**: [Link](https://madriduniversal.com/real-madrid-defensive-mainstay-will-renew-his-contract-with-club-report/)
+
+
 ### la liga (N/A, Sat, 21 Sep 2024 13:30:00 -0700)
 
 - **Mamardashvili: "It was our best game of the season so far"**: [Link](https://www.valenciacf.com/mamardashvili-it-was-our-best-game-of-the-season-so-far)
