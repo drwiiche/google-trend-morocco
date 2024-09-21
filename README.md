@@ -1,3 +1,12 @@
+### sophie charnavel robert laffont (N/A, Fri, 20 Sep 2024 21:00:00 -0700)
+
+- **Sophie Charnavel, PDG des éditions Robert Laffont, est morte à 47 ans**: [Link](https://www.lemonde.fr/disparitions/article/2024/09/20/mort-a-47-ans-de-sophie-charnavel-pdg-des-editions-robert-laffont_6324929_3382.html)
+- **Sophie Charnavel, directrice des éditions Robert Laffont, est morte à l'âge 
+de 47 ans**: [Link](https://www.francetvinfo.fr/culture/livres/sophie-charnavel-directrice-des-editions-robert-laffont-est-morte-a-l-age-de-48-ans_6791752.html)
+- **Le sort s'acharne ! Matthieu Lartot dévasté par la perte d'une personne 
+chère : "Je n'oublierai jamais..."**: [Link](https://fr.news.yahoo.com/sort-sacharne-matthieu-lartot-d%C3%A9vast%C3%A9-153900542.html)
+
+
 ### affaire lina disparition (N/A, Fri, 20 Sep 2024 17:40:00 -0700)
 
 - **La difficile traque de Samuel Gonin, soupçonné du meurtre de Lina 15 ans**: [Link](https://www.20minutes.fr/faits_divers/4110973-20240919-disparition-lina-samuel-gonin-tout-fait-rendre-indetectable-difficile-traque-suspect)
