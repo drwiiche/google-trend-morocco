@@ -1,3 +1,12 @@
+### daniel dubois (N/A, Sat, 21 Sep 2024 15:10:00 -0700)
+
+- **Joshua v Dubois: Daniel Dubois stops Anthony Joshua in five rounds at 
+Wembley Stadium**: [Link](https://www.bbc.com/sport/boxing/articles/c748ewp98g5o)
+- **Anthony Joshua vs Dubois huge prize money and total purse split**: [Link](https://www.walesonline.co.uk/sport/boxing/anthony-joshua-dubois-prize-money-29956434)
+- **Joshua vs Dubois: Fight date, time, location, undercard, ringwalk, Liam 
+Gallagher and how to watch with Sky Sports**: [Link](https://www.skysports.com/boxing/news/12183/13214647/joshua-vs-dubois-fight-date-time-location-undercard-ringwalk-liam-gallagher-and-how-to-watch-with-sky-sports)
+
+
 ### kylian mbappé (N/A, Sat, 21 Sep 2024 14:40:00 -0700)
 
 - **Mbappe equals Lewandowski on goals thanks to "gifted" penalties**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/mbappe-equals-lewandowski-on-goals-thanks-to-gifted-penalties_307416_102.html)
