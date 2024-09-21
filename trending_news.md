@@ -1,3 +1,36 @@
+### carlos alcaraz (N/A, Sat, 21 Sep 2024 07:10:00 -0700)
+
+- **Alcaraz y Zverev ceden ante los misiles de Shelton y Fritz y Europa y el 
+Resto del Mundo firman las tablas**: [Link](https://www.marca.com/tenis/2024/09/20/66edd77546163f22a38b45bc.html)
+- **Alcaraz se lleva un disgusto en su debut en la Laver Cup**: [Link](https://www.mundodeportivo.com/tenis/20240920/1002319329/alcaraz-lleva-disgusto-debut-laver-cup.html)
+- **Tenis en directo | 20/9/24 | Flashscore.es**: [Link](https://www.flashscore.es/noticias/tenis-chengdu-atp-individuales-tenis-en-directo-alcaraz-pierde-el-dobles-junto-a-zverev-en-la-laver-cup/ruPwaHIk/)
+
+
+### bayern munich (N/A, Sat, 21 Sep 2024 07:10:00 -0700)
+
+- **Kompany expected Olise's flying start at Bayern**: [Link](https://www.beinsports.com/en-nz/football/bundesliga/articles/kompany-expected-olise-s-flying-start-at-bayern-2024-09-20)
+- **Former Reading youngster nets first Bundesliga goal as Harry Kane fires in 
+hattrick**: [Link](https://www.readingchronicle.co.uk/sport/24590056.reading-fc-youngster-nets-first-bundesliga-goal-heavy-win/)
+- **Bayern bosses sing Olise's praises**: [Link](https://bulinews.com/bayern-bosses-sing-olise-praises)
+
+
+### live score (N/A, Sat, 21 Sep 2024 07:10:00 -0700)
+
+- **Mater Dei football gets lift from defense in tough win over St. Frances 
+Academy**: [Link](https://www.ocregister.com/2024/09/20/mater-dei-football-gets-lift-from-defense-in-tough-win-over-st-frances-academy/)
+- **Mater Dei (CA) vs. St. Frances Academy (MD) live stream | How to watch 
+Mater Dei football online**: [Link](https://www.nj.com/sports/2024/09/mater-dei-ca-vs-st-frances-academy-md-live-stream-how-to-watch-mater-dei-football-online.html)
+- **St. Frances (MD) vs Mater Dei (CA) lead the 5 must-watch high school 
+football games this week**: [Link](https://www.sbnation.com/2024/9/20/24249010/high-school-football-must-watch-games-of-the-week-centennial-liberty-mater-dei-sierra-canyon-basha)
+
+
+### fulham – newcastle (N/A, Sat, 21 Sep 2024 07:00:00 -0700)
+
+- **Newcastle XI vs Fulham: Starting lineup and confirmed team news**: [Link](https://www.standard.co.uk/sport/football/newcastle-xi-vs-fulham-fc-isak-starting-lineup-confirmed-team-news-injury-latest-premier-league-2024-today-b1183152.html)
+- **Marco Silva outlines demands to Fulham stars after "frustrating" double blow**: [Link](https://www.mirror.co.uk/sport/football/news/fulham-marco-silva-newcastle-team-33717039)
+- **Willock, Isak and Kelly start – Confirmed Newcastle team vs Fulham**: [Link](https://www.nufcblog.co.uk/2024/09/21/willock-isak-and-kelly-start-confirmed-newcastle-team-vs-fulham/)
+
+
 ### ليفربول ضد بورنموث (N/A, Sat, 21 Sep 2024 06:50:00 -0700)
 
 - **لأول مرة هذا الموسم.. نونيز أساسيا أمام بورنموث**: [Link](https://m.kooora.com/?n=1356191&o=n27338)
