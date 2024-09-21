@@ -1,3 +1,12 @@
+### bruno retailleau (N/A, Sat, 21 Sep 2024 12:40:00 -0700)
+
+- **Bruno Retailleau à l’Intérieur, un symbole de fermeté Place Beauvau**: [Link](https://www.lefigaro.fr/politique/bruno-retailleau-a-l-interieur-un-symbole-de-fermete-place-beauvau-20240920)
+- **Laurent Wauquiez, de « l’intérieur » vers l’extérieur du gouvernement sans 
+passer par Bercy**: [Link](https://www.lemonde.fr/politique/article/2024/09/20/laurent-wauquiez-de-l-interieur-vers-l-exterieur-du-gouvernement-sans-passer-par-bercy_6325754_823448.html)
+- **France: le chef des sénateurs LR Bruno Retailleau nommé ministre de 
+l’Intérieur**: [Link](https://www.h24info.ma/france-le-chef-des-senateurs-lr-bruno-retailleau-nomme-ministre-de-linterieur/)
+
+
 ### real madrid – espanyol : composition (N/A, Sat, 21 Sep 2024 12:30:00 -0700)
 
 - **Real Madrid - Espanyol en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-real-madrid-espanyol_mtc1524260/live-commentary.shtml)
