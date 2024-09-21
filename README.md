@@ -1,3 +1,10 @@
+### juventus – naples (N/A, Sat, 21 Sep 2024 08:20:00 -0700)
+
+- **Pronostic Inter Milan - Milan AC, Serie A**: [Link](https://www.sportytrader.com/pronostics/inter-milan-milan-ac-216361/)
+- **Udinese : Florian Thauvin désabusé par les droits TV**: [Link](https://www.footmercato.net/a168300509771047350-udinese-florian-thauvin-desabuse-par-les-droits-tv)
+- **Materazzi taquine Ibrahimovic avec Maldini et met en garde l'Inter contre une possible erreur dans le derby**: [Link](https://fr.football-italia.net/Materazzi-se-moque-d%27Ibrahimovic-lors-du-derby-de-Maldini/)
+
+
 ### score live (N/A, Sat, 21 Sep 2024 07:00:00 -0700)
 
 - **Carey takes Australia to 270 in 2nd ODI against England after collapse**: [Link](https://www.france24.com/en/live-news/20240921-carey-takes-australia-to-270-in-2nd-odi-against-england-after-collapse)
