@@ -1,3 +1,38 @@
+### joshua vs dubois (N/A, Sat, 21 Sep 2024 14:00:00 -0700)
+
+- **Anthony Joshua vs Daniel Dubois LIVE: Start time, undercard results and 
+stream**: [Link](https://www.mirror.co.uk/sport/boxing/anthony-joshua-fight-live-stream-33719127)
+- **Joshua vs Dubois: AJ heavier than champion for world title fight at Wembley**: [Link](https://www.bbc.com/sport/boxing/articles/cnvdqj6prllo)
+- **Anthony Joshua Net Worth 2024: How much he gets from fights and sponsors?**: [Link](https://www.marca.com/en/lifestyle/celebrity-net-worth/2024/09/21/66ebcfb922601d5f398b45a5.html)
+
+
+### باريس سان جيرمان (N/A, Sat, 21 Sep 2024 14:00:00 -0700)
+
+- **إنريكي يعفي حكيمي من مهمة جديدة**: [Link](https://www.kooora.com/?n=1356152)
+- **الرسم التكتيكي لفريقي باريس سان جيرمان و ريمس**: [Link](https://hihi2.com/2024/09/21/p2857431.html)
+- **لويس إنريكي يستبعد أشرف حكيمي من مواجهة باريس سانجرمان وريمس بالدوري الفرنسي**: [Link](https://www.akhbarona.com/sport/proplayers/392524.html)
+
+
+### endrick (N/A, Sat, 21 Sep 2024 13:50:00 -0700)
+
+- **Endrick interview turns into comedy as Rudiger crashes with a hilarious 
+twist**: [Link](https://www.msn.com/en-us/sports/other/endrick-ucl-interview-turns-into-comedy-as-rudiger-crashes-with-a-hilarious-twist/ar-AA1qLCq4)
+- **Thibaut Courtois finally reveals why Real Madrid wonderkid Endrick, 18, was 
+given his playful 'Bobby' nickname**: [Link](https://www.dailymail.co.uk/sport/football/article-13875293/Thibaut-Courtois-Real-Madrid-Endrick-18-Bobby-nickname.html)
+- **Thibaut Courtois finally reveals the real reason why Endrick ended up with 
+'Bobby' nickname from Real Madrid players**: [Link](https://www.sportbible.com/football/la-liga/real-madrid/endrick-real-madrid-nickname-bobby-charlton-thibaut-courtois-026821-20240920)
+
+
+### bellingham (N/A, Sat, 21 Sep 2024 13:50:00 -0700)
+
+- **Jude Bellingham not listening to La Liga stars telling him 'you can't do 
+that here'**: [Link](https://www.mirror.co.uk/sport/football/news/jude-bellingham-real-madrid-laliga-33698533)
+- **Jude Bellingham is refusing to listen after LaLiga stars told him 'you 
+can't do that here'**: [Link](https://www.express.co.uk/sport/football/1950144/jude-bellingham-real-madrid-La-Liga)
+- **'It's not fair...' - Jude Bellingham outlines big 'worry' surrounding 
+Sunderland star Jobe**: [Link](https://www.sunderlandecho.com/sport/football/sunderland-afc/it-is-not-fair-jude-bellingham-outlines-big-worry-surrounding-sunderland-star-jobe-4790436)
+
+
 ### ترتيب الدوري الاسباني (N/A, Sat, 21 Sep 2024 13:40:00 -0700)
 
 - **سوبر هاتريك كين يمنحه صدارة هدافي أبطال أوروبا**: [Link](https://www.kooora.com/?n=1355934)
