@@ -1,3 +1,29 @@
+### madrid (N/A, Sat, 21 Sep 2024 13:00:00 -0700)
+
+- **Real Madrid - Barcelona, en directo: Supercopa España Baloncesto 2024, hoy en vivo**: [Link](https://as.com/baloncesto/acb/real-madrid-barcelona-en-directo-supercopa-espana-baloncesto-2024-hoy-en-vivo-n/)
+- **El Real Madrid gana un Clásico de infarto y deja a tiro su primer título**: [Link](https://www.marca.com/baloncesto/supercopa/2024/09/21/real-madrid-gana-clasico-infarto-deja-tiro-primer-titulo.html)
+- **Real Madrid 89-83 Barcelona: resultado, resumen y estadísticas del partido de Supercopa de España**: [Link](https://www.sport.es/es/noticias/baloncesto-barca/real-madrid-barcelona-directo-semifinal-108326040)
+
+
+### el hilali (N/A, Sat, 21 Sep 2024 12:50:00 -0700)
+
+
+
+
+### othman nasrou (N/A, Sat, 21 Sep 2024 12:50:00 -0700)
+
+- **«Grotesque», «islamophobe» : la gauche se déchaîne contre l'idée d'un ministère de la Laïcité**: [Link](https://www.lejdd.fr/politique/grotesque-islamophobe-la-gauche-se-dechaine-contre-lidee-dun-ministere-de-la-laicite-149701)
+- **Enfin une bonne nouvelle : la création d’un ministère de la Laïcité !**: [Link](https://www.nouvelobs.com/opinions/20240920.OBS93874/enfin-une-bonne-nouvelle-la-creation-d-un-ministere-de-la-laicite.html)
+- **Natif de Casablanca et ancien du Lycée Lyautey, Othman Nasrou sur le point de rejoindre le gouvernement Barnier**: [Link](https://www.challenge.ma/natif-de-casablanca-et-ancien-du-lycee-lyautey-othman-nasrou-sur-le-point-de-rejoindre-le-gouvernement-barnier-287161/)
+
+
+### real vs (N/A, Sat, 21 Sep 2024 12:10:00 -0700)
+
+- **Real Madrid - RCD Espanyol live: La Liga - Football**: [Link](https://www.tntsports.co.uk/football/la-liga/2024-2025/live-real-madrid-rcd-espanyol_mtc1524260/live-commentary.shtml)
+- **Mbappe, Rodrygo start in a 4-3-3 – How Real Madrid can line up against Espanyol**: [Link](https://madriduniversal.com/mbappe-rodrygo-start-in-a-4-3-3-how-real-madrid-can-line-up-against-espanyol/)
+- **Real Madrid vs Espanyol: Preview, predictions and lineups**: [Link](https://www.90min.com/real-madrid-vs-espanyol-preview-predictions-lineups-21-9-2024)
+
+
 ### bruno retailleau (N/A, Sat, 21 Sep 2024 12:40:00 -0700)
 
 - **Bruno Retailleau à l’Intérieur, un symbole de fermeté Place Beauvau**: [Link](https://www.lefigaro.fr/politique/bruno-retailleau-a-l-interieur-un-symbole-de-fermete-place-beauvau-20240920)
