@@ -1,3 +1,10 @@
+### real madrid vs espanyol (N/A, Sat, 21 Sep 2024 11:10:00 -0700)
+
+- **CONFIRMED lineups: Real Madrid vs Espanyol, 2024 La Liga**: [Link](https://www.managingmadrid.com/2024/9/21/24250698/real-madrid-espanyol-2024-live-online-stream)
+- **Real Madrid vs. Espanyol - Football Match Preview - September 21, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704717)
+- **🚨 Arda Güler starts! Real Madrid name starting XI for Espanyol clash**: [Link](https://sports.yahoo.com/arda-g-ler-starts-real-171000341.html)
+
+
 ### real madrid – espanyol (N/A, Sat, 21 Sep 2024 10:30:00 -0700)
 
 - **Posible alineación del Real Madrid contra el Espanyol en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-espanyol-en-laliga-ea-sports-n/)
