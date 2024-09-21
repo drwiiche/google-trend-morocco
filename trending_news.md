@@ -1,3 +1,21 @@
+### saint etienne foot (N/A, Sat, 21 Sep 2024 09:30:00 -0700)
+
+- **"Reposez-vous bien" : les supporters de Saint-Etienne en colère après la 
+déroute à Nice (8-0)**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/reposez-vous-bien-les-supporters-de-saint-etienne-en-colere-apres-la-deroute-a-nice-8-0_sto10346846/story.shtml)
+- **Jamais au 21e siècle une équipe de Ligue 1 n’avait mis autant de buts à la 
+mi-temps**: [Link](https://www.huffingtonpost.fr/sport/article/nice-saint-etienne-avec-6-buts-a-la-mi-temps-les-nicois-battent-un-record-en-ligue-1-au-21e-siecle_239900.html)
+- **Ligue 1 : pour fêter leurs 120 ans, les Aiglons niçois s’offrent un carton 
+historique et humilient Saint-Etienne**: [Link](https://www.lefigaro.fr/sports/football/ligue-1/ligue-1-pour-feter-leurs-120-ans-les-aiglons-s-offrent-un-carton-historique-et-humilient-saint-etienne-20240920)
+
+
+### marc andre ter stegen (N/A, Sat, 21 Sep 2024 09:30:00 -0700)
+
+- **AS Monaco 2-1 FC Barcelona: Beaten with ten men**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4122766/as-monaco-21-fc-barcelona-beaten-with-ten-men)
+- **Pedri: We were physically strong despite the expulsion, and this is what I 
+tell the fans**: [Link](https://www.ysscores.com/en/news/4380404/Pedri:-We-were-physically-strong-despite-the-expulsion,-and-this-is-what-I-tell-the-fans)
+- **Ilenikhena: Barcelona's Nemesis Surpasses Mbappé**: [Link](https://www.footboom1.com/en/news/football/1842127-ilenikhena-barcelona-s-nemesis-surpasses-mbappe)
+
+
 ### fenerbahçe – galatasaray (N/A, Sat, 21 Sep 2024 09:20:00 -0700)
 
 - **Derbide ilk 11’ler belli oldu**: [Link](https://www.diken.com.tr/derbide-ilk-11ler-belli-oldu/)
