@@ -1,3 +1,11 @@
+### fenerbahçe vs galatasaray (N/A, Sat, 21 Sep 2024 10:30:00 -0700)
+
+- **How to Watch: Fenerbahce vs Galatasaray**: [Link](https://www.beinsports.com/en-us/soccer/sper-lig/articles-video/how-to-watch-fenerbahce-vs-galatasaray-2024-09-19)
+- **Jose Mourinho’s Fenerbahçe vs Okan Buruk’s Galatasaray: Tactical Breakdown**: [Link](https://totalfootballanalysis.com/match-analysis/tactical-preview/turkish-super-lig-202425-fenerbahce-galatasaray-tactical-preview-analysis-tactics)
+- **Victor Osimhen set to face off against Bright Osayi-Samuel in Turkey’s 
+Super Lig clash of giants**: [Link](https://sportsration.com/victor-osimhen-set-to-face-off-against-bright-osayi-samuel-in-turkeys-super-lig-clash-of-giants/)
+
+
 ### new york city fc – inter miami (N/A, Sat, 21 Sep 2024 10:20:00 -0700)
 
 - **Inter Miami's goals leader enjoys title with Leo Messi on his tail before 
