@@ -1,3 +1,8 @@
+### بلد الوليد ضد ريال سوسيداد (N/A, Sat, 21 Sep 2024 04:40:00 -0700)
+
+- **موعد مباراة بلد الوليد وريال سوسيداد في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/472266)
+
+
 ### real sociedad (N/A, Sat, 21 Sep 2024 05:30:00 -0700)
 
 - **Preview: Real Valladolid vs. Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/preview-valladolid-vs-real-sociedad-prediction-team-news-lineups_553308.html)
