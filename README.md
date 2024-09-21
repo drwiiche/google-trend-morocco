@@ -1,3 +1,38 @@
+### poupette kenza (N/A, Sat, 21 Sep 2024 11:50:00 -0700)
+
+- **Le salon de bronzage de l'influenceuse Poupette Kenza et de son mari fermé 
+pour travail dissimulé**: [Link](https://france3-regions.francetvinfo.fr/normandie/seine-maritime/rouen/le-salon-de-bronzage-de-l-influenceuse-poupette-kenza-et-de-son-mari-ferme-pour-travail-dissimule-3035492.html)
+- **À Rouen, le salon de bronzage créé par Poupette Kenza et son mari, de 
+nouveau fermé par la préfecture**: [Link](https://www.paris-normandie.fr/id561451/article/2024-09-20/rouen-le-salon-de-bronzage-cree-par-poupette-kenza-et-son-mari-de-nouveau-ferme)
+- **A Rouen, le salon de bronzage de Poupette Kenza fermé un mois par la 
+préfecture**: [Link](https://actu.fr/normandie/rouen_76540/a-rouen-le-salon-de-bronzage-de-poupette-kenza-ferme-un-mois-par-la-prefecture_61634337.html)
+
+
+### الهلال (N/A, Sat, 21 Sep 2024 11:40:00 -0700)
+
+- **صورة.. هل تعمد الهلال السخرية من الاتحاد قبل الكلاسيكو؟**: [Link](https://www.kooora.com/?n=1356176)
+- **بونو عن إمكانية العودة إلي أوروبا: "أحاول أن أبذل قصارى جهدي رفقة الهلال 
+وعندما ينتهي مونديال 2026 سنرى ما يمكن أن يحدث"**: [Link](https://m.elbotola.com/article/2024-09-21-15-00-606.html)
+- **شاهد بالصور.. غرفة ملابس الاتحاد قبل الكلاسيكو**: [Link](https://hihi2.com/2024/09/21/p2857286.html)
+
+
+### نيويورك سيتي ضد إنتر ميامي (N/A, Sat, 21 Sep 2024 11:40:00 -0700)
+
+- **موعد مباراة إنتر ميامي ونيويورك سيتي في الدوري الأمريكي 2024 والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1355782)
+- **إنتر ميامي يكتفي بالتعادل مع أتلانتا يونايتد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%8A%D9%83%D8%AA%D9%81%D9%8A-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%A3%D8%AA%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-2024-09-19)
+- **عودة ميسي لم تُسعف إنتر ميامي.. تعادل سادس وحفاظ على الصدارة**: [Link](https://www.alaraby.co.uk/sport/%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%8A%D8%B3%D9%8A-%D9%84%D9%85-%D8%AA%D9%8F%D8%B3%D8%B9%D9%81-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B3%D8%A7%D8%AF%D8%B3-%D9%88%D8%AD%D9%81%D8%A7%D8%B8-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9)
+
+
+### gouvernement barnier (N/A, Sat, 21 Sep 2024 11:30:00 -0700)
+
+- **Didier Migaud à la justice, Bruno Retailleau à l’intérieur, Antoine Armand 
+à Bercy… Retrouvez la liste des membres du gouvernement Barnier**: [Link](https://www.lemonde.fr/politique/live/2024/09/21/en-direct-michel-barnier-a-commence-a-appeler-les-entrants-et-sortants-du-gouvernement_6325006_823448.html)
+- **Gouvernement de Michel Barnier : découvrez la liste complète des 39 
+ministres et secrétaires d'Etat**: [Link](https://www.francetvinfo.fr/politique/gouvernement-de-michel-barnier/gouvernement-de-michel-barnier-decouvrez-la-liste-complete-des-39-ministres-et-secretaires-d-etat_6794056.html)
+- **À l’heure des monstres**: [Link](https://melenchon.fr/2024/09/21/a-lheure-des-monstres/)
+
+
 ### reims – paris-sg (N/A, Sat, 21 Sep 2024 11:30:00 -0700)
 
 - **Le PSG tombe de haut à Reims**: [Link](https://www.footmercato.net/a3203538634451917510-le-psg-tombe-de-haut-a-reims)
