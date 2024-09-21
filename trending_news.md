@@ -1,3 +1,17 @@
+### mbappe (N/A, Sat, 21 Sep 2024 14:20:00 -0700)
+
+- **PSG appeal order to pay Kylian Mbappe €55m in withheld salary - The Athletic**: [Link](https://www.nytimes.com/athletic/5783375/2024/09/21/psg-kylian-mbappe-salary-dispute/)
+- **War erupts between PSG and Mbappé**: [Link](https://www.fichajes.net/en/news/war-erupts-between-psg-and-mbappe-20240921.html)
+- **Fresh Twist Emerges in Kylian Mbappe €55m Dispute with PSG**: [Link](https://www.givemesport.com/psg-appeal-kylian-mbappe-55m-bonuses-decision/)
+
+
+### laliga (N/A, Sat, 21 Sep 2024 13:50:00 -0700)
+
+- **The young center-back who could break out this season in LaLiga**: [Link](https://www.fichajes.net/en/news/the-young-center-back-who-could-break-out-this-season-in-laliga-20240920.html)
+- **Mamardashvili: "It was our best game of the season so far"**: [Link](https://www.valenciacf.com/mamardashvili-it-was-our-best-game-of-the-season-so-far)
+- **Preview: Valencia vs. Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/preview-valencia-vs-girona-prediction-team-news-lineups_553345.html)
+
+
 ### raja casablanca (N/A, Sat, 21 Sep 2024 14:10:00 -0700)
 
 - **Ligue des Champions: le Raja bat le FC Samartex et assure sa qualification 
