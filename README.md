@@ -1,3 +1,10 @@
+### napoli (N/A, Sat, 21 Sep 2024 10:40:00 -0700)
+
+- **LIVE Juve-Napoli 0-0: Politano ci prova dal limite, alto di poco**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/21-09-2024/juve-napoli-live-la-diretta-di-serie-a.shtml)
+- **Juventus-Napoli, le formazioni ufficiali: il Napoli cambia**: [Link](https://www.napolinetwork.com/news/277614071302/juventus-napoli-le-formazioni-ufficiali-il-napoli-cambia)
+- **Gazzetta - Pronti per il salto in alto**: [Link](https://www.tuttojuve.com/altre-notizie/gazzetta-pronti-per-il-salto-in-alto-703124)
+
+
 ### fenerbahçe vs galatasaray (N/A, Sat, 21 Sep 2024 10:30:00 -0700)
 
 - **How to Watch: Fenerbahce vs Galatasaray**: [Link](https://www.beinsports.com/en-us/soccer/sper-lig/articles-video/how-to-watch-fenerbahce-vs-galatasaray-2024-09-19)
