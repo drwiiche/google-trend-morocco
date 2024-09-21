@@ -1,3 +1,18 @@
+### fenerbahçe – galatasaray (N/A, Sat, 21 Sep 2024 09:20:00 -0700)
+
+- **Derbide ilk 11’ler belli oldu**: [Link](https://www.diken.com.tr/derbide-ilk-11ler-belli-oldu/)
+- **Galatasaraylı taraftarlar Kadıköy'e geldi**: [Link](https://www.ntvspor.net/video-galeri/galatasarayli-taraftarlar-kadikoy-e-geldi-66eed22f051e620433669839)
+- **Jose Mourinho: 3 puan almak için oynayacağız**: [Link](https://www.ntv.com.tr/sporskor/jose-mourinho-3-puan-almak-icin-oynayacagiz,trvJ2_wgqUaZT-pUR9cnkQ)
+
+
+### tottenham (N/A, Sat, 21 Sep 2024 07:10:00 -0700)
+
+- **Ange Postecolgou: Tottenham manager's relationship with fans**: [Link](https://www.bbc.com/sport/football/articles/c8rdjvd3nzzo)
+- **Jamie O'Hara backs Premier League boss to last the season**: [Link](https://www.dazn.com/en-CA/news/soccer/jamie-ohara-backs-premier-league-boss-to-last-the-season/1qhwy9mus7f511vq3s0xw0ne3d)
+- **Yesterday two papers linked the Celtic boss to Ange’s job at Spurs. How 
+desperate.**: [Link](https://thecelticblog.com/2024/09/articles-and-features/yesterday-two-papers-linked-the-celtic-boss-to-anges-job-at-spurs-how-desperate/)
+
+
 ### كريستال بالاس ضد مان يونايتد (N/A, Sat, 21 Sep 2024 09:00:00 -0700)
 
 - **راشفورد على دكة بدلاء اليونايتد أمام كريستال بالاس**: [Link](https://www.kooora.com/?n=1356232&o=n27338)
