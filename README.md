@@ -1,3 +1,10 @@
+### valladolid – real sociedad (N/A, Sat, 21 Sep 2024 04:10:00 -0700)
+
+- **Cambiar de dinámica**: [Link](https://www.realsociedad.eus/es/noticias/detalle/cambiar-de-dinamica)
+- **Cara a cara | Real Valladolid vs Real Sociedad**: [Link](https://www.realvalladolid.es/noticias/cara-a-cara-j6-real-valladolid-vs-real-sociedad)
+- **Espantar los fantasmas de Zorrilla**: [Link](https://www.diariovasco.com/real-sociedad/espantar-fantasmas-zorrilla-20240921071801-nt.html)
+
+
 ### west ham – chelsea (N/A, Sat, 21 Sep 2024 03:40:00 -0700)
 
 - **Team News | Lopetegui updates on Emerson and Füllkrug**: [Link](https://www.whufc.com/news/team-news-lopetegui-updates-emerson-and-fullkrug)
