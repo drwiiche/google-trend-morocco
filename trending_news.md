@@ -1,3 +1,10 @@
+### reims – paris-sg (N/A, Sat, 21 Sep 2024 11:30:00 -0700)
+
+- **Le PSG tombe de haut à Reims**: [Link](https://www.footmercato.net/a3203538634451917510-le-psg-tombe-de-haut-a-reims)
+- **PSG: Luis Enrique «touche du bois» pour Acharf Hakimi**: [Link](https://sport.le360.ma/football/ligue-1/psg-luis-enrique-touche-du-bois-pour-acharf-hakimi_LQ6FX2XWR5FR5L7SYZSFUEH6XU/)
+- **Luis Enrique : « Mon travail à la fin est d'être injuste » (Ligue 1)**: [Link](https://www.lequipe.fr/Football/Actualites/Luis-enrique-mon-travail-a-la-fin-est-d-etre-injuste/1508839)
+
+
 ### real madrid vs espanyol (N/A, Sat, 21 Sep 2024 11:10:00 -0700)
 
 - **CONFIRMED lineups: Real Madrid vs Espanyol, 2024 La Liga**: [Link](https://www.managingmadrid.com/2024/9/21/24250698/real-madrid-espanyol-2024-live-online-stream)
