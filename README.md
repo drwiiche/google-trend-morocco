@@ -1,3 +1,12 @@
+### match saint etienne (N/A, Sat, 21 Sep 2024 05:00:00 -0700)
+
+- **Ligue 1 - Six buts encaissés et la pire mi-temps du siècle pour l'AS 
+Saint-Etienne : "On doit avoir honte"**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/ligue-1-six-buts-encaisses-et-la-pire-mi-temps-du-siecle-pour-l-as-saint-etienne-on-doit-avoir-honte_sto10346393/story.shtml)
+- **Jamais au 21e siècle une équipe de Ligue 1 n’avait mis autant de buts à la 
+mi-temps**: [Link](https://www.huffingtonpost.fr/sport/article/nice-saint-etienne-avec-6-buts-a-la-mi-temps-les-nicois-battent-un-record-en-ligue-1-au-21e-siecle_239900.html)
+- **Les Niçois savourent leur soirée complètement folle**: [Link](https://www.footmercato.net/a6756064749432447577-logc-nice-savoure-sa-soiree-historique)
+
+
 ### حكيم زياش (N/A, Sat, 21 Sep 2024 01:00:00 -0700)
 
 - **حكيم زياش يحذف منشوره المثير للجدل**: [Link](https://ar.hibapress.com/details-553694.html)
