@@ -1,3 +1,19 @@
+### psg (N/A, Sat, 21 Sep 2024 12:50:00 -0700)
+
+- **PSG : Nicolas Sarkozy tacle Kylian Mbappé**: [Link](https://www.footmercato.net/a5761580134503688779-psg-nicolas-sarkozy-tacle-kylian-mbappe)
+- **Foot : Le PSG fait appel de la décision de la LFP dans le litige qui 
+l'oppose à Kylian Mbappé**: [Link](https://www.lequipe.fr/Football/Actualites/Le-psg-fait-appel-de-la-decision-de-la-lfp-dans-le-litige-qui-l-oppose-a-kylian-mbappe/1508956)
+- **Le PSG fait appel de la décision de la commission juridique de la LFP en 
+faveur de Kylian Mbappé**: [Link](https://www.lemonde.fr/sport/article/2024/09/20/le-psg-fait-appel-de-la-decision-de-la-commission-de-discipline-de-la-lfp-en-faveur-de-kylian-mbappe_6325718_3242.html)
+
+
+### ea sports fc 25 (N/A, Sat, 21 Sep 2024 12:30:00 -0700)
+
+- **How to Spot a Walkout in EA Sports FC 25**: [Link](https://gamerant.com/ea-sports-fc-25-spot-walkout/)
+- **The Best Young Goalkeepers in EA Sports FC 25 (Career Mode GK Wonderkids)**: [Link](https://gamerant.com/best-young-goalkeepers-ea-sports-fc-25-career-mode-gk-wonderkids-fifa/)
+- **The 10 highest rated male American players in EA FC 25: Pulisic, Reyna…**: [Link](https://www.planetfootball.com/lists-and-rankings/fc-25-highest-rated-male-american-players-pulisic-reyna)
+
+
 ### madrid (N/A, Sat, 21 Sep 2024 13:00:00 -0700)
 
 - **Real Madrid - Barcelona, en directo: Supercopa España Baloncesto 2024, hoy en vivo**: [Link](https://as.com/baloncesto/acb/real-madrid-barcelona-en-directo-supercopa-espana-baloncesto-2024-hoy-en-vivo-n/)
