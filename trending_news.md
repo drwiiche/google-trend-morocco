@@ -1,3 +1,10 @@
+### fnideq (N/A, Fri, 20 Sep 2024 21:20:00 -0700)
+
+- **Incidents de Fnideq : le CNDH entre en jeu**: [Link](https://lematin.ma/nation/incidents-de-fnideq-le-cndh-entre-en-jeu/243626)
+- **Aziz Akhannouch, l’absent**: [Link](https://mobile.telquel.ma/2024/09/20/aziz-akhannouch-labsent_1894472)
+- **Évitons un nouveau Hirak!**: [Link](https://fr.le360.ma/politique/evitons-un-nouveau-hirak_G5Z2KV7Z4RAA3F3ZCIRIMALMIE/)
+
+
 ### هسبريس (N/A, Fri, 20 Sep 2024 22:50:00 -0700)
 
 
