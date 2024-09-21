@@ -1,3 +1,21 @@
+### فيضانات طاطا (N/A, Sat, 21 Sep 2024 09:50:00 -0700)
+
+- **السيول تهدم منازل في إقليم طاطا .. وقرى معزولة تنتظر التدخل بالمروحيات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84-%D8%AA%D9%87%D8%AF%D9%85-%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D9%81%D9%8A-%D8%A5%D9%82%D9%84%D9%8A%D9%85-%D8%B7%D8%A7%D8%B7%D8%A7-%D9%88%D9%82%D8%B1%D9%89-%D9%85-1434661.html)
+- **تخرجت السنة الماضية وعينت بمركز صحي بجماعة آقا بطاطا.. نعيمة الحيان شهيدة 
+الواجب المهني**: [Link](https://ar.hibapress.com/details-553801.html)
+- **عاجل: ارتفاع وفيات انجراف حافلة للركاب بفعل الفيضانات في طاطا إلى 4… و12 
+مفقودا – اليوم 24**: [Link](https://alyaoum24.com/1916630.html)
+
+
+### aston villa vs wolves (N/A, Sat, 21 Sep 2024 09:10:00 -0700)
+
+- **Aston Villa 3-1 Wolves: Ollie Watkins, Ezri Konsa and Jhon Duran goals give 
+hosts dramatic win**: [Link](https://www.bbc.com/sport/football/live/czxdvg7d53pt)
+- **Dawson | 'The results will come' | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20240919-dawson-the-results-will-come/)
+- **Tyrone Mings and Boubacar Kamara injury updates as Unai Emery delivers 
+'good news'**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/tyrone-mings-boubacar-kamara-injury-29977217)
+
+
 ### juventus (N/A, Sat, 21 Sep 2024 09:30:00 -0700)
 
 - **Juventus-Napoli | I precedenti**: [Link](https://www.juventus.com/it/news/articoli/juventus-napoli-i-precedenti-2024)
