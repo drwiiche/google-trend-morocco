@@ -1,3 +1,27 @@
+### new york city fc – inter miami (N/A, Sat, 21 Sep 2024 10:20:00 -0700)
+
+- **Inter Miami's goals leader enjoys title with Leo Messi on his tail before 
+NYCFC match**: [Link](https://www.usatoday.com/story/sports/soccer/2024/09/20/new-york-city-fc-vs-inter-miami-is-messi-playing-injury-update/75309102007/)
+- **FROM PHILLY DISASTER TO MIAMI: NYCFC's Freese: 'It leaves fire in our 
+bellies and just gets us ready to get our amped up'**: [Link](https://www.frontrowsoccer.com/2024/09/20/from-philly-disaster-to-miami-freese-it-leaves-fire-in-our-bellies-and-just-gets-us-ready-to-get-our-amped-up/)
+- **Here is Messi’s status for Inter Miami vs. NYCFC at Yankee Stadium on 
+Saturday afternoon**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article292770989.html)
+
+
+### lille fc (N/A, Sat, 21 Sep 2024 10:20:00 -0700)
+
+- **Preview: Lille vs. Strasbourg - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/preview/preview-lille-vs-strasbourg-prediction-team-news-lineups_553340.html)
+- **Lille predicted XI vs Strasbourg: Edon Zhegrova benched while Rémy Cabella starts**: [Link](https://www.getfootballnewsfrance.com/2024/lille-predicted-xi-vs-strasbourg-edon-zhegrova-benched-while-remy-cabella-starts/)
+- **Strasbourg predicted XI vs Lille: Diego Moreira’s unfamiliar role and Djordje Petrovic's second appearance**: [Link](https://www.getfootballnewsfrance.com/2024/strasbourg-predicted-xi-vs-lille-diego-moreiras-unfamiliar-role-and-djordje-petrovics-second-appearance/)
+
+
+### juventus vs napoli (N/A, Sat, 21 Sep 2024 10:00:00 -0700)
+
+- **Juventus plan special Szczesny tribute before kick-off against Napoli**: [Link](https://football-italia.net/juventus-szczesny-tribute-before-napoli-game/)
+- **“It is in their DNA.” Giovanni Manna previews the Juventus-Napoli game**: [Link](https://www.juvefc.com/it-is-in-their-dna-giovanni-manna-previews-the-juventus-napoli-game/)
+- **Juventus vs Napoli: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2024/09/21/juventus-vs-napoli-preview-and-prediction/)
+
+
 ### al-hilal – al ittihad (N/A, Sat, 21 Sep 2024 10:10:00 -0700)
 
 - **Bono: Excited about Al-Ittihad’s defeat**: [Link](https://www.ysscores.com/en/news/4424747/Bono:-Excited-about-Al-Ittihad%E2%80%99s-defeat)
