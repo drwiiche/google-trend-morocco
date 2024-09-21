@@ -1,3 +1,11 @@
+### didier migaud (N/A, Sat, 21 Sep 2024 14:50:00 -0700)
+
+- **Didier Migaud, un social-démocrate au ministère de la justice**: [Link](https://www.lemonde.fr/politique/article/2024/09/21/gouvernement-barnier-avec-didier-migaud-un-changement-de-profil-au-ministere-de-la-justice_6327077_823448.html)
+- **Seule caution de gauche, Didier Migaud succède à Dupond-Moretti au 
+ministère de la Justice**: [Link](https://www.liberation.fr/politique/seule-prise-a-gauche-didier-migaud-succede-a-dupond-moretti-au-ministere-de-la-justice-20240921_PNLNNOVR7JCZTAHXOEQQXETJPE/)
+- **Qui est Didier Migaud, le seul homme de gauche pressenti au gouvernement ?**: [Link](https://www.20minutes.fr/politique/4111158-20240920-gouvernement-barnier-didier-migaud-pressenti-etre-seule-personnalite-gauche)
+
+
 ### نتائج مباريات اليوم (N/A, Sat, 21 Sep 2024 14:40:00 -0700)
 
 - **سان جيرمان يواصل التصعيد ضد مبابي**: [Link](https://www.kooora.com/?n=1356189)
