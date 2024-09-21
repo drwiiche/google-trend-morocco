@@ -1,3 +1,10 @@
+### juventus (N/A, Sat, 21 Sep 2024 09:30:00 -0700)
+
+- **Juventus-Napoli | I precedenti**: [Link](https://www.juventus.com/it/news/articoli/juventus-napoli-i-precedenti-2024)
+- **Gazzetta - Pronti per il salto in alto**: [Link](https://www.tuttojuve.com/altre-notizie/gazzetta-pronti-per-il-salto-in-alto-703124)
+- **Sky conferma il cambio modulo: Conte verso il 4-3-3 con McTominay dal 1'!**: [Link](https://www.tuttonapoli.net/notizie/i-sky-i-conferma-il-cambio-modulo-conte-verso-il-4-3-3-con-mctominay-dal-1-587962)
+
+
 ### saint etienne foot (N/A, Sat, 21 Sep 2024 09:30:00 -0700)
 
 - **"Reposez-vous bien" : les supporters de Saint-Etienne en colère après la 
