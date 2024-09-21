@@ -1,3 +1,11 @@
+### score live (N/A, Sat, 21 Sep 2024 07:00:00 -0700)
+
+- **Carey takes Australia to 270 in 2nd ODI against England after collapse**: [Link](https://www.france24.com/en/live-news/20240921-carey-takes-australia-to-270-in-2nd-odi-against-england-after-collapse)
+- **Why Is Alex Carey's Valiant Knock A Tribute To MS Dhoni's Art Of Classic 
+ODI Finishing?**: [Link](https://cricket.one/cricket-analysis/why-is-alex-careys-valiant-knock-a-tribute-to-ms-dhonis-art-of-classic-odi-finishing/66eed5dcae60b5d8a4e2f7ba)
+- **ENG vs AUS Live Score, 2nd ODI: England’s Rashid dismisses Maxwell**: [Link](https://sportstar.thehindu.com/cricket/eng-vs-aus-live-score-2nd-odi-scorecard-latest-updates-highlights-england-v-australia-streaming-info/article68667395.ece)
+
+
 ### aston villa (N/A, Sat, 21 Sep 2024 07:30:00 -0700)
 
 - **Chelsea 1-0 Aston Villa: Johanna Rytting Kaneryd scores as champions win 
