@@ -1,3 +1,11 @@
+### real madrid – espanyol (N/A, Sat, 21 Sep 2024 10:30:00 -0700)
+
+- **Posible alineación del Real Madrid contra el Espanyol en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-espanyol-en-laliga-ea-sports-n/)
+- **Esta es la alineación del Madrid ante el Espanyol: Ancelotti mete rotaciones**: [Link](https://www.defensacentral.com/real_madrid/1709327251-esta-es-la-alineacion-de-ancelotti-ante-el-espanyol-ancelotti-mete-rotaciones)
+- **Un once lleno de sorpresas: de Tchouameni central a la ‘caída’ de un peso 
+pesado**: [Link](https://www.realmadridexclusivo.com/ultima-hora/once-lleno-sorpresas-tchouameni-central-caida-peso-pesado_160058_102.html)
+
+
 ### napoli (N/A, Sat, 21 Sep 2024 10:40:00 -0700)
 
 - **LIVE Juve-Napoli 0-0: Politano ci prova dal limite, alto di poco**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/21-09-2024/juve-napoli-live-la-diretta-di-serie-a.shtml)
