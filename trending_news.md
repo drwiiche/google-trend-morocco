@@ -1,3 +1,18 @@
+### aston villa (N/A, Sat, 21 Sep 2024 07:30:00 -0700)
+
+- **Chelsea 1-0 Aston Villa: Johanna Rytting Kaneryd scores as champions win 
+season opener**: [Link](https://www.bbc.com/sport/football/live/c1jdd61x823t)
+- **Bright reacts to first WSL win of the season 🎤 | Video | Official Site**: [Link](https://www.chelseafc.com/en/video/bright-reacts-to-first-wsl-win-of-the-season-09-2024)
+- **Women's Super League Preview 2024/25**: [Link](https://www.vavel.com/en-us/soccer/2024/09/19/1196841-womens-super-league-preview-202425.html)
+
+
+### سعد لمجرد (N/A, Sat, 21 Sep 2024 07:30:00 -0700)
+
+- **سعد لمجرد يفاجئ زوجته في ذكرى زواجهما**: [Link](https://ar.hibapress.com/details-553421.html)
+- **سعد لمجرد يحتفل برومنسية بعيد زواجه وميلاد غيثة العلاكي**: [Link](https://www.lahamag.com/article/215122-%D8%B3%D8%B9%D8%AF-%D9%84%D9%85%D8%AC%D8%B1%D8%AF-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%B1%D9%88%D9%85%D9%86%D8%B3%D9%8A%D8%A9-%D8%A8%D8%B9%D9%8A%D8%AF-%D8%B2%D9%88%D8%A7%D8%AC%D9%87-%D9%88%D9%85%D9%8A%D9%84%D8%A7%D8%AF-%D8%BA%D9%8A%D8%AB%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%83%D9%8A)
+- **سعد لمجرد يحتفل بذكرى زواجه وعيد ميلاد زوجته في نفس اليوم**: [Link](https://www.raialyoum.com/%D8%B3%D8%B9%D8%AF-%D9%84%D9%85%D8%AC%D8%B1%D8%AF-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%B0%D9%83%D8%B1%D9%89-%D8%B2%D9%88%D8%A7%D8%AC%D9%87-%D9%88%D8%B9%D9%8A%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D8%AF/)
+
+
 ### carlos alcaraz (N/A, Sat, 21 Sep 2024 07:10:00 -0700)
 
 - **Alcaraz y Zverev ceden ante los misiles de Shelton y Fritz y Europa y el 
