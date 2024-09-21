@@ -1,3 +1,27 @@
+### affaire lina disparition (N/A, Fri, 20 Sep 2024 17:40:00 -0700)
+
+- **La difficile traque de Samuel Gonin, soupçonné du meurtre de Lina 15 ans**: [Link](https://www.20minutes.fr/faits_divers/4110973-20240919-disparition-lina-samuel-gonin-tout-fait-rendre-indetectable-difficile-traque-suspect)
+- **Affaire Lina : l’ADN de l’adolescente et celui du principal suspect 
+retrouvés sur des cordes**: [Link](https://www.lefigaro.fr/faits-divers/affaire-lina-l-adn-de-l-adolescente-et-celui-du-principal-suspect-retrouves-sur-des-cordes-20240919)
+- **"Je suis procureur de la République, voici combien je gagne par mois"**: [Link](https://www.mariefrance.fr/actualite/societe/procureur-republique-combien-gagne-mois-1076088.html)
+
+
+### الطائر الرفراف (N/A, Fri, 20 Sep 2024 16:40:00 -0700)
+
+- **لا تفوتها.. موعد اعلان مسلسل طائر الرفراف الموسم الثالث الحلقة 75 والقنوات 
+الناقلة**: [Link](https://atlassport.ps/10370/%D9%84%D8%A7-%D8%AA%D9%81%D9%88%D8%AA%D9%87%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D8%B9%D9%84%D8%A7%D9%86-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%B7%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%B1%D9%81%D8%B1%D8%A7/)
+- **أفرا ساراتش أوغلو ومارت رمضان معاً بعد عرض الحلقات الأولى من طائر الرفراف**: [Link](https://www.rumonline.net/article/714372)
+- **11:00 مشاهير عالمية حفل زفاف ثاني ومن نوع آخر لبطلي "طائر الرفراف".. شـ 
+ـاهدوا - AARC مصر**: [Link](https://gm.aarcegypt.org/uncategorized/218112/1100%0A%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9%0A%0A%D8%AD%D9%81%D9%84-%D8%B2%D9%81%D8%A7%D9%81-%D8%AB%D8%A7%D9%86%D9%8A-%D9%88%D9%85%D9%86-%D9%86%D9%88%D8%B9-%D8%A2%D8%AE%D8%B1-%D9%84%D8%A8%D8%B7%D9%84%D9%8A-%D8%B7%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%B1%D9%81%D8%B1%D8%A7%D9%81-%D8%B4%D9%80-%D9%80%D8%A7%D9%87%D8%AF%D9%88%D8%A7---AARC-%D9%85%D8%B5%D8%B1.html)
+
+
+### النصر (N/A, Fri, 20 Sep 2024 12:10:00 -0700)
+
+- **بالصور: النصر يضرب الاتفاق في الظهور الأول لبيولي**: [Link](https://www.kooora.com/?n=1356082)
+- **شاهد.. بيولي يستهل مشواره مع النصر بفوز كبير في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/2024/9/20/pioli-ronaldo-al-nassr)
+- **فيرناندو هييرو: أشكر بيولي على تدريب النصر**: [Link](https://hihi2.com/2024/09/20/p2854543.html)
+
+
 ### botola pro (N/A, Fri, 20 Sep 2024 12:10:00 -0700)
 
 - **Wydad Drop Points Mokwena’s Third League Game**: [Link](https://www.idiskitimes.co.za/sa-stars-abroad/wydad-drop-points-mokwenas-third-league-game/)
