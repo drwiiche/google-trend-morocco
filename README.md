@@ -1,3 +1,19 @@
+### real sociedad (N/A, Sat, 21 Sep 2024 05:30:00 -0700)
+
+- **Preview: Real Valladolid vs. Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/preview-valladolid-vs-real-sociedad-prediction-team-news-lineups_553308.html)
+- **Real Valladolid vs Real Sociedad Prediction, Lineups & Odds**: [Link](https://www.sportsgambler.com/betting-tips/football/real-valladolid-vs-real-sociedad-prediction-lineups-odds-2024-09-21/)
+- **Real Valladolid vs Real Sociedad Prediction and Betting Tips | September 21st 2024**: [Link](https://www.sportskeeda.com/football/real-valladolid-vs-real-sociedad-prediction-betting-tips-september-21st-2024)
+
+
+### chelsea (N/A, Sat, 21 Sep 2024 05:10:00 -0700)
+
+- **Chelsea 1-0 Aston Villa: Johanna Rytting Kaneryd scores as champions win 
+season opener**: [Link](https://www.bbc.com/sport/football/live/c1jdd61x823t)
+- **12 Women's Super League players to watch out for this season**: [Link](https://herfootballhub.com/beever-jones-yamashita-terland-2024-25-womens-super-league-ones-to-watch/)
+- **Sonia Bompastor on a victorious start and the match-winning strike | News | 
+Official Site**: [Link](https://www.chelseafc.com/en/news/article/sonia-bompastor-on-a-victorious-start-and-the-match-winning-strike)
+
+
 ### match saint etienne (N/A, Sat, 21 Sep 2024 05:00:00 -0700)
 
 - **Ligue 1 - Six buts encaissés et la pire mi-temps du siècle pour l'AS 
