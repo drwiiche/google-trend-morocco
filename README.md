@@ -1,3 +1,25 @@
+### crystal palace – manchester united (N/A, Sat, 21 Sep 2024 08:40:00 -0700)
+
+- **Team news for Palace v United**: [Link](https://www.manutd.com/en/news/detail/team-news-for-crystal-palace-v-man-utd-on-21-september)
+- **Manchester United get major injury boost as 11 squad members for Crystal 
+Palace fixture confirmed**: [Link](https://www.manchestereveningnews.co.uk/sport/football/manchester-united-major-injury-boost-29978313)
+- **Manchester United receive huge injury boost with first-team midfielder**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/manchester-united-receive-huge-injury-29947785)
+
+
+### lille – strasbourg (N/A, Sat, 21 Sep 2024 08:40:00 -0700)
+
+- **MULTIPLEX DE LIGUE 1 EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/live-lille-osc-strasbourg_mtc1526254/live-commentary.shtml)
+- **Lille: le Losc va devoir gagner face à Strasbourg**: [Link](https://www.bfmtv.com/grand-lille/replay-emissions/nord-week-end/lille-le-losc-va-devoir-gagner-face-a-strasbourg_VN-202409210190.html)
+- **L1 : Lille-Strasbourg, les compos probables**: [Link](https://www.maxifoot.fr/ligue-1/lille-strasbourg-les-compos-probables-foot-419662.htm)
+
+
+### motogp (N/A, Sat, 21 Sep 2024 08:20:00 -0700)
+
+- **Four points in it: Bagnaia reels in Martin after tense Misano Sprint**: [Link](https://www.motogp.com/en/news/2024/09/21/four-points-in-it-bagnaia-reels-in-martin-after-tense-misano-sprint/508456)
+- **MARC RESUMES PROCEEDINGS FROM TOP3, ALEX FORCED TO PARTAKE IN Q1**: [Link](https://www.gresiniracing.com/en/marc-riparte-dalla-top3-alex-costretto-alla-q1/)
+- **Qualifying 1 – MotoGP™: Emilia-Romagna Grand Prix**: [Link](https://www.redbull.com/us-en/live/motogp-2024-emilia-romagna-first-qualifying)
+
+
 ### juventus – naples (N/A, Sat, 21 Sep 2024 08:20:00 -0700)
 
 - **Pronostic Inter Milan - Milan AC, Serie A**: [Link](https://www.sportytrader.com/pronostics/inter-milan-milan-ac-216361/)
