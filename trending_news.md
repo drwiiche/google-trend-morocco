@@ -1,3 +1,10 @@
+### نتائج مباريات اليوم (N/A, Sat, 21 Sep 2024 14:40:00 -0700)
+
+- **سان جيرمان يواصل التصعيد ضد مبابي**: [Link](https://www.kooora.com/?n=1356189)
+- **الرئيس الفرنسي الأسبق يهاجم كيليان مبابي بعد رحيله عن باريس سان جيرمان**: [Link](https://hihi2.com/2024/09/21/p2857345.html)
+- **معركة عض الأصابع.. هكذا يريد باريس سان جيرمان كسب الوقت في قضية مبابي!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%B9%D8%B6-%D8%A7%D9%84%D8%A7%D9%94%D8%B5%D8%A7%D8%A8%D8%B9-%D9%8A%D8%B1%D9%8A%D8%AF-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%83%D8%B3%D8%A8-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D9%82%D8%B6%D9%8A%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A/blte274a542b6ecb29e)
+
+
 ### anthony joshua (N/A, Sat, 21 Sep 2024 14:30:00 -0700)
 
 - **Anthony Joshua defeated by Daniel Dubois in IBF world heavyweight title at 
