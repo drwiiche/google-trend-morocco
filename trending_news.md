@@ -1,3 +1,10 @@
+### kylian mbappé (N/A, Sat, 21 Sep 2024 14:40:00 -0700)
+
+- **Mbappe equals Lewandowski on goals thanks to "gifted" penalties**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/mbappe-equals-lewandowski-on-goals-thanks-to-gifted-penalties_307416_102.html)
+- **Primera División Real Madrid 4 Espanyol 1 Full time**: [Link](https://www.bbc.com/sport/football/live/cr4xld2x24xt)
+- **Modric hails Madrid's attacking firepower after Vinicius inspires turnaround**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles/modric-hails-madrids-attacking-firepower-after-vinicius-inspires-turnaround-2024-09-21)
+
+
 ### didier migaud (N/A, Sat, 21 Sep 2024 14:50:00 -0700)
 
 - **Didier Migaud, un social-démocrate au ministère de la justice**: [Link](https://www.lemonde.fr/politique/article/2024/09/21/gouvernement-barnier-avec-didier-migaud-un-changement-de-profil-au-ministere-de-la-justice_6327077_823448.html)
