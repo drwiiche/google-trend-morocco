@@ -1,3 +1,8 @@
+### redoine faid (N/A, Sun, 22 Sep 2024 00:30:00 -0700)
+
+- **Rédoine Faïd : « En survêtement et coiffés comme Jul, les mecs comme Mohamed Amra passent sous tous les radars**: [Link](https://www.leparisien.fr/faits-divers/redoine-faid-en-survetement-et-coiffes-comme-jul-les-mecs-comme-mohamed-amra-passent-sous-tous-les-radars-21-09-2024-Z5ECZECW7REA7GHWURTZIE6YGU.php)
+
+
 ### الجزيرة (N/A, Sat, 21 Sep 2024 23:10:00 -0700)
 
 - **الحرب على غزة.. الاحتلال يغلق مكتب الجزيرة وحزب الله يقصف قاعدة جوية**: [Link](https://www.aljazeera.net/news/liveblog/2024/9/22/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%AC%D8%A7%D8%B2%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-4)
