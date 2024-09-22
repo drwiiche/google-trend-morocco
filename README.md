@@ -1,3 +1,12 @@
+### from season 3 (N/A, Sat, 21 Sep 2024 17:30:00 -0700)
+
+- **Harold Perrineau Says 'From' Season 3 Is Scarier Than the Last: 'Prepare 
+for Worse'**: [Link](https://www.cnet.com/tech/services-and-software/harold-perrineau-says-from-season-3-is-scarier-than-the-last-prepare-for-worse/)
+- **8 Relationships That’ll Get You Hooked on From**: [Link](https://www.vulture.com/article/from-recap-season-three-characters-relationships-explained.html)
+- **How to watch From season 3 online: stream every episode of the hit series 
+free from anywhere now**: [Link](https://www.techradar.com/streaming/entertainment/how-to-watch-from-season-3-stream)
+
+
 ### daniel dubois (N/A, Sat, 21 Sep 2024 15:10:00 -0700)
 
 - **Joshua v Dubois: Daniel Dubois stops Anthony Joshua in five rounds at 
