@@ -1,3 +1,10 @@
+### turkmenistan (N/A, Sun, 22 Sep 2024 15:00:00 -0700)
+
+- **Shavkat Mirziyoyev Sends Birthday Wishes to Turkmen Leader**: [Link](https://business.com.tm/post/12431/shavkat-mirziyoyev-congratulates-president-of-turkmenistan-on-his-birthday)
+- **Presidents of Uzbekistan and Turkmenistan discuss bilateral relations**: [Link](https://www.azerbaycan24.com/en/presidents-of-uzbekistan-and-turkmenistan-discuss-bilateral-relations/)
+- **UAE Ambassador to Turkmenistan meets Minister of Foreign Affairs**: [Link](https://sharjah24.ae/en/Articles/2024/09/21/d88)
+
+
 ### classement ligue 1 (N/A, Sun, 22 Sep 2024 13:50:00 -0700)
 
 - **Stade Brestois - Toulouse FC en direct - Ligue 1 : Football Scores & 
