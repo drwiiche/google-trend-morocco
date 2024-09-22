@@ -1,3 +1,12 @@
+### ath. bilbao – celta vigo (N/A, Sun, 22 Sep 2024 06:40:00 -0700)
+
+- **Preview: Athletic Bilbao vs. Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/preview/preview-athletic-bilbao-vs-celta-vigo-prediction-team-news-lineups_553457.html)
+- **Athletic Bilbao vs Celta Vigo prediction, H2H & Probable Line-ups - 
+September 22, 2024**: [Link](https://dailysports.net/predictions/athletic-bilbao-vs-celta-vigo-prediction-h2h-probable-lineups-september-22-2024/)
+- **Athletic Bilbao vs Celta Vigo Prediction, 9/22/2024 La Liga Soccer Pick, 
+Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/athletic-bilbao-vs-celta-vigo-prediction-9-22-2024-la-liga-soccer-pick-tips-and-odds.html)
+
+
 ### classement futsal 2024 (N/A, Sun, 22 Sep 2024 06:30:00 -0700)
 
 - **College football rankings: Week 5 AP Top 25 projection after Michigan beats 
