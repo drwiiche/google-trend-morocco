@@ -1,3 +1,10 @@
+### leverkusen vs wolfsburg (N/A, Sun, 22 Sep 2024 07:00:00 -0700)
+
+- **Predicted Bayer Leverkusen XI vs Wolfsburg**: [Link](https://sports.yahoo.com/predicted-bayer-leverkusen-xi-vs-081600633.html)
+- **Preview: Bayer Leverkusen vs. Wolfsburg - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/preview-bpoint-leverkusen-vs-wolfsburg-prediction-team-news-lineups_553480.html)
+- **Bayer Leverkusen vs. Wolfsburg preview: Champions targeting another victory**: [Link](https://bulinews.com/bayer-leverkusen-wolfsburg-previews-champions-targeting-another-victory)
+
+
 ### ath. bilbao – celta vigo (N/A, Sun, 22 Sep 2024 06:40:00 -0700)
 
 - **Preview: Athletic Bilbao vs. Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/preview/preview-athletic-bilbao-vs-celta-vigo-prediction-team-news-lineups_553457.html)
