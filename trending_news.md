@@ -1,3 +1,17 @@
+### monaco fc (N/A, Sun, 22 Sep 2024 07:50:00 -0700)
+
+- **Monaco vs Barcelona**: [Link](https://www.uefa.com/uefachampionsleague/match/2042033--monaco-vs-barcelona/)
+- **Atleti vs Leipzig**: [Link](https://www.uefa.com/uefachampionsleague/match/2042031--atleti-vs-leipzig/)
+- **Monaco-Le Havre - Ligue 1 2024/2025 Statistical Preview**: [Link](https://www.whoscored.com/Matches/1824800/Preview/France-Ligue-1-2024-2025-Monaco-Le-Havre)
+
+
+### موناكو ضد لوهافر (N/A, Sun, 22 Sep 2024 06:10:00 -0700)
+
+- **بالصور: موناكو يصالح الانتصارات سريعًا على حساب أوكسير**: [Link](https://www.kooora.com/?n=1354761)
+- **بن صغير قدم ما عليه وموناكو قفز للصدارة**: [Link](https://www.almountakhab.com/node/13204338)
+- **موناكو يكتسح أوكسير ويرتقي لوصافة الدوري الفرنسي مؤقتًا**: [Link](https://www.yallakora.com/ligue1/2908/news/485085/-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D8%A3%D9%88%D9%83%D8%B3%D9%8A%D8%B1-%D9%88%D9%8A%D8%B1%D8%AA%D9%82%D9%8A-%D9%84%D9%88%D8%B5%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%85%D8%A4%D9%82%D8%AA-%D8%A7)
+
+
 ### manchester city – arsenal (N/A, Sun, 22 Sep 2024 07:40:00 -0700)
 
 - **Team news: Calafiori given first start at Man City**: [Link](https://www.arsenal.com/news/team-news-calafiori-given-first-start-man-city)
