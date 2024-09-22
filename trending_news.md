@@ -1,3 +1,22 @@
+### arsenal women (N/A, Sun, 22 Sep 2024 10:30:00 -0700)
+
+- **Beth Mead shows Alessia Russo how it's done! Winners and losers as 
+Arsenal's Lionessess endure mixed afternoon against Vivianne 
+Miedema-inspired Man City in Women's Super League opener**: [Link](https://www.goal.com/en-cm/lists/beth-mead-alessia-russo-winners-losers-arsenal-lionessess-vivianne-miedema-man-city-womens-super-league/blt0e2fa34487cbb042)
+- **Arsenal women's player ratings vs Man City: Super-sub Beth Mead makes her 
+mark as Katie McCabe shines in WSL opening-day draw**: [Link](https://www.goal.com/en-om/lists/arsenal-women-player-ratings-vs-man-city-beth-mead-katie-mccabe/blt54e1ace8d6daa38e)
+- **Man City women player ratings vs Arsenal: Vivianne Miedema haunts Gunners 
+and Lionesses star Jess Park produces another stunner - but Gareth Taylor's 
+selections prove costly in opening WSL draw**: [Link](https://www.goal.com/en-qa/lists/man-city-women-player-ratings-arsenal-vivianne-miedema-lionesses-jess-park-gareth-taylor-wsl/bltf79e5ad38816c72b)
+
+
+### fcb (N/A, Sun, 22 Sep 2024 09:50:00 -0700)
+
+- **Barcelona sub-off seriously injured Ter Stegen in tears – it is his right knee again**: [Link](https://barcauniversal.com/barcelona-sub-off-seriously-injured-ter-stegen-in-tears-it-is-his-right-knee-again/)
+- **Did Monaco Find the Next Mbappé?**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/did-monaco-find-the-next-mbapp%C3%A9-2024-09-21)
+- **Have the criticisms been a bit unfair that Barca starter is facing after Monaco's fixture?**: [Link](https://everythingbarca.com/posts/have-the-criticisms-been-a-bit-unfair-that-barca-starter-is-facing-after-monaco-s-fixture-01j8c3exrffw)
+
+
 ### بث مباشر (N/A, Sun, 22 Sep 2024 10:00:00 -0700)
 
 - **تعيين حكم مباراة العين وأوكلاند سيتي**: [Link](https://www.kooora.com/?n=1356265)
