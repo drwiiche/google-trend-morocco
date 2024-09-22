@@ -1,3 +1,11 @@
+### classement ligue 1 (N/A, Sun, 22 Sep 2024 13:50:00 -0700)
+
+- **Stade Brestois - Toulouse FC en direct - Ligue 1 : Football Scores & 
+Résultats - 22/09/2024**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/live-stade-brestois-toulouse-fc_mtc1526252/live.shtml)
+- **Brest 2-0 Toulouse, Ligue 1 : résumé du match (22/09/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/brest-toulouse-live/655897)
+- **Le TFC va recevoir le SCO le dimanche 20 octobre, voici le calendrier**: [Link](https://www.lesviolets.com/actu/le-tfc-va-recevoir-le-sco-le-dimanche-20-octobre-voici-le-calendrier,73787.html)
+
+
 ### اثار الحكيم (N/A, Sun, 22 Sep 2024 14:00:00 -0700)
 
 - **آثار الحكيم تُقلق محبيها على صحتها بعد سنوات من الغياب**: [Link](https://arabic.cnn.com/entertainment/article/2024/09/22/egyptian-actress-athar-al-hakim-worries-her-fans-about-her-health)
