@@ -1,3 +1,19 @@
+### villarreal vs barcelona (N/A, Sun, 22 Sep 2024 08:40:00 -0700)
+
+- **The squad to play Villarreal**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4126122/the-squad-to-play-villarreal)
+- **Flick Urges FIFA to Reduce Match Overload**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/flick-urges-fifa-to-reduce-match-overload-2024-09-21)
+- **FC Barcelona Team News at Villarreal: De Jong, Olmo, Gavi, Torres**: [Link](https://www.thesportsbank.net/football/fc-barcelona/de-jong-olmo-gavi/)
+
+
+### city (N/A, Sun, 22 Sep 2024 08:40:00 -0700)
+
+- **Chiefs-Falcons prediction: Why this KC-Atlanta pick hinges on Patrick 
+Mahomes**: [Link](https://www.kansascity.com/sports/nfl/kansas-city-chiefs/article292800484.html)
+- **Sunday Night Football odds, line, spread: Falcons vs. Chiefs picks, 
+predictions by Atlanta expert who's 49-23**: [Link](https://www.cbssports.com/nfl/news/sunday-night-football-odds-line-spread-falcons-vs-chiefs-picks-predictions-by-atlanta-expert-whos-49-23/)
+- **NFL 2024 Week 3 Schedule: How to Watch and Stream the Games**: [Link](https://www.today.com/news/sports/nfl-week-3-schedule-2024-how-to-watch-rcna171681)
+
+
 ### brest – toulouse (N/A, Sun, 22 Sep 2024 08:30:00 -0700)
 
 - **Brest sans Romain Del Castillo pour la réception de Toulouse dimanche en 
