@@ -1,3 +1,10 @@
+### aljazeera net (N/A, Sat, 21 Sep 2024 23:30:00 -0700)
+
+- **Israeli forces raid Al Jazeera office in occupied West Bank**: [Link](https://www.bbc.com/news/articles/c8rd5z17px4o)
+- **Israel closes Al Jazeera bureau in Ramallah: All you need to know**: [Link](https://www.aljazeera.com/news/2024/9/22/israel-closes-al-jazeera-bureau-in-ramallah-all-you-need-to-know)
+- **Israel raids and shuts down Al Jazeera's bureau in Ramallah in the West Bank**: [Link](https://www.npr.org/2024/09/22/g-s1-24083/israel-shuts-down-al-jazeera-bureau-ramallah-west-bank)
+
+
 ### alerte météo maroc (N/A, Sat, 21 Sep 2024 22:20:00 -0700)
 
 - **Alerte météo. Averses orageuses encore ce samedi dans 14 provinces**: [Link](https://medias24.com/2024/09/21/alerte-meteo-averses-orageuses-encore-ce-samedi-dans-14-provinces/)
