@@ -1,3 +1,11 @@
+### رام الله (N/A, Sun, 22 Sep 2024 02:00:00 -0700)
+
+- **الحرب على غزة مباشر.. الاحتلال يغلق مكتب الجزيرة وحزب الله يقصف قاعدة جوية**: [Link](https://www.aljazeera.net/news/liveblog/2024/9/22/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%AC%D8%A7%D8%B2%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-4)
+- **أمر عسكري إسرائيلي بإغلاق مكتب شبكة "الجزيرة" الإخبارية في الضفة الغربية لـ 
+45 يوما**: [Link](https://www.bbc.com/arabic/articles/c39l18kvg3yo)
+- **القوات الإسرائيلية تقتحم مكتب قناة الجزيرة في الضفة الغربية وتأمر بإغلاقه**: [Link](https://www.alhurra.com/palestine/2024/09/22/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D8%AD%D9%85-%D9%85%D9%83%D8%AA%D8%A8-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B6%D9%81%D8%A9-%D8%A7%D9%84%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%AA%D8%A3%D9%85%D8%B1-%D8%A8%D8%A5%D8%BA%D9%84%D8%A7%D9%82%D9%87)
+
+
 ### aljazeera net (N/A, Sat, 21 Sep 2024 23:30:00 -0700)
 
 - **Israeli forces raid Al Jazeera office in occupied West Bank**: [Link](https://www.bbc.com/news/articles/c8rd5z17px4o)
