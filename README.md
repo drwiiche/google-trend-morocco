@@ -1,3 +1,11 @@
+### haaland (N/A, Sun, 22 Sep 2024 08:50:00 -0700)
+
+- **"I just love the feeling": Haaland reaches 100 goals for City!**: [Link](https://www.mancity.com/citytv/mens/erling-haaland-100-city-goals-video-63861579)
+- **Haaland's clinical finish gave Man City the lead against Arsenal**: [Link](https://www.besoccer.com/new/haaland-s-clinical-finish-gave-man-city-the-lead-against-arsenal-1331596)
+- **I watched each of Erling Haaland's 100 goals for Man City - they all have 
+one thing in common**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/watched-each-erling-haalands-100-29918803)
+
+
 ### villarreal vs barcelona (N/A, Sun, 22 Sep 2024 08:40:00 -0700)
 
 - **The squad to play Villarreal**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4126122/the-squad-to-play-villarreal)
