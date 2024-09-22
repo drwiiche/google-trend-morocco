@@ -1,3 +1,11 @@
+### alerte météo maroc (N/A, Sat, 21 Sep 2024 22:20:00 -0700)
+
+- **Alerte météo. Averses orageuses encore ce samedi dans 14 provinces**: [Link](https://medias24.com/2024/09/21/alerte-meteo-averses-orageuses-encore-ce-samedi-dans-14-provinces/)
+- **Alerte aux intempéries : Mobilisé, le ministère de l'Intérieur appelle les 
+citoyens à la vigilance**: [Link](https://fr.hespress.com/386927-les-autorites-locales-ont-pris-toutes-les-mesures-pour-faire-face-aux-eventuels-degats-des-perturbations-meteorologiques.html)
+- **Intempéries dans le Sud : l’Intérieur appelle à la vigilance absolue**: [Link](https://ledesk.ma/encontinu/intemperies-dans-le-sud-linterieur-appelle-a-la-vigilance-absolue/)
+
+
 ### redoine faid (N/A, Sun, 22 Sep 2024 00:30:00 -0700)
 
 - **Rédoine Faïd : « En survêtement et coiffés comme Jul, les mecs comme Mohamed Amra passent sous tous les radars**: [Link](https://www.leparisien.fr/faits-divers/redoine-faid-en-survetement-et-coiffes-comme-jul-les-mecs-comme-mohamed-amra-passent-sous-tous-les-radars-21-09-2024-Z5ECZECW7REA7GHWURTZIE6YGU.php)
