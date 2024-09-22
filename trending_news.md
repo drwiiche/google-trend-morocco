@@ -1,3 +1,11 @@
+### classement la liga (N/A, Sun, 22 Sep 2024 11:30:00 -0700)
+
+- **Real Madrid 4-1 Espanyol Barcelone, La Liga : résumé du match (21/09/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-madrid-espanyol-barcelone-live/657339)
+- **Real Madrid - Espanyol en direct - La Liga : Football Scores & Résultats - 
+21/09/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-real-madrid-espanyol_mtc1524260/live.shtml)
+- **Real Madrid : Kylian Mbappé continue de régaler les Madrilènes !**: [Link](https://www.footmercato.net/a7288546596324305672-real-madrid-kylian-mbappe-continue-de-regaler-les-madrilenes)
+
+
 ### ترتيب الدوري الاسباني (N/A, Sun, 22 Sep 2024 11:20:00 -0700)
 
 - **وصمة عار في تاريخ كورتوا بالليجا**: [Link](https://www.kooora.com/?n=1356349)
