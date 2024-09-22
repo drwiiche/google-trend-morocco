@@ -1,3 +1,11 @@
+### بث مباشر (N/A, Sun, 22 Sep 2024 10:00:00 -0700)
+
+- **تعيين حكم مباراة العين وأوكلاند سيتي**: [Link](https://www.kooora.com/?n=1356265)
+- **رحيمي بديلا أمام أوكلاند سيتي في كأس القارات للأندية**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/445565.html)
+- **مدرب ولاعب أوكلاند سيتي قبل مواجهة العين: "رحيمي خيالي ولا يُصدّق.. إنه 
+يتمتَّع بجودة عالية"**: [Link](https://m.elbotola.com/article/2024-09-22-10-28-677.html)
+
+
 ### fc barcelone (N/A, Sun, 22 Sep 2024 10:00:00 -0700)
 
 - **Villarreal - FC Barcelone en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-villarreal-fc-barcelone_mtc1524258/live-commentary.shtml)
