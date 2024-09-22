@@ -1,3 +1,24 @@
+### roma – udinese (N/A, Sun, 22 Sep 2024 09:30:00 -0700)
+
+- **Probable Formations: Udinese vs Roma**: [Link](https://www.chiesaditotti.com/2024/9/21/24250873/probable-formations-udinese-vs-roma)
+- **Gianluca Mancini talks ahead of Ivan Juric’s debut, responds to fans’ 
+boycott**: [Link](https://romapress.net/gianluca-mancini-talks-ahead-of-ivan-jurics-debut-responds-to-fans-boycott/)
+- **New boss Juric explains intriguing Roma choices against Udinese for 3-4-2-1**: [Link](https://football-italia.net/juric-explains-surprise-roma-choices-udinese/)
+
+
+### جورجينا رودريغيز (N/A, Sun, 22 Sep 2024 09:30:00 -0700)
+
+- **رونالدو ليس صاحب الفضل الأوحد.. رافاييل نادال وراء ثروة جورجينا الطائلة!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%B5%D8%A7%D8%AD%D8%A8-%D8%A7%D9%84%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%AD%D8%AF-%D8%B1%D8%A7%D9%81%D8%A7%D9%8A%D9%8A%D9%84-%D9%86%D8%A7%D8%AF%D8%A7%D9%84-%D9%88%D8%B1%D8%A7%D8%A1-%D8%AB%D8%B1%D9%88%D8%A9-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D8%A7%D9%84%D8%B7%D8%A7%D9%8A%D9%94%D9%84%D8%A9/blt73f8dd172bc80614)
+- **جورجينا رودريغيز تثير تفاعلا بما قالته عن الحياة بالسعودية**: [Link](https://arabic.cnn.com/entertainment/article/2024/09/21/react-to-what-georgina-rodriguez-said-about-life-in-saudi-arabia)
+- **جورجينا رودريغز تزور مدينتها وتحقق أحلام طفولتها الفقيرة (صور)**: [Link](https://www.eremnews.com/entertainment/eso8wde)
+
+
+### أتلتيك بيلباو ضد سلتا فيغو (N/A, Sun, 22 Sep 2024 08:40:00 -0700)
+
+- **بيلباو يعزز صحوته في الليجا أمام سيلتا فيجو**: [Link](https://m.kooora.com/?n=1356520&o=n27345)
+- **مشاهدة مباراة اتلتيك بلباو وسيلتا فيغو ياسين تيفي مباريات الدوري الإسباني**: [Link](https://kora7sry.com/matches/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88/)
+
+
 ### calafiori (N/A, Sun, 22 Sep 2024 09:20:00 -0700)
 
 - **Calafiori, la prima gioia con l’Arsenal è un’autentica perla contro il City**: [Link](https://www.alfredopedulla.com/calafiori-la-prima-gioia-con-larsenal-e-unautentica-perla-contro-il-city/)
