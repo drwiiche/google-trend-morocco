@@ -1,3 +1,27 @@
+### al ain – auckland city (N/A, Sun, 22 Sep 2024 08:10:00 -0700)
+
+- **Real Madrid will play the Intercontinental Cup final on 18 December in 
+Qatar.**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/el-real-madrid-jugara-la-final-de-la-copa-intercontinental-el-18-de-diciembre-en-catar-20-09-2024)
+- **Preview: Al-Ain vs. Auckland City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ain/preview/preview-al-ain-vs-auckland-city-prediction-team-news-lineups_553467.html)
+- **FIFA Anuncia detalhes do Mundial 2024; Flamengo pode estar na disputa**: [Link](https://gazetadourubu.com/noticia/fifa-anuncia-detalhes-do-mundial-2024-flamengo-pode-estar-na-disputa?lang=en)
+
+
+### stuttgart – dortmund (N/A, Sun, 22 Sep 2024 08:10:00 -0700)
+
+- **Matchfacts: VfB – Borussia Dortmund**: [Link](https://www.vfb.de/de/vfb/aktuell/neues/profis/2425/matchfacts--vfb---borussia-dortmund/)
+- **1. Bundesliga: DFB-Star vor brisanter Rückkehr nach Wechsel im Sommer**: [Link](https://www.bild.de/sport/fussball/1-bundesliga-dfb-star-vor-brisanter-rueckkehr-nach-wechsel-im-sommer-66ed2a4181d4834f0eba19f0)
+- **Hoeneß zu Anton-Wechsel: "Hätte anders laufen können"**: [Link](https://www.kicker.de/hoeness-zu-anton-wechsel-haette-anders-laufen-koennen-1052729/video)
+
+
+### bayer leverkusen (N/A, Sun, 22 Sep 2024 07:30:00 -0700)
+
+- **Rolfes erklärt: Darum wird Terrier noch viel besser**: [Link](https://www.kicker.de/rolfes-erklaert-darum-wird-terrier-noch-viel-besser-1051840/artikel)
+- **FC Bayern nimmt Neuer kurzfristig aus Kader: „Oberschenkel hat eine leichte 
+Reaktion gezeigt“**: [Link](https://www.transfermarkt.de/fc-bayern-nimmt-neuer-kurzfristig-aus-kader-oberschenkel-hat-eine-leichte-reaktion-gezeigt-quot-/view/news/444130)
+- **Sorge um Neuer vor Top-Spiel gegen Leverkusen: Das prognostiziert man beim 
+FCB**: [Link](https://www.msn.com/de-de/video/other/sorge-um-neuer-vor-top-spiel-gegen-leverkusen-das-prognostiziert-man-beim-fcb/vi-AA1qZgZM)
+
+
 ### monaco fc (N/A, Sun, 22 Sep 2024 07:50:00 -0700)
 
 - **Monaco vs Barcelona**: [Link](https://www.uefa.com/uefachampionsleague/match/2042033--monaco-vs-barcelona/)
