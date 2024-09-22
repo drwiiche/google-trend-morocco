@@ -1,3 +1,31 @@
+### inter – ac milan (N/A, Sun, 22 Sep 2024 11:00:00 -0700)
+
+- **Inter-Milan, dove vedere il derby in tv: gli orari**: [Link](https://sport.sky.it/calcio/serie-a/2024/09/22/inter-milan-dove-vedere-tv-streaming)
+- **LIVE MN - Verso Inter-Milan: Fonseca con la doppia punta. Calabria out, c'è Royal**: [Link](https://www.milannews.it/primo-piano/live-mn-verso-inter-milan-fonseca-con-la-doppia-punta-calabria-out-c-e-royal-550029)
+- **GdS - Oaktree e RedBird 'unite' dallo stadio: i due fondi non sono comparabili per dimensioni e...**: [Link](https://www.fcinternews.it/rassegna/i-gds-i-oaktree-e-redbird-unite-dallo-stadio-i-due-fondi-non-sono-comparabili-per-dimensioni-e-caratteristiche-964348)
+
+
+### premier league standings (N/A, Sun, 22 Sep 2024 11:00:00 -0700)
+
+- **Both coaches are sent off in angry end to Brighton's 2-2 draw with Nottingham Forest**: [Link](https://www.ottumwacourier.com/sports/national_sports/both-coaches-are-sent-off-in-angry-end-to-brightons-2-2-draw-with-nottingham/article_7d8ae556-26dd-5108-8ae8-48e273250aaa.html)
+- **Nuno Espirito Santo FUMES at officials as he's sent off after Morgan Gibbs-White was dismissed in chaotic scen**: [Link](https://www.dailymail.co.uk/sport/football/article-13878977/Nuno-Esperito-Santo-FUMES-officials-Morgan-Gibbs-White-sent-off.html)
+- **Ramon Sosa rescues point for Forest with first goal in English football**: [Link](https://www.westmeathexaminer.ie/2024/09/22/ramon-sosa-rescues-point-for-forest-with-first-goal-in-english-football/)
+
+
+### pablo torre (N/A, Sun, 22 Sep 2024 10:50:00 -0700)
+
+- **¿Pista del Barça sobre el XI en Villarreal?**: [Link](https://www.sport.es/es/noticias/barca/pista-barca-xi-villarreal-108422041)
+- **Toque de Flick a Ter Stegen**: [Link](https://as.com/futbol/primera/toque-de-flick-a-ter-stegen-n/)
+- **Flick: "Las lesiones no son excusa, es algo que tenemos que gestionar"**: [Link](https://www.marca.com/futbol/barcelona/2024/09/21/66eeaf7ee2704e7b2e8b45a1.html)
+
+
+### villarreal – fc barcelone : composition (N/A, Sun, 22 Sep 2024 10:10:00 -0700)
+
+- **Villarreal - FC Barcelone en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-villarreal-fc-barcelone_mtc1524258/live-commentary.shtml)
+- **La Liga : Robert Lewandowski lance les hostilités pour le Barça**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/la-liga-robert-lewandowski-lance-les-hostilit%C3%A9s-pour-le-bar%C3%A7a-2024-09-22)
+- **Barça, Hansi Flick enrage contre l’UEFA**: [Link](https://www.goal.com/fr/news/barca-hansi-flick-enrage-contre-l-uefa/bltd215fe00763d3c8d)
+
+
 ### la liga (N/A, Sun, 22 Sep 2024 10:40:00 -0700)
 
 - **Bitget partners with LALIGA as official crypto partner, expanding into 
