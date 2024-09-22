@@ -1,3 +1,10 @@
+### inter milan (N/A, Sun, 22 Sep 2024 11:30:00 -0700)
+
+- **(VIDEO) Christian Pulisic Scores in Derby Against Inter Milan**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles-video/-video-christian-pulisic-scores-in-derby-against-inter-milan-2024-09-22)
+- **Video: AC Milan's Christian Pulisic scores great goal vs Inter (0-1)**: [Link](https://bolavip.com/en/soccer/video-ac-milans-christian-pulisic-scores-great-goal-vs-inter-0-1)
+- **🌪️ Milan make fast start in the Derby della Madonnina**: [Link](https://onefootball.com/en/news/milan-make-fast-start-in-the-derby-della-madonnina-40071041)
+
+
 ### liga (N/A, Sun, 22 Sep 2024 11:20:00 -0700)
 
 - **Primera División Real Madrid 4 Espanyol 1 Full time**: [Link](https://www.bbc.com/sport/football/live/cr4xld2x24xt)
