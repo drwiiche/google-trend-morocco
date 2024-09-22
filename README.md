@@ -1,3 +1,29 @@
+### la liga (N/A, Sun, 22 Sep 2024 10:40:00 -0700)
+
+- **Bitget partners with LALIGA as official crypto partner, expanding into 
+Eastern, Southeast Asia, and Latin America markets**: [Link](https://www.financialexpress.com/business/brandwagon-bitget-partners-with-laliga-as-official-crypto-partner-expanding-into-eastern-southeast-asia-and-latin-america-markets-3615583/)
+- **Crypto Exchange Bitget Secures Multi-Million Dollar Partnership With La Liga**: [Link](https://news.bitcoin.com/crypto-exchange-bitget-secures-multi-million-dollar-partnership-with-la-liga/)
+- **Bitget Amalgamates Crypto and Sports through a Multi-Million Dollar Deal 
+With La Liga**: [Link](https://www.passionateinmarketing.com/bitget-amalgamates-crypto-and-sports-through-a-multi-million-dollar-deal-with-la-liga/)
+
+
+### الدوري الانجليزي (N/A, Sun, 22 Sep 2024 10:40:00 -0700)
+
+- **نجم منتخب مصر قريب من بايرن ميونخ.. والدوري الإنجليزي في الصورة**: [Link](https://zahraa.mr/3266328/%D9%86%D8%AC%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%82%D8%B1%D9%8A%D8%A8-%D9%85%D9%86-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%88%D8%A7%D9%84%D8%AF/)
+- **كوكوريا فكرة لا تــ مـوت.. نجم آرسنال يستفز هالاند قبل لقائهما في الدوري 
+الإنجليزي**: [Link](https://arabic.sport360.com/video/%D9%83%D8%B1%D8%A9-%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9/1292018/%D9%83%D9%88%D9%83%D9%88%D8%B1%D9%8A%D8%A7-%D9%81%D9%83%D8%B1%D8%A9-%D9%84%D8%A7-%D8%AA%D9%80%D9%80-%D9%85%D9%80%D9%88%D8%AA-%D9%86%D8%AC%D9%85-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B3)
+- **ليفربول يستهدف نجم منتخب مصر**: [Link](https://m.kooora.com/?n=1354897)
+
+
+### ter stegen (N/A, Sun, 22 Sep 2024 10:30:00 -0700)
+
+- **Barcelona sub-off seriously injured Ter Stegen in tears – it is his right 
+knee again**: [Link](https://barcauniversal.com/barcelona-sub-off-seriously-injured-ter-stegen-in-tears-it-is-his-right-knee-again/)
+- **Did Monaco Find the Next Mbappé?**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/did-monaco-find-the-next-mbapp%C3%A9-2024-09-21)
+- **Have the criticisms been a bit unfair that Barca starter is facing after 
+Monaco's fixture?**: [Link](https://everythingbarca.com/posts/have-the-criticisms-been-a-bit-unfair-that-barca-starter-is-facing-after-monaco-s-fixture-01j8c3exrffw)
+
+
 ### arsenal women (N/A, Sun, 22 Sep 2024 10:30:00 -0700)
 
 - **Beth Mead shows Alessia Russo how it's done! Winners and losers as 
