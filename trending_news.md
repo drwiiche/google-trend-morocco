@@ -1,3 +1,50 @@
+### calafiori (N/A, Sun, 22 Sep 2024 09:20:00 -0700)
+
+- **Calafiori, la prima gioia con l’Arsenal è un’autentica perla contro il City**: [Link](https://www.alfredopedulla.com/calafiori-la-prima-gioia-con-larsenal-e-unautentica-perla-contro-il-city/)
+- **📸 Gol da cineteca di Calafiori, il mancino è 😍. Haaland l'alieno fa 100**: [Link](https://onefootball.com/it/notizie/gol-da-cineteca-di-calafiori-il-mancino-e-haaland-lalieno-fa-100-40070228)
+
+
+### العين ضد أوكلاند سيتي (N/A, Sun, 22 Sep 2024 09:20:00 -0700)
+
+- **تعيين حكم مباراة العين وأوكلاند سيتي**: [Link](https://www.kooora.com/?n=1356265)
+- **رحيمي بديلا أمام أوكلاند سيتي في كأس القارات للأندية**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/445565.html)
+- **مدرب ولاعب أوكلاند سيتي قبل مواجهة العين: "رحيمي خيالي ولا يُصدّق.. إنه 
+يتمتَّع بجودة عالية"**: [Link](https://m.elbotola.com/article/2024-09-22-10-28-677.html)
+
+
+### arsenal vs (N/A, Sun, 22 Sep 2024 09:20:00 -0700)
+
+- **Man City vs. Arsenal preview: injuries, stats, fantasy, news**: [Link](https://www.espn.co.uk/football/story/_/id/41287207/man-city-vs-arsenal-preview-injuries-stats-fantasy-news)
+- **Kevin De Bruyne to MISS Man City's clash with Arsenal in major blow for Pep 
+Guardiola**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-kevin-debruyne-injury-arsenal-33709032)
+- **Pep Guardiola could be without three Man City players for Arsenal Premier 
+League clash**: [Link](https://www.football.london/arsenal-fc/news/pep-guardiola-could-without-three-29980582)
+
+
+### fortuna sittard – psv eindhoven (N/A, Sun, 22 Sep 2024 09:20:00 -0700)
+
+- **Fortuna Sittard-PSV Eindhoven - Eredivisie 2024/2025 Statistical Preview**: [Link](https://www.whoscored.com/Matches/1822534/Preview/Netherlands-Eredivisie-2024-2025-Fortuna-Sittard-PSV-Eindhoven)
+- **Preview: Fortuna Sittard vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fortuna-sittard/preview/preview-sittard-vs-psv-prediction-team-news-lineups_553474.html)
+- **Fortuna Sittard vs PSV Eindhoven Prediction and Betting Tips | September 
+22nd 2024**: [Link](https://www.sportskeeda.com/football/fortuna-sittard-vs-psv-eindhoven-prediction-betting-tips-september-22nd-2024)
+
+
+### villarreal - barcelona (N/A, Sun, 22 Sep 2024 09:10:00 -0700)
+
+- **Villarreal - Barcelona, en directo hoy: alineaciones, horario y dónde ver 
+el partido de LaLiga EA Sports 2024/25**: [Link](https://www.sport.es/es/noticias/barca/villarreal-barcelona-directo-hoy-alineaciones-108425993)
+- **Un líder en alerta amarilla**: [Link](https://as.com/futbol/primera/un-lider-en-alerta-amarilla-n/)
+- **Ansu Fati entra por Ferran Torres, pero el Barça sigue con la enfermería 
+llena**: [Link](https://www.marca.com/futbol/barcelona/2024/09/22/66eecd59e2704ea23d8b459b.html)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 22 Sep 2024 09:10:00 -0700)
+
+- **جدول ترتيب البريميرليج بعد نهاية مباريات اليوم السبت**: [Link](https://hihi2.com/2024/09/21/p2857632.html)
+- **كووورة فانتازي: 3 نجوم يمكنك الرهان عليهم في جولة البريميرليج**: [Link](https://www.kooora.com/?n=1355982)
+- **ترتيب هدافي الدوري الإنجليزي.. جاكسون ودياز يشعلان السباق**: [Link](https://www.eremnews.com/sports/sdmgaw0)
+
+
 ### haaland (N/A, Sun, 22 Sep 2024 08:50:00 -0700)
 
 - **"I just love the feeling": Haaland reaches 100 goals for City!**: [Link](https://www.mancity.com/citytv/mens/erling-haaland-100-city-goals-video-63861579)
