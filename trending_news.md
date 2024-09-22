@@ -1,3 +1,12 @@
+### classement futsal 2024 (N/A, Sun, 22 Sep 2024 06:30:00 -0700)
+
+- **College football rankings: Week 5 AP Top 25 projection after Michigan beats 
+USC, Tennessee wins**: [Link](https://247sports.com/longformarticle/college-football-rankings-week-5-ap-top-25-projection-after-michigan-beats-usc-tennessee-wins-236537337/)
+- **College Football Rankings: ESPN releases updated FPI Top 25 after Week 4**: [Link](https://www.on3.com/news/college-football-rankings-espn-releases-updated-fpi-top-25-after-week-4/)
+- **Tomorrow's Top 25 Today: Tennessee into top five, Michigan makes big jump 
+in college football rankings**: [Link](https://www.cbssports.com/college-football/news/tomorrows-top-25-today-tennessee-into-top-five-michigan-makes-big-jump-in-college-football-rankings/)
+
+
 ### fifa futsal world cup 2024 (N/A, Sun, 22 Sep 2024 06:10:00 -0700)
 
 - **Futsal Whites exit their first ever FIFA Futsal World Cup**: [Link](https://www.nzfootball.co.nz/newsarticle/145701?newsfeedId=1275622)
