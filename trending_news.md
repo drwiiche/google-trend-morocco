@@ -1,3 +1,11 @@
+### thani mohamed soilihi (N/A, Sun, 22 Sep 2024 04:50:00 -0700)
+
+- **Une Nomination Historique : Thani Mohamed Soilihi Intègre le Gouvernement 
+Barnier**: [Link](https://la1ere.francetvinfo.fr/mayotte/une-nomination-historique-thani-mohamed-soilihi-integre-le-gouvernement-barnier-1523489.html)
+- **Nouveau gouvernement : le sénateur de Mayotte Thani Mohamed Soilihi nommé 
+secrétaire d'État à la Francophonie et aux Partenariats internationaux**: [Link](https://la1ere.francetvinfo.fr/nouveau-gouvernement-le-senateur-de-mayotte-thani-mohamed-soilihi-nomme-secretaire-d-etat-a-la-francophonie-1523468.html)
+
+
 ### getafe – leganés (N/A, Sun, 22 Sep 2024 04:30:00 -0700)
 
 - **A por el #DerbiHistórico en el Coliseum**: [Link](https://www.cdleganes.com/noticias/a-por-el-derbihistorico-en-el-coliseum)
