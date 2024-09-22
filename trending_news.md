@@ -1,3 +1,12 @@
+### getafe – leganés (N/A, Sun, 22 Sep 2024 04:30:00 -0700)
+
+- **A por el #DerbiHistórico en el Coliseum**: [Link](https://www.cdleganes.com/noticias/a-por-el-derbihistorico-en-el-coliseum)
+- **Pronóstico Getafe vs Leganés de LALIGA: alineaciones, apuestas, cuotas, 
+estadísticas, claves, favorito y predicciones de la jornada 6 de Primera 
+División**: [Link](https://www.dazn.com/es-ES/news/apuestas/f%C3%BAtbol/pronostico-getafe-vs-leganes-laliga-alineaciones-apuestas-cuotas-estadisticas-claves-favorito-predicciones-jornada-6-de-primera-division/m1f9998vgmz81lbbzou54nkzo)
+- **Recibimiento hostil al Leganés: ''Castigad al hijo tonto''**: [Link](https://www.mundodeportivo.com/futbol/laliga/20240922/1002320054/recibimiento-hostil-leganes-castigad-hijo-tonto.html)
+
+
 ### marc andre ter stegen (N/A, Sun, 22 Sep 2024 04:20:00 -0700)
 
 - **Monaco 2-1 Barcelona - Highlights**: [Link](https://www.beinsports.com/en-mena/football/uefa-champions-league/articles-video/monaco-2-1-barcelona-highlights-2024-09-19)
