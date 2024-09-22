@@ -1,3 +1,17 @@
+### éric ciotti (N/A, Sun, 22 Sep 2024 13:40:00 -0700)
+
+- **Éric Ciotti au Figaro : «Je quitte Les Républicains»**: [Link](https://www.lefigaro.fr/politique/eric-ciotti-je-quitte-les-republicains-20240922)
+- **Eric Ciotti annonce quitter Les Républicains, après plusieurs mois de bataille juridique pour rester à sa présidence**: [Link](https://www.lemonde.fr/politique/article/2024/09/22/eric-ciotti-annonce-quitter-les-republicains-apres-plusieurs-mois-de-bataille-juridique-pour-rester-a-sa-presidence_6328406_823448.html)
+- **EN DIRECT. Gouvernement Barnier : Eric Ciotti annonce quitter les Républicains**: [Link](https://www.20minutes.fr/politique/4111331-20240922-gouvernement-michel-barnier-jordan-bardella-juge-nouveau-gouvernement-aucun-avenir)
+
+
+### om (N/A, Sun, 22 Sep 2024 11:50:00 -0700)
+
+- **Coffee with the Cla(i)res and OM SYSTEM Ambassador Lisa Michele Burns**: [Link](https://www.43rumors.com/coffee-with-the-claires-and-om-system-ambassador-lisa-michele-burns/)
+- **Enkuizen mayor says the city is shocked by news of sexual abuse case**: [Link](https://nltimes.nl/2024/09/21/enkuizen-mayor-says-city-shocked-news-sexual-abuse-case)
+- **Man arrested in second major child abuse case in a week**: [Link](https://www.dutchnews.nl/2024/09/man-arrested-in-second-major-child-abuse-case-in-a-week/)
+
+
 ### inter milan (N/A, Sun, 22 Sep 2024 11:30:00 -0700)
 
 - **(VIDEO) Christian Pulisic Scores in Derby Against Inter Milan**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles-video/-video-christian-pulisic-scores-in-derby-against-inter-milan-2024-09-22)
