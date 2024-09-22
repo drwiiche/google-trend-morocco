@@ -1,3 +1,12 @@
+### le monde (N/A, Sun, 22 Sep 2024 00:20:00 -0700)
+
+- **En direct : Michel Barnier au « 20 heures » de France 2 dimanche, suivez 
+les réactions au lendemain de l’annonce du gouvernement**: [Link](https://www.lemonde.fr/politique/live/2024/09/22/en-direct-michel-barnier-au-20-heures-de-france-2-dimanche-suivez-les-reactions-au-lendemain-de-l-annonce-du-gouvernement_6325006_823448.html)
+- **À l’heure des monstres**: [Link](https://melenchon.fr/2024/09/21/a-lheure-des-monstres/)
+- **Nouveau gouvernement : François Hollande fustige un gouvernement "fragile" 
+et appelle à la censure**: [Link](https://www.francebleu.fr/infos/politique/nouveau-gouvernement-francois-hollande-fustige-un-gouvernement-fragile-et-appelle-a-la-censure-3668024)
+
+
 ### اسماعيل الليثي (N/A, Sun, 22 Sep 2024 00:30:00 -0700)
 
 - **سقط من الطابق العاشر.. مصرع نجل مطرب مصري شهير بحادث مروع**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/09/21/%D8%B3%D9%82%D8%B7-%D9%85%D9%86-%D8%A7%D9%84%D8%B7%D8%A7%D8%A8%D9%82-%D8%A7%D9%84%D8%B9%D8%A7%D8%B4%D8%B1-%D9%85%D8%B5%D8%B1%D8%B9-%D9%86%D8%AC%D9%84-%D9%85%D8%B7%D8%B1%D8%A8-%D9%85%D8%B5%D8%B1%D9%8A-%D8%B4%D9%87%D9%8A%D8%B1-%D8%A8%D8%AD%D8%A7%D8%AF%D8%AB-%D9%85%D8%B1%D9%88%D8%B9-)
