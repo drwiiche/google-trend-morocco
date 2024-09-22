@@ -1,3 +1,18 @@
+### اثار الحكيم (N/A, Sun, 22 Sep 2024 14:00:00 -0700)
+
+- **آثار الحكيم تُقلق محبيها على صحتها بعد سنوات من الغياب**: [Link](https://arabic.cnn.com/entertainment/article/2024/09/22/egyptian-actress-athar-al-hakim-worries-her-fans-about-her-health)
+- **أشرف زكي يطمئن الجمهور: آثار الحكيم بخير وخرجت من المستشفى**: [Link](https://www.youm7.com/story/2024/9/22/%D8%A3%D8%B4%D8%B1%D9%81-%D8%B2%D9%83%D9%8A-%D9%8A%D8%B7%D9%85%D8%A6%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A2%D8%AB%D8%A7%D8%B1-%D8%A7%D9%84%D8%AD%D9%83%D9%8A%D9%85-%D8%A8%D8%AE%D9%8A%D8%B1-%D9%88%D8%AE%D8%B1%D8%AC%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89/6715943)
+- **آثار الحكيم: خرجت من المستشفى بعد الفحوصات**: [Link](https://alseyassah.com/article/419645/%D8%A2%D8%AB%D8%A7%D8%B1-%D8%A7%D9%84%D8%AD%D9%83%D9%8A%D9%85-%D8%AE%D8%B1%D8%AC%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D8%AD%D9%88%D8%B5%D8%A7%D8%AA/)
+
+
+### inter (N/A, Sun, 22 Sep 2024 11:50:00 -0700)
+
+- **Derby della Madonnina: Milan’s tifo based on Di Caprio meme explained**: [Link](https://football-italia.net/derby-della-madonnina-milans-tifo-based-on-di-caprio-meme-explained/)
+- **No choreography tonight from Inter’s Curva Nord**: [Link](https://milanreports.com/2024/09/22/no-choreography-inters-curva-nord/)
+- **MN: Curva Sud will ‘behave accordingly’ if Inter win Milan derby – the 
+details**: [Link](https://sempremilan.com/mn-curva-sud-behave-accordingly-milan-derby)
+
+
 ### éric ciotti (N/A, Sun, 22 Sep 2024 13:40:00 -0700)
 
 - **Éric Ciotti au Figaro : «Je quitte Les Républicains»**: [Link](https://www.lefigaro.fr/politique/eric-ciotti-je-quitte-les-republicains-20240922)
