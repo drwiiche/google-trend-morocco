@@ -1,3 +1,11 @@
+### atletico madrid (N/A, Sun, 22 Sep 2024 12:30:00 -0700)
+
+- **Atlético de Madrid**: [Link](https://en.atleticodemadrid.com/directos/rayo-vallecano-atletico-de-madrid-22-09-2024-17-47)
+- **Rayo Vallecano - Atlético de Madrid: Ready to ‘rotate’**: [Link](https://www.intothecalderon.com/2024/9/21/24250629/rayo-vallecano-atletico-madrid-laliga-preview-how-to-watch-griezmann-julian-alvarez-james-rodriguez)
+- **How to watch today's Rayo Vallecano vs Atletico Madrid La Liga game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/vallecano-v-atletico-live-stream-online-tv-where-to-watch/blt16a2fbf3f5df5f99)
+
+
 ### رايو فاليكانو ضد أتلتيكو مدريد (N/A, Sun, 22 Sep 2024 12:10:00 -0700)
 
 - **تشكيلة أتلتيكو مدريد الرسمية لمواجهة رايو فاليكانو**: [Link](https://hihi2.com/2024/09/22/p2858984.html)
