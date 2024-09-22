@@ -1,3 +1,10 @@
+### لا ليغا (N/A, Sat, 21 Sep 2024 14:10:00 -0700)
+
+- **فليك يرفض المداورة ضد فياريال**: [Link](https://www.kooora.com/?n=1356135)
+- **فياريال يتحدى برشلونة**: [Link](https://hihi2.com/2024/09/22/p2858151.html)
+- **موعد مباراة برشلونة ضد فياريال بالدوري الإسباني والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/9/21/villarreal-barcelona)
+
+
 ### from season 3 (N/A, Sat, 21 Sep 2024 17:30:00 -0700)
 
 - **Harold Perrineau Says 'From' Season 3 Is Scarier Than the Last: 'Prepare 
