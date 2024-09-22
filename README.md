@@ -1,3 +1,18 @@
+### manchester city – arsenal (N/A, Sun, 22 Sep 2024 07:40:00 -0700)
+
+- **Team news: Calafiori given first start at Man City**: [Link](https://www.arsenal.com/news/team-news-calafiori-given-first-start-man-city)
+- **Betano Sign-Up Offer: Get 30/1 on Manchester City or 50/1 on Arsenal**: [Link](https://www.101greatgoals.com/free-bets/betano-sign-up-offer-get-30-1-on-manchester-city-or-50-1-on-arsenal/)
+- **Arteta eyes City scalp, Saka promises Arsenal can adapt to Odegaard absence**: [Link](https://arseblog.news/2024/09/arteta-eyes-city-scalp-saka-promises-arsenal-can-adapt-to-odegaard-absence/)
+
+
+### مان سيتي ضد آرسنال (N/A, Sun, 22 Sep 2024 07:40:00 -0700)
+
+- **التشكيلة الرسمية لمواجهة مانشستر سيتي وأرسنال في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/09/22/p2858651.html)
+- **مانشستر سيتي وآرسنال بالقوة الضاربة في قمة البريميرليج**: [Link](https://www.kooora.com/?n=1356480)
+- **غوارديولا : مباراة مانشستر سيتي وأرسنال لن تحسم سباق المنافسة على لقب 
+الدوري الإنجليزي**: [Link](https://sport.al3omk.com/68291.html)
+
+
 ### ea sports fc 25 (N/A, Sun, 22 Sep 2024 07:30:00 -0700)
 
 - **EA Sports FC 25: How to Get Coins Quickly in Ultimate Team**: [Link](https://gamerant.com/ea-fc-25-how-get-coins-quickly-ultimate-team/)
