@@ -1,3 +1,19 @@
+### hibapress (N/A, Sat, 21 Sep 2024 23:00:00 -0700)
+
+- **بسبب شجرة.. مدير مدرسة يقتل شخصين**: [Link](https://ar.hibapress.com/details-553998.html)
+- **شاهد بالصورة .. فاجعة تهز تعز مدير مدرسة يقتل مواطن ونجله على خلفية هذا 
+الأمر ..اخبار محلية**: [Link](https://ar.pressbee.net/show8658755.html?title=%D8%B4%D8%A7%D9%87%D8%AF-%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1%D8%A9-%D9%81%D8%A7%D8%AC%D8%B9%D8%A9-%D8%AA%D9%87%D8%B2-%D8%AA%D8%B9%D8%B2-%D9%85%D8%AF%D9%8A%D8%B1-%D9%85%D8%AF%D8%B1%D8%B3%D8%A9-%D9%8A%D9%82%D8%AA%D9%84-%D9%85%D9%88%D8%A7%D8%B7%D9%86-%D9%88%D9%86%D8%AC%D9%84%D9%87-%D8%B9%D9%84%D9%89-%D8%AE%D9%84%D9%81%D9%8A%D8%A9-)
+- **القنوات الناقلة لمباراة المنتخب المغربي اليوم ضد البرتغال في كأس العالم 
+للفوتسال 2024**: [Link](https://ar.hibapress.com/details-554005.html)
+
+
+### الدوري الاسباني (N/A, Sat, 21 Sep 2024 14:00:00 -0700)
+
+- **فليك يرفض المداورة ضد فياريال**: [Link](https://www.kooora.com/?n=1356135)
+- **السبورت : عودة المتصدر**: [Link](https://hihi2.com/2024/09/22/p2858196.html)
+- **موعد مباراة برشلونة ضد فياريال بالدوري الإسباني والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/9/21/villarreal-barcelona)
+
+
 ### sidi abderrahmane (N/A, Sat, 21 Sep 2024 20:50:00 -0700)
 
 - **En images, l’îlot de Sidi Abderrahmane à Casablanca après sa réhabilitation**: [Link](https://medias24.com/2024/09/21/en-images-lilot-de-sidi-abderrahmane-a-casablanca-apres-sa-rehabilitation/)
