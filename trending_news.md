@@ -1,3 +1,86 @@
+### monaco – le havre (N/A, Sun, 22 Sep 2024 05:40:00 -0700)
+
+- **PRONOS PARIS RMC Le pari sûr du 22 septembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-22-septembre-ligue-1_AN-202409210288.html)
+- **Invincibilité, défense, turn over… Les stats à connaître avant Le Havre**: [Link](https://www.asmonaco.com/invincibilite-defense-turn-over-les-stats-a-connaitre-avant-le-havre/)
+- **AS Monaco - Adi Hütter présente un groupe quasiment au complet pour 
+affronter le HAC**: [Link](https://madeinmonegasque.ouest-france.fr/infos/article-as-monaco-adi-hutter-presente-un-groupe-quasiment-au-complet-pour-affronter-le-hac-458627.html)
+
+
+### futsal world cup (N/A, Sun, 22 Sep 2024 05:40:00 -0700)
+
+- **Borite, Charraoui and El Mesrar on Morocco v Portugal**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/soufiane-and-the-soufianes-on-selecao-showdown)
+- **When, How to Watch Morocco vs Portugal's Most Anticipated Futsal Showdown**: [Link](https://www.moroccoworldnews.com/2024/09/365330/when-how-to-watch-morocco-vs-portugal-s-most-anticipated-futsal-showdown)
+- **Morocco dominates Panama 6-3 in Futsal World Cup**: [Link](https://en.yabiladi.com/articles/details/154253/morocco-dominates-panama-futsal-world.html)
+
+
+### bein sport (N/A, Sun, 22 Sep 2024 05:40:00 -0700)
+
+- **اضبط واستقبل تردد قناة بي ان سبورت الرياضية الجديد 2024 beIN Sport Hd - 
+المساء الاخباري**: [Link](https://newsy.almesasports.com/241909/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9/)
+- **"إتفرج على أسيا" تردد قناة بي ان سبورت beIN Sports AFC 2024 لمتابعة كافة 
+البطولات الأسيوية**: [Link](https://zahraa.mr/3265462/%D8%A5%D8%AA%D9%81%D8%B1%D8%AC-%D8%B9%D9%84%D9%89-%D8%A3%D8%B3%D9%8A%D8%A7-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-bein-sports-afc/)
+- **اضبطها الآن.. تردد القناة الناقلة لمباراة السوبر الأفريقي 2024 الاهلي 
+والزمالك وتابع القمة مجانا**: [Link](https://news.elsob7.com/1126409/%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D8%A7/)
+
+
+### rédoine faïd (N/A, Sun, 22 Sep 2024 05:40:00 -0700)
+
+- **Rédoine Faïd : « En survêtement et coiffés comme Jul, les mecs comme 
+Mohamed Amra passent sous tous les radars**: [Link](https://www.leparisien.fr/faits-divers/redoine-faid-en-survetement-et-coiffes-comme-jul-les-mecs-comme-mohamed-amra-passent-sous-tous-les-radars-21-09-2024-Z5ECZECW7REA7GHWURTZIE6YGU.php)
+- **"La cavale, c'est une autre prison": Rédoine Faïd se confie, un an après sa 
+condamnation à 14 ans de...**: [Link](https://www.bfmtv.com/police-justice/la-cavale-c-est-une-autre-prison-redoine-faid-se-confie-un-an-apres-sa-condamnation-a-14-ans-de-reclusion-criminelle_AN-202409210335.html)
+- **La cavale, la prison… Un an après sa condamnation, Rédoine Faïd se confie**: [Link](https://fr.news.yahoo.com/sport/cavale-prison-an-apr%C3%A8s-condamnation-084000244.html)
+
+
+### futsal (N/A, Sun, 22 Sep 2024 05:40:00 -0700)
+
+- **Marrocos - Portugal (13h30)**: [Link](https://www.fpf.pt/pt/News/Todas-as-not%C3%ADcias/Not%C3%ADcia/news/46343)
+- **Jorge Braz avisa: «Eles não têm medo de ter a bola»**: [Link](https://www.abola.pt/futebol/noticias/jorge-braz-avisa-eles-nao-tem-medo-de-ter-a-bola-2024092113031378162)
+- **Soufian e os Soufianes no confronto da Seleção**: [Link](https://lnfoficial.com.br/noticias/soufian-e-os-soufianes-no-confronto-da-selecao/)
+
+
+### bein sports live (N/A, Sun, 22 Sep 2024 05:40:00 -0700)
+
+- **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-au/football/articles/watch-live-this-week-on-bein-sports-2024-09-20)
+- **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-au/football/articles-video/watch-live-this-week-on-bein-sports-2024-09-13)
+- **Istanbul derby: Osimhen shines as Mourinho’s Fenerbahce falls 3-1 to 
+Galatasaray**: [Link](https://punchng.com/istanbul-derby-osimhen-shines-as-mourinhos-fenerbahce-falls-3-1-to-galatasaray/)
+
+
+### anne genetet ministre (N/A, Sun, 22 Sep 2024 05:40:00 -0700)
+
+- **En direct : suivez les réactions au lendemain de l’annonce du gouvernement 
+Barnier**: [Link](https://www.lemonde.fr/politique/live/2024/09/22/en-direct-suivez-les-reactions-au-lendemain-de-l-annonce-du-gouvernement-barnier_6325006_823448.html)
+- **Anne Genetet ministre de l'Education nationale : les syndicats enseignants 
+dénoncent "une erreur de casting"**: [Link](https://www.francetvinfo.fr/politique/gouvernement-de-michel-barnier/anne-genetet-ministre-de-l-education-nationale-elle-ne-connait-pas-grand-chose-ni-de-pres-ni-de-loin-au-systeme-educatif-juge-le-syndicat-se-unsa_6794488.html)
+- **Nouvelle valse au ministère de l’Education, la macroniste Anne Genetet 
+remplace Nicole Belloubet**: [Link](https://www.liberation.fr/politique/nouvelle-valse-au-ministere-de-leducation-anne-genetet-remplace-nicole-belloubet-20240921_L5AYBNNP7BEPHPWMWMA2IU6HGA/)
+
+
+### futsal live (N/A, Sun, 22 Sep 2024 05:40:00 -0700)
+
+- **Brutos Futsal e Inter Mogi ficam no empate em confronto direto pela zona de 
+classificação da LPF**: [Link](https://ge.globo.com/sp/mogi-das-cruzes-suzano/futsal/noticia/2024/09/21/brutos-futsal-e-inter-mogi-ficam-no-empate-em-confronto-direto-pela-zona-de-classificacao-da-lpf.ghtml)
+- **LPF - Tem transmissão ao vivo na tarde deste sábado!**: [Link](https://ligapaulistafutsal.com.br/noticias/leitura/3291/tem-transmissao-ao-vivo-na-tarde-deste-sabado)
+- **Brutos Futsal recebe o Inter Mogi hoje no Ginásio Flamboyant**: [Link](https://rapidonoar.com.br/brutos-futsal-recebe-o-inter-mogi-hoje-no-ginasio-flamboyant/)
+
+
+### futsal world cup 2024 (N/A, Sun, 22 Sep 2024 05:30:00 -0700)
+
+- **Akbar Kazemi on Argentina & Afghanistan's semi-final target**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/akbar-kazemi-afghanistan-interview)
+- **Argentina beats Afghanistan 2-1 in FIFA Futsal World Cup match**: [Link](https://www.ariananews.af/argentina-beats-afghanistan-2-1-in-fifa-futsal-world-cup-match/)
+- **Futsal World Cup results and fixtures: Croatia, France, Kazakhstan, 
+Netherlands, Portugal, Spain, Ukraine all through**: [Link](https://www.uefa.com/futsalworldcup/news/028e-1b2711b56f2a-d5140b97e7e3-1000--futsal-world-cup-results-and-fixtures-croatia-france-kazakhs/)
+
+
+### brighton – nottm forest (N/A, Sun, 22 Sep 2024 05:20:00 -0700)
+
+- **Brighton vs Nottingham Forest prediction: Chris Sutton on Premier League 
+game**: [Link](https://www.bbc.com/sport/football/articles/cly3vwxr1l1o)
+- **Live Super Sunday**: [Link](https://www.tvguide.co.uk/schedule/4b5fdd41-7fb6-537a-b7d6-868afcd8711d/live-super-sunday)
+- **Sunday’s Best Football Bets**: [Link](https://www.getyourtipsout.co.uk/2024/09/21/sundays-best-football-bets-4/)
+
+
 ### thani mohamed soilihi (N/A, Sun, 22 Sep 2024 04:50:00 -0700)
 
 - **Une Nomination Historique : Thani Mohamed Soilihi Intègre le Gouvernement 
