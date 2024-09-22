@@ -1,3 +1,19 @@
+### antoine armand ministre (N/A, Sun, 22 Sep 2024 04:00:00 -0700)
+
+- **French President Emmanuel Macron announces new right-wing government**: [Link](https://www.bbc.com/news/articles/c8rd52zl018o)
+- **Macron names right-leaning French government under Michel Barnier**: [Link](https://www.theguardian.com/world/2024/sep/21/macron-names-french-government-to-be-led-by-michel-barnier)
+- **Macron Appoints Cabinet as He Seeks to Move France Out of Political Impasse**: [Link](https://www.nytimes.com/2024/09/21/world/europe/macron-france-cabinet.html)
+
+
+### المغرب ضد البرتغال فوتسال (N/A, Sun, 22 Sep 2024 03:40:00 -0700)
+
+- **القنوات الناقلة لمباراة المنتخب المغربي ونظيره البرتغالي في مونديال الفوتصال**: [Link](https://www.akhbarona.com/sport/lionatlas/392566.html)
+- **القنوات الناقلة لمباراة المنتخب المغربي اليوم ضد البرتغال في كأس العالم 
+للفوتسال 2024**: [Link](https://ar.hibapress.com/details-554005.html)
+- **مدرب المنتخب البرتغالي للفوتسال: "المغرب تحسن كثيرا لكننا سنلعب هذه 
+المباراة بطموح وثقة كبيرة"**: [Link](https://m.elbotola.com/article/2024-09-21-16-58-384.html)
+
+
 ### fiorentina – lazio (N/A, Sun, 22 Sep 2024 03:10:00 -0700)
 
 
