@@ -1,3 +1,41 @@
+### fc barcelone (N/A, Sun, 22 Sep 2024 10:00:00 -0700)
+
+- **Villarreal - FC Barcelone en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-villarreal-fc-barcelone_mtc1524258/live-commentary.shtml)
+- **Villarreal - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a3281643831587737313-villarreal-fc-barcelone-les-compositions-officielles)
+- **Barça, Hansi Flick enrage contre l’UEFA**: [Link](https://www.goal.com/fr/news/barca-hansi-flick-enrage-contre-l-uefa/bltd215fe00763d3c8d)
+
+
+### yalla kora (N/A, Sun, 22 Sep 2024 10:00:00 -0700)
+
+- **تحديد موعد قرعة المجموعات لأبطال أفريقيا والكونفيدرالية**: [Link](https://m.kooora.com/?n=1356498&o=n)
+- **تقرير.. الكاف يحدد موعد قرعة دوري أبطال إفريقيا وكأس الكونف...**: [Link](https://sport.lesiteinfo.com/competitions-continentales/445558.html)
+- **مازيمبي الكونغولي ثاني المتأهلين إلى دور المجموعات لدوري أبطال أفريقيا**: [Link](https://m.elbotola.com/article/2024-09-21-15-32-500.html)
+
+
+### barcelona (N/A, Sun, 22 Sep 2024 09:50:00 -0700)
+
+- **Villarreal - Barcelona, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/villarreal-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-3/)
+- **Villarreal - Barcelona, en directo hoy: alineaciones, horario y dónde ver 
+el partido de LaLiga EA Sports 2024/25**: [Link](https://www.sport.es/es/noticias/barca/villarreal-barcelona-directo-hoy-alineaciones-108425993)
+- **Ansu Fati entra por Ferran Torres, pero el Barça sigue con la enfermería 
+llena**: [Link](https://www.marca.com/futbol/barcelona/2024/09/22/66eecd59e2704ea23d8b459b.html)
+
+
+### برشلونة (N/A, Sun, 22 Sep 2024 09:50:00 -0700)
+
+- **مباشر مباراة برشلونة ضد فياريال في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/22/villarreal-v-barcelona)
+- **مباشر مباراة برشلونة ضد فياريال 1-0 في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/22/villarreal-v-barcelona?update=6900892)
+- **تشكيلة برشلونة الرسمية للقاء فياريال في الدوري الاسباني**: [Link](https://hihi2.com/2024/09/22/p2858718.html)
+
+
+### يلا شووت (N/A, Sun, 22 Sep 2024 09:50:00 -0700)
+
+- **وصمة عار في تاريخ كورتوا بالليجا**: [Link](https://www.kooora.com/?n=1356349)
+- **تغطية حية مباشر لمباراة فريقي فياريال و برشلونة في بطولة الدوري الإسباني - 
+الأسبوع 6**: [Link](https://www.filgoal.com/articles/490656/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **الريال سل شعرة الهلالي والإسبانيول بواسطة الضغط**: [Link](https://www.almountakhab.com/node/13204597)
+
+
 ### roma – udinese (N/A, Sun, 22 Sep 2024 09:30:00 -0700)
 
 - **Probable Formations: Udinese vs Roma**: [Link](https://www.chiesaditotti.com/2024/9/21/24250873/probable-formations-udinese-vs-roma)
