@@ -1,3 +1,11 @@
+### liga (N/A, Sun, 22 Sep 2024 11:20:00 -0700)
+
+- **Primera División Real Madrid 4 Espanyol 1 Full time**: [Link](https://www.bbc.com/sport/football/live/cr4xld2x24xt)
+- **Rodrygo Reveals Ancelotti's Frustration: "We Only Score in the Second 
+Halves"**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/rodrygo-reveals-ancelotti-s-frustration-we-only-score-in-the-second-halves-2024-09-22)
+- **Modrić: "It was a complete performance from start to finish"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/declas-post-j6-liga-rm-espanyol-20-09-2024)
+
+
 ### milan ac (N/A, Sun, 22 Sep 2024 12:40:00 -0700)
 
 - **« Inter-Milan AC, ça sera sur IPTV ou via VPN », la Serie A portée disparue**: [Link](https://www.20minutes.fr/sport/football/4110996-20240920-serie-inter-milan-ac-ca-iptv-via-vpn-diffuseur-calcio-porte-disparu-france)
