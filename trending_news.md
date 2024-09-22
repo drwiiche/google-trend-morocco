@@ -1,3 +1,19 @@
+### ea sports fc 25 (N/A, Sun, 22 Sep 2024 07:30:00 -0700)
+
+- **EA Sports FC 25: How to Get Coins Quickly in Ultimate Team**: [Link](https://gamerant.com/ea-fc-25-how-get-coins-quickly-ultimate-team/)
+- **How to transfer FC Points from ‘FC 24’ to ‘FC 25’**: [Link](https://www.nme.com/guides/gaming-guides/how-to-transfer-fc-points-from-fc-24-to-fc-25-3795610)
+- **Brentford's EA Sports FC 25 player ratings revealed**: [Link](https://www.brentfordfc.com/en/news/article/first-team-brentford-ea-sports-fc-25-player-ratings-revealed)
+
+
+### coupe du monde futsal 2024 (N/A, Sun, 22 Sep 2024 07:00:00 -0700)
+
+- **J6, les résumés des matches | Coupe du Monde de Futsal 2024**: [Link](https://www.fifa.com/fr/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/resumes-matches-jour-6)
+- **Futsal : La réaction du capitaine des Bleus après la victoire historique en 
+Coupe du monde**: [Link](https://www.sofoot.com/breves/le-capitaine-souheil-mouhoudine-reagit-a-la-premiere-victoire-de-lequipe-de-france-de-futsal-en-coupe-du-monde-contre-le-guatemala)
+- **Coupe du monde de futsal : vainqueur du Venezuela, la France file vers un 
+historique 8e de finale**: [Link](https://www.leparisien.fr/sports/coupe-du-monde-de-futsal-vainqueur-du-venezuela-la-france-file-vers-un-historique-8e-de-finale-19-09-2024-3XIOJKJRDNGWDDUITRVSESEG7U.php)
+
+
 ### leverkusen vs wolfsburg (N/A, Sun, 22 Sep 2024 07:00:00 -0700)
 
 - **Predicted Bayer Leverkusen XI vs Wolfsburg**: [Link](https://sports.yahoo.com/predicted-bayer-leverkusen-xi-vs-081600633.html)
