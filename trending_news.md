@@ -1,3 +1,10 @@
+### sidi abderrahmane (N/A, Sat, 21 Sep 2024 20:50:00 -0700)
+
+- **En images, l’îlot de Sidi Abderrahmane à Casablanca après sa réhabilitation**: [Link](https://medias24.com/2024/09/21/en-images-lilot-de-sidi-abderrahmane-a-casablanca-apres-sa-rehabilitation/)
+- **Casablanca : L'Îlot de Sidi Abderrahmane transformé en site touristique**: [Link](https://lematin.ma/videos/casablanca-lilot-de-sidi-abderrahmane-transforme-en-site-touristique/243638)
+- **Casablanca: en images, le nouveau visage de l’îlot de Sidi Abderrahmane**: [Link](https://www.h24info.ma/casablanca-en-images-le-nouveau-visage-de-lilot-de-sidi-abderrahmane/)
+
+
 ### لا ليغا (N/A, Sat, 21 Sep 2024 14:10:00 -0700)
 
 - **فليك يرفض المداورة ضد فياريال**: [Link](https://www.kooora.com/?n=1356135)
