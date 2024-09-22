@@ -1,3 +1,28 @@
+### brest – toulouse (N/A, Sun, 22 Sep 2024 08:30:00 -0700)
+
+- **Brest sans Romain Del Castillo pour la réception de Toulouse dimanche en 
+Ligue 1**: [Link](https://www.lequipe.fr/Football/Actualites/Brest-sans-romain-del-castillo-pour-la-reception-de-toulouse-dimanche-en-ligue-1/1509254)
+- **Stade Brestois - Toulouse FC. Descendre du nuage pour enfin croquer le pain 
+quotidien de la Ligue 1**: [Link](https://nantes.maville.com/sport/detail_-stade-brestois-toulouse-fc.-descendre-du-nuage-pour-enfin-croquer-le-pain-quotidien-de-la-ligue-1-_-6473232_actu.Htm)
+- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier sur Brest - 
+Toulouse - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-sur-brest-toulouse-ligue-1_AN-202409210470.html)
+
+
+### leverkusen (N/A, Sun, 22 Sep 2024 08:30:00 -0700)
+
+- **Florian Wirtz überragt in Rotterdam**: [Link](https://www.faz.net/aktuell/sport/florian-wirtz-ueberragt-in-rotterdam-19998375.html)
+- **Xabi Alonso: Zuckerbrot und Peitsche für Trickser Boniface**: [Link](https://www.kicker.de/xabi-alonso-zuckerbrot-und-peitsche-fuer-trickser-boniface-1052639/artikel)
+- **Höhe, Tiefe, Effizienz: Wie Bayer 04 zum Stimmungskiller wurde**: [Link](https://www.kicker.at/hoehe-tiefe-effizienz-wie-bayer-04-zum-stimmungskiller-wurde-1048577/artikel)
+
+
+### man city vs arsenal (N/A, Sun, 22 Sep 2024 07:20:00 -0700)
+
+- **Man City vs. Arsenal preview: injuries, stats, fantasy, news**: [Link](https://www.espn.co.uk/football/story/_/id/41287207/man-city-vs-arsenal-preview-injuries-stats-fantasy-news)
+- **Kevin De Bruyne to MISS Man City's clash with Arsenal in major blow for Pep 
+Guardiola**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-kevin-debruyne-injury-arsenal-33709032)
+- **Injury update: Guardiola shares latest on De Bruyne**: [Link](https://www.mancity.com/news/mens/manchester-city-v-arsenal-injury-update-63862432)
+
+
 ### al ain – auckland city (N/A, Sun, 22 Sep 2024 08:10:00 -0700)
 
 - **Real Madrid will play the Intercontinental Cup final on 18 December in 
