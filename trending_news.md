@@ -1,3 +1,12 @@
+### annie genevard ministre agriculture (N/A, Sun, 22 Sep 2024 12:50:00 -0700)
+
+- **Annie Genevard, une ex-prof à la fermeté assumée nommée à l'Agriculture**: [Link](https://medias24.com/agence-presse/annie-genevard-une-ex-prof-a-la-fermete-assumee-nommee-a-lagriculture/)
+- **Au ministère de l’Agriculture, la filloniste Annie Genevard hérite de 
+dossiers ultrasensibles**: [Link](https://www.liberation.fr/societe/au-ministere-de-lagriculture-la-filloniste-annie-genevard-herite-de-dossiers-ultrasensibles-20240921_U7HSK245HJBDDEB5URQXB22KFM/)
+- **Prêts et vaccins: la FNSEA donne "15 jours" à la ministre de l'Agriculture 
+pour annoncer des mesures**: [Link](https://www.bfmtv.com/economie/entreprises/agriculture/prets-et-vaccins-la-fnsea-donne-15-jours-a-la-ministre-de-l-agriculture-pour-annoncer-des-mesures_AD-202409220290.html)
+
+
 ### turkmenistan (N/A, Sun, 22 Sep 2024 15:00:00 -0700)
 
 - **Shavkat Mirziyoyev Sends Birthday Wishes to Turkmen Leader**: [Link](https://business.com.tm/post/12431/shavkat-mirziyoyev-congratulates-president-of-turkmenistan-on-his-birthday)
