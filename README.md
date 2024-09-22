@@ -1,3 +1,8 @@
+### الإنتر ضد ميلان (N/A, Sun, 22 Sep 2024 11:50:00 -0700)
+
+
+
+
 ### classement la liga (N/A, Sun, 22 Sep 2024 11:30:00 -0700)
 
 - **Real Madrid 4-1 Espanyol Barcelone, La Liga : résumé du match (21/09/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-madrid-espanyol-barcelone-live/657339)
