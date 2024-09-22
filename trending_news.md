@@ -1,3 +1,10 @@
+### milan ac (N/A, Sun, 22 Sep 2024 12:40:00 -0700)
+
+- **« Inter-Milan AC, ça sera sur IPTV ou via VPN », la Serie A portée disparue**: [Link](https://www.20minutes.fr/sport/football/4110996-20240920-serie-inter-milan-ac-ca-iptv-via-vpn-diffuseur-calcio-porte-disparu-france)
+- **PRONOS PARIS RMC Le pari de folie du 22 septembre – Serie A – Italie**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-de-folie-du-22-septembre-serie-a-italie_AN-202409210291.html)
+- **Inter - AC Milan : Diffusion TV et en clair, streaming et compos probables**: [Link](https://www.goal.com/fr/news/inter-ac-milan-diffusion-tv-et-en-clair-streaming-et-compos-probables/bltea6dd05d9f55207b)
+
+
 ### atletico madrid (N/A, Sun, 22 Sep 2024 12:30:00 -0700)
 
 - **Atlético de Madrid**: [Link](https://en.atleticodemadrid.com/directos/rayo-vallecano-atletico-de-madrid-22-09-2024-17-47)
