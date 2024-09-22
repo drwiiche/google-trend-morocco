@@ -1,3 +1,48 @@
+### ترتيب الدوري الاسباني (N/A, Sun, 22 Sep 2024 11:20:00 -0700)
+
+- **وصمة عار في تاريخ كورتوا بالليجا**: [Link](https://www.kooora.com/?n=1356349)
+- **ريال مدريد يقلب الطاولة على إسبانيول**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%B9%D9%84%D9%89-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-2024-09-21)
+- **الريال سل شعرة الهلالي والإسبانيول بواسطة الضغط**: [Link](https://www.almountakhab.com/node/13204597)
+
+
+### inter vs milan (N/A, Sun, 22 Sep 2024 11:20:00 -0700)
+
+- **Preview: Inter Milan vs. AC Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/milan-derby/preview/preview-inter-milan-vs-ac-milan-prediction-team-news-lineups_553443.html)
+- **Albertini: “Leao? No one doubts his abilities, but…”**: [Link](https://milanreports.com/2024/09/22/albertini-leao-no-one-doubts-him-but/)
+- **Inzaghi warns Inter not to rest on laurels ahead of derby clash**: [Link](https://www.beinsports.com/en-nz/football/serie-a/articles/inzaghi-warns-inter-not-to-rest-on-laurels-ahead-of-derby-clash-2024-09-21)
+
+
+### laliga (N/A, Sun, 22 Sep 2024 11:20:00 -0700)
+
+- **Sociedad frustrated by Valladolid stalemate**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles-video/sociedad-frustrated-by-valladolid-stalemate-2024-09-22)
+- **Saturday's La Liga predictions including Real Madrid vs. Espanyol**: [Link](https://www.sportsmole.co.uk/football/real-madrid/la-liga-predictions/feature/saturdays-la-liga-predictions-including-real-madrid-vs-espanyol_553390.html)
+- **No Goals, No Paradise for a Resilient Real (0-0)**: [Link](https://www.footboom1.com/en/news/football/1846655-no-goals-no-paradise-for-a-resilient-real-0-0)
+
+
+### rayo – atlético madrid (N/A, Sun, 22 Sep 2024 11:10:00 -0700)
+
+- **Rayo Vallecano - Atlético de Madrid en directo | LaLiga EA Sports hoy en 
+vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/rayo-atletico/2024/09/22/01_0101_20240922_184_175-directo.html)
+- **James y el fichaje frustrado por João Félix y Costa: “Al Atlético, no”**: [Link](https://as.com/futbol/primera/james-y-el-fichaje-frustrado-por-joao-felix-y-costa-al-atletico-no-n/)
+- **Simeone da descanso a Griezmann, Giménez y Le Normand; Sortloth-Julián 
+Alvarez, en ataque**: [Link](https://vivirediciones.es/simeone-da-descanso-a-griezmann-gimenez-y-le-normand-sortloth-julian-alvarez-en-ataque/)
+
+
+### lyon – marseille (N/A, Sun, 22 Sep 2024 11:10:00 -0700)
+
+- **OL - OM : les compositions officielles**: [Link](https://www.footmercato.net/a871669399104386497-ol-om-les-compositions-officielles)
+- **Ligue 1 : La compo de l'OL en 3-5-2 avec Jordan Veretout face à l'OM**: [Link](https://www.lequipe.fr/Football/Actualites/La-compo-de-l-ol-en-3-5-2-avec-jordan-veretout-face-a-l-om/1509332)
+- **Lyon : Cherki, Benrahma en fait bien les frais**: [Link](https://news.maxifoot.fr/lyon/cherki-benrahma-en-fait-bien-les-frais-foot-419744.htm)
+
+
+### lewandowski (N/A, Sun, 22 Sep 2024 11:10:00 -0700)
+
+- **Potężna wygrana Barcelony! "Lewy" o krok od hat-tricka**: [Link](https://sport.tvp.pl/82452606/la-liga-robert-lewandowski-z-dwoma-golami-barcelona-pokonala-villarreal)
+- **Hat-trick Roberta Lewandowskiego? Nie! Polak zmarnował rzut karny! [WIDEO]**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/laliga/hat-trick-roberta-lewandowskiego-nie-polak-zmarnowal-rzut-karny-wideo/beeky16)
+- **Pięć straconych goli i dymisja Xaviego, czyli jak wyglądał ostatni mecz 
+Barcelony z Villarrealem**: [Link](https://www.fcbarca.com/120981-piec-straconych-goli-i-dymisja-xaviego-czyli-jak-wygladal-ostatni-mecz-barcelony-z-villarrealem.html)
+
+
 ### inter – ac milan (N/A, Sun, 22 Sep 2024 11:00:00 -0700)
 
 - **Inter-Milan, dove vedere il derby in tv: gli orari**: [Link](https://sport.sky.it/calcio/serie-a/2024/09/22/inter-milan-dove-vedere-tv-streaming)
