@@ -1,3 +1,11 @@
+### fifa futsal world cup 2024 (N/A, Sun, 22 Sep 2024 06:10:00 -0700)
+
+- **Futsal Whites exit their first ever FIFA Futsal World Cup**: [Link](https://www.nzfootball.co.nz/newsarticle/145701?newsfeedId=1275622)
+- **Libya too strong for Futsal Whites**: [Link](https://www.odt.co.nz/sport/other-sport/libya-too-strong-futsal-whites)
+- **One last shot for Ditfort and the Futsal Whites at the FIFA World Cup in 
+Uzbekistan**: [Link](https://www.oceaniafootball.com/one-last-shot-for-ditfort-and-the-futsal-whites-at-the-fifa-world-cup-in-uzbekistan/)
+
+
 ### leverkusen – wolfsbourg (N/A, Sun, 22 Sep 2024 05:50:00 -0700)
 
 - **Matchday! Live-Infos zur Partie in Leverkusen**: [Link](https://www.vfl-wolfsburg.de/newsdetails/news-detail/detail/news/matchday-live-infos-zur-partie-in-leverkusen-1)
