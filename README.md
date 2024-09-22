@@ -1,3 +1,21 @@
+### marc andre ter stegen (N/A, Sun, 22 Sep 2024 04:20:00 -0700)
+
+- **Monaco 2-1 Barcelona - Highlights**: [Link](https://www.beinsports.com/en-mena/football/uefa-champions-league/articles-video/monaco-2-1-barcelona-highlights-2024-09-19)
+- **Football (Champions League): Laporta and Deco express satisfaction despite 
+Barcelona's loss to Monaco**: [Link](https://al24news.com/en/football-champions-league-laporta-and-deco-express-satisfaction-despite-barcelonas-loss-to-monaco/)
+- **Have the criticisms been a bit unfair that Barca starter is facing after 
+Monaco's fixture?**: [Link](https://everythingbarca.com/posts/have-the-criticisms-been-a-bit-unfair-that-barca-starter-is-facing-after-monaco-s-fixture-01j8c3exrffw)
+
+
+### المغرب ضد البرتغال (N/A, Sun, 22 Sep 2024 04:10:00 -0700)
+
+- **القنوات الناقلة لمباراة المنتخب المغربي ونظيره البرتغالي في مونديال الفوتصال**: [Link](https://www.akhbarona.com/sport/lionatlas/392566.html)
+- **القنوات الناقلة لمباراة المنتخب المغربي اليوم ضد البرتغال في كأس العالم 
+للفوتسال 2024**: [Link](https://ar.hibapress.com/details-554005.html)
+- **مدرب المنتخب البرتغالي للفوتسال: "المغرب تحسن كثيرا لكننا سنلعب هذه 
+المباراة بطموح وثقة كبيرة"**: [Link](https://m.elbotola.com/article/2024-09-21-16-58-384.html)
+
+
 ### antoine armand ministre (N/A, Sun, 22 Sep 2024 04:00:00 -0700)
 
 - **French President Emmanuel Macron announces new right-wing government**: [Link](https://www.bbc.com/news/articles/c8rd52zl018o)
