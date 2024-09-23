@@ -1,3 +1,10 @@
+### علي كركي (N/A, Mon, 23 Sep 2024 10:10:00 -0700)
+
+- **عاجل | الجيش الإسرائيلي: سلاح الجو أغار قبل دقائق بشكل موجه على منطقة بيروت**: [Link](https://www.aljazeera.net/news/2024/9/23/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AC%D9%88-%D8%A3%D8%BA%D8%A7%D8%B1)
+- **غارة إسرائيلية تستهدف قياديا بـ"حزب الله"**: [Link](https://www.hespress.com/%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%82%D9%8A%D8%A7%D8%AF%D9%8A%D8%A7-%D8%A8%D9%80%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84-1435830.html)
+- **تفاصيل مثيرة.. كيف رصدت إسرائيل اجتماع "قادة الرضوان"؟**: [Link](https://www.skynewsarabia.com/middle-east/1743276-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%B1%D8%B5%D8%AF%D8%AA-%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D9%82%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B1%D8%B6%D9%88%D8%A7%D9%86%D8%9F)
+
+
 ### al hazm – al-nassr fc (N/A, Mon, 23 Sep 2024 07:50:00 -0700)
 
 - **Pioli relies on Al Fateel to defend Al-Nasr against Al-Hazm**: [Link](https://www.ysscores.com/en/news/4538761/Pioli-relies-on-Al-Fateel-to-defend-Al-Nasr-against-Al-Hazm)
