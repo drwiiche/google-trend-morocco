@@ -1,3 +1,10 @@
+### olympique lyonnais (N/A, Sun, 22 Sep 2024 23:50:00 -0700)
+
+- **L’Olympique Lyonnais annonce un grand plan de départs volontaires**: [Link](https://www.footmercato.net/a7790636808665203858-lolympique-lyonnais-annonce-un-grand-plan-de-departs-volontaires)
+- **OL – 73 postes bientôt supprimés par une restructuration ?**: [Link](https://maligue2.fr/2024/09/23/ol-73-postes-bientot-supprimes-par-une-restructuration/)
+- **Lyon : le club veut supprimer des postes**: [Link](https://news.maxifoot.fr/lyon/le-club-veut-supprimer-des-postes-foot-419838.htm)
+
+
 ### bruno retailleau (N/A, Mon, 23 Sep 2024 07:20:00 -0700)
 
 - **French President Emmanuel Macron announces new right-wing government**: [Link](https://www.bbc.com/news/articles/c8rd52zl018o)
