@@ -1,3 +1,10 @@
+### ريال بيتيس (N/A, Mon, 23 Sep 2024 13:10:00 -0700)
+
+- **ريال بيتيس يستقبل ريال مايوركا في ختام الجولة السادسة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%81%D9%8A-%D8%AE%D8%AA%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3%D8%A9-2024-09-23)
+- **بيليجريني: بيتيس عليه أن يكون مبدعا في الهجوم أمام مايوركا**: [Link](https://www.kooora.com/?n=1356454)
+- **بيليغريني: علينا الحذر من هجمات مايوركا المرتدة**: [Link](https://www.mesrena.com/uncategorized/17315/%D8%A8%D9%8A%D9%84%D9%8A%D8%BA%D8%B1%D9%8A%D9%86%D9%8A-%D8%B9%D9%84%D9%8A%D9%86%D8%A7-%D8%A7%D9%84%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D8%AF%D8%A9.html)
+
+
 ### betis (N/A, Mon, 23 Sep 2024 12:40:00 -0700)
 
 - **Betis - Mallorca en directo: LaLiga Hypermotion hoy en vivo**: [Link](https://as.com/futbol/primera/betis-mallorca-en-directo-laliga-hypermotion-hoy-en-vivo-n/)
