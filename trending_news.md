@@ -1,3 +1,10 @@
+### rayo vallecano vs atlético madrid (N/A, Sun, 22 Sep 2024 13:10:00 -0700)
+
+- **Celta - Atlético: las alineaciones probables (Comunio)**: [Link](https://magazine.comunio.es/celta-atletico-las-posibles-alineaciones-3-3/)
+- **Las claves fantasy del Celta – Atleti: Onces, Lesiones y Apuestas**: [Link](https://www.jornadaperfecta.com/blog/alineaciones-celta-atleti-jornada-7-24-25/)
+- **El Atlético se descuelga**: [Link](https://www.marca.com/futbol/atletico/2024/09/23/66f0a74de2704ecbb68b4578.html)
+
+
 ### محاكم (N/A, Mon, 23 Sep 2024 02:10:00 -0700)
 
 - **في سابقة بمحاكم الإستئناف .. الجدول الوطني للخبراء القضائيين يزفّ أربعة 
