@@ -1,3 +1,10 @@
+### atalanta vs como (N/A, Mon, 23 Sep 2024 12:30:00 -0700)
+
+- **Atalanta - Como: horario y previa del partido de la Serie A de Italia**: [Link](https://www.lanacion.com.ar/deportes/futbol/atalanta-como-horario-y-previa-del-partido-de-la-serie-a-de-italia-nid22092024/)
+- **Italia - Serie A: Atalanta vs Como 1907 Fecha 5**: [Link](https://www.eldiarioar.com/deportes/futbol/liga-de-italia-de-primera-division/italia-serie-atalanta-vs-1907-fecha-5_1_11669466.html)
+- **Pronóstico Atalanta BC Como 1907 - Serie A 23/09/24**: [Link](https://www.sportytrader.com/es/pronosticos/atalanta-bergamo-como-calcio-216780/)
+
+
 ### atalanta (N/A, Mon, 23 Sep 2024 12:10:00 -0700)
 
 - **Como vs. Atalanta prediction: Serie A odds, picks, best bet Monday**: [Link](https://nypost.com/2024/09/23/betting/como-vs-atalanta-prediction-serie-a-odds-picks-best-bet/)
