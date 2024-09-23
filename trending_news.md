@@ -1,3 +1,18 @@
+### لبنان (N/A, Mon, 23 Sep 2024 14:00:00 -0700)
+
+- **غارات إسرائيلية كثيفة تهز جنوب لبنان.. هلع ونزوح وجرحى في المستشفيات**: [Link](https://www.hespress.com/%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%AA%D9%87%D8%B2-%D8%AC%D9%86%D9%88%D8%A8-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D9%87-1435806.html)
+- **عدد ضحايا الغارات يرتفع في لبنان**: [Link](https://www.hespress.com/%D8%B9%D8%AF%D8%AF-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D8%A7%D9%84%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D9%81%D9%8A-%D9%84%D8%A8%D9%86%D8%A7%D9%86-1435999.html)
+- **الحرب على غزة مباشر.. إسرائيل تقصف 1300 موقع بلبنان وترتكب مجازر بالقطاع**: [Link](https://www.aljazeera.net/news/liveblog/2024/9/23/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D9%87%D8%AF%D8%A7%D8%A1-%D9%88%D8%B9%D9%85%D9%84%D9%8A%D8%A7%D8%AA?update=6905029)
+
+
+### freeview (N/A, Mon, 23 Sep 2024 13:50:00 -0700)
+
+- **New Freeview update sees 'important' changes made including closure of 2 
+channels**: [Link](https://uk.news.yahoo.com/freeview-sees-important-changes-made-171242745.html)
+- **Brits urged to retune TV as 'important' changes made in new Freeview update**: [Link](https://www.chelmsfordweeklynews.co.uk/news/national/uk-today/24604557.new-freeview-update-issued---see-full-list-changes/)
+- **Brits urged to retune TV as 'important' changes made in new Freeview update**: [Link](https://www.hexham-courant.co.uk/news/national/uk-today/24604557.new-freeview-update-issued---see-full-list-changes/)
+
+
 ### ريال بيتيس (N/A, Mon, 23 Sep 2024 13:10:00 -0700)
 
 - **ريال بيتيس يستقبل ريال مايوركا في ختام الجولة السادسة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%81%D9%8A-%D8%AE%D8%AA%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3%D8%A9-2024-09-23)
