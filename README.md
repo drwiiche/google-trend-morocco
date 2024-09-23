@@ -1,3 +1,10 @@
+### keylor navas (N/A, Mon, 23 Sep 2024 08:20:00 -0700)
+
+- **El Barça fichará un recambio para Ter Stegen**: [Link](https://www.marca.com/futbol/barcelona/2024/09/23/66f172faca4741731e8b4575.html)
+- **El mercado ‘se la juega’ al Barça**: [Link](https://as.com/futbol/primera/el-mercado-se-la-juega-al-barca-n/)
+- **Keylor Navas, en manos de Jorge Mendes y abierto a escuchar al Barça**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240923/1002320812/keylor-navas-manos-jorge-mendes-abierto-escuchar-barca.html)
+
+
 ### olympique lyonnais (N/A, Sun, 22 Sep 2024 23:50:00 -0700)
 
 - **L’Olympique Lyonnais annonce un grand plan de départs volontaires**: [Link](https://www.footmercato.net/a7790636808665203858-lolympique-lyonnais-annonce-un-grand-plan-de-departs-volontaires)
