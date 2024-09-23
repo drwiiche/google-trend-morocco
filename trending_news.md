@@ -1,3 +1,12 @@
+### atalanta – côme (N/A, Mon, 23 Sep 2024 11:20:00 -0700)
+
+- **Probabili formazioni di Atalanta-Como**: [Link](https://sport.sky.it/calcio/serie-a/2024/09/23/atalanta-como-probabili-formazioni)
+- **Fabregas: “Dossena ok, Belotti e Cutrone potrebbero anche giocare insieme. 
+Audero…”**: [Link](https://www.sosfanta.com/news/fabregas-dossena-ok-belotti-e-cutrone-potrebbero-anche-giocare-insieme-audero/)
+- **Calcio in Tv, tutte le gare di oggi: a Bergamo si chiude la 5a giornata di 
+Serie A**: [Link](https://www.tuttonapoli.net/brevi/calcio-in-tv-tutte-le-gare-di-oggi-a-bergamo-si-chiude-la-5a-giornata-di-serie-a-588130)
+
+
 ### liban (N/A, Mon, 23 Sep 2024 10:20:00 -0700)
 
 - **Israeli airstrike reportedly targets senior Hezbollah commander; Lebanon 
