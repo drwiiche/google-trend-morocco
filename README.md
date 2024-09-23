@@ -1,3 +1,19 @@
+### attijariwafa bank (N/A, Mon, 23 Sep 2024 00:50:00 -0700)
+
+- **Attijariwafa bank lance un fonds d’investissement marocain dédié aux 
+projets d’Efficacité énergétique**: [Link](https://medias24.com/2024/09/21/attijariwafa-bank-lance-un-fonds-dinvestissement-marocain-dedie-aux-projets-defficacite-energetique/)
+- **Attijariwafa bank lance un nouveau fonds pour l’efficacité énergétique**: [Link](https://www.infomediaire.net/attijariwafa-bank-lance-un-nouveau-fonds-pour-lefficacite-energetique/)
+- **Attijariwafa Bank inaugure le premier fonds d'investissement marocain dédié 
+à l'efficacité énergétique**: [Link](https://www.financialafrik.com/2024/09/21/attijariwafa-bank-inaugure-le-premier-fonds-dinvestissement-marocain-dedie-a-lefficacite-energetique/)
+
+
+### الجزيرة (N/A, Sun, 22 Sep 2024 23:00:00 -0700)
+
+- **سلسلة غارات على جنوب لبنان والاحتلال يطلب من السكان المغادرة**: [Link](https://www.aljazeera.net/news/2024/9/23/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%B3%D9%84%D8%B3%D8%A9-%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA)
+- **فيديو لجيش إسرائيل.. هكذا يخزن حزب الله صواريخه في المنازل**: [Link](https://www.skynewsarabia.com/middle-east/1743560-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84-%D9%8A%D8%AE%D8%B2%D9%86-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B2%D9%84)
+- **تصاعد حدة المواجهات بين إسرائيل وحزب الله وسط تحذيرات من حرب إقليمية شاملة**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20240922-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%BA%D8%B2%D8%A9-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%B1%D8%B6%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D8%B6%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9-%D8%A8%D9%8A%D8%B1%D9%88%D8%AA-%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%A7%D9%84%D8%B4%D8%A7%D9%85%D9%84%D8%A9-%D8%A7%D9%84%D8%A8%D9%8A%D8%AC%D8%B1)
+
+
 ### aljazeera (N/A, Mon, 23 Sep 2024 00:30:00 -0700)
 
 - **Israeli soldiers raid and order closure of Al Jazeera’s Ramallah offices**: [Link](https://www.cnn.com/2024/09/22/middleeast/al-jazeera-ramallah-israel-raid-intl/index.html)
