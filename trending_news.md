@@ -1,3 +1,11 @@
+### ben seghir (N/A, Mon, 23 Sep 2024 06:50:00 -0700)
+
+- **Monaco 3-1 Le Havre, Ligue 1 : Monaco recolle au PSG !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/monaco-le-havre-live/655902)
+- **Ben Seghir : « j’essaie de contribuer autant défensivement qu’offensivement 
+»**: [Link](https://www.mountakhab.net/ben-seghir-jessaie-de-contribuer-autant-defensivement-quoffensivement/)
+- **L’AS Monaco d’Adi Hütter écrase tout sur son passage !**: [Link](https://www.footmercato.net/a2270672295046818087-las-monaco-dadi-hutter-ecrase-tout-sur-son-passage)
+
+
 ### claudio bravo (N/A, Mon, 23 Sep 2024 05:10:00 -0700)
 
 - **Fichajes FC Barcelona | Claudio Bravo se ofrece al Barça**: [Link](https://www.sport.es/es/noticias/barca/claudio-bravo-ofrece-barca-108464201)
