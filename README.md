@@ -1,3 +1,27 @@
+### betis (N/A, Mon, 23 Sep 2024 12:40:00 -0700)
+
+- **Betis - Mallorca en directo: LaLiga Hypermotion hoy en vivo**: [Link](https://as.com/futbol/primera/betis-mallorca-en-directo-laliga-hypermotion-hoy-en-vivo-n/)
+- **Betis - Mallorca, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/betis-mallorca/2024/09/23/01_0101_20240923_185_181-directo.html)
+- **Protesta en el Villamarín por no jugar los fines de semana**: [Link](https://www.mundodeportivo.com/futbol/betis/20240923/1002320928/protesta-villamarin-jugar-fines-semana.html)
+
+
+### إيمي سمير غانم (N/A, Mon, 23 Sep 2024 12:40:00 -0700)
+
+- **حسن الرداد: زوجتى إيمى سمير غانم بخير وتخضع للعلاج فى المنزل**: [Link](https://www.youm7.com/story/2024/9/23/%D8%AD%D8%B3%D9%86-%D8%A7%D9%84%D8%B1%D8%AF%D8%A7%D8%AF-%D8%B2%D9%88%D8%AC%D8%AA%D9%89-%D8%A5%D9%8A%D9%85%D9%89-%D8%B3%D9%85%D9%8A%D8%B1-%D8%BA%D8%A7%D9%86%D9%85-%D8%A8%D8%AE%D9%8A%D8%B1-%D9%88%D8%AA%D8%AE%D8%B6%D8%B9-%D9%84%D9%84%D8%B9%D9%84%D8%A7%D8%AC-%D9%81%D9%89/6716611)
+- **رسالة مؤثرة من إيمي سمير غانم لوالديها الراحلين**: [Link](https://www.lahamag.com/article/215232-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D9%85%D9%86-%D8%A5%D9%8A%D9%85%D9%8A-%D8%B3%D9%85%D9%8A%D8%B1-%D8%BA%D8%A7%D9%86%D9%85-%D9%84%D9%88%D8%A7%D9%84%D8%AF%D9%8A%D9%87%D8%A7-%D8%A7%D9%84%D8%B1%D8%A7%D8%AD%D9%84%D9%8A%D9%86)
+- **إيمي سمير غانم تتعرض لوعكة صحية- إليك التفاصيل**: [Link](https://www.elconsolto.com/news/health-news/details/2024/9/23/2647050/%D8%A5%D9%8A%D9%85%D9%8A-%D8%B3%D9%85%D9%8A%D8%B1-%D8%BA%D8%A7%D9%86%D9%85-%D8%AA%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D9%88%D8%B9%D9%83%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9-%D8%A5%D9%84%D9%8A%D9%83-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84)
+
+
+### al-ettifaq – al-adalh (N/A, Mon, 23 Sep 2024 11:10:00 -0700)
+
+- **Ronaldo’s three-fingered goal celebration explained – with Al-Nassr 
+superstar offering nod to son Cristiano Jr after going through iconic 
+‘Siuuu’ routine**: [Link](https://www.goal.com/en/lists/ronaldo-three-fingered-goal-celebration-explained-al-nassr-superstar-son-cristiano-jr-siuuu-routine/blt8ac0cd7961364026)
+- **Cristiano Ronaldo has Benzema in his sights**: [Link](https://en.as.com/soccer/cristiano-ronaldo-has-benzema-in-his-sights-n/)
+- **Cristiano Ronaldo playfully taunts Cristiano Jr but talented starlet gets 
+the last laugh over his...**: [Link](https://talksport.com/football/2072706/cristiano-ronaldo-playfully-taunts-cristiano-jr-al-nassr/)
+
+
 ### atalanta vs como (N/A, Mon, 23 Sep 2024 12:30:00 -0700)
 
 - **Atalanta - Como: horario y previa del partido de la Serie A de Italia**: [Link](https://www.lanacion.com.ar/deportes/futbol/atalanta-como-horario-y-previa-del-partido-de-la-serie-a-de-italia-nid22092024/)
