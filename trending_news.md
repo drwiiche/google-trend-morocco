@@ -1,3 +1,11 @@
+### محاكم (N/A, Mon, 23 Sep 2024 02:10:00 -0700)
+
+- **في سابقة بمحاكم الإستئناف .. الجدول الوطني للخبراء القضائيين يزفّ أربعة 
+أسماء متخصصة في الصيد البحري**: [Link](https://albahrnews.com/%D9%81%D9%8A-%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D9%85%D8%AD%D8%A7%D9%83%D9%85-%D8%A7%D9%84%D8%A5%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%A7%D9%84/)
+- **مظاهرة في تونس تندد بمساع لتعديل القانون الانتخابي**: [Link](https://www.aljazeera.net/news/2024/9/22/%D9%85%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D9%81%D9%8A-%D8%AA%D9%88%D9%86%D8%B3-%D8%AA%D9%86%D8%AF%D8%AF-%D8%A8%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%84)
+- **رفض واسع لتعديل قانون الانتخابات بتونس ومظاهرات احتجاجية**: [Link](https://arabi21.com/story/1627575/%D8%B1%D9%81%D8%B6-%D9%88%D8%A7%D8%B3%D8%B9-%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%84-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D9%85%D8%B8%D8%A7%D9%87%D8%B1%D8%A7%D8%AA-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D9%8A%D8%A9)
+
+
 ### attijariwafa bank (N/A, Mon, 23 Sep 2024 00:50:00 -0700)
 
 - **Attijariwafa bank lance un fonds d’investissement marocain dédié aux 
