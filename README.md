@@ -1,3 +1,12 @@
+### liban (N/A, Mon, 23 Sep 2024 10:20:00 -0700)
+
+- **Israeli airstrike reportedly targets senior Hezbollah commander; Lebanon 
+says more than 270 killed – Middle East crisis live**: [Link](https://www.theguardian.com/world/live/2024/sep/23/middle-east-crisis-live-hezbollah-israel-war-lebanon-evacuations-latest)
+- **Israel bombs Lebanon live: 274 killed, over 1,000 wounded in Israel attacks**: [Link](https://www.aljazeera.com/news/liveblog/2024/9/23/israel-hezbollah-conflict-live-new-air-strikes-target-lebanon)
+- **Hezbollah commander killed in Israeli airstrike was top military official 
+on US wanted list**: [Link](https://apnews.com/article/lebanon-hezbollah-israel-mideast-tensions-attack-8ec89de2b117b52e2c09b19155e35d13)
+
+
 ### علي كركي (N/A, Mon, 23 Sep 2024 10:10:00 -0700)
 
 - **عاجل | الجيش الإسرائيلي: سلاح الجو أغار قبل دقائق بشكل موجه على منطقة بيروت**: [Link](https://www.aljazeera.net/news/2024/9/23/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AC%D9%88-%D8%A3%D8%BA%D8%A7%D8%B1)
