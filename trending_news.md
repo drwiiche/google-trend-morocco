@@ -1,3 +1,18 @@
+### atalanta (N/A, Mon, 23 Sep 2024 12:10:00 -0700)
+
+- **Como vs. Atalanta prediction: Serie A odds, picks, best bet Monday**: [Link](https://nypost.com/2024/09/23/betting/como-vs-atalanta-prediction-serie-a-odds-picks-best-bet/)
+- **Where to Watch Atalanta vs. Como 1907: TV Channel, Start Time and Live 
+Stream**: [Link](https://www.bleachernation.com/how-to-watch/2024/09/22/where-to-watch-atalanta-vs-como-1907-tv-channel-start-time-and-live-stream/)
+- **Atalanta vs Como delayed after last-minute pitch inspection**: [Link](https://football-italia.net/atalanta-como-delayed-after-pitch-inspection/)
+
+
+### real betis vs mallorca (N/A, Mon, 23 Sep 2024 12:10:00 -0700)
+
+- **Preview: Real Betis vs. Mallorca - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/preview-betis-vs-mallorca-prediction-team-news-lineups_553514.html)
+- **Pellegrini: "Schedule? It needs reviewing, there are more injuries..."**: [Link](https://www.footboom1.com/en/news/football/1849219-pellegrini-schedule-it-needs-reviewing-there-are-more-injuries)
+- **Real Betis vs. Mallorca - Football Match Preview - September 23, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704718)
+
+
 ### françois baroin (N/A, Mon, 23 Sep 2024 11:30:00 -0700)
 
 - **Mariage : François Baroin, maire de Troyes, a épousé Stéphanie Lochard**: [Link](https://www.lest-eclair.fr/id642557/article/2024-09-21/mariage-francois-baroin-maire-de-troyes-epouse-stephanie-lochard)
