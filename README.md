@@ -1,3 +1,12 @@
+### diddy (N/A, Sun, 22 Sep 2024 19:40:00 -0700)
+
+- **Sean Combs Charged In Manhattan Federal Court With Sex Trafficking And 
+Other Federal Offenses**: [Link](https://www.justice.gov/usao-sdny/pr/sean-combs-charged-manhattan-federal-court-sex-trafficking-and-other-federal-offenses)
+- **Diddy's Arrest Caught on Video, Marched Out of NYC Hotel in Handcuffs**: [Link](https://www.tmz.com/2024/09/20/diddy-arrest-video-handcuffed-hotel-new-york/)
+- **Sean 'Diddy' Combs arrest: 'Freak offs' at center of sex trafficking, 
+racketeering charges**: [Link](https://www.nbcnews.com/news/us-news/live-blog/sean-diddy-combs-arrest-live-updates-rcna171438)
+
+
 ### الفجر (N/A, Sun, 22 Sep 2024 21:40:00 -0700)
 
 - **ننشر مواقيت الصلاة الإثنين 23/9/2024 بمحافظات الجمهورية**: [Link](https://www.youm7.com/story/2024/9/23/%D9%86%D9%86%D8%B4%D8%B1-%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-23-9-2024-%D8%A8%D9%85%D8%AD%D8%A7%D9%81%D8%B8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9/6715976)
