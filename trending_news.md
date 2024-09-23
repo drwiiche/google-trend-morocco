@@ -1,3 +1,11 @@
+### claudio bravo (N/A, Mon, 23 Sep 2024 05:10:00 -0700)
+
+- **Fichajes FC Barcelona | Claudio Bravo se ofrece al Barça**: [Link](https://www.sport.es/es/noticias/barca/claudio-bravo-ofrece-barca-108464201)
+- **Claudio Bravo se ofrece al Barça como sustituto de Ter Stegen: "Estaré 
+preparado"**: [Link](https://www.eldesmarque.com/futbol/fc-barcelona/20240923/claudio-bravo-ofrencido-barcelona-sustituto-porteria-ter-stegen_300452137.html)
+- **¡Claudio Bravo tiende su mano al FC Barcelona!**: [Link](https://www.fichajes.com/a5037554227709656879-claudio-bravo-tiende-su-mano-al-fc-barcelona)
+
+
 ### rayo vallecano vs atlético madrid (N/A, Sun, 22 Sep 2024 13:10:00 -0700)
 
 - **Celta - Atlético: las alineaciones probables (Comunio)**: [Link](https://magazine.comunio.es/celta-atletico-las-posibles-alineaciones-3-3/)
