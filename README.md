@@ -1,3 +1,11 @@
+### aljazeera (N/A, Mon, 23 Sep 2024 00:30:00 -0700)
+
+- **Israeli soldiers raid and order closure of Al Jazeera’s Ramallah offices**: [Link](https://www.cnn.com/2024/09/22/middleeast/al-jazeera-ramallah-israel-raid-intl/index.html)
+- **Israel’s Military Closes Al Jazeera’s Office in the West Bank**: [Link](https://www.nytimes.com/2024/09/22/world/middleeast/al-jazeera-west-bank-raid.html)
+- **The Shutdown of Al Jazeera Is a Dire Warning for All Journalists in Israel: 
+You're Next**: [Link](https://www.haaretz.com/opinion/2024-09-23/ty-article-opinion/.premium/the-forced-closure-of-al-jazeera-should-be-a-dire-warning-to-all-journalists-in-israel/00000192-1acc-ddf9-a9fa-7fcc97b50000)
+
+
 ### daniel ricciardo (N/A, Sun, 22 Sep 2024 21:50:00 -0700)
 
 - **McLaren say Red Bull-RB relationship needs addressing after Daniel 
