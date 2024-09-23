@@ -1,3 +1,11 @@
+### françois baroin (N/A, Mon, 23 Sep 2024 11:30:00 -0700)
+
+- **Mariage : François Baroin, maire de Troyes, a épousé Stéphanie Lochard**: [Link](https://www.lest-eclair.fr/id642557/article/2024-09-21/mariage-francois-baroin-maire-de-troyes-epouse-stephanie-lochard)
+- **François Baroin : l’ex de Michèle Laroque s’est marié à Stéphanie, de 14 
+ans sa cadette**: [Link](https://www.gala.fr/l_actu/news_de_stars/francois-baroin-lex-de-michele-laroque-sest-marie-a-stephanie-de-14-ans-sa-cadette_552403)
+- **François Baroin, son mariage avec Stéphanie Lochard**: [Link](https://www.parismatch.com/actu/politique/francois-baroin-son-mariage-avec-stephanie-lochard-241891)
+
+
 ### atalanta – côme (N/A, Mon, 23 Sep 2024 11:20:00 -0700)
 
 - **Probabili formazioni di Atalanta-Como**: [Link](https://sport.sky.it/calcio/serie-a/2024/09/23/atalanta-como-probabili-formazioni)
