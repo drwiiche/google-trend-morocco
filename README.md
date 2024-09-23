@@ -1,3 +1,10 @@
+### from (N/A, Sun, 22 Sep 2024 17:30:00 -0700)
+
+- **Harold Perrineau Says 'From' Season 3 Is Scarier Than the Last: 'Prepare for Worse'**: [Link](https://www.cnet.com/tech/services-and-software/harold-perrineau-says-from-season-3-is-scarier-than-the-last-prepare-for-worse/)
+- **8 Relationships That’ll Get You Hooked on From**: [Link](https://www.vulture.com/article/from-recap-season-three-characters-relationships-explained.html)
+- **The Rings of Power season 3 has reportedly been in the works for months, although it hasn’t been greenlit**: [Link](https://www.gamesradar.com/entertainment/lord-of-the-rings-tv-shows/the-rings-of-power-season-3-has-reportedly-been-in-the-works-for-months-although-it-hasnt-been-greenlit/)
+
+
 ### annie genevard ministre agriculture (N/A, Sun, 22 Sep 2024 12:50:00 -0700)
 
 - **Annie Genevard, une ex-prof à la fermeté assumée nommée à l'Agriculture**: [Link](https://medias24.com/agence-presse/annie-genevard-une-ex-prof-a-la-fermete-assumee-nommee-a-lagriculture/)
