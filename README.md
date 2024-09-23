@@ -1,3 +1,18 @@
+### daniel ricciardo (N/A, Sun, 22 Sep 2024 21:50:00 -0700)
+
+- **McLaren say Red Bull-RB relationship needs addressing after Daniel 
+Ricciardo denied Lando Norris Singapore GP fastest lap**: [Link](https://www.skysports.com/f1/news/12433/13219805/mclaren-say-red-bull-rb-relationship-needs-addressing-after-daniel-ricciardo-denied-lando-norris-singapore-gp-fastest-lap)
+- **Start time of qualifying for the 2024 F1 Singapore GP today**: [Link](https://racingnews365.com/start-time-of-qualifying-for-the-2024-f1-singapore-gp-today)
+- **No Fairytale Ending For Ricciardo After 13 Years In Formula One**: [Link](https://www.barrons.com/news/no-fairytale-ending-for-ricciardo-after-13-years-in-formula-one-60950d21)
+
+
+### serie a (N/A, Sun, 22 Sep 2024 13:50:00 -0700)
+
+- **Atalanta-Como: aggiornamento biglietti**: [Link](https://www.atalanta.it/news/atalanta-como-aggiornamento-biglietti)
+- **Fabregas va a "lezione" all'università Gasperini**: [Link](https://www.ilgiornale.it/news/sport/fabregas-va-lezione-alluniversit-gasperini-2371877.html)
+- **Le partite di oggi : il programma di domenica 23 settembre**: [Link](https://www.tuttomercatoweb.com/altre-notizie/i-le-partite-di-oggi-i-il-programma-di-domenica-23-settembre-2015002)
+
+
 ### diddy (N/A, Sun, 22 Sep 2024 19:40:00 -0700)
 
 - **Sean Combs Charged In Manhattan Federal Court With Sex Trafficking And 
