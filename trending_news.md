@@ -1,3 +1,25 @@
+### al hazm – al-nassr fc (N/A, Mon, 23 Sep 2024 07:50:00 -0700)
+
+- **Pioli relies on Al Fateel to defend Al-Nasr against Al-Hazm**: [Link](https://www.ysscores.com/en/news/4538761/Pioli-relies-on-Al-Fateel-to-defend-Al-Nasr-against-Al-Hazm)
+- **Is Cristiano Ronaldo playing today for Al Nassr vs Al Hazm in the 2024-25 
+King's Cup?**: [Link](https://bolavip.com/en/soccer/is-cristiano-ronaldo-playing-today-for-al-nassr-vs-al-hazm-in-the-2024-25-kings-cup)
+- **Al Hazem vs Al Nassr Predictions & Tips - BTTS the Best Bet in Saudi Arabia**: [Link](https://www.freetips.com/football/al-hazem-vs-al-nassr-tips-20240923-0011/)
+
+
+### antoine armand ministre (N/A, Mon, 23 Sep 2024 07:40:00 -0700)
+
+- **French President Emmanuel Macron announces new right-wing government**: [Link](https://www.bbc.com/news/articles/c8rd52zl018o)
+- **Macron’s new coalition yanks France a step to the right**: [Link](https://www.economist.com/europe/2024/09/23/macrons-new-coalition-yanks-france-a-step-to-the-right)
+- **Macron’s old guard spooked by new government’s rightward shift**: [Link](https://www.politico.eu/article/emmanuel-macron-gabriel-attal-new-government-right-shift-michel-barnier-bruno-retailleau-laurence-garnier/)
+
+
+### tramway casablanca (N/A, Mon, 23 Sep 2024 05:50:00 -0700)
+
+- **Casatramway : les lignes T3 et T4 prennent du service**: [Link](https://lematin.ma/regions/casatramway-les-lignes-t3-et-t4-prennent-du-service/243811)
+- **Casablanca: voici la date de mise en service des lignes de tramway T3 et T4**: [Link](https://fr.le360.ma/societe/casablanca-voici-la-date-de-mise-en-service-des-lignes-de-tramway-t3-et-t4_64GU6YBB4ND3JBJLAPYDW36W7E/)
+- **Casa-Tram: Lancement des lignes 3 et 4 ce lundi 23 septembre**: [Link](https://www.leconomiste.com/article/1125397-casa-tram-lancement-des-lignes-3-et-4-ce-lundi-23-septembre)
+
+
 ### keylor navas (N/A, Mon, 23 Sep 2024 08:20:00 -0700)
 
 - **El Barça fichará un recambio para Ter Stegen**: [Link](https://www.marca.com/futbol/barcelona/2024/09/23/66f172faca4741731e8b4575.html)
