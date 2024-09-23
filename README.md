@@ -1,3 +1,11 @@
+### bruno retailleau (N/A, Mon, 23 Sep 2024 07:20:00 -0700)
+
+- **French President Emmanuel Macron announces new right-wing government**: [Link](https://www.bbc.com/news/articles/c8rd52zl018o)
+- **Macron’s old guard spooked by new government’s rightward shift**: [Link](https://www.politico.eu/article/emmanuel-macron-gabriel-attal-new-government-right-shift-michel-barnier-bruno-retailleau-laurence-garnier/)
+- **France's incoming interior minister vows to 'restore order' as new 
+government takes over**: [Link](https://www.france24.com/en/europe/20240923-france-incoming-interior-minister-vows-restore-order-new-government-takes-over-barnier-retailleau)
+
+
 ### ben seghir (N/A, Mon, 23 Sep 2024 06:50:00 -0700)
 
 - **Monaco 3-1 Le Havre, Ligue 1 : Monaco recolle au PSG !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/monaco-le-havre-live/655902)
