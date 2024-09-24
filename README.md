@@ -1,3 +1,10 @@
+### aljazeera (N/A, Mon, 23 Sep 2024 22:30:00 -0700)
+
+- **Watch: Israeli forces order 45-day closure of Al Jazeera West Bank office**: [Link](https://www.bbc.com/news/videos/c77x88e60jno)
+- **Israel raids and shuts down Al Jazeera’s bureau in Ramallah in the West Bank**: [Link](https://apnews.com/article/israel-palestinians-al-jazeera-gaza-war-hamas-4abdb2969e39e7ad99dfbf9caa7bb32c)
+- **Israeli soldiers raid and order closure of Al Jazeera’s Ramallah offices**: [Link](https://www.cnn.com/2024/09/22/middleeast/al-jazeera-ramallah-israel-raid-intl/index.html)
+
+
 ### almayadeen (N/A, Mon, 23 Sep 2024 22:20:00 -0700)
 
 - **من علي كركي الذي استهدفته إسرائيل بغارة في الضاحية الجنوبية؟**: [Link](https://www.aljazeera.net/encyclopedia/2024/9/23/%D9%85%D9%86-%D8%B9%D9%84%D9%8A-%D9%83%D8%B1%D9%83%D9%8A-%D8%A7%D9%84%D8%B0%D9%8A-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D9%81%D8%AA%D9%87-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
