@@ -1,3 +1,20 @@
+### chelsea – barrow afc (N/A, Tue, 24 Sep 2024 11:00:00 -0700)
+
+- **Update: Defender set to return against Barrow as midfielder likely to start 
+| News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/malo-gusto-fit-to-face-barrow-and-kiernan-dewsbury-hall-set-to-start)
+- **Felix and Nkunku start, Chilwell minutes, Acheampong decision - Predicted 
+Chelsea XI vs Barrow**: [Link](https://www.football.london/chelsea-fc/news/gallery/felix-nkunku-start-chilwell-minutes-29990890)
+- **How to watch Wycombe vs Aston Villa on US TV and live streaming**: [Link](https://worldsoccertalk.com/watch-on-us-tv/wycombe-vs-aston-villa-on-us-tv-and-live-streaming/)
+
+
+### real madrid – deportivo alavés (N/A, Tue, 24 Sep 2024 11:00:00 -0700)
+
+- **Real Madrid - Alavés, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-alaves-en-directo-laliga-ea-sports-hoy-en-vivo-n/)
+- **Real Madrid - Alavés en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/r-madrid-alaves/2024/09/24/01_0101_20240924_186_173-directo.html)
+- **Edu Aguirre anuncia sorpresas en la alineación de Ancelotti ante el Alavés: 
+sin Endrick**: [Link](https://www.defensacentral.com/real_madrid/1709327458-edu-aguirre-anuncia-sorpresas-en-la-alineacion-de-ancelotti-ante-el-alaves-sin-endrick)
+
+
 ### gérald moussa darmanin (N/A, Tue, 24 Sep 2024 09:50:00 -0700)
 
 - **Gérald Darmanin découvre le racisme le jour de son départ du ministère de 
