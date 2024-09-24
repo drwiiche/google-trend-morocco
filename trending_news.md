@@ -1,3 +1,21 @@
+### walsall – leicester (N/A, Tue, 24 Sep 2024 11:40:00 -0700)
+
+- **Preview: Walsall vs. Leicester City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/walsall/league-cup/preview/preview-walsall-vs-leicester-prediction-team-news-lineups_553581.html)
+- **EFL Cup and League One predictions, betting odds and tips: Foxes can forge 
+on**: [Link](https://www.racingpost.com/sport/football-tips/efl-cup/efl-cup-and-league-one-predictions-betting-odds-and-tips-aPZEm8Q7f432/)
+- **Steve Cooper emphasises Ricardo Pereira stance as Leicester City wait goes 
+on**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/steve-cooper-emphasises-ricardo-pereira-9573285)
+
+
+### al-ittihad vs al-ain (N/A, Tue, 24 Sep 2024 11:40:00 -0700)
+
+- **Find out the expected Al-Ittihad lineup for today’s match**: [Link](https://www.ysscores.com/en/news/4587789/Find-out-the-expected-Al-Ittihad-lineup-for-today%E2%80%99s-match)
+- **Al-Ettifaq vs Al-Adalah Predicted lineup, betting tips, odds, injury news, 
+H2H, telecast | King's Cup 2024-25**: [Link](https://khelnow.com/football/world-football-al-ettifaq-vs-al-adalah-kings-cup-match-preview-202409)
+- **Al Ittihad vs Al Ain Predicted lineup, betting tips, odds, injury news, 
+H2H, telecast | King's Cup 2024-25**: [Link](https://khelnow.com/football/world-football-al-ittihad-vs-al-ain-kings-cup-match-preview-202409)
+
+
 ### مان سيتي ضد واتفورد (N/A, Tue, 24 Sep 2024 11:20:00 -0700)
 
 - **تشكيلة مانشستر سيتي و واتفورد في كأس كاراباو**: [Link](https://hihi2.com/2024/09/24/p2861565.html)
