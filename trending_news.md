@@ -1,3 +1,12 @@
+### haaland (N/A, Tue, 24 Sep 2024 08:30:00 -0700)
+
+- **Erling Haaland throwing ball at Gabriel a coward's move - Ian Wright**: [Link](https://www.bbc.com/sport/football/articles/cd982pyyx3go)
+- **Erling Haaland: Man City striker to face no retrospective punishment over 
+Arsenal incidents in 2-2 draw**: [Link](https://www.skysports.com/football/news/11661/13220612/erling-haaland-man-city-striker-to-face-no-retrospective-punishment-over-arsenal-incidents-in-2-2-draw)
+- **'We learned from the past' - Mikel Arteta defends 'dark arts' accusations 
+after Manchester City draw**: [Link](https://www.tntsports.co.uk/football/premier-league/2024-2025/mikel-arteta-dark-arts-man-city-erling-haaland_sto20039721/story.shtml)
+
+
 ### البكيرية ضد الهلال (N/A, Tue, 24 Sep 2024 08:10:00 -0700)
 
 - **هل يخطف الدوسري عرش أسطورة الهلال؟**: [Link](https://www.kooora.com/?n=1356875)
