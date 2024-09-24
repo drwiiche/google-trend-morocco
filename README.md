@@ -1,3 +1,10 @@
+### tiktok (N/A, Tue, 24 Sep 2024 07:10:00 -0700)
+
+- **TikTok to Shut Down Short-Lived Music-Streaming Service**: [Link](https://www.wsj.com/tech/tiktok-to-shut-down-music-streaming-service-753c71fd)
+- **TikTok to Shut Down its Music Streaming Business in November**: [Link](https://www.bloomberg.com/news/articles/2024-09-24/tiktok-to-shut-down-its-music-streaming-business-in-november)
+- **TikTok is shutting down TikTok Music**: [Link](https://www.musicbusinessworldwide.com/tiktok-to-shutter-music-subscription-service-tiktok-music-in-november/)
+
+
 ### szczesny (N/A, Tue, 24 Sep 2024 06:20:00 -0700)
 
 - **Germany coach Nagelsmann shocked by Ter Stegen injury**: [Link](https://www.reuters.com/sports/soccer/germany-coach-nagelsmann-shocked-by-ter-stegen-injury-2024-09-24/)
