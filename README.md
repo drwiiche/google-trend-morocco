@@ -1,3 +1,10 @@
+### real vs (N/A, Tue, 24 Sep 2024 12:30:00 -0700)
+
+- **Real Madrid-Alavés: the second game at the Bernabéu in three days**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/fixtures/real-madrid-alaves-a-dar-continuidad-a-la-racha-de-triunfos-en-el-bernabeu-23-09-2024)
+- **Ancelotti confirms selection decisions ahead of Alaves game**: [Link](http://www.china.org.cn/sports/2024-09/24/content_117445368.htm)
+- **CONFIRMED lineups: Real Madrid vs Alaves, 2024 La Liga**: [Link](https://www.managingmadrid.com/2024/9/24/24252940/real-madrid-vs-alaves-2024-la-liga-live-online-stream)
+
+
 ### wycombe – aston villa (N/A, Tue, 24 Sep 2024 12:20:00 -0700)
 
 - **Gauci debuts at Wycombe Wanderers**: [Link](https://www.avfc.co.uk/news/2024/september/24/Gauci-debuts-at-Wycombe-Wanderers/)
