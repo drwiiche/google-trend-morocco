@@ -1,3 +1,24 @@
+### مان سيتي ضد واتفورد (N/A, Tue, 24 Sep 2024 11:20:00 -0700)
+
+- **تشكيلة مانشستر سيتي و واتفورد في كأس كاراباو**: [Link](https://hihi2.com/2024/09/24/p2861565.html)
+- **تغييرات بالجملة على تشكيل مانشستر سيتي ضد واتفورد**: [Link](https://m.kooora.com/?n=1356974&o=n)
+- **غوارديولا يجري 9 تغييرات ويعتمد على مدافع بعمر 16 عاماً**: [Link](https://sports.asharq.com/football/53241/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%AC%D8%B1%D9%8A-9-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%88%D9%8A%D8%B9%D8%AA%D9%85%D8%AF-%D8%B9%D9%84%D9%89-%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%A8%D8%B9%D9%85%D8%B1-16-%D8%B9%D8%A7%D9%85%D8%A7/)
+
+
+### manchester city – watford (N/A, Tue, 24 Sep 2024 11:10:00 -0700)
+
+- **Preview: Manchester City vs. Watford - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-city/league-cup/preview/preview-man-city-vs-watford-prediction-team-news-lineups_553576.html)
+- **Wycombe Wanderers vs Aston Villa LIVE: League Cup team news, line-ups and more**: [Link](https://sports.yahoo.com/wycombe-wanderers-vs-aston-villa-170015080.html)
+- **City make nine changes with 16-year-old Braithwaite handed debut**: [Link](https://www.mancity.com/news/mens/city-v-watford-carabao-cup-team-news-63862796)
+
+
+### الاتحاد ضد العين (N/A, Tue, 24 Sep 2024 11:10:00 -0700)
+
+- **موعد مباراة الاتحاد والعين في كأس الملك السعودي 2024-2025 والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1356702)
+- **تشكيلة الاتحاد الرسمية لمواجهة العين**: [Link](https://hihi2.com/2024/09/24/p2861516.html)
+- **بنزيما احتياطيا، تشكيل اتحاد جدة أمام العين بكأس خادم الحرمين الشريفين**: [Link](https://www.vetogate.com/5245493)
+
+
 ### chelsea – barrow afc (N/A, Tue, 24 Sep 2024 11:00:00 -0700)
 
 - **Update: Defender set to return against Barrow as midfielder likely to start 
