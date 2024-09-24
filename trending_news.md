@@ -1,3 +1,27 @@
+### endrick (N/A, Tue, 24 Sep 2024 13:40:00 -0700)
+
+- **Endrick showed 'courage' on 1st Madrid UCL goal**: [Link](https://www.espn.com/soccer/story/_/id/41305264/madrid-endrick-courage-first-ucl-goal)
+- **Courtois, MVP of the game: “It's very important to start the Champions 
+League with a win”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/courtois-mvp-del-partido-la-victoria-es-muy-importante-en-este-nuevo-formato-de-champions-17-09-2024)
+- **Endrick breaks Real Madrid legend Raul's record with stunning goal on 
+Champions League debut in win against Stuttgart**: [Link](https://www.goal.com/en/lists/endrick-breaks-real-madrid-legend-raul-record-goal-champions-league-debut-stuttgart/blt3d6ddb530b8a24e5)
+
+
+### atalanta vs como (N/A, Tue, 24 Sep 2024 13:40:00 -0700)
+
+- **Partido postergado entre Atalanta y Como 1907**: [Link](https://www.futbolred.com/serie-a/partido-postergado-entre-atalanta-y-como-1907-222941)
+- **Atalanta-Como, pospuesto debido a fuertes lluvias en Bérgamo**: [Link](https://www.msn.com/es-us/deportes/otros_deportes/atalanta-como-pospuesto-debido-a-fuertes-lluvias-en-b%C3%A9rgamo/ar-AA1r4sqQ)
+- **🔴 Atalanta vs. Como EN VIVO: siga a Juan Cuadrado en la Serie A**: [Link](https://www.wradio.com.co/2024/09/24/atalanta-vs-como-en-vivo-siga-a-juan-cuadrado-en-la-serie-a/)
+
+
+### enzo zidane (N/A, Tue, 24 Sep 2024 13:40:00 -0700)
+
+- **Enzo Zidane Retires from Football at The Age of 29**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/enzo-zidane-retires-from-football-at-the-age-of-29-2024-09-24)
+- **Football legend's son retires at 29 'due to boredom' after failing to find 
+a club**: [Link](https://www.dailymail.co.uk/sport/football/article-13885599/Football-legend-son-retires-Zinedine-Enzo-Zidane.html)
+- **Zidane’s son Enzo retires from football at 29**: [Link](https://dailypost.ng/2024/09/24/zidanes-son-enzo-retires-from-football-at-29/)
+
+
 ### alaves (N/A, Tue, 24 Sep 2024 13:20:00 -0700)
 
 - **Deportivo Alavés continue their great start to the season and travel to the 
