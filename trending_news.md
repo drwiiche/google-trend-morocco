@@ -1,3 +1,10 @@
+### vallejo (N/A, Tue, 24 Sep 2024 14:40:00 -0700)
+
+- **Suspect arrested in connection to fatal July shooting: Vallejo PD**: [Link](https://www.kron4.com/news/bay-area/suspect-arrested-in-july-shooting-death-vallejo-pd/)
+- **Vallejo police arrest suspect in homicide of Damien Davis**: [Link](https://openvallejo.org/2024/09/21/vallejo-police-arrest-suspect-in-homicide-of-damien-davis/)
+- **Vallejo Police Department arrests suspect in July 24 shooting**: [Link](https://www.timesheraldonline.com/2024/09/21/vallejo-police-department-arrests-suspect-in-july-24-shooting/)
+
+
 ### la liga (N/A, Tue, 24 Sep 2024 14:00:00 -0700)
 
 - **Real Madrid's starting eleven against Alavés**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/onces-iniciales-de-real-madrid-y-espanyol)
