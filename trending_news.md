@@ -1,3 +1,9 @@
+### fst fes (N/A, Mon, 23 Sep 2024 15:00:00 -0700)
+
+- **Flavor Flav reveals his dream for 2028 Olympics in Los Angeles**: [Link](https://abc7news.com/flavor-flav-reveals-dream-2028-olympics-los-angeles/15345785/)
+- **‘Vote wisely’ – Shatta Wale tells fans ahead of elections**: [Link](https://3news.com/showbiz/vote-wisely-shatta-wale-tells-fans-ahead-of-elections/)
+
+
 ### لبنان (N/A, Mon, 23 Sep 2024 14:00:00 -0700)
 
 - **غارات إسرائيلية كثيفة تهز جنوب لبنان.. هلع ونزوح وجرحى في المستشفيات**: [Link](https://www.hespress.com/%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%AA%D9%87%D8%B2-%D8%AC%D9%86%D9%88%D8%A8-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D9%87-1435806.html)
