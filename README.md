@@ -1,3 +1,11 @@
+### belaid bouimid (N/A, Mon, 23 Sep 2024 23:50:00 -0700)
+
+- **Doyen des journalistes marocains et pionnier du dessin de presse, Belaïd 
+Bouimid n’est plus**: [Link](https://fr.le360.ma/medias/doyen-des-journalistes-marocains-et-pionnier-du-dessin-de-presse-belaid-bouimid-nest-plus_EO6PURXTY5DPBCBGSZGV57ETTU/)
+- **Le journaliste marocain Belaïd Bouimide est décédé - HIBAPRESS**: [Link](https://fr.hibapress.com/news-134207.html)
+- **Belaïd Bouimid, vétéran de la presse sportive marocaine n'est plus!**: [Link](https://snrtnews.com/fr/article/belaid-bouimid-veteran-de-la-presse-sportive-marocaine-nest-plus-103447)
+
+
 ### al jazeera (N/A, Tue, 24 Sep 2024 00:00:00 -0700)
 
 - **Watch: Israeli forces order 45-day closure of Al Jazeera West Bank office**: [Link](https://www.bbc.com/news/videos/c77x88e60jno)
