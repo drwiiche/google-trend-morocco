@@ -1,3 +1,21 @@
+### gérald moussa darmanin (N/A, Tue, 24 Sep 2024 09:50:00 -0700)
+
+- **Gérald Darmanin découvre le racisme le jour de son départ du ministère de 
+l’Intérieur**: [Link](https://www.liberation.fr/societe/immigration/gerald-darmanin-decouvre-le-racisme-le-jour-de-son-depart-du-ministere-de-linterieur-20240923_GV7VXLW5HVBNFLK33WZIEFQHYQ/)
+- **Gérald Darmanin: «Si je m'étais appelé Moussa Darmanin, je n'aurais pas été 
+élu maire et député»**: [Link](https://www.lefigaro.fr/gerald-darmanin-si-je-m-etais-appele-moussa-darmanin-je-n-aurais-pas-ete-elu-maire-et-depute-20240923)
+- **Passation des pouvoirs : quand les ministres instrumentalisent leur famille**: [Link](https://www.lepoint.fr/politique/passation-des-pouvoirs-quand-les-ministres-instrumentalisent-leur-famille-24-09-2024-2570963_20.php)
+
+
+### sadri fegaier (N/A, Tue, 24 Sep 2024 06:50:00 -0700)
+
+- **plus jeune milliardaire de France » devant la justice : l’incroyable 
+débâcle de Sadri Fegaier, l’ex-magnat des assurances pour téléphones**: [Link](https://www.nouvelobs.com/economie/20240922.OBS93939/le-plus-jeune-milliardaire-de-france-devant-la-justice-l-incroyable-debacle-de-sadri-fegaier-l-ex-magnat-des-assurances-pour-telephones.html)
+- **«L'argent nous brûlait les doigts» : à Romans-sur-Isère, le succès irréel 
+des jeunes qui vivaient sous la coupe de Sadri Fegaier**: [Link](https://www.lefigaro.fr/faits-divers/l-argent-nous-brulait-les-doigts-a-romans-sur-isere-le-succes-irreel-des-jeunes-qui-vivaient-sous-la-coupe-de-sadri-fegaier-20240924)
+- **Milliardaire déchu, escroquerie massive… Le point sur le procès de la Sfam**: [Link](https://www.20minutes.fr/justice/4111423-20240923-milliardaire-dechu-escroquerie-massive-tout-comprendre-proces-sfam)
+
+
 ### تشيزني (N/A, Tue, 24 Sep 2024 09:30:00 -0700)
 
 - **مفاجأة.. برشلونة يدرس التوقيع مع حارس معتزل**: [Link](https://www.kooora.com/?n=1356915)
