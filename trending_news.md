@@ -1,3 +1,19 @@
+### séville – valladolid (N/A, Tue, 24 Sep 2024 09:20:00 -0700)
+
+- **DIRECT. Séville FC-Valladolid (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/seville-fc-valladolid-live/657344)
+- **Composition Sevilla - Real Valladolid, Liga, 7ème journée, match du mardi 
+24 septembre 2024**: [Link](https://rmcsport.bfmtv.com/football/liga/live/2024/match-Sevilla-Real-Valladolid-journee-07_FM-240618479217.html)
+- **FC Séville - Valladolid en direct - La Liga : Football Scores & Résultats - 
+24/09/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-fc-seville-valladolid_mtc1524080/live.shtml)
+
+
+### valence – osasuna (N/A, Tue, 24 Sep 2024 09:10:00 -0700)
+
+- **DIRECT. Valence CF-Osasuna (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/valence-cf-osasuna-live/657345)
+- **Pronostic Valence - CA Osasuna, Liga**: [Link](https://www.sportytrader.com/pronostics/valence-ca-osasuna-216625/)
+- **Valence – Osasuna : Chaîne, streaming, où voir le match ? | Football**: [Link](https://www.hommedumatch.fr/p-2792857)
+
+
 ### sophia chikirou (N/A, Tue, 24 Sep 2024 08:30:00 -0700)
 
 - **La députée Sophia Chikirou mise en examen dans l’affaire des comptes de 
