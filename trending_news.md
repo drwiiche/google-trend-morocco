@@ -1,3 +1,11 @@
+### wycombe – aston villa (N/A, Tue, 24 Sep 2024 12:20:00 -0700)
+
+- **Gauci debuts at Wycombe Wanderers**: [Link](https://www.avfc.co.uk/news/2024/september/24/Gauci-debuts-at-Wycombe-Wanderers/)
+- **Tuesday’s Football Tips: Big boys should avoid shock exits in EFL Cup**: [Link](https://mrfixitstips.co.uk/tuesdays-football-tips-big-boys-should-avoid-shock-exits-in-efl-cup/)
+- **Dan Udoh suffers head injury and is a doubt for Wycombe's clash against 
+Aston Villa**: [Link](https://www.bucksfreepress.co.uk/sport/24601872.wycombes-dan-udoh-suffers-head-injury-ahead-villa-clash/)
+
+
 ### ريال مدريد (N/A, Tue, 24 Sep 2024 12:10:00 -0700)
 
 - **إصابة مفاجئة تبعثر أوراق أنشيلوتي**: [Link](https://www.kooora.com/?n=1356858)
