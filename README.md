@@ -1,3 +1,10 @@
+### البكيرية ضد الهلال (N/A, Tue, 24 Sep 2024 08:10:00 -0700)
+
+- **هل يخطف الدوسري عرش أسطورة الهلال؟**: [Link](https://www.kooora.com/?n=1356875)
+- **حكام مباراة الهلال والبكيرية في كأس الملك**: [Link](https://hihi2.com/2024/09/24/p2860825.html)
+- **صدمة مدوية يتلقاها سافيتش قبل ساعات من لقاء الهلال والبكيرية فماذا حدث؟!**: [Link](https://alsaudia-web.com/news2374339.html)
+
+
 ### al bukayriyah fc – al-hilal (N/A, Tue, 24 Sep 2024 07:50:00 -0700)
 
 - **Al Bukiryah coach Denis Lavagne relishing Al Hilal King’s Cup challenge**: [Link](https://english.alarabiya.net/sports/2024/09/24/al-bukiryah-coach-denis-lavagne-relishing-al-hilal-king-s-cup-challenge)
