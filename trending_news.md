@@ -1,3 +1,10 @@
+### al jazeera (N/A, Tue, 24 Sep 2024 00:00:00 -0700)
+
+- **Watch: Israeli forces order 45-day closure of Al Jazeera West Bank office**: [Link](https://www.bbc.com/news/videos/c77x88e60jno)
+- **Israeli forces attack Shireen Abu Akleh’s image, again**: [Link](https://www.aljazeera.com/program/newsfeed/2024/9/23/israeli-forces-attack-shireen-abu-aklehs-image-again)
+- **Israeli soldiers raid and order closure of Al Jazeera’s Ramallah offices**: [Link](https://www.cnn.com/2024/09/22/middleeast/al-jazeera-ramallah-israel-raid-intl/index.html)
+
+
 ### اخبارنا (N/A, Mon, 23 Sep 2024 23:10:00 -0700)
 
 
