@@ -1,3 +1,25 @@
+### mbappe (N/A, Tue, 24 Sep 2024 12:50:00 -0700)
+
+- **Real Madrid-Alavés: the second game at the Bernabéu in three days**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/fixtures/real-madrid-alaves-a-dar-continuidad-a-la-racha-de-triunfos-en-el-bernabeu-23-09-2024)
+- **Ancelotti confirms selection decisions ahead of Alaves game**: [Link](http://www.china.org.cn/sports/2024-09/24/content_117445368.htm)
+- **CONFIRMED lineups: Real Madrid vs Alaves, 2024 La Liga**: [Link](https://www.managingmadrid.com/2024/9/24/24252940/real-madrid-vs-alaves-2024-la-liga-live-online-stream)
+
+
+### league cup (N/A, Tue, 24 Sep 2024 12:20:00 -0700)
+
+- **Mikel Arteta on Odegaard's return date, Zinchenko's injury, Man City 
+fall-out and Arsenal team news vs Bolton**: [Link](https://charleswatts.football/news/arsenal-injury-news-martin-odegaard-mikel-arteta/)
+- **Every word of Mikel’s pre-Bolton press conference**: [Link](https://www.arsenal.com/news/every-word-mikels-pre-bolton-press-conference)
+- **Can Leandro Trossard play for Arsenal vs Bolton in the EFL Cup?**: [Link](https://paininthearsenal.com/posts/can-leandro-trossard-play-arsenal-vs-bolton-efl-cup)
+
+
+### chelsea vs barrow (N/A, Tue, 24 Sep 2024 12:00:00 -0700)
+
+- **Chelsea vs. Barrow (Sep 24, 2024) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/720277)
+- **🚨 11 changes! Chelsea name lineup for EFL Cup clash with Barrow**: [Link](https://sports.yahoo.com/11-changes-chelsea-name-lineup-175100215.html)
+- **How to watch Wycombe vs Aston Villa on US TV and live streaming**: [Link](https://worldsoccertalk.com/watch-on-us-tv/wycombe-vs-aston-villa-on-us-tv-and-live-streaming/)
+
+
 ### real vs (N/A, Tue, 24 Sep 2024 12:30:00 -0700)
 
 - **Real Madrid-Alavés: the second game at the Bernabéu in three days**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/fixtures/real-madrid-alaves-a-dar-continuidad-a-la-racha-de-triunfos-en-el-bernabeu-23-09-2024)
