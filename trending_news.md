@@ -1,3 +1,10 @@
+### ترتيب الدوري الاسباني (N/A, Tue, 24 Sep 2024 14:50:00 -0700)
+
+- **بابلو توري يضع برشلونة في قمة أندية أوروبا**: [Link](https://www.kooora.com/?n=1356559)
+- **الدوري الإسباني.. برشلونة يحقق فوزا كاسحا أمام فياريال**: [Link](https://ar.hibapress.com/details-554197.html)
+- **قطار برشلونة "يدهس" فياريال بخماسية في "الليغا"**: [Link](https://m.elbotola.com/article/2024-09-23-10-05-196.html)
+
+
 ### vallejo (N/A, Tue, 24 Sep 2024 14:40:00 -0700)
 
 - **Suspect arrested in connection to fatal July shooting: Vallejo PD**: [Link](https://www.kron4.com/news/bay-area/suspect-arrested-in-july-shooting-death-vallejo-pd/)
