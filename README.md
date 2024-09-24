@@ -1,3 +1,12 @@
+### marcellus williams (N/A, Tue, 24 Sep 2024 16:00:00 -0700)
+
+- **Attorney Statement: Missouri Governor Denies Clemency to Marcellus Williams**: [Link](https://innocenceproject.org/attorney-statement-despite-widespread-concern-about-innocence-racial-bias-and-other-errors-missouri-governor-denies-clemency-to-marcellus-williams-before-sept-24-execution/)
+- **Missouri Supreme Court and governor refuse to halt the execution of man 
+convicted of 1998 killing**: [Link](https://apnews.com/article/missouri-execution-marcellus-williams-supreme-court-de47c99e00bb620db9db702f5f7e2ee8)
+- **Marcellus Williams will be executed tonight after Supreme Court bid failed. 
+Even the victim’s family doesn’t want him to die**: [Link](https://www.cnn.com/2024/09/24/us/marcellus-williams-scheduled-execution-date/index.html)
+
+
 ### ترتيب الدوري الاسباني (N/A, Tue, 24 Sep 2024 14:50:00 -0700)
 
 - **بابلو توري يضع برشلونة في قمة أندية أوروبا**: [Link](https://www.kooora.com/?n=1356559)
