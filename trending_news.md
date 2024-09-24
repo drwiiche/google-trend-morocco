@@ -1,3 +1,12 @@
+### hassan ii (N/A, Tue, 24 Sep 2024 05:20:00 -0700)
+
+- **Fausse héritière de Hassan II : la justice belge suspend la procédure de 
+filiation jusqu'au 14 octobre**: [Link](https://ledesk.ma/enoff/fausse-heritiere-de-hassan-ii-la-justice-belge-suspend-la-procedure-de-filiation-jusquau-14-octobre/)
+- **Une Belgo-Israélienne prétend être la fille du roi Hassan II: "On vient 
+demander du pognon", répond l'avocat de l'État marocain**: [Link](https://www.rtl.be/actu/monde/international/une-belgo-israelienne-pretend-etre-la-fille-du-roi-hassan-ii-vient-demander-du/2024-09-23/article/713942)
+- **Fille naturelle de Hassan II, Jane Benzaquen en appelle à la justice**: [Link](https://lapatrienews.dz/fille-naturelle-de-hassan-ii-jane-benzaquen-en-appelle-a-la-justice/)
+
+
 ### marc andre ter stegen (N/A, Tue, 24 Sep 2024 03:50:00 -0700)
 
 - **Marc ter Stegen injury news**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4127804/marc-ter-stegen-injury-news)
