@@ -1,3 +1,13 @@
+### sophia chikirou (N/A, Tue, 24 Sep 2024 08:30:00 -0700)
+
+- **La députée Sophia Chikirou mise en examen dans l’affaire des comptes de 
+campagne de LFI de 2017**: [Link](https://www.lemonde.fr/societe/article/2024/09/24/sophia-chikirou-entendue-par-les-juges-dans-l-affaire-des-comptes-de-campagne-lfi-de-2017_6330994_3224.html)
+- **Comptes de campagne de LFI en 2017 : Sophia Chikirou mise en examen pour 
+"escroquerie aggravée"**: [Link](https://www.francetvinfo.fr/politique/la-france-insoumise/comptes-de-campagne-de-lfi-en-2017-sophia-chikirou-mise-en-examen-pour-escroquerie-aggravee_6799207.html)
+- **Comptes de campagne 2017 : la députée insoumise Sophia Chikirou mise en 
+examen pour «escroquerie aggravée**: [Link](https://www.liberation.fr/societe/police-justice/la-deputee-insoumise-sophia-chikirou-mise-en-examen-pour-escroquerie-aggravee-20240924_F4FJSBZG4BD2BLDM4Q3Y5P5YE4/)
+
+
 ### haaland (N/A, Tue, 24 Sep 2024 08:30:00 -0700)
 
 - **Erling Haaland throwing ball at Gabriel a coward's move - Ian Wright**: [Link](https://www.bbc.com/sport/football/articles/cd982pyyx3go)
