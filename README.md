@@ -1,3 +1,10 @@
+### تشيلسي ضد بارو (N/A, Tue, 24 Sep 2024 12:00:00 -0700)
+
+- **ماريسكا يمنح تشيلويل دقائقه الأولى**: [Link](https://www.kooora.com/?n=1356720)
+- **بن تشيلويل قد يحصل على دقائقه الأولى هذا الموسم**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D9%86-%D8%AA%D8%B4%D9%8A%D9%84%D9%88%D9%8A%D9%84-%D9%82%D8%AF-%D9%8A%D8%AD%D8%B5%D9%84-%D8%B9%D9%84%D9%89-%D8%AF%D9%82%D8%A7%D8%A6%D9%82%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-2024-09-24)
+- **تعليق مدرب تشيلسي قبل مواجهة بارو في كأس الرابطة**: [Link](https://hihi2.com/2024/09/23/p2859949.html)
+
+
 ### walsall – leicester (N/A, Tue, 24 Sep 2024 11:40:00 -0700)
 
 - **Preview: Walsall vs. Leicester City - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/walsall/league-cup/preview/preview-walsall-vs-leicester-prediction-team-news-lineups_553581.html)
