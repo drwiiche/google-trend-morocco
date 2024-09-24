@@ -1,3 +1,20 @@
+### alaves (N/A, Tue, 24 Sep 2024 13:20:00 -0700)
+
+- **Deportivo Alavés continue their great start to the season and travel to the 
+Bernabéu with confidence**: [Link](https://www.laliga.com/en-US/news/deportivo-alaves-continue-their-great-start-to-the-season-and-travel-to-the-bernabeu-with-confidence)
+- **Real Madrid-Alavés: the second game at the Bernabéu in three days**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/fixtures/real-madrid-alaves-a-dar-continuidad-a-la-racha-de-triunfos-en-el-bernabeu-23-09-2024)
+- **Mbappé's Stunning Goal From a Bellingham Pass: Are They The Best Duo in The 
+World?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/mbapp%C3%A9-s-stunning-goal-from-a-bellingham-pass-are-they-the-best-duo-in-the-world-2024-09-24)
+
+
+### atalanta – côme (N/A, Tue, 24 Sep 2024 13:10:00 -0700)
+
+- **Atalanta-Como: gol di Nico Paz o autorete di Kolasinac? La decisione|Serie A**: [Link](https://www.calciomercato.com/news/atalanta-como-gol-di-nico-paz-o-autorete-di-kolasinac-la-decisio-80718)
+- **Gol Nico Paz o autogol Kolasinac? La decisione ufficiale della Lega Serie A**: [Link](https://www.fantacalcio.it/news/calcio-italia/24_09_2024/gol-nico-paz-o-autogol-kolasinac-la-decisione-ufficiale-della-lega-serie-a-466620)
+- **📢 FLASH | Atalanta-Como, gol Nico Paz o autogol Kolasinac? La decisione 
+della Lega**: [Link](https://www.fantamaster.it/gol-nico-paz-autogol-kolasinac-atalanta-como-decisione-lega-seriea-fantacalcio/)
+
+
 ### mbappe (N/A, Tue, 24 Sep 2024 12:50:00 -0700)
 
 - **Real Madrid-Alavés: the second game at the Bernabéu in three days**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/fixtures/real-madrid-alaves-a-dar-continuidad-a-la-racha-de-triunfos-en-el-bernabeu-23-09-2024)
