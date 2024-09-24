@@ -1,3 +1,10 @@
+### szczesny (N/A, Tue, 24 Sep 2024 06:20:00 -0700)
+
+- **Germany coach Nagelsmann shocked by Ter Stegen injury**: [Link](https://www.reuters.com/sports/soccer/germany-coach-nagelsmann-shocked-by-ter-stegen-injury-2024-09-24/)
+- **Marc ter Stegen injury news**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4127804/marc-ter-stegen-injury-news)
+- **Barcelona goalkeeper Marc-Andre ter Stegen has successful knee surgery**: [Link](https://www.bbc.com/sport/football/articles/c8j70k48z9no)
+
+
 ### hassan ii (N/A, Tue, 24 Sep 2024 05:20:00 -0700)
 
 - **Fausse héritière de Hassan II : la justice belge suspend la procédure de 
