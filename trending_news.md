@@ -1,3 +1,10 @@
+### almayadeen (N/A, Mon, 23 Sep 2024 22:20:00 -0700)
+
+- **من علي كركي الذي استهدفته إسرائيل بغارة في الضاحية الجنوبية؟**: [Link](https://www.aljazeera.net/encyclopedia/2024/9/23/%D9%85%D9%86-%D8%B9%D9%84%D9%8A-%D9%83%D8%B1%D9%83%D9%8A-%D8%A7%D9%84%D8%B0%D9%8A-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D9%81%D8%AA%D9%87-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **جيش إسرائيل: "نستهدف بيروت حاليا"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%86%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%A8%D9%8A%D8%B1%D9%88%D8%AA-%D8%AD%D8%A7%D9%84%D9%8A%D8%A7-1435801.html)
+- **حزب الله ينفي مقتل "الرجل الثالث" في غارة إسرائيلية**: [Link](https://www.skynewsarabia.com/middle-east/1743712-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D9%86%D9%81%D9%8A-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D8%B1%D8%AC%D9%84-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84%D9%8A%D8%A9)
+
+
 ### بلعيد بويميد (N/A, Mon, 23 Sep 2024 18:10:00 -0700)
 
 - **قيدوم الصحفيين المغاربة بلعيد بويميد في ذمة الله**: [Link](https://ar.hibapress.com/details-554675.html)
