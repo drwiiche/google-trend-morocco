@@ -1,3 +1,10 @@
+### marc andre ter stegen (N/A, Tue, 24 Sep 2024 03:50:00 -0700)
+
+- **Marc ter Stegen injury news**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4127804/marc-ter-stegen-injury-news)
+- **Barcelona goalkeeper Marc-Andre ter Stegen has successful knee surgery**: [Link](https://www.bbc.com/sport/football/articles/c8j70k48z9no)
+- **Report: La Liga Giants Eyeing Shock Move to Sign ‘Crucial’ Liverpool Star**: [Link](https://onefootball.com/id/berita/report-la-liga-giants-eyeing-shock-move-to-sign-crucial-liverpool-star-40077578)
+
+
 ### الجزيرة نت (N/A, Mon, 23 Sep 2024 22:50:00 -0700)
 
 - **تلغراف: لماذا لم يطلق حزب الله صواريخه الأكثر تقدما على إسرائيل حتى الآن؟**: [Link](https://www.aljazeera.net/politics/2024/9/24/%D8%AA%D9%84%D8%BA%D8%B1%D8%A7%D9%81-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%84%D9%85-%D9%8A%D8%B7%D9%84%D9%82-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE%D9%87)
