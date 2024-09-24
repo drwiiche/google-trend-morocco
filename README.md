@@ -1,3 +1,21 @@
+### al bukayriyah fc – al-hilal (N/A, Tue, 24 Sep 2024 07:50:00 -0700)
+
+- **Al Bukiryah coach Denis Lavagne relishing Al Hilal King’s Cup challenge**: [Link](https://english.alarabiya.net/sports/2024/09/24/al-bukiryah-coach-denis-lavagne-relishing-al-hilal-king-s-cup-challenge)
+- **The president of Al-Bukayriyah Club threatens Al-Hilal**: [Link](https://www.ysscores.com/en/news/4483106/The-president-of-Al-Bukayriyah-Club-threatens-Al-Hilal)
+- **Will Neymar Be Making His Return Tonight, How To Watch Al-Hilal vs Al 
+Bukayriyah Live?**: [Link](https://www.republicworld.com/sports/football/will-neymar-be-making-his-return-tonight-how-to-watch-al-hilal-vs-al-bukayriyah-live)
+
+
+### poupette kenza (N/A, Mon, 23 Sep 2024 15:00:00 -0700)
+
+- **Le salon de bronzage de l'influenceuse Poupette Kenza et de son mari fermé 
+pour travail dissimulé**: [Link](https://france3-regions.francetvinfo.fr/normandie/seine-maritime/rouen/le-salon-de-bronzage-de-l-influenceuse-poupette-kenza-et-de-son-mari-ferme-pour-travail-dissimule-3035492.html)
+- **À Rouen, le salon de bronzage créé par Poupette Kenza et son mari, de 
+nouveau fermé par la préfecture**: [Link](https://www.paris-normandie.fr/id561451/article/2024-09-20/rouen-le-salon-de-bronzage-cree-par-poupette-kenza-et-son-mari-de-nouveau-ferme)
+- **A Rouen, le salon de bronzage de Poupette Kenza fermé un mois par la 
+préfecture**: [Link](https://actu.fr/normandie/rouen_76540/a-rouen-le-salon-de-bronzage-de-poupette-kenza-ferme-un-mois-par-la-prefecture_61634337.html)
+
+
 ### tiktok (N/A, Tue, 24 Sep 2024 07:10:00 -0700)
 
 - **TikTok to Shut Down Short-Lived Music-Streaming Service**: [Link](https://www.wsj.com/tech/tiktok-to-shut-down-music-streaming-service-753c71fd)
