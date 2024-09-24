@@ -1,3 +1,20 @@
+### la liga (N/A, Tue, 24 Sep 2024 14:00:00 -0700)
+
+- **Real Madrid's starting eleven against Alavés**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/onces-iniciales-de-real-madrid-y-espanyol)
+- **Mbappé's Stunning Goal From a Bellingham Pass: Are They The Best Duo in The 
+World?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/mbapp%C3%A9-s-stunning-goal-from-a-bellingham-pass-are-they-the-best-duo-in-the-world-2024-09-24)
+- **Real Madrid vs. Alaves – La Liga Preview, Predictions, Team News**: [Link](https://www.ksnt.com/sports/sports-illustrated/d165e0bc/real-madrid-vs-alaves-la-liga-preview-predictions-team-news/)
+
+
+### rma vs (N/A, Tue, 24 Sep 2024 14:00:00 -0700)
+
+- **Real Madrid briefing: Is Tchouameni’s future at the back? Modric excels 
+(again), Rodrygo makes point - The Athletic**: [Link](https://www.nytimes.com/athletic/5784323/2024/09/22/real-madrid-espanyol-tchouameni-modric-rodrygo/)
+- **Real Madrid 4-1 Espanyol (Sep 21, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704717)
+- **Ancelotti: "Endrick has a lot of quality, but in front of him are Vinicius, 
+Rodrygo, and Mbappé"**: [Link](https://www.managingmadrid.com/2024/9/22/24250914/ancelotti-endrick-has-a-lot-of-quality-but-in-front-of-him-are-vinicius-rodrygo-and-mbappe)
+
+
 ### endrick (N/A, Tue, 24 Sep 2024 13:40:00 -0700)
 
 - **Endrick showed 'courage' on 1st Madrid UCL goal**: [Link](https://www.espn.com/soccer/story/_/id/41305264/madrid-endrick-courage-first-ucl-goal)
