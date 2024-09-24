@@ -1,3 +1,10 @@
+### تشيزني (N/A, Tue, 24 Sep 2024 09:30:00 -0700)
+
+- **مفاجأة.. برشلونة يدرس التوقيع مع حارس معتزل**: [Link](https://www.kooora.com/?n=1356915)
+- **سبب رغبة برشلونة في التعاقد مع تشيزني**: [Link](https://hihi2.com/2024/09/24/p2861453.html)
+- **حراس عرضوا أنفسهم على برشلونة لتعويض تير شتيغن**: [Link](https://www.aljazeera.net/sport/2024/9/24/stegen-barcelona-bravo-navas)
+
+
 ### séville – valladolid (N/A, Tue, 24 Sep 2024 09:20:00 -0700)
 
 - **DIRECT. Séville FC-Valladolid (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/seville-fc-valladolid-live/657344)
