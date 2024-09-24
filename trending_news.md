@@ -1,3 +1,10 @@
+### اغتيال يحيى السنوار (N/A, Mon, 23 Sep 2024 17:00:00 -0700)
+
+- **تقارير: إسرائيل تحقق في احتمال مقتل السنوار**: [Link](https://www.alhurra.com/palestine/2024/09/23/%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%AD%D9%82%D9%82-%D9%81%D9%8A-%D8%A7%D8%AD%D8%AA%D9%85%D8%A7%D9%84-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1)
+- **بعد انقطاع الاتصال معه: إسرائيل تفحص إمكانية وفاة السنوار**: [Link](https://www.i24news.tv/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/artc-d256475f)
+- **الاحتلال يشتبه في "مقتل" السنوار.. فحص جثثا جلبها من غزة**: [Link](https://arabi21.com/story/1628053/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%8A%D8%B4%D8%AA%D8%A8%D9%87-%D9%81%D9%8A-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D9%81%D8%AD%D8%B5-%D8%AC%D8%AB%D8%AB%D8%A7-%D8%AC%D9%84%D8%A8%D9%87%D8%A7-%D9%85%D9%86-%D8%BA%D8%B2%D8%A9)
+
+
 ### fst fes (N/A, Mon, 23 Sep 2024 15:00:00 -0700)
 
 - **Flavor Flav reveals his dream for 2028 Olympics in Los Angeles**: [Link](https://abc7news.com/flavor-flav-reveals-dream-2028-olympics-los-angeles/15345785/)
