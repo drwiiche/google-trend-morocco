@@ -1,3 +1,20 @@
+### alerte météo maroc (N/A, Tue, 24 Sep 2024 17:30:00 -0700)
+
+- **Le temps qu'il fera ce mardi 24 septembre 2024**: [Link](https://fr.hespress.com/387247-le-temps-quil-fera-ce-mardi-24-septembre-2024.html)
+- **Averses orageuses, grêle et rafales de vent ce mardi dans plusieurs villes 
+du Maroc**: [Link](https://lematin.ma/regions/averses-orageuses-et-grele-ce-mardi-dans-plusieurs-villes-du-maroc/243982)
+- **DGM: intempéries ce mardi dans certaines provinces du Maroc**: [Link](https://ledesk.ma/encontinu/dgm-intemperies-ce-mardi-dans-certaines-provinces-du-maroc/)
+
+
+### تبليغ (N/A, Tue, 24 Sep 2024 15:10:00 -0700)
+
+- **Air Lease Corporation Announces Delivery of First of Six New Airbus 
+A220-300 Aircraft to TAAG Angola Airlines**: [Link](https://finance.yahoo.com/news/air-lease-corporation-announces-delivery-203100635.html)
+- **TAAG Angola Airlines Takes Delivery of Its First Airbus A220-300**: [Link](https://airlinegeeks.com/2024/09/24/taag-angola-airlines-takes-delivery-of-its-first-airbus-a220-300/)
+- **TAAG Angola Airlines Takes Delivery Of 1st Airbus A220 Aircraft In New 
+Livery**: [Link](https://simpleflying.com/taag-angola-airlines-1st-airbus-a220/)
+
+
 ### marcellus williams (N/A, Tue, 24 Sep 2024 16:00:00 -0700)
 
 - **Attorney Statement: Missouri Governor Denies Clemency to Marcellus Williams**: [Link](https://innocenceproject.org/attorney-statement-despite-widespread-concern-about-innocence-racial-bias-and-other-errors-missouri-governor-denies-clemency-to-marcellus-williams-before-sept-24-execution/)
