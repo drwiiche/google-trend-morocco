@@ -1,3 +1,12 @@
+### europa league (N/A, Wed, 25 Sep 2024 10:30:00 -0700)
+
+- **Man Utd add seven players to B list for Europa League**: [Link](https://www.manutd.com/en/news/detail/man-utd-add-seven-players-to-b-list-for-europa-league-2024)
+- **Erik ten Hag: How Manchester United boss was shaped by plane crash, 
+fireworks disaster & car tragedy at FC Twente**: [Link](https://www.bbc.com/sport/football/articles/c3rlnwg4q1lo)
+- **Police step in as football fans 'hurl fireworks' in chaotic scenes in 
+Manchester city centre**: [Link](https://uk.news.yahoo.com/police-step-football-fans-hurl-102045539.html)
+
+
 ### maroc vs iran (N/A, Wed, 25 Sep 2024 05:50:00 -0700)
 
 - **Mondial de futsal : l’Iran, adversaire du Maroc en huitièmes**: [Link](https://mobile.telquel.ma/instant-t/2024/09/23/mondial-de-futsal-liran-adversaire-du-maroc-en-huitiemes_1894764/)
