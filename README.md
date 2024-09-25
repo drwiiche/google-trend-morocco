@@ -1,3 +1,10 @@
+### real madrid vs (N/A, Tue, 24 Sep 2024 14:00:00 -0700)
+
+- **El Clásico del Bernabéu se jugará el 26 de octubre a las 21.00 horas**: [Link](https://www.marca.com/futbol/primera-division/2024/09/24/66f2e15c22601d94708b4598.html)
+- **Ya hay horario para el Clásico del Bernabéu con un gran cambio**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240924/1002321416/hay-horario-clasico-bernabeu-gran-cambio.html)
+- **¡Primera polémica con El Clásico! El Barça tendrá menos descanso**: [Link](https://www.sport.es/es/noticias/barca/primera-polemica-clasico-barca-tendra-108524433)
+
+
 ### الريال (N/A, Tue, 24 Sep 2024 14:00:00 -0700)
 
 - **بالصور.. ريال مدريد يخمد انتفاضة ألافيس بشق الأنفس**: [Link](https://www.kooora.com/?n=1357027)
