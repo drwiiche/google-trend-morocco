@@ -1,3 +1,27 @@
+### botola (N/A, Wed, 25 Sep 2024 12:30:00 -0700)
+
+- **Botola Pro D1 : l’Olympic Safi s’incline à domicile face à la Renaissance 
+Berkane**: [Link](https://www.menara.ma/fr/article/botola-pro-d1-lolympic-safi-sincline-a-domicile-face-a-la-renaissance-berkane)
+- **Botola : AS FAR-CODM, OCS-RSB et IRT-RCA au programme de la mise à jour**: [Link](https://lematin.ma/sports/botola-as-far-codm-ocs-rsb-et-irt-rca-au-programme-de-la-mise-a-jour/244066)
+- **Botola Pro D1 Inwi: L’IRT punit le Raja**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-lirt-punit-le-raja_PXP3E25BX5H7BHHHNTNOKB4MAA/)
+
+
+### fc barcelone (N/A, Wed, 25 Sep 2024 12:30:00 -0700)
+
+- **Football - Liga - 7e journée - FC Barcelone - Getafe - suivez la rencontre 
+en direct commenté !**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-fc-barcelone-getafe-cf_mtc1524078/live-commentary.shtml)
+- **FC Barcelone-Getafe : les compositions officielles**: [Link](https://www.footmercato.net/a7922913938008099264-fc-barcelone-getafe-les-compositions-officielles)
+- **Barcelone - Getafe : sur quelle chaîne et à quelle heure voir le match de 
+Liga en direct ?**: [Link](https://www.ouest-france.fr/sport/football/espagne/fc-barcelone/barcelone-getafe-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-liga-en-direct-5e766474-7a8c-11ef-a25e-ad5d3544d350)
+
+
+### ligue europa (N/A, Wed, 25 Sep 2024 12:20:00 -0700)
+
+- **Pronostic Bodo/Glimt - Porto, Ligue Europa**: [Link](https://www.sportytrader.com/pronostics/bodo-glimt-porto-216715/)
+- **C3 : Porto surpris par Bodø/Glimt !**: [Link](https://news.maxifoot.fr/c3/porto-surpris-par-bodo/glimt-foot-419947.htm)
+- **FK Bodø/Glimt / FC Porto en streaming direct et replay sur CANAL+**: [Link](https://www.canalplus.com/sport/fk-bodo-glimt-fc-porto/h/26448814_50001)
+
+
 ### ليفربول ضد وست هام (N/A, Wed, 25 Sep 2024 11:50:00 -0700)
 
 - **صلاح بديلا في تشكيلة ليفربول أمام وست هام**: [Link](https://www.kooora.com/?n=1357212)
