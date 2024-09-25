@@ -1,3 +1,10 @@
+### ترتيب الدوري الاسباني (N/A, Wed, 25 Sep 2024 14:10:00 -0700)
+
+- **تشكيل جولة الليجا: برشلونة يسيطر.. ولاعب واحد من الريال**: [Link](https://www.kooora.com/?n=1356929)
+- **التشكيلة المثالية للجولة السادسة من الليغا**: [Link](https://hihi2.com/2024/09/24/p2861032.html)
+- **الدوري الإسباني..مواعيد مباريات الدورة السابعة**: [Link](https://www.akhbarona.com/sport/worldfoot/392614.html)
+
+
 ### ea sports fc 25 (N/A, Wed, 25 Sep 2024 14:00:00 -0700)
 
 - **EA FC 25 RTTK: release date, leaks, upgrade path and Ultimate Team promo details**: [Link](https://www.mirror.co.uk/gaming/ea-fc-25-rttk-expected-33734655)
