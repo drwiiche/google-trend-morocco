@@ -1,3 +1,11 @@
+### al jazeera (N/A, Tue, 24 Sep 2024 23:30:00 -0700)
+
+- **Maldivian president condemns Israeli attacks on Al Jazeera**: [Link](https://www.aljazeera.com/program/newsfeed/2024/9/24/maldivian-president-condemns-israeli-attacks-on-al)
+- **Israeli soldiers raid and order closure of Al Jazeera’s Ramallah offices**: [Link](https://www.cnn.com/2024/09/22/middleeast/al-jazeera-ramallah-israel-raid-intl/index.html)
+- **The Shutdown of Al Jazeera Is a Dire Warning for All Journalists in Israel: 
+You're Next**: [Link](https://www.haaretz.com/opinion/2024-09-23/ty-article-opinion/.premium/the-forced-closure-of-al-jazeera-should-be-a-dire-warning-to-all-journalists-in-israel/00000192-1acc-ddf9-a9fa-7fcc97b50000)
+
+
 ### alerte météo maroc (N/A, Tue, 24 Sep 2024 17:30:00 -0700)
 
 - **Le temps qu'il fera ce mardi 24 septembre 2024**: [Link](https://fr.hespress.com/387247-le-temps-quil-fera-ce-mardi-24-septembre-2024.html)
