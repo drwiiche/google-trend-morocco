@@ -1,3 +1,12 @@
+### barca (N/A, Wed, 25 Sep 2024 12:40:00 -0700)
+
+- **Retired Szczęsny open to Barça amid GK crisis**: [Link](https://www.espn.com/soccer/story/_/id/41436259/wojciech-szczesny-open-barcelona-links-amid-gk-crisis)
+- **Wojciech Szczesny to Barcelona? Why the retired former Juventus keeper 
+might be tempted by a new challenge**: [Link](https://www.cbssports.com/soccer/news/wojciech-szczesny-to-barcelona-why-the-retired-former-juventus-keeper-might-be-tempted-by-a-new-challenge/)
+- **Barcelona make contact with Wojciech Szczesny as Marc-Andre ter Stegen 
+replacement - The Athletic**: [Link](https://www.nytimes.com/athletic/5791138/2024/09/25/barcelona-szczesny-goalkeeper-transfer/)
+
+
 ### botola (N/A, Wed, 25 Sep 2024 12:30:00 -0700)
 
 - **Botola Pro D1 : l’Olympic Safi s’incline à domicile face à la Renaissance 
