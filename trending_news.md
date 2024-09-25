@@ -1,3 +1,23 @@
+### نيس ضد ريال سوسيداد (N/A, Wed, 25 Sep 2024 11:40:00 -0700)
+
+
+
+
+### مان يونايتد ضد تفينتي (N/A, Wed, 25 Sep 2024 11:30:00 -0700)
+
+- **تشكيلة مانشستر يونايتد الرسمية لمباراة تفينتي**: [Link](https://hihi2.com/2024/09/25/p2863079.html)
+- **أوجارتي أساسيا مع مانشستر يونايتد ضد تيفنتي**: [Link](https://www.kooora.com/?n=1357204)
+- **فيرنانديز سلاح يونايتد لتحقيق بداية مثالية في الدوري الأوروبي**: [Link](https://www.alaraby.co.uk/sport/%D9%81%D9%8A%D8%B1%D9%86%D8%A7%D9%86%D8%AF%D9%8A%D8%B2-%D8%B3%D9%84%D8%A7%D8%AD-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D9%85%D8%AB%D8%A7%D9%84%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A)
+
+
+### liverpool vs west ham (N/A, Wed, 25 Sep 2024 11:30:00 -0700)
+
+- **Federico Chiesa reacts to Anfield debut: 'I enjoyed every bit of it'**: [Link](https://www.liverpoolfc.com/news/federico-chiesa-reacts-anfield-debut-i-enjoyed-every-bit-it)
+- **Liverpool vs West Ham LIVE! Carabao Cup third-round match commentary, 
+highlights, news, updates**: [Link](https://www.skysports.com/football/live-blog/11095/13221122/liverpool-vs-west-ham-live-carabao-cup-third-round-match-commentary-highlights-news-updates)
+- **📣 Slot issues fresh update on Chiesa's fitness**: [Link](https://onefootball.com/en/news/slot-issues-fresh-update-on-chiesas-fitness-40077490)
+
+
 ### barcelona vs getafe (N/A, Wed, 25 Sep 2024 11:20:00 -0700)
 
 - **Barcelona - Getafe, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/barcelona-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
