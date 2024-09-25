@@ -1,3 +1,20 @@
+### wojciech szczęsny (N/A, Wed, 25 Sep 2024 08:30:00 -0700)
+
+- **Hiszpański dziennikarz: Wojciech Szczęsny zdecydował ws. FC Barcelony!**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1147587/media-wojciech-szczesny-zdecydowal-ws-fc-barcelony)
+- **Zabrzmi to jak banał, ale niech zabrzmi! Życie pisze najciekawsze 
+scenariusze, a życie sportowca pisze...**: [Link](https://www.onet.pl/sport/ppo/zabrzmi-to-jak-banal-ale-niech-zabrzmi-zycie-pisze-najciekawsze-scenariusze-a-zycie/fvhzt60,30bc1058)
+- **Tak Szczęśni urządzili się w Hiszpanii! Luksus to mało powiedziane**: [Link](https://ludzie.fakt.pl/tak-szczesni-urzadzili-sie-w-hiszpanii-luksus-to-malo-powiedziane/h0858wd)
+
+
+### maroc vs iran futsal (N/A, Wed, 25 Sep 2024 06:00:00 -0700)
+
+- **Mondial de futsal : un choc difficile attend les Lions de l’Atlas face à 
+l’Iran**: [Link](https://lematin.ma/sports/mondial-de-futsal-un-choc-difficile-attend-le-maroc-face-a-liran/243874)
+- **Maroc-Iran: Les Lions de l’Atlas sont arrivés Boukhara**: [Link](https://sport.le360.ma/football/futsal/maroc-iran-les-lions-de-latlas-sont-arrives-boukhara_Q6SP27XFMZAQJCIINE6Z75S7OI/)
+- **Mondial de Futsal : L'équipe marocaine est arrivée à Boukhara en marge de 
+son match face à l'Iran**: [Link](https://fr.hespress.com/387221-mondial-de-futsal-lequipe-marocaine-est-arrivee-a-boukhara-en-marge-de-son-match-face-a-liran.html)
+
+
 ### تشيزني (N/A, Wed, 25 Sep 2024 08:20:00 -0700)
 
 - **عاجل : موعد خضوع تشيزني للفحص الطبي مع برشلونة**: [Link](https://hihi2.com/2024/09/25/p2862926.html)
