@@ -1,3 +1,10 @@
+### girona – rayo (N/A, Wed, 25 Sep 2024 09:10:00 -0700)
+
+- **El 'bache' en Girona: "Es un problema grave..."**: [Link](https://www.sport.es/es/noticias/girona/bache-girona-problema-grave-108522100)
+- **La ley de Murphy**: [Link](https://as.com/futbol/primera/la-ley-de-murphy-n/)
+- **Míchel: "Necesitamos estabilidad y seguridad en nuestro juego"**: [Link](https://www.marca.com/futbol/girona/2024/09/24/66f2a58a268e3eb32d8b459e.html)
+
+
 ### wojciech szczęsny (N/A, Wed, 25 Sep 2024 08:30:00 -0700)
 
 - **Hiszpański dziennikarz: Wojciech Szczęsny zdecydował ws. FC Barcelony!**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1147587/media-wojciech-szczesny-zdecydowal-ws-fc-barcelony)
