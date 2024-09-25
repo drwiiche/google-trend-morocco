@@ -1,3 +1,13 @@
+### lat diop (N/A, Wed, 25 Sep 2024 00:00:00 -0700)
+
+- **AFFAIRE LAT DIOP, LES PRÉCISIONS DE 1XBET SUR LES VERSEMENTS ÉVOQUÉS PAR ME 
+ELHADJ DIOUF**: [Link](https://www.seneplus.com/societe/affaire-lat-diop-les-precisions-de-1xbet-sur-les-versements)
+- **Fin de son audition: l'ex SG de la Lonase, Mamadou Guèye rentre chez lui, 
+mais reste à la disposition des enquêteurs**: [Link](https://www.dakaractu.com/Fin-de-son-audition-l-ex-SG-de-la-Lonase-Mamadou-Gueye-rentre-chez-lui-mais-reste-a-la-disposition-des-enqueteurs_a253681.html)
+- **Garde à vue prolongée: Tout ce que vous devez savoir sur le face à face 
+entre Lat Dio et la DIC**: [Link](https://kewoulo.info/garde-a-vue-prolongee-tout-ce-que-vous-devez-savoir-sur-le-face-a-face-entre-lat-dio-et-la-dic/)
+
+
 ### varane (N/A, Wed, 25 Sep 2024 01:30:00 -0700)
 
 - **Raphael Varane: Former Manchester United, Real Madrid and France defender 
