@@ -1,3 +1,19 @@
+### تشيزني (N/A, Wed, 25 Sep 2024 08:20:00 -0700)
+
+- **عاجل : موعد خضوع تشيزني للفحص الطبي مع برشلونة**: [Link](https://hihi2.com/2024/09/25/p2862926.html)
+- **لابورتا يلتزم الصمت تجاه صفقة برشلونة**: [Link](https://www.kooora.com/?n=1357168&o=n8000071)
+- **نادي برشلونة يخسر حارسه "تير شتيغن"**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%AF%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AE%D8%B3%D8%B1-%D8%AD%D8%A7%D8%B1%D8%B3%D9%87-%D8%AA%D9%8A%D8%B1-%D8%B4%D8%AA%D9%8A%D8%BA%D9%86-1435664.html)
+
+
+### szczesny (N/A, Wed, 25 Sep 2024 08:10:00 -0700)
+
+- **Retired Szczęsny open to Barça amid GK crisis**: [Link](https://www.espn.com/soccer/story/_/id/41436259/wojciech-szczesny-open-barcelona-links-amid-gk-crisis)
+- **“It’d be disrespectful if I didn’t consider this” – Veteran goalkeepers 
+opens up on Barcelona offer**: [Link](https://sports.yahoo.com/d-disrespectful-didn-t-consider-150000421.html)
+- **Barcelona make contact with Wojciech Szczesny as Marc-Andre ter Stegen 
+replacement - The Athletic**: [Link](https://www.nytimes.com/athletic/5791138/2024/09/25/barcelona-szczesny-goalkeeper-transfer/)
+
+
 ### هبة بريس (N/A, Tue, 24 Sep 2024 23:10:00 -0700)
 
 
