@@ -1,3 +1,15 @@
+### arsenal – bolton (N/A, Wed, 25 Sep 2024 10:50:00 -0700)
+
+- **Arsenal goalkeeper Jack Porter, 16, starts in Carabao Cup: Who is David Raya’s injury replacement? - The Athletic**: [Link](https://www.nytimes.com/athletic/5793189/2024/09/25/jack-porter-arsenal-who-age/)
+- **See the squad readying themselves for Bolton | Gallery | News**: [Link](https://www.arsenal.com/news/see-squad-readying-themselves-bolton)
+- **Ethan Nwaneri and Lewis-Skelly start, big David Raya decision - Arsenal predicted XI vs Bolton**: [Link](https://www.football.london/arsenal-fc/fixtures-results/gallery/ethan-nwaneri-lewis-skelly-start-29996957)
+
+
+### botola pro (N/A, Wed, 25 Sep 2024 10:50:00 -0700)
+
+
+
+
 ### europa league (N/A, Wed, 25 Sep 2024 10:30:00 -0700)
 
 - **Man Utd add seven players to B list for Europa League**: [Link](https://www.manutd.com/en/news/detail/man-utd-add-seven-players-to-b-list-for-europa-league-2024)
