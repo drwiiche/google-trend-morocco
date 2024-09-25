@@ -1,3 +1,69 @@
+### barcelona vs getafe (N/A, Wed, 25 Sep 2024 11:20:00 -0700)
+
+- **Barcelona - Getafe, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/barcelona-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Flick hace pública una lista con un regreso y otro canterano en la portería**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240925/1002321828/flick-publica-lista-regreso-canterano-porteria.html)
+- **FC Barcelona - Getafe, en directo hoy: alineaciones, horario y dónde ver | 
+LaLiga 2024-25, en vivo**: [Link](https://www.sport.es/es/noticias/barca/fc-barcelona-getafe-directo-hoy-108566985)
+
+
+### آرسنال ضد بولتون (N/A, Wed, 25 Sep 2024 11:20:00 -0700)
+
+- **آرسنال يعلن إصابة رايا.. وسترلينج أساسيا لأول مرة**: [Link](https://www.kooora.com/?n=1357207)
+- **تشكيلة أرسنال الرسمية لمواجهة بولتون في كأس كاراباو**: [Link](https://hihi2.com/2024/09/25/p2863057.html)
+- **ذا أثليتك: بانتظار صاحب الـ 16 عاما.. أزمة في حراسة مرمى أرسنال قبل لقاء 
+بولتون**: [Link](https://www.filgoal.com/articles/490838/%D8%B0%D8%A7-%D8%A3%D8%AB%D9%84%D9%8A%D8%AA%D9%83-%D8%A8%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1-%D8%B5%D8%A7%D8%AD%D8%A8-%D8%A7%D9%84%D9%80-16-%D8%B9%D8%A7%D9%85%D8%A7-%D8%A3%D8%B2%D9%85%D8%A9-%D9%81%D9%8A-%D8%AD%D8%B1%D8%A7%D8%B3%D8%A9-%D9%85%D8%B1%D9%85%D9%89-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%82%D8%A8%D9%84-%D9%84%D9%82%D8%A7%D8%A1-%D8%A8%D9%88%D9%84%D8%AA%D9%88%D9%86)
+
+
+### barcelone – getafe (N/A, Wed, 25 Sep 2024 11:10:00 -0700)
+
+- **Barcelona vs. Getafe - Football Match Preview - September 25, 2024**: [Link](https://www.espn.com/soccer/preview/_/gameId/704720)
+- **FC Barcelona Vs. Getafe Line Up: Five Changes From Flick To Go 7 Out Of 7**: [Link](https://www.forbes.com/sites/tomsanderson/2024/09/25/fc-barcelona-vs-getafe-line-up-five-changes-from-flick-to-go-7-out-of-7/)
+- **FC Barcelona announce squad for La Liga match against Getafe**: [Link](https://www.barcablaugranes.com/2024/9/25/24253062/barcelona-getafe-la-liga-team-news-squad-list)
+
+
+### برشلونة ضد خيتافي (N/A, Wed, 25 Sep 2024 11:10:00 -0700)
+
+- **تشكيلة برشلونة الرسمية للقاء خيتافي في الدوري الاسباني**: [Link](https://hihi2.com/2024/09/25/p2863072.html)
+- **برشلونة يركز على الجانب البدني قبل مواجهة خيتافي**: [Link](https://www.kooora.com/?n=1356972)
+- **غيابات بالجملة فى قائمة برشلونة ضد خيتافى بالدورى الإسبانى**: [Link](https://www.youm7.com/story/2024/9/25/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D8%AC%D9%85%D9%84%D8%A9-%D9%81%D9%89-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%89-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%89-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%89/6719393)
+
+
+### manchester united – twente (N/A, Wed, 25 Sep 2024 11:10:00 -0700)
+
+- **Erik ten Hag names Man Utd team to face FC Twente in Europa League 25 
+September 2024**: [Link](https://www.manutd.com/en/news/detail/erik-ten-hag-names-man-utd-team-to-face-fc-twente-in-europa-league-25-september-2024)
+- **Police step in as football fans 'hurl fireworks' in chaotic scenes in 
+Manchester city centre**: [Link](https://uk.news.yahoo.com/police-step-football-fans-hurl-102045539.html)
+- **UEFA Europa League LIVE - Marcus Rashford, Manuel Ugarte start as 
+Manchester United host FC Twente; Porto trail 10-man Bodo/Glimt, Alkmaar 
+lead**: [Link](https://www.eurosport.com/football/europa-league/2024-2025/liveevent.shtml)
+
+
+### liverpool – west ham (N/A, Wed, 25 Sep 2024 11:10:00 -0700)
+
+- **Federico Chiesa reacts to Anfield debut: 'I enjoyed every bit of it'**: [Link](https://www.liverpoolfc.com/news/federico-chiesa-reacts-anfield-debut-i-enjoyed-every-bit-it)
+- **Liverpool vs West Ham LIVE! Carabao Cup third-round match commentary, 
+highlights, news, updates**: [Link](https://www.skysports.com/football/live-blog/11095/13221122/liverpool-vs-west-ham-live-carabao-cup-third-round-match-commentary-highlights-news-updates)
+- **📣 Slot issues fresh update on Chiesa's fitness**: [Link](https://onefootball.com/en/news/slot-issues-fresh-update-on-chiesas-fitness-40077490)
+
+
+### nice – real sociedad (N/A, Wed, 25 Sep 2024 11:10:00 -0700)
+
+- **Preview: Nice vs. Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/nice/europa-league/preview/preview-nice-vs-real-sociedad-prediction-team-news-lineups_553645.html)
+- **Nice vs Real Sociedad: Predicted Lineups, Score Prediction and 14/1 Bet 
+Builder**: [Link](https://www.whoscored.com/Articles/fLGl34pk60-3b3tsDV5LUQ/Show/Nice-vs-Real-Sociedad-Predicted-Lineups-Score-Prediction-Europa-League-Preview)
+- **Nice vs Real Sociedad: Match Preview and Prediction**: [Link](https://www.footboom1.com/en/news/football/1857107-nice-vs-real-sociedad-match-preview-and-prediction)
+
+
+### galatasaray – paok (N/A, Wed, 25 Sep 2024 11:10:00 -0700)
+
+- **AVRUPA | Galatasaray - PAOK maçı şifresiz mi, hangi kanalda? Galatasaray - 
+PAOK maçı bugün mü, ne zaman, saat kaçta?**: [Link](https://www.ntvspor.net/futbol/avrupa-galatasaray-paok-maci-sifresiz-mi-hangi-kanalda-galatasaray-paok-maci-bugun-mu-ne-zaman-saat-kacta-66f2662cd0826c042f6b7cfd)
+- **Maça saatler kala ortalığı karıştırdılar! PAOK'un yaptığı skandal paylaşıma 
+tepkiler çığ gibi**: [Link](https://www.msn.com/tr-tr/spor/other/ma%C3%A7a-saatler-kala-ortal%C4%B1%C4%9F%C4%B1-kar%C4%B1%C5%9Ft%C4%B1rd%C4%B1lar-paok-un-yapt%C4%B1%C4%9F%C4%B1-skandal-payla%C5%9F%C4%B1ma-tepkiler-%C3%A7%C4%B1%C4%9F-gibi/vi-AA1rc3lG)
+- **PAOK taraftarı stadyuma geldi**: [Link](https://www.samsunsonhaber.com/haber/5507335/paok-taraftari-stadyuma-geldi)
+
+
 ### arsenal – bolton (N/A, Wed, 25 Sep 2024 10:50:00 -0700)
 
 - **Arsenal goalkeeper Jack Porter, 16, starts in Carabao Cup: Who is David Raya’s injury replacement? - The Athletic**: [Link](https://www.nytimes.com/athletic/5793189/2024/09/25/jack-porter-arsenal-who-age/)
