@@ -1,3 +1,12 @@
+### maroc iran futsal (N/A, Wed, 25 Sep 2024 05:20:00 -0700)
+
+- **Mondial de futsal: derniers réglages pour les Lions de l’Atlas avant 
+Maroc-Iran**: [Link](https://sport.le360.ma/football/futsal/mondial-de-futsal-derniers-reglages-pour-les-lions-de-latlas-avant-maroc-iran_RRDQ4HEJCBFS5LVNLYEMZUHSDQ/)
+- **Mondial de futsal : l’Iran, adversaire du Maroc en huitièmes**: [Link](https://mobile.telquel.ma/instant-t/2024/09/23/mondial-de-futsal-liran-adversaire-du-maroc-en-huitiemes_1894764/)
+- **Mondial de Futsal : L'équipe marocaine est arrivée à Boukhara en marge de 
+son match face à l'Iran**: [Link](https://fr.hespress.com/387221-mondial-de-futsal-lequipe-marocaine-est-arrivee-a-boukhara-en-marge-de-son-match-face-a-liran.html)
+
+
 ### girona – rayo (N/A, Wed, 25 Sep 2024 09:10:00 -0700)
 
 - **El 'bache' en Girona: "Es un problema grave..."**: [Link](https://www.sport.es/es/noticias/girona/bache-girona-problema-grave-108522100)
