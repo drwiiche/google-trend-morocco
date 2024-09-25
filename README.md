@@ -1,3 +1,10 @@
+### موعد مباراة المغرب للفوتسال (N/A, Wed, 25 Sep 2024 05:50:00 -0700)
+
+- **"فوتسال المغرب" يصارع الإصابات**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B5%D8%A7%D8%B1%D8%B9-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-1436558.html)
+- **7 معلومات عن منتخب إيران خصم المغرب في ثمن نهائي مونديال الفوتسال**: [Link](https://ar.hibapress.com/details-555157.html)
+- **الدكيك: "سنحاول تغيير استراتيجيتنا أمام إيران وسنقدم كل ما في وسعنا لحسم بطاقة التأهل"**: [Link](https://m.elbotola.com/article/2024-09-25-09-40-832.html)
+
+
 ### maroc vs iran futsal 2024 (N/A, Wed, 25 Sep 2024 05:10:00 -0700)
 
 - **Mondial de futsal : un choc difficile attend les Lions de l’Atlas face à 
