@@ -1,3 +1,12 @@
+### fc barcelone – getafe : composition (N/A, Wed, 25 Sep 2024 12:50:00 -0700)
+
+- **DIRECT. FC Barcelone-Getafe (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/fc-barcelone-getafe-live/657342)
+- **Liga – 7e journée : Grâce à Robert Lewandowski, le Barça s'impose face à 
+Getafe (1-0) et reprend le large en tête**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-7e-journee-grace-a-robert-lewandowski-le-barca-s-impose-face-a-getafe-1-0-et-reprend-le-large-e_sto10351065/story.shtml)
+- **Direct Barcelona - Getafe, Liga, 7ème journée, match du mercredi 25 
+septembre 2024 : compo et résultat**: [Link](https://rmcsport.bfmtv.com/football/liga/live/2024/match-Barcelona-Getafe-journee-07_FM-240618562073.html)
+
+
 ### ترتيب الدوري الاسباني (N/A, Wed, 25 Sep 2024 14:10:00 -0700)
 
 - **تشكيل جولة الليجا: برشلونة يسيطر.. ولاعب واحد من الريال**: [Link](https://www.kooora.com/?n=1356929)
