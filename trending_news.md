@@ -1,3 +1,10 @@
+### nutkao (N/A, Wed, 25 Sep 2024 00:00:00 -0700)
+
+- **المدى تستحوذ على المجموعة الصناعية الإيطالية "NUTKAO"**: [Link](https://snrtnews.com/article/103496)
+- **في مجال الصناعات الغذائية.. “المدى” تستحوذ على المجموعة الإيطالية “NUTKAO”**: [Link](https://kifache.com/%D9%81%D9%8A-%D9%85%D8%AC%D8%A7%D9%84-%D8%A7%D9%84%D8%B5%D9%86%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%BA%D8%B0%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AF%D9%89-%D8%AA%D8%B3%D8%AA%D8%AD/)
+- **الهولدينغ الملكي "المدى" يستحوذ على المجموعة الإيطالية "NUTKAO"**: [Link](https://ar.yabiladi.com/articles/details/154443/%D8%A7%D9%84%D9%87%D9%88%D9%84%D8%AF%D9%8A%D9%86%D8%BA-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D9%89-%D9%8A%D8%B3%D8%AA%D8%AD%D9%88%D8%B0-%D8%B9%D9%84%D9%89.html)
+
+
 ### lat diop (N/A, Wed, 25 Sep 2024 00:00:00 -0700)
 
 - **AFFAIRE LAT DIOP, LES PRÉCISIONS DE 1XBET SUR LES VERSEMENTS ÉVOQUÉS PAR ME 
