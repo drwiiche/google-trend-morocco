@@ -1,3 +1,19 @@
+### lewandowski (N/A, Wed, 25 Sep 2024 13:20:00 -0700)
+
+- **Program tv dla Piłka nożna: Liga hiszpańska - mecz: FC Barcelona - Getafe CF**: [Link](https://pilot.wp.pl/program-tv/program/pilka-nozna-liga-hiszpanska-mecz-fc-barcelona-getafe-cf-ff406c3dc206a5c6d7bb0505b9becc31)
+- **Goool! Robert Lewandowski znów trafia! Ale co tu zrobił bramkarz? [WIDEO]**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/laliga/goool-robert-lewandowski-znow-trafia-ale-co-tu-zrobil-bramkarz-wideo/tx4kxv4)
+- **Czy w Gironie posypią się bramki, a w Barcelonie kartki? Łapiemy kurs 2.65 
+z La Liga!**: [Link](https://zagranie.com/czy-w-gironie-posypia-sie-bramki-a-w-barcelonie-kartki-lapiemy-kurs-2-65-z-la-liga/)
+
+
+### rca vs irt (N/A, Wed, 25 Sep 2024 12:10:00 -0700)
+
+- **Botola Pro D1 : l’Olympic Safi s’incline à domicile face à la Renaissance 
+Berkane**: [Link](https://www.menara.ma/fr/article/botola-pro-d1-lolympic-safi-sincline-a-domicile-face-a-la-renaissance-berkane)
+- **Botola : AS FAR-CODM, OCS-RSB et IRT-RCA au programme de la mise à jour**: [Link](https://lematin.ma/sports/botola-as-far-codm-ocs-rsb-et-irt-rca-au-programme-de-la-mise-a-jour/244066)
+- **Botola Pro D1 Inwi: L’IRT punit le Raja**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-lirt-punit-le-raja_PXP3E25BX5H7BHHHNTNOKB4MAA/)
+
+
 ### barca (N/A, Wed, 25 Sep 2024 12:40:00 -0700)
 
 - **Retired Szczęsny open to Barça amid GK crisis**: [Link](https://www.espn.com/soccer/story/_/id/41436259/wojciech-szczesny-open-barcelona-links-amid-gk-crisis)
