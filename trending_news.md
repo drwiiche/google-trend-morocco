@@ -1,3 +1,24 @@
+### ea sports fc 25 (N/A, Wed, 25 Sep 2024 14:00:00 -0700)
+
+- **EA FC 25 RTTK: release date, leaks, upgrade path and Ultimate Team promo details**: [Link](https://www.mirror.co.uk/gaming/ea-fc-25-rttk-expected-33734655)
+- **FC 25 Web App and Companion App: Release date and launch time**: [Link](https://www.radiotimes.com/technology/gaming/fc-25-web-companion-app/)
+- **EA Sports FC 25 Ultimate Edition: What does this edition include and what benefits do you get if you purchase it?**: [Link](https://www.marca.com/en/technology/gaming/2024/09/25/66f440cde2704ef3698b4568.html)
+
+
+### galatasaray vs paok (N/A, Wed, 25 Sep 2024 14:00:00 -0700)
+
+- **Europa League: Galatasaray to rest Osimhen for PAOK clash**: [Link](https://dailypost.ng/2024/09/25/europa-league-galatasaray-to-rest-osimhen-for-paok-clash/)
+- **Preview: Galatasaray vs. PAOK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/europa-league/preview/preview-galatasaray-vs-paok-prediction-team-news-lineups_553655.html)
+- **Galatasaray vs PAOK in UEFA Europa League: Lineups, key stats, predictions**: [Link](https://www.turkiyetoday.com/sports/galatasaray-vs-paok-in-uefa-europa-league-lineups-key-stats-predictions-57418/)
+
+
+### fcb (N/A, Wed, 25 Sep 2024 13:50:00 -0700)
+
+- **Official: Barcelona loanee sidelined with an ankle injury**: [Link](https://sports.yahoo.com/official-barcelona-loanee-sidelined-ankle-163300832.html)
+- **Manuel Pellegrini gives brutally honest assessment of Vitor Roque – ‘He’s missed a lot of goals’**: [Link](https://www.yardbarker.com/soccer/articles/manuel_pellegrini_gives_brutally_honest_assessment_of_vitor_roque_hes_missed_a_lot_of_goals/s1_15980_40952761)
+- **Real Betis manager Manuel Pellegrini confirms Vitor Roque injury**: [Link](https://www.football-espana.net/2024/09/25/real-betis-manager-manuel-pellegrini-confirms-vitor-roque-injury)
+
+
 ### lewandowski (N/A, Wed, 25 Sep 2024 13:20:00 -0700)
 
 - **Program tv dla Piłka nożna: Liga hiszpańska - mecz: FC Barcelona - Getafe CF**: [Link](https://pilot.wp.pl/program-tv/program/pilka-nozna-liga-hiszpanska-mecz-fc-barcelona-getafe-cf-ff406c3dc206a5c6d7bb0505b9becc31)
