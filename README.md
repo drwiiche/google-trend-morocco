@@ -1,3 +1,11 @@
+### abdel abqar (N/A, Tue, 24 Sep 2024 13:10:00 -0700)
+
+- **Journalist Drowned After Falling Into River While Urinating, Investigator 
+Says**: [Link](https://people.com/journalist-drowned-after-falling-into-river-while-urinating-investigator-says-8717887)
+- **Radio Cymru: Former editor accidentally fell into river - inquest**: [Link](https://www.bbc.co.uk/news/articles/ckgmn9dxe0vo)
+- **Ex BBC editor, 65, tragically died after falling in river while urinating**: [Link](https://www.mirror.co.uk/3am/celebrity-news/ex-bbc-editor-65-tragically-33739546)
+
+
 ### al jazeera (N/A, Tue, 24 Sep 2024 23:30:00 -0700)
 
 - **Maldivian president condemns Israeli attacks on Al Jazeera**: [Link](https://www.aljazeera.com/program/newsfeed/2024/9/24/maldivian-president-condemns-israeli-attacks-on-al)
