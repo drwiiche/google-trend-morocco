@@ -1,3 +1,13 @@
+### varane (N/A, Wed, 25 Sep 2024 01:30:00 -0700)
+
+- **Raphael Varane: Former Manchester United, Real Madrid and France defender 
+retires aged 31**: [Link](https://www.bbc.com/sport/football/articles/ced0yjn3wj0o)
+- **Former Manchester United star set for shock retirement just weeks after Old 
+Trafford exit**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/former-manchester-united-star-set-30002475)
+- **Ex-Manchester United star loved by Zinedine Zidane on verge of retiring 
+aged 31**: [Link](https://talksport.com/football/2083320/man-united-raphael-varane-retirement-age-injury-como-zinedine-zidane/)
+
+
 ### real madrid vs (N/A, Tue, 24 Sep 2024 14:00:00 -0700)
 
 - **El Clásico del Bernabéu se jugará el 26 de octubre a las 21.00 horas**: [Link](https://www.marca.com/futbol/primera-division/2024/09/24/66f2e15c22601d94708b4598.html)
