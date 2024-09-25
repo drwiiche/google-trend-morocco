@@ -1,3 +1,17 @@
+### maroc vs iran futsal 2024 (N/A, Wed, 25 Sep 2024 05:10:00 -0700)
+
+- **Mondial de futsal : un choc difficile attend les Lions de l’Atlas face à 
+l’Iran**: [Link](https://lematin.ma/sports/mondial-de-futsal-un-choc-difficile-attend-le-maroc-face-a-liran/243874)
+- **Maroc-Iran: Les Lions de l’Atlas sont arrivés Boukhara**: [Link](https://sport.le360.ma/football/futsal/maroc-iran-les-lions-de-latlas-sont-arrives-boukhara_Q6SP27XFMZAQJCIINE6Z75S7OI/)
+- **Mondial de Futsal : L'équipe marocaine est arrivée à Boukhara en marge de 
+son match face à l'Iran**: [Link](https://fr.hespress.com/387221-mondial-de-futsal-lequipe-marocaine-est-arrivee-a-boukhara-en-marge-de-son-match-face-a-liran.html)
+
+
+### raphaël varane (N/A, Wed, 25 Sep 2024 05:00:00 -0700)
+
+
+
+
 ### nutkao (N/A, Wed, 25 Sep 2024 00:00:00 -0700)
 
 - **المدى تستحوذ على المجموعة الصناعية الإيطالية "NUTKAO"**: [Link](https://snrtnews.com/article/103496)
