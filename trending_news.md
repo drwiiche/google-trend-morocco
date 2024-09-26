@@ -1,3 +1,11 @@
+### futsal world cup 2024 live (N/A, Thu, 26 Sep 2024 06:20:00 -0700)
+
+- **Futsal World Cup 2024: Ukraine defeats Netherlands and advances to 
+quarterfinals**: [Link](https://uaf.ua/en/article/52362)
+- **Brazil to reach quarterfinals in Futsal World Cup**: [Link](https://www.radiohc.cu/en/noticias/deportes/365915-brazil-to-reach-quarterfinals-in-futsal-world-cup)
+- **FIFA Futsal World Cup 2024™: Brazil and Ukraine advance to quarterfinals**: [Link](https://www.uzdaily.uz/en/fifa-futsal-world-cup-2024tm-brazil-and-ukraine-advance-to-quarterfinals/)
+
+
 ### classement futsal 2024 (N/A, Thu, 26 Sep 2024 06:20:00 -0700)
 
 - **Sit/Start 2024 Week 4: Reviewing All Fantasy Relevant Players In Every 
