@@ -1,3 +1,19 @@
+### binance (N/A, Thu, 26 Sep 2024 05:00:00 -0700)
+
+- **Binance continues to serve Russian users despite 2023 exit**: [Link](https://cointelegraph.com/news/binance-confirms-russia-presence-after-exit)
+- **Binance continues to serve Russian users despite 2023 exit**: [Link](https://www.msn.com/en-us/money/companies/binance-continues-to-serve-russian-users-despite-2023-exit/ar-AA1reGSn?ocid=finance-verthp-feeds)
+- **Binance Launches Pre-Market Trading for Launchpool Tokens**: [Link](https://www.cryptotimes.io/2024/09/25/binance-launches-pre-market-trading-for-launchpool-tokens/)
+
+
+### maroc vs iran (N/A, Thu, 26 Sep 2024 03:40:00 -0700)
+
+- **Futsal. Maroc-Iran : à quelle heure et sur quelles chaînes ?**: [Link](https://medias24.com/2024/09/26/futsal-maroc-iran-a-quelle-heure-et-sur-quelles-chaines/)
+- **Mondial de Futsal : L'équipe marocaine déterminée à franchir le cap de 
+l'Iran**: [Link](https://fr.hespress.com/387584-mondial-de-futsal-lequipe-marocaine-determinee-a-franchir-le-cap-de-liran.html)
+- **Mondial-2024 de futsal : Les Lions de l’Atlas en ordre de bataille avant 
+d’affronter l’Iran**: [Link](https://www.menara.ma/fr/article/mondial-2024-de-futsal-les-lions-de-latlas-en-ordre-de-bataille-avant-daffronter-liran)
+
+
 ### المغرب ضد ايران (N/A, Thu, 26 Sep 2024 04:20:00 -0700)
 
 - **القنوات الناقلة لمباراة المنتخب المغربي اليوم ضد إيران في كأس العالم 
