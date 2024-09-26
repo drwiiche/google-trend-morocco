@@ -1,3 +1,18 @@
+### ajax (N/A, Thu, 26 Sep 2024 13:20:00 -0700)
+
+- **Liveblog Ajax tegen Besiktas in een uitverkocht Arena**: [Link](https://www.at5.nl/artikelen/228746/liveblog-ajax-tegen-besiktas-in-een-uitverkocht-arena)
+- **Na rampseizoen met record aan tegengoals, heeft Farioli het lek achterin 
+behoorlijk gedicht bij Ajax**: [Link](https://www.ad.nl/nederlands-voetbal/na-rampseizoen-met-record-aan-tegengoals-heeft-farioli-het-lek-achterin-behoorlijk-gedicht-bij-ajax~aeed77f3/)
+- **Fitz-Jim volgt het voorbeeld van Edson Álvarez**: [Link](https://www.vi.nl/nieuws/fitz-jim-volgt-het-voorbeeld-van-edson-alvarez)
+
+
+### روما ضد أتلتيك بيلباو (N/A, Thu, 26 Sep 2024 13:20:00 -0700)
+
+- **روما يستهل مشواره الأوروبي بمواجهة صعبة أمام بيلباو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%88%D9%85%D8%A7-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-2024-09-26)
+- **فالفيردي يعود إلى الأولمبيكو بذكريات برشلونة السيئة !**: [Link](https://hihi2.com/2024/09/25/p2862839.html)
+- **سر 15 دقيقة صمت لجماهير روما باليوروبا ليج**: [Link](https://www.kooora.com/?n=1357457&o=n8000071)
+
+
 ### roma (N/A, Thu, 26 Sep 2024 13:00:00 -0700)
 
 - **Il debutto casalingo in Europa: le info per Roma-Athletic Club**: [Link](https://www.asroma.com/it/notizie/71946/il-debutto-casalingo-in-europa-le-info-per-roma-athletic-club)
