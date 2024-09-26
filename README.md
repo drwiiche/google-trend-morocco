@@ -1,3 +1,11 @@
+### fc barcelona (N/A, Wed, 25 Sep 2024 14:00:00 -0700)
+
+- **Szczesny confirma su fichaje por el Barça a SPORT: “Sería irrespetuoso si 
+no considerara esta oportunidad”**: [Link](https://www.sport.es/es/noticias/barca/szczesny-seria-irrespetuoso-barca-considerara-108562963)
+- **Uno a uno del Barcelona vs Getafe: Iñaki Peña tuvo un 'estreno' plácido**: [Link](https://www.marca.com/futbol/barcelona/2024/09/25/66f4432522601d061e8b45c1.html)
+- **Dudek: "Szczesny es superior a Ter Stegen en la portería"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240925/1002321936/szczensy-superior-ter-stegen-porteria.html)
+
+
 ### kick (N/A, Wed, 25 Sep 2024 17:00:00 -0700)
 
 - **Valkyrae calls Kick streamers "very pathetic" for harassing people at 
