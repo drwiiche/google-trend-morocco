@@ -1,3 +1,12 @@
+### barcelone (N/A, Wed, 25 Sep 2024 14:00:00 -0700)
+
+- **Wojciech Szczęsny en passe de devenir le nouveau gardien du Barça !**: [Link](https://www.footmercato.net/a7051139003531739213-wojciech-szczesny-en-passe-de-devenir-le-nouveau-gardien-du-barca)
+- **DIRECT. Mercato: Szczesny va sortir de sa retraite et remplacer ter Stegen 
+au Barça**: [Link](https://rmcsport.bfmtv.com/football/transferts/direct-mercato-suivez-en-live-toutes-les-infos-et-rumeurs-du-23-septembre_LN-202409230228.html)
+- **Wojciech Szczęsny vers le Barça... à une condition fixée par la Juve ? - 
+Espagne - FC Barcelone**: [Link](https://www.sofoot.com/breves/wojciech-szczesny-va-devoir-payer-une-clause-a-la-juve-sil-veut-signer-au-barca-pour-remplacer-marc-andre-ter-stegen)
+
+
 ### diddy (N/A, Wed, 25 Sep 2024 18:20:00 -0700)
 
 - **Sean 'Diddy' Combs: Here Are All The Major Accusations Against Him**: [Link](https://www.forbes.com/sites/antoniopequenoiv/2024/09/24/sean-diddy-combs-and-bodyguard-accused-of-filming-drugged-womans-assault-a-complete-timeline-of-allegations-against-him/)
