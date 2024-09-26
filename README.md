@@ -1,3 +1,10 @@
+### كاس العالم للفوتسال 2024 (N/A, Thu, 26 Sep 2024 07:30:00 -0700)
+
+- **مونديال الفوتصال: المغرب والبرازيل في ربع نهائي مكرر**: [Link](https://www.almountakhab.com/node/16204752)
+- **مونديال "الفوتسال".. مباراة "حارقة" تنتظر المنتخب المغربي في ربع النهائي**: [Link](https://ar.hibapress.com/details-555628.html)
+- **المغرب يضرب موعداً نارياً مع البرازيل في ربع نهائي مونديال الفوتسال**: [Link](https://rue20.com/840484.html)
+
+
 ### classement futsal (N/A, Thu, 26 Sep 2024 07:00:00 -0700)
 
 - **Présentation | Jour 11 | Huitièmes de finale | Coupe du Monde de Futsal 2024**: [Link](https://www.fifa.com/fr/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/presentation-huitiemes-jour-11-ouzbekistan-2024)
