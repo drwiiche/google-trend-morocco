@@ -1,3 +1,11 @@
+### tottenham (N/A, Thu, 26 Sep 2024 12:10:00 -0700)
+
+- **Tottenham's Radu Dragusin Shown Red Card Inside Seven Minutes**: [Link](https://www.wiproud.com/sports/sports-illustrated/4bc8375d/tottenhams-radu-dragusin-shown-red-card-inside-seven-minutes)
+- **Europa League LIVE: Tottenham v Qarabag - live text commentary, score 
+updates and match stats**: [Link](https://www.bbc.com/sport/football/live/cn4y8wqdlpwt)
+- **Team news | Spurs vs Qarabag | Defender to miss Europa League opener**: [Link](https://www.tottenhamhotspur.com/news/2024/september/team-news-spurs-vs-qarabag-defender-to-miss-europa-league-opener/)
+
+
 ### atletico madrid (N/A, Thu, 26 Sep 2024 13:50:00 -0700)
 
 - **Ancelotti: “I want to see the team keep improving and progressing”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rp-ancelotti-previo-rm-espanyol-j6-liga-20-09-2024)
