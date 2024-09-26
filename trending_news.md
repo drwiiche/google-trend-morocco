@@ -1,3 +1,26 @@
+### kazakhstan (N/A, Thu, 26 Sep 2024 16:00:00 -0700)
+
+- **Impending expiry of U.S. sanctions licence threatens Russia's yuan liquidity**: [Link](https://www.reuters.com/markets/currencies/impending-expiry-us-sanctions-licence-threatens-russias-yuan-liquidity-2024-09-26/)
+- **US sanctions on Russia double yuan and rouble trading in Kazakhstan**: [Link](https://www.pravda.com.ua/eng/news/2024/09/25/7476656/)
+- **NEWS: Expiry of US sanctions licence threatens payments between Russia and 
+China**: [Link](https://www.amlintelligence.com/2024/09/news-expiry-of-us-sanctions-licence-threatens-payments-between-russia-and-china/)
+
+
+### كازاخستان (N/A, Thu, 26 Sep 2024 15:40:00 -0700)
+
+- **مونديال الفوتصال: سقوط مفاجئ لحامل اللقب**: [Link](https://www.almountakhab.com/node/16204759)
+- **كازاخستان تخلق المفاجأة وتقصي "حامل اللقب" البرتغال من ثمن نهائي مونديال الفوتسال "أوزبكستان 2024"**: [Link](https://m.elbotola.com/article/2024-09-26-17-10-466.html)
+- **البرتغال حاملة اللقب تغادر مونديال الصالات على يد منتخب كازخستان**: [Link](https://rue20.com/840499.html)
+
+
+### algerie visa marocains (N/A, Thu, 26 Sep 2024 14:00:00 -0700)
+
+- **L’Algérie rétablit le visa d’entrée sur son territoire aux Marocains**: [Link](https://ledesk.ma/encontinu/lalgerie-retablit-le-visa-dentree-sur-son-territoire-aux-marocains/)
+- **Algérie - Maroc : Alger impose un visa aux Marocains**: [Link](https://www.lexpress.fr/monde/afrique/algerie-maroc-alger-impose-un-visa-aux-marocains-J3QWOV6AMFDSNG6N6JU5K4IPEM/)
+- **Maghreb : Alger Impose Un Visa Aux Marocains, Dénonçant "l’espionnage 
+Sioniste"**: [Link](https://www.i24news.tv/fr/actu/international/afrique/artc-maghreb-alger-impose-un-visa-aux-marocains-denoncant-l-espionnage-sioniste)
+
+
 ### tottenham (N/A, Thu, 26 Sep 2024 12:10:00 -0700)
 
 - **Tottenham's Radu Dragusin Shown Red Card Inside Seven Minutes**: [Link](https://www.wiproud.com/sports/sports-illustrated/4bc8375d/tottenhams-radu-dragusin-shown-red-card-inside-seven-minutes)
