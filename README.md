@@ -1,3 +1,25 @@
+### espanyol – villarreal (N/A, Thu, 26 Sep 2024 09:10:00 -0700)
+
+- **Lista de convocados**: [Link](https://www.rcdespanyol.com/es/noticia/lista-de-convocados/17671)
+- **A olvidar la derrota ante el Barcelona**: [Link](https://www.ondacero.es/emisoras/comunidad-valenciana/castellon/deportes/olvidar-derrota-barcelona_2024092666f553b9b3741e0001f558d4.html)
+- **Ganas de revancha**: [Link](https://nostresport.com/ganas-de-revancha/)
+
+
+### las palmas – betis (N/A, Thu, 26 Sep 2024 09:10:00 -0700)
+
+- **LA PREVIA: ¡Que no escape la victoria!**: [Link](https://www.udlaspalmas.es/noticias/la-previa-jornada-7-betis)
+- **PREVIA | La Unión Deportiva quiere volver a sonreír**: [Link](https://www.udlaspalmas.net/2024/09/26/previa-la-union-deportiva-quiere-volver-a-sonreir/)
+- **Carrión ajusta el once en busca de dar con la tecla**: [Link](https://tiempodecanarias.com/noticia/deportes/carrion-ajusta-el-once-en-busca-de-dar-con-la-tecla)
+
+
+### world cup futsal (N/A, Thu, 26 Sep 2024 07:40:00 -0700)
+
+- **France face Futsal World Cup match-fixing claims**: [Link](https://www.espn.com/soccer/story/_/id/41431892/france-face-match-fixing-allegations-futsal-world-cup)
+- **Venezuela pip Panama as Iran, Portugal win groups**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/iran-portugal-venezuela-round-up)
+- **Watch: France branded ‘disgrace’ for goal that sparked Futsal World Cup 
+match-fix claims**: [Link](https://www.telegraph.co.uk/football/2024/09/25/france-disgrace-goal-iran-futsal-world-match-fix-claims/)
+
+
 ### fenerbahçe – union saint-gilloise (N/A, Thu, 26 Sep 2024 09:00:00 -0700)
 
 - **Fenerbahçe - Union SG maçı hangi kanalda, saat kaçta?**: [Link](https://www.goal.com/tr/haber/fenerbahce-union-sg-maci-hangi-kanalda-saat-kacta/bltd2b9b17a65e51b08)
