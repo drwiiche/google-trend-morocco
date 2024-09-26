@@ -1,3 +1,12 @@
+### heure maroc (N/A, Wed, 25 Sep 2024 22:10:00 -0700)
+
+- **Mondial de futsal : l’Iran, adversaire du Maroc en huitièmes**: [Link](https://mobile.telquel.ma/instant-t/2024/09/23/mondial-de-futsal-liran-adversaire-du-maroc-en-huitiemes_1894764/)
+- **Mondial de futsal: les Lions de l’Atlas en ordre de bataille avant 
+d’affronter l’Iran**: [Link](https://sport.le360.ma/football/futsal/mondial-de-futsal-les-lions-de-latlas-en-ordre-de-bataille-avant-daffronter-liran_SCOYDF7B5NCVZI5HTZWE6KSGMQ/)
+- **Mondial-2024 de futsal : Les Lions de l’Atlas en ordre de bataille avant 
+d’affronter l’Iran**: [Link](https://www.menara.ma/fr/article/mondial-2024-de-futsal-les-lions-de-latlas-en-ordre-de-bataille-avant-daffronter-liran)
+
+
 ### fc barcelona (N/A, Wed, 25 Sep 2024 14:00:00 -0700)
 
 - **Szczesny confirma su fichaje por el Barça a SPORT: “Sería irrespetuoso si 
