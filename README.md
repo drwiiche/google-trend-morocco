@@ -1,3 +1,11 @@
+### world cup futsal 2024 (N/A, Thu, 26 Sep 2024 07:40:00 -0700)
+
+- **Spain 1-2 Venezuela | Last 16 | Match report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/spain-venezuela-match-report-highlights)
+- **Paraguay v Afghanistan | Round of 16 | FIFA Futsal World Cup Uzbekistan 
+2024™**: [Link](https://www.plus.fifa.com/en/content/winner-group-a-v-3rd-group-c-d-e-round-of-16-fifa-futsal-world-cup-uzbekistan-2024tm-2024/264b7c69-9ef3-4f20-8fe1-449f3b74795e)
+- **Routes to the final | FIFA Futsal World Cup Uzbekistan 2024**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/paths-routes-final)
+
+
 ### كأس العالم لكرة القدم داخل القاعة 2024 (N/A, Thu, 26 Sep 2024 07:20:00 -0700)
 
 - **كأس العالم لكرة القدم داخل القاعة 2024.. نتائج ثمن النهائي**: [Link](https://www.analkhabar.com/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-2024/)
