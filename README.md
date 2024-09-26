@@ -1,3 +1,12 @@
+### diddy (N/A, Wed, 25 Sep 2024 18:20:00 -0700)
+
+- **Sean 'Diddy' Combs: Here Are All The Major Accusations Against Him**: [Link](https://www.forbes.com/sites/antoniopequenoiv/2024/09/24/sean-diddy-combs-and-bodyguard-accused-of-filming-drugged-womans-assault-a-complete-timeline-of-allegations-against-him/)
+- **50 Cent Sets Diddy Abuse Allegations Docuseries at Netflix: ‘It’s a Complex 
+Narrative Spanning Decades’ (EXCLUSIVE)**: [Link](https://variety.com/2024/tv/news/diddy-sexual-assault-allegation-doc-50-cent-netflix-1236012610/)
+- **P Diddy faces serious charges amid viral celebrity list linked to alleged 
+sex trafficking; a closer look**: [Link](https://timesofindia.indiatimes.com/etimes/trending/p-diddy-faces-serious-charges-amid-viral-celebrity-list-linked-to-alleged-sex-trafficking-a-closer-look-at-the-accusations-and-speculations/articleshow/113642814.cms)
+
+
 ### al jazeera (N/A, Wed, 25 Sep 2024 23:00:00 -0700)
 
 - **Israel Is Using the War to Silence Journalists. Just See How It Hounded Al Jazeera**: [Link](https://www.haaretz.com/opinion/editorial/2024-09-26/ty-article-opinion/israel-is-using-the-war-to-silence-journalists-just-see-how-it-hounded-al-jazeera/00000192-2ad0-d1f6-a596-6bd97c490000)
