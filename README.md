@@ -1,3 +1,19 @@
+### classement futsal (N/A, Thu, 26 Sep 2024 07:00:00 -0700)
+
+- **Présentation | Jour 11 | Huitièmes de finale | Coupe du Monde de Futsal 2024**: [Link](https://www.fifa.com/fr/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/presentation-huitiemes-jour-11-ouzbekistan-2024)
+- **Coupe du monde de futsal.. Le Venezuela explose une grosse surprise et 
+élimine l'Espagne en huitièmes**: [Link](https://fr.hibapress.com/news-134567.html)
+- **Huitièmes, résumés | L'exploit du Venezuela | Coupe du Monde de Futsal 2024**: [Link](https://www.fifa.com/fr/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/resumes-huitiemes-venezuela-espagne-paraguay-afghanistan)
+
+
+### fifa futsal world cup (N/A, Thu, 26 Sep 2024 06:40:00 -0700)
+
+- **Futsal World Cup 2024: Ukraine defeats Netherlands and advances to 
+quarterfinals**: [Link](https://uaf.ua/en/article/52362)
+- **Brazil to reach quarterfinals in Futsal World Cup**: [Link](https://www.radiohc.cu/en/noticias/deportes/365915-brazil-to-reach-quarterfinals-in-futsal-world-cup)
+- **FIFA Futsal World Cup 2024™: Brazil and Ukraine advance to quarterfinals**: [Link](https://www.uzdaily.uz/en/fifa-futsal-world-cup-2024tm-brazil-and-ukraine-advance-to-quarterfinals/)
+
+
 ### world cup futsal 2024 (N/A, Thu, 26 Sep 2024 07:40:00 -0700)
 
 - **Spain 1-2 Venezuela | Last 16 | Match report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/spain-venezuela-match-report-highlights)
