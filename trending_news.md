@@ -1,3 +1,10 @@
+### star academy (N/A, Thu, 26 Sep 2024 00:50:00 -0700)
+
+- **Star Academy 2024 - Qui sont les profs de la saison 2024 ?**: [Link](https://www.tf1.fr/tf1/star-academy/videos/star-academy-2024-decouvrez-les-nouveaux-profs-de-la-saison-83168009.html)
+- **Athlétisme : Ladji Doucouré au casting d'une célèbre émission de télévision**: [Link](https://www.cnews.fr/sport/2024-09-25/athletisme-ladji-doucoure-au-casting-dune-celebre-emission-de-television-1561752)
+- **C'est ma question !**: [Link](https://www.programme.tv/programme/c364076-c-est-ma-question/sans-titre-28190594/)
+
+
 ### golden bachelor (N/A, Thu, 26 Sep 2024 00:40:00 -0700)
 
 - **'Golden Bachelorette' Premiere Viewed By 2.8 Million On ABC—One Of The 
