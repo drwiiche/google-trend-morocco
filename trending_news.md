@@ -1,3 +1,25 @@
+### tottenham – fk qarabag (N/A, Thu, 26 Sep 2024 11:20:00 -0700)
+
+- **Team news | Spurs vs Qarabag | Defender to miss Europa League opener**: [Link](https://www.tottenhamhotspur.com/news/2024/september/team-news-spurs-vs-qarabag-defender-to-miss-europa-league-opener/)
+- **Europa League LIVE: Tottenham v Qarabag - live text commentary, score 
+updates and match stats**: [Link](https://www.bbc.com/sport/football/live/cn4y8wqdlpwt)
+- **What Postecoglou is now planning to transform £90k-per-week Tottenham star**: [Link](https://www.footballfancast.com/tottenham-what-postecoglou-is-now-planning-to-transform-dominic-solanke/)
+
+
+### roma – ath. bilbao (N/A, Thu, 26 Sep 2024 11:20:00 -0700)
+
+- **Juric’s press conference before Athletic Club clash**: [Link](https://www.asroma.com/en/news/71960/jurics-press-conference-before-athletic-club-clash)
+- **Hermoso admits De Rossi played ‘crucial’ role in his Roma transfer**: [Link](https://sports.yahoo.com/hermoso-admits-rossi-played-crucial-145100062.html)
+- **Tommaso Baldanzi favored to start over Soulé in Roma-Athletic**: [Link](https://romapress.net/tommaso-baldanzi-favored-to-start-over-soule-in-roma-athletic/)
+
+
+### celta vigo – atlético madrid (N/A, Thu, 26 Sep 2024 11:10:00 -0700)
+
+- **Celta de Vigo - Atlético de Madrid, en directo | La Liga hoy**: [Link](https://www.rtve.es/deportes/20240926/celta-vigo-atletico-madrid-directo-jornada-7/16259020.shtml)
+- **Claudio Giráldez: "Nunca voy a plantear un partido a 0-0"**: [Link](https://www.atlantico.net/articulo/celtismo/claudio-giraldez-nunca-voy-plantear-partido/202409260847321052254.html)
+- **Prueba de fuego para el Atlético de Madrid en Balaídos**: [Link](https://www.telemadrid.es/deportes/Prueba-de-fuego-para-el-Atletico-de-Madrid-en-Balaidos-0-2709928982--20240925090000.html)
+
+
 ### espanyol vs villarreal (N/A, Thu, 26 Sep 2024 10:20:00 -0700)
 
 - **Espanyol vs. Villarreal (26 Sep, 2024) Live Score**: [Link](https://africa.espn.com/football/match/_/gameId/704728)
