@@ -1,3 +1,25 @@
+### tnt live (N/A, Thu, 26 Sep 2024 06:50:00 -0700)
+
+- **Ten Hag: United didn't finish fight in Twente draw**: [Link](https://www.espn.com/soccer/story/_/id/41442949/manchester-united-give-100-percent-twente-draw)
+- **Alarm bells ringing at Man Utd again – what is going wrong for Erik ten Hag?**: [Link](https://www.independent.co.uk/sport/football/erik-ten-hag-premier-league-champions-league-fc-twente-christian-eriksen-b2619412.html)
+- **Ten Hag laments Manchester United’s ‘complacent’ approach in Twente draw**: [Link](https://www.theguardian.com/football/2024/sep/25/ten-hag-laments-manchester-uniteds-complacent-approach-in-twente-draw)
+
+
+### futsal world cup live (N/A, Thu, 26 Sep 2024 06:50:00 -0700)
+
+- **Spain 1-2 Venezuela | Last 16 | Match report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/spain-venezuela-match-report-highlights)
+- **Futsal World Cup: Afghanistan going in to game against Paraguay ‘to win’**: [Link](https://www.ariananews.af/futsal-world-cup-afghanistan-going-in-to-game-against-paraguay-to-win/)
+- **Spain's scandalous failure at the Futsal World Cup opens a new crisis at 
+the RFEF**: [Link](https://www.atalayar.com/en/articulo/sports/spains-scandalous-failure-at-the-futsal-world-cup-opens-new-crisis-at-the-rfef/20240926135453205617.html)
+
+
+### المغرب وايران مباشر (N/A, Thu, 26 Sep 2024 05:30:00 -0700)
+
+- **مونديال الفوتسال.. هذا موعد مباراة المنتخب المغربي وإيران**: [Link](https://kech24.com/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A5%D9%8A%D8%B1%D8%A7%D9%86.html)
+- **✅ بث مباشر لمباراة المغرب وإيران في كأس العالم للفوتسال**: [Link](https://tanja24.com/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7/)
+- **أسود القاعة أنهوا الجولة الأولى متفوقين على إيران برباعية**: [Link](https://www.almountakhab.com/node/16204746)
+
+
 ### الرياضية (N/A, Thu, 26 Sep 2024 05:50:00 -0700)
 
 - **أتفرج وانت مرتاح.. تردد قناة ابو ظبي الرياضية 2024 الجديد على النايل سات والعرب سات**: [Link](https://alkhabarkw.com/channels/%D8%A3%D8%AA%D9%81%D8%B1%D8%AC-%D9%88%D8%A7%D9%86%D8%AA-%D9%85%D8%B1%D8%AA%D8%A7%D8%AD-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D8%A8%D9%88-%D8%B8%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1/19870/)
