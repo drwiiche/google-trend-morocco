@@ -1,3 +1,10 @@
+### ligue europa (N/A, Thu, 26 Sep 2024 12:30:00 -0700)
+
+- **DIRECT. OL-Olympiakos (Ligue Europa 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2024-2025/lyon-olympiakos-live/668120)
+- **Olympiakos : la menace Ayoub El Kaabi plane sur l’OL**: [Link](https://www.footmercato.net/a6717264606129282103-olympiakos-la-menace-ayoub-el-kaabi-plane-sur-lol)
+- **L'OL est de retour en coupe d'Europe ce jeudi soir**: [Link](https://www.bfmtv.com/lyon/replay-emissions/bonsoir-lyon/l-ol-est-de-retour-en-coupe-d-europe-ce-jeudi-soir_VN-202409260720.html)
+
+
 ### إسبانيول ضد فياريال (N/A, Thu, 26 Sep 2024 09:40:00 -0700)
 
 
