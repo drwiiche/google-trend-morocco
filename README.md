@@ -1,3 +1,31 @@
+### bein sport (N/A, Thu, 26 Sep 2024 05:40:00 -0700)
+
+- **لأقوي المباريات الحصرية علي تردد قناة bein sport على النايل والعرب سات - المساء الاخباري**: [Link](https://newsy.almesasports.com/243984/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sport/)
+- **استقبل الأن.. تردد قناة beIN Sports الرياضية الجديدة على النايل سات والعرب سات وسهيل سات بجودة عالية**: [Link](https://gm.aarcegypt.org/%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A3%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF/)
+- **الان تردد قناة Bein Sport بى ان سبورت المفتوحة لمتابعُة مباراة الاهلي ضد الزمالك فى السوبر الإفريقي 27/9/2024**: [Link](https://news.elsob7.com/1145561/%D8%A7%D9%84%D8%A7%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sport-%D8%A8%D9%89-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D9%84/)
+
+
+### futsal (N/A, Thu, 26 Sep 2024 05:40:00 -0700)
+
+- **Portugal - Cazaquistão (16h00)**: [Link](https://www.fpf.pt/pt/News/Todas-as-not%C3%ADcias/Not%C3%ADcia/news/46386)
+- **"Há sempre formas de surpreender e coisas novas que podemos tentar": Braz e o jogo com o Cazaquistão**: [Link](https://rr.sapo.pt/bola-branca/noticia/modalidades/2024/09/25/ha-sempre-formas-de-surpreender-e-coisas-novas-que-podemos-tentar-braz-e-o-jogo-com-o-cazaquistao/395051/)
+- **Seleção teve receção calorosa em Andijan**: [Link](https://www.record.pt/futebol/futsal/detalhe/selecao-teve-rececao-calorosa-em-andijan)
+
+
+### oued beht (N/A, Thu, 26 Sep 2024 05:30:00 -0700)
+
+- **Au Maroc, découverte d’un complexe agricole vieux de 5 000 ans, l’un des plus anciens et des plus vastes d’Afrique**: [Link](https://www.lemonde.fr/afrique/article/2024/09/26/au-maroc-decouverte-d-un-complexe-agricole-vieux-de-5-000-ans-l-un-des-plus-anciens-et-des-plus-vastes-d-afrique_6334770_3212.html)
+- **À Oued Beht, des archéologues découvrent l'une des plus antiques “sociétés agricoles”**: [Link](https://medias24.com/2024/09/25/des-archeologues-decouvrent-une-antique-societe-agricole-au-maroc/)
+- **Khémisset : Découverte du plus ancien complexe agricole en Afrique hors Vallée du Nil à Oued Beht**: [Link](https://www.lopinion.ma/Khemisset-Decouverte-du-plus-ancien-complexe-agricole-en-Afrique-hors-Vallee-du-Nil-a-Oued-Beht_a58279.html)
+
+
+### فضيلة بن موسى (N/A, Thu, 26 Sep 2024 04:30:00 -0700)
+
+- **الإشاعة تقتل الفنانة المراكشية فضيلة بنموسى**: [Link](https://kech24.com/%D8%A7%D9%84%D8%A5%D8%B4%D8%A7%D8%B9%D8%A9-%D8%AA%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A%D8%A9-%D9%81%D8%B6%D9%8A%D9%84%D8%A9-%D8%A8%D9%86%D9%85%D9%88%D8%B3%D9%89.html)
+- **الفنانة فضيلة بنموسى حية ترزق…ودعوات لتجنب الإشاعات**: [Link](https://journal24.ma/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D9%81%D8%B6%D9%8A%D9%84%D8%A9-%D8%A8%D9%86%D9%85%D9%88%D8%B3%D9%89-%D8%AD%D9%8A%D8%A9-%D8%AA%D8%B1%D8%B2%D9%82-%D9%88%D8%AF%D8%B9%D9%88%D8%A7%D8%AA-%D9%84/)
+- **الإشاعة تقتل فضيلة بنموسى**: [Link](https://machahid24.com/panorama/439646.html)
+
+
 ### binance (N/A, Thu, 26 Sep 2024 05:00:00 -0700)
 
 - **Binance continues to serve Russian users despite 2023 exit**: [Link](https://cointelegraph.com/news/binance-confirms-russia-presence-after-exit)
