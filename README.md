@@ -1,3 +1,41 @@
+### fifa futsal (N/A, Thu, 26 Sep 2024 06:10:00 -0700)
+
+- **Futsal World Cup 2024: Ukraine defeats Netherlands and advances to 
+quarterfinals**: [Link](https://uaf.ua/en/article/52362)
+- **Brazil to reach quarterfinals in Futsal World Cup**: [Link](https://www.radiohc.cu/en/noticias/deportes/365915-brazil-to-reach-quarterfinals-in-futsal-world-cup)
+- **FIFA Futsal World Cup 2024™: Brazil and Ukraine advance to quarterfinals**: [Link](https://www.uzdaily.uz/en/fifa-futsal-world-cup-2024tm-brazil-and-ukraine-advance-to-quarterfinals/)
+
+
+### futsal world cup 2024 (N/A, Thu, 26 Sep 2024 06:00:00 -0700)
+
+- **France face Futsal World Cup match-fixing claims**: [Link](https://www.espn.com/soccer/story/_/id/41431892/france-face-match-fixing-allegations-futsal-world-cup)
+- **Venezuela pip Panama as Iran, Portugal win groups**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/iran-portugal-venezuela-round-up)
+- **Watch: France branded ‘disgrace’ for goal that sparked Futsal World Cup 
+match-fix claims**: [Link](https://www.telegraph.co.uk/football/2024/09/25/france-disgrace-goal-iran-futsal-world-match-fix-claims/)
+
+
+### futsal world cup (N/A, Thu, 26 Sep 2024 06:00:00 -0700)
+
+- **Spain 1-2 Venezuela | Last 16 | Match report & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/spain-venezuela-match-report-highlights)
+- **Venezuela stun Spain, Paraguay advance | Review & highlights**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/afghanistan-paraguay-spain-venezuela-round-up-highlights)
+- **Paraguay v Afghanistan | Round of 16 | FIFA Futsal World Cup Uzbekistan 
+2024™**: [Link](https://www.plus.fifa.com/en/content/winner-group-a-v-3rd-group-c-d-e-round-of-16-fifa-futsal-world-cup-uzbekistan-2024tm-2024/264b7c69-9ef3-4f20-8fe1-449f3b74795e)
+
+
+### kylian mbappé real madrid (N/A, Thu, 26 Sep 2024 06:00:00 -0700)
+
+- **Kylian Mbappe injury: Real Madrid and France forward suffers thigh problem**: [Link](https://www.bbc.com/sport/football/articles/c5yjgnpewx5o)
+- **Mbappé reunion cancelled**: [Link](https://www.getfootballnewsfrance.com/2024/mbappe-reunion-cancelled/)
+- **Mbappé medical report**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/medical-reports/parte-medico-de-mbappe-25-09-2024)
+
+
+### foot salle coupe du monde 2024 (N/A, Thu, 26 Sep 2024 05:50:00 -0700)
+
+- **Mondial de futsal: Résultats des huitièmes de finale**: [Link](https://fr.hespress.com/387445-mondial-de-futsal-resultats-des-huitiemes-de-finale.html)
+- **Futsal. L’Iran et l’équipe de France exclues de la Coupe du monde ?**: [Link](https://www.ouest-france.fr/sport/football/futsal/futsal-liran-et-lequipe-de-france-exclues-de-la-coupe-du-monde-d810d622-7a58-11ef-a25e-ad5d3544d350)
+- **Le non-match entre la France et l’Iran au Mondial de futsal fait scandale**: [Link](https://www.20minutes.fr/sport/football/4111427-20240923-mondial-futsal-honte-mondiale-non-match-entre-france-iran-fait-scandale)
+
+
 ### bein sport (N/A, Thu, 26 Sep 2024 05:40:00 -0700)
 
 - **لأقوي المباريات الحصرية علي تردد قناة bein sport على النايل والعرب سات - المساء الاخباري**: [Link](https://newsy.almesasports.com/243984/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sport/)
