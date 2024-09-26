@@ -1,3 +1,8 @@
+### al ain vs al wasl (N/A, Thu, 26 Sep 2024 10:20:00 -0700)
+
+- **ADNOC Pro League: Al Ain beat Al Wasl in fourth round clash**: [Link](https://sharjah24.ae/en/Articles/2024/09/26/ADNOC-Pro-League-Al-Ain-beat-Al-Wasl-in-fourth-round-clash)
+
+
 ### lyon – olympiakos (N/A, Thu, 26 Sep 2024 11:30:00 -0700)
 
 - **Preview: Lyon vs. Olympiacos - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lyon/europa-league/preview/preview-lyon-vs-olympiacos-prediction-team-news-lineups_553763.html)
