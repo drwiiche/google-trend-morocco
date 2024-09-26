@@ -1,3 +1,11 @@
+### المغرب ضد ايران (N/A, Thu, 26 Sep 2024 04:20:00 -0700)
+
+- **القنوات الناقلة لمباراة المنتخب المغربي اليوم ضد إيران في كأس العالم 
+للفوتسال 2024**: [Link](https://ar.hibapress.com/details-555457.html)
+- **مونديال الفوتصال: الأسود يواجهون إيران بحثا عن مقعد في الربع**: [Link](https://www.almountakhab.com/node/16204738)
+- **أسود الصالات يواجهون إيران برغبة جامحة للعبور لربع نهائي كأس العالم**: [Link](https://rue20.com/840200.html)
+
+
 ### konami (N/A, Thu, 26 Sep 2024 02:50:00 -0700)
 
 - **Silent Hill 2 Devs Had to Push Konami 'Very Hard' to Release on PC**: [Link](https://www.ign.com/articles/silent-hill-2-devs-had-to-push-konami-very-hard-to-release-on-pc)
