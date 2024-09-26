@@ -1,3 +1,11 @@
+### konami (N/A, Thu, 26 Sep 2024 02:50:00 -0700)
+
+- **Silent Hill 2 Devs Had to Push Konami 'Very Hard' to Release on PC**: [Link](https://www.ign.com/articles/silent-hill-2-devs-had-to-push-konami-very-hard-to-release-on-pc)
+- **Silent Hill 2 Remake Locks In PS5 Exclusivity For One Year**: [Link](https://www.benzinga.com/general/gaming/24/09/40964346/silent-hill-2-remake-locks-in-ps5-exclusivity-for-one-year)
+- **Silent Hill 2 Remake Will Be A PlayStation Console Exclusive For At Least A 
+Year**: [Link](https://www.gamespot.com/articles/silent-hill-2-remake-will-be-a-playstation-console-exclusive-for-at-least-a-year/1100-6526604/)
+
+
 ### star academy (N/A, Thu, 26 Sep 2024 00:50:00 -0700)
 
 - **Star Academy 2024 - Qui sont les profs de la saison 2024 ?**: [Link](https://www.tf1.fr/tf1/star-academy/videos/star-academy-2024-decouvrez-les-nouveaux-profs-de-la-saison-83168009.html)
