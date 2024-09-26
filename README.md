@@ -1,3 +1,17 @@
+### lyon – olympiakos (N/A, Thu, 26 Sep 2024 11:30:00 -0700)
+
+- **Preview: Lyon vs. Olympiacos - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lyon/europa-league/preview/preview-lyon-vs-olympiacos-prediction-team-news-lineups_553763.html)
+- **Lyon vs Olympiacos: Match Preview and Prediction**: [Link](https://www.footboom1.com/en/news/football/1860652-lyon-vs-olympiacos-match-preview-and-prediction)
+- **Lyon vs Olympiacos prediction and betting tips on September 26, 2024**: [Link](https://ratingbet.com/predictions/lyon-vs-olympiacos-prediction-and-betting-tips-on-september-26-2024/)
+
+
+### europa league (N/A, Thu, 26 Sep 2024 11:30:00 -0700)
+
+- **First win in the Europa League**: [Link](https://www.rsca.be/en/ferencvaros250924)
+- **Verschaeren: ‘I felt good in the game’ (26 Sep 24)**: [Link](https://www.anderlecht-online.be/en/article/235675)
+- **Fradi — Civilek Info started with a defeat in Brussels**: [Link](https://civilek.info/en/2024/09/26/fradi-started-with-a-defeat-in-brussels/)
+
+
 ### tottenham – fk qarabag (N/A, Thu, 26 Sep 2024 11:20:00 -0700)
 
 - **Team news | Spurs vs Qarabag | Defender to miss Europa League opener**: [Link](https://www.tottenhamhotspur.com/news/2024/september/team-news-spurs-vs-qarabag-defender-to-miss-europa-league-opener/)
