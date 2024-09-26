@@ -1,3 +1,10 @@
+### al jazeera (N/A, Wed, 25 Sep 2024 23:00:00 -0700)
+
+- **Israel Is Using the War to Silence Journalists. Just See How It Hounded Al Jazeera**: [Link](https://www.haaretz.com/opinion/editorial/2024-09-26/ty-article-opinion/israel-is-using-the-war-to-silence-journalists-just-see-how-it-hounded-al-jazeera/00000192-2ad0-d1f6-a596-6bd97c490000)
+- **Israeli attacks against journalists, media freedom decried at UNSC**: [Link](https://www.aljazeera.com/news/2024/9/26/israeli-attacks-against-journalists-media-freedom-decried-at-unsc)
+- **Israeli soldiers raid and order closure of Al Jazeera’s Ramallah offices**: [Link](https://www.cnn.com/2024/09/22/middleeast/al-jazeera-ramallah-israel-raid-intl/index.html)
+
+
 ### heure maroc (N/A, Wed, 25 Sep 2024 22:10:00 -0700)
 
 - **Mondial de futsal : l’Iran, adversaire du Maroc en huitièmes**: [Link](https://mobile.telquel.ma/instant-t/2024/09/23/mondial-de-futsal-liran-adversaire-du-maroc-en-huitiemes_1894764/)
