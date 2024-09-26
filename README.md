@@ -1,3 +1,11 @@
+### kick (N/A, Wed, 25 Sep 2024 17:00:00 -0700)
+
+- **Valkyrae calls Kick streamers "very pathetic" for harassing people at 
+TwitchCon 2024**: [Link](https://www.sportskeeda.com/us/streamers/news-valkyrae-calls-kick-streamers-very-pathetic-harassing-people-twitchcon-2024)
+- **UK streamer DBR666 banned by Kick following harassing behaviour at TwitchCon**: [Link](https://esports-news.co.uk/2024/09/25/streamer-dbr666-kick-ban-twitchcon/)
+- **‘Insane’ Kick streamers slammed for harassing others at TwitchCon**: [Link](https://metro.co.uk/2024/09/24/insane-kick-streamers-slammed-harassing-others-twitchcon-21660529/)
+
+
 ### سارة نافو (N/A, Wed, 25 Sep 2024 16:10:00 -0700)
 
 - **الجزائر تقاضي سارة كنافو رفيقة المتطرف إيريك زمور بعد "تصريحات كاذبة"**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%82%D8%A7%D8%B6%D9%8A-%D8%B3%D8%A7%D8%B1%D8%A9-%D9%83%D9%86%D8%A7%D9%81%D9%88-%D8%B1%D9%81%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D8%B7%D8%B1/)
