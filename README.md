@@ -1,3 +1,10 @@
+### roma (N/A, Thu, 26 Sep 2024 13:00:00 -0700)
+
+- **Il debutto casalingo in Europa: le info per Roma-Athletic Club**: [Link](https://www.asroma.com/it/notizie/71946/il-debutto-casalingo-in-europa-le-info-per-roma-athletic-club)
+- **Roma, la probabile formazione di Juric. Sinner vince e avanza a Pechino**: [Link](https://www.corrieredellosport.it/video/on-air/2024/09/26-133309308/roma_la_probabile_formazione_di_juric_sinner_vince_e_avanza_a_pechino)
+- **Dovbyk, alla ricerca del primo gol in Europa League**: [Link](https://www.retesport.it/approfondimenti/dovbyk-alla-ricerca-del-primo-gol-in-europa-league)
+
+
 ### ligue europa (N/A, Thu, 26 Sep 2024 12:30:00 -0700)
 
 - **DIRECT. OL-Olympiakos (Ligue Europa 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2024-2025/lyon-olympiakos-live/668120)
