@@ -1,3 +1,13 @@
+### golden bachelor (N/A, Thu, 26 Sep 2024 00:40:00 -0700)
+
+- **'Golden Bachelorette' Premiere Viewed By 2.8 Million On ABC—One Of The 
+Worst Openers In Franchise History**: [Link](https://www.forbes.com/sites/maryroeloffs/2024/09/25/golden-bachelorette-premiere-viewed-by-28-million-on-abc-one-of-the-worst-openers-in-franchise-history/)
+- **Who does Joan Vassos pick during 'The Golden Bachelorette' finale? Fans 
+have theories**: [Link](https://www.cincinnati.com/story/entertainment/television/2024/09/25/who-does-joan-pick-on-the-golden-bachelorette/75377061007/)
+- **Gil Ramirez remains on 'Golden Bachelorette' as Joan hits senior prom. Who 
+left?**: [Link](https://www.usatoday.com/story/entertainment/tv/2024/09/25/golden-bachelorette-recap-episode-2/75350335007/)
+
+
 ### barcelone (N/A, Wed, 25 Sep 2024 14:00:00 -0700)
 
 - **Wojciech Szczęsny en passe de devenir le nouveau gardien du Barça !**: [Link](https://www.footmercato.net/a7051139003531739213-wojciech-szczesny-en-passe-de-devenir-le-nouveau-gardien-du-barca)
