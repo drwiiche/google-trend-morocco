@@ -1,3 +1,19 @@
+### atletico madrid (N/A, Thu, 26 Sep 2024 13:50:00 -0700)
+
+- **Ancelotti: “I want to see the team keep improving and progressing”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rp-ancelotti-previo-rm-espanyol-j6-liga-20-09-2024)
+- **Real Madrid’s Dani Carvajal fit for Madrid derby; Eduardo Camavinga could 
+also return - The Athletic**: [Link](https://www.nytimes.com/athletic/5796056/2024/09/26/real-madrid-team-news-carvajal-camavinga/)
+- **Real Madrid's Likely Lineup for the Clash Against Atlético Madrid**: [Link](https://www.footboom1.com/en/news/football/1863303-real-madrid-s-likely-lineup-for-the-clash-against-atletico-madrid)
+
+
+### nadal (N/A, Thu, 26 Sep 2024 13:50:00 -0700)
+
+- **Carlos Alcaraz makes Rafael Nadal retirement claim with 'last dance' verdict**: [Link](https://www.express.co.uk/sport/tennis/1953340/carlos-alcaraz-rafael-nadal-retirement-davis-cup)
+- **Rafael Nadal’s Sister Beams With Pride as She Cheers On Her Brother’s 
+Legendary Davis Cup Comeback**: [Link](https://www.essentiallysports.com/atp-tennis-news-rafael-nadals-sister-beams-with-pride-as-she-cheers-on-her-brothers-legendary-davis-cup-comeback/)
+- **Alcaraz Hopes Davis Cup Finals Won't Be Nadal's 'Last Dance'**: [Link](https://www.barrons.com/news/alcaraz-hopes-davis-cup-finals-won-t-be-nadal-s-last-dance-971f1f49)
+
+
 ### ajax (N/A, Thu, 26 Sep 2024 13:20:00 -0700)
 
 - **Liveblog Ajax tegen Besiktas in een uitverkocht Arena**: [Link](https://www.at5.nl/artikelen/228746/liveblog-ajax-tegen-besiktas-in-een-uitverkocht-arena)
