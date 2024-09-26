@@ -1,3 +1,10 @@
+### الرياضية (N/A, Thu, 26 Sep 2024 05:50:00 -0700)
+
+- **أتفرج وانت مرتاح.. تردد قناة ابو ظبي الرياضية 2024 الجديد على النايل سات والعرب سات**: [Link](https://alkhabarkw.com/channels/%D8%A3%D8%AA%D9%81%D8%B1%D8%AC-%D9%88%D8%A7%D9%86%D8%AA-%D9%85%D8%B1%D8%AA%D8%A7%D8%AD-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D8%A8%D9%88-%D8%B8%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1/19870/)
+- **"ثبتها الآن" تردد قناة ابوظبي الرياضية HD الجديد 2024 AD Sport عبر جميع الأقمار الصناعية**: [Link](https://gaya-sa.org/news/tech/64731/%D8%AB%D8%A8%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%A2%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D8%A8%D9%88%D8%B8%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-hd/)
+- **"لا تفوت متابعة السوبر الأفريقي".. تردد قناة أبوظبي الرياضية 1 و 2 الجديد AD Sports 2024**: [Link](https://gm.aarcegypt.org/%D9%84%D8%A7-%D8%AA%D9%81%D9%88%D8%AA-%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82/)
+
+
 ### futsal world cup 2024 live (N/A, Thu, 26 Sep 2024 06:20:00 -0700)
 
 - **Futsal World Cup 2024: Ukraine defeats Netherlands and advances to 
