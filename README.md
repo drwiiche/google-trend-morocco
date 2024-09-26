@@ -1,3 +1,10 @@
+### fenerbahçe – union saint-gilloise (N/A, Thu, 26 Sep 2024 09:00:00 -0700)
+
+- **Fenerbahçe - Union SG maçı hangi kanalda, saat kaçta?**: [Link](https://www.goal.com/tr/haber/fenerbahce-union-sg-maci-hangi-kanalda-saat-kacta/bltd2b9b17a65e51b08)
+- **Jose Mourinho 3 temel değişikliğe dikkat çekti**: [Link](https://www.ntvspor.net/futbol/jose-mourinho-3-temel-degisiklige-dikkat-cekti-66f57fb6d5eabe0433428383)
+- **Fenerbahçe-U.S Gilloise maçı öncesi Belçikalı gazeteciden çarpıcı sözler! 'Dürüst olmak gerekirse...'**: [Link](https://www.fanatik.com.tr/fenerbahce/galeri-fenerbahce-u-s-gilloise-maci-oncesi-belcikali-gazeteciden-carpici-sozler-durust-olmak-gerekirse-2559053)
+
+
 ### كاس العالم للفوتسال 2024 (N/A, Thu, 26 Sep 2024 07:30:00 -0700)
 
 - **مونديال الفوتصال: المغرب والبرازيل في ربع نهائي مكرر**: [Link](https://www.almountakhab.com/node/16204752)
