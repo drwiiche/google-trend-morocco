@@ -1,3 +1,17 @@
+### العين ضد الوصل (N/A, Thu, 26 Sep 2024 09:30:00 -0700)
+
+- **صافرة فرنسية لقمة العين والوصل**: [Link](https://www.kooora.com/?n=1357271)
+- **موعد مباراة العين والوصل والقنوات الناقلة**: [Link](https://24.ae/article/846734/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D9%88%D8%B5%D9%84-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+- **الشارقة لتثبيت صدارته الإماراتية، والعين والوصل يصطدمان**: [Link](https://middle-east-online.com/%D8%A7%D9%84%D8%B4%D8%A7%D8%B1%D9%82%D8%A9-%D9%84%D8%AA%D8%AB%D8%A8%D9%8A%D8%AA-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A%D8%A9%D8%8C-%D9%88%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D9%88%D8%B5%D9%84-%D9%8A%D8%B5%D8%B7%D8%AF%D9%85%D8%A7%D9%86)
+
+
+### كاس العالم داخل القاعة (N/A, Thu, 26 Sep 2024 07:00:00 -0700)
+
+- **طرق الوصول إلى النهائي | كأس العالم لكرة الصالات FIFA أوزبكستان 2024**: [Link](https://www.fifa.com/ar/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/paths-routes-final-ar)
+- **مونديال "أوزبكستان 2024"/ المنتخب المغربي لـ"الفوتسال" يواجه في حال تأهله إلى ربع النهائي البرازيل**: [Link](https://m.elbotola.com/article/2024-09-24-16-20-741.html)
+- **كأس العالم لكرة القدم داخل القاعة 2024.. نتائج ثمن النهائي**: [Link](https://www.analkhabar.com/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-2024/)
+
+
 ### espanyol – villarreal (N/A, Thu, 26 Sep 2024 09:10:00 -0700)
 
 - **Lista de convocados**: [Link](https://www.rcdespanyol.com/es/noticia/lista-de-convocados/17671)
