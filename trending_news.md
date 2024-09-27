@@ -1,3 +1,20 @@
+### auxerre – brest (N/A, Fri, 27 Sep 2024 10:00:00 -0700)
+
+- **Le Havre / Lille en streaming direct et replay sur CANAL+**: [Link](https://www.canalplus.com/sport/le-havre-lille/h/26507402_50781)
+- **DIRECT. AJ Auxerre - Stade Brestois : suivez le match de la 6e journée de 
+Ligue 1 en live**: [Link](https://www.ouest-france.fr/sport/football/ligue-1/direct/direct-aj-auxerre-stade-brestois-suivez-le-match-de-la-6e-journee-de-ligue-1-en-live-c0f714e3-679b-4cef-b53c-49c0c3f6b2bc)
+- **Le groupe pour la réception de Brest**: [Link](https://www.aja.fr/le-groupe-pour-la-reception-de-brest/)
+
+
+### marco mouly (N/A, Fri, 27 Sep 2024 09:50:00 -0700)
+
+- **Escroquerie : Quatre ans de prison requis contre le « roi de l’arnaque » 
+Marco Mouly**: [Link](https://www.20minutes.fr/justice/4112087-20240926-escroquerie-quatre-ans-prison-requis-contre-roi-arnaque-marco-mouly)
+- **VIDÉO. Qui est Marco Mouly, le « roi de l’escroquerie » ?**: [Link](https://www.ouest-france.fr/societe/justice/video-qui-est-marco-mouly-le-roi-de-lescroquerie-810e7e8b-bfc0-466b-bde2-7a65d8e96843)
+- **Marco Mouly de retour derrière les barreaux : quatre ans de prison requis 
+pour le « roi de l’arnaque**: [Link](https://www.public.fr/marco-mouly-de-retour-derriere-les-barreaux-quatre-ans-de-prison-requis-pour-le-roi-de-larnaque)
+
+
 ### influenceuse poupette kenza (N/A, Fri, 27 Sep 2024 09:40:00 -0700)
 
 
