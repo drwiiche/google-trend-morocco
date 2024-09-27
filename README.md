@@ -1,3 +1,12 @@
+### nasrallah (N/A, Fri, 27 Sep 2024 11:50:00 -0700)
+
+- **Israel says it targeted Hezbollah leader in strikes on Lebanese capital**: [Link](https://www.cnn.com/world/live-news/israel-lebanon-war-hezbollah-09-27-24/index.html)
+- **Source close to Hezbollah claims Nasrallah ‘fine’; Israel and Iran checking 
+his fate**: [Link](https://www.timesofisrael.com/liveblog-september-27-2024/)
+- **MEMRI'S Carmon: Hezbollah's Nasrallah in 'Precarious Situation' as 
+Operatives Blame Him for Recent Disasters**: [Link](https://cbn.com/news/israel/memris-carmon-hezbollahs-nasrallah-precarious-situation-operatives-blame-him-recent)
+
+
 ### zamalek (N/A, Fri, 27 Sep 2024 12:00:00 -0700)
 
 - **A fiery criticism from Ibrahim Saeed to the Zamalek administration**: [Link](https://www.ysscores.com/en/news/4706714/A-fiery-criticism-from-Ibrahim-Saeed-to-the-Zamalek-administration)
