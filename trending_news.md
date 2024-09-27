@@ -1,3 +1,18 @@
+### الاتحاد ضد الخليج (N/A, Fri, 27 Sep 2024 12:40:00 -0700)
+
+- **الخليج يباغت الاتحاد برقم غائب منذ 9 سنوات**: [Link](https://m.kooora.com/?n=1357658&o=n27332)
+- **بلان يعتمد على ميتاي أمام الخليج في دوري روشن**: [Link](https://hihi2.com/2024/09/27/p2864451.html)
+- **زلزلة في قلعة العميد!! الرئيس المُستقيل يعود من جديد قبل مباراة الخليج**: [Link](https://alsaudia-web.com/news2374587.html)
+
+
+### fc 25 (N/A, Fri, 27 Sep 2024 12:40:00 -0700)
+
+- **EA FC 25 Vs. EA FC 24: Stunning Facial Render Comparisons Of Top Stars**: [Link](https://www.forbes.com/sites/brianmazique/2024/09/25/ea-fc-25-vs-ea-fc-24-stunning-facial-render-comparisons-of-top-stars/)
+- **EAFC 25 Review – On The Attack**: [Link](https://www.sportsgamersonline.com/games/soccer/eafc-25-review-on-the-attack/)
+- **Jude Bellingham links up with Real Madrid legend Zinedine Zidane and Ballon 
+d'Or holder Aitana Bonmati as England star helps launch EA SPORTS FC 25**: [Link](https://www.msn.com/en-in/sports/football/jude-bellingham-links-up-with-real-madrid-legend-zinedine-zidane-and-ballon-d-or-holder-aitana-bonmati-as-england-star-helps-launch-ea-sports-fc-25/ar-AA1rjxOF)
+
+
 ### ميلان ضد ليتشي (N/A, Fri, 27 Sep 2024 12:30:00 -0700)
 
 - **نتائج آخر 4 مباريات بين ميلان وليتشي**: [Link](https://hihi2.com/2024/09/27/p2864894.html)
