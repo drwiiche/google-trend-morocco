@@ -1,3 +1,11 @@
+### samsung galaxy s24 fe (N/A, Fri, 27 Sep 2024 06:20:00 -0700)
+
+- **Galaxy S24 Series Expands With S24 FE: A Premium Experience That Makes Full 
+Galaxy AI Capabilities Attainable for More Users**: [Link](https://news.samsung.com/global/galaxy-s24-series-expands-with-s24-fe-a-premium-experience-that-makes-full-galaxy-ai-capabilities-attainable-for-more-users)
+- **Hands on: Samsung Galaxy S24 FE review: AI doesn’t come cheap … until now**: [Link](https://www.techradar.com/phones/samsung-galaxy-phones/samsung-galaxy-s24-fe-review)
+- **Samsung Galaxy S24 FE Packs AI Features Into a Lower-Priced Phone**: [Link](https://www.cnet.com/tech/mobile/samsung-galaxy-s24-fe-highlights-ai-features-in-its-lower-priced-phone/)
+
+
 ### maggie smith (N/A, Fri, 27 Sep 2024 06:40:00 -0700)
 
 - **Actress Dame Maggie Smith dies at 89**: [Link](https://www.bbc.com/news/articles/cgk7375ngkxo)
