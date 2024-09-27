@@ -1,3 +1,11 @@
+### derrick rose (N/A, Fri, 27 Sep 2024 07:20:00 -0700)
+
+- **Ex-MVP Rose retiring after 16-year NBA career**: [Link](https://www.espn.com/nba/story/_/id/41451393/former-mvp-derrick-rose-retiring-nba-16-year-career)
+- **Derrick Rose’s Hall of Fame Chances: A Reflection on NBA Standards**: [Link](https://bvmsports.com/2024/09/26/derrick-roses-hall-of-fame-chances-a-reflection-on-nba-standards/)
+- **Tom Thibodeau: Jalen Brunson's wife Ali Brunson shows love to Knicks HC's 
+Derrick Rose tribute**: [Link](https://www.sportskeeda.com/basketball/news-jalen-brunson-s-wife-ali-brunson-shows-love-knicks-hc-s-derrick-rose-tribute)
+
+
 ### al-nassr fc – al wehda (N/A, Fri, 27 Sep 2024 07:30:00 -0700)
 
 - **Preview: Al-Nassr vs. Al Wahda - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/preview-al-nassr-vs-al-wahda-prediction-team-news-lineups_553825.html)
