@@ -1,3 +1,11 @@
+### dortmund (N/A, Fri, 27 Sep 2024 12:20:00 -0700)
+
+- **BVB-Star Jamie Gittens verletzt sich gegen den VfL Bochum**: [Link](https://sport.sky.de/fussball/artikel/bvb-star-jamie-gittens-verletzt-sich-gegen-den-vfl-bochum/13223294/34372)
+- **Borussia Dortmund: Jamie Gittens verletzungsbedingt ausgewechselt**: [Link](https://www.ligainsider.de/jamie-gittens_26233/borussia-dortmund-jamie-gittens-verletzungsbedingt-ausgewechselt-364226/)
+- **Liveticker | Borussia Dortmund - VfL Bochum 1:2 | 5. Spieltag | Bundesliga 
+2024/25**: [Link](https://www.kicker.de/dortmund-gegen-bochum-2024-bundesliga-4936823/ticker)
+
+
 ### الاتحاد ضد الخليج (N/A, Fri, 27 Sep 2024 12:40:00 -0700)
 
 - **الخليج يباغت الاتحاد برقم غائب منذ 9 سنوات**: [Link](https://m.kooora.com/?n=1357658&o=n27332)
