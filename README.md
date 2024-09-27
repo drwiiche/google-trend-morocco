@@ -1,3 +1,10 @@
+### حسن نصر الله (N/A, Fri, 27 Sep 2024 09:20:00 -0700)
+
+- **إسرائيل: نصر الله المستهدَف من الغارة**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%87%D8%AF%D9%8E%D9%81-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D8%A7%D8%B1%D8%A9-1438217.html)
+- **قناعة إسرائيلية باستمرار حزب الله في مساندة غزة.. وتحريض على اغتيال نصر الله**: [Link](https://arabi21.com/story/1628836/%D9%82%D9%86%D8%A7%D8%B9%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%81%D9%8A-%D9%85%D8%B3%D8%A7%D9%86%D8%AF%D8%A9-%D8%BA%D8%B2%D8%A9-%D9%88%D8%AA%D8%AD%D8%B1%D9%8A%D8%B6-%D8%B9%D9%84%D9%89-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D9%84%D9%87)
+- **استهداف حسن نصر الله في غارة إسرائيلية بجنوب لبنان**: [Link](https://www.almasryalyoum.com/news/details/3269805)
+
+
 ### derrick rose (N/A, Fri, 27 Sep 2024 07:20:00 -0700)
 
 - **Ex-MVP Rose retiring after 16-year NBA career**: [Link](https://www.espn.com/nba/story/_/id/41451393/former-mvp-derrick-rose-retiring-nba-16-year-career)
