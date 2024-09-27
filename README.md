@@ -1,3 +1,21 @@
+### sarah knafo (N/A, Fri, 27 Sep 2024 03:40:00 -0700)
+
+- **La France a-t-elle versé 800 millions d’euros à l’Algérie comme l’affirme 
+Sarah Knafo ?**: [Link](https://www.lefigaro.fr/actualite-france/la-france-a-t-elle-verse-800-millions-a-l-algerie-comme-l-affirme-sarah-knafo-20240926)
+- **« Diffusion de fake news » : l’État algérien porte plainte contre Sarah 
+Knafo**: [Link](https://www.lepoint.fr/monde/diffusion-de-fake-news-l-etat-algerien-porte-plainte-contre-sarah-knafo-26-09-2024-2571268_24.php)
+- **L’Algérie porte plainte contre Sarah Knafo, compagne de Zemmour, pour fake 
+news**: [Link](https://www.jeuneafrique.com/1613522/politique/algerie-france-alger-porte-plainte-contre-sarah-knafo-compagne-de-zemmour-pour-fake-news/)
+
+
+### محمد حسين سرور (N/A, Thu, 26 Sep 2024 14:50:00 -0700)
+
+- **حزب الله ينعى القيادي محمد حسين سرور إثر غارة على الضاحية الجنوبية**: [Link](https://www.aljazeera.net/news/2024/9/27/%D8%B9%D8%A7%D8%AC%D9%84-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%86%D9%86%D8%B9%D9%89-%D8%A7%D9%84%D8%B4%D9%87%D9%8A%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D8%AF-%D9%85%D8%AD%D9%85%D8%AF)
+- **شهيدان بغارة إسرائيلية على مبنى سكني بالضاحية الجنوبية وحزب الله يؤكد 
+استشهاد “القائد” محمد سرور**: [Link](https://www.raialyoum.com/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A7%D8%B3%D8%AA%D8%B4%D9%87%D8%A7%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D8%B3%D8%B1%D9%88/)
+- **درب الحوثيين في اليمن..من هو محمد سرور الذي اغتالته إسرائيل؟**: [Link](https://www.skynewsarabia.com/middle-east/1744460-%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%AD%D9%88%D8%AB%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D9%8A%D9%85%D9%86%D9%85%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%B3%D8%B1%D9%88%D8%B1-%D8%A7%D8%BA%D8%AA%D8%A7%D9%84%D8%AA%D9%87-%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84%D8%9F)
+
+
 ### aljazeera (N/A, Thu, 26 Sep 2024 22:50:00 -0700)
 
 - **The Guardian view on Lebanon: hell is breaking loose – it can and must be 
