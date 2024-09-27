@@ -1,3 +1,10 @@
+### طقس طنجة (N/A, Thu, 26 Sep 2024 21:20:00 -0700)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-9-1437225.html)
+- **نشرة إنذارية.. أمطار رعدية بعدد من المناطق**: [Link](https://www.analkhabar.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7/)
+- **طقس الأربعاء.. زخات مطرية متوقعة بهذه المناطق**: [Link](https://ar.hibapress.com/details-555072.html)
+
+
 ### kazakhstan (N/A, Thu, 26 Sep 2024 16:00:00 -0700)
 
 - **Impending expiry of U.S. sanctions licence threatens Russia's yuan liquidity**: [Link](https://www.reuters.com/markets/currencies/impending-expiry-us-sanctions-licence-threatens-russias-yuan-liquidity-2024-09-26/)
