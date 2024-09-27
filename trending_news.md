@@ -1,3 +1,64 @@
+### psg vs rennes (N/A, Fri, 27 Sep 2024 11:40:00 -0700)
+
+- **Friday's Ligue 1 predictions including PSG vs. Rennes**: [Link](https://www.sportsmole.co.uk/football/aj-auxerre/ligue-1-predictions/feature/fridays-ligue-1-predictions-including-psg-vs-rennes_553879.html)
+- **How to Watch Paris Saint-Germain vs. Stade Rennes: Live Stream, TV Channel, 
+Start Time**: [Link](https://bvmsports.com/2024/09/22/how-to-watch-paris-saint-germain-vs-stade-rennes-live-stream-tv-channel-start-time/)
+- **PSG vs Rennes Prediction, 9/27/2024 Ligue 1 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/psg-vs-rennes-prediction-9-27-2024-ligue-1-soccer-pick-tips-and-odds.html)
+
+
+### paris-sg – rennes (N/A, Fri, 27 Sep 2024 11:10:00 -0700)
+
+- **DIRECT. PSG-Rennes: suivez la rencontre de la 6e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-psg-rennes-suivez-en-live-le-match-de-la-6e-journee-de-l1_LS-202409270392.html)
+- **Rennes punit froidement le PSG**: [Link](https://www.footmercato.net/a9095996810548503133-rennes-punit-froidement-le-psg)
+- **L1 : le programme TV du week-end**: [Link](https://news.maxifoot.fr/ligue-1/la-programme-tv-du-week-end-foot-420050.htm)
+
+
+### valladolid – majorque (N/A, Fri, 27 Sep 2024 11:10:00 -0700)
+
+- **DIRECT. Valladolid-Majorque (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/valladolid-majorque-live/657358)
+- **Pronostic Valladolid Majorque : Analyse, cotes et prono du match de Liga**: [Link](https://www.sofoot.com/breves/pronostic-valladolid-majorque-analyse-cotes-et-prono-du-match-de-liga)
+- **Valladolid - Majorque en direct - La Liga : Football Scores & Résultats - 
+27/09/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-valladolid-majorque_mtc1524240/live.shtml)
+
+
+### ac milan – lecce (N/A, Fri, 27 Sep 2024 11:00:00 -0700)
+
+- **Fonseca urges Milan to go again after derby**: [Link](https://www.beinsports.com/en-nz/football/serie-a/articles-video/fonseca-urges-milan-to-go-again-after-derby-2024-09-26)
+- **Official: AC Milan – Lecce lineups | Morata and Abraham lead the attack**: [Link](https://milanreports.com/2024/09/27/milan-lineup-lecce-morata-abraham/)
+- **New injury concern for Morata ahead of Lecce visit in Serie A**: [Link](https://sports.yahoo.com/injury-concern-morata-ahead-lecce-141500874.html)
+
+
+### ahly vs zamalek (N/A, Fri, 27 Sep 2024 11:00:00 -0700)
+
+- **الأهلي والزمالك ينهيان استعداداتهما للمواجهة المرتقبة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%86%D9%87%D9%8A%D8%A7%D9%86-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87%D9%85%D8%A7-%D9%84%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-2024-09-27)
+- **الباب السحري.. معركة ملتهبة بين كولر وجوميز في المملكة أرينا**: [Link](https://www.kooora.com/?n=1357493)
+- **كولر يعلن عن تشكيلة الأهلي لمواجهة الزمالك في كأس السوبر الأفريقي**: [Link](https://m.elbotola.com/article/2024-09-27-17-09-725.html)
+
+
+### dortmund – vfl bochum (N/A, Fri, 27 Sep 2024 10:50:00 -0700)
+
+- **Anton vor dem Spiel gegen Bochum: „Haben etwas gutzumachen“**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2024/9/27/Anton-vor-dem-Spiel-gegen-Bochum-Haben-etwas-gutzumachen.html)
+- **Alarmstufe Gelb in Dortmund? BVB-Insider klärt auf**: [Link](https://www.sport1.de/tv-video/video/alarmstufe-gelb-in-dortmund-bvb-insider-klart-auf__6fa97b64-f642-4784-8971-ba98446b3465)
+- **RN+ BVB-Kader gegen Bochum: Klarheit bei Nmecha, Ryerson und Bensebaini – 
+Sabitzer fällt aus**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-kader-gegen-bochum-klarheit-bei-nmecha-ryerson-und-bensebaini-duo-fehlt-bei-hotel-abfahrt-w940644-2001386320/)
+
+
+### hassan nasrallah (N/A, Fri, 27 Sep 2024 10:50:00 -0700)
+
+- **Source close to Hezbollah claims Nasrallah ‘fine’; Israel and Iran checking 
+his fate**: [Link](https://www.timesofisrael.com/liveblog-september-27-2024/)
+- **Israel attacks Lebanon: Beirut suffers ‘unprecedented’ bombardment**: [Link](https://www.aljazeera.com/news/liveblog/2024/9/27/israel-attacks-lebanon-israeli-bombings-kill-more-than-700-in-lebanon)
+- **Live updates: Huge explosions rock Beirut as Netanyahu says Israel has 
+‘every right’ to fight Hezbollah**: [Link](https://www.cnn.com/world/live-news/israel-lebanon-war-hezbollah-09-27-24/index.html)
+
+
+### al ahly – zamalek (N/A, Fri, 27 Sep 2024 10:30:00 -0700)
+
+- **José Gomes: "Our goal is the TotalEnergies CAF Super Cup"**: [Link](https://www.cafonline.com/caf-super-cup/news/jose-gomes-our-goal-is-the-totalenergies-caf-super-cup/)
+- **Preview: CAF Super Cup Al Ahly (EGY) vs Zamalek (EGY)**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/preview-caf-super-cup-al-ahly-egy-vs-zamalek-egy-2024-09-26)
+- **Gomez chooses between Konrad and Shelby to lead the left wing**: [Link](https://www.ysscores.com/en/news/4682018/Gomez-chooses-between-Konrad-and-Shelby-to-lead-the-left-wing)
+
+
 ### auxerre – brest (N/A, Fri, 27 Sep 2024 10:00:00 -0700)
 
 - **Le Havre / Lille en streaming direct et replay sur CANAL+**: [Link](https://www.canalplus.com/sport/le-havre-lille/h/26507402_50781)
