@@ -1,3 +1,13 @@
+### euphoria (N/A, Fri, 27 Sep 2024 14:30:00 -0700)
+
+- **Following canceled theatrical release, new movie ‘Wolfs’ premieres today on 
+Apple TV+**: [Link](https://9to5mac.com/2024/09/27/apple-tv-wolfs-premiere-today/)
+- **Brad Pitt and George Clooney are competing cleaners who must work together 
+to survive a botched job in the ...**: [Link](https://www.joblo.com/wolfs-trailer-2/)
+- **Austin Abrams has been jogging in his underwear with George Clooney and 
+Brad Pitt**: [Link](https://theface.com/culture/austin-abrams-has-been-jogging-in-his-underwear-in-front-of-george-clooney-and-brad-pitt-wolfs-interview)
+
+
 ### الاهلي (N/A, Fri, 27 Sep 2024 13:00:00 -0700)
 
 - **عدد مرات فوز الأهلي بالسوبر الأفريقي**: [Link](https://koraplus.com/Tag/74292/%D8%B9%D8%AF%D8%AF-%D9%85%D8%B1%D8%A7%D8%AA-%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A8%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A/1)
