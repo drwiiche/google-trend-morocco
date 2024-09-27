@@ -1,3 +1,18 @@
+### صفد (N/A, Fri, 27 Sep 2024 14:00:00 -0700)
+
+- **«حزب الله» يقصف صفد في أول هجوم بعد استهداف معقله ببيروت**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/%D8%A7%D9%84%D9%85%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/5065453-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D9%82%D8%B5%D9%81-%D8%B5%D9%81%D8%AF-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%85%D8%B9%D9%82%D9%84%D9%87-%D8%A8%D8%A8%D9%8A%D8%B1%D9%88%D8%AA)
+- **حزب الله يقصف صفد و"كريات آتا" بأكثر من 100 صاروخ**: [Link](https://www.almayadeen.net/episodes-tv/2024/9/26/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D9%82%D8%B5%D9%81-%D8%B5%D9%81%D8%AF-%D9%88-%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A2%D8%AA%D8%A7--%D8%A8%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-100-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE/%D8%B7%D9%88%D9%81%D8%A7%D9%86-%D8%A7%D9%84%D8%A3%D9%82%D8%B5%D9%89)
+- **«حزب الله» يستهدف مدينة صفد بثمانين صاروخاً ويمطر حيفا ومستوطنات بعشرات 
+الصواريخ**: [Link](https://www.alquds.co.uk/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%B5%D9%81%D8%AF-%D8%A8%D8%AB%D9%85%D8%A7%D9%86%D9%8A%D9%86-%D8%B5%D8%A7/)
+
+
+### الأهلي ضد الزمالك (N/A, Fri, 27 Sep 2024 11:50:00 -0700)
+
+- **بث مباشر: شاهد مباراة الأهلي والزمالك في السوبر الإفريقي 2024**: [Link](https://www.kooora.com/?n=1357598)
+- **الجنسيات المغربية تسيطر على جنسيات الأهلى والزمالك في مباراة السوبر الأفريقي**: [Link](https://www.almountakhab.com/node/16204790)
+- **تشكيلة الأهلي و الزمالك في كأس السوبر الأفريقي**: [Link](https://hihi2.com/2024/09/27/p2865840.html)
+
+
 ### dortmund (N/A, Fri, 27 Sep 2024 12:20:00 -0700)
 
 - **BVB-Star Jamie Gittens verletzt sich gegen den VfL Bochum**: [Link](https://sport.sky.de/fussball/artikel/bvb-star-jamie-gittens-verletzt-sich-gegen-den-vfl-bochum/13223294/34372)
