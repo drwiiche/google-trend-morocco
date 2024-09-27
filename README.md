@@ -1,3 +1,10 @@
+### الطقس اليوم (N/A, Thu, 26 Sep 2024 23:20:00 -0700)
+
+- **الأرصاد: أمطار متفرقة ورياح قوية ببعض مناطق المملكة اليوم الجمعة**: [Link](https://www.akhbarona.com/national/392838.html)
+- **نشرة إنذارية.. أمطار رعدية بعدد من المناطق**: [Link](https://www.analkhabar.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7/)
+- **طقس الخميس: نزول أمطار خفيفة مع استمرار الحر – اليوم 24**: [Link](https://alyaoum24.com/1917756.html)
+
+
 ### sarah knafo (N/A, Fri, 27 Sep 2024 03:40:00 -0700)
 
 - **La France a-t-elle versé 800 millions d’euros à l’Algérie comme l’affirme 
