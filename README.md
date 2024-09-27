@@ -1,3 +1,10 @@
+### ميلان ضد ليتشي (N/A, Fri, 27 Sep 2024 12:30:00 -0700)
+
+- **نتائج آخر 4 مباريات بين ميلان وليتشي**: [Link](https://hihi2.com/2024/09/27/p2864894.html)
+- **ليتشي في ضيافة ميلان المنتشي في افتتاحية الأسبوع 6 بالدوري الإيطالي**: [Link](https://koraplus.com/article/64396/%D9%84%D9%8A%D8%AA%D8%B4%D9%8A-%D9%81%D9%8A-%D8%B6%D9%8A%D8%A7%D9%81%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B4%D9%8A-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-6-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **ريبيتش سيبدأ أساسي لـ ليتشي ضد فريقه السابق الميلان**: [Link](https://milanreports.com/ar/2024/09/27/%D8%B1%D9%8A%D8%A8%D9%8A%D8%AA%D8%B4-%D8%B3%D9%8A%D8%A8%D8%AF%D8%A3-%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A-%D8%B6%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D9%86/)
+
+
 ### nasrallah (N/A, Fri, 27 Sep 2024 11:50:00 -0700)
 
 - **Israel says it targeted Hezbollah leader in strikes on Lebanese capital**: [Link](https://www.cnn.com/world/live-news/israel-lebanon-war-hezbollah-09-27-24/index.html)
