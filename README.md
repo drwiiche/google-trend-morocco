@@ -1,3 +1,12 @@
+### aljazeera (N/A, Thu, 26 Sep 2024 22:50:00 -0700)
+
+- **The Guardian view on Lebanon: hell is breaking loose – it can and must be 
+reined back**: [Link](https://www.theguardian.com/commentisfree/2024/sep/26/the-guardian-view-on-lebanon-hell-is-breaking-loose-it-can-and-must-be-reined-back)
+- **Hell Is Breaking Loose in Lebanon. Biden Could Stop It**: [Link](https://www.democracynow.org/2024/9/26/hell_is_breaking_loose_in_lebanon)
+- **Israel Is About to Embark on Yet Another Unavoidable 'War of Choice' - 
+Opinion**: [Link](https://www.haaretz.com/opinion/2024-09-26/ty-article-opinion/.premium/israel-is-about-to-embark-on-yet-another-unavoidable-war-of-choice/00000192-2a9b-d67f-a1ff-2fdb9f350000)
+
+
 ### طقس طنجة (N/A, Thu, 26 Sep 2024 21:20:00 -0700)
 
 - **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-9-1437225.html)
