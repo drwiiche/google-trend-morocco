@@ -1,3 +1,21 @@
+### maggie smith (N/A, Fri, 27 Sep 2024 06:40:00 -0700)
+
+- **Actress Dame Maggie Smith dies at 89**: [Link](https://www.bbc.com/news/articles/cgk7375ngkxo)
+- **Maggie Smith, ebullient scene-stealer of stage and screen, dies at 89**: [Link](https://www.washingtonpost.com/obituaries/2024/09/27/maggie-smith-actress-dies-dead-obituary/)
+- **Actress Maggie Smith, star of stage, film and ‘Downton Abbey,’ has died 
+aged 89**: [Link](https://apnews.com/article/actress-maggie-smith-dies-03a7b4143cc54b14bc7d9bca24ed1f9a)
+
+
+### sarah knafo algérie (N/A, Fri, 27 Sep 2024 06:40:00 -0700)
+
+- **La France a-t-elle versé 800 millions d’euros à l’Algérie comme l’affirme 
+Sarah Knafo ?**: [Link](https://www.lefigaro.fr/actualite-france/la-france-a-t-elle-verse-800-millions-a-l-algerie-comme-l-affirme-sarah-knafo-20240926)
+- **« Diffusion de fake news » : l’État algérien porte plainte contre Sarah 
+Knafo**: [Link](https://www.lepoint.fr/monde/diffusion-de-fake-news-l-etat-algerien-porte-plainte-contre-sarah-knafo-26-09-2024-2571268_24.php)
+- **L’Algérie porte plainte contre Sarah Knafo, compagne de Zemmour, pour fake 
+news**: [Link](https://www.jeuneafrique.com/1613522/politique/algerie-france-alger-porte-plainte-contre-sarah-knafo-compagne-de-zemmour-pour-fake-news/)
+
+
 ### osame sahraoui (N/A, Fri, 27 Sep 2024 04:50:00 -0700)
 
 
