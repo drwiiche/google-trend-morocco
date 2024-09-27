@@ -1,3 +1,10 @@
+### zamalek (N/A, Fri, 27 Sep 2024 12:00:00 -0700)
+
+- **A fiery criticism from Ibrahim Saeed to the Zamalek administration**: [Link](https://www.ysscores.com/en/news/4706714/A-fiery-criticism-from-Ibrahim-Saeed-to-the-Zamalek-administration)
+- **Zamalek VP's Son Confirms Ramos Talks**: [Link](https://www.snl24.com/soccerladuma/international/african-football/zamalek-vice-president-sons-ali-hisham-nasr-confirms-ramos-negotiations-20240927)
+- **Sergio Ramos in line to become next Egyptian king**: [Link](https://en.as.com/soccer/sergio-ramos-in-line-to-become-next-egyptian-king-n/)
+
+
 ### psg vs rennes (N/A, Fri, 27 Sep 2024 11:40:00 -0700)
 
 - **Friday's Ligue 1 predictions including PSG vs. Rennes**: [Link](https://www.sportsmole.co.uk/football/aj-auxerre/ligue-1-predictions/feature/fridays-ligue-1-predictions-including-psg-vs-rennes_553879.html)
