@@ -1,3 +1,12 @@
+### al-nassr fc – al wehda (N/A, Fri, 27 Sep 2024 07:30:00 -0700)
+
+- **Preview: Al-Nassr vs. Al Wahda - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/preview-al-nassr-vs-al-wahda-prediction-team-news-lineups_553825.html)
+- **‘Working hard’. Cristiano Ronaldo revealed how he is preparing for his next 
+match**: [Link](https://dailysports.net/news/working-hard-cristiano-ronaldo-revealed-how-he-is-preparing-for-his-next-match/)
+- **Al-Nassr vs Al-Wehda: Where and how to watch live Saudi Pro League 2024-25 
+Matchday 5**: [Link](https://bolavip.com/en/soccer/al-nassr-vs-al-wehda-where-and-how-to-watch-live-saudi-pro-league-2024-25-matchday-5)
+
+
 ### samsung galaxy s24 fe (N/A, Fri, 27 Sep 2024 06:20:00 -0700)
 
 - **Galaxy S24 Series Expands With S24 FE: A Premium Experience That Makes Full 
