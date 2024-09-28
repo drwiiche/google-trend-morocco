@@ -1,3 +1,17 @@
+### le havre – lille (N/A, Sat, 28 Sep 2024 10:20:00 -0700)
+
+- **Lens vs Nice LIVE: Ligue 1 latest score, goals and updates from fixture**: [Link](https://sports.yahoo.com/lens-vs-nice-live-ligue-130012577.html)
+- **Preview: Lens vs. Nice - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lens/preview/preview-lens-vs-nice-prediction-team-news-lineups_553862.html)
+- **Nice predicted XI vs Lens: Sofiane Diop and Hicham Boudaoui to start**: [Link](https://www.getfootballnewsfrance.com/2024/nice-predicted-xi-vs-lens-sofiane-diop-and-hicham-boudaoui-to-start/)
+
+
+### wac vs dhj (N/A, Sat, 28 Sep 2024 10:20:00 -0700)
+
+- **Botola Pro D1 "Inwi": Programme de la 4è journée**: [Link](https://fr.hespress.com/387856-botola-pro-d1-inwi-programme-de-la-4e-journee-2.html)
+- **Botola : le choc AS FAR-RS Berkane à l'affiche de la quatrième journée**: [Link](https://lematin.ma/sports/botola-le-choc-as-far-rs-berkane-a-laffiche-de-la-quatrieme-journee/244609)
+- **Botola Pro D1 : victoire de l'Ittihad Tanger face au Raja Casablanca**: [Link](https://www.menara.ma/fr/article/botola-pro-d1-victoire-de-littihad-tanger-face-au-raja-casablanca)
+
+
 ### al-kholood club – al-hilal (N/A, Sat, 28 Sep 2024 10:10:00 -0700)
 
 - **Preview: Al Kholood vs. Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-kholood/preview/preview-al-kholood-vs-al-hilal-prediction-team-news-lineups_553994.html)
