@@ -1,3 +1,18 @@
+### barca vs osasuna (N/A, Sat, 28 Sep 2024 12:50:00 -0700)
+
+- **Osasuna - Barcelona, en directo: partido de LaLiga EA Sports hoy, en vivo 
+online**: [Link](https://as.com/futbol/primera/osasuna-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Osasuna - FC Barcelona, en directo hoy: resultado y goles | LaLiga, en vivo**: [Link](https://www.sport.es/es/noticias/barca/osasuna-fc-barcelona-directo-hoy-108684044)
+- **El 1x1 del Barcelona ante Osasuna al descanso**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240928/1002324000/1x1-barcelona-osasuna-descanso.html)
+
+
+### osasuna – fc barcelone : composition (N/A, Sat, 28 Sep 2024 12:40:00 -0700)
+
+- **Osasuna 4-2 FC Barcelone, La Liga : résumé du match (28/09/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/osasuna-fc-barcelone-live/657352)
+- **La Liga : La double boulette du gardien d'Osasuna permet au Barça d'espérer**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/la-liga-la-double-boulette-du-gardien-d-osasuna-permet-au-bar%C3%A7a-d-esp%C3%A9rer-2024-09-28)
+- **Liga : le Barça explose à Osasuna et concède sa première défaite**: [Link](https://www.footmercato.net/a3112497755351558680-liga-le-barca-explose-a-osasuna-et-concede-sa-premiere-defaite)
+
+
 ### la liga standings (N/A, Sat, 28 Sep 2024 14:10:00 -0700)
 
 - **This is the LaLiga EA Sports classification after matchday 7**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/this-is-classification-laliga-ea-sports-seventh-day_307530_102.html)
