@@ -1,3 +1,15 @@
+### détournement kiabi (N/A, Fri, 27 Sep 2024 18:50:00 -0700)
+
+
+
+
+### الجزيرة (N/A, Fri, 27 Sep 2024 12:40:00 -0700)
+
+- **غموض حول مصير نصر الله و30 غارة إسرائيلية على الضاحية**: [Link](https://www.aljazeera.net/news/2024/9/28/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-7-%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9)
+- **بالفيديو.. غارات إسرائيلية عنيفة على الضاحية الجنوبية لبيروت**: [Link](https://www.skynewsarabia.com/middle-east/1744695-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84%D9%8A%D8%A9-%D8%B9%D9%86%D9%8A%D9%81%D8%A9-%D8%A7%D9%84%D8%B6%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9-%D9%84%D8%A8%D9%8A%D8%B1%D9%88%D8%AA)
+- **إسرائيل: نصر الله المستهدَف من الغارة**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%87%D8%AF%D9%8E%D9%81-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D8%A7%D8%B1%D8%A9-1438217.html)
+
+
 ### dortmund vs vfl bochum (N/A, Fri, 27 Sep 2024 13:50:00 -0700)
 
 - **Dortmund 4-2 Bochum (Sep 27, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/711469)
