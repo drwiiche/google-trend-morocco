@@ -1,3 +1,30 @@
+### laliga (N/A, Sat, 28 Sep 2024 13:40:00 -0700)
+
+- **LALIGA North America Announces Groundbreaking Partnership with TickPick to 
+Elevate Matchday Experiences in North America; Becomes Official Ticketing 
+Partner of LALIGA North America**: [Link](https://www.laliga.com/en-US/news/laliga-north-america-announces-groundbreaking-partnership-with-tickpick-to-elevate-matchday-experiences-in-north-america-becomes-official-ticketing-partner-of-laliga-north-america)
+- **Atletico Madrid v Real Madrid: Conor Gallagher leading hosts into new-look 
+derby**: [Link](https://www.bbc.com/sport/football/articles/c17lwg8eynwo)
+- **‘Pitbull’ Gallagher on course for duel with Bellingham in Madrid derby**: [Link](https://www.theguardian.com/football/2024/sep/28/conor-gallagher-jude-bellingham-real-madrid-atletico-derby)
+
+
+### ufc paris (N/A, Sat, 28 Sep 2024 13:40:00 -0700)
+
+- **Benoit Saint Denis has ‘absolutely no regrets’ fighting Dustin Poirier at 
+UFC 299 despite staph infection**: [Link](https://www.mmafighting.com/2024/9/27/24254453/benoit-saint-denis-has-absolutely-no-regrets-going-through-with-ufc-299-dustin-poirier)
+- **Renato Moicano Says He's Ready To Stop Benoit Saint-Denis's Rise To The Top**: [Link](https://www.tmz.com/2024/09/28/renato-moicano-benoit-saint-denis-ufc/)
+- **UFC Paris: Weigh-In Results With All Bouts Going Ahead**: [Link](https://fightersonly.com/article/ext/87625)
+
+
+### barca (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
+
+- **Barcelona plan on transfer-listing heavyweight if there is no response to 
+renewal offer**: [Link](https://barcauniversal.com/barcelona-plan-on-transfer-listing-heavyweight-if-there-is-no-response-to-renewal-offer/)
+- **Barcelona agree Frenkie de Jong wage deal to force exit – report**: [Link](https://www.football-espana.net/2024/09/27/barcelona-frenkie-de-jong-wage-deal-exit)
+- **Erik ten Hag's long-term Manchester United target looks set for exit next 
+summer amid wage agreement**: [Link](https://reddevilarmada.com/posts/erik-ten-hag-s-long-term-manchester-united-looks-set-for-exit-next-summer-amid-wage-agreement)
+
+
 ### monaco vs montpellier (N/A, Sat, 28 Sep 2024 13:30:00 -0700)
 
 - **Preview: Monaco vs. Montpellier HSC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/as-monaco/preview/preview-monaco-vs-montpellier-prediction-team-news-lineups_553960.html)
