@@ -1,3 +1,12 @@
+### willem ii – psv eindhoven (N/A, Sat, 28 Sep 2024 09:20:00 -0700)
+
+- **Ivan Perišić to make PSV debut as Luuk de Jong and Johan Bakayoko drop to 
+the bench against Willem II**: [Link](https://sports.yahoo.com/ivan-peri-psv-debut-luuk-134400471.html)
+- **Preview: Willem II vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/willem-ii/preview/preview-willem-ii-vs-psv-prediction-team-news-lineups_553977.html)
+- **Ivan Perišić to make PSV debut as Luuk de Jong and Johan Bakayoko drop to 
+the bench against Willem II**: [Link](https://onefootball.com/en/news/ivan-perisic-to-make-psv-debut-as-luuk-de-jong-and-johan-bakayoko-drop-to-the-bench-against-willem-ii-40097553)
+
+
 ### genoa – juventus (N/A, Sat, 28 Sep 2024 09:10:00 -0700)
 
 - **Juve, ecco Rouhi: chi è lo svedese che giocherà titolare contro il Genoa e 
