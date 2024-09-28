@@ -1,3 +1,10 @@
+### classement liga (N/A, Sat, 28 Sep 2024 13:50:00 -0700)
+
+- **Osasuna 4-2 FC Barcelone, La Liga : résumé du match (28/09/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/osasuna-fc-barcelone-live/657352)
+- **Barça : le craquage de Pedri contre l’arbitrage**: [Link](https://www.footmercato.net/a8362562016805120318-barca-le-craquage-de-pedri-contre-larbitrage)
+- **La Liga : Un Barça remanié se fait terrasser par Osasuna**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/la-liga-un-bar%C3%A7a-remani%C3%A9-se-fait-terrasser-par-osasuna-2024-09-28)
+
+
 ### لا ليغا (N/A, Sat, 28 Sep 2024 13:40:00 -0700)
 
 - **كيف نجح يامال في إحراج أنشيلوتي ونجوم ريال مدريد؟**: [Link](https://www.alquds.co.uk/%D9%83%D9%8A%D9%81-%D9%86%D8%AC%D8%AD-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D8%A5%D8%AD%D8%B1%D8%A7%D8%AC-%D8%A3%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%88%D9%86%D8%AC%D9%88%D9%85-%D8%B1/)
