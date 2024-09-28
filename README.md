@@ -1,3 +1,11 @@
+### eric adams new york (N/A, Sat, 28 Sep 2024 02:40:00 -0700)
+
+- **NYC Mayor Eric Adams indicted on 5 federal public corruption charges, 
+including bribery and wire fraud**: [Link](https://www.cnn.com/2024/09/25/us/new-york-city-mayor-eric-adams-indicted/index.html)
+- **U.S. Inquiry Into N.Y. Mayor’s Foreign Ties Said to Include 6 Countries**: [Link](https://www.nytimes.com/2024/09/23/nyregion/fbi-adams-qatar-israel-china-uzbekistan-korea.html)
+- **What we know about the investigations surrounding New York City’s mayor**: [Link](https://apnews.com/article/new-york-mayor-eric-adams-federal-prosecutors-2887c1f2e7097cb19b17a7d2659135bb)
+
+
 ### p diddy (N/A, Sat, 28 Sep 2024 01:00:00 -0700)
 
 - **Sean 'Diddy' Combs: Woman accuses rapper of further sexual assault 
