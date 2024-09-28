@@ -1,3 +1,24 @@
+### هاشم صفي الدين (N/A, Sat, 28 Sep 2024 01:40:00 -0700)
+
+- **صهر قاسم سليماني... من هو هاشم صفي الدين أبرز مرشح لخلافة نصر الله؟**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/%D8%A7%D9%84%D9%85%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/5065494-%D8%B5%D9%87%D8%B1-%D9%82%D8%A7%D8%B3%D9%85-%D8%B3%D9%84%D9%8A%D9%85%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D9%87%D9%88-%D9%87%D8%A7%D8%B4%D9%85-%D8%B5%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A3%D8%A8%D8%B1%D8%B2-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D9%84%D9%87)
+- **نتنياهو: يجب أن نواصل الطريق الذي مهدناه باتفاقات إبراهيم وهذا يعني إبرام 
+إتفاق سلام تاريخي بين إسرائيل والسعودية**: [Link](https://www.lbcgroup.tv/news/breaking-news/799248/%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D8%AC%D8%A8-%D8%A3%D9%86-%D9%86%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D8%B0%D9%8A-%D9%85%D9%87%D8%AF%D9%86%D8%A7%D9%87-%D8%A8%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D8%A7%D8%AA-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D9%88%D9%87%D8%B0%D8%A7-%D9%8A%D8%B9%D9%86%D9%8A-%D8%A5%D8%A8%D8%B1/ar)
+- **مصدر بحزب الله لـ"رويترز": رئيس الهيئة التنفيذية في حزب الله السيد هاشم صفي 
+الدين على قيد الحياة**: [Link](https://www.elnashra.com/news/show/1687096/%D9%85%D8%B5%D8%AF%D8%B1-%D8%A8%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%84%D9%80%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%87%D9%8A%D8%A6%D8%A9-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D9%8A%D8%B0%D9%8A%D8%A9-%D8%AD%D8%B2%D8%A8-)
+
+
+### almanar (N/A, Sat, 28 Sep 2024 01:00:00 -0700)
+
+
+
+
+### al jazeera live (N/A, Fri, 27 Sep 2024 23:10:00 -0700)
+
+- **Israel attacks Lebanon: Israel claims killing of Hezbollah’s Nasrallah**: [Link](https://www.aljazeera.com/news/liveblog/2024/9/28/israel-attacks-lebanon-deaths-mount-as-beirut-buildings-bombed-to)
+- **Israel says it has killed Hezbollah leader Hassan Nasrallah**: [Link](https://www.theguardian.com/world/2024/sep/28/israel-says-it-has-killed-hezbollah-leader-hassan-nasrallah)
+- **Hezbollah leader Hassan Nasrallah killed in strike, Israeli army says**: [Link](https://www.cnbc.com/2024/09/28/hezbollah-leader-hassan-nasrallah-killed-in-strike-israeli-army-says.html)
+
+
 ### ea sports fc 25 (N/A, Sat, 28 Sep 2024 00:40:00 -0700)
 
 - **The 8 Man Utd youngsters with an 80+ potential in EA FC 25: Garnacho, 
