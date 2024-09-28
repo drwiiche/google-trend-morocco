@@ -1,3 +1,8 @@
+### botola pro (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
+
+- **Rulani Moves Into 2nd Spot**: [Link](https://www.idiskitimes.co.za/uncategorized/rulani-moves-into-2nd-spot/)
+
+
 ### barca vs osasuna (N/A, Sat, 28 Sep 2024 12:50:00 -0700)
 
 - **Osasuna - Barcelona, en directo: partido de LaLiga EA Sports hoy, en vivo 
