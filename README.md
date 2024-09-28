@@ -1,3 +1,13 @@
+### barca vs (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
+
+- **Iñaki Peña debutó en el arco azulgrana esta temporada tras la lesión de Ter 
+Stegen**: [Link](https://fdpradio.com/inaki-pena-debuto-en-el-arco-azulgrana-esta-temporada-tras-la-lesion-de-ter-stegen/)
+- **Con 7mo gol de Lewandowski, Barcelona vence 1-0 a Getafe y sigue con paso 
+perfecto en España**: [Link](https://apnews.com/sports/deportes-f418969dbebd533cf66f06ea33597f92)
+- **El perfecto inicio del Barça de Flick en La Liga: Resultado y goles de 
+Barcelona vs. Getafe**: [Link](https://www.sportingnews.com/us-es/la-liga/news/perfecto-inicio-barca-resultado-vs-getafe-gol-video/9b490301dba577e283d8d4c4)
+
+
 ### laliga (N/A, Sat, 28 Sep 2024 13:40:00 -0700)
 
 - **LALIGA North America Announces Groundbreaking Partnership with TickPick to 
