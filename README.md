@@ -1,3 +1,17 @@
+### premier league standings (N/A, Sat, 28 Sep 2024 09:40:00 -0700)
+
+- **Eight talking points ahead of the Premier League weekend**: [Link](https://thefootballfaithful.com/talking-points-ahead-of-the-premier-league-weekend-rodri-lopetegui-man-united/)
+- **EPL: 4 matches we could see shock results this weekend**: [Link](https://dailypost.ng/2024/09/28/epl-4-matches-we-could-see-shock-results-this-weekend-13/)
+- **Premier League commentators on NBC: Sep. 28 to 30**: [Link](https://worldsoccertalk.com/tv/premier-league-commentators-on-nbc-sep-28-to-30/)
+
+
+### premier league (N/A, Sat, 28 Sep 2024 08:20:00 -0700)
+
+- **Latest. Isak doubtful to face Premier League champions, says Howe**: [Link](https://www.newcastleunited.com/en/news/isak-doubtful-to-face-premier-league-champions-says-howe)
+- **Man City (H) Pre-match thoughts, team news, possible line up and prediction**: [Link](https://www.nufcblog.co.uk/2024/09/27/man-city-h-pre-match-thoughts-team-news-possible-line-up-and-prediction/)
+- **Alexander Isak out of Newcastle's Carabao Cup game with AFC Wimbledon**: [Link](https://www.thenorthernecho.co.uk/sport/24616463.alexander-isak-newcastles-carabao-cup-game-afc-wimbledon/)
+
+
 ### willem ii – psv eindhoven (N/A, Sat, 28 Sep 2024 09:20:00 -0700)
 
 - **Ivan Perišić to make PSV debut as Luuk de Jong and Johan Bakayoko drop to 
