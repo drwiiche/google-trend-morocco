@@ -1,3 +1,10 @@
+### arsenal (N/A, Sat, 28 Sep 2024 07:20:00 -0700)
+
+- **Pep Guardiola furious at Arteta’s claim he has ‘all the information’ on City**: [Link](https://www.theguardian.com/football/2024/sep/27/manchester-city-arsenal-pep-guardiola-mikel-arteta-have-all-the-information)
+- **Pep Guardiola: Man City boss says he's been provoked into bigger Arsenal rivalry**: [Link](https://www.bbc.com/sport/football/articles/cg785r19p8mo)
+- **Guardiola Declares "War" on Arteta**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/guardiola-declares-war-on-arteta-2024-09-28)
+
+
 ### rayo – leganés (N/A, Sat, 28 Sep 2024 06:50:00 -0700)
 
 - **Rayo – Leganés: las posibles alineaciones**: [Link](https://magazine.comunio.es/rayo-leganes-las-posibles-alineaciones/)
