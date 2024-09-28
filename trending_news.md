@@ -1,3 +1,13 @@
+### robert bourgi (N/A, Fri, 27 Sep 2024 15:50:00 -0700)
+
+- **"Nicolas Sarkozy m'a dit : 'Je vais vitrifier Laurent Gbagbo'", rapporte 
+l'avocat Robert Bourgi**: [Link](https://www.france24.com/fr/%C3%A9missions/en-t%C3%AAte-%C3%A0-t%C3%AAte/20240926-nicolas-sarkozy-m-a-dit-je-vais-vitrifier-laurent-gbagbo-rapporte-l-avocat-robert-bourgia)
+- **Robert Bourgi: «Les présidents africains finançaient toute la classe 
+politique française»**: [Link](https://www.lefigaro.fr/international/robert-bourgi-les-presidents-africains-financaient-toute-la-classe-politique-francaise-20240925)
+- **Côte d'Ivoire : 13 ans après la crise post-électorale, les révélations du « 
+controversé » Robert Bourgi l'un des piliers de la « Françafrique »**: [Link](https://www.koaci.com/index.php/article/2024/09/27/cote-divoire/Politique/cote-divoire-13-ans-apres-la-crise-post-electorale-les-revelations-du-controverse-robert-bourgi-lun-des-piliers-de-la-francafrique_181205.html)
+
+
 ### détournement kiabi (N/A, Fri, 27 Sep 2024 18:50:00 -0700)
 
 
