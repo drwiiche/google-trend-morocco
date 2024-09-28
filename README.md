@@ -1,3 +1,17 @@
+### la liga standings (N/A, Sat, 28 Sep 2024 14:10:00 -0700)
+
+- **This is the LaLiga EA Sports classification after matchday 7**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/this-is-classification-laliga-ea-sports-seventh-day_307530_102.html)
+- **La Liga 2024-25 top scorers: Tracking the Pichichi race**: [Link](https://prosoccerwire.usatoday.com/story/sports/2024/09/23/la-liga-2024-25-top-scorers-tracking-pichichi-race/75347209007/)
+- **Lewandowski helps Liga leaders Barca past Getafe**: [Link](https://www.beinsports.com/en-mena/football/la-liga/articles-video/lewandowski-helps-liga-leaders-barca-past-getafe-2024-09-25)
+
+
+### حسن خليل ياسين (N/A, Sat, 28 Sep 2024 14:00:00 -0700)
+
+- **إسرائيل تعلن اغتيال قائد الوحدة الصاروخية بحزب الله ونائبه**: [Link](https://www.aljazeera.net/news/2024/9/28/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D9%81%D9%86%D8%A7-%D9%82%D8%A7%D8%A6%D8%AF)
+- **"ضربة دقيقة" من إسرائيل على الضاحية الجنوبية.. وهذا الهدف**: [Link](https://www.skynewsarabia.com/middle-east/1744825-%D8%B6%D8%B1%D8%A8%D8%A9-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84-%D8%A7%D9%84%D8%B6%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9-%D9%88%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%87%D8%AF%D9%81)
+- **قائد الجبهة الجنوبية بحزب الله.. ما لانعرفه عن علي كركي**: [Link](https://www.alarabiya.net/arab-and-world/2024/09/28/%D9%82%D8%A7%D8%A6%D8%AF-%D8%A7%D9%84%D8%AC%D8%A8%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9-%D8%A8%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%85%D8%A7-%D9%84%D8%A7%D9%86%D8%B9%D8%B1%D9%81%D9%87-%D8%B9%D9%86-%D8%B9%D9%84%D9%8A-%D9%83%D8%B1%D9%83%D9%8A)
+
+
 ### barca vs (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
 
 - **Iñaki Peña debutó en el arco azulgrana esta temporada tras la lesión de Ter 
