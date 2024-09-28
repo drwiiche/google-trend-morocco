@@ -1,3 +1,18 @@
+### rayo – leganés (N/A, Sat, 28 Sep 2024 06:50:00 -0700)
+
+- **Rayo – Leganés: las posibles alineaciones**: [Link](https://magazine.comunio.es/rayo-leganes-las-posibles-alineaciones/)
+- **Análisis Rival: "El Leganés busca la primera victoria a domicilio"**: [Link](https://unionrayo.com/analisis-rival-el-leganes-busca-la-primera-victoria-a-domicilio/)
+- **Esconde el debate Dmitrovic - Juan Soriano y admite el enfado del Leganés 
+con el Rayo Vallecano**: [Link](https://www.estadiodeportivo.com/futbol/leganes/esconde-debate-dmitrovic-juan-soriano-admite-enfado-del-leganes-con-rayo-vallecano-20240927-465581.html)
+
+
+### آرسنال ضد ليستر سيتي (N/A, Sat, 28 Sep 2024 06:50:00 -0700)
+
+- **أرتيتا متجاهلاً مع حدث أمام السيتي: أحب جوارديولا.. ومعجب بفريقه**: [Link](https://www.kooora.com/?n=1357607)
+- **تشكيلة أرسنال الرسمية لمواجهة ليستر سيتي في الدوري الإسباني**: [Link](https://hihi2.com/2024/09/28/p2866843.html)
+- **بطولة إنكلترا: أرتيتا ما زال "يحب" غوارديولا رغم حدّة المنافسة**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20240927-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%85%D8%A7-%D8%B2%D8%A7%D9%84-%D9%8A%D8%AD%D8%A8-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B1%D8%BA%D9%85-%D8%AD%D8%AF%D9%91%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9)
+
+
 ### everton – crystal palace (N/A, Sat, 28 Sep 2024 06:40:00 -0700)
 
 - **Oliver Glasner delivers injury news ahead of Everton – Crystal Palace 
