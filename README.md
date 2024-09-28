@@ -1,3 +1,10 @@
+### لا ليغا (N/A, Sat, 28 Sep 2024 13:40:00 -0700)
+
+- **كيف نجح يامال في إحراج أنشيلوتي ونجوم ريال مدريد؟**: [Link](https://www.alquds.co.uk/%D9%83%D9%8A%D9%81-%D9%86%D8%AC%D8%AD-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D8%A5%D8%AD%D8%B1%D8%A7%D8%AC-%D8%A3%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%88%D9%86%D8%AC%D9%88%D9%85-%D8%B1/)
+- **إحصائيات لامين جمال أمام فياريال**: [Link](https://hihi2.com/2024/09/22/p2859126.html)
+- **لامين يامال يتربع على قائمة اللاعبين الأكثر تسجيلًا للأهداف في الدوري الإسباني 2025/2024 بعد انتهاء الجولة السادسة**: [Link](https://atlassport.ps/11988/%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AA%D8%B1%D8%A8%D8%B9-%D8%B9%D9%84%D9%89-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A7/)
+
+
 ### botola pro (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
 
 - **Rulani Moves Into 2nd Spot**: [Link](https://www.idiskitimes.co.za/uncategorized/rulani-moves-into-2nd-spot/)
