@@ -1,3 +1,12 @@
+### monaco fc (N/A, Sat, 28 Sep 2024 13:00:00 -0700)
+
+- **Preview: Monaco vs. Montpellier HSC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/as-monaco/preview/preview-monaco-vs-montpellier-prediction-team-news-lineups_553960.html)
+- **Monaco vs Montpellier Prediction, 9/28/2024 Ligue 1 Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/monaco-vs-montpellier-prediction-9-28-2024-ligue-1-soccer-pick-tips-and-odds.html)
+- **Monaco predicted XI v Montpellier: Adi Hütter set to rotate once again for 
+centenary match**: [Link](https://www.getfootballnewsfrance.com/2024/monaco-predicted-xi-v-montpellier-adi-hutter-set-to-rotate-once-again-for-centenary-match/)
+
+
 ### barcelona (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
 
 - **Osasuna - Barcelona, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/osasuna-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
