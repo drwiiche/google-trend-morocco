@@ -1,3 +1,10 @@
+### maroc vs brazil futsal (N/A, Sat, 28 Sep 2024 04:30:00 -0700)
+
+- **L’œil de Gueddar. Mondial Futsal: Dguig & poulains en route vers la gloire**: [Link](https://fr.le360.ma/medias/loeil-de-gueddar-mondial-futsal-dguig-poulains-en-route-vers-la-gloire_B7O7AV42CBCMHJERR3ZKMVJYA4/)
+- **Hicham Dguig : Les Lions de l'Atlas ont joué avec passion face à l'Iran**: [Link](https://fr.hespress.com/387735-hicham-dguig-les-lions-de-latlas-ont-joue-avec-passion-face-a-liran.html)
+- **Mondial de futsal : Maroc-Brésil, le rendez-vous des Lions de l’Atlas avec l’histoire**: [Link](https://lematin.ma/sports/mondial-de-futsal-maroc-bresil-le-rendez-vous-des-lions-avec-lhistoire/244606)
+
+
 ### getafe – deportivo alavés (N/A, Sat, 28 Sep 2024 04:10:00 -0700)
 
 - **Álvaro Rodríguez y Nabil Aberdin, novedades en la convocatoria**: [Link](https://www.futbolfantasy.com/laliga/noticias/120331-alvaro-rodriguez-y-nabil-aberdin-novedades-en-la-convocatoria)
