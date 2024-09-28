@@ -1,3 +1,13 @@
+### everton – crystal palace (N/A, Sat, 28 Sep 2024 06:40:00 -0700)
+
+- **Oliver Glasner delivers injury news ahead of Everton – Crystal Palace 
+defender to miss out with hamstring injury but Chelsea loanee ready for 
+debut**: [Link](https://londonnewsonline.co.uk/sport/oliver-glasner-delivers-injury-news-ahead-of-everton-crystal-palace-defender-to-miss-out-with-hamstring-injury-but-chelsea-loanee-ready-for-debut/)
+- **Chris Richards suffers hamstring injury but Trevoh Chalobah could make 
+Crystal Palace debut against Everton**: [Link](https://www.nytimes.com/athletic/5799235/2024/09/27/crystal-palace-chris-richards-injury/)
+- **Everton vs Crystal Palace prediction, odds and betting offer**: [Link](https://www.mirror.co.uk/betting/football/everton-vs-crystal-palace-prediction-33766607)
+
+
 ### brentford – west ham (N/A, Sat, 28 Sep 2024 06:30:00 -0700)
 
 - **Paul Merson has warning for Nottingham Forest ahead of Fulham match and 
