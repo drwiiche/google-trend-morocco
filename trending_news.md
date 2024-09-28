@@ -1,3 +1,26 @@
+### monaco – montpellier (N/A, Sat, 28 Sep 2024 11:30:00 -0700)
+
+- **Quand les célébrations permettent aux clubs de Ligue 1 d’arrondir leurs 
+fins de mois**: [Link](https://www.lemonde.fr/sport/article/2024/09/28/joyeux-anniversaire-quand-les-celebrations-permettent-aux-clubs-de-ligue-1-d-arrondir-leurs-fins-de-mois_6337635_3242.html)
+- **Le groupe monégasque : Minamino et Magassa absents**: [Link](https://www.ladiagonale.net/index.php/2024/09/28/le-groupe-monegasque-minamino-et-magassa-absents/)
+- **ASM-MHSC : Les compositions**: [Link](https://asm-supporters.fr/actualites/60190-asm-mhsc-les-compositions-6)
+
+
+### الوداد (N/A, Sat, 28 Sep 2024 11:30:00 -0700)
+
+- **الموت يفجع حركاس قبل مباراة الوداد الرياضي ضد الدفاع الجديدي**: [Link](https://ar.hibapress.com/details-556299.html)
+- **المطيع يتخلص من الآلام.. وحدث غير مسبوق أمام الدفاع الجديدي**: [Link](https://www.kooora.com/?n=1357199)
+- **البرازيليان آرثور وفيانا حاضران رفقة الوداد أمام الدفاع الحسني الجديدي 
+وموكوينا يستيعد بوشتة وأونزو**: [Link](https://m.elbotola.com/article/2024-09-28-11-27-584.html)
+
+
+### wydad (N/A, Sat, 28 Sep 2024 11:10:00 -0700)
+
+- **Botola Pro D1 "Inwi": Programme de la 4è journée**: [Link](https://fr.hespress.com/387856-botola-pro-d1-inwi-programme-de-la-4e-journee-2.html)
+- **Botola : le choc AS FAR-RS Berkane à l'affiche de la quatrième journée**: [Link](https://lematin.ma/sports/botola-le-choc-as-far-rs-berkane-a-laffiche-de-la-quatrieme-journee/244609)
+- **Botola Pro D1 Inwi: la RCAZ enfonce le SCCM**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-la-rcaz-enfonce-le-sccm_W5M2PBED4NDTVBKOFXRX2YVAHI/)
+
+
 ### الخلود ضد الهلال (N/A, Sat, 28 Sep 2024 11:20:00 -0700)
 
 - **شرطي يوناني يدير مباراة الهلال والخلود**: [Link](https://www.kooora.com/?n=1357773)
