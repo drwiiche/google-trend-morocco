@@ -1,3 +1,12 @@
+### p diddy (N/A, Sat, 28 Sep 2024 01:00:00 -0700)
+
+- **Sean 'Diddy' Combs: Woman accuses rapper of further sexual assault 
+allegations in new lawsuit**: [Link](https://news.sky.com/story/sean-diddy-combs-woman-accuses-rapper-of-further-sexual-assault-allegations-in-new-lawsuit-13223388)
+- **Diddy's Lawyer Explains Baby Oil Volume Connected to 'Freak Offs'**: [Link](https://www.tmz.com/2024/09/25/diddy-lawyer-explains-baby-oil-costco/)
+- **Sean ‘Diddy’ Combs’ lawyer blames Costco for 1,000 bottles of baby oil: ‘He 
+buys in bulk’**: [Link](https://nypost.com/2024/09/25/entertainment/sean-diddy-combs-lawyer-blames-costco-for-1000-bottles-of-baby-oil/)
+
+
 ### قناة المنار (N/A, Sat, 28 Sep 2024 01:40:00 -0700)
 
 - **قائد الجبهة الجنوبية بحزب الله.. ما لانعرفه عن علي كركي**: [Link](https://www.alarabiya.net/arab-and-world/2024/09/28/%D9%82%D8%A7%D8%A6%D8%AF-%D8%A7%D9%84%D8%AC%D8%A8%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9-%D8%A8%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%85%D8%A7-%D9%84%D8%A7%D9%86%D8%B9%D8%B1%D9%81%D9%87-%D8%B9%D9%86-%D8%B9%D9%84%D9%8A-%D9%83%D8%B1%D9%83%D9%8A)
