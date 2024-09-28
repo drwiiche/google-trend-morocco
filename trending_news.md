@@ -1,3 +1,26 @@
+### البايرن ضد ليفركوزن (N/A, Sat, 28 Sep 2024 09:00:00 -0700)
+
+- **سجل مثالي لتشابي ألونسو أمام بايرن ميونخ**: [Link](https://hihi2.com/2024/09/28/p2866754.html)
+- **كومباني: بايرن سيستمتع باختبار قدراته أمام البطل ليفركوزن**: [Link](https://www.menara.ma/article/%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%B3%D9%8A%D8%B3%D8%AA%D9%85%D8%AA%D8%B9-%D8%A8%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D9%82%D8%AF%D8%B1%D8%A7%D8%AA%D9%87)
+- **المدير الرياضي لليفركوزن يتوقع نهاية هيمنة بايرن ميونخ**: [Link](https://www.kooora.com/?n=1357627)
+
+
+### bayern – leverkusen (N/A, Sat, 28 Sep 2024 08:50:00 -0700)
+
+- **Matthäus: „Bei Musiala darf Bayern keine Schmerzgrenze haben!“**: [Link](https://www.bild.de/sport/fussball/lothar-spricht-ueber-den-bundesliga-kracher-matthaeus-bei-musiala-darf-bayern-keine-schmerzgrenze-haben-66f6a7c2ee5af53f9b204af6)
+- **Liveblog mit Stimmen von Kompany und Alonso, Aufstellungen - alle Infos zu 
+FC Bayern gegen Bayer Leverkusen**: [Link](https://sport.sky.de/fussball/artikel/liveblog-mit-stimmen-von-kompany-und-alonso-aufstellungen-alle-infos-zu-fc-bayern-gegen-bayer-leverkusen/13222781/34240)
+- **Kießling: Gegentorflut "kein Grund, an Leverkusen zu zweifeln"**: [Link](https://www.sport1.de/news/fussball/bundesliga/2024/09/kiessling-gegentorflut-kein-grund-an-leverkusen-zu-zweifeln)
+
+
+### الدوري الانجليزي (N/A, Sat, 28 Sep 2024 07:50:00 -0700)
+
+- **غيابات ليفربول أمام وولفرهامبتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/09/28/p2866237.html)
+- **موعد مباراة وولفرهامبتون وليفربول في الدوري الإنجليزي 2024-2025 والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1357373)
+- **أبرز المباريات العربية والعالمية اليوم السبت**: [Link](https://24.ae/article/847040/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA)
+
+
 ### real sociedad – valence (N/A, Sat, 28 Sep 2024 08:40:00 -0700)
 
 - **DIRECT. Real Sociedad-Valence CF (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-sociedad-valence-cf-live/657357)
