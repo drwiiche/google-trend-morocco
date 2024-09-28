@@ -1,3 +1,12 @@
+### man city (N/A, Sat, 28 Sep 2024 05:50:00 -0700)
+
+- **Manchester City eye Torino’s Samuele Ricci after Rodri is ruled out for 
+season**: [Link](https://www.theguardian.com/football/2024/sep/27/rodri-ruled-out-for-the-rest-of-the-season-for-manchester-city-with-acl-injury)
+- **Rodri: Manchester City midfielder ruled out for season after ACL surgery**: [Link](https://www.bbc.com/sport/football/articles/cp3wlwdkj41o)
+- **Rodri injury: Man City boss Pep Guardiola confirms midfielder's season is 
+over**: [Link](https://www.skysports.com/football/news/11095/13222993/rodri-injury-man-city-boss-pep-guardioal-confirms-midfielders-season-is-over)
+
+
 ### udinese – inter (N/A, Sat, 28 Sep 2024 05:20:00 -0700)
 
 - **GdS - Taremi in Champions, Inzaghi punta ancora su Thuram e Lautaro: due motivi spiegano la scelta**: [Link](https://www.fcinternews.it/focus/i-gds-i-taremi-in-champions-inzaghi-punta-ancora-su-thuram-e-lautaro-due-motivi-spiegano-la-scelta-964821)
