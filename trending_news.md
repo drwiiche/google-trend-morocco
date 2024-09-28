@@ -1,3 +1,31 @@
+### barcelona (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
+
+- **Osasuna - Barcelona, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/osasuna-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Tres ausencias sonadas y varias rotaciones en el once del Barça ante Osasuna**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240928/1002323994/tres-ausencias-sonadas-once-barca-osasuna.html)
+- **Lista con cuatro que doblan**: [Link](https://www.sport.es/es/noticias/barca/lista-cuatro-doblan-108669086)
+
+
+### fc barcelone (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
+
+- **CA Osasuna - FC Barcelone en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-ca-osasuna-fc-barcelone_mtc1524234/live-commentary.shtml)
+- **Osasuna-FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a7485195926073005966-osasuna-fc-barcelone-les-compositions-officielles)
+- **DIRECT. Osasuna-FC Barcelone (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/osasuna-fc-barcelone-live/657352)
+
+
+### برشلونة (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
+
+- **برشلونة فليك يسعى لمعادلة الرقم القياسي التاريخي للنادي**: [Link](https://hihi2.com/2024/09/28/p2867061.html)
+- **الغيابات تضرب قائمة برشلونة أمام أوساسونا**: [Link](https://www.kooora.com/?n=1357757)
+- **مباشر مباراة برشلونة ضد أوساسونا في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/28/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%81%D9%8A)
+
+
+### ترتيب الدوري الاسباني (N/A, Sat, 28 Sep 2024 12:30:00 -0700)
+
+- **مسيرة برشلونة في الليغا هذا الموسم … مثيرة للإعجاب**: [Link](https://hihi2.com/2024/09/26/p2863691.html)
+- **ترتيب هدافي الدوري الإسباني بعد ثنائية ليفاندوفسكي ورافينها وهدف مبابي**: [Link](https://www.btolat.com/news/353488)
+- **كيليان مبابي يشعل صراع ترتيب هدافي الدوري الإسباني بهدف جديد**: [Link](https://almashhad.com/article/218257510540304-sports/256360966503847-%D9%83%D9%8A%D9%84%D9%8A%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B4%D8%B9%D9%84-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%A8%D9%87%D8%AF%D9%81-%D8%AC%D8%AF%D9%8A%D8%AF/)
+
+
 ### bologne – atalanta (N/A, Sat, 28 Sep 2024 12:00:00 -0700)
 
 - **DIRECT. Bologne-Atalanta Bergame (Serie A 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2024-2025/bologne-atalanta-bergame-live/659957)
