@@ -1,3 +1,27 @@
+### brentford – west ham (N/A, Sat, 28 Sep 2024 06:30:00 -0700)
+
+- **Paul Merson has warning for Nottingham Forest ahead of Fulham match and 
+tells them to 'be careful'**: [Link](https://www.nottinghamforest.news/2024/09/27/paul-merson-has-warning-for-nottingham-forest-ahead-of-fulham-match-and-tells-them-to-be-careful/)
+- **How Nuno Espirito Santo’s in-game management helped Forest make it five 
+unbeaten away**: [Link](https://www.nytimes.com/athletic/5785410/2024/09/23/nottingham-forest-five-games-unbeaten-away/)
+- **Men’s Football Nuno avoids touchline ban for Forest’s game against Fulham**: [Link](https://morningstaronline.co.uk/article/nuno-avoids-touchline-ban-forests-game-against-fulham)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sat, 28 Sep 2024 06:30:00 -0700)
+
+- **تشيلسي الوحيد الذي يتفوق على هالاند في الدوري الانجليزي الممتاز**: [Link](https://hihi2.com/2024/09/24/p2861608.html)
+- **“صراع القمة يشتعل“ ترتيب الدوري الانجليزي بعد تعادل مانشستر سيتي وأرسنال 
+arsenal vs man city في الجولة الخامسة**: [Link](https://alkhabarkw.com/sport/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/13948/)
+- **ترتيب الدوري الإنجليزي قبل انطلاق الجولة السادسة اليوم| مواجهات مثيرة**: [Link](https://www.korabia.net/news/14458/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%82%D8%A8%D9%84-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9/%D9%83%D8%B1%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9)
+
+
+### r1c3 (N/A, Sat, 28 Sep 2024 06:30:00 -0700)
+
+- **Les pronostics Quinté du 28/09/2024 à Auteuil**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-28092024-a-auteuil-4269977)
+- **Faites le papier du Quinté+ de ce samedi 28 septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-samedi-28-septembre)
+- **Les pronos hippiques du samedi 28 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-28-septembre-2024_AN-202409280108.html)
+
+
 ### arsenal – leicester (N/A, Sat, 28 Sep 2024 06:10:00 -0700)
 
 - **How to watch Chelsea vs Brighton on US TV and live streaming**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-chelsea-vs-brighton-on-us-tv-and-live-streaming/)
