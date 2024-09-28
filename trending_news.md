@@ -1,3 +1,19 @@
+### bologne – atalanta (N/A, Sat, 28 Sep 2024 12:00:00 -0700)
+
+- **DIRECT. Bologne-Atalanta Bergame (Serie A 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2024-2025/bologne-atalanta-bergame-live/659957)
+- **Bologna - Atalanta : Pronostic, Chaîne TV, Streaming, Compo, 100€ Offerts 
+pour Parier**: [Link](https://www.journee-mondiale.com/bologna-atalanta-pronostic-chaine-tv-streaming-compo-100-offerts-pour-parier-5523.htm)
+- **Composition Bologna - Atalanta, Serie A, 6ème journée, match du samedi 28 
+septembre 2024**: [Link](https://rmcsport.bfmtv.com/football/serie-a/live/2024/match-Bologna-Atalanta-journee-06_FM-240704808388.html)
+
+
+### osasuna - barcelona (N/A, Sat, 28 Sep 2024 12:00:00 -0700)
+
+- **Osasuna - Barcelona, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/osasuna-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Tres ausencias sonadas y varias rotaciones en el once del Barça ante Osasuna**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240928/1002323994/tres-ausencias-sonadas-once-barca-osasuna.html)
+- **Lista con cuatro que doblan**: [Link](https://www.sport.es/es/noticias/barca/lista-cuatro-doblan-108669086)
+
+
 ### monaco – montpellier (N/A, Sat, 28 Sep 2024 11:30:00 -0700)
 
 - **Quand les célébrations permettent aux clubs de Ligue 1 d’arrondir leurs 
