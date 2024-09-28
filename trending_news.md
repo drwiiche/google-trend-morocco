@@ -1,3 +1,11 @@
+### chelsea (N/A, Sat, 28 Sep 2024 07:30:00 -0700)
+
+- **Alan Shearer names Enzo Maresca and two players in his Team of the Week**: [Link](https://chelsea.news/2024/09/alan-shearer-names-enzo-maresca-and-two-players-in-his-team-of-the-week/)
+- **The Six Best Premier League Stats from Matchday 5**: [Link](https://theanalyst.com/2024/09/the-six-best-premier-league-stats-from-matchday-5)
+- **Palmer and Jackson are the Premier League’s best partnership – Chelsea need 
+to build around it - The Athletic**: [Link](https://www.nytimes.com/athletic/5790511/2024/09/25/cole-palmer-nicolas-jackson-chelsea-analysis/)
+
+
 ### arsenal (N/A, Sat, 28 Sep 2024 07:20:00 -0700)
 
 - **Pep Guardiola furious at Arteta’s claim he has ‘all the information’ on City**: [Link](https://www.theguardian.com/football/2024/sep/27/manchester-city-arsenal-pep-guardiola-mikel-arteta-have-all-the-information)
