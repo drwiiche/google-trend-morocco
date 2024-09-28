@@ -1,3 +1,10 @@
+### dortmund vs vfl bochum (N/A, Fri, 27 Sep 2024 13:50:00 -0700)
+
+- **Dortmund 4-2 Bochum (Sep 27, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/711469)
+- **Bundesliga Match Thread: Dortmund Host Bochum**: [Link](https://www.fearthewall.com/2024/9/27/24256087/bundesliga-match-thread-dortmund-host-bochum)
+- **Borussia Dortmund predicted lineup for VfL Bochum clash**: [Link](https://bvbbuzz.com/posts/borussia-dortmund-predicted-lineup-for-vfl-bochum-clash-01j8pnaaz8mw)
+
+
 ### euphoria (N/A, Fri, 27 Sep 2024 14:30:00 -0700)
 
 - **Following canceled theatrical release, new movie ‘Wolfs’ premieres today on 
