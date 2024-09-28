@@ -1,3 +1,25 @@
+### al-kholood club – al-hilal (N/A, Sat, 28 Sep 2024 10:10:00 -0700)
+
+- **Preview: Al Kholood vs. Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-kholood/preview/preview-al-kholood-vs-al-hilal-prediction-team-news-lineups_553994.html)
+- **Will Neymar Make His Much Awaited Return Tonight, How To Watch Al Hilal vs 
+Al Kholood Live?**: [Link](https://www.republicworld.com/sports/football/latest-news-will-neymar-make-his-much-awaited-return-tonight-how-to-watch-al-hilal-vs-al-kholood-live)
+- **Al Kholood vs Al Hilal Prediction and Betting Tips | September 28th 2024**: [Link](https://www.sportskeeda.com/football/al-kholood-vs-al-hilal-prediction-betting-tips-september-28th-2024)
+
+
+### liverpool (N/A, Sat, 28 Sep 2024 10:10:00 -0700)
+
+- **Injury news: Latest on Alisson Becker fitness ahead of Wolves v Liverpool**: [Link](https://www.liverpoolfc.com/news/injury-news-latest-alisson-becker-fitness-ahead-wolves-v-liverpool)
+- **UEFA Bans Barcelona Fans from One Away Game in Champions League**: [Link](https://english.aawsat.com/sports/5065253-uefa-bans-barcelona-fans-one-away-game-champions-league)
+- **25-year-old needs to leave Liverpool after latest Arne Slot decision**: [Link](https://www.caughtoffside.com/2024/09/28/caoimhin-kelleher-liverpool-alisson/)
+
+
+### real sociedad vs valencia (N/A, Sat, 28 Sep 2024 10:10:00 -0700)
+
+- **Real Sociedad - Valencia, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/real-sociedad-valencia-en-directo-laliga-ea-sports-en-vivo-hoy-n/)
+- **Real Sociedad - Valencia, en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/real-sociedad-valencia/2024/09/28/01_0101_20240928_188_191-directo.html)
+- **Oyarzabal repite titularidad y Oskarsson iniciará desde el banquillo**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20240928/1002323883/oyarzabal-repite-titularidad-oskarsson-iniciara-banquillo.html)
+
+
 ### bayern munich (N/A, Sat, 28 Sep 2024 10:00:00 -0700)
 
 - **'Dangerous' duo Wirtz and Musiala highlight Bayern-Leverkusen showdown**: [Link](https://www.besoccer.com/new/dangerous-duo-wirtz-and-musiala-highlight-bayern-leverkusen-showdown-1332246)
