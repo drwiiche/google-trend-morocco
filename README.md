@@ -1,3 +1,26 @@
+### galatasaray – kasımpaşa (N/A, Sat, 28 Sep 2024 08:20:00 -0700)
+
+- **Galatasaray, Kasımpaşa karşısına tarihi bir ilk için çıkıyor**: [Link](https://www.goal.com/tr/haber/galatasaray-kasimpasa-karsisina-tarihi-bir-ilk-icin-cikiyor/bltfd108bb90669fbfa)
+- **CANLI YAYIN | Galatasaray Kasımpaşa Maçı**: [Link](https://haberglobal.com.tr/son-dakika/canli-yayin-galatasaray-kasimpasa-maci-bein-sports-sifresiz-canli-izle-381684)
+- **Galatasaray'da hedef 7'de 7 (İlk 11'ler belli oldu)**: [Link](https://www.ntv.com.tr/galeri/sporskor/galatasarayda-hedef-7de-7-ilk-11ler-belli-oldu,1mUorw3xPUqk8GJ7OyMzjQ)
+
+
+### جدول مباريات اليوم (N/A, Sat, 28 Sep 2024 08:10:00 -0700)
+
+- **غيابات ليفربول أمام وولفرهامبتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/09/28/p2866237.html)
+- **موعد مباراة وولفرهامبتون وليفربول في الدوري الإنجليزي 2024-2025 والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1357373)
+- **أبرز المباريات العربية والعالمية اليوم السبت**: [Link](https://24.ae/article/847040/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA)
+
+
+### chelsea vs brighton (N/A, Sat, 28 Sep 2024 07:20:00 -0700)
+
+- **Cole Palmer sets new Premier League record for Chelsea**: [Link](https://thefootballfaithful.com/cole-palmer-record-chelsea-premier-league/)
+- **Premier League LIVE: Arsenal vs Leicester plus four other games - text 
+updates, stats and radio commentary**: [Link](https://www.bbc.com/sport/football/live/cp3d5e33gg5t?page=3)
+- **Cole Palmer Scores Four Goals vs. Brighton & Hove Albion in 20 Minutes**: [Link](https://www.si.com/soccer/cole-palmer-scores-four-goals-vs-brighton-hove-albion-in-20-minutes)
+
+
 ### تشيلسي ضد برايتون (N/A, Sat, 28 Sep 2024 07:40:00 -0700)
 
 - **ماريسكا: سأتخذ قرارات كبيرة بعد العروض الرائعة**: [Link](https://www.kooora.com/?n=1357588)
