@@ -1,3 +1,11 @@
+### تشيلسي ضد برايتون (N/A, Sat, 28 Sep 2024 07:40:00 -0700)
+
+- **ماريسكا: سأتخذ قرارات كبيرة بعد العروض الرائعة**: [Link](https://www.kooora.com/?n=1357588)
+- **تشكيلة تشيلسي الرسمية لمواجهة برايتون في البريميرليغ**: [Link](https://hihi2.com/2024/09/28/p2866881.html)
+- **"مواجهة مرتقبه" طلقة بدون تقطيع HD.. بث مباشر تشيلسي وبرايتون الآن يلا شوت 
+twitter في الجولة**: [Link](https://real.alsaudinews.com/175410/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D9%87-%D8%B7%D9%84%D9%82%D8%A9-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9-hd-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7/)
+
+
 ### chelsea (N/A, Sat, 28 Sep 2024 07:30:00 -0700)
 
 - **Alan Shearer names Enzo Maresca and two players in his Team of the Week**: [Link](https://chelsea.news/2024/09/alan-shearer-names-enzo-maresca-and-two-players-in-his-team-of-the-week/)
