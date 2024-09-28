@@ -1,3 +1,10 @@
+### udinese – inter (N/A, Sat, 28 Sep 2024 05:20:00 -0700)
+
+- **GdS - Taremi in Champions, Inzaghi punta ancora su Thuram e Lautaro: due motivi spiegano la scelta**: [Link](https://www.fcinternews.it/focus/i-gds-i-taremi-in-champions-inzaghi-punta-ancora-su-thuram-e-lautaro-due-motivi-spiegano-la-scelta-964821)
+- **Udinese-Inter: dove vederla in diretta tv e streaming, probabili formazioni**: [Link](https://www.repubblica.it/sport/calcio/2024/09/28/news/udinese_inter_dove_vedere_tv_formazioni-423522297/)
+- **Udinese-Inter, duello tra bomber: Thauvin sfida Lautaro Martinez**: [Link](https://www.gazzetta.it/analisi-esperti/27-09-2024/udinese-inter-thauvin-sfida-lautaro-martinez.shtml)
+
+
 ### maroc vs brazil futsal (N/A, Sat, 28 Sep 2024 04:30:00 -0700)
 
 - **L’œil de Gueddar. Mondial Futsal: Dguig & poulains en route vers la gloire**: [Link](https://fr.le360.ma/medias/loeil-de-gueddar-mondial-futsal-dguig-poulains-en-route-vers-la-gloire_B7O7AV42CBCMHJERR3ZKMVJYA4/)
