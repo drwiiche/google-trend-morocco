@@ -1,3 +1,10 @@
+### newcastle – manchester city (N/A, Sat, 28 Sep 2024 03:40:00 -0700)
+
+- **Man City predicted lineup vs Newcastle - Premier League**: [Link](https://www.90min.com/man-city-predicted-lineup-vs-newcastle-premier-league-28-9-24)
+- **Man City must solve Rodri riddle, Ten Hag vexed by Man Utd miscues**: [Link](https://www.besoccer.com/new/man-city-must-solve-rodri-riddle-ten-hag-vexed-by-man-utd-miscues-1332248)
+- **LIVE: Newcastle United vs Manchester City – English Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2024/9/28/live-newcastle-united-vs-manchester-city-english-premier-league)
+
+
 ### eric adams new york (N/A, Sat, 28 Sep 2024 02:40:00 -0700)
 
 - **NYC Mayor Eric Adams indicted on 5 federal public corruption charges, 
