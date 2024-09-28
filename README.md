@@ -1,3 +1,11 @@
+### ea sports fc 25 (N/A, Sat, 28 Sep 2024 00:40:00 -0700)
+
+- **The 8 Man Utd youngsters with an 80+ potential in EA FC 25: Garnacho, 
+Mainoo…**: [Link](https://www.planetfootball.com/manchester-united/man-utd-youngsters-with-80-potential-ea-fc-25-mainoo-garnacho)
+- **FC 25 – Highest Career Mode Starting Transfer Budgets**: [Link](https://thefootballfaithful.com/fc25-highest-career-mode-transfer-budgets/)
+- **FC 25 midfielders | Best CM, CDM and CAM**: [Link](https://www.radiotimes.com/technology/gaming/fc-25-best-midfielders/)
+
+
 ### al jazeera (N/A, Fri, 27 Sep 2024 22:10:00 -0700)
 
 - **Israeli attacks against journalists, media freedom decried at UNSC**: [Link](https://www.aljazeera.com/news/2024/9/26/israeli-attacks-against-journalists-media-freedom-decried-at-unsc)
