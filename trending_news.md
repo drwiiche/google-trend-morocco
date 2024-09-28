@@ -1,3 +1,10 @@
+### نيوكاسل يونايتد ضد مان سيتي (N/A, Sat, 28 Sep 2024 03:50:00 -0700)
+
+- **تشكيلة مانشستر سيتي الرسمية للقاء نيوكاسل في الدوري الانجليزي**: [Link](https://hihi2.com/2024/09/28/p2866709.html)
+- **مدرب نيوكاسل يشكك في مشاركة نجمه أمام السيتي**: [Link](https://www.kooora.com/?n=1357542)
+- **السيتي يسعى للاستفاقة أمام نيوكاسل وليفربول لمواصلة التوهج**: [Link](https://addiyar.com/article/2201361-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%84%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D9%82%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D9%88%D9%87%D8%AC)
+
+
 ### newcastle – manchester city (N/A, Sat, 28 Sep 2024 03:40:00 -0700)
 
 - **Man City predicted lineup vs Newcastle - Premier League**: [Link](https://www.90min.com/man-city-predicted-lineup-vs-newcastle-premier-league-28-9-24)
