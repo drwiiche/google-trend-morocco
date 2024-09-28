@@ -1,3 +1,30 @@
+### arsenal – leicester (N/A, Sat, 28 Sep 2024 06:10:00 -0700)
+
+- **How to watch Chelsea vs Brighton on US TV and live streaming**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-chelsea-vs-brighton-on-us-tv-and-live-streaming/)
+- **Ethan Nwaneri decision, Raya risk and Sterling chance - Arsenal line ups vs 
+Leicester**: [Link](https://www.football.london/arsenal-fc/fixtures-results/ethan-nwaneri-decision-raya-risk-30023635)
+- **Should these 3 Arsenal players that faced Bolton retain their spot against 
+Leicester?**: [Link](https://www.justarsenal.com/which-arsenal-players-that-faced-bolton-should-retain-their-spot-against-leicester/376899)
+
+
+### chelsea – brighton (N/A, Sat, 28 Sep 2024 06:10:00 -0700)
+
+- **Romeo Lavia fit to face Brighton and choices to make up top | News | 
+Official Site**: [Link](https://www.chelseafc.com/en/news/article/romeo-lavia-fit-to-face-brighton-and-choices-to-make-up-top)
+- **The key attacking, defensive and goalkeeping stats behind Chelsea’s good 
+start**: [Link](https://chelsea.news/2024/09/the-key-attacking-defensive-and-goalkeeping-stats-behind-chelseas-good-start/)
+- **‘They can give us a lot’: Chelsea coach Maresca on potential Lavia-Caicedo 
+midfield partnership**: [Link](https://pune.news/sports/they-can-give-us-a-lot-chelsea-coach-maresca-on-potential-lavia-caicedo-midfield-partnership-240982/)
+
+
+### houda tv (N/A, Sat, 28 Sep 2024 03:00:00 -0700)
+
+- **5 Moments of Joy From Hoda Kotb’s Run on ‘Today’**: [Link](https://www.nytimes.com/2024/09/26/style/hoda-kotb-today-memorable-moments.html)
+- **Did Hoda Kotb Leave Today After Being Asked to Cut Her $20M Salary?**: [Link](https://www.usmagazine.com/celebrity-news/news/did-hoda-kotb-leave-today-after-being-asked-to-cut-her-20m-salary/)
+- **Hoda is honored by TODAY hosts, fans and celebs after her announcement: 'A 
+TV mom to all of us'**: [Link](https://www.yahoo.com/entertainment/see-today-family-honor-hoda-233607047.html)
+
+
 ### man city (N/A, Sat, 28 Sep 2024 05:50:00 -0700)
 
 - **Manchester City eye Torino’s Samuele Ricci after Rodri is ruled out for 
