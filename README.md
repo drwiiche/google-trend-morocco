@@ -1,3 +1,20 @@
+### getafe – deportivo alavés (N/A, Sat, 28 Sep 2024 04:10:00 -0700)
+
+- **Álvaro Rodríguez y Nabil Aberdin, novedades en la convocatoria**: [Link](https://www.futbolfantasy.com/laliga/noticias/120331-alvaro-rodriguez-y-nabil-aberdin-novedades-en-la-convocatoria)
+- **El Coliseum para levantar el vuelo**: [Link](https://www.marca.com/futbol/getafe/2024/09/26/66f5820ae2704e542f8b4571.html)
+- **Fútbol en directo:Sigue el movimiento de la octava jornada de LaLiga**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-futbol-en-directo-onces-confirmados-en-getafe-y-alaves/YsoZ7gtg/)
+
+
+### les traitres (N/A, Sat, 28 Sep 2024 04:10:00 -0700)
+
+- **"Je vais verser 10 000 euros de ma poche" : Laurent Ruquier et Hugo Manos 
+vont partager leurs gains avec une autre candidate des Traîtres**: [Link](https://www.programme-tv.net/news/tv/361467-je-vais-verser-10-000-euros-de-ma-poche-laurent-ruquier-et-hugo-manos-vont-partager-leurs-gains-avec-une-autre-candidate-des-traitres/)
+- **Téléphones portables, surveillance de la production, conditions météo... 
+Gwendal Marimoutou dévoile les coulisses des «Traîtres»**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/telephones-portables-surveillance-de-la-production-conditions-meteo-gwendal-marimoutou-devoile-les-coulisses-des-traitres-20240925)
+- **Audiences : La finale du jeu "Les traîtres" sur M6 a-t-elle rivalisé avec 
+"Simon Coleman" sur France 2 et "Qui veut gagner des millions ?" sur TF1 ?**: [Link](https://www.ozap.com/actu/audiences-la-finale-du-jeu-les-traitres-sur-m6-a-t-elle-rivalise-avec-simon-coleman-sur-france-2-et-qui-veut-gagner-des-millions-sur-tf1/645943)
+
+
 ### نيوكاسل يونايتد ضد مان سيتي (N/A, Sat, 28 Sep 2024 03:50:00 -0700)
 
 - **تشكيلة مانشستر سيتي الرسمية للقاء نيوكاسل في الدوري الانجليزي**: [Link](https://hihi2.com/2024/09/28/p2866709.html)
