@@ -1,3 +1,33 @@
+### الخلود ضد الهلال (N/A, Sat, 28 Sep 2024 11:20:00 -0700)
+
+- **شرطي يوناني يدير مباراة الهلال والخلود**: [Link](https://www.kooora.com/?n=1357773)
+- **مباشر.. مباراة الخلود ضد الهلال 0-0 في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/28/al-kholood-vs-al-hilal)
+- **تشكيلة الهلال الرسمية أمام الخلود**: [Link](https://hihi2.com/2024/09/28/p2867047.html)
+
+
+### hoda tv (N/A, Sat, 28 Sep 2024 11:20:00 -0700)
+
+- **5 Moments of Joy From Hoda Kotb’s Run on ‘Today’**: [Link](https://www.nytimes.com/2024/09/26/style/hoda-kotb-today-memorable-moments.html)
+- **Will Savannah Guthrie be next to leave ‘Today’? NBC insider names the two 
+frontrunners to replace Hoda Kotb after shock exit**: [Link](https://nypost.com/2024/09/28/entertainment/will-savannah-guthrie-be-next-to-leave-today-nbc-insider-names-the-two-frontrunners-to-replace-hoda-kotb-after-shock-exit/)
+- **Did Hoda Kotb Leave Today After Being Asked to Cut Her $20M Salary?**: [Link](https://www.usmagazine.com/celebrity-news/news/did-hoda-kotb-leave-today-after-being-asked-to-cut-her-20m-salary/)
+
+
+### osasuna – barcelone (N/A, Sat, 28 Sep 2024 11:10:00 -0700)
+
+- **Osasuna vs. Barcelona (Sep 28, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704739)
+- **Barcelona Predicted Lineup vs. Osasuna: La Liga**: [Link](https://www.si.com/soccer/barcelona-predicted-lineup-vs-osasuna-la-liga-9-28-24)
+- **Osasuna vs Barcelona, La Liga: Team News, Preview, Lineups, Score Prediction**: [Link](https://www.barcablaugranes.com/2024/9/28/24255854/osasuna-barcelona-la-liga-team-news-match-preview-lineups-score-prediction)
+
+
+### wac (N/A, Sat, 28 Sep 2024 11:10:00 -0700)
+
+- **Lopes schedule revealed for final WAC season**: [Link](https://gculopes.com/news/2024/9/27/mens-swimming-and-diving-lopes-schedule-revield-for-final-wac-season.aspx)
+- **USD Swimming and Diving Joins Big West Conference**: [Link](https://usdtoreros.com/news/2024/9/23/womens-swimming-diving-usd-swimming-and-diving-joins-big-west-conference.aspx)
+- **Big West Adds Grand Canyon, Seattle & San Diego As Swimming & Diving 
+Affiliates**: [Link](https://swimswam.com/big-west-adds-grand-canyon-seattle-san-diego-as-swimming-diving-affiliates/)
+
+
 ### botola 2 (N/A, Sat, 28 Sep 2024 11:00:00 -0700)
 
 - **Botola DII .J1: Le choc KAC-OCK pour lancer la saison 24-25 !**: [Link](https://www.lopinion.ma/Botola-DII-J1-Le-choc-KAC-OCK-pour-lancer-la-saison-24-25-_a58395.html)
