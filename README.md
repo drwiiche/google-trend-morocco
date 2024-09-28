@@ -1,3 +1,20 @@
+### botola 2 (N/A, Sat, 28 Sep 2024 11:00:00 -0700)
+
+- **Botola DII .J1: Le choc KAC-OCK pour lancer la saison 24-25 !**: [Link](https://www.lopinion.ma/Botola-DII-J1-Le-choc-KAC-OCK-pour-lancer-la-saison-24-25-_a58395.html)
+- **Aujourd'hui débute la Botola Pro 2: palpitante par ses confrontations qui 
+rappellent un beau souvenir -**: [Link](https://fr.hibapress.com/news-134740.html)
+- **Botola D2: Cette fin de semaine, le coup d’envoi de la saison 24/25**: [Link](https://www.lopinion.ma/Botola-D2-Cette-fin-de-semaine-le-coup-d-envoi-de-la-saison-24-25_a58272.html)
+
+
+### jannik sinner (N/A, Sat, 28 Sep 2024 11:00:00 -0700)
+
+- **Doping, la Wada fa appello contro l'assoluzione di Sinner e chiede uno stop 
+di 1-2 anni**: [Link](https://www.gazzetta.it/Tennis/28-09-2024/sinner-caso-doping-la-wada-fa-appello-chiesti-1-2-anni-di-stop.shtml)
+- **Sinner-Clostebol, il caso non è chiuso**: [Link](https://www.ansa.it/sito/notizie/sport/tennis/2024/09/28/sinner-clostebol-il-caso-non-e-chiuso_283675b1-7494-4719-9182-db94c7fa257b.html)
+- **Jannik Sinner, il caso è tutt'altro che chiuso: l'Agenzia antidoping chiede 
+la squalifica da uno a due anni**: [Link](https://www.vanityfair.it/article/jannik-sinner-squalifica-agenzia-antidoping-uno-due-anni)
+
+
 ### le havre – lille (N/A, Sat, 28 Sep 2024 10:20:00 -0700)
 
 - **Lens vs Nice LIVE: Ligue 1 latest score, goals and updates from fixture**: [Link](https://sports.yahoo.com/lens-vs-nice-live-ligue-130012577.html)
