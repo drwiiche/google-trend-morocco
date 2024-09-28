@@ -1,3 +1,12 @@
+### genoa – juventus (N/A, Sat, 28 Sep 2024 09:10:00 -0700)
+
+- **Juve, ecco Rouhi: chi è lo svedese che giocherà titolare contro il Genoa e 
+come ha stregato Motta**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/27-09-2024/juve-chi-e-jonas-rouhi-lo-svedese-titolare-contro-il-genoa.shtml)
+- **Thiago Motta: «Scudetto? L'obiettivo è essere competitivi in ogni partita, 
+a cominciare dal Genoa»**: [Link](https://torino.corriere.it/notizie/sport/juventus/24_settembre_27/thiago-motta-scudetto-l-obiettivo-e-essere-competitivi-in-ogni-partita-a-cominciare-dal-genoa-8ae41c0f-bfde-48b2-b098-c6003fcacxlk.shtml)
+- **Genoa-Juventus, i consigli per il Fantacalcio**: [Link](https://www.fantacalcio.it/consigli-fantacalcio/27_09_2024/genoa-juventus-consigli-fantacalcio-466656)
+
+
 ### البايرن ضد ليفركوزن (N/A, Sat, 28 Sep 2024 09:00:00 -0700)
 
 - **سجل مثالي لتشابي ألونسو أمام بايرن ميونخ**: [Link](https://hihi2.com/2024/09/28/p2866754.html)
