@@ -1,3 +1,33 @@
+### bayern munich (N/A, Sat, 28 Sep 2024 10:00:00 -0700)
+
+- **'Dangerous' duo Wirtz and Musiala highlight Bayern-Leverkusen showdown**: [Link](https://www.besoccer.com/new/dangerous-duo-wirtz-and-musiala-highlight-bayern-leverkusen-showdown-1332246)
+- **Kompany on Bayern’s Interest in Xabi Alonso**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/kompany-on-bayern-s-interest-in-xabi-alonso-2024-09-27)
+- **Bundesliga Soccer Livestream: How to Watch Bayern Munich vs. Bayer 
+Leverkusen From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/bundesliga-soccer-livestream-how-to-watch-bayern-munich-vs-bayer-leverkusen-from-anywhere/)
+
+
+### bundesliga (N/A, Sat, 28 Sep 2024 10:00:00 -0700)
+
+- **Sesko eröffnet Torgala: „Dann kommt jeder ins Rollen”**: [Link](https://www.mainpost.de/ueberregional/bayern/bayern/sesko-eroeffnet-torgala-dann-kommt-jeder-ins-rollen-art-11620492)
+- **Zwei Tore von Sheshko zum deutlichen Sieg der Leipziger**: [Link](https://www.koha.net/de/futboll/dy-gola-te-sheshkos-ne-fitoren-e-thelle-te-leipzigut)
+- **Leipzig schießt sich aus der Krise - Premierensieg für Pauli**: [Link](https://www.boerse-express.com/news/articles/leipzig-schiesst-sich-aus-der-krise-premierensieg-fuer-pauli-662162)
+
+
+### وولفرهامبتون ضد ليفربول (N/A, Sat, 28 Sep 2024 10:00:00 -0700)
+
+- **تشكيلة ليفربول و ولفرهامبتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/09/28/p2867000.html)
+- **موعد مباراة وولفرهامبتون وليفربول في الدوري الإنجليزي 2024-2025 والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1357373)
+- **أبرز المباريات العربية والعالمية اليوم السبت**: [Link](https://24.ae/article/847040/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA)
+
+
+### bayern vs leverkusen (N/A, Sat, 28 Sep 2024 09:00:00 -0700)
+
+- **Matthäus: „Bei Musiala darf Bayern keine Schmerzgrenze haben!“**: [Link](https://www.bild.de/sport/fussball/lothar-spricht-ueber-den-bundesliga-kracher-matthaeus-bei-musiala-darf-bayern-keine-schmerzgrenze-haben-66f6a7c2ee5af53f9b204af6)
+- **Jetzt live: Der Meister gastiert inklusive Granit Xhaka in München**: [Link](https://sport.ch/topnews/1351271/jetzt-live-der-meister-gastiert-inklusive-granit-xhaka-in-muenchen)
+- **Deutsche Bundesliga heute: Bayern München - Bayer Leverkusen**: [Link](https://www.boerse-express.com/news/articles/deutsche-bundesliga-heute-bayern-muenchen-bayer-leverkusen-662139)
+
+
 ### premier league standings (N/A, Sat, 28 Sep 2024 09:40:00 -0700)
 
 - **Eight talking points ahead of the Premier League weekend**: [Link](https://thefootballfaithful.com/talking-points-ahead-of-the-premier-league-weekend-rodri-lopetegui-man-united/)
