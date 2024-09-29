@@ -1,3 +1,11 @@
+### bein match (N/A, Sun, 29 Sep 2024 05:40:00 -0700)
+
+- **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-au/football/articles/watch-live-this-week-on-bein-sports-2024-09-27)
+- **FULL LIST: Man City, Barca, Bayern, others lead packed Saturday fixtures**: [Link](https://punchng.com/full-list-man-city-barca-bayern-others-lead-packed-saturday-fixtures/)
+- **Bayern Munich vs. Bayer Leverkusen, Manchester United vs. Tottenham and a 
+Madrid Derby headline huge weekend**: [Link](https://www.cbssports.com/soccer/news/bayern-munich-vs-bayer-leverkusen-manchester-united-vs-tottenham-and-a-madrid-derby-headline-huge-weekend/)
+
+
 ### بين سبورت (N/A, Sun, 29 Sep 2024 05:50:00 -0700)
 
 - **بحضور مغربي.. الكشف عن التشكيلتيْن الرسميتيْن للأهلي والزمالك في كأس السوبر 
