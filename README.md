@@ -1,3 +1,13 @@
+### muriel furrer (N/A, Sat, 28 Sep 2024 21:20:00 -0700)
+
+- **Swiss cyclist dead at 18 after sustaining fatal head injuries in crash at 
+Road World Championships**: [Link](https://www.foxnews.com/sports/swiss-cyclist-dead-18-after-sustaining-fatal-head-injuries-crash-road-world-championships)
+- **Swiss teenage cyclist Muriel Furrer has died after crashing at the road 
+world champs**: [Link](https://apnews.com/article/road-cycling-worlds-swiss-rider-dies-e6fa3db871cdb493899beaa2cf561793)
+- **Muriel Furrer: Swiss cyclist dies after crash at Road and Para-cycling 
+World Championships**: [Link](https://www.bbc.com/sport/cycling/articles/c5y0l0v6y2do)
+
+
 ### net3lix (N/A, Sat, 28 Sep 2024 16:50:00 -0700)
 
 - **Netflix’s Latest True-Crime Hit Is a Salacious, Tasteless Mess**: [Link](https://slate.com/culture/2024/09/menendez-brothers-lyle-erik-monsters-netflix-ryan-murphy.html)
