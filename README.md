@@ -1,3 +1,10 @@
+### air arabia (N/A, Sun, 29 Sep 2024 16:20:00 -0700)
+
+- **Air Arabia expands RAK network with Moscow route**: [Link](https://www.dubaieye1038.com/news/business/air-arabia-expands-ras-al-khaimah-network-with-moscow-route/)
+- **UAE flights: New direct route from Ras Al Khaimah to Moscow announced**: [Link](https://www.khaleejtimes.com/business/aviation/uae-flights-new-direct-route-from-ras-al-khaimah-to-moscow-announced)
+- **Air Arabia expands RAK network with launch of new route to Moscow**: [Link](https://sharjah24.ae/en/Articles/2024/09/27/Air-Arabia-expands-RAK-network-with-launch-of-new-route-to-Moscow)
+
+
 ### brics (N/A, Sun, 29 Sep 2024 15:50:00 -0700)
 
 - **Brics impasse: Egypt, Ethiopia reject joint statement over Security Council 
