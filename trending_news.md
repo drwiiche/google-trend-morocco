@@ -1,3 +1,11 @@
+### موعد مباراة المغرب و البرازيل (N/A, Sun, 29 Sep 2024 00:10:00 -0700)
+
+- **الدكيك.. مهندس طفرة "أسُود الفوتسال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%83%D9%8A%D9%83-%D9%85%D9%87%D9%86%D8%AF%D8%B3-%D8%B7%D9%81%D8%B1%D8%A9-%D8%A3%D8%B3%D9%8F%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-1438638.html)
+- **كتيبة الدكيك تراهن على كتابة التاريخ أمام البرازيل**: [Link](https://aljarida24.ma/p/actualites/288657/)
+- **القنوات الناقلة لمباراة المنتخب المغربي اليوم ضد البرازيل في كأس العالم 
+للفوتسال 2024**: [Link](https://ar.hibapress.com/details-556472.html)
+
+
 ### combat mma benoit saint denis (N/A, Sun, 29 Sep 2024 00:40:00 -0700)
 
 - **Main Card Results | UFC Paris**: [Link](https://www.ufc.com/news/main-card-results-highlights-winner-interviews-ufc-paris-moicano-vs-saint-denis)
