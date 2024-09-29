@@ -1,3 +1,20 @@
+### botola 2 (N/A, Sun, 29 Sep 2024 08:10:00 -0700)
+
+- **Botola D2 : le Kénitra AC démarre fort en laminant l’OCK, l’Olympique 
+Dcheira s’impose face au RBM**: [Link](https://lematin.ma/sports/botola-d2-le-kenitra-ac-demarre-fort-en-laminant-lock/244778)
+- **Botola D II /J1: le KAC explosif face à l’OCK en ouverture de la saison !**: [Link](https://www.lopinion.ma/Botola-D-II-J1-le-KAC-explosif-face-a-l-OCK-en-ouverture-de-la-saison-_a58403.html)
+- **Aujourd'hui débute la Botola Pro 2: palpitante par ses confrontations qui 
+rappellent un beau souvenir -**: [Link](https://fr.hibapress.com/news-134740.html)
+
+
+### tnt live (N/A, Sun, 29 Sep 2024 05:50:00 -0700)
+
+- **Newcastle expose Man City's frailties without Rodri, so what can Guardiola 
+do?**: [Link](https://www.espn.com/soccer/story/_/id/41474987/newcastle-expose-man-city-frailties-rodri-guardiola-do)
+- **Newcastle show Guardiola won’t solve issue of Rodri’s absence any time soon**: [Link](https://www.theguardian.com/football/2024/sep/28/newcastle-show-guardiola-he-wont-solve-the-issue-of-rodris-absence-any-time-soon)
+- **Revitalised Gordon sparks Newcastle – but Howe must maintain momentum**: [Link](https://www.nytimes.com/athletic/5800968/2024/09/29/newcastle-gordon-penalty-manchester-city/)
+
+
 ### aston villa (N/A, Sun, 29 Sep 2024 07:00:00 -0700)
 
 - **Emiliano Martinez: Argentina & Aston Villa keeper banned for 'offensive 
