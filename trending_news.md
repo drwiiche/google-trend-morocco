@@ -1,3 +1,11 @@
+### fcb (N/A, Sat, 28 Sep 2024 12:40:00 -0700)
+
+- **Jamal Musiala once again lets himself be loved by Barça with another 
+gesture of authentic 'crack'**: [Link](https://www.fcbarcelonanoticias.com/en/transfers/jamal-musiala-again-letting-himself-be-loved-by-barca-with-another-authentic-crack-gesture_307570_102.html)
+- **Osasuna 4-2 Barcelona: Hansi Flick's side lose first league game of seaso**: [Link](https://www.bbc.com/sport/football/live/c80r7j57vm7t)
+- **Pau Víctor scores his first LaLiga goal in his first start**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/pau-victor-scores-his-first-laliga-goal-in-his-first-start_307569_102.html)
+
+
 ### diddy (N/A, Sat, 28 Sep 2024 17:00:00 -0700)
 
 - **Sean ‘Diddy’ Combs wants to testify at his trial, lawyer says: ‘I don’t know that I can keep him off the stand’**: [Link](https://www.cnn.com/2024/09/26/entertainment/sean-combs-wants-to-testify-lawyer-says/index.html)
