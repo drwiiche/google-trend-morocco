@@ -1,3 +1,11 @@
+### net3lix (N/A, Sat, 28 Sep 2024 16:50:00 -0700)
+
+- **Netflix’s Latest True-Crime Hit Is a Salacious, Tasteless Mess**: [Link](https://slate.com/culture/2024/09/menendez-brothers-lyle-erik-monsters-netflix-ryan-murphy.html)
+- **Menendez brothers await a decision they hope will free them**: [Link](https://www.cbsnews.com/news/menendez-brothers-await-decision-they-hope-will-free-them-48-hours/)
+- **Menendez brothers' family slam 'grotesque' Netflix show 'Monsters' for 
+'outright falsehoods'**: [Link](https://www.usatoday.com/story/entertainment/tv/2024/09/26/monsters-menendez-brothers-family-statement/75393195007/)
+
+
 ### la liga (N/A, Sat, 28 Sep 2024 13:50:00 -0700)
 
 - **Preview: Atletico Madrid vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/madrid-derby/preview/preview-atletico-vs-real-madrid-prediction-team-news-lineups_554061.html)
