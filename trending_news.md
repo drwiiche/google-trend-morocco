@@ -1,3 +1,10 @@
+### حسن نصر الله حزب الله (N/A, Sun, 29 Sep 2024 02:20:00 -0700)
+
+- **اغتيال إسرائيل حسن نصر الله يُخرج مغاربة لرفع شعار "المقاومة لن تموت"**: [Link](https://www.hespress.com/%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AD%D8%B3%D9%86-%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D9%8F%D8%AE%D8%B1%D8%AC-%D9%85%D8%BA%D8%A7%D8%B1-1438881.html)
+- **كيف علّق بايدن وهاريس على اغتيال نصر الله؟**: [Link](https://www.aljazeera.net/politics/2024/9/29/%D9%83%D9%8A%D9%81-%D8%B9%D9%84%D9%82-%D8%A8%D8%A7%D9%8A%D8%AF%D9%86-%D9%88%D9%87%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B9%D9%84%D9%89-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D9%86%D8%B5%D8%B1)
+- **بيان من هاريس بشأن مقتل نصرالله**: [Link](https://www.alhurra.com/lebanon/2024/09/28/%D8%A8%D9%8A%D8%A7%D9%86-%D9%87%D8%A7%D8%B1%D9%8A%D8%B3-%D9%85%D9%82%D8%AA%D9%84-%D9%86%D8%B5%D8%B1%D8%A7%D9%84%D9%84%D9%87)
+
+
 ### quinté du jour (N/A, Sun, 29 Sep 2024 01:50:00 -0700)
 
 - **Les pronos hippiques du dimanche 29 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-29-septembre-2024_AN-202409280295.html)
