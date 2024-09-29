@@ -1,3 +1,10 @@
+### antalyaspor – fenerbahçe (N/A, Sun, 29 Sep 2024 08:20:00 -0700)
+
+- **Fenerbahçe, Antalyaspor karşısında: İlk 11 belli oldu**: [Link](https://www.ntv.com.tr/galeri/sporskor/fenerbahce-antalyaspor-karsisinda-ilk-11-belli-oldu,DXrd97DPWkSFZpJI2Ld8sA)
+- **Antalya'da muhtemel 11'ler**: [Link](https://www.antalyaekspres.com.tr/antalyada-muhtemel-11ler)
+- **Fenerbahçe'de Mourinho Harekete Geçti!**: [Link](https://dipnot.tv/tr-TR/jose-mourinhodan-futbolculara-sert-uyari)
+
+
 ### botola 2 (N/A, Sun, 29 Sep 2024 08:10:00 -0700)
 
 - **Botola D2 : le Kénitra AC démarre fort en laminant l’OCK, l’Olympique 
