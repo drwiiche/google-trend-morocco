@@ -1,3 +1,19 @@
+### aston villa (N/A, Sun, 29 Sep 2024 07:00:00 -0700)
+
+- **Emiliano Martinez: Argentina & Aston Villa keeper banned for 'offensive 
+behaviour'**: [Link](https://www.bbc.com/sport/football/articles/c756r1609dno)
+- **Dibu Martínez Will Not Play in Qualifiers: FIFA Sanctions Him for Misconduct**: [Link](https://www.footboom1.com/en/news/football/1867897-dibu-martinez-will-not-play-in-qualifiers-fifa-sanctions-him-for-misconduct)
+- **World Cup winner lands two-game ban from FIFA for 'offensive gesture'**: [Link](https://metro.co.uk/2024/09/28/world-cup-winner-lands-two-game-ban-fifa-offensive-gesture-21695444/)
+
+
+### bein sport futsal (N/A, Sun, 29 Sep 2024 06:20:00 -0700)
+
+- **كازاخستان والمغرب إلى دور الثمانية | مراجعة وأبرز الأحداث**: [Link](https://www.fifa.com/ar/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/iran-kazakhstan-morocco-portugal-round-up-highlights-ar)
+- **مونديال الفوتصال: سقوط مفاجئ لحامل اللقب**: [Link](https://www.almountakhab.com/node/16204759)
+- **كازاخستان تصنع المفاجأة وتُقصي البرتغال في طريقها إلى ربع نهائي كأس العالم 
+لكرة القدم داخل الصالات**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%83%D8%A7%D8%B2%D8%A7%D8%AE%D8%B3%D8%AA%D8%A7%D9%86-%D8%AA%D8%B5%D9%86%D8%B9-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D9%88%D8%AA-%D9%82%D8%B5%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%81%D9%8A-%D8%B7%D8%B1%D9%8A%D9%82%D9%87%D8%A7-%D8%A5%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-2024-09-26)
+
+
 ### manchester united – tottenham (N/A, Sun, 29 Sep 2024 07:40:00 -0700)
 
 - **Alan Shearer's Premier League predictions including Man Utd, Arsenal and 
