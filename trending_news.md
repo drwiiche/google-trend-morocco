@@ -1,3 +1,19 @@
+### rca (N/A, Sun, 29 Sep 2024 13:30:00 -0700)
+
+- **Păcăleala plafonării prețurilor RCA: "Tarifele practicate în acest moment 
+sunt extraordinar de...**: [Link](https://jurnalul.ro/auto/pacaleala-plafonare-preturi-rca-976931.html)
+- **Măsuri pentru stabilizarea pieței asigurărilor și sprijin în 
+cercetare-dezvoltare. Totul despre plafonarea RCA până la finele anului**: [Link](https://anchetaonline.ro/masuri-stabilizarea-pietei-asigurarilor-sprijin-cercetare-dezvoltare-totul-despre-plafonarea-pana-finele-anului-191499/)
+- **Partidul Național Liberal – Sprijinim inovația!**: [Link](https://ripostapenet.ro/2024/09/26/partidul-national-liberal-sprijinim-inovatia-2/)
+
+
+### courtois (N/A, Sun, 29 Sep 2024 13:30:00 -0700)
+
+- **Courtois' Stunning €400,000 Porsche: A Luxurious Reward During Recovery**: [Link](https://www.footboom1.com/en/news/football/1872035-courtois-stunning-eur400-000-porsche-a-luxurious-reward-during-recovery)
+- **Real Madrid goalkeeper Courtois takes aim at Atletico fans for 'rat derby'**: [Link](https://www.tribalfootball.com/article/soccer-laliga-real-madrid-goalkeeper-courtois-takes-aim-at-atletico-fans-for-rat-derby-e870b5c7-63bb-4629-9182-e3d5b3fc9723)
+- **Football’s thirst for money feeding discontent of the Rodri rebellion**: [Link](https://www.theguardian.com/football/2024/sep/22/footballs-thirst-for-money-feeding-discontent-of-the-rodri-rebellion)
+
+
 ### napoli (N/A, Sun, 29 Sep 2024 13:00:00 -0700)
 
 - **Galliani arriva a Napoli col Monza e assaggia una prelibatezza culinaria 
