@@ -1,3 +1,25 @@
+### empoli – fiorentina (N/A, Sun, 29 Sep 2024 09:20:00 -0700)
+
+- **ACF Fiorentina vs. Empoli FC Prediction, Picks, Live Odds - September 29**: [Link](https://www.bleachernation.com/picks/2024/09/29/acf-fiorentina-vs-empoli-fc-prediction-picks-live-odds-september-29/)
+- **Empoli vs Fiorentina: Lineups and how to watch**: [Link](https://www.violanation.com/2024/9/29/24257448/empoli-fiorentina-serie-a-lineup-formation-watch-online-stream)
+- **Watch Empoli FC vs. ACF Fiorentina Online: Live Stream, Start Time**: [Link](https://ftw.usatoday.com/article/watch-empoli-fc-vs-acf-fiorentina-online-live-stream-start-time-3)
+
+
+### real madrid vs atletico madrid (N/A, Sun, 29 Sep 2024 09:10:00 -0700)
+
+- **Preview: Atletico Madrid vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/madrid-derby/preview/preview-atletico-vs-real-madrid-prediction-team-news-lineups_554061.html)
+- **'We have a long way to go to become favourites for a title'**: [Link](https://www.besoccer.com/new/we-have-a-long-way-to-go-to-become-favourites-for-a-title-1332439)
+- **Is Camavinga Unlikely to Be at 100% for the Derby?**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/is-camavinga-unlikely-to-be-at-100-for-the-derby-2024-09-28)
+
+
+### manchester united (N/A, Sun, 29 Sep 2024 08:50:00 -0700)
+
+- **Manchester United: Erik ten Hag's side are Premier League's biggest 
+underachievers**: [Link](https://www.skysports.com/football/news/11661/13222255/manchester-united-erik-ten-hags-side-are-premier-leagues-biggest-underachievers)
+- **Man United’s Attack: A Longterm Problem**: [Link](https://sports.yahoo.com/man-united-attack-longterm-problem-150000752.html)
+- **Danny Murphy makes Man Utd top four prediction after Crystal Palace draw**: [Link](https://www.msn.com/en-au/sport/football/danny-murphy-makes-man-utd-top-four-prediction-after-crystal-palace-draw/ar-AA1qZVjh)
+
+
 ### betis – espanyol (N/A, Sun, 29 Sep 2024 08:40:00 -0700)
 
 - **La posible alineación del Espanyol ante el Real Betis**: [Link](https://lagradaonline.com/betis-rcd-espanyol-alineaciones-posibles-laliga-ea-sports-jornada-8/)
