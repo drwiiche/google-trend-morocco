@@ -1,3 +1,11 @@
+### برشلونة مباشر (N/A, Sat, 28 Sep 2024 14:10:00 -0700)
+
+- **الزمالك يفتتح مشوار مونديال اليد بالفوز على تاوباتي**: [Link](https://www.kooora.com/?n=1357681)
+- **الأندية العربية تحقق انتصارات في "سوبرغلوب" كرة اليد**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D9%82%D9%82-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%B3%D9%88%D8%A8%D8%B1%D8%BA%D9%84%D9%88%D8%A8-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D8%AF?ocid=Nabd_App&utm_campaign=nabdapp.com&utm_medium=referral&utm_source=nabdapp.com)
+- **"بجودة HD" تردد قناة ON Time Sport المفتوحة الناقلة لمباراة الأهلي وبرشلونة 
+في كأس الأندية لكرة اليد**: [Link](https://alkhabarkw.com/channels/%D8%A8%D8%AC%D9%88%D8%AF%D8%A9-hd-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-on-time-sport-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84/29047/)
+
+
 ### barca fc (N/A, Sat, 28 Sep 2024 14:00:00 -0700)
 
 - **¡Increíble! El Barça, con más penaltis en contra en los últimos 15 partidos 
