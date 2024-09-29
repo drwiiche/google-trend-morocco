@@ -1,3 +1,19 @@
+### napoli (N/A, Sun, 29 Sep 2024 13:00:00 -0700)
+
+- **Galliani arriva a Napoli col Monza e assaggia una prelibatezza culinaria 
+partenopea | FOTO**: [Link](https://www.calcionapoli24.it/notizie/galliani-arriva-a-napoli-col-monza-e-assaggia-una-prelibatezza-culinaria-partenopea-n620076.html)
+- **Rrahmani: "La classifica ci dà uno stimolo in più per la partita"**: [Link](https://www.ilbellodelcalcio.net/2024/09/29/rrahmani-la-classifica-ci-da-uno-stimolo-in-piu-per-la-partita/)
+- **Conte: “Stiamo lavorando per mettere le fondamenta. McTominay ha il gol nel 
+sangue”**: [Link](https://www.alfredopedulla.com/conte-stiamo-lavorando-per-mettere-le-fondamenta-mctominay-ha-il-gol-nel-sangue/)
+
+
+### ansu fati (N/A, Sun, 29 Sep 2024 12:50:00 -0700)
+
+- **Ansu Fati ready for La Liga return where it all began in 2019**: [Link](https://www.football-espana.net/2024/09/28/ansu-fati-ready-la-liga-return-all-began-2019)
+- **Barcelona forward’s lack of minutes under Hansi Flick remains a mystery**: [Link](https://barcauniversal.com/barcelona-forwards-lack-of-minutes-under-hansi-flick-remains-a-mystery/)
+- **Barcelona youngster suffers yet again in recent loss to Osasuna**: [Link](https://sports.yahoo.com/barcelona-youngster-suffers-yet-again-102400321.html)
+
+
 ### iptv (N/A, Sun, 29 Sep 2024 12:40:00 -0700)
 
 - **Pirate IPTV Subscribers Warned They Face "Automated Fines"**: [Link](https://torrentfreak.com/pirate-iptv-subscribers-warned-they-face-automated-fines-240929/)
