@@ -1,3 +1,11 @@
+### بين سبورت (N/A, Sun, 29 Sep 2024 05:50:00 -0700)
+
+- **بحضور مغربي.. الكشف عن التشكيلتيْن الرسميتيْن للأهلي والزمالك في كأس السوبر 
+الأفريقي**: [Link](https://m.elbotola.com/article/2024-09-27-17-09-725.html)
+- **أبو علي يقود الأهلي في السوبر.. ومفاجأة مغربية بتشكيلة الزمالك**: [Link](https://www.kooora.com/?n=1357613)
+- **الجنسيات المغربية تسيطر على جنسيات الأهلى والزمالك في مباراة السوبر الأفريقي**: [Link](https://www.almountakhab.com/node/16204790)
+
+
 ### toulouse – lyon (N/A, Sun, 29 Sep 2024 05:50:00 -0700)
 
 - **Preview: Toulouse vs. Lyon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/toulouse/preview/preview-toulouse-vs-lyon-prediction-team-news-lineups_554027.html)
