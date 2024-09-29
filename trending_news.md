@@ -1,3 +1,12 @@
+### brics (N/A, Sun, 29 Sep 2024 15:50:00 -0700)
+
+- **Brics impasse: Egypt, Ethiopia reject joint statement over Security Council 
+bid**: [Link](https://www.scmp.com/news/china/diplomacy/article/3280120/brics-impasse-un-egypt-and-ethiopia-reject-joint-statement-over-security-council-bid)
+- **EAM Jaishankar highlights BRIC's significance for multipolarity, global 
+diversity**: [Link](https://www.aninews.in/news/world/us/eam-jaishankar-highlights-brics-significance-for-multipolarity-global-diversity20240927015605)
+- **BRICS Foreign Ministers meet ahead of summit**: [Link](https://ianslive.in/brics-foreign-ministers-meet-ahead-of-summit--20240927050607)
+
+
 ### marseille fc (N/A, Sun, 29 Sep 2024 13:40:00 -0700)
 
 - **Strasbourg-OM : Djordje Petrovic, enfin du sourire après des débuts 
