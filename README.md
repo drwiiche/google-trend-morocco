@@ -1,3 +1,18 @@
+### ريال مدريد مباشر (N/A, Sun, 29 Sep 2024 12:10:00 -0700)
+
+- **فينيسيوس ورودريجو يقودان هجوم الريال في الديربي**: [Link](https://www.kooora.com/?n=1358030)
+- **مباشر مباراة ريال مدريد ضد أتلتيكو في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/29/real-madrid-v-atletico-de-madrid)
+- **ريال مدريد يسعى للإطاحة بجاره أتليتيكو مدريد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%84%D8%A5%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%AC%D8%A7%D8%B1%D9%87-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2024-09-29)
+
+
+### as far (N/A, Sun, 29 Sep 2024 12:00:00 -0700)
+
+- **A far-right party with Nazi roots is on the brink of power in Austria**: [Link](https://www.nbcnews.com/news/world/far-right-party-nazi-roots-brink-power-austria-rcna172984)
+- **Far-Right Freedom Party Wins Historic Support in Austria**: [Link](https://www.wsj.com/world/europe/far-right-freedom-party-wins-historic-support-in-austria-520fa156?mod=googlenewsfeed&st=wy4amX)
+- **Far-right Freedom party to come first in Austrian election, first results 
+suggest**: [Link](https://www.theguardian.com/world/2024/sep/29/far-right-freedom-party-winning-austrian-election-first-results-show)
+
+
 ### أنطاليا سبور ضد فنربخشة (N/A, Sun, 29 Sep 2024 11:10:00 -0700)
 
 - **فيديو | "لاب توب" يُكلف مورينيو بطاقة صفراء غريبة في مباراة فناربخشة 
