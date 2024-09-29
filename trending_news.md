@@ -1,3 +1,12 @@
+### match maroc brésil futsal (N/A, Sat, 28 Sep 2024 22:50:00 -0700)
+
+- **Mondial de Futsal : Le Maroc a rendez-vous avec l'histoire face au Brésil**: [Link](https://fr.hespress.com/387958-mondial-de-futsal-le-maroc-a-rendez-vous-avec-lhistoire-face-au-bresil.html)
+- **Le36. EP427. Comment le stratège du futsal marocain, Hicham Dguig, entend 
+«degdeg» le Brésil**: [Link](https://fr.le360.ma/medias/le36-ep427-comment-le-stratege-du-futsal-marocain-hicham-dguig-entend-degdeg-le-bresil_O6OKJQNSZBA4LNF6CXXVQ3ZU7Q/)
+- **Mondial futsal 2024: «le match contre le Brésil sera le plus intense», 
+affirme Dguig**: [Link](https://www.h24info.ma/mondial-futsal-2024-le-match-contre-le-bresil-sera-le-plus-intense-estime-dguig/)
+
+
 ### maroc vs brazil (N/A, Sun, 29 Sep 2024 03:00:00 -0700)
 
 - **Brazil v Morocco preview | Quarter-finals | Uzbekistan 2024**: [Link](https://www.fifa.com/en/articles/brazil-morocco-quarter-final-preview)
