@@ -1,3 +1,10 @@
+### مانشستر يونايتد (N/A, Sun, 29 Sep 2024 10:10:00 -0700)
+
+- **برونو يورط مانشستر يونايتد أمام توتنهام**: [Link](https://www.kooora.com/?n=1358011)
+- **بالأرقام.. نحس الشوط الأول يعرقل مانشستر يونايتد**: [Link](https://m.kooora.com/?n=1358027&o=n27338)
+- **فرنانديز يتلقى البطاقة الحمراء الأولى مع اليونايتد**: [Link](https://hihi2.com/2024/09/29/p2868624.html)
+
+
 ### real betis vs espanyol (N/A, Sun, 29 Sep 2024 09:50:00 -0700)
 
 - **""[WATCHLIVE]sTreams!] Real Betis vs Espanyol Live Today in 29 September 
