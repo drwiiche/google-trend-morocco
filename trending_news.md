@@ -1,3 +1,58 @@
+### classement la liga (N/A, Sun, 29 Sep 2024 14:20:00 -0700)
+
+- **Liga | Osasuna inflige au FC Barcelone sa première défaite (4-2)**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-osasuna-inflige-au-fc-barcelone-sa-premiere-defaite-4-2_sto10354399/story.shtml)
+- **Barça : Hansi Flick dévoile le coupable après l'humiliation**: [Link](https://www.goal.com/fr/news/barca-hansi-flick-devoile-le-coupable-apres-l-humiliation/bltb696a8100e53a848)
+- **Foot : Le Barça chute lourdement à Osasuna et concède sa première défaite 
+en Liga**: [Link](https://www.lequipe.fr/Football/Actualites/Le-barca-chute-lourdement-a-osasuna-et-concede-sa-premiere-defaite-en-liga/1510649)
+
+
+### البطولة (N/A, Sun, 29 Sep 2024 14:20:00 -0700)
+
+- **البطولة الإحترافية.. الرجاء الرياضي يعود بفوز مثير من آسفي أمام الأولمبيك**: [Link](https://ar.hibapress.com/details-556716.html)
+- **الرجاء يحقق الفوز على أولمبيك آسفي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AD%D9%82%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A2%D8%B3%D9%81%D9%8A-1439300.html)
+- **العصبة الاحترافية تزف خبرا سارا للرجاء قبل مواجهة أولمبيك أسفي**: [Link](https://ar.sport.le360.ma/football/botola/JQ22DSUCKVD3BBBS2UUB4TN64A/)
+
+
+### liga classement (N/A, Sun, 29 Sep 2024 14:20:00 -0700)
+
+- **DIRECT. Betis Séville-Espanyol Barcelone (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/betis-seville-espanyol-barcelone-live/657359)
+- **Betis Séville - Espanyol en direct - La Liga : Football Scores & Résultats 
+- 29/09/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-betis-seville-espanyol_mtc1524235/live.shtml)
+- **Liga : Giovani Lo Celso offre la victoire au Betis contre l’Espanyol**: [Link](https://www.footmercato.net/a7180870380030428039-liga-giovani-lo-celso-offre-la-victoire-au-betis-contre-lespanyol)
+
+
+### رجاء (N/A, Sun, 29 Sep 2024 14:20:00 -0700)
+
+- **الرجاء يفاوض 3 مدربين أجانب**: [Link](https://www.kooora.com/?n=1357553)
+- **في مفاجأة ثقيلة..مدرب المنتخب المغربي قريب من تدريب الرجاء**: [Link](https://m.alayam24.com/articles-529378.html)
+- **الرجاء يسابق الزمن لتحديد خليفة سفيكو.. أسماء كبيرة تنتظر قرار الإدارة 
+والجماهير منقسمة**: [Link](https://aljarida24.ma/p/actualites/288626/)
+
+
+### لا ليغا (N/A, Sun, 29 Sep 2024 13:50:00 -0700)
+
+- **كيف نجح يامال في إحراج أنشيلوتي ونجوم ريال مدريد؟**: [Link](https://www.alquds.co.uk/%D9%83%D9%8A%D9%81-%D9%86%D8%AC%D8%AD-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D8%A5%D8%AD%D8%B1%D8%A7%D8%AC-%D8%A3%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%88%D9%86%D8%AC%D9%88%D9%85-%D8%B1/)
+- **لامين يامال يحقق رقما مميزا مع برشلونة**: [Link](https://ar.hibapress.com/details-556453.html)
+- **إحصائيات لامين جمال أمام فياريال**: [Link](https://hihi2.com/2024/09/22/p2859126.html)
+
+
+### ريال مدريد (N/A, Sun, 29 Sep 2024 13:40:00 -0700)
+
+- **تقييم بيلينجهام أمام أتلتيكو مدريد في الديربي**: [Link](https://hihi2.com/2024/09/30/p2869056.html)
+- **ريال مدريد يسعى للإطاحة بجاره أتليتيكو مدريد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%84%D8%A5%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%AC%D8%A7%D8%B1%D9%87-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2024-09-29)
+- **شغب الجماهير يوقف "ديربي مدريد" بين الأتلتيكو والريال**: [Link](https://ar.hibapress.com/details-556710.html)
+
+
+### rca vs ocs (N/A, Sun, 29 Sep 2024 13:40:00 -0700)
+
+- **Botola Pro D1 Inwi: le Raja renverse l’OCS et arrache sa première victoire 
+de la saison**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-raja-renverse-locs-et-arrache-sa-premiere-victoire-de-la-saison_BNJSKW2FKBGI7HJGOMOJV4OIHE/)
+- **Botola Pro: Le Raja signe sa première victoire de la saison contre 
+l’olympique de Safi**: [Link](https://www.maroc-hebdo.press.ma/botola-pro-raja-signe-sa-premiere-victoire-saison-contre-lolympique-safi-)
+- **Tournoi professionnel.. Raja Athletic revient avec une victoire 
+passionnante de Safi contre Olympic -**: [Link](https://fr.hibapress.com/news-135569.html)
+
+
 ### ترتيب الدوري الاسباني (N/A, Sun, 29 Sep 2024 14:10:00 -0700)
 
 - **"لم أتوقع اللعب بهذه الطريقة".. أول تعليق من فليك بعد رباعية أوساسونا**: [Link](https://www.kooora.com/?n=1357892)
