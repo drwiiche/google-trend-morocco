@@ -1,3 +1,34 @@
+### atlético madrid – real madrid (N/A, Sun, 29 Sep 2024 11:10:00 -0700)
+
+- **Preview: Atletico Madrid vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/madrid-derby/preview/preview-atletico-vs-real-madrid-prediction-team-news-lineups_554061.html)
+- **Cholo Simeone: "I’m always anxious, nervous, afraid, joyful, and full of 
+expectations"**: [Link](https://www.footboom1.com/en/news/football/1870898-cholo-simeone-i-m-always-anxious-nervous-afraid-joyful-and-full-of-expectations)
+- **'We have a long way to go to become favourites for a title'**: [Link](https://www.besoccer.com/new/we-have-a-long-way-to-go-to-become-favourites-for-a-title-1332439)
+
+
+### atlético madrid vs real madrid (N/A, Sun, 29 Sep 2024 11:10:00 -0700)
+
+- **Atlético - Real Madrid, el derbi en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/atletico-r-madrid/2024/09/29/01_0101_20240929_175_186-directo.html)
+- **Alineación posible del Atlético de Madrid hoy ante el Real Madrid en LaLiga 
+EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-atletico-de-madrid-hoy-ante-el-real-madrid-en-laliga-ea-sports-n/)
+- **Oficial, cambio urgente: estaba lesionado, se recupera y puede jugar el 
+Atlético - Real Madrid**: [Link](https://www.defensacentral.com/real_madrid/1709327747-oficial-cambio-urgente-estaba-lesionado-se-recupera-y-puede-jugar-el-atletico-real-madrid)
+
+
+### strasbourg – marseille (N/A, Sun, 29 Sep 2024 11:10:00 -0700)
+
+- **Avant Strasbourg - Marseille | Et si l'OM n'avait encore rien vu de l'effet 
+De Zerbi ?**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/avant-strasbourg-marseille-et-si-lom-navait-encore-rien-vu-de-leffet-de-zerbi-_sto20040929/story.shtml)
+- **L’OM impitoyable avec Strasbourg !**: [Link](https://www.footmercato.net/a9059492134331970765-lom-impitoyable-avec-strasbourg)
+- **[Podcasts] L'intégrale du brunch de Stephen du dimanche 29 septembre 2024 - 
+13h/15h**: [Link](https://rmcsport.bfmtv.com/replay-emissions/stephen-time/l-integrale-du-brunch-de-stephen-du-dimanche-29-septembre-2024-13h-15h_EN-202409290254.html)
+
+
+### botola pro (N/A, Sun, 29 Sep 2024 11:10:00 -0700)
+
+
+
+
 ### coupe du monde des clubs 2025 (N/A, Sun, 29 Sep 2024 11:00:00 -0700)
 
 - **Le guide des stades du Mondial des clubs 2025**: [Link](https://www.fifa.com/fr/tournaments/mens/club-world-cup/usa-2025/articles/guide-des-stades)
