@@ -1,3 +1,20 @@
+### iptv (N/A, Sun, 29 Sep 2024 12:40:00 -0700)
+
+- **Pirate IPTV Subscribers Warned They Face "Automated Fines"**: [Link](https://torrentfreak.com/pirate-iptv-subscribers-warned-they-face-automated-fines-240929/)
+- **How illegal streaming apps could land you in jail, your info on dark web**: [Link](https://www.indiatoday.in/world/story/all-streaming-services-yupp-tv-ip-tv-set-top-box-apps-piracy-netflix-amazon-hulu-government-measures-2598053-2024-09-24)
+- **Italy intensifies crackdown on content piracy**: [Link](https://www.adgully.com/italy-intensifies-crackdown-on-content-piracy-150946.html)
+
+
+### om (N/A, Sun, 29 Sep 2024 12:40:00 -0700)
+
+- **ROSEN, GLOBAL INVESTOR COUNSEL, Encourages Outset Medical, Inc. Investors 
+to Secure Counsel**: [Link](https://www.bakersfield.com/ap/news/rosen-global-investor-counsel-encourages-outset-medical-inc-investors-to-secure-counsel/article_3aca8e29-b4a9-5aca-8b65-9e5bc7026c7a.html)
+- **Kirby McInerney LLP Announces the Filing of a Securities Class Action on 
+Behalf of Outset Medical, Inc. (OM) Investors**: [Link](https://www.businesswire.com/news/home/20240927620925/en/Kirby-McInerney-LLP-Announces-the-Filing-of-a-Securities-Class-Action-on-Behalf-of-Outset-Medical-Inc.-OM-Investors)
+- **Outset Medical, Inc. Sued for Securities Law Violations – Investors Should 
+Contact Levi & Korsinsky for More Information - OM**: [Link](https://www.ksnt.com/business/press-releases/accesswire/924928/outset-medical-inc-sued-for-securities-law-violations-investors-should-contact-levi-korsinsky-for-more-information-om)
+
+
 ### atlético madrid – real madrid : composition (N/A, Sun, 29 Sep 2024 12:30:00 -0700)
 
 
