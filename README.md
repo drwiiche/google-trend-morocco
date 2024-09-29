@@ -1,3 +1,27 @@
+### raja casablanca (N/A, Sun, 29 Sep 2024 14:00:00 -0700)
+
+- **Le Raja vire Rusmir Cviko**: [Link](https://sport.le360.ma/football/botola/le-raja-vire-rusmir-cviko_O2JIYXH5XRDGJAMMJPID6T6UCQ/)
+- **Raja de Casablanca: le coach Rusmir Cviko limogé**: [Link](https://www.h24info.ma/raja-de-casablanca-le-coach-rusmir-cviko-limoge/)
+- **Iseni Camil, un des plus éminents entraineur vise le Raja: le Raja a commis 
+une erreur en signant Rusmir**: [Link](https://fr.hibapress.com/news-135303.html)
+
+
+### الرجاء (N/A, Sun, 29 Sep 2024 14:00:00 -0700)
+
+- **الرجاء يفاوض 3 مدربين أجانب**: [Link](https://www.kooora.com/?n=1357553)
+- **في مفاجأة ثقيلة..مدرب المنتخب المغربي قريب من تدريب الرجاء**: [Link](https://m.alayam24.com/articles-529378.html)
+- **الرجاء يسابق الزمن لتحديد خليفة سفيكو.. أسماء كبيرة تنتظر قرار الإدارة 
+والجماهير منقسمة**: [Link](https://aljarida24.ma/p/actualites/288626/)
+
+
+### modric (N/A, Sun, 29 Sep 2024 14:00:00 -0700)
+
+- **Luka Modric will be a Real Madrid player even at the age of 40?**: [Link](https://www.slobodenpecat.mk/en/luka-modrikj-kje-bide-igrach-na-real-madrid-i-na-40-godini/)
+- **The imminent farewell of Luka Modric from Real Madrid**: [Link](https://www.fichajes.net/en/news/the-imminent-farewell-of-luka-modric-from-real-madrid-20240928.html)
+- **Primera División Atlético Madrid 0 Real Madrid 0 7 minutes played. In 
+progress**: [Link](https://www.bbc.com/sport/football/live/ce3zvng1n5kt)
+
+
 ### marca (N/A, Sun, 29 Sep 2024 13:40:00 -0700)
 
 
