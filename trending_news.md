@@ -1,3 +1,11 @@
+### coupe du monde des clubs 2025 (N/A, Sun, 29 Sep 2024 11:00:00 -0700)
+
+- **Le guide des stades du Mondial des clubs 2025**: [Link](https://www.fifa.com/fr/tournaments/mens/club-world-cup/usa-2025/articles/guide-des-stades)
+- **Coupe du monde des clubs : la FIFA dévoile les stades de la compétition et 
+dissipe les doutes**: [Link](https://lematin.ma/sports/mondial-des-clubs-la-fifa-devoile-les-stades-et-dissipe-les-doutes/244787)
+- **Mondial des Clubs-2025 : les 12 stades de l’édition des USA dévoilés**: [Link](https://al24news.com/fr/mondial-des-clubs-2025-les-12-stades-de-ledition-des-usa-devoiles/)
+
+
 ### spotify (N/A, Sun, 29 Sep 2024 09:30:00 -0700)
 
 - **Spotify is down**: [Link](https://www.theverge.com/2024/9/29/24257477/spotify-outage-down-website-app)
