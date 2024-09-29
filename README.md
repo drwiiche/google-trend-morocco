@@ -1,3 +1,18 @@
+### spotify (N/A, Sun, 29 Sep 2024 09:30:00 -0700)
+
+- **Spotify is down**: [Link](https://www.theverge.com/2024/9/29/24257477/spotify-outage-down-website-app)
+- **Spotify Down? Users Report Access Problems**: [Link](https://variety.com/2024/digital/news/spotify-down-users-access-problems-1236159269/)
+- **Spotify down for over 40,000 users in the US, Downdetector says**: [Link](https://finance.yahoo.com/news/spotify-down-over-40-000-161933488.html)
+
+
+### roma (N/A, Sun, 29 Sep 2024 08:50:00 -0700)
+
+- **Nomentano, Ama bonifica il sottopasso dello stupro**: [Link](https://www.romatoday.it/attualita/bonifica-sottopasso-piazza-della-croce-rossa.html)
+- **Il commento/ Quel filo sottile che lega sicurezza e solidarietà**: [Link](https://www.ilmessaggero.it/editoriali/politica/il_commento_quel_filo_sottile_che_lega_sicurezza_e_solidarieta-8378617.html)
+- **Roma, stuprata da un senzatetto in un sottopassaggio: “Ho chiesto aiuto ma 
+ho trovato indifferenza”**: [Link](https://www.lidentita.it/roma-stuprata-da-un-senzatetto-in-un-sottopassaggio-ho-chiesto-aiuto-ma-ho-trovato-indifferenza/)
+
+
 ### مانشستر يونايتد (N/A, Sun, 29 Sep 2024 10:10:00 -0700)
 
 - **برونو يورط مانشستر يونايتد أمام توتنهام**: [Link](https://www.kooora.com/?n=1358011)
