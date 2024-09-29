@@ -1,3 +1,10 @@
+### combat mma benoit saint denis (N/A, Sun, 29 Sep 2024 00:40:00 -0700)
+
+- **Main Card Results | UFC Paris**: [Link](https://www.ufc.com/news/main-card-results-highlights-winner-interviews-ufc-paris-moicano-vs-saint-denis)
+- **UFC Paris results: Sooo ... About last night | Saint Denis vs. Moicano**: [Link](https://www.mmamania.com/2024/9/29/24256924/ufc-paris-results-sooo-about-last-night-saint-denis-vs-moicano-espn-mma-france)
+- **Moicano drubs Saint Denis as doctor stops fight**: [Link](https://www.espn.com/mma/story/_/id/41498952/renato-moicano-tko-benoit-saint-denis-doctor-stops-fight)
+
+
 ### ryanair (N/A, Sun, 29 Sep 2024 00:30:00 -0700)
 
 - **Here's Why You Should Invest in Ryanair Stock Right Now**: [Link](https://finance.yahoo.com/news/heres-why-invest-ryanair-stock-140200828.html)
