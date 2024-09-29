@@ -1,3 +1,18 @@
+### ترتيب الدوري الاسباني (N/A, Sun, 29 Sep 2024 14:10:00 -0700)
+
+- **"لم أتوقع اللعب بهذه الطريقة".. أول تعليق من فليك بعد رباعية أوساسونا**: [Link](https://www.kooora.com/?n=1357892)
+- **الدوري الإسباني.. برشلونة يتلقى الخسارة الأولى أمام أوساسونا**: [Link](https://ar.hibapress.com/details-556406.html)
+- **شاهد.. ملخص فوز أوساسونا على برشلونة برباعية في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/9/28/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%81%D9%8A)
+
+
+### la liga standings (N/A, Sun, 29 Sep 2024 14:10:00 -0700)
+
+- **Osasuna dismantle Barca's perfect Liga start**: [Link](https://www.beinsports.com/en-mena/football/la-liga/articles-video/osasuna-dismantle-barca-s-perfect-liga-start-2024-09-28)
+- **Osasuna 4-2 Barcelona: Hansi Flick's side lose first league game of seaso**: [Link](https://www.bbc.com/sport/football/live/c80r7j57vm7t)
+- **'It was a very clear foul and there is also a penalty on Yamal' - Pedri 
+hits out at referee**: [Link](https://www.besoccer.com/new/it-was-a-very-clear-foul-and-there-is-also-a-penalty-on-yamal-pedri-hits-out-at-referee-1332429)
+
+
 ### raja casablanca (N/A, Sun, 29 Sep 2024 14:00:00 -0700)
 
 - **Le Raja vire Rusmir Cviko**: [Link](https://sport.le360.ma/football/botola/le-raja-vire-rusmir-cviko_O2JIYXH5XRDGJAMMJPID6T6UCQ/)
