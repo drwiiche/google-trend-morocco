@@ -1,3 +1,10 @@
+### ترتيبات الدوري الإسباني (N/A, Sun, 29 Sep 2024 14:40:00 -0700)
+
+- **حدث عربي تاريخي في البريميرليج**: [Link](https://www.kooora.com/?n=1357853)
+- **ليفربول يتصدر والسيتي يتعثر وفوز صعب لأرسنال**: [Link](https://www.aljazeera.net/sport/2024/9/28/manchester-city-vs-newcastle)
+- **ليفربول يهزم ولفرهامبتون و"ينقَض" على صدارة الدوري الإنجليزي**: [Link](https://m.elbotola.com/article/2024-09-28-18-13-132.html)
+
+
 ### classement la liga (N/A, Sun, 29 Sep 2024 14:20:00 -0700)
 
 - **Liga | Osasuna inflige au FC Barcelone sa première défaite (4-2)**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-osasuna-inflige-au-fc-barcelone-sa-premiere-defaite-4-2_sto10354399/story.shtml)
