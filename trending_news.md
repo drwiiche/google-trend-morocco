@@ -1,3 +1,18 @@
+### quinté du jour (N/A, Sun, 29 Sep 2024 01:50:00 -0700)
+
+- **Les pronos hippiques du dimanche 29 septembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-29-septembre-2024_AN-202409280295.html)
+- **Equidia met le feu au Quinté+ du 29 septembre à Vincennes**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-29-septembre-a-vincennes)
+- **Tiercé. Les pronostics de « L'Alsace » pour dimanche 29 septembre - Prix 
+Gaillon**: [Link](https://www.lalsace.fr/sport/2024/09/28/les-pronostics-de-l-alsace-pour-dimanche-29-septembre-prix-gaillon)
+
+
+### نبيل قاووق (N/A, Sun, 29 Sep 2024 01:40:00 -0700)
+
+- **إسرائيل تؤكد اغتيال القيادي نبيل قاووق.. وناج وحيد بـ"شجرة" قيادة حزب الله**: [Link](https://www.alarabiya.net/arab-and-world/2024/09/29/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D9%8A-%D9%81%D9%8A-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%86%D8%A8%D9%8A%D9%84-%D9%82%D8%A7%D9%88%D9%88%D9%82)
+- **الجيش الإسرائيلي يؤكد مقتل القيادي الكبير في حزب الله نبيل قاووق**: [Link](https://www.alhurra.com/lebanon/2024/09/29/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%86%D8%A8%D9%8A%D9%84-%D9%82%D8%A7%D9%88%D9%88%D9%82)
+- **"ضربة دقيقة" من إسرائيل على الضاحية الجنوبية.. وهذا الهدف**: [Link](https://www.skynewsarabia.com/middle-east/1744825-%D8%B6%D8%B1%D8%A8%D8%A9-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84-%D8%A7%D9%84%D8%B6%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9-%D9%88%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%87%D8%AF%D9%81)
+
+
 ### jannik sinner (N/A, Sun, 29 Sep 2024 01:40:00 -0700)
 
 - **Doping, la Wada fa appello contro l'assoluzione di Sinner e chiede uno stop 
