@@ -1,3 +1,24 @@
+### botola (N/A, Sun, 29 Sep 2024 12:20:00 -0700)
+
+- **Botola D1 : le Wydad Casablanca s’impose face au Difaa El Jadida (4-1)**: [Link](https://lematin.ma/sports/botola-d1-le-wydad-casablanca-simpose-face-au-difaa-el-jadida-4-1/244667)
+- **WAC vs DHJ. Une nouvelle étape dans la quête du style Mokwena**: [Link](https://medias24.com/2024/09/28/wac-vs-dhj-une-nouvelle-etape-dans-la-quete-du-style-mokwena/)
+- **Botola Pro D1 (4è journée): Résultats, programme et classement**: [Link](https://fr.hespress.com/388180-botola-pro-d1-4e-journee-resultats-programme-et-classement.html)
+
+
+### yalla kora (N/A, Sun, 29 Sep 2024 12:20:00 -0700)
+
+- **بالصور: برشلونة يقسو على الأهلي ويصعدان لنصف نهائي مونديال اليد**: [Link](https://www.kooora.com/?n=1358063)
+- **الأندية العربية تحقق انتصارات في "سوبرغلوب" كرة اليد**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D9%82%D9%82-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%B3%D9%88%D8%A8%D8%B1%D8%BA%D9%84%D9%88%D8%A8-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D8%AF?ocid=Nabd_App&utm_campaign=nabdapp.com&utm_medium=referral&utm_source=nabdapp.com)
+- **كرة يد| رغم الخسارة من برشلونة.. الأهلي يتأهل لنصف نهائي كأس العالم للأندية**: [Link](https://www.korabia.net/news/14526/%D9%83%D8%B1%D8%A9-%D9%8A%D8%AF-%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%85%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9/%D9%83%D8%B1%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)
+
+
+### mbappe (N/A, Sun, 29 Sep 2024 12:20:00 -0700)
+
+- **Mbappé medical report**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/medical-reports/parte-medico-de-mbappe-25-09-2024)
+- **Something has changed with Jude Bellingham at Real Madrid**: [Link](https://en.as.com/soccer/something-has-changed-with-jude-bellingham-at-real-madrid-n/)
+- **Mbappé sidelined with a hamstring injury**: [Link](https://apnews.com/article/kylian-mbappe-injury-real-madrid-308ef53df32cb15ff9127882c52c661d)
+
+
 ### ريال مدريد مباشر (N/A, Sun, 29 Sep 2024 12:10:00 -0700)
 
 - **فينيسيوس ورودريجو يقودان هجوم الريال في الديربي**: [Link](https://www.kooora.com/?n=1358030)
