@@ -1,3 +1,33 @@
+### ath. bilbao – séville (N/A, Sun, 29 Sep 2024 06:50:00 -0700)
+
+- **Preview: Athletic Bilbao vs. Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/preview/preview-athletic-bilbao-vs-sevilla-prediction-team-news-lineups_554084.html)
+- **Valverde: "The Key is to Maintain a High Level of Intensity"**: [Link](https://www.footboom1.com/en/news/football/1869248-valverde-the-key-is-to-maintain-a-high-level-of-intensity)
+- **Athletic Bilbao vs Sevilla Predictions, Odds & Betting Preview**: [Link](https://insights.betfred.com/football/athletic-bilbao-vs-sevilla-predictions-betting-tips-sunday-29-september-2024/)
+
+
+### roma – venezia (N/A, Sun, 29 Sep 2024 06:50:00 -0700)
+
+- **Serie A, Roma-Venezia in campo alle 15**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/09/29/serie-a-roma-venezia-in-campo-alle-15_c1570bd9-edad-45ba-bf3d-be1ac2ab84e9.html)
+- **Col Venezia spazio a Soulé e Baldanzi dietro Dovbyk. El Shaarawy torna 
+titolare**: [Link](https://www.ilromanista.eu/news/as-roma/154298/col-venezia-spazio-a-soule-e-baldanzi-dietro-dovbyk-el-shaarawy-torna-titolare)
+- **Roma-Venezia, queste sono le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/72000/roma-venezia-queste-sono-le-formazioni-ufficiali)
+
+
+### morocco (N/A, Sun, 29 Sep 2024 06:00:00 -0700)
+
+- **Restoration of historic mosque underway, one year after Morocco’s 
+devastating earthquake**: [Link](https://lufkindailynews.com/ap_video/restoration-of-historic-mosque-underway-one-year-after-morocco-s-devastating-earthquake/video_bba288e5-84df-5e62-b5b4-1baa52ead8e8.html)
+- **Morocco's Great Mosque Still in Ruins After Earthquake**: [Link](https://www.newser.com/story/356802/moroccos-great-mosque-still-in-ruins-after-earthquake.html)
+- **Morocco Earthquake Anniversary Mosque**: [Link](https://www.chronicleonline.com/news/world/morocco-earthquake-anniversary-mosque/image_7302b67d-198c-53f6-aec9-5ced3f7da500.html)
+
+
+### بث مباشر مباريات (N/A, Sun, 29 Sep 2024 05:50:00 -0700)
+
+- **تين هاج يرد على انتقادات ريدناب**: [Link](https://www.kooora.com/?n=1357924)
+- **قمّة مرتقبة بين مانشستر يونايتد وتوتنهام**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85-%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-2024-09-29)
+- **موعد مباراة مانشستر يونايتد ضد توتنهام بالدوري الإنجليزي والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/9/29/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%B6%D8%AF)
+
+
 ### bein match (N/A, Sun, 29 Sep 2024 05:40:00 -0700)
 
 - **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-au/football/articles/watch-live-this-week-on-bein-sports-2024-09-27)
