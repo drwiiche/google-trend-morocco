@@ -1,3 +1,10 @@
+### maroc vs brazil (N/A, Sun, 29 Sep 2024 03:00:00 -0700)
+
+- **Brazil v Morocco preview | Quarter-finals | Uzbekistan 2024**: [Link](https://www.fifa.com/en/articles/brazil-morocco-quarter-final-preview)
+- **Moroccan Futsal Star Charraoui Promises Victory Over Brazil**: [Link](https://www.moroccoworldnews.com/2024/09/365461/moroccan-futsal-star-charraoui-promises-victory-over-brazil)
+- **Morocco advances to Futsal World Cup quarterfinals beating Iran 4-3**: [Link](https://en.yabiladi.com/articles/details/154510/morocco-advances-futsal-world-quarterfinals.html)
+
+
 ### ouragan hélène floride (N/A, Sun, 29 Sep 2024 00:00:00 -0700)
 
 
