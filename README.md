@@ -1,3 +1,11 @@
+### jannik sinner (N/A, Sun, 29 Sep 2024 01:40:00 -0700)
+
+- **Doping, la Wada fa appello contro l'assoluzione di Sinner e chiede uno stop 
+di 1-2 anni**: [Link](https://www.gazzetta.it/Tennis/28-09-2024/sinner-caso-doping-la-wada-fa-appello-chiesti-1-2-anni-di-stop.shtml)
+- **Tennis, doping Sinner: la Wada presenta ricorso contro l'assoluzione**: [Link](https://www.tuttosport.com/video/tennis/2024/09/28-133385528/tennis_doping_sinner_la_wada_presenta_ricorso_contro_l_assoluzione)
+- **«Jannik Sinner va squalificato per uno o due anni»**: [Link](https://www.cdt.ch/sport/tennis/jannik-sinner-va-squalificato-per-uno-o-due-anni-364817)
+
+
 ### موعد مباراة المغرب و البرازيل (N/A, Sun, 29 Sep 2024 00:10:00 -0700)
 
 - **الدكيك.. مهندس طفرة "أسُود الفوتسال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%83%D9%8A%D9%83-%D9%85%D9%87%D9%86%D8%AF%D8%B3-%D8%B7%D9%81%D8%B1%D8%A9-%D8%A3%D8%B3%D9%8F%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-1438638.html)
