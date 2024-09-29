@@ -1,3 +1,21 @@
+### classement liga (N/A, Sun, 29 Sep 2024 14:10:00 -0700)
+
+- **Liga | Osasuna inflige au FC Barcelone sa première défaite (4-2)**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-osasuna-inflige-au-fc-barcelone-sa-premiere-defaite-4-2_sto10354399/story.shtml)
+- **Barça : Hansi Flick dévoile le coupable après l'humiliation**: [Link](https://www.goal.com/fr/news/barca-hansi-flick-devoile-le-coupable-apres-l-humiliation/bltb696a8100e53a848)
+- **Foot : Le Barça chute lourdement à Osasuna et concède sa première défaite 
+en Liga**: [Link](https://www.lequipe.fr/Football/Actualites/Le-barca-chute-lourdement-a-osasuna-et-concede-sa-premiere-defaite-en-liga/1510649)
+
+
+### real madrid vs (N/A, Sun, 29 Sep 2024 12:50:00 -0700)
+
+- **Atlético - Real Madrid, en directo: derbi madrileño de LaLiga EA Sports 
+hoy, en vivo**: [Link](https://as.com/futbol/primera/atletico-real-madrid-en-directo-ultima-hora-y-previa-del-derbi-madrileno-hoy-en-vivo-n/)
+- **Atlético - Real Madrid, en directo hoy: Goles y resumen| LaLiga EA Sports 
+2024-25**: [Link](https://www.sport.es/es/noticias/real-madrid/atletico-real-madrid-directo-hoy-108717815)
+- **Atlético de Madrid - Real Madrid en directo: alineaciones, resumen, 
+resultado y goles. Jornada 8 de LaLiga EA Sports en vivo hoy**: [Link](https://www.larazon.es/deportes/atletico-madrid-real-madrid-directo-alineaciones-resumen-resultado-goles-jornada-8-laliga-sports-vivo-hoy_2024092966f98793fcf7b3000146d900.html)
+
+
 ### ترتيبات الدوري الإسباني (N/A, Sun, 29 Sep 2024 14:40:00 -0700)
 
 - **حدث عربي تاريخي في البريميرليج**: [Link](https://www.kooora.com/?n=1357853)
