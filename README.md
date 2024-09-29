@@ -1,3 +1,12 @@
+### barca fc (N/A, Sat, 28 Sep 2024 14:00:00 -0700)
+
+- **¡Increíble! El Barça, con más penaltis en contra en los últimos 15 partidos 
+que en los 77 anteriores**: [Link](https://www.fcbarcelonanoticias.com/fc-barcelona/increible-barca-con-mas-penaltis-en-contra-en-ultimos-15-partidos-en-77-anteriores_307572_102.html)
+- **¡Locura de asistencia de Alex Valle! El Barça ya se está arrepintiendo de 
+haberlo cedido...**: [Link](https://www.sport.es/es/videos/barca/20240929/locura-asistencia-alex-valle-barca/108695189.shtml)
+- **El prometedor debut del cedido Alex Valle con el Celtic**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20240926/1002322326/azulgrana-alex-valle-despega-celtic.html)
+
+
 ### muriel furrer (N/A, Sat, 28 Sep 2024 21:20:00 -0700)
 
 - **Swiss cyclist dead at 18 after sustaining fatal head injuries in crash at 
