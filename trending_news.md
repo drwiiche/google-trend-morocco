@@ -1,3 +1,10 @@
+### diddy (N/A, Sat, 28 Sep 2024 17:00:00 -0700)
+
+- **Sean ‘Diddy’ Combs wants to testify at his trial, lawyer says: ‘I don’t know that I can keep him off the stand’**: [Link](https://www.cnn.com/2024/09/26/entertainment/sean-combs-wants-to-testify-lawyer-says/index.html)
+- **Diddy case: Rappers, stars and more are worried over ‘Diddy Files’**: [Link](https://www.newsnationnow.com/entertainment-news/diddy-tapes-meek-mill-jayz-jennifer-lopez/)
+- **Diddy’s Lawyer Attempted to Explain All That Baby Oil**: [Link](https://www.thecut.com/article/diddy-1000-bottles-baby-oil-costco.html)
+
+
 ### inter miami – charlotte fc (N/A, Sat, 28 Sep 2024 15:50:00 -0700)
 
 - **Saturday's Major League Soccer predictions including Inter Miami vs. 
