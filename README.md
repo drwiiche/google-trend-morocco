@@ -1,3 +1,77 @@
+### bein sport live (N/A, Sun, 29 Sep 2024 05:40:00 -0700)
+
+- **Arsenal dominated Leicester everywhere – except on the scoreboard**: [Link](https://www.nytimes.com/athletic/5801581/2024/09/29/arsenal-leicester-result-premier-league/)
+- **3 standout players from Arsenal's 4-2 victory over Leicester**: [Link](https://paininthearsenal.com/posts/3-standout-players-arsenal-4-2-victory-leicester)
+- **Arsenal ratings: Saka, Trossard star in dramatic win vs. Leicester**: [Link](https://www.espn.com/soccer/story/_/id/41474958/arsenal-player-ratings-bukayo-saka-leandro-trossard-star-win-vs-leicester-city)
+
+
+### بث مباشر (N/A, Sun, 29 Sep 2024 05:40:00 -0700)
+
+- **اليوم مواجهة حاسمة لمنتخبنا في اندونيسيا**: [Link](https://www.26sep.net/index.php/local/88759-2024-09-29-04-57-06)
+- **التصفيات الآسيوية.. المنتخب الوطني يفوز على جزر المالديف ﻿بثلاثية نظيفة**: [Link](https://almasdaronline.com/articles/302892)
+- **المدرب البعداني : نحن نلعب كل مباراة كنهائي كأس ولاننتظر أن تخدمنا 
+المنتخبات الأخرى. ..اخبار محلية**: [Link](https://ar.pressbee.net/show8684099.html?title=%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D8%B9%D8%AF%D8%A7%D9%86%D9%8A-%D9%86%D8%AD%D9%86-%D9%86%D9%84%D8%B9%D8%A8-%D9%83%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D9%88%D9%84%D8%A7%D9%86%D9%86%D8%AA%D8%B8%D8%B1-%D8%A3%D9%86-%D8%AA%D8%AE%D8%AF%D9%85%D9%86%D8%A7-)
+
+
+### ipswich town – aston villa (N/A, Sun, 29 Sep 2024 05:40:00 -0700)
+
+- **Preview: Ipswich Town vs. Aston Villa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ipswich-town/preview/preview-ipswich-vs-aston-villa-prediction-team-news-lineups_554066.html)
+- **Sunday’s Goals Accumulator Tips: Today’s 11/2 Both Teams to Score & Total 
+Team Goals Acca**: [Link](https://mrfixitstips.co.uk/sundays-goals-accumulator-tips-todays-11-2-both-teams-to-score-total-team-goals-acca-2/)
+- **Jimmy The Punt's Saturday Tips: 225/1 Centre Back at the Double?**: [Link](https://onefootball.com/de/news/jimmy-the-punts-saturday-tips-2251-centre-back-at-the-double-40097503)
+
+
+### fifa (N/A, Sun, 29 Sep 2024 05:40:00 -0700)
+
+- **Los Ángeles Still Not on FIFA's Map - La Opinión**: [Link](https://www.footboom1.com/en/news/football/1871413-los-angeles-still-not-on-fifa-s-map-la-opinion)
+- **Slow Football News: Club World Cup, MLS, Stamford Bridge, Gorleston**: [Link](https://gameofthepeople.com/2024/09/29/slow-football-news-club-world-cup-mls-stamford-bridge-gorleston/)
+- **FIFA Club World Cup Stadiums announced**: [Link](https://www.mancity.com/news/mens/fifa-club-world-cup-stadiums-announced-63863194)
+
+
+### bein sport (N/A, Sun, 29 Sep 2024 05:30:00 -0700)
+
+- **ما هو تردد قناة beIN sport 1 المفتوحة لمشاهدة الأهلي والزمالك السوبر 
+الافريقي 2024نايل سات**: [Link](https://alkhabarkw.com/channels/%D9%85%D8%A7-%D9%87%D9%88-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sport-1-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%A7%D9%84%D8%A3/23726/)
+- **تعليق قوي من المستشار محمد عطية على ضربة الجزاء الوهمية ..اخبار محلية**: [Link](https://ar.pressbee.net/show8683955.html?title=%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D9%82%D9%88%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D8%A7%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D8%B7%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%B6%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A1-%D8%A7%D9%84%D9%88%D9%87%D9%85%D9%8A%D8%A9)
+- **تردد قنوات bein sports المفتوحة 2024 عبر كافة الأقمار الصناعية – السعودية 
+نيوز**: [Link](https://real.alsaudinews.com/175661/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D9%88%D8%A7%D8%AA-bein-sports-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-2024-%D8%B9%D8%A8%D8%B1-%D9%83%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%A3%D9%82%D9%85/)
+
+
+### arryadia (N/A, Sun, 29 Sep 2024 05:30:00 -0700)
+
+
+
+
+### كورة مباشر (N/A, Sun, 29 Sep 2024 05:30:00 -0700)
+
+- **العالمي | موسم استثنائي من عمر مرموش في انتراخت فرانكفورت والنادي يحدد سعر 
+رحيله.. ومحمد صلاح يواصل التألق**: [Link](https://koraplus.com/article/64222/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D9%85%D9%86-%D8%B9%D9%85%D8%B1-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%B1%D8%A7%D8%AE%D8%AA-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA-%D9%88%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A)
+- **الدوري الألماني: آينتراخت فرانكفورت يهزم بوروسيا مونشنغلادباخ**: [Link](https://www.almayadeen.net/sports/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A--%D8%A2%D9%8A%D9%86%D8%AA%D8%B1%D8%A7%D8%AE%D8%AA-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA-%D9%8A%D9%87%D8%B2%D9%85-%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%85%D9%88%D9%86%D8%B4%D9%86%D8%BA%D9%84%D8%A7%D8%AF%D8%A8%D8%A7)
+- **مرموش يواصل «التوهج» في «البوندسليجا»**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4516701/%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%8A%D9%88%D8%A7%D8%B5%D9%84--%D8%A7%D9%84%D8%AA%D9%88%D9%87%D8%AC--%D9%81%D9%8A--%D8%A7%D9%84%D8%A8%D9%88%D9%86%D8%AF%D8%B3%D9%84%D9%8A%D8%AC%D8%A7)
+
+
+### مباريات اليوم مباشر (N/A, Sun, 29 Sep 2024 05:30:00 -0700)
+
+- **بحضور مغربي.. الكشف عن التشكيلتيْن الرسميتيْن للأهلي والزمالك في كأس السوبر 
+الأفريقي**: [Link](https://m.elbotola.com/article/2024-09-27-17-09-725.html)
+- **أبو علي يقود الأهلي في السوبر.. ومفاجأة مغربية بتشكيلة الزمالك**: [Link](https://www.kooora.com/?n=1357613)
+- **الجنسيات المغربية تسيطر على جنسيات الأهلى والزمالك في مباراة السوبر الأفريقي**: [Link](https://www.almountakhab.com/node/16204790)
+
+
+### bein sports (N/A, Sun, 29 Sep 2024 05:30:00 -0700)
+
+- **الذكاء الاصطناعي يجيب: من الأقرب للفوز بديربي مدريد؟**: [Link](https://www.kooora.com/?n=1357912)
+- **الفوز الأكبر في تاريخ ديربي مدريد**: [Link](https://hihi2.com/2024/09/29/p2868337.html)
+- **أتليتيكو مدريد لخطف الوصافة من جاره ريال مدريد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D9%88%D8%B5%D8%A7%D9%81%D8%A9-%D9%85%D9%86-%D8%AC%D8%A7%D8%B1%D9%87-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2024-09-29)
+
+
+### kooora (N/A, Sun, 29 Sep 2024 05:20:00 -0700)
+
+- **سر تأخر انضمام تشيزني إلى برشلونة**: [Link](https://www.kooora.com/?n=1357930)
+- **عاجل.. قرار الليغا بشأن انتقال تشيزني لبرشلونة**: [Link](https://hihi2.com/2024/09/29/p2868340.html)
+- **نادي برشلونة يخسر حارسه "تير شتيغن"**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%AF%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AE%D8%B3%D8%B1-%D8%AD%D8%A7%D8%B1%D8%B3%D9%87-%D8%AA%D9%8A%D8%B1-%D8%B4%D8%AA%D9%8A%D8%BA%D9%86-1435664.html)
+
+
 ### علي كركي (N/A, Sun, 29 Sep 2024 04:40:00 -0700)
 
 - **عاجل | حزب الله: ننعى القيادي علي كركي**: [Link](https://www.aljazeera.net/news/2024/9/29/%D8%B9%D8%A7%D8%AC%D9%84-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%86%D9%86%D8%B9%D9%89-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D9%8A-%D8%B9%D9%84%D9%8A-%D9%83%D8%B1%D9%83%D9%8A)
