@@ -1,3 +1,12 @@
+### la liga (N/A, Sat, 28 Sep 2024 13:50:00 -0700)
+
+- **Preview: Atletico Madrid vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/madrid-derby/preview/preview-atletico-vs-real-madrid-prediction-team-news-lineups_554061.html)
+- **Simone: This is what I expect from Ancelotti, and tomorrow's match is 
+important**: [Link](https://www.ysscores.com/en/news/4734236/Simone:-This-is-what-I-expect-from-Ancelotti,-and-tomorrow's-match-is-important)
+- **Simeone: "I’m always anxious, nervous, fearful, joyful, and filled with 
+expectations"**: [Link](https://www.footboom1.com/en/news/football/1869552-simeone-i-m-always-anxious-nervous-fearful-joyful-and-filled-with-expectations)
+
+
 ### fcb (N/A, Sat, 28 Sep 2024 12:40:00 -0700)
 
 - **Jamal Musiala once again lets himself be loved by Barça with another 
