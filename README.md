@@ -1,3 +1,12 @@
+### manchester united – tottenham (N/A, Sun, 29 Sep 2024 07:40:00 -0700)
+
+- **Alan Shearer's Premier League predictions including Man Utd, Arsenal and 
+Chelsea**: [Link](https://metro.co.uk/2024/09/27/alan-shearers-premier-league-predictions-including-man-utd-arsenal-chelsea-21686245/)
+- **Ten Hag's team news update v Spurs**: [Link](https://www.manutd.com/en/news/detail/erik-ten-hag-team-news-update-ahead-of-tottenham-on-29-sep)
+- **Paul Merson predicts Manchester United vs Tottenham and other Premier 
+League GW6 fixtures**: [Link](https://www.sportskeeda.com/football/news-paul-merson-predicts-manchester-united-vs-tottenham-premier-league-gw6-fixtures)
+
+
 ### ath. bilbao – séville (N/A, Sun, 29 Sep 2024 06:50:00 -0700)
 
 - **Preview: Athletic Bilbao vs. Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/preview/preview-athletic-bilbao-vs-sevilla-prediction-team-news-lineups_554084.html)
