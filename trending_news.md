@@ -1,3 +1,10 @@
+### wydad athletic club (N/A, Sun, 29 Sep 2024 14:10:00 -0700)
+
+- **Botola D1 : le Wydad Casablanca s’impose face au Difaa El Jadida (4-1)**: [Link](https://lematin.ma/sports/botola-d1-le-wydad-casablanca-simpose-face-au-difaa-el-jadida-4-1/244667)
+- **WAC vs DHJ. Une nouvelle étape dans la quête du style Mokwena**: [Link](https://medias24.com/2024/09/28/wac-vs-dhj-une-nouvelle-etape-dans-la-quete-du-style-mokwena/)
+- **Botola Pro D1 (4è journée): Résultats, programme et classement**: [Link](https://fr.hespress.com/388180-botola-pro-d1-4e-journee-resultats-programme-et-classement.html)
+
+
 ### classement liga (N/A, Sun, 29 Sep 2024 14:10:00 -0700)
 
 - **Liga | Osasuna inflige au FC Barcelone sa première défaite (4-2)**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-osasuna-inflige-au-fc-barcelone-sa-premiere-defaite-4-2_sto10354399/story.shtml)
