@@ -1,3 +1,17 @@
+### علي كركي (N/A, Sun, 29 Sep 2024 04:40:00 -0700)
+
+- **عاجل | حزب الله: ننعى القيادي علي كركي**: [Link](https://www.aljazeera.net/news/2024/9/29/%D8%B9%D8%A7%D8%AC%D9%84-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%86%D9%86%D8%B9%D9%89-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D9%8A-%D8%B9%D9%84%D9%8A-%D9%83%D8%B1%D9%83%D9%8A)
+- **إسرائيل تعلن مقتل القيادي نبيل قاووق**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%B9%D9%84%D9%86-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D9%8A-%D9%86%D8%A8%D9%8A%D9%84-%D9%82%D8%A7%D9%88%D9%88%D9%82-1438937.html)
+- **إسرائيل تؤكد اغتيال القيادي نبيل قاووق.. وناج وحيد بـ"شجرة" قيادة حزب الله**: [Link](https://www.alarabiya.net/arab-and-world/2024/09/29/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D9%8A-%D9%81%D9%8A-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%86%D8%A8%D9%8A%D9%84-%D9%82%D8%A7%D9%88%D9%88%D9%82)
+
+
+### المغرب ضد البرازيل (N/A, Sun, 29 Sep 2024 02:20:00 -0700)
+
+- **الدكيك.. مهندس طفرة "أسُود الفوتسال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%83%D9%8A%D9%83-%D9%85%D9%87%D9%86%D8%AF%D8%B3-%D8%B7%D9%81%D8%B1%D8%A9-%D8%A3%D8%B3%D9%8F%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-1438638.html)
+- **أسود الاطلس يتطلعون لإنجاز تاريخي أمام البرازيل في كأس الع...**: [Link](https://kech24.com/%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A7%D8%B7%D9%84%D8%B3-%D9%8A%D8%AA%D8%B7%D9%84%D8%B9%D9%88%D9%86-%D9%84%D8%A5%D9%86%D8%AC%D8%A7%D8%B2-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D9%81%D9%88%D8%AA%D8%B5%D8%A7%D9%84.html)
+- **القنوات الناقلة لمباراة المنتخب المغربي اليوم ضد البرازيل في كأس العالم للفوتسال 2024**: [Link](https://ar.hibapress.com/details-556472.html)
+
+
 ### match maroc brésil futsal (N/A, Sat, 28 Sep 2024 22:50:00 -0700)
 
 - **Mondial de Futsal : Le Maroc a rendez-vous avec l'histoire face au Brésil**: [Link](https://fr.hespress.com/387958-mondial-de-futsal-le-maroc-a-rendez-vous-avec-lhistoire-face-au-bresil.html)
