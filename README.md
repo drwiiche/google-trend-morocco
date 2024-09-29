@@ -1,3 +1,17 @@
+### marca (N/A, Sun, 29 Sep 2024 13:40:00 -0700)
+
+
+
+
+### diego simeone (N/A, Sun, 29 Sep 2024 13:40:00 -0700)
+
+- **Así es Diego Simeone fuera del banquillo: un divorcio, su mujer Carla 
+Pereyra, sus hijos y por qué le llama...**: [Link](https://www.abc.es/gente/diego-simeone-banquillo-divorcio-mujer-carla-pereyra-20240929200000-nt.html)
+- **El Atlético de Madrid a un paso de cerrar el fichaje de un descarte del FC 
+Barcelona**: [Link](https://www.fichajes.net/noticias/atletico-madrid-paso-cerrar-fichaje-descarte-fc-barcelona-20240929.html)
+- **Simeone en alerta: Atlético Madrid quiere pescar en el Barcelona**: [Link](https://www.pasionfutbol.com/noticias/Simeone-en-alerta-Atletico-Madrid-quiere-pescar-en-el-Barcelona-20240929-0027.html)
+
+
 ### rca (N/A, Sun, 29 Sep 2024 13:30:00 -0700)
 
 - **Păcăleala plafonării prețurilor RCA: "Tarifele practicate în acest moment 
