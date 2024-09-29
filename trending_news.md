@@ -1,3 +1,18 @@
+### betis – espanyol (N/A, Sun, 29 Sep 2024 08:40:00 -0700)
+
+- **La posible alineación del Espanyol ante el Real Betis**: [Link](https://lagradaonline.com/betis-rcd-espanyol-alineaciones-posibles-laliga-ea-sports-jornada-8/)
+- **La obligación común de zanjar dudas**: [Link](https://www.infobae.com/america/agencias/2024/09/28/la-obligacion-comun-de-zanjar-dudas/)
+- **Previa | Real Betis Balompié – RCD Espanyol: Afinar para volver a ganar**: [Link](https://betis.mobi/previa-real-betis-balompie-rcd-espanyol-afinar-para-volver-a-ganar/)
+
+
+### man united (N/A, Sun, 29 Sep 2024 08:40:00 -0700)
+
+- **Tottenham captain Son Heung-min will MISS Man United clash with injury 
+after being forced off against Qarabag**: [Link](https://www.dailymail.co.uk/sport/football/article-13904229/Tottenham-Son-Heung-min-MISS-Man-United-Premier-League-Qarabag-Europa-League.html)
+- **Spurs boss Postecoglou admits Son workload concern**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-spurs-boss-postecoglou-admits-son-workload-concern-c546eaed-1380-4dc0-a88a-047c0b08b662)
+- **Ange Postecoglou Must Axe 'Brilliant' Tottenham Star vs Man Utd**: [Link](https://www.givemesport.com/tottenham-hotspur-ange-postecoglou-james-maddison-bergvall-man-utd/)
+
+
 ### antalyaspor – fenerbahçe (N/A, Sun, 29 Sep 2024 08:20:00 -0700)
 
 - **Fenerbahçe, Antalyaspor karşısında: İlk 11 belli oldu**: [Link](https://www.ntv.com.tr/galeri/sporskor/fenerbahce-antalyaspor-karsisinda-ilk-11-belli-oldu,DXrd97DPWkSFZpJI2Ld8sA)
