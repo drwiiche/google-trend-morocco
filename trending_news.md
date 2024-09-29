@@ -1,3 +1,10 @@
+### real madrid (N/A, Sun, 29 Sep 2024 13:20:00 -0700)
+
+- **Atlético - Real Madrid: resumen, resultado y goles**: [Link](https://www.marca.com/futbol/laliga-ea-sports/atletico-r-madrid/2024/09/29/01_0101_20240929_175_186-directo.html)
+- **Escándalo: Busquets Ferrer tuvo que suspender temporalmente el derbi**: [Link](https://www.sport.es/es/noticias/real-madrid/escandalo-metropolitano-busquets-ferrer-partido-108722751)
+- **Empate justo, bochorno ultra**: [Link](https://as.com/futbol/primera/empate-justo-bochorno-ultra-n/)
+
+
 ### wydad athletic club (N/A, Sun, 29 Sep 2024 14:10:00 -0700)
 
 - **Botola D1 : le Wydad Casablanca s’impose face au Difaa El Jadida (4-1)**: [Link](https://lematin.ma/sports/botola-d1-le-wydad-casablanca-simpose-face-au-difaa-el-jadida-4-1/244667)
