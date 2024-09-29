@@ -1,3 +1,11 @@
+### marseille fc (N/A, Sun, 29 Sep 2024 13:40:00 -0700)
+
+- **Strasbourg-OM : Djordje Petrovic, enfin du sourire après des débuts 
+compliqués (Ligue 1)**: [Link](https://www.lequipe.fr/Football/Actualites/Strasbourg-om-djordje-petrovic-enfin-du-sourire-apres-des-debuts-compliques/1510876)
+- **Ligue 1. Solides, précis et inspirés : les notes de Racing - OM (1-0)**: [Link](https://www.dna.fr/sport/2024/09/29/solides-precis-et-inspires)
+- **Strasbourg : Petrovic remercie sa défense**: [Link](https://m.maxifoot.fr/strasbourg/petrovic-remercie-sa-defense-foot-420210.htm)
+
+
 ### real madrid (N/A, Sun, 29 Sep 2024 13:20:00 -0700)
 
 - **Atlético - Real Madrid: resumen, resultado y goles**: [Link](https://www.marca.com/futbol/laliga-ea-sports/atletico-r-madrid/2024/09/29/01_0101_20240929_175_186-directo.html)
