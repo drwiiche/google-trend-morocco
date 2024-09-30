@@ -1,3 +1,11 @@
+### +95 (N/A, Mon, 30 Sep 2024 04:10:00 -0700)
+
+- **Major crash on I-95 causes heavy traffic delays in Miami-Dade**: [Link](https://www.nbcmiami.com/news/local/major-crash-on-i-95-causes-heavy-traffic-delays-in-miami-dade/3430612/)
+- **Multi-vehicle crash causes heavy delays on I-95 near Dolphin Expressway**: [Link](https://www.local10.com/news/local/2024/09/30/multi-vehicle-crash-causes-heavy-delays-on-i-95-near-dolphin-expressway/)
+- **Multi-vehicle crash on Palmetto Expressway shuts down southbound ramp to 
+I-95**: [Link](https://www.nbcmiami.com/news/local/multi-vehicle-crash-on-palmetto-expressway-shuts-down-southbound-ramp-to-i-95/3424188/)
+
+
 ### marine le pen (N/A, Mon, 30 Sep 2024 04:30:00 -0700)
 
 - **Procès des assistants parlementaires du FN : comment Jordan Bardella a été 
