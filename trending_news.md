@@ -1,3 +1,11 @@
+### akdital (N/A, Mon, 30 Sep 2024 05:50:00 -0700)
+
+- **Akdital: Le résultat net franchit la barre de 100 millions de dirhams**: [Link](https://lematin.ma/economie/akdital-le-resultat-net-franchit-la-barre-de-100-millions-de-dirhams/244819)
+- **Akdital : hausse de 70% du bénéfice net au premier semestre 2024**: [Link](https://medias24.com/2024/09/30/akdital-hausse-de-70-du-benefice-net-au-premier-semestre-2024/)
+- **Akdital réalise un chiffre d’affaires de 1,2 MMDH, le résultat net en 
+amélioration de 70%**: [Link](https://ledesk.ma/encontinu/akdital-realise-un-chiffre-daffaires-de-12-mmdh-le-resultat-net-en-amelioration-de-70/)
+
+
 ### greve 1 octobre 2024 (N/A, Mon, 30 Sep 2024 05:30:00 -0700)
 
 - **Grève du 1er octobre : école, SNCF, services publics… Tout ce qui est prévu mardi à l’appel de plusieurs syndicats**: [Link](https://www.ladepeche.fr/2024/09/29/greve-du-1er-octobre-ecole-sncf-services-publics-tout-ce-qui-est-prevu-mardi-a-lappel-de-plusieurs-syndicats-12228789.php)
