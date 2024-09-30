@@ -1,3 +1,10 @@
+### carlos alcaraz (N/A, Mon, 30 Sep 2024 01:50:00 -0700)
+
+- **Alcaraz arolla a Griekspoor para pasar a cuartos en Pekín en su victoria 200**: [Link](https://www.marca.com/tenis/2024/09/29/66f94495268e3e8e048b4594.html)
+- **Torneo de Pekín: Carlos Alcaraz firma un triunfo exprés y avanza a cuartos de final**: [Link](https://www.cronicaviva.com.pe/torneo-de-pekin-carlos-alcaraz-firma-un-triunfo-expres-y-avanza-a-cuartos-de-final/)
+- **Alcaraz llega a las 200 victorias más rápido que nadie excepto McEnroe**: [Link](https://www.infobae.com/espana/agencias/2024/09/30/alcaraz-llega-a-las-200-victorias-mas-rapido-que-nadie-excepto-mcenroe/)
+
+
 ### classroom (N/A, Mon, 30 Sep 2024 00:50:00 -0700)
 
 - **ASU West student's quick thinking likely saved classmate during stabbing 
