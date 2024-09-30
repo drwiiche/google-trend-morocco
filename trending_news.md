@@ -1,3 +1,20 @@
+### فياريال ضد لاس بالماس (N/A, Mon, 30 Sep 2024 11:50:00 -0700)
+
+- **موعد مباراة فياريال ولاس بالماس في ختام الجولة الثامنة من الدوري الإسباني 
+2024- 2024**: [Link](https://news.elsob7.com/1163961/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D9%84%D8%A7%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%A7%D8%B3-%D9%81%D9%8A-%D8%AE%D8%AA%D8%A7/)
+- **القنوات الناقله لمباراة فياريال ولاس بالماس اليوم في الجوله رقم 8 من الدوري 
+الاسباني 2024-2025 - نبأ العرب**: [Link](https://www.npa-ar.com/672862/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D9%87-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D9%84%D8%A7%D8%B3/)
+- **بالبلدي: موعد مباراة فياريال ضد لاس بالماس اليوم في الدوري الاسباني 
+والقنوات الناقلة**: [Link](https://pls48.net/uncategorized/16597.html)
+
+
+### bruno sacco (N/A, Mon, 30 Sep 2024 11:50:00 -0700)
+
+- **These Iconic Designs From Bruno Sacco Completely Transformed Mercedes-Benz**: [Link](https://jalopnik.com/these-iconic-designs-from-bruno-sacco-completely-transf-1851661038)
+- **Why Mercedes-Benz's Late Design Chief Bruno Sacco Was a Maestro**: [Link](https://www.caranddriver.com/news/g62425650/bruno-sacco-mercedes-benz-designer-obit/)
+- **Legendary Mercedes Designer Bruno Sacco Has Passed Away**: [Link](https://www.motor1.com/news/735498/mercedes-designer-bruno-sacco-dead/)
+
+
 ### villarreal – las palmas (N/A, Mon, 30 Sep 2024 11:10:00 -0700)
 
 - **Yeremi y Albiol, en una lista sin la presencia de Ayoze**: [Link](https://www.futbolfantasy.com/laliga/noticias/120435-yeremi-y-albiol-en-una-lista-sin-la-presencia-de-ayoze)
