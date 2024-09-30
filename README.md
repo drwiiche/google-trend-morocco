@@ -1,3 +1,10 @@
+### griezmann (N/A, Mon, 30 Sep 2024 02:20:00 -0700)
+
+- **France striker Antoine Griezmann retires from international soccer**: [Link](https://lethbridgeherald.com/sports/national-sports/2024/09/30/france-striker-antoine-griezmann-retires-from-international-soccer/)
+- **🚨 Antoine Griezmann announces international retirement**: [Link](https://onefootball.com/en/news/antoine-griezmann-announces-international-retirement-40105482)
+- **Antoine Griezmann announces international retirement**: [Link](https://ca.sports.yahoo.com/news/antoine-griezmann-announces-international-retirement-091300948.html)
+
+
 ### carlos alcaraz (N/A, Mon, 30 Sep 2024 01:50:00 -0700)
 
 - **Alcaraz arolla a Griekspoor para pasar a cuartos en Pekín en su victoria 200**: [Link](https://www.marca.com/tenis/2024/09/29/66f94495268e3e8e048b4594.html)
