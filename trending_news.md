@@ -1,3 +1,10 @@
+### النصر ضد الريان (N/A, Mon, 30 Sep 2024 10:30:00 -0700)
+
+- **كريستيانو رونالدو يقود هجوم النصر أمام الريان**: [Link](https://m.kooora.com/?n=1358277&o=n)
+- **تشكيلة النصر الرسمية أمام الريان القطري**: [Link](https://hihi2.com/2024/09/30/p2870015.html)
+- **مواجهة منتظرة بين النصر والريان**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/afc-champions-league/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%86-2024-09-30)
+
+
 ### al-nassr fc – al rayyan (N/A, Mon, 30 Sep 2024 10:10:00 -0700)
 
 - **Is Cristiano Ronaldo Playing Tonight For Al Nassr Vs Al Rayyan In the AFC 
