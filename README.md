@@ -1,3 +1,12 @@
+### al-nassr fc – al rayyan (N/A, Mon, 30 Sep 2024 10:10:00 -0700)
+
+- **Is Cristiano Ronaldo Playing Tonight For Al Nassr Vs Al Rayyan In the AFC 
+Champions League?**: [Link](https://www.essentiallysports.com/soccer-football-news-is-cristiano-ronaldo-playing-tonight-for-al-nassr-vs-al-rayyan-in-the-afc-champions-league/)
+- **NSSR vs RAY Dream11 Prediction: Expert Tips & Match Insights for AFC 
+Champions League Elite**: [Link](https://qrius.com/nssr-vs-ray-dream11-prediction-clash-of-titans-in-the-afc-champions-league-elite/)
+- **AFC Champions League Elite: Tough challenge awaits for Al Rayyan**: [Link](https://dohanews.co/afc-champions-league-elite-tough-challenge-awaits-for-al-rayyan/)
+
+
 ### grève générale (N/A, Mon, 30 Sep 2024 08:40:00 -0700)
 
 
