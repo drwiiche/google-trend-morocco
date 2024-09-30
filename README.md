@@ -1,3 +1,11 @@
+### epidemie malaria algerie (N/A, Sun, 29 Sep 2024 15:50:00 -0700)
+
+- **Algeria says it registers cases of malaria, diphtheria among expatriates**: [Link](https://www.reuters.com/world/africa/algeria-says-it-registers-cases-malaria-diphtheria-among-expatriates-2024-09-27/)
+- **Algerian Ministry of Health Announces Closure of Southern Provinces Due to 
+Epidemic Outbreak**: [Link](https://fesnews.media/288821/2024/09/28/)
+- **Military Aircraft Delivers Essential Medical Supplies to Southern Algeria**: [Link](https://www.dzair-tube.dz/en/algeria-military-aircraft-delivers-essential-medical-supplies-to-southern-algeria/)
+
+
 ### harry kane (N/A, Sun, 29 Sep 2024 23:50:00 -0700)
 
 - **Harry Kane suffers painful knock to ankle**: [Link](https://fcbayern.com/en/news/2024/09/kane-suffers-painful-knock-to-ankle)
