@@ -1,3 +1,10 @@
+### ousmane dembélé (N/A, Mon, 30 Sep 2024 07:20:00 -0700)
+
+- **‘Heated argument’ sees player pulled out of squad for Arsenal v PSG**: [Link](https://sportwitness.co.uk/heated-argument-sees-player-pulled-out-of-squad-for-arsenal-v-psg/)
+- **PSG star dropped from squad for Arsenal clash after furious row with manager**: [Link](https://www.msn.com/en-au/sport/football/psg-star-dropped-from-squad-for-arsenal-clash-after-furious-row-with-manager/ar-AA1rsza9)
+- **Dembele axed for UCL clash with Arsenal by Luis Enrique**: [Link](https://www.besoccer.com/new/dembele-axed-for-ucl-clash-with-arsenal-by-luis-enrique-1332560)
+
+
 ### air arabia maroc (N/A, Mon, 30 Sep 2024 06:30:00 -0700)
 
 
