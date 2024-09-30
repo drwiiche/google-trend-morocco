@@ -1,3 +1,25 @@
+### friday the 13th (N/A, Sun, 29 Sep 2024 17:00:00 -0700)
+
+- **One of the Worst Friday the 13th Movies Has a Surprising Cult Following**: [Link](https://www.cbr.com/worst-friday-the-13th-movie-cult-following/)
+- **Friday The 13th: Every Version Of Jason Voorhees Without His Mask**: [Link](https://www.slashfilm.com/1674678/friday-the-13th-every-jason-voorhees-without-mask/)
+
+
+### الذكاء الاصطناعي (N/A, Sun, 29 Sep 2024 16:40:00 -0700)
+
+- **تركها محبطاً.. 2.7 مليار دولار من غوغل لإعادة هذا العبقري!**: [Link](https://www.alarabiya.net/technology/2024/09/27/%D8%AA%D8%B1%D9%83%D9%87%D8%A7-%D9%85%D8%AD%D8%A8%D8%B7%D8%A7%D9%8B-2-7-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%85%D9%86-%D8%BA%D9%88%D8%BA%D9%84-%D9%84%D8%A7%D8%B9%D8%A7%D8%AF%D8%A9-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B9%D8%A8%D9%82%D8%B1%D9%8A-)
+- **بعد رحيله بـ 3 سنوات.. جوجل تدفع 130 مليار جنيه لاستعادة موظف**: [Link](https://www.almasryalyoum.com/news/details/3270442)
+- **رفضت مشروعه فتركها.. جوجل تدفع 2.7 مليار دولار لاستعادة عبقري الذكاء 
+الاصطناعي | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2024-09-29/%D8%B1%D9%81%D8%B6%D8%AA-%D9%85%D8%B4%D8%B1%D9%88%D8%B9%D9%87-%D9%81%D8%AA%D8%B1%D9%83%D9%87%D8%A7-%D8%AC%D9%88%D8%AC%D9%84-%D8%AA%D8%AF%D9%81%D8%B9-27-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%B9%D8%A8%D9%82%D8%B1%D9%8A-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
+
+
+### liga (N/A, Sun, 29 Sep 2024 14:20:00 -0700)
+
+- **James Rodríguez's starting role at Rayo divides opinions**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/james-rodr%C3%ADguez-s-starting-role-at-rayo-divides-opinions-2024-09-29)
+- **The colour and contradictions of James Rodriguez’s surprising new start in 
+Spain - The Athletic**: [Link](https://www.nytimes.com/athletic/5776164/2024/09/23/james-rodriguez-copa-america-rayo-vallecano-real-madrid/)
+- **Can Colombia’s James Rodriguez Thrive at Rayo Vallecano?**: [Link](https://latinamericanpost.com/sports/can-colombias-james-rodriguez-thrive-at-rayo-vallecano/)
+
+
 ### air arabia (N/A, Sun, 29 Sep 2024 16:20:00 -0700)
 
 - **Air Arabia expands RAK network with Moscow route**: [Link](https://www.dubaieye1038.com/news/business/air-arabia-expands-ras-al-khaimah-network-with-moscow-route/)
