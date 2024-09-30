@@ -1,3 +1,12 @@
+### ousmane dembélé psg (N/A, Mon, 30 Sep 2024 16:40:00 -0700)
+
+- **Arsenal vs Paris St-Germain: Ousmane Dembele left out of PSG squad**: [Link](https://www.bbc.com/sport/football/live/crkd66jl6m2t)
+- **Enrique: These are the reasons for excluding Dembélé, and Arteta is one of 
+the best coaches currently**: [Link](https://www.ysscores.com/en/news/4852993/Enrique:-These-are-the-reasons-for-excluding-Demb%C3%A9l%C3%A9,-and-Arteta-is-one-of-the-best-coaches-currently)
+- **Luis Enrique explains decision to leave Ousmane Dembélé out of squad to 
+face Arsenal**: [Link](https://sports.yahoo.com/luis-enrique-explains-decision-leave-173100990.html)
+
+
 ### القوات المساعدة (N/A, Mon, 30 Sep 2024 15:50:00 -0700)
 
 
