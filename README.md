@@ -1,3 +1,11 @@
+### مسلسل العبقري (N/A, Sun, 29 Sep 2024 17:30:00 -0700)
+
+- **أبطال مسلسل العبقري.. أراس بولوت إينيملي يتألق**: [Link](https://almashhad.com/article/459217420284850-entertainment/974142147631295-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D8%B9%D8%A8%D9%82%D8%B1%D9%8A-%D8%A3%D8%B1%D8%A7%D8%B3-%D8%A8%D9%88%D9%84%D9%88%D8%AA-%D8%A5%D9%8A%D9%86%D9%8A%D9%85%D9%84%D9%8A-%D9%8A%D8%AA%D8%A3%D9%84%D9%82/)
+- **لعشاق المسلسلات التركية الأكشن: موعد نزول مسلسل العبقري بطولة الفنان أراس 
+بولوت وقصته**: [Link](https://gm.aarcegypt.org/%D9%84%D8%B9%D8%B4%D8%A7%D9%82-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D8%B3%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%83%D8%B4%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D9%86/)
+- **الكشف عن موعد عرض مُسلسل "العبقري".. وهذه قصته**: [Link](https://24.ae/article/847435/)
+
+
 ### diddy (N/A, Sun, 29 Sep 2024 18:00:00 -0700)
 
 - **Lawyer for Sean Combs Accuser Claims She Saw 'High-Profile' Person Featured 
