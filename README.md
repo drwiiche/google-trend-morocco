@@ -1,3 +1,10 @@
+### antoine griezmann (N/A, Mon, 30 Sep 2024 03:30:00 -0700)
+
+- **Griezmann announces shock retirement from French national team**: [Link](https://www.irishexaminer.com/sport/soccer/arid-41486240.html)
+- **France forward Antoine Griezmann retires from international football at 33**: [Link](https://www.vanguardngr.com/2024/09/france-forward-antoine-griezmann-retires-from-international-football-at-33/)
+- **Antoine Griezmann Bids Farewell to International Soccer**: [Link](https://www.footboom1.com/en/news/football/1875832-antoine-griezmann-bids-farewell-to-international-soccer)
+
+
 ### +95 (N/A, Mon, 30 Sep 2024 04:10:00 -0700)
 
 - **Major crash on I-95 causes heavy traffic delays in Miami-Dade**: [Link](https://www.nbcmiami.com/news/local/major-crash-on-i-95-causes-heavy-traffic-delays-in-miami-dade/3430612/)
