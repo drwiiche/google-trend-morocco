@@ -1,3 +1,11 @@
+### harry kane (N/A, Sun, 29 Sep 2024 23:50:00 -0700)
+
+- **Harry Kane suffers painful knock to ankle**: [Link](https://fcbayern.com/en/news/2024/09/kane-suffers-painful-knock-to-ankle)
+- **Bavarian Podcast Works S7E10: Takeaways from the Leverkusen game and Kane’s 
+injury + UCL preview (Aston Villa)**: [Link](https://www.bavarianfootballworks.com/2024/9/30/24257494/bayern-munich-podcast-s7e10-aston-villa-vincent-kompany-unai-emery-leverkusen-lineup-ucl-preview)
+- **Harry Kane expected back for Bayern Munich's trip to Aston Villa**: [Link](https://www.bundesliga.com/en/bundesliga/news/aston-villa-bayern-munich-live-champions-league-blog-preview-report-harry-kane-29091)
+
+
 ### hihi2 (N/A, Sun, 29 Sep 2024 22:40:00 -0700)
 
 
