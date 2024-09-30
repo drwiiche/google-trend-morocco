@@ -1,3 +1,9 @@
+### tax gov ma (N/A, Mon, 30 Sep 2024 01:10:00 -0700)
+
+- **Healey admin budget secretary bracing for "unavoidable deficiencies"**: [Link](https://www.gazettenet.com/Budget-secretary-bracing-for-unavoidable-deficiencies-57213520)
+- **Editorial: Finally, a group ready take on state’s tax-and-spend mentality**: [Link](https://www.sentinelandenterprise.com/2024/09/27/editorial-finally-a-group-ready-take-on-states-tax-and-spend-mentality/)
+
+
 ### renato moicano (N/A, Mon, 30 Sep 2024 03:00:00 -0700)
 
 - **UFC Fight Night: Moicano vs Saint Denis Prelim Results | Winner Interviews, 
