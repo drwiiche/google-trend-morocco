@@ -1,3 +1,10 @@
+### al wasl – al-ahli saudi (N/A, Mon, 30 Sep 2024 08:30:00 -0700)
+
+- **Jesus watches Al-Ahly against Al-Wasl**: [Link](https://www.ysscores.com/en/news/4837042/Jesus-watches-Al-Ahly-against-Al-Wasl)
+- **AWL vs AHL Dream11 Prediction: Expert Analysis for AFC Champions League 
+Clash**: [Link](https://qrius.com/awl-vs-ahl-dream11-prediction-who-will-reign-supreme-in-the-afc-champions-league-clash/)
+
+
 ### ouragan helene (N/A, Mon, 30 Sep 2024 08:20:00 -0700)
 
 - **Près de 100 morts après l'ouragan Hélène, dans le sud-est des États-Unis**: [Link](https://www.france24.com/fr/am%C3%A9riques/20240929-l-ouragan-h%C3%A9l%C3%A8ne-s%C3%A8me-le-chaos-dans-le-sud-est-des-%C3%A9tats-unis-faisant-au-moins-89-morts)
