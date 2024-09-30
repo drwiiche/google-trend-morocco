@@ -1,3 +1,11 @@
+### ouragan helene (N/A, Mon, 30 Sep 2024 08:20:00 -0700)
+
+- **Près de 100 morts après l'ouragan Hélène, dans le sud-est des États-Unis**: [Link](https://www.france24.com/fr/am%C3%A9riques/20240929-l-ouragan-h%C3%A9l%C3%A8ne-s%C3%A8me-le-chaos-dans-le-sud-est-des-%C3%A9tats-unis-faisant-au-moins-89-morts)
+- **Etats-Unis : l'ouragan Helene a fait au moins 93 morts**: [Link](https://lematin.ma/monde/etats-unis-louragan-helene-a-fait-au-moins-93-morts/244821)
+- **“La chance nous a quittés”: une petite île de Floride sort la tête de l'eau 
+après l'ouragan Hélène**: [Link](https://medias24.com/agence-presse/la-chance-nous-a-quittes-une-petite-ile-de-floride-sort-la-tete-de-leau-apres-louragan-helene/)
+
+
 ### ousmane dembélé (N/A, Mon, 30 Sep 2024 07:20:00 -0700)
 
 - **‘Heated argument’ sees player pulled out of squad for Arsenal v PSG**: [Link](https://sportwitness.co.uk/heated-argument-sees-player-pulled-out-of-squad-for-arsenal-v-psg/)
