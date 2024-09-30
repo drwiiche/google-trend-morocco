@@ -1,3 +1,10 @@
+### greve 1 octobre 2024 (N/A, Mon, 30 Sep 2024 05:30:00 -0700)
+
+- **Grève du 1er octobre : école, SNCF, services publics… Tout ce qui est prévu mardi à l’appel de plusieurs syndicats**: [Link](https://www.ladepeche.fr/2024/09/29/greve-du-1er-octobre-ecole-sncf-services-publics-tout-ce-qui-est-prevu-mardi-a-lappel-de-plusieurs-syndicats-12228789.php)
+- **"C'est le match retour contre la réforme des retraites" : Sophie Binet, secrétaire générale de la CGT, appelle à faire grève le 1er octobre**: [Link](https://www.francetvinfo.fr/replay-radio/le-grand-temoin/retraites-il-faut-abroger-cette-reforme-dit-sophie-binet-refusant-des-amenagements-a-la-marge_6770521.html)
+- **On vous explique pourquoi trois organisations syndicales de l'Allier appellent à une manifestation demain**: [Link](http://www.rjfm.net/news/on-vous-explique-pourquoi-trois-organisations-syndicales-de-l-allier-appellent-a-une-manifestation-demain-10669)
+
+
 ### antoine griezmann (N/A, Mon, 30 Sep 2024 03:30:00 -0700)
 
 - **Griezmann announces shock retirement from French national team**: [Link](https://www.irishexaminer.com/sport/soccer/arid-41486240.html)
