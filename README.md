@@ -1,3 +1,10 @@
+### نعيم قاسم (N/A, Mon, 30 Sep 2024 02:30:00 -0700)
+
+- **كلمة مرتقبة لنائب الأمين العام لحزب الله**: [Link](https://www.hespress.com/%D9%83%D9%84%D9%85%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D9%84%D9%86%D8%A7%D8%A6%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%84%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84-1439378.html)
+- **عاجل| حزب الله: كلمة مرتقبة لنائب الأمين العام للحزب نعيم قاسم بعد قليل**: [Link](https://www.aljazeera.net/news/2024/9/30/%D8%B9%D8%A7%D8%AC%D9%84-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%83%D9%84%D9%85%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D9%84%D9%86%D8%A7%D8%A6%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D9%86)
+- **نائب الأمين العام لحزب الله: فقدنا قائدا عاش حاملا خط الخمينى**: [Link](https://www.youm7.com/story/2024/9/30/%D9%86%D8%A7%D8%A6%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%84%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%81%D9%82%D8%AF%D9%86%D8%A7-%D9%82%D8%A7%D8%A6%D8%AF%D8%A7-%D8%B9%D8%A7%D8%B4-%D8%AD%D8%A7%D9%85%D9%84%D8%A7-%D8%AE%D8%B7/6724873)
+
+
 ### griezmann (N/A, Mon, 30 Sep 2024 02:20:00 -0700)
 
 - **France striker Antoine Griezmann retires from international soccer**: [Link](https://lethbridgeherald.com/sports/national-sports/2024/09/30/france-striker-antoine-griezmann-retires-from-international-soccer/)
