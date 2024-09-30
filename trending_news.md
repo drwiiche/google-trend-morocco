@@ -1,3 +1,20 @@
+### diddy (N/A, Sun, 29 Sep 2024 18:00:00 -0700)
+
+- **Lawyer for Sean Combs Accuser Claims She Saw 'High-Profile' Person Featured 
+in Tape Allegedly Connected to Diddy**: [Link](https://people.com/diddy-accuser-lawyer-claims-she-saw-high-profile-person-in-tape-8720232)
+- **Diddy Accuser’s Attorney Says “High-Profile” Person Seen With Mogul in 
+Pornographic Video**: [Link](https://www.hollywoodreporter.com/news/music-news/diddy-video-more-high-profile-person-accuser-lawyer-1236017469/)
+- **Sean 'Diddy' Combs facing more allegations of sexual assault**: [Link](https://www.bbc.com/news/articles/cg56zdr1047o)
+
+
+### kick (N/A, Sun, 29 Sep 2024 17:40:00 -0700)
+
+- **Thursday Night Football highlights: Aaron Rodgers, Jets dominate Patriots**: [Link](https://www.nbcnews.com/news/sports/live-blog/patriots-vs-jets-live-updates-jacoby-brissett-takes-aaron-rodgers-new-rcna171577)
+- **Robert Saleh Celebrated a Broncos Missed Kick Right Before the Jets Did the 
+Same**: [Link](https://www.si.com/nfl/robert-saleh-celebrated-broncos-missed-kick-jets-did)
+- **Jets QB Aaron Rodgers 'fine' after getting 'banged up' in loss to Broncos**: [Link](https://sports.yahoo.com/jets-qb-aaron-rodgers-fine-210500196.html)
+
+
 ### friday the 13th (N/A, Sun, 29 Sep 2024 17:00:00 -0700)
 
 - **One of the Worst Friday the 13th Movies Has a Surprising Cult Following**: [Link](https://www.cbr.com/worst-friday-the-13th-movie-cult-following/)
