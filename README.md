@@ -1,3 +1,21 @@
+### renato moicano (N/A, Mon, 30 Sep 2024 03:00:00 -0700)
+
+- **UFC Fight Night: Moicano vs Saint Denis Prelim Results | Winner Interviews, 
+Highlights And More From Paris**: [Link](https://www.ufc.com/news/prelim-results-highlights-winner-interviews-ufc-paris-moicano-vs-saint-denis)
+- **Fares Ziam reacts to first UFC knockout, says extra punches 'not super 
+necessary'**: [Link](https://mmajunkie.usatoday.com/2024/09/ufc-paris-fares-ziam-reacts-knockout-of-year-contender-apologizes-extra-punches)
+- **Fan-Favorite Fighter Flatlined by Vicious Knee at UFC Paris**: [Link](https://www.si.com/fannation/mma/news/fan-favorite-fighter-flatlined-by-vicious-knee-at-ufc-paris)
+
+
+### ancelotti (N/A, Mon, 30 Sep 2024 02:10:00 -0700)
+
+- **Atlético coach Simeone lashes out at fans stopping Madrid derby**: [Link](https://www.espn.com/soccer/story/_/id/41515949/madrid-derby-halted-atletico-fans-throw-objects-field)
+- **Atletico Madrid facing partial stadium ban following incidents against Real 
+Madrid in derby**: [Link](https://sports.yahoo.com/atletico-madrid-facing-partial-stadium-084700157.html)
+- **Diego Simeone fumes at Atlético ultras after trouble stops derby for 15 
+minutes**: [Link](https://www.theguardian.com/football/2024/sep/29/atletico-madrid-real-madrid-la-liga-match-report)
+
+
 ### نعيم قاسم (N/A, Mon, 30 Sep 2024 02:30:00 -0700)
 
 - **كلمة مرتقبة لنائب الأمين العام لحزب الله**: [Link](https://www.hespress.com/%D9%83%D9%84%D9%85%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D9%84%D9%86%D8%A7%D8%A6%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%84%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84-1439378.html)
