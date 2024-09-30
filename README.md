@@ -1,3 +1,12 @@
+### classroom (N/A, Mon, 30 Sep 2024 00:50:00 -0700)
+
+- **ASU West student's quick thinking likely saved classmate during stabbing 
+incident**: [Link](https://www.fox10phoenix.com/news/asu-west-students-quick-thinking-likely-saved-classmate-during-stabbing-incident)
+- **Arizona college student stabbed twice in random classroom attack**: [Link](https://www.foxnews.com/us/arizona-college-student-stabbed-twice-random-classroom-attack)
+- **Arizona State University student stabbed entering classroom in random 
+attack — after suspect pinpointed her as ‘easier target’**: [Link](https://nypost.com/2024/09/27/us-news/asu-student-stabbed-stabbed-twice-while-entering-classroom/)
+
+
 ### epidemie malaria algerie (N/A, Sun, 29 Sep 2024 15:50:00 -0700)
 
 - **Algeria says it registers cases of malaria, diphtheria among expatriates**: [Link](https://www.reuters.com/world/africa/algeria-says-it-registers-cases-malaria-diphtheria-among-expatriates-2024-09-27/)
