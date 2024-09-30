@@ -1,3 +1,8 @@
+### air arabia maroc (N/A, Mon, 30 Sep 2024 06:30:00 -0700)
+
+
+
+
 ### akdital (N/A, Mon, 30 Sep 2024 05:50:00 -0700)
 
 - **Akdital: Le résultat net franchit la barre de 100 millions de dirhams**: [Link](https://lematin.ma/economie/akdital-le-resultat-net-franchit-la-barre-de-100-millions-de-dirhams/244819)
