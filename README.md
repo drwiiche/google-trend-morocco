@@ -1,3 +1,10 @@
+### bournemouth – southampton (N/A, Mon, 30 Sep 2024 12:10:00 -0700)
+
+- **Preview: Bournemouth vs. Southampton - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bournemouth/preview/preview-bournemouth-vs-southampton-prediction-team-news-lineups_554114.html)
+- **Premier League team news, injury latest, suspensions, previews and Fantasy Football - matchweek 6**: [Link](https://www.skysports.com/football/live-blog/11661/13197324/pl-build-up-live-maresca-arteta-pep-and-more-to-speak)
+- **'We have to be more clinical': Iraola on Cherries' expected goals**: [Link](https://uk.news.yahoo.com/more-clinical-iraola-cherries-expected-230000680.html)
+
+
 ### فياريال ضد لاس بالماس (N/A, Mon, 30 Sep 2024 11:50:00 -0700)
 
 - **موعد مباراة فياريال ولاس بالماس في ختام الجولة الثامنة من الدوري الإسباني 
