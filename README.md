@@ -1,3 +1,20 @@
+### marine le pen (N/A, Mon, 30 Sep 2024 04:30:00 -0700)
+
+- **Procès des assistants parlementaires du FN : comment Jordan Bardella a été 
+rattrapé par l'affaire alors qu'il n'est pas poursuivi par la justice**: [Link](https://www.francetvinfo.fr/politique/front-national/affaire-des-assistants-fn-au-parlement-europeen/proces-des-assistants-parlementaires-du-fn-comment-jordan-bardella-a-ete-rattrape-par-l-affaire-alors-qu-il-n-est-pas-poursuivi-par-la-justice_6799075.html)
+- **«Rien ne m'empêchera de me présenter à l'élection présidentielle» : Marine 
+Le Pen face au spectre de l’inéligibilité**: [Link](https://www.lefigaro.fr/politique/rien-ne-m-empechera-de-me-presenter-a-l-election-presidentielle-marine-le-pen-face-au-spectre-de-l-ineligibilite-20240929)
+- **Fonds publics européens: le procès de Marine Le Pen, du RN et de 24 
+personnes s'ouvre à Paris**: [Link](https://medias24.com/agence-presse/fonds-publics-europeens-le-proces-de-marine-le-pen-du-rn-et-de-24-personnes-souvre-a-paris/)
+
+
+### tadej pogačar (N/A, Mon, 30 Sep 2024 04:30:00 -0700)
+
+- **As it happened: Pogacar's historic World Championship title**: [Link](https://www.cyclingnews.com/races/uci-road-world-championships-2024/elite-men-road-race/live-report/)
+- **Mathieu van der Poel: This is just the beginning of the Pogačar era**: [Link](https://www.rouleur.cc/blogs/the-rouleur-journal/mathieu-van-der-poel-this-is-just-the-beginning-of-the-pogacar-era)
+- **POGACAR CAPS SEASON FOR THE AGES WITH NEAR-MYTHICAL RAINBOW WIN**: [Link](https://www.podiumcafe.com/2024/9/29/24257620/pogacar-caps-season-for-the-ages-with-near-mythical-rainbow-win)
+
+
 ### tax gov ma (N/A, Mon, 30 Sep 2024 01:10:00 -0700)
 
 - **Healey admin budget secretary bracing for "unavoidable deficiencies"**: [Link](https://www.gazettenet.com/Budget-secretary-bracing-for-unavoidable-deficiencies-57213520)
