@@ -1,3 +1,24 @@
+### الهلال ضد الشرطة (N/A, Tue, 1 Oct 2024 10:30:00 -0700)
+
+- **بونو: بطولة آسيا تعني الكثير للهلال**: [Link](https://www.hespress.com/%D8%A8%D9%88%D9%86%D9%88-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A2%D8%B3%D9%8A%D8%A7-%D8%AA%D8%B9%D9%86%D9%8A-%D8%A7%D9%84%D9%83%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%A3%D9%87%D9%84%D9%8A-1439797.html)
+- **التشكيل الرسمي لموقعة الشرطة والهلال**: [Link](https://m.kooora.com/?n=1358496&o=n)
+- **مباشر مباراة الهلال السعودي ضد الشرطة العراقي بدوري أبطال آسيا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/1/al-shorta-v-al-hilal)
+
+
+### cnn (N/A, Tue, 1 Oct 2024 10:10:00 -0700)
+
+- **What Israel’s ground operation into Lebanon drives home about America**: [Link](https://www.cnn.com/2024/09/30/politics/america-israel-lebanon-war-analysis/index.html)
+- **US is sending more troops to the Middle East as violence rises between Israel and Hezbollah**: [Link](https://apnews.com/article/israel-lebanon-violence-war-hezbollah-63a15fa390a94acf46ef886cc5fb88db)
+- **Here’s where US forces are in the Middle East as war looms**: [Link](https://www.militarytimes.com/news/your-military/2024/09/22/as-conflict-looms-where-are-us-forces-in-the-middle-east/)
+
+
+### wero (N/A, Tue, 1 Oct 2024 08:30:00 -0700)
+
+- **Europe’s Banks Launch Wero Payments to Dislodge Visa, Mastercard**: [Link](https://www.bloomberg.com/news/articles/2024-09-27/visa-and-mastercard-bnp-deutsche-bank-launch-wero-payment-alternative)
+- **Wero set to become Europe's first unified payment solution**: [Link](https://www.euronews.com/business/2024/09/30/wero-set-to-become-europes-first-unified-payment-solution)
+- **EPI Launches Wero, Its European Digital Payment Wallet in France**: [Link](https://financialit.net/news/payments/epi-launches-wero-its-european-digital-payment-wallet-france)
+
+
 ### الجزيرة (N/A, Tue, 1 Oct 2024 10:20:00 -0700)
 
 - **إيران تقصف إسرائيل**: [Link](https://www.aljazeera.net/news/2024/10/1/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%82%D8%B5%D9%81-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
