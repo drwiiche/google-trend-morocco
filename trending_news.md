@@ -1,3 +1,11 @@
+### al jazeera live (N/A, Tue, 1 Oct 2024 10:00:00 -0700)
+
+- **Iran has launched missiles toward Israel, the Israeli military says: Live 
+updates**: [Link](https://www.cnn.com/world/live-news/israel-lebanon-war-hezbollah-10-1-24-intl-hnk/index.html)
+- **Israel war on Gaza, Lebanon live: Iran fires dozens of missiles at Israel**: [Link](https://www.aljazeera.com/news/liveblog/2024/10/1/israel-attacks-lebanon-live-israelis-launch-ground-operation-in-lebanon?update=3214701)
+- **Lebanon fears a repeat of past Israeli invasions**: [Link](https://www.nbcnews.com/news/world/israel-hezbollah-war-lebanon-invasion-repeat-palestinians-gaza-hamas-rcna173391)
+
+
 ### rb salzburg – brest (N/A, Tue, 1 Oct 2024 09:40:00 -0700)
 
 - **""RB Salzburg Brest en direct live résultats en direct de Red Bull , live 
