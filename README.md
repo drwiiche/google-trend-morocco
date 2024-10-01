@@ -1,3 +1,27 @@
+### dortmund vs celtic (N/A, Tue, 1 Oct 2024 13:10:00 -0700)
+
+- **UEFA Champions League Borussia Dortmund versus Celtic kick off 20:00 Tue 1 
+Oct 2024**: [Link](https://www.bbc.com/sport/football/live/c89leed1eyjt)
+- **Football Bet of the Day: Goals the way to go in Germany on Tuesday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-goals-the-way-to-go-in-germany-on-tuesday/)
+- **Nuri Sahin looking forward to Brendan Rodgers reunion, 11 years on from 
+Liverpool feud**: [Link](https://bvbbuzz.com/posts/nuri-sahin-looking-forward-to-brendan-rodgers-reunion-11-years-on-from-liverpool-feud-01j93nt2endq)
+
+
+### milan (N/A, Tue, 1 Oct 2024 13:00:00 -0700)
+
+- **Preview: Inter Milan vs. Red Star Belgrade - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/champions-league/preview/preview-inter-milan-vs-red-star-prediction-team-news-lineups_554174.html)
+- **Ex Inter Milan & Red Star Striker: “Need Great Number 9 To Win Champions 
+League”**: [Link](https://sempreinter.com/2024/10/01/ex-inter-milan-star-darko-pancev-need-great-number-nine-win-champions-league/)
+- **Inzaghi reveals two Inter starters but won’t comment on ultras’ arrests**: [Link](https://football-italia.net/inzaghi-two-inter-starters-ucl-ultras-arrest/)
+
+
+### برشلونة (N/A, Tue, 1 Oct 2024 12:50:00 -0700)
+
+- **موعد إعلان برشلونة عن صفقة تشيزني**: [Link](https://www.kooora.com/?n=1358477)
+- **راتب أقل من سابقه.. تفاصيل عقد حارس مرمى برشلونة الجديد**: [Link](https://sport.al3omk.com/68944.html)
+- **بعد صور تشيزني.. حارس ريال مدريد يدافع عن اللاعبين المدخنين**: [Link](https://www.alarabiya.net/sport/2024/09/27/%D8%A8%D8%B9%D8%AF-%D8%B5%D9%88%D8%B1-%D8%AA%D8%B4%D9%8A%D8%B2%D9%86%D9%8A-%D8%AD%D8%A7%D8%B1%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%AF%D8%AE%D9%86%D9%8A%D9%86)
+
+
 ### ac milan (N/A, Tue, 1 Oct 2024 13:00:00 -0700)
 
 - **CM: Leverkusen star makes AC Milan declaration while Inter chase free 
