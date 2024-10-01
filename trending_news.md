@@ -1,3 +1,12 @@
+### la srm casablanca (N/A, Tue, 1 Oct 2024 02:40:00 -0700)
+
+- **La SRM Casablanca-Settat entre en service, la région tourne définitivement 
+la page de Lydec**: [Link](https://medias24.com/2024/09/30/la-srm-casablanca-settat-entre-en-service-la-region-tourne-definitivement-la-page-de-lydec/)
+- **Services publics: Exit Lydec, la SRM Casablanca-Settat démarre son activité 
+ce mardi 1er octobre**: [Link](https://fr.le360.ma/economie/services-publics-exit-lydec-la-srm-casablanca-settat-demarre-son-activite-ce-mardi-1er-octobre_CRLMMKIC7VHWFGXNDCWES5NGGU/)
+- **La Société Régionale Multiservices Casablanca-Settat démarre ses activités**: [Link](https://lematin.ma/regions/demarrage-des-activites-de-la-srm-casablanca-settat/244927)
+
+
 ### srm casa settat (N/A, Tue, 1 Oct 2024 04:30:00 -0700)
 
 - **La SRM Casablanca-Settat entre en service, la région tourne définitivement 
