@@ -1,3 +1,20 @@
+### barca vs (N/A, Tue, 1 Oct 2024 12:40:00 -0700)
+
+- **Barcelona - Young Boys, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/barcelona-young-boys-en-directo-champions-league-hoy-en-vivo-n/)
+- **Barcelona - Young Boys en directo: ¡Gol de Íñigo Martínez! Partido de la 
+Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/barcelona-young-boys/2024/10/01/01_0103_20241001_178_1963-directo.html)
+- **FC Barcelona - Young Boys, en directo hoy: resultado y goles, en vivo | 
+Champions League liguilla hoy**: [Link](https://www.sport.es/es/noticias/barca/fc-barcelona-young-boys-directo-108802094)
+
+
+### milan ac (N/A, Tue, 1 Oct 2024 12:40:00 -0700)
+
+- **DIRECT. Bayer Leverkusen-AC Milan (Ligue des champions 2024-2025) à suivre 
+en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/bayer-leverkusen-ac-milan-live/667985)
+- **Bayer Leverkusen-AC Milan : les compositions officielles**: [Link](https://www.footmercato.net/a4149741943994638923-bayer-leverkusen-ac-milan-les-compositions-officielles)
+- **PRONOS PARIS RMC Le pari à domicile du 1er octobre - Ligue des Champions**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-1er-octobre-ligue-des-champions_AN-202409300656.html)
+
+
 ### champions league (N/A, Tue, 1 Oct 2024 12:30:00 -0700)
 
 - **Barcelona vs Young Boys prediction and betting tips on October 1, 2024**: [Link](https://ratingbet.com/predictions/barcelona-vs-young-boys-prediction-and-betting-tips-on-october-1-2024/)
