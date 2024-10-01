@@ -1,3 +1,19 @@
+### champions league (N/A, Tue, 1 Oct 2024 12:30:00 -0700)
+
+- **Barcelona vs Young Boys prediction and betting tips on October 1, 2024**: [Link](https://ratingbet.com/predictions/barcelona-vs-young-boys-prediction-and-betting-tips-on-october-1-2024/)
+- **Barcelona midfielder Marc Casado – “Hansi Flick has helped me to understand 
+many aspects of the game”**: [Link](https://www.football-espana.net/2024/09/30/barcelona-midfielder-marc-casado-hansi-flick-has-helped-me-to-understand-many-aspects-of-the-game)
+- **PREVIEW | FC Barcelona v Young Boys**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4136904/preview-fc-barcelona-v-young-boys)
+
+
+### ucl (N/A, Tue, 1 Oct 2024 12:30:00 -0700)
+
+- **Arsenal vs Paris St-Germain: Ousmane Dembele left out of PSG squad**: [Link](https://www.bbc.com/sport/football/live/crkd66jl6m2t)
+- **Enrique: These are the reasons for excluding Dembélé, and Arteta is one of 
+the best coaches currently**: [Link](https://www.ysscores.com/en/news/4852993/Enrique:-These-are-the-reasons-for-excluding-Demb%C3%A9l%C3%A9,-and-Arteta-is-one-of-the-best-coaches-currently)
+- **Luis Enrique Punished Dembélé: "I Would Do It 100 Times More!"**: [Link](https://www.footboom1.com/en/news/football/1876982-luis-enrique-punished-dembele-i-would-do-it-100-times-more)
+
+
 ### leverkusen vs milan (N/A, Tue, 1 Oct 2024 12:20:00 -0700)
 
 - **CM: Leverkusen star makes AC Milan declaration while Inter chase free 
