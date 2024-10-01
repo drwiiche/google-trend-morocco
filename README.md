@@ -1,3 +1,32 @@
+### الجزيرة (N/A, Tue, 1 Oct 2024 10:20:00 -0700)
+
+- **إيران تقصف إسرائيل**: [Link](https://www.aljazeera.net/news/2024/10/1/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%82%D8%B5%D9%81-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **بدأ الرد.. صواريخ تنطلق من إيران على إسرئيل**: [Link](https://www.alarabiya.net/arab-and-world/2024/10/01/%D8%A8%D8%AF%D8%A3-%D8%A7%D9%84%D8%B1%D8%AF-%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%AA%D9%86%D8%B7%D9%84%D9%82-%D9%85%D9%86-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D8%B3%D8%B1%D8%A6%D9%8A%D9%84)
+- **إيران تطلق أكثر من 100 صاروخ .. وصافرات الإنذار تدوي في إسرائيل**: [Link](https://www.hespress.com/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B7%D9%84%D9%82-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-100-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE-%D9%88%D8%B5%D8%A7%D9%81%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D9%86-1440278.html)
+
+
+### al gharafa – al ain (N/A, Tue, 1 Oct 2024 10:10:00 -0700)
+
+- **Al-Gharafa vs Al-Ain prediction, H2H & Probable Line-ups - October 1, 2024**: [Link](https://dailysports.net/predictions/algharafa-vs-alain-prediction-h2h-probable-lineups-october-1-2024/)
+
+
+### aljazeera (N/A, Tue, 1 Oct 2024 10:10:00 -0700)
+
+- **Israel says it's raiding Hezbollah strongholds in Lebanon, group fires at 
+Israel**: [Link](https://www.reuters.com/world/middle-east/israeli-military-has-begun-limited-raids-against-hezbollah-targets-border-area-2024-09-30/)
+- **What Is Happening in Lebanon? Iran Launches Missile Attack After Israeli 
+Operation Against Hezbollah**: [Link](https://www.wsj.com/world/middle-east/what-is-happening-in-lebanon-israel-begins-ground-operation-against-hezbollah-a8928b7f)
+- **Video: Fareed Zakaria weighs in on Israel launching a ‘limited ground 
+operation’ on Lebanon**: [Link](https://www.cnn.com/2024/09/30/world/video/israel-limited-ground-operartion-lebanon-fareed-zakaria-ebof-digvid)
+
+
+### al-hilal – al shorta (N/A, Tue, 1 Oct 2024 10:00:00 -0700)
+
+- **Al-Shorta coach praises Al-Hilal and refuses to compare it to Al-Nasr**: [Link](https://www.ysscores.com/en/news/4859627/Al-Shorta-coach-praises-Al-Hilal-and-refuses-to-compare-it-to-Al-Nasr)
+- **Al Hilal seeks back-to-back wins in AFC Elite Champions League**: [Link](https://www.arabtimesonline.com/news/al-hilal-seeks-back-to-back-wins-in-afc-elite-champions-league/)
+- **Bono: Our team will not be affected by absences**: [Link](https://www.ysscores.com/en/news/4848319/Bono:-Our-team-will-not-be-affected-by-absences)
+
+
 ### al jazeera live (N/A, Tue, 1 Oct 2024 10:00:00 -0700)
 
 - **Iran has launched missiles toward Israel, the Israeli military says: Live 
