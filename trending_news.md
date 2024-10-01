@@ -1,3 +1,12 @@
+### latvia (N/A, Mon, 30 Sep 2024 16:50:00 -0700)
+
+- **Estonia, Latvia, Lithuania and Poland want EU funds to beef up border with 
+Russia**: [Link](https://www.euronews.com/2024/09/28/estonia-latvia-lithuania-and-poland-want-eu-funds-to-beef-up-border-with-russia)
+- **States Bordering Belarus, Russia Seek EU Funds For Massive Defense Line**: [Link](https://www.rferl.org/a/russia-belarus-eu-border-fortifications/33138798.html)
+- **Poland and Baltic states to ask EU for funding for fortifications on border 
+with Russia and Belarus**: [Link](https://www.pravda.com.ua/eng/news/2024/09/28/7477251/)
+
+
 ### ousmane dembélé psg (N/A, Mon, 30 Sep 2024 16:40:00 -0700)
 
 - **Arsenal vs Paris St-Germain: Ousmane Dembele left out of PSG squad**: [Link](https://www.bbc.com/sport/football/live/crkd66jl6m2t)
