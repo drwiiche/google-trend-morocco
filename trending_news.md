@@ -1,3 +1,12 @@
+### psv (N/A, Tue, 1 Oct 2024 13:40:00 -0700)
+
+- **Rik Elfrink: "Hij is een ware sensatie gebleken in Portugal"**: [Link](https://www.psvfans.nl/rik-elfrink-hij-is-een-ware-sensatie-gebleken-in-portugal/)
+- **~!LIVE. PSV - Sporting CP live op tv en livestream ! Champions League live 
+01 oktober 2024 **: [Link](https://paralimpicos.pt/html/rdw/video/videos-psv-sporting-match-liv-53.html)
+- **VIDEO. Het kan niet elke week feest zijn: risicovolle pass van Zeno Debast 
+levert (duur) tegendoelpunt op**: [Link](https://www.nieuwsblad.be/cnt/dmf20241001_97084566)
+
+
 ### champions league 2024 (N/A, Tue, 1 Oct 2024 12:40:00 -0700)
 
 - **How the new Champions League table works and how many teams qualify as 
