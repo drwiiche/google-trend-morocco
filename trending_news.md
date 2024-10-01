@@ -1,3 +1,13 @@
+### octobre (N/A, Tue, 1 Oct 2024 00:30:00 -0700)
+
+- **États-Unis : les "surprises d'octobre", ces événements qui peuvent faire 
+basculer la présidentielle**: [Link](https://www.france24.com/fr/am%C3%A9riques/20241001-%C3%A9tats-unis-surprises-octobre-%C3%A9v%C3%A9nements-qui-peuvent-faire-basculer-pr%C3%A9sidentielle)
+- **États-Unis : les "surprises d'octobre", ces événements qui peuvent faire 
+basculer la présidentielle**: [Link](https://fr.news.yahoo.com/%C3%A9tats-unis-surprises-doctobre-%C3%A9v%C3%A9nements-144731705.html)
+- **États-Unis : les "surprises d'octobre", ces événements qui peuvent faire 
+basculer la présidentielle**: [Link](https://www.msn.com/fr-fr/actualite/monde/%C3%A9tats-unis-les-surprises-d-octobre-ces-%C3%A9v%C3%A9nements-qui-peuvent-faire-basculer-la-pr%C3%A9sidentielle/ar-AA1rx1vn)
+
+
 ### la srm casablanca (N/A, Tue, 1 Oct 2024 02:40:00 -0700)
 
 - **La SRM Casablanca-Settat entre en service, la région tourne définitivement 
