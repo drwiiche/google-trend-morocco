@@ -1,3 +1,10 @@
+### lydec (N/A, Tue, 1 Oct 2024 00:00:00 -0700)
+
+- **Casablanca: la Société Régionale Multiservices prend le relais de la Lydec**: [Link](https://www.infomediaire.net/casablanca-la-societe-regionale-multiservices-prend-le-relais-de-la-lydec/)
+- **SRM Casa-Settat: C’est parti pour 30 ans**: [Link](https://www.leconomiste.com/article/1125844-srm-casa-settat-c-est-parti-pour-30-ans)
+- **Vidéo. Eau-électricité: C’est parti pour la SRM de Casa-Settat**: [Link](https://aujourdhui.ma/videos/video-eau-electricite-cest-parti-pour-la-srm-de-casa-settat)
+
+
 ### نتائج الانتقاء الأولي لمباراة التعليم 2024 (N/A, Mon, 30 Sep 2024 16:40:00 -0700)
 
 - **التسجيل في مباراة التعليم 2024 المغرب منصة tawdif.men.gov.ma الرسمية**: [Link](https://news.elsob7.com/1143467/%D8%A7%D9%84%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-2024-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86%D8%B5/)
