@@ -1,3 +1,11 @@
+### carlos alcaraz (N/A, Tue, 1 Oct 2024 01:30:00 -0700)
+
+- **Carlos Alcaraz se planta en Pekín en la sexta semifinal del año y recupera 
+el número dos del ranking**: [Link](https://www.marca.com/tenis/2024/09/30/66fa5f4846163f02818b4586.html)
+- **Highlights: Alcaraz desborda a Khachanov en CF de Pekín**: [Link](https://www.atptour.com/es/video/highlights-alcaraz-too-good-for-khachanov-in-beijing-2024-qf-clash)
+- **Alcaraz y Sinner se clasifican para semifinales del torneo de Pekín**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20240930-alcaraz-y-sinner-se-clasifican-para-semifinales-del-torneo-de-pek%C3%ADn)
+
+
 ### outlook (N/A, Tue, 1 Oct 2024 01:00:00 -0700)
 
 - **Greggs says it has no plans for more price rises as sales slow**: [Link](https://www.theguardian.com/business/2024/oct/01/greggs-price-rises-sales-shares)
