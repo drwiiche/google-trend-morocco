@@ -1,3 +1,11 @@
+### atos (N/A, Mon, 30 Sep 2024 21:10:00 -0700)
+
+- **Atos to Advance ESA’s Climate Adaptation Platform**: [Link](https://www.tipranks.com/news/company-announcements/atos-to-advance-esas-climate-adaptation-platform)
+- **Atos selected by the European Space Agency (ESA) to expand the capabilities 
+of the Destination Earth (DestinE) services platform**: [Link](https://www.epressi.com/tiedotteet/teknologia/atos-selected-by-the-european-space-agency-esa-to-expand-the-capabilities-of-the-destination-earth-destine-services-platform.html)
+- **Atos Says Shareholders Back Safeguard Plan**: [Link](https://www.barrons.com/news/atos-says-shareholders-back-safeguard-plan-b4a37145)
+
+
 ### frenkie de jong (N/A, Tue, 1 Oct 2024 00:30:00 -0700)
 
 - **Frenkie de Jong: 'I'll be back soon'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4131037/frenkie-de-jong-ill-be-back-soon)
