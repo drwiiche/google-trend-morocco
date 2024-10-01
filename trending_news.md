@@ -1,3 +1,18 @@
+### outlook (N/A, Tue, 1 Oct 2024 01:00:00 -0700)
+
+- **Greggs says it has no plans for more price rises as sales slow**: [Link](https://www.theguardian.com/business/2024/oct/01/greggs-price-rises-sales-shares)
+- **Greggs Sales Rise, Sticks to Outlook**: [Link](https://www.marketwatch.com/story/greggs-sales-rise-sticks-to-outlook-0a93b1c9)
+- **Autumn brings the return of strong growth at Greggs after summer slowdown**: [Link](https://www.standard.co.uk/business/greggs-autumn-slowdown-election-september-pumpkin-spiced-doughnut-b1185183.html)
+
+
+### dikembe mutombo (N/A, Tue, 1 Oct 2024 00:30:00 -0700)
+
+- **How Dikembe Mutombo defended the hoop, hope and happiness**: [Link](https://www.nba.com/news/dikembe-mutombo-tribute-defended-hoop-hope-happiness)
+- **Basketball star Dikembe Mutombo, known for his shot-blocking skill and 
+famed finger wave, dies at 58**: [Link](https://www.cnn.com/2024/09/30/sport/dikembe-mutombo-death-nba-spt-intl/index.html)
+- **Dikembe Mutombo: NBA legend dies from brain cancer aged 58**: [Link](https://www.bbc.com/sport/basketball/articles/c243z09g6vzo)
+
+
 ### lydec (N/A, Tue, 1 Oct 2024 00:00:00 -0700)
 
 - **Casablanca: la Société Régionale Multiservices prend le relais de la Lydec**: [Link](https://www.infomediaire.net/casablanca-la-societe-regionale-multiservices-prend-le-relais-de-la-lydec/)
