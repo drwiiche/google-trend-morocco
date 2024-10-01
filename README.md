@@ -1,3 +1,27 @@
+### rb salzburg – brest (N/A, Tue, 1 Oct 2024 09:40:00 -0700)
+
+- **""RB Salzburg Brest en direct live résultats en direct de Red Bull , live 
+scores, player stats, standings, fantasy games TV channels and more.**: [Link](https://paralimpicos.pt/html/rdw/video/video-rb-salzburg-vs-brest-hs-new-tv-0523.html)
+- **UEFA Champions League Red Bull Salzburg versus Brest kick off 17:45 Tue 1 
+Oct 2024**: [Link](https://www.bbc.com/sport/football/live/cwylkkwpn3jt)
+- **Brest predicted XI v RB Salzburg: Jordan Amavi dropped, Mama Baldé to start**: [Link](https://www.getfootballnewsfrance.com/2024/brest-predicted-xi-v-rb-salzburg-jordan-amavi-dropped-mama-balde-to-start/)
+
+
+### stuttgart – sparta prague (N/A, Tue, 1 Oct 2024 09:40:00 -0700)
+
+- **Stuttgart vs. Sparta Prague Predictions, Picks, Odds — Champions League 
+Tuesday**: [Link](https://www.actionnetwork.com/soccer/stuttgart-vs-sparta-prague-prediction-pick-odds-for-champions-league-tuesday)
+- **Stuttgart host Sparta looking for first points**: [Link](https://www.bundesliga.com/en/bundesliga/news/stuttgart-sparta-prague-live-champions-league-blog-preview-report-undav-29087)
+- **Preview: Stuttgart vs. Sparta Prague - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/stuttgart/champions-league/preview/preview-stuttgart-vs-sparta-prague-prediction-team-news-lineups_554180.html)
+
+
+### iran (N/A, Tue, 1 Oct 2024 09:40:00 -0700)
+
+- **Israel-Lebanon latest: Iran preparing to launch missile attack on Israel, says US, as Israel invades southern Lebanon**: [Link](https://www.bbc.com/news/live/cg4qx62kkxxt)
+- **Senior White House official: Iran about to attack Israel with ballistic missiles**: [Link](https://www.timesofisrael.com/liveblog-october-1-2024/)
+- **Iran launches missiles towards Israel, IDF says, as civilians take shelter – Middle East crisis live**: [Link](https://www.theguardian.com/world/live/2024/oct/01/israel-lebanon-attacks-live-blog-ground-offensive-hezbollah-hamas-gaza-war)
+
+
 ### octobre (N/A, Tue, 1 Oct 2024 00:30:00 -0700)
 
 - **États-Unis : les "surprises d'octobre", ces événements qui peuvent faire 
