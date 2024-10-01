@@ -1,3 +1,53 @@
+### ac milan (N/A, Tue, 1 Oct 2024 13:00:00 -0700)
+
+- **CM: Leverkusen star makes AC Milan declaration while Inter chase free 
+transfer**: [Link](https://sempremilan.com/cm-leverkusen-tah-milan-inter-free)
+- **Fonseca: "I shared words of motivation and courage to play a quality game"**: [Link](https://milanreports.com/2024/10/01/fonseca-words-of-motivation/)
+- **Xabi Alonso and the Memories of Istanbul**: [Link](https://www.footboom1.com/en/news/football/1878415-xabi-alonso-and-the-memories-of-istanbul)
+
+
+### barcelona (N/A, Tue, 1 Oct 2024 12:50:00 -0700)
+
+- **Barcelona - Young Boys en directo: ¡Gol de Íñigo Martínez! Partido de la Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/barcelona-young-boys/2024/10/01/01_0103_20241001_178_1963-directo.html)
+- **FC Barcelona - Young Boys, en directo hoy: resultado y goles, en vivo | Champions League liguilla hoy**: [Link](https://www.sport.es/es/noticias/barca/fc-barcelona-young-boys-directo-108802094)
+- **Barcelona - Young Boys, última hora en directo | Champions League de fútbol: jornada 2**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241001/1002322899/barcelona-young-boys-directo-champions-league-drca1.html)
+
+
+### fc barcelone (N/A, Tue, 1 Oct 2024 12:50:00 -0700)
+
+- **FC Barcelone - Young Boys Berne : sur quelle chaîne voir le match de la Ligue des champions ? (Foot)**: [Link](https://www.lequipe.fr/Football/Actualites/Fc-barcelone-young-boys-berne-sur-quelle-chaine-voir-le-match-de-la-ligue-des-champions/1511123)
+- **FC Barcelone-Young Boys de Berne**: [Link](https://www.footmercato.net/a1779697197054322610-fc-barcelone-young-boys-de-berne)
+- **Frenkie de Jong avec le feu vert médical dans le groupe pour la réception des Young Boys**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4137104/frenkie-de-jong-avec-le-feu-vert-medical-dans-le-groupe-pour-la-reception-des-young-boys)
+
+
+### uefa champions league (N/A, Tue, 1 Oct 2024 12:50:00 -0700)
+
+- **UEFA Champions League Borussia Dortmund versus Celtic kick off 20:00 Tue 1 Oct 2024**: [Link](https://www.bbc.com/sport/football/live/c89leed1eyjt)
+- **Football Bet of the Day: Goals the way to go in Germany on Tuesday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-goals-the-way-to-go-in-germany-on-tuesday/)
+- **Nuri Sahin looking forward to Brendan Rodgers reunion, 11 years on from Liverpool feud**: [Link](https://bvbbuzz.com/posts/nuri-sahin-looking-forward-to-brendan-rodgers-reunion-11-years-on-from-liverpool-feud-01j93nt2endq)
+
+
+### دورتموند ضد سيلتك (N/A, Tue, 1 Oct 2024 12:50:00 -0700)
+
+- **جروس: "الحائط الأصفر" سلاحنا أمام سيلتك**: [Link](https://www.kooora.com/?n=1358264)
+- **جماهير دورتموند تهاجم يويفا: تهتمون فقط بالمال**: [Link](https://hihi2.com/2024/10/01/p2871410.html)
+- **شاهين مدرب دورتموند: التقليل من شأن سيلتيك ليس عدلاً**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5066266-%D8%B4%D8%A7%D9%87%D9%8A%D9%86-%D9%85%D8%AF%D8%B1%D8%A8-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%A7%D9%84%D8%AA%D9%82%D9%84%D9%8A%D9%84-%D9%85%D9%86-%D8%B4%D8%A3%D9%86-%D8%B3%D9%8A%D9%84%D8%AA%D9%8A%D9%83-%D9%84%D9%8A%D8%B3-%D8%B9%D8%AF%D9%84%D8%A7%D9%8B)
+
+
+### psv eindhoven – sporting (N/A, Tue, 1 Oct 2024 12:50:00 -0700)
+
+- **Preview: PSV Eindhoven vs. Sporting Lisbon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/champions-league/preview/preview-psv-vs-sporting-lisbon-prediction-team-news-lineups_554212.html)
+- **"We Have Proven We Are Competitive": Rúben Amorim Raises the Bar for Sporting and Reveals Ambitions for the Champions League**: [Link](https://www.footboom1.com/en/news/football/1877951-we-have-proven-we-are-competitive-ruben-amorim-raises-the-bar-for-sporting-and-reveals-ambitions-for-the-champions-league)
+- **PSV could be without key midfielder for Champions League clash with Sporting**: [Link](https://sports.yahoo.com/psv-could-without-key-midfielder-124600101.html)
+
+
+### barca (N/A, Tue, 1 Oct 2024 12:40:00 -0700)
+
+- **Barcelona vs. Young Boys (Oct 1, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/720442)
+- **FC Barcelona - BSC Young Boys live: Champions League - Football**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/live-fc-barcelona-bsc-young-boys_mtc1525293/live-commentary.shtml)
+- **Barça v Young Boys A-Z Quiz**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4133481/barca-v-young-boys-a-z-quiz)
+
+
 ### barca vs (N/A, Tue, 1 Oct 2024 12:40:00 -0700)
 
 - **Barcelona - Young Boys, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/barcelona-young-boys-en-directo-champions-league-hoy-en-vivo-n/)
