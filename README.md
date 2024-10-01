@@ -1,3 +1,11 @@
+### champions league 2024 (N/A, Tue, 1 Oct 2024 12:40:00 -0700)
+
+- **How the new Champions League table works and how many teams qualify as 
+Arsenal, Liverpool and Man City...**: [Link](https://talksport.com/football/2101070/champions-league-table-explained-teams-arsenal-liverpool-man-city/)
+- **Get yer pillows…**: [Link](https://scottishfsa.org/get-yer-pillows/)
+- **The format change explained: Prize money**: [Link](https://www.nytimes.com/athletic/live-blogs/arsenal-psg-live-updates-champions-league-score-result/JEDdq7yzU8V1/AyuKNgXHNhjC/)
+
+
 ### dortmund vs celtic (N/A, Tue, 1 Oct 2024 13:10:00 -0700)
 
 - **UEFA Champions League Borussia Dortmund versus Celtic kick off 20:00 Tue 1 
