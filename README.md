@@ -1,3 +1,12 @@
+### frenkie de jong (N/A, Tue, 1 Oct 2024 00:30:00 -0700)
+
+- **Frenkie de Jong: 'I'll be back soon'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4131037/frenkie-de-jong-ill-be-back-soon)
+- **Hans-Dieter Flick: "Frankie de Jong's Return is Extremely Good News for 
+Barcelona"**: [Link](https://www.footboom1.com/en/news/football/1876308-hans-dieter-flick-frankie-de-jong-s-return-is-extremely-good-news-for-barcelona)
+- **‘Great news’… Hansi Flick reacts as he finally recovers a key Barcelona 
+midfielder**: [Link](https://sports.yahoo.com/great-news-hansi-flick-reacts-134200638.html)
+
+
 ### carlos alcaraz (N/A, Tue, 1 Oct 2024 01:30:00 -0700)
 
 - **Carlos Alcaraz se planta en Pekín en la sexta semifinal del año y recupera 
