@@ -1,3 +1,13 @@
+### ligue des champions (N/A, Tue, 1 Oct 2024 12:00:00 -0700)
+
+- **RB Salzbourg 0-4 Brest, Ligue des champions : le SB29 provisoirement en 
+tête de la C1**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/rb-salzbourg-brest-live/667979)
+- **Ligue des champions - Incroyable : Brest écrase Salzbourg (0-4) et prend 
+provisoirement la tête de la C1**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-completement-dingue-brest-ecrase-salzbourg-0-4-et-prend-la-tete-de-la-c1_sto10357710/story.shtml)
+- **Pronostic Salzbourg Brest : Analyse, cotes et prono de l’affiche de Ligue 
+des champions**: [Link](https://www.sofoot.com/breves/pronostic-salzbourg-brest-analyse-cotes-et-prono-de-laffiche-de-ligue-des-champions)
+
+
 ### dortmund – celtic glasgow (N/A, Tue, 1 Oct 2024 11:30:00 -0700)
 
 - **Steile Karriere: Ex-St. Pauli-Talent träumt von der deutschen 
