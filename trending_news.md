@@ -1,3 +1,19 @@
+### wayne rooney (N/A, Tue, 1 Oct 2024 04:00:00 -0700)
+
+- **Worried fans wonder what's wrong with Wayne Rooney**: [Link](https://www.marca.com/en/football/manchester-united/2024/09/30/66fae12bca474183268b45d8.html)
+- **Wayne Rooney sparks concern for his health as he's pictured looking 'really 
+bad' while watching Man United's l**: [Link](https://www.dailymail.co.uk/sport/football/article-13908209/Wayne-Rooney-concern-health-Man-United.html)
+- **Former Sheffield United, Middlesbrough and West Ham United playmaker stuns 
+fans with left-field move**: [Link](https://www.yorkshirepost.co.uk/sport/football/former-sheffield-united-middlesbrough-and-west-ham-united-playmaker-stuns-fans-with-left-field-move-4804274)
+
+
+### thibaut courtois (N/A, Tue, 1 Oct 2024 03:00:00 -0700)
+
+- **Courtois medical report**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/medical-reports/parte-medico-de-courtois-30-09-2024)
+- **3 Real Madrid stars finished Atlético clash with injury problems**: [Link](https://sports.yahoo.com/3-real-madrid-stars-finished-124400244.html)
+- **Real Madrid Goalkeeper Injured, Reportedly Out Until International Break**: [Link](https://www.rochesterfirst.com/sports/sports-illustrated/55a9ac9b/real-madrid-goalkeeper-injured-reportedly-out-until-international-break/)
+
+
 ### atos (N/A, Mon, 30 Sep 2024 21:10:00 -0700)
 
 - **Atos to Advance ESA’s Climate Adaptation Platform**: [Link](https://www.tipranks.com/news/company-announcements/atos-to-advance-esas-climate-adaptation-platform)
