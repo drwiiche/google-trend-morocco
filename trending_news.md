@@ -1,3 +1,19 @@
+### leverkusen vs milan (N/A, Tue, 1 Oct 2024 12:20:00 -0700)
+
+- **CM: Leverkusen star makes AC Milan declaration while Inter chase free 
+transfer**: [Link](https://sempremilan.com/cm-leverkusen-tah-milan-inter-free)
+- **Fonseca: "I shared words of motivation and courage to play a quality game"**: [Link](https://milanreports.com/2024/10/01/fonseca-words-of-motivation/)
+- **Xabi Alonso and the Memories of Istanbul**: [Link](https://www.footboom1.com/en/news/football/1878415-xabi-alonso-and-the-memories-of-istanbul)
+
+
+### yalla kora (N/A, Tue, 1 Oct 2024 12:20:00 -0700)
+
+- **نصر عزام لـ في الجول: انتخبت عضوا للاتحاد الدولي للمحامين.. وسأساهم في 
+تطوير الكرة المصرية**: [Link](https://www.filgoal.com/articles/491176/%D9%86%D8%B5%D8%B1-%D8%B9%D8%B2%D8%A7%D9%85-%D9%84%D9%80-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84-%D8%A7%D9%86%D8%AA%D8%AE%D8%A8%D8%AA-%D8%B9%D8%B6%D9%88%D8%A7-%D9%84%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D9%84%D9%85%D8%AD%D8%A7%D9%85%D9%8A%D9%86-%D9%88%D8%B3%D8%A3%D8%B3%D8%A7%D9%87%D9%85-%D9%81%D9%8A-%D8%AA%D8%B7%D9%88%D9%8A%D8%B1-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)
+- **انتخاب نصر عزام عضوًا في اللجنة التنفيذية للاتحاد الدولي لمحامي كرة القدم**: [Link](https://tatweeg.news/%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8-%D9%86%D8%B5%D8%B1-%D8%B9%D8%B2%D8%A7%D9%85-%D8%B9%D8%B6%D9%88%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D9%8A/)
+- **نصر عزام يفوز بعضوية اللجنة التنفيذية للاتحاد الدولي لمحامي كرة القدم**: [Link](https://el-balad.com/30580)
+
+
 ### ligue des champions (N/A, Tue, 1 Oct 2024 12:00:00 -0700)
 
 - **RB Salzbourg 0-4 Brest, Ligue des champions : le SB29 provisoirement en 
