@@ -1,3 +1,35 @@
+### يافا (N/A, Tue, 1 Oct 2024 14:00:00 -0700)
+
+- **22 قتيلا وجريحا إسرائيليا بعملية إطلاق نار في يافا**: [Link](https://www.aljazeera.net/news/2024/10/1/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-12-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-10-%D9%85%D8%B5%D8%A7%D8%A8%D9%8A%D9%86-%D9%81%D9%8A)
+- **قتلى وجرحى في هجوم مسلح بإسرائيل**: [Link](https://www.hespress.com/%D8%AA%D8%B3%D8%B9%D8%A9-%D8%AC%D8%B1%D8%AD%D9%89-%D9%81%D9%8A-%D9%87%D8%AC%D9%88%D9%85-%D9%85%D8%B3%D9%84%D8%AD-%D8%A8%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-1440265.html)
+- **بالفيديو.. إطلاق نار في تل أبيب وسقوط ضحايا**: [Link](https://www.skynewsarabia.com/middle-east/1745469-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%95%D8%B7%D9%84%D8%A7%D9%82-%D9%86%D8%A7%D8%B1-%D8%AA%D9%84-%D8%A7%D9%94%D8%A8%D9%8A%D8%A8-%D9%88%D8%B3%D9%82%D9%88%D8%B7-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7)
+
+
+### michel barnier premier ministre (N/A, Tue, 1 Oct 2024 13:50:00 -0700)
+
+- **Déclaration de politique générale : Michel Barnier prépare un « choc fiscal 
+» de 15 à 18 milliards d’euros**: [Link](https://www.leparisien.fr/politique/declaration-de-politique-generale-michel-barnier-prepare-un-choc-fiscal-30-09-2024-QAQ747EDZFDZBCFWFXFB6FWWPI.php)
+- **Déficit, immigration, sécurité : ce qu’il faut retenir du discours de 
+Michel Barnier**: [Link](https://www.france24.com/fr/france/20241001-d%C3%A9ficit-immigration-s%C3%A9curit%C3%A9-ce-qu-il-faut-retenir-du-discours-de-michel-barnier)
+- **La France annonce un durcissement des mesures sur l’immigration**: [Link](https://mobile.telquel.ma/instant-t/2024/10/01/la-france-annonce-un-durcissement-des-mesures-sur-limmigration_1896371/)
+
+
+### الإنتر ضد النجم الأحمر (N/A, Tue, 1 Oct 2024 13:50:00 -0700)
+
+- **​​​​​​​مفاجآت في تشكيل إنتر لمواجهة النجم الأحمر**: [Link](https://www.kooora.com/?n=1358511)
+- **هاكان يسجل هدفا للانتر غائبا منذ 14 عاما بدوري الابطال**: [Link](https://hihi2.com/2024/10/01/p2871607.html)
+- **إنتر لتحقيق فوزه الأول في دوري الأبطال**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D9%86%D8%AA%D8%B1-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-2024-10-01)
+
+
+### fc barcelona (N/A, Tue, 1 Oct 2024 12:50:00 -0700)
+
+- **Barcelona - Young Boys, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/barcelona-young-boys-en-directo-champions-league-hoy-en-vivo-n/)
+- **Barcelona - Young Boys, en directo: Partido de la Champions League hoy en 
+vivo**: [Link](https://www.marca.com/futbol/champions-league/barcelona-young-boys/2024/10/01/01_0103_20241001_178_1963-directo.html)
+- **FC Barcelona - Young Boys, en directo hoy: resultado y goles, en vivo | 
+Champions League liguilla hoy**: [Link](https://www.sport.es/es/noticias/barca/fc-barcelona-young-boys-directo-108802094)
+
+
 ### psv (N/A, Tue, 1 Oct 2024 13:40:00 -0700)
 
 - **Rik Elfrink: "Hij is een ware sensatie gebleken in Portugal"**: [Link](https://www.psvfans.nl/rik-elfrink-hij-is-een-ware-sensatie-gebleken-in-portugal/)
