@@ -1,3 +1,21 @@
+### arsenal – paris-sg (N/A, Tue, 1 Oct 2024 11:00:00 -0700)
+
+- **Ligue des Champions : Achraf Hakimi l'un des "leader" du PSG, confiant face 
+à Arsenal**: [Link](https://fr.hespress.com/388503-ligue-des-champions-achraf-hakimi-lun-des-leader-du-psg-confiant-face-a-arsenal.html)
+- **« Je veux que mes joueurs soient dans les meilleures dispositions » : 
+pourquoi Luis Enrique a décidé d'écarter Ousmane Dembélé avant Arsenal 
+(Ligue des champions)**: [Link](https://www.lequipe.fr/Football/Article/-je-veux-que-mes-joueurs-soient-dans-les-meilleures-dispositions-pourquoi-luis-enrique-a-decide-d-ecarter-ousmane-dembele-avant-arsenal/1511043)
+- **«Si quelqu'un ne respecte pas les obligations envers l'équipe, c'est qu'il 
+n'est pas prêt» : Luis Enrique justifie la mise à l'écart de Dembélé**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-champions/si-quelqu-un-ne-respecte-pas-les-obligations-envers-l-equipe-c-est-qu-il-n-est-pas-pret-luis-enrique-justifie-la-mise-a-l-ecart-de-dembele-20240930)
+
+
+### آرسنال ضد بي اس جي (N/A, Tue, 1 Oct 2024 11:00:00 -0700)
+
+- **الخليفي يكشف موقفه من قرار إنريكي المثير للجدل**: [Link](https://www.kooora.com/?n=1358254)
+- **استبعاد ديمبلي من مواجهة أرسنال في أبطال أوروبا "لأسباب تأديبية"**: [Link](https://www.aljazeera.net/sport/2024/10/1/paris-saint-germain-dembele-enrique)
+- **حكيمي: أرسنال يشبه جيرونا والفوز عليه له قيمته**: [Link](https://www.almountakhab.com/node/16204927)
+
+
 ### ايران (N/A, Tue, 1 Oct 2024 10:30:00 -0700)
 
 - **إيران تطلق أكثر من 100 صاروخ .. وصافرات الإنذار تدوي في إسرائيل**: [Link](https://www.hespress.com/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B7%D9%84%D9%82-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-100-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE-%D9%88%D8%B5%D8%A7%D9%81%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D9%86-1440278.html)
