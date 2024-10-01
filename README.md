@@ -1,3 +1,79 @@
+### dortmund – celtic glasgow (N/A, Tue, 1 Oct 2024 11:30:00 -0700)
+
+- **Steile Karriere: Ex-St. Pauli-Talent träumt von der deutschen 
+Nationalmannschaft**: [Link](https://www.mopo.de/sport/fussball/steile-karriere-ex-st-pauli-talent-traeumt-von-der-deutschen-nationalmannschaft/)
+- **Dortmund gegen Celtic heute live streamen: Amazon überträgt live**: [Link](https://www.dslweb.de/news/tv/dortmund-gegen-celtic-heute-live-streamen-amazon-uebertraegt-live.php)
+- **BVB: Dokumente im TV zu sehen – Was hängt denn da in der BVB-Kabine?**: [Link](https://www.bild.de/sport/fussball/bvb-dokumente-im-tv-zu-sehen-was-haengt-denn-da-in-der-bvb-kabine-66fc3a553fca14794a659d0a)
+
+
+### سلوفان براتيسلافا ضد مان سيتي (N/A, Tue, 1 Oct 2024 11:30:00 -0700)
+
+- **هالاند على رأس كتيبة السيتي أمام براتيسلافا**: [Link](https://m.kooora.com/?n=1358514&o=n)
+- **غيابات مانشستر سيتي أمام سلوفان براتيسلافا**: [Link](https://hihi2.com/2024/10/01/p2870628.html)
+- **مانشستر سيتي يحلّ ضيفاً ثقيلاً على سلوفان براتيسلافا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AD%D9%84-%D8%B6%D9%8A%D9%81%D8%A7-%D8%AB%D9%82%D9%8A%D9%84%D8%A7-%D8%B9%D9%84%D9%89-%D8%B3%D9%84%D9%88%D9%81%D8%A7%D9%86-%D8%A8%D8%B1%D8%A7%D8%AA%D9%8A%D8%B3%D9%84%D8%A7%D9%81%D8%A7-2024-10-01)
+
+
+### ليفركوزن ضد ميلان (N/A, Tue, 1 Oct 2024 11:30:00 -0700)
+
+- **فيرتز يتحدى بوليسيتش في موقعة ليفركوزن وميلان**: [Link](https://www.kooora.com/?n=1358509)
+- **التشكيل المتوقع لليفركوزن يعيد الأساسية لعدلي**: [Link](https://www.almountakhab.com/node/16204928)
+- **تشكيلة ميلان في مواجهة ليفركوزن بدوري الأبطال**: [Link](https://hihi2.com/2024/10/01/p2871270.html)
+
+
+### inter – étoile rouge (N/A, Tue, 1 Oct 2024 11:20:00 -0700)
+
+
+
+
+### newcastle – afc wimbledon (N/A, Tue, 1 Oct 2024 11:20:00 -0700)
+
+- **Every player in English football dreams of playing at stadiums like St 
+James’ Park - Omar Bugiel**: [Link](https://www.themag.co.uk/2024/10/every-player-in-english-football-dreams-of-playing-at-stadiums-like-st-james-park-omar-bugiel-afc-wimbledon-v-newcastle-united/)
+- **Plough Lane Stadium reel under flood water**: [Link](https://www.coliseum-online.com/plough-lane-stadium-reel-under-flood-water/)
+- **Newcastle vs. Wimbledon Livestream: How to Watch Carabao Cup Soccer From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/newcastle-vs-wimbledon-livestream-how-to-watch-carabao-cup-soccer-from-anywhere/)
+
+
+### برشلونة ضد يونغ بويز (N/A, Tue, 1 Oct 2024 11:10:00 -0700)
+
+- **تشكيلة برشلونة الرسمية للقاء يونغ بويز في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/10/01/p2871255.html)
+- **ليفاندوفسكي يقود هجوم برشلونة ضد يونج بويز**: [Link](https://www.kooora.com/?n=1358510)
+- **فليك: سنستعيد الاحترام المفقود في أوروبا**: [Link](https://www.kooora.com/?n=1358228)
+
+
+### slovan bratislava – manchester city (N/A, Tue, 1 Oct 2024 11:10:00 -0700)
+
+- **Preview: Slovan Bratislava vs. Manchester City - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/man-city/champions-league/preview/preview-slovan-bratislava-vs-man-city-prediction-team-news-lineups_554205.html)
+- **“Always going to stay in my heart” - Former Man City winger reflects on 
+time with club ahead of Champions League reunion**: [Link](https://cityxtra.co.uk/18703/always-going-to-stay-in-my-heart-former-man-city-winger-reflects-on-time-with-club-ahead-of-champions-league-reunion/)
+- **Slovan Bratislava - Manchester City live: Champions League - Football**: [Link](https://www.tntsports.co.uk/football/champions-league/2024-2025/live-slovan-bratislava-manchester-city_mtc1525292/live-commentary.shtml)
+
+
+### leverkusen – ac milan (N/A, Tue, 1 Oct 2024 11:10:00 -0700)
+
+- **Champions League: Leverkusen-Trainer Alonso hält Kontakt mit Milan-Star 
+Morata**: [Link](https://www.bild.de/sport/fussball/champions-league-leverkusen-trainer-alonso-haelt-kontakt-mit-milan-star-morata-66fbb51800d3af2b4423d58c)
+- **Bayer hofft auf nächste Wirtz-Gala**: [Link](https://de.nachrichten.yahoo.com/sport/bayer-hofft-n%C3%A4chste-wirtz-gala-153001121.html)
+- **"Brutal wichtig für meine Karriere": Xabi Alonso gibt emotionale Einblicke**: [Link](https://www.spox.com/de/sport/fussball/championsleague/2410/News/brutal-wichtig-fuer-meine-karriere-xabi-alonso-gibt-emotionale-einblicke.html)
+
+
+### arsenal vs psg (N/A, Tue, 1 Oct 2024 11:10:00 -0700)
+
+- **Arsenal v Paris St-Germain: How Gunners boss Mikel Arteta learned from 
+Pochettino at French club**: [Link](https://www.bbc.com/sport/football/articles/cwyv7575qneo)
+- **Preview: Arsenal vs. Paris Saint-Germain - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arsenal/champions-league/preview/preview-arsenal-vs-psg-prediction-team-news-lineups_554169.html)
+- **“He does leave space…” – Arsenal star identified as ideal to exploit this 
+potential PSG weak link**: [Link](https://www.caughtoffside.com/2024/09/30/arsenals-martinelli-key-vs-psgs-hakimi/)
+
+
+### الغرافة ضد العين (N/A, Tue, 1 Oct 2024 11:10:00 -0700)
+
+- **مدرب الغرافة: هدفنا التعويض أمام العين**: [Link](https://www.kooora.com/?n=1358282)
+- **لقاء مرتقب بين الغرافة والعين**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/afc-champions-league/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%82%D8%A7%D8%A1-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%BA%D8%B1%D8%A7%D9%81%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D9%8A%D9%86-2024-10-01)
+- **مباشر.. مباراة الغرافة القطري ضد العين الإماراتي (0-0) بدوري أبطال آسيا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/1/al-gharafa-vs-al-ain)
+
+
 ### arsenal – paris-sg (N/A, Tue, 1 Oct 2024 11:00:00 -0700)
 
 - **Ligue des Champions : Achraf Hakimi l'un des "leader" du PSG, confiant face 
