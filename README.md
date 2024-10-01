@@ -1,3 +1,11 @@
+### روان بن حسين (N/A, Mon, 30 Sep 2024 17:00:00 -0700)
+
+- **روان بن حسين تروي معاناتها مع طليقها**: [Link](https://www.lahamag.com/article/215501-%D8%B1%D9%88%D8%A7%D9%86-%D8%A8%D9%86-%D8%AD%D8%B3%D9%8A%D9%86-%D8%AA%D8%B1%D9%88%D9%8A-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%AA%D9%87%D8%A7-%D9%85%D8%B9-%D8%B7%D9%84%D9%8A%D9%82%D9%87%D8%A7)
+- **روان بن حسين تذرف الدموع بعد اختفاء طليقها ولقاءهما في عزاء شقيقته**: [Link](https://www.raialyoum.com/%D8%B1%D9%88%D8%A7%D9%86-%D8%A8%D9%86-%D8%AD%D8%B3%D9%8A%D9%86-%D8%AA%D8%B0%D8%B1%D9%81-%D8%A7%D9%84%D8%AF%D9%85%D9%88%D8%B9-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%AE%D8%AA%D9%81%D8%A7%D8%A1-%D8%B7%D9%84%D9%8A/)
+- **"ما أعرف إيش أسوي!" تفاصيل إختفاء يوسف المقريف زوج روان بن حسين الفاشونيستا 
+الكويتية**: [Link](https://gm.aarcegypt.org/%D9%8A%D9%88%D8%B3%D9%81-%D8%A7%D9%84%D9%85%D9%82%D8%B1%D9%8A%D9%81-%D8%B2%D9%88%D8%AC-%D8%B1%D9%88%D8%A7%D9%86-%D8%A8%D9%86-%D8%AD%D8%B3%D9%8A%D9%86/)
+
+
 ### latvia (N/A, Mon, 30 Sep 2024 16:50:00 -0700)
 
 - **Estonia, Latvia, Lithuania and Poland want EU funds to beef up border with 
