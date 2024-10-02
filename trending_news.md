@@ -1,3 +1,10 @@
+### telegram (N/A, Tue, 1 Oct 2024 19:20:00 -0700)
+
+- **Dogizen announces first ever ICO to take place on Telegram**: [Link](https://cointelegraph.com/press-releases/dogizen-announce-first-ever-ico-to-take-place-on-telegram)
+- **Hamster Kombat Slumps: Is Dogizen The Next Telegram Moonshot?**: [Link](https://www.cryptotimes.io/2024/10/01/hamster-kombat-slumps-is-dogizen-the-next-telegram-moonshot/)
+- **First ICO within Telegram Planned via Viral Game Dogizen**: [Link](https://www.coinspeaker.com/first-ico-telegram-viral-game-dogizen/)
+
+
 ### men gov ma (N/A, Wed, 2 Oct 2024 01:50:00 -0700)
 
 - **آخر أخبار المغرب: نتائج الانتقاء الأولي لمباراة التعليم 2024 تتصدر الترند 
