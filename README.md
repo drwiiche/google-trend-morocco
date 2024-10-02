@@ -1,3 +1,10 @@
+### andrés iniesta (N/A, Tue, 1 Oct 2024 15:00:00 -0700)
+
+- **Iniesta anunciará su retirada el próximo día 8**: [Link](https://as.com/futbol/primera/iniesta-anunciara-su-futuro-el-proximo-dia-8-n/)
+- **Iniesta se retira del fútbol: adiós a una leyenda del Barça y de la selección**: [Link](https://www.marca.com/futbol/futbol-internacional/2024/10/01/66fbb016e2704e644e8b4585.html)
+- **Andrés Iniesta, el héroe del Mundial, se retira del fútbol**: [Link](https://www.relevo.com/futbol/liga-primera/andres-iniesta-heroe-mundial-retira-20241001090431-nt.html)
+
+
 ### نتائج الانتقاء الاولي لمباراة التعليم 2024 (N/A, Tue, 1 Oct 2024 13:50:00 -0700)
 
 - **آخر أخبار المغرب: نتائج الانتقاء الأولي لمباراة التعليم 2024 تتصدر الترند 
