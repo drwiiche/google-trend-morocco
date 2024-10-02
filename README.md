@@ -1,3 +1,20 @@
+### abdellatif miraoui (N/A, Wed, 2 Oct 2024 07:40:00 -0700)
+
+- **Boycott des études médicales : retour sur les étapes marquantes de la crise 
+de l'année**: [Link](https://medias24.com/2024/10/01/boycott-des-etudes-medicales-retour-sur-les-etapes-marquantes-de-la-crise-de-lannee/)
+- **Les professeurs de médecine à Casablanca menacent de cesser les cours**: [Link](https://mobile.telquel.ma/instant-t/2024/10/01/les-professeurs-de-medecine-a-casablanca-menacent-de-cesser-les-cours_1896261/)
+- **Annonce "unilatérale" des examens : Les étudiants dénoncent une tentative 
+de "saboter" la médiation en cours**: [Link](https://fr.hespress.com/388726-annonce-unilaterale-des-examens-les-etudiants-denoncent-une-tentative-de-saboter-la-mediation-en-cours.html)
+
+
+### fast (N/A, Wed, 2 Oct 2024 06:00:00 -0700)
+
+- **In-N-Out trolled hard by new No. 1 fast food burger in the US**: [Link](https://www.sfgate.com/food/article/in-n-out-trolled-billboards-habit-burger-19805186.php)
+- **Habit Burger & Grill trolls rival In-N-Out**: [Link](https://ktla.com/news/local-news/habit-burger-grill-congratulates-in-n-out-on-2nd-place-award/)
+- **'Congrats on #2': Habit shades In-N-Out with billboard after burger ranking 
+poll**: [Link](https://www.usatoday.com/story/money/food/2024/10/01/habit-in-n-out-billboard/75473159007/)
+
+
 ### ayachi zammel (N/A, Wed, 2 Oct 2024 08:10:00 -0700)
 
 - **Tunisia presidential candidate Zammel sentenced to 12 years in prison**: [Link](https://www.reuters.com/world/africa/tunisia-presidential-candidate-zammel-sentenced-12-years-prison-lawyer-says-2024-10-01/)
