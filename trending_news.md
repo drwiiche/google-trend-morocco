@@ -1,3 +1,45 @@
+### ethan mbappé (N/A, Wed, 2 Oct 2024 14:10:00 -0700)
+
+- **The Showdown Between the Mbappé Brothers**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/the-showdown-between-the-mbapp%C3%A9-brothers-2024-10-01)
+- **Younger Mbappé Brother Injures Himself, Missing Chance to Face Kylian in 
+Champions League**: [Link](https://www.footboom1.com/en/news/football/1879947-younger-mbappe-brother-injures-himself-missing-chance-to-face-kylian-in-champions-league)
+- **No reunion for Mbappé brothers when Real Madrid visits Lille in the 
+Champions League**: [Link](https://apnews.com/article/lille-madrid-champions-league-mbappe-brothers-c29fc9162affd337ab40b9748bf8f0f4)
+
+
+### classement champions league (N/A, Wed, 2 Oct 2024 14:10:00 -0700)
+
+- **Ligue des champions | Après sa victoire à Salzbourg, Brest et les millions 
+qui changent la vie**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-apres-sa-victoire-a-salzbourg-brest-et-les-millions-qui-changent-la-vie_sto20042015/story.shtml)
+- **Foot : Après ses deux premières victoires en Ligue des champions, Brest 
+déjà assuré d'un joli pactole**: [Link](https://www.lequipe.fr/Football/Actualites/Apres-ses-deux-premieres-victoires-en-ligue-des-champions-brest-deja-assure-d-un-joli-pactole/1511379)
+- **Ligue des champions: le Sénégalais Abdallah Sima, phare de Brest**: [Link](https://www.rfi.fr/fr/afrique-foot/20241002-ligue-des-champions-le-s%C3%A9n%C3%A9galais-abdallah-sima-phare-de-brest)
+
+
+### نتائج مباريات اليوم (N/A, Wed, 2 Oct 2024 14:10:00 -0700)
+
+- **القبض على نجم مانشستر سيتي في مدريد**: [Link](https://www.kooora.com/?n=1358636)
+- **اعتقال نونيز لاعب السيتي في مدريد بسبب هاتف ذكي**: [Link](https://www.aljazeera.net/sport/2024/10/2/%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D9%86%D9%88%D9%86%D9%8A%D8%B2-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B3%D8%A8%D8%A8)
+- **بتهمة سرقة هاتف.. الشرطة الإسبانية تعتقل لاعب مانشستر سيتي!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%87%D9%85%D8%A9-%D8%B3%D8%B1%D9%82%D8%A9-%D9%87%D8%A7%D8%AA%D9%81-%D9%85%D9%84%D9%87%D9%89-%D9%84%D9%8A%D9%84%D9%8A-%D9%86%D9%88%D9%86%D9%8A%D8%B2-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D8%AA%D9%82%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/blt2897735bfe394daa)
+
+
+### uefa champions league standings (N/A, Wed, 2 Oct 2024 14:10:00 -0700)
+
+- **Kai Havertz: Arsenal striker now flourishing in the Gunners' attack**: [Link](https://www.bbc.com/sport/football/articles/cpw5102yzg7o)
+- **PSG Punished!! Arteta's reaction, sensational Havertz and player ratings 
+(Inside Arsenal podcast)**: [Link](https://charleswatts.football/news/inside-arsenal-podcast-psg-champions-league-kai-havertz/)
+- **Arsenal's defence and versatility hailed by James Horncastle after Paris 
+Saint-Germain win in UEFA Champions League**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/arsenal-paris-saint-germain-james-horncastle_sto20041931/story.shtml)
+
+
+### madrid vs lille (N/A, Wed, 2 Oct 2024 14:00:00 -0700)
+
+- **€45m Real Madrid gem’s role and effectiveness undergoing a gradual decline**: [Link](https://sports.yahoo.com/45m-real-madrid-gem-role-081800122.html)
+- **Real Madrid vs Lille: Arda Guler’s chance to prove he belongs in 
+Ancelotti’s XI**: [Link](https://www.turkiyetoday.com/sports/real-madrid-vs-lille-arda-gulers-chance-to-prove-he-belongs-in-ancelottis-xi-60568/)
+- **“He has a future here”. Ancelotti supported Arda Guler**: [Link](https://dailysports.net/news/he-has-a-future-here-ancelotti-supported-arda-guler/)
+
+
 ### ترتيب دوري أبطال أوروبا (N/A, Wed, 2 Oct 2024 14:00:00 -0700)
 
 - **شاهد.. فوز برشلونة ومانشستر سيتي وأرسنال يهزم سان جيرمان**: [Link](https://www.aljazeera.net/sport/2024/10/2/%D8%B4%D8%A7%D9%87%D8%AF-%D9%81%D9%88%D8%B2-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
