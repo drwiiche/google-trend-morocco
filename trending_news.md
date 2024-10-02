@@ -1,3 +1,10 @@
+### ldc (N/A, Tue, 1 Oct 2024 13:10:00 -0700)
+
+- **Real Madrid : Carlo Ancelotti répond à Diego Simeone**: [Link](https://www.footmercato.net/a519876997523744251-real-madrid-carlo-ancelotti-repond-a-diego-simeone)
+- **Tchouaméni : "Si j'écoutais la presse, je deviendrais fou"**: [Link](https://real-france.fr/tchouameni-si-jecoutais-la-presse-je-deviendrais-fou/)
+- **L'équipe s'est entraînée dans l'enceinte du match**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/entrainements/el-real-madrid-se-esta-entrenando-01-10-2024)
+
+
 ### هسبريس (N/A, Tue, 1 Oct 2024 23:30:00 -0700)
 
 
