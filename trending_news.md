@@ -1,3 +1,11 @@
+### carlos alcaraz (N/A, Wed, 2 Oct 2024 02:40:00 -0700)
+
+- **Alcaraz - Sinner, en directo | Final del China Open 2024 hoy, en vivo**: [Link](https://www.marca.com/tenis/jannik-sinner-carlos-alcaraz/2024/10/02/04_0435_20241002_31-directo.html)
+- **En directo, la final de Pekín: Jannik Sinner - Carlos Alcaraz**: [Link](https://www.elmundo.es/deportes/tenis/jannik-sinner-carlos-alcaraz/2024/10/02/04_0435_20241002_31-directo.html)
+- **Tenis en directo: Alcaraz y Sinner disputan la final del Open de Pekín | 
+Flashscore.es**: [Link](https://www.flashscore.es/noticias/tenis-pekin-atp-individuales-tenis-en-directo-alcaraz-y-sinner-definen-al-campeon-del-open-de-pekin/WCcjIiXp/)
+
+
 ### وزارة التربية والتعليم (N/A, Wed, 2 Oct 2024 02:00:00 -0700)
 
 - **وزارة التربية تعلن شروط الانضباط المدرسي وتوجه بسرعة تسليم الكتب الدراسية**: [Link](https://elwatanelyoum.com/2024/09/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%B4%D8%B1%D9%88%D8%B7-%D8%A7%D9%84%D8%A7%D9%86%D8%B6%D8%A8%D8%A7%D8%B7-%D8%A7%D9%84%D9%85%D8%AF/)
