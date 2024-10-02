@@ -1,3 +1,11 @@
+### atp pekin (N/A, Wed, 2 Oct 2024 03:00:00 -0700)
+
+- **2024 Beijing Day 8: Sinner v Alcaraz Final; Sabalenka v Keys, Osaka Retires 
+To Gauff**: [Link](https://www.tennis-x.com/xblog/2024-10-01/38250.php)
+- **Tennis fans get the matchup they crave in men's China Open final**: [Link](https://lobandsmash.com/posts/tennis-fans-get-matchup-they-crave-mens-china-open-final-01j948ap5dw3)
+- **China Open 2024: Sinner overcomes Buyunchaokete to meet Alcaraz in final**: [Link](https://www.socialnews.xyz/2024/10/01/china-open-2024-sinner-overcomes-buyunchaokete-to-meet-alcaraz-in-final/)
+
+
 ### telegram (N/A, Tue, 1 Oct 2024 19:20:00 -0700)
 
 - **Dogizen announces first ever ICO to take place on Telegram**: [Link](https://cointelegraph.com/press-releases/dogizen-announce-first-ever-ico-to-take-place-on-telegram)
