@@ -1,3 +1,11 @@
+### inwi (N/A, Wed, 2 Oct 2024 03:40:00 -0700)
+
+- **African Cristal Festival : Inwi remporte 3 prix**: [Link](https://www.leconomiste.com/flash-infos/african-cristal-festival-inwi-remporte-3-prix)
+- **Publicité: triple consécration pour inwi lors de l’African Cristal Festival**: [Link](https://fr.le360.ma/entreprise/publicite-triple-consecration-pour-inwi-lors-de-lafrican-cristal-festival_O7UDQFXBBVHD3LALGWFIWMWAEQ/)
+- **African Cristal Festival: la créativité africaine à l’épreuve des nouvelles 
+technologies**: [Link](https://www.challenge.ma/african-cristal-festival-la-creativite-africaine-a-lepreuve-des-nouvelles-technologies-287996/)
+
+
 ### carlos alcaraz (N/A, Wed, 2 Oct 2024 02:40:00 -0700)
 
 - **Alcaraz - Sinner, en directo | Final del China Open 2024 hoy, en vivo**: [Link](https://www.marca.com/tenis/jannik-sinner-carlos-alcaraz/2024/10/02/04_0435_20241002_31-directo.html)
