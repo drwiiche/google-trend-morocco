@@ -1,3 +1,31 @@
+### columbus crew – inter miami (N/A, Wed, 2 Oct 2024 16:00:00 -0700)
+
+- **Wednesday's Major League Soccer predictions including Columbus Crew vs. 
+Inter Miami**: [Link](https://www.sportsmole.co.uk/football/atlanta-united/mls-predictions/feature/wednesdays-major-league-soccer-predictions-including-columbus-crew-vs-inter-miami_554357.html)
+- **MLS Matchday 36 Schedule and Betting Guide: 14 matches on deck for 
+Wednesday night**: [Link](https://phillysportsnetwork.com/2024/10/02/mls-matchday-36-schedule/)
+- **Your Wednesday Kickoff: The battle for the Shield, playoff clarity and more 
+in Matchday 36**: [Link](https://www.mlssoccer.com/news/your-wednesday-kickoff-the-battle-for-the-shield-playoff-clarity-and-more-in-matchday-36)
+
+
+### neymar (N/A, Wed, 2 Oct 2024 15:40:00 -0700)
+
+- **Neymar regresó a los entrenamientos en Arabia Saudita después de casi un 
+año: cuándo volvería a jugar**: [Link](https://www.lanacion.com.ar/deportes/futbol/neymar-volvio-a-los-entrenamientos-en-arabia-saudita-despues-de-casi-un-ano-cuando-volveria-a-jugar-nid30092024/)
+- **Malestar en Arabia por el presente de Neymar y su ausencia en las canchas: 
+“Ya están un poco hartos”**: [Link](https://eldia.com.bo/2024-09-26/deportes/malestar-en-arabia-por-el-presente-de-neymar-y-su-ausencia-en-las-canchas-ya-estan-un-poco-hartos.html)
+- **Dorival Júnior quita presión a Vinicius**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20240927/1002323441/dorival-junior-quita-presion-vinicius-responsabilidades-son-divididas.html)
+
+
+### المؤسس عثمان (N/A, Wed, 2 Oct 2024 15:30:00 -0700)
+
+- **موعد عرض مسلسل «قيامة عثمان» الموسم السادس (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3270840)
+- **ضبطها حالاً .. تردد قناة ATV التركية الناقلة المؤسس عثمان بجودة ممتازة - 
+المساء الاخباري**: [Link](https://newsy.almesasports.com/247298/%D9%82%D9%86%D8%A7%D8%A9-atv-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9/)
+- **nOW لحظات حاسمة ومفاجآت صادمة... متابعة مسلسل قيامة عثمان الموسم السادس 
+الحلقة 1 الاولي كاملة والقنوات**: [Link](https://real.alsaudinews.com/177972/%D9%84%D8%AD%D8%B8%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%88%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D9%85%D8%B3%D9%84%D8%B3/)
+
+
 ### المؤسس عثمان الموسم السادس (N/A, Wed, 2 Oct 2024 15:30:00 -0700)
 
 - **موعد عرض مسلسل «قيامة عثمان» الموسم السادس (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3270840)
