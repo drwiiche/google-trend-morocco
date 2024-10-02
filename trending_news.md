@@ -1,3 +1,20 @@
+### girona – feyenoord (N/A, Wed, 2 Oct 2024 08:50:00 -0700)
+
+- **'Priske is geen eigenwijze man, het is positief dat hij dit doet'**: [Link](https://www.vi.nl/video/priske-is-geen-eigenwijze-man-het-is-positief-dat-hij-dit-doet)
+- **Gelijkspel en blessures, slechte generale voor Girona in aanloop naar 
+Feyenoord**: [Link](https://www.fr12.nl/uefa-champions-league/gelijkspel-en-blessures-slechte-generale-voor-girona-in-aanloop-naar-feyenoord)
+- **''Je gaat mij niet vertellen dat ze daar kansloos zijn''**: [Link](https://onefootball.com/fr/news/je-gaat-mij-niet-vertellen-dat-ze-daar-kansloos-zijn-40114582)
+
+
+### kick (N/A, Wed, 2 Oct 2024 08:50:00 -0700)
+
+- **Ohio State Head Coach Ryan Day Says Right Guard, Kick Returner Positions 
+Not Settled Yet**: [Link](https://www.buckeyesports.com/ohio-state-head-coach-ryan-day-says-right-guard-kick-returner-positions-not-settled-yet/)
+- **BM5: Left tackle of the future? | Chip getting offensive | Hoban's heroes**: [Link](https://247sports.com/college/ohio-state/article/ohio-state-recruiting-left-tackle-marshall-236840860/)
+- **Austin Siereveld and Tegra Tshabola to Keep Rotating at Right Guard On Ohio 
+State Offensive Line | Eleven Warr**: [Link](https://www.elevenwarriors.com/ohio-state-football/2024/09/149315/austin-siereveld-and-tegra-tshabola-to-keep-rotating-at-right-guard-on-ohio-state-offensive-line)
+
+
 ### abdellatif miraoui (N/A, Wed, 2 Oct 2024 07:40:00 -0700)
 
 - **Boycott des études médicales : retour sur les étapes marquantes de la crise 
