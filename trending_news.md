@@ -1,3 +1,28 @@
+### atletico madrid (N/A, Wed, 2 Oct 2024 13:40:00 -0700)
+
+- **Club Atlético de Madrid - Official statement**: [Link](https://en.atleticodemadrid.com/noticias/official-statement-7)
+- **Atletico fined for derby incidents and partial closure of stadium**: [Link](https://www.besoccer.com/new/atletico-fined-for-derby-incidents-and-partial-closure-of-stadium-1332853)
+- **Real Madrid ‘tired and frustrated’ after another controversy-filled Madrid 
+derby**: [Link](https://madriduniversal.com/real-madrid-tired-and-frustrated-after-another-controversy-filled-madrid-derby/)
+
+
+### edon zhegrova (N/A, Wed, 2 Oct 2024 13:40:00 -0700)
+
+- **Edon Zhegrova’s reveals anger and dismisses ‘fake news’ after Kosovo 
+exclusion**: [Link](https://sports.yahoo.com/edon-zhegrova-reveals-anger-dismisses-165900344.html)
+- **David and Zhegrova: Lille's Major Threats**: [Link](https://www.footboom1.com/en/news/football/1881153-david-and-zhegrova-lille-s-major-threats)
+
+
+### real madrid match (N/A, Wed, 2 Oct 2024 13:00:00 -0700)
+
+- **Real Madrid starlet Endrick immediately creates club history in the 
+Champions League – breaking 29-year r...**: [Link](https://talksport.com/football/2107522/real-madrid-endrick-champions-league-record/)
+- **Real Madrid icon backs Endrick Felipe for starting role against Atletico 
+Madrid**: [Link](https://www.yardbarker.com/soccer/articles/real_madrid_icon_backs_endrick_felipe_for_starting_role_against_atletico_madrid/s1_15980_40966293)
+- **Real Madrid record-setting wonderkid earns first start leaving Mbappe on 
+bench for Champions League match**: [Link](https://www.sportingnews.com/uk/champions-league/news/real-madrid-record-wonderkid-start-mbappe-bench-champions-league/867a1106c47cdc29f9554546)
+
+
 ### ياسين تيفي (N/A, Wed, 2 Oct 2024 13:30:00 -0700)
 
 - **بالصور.. برشلونة يسحق يونج بويز بخماسية**: [Link](https://www.kooora.com/?n=1358568)
