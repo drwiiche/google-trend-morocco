@@ -1,3 +1,25 @@
+### ياسين تيفي (N/A, Wed, 2 Oct 2024 13:30:00 -0700)
+
+- **بالصور.. برشلونة يسحق يونج بويز بخماسية**: [Link](https://www.kooora.com/?n=1358568)
+- **فليك يوضح سبب إشراك فاتي في غير مركزه ضد يونغ بويز**: [Link](https://hihi2.com/2024/10/02/p2871896.html)
+- **ليفاندوفسكي يقود برشلونة إلى هزيمة يونغ بويز**: [Link](https://www.alarabiya.net/sport/2024/10/02/%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%89-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D9%8A%D9%88%D9%86%D8%BA-%D8%A8%D9%88%D9%8A%D8%B2)
+
+
+### monaco fc (N/A, Wed, 2 Oct 2024 12:50:00 -0700)
+
+- **UEFA Champions League Barcelona 5 Young Boys 0 Full time**: [Link](https://www.bbc.com/sport/football/live/cwyexx97x99t)
+- **Pedri the pick as Barcelona’s attack demolishes Young Boys**: [Link](https://www.barcablaugranes.com/2024/10/2/24259798/pedri-the-pick-as-barcelonas-attack-demolishes-young-boys)
+- **'You have to always run, whether we are winning or losing'**: [Link](https://www.besoccer.com/new/you-have-to-always-run-whether-we-are-winning-or-losing-1332802)
+
+
+### bayern munich (N/A, Wed, 2 Oct 2024 12:40:00 -0700)
+
+- **Alan Shearer's Premier League predictions including Man Utd, Arsenal and 
+Chelsea**: [Link](https://metro.co.uk/2024/09/27/alan-shearers-premier-league-predictions-including-man-utd-arsenal-chelsea-21686245/)
+- **Ten Hag's team news update v Spurs**: [Link](https://www.manutd.com/en/news/detail/erik-ten-hag-team-news-update-ahead-of-tottenham-on-29-sep)
+- **Welcome to the big one!**: [Link](https://www.nytimes.com/athletic/live-blogs/manchester-united-tottenham-live-updates-premier-league-score-result/JEusTpCh84Ey/N1TiLQHgZacl/)
+
+
 ### juventus (N/A, Wed, 2 Oct 2024 13:20:00 -0700)
 
 - **Giuntoli: “Dispiace per Milik, non lo potevamo sapere. Motta saprà trovare 
