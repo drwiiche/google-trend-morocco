@@ -1,3 +1,11 @@
+### ترتيبات دوري أبطال أوروبا (N/A, Wed, 2 Oct 2024 14:20:00 -0700)
+
+- **صلاح على موعد مع ليلة تاريخية أمام بولونيا**: [Link](https://www.kooora.com/?n=1358539)
+- **شاهد.. صلاح يقود ليفربول للفوز على بولونيا وفيلا يهزم بايرن بدوري أبطال 
+أوروبا**: [Link](https://www.aljazeera.net/sport/2024/10/3/mo-salah)
+- **محمد صلاح زعيم الأفارقة في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/10/02/p2873009.html)
+
+
 ### ethan mbappé (N/A, Wed, 2 Oct 2024 14:10:00 -0700)
 
 - **The Showdown Between the Mbappé Brothers**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/the-showdown-between-the-mbapp%C3%A9-brothers-2024-10-01)
