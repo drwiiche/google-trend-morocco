@@ -1,3 +1,66 @@
+### rb leipzig – juventus (N/A, Wed, 2 Oct 2024 11:20:00 -0700)
+
+- **UCL Liveblog: RB Leipzig-Juventus, Liverpool-Bologna, Shakhtar-Atalanta**: [Link](https://football-italia.net/champions-league-live-juve-bologna-atalanta/)
+- **Squad List | Leipzig-Juventus**: [Link](https://www.juventus.com/en/news/articles/squad-list-leipzig-juventus)
+- **Watch RB Leipzig vs. Juventus: UEFA Champions League free live stream**: [Link](https://www.masslive.com/tv/2024/10/watch-rb-leipzig-vs-juventus-uefa-champions-league-free-live-stream.html)
+
+
+### lille – real madrid (N/A, Wed, 2 Oct 2024 11:10:00 -0700)
+
+- **€45m Real Madrid gem’s role and effectiveness undergoing a gradual decline**: [Link](https://sports.yahoo.com/45m-real-madrid-gem-role-081800122.html)
+- **Real Madrid vs Lille: Arda Guler’s chance to prove he belongs in 
+Ancelotti’s XI**: [Link](https://www.turkiyetoday.com/sports/real-madrid-vs-lille-arda-gulers-chance-to-prove-he-belongs-in-ancelottis-xi-60568/)
+- **“He has a future here”. Ancelotti supported Arda Guler**: [Link](https://dailysports.net/news/he-has-a-future-here-ancelotti-supported-arda-guler/)
+
+
+### ليل ضد الريال (N/A, Wed, 2 Oct 2024 11:10:00 -0700)
+
+- **إندريك أساسيا للمرة الأولى مع الريال..!**: [Link](https://hihi2.com/2024/10/02/p2872800.html)
+- **مبابي خارج التشكيل المتوقع لريال مدريد أمام ليل**: [Link](https://www.kooora.com/?n=1358621)
+- **إندريك أساسي لأول مرة مع ريال مدريد (ضد ليل) وكامافينغا يخوض مباراته الأولى 
+هذا الموسم**: [Link](https://m.elbotola.com/article/2024-10-02-18-02-811.html)
+
+
+### losc vs real madrid (N/A, Wed, 2 Oct 2024 11:10:00 -0700)
+
+- **Lille - Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a1529066836758932972-lille-real-madrid-les-compositions-officielles)
+- **LOSC – Real Madrid : compos, enjeux, chiffres – les infos d’avant-match**: [Link](https://le11hdf.fr/losc-real-madrid-compos-enjeux-chiffres-les-infos-davant-match/)
+- **Ronaldo éteint le Vélodrome, l’OL humilie les Galactiques... Les duels 
+marquants entre le Real Madrid et les clubs français**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-champions/ronaldo-eteint-le-velodrome-l-ol-humilie-les-galactiques-les-duels-marquants-entre-le-real-madrid-et-les-clubs-francais-20241002)
+
+
+### benfica – atlético madrid (N/A, Wed, 2 Oct 2024 11:10:00 -0700)
+
+- **Preview: Benfica vs. Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/champions-league/preview/preview-benfica-vs-atletico-prediction-team-news-lineups_554286.html)
+- **The Other Clash of the Albiceleste**: [Link](https://www.footboom1.com/en/news/football/1881665-the-other-clash-of-the-albiceleste)
+- **Benfica vs Atletico prediction and betting tips on October 2, 2024**: [Link](https://ratingbet.com/predictions/benfica-vs-atletico-prediction-and-betting-tips-on-october-2-2024/)
+
+
+### liverpool – bologne (N/A, Wed, 2 Oct 2024 11:10:00 -0700)
+
+- **Liverpool vs. Bologna: Champions League 2024-25 Live Match Coverage & How 
+to Watch**: [Link](https://liverpooloffside.sbnation.com/2024/10/2/24260322/liverpool-bologna-ucl-2024-25-fixture-match-coverage-team-news-lineups-television-streaming)
+- **Virgil van Dijk: Champions League nights at Anfield a privilege we have 
+missed**: [Link](https://www.liverpoolfc.com/it/news/virgil-van-dijk-champions-league-nights-anfield-privilege-we-have-missed)
+- **Only two Bologna players have beaten Liverpool at Anfield previously**: [Link](https://football-italia.net/one-bologna-player-won-vs-liverpool-at-anfield/)
+
+
+### aston villa – bayern (N/A, Wed, 2 Oct 2024 11:10:00 -0700)
+
+- **Champions League Soccer: Livestream Every 2024-25 Match From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/champions-league-soccer-livestream-every-2024-25-match-from-anywhere/)
+- **Champions league Betting Offers: Best Betting Offers & Promos For Aston 
+Villa vs Bayern Munich**: [Link](https://www.101greatgoals.com/free-bets/champions-league-betting-offers-best-betting-offers-promos-for-aston-villa-vs-bayern-munich/)
+- **Copybet Prediction Challenge: Chance to win a £50 free bet by predicting 
+the outcome of Aston Villa vs Bayern Munich**: [Link](https://onefootball.com/de/news/copybet-prediction-challenge-chance-to-win-a-50-free-bet-by-predicting-the-outcome-of-aston-villa-vs-bayern-munich-40115352)
+
+
+### dinamo zagreb – monaco (N/A, Wed, 2 Oct 2024 11:10:00 -0700)
+
+- **Preview: Dinamo Zagreb vs. Monaco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/dinamo-zagreb/champions-league/preview/preview-dinamo-zagreb-vs-monaco-prediction-team-news-lineups_554284.html)
+- **Dinamo Zagreb vs Monaco: Preview, predictions and lineups**: [Link](https://www.90min.com/dinamo-zagreb-vs-monaco-preview-predictions-lineups-2-10-24)
+- **Watch Dinamo Zagreb vs. AS Monaco: UEFA Champions League free live stream**: [Link](https://www.masslive.com/tv/2024/10/watch-dinamo-zagreb-vs-as-monaco-uefa-champions-league-free-live-stream.html)
+
+
 ### girona fc (N/A, Wed, 2 Oct 2024 11:00:00 -0700)
 
 - **Girona - Feyenoord, en directo: Champions League, en vivo hoy**: [Link](https://as.com/futbol/girona-feyenoord-en-directo-champions-league-en-vivo-hoy-n/)
