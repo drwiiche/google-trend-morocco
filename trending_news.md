@@ -1,3 +1,10 @@
+### ليفربول ضد بولونيا (N/A, Wed, 2 Oct 2024 12:10:00 -0700)
+
+- **نجم اليونايتد يسافر إلى ليفربول لمساندة بولونيا**: [Link](https://www.kooora.com/?n=1358651)
+- **الرسم التكتيكي لفريقي ليفربول و بولونيا في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/10/02/p2872835.html)
+- **الإصابة تحرم ليفربول من كييزا أمام بولونيا بدوري الأبطال**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D8%AD%D8%B1%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%85%D9%86-%D9%83%D9%8A%D9%8A%D8%B2%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%88%D9%84/)
+
+
 ### le normand (N/A, Wed, 2 Oct 2024 11:50:00 -0700)
 
 - **Ligue des champions : Victime d'un traumatisme crânien, Robin Le Normand 
