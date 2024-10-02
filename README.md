@@ -1,3 +1,27 @@
+### وزارة التربية الوطنية (N/A, Wed, 2 Oct 2024 02:00:00 -0700)
+
+- **مطالب بتوضيح مضامين مذكرة تحدد ساعات عمل المختص التربوي والاجتماعي**: [Link](https://thevoice.ma/%D9%85%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%AA%D9%88%D8%B6%D9%8A%D8%AD-%D9%85%D8%B6%D8%A7%D9%85%D9%8A%D9%86-%D9%85%D8%B0%D9%83%D8%B1%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%B9/)
+- **آخر أخبار المغرب: نتائج الانتقاء الأولي لمباراة التعليم 2024 تتصدر الترند 
+في المغرب**: [Link](https://almashhad.com/article/773112298002792-News/175116801341571-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%8A-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-2024/)
+- **التربية: 7 الشهر القادم بدء التسجيل لاختبار الترشح لامتحانات الشهادة 
+الثانوية العامة بصفة دراسة حرة**: [Link](http://sns.sy/ar/node/183385)
+
+
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Wed, 2 Oct 2024 02:00:00 -0700)
+
+
+
+
+### louis sarkozy (N/A, Wed, 2 Oct 2024 02:00:00 -0700)
+
+- **“Honte à elle” : Nicolas Sarkozy défend son fils, Ségolène Royal prend une 
+balle perdue**: [Link](https://fr.news.yahoo.com/honte-%C3%A0-nicolas-sarkozy-d%C3%A9fend-120705052.html)
+- **"Qu'ils crèvent tous" : Louis Sarkozy provoque l'indignation après ses 
+propos sur le Hamas et le Hezbollah**: [Link](https://www.aa.com.tr/fr/monde/quils-cr%C3%A8vent-tous-louis-sarkozy-provoque-lindignation-apr%C3%A8s-ses-propos-sur-le-hamas-et-le-hezbollah/3347372)
+- **«Qu’ils crèvent tous, Israël fait le travail de l’humanité». Alertons 
+l’Arcom sur l’ignoble croisade médiatique de Louis Sarkozy !**: [Link](https://oumma.com/quils-crevent-tous-israel-fait-le-travail-de-lhumanite-alertons-larcom-sur-lignoble-croisade-mediatique-de-louis-sarkozy/)
+
+
 ### nicolas sarkozy (N/A, Wed, 2 Oct 2024 00:50:00 -0700)
 
 - **“Honte à elle” : Nicolas Sarkozy défend son fils, Ségolène Royal prend une 
