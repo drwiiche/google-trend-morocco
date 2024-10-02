@@ -1,3 +1,19 @@
+### juventus (N/A, Wed, 2 Oct 2024 13:20:00 -0700)
+
+- **Giuntoli: “Dispiace per Milik, non lo potevamo sapere. Motta saprà trovare 
+le giuste soluzioni”**: [Link](https://www.alfredopedulla.com/giuntoli-dispiace-per-milik-non-lo-potevamo-sapere-motta-sapra-trovare-le-giuste-soluzioni/)
+- **Lipsia-Juventus, dove vedere la Champions League stasera (anche gratis)**: [Link](https://www.wired.it/article/lipsia-juventus-dove-vedere-champions-league/)
+- **“Vlahovic più pericoloso in area, Sesko è un collante”: parola al bomber**: [Link](https://www.tuttosport.com/news/calcio/champions-league/2024/10/02-133582617/_vlahovic_piu_pericoloso_in_area_sesko_e_un_collante_parola_al_bomber)
+
+
+### بابلو ماشين (N/A, Wed, 2 Oct 2024 13:10:00 -0700)
+
+- **المكتب المديري للرجاء: "مدربون كُثُر يتم تداول أسمائهم لا نفاوضهم أبرزهم 
+موسيماني وميتشو"**: [Link](https://m.elbotola.com/article/2024-10-01-22-31-646.html)
+- **مرشح لتدريب الرجاء يثير غضب مشجعين عرب**: [Link](https://sport.lesiteinfo.com/elbotola/446340.html)
+- **إدارة الرجاء تُجري مفاوضات مع سريدوييفيتش.. هل يكون المدرب الجديد؟**: [Link](https://aljarida24.ma/p/actualites/288946/)
+
+
 ### ucl (N/A, Wed, 2 Oct 2024 13:00:00 -0700)
 
 - **Atalanta 3-0 Shakhtar (Oct 2, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/720444)
