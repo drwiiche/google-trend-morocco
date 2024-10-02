@@ -1,3 +1,17 @@
+### botola (N/A, Wed, 2 Oct 2024 10:30:00 -0700)
+
+- **Botola : l’AS FAR et la RSB poursuivent la chasse aux points**: [Link](https://lematin.ma/sports/botola-las-far-et-la-rsb-poursuivent-la-chasse-aux-points/245086)
+- **Botola Pro D1 Inwi: l’AS FAR chute à El Jadida**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-las-far-chute-a-el-jadida_IB6SX225DRFB5KOHUD3TNONSFI/)
+- **Le Maroc vibre à cause de l’Algérie !**: [Link](https://fennecfootball.com/le-maroc-vibre-a-cause-de-l-algerie/)
+
+
+### as far (N/A, Wed, 2 Oct 2024 10:30:00 -0700)
+
+- **Austrian president appeals for calm coalition talks after far-right vote win**: [Link](https://www.reuters.com/world/europe/austrian-president-ask-outgoing-government-stay-caretaker-after-election-2024-10-02/)
+- **‘Earthquake’: Austria’s far-right Freedom Party wins election**: [Link](https://www.aljazeera.com/news/2024/9/30/earthquake-austrias-far-right-freedom-party-wins-election)
+- **Austria election results: Far-right FPO wins**: [Link](https://www.nbcnews.com/news/world/austria-election-results-far-right-fpo-wins-rcna173160)
+
+
 ### koh lanta 2024 (N/A, Wed, 2 Oct 2024 10:10:00 -0700)
 
 - **Koh-Lanta La Tribu Maudite - Emission 07 du 1 octobre 2024 - Partie 1**: [Link](https://www.tf1.fr/tf1/koh-lanta/videos/koh-lanta-la-tribu-maudite-emission-07-du-1-octobre-2024-partie-1-64047287.html)
