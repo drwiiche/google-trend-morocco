@@ -1,3 +1,18 @@
+### هسبريس (N/A, Tue, 1 Oct 2024 23:30:00 -0700)
+
+
+
+
+### barcelone (N/A, Tue, 1 Oct 2024 13:30:00 -0700)
+
+- **LdC : Le PSG de Hakimi face à Arsenal, le Bayer et Adli pour vaincre l'AC 
+Milan ... programme de ce mardi**: [Link](https://fr.hespress.com/388522-ldc-le-psg-de-hakimi-face-a-arsenal-le-bayer-et-adli-pour-vaincre-lac-milan-programme-de-ce-mardi.html)
+- **Foot : Le Borussia Dortmund, Manchester City, Barcelone et l'Inter se 
+promènent en Ligue des champions**: [Link](https://www.lequipe.fr/Football/Actualites/Le-borussia-dortmund-manchester-city-barcelone-et-l-inter-se-promenent-en-ligue-des-champions/1511298)
+- **Ligue des champions : Le Barça s'impose sans trembler, City l'emporte à 
+Bratislava, Dortmund explose le Celtic**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-le-barca-simpose-sans-trembler-city-lemporte-a-bratislava-dortmund-explose-le-celtic_sto20041908/story.shtml)
+
+
 ### andrés iniesta (N/A, Tue, 1 Oct 2024 15:00:00 -0700)
 
 - **Iniesta anunciará su retirada el próximo día 8**: [Link](https://as.com/futbol/primera/iniesta-anunciara-su-futuro-el-proximo-dia-8-n/)
