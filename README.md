@@ -1,3 +1,31 @@
+### michel barnier (N/A, Wed, 2 Oct 2024 10:40:00 -0700)
+
+- **En direct, discours de Michel Barnier : « Aucun soutien ne peut se tenir 
+pour acquis », a prévenu Gabriel Attal lors de son intervention à 
+l’Assemblée nationale**: [Link](https://www.lemonde.fr/politique/live/2024/10/01/en-direct-discours-de-michel-barnier-aucun-soutien-ne-peut-se-tenir-pour-acquis-a-prevenu-gabriel-attal-lors-de-son-intervention-a-l-assemblee-nationale_6340345_823448.html)
+- **"Plus vous serez agressive, plus je serai respectueux": Les saillies de 
+Michel Barnier en réponse aux chefs de groupes parlementaires à l'Assemblée 
+nationale**: [Link](https://www.bfmtv.com/politique/gouvernement/plus-vous-serez-agressive-plus-je-serai-respectueux-les-saillies-de-michel-barnier-en-reponse-aux-chefs-de-groupes-parlementaires-a-l-assemblee-nationale_VN-202410011073.html)
+- **Déficit, immigration, sécurité : ce qu’il faut retenir du discours de 
+Michel Barnier**: [Link](https://www.france24.com/fr/france/20241001-d%C3%A9ficit-immigration-s%C3%A9curit%C3%A9-ce-qu-il-faut-retenir-du-discours-de-michel-barnier)
+
+
+### girona vs feyenoord (N/A, Wed, 2 Oct 2024 10:40:00 -0700)
+
+- **UEFA Champions League Girona versus Feyenoord kick off 17:45 Wed 2 Oct 2024**: [Link](https://www.bbc.com/sport/football/live/c5y3g1n2j0jt)
+- **Girona FC - Feyenoord Live - Champions League: Football Scores & Highlights 
+- 02/10/2024**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/live-girona-fc-feyenoord_mtc1525306/live.shtml)
+- **Girona vs. Feyenoord Predictions, Picks, Odds — Champions League Wednesday**: [Link](https://www.actionnetwork.com/soccer/girona-vs-feyenoord-prediction-pick-odds-for-champions-league-wednesday)
+
+
+### الشركة الجهوية متعددة الخدمات الدار البيضاء سطات (N/A, Wed, 2 Oct 2024 09:40:00 -0700)
+
+- **"الشركة الجهوية" تدخل مرحلة السريان .. وبيضاويون يأملون إنهاء كوارث "ليدك"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%AC%D9%87%D9%88%D9%8A%D8%A9-%D8%AA%D8%AF%D8%AE%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D8%B1%D9%8A%D8%A7%D9%86-%D9%88%D8%A8-1440372.html)
+- **الشركة الجهوية متعددة الخدمات تخلف «ليديك» في تدبير قطاع الماء والكهرباء 
+بالدار البيضاء.. اكتشفوا أبرز التغييرات الطارئة**: [Link](https://ar.le360.ma/economie/6SRNMR6QMRFMPNX4XZDUKS6HSA/)
+- **انطلاق عمل الشركة الجهوية متعددة الخدمات الدارالبيضاء سطات**: [Link](https://snrtnews.com/article/103815)
+
+
 ### botola (N/A, Wed, 2 Oct 2024 10:30:00 -0700)
 
 - **Botola : l’AS FAR et la RSB poursuivent la chasse aux points**: [Link](https://lematin.ma/sports/botola-las-far-et-la-rsb-poursuivent-la-chasse-aux-points/245086)
