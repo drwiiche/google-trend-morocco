@@ -1,3 +1,12 @@
+### koh lanta 2024 (N/A, Wed, 2 Oct 2024 10:10:00 -0700)
+
+- **Koh-Lanta La Tribu Maudite - Emission 07 du 1 octobre 2024 - Partie 1**: [Link](https://www.tf1.fr/tf1/koh-lanta/videos/koh-lanta-la-tribu-maudite-emission-07-du-1-octobre-2024-partie-1-64047287.html)
+- **EXCLU Après 10 ans d'absence, Mélissa (Koh-Lanta) retrouve sa mère... 
+emportée par la maladie 2 semaines plus tard**: [Link](https://www.purepeople.com/article/apres-10-ans-d-absence-melissa-koh-lanta-retrouve-sa-mere-emportee-par-la-maladie-2-semaines-plus-tard_a527837/1)
+- **“Ils décident de faire alliance” : l’heure de la réunification a sonné dans 
+Koh-Lanta, une stratégie risque de bouleverser l’aventure**: [Link](https://www.programme.tv/news/tele-realite/235943-ils-decident-de-faire-alliance-lheure-de-la-reunification-a-sonne-dans-koh-lanta-une-strategie-risque-de-bouleverser-laventure/)
+
+
 ### chakhtior donetsk – atalanta (N/A, Wed, 2 Oct 2024 09:10:00 -0700)
 
 - **Preview: Shakhtar Donetsk vs. Atalanta BC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/shakhtar-donetsk/champions-league/preview/preview-shakhtar-vs-atalanta-prediction-team-news-lineups_554255.html)
