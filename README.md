@@ -1,3 +1,12 @@
+### real madrid fc (N/A, Wed, 2 Oct 2024 14:00:00 -0700)
+
+- **Barcelona handed perfect chance to prevent Real Madrid from breaking their 
+record**: [Link](https://barcauniversal.com/barcelona-handed-perfect-chance-to-prevent-real-madrid-from-breaking-their-record/)
+- **Lille 1-0 Real Madrid: Holders suffer shock Champions League loss**: [Link](https://www.bbc.com/sport/football/live/crejngyw5n5t)
+- **Fran García: "On Saturday, we have another important match and we have to 
+win it"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/fran-garcia-el-sabado-tenemos-otro-partido-importante-y-hay-que-ganarlo-02-10-2024)
+
+
 ### columbus crew – inter miami (N/A, Wed, 2 Oct 2024 16:00:00 -0700)
 
 - **Wednesday's Major League Soccer predictions including Columbus Crew vs. 
