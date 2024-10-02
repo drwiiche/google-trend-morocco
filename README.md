@@ -1,3 +1,12 @@
+### le normand (N/A, Wed, 2 Oct 2024 11:50:00 -0700)
+
+- **Ligue des champions : Victime d'un traumatisme crânien, Robin Le Normand 
+forfait pour Benfica-Atlético**: [Link](https://www.lequipe.fr/Football/Actualites/Victime-d-un-traumatisme-cranien-robin-le-normand-forfait-pour-benfica-atletico/1511210)
+- **Football : traumatisme crânien pour Le Normand après son choc avec 
+Tchouameni**: [Link](https://www.leparisien.fr/sports/football/football-traumatisme-cranien-pour-le-normand-apres-son-choc-avec-tchouameni-01-10-2024-VTDFTXJYMJAF5AGNO22DWAEXVY.php)
+- **Atlético Madrid : Le Normand victime d’un choc terrifiant**: [Link](https://www.les-transferts.com/rumeurs-transferts/atletico-madrid-le-normand-victime-dun-choc-terrifiant.html)
+
+
 ### بنفيكا ضد أتلتيكو مدريد (N/A, Wed, 2 Oct 2024 11:40:00 -0700)
 
 - **أتلتيكو مدريد يتحدى بنفيكا بذكريات صفعة الريال**: [Link](https://www.kooora.com/?n=1358455)
