@@ -1,3 +1,20 @@
+### ayachi zammel (N/A, Wed, 2 Oct 2024 08:10:00 -0700)
+
+- **Tunisia presidential candidate Zammel sentenced to 12 years in prison**: [Link](https://www.reuters.com/world/africa/tunisia-presidential-candidate-zammel-sentenced-12-years-prison-lawyer-says-2024-10-01/)
+- **Tunisia reportedly jails presidential candidate Ayachi Zammel for 12 years**: [Link](https://www.aljazeera.com/news/2024/10/1/tunisia-reportedly-jails-presidential-candidate-ayachi-zammel-for-12-years)
+- **Tunisia presidential candidate Zammel sentenced to 12 years in prison, 
+lawyer says**: [Link](https://nation.africa/africa/news/tunisia-presidential-candidate-zammel-sentenced-to-12-years-in-prison-lawyer-says-4782214)
+
+
+### aliou cissé (N/A, Wed, 2 Oct 2024 08:10:00 -0700)
+
+- **Le Sénégal se sépare d’Aliou Cissé**: [Link](https://www.footmercato.net/a922488754246166788-le-senegal-se-separe-daliou-cisse)
+- **Habib Beye favori pour le banc du Sénégal ?**: [Link](https://www.foot01.com/foot-mondial/habib-beye-favori-pour-le-banc-du-senegal-443593)
+- **Refus du ministre des Sports de prolonger son contrat d’une année : la FSF 
+entérine le départ d’Aliou Cissé à la tête de l’équipe nationale du Sénégal 
+.**: [Link](https://www.dakaractu.com/Refus-du-ministre-des-Sports-de-prolonger-son-contrat-d-une-annee-la-FSF-enterine-le-depart-d-Aliou-Cisse-a-la-tete-de-l_a254012.html)
+
+
 ### لوائح المقبولين لاجتياز مباراة التعليم (N/A, Wed, 2 Oct 2024 02:20:00 -0700)
 
 - **آخر أخبار المغرب: نتائج الانتقاء الأولي لمباراة التعليم 2024 تتصدر الترند 
