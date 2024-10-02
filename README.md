@@ -1,3 +1,25 @@
+### بنفيكا ضد أتلتيكو مدريد (N/A, Wed, 2 Oct 2024 11:40:00 -0700)
+
+- **أتلتيكو مدريد يتحدى بنفيكا بذكريات صفعة الريال**: [Link](https://www.kooora.com/?n=1358455)
+- **أتلتيكو مدريد يعزز صفوفه بالشاب جيرونيمو سبينا قبل مواجهة بنفيكا**: [Link](https://hihi2.com/2024/10/02/p2872085.html)
+- **تشكيلة بايرن ميونخ الرسمية في مباراة استون فيلا اليوم ..رياضة**: [Link](https://ar.pressbee.net/show8706260.html?title=%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85)
+
+
+### أستون فيلا ضد البايرن (N/A, Wed, 2 Oct 2024 11:40:00 -0700)
+
+- **هاري كين أساسيًا مع بايرن أمام أستون فيلا**: [Link](https://m.kooora.com/?n=1358732&o=n)
+- **مدرب البايرن يُفاجئ موسيالا قبل مواجهة أستون فيلا بهذا القرار**: [Link](https://hihi2.com/2024/10/02/p2872715.html)
+- **بطولة ألمانيا: تقييم إصابة كاين إيجابي بحسب بايرن**: [Link](https://elaph.com/Web/Sports/2024/09/1549453.html)
+
+
+### sergio ramos (N/A, Wed, 2 Oct 2024 11:20:00 -0700)
+
+- **El Zamalek egipcio intentó el fichaje de Sergio Ramos**: [Link](https://www.marca.com/futbol/futbol-internacional/2024/10/01/66fbdc0aca4741123b8b4578.html)
+- **Ganó un Mundial, cuatro Champions League y ahora negocia para jugar en 
+África**: [Link](https://bolavip.com/uefa/gano-un-mundial-cuatro-champions-league-y-ahora-negocia-para-jugar-en-africa)
+- **El desconocido equipo de Egipto al que Sergio Ramos quiso "unirse"**: [Link](https://www.libertaddigital.com/deportes/futbol/2024-10-01/el-desconocido-equipo-de-egipto-al-que-sergio-ramos-quiso-unirse-7169408/)
+
+
 ### rb leipzig – juventus (N/A, Wed, 2 Oct 2024 11:20:00 -0700)
 
 - **UCL Liveblog: RB Leipzig-Juventus, Liverpool-Bologna, Shakhtar-Atalanta**: [Link](https://football-italia.net/champions-league-live-juve-bologna-atalanta/)
