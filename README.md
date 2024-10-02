@@ -1,3 +1,11 @@
+### erik ten hag (N/A, Tue, 1 Oct 2024 18:30:00 -0700)
+
+- **Man Utd eye Simone Inzaghi to replace Erik ten Hag as deadline set for 
+INEOS decision**: [Link](https://www.dailystar.co.uk/sport/football/man-utd-inzaghi-ten-hag-33783230)
+- **Football gossip: Inzaghi, Van Nistelrooy, Tchouameni, Balotelli, Moyes**: [Link](https://www.bbc.com/sport/football/articles/c0lw6r951gko)
+- **Spurs romp to 3-0 win over 10-man Manchester United**: [Link](https://thesun.my/sport/spurs-romp-to-3-0-win-over-10-man-manchester-united-OH13057119)
+
+
 ### ldc (N/A, Tue, 1 Oct 2024 13:10:00 -0700)
 
 - **Real Madrid : Carlo Ancelotti répond à Diego Simeone**: [Link](https://www.footmercato.net/a519876997523744251-real-madrid-carlo-ancelotti-repond-a-diego-simeone)
