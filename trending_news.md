@@ -1,3 +1,27 @@
+### ترتيب دوري أبطال أوروبا (N/A, Wed, 2 Oct 2024 14:00:00 -0700)
+
+- **شاهد.. فوز برشلونة ومانشستر سيتي وأرسنال يهزم سان جيرمان**: [Link](https://www.aljazeera.net/sport/2024/10/2/%D8%B4%D8%A7%D9%87%D8%AF-%D9%81%D9%88%D8%B2-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
+- **عصبة أبطال أوروبا: ترتيب الهدافين**: [Link](https://www.almountakhab.com/node/13204967)
+- **ترتيب دوري أبطال أوروبا بعد خماسية برشلونة ورباعية مانشستر سيتي**: [Link](https://www.btolat.com/news/354201)
+
+
+### rma vs (N/A, Wed, 2 Oct 2024 13:50:00 -0700)
+
+- **Atlético Madrid 1-1 Real Madrid: Hosts score late equaliser against Real 
+after match was suspended for 20 minutes**: [Link](https://www.bbc.com/sport/football/live/ce3zvng1n5kt)
+- **Real Madrid Versus Atletico Madrid Preview: Line Up And System Change From 
+Ancelotti**: [Link](https://www.forbes.com/sites/tomsanderson/2024/09/29/real-madrid-versus-atletico-madrid-preview-line-up-and-system-change-from-ancelotti/)
+- **Five Players to Watch in the Madrid Derby: Vinicius Junior, Bellingham, 
+Griezmann**: [Link](https://www.si.com/soccer/five-players-to-watch-in-the-madrid-derby-vinicius-junior-bellingham-griezmann)
+
+
+### real madrid cf (N/A, Wed, 2 Oct 2024 13:40:00 -0700)
+
+- **Luka Modric's Real Madrid Future Uncertain: Could This Be the End of an Era?**: [Link](https://www.msn.com/en-us/sports/other/luka-modrics-real-madrid-future-uncertain-could-this-be-the-end-of-an-era/ar-AA1rnRHP)
+- **The reason why Real Madrid will no longer renew Modric**: [Link](https://www.fichajes.net/en/news/the-reason-why-real-madrid-will-no-longer-renew-modric-20241002.html)
+- **The imminent farewell of Luka Modric from Real Madrid**: [Link](https://www.fichajes.net/en/news/the-imminent-farewell-of-luka-modric-from-real-madrid-20240928.html)
+
+
 ### atletico madrid (N/A, Wed, 2 Oct 2024 13:40:00 -0700)
 
 - **Club Atlético de Madrid - Official statement**: [Link](https://en.atleticodemadrid.com/noticias/official-statement-7)
