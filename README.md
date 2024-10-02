@@ -1,3 +1,12 @@
+### فيصل عزيزي (N/A, Wed, 2 Oct 2024 01:30:00 -0700)
+
+- **هاشم بسطاوي: "ملي تزاديت وأنا كنحارب اللوبيا".. وفيصل عزيزي: "لن أرد عليك 
+احتراما لوالدتك"**: [Link](https://ar.hibapress.com/details-557464.html)
+- **هاشم البسطاوي وفيصل عزيزي…"عداوة بعد محبة!"**: [Link](https://aljarida24.ma/p/actualites/288978/)
+- **الفنان فيصل عزيزي يتغزّل بهاشم البسطاوي ويكشف ما كان بينهما والأخير يقـصفه 
+بعبارات نارية**: [Link](https://www.alayam24.com/articles-529791.html)
+
+
 ### atp pekin (N/A, Wed, 2 Oct 2024 03:00:00 -0700)
 
 - **2024 Beijing Day 8: Sinner v Alcaraz Final; Sabalenka v Keys, Osaka Retires 
