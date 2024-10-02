@@ -1,3 +1,20 @@
+### win (N/A, Wed, 2 Oct 2024 04:50:00 -0700)
+
+- **Tatis feels playoff 'energy,' homers in Padres' win**: [Link](https://www.espn.com/mlb/story/_/id/41560347/padres-roll-fernando-tatis-jr-marks-playoff-return-hr)
+- **How to watch the Atlanta Braves playoff game today (10/2/24) | FREE LIVE 
+STREAM, time, TV channel for NL Wild**: [Link](https://www.nj.com/sports/2024/10/how-to-watch-the-atlanta-braves-playoff-game-today-10224-free-live-stream-time-tv-channel-for-nl-wild-card-game-vs-san-diego-padres.html)
+- **With King (12 K's 0 runs), Padres had an ace up their sleeve**: [Link](https://www.mlb.com/news/michael-king-first-postseason-start-unparalleled)
+
+
+### قرعة امريكا (N/A, Wed, 2 Oct 2024 03:30:00 -0700)
+
+- **اللوتري الأمريكي 2024-2025.. خطوات التقديم في برنامج الهجرة العشوائية لـ 
+أمريكا**: [Link](https://www.almasryalyoum.com/news/details/3272961)
+- **انطلاق التسجيل في قرعة أمريكا وهذه هي الشروط**: [Link](https://rue20.com/841766.html)
+- **فرصة ذهبية هتهاجر ببلاش .. موعد التسجيل في قرعة أمريكا 2025 DV Lottery 
+وشروط التقديم في اللوتري**: [Link](https://real.alsaudinews.com/178682/%D9%81%D8%B1%D8%B5%D8%A9-%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D9%87%D8%AA%D9%87%D8%A7%D8%AC%D8%B1-%D8%A8%D8%A8%D9%84%D8%A7%D8%B4-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%B3%D8%AC%D9%8A%D9%84/)
+
+
 ### فيصل عزيزي (N/A, Wed, 2 Oct 2024 01:30:00 -0700)
 
 - **هاشم بسطاوي: "ملي تزاديت وأنا كنحارب اللوبيا".. وفيصل عزيزي: "لن أرد عليك 
