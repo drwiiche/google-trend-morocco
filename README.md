@@ -1,3 +1,11 @@
+### uefa champions league (N/A, Wed, 2 Oct 2024 12:30:00 -0700)
+
+- **SportTV Dominates UEFA Champions League Audience Ratings**: [Link](https://www.footboom1.com/en/news/football/1884137-sporttv-dominates-uefa-champions-league-audience-ratings)
+- **Watch SK Sturm Graz vs. Club Brugge: UEFA Champions League free live stream**: [Link](https://www.masslive.com/tv/2024/10/watch-sk-sturm-graz-vs-club-brugge-uefa-champions-league-free-live-stream.html)
+- **Sturm Graz vs Club Brugge LIVE Score Updates, Stream Info and How to Watch 
+UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2024/10/02/1198367-sturm-graz-vs-club-brugge-live-score-updates-stream-info-and-how-to-watch-uefa-champions-league-match.html)
+
+
 ### real madrid vs (N/A, Wed, 2 Oct 2024 12:20:00 -0700)
 
 - **Lille - Real Madrid en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/lille-r-madrid/2024/10/02/01_0103_20241002_429_186-directo.html)
