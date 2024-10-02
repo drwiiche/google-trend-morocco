@@ -1,3 +1,11 @@
+### chakhtior donetsk – atalanta (N/A, Wed, 2 Oct 2024 09:10:00 -0700)
+
+- **Preview: Shakhtar Donetsk vs. Atalanta BC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/shakhtar-donetsk/champions-league/preview/preview-shakhtar-vs-atalanta-prediction-team-news-lineups_554255.html)
+- **Any Other Bets: Champions League, EFL tips for Wednesday October 2**: [Link](https://www.sportinglife.com/football/news/any-other-bets-champions-league-efl-tips-for-wednesday-october-2/220816)
+- **Shakhtar Donetsk vs. Atalanta Predictions, Picks, Odds — Champions League 
+Wednesday**: [Link](https://www.actionnetwork.com/soccer/shakhtar-donetsk-vs-atalanta-prediction-pick-odds-for-champions-league-wednesday)
+
+
 ### girona – feyenoord (N/A, Wed, 2 Oct 2024 08:50:00 -0700)
 
 - **'Priske is geen eigenwijze man, het is positief dat hij dit doet'**: [Link](https://www.vi.nl/video/priske-is-geen-eigenwijze-man-het-is-positief-dat-hij-dit-doet)
