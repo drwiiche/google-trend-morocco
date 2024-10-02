@@ -1,3 +1,33 @@
+### real madrid (N/A, Wed, 2 Oct 2024 12:40:00 -0700)
+
+- **Lille - Real Madrid en directo: ¡Penalti a favor del Lille en el descuento! 
+| Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/lille-r-madrid/2024/10/02/01_0103_20241002_429_186-directo.html)
+- **Reacciones, análisis y comentarios del Lille - Real Madrid: UEFA Champions 
+League hoy, en vivo**: [Link](https://as.com/futbol/champions/reacciones-analisis-y-comentarios-del-lille-real-madrid-uefa-champions-league-hoy-en-vivo-n/)
+- **Edu Aguirre anuncia tres 'bombazos' en la alineación del Madrid ante el 
+Lille: "Se va al banquillo..."**: [Link](https://www.defensacentral.com/real_madrid/1709327926-edu-aguirre-anuncia-tres-bombazos-en-la-alineacion-del-madrid-ante-el-lille-se-va-al-banquillo)
+
+
+### bayern (N/A, Wed, 2 Oct 2024 12:40:00 -0700)
+
+- **Champions League: Aston Villa gegen Bayern München im Liveticker – Vincent 
+Villa mehr**: [Link](https://www.11freunde.de/international/champions-league/champions-league-aston-villa-gegen-bayern-muenchen-im-liveticker-vincent-villa-mehr-a-d3348cfa-42d3-4314-bc4d-a648d584408f)
+- **Hello Birmingham!**: [Link](https://fcbayern.com/kidsclub/de/news/2024/10/berni-auf-reisen-unterwegs-in-birmingham)
+- **Klaus Augenthaler verrät: "Frust mit Getränken behandelt"**: [Link](https://www.sport1.de/tv-video/video/augenthaler-verraet-frust-mit-getraenken-behandelt-__FD3FBD62-E990-4DCE-8D49-836B9C3B0722)
+
+
+### osame sahraoui (N/A, Wed, 2 Oct 2024 12:40:00 -0700)
+
+
+
+
+### lille (N/A, Wed, 2 Oct 2024 12:30:00 -0700)
+
+- **Ancelotti: "We'll be back to our best soon"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rp-ancelotti-previo-lille-rm-j2-champions-league-01-10-2024)
+- **Preview: Lille vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/preview/preview-lille-vs-real-madrid-prediction-team-news-lineups_554300.html)
+- **Camavinga And Guler To Feature Against Lille In Champions League Clash**: [Link](https://www.newsx.com/top-news/camavinga-and-guler-to-feature-against-lille-in-champions-league-clash/)
+
+
 ### uefa champions league (N/A, Wed, 2 Oct 2024 12:30:00 -0700)
 
 - **SportTV Dominates UEFA Champions League Audience Ratings**: [Link](https://www.footboom1.com/en/news/football/1884137-sporttv-dominates-uefa-champions-league-audience-ratings)
