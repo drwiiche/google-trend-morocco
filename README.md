@@ -1,3 +1,28 @@
+### real madrid vs (N/A, Wed, 2 Oct 2024 12:20:00 -0700)
+
+- **Lille - Real Madrid en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/lille-r-madrid/2024/10/02/01_0103_20241002_429_186-directo.html)
+- **Alineación posible del Real Madrid ante el Lille en la UEFA Champions League**: [Link](https://as.com/futbol/champions/alineacion-posible-del-real-madrid-ante-el-lille-en-la-uefa-champions-league-n/)
+- **Edu Aguirre anuncia tres 'bombazos' en la alineación del Madrid ante el 
+Lille: "Se va al banquillo..."**: [Link](https://www.defensacentral.com/real_madrid/1709327926-edu-aguirre-anuncia-tres-bombazos-en-la-alineacion-del-madrid-ante-el-lille-se-va-al-banquillo)
+
+
+### endrick (N/A, Wed, 2 Oct 2024 12:20:00 -0700)
+
+- **👶 Real Madrid wonderkid smashes UCL record with start against Lille**: [Link](https://sports.yahoo.com/real-madrid-wonderkid-smashes-ucl-182200780.html)
+- **Real Madrid legend backs Endrick to fill starting role in Kylian Mbappe's 
+absence**: [Link](https://www.sportingnews.com/au/football/news/real-madrid-endrick-kylian-mbappe/194a2944ce93ccc95ad46260)
+- **Real Madrid icon backs Endrick Felipe for starting role against Atletico 
+Madrid**: [Link](https://www.football-espana.net/2024/09/28/real-madrid-icon-backs-endrick-felipe-for-starting-role-against-atletico-madrid)
+
+
+### lille fc (N/A, Wed, 2 Oct 2024 12:00:00 -0700)
+
+- **Ancelotti: "We'll be back to our best soon"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rp-ancelotti-previo-lille-rm-j2-champions-league-01-10-2024)
+- **Preview: Lille vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/preview/preview-lille-vs-real-madrid-prediction-team-news-lineups_554300.html)
+- **UEFA Champions League: Predictions for Lille vs Real Madrid (02/10/24) | 
+Argentina**: [Link](https://www.footboom1.com/en/news/football/1881416-uefa-champions-league-predictions-for-lille-vs-real-madrid-02-10-24-argentina)
+
+
 ### ليفربول ضد بولونيا (N/A, Wed, 2 Oct 2024 12:10:00 -0700)
 
 - **نجم اليونايتد يسافر إلى ليفربول لمساندة بولونيا**: [Link](https://www.kooora.com/?n=1358651)
