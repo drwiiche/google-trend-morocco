@@ -1,3 +1,34 @@
+### ucl (N/A, Wed, 2 Oct 2024 13:00:00 -0700)
+
+- **Atalanta 3-0 Shakhtar (Oct 2, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/720444)
+- **🔴 UCL LIVE: Feyenoord ahead in thriller and Atalanta cruising**: [Link](https://sports.yahoo.com/cl-live-five-goals-missed-165700191.html)
+- **🔴 UCL LIVE: Liverpool lead, Real Madrid behind, Villa have goal ruled out**: [Link](https://onefootball.com/en/news/ucl-live-liverpool-lead-real-madrid-behind-villa-have-goal-ruled-out-40116319)
+
+
+### benfica (N/A, Wed, 2 Oct 2024 13:00:00 -0700)
+
+- **18h30 Edição João Gomes Dias**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/18h30-edicao-joao-gomes-dias_a1_1604379)
+- **VÍDEO: Akturkoglu abre o marcador na Luz**: [Link](https://www.abola.pt/futebol/noticias/video-akturkoglu-abre-o-marcador-na-luz-2024100219165954428)
+- **Adeptos do Atlético Madrid causam aparato no Metro de Lisboa**: [Link](https://www.cmjornal.pt/multimedia/videos/detalhe/adeptos-do-atletico-de-madrid-causam-aparato-no-metro-de-lisboa)
+
+
+### champions league (N/A, Wed, 2 Oct 2024 12:50:00 -0700)
+
+- **Champions League: Build up as Aston Villa host Bayern & Liverpool face 
+Bologna**: [Link](https://www.bbc.com/sport/football/live/c2kd54vxd2lt)
+- **What channel is Liverpool v Bologna Champions League match on? TV coverage, 
+live stream and kick-off time**: [Link](https://www.radiotimes.com/tv/sport/football/liverpool-bologna-champions-league-2024-25-preview/)
+- **Liverpool v Bologna, Lille v Real Madrid and more: Champions League – live**: [Link](https://www.theguardian.com/football/live/2024/oct/02/liverpool-v-bologna-lille-v-real-madrid-and-more-champions-league-live)
+
+
+### bet 365 (N/A, Wed, 2 Oct 2024 12:50:00 -0700)
+
+- **Bet365 NFL bonus code AJCXLM: $200 Monday Night Football bonus**: [Link](https://www.ajc.com/sports-betting/bet365-nfl-bonus-code-ajcxlm-200-monday-night-football-bonus/7VBYIPDGMVGWHBTCUH4HGLRPGE/)
+- **bet365 Bonus Code TOPACTION: Land $1K First Bet Safety Net or $200 in Bonus 
+Bets Promo for MLB Playoffs Today**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-topaction-land-1k-first-bet-safety-net-or-200-in-bonus-bets-promo-for-mlb-playoffs-today)
+- **Bet365 Bonus Code WEEK365: Get $200 Bonus or $1,000 Safety Net for MLB, NFL**: [Link](https://www.newsweek.com/bet365-bonus-code-week365-get-200-bonus-1000-safety-net-mlb-nfl-october-2-1962778)
+
+
 ### real madrid (N/A, Wed, 2 Oct 2024 12:40:00 -0700)
 
 - **Lille - Real Madrid en directo: ¡Penalti a favor del Lille en el descuento! 
