@@ -1,3 +1,11 @@
+### girona fc (N/A, Wed, 2 Oct 2024 11:00:00 -0700)
+
+- **Girona - Feyenoord, en directo: Champions League, en vivo hoy**: [Link](https://as.com/futbol/girona-feyenoord-en-directo-champions-league-en-vivo-hoy-n/)
+- **Girona - Feyenoord en directo | la Champions League en vivo hoy**: [Link](https://www.marca.com/futbol/champions-league/girona-feyenoord/2024/10/02/01_0103_20241002_2893_198-directo.html)
+- **Los 'ultras' del Feyenoord llegan al estadi de Montilivi bajo estricto 
+control policial**: [Link](https://www.mundodeportivo.com/videos/champions-league/20241002/1002326558/ultras-feyenoord-llegan-estadi-montilivi-estricto-control-policial.html)
+
+
 ### michel barnier (N/A, Wed, 2 Oct 2024 10:40:00 -0700)
 
 - **En direct, discours de Michel Barnier : « Aucun soutien ne peut se tenir 
