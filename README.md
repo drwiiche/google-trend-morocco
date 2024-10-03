@@ -1,3 +1,12 @@
+### olympiakos – braga (N/A, Thu, 3 Oct 2024 11:00:00 -0700)
+
+- **UEFA Europa League Olympiakos Piraeus 0 Sporting Braga 0 29 minutes played. 
+In progress**: [Link](https://www.bbc.com/sport/football/live/c4grz42g73pt)
+- **Football Bet of the Day: Back goals in Greece**: [Link](https://betting.betfair.com/football/the-jokers-bet-of-the-day/football-bet-of-the-day-tips-back-goals-in-greece-031024-155.html)
+- **Olympiacos Coach on SC Braga: "They're Good Players, But We're Not Just 
+Focusing on One or Another"**: [Link](https://www.footboom1.com/en/news/football/1883315-olympiacos-coach-on-sc-braga-they-re-good-players-but-we-re-not-just-focusing-on-one-or-another)
+
+
 ### al-okhdood football club – al ittihad (N/A, Thu, 3 Oct 2024 10:40:00 -0700)
 
 - **Preview: Al Okhdood vs. Al Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-akhdoud/preview/preview-al-okhdood-vs-al-ittihad-prediction-team-news-lineups_554423.html)
