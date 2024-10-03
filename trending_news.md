@@ -1,3 +1,12 @@
+### lionel messi (N/A, Thu, 3 Oct 2024 05:10:00 -0700)
+
+- **Lionel Messi scores twice as Inter Miami win MLS Supporters' Shield for 
+first time**: [Link](https://www.bbc.com/sport/football/articles/cgk7zrmx4kno)
+- **Lionel Messi, Inter Miami win MLS Supporters Shield with 3-2 win against 
+Columbus Crew**: [Link](https://www.newindianexpress.com/sport/football/2024/Oct/03/lionel-messi-inter-miami-win-mls-supporters-shield-with-3-2-win-against-columbus-crew)
+- **Colmbus Crew 2-3 Inter Miami: Messi, Suarez seal Supporters' Shield success**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/colmbus-crew-2-3-inter-miami-messi-suarez-seal-supporters-shield-success-2024-10-03?q=%25E9%25AB%2598%25E4%25BB%25BF%25E8%25BF%25AA%25E5%25A5%25A5%25E7%2594%25B7%25E5%25A3%25AB%25E6%259C%258D%25E8%25A3%2585%25E2%2596%258C%25E5%25BE%25AE%25E4%25BF%25A1198099199%25E2%2596%258CRJx6)
+
+
 ### جمال حركاس (N/A, Thu, 3 Oct 2024 05:40:00 -0700)
 
 - **الركراكي: الإصابة وراء غياب زياش ودياز**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%88%D8%B1%D8%A7%D8%A1-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%88%D8%AF%D9%8A%D8%A7%D8%B2-1441304.html)
