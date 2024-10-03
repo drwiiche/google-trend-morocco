@@ -1,3 +1,20 @@
+### chelsea vs gent (N/A, Thu, 3 Oct 2024 12:20:00 -0700)
+
+- **Palmer replacement, Nkunku decision as Maresca makes 11 changes - Predicted 
+Chelsea XI vs Gent**: [Link](https://www.football.london/chelsea-fc/news/gallery/palmer-replacement-nkunku-decision-maresca-30056771)
+- **Five from training: Final work before Gent | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/five-from-training-last-work-before-gent)
+- **Chelsea 2024–25 UEFA Conference League Squad**: [Link](https://www.localsyr.com/sports/sports-illustrated/bf644da6/chelsea-2024-25-uefa-conference-league-squad/)
+
+
+### glasgow rangers – lyon (N/A, Thu, 3 Oct 2024 12:20:00 -0700)
+
+- **Rangers apology ahead of Lyon clash as pundit admits he ‘got it massively 
+wrong’**: [Link](https://www.ibroxnews.com/2024/10/03/rangers-apology-ahead-of-lyon-clash-as-pundit-admits-he-got-it-massively-wrong/)
+- **'We need players to go above their level for a win' - Clement**: [Link](https://www.bbc.com/sport/articles/c17lpg4508yo)
+- **Rangers v Lyon LIVE – UEFA Europa League latest as Rangers host Lyon at 
+Ibrox Stadium**: [Link](https://www.tntsports.co.uk/football/europa-league/2024-2025/live-rangers-olympique-lyonnais_mtc1524694/live-commentary.shtml)
+
+
 ### توقعات ليلى عبد اللطيف (N/A, Thu, 3 Oct 2024 12:10:00 -0700)
 
 - **تداول فيديو مثير للجدل عن عودة شخصية سياسية بعد اغتيالها**: [Link](https://www.raialyoum.com/%D8%AA%D8%AF%D8%A7%D9%88%D9%84-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%AC%D8%AF%D9%84-%D8%B9%D9%86-%D8%B9%D9%88%D8%AF%D8%A9-%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D8%B3%D9%8A/)
