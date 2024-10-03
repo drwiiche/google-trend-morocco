@@ -1,3 +1,11 @@
+### توقعات ليلى عبد اللطيف (N/A, Thu, 3 Oct 2024 12:10:00 -0700)
+
+- **تداول فيديو مثير للجدل عن عودة شخصية سياسية بعد اغتيالها**: [Link](https://www.raialyoum.com/%D8%AA%D8%AF%D8%A7%D9%88%D9%84-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%AC%D8%AF%D9%84-%D8%B9%D9%86-%D8%B9%D9%88%D8%AF%D8%A9-%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D8%B3%D9%8A/)
+- **ليلى عبد اللطيف تثير الجدل مرة أخرى.. ظهور شخصية سياسية بعد الإعلان عن 
+اغتيالها(فيديو)**: [Link](https://www.akhbarona.com/world/393159.html)
+- **توقعات صادمة.. ليلى عبداللطيف: هذا الشخص سيظهر مرة أخرى رغم إعلان اغتياله**: [Link](https://almesryoon.com/Section_439/%D8%A2%D8%AE%D8%B1-%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D9%84%D9%8A%D9%84%D9%89-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D8%B7%D9%8A%D9%81-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B4%D8%AE%D8%B5-%D8%B3%D9%8A%D8%B8%D9%87%D8%B1-%D9%85%D8%B1%D8%A9-%D8%A3%D8%AE%D8%B1%D9%89-%D8%B1%D8%BA%D9%85-%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84%D9%87_1347093)
+
+
 ### twente – fenerbahçe (N/A, Thu, 3 Oct 2024 11:30:00 -0700)
 
 - **FC Twente’s Joseph Oosting: “Fenerbahçe are a Very Special Team”**: [Link](https://sports.yahoo.com/fc-twente-joseph-oosting-fenerbah-144800425.html)
