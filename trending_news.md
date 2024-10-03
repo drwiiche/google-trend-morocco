@@ -1,3 +1,28 @@
+### ancelotti (N/A, Thu, 3 Oct 2024 08:10:00 -0700)
+
+- **Real Madrid, dirigenza alla ricerca di nuove figure per lo staff di 
+Ancelotti**: [Link](https://www.alfredopedulla.com/real-madrid-dirigenza-alla-ricerca-di-nuove-figure-per-lo-staff-di-ancelotti/)
+- **Ancelotti in discussione: un altro italiano per la panchina del Real Madrid**: [Link](https://www.calciomercato.it/2024/10/03/ancelotti-in-discussione-un-altro-italiano-per-la-panchina-del-real-madrid/)
+- **Thomas Meunier: "Il Real Madrid ha 25 grandi giocatori, che sia Mbappe, Vinicius o Carvajal - non importa"**: [Link](https://www.footboom1.com/it/news/football/1879976-thomas-meunier-real-madrid-has-25-great-players-whether-it-s-mbappe-vinicius-or-carvajal-it-doesn-t-matter)
+
+
+### retraite (N/A, Thu, 3 Oct 2024 08:10:00 -0700)
+
+- **La revalorisation des retraites décalée de 6 mois pour économiser 3,7 
+milliards d'euros**: [Link](https://www.lefigaro.fr/conjoncture/la-revalorisation-des-retraites-decalee-de-6-mois-pour-economiser-3-milliards-d-euros-20241002)
+- **Budget 2025 : Michel Barnier annonce 45 milliards de coupes dans les 
+services publics et la Sécu**: [Link](https://www.humanite.fr/politique/assurance-chomage-2/budget-2025-michel-barnier-annonce-45-milliards-de-coupes-dans-les-services-publics-et-la-secu)
+- **Ces secteurs qui redoutent un coup de rabot budgétaire**: [Link](https://www.lemonde.fr/economie/article/2024/10/02/ces-secteurs-qui-redoutent-un-coup-de-rabot-budgetaire_6341559_3234.html)
+
+
+### وزارة العدل (N/A, Thu, 3 Oct 2024 08:10:00 -0700)
+
+- **المفوضون القضائيون يُضربون رفضا "للمس" بالاستقلالية في "تنظيم المهنة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%81%D9%88%D8%B6%D9%88%D9%86-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D9%88%D9%86-%D9%8A%D9%8F%D8%B6%D8%B1%D8%A8%D9%88%D9%86-%D8%B1%D9%81%D8%B6%D8%A7-%D9%84%D9%84%D9%85%D8%B3-1441061.html)
+- **الحكومة تنظم مهنة المفوضين القضائيين**: [Link](https://ar.hibapress.com/details-557917.html)
+- **خاص: وزارة العدل والنقابات على طاولة الحوار الاثنين المقبل بحثا عن حلول تضع 
+حدا للاحتجاجات – اليوم 24**: [Link](https://alyaoum24.com/1919346.html)
+
+
 ### film joker 2 (N/A, Thu, 3 Oct 2024 06:50:00 -0700)
 
 - **‘Joker: Folie à Deux’: Don’t come to this musical looking to get happy**: [Link](https://www.washingtonpost.com/entertainment/movies/2024/10/03/joker-folie-deux-phoenix-gaga-review/)
