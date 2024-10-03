@@ -1,3 +1,12 @@
+### narjesse disparition (N/A, Thu, 3 Oct 2024 07:20:00 -0700)
+
+- **Narjesse Ghezal, la jeune fille de 17 ans disparue depuis 3 mois retrouvée 
+vivante**: [Link](https://www.parismatch.com/actu/faits-divers/narjesse-ghezal-la-jeune-fille-de-17-ans-disparue-depuis-3-mois-retrouvee-vivante-242235)
+- **"C'est un cauchemar": les parents de Narjesse sans nouvelles de leur fille 
+trois mois après sa disparition...**: [Link](https://www.bfmtv.com/lyon/c-est-un-cauchemar-les-parents-de-narjesse-sans-nouvelle-de-leur-fille-trois-mois-apres-sa-disparition-a-villeurbanne_AV-202409300135.html)
+- **La jeune fille disparue depuis trois mois à Lyon retrouvée en bonne santé**: [Link](https://www.lefigaro.fr/lyon/la-jeune-fille-disparue-depuis-trois-mois-a-lyon-retrouvee-en-bonne-sante-20241002)
+
+
 ### wbo (N/A, Thu, 3 Oct 2024 06:30:00 -0700)
 
 - **PMI’s Regie Suganob remains top Filipino contender in WBO light flyweight 
