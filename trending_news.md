@@ -1,3 +1,12 @@
+### paul watson (N/A, Wed, 2 Oct 2024 19:00:00 -0700)
+
+- **Greenland court extends anti-whaling activist's time in custody as Japan 
+seeks his extradition**: [Link](https://www.bowenislandundercurrent.com/world-news/greenland-court-extends-anti-whaling-activists-time-in-custody-as-japan-seeks-his-extradition-9600908)
+- **Greenland Court Extends Capt. Paul Watson's Detention**: [Link](https://maritime-executive.com/article/greenland-court-extends-capt-paul-watson-s-detention)
+- **Greenland court extends anti-whaling activist's time in custody as Japan 
+seeks his extradition**: [Link](https://www.townandcountrytoday.com/world-news/greenland-court-extends-anti-whaling-activists-time-in-custody-as-japan-seeks-his-extradition-9600905)
+
+
 ### inter miami (N/A, Wed, 2 Oct 2024 17:10:00 -0700)
 
 - **Lionel Messi swears at referee after Inter Miami's draw with Charlotte**: [Link](https://www.sportsmole.co.uk/football/inter-miami/news/mean-spirited-son-of-a-b-messi-launches-furious-rant-after-charlotte-draw_554200.html)
