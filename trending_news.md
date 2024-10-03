@@ -1,3 +1,12 @@
+### neymar barça (N/A, Thu, 3 Oct 2024 13:10:00 -0700)
+
+- **Man City's Erling Haaland 'to play key role' in Neymar transfer as 
+Barcelona hatch plan**: [Link](https://www.manchestereveningnews.co.uk/sport/football/transfer-news/man-citys-erling-haaland-to-30062686)
+- **Football transfer rumours: Barcelona consider Neymar reunion; Man Utd eye 
+new striker**: [Link](https://sports.yahoo.com/football-transfer-rumours-barcelona-consider-081500678.html)
+- **Three reasons why Barcelona should avoid signing Neymar in 2025**: [Link](https://barcauniversal.com/three-reasons-why-barcelona-should-avoid-signing-neymar-in-2025/)
+
+
 ### manchester united (N/A, Thu, 3 Oct 2024 12:50:00 -0700)
 
 - **Can Erik ten Hag survive again as Manchester United manager? - The Athletic**: [Link](https://www.nytimes.com/athletic/5813363/2024/10/03/erik-ten-hag-jim-ratcliffe-manchester-united/)
