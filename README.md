@@ -1,3 +1,10 @@
+### champions (N/A, Wed, 2 Oct 2024 14:20:00 -0700)
+
+- **Celtic: 'Brendan Rodgers' naive side fall into familiar European trap'**: [Link](https://www.bbc.com/sport/football/articles/cg56eg0gv8lo)
+- **A pragmatic approach urgently needed for Champions League away matches**: [Link](https://thecelticstar.com/a-pragmatic-approach-urgently-needed-for-champions-league-away-matches/)
+- **Juventus plays like a team ‘possessed’**: [Link](https://www.socceramerica.com/juventus-plays-like-a-team-possessed/)
+
+
 ### real madrid fc (N/A, Wed, 2 Oct 2024 14:00:00 -0700)
 
 - **Barcelona handed perfect chance to prevent Real Madrid from breaking their 
