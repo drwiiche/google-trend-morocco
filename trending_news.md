@@ -1,3 +1,10 @@
+### جمال حركاس (N/A, Thu, 3 Oct 2024 05:40:00 -0700)
+
+- **الركراكي: الإصابة وراء غياب زياش ودياز**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%88%D8%B1%D8%A7%D8%A1-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%88%D8%AF%D9%8A%D8%A7%D8%B2-1441304.html)
+- **عاجل..اسماء جديدة في قائمة المنتخب المغربي استعدادا لمواجهتي إفريقيا الوسطى**: [Link](https://www.akhbarona.com/sport/lionatlas/393179.html)
+- **الركراكي: بنتايك في تطور وعطية الله راجع**: [Link](https://www.almountakhab.com/node/16205013)
+
+
 ### frmf (N/A, Thu, 3 Oct 2024 03:20:00 -0700)
 
 - **Lekjaa: Des "détails" ont empêché les Lions de Futsal d'aller plus loin 
