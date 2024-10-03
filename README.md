@@ -1,3 +1,11 @@
+### twente – fenerbahçe (N/A, Thu, 3 Oct 2024 11:30:00 -0700)
+
+- **FC Twente’s Joseph Oosting: “Fenerbahçe are a Very Special Team”**: [Link](https://sports.yahoo.com/fc-twente-joseph-oosting-fenerbah-144800425.html)
+- **How to watch Twente vs. Fenerbahce online for free**: [Link](https://mashable.com/article/twente-fenerbahce-europa-league-2024-live-stream-for-free)
+- **Fenerbahce vs Twente: Jose Mourinho’s stark warning, possible lineup, key 
+stats**: [Link](https://www.turkiyetoday.com/sports/fenerbahce-vs-twente-jose-mourinhos-stark-warning-possible-lineup-key-stats-61263/)
+
+
 ### بورتو ضد مان يونايتد (N/A, Thu, 3 Oct 2024 11:20:00 -0700)
 
 - **تشكيلة مانشستر يونايتد الرسمية لمواجهة بورتو في الدوري الأوروبي**: [Link](https://hihi2.com/2024/10/03/p2874206.html)
