@@ -1,3 +1,10 @@
+### europa league (N/A, Thu, 3 Oct 2024 10:00:00 -0700)
+
+- **Preview: Porto vs. Manchester United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-utd/europa-league/preview/preview-porto-vs-man-utd-prediction-team-news-lineups_554381.html)
+- **Ten Hag says Mason Mount has picked up secret injury, it's embarrassing after his Instagram post**: [Link](https://www.unitedinfocus.com/news/ten-hag-says-mason-mount-has-picked-up-secret-injury-its-embarrassing-after-his-instagram-post/)
+- **Paddy Power Sign-Up Offer: Get £50 In Free Bets When You Bet £10 On Porto vs Man Utd**: [Link](https://www.101greatgoals.com/free-bets/paddy-power-sign-up-offer-get-50-in-free-bets-when-you-bet-10-on-porto-vs-man-utd/)
+
+
 ### senegal (N/A, Thu, 3 Oct 2024 09:10:00 -0700)
 
 - **Committee for Inland Fisheries and Aquaculture of Africa holds 20th session 
