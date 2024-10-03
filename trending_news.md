@@ -1,3 +1,10 @@
+### film joker 2 (N/A, Thu, 3 Oct 2024 06:50:00 -0700)
+
+- **‘Joker: Folie à Deux’: Don’t come to this musical looking to get happy**: [Link](https://www.washingtonpost.com/entertainment/movies/2024/10/03/joker-folie-deux-phoenix-gaga-review/)
+- **Movie Review: 'Folie à Deux' reckons with 'The Joker'**: [Link](https://abcnews.go.com/Entertainment/wireStory/movie-review-folie-deux-reckons-joker-114464508)
+- **Joaquin Phoenix says 'Joker 2' movie musical drew inspiration from KISS**: [Link](https://www.usatoday.com/story/entertainment/movies/2024/10/03/lady-gaga-joaquin-phoenix-talk-joker-2/75454631007/)
+
+
 ### narjesse disparition (N/A, Thu, 3 Oct 2024 07:20:00 -0700)
 
 - **Narjesse Ghezal, la jeune fille de 17 ans disparue depuis 3 mois retrouvée 
