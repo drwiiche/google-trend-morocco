@@ -1,3 +1,10 @@
+### الريال (N/A, Wed, 2 Oct 2024 14:10:00 -0700)
+
+- **ماذا بعد تصريح أنشيلوتي؟**: [Link](https://hihi2.com/2024/10/03/p2873432.html)
+- **بداية النهاية؟ جولر ومودريتش يتسببان في أزمة لأنشيلوتي مع إدارة ريال مدريد**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%94%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D8%AC%D9%88%D9%84%D8%B1-%D9%85%D9%88%D8%AF%D8%B1%D9%8A%D8%AA%D8%B4-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt5a5bf10a837ee495)
+- **صوره تفضح انشيلوتي في الدوري**: [Link](https://hihi2.com/2024/10/03/p2873102.html)
+
+
 ### paul watson (N/A, Wed, 2 Oct 2024 19:00:00 -0700)
 
 - **Greenland court extends anti-whaling activist's time in custody as Japan 
