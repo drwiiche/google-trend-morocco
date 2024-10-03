@@ -1,3 +1,13 @@
+### aston villa (N/A, Wed, 2 Oct 2024 14:10:00 -0700)
+
+- **How much Aston Villa are charging for Champions League tickets and how it 
+compares to rivals**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/aston-villa-ticket-prices-bayern-29868124)
+- **Aston Villa slated for decision taken ahead of Bayern Munich Champions 
+League tie**: [Link](https://www.astonvillanews.co.uk/2024/10/02/aston-villa-slated-for-decision-taken-ahead-of-bayern-munich-champions-league-tie/)
+- **Stiliyan Petrov weighs in on Aston Villa Champions League row ahead of 
+Bayern Munich**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/stiliyan-petrov-weighs-aston-villa-30042670)
+
+
 ### كولومبوس كرو ضد إنتر ميامي (N/A, Wed, 2 Oct 2024 19:00:00 -0700)
 
 - **موعد مباراة كولومبوس كرو وإنتر ميامي في الدوري الأمريكي 2024 والقنوات 
