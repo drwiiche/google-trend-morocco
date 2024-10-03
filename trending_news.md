@@ -1,3 +1,37 @@
+### real sociedad – anderlecht (N/A, Thu, 3 Oct 2024 08:50:00 -0700)
+
+- **Por qué Takefusa Kubo, Martín Zubimendi y Mikel Oyarzabal no juegan el Real 
+Sociedad vs. Anderlecht de la Europa League 2024-25**: [Link](https://www.goal.com/es-ar/listados/por-que-take-kubo-martin-zubimendi-y-mikel-oyarzabal-no-juegan-el-real-sociedad-vs-anderlecht-de-la-europa-league-2024-25/bltb798930d3b029b83)
+- **Real Sociedad vs. Anderlecht en vivo: cómo verlo, horario y TV**: [Link](https://www.tycsports.com/europa-league/real-sociedad-vs-anderlecht-en-vivo-hora-donde-ver-y-formaciones-id610865.html)
+- **Momentos de tensión, bengalas y petardos en el camino de los aficionados 
+del Anderlecht hacia el Reale Arena**: [Link](https://www.eitb.eus/es/noticias/sociedad/detalle/9595872/momentos-de-tension-bengalas-y-petardos-en-camino-de-aficionados-del-anderlecht-hacia-reale-arena/)
+
+
+### legia warszawa – betis (N/A, Thu, 3 Oct 2024 08:50:00 -0700)
+
+- **Hiszpański klub? Trudno o gorszego rywala dla polskich drużyn**: [Link](https://weszlo.com/2024/10/03/hiszpanski-klub-trudno-o-gorszego-rywala-dla-polskich-druzyn/)
+- **Była gwiazda rywali zaskakuje słowami o Legii**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/liga-konferencji-europy/benjamin-zarandona-zaskakuje-slowami-o-legii-wywiad/b2gq3jj)
+- **Tak Betis potraktował Kowalczyka. Klasa!**: [Link](https://www.meczyki.pl/newsy/pilka-nozna/tak-betis-potraktowal-kowalczyka-klasa/251800)
+
+
+### rīgas fs – galatasaray (N/A, Thu, 3 Oct 2024 08:50:00 -0700)
+
+- **Preview: Rigas Futbola Skola vs. Galatasaray - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/rigas-futbola-skola/preview/preview-rfs-vs-galatasaray-prediction-team-news-lineups_554416.html)
+- **Rigas FS vs Galatasaray Prediction and Betting Tips | October 3rd 2024**: [Link](https://www.sportskeeda.com/football/rigas-fs-vs-galatasaray-prediction-betting-tips-october-3rd-2024)
+- **RFS coach labels Osimhen 'a great goalscorer', identifies his potential 
+replacement in starting XI**: [Link](https://www.allnigeriasoccer.com/read_news.php?nid=53167)
+
+
+### ferencváros tc – tottenham (N/A, Thu, 3 Oct 2024 08:50:00 -0700)
+
+- **Preview: Ferencvaros vs. Tottenham Hotspur - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spurs/europa-league/preview/preview-ferencvaros-vs-spurs-prediction-team-news-lineups_554396.html)
+- **Ange explains Sergio Reguilon inclusion as three Spurs players don’t travel 
+for Ferencvaros**: [Link](https://theboyhotspur.com/ange-postecoglou-explains-sergio-reguilon-inclusion-tottenham-hotspur/)
+- **Postecoglou on Son's fitness, 'versatile' Gray and a personal bond with 
+Puskas**: [Link](https://sports.yahoo.com/postecoglou-sons-fitness-versatile-gray-171249569.html)
+
+
 ### michael rider (N/A, Thu, 3 Oct 2024 05:10:00 -0700)
 
 - **Hedi Slimane departs creative director role at Celine**: [Link](https://www.luxurydaily.com/hedi-slimane-departs-creative-director-role-at-celine/)
