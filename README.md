@@ -1,3 +1,11 @@
+### foot maroc (N/A, Thu, 3 Oct 2024 15:40:00 -0700)
+
+- **Qualification CAN 2025 : les mauvaises nouvelles s'accumulent pour les 
+Cœlacanthes**: [Link](https://la1ere.francetvinfo.fr/reunion/qualification-can-2025-les-mauvaises-nouvelles-s-accumulent-pour-les-c-lacanthes-1526540.html)
+- **CAN 2025 (Q) - Tunisie : Hannibal Mejbri de retour en sélection ?**: [Link](https://sportnewsafrica.com/breve/can-2025-q-tunisie-hannibal-mejbri-de-retour-en-selection/)
+- **[EN] : Elias Achouri exclu de la liste de l’équipe nationale ? -**: [Link](https://tunisie-foot.com/2024/10/01/en-elias-achouri-exclu-de-la-liste-de-lequipe-nationale/)
+
+
 ### eminem (N/A, Thu, 3 Oct 2024 14:50:00 -0700)
 
 - **Eminem Reveals He Will Become a Grandpa in Emotional Video for ‘Temporary’**: [Link](https://variety.com/2024/music/news/eminem-hailie-jade-grandpa-temporary-music-video-1236167484/)
