@@ -1,3 +1,11 @@
+### fiorentina – the new saints (N/A, Thu, 3 Oct 2024 12:40:00 -0700)
+
+- **Dafydd vs Goliath: How a tiny Welsh club (based in England) reached the 
+European big time - The Athletic**: [Link](https://www.nytimes.com/athletic/5812163/2024/10/03/tns-fiorentina-conference-league/)
+- **TNS fans feeling welcome in Florence ahead of European match**: [Link](https://www.bbc.co.uk/news/articles/ckg9kzvp3jxo)
+- **Welsh club makes history ahead of game against top Italian team**: [Link](https://www.itv.com/watch/news/welsh-club-makes-history-ahead-of-game-against-top-italian-team/xf3mmy1)
+
+
 ### chelsea vs gent (N/A, Thu, 3 Oct 2024 12:20:00 -0700)
 
 - **Palmer replacement, Nkunku decision as Maresca makes 11 changes - Predicted 
