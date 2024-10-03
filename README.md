@@ -1,3 +1,18 @@
+### michael rider (N/A, Thu, 3 Oct 2024 05:10:00 -0700)
+
+- **Hedi Slimane departs creative director role at Celine**: [Link](https://www.luxurydaily.com/hedi-slimane-departs-creative-director-role-at-celine/)
+- **Hedi Slimane Makes His Case for Chanel**: [Link](https://www.thecut.com/article/cathy-horyn-fashion-review-pfw24-louis-vuitton-miu-miu-chanel.html)
+- **Who is Michael Rider, Celine’s new creative director?**: [Link](https://www.russh.com/who-is-michael-rider-celine-creative-director/)
+
+
+### رضا بلحيان (N/A, Thu, 3 Oct 2024 03:40:00 -0700)
+
+- **مفاجآت في لائحة وليد للمبارتين المقبلتين**: [Link](https://www.hespress.com/%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D9%81%D9%8A-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D9%88%D9%84%D9%8A%D8%AF-%D9%84%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%AA%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84-1441229.html)
+- **الركراكي: لن أرضخ لضغوطات اللاعبين المحليين**: [Link](https://m.kooora.com/?n=1358890&o=ncma)
+- **لأسباب مختلفة.. 8 غيابات بارزة عن قائمة المنتخب المغربي في مواجهتي أفريقيا 
+الوسطى**: [Link](https://ar.hibapress.com/details-557887.html)
+
+
 ### ancelotti (N/A, Thu, 3 Oct 2024 08:10:00 -0700)
 
 - **Real Madrid, dirigenza alla ricerca di nuove figure per lo staff di 
