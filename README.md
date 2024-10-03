@@ -1,3 +1,11 @@
+### senegal (N/A, Thu, 3 Oct 2024 09:10:00 -0700)
+
+- **Committee for Inland Fisheries and Aquaculture of Africa holds 20th session 
+to discuss sector's future**: [Link](https://www.fao.org/africa/news-stories/news-detail/committee-for-inland-fisheries-and-aquaculture-of-africa-holds-20th-session-to-discuss-sector's-future/en)
+- **Senegal looks to aquaculture as fish stocks dwindle**: [Link](https://www.bryantimes.com/news/senegal-looks-to-aquaculture-as-fish-stocks-dwindle/article_8fd7a3f6-2c8b-501d-90c8-34c37755992c.html)
+- **Senegal looks to aquaculture as fish stocks dwindle**: [Link](https://www.caledonianrecord.com/news/national/senegal-looks-to-aquaculture-as-fish-stocks-dwindle/article_3ed86bff-9b49-50d8-8e82-62bb43e77964.html)
+
+
 ### real sociedad – anderlecht (N/A, Thu, 3 Oct 2024 08:50:00 -0700)
 
 - **Por qué Takefusa Kubo, Martín Zubimendi y Mikel Oyarzabal no juegan el Real 
