@@ -1,3 +1,12 @@
+### man united (N/A, Thu, 3 Oct 2024 12:50:00 -0700)
+
+- **Man Utd vs Porto: Diogo Costa - penalty expert who idolises Iker Casillas 
+and Vitor Baia**: [Link](https://www.bbc.com/sport/football/articles/cvgd4gje2xwo)
+- **Diogo Costa: The Penalty-Saving Sensation Prepares for Manchester United 
+Clash**: [Link](https://www.footboom1.com/en/news/football/1885829-diogo-costa-the-penalty-saving-sensation-prepares-for-manchester-united-clash)
+- **Porto 3-3 Manchester United: Harry Maguire heads home injury-time leveller**: [Link](https://www.bbc.com/sport/football/live/cgk7regkdn6t)
+
+
 ### elfsborg – roma (N/A, Thu, 3 Oct 2024 14:20:00 -0700)
 
 - **Romatränaren om svenska kollegan: ”Jag gillar vad Oscar gör”**: [Link](https://www.dn.se/sport/romatranaren-om-svenska-kollegan-jag-gillar-vad-oscar-gor/)
