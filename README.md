@@ -1,3 +1,12 @@
+### porto fc (N/A, Thu, 3 Oct 2024 13:40:00 -0700)
+
+- **Bruno Fernandes sees red AGAIN! Man United captain's season goes from bad 
+to worse in Porto defeat... but was**: [Link](https://www.dailymail.co.uk/sport/football/article-13922545/Bruno-Fernandes-Man-United-sent-Porto.html)
+- **Video: Chelsea target stuns Man United as Red Devils blow two goal lead**: [Link](https://www.caughtoffside.com/2024/10/03/samu-omorodion-goal-man-united/)
+- **Man United fans think Erik ten Hag decision proves he is 'waiting to be 
+sacked'**: [Link](https://www.sportbible.com/football/football-news/man-utd/man-united-porto-europa-league-358492-20241003)
+
+
 ### fenerbahçe (N/A, Thu, 3 Oct 2024 14:00:00 -0700)
 
 - **Fenerbahçe, 1 puana razı oldu**: [Link](https://www.kibrispostasi.com/c41-SPOR/n535610-fenerbahce-1-puana-razi-oldu)
