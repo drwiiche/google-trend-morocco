@@ -1,3 +1,12 @@
+### man utd (N/A, Thu, 3 Oct 2024 13:30:00 -0700)
+
+- **Man Utd squad’s true feelings on Ten Hag revealed as controversial manager 
+hire ruled out**: [Link](https://www.teamtalk.com/manchester-united/ten-hag-sack-squads-true-feelings-revealed-controversial-manager-hire-ruled-out)
+- **Ten Hag sack? Man Utd 'keen on' ex-Juventus manager amid internal 'concern' 
+with two factors 'decisive'**: [Link](https://www.football365.com/news/ten-hag-sack-man-utd-keen-ex-juventus-manager-concern-two-decisive-factors)
+- **Your views and reaction as Man Utd stick with Ten Hag after defeat to Spurs**: [Link](https://www.bbc.com/sport/football/live/cgk731k6j2nt)
+
+
 ### neymar barça (N/A, Thu, 3 Oct 2024 13:10:00 -0700)
 
 - **Man City's Erling Haaland 'to play key role' in Neymar transfer as 
