@@ -1,3 +1,10 @@
+### هاشم صفي الدين (N/A, Thu, 3 Oct 2024 14:30:00 -0700)
+
+- **أضخم قصف على ضاحية بيروت وحديث إسرائيلي عن استهداف هاشم صفي الدين**: [Link](https://www.aljazeera.net/news/2024/10/4/%D8%B9%D8%A7%D8%AC%D9%84-%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%B9%D9%86-%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%A3%D9%85%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%B6%D8%B1%D8%A8%D8%A9-%D8%B9%D9%84%D9%89)
+- **مصادر: خليفة نصر الله هو المستهدف بغارات إسرائيل على الضاحية**: [Link](https://www.skynewsarabia.com/middle-east/1745950-%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%A8%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84-%D8%A7%D9%84%D8%B6%D8%A7%D8%AD%D9%8A%D8%A9)
+- **حسن نصر الله: كيف يتم اختيار خليفة الأمين العام لحزب الله؟**: [Link](https://www.bbc.com/arabic/articles/cew1y94dxjvo)
+
+
 ### foot maroc (N/A, Thu, 3 Oct 2024 15:40:00 -0700)
 
 - **Qualification CAN 2025 : les mauvaises nouvelles s'accumulent pour les 
