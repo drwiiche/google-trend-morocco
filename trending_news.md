@@ -1,3 +1,24 @@
+### real sociedad vs anderlecht (N/A, Thu, 3 Oct 2024 10:30:00 -0700)
+
+- **Preview: Real Sociedad vs. Anderlecht - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/europa-league/preview/preview-real-sociedad-vs-anderlecht-prediction-team-news-lineups_554405.html)
+- **Imanol: "We owe the fans"**: [Link](https://www.footboom1.com/en/news/football/1886072-imanol-we-owe-the-fans)
+- **How to watch Real Sociedad vs. Anderlecht online for free**: [Link](https://mashable.com/article/real-sociedad-anderlecht-europa-league-2024-live-stream-for-free)
+
+
+### ligue europa (N/A, Thu, 3 Oct 2024 10:30:00 -0700)
+
+- **Lazio-Nice: une équipe romaine aux airs de Ligue 1 et à l’accent marseillais**: [Link](https://rmcsport.bfmtv.com/football/europa-league/lazio-nice-une-equipe-romaine-aux-airs-de-ligue-1-et-a-l-accent-marseillais_AV-202410030421.html)
+- **La minute Rouge et Noir : tous les chemins mènent à la revanche**: [Link](https://www.radiofrance.fr/francebleu/podcasts/la-minute-rouge-et-noir/la-minute-rouge-et-noir-tous-les-chemins-menent-a-la-revanche-6691673)
+- **À Rome et Glasgow, Nice et Lyon en voyage indécis**: [Link](https://fr.besoccer.com/info/a-rome-et-glasgow-nice-et-lyon-en-voyage-indecis-1332969)
+
+
+### مغاربة العالم (N/A, Thu, 3 Oct 2024 10:30:00 -0700)
+
+- **تحويلات الجالية تناهز 81 مليار درهم**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%A7%D9%84%D9%8A%D8%A9-%D8%AA%D9%86%D8%A7%D9%87%D8%B2-81-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D8%B1%D9%87%D9%85-1440136.html)
+- **مغاربة الخارج يَرفعون من قيمة تحويلاتهم المالية**: [Link](https://www.tanja7.com/143143/)
+- **المغرب.. ارتفاع تحويلات المغتربين بنسبة 3.9 بالمئة حتى أغسطس**: [Link](https://www.raialyoum.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%AA%D8%B1%D8%A8%D9%8A%D9%86-%D8%A8%D9%86%D8%B3%D8%A8/)
+
+
 ### europa league (N/A, Thu, 3 Oct 2024 10:00:00 -0700)
 
 - **Preview: Porto vs. Manchester United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-utd/europa-league/preview/preview-porto-vs-man-utd-prediction-team-news-lineups_554381.html)
