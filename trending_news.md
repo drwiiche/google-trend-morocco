@@ -1,3 +1,48 @@
+### بورتو ضد مان يونايتد (N/A, Thu, 3 Oct 2024 11:20:00 -0700)
+
+- **تشكيلة مانشستر يونايتد الرسمية لمواجهة بورتو في الدوري الأوروبي**: [Link](https://hihi2.com/2024/10/03/p2874206.html)
+- **هويلوند يقود هجوم مانشستر يونايتد أمام بورتو**: [Link](http://www.kooora.com/default.aspx?n=1358993&pg=1&o=n)
+- **مواجهة مرتقبة بين بورتو ومانشستر يونايتد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A8%D9%88%D8%B1%D8%AA%D9%88-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-2024-10-03)
+
+
+### ath. bilbao – az (N/A, Thu, 3 Oct 2024 11:20:00 -0700)
+
+- **Preview: Athletic Bilbao vs. AZ Alkmaar - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/europa-league/preview/preview-athletic-bilbao-vs-az-prediction-team-news-lineups_554389.html)
+- **Valverde Confirms Sancet and Herrera are Fit to Face AZ Alkmaar**: [Link](https://www.footboom1.com/en/news/football/1884370-valverde-confirms-sancet-and-herrera-are-fit-to-face-az-alkmaar)
+- **Athletic Club vs AZ Alkmaar LIVE Score Updates, Stream Info and How to 
+Watch UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2024/10/03/1198714-athletic-vs-az-live-score-updates-stream-info-and-how-to-watch-uefa-europa-league-match.html)
+
+
+### galatasaray (N/A, Thu, 3 Oct 2024 11:20:00 -0700)
+
+- **TRT 1 CANLI İZLE KESİNTİSİZ HD | 📺 Rigas Skola (RFS) - Galatasaray maçı 
+TRT 1 canlı yayın izle ekranı**: [Link](https://www.milliyet.com.tr/galeri/trt-1-canli-izle-kesintisiz-hd-rigas-skola-rfs-galatasaray-maci-trt-1-canli-yayin-izle-ekrani-7202356)
+- **F.Bahçe ve Beşiktaş'ın Avrupa 11'leri...**: [Link](https://www.sozcu.com.tr/f-bahce-ve-besiktas-in-avrupa-11-leri-p89293)
+- **Beşiktaş ve Fenerbahçe'nin ilk 11'leri açıklandı**: [Link](https://www.gazeteduvar.com.tr/besiktas-ve-fenerbahcenin-ilk-11leri-aciklandi-haber-1725048)
+
+
+### porto – manchester united (N/A, Thu, 3 Oct 2024 11:10:00 -0700)
+
+- **Predicted Man United XI vs FC Porto: Marcus Rashford, Kobbie Mainoo and 
+Joshua Zirkzee rested**: [Link](https://thepeoplesperson.com/2024/10/03/predicted-man-united-xi-vs-fc-porto-marcus-rashford-kobbie-mainoo-and-joshua-zirkzee-rested-286123/)
+- **Paddy Power Sign-Up Offer: Get £50 In Free Bets When You Bet £10 On Porto 
+vs Man Utd**: [Link](https://www.101greatgoals.com/free-bets/paddy-power-sign-up-offer-get-50-in-free-bets-when-you-bet-10-on-porto-vs-man-utd/)
+- **Fresh injury confirmed, 2 big changes | Expected Man Utd line-up (4-2-3-1) 
+vs Porto with Mainoo & Hojlund decisions made**: [Link](https://onefootball.com/en/news/fresh-injury-confirmed-2-big-changes-expected-man-utd-line-up-4-2-3-1-vs-porto-with-mainoo-hojlund-decisions-made-40119371)
+
+
+### chelsea – la gantoise (N/A, Thu, 3 Oct 2024 11:10:00 -0700)
+
+
+
+
+### real sociedad (N/A, Thu, 3 Oct 2024 11:10:00 -0700)
+
+- **Preview: Real Sociedad vs. Anderlecht - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/europa-league/preview/preview-real-sociedad-vs-anderlecht-prediction-team-news-lineups_554405.html)
+- **Imanol: "We owe the fans"**: [Link](https://www.footboom1.com/en/news/football/1886072-imanol-we-owe-the-fans)
+- **How to watch Real Sociedad vs. Anderlecht online for free**: [Link](https://mashable.com/article/real-sociedad-anderlecht-europa-league-2024-live-stream-for-free)
+
+
 ### olympiakos – braga (N/A, Thu, 3 Oct 2024 11:00:00 -0700)
 
 - **UEFA Europa League Olympiakos Piraeus 0 Sporting Braga 0 29 minutes played. 
