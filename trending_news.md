@@ -1,3 +1,10 @@
+### وزارة الأوقاف والشؤون الإسلامية (N/A, Thu, 3 Oct 2024 13:00:00 -0700)
+
+- **✅ وزارة الأوقاف: السبت 5 أكتوبر فاتح شهر ربيع الآخر 1446 هـ**: [Link](https://tanja24.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-5-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D9%81%D8%A7%D8%AA%D8%AD-%D8%B4%D9%87%D8%B1-%D8%B1/)
+- **متى يتم الإعلان الشهر القمري ؟ة**: [Link](https://www.tuniscope.com/ar/article/391447/arabe/actu-arabe/helel-594017)
+- **الإفتاء تعلن الجمعة غرة ربيع الآخر 1446**: [Link](https://alhorianews.com/%D8%A7%D9%84%D8%A5%D9%81%D8%AA%D8%A7%D8%A1-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%BA%D8%B1%D8%A9-%D8%B1%D8%A8%D9%8A%D8%B9-%D8%A7%D9%84%D8%A2%D8%AE%D8%B1-1446/)
+
+
 ### man utd (N/A, Thu, 3 Oct 2024 13:30:00 -0700)
 
 - **Man Utd squad’s true feelings on Ten Hag revealed as controversial manager 
