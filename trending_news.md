@@ -1,3 +1,12 @@
+### frmf (N/A, Thu, 3 Oct 2024 03:20:00 -0700)
+
+- **Lekjaa: Des "détails" ont empêché les Lions de Futsal d'aller plus loin 
+dans la compétition**: [Link](https://fr.hespress.com/388652-lekjaa-des-details-ont-empeche-les-lions-de-futsal-daller-plus-loin-dans-la-competition.html)
+- **Le Maroc soumettra sa candidature pour la prochaine Coupe du monde de 
+futsal (Lekjaa)**: [Link](https://medias24.com/2024/10/02/le-maroc-soumettra-sa-candidature-pour-la-prochaine-coupe-du-monde-de-futsal-lekjaa/)
+- **Le Joga Bonito était marocain, le réalisme brésilien**: [Link](https://sport.le360.ma/football/futsal/le-joga-bonito-etait-marocain-le-realisme-bresilien_VVFIIGYMD5ECLOEW4X7ITKF2SA/)
+
+
 ### قيامة عثمان (N/A, Wed, 2 Oct 2024 16:20:00 -0700)
 
 - **اوعي تفوتك الحلقة الاولي .. تردد قناة الفجر الجزائرية الجديد 2024 El Fajr 
