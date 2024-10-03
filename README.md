@@ -1,3 +1,17 @@
+### fenerbahçe (N/A, Thu, 3 Oct 2024 14:00:00 -0700)
+
+- **Fenerbahçe, 1 puana razı oldu**: [Link](https://www.kibrispostasi.com/c41-SPOR/n535610-fenerbahce-1-puana-razi-oldu)
+- **Becao - Djiku ilk kez**: [Link](https://www.ntvspor.net/futbol/becao-djiku-ilk-kez-66fef1b1ebf721042f68fa79)
+- **Jose Mourinho'dan 4 değişiklik**: [Link](https://www.baskagazete.com/haber/jose-mourinho-dan-4-degisiklik-137852.html)
+
+
+### تشيلسي ضد غينت (N/A, Thu, 3 Oct 2024 12:20:00 -0700)
+
+- **رابيد فيينا يسقط باشاك شهير في عقر داره بدوري المؤتمر**: [Link](https://m.kooora.com/?n=1358720&pg=1&o=n)
+- **تشيلسي يخوض دوري المؤتمر الاوروبي بأغلى تشكيلة في المسابقة**: [Link](https://hihi2.com/2024/10/02/p2872991.html)
+- **تشلسي ينشد النقاط الثلاث من بوابة غينت**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%8A%D9%86%D8%B4%D8%AF-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB-%D9%85%D9%86-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D8%BA%D9%8A%D9%86%D8%AA-2024-10-03)
+
+
 ### وزارة الأوقاف والشؤون الإسلامية (N/A, Thu, 3 Oct 2024 13:00:00 -0700)
 
 - **✅ وزارة الأوقاف: السبت 5 أكتوبر فاتح شهر ربيع الآخر 1446 هـ**: [Link](https://tanja24.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-5-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D9%81%D8%A7%D8%AA%D8%AD-%D8%B4%D9%87%D8%B1-%D8%B1/)
