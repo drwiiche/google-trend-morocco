@@ -1,3 +1,19 @@
+### manchester united (N/A, Thu, 3 Oct 2024 12:50:00 -0700)
+
+- **Can Erik ten Hag survive again as Manchester United manager? - The Athletic**: [Link](https://www.nytimes.com/athletic/5813363/2024/10/03/erik-ten-hag-jim-ratcliffe-manchester-united/)
+- **Man Utd eye Simone Inzaghi to replace Erik ten Hag as deadline set for 
+INEOS decision**: [Link](https://www.dailystar.co.uk/sport/football/man-utd-inzaghi-ten-hag-33783230)
+- **Sir Jim Ratcliffe to attend Man Utd's trip to Aston Villa as INEOS chief 
+prepares to evaluate Erik ten Hag amid sack rumours**: [Link](https://www.goal.com/en-gb/lists/sir-jim-ratcliffe-attend-man-utd-aston-villa-ineos-chief-evaluate-erik-ten-hag-sack-rumours/blt630eb8cc7fa90286)
+
+
+### ain atlas (N/A, Thu, 3 Oct 2024 12:40:00 -0700)
+
+- **Un lot d’eau minérale naturelle Ain Atlas serait non conforme**: [Link](https://www.leconomiste.com/flash-infos/un-lot-d-eau-minerale-naturelle-ain-atlas-serait-non-conforme)
+- **Non-conformité de l’eau minérale Aïn Atlas : le ministère de la santé lance 
+des mesures de contrôle à Casablanca**: [Link](https://www.barlamane.com/fr/non-conformite-de-leau-minerale-ain-atlas-le-ministere-de-la-sante-lance-des-mesures-de-controle-a-casablanca/)
+
+
 ### fiorentina – the new saints (N/A, Thu, 3 Oct 2024 12:40:00 -0700)
 
 - **Dafydd vs Goliath: How a tiny Welsh club (based in England) reached the 
