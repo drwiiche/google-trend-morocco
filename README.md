@@ -1,3 +1,20 @@
+### wbo (N/A, Thu, 3 Oct 2024 06:30:00 -0700)
+
+- **PMI’s Regie Suganob remains top Filipino contender in WBO light flyweight 
+rankings**: [Link](https://cebudailynews.inquirer.net/598439/pmis-regie-suganob-remains-top-filipino-contender-in-wbo-light-flyweight-rankings)
+- **WBO Welterweight Champion Brian Norman Jr. Out of November 8th Title Defense**: [Link](https://www.si.com/fannation/boxing/wbo-welterweight-champion-brian-norman-jr-out-of-november-8th-title-defense-01j97g0rhrec)
+- **Brian Norman Jnr-Derrieck Cuevas postponed by injury to champion**: [Link](https://www.boxingscene.com/brian-norman-jnr-derrieck-cuevas-postponed-by-injury-champion--186225)
+
+
+### ait boudlal (N/A, Thu, 3 Oct 2024 03:30:00 -0700)
+
+- **Qualifications CAN 2025 : de nouveaux visages pour les matchs 
+Maroc-Centrafrique**: [Link](https://lematin.ma/sports/regragui-devoile-sa-liste-pour-les-matchs-maroc-centrafrique/245368)
+- **Équipe nationale. Cinq nouveaux joueurs convoqués par Walid Regragui face à 
+la République centrafricaine**: [Link](https://medias24.com/2024/10/03/equipe-nationale-cinq-nouveaux-joueurs-convoques-par-walid-regragui-face-a-la-republique-centrafricaine/)
+- **Maroc : la liste de Regragui sans Harit mais avec Sahraoui**: [Link](https://www.footmercato.net/a7850375342500320185-maroc-la-liste-de-regragui-sans-harit-mais-avec-sahraoui)
+
+
 ### lionel messi (N/A, Thu, 3 Oct 2024 05:10:00 -0700)
 
 - **Lionel Messi scores twice as Inter Miami win MLS Supporters' Shield for 
