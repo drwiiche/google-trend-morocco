@@ -1,3 +1,11 @@
+### eminem (N/A, Thu, 3 Oct 2024 14:50:00 -0700)
+
+- **Eminem Reveals He Will Become a Grandpa in Emotional Video for ‘Temporary’**: [Link](https://variety.com/2024/music/news/eminem-hailie-jade-grandpa-temporary-music-video-1236167484/)
+- **Eminem’s Daughter Hailie’s creative pregnancy announcement**: [Link](https://euroweeklynews.com/2024/10/03/eminems-daughter-hailies-creative-pregnancy-announcement/)
+- **Eminem’s Daughter Hailie Jade Is Pregnant, Expecting First Baby With Evan 
+McClintock**: [Link](https://www.eonline.com/videos/2377652803946/eminems-daughter-hailie-jade-is-pregnant-expecting-first-baby-with-evan-mcclintock)
+
+
 ### man united (N/A, Thu, 3 Oct 2024 12:50:00 -0700)
 
 - **Man Utd vs Porto: Diogo Costa - penalty expert who idolises Iker Casillas 
