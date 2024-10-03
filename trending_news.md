@@ -1,3 +1,22 @@
+### al-okhdood football club – al ittihad (N/A, Thu, 3 Oct 2024 10:40:00 -0700)
+
+- **Preview: Al Okhdood vs. Al Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-akhdoud/preview/preview-al-okhdood-vs-al-ittihad-prediction-team-news-lineups_554423.html)
+- **Al Okhdood vs Al Ittihad Prediction, lineups, betting tips & odds**: [Link](https://khelnow.com/football/world-football-al-okhdood-vs-al-ittihad-prediction-202410)
+
+
+### neymar (N/A, Thu, 3 Oct 2024 10:40:00 -0700)
+
+- **Neymar Jr., ¿la 'bomba' para el nuevo Spotify Camp Nou?**: [Link](https://www.sport.es/es/noticias/es/noticias/opinion/neymar-jr-bomba-nuevo-spotify-108729262)
+- **Mejor que Vinícius Júnior y Endrick: el fichaje bomba de Deco da un giro de 
+180 grados**: [Link](https://madrid-barcelona.com/fc-barcelona/mejor-que-vinicius-junior-y-endrick-fichaje-bomba-deco-da-giro-180-grados)
+- **Bombazo: Neymar podría regresar al Barcelona en 2025**: [Link](https://www.pasionfutbol.com/fichajes/Bombazo-Neymar-podria-regresar-al-Barcelona-en-2025-20241003-0005.html)
+
+
+### الحضارة المصرية (N/A, Thu, 3 Oct 2024 10:40:00 -0700)
+
+
+
+
 ### real sociedad vs anderlecht (N/A, Thu, 3 Oct 2024 10:30:00 -0700)
 
 - **Preview: Real Sociedad vs. Anderlecht - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/europa-league/preview/preview-real-sociedad-vs-anderlecht-prediction-team-news-lineups_554405.html)
