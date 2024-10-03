@@ -1,3 +1,10 @@
+### inter miami (N/A, Wed, 2 Oct 2024 17:10:00 -0700)
+
+- **Lionel Messi swears at referee after Inter Miami's draw with Charlotte**: [Link](https://www.sportsmole.co.uk/football/inter-miami/news/mean-spirited-son-of-a-b-messi-launches-furious-rant-after-charlotte-draw_554200.html)
+- **Goal: J. Ebobisse vs. DAL, 83'**: [Link](https://www.mlssoccer.com/video/goal-j-ebobisse-vs-dal-83)
+- **Messi's celebration never seen before: he again chose a Marvel character to celebrate his goal in Inter Miami's tie**: [Link](https://aurora-israel.co.il/en/Messi%27s-celebration-never-seen-before-He-chose-a-Marvel-character-again-to-celebrate-his-goal-in-Inter-Miami%27s-tie/)
+
+
 ### champions (N/A, Wed, 2 Oct 2024 14:20:00 -0700)
 
 - **Celtic: 'Brendan Rodgers' naive side fall into familiar European trap'**: [Link](https://www.bbc.com/sport/football/articles/cg56eg0gv8lo)
