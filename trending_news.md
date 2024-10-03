@@ -1,3 +1,19 @@
+### elfsborg – roma (N/A, Thu, 3 Oct 2024 14:20:00 -0700)
+
+- **Romatränaren om svenska kollegan: ”Jag gillar vad Oscar gör”**: [Link](https://www.dn.se/sport/romatranaren-om-svenska-kollegan-jag-gillar-vad-oscar-gor/)
+- **Elfsborg – Roma på Disney+**: [Link](https://elfsborg.se/2024/10/03/elfsborg-roma-pa-disney/)
+- **FEM SPANINGAR: "Vilken jätteknall - Elfsborgs bästa insats någonsin?"**: [Link](https://www.fotbollskanalen.se/europa/fem-spaningar-vilken-jatteknall-elfsborgs-basta-insats-nagonsin/)
+
+
+### kylian mbappé (N/A, Thu, 3 Oct 2024 14:20:00 -0700)
+
+- **Deschamps explains why Inter defender Pavard left out of France squad**: [Link](https://football-italia.net/why-pavard-out-france-squad-inter-deschamps/)
+- **Didier Deschamps explains why he has left Real Madrid superstar Kylian 
+Mbappe out of his France squad for Nations League ties**: [Link](https://www.goal.com/en-kw/lists/didier-deschamps-real-madrid-superstar-kylian-mbappe-france-nations-league-ties/blt95f3a236d9be81ed)
+- **France Coach Explains Ex Bayern Munich Star’s Exclusion From Squad: ‘He 
+Doesn’t Play Every Match For Inter Milan’**: [Link](https://onefootball.com/en/news/france-coach-explains-ex-bayern-munich-stars-exclusion-from-squad-he-doesnt-play-every-match-for-inter-milan-40122781)
+
+
 ### porto fc (N/A, Thu, 3 Oct 2024 13:40:00 -0700)
 
 - **Bruno Fernandes sees red AGAIN! Man United captain's season goes from bad 
