@@ -1,3 +1,11 @@
+### michel becker (N/A, Fri, 4 Oct 2024 09:00:00 -0700)
+
+- **Chouette d’or : fini de piaffer !**: [Link](https://www.liberation.fr/societe/chouette-dor-le-tresor-chasse-depuis-31-ans-a-ete-deterre-annonce-lorganisateur-20241003_SE6D45BOKRFEHFMBW3BZ3OQMMQ/)
+- **Combien vaut la "Chouette d’or", déterrée après 31 ans de chasse au trésor?**: [Link](https://www.bfmtv.com/economie/patrimoine/combien-vaut-la-chouette-d-or-deterree-apres-31-ans-de-recherche_AV-202410030849.html)
+- **Ce trésor de 150 000 € a été retrouvé après plus de 30 ans de recherche et 
+le record de l'énigme la plus 'alambiquée' de l'histoire**: [Link](https://www.aquitaineonline.com/actu-news/france/ce-tresor-de-150-000-eur-a-ete-retrouve-apres-plus-de-30-ans-de-recherche-et-le-record-de-lenigme-la-plus-alambiquee-de-lhistoire.html)
+
+
 ### onssa (N/A, Fri, 4 Oct 2024 07:40:00 -0700)
 
 - **Grèves à l’Onssa: La colère des exportateurs**: [Link](https://www.leconomiste.com/article/1126025-greves-l-onssa-la-colere-des-exportateurs)
