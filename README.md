@@ -1,3 +1,19 @@
+### michel blanc (N/A, Fri, 4 Oct 2024 00:00:00 -0700)
+
+- **Michel Blanc est mort**: [Link](https://www.parismatch.com/culture/cinema/michel-blanc-est-mort-242294)
+- **Michel Blanc : l'acteur est décédé a 72 ans**: [Link](https://www.gala.fr/l_actu/news_de_stars/michel-blanc-l-acteur-est-decede-a-72-ans_553183)
+- **Michel Blanc, emblématique membre des Bronzés, est mort à 72 ans**: [Link](https://www.bfmtv.com/people/cinema/michel-blanc-emblematique-membre-des-bronzes-est-mort-a-72-ans_AN-202410040286.html)
+
+
+### حالة الطقس (N/A, Thu, 3 Oct 2024 23:50:00 -0700)
+
+- **استعدوا لمفاجآت جديدة.. الأرصاد تكشف حالة الطقس حتى يوم الاثنين 7 أكتوبر 
+2024**: [Link](https://www.almasryalyoum.com/news/details/3274888)
+- **طقس اليوم.. حار ورطب نهارًا وسحب منخفضة لتلطيف الأجواء**: [Link](https://alhorianews.com/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AD%D8%A7%D8%B1-%D9%88%D8%B1%D8%B7%D8%A8-%D9%86%D9%87%D8%A7%D8%B1%D9%8B%D8%A7-%D9%88%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9/)
+- **عاجل| بيان رسمي من الأرصاد الجوية بشأن حالة الطقس غداً الجمعة: درجات 
+الحرارة تصل 12 ليلاً**: [Link](https://zahraa.mr/3332610/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A8%D9%8A%D8%A7%D9%86-%D8%B1%D8%B3%D9%85%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AD/)
+
+
 ### طقس (N/A, Thu, 3 Oct 2024 23:30:00 -0700)
 
 - **توقعات أحوال الطقس اليوم الخميس**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-2-1441035.html)
