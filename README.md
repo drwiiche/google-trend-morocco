@@ -1,3 +1,10 @@
+### grand mariage (N/A, Fri, 4 Oct 2024 12:00:00 -0700)
+
+- **« Le Plus Grand Mariage du Monde » à Casablanca**: [Link](https://lnt.ma/le-plus-grand-mariage-du-monde-a-casablanca/)
+- **Un mariage marocain géant à Casablanca**: [Link](https://www.bladi.net/mariage-marocain-geant-casablanca,110831.html)
+- **Spectacle : Casablanca abrite « Le Plus Grand Mariage du Monde »**: [Link](https://lematin.ma/culture/spectacle-casablanca-abrite-le-plus-grand-mariage-du-monde/244916)
+
+
 ### مغاربة العالم (N/A, Fri, 4 Oct 2024 11:50:00 -0700)
 
 - **تحويلات الجالية تناهز 81 مليار درهم**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%A7%D9%84%D9%8A%D8%A9-%D8%AA%D9%86%D8%A7%D9%87%D8%B2-81-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D8%B1%D9%87%D9%85-1440136.html)
