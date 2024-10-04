@@ -1,3 +1,17 @@
+### marseille fc (N/A, Fri, 4 Oct 2024 13:50:00 -0700)
+
+- **OM: Amine Harit sur le départ ?**: [Link](https://www.lesiteinfo.com/sport/628798-om-amine-harit-sur-le-depart.html)
+- **Olympique de Marseille: vers un départ d’Amine Harit en Janvier?**: [Link](https://sport.le360.ma/football/ligue-1/olympique-de-marseille-vers-un-depart-damine-harit-en-janvier_2V6AGOC6VRBQRD4GJFRWBAHUWQ/)
+- **OM : "Cette défaite va faire redescendre tout le monde"**: [Link](https://www.lephoceen.fr/infos-om/saison/om-cette-defaite-va-faire-redescendre-tout-le-monde-219472)
+
+
+### الحضارة المصرية (N/A, Fri, 4 Oct 2024 12:10:00 -0700)
+
+- **«رمسيس وذهب الفراعنة» في ألمانيا يستقبل أكثر من 100 ألف زائر**: [Link](https://www.albayan.ae/lifestyle/culture/history/637)
+- **المعارض الأثرية المصرية بالخارج تشهد إقبالا جماهيريا كبيرا**: [Link](https://www.youm7.com/story/2024/10/2/%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%B1%D8%B6-%D8%A7%D9%84%D8%A3%D8%AB%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC-%D8%AA%D8%B4%D9%87%D8%AF-%D8%A5%D9%82%D8%A8%D8%A7%D9%84%D8%A7-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A%D8%A7-%D9%83%D8%A8%D9%8A%D8%B1%D8%A7/6727972)
+- **100 ألف زائر لمعرض «فرعوني» في ألمانيا**: [Link](https://www.emaratalyoum.com/life/four-sides/2024-10-02-1.1886888)
+
+
 ### grand mariage (N/A, Fri, 4 Oct 2024 12:00:00 -0700)
 
 - **« Le Plus Grand Mariage du Monde » à Casablanca**: [Link](https://lnt.ma/le-plus-grand-mariage-du-monde-a-casablanca/)
