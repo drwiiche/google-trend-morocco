@@ -1,3 +1,13 @@
+### messi inter miami (N/A, Fri, 4 Oct 2024 09:10:00 -0700)
+
+- **Inter Miami set to qualify for Club World Cup after Messi lifts Supporters' 
+Shield**: [Link](https://www.givemesport.com/lionel-messi-inter-miami-club-world-cup-qualify/)
+- **Hard Rock Stadium named one of 12 venues for 2025 FIFA Club World Cup. Here 
+are details**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article293199004.html)
+- **Lionel Messi scores another free-kick goal: How many does Cristiano Ronaldo 
+need to tie him?**: [Link](https://bolavip.com/en/soccer/lionel-messi-scores-another-free-kick-goal-how-many-does-cristiano-ronaldo-need-to-tie-him)
+
+
 ### michel becker (N/A, Fri, 4 Oct 2024 09:00:00 -0700)
 
 - **Chouette d’or : fini de piaffer !**: [Link](https://www.liberation.fr/societe/chouette-dor-le-tresor-chasse-depuis-31-ans-a-ete-deterre-annonce-lorganisateur-20241003_SE6D45BOKRFEHFMBW3BZ3OQMMQ/)
