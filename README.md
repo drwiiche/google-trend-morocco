@@ -1,3 +1,18 @@
+### مغاربة العالم (N/A, Fri, 4 Oct 2024 11:50:00 -0700)
+
+- **تحويلات الجالية تناهز 81 مليار درهم**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%A7%D9%84%D9%8A%D8%A9-%D8%AA%D9%86%D8%A7%D9%87%D8%B2-81-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D8%B1%D9%87%D9%85-1440136.html)
+- **المغرب.. ارتفاع تحويلات المغتربين بنسبة 3.9 بالمئة حتى أغسطس**: [Link](https://www.raialyoum.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%AA%D8%B1%D8%A8%D9%8A%D9%86-%D8%A8%D9%86%D8%B3%D8%A8/)
+- **السفر إلى الخارج .. المغاربة أنفقوا 5,5 ملايير درهم في الصيف**: [Link](https://snrtnews.com/article/103937)
+
+
+### the platform 2 (N/A, Fri, 4 Oct 2024 11:00:00 -0700)
+
+- **The Platform 2 review – Netflix dystopian horror sequel falls off**: [Link](https://www.theguardian.com/film/2024/oct/04/the-platform-2-review-netflix-dystopian-horror-sequel-falls-off)
+- **This might be Netflix’s most disturbing movie. Here’s why it’s still so 
+effective**: [Link](https://www.yahoo.com/entertainment/might-netflix-most-disturbing-movie-133044226.html)
+- **The Platform 2 Ending Explained: What Happens To Perempuan?**: [Link](https://screenrant.com/the-platform-2-ending-explained/)
+
+
 ### lionel messi (N/A, Fri, 4 Oct 2024 11:40:00 -0700)
 
 - **Inter Miami set to qualify for Club World Cup after Messi lifts Supporters' 
