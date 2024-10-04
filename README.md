@@ -1,3 +1,17 @@
+### طقس (N/A, Thu, 3 Oct 2024 23:30:00 -0700)
+
+- **توقعات أحوال الطقس اليوم الخميس**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-2-1441035.html)
+- **نشرة إنذارية: زخات رعدية مصحوبة بهبات رياح مرتقبة بعدة مناطق مغربية**: [Link](https://zaiocity.net/2024/10/01/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B5%D8%AD%D9%88%D8%A8%D8%A9-%D8%A8%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1-2/)
+- **طقس الجمعة: توقع زخات رعدية مع كتل ضبابية بهذه المناطق**: [Link](https://ar.le360.ma/societe/CDCVJQCNEZGBZJ3J7W6J7HOUZE/)
+
+
+### medhi benatia (N/A, Thu, 3 Oct 2024 18:10:00 -0700)
+
+- **Marseille blast league’s decision to suspend sporting advisor**: [Link](https://sports.yahoo.com/marseille-blast-league-decision-suspend-111600876.html)
+- **Marseille: Benatia Receives Six-Match Ban**: [Link](https://www.footboom1.com/en/news/football/1886623-marseille-benatia-receives-six-match-ban)
+- **Soccer-Marseille dispute three-match ban for sporting director Benatia**: [Link](https://www.msn.com/en-ae/sports/other/soccer-marseille-dispute-three-match-ban-for-sporting-director-benatia/ar-AA1rDhP8)
+
+
 ### mehdi benatia (N/A, Thu, 3 Oct 2024 17:50:00 -0700)
 
 - **Marseille blast league’s decision to suspend sporting advisor**: [Link](https://sports.yahoo.com/marseille-blast-league-decision-suspend-111600876.html)
