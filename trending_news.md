@@ -1,3 +1,11 @@
+### le carrousel mall rabat (N/A, Fri, 4 Oct 2024 01:20:00 -0700)
+
+- **Rabat: le Mall du Carrousel ouvre ses portes**: [Link](https://ledesk.ma/encontinu/rabat-le-mall-du-carrousel-ouvre-ses-portes/)
+- **Rabat : Inauguration du Mall du Carrousel**: [Link](https://www.lavieeco.com/videos/rabat-inauguration-du-mall-du-carrousel/)
+- **Les émirats arabes unis lancent un gigantesque projet à Rabat: La capitale 
+vient de se doter d'un**: [Link](https://fr.hibapress.com/news-136499.html)
+
+
 ### messi inter miami (N/A, Fri, 4 Oct 2024 09:10:00 -0700)
 
 - **Inter Miami set to qualify for Club World Cup after Messi lifts Supporters' 
