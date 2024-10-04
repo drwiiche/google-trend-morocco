@@ -1,3 +1,11 @@
+### le mall du carrousel (N/A, Fri, 4 Oct 2024 05:40:00 -0700)
+
+- **Rabat: le Mall du Carrousel ouvre ses portes**: [Link](https://ledesk.ma/encontinu/rabat-le-mall-du-carrousel-ouvre-ses-portes/)
+- **Rabat : Inauguration du Mall du Carrousel**: [Link](https://www.lavieeco.com/videos/rabat-inauguration-du-mall-du-carrousel/)
+- **Les émirats arabes unis lancent un gigantesque projet à Rabat: La capitale 
+vient de se doter d'un**: [Link](https://fr.hibapress.com/news-136499.html)
+
+
 ### المندوبية السامية للتخطيط (N/A, Fri, 4 Oct 2024 02:50:00 -0700)
 
 - **الحليمي: جزائريون رفضوا عملية الإحصاء.. والانقراض يهدد العربية والأمازيغية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%84%D9%8A%D9%85%D9%8A-%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D9%88%D9%86-%D8%B1%D9%81%D8%B6%D9%88%D8%A7-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-1441712.html)
