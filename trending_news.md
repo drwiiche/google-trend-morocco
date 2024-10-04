@@ -1,3 +1,13 @@
+### tiktok (N/A, Thu, 3 Oct 2024 18:40:00 -0700)
+
+- **WARRANT: Slain therapist involved in ‘violent physical altercation’ inside 
+TikTok star’s Baton Rouge apartment**: [Link](https://www.wafb.com/2024/10/03/warrant-slain-therapist-involved-violent-physical-altercation-inside-tiktok-stars-baton-rouge-apartment/)
+- **TikTok star 'Mr. Prada' arrested after Baton Rouge therapist found dead in 
+tarp along road**: [Link](https://www.usatoday.com/story/news/nation/2024/10/02/terryon-thomas-mr-prada-arrested-therapist-william-abraham-killed/75478942007/)
+- **TikTok star ‘Mr Prada' arrested in Dallas, accused of bludgeoning therapist 
+to death**: [Link](https://www.nbcdfw.com/news/local/tiktok-star-mr-prada-arrested-dallas-accused-louisiana-murder/3661795/)
+
+
 ### هاشم صفي الدين (N/A, Thu, 3 Oct 2024 14:30:00 -0700)
 
 - **أضخم قصف على ضاحية بيروت وحديث إسرائيلي عن استهداف هاشم صفي الدين**: [Link](https://www.aljazeera.net/news/2024/10/4/%D8%B9%D8%A7%D8%AC%D9%84-%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%B9%D9%86-%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%A3%D9%85%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%B6%D8%B1%D8%A8%D8%A9-%D8%B9%D9%84%D9%89)
