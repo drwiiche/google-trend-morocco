@@ -1,3 +1,10 @@
+### frmf (N/A, Fri, 4 Oct 2024 16:30:00 -0700)
+
+- **Mondial-2024 de futsal: Les Lions de l’Atlas poursuivent leur progression**: [Link](https://menara.ma/fr/article/mondial-2024-de-futsal-les-lions-de-latlas-poursuivent-leur-progression)
+- **Le Maroc soumettra sa candidature pour la prochaine Coupe du monde de futsal (Lekjaa)**: [Link](https://medias24.com/2024/10/02/le-maroc-soumettra-sa-candidature-pour-la-prochaine-coupe-du-monde-de-futsal-lekjaa/)
+- **Le Joga Bonito était marocain, le réalisme brésilien**: [Link](https://sport.le360.ma/football/futsal/le-joga-bonito-etait-marocain-le-realisme-bresilien_VVFIIGYMD5ECLOEW4X7ITKF2SA/)
+
+
 ### la plateforme 2 (N/A, Fri, 4 Oct 2024 16:10:00 -0700)
 
 - **Nouveau sur Netflix : après 4 ans d'attente, la suite d'un des plus gros 
