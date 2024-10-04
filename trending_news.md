@@ -1,3 +1,12 @@
+### pogba (N/A, Fri, 4 Oct 2024 10:30:00 -0700)
+
+- **Paul Pogba has four-year drug ban reduced to 18 months after successful 
+appeal at Court of Arbitration for Sport**: [Link](https://www.skysports.com/football/news/11095/13184314/paul-pogba-has-four-year-drug-ban-reduced-to-18-months-after-successful-appeal-at-court-of-arbitration-for-sport)
+- **Report – Juventus preparing to terminate Pogba’s contract**: [Link](https://www.juvefc.com/report-juventus-preparing-to-terminate-pogbas-contract/)
+- **Paul Pogba's four-year doping ban is REDUCED after appeal - as the former 
+Man United midfielder secures major**: [Link](https://www.dailymail.co.uk/sport/football/article-13898597/Paul-Pogbas-doping-ban-reduced-four-years.html)
+
+
 ### napoli (N/A, Fri, 4 Oct 2024 10:20:00 -0700)
 
 - **Perrone: "Fabregas ha lo stesso Dna di Guardiola. Il Como è in grande 
