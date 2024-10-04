@@ -1,3 +1,29 @@
+### la chouette (N/A, Fri, 4 Oct 2024 15:10:00 -0700)
+
+- **« Ça y est, c’est la fin » : le trésor de la « chouette d’or », trente et 
+un ans de mystère et de péripéties**: [Link](https://www.lemonde.fr/pixels/article/2024/10/04/ca-y-est-c-est-la-fin-le-tresor-de-la-chouette-d-or-trente-et-un-ans-de-mystere-et-de-peripeties_6343842_4408996.html)
+- **Combien vaut la "Chouette d’or", déterrée après 31 ans de chasse au trésor?**: [Link](https://www.bfmtv.com/economie/patrimoine/combien-vaut-la-chouette-d-or-deterree-apres-31-ans-de-recherche_AV-202410030849.html)
+- **Chouette d’or : fini de piaffer !**: [Link](https://www.liberation.fr/societe/chouette-dor-le-tresor-chasse-depuis-31-ans-a-ete-deterre-annonce-lorganisateur-20241003_SE6D45BOKRFEHFMBW3BZ3OQMMQ/)
+
+
+### aurore bergé (N/A, Fri, 4 Oct 2024 14:10:00 -0700)
+
+- **Scandale des crèches privées : des documents démontrent "l'entente" entre 
+Aurore Bergé et la Fédération française des entreprises de crèches**: [Link](https://www.francetvinfo.fr/societe/info-franceinfo-dysfonctionnements-dans-les-creches-privees-des-documents-demontrent-l-entente-entre-aurore-berge-et-la-federation-francaise-des-entreprises-de-creches_6815789.html)
+- **Crèches privées : Victor Castanet rend publics des documents compromettant 
+Aurore Bergé après sa plainte pour «diffamation**: [Link](https://www.liberation.fr/societe/familles/creches-privees-victor-castanet-rend-publics-des-documents-compromettants-apres-la-plainte-pour-diffamation-daurore-berge-20241003_UWOODRZYX5COPKGD75V4CIJJ34/)
+- **Le mode de financement des crèches à nouveau sur la sellette**: [Link](https://www.lagazettedescommunes.com/948791/le-mode-de-financement-des-creches-a-nouveau-sur-la-sellette/)
+
+
+### lassana diarra (N/A, Fri, 4 Oct 2024 12:20:00 -0700)
+
+- **Lassana Diarra: Fifa transfer rules break EU law - top court rules**: [Link](https://www.bbc.com/sport/football/articles/cjwdydnl3w0o)
+- **Football: "The Diarra Ruling is the Extension of the Bosman Ruling," 
+Explains Thierry Granturco, Lawyer and Sports Law Specialist**: [Link](https://www.footboom1.com/en/news/football/1891716-football-the-diarra-ruling-is-the-extension-of-the-bosman-ruling-explains-thierry-granturco-lawyer-and-sports-law-specialist)
+- **Ex-Chelsea & Real Madrid midfielder Lassana Diarra wins court case against 
+FIFA in ruling that challenges player contract rules**: [Link](https://www.goal.com/en/lists/chelsea-real-madrid-star-lassana-diarra-court-case-against-fifa/blta27a1a9d32e49f60)
+
+
 ### اليوم العالمي للمعلم (N/A, Fri, 4 Oct 2024 14:50:00 -0700)
 
 - **المعلم.. تنمية الوطن**: [Link](https://elaph.com/Web/NewsPapers/2024/10/1549828.html)
