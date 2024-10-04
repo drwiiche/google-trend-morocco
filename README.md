@@ -1,3 +1,10 @@
+### mehdi benatia (N/A, Thu, 3 Oct 2024 17:50:00 -0700)
+
+- **Marseille blast league’s decision to suspend sporting advisor**: [Link](https://sports.yahoo.com/marseille-blast-league-decision-suspend-111600876.html)
+- **Marseille: Benatia Receives Six-Match Ban**: [Link](https://www.footboom1.com/en/news/football/1886623-marseille-benatia-receives-six-match-ban)
+- **Soccer-Marseille dispute three-match ban for sporting director Benatia**: [Link](https://www.msn.com/en-ae/sports/other/soccer-marseille-dispute-three-match-ban-for-sporting-director-benatia/ar-AA1rDhP8)
+
+
 ### tiktok (N/A, Thu, 3 Oct 2024 18:40:00 -0700)
 
 - **WARRANT: Slain therapist involved in ‘violent physical altercation’ inside 
