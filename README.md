@@ -1,3 +1,10 @@
+### المندوبية السامية للتخطيط (N/A, Fri, 4 Oct 2024 02:50:00 -0700)
+
+- **الحليمي: جزائريون رفضوا عملية الإحصاء.. والانقراض يهدد العربية والأمازيغية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%84%D9%8A%D9%85%D9%8A-%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D9%88%D9%86-%D8%B1%D9%81%D8%B6%D9%88%D8%A7-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-1441712.html)
+- **مندوبية التخطيط تكشف عن نسبة الأسر الرافضة للمشاركة في الإحصاء ومبرراتها**: [Link](https://www.akhbarona.com/economy/393204.html)
+- **بالأرقام.. تكلفة إحصاء الفرد الواحد بالمغرب لم تتجاوز العشرة دراهم**: [Link](https://ar.hibapress.com/details-558202.html)
+
+
 ### walid regragui (N/A, Fri, 4 Oct 2024 01:10:00 -0700)
 
 - **Ouverture des accréditations pour les matchs de l’équipe nationale contre 
