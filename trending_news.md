@@ -1,3 +1,21 @@
+### marseille – angers (N/A, Fri, 4 Oct 2024 11:00:00 -0700)
+
+- **L’OM se lâche totalement contre Angers !**: [Link](https://www.footmercato.net/a4089553238186689999-lom-se-lache-totalement-contre-angers)
+- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier et Jérôme Rothen du 
+4 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-et-jerome-rothen-du-4-octobre-ligue-1_AN-202410040570.html)
+- **Ligue 1. Angers-SCO : quels leviers pour rebondir à Marseille ?**: [Link](https://www.ouest-france.fr/sport/football/angers-sco/ligue-1-angers-sco-quels-leviers-pour-rebondir-a-marseille-a6697c8a-8194-11ef-8b46-245c814f5bd8)
+
+
+### joker 2 (N/A, Fri, 4 Oct 2024 10:40:00 -0700)
+
+- **'Joker: Folie à Deux' Makes $7M In Thursday Night Previews, Receives 36% 
+Rotten Tomatoes Audience Score**: [Link](https://deadline.com/2024/10/box-office-joker-folie-a-deux-1236107521/)
+- **Hear Nick Cave Sing Cheery 'What the World Needs Now Is Love' Cover for 
+'Joker 2' Soundtrack**: [Link](https://www.rollingstone.com/music/music-news/nick-cave-joker-what-the-world-needs-now-is-love-cover-1235125163/)
+- **Lady Gaga says she had to ‘do away’ with her usual onstage ‘bravado’ for 
+her take on Harley Quinn in ‘Joker’ sequel**: [Link](https://www.cnn.com/2024/10/04/entertainment/lady-gaga-bravado-harley-quinn-joker-sequel/index.html)
+
+
 ### pogba (N/A, Fri, 4 Oct 2024 10:30:00 -0700)
 
 - **Paul Pogba has four-year drug ban reduced to 18 months after successful 
