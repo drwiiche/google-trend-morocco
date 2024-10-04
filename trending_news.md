@@ -1,3 +1,10 @@
+### habous (N/A, Thu, 3 Oct 2024 21:50:00 -0700)
+
+- **Le 1er Rabii II 1446 correspondra au samedi 05 octobre**: [Link](https://fr.hespress.com/389089-le-1er-rabii-ii-1446-correspondra-au-samedi-05-octobre.html)
+- **Le 1er Rabii II de l’an 1446 de l’Hégire correspond au samedi 5 octobre**: [Link](https://www.h24info.ma/le-1er-rabii-ii-de-lan-1446-de-lhegire-correspond-au-samedi-5-octobre/)
+- **1er rabi’ ath-thani 1446, quatrième mois du calendrier musulman**: [Link](https://www.al-kanz.org/2024/10/04/1er-rabi-ath-thani-1446/)
+
+
 ### boxeuse algérienne imane khelif (N/A, Thu, 3 Oct 2024 23:40:00 -0700)
 
 - **La visite d’Imane Khelif aux camps des réfugiés sahraouis, à Tindouf, 
