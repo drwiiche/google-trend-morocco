@@ -1,3 +1,19 @@
+### هاشم البسطاوي (N/A, Fri, 4 Oct 2024 14:10:00 -0700)
+
+- **هاشم بسطاوي: "ملي تزاديت وأنا كنحارب اللوبيا".. وفيصل عزيزي: "لن أرد عليك 
+احتراما لوالدتك"**: [Link](https://ar.hibapress.com/details-557464.html)
+- **هاشم البسطاوي وفيصل عزيزي…"عداوة بعد محبة!"**: [Link](https://aljarida24.ma/p/actualites/288978/)
+- **عزيزي يثير الجدل بتدوينة حول طبيعة علاقته بالبسطاوي |**: [Link](https://www.al9anat.com/%D8%B9%D8%B2%D9%8A%D8%B2%D9%8A-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A8%D8%AA%D8%AF%D9%88%D9%8A%D9%86%D8%A9-%D8%AD%D9%88%D9%84-%D8%B7%D8%A8%D9%8A%D8%B9%D8%A9-%D8%B9%D9%84%D8%A7/)
+
+
+### مؤمن زكريا (N/A, Fri, 4 Oct 2024 10:30:00 -0700)
+
+- **مفاجأة جديدة في واقعة “سحر” مؤمن زكريا**: [Link](https://www.raialyoum.com/%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%B3%D8%AD%D8%B1-%D9%85%D8%A4%D9%85%D9%86-%D8%B2%D9%83%D8%B1%D9%8A%D8%A7/)
+- **كنت همزة وصل.. نص اعترافات «زيكا» المتهم الرابع في واقعة سحر مؤمن زكريا 
+(تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3272863)
+- **مصر.. القبض على "عامل مدافن" بعد تورطه في قضية سحر اللاعب مؤمن زكريا**: [Link](https://ar.hibapress.com/details-556733.html)
+
+
 ### marseille fc (N/A, Fri, 4 Oct 2024 13:50:00 -0700)
 
 - **OM: Amine Harit sur le départ ?**: [Link](https://www.lesiteinfo.com/sport/628798-om-amine-harit-sur-le-depart.html)
