@@ -1,3 +1,12 @@
+### la plateforme 2 (N/A, Fri, 4 Oct 2024 16:10:00 -0700)
+
+- **Nouveau sur Netflix : après 4 ans d'attente, la suite d'un des plus gros 
+succès de la plateforme est enfin là !**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000106155.html)
+- **Ce thriller espagnol est l'un des plus attendus de l'année sur Netflix, il 
+sort enfin et devrait cartonner**: [Link](https://www.linternaute.com/cinema/magazine/6296733-article-la-plateforme-2/)
+- **La fosse de la déception par Illusory**: [Link](https://www.senscritique.com/film/la_plateforme_2/critique/311109772)
+
+
 ### الفنانة بلقيس (N/A, Fri, 4 Oct 2024 15:40:00 -0700)
 
 - **السعيدية ريسورت .. وصول اولى متسابقي سباق "Med Max Occitanie-Saidia Resorts"**: [Link](https://ar.hibapress.com/details-558266.html)
