@@ -1,3 +1,20 @@
+### napoli (N/A, Fri, 4 Oct 2024 10:20:00 -0700)
+
+- **Perrone: "Fabregas ha lo stesso Dna di Guardiola. Il Como è in grande 
+crescita"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Como/04-10-2024/como-perrone-fabregas-ha-lo-stesso-dna-di-guardiola.shtml)
+- **Scott McTominay subito in gol nel Napoli: età, ruolo, stipendo, la famiglia 
+(innamorata della città) e chi è l**: [Link](https://www.ilmessaggero.it/sport/schede/scott_mctominay_chi_e_centrocampista_napoli_gol_como_eta_ruolo_fidanzata_famiglia_carriera_fantacalcio-8394879.html)
+- **"'Ca nisciuno è fesso": Conte allontana in napoletano le pressioni Scudetto**: [Link](https://www.milannews.it/news/ca-nisciuno-e-fesso-conte-allontana-in-napoletano-le-pressioni-scudetto-551350)
+
+
+### alcaraz (N/A, Fri, 4 Oct 2024 06:50:00 -0700)
+
+- **El lujo asiático de Alcaraz en Shangái que le ahorra 2 horas y 78 
+kilómetros de coche cada día**: [Link](https://www.marca.com/tenis/masters-1000-shangai/2024/10/04/66feb757268e3e97758b4588.html)
+- **Masters 1000 de Shanghai 2024 hoy: partidos y cómo está el cuadro**: [Link](https://es-us.noticias.yahoo.com/deportes/masters-1000-shanghai-2024-partidos-030100126.html)
+- **Maratón en China**: [Link](https://as.com/tenis/maraton-en-china-n/)
+
+
 ### le carrousel mall rabat (N/A, Fri, 4 Oct 2024 01:20:00 -0700)
 
 - **Rabat: le Mall du Carrousel ouvre ses portes**: [Link](https://ledesk.ma/encontinu/rabat-le-mall-du-carrousel-ouvre-ses-portes/)
