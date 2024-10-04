@@ -1,3 +1,11 @@
+### le carrousel mall (N/A, Fri, 4 Oct 2024 02:10:00 -0700)
+
+- **Rabat: le Mall du Carrousel ouvre ses portes**: [Link](https://ledesk.ma/encontinu/rabat-le-mall-du-carrousel-ouvre-ses-portes/)
+- **Rabat : Inauguration du Mall du Carrousel**: [Link](https://www.lavieeco.com/videos/rabat-inauguration-du-mall-du-carrousel/)
+- **Les émirats arabes unis lancent un gigantesque projet à Rabat: La capitale 
+vient de se doter d'un**: [Link](https://fr.hibapress.com/news-136499.html)
+
+
 ### le mall du carrousel (N/A, Fri, 4 Oct 2024 05:40:00 -0700)
 
 - **Rabat: le Mall du Carrousel ouvre ses portes**: [Link](https://ledesk.ma/encontinu/rabat-le-mall-du-carrousel-ouvre-ses-portes/)
