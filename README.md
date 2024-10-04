@@ -1,3 +1,16 @@
+### الفنانة بلقيس (N/A, Fri, 4 Oct 2024 15:40:00 -0700)
+
+- **السعيدية ريسورت .. وصول اولى متسابقي سباق "Med Max Occitanie-Saidia Resorts"**: [Link](https://ar.hibapress.com/details-558266.html)
+- **وزارة الصحة تنتظر الاطلاع على حيثيات إدانة متلاعبين بصفقات عمومية**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D8%AA%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D8%A7%D8%B7%D9%84%D8%A7%D8%B9-%D8%B9%D9%84%D9%89-%D8%AD%D9%8A%D8%AB%D9%8A%D8%A7%D8%AA-%D8%A5-1439104.html)
+- **أدينوا بـ 105 سنوات سجنا و630 مليون غرامات.. تفاصيل الحكم على “عصابة 
+الصفقات” بوزارة الصحة**: [Link](https://al3omk.com/1005470.html)
+
+
+### accords de peche maroc ue (N/A, Fri, 4 Oct 2024 13:10:00 -0700)
+
+
+
+
 ### la chouette (N/A, Fri, 4 Oct 2024 15:10:00 -0700)
 
 - **« Ça y est, c’est la fin » : le trésor de la « chouette d’or », trente et 
