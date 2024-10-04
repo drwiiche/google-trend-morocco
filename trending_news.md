@@ -1,3 +1,10 @@
+### onssa (N/A, Fri, 4 Oct 2024 07:40:00 -0700)
+
+- **Grèves à l’Onssa: La colère des exportateurs**: [Link](https://www.leconomiste.com/article/1126025-greves-l-onssa-la-colere-des-exportateurs)
+- **Comment la grève du personnel de l’ONSSA affecte les exportations marocaines**: [Link](https://mobile.telquel.ma/2024/10/01/comment-la-greve-du-personnel-de-lonssa-affecte-les-exportations-marocaines_1896155)
+- **Grèves à l’Onssa: La colère des exportateurs**: [Link](https://www.leconomiste.com/article/1126025-greves-l-onssa-la-colere-des-exportateurs)
+
+
 ### هاشم صفي الدين حزب الله (N/A, Thu, 3 Oct 2024 19:40:00 -0700)
 
 - **إسرائيل تستهدف قياديا في "حزب الله‎"**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%82%D9%8A%D8%A7%D8%AF%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-1441844.html)
