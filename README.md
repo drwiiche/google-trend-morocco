@@ -1,3 +1,11 @@
+### meteo (N/A, Thu, 3 Oct 2024 23:30:00 -0700)
+
+- **Looking For Fall Temperatures In October? Not Yet.**: [Link](https://weather.com/forecast/regional/video/summer-heat-is-more-of-a-trick-than-a-treat-to-start-october)
+- **October Temperature Forecast Trends Even Warmer From Southwest To Midwest**: [Link](https://www.msn.com/en-us/weather/topstories/october-temperature-forecast-trends-even-warmer-from-southwest-to-midwest/ar-AA1rmKFF)
+- **Where has the “Ottobrata” gone? The good and the bad of the weather, the 
+unpredictability**: [Link](https://www.meteogiornale.it/eng/2024/09/weather-news/where-has-the-ottobrata-gone-the-good-and-the-bad-of-the-weather-the-unpredictability/)
+
+
 ### le carrousel mall (N/A, Fri, 4 Oct 2024 02:10:00 -0700)
 
 - **Rabat: le Mall du Carrousel ouvre ses portes**: [Link](https://ledesk.ma/encontinu/rabat-le-mall-du-carrousel-ouvre-ses-portes/)
