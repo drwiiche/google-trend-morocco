@@ -1,3 +1,17 @@
+### lionel messi (N/A, Fri, 4 Oct 2024 11:40:00 -0700)
+
+- **Inter Miami set to qualify for Club World Cup after Messi lifts Supporters' 
+Shield**: [Link](https://www.givemesport.com/lionel-messi-inter-miami-club-world-cup-qualify/)
+- **Lionel Messi scores another free-kick goal: How many does Cristiano Ronaldo 
+need to tie him?**: [Link](https://bolavip.com/en/soccer/lionel-messi-scores-another-free-kick-goal-how-many-does-cristiano-ronaldo-need-to-tie-him)
+- **David Beckham celebrates Messi's record-breaking moment in emotional message**: [Link](https://www.marca.com/en/football/mls/2024/10/04/66ff1208ca4741a66e8b4578.html)
+
+
+### hankook maroc (N/A, Fri, 4 Oct 2024 10:50:00 -0700)
+
+
+
+
 ### marseille – angers (N/A, Fri, 4 Oct 2024 11:00:00 -0700)
 
 - **L’OM se lâche totalement contre Angers !**: [Link](https://www.footmercato.net/a4089553238186689999-lom-se-lache-totalement-contre-angers)
