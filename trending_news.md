@@ -1,3 +1,12 @@
+### walid regragui (N/A, Fri, 4 Oct 2024 01:10:00 -0700)
+
+- **Ouverture des accréditations pour les matchs de l’équipe nationale contre 
+la République centrafricaine**: [Link](https://frmf.ma/fr/%D8%B7%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D8%B9%D8%AA%D9%85%D8%A7%D8%AF-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7-2/)
+- **Eliminatoires CAN 2025 : La liste de Walid Regragui marquée par l'arrivée 
+d'Osame Sahraoui**: [Link](https://fr.hespress.com/389053-eliminatoires-can-2025-la-liste-de-walid-regragui-marquee-par-larrivee-dosame-sahraoui.html)
+- **Matchs Maroc-Centrafrique : absence de Ziyech et Diaz pour blessure**: [Link](https://mobile.telquel.ma/instant-t/2024/10/03/matchs-face-la-republique-centrafricaine-absence-de-ziyech-et-diaz-pour-blessure_1896701/)
+
+
 ### habous (N/A, Thu, 3 Oct 2024 21:50:00 -0700)
 
 - **Le 1er Rabii II 1446 correspondra au samedi 05 octobre**: [Link](https://fr.hespress.com/389089-le-1er-rabii-ii-1446-correspondra-au-samedi-05-octobre.html)
