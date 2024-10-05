@@ -1,3 +1,12 @@
+### crystal palace – liverpool (N/A, Sat, 5 Oct 2024 03:40:00 -0700)
+
+- **Crystal Palace boss Oliver Glasner says he's noticed something 'fantastic' 
+about Liverpool's players this season**: [Link](https://www.rousingthekop.com/2024/10/05/crystal-palace-boss-oliver-glasner-says-hes-noticed-something-fantastic-about-liverpools-players-this-season/)
+- **Crystal Palace vs. Liverpool: Betting Odds, Predictions, and Live Streaming 
+Guide for Premier League Showdown**: [Link](https://www.footboom1.com/en/news/football/1892709-crystal-palace-vs-liverpool-betting-odds-predictions-and-live-streaming-guide-for-premier-league-showdown)
+- **Crystal Palace vs Liverpool Stats: Premier League Live**: [Link](https://theanalyst.com/2024/10/crystal-palace-vs-liverpool-stats-premier-league-live)
+
+
 ### carlos alcaraz (N/A, Sat, 5 Oct 2024 01:30:00 -0700)
 
 - **Alcaraz arrasa a Shang en su debut en Shanghái**: [Link](https://www.marca.com/tenis/masters-1000-shangai/2024/10/05/6700d7a1268e3e06778b4574.html)
