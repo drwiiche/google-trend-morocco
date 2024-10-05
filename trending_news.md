@@ -1,3 +1,10 @@
+### liverpool (N/A, Sat, 5 Oct 2024 05:00:00 -0700)
+
+- **Arne Slot asks for quiet in answering Liverpool’s away-day ‘$10m question’**: [Link](https://www.theguardian.com/football/2024/oct/04/arne-slot-asks-for-quiet-in-answering-liverpools-away-day-10m-question)
+- **Under the radar Liverpool seek to cement top spot**: [Link](https://supersport.com/hereforher/news/52c32c2e-1e02-4146-b185-be4f9a04e375/under-the-radar-liverpool-seek-to-cement-top-spot)
+- **Liverpool’s Slot: Too early to be excited about topping table**: [Link](https://sportstar.thehindu.com/football/liverpool-arne-slot-too-early-excited-about-topping-premier-league-table-vs-crystal-palace-news/article68718022.ece)
+
+
 ### قرعة أمريكا 2025 (N/A, Sat, 5 Oct 2024 04:40:00 -0700)
 
 - **اللوتري الأميركي 2025.. أبرز 35 سؤالا عن قرعة الهجرة العشوائية**: [Link](https://www.aljazeera.net/lifestyle/2024/10/3/%D8%A7%D9%84%D9%84%D9%88%D8%AA%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%A3%D8%A8%D8%B1%D8%B2-35-%D8%B3%D8%A4%D8%A7%D9%84%D8%A7-%D8%AD%D9%88%D9%84-%D9%82%D8%B1%D8%B9%D8%A9)
