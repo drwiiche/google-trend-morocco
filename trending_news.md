@@ -1,3 +1,18 @@
+### اليوم العالمي للمدرس (N/A, Sat, 5 Oct 2024 00:10:00 -0700)
+
+- **وزير التربية يؤكد الإنتهاء من معالجة ملف المتعاقدين**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1322435/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AA%D9%87%D8%A7%D8%A1-%D9%85%D9%86-%D9%85%D8%B9%D8%A7%D9%84%D8%AC%D8%A9-%D9%85%D9%84%D9%81-%D8%A7%D9%84%D9%85%D8%AA%D8%B9%D8%A7%D9%82%D8%AF%D9%8A%D9%86)
+- **في اليوم العالمي للمدرس .. نافذة على التعليم الأولي**: [Link](https://assafir24.ma/182849/)
+- **وزير التربية يجدّد الالتزام بتحسين ظروف أداء المدرّسين لمهامهم**: [Link](https://m.jawharafm.net/ar/article/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%8A%D8%AC%D8%AF%D9%91%D8%AF-%D8%A7%D9%84%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85-%D8%A8%D8%AA%D8%AD%D8%B3%D9%8A%D9%86-%D8%B8%D8%B1%D9%88%D9%81-%D8%A3%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D9%91%D8%B3%D9%8A%D9%86-%D9%84%D9%85%D9%87%D8%A7%D9%85%D9%87%D9%85/105/264760?fbclid=IwY2xjawFtVS5leHRuA2FlbQIxMQABHYpOVMSt8huiTl6oSgNHYXaMQhP9jMrP5FpyqlsF2Hn5CWYHCJPi90S8-g_aem_Enl-orwUUwURDE4LxDG8LA)
+
+
+### musiala (N/A, Fri, 4 Oct 2024 21:40:00 -0700)
+
+- **Bayern Munich suffer Jamal Musiala injury blow**: [Link](https://bayernstrikes.com/posts/bayern-munich-suffer-jamal-musiala-injury-blow-01j9bf43pfhr)
+- **Hoeneß on Leweling's national team selection: "We've been working hard with 
+him."**: [Link](https://bulinews.com/hoeness-leweling-national-team-selection-been-working-hard-him)
+- **Musiala to miss Nations League matches, Leweling gets first call-up**: [Link](https://sports.yahoo.com/musiala-miss-nations-league-matches-120318653.html)
+
+
 ### film la plateforme 2 (N/A, Fri, 4 Oct 2024 23:50:00 -0700)
 
 - **Nouveau sur Netflix : après 4 ans d'attente, la suite d'un des plus gros 
