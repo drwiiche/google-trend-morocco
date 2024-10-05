@@ -1,3 +1,13 @@
+### diddy (N/A, Fri, 4 Oct 2024 19:40:00 -0700)
+
+- **Diddy tells Justin Bieber not to talk about 'things he does with big 
+brother Puff' in resurfaced clip**: [Link](https://www.foxnews.com/entertainment/diddy-tells-justin-bieber-not-talk-about-things-he-does-big-brother-puff-resurfaced-clip)
+- **P Diddy faces sexual misconduct claims from 120 new accusers including 25 
+who were children at the time, lawyer says**: [Link](https://news.sky.com/story/p-diddy-faces-sexual-misconduct-claims-from-120-new-accusers-lawyer-says-13226172)
+- **Justin Bieber gets Diddy 'warning' in old video: Keep quiet ‘about the 
+things you did with…'**: [Link](https://www.hindustantimes.com/entertainment/music/justin-bieber-gets-warned-by-diddy-in-old-video-keep-quiet-about-the-things-you-did-with-101728088646735.html)
+
+
 ### p diddy (N/A, Fri, 4 Oct 2024 17:50:00 -0700)
 
 - **7 questions — and zero conspiracy theories — about the allegations against 
