@@ -1,3 +1,20 @@
+### manchester city – fulham (N/A, Sat, 5 Oct 2024 06:10:00 -0700)
+
+- **City make five changes for Fulham visit**: [Link](https://www.mancity.com/news/mens/manchester-city-v-fulham-team-news-formation-and-tactics-63863727)
+- **Major Premier League claim, Nathan Ake fitness update, Kyle Walker praise - 
+Every word from part two of Pep Guardiola’s pre-Fulham press conference**: [Link](https://cityxtra.co.uk/18986/major-premier-league-claim-nathan-ake-fitness-update-kyle-walker-praise-every-word-from-part-two-of-pep-guardiolas-pre-fulham-press-conference/)
+- **Troy Deeney has now backed £225k-a-week Man City player to shine against 
+Fulham**: [Link](https://www.manchestercity.news/troy-deeney-has-now-backed-225k-a-week-man-city-player-to-shine-against-fulham/)
+
+
+### arsenal – southampton (N/A, Sat, 5 Oct 2024 06:10:00 -0700)
+
+- **Team news: Sterling handed first Gunners PL start**: [Link](https://www.arsenal.com/news/team-news-sterling-handed-first-gunners-pl-start)
+- **Mikel Arteta on Timber and White's fitness, Odegaard's injury, Partey's 
+form and Ramsdale's return**: [Link](https://charleswatts.football/news/arsenal-press-conference-team-injury-news-mikel-arteta/)
+- **How to watch Man City vs Fulham on US TV and live streaming**: [Link](https://worldsoccertalk.com/watch-on-us-tv/man-city-vs-fulham-on-us-tv-and-live-streaming/)
+
+
 ### leverkusen – holstein kiel (N/A, Sat, 5 Oct 2024 06:00:00 -0700)
 
 - **(k+) Lokalmatadoren auf beiden Bänken - Eine Paarung, die alle Gefilde kennt**: [Link](https://www.kicker.de/lokalmatadoren-auf-beiden-baenken-eine-paarung-die-alle-gefilde-kennt-1055761/artikel)
