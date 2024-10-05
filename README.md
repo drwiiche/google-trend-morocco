@@ -1,3 +1,12 @@
+### p diddy (N/A, Fri, 4 Oct 2024 17:50:00 -0700)
+
+- **7 questions — and zero conspiracy theories — about the allegations against 
+Sean “Diddy” Combs**: [Link](https://www.vox.com/culture/373997/sean-combs-diddy-puffy-cassie-freak-offs-conspiracy-beiber)
+- **Another 120 alleged victims of rapper Sean 'Diddy' Combs come forward**: [Link](https://www.abc.net.au/news/2024-10-02/sean-diddy-combs-facing-more-sex-crime-allegations/104420578)
+- **Wendy Williams breaks silence on Diddy sex trafficking investigation - 
+years after she was criticized for spea**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-13908099/wendy-williams-breaks-silence-Diddy-sex-trafficking-arrest.html)
+
+
 ### frmf (N/A, Fri, 4 Oct 2024 16:30:00 -0700)
 
 - **Mondial-2024 de futsal: Les Lions de l’Atlas poursuivent leur progression**: [Link](https://menara.ma/fr/article/mondial-2024-de-futsal-les-lions-de-latlas-poursuivent-leur-progression)
