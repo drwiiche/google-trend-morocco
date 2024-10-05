@@ -1,3 +1,13 @@
+### ufc 307 (N/A, Sat, 5 Oct 2024 14:30:00 -0700)
+
+- **Khalil Rountree’s coach compares Alex Pereira fight to Gokhan Saki 
+knockout: ‘He’s going to shock a lot of people’**: [Link](https://www.mmafighting.com/2024/10/5/24261554/khalil-rountree-coach-compares-alex-pereira-gokhan-saki-knockout-hes-going-to-shock-a-lot-of-people)
+- **UFC 307 odds, predictions, time, Salt Lake City fight card: Pereira vs. 
+Rountree picks by proven MMA expert**: [Link](https://www.cbssports.com/mma/news/ufc-307-odds-predictions-time-salt-lake-city-fight-card-pereira-vs-rountree-picks-by-proven-mma-expert/)
+- **UFC 307 Payouts: How Much Are Raquel Pennington and Julianna Pena Making? 
+Estimated Salaries and Purse for Co-Main Stars**: [Link](https://www.essentiallysports.com/ufc-mma-news-ufc-307-payouts-how-much-are-raquel-pennington-and-julianna-pena-making-estimated-salaries-and-purse-for-co-main-stars/)
+
+
 ### naïma lamcharki (N/A, Sat, 5 Oct 2024 14:20:00 -0700)
 
 
