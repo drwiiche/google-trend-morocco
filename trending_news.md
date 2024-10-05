@@ -1,3 +1,11 @@
+### espanyol – majorque (N/A, Sat, 5 Oct 2024 04:10:00 -0700)
+
+- **Espanyol vs. Mallorca (Oct 5, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704749)
+- **Real Mallorca going for fourth straight win**: [Link](https://www.majorcadailybulletin.com/sport/real-mallorca/2024/10/04/127963/real-mallorca-going-for-fourth-straight-win-liga.html)
+- **Espanyol vs Mallorca Prediction, 10/5/2024 La Liga Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/espanyol-vs-mallorca-prediction-10-5-2024-la-liga-soccer-pick-tips-and-odds.html)
+
+
 ### crystal palace – liverpool (N/A, Sat, 5 Oct 2024 03:40:00 -0700)
 
 - **Crystal Palace boss Oliver Glasner says he's noticed something 'fantastic' 
