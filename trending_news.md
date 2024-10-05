@@ -1,3 +1,20 @@
+### كريستال بالاس ضد ليفربول (N/A, Sat, 5 Oct 2024 04:30:00 -0700)
+
+- **ليفربول يخشى مفاجآت كريستال بالاس.. وآرسنال يستدرج ساوثهامبتون**: [Link](https://www.kooora.com/?n=1359053)
+- **سجل مبهر لـ محمد صلاح مع ليفربول أمام كريستال بالاس**: [Link](https://hihi2.com/2024/10/05/p2875970.html)
+- **صلاح يطمح لمواصلة التوهج مع ليفربول.. ومهمة خطرة لمانشستر سيتي بالدوري 
+الإنكليزي**: [Link](https://www.alquds.co.uk/%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%B7%D9%85%D8%AD-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D9%88%D9%87%D8%AC-%D9%85%D8%B9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%85/)
+
+
+### novak djokovic (N/A, Sat, 5 Oct 2024 04:30:00 -0700)
+
+- **Novak Djokovic already has his first opponent in Shanghai**: [Link](https://www.puntodebreak.com/en/2024/10/04/novak-djokovic-already-has-his-first-opponent-in-shanghai)
+- **Michelsen vs. Djokovic Prediction at the Rolex Shanghai Masters – Saturday, 
+October 5**: [Link](https://www.bleachernation.com/picks/2024/10/04/michelsen-vs-djokovic-prediction-at-the-rolex-shanghai-masters-saturday-october-5/)
+- **How to Watch Alex Michelsen vs. Novak Djokovic at the 2024 Rolex Shanghai 
+Masters: Live Stream, TV Channel**: [Link](https://ftw.usatoday.com/article/how-to-watch-alex-michelsen-vs-novak-djokovic-at-the-2024-rolex-shanghai-masters-live-stream-tv-channel)
+
+
 ### espanyol – majorque (N/A, Sat, 5 Oct 2024 04:10:00 -0700)
 
 - **Espanyol vs. Mallorca (Oct 5, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704749)
