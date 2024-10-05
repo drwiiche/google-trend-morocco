@@ -1,3 +1,11 @@
+### الوداد (N/A, Sat, 5 Oct 2024 13:40:00 -0700)
+
+- **تشكيلة الوداد أمام الحسنية.. حضور أساسي لحركاس وموباريك ونيانغ يقود الهجوم 
+رفقة الشادلي وناسي**: [Link](https://m.elbotola.com/article/2024-10-05-18-05-308.html)
+- **مفاجآت عديدة في قائمة موكوينا للإطاحة بحسنية أكادير**: [Link](https://ar.sport.le360.ma/football/botola/UDUZ2RMBHBGIPGEV6HIE5LNQ2A/)
+- **"وينرز": قرارات "الويكلو" تستهدف نادي الوداد وتناقضها يطرح علامات استفهام**: [Link](https://ar.telquel.ma/%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D9%8A%D9%83%D9%84%D9%88-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%88/)
+
+
 ### monaco fc (N/A, Sat, 5 Oct 2024 13:30:00 -0700)
 
 - **Saturday's Ligue 1 predictions including Rennes vs. Monaco**: [Link](https://www.sportsmole.co.uk/football/saint-etienne/ligue-1-predictions/feature/saturdays-ligue-1-predictions-including-rennes-vs-monaco_554650.html)
