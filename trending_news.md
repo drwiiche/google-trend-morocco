@@ -1,3 +1,28 @@
+### arsenal (N/A, Sat, 5 Oct 2024 08:20:00 -0700)
+
+- **Arsenal v Southampton, Manchester City v Fulham and more: football 
+clockwatch – live**: [Link](https://www.theguardian.com/football/live/2024/oct/05/arsenal-southampton-manchester-city-fulham-premier-league-clockwatch-live)
+- **Premier League LIVE: Crystal Palace v Liverpool & seven other games - 
+score, radio & text updates**: [Link](https://www.bbc.com/sport/football/live/cy76dplpd2vt?page=3)
+- **Cameron Archer stuns Arsenal to give Southampton 1-0 lead**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/cameron-archer-stuns-arsenal-to-give-southampton-1-0-lead)
+
+
+### manchester city (N/A, Sat, 5 Oct 2024 08:20:00 -0700)
+
+- **Man City make Premier League request amid Arsenal title race**: [Link](https://www.football.london/arsenal-fc/news/man-city-make-premier-league-30077643)
+- **Premier League said no to Man City and Chelsea’s fixture relief plea, says 
+Guardiola**: [Link](https://pune.news/sports/premier-league-said-no-to-man-city-and-chelseas-fixture-relief-plea-says-guardiola-244780/)
+- **Guardiola: EPL denied Man City's request to delay start of season**: [Link](https://thescore.com/eng_fed/news/3091405)
+
+
+### city (N/A, Sat, 5 Oct 2024 08:10:00 -0700)
+
+- **This Italian city is nicknamed 'the Florence of the South'**: [Link](https://www.nationalgeographic.com/travel/article/why-lecce-italy-is-florence-of-the-south)
+- **Cities of the Future: Building with Innovation and Sustainability**: [Link](https://www.archdaily.com/1020810/cities-of-the-future-building-with-innovation-and-sustainability)
+- **Disabled Palestinians are facing horrors piled upon horrors. I think of 
+their suffering every day**: [Link](https://www.theguardian.com/commentisfree/2024/oct/04/disabled-palestinians-horrors-bombing-medications)
+
+
 ### النصر ضد العروبة (N/A, Sat, 5 Oct 2024 08:10:00 -0700)
 
 - **عودة بروزوفيتش تتصدر تشكيل النصر أمام العروبة**: [Link](https://www.kooora.com/?n=1359335)
