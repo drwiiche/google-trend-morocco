@@ -1,3 +1,11 @@
+### atalanta – genoa (N/A, Sat, 5 Oct 2024 09:30:00 -0700)
+
+- **Atalanta, infortunio per Kossounou: non ci sarà contro il Genoa**: [Link](https://www.fantacalcio.it/news/calcio-italia/05_10_2024/atalanta-infortunio-per-kossounou-non-ci-sara-contro-il-genoa-467156)
+- **Formazione dei tifosi in rete – Altro che cambio in porta. E de Roon meglio 
+in mediana**: [Link](https://www.calcioatalanta.it/2024/10/05/formazione-dei-tifosi-in-rete-altro-che-cambio-in-porta-e-de-roon-meglio-in-mediana/)
+- **Prandelli: “Gudmundsson? Non da programma, Gilardino giustamente arrabbiato”**: [Link](https://www.violanews.com/stampa/prandelli-gudmundsson-non-da-programma-gilardino-giustamente-arrabbiato/)
+
+
 ### lille – toulouse (N/A, Sat, 5 Oct 2024 09:20:00 -0700)
 
 - **PRONOS PARIS RMC Les paris sur Lille – Toulouse du 5 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-les-paris-sur-lille-toulouse-du-5-octobre-ligue-1_AN-202410040614.html)
