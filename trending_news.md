@@ -1,3 +1,19 @@
+### toronto – inter miami (N/A, Sat, 5 Oct 2024 12:20:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Visits Toronto FC in Final 2024 Regular 
+Season Road Match**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-visits-toronto-fc-in-final-2024-regular-season-road-match)
+- **Toronto FC's Absences for Their Final MLS 2024 Match**: [Link](https://torontoreds.com/posts/toronto-fc-s-absences-for-their-final-mls-2024-match-01j9ezsxpff3)
+- **Toronto FC's regular season winds down with both Italian stars missing in 
+action**: [Link](https://www.rmoutlook.com/national-sports/toronto-fcs-regular-season-winds-down-with-both-italian-stars-missing-in-action-9616869)
+
+
+### psv eindhoven – sparta rotterdam (N/A, Sat, 5 Oct 2024 12:20:00 -0700)
+
+- **Preview: PSV Eindhoven vs. Sparta Rotterdam - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/preview-psv-vs-sparta-prediction-team-news-lineups_554619.html)
+- **Visitor information | All information for the meeting with Sparta Rotterdam**: [Link](https://www.psv.nl/en/media/artikel/bezoekersinformatie-alle-informatie-voor-het-treffen-met-sparta-rotterdam)
+- **PSV vs Sparta Rotterdam Prediction, Lineups & Odds**: [Link](https://www.sportsgambler.com/betting-tips/football/psv-vs-sparta-rotterdam-prediction-lineups-odds-2024-10-05/)
+
+
 ### villarreal (N/A, Sat, 5 Oct 2024 12:10:00 -0700)
 
 - **Real Madrid - Villarreal en directo | LaLiga EA Sports en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/r-madrid-villarreal/2024/10/05/01_0101_20241005_186_449-directo.html)
