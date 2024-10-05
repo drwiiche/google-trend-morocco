@@ -1,3 +1,20 @@
+### getafe – osasuna (N/A, Sat, 5 Oct 2024 06:30:00 -0700)
+
+- **Bretones, novedad de Osasuna; el Getafe repite once**: [Link](https://www.infobae.com/espana/agencias/2024/10/05/bretones-novedad-de-osasuna-el-getafe-repite-once/)
+- **Vicente Moreno: “Nuestra gente se sintió orgullosa del equipo ante el 
+Barcelona y ahora tenemos que intentarlo ante el Getafe”**: [Link](https://pamplonaactual.com/pamplona-actual-osasuna/308272/vicente-moreno-nuestra-gente-se-sintio-orgullosa-del-equipo-ante-el-barcelona-y-ahora-tenemos-que-intentarlo-ante-el-getafe/)
+- **Alineaciones Getafe - Osasuna: Alineación posible de Getafe y Osasuna en el 
+partido de hoy de LaLIga EA Sports**: [Link](https://www.estadiodeportivo.com/futbol/primera-division/alineaciones-getafe-osasuna-alineacion-posible-getafe-osasuna-partido-hoy-laliga-sports-20241005-466450.html)
+
+
+### leicester – bournemouth (N/A, Sat, 5 Oct 2024 06:30:00 -0700)
+
+- **Bournemouth boss sends William Saliba warning to his centre-backs ahead of 
+Leicester City clash**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/bournemouth-boss-sends-william-saliba-9606190)
+- **Saturday Football Tips: Shots and fouls stand out at 7/1**: [Link](https://onefootball.com/en/news/saturday-football-tips-shots-and-fouls-stand-out-at-71-40129097)
+- **Team news in as Cherries visit Leicester in the Premier League**: [Link](https://www.bournemouthecho.co.uk/sport/24632318.live-updates-afc-bournemouth-visit-leicester-city/)
+
+
 ### manchester city – fulham (N/A, Sat, 5 Oct 2024 06:10:00 -0700)
 
 - **City make five changes for Fulham visit**: [Link](https://www.mancity.com/news/mens/manchester-city-v-fulham-team-news-formation-and-tactics-63863727)
