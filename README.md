@@ -1,3 +1,18 @@
+### las palmas – celta vigo (N/A, Sat, 5 Oct 2024 09:00:00 -0700)
+
+- **Preview: Las Palmas vs. Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/las-palmas/preview/preview-las-palmas-vs-celta-vigo-prediction-team-news-lineups_554585.html)
+- **Football Bet of the Day: Back a goals fiesta in Spain**: [Link](https://onefootball.com/en/news/football-bet-of-the-day-back-a-goals-fiesta-in-spain-40129351)
+- **Las Palmas vs. Celta Vigo Prediction, Odds, La Liga Picks [10/5/2024]**: [Link](https://www.dimers.com/news/las-palmas-vs-celta-vigo-prediction-la-liga-ac-october-5-2024)
+
+
+### al nassr (N/A, Sat, 5 Oct 2024 09:00:00 -0700)
+
+- **Cristiano Ronaldo urges Al-Nassr to make millionaire bid for this player**: [Link](https://www.mundodeportivo.com/us/en/20241005/703543/cristiano-ronaldo-urges-nassr-to-make-millionaire-bid-for-this-player.html)
+- **Transfer: Ronaldo desperate to play with De Bruyne next year**: [Link](https://dailypost.ng/2024/10/05/transfer-ronaldo-desperate-to-play-with-de-bruyne-next-year/)
+- **Cristiano Ronaldo 'pushing for mega £365m Premier League deal' after 
+pleading with bosses**: [Link](https://www.express.co.uk/sport/football/1957675/cristiano-ronaldo-Al-Nassr-Kevin-de-Bruyne)
+
+
 ### al-nassr vs al-orobah (N/A, Sat, 5 Oct 2024 08:40:00 -0700)
 
 - **Preview: Al-Nassr vs. Al Orubah - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/preview-al-nassr-vs-al-orubah-prediction-team-news-lineups_554565.html)
