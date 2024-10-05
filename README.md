@@ -1,3 +1,26 @@
+### الريال ضد فياريال (N/A, Sat, 5 Oct 2024 11:00:00 -0700)
+
+- **مبابي أساسيًا أمام فياريال.. ورودريجو بديلًا**: [Link](https://www.kooora.com/?n=1359387)
+- **الرسم التكتيكي لـ ريال مدريد أمام فياريال**: [Link](https://hihi2.com/2024/10/05/p2876791.html)
+- **ريال مدريد وفياريال.. «الألم الأخير» في «البرنابيو»!**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4519925/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF---%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA--%D8%A7%D9%84%D8%A3%D9%84%D9%85-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1--%D9%81%D9%8A--%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88)
+
+
+### real madrid – villarreal (N/A, Sat, 5 Oct 2024 10:50:00 -0700)
+
+- **Matchday 9: 5 October 2024**: [Link](https://www.managingmadrid.com/2024/10/5/24262676/matchday-9-5-october-2024)
+- **LaLiga: Real Madrid vs Villarreal – Preview, prediction, tips, offers and 
+odds**: [Link](https://www.101greatgoals.com/betting-tips/la-liga-odds/laliga-real-madrid-vs-villarreal-preview-prediction-tips-offers-odds/)
+- **La Liga Soccer Livestream: How to Watch Real Madrid vs. Villareal From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-real-madrid-vs-villareal-from-anywhere/)
+
+
+### الأهلي ضد الهلال (N/A, Sat, 5 Oct 2024 10:50:00 -0700)
+
+- **قراء كووورة يتوقعون الفائز في كلاسيكو الأهلي والهلال**: [Link](https://www.kooora.com/?n=1359295)
+- **شاهد تشكيلة الأهلي الرسمية في الكلاسيكو**: [Link](https://hihi2.com/2024/10/05/p2876685.html)
+- **موعد مباراة الأهلي ضد الهلال في الدوري السعودي والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/10/5/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-2)
+
+
 ### al-ahli saudi – al-hilal (N/A, Sat, 5 Oct 2024 10:10:00 -0700)
 
 - **How to watch today's Al-Ahli vs Al-Hilal Saudi Pro League game: Live 
