@@ -1,3 +1,26 @@
+### brentford – wolves (N/A, Sat, 5 Oct 2024 07:00:00 -0700)
+
+- **Injury update: Wissa, Nørgaard and Henry**: [Link](https://www.brentfordfc.com/en/news/article/first-team-rico-henry-christian-norgaard-yoane-wissa-brentford-injury-update-fantasy-premier-league-fpl-04-10-2024)
+- **Gary O’Neil has to make two bold changes to Wolves lineup to help Matheus 
+Cunha**: [Link](https://www.molineux.news/opinion/gary-oneil-has-to-make-two-bold-changes-to-wolves-lineup-to-help-matheus-cunha/)
+- **Brentford v Wolves preview: Wolves have the players to compete**: [Link](https://www.shropshirestar.com/sport/football/wolverhampton-wanderers-fc/2024/10/04/brentford-v-wolves-preview-wolves-have-the-players-to-compete/)
+
+
+### ليفركوزن ضد هولشتاين كيل (N/A, Sat, 5 Oct 2024 07:00:00 -0700)
+
+- **البوندسليجا يحتفي بمئوية ألونسو**: [Link](https://m.kooora.com/?n=1359251&o=n)
+- **تشابي الونسو يحتفي بمباراته المائة مع ليفركوزن في نفس تاريخ تعيينه مدربا 
+للفريق**: [Link](https://hihi2.com/2024/10/04/p2874452.html)
+- **تشابي ألونسو وليفركوزن.. عامان من الإنجازات**: [Link](https://al-ain.com/article/xabi-alonso-leverkusen-second-anniversary)
+
+
+### west ham – ipswich town (N/A, Sat, 5 Oct 2024 06:50:00 -0700)
+
+- **Starting XI | Lopetegui names unchanged team for Ipswich clash**: [Link](https://www.whufc.com/news/starting-xi-lopetegui-names-unchanged-team-ipswich-clash)
+- **"Glimpses" | Hammers captain Bowen admits time is now**: [Link](https://www.thewesthamway.com/2024/10/04/glimpses-hammers-captain-bowen-admits-time-is-now/)
+- **“They’ll Come Alive” I Upbeat At Last**: [Link](https://www.claretandhugh.info/theyll-come-alive-i-upbeat-at-last/)
+
+
 ### getafe – osasuna (N/A, Sat, 5 Oct 2024 06:30:00 -0700)
 
 - **Bretones, novedad de Osasuna; el Getafe repite once**: [Link](https://www.infobae.com/espana/agencias/2024/10/05/bretones-novedad-de-osasuna-el-getafe-repite-once/)
