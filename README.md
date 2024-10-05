@@ -1,3 +1,18 @@
+### قرعة أمريكا 2025 (N/A, Sat, 5 Oct 2024 04:40:00 -0700)
+
+- **اللوتري الأميركي 2025.. أبرز 35 سؤالا عن قرعة الهجرة العشوائية**: [Link](https://www.aljazeera.net/lifestyle/2024/10/3/%D8%A7%D9%84%D9%84%D9%88%D8%AA%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%A3%D8%A8%D8%B1%D8%B2-35-%D8%B3%D8%A4%D8%A7%D9%84%D8%A7-%D8%AD%D9%88%D9%84-%D9%82%D8%B1%D8%B9%D8%A9)
+- **القرعة الأمريكية… فرصة ثانية للشباب**: [Link](https://assabah.ma/802773.html)
+- **انطلاق التسجيل في قرعة أمريكا وهذه هي الشروط**: [Link](https://rue20.com/841766.html)
+
+
+### iphone se 4 (N/A, Sat, 5 Oct 2024 03:40:00 -0700)
+
+- **iPhone SE 4 to feature Apple’s first 5G modem, A18 chip, same cameras as 
+iPhone 15**: [Link](https://9to5mac.com/2024/10/03/iphone-se-4-modem-a18-camera/)
+- **Apple Readies New iPhone SE Model That Kills the Home Button**: [Link](https://www.bloomberg.com/news/articles/2024-10-01/apple-readies-iphone-se-4-upgraded-ipad-air-for-early-2025)
+- **Apple iPhone SE 4 to mark a significant shift in the iPhone era**: [Link](https://indianexpress.com/article/technology/mobile-tabs/apple-iphone-se-4-design-specs-features-price-9599841/)
+
+
 ### كريستال بالاس ضد ليفربول (N/A, Sat, 5 Oct 2024 04:30:00 -0700)
 
 - **ليفربول يخشى مفاجآت كريستال بالاس.. وآرسنال يستدرج ساوثهامبتون**: [Link](https://www.kooora.com/?n=1359053)
