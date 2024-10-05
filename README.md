@@ -1,3 +1,9 @@
+### نعيمة المشرقي (N/A, Sat, 5 Oct 2024 07:10:00 -0700)
+
+- **الفنانة نعيمة لمشرقي في ذمة الله**: [Link](https://ar.hibapress.com/details-558690.html)
+- **وفاة الممثلة القديرة نعيمة المشرقي**: [Link](https://machahid.info/326968.html)
+
+
 ### brentford – wolves (N/A, Sat, 5 Oct 2024 07:00:00 -0700)
 
 - **Injury update: Wissa, Nørgaard and Henry**: [Link](https://www.brentfordfc.com/en/news/article/first-team-rico-henry-christian-norgaard-yoane-wissa-brentford-injury-update-fantasy-premier-league-fpl-04-10-2024)
