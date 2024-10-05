@@ -1,3 +1,27 @@
+### النصر ضد العروبة (N/A, Sat, 5 Oct 2024 08:10:00 -0700)
+
+- **عودة بروزوفيتش تتصدر تشكيل النصر أمام العروبة**: [Link](https://www.kooora.com/?n=1359335)
+- **مباشر.. مباراة النصر ضد العروبة في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/5/al-nassr-vs-al-orubah)
+- **النصر يستعيد خدمات نجمه قبل مواجهة العروبة**: [Link](https://hihi2.com/2024/10/05/p2874193.html)
+
+
+### man city (N/A, Sat, 5 Oct 2024 08:10:00 -0700)
+
+- **Manchester City: Pep Guardiola offers to pay for banner made by fans asking 
+him to stay at club**: [Link](https://www.bbc.com/sport/football/articles/ceqn1l277zjo)
+- **'Winning is the best way to defend Man City', says Guardiola**: [Link](https://www.beinsports.com/en-my/football/premier-league/articles/winning-is-the-best-way-to-defend-man-city-says-guardiola-2024-10-04)
+- **Guardiola says he will pay for banner appealing for him to stay at Man City**: [Link](https://apnews.com/article/guardiola-man-city-contract-326040ede993bc02e7f76f5c19401113)
+
+
+### jérôme le fauconnier (N/A, Sat, 5 Oct 2024 07:00:00 -0700)
+
+- **Après Didier Roustan, L'Équipe à nouveau touché par une perte : un célèbre 
+journaliste pleuré par ses pairs, "une peine infinie"**: [Link](https://www.purepeople.com/article/apres-didier-roustan-l-equipe-a-nouveau-touche-par-une-perte-un-celebre-journaliste-pleure-par-ses-pairs-une-peine-infinie_a528293/1)
+- **Disparition : Journaliste à « L'Équipe », Jérôme Le Fauconnier est décédé**: [Link](https://www.lequipe.fr/Football/Actualites/Journaliste-a-l-equipe-jerome-le-fauconnier-est-decede/1511837)
+- **"Saloperie de maladie" : Denis Brogniart bouleversé par la mort de Jérôme 
+Le Fauconnier, son hommage déchirant au journaliste de L’Equipe**: [Link](https://www.programme-tv.net/news/people/362127-saloperie-de-maladie-denis-brogniart-bouleverse-par-la-mort-de-jerome-le-fauconnier-son-hommage-dechirant-au-journaliste-de-lequipe/)
+
+
 ### آرسنال ضد ساوثهامبتون (N/A, Sat, 5 Oct 2024 07:50:00 -0700)
 
 - **آرسنال لتضييق الخناق على ليفربول**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%84%D8%AA%D8%B6%D9%8A%D9%8A%D9%82-%D8%A7%D9%84%D8%AE%D9%86%D8%A7%D9%82-%D8%B9%D9%84%D9%89-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-2024-10-05)
