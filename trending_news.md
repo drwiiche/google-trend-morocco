@@ -1,3 +1,28 @@
+### lille – toulouse (N/A, Sat, 5 Oct 2024 09:20:00 -0700)
+
+- **PRONOS PARIS RMC Les paris sur Lille – Toulouse du 5 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-les-paris-sur-lille-toulouse-du-5-octobre-ligue-1_AN-202410040614.html)
+- **LOSC - TFC : la dernière victoire avec Casanova et Gradel, découvrez 
+l'historique des matchs**: [Link](https://www.lesviolets.com/actu/losc-tfc-la-derniere-victoire-avec-casanova-et-gradel-decouvrez-lhistorique-des-matchs,74006.html)
+- **Lille : Genesio veut éviter un relâchement**: [Link](https://www.maxifoot.fr/lille/genesio-veut-eviter-un-relachement-foot-420527.htm)
+
+
+### valladolid – rayo (N/A, Sat, 5 Oct 2024 09:20:00 -0700)
+
+- **Valladolid - Rayo en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/valladolid-rayo/2024/10/05/01_0101_20241005_192_184-directo.html)
+- **Íñigo Pérez elogia a Balliu: "Ojalá tuviera 11 Ivanes porque sabes que no 
+vas a fallar"**: [Link](https://unionrayo.com/inigo-elogia-balliu-11-ivanes/)
+- **Pequeños detalles para buscar una continuidad que dé tres puntos**: [Link](https://www.infobae.com/espana/agencias/2024/10/05/pequenos-detalles-para-buscar-una-continuidad-que-de-tres-puntos/)
+
+
+### everton – newcastle (N/A, Sat, 5 Oct 2024 09:10:00 -0700)
+
+- **Confirmed Newcastle team v Everton – Gordon, Schar, Tonali, Bruno all start**: [Link](https://www.themag.co.uk/2024/10/confirmed-newcastle-team-v-everton-gordon-schar-tonali-bruno-all-start-newcastle-united/)
+- **Premier League LIVE: Crystal Palace v Liverpool & seven other games - 
+score, radio & text updates**: [Link](https://www.bbc.com/sport/football/live/cy76dplpd2vt?page=5)
+- **Football Pundit Chris Sutton predicts the score line for Newcastle Vs 
+Everton**: [Link](https://newcastletoons.com/posts/football-pundit-chris-sutton-predicts-the-score-line-for-newcastle-vs-everton-01j9efyetj4r)
+
+
 ### las palmas – celta vigo (N/A, Sat, 5 Oct 2024 09:00:00 -0700)
 
 - **Preview: Las Palmas vs. Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/las-palmas/preview/preview-las-palmas-vs-celta-vigo-prediction-team-news-lineups_554585.html)
