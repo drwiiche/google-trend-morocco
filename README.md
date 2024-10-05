@@ -1,3 +1,11 @@
+### al-ahli saudi – al-hilal (N/A, Sat, 5 Oct 2024 10:10:00 -0700)
+
+- **How to watch today's Al-Ahli vs Al-Hilal Saudi Pro League game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-al-ahli-vs-al-hilal-saudi-pro-league-game-live-stream-tv-channel-start-time/blta793082251a68e3d)
+- **Ruben Neves talks about Al-Ahly's next match**: [Link](https://www.ysscores.com/en/news/4926347/Ruben-Neves-talks-about-Al-Ahly's-next-match)
+- **Preview: Al-Ahli vs. Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ahli/preview/preview-al-ahli-vs-al-hilal-prediction-team-news-lineups_554506.html)
+
+
 ### atalanta – genoa (N/A, Sat, 5 Oct 2024 09:30:00 -0700)
 
 - **Atalanta, infortunio per Kossounou: non ci sarà contro il Genoa**: [Link](https://www.fantacalcio.it/news/calcio-italia/05_10_2024/atalanta-infortunio-per-kossounou-non-ci-sara-contro-il-genoa-467156)
