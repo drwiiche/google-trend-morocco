@@ -1,3 +1,26 @@
+### rennes – monaco (N/A, Sat, 5 Oct 2024 11:20:00 -0700)
+
+- **Rennes/Monaco**: [Link](https://www.tv5monde.com/tv/video/81230-football-ligue-1-mcdonald-s-rennes-monaco)
+- **SRFC-ASM : Les compositions probables**: [Link](https://asm-supporters.fr/actualites/60264-srfc-asm-les-compositions-5)
+- **PRONOS PARIS RMC Le pari football de Coach Courbis du 5 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-coach-courbis-du-5-octobre-ligue-1_AN-202410050257.html)
+
+
+### inter – torino (N/A, Sat, 5 Oct 2024 11:20:00 -0700)
+
+- **Serie A: Inter vs Torino – probable line-ups and where to watch on TV**: [Link](https://football-italia.net/inter-torino-line-ups-where-to-watch-on-tv/)
+- **Inter Milan Captain Makes Swift Return To Training Despite Injury Scare In 
+Champions League Clash Vs Red Star**: [Link](https://www.yardbarker.com/soccer/articles/inter_milan_captain_makes_swift_return_to_training_despite_injury_scare_in_champions_league_clash_vs_red_star/s1_17130_40996648)
+- **Italy Star On Start To Season With Inter Milan: ‘I Have More Confidence, 
+But The Work Isn’t Finished’**: [Link](https://sempreinter.com/2024/10/05/inter-davide-frattesi-i-have-more-confidence-this-season/)
+
+
+### wac (N/A, Sat, 5 Oct 2024 11:10:00 -0700)
+
+- **This Week In WAC Volleyball - Oct. 2**: [Link](https://wacsports.com/news/2024/10/2/this-week-in-wac-volleyball-oct-2.aspx)
+- **WAC play starts Sunday at UTRGV**: [Link](https://gculopes.com/news/2024/10/5/gcu-begins-final-wac-season-sunday-at-utrgv.aspx)
+- **Abilene, Tarleton State visit for final home weekend**: [Link](https://bvmsports.com/2024/10/03/abilene-tarleton-state-visit-for-final-home-weekend/)
+
+
 ### الريال ضد فياريال (N/A, Sat, 5 Oct 2024 11:00:00 -0700)
 
 - **مبابي أساسيًا أمام فياريال.. ورودريجو بديلًا**: [Link](https://www.kooora.com/?n=1359387)
