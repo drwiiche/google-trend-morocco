@@ -1,3 +1,11 @@
+### gta 6 (N/A, Sat, 5 Oct 2024 07:10:00 -0700)
+
+- **Leaked GTA 6 story details 'confirmed' as legit**: [Link](https://www.indy100.com/gaming/gta-6-story-leaks-rockstar-2669327555)
+- **Grand Theft Auto 6 Leak Sparks Fan Frenzy On X, But Elon Musk Won't Be 
+Joining The Hype**: [Link](https://www.benzinga.com/general/gaming/24/10/41152217/grand-theft-auto-6-leak-sparks-fan-frenzy-on-x-but-elon-musk-wont-be-joining-the-hype)
+- **You'll Have to Wait for Your Favorite 2025 Game Because of GTA 6**: [Link](https://80.lv/articles/publishers-don-t-announce-dates-for-2025-games-because-of-gta-6/)
+
+
 ### نعيمة المشرقي (N/A, Sat, 5 Oct 2024 07:10:00 -0700)
 
 - **الفنانة نعيمة لمشرقي في ذمة الله**: [Link](https://ar.hibapress.com/details-558690.html)
