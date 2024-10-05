@@ -1,3 +1,12 @@
+### al-nassr vs al-orobah (N/A, Sat, 5 Oct 2024 08:40:00 -0700)
+
+- **Preview: Al-Nassr vs. Al Orubah - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/preview-al-nassr-vs-al-orubah-prediction-team-news-lineups_554565.html)
+- **Al-Nassr vs Al Orobah Live Football Streaming For Saudi Pro League 2024-25 
+Match: How to Watch NSSR vs ORO**: [Link](https://www.news18.com/football/al-nassr-vs-al-orobah-live-football-streaming-for-saudi-pro-league-2024-25-match-how-to-watch-nssr-vs-oro-coverage-on-tv-and-online-9073912.html)
+- **Will Cristiano Ronaldo play tonight in SPL? How to watch Al-Nassr vs 
+Al-Orobah live streaming?**: [Link](https://www.republicworld.com/sports/football/will-cristiano-ronaldo-play-tonight-in-spl-how-to-watch-al-nassr-vs-al-orobah-live-streaming)
+
+
 ### dortmund (N/A, Sat, 5 Oct 2024 08:30:00 -0700)
 
 - **49-jähriger Mann verstirbt nach Schlägerei**: [Link](https://www.wirindortmund.de/dortmund/49-jaehriger-mann-verstirbt-nach-schlaegerei-250463)
