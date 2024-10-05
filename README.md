@@ -1,3 +1,11 @@
+### carlos alcaraz (N/A, Sat, 5 Oct 2024 01:30:00 -0700)
+
+- **Alcaraz arrasa a Shang en su debut en Shanghái**: [Link](https://www.marca.com/tenis/masters-1000-shangai/2024/10/05/6700d7a1268e3e06778b4574.html)
+- **Maratón en China**: [Link](https://as.com/tenis/maraton-en-china-n/)
+- **¿De qué planeta viniste Carlitos? El golpe del año se lleva la firma del 
+murciano**: [Link](https://www.sport.es/es/noticias/tenis/planeta-viniste-carlitos-golpe-ano-108937072)
+
+
 ### sergio ramos (N/A, Sat, 5 Oct 2024 00:40:00 -0700)
 
 - **La grave lesión de Bremer convierte a Sergio Ramos en una opción para la 
