@@ -1,3 +1,10 @@
+### dortmund (N/A, Sat, 5 Oct 2024 08:30:00 -0700)
+
+- **49-jähriger Mann verstirbt nach Schlägerei**: [Link](https://www.wirindortmund.de/dortmund/49-jaehriger-mann-verstirbt-nach-schlaegerei-250463)
+- **49-Jähriger stirbt nach Angriff am Hauptbahnhof Dortmund**: [Link](https://www.allgemeine-zeitung.de/panorama/aus-aller-welt/49-jaehriger-stirbt-nach-angriff-am-hauptbahnhof-dortmund-4029377)
+- **Obdachloser vor Hauptbahnhof Dortmund am hellen Nachmittag totgeschlagen**: [Link](https://rundblick-unna.de/2024/10/05/obdachloser-vor-hauptbahnhof-dortmund-am-hellen-nachmittag-totgeschlagen/)
+
+
 ### arsenal (N/A, Sat, 5 Oct 2024 08:20:00 -0700)
 
 - **Arsenal v Southampton, Manchester City v Fulham and more: football 
