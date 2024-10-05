@@ -1,3 +1,27 @@
+### carvajal (N/A, Sat, 5 Oct 2024 14:00:00 -0700)
+
+- **Ya hay contactos entre el Real Madrid y Alexander-Arnold**: [Link](https://www.relevo.com/futbol/mercado-fichajes/contactos-real-madrid-alexanderarnold-20241003171313-nt.html)
+- **25 ‘kilos’ por la perla española, Florentino dice ‘sí’ para robárselo a la 
+Premier: se estudia el fichaje**: [Link](https://www.realmadridexclusivo.com/fichajes/25-kilos-por-perla-espanola-florentino-dice-si-robarselo-premier_161073_102.html)
+- **Giro de 180 grados: Fabrizio Romano sorprende y pone en duda este fichaje 
+del Madrid**: [Link](https://madrid-barcelona.com/real-madrid/giro-180-grados-fabrizio-romano-sorprende-y-pone-duda-este-fichaje-del-madrid)
+
+
+### تورونتو ضد إنتر ميامي (N/A, Sat, 5 Oct 2024 14:00:00 -0700)
+
+- **موعد مباراة إنتر ميامي وتورونتو في الدوري الأمريكي 2024 والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1358953)
+- **ميسي وسواريز على مقاعد بدلاء إنتر ميامي ضد تورنتو في الدوري الأمريكي**: [Link](https://www.youm7.com/story/2024/10/5/%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D8%B3%D9%88%D8%A7%D8%B1%D9%8A%D8%B2-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D8%B6%D8%AF-%D8%AA%D9%88%D8%B1%D9%86%D8%AA%D9%88-%D9%81%D9%8A/6731435)
+- **قبل مباراة تورونتو.. 30 هدفا لميسي مع إنتر ميامي منذ يوليو 2023**: [Link](https://sport.elwatannews.com/ar/1/2/1172175/%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%B1%D9%88%D9%86%D8%AA%D9%88-30-%D9%87%D8%AF%D9%81%D8%A7-%D9%84%D9%85%D9%8A%D8%B3%D9%8A-%D9%85%D8%B9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%85%D9%86%D8%B0-%D9%8A%D9%88%D9%84%D9%8A%D9%88-2023)
+
+
+### wac vs husa (N/A, Sat, 5 Oct 2024 13:00:00 -0700)
+
+- **تشكيلة الوداد أمام الحسنية.. حضور أساسي لحركاس وموباريك ونيانغ يقود الهجوم 
+رفقة الشادلي وناسي**: [Link](https://m.elbotola.com/article/2024-10-05-18-05-308.html)
+- **مفاجآت عديدة في قائمة موكوينا للإطاحة بحسنية أكادير**: [Link](https://ar.sport.le360.ma/football/botola/UDUZ2RMBHBGIPGEV6HIE5LNQ2A/)
+- **"وينرز": قرارات "الويكلو" تستهدف نادي الوداد وتناقضها يطرح علامات استفهام**: [Link](https://ar.telquel.ma/%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D9%8A%D9%83%D9%84%D9%88-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%88/)
+
+
 ### الوداد (N/A, Sat, 5 Oct 2024 13:40:00 -0700)
 
 - **تشكيلة الوداد أمام الحسنية.. حضور أساسي لحركاس وموباريك ونيانغ يقود الهجوم 
