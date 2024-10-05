@@ -1,3 +1,13 @@
+### film la plateforme 2 (N/A, Fri, 4 Oct 2024 23:50:00 -0700)
+
+- **Nouveau sur Netflix : après 4 ans d'attente, la suite d'un des plus gros 
+succès de la plateforme est enfin là !**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000106155.html)
+- **On a vu La Plateforme 2 sur Netflix et, si c'était pour faire ça, ce 
+n'était franchement pas la peine**: [Link](https://www.programme-tv.net/news/cinema/362002-on-a-vu-la-plateforme-2-sur-netflix-et-si-c-etait-pour-faire-ca-ce-n-etait-franchement-pas-la-peine/)
+- **Ce thriller espagnol est l'un des plus attendus de l'année sur Netflix, il 
+sort enfin et devrait cartonner**: [Link](https://www.linternaute.com/cinema/magazine/6296733-article-la-plateforme-2/)
+
+
 ### diddy (N/A, Fri, 4 Oct 2024 19:40:00 -0700)
 
 - **Diddy tells Justin Bieber not to talk about 'things he does with big 
