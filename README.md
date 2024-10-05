@@ -1,3 +1,10 @@
+### classement real madrid – villarreal (N/A, Sat, 5 Oct 2024 14:20:00 -0700)
+
+- **DIRECT. Real Madrid-Villarreal (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-madrid-villarreal-live/657365)
+- **La Liga : Bombazo extraordinaire de Vinicius Jr !**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/la-liga-bombazo-extraordinaire-de-vinicius-jr-2024-10-05)
+- **Liga | Avec Kylian Mbappé, le Real Madrid se reprend contre Villarreal**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-avec-kylian-mbappe-le-real-madrid-se-reprend-contre-villarreal_sto10360707/story.shtml)
+
+
 ### ufc 307 (N/A, Sat, 5 Oct 2024 14:30:00 -0700)
 
 - **Khalil Rountree’s coach compares Alex Pereira fight to Gokhan Saki 
