@@ -1,3 +1,18 @@
+### leverkusen – holstein kiel (N/A, Sat, 5 Oct 2024 06:00:00 -0700)
+
+- **(k+) Lokalmatadoren auf beiden Bänken - Eine Paarung, die alle Gefilde kennt**: [Link](https://www.kicker.de/lokalmatadoren-auf-beiden-baenken-eine-paarung-die-alle-gefilde-kennt-1055761/artikel)
+- **"Harte Momente!" Alonso über schwere Zeit bei Bayer**: [Link](https://www.sport1.de/tv-video/video/-harte-momente-alonso-ueber-schwere-zeit-bei-bayer__1F2C3C47-3663-4564-AE03-12D0615E01AA)
+- **Störche in Leverkusen: Gastspiel beim Deutschen Meister**: [Link](https://www.holstein-kiel.de/news-profis/stoerche-in-leverkusen-gastspiel-beim-deutschen-meister/)
+
+
+### union berlin – dortmund (N/A, Sat, 5 Oct 2024 06:00:00 -0700)
+
+- **Fußball-Bundesliga: Union Berlins Defensive erwartet ein Stresstest gegen 
+Borussia Dortmund**: [Link](https://www.rbb24.de/sport/beitrag/2024/10/fussball-bundesliga-union-berlin-borussia-dortmund-fcubvb.html)
+- **Angstgegner BVB: Svensson will «individuelle Trendwende»**: [Link](https://www.faz.net/agenturmeldungen/dpa/angstgegner-bvb-svensson-will-individuelle-trendwende-110026507.html)
+- **Das Programmheft zum heutigen Heimspiel**: [Link](https://fc-union-berlin.de/de/union-live/news/verein/Das-Programmheft-zum-heutigen-Heimspiel-3493m/)
+
+
 ### liverpool (N/A, Sat, 5 Oct 2024 05:00:00 -0700)
 
 - **Arne Slot asks for quiet in answering Liverpool’s away-day ‘$10m question’**: [Link](https://www.theguardian.com/football/2024/oct/04/arne-slot-asks-for-quiet-in-answering-liverpools-away-day-10m-question)
