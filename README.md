@@ -1,3 +1,11 @@
+### real madrid (N/A, Sat, 5 Oct 2024 12:30:00 -0700)
+
+- **Real Madrid - Villarreal en directo | LaLiga EA Sports en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/r-madrid-villarreal/2024/10/05/01_0101_20241005_186_449-directo.html)
+- **Milagros Pintus**: [Link](https://as.com/futbol/primera/milagros-pintus-n/)
+- **Sorpresón en la alineación de Ancelotti ante el Villarreal: Rodrygo y 
+Militao fuera; Güler se cae**: [Link](https://www.defensacentral.com/real_madrid/1709328130-sorpreson-en-la-alineacion-de-ancelotti-ante-el-villarreal-rodrygo-y-militao-fuera-guler-se-cae)
+
+
 ### toronto – inter miami (N/A, Sat, 5 Oct 2024 12:20:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Visits Toronto FC in Final 2024 Regular 
