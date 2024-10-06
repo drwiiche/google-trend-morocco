@@ -1,3 +1,16 @@
+### um6p (N/A, Sun, 6 Oct 2024 15:00:00 -0700)
+
+- **Mpox : Validation clinique du nouveau kit de diagnostic "UM6P-MAScIR qPCR"**: [Link](https://lematin.ma/societe/mpox-validation-clinique-du-nouveau-kit-de-diagnostic-um6p-mascir-qpcr/245593)
+- **Variole du singe : validation clinique du nouveau kit de diagnostic 
+développé par UM6P-MAScIR**: [Link](https://ledesk.ma/encontinu/variole-du-singe-validation-clinique-du-nouveau-kit-de-diagnostic-developpe-par-um6p-mascir/)
+- **L'OMS donne son feu vert à un test PCR permettant de diagnostiquer le mpox**: [Link](https://fr.news.yahoo.com/loms-donne-feu-vert-%C3%A0-095458921.html)
+
+
+### botola pro (N/A, Sun, 6 Oct 2024 11:40:00 -0700)
+
+
+
+
 ### fiorentina vs milan (N/A, Sun, 6 Oct 2024 14:40:00 -0700)
 
 - **European football: De Gea’s penalty saves help Fiorentina beat Milan**: [Link](https://www.theguardian.com/football/2024/oct/06/european-football-girona-juventus-eintracht-bayern-barcelona-psg)
