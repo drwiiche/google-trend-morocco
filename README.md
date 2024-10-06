@@ -1,3 +1,10 @@
+### ترتيب الدوري الفرنسي (N/A, Sun, 6 Oct 2024 13:50:00 -0700)
+
+- **حكيمي دائما رجل المباراة**: [Link](https://www.almountakhab.com/node/13205153)
+- **احصائيات مباراة باريس سان جيرمان و نيس في الدوري الفرنسي**: [Link](https://hihi2.com/2024/10/07/p2878813.html)
+- **موعد والقناة الناقلة لمباراة نيس وباريس سان جيرمان اليوم في الدوري الفرنسي**: [Link](https://www.btolat.com/news/354479)
+
+
 ### ac milan (N/A, Sun, 6 Oct 2024 13:30:00 -0700)
 
 - **Pulisic frustrated with Fonseca for the substitution: "Why? Why?"**: [Link](https://milanreports.com/2024/10/06/pulisic-frustrated-fonseca-why-why/)
