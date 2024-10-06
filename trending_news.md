@@ -1,3 +1,10 @@
+### آينتراخت ضد البايرن (N/A, Sun, 6 Oct 2024 08:50:00 -0700)
+
+- **الدورة السادسة تعيد ادم ازنو لاول مرة مع البايرن**: [Link](https://www.almountakhab.com/node/16205132)
+- **مواجهة كبيرة بين آينتراخت فرانكفورت وبايرن ميونيخ**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%83%D8%A8%D9%8A%D8%B1%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A2%D9%8A%D9%86%D8%AA%D8%B1%D8%A7%D8%AE%D8%AA-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA-%D9%88%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-2024-10-06)
+- **ألمانيا تخسر موسيالا في مباراتي دوري الأمم**: [Link](https://www.kooora.com/?n=1359098)
+
+
 ### séville – betis (N/A, Sun, 6 Oct 2024 08:40:00 -0700)
 
 - **Preview: Sevilla vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sevilla/seville-derby/preview/preview-sevilla-vs-betis-prediction-team-news-lineups_554687.html)
