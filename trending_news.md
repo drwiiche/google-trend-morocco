@@ -1,3 +1,12 @@
+### abdelmadjid tebboune (N/A, Sun, 6 Oct 2024 09:30:00 -0700)
+
+- **Abdelmajid Tebboune, maestro de l'absurde et du ridicule**: [Link](https://fr.hespress.com/389398-abdelmajid-tebboune-maestro-de-labsurde-et-du-ridicule.html)
+- **Les Marocains se moquent de la décision d’Alger d’imposer un visa : "Cela 
+va nous empêcher de profiter des plages algériennes paradisiaques"**: [Link](https://www.ladepeche.fr/2024/10/03/les-marocains-se-moquent-de-la-decision-dalger-dimposer-un-visa-cela-va-nous-empecher-de-profiter-des-plages-algeriennes-paradisiaques-12238104.php)
+- **Dar Lkabranate. EP-126. Algérie: Saïd Chengriha, ou quand la folie dépasse 
+ses limites**: [Link](https://fr.le360.ma/medias/dar-lkabranate-ep-126-algerie-said-chengriha-ou-quand-la-folie-depasse-ses-limites_KSAPBBIFZVAEJCUUFGX3NK4XR4/)
+
+
 ### العين ضد الوحدة (N/A, Sun, 6 Oct 2024 09:10:00 -0700)
 
 - **صافرة إيطالية لقمة العين والوحدة**: [Link](https://m.kooora.com/?n=1359497&pg=1&o=n)
