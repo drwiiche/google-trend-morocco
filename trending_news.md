@@ -1,3 +1,11 @@
+### chelsea (N/A, Sun, 6 Oct 2024 06:50:00 -0700)
+
+- **Under-18s report: Chelsea 4-1 Newcastle United | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/under-18s-report-chelsea-4-1-newcastle-united)
+- **Chelsea Under-18s 4 Newcastle United Under-18s 1**: [Link](https://sports.yahoo.com/chelsea-under-18s-4-newcastle-010800150.html)
+- **Premier League: Man Utd visit Aston Villa in big game for Ten Hag, Chelsea 
+host Nottm Forest**: [Link](https://www.bbc.com/sport/football/live/cy9ejn98ez8t)
+
+
 ### deportivo alavés – barcelone (N/A, Sun, 6 Oct 2024 06:20:00 -0700)
 
 - **Alavés - Barcelona en directo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/alaves-barcelona/2024/10/06/01_0101_20241006_173_178-directo.html)
