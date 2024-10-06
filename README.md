@@ -1,3 +1,28 @@
+### raja casablanca (N/A, Sun, 6 Oct 2024 11:20:00 -0700)
+
+- **Le Raja en pourparlers avec Houcine Ammouta ? Le vrai du faux**: [Link](https://www.lesiteinfo.com/sport/628913-le-raja-en-pourparlers-avec-houcine-ammouta-le-vrai-du-faux.html)
+- **Raja Casablanca : la piste Pitso Mosimane abandonnée**: [Link](https://sportnewsafrica.com/breve/le-raja-abandonne-la-piste-pitso-mosimane/)
+- **Le Raja en négociations avec un entraîneur espagnol**: [Link](https://www.lesiteinfo.com/sport/628854-le-raja-en-negociations-avec-un-entraineur-espagnol.html)
+
+
+### nice – paris-sg (N/A, Sun, 6 Oct 2024 11:10:00 -0700)
+
+- **Le PSG déchante à Nice**: [Link](https://www.footmercato.net/a1870604564266616155-le-psg-dechante-a-nice)
+- **Nice vs Paris Saint-Germain en direct et live streaming : comment regarder 
+le match ?**: [Link](https://www.webmanagercenter.com/2024/10/06/531598/nice-vs-paris-saint-germain-en-direct-et-live-streaming-comment-regarder-le-match/)
+- **Nice-PSG : Dembélé bien titulaire aux côtés de Barcola et Kolo Muani, le 
+onze de départ des Parisiens**: [Link](https://www.leparisien.fr/sports/football/ligue-1/nice-psg-dembele-bien-titulaire-aux-cotes-de-barcola-et-kolo-muani-le-onze-de-depart-des-parisiens-06-10-2024-Y6UPN62CGRHQJO7ZLVRRVGQGZA.php)
+
+
+### fiorentina – ac milan (N/A, Sun, 6 Oct 2024 11:10:00 -0700)
+
+- **Fiorentina manager says they need ‘a perfect game’ to beat ‘healthy’ Milan 
+side**: [Link](https://sempremilan.com/fiorentina-manager-perfect-game-beat-milan)
+- **Six wins in the last eight games: All the key stats ahead of Fiorentina vs. 
+AC Milan**: [Link](https://onefootball.com/id/berita/six-wins-in-the-last-eight-games-all-the-key-stats-ahead-of-fiorentina-vs-ac-milan-40135327)
+- **Fonseca won't change Milan's winning formula**: [Link](https://www.beinsports.com/en-nz/football/serie-a/articles/fonseca-won-t-change-milan-s-winning-formula-2024-10-05)
+
+
 ### real sociedad – atlético madrid (N/A, Sun, 6 Oct 2024 11:00:00 -0700)
 
 - **Simeone se refuerza con un central de confianza de la cantera para San 
