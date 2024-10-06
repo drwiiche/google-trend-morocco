@@ -1,3 +1,10 @@
+### brest – le havre (N/A, Sun, 6 Oct 2024 08:50:00 -0700)
+
+- **Preview: Brest vs. Le Havre - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/brest/preview/preview-brest-vs-le-havre-prediction-team-news-lineups_554646.html)
+- **Brest predicted XI v Le Havre: Abdallah Sima out, Pierre Lees-Melou returns**: [Link](https://sports.yahoo.com/brest-predicted-xi-v-le-083900357.html)
+- **Brest vs Le Havre Prediction, 10/6/2024 Ligue 1 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/brest-vs-le-havre-prediction-10-6-2024-ligue-1-soccer-pick-tips-and-odds.html)
+
+
 ### بلقيس (N/A, Sun, 6 Oct 2024 10:00:00 -0700)
 
 - **بلقيس فتحي تضجّ أنوثةً بالأبيض الساحر**: [Link](https://www.lahamag.com/article/215503-%D8%A8%D9%84%D9%82%D9%8A%D8%B3-%D9%81%D8%AA%D8%AD%D9%8A-%D8%AA%D8%B6%D8%AC-%D8%A3%D9%86%D9%88%D8%AB%D8%A9-%D8%A8%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D8%B1)
