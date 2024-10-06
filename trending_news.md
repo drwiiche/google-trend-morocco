@@ -1,3 +1,12 @@
+### inter miami cf (N/A, Sun, 6 Oct 2024 04:00:00 -0700)
+
+- **Toronto FC 0-1 Inter Miami: Campana's stoppage-time strike keeps visitors 
+on track for MLS record**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/toronto-fc-0-1-inter-miami-campanas-stoppage-time-strike-keeps-visitors-on-track-for-mls-record-2024-10-05)
+- **Luis Suarez’s incredible first-time volley assist puts Lionel Messi and 
+Inter Miami on brink of MLS r...**: [Link](https://talksport.com/football/2115579/luis-suarezs-assist-lionel-messi-inter-miami-mls-record/)
+- **Inter Miami set themselves up for MLS points record with dramatic win**: [Link](https://www.marca.com/en/football/mls/2024/10/06/6701c55f46163f693a8b457d.html)
+
+
 ### girona – ath. bilbao (N/A, Sun, 6 Oct 2024 04:20:00 -0700)
 
 - **La sorpresa que prepara el Athletic**: [Link](https://www.estadiodeportivo.com/futbol/athletic-club-bilbao/sorpresa-que-prepara-athletic-20241004-466442.html)
