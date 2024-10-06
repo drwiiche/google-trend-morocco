@@ -1,3 +1,20 @@
+### rca (N/A, Sun, 6 Oct 2024 10:30:00 -0700)
+
+- **Șofer beat, fără permis, cu mașină cu ITP expirată și fără RCA depistat de 
+polițiștii din Salcea**: [Link](https://www.newsbucovina.ro/social/395559/sofer-beat-fara-permis-cu-masina-cu-itp-expirata-si-fara-rca-depistat-de-politistii-din-salcea)
+- **stiri economice de ultima ora, ultimele stiri**: [Link](https://m.zf.ro/zf-asigurari-de-viata)
+- **Șeful Allianz-Ţiriac Asigurări prezice un 'cutremur' pe piața RCA/ UPDATE**: [Link](https://www.stiripesurse.ro/eful-allianz-tiriac-asigurari-prezice-un-cutremur-pe-piata-rca_3450303.html)
+
+
+### omar marmoush (N/A, Sun, 6 Oct 2024 10:30:00 -0700)
+
+- **Man Utd line up blockbuster move for Bundesliga forward who dreams of 
+Liverpool transfer**: [Link](https://www.teamtalk.com/manchester-united/man-utd-line-up-blockbuster-move-for-bundesliga-forward-who-dreams-of-liverpool-transfer)
+- **Liverpool eye deal for Egyptian STAR**: [Link](https://sports.yahoo.com/liverpool-eye-deal-egyptian-star-075800395.html)
+- **West Ham want to sign attacker ‘who almost joined Nottingham Forest’ – 
+sources**: [Link](https://www.footballinsider247.com/west-ham-want-to-sign-attacker-who-almost-joined-nottingham-forest-sources/)
+
+
 ### brest – le havre (N/A, Sun, 6 Oct 2024 08:50:00 -0700)
 
 - **Preview: Brest vs. Le Havre - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/brest/preview/preview-brest-vs-le-havre-prediction-team-news-lineups_554646.html)
