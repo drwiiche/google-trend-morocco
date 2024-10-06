@@ -1,3 +1,11 @@
+### ac milan (N/A, Sun, 6 Oct 2024 13:30:00 -0700)
+
+- **Pulisic frustrated with Fonseca for the substitution: "Why? Why?"**: [Link](https://milanreports.com/2024/10/06/pulisic-frustrated-fonseca-why-why/)
+- **Video: Maignan and De Gea both save penalties in frantic first half**: [Link](https://sports.yahoo.com/video-maignan-gea-both-save-194500043.html)
+- **WATCH: USMNT captain Christian Pulisic scores equalizer for AC Milan in 
+dramatic loss to Fiorentina**: [Link](https://www.cbssports.com/soccer/news/watch-usmnt-captain-christian-pulisic-scores-equalizer-for-ac-milan-in-dramatic-loss-to-fiorentina/)
+
+
 ### yacine adli (N/A, Sun, 6 Oct 2024 13:20:00 -0700)
 
 - **Yacine Adli returns to haunt Milan for Fiorentina 👻**: [Link](https://sports.yahoo.com/yacine-adli-returns-haunt-milan-193800417.html)
