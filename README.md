@@ -1,3 +1,13 @@
+### manchester united (N/A, Sun, 6 Oct 2024 07:30:00 -0700)
+
+- **Gary Neville claims it 'feels like the end' for Ten Hag after 'dumping' Man 
+Utd pair for Villa clash**: [Link](https://www.football365.com/news/gary-neville-claims-it-feels-like-the-end-for-ten-hag-after-dumping-man-utd-pair-for-villa-clash)
+- **"He is just another one" - Richard Dunne on the big problem with new Man 
+United defender Matthijs de Ligt**: [Link](https://www.sportsjoe.ie/football/richard-dunne-man-united-matthijs-de-ligt-337019)
+- **Man Utd star had 'nightmares' v Porto and should be dropped, says Owen 
+Hargreaves**: [Link](https://metro.co.uk/2024/10/03/man-utd-star-nightmares-v-porto-dropped-says-owen-hargreaves-21732180/)
+
+
 ### fc barcelone (N/A, Sun, 6 Oct 2024 07:20:00 -0700)
 
 - **Alavés - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a5755359595103544715-alaves-fc-barcelone-les-compositions-officielles)
