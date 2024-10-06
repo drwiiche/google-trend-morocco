@@ -1,3 +1,29 @@
+### aston villa – manchester united (N/A, Sun, 6 Oct 2024 05:10:00 -0700)
+
+- **Preview: Aston Villa vs. Manchester United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-utd/preview/preview-aston-villa-vs-man-utd-prediction-team-news-lineups_554670.html)
+- **3 goals, 3 assists: Ten Hag has to start £7m ace if Man Utd star remains 
+injured vs Aston Villa – Opinion**: [Link](https://onefootball.com/en/news/3-goals-3-assists-ten-hag-has-to-start-7m-ace-if-man-utd-star-remains-injured-vs-aston-villa-opinion-40133337)
+- **Harry Maguire and Jonny Evans start for Manchester United against Aston 
+Villa - The Athletic**: [Link](https://www.nytimes.com/athletic/5821921/2024/10/06/maguire-evans-manchester-united-aston-villa/)
+
+
+### chelsea – nottm forest (N/A, Sun, 6 Oct 2024 05:10:00 -0700)
+
+- **Chelsea vs. Nottingham Forest, Premier League: Confirmed lineups; how to 
+watch**: [Link](https://weaintgotnohistory.sbnation.com/2024/10/6/24263336/chelsea-nottingham-forest-premier-league-live-stream-time-tv-how-watch-online-live-blog-highlights)
+- **Enzo Maresca on returning Callum Hudson-Odoi and Forest’s threat | News | 
+Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-on-returning-callum-hudson-odoi-and-forests-threat)
+- **“He’s special and someone to look out for” – Nottingham Forest star wary of 
+Chelsea ace ahead of Sunday’s game**: [Link](https://chelsea.news/2024/10/anthony-elanga-on-forest-against-chelsea/)
+
+
+### joker 2 (N/A, Sat, 5 Oct 2024 20:00:00 -0700)
+
+- **‘Joker: Folie à Deux’ Underperforming at Box Office After Receiving D CinemaScore**: [Link](https://www.billboard.com/culture/tv-film/joker-folie-a-deux-box-office-d-cinemascore-1235793906/)
+- **Joker: Folie à Deux’s Twist Ending Is a Lot Like Lightyear, in a Way**: [Link](https://www.vulture.com/article/joker-folie-a-deux-ending-explained-whos-the-real-joker-heath-ledger.html)
+- **Francis Ford Coppola Praises Todd Phillips as ‘Joker: Folie à Deux’ Flails: “He’s Always One Step Ahead of the Audience”**: [Link](https://www.hollywoodreporter.com/movies/movie-news/francis-ford-coppola-comforts-todd-phillips-joker-folie-a-deux-flails-1236025277/)
+
+
 ### inter miami cf (N/A, Sun, 6 Oct 2024 04:00:00 -0700)
 
 - **Toronto FC 0-1 Inter Miami: Campana's stoppage-time strike keeps visitors 
