@@ -1,3 +1,10 @@
+### real sociedad vs atlético madrid (N/A, Sun, 6 Oct 2024 11:40:00 -0700)
+
+- **Real Sociedad - Atlético en directo | LaLiga EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/real-sociedad-atletico/2024/10/06/01_0101_20241006_188_175-directo.html)
+- **Reaccionar, cauterizar**: [Link](https://as.com/futbol/primera/reaccionar-cauterizar-n/)
+- **La irregular Real de Imanol**: [Link](https://onefootball.com/en/news/la-irregular-real-de-imanol-40130635)
+
+
 ### botola (N/A, Sun, 6 Oct 2024 11:30:00 -0700)
 
 - **Huis clos : Mokwena jette un pavé dans la mare**: [Link](https://lematin.ma/sports/huis-clos-mokwena-jette-un-pave-dans-la-mare/245872)
