@@ -1,3 +1,20 @@
+### fc barcelone (N/A, Sun, 6 Oct 2024 07:20:00 -0700)
+
+- **Alavés - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a5755359595103544715-alaves-fc-barcelone-les-compositions-officielles)
+- **Deportivo Alavés - FC Barcelone en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-deportivo-alaves-fc-barcelone_mtc1524245/live-commentary.shtml)
+- **Alavés - Barça : Objectif victoire à Vitoria**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4141771/alaves-barca-objectif-victoire-a-vitoria)
+
+
+### man united (N/A, Sun, 6 Oct 2024 07:20:00 -0700)
+
+- **Gary Neville claims it 'feels like the end' for Ten Hag after 'dumping' Man 
+Utd pair for Villa clash**: [Link](https://www.football365.com/news/gary-neville-claims-it-feels-like-the-end-for-ten-hag-after-dumping-man-utd-pair-for-villa-clash)
+- **"He is just another one" - Richard Dunne on the big problem with new Man 
+United defender Matthijs de Ligt**: [Link](https://www.sportsjoe.ie/football/richard-dunne-man-united-matthijs-de-ligt-337019)
+- **Man Utd star had 'nightmares' v Porto and should be dropped, says Owen 
+Hargreaves**: [Link](https://metro.co.uk/2024/10/03/man-utd-star-nightmares-v-porto-dropped-says-owen-hargreaves-21732180/)
+
+
 ### chelsea (N/A, Sun, 6 Oct 2024 06:50:00 -0700)
 
 - **Under-18s report: Chelsea 4-1 Newcastle United | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/under-18s-report-chelsea-4-1-newcastle-united)
