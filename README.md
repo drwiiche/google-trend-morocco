@@ -1,3 +1,27 @@
+### العين ضد الوحدة (N/A, Sun, 6 Oct 2024 09:10:00 -0700)
+
+- **صافرة إيطالية لقمة العين والوحدة**: [Link](https://m.kooora.com/?n=1359497&pg=1&o=n)
+- **الديربي ينتظر رحيمي**: [Link](https://ar.sport.le360.ma/football/GS2ZAL6YVVHGXAJOSXFGZYYRKI/)
+- **مواجهات ناريه اليوم في دوري أدنوك للمحترفين**: [Link](https://alhorianews.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D9%87-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%AF%D9%86%D9%88%D9%83-%D9%84%D9%84%D9%85%D8%AD/)
+
+
+### reims – montpellier (N/A, Sun, 6 Oct 2024 09:10:00 -0700)
+
+- **DIRECT. Reims-Montpellier (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/reims-montpellier-live/655920)
+- **"Je ne vais pas m’arrêter à un faux départ, je vais jouer tous les matches 
+à fond" : le médaillé olympique Joris Chotard de retour avec le MHSC**: [Link](https://www.midilibre.fr/2024/10/04/je-ne-vais-pas-marreter-a-un-faux-depart-je-vais-jouer-tous-les-matches-a-fond-le-medaille-olympique-joris-chotard-de-retour-avec-le-mhsc-12240303.php)
+- **Se donner de l’air avant la trêve**: [Link](https://onefootball.com/fr/news/se-donner-de-lair-avant-la-treve-40131303)
+
+
+### kaïs saïed (N/A, Sun, 6 Oct 2024 09:10:00 -0700)
+
+- **Présidentielle en Tunisie: Les électeurs devant une réélection "par défaut" 
+de Kais Saied**: [Link](https://fr.hespress.com/389373-presidentielle-en-tunisie-les-electeurs-devant-une-reelection-par-defaut-de-kais-saied.html)
+- **Déçus de la politique, les jeunes Tunisiens veulent massivement quitter le 
+pays**: [Link](https://medias24.com/agence-presse/decus-de-la-politique-les-jeunes-tunisiens-veulent-massivement-quitter-le-pays/)
+- **Tunisie : Kais Saeid ultra-favori d'une présidentielle à trois candidats**: [Link](https://www.leconomiste.com/flash-infos/tunisie-kais-saeid-ultra-favori-d-une-presidentielle-trois-candidats)
+
+
 ### آينتراخت ضد البايرن (N/A, Sun, 6 Oct 2024 08:50:00 -0700)
 
 - **الدورة السادسة تعيد ادم ازنو لاول مرة مع البايرن**: [Link](https://www.almountakhab.com/node/16205132)
