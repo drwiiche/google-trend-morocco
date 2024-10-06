@@ -1,3 +1,11 @@
+### real sociedad – atlético madrid (N/A, Sun, 6 Oct 2024 11:00:00 -0700)
+
+- **Simeone se refuerza con un central de confianza de la cantera para San 
+Sebastián**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20241006/1002328769/simeone-refuerza-central-confianza-cantera-san-sebastian.html)
+- **Reaccionar, cauterizar**: [Link](https://as.com/futbol/primera/reaccionar-cauterizar-n/)
+- **Sorloth y Griezmann: amenazas Reales**: [Link](https://www.marca.com/futbol/atletico/2024/10/06/67019769268e3e012d8b4599.html)
+
+
 ### rca (N/A, Sun, 6 Oct 2024 10:30:00 -0700)
 
 - **Șofer beat, fără permis, cu mașină cu ITP expirată și fără RCA depistat de 
