@@ -1,3 +1,10 @@
+### dani carvajal blessure (N/A, Sun, 6 Oct 2024 03:00:00 -0700)
+
+- **Real Madrid : le verdict est tombé pour Dani Carvajal**: [Link](https://www.footmercato.net/a5923014680711401653-real-madrid-le-verdict-est-tombe-pour-dani-carvajal)
+- **Liga | Grave blessure pour Dani Carvajal, gros coup dur pour le Real Madrid**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-grave-blessure-pour-dani-carvajal-gros-coup-dur-pour-le-real-madrid_sto20043022/story.shtml)
+- **Real Madrid-Villarreal: les terribles images de Carvajal, qui hurle de douleur après une grave lésion au...**: [Link](https://rmcsport.bfmtv.com/football/liga/real-madrid-villarreal-les-terribles-images-de-carvajal-qui-hurle-de-douleur-apres-une-grave-lesion-au-genou_AV-202410050447.html)
+
+
 ### the platform 2 (N/A, Sat, 5 Oct 2024 18:00:00 -0700)
 
 - **My favorite Netflix movie just got a sequel — and this dark thriller is 
