@@ -1,3 +1,20 @@
+### بلقيس (N/A, Sun, 6 Oct 2024 10:00:00 -0700)
+
+- **بلقيس فتحي تضجّ أنوثةً بالأبيض الساحر**: [Link](https://www.lahamag.com/article/215503-%D8%A8%D9%84%D9%82%D9%8A%D8%B3-%D9%81%D8%AA%D8%AD%D9%8A-%D8%AA%D8%B6%D8%AC-%D8%A3%D9%86%D9%88%D8%AB%D8%A9-%D8%A8%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D8%B1)
+- **نجمة مشهورة في الوسط الفني بصوتها العذب.. الفنانة بلقيس أحمد فتحي ومسيرتها 
+الفنية ونجاحاتها وحياتها الخاصة**: [Link](https://gm.aarcegypt.org/%D9%86%D8%AC%D9%85%D8%A9-%D9%85%D8%B4%D9%87%D9%88%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%81%D9%86%D9%8A-%D8%A8%D8%B5%D9%88%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%B9%D8%B0/)
+- **الفنانة بلقيس تخطف الأنظار في أسبوع الموضة بباريس**: [Link](https://ar.hibapress.com/details-557582.html)
+
+
+### bundesliga (N/A, Sun, 6 Oct 2024 09:50:00 -0700)
+
+- **Fußball-Bundesliga: RB Leipzig springt an die Tabellenspitze – für zwei 
+Stunden**: [Link](https://www.spiegel.de/sport/fussball/fussball-bundesliga-rb-leipzig-springt-an-die-tabellenspitze-fuer-zwei-stunden-a-83f8dfae-da66-4c5d-8681-d4e832637caf)
+- **"Wir mussten ein bisschen zittern und leiden"**: [Link](https://rblive.de/news/rb-seit-17-spielen-ohne-niederlage-stimmen-zum-sieg-in-heidenheim-3928169)
+- **Einzelkritik: Welche Noten haben die FCH-Spieler für ihre Leistung gegen 
+Leipzig verdient?**: [Link](https://www.hz.de/sport/1-fc-heidenheim/einzelkritik-welche-noten-haben-die-fch-spieler-fuer-ihre-leistung-gegen-leipzig-verdient)
+
+
 ### la liga (N/A, Sun, 6 Oct 2024 08:00:00 -0700)
 
 - **Barcelona coach has two selection doubts heading into the Alaves clash**: [Link](https://barcauniversal.com/barcelona-coach-has-two-selection-doubts-heading-into-the-alaves-clash/)
