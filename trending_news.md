@@ -1,3 +1,11 @@
+### la liga (N/A, Sun, 6 Oct 2024 08:00:00 -0700)
+
+- **Barcelona coach has two selection doubts heading into the Alaves clash**: [Link](https://barcauniversal.com/barcelona-coach-has-two-selection-doubts-heading-into-the-alaves-clash/)
+- **Hansi Flick: Leadership and Diplomacy Amid the International Duty Workload**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/hansi-flick-leadership-and-diplomacy-amid-the-international-duty-workload-2024-10-05)
+- **Alavés 0-3 FC Barcelona: Lewandowski stars in a new 'dance' for the super 
+leader of LaLiga**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/alaves-0-3-fc-barcelona-lewandowski-stars-in-new-dance-for-the-super-leader-of-laliga_307743_102.html)
+
+
 ### abdelmadjid tebboune (N/A, Sun, 6 Oct 2024 09:30:00 -0700)
 
 - **Abdelmajid Tebboune, maestro de l'absurde et du ridicule**: [Link](https://fr.hespress.com/389398-abdelmajid-tebboune-maestro-de-labsurde-et-du-ridicule.html)
