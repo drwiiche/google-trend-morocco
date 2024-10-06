@@ -1,3 +1,11 @@
+### ufc (N/A, Sat, 5 Oct 2024 17:10:00 -0700)
+
+- **Prelim Results | UFC 307: Pereira vs Rountree Jr.**: [Link](https://www.ufc.com/news/prelim-results-highlights-winner-interviews-ufc-307-pereira-vs-rountree-jr)
+- **What UK time is UFC 307 tonight? Full fight card, start time and live stream**: [Link](https://www.mirror.co.uk/sport/other-sports/mma/what-uk-time-ufc-307-33821589)
+- **UFC 307 odds, predictions, time, Salt Lake City fight card: Pereira vs. 
+Rountree picks by proven MMA expert**: [Link](https://www.cbssports.com/mma/news/ufc-307-odds-predictions-time-salt-lake-city-fight-card-pereira-vs-rountree-picks-by-proven-mma-expert/)
+
+
 ### silent hill 2 remake (N/A, Sat, 5 Oct 2024 16:10:00 -0700)
 
 - **Silent Hill 2 Remake Endings: How To Unlock All Endings, Including New Ones**: [Link](https://www.gamespot.com/gallery/silent-hill-2-remake-endings-how-to-unlock-all-endings-including-new-ones/2900-5831/)
