@@ -1,3 +1,10 @@
+### yacine adli (N/A, Sun, 6 Oct 2024 13:20:00 -0700)
+
+- **Yacine Adli returns to haunt Milan for Fiorentina 👻**: [Link](https://sports.yahoo.com/yacine-adli-returns-haunt-milan-193800417.html)
+- **CM: A battle with ‘brothers’ – opportunity arises for Adli against parent club**: [Link](https://sempremilan.com/cm-battle-brothers-opportunity-adli)
+- **Palladino: "Yacine Adli has performed well. Tonight is important for him"**: [Link](https://milanreports.com/2024/10/06/palladino-yacine-adli/)
+
+
 ### فيورنتينا ضد ميلان (N/A, Sun, 6 Oct 2024 12:50:00 -0700)
 
 
