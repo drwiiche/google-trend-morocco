@@ -1,3 +1,17 @@
+### deportivo alavés – barcelone (N/A, Sun, 6 Oct 2024 06:20:00 -0700)
+
+- **Alavés - Barcelona en directo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/alaves-barcelona/2024/10/06/01_0101_20241006_173_178-directo.html)
+- **El once del Barça ante el Alavés, con una única duda**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241006/1002328554/once-barca-alaves-unica-duda.html)
+- **Flick: “Szczesny estará listo después del parón”**: [Link](https://as.com/futbol/fc-barcelona/flick-szczesny-estara-listo-despues-del-paron-n/)
+
+
+### lyon – nantes (N/A, Sun, 6 Oct 2024 06:20:00 -0700)
+
+- **DIRECT. OL-Nantes (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/lyon-nantes-live/655912)
+- **Nantes : Kombouaré et le vice des Lyonnais**: [Link](https://m.maxifoot.fr/nantes/kombouare-et-le-vice-des-lyonnais-foot-420625.htm)
+- **FC Nantes. Seulement 19 Canaris, première de Sékou Doucoure . Sport**: [Link](https://angers.maville.com/sport/detail_-fc-nantes.-seulement-19-canaris-premiere-de-sekou-doucoure-_-6494599_actu.Htm)
+
+
 ### aston villa – manchester united (N/A, Sun, 6 Oct 2024 05:10:00 -0700)
 
 - **Preview: Aston Villa vs. Manchester United - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-utd/preview/preview-aston-villa-vs-man-utd-prediction-team-news-lineups_554670.html)
