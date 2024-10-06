@@ -1,3 +1,44 @@
+### برشلونة (N/A, Sun, 6 Oct 2024 08:00:00 -0700)
+
+- **فليك يعلن موقف تشيزني من لقاء ألافيس**: [Link](https://www.kooora.com/?n=1359382)
+- **مباشر.. برشلونة ضد ألافيس (3-0) في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/6/deportivo-alaves-vs-barcelona?update=6943128)
+- **سبب إلغاء تيفو جمهور ألافيس أمام برشلونة**: [Link](https://hihi2.com/2024/10/06/p2878016.html)
+
+
+### terrifier 3 (N/A, Sun, 6 Oct 2024 08:00:00 -0700)
+
+- **First Terrifier 3 screening had nine confirmed walk outs during opening 
+scenes so sadistic Hollywood refused to fund it**: [Link](https://www.ladbible.com/entertainment/film/terrifier-3-walk-out-screening-reaction-326221-20241003)
+- **'Traumatizing' horror sequel leaves moviegoers vomiting in theatres after 
+the last film caused mass walkouts a**: [Link](https://www.dailymail.co.uk/tvshowbiz/article-13922187/horror-sequel-terrifier-3-vomiting-theatres-film-mass-walkouts-puking.html)
+- **France’s classification body slaps under-18s ban on ‘Terrifier 3’ in first 
+ruling of its kind in nearly 20 years**: [Link](https://www.imdb.com/news/ni64867996/?ref_=nwc_art_plk)
+
+
+### barca (N/A, Sun, 6 Oct 2024 07:50:00 -0700)
+
+- **Barcelona coach has two selection doubts heading into the Alaves clash**: [Link](https://barcauniversal.com/barcelona-coach-has-two-selection-doubts-heading-into-the-alaves-clash/)
+- **Hansi Flick: Leadership and Diplomacy Amid the International Duty Workload**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/hansi-flick-leadership-and-diplomacy-amid-the-international-duty-workload-2024-10-05)
+- **La Liga Soccer Livestream: How to Watch Alaves vs. Barcelona From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-alaves-vs-barcelona-from-anywhere/)
+
+
+### eintracht francfort – bayern (N/A, Sun, 6 Oct 2024 07:50:00 -0700)
+
+- **Eine fatale FC-Bayern-Panne, die auch Uli Hoeneß peinlich war**: [Link](https://www.sport1.de/news/fussball/bundesliga/2024/10/die-womoglich-peinlichste-niederlage-des-fc-bayern)
+- **(S+) Eintracht-Frankfurt-Kapitän Robin Koch: »Beim Trashtalk bin ich 
+intensiv dabei«**: [Link](https://www.spiegel.de/sport/eintracht-frankfurt-kapitaen-robin-koch-beim-trashtalk-bin-ich-intensiv-dabei-a-8175f8c3-7a49-4bf1-881a-533099dcd9d7)
+- **#SGEFCB – Die Chance auf mehr**: [Link](https://onefootball.com/de/news/sgefcb-die-chance-auf-mehr-40133414)
+
+
+### brighton – tottenham (N/A, Sun, 6 Oct 2024 07:50:00 -0700)
+
+- **Brighton vs Spurs | Talking tactics, with Rob Daly**: [Link](https://www.tottenhamhotspur.com/news/2024/october/brighton-vs-spurs-talking-tactics-with-rob-daly/)
+- **Brighton vs Tottenham Bet Builder Tips: Welbeck backed in Maccas's 21/10 
+play**: [Link](https://www.oddschecker.com/tips/football/20241006-brighton-vs-tottenham-bet-builder-tips-welbeck-backed-in-maccass-21-10-play)
+- **How to watch today's Brighton vs Tottenham Premier League game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en-om/news/watch-brighton-vs-tottenham-premier-league-live-stream-tv/blt31f2844deb61cd71)
+
+
 ### vinicius júnior (N/A, Sun, 6 Oct 2024 07:40:00 -0700)
 
 - **Vinícius Júnior lesiona o ombro e pode ser cortado da Seleção Brasileira**: [Link](https://onefootball.com/de/news/vinicius-junior-lesiona-o-ombro-e-pode-ser-cortado-da-selecao-brasileira-40134487)
