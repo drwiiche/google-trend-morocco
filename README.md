@@ -1,3 +1,26 @@
+### galatasaray – alanyaspor (N/A, Sun, 6 Oct 2024 08:20:00 -0700)
+
+- **Süper Lig'de günün VAR hakemleri belli oldu - Futbol Haberleri**: [Link](https://m.haberturk.com/super-lig-de-gunun-var-hakemleri-belli-oldu-3726127-spor)
+- **CANLI İZLE| Galatasaray-Alanyaspor maçı canlı yayın (Galatasaray-Alanyaspor 
+canlı anlatım ve canlı skor)**: [Link](https://www.fanatik.com.tr/galatasaray/canli-izle-galatasaray-alanyaspor-maci-canli-yayin-galatasaray-alanyaspor-canli-anlatim-ve-canli-skor-2560054)
+- **Aslan, evinde moral arıyor - Futbol Haberleri**: [Link](https://www.cnnturk.com/spor/futbol/live-galatasaray-alanyaspor-maci-izle-galatasaray-alanyaspor-maci-sifresiz-izle-bein-sports-izle-2162936)
+
+
+### lewandowski (N/A, Sun, 6 Oct 2024 08:20:00 -0700)
+
+- **Robert Lewandowski się bawi. Jubileuszowy gol, a zaraz potem drugi i trzeci 
+[WIDEO]**: [Link](https://transfery.info/aktualnosci/robert-lewandowski-sie-bawi-jubileuszowy-gol-a-zaraz-potem-drugi-i-trzeci-wideo/224837)
+- **Wątpliwości? Żadnych. "Lewy" pobił wyjątkowy rekord**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1148270/lewandowski-zamknal-im-usta-teraz-nikt-nie-ma-watpliwosci)
+- **Tym razem nie czas na rotacje**: [Link](https://www.fcbarca.com/121327-tym-razem-nie-czas-na-rotacje.html)
+
+
+### brazil vs argentina futsal (N/A, Sun, 6 Oct 2024 08:20:00 -0700)
+
+- **Brazil v Argentina | Final | FIFA Futsal World Cup Uzbekistan 2024™**: [Link](https://www.plus.fifa.com/en/content/brazil-v-argentina-final-fifa-futsal-world-cup-uzbekistan-2024tm-2024/9a11210d-0691-4c63-9959-111ce07ee08a)
+- **Brazil v Argentina preview | Uzbekistan 2024 final**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/brazil-argentina-final-preview-highlights)
+- **Falcao on Brazil-Argentina rivalry, Dyego, Lino & the final**: [Link](https://www.fifa.com/en/tournaments/mens/futsalworldcup/uzbekistan-2024/articles/falcao-interview-brazil-argentina-final)
+
+
 ### برشلونة (N/A, Sun, 6 Oct 2024 08:00:00 -0700)
 
 - **فليك يعلن موقف تشيزني من لقاء ألافيس**: [Link](https://www.kooora.com/?n=1359382)
