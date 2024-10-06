@@ -1,3 +1,9 @@
+### hicham boudaoui (N/A, Sun, 6 Oct 2024 13:40:00 -0700)
+
+- **Rafik Saïfi et Tarak Dhiab plaident pour Hicham Boudaoui**: [Link](https://lagazettedufennec.com/rafik-saifi-et-tarak-dhiab-plaident-pour-hicham-boudaoui/)
+- **Rafik Saifi file un conseil en or à Vladimir Petkovic**: [Link](https://fennecfootball.com/rafik-saifi-file-un-conseil-en-or-a-vladimir-petkovic/)
+
+
 ### البطولة المغربية (N/A, Sun, 6 Oct 2024 12:10:00 -0700)
 
 - **صحوة الرجاء تتواصل أمام الزمامرة**: [Link](https://www.hespress.com/%D8%B5%D8%AD%D9%88%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%AA%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%85%D8%B1%D8%A9-1443264.html)
