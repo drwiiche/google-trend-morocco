@@ -1,3 +1,17 @@
+### botola (N/A, Sun, 6 Oct 2024 11:30:00 -0700)
+
+- **Huis clos : Mokwena jette un pavé dans la mare**: [Link](https://lematin.ma/sports/huis-clos-mokwena-jette-un-pave-dans-la-mare/245872)
+- **Botola Pro D1 Inwi: le Hassania et le Wydad se quittent bons amis**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-hassania-et-le-wydad-se-quittent-bons-amis_65NFUMA6OZFEBDDHWLO6HJQRYA/)
+- **Botola Pro D1 : le CODM remporte le clasico, le HUSA et le WAC dos à dos**: [Link](https://www.menara.ma/fr/article/botola-pro-d1-le-codm-remporte-le-clasico-le-husa-et-le-wac-dos-a-dos)
+
+
+### عمر مرموش (N/A, Sun, 6 Oct 2024 11:00:00 -0700)
+
+- **بالصور: مرموش يحرم بايرن ميونخ من الفوز**: [Link](https://www.kooora.com/?n=1359632)
+- **البايرن ضحية مفضلة لمرموش في أخر موسمين**: [Link](https://hihi2.com/2024/10/06/p2878631.html)
+- **سجل ثنائية وصنع آخر.. المصري مرموش ينقذ فرانكفورت من الخسارة ضد بايرن ميونخ**: [Link](https://www.aljazeera.net/sport/2024/10/6/omar-marmoush)
+
+
 ### raja casablanca (N/A, Sun, 6 Oct 2024 11:20:00 -0700)
 
 - **Le Raja en pourparlers avec Houcine Ammouta ? Le vrai du faux**: [Link](https://www.lesiteinfo.com/sport/628913-le-raja-en-pourparlers-avec-houcine-ammouta-le-vrai-du-faux.html)
