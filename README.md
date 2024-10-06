@@ -1,3 +1,19 @@
+### séville – betis (N/A, Sun, 6 Oct 2024 08:40:00 -0700)
+
+- **Preview: Sevilla vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sevilla/seville-derby/preview/preview-sevilla-vs-betis-prediction-team-news-lineups_554687.html)
+- **Manuel Pellegrini Anticipates Derby Against Sevilla: "It’s Important to 
+Keep a Warm Heart and a Cool Head"**: [Link](https://www.footboom1.com/en/news/football/1896997-manuel-pellegrini-anticipates-derby-against-sevilla-it-s-important-to-keep-a-warm-heart-and-a-cool-head)
+- **Real Betis coach Pellegrini: We must control emotions facing Sevilla**: [Link](https://www.tribalfootball.com/article/soccer-laliga-real-betis-coach-pellegrini-we-must-control-emotions-facing-sevilla-902529ab-9776-4ad0-980c-00daecbe6a35)
+
+
+### alaves (N/A, Sun, 6 Oct 2024 08:40:00 -0700)
+
+- **Injury problems continue for Barcelona as attacker forced off early on 
+against Alaves**: [Link](https://sports.yahoo.com/injury-problems-continue-barcelona-attacker-150000730.html)
+- **INJURED: Ferran Torres breaks down after 3 minutes!**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/injured-ferran-torres-breaks-down-after-3-minutes_307742_102.html)
+- **Barcelona coach has two selection doubts heading into the Alaves clash**: [Link](https://barcauniversal.com/barcelona-coach-has-two-selection-doubts-heading-into-the-alaves-clash/)
+
+
 ### galatasaray – alanyaspor (N/A, Sun, 6 Oct 2024 08:20:00 -0700)
 
 - **Süper Lig'de günün VAR hakemleri belli oldu - Futbol Haberleri**: [Link](https://m.haberturk.com/super-lig-de-gunun-var-hakemleri-belli-oldu-3726127-spor)
