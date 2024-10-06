@@ -1,3 +1,10 @@
+### vinicius júnior (N/A, Sun, 6 Oct 2024 07:40:00 -0700)
+
+- **Vinícius Júnior lesiona o ombro e pode ser cortado da Seleção Brasileira**: [Link](https://onefootball.com/de/news/vinicius-junior-lesiona-o-ombro-e-pode-ser-cortado-da-selecao-brasileira-40134487)
+- **Real confirma lesões: Carvajal perde temporada, Vini preocupa seleção**: [Link](https://www.ogol.com.br/noticias/real-confirma-lesoes-carvajal-perde-temporada-vini-preocupa-selecao/686424)
+- **Vinicius Júnior sofre lesão cervical e pode desfalcar seleção**: [Link](https://jovempan.com.br/esportes/futebol/vinicius-junior-sofre-lesao-cervical-e-pode-desfalcar-selecao.html)
+
+
 ### manchester united (N/A, Sun, 6 Oct 2024 07:30:00 -0700)
 
 - **Gary Neville claims it 'feels like the end' for Ten Hag after 'dumping' Man 
