@@ -1,3 +1,11 @@
+### fiorentina vs milan (N/A, Sun, 6 Oct 2024 14:40:00 -0700)
+
+- **European football: De Gea’s penalty saves help Fiorentina beat Milan**: [Link](https://www.theguardian.com/football/2024/oct/06/european-football-girona-juventus-eintracht-bayern-barcelona-psg)
+- **Video: Maignan and De Gea both save penalties in frantic first half**: [Link](https://football-italia.net/video-maignan-and-de-gea-both-save-penalties/)
+- **VIDEO: Christian Pulisic scores stunning volley as USMNT star continues 
+incredible season with Milan**: [Link](https://www.goal.com/en-us/lists/video-christian-pulisic-scores-stunning-volley-as-usmnt-star-continues-incredible-season-with-milan/blt36461528293546a8)
+
+
 ### sammy basso (N/A, Sun, 6 Oct 2024 14:20:00 -0700)
 
 - **È morto Sammy Basso, il malato di progeria più longevo al mondo aveva 28 
