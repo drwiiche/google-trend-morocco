@@ -1,3 +1,12 @@
+### the platform 2 (N/A, Sat, 5 Oct 2024 18:00:00 -0700)
+
+- **My favorite Netflix movie just got a sequel — and this dark thriller is 
+just as delicious as the first**: [Link](https://www.tomsguide.com/entertainment/netflix/my-favorite-netflix-movie-just-got-a-sequel-and-this-dark-thriller-is-just-as-delicious-as-the-first)
+- **The Platform 2 Ending Explained: What Happens To Perempuan?**: [Link](https://screenrant.com/the-platform-2-ending-explained/)
+- **The Platform 2: Release date, plot, cast and more about the Spanish horror 
+sci-fi film**: [Link](https://www.soapcentral.com/entertainment/the-platform-2-release-date-plot-cast-spanish-horror-sci-fi-film)
+
+
 ### ufc (N/A, Sat, 5 Oct 2024 17:10:00 -0700)
 
 - **Prelim Results | UFC 307: Pereira vs Rountree Jr.**: [Link](https://www.ufc.com/news/prelim-results-highlights-winner-interviews-ufc-307-pereira-vs-rountree-jr)
