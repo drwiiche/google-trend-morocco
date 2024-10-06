@@ -1,3 +1,10 @@
+### girona – ath. bilbao (N/A, Sun, 6 Oct 2024 04:20:00 -0700)
+
+- **La sorpresa que prepara el Athletic**: [Link](https://www.estadiodeportivo.com/futbol/athletic-club-bilbao/sorpresa-que-prepara-athletic-20241004-466442.html)
+- **Míchel y Valverde introducen tres y cinco novedades**: [Link](https://www.infobae.com/america/agencias/2024/10/06/michel-y-valverde-introducen-tres-y-cinco-novedades/)
+- **"Debemos convertir en puntos las buenas sensaciones"**: [Link](https://onefootball.com/id/berita/debemos-convertir-en-puntos-las-buenas-sensaciones-40129956)
+
+
 ### لائحة العطل 2025 بالمغرب (N/A, Sun, 6 Oct 2024 03:20:00 -0700)
 
 - **تفاصيل أول عطلة مدرسية بالمغرب خلال هذا الشهر**: [Link](https://m.alayam24.com/articles-530563.html)
