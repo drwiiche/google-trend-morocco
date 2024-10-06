@@ -1,3 +1,11 @@
+### sammy basso (N/A, Sun, 6 Oct 2024 14:20:00 -0700)
+
+- **È morto Sammy Basso, il malato di progeria più longevo al mondo aveva 28 
+anni: ha avuto un malore al ristorante**: [Link](https://corrieredelveneto.corriere.it/notizie/vicenza/cronaca/24_ottobre_06/e-morto-sammy-basso-ha-avuto-un-malore-al-ristorante-a-28-anni-era-il-malato-di-progeria-piu-longevo-al-mondo-721641e9-7a56-44f7-ad26-bf252f95cxlk.shtml)
+- **Carlo Conti, con Sammy Basso a Sanremo fu incontro fantastico**: [Link](https://www.ansa.it/sito/notizie/cultura/tv/2024/10/06/carlo-conti-con-sammy-basso-a-sanremo-fu-incontro-fantastico_3162af8b-a911-4d58-8416-c32dbb481274.html)
+- **ROSA’ | BUON COMPLEANNO SAMMY, GLI AUGURI ARRIVANO ANCHE DA JOVANOTTI**: [Link](https://reteveneta.medianordest.it/85677/rosa-buon-compleanno-sammy-gli-auguri-arrivano-anche-da-jovanotti/)
+
+
 ### ترتيب الدوري الفرنسي (N/A, Sun, 6 Oct 2024 13:50:00 -0700)
 
 - **حكيمي دائما رجل المباراة**: [Link](https://www.almountakhab.com/node/13205153)
