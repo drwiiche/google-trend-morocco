@@ -1,3 +1,20 @@
+### juventus – cagliari (N/A, Sun, 6 Oct 2024 03:10:00 -0700)
+
+- **L'Allianz Stadium spinge la Juve: contro il Cagliari terzo sold out 
+stagionale**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/06-10-2024/juventus-sold-out-contro-il-cagliari-e-il-terzo-della-stagione.shtml)
+- **Penna in Trasferta – Pastorella: “Motta e Nicola, tecnici portatori di 
+novità”**: [Link](https://www.calciocasteddu.it/2024/10/06/penna-in-trasferta-pastorella-motta-e-nicola-tecnici-portatori-di-novita/)
+- **SERIE A ENILIVE - VARIAZIONE DESIGNAZIONI 7a GIORNATA**: [Link](https://www.aia-figc.it/news/serie-a-enilive-variazione-designazioni-7a-giornata-23307/)
+
+
+### alex pereira (N/A, Sat, 5 Oct 2024 21:40:00 -0700)
+
+- **Main Card Results | UFC 307: Pereira vs Rountree Jr.**: [Link](https://www.ufc.com/news/main-card-results-highlights-winner-interviews-ufc-307-pereira-vs-rountree-jr)
+- **UFC 307 post-fight press conference video**: [Link](https://www.mmafighting.com/2024/10/6/24263132/ufc-307-post-fight-press-conference-video)
+- **Alex Pereira retains light heavyweight championship with victory against 
+Khalil Rountree Jr at UFC 307 in Salt Lake City**: [Link](https://www.eurosport.com/mixed-martial-arts/ufc/2024/alex-pereira-light-heavyweight-championship-ufc-khalil-rountree-jr_sto20043026/story.shtml)
+
+
 ### dani carvajal blessure (N/A, Sun, 6 Oct 2024 03:00:00 -0700)
 
 - **Real Madrid : le verdict est tombé pour Dani Carvajal**: [Link](https://www.footmercato.net/a5923014680711401653-real-madrid-le-verdict-est-tombe-pour-dani-carvajal)
