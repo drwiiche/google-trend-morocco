@@ -1,3 +1,10 @@
+### لائحة العطل 2025 بالمغرب (N/A, Sun, 6 Oct 2024 03:20:00 -0700)
+
+- **تفاصيل أول عطلة مدرسية بالمغرب خلال هذا الشهر**: [Link](https://m.alayam24.com/articles-530563.html)
+- **عطلة جديدة للتلاميذ والأطر التربوية في المغرب**: [Link](https://www.akhbarona.com/education/393079.html)
+- **لائحة العطل المدرسية 2025/2024 بالمغرب**: [Link](https://www.barlamane.com/school-holidays-list/)
+
+
 ### juventus – cagliari (N/A, Sun, 6 Oct 2024 03:10:00 -0700)
 
 - **L'Allianz Stadium spinge la Juve: contro il Cagliari terzo sold out 
