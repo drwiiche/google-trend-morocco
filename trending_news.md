@@ -1,3 +1,19 @@
+### weather (N/A, Sun, 6 Oct 2024 23:00:00 -0700)
+
+- **MEMORANDUM: EXECUTIVE ORDER NUMBER 24-215 (Emergency Management -Amending 
+Executive Order 24-214 – Tropical Storm Milton)**: [Link](https://www.flgov.com/2024/10/06/memorandum-executive-order-number-24-215-emergency-management-amending-executive-order-24-214-tropical-storm-milton/)
+- **Hurricane Milton could make landfall in Florida as Category 3 storm**: [Link](https://www.nbcnews.com/news/weather/hurricane-milton-rcna174166)
+- **Polk County Public Schools Cancel Tuesday-Thursday Classes Ahead of 
+Hurricane Milton**: [Link](https://www.lkldnow.com/polk-county-public-schools-cancel-tuesday-thursday-classes-ahead-of-hurricane-milton/)
+
+
+### ali abdi (N/A, Sun, 6 Oct 2024 12:40:00 -0700)
+
+- **Luis Enrique optimistic about PSG's unbeaten run despite draw at Nice**: [Link](https://www.channelnewsasia.com/sport/luis-enrique-optimistic-about-psgs-unbeaten-run-despite-draw-nice-4662161)
+- **Niza - Paris Saint-Germain live**: [Link](https://www.marca.com/en/soccer/ligue-1/niza-paris-saint-germain/2024/10/06/01_0109_20241006_1395_149-live.html)
+- **Lyon extends winning run with 2-0 defeat of Nantes in French league**: [Link](https://apnews.com/article/soccer-french-roundup-psg-nice-c98b5cb191809bf23c0513f5887afa40)
+
+
 ### psg (N/A, Sun, 6 Oct 2024 13:10:00 -0700)
 
 - **Nice-PSG: Luis Enrique dénonce "l'agression" de Dante sur Hakimi**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/nice-psg-luis-enrique-denonce-l-agression-de-dante-sur-hakimi_AP-202410060464.html)
