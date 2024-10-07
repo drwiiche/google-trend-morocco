@@ -1,3 +1,11 @@
+### psg (N/A, Sun, 6 Oct 2024 13:10:00 -0700)
+
+- **Nice-PSG: Luis Enrique dénonce "l'agression" de Dante sur Hakimi**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/nice-psg-luis-enrique-denonce-l-agression-de-dante-sur-hakimi_AP-202410060464.html)
+- **Un joueur parisien agressé à Nice**: [Link](https://www.sports.fr/football/psg/un-joueur-parisien-agresse-a-nice-871419.html)
+- **Nice-PSG: furieux après une faute de Dante, Hakimi a frôlé l’exclusion en 
+première période**: [Link](https://fr.news.yahoo.com/sport/nice-psg-furieux-apr%C3%A8s-faute-200027957.html)
+
+
 ### hicham boudaoui (N/A, Sun, 6 Oct 2024 13:40:00 -0700)
 
 - **Rafik Saïfi et Tarak Dhiab plaident pour Hicham Boudaoui**: [Link](https://lagazettedufennec.com/rafik-saifi-et-tarak-dhiab-plaident-pour-hicham-boudaoui/)
