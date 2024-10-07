@@ -1,3 +1,11 @@
+### palestine (N/A, Mon, 7 Oct 2024 12:40:00 -0700)
+
+- **Tens of thousands of Moroccans protest ties with Israel on eve of Oct. 7 
+anniversary**: [Link](https://www.timesofisrael.com/tens-of-thousands-of-moroccans-protest-ties-with-israel-on-eve-of-oct-7-anniversary/)
+- **One Year After October 7: Moroccan Jews in Israel Caught Between Two Worlds**: [Link](https://www.moroccoworldnews.com/2024/10/365621/one-year-after-october-7-moroccan-jews-in-israel-caught-between-two-worlds)
+- **Media rebrands Oct. 7 terror celebrations ‘pro-Palestinian rallies’**: [Link](https://www.jns.org/media-rebrands-oct-7-terror-celebrations-pro-palestinian-rallies/)
+
+
 ### johan neeskens (N/A, Mon, 7 Oct 2024 11:40:00 -0700)
 
 - **Oud-voetballer Johan Neeskens (73) overleden**: [Link](https://nos.nl/l/2539944)
