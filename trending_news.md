@@ -1,3 +1,11 @@
+### youssef belammari (N/A, Mon, 7 Oct 2024 10:10:00 -0700)
+
+- **Eliminatoires CAN Maroc-2025 (Maroc-Centrafrique) : lancement de la 
+billetterie**: [Link](https://frmf.ma/fr/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86-8/)
+- **Lions de l’Atlas : qui pour remplacer Noussair Mazraoui ?**: [Link](https://www.lesiteinfo.com/sport/628963-lions-de-latlas-qui-pour-remplacer-noussair-mazraoui.html)
+- **Equipe du Maroc : des convocations qui font débat**: [Link](https://www.bladi.net/equipe-maroc-convocations-qui-font-debat,110873.html)
+
+
 ### erik ten hag (N/A, Mon, 7 Oct 2024 06:50:00 -0700)
 
 - **Erik ten Hag: Has Manchester United manager done enough to avoid the sack?**: [Link](https://www.bbc.com/sport/football/articles/cd0zydxrpl8o)
