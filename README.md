@@ -1,3 +1,10 @@
+### ريكاردو سابينتو (N/A, Mon, 7 Oct 2024 14:00:00 -0700)
+
+- **الرجاء يتفق مع المدرب البرتغالي سابينتو**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AA%D9%81%D9%82-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D8%B3%D8%A7%D8%A8%D9%8A%D9%86-1443878.html)
+- **ريكاردو سابينتو مدربا جديدا للرجاء**: [Link](https://www.almountakhab.com/node/16205187)
+- **استمرار عبد الكريم جيناني في الرجاء: مصدر يوضح**: [Link](https://sport.lesiteinfo.com/elbotola/446799.html)
+
+
 ### ريكاردو سا بينتو (N/A, Mon, 7 Oct 2024 14:00:00 -0700)
 
 - **استمرار عبد الكريم جيناني في الرجاء: مصدر يوضح**: [Link](https://sport.lesiteinfo.com/elbotola/446799.html)
