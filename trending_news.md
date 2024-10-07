@@ -1,3 +1,17 @@
+### العطل المدرسية 2024 (N/A, Sun, 6 Oct 2024 23:00:00 -0700)
+
+- **تفاصيل أول عطلة مدرسية لهذا الموسم**: [Link](https://www.analkhabar.com/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A3%D9%88%D9%84-%D8%B9%D8%B7%D9%84%D8%A9-%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-%D9%84%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85/)
+- **تفاصيل أول عطلة مدرسية بالمغرب خلال هذا الشهر**: [Link](https://www.alayam24.com/articles-530563.html)
+- **عطلة جديدة للتلاميذ والأطر التربوية في المغرب**: [Link](https://www.akhbarona.com/education/393079.html)
+
+
+### سامي باسو (N/A, Sun, 6 Oct 2024 17:40:00 -0700)
+
+- **وفاة سامي باسو عن 28 عاما.. المصاب بالشيخوخة المبكرة**: [Link](https://www.skynewsarabia.com/varieties/1746490-%D9%88%D9%81%D8%A7%D8%A9-%D8%B3%D8%A7%D9%85%D9%8A-%D8%A8%D8%A7%D8%B3%D9%88-28-%D8%B9%D8%A7%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D8%A8-%D8%A8%D8%A7%D9%84%D8%B4%D9%8A%D8%AE%D9%88%D8%AE%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D9%83%D8%B1%D8%A9)
+- **الأكبر سنا في العالم بين المصابين بمرض الشيخوخة المبكرة توفي عن 28 عاما**: [Link](https://ar.hibapress.com/details-559113.html)
+- **وفاة المصاب بالشيخوخة المبكرة الأطول عمراً عن 28 عاماً**: [Link](https://aawsat.com/%D8%B5%D8%AD%D8%AA%D9%83/5068305-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D8%A8-%D8%A8%D8%A7%D9%84%D8%B4%D9%8A%D8%AE%D9%88%D8%AE%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D8%B7%D9%88%D9%84-%D8%B9%D9%85%D8%B1%D8%A7%D9%8B-%D8%B9%D9%86-28-%D8%B9%D8%A7%D9%85%D8%A7%D9%8B)
+
+
 ### sammy basso progeria (N/A, Mon, 7 Oct 2024 00:30:00 -0700)
 
 - **Sammy Basso, progeria advocate, has died at 28**: [Link](https://www.statnews.com/2024/10/06/sammy-basso-obituary-progeria-activism/)
