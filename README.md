@@ -1,3 +1,11 @@
+### caf champions league (N/A, Mon, 7 Oct 2024 05:30:00 -0700)
+
+- **Draw Procedure for the 2024/25 TotalEnergies CAF Champions League Group 
+Stage Announced**: [Link](https://www.cafonline.com/caf-champions-league/news/draw-procedure-for-the-202425-totalenergies-caf-champions-league-group-stage-announced/)
+- **CAF Champions League (Group Stage) Draw: MCA in Pot 4, CRB in Pot 2**: [Link](https://al24news.com/en/caf-champions-league-group-stage-draw-mca-in-pot-4-crb-in-pot-2/)
+- **Official: CAFCL Groups Announced!**: [Link](https://www.snl24.com/soccerladuma/international/african-football/caf-champions-league-groups-confirmed-20241007)
+
+
 ### دوري ابطال افريقيا (N/A, Mon, 7 Oct 2024 04:50:00 -0700)
 
 - **مباشر.. قرعة دور المجموعات لدوري أبطال أفريقيا**: [Link](https://www.kooora.com/?n=1359753)
