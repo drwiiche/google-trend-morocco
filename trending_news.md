@@ -1,3 +1,18 @@
+### دوري ابطال افريقيا (N/A, Mon, 7 Oct 2024 04:50:00 -0700)
+
+- **مباشر.. قرعة دور المجموعات لدوري أبطال أفريقيا**: [Link](https://www.kooora.com/?n=1359753)
+- **بركان تتعرف على منافسي "كأس الكاف"**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%AA%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%81-1443420.html)
+- **عاجل .. الرجاء والجيش في مجموعة واحدة بدوري أبطال إفريقيا!**: [Link](https://www.akhbarona.com/sport/footmarocain/393364.html)
+
+
+### caf (N/A, Mon, 7 Oct 2024 04:50:00 -0700)
+
+- **Countdown to TotalEnergies CAF Confederation Cup Group Stage Draw**: [Link](https://www.cafonline.com/caf-confederation-cup/news/countdown-to-totalenergies-caf-confederation-cup-group-stage-draw/)
+- **Nigerian Hopefuls Enyimba To Face CAF Cup Holders Zamalek**: [Link](https://www.barrons.com/news/nigerian-hopefuls-enyimba-to-face-caf-cup-holders-zamalek-3cfa119a)
+- **Enyimba drawn against Egyptian powerhouses in CAF Confederation Cup group 
+stage**: [Link](https://www.premiumtimesng.com/news/more-news/742722-enyimba-drawn-against-egyptian-powerhouses-in-caf-confederation-cup-group-stage.html)
+
+
 ### العطل المدرسية 2024 (N/A, Sun, 6 Oct 2024 23:00:00 -0700)
 
 - **تفاصيل أول عطلة مدرسية لهذا الموسم**: [Link](https://www.analkhabar.com/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A3%D9%88%D9%84-%D8%B9%D8%B7%D9%84%D8%A9-%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-%D9%84%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85/)
