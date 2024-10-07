@@ -1,3 +1,12 @@
+### maniema union (N/A, Mon, 7 Oct 2024 04:30:00 -0700)
+
+- **Ligue des champions: duel fratricide entre le Raja et l’AS FAR en phase de 
+groupes**: [Link](https://sport.le360.ma/football/ligue-des-champions-caf/ligue-des-champions-duel-fratricide-entre-le-raja-et-las-far-en-phase-de-groupes_C4X5QQ7HVFBOLFYSYAOM4UFSAE/)
+- **LDC CAF : Un choc Raja-AS FAR dès la phase de groupes**: [Link](https://www.leconomiste.com/flash-infos/ldc-caf-un-choc-raja-far-des-la-phase-de-groupes)
+- **Ligue des Champions (Phase de poules) : le Raja et l’AS FAR dans le même 
+groupe**: [Link](https://www.lesiteinfo.com/sport/628981-ligue-des-champions-phase-de-poules-le-raja-et-las-far-dans-le-meme-groupe.html)
+
+
 ### caf champions league (N/A, Mon, 7 Oct 2024 05:30:00 -0700)
 
 - **Draw Procedure for the 2024/25 TotalEnergies CAF Champions League Group 
