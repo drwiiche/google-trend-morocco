@@ -1,3 +1,11 @@
+### الطقس غدًا (N/A, Mon, 7 Oct 2024 13:00:00 -0700)
+
+- **هل يستمر الطقس الحار في الخريف؟ رد صادم من الأرصاد لمحبي الشتاء (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3276692)
+- **عاجل| ظاهرة جوية خطيرة تضرب البلاد خلال ساعات اليوم الاثنين.. تقلبات حادة 
+في الطقس**: [Link](https://www.pls48.net/uncategorized/30630.html)
+- **طقس الثلاثاء خريفي متقلب، بارد ليلا وشبورة مائية في الصباح وحار نهارا**: [Link](https://www.algomhor.com/article/143994/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%AE%D8%B1%D9%8A%D9%81%D9%8A-%D9%85%D8%AA%D9%82%D9%84%D8%A8%D8%8C-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%84%D9%8A%D9%84%D8%A7-%D9%88%D8%B4%D8%A8%D9%88%D8%B1%D8%A9)
+
+
 ### palestine (N/A, Mon, 7 Oct 2024 12:40:00 -0700)
 
 - **Tens of thousands of Moroccans protest ties with Israel on eve of Oct. 7 
