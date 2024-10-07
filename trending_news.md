@@ -1,3 +1,12 @@
+### johan neeskens (N/A, Mon, 7 Oct 2024 11:40:00 -0700)
+
+- **Oud-voetballer Johan Neeskens (73) overleden**: [Link](https://nos.nl/l/2539944)
+- **Oranje-icoon en doelpuntenmaker in WK-finale Johan Neeskens (73) plotseling 
+overleden**: [Link](https://www.ad.nl/nederlands-voetbal/oranje-icoon-en-doelpuntenmaker-in-wk-finale-johan-neeskens-73-plotseling-overleden~a66f1025/)
+- **Een van de sterren van het WK 1974 op wie de liefde van het volk zich 
+concentreerde**: [Link](https://www.volkskrant.nl/sport/een-van-de-sterren-van-het-wk-1974-op-wie-de-liefde-van-het-volk-zich-concentreerde~b15351df/)
+
+
 ### dani carvajal (N/A, Mon, 7 Oct 2024 11:20:00 -0700)
 
 - **Parte médico de Carvajal**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-de-carvajal-06-10-2024)
