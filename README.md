@@ -1,3 +1,27 @@
+### sammy basso progeria (N/A, Mon, 7 Oct 2024 00:30:00 -0700)
+
+- **Sammy Basso, progeria advocate, has died at 28**: [Link](https://www.statnews.com/2024/10/06/sammy-basso-obituary-progeria-activism/)
+- **Survivor of rare rapid-ageing disease progeria dies at 28**: [Link](https://www.channelnewsasia.com/world/sammy-basso-dies-age-28-progeria-genetic-disease-rapid-ageing-4661491)
+- **Survivor of rare rapid-ageing disease progeria dies at 28**: [Link](https://www.bangkokpost.com/world/2878543/survivor-of-rare-rapid-ageing-disease-progeria-dies-at-28)
+
+
+### ouragan kirk (N/A, Mon, 7 Oct 2024 00:00:00 -0700)
+
+- **Pluies battantes, vents violents… L’ouragan Kirk arrive sur la France**: [Link](https://www.20minutes.fr/societe/4113943-20241006-ouragan-kirk-pluie-battante-vents-violents-france-devrait-etre-touchee-mercredi-jeudi)
+- **Pluie et vent fort : la France va subir les restes de la tempête tropicale 
+Joyce et de l’ouragan Kirk**: [Link](https://www.leparisien.fr/meteo/pluie-et-vent-fort-la-france-va-subir-les-restes-de-la-tempete-tropicale-joyce-et-de-louragan-kirk-05-10-2024-BNPLRD4AKVGSNGOMEUSBS7IYVE.php)
+- **Ouragan Kirk : de fortes rafales de vent toucheront la France en milieu de 
+semaine**: [Link](https://www.lefigaro.fr/meteo/meteo-l-ouragan-kirk-devrait-toucher-la-france-en-milieu-de-semaine-20241006)
+
+
+### paris saint germain (N/A, Sun, 6 Oct 2024 14:00:00 -0700)
+
+- **PSG : les méthodes de Luis Enrique tétanisent son vestiaire !**: [Link](https://www.footmercato.net/a8715379871018729394-psg-les-methodes-de-luis-enrique-tetanisent-son-vestiaire)
+- **« Ce qu'il demande est la base du très haut niveau » : la méthode Luis 
+Enrique ne laisse personne indifférent (Ligue 1)**: [Link](https://www.lequipe.fr/Football/Article/-ce-qu-il-demande-est-la-base-du-tres-haut-niveau-la-methode-luis-enrique-ne-laisse-personne-indifferent/1512179)
+- **Point médical concernant Ousmane Dembélé**: [Link](https://www.psg.fr/equipes/equipe-premiere/content/point-medical-ogc-nice-paris-saint-germain-ligue-1-2024-2025)
+
+
 ### ligue 1 (N/A, Mon, 7 Oct 2024 00:10:00 -0700)
 
 - **OL 2-0 Nantes, Ligue 1 : résumé du match (06/10/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/lyon-nantes-live/655912)
