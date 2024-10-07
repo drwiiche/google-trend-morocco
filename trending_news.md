@@ -1,3 +1,10 @@
+### ligue 1 (N/A, Mon, 7 Oct 2024 00:10:00 -0700)
+
+- **OL 2-0 Nantes, Ligue 1 : résumé du match (06/10/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/lyon-nantes-live/655912)
+- **ANALYSE. Les Canaris battent de l’aile sur le terrain des Lyonnais . Sport**: [Link](https://nantes.maville.com/sport/detail_-analyse.-les-canaris-battent-de-l-aile-sur-le-terrain-des-lyonnais-_-6495530_actu.Htm)
+- **Galerie photos - Les images d'OL**: [Link](https://www.fcnantes.com/articles/article2809.php?num=45926)
+
+
 ### الطقس اليوم (N/A, Sun, 6 Oct 2024 23:10:00 -0700)
 
 - **هل يستمر الطقس الحار في الخريف؟ رد صادم من الأرصاد لمحبي الشتاء (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3276692)
