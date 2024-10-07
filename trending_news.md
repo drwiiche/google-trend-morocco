@@ -1,3 +1,11 @@
+### dani carvajal (N/A, Mon, 7 Oct 2024 11:20:00 -0700)
+
+- **Parte médico de Carvajal**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-de-carvajal-06-10-2024)
+- **El emocionante mensaje de Daphne Cañizares a Carvajal tras su grave lesión: 
+"Parece un mal sueño"**: [Link](https://www.marca.com/futbol/real-madrid/album/2024/10/07/67036f5c268e3e2a7b8b457e.html)
+- **El Real Madrid no se plantea fichar por la lesión de Carvajal**: [Link](https://as.com/futbol/primera/el-real-madrid-no-se-plantea-fichar-por-la-lesion-de-carvajal-n/)
+
+
 ### youssef belammari (N/A, Mon, 7 Oct 2024 10:10:00 -0700)
 
 - **Eliminatoires CAN Maroc-2025 (Maroc-Centrafrique) : lancement de la 
