@@ -1,3 +1,12 @@
+### erik ten hag (N/A, Mon, 7 Oct 2024 06:50:00 -0700)
+
+- **Erik ten Hag: Has Manchester United manager done enough to avoid the sack?**: [Link](https://www.bbc.com/sport/football/articles/cd0zydxrpl8o)
+- **Manchester United hierarchy to meet on Tuesday after Ratcliffe watches Ten 
+Hag’s side play Aston Villa - The Athletic**: [Link](https://www.nytimes.com/athletic/5818054/2024/10/04/man-utd-meeting-ten-hag-future/)
+- **Henry Winter delivers brutal take about 'loveless relationship' at Man Utd, 
+names only one 'true leader' at the club**: [Link](https://www.unitedinfocus.com/news/henry-winter-delivers-brutal-take-about-loveless-relationship-at-man-utd-names-only-one-true-leader-at-the-club/)
+
+
 ### maniema union (N/A, Mon, 7 Oct 2024 04:30:00 -0700)
 
 - **Ligue des champions: duel fratricide entre le Raja et l’AS FAR en phase de 
