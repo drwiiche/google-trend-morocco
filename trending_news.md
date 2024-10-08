@@ -1,3 +1,13 @@
+### x (N/A, Mon, 7 Oct 2024 20:00:00 -0700)
+
+- **EXCLUSIVE: Sarah Kugelman Wants to Make Gen X Beauty More ‘Irreverent’ With 
+Her Newest Brand**: [Link](https://wwd.com/beauty-industry-news/beauty-features/sarah-kugelman-gen-x-beauty-brand-all-golden-1236572285/)
+- **Salehe Bembury x Crocs Pollex Clog "Manta" & "Borealis" Releases October 
+2024**: [Link](https://sneakerbardetroit.com/salehe-bembury-crocs-pollex-clog-manta-borealis/)
+- **Salehe Bembury x Crocs Pollex Clog Halloween Pack [Release Date/Price/Where 
+To Buy]**: [Link](https://snkrdunk.com/en/magazine/2024/10/08/salehe-bembury-x-crocs-pollex-clog-halloween-pack-release-date-price-where-to-buy/)
+
+
 ### twitter (N/A, Mon, 7 Oct 2024 20:50:00 -0700)
 
 - **Supreme Court boots Elon Musk’s fight with Jack Smith over Trump’s Twitter 
