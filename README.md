@@ -1,3 +1,8 @@
+### bourse de casablanca (N/A, Tue, 8 Oct 2024 03:10:00 -0700)
+
+
+
+
 ### طقس اليوم (N/A, Tue, 8 Oct 2024 00:20:00 -0700)
 
 - **أمطار غزيرة على 11 ولاية**: [Link](https://www.elkhabar.com/press/article/250630/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-11-%D9%88%D9%84%D8%A7%D9%8A%D8%A9-5/)
