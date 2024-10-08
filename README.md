@@ -1,3 +1,11 @@
+### weather tomorrow (N/A, Mon, 7 Oct 2024 12:40:00 -0700)
+
+- **FIRST ALERT WEATHER: A cold front tonight leads to a cooler week**: [Link](https://www.wymt.com/2024/10/06/first-alert-weather-cold-front-tonight-leads-cooler-week/)
+- **Weekly weather planner: Bright skies, pleasant temperatures across 
+Louisville area**: [Link](https://www.wlky.com/article/louisville-weather-temperatures-sunny-cooler-forecast/62527991)
+- **Ben Beddoes’ Forecast | One last warm day before October takes over**: [Link](https://www.wkyt.com/2024/10/05/ben-beddoes-forecast-one-last-warm-day-before-october-takes-over/)
+
+
 ### ريكاردو سابينتو (N/A, Mon, 7 Oct 2024 14:00:00 -0700)
 
 - **الرجاء يتفق مع المدرب البرتغالي سابينتو**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AA%D9%81%D9%82-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D8%B3%D8%A7%D8%A8%D9%8A%D9%86-1443878.html)
