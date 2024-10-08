@@ -1,3 +1,11 @@
+### oussama ben laden (N/A, Tue, 8 Oct 2024 08:30:00 -0700)
+
+- **Osama bin Laden's son banned from returning to France, says minister**: [Link](https://www.lemonde.fr/en/politics/article/2024/10/08/osama-bin-laden-s-son-ordered-to-leave-france-says-minister_6728613_5.html)
+- **Omar bin Laden Expelled from French Territory Amid Terrorism Praise 
+Allegations**: [Link](https://eutoday.net/omar-bin-laden-expelled-from-french-territory/)
+- **Osama bin Laden’s son banned from France over ‘terror’ tweet**: [Link](https://www.thetimes.com/world/europe/article/osama-bin-ladens-son-banned-from-france-over-terror-tweet-wbjqkl596)
+
+
 ### usher (N/A, Tue, 8 Oct 2024 07:20:00 -0700)
 
 - **BTS' Jungkook, Usher almost stood next to each other at 2024 Super Bowl: 
