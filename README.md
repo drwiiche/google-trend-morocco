@@ -1,3 +1,10 @@
+### la cigogne (N/A, Tue, 8 Oct 2024 15:10:00 -0700)
+
+- **Le retour de La Cigogne… “Ya Salam!”**: [Link](https://www.lavieeco.com/affaires/entreprises/le-retour-de-la-cigogne-ya-salam/)
+- **La marque 100% marocaine de limonade "La Cigogne" opère son retour**: [Link](https://lematin.ma/economie/la-marque-100-marocaine-de-limonade-la-cigogne-opere-son-retour/246168)
+- **La mythique marque marocaine « La Cigogne » fait son come-back**: [Link](https://www.infomediaire.net/la-marque-mythique-marocaine-la-cigogne-fait-son-come-back/)
+
+
 ### كأس التميز المغربي (N/A, Tue, 8 Oct 2024 10:30:00 -0700)
 
 - **تشكيلة الوداد أمام شباب السوالم.. موكوينا يعتمد على بوهرة كأساسي وبوطويل 
