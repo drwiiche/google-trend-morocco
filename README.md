@@ -1,3 +1,12 @@
+### twitter (N/A, Mon, 7 Oct 2024 20:50:00 -0700)
+
+- **Supreme Court boots Elon Musk’s fight with Jack Smith over Trump’s Twitter 
+records**: [Link](https://www.cnn.com/2024/10/07/politics/elon-musk-trump-twitter-records/index.html)
+- **Supreme Court turns away Musk's X appeal over Trump criminal investigation**: [Link](https://www.nbcnews.com/politics/donald-trump/supreme-court-turns-away-musks-x-appeal-trump-criminal-investigation-rcna174259)
+- **Supreme Court won’t hear case stemming from Jack Smith’s secret warrant for 
+Trump’s Twitter data**: [Link](https://www.politico.com/news/2024/10/07/supreme-court-trump-twitter-data-00182710)
+
+
 ### fast (N/A, Mon, 7 Oct 2024 20:20:00 -0700)
 
 - **Hurricane Milton tracker: Storm remains Cat. 5 as it approaches Florida’s 
