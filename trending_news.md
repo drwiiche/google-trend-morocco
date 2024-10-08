@@ -1,3 +1,13 @@
+### usher (N/A, Tue, 8 Oct 2024 07:20:00 -0700)
+
+- **BTS' Jungkook, Usher almost stood next to each other at 2024 Super Bowl: 
+Why the dream stage collab never happened**: [Link](https://www.hindustantimes.com/entertainment/music/bts-jungkook-almost-performed-at-2024-super-bowl-with-usher-heres-why-the-dream-stage-collab-never-happened-101728382823963.html)
+- **BTS Jungkook Gets Invited To Usher’s Super Bowl Halftime Show; ARMYs React: 
+‘Iconic’**: [Link](https://english.jagran.com/entertainment/bts-jungkook-gets-invited-to-usher-super-bowl-halftime-show-armys-react-iconic-collab-standing-next-to-you-latest-kpop-news-10193000)
+- **Why BTS’ Jungkook Passed On Usher's Super Bowl Invite- The Real Reason 
+Explained**: [Link](https://www.editorji.com/entertainment-news/korean/why-bts-jungkook-passed-on-usher-s-super-bowl-invite-the-real-reason-explained-1728384385664)
+
+
 ### andrés iniesta (N/A, Tue, 8 Oct 2024 05:40:00 -0700)
 
 - **Retirada de Iniesta, en directo: reacciones y última hora de la despedida 
