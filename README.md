@@ -1,3 +1,13 @@
+### alexander arnold (N/A, Tue, 8 Oct 2024 11:10:00 -0700)
+
+- **Exclusive: Real Madrid spring massive surprise in Trent Alexander-Arnold 
+saga**: [Link](https://www.caughtoffside.com/2024/10/03/real-madrid-trent-alexander-arnold/)
+- **Could Real Madrid sign one of the five most expensive right-backs in the 
+market?**: [Link](https://www.footboom1.com/en/news/football/1907069-could-real-madrid-sign-one-of-the-five-most-expensive-right-backs-in-the-market)
+- **Real Madrid considering shock January signing of Liverpool star following 
+Carvajal injury**: [Link](https://sports.yahoo.com/real-madrid-considering-shock-january-095900480.html)
+
+
 ### oncf (N/A, Tue, 8 Oct 2024 09:40:00 -0700)
 
 - **Région Casablanca-Settat : création d’un fonds de 241 millions pour 
