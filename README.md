@@ -1,3 +1,12 @@
+### andrés iniesta (N/A, Tue, 8 Oct 2024 05:40:00 -0700)
+
+- **Retirada de Iniesta, en directo: reacciones y última hora de la despedida 
+del futbolista**: [Link](https://as.com/futbol/primera/retirada-de-iniesta-en-directo-reacciones-y-ultima-hora-de-la-despedida-del-futbolista-n/)
+- **La bonita despedida del Madrid a Iniesta: "Su presidente quiere mostrar su 
+cariño a una gran leyenda..."**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/08/67051579268e3eaa5f8b4578.html)
+- **El emotivo mensaje de Messi a Iniesta en su adiós**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241008/1002329791/emotivo-mensaje-messi-iniesta-adios.html)
+
+
 ### ibrahima konaté (N/A, Mon, 7 Oct 2024 16:10:00 -0700)
 
 - **Jarell Quansah signs new long-term contract with Liverpool FC**: [Link](https://www.liverpoolfc.com/news/jarell-quansah-signs-new-long-term-contract-liverpool-fc)
