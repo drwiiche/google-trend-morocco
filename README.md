@@ -1,3 +1,12 @@
+### diddy (N/A, Mon, 7 Oct 2024 19:00:00 -0700)
+
+- **Lawyer Tony Buzbee Says More Celebs Will Be Sued With Diddy, Demand Letters 
+Sent**: [Link](https://www.tmz.com/2024/10/07/diddy-indictment-lawyer-tony-buzbee-says-more-celebs-being-sued/)
+- **Sean ‘Diddy’ Combs hires his jail mate Sam Bankman-Fried’s lawyer—a former 
+clerk for Ruth Bader Ginsberg**: [Link](https://fortune.com/2024/10/02/sean-diddy-combs-hires-sam-bankman-fried-lawyer/)
+- **What’s happening with Diddy? The past, present and future of Sean Combs**: [Link](https://www.abc.net.au/news/2024-09-25/what-did-p-diddy-do-federal-charges-jail-arrest/104388542)
+
+
 ### weather tomorrow (N/A, Mon, 7 Oct 2024 12:40:00 -0700)
 
 - **FIRST ALERT WEATHER: A cold front tonight leads to a cooler week**: [Link](https://www.wymt.com/2024/10/06/first-alert-weather-cold-front-tonight-leads-cooler-week/)
