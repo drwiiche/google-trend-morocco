@@ -1,3 +1,11 @@
+### كأس التميز المغربي (N/A, Tue, 8 Oct 2024 10:30:00 -0700)
+
+- **تشكيلة الوداد أمام شباب السوالم.. موكوينا يعتمد على بوهرة كأساسي وبوطويل 
+ومهداوي في الدفاع**: [Link](https://m.elbotola.com/article/2024-10-08-18-19-853.html)
+- **هجوم الوداد عاجز حتى في بطولة التميز وإصابة بليغة للبرازيل...**: [Link](https://sport.lesiteinfo.com/elbotola/446991.html)
+- **موكوينا يعيد 3 لاعبين جدد للملاعب الوطنية**: [Link](https://ar.sport.le360.ma/football/GQMVKSODR5HCLJYVOTKNLEAZUE/)
+
+
 ### obésité (N/A, Tue, 8 Oct 2024 14:20:00 -0700)
 
 - **Prix, conditions d’utilisation, effets secondaires… tout savoir sur le 
