@@ -1,3 +1,12 @@
+### novak djokovic (N/A, Mon, 7 Oct 2024 22:40:00 -0700)
+
+- **Meet Flavio Cobolli: Five things to know about Djokovic's next Shanghai 
+opponent**: [Link](https://www.atptour.com/en/news/five-things-to-know-flavio-cobolli)
+- **ATP Shanghai Round of 32 Picks – 10/5/24 | Tennis Gambling Podcast (Ep. 367)**: [Link](https://www.sportsgamblingpodcast.com/2024/10/05/atp-shanghai-round-of-32-picks-10-5-24-tennis-gambling-podcast-ep-367/)
+- **Cobolli vs. Djokovic Prediction at the Rolex Shanghai Masters – Tuesday, 
+October 8**: [Link](https://www.bleachernation.com/picks/2024/10/07/cobolli-vs-djokovic-prediction-at-the-rolex-shanghai-masters-tuesday-october-8/)
+
+
 ### météo (N/A, Mon, 7 Oct 2024 22:30:00 -0700)
 
 - **Météo : Chute des températures de 5°C et retour des pluies au Maroc**: [Link](https://fr.hespress.com/389501-meteo-chute-des-temperatures-de-5c-et-retour-des-pluies-au-maroc.html)
