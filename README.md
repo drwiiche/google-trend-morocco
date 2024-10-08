@@ -1,3 +1,12 @@
+### fast (N/A, Mon, 7 Oct 2024 20:20:00 -0700)
+
+- **Hurricane Milton tracker: Storm remains Cat. 5 as it approaches Florida’s 
+Gulf coast**: [Link](https://www.fox13news.com/weather/hurricane-milton-tracker-storm-rapidly-strengthens-strong-category-5-winds-up-180-mph)
+- **‘Horrific’: Storm-weary Tampa Bay braces for monster Hurricane Milton**: [Link](https://www.tampabay.com/hurricane/2024/10/07/horrific-storm-weary-tampa-bay-braces-monster-hurricane-milton/)
+- **Category 5 Hurricane Milton poses 'extremely serious threat' to Florida 
+amid Storm Surge, Hurricane Warnings**: [Link](https://www.foxweather.com/weather-news/tracking-hurricane-milton-florida-southeast)
+
+
 ### diddy (N/A, Mon, 7 Oct 2024 19:00:00 -0700)
 
 - **Lawyer Tony Buzbee Says More Celebs Will Be Sued With Diddy, Demand Letters 
