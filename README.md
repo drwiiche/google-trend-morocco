@@ -1,3 +1,26 @@
+### météo (N/A, Mon, 7 Oct 2024 22:30:00 -0700)
+
+- **Météo : Chute des températures de 5°C et retour des pluies au Maroc**: [Link](https://fr.hespress.com/389501-meteo-chute-des-temperatures-de-5c-et-retour-des-pluies-au-maroc.html)
+- **Pluies éparses attendues mardi et mercredi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/pluies-eparses-attendues-mardi-et-mercredi-dans-plusieurs-regions-du-maroc/246033)
+- **Météo. Baisse des températures dans la majeure partie du pays ce jeudi 3 
+octobre, avec des ondées éparses sur la région nord-ouest**: [Link](https://fr.le360.ma/societe/meteo-baisse-des-temperatures-dans-la-majeure-partie-du-pays-ce-jeudi-3-octobre-avec-des-ondees_Q67FQJWLXJHEPCGZPISRG4ZWYU/)
+
+
+### weather (N/A, Mon, 7 Oct 2024 22:30:00 -0700)
+
+- **Here's how many Category 5 hurricanes have hit the mainland U.S.**: [Link](https://www.cbsnews.com/news/atlantic-hurricane-basin-category-5-united-states/)
+- **While Milton aims for Florida, is hurricane season over for Houston?**: [Link](https://www.houstonchronicle.com/news/houston-weather/hurricanes/article/milton-texas-gulf-florida-season-ends-nov-30-19820519.php)
+- **Hurricane Milton is a Category 5. Florida orders evacuations and scrambles 
+to clear Helene's debris**: [Link](https://apnews.com/article/hurricane-milton-helene-florida-557c5c512135e0a8661b298e45e17c92)
+
+
+### الطقس اليوم (N/A, Mon, 7 Oct 2024 22:30:00 -0700)
+
+- **هل يستمر الطقس الحار في الخريف؟ رد صادم من الأرصاد لمحبي الشتاء (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3276692)
+- **بسبب هذه الظاهرة.. الأرصاد تحذر سكان القاهرة وهذه المحافظات من طقس اليوم**: [Link](https://zahraa.mr/3359940/%D8%A8%D8%B3%D8%A8%D8%A8-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%B3%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%82/)
+- **الأرصاد الجوية تحذر من ارتفاع درجات الحرارة بدءا من هذا الموعد**: [Link](https://blogksa.com/uncategorized/84499/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A8%D8%AF%D8%A1%D8%A7-%D9%85%D9%86-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF---%D8%AA%D8%AF%D9%88%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A.html)
+
+
 ### x (N/A, Mon, 7 Oct 2024 20:00:00 -0700)
 
 - **EXCLUSIVE: Sarah Kugelman Wants to Make Gen X Beauty More ‘Irreverent’ With 
