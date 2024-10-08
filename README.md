@@ -1,3 +1,12 @@
+### thomas vinterberg (N/A, Tue, 8 Oct 2024 13:40:00 -0700)
+
+- **Thomas Vinterberg, Oscar-Winning Director of ‘Another Round,’ to Preside 
+Over Marrakech Film Festival Jury**: [Link](https://variety.com/2024/film/festivals/thomas-vinterberg-marrakech-film-festival-jury-president-1236170715/)
+- **Thomas Vinterberg named president of the 21st Marrakech International Film 
+Festival**: [Link](https://www.thehollywoodnews.com/2024/10/08/thomas-vinterberg-named-president-of-the-21st-marrakech-international-film-festival/)
+- **Thomas Vinterberg to chair Marrakech film festival jury**: [Link](https://www.imdb.com/news/ni64873813/?ref_=tt_nwr_1)
+
+
 ### الطقس غدًا (N/A, Tue, 8 Oct 2024 13:00:00 -0700)
 
 - **هل يستمر الطقس الحار في الخريف؟ رد صادم من الأرصاد لمحبي الشتاء (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3276692)
