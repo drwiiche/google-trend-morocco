@@ -1,3 +1,11 @@
+### oncf (N/A, Tue, 8 Oct 2024 09:40:00 -0700)
+
+- **Région Casablanca-Settat : création d’un fonds de 241 millions pour 
+financer 400 startups**: [Link](https://mobile.telquel.ma/2024/10/07/region-de-casablanca-settat-creation-dun-fonds-de-241-millions-pour-financer-400-start-ups_1897181)
+- **Casablanca: le projet de RER bientôt acté**: [Link](https://www.infomediaire.net/casablanca-le-projet-de-rer-bientot-acte/)
+- **Région Casablanca-Settat: Abdellatif Maâzouz défend son bilan d’étape**: [Link](https://fr.le360.ma/economie/region-casablanca-settat-abdellatif-maazouz-defend-son-bilan-detape_A7DEFSR35RD6ZITS2RCZ7DXUQI/)
+
+
 ### oussama ben laden (N/A, Tue, 8 Oct 2024 08:30:00 -0700)
 
 - **Osama bin Laden's son banned from returning to France, says minister**: [Link](https://www.lemonde.fr/en/politics/article/2024/10/08/osama-bin-laden-s-son-ordered-to-leave-france-says-minister_6728613_5.html)
