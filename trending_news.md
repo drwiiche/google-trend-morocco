@@ -1,3 +1,13 @@
+### obésité (N/A, Tue, 8 Oct 2024 14:20:00 -0700)
+
+- **Prix, conditions d’utilisation, effets secondaires… tout savoir sur le 
+Wegovy, le médicament anti-obésité commercialisé en France**: [Link](https://www.liberation.fr/societe/sante/prix-conditions-dutilisation-effets-secondaires-tout-savoir-sur-le-wegovy-le-medicament-anti-obesite-commercialise-en-france-20241008_GQ234C5JURFZRK5JEY2FHFANPQ/)
+- **Actualité - Analogues du GLP-1 et obésité : nous prenons des mesures pour 
+sécuriser leur utilisation en France**: [Link](https://ansm.sante.fr/actualites/analogues-du-glp-1-et-obesite-nous-prenons-des-mesures-pour-securiser-leur-utilisation-en-france)
+- **Wegovy: le médicament anti-obésité arrive en France, mais sans 
+remboursement et pour des patients bien...**: [Link](https://www.bfmtv.com/economie/entreprises/wegovy-le-medicament-anti-obesite-de-novo-nordisk-arrive-en-france-sans-remboursement_AD-202410080143.html)
+
+
 ### thomas vinterberg (N/A, Tue, 8 Oct 2024 13:40:00 -0700)
 
 - **Thomas Vinterberg, Oscar-Winning Director of ‘Another Round,’ to Preside 
