@@ -1,3 +1,11 @@
+### ibrahima konaté (N/A, Mon, 7 Oct 2024 16:10:00 -0700)
+
+- **Jarell Quansah signs new long-term contract with Liverpool FC**: [Link](https://www.liverpoolfc.com/news/jarell-quansah-signs-new-long-term-contract-liverpool-fc)
+- **Liverpool close in on new deals for Jarell Quansah and Ibrahima Konaté**: [Link](https://www.thetimes.com/sport/football/article/liverpool-new-deals-jarell-quansah-ibrahima-konate-gkk5hsdfp)
+- **Jarell Quansah signs new Liverpool contract; Ibrahima Konate also in talks 
+over his future - The Athletic**: [Link](https://www.nytimes.com/athletic/5823011/2024/10/06/liverpool-quansah-new-contract-konate/)
+
+
 ### bourse de casablanca (N/A, Tue, 8 Oct 2024 03:10:00 -0700)
 
 
