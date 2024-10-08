@@ -1,3 +1,11 @@
+### الطقس غدًا (N/A, Tue, 8 Oct 2024 13:00:00 -0700)
+
+- **هل يستمر الطقس الحار في الخريف؟ رد صادم من الأرصاد لمحبي الشتاء (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3276692)
+- **بسبب هذه الظاهرة.. الأرصاد تحذر سكان القاهرة وهذه المحافظات من طقس اليوم**: [Link](https://zahraa.mr/3359940/%D8%A8%D8%B3%D8%A8%D8%A8-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%B3%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%82/)
+- **درجات الحرارة اليوم الثلاثاء.. شبورة مائية على المدن الساحلية والعظمى 
+بالقاهرة 32**: [Link](https://alhorianews.com/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%85%D8%A7/)
+
+
 ### alexander arnold (N/A, Tue, 8 Oct 2024 11:10:00 -0700)
 
 - **Exclusive: Real Madrid spring massive surprise in Trent Alexander-Arnold 
