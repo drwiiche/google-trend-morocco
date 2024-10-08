@@ -1,3 +1,12 @@
+### florida (N/A, Tue, 8 Oct 2024 16:30:00 -0700)
+
+- **Track Hurricane Milton: See the dangerous storm's current path into Florida**: [Link](https://www.nbcwashington.com/weather/weather-stories/track-hurricane-milton-see-the-dangerous-storms-current-path-through-florida-live/3736227/)
+- **BREAKING: Hurricane Milton strengthens to a 175 mph Category 5 hurricane in 
+Gulf of Mexico**: [Link](https://www.palmbeachpost.com/story/news/2024/10/07/hurricane-milton-is-forecast-cat-4-in-gulf-of-mexico-towards-florida/75551957007/)
+- **What can a Cat 3 hurricane do to Florida? Take a look as Milton targets the 
+Gulf Coast**: [Link](https://www.miamiherald.com/news/weather/hurricane/article293646669.html)
+
+
 ### la cigogne (N/A, Tue, 8 Oct 2024 15:10:00 -0700)
 
 - **Le retour de La Cigogne… “Ya Salam!”**: [Link](https://www.lavieeco.com/affaires/entreprises/le-retour-de-la-cigogne-ya-salam/)
