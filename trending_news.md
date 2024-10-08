@@ -1,3 +1,16 @@
+### طقس (N/A, Mon, 7 Oct 2024 23:30:00 -0700)
+
+- **الأرصاد الجوية تتوقع زخات مطرية وتراجع درجات الحرارة في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%AA%D8%B1%D8%A7%D8%AC-1443450.html)
+- **أمطار رعدية قوية تضرب مناطق بميدلت وإيميلشيل**: [Link](https://ar.hibapress.com/details-559023.html)
+- **طقس الثلاثاء: أمطار ضعيفة ومتفرقة بعدد من المناطق – اليوم 24**: [Link](https://alyaoum24.com/1920775.html)
+
+
+### kings league (N/A, Mon, 7 Oct 2024 13:10:00 -0700)
+
+- **Kun Agüero 'Unleashed' in the Kings League, This Time Against Iker 
+Casillas: "He Always Saved Without Hands"**: [Link](https://www.footboom1.com/en/news/football/1900061-kun-aguero-unleashed-in-the-kings-league-this-time-against-iker-casillas-he-always-saved-without-hands)
+
+
 ### الطقس (N/A, Mon, 7 Oct 2024 22:50:00 -0700)
 
 - **المركز الوطني للأرصاد.. يعلن توقعات طقس السعودية اليوم الأحد 6 أكتوبر 2024**: [Link](https://gate.mwlana.com/11887/%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3/)
