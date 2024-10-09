@@ -1,3 +1,10 @@
+### فلوريدا (N/A, Wed, 9 Oct 2024 16:10:00 -0700)
+
+- **شهادات من سكان ولاية فلوريدا قبل ساعات من إعصار ميلتون المدمر**: [Link](https://www.aljazeera.net/misc/2024/10/9/%D8%B4%D9%87%D8%A7%D8%AF%D8%A7%D8%AA-%D9%85%D9%86-%D8%B3%D9%83%D8%A7%D9%86-%D9%88%D9%84%D8%A7%D9%8A%D8%A9-%D9%81%D9%84%D9%88%D8%B1%D9%8A%D8%AF%D8%A7-%D9%82%D8%A8%D9%84-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA)
+- **رجل بساق واحدة يتحدى إعصار ميلتون (فيديو)**: [Link](https://ar.hibapress.com/details-560320.html)
+- **فيديو من ناسا للإعصار المخيف "ميلتون" في طريقه إلى أميركا**: [Link](https://www.alhurra.com/usa/2024/10/09/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%86%D8%A7%D8%B3%D8%A7-%D9%84%D9%84%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AE%D9%8A%D9%81-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%B7%D8%B1%D9%8A%D9%82%D9%87-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D8%A7)
+
+
 ### la météo (N/A, Wed, 9 Oct 2024 14:30:00 -0700)
 
 - **Le temps qu'il fera ce mercredi 9 octobre 2024**: [Link](https://fr.hespress.com/389750-le-temps-quil-fera-ce-mercredi-9-octobre-2024.html)
