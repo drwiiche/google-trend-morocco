@@ -1,3 +1,17 @@
+### اسامة بن لادن (N/A, Wed, 9 Oct 2024 06:10:00 -0700)
+
+- **فرنسا تأمر نجل بن لادن بمغادرة أراضيها وتمنعه من دخولها مجددا**: [Link](https://www.aljazeera.net/news/2024/10/8/%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%AA%D8%A3%D9%85%D8%B1-%D9%86%D8%AC%D9%84-%D8%A8%D9%86-%D9%84%D8%A7%D8%AF%D9%86-%D8%A8%D9%85%D8%BA%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A3%D8%B1%D8%A7%D8%B6%D9%8A%D9%87%D8%A7)
+- **ترحيل نجل بن لادن من فرنسا.. ومنعه من العودة "لأي سبب"**: [Link](https://www.alhurra.com/arabic-and-international/2024/10/08/%D8%AA%D8%B1%D8%AD%D9%8A%D9%84-%D9%86%D8%AC%D9%84-%D8%A8%D9%86-%D9%84%D8%A7%D8%AF%D9%86-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D9%85%D9%86%D8%B9%D9%87-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D8%A3%D9%8A-%D8%B3%D8%A8%D8%A8)
+- **فرض حظر إداري للأراضي الفرنسية على نجل أسامة بن لادن- ( تغريدة)**: [Link](https://www.alquds.co.uk/%D9%81%D8%B1%D8%B6-%D8%AD%D8%B8%D8%B1-%D8%A5%D8%AF%D8%A7%D8%B1%D9%8A-%D9%84%D9%84%D8%A3%D8%B1%D8%A7%D8%B6%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D9%86%D8%AC%D9%84/)
+
+
+### cameroun paul biya (N/A, Wed, 9 Oct 2024 05:50:00 -0700)
+
+- **Cameroun: face aux rumeurs, le gouvernement communique sur l'état de santé du président Paul Biya**: [Link](https://www.rfi.fr/fr/afrique/20241008-cameroun-face-aux-rumeurs-le-gouvernement-communique-sur-l-%C3%A9tat-de-sant%C3%A9-du-pr%C3%A9sident-paul-biya)
+- **« Paul Biya n’a jamais été hospitalisé à Paris », affirme l’ambassadeur du Cameroun en France**: [Link](https://www.jeuneafrique.com/1618201/politique/paul-biya-na-jamais-ete-hospitalise-a-paris-affirme-lambassadeur-du-cameroun-en-france/)
+- **Le gouvernement camerounais dément les rumeurs sur l'état de santé du Président Biya**: [Link](https://www.menara.ma/fr/article/le-gouvernement-camerounais-dement-les-rumeurs-sur-letat-de-sante-du-president-biya)
+
+
 ### carvajal real madrid (N/A, Wed, 9 Oct 2024 04:40:00 -0700)
 
 - **Tiene una cláusula para ir al Madrid, el jugador da el OK: Florentino 
