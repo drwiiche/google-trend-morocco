@@ -1,3 +1,10 @@
+### brahim diaz (N/A, Wed, 9 Oct 2024 10:00:00 -0700)
+
+- **Real Madrid could have player back for El Clasico as injury timescale is shortened**: [Link](https://www.football-espana.net/2024/10/08/real-madrid-could-have-player-back-for-el-clasico-as-injury-timescale-is-shortened)
+- **Real Madrid star 'ahead of schedule' with injury return**: [Link](https://sports.yahoo.com/real-madrid-star-ahead-schedule-111000531.html)
+- **Injured Real Madrid forward can return to action significantly sooner than expected**: [Link](https://sports.yahoo.com/injured-real-madrid-forward-return-110400106.html)
+
+
 ### ouragan milton floride (N/A, Wed, 9 Oct 2024 08:40:00 -0700)
 
 - **L’ouragan Milton, repassé en catégorie maximale, s’apprête à toucher la 
