@@ -1,3 +1,12 @@
+### sergio ramos (N/A, Tue, 8 Oct 2024 21:00:00 -0700)
+
+- **Por qué al Madrid de hoy no le encaja el fichaje del "mito" Sergio Ramos**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/08/6705552f268e3ee41c8b45a5.html)
+- **Florentino confirmó lo de Sergio Ramos a la directiva tras lo de Carvajal: 
+"Le he fichado..."**: [Link](https://www.defensacentral.com/real_madrid/1709328267-florentino-confirmo-lo-de-sergio-ramos-a-la-directiva-tras-lo-de-carvajal-le-he-fichado)
+- **Desvelan un fichaje de lo más curioso para el centro de la zaga madridista: 
+hay posibilidades**: [Link](https://www.realmadridexclusivo.com/fichajes/desvelan-fichaje-mas-curioso-centro-zaga-madridista-hay-posibilidades_161308_102.html)
+
+
 ### طقس مراكش (N/A, Tue, 8 Oct 2024 23:30:00 -0700)
 
 - **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-11-1444579.html)
