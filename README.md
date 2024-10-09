@@ -1,3 +1,13 @@
+### roi charles iii (N/A, Wed, 9 Oct 2024 14:20:00 -0700)
+
+- **Fin de vie de Charles III : Kate Middleton et le prince William vont monter 
+en grade et d'autres vont en profiter...**: [Link](https://www.purepeople.com/article/fin-de-vie-de-charles-iii-kate-middleton-et-le-prince-william-vont-monter-en-grade-et-d-autres-vont-en-profiter_a528404/1)
+- **Cancer de Charles III : après avoir craché dans la soupe, le prince Harry 
+s’en mord les doigts…**: [Link](https://www.gala.fr/l_actu/news_de_stars/cancer-de-charles-iii-apres-avoir-crache-dans-la-soupe-le-prince-harry-sen-mord-les-doigts_553479)
+- **« Elle a peur » : la reine Camilla inquiète pour la santé de son époux 
+Charles III après l'arrêt de son traitement ?**: [Link](https://www.femina.fr/article/elle-a-peur-la-reine-camilla-inquiete-pour-la-sante-de-son-epoux-charles-iii-apres-l-arret-de-son-traitement)
+
+
 ### ratan tata (N/A, Wed, 9 Oct 2024 13:30:00 -0700)
 
 - **Indian tycoon Ratan Tata dies aged 86**: [Link](https://www.bbc.com/news/articles/cjd5835mp4ko)
