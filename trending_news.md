@@ -1,3 +1,12 @@
+### ouragan milton floride (N/A, Wed, 9 Oct 2024 08:40:00 -0700)
+
+- **L’ouragan Milton, repassé en catégorie maximale, s’apprête à toucher la 
+Floride**: [Link](https://www.lemonde.fr/planete/article/2024/10/09/la-floride-en-etat-d-alerte-avant-l-arrivee-de-l-ouragan-milton-repasse-en-categorie-maximale_6345878_3245.html)
+- **L'ouragan Milton frappera la Floride ce jeudi matin avec des vents à plus 
+de 200 km/h**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2024-10-09/l-ouragan-milton-frappera-la-floride-ce-jeudi-matin-avec-des-vents-a-plus-de-200-km-h-72644)
+- **Un météorologue se met à pleurer en direct en parlant de l’ouragan Milton**: [Link](https://www.20minutes.fr/arts-stars/insolite/4114287-20241008-ouragan-milton-larmes-yeux-meteorologue-americain-craque-plein-direct)
+
+
 ### hugo prevost (N/A, Wed, 9 Oct 2024 08:00:00 -0700)
 
 - **Assemblée nationale : le groupe LFI exclut le député Hugo Prevost pour des 
