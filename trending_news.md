@@ -1,3 +1,10 @@
+### اعصار ميلتون (N/A, Tue, 8 Oct 2024 16:40:00 -0700)
+
+- **إعصار ميلتون يبلغ الدرجة القصوى وبايدن يطلق نداء إخلاء بفلوريدا**: [Link](https://www.aljazeera.net/news/2024/10/9/%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86-%D9%8A%D8%A8%D9%84%D8%BA-%D8%A7%D9%84%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D9%82%D8%B5%D9%88%D9%89)
+- **مصير مجهول يواجه اجتماعا بشأن أوكرانيا بعد إلغاء بايدن زيارة لألمانيا**: [Link](https://www.alhurra.com/arabic-and-international/2024/10/08/%D9%85%D8%B5%D9%8A%D8%B1-%D9%85%D8%AC%D9%87%D9%88%D9%84-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D8%A7-%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7-%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D8%A8%D8%A7%D9%8A%D8%AF%D9%86-%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7)
+- **"إذا اخترتم البقاء ستموتون"... سلطات فلوريدا تحذر السكان من الإعصار ميلتون**: [Link](https://www.france24.com/ar/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7/20241008-%D8%A5%D8%B0%D8%A7-%D8%A7%D8%AE%D8%AA%D8%B1%D8%AA%D9%85-%D8%A7%D9%84%D8%A8%D9%82%D8%A7%D8%A1-%D8%B3%D8%AA%D9%85%D9%88%D8%AA%D9%88%D9%86-%D8%B3%D9%84%D8%B7%D8%A7%D8%AA-%D9%81%D9%84%D9%88%D8%B1%D9%8A%D8%AF%D8%A7-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%A7%D9%84%D8%B3%D9%83%D8%A7%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86)
+
+
 ### florida (N/A, Tue, 8 Oct 2024 16:30:00 -0700)
 
 - **Track Hurricane Milton: See the dangerous storm's current path into Florida**: [Link](https://www.nbcwashington.com/weather/weather-stories/track-hurricane-milton-see-the-dangerous-storms-current-path-through-florida-live/3736227/)
