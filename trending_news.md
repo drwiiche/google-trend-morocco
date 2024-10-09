@@ -1,3 +1,11 @@
+### wwe raw (N/A, Wed, 9 Oct 2024 03:40:00 -0700)
+
+- **WWE Bad Blood 2024 results: Cody Rhodes, Roman Reigns win, The Rock returns**: [Link](https://www.usatoday.com/story/sports/2024/10/05/wwe-bad-blood-2024-live-results/75502905007/)
+- **WWE RAW 10/7/2024: 3 Things We Hated And 3 Things We Loved**: [Link](https://www.wrestlinginc.com/1682536/wwe-raw-october-7-2024-3-things-we-hated-3-things-we-loved/)
+- **Sami Zayn Can't Be Denied, Keep Jey Uso Away from Bron Breakker, More WWE 
+Raw Takes**: [Link](https://bleacherreport.com/articles/10138540-sami-zayn-cant-be-denied-keep-jey-uso-away-from-bron-breakker-more-wwe-raw-takes)
+
+
 ### carlos alcaraz (N/A, Wed, 9 Oct 2024 01:20:00 -0700)
 
 - **Alcaraz - Monfils, en directo: octavos del Masters 1000 de Shanghái hoy en 
