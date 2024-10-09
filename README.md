@@ -1,3 +1,21 @@
+### windy (N/A, Wed, 9 Oct 2024 16:40:00 -0700)
+
+- **Hurricane Milton To Make Destructive Florida Landfall Tonight**: [Link](https://weather.com/storms/hurricane/news/2024-10-09-hurricane-milton-forecast-landfall-florida-storm-surge-wind)
+- **Hurricane Milton live tracker: Updates, path as eyewall of Category 3 storm 
+begins to 'move onshore' Florida's coast ahead of landfall**: [Link](https://www.yahoo.com/news/live/hurricane-milton-live-tracker-updates-path-as-eyewall-of-category-3-storm-begins-to-move-onshore-floridas-coast-ahead-of-landfall-201959033.html)
+- **Current Central Florida advisories, county-by-county impacts as Milton 
+closes in on state**: [Link](https://www.wesh.com/article/hurricane-milton-orlando-central-florida-impact/62550193)
+
+
+### outer banks (N/A, Wed, 9 Oct 2024 16:30:00 -0700)
+
+- **Poguelandia 2.0, Here We Come! Watch the First 9 Minutes of Outer Banks 
+Season 4**: [Link](https://www.netflix.com/tudum/articles/outer-banks-season-4-first-9-minutes)
+- **Outer Banks Season 4 Part 1: See release date, time, episode titles and plot**: [Link](https://m.economictimes.com/news/international/us/outer-banks-season-4-part-1-see-release-date-time-episode-titles-and-plot/articleshow/114093640.cms)
+- **When do new episodes of 'Outer Banks' come out? Season 4 release date, 
+cast, where to watch**: [Link](https://www.usatoday.com/story/entertainment/tv/2024/10/08/outer-banks-season-4/75567923007/)
+
+
 ### فلوريدا (N/A, Wed, 9 Oct 2024 16:10:00 -0700)
 
 - **شهادات من سكان ولاية فلوريدا قبل ساعات من إعصار ميلتون المدمر**: [Link](https://www.aljazeera.net/misc/2024/10/9/%D8%B4%D9%87%D8%A7%D8%AF%D8%A7%D8%AA-%D9%85%D9%86-%D8%B3%D9%83%D8%A7%D9%86-%D9%88%D9%84%D8%A7%D9%8A%D8%A9-%D9%81%D9%84%D9%88%D8%B1%D9%8A%D8%AF%D8%A7-%D9%82%D8%A8%D9%84-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA)
