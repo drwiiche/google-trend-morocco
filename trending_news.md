@@ -1,3 +1,11 @@
+### novak djokovic (N/A, Wed, 9 Oct 2024 04:30:00 -0700)
+
+- **Novak Djokovic 'at his best' in 'incredible' Shanghai display as former 
+world No 4 issues ominous verdict**: [Link](https://www.tennis365.com/tennis-news/novak-djokovic-at-his-best-incredible-shanghai-masters-ominous-message)
+- **Shanghai | Djokovic completes the last 16 line up**: [Link](https://tennisthreads.net/shanghai-djokovic-completes-the-last-16-line-up/)
+- **Extended Highlights: Djokovic, Zverev, Dimitrov advance to R4 in Shanghai**: [Link](https://www.atptour.com/en/video/extended-highlights-djokovic-zverev-dimitrov-advance-to-r4-in-shanghai-2024)
+
+
 ### wwe raw (N/A, Wed, 9 Oct 2024 03:40:00 -0700)
 
 - **WWE Bad Blood 2024 results: Cody Rhodes, Roman Reigns win, The Rock returns**: [Link](https://www.usatoday.com/story/sports/2024/10/05/wwe-bad-blood-2024-live-results/75502905007/)
