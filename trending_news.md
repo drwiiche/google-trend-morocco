@@ -1,3 +1,20 @@
+### hugo prevost (N/A, Wed, 9 Oct 2024 08:00:00 -0700)
+
+- **Assemblée nationale : le groupe LFI exclut le député Hugo Prevost pour des 
+«faits graves à caractère sexuel»**: [Link](https://www.lefigaro.fr/flash-actu/assemblee-nationale-le-groupe-lfi-exclut-le-depute-hugo-prevost-pour-des-faits-graves-a-caractere-sexuel-20241008)
+- **Violences sexuelles : le député Hugo Prevost exclu par La France insoumise**: [Link](https://www.mediapart.fr/journal/france/091024/violences-sexuelles-le-depute-hugo-prevost-exclu-par-la-france-insoumise)
+- **La France insoumise exclut un député accusé « de faits graves à caractère 
+sexuel »**: [Link](https://www.huffingtonpost.fr/politique/article/le-depute-lfi-hugo-prevost-exclu-de-lfi-il-est-accuse-de-faits-graves-a-caractere-sexuel_240625.html)
+
+
+### jürgen klopp (N/A, Wed, 9 Oct 2024 07:10:00 -0700)
+
+- **Jürgen Klopp zu Red Bull!**: [Link](https://www.bild.de/sport/fussball/juergen-klopp-zu-red-bull-67060fe3dd4668399e3be781)
+- **Erfolgstrainer geht zu Red Bull: Klopps Karriere – und der erstaunliche 
+nächste Schritt**: [Link](https://www.stuttgarter-nachrichten.de/inhalt.erfolgstrainer-geht-zu-red-bull-klopps-karriere-und-der-erstaunliche-naechste-schritt.21bfc261-29dd-46e4-9241-1ce50f4d188e.html)
+- **Jürgen Klopp kehrt zum Fußball zurück – mit neuer Rolle bei Red Bull**: [Link](https://www.redbull.com/de-de/juergen-klopp-neue-rolle-bei-red-bull)
+
+
 ### rima hassan bfmtv (N/A, Wed, 9 Oct 2024 07:30:00 -0700)
 
 - **«Vous aurez des comptes à rendre» : Rima Hassan met en cause la «ligne 
