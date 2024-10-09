@@ -1,3 +1,12 @@
+### rima hassan bfmtv (N/A, Wed, 9 Oct 2024 07:30:00 -0700)
+
+- **«Vous aurez des comptes à rendre» : Rima Hassan met en cause la «ligne 
+éditoriale» de BFMTV sur le conflit au Proche-Orient**: [Link](https://www.lefigaro.fr/politique/vous-aurez-des-comptes-a-rendre-rima-hassan-met-en-cause-la-ligne-editoriale-de-bfmtv-sur-le-conflit-au-proche-orient-20241008)
+- **Mise au point**: [Link](https://www.bfmtv.com/bfmtv-et-vous/making-of/mise-au-point_AN-202410080811.html)
+- **Rima Hassan sur BFMTV : pourquoi la chaîne a coupé court à l’interview de 
+l’eurodéputée LFI**: [Link](https://www.huffingtonpost.fr/medias/article/rima-hassan-sur-bfmtv-pourquoi-la-chaine-a-coupe-court-a-l-interview-de-l-eurodeputee-lfi_240620.html)
+
+
 ### اسامة بن لادن (N/A, Wed, 9 Oct 2024 06:10:00 -0700)
 
 - **فرنسا تأمر نجل بن لادن بمغادرة أراضيها وتمنعه من دخولها مجددا**: [Link](https://www.aljazeera.net/news/2024/10/8/%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%AA%D8%A3%D9%85%D8%B1-%D9%86%D8%AC%D9%84-%D8%A8%D9%86-%D9%84%D8%A7%D8%AF%D9%86-%D8%A8%D9%85%D8%BA%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A3%D8%B1%D8%A7%D8%B6%D9%8A%D9%87%D8%A7)
