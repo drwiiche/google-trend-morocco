@@ -1,3 +1,12 @@
+### carlos alcaraz (N/A, Wed, 9 Oct 2024 01:20:00 -0700)
+
+- **Alcaraz - Monfils, en directo: octavos del Masters 1000 de Shanghái hoy en 
+vivo**: [Link](https://www.marca.com/tenis/masters-1000-shangai/carlos-alcaraz-gael-monfils/2024/10/09/04_0412_20241009_115-directo.html)
+- **Tenis en directo - 9/10/24 | Flashscore.es**: [Link](https://www.flashscore.es/noticias/tenis-wuhan-wta-individuales-tenis-en-directo-alcaraz-se-enfrenta-a-monfils-en-los-octavos-de-shanghai/0WaRbNtB/)
+- **Alcaraz olvida los cantos de sirena y viste el mono de trabajo para acabar 
+con Monfils en Shanghái**: [Link](https://www.elconfidencial.com/deportes/tenis/2024-10-09/carlos-alcaraz-gael-monfils-octavos-final-shanghai-cronica_3979425/)
+
+
 ### sergio ramos (N/A, Tue, 8 Oct 2024 21:00:00 -0700)
 
 - **Por qué al Madrid de hoy no le encaja el fichaje del "mito" Sergio Ramos**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/08/6705552f268e3ee41c8b45a5.html)
