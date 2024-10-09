@@ -1,3 +1,11 @@
+### كأس التميز المغربي (N/A, Wed, 9 Oct 2024 12:20:00 -0700)
+
+- **تشكيلة الرجاء: تواجد الوافدين الجدد والمغضوب عليهم**: [Link](https://sport.lesiteinfo.com/elbotola/447077.html)
+- **كأس التميز لكرة القدم 2024-2025 .. النتائج والبرنامج**: [Link](https://www.almountakhab.com/node/13205222)
+- **الرجاء يقرر خوض مباراة تطوان في كأس التميز بلاعبي فئة الأمل وبعض الأسماء من 
+الفريق الأول يتقدمهم ساخو والسوسي والمعموري**: [Link](https://m.elbotola.com/article/2024-10-08-11-42-589.html)
+
+
 ### abdeslam bouchouareb (N/A, Wed, 9 Oct 2024 09:00:00 -0700)
 
 - **L’extradition d’Abdeslam Bouchouareb, un dossier politique au cœur des 
