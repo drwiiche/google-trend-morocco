@@ -1,3 +1,12 @@
+### hugo prévost (N/A, Wed, 9 Oct 2024 10:50:00 -0700)
+
+- **Violences sexuelles : le député Hugo Prevost exclu par La France insoumise**: [Link](https://www.mediapart.fr/journal/france/091024/violences-sexuelles-le-depute-hugo-prevost-exclu-par-la-france-insoumise)
+- **Assemblée nationale : le groupe LFI exclut le député Hugo Prevost pour des 
+«faits graves à caractère sexuel»**: [Link](https://www.lefigaro.fr/flash-actu/assemblee-nationale-le-groupe-lfi-exclut-le-depute-hugo-prevost-pour-des-faits-graves-a-caractere-sexuel-20241008)
+- **La France insoumise exclut un député accusé « de faits graves à caractère 
+sexuel »**: [Link](https://www.huffingtonpost.fr/politique/article/le-depute-lfi-hugo-prevost-exclu-de-lfi-il-est-accuse-de-faits-graves-a-caractere-sexuel_240625.html)
+
+
 ### brahim diaz (N/A, Wed, 9 Oct 2024 10:00:00 -0700)
 
 - **Real Madrid could have player back for El Clasico as injury timescale is shortened**: [Link](https://www.football-espana.net/2024/10/08/real-madrid-could-have-player-back-for-el-clasico-as-injury-timescale-is-shortened)
