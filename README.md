@@ -1,3 +1,10 @@
+### la météo (N/A, Wed, 9 Oct 2024 14:30:00 -0700)
+
+- **Le temps qu'il fera ce mercredi 9 octobre 2024**: [Link](https://fr.hespress.com/389750-le-temps-quil-fera-ce-mercredi-9-octobre-2024.html)
+- **Pluies éparses attendues mardi et mercredi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/pluies-eparses-attendues-mardi-et-mercredi-dans-plusieurs-regions-du-maroc/246033)
+- **Météo. La pluie au menu des dix prochains jours**: [Link](https://medias24.com/2024/10/07/meteo-la-pluie-au-menu-des-dix-prochains-jours/)
+
+
 ### tempête kirk (N/A, Wed, 9 Oct 2024 15:30:00 -0700)
 
 - **Dépression Kirk : la Seine-et-Marne placée en vigilance rouge pour les 
