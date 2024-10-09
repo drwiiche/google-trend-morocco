@@ -1,3 +1,13 @@
+### abdeslam bouchouareb (N/A, Wed, 9 Oct 2024 09:00:00 -0700)
+
+- **L’extradition d’Abdeslam Bouchouareb, un dossier politique au cœur des 
+tensions entre Paris et Alger**: [Link](https://www.lefigaro.fr/international/l-extradition-d-abdeslam-bouchouareb-un-dossier-politique-au-coeur-des-tensions-entre-paris-et-alger-20241008)
+- **En bref : Abdeslam Bouchoureb, vols perturbés vers l’Algérie, 2 circulaires 
+sur l’immigration en France, pétrole, Algérie – UE**: [Link](https://www.tsa-algerie.com/en-bref-abdeslam-bouchoureb-vols-perturbes-vers-lalgerie-2-circulaires-sur-limmigration-en-france-petrole-algerie-ue/)
+- **Des vols d'ASL Airlines concernés par des changements d’horaires entre 
+l'Algérie et la France**: [Link](https://observalgerie.com/2024/10/08/voyage/vols-asl-airlines-changement-horaires/)
+
+
 ### hugo prévost (N/A, Wed, 9 Oct 2024 10:50:00 -0700)
 
 - **Violences sexuelles : le député Hugo Prevost exclu par La France insoumise**: [Link](https://www.mediapart.fr/journal/france/091024/violences-sexuelles-le-depute-hugo-prevost-exclu-par-la-france-insoumise)
