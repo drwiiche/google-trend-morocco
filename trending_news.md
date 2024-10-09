@@ -1,3 +1,15 @@
+### george baldock (N/A, Wed, 9 Oct 2024 14:30:00 -0700)
+
+- **Greece soccer player found dead in his swimming pool**: [Link](https://www.ekathimerini.com/sports/1250558/greece-soccer-player-found-dead-in-his-swimming-pool/)
+- **Tragic news as Buckingham-born ex MK Dons star George Baldock is found dead in swimming pool**: [Link](https://www.miltonkeynes.co.uk/news/emergency-incident/tragic-news-as-buckingham-born-ex-mk-dons-star-george-baldock-is-found-dead-in-swimming-pool-4817856)
+- **George Baldock dies aged 31 as tributes pour in for former Sheffield United star**: [Link](https://www.gbnews.com/sport/football/george-baldock-dies-aged-31-as-tributes-pour-in-for-former-sheffield-united-star)
+
+
+### dacia bigster (N/A, Wed, 9 Oct 2024 14:30:00 -0700)
+
+
+
+
 ### roi charles iii (N/A, Wed, 9 Oct 2024 14:20:00 -0700)
 
 - **Fin de vie de Charles III : Kate Middleton et le prince William vont monter 
