@@ -1,3 +1,11 @@
+### tempête kirk (N/A, Wed, 9 Oct 2024 15:30:00 -0700)
+
+- **Dépression Kirk : la Seine-et-Marne placée en vigilance rouge pour les 
+crues ; de nombreux départements en vigilance orange pour les pluies**: [Link](https://www.lemonde.fr/planete/article/2024/10/09/depression-kirk-la-seine-et-marne-placee-en-vigilance-rouge-pour-les-crues-plusieurs-dizaines-de-departements-en-vigilance-orange-pour-les-pluies_6347484_3244.html)
+- **EN DIRECT Tempête Kirk : Avec plus de 60 mm de pluie à Paris, la journée de…**: [Link](https://www.20minutes.fr/societe/4114577-20241009-direct-tempete-kirk-rafales-vent-plus-200-km-h-secouent-pyrenees-atlantiques)
+- **Tempête Kirk : le nord-ouest du Maroc sera légèrement touché**: [Link](https://medias24.com/2024/10/09/tempete-kirk-le-nord-ouest-du-maroc-sera-legerement-touche/)
+
+
 ### george baldock (N/A, Wed, 9 Oct 2024 14:30:00 -0700)
 
 - **Greece soccer player found dead in his swimming pool**: [Link](https://www.ekathimerini.com/sports/1250558/greece-soccer-player-found-dead-in-his-swimming-pool/)
