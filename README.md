@@ -1,3 +1,13 @@
+### carvajal real madrid (N/A, Wed, 9 Oct 2024 04:40:00 -0700)
+
+- **Tiene una cláusula para ir al Madrid, el jugador da el OK: Florentino 
+decide su vuelta**: [Link](https://www.defensacentral.com/real_madrid/1709328314-tiene-una-clausula-para-ir-al-madrid-el-jugador-da-el-ok-florentino-decide-su-vuelta)
+- **Álex Jiménez, la opción mas económica para sustituir a Dani Carvajal: 
+"Puede cumplir a un nivel Real Madrid"**: [Link](https://www.eldesmarque.com/futbol/real-madrid/20241009/alex-jimenez-opcion-economica-sustituir-dani-carvajal-cumplir-nivel-real-madrid_300467671.html)
+- **Álvaro Benito recomienda un nuevo crack para el lateral que no estaba en la 
+lista de deseos: “Encaja…”**: [Link](https://www.realmadridexclusivo.com/fichajes/alvaro-benito-recomienda-nuevo-crack-lateral-no-estaba-en-lista-deseos-encaja_161349_102.html)
+
+
 ### novak djokovic (N/A, Wed, 9 Oct 2024 04:30:00 -0700)
 
 - **Novak Djokovic 'at his best' in 'incredible' Shanghai display as former 
