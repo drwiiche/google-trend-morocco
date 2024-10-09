@@ -1,3 +1,11 @@
+### ratan tata (N/A, Wed, 9 Oct 2024 13:30:00 -0700)
+
+- **Indian tycoon Ratan Tata dies aged 86**: [Link](https://www.bbc.com/news/articles/cjd5835mp4ko)
+- **YG crypto(@ygcrypto)'s insights**: [Link](https://www.binance.com/en/square/post/14648121044377)
+- **Ratan Tata, former chairman of India’s oldest conglomerate Tata Sons, dies 
+in a Mumbai hospital**: [Link](https://www.barchart.com/story/news/28966499/ratan-tata-former-chairman-of-indias-oldest-conglomerate-tata-sons-dies-in-a-mumbai-hospital)
+
+
 ### الطقس غدًا (N/A, Wed, 9 Oct 2024 12:50:00 -0700)
 
 - **طقس معتدل غدا فى أول الليل مائل للبرودة بآخره وشبورة والعظمى بالقاهرة 32 
