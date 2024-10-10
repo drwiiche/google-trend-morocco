@@ -1,3 +1,11 @@
+### belgique foot (N/A, Thu, 10 Oct 2024 13:40:00 -0700)
+
+- **Belgique : Youri Tielemans en veut à Kevin De Bruyne**: [Link](https://www.footmercato.net/a6900109864219233421-belgique-youri-tielemans-en-veut-a-kevin-de-bruyne)
+- **Domenico Tedesco a tranché : voici qui va être capitaine contre l'Italie**: [Link](https://www.dhnet.be/sports/football/diablesrouges/2024/10/09/domenico-tedesco-a-tranche-voici-qui-va-etre-capitaine-contre-litalie-4IGPGUKJSNAY3AEKH4APBCOPIQ/)
+- **"Sur le papier, ils sont meilleurs": Maxim De Cuyper veut aller chercher 
+quelque chose contre l'Italie, même en étant pas favori**: [Link](https://www.rtl.be/sport/football/diables-rouges/sur-le-papier-ils-sont-meilleurs-maxim-de-cuyper-veut-aller-chercher-quelque/2024-10-08/article/719653)
+
+
 ### فنزويلا ضد الأرجنتين (N/A, Thu, 10 Oct 2024 13:30:00 -0700)
 
 - **"من يبقَ فسيموت".. إعصار ميلتون يهدد حياة ميسي والأرجنتينيين**: [Link](https://www.alarabiya.net/sport/2024/10/09/-%D9%85%D9%86-%D9%8A%D8%A8%D9%82%D9%89-%D8%B3%D9%8A%D9%85%D9%88%D8%AA-%D8%A7%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86-%D9%8A%D9%87%D8%AF%D8%AF-%D8%AD%D9%8A%D8%A7%D8%A9-%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A%D9%8A%D9%86)
