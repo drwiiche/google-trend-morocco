@@ -1,3 +1,20 @@
+### algérie – togo (N/A, Thu, 10 Oct 2024 11:10:00 -0700)
+
+- **À quelle heure et sur quelle chaîne regarder le match Algérie - Togo ?**: [Link](https://www.20minutes.fr/guide-achat/4114663-20241010-algerie-togo-heure-chaine-regarder-match-jeudi)
+- **Qualifs CAN 2025 : les « Verts » pour confirmer leur statut de leader ce 
+jeudi face au Togo**: [Link](https://al24news.com/fr/qualifs-can-2025-les-verts-pour-confirmer-leur-statut-de-leader-ce-jeudi-face-au-togo/)
+- **«Donner le meilleur de moi-même»**: [Link](https://www.lexpressiondz.com/sports/donner-le-meilleur-de-moi-meme-386615)
+
+
+### israel vs france (N/A, Thu, 10 Oct 2024 11:10:00 -0700)
+
+- **Israel vs France: Preview, predictions and lineups**: [Link](https://www.90min.com/israel-vs-france-preview-predictions-and-lineups-10-10-24)
+- **Exiled in Hungary and Under High Security: The Thorny Management of the 
+Israeli Team**: [Link](https://www.footboom1.com/en/news/football/1913397-exiled-in-hungary-and-under-high-security-the-thorny-management-of-the-israeli-team)
+- **BetMGM Bonus Code Nations League Football & Horse Racing Bet £10 Get £40 
+Free Bets October 2024**: [Link](https://bookies.com/uk/news/betmgm-bonus-code-uk-offer-free-bets-40-nations-league-football-horse-racing-october-2024)
+
+
 ### israël – france (N/A, Thu, 10 Oct 2024 11:00:00 -0700)
 
 - **DIRECT. Israël-France (Ligue des nations A 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/israel-france-live/632623)
