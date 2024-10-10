@@ -1,3 +1,11 @@
+### brahim diaz (N/A, Thu, 10 Oct 2024 16:20:00 -0700)
+
+- **Real Madrid star 'ahead of schedule' with injury return**: [Link](https://www.90min.com/real-madrid-star-schedule-with-injury-return)
+- **Injured Real Madrid star sets Barcelona target**: [Link](https://sports.yahoo.com/injured-real-madrid-star-sets-183600644.html)
+- **Real Madrid could have player back for El Clasico as injury timescale is 
+shortened**: [Link](https://sports.yahoo.com/real-madrid-could-player-back-100700173.html)
+
+
 ### chili – brésil (N/A, Thu, 10 Oct 2024 16:10:00 -0700)
 
 - **Chili-Brésil : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/chili-bresil-streaming-chaine-tv-et-compos-10206022.html)
