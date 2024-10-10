@@ -1,3 +1,10 @@
+### اعصار فلوريدا (N/A, Thu, 10 Oct 2024 02:10:00 -0700)
+
+- **قتلى و"تفاصيل غير واضحة" جراء الإعصار ميلتون في فلوريدا**: [Link](https://www.alhurra.com/usa/2024/10/10/%D9%82%D8%AA%D9%84%D9%89-%D9%88%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%BA%D9%8A%D8%B1-%D9%88%D8%A7%D8%B6%D8%AD%D8%A9-%D8%AC%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D9%81%D9%84%D9%88%D8%B1%D9%8A%D8%AF%D8%A7)
+- **بالصور.. إعصار ميلتون يضرب ولاية فلوريدا ويدمر المنازل**: [Link](https://www.aljazeera.net/news/2024/10/10/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%88%D9%84%D8%A7%D9%8A%D8%A9)
+- **صور صادمة توثق إعصار ميلتون.. إليكم سرعة الرياح وحجم الأمطار**: [Link](https://arabic.cnn.com/world/article/2024/10/10/hurricane-milton-is-unleashing-life-threatening-flooding-and-destructive-winds-heres-what-we-know)
+
+
 ### lamine yamal (N/A, Wed, 9 Oct 2024 22:10:00 -0700)
 
 - **Lamine Yamal explica su enfado**: [Link](https://as.com/futbol/lamine-yamal-explica-su-enfado-n/)
