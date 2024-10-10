@@ -1,3 +1,10 @@
+### تشيلي ضد البرازيل (N/A, Thu, 10 Oct 2024 16:30:00 -0700)
+
+- **موعد مباراة تشيلي والبرازيل في تصفيات كأس العالم 2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1360280)
+- **تشكيلة منتخب البرازيل المتوقعة لمباراة تشيلي**: [Link](https://hihi2.com/2024/10/10/p2883386.html)
+- **3 عوامل تهدد تأهل البرازيل إلى مونديال 2026 قبل مواجهتي تشيلي وبيرو**: [Link](https://www.alaraby.co.uk/sport/3-%D8%B9%D9%88%D8%A7%D9%85%D9%84-%D8%AA%D9%87%D8%AF%D8%AF-%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%A5%D9%84%D9%89-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%AA%D9%8A-%D8%AA%D8%B4%D9%8A%D9%84%D9%8A-%D9%88%D8%A8%D9%8A%D8%B1%D9%88)
+
+
 ### brahim diaz (N/A, Thu, 10 Oct 2024 16:20:00 -0700)
 
 - **Real Madrid star 'ahead of schedule' with injury return**: [Link](https://www.90min.com/real-madrid-star-schedule-with-injury-return)
