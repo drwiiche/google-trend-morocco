@@ -1,3 +1,12 @@
+### chili – brésil (N/A, Thu, 10 Oct 2024 16:10:00 -0700)
+
+- **Chili-Brésil : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/chili-bresil-streaming-chaine-tv-et-compos-10206022.html)
+- **Dorival Jr, sélectionneur du Brésil : « J'ai une grande confiance en ces 
+garçons » (Foot)**: [Link](https://www.lequipe.fr/Football/Actualites/Dorival-jr-selectionneur-du-bresil-j-ai-une-grande-confiance-en-ces-garcons/1512962)
+- **Comment progresse la qualification Conmebol ? Le Brésil en crise loin des 
+premières places**: [Link](https://www.footboom1.com/fr/news/football/1910979-how-is-the-conmebol-qualification-progressing-brazil-in-crisis-far-from-the-top-spots)
+
+
 ### pilote turkish airlines (N/A, Thu, 10 Oct 2024 14:10:00 -0700)
 
 - **Pilot dies aboard Turkish Airlines flight, forcing emergency landing in New 
