@@ -1,3 +1,11 @@
+### ouragan milton maroc (N/A, Thu, 10 Oct 2024 00:50:00 -0700)
+
+- **La tempête Leslie peut-elle s’approcher des côtes marocaines?**: [Link](https://snrtnews.com/fr/article/la-tempete-leslie-peut-elle-sapprocher-des-cotes-marocaines-104316)
+- **Leslie s’est renforcée en Ouragan dans l’Atlantique, mais ne menace pas de 
+terres**: [Link](https://www.lesoleil.com/monde/2024/10/05/emleslieem-sest-renforcee-en-ouragan-dans-latlantique-mais-ne-menace-pas-de-terres-MGBMJCCDO5BNBEPHXQ7I7O3ILU/)
+- **Dépression Kirk : la France balayée par la pluie et le vent ce mercredi**: [Link](https://www.ouest-france.fr/meteo/tempete/direct-depression-kirk-30-departements-en-vigilance-orange-dintenses-pluies-attendues-dabfda58-c96a-490b-97cb-5687be19f394)
+
+
 ### lucas paquetá (N/A, Thu, 10 Oct 2024 01:50:00 -0700)
 
 - **Lucas Paqueta’s old phone behind two new FA charges in betting case which 
