@@ -1,3 +1,11 @@
+### venezuela – argentine (N/A, Thu, 10 Oct 2024 13:20:00 -0700)
+
+- **Messi et l’Argentine menacés par l’ouragan en Floride**: [Link](https://www.sports.fr/football/international/messi-et-largentine-menaces-par-louragan-en-floride-871761.html)
+- **Qualifs. CDM 26. AM Sud / Avant la J9 de cette nuit, l’Argentine mène, le 
+Brésil traîne !**: [Link](https://www.lopinion.ma/Qualifs-CDM-26-AM-Sud-Avant-la-J9-de-cette-nuit-l-Argentine-mene-le-Bresil-traine-_a58836.html)
+- **Venezuela-Argentine : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/venezuela-argentine-streaming-chaine-tv-et-compos-10206020.html)
+
+
 ### bolivie – colombie (N/A, Thu, 10 Oct 2024 13:00:00 -0700)
 
 - **Composition Bolivie - Colombie, Qualifications Coupe du Monde CONMEBOL, 
