@@ -1,3 +1,12 @@
+### hurricane (N/A, Wed, 9 Oct 2024 17:40:00 -0700)
+
+- **Hurricane Milton latest: Deaths reported, emergency services suspended and 
+roof ripped off stadium as Milton smashes into Florida**: [Link](https://news.sky.com/story/hurricane-milton-hits-florida-latest-live-updates-13230451)
+- **Tropicana Field transformed into base camp ahead of Hurricane Milton: See 
+inside**: [Link](https://www.usatoday.com/story/news/nation/2024/10/08/tropicana-field-hurricane-milton-tampa/75569071007/)
+- **Tropicana Field roof ripped off by winds during Hurricane Milton**: [Link](https://www.abcactionnews.com/news/local-news/the-roof-of-tropicana-field-was-ripped-off-by-hurricane-miltons-winds)
+
+
 ### حالة الطقس اليوم (N/A, Wed, 9 Oct 2024 22:20:00 -0700)
 
 - **4 أيام عِجاف.. بيان مهم بشأن حالة الطقس غدًا الخميس (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3279376)
