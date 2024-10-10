@@ -1,3 +1,19 @@
+### england vs (N/A, Thu, 10 Oct 2024 13:50:00 -0700)
+
+- **England vs Pakistan: Harry Brook scores scintillating 317 before hosts 
+collapse on day four of first Test in Multan**: [Link](https://www.skysports.com/cricket/news/12123/13231234/england-vs-pakistan-harry-brook-scores-scintillating-317-before-hosts-collapse-on-day-four-of-first-test-in-multan)
+- **Pakistan vs England: Harry Brook & Joe Root set up victory charge**: [Link](https://www.bbc.com/sport/cricket/articles/cy0g13djrd1o)
+- **Insatiable appetite and slimline frame behind Brook's Multan marathon**: [Link](https://www.espncricinfo.com/story/pak-vs-eng-1st-test-insatiable-appetite-and-slimline-frame-behind-brooks-multan-marathon-1454508)
+
+
+### mazraoui (N/A, Thu, 10 Oct 2024 13:50:00 -0700)
+
+- **Manchester United summer signing is diagnosed with heart condition - and 
+set for a spell on the sidelines havi**: [Link](https://www.dailymail.co.uk/sport/football/article-13944573/Man-United-summer-signing-diagnosed-rare-heart-condition.html)
+- **Afcon 2025 qualifiers : Youssef Belammari replaces injured Noussair Mazraoui**: [Link](https://en.yabiladi.com/articles/details/154925/afcon-2025-qualifiers-youssef-belammari.html)
+- **Man Utd woes deepen ahead of West Ham game amid new update**: [Link](https://www.westhamzone.com/comment/man-united-injury-woes-deepen-ahead-of-west-ham-game-as-mazraoui-update-shared/)
+
+
 ### belgique foot (N/A, Thu, 10 Oct 2024 13:40:00 -0700)
 
 - **Belgique : Youri Tielemans en veut à Kevin De Bruyne**: [Link](https://www.footmercato.net/a6900109864219233421-belgique-youri-tielemans-en-veut-a-kevin-de-bruyne)
