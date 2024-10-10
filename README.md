@@ -1,3 +1,12 @@
+### love is blind habibi (N/A, Thu, 10 Oct 2024 08:20:00 -0700)
+
+- **Love Is Blind Habibi الحب أعمى حبيبي. Release Date, Cast, Instagrams, 
+Couples, Location, Who's Still Together?**: [Link](https://www.imdb.com/news/ni64878982/?ref_=nwc_art_plk)
+- **Love is Blind Habibi finale — One couple ties the knot**: [Link](https://www.soapcentral.com/shows/love-blind-habibi-finale-one-couple-ties-knot)
+- **Love is Blind Habibi episode 5 recap: Two couples leave while another makes 
+their arrival**: [Link](https://www.sportskeeda.com/us/reality-tv/love-blind-habibi-episode-5-recap-two-couples-leave-another-makes-arrival)
+
+
 ### jordanie – corée du sud (N/A, Thu, 10 Oct 2024 06:10:00 -0700)
 
 - **Qualifs. CDM 26. Asie : deux belles affiches ce jeudi !**: [Link](https://www.lopinion.ma/Qualifs-CDM-26-Asie-deux-belles-affiches-ce-jeudi-_a58839.html)
