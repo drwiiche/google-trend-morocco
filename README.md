@@ -1,3 +1,12 @@
+### rd congo – tanzanie (N/A, Thu, 10 Oct 2024 08:20:00 -0700)
+
+- **CAN (qualifs): incident en RD Congo, la sécurité menace un journaliste avec 
+une arme**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-qualifs-incident-en-rd-congo-la-securite-menace-un-journaliste-avec-une-arme_AN-202410100588.html)
+- **Eliminatoires CAN 2025 : Sébastien Désarbre croit en la victoire de la RDC 
+face à la Tanzanie**: [Link](https://www.radiookapi.net/2024/10/10/actualite/sport/eliminatoires-can-2025-sebastien-desarbre-croit-en-la-victoire-de-la-rdc)
+- **Léopards : Desabre réfute l’idée d’une hiérarchie au poste des gardiens**: [Link](https://footrdc.com/a-la-une/leopards-desabre-refute-lidee-dune-hierarchie-au-poste-des-gardiens/)
+
+
 ### الأردن ضد كوريا الجنوبية (N/A, Thu, 10 Oct 2024 07:20:00 -0700)
 
 - **مباشر.. الأردن ضد كوريا الجنوبية في التصفيات الآسيوية المؤهلة لمونديال 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/10/jordan-south-korea-afc-worldcup-qualifiers)
