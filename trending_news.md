@@ -1,3 +1,10 @@
+### jordanie – corée du sud (N/A, Thu, 10 Oct 2024 06:10:00 -0700)
+
+- **Qualifs. CDM 26. Asie : deux belles affiches ce jeudi !**: [Link](https://www.lopinion.ma/Qualifs-CDM-26-Asie-deux-belles-affiches-ce-jeudi-_a58839.html)
+- **Séance d'entraînement**: [Link](https://fr.yna.co.kr/view/PYH20241010007600884)
+- **Diffusion Jordanie/Corée du Sud – Heure et chaîne pour voir le match**: [Link](https://www.parisfans.fr/autour-du-psg/diffusion-jordanie-coree-du-sud-heure-et-chaine-pour-voir-le-match-3-721459.html)
+
+
 ### rd congo – tanzanie (N/A, Thu, 10 Oct 2024 08:20:00 -0700)
 
 - **CAN (qualifs): incident en RD Congo, la sécurité menace un journaliste avec 
