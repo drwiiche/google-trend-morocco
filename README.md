@@ -1,3 +1,10 @@
+### الطقس اليوم (N/A, Wed, 9 Oct 2024 22:40:00 -0700)
+
+- **منخفض جوي يجلب أمطارًا خفيفة وانخفاضًا في درجات الحرارة بالمغرب**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%8A%D8%AC%D9%84%D8%A8-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1%D9%8B%D8%A7-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D9%88%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6%D9%8B-1444779.html)
+- **أمطار الخير تعود إلى أجواء المملكة وهذه هي المناطق المغربية المعنية**: [Link](https://www.akhbarona.com/national/393451.html)
+- **طقس الخميس: توقع أمطار متفرقة مع رياح بهذه المناطق**: [Link](https://ar.le360.ma/societe/WMRHFV2EZFCL5LB3UOFSI5YXSU/)
+
+
 ### weather (N/A, Wed, 9 Oct 2024 22:50:00 -0700)
 
 - **What is a storm surge, and what is the threat from Hurricane Milton?**: [Link](https://www.theguardian.com/us-news/2024/oct/07/what-is-storm-surge-causes-hurricane-milton)
