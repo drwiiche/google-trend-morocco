@@ -1,3 +1,25 @@
+### israël – france (N/A, Thu, 10 Oct 2024 11:00:00 -0700)
+
+- **DIRECT. Israël-France (Ligue des nations A 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/israel-france-live/632623)
+- **Ligue des Nations. Israël - France : plusieurs surprises dans la composition des Bleus, l'avant match en direct**: [Link](https://www.linternaute.com/sport/foot/6374957-ligue-des-nations-israel-france-le-choix-ose-de-deschamps-qui-secoue-les-bleus/)
+- **Israël-France : Compo probable : Vers un 4-2-3-1 avec Kolo Muani en pointe ?**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2024-2025/israel-france-compo-probable-vers-un-4-2-3-1-avec-kolo-muani-en-pointe_sto10364834/story.shtml)
+
+
+### italie – belgique (N/A, Thu, 10 Oct 2024 11:00:00 -0700)
+
+- **La Juventus envoie son directeur sportif à Rome pour scouter quatre Diables Rouges lors d'Italie - Belgique !**: [Link](https://www.walfoot.be/news/2024-10-10/la-juventus-envoie-son-directeur-sportif-a-rome-pour-scouter-quatre-diables-rouges-lors-ditalie---belgique)
+- **Foot : À quelle heure et sur quelle chaîne regarder Italie-Belgique en Ligue des nations ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-regarder-italie-belgique-en-ligue-des-nations/1512642)
+- **Ligue des Nations - Spalletti : "Un match crucial pour notre avenir"**: [Link](https://www.beinsports.com/fr-fr/football/ligue-des-nations/articles-video/ligue-des-nations-spalletti-un-match-crucial-pour-notre-avenir-2024-10-10)
+
+
+### angleterre – grèce (N/A, Thu, 10 Oct 2024 11:00:00 -0700)
+
+- **Angleterre-Grèce : streaming gratuit, chaîne TV et compos**: [Link](https://www.football365.fr/angleterre-grece-streaming-gratuit-chaine-tv-et-compos-10206010.html)
+- **PRONOS PARIS RMC Le pari sûr du 10 octobre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-10-octobre-ligue-des-nations_AN-202410090570.html)
+- **Foot : blessé, Harry Kane ne sera pas titulaire contre la Grèce en Ligue 
+des nations**: [Link](https://www.lefigaro.fr/sports/football/foot-blesse-harry-kane-ne-sera-pas-titulaire-contre-la-grece-en-ligue-des-nations-20241010)
+
+
 ### rafael nadal (N/A, Thu, 10 Oct 2024 04:50:00 -0700)
 
 - **Rafael Nadal retires: 22-time Grand Slam champion confirms retirement from tennis aged 38**: [Link](https://www.bbc.com/sport/tennis/articles/ckgv9n5jj8jo)
