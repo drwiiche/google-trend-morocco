@@ -1,3 +1,25 @@
+### إيطاليا ضد بلجيكا (N/A, Thu, 10 Oct 2024 12:20:00 -0700)
+
+- **تونالي أساسيا بتشكيل إيطاليا لموقعة بلجيكا**: [Link](https://m.kooora.com/?n=1360421&o=n)
+- **إيطاليا – بلجيكا .. نزال مرتقب**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%86%D8%B2%D8%A7%D9%84-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-2024-10-10)
+- **سباليتي يقلل من غيابات منتخب بلجيكا**: [Link](https://hihi2.com/2024/10/09/p2882129.html)
+
+
+### وفيق صفا (N/A, Thu, 10 Oct 2024 12:20:00 -0700)
+
+- **غارات إسرائيلية في بيروت تخلف 11 قتيلًا**: [Link](https://www.hespress.com/%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A8%D9%8A%D8%B1%D9%88%D8%AA-%D8%AA%D8%AE%D9%84%D9%81-11-%D9%82%D8%AA%D9%8A%D9%84%D9%8B%D8%A7-1445422.html)
+- **ضحايا بقصف على بيروت وحزب الله يتصدى لجنود ويقصف شمال إسرائيل**: [Link](https://www.aljazeera.net/news/2024/10/10/%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D9%88%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87)
+- **استهدفته إسرائيل في بيروت.. من هو وفيق صفا صهر حسن نصر الله؟**: [Link](https://www.alarabiya.net/arab-and-world/2024/10/10/-%D9%85%D9%87%D8%B1%D8%A8-%D9%88%D9%85%D9%81%D8%A7%D9%88%D8%B6-%D9%85%D9%86-%D9%87%D9%88-%D9%88%D9%81%D9%8A%D9%82-%D8%B5%D9%81%D8%A7-%D8%A7%D9%84%D8%B0%D9%8A-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D9%81%D8%AA%D9%87-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A8%D9%8A%D8%B1%D9%88%D8%AA)
+
+
+### can 2025 (N/A, Thu, 10 Oct 2024 12:20:00 -0700)
+
+- **AFCON 2025Q: Fae Targets Winning AFCON 2025 Again**: [Link](https://en.africatopsports.com/2024/10/10/afcon-2025q-fae-targets-winning-afcon-2025-again/)
+- **Preview: Ivory Coast vs. Sierra Leone - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ivory-coast/africa-cup-of-nations/preview/preview-ivory-coast-vs-sierra-leone-prediction-team-news-lineups_555085.html)
+- **Sierra Leone: Final Preparations for CAN 2025 Qualifiers Against Ivory 
+Coast's Elephants**: [Link](https://www.footboom1.com/en/news/football/1915752-sierra-leone-final-preparations-for-can-2025-qualifiers-against-ivory-coast-s-elephants)
+
+
 ### nations league (N/A, Thu, 10 Oct 2024 11:50:00 -0700)
 
 - **Harry Kane is modern England’s dad: but is it time for him to consider 
