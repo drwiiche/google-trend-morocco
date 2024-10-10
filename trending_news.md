@@ -1,3 +1,20 @@
+### météo (N/A, Wed, 9 Oct 2024 22:40:00 -0700)
+
+- **Dépression Kirk : un mort dans l’Hérault ; la Seine-et-Marne en vigilance 
+rouge pour les crues**: [Link](https://www.lemonde.fr/planete/article/2024/10/10/depression-kirk-un-mort-dans-l-herault-la-seine-et-marne-en-vigilance-rouge-pour-les-crues_6347484_3245.html)
+- **Alerte Météo : Passage de la dépression Kirk : vent fort et pluies 
+abondantes**: [Link](https://actualite.lachainemeteo.com/alerte-meteo/8141-passage-de-la-depression-kirk-vent-fort-et-pluies-abondantes)
+- **Isère : le trafic ferroviaire à l'arrêt entre Grenoble et Lyon**: [Link](https://www.francebleu.fr/infos/transports/isere-le-trafic-ferroviaire-a-l-arret-entre-grenoble-et-lyon-8569819)
+
+
+### الطقس (N/A, Wed, 9 Oct 2024 22:40:00 -0700)
+
+- **4 أيام عِجاف.. بيان مهم بشأن حالة الطقس غدًا الخميس (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3279376)
+- **طقس معتدل غدا فى أول الليل مائل للبرودة بآخره وشبورة والعظمى بالقاهرة 32 
+درجة**: [Link](https://www.youm7.com/story/2024/10/9/%D8%B7%D9%82%D8%B3-%D9%85%D8%B9%D8%AA%D8%AF%D9%84-%D8%BA%D8%AF%D8%A7-%D9%81%D9%89-%D8%A3%D9%88%D9%84-%D8%A7%D9%84%D9%84%D9%8A%D9%84-%D9%85%D8%A7%D8%A6%D9%84-%D9%84%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D8%A8%D8%A2%D8%AE%D8%B1%D9%87-%D9%88%D8%B4%D8%A8%D9%88%D8%B1%D8%A9/6735845)
+- **كثيفة على هذه الطرق، تحذير عاجل من الشبورة المائية غدا - لاين نيوز**: [Link](https://za.l0n.news/17557.html)
+
+
 ### طقس (N/A, Wed, 9 Oct 2024 20:50:00 -0700)
 
 - **منخفض جوي يجلب أمطارًا خفيفة وانخفاضًا في درجات الحرارة بالمغرب**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%8A%D8%AC%D9%84%D8%A8-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1%D9%8B%D8%A7-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D9%88%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6%D9%8B-1444779.html)
