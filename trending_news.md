@@ -1,3 +1,35 @@
+### الجزائر ضد توغو (N/A, Thu, 10 Oct 2024 11:30:00 -0700)
+
+- **منتخب الجزائر يواجه توجو بقميص جديد**: [Link](https://www.kooora.com/?n=1360244)
+- **وباء يُهدد المنتخب الجزائري**: [Link](https://ar.hibapress.com/details-560332.html)
+- **منتخب الجزائر يسعى لحسم التأهل إلى أمم أفريقيا على حساب توغو**: [Link](https://www.alquds.co.uk/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%A3%D9%85%D9%85/)
+
+
+### england vs greece (N/A, Thu, 10 Oct 2024 11:30:00 -0700)
+
+- **England v Greece: Nations League – live**: [Link](https://www.theguardian.com/football/live/2024/oct/10/england-v-greece-nations-league-live)
+- **Emotional David Beckham listens back to the commentary of his famous free 
+kick goal**: [Link](https://talksport.com/video/football/2150990/emotional-david-beckham-listens-back-to-the-commentary-of-his-famous-free-kick-goal/)
+- **England - Greece live: UEFA Nations League - Football**: [Link](https://www.tntsports.co.uk/football/uefa-nations-league/2024-2025/live-england-greece_mtc1561328/live-commentary.shtml)
+
+
+### italy vs belgium (N/A, Thu, 10 Oct 2024 11:30:00 -0700)
+
+- **Preview: Italy vs. Belgium - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/italy/uefa-nations-league/preview/preview-italy-vs-belgium-prediction-team-news-lineups_554947.html)
+- **Spalletti on the Game Against Belgium: "This is a Fundamental Match for Our 
+Future"**: [Link](https://www.footboom1.com/en/news/football/1913466-spalletti-on-the-game-against-belgium-this-is-a-fundamental-match-for-our-future)
+- **How to watch Italy vs Belgium on US TV and live streaming**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-italy-vs-belgium-on-us-tv-and-live-streaming/)
+
+
+### david baker (N/A, Thu, 10 Oct 2024 11:30:00 -0700)
+
+- **Nobel physics prize 2024 won by AI pioneers John Hopfield and Geoffrey 
+Hinton**: [Link](https://www.reuters.com/science/hopfield-hinton-win-2024-nobel-prize-physics-2024-10-08/)
+- **Demis Hassabis & John Jumper awarded Nobel Prize in Chemistry**: [Link](https://deepmind.google/discover/blog/demis-hassabis-john-jumper-awarded-nobel-prize-in-chemistry/)
+- **Nobel Prize in Chemistry Goes to 3 Scientists for Predicting and Creating 
+Proteins**: [Link](https://www.nytimes.com/2024/10/09/science/nobel-prize-chemistry.html)
+
+
 ### algérie – togo (N/A, Thu, 10 Oct 2024 11:10:00 -0700)
 
 - **À quelle heure et sur quelle chaîne regarder le match Algérie - Togo ?**: [Link](https://www.20minutes.fr/guide-achat/4114663-20241010-algerie-togo-heure-chaine-regarder-match-jeudi)
