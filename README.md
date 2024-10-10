@@ -1,3 +1,12 @@
+### lucas paquetá (N/A, Thu, 10 Oct 2024 01:50:00 -0700)
+
+- **Lucas Paqueta’s old phone behind two new FA charges in betting case which 
+could see West Ham star banned f...**: [Link](https://www.thesun.co.uk/sport/30925436/lucas-paqueta-west-ham-betting-fa-ban/)
+- **Paquetá’s International Inclusion : ‘A Grave Error’**: [Link](https://www.claretandhugh.info/paquetas-international-inclusion-a-grave-error/)
+- **West Ham star Lucas Paqueta 'learns date of hearing into alleged 
+spot-fixing' - with the Brazilian accused of**: [Link](https://www.dailymail.co.uk/sport/football/article-13898607/West-Ham-Lucas-Paqueta-Brazilian-Premier-League.html)
+
+
 ### اعصار فلوريدا (N/A, Thu, 10 Oct 2024 02:10:00 -0700)
 
 - **قتلى و"تفاصيل غير واضحة" جراء الإعصار ميلتون في فلوريدا**: [Link](https://www.alhurra.com/usa/2024/10/10/%D9%82%D8%AA%D9%84%D9%89-%D9%88%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%BA%D9%8A%D8%B1-%D9%88%D8%A7%D8%B6%D8%AD%D8%A9-%D8%AC%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D9%81%D9%84%D9%88%D8%B1%D9%8A%D8%AF%D8%A7)
