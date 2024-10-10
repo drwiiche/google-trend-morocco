@@ -1,3 +1,20 @@
+### فنزويلا ضد الأرجنتين (N/A, Thu, 10 Oct 2024 13:30:00 -0700)
+
+- **"من يبقَ فسيموت".. إعصار ميلتون يهدد حياة ميسي والأرجنتينيين**: [Link](https://www.alarabiya.net/sport/2024/10/09/-%D9%85%D9%86-%D9%8A%D8%A8%D9%82%D9%89-%D8%B3%D9%8A%D9%85%D9%88%D8%AA-%D8%A7%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86-%D9%8A%D9%87%D8%AF%D8%AF-%D8%AD%D9%8A%D8%A7%D8%A9-%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A%D9%8A%D9%86)
+- **ميسي يقود كتيبة الأرجنتين أمام فنزويلا**: [Link](https://m.kooora.com/?n=1360473&o=n)
+- **الأرجنتين والبرازيل يسعيان لتحقيق العلامة الكاملة بتوقف أكتوبر في تصفيات 
+مونديال 2026**: [Link](https://sport.al3omk.com/69720.html)
+
+
+### venezuela vs argentina (N/A, Thu, 10 Oct 2024 13:30:00 -0700)
+
+- **Venezuela vs Argentina hoy: horario y dónde ver en vivo, Eliminatorias 
+Sudamericanas**: [Link](https://www.larazon.es/deportes/futbol/venezuela-argentina-hoy-horario-donde-ver-vivo-eliminatorias-sudamericanas_202410106707e310596dfb000128b3f1.html)
+- **Milton no detuvo el viaje de Argentina para las eliminatorias sudamericanas**: [Link](https://cnnespanol.cnn.com/video/milton-viaje-argentina-eliminatorias-sudamericanas-futbol-deportes-tv)
+- **Venezuela vs. Argentina: hora y cómo ver en vivo hoy desde Estados Unidos 
+el partido de las eliminatorias**: [Link](https://www.lanacion.com.ar/estados-unidos/venezuela-vs-argentina-hora-y-como-ver-en-vivo-desde-estados-unidos-el-partido-de-las-eliminatorias-nid10102024/)
+
+
 ### venezuela – argentine (N/A, Thu, 10 Oct 2024 13:20:00 -0700)
 
 - **Messi et l’Argentine menacés par l’ouragan en Floride**: [Link](https://www.sports.fr/football/international/messi-et-largentine-menaces-par-louragan-en-floride-871761.html)
