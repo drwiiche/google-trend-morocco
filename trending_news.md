@@ -1,3 +1,24 @@
+### الأردن ضد كوريا الجنوبية (N/A, Thu, 10 Oct 2024 07:20:00 -0700)
+
+- **مباشر.. الأردن ضد كوريا الجنوبية في التصفيات الآسيوية المؤهلة لمونديال 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/10/jordan-south-korea-afc-worldcup-qualifiers)
+- **موعد مباراة منتخب الأردن ضد كوريا الجنوبية والقنوات الناقلة في تصفيات كأس العالم 2026**: [Link](https://www.almasryalyoum.com/news/details/3279283)
+- **مدرب الأردن: كوريا تحت الضغط.. والتعمري يتدرب منفردًا**: [Link](https://www.kooora.com/?n=1360128)
+
+
+### الاعصار ميلتون (N/A, Thu, 10 Oct 2024 07:10:00 -0700)
+
+- **أربعة قتلى في الساحل الشرقي لفلوريدا**: [Link](https://www.hespress.com/%D8%A3%D8%B1%D8%A8%D8%B9%D8%A9-%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A-%D9%84%D9%81%D9%84%D9%88%D8%B1%D9%8A%D8%AF%D8%A7-1445222.html)
+- **السلطات الأميركية تعلن حصيلة أولية لضحايا الإعصار الخطير "ميلتون"**: [Link](https://www.alhurra.com/usa/2024/10/10/%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%A3%D9%88%D9%84%D9%8A%D8%A9-%D9%84%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D8%A7%D9%84%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D8%B7%D9%8A%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86)
+- **بالصور.. إعصار ميلتون يضرب ولاية فلوريدا ويدمر المنازل**: [Link](https://www.aljazeera.net/news/2024/10/10/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%88%D9%84%D8%A7%D9%8A%D8%A9)
+
+
+### ouzbékistan – iran (N/A, Thu, 10 Oct 2024 06:40:00 -0700)
+
+- **Preview: Uzbekistan vs. Iran - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/uzbekistan/world-cup/preview/preview-uzbekistan-vs-iran-prediction-team-news-lineups_554974.html)
+- **Team Melli defender Kanaani sidelined for three weeks [Report]**: [Link](https://www.persianfootball.com/news/2024/10/06/team-melli-defender-kanaani-sidelined-for-three-weeks-report/)
+- **'Match against Iran will be easier than match against Kyrgyzstan' - captain of Uzbek?s football team**: [Link](https://akipress.com/news:799958:_Match_against_Iran_will_be_easier_than_match_against_Kyrgyzstan__?_captain_of_Uzbek?s_football_team/)
+
+
 ### pfc (N/A, Thu, 10 Oct 2024 06:00:00 -0700)
 
 - **Ashok Dhyanchand hails Delhi's importance as international hockey returns 
