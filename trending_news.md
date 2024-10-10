@@ -1,3 +1,19 @@
+### algeria vs togo (N/A, Thu, 10 Oct 2024 12:30:00 -0700)
+
+- **How to watch today's Algeria vs Togo AFCON qualification game: Live stream, 
+TV channel, and start time**: [Link](https://www.goal.com/en-gb/news/watch-algeria-vs-togo-afcon-qualification-live-stream-tv/bltd37a1224c786a98b)
+- **Togo's preparation for Algeria: training session held in Annaba**: [Link](https://www.africanews.com/2024/10/10/togos-preparation-for-algeria-training-session-held-in-annaba/)
+- **Algeria Prepares for Crucial Encounter Against Togo in 2025 Africa Cup of 
+Nations Qualifiers**: [Link](https://al24news.com/en/algeria-prepares-for-crucial-encounter-against-togo-in-2025-africa-cup-of-nations-qualifiers/)
+
+
+### إنجلترا ضد اليونان (N/A, Thu, 10 Oct 2024 12:30:00 -0700)
+
+- **الرسم التكتيكي لمنتخبي إنجلترا و اليونان في دوري الأمم الأوروبية**: [Link](https://hihi2.com/2024/10/10/p2883465.html)
+- **بالمر وفودين في هجوم إنجلترا أمام اليونان**: [Link](https://www.kooora.com/?n=1360427)
+- **بث مباشر مباراة إنجلترا واليونان في دوري الأمم الأوروبية**: [Link](https://alhorianews.com/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86-%D9%81%D9%8A-%D8%AF%D9%88/)
+
+
 ### إيطاليا ضد بلجيكا (N/A, Thu, 10 Oct 2024 12:20:00 -0700)
 
 - **تونالي أساسيا بتشكيل إيطاليا لموقعة بلجيكا**: [Link](https://m.kooora.com/?n=1360421&o=n)
