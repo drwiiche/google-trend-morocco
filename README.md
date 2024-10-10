@@ -1,3 +1,21 @@
+### plus belle la vie encore plus belle (N/A, Thu, 10 Oct 2024 12:40:00 -0700)
+
+- **Plus belle la vie, encore plus belle du mercredi 9 octobre 2024 - Episode 
+187**: [Link](https://www.tf1.fr/tf1/plus-belle-la-vie/videos/plus-belle-la-vie-encore-plus-belle-du-mercredi-9-octobre-2024-episode-187-81790558.html)
+- **Plus belle la vie 10 octobre 2024 [CRITIQUE épisode 188] : Mirta et Robert, 
+l'heure des explications ! Vers une réconciliation inattendue**: [Link](https://www.nouveautes-tele.com/268842-plus-belle-la-vie-10-octobre-2024-critique-episode-188-mirta-et-robert-lheure-des-explications-vers-une-reconciliation-inattendue.html)
+- **Plus belle la vie en avance : ce qui vous attend dans l'épisode 189 du 
+vendredi 11 octobre 2024 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000107739.html)
+
+
+### éliminatoires de la can (N/A, Thu, 10 Oct 2024 12:40:00 -0700)
+
+- **Qualifs CAN 2025 : le Ghana en grand danger, la RDC enchaîne**: [Link](https://www.footmercato.net/a4187869889238748896-qualifs-can-2025-le-ghana-en-grand-danger-la-rdc-enchaine)
+- **Éliminatoires CAN 2025: le Soudan obtient un nul au Ghana**: [Link](https://www.rfi.fr/fr/afrique-foot/20241010-%C3%A9liminatoires-can-2025-le-soudan-obtient-un-nul-au-ghana)
+- **Ghana : Elim. CAN 2025, la CAF autorise les Black Stars à jouer à domicile 
+au stade sportif d'Accra**: [Link](https://www.koaci.com/index.php/article/2024/10/02/ghana/sport/ghana-elim-can-2025-la-caf-autorise-les-black-stars-a-jouer-a-domicile-au-stade-sportif-daccra_181338.html)
+
+
 ### algeria vs togo (N/A, Thu, 10 Oct 2024 12:30:00 -0700)
 
 - **How to watch today's Algeria vs Togo AFCON qualification game: Live stream, 
