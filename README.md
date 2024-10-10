@@ -1,3 +1,19 @@
+### nations league (N/A, Thu, 10 Oct 2024 11:50:00 -0700)
+
+- **Harry Kane is modern England’s dad: but is it time for him to consider 
+stepping aside?**: [Link](https://www.theguardian.com/football/2024/oct/10/harry-kane-england-goals-injuries-greece-finland)
+- **John Stones shared how Lee Carsley recently left him 'speechless' ahead of 
+England vs Greece**: [Link](https://www.manchestercity.news/john-stones-has-now-shared-what-lee-carsley-said-to-him-that-left-the-man-city-star-speechless/)
+- **Bayern Munich Injury Updates: Harry Kane, Hiroki Ito, Boey, Josip Stanisic**: [Link](https://www.thesportsbank.net/football/bayern-munich/harry-kane-ito-boey/)
+
+
+### han kang (N/A, Thu, 10 Oct 2024 11:20:00 -0700)
+
+- **Han Kang Is Awarded Nobel Prize in Literature**: [Link](https://www.nytimes.com/2024/10/10/arts/nobel-prize-literature.html)
+- **Is the Nobel Prize for Literature Great Again?**: [Link](https://newrepublic.com/article/187017/han-kang-nobel-prize-literature)
+- **Han Kang: South Korean author wins Nobel Literature Prize**: [Link](https://www.bbc.com/news/articles/c206djljel1o)
+
+
 ### الجزائر ضد توغو (N/A, Thu, 10 Oct 2024 11:30:00 -0700)
 
 - **منتخب الجزائر يواجه توجو بقميص جديد**: [Link](https://www.kooora.com/?n=1360244)
