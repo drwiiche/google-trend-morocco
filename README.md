@@ -1,3 +1,11 @@
+### pilote turkish airlines (N/A, Thu, 10 Oct 2024 14:10:00 -0700)
+
+- **Pilot dies aboard Turkish Airlines flight, forcing emergency landing in New 
+York**: [Link](https://www.cnn.com/2024/10/09/us/turkish-airlines-pilot-emergency-landing/index.html)
+- **Pilot dies flying Turkish Airlines plane from US to Turkey**: [Link](https://www.bbc.com/news/articles/c1jd7dg5z5lo)
+- **Turkish Airlines Flight Diverts To JFK After Pilot's Mid-Flight Death**: [Link](https://greekcitytimes.com/2024/10/10/turkish-airlines-flight-diverts-to-jfk-after-pilots-mid-flight-death/)
+
+
 ### england vs (N/A, Thu, 10 Oct 2024 13:50:00 -0700)
 
 - **England vs Pakistan: Harry Brook scores scintillating 317 before hosts 
