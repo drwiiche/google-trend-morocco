@@ -1,3 +1,11 @@
+### weather (N/A, Wed, 9 Oct 2024 22:50:00 -0700)
+
+- **What is a storm surge, and what is the threat from Hurricane Milton?**: [Link](https://www.theguardian.com/us-news/2024/oct/07/what-is-storm-surge-causes-hurricane-milton)
+- **Which hurricanes have been the worst in US history? A look back at Katrina, 
+Harvey, Ian and more**: [Link](https://www.indystar.com/story/weather/2024/10/09/hurricane-milton-katrina-andrew-helene-ian-worst-florida-united-states/75586562007/)
+- **Hurricane Milton Joins Rare List Of Atlantic Basin Category 5 Storms**: [Link](https://weather.com/safety/hurricane/news/2024-10-07-category-5-hurricane-atlantic-history-milton)
+
+
 ### météo (N/A, Wed, 9 Oct 2024 22:40:00 -0700)
 
 - **Dépression Kirk : un mort dans l’Hérault ; la Seine-et-Marne en vigilance 
