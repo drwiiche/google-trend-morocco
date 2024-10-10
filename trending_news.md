@@ -1,3 +1,29 @@
+### bolivie – colombie (N/A, Thu, 10 Oct 2024 13:00:00 -0700)
+
+- **Composition Bolivie - Colombie, Qualifications Coupe du Monde CONMEBOL, 
+9ème journée, match du jeudi 10 octobre 2024**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/live/112026/match-Bolivie-Colombie-journee-09_FM-230727673285.html)
+- **Atteindre de nouveaux sommets : Pourquoi parier sur la Bolivie dans les 
+éliminatoires de la Coupe du monde**: [Link](https://www.goal.com/fr/parier-en-ligne/atteindre-de-nouveaux-sommets-pourquoi-parier-sur-la-bolivie-dans-les-eliminatoires-de-la-coupe-du-monde/blt89b331e52cfdf33e)
+- **Álex Rambal : L'ancien joueur junior partage ses réflexions avant le match 
+de la Colombie contre la Bolivie**: [Link](https://www.footboom1.com/fr/news/football/1908864-alex-rambal-the-former-junior-player-offers-insights-for-colombia-s-match-against-bolivia)
+
+
+### algerie foot (N/A, Thu, 10 Oct 2024 12:50:00 -0700)
+
+- **Le machin et les voyous**: [Link](https://sport.le360.ma/football/coupe-caf/le-machin-et-les-voyous_X24ZXBDGXVAUVCUDCDRA2S4PQI/)
+- **Coupe de la CAF : l’USM Alger sanctionnée suite à son retrait des 
+demi-finales**: [Link](https://mobile.telquel.ma/instant-t/2024/10/09/coupe-de-la-caf-lusm-alger-sanctionnee-suite-a-son-retrait-des-demi-finales_1897905/)
+- **Maillot du RS de Berkane : l'USM d'Alger écope d'une amende de 40.000 
+dollars et fait appel**: [Link](https://medias24.com/2024/10/09/maillot-du-rs-de-berkane-lusm-dalger-ecope-dune-amende-de-40-000-dollars-et-fait-appel/)
+
+
+### france israel (N/A, Thu, 10 Oct 2024 12:10:00 -0700)
+
+- **Netanyahu says French call to stop weapons sales ‘a disgrace’**: [Link](https://www.aljazeera.com/program/newsfeed/2024/10/6/netanyahu-calls-french-call-to-stop-weapons-sales-used-in-gaza-a)
+- **Behind the War of Words Between Macron and Netanyahu**: [Link](https://www.nytimes.com/2024/10/07/world/europe/macron-netanyahu-weapons.html)
+- **French Foreign Minister Echoes Macron's Call to Restrict Weapons for Israel**: [Link](https://www.haaretz.com/israel-news/2024-10-08/ty-article/.premium/french-foreign-minister-echoes-macrons-call-to-restrict-weapons-for-israel/00000192-6d87-dcf6-abd2-6fd73a800000)
+
+
 ### plus belle la vie encore plus belle (N/A, Thu, 10 Oct 2024 12:40:00 -0700)
 
 - **Plus belle la vie, encore plus belle du mercredi 9 octobre 2024 - Episode 
