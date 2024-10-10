@@ -1,3 +1,12 @@
+### pfc (N/A, Thu, 10 Oct 2024 06:00:00 -0700)
+
+- **Ashok Dhyanchand hails Delhi's importance as international hockey returns 
+to the capital**: [Link](https://ianslive.in/ashok-dhyanchand-hails-delhis-importance-as-international-hockey-returns-to-the-capital--20241004221339)
+- **HI ropes in PFC as title sponsor for India versus Germany bilateral series**: [Link](https://theprint.in/sport/hi-ropes-in-pfc-as-title-sponsor-for-india-versus-germany-bilateral-series/2304143/)
+- **Major Dhyan Chand Stadium to Get Facelift as International Hockey Returns 
+with Germany 'Tests'**: [Link](https://www.news18.com/sports/major-dhyan-chand-stadium-to-get-facelift-as-international-hockey-returns-with-germany-tests-9082068.html)
+
+
 ### outer banks saison 4 (N/A, Thu, 10 Oct 2024 05:40:00 -0700)
 
 - **Nouveau sur Netflix : le retour de cette série populaire notée 4 sur 5**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000107347.html)
