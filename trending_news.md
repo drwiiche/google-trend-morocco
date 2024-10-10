@@ -1,3 +1,10 @@
+### outer banks saison 4 (N/A, Thu, 10 Oct 2024 05:40:00 -0700)
+
+- **Nouveau sur Netflix : le retour de cette série populaire notée 4 sur 5**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000107347.html)
+- **Outer Banks : Saison 4 – Les Pogues embarquent dans une nouvelle mission**: [Link](https://streamnews.be/outer-banks-saison-4-les-pogues-embarquent-dans-une-nouvelle-mission/)
+- **Chase Stokes à la recherche du trésor de Barbe Noire**: [Link](https://www.20min.ch/fr/story/television-chase-stokes-a-la-recherche-du-tresor-de-barbe-noire-103199022)
+
+
 ### meteo (N/A, Wed, 9 Oct 2024 23:00:00 -0700)
 
 - **What category is Hurricane Milton? Florida has bigger worries than that.**: [Link](https://www.usatoday.com/story/news/weather/2024/10/09/hurricane-milton-category-isnt-forecasters-biggest-worry/75573510007/)
