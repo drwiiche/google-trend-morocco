@@ -1,3 +1,10 @@
+### rafael nadal (N/A, Thu, 10 Oct 2024 04:50:00 -0700)
+
+- **Rafael Nadal retires: 22-time Grand Slam champion confirms retirement from tennis aged 38**: [Link](https://www.bbc.com/sport/tennis/articles/ckgv9n5jj8jo)
+- **Nadal confirms he will retire at end of 2024 season**: [Link](https://www.atptour.com/en/news/nadal-october-2024-retirement-announcement)
+- **Kyrgios: "We had our differences, but you were an incredible warrior"**: [Link](https://www.puntodebreak.com/en/2024/10/10/kyrgios-we-had-our-differences-but-you-were-an-incredible-warrior)
+
+
 ### love is blind habibi (N/A, Thu, 10 Oct 2024 08:20:00 -0700)
 
 - **Love Is Blind Habibi الحب أعمى حبيبي. Release Date, Cast, Instagrams, 
