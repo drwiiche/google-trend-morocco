@@ -1,3 +1,11 @@
+### lamine yamal (N/A, Wed, 9 Oct 2024 22:10:00 -0700)
+
+- **Lamine Yamal explica su enfado**: [Link](https://as.com/futbol/lamine-yamal-explica-su-enfado-n/)
+- **Lamine Yamal: "Estamos contentos con el modelo de juego de Flick y la 
+libertad que nos da"**: [Link](https://www.marca.com/futbol/barcelona/2024/10/08/6705955e46163f74ae8b4593.html)
+- **FC Barcelona | Los motivos del enfado de Lamine Yamal**: [Link](https://www.sport.es/es/noticias/barca/motivos-enfado-lamine-yamal-108995526)
+
+
 ### hurricane (N/A, Wed, 9 Oct 2024 17:40:00 -0700)
 
 - **Hurricane Milton latest: Deaths reported, emergency services suspended and 
