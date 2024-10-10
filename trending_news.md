@@ -1,3 +1,20 @@
+### nadal (N/A, Thu, 10 Oct 2024 04:00:00 -0700)
+
+- **Rafael Nadal retires: 22-time Grand Slam champion confirms retirement from 
+tennis aged 38**: [Link](https://www.bbc.com/sport/tennis/articles/ckgv9n5jj8jo)
+- **Federer on Nadal's Retirement: "I always hoped this day would never come"**: [Link](https://www.puntodebreak.com/en/2024/10/10/federer-on-nadals-retirement-i-always-hoped-this-day-would-never-come)
+- **Rafael Nadal to retire from professional tennis**: [Link](https://www.dw.com/en/rafael-nadal-to-retire-from-professional-tennis/a-70453795)
+
+
+### xxl (N/A, Wed, 9 Oct 2024 19:40:00 -0700)
+
+- **Lawyers for Sean Combs allege US government leaked assault footage to CNN**: [Link](https://www.theguardian.com/music/2024/oct/10/lawyers-for-sean-combs-allege-us-government-leaked-assault-footage-to-cnn)
+- **Diddy arrest: Sean Combs due in Lower Manhattan court for pre-trial 
+hearing, attorneys to ask for bail for third time**: [Link](https://abc7ny.com/post/diddy-arrest-sean-combs-due-lower-manhattan-court-pre-trial-hearing-attorneys-ask-bail-time/15411480/)
+- **Attorneys for Sean ‘Diddy’ Combs allege government leaked evidence to the 
+media, impeding ‘fair trial’**: [Link](https://www.cnn.com/2024/10/09/media/diddy-allege-video-cassie-evidence-leak/index.html)
+
+
 ### ouragan milton maroc (N/A, Thu, 10 Oct 2024 00:50:00 -0700)
 
 - **La tempête Leslie peut-elle s’approcher des côtes marocaines?**: [Link](https://snrtnews.com/fr/article/la-tempete-leslie-peut-elle-sapprocher-des-cotes-marocaines-104316)
