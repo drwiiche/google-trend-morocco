@@ -1,3 +1,10 @@
+### sénégal – malawi (N/A, Fri, 11 Oct 2024 12:00:00 -0700)
+
+- **Le Sénégal reste prudent face au Malawi**: [Link](https://www.dw.com/fr/eliminatoires-can-2025-s%C3%A9n%C3%A9gal-malawi-football/a-70471640)
+- **Éliminatoires CAN 2025 : la première du Sénégal sans Aliou Cissé**: [Link](https://fr.africanews.com/2024/10/11/eliminatoires-can-2025-la-premiere-du-senegal-sans-aliou-cisse//)
+- **CAN 2025 : le Sénégal dos au mur - JOURNAL DES SPORTS AFRIQUE**: [Link](https://www.rfi.fr/fr/podcasts/journal-des-sports-afrique/20241011-can-2025-le-s%C3%A9n%C3%A9gal-dos-au-mur)
+
+
 ### hongrie – pays-bas (N/A, Fri, 11 Oct 2024 11:30:00 -0700)
 
 - **Pronostic Hongrie - Pays-Bas, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/hongrie-pays-bas-219560/)
