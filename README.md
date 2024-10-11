@@ -1,3 +1,10 @@
+### hongrie – pays-bas (N/A, Fri, 11 Oct 2024 11:30:00 -0700)
+
+- **Pronostic Hongrie - Pays-Bas, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/hongrie-pays-bas-219560/)
+- **PRONOS PARIS RMC Le pari du jour du 11 octobre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-11-octobre-ligue-des-nations_AN-202410100016.html)
+- **Hongrie contre Pays-Bas : Preview du Match et Prédiction**: [Link](https://www.footboom1.com/fr/news/football/1916450-hungary-vs-netherlands-match-preview-and-prediction)
+
+
 ### bosnie-herzégovine – allemagne (N/A, Fri, 11 Oct 2024 11:00:00 -0700)
 
 - **Pronostic Bosnie-Herzégovine - Allemagne, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/bosnie-herzegovine-allemagne-219559/)
