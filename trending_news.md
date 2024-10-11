@@ -1,3 +1,21 @@
+### lucie castets (N/A, Fri, 11 Oct 2024 08:10:00 -0700)
+
+- **Législative partielle dans l’Isère : la démission d’Hugo Prevost, un 
+tremplin vers l’Assemblée pour Lucie Castets**: [Link](https://www.liberation.fr/politique/legislative-partielle-dans-lisere-un-tremplin-vers-lassemblee-pour-lucie-castets-20241010_2REGVSHVO5COPBKKXTLXC3URSM/)
+- **Violences sexuelles : le député Hugo Prevost, exclu par La France 
+insoumise, démissionne**: [Link](https://www.mediapart.fr/journal/france/091024/violences-sexuelles-le-depute-hugo-prevost-exclu-par-la-france-insoumise)
+- **Le député LFI Hugo Prévost, accusé de "faits graves à caractère sexuel", 
+annonce sa démission**: [Link](https://fr.yahoo.com/news/d%C3%A9put%C3%A9-lfi-hugo-pr%C3%A9vost-accus%C3%A9-192924404.html)
+
+
+### carlos tavares (N/A, Fri, 11 Oct 2024 08:10:00 -0700)
+
+- **Stellantis Shares Fall as Executive Shake-Up Fails to Calm Nerves**: [Link](https://www.wsj.com/business/autos/stellantis-shares-fall-as-executive-shake-up-fails-to-calm-nerves-eb725a9e)
+- **Santo Ficili, the new CEO of Alfa Romeo and Maserati to replace Imparato**: [Link](https://www.clubalfa.it/en/santo-ficili-the-new-ceo-of-alfa-romeo-and-maserati-to-replace-imparato-10648)
+- **Aehr Test Systems Soars Pre-Market After Earnings Beat Analyst Estimates, 
+Retail Over The Moon**: [Link](https://www.barchart.com/story/news/28997282/aehr-test-systems-soars-pre-market-after-earnings-beat-analyst-estimates-retail-over-the-moon)
+
+
 ### paris fc (N/A, Fri, 11 Oct 2024 07:50:00 -0700)
 
 - **Le Stade-Français Paris chassé du Stade Jean-Bouin par le football ?**: [Link](https://www.rugby-addict.com/fr/article/rc-toulon-rct/le-stade-francais-paris-chasse-du-stade-jean-bouin-par-le-football/6707aa587c850ae2990c1e22)
