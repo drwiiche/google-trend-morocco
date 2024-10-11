@@ -1,3 +1,12 @@
+### tourcoing (N/A, Thu, 10 Oct 2024 23:50:00 -0700)
+
+- **Protection fonctionnelle, sanctions… Le sort incertain de l'enseignante du 
+lycée Sévigné à Tourcoing**: [Link](https://www.marianne.net/societe/laicite-et-religions/protection-fonctionnelle-sanctions-le-sort-incertain-de-l-enseignante-du-lycee-sevigne-a-tourcoing)
+- **Laïcité : dialogue et fermeté, l’école doit marcher sur ses deux jambes**: [Link](https://www.lepoint.fr/societe/laicite-dialogue-et-fermete-l-ecole-doit-marcher-sur-ses-deux-jambes-10-10-2024-2572425_23.php)
+- **Prof frappée à Tourcoing : ces ennemis de la laïcité solidement installés 
+au cœur de l'Éducation nationale**: [Link](https://atlantico.fr/article/decryptage/prof-frappee-a-tourcoing-ces-ennemis-de-la-laicite-solidement-installes-au-coeur-de-l-education-nationale-alain-d-iribarne-jean-pierre-obin)
+
+
 ### algerie vs togo (N/A, Thu, 10 Oct 2024 14:10:00 -0700)
 
 - **Algérie Togo : l’acteur du “Taisez-vous” de Madjer récidive !**: [Link](https://fennecfootball.com/algerie-togo-lacteur-du-taisez-vous-de-madjer-recidive/)
