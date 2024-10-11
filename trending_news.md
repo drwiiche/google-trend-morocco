@@ -1,3 +1,13 @@
+### eva mendes (N/A, Fri, 11 Oct 2024 16:10:00 -0700)
+
+- **The hottest fashion trend this fall worn by Rosalia, Taylor Swift, Madonna, 
+Eva Mendes, and more**: [Link](https://www.hola.com/us/fashion/20241009723057/the-hottest-fashion-trend-this-fall-worn-by-celebrities/)
+- **Amal Clooney and Taylor Swift Repeat-Wear This Sexy-Yet-Practical Fall Shoe 
+Trend**: [Link](https://www.instyle.com/comfortable-knee-high-boots-celebrity-trend-amazon-fall-2024-8709017)
+- **Eva Mendes feels 'lost' now that her children are getting older: 'Who am I 
+now?'**: [Link](https://www.aol.com/eva-mendes-feels-lost-now-142705805.html)
+
+
 ### gabon – lesotho (N/A, Fri, 11 Oct 2024 11:50:00 -0700)
 
 
