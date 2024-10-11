@@ -1,3 +1,11 @@
+### paris fc (N/A, Fri, 11 Oct 2024 07:50:00 -0700)
+
+- **Le Stade-Français Paris chassé du Stade Jean-Bouin par le football ?**: [Link](https://www.rugby-addict.com/fr/article/rc-toulon-rct/le-stade-francais-paris-chasse-du-stade-jean-bouin-par-le-football/6707aa587c850ae2990c1e22)
+- **Paris FC sold to Arnault (LVMH) and Red Bull: good news, 3 reasons**: [Link](https://www.entrevue.fr/en/le-paris-fc-vendu-a-arnault-lvmh-et-red-bull-bonne-nouvelle-les-3-raisons-vuitton-psg-foot-francais-rai/)
+- **Bernard Arnault partners with Red Bull to buy Paris FC in latest move into 
+sport**: [Link](https://www.ft.com/content/6ce0b60e-470e-4b0b-855b-a605c3f0a1a5)
+
+
 ### عادل إمام (N/A, Fri, 11 Oct 2024 07:20:00 -0700)
 
 - **عائلة عادل إمام تعلن اعتزاله الفن نهائيا**: [Link](https://ar.hibapress.com/details-560364.html)
