@@ -1,3 +1,10 @@
+### جزر القمر (N/A, Fri, 11 Oct 2024 13:50:00 -0700)
+
+- **المساكني يتقدم التشكيل المتوقع لتونس أمام جزر القمر**: [Link](https://www.kooora.com/?n=1360518)
+- **موعد مباراة تونس وجزر القمر والقنوات الناقلة في تصفيات كأس العالم 2026**: [Link](https://www.almasryalyoum.com/news/details/3280313)
+- **حشرات “البعوض” تهاجم لاعبي المنتخب التونسي في رادس**: [Link](https://www.hibasport.com/details-279005.html)
+
+
 ### nations league (N/A, Fri, 11 Oct 2024 13:30:00 -0700)
 
 - **England gamble backfires as Pavlidis fires emotional Greece to victory**: [Link](https://www.beinsports.com/en-mena/football/uefa-nations-league/articles-video/england-gamble-backfires-as-pavlidis-fires-emotional-greece-to-victory-2024-10-10)
