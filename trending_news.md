@@ -1,3 +1,11 @@
+### nations league (N/A, Fri, 11 Oct 2024 13:30:00 -0700)
+
+- **England gamble backfires as Pavlidis fires emotional Greece to victory**: [Link](https://www.beinsports.com/en-mena/football/uefa-nations-league/articles-video/england-gamble-backfires-as-pavlidis-fires-emotional-greece-to-victory-2024-10-10)
+- **Where does England's shambles against Greece leave Lee Carsley?**: [Link](https://www.bbc.com/sport/football/articles/cglkdw0646jo)
+- **UEFA Nations League Matchday 3 Thursday round-up: Greece stun England, 
+France win, Italy held**: [Link](https://www.uefa.com/uefanationsleague/news/0292-1c0f642685cc-93ae2056f007-1000--uefa-nations-league-matchday-3-thursday-round-up-greece-stun/)
+
+
 ### discours royal (N/A, Fri, 11 Oct 2024 13:00:00 -0700)
 
 - **DISCOURS ROYAL PARLEMENT. Le Roi : voici comment le Maroc a obtenu des 
