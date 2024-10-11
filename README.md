@@ -1,3 +1,10 @@
+### noussair mazraoui (N/A, Fri, 11 Oct 2024 01:30:00 -0700)
+
+- **Noussair Mazraoui: Manchester United defender has minor procedure**: [Link](https://www.bbc.com/sport/football/articles/cwy933kz128o)
+- **Afcon 2025 qualifiers : Youssef Belammari replaces injured Noussair Mazraoui**: [Link](https://en.yabiladi.com/articles/details/154925/afcon-2025-qualifiers-youssef-belammari.html)
+- **Man United summer signing diagnosed with heart condition**: [Link](https://www.tv360nigeria.com/man-united-summer-signing-diagnosed-with-heart-condition/)
+
+
 ### tourcoing (N/A, Thu, 10 Oct 2024 23:50:00 -0700)
 
 - **Protection fonctionnelle, sanctions… Le sort incertain de l'enseignante du 
