@@ -1,3 +1,20 @@
+### bosnia and herzegovina vs germany (N/A, Fri, 11 Oct 2024 12:20:00 -0700)
+
+- **Preview: Bosnia-Herzegovina vs. Germany - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bosnia-herzegovina/preview/preview-bosnia-hvina-vs-germany-prediction-team-news-lineups_555036.html)
+- **Schmidt: I’m sure Spectators will see the Magic of ‘Elves’ and ‘Dragons’**: [Link](https://sarajevotimes.com/schmidt-im-sure-spectators-will-see-the-magic-of-elves-and-dragons/)
+- **Watch UEFA Nations League Soccer: Livestream Bosnia-Herzegovina vs. Germany 
+From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/watch-uefa-nations-league-soccer-livestream-bosnia-herzegovina-vs-germany-from-anywhere/)
+
+
+### match maroc oujda (N/A, Fri, 11 Oct 2024 10:50:00 -0700)
+
+- **Eliminatoires CAN Maroc-2025 : Les Lions de l’Atlas intensifient leur 
+préparation**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%B1%D9%81%D8%B9-%D9%85%D9%86-%D9%88%D8%AA%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%8A%D8%A8-2/)
+- **Walid Regragui : Maroc-Centrafrique, une opportunité de continuer à 
+progresser en marge de la CAN**: [Link](https://fr.hespress.com/390318-walid-regragui-maroc-centrafrique-une-opportunite-de-continuer-a-progresser-en-marge-de-la-can.html)
+- **Maroc-Centrafrique: l’essentiel de la conf’ de Walid Regragui**: [Link](https://sport.le360.ma/football/can/maroc-centrafrique-lessentiel-de-la-conf-de-walid-regragui_GUA7XYQQLRHUDIN3PWVKTNO4RI/)
+
+
 ### sénégal – malawi (N/A, Fri, 11 Oct 2024 12:00:00 -0700)
 
 - **Le Sénégal reste prudent face au Malawi**: [Link](https://www.dw.com/fr/eliminatoires-can-2025-s%C3%A9n%C3%A9gal-malawi-football/a-70471640)
