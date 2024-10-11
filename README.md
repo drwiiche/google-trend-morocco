@@ -1,3 +1,34 @@
+### cameroun – kenya (N/A, Fri, 11 Oct 2024 09:20:00 -0700)
+
+- **Cameroun-Kenya : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/cameroun-kenya-streaming-chaine-tv-et-compos-10206024.html)
+- **Lions Indomptables : le groupe est désormais au complet**: [Link](https://www.camfoot.com/actualites/lions-indomptables-le-groupe-est-desormais-au-complet,505597.html)
+- **CAN 2025 (Q)-Cameroun : Marc Brys répond aux sujets polémiques**: [Link](https://sportnewsafrica.com/breve/can-2025-q-cameroun-marc-brys-repond-aux-sujets-polemiques/)
+
+
+### wydad (N/A, Fri, 11 Oct 2024 09:20:00 -0700)
+
+- **Commission d’éthique**: [Link](https://frmf.ma/fr/%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%84%D8%A7%D9%82%D9%8A%D8%A7%D8%AA/)
+- **La Commission d'éthique inflige une amende au Raja et suspend un dirigeant 
+pour manipulation**: [Link](https://fr.hespress.com/390119-la-commission-dethique-inflige-une-amende-au-raja-et-suspend-un-dirigeant-pour-manipulation.html)
+- **La FRMF impose une amende de 100.000 DH au Raja de Casablanca**: [Link](https://maroc-diplomatique.net/la-frmf-impose-une-amende-de-100-000-dh-au-raja-de-casablanca/)
+
+
+### éliminatoires de la can (N/A, Fri, 11 Oct 2024 09:20:00 -0700)
+
+- **Un joueur "insulté" par Djamel Belmadi officiellement OUT**: [Link](https://fennecfootball.com/un-joueur-insulte-par-djamel-belmadi-officiellement-out/)
+- **[EN] La formation de la Tunisie face aux Comores -**: [Link](https://tunisie-foot.com/2024/10/11/en-la-formation-la-tunisie-face-aux-comores/)
+- **Tunisie-Comores: « Un nul face à la Tunisie serait un résultat positif » 
+(Stefano Susin)**: [Link](https://africanmanager.com/tunisie-comores-un-nul-face-a-la-tunisie-serait-un-resultat-positif-stefano-susin/)
+
+
+### maroc (N/A, Fri, 11 Oct 2024 08:50:00 -0700)
+
+- **Eliminatoires CAN Maroc-2025 : Les Lions de l’Atlas intensifient leur 
+préparation**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%B1%D9%81%D8%B9-%D9%85%D9%86-%D9%88%D8%AA%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%8A%D8%A8-2/)
+- **Maroc-Centrafrique: Brahim Diaz supporter des Lions à Oujda**: [Link](https://www.h24info.ma/maroc-centrafrique-brahim-diaz-supporter-des-lions-a-oujda/)
+- **Lions de l'Atlas: Noussair Mazraoui opéré du coeur pour arythmie**: [Link](https://fr.hespress.com/390059-lions-de-latlas-noussair-mazraoui-opere-du-coeur-pour-arythmie.html)
+
+
 ### مصر ضد موريتانيا (N/A, Fri, 11 Oct 2024 09:00:00 -0700)
 
 - **صلاح يواصل مقاطعة المؤتمرات الصحفية مع منتخب مصر**: [Link](https://www.kooora.com/?n=1360335)
