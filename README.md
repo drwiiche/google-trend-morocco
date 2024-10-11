@@ -1,3 +1,26 @@
+### john jumper (N/A, Fri, 11 Oct 2024 03:00:00 -0700)
+
+- **Demis Hassabis & John Jumper awarded Nobel Prize in Chemistry**: [Link](https://deepmind.google/discover/blog/demis-hassabis-john-jumper-awarded-nobel-prize-in-chemistry/)
+- **Biochemist David Baker receives Nobel Prize**: [Link](https://newsroom.uw.edu/news-releases/biochemist-david-baker-receives-nobel-prize)
+- **ImmunoPrecise Antibodies Celebrates Nobel Prize in Chemistry, Advances in 
+AI-Powered Protein Design**: [Link](https://www.biospace.com/press-releases/immunoprecise-antibodies-celebrates-nobel-prize-in-chemistry-advances-in-ai-powered-protein-design)
+
+
+### ولاية فلوريدا اعصار ميلتون (N/A, Fri, 11 Oct 2024 03:00:00 -0700)
+
+- **شاهد.. لحظة إنقاذ صبي من فيضانات سبّبها إعصار "ميلتون"**: [Link](https://www.alhurra.com/usa/2024/10/11/%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D8%AD%D8%B8%D8%A9-%D8%A5%D9%86%D9%82%D8%A7%D8%B0-%D8%B5%D8%A8%D9%8A-%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA-%D8%B3%D8%A8%D9%91%D8%A8%D9%87%D8%A7-%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86)
+- **إعصار ميلتون يعصف بفلوريدا.. وأميركيون ينتقدون انشغال حكومتهم بقضايا دول 
+أخرى**: [Link](https://www.aljazeera.net/programs/networks/2024/10/10/%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%AA%D9%88%D9%86-%D9%8A%D8%B9%D8%B5%D9%81-%D8%A8%D9%81%D9%84%D9%88%D8%B1%D9%8A%D8%AF%D8%A7-%D9%88%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D9%88%D9%86)
+- **أربعة قتلى في الساحل الشرقي لفلوريدا**: [Link](https://www.hespress.com/%D8%A3%D8%B1%D8%A8%D8%B9%D8%A9-%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A-%D9%84%D9%81%D9%84%D9%88%D8%B1%D9%8A%D8%AF%D8%A7-1445222.html)
+
+
+### طقس طنجة (N/A, Fri, 11 Oct 2024 02:50:00 -0700)
+
+- **توقعات الطقس: قطرات مطرية ورعد بهذه المناطق اليوم الجمعة**: [Link](https://www.akhbarona.com/national/393540.html)
+- **نزول أمطار ضعيفة وهبوب رياح ببعض مناطق المغرب اليوم الجمعة**: [Link](https://www.achkayen.com/577738/.html)
+- **طقس الجمعة.. قطرات مطرية متوقعة بهذه المناطق**: [Link](https://ar.hibapress.com/details-560790.html)
+
+
 ### noussair mazraoui (N/A, Fri, 11 Oct 2024 01:30:00 -0700)
 
 - **Noussair Mazraoui: Manchester United defender has minor procedure**: [Link](https://www.bbc.com/sport/football/articles/cwy933kz128o)
