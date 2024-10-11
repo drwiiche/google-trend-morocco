@@ -1,3 +1,13 @@
+### outer banks saison 4 netflix (N/A, Fri, 11 Oct 2024 06:20:00 -0700)
+
+- **Outer Banks saison 4 (Netflix) : Pitié, abrégez nos souffrances et mettez 
+fin à la série !**: [Link](https://www.programme-tv.net/news/series-tv/362503-outer-banks-saison-4-netflix-pitie-abregez-nos-souffrances-et-mettez-fin-a-la-serie/)
+- **À partir de quel âge mon ado peut-il regarder la série Outer Banks sur 
+Netflix ?**: [Link](https://www.koolmag.fr/cinema/a-partir-de-quel-age-mon-ado-peut-il-regarder-la-serie-outer-banks-sur-netflix--765219)
+- **[Série] Outer Banks Saison 4 : Les Pogues de retour pour chasser le trésor 
+de Barbe Noire sur Netflix**: [Link](https://www.sortiraparis.com/loisirs/cinema/articles/319570-serie-outer-banks-saison-4-les-pogues-de-retour-pour-chasser-le-tresor-de-barbe-noire-sur-netflix)
+
+
 ### hugo prevost (N/A, Fri, 11 Oct 2024 06:20:00 -0700)
 
 - **Législative partielle dans l’Isère : la démission d’Hugo Prevost, un 
