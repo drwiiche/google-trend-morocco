@@ -1,3 +1,11 @@
+### afrique du sud – congo (N/A, Fri, 11 Oct 2024 09:50:00 -0700)
+
+- **Match Afrique du Sud-Congo / Les Diables Rouges déjà dans les airs pour 
+Johannesburg**: [Link](https://lesechos-congobrazza.com/sport/10497-match-afrique-du-sud-congo-les-diables-rouges-deja-dans-les-airs-pour-johannesburg)
+- **Isaac Ngata présélectionne 24 Diables Rouges pour affronter l’Afrique du Sud**: [Link](https://vox.cg/isaac-ngata-preselectionne-24-diables-rouges-pour-affronter-lafrique-du-sud/)
+- **Congo : les Diables rouges face aux Bafana-Bafana**: [Link](https://www.journaldebrazza.com/congo-les-diables-rouges-face-aux-bafana-bafana/)
+
+
 ### egypt vs mauritania (N/A, Fri, 11 Oct 2024 09:40:00 -0700)
 
 - **Preview: Egypt vs. Mauritania - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/egypt/africa-cup-of-nations/preview/preview-egypt-vs-mauritania-prediction-team-news-lineups_555088.html)
