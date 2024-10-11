@@ -1,3 +1,11 @@
+### كأس التميز المغربي (N/A, Fri, 11 Oct 2024 10:10:00 -0700)
+
+- **اتحاد تواركة يُلحق الهزيمة الثالثة على التوالي باتحاد طنجة (0-2) في كأس 
+التميز**: [Link](https://m.elbotola.com/article/2024-10-10-20-58-255.html)
+- **نتائج الجولة الثالثة من دوري التميز**: [Link](https://www.hespress.com/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-1444980.html)
+- **مفاجآت عديدة في نتائج الجولة الثالثة من كأس التمير**: [Link](https://ar.sport.le360.ma/football/ZQWBONYQSFCDNLR5EPWUO4M2WY/)
+
+
 ### afrique du sud – congo (N/A, Fri, 11 Oct 2024 09:50:00 -0700)
 
 - **Match Afrique du Sud-Congo / Les Diables Rouges déjà dans les airs pour 
