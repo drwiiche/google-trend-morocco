@@ -1,3 +1,11 @@
+### égypte – mauritanie (N/A, Fri, 11 Oct 2024 08:30:00 -0700)
+
+- **CAN – “Inacceptable” : le coach de l’Egypte met un coup de pression au Maroc**: [Link](https://fennecfootball.com/can-inacceptable-le-coach-de-legypte-met-un-coup-de-pression-au-maroc/)
+- **Sélectionneur de l’Egypte.. L’équipe nationale marocaine s’est développée 
+et « les gens ont travaillé » -**: [Link](https://fr.hibapress.com/news-138364.html)
+- **Mission facile pour les Pharaons**: [Link](https://french.ahram.org.eg/NewsContent/54/2357/53557/AlAhram-Hebdo/Sports/-Mission-facile-pour-les-Pharaons.aspx)
+
+
 ### lucie castets (N/A, Fri, 11 Oct 2024 08:10:00 -0700)
 
 - **Législative partielle dans l’Isère : la démission d’Hugo Prevost, un 
