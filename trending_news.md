@@ -1,3 +1,28 @@
+### مصر ضد موريتانيا (N/A, Fri, 11 Oct 2024 09:00:00 -0700)
+
+- **صلاح يواصل مقاطعة المؤتمرات الصحفية مع منتخب مصر**: [Link](https://www.kooora.com/?n=1360335)
+- **القنوات الناقلة لمباراة مصر و موريتانيا بتصفيات كأس الأمم الأفريقية**: [Link](https://www.youm7.com/story/2024/10/10/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/6736670)
+- **مباشر.. مباراة مصر ضد موريتانيا في تصفيات أمم أفريقيا 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/11/egypt-vs-muaritania)
+
+
+### snrt (N/A, Fri, 11 Oct 2024 08:50:00 -0700)
+
+- **L'ADS 2024 prend fin au terme de deux jours d'innovation et de 
+transformation digitale**: [Link](https://fr.hespress.com/390213-lads-2024-prend-fin-au-terme-de-deux-jours-dinnovation-et-de-transformation-digitale.html)
+- **Digital Morocco 2030: appel à manifestation d'intérêt pour soutenir 
+l'accompagnement des startups**: [Link](https://ledesk.ma/encontinu/digital-morocco-2030-appel-a-manifestation-dinteret-pour-soutenir-laccompagnement-des-startups/)
+- **Reconstruction d’Al Haouz: La BEI accorde 500 millions d’euros**: [Link](https://www.leconomiste.com/article/1126327-reconstruction-d-al-haouz-la-bei-accorde-500-millions-d-euros)
+
+
+### aurores boréales (N/A, Fri, 11 Oct 2024 08:20:00 -0700)
+
+- **Alerte aux aurores boréales dans la nuit du 10 au 11 octobre**: [Link](https://www.cieletespace.fr/actualites/alerte-aux-aurores-boreales-dans-la-nuit-du-10-au-11-octobre)
+- **Elle se dirige droit sur la Terre… La 5e tempête solaire de classe X du 
+mois va provoquer un orage magnétique pendant plusieurs jours**: [Link](https://www.lindependant.fr/2024/10/09/elle-se-dirige-droit-sur-la-terre-la-5e-tempete-solaire-de-classe-x-du-mois-va-provoquer-un-orage-magnetique-pendant-plusieurs-jours-12250364.php)
+- **EN IMAGES - Les plus belles photos des aurores boréales visibles à travers 
+la France la nuit dernière**: [Link](https://www.francebleu.fr/infos/meteo/en-images-les-plus-belles-photos-des-aurores-boreales-visibles-partout-en-france-la-nuit-derniere-3845266)
+
+
 ### égypte – mauritanie (N/A, Fri, 11 Oct 2024 08:30:00 -0700)
 
 - **CAN – “Inacceptable” : le coach de l’Egypte met un coup de pression au Maroc**: [Link](https://fennecfootball.com/can-inacceptable-le-coach-de-legypte-met-un-coup-de-pression-au-maroc/)
