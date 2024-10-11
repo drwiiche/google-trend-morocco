@@ -1,3 +1,13 @@
+### discours roi maroc (N/A, Fri, 11 Oct 2024 16:20:00 -0700)
+
+- **DISCOURS ROYAL PARLEMENT. Le Roi : voici comment le Maroc a obtenu des 
+résultats tangibles sur la question du Sahara**: [Link](https://medias24.com/2024/10/11/discours-royal-parlement-le-roi-voici-comment-le-maroc-a-obtenu-des-resultats-tangibles-sur-la-question-du-sahara/)
+- **Sahara: au Parlement, Mohammed VI remercie Emmanuel Macron pour son soutien 
+au Maroc**: [Link](https://ledesk.ma/encontinu/sahara-au-parlement-mohammed-vi-remercie-emmanuel-macron-pour-son-soutien-au-maroc/)
+- **Un appel royal, une réponse unanime: les députés prêts à agir sur tous les 
+fronts pour défendre la cause nationale**: [Link](https://fr.le360.ma/politique/un-appel-royal-une-reponse-unanime-les-deputes-prets-a-agir-sur-tous-les-fronts-pour-defendre-la_PLSESKMDTRD5HOJI5TUW73R2RQ/)
+
+
 ### eva mendes (N/A, Fri, 11 Oct 2024 16:10:00 -0700)
 
 - **The hottest fashion trend this fall worn by Rosalia, Taylor Swift, Madonna, 
