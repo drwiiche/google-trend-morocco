@@ -1,3 +1,10 @@
+### egypt vs mauritania (N/A, Fri, 11 Oct 2024 09:40:00 -0700)
+
+- **Preview: Egypt vs. Mauritania - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/egypt/africa-cup-of-nations/preview/preview-egypt-vs-mauritania-prediction-team-news-lineups_555088.html)
+- **Salah seeks to surpass Abu Trika with the Egyptian national team**: [Link](https://www.ysscores.com/en/news/5234851/Salah-seeks-to-surpass-Abu-Trika-with-the-Egyptian-national-team)
+- **Hassan excludes Emam, Hegazi & Elneny from AFCON qualifiers squad**: [Link](https://africanfootball.com/news/821687/Hassan-excludes-Emam-Hegazi-Elneny-from-AFCON-qualifiers-squad)
+
+
 ### cameroun – kenya (N/A, Fri, 11 Oct 2024 09:20:00 -0700)
 
 - **Cameroun-Kenya : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/cameroun-kenya-streaming-chaine-tv-et-compos-10206024.html)
