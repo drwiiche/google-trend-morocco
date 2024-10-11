@@ -1,3 +1,10 @@
+### عادل إمام (N/A, Fri, 11 Oct 2024 07:20:00 -0700)
+
+- **عائلة عادل إمام تعلن اعتزاله الفن نهائيا**: [Link](https://ar.hibapress.com/details-560364.html)
+- **وحيدا بلا أصدقاء.. كيف يقضي عادل إمام أيامه بعد الاعتزال؟**: [Link](https://www.alarabiya.net/culture-and-art/2024/10/10/%D9%83%D9%8A%D9%81-%D9%8A%D9%82%D8%B6%D9%8A-%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%85%D8%A7%D9%85-%D8%AD%D9%8A%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D8%A7%D9%86-%D9%88%D9%85%D8%A7%D8%B0%D8%A7-%D8%B7%D9%84%D8%A8-%D9%85%D9%86%D9%87-%D8%A7%D9%84%D8%A3%D8%B7%D8%A8%D8%A7%D8%A1-)
+- **عادل إمام يعتزل الفن بشكل نهائي وعائلته تنفي إصابته بالزهايمر**: [Link](https://www.menara.ma/article/%D8%B9%D8%A7%D8%AF%D9%84-%D8%A5%D9%85%D8%A7%D9%85-%D9%8A%D8%B9%D8%AA%D8%B2%D9%84-%D8%A7%D9%84%D9%81%D9%86-%D8%A8%D8%B4%D9%83%D9%84-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%88%D8%B9%D8%A7%D8%A6%D9%84%D8%AA)
+
+
 ### outer banks saison 4 netflix (N/A, Fri, 11 Oct 2024 06:20:00 -0700)
 
 - **Outer Banks saison 4 (Netflix) : Pitié, abrégez nos souffrances et mettez 
