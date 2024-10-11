@@ -1,3 +1,18 @@
+### bosnie-herzégovine – allemagne (N/A, Fri, 11 Oct 2024 11:00:00 -0700)
+
+- **Pronostic Bosnie-Herzégovine - Allemagne, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/bosnie-herzegovine-allemagne-219559/)
+- **TMC HD - L'avant Quotidien**: [Link](https://www.pickx.be/fr/television/programme-tv/UID2276_2024100219820/lavant-quotidien)
+- **PRONOS PARIS RMC Le pari à l'extérieur du 11 octobre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-11-octobre-ligue-des-nations_AN-202410100017.html)
+
+
+### maroc foot (N/A, Fri, 11 Oct 2024 10:50:00 -0700)
+
+- **CAN Beach soccer 2024: défaite du Maroc face à la Mauritanie en Amical**: [Link](https://frmf.ma/fr/can-beach-soccer-2024-defaite-du-maroc-face-a-la-mauritanie-en-amical-la-selection-nationale-de-beach-soccer-sest-inclinee-ce-jeudi-10-octobre-face-a-son-homologue-mauritanienne-sur-le-scor/)
+- **Beach soccer : Le Maroc s’impose face à Mauritanie en amical**: [Link](https://fr.hespress.com/389961-beach-soccer-le-maroc-simpose-face-a-mauritanie-en-amical.html)
+- **Coupe d'Afrique des Nations de Beach Soccer CAF Égypte 2024 : Compte à 
+rebours avant le coup d'envoi**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-de-beach-soccer/news/coupe-dafrique-des-nations-de-beach-soccer-caf-egypte-2024-compte-a-rebours-avant-le-coup-denvoi/)
+
+
 ### dragon ball daima (N/A, Fri, 11 Oct 2024 10:40:00 -0700)
 
 - **Dragon Ball DAIMA Release Date and Time on Crunchyroll**: [Link](https://www.crunchyroll.com/news/announcements/2024/10/10/dragon-ball-daima-release-date-crunchyroll)
