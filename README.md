@@ -1,3 +1,12 @@
+### hugo prevost (N/A, Fri, 11 Oct 2024 06:20:00 -0700)
+
+- **Législative partielle dans l’Isère : la démission d’Hugo Prevost, un 
+tremplin vers l’Assemblée pour Lucie Castets**: [Link](https://www.liberation.fr/politique/legislative-partielle-dans-lisere-un-tremplin-vers-lassemblee-pour-lucie-castets-20241010_2REGVSHVO5COPBKKXTLXC3URSM/)
+- **Le député LFI Hugo Prévost, accusé de "faits graves à caractère sexuel", 
+annonce sa démission**: [Link](https://fr.yahoo.com/news/d%C3%A9put%C3%A9-lfi-hugo-pr%C3%A9vost-accus%C3%A9-192924404.html)
+- **Olivier Véran : retour vers le futur à l'Assemblée ?**: [Link](http://www.whatsupdoc-lemag.fr/article/olivier-veran-retour-vers-le-futur-lassemblee)
+
+
 ### transfermarkt (N/A, Fri, 11 Oct 2024 05:30:00 -0700)
 
 - **LaLiga market values: Vinicius Jr. draws level with Haaland as world's MVP 
