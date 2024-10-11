@@ -1,3 +1,20 @@
+### novak djokovic (N/A, Fri, 11 Oct 2024 04:10:00 -0700)
+
+- **Rafael Nadal retires: 22-time Grand Slam champion confirms retirement from 
+tennis aged 38**: [Link](https://www.bbc.com/sport/tennis/articles/ckgv9n5jj8jo)
+- **Federer headlines social media reaction to Nadal's retirement announcement**: [Link](https://www.atptour.com/en/news/nadal-retirement-announcement-social-media-reaction)
+- **‘A difficult decision’: Rafael Nadal announces retirement from tennis at 38**: [Link](https://www.theguardian.com/sport/2024/oct/10/a-difficult-decision-rafael-nadal-announces-retirement-from-tennis-at-38)
+
+
+### maroc algérie (N/A, Fri, 11 Oct 2024 04:10:00 -0700)
+
+- **Sahara : les raisons profondes de l'hostilité algérienne (Yasmine Hasnaoui)**: [Link](https://lematin.ma/nation/sahara-les-raisons-profondes-de-lhostilite-algerienne-yasmine-hasnaoui/246578)
+- **Le grand reporter Renaud Girard rappelle à l’Algérie que le Sahara dont 
+elle dispose était marocain avant que la France ne le lui donne**: [Link](https://fr.le360.ma/medias/le-grand-reporter-renaud-girard-rappelle-a-lalgerie-que-le-sahara-dont-elle-dispose-etait-marocain_SYWOB6SEBZE2XCM6B6DATWHB44/)
+- **Sahara : Ce qu’il faut savoir de l’expansionnisme algérien et des origines 
+de la haine du Maroc**: [Link](https://maroc-diplomatique.net/sahara-ce-quil-faut-savoir-de-lexpansionnisme-algerien-et-des-origines-de-la-haine-du-maroc/)
+
+
 ### john jumper (N/A, Fri, 11 Oct 2024 03:00:00 -0700)
 
 - **Demis Hassabis & John Jumper awarded Nobel Prize in Chemistry**: [Link](https://deepmind.google/discover/blog/demis-hassabis-john-jumper-awarded-nobel-prize-in-chemistry/)
