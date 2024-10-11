@@ -1,3 +1,13 @@
+### discours royal (N/A, Fri, 11 Oct 2024 13:00:00 -0700)
+
+- **DISCOURS ROYAL PARLEMENT. Le Roi : voici comment le Maroc a obtenu des 
+résultats tangibles sur la question du Sahara**: [Link](https://medias24.com/2024/10/11/discours-royal-parlement-le-roi-voici-comment-le-maroc-a-obtenu-des-resultats-tangibles-sur-la-question-du-sahara/)
+- **Sahara: au Parlement, Mohammed VI remercie Emmanuel Macron pour son soutien 
+au Maroc**: [Link](https://ledesk.ma/encontinu/sahara-au-parlement-mohammed-vi-remercie-emmanuel-macron-pour-son-soutien-au-maroc/)
+- **Rentrée politique : la majorité défend son action et annonce l’emploi comme 
+priorité**: [Link](https://lematin.ma/nation/rentree-politique-la-majorite-annonce-lemploi-comme-priorite/246556)
+
+
 ### هالة صدقي (N/A, Fri, 11 Oct 2024 12:30:00 -0700)
 
 - **هالة صدقي تتقدّم ببلاغ ضد مساعدتها بتهمة التشهير**: [Link](https://www.lahamag.com/article/215944-%D9%87%D8%A7%D9%84%D8%A9-%D8%B5%D8%AF%D9%82%D9%8A-%D8%AA%D8%AA%D9%82%D8%AF%D9%85-%D8%A8%D8%A8%D9%84%D8%A7%D8%BA-%D8%B6%D8%AF-%D9%85%D8%B3%D8%A7%D8%B9%D8%AF%D8%AA%D9%87%D8%A7-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D8%B4%D9%87%D9%8A%D8%B1)
