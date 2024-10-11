@@ -1,3 +1,12 @@
+### chile vs brazil (N/A, Thu, 10 Oct 2024 16:50:00 -0700)
+
+- **Brazil face must-win quest against Chile in World Cup qualifiers | Daily 
+Sabah**: [Link](https://www.dailysabah.com/sports/football/brazil-face-must-win-quest-against-chile-in-world-cup-qualifiers)
+- **Searching for a Number 9: Richarlison and Jesus Fall Out of Favour as 
+Brazil Seeks 10th Striker Since the World Cup**: [Link](https://www.footboom1.com/en/news/football/1915784-searching-for-a-number-9-richarlison-and-jesus-fall-out-of-favour-as-brazil-seeks-10th-striker-since-the-world-cup)
+- **Soccer-Depleted Brazil brace for must-win World Cup qualifiers**: [Link](https://www.msn.com/en-gb/sport/football/soccer-depleted-brazil-brace-for-must-win-world-cup-qualifiers/ar-AA1rYTCz)
+
+
 ### تشيلي ضد البرازيل (N/A, Thu, 10 Oct 2024 16:30:00 -0700)
 
 - **موعد مباراة تشيلي والبرازيل في تصفيات كأس العالم 2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1360280)
