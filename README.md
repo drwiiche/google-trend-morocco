@@ -1,3 +1,12 @@
+### transfermarkt (N/A, Fri, 11 Oct 2024 05:30:00 -0700)
+
+- **LaLiga market values: Vinicius Jr. draws level with Haaland as world's MVP 
+- Yamal up by 25%**: [Link](https://www.transfermarkt.com/laliga-market-values-vinicius-jr-draws-level-with-haaland-as-worlds-mvp-yamal-up-by-25-/view/news/444796)
+- **Sancho, Palmer and Couto - how much do Man City make from selling youth 
+academy players?**: [Link](https://www.transfermarkt.com/sancho-palmer-and-couto-how-much-do-man-city-make-from-selling-youth-academy-players-/view/news/433311)
+- **Man City's £109m transfer decision finally paying off after landmark week**: [Link](https://www.manchestereveningnews.co.uk/sport/football/transfer-news/man-citys-109m-transfer-decision-30055236)
+
+
 ### novak djokovic (N/A, Fri, 11 Oct 2024 04:10:00 -0700)
 
 - **Rafael Nadal retires: 22-time Grand Slam champion confirms retirement from 
