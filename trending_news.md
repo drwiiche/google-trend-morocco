@@ -1,3 +1,16 @@
+### rabat (N/A, Fri, 11 Oct 2024 14:40:00 -0700)
+
+- **Construction d’une nouvelle autoroute reliant Rabat à Casablanca**: [Link](https://fr.le360.ma/politique/construction-dune-nouvelle-autoroute-reliant-rabat-a-casablanca_3FCE5I5JD5H33LODYUDQFP642M/)
+- **Maroc : lancement des travaux d’une nouvelle autoroute**: [Link](https://www.bladi.net/autoroute-desengorger-trafic-rabat-casablanca,110942.html)
+- **Rabat-Casablanca: les détails sur la nouvelle autoroute continentale**: [Link](https://www.h24info.ma/rabat-casablanca-les-details-sur-la-nouvelle-autoroute-continentale/)
+
+
+### الغابون ضد ليسوتو (N/A, Fri, 11 Oct 2024 13:10:00 -0700)
+
+- **الجابون تتعادل مع ليسوتو**: [Link](https://m.kooora.com/?n=1360708&o=n27102)
+- **رسميًا.. الجابون تستبعد أوباميانج من مباراتي ليسوتو بتصفيات أمم إفريقيا**: [Link](https://www.yallakora.com/can-qualifiers/2886/news/487024/%D8%B1%D8%B3%D9%85%D9%8A-%D8%A7-%D8%A7%D9%84%D8%AC%D8%A7%D8%A8%D9%88%D9%86-%D8%AA%D8%B3%D8%AA%D8%A8%D8%B9%D8%AF-%D8%A3%D9%88%D8%A8%D8%A7%D9%85%D9%8A%D8%A7%D9%86%D8%AC-%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%84%D9%8A%D8%B3%D9%88%D8%AA%D9%88-%D8%A8%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+
+
 ### جزر القمر (N/A, Fri, 11 Oct 2024 13:50:00 -0700)
 
 - **المساكني يتقدم التشكيل المتوقع لتونس أمام جزر القمر**: [Link](https://www.kooora.com/?n=1360518)
