@@ -1,3 +1,10 @@
+### algerie vs togo (N/A, Thu, 10 Oct 2024 14:10:00 -0700)
+
+- **Algérie Togo : l’acteur du “Taisez-vous” de Madjer récidive !**: [Link](https://fennecfootball.com/algerie-togo-lacteur-du-taisez-vous-de-madjer-recidive/)
+- **À quelle heure et sur quelle chaîne regarder le match Algérie - Togo ?**: [Link](https://www.20minutes.fr/guide-achat/4114663-20241010-algerie-togo-heure-chaine-regarder-match-jeudi)
+- **Qualifs CAN 2025 : l’Algérie renverse le Togo, le Burkina Faso déroule**: [Link](https://www.footmercato.net/a60201259438909014-qualifs-can-2025-lalgerie-renverse-le-togo-le-burkina-faso-deroule)
+
+
 ### eva mendes (N/A, Thu, 10 Oct 2024 17:20:00 -0700)
 
 - **The hottest fashion trend this fall worn by Rosalia, Taylor Swift, Madonna, 
