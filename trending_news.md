@@ -1,3 +1,11 @@
+### mona chollet (N/A, Fri, 11 Oct 2024 10:30:00 -0700)
+
+- **« Peut-on aimer un pays qui n’est même pas un pays » - Mona Chollet**: [Link](https://orientxxi.info/magazine/peut-on-aimer-un-pays-qui-n-est-meme-pas-un-pays,7680)
+- **Mona Chollet nous parle de la Palestine, et c’est comme un hymne qui 
+recouvre le bruit de la haine**: [Link](https://www.telerama.fr/television/mona-chollet-nous-parle-de-la-palestine-et-c-est-comme-un-hymne-qui-recouvre-le-bruit-de-la-haine-7022501.php)
+- **Mona Chollet nous parle de la Palestine (Vidéo)**: [Link](https://blogs.mediapart.fr/roland-richa/blog/101024/mona-chollet-nous-parle-de-la-palestine-video)
+
+
 ### كأس التميز المغربي (N/A, Fri, 11 Oct 2024 10:10:00 -0700)
 
 - **اتحاد تواركة يُلحق الهزيمة الثالثة على التوالي باتحاد طنجة (0-2) في كأس 
