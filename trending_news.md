@@ -1,3 +1,32 @@
+### eva mendes (N/A, Thu, 10 Oct 2024 17:20:00 -0700)
+
+- **The hottest fashion trend this fall worn by Rosalia, Taylor Swift, Madonna, 
+Eva Mendes, and more**: [Link](https://www.hola.com/us/fashion/20241009723057/the-hottest-fashion-trend-this-fall-worn-by-celebrities/)
+- **Amal Clooney and Taylor Swift Repeat-Wear This Sexy-Yet-Practical Fall Shoe 
+Trend**: [Link](https://www.instyle.com/comfortable-knee-high-boots-celebrity-trend-amazon-fall-2024-8709017)
+- **Eva Mendes feels 'lost' now that her children are getting older: 'Who am I 
+now?'**: [Link](https://www.aol.com/eva-mendes-feels-lost-now-142705805.html)
+
+
+### éliminatoires pour la coupe du monde (N/A, Thu, 10 Oct 2024 16:40:00 -0700)
+
+- **Pérou - Uruguay : à quelle heure et sur quelle chaîne regarder le match de 
+qualification Coupe du Monde en...**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/perou-uruguay-a-quelle-heure-et-sur-quelle-chaine-regarder-le-match-de-qualification-coupe-du-monde-en-direct_AN-202410100345.html)
+- **Avec 4 Défenseurs Centraux ! L'Équipe de Départ Inédite de l'Équipe 
+Nationale Péruvienne pour Affronter l'Uruguay**: [Link](https://www.footboom1.com/fr/news/football/1912997-with-4-central-defenders-the-unprecedented-starting-team-of-the-peruvian-national-team-to-face-uruguay)
+- **Pronostic Pérou Uruguay : Analyse, cotes et prono du match des 
+éliminatoires pour la Coupe du monde**: [Link](https://www.sofoot.com/breves/pronostic-perou-uruguay-analyse-cotes-et-prono-du-match-des-eliminatoires-pour-la-coupe-du-monde)
+
+
+### love is blind (N/A, Thu, 10 Oct 2024 15:50:00 -0700)
+
+- **Love Is Blind’s Monica Recalls How She Found Stephen’s 'Kinky, Dirty' Texts 
+After His Sleep Test**: [Link](https://people.com/how-love-is-blind-season-7-monica-davis-found-stephen-richardson-dirty-texts-another-woman-8726839)
+- **'Love is Blind': What did Stephen do before breakup with Monica?**: [Link](https://www.usatoday.com/story/entertainment/tv/2024/10/10/love-is-blind-stephen-monica/75611846007/)
+- **Stephen’s ‘Love Is Blind’ Cheating Scandal Explained—Here’s How Monica 
+Found The Texts**: [Link](https://www.forbes.com/sites/monicamercuri/2024/10/09/stephens-love-is-blind-cheating-scandal-explained-heres-how-monica-found-the-texts/)
+
+
 ### chile vs brazil (N/A, Thu, 10 Oct 2024 16:50:00 -0700)
 
 - **Brazil face must-win quest against Chile in World Cup qualifiers | Daily 
