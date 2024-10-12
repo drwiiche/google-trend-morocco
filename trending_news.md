@@ -1,3 +1,13 @@
+### afrique centrale (N/A, Sat, 12 Oct 2024 12:40:00 -0700)
+
+- **Afrique économie - Congo-Brazzaville: le port de Pointe-Noire se voit en 
+porte océane d'Afrique centrale [1/2]**: [Link](https://www.rfi.fr/fr/podcasts/afrique-%C3%A9conomie/20241009-congo-brazzaville-le-port-de-pointe-noire-se-voit-en-porte-oc%C3%A9ane-d-afrique-centrale-1-2)
+- **Forum d’affaires Pointe-Noire / Étienne GIROS, PR du CIAN, invite 
+entrepreneurs et (…)**: [Link](https://www.africapresse.paris/Forum-d-affaires-Pointe-Noire-Etienne-GIROS-PR-du-CIAN-invite-entrepreneurs-et)
+- **Forum d’affaires Pointe Noire / Annick Patricia MONGO, DG de l’API Congo : 
+« À Pointe (…)**: [Link](https://www.africapresse.paris/Forum-d-affaires-Pointe-Noire-Annick-Patricia-MONGO-DG-de-l-API-Congo-A-Pointe)
+
+
 ### serbie – suisse (N/A, Sat, 12 Oct 2024 13:50:00 -0700)
 
 - **Pronostic Serbie - Suisse, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/serbie-suisse-220195/)
