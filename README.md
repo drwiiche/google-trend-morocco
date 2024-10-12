@@ -1,3 +1,12 @@
+### bivol vs beterbiev (N/A, Sat, 12 Oct 2024 06:50:00 -0700)
+
+- **Bivol vs Beterbiev live stream: How to watch fight online and on TV tonight**: [Link](https://www.independent.co.uk/sport/boxing/bivol-beterbiev-live-stream-watch-online-b2628188.html)
+- **Artur Beterbiev vs Dmitry Bivol fight time, how to watch, live updates, 
+full card and more**: [Link](https://www.tennessean.com/story/sports/2024/10/12/artur-beterbiev-dmitry-bivol-fight-live-updates-watch-time/75514941007/)
+- **How to watch Wardley vs Clarke 2: TV channel, live stream and PPV price for 
+boxing today**: [Link](https://www.standard.co.uk/sport/boxing/how-to-watch-wardley-vs-clarke-2-tv-channel-live-stream-ppv-price-today-b1187404.html)
+
+
 ### match maroc oujda (N/A, Sat, 12 Oct 2024 05:50:00 -0700)
 
 - **Maroc-Centrafrique: la compo probable des Lions de l’Atlas**: [Link](https://sport.le360.ma/football/can/maroc-centrafrique-la-compo-probable-des-lions-de-latlas_F2NEI4Y73RHXFO6O36FBACP6H4/)
