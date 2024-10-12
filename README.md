@@ -1,3 +1,25 @@
+### croatie – écosse (N/A, Sat, 12 Oct 2024 08:20:00 -0700)
+
+- **DIRECT. Croatie-Écosse (Ligue des nations A 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/croatie-ecosse-live/632575)
+- **PRONOS PARIS RMC Le buteur du jour du 12 octobre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-12-octobre-ligue-des-nations_AN-202410110046.html)
+- **Croatie - Écosse : Aperçu du match et prédiction**: [Link](https://www.footboom1.com/fr/news/football/1921200-croatia-vs-scotland-match-preview-and-prediction)
+
+
+### موعد مباراة المغرب (N/A, Sat, 12 Oct 2024 08:20:00 -0700)
+
+- **المنتخب يختتم التحضير لإفريقيا الوسطى**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-1445965.html)
+- **موعد مباراة المغرب ضد أفريقيا الوسطى بالتصفيات الأفريقية والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/10/11/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7%D9%89)
+- **حراسة مرمى الأسود بنواتها الأساسية أمام إفريقيا الوسطى**: [Link](https://www.almountakhab.com/node/16205321)
+
+
+### morocco vs (N/A, Sat, 12 Oct 2024 08:20:00 -0700)
+
+- **Preview: Morocco vs. Central African Republic - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/morocco/africa-cup-of-nations/preview/preview-morocco-vs-car-prediction-team-news-lineups_555165.html)
+- **Ziyech Excluded from Morocco’s AFCON Squad**: [Link](https://al24news.com/en/ziyech-excluded-from-moroccos-afcon-squad/)
+- **Morocco national team list for the two matches between Central Africa**: [Link](https://www.ysscores.com/en/news/4979517/Morocco-national-team-list-for-the-two-matches-between-Central-Africa)
+
+
 ### han kang (N/A, Sat, 12 Oct 2024 08:00:00 -0700)
 
 - **Han Kang declines press conference, refuses to celebrate award while people 
