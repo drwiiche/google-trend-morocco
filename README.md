@@ -1,3 +1,13 @@
+### morocco (N/A, Sat, 12 Oct 2024 10:10:00 -0700)
+
+- **Morocco's King lauds new allies in Western Sahara dispute after European 
+court ruling**: [Link](https://www.wral.com/story/moroccos-king-lauds-new-allies-in-western-sahara-dispute-after-european-court-ruling/21669601/)
+- **King Mohammed VI calls for focus on the «small number of countries» still 
+supporting Polisario**: [Link](https://www.msn.com/en-xl/news/other/king-mohammed-vi-calls-for-focus-on-the-small-number-of-countries-still-supporting-polisario/ar-AA1s7jgA)
+- **MPs: Royal Speech Stresses Fundamental Role of Parliamentary Diplomacy in 
+Defending Sahara's Moroccanness**: [Link](https://www.fananews.com/language/en/mps-royal-speech-stresses-fundamental-role-of-parliamentary-diplomacy-in-defending-saharas-moroccanness/)
+
+
 ### guinée – éthiopie (N/A, Sat, 12 Oct 2024 09:10:00 -0700)
 
 - **Éliminatoires CAN 2025-Maroc: la Guinée en mauvaise posture, le miracle 
