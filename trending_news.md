@@ -1,3 +1,10 @@
+### ben seghir (N/A, Sat, 12 Oct 2024 15:30:00 -0700)
+
+- **Lionel Messi choisit Eliesse Ben Seghir pour porter sa paire Adidas**: [Link](https://fr.hespress.com/390364-lionel-messi-choisit-eliesse-ben-seghir-pour-porter-sa-paire-adidas.html)
+- **Lionel Messi vote Eliesse Ben Seghir et Lamine Yamal**: [Link](https://www.bladi.net/lionel-messi-vote-eliesse-ben-seghir-lamine-yamal,110969.html)
+- **Quand Lionel Messi choisit Eliesse Ben Seghir dans son équipe**: [Link](https://sport.le360.ma/football/quand-lionel-messi-choisit-eliesse-ben-seghir-dans-son-equipe_IJFULJWZ7RHRPAD3TVM3AD23GQ/)
+
+
 ### can 2025 (N/A, Sat, 12 Oct 2024 13:10:00 -0700)
 
 - **2025 AFCON Qualifiers: Kwasi Appiah eyes 'big victory' over Ghana on Tuesday**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/2025-AFCON-Qualifiers-Kwasi-Appiah-eyes-big-victory-over-Ghana-on-Tuesday-1955046)
