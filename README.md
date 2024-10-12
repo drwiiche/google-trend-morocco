@@ -1,3 +1,42 @@
+### portugal fc (N/A, Sat, 12 Oct 2024 11:20:00 -0700)
+
+- **FC Porto: goleada ao Amarante, saiba quem marcou**: [Link](https://www.abola.pt/futebol/noticias/fc-porto-goleada-ao-amarante-saiba-quem-marcou-2024101114422020376)
+- **FC Porto goleia em novo particular: o resultado, os marcadores e jogadores 
+utilizados**: [Link](https://www.ojogo.pt/4101083152/fc-porto-goleia-em-novo-particular-o-resultado-os-marcadores-e-jogadores-utilizados/)
+- **Fran Navarro segue inspirado**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/fc-porto/detalhe/fran-navarro-segue-inspirado)
+
+
+### إسبانيا ضد الدنمارك (N/A, Sat, 12 Oct 2024 11:10:00 -0700)
+
+- **تشكيلة منتخب إسبانيا الرسمية للقاء الدنمارك في دوري الأمم الأوروبية**: [Link](https://hihi2.com/2024/10/12/p2885870.html)
+- **إسبانيا في مهمة محفوفة بالمخاطر.. والبرتغال تتطلع لمواصلة هيمنتها**: [Link](https://www.kooora.com/?n=1360581)
+- **البث المباشر لمشاهدة مباراة اسبانيا والدنمارك اليوم تويتر في تصفيات كأس 
+اوروبا 2025 – السعودية نيوز**: [Link](https://real.alsaudinews.com/187334/%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%88/)
+
+
+### spain vs denmark (N/A, Sat, 12 Oct 2024 11:10:00 -0700)
+
+- **Preview: Spain vs. Denmark - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spain/uefa-nations-league/preview/preview-spain-vs-denmark-prediction-team-news-lineups_555139.html)
+- **Barcelona keeping close tabs on key forward during international break**: [Link](https://barcauniversal.com/barcelona-keeping-close-tabs-on-key-forward-during-international-break/)
+- **Spain's Substitute Performance: An Unsold Mystery**: [Link](https://www.footboom1.com/en/news/football/1921640-spain-s-substitute-performance-an-unsold-mystery)
+
+
+### espagne foot (N/A, Sat, 12 Oct 2024 11:10:00 -0700)
+
+- **L’Espagne met en garde Lamine Yamal**: [Link](https://www.footmercato.net/a2220835045982876318-lespagne-met-en-garde-lamine-yamal)
+- **Espagne : Yamal, le Barça est prévenu**: [Link](https://news.maxifoot.fr/espagne/yamal-le-barca-est-prevenu-foot-420922.htm)
+- **'Ma colère? Je n'étais pas content, je pouvais mieux jouer; je suis très 
+exigeant envers moi-même'**: [Link](https://fr.besoccer.com/info/ma-colere-je-n-etais-pas-content-je-pouvais-mieux-jouer-je-suis-tres-exigeant-envers-moi-meme-1333569)
+
+
+### portugal (N/A, Sat, 12 Oct 2024 11:10:00 -0700)
+
+- **Em atualização Eis o onze de Portugal para a visita à Polónia: Renato Veiga 
+titular no centro da defesa**: [Link](https://desporto.sapo.pt/futebol/liga-das-nacoes/artigos/eis-o-onze-de-portugal-para-a-visita-a-polonia-renato-veiga-titular-no-centro-da-defesa)
+- **Liga das Nações: Lewandowski e Ronaldo num duelo de ícones em Varsóvia**: [Link](https://www.flashscore.pt/noticias/futebol-liga-das-nacoes-liga-das-nacoes-lewandowski-e-ronaldo-num-duelo-de-icones-em-varsovia/dQBjrRdM/)
+- **Super Odds para Polônia x Portugal na UEFA Nations League**: [Link](https://www.cnnbrasil.com.br/esportes/apostas/odds/super-odds-para-polonia-x-portugal-na-uefa-nations-league/)
+
+
 ### espagne – danemark (N/A, Sat, 12 Oct 2024 11:00:00 -0700)
 
 - **PRONOS PARIS RMC Le pari sûr du 12 octobre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-12-octobre-ligue-des-nations_AN-202410110043.html)
