@@ -1,3 +1,12 @@
+### yom kippour 2024 (N/A, Sat, 12 Oct 2024 01:20:00 -0700)
+
+- **Yom Kippour 2024 : à quelle date et à quelle heure débute le jeûne cette 
+année ?**: [Link](https://www.leparisien.fr/societe/religions/yom-kippour-2024-a-quelle-date-et-a-quelle-heure-debute-le-jeune-cette-annee-11-10-2024-TRACOGRKTJHVBJ574H45IPSG5E.php)
+- **Guide Complet En Temps De Guerre : Les Préparatifs Pour Yom Kippour**: [Link](https://www.i24news.tv/fr/actu/israel/artc-guide-complet-en-temps-de-guerre-les-preparatifs-pour-yom-kippour)
+- **Jour du Pardon : à quoi ressemblent les cérémonies du jour le plus saint 
+pour la communauté juive**: [Link](https://aurora-israel.co.il/fr/jour-du-pardon-quelles-sont-les-c%C3%A9r%C3%A9monies-du-jour-le-plus-sacr%C3%A9-pour-la-communaut%C3%A9-juive/)
+
+
 ### نتائج مباراة التعليم (N/A, Sat, 12 Oct 2024 01:00:00 -0700)
 
 - **من هنا.. رابط نتائج مباراة التعليم 2024 المغرب عبر بوابة وزارة التربية 
