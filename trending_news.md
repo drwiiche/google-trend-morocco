@@ -1,3 +1,18 @@
+### han kang (N/A, Sat, 12 Oct 2024 08:00:00 -0700)
+
+- **Han Kang declines press conference, refuses to celebrate award while people 
+die in wars**: [Link](https://www.koreatimes.co.kr/www/culture/2024/10/135_384056.html)
+- **A Woman Won South Korea’s First Literature Nobel. That Says a Lot.**: [Link](https://www.nytimes.com/2024/10/11/world/asia/han-kang-nobel-south-korea.html)
+- **South Korean Han Kang wins Nobel Prize in literature 2024**: [Link](https://www.dw.com/en/south-korean-han-kang-wins-nobel-prize-in-literature-2024/a-70452211)
+
+
+### مباريات اليوم المغرب (N/A, Sat, 12 Oct 2024 07:20:00 -0700)
+
+- **المنتخب يختتم التحضير لإفريقيا الوسطى**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-1445965.html)
+- **موعد مباراة المغرب ضد أفريقيا الوسطى بالتصفيات الأفريقية والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/10/11/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7%D9%89)
+- **مدرب أفريقيا الوسطى: لا نخشى المنتخب المغربي**: [Link](https://m.kooora.com/?n=1360717&o=n1000361)
+
+
 ### المنتخب المغربي (N/A, Sat, 12 Oct 2024 07:10:00 -0700)
 
 - **المنتخب يختتم التحضير لإفريقيا الوسطى**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-1445965.html)
