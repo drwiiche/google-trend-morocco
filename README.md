@@ -1,3 +1,19 @@
+### maroc (N/A, Sat, 12 Oct 2024 09:00:00 -0700)
+
+- **Revue de presse de ce samedi 12 octobre 2024**: [Link](https://fr.hespress.com/390387-revue-de-presse-de-ce-samedi-12-octobre-2024.html)
+- **Sahara marocain: ce qu’il reste à faire, selon le roi Mohammed VI**: [Link](https://fr.le360.ma/politique/sahara-marocain-ce-quil-reste-a-faire-selon-le-roi-mohammed-vi_LKJFSAVCSFHALN5KDYJJEYOLKE/)
+- **DISCOURS ROYAL PARLEMENT. Le Roi : voici comment le Maroc a obtenu des 
+résultats tangibles sur la question du Sahara**: [Link](https://medias24.com/2024/10/11/discours-royal-parlement-le-roi-voici-comment-le-maroc-a-obtenu-des-resultats-tangibles-sur-la-question-du-sahara/)
+
+
+### twitch (N/A, Sat, 12 Oct 2024 08:50:00 -0700)
+
+- **Ironmouse Is Twitch’s Top Streamer, But She Doesn’t Know Why You’re Watching**: [Link](https://www.rollingstone.com/culture/rs-gaming/ironmouse-twitch-vtuber-most-subscribed-of-all-time-1235129114/)
+- **Kai Cenat Comments on Ironmouse Subathon**: [Link](https://gamerant.com/kai-cenat-ironmouse-subathon-backlash-response/)
+- **Kai Cenat’s Wholesome Reaction to a VTuber Beating Him as Most Subscribed 
+Streamer is Why We Will Always Respect Him**: [Link](https://m.imdb.com/news/ni64877278/?ref_=nm_nwr_1)
+
+
 ### croatie – écosse (N/A, Sat, 12 Oct 2024 08:20:00 -0700)
 
 - **DIRECT. Croatie-Écosse (Ligue des nations A 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/croatie-ecosse-live/632575)
