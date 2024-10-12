@@ -1,3 +1,11 @@
+### achraf hakimi (N/A, Sat, 12 Oct 2024 13:10:00 -0700)
+
+- **Se desvanece el sueño de Hakimi de volver al Real Madrid**: [Link](https://es.rue20.com/2024/10/10/se-desvanece-el-sueno-de-hakimi-de-volver-al-real-madrid/)
+- **Eduardo Inda avanza la decisión de Florentino sobre fichar al nuevo 
+Carvajal en enero: "La idea..."**: [Link](https://www.defensacentral.com/real_madrid/1709328470-eduardo-inda-avanza-la-decision-de-florentino-sobre-fichar-al-nuevo-carvajal-en-enero-la-idea)
+- **Kylian Mbappé pide un fichaje y la respuesta del PSG no se hace esperar**: [Link](https://edatv.news/deportes/kylian-mbappe-pide-fichaje-y-respuesta-del-psg-no-se-hace-esperar)
+
+
 ### الطقس غدًا (N/A, Sat, 12 Oct 2024 13:00:00 -0700)
 
 - **بداية التحول.. تحذير مهم بشأن حالة الطقس غدًا الأحد: أمطار رعدية تضرب 
