@@ -1,3 +1,12 @@
+### españa - dinamarca (N/A, Sat, 12 Oct 2024 13:50:00 -0700)
+
+- **España - Dinamarca en directo: ¡Clarísima ocasión de Lamine Yamal! | La 
+UEFA Nations League hoy en vivo**: [Link](https://www.marca.com/futbol/uefa-nations-league/espana-dinamarca/2024/10/12/01_0195_20241012_118_369-directo.html)
+- **España - Dinamarca, en directo hoy: resultado y goles | Nations League, en 
+vivo**: [Link](https://www.sport.es/es/noticias/seleccion/espana-dinamarca-directo-hoy-alineaciones-109241788)
+- **España-Dinamarca: La campeona vuelve a casa**: [Link](https://www.mundodeportivo.com/seleccion-espanola/20241012/1002331927/espana-dinamarca-campeona-vuelve-casa.html)
+
+
 ### espagne (N/A, Sat, 12 Oct 2024 13:40:00 -0700)
 
 - **DIRECT. Match des streamers Espagne-France: les Français menés et dos au 
