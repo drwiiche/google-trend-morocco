@@ -1,3 +1,10 @@
+### serbie – suisse (N/A, Sat, 12 Oct 2024 13:50:00 -0700)
+
+- **Pronostic Serbie - Suisse, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/serbie-suisse-220195/)
+- **Quand un journal serbe annonce Vincent Sierro… défenseur central**: [Link](https://www.lesviolets.com/actu/quand-un-journal-serbe-annonce-vincent-sierro-defenseur-central,74098.html)
+- **Yakini analyse le match, parle de Xhaka**: [Link](https://www.koha.net/fr/futboll/yakini-analizon-ndeshjen-flet-per-xhaken)
+
+
 ### ben seghir (N/A, Sat, 12 Oct 2024 15:30:00 -0700)
 
 - **Lionel Messi choisit Eliesse Ben Seghir pour porter sa paire Adidas**: [Link](https://fr.hespress.com/390364-lionel-messi-choisit-eliesse-ben-seghir-pour-porter-sa-paire-adidas.html)
