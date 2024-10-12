@@ -1,3 +1,11 @@
+### الطقس (N/A, Fri, 11 Oct 2024 22:40:00 -0700)
+
+- **نشرة إنذارية.. تساقطات مطرية رعدية قوية مصحوبة بهبات رياح مرتقبة بعدد من 
+أقاليم المملكة**: [Link](https://www.akhbarona.com/national/393563.html)
+- **الطقس غدا .. أمطار ضعيفة ومتفرقة**: [Link](https://ar.hibapress.com/details-561189.html)
+- **نشرة إنذارية: أمطار رعدية ورياح يومي السبت والأحد بعدد من م...**: [Link](https://kech24.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%8A%D9%88%D9%85%D9%8A-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D9%88%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9.html)
+
+
 ### xxl (N/A, Fri, 11 Oct 2024 20:20:00 -0700)
 
 - **'I do not need the money anymore' | Atlanta rap legend T.I. announces his 
