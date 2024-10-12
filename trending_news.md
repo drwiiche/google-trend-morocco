@@ -1,3 +1,11 @@
+### wetter (N/A, Fri, 11 Oct 2024 23:20:00 -0700)
+
+- **Erst Hurrikan „Kirk“, dann Skandinavien-Hoch: Was macht nun die 
+Wetter-Achterbahn?**: [Link](https://www.rosenheim24.de/bayern/wetter-in-suedostbayern-erst-regen-und-dann-angenehmes-herbstwetter-in-der-region-93349940.html)
+- **Längere Hochdrucklage in Sicht**: [Link](https://tegernseerstimme.de/laengere-hochdrucklage-in-sicht/)
+- **Wetter am Samstag, 12.10.2024: Aktuelle Wettervorhersage und 3-Tage-Trend**: [Link](https://www.rnd.de/panorama/wetter-am-samstag-12-10-2024-aktuelle-wettervorhersage-und-3-tage-trend-TRUEJY7TK23HE7EQYF7AVQWYRU.html)
+
+
 ### habib beye (N/A, Fri, 11 Oct 2024 15:00:00 -0700)
 
 - **Habib Beye, Hervé Renard, Omar Daf... quel sélectionneur pour remplacer 
