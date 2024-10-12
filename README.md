@@ -1,3 +1,12 @@
+### novak djokovic (N/A, Sat, 12 Oct 2024 04:30:00 -0700)
+
+- **‘Everything he does in life, he does with intensity and passion,’ Feliciano 
+López says of former teammate Rafael Nadal**: [Link](https://www.cnn.com/2024/10/11/sport/rafael-nadal-retirement-feliciano-lopez-spt-intl/index.html)
+- **The Shadows of Rafa Nadal's Career: Doping Allegations, His Agreement with 
+Saudi Arabia, and the Salary Equality Debate**: [Link](https://www.footboom1.com/en/news/football/1924011-the-shadows-of-rafa-nadal-s-career-doping-allegations-his-agreement-with-saudi-arabia-and-the-salary-equality-debate)
+- **Nadal’s departure leaves Djokovic as last of the 'Big Three' standing**: [Link](https://www.insidethegames.biz/articles/1149248/the-trident-loses-a-blade-as-nadal-bows)
+
+
 ### kylian mbappé (N/A, Sat, 12 Oct 2024 04:10:00 -0700)
 
 - **Former Real Madrid manager issues warning to Kylian Mbappe**: [Link](https://madriduniversal.com/former-real-madrid-manager-issues-warning-to-kylian-mbappe/)
