@@ -1,3 +1,28 @@
+### الطقس غدًا (N/A, Sat, 12 Oct 2024 13:00:00 -0700)
+
+- **بداية التحول.. تحذير مهم بشأن حالة الطقس غدًا الأحد: أمطار رعدية تضرب 
+منطقتين (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3281135)
+- **هنطلع الشتوي امتى؟.. الأرصاد تحسم الجدل بشأن موعد ارتداء الملابس الشتوية**: [Link](https://zahraa.mr/3382812/%D9%87%D9%86%D8%B7%D9%84%D8%B9-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A-%D8%A7%D9%85%D8%AA%D9%89%D8%9F-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84/)
+- **الأرصاد تكشف موعد انخفاض درجات الحرارة**: [Link](https://www.masrawy.com/news/news_egypt/details/2024/10/12/2656782/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D9%83%D8%B4%D9%81-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9)
+
+
+### azzedine ounahi (N/A, Sat, 12 Oct 2024 12:50:00 -0700)
+
+- **Décès de George Baldock: le message touchant de Azzedine Ounahi (PHOTO)**: [Link](https://www.lesiteinfo.com/sport/629492-deces-de-george-baldock-le-message-touchant-de-azzedine-ounahi-photo.html)
+- **Foot : le capitaine grec estime que son équipe n’aurait pas dû jouer jeudi 
+soir à cause du décès d’un coéquipier**: [Link](https://www.lefigaro.fr/sports/football/foot-le-capitaine-grec-estime-que-son-equipe-n-aurait-pas-du-jouer-jeudi-soir-a-cause-du-deces-d-un-de-leurs-coequipiers-20241011)
+- **Angleterre-Grèce : l’UEFA a refusé de reporter le match après le décès de 
+Baldock**: [Link](https://www.footmercato.net/a9165613951633668757-angleterre-grece-luefa-a-refuse-de-reporter-le-match-apres-le-deces-de-baldock)
+
+
+### hakimi (N/A, Sat, 12 Oct 2024 12:50:00 -0700)
+
+- **Se desvanece el sueño de Hakimi de volver al Real Madrid**: [Link](https://es.rue20.com/2024/10/10/se-desvanece-el-sueno-de-hakimi-de-volver-al-real-madrid/)
+- **Eduardo Inda avanza la decisión de Florentino sobre fichar al nuevo 
+Carvajal en enero: "La idea..."**: [Link](https://www.defensacentral.com/real_madrid/1709328470-eduardo-inda-avanza-la-decision-de-florentino-sobre-fichar-al-nuevo-carvajal-en-enero-la-idea)
+- **Kylian Mbappé pide un fichaje y la respuesta del PSG no se hace esperar**: [Link](https://edatv.news/deportes/kylian-mbappe-pide-fichaje-y-respuesta-del-psg-no-se-hace-esperar)
+
+
 ### arryadia tnt hd (N/A, Sat, 12 Oct 2024 12:30:00 -0700)
 
 
