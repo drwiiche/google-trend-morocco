@@ -1,3 +1,12 @@
+### habib beye (N/A, Fri, 11 Oct 2024 15:00:00 -0700)
+
+- **Habib Beye, Hervé Renard, Omar Daf... quel sélectionneur pour remplacer 
+Aliou Cissé à la tête du Sénégal ?**: [Link](https://www.lequipe.fr/Football/Article/Habib-beye-herve-renard-omar-daf-quel-selectionneur-pour-remplacer-aliou-cisse-a-la-tete-du-senegal/1513104)
+- **Habib Beye refuse encore un banc**: [Link](https://www.footmercato.net/a2989083381120315775-habib-beye-refuse-encore-un-banc)
+- **Vidéo : Fédération sénégalaise de football : à la recherche de son 
+successeur d'Aliou Cissé**: [Link](https://www.medi1tv.com/fr/reportage/331167/F%C3%A9d%C3%A9ration-s%C3%A9n%C3%A9galaise-de-football--%C3%A0-la-recherche-de-son-successeur-d-Aliou-Ciss%C3%A9)
+
+
 ### طقس (N/A, Fri, 11 Oct 2024 23:20:00 -0700)
 
 - **الطقس.. نشرة مفصلة عن المناطق المعنية بالأمطار خلال 3 أيام القادمة**: [Link](https://www.analkhabar.com/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%86%D8%B4%D8%B1%D8%A9-%D9%85%D9%81%D8%B5%D9%84%D8%A9-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D8%B9%D9%86/)
