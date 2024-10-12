@@ -1,3 +1,10 @@
+### توقعات ليلى عبد اللطيف (N/A, Sat, 12 Oct 2024 14:20:00 -0700)
+
+- **مشهد مرعب.. توقعات صادمة لـ ليلى عبد اللطيف في 2025**: [Link](https://www.masrawy.com/howa_w_hya/relationship/details/2024/10/7/2654395/%D9%85%D8%B4%D9%87%D8%AF-%D9%85%D8%B1%D8%B9%D8%A8-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D9%84%D9%80-%D9%84%D9%8A%D9%84%D9%89-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D8%B7%D9%8A%D9%81-%D9%81%D9%8A-2025)
+- **تنبؤات عبد اللطيف وحايك.. حقيقة ام صدفة ام معلومات مسربة؟**: [Link](https://johinanews.com/article/254759)
+- **توقعات صادمة من ليلى عبداللطيف لأحداث في عام 2025 ..اخبار محلية**: [Link](https://ar.pressbee.net/show8739488.html?title=%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D9%85%D9%86-%D9%84%D9%8A%D9%84%D9%89-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D8%B7%D9%8A%D9%81-%D9%84%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB-%D9%81%D9%8A-%D8%B9%D8%A7%D9%85-2025)
+
+
 ### españa - dinamarca (N/A, Sat, 12 Oct 2024 13:50:00 -0700)
 
 - **España - Dinamarca en directo: ¡Clarísima ocasión de Lamine Yamal! | La 
