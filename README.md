@@ -1,3 +1,17 @@
+### koora (N/A, Sat, 12 Oct 2024 11:50:00 -0700)
+
+- **تحليل – سر تألق رافينيا مع فليك هذا الموسم**: [Link](https://hihi2.com/2024/10/12/p2885648.html)
+- **مدرب البرازيل يمدح نجم برشلونة**: [Link](https://www.kooora.com/?n=1360196)
+- **رافينها يكشف سر تألقه مع برشلونة وعدم تقبل فكرة فليك**: [Link](https://www.btolat.com/news/354765)
+
+
+### يوسف بلعمري (N/A, Sat, 12 Oct 2024 11:50:00 -0700)
+
+- **الركراكي مدرب المغرب يحدد موعد عودة مزراوي نجم يونايتد**: [Link](https://www.aljazeera.net/sport/2024/10/12/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D9%88%D8%AF%D8%A9)
+- **الركراكي: "بلعمري لاعب ذكي ويتوفر على تقنيات عالية"**: [Link](https://m.elbotola.com/article/2024-10-11-17-29-862.html)
+- **بسبب مشاكل في القلب.. وليد الركراكي يوضح بخصوص حالة نصير مزراوي**: [Link](https://ar.hibapress.com/details-561043.html)
+
+
 ### marruecos - república centroafricana (N/A, Sat, 12 Oct 2024 11:40:00 -0700)
 
 - **Regragui: “Las lesiones nos abrieron el camino para probar otros nombres”**: [Link](https://es.rue20.com/2024/10/11/regragui-las-lesiones-nos-abrieron-el-camino-para-probar-otros-nombres/)
