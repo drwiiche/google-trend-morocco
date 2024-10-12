@@ -1,3 +1,10 @@
+### طقس (N/A, Fri, 11 Oct 2024 23:20:00 -0700)
+
+- **الطقس.. نشرة مفصلة عن المناطق المعنية بالأمطار خلال 3 أيام القادمة**: [Link](https://www.analkhabar.com/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%86%D8%B4%D8%B1%D8%A9-%D9%85%D9%81%D8%B5%D9%84%D8%A9-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D8%B9%D9%86/)
+- **توقعات أحوال طقسِ اليوم الخميس**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-3-1444987.html)
+- **طقس الجمعة.. قطرات مطرية متوقعة بهذه المناطق**: [Link](https://ar.hibapress.com/details-560790.html)
+
+
 ### météo (N/A, Fri, 11 Oct 2024 22:40:00 -0700)
 
 - **Le temps qu'il fera ce samedi 12 octobre 2024**: [Link](https://fr.hespress.com/390381-le-temps-quil-fera-ce-samedi-12-octobre-2024.html)
