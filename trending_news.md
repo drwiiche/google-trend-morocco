@@ -1,3 +1,11 @@
+### guinée – éthiopie (N/A, Sat, 12 Oct 2024 09:10:00 -0700)
+
+- **Éliminatoires CAN 2025-Maroc: la Guinée en mauvaise posture, le miracle 
+viendra-t-il de Michel Dussuyer?**: [Link](https://afrique.le360.ma/sports/eliminatoires-can-2025-maroc-la-guinee-en-mauvaise-posture-le-miracle-viendra-t-il-de-michel_AXHE4E5455EFTDVQUGEB4OI44U/)
+- **Guinée-Éthiopie : le 11 du Syli avec Issiaga Sylla capitaine**: [Link](https://guineefoot.info/guinee-ethiopie-le-11-du-syli-avec-issiaga-sylla-capitaine/)
+- **Football : Que peut Michel Dussuyer au chevet de la Guinée mal en point ?**: [Link](https://www.afrikipresse.fr/article/football-que-peut-michel-dussuyer-au-chevet-de-la-guinee-mal-en-point)
+
+
 ### maroc (N/A, Sat, 12 Oct 2024 09:00:00 -0700)
 
 - **Revue de presse de ce samedi 12 octobre 2024**: [Link](https://fr.hespress.com/390387-revue-de-presse-de-ce-samedi-12-octobre-2024.html)
