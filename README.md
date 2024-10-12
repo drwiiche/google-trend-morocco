@@ -1,3 +1,11 @@
+### match maroc 2024 (N/A, Sat, 12 Oct 2024 08:00:00 -0700)
+
+- **La CAF dévoile le nouveau trophée et l'identité de la Coupe d'Afrique des 
+Nations de Beach Soccer Egypte 2024**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-de-beach-soccer/news/la-caf-devoile-le-nouveau-trophee-et-lidentite-de-la-coupe-dafrique-des-nations-de-beach-soccer-egypte-2024/)
+- **CAN de beach soccer 2024: les Lions de l’Atlas peu rassurants**: [Link](https://sport.le360.ma/football/lions-atlas/can-de-beach-soccer-2024-les-lions-de-latlas-peu-rassurants_ONMS4LLQOZBAPFPCYDZ5L2VZAM/)
+- **Beach soccer : Le Maroc s’impose face à Mauritanie en amical**: [Link](https://fr.hespress.com/389961-beach-soccer-le-maroc-simpose-face-a-mauritanie-en-amical.html)
+
+
 ### مباراة المغرب (N/A, Sat, 12 Oct 2024 09:20:00 -0700)
 
 - **الزلزولي يقود هجوم المغرب المتوقع أمام أفريقيا الوسطى**: [Link](https://www.kooora.com/?n=1360719)
