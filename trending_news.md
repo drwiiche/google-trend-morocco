@@ -1,3 +1,10 @@
+### portugal vs poland (N/A, Sat, 12 Oct 2024 13:40:00 -0700)
+
+- **Poland vs. Portugal (13 Oct, 2024) Live Score**: [Link](https://www.espn.com.au/football/match/_/gameId/698958)
+- **Ronaldo On Target Again As Portugal Defeat Poland In Nations League**: [Link](https://www.barrons.com/news/ronaldo-on-target-again-as-portugal-defeat-poland-in-nations-league-a7188de5)
+- **UEFA Nations League Poland 1 Portugal 3 Full time**: [Link](https://www.bbc.com/sport/football/live/c3wpl0q21pet)
+
+
 ### توقعات ليلى عبد اللطيف (N/A, Sat, 12 Oct 2024 14:20:00 -0700)
 
 - **مشهد مرعب.. توقعات صادمة لـ ليلى عبد اللطيف في 2025**: [Link](https://www.masrawy.com/howa_w_hya/relationship/details/2024/10/7/2654395/%D9%85%D8%B4%D9%87%D8%AF-%D9%85%D8%B1%D8%B9%D8%A8-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D9%84%D9%80-%D9%84%D9%8A%D9%84%D9%89-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D8%B7%D9%8A%D9%81-%D9%81%D9%8A-2025)
