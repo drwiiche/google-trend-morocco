@@ -1,3 +1,80 @@
+### arryadia (N/A, Sat, 12 Oct 2024 12:10:00 -0700)
+
+
+
+
+### cta (N/A, Sat, 12 Oct 2024 12:10:00 -0700)
+
+- **CTA Wants Your Feedback As It Creates ‘Roadmap’ For The Future**: [Link](https://blockclubchicago.org/2024/10/11/cta-wants-your-feedback-as-it-creates-roadmap-for-the-future/)
+- **CTA seeks feedback on proposed $2.1 billion budget for 2025**: [Link](https://chicago.suntimes.com/transportation/2024/10/11/cta-transit-authority-budget-2025)
+- **Powering Our Transit Future strategic plan**: [Link](https://www.transitchicago.com/strategicplan/)
+
+
+### yalla kora (N/A, Sat, 12 Oct 2024 12:10:00 -0700)
+
+- **تفاصيل مشاركة الأهلي في تكريم نجم السعودية السابق**: [Link](http://www.kooora.com/default.aspx?n=1360854&pg=1&o=n)
+- **رسميا.. الأهلي يشارك في مباراة اعتزال نجم منتخب السعودية السابق**: [Link](https://sport.elwatannews.com/ar/1/2/1174425/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%B4%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D9%86%D8%AC%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82)
+- **الأهلي يعود للجوهرة المشعة مجددا ..رياضة**: [Link](https://ar.pressbee.net/show8749871.html?title=%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%AC%D9%88%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%B4%D8%B9%D8%A9-%D9%85%D8%AC%D8%AF%D8%AF%D8%A7)
+
+
+### vs (N/A, Sat, 12 Oct 2024 12:10:00 -0700)
+
+- **The NLCS matchup is set! What Mets, Dodgers need to do to reach World Series**: [Link](https://www.espn.com/mlb/story/_/id/41699794/2024-mlb-playoffs-world-series-nlcs-mets-dodgers-first-look-preview)
+- **MLB predictions, picks, best bets: Mets-Dodgers NLCS Game 1 slugfest rides 
+on Mookie Betts, Francisco Lindor**: [Link](https://www.cbssports.com/mlb/news/mlb-predictions-picks-best-bets-mets-dodgers-nlcs-game-1-slugfest-rides-on-mookie-betts-francisco-lindor/)
+- **Dodgers silence Padres in Game 5 nail-biter, advance to NLCS vs. Mets: 
+Highlights**: [Link](https://www.usatoday.com/story/sports/mlb/2024/10/11/dodgers-vs-padres-nlds-game-5-score-highlights/75632335007/)
+
+
+### match live (N/A, Sat, 12 Oct 2024 12:10:00 -0700)
+
+- **Sanju Samson tees off: one over, five sixes**: [Link](https://www.espncricinfo.com/story/ind-vs-ban-sanju-samson-tees-off-one-over-five-sixes-1455016)
+- **200 In 14 Overs, Record Total, 5 6s In 1 over: All Records By India In 
+Sanju Samson Storm vs Banglad..**: [Link](https://sports.ndtv.com/cricket/200-in-14-overs-record-total-5-6s-in-1-over-all-records-by-india-in-sanju-samson-storm-vs-bangladesh-6775115)
+- **LIVE: India vs Bangladesh – highest T20 total struck in third match of tour**: [Link](https://www.aljazeera.com/sports/liveblog/2024/10/12/live-india-vs-bangladesh-third-t20-international-cricket-match)
+
+
+### bein sports (N/A, Sat, 12 Oct 2024 12:10:00 -0700)
+
+- **فوز ثمين لكرواتيا على اسكتلندا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%81%D9%88%D8%B2-%D8%AB%D9%85%D9%8A%D9%86-%D9%84%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D8%B3%D9%83%D8%AA%D9%84%D9%86%D8%AF%D8%A7-2024-10-12)
+- **عين على لوكا مودريتش أمام اسكتلندا**: [Link](https://hihi2.com/2024/10/12/p2885981.html)
+- **بالصور.. تكريم خاص لنجم النصر مع منتخب بلاده**: [Link](https://m.kooora.com/?n=1360823&o=n)
+
+
+### sports (N/A, Sat, 12 Oct 2024 12:10:00 -0700)
+
+- **Medical Leaders From Nine Professional Sports Leagues and International 
+Federations Gather to Advance Athlete Safety at UK Medical Conference 2024**: [Link](https://www.nfl.com/playerhealthandsafety/resources/press-releases/medical-leaders-from-nine-professional-sports-leagues-and-international-federations-gather-to-advance-athlete-safety-at-uk-medical-conference-2024)
+- **ABC7 Sports Overtime: Chicago Bears week 6 game in London; sports betting; 
+fantasy football; Notre Dame College Prep soccer player**: [Link](https://abc7chicago.com/post/abc7-sports-overtime-chicago-bears-week-6-game-london-betting-fantasy-football-notre-dame-college-prep-soccer-player/15417474/)
+- **ABC7 Sports Overtime with Dionne Miller: Chicago Bears, fantasy football, 
+sports betting, Chicago Cubs, Chicago Bulls**: [Link](https://abc7chicago.com/post/abc7-sports-overtime-dionne-miller-chicago-bears-fantasy-football-betting-cubs-bulls/15393480/)
+
+
+### يلا كورة مباريات اليوم (N/A, Sat, 12 Oct 2024 12:10:00 -0700)
+
+- **هزيمة تونس أمام جزر القمر تنهي فترة السماح التي تمتع بها فوزي البنزرتي**: [Link](https://www.almountakhab.com/node/13205343)
+- **فوز ثمين لمنتخب جزر القمر على نظيره منتخب تونس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%81%D9%88%D8%B2-%D8%AB%D9%85%D9%8A%D9%86-%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D8%B9%D9%84%D9%89-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AA%D9%88%D9%86%D8%B3-2024-10-11)
+- **تونس تنهزم ضد جزر القمر على أرضها (0-1) في تصفيات كأس أمم أفريقيا "المغرب 
+2025"**: [Link](https://m.elbotola.com/article/2024-10-11-21-49-864.html)
+
+
+### bein sport (N/A, Sat, 12 Oct 2024 12:00:00 -0700)
+
+- **القنوات الناقلة لتصفيات أمم أفريقيا 2025 وترتيب الفرق بعد التحديث الأخير**: [Link](https://atlassport.ps/20079/%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025/)
+- **تردد قناة بي ان سبورت 1 وبجودة عالية HD الناقل الحصري لجميع مباريات كرة 
+القدم في العالم وجميع البطولات**: [Link](https://m.saadaonline.net/49235/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-1-%D9%88%D8%A8%D8%AC%D9%88%D8%AF%D8%A9-%D8%B9%D8%A7%D9%84%D9%8A%D8%A9-hd-%D8%A7%D9%84%D9%86/)
+- **نزلها مجانا.. تردد قناة بي إن سبورت bein sports لمتابعة التصفيات المؤهلة 
+لبطولة كأس الأمم الأفريقية 2025**: [Link](https://www.mesrena.com/37448/%D9%86%D8%B2%D9%84%D9%87%D8%A7-%D9%85%D8%AC%D8%A7%D9%86%D8%A7-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-bein-sports-%D9%84%D9%85/)
+
+
+### حركاس (N/A, Sat, 12 Oct 2024 12:00:00 -0700)
+
+- **أداء اللاعب رضا بلحيان ينال الاهتمام**: [Link](https://www.hespress.com/%D8%A3%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D8%B6%D8%A7-%D8%A8%D9%84%D8%AD%D9%8A%D8%A7%D9%86-%D9%8A%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D8%A7%D9%87%D8%AA%D9%85%D8%A7%D9%85-1446220.html)
+- **عملاقا الكرة الإيطالية يتنافسان على موهبة الأسود الجديدة**: [Link](https://www.almountakhab.com/node/16205313)
+- **صراع بين عملاقي ميلان الإيطاليين لضم نجم المنتخب المغربي الجديد**: [Link](https://ar.hibapress.com/details-561232.html)
+
+
 ### koora (N/A, Sat, 12 Oct 2024 11:50:00 -0700)
 
 - **تحليل – سر تألق رافينيا مع فليك هذا الموسم**: [Link](https://hihi2.com/2024/10/12/p2885648.html)
