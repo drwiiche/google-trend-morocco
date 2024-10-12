@@ -1,3 +1,16 @@
+### match maroc oujda (N/A, Sat, 12 Oct 2024 05:50:00 -0700)
+
+- **Maroc-Centrafrique: la compo probable des Lions de l’Atlas**: [Link](https://sport.le360.ma/football/can/maroc-centrafrique-la-compo-probable-des-lions-de-latlas_F2NEI4Y73RHXFO6O36FBACP6H4/)
+- **Eliminatoires CAN Maroc-2025 : Les Lions de l’Atlas intensifient leur 
+préparation**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%B1%D9%81%D8%B9-%D9%85%D9%86-%D9%88%D8%AA%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%8A%D8%A8-2/)
+- **Regragui : "La République centrafricaine sera une bonne opposition"**: [Link](https://www.menara.ma/fr/article/regragui-la-republique-centrafricaine-sera-une-bonne-opposition)
+
+
+### حالة الطقس (N/A, Fri, 11 Oct 2024 23:30:00 -0700)
+
+
+
+
 ### palmiers (N/A, Sat, 12 Oct 2024 05:10:00 -0700)
 
 - **Mohamed Mhidia met fin à la plantation de palmiers à Casablanca**: [Link](https://lematin.ma/regions/mohamed-mhidia-met-fin-a-la-plantation-de-palmiers-a-casablanca/246687)
