@@ -1,3 +1,10 @@
+### weather (N/A, Fri, 11 Oct 2024 22:50:00 -0700)
+
+- **BBC Weather App Fixes Its Glitch**: [Link](https://evrimagaci.org/tpg/bbc-weather-app-fixes-its-glitch-45350)
+- **Weather today will have winds of 14,000mph in 404C temperatur­es**: [Link](https://www.pressreader.com/uk/metro-uk/20241011/281578066106784)
+- **BBC weather app issues resolved after forecasting ‘hurricane-force winds’**: [Link](https://www.bicesteradvertiser.net/news/national/24646287.bbc-weather-app-issues-resolved-forecasting-hurricane-force-winds/)
+
+
 ### الطقس (N/A, Fri, 11 Oct 2024 22:40:00 -0700)
 
 - **نشرة إنذارية.. تساقطات مطرية رعدية قوية مصحوبة بهبات رياح مرتقبة بعدد من 
