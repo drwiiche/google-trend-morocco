@@ -1,3 +1,11 @@
+### kylian mbappé (N/A, Sat, 12 Oct 2024 04:10:00 -0700)
+
+- **Former Real Madrid manager issues warning to Kylian Mbappe**: [Link](https://madriduniversal.com/former-real-madrid-manager-issues-warning-to-kylian-mbappe/)
+- **Didier Deschamps suggests captaincy will change hands again following 
+Aurélien Tchouaméni appointment**: [Link](https://www.getfootballnewsfrance.com/2024/didier-deschamps-suggests-captaincy-will-change-hands-again-following-aurelien-tchouameni-appointment/)
+- **UEFA Nations League: England lose to Greece, France win without Mbappe**: [Link](https://www.business-standard.com/sports/football-news/uefa-nations-league-england-lose-to-greece-france-win-without-mbappe-124101100155_1.html)
+
+
 ### martinique (N/A, Sat, 12 Oct 2024 03:20:00 -0700)
 
 - **Martinique: couvre-feu et interdiction de manifester après des violences**: [Link](https://www.h24info.ma/martinique-couvre-feu-et-interdiction-de-manifester-apres-des-violences/)
