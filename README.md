@@ -1,3 +1,10 @@
+### مباراة المغرب (N/A, Sat, 12 Oct 2024 09:20:00 -0700)
+
+- **الزلزولي يقود هجوم المغرب المتوقع أمام أفريقيا الوسطى**: [Link](https://www.kooora.com/?n=1360719)
+- **في مواجهة "الظبيان" لا قلق ولا أوجاع في خط الدفاع**: [Link](https://www.almountakhab.com/node/13205336)
+- **توقعات اللقاء مع إفريقيا الوسطى**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D9%85%D8%B9-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7%D9%89-1446291.html)
+
+
 ### morocco (N/A, Sat, 12 Oct 2024 10:10:00 -0700)
 
 - **Morocco's King lauds new allies in Western Sahara dispute after European 
