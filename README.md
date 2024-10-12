@@ -1,3 +1,19 @@
+### xxl (N/A, Fri, 11 Oct 2024 20:20:00 -0700)
+
+- **'I do not need the money anymore' | Atlanta rap legend T.I. announces his 
+retirement from performing**: [Link](https://www.11alive.com/article/entertainment/atlanta-rap-legend-ti-announces-retirement-from-performing/85-2730815f-aeec-4c73-8242-ef53bac043d4)
+- **Atlanta rapper T.I. announces retirement after December show**: [Link](https://www.fox5atlanta.com/news/atlanta-rapper-t-i-announces-retirement-after-december-show)
+- **T.I. Says He’s Retiring From Performing: ‘I Do Not Need the Money Anymore’**: [Link](https://www.billboard.com/music/rb-hip-hop/ti-retirement-talk-1235798206/)
+
+
+### weather tomorrow (N/A, Fri, 11 Oct 2024 12:30:00 -0700)
+
+- **Weather Forecast and Conditions for Miami, FL - The Weather Channel | 
+Weather.com**: [Link](https://weather.com/weather/today/l/11ff59cc3a5cc9936b7576feef11f8a2b2f726d912c4b09c4548325576fc0fe3)
+- **Hurricane Milton Intensifying, Threat To Florida**: [Link](https://weather.com/storms/hurricane/news/2024-10-06-milton-major-hurricane-threat-florida-gulf-coast)
+- **Palm Beach, FL**: [Link](https://weather.com/weather/today/l/4ad581f9204e474c732c7dd5752ad79adea07c615f68ded5d64927827206d1f3)
+
+
 ### discours roi maroc (N/A, Fri, 11 Oct 2024 16:20:00 -0700)
 
 - **DISCOURS ROYAL PARLEMENT. Le Roi : voici comment le Maroc a obtenu des 
