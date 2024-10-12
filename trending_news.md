@@ -1,3 +1,10 @@
+### palmiers (N/A, Sat, 12 Oct 2024 05:10:00 -0700)
+
+- **Mohamed Mhidia met fin à la plantation de palmiers à Casablanca**: [Link](https://lematin.ma/regions/mohamed-mhidia-met-fin-a-la-plantation-de-palmiers-a-casablanca/246687)
+- **Casablanca dit adieu aux palmiers**: [Link](https://www.bladi.net/casablanca-dit-adieu-palmiers,110964.html)
+- **Casablanca: le wali réagit aux demandes de suppression de palmiers**: [Link](https://www.h24info.ma/casablanca-le-wali-reagit-aux-demandes-de-suppression-de-palmiers/)
+
+
 ### novak djokovic (N/A, Sat, 12 Oct 2024 04:30:00 -0700)
 
 - **‘Everything he does in life, he does with intensity and passion,’ Feliciano 
