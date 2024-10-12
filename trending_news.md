@@ -1,3 +1,10 @@
+### martinique (N/A, Sat, 12 Oct 2024 03:20:00 -0700)
+
+- **Martinique: couvre-feu et interdiction de manifester après des violences**: [Link](https://www.h24info.ma/martinique-couvre-feu-et-interdiction-de-manifester-apres-des-violences/)
+- **Emeutes en Martinique : des centaines de passagers bloqués à l'aéropor**: [Link](https://fr.euronews.com/my-europe/2024/10/12/emeutes-en-martinique-laeroport-a-repris-ses-activites-apres-lintrusion-de-manifestants)
+- **Maison inondée, comment se faire indemniser ? - 12/10**: [Link](https://www.bfmtv.com/replay-emissions/le-live-bfm/maison-inondee-comment-se-faire-indemniser-12-10_VN-202410120233.html)
+
+
 ### yom kippour 2024 (N/A, Sat, 12 Oct 2024 01:20:00 -0700)
 
 - **Yom Kippour 2024 : à quelle date et à quelle heure débute le jeûne cette 
