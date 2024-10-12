@@ -1,3 +1,18 @@
+### can 2025 (N/A, Sat, 12 Oct 2024 13:10:00 -0700)
+
+- **2025 AFCON Qualifiers: Kwasi Appiah eyes 'big victory' over Ghana on Tuesday**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/2025-AFCON-Qualifiers-Kwasi-Appiah-eyes-big-victory-over-Ghana-on-Tuesday-1955046)
+- **Highlights for Ghana 0-0 Sudan in Africa Cup of Nations Qualifiers**: [Link](https://www.vavel.com/en-us/soccer/2024/10/10/1199620-ghana-vs-sudan-live-score-updates-stream-info-and-how-to-watch-africa-cup-of-nations-qualifiers.html)
+- **Ghana chief calls out West Ham United star Mohammed Kudus in bizarre speech**: [Link](https://www.westhamzone.com/news/ghana-chief-calls-out-west-ham-united-star-mohammed-kudus-in-bizarre-speech/)
+
+
+### dazn (N/A, Sat, 12 Oct 2024 13:00:00 -0700)
+
+- **Exclusive: Saudi Arabia's PIF eyeing stake in sports streamer DAZN, sources 
+say**: [Link](https://www.reuters.com/markets/deals/saudi-arabias-pif-eyeing-stake-sports-streamer-dazn-sources-say-2024-10-07/)
+- **Saudi Arabia’s PIF reportedly seeks ‘$1bn’ investment in DAZN**: [Link](https://www.sportindustry.biz/news-categories/news/dazn-saudi-arabia-pif-investment-stake-acquisition/)
+- **PIF, Sports Investments and Newcastle: More Than Sportswashing**: [Link](https://globalswf.com/news/pif-sports-investments-and-newcastle-not-about-sportswashing)
+
+
 ### مريم الخشت (N/A, Sat, 12 Oct 2024 14:50:00 -0700)
 
 - **التعليق الأول من مريم الخشت على زفافها**: [Link](https://www.lahamag.com/article/215985-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D9%86-%D9%85%D8%B1%D9%8A%D9%85-%D8%A7%D9%84%D8%AE%D8%B4%D8%AA-%D8%B9%D9%84%D9%89-%D8%B2%D9%81%D8%A7%D9%81%D9%87%D8%A7)
