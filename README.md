@@ -1,3 +1,18 @@
+### morocco vs central african republic (N/A, Sat, 12 Oct 2024 11:10:00 -0700)
+
+- **Preview: Morocco vs. Central African Republic - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/morocco/africa-cup-of-nations/preview/preview-morocco-vs-car-prediction-team-news-lineups_555165.html)
+- **Ziyech Excluded from Morocco’s AFCON Squad**: [Link](https://al24news.com/en/ziyech-excluded-from-moroccos-afcon-squad/)
+- **Morocco’s National Coach Announces Squad for AFCON 2025 Qualifiers**: [Link](https://www.moroccoworldnews.com/2024/10/365540/moroccos-national-coach-announces-squad-for-afcon-2025-qualifiers)
+
+
+### المغرب ضد جمهورية أفريقيا الوسطى (N/A, Sat, 12 Oct 2024 10:50:00 -0700)
+
+- **تشكيلة "الأسود" أمام إفريقيا الوسطى**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7%D9%89-1446457.html)
+- **عاجل.. تشكيلة المنتخب المغربي في مواجهة إفريقيا الوسطى**: [Link](https://www.akhbarona.com/sport/lionatlas/393630.html)
+- **مواقع التواصل الاجتماعي لافريقيا الوسطى تنشر غسيل السوق السوداء للتذاكر**: [Link](https://www.almountakhab.com/node/13205339)
+
+
 ### portugal fc (N/A, Sat, 12 Oct 2024 11:20:00 -0700)
 
 - **FC Porto: goleada ao Amarante, saiba quem marcou**: [Link](https://www.abola.pt/futebol/noticias/fc-porto-goleada-ao-amarante-saiba-quem-marcou-2024101114422020376)
