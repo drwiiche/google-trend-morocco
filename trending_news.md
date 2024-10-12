@@ -1,3 +1,20 @@
+### marruecos - república centroafricana (N/A, Sat, 12 Oct 2024 11:40:00 -0700)
+
+- **Regragui: “Las lesiones nos abrieron el camino para probar otros nombres”**: [Link](https://es.rue20.com/2024/10/11/regragui-las-lesiones-nos-abrieron-el-camino-para-probar-otros-nombres/)
+- **Pronóstico Marruecos - Rep. Centroafricana: Alineaciones, Apuestas y Cuotas**: [Link](https://www.bettingodds.com/es/noticias/pronostico-marruecos-rep-centroafricana-alineaciones-apuestas-y-cuotas)
+- **Belahyane: "La camiseta de Marruecos es un motivo de orgullo para mí y lo 
+daré todo por mi país"**: [Link](https://es.rue20.com/2024/10/11/__trashed-53__trashed-5/)
+
+
+### croatie foot (N/A, Sat, 12 Oct 2024 11:20:00 -0700)
+
+- **LdN : la Croatie s’impose contre l’Écosse, match nul entre la Bulgarie et 
+l’Irlande du Nord**: [Link](https://www.footmercato.net/a5700434647273047141-ldn-la-croatie-simpose-contre-lecosse-match-nul-entre-la-bulgarie-et-lirlande-du-nord)
+- **PRONOS PARIS RMC Le buteur du jour du 12 octobre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-12-octobre-ligue-des-nations_AN-202410110046.html)
+- **Ligue des Nations - Duje Ćaleta-Car titulaire et victorieux avec la Pologne 
+face à l'Ecosse**: [Link](https://madeingones.ouest-france.fr/infos/article-ligue-des-nations-duje-aleta-car-titulaire-et-victorieux-avec-la-pologne-face-a-l-ecosse-460741.html)
+
+
 ### morocco vs central african republic (N/A, Sat, 12 Oct 2024 11:10:00 -0700)
 
 - **Preview: Morocco vs. Central African Republic - prediction, team news, 
