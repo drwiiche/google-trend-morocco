@@ -1,3 +1,26 @@
+### espagne vs (N/A, Sat, 12 Oct 2024 13:30:00 -0700)
+
+- **Comment suivre l’Eleven All Stars 2 Espagne - France en direct**: [Link](https://www.20minutes.fr/sport/football/4114999-20241011-eleven-all-stars-2-espagne-france-chaine-heure-voir-match)
+- **DIRECT. Match des streamers Espagne-France: les Français menés et dos au 
+mur dans un stade bouillant**: [Link](https://rmcsport.bfmtv.com/football/direct-eleven-all-stars-2-suivez-le-match-retour-des-streamers-espagne-france-en-live_LN-202410110334.html)
+- **Espagne - France. Le match interrompu à cause des gestes racistes d’un 
+supporter espagnol**: [Link](https://www.ouest-france.fr/sport/football/espagne-france-le-match-interrompu-a-cause-des-gestes-racistes-dun-supporter-espagnol-0443c686-88c9-11ef-9d95-9a2a8aa75177)
+
+
+### كاس افريقيا 2025 (N/A, Sat, 12 Oct 2024 13:30:00 -0700)
+
+- **ترشيح 6 ملاعب للقاءات "كان المغرب"**: [Link](https://www.hespress.com/%D8%AA%D8%B1%D8%B4%D9%8A%D8%AD-6-%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D9%84%D9%84%D9%82%D8%A7%D8%A1%D8%A7%D8%AA-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1445046.html)
+- **الكاف تعدد الأسباب وراء حتمية نجاح كأس إفريقيا بالمغرب**: [Link](https://sport.lesiteinfo.com/competitions-continentales/447222.html)
+- **ملعب فاس سيكون رابع أكبر ملعب في المغرب ـ فيديو ـ**: [Link](https://www.analkhabar.com/%D9%85%D9%84%D8%B9%D8%A8-%D9%81%D8%A7%D8%B3-%D8%B3%D9%8A%D9%83%D9%88%D9%86-%D8%B1%D8%A7%D8%A8%D8%B9-%D8%A3%D9%83%D8%A8%D8%B1-%D9%85%D9%84%D8%B9%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+
+
+### بلعمري (N/A, Sat, 12 Oct 2024 12:30:00 -0700)
+
+- **تقارير تبعد مزراوي عن الملاعب لأسابيع**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%AA%D8%A8%D8%B9%D8%AF-%D9%85%D8%B2%D8%B1%D8%A7%D9%88%D9%8A-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D9%84%D8%A3%D8%B3%D8%A7%D8%A8%D9%8A%D8%B9-1445197.html)
+- **الركراكي مدرب المغرب يحدد موعد عودة مزراوي نجم يونايتد**: [Link](https://www.aljazeera.net/sport/2024/10/12/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D9%88%D8%AF%D8%A9)
+- **الركراكي: "بلعمري لاعب ذكي ويتوفر على تقنيات عالية"**: [Link](https://m.elbotola.com/article/2024-10-11-17-29-862.html)
+
+
 ### achraf hakimi (N/A, Sat, 12 Oct 2024 13:10:00 -0700)
 
 - **Se desvanece el sueño de Hakimi de volver al Real Madrid**: [Link](https://es.rue20.com/2024/10/10/se-desvanece-el-sueno-de-hakimi-de-volver-al-real-madrid/)
