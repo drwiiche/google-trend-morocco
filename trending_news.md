@@ -1,3 +1,30 @@
+### espagne (N/A, Sat, 12 Oct 2024 13:40:00 -0700)
+
+- **DIRECT. Match des streamers Espagne-France: les Français menés et dos au 
+mur dans un stade bouillant**: [Link](https://rmcsport.bfmtv.com/football/direct-eleven-all-stars-2-suivez-le-match-retour-des-streamers-espagne-france-en-live_LN-202410110334.html)
+- **Eleven All Stars : l’Espagne domine la France au terme d’un match 
+bouillant, marqué par un dérapage raciste**: [Link](https://www.footmercato.net/a851901995089918281-eleven-all-stars-lespagne-domine-la-france-au-terme-dun-match-bouillant-marque-par-un-derapage-raciste)
+- **Espagne - France. Le match interrompu à cause des gestes racistes d’un 
+supporter espagnol**: [Link](https://www.ouest-france.fr/sport/football/espagne-france-le-match-interrompu-a-cause-des-gestes-racistes-dun-supporter-espagnol-0443c686-88c9-11ef-9d95-9a2a8aa75177)
+
+
+### nations league (N/A, Sat, 12 Oct 2024 13:40:00 -0700)
+
+- **UEFA Nations League Croatia 2 Scotland 1 Full time**: [Link](https://www.bbc.com/sport/football/live/cx2y4781n2jt)
+- **Croatia's dramatic victory**: [Link](https://www.koha.net/en/futboll/fitore-dramatike-e-kroacise)
+- **Croatia 2-1 Scotland commentary**: [Link](https://www.skysports.com/football/live-blog/11095/13231456/croatia-2-1-scotland-commentary)
+
+
+### plus belle la vie encore plus belle (N/A, Sat, 12 Oct 2024 13:40:00 -0700)
+
+- **EXCLU - France Bleu vous présente les 15 élèves de la Star Academy 2024**: [Link](https://www.francebleu.fr/infos/medias-people/exclu-france-bleu-vous-presente-les-15-eleves-de-la-star-academy-2024-7284465)
+- **EXCLU – « J'avais commencé à préparer des vocalises » : Adeline Toniutti 
+fait des révélations cash sur son départ inattendu de la Star Academy 
+(VIDEO)**: [Link](https://www.voici.fr/tele/exclu-j-avais-commence-a-preparer-des-vocalises-adeline-toniutti-fait-des-revelations-cash-sur-son-depart-inattendu-de-la-star-academy-video-791742)
+- **EXCLU - Star Academy : voici l'hymne de la nouvelle saison (et vous allez 
+être surpris !)**: [Link](https://www.chartsinfrance.net/Star-Academy/news-130312.html)
+
+
 ### espagne vs (N/A, Sat, 12 Oct 2024 13:30:00 -0700)
 
 - **Comment suivre l’Eleven All Stars 2 Espagne - France en direct**: [Link](https://www.20minutes.fr/sport/football/4114999-20241011-eleven-all-stars-2-espagne-france-chaine-heure-voir-match)
