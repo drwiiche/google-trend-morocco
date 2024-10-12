@@ -1,3 +1,50 @@
+### espagne – danemark (N/A, Sat, 12 Oct 2024 11:00:00 -0700)
+
+- **PRONOS PARIS RMC Le pari sûr du 12 octobre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-12-octobre-ligue-des-nations_AN-202410110043.html)
+- **Pronostic Espagne - Danemark, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/espagne-danemark-220197/)
+- **UEFA Nations League, les points chauds de la J3, samedi**: [Link](https://fr.uefa.com/uefanationsleague/news/0292-1c0274558338-f79034373e8c-1000--uefa-nations-league-les-points-chauds-de-la-j3-samedi/)
+
+
+### بولندا ضد البرتغال (N/A, Sat, 12 Oct 2024 11:00:00 -0700)
+
+- **مارتينيز يستبعد ثلاثي البرتغال من موقعة بولندا**: [Link](https://www.kooora.com/?n=1360810)
+- **مارتينيز مدرب البرتغال: "تشعر وكأن رونالدو يبلغ من العمر 26 سنة"**: [Link](https://m.elbotola.com/article/2024-10-11-18-04-490.html)
+- **رونالدو في مواجهة ليفاندوفسكي... إشادة البولندي تُحفز عاشق الأرقام**: [Link](https://www.alaraby.co.uk/sport/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A-%D8%A5%D8%B4%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A8%D9%88%D9%84%D9%86%D8%AF%D9%8A-%D8%AA%D9%8F%D8%AD%D9%81%D8%B2-%D8%B9%D8%A7%D8%B4%D9%82-%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85)
+
+
+### poland vs portugal (N/A, Sat, 12 Oct 2024 11:00:00 -0700)
+
+- **Preview: Poland vs. Portugal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/poland/uefa-nations-league/preview/preview-poland-vs-portugal-prediction-team-news-lineups_555145.html)
+- **Football Bet of the Day: Attacking superstars to shine**: [Link](https://onefootball.com/en/news/football-bet-of-the-day-attacking-superstars-to-shine-40159778)
+- **UEFA Nations League Betting Picks & Predictions for Matchday 3**: [Link](https://www.rotowire.com/soccer/article/uefa-nations-league-betting-picks-predictions-for-matchday-3-85848)
+
+
+### pologne – portugal (N/A, Sat, 12 Oct 2024 10:50:00 -0700)
+
+- **Ligue des nations | Pologne - Portugal : Diogo Costa, miraculeux à l'Euro, 
+boudé ensuite**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2024-2025/ligue-des-nations-pologne-portugal-diogo-costa-miraculeux-a-leuro-boude-ensuite_sto20044577/story.shtml)
+- **'Lewandowski est l'un des meilleurs joueurs dans la surface de réparation 
+du football moderne'**: [Link](https://fr.besoccer.com/info/lewandowski-est-l-un-des-meilleurs-joueurs-dans-la-surface-de-reparation-du-football-moderne-1333882)
+- **RC Lens : Przemyslaw Frankowski au devant d’un grand test**: [Link](https://le11hdf.fr/rc-lens-przemyslaw-frankowski-au-devant-dun-grand-test/)
+
+
+### match aujourd'hui foot (N/A, Sat, 12 Oct 2024 10:50:00 -0700)
+
+- **Comment suivre l’Eleven All Stars 2 Espagne - France en direct**: [Link](https://www.20minutes.fr/sport/football/4114999-20241011-eleven-all-stars-2-espagne-france-chaine-heure-voir-match)
+- **Des streamers lancent un appel à Antoine Griezmann**: [Link](https://www.footmercato.net/a3938474190251063369-des-streamers-lancent-un-appel-a-antoine-griezmann)
+- **"Si on regagne, ils vont changer les règles du foot?", le gros trash-talk 
+du coach de la Team France aux...**: [Link](https://rmcsport.bfmtv.com/football/si-on-regagne-ils-vont-changer-les-regles-du-foot-le-gros-trash-talk-du-coach-de-la-team-france-aux-streamers-espagnols-avant-le-match-retour_AV-202410110919.html)
+
+
+### match today (N/A, Sat, 12 Oct 2024 10:50:00 -0700)
+
+- **Youth dominates T20 Spring Challenge Squad**: [Link](https://www.melbournestars.com.au/news/4146649/youth-dominates-t20-spring-challenge-squad)
+- **ST-W vs MS-W Dream11 Prediction Today Match 9 Australian Women Spring 
+Challenge T20 2024**: [Link](https://cricketaddictor.com/fantasy-cricket/st-w-vs-ms-w-dream11-prediction-today-match-9-australian-women-spring-challenge-t20-2024/)
+- **T20 Spring Challenge 2024: Teams, schedule, squads and where to watch 
+Australian tournament live**: [Link](https://www.msn.com/en-us/sports/cricket/t20-spring-challenge-2024-teams-schedule-squads-and-where-to-watch-australian-tournament-live/ar-AA1s4aNr)
+
+
 ### match maroc 2024 (N/A, Sat, 12 Oct 2024 08:00:00 -0700)
 
 - **La CAF dévoile le nouveau trophée et l'identité de la Coupe d'Afrique des 
