@@ -1,3 +1,26 @@
+### autriche – norvège (N/A, Sun, 13 Oct 2024 14:00:00 -0700)
+
+- **DIRECT. Autriche-Norvège (Ligue des nations B 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-b/2025/autriche-norvege-live/632656)
+- **Pronostic Autriche Norvège : Analyse, cotes et prono du match de Ligue des 
+nations**: [Link](https://www.sofoot.com/breves/pronostic-autriche-norvege-analyse-cotes-et-prono-du-match-de-ligue-des-nations-2)
+- **LdN : les résultats de la soirée**: [Link](https://m.maxifoot.fr/ldn/les-resultats-de-la-soiree-foot-421006.htm)
+
+
+### pierre vernier acteur (N/A, Sun, 13 Oct 2024 13:50:00 -0700)
+
+- **L’acteur Pierre Vernier est mort**: [Link](https://www.lefigaro.fr/cinema/l-acteur-pierre-vernier-est-mort-20241012)
+- **Pierre Vernier, de la « Bande du Conservatoire » avec Belmondo est mort**: [Link](https://www.20minutes.fr/societe/4115272-20241012-comedien-pierre-vernier-membre-bande-conservatoire-belmondo-mort)
+- **(IR) RÉVÉRENCE**: [Link](https://www.jourdegalop.com/2024/10/ir-reverence/)
+
+
+### وفاة الحسن الثاني (N/A, Sun, 13 Oct 2024 10:00:00 -0700)
+
+- **أمير المؤمنين يحيي الذكرى السادسة والعشرين لرحيل الملك الحسن الثاني**: [Link](https://www.hespress.com/%D8%A3%D9%85%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%A4%D9%85%D9%86%D9%8A%D9%86-%D9%8A%D8%AD%D9%8A%D9%8A-%D8%A7%D9%84%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3%D8%A9-%D9%88%D8%A7%D9%84-1446941.html)
+- **جرسيف: إحياء ذكرى وفاة الملك الحسن الثاني بالمسجد العتيق (صور)**: [Link](https://ar.hibapress.com/details-561715.html)
+- **وفد عن حزب الحركة الشعبية يزور ضريح محمد الخامس في ذكرى وفاة المغفور له 
+الحسن الثاني طيب الله ثراه**: [Link](https://alharaka.ma/%D9%88%D9%81%D8%AF-%D8%B9%D9%86-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D9%8A%D8%A9-%D9%8A%D8%B2%D9%88%D8%B1-%D8%B6%D8%B1%D9%8A%D8%AD-%D9%85%D8%AD%D9%85/)
+
+
 ### yassine bounou (N/A, Sun, 13 Oct 2024 13:20:00 -0700)
 
 - **La FRMF honore les anciens internationaux de la région de l’Oriental**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A%D8%A9/)
