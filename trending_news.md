@@ -1,3 +1,20 @@
+### الطقس غدًا (N/A, Sun, 13 Oct 2024 12:50:00 -0700)
+
+- **بداية التحول.. تحذير مهم بشأن حالة الطقس غدًا الأحد: أمطار رعدية تضرب 
+منطقتين (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3281135)
+- **جهزوا الجواكت.. أمطار تضرب البلاد لمدة 3 أيام وبيان هام من الأرصاد**: [Link](https://zahraa.mr/3395763/%D8%AC%D9%87%D8%B2%D9%88%D8%A7-%D8%A7%D9%84%D8%AC%D9%88%D8%A7%D9%83%D8%AA-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D9%84%D9%85%D8%AF%D8%A9-3/)
+- **الهيئة العامة للأرصاد الجوية المصرية**: [Link](https://www.facebook.com/photo/?fbid=936237575201477&set=a.289008423257732)
+
+
+### hassan 2 (N/A, Sun, 13 Oct 2024 12:50:00 -0700)
+
+- **Rabat: Des personnalités politiques et sécuritaires rendent hommage à feu 
+Hassan II**: [Link](https://fr.hespress.com/390503-rabat-des-personnalites-politiques-et-securitaires-rendent-hommage-a-feu-hassan-ii.html)
+- **Le Roi Mohammed VI présidera une veillée religieuse en commémoration de la 
+disparition de Feu le Roi Hassan II**: [Link](https://medias24.com/2024/10/12/le-roi-mohammed-vi-presidera-une-veillee-religieuse-en-commemoration-de-la-disparition-de-feu-le-roi-hassan-ii/)
+- **Hassan II, 25 ans après sa mort : une légende toujours vivante**: [Link](https://www.bladi.net/hassan-ans-mort-legende-vivante,110997.html)
+
+
 ### كأس التميز المغربي (N/A, Sun, 13 Oct 2024 12:40:00 -0700)
 
 - **نهضة بركان يحقق فوزه الثالث تواليا ويواصل الصدارة**: [Link](https://www.sport7.ma/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D8%AA%D9%88%D8%A7%D9%84%D9%8A%D8%A7-%D9%88%D9%8A%D9%88/)
