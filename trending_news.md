@@ -1,3 +1,13 @@
+### cbum (N/A, Sun, 13 Oct 2024 10:40:00 -0700)
+
+- **Chris Bumstead Wins Sixth Classic Physique Title At Olympia 2024 Announces 
+Retirement From Bodybuilding**: [Link](https://news.abplive.com/sports/mr-olympia-2024-chris-bumstead-wins-6th-classic-physique-title-announces-retirement-from-professional-bodybuilder-1723918)
+- **The Real-Life Diet of Bodybuilder Chris Bumstead, Who Bulks Up With 
+Grass-Fed Beef**: [Link](https://www.gq.com/story/real-life-diet-chris-bumstead)
+- **Where to watch Mr Olympia 2024: Schedule for men's, classic physique and 
+bikini olympia finals**: [Link](https://dailypost.ng/2024/10/12/where-to-watch-mr-olympia-2024-schedule-for-mens-classic-physique-and-bikini-olympia-finals/)
+
+
 ### ذكرى وفاة الحسن الثاني (N/A, Sun, 13 Oct 2024 09:20:00 -0700)
 
 - **في ذكرى وفاة الملك الحسن الثاني**: [Link](https://www.hespress.com/%D9%81%D9%8A-%D8%B0%D9%83%D8%B1%D9%89-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%AD%D8%B3%D9%86-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-1446720.html)
