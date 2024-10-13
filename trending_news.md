@@ -1,3 +1,10 @@
+### dazn boxing (N/A, Sat, 12 Oct 2024 14:40:00 -0700)
+
+- **BKFC on DAZN: Spain Results**: [Link](https://www.bkfc.com/news/bkfc-on-dazn-spain-results:e04a6b95-d111-430a-853e-01169bbb5975)
+- **BKFC Spain: Date, Time, Fight Card And How To Watch**: [Link](https://www.forbes.com/sites/brianmazique/2024/10/10/bkfc-spain-date-time-fight-card-and-how-to-watch/)
+- **BKFC Spain Results: Tenaglia vs. Soto**: [Link](https://www.mmafighting.com/2024/10/12/24268119/bkfc-spain-results-tenaglia-vs-soto-marbella)
+
+
 ### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Sat, 12 Oct 2024 17:40:00 -0700)
 
 - **"سارع بالتسجيل".. لينــك وخطوات التسجيل في باك حر المغرب 2024-2025 عبر 
