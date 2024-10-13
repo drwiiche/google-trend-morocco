@@ -1,3 +1,10 @@
+### valéry espoir 2000 mort (N/A, Sun, 13 Oct 2024 12:20:00 -0700)
+
+- **Valery Espoir 2000, voici de quoi est mort le compagnon de Pat Sako**: [Link](https://www.7info.ci/valery-espoir-2000-voici-de-quoi-est-mort-le-compagnon-de-pat-sako/)
+- **La musique ivoirienne en deuil : Valéry du groupe Espoir 2000 est décédé**: [Link](http://pressecotedivoire.ci/article/20965-la-musique-ivoirienne-en-deuil-valery-du-groupe-espoir-2000-est-decede)
+- **Nécrologie: Décès du zouglouman Valérie du groupe Espoir 2000**: [Link](https://news.abidjan.net/articles/735321/necrologie-deces-du-zouglouman-valerie-du-groupe-espoir-2000)
+
+
 ### hassan ii (N/A, Sun, 13 Oct 2024 12:10:00 -0700)
 
 - **Rabat: Des personnalités politiques et sécuritaires rendent hommage à feu 
