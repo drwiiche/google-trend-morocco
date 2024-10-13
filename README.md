@@ -1,3 +1,12 @@
+### zeturf (N/A, Sun, 13 Oct 2024 06:20:00 -0700)
+
+- **Quinté+: PRIX DE LOUCELLES - CAEN - 12/10/2024 : partants, pronostics et 
+résultats en vidéos -...**: [Link](https://www.equidia.fr/courses/2024-10-12/R1/C4)
+- **Les pronos hippiques du samedi 12 octobre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-12-octobre-2024_AN-202410120181.html)
+- **Quinté du samedi 12 octobre 2024 : Base Solide, Tocard, Coup de poker à 
+Caen, Prix de Loucelles**: [Link](https://www.journee-mondiale.com/quinte-samedi-12-octobre-2024-caen-5750.htm)
+
+
 ### جوناثان هاروش (N/A, Sun, 13 Oct 2024 03:20:00 -0700)
 
 
