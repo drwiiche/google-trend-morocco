@@ -1,3 +1,10 @@
+### one piece (N/A, Sun, 13 Oct 2024 14:30:00 -0700)
+
+- **One Piece Anime Announces Hiatus, Newly-Edited Fish-Man Island Arc**: [Link](https://www.crunchyroll.com/news/latest/2024/10/13/one-piece-anime-hiatus-fish-man-island)
+- **One Piece Hints at Major Announcement**: [Link](https://comicbook.com/anime/news/one-piece-major-announcement/)
+- **One Piece Anime's Egghead Arc Resumes Next April**: [Link](https://www.animenewsnetwork.com/news/2024-10-13/one-piece-anime-egghead-arc-resumes-next-april/.216689)
+
+
 ### autriche – norvège (N/A, Sun, 13 Oct 2024 14:00:00 -0700)
 
 - **DIRECT. Autriche-Norvège (Ligue des nations B 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-b/2025/autriche-norvege-live/632656)
