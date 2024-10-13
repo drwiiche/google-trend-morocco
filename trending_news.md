@@ -1,3 +1,11 @@
+### محمد باقر قاليباف (N/A, Sun, 13 Oct 2024 14:40:00 -0700)
+
+- **قاد طائرته وزار موقع استهداف وفيق صفا.. مشاهد غريبة لقاليباف**: [Link](https://www.alarabiya.net/arab-and-world/2024/10/12/%D9%85%D9%86-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A7%D9%84%D9%89-%D9%85%D9%88%D9%82%D8%B9-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%88%D9%81%D9%8A%D9%82-%D8%B5%D9%81%D8%A7-%D9%85%D8%B4%D8%A7%D9%87%D8%AF-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A9-%D9%84%D9%82%D8%A7%D9%84%D9%8A%D8%A8%D8%A7%D9%81)
+- **قبول إيراني متأخّر بفصل جبهة لبنان عن غزة ورهان متجدّد على «لحظة ما» تُجبر 
+نتنياهو على وقف إطلاق النار!**: [Link](https://www.alquds.co.uk/%D9%82%D8%A8%D9%88%D9%84-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%85%D8%AA%D8%A3%D8%AE%D9%91%D8%B1-%D8%A8%D9%81%D8%B5%D9%84-%D8%AC%D8%A8%D9%87%D8%A9-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%B9%D9%86-%D8%BA/)
+- **محمد باقر قاليباف - رئيس مجلس الشوري الإيراني**: [Link](https://www.almayadeen.net/episodes-tv/2024/10/12/%D9%85%D8%AD%D9%85%D8%AF-%D8%A8%D8%A7%D9%82%D8%B1-%D9%82%D8%A7%D9%84%D9%8A%D8%A8%D8%A7%D9%81---%D8%B1%D8%A6%D9%8A%D8%B3-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B4%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A/%D8%AD%D9%88%D8%A7%D8%B1-%D8%AE%D8%A7%D8%B5)
+
+
 ### one piece (N/A, Sun, 13 Oct 2024 14:30:00 -0700)
 
 - **One Piece Anime Announces Hiatus, Newly-Edited Fish-Man Island Arc**: [Link](https://www.crunchyroll.com/news/latest/2024/10/13/one-piece-anime-hiatus-fish-man-island)
