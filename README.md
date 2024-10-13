@@ -1,3 +1,11 @@
+### bounou (N/A, Sun, 13 Oct 2024 07:40:00 -0700)
+
+- **CAN 2025. Le Maroc étrille la République centrafricaine (5-0)**: [Link](https://medias24.com/2024/10/13/can-2025-le-maroc-etrille-la-republique-centrafricaine-5-0/)
+- **L'entraîneur de la Centrafrique espère un résultat positif face à "l'une 
+des meilleures équipes d'Afrique"**: [Link](https://fr.hespress.com/390366-lentraineur-de-la-centrafrique-espere-un-resultat-positif-face-a-lune-des-meilleures-equipes-dafrique.html)
+- **Maroc-Centrafrique: l’essentiel de la conf’ d’après-match de Walid Regragui**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-centrafrique-lessentiel-de-la-conf-dapres-match-de-walid-regragui_B4CXGQXBGREARLWYVG3DEY6OKQ/)
+
+
 ### zeturf (N/A, Sun, 13 Oct 2024 06:20:00 -0700)
 
 - **Quinté+: PRIX DE LOUCELLES - CAEN - 12/10/2024 : partants, pronostics et 
