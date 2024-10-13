@@ -1,3 +1,19 @@
+### rafael nadal (N/A, Sun, 13 Oct 2024 09:00:00 -0700)
+
+- **Novak Djokovic reveals how Rafael Nadal, Roger Federer retirements impacted 
+him - 'A big part of me left with them'**: [Link](https://www.eurosport.com/tennis/atp-shanghai/2024/novak-djokovic-rafael-nadal-big-three-retirement_sto20044509/story.shtml)
+- **When will Rafael Nadal play his last tennis match?**: [Link](https://www.dazn.com/en-US/news/tennis/when-will-rafael-nadal-play-his-last-tennis-match/1ga613f17ntn413vrp68m7xurk)
+- **Nick Kyrgios and Girlfriend Costeen Hatzi Continue To Shower Love on 
+Retiring Rafael Nadal Despite Stun Silence From the Tennis Legend**: [Link](https://www.essentiallysports.com/atp-tennis-news-nick-kyrgios-and-girlfriend-costeen-hatzi-continue-to-shower-love-on-retiring-rafael-nadal-despite-stun-silence-from-the-tennis-legend/)
+
+
+### هدى صدقي (N/A, Sun, 13 Oct 2024 08:50:00 -0700)
+
+- **هدى صدقي توجه رسالة مؤثرة لمتابعيها من الحرم المكي**: [Link](https://ar.le360.ma/people/GNISO3ALYVH2THBPRF2B5HKLCM/)
+- **هدى صدقي تؤدي مناسك العمرة -فيديو**: [Link](https://ar.lesiteinfo.com/cultures/%D9%87%D8%AF%D9%89-%D8%B5%D8%AF%D9%82%D9%8A-%D8%AA%D8%A4%D8%AF%D9%8A-%D9%85%D9%86%D8%A7%D8%B3%D9%83-%D8%A7%D9%84%D8%B9%D9%85%D8%B1%D8%A9-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-886050.html)
+- **هدى صدقي تؤدي مناسك العمرة و تدعو لجمهورها-الصورة**: [Link](https://le12.ma/article/529615/)
+
+
 ### finland vs england (N/A, Sun, 13 Oct 2024 08:40:00 -0700)
 
 - **Nations League LIVE: England vs Finland - 5 live commentary, live text, 
