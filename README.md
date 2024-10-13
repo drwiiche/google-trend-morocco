@@ -1,3 +1,10 @@
+### lamine yamal (N/A, Sun, 13 Oct 2024 11:10:00 -0700)
+
+- **La Selección protege a Lamine: adelanta su regreso a Barcelona**: [Link](https://www.marca.com/futbol/barcelona/2024/10/13/670bcae6ca474151188b459a.html)
+- **¡Lamine Yamal regresa a Barcelona! Parte médico oficial de la selección**: [Link](https://www.sport.es/es/noticias/barca/lamine-yamal-regresa-barcelona-109266440)
+- **El Barça esperaba una tregua con Lamine en esta fecha FIFA**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241013/1002332760/barca-esperaba-tregua-lamine-fecha-fifa.html)
+
+
 ### cbum (N/A, Sun, 13 Oct 2024 10:40:00 -0700)
 
 - **Chris Bumstead Wins Sixth Classic Physique Title At Olympia 2024 Announces 
