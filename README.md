@@ -1,3 +1,12 @@
+### espoir 2000 (N/A, Sun, 13 Oct 2024 02:10:00 -0700)
+
+- **Côte d'Ivoire : Valéry Vitale du groupe de musique Espoir 2000 est décédé à 
+Paris de suite de maladie**: [Link](https://lefaso.net/spip.php?article133491)
+- **Nécrologie: Décès du zouglouman Valérie du groupe Espoir 2000**: [Link](https://news.abidjan.net/articles/735321/necrologie-deces-du-zouglouman-valerie-du-groupe-espoir-2000)
+- **Côte d'Ivoire : Showbiz ivoirien en deuil, décès de Valery Vitale du groupe 
+Espoir 2000, à quelques semaines du retour tant attendu du groupe (proches)**: [Link](https://www.koaci.com/index.php/article/2024/10/12/cote-divoire/culture/cote-divoire-showbiz-ivoirien-en-deuil-deces-de-valery-vitale-du-groupe-espoir-2000-a-quelques-semaines-du-retour-tant-attendu-du-groupe-proches_181585.html)
+
+
 ### djokovic (N/A, Sun, 13 Oct 2024 02:10:00 -0700)
 
 - **Schedule and where to watch Novak Djokovic against Jannik Sinner in the ATP 
