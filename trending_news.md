@@ -1,3 +1,27 @@
+### finlande – angleterre (N/A, Sun, 13 Oct 2024 08:10:00 -0700)
+
+- **Pronostic Finlande - Angleterre, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/finlande-angleterre-220311/)
+- **Arsenal : excellente nouvelle pour Bukayo Saka et les Gunners !**: [Link](https://www.onzemondial.com/premier-league/arsenal-excellente-nouvelle-pour-bukayo-saka-et-les-gunners-919595)
+- **'Pas de Regrets' - Carsley Évoque des Changements Tactiques Avant le Duel 
+Contre la Finlande**: [Link](https://www.footboom1.com/fr/news/football/1929351-no-regrets-carsley-hints-at-tactical-changes-ahead-of-finland-clash)
+
+
+### vinicius (N/A, Sun, 13 Oct 2024 08:10:00 -0700)
+
+- **Ballon d’Or organizers announce new rule for winner**: [Link](https://www.vanguardngr.com/2024/10/ballon-dor-organizers-announce-new-rule-for-winner/)
+- **Ederson backs Vinicius Jr over City teammate Rodri for Ballon d'Or**: [Link](https://www.besoccer.com/new/ederson-backs-vinicius-jr-over-city-teammate-rodri-for-ballon-d-or-1334062)
+- **Dominant Madrid and Dazzling Spaniards: The Top 5 Candidates for the Ballon 
+d'Or**: [Link](https://www.footboom1.com/en/news/football/1906823-dominant-madrid-and-dazzling-spaniards-the-top-5-candidates-for-the-ballon-d-or)
+
+
+### الهاكر حمزة بن دلاج (N/A, Sun, 13 Oct 2024 03:30:00 -0700)
+
+- **"الهاكر المبتسم" يعود إلى الجزائر بعد قضاء عقوبة السجن في أميركا**: [Link](https://www.aljazeera.net/misc/2024/10/13/%D8%A7%D9%84%D9%87%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%AA%D8%B3%D9%85-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A8%D8%B9%D8%AF)
+- **الهاكر المبتسم يعود.. معلومات عن حمزة بن دلاج المصنف بين أخطر 10 مخترقين 
+بالعالم**: [Link](https://www.elwatannews.com/news/details/7613208)
+- **ما لا تعرفه عن الهاكر الجزائري حمزة بن دلاج العائد من السجون الأمريكية!**: [Link](https://www.echoroukonline.com/%D9%85%D8%A7-%D9%84%D8%A7-%D8%AA%D8%B9%D8%B1%D9%81%D9%87-%D8%B9%D9%86-%D8%A7%D9%84%D9%87%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%AD%D9%85%D8%B2%D8%A9-%D8%A8%D9%86-%D8%AF)
+
+
 ### bounou (N/A, Sun, 13 Oct 2024 07:40:00 -0700)
 
 - **CAN 2025. Le Maroc étrille la République centrafricaine (5-0)**: [Link](https://medias24.com/2024/10/13/can-2025-le-maroc-etrille-la-republique-centrafricaine-5-0/)
