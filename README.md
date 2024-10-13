@@ -1,3 +1,12 @@
+### finland vs england (N/A, Sun, 13 Oct 2024 08:40:00 -0700)
+
+- **Nations League LIVE: England vs Finland - 5 live commentary, live text, 
+team news, match stats**: [Link](https://www.bbc.com/sport/football/live/cvgdenr4pm8t)
+- **Preview: Finland vs. England - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/finland/uefa-nations-league/preview/preview-finland-vs-england-prediction-team-news-lineups_555210.html)
+- **Liverpool's Trent Alexander-Arnold to play in yet another new position for 
+England vs Finland**: [Link](https://www.liverpool.com/liverpool-fc-news/features/liverpools-trent-alexander-arnold-play-30133091)
+
+
 ### finlande – angleterre (N/A, Sun, 13 Oct 2024 08:10:00 -0700)
 
 - **Pronostic Finlande - Angleterre, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/finlande-angleterre-220311/)
