@@ -1,3 +1,13 @@
+### star academy (N/A, Sat, 12 Oct 2024 23:00:00 -0700)
+
+- **EXCLU - France Bleu vous présente les 15 élèves de la Star Academy 2024**: [Link](https://www.francebleu.fr/infos/medias-people/exclu-france-bleu-vous-presente-les-15-eleves-de-la-star-academy-2024-7284465)
+- **EXCLU – « J'avais commencé à préparer des vocalises » : Adeline Toniutti 
+fait des révélations cash sur son départ inattendu de la Star Academy 
+(VIDEO)**: [Link](https://www.voici.fr/tele/exclu-j-avais-commence-a-preparer-des-vocalises-adeline-toniutti-fait-des-revelations-cash-sur-son-depart-inattendu-de-la-star-academy-video-791742)
+- **EXCLU - Star Academy : voici l'hymne de la nouvelle saison (et vous allez 
+être surpris !)**: [Link](https://www.chartsinfrance.net/Star-Academy/news-130312.html)
+
+
 ### الطقس (N/A, Sat, 12 Oct 2024 22:40:00 -0700)
 
 - **الأرصاد الجوية تتوقع تقلب أحوال الطقس خلال الأيام المقبلة في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%AA%D9%82%D9%84%D8%A8-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-1446212.html)
