@@ -1,3 +1,12 @@
+### bivol (N/A, Sat, 12 Oct 2024 13:50:00 -0700)
+
+- **Artur Beterbiev vs Dmitry Bivol: Timing, pricing, booking details for fight 
+night on Sky Sports Box Office**: [Link](https://www.skysports.com/boxing/news/12183/13227107/artur-beterbiev-vs-dmitry-bivol-and-fabio-wardley-vs-frazer-clarke-2-timing-pricing-booking-details-for-fight-night-on-sky-sports-box-office)
+- **As it happened - Beterbiev narrowly beats Bivol, Wardley gets big knockout**: [Link](https://www.bbc.com/sport/boxing/live/clynz7n2zjvt?page=4)
+- **Artur Beterbiev v Dmitry Bivol - Follow live coverage with full undercard 
+before main event**: [Link](https://www.eurosport.com/boxing/artur-beterbiev-v-dmitry-bivol-live-coverage-full-undercard-main-event_sto20044722/story.shtml)
+
+
 ### weather (N/A, Sat, 12 Oct 2024 23:20:00 -0700)
 
 - **Your Weather Authority: Showers for the next few days**: [Link](https://www.yahoo.com/news/weather-authority-showers-next-few-040743478.html)
