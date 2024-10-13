@@ -1,3 +1,12 @@
+### discours roi mohammed vi (N/A, Sun, 13 Oct 2024 01:40:00 -0700)
+
+- **DISCOURS ROYAL PARLEMENT. Le Roi : voici comment le Maroc a obtenu des 
+résultats tangibles sur la question du Sahara**: [Link](https://medias24.com/2024/10/11/discours-royal-parlement-le-roi-voici-comment-le-maroc-a-obtenu-des-resultats-tangibles-sur-la-question-du-sahara/)
+- **Revue de presse de ce samedi 12 octobre 2024**: [Link](https://fr.hespress.com/390387-revue-de-presse-de-ce-samedi-12-octobre-2024.html)
+- **Discours royal : Mohammed VI appelle les élus de la nation à plus de 
+“proactivité”**: [Link](https://mobile.telquel.ma/2024/10/11/discours-royal-mohammed-vi-appelle-les-elus-de-la-nation-a-plus-de-proactivite_1898493)
+
+
 ### météo (N/A, Sat, 12 Oct 2024 23:00:00 -0700)
 
 - **Les températures attendues ce dimanche 13 octobre 2024**: [Link](https://fr.hespress.com/390466-les-temperatures-attendues-ce-dimanche-13-octobre-2024.html)
