@@ -1,3 +1,23 @@
+### hassan ii (N/A, Sun, 13 Oct 2024 12:10:00 -0700)
+
+- **Rabat: Des personnalités politiques et sécuritaires rendent hommage à feu 
+Hassan II**: [Link](https://fr.hespress.com/390503-rabat-des-personnalites-politiques-et-securitaires-rendent-hommage-a-feu-hassan-ii.html)
+- **Le Roi Mohammed VI présidera une veillée religieuse en commémoration de la 
+disparition de Feu le Roi Hassan II**: [Link](https://medias24.com/2024/10/12/le-roi-mohammed-vi-presidera-une-veillee-religieuse-en-commemoration-de-la-disparition-de-feu-le-roi-hassan-ii/)
+- **Hassan II, 25 ans après sa mort : une légende toujours vivante**: [Link](https://www.bladi.net/hassan-ans-mort-legende-vivante,110997.html)
+
+
+### england (N/A, Sun, 13 Oct 2024 11:30:00 -0700)
+
+- **Lee Carlsey considering starting shock striker ahead of Kane, Solanke and 
+Watkins**: [Link](https://www.express.co.uk/sport/football/1959755/Lee-Carsley-England-team-selection-Greece)
+- **Lee Carsley told he must 'upset a few fantastic players' to make England 
+successful as interim boss faces selection headache with Jude Bellingham, 
+Cole Palmer and host of in-form attackers fighting to start against Greece**: [Link](https://www.goal.com/en-om/lists/lee-carsley-upset-fantastic-players-england-successful-interim-jude-bellingham-cole-palmer-greece/blte30489e10bd834eb)
+- **‘it’s his mindset’: Roy Keane would pay to watch one Chelsea player he is 
+so good**: [Link](https://www.caughtoffside.com/2024/10/12/roy-keane-on-cole-palmer-chelsea/)
+
+
 ### lamine yamal (N/A, Sun, 13 Oct 2024 11:10:00 -0700)
 
 - **La Selección protege a Lamine: adelanta su regreso a Barcelona**: [Link](https://www.marca.com/futbol/barcelona/2024/10/13/670bcae6ca474151188b459a.html)
