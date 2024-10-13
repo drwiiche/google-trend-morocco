@@ -1,3 +1,12 @@
+### djokovic (N/A, Sun, 13 Oct 2024 02:10:00 -0700)
+
+- **Schedule and where to watch Novak Djokovic against Jannik Sinner in the ATP 
+Shanghai 2024 final**: [Link](https://www.puntodebreak.com/en/2024/10/12/schedule-and-where-to-watch-novak-djokovic-against-jannik-sinner-in-the-atp-shanghai-2024-final)
+- **Sinner's dominant start to the season helped secure year-end top spot**: [Link](https://www.chinadailyasia.com/article/595138)
+- **Tennis Tracker: Sinner & Djokovic contesting Shanghai final, Sabalenka 
+facing Zheng in Wuhan**: [Link](https://www.flashscore.com/news/tennis-tracker-sinner-djokovic-contesting-shanghai-final-sabalenka-facing-zheng-in-wuhan/YizRJurA/)
+
+
 ### paul pogba (N/A, Sun, 13 Oct 2024 02:00:00 -0700)
 
 - **Graeme Souness insists he would NOT sign Paul Pogba for free after his 
