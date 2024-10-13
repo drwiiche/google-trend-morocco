@@ -1,3 +1,19 @@
+### فنلندا ضد إنجلترا (N/A, Sun, 13 Oct 2024 09:20:00 -0700)
+
+- **كين يعود لتشكيلة إنجلترا أمام فنلندا**: [Link](https://www.kooora.com/?n=1361018)
+- **التشكيلة الرسمية لمنتخب إنجلتر أمام فنلندا**: [Link](https://hihi2.com/2024/10/13/p2887082.html)
+- **بث مباشر مباراة إنجلترا وفنلندا في دوري أمم أوروبا**: [Link](https://aboutmsr.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%88%D9%81%D9%86%D9%84%D9%86%D8%AF%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D9%85%D9%85-%D8%A3%D9%88%D8%B1/)
+
+
+### tadej pogačar (N/A, Sun, 13 Oct 2024 09:10:00 -0700)
+
+- **Benoot and Kelderman animate Il Lombardia, but the result falls short**: [Link](https://www.teamvismaleaseabike.com/race-report/news/benoot-and-kelderman-animate-il-lombardia-but-the-result-falls-short/)
+- **Stellar Performance by Pogačar Closes the Greatest Season of All Time | Il 
+Lombardia 2024**: [Link](https://lanternerouge.com/2024/10/12/stellar-performance-by-pogacar-closes-the-greatest-season-of-all-time-il-lombardia-2024/)
+- **At least they tried: Was Il Lombardia’s star-studded breakaway a taste of 
+things to come to confront Tadej Pogačar?**: [Link](https://www.rouleur.cc/blogs/the-rouleur-journal/was-il-lombardia-s-star-studded-huge-break-a-taste-of-things-to-come-to-confront-tadej-pogacar)
+
+
 ### rafael nadal (N/A, Sun, 13 Oct 2024 09:00:00 -0700)
 
 - **Novak Djokovic reveals how Rafael Nadal, Roger Federer retirements impacted 
