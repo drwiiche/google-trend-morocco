@@ -1,3 +1,10 @@
+### weather (N/A, Sat, 12 Oct 2024 23:20:00 -0700)
+
+- **Your Weather Authority: Showers for the next few days**: [Link](https://www.yahoo.com/news/weather-authority-showers-next-few-040743478.html)
+- **Mix of sun and clouds**: [Link](https://www.wtae.com/article/am-fog-and-frost-sunny-afternoon/62576977)
+- **Showers possible Saturday evening in Pittsburgh area**: [Link](https://www.wpxi.com/weather/mild-weather-most-saturday-rain-chances-creep-tonight/YX2G62T4BVFUJCC36SUWFI4RKE/)
+
+
 ### star academy (N/A, Sat, 12 Oct 2024 23:00:00 -0700)
 
 - **EXCLU - France Bleu vous présente les 15 élèves de la Star Academy 2024**: [Link](https://www.francebleu.fr/infos/medias-people/exclu-france-bleu-vous-presente-les-15-eleves-de-la-star-academy-2024-7284465)
