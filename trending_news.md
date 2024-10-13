@@ -1,3 +1,10 @@
+### yassine bounou (N/A, Sun, 13 Oct 2024 13:20:00 -0700)
+
+- **La FRMF honore les anciens internationaux de la région de l’Oriental**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A%D8%A9/)
+- **Maroc-Centrafrique : victoire, blessures... les conclusions de Regragui**: [Link](https://lematin.ma/sports/maroc-centrafrique-victoire-blessures-les-conclusions-de-regragui/246854)
+- **Lions de l’Atlas: le bel hommage aux ex-internationaux de l’Oriental**: [Link](https://sport.le360.ma/football/lions-de-latlas-le-bel-hommage-aux-ex-internationaux-de-loriental_JDP7JPJVKBER7BYCIX3L4W5FBA/)
+
+
 ### الطقس غدًا (N/A, Sun, 13 Oct 2024 12:50:00 -0700)
 
 - **بداية التحول.. تحذير مهم بشأن حالة الطقس غدًا الأحد: أمطار رعدية تضرب 
