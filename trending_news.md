@@ -1,3 +1,10 @@
+### eva mendes (N/A, Sat, 12 Oct 2024 16:50:00 -0700)
+
+- **What Is Eva Mendes' Net Worth? How the 'Hitch' Actress Made Her Millions**: [Link](https://okmagazine.com/p/eva-mendes-net-worth-hitch-actress-made-millions/)
+- **Eva Mendes feels 'lost' now that her children are getting older: 'Who am I 
+now?'**: [Link](https://www.aol.com/eva-mendes-feels-lost-now-142705805.html)
+
+
 ### mohammed vi (N/A, Sat, 12 Oct 2024 18:10:00 -0700)
 
 - **DISCOURS ROYAL PARLEMENT. Le Roi : voici comment le Maroc a obtenu des 
