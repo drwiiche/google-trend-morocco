@@ -1,3 +1,12 @@
+### paul pogba (N/A, Sun, 13 Oct 2024 02:00:00 -0700)
+
+- **Graeme Souness insists he would NOT sign Paul Pogba for free after his 
+doping ban as he labels the midfielder**: [Link](https://www.dailymail.co.uk/sport/football/article-13953137/Graeme-Souness-insists-NOT-sign-Paul-Pogba-free-doping-ban-labels-midfielder-wasted-talent-pinpoints-key-moment-derailed-career.html)
+- **Olympique Marseille talk to Pogba as Juventus exit nears**: [Link](https://football-italia.net/olympique-marseille-talk-pogba-juventus-exit/)
+- **Judges who cut Pogba's doping ban say he should have taken more care about 
+his treatment in Florida**: [Link](https://apnews.com/article/pogba-doping-cas-juventus-762b16727dca1625402059a90a6e4e31)
+
+
 ### discours roi mohammed vi (N/A, Sun, 13 Oct 2024 01:40:00 -0700)
 
 - **DISCOURS ROYAL PARLEMENT. Le Roi : voici comment le Maroc a obtenu des 
