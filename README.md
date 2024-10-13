@@ -1,3 +1,12 @@
+### mohammed vi (N/A, Sat, 12 Oct 2024 18:10:00 -0700)
+
+- **DISCOURS ROYAL PARLEMENT. Le Roi : voici comment le Maroc a obtenu des 
+résultats tangibles sur la question du Sahara**: [Link](https://medias24.com/2024/10/11/discours-royal-parlement-le-roi-voici-comment-le-maroc-a-obtenu-des-resultats-tangibles-sur-la-question-du-sahara/)
+- **Revue de presse de ce samedi 12 octobre 2024**: [Link](https://fr.hespress.com/390387-revue-de-presse-de-ce-samedi-12-octobre-2024.html)
+- **Sahara marocain: le soutien de Paris va accélérer le partenariat 
+stratégique et économique bilatéral (géopolitologue français)**: [Link](https://industries.ma/sahara-marocain-le-soutien-de-paris-va-accelerer-le-partenariat-strategique-et-economique-bilateral-geopolitologue-francais/)
+
+
 ### dazn boxing (N/A, Sat, 12 Oct 2024 14:40:00 -0700)
 
 - **BKFC on DAZN: Spain Results**: [Link](https://www.bkfc.com/news/bkfc-on-dazn-spain-results:e04a6b95-d111-430a-853e-01169bbb5975)
