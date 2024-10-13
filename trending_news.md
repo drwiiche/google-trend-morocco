@@ -1,3 +1,21 @@
+### météo (N/A, Sat, 12 Oct 2024 23:00:00 -0700)
+
+- **Les températures attendues ce dimanche 13 octobre 2024**: [Link](https://fr.hespress.com/390466-les-temperatures-attendues-ce-dimanche-13-octobre-2024.html)
+- **Météo. Températures en baisse, averses sur l’ensemble du pays, vents assez 
+forts par endroits ce 13 octobre**: [Link](https://fr.le360.ma/societe/meteo-temperatures-en-baisse-averses-sur-lensemble-du-pays-vents-assez-forts-par-endroits-ce-13_PTHLY3TCDFHOHOUBDUGPPLJOHM/)
+- **Météo: quel temps fera-t-il ce dimanche 13 octobre ?**: [Link](https://www.h24info.ma/meteo-quel-temps-fera-t-il-ce-dimanche-ce-13-octobre/)
+
+
+### doliprane (N/A, Sat, 12 Oct 2024 22:40:00 -0700)
+
+- **Sanofi : l'américain CD&R va racheter le Doliprane pour plus de 15 
+milliards d'euros**: [Link](https://www.lesechos.fr/industrie-services/pharmacie-sante/exclusif-sanofi-cd-r-rachete-le-doliprane-pour-plus-de-15-milliards-deuros-2124617)
+- **"Il faudra être très vigilant" : doit-on s'inquiéter de la vente du 
+Doliprane par Sanofi à un fonds d'investissement américain ?**: [Link](https://www.francetvinfo.fr/sante/medicament/il-faudra-etre-tres-vigilant-doit-on-s-inquieter-la-vente-du-doliprane-par-sanofi-a-un-fonds-d-investissement-americain_6831704.html)
+- **Sanofi s'apprête à céder 50% de sa filiale pharmaceutique Opella à un fonds 
+d'investissement américain**: [Link](https://fr.euronews.com/business/2024/10/11/sanofi-sapprete-a-ceder-50-de-sa-filiale-pharmaceutique-opella-a-un-fonds-dinvestissement-)
+
+
 ### wetter (N/A, Sat, 12 Oct 2024 23:30:00 -0700)
 
 - **Wetter am Sonntag, 13.10.2024: Aktuelle Wettervorhersage und 3-Tage-Trend**: [Link](https://www.rnd.de/panorama/wetter-am-sonntag-13-10-2024-aktuelle-wettervorhersage-und-3-tage-trend-TRUEJY7TK23HE7EQYF7AVQWYRU.html)
