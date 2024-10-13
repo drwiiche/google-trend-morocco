@@ -1,3 +1,10 @@
+### كأس التميز المغربي (N/A, Sun, 13 Oct 2024 12:40:00 -0700)
+
+- **نهضة بركان يحقق فوزه الثالث تواليا ويواصل الصدارة**: [Link](https://www.sport7.ma/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D8%AA%D9%88%D8%A7%D9%84%D9%8A%D8%A7-%D9%88%D9%8A%D9%88/)
+- **نتائج الجولة الثالثة من دوري التميز**: [Link](https://www.hespress.com/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-1444980.html)
+- **الزمامرة يلحق الهزيمة الثانية ببرشيد**: [Link](https://assabah.ma/804787.html)
+
+
 ### valéry espoir 2000 mort (N/A, Sun, 13 Oct 2024 12:20:00 -0700)
 
 - **Valery Espoir 2000, voici de quoi est mort le compagnon de Pat Sako**: [Link](https://www.7info.ci/valery-espoir-2000-voici-de-quoi-est-mort-le-compagnon-de-pat-sako/)
