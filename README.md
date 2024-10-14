@@ -1,3 +1,10 @@
+### kenya – cameroun (N/A, Mon, 14 Oct 2024 07:00:00 -0700)
+
+- **CAN CAF TotalEnergies 2025 : L'Égypte au top, le carton du Cameroun**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/can-caf-totalenergies-2025-legypte-au-top-le-carton-du-cameroun/)
+- **CAN 2025, Maroc : la CAF prend une décision radicale !**: [Link](https://fennecfootball.com/can-2025-maroc-la-caf-prend-une-decision-radicale/)
+- **Qualifs CAN 2025 : Le Cameroun surclasse le Kenya**: [Link](https://www.beinsports.com/fr-fr/football/premier-league-african/articles-video/qualifs-can-2025-le-cameroun-surclasse-le-kenya-2024-10-11)
+
+
 ### hassan (N/A, Mon, 14 Oct 2024 06:30:00 -0700)
 
 - **Etchika Choureau, Hassan II’s great love**: [Link](https://telquel.ma/2024/10/14/etchika-choureau-hassan-iis-great-love_1895161)
