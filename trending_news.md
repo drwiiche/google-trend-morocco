@@ -1,3 +1,12 @@
+### weather tomorrow (N/A, Mon, 14 Oct 2024 13:10:00 -0700)
+
+- **Chennai rains: Holiday for schools, colleges on October 15; work from home 
+for IT employees**: [Link](https://www.thehindu.com/news/national/tamil-nadu/chennai-rains-holiday-for-schools-colleges-on-october-15-work-from-home-for-it-employees/article68751684.ece)
+- **Tamil Nadu rain: Holiday declared for schools and colleges in these 
+districts; IT companies advised to op**: [Link](https://timesofindia.indiatimes.com/city/chennai/tamil-nadu-rain-holiday-declared-for-schools-and-colleges-in-these-districts-it-companies-advised-to-opt-for-wfh/articleshow/114215272.cms)
+- **Red alert issued to nine districts in Tamil Nadu for October 16**: [Link](https://www.newindianexpress.com/states/tamil-nadu/2024/Oct/14/red-alert-issued-to-nine-districts-in-tamil-nadu-for-october-16)
+
+
 ### الطقس غدًا (N/A, Mon, 14 Oct 2024 13:10:00 -0700)
 
 - **أمطار على هذه المناطق.. حالة الطقس ودرجات الحرارة غدًا الثلاثاء 15 أكتوبر 
