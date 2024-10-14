@@ -1,3 +1,18 @@
+### بلجيكا ضد فرنسا (N/A, Mon, 14 Oct 2024 11:10:00 -0700)
+
+- **ديمبلي ودوكو وجها لوجه في قمة فرنسا وبلجيكا**: [Link](https://m.kooora.com/?n=1361229&o=n)
+- **مقارنة بين هدافي فرنسا وبلجيكا في دوري الأمم الأوروبية**: [Link](https://hihi2.com/2024/10/14/p2888286.html)
+- **مشاهدة مباراة بلجيكا وفرنسا بث مباشر في دوري أمم أوروبا**: [Link](https://aboutmsr.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D9%85%D9%85-%D8%A3%D9%88%D8%B1%D9%88%D8%A8/)
+
+
+### belgium vs france (N/A, Mon, 14 Oct 2024 11:10:00 -0700)
+
+- **Preview: Belgium vs. France - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/belgium/uefa-nations-league/preview/preview-belgium-vs-france-prediction-team-news-lineups_555232.html)
+- **talkSPORT betting tips – Best football bets and expert advice for Monday 14 
+October...**: [Link](https://talksport.com/football/2161807/betting-tips-best-football-bets-monday-14-october/)
+- **Final Without Mbappé**: [Link](https://www.footboom1.com/en/news/football/1932868-final-without-mbappe)
+
+
 ### italie – israël (N/A, Mon, 14 Oct 2024 11:00:00 -0700)
 
 - **PRONOS PARIS RMC Le pari sûr du 14 octobre – Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-14-octobre-ligue-des-nations_AN-202410130288.html)
