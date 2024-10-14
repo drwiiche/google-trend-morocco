@@ -1,3 +1,21 @@
+### météo (N/A, Sun, 13 Oct 2024 22:30:00 -0700)
+
+- **Averses orageuses, grêle et rafales de vent de samedi à lundi**: [Link](https://ledesk.ma/encontinu/averses-orageuses-grele-et-rafales-de-vent-de-samedi-a-lundi/)
+- **Ouarzazate : Un bulletin d'alerte météo entraîne la suspension des cours**: [Link](https://fr.hespress.com/390556-ouarzazate-un-bulletin-dalerte-meteo-entraine-la-suspension-des-cours.html)
+- **Pluies prévues jusqu'à la fin de la semaine, l'effet de la tempête Kirk 
+ressenti au nord**: [Link](https://lematin.ma/regions/de-la-pluie-jusqua-la-fin-de-la-semaine-la-tempete-kirk-ressentie-au-nord/246443)
+
+
+### weather (N/A, Sun, 13 Oct 2024 22:30:00 -0700)
+
+- **BREVARD WEATHER FORECAST: Sunny Skies, High Near 85 on Monday on the Space 
+Coast**: [Link](https://spacecoastdaily.com/2024/10/brevard-weather-forecast-sunny-skies-high-near-85-on-monday-on-the-space-coast/)
+- **BREVARD WEATHER FORECAST: Rain Possible, Windy Conditions With Gusts of 25 
+MPH, High Near 83 on Friday**: [Link](https://spacecoastdaily.com/2024/10/watch-brevard-dodges-hurricane-milton-bullet-no-major-damage-or-deaths-despite-eye-passing-over-titusville-and-kennedy-space-center/)
+- **Haryana Weather and AQI Today: Warm start at 24.43 °C, check weather 
+forecast for October 13, 2024**: [Link](https://www.hindustantimes.com/india-news/haryana-weather-today-aqi-and-rain-forecast-updates-october-13-2024-101728783055647.html)
+
+
 ### حالة الطقس اليوم (N/A, Sun, 13 Oct 2024 22:00:00 -0700)
 
 - **آخر الليالي العجاف.. بيان مهم بشأن الطقس اليوم الإثنين: والأرصاد تُناشد: 
