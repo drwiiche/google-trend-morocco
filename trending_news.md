@@ -1,3 +1,13 @@
+### lalla meryem (N/A, Sun, 13 Oct 2024 23:50:00 -0700)
+
+- **Le Roi préside une veillée religieuse en commémoration du 26ème 
+anniversaire de la disparition du Roi Hassan I**: [Link](https://fr.hespress.com/390534-le-roi-preside-une-veillee-religieuse-en-commemoration-du-26eme-anniversaire-de-la-disparition-du-roi-hassan-ii.html)
+- **La princesse Lalla Meryem préside une veillée religieuse en commémoration 
+du 26ème anniversaire de la disparition du roi Hassan II**: [Link](https://fr.le360.ma/politique/la-princesse-lalla-meryem-preside-une-veillee-religieuse-en-commemoration-du-26eme-anniversaire-de_YBJYUHB4KJBVBFWJ5EOEFFCVKY/)
+- **26e anniversaire de la disparition de Feu le Roi Hassan II : Un hommage à 
+la mémoire d’un Roi bâtisseur**: [Link](https://www.menara.ma/fr/article/26e-anniversaire-de-la-disparition-de-feu-le-roi-hassan-ii-un-hommage-a-la-memoire-dun-roi-batisseur)
+
+
 ### wetter (N/A, Sun, 13 Oct 2024 22:40:00 -0700)
 
 - **Ab Mitte kommender Woche Temperaturen bis 22 Grad erwartet**: [Link](https://www.derstandard.at/story/3000000240500/ab-mitte-kommender-woche-temperaturen-bis-22-grad-erwartet)
