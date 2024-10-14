@@ -1,3 +1,19 @@
+### kick (N/A, Mon, 14 Oct 2024 12:10:00 -0700)
+
+- **Adin Ross claims Kick will introduce a way for viewers to get real-life 
+money for watching streams**: [Link](https://www.sportskeeda.com/us/streamers/news-adin-ross-claims-kick-will-introduce-way-viewers-get-real-life-money-watching-streams)
+- **Dr Disrespect Kick deal 'waste of money' says streaming platform co-founder**: [Link](https://www.indy100.com/gaming/dr-disrespect-stream-kick-deal)
+- **Dr Disrespect Kick deal 'waste of money' says streaming platform co-founder**: [Link](https://www.msn.com/en-au/money/news/dr-disrespect-kick-deal-waste-of-money-says-streaming-platform-co-founder/ar-AA1sfyjO)
+
+
+### men gov ma (N/A, Mon, 14 Oct 2024 09:50:00 -0700)
+
+- **أخبار زائفة تستنفر "أكاديمية طنجة"**: [Link](https://www.hespress.com/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B2%D8%A7%D8%A6%D9%81%D8%A9-%D8%AA%D8%B3%D8%AA%D9%86%D9%81%D8%B1-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D9%85%D9%8A%D8%A9-%D8%B7%D9%86%D8%AC%D8%A9-1447064.html)
+- **"استعلم من هُنـــــا".. رابط نتائج الاختبارات الكتابية مباراة التعليم 
+بالمغرب 2024 من خلال الموقع الرسمي لوزارة التربية الوطنية**: [Link](https://gate.mwlana.com/40022/%D8%A7%D8%B3%D8%AA%D8%B9%D9%84%D9%85-%D9%85%D9%86-%D9%87%D9%8F%D9%86%D9%80%D9%80%D9%80%D9%80%D9%80%D8%A7-%D8%B1%D8%A7%D8%A8%D8%B7-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A7%D8%AE%D8%AA/)
+- **تنبيه هام من الأكاديمية الجهوية حول نتائج مباراة التأهيل لدورة أكتوبر**: [Link](https://zaiocity.net/2024/10/13/%D8%AA%D9%86%D8%A8%D9%8A%D9%87-%D9%87%D8%A7%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%87%D9%88%D9%8A%D8%A9-%D8%AD%D9%88%D9%84-%D9%86%D8%AA/)
+
+
 ### ألمانيا ضد هولندا (N/A, Mon, 14 Oct 2024 11:50:00 -0700)
 
 - **ناجلسمان يوضح موقف ثنائي ألمانيا من المشاركة أمام هولندا**: [Link](https://www.kooora.com/?n=1361071)
