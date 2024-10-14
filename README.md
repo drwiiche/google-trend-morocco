@@ -1,3 +1,10 @@
+### الطقس (N/A, Sun, 13 Oct 2024 22:40:00 -0700)
+
+- **نشرة جوية إنذارية تدفع إلى تعليق الدراسة بمؤسسات تعليمية في المغرب**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AF%D9%81%D8%B9-%D8%A5%D9%84%D9%89-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7-1447082.html)
+- **الطقس غدا الإثنين.. زخات مطرية رعدية مرتقبة في عدة مناطق**: [Link](https://ar.hibapress.com/details-561710.html)
+- **أمطار وزخات رعدية متوقعة اليوم الأحد بمناطق مختلفة من المملكة**: [Link](https://www.akhbarona.com/national/393656.html)
+
+
 ### météo (N/A, Sun, 13 Oct 2024 22:30:00 -0700)
 
 - **Averses orageuses, grêle et rafales de vent de samedi à lundi**: [Link](https://ledesk.ma/encontinu/averses-orageuses-grele-et-rafales-de-vent-de-samedi-a-lundi/)
