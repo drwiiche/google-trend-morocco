@@ -1,3 +1,11 @@
+### chine taiwan (N/A, Mon, 14 Oct 2024 02:10:00 -0700)
+
+- **La Chine mène des manœuvres militaires autour de Taïwan, qui dit avoir 
+déployé les « forces adéquates »**: [Link](https://www.lemonde.fr/international/article/2024/10/14/la-chine-lance-des-man-uvres-militaires-autour-de-taiwan-qui-dit-avoir-deploye-les-forces-adequates_6351280_3210.html)
+- **Taïwan “en état d'alerte”, un porte-avions chinois détecté au sud de l'île**: [Link](https://medias24.com/agence-presse/taiwan-en-etat-dalerte-un-porte-avions-chinois-detecte-au-sud-de-lile-2/)
+- **Taïwan, Belgique, Islande et Ukraine : les informations de la nuit**: [Link](https://www.courrierinternational.com/article/pendant-que-vous-dormiez-taiwan-belgique-islande-et-ukraine-les-informations-de-la-nuit_223336)
+
+
 ### حالة الطقس (N/A, Sun, 13 Oct 2024 23:20:00 -0700)
 
 - **تساقط أمطار رعدية غزيرة ليلة اليوم بهذه الولايات**: [Link](https://www.ennaharonline.com/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A8%D9%87%D8%B0/)
