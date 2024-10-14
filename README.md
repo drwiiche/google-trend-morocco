@@ -1,3 +1,27 @@
+### germany vs netherlands (N/A, Mon, 14 Oct 2024 11:40:00 -0700)
+
+- **Preview: Germany vs. Netherlands - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/germany/uefa-nations-league/preview/preview-germany-vs-netherlands-prediction-team-news-lineups_555266.html)
+- **Football Bet of the Day: Back goals in Bavaria on Monday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-back-goals-in-bavaria-on-monday-2/)
+- **Bayern Munich midfielder Aleksandar Pavlović could be healthy enough for 
+first start with Germany**: [Link](https://www.bavarianfootballworks.com/2024/10/13/24269047/bayern-munich-midfielder-aleksandar-pavlovic-could-be-healthy-enough-for-first-start-germany)
+
+
+### france foot (N/A, Mon, 14 Oct 2024 11:30:00 -0700)
+
+- **DIRECT. Belgique-France (Ligue des nations A 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/belgique-france-live/632625)
+- **Espagne - Danemark infos: Ligue des Nations - Football**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2024-2025/live-espagne-danemark_mtc1561305/live-news.shtml)
+- **DIRECT. Matchs internationaux: Italie-Israël, Allemagne-Pays-Bas... suivez 
+en live le multiplex 4e journée**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-nations/direct-ligue-des-nations-italie-israel-allemagne-pays-bas-suivez-en-live-le-multiplex-4e-journee_LS-202410140376.html)
+
+
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Mon, 14 Oct 2024 09:50:00 -0700)
+
+- **بنموسى يهدد استقرار أسرة التعليم و”يتحجج” بمجلس الحسابات لتغيير شروط الحركة 
+الانتقالية**: [Link](https://al3omk.com/1014123.html)
+- **وزارة التربية الوطنية تعتزم تعديل شروط الحركة الانتقالية لرجال ونساء التعليم**: [Link](https://sabahagadir.ma/323367.html)
+- **هذه مخرجات لقاء النقابات التعليمية مع وزارة بنموسى**: [Link](https://www.achkayen.com/577456/.html)
+
+
 ### بلجيكا ضد فرنسا (N/A, Mon, 14 Oct 2024 11:10:00 -0700)
 
 - **ديمبلي ودوكو وجها لوجه في قمة فرنسا وبلجيكا**: [Link](https://m.kooora.com/?n=1361229&o=n)
