@@ -1,3 +1,10 @@
+### euphoria (N/A, Mon, 14 Oct 2024 06:40:00 -0700)
+
+- **‘Euphoria’ Season 3: All The Updates On Zendaya, Sydney Sweeney Show**: [Link](https://uproxx.com/tv/euphoria-season-3-updates-october-2024-zendaya-sydney-sweeney/)
+- **Zendaya's Blonde, Boho Bob Is Autumn's Most Chill Hairstyle**: [Link](https://www.glamourmagazine.co.uk/article/zendaya-blonde-boho-bob)
+- **Zendaya vows fans with dramatic hair transformation**: [Link](https://www.thenews.com.pk/latest/1239022-zendaya-vows-fans-with-dramatic-hair-transformation)
+
+
 ### kenya – cameroun (N/A, Mon, 14 Oct 2024 07:00:00 -0700)
 
 - **CAN CAF TotalEnergies 2025 : L'Égypte au top, le carton du Cameroun**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/can-caf-totalenergies-2025-legypte-au-top-le-carton-du-cameroun/)
