@@ -1,3 +1,11 @@
+### atp shanghai (N/A, Mon, 14 Oct 2024 04:30:00 -0700)
+
+- **Novak Djokovic loses to Jannik Sinner in Shanghai Masters final**: [Link](https://www.bbc.com/sport/tennis/articles/c8j72gx3kp1o)
+- **Tennis Tracker: Sinner beats Djokovic to claim Shanghai title, Sabalenka 
+wins Wuhan final**: [Link](https://www.flashscore.com/news/tennis-tracker-sinner-beats-djokovic-to-claim-shanghai-title-sabalenka-wins-wuhan-final/YizRJurA/)
+- **These are the 5 major conclusions from the ATP Shanghai 2024**: [Link](https://www.puntodebreak.com/en/2024/10/14/these-are-the-5-major-conclusions-from-the-atp-shanghai-2024)
+
+
 ### chine taiwan (N/A, Mon, 14 Oct 2024 02:10:00 -0700)
 
 - **La Chine mène des manœuvres militaires autour de Taïwan, qui dit avoir 
