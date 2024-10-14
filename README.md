@@ -1,3 +1,11 @@
+### allemagne foot (N/A, Mon, 14 Oct 2024 13:20:00 -0700)
+
+- **Diogo Jota commente l’arrivée de Jürgen Klopp chez le groupe Red Bull**: [Link](https://asquinas.fr/diogo-jota-commente-arrivee-jurgen-klopp-red-bull/)
+- **Manchester City : la position forte de Haaland sur la grève des joueurs**: [Link](https://www.onzemondial.com/premier-league/manchester-city-la-position-forte-de-haaland-sur-la-greve-des-joueurs-919262)
+- **Red Bull: un gros salaire mais bien moins qu'à Liverpool, ce que va toucher 
+Klopp pour son nouveau job**: [Link](https://www.msn.com/fr-fr/auto/actualite/red-bull-un-gros-salaire-mais-bien-moins-qu-%C3%A0-liverpool-ce-que-va-toucher-klopp-pour-son-nouveau-job/ar-AA1s8rhn)
+
+
 ### guendouzi (N/A, Mon, 14 Oct 2024 12:40:00 -0700)
 
 - **Sold for 9m: Arsenal may regret selling a "monster" who's now worth 32m**: [Link](https://www.msn.com/en-gb/sport/football/sold-for-9m-arsenal-may-regret-selling-a-monster-who-s-now-worth-32m/ar-AA1sdHrD)
