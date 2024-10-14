@@ -1,3 +1,19 @@
+### الدكتور مصطفى حجازي (N/A, Mon, 14 Oct 2024 14:40:00 -0700)
+
+- **رحيل المفكر اللبناني مصطفى حجازى صاحب كتاب "سيكولوجية الإنسان المهدور" عن 
+عمر ناهز الـ 88 عاما**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/407642.html)
+- **رحيل مصطفى حجازي صاحب مقاربة الإنسان في أزمنة القهر و الهدر**: [Link](https://m.alayam24.com/articles-532179.html)
+- **في رحيل مصطفى حجازي: عالم النفس الاجتماعي الذي كشف «هدر الإنسان»**: [Link](https://www.alquds.co.uk/%D9%81%D9%8A-%D8%B1%D8%AD%D9%8A%D9%84-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D8%AD%D8%AC%D8%A7%D8%B2%D9%8A-%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D9%86%D9%81%D8%B3-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7/)
+
+
+### uefa nations league (N/A, Mon, 14 Oct 2024 12:10:00 -0700)
+
+- **UEFA Nations League Wales versus Montenegro kick off 19:45 Mon 14 Oct 2024**: [Link](https://www.bbc.com/sport/football/live/cly6xdye3pyt)
+- **Wilson penalty maintains unbeaten run**: [Link](https://faw.cymru/news/wilson-penalty-maintains-unbeaten-run/)
+- **Town winger Burns starts in Wales win as Broadhead returns to competitive 
+action**: [Link](https://www.eadt.co.uk/sport/24652022.ipswich-town-wes-burns-nathan-broadhead-earn-caps-wales/)
+
+
 ### bet 365 (N/A, Mon, 14 Oct 2024 13:40:00 -0700)
 
 - **Bet365 bonus code BETROCK for Monday Night Football: Get a Bills vs. Jets 
