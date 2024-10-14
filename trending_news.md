@@ -1,3 +1,11 @@
+### طقس (N/A, Sun, 13 Oct 2024 23:00:00 -0700)
+
+- **آخر الليالي العجاف.. بيان مهم بشأن الطقس اليوم الإثنين: والأرصاد تُناشد: 
+«توخوا الحذر»**: [Link](https://www.almasryalyoum.com/news/details/3282269)
+- **طقس الاثنين.. مائل للبرودة ليلا**: [Link](https://www.egypttelegraph.com/article/81442/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D9%85%D8%A7%D8%A6%D9%84-%D9%84%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%84%D9%8A%D9%84%D8%A7)
+- **الهيئة العامة للأرصاد الجوية المصرية**: [Link](https://www.facebook.com/photo/?fbid=936237575201477&set=a.289008423257732)
+
+
 ### lalla meryem (N/A, Sun, 13 Oct 2024 23:50:00 -0700)
 
 - **Le Roi préside une veillée religieuse en commémoration du 26ème 
