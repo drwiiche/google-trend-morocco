@@ -1,3 +1,13 @@
+### algerie foot (N/A, Mon, 14 Oct 2024 10:10:00 -0700)
+
+- **La CAF ouvre une enquête après les incidents de la sélection du Nigéria en 
+Libye**: [Link](https://fr.hespress.com/390715-la-caf-ouvre-une-enquete-apres-les-incidents-de-la-selection-du-nigeria-en-libye.html)
+- **Eliminatoires CAN 2025 - Bloquée 15h à l'aéroport en Libye, la sélection 
+nigériane va déclarer forfait**: [Link](https://www.eurosport.fr/football/qualifications-can/2025/eliminatoires-can-2025-bloquee-15h-a-l-aeroport-en-libye-la-selection-nigeriane-va-declarer-forfait_sto10368848/story.shtml)
+- **Éliminatoires CAN-2025 (4è Journée/Gr.D): Le Nigéria refuse de disputer son 
+match retour contre la Libye**: [Link](https://maroc-diplomatique.net/eliminatoires-can-2025-4e-journee-gr-d-le-nigeria-refuse-de-disputer-son-match-retour-contre-la-libye/)
+
+
 ### نتائج مباراة التعليم الشفوي 2024 (N/A, Mon, 14 Oct 2024 10:00:00 -0700)
 
 - **أخبار زائفة تستنفر "أكاديمية طنجة"**: [Link](https://www.hespress.com/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B2%D8%A7%D8%A6%D9%81%D8%A9-%D8%AA%D8%B3%D8%AA%D9%86%D9%81%D8%B1-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D9%85%D9%8A%D8%A9-%D8%B7%D9%86%D8%AC%D8%A9-1447064.html)
