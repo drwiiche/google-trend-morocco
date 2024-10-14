@@ -1,3 +1,11 @@
+### hassan (N/A, Mon, 14 Oct 2024 06:30:00 -0700)
+
+- **Etchika Choureau, Hassan II’s great love**: [Link](https://telquel.ma/2024/10/14/etchika-choureau-hassan-iis-great-love_1895161)
+- **Taliyaha militariga itoobiya oo ka jawaabay eedeyn ay Soomaaliya u jeedisay 
+Itoobiya**: [Link](https://www.bbc.com/somali/articles/c07njmzkjj7o)
+- **Somaliland : Ethiopia deal looms large over presidential poll**: [Link](https://www.africaintelligence.com/eastern-africa-and-the-horn/2024/10/14/ethiopia-deal-looms-large-over-presidential-poll,110326777-art)
+
+
 ### mario balotelli (N/A, Mon, 14 Oct 2024 05:20:00 -0700)
 
 - **Gazzetta dello Sport – Dubbi Genoa su Balotelli**: [Link](https://www.pianetagenoa1893.net/primo-piano/gazzetta-dello-sport-dubbi-genoa-su-balotelli/)
