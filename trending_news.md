@@ -1,3 +1,21 @@
+### herzi halevi (N/A, Sun, 13 Oct 2024 13:50:00 -0700)
+
+- **Gallant says Israel will ensure terrorists do not return to Lebanon border 
+villages**: [Link](https://www.timesofisrael.com/liveblog_entry/gallant-says-israel-will-ensure-terrorists-do-not-return-to-lebanon-border-villages/)
+- **IDF closes Zar'it, Shomera, Shetula, Netu'a, and Even Menachem as military 
+zone**: [Link](https://www.jpost.com/breaking-news/article-824271)
+- **Gallant says Israel 'will not allow the return' of Hezbollah in southern 
+Lebanon**: [Link](https://www.yahoo.com/news/gallant-says-israel-not-allow-164508772.html)
+
+
+### weather tomorrow (N/A, Sun, 13 Oct 2024 12:40:00 -0700)
+
+- **Breezy and mild afternoon ahead with strong to severe t-storms possible 
+late tonight**: [Link](https://www.wjhl.com/wjhl-weather/forecast/breezy-and-mild-afternoon-ahead-with-strong-to-severe-t-storms-possible-late-tonight/)
+- **Mild weekend – chillier days ahead**: [Link](https://whnt.com/weather/valleywx-blog/mild-weekend-chillier-days-ahead/)
+- **November like chill coming this week**: [Link](https://www.wlwt.com/article/november-like-chill-coming-this-week/62590987)
+
+
 ### kech24 (N/A, Sun, 13 Oct 2024 15:10:00 -0700)
 
 
