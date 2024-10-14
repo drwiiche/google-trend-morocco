@@ -1,3 +1,12 @@
+### bet 365 (N/A, Mon, 14 Oct 2024 13:40:00 -0700)
+
+- **Bet365 bonus code BETROCK for Monday Night Football: Get a Bills vs. Jets 
+bonus up to $1,000**: [Link](https://www.rockytopinsider.com/2024/10/14/bet365-bonus-code-betrock-for-monday-night-football-get-a-bills-vs-jets-bonus-up-to-1000/)
+- **NFL Sportsbook Promos: 7 Best Offers for Sunday's Games**: [Link](https://www.newsweek.com/nfl-sportsbook-promos-7-best-offers-sundays-games-october-13-1968218)
+- **Best NFL Betting Promos & Sites: Claim $6000 in Bonus Bets for Week 6 Odds, 
+Props & Lines**: [Link](https://www.rotowire.com/news/nfl-betting-promos-sites-claim-6000-in-bonus-bets-for-week-6-odds-props-lines-86014)
+
+
 ### islande – turquie (N/A, Mon, 14 Oct 2024 13:30:00 -0700)
 
 - **Pronostic Islande - Turquie, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/islande-turquie-220465/)
