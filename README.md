@@ -1,3 +1,17 @@
+### guendouzi (N/A, Mon, 14 Oct 2024 12:40:00 -0700)
+
+- **Sold for 9m: Arsenal may regret selling a "monster" who's now worth 32m**: [Link](https://www.msn.com/en-gb/sport/football/sold-for-9m-arsenal-may-regret-selling-a-monster-who-s-now-worth-32m/ar-AA1sdHrD)
+- **Arsenal wasted £56m on a bad signing who earned more than Timber**: [Link](https://www.footballfancast.com/arsenal-wasted-money-on-shkodran-mustafi-earned-more-than-timber/)
+- **Sold for £9m: Arsenal may regret selling a "monster" who's now worth £32m**: [Link](https://www.footballfancast.com/arsenal-must-regret-offloading-guendouzi-now-worth-millions-more/)
+
+
+### italy vs israel (N/A, Mon, 14 Oct 2024 12:40:00 -0700)
+
+- **Marchegiani urges Vicario to be less ‘angry’ for Tottenham and Italy**: [Link](https://football-italia.net/marchegiani-urges-vicario-less-angry-tottenham/)
+- **Udine on high alert ahead of Italy’s match against Israel**: [Link](https://apnews.com/article/italy-israel-nations-league-db35ac78fcb8ee7d7f4811ced6183bfb)
+- **Heavy security in Italian city ahead of Israel soccer game**: [Link](https://www.timesofisrael.com/liveblog_entry/heavy-security-in-italian-city-ahead-of-israel-soccer-game/)
+
+
 ### toni kroos (N/A, Mon, 14 Oct 2024 12:20:00 -0700)
 
 - **Fede Valverde: "I would’ve given Toni Kroos the Ballon d’Or"**: [Link](https://www.managingmadrid.com/2024/10/13/24268830/fede-valverde-i-wouldve-given-toni-kroos-the-ballon-dor)
