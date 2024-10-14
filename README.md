@@ -1,3 +1,28 @@
+### italie – israël (N/A, Mon, 14 Oct 2024 11:00:00 -0700)
+
+- **PRONOS PARIS RMC Le pari sûr du 14 octobre – Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-14-octobre-ligue-des-nations_AN-202410130288.html)
+- **Italie - Israël : le message de Luciano Spalletti contre la guerre au 
+Proche-Orient**: [Link](https://www.footmercato.net/a57331315690296219-italie-israel-le-message-de-luciano-spalletti-contre-la-guerre-au-proche-orient)
+- **Pronostic Italie Israël : Analyse, cotes et prono du match de Ligue des 
+nations**: [Link](https://www.sofoot.com/breves/pronostic-italie-israel-analyse-cotes-et-prono-du-match-de-ligue-des-nations)
+
+
+### belgique – france (N/A, Mon, 14 Oct 2024 10:50:00 -0700)
+
+- **Comment suivre le match de Ligue des Nations Belgique - France en direct**: [Link](https://www.20minutes.fr/sport/football/4115322-20241013-belgique-france-chaine-heure-voir-match-bleus-ligue-nations)
+- **L'analyse : Les retrouvailles des Bleus avec la Belgique, idéal pour 
+oublier un début d'automne maussade**: [Link](https://www.lequipe.fr/Football/Article/Les-retrouvailles-bienvenues-des-bleus-avec-leur-voisin-belge/1513677)
+- **Ligue des nations. Belgique - France : l'avant match en direct**: [Link](https://www.linternaute.com/sport/foot/6401027-belgique-france-pour-frapper-un-grand-coup-deschamps-chamboule-tout-les-infos-du-match/)
+
+
+### allemagne – pays-bas (N/A, Mon, 14 Oct 2024 10:50:00 -0700)
+
+- **Pronostic Allemagne - Pays-Bas, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/allemagne-pays-bas-220493/)
+- **Pronostic Allemagne Pays-Bas : Analyse, cotes et prono du match de Ligue 
+des nations**: [Link](https://www.sofoot.com/breves/pronostic-allemagne-pays-bas-analyse-cotes-et-prono-du-match-de-ligue-des-nations)
+- **PRONOS PARIS RMC Le pari à domicile du 14 octobre – Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-14-octobre-ligue-des-nations_AN-202410130287.html)
+
+
 ### وزارة التربية والتعليم (N/A, Mon, 14 Oct 2024 10:30:00 -0700)
 
 - **أخبار مصر.. وزارة التربية والتعليم تغلق باب التحويلات للعام الدراسى الجارى**: [Link](https://www.youm7.com/story/2024/10/14/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D8%B5%D8%B1-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%AA%D8%BA%D9%84%D9%82-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D8%A7%D8%AA-%D9%84%D9%84%D8%B9%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D9%89/6740134)
