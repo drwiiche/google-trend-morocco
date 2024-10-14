@@ -1,3 +1,19 @@
+### toni kroos (N/A, Mon, 14 Oct 2024 12:20:00 -0700)
+
+- **Fede Valverde: "I would’ve given Toni Kroos the Ballon d’Or"**: [Link](https://www.managingmadrid.com/2024/10/13/24268830/fede-valverde-i-wouldve-given-toni-kroos-the-ballon-dor)
+- **Wanted this number more than anything else: Emotional insights from Toni 
+Kroos' successor at Real**: [Link](https://www.footboom1.com/en/news/football/1928936-wanted-this-number-more-than-anything-else-emotional-insights-from-toni-kroos-successor-at-real)
+- **Real Madrid Star Fede Valverde Feels THIS Los Blancos Legend Deserved To 
+Win Ballon D'or**: [Link](https://www.timesnownews.com/sports/football/real-madrid-star-fede-valverde-feels-this-los-blancos-legend-deserved-to-win-ballon-dor-article-114177733)
+
+
+### nations league (N/A, Mon, 14 Oct 2024 12:10:00 -0700)
+
+- **Marchegiani urges Vicario to be less ‘angry’ for Tottenham and Italy**: [Link](https://football-italia.net/marchegiani-urges-vicario-less-angry-tottenham/)
+- **Udine on high alert ahead of Italy’s match against Israel**: [Link](https://apnews.com/article/italy-israel-nations-league-db35ac78fcb8ee7d7f4811ced6183bfb)
+- **La Liga referee De Burgos Bengoetxea to referee the Italy-Israel game**: [Link](https://www.bundle.app/en/sport/la-liga-referee-de-burgos-bengoetxea-to-referee-the-italy-israel-game-f427bb48-68b5-4cf9-b2d3-d8e863f84924)
+
+
 ### kick (N/A, Mon, 14 Oct 2024 12:10:00 -0700)
 
 - **Adin Ross claims Kick will introduce a way for viewers to get real-life 
