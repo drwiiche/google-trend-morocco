@@ -1,3 +1,11 @@
+### وزارة التربية والتعليم (N/A, Mon, 14 Oct 2024 10:30:00 -0700)
+
+- **أخبار مصر.. وزارة التربية والتعليم تغلق باب التحويلات للعام الدراسى الجارى**: [Link](https://www.youm7.com/story/2024/10/14/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D8%B5%D8%B1-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%AA%D8%BA%D9%84%D9%82-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D8%A7%D8%AA-%D9%84%D9%84%D8%B9%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D9%89/6740134)
+- **«تعليم القاهرة» تلزم الإدارات بسداد الطلاب مبلغ 100 جنيه للتحويل الورقي | 
+مستند**: [Link](https://m.akhbarelyom.com/news/newdetails/4466564/1/-%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%AA%D9%84%D8%B2%D9%85-%D8%A7%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D8%B3%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B7%D9%84%D8%A7)
+- **وزارة التربية والتعليم: غلق باب التحويلات للعام الدراسى الجارى**: [Link](https://www.parlmany.com/News/6/559172/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%BA%D9%84%D9%82-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D8%AD%D9%88%D9%8A%D9%84%D8%A7%D8%AA-%D9%84%D9%84%D8%B9%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D9%89-%D8%A7%D9%84%D8%AC%D8%A7%D8%B1%D9%89)
+
+
 ### algerie foot (N/A, Mon, 14 Oct 2024 10:10:00 -0700)
 
 - **La CAF ouvre une enquête après les incidents de la sélection du Nigéria en 
