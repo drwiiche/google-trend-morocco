@@ -1,3 +1,19 @@
+### togo – algérie (N/A, Mon, 14 Oct 2024 08:10:00 -0700)
+
+- **Voici les chaînes qui diffuseront le match Togo - Algérie ce lundi**: [Link](https://lagazettedufennec.com/elim-can-2025-togo-algerie-sur-quelles-chaines-suivre-le-match/)
+- **L’équipe nationale algérienne jouera en vert face au Togo**: [Link](https://al24news.com/fr/lequipe-nationale-algerienne-jouera-en-vert-face-au-togo/)
+- **Un nul suffit pour se qualifier : Petkovic exige une autre mission !**: [Link](https://fennecfootball.com/un-nul-suffit-pour-se-qualifier-ce-que-exige-petkovic/)
+
+
+### inondations marrakech (N/A, Mon, 14 Oct 2024 08:10:00 -0700)
+
+- **Inondations à Marrakech : les fortes pluies du 13 octobre paralysent la 
+ville**: [Link](https://medias24.com/2024/10/14/inondations-a-marrakech-les-fortes-pluies-du-13-octobre-paralysent-la-ville/)
+- **Des pluies records en septembre annoncent une instabilité croissante au 
+Maroc**: [Link](https://fr.hespress.com/390512-changement-climatique-des-pluies-records-en-septembre-annoncent-une-instabilite-croissante-au-maroc-dgm.html)
+- **Dérèglement climatique, un lourd impact sur les infrastructures**: [Link](https://maroc-diplomatique.net/dereglement-climatique-un-lourd-impact-sur-les-infrastructures/)
+
+
 ### euphoria (N/A, Mon, 14 Oct 2024 06:40:00 -0700)
 
 - **‘Euphoria’ Season 3: All The Updates On Zendaya, Sydney Sweeney Show**: [Link](https://uproxx.com/tv/euphoria-season-3-updates-october-2024-zendaya-sydney-sweeney/)
