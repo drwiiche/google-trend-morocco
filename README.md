@@ -1,3 +1,10 @@
+### islande – turquie (N/A, Mon, 14 Oct 2024 13:30:00 -0700)
+
+- **Pronostic Islande - Turquie, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/islande-turquie-220465/)
+- **DIRECT. Islande-Turquie (Ligue des nations B 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-b/2025/islande-turquie-live/632691)
+- **FOOTBALL LA MARCHE TURQUE**: [Link](https://www.turquie-news.com/football-la-marche-turque)
+
+
 ### allemagne foot (N/A, Mon, 14 Oct 2024 13:20:00 -0700)
 
 - **Diogo Jota commente l’arrivée de Jürgen Klopp chez le groupe Red Bull**: [Link](https://asquinas.fr/diogo-jota-commente-arrivee-jurgen-klopp-red-bull/)
