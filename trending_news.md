@@ -1,3 +1,12 @@
+### mario balotelli (N/A, Mon, 14 Oct 2024 05:20:00 -0700)
+
+- **Gazzetta dello Sport – Dubbi Genoa su Balotelli**: [Link](https://www.pianetagenoa1893.net/primo-piano/gazzetta-dello-sport-dubbi-genoa-su-balotelli/)
+- **Balotelli litiga su Twitch con chi lo considera più scarso di Pohjanpalo: 
+«Io questa Serie A te la smonto**: [Link](https://www.ilnapolista.it/2024/10/balotelli-litiga-su-twitch-con-chi-lo-mette-dietro-a-pohjanpalo-io-questa-serie-a-te-la-smonto/)
+- **Aspettando Pereiro, il Genoa scioglie le riserve su Balotelli: Super Mario 
+si avvicina**: [Link](https://www.tuttoatalanta.com/le-altre-di-a/aspettando-pereiro-il-genoa-scioglie-le-riserve-su-balotelli-super-mario-si-avvicina-108300)
+
+
 ### atp shanghai (N/A, Mon, 14 Oct 2024 04:30:00 -0700)
 
 - **Novak Djokovic loses to Jannik Sinner in Shanghai Masters final**: [Link](https://www.bbc.com/sport/tennis/articles/c8j72gx3kp1o)
