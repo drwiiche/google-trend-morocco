@@ -1,3 +1,11 @@
+### ألمانيا ضد هولندا (N/A, Mon, 14 Oct 2024 11:50:00 -0700)
+
+- **ناجلسمان يوضح موقف ثنائي ألمانيا من المشاركة أمام هولندا**: [Link](https://www.kooora.com/?n=1361071)
+- **ناغلسمان مدرب ألمانيا يؤكد تواجد بافلوفيتش وشتيلر في التشكيلة الأساسية أمام 
+هولندا**: [Link](https://www.alquds.co.uk/%D9%86%D8%A7%D8%BA%D9%84%D8%B3%D9%85%D8%A7%D9%86-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D8%A4%D9%83%D8%AF-%D8%AA%D9%88%D8%A7%D8%AC%D8%AF-%D8%A8%D8%A7%D9%81%D9%84/)
+- **مباشر مباراة ألمانيا ضد هولندا في دوري الأمم الأوروبية**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/14/germany-vs-netherlands)
+
+
 ### germany vs netherlands (N/A, Mon, 14 Oct 2024 11:40:00 -0700)
 
 - **Preview: Germany vs. Netherlands - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/germany/uefa-nations-league/preview/preview-germany-vs-netherlands-prediction-team-news-lineups_555266.html)
