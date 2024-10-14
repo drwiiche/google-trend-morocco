@@ -1,3 +1,17 @@
+### هزة ارضية ازيلال (N/A, Sun, 13 Oct 2024 15:40:00 -0700)
+
+- **هز.ة أر.ضية بقوة 3.8 بإقليم أزيلال تثير قلق الساكنة.**: [Link](https://sabahagadir.ma/322921.html)
+- **هزة أرضية جديدة نواحي أزيلال**: [Link](https://www.analkhabar.com/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%86%D9%88%D8%A7%D8%AD%D9%8A-%D8%A3%D8%B2%D9%8A%D9%84%D8%A7%D9%84/)
+- **تسجيل هزة أرضية بجهة فاس مكناس على مستوى هذه الجماعة**: [Link](http://www.meknespress.com/articles/details/23175/%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%A8%D8%AC%D9%87%D8%A9-%D9%81%D8%A7%D8%B3.html)
+
+
+### الطقس غدا (N/A, Sun, 13 Oct 2024 15:00:00 -0700)
+
+- **نشرة جوية إنذارية تدفع إلى تعليق الدراسة بمؤسسات تعليمية في المغرب**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AF%D9%81%D8%B9-%D8%A5%D9%84%D9%89-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7-1447082.html)
+- **الطقس غدا الإثنين.. زخات مطرية رعدية مرتقبة في عدة مناطق**: [Link](https://ar.hibapress.com/details-561710.html)
+- **أمطار وزخات رعدية متوقعة اليوم الأحد بمناطق مختلفة من المملكة**: [Link](https://www.akhbarona.com/national/393656.html)
+
+
 ### herzi halevi (N/A, Sun, 13 Oct 2024 13:50:00 -0700)
 
 - **Gallant says Israel will ensure terrorists do not return to Lebanon border 
