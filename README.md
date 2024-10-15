@@ -1,3 +1,12 @@
+### france (N/A, Mon, 14 Oct 2024 12:50:00 -0700)
+
+- **« Il reste une marche » aux Bleuets pour se qualifier à l'Euro 2025, 
+rappelle Gérald Baticle**: [Link](https://www.lequipe.fr/Football/Actualites/-il-reste-une-marche-aux-bleuets-pour-se-qualifier-a-l-euro-2025-rappelle-gerald-baticle/1513800)
+- **France - Autriche (espoirs) : comment suivre le match à la télévision ou en 
+streaming ?**: [Link](https://www.onzemondial.com/equipe-de-france/france-autriche-espoirs-comment-suivre-le-match-a-la-television-ou-en-streaming-918234)
+- **[News-Anciens] EdF Espoirs : Ekitike et Kouassi buteurs contre Chypre (3-0)**: [Link](https://www.lestitisdupsg.fr/a-la-une/%F0%9F%87%AB%F0%9F%87%B7-news-anciens-edf-espoirs-ekitike-et-kouassi-buteurs-contre-chypre-3-0/)
+
+
 ### weather tomorrow (N/A, Mon, 14 Oct 2024 13:10:00 -0700)
 
 - **Chennai rains: Holiday for schools, colleges on October 15; work from home 
