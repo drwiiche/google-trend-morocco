@@ -1,3 +1,12 @@
+### chine taïwan (N/A, Tue, 15 Oct 2024 03:20:00 -0700)
+
+- **Simulation de blocus de Taïwan : l'art chinois de ne pas aller trop loin ?**: [Link](https://www.france24.com/fr/asie-pacifique/20241014-simulation-de-blocus-de-ta%C3%AFwan-art-chinois-ne-pas-aller-trop-loin-mais-presque-chine-manoeuvres-militaires)
+- **Pékin lance des manoeuvres militaires autour de Taïwan, qui dit avoir 
+déployé les “forces adéquates”**: [Link](https://medias24.com/agence-presse/pekin-lance-des-manoeuvres-militaires-autour-de-taiwan-qui-dit-avoir-deploye-les-forces-adequates/)
+- **La Chine mène des manœuvres militaires autour de Taïwan, qui dit avoir 
+déployé les « forces adéquates »**: [Link](https://www.lemonde.fr/international/article/2024/10/14/la-chine-lance-des-man-uvres-militaires-autour-de-taiwan-qui-dit-avoir-deploye-les-forces-adequates_6351280_3210.html)
+
+
 ### mbappe (N/A, Mon, 14 Oct 2024 21:00:00 -0700)
 
 - **'Fake news': Kylian Mbappé denounces accusations reported by Swedish press**: [Link](https://www.france24.com/en/tv-shows/press-review/20241015-fake-news-kylian-mbapp%C3%A9-denounces-accusations-reported-by-swedish-press)
