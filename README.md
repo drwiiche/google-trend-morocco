@@ -1,3 +1,12 @@
+### cheb bilal (N/A, Mon, 14 Oct 2024 16:40:00 -0700)
+
+- **Le chanteur algérien Cheb Bilal indésirable au Maroc**: [Link](https://www.bladi.net/chanteur-algerien-cheb-bilal-indesirable-maroc,111007.html)
+- **Aidez-moi à faire avancer ce combat : Non !!! au chanteur Cheb Bilal au 
+MAROC**: [Link](https://www.mesopinions.com/petition/art-culture/chanteur-cheb-bilal-maroc/234929)
+- **Après les critiques des militants... annulant la participation de l'artiste 
+algérien « Cheb Bilal » au**: [Link](https://fr.hibapress.com/news-139265.html)
+
+
 ### france (N/A, Mon, 14 Oct 2024 12:50:00 -0700)
 
 - **« Il reste une marche » aux Bleuets pour se qualifier à l'Euro 2025, 
