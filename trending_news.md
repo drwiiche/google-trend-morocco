@@ -1,3 +1,13 @@
+### kylian mbappé (N/A, Tue, 15 Oct 2024 04:40:00 -0700)
+
+- **Eduardo Camavinga dismisses rumours of Real Madrid frustration over Kylian 
+Mbappe**: [Link](https://www.football-espana.net/2024/10/12/eduardo-camavinga-real-madrid-frustration-kylian-mbappe)
+- **Valverde: "Some players should not defend and I don’t mind running to cover 
+our attackers"**: [Link](https://www.managingmadrid.com/2024/10/14/24270019/valverde-real-madrid-interview-france-football-quotes-2024)
+- **‘He is a beautiful person’ – Federico Valverde on Kylian Mbappé’s arrival 
+at Real Madrid**: [Link](https://www.getfootballnewsfrance.com/2024/he-is-a-beautiful-person-federico-valverde-on-kylian-mbappes-arrival-at-real-madrid/)
+
+
 ### corée du sud – irak (N/A, Tue, 15 Oct 2024 03:50:00 -0700)
 
 - **Diffusion Corée du Sud/Irak – Heure et chaîne pour voir le match**: [Link](https://www.parisfans.fr/autour-du-psg/diffusion-coree-du-sud-irak-heure-et-chaine-pour-voir-le-match-721458.html)
