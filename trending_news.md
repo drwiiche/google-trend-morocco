@@ -1,3 +1,49 @@
+### yalla kora (N/A, Tue, 15 Oct 2024 12:40:00 -0700)
+
+- **مصر تتغلّب على موريتانيا وتبلغ النهائيات**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%B5%D8%B1-%D8%AA%D8%AA%D8%BA%D9%84-%D8%A8-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D8%AA%D8%A8%D9%84%D8%BA-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-2024-10-15)
+- **10 محاذير يعلنها الاتحاد الموريتاني قبل مواجهة مصر**: [Link](https://www.kooora.com/?n=1361328)
+- **بهدف "نادر".. مصر تتأهل لأمم أفريقيا 2025**: [Link](https://www.skynewsarabia.com/sport/1748322-%D8%A8%D9%87%D8%AF%D9%81-%D9%86%D8%A7%D8%AF%D8%B1-%D9%85%D8%B5%D8%B1-%D8%AA%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025)
+
+
+### portugal foot (N/A, Tue, 15 Oct 2024 12:40:00 -0700)
+
+- **Video: Bernardo continues fine form with brilliant goal for Portugal U21s**: [Link](https://thecelticstar.com/video-bernardo-continues-fine-form-with-brilliant-goal-for-portugal-u21s/)
+- **Paulo Bernardo Books in Exciting Summer 2025 Plans**: [Link](https://celtsarehere.com/paulo-bernardo-books-in-exciting-summer-2025-plans/)
+- **Portugal Qualifies for UEFA U-21 European Championship for the Tenth Time**: [Link](https://www.footboom1.com/en/news/football/1921912-portugal-qualifies-for-uefa-u-21-european-championship-for-the-tenth-time)
+
+
+### repubblica centrafricana - marocco (N/A, Tue, 15 Oct 2024 12:40:00 -0700)
+
+- **Repubblica Centrafricana vs Marocco: I Leoni dell'Atlas Riprendono gli 
+Allenamenti**: [Link](https://www.footboom1.com/it/news/football/1934473-central-african-republic-vs-morocco-the-atlas-lions-resume-training)
+- **Qualificazione Coppa d’Africa: domani tre gare su Sportitalia**: [Link](https://www.sportitalia.it/2024/10/14/qualificazione-coppa-dafrica-domani-tre-gare-su-sportitalia/)
+- **Gialloblù in Nazionale: Dawidowicz e Kastanos in campo, Belahyane no**: [Link](https://www.calciohellas.it/2024/10/12/gialloblu-in-nazionale-dawidowicz-e-kastanos-in-campo-belahyane-no/)
+
+
+### vs (N/A, Tue, 15 Oct 2024 12:40:00 -0700)
+
+- **Bills vs. Jets score: Buffalo brushes off a Hail Mary to beat New York 
+23-20 on Monday Night Football**: [Link](https://sports.yahoo.com/live/bills-vs-jets-score-buffalo-brushes-off-a-hail-mary-to-beat-new-york-23-20-on-monday-night-football-225127648.html)
+- **How Davante Adams affects the Jets' playoff hopes, Garrett Wilson's mood 
+and Aaron Rodgers' future**: [Link](https://www.espn.com/nfl/story/_/id/41809450/new-york-jets-future-davante-adams-trade-las-vegas-raiders)
+- **Aaron Rodgers rips refs for 'ridiculous' penalties in Jets' loss: 'Some of 
+them seemed really bad'**: [Link](https://www.usatoday.com/story/sports/nfl/jets/2024/10/15/aaron-rodgers-rips-referees-officials-penalties-jets-bills/75681793007/)
+
+
+### kooora tv (N/A, Tue, 15 Oct 2024 12:40:00 -0700)
+
+
+
+
+### can 2025 (N/A, Tue, 15 Oct 2024 12:30:00 -0700)
+
+- **Afcon 2025: Senegal, Egypt, DR Congo and Angola qualify for finals in 
+Morocco**: [Link](https://www.bbc.com/sport/football/articles/cnvdn66zv88o)
+- **Mané seals Senegal's AFCON spot, Ghana in peril**: [Link](https://africa.espn.com/football/story/_/id/41811271/africa-cup-nations-afcon-2025-senegal-sadio-mane-ghana)
+- **Highlights and goal of Malawi 0-1 Senegal in 2025 Africa Cup of Nations 
+Qualifiers**: [Link](https://www.vavel.com/en-us/soccer/2024/10/15/1200357-malawi-vs-senegal-live-score-updates-stream-info-and-how-to-watch-africa-cup-of-nations-qualifiers-match.html)
+
+
 ### bein sport (N/A, Tue, 15 Oct 2024 12:30:00 -0700)
 
 - **مصر تتغلّب على موريتانيا وتبلغ النهائيات**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%B5%D8%B1-%D8%AA%D8%AA%D8%BA%D9%84-%D8%A8-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D8%AA%D8%A8%D9%84%D8%BA-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-2024-10-15)
