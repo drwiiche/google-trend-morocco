@@ -1,3 +1,34 @@
+### بولندا ضد كرواتيا (N/A, Tue, 15 Oct 2024 13:00:00 -0700)
+
+- **5 أهداف في شوط أول مثير بين بولندا وكرواتيا**: [Link](https://hihi2.com/2024/10/15/p2890192.html)
+- **هدف بولندا الاول في مرمي كرواتيا بدوري الامم الاوروبية**: [Link](https://www.btolat.com/video/80781)
+- **مودريتش أساسي وليفاندوفسكي على مقاعد البدلاء.. تعرف على تشكيل بولندا 
+وكرواتيا**: [Link](https://elghad.news/218012/)
+
+
+### éthiopie – guinée (N/A, Tue, 15 Oct 2024 12:50:00 -0700)
+
+- **11 de départ du Syli contre l’Éthiopie : un seul changement effectué**: [Link](https://guineefoot.info/11-de-depart-du-syli-contre-lethiopie-un-seul-changement-effectue/)
+- **S. Guirassy sur le ballon d’or africain : “C’est un objectif très clair”**: [Link](https://guineenews.org/s-guirassy-sur-le-ballon-dor-africain-cest-un-objectif-tres-clair/)
+- **Éliminatoires CAN 2025: la Guinée se relance grâce à un triplé de Serhou 
+Guirassy**: [Link](https://www.rfi.fr/fr/afrique-foot/20241012-%C3%A9liminatoires-can-2025-la-guin%C3%A9e-se-relance-gr%C3%A2ce-%C3%A0-un-tripl%C3%A9-de-serhou-guirassy)
+
+
+### hakimi (N/A, Tue, 15 Oct 2024 12:50:00 -0700)
+
+- **Histórico Achraf: “No tiene comportamiento de estrella”**: [Link](https://as.com/futbol/internacional/historico-achraf-n/)
+- **Eduardo Inda suelta el bombazo más inesperado: un crack mundial, como loco 
+por fichar por el Madrid**: [Link](https://www.realmadridexclusivo.com/tertulias/eduardo-inda-suelta-bombazo-mas-inesperado-crack-mundial-como-loco-por-fichar-por-madrid_161388_102.html)
+- **El PSG frena en seco el fichaje de un futurible del Real Madrid**: [Link](https://www.bernabeudigital.com/mercado/el-psg-frena-en-seco-el-fichaje-de-un-futurible-del-real-madrid-319450)
+
+
+### match live (N/A, Tue, 15 Oct 2024 12:40:00 -0700)
+
+- **How to watch Mexico vs. Valencia soccer: Live stream, TV channel info**: [Link](https://ftw.usatoday.com/2024/10/how-to-watch-mexico-vs-valencia-soccer-live-stream-tv-channel-info)
+- **Summary: Mexico 2-2 Valencia in Friendly Match**: [Link](https://www.vavel.com/en-us/soccer/2024/10/13/1199898-mexico-vs-valencia-live-score-updates-stream-info-and-how-to-watch-friendly-match.html)
+- **The Good News is That We Didn't Lose: Carlos Rodríguez After Draw**: [Link](https://www.footboom1.com/en/news/football/1928995-the-good-news-is-that-we-didn-t-lose-carlos-rodriguez-after-draw)
+
+
 ### yalla kora (N/A, Tue, 15 Oct 2024 12:40:00 -0700)
 
 - **مصر تتغلّب على موريتانيا وتبلغ النهائيات**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%B5%D8%B1-%D8%AA%D8%AA%D8%BA%D9%84-%D8%A8-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D8%AA%D8%A8%D9%84%D8%BA-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-2024-10-15)
