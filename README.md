@@ -1,3 +1,10 @@
+### república centroafricana - marruecos (N/A, Tue, 15 Oct 2024 11:50:00 -0700)
+
+- **Histórico Achraf: “No tiene comportamiento de estrella”**: [Link](https://as.com/futbol/internacional/historico-achraf-n/)
+- **Marruecos retoma sus entrenamientos tras golear a República Centroafricana**: [Link](https://es.rue20.com/2024/10/14/marruecos-retoma-sus-entrenamientos-tras-golear-a-republica-centroafricana/)
+- **Pronóstico Marruecos - Rep. Centroafricana: Alineaciones, Apuestas y Cuotas**: [Link](https://www.bettingodds.com/es/noticias/pronostico-marruecos-rep-centroafricana-alineaciones-apuestas-y-cuotas)
+
+
 ### africa cup of nations qualification (N/A, Tue, 15 Oct 2024 11:40:00 -0700)
 
 - **Goals and Highlights for Sudan 2-0 Ghana in Africa Cup of Nations Qualifiers**: [Link](https://www.vavel.com/en-us/soccer/2024/10/15/1200292-sudan-vs-ghana-live-score-updates-stream-info-and-how-to-watch-africa-cup-of-nations-qualifiers.html)
