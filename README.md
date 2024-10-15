@@ -1,3 +1,19 @@
+### الطقس غدًا (N/A, Tue, 15 Oct 2024 13:10:00 -0700)
+
+- **استعدوا للأجواء الشتوية.. الأرصاد تعلن مفاجأة في حالة الطقس اليوم وتوقعات 
+الفترة المقبلة**: [Link](https://www.almasryalyoum.com/news/details/3283177)
+- **الجو هيقلب.. تقلبات جوية حادة تضرب أنحاء الجمهورية.. وسقوط أمطار على هذه 
+المناطق**: [Link](https://zahraa.mr/3406112/%D8%A7%D9%84%D8%AC%D9%88-%D9%87%D9%8A%D9%82%D9%84%D8%A8-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AD%D8%A7%D8%AF%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A3%D9%86%D8%AD%D8%A7%D8%A1/)
+- **انخفاض بدرجات الحرارة نتيجة وجود منخفض جوي بداية من اليوم**: [Link](https://pls48.net/uncategorized/49129.html)
+
+
+### portugal fc (N/A, Tue, 15 Oct 2024 13:10:00 -0700)
+
+- **Rio Ave num cenário ímpar na história**: [Link](https://www.abola.pt/futebol/noticias/rio-ave-num-cenario-impar-na-historia-2024101415084873647)
+- **Bilheteira: Atlético CP x Rio Ave FC (Taça de Portugal)**: [Link](https://rioavefc.pt/destaque/bilheteira-atletico-cp-x-rio-ave-fc-taca-de-portugal/)
+- **Jejum do RIo Ave fora de portas já dura há 19 meses**: [Link](https://www.ojogo.pt/1982309483/jejum-do-rio-ave-fora-de-portas-ja-dura-ha-19-meses/)
+
+
 ### بولندا ضد كرواتيا (N/A, Tue, 15 Oct 2024 13:00:00 -0700)
 
 - **5 أهداف في شوط أول مثير بين بولندا وكرواتيا**: [Link](https://hihi2.com/2024/10/15/p2890192.html)
