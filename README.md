@@ -1,3 +1,10 @@
+### mbappe (N/A, Mon, 14 Oct 2024 21:00:00 -0700)
+
+- **'Fake news': Kylian Mbappé denounces accusations reported by Swedish press**: [Link](https://www.france24.com/en/tv-shows/press-review/20241015-fake-news-kylian-mbapp%C3%A9-denounces-accusations-reported-by-swedish-press)
+- **AMAZING MAGIC TRICK 😨 #shorts**: [Link](https://www.msn.com/en-ie/money/other/amazing-magic-trick-shorts/vi-AA1seSzc?ocid=finance-verthp-feeds)
+- **Deschamps refuses to comment on Mbappe allegations**: [Link](https://www.beinsports.com/en-au/football/laliga/articles-video/deschamps-refuses-to-comment-on-mbappe-allegations-2024-10-15)
+
+
 ### طقس مراكش (N/A, Mon, 14 Oct 2024 21:30:00 -0700)
 
 - **المطارات: الأمطار لم تؤثر على "المنارة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%84%D9%85-%D8%AA%D8%A4%D8%AB%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B1%D8%A9-1447523.html)
