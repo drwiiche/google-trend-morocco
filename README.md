@@ -1,3 +1,26 @@
+### كورة لايف بث مباشر (N/A, Tue, 15 Oct 2024 12:10:00 -0700)
+
+- **بالصور.. الجماهير السعودية تشعل مدرجات الجوهرة المشعة**: [Link](https://m.kooora.com/?n=1361432&o=n)
+- **شاهد إحصائيات الشوط الأول بين السعودية والبحرين**: [Link](https://hihi2.com/2024/10/15/p2890146.html)
+- **مباشر.. مباراة السعودية ضد البحرين (0-0) في تصفيات كأس العالم**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/15/saudi-arabia-vs-bahrain?update=6971741)
+
+
+### comores – tunisie (N/A, Tue, 15 Oct 2024 12:10:00 -0700)
+
+- **Comores - Tunisie: Mejbri d'entrée, Ben Saïd relève Memmich ?**: [Link](https://www.mosaiquefm.net/fr/football/1327555/comores-tunisie-mejbri-d-entree-ben-said-releve-memmich)
+- **CAN : l’équipe de Tunisie obligée de se réfugier dans une caserne**: [Link](https://fennecfootball.com/can-lequipe-de-tunisie-obligee-de-se-refugier-dans-une-caserne/)
+- **Qualifs CAN : La Tunisie piégée par les Comores à domicile**: [Link](https://www.beinsports.com/fr-fr/football/premier-league-african/articles-video/qualifs-can-la-tunisie-pi%C3%A9g%C3%A9e-par-les-comores-%C3%A0-domicile-2024-10-11)
+
+
+### morocco (N/A, Tue, 15 Oct 2024 12:10:00 -0700)
+
+- **GetYourGuide faces scrutiny in Morocco : Allegations of dumping and 
+unqualified providers**: [Link](https://en.yabiladi.com/articles/details/155185/getyourguide-faces-scrutiny-morocco-allegations.html)
+- **Morocco’s Atlantic Initiative and Potential Challenges to Regional 
+Leadership**: [Link](https://carnegieendowment.org/sada/2024/10/moroccos-atlantic-initiative-and-potential-challenges-to-regional-leadership?lang=en)
+- **The Maghreb and the challenges and opportunities of the 21st century**: [Link](https://www.atalayar.com/en/articulo/politics/the-maghreb-and-the-challenges-and-opportunities-of-the-21st-century/20241011140333206225.html)
+
+
 ### república centroafricana - marruecos (N/A, Tue, 15 Oct 2024 11:50:00 -0700)
 
 - **Histórico Achraf: “No tiene comportamiento de estrella”**: [Link](https://as.com/futbol/internacional/historico-achraf-n/)
