@@ -1,3 +1,10 @@
+### colombie – chili (N/A, Tue, 15 Oct 2024 14:00:00 -0700)
+
+- **Le retour triomphal de la Colombie sur la scène internationale**: [Link](https://www.footmercato.net/a3411382283003706556-le-retour-triomphal-de-la-colombie-sur-la-scene-internationale)
+- **Pronostic Colombie - Chili, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/colombie-chili-220722/)
+- **Qualifs. CDM 26: Un alléchant programme en Asie et en Amérique du Sud !**: [Link](https://www.lopinion.ma/Qualifs-CDM-26-Un-allechant-programme-en-Asie-et-en-Amerique-du-Sud-_a59024.html)
+
+
 ### portugal (N/A, Tue, 15 Oct 2024 13:30:00 -0700)
 
 - **Tempestade Leslie chega a Portugal continental**: [Link](https://www.rtp.pt/noticias/pais/tempestade-leslie-chega-a-portugal-continental_v1607792)
