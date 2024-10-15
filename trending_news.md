@@ -1,3 +1,41 @@
+### إسكتلندا ضد البرتغال (N/A, Tue, 15 Oct 2024 11:00:00 -0700)
+
+- **البرتغال لتحقيق فوز جديد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%88%D8%B2-%D8%AC%D8%AF%D9%8A%D8%AF-2024-10-15)
+- **رونالدو وتعديلات هجومية بتشكيل البرتغال أمام إسكتلندا**: [Link](https://www.kooora.com/?n=1361421)
+- **ترتيب هدافي البرتغال في دوري الأمم الأوروبية حتى الآن**: [Link](https://hihi2.com/2024/10/15/p2889805.html)
+
+
+### إسبانيا ضد صربيا (N/A, Tue, 15 Oct 2024 11:00:00 -0700)
+
+- **موراتا يتصدر هجوم إسبانيا ضد صربيا**: [Link](https://m.kooora.com/?n=1361415&o=n)
+- **إسبانيا تختبر قوتها أمام صربيا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%AE%D8%AA%D8%A8%D8%B1-%D9%82%D9%88%D8%AA%D9%87%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%B5%D8%B1%D8%A8%D9%8A%D8%A7-2024-10-15)
+- **منتخب إسبانيا يواجه صربيا بدون لامين يامال فى دوري الأمم الأوروبية اليوم**: [Link](https://www.youm7.com/story/2024/10/15/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B5%D8%B1%D8%A8%D9%8A%D8%A7-%D8%A8%D8%AF%D9%88%D9%86-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%81%D9%89-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85/6741231)
+
+
+### espagne – serbie (N/A, Tue, 15 Oct 2024 10:50:00 -0700)
+
+- **Espagne-Serbie : streaming gratuit, chaîne TV et compos**: [Link](https://www.football365.fr/espagne-serbie-streaming-gratuit-chaine-tv-et-compos-10206980.html)
+- **PRONOS PARIS RMC Le pari sûr du 15 octobre – Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-15-octobre-ligue-des-nations_AN-202410150499.html)
+- **Pronostic Espagne Serbie : Analyse, cotes et prono du match de Ligue des 
+nations**: [Link](https://www.sofoot.com/breves/pronostic-espagne-serbie-analyse-cotes-et-prono-du-match-de-ligue-des-nations)
+
+
+### écosse – portugal (N/A, Tue, 15 Oct 2024 10:50:00 -0700)
+
+- **Trois internationaux écartés du groupe portugais avant Écosse-Portugal**: [Link](https://trivela.fr/2024/10/15/trois-internationaux-ecartes-du-groupe-portugais-avant-ecosse-portugal/)
+- **Cet arbitre belge va croiser la route de Cristiano Ronaldo !**: [Link](https://www.walfoot.be/news/2024-10-14/cet-arbitre-belge-va-croiser-la-route-de-cristiano-ronaldo-)
+- **Ligue des Nations : Lawrence Visser arbitrera le match de Ligue A entre 
+l'Ecosse et le Portugal**: [Link](https://www.dhnet.be/sports/football/nations-league/2024/10/14/ligue-des-nations-lawrence-visser-arbitrera-le-match-de-ligue-a-entre-lecosse-et-le-portugal-H54Z7MBSCVHZ7JR5MSZP6DUVQY/)
+
+
+### david alaba (N/A, Tue, 15 Oct 2024 09:50:00 -0700)
+
+- **Real Madrid seriously considering January move due to David Alaba recovery**: [Link](https://www.football-espana.net/2024/10/15/real-madrid-seriously-considering-january-move-due-to-david-alaba-recovery)
+- **Key defender’s injury complications forcing Real Madrid to consider January 
+transfer**: [Link](https://madriduniversal.com/key-defenders-injury-complications-forcing-real-madrid-to-consider-january-transfer/)
+- **Concern Grows for David Alaba: Knee Injury Could Signal Career End?**: [Link](https://www.footboom1.com/en/news/football/1939297-concern-grows-for-david-alaba-knee-injury-could-signal-career-end)
+
+
 ### هوبير فيلود (N/A, Tue, 15 Oct 2024 10:30:00 -0700)
 
 - **رسميا/ الجيش الملكي يقيل المدرب البولندي تشيسلاف ميشنيفيتش**: [Link](https://m.elbotola.com/article/2024-10-15-14-12-420.html)
