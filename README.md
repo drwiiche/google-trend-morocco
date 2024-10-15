@@ -1,3 +1,42 @@
+### lesotho – gabon (N/A, Tue, 15 Oct 2024 06:00:00 -0700)
+
+- **Preview: Lesotho vs. Gabon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lesotho/africa-cup-of-nations/preview/preview-lesotho-vs-gabon-prediction-team-news-lineups_555348.html)
+- **Probable Line-Up for Gabon According to Loïc Mendes Mba**: [Link](https://www.footboom1.com/en/news/football/1913803-probable-line-up-for-gabon-according-to-loic-mendes-mba)
+- **2025 AFCON: Lesotho vs Gabon confirmed line-ups**: [Link](https://en.africatopsports.com/2024/10/15/2025-afcon-lesotho-vs-gabon-confirmed-line-ups/)
+
+
+### malawi – sénégal (N/A, Tue, 15 Oct 2024 06:00:00 -0700)
+
+- **Qualifs CAN 2025 : Pape Gueye lance le Sénégal d'un bijou !**: [Link](https://www.beinsports.com/fr-fr/football/premier-league-african/articles-video/qualifs-can-2025-pape-gueye-lance-le-s%C3%A9n%C3%A9gal-d-un-bijou-2024-10-11)
+- **Malawi - Sénégal : sur quelle chaîne et à quelle heure voir le match de la 
+CAN en direct ?**: [Link](https://www.ouest-france.fr/sport/football/equipe-malawi/malawi-senegal-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-la-can-en-direct-cea67e1a-8a35-11ef-a747-441efd5dcd49)
+- **Nampalys Mendy, sur son statut de remplaçant : « Quand on vient en équipe 
+nationale… »**: [Link](https://www.senenews.com/actualites/nampalys-mendy-sur-son-statut-de-remplacant-quand-on-vient-en-equipe-nationale_512239.html)
+
+
+### dgsn (N/A, Tue, 15 Oct 2024 05:50:00 -0700)
+
+- **Plateforme e-blagh : 7.083 signalements traités en 3 mois (DGSN)**: [Link](https://lematin.ma/societe/plateforme-e-blagh-7083-signalements-traites-en-3-mois/246605)
+- **E-Blagh, la grande réussite de la DGSN marocaine**: [Link](https://www.atalayar.com/fr/articulo/nouvelles-technologies-innovation/blagh-grande-reussite-dgsn-marocaine/20241012140000206217.html)
+- **E-Blagh : 20 % des signalements liés au chantage sexuel**: [Link](https://fr.hespress.com/390205-e-blagh-20-des-signalements-lies-au-chantage-sexuel.html)
+
+
+### tanzanie – rd congo (N/A, Tue, 15 Oct 2024 05:50:00 -0700)
+
+- **CAN 2025 (Q) : Tanzanie - RDC en direct, où suivre le match**: [Link](https://sportnewsafrica.com/breve/can-2025-q-tanzanie-rdc-en-direct-ou-suivre-le-match/)
+- **Sébastien Desabre Confirme la Détermination des Léopards Avant le Duel 
+Contre la Tanzanie**: [Link](https://www.journaldekinshasa.com/sebastien-desabre-confirme-la-determination-des-leopards-avant-le-duel-contre-la-tanzanie/)
+- **Elim/CAN 2025: La qualification d’abord pour les Léopards...pour se 
+concentrer sur celle du mondial**: [Link](https://actualite.cd/2024/10/14/elimcan-2025-la-qualification-dabord-pour-les-leopardspour-se-concentrer-sur-celle-du)
+
+
+### مقاييس الأمطار بالمغرب (N/A, Tue, 15 Oct 2024 05:00:00 -0700)
+
+- **نشرة إنذارية: زخات قوية الثلاثاء والأربعاء**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D8%A3%D8%B1-1447856.html)
+- **المضيق في الصدارة..مقاييس الأمطار المسجلة بالمملكة خلال الـ 24 ساعة الماضية**: [Link](https://www.akhbarona.com/national/393784.html)
+- **طقس الثلاثاء: أمطار وزخات رعدية في أغلب مناطق البلاد – اليوم 24**: [Link](https://alyaoum24.com/1922673.html)
+
+
 ### kylian mbappé (N/A, Tue, 15 Oct 2024 04:40:00 -0700)
 
 - **Eduardo Camavinga dismisses rumours of Real Madrid frustration over Kylian 
