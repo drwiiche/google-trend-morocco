@@ -1,3 +1,12 @@
+### earthquake (N/A, Tue, 15 Oct 2024 03:30:00 -0700)
+
+- **Are you ready for the ’big one’? This week you can practice for an 
+earthquake in Oregon**: [Link](https://www.oregonlive.com/weather/2024/10/are-you-ready-for-the-big-one-this-week-you-can-practice-for-an-earthquake-in-oregon.html)
+- **The Great ShakeOut Prepares for Earthquakes**: [Link](https://www.wsiu.org/weather/2024-10-14/the-great-shakeout-prepares-for-earthquakes)
+- **ODU Alerts Test & Earthquake Preparedness Drill: Thursday, 10/17 at 10:17 
+a.m.**: [Link](https://www.odu.edu/announcements/2024/2024-10/2024-10-14/odu-alerts-test-earthquake-preparedness-drill-thursday-1017)
+
+
 ### chine taïwan (N/A, Tue, 15 Oct 2024 03:20:00 -0700)
 
 - **Simulation de blocus de Taïwan : l'art chinois de ne pas aller trop loin ?**: [Link](https://www.france24.com/fr/asie-pacifique/20241014-simulation-de-blocus-de-ta%C3%AFwan-art-chinois-ne-pas-aller-trop-loin-mais-presque-chine-manoeuvres-militaires)
