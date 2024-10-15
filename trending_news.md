@@ -1,3 +1,27 @@
+### الأردن ضد عمان (N/A, Tue, 15 Oct 2024 10:20:00 -0700)
+
+- **قائد عمان: لا نخشى الحضور الجماهيري أمام الأردن**: [Link](https://www.kooora.com/?n=1361145)
+- **السلامي: "واثق من تأهل الأردن لكأس العالم وأتمنى من الجميع أن يكون مؤمنا 
+بذلك"**: [Link](https://m.elbotola.com/article/2024-10-14-17-59-812.html)
+- **مباشر مباراة الأردن ضد عُمان 3-0 في تصفيات كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/15/jordan-v-oman)
+
+
+### سلمان خان (N/A, Tue, 15 Oct 2024 09:40:00 -0700)
+
+- **في خضم توتر ديني.. اغتيال سياسي هندي مسلم في هجوم مسلح**: [Link](https://www.aljazeera.net/news/2024/10/14/%D9%81%D9%8A-%D8%AE%D8%B6%D9%85-%D8%AA%D9%88%D8%AA%D8%B1-%D8%AF%D9%8A%D9%86%D9%8A-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D9%87%D9%86%D8%AF%D9%8A)
+- **تحركات أمنية من السلطات الهندية لحماية سلمان خان بعد اغتيال بابا صديق.. ما 
+القصة؟**: [Link](https://www.elwatannews.com/news/details/7618755)
+- **صديق نجوم بوليود.. من هو بابا صديق الذي هز حادث اغتياله الهند؟**: [Link](https://almashhad.com/article/773112298002792-News/410776388898344-%D8%B5%D8%AF%D9%8A%D9%82-%D9%86%D8%AC%D9%88%D9%85-%D8%A8%D9%88%D9%84%D9%8A%D9%88%D8%AF-%D9%85%D9%86-%D9%87%D9%88-%D8%A8%D8%A7%D8%A8%D8%A7-%D8%B5%D8%AF%D9%8A%D9%82-%D8%A7%D9%84%D8%B0%D9%8A-%D9%87%D8%B2-%D8%AD%D8%A7%D8%AF%D8%AB-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84%D9%87-%D8%A7%D9%84%D9%87%D9%86%D8%AF/)
+
+
+### séisme azrou (N/A, Tue, 15 Oct 2024 08:00:00 -0700)
+
+- **Un séisme d’une magnitude de 4,5 enregistré à Azrou**: [Link](https://ledesk.ma/encontinu/un-seisme-dune-magnitude-de-45-enregistre-a-azrou/)
+- **Séisme de magnitude 4,4 près d'Azrou : un tremblement de terre à faible 
+profondeur secoue la région**: [Link](https://maroc-diplomatique.net/seisme-de-magnitude-44-pres-dazrou-un-tremblement-de-terre-a-faible/)
+- **Séisme à Ain Leuh d'une magnitude de 4,4 sur l'échelle de Richter**: [Link](https://fr.hespress.com/390806-seisme-a-ain-leuh-dune-magnitude-de-44-sur-lechelle-de-richter.html)
+
+
 ### mauritania vs egypt (N/A, Tue, 15 Oct 2024 09:40:00 -0700)
 
 - **Preview: Mauritania vs. Egypt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mauritania-football/africa-cup-of-nations/preview/preview-mauritania-vs-egypt-prediction-team-news-lineups_555355.html)
