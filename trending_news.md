@@ -1,3 +1,18 @@
+### mauritanie – égypte (N/A, Tue, 15 Oct 2024 08:20:00 -0700)
+
+- **Qualifs CAN 2025 : L'Égypte et Salah dominent la Mauritanie**: [Link](https://www.beinsports.com/fr-fr/football/premier-league-african/articles-video/qualifs-can-2025-l-%C3%A9gypte-et-salah-dominent-la-mauritanie-2024-10-11)
+- **CAN – “Inacceptable” : le coach de l’Egypte met un coup de pression au Maroc**: [Link](https://fennecfootball.com/can-inacceptable-le-coach-de-legypte-met-un-coup-de-pression-au-maroc/)
+- **Foot : Salah exempté du match contre la Mauritanie mardi**: [Link](https://www.lefigaro.fr/sports/football/foot-salah-exempte-du-match-contre-la-mauritanie-mardi-20241012)
+
+
+### match maroc 2024 (N/A, Tue, 15 Oct 2024 08:20:00 -0700)
+
+- **Brahim Diaz, leader d’une nouvelle génération de footballeurs «bien élevés»**: [Link](https://sport.le360.ma/football/can/brahim-diaz-leader-dune-nouvelle-generation-de-footballeurs-bien-eleves_A3VDUMHM5ZDYNK5MO7N4J3HYSI/)
+- **Éliminatoires de la CAN Maroc 2025 : Dernière séance d’entraînement avant 
+d’affronter la Centrafrique**: [Link](https://frmf.ma/fr/%D8%A5%D9%82%D8%B5%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025-%D8%A2%D8%AE/)
+- **Maroc-Centrafrique : à quelle heure et sur quelles chaînes?**: [Link](https://medias24.com/2024/10/15/maroc-centrafrique-a-quelle-heure-et-sur-quelles-chaines-2/)
+
+
 ### kemi seba (N/A, Tue, 15 Oct 2024 07:30:00 -0700)
 
 - **Le panafricaniste béninois Kémi Séba interpellé à Paris**: [Link](https://www.lefigaro.fr/actualite-france/le-panafricaniste-beninois-kemi-seba-interpelle-a-paris-20241015)
