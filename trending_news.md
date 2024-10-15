@@ -1,3 +1,17 @@
+### portugal (N/A, Tue, 15 Oct 2024 13:30:00 -0700)
+
+- **Tempestade Leslie chega a Portugal continental**: [Link](https://www.rtp.pt/noticias/pais/tempestade-leslie-chega-a-portugal-continental_v1607792)
+- **Cinco ilhas dos Açores com aviso laranja devido a precipitação**: [Link](https://www.publico.pt/2024/10/13/azul/noticia/cinco-ilhas-acores-aviso-laranja-devido-precipitacao-2107764)
+- **Chuvas e ventos fortes são a previsão do tempo do IPMA**: [Link](https://averdade.com/chuvas-e-ventos-fortes-sao-a-previsao-do-tempo-do-ipma/)
+
+
+### حركاس (N/A, Tue, 15 Oct 2024 13:30:00 -0700)
+
+- **بنحمود: الركراكي أعطى للاعبي الدوري المحلي ما يستحقونه**: [Link](https://www.kooora.com/?n=1361366)
+- **جهود حركاس وبلعامري تلقى الإشادة**: [Link](https://www.hespress.com/%D8%AC%D9%87%D9%88%D8%AF-%D8%AD%D8%B1%D9%83%D8%A7%D8%B3-%D9%88%D8%A8%D9%84%D8%B9%D8%A7%D9%85%D8%B1%D9%8A-%D8%AA%D9%84%D9%82%D9%89-%D8%A7%D9%84%D8%A5%D8%B4%D8%A7%D8%AF%D8%A9-1446893.html)
+- **حركاس يحصل على أسوء تنقيط في مباراة المغرب أفريقيا الوسطى**: [Link](https://rue20.com/845162.html)
+
+
 ### الطقس غدًا (N/A, Tue, 15 Oct 2024 13:10:00 -0700)
 
 - **استعدوا للأجواء الشتوية.. الأرصاد تعلن مفاجأة في حالة الطقس اليوم وتوقعات 
