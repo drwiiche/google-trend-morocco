@@ -1,3 +1,10 @@
+### الأمن الوطني (N/A, Tue, 15 Oct 2024 06:50:00 -0700)
+
+- **وفاة 5 أشخاص وإصابة 246 آخرين خلال الـ 24 ساعة الأخيرة**: [Link](https://www.elbilad.net/national/%D9%88%D9%81%D8%A7%D8%A9-5-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%88%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-246-%D8%A2%D8%AE%D8%B1%D9%8A%D9%86-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84-24-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-134152)
+- **وفاة 8 أشخاص في الحوادث خلال 24سا ..اخبار محلية**: [Link](https://ar.pressbee.net/show8744228.html?title=%D9%88%D9%81%D8%A7%D8%A9-8-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%AF%D8%AB-%D8%AE%D9%84%D8%A7%D9%84-24%D8%B3%D8%A7)
+- **24 قتيلا في حوادث السير بمدن المغرب خلال أسبوع**: [Link](https://lakome2.com/flash-infos/358632/)
+
+
 ### congo – afrique du sud (N/A, Tue, 15 Oct 2024 09:00:00 -0700)
 
 - **Diables Rouges : La liste des 24 joueurs convoqués par Isaac Ngata pour 
