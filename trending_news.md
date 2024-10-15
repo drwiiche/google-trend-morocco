@@ -1,3 +1,12 @@
+### coupe d'afrique 2025 (N/A, Tue, 15 Oct 2024 13:40:00 -0700)
+
+- **Éliminatoires de la CAN 2025 : calendrier et résultats des 3e et 4e journées**: [Link](https://www.france24.com/fr/sports/20241014-%C3%A9liminatoires-de-la-can-2025-calendrier-et-r%C3%A9sultats-des-3e-et-4e-journ%C3%A9es)
+- **CAN CAF TotalEnergies 2025 : L'Algérie et le Cameroun obtiennent leur 
+ticket, la Namibie piétine**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/can-caf-totalenergies-2025-lalgerie-et-le-cameroun-obtiennent-leur-ticket-la-namibie-pietine/)
+- **CAN 2025: après sa qualification, l’Algérie va-t-elle encore boycotter 
+l’édition marocaine?**: [Link](https://www.h24info.ma/can-2025-apres-sa-qualification-lalgerie-va-t-elle-encore-boycotter-ledition-marocaine/)
+
+
 ### colombie – chili (N/A, Tue, 15 Oct 2024 14:00:00 -0700)
 
 - **Le retour triomphal de la Colombie sur la scène internationale**: [Link](https://www.footmercato.net/a3411382283003706556-le-retour-triomphal-de-la-colombie-sur-la-scene-internationale)
