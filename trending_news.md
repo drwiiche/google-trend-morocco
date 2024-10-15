@@ -1,3 +1,36 @@
+### spain vs serbia (N/A, Tue, 15 Oct 2024 11:20:00 -0700)
+
+- **How to watch Spain vs Serbia FOR FREE: TV channel and live stream for 
+Nations League today**: [Link](https://www.standard.co.uk/sport/football/how-to-watch-spain-vs-serbia-free-tv-channel-live-steam-nations-league-today-b1187816.html)
+- **Spain - Serbia live: UEFA Nations League - Football**: [Link](https://www.eurosport.com/football/uefa-nations-league/2024-2025/live-spain-serbia_mtc1561302/live-commentary.shtml)
+- **Watch UEFA Nations League Soccer: Livestream Spain vs. Serbia From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/watch-uefa-nations-league-soccer-livestream-spain-vs-serbia-from-anywhere/)
+
+
+### morocco vs (N/A, Tue, 15 Oct 2024 11:20:00 -0700)
+
+- **Afcon qualifiers 2025 : Morocco crushes Central Africa 5-0**: [Link](https://en.yabiladi.com/articles/details/155101/afcon-qualifiers-2025-morocco-crushes.html)
+- **Preview: Central African Republic vs. Morocco - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/central-african-republic/africa-cup-of-nations/preview/preview-car-vs-morocco-prediction-team-news-lineups_555351.html)
+- **Morocco crush CAR 5-0 as Guirassy grabs hat-trick**: [Link](https://punchng.com/morocco-crush-central-african-republic-5-0-as-guirassy-scores-hat-trick/)
+
+
+### pologne – croatie (N/A, Tue, 15 Oct 2024 11:10:00 -0700)
+
+- **DIRECT. Pologne-Croatie (Ligue des nations A 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/pologne-croatie-live/632577)
+- **Ligue des nations : la Croatie de Caleta-Car (OL) peut se rapprocher du 
+Final 8**: [Link](https://www.olympique-et-lyonnais.com/ligue-des-nations-la-croatie-de-caleta-car-ol-peut-se-rapprocher-du-final-8,342075.html)
+- **UEFA Nations League : Pologne - Croatie - Sur quelle chaîne de TV et à 
+quelle heure ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-uefa-nations-league-pologne-croatie-sur-quelle-chaine-de-tv-et-a-quelle-heure-ij-460834.html)
+
+
+### scotland vs portugal (N/A, Tue, 15 Oct 2024 11:10:00 -0700)
+
+- **Roberto Martínez Comments on Cristiano Ronaldo's Age**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/roberto-mart%C3%ADnez-comments-on-cristiano-ronaldo-s-age-2024-10-14)
+- **Scotland vs Portugal Predictions and Betting Tips: Tartan Army set for more 
+misery**: [Link](https://www.goal.com/en-us/betting/scotland-vs-portugal-predictions-and-betting-tips-tartan-army-set-for-more-misery/bltdaa65cfb1f693529)
+- **'Beyond jealous': Ronaldo delights screaming fans at appearance in Paisley**: [Link](https://uk.news.yahoo.com/beyond-jealous-ronaldo-delights-screaming-103412324.html)
+
+
 ### إسكتلندا ضد البرتغال (N/A, Tue, 15 Oct 2024 11:00:00 -0700)
 
 - **البرتغال لتحقيق فوز جديد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%88%D8%B2-%D8%AC%D8%AF%D9%8A%D8%AF-2024-10-15)
