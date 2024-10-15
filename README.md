@@ -1,3 +1,49 @@
+### bein sport (N/A, Tue, 15 Oct 2024 12:30:00 -0700)
+
+- **مصر تتغلّب على موريتانيا وتبلغ النهائيات**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%B5%D8%B1-%D8%AA%D8%AA%D8%BA%D9%84-%D8%A8-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D8%AA%D8%A8%D9%84%D8%BA-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-2024-10-15)
+- **فراعنة مصر يحجزون مقعدهم في "كان المغرب"**: [Link](https://www.almountakhab.com/node/13205440)
+- **10 محاذير يعلنها الاتحاد الموريتاني قبل مواجهة مصر**: [Link](https://www.kooora.com/?n=1361328)
+
+
+### cta (N/A, Tue, 15 Oct 2024 12:30:00 -0700)
+
+- **CTA Wants Your Feedback As It Creates ‘Roadmap’ For The Future**: [Link](https://blockclubchicago.org/2024/10/11/cta-wants-your-feedback-as-it-creates-roadmap-for-the-future/)
+- **CTA unveils $2.16B budget with goal to boost service in 2025**: [Link](https://www.chicagotribune.com/2024/10/11/cta-unveils-2-16-billion-budget-with-goal-to-boost-service-in-2025/)
+- **Powering Our Transit Future strategic plan**: [Link](https://www.transitchicago.com/strategicplan/)
+
+
+### poland vs croatia (N/A, Tue, 15 Oct 2024 12:30:00 -0700)
+
+- **Preview: Poland vs. Croatia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/poland/uefa-nations-league/preview/preview-poland-vs-croatia-prediction-team-news-lineups_555310.html)
+- **Watch UEFA Nations League Soccer: Livestream Poland vs. Croatia From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/watch-uefa-nations-league-soccer-livestream-poland-vs-croatia-from-anywhere/)
+- **Poland Croatia Nations League Soccer**: [Link](https://lufkindailynews.com/anpa/sports/poland-croatia-nations-league-soccer/image_011ae55f-f808-57e1-8141-1b24c4e53a0b.html)
+
+
+### يلا كورة مباريات اليوم (N/A, Tue, 15 Oct 2024 12:30:00 -0700)
+
+- **مواعيد مباريات اليوم.. قمة ألمانيا ضد هولندا واستكمال تصفيات أمم أفريقيا**: [Link](https://www.youm7.com/story/2024/10/14/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%82%D9%85%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%B6%D8%AF-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D9%88%D8%A7%D8%B3%D8%AA%D9%83%D9%85%D8%A7%D9%84-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D9%85%D9%85/6740022)
+- **أبرز المباريات العربية والعالمية اليوم الإثنين**: [Link](https://24.ae/article/850438/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86)
+- **كأس أمم إفريقيا: برنامج مواجهات اليوم من الدفعة الثالثة لمواجهات الجولة 
+الرابعة**: [Link](https://mj.fekrawe.info/uncategorized/391143/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%81%D8%B9%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9---%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D9%81%D9%83%D8%B1%D8%A9-%D9%88%D9%8A.html)
+
+
+### sports (N/A, Tue, 15 Oct 2024 12:30:00 -0700)
+
+- **NCAA's changes provide benefits for athletes, uncertainty for schools**: [Link](https://www.gonzagabulletin.com/sports/ncaas-changes-provide-benefits-for-athletes-uncertainty-for-schools/article_87148558-84e8-11ef-88fb-e79697ed353d.html)
+- **Mark Stoops, Other Coaches Have No Idea About Changes Going On**: [Link](https://www.yoursportsedge.com/2024/10/11/mark-stoops-other-coaches-have-no-idea-about-changes-going-on/vaughts-views/larryvaught/)
+- **Old-School College Sports Are on the Way Out. What Comes Next?**: [Link](https://olemiss.edu/news/2024/10/sports-nutshell-book-24/index.html)
+
+
+### match today (N/A, Tue, 15 Oct 2024 12:30:00 -0700)
+
+- **AS-W vs BH-W Dream11 Prediction, Fantasy Cricket Tips, Playing XI, Pitch 
+Report & Injury Updates For Match 15**: [Link](https://www.crictracker.com/fantasy-cricket-tips/dream11-as-w-vs-bh-w-dream11-prediction-fantasy-cricket-tips-playing-xi-pitch-report-injury-updates-for-match-15/)
+- **Heat Flourish At Spring Challenge**: [Link](https://www.brisbaneheat.com.au/news/4148638/heat-flourish-at-spring-challenge)
+- **AM-W vs HB-W Dream11 Prediction Today Match 14 Australian Women Spring 
+Challenge T20 2024**: [Link](https://cricketaddictor.com/fantasy-cricket/am-w-vs-hb-w-dream11-prediction-today-match-14-australian-women-spring-challenge-t20-2024/)
+
+
 ### snrt (N/A, Tue, 15 Oct 2024 12:20:00 -0700)
 
 - **Sahara: Le Qatar réaffirme son soutien au plan d'autonomie dans le cadre de 
