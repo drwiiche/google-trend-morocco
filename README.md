@@ -1,3 +1,27 @@
+### africa cup of nations qualification (N/A, Tue, 15 Oct 2024 11:40:00 -0700)
+
+- **Goals and Highlights for Sudan 2-0 Ghana in Africa Cup of Nations Qualifiers**: [Link](https://www.vavel.com/en-us/soccer/2024/10/15/1200292-sudan-vs-ghana-live-score-updates-stream-info-and-how-to-watch-africa-cup-of-nations-qualifiers.html)
+- **2025 AFCON Qualifiers: I am happy we’ve put smile on Sudanese faces - Kwesi 
+Appiah after win over Ghana**: [Link](https://www.modernghana.com/sports/1349097/2025-afcon-qualifiers-i-am-happy-weve-put-smile.html)
+- **LIVE: Sudan vs Ghana – AFCON 2025 qualifier**: [Link](https://www.aljazeera.com/sports/liveblog/2024/10/15/live-sudan-vs-ghana-caf-africa-cup-on-nations-2025-qualifier?update=3248982)
+
+
+### éliminatoires de la can (N/A, Tue, 15 Oct 2024 11:30:00 -0700)
+
+- **Éliminatoires de la CAN 2025 : calendrier et résultats des 3e et 4e journées**: [Link](https://www.france24.com/fr/sports/20241014-%C3%A9liminatoires-de-la-can-2025-calendrier-et-r%C3%A9sultats-des-3e-et-4e-journ%C3%A9es)
+- **CAN CAF TotalEnergies 2025 : L'Algérie et le Cameroun obtiennent leur 
+ticket, la Namibie piétine**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/can-caf-totalenergies-2025-lalgerie-et-le-cameroun-obtiennent-leur-ticket-la-namibie-pietine/)
+- **CAN 2025: après sa qualification, l’Algérie va-t-elle encore boycotter 
+l’édition marocaine?**: [Link](https://www.h24info.ma/can-2025-apres-sa-qualification-lalgerie-va-t-elle-encore-boycotter-ledition-marocaine/)
+
+
+### جمهورية أفريقيا الوسطى ضد المغرب (N/A, Tue, 15 Oct 2024 11:10:00 -0700)
+
+- **تشكيلة "الأسود" أمام إفريقيا الوسطى**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7%D9%89-2-1448099.html)
+- **المنتخب الوطني يلعب بهذا التشكيل**: [Link](https://www.almountakhab.com/node/13205437)
+- **النصيري على رأس تشكيلة المغرب أمام أفريقيا الوسطى**: [Link](https://www.kooora.com/?n=1361420&o=n1000361)
+
+
 ### spain vs serbia (N/A, Tue, 15 Oct 2024 11:20:00 -0700)
 
 - **How to watch Spain vs Serbia FOR FREE: TV channel and live stream for 
