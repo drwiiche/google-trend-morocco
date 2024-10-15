@@ -1,3 +1,11 @@
+### corée du nord (N/A, Tue, 15 Oct 2024 15:50:00 -0700)
+
+- **Pourquoi la Corée du Nord fait sauter des routes la reliant au Sud**: [Link](https://www.20minutes.fr/monde/4115584-20241015-coree-nord-pourquoi-armee-fait-sauter-troncons-routes-reliant-sud)
+- **La Corée du Sud assure être “entièrement prête” face aux tensions qui 
+s'intensifient avec le Nord**: [Link](https://medias24.com/agence-presse/la-coree-du-sud-assure-etre-entierement-prete-face-aux-tensions-qui-sintensifient-avec-le-nord/)
+- **La Corée du Nord fait exploser des tronçons de routes la reliant au Sud**: [Link](https://www.menara.ma/fr/article/la-coree-du-nord-fait-exploser-des-troncons-de-routes-la-reliant-au-sud)
+
+
 ### marine le pen (N/A, Tue, 15 Oct 2024 14:50:00 -0700)
 
 - **Au procès du RN, une ex-assistante parlementaire se définit comme "la porte 
