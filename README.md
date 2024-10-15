@@ -1,3 +1,10 @@
+### طقس اليوم (N/A, Mon, 14 Oct 2024 23:30:00 -0700)
+
+- **أحوال الطقس المرتقبة اليوم الثلاثاء**: [Link](https://ar.le360.ma/societe/KOV2HYTHZBHOJOUMUHAKIGMTOU/)
+- **تراجع كبير في درجات الحرارة في هذه المدن المغربية الثلاثاء؟**: [Link](https://www.ariffino.net/nador-live/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%83%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%81%D9%8A-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D8%AF)
+- **درجات الحرارة الدنيا والعليا المرتقبة غدا الاثنين بالمغرب - تليكسبريس**: [Link](https://telexpresse.com/347554.html)
+
+
 ### rue20 (N/A, Mon, 14 Oct 2024 23:40:00 -0700)
 
 
