@@ -1,3 +1,19 @@
+### الطقس اليوم (N/A, Mon, 14 Oct 2024 22:40:00 -0700)
+
+- **آخر الليالي العجاف.. بيان مهم بشأن الطقس اليوم الإثنين: والأرصاد تُناشد: 
+«توخوا الحذر»**: [Link](https://www.almasryalyoum.com/news/details/3282269)
+- **تستمر لمدة 4 ساعات.. ظاهرة جوية تضرب طرق المحافظات الساعات القادمة**: [Link](https://gate.mwlana.com/46517/%D8%AA%D8%B3%D8%AA%D9%85%D8%B1-%D9%84%D9%85%D8%AF%D8%A9-4-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B7%D8%B1%D9%82-%D8%A7/)
+- **أحذروا للي جاي.. الأرصاد تحذر من طقس الساعات المقبلة بسبب هذه الظاهرة**: [Link](https://zahraa.mr/3401892/%D8%A3%D8%AD%D8%B0%D8%B1%D9%88%D8%A7-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D8%A7/)
+
+
+### wetter (N/A, Mon, 14 Oct 2024 22:30:00 -0700)
+
+- **So kalt wird es: Wetter in Berlin und Brandenburg**: [Link](https://www.moz.de/nachrichten/brandenburg/wetter-in-berlin-und-brandenburg-der-frost-kommt-77585412.html)
+- **Wetter in Berlin heute: Viele Wolken, Temperaturen bis 13 Grad**: [Link](https://www.berliner-zeitung.de/news/wetter-zum-wochenstart-in-berlin-viele-wolken-temperaturen-bis-13-grad-li.2262507)
+- **Wetter in Berlin & Brandenburg: Temperatur-Hammer sorgt für überraschende 
+Herbst-Prognose**: [Link](https://www.berlin-live.de/berlin/wetter/wetter-berlin-temperatur-hammer-herbst-veraenderung-id291407.html)
+
+
 ### حالة الطقس (N/A, Mon, 14 Oct 2024 23:00:00 -0700)
 
 - **آخر الليالي العجاف.. بيان مهم بشأن الطقس اليوم الإثنين: والأرصاد تُناشد: 
