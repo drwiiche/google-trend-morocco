@@ -1,3 +1,19 @@
+### argentine – bolivie (N/A, Tue, 15 Oct 2024 16:10:00 -0700)
+
+- **Argentine-Bolivie : streaming gratuit, chaîne TV et compos**: [Link](https://www.football365.fr/argentine-bolivie-streaming-gratuit-chaine-tv-et-compos-10206990.html)
+- **Villegas : "Nous n'avons pas la défaite en tête"**: [Link](https://www.footboom1.com/fr/news/football/1938680-villegas-we-do-not-have-losing-on-our-minds)
+- **Lionel Messi va rejouer en Argentine**: [Link](https://www.msn.com/fr-fr/sport/football/lionel-messi-va-rejouer-en-argentine/ar-AA1sjjxz)
+
+
+### victoria secret (N/A, Tue, 15 Oct 2024 16:10:00 -0700)
+
+- **The Victoria's Secret Fashion Show returns: How to watch the runway**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2024/10/15/victorias-secret-fashion-show-how-to-watch/75683705007/)
+- **See All the Returning Victoria's Secret Fashion Show Models Walking Their 
+First VSFS Runway (PHOTOS)**: [Link](https://people.com/see-all-the-returning-victoria-s-secret-fashion-show-models-walking-their-first-vsfs-runway-photos-8728705)
+- **Celebrities at the 2024 Victoria’s Secret Fashion Show: All the stars on 
+the pink carpet**: [Link](https://pagesix.com/2024/10/15/photos/all-the-celebrities-at-the-victorias-secret-fashion-show-2024/)
+
+
 ### corée du nord (N/A, Tue, 15 Oct 2024 15:50:00 -0700)
 
 - **Pourquoi la Corée du Nord fait sauter des routes la reliant au Sud**: [Link](https://www.20minutes.fr/monde/4115584-20241015-coree-nord-pourquoi-armee-fait-sauter-troncons-routes-reliant-sud)
