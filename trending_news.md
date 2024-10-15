@@ -1,3 +1,19 @@
+### iran – qatar (N/A, Tue, 15 Oct 2024 08:40:00 -0700)
+
+- **Iran vs Qatar prediction and betting tips on October 15, 2024 – 
+Ratingbet.com**: [Link](https://ratingbet.com/predictions/iran-vs-qatar-prediction-and-betting-tips-on-october-15-2024/)
+- **Brock Purdy throws for 3 TDs and the 49ers beat the Seahawks 36-24 to move 
+atop division**: [Link](https://www.thederrick.com/ap/sports/brock-purdy-throws-for-3-tds-and-the-49ers-beat-the-seahawks-36-24-to/article_00a4d382-d66f-52b3-b0b1-68283e4a80ed.html)
+- **Price of UAV attack: Iran will not host soccer games**: [Link](http://www.israelnationalnews.com/news/397362)
+
+
+### sierra leone – côte d'ivoire (N/A, Tue, 15 Oct 2024 08:40:00 -0700)
+
+- **Preview: Sierra Leone vs. Ivory Coast - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sierra-leone/preview/preview-sierra-leone-vs-ivory-coast-prediction-team-news-lineups_555295.html)
+- **AFCON results wrap: Cote d'Ivoire, Egypt and South Africa dominate**: [Link](https://www.sabcsport.com/soccer/news/afcon-results-wrap-cote-d-ivoire-egypt-and-south-africa-dominate)
+- **Ivory Coast kick on, Senegal and SA eye crucial victories**: [Link](https://supersport.com/tennis/africa-cup-qual/news/ac822a5f-cb70-4223-9984-e73cec39a520/ivory-coast-kick-on-senegal-and-sa-eye-crucial-victories)
+
+
 ### mauritanie – égypte (N/A, Tue, 15 Oct 2024 08:20:00 -0700)
 
 - **Qualifs CAN 2025 : L'Égypte et Salah dominent la Mauritanie**: [Link](https://www.beinsports.com/fr-fr/football/premier-league-african/articles-video/qualifs-can-2025-l-%C3%A9gypte-et-salah-dominent-la-mauritanie-2024-10-11)
