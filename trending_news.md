@@ -1,3 +1,20 @@
+### marine le pen (N/A, Tue, 15 Oct 2024 14:50:00 -0700)
+
+- **Au procès du RN, une ex-assistante parlementaire se définit comme "la porte 
+d'entrée de Marine Le Pen" pour justifier son travail**: [Link](https://www.francetvinfo.fr/politique/front-national/affaire-des-assistants-fn-au-parlement-europeen/au-proces-du-rn-une-ex-assistante-parlementaire-se-definit-comme-la-porte-d-entree-de-marine-le-pen-pour-justifier-son-travail_6839765.html)
+- **Marine Le Pen au procès des assistants parlementaires du FN : « Vous 
+cherchez la petite bête »**: [Link](https://www.lemonde.fr/societe/article/2024/10/15/marine-le-pen-au-proces-des-assistants-parlementaires-du-fn-vous-cherchez-la-petite-bete_6352032_3224.html)
+- **À la barre du tribunal, Marine Le Pen tente d’éviter le naufrage… en vain**: [Link](https://www.marianne.net/societe/police-et-justice/a-la-barre-du-tribunal-marine-le-pen-tente-deviter-le-naufrage-en-vain)
+
+
+### morocco football (N/A, Tue, 15 Oct 2024 12:50:00 -0700)
+
+- **Brahim Diaz: Leader of a New Generation of 'Well-Mannered' Footballers**: [Link](https://www.footboom1.com/en/news/football/1940420-brahim-diaz-leader-of-a-new-generation-of-well-mannered-footballers)
+- **With an Exciting Statement... Regragui Talks About Brahim Diaz's Support 
+for the Moroccan National Team - HIBAPRESS**: [Link](https://www.footboom1.com/en/news/football/1927697-with-an-exciting-statement-regragui-talks-about-brahim-diaz-s-support-for-the-moroccan-national-team-hibapress)
+- **Cent Afr Rep vs. Morocco (15 Oct, 2024) Live Score**: [Link](https://africa.espn.com/football/match/_/gameId/722085)
+
+
 ### coupe d'afrique 2025 (N/A, Tue, 15 Oct 2024 13:40:00 -0700)
 
 - **Éliminatoires de la CAN 2025 : calendrier et résultats des 3e et 4e journées**: [Link](https://www.france24.com/fr/sports/20241014-%C3%A9liminatoires-de-la-can-2025-calendrier-et-r%C3%A9sultats-des-3e-et-4e-journ%C3%A9es)
