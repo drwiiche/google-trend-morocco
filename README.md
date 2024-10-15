@@ -1,3 +1,19 @@
+### corée du sud – irak (N/A, Tue, 15 Oct 2024 03:50:00 -0700)
+
+- **Diffusion Corée du Sud/Irak – Heure et chaîne pour voir le match**: [Link](https://www.parisfans.fr/autour-du-psg/diffusion-coree-du-sud-irak-heure-et-chaine-pour-voir-le-match-721458.html)
+- **Streaming Corée du Sud/Irak : Où et comment voir le match ?**: [Link](https://www.parisfans.fr/autour-du-psg/streaming-coree-du-sud-irak-ou-et-comment-voir-le-match-721518.html)
+
+
+### benjamin mendy (N/A, Tue, 15 Oct 2024 03:20:00 -0700)
+
+- **Benjamin Mendy: Ex-Man City player claiming £11.5m in unpaid wages from 
+club at employment tribunal**: [Link](https://www.bbc.com/sport/football/articles/c4gdyggg977o)
+- **Lawsuit Against Club: Ex-City Player Accuses Teammates of Parties Involving 
+Women and Alcohol**: [Link](https://www.footboom1.com/en/news/football/1937191-lawsuit-against-club-ex-city-player-accuses-teammates-of-parties-involving-women-and-alcohol)
+- **Names of three Manchester City players who lent money for child support, 
+reveals Benjamin Mendy**: [Link](https://sports.yahoo.com/names-three-manchester-city-players-094400620.html)
+
+
 ### earthquake (N/A, Tue, 15 Oct 2024 03:30:00 -0700)
 
 - **Are you ready for the ’big one’? This week you can practice for an 
