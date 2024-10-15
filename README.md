@@ -1,3 +1,25 @@
+### congo – afrique du sud (N/A, Tue, 15 Oct 2024 09:00:00 -0700)
+
+- **Diables Rouges : La liste des 24 joueurs convoqués par Isaac Ngata pour 
+affronter l’Afrique du Sud**: [Link](https://lesechos-congobrazza.com/sport/10480-diables-rouges-la-liste-des-24-joueurs-convoques-par-isaac-ngata-pour-affronter-l-afrique-du-sud)
+- **Éliminatoires CAN 2025: bonne opération pour l’Afrique du Sud et l’Ouganda**: [Link](https://www.rfi.fr/fr/afrique-foot/20241011-%C3%A9liminatoires-can-2025-bonne-op%C3%A9ration-pour-l-afrique-du-sud-et-l-ouganda)
+- **CAF CAN TotalEnergies 2025 : Mokoena, 5 étoiles face au Congo**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/caf-can-totalenergies-2025-mokoena-5-etoiles-face-au-congo/)
+
+
+### مباريات اليوم المغرب (N/A, Tue, 15 Oct 2024 09:00:00 -0700)
+
+- **السودان يعمق محنة غانا ويقترب من بلوغ الكان**: [Link](https://www.kooora.com/?n=1361388)
+- **مفاجئة مدوية في تصفيات "الكان"**: [Link](https://www.elkhabar.com/press/article/251034/%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D9%85%D8%AF%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%86/)
+- **منتخب السودان يحقق فوزاً ثميناً على منتخب غانا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D8%AB%D9%85%D9%8A%D9%86%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%BA%D8%A7%D9%86%D8%A7-2024-10-15)
+
+
+### موريتانيا ضد مصر (N/A, Tue, 15 Oct 2024 08:50:00 -0700)
+
+- **مرموش يقود التشكيل المتوقع للفراعنة أمام موريتانيا**: [Link](https://www.kooora.com/?n=1361295)
+- **مدرب المنتخب المصري حسام حسن يرشح المغرب للفوز بكأس إفريفيا 2025**: [Link](https://rue20.com/845389.html)
+- **موعد مباراة منتخب مصر اليوم في موريتانيا والقنوات الناقلة**: [Link](https://www.almasryalyoum.com/news/details/3283412)
+
+
 ### iran – qatar (N/A, Tue, 15 Oct 2024 08:40:00 -0700)
 
 - **Iran vs Qatar prediction and betting tips on October 15, 2024 – 
