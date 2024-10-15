@@ -1,3 +1,11 @@
+### kemi seba (N/A, Tue, 15 Oct 2024 07:30:00 -0700)
+
+- **Le panafricaniste béninois Kémi Séba interpellé à Paris**: [Link](https://www.lefigaro.fr/actualite-france/le-panafricaniste-beninois-kemi-seba-interpelle-a-paris-20241015)
+- **Arrestation de Kémi Séba en France : Ce qu’on en sait**: [Link](https://lanouvelletribune.info/2024/10/arrestation-de-kemi-seba-en-france-ce-quon-en-sait/)
+- **Qui est Kemi Seba, militant panafricain condamné pour antisémitisme et 
+arrêté ce 14 octobre à Paris ?**: [Link](https://fr.news.yahoo.com/qui-est-kemi-seba-militant-panafricain-condamne-pour-antisemitisme-et-arrete-ce-14-octobre-a-paris-141236557.html)
+
+
 ### توقيت مباراة المغرب اليوم (N/A, Tue, 15 Oct 2024 07:10:00 -0700)
 
 - **تغييرات إجبارية في التشكيل المتوقع للمغرب أمام أفريقيا الوسطى**: [Link](https://www.kooora.com/?n=1361286)
