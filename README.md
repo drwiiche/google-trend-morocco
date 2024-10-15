@@ -1,3 +1,19 @@
+### météo (N/A, Mon, 14 Oct 2024 22:40:00 -0700)
+
+- **Le temps qu'il fera ce lundi 14 octobre 2024**: [Link](https://fr.hespress.com/390541-le-temps-quil-fera-ce-lundi-14-octobre-2024.html)
+- **Pluies et orages durant la semaine en cours, neige sur les sommets du Haut 
+Atlas**: [Link](https://medias24.com/2024/10/14/pluies-et-orages-durant-la-semaine-en-cours-neige-sur-les-sommets-du-haut-atlas/)
+- **Météo. Températures en baisse sur la majeure partie du pays ce lundi 14 
+octobre, avec des averses orageuses dans plusieurs régions**: [Link](https://fr.le360.ma/societe/meteo-temperatures-en-baisse-sur-la-majeure-partie-du-pays-ce-lundi-14-octobre-avec-des-averses_5HUOWM5IHZD5HEUP5USEG2WRYU/)
+
+
+### الطقس (N/A, Mon, 14 Oct 2024 22:40:00 -0700)
+
+- **الأرصاد الجوية تحذر من أمطار رعدية ورياح قوية تضرب عدة مناطق بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A-1447198.html)
+- **طقس الاثنين.. زخات مطرية بعدد من مناطق المملكة**: [Link](https://ar.hibapress.com/details-561858.html)
+- **تعليق الدراسة بورزازات وتنغير بسبب نشرة إنذارية**: [Link](https://aljarida24.ma/p/actualites/290187/)
+
+
 ### cheb bilal (N/A, Mon, 14 Oct 2024 16:40:00 -0700)
 
 - **Le chanteur algérien Cheb Bilal indésirable au Maroc**: [Link](https://www.bladi.net/chanteur-algerien-cheb-bilal-indesirable-maroc,111007.html)
