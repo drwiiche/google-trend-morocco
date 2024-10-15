@@ -1,3 +1,21 @@
+### حالة الطقس (N/A, Mon, 14 Oct 2024 23:00:00 -0700)
+
+- **آخر الليالي العجاف.. بيان مهم بشأن الطقس اليوم الإثنين: والأرصاد تُناشد: 
+«توخوا الحذر»**: [Link](https://www.almasryalyoum.com/news/details/3282269)
+- **تستمر لمدة 4 ساعات.. ظاهرة جوية تضرب طرق المحافظات الساعات القادمة**: [Link](https://gate.mwlana.com/46517/%D8%AA%D8%B3%D8%AA%D9%85%D8%B1-%D9%84%D9%85%D8%AF%D8%A9-4-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B7%D8%B1%D9%82-%D8%A7/)
+- **أحذروا للي جاي.. الأرصاد تحذر من طقس الساعات المقبلة بسبب هذه الظاهرة**: [Link](https://zahraa.mr/3401892/%D8%A3%D8%AD%D8%B0%D8%B1%D9%88%D8%A7-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D8%A7/)
+
+
+### weather (N/A, Mon, 14 Oct 2024 22:50:00 -0700)
+
+- **India vs New Zealand, first Test latest weather updates: Rain forecast in 
+Bengaluru**: [Link](https://www.wisden.com/series/india-vs-new-zealand-m-2024/cricket-news/india-vs-new-zealand-first-test-latest-weather-updates-rain-forecast-in-bengaluru)
+- **IND vs NZ 1st Test Live Streaming: When, where & how to watch India vs New 
+Zealand Live on laptop, mobile, TV**: [Link](https://www.wionews.com/cricket/ind-vs-nz-1st-test-live-streaming-when-where-how-to-watch-india-vs-new-zealand-live-on-laptop-mobile-tv-767514)
+- **Surprise In India Test Squad vs New Zealand. Not Shubman Gill, Rishabh Pant 
+Or KL Rahul, New Vice Ca..**: [Link](https://sports.ndtv.com/india-vs-new-zealand-2024/surprise-in-india-test-squad-vs-new-zealand-not-shubman-gill-rishabh-pant-or-kl-rahul-new-vice-captain-is-6769393)
+
+
 ### météo (N/A, Mon, 14 Oct 2024 22:40:00 -0700)
 
 - **Le temps qu'il fera ce lundi 14 octobre 2024**: [Link](https://fr.hespress.com/390541-le-temps-quil-fera-ce-lundi-14-octobre-2024.html)
