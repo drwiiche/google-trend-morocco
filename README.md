@@ -1,3 +1,11 @@
+### المديرية العامة للأمن الوطني (N/A, Tue, 15 Oct 2024 07:00:00 -0700)
+
+- **منصة "إبلاغ" تعزز مواكبة الأمن لتطور الجرائم الرقمية وتنامي وعي المغاربة**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%B5%D8%A9-%D8%A5%D8%A8%D9%84%D8%A7%D8%BA-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%85%D9%88%D8%A7%D9%83%D8%A8%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D9%84%D8%AA%D8%B7%D9%88%D8%B1-%D8%A7%D9%84-1445743.html)
+- **منصة "إبلاغ" لمكافحة الجريمة الرقمية ترفع مستوى التفاعل مع المؤسسة الأمنية**: [Link](https://rue20.com/844565.html)
+- **من قاعات التحرير - المغرب : منصة "إبلاغ" عالجت 7083 إشعارا حول محتويات 
+رقمية غير مشروعة**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D9%85%D9%86-%D9%82%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%AD%D8%B1%D9%8A%D8%B1/20241011-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86%D8%B5%D8%A9-%D8%A5%D8%A8%D9%84%D8%A7%D8%BA-%D8%B9%D8%A7%D9%84%D8%AC%D8%AA-7083-%D8%A5%D8%B4%D8%B9%D8%A7%D8%B1%D8%A7-%D8%AD%D9%88%D9%84-%D9%85%D8%AD%D8%AA%D9%88%D9%8A%D8%A7%D8%AA-%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B4%D8%B1%D9%88%D8%B9%D8%A9)
+
+
 ### lesotho – gabon (N/A, Tue, 15 Oct 2024 06:00:00 -0700)
 
 - **Preview: Lesotho vs. Gabon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lesotho/africa-cup-of-nations/preview/preview-lesotho-vs-gabon-prediction-team-news-lineups_555348.html)
