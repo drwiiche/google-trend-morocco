@@ -1,3 +1,10 @@
+### mauritania vs egypt (N/A, Tue, 15 Oct 2024 09:40:00 -0700)
+
+- **Preview: Mauritania vs. Egypt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mauritania-football/africa-cup-of-nations/preview/preview-mauritania-vs-egypt-prediction-team-news-lineups_555355.html)
+- **Salah seeks to surpass Abu Trika with the Egyptian national team**: [Link](https://www.ysscores.com/en/news/5234851/Salah-seeks-to-surpass-Abu-Trika-with-the-Egyptian-national-team)
+- **Mostafa Mohamed set to miss Mauritania trip alongside Salah**: [Link](https://www.kingfut.com/2024/10/14/mostafa-mohamed-miss-mauritania/)
+
+
 ### الأمن الوطني (N/A, Tue, 15 Oct 2024 06:50:00 -0700)
 
 - **وفاة 5 أشخاص وإصابة 246 آخرين خلال الـ 24 ساعة الأخيرة**: [Link](https://www.elbilad.net/national/%D9%88%D9%81%D8%A7%D8%A9-5-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%88%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-246-%D8%A2%D8%AE%D8%B1%D9%8A%D9%86-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84-24-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-134152)
