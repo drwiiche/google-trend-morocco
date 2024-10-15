@@ -1,3 +1,12 @@
+### snrt (N/A, Tue, 15 Oct 2024 12:20:00 -0700)
+
+- **Sahara: Le Qatar réaffirme son soutien au plan d'autonomie dans le cadre de 
+la souveraineté du Maroc**: [Link](https://fr.hespress.com/390772-sahara-le-qatar-reaffirme-son-soutien-au-plan-dautonomie-dans-le-cadre-de-la-souverainete-du-maroc.html)
+- **Sahara marocain : la diplomatie parallèle, le nouveau défi des partis 
+politiques**: [Link](https://lematin.ma/nation/sahara-la-diplomatie-parallele-le-nouveau-defi-des-partis-politiques/246893)
+- **Sahara : Le Guatemala réitère sa position**: [Link](https://www.leconomiste.com/flash-infos/sahara-le-guatemala-reitere-sa-position)
+
+
 ### كورة لايف بث مباشر (N/A, Tue, 15 Oct 2024 12:10:00 -0700)
 
 - **بالصور.. الجماهير السعودية تشعل مدرجات الجوهرة المشعة**: [Link](https://m.kooora.com/?n=1361432&o=n)
