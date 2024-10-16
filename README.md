@@ -1,3 +1,10 @@
+### نسبة ملء السدود بالمغرب (N/A, Wed, 16 Oct 2024 02:40:00 -0700)
+
+- **بيانات رسمية: الأمطار ترفع نسبة ملء السدود بالمغرب إلى 29 في المائة**: [Link](https://www.hespress.com/%D8%A8%D9%8A%D8%A7%D9%86%D8%A7%D8%AA-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B1%D9%81%D8%B9-%D9%86%D8%B3%D8%A8%D8%A9-%D9%85%D9%84%D8%A1-%D8%A7%D9%84%D8%B3-1447902.html)
+- **بعد سنوات من الجفاف.. الأمطار تنعش آمال الفلاحين**: [Link](https://ar.le360.ma/economie/42ZVNT5UV5H3BJBM5N7Y7CGZ3U/)
+- **انعكاسات ندرة مياه الشرب تطال المدن الكبرى**: [Link](https://ar.telquel.ma/%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%8A%D8%AD%D8%B0%D8%B1%D9%88%D9%86-%D9%85%D9%86-%D9%81%D8%B9%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84/)
+
+
 ### wissam ben yedder (N/A, Wed, 16 Oct 2024 01:20:00 -0700)
 
 - **Football: One Year of Imprisonment Requested Against Wissam Ben Yedder for 
