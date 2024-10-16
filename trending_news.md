@@ -1,3 +1,11 @@
+### اليوم العالمي للمدير (N/A, Wed, 16 Oct 2024 05:20:00 -0700)
+
+- **يوم المدير العالمي: تعرف على شعار يوم المدير 2024 وأجمل عبارات الاحتفال 
+والمزيد!**: [Link](https://arabgamerz.com/trends/boss-day-2024-which-honor-their-continues-efforts-every-year/)
+- **يوم المدير العالمي 2024.. ما قصة الاحتفال؟**: [Link](https://www.egypttelegraph.com/article/80126/%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-2024-%D9%85%D8%A7-%D9%82%D8%B5%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84)
+- **شعار Boss' day يوم المدير العالمي 2024**: [Link](https://www.msn.com/ar-sa/news/other/%D8%B4%D8%B9%D8%A7%D8%B1-boss-day-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-2024/ar-AA1skvKN?ocid=finance-verthp-feeds)
+
+
 ### نسبة ملء السدود بالمغرب (N/A, Wed, 16 Oct 2024 02:40:00 -0700)
 
 - **بيانات رسمية: الأمطار ترفع نسبة ملء السدود بالمغرب إلى 29 في المائة**: [Link](https://www.hespress.com/%D8%A8%D9%8A%D8%A7%D9%86%D8%A7%D8%AA-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B1%D9%81%D8%B9-%D9%86%D8%B3%D8%A8%D8%A9-%D9%85%D9%84%D8%A1-%D8%A7%D9%84%D8%B3-1447902.html)
