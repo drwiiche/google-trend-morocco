@@ -1,3 +1,11 @@
+### adriana lima (N/A, Tue, 15 Oct 2024 16:30:00 -0700)
+
+- **Lisa Revs Up the Runway as She Opens the 2024 Victoria’s Secret Fashion Show**: [Link](https://www.rollingstone.com/music/music-news/blackpink-lisa-victorias-secret-fashion-show-performance-1235134309/)
+- **Cher Stuns With ‘Strong Enough’ & ‘Believe’ Performance at 2024 Victoria’s 
+Secret Fashion Show**: [Link](https://www.billboard.com/music/music-news/cher-performance-victorias-secret-fashion-show-strong-enough-believe-1235802049/)
+- **Victoria’s Secret Fashion Show 2024: How to watch, where to stream free**: [Link](https://www.al.com/tv/2024/10/victorias-secret-fashion-show-2024-how-to-watch-where-to-stream-free.html)
+
+
 ### البرازيل ضد بيرو (N/A, Tue, 15 Oct 2024 18:10:00 -0700)
 
 - **موعد مباراة البرازيل وبيرو في تصفيات كأس العالم 2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1361361)
