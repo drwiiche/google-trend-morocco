@@ -1,3 +1,26 @@
+### weather (N/A, Tue, 15 Oct 2024 23:00:00 -0700)
+
+- **Machine Learning Can Predict the Weather — and Human Health**: [Link](https://magazine.hms.harvard.edu/articles/machine-learning-can-predict-weather-and-human-health)
+- **New era in forecasting: AI will improve extreme weather warnings**: [Link](https://www.earth.com/news/new-era-in-forecasting-ai-will-improve-extreme-weather-warnings/)
+- **AI Is Changing How Vermont Maps Flood Risks**: [Link](https://www.pbs.org/wgbh/nova/video/ai-is-changing-how-vermont-maps-flood-risks/)
+
+
+### حالة الطقس (N/A, Tue, 15 Oct 2024 23:00:00 -0700)
+
+- **نشرة إنذارية: زخات قوية الثلاثاء والأربعاء**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D8%A3%D8%B1-1447856.html)
+- **المضيق في الصدارة..مقاييس الأمطار المسجلة بالمملكة خلال الـ 24 ساعة الماضية**: [Link](https://www.akhbarona.com/national/393784.html)
+- **الطقس غدا الأربعاء ..أمطار أو زخات رعدية بهذه المناطق**: [Link](https://ar.hibapress.com/details-562587.html)
+
+
+### الطقس (N/A, Tue, 15 Oct 2024 22:50:00 -0700)
+
+- **استعدوا للأجواء الشتوية.. الأرصاد تعلن مفاجأة في حالة الطقس اليوم وتوقعات 
+الفترة المقبلة**: [Link](https://www.almasryalyoum.com/news/details/3283177)
+- **الجو هيقلب.. تقلبات جوية حادة تضرب أنحاء الجمهورية.. وسقوط أمطار على هذه 
+المناطق**: [Link](https://zahraa.mr/3406112/%D8%A7%D9%84%D8%AC%D9%88-%D9%87%D9%8A%D9%82%D9%84%D8%A8-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AD%D8%A7%D8%AF%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A3%D9%86%D8%AD%D8%A7%D8%A1/)
+- **انخفاض بدرجات الحرارة نتيجة وجود منخفض جوي بداية من اليوم**: [Link](https://pls48.net/uncategorized/49129.html)
+
+
 ### brazil vs peru (N/A, Tue, 15 Oct 2024 19:00:00 -0700)
 
 - **Brazil vs Peru Highlights, BRA 4-0 PER, FIFA World Cup 2026 qualifiers: 
