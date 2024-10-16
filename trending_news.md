@@ -1,3 +1,10 @@
+### cheb bilal maroc (N/A, Wed, 16 Oct 2024 07:00:00 -0700)
+
+- **L'Algérien Cheb Bilal persona non grata au festival de la pomme de Midelt**: [Link](https://fr.hespress.com/390914-lalgerien-cheb-bilal-persona-non-grata-au-festival-de-la-pomme-de-midelt.html)
+- **A Midelt, le concert de Cheb Bilal annulé après une polémique**: [Link](https://www.h24info.ma/a-midelt-le-concert-de-cheb-bilal-annule-apres-une-polemique/)
+- **Le chanteur raï algérien Cheb Bilal indésirable au Maroc**: [Link](https://www.tsa-algerie.com/le-chanteur-rai-algerien-cheb-bilal-indesirable-au-maroc/)
+
+
 ### mehdi qotbi (N/A, Wed, 16 Oct 2024 07:40:00 -0700)
 
 - **Le Tout Paris a boudé le raout de Mehdi Qotbi à l’Institut du Monde Arabe**: [Link](https://ledesk.ma/enoff/le-tout-paris-a-boude-le-raout-de-mehdi-qotbi-a-linstitut-du-monde-arabe/)
