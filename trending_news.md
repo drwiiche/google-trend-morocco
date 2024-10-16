@@ -1,3 +1,11 @@
+### brazil vs peru (N/A, Tue, 15 Oct 2024 19:00:00 -0700)
+
+- **Brazil vs Peru Highlights, BRA 4-0 PER, FIFA World Cup 2026 qualifiers: 
+Henrique, Pereira join Raphinha on scoresheet**: [Link](https://sportstar.thehindu.com/football/brazil-vs-peru-live-score-fifa-world-cup-qualifier-bra-v-per-match-updates-goal-lineup-vinicius-highlights-streaming-info/article68758231.ece)
+- **🚨 Argentina and Brazil run riot in CONMEBOL qualifying**: [Link](https://sports.yahoo.com/argentina-brazil-run-riot-conmebol-020000140.html)
+- **Brazil Peru Wcup 2026 Soccer**: [Link](https://lufkindailynews.com/anpa/sports/brazil-peru-wcup-2026-soccer/image_8528f6df-aca6-5500-bc77-c0f8074211bc.html)
+
+
 ### adriana lima (N/A, Tue, 15 Oct 2024 16:30:00 -0700)
 
 - **Lisa Revs Up the Runway as She Opens the 2024 Victoria’s Secret Fashion Show**: [Link](https://www.rollingstone.com/music/music-news/blackpink-lisa-victorias-secret-fashion-show-performance-1235134309/)
