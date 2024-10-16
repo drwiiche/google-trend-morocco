@@ -1,3 +1,10 @@
+### دنيا بطمة (N/A, Wed, 16 Oct 2024 11:50:00 -0700)
+
+- **اسم دنيا بطمة يعود للواجهة.. هل انتحرت في سجنها؟**: [Link](https://www.alarabiya.net/culture-and-art/2024/10/16/%D8%A7%D8%B3%D9%85-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A8%D8%B7%D9%85%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%87%D9%84-%D8%A7%D9%86%D8%AA%D8%AD%D8%B1%D8%AA-%D9%81%D9%8A-%D8%B3%D8%AC%D9%86%D9%87%D8%A7)
+- **حقيقة انتحار الفنانة دنيا بطمة بالسجن**: [Link](https://www.masrawy.com/arts/zoom/details/2024/10/16/2659205/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%86%D8%AA%D8%AD%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A8%D8%B7%D9%85%D8%A9-%D8%A8%D8%A7%D9%84%D8%B3%D8%AC%D9%86)
+- **هل انتحرت المغربية دنيا بطمة؟.. شقيقتها تكشف الحقيقة**: [Link](https://www.almasryalyoum.com/news/details/3284076)
+
+
 ### renault 4l electrique (N/A, Wed, 16 Oct 2024 10:50:00 -0700)
 
 
