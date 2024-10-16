@@ -1,3 +1,12 @@
+### éliminatoires pour la coupe du monde (N/A, Tue, 15 Oct 2024 17:50:00 -0700)
+
+- **INDONÉSIE – SPORT : Les footballeurs néerlandais, avenir de l’archipel ?**: [Link](https://www.gavroche-thailande.com/indonesie-sport-les-footballeurs-neerlandais-avenir-de-larchipel/)
+- **Agentine - Bolivie : "Que Lionel Messi joue aussi longtemps qu'il le peut, 
+c'est tout ce que je lui demande"**: [Link](https://www.eurosport.fr/football/qualif-coupe-du-monde-amsud/2026/agentine-bolivie-que-lionel-messi-joue-aussi-longtemps-quil-le-peut-cest-tout-ce-que-je-lui-demande_sto20045646/story.shtml)
+- **Amsud : Triplé de Messi pour l'Argentine qui pulvérise la Bolivie en 
+éliminatoires du Mondial 2026**: [Link](https://www.lequipe.fr/Football/Actualites/Triple-de-messi-pour-l-argentine-qui-pulverise-la-bolivie-en-eliminatoires-du-mondial-2026/1514037)
+
+
 ### corée (N/A, Wed, 16 Oct 2024 01:30:00 -0700)
 
 - **La Corée du Nord fait exploser des tronçons de routes la reliant au Sud**: [Link](https://www.menara.ma/fr/article/la-coree-du-nord-fait-exploser-des-troncons-de-routes-la-reliant-au-sud)
