@@ -1,3 +1,10 @@
+### kémi seba (N/A, Wed, 16 Oct 2024 15:10:00 -0700)
+
+- **Controversial West African activist Kemi Seba detained in Paris**: [Link](https://www.france24.com/en/france/20241015-controversial-west-african-activist-kemi-seba-detained-in-paris)
+- **BIG condemns detention of African activist Kémi Séba by French Authorities**: [Link](https://www.azernews.az/nation/232633.html)
+- **Beninese anti-French activist Kemi Seba arrested in Paris**: [Link](https://www.africanews.com/2024/10/15/beninese-anti-french-activist-kemi-seba-arrested-in-paris//)
+
+
 ### liam payne (N/A, Wed, 16 Oct 2024 14:50:00 -0700)
 
 - **Liam Payne, former One Direction member, dead at 31**: [Link](https://www.cnn.com/2024/10/16/entertainment/liam-payne-death-one-direction/index.html)
