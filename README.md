@@ -1,3 +1,18 @@
+### البرازيل ضد بيرو (N/A, Tue, 15 Oct 2024 18:10:00 -0700)
+
+- **موعد مباراة البرازيل وبيرو في تصفيات كأس العالم 2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1361361)
+- **تفوق تاريخي كاسح للبرازيل على بيرو**: [Link](https://hihi2.com/2024/10/14/p2888415.html)
+- **تغييرات جذرية في منتخب البرازيل قبل مواجهة بيرو**: [Link](https://24.ae/article/850463/)
+
+
+### laurent vinatier (N/A, Tue, 15 Oct 2024 17:40:00 -0700)
+
+- **A Moscou, le Français Laurent Vinatier condamné à trois ans de prison**: [Link](https://www.lemonde.fr/international/article/2024/10/14/a-moscou-le-francais-laurent-vinatier-condamne-a-trois-ans-de-prison_6351692_3210.html)
+- **La justice russe condamne le Français Laurent Vinatier à trois ans de 
+prison pour ne pas s'être enregistré en tant qu'"agent de l'étranger"**: [Link](https://www.francetvinfo.fr/monde/russie/la-justice-russe-condamne-le-francais-laurent-vinatier-detenu-depuis-juin-a-trois-ans-de-prison-pour-ne-pas-s-etre-enregistre-en-tant-qu-agent-de-l-etranger_6837578.html)
+- **Vidéo. Russie : trois ans de prison pour le chercheur français**: [Link](https://fr.euronews.com/video/2024/10/14/russie-trois-ans-de-prison-pour-le-chercheur-francais)
+
+
 ### brésil – pérou (N/A, Tue, 15 Oct 2024 17:00:00 -0700)
 
 - **Pronostic Brésil - Pérou, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/bresil-perou-220748/)
