@@ -1,3 +1,18 @@
+### météo (N/A, Tue, 15 Oct 2024 23:10:00 -0700)
+
+- **Météo : Météo-France place plusieurs départements en vigilance orange pour 
+les fortes pluies et les inondations !**: [Link](https://www.tameteo.com/actualites/previsions/meteo-meteo-france-place-plusieurs-departements-en-vigilance-orange-pour-les-fortes-pluies-et-les-inondations-alerte-previsions-meteo.html)
+- **Épisode pluvio-orageux durable mercredi et jeudi**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/episode-pluvio-orageux-durable-mercredi-et-jeudi)
+- **Intempéries : une semaine prochaine encore à hauts risques**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2024-10-11/intemperies-une-semaine-prochaine-encore-a-hauts-risques-72681)
+
+
+### طقس (N/A, Tue, 15 Oct 2024 23:00:00 -0700)
+
+- **نشرة إنذارية: زخات قوية الثلاثاء والأربعاء**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D8%A3%D8%B1-1447856.html)
+- **المضيق في الصدارة..مقاييس الأمطار المسجلة بالمملكة خلال الـ 24 ساعة الماضية**: [Link](https://www.akhbarona.com/national/393784.html)
+- **الطقس غدا الأربعاء ..أمطار أو زخات رعدية بهذه المناطق**: [Link](https://ar.hibapress.com/details-562587.html)
+
+
 ### weather (N/A, Tue, 15 Oct 2024 23:00:00 -0700)
 
 - **Machine Learning Can Predict the Weather — and Human Health**: [Link](https://magazine.hms.harvard.edu/articles/machine-learning-can-predict-weather-and-human-health)
