@@ -1,3 +1,10 @@
+### رجوة الحسين (N/A, Wed, 16 Oct 2024 14:30:00 -0700)
+
+- **منتخب الأردن الناجي الوحيد من كابوس الجولة الرابعة**: [Link](https://www.kooora.com/?n=1361496)
+- **الأردن.. وجه الأميرة رجوة يشعل تفاعلا بمباراة عُمان**: [Link](https://arabic.cnn.com/sport/article/2024/10/16/jordan-princess-rajwa-face-reactions-football-match-jordan-oman-worldcup-2026)
+- **بعد عموتة ... سلامي ينتفض ضد “الاساءة” بعد قيادة الأردن لفوز ساحق على عمان**: [Link](https://ar.sport.le360.ma/football/X4VCA4V6KJABZKHNDGQNVU7RT4/)
+
+
 ### دنيا بطمة (N/A, Wed, 16 Oct 2024 11:50:00 -0700)
 
 - **اسم دنيا بطمة يعود للواجهة.. هل انتحرت في سجنها؟**: [Link](https://www.alarabiya.net/culture-and-art/2024/10/16/%D8%A7%D8%B3%D9%85-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A8%D8%B7%D9%85%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%87%D9%84-%D8%A7%D9%86%D8%AA%D8%AD%D8%B1%D8%AA-%D9%81%D9%8A-%D8%B3%D8%AC%D9%86%D9%87%D8%A7)
