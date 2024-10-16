@@ -1,3 +1,20 @@
+### brésil – pérou (N/A, Tue, 15 Oct 2024 17:00:00 -0700)
+
+- **Pronostic Brésil - Pérou, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/bresil-perou-220748/)
+- **Quand le mot « Pérou » déclenche le fou rire des Brésiliens en conférence 
+de presse**: [Link](https://www.sofoot.com/breves/quand-le-mot-perou-declenche-le-fou-rire-des-bresiliens-en-conference-de-presse)
+- **Brésil – Pérou : les compositions probables, chaîne tv et heure**: [Link](https://www.befoot.net/bresil-perou-compositions-probables-chaine-tv-heure/)
+
+
+### uruguay – équateur (N/A, Tue, 15 Oct 2024 16:50:00 -0700)
+
+- **Where to watch Uruguay vs Ecuador live in the USA: Conmebol World Cup 
+Qualifiers**: [Link](https://bolavip.com/en/soccer/where-to-watch-uruguay-vs-ecuador-live-in-the-usa-conmebol-world-cup-qualifiers)
+- **Preview: Uruguay vs. Ecuador - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/uruguay/world-cup/preview/preview-uruguay-vs-ecuador-prediction-team-news-lineups_555356.html)
+- **In Search of Recovery, Bielsa Returns to Basics: Uruguay's Likely Formation 
+- TyC Sports**: [Link](https://www.footboom1.com/en/news/football/1932835-in-search-of-recovery-bielsa-returns-to-basics-uruguay-s-likely-formation-tyc-sports)
+
+
 ### argentina vs bolivia (N/A, Tue, 15 Oct 2024 16:20:00 -0700)
 
 - **Argentina’s expected starting eleven vs. Bolivia**: [Link](https://mundoalbiceleste.com/2024/10/15/argentinas-expected-starting-eleven-vs-bolivia/)
