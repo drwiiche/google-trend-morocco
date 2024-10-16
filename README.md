@@ -1,3 +1,20 @@
+### thomas tuchel (N/A, Wed, 16 Oct 2024 01:50:00 -0700)
+
+- **Find out more about Thomas Tuchel's coaching career**: [Link](https://www.englandfootball.com/articles/2024/Oct/16/thomas-tuchel-coaching-career-biography-20241610)
+- **Thomas Tuchel is a baggage-heavy, intriguing choice that makes sense**: [Link](https://www.theguardian.com/football/2024/oct/15/thomas-tuchel-england-manager-intriguing-choice-makes-sense)
+- **Thomas Tuchel appointed England head coach**: [Link](https://www.thetimes.com/sport/football/article/thomas-tuchel-agrees-new-england-manager-c90909spr)
+
+
+### الطقس اليوم (N/A, Tue, 15 Oct 2024 23:30:00 -0700)
+
+- **«المنخفض يفاجئ الجميع».. الأرصاد تحذر من 3 ظواهر جوية متوقعة خلال الـ72 
+ساعة المقبلة**: [Link](https://www.almasryalyoum.com/news/details/3283634)
+- **أمطار تضرب هذه المناطق.. بيان هام من الأرصاد يكشف ما سيحدث في حالة الطقس 
+الساعات القادمة**: [Link](https://zahraa.mr/3408641/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A8%D9%8A%D8%A7%D9%86-%D9%87%D8%A7%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D8%A3/)
+- **تزايد فرص سقوط الأمطار.. الأرصاد تحذر المواطنين من طقس اليوم الأربعاء 16 
+أكتوبر**: [Link](https://alhorianews.com/%D8%AA%D8%B2%D8%A7%D9%8A%D8%AF-%D9%81%D8%B1%D8%B5-%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%A7%D9%84/)
+
+
 ### éliminatoires pour la coupe du monde (N/A, Tue, 15 Oct 2024 17:50:00 -0700)
 
 - **INDONÉSIE – SPORT : Les footballeurs néerlandais, avenir de l’archipel ?**: [Link](https://www.gavroche-thailande.com/indonesie-sport-les-footballeurs-neerlandais-avenir-de-larchipel/)
