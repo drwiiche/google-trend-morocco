@@ -1,3 +1,12 @@
+### wissam ben yedder (N/A, Wed, 16 Oct 2024 01:20:00 -0700)
+
+- **Football: One Year of Imprisonment Requested Against Wissam Ben Yedder for 
+Sexual Assault While Intoxicated**: [Link](https://www.footboom1.com/en/news/football/1942265-football-one-year-of-imprisonment-requested-against-wissam-ben-yedder-for-sexual-assault-while-intoxicated)
+- **France international facing 10 YEARS in jail for ‘sexually assaulting woman 
+while drunk then leading cops o...**: [Link](https://www.thesun.co.uk/sport/31086656/wissam-ben-yedder-france-jail-sexually-assault/)
+- **Former France international Ben Yedder on trial for sexual assault**: [Link](https://thescore.com/fra_fed/news/3099648/amp)
+
+
 ### thomas tuchel (N/A, Wed, 16 Oct 2024 01:50:00 -0700)
 
 - **Find out more about Thomas Tuchel's coaching career**: [Link](https://www.englandfootball.com/articles/2024/Oct/16/thomas-tuchel-coaching-career-biography-20241610)
