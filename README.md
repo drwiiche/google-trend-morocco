@@ -1,3 +1,11 @@
+### liam payne (N/A, Wed, 16 Oct 2024 14:50:00 -0700)
+
+- **Liam Payne, former One Direction member, dead at 31**: [Link](https://www.cnn.com/2024/10/16/entertainment/liam-payne-death-one-direction/index.html)
+- **Liam Payne Dead at 31 After Fall from Buenos Aires Hotel Room**: [Link](https://www.tmz.com/2024/10/16/liam-payne-dies-hotel-balcony-one-direction/)
+- **One Direction singer Liam Payne found dead in Buenos Aires, local media 
+reports**: [Link](https://www.reuters.com/world/one-direction-singer-liam-payne-found-dead-buenos-aires-local-media-reports-2024-10-16/)
+
+
 ### رجوة الحسين (N/A, Wed, 16 Oct 2024 14:30:00 -0700)
 
 - **منتخب الأردن الناجي الوحيد من كابوس الجولة الرابعة**: [Link](https://www.kooora.com/?n=1361496)
