@@ -1,3 +1,10 @@
+### mehdi qotbi (N/A, Wed, 16 Oct 2024 07:40:00 -0700)
+
+- **Le Tout Paris a boudé le raout de Mehdi Qotbi à l’Institut du Monde Arabe**: [Link](https://ledesk.ma/enoff/le-tout-paris-a-boude-le-raout-de-mehdi-qotbi-a-linstitut-du-monde-arabe/)
+- **Mehdi Qotbi, il Rabat les cartes**: [Link](https://www.liberation.fr/portraits/mehdi-qotbi-il-rabat-les-cartes-20241014_WD7GCHZWAFHLFC22ZCEB65244Q/)
+- **Paris: Vernissage à l’IMA de l’exposition “Rétrospective Mehdi Qotbi”**: [Link](https://www.mapexpress.ma/actualite/culture-et-medias/paris-vernissage-lima-lexposition-retrospective-mehdi-qotbi/)
+
+
 ### طقس اليوم (N/A, Tue, 15 Oct 2024 23:20:00 -0700)
 
 - **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-12-1448176.html)
