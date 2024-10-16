@@ -1,3 +1,11 @@
+### corée (N/A, Wed, 16 Oct 2024 01:30:00 -0700)
+
+- **La Corée du Nord fait exploser des tronçons de routes la reliant au Sud**: [Link](https://www.menara.ma/fr/article/la-coree-du-nord-fait-exploser-des-troncons-de-routes-la-reliant-au-sud)
+- **Pyongyang a détruit des routes et voies ferrées reliant la Corée du Sud**: [Link](https://www.france24.com/fr/vid%C3%A9o/20241015-pyongyang-a-d%C3%A9truit-des-routes-et-voies-ferr%C3%A9es-reliant-la-cor%C3%A9e-du-sud)
+- **Tokyo met en garde contre une «escalade des tensions» dans la péninsule 
+coréenne**: [Link](https://www.tdg.ch/tokyo-met-en-garde-contre-une-escalade-des-tensions-dans-la-peninsule-coreenne-487624915621)
+
+
 ### wetter (N/A, Tue, 15 Oct 2024 23:30:00 -0700)
 
 - **Wetterthema: Nächtliche Tiefstwerte**: [Link](https://www.tagesschau.de/wetter/wetterthema/2024-10-15-tiefstwerte-102.html)
