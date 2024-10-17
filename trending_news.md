@@ -1,3 +1,12 @@
+### kémi séba (N/A, Thu, 17 Oct 2024 02:20:00 -0700)
+
+- **Le suprémaciste noir Kemi Seba en garde à vue pour « intelligence avec une 
+puissance étrangère », selon son avocat**: [Link](https://www.lemonde.fr/societe/article/2024/10/16/le-supremaciste-noir-kemi-seba-en-garde-a-vue-pour-intelligence-avec-une-puissance-etrangere-selon-son-avocat_6353800_3224.html)
+- **Ce que l’on sait de l’arrestation de Kemi Seba à Paris**: [Link](https://www.jeuneafrique.com/1621344/politique/ce-que-lon-sait-de-larrestation-de-kemi-seba-a-paris/)
+- **Arrestation de Kemi Seba : le militant panafricain a été interpellé à Paris 
+par des agents de la DGSI, selon son ONG Urgences panafricanistes**: [Link](https://www.francetvinfo.fr/faits-divers/justice-proces/arrestation-de-kemi-seba-le-militant-panafricain-a-ete-interpelle-a-paris-par-des-agents-de-la-dgsi-selon-son-ong-urgences-panafricanistes_6840059.html)
+
+
 ### cheryl cole (N/A, Wed, 16 Oct 2024 17:40:00 -0700)
 
 - **Former One direction singer Liam Payne dies in hotel balcony fall**: [Link](https://www.bbc.com/news/articles/c1wnxp970pdo)
