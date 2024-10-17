@@ -1,3 +1,11 @@
+### hakim ziyech maroc (N/A, Thu, 17 Oct 2024 06:10:00 -0700)
+
+- **Retour en force de Hakim Ziyech à Galatasaray**: [Link](https://www.bladi.net/retour-force-hakim-ziyech-galatasaray,111026.html)
+- **Maroc : après avoir critiqué le roi, Hakim Ziyech reçoit une très bonne 
+nouvelle !**: [Link](https://fennecfootball.com/maroc-apres-avoir-critique-le-roi-hakim-ziyech-recoit-une-tres-bonne-nouvelle/)
+- **Lions de l’Atlas: Hakim Ziyech de retour à l’entrainement avec Galatasaray**: [Link](https://www.h24info.ma/lions-de-latlas-hakim-ziyech-de-retour-a-lentrainement-avec-galatasaray/)
+
+
 ### maroc algérie guerre (N/A, Wed, 16 Oct 2024 19:10:00 -0700)
 
 - **Selon un média italien, l’Algérie préparerait une guerre de «haute 
