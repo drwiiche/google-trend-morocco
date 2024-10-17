@@ -1,3 +1,11 @@
+### de mistura (N/A, Thu, 17 Oct 2024 11:00:00 -0700)
+
+- **UN envoy proposes Western Sahara partition plan**: [Link](https://www.reuters.com/world/africa/un-envoy-proposes-western-sahara-partition-plan-2024-10-17/)
+- **UN envoy proposes partitioning Western Sahara**: [Link](https://www.woodtv.com/news/international/ap-international/ap-un-envoy-proposes-partitioning-western-sahara/)
+- **Western Sahara: UN Chief Renews Appeal for Re-establishment of Dialogue 
+between Morocco, Algeria**: [Link](https://www.moroccoworldnews.com/2024/10/365783/western-sahara-un-chief-renews-appeal-for-re-establishment-of-dialogue-between-morocco-algeria)
+
+
 ### wissam ben yedder (N/A, Thu, 17 Oct 2024 09:50:00 -0700)
 
 - **Public prosecutor requests prison sentence in Wissam Ben Yedder sexual 
