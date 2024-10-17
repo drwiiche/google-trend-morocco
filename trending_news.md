@@ -1,3 +1,9 @@
+### dan bilzerian (N/A, Thu, 17 Oct 2024 13:10:00 -0700)
+
+- **‘Gaping loophole’ in campaign-finance law: Dan Bilzerian, others give big 
+to politicians**: [Link](https://www.reviewjournal.com/investigations/gaping-loophole-in-campaign-finance-law-dan-bilzerian-others-give-big-to-politicians-3191236/)
+
+
 ### زينب الغزوي (N/A, Thu, 17 Oct 2024 13:00:00 -0700)
 
 - **أيدت فلسطين.. الداخلية الفرنسية تتابع "زينب الغزوي" بتهمة “الدعاية للإرهاب"**: [Link](https://ar.hibapress.com/details-562438.html)
