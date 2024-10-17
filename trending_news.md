@@ -1,3 +1,10 @@
+### يحيى السنوار (N/A, Thu, 17 Oct 2024 06:50:00 -0700)
+
+- **الجيش الاسرائيلي يرجّح مقتل يحيى السنوار في غارة جباليا**: [Link](https://www.alarabiya.net/arab-and-world/2024/10/17/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%8A%D8%B1%D8%AC%D9%91%D8%AD-%D9%85%D9%82%D8%AA%D9%84-%D9%8A%D8%AD%D9%8A%D9%89-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D9%81%D9%8A-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%AC%D8%A8%D8%A7%D9%84%D9%8A%D8%A7)
+- **الجيش الإسرائيلي: احتمال اغتيال السنوار**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%A7%D8%AD%D8%AA%D9%85%D8%A7%D9%84-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%86%D9%88-1449058.html)
+- **عاجل: الجيش الإسرائيلي "يرجح" اغتيال السنوار ولا بيان من حماس حتى اللحظة**: [Link](https://www.bbc.com/arabic/articles/cly64rz19nko)
+
+
 ### hakim ziyech maroc (N/A, Thu, 17 Oct 2024 06:10:00 -0700)
 
 - **Retour en force de Hakim Ziyech à Galatasaray**: [Link](https://www.bladi.net/retour-force-hakim-ziyech-galatasaray,111026.html)
