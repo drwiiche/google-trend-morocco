@@ -1,3 +1,22 @@
+### aljazeera (N/A, Thu, 17 Oct 2024 07:20:00 -0700)
+
+- **Al Jazeera cameraman in a coma after being shot by Israeli forces**: [Link](https://www.aljazeera.com/news/2024/10/17/al-jazeera-cameraman-in-a-coma-after-being-shot-by-israeli-forces)
+- **Press freedom groups demand Israel authorizes medical evacuation of 2 Al 
+Jazeera journalists**: [Link](https://cpj.org/2024/10/press-freedom-groups-demand-israel-authorizes-medical-evacuation-of-2-al-jazeera-journalists/)
+- **‘No one else is going to deliver the truth from Gaza’: An interview with 
+the Palestinian Journalist Syndicate**: [Link](https://mondoweiss.net/2024/10/no-one-else-is-going-to-deliver-the-truth-from-gaza-an-interview-with-the-palestinian-journalist-syndicate/)
+
+
+### yahya sinwar (N/A, Thu, 17 Oct 2024 07:10:00 -0700)
+
+- **Israel says it's 'checking possibility' it killed Hamas leader Yahya Sinwar 
+in Gaza**: [Link](https://www.bbc.com/news/live/cy94zdd0nxlt)
+- **Middle East crisis live: Israeli army says it may have killed Hamas chief 
+Yahya Sinwar**: [Link](https://www.theguardian.com/world/live/2024/oct/17/middle-east-crisis-live-updates-israel-iran-lebanon-gaza-war)
+- **PM directs his aide to tell families that no hostages harmed in incident 
+where terrorist strongly resembling Sinwar was killed**: [Link](https://www.timesofisrael.com/liveblog_entry/pm-directs-his-aide-to-tell-families-that-no-hostages-harmed-in-incident-where-terrorist-strongly-resembling-sinwar-was-killed/)
+
+
 ### يحيى السنوار (N/A, Thu, 17 Oct 2024 06:50:00 -0700)
 
 - **الجيش الاسرائيلي يرجّح مقتل يحيى السنوار في غارة جباليا**: [Link](https://www.alarabiya.net/arab-and-world/2024/10/17/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%8A%D8%B1%D8%AC%D9%91%D8%AD-%D9%85%D9%82%D8%AA%D9%84-%D9%8A%D8%AD%D9%8A%D9%89-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D9%81%D9%8A-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%AC%D8%A8%D8%A7%D9%84%D9%8A%D8%A7)
