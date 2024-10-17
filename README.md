@@ -1,3 +1,10 @@
+### cheryl cole (N/A, Wed, 16 Oct 2024 17:40:00 -0700)
+
+- **Former One direction singer Liam Payne dies in hotel balcony fall**: [Link](https://www.bbc.com/news/articles/c1wnxp970pdo)
+- **Did Liam Payne have any children?**: [Link](https://en.as.com/entertainment/did-liam-payne-have-any-children-n/)
+- **From Cheryl Cole to Kate Cassidy: A Look At Liam Payne's Dating History**: [Link](https://www.editorji.com/amp/web-stories/entertainment/from-cheryl-cole-to-kate-cassidy-a-look-at-liam-paynes-dating-history-1729153767740)
+
+
 ### الطقس اليوم (N/A, Wed, 16 Oct 2024 23:50:00 -0700)
 
 - **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-10-1448768.html)
