@@ -1,3 +1,11 @@
+### de mistura sahara (N/A, Thu, 17 Oct 2024 13:30:00 -0700)
+
+- **UN envoy proposes Western Sahara partition plan**: [Link](https://www.reuters.com/world/africa/un-envoy-proposes-western-sahara-partition-plan-2024-10-17/)
+- **UN envoy proposes partitioning Western Sahara**: [Link](https://thehill.com/homenews/ap/ap-international/ap-un-envoy-proposes-partitioning-western-sahara/)
+- **UN Envoy Proposes Controversial Partition of Western Sahara Between 
+Morocco, Polisario**: [Link](https://www.moroccoworldnews.com/2024/10/365799/un-envoy-proposes-controversial-partition-of-western-sahara-between-morocco-polisario)
+
+
 ### dan bilzerian (N/A, Thu, 17 Oct 2024 13:10:00 -0700)
 
 - **‘Gaping loophole’ in campaign-finance law: Dan Bilzerian, others give big 
