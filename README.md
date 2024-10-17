@@ -1,3 +1,10 @@
+### طقس اليوم (N/A, Wed, 16 Oct 2024 23:40:00 -0700)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-10-1448768.html)
+- **أعلاها في سطات.. مقاييس الأمطار المسجلة بالمملكة خلال الـ 24 ساعة الماضية**: [Link](https://www.akhbarona.com/national/393862.html)
+- **طقس الأربعاء…زخات رعدية بعدد من مناطق المملكة**: [Link](https://aljarida24.ma/p/actualites/291318/)
+
+
 ### kémi séba (N/A, Thu, 17 Oct 2024 02:20:00 -0700)
 
 - **Le suprémaciste noir Kemi Seba en garde à vue pour « intelligence avec une 
