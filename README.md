@@ -1,3 +1,18 @@
+### طقس (N/A, Thu, 17 Oct 2024 00:00:00 -0700)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-10-1448768.html)
+- **أعلاها في سطات.. مقاييس الأمطار المسجلة بالمملكة خلال الـ 24 ساعة الماضية**: [Link](https://www.akhbarona.com/national/393862.html)
+- **الطقس غدا الأربعاء ..أمطار أو زخات رعدية بهذه المناطق**: [Link](https://ar.hibapress.com/details-562587.html)
+
+
+### pleine lune octobre 2024 (N/A, Wed, 16 Oct 2024 22:30:00 -0700)
+
+- **La «pleine lune du chasseur» observable dans le ciel à partir de ce 
+mercredi soir**: [Link](https://www.lefigaro.fr/sciences/la-pleine-lune-du-chasseur-observable-dans-le-ciel-a-partir-de-ce-mercredi-soir-20241017)
+- **Focus: le phénomène des "supers lunes"**: [Link](https://www.rtl.be/page-videos/belgique/focus-le-phenomene-des-supers-lunes/2024-10-17/video/723405)
+- **Événements célestes: Ce qui rend la Pleine Lune d’octobre si particulière**: [Link](https://www.tdg.ch/ce-qui-rend-la-pleine-lune-doctobre-si-particuliere-946493343236)
+
+
 ### حالة الطقس اليوم (N/A, Wed, 16 Oct 2024 23:20:00 -0700)
 
 - **أمطار ورياح على هذه المناطق.. الأرصاد تكشف توقعات طقس الخميس 17 أكتوبر 2024**: [Link](https://www.almasryalyoum.com/news/details/3284491)
