@@ -1,3 +1,11 @@
+### robert lewandowski (N/A, Thu, 17 Oct 2024 12:30:00 -0700)
+
+- **Lewandowski zatrudnia pracowników tylko z jednego kraju. Ma ważny powód**: [Link](https://www.sport.pl/pilka/7,65082,31392967,lewandowski-zatrudnia-pracownikow-tylko-z-jednego-kraju-ma.html)
+- **Rodzinę Lewandowskich czeka wielka zmiana? Hiszpanie zdradzili ich tajemnicę**: [Link](https://sport.fakt.pl/lewandowskiego-czeka-wielka-zmiana-hiszpanie-ujawniaja/10mpbxv)
+- **Lewandowski zamienia rezydencję w Castelldefels na Garraf. Zlecił już 
+generalny remont nabytego domu robotnikom z Polski**: [Link](https://i.pl/lewandowski-zamienia-rezydencje-w-castelldefels-na-garraf-zlecil-juz-generalny-remont-nabytego-domu-robotnikom-z-polski/ar/c2-18883787)
+
+
 ### de mistura (N/A, Thu, 17 Oct 2024 11:00:00 -0700)
 
 - **UN envoy proposes Western Sahara partition plan**: [Link](https://www.reuters.com/world/africa/un-envoy-proposes-western-sahara-partition-plan-2024-10-17/)
