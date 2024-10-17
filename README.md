@@ -1,3 +1,12 @@
+### al jazeera (N/A, Thu, 17 Oct 2024 07:40:00 -0700)
+
+- **Al Jazeera cameraman in a coma after being shot by Israeli forces**: [Link](https://www.aljazeera.com/news/2024/10/17/al-jazeera-cameraman-in-a-coma-after-being-shot-by-israeli-forces)
+- **Press freedom groups demand Israel authorizes medical evacuation of 2 Al 
+Jazeera journalists**: [Link](https://cpj.org/2024/10/press-freedom-groups-demand-israel-authorizes-medical-evacuation-of-2-al-jazeera-journalists/)
+- **Gaza: RSF, with CPJ and FPU, calls on Israel's Defense Minister to urgently 
+evacuate two Al-Jazeera journalists**: [Link](https://rsf.org/en/gaza-rsf-cpj-and-fpu-calls-israels-defense-minister-urgently-evacuate-two-al-jazeera-journalists)
+
+
 ### aljazeera (N/A, Thu, 17 Oct 2024 07:20:00 -0700)
 
 - **Al Jazeera cameraman in a coma after being shot by Israeli forces**: [Link](https://www.aljazeera.com/news/2024/10/17/al-jazeera-cameraman-in-a-coma-after-being-shot-by-israeli-forces)
