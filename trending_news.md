@@ -1,3 +1,11 @@
+### ليام باين (N/A, Wed, 16 Oct 2024 16:50:00 -0700)
+
+- **سقط من شرفة الفندق.. مصرع المغني البريطاني ليام باين في الأرجنتين**: [Link](https://www.skynewsarabia.com/varieties/1748522-%D8%B3%D9%82%D8%B7-%D8%B4%D8%B1%D9%81%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%AF%D9%82-%D9%85%D8%B5%D8%B1%D8%B9-%D8%A7%D9%84%D9%85%D8%BA%D9%86%D9%8A-%D9%84%D9%8A%D8%A7%D9%85-%D8%A8%D8%A7%D9%8A%D9%86-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86)
+- **صدمة لعشاقه .. وفاة ليام باين نجم "وان دايركشن" بعد العثور على جثته بالقرب 
+من فندق**: [Link](https://www.akhbarona.com/culture/393891.html)
+- **العثور على المغني ليام باين ميتا في بوينس أيرس**: [Link](https://kech24.com/%D8%A7%D9%84%D8%B9%D8%AB%D9%88%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D9%86%D9%8A-%D9%84%D9%8A%D8%A7%D9%85-%D8%A8%D8%A7%D9%8A%D9%86-%D9%85%D9%8A%D8%AA%D8%A7-%D9%81%D9%8A-%D8%A8%D9%88%D9%8A%D9%86%D8%B3-%D8%A3%D9%8A%D8%B1%D8%B3.html)
+
+
 ### kémi seba (N/A, Wed, 16 Oct 2024 15:10:00 -0700)
 
 - **Controversial West African activist Kemi Seba detained in Paris**: [Link](https://www.france24.com/en/france/20241015-controversial-west-african-activist-kemi-seba-detained-in-paris)
