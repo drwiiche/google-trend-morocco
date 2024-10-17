@@ -1,3 +1,12 @@
+### acide glyoxylique lissage brésilien (N/A, Thu, 17 Oct 2024 08:20:00 -0700)
+
+- **Lissage brésilien : alerte sanitaire sur les risques liés à ce soin pour 
+les cheveux**: [Link](https://www.lemonde.fr/planete/article/2024/10/16/alerte-sanitaire-sur-les-risques-lies-au-lissage-bresilien-pour-les-cheveux_6353008_3244.html)
+- **Utilisés au Maroc, des produits de lissage brésilien épinglés par les 
+autorités sanitaires en France**: [Link](https://www.yabiladi.com/articles/details/155265/utilises-maroc-produits-lissage-bresilien.html)
+- **Allô le doc : une coiffure en vague qui fait des vagues**: [Link](https://www.tf1.fr/tf1/bonjour-la-matinale-tf1/videos/allo-le-doc-une-coiffure-en-vague-qui-fait-des-vagues-27238900.html)
+
+
 ### aljazeera net (N/A, Wed, 16 Oct 2024 21:50:00 -0700)
 
 
