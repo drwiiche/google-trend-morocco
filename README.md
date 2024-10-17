@@ -1,3 +1,12 @@
+### wissam ben yedder (N/A, Thu, 17 Oct 2024 09:50:00 -0700)
+
+- **Public prosecutor requests prison sentence in Wissam Ben Yedder sexual 
+assault case**: [Link](https://www.getfootballnewsfrance.com/2024/public-prosecutor-requests-prison-sentence-in-wissam-ben-yedder-sexual-assault-case/)
+- **Prosecution requests jail sentence against soccer star Wissam Ben Yedder in 
+sexual assault case**: [Link](https://www.wvnews.com/sports/pro/prosecution-requests-jail-sentence-against-soccer-star-wissam-ben-yedder-in-sexual-assault-case/article_8b951780-7bb1-5ce1-aa68-43698b42af9a.html)
+- **French footballer Ben Yedder on trial for sexual assault**: [Link](https://www.besoccer.com/new/french-footballer-ben-yedder-on-trial-for-sexual-assault-1334334)
+
+
 ### دي ميستورا (N/A, Thu, 17 Oct 2024 08:40:00 -0700)
 
 - **المبعوث الأممي للصحراء يقترح تقسيم الإقليم بين المغرب وجبهة البوليساريو**: [Link](https://www.alhurra.com/morocco/2024/10/17/%D8%A7%D9%84%D9%85%D8%A8%D8%B9%D9%88%D8%AB-%D8%A7%D9%84%D8%A3%D9%85%D9%85%D9%8A-%D9%84%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D9%8A%D9%82%D8%AA%D8%B1%D8%AD-%D8%AA%D9%82%D8%B3%D9%8A%D9%85-%D8%A7%D9%84%D8%A5%D9%82%D9%84%D9%8A%D9%85-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D8%A8%D9%87%D8%A9-%D8%A7%D9%84%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D8%A7%D8%B1%D9%8A%D9%88)
