@@ -1,3 +1,10 @@
+### زينب الغزوي (N/A, Thu, 17 Oct 2024 13:00:00 -0700)
+
+- **أيدت فلسطين.. الداخلية الفرنسية تتابع "زينب الغزوي" بتهمة “الدعاية للإرهاب"**: [Link](https://ar.hibapress.com/details-562438.html)
+- **وزير الداخلية الفرنسي يجر صحافية مغربية إلى القضاء بسبب حرب غزة**: [Link](https://rue20.com/846678.html)
+- **بعد قرار مقاضاتها بالدعاية للإرهاب في فرنسا.. زينب الغزوي تعلن عدم التراجع**: [Link](https://www.echoroukonline.com/%D8%A8%D8%B9%D8%AF-%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%82%D8%A7%D8%B6%D8%A7%D8%AA%D9%87%D8%A7-%D8%A8%D8%A7%D9%84%D8%AF%D8%B9%D8%A7%D9%8A%D8%A9-%D9%84%D9%84%D8%A5%D8%B1%D9%87%D8%A7%D8%A8-%D9%81%D9%8A)
+
+
 ### robert lewandowski (N/A, Thu, 17 Oct 2024 12:30:00 -0700)
 
 - **Lewandowski zatrudnia pracowników tylko z jednego kraju. Ma ważny powód**: [Link](https://www.sport.pl/pilka/7,65082,31392967,lewandowski-zatrudnia-pracownikow-tylko-z-jednego-kraju-ma.html)
