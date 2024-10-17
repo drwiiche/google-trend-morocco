@@ -1,3 +1,12 @@
+### maroc algérie guerre (N/A, Wed, 16 Oct 2024 19:10:00 -0700)
+
+- **Selon un média italien, l’Algérie préparerait une guerre de «haute 
+intensité» contre le Maroc**: [Link](https://fr.le360.ma/politique/selon-un-media-italien-lalgerie-preparerait-une-guerre-de-haute-intensite-contre-le-maroc_KXVWY4DWE5DD5JNGSY2XFJTHJI/)
+- **Le Maroc et l’Algérie se dirigent-ils vers une nouvelle “guerre des sables” 
+?**: [Link](https://www.courrierinternational.com/article/armement-le-maroc-et-l-algerie-se-dirigent-ils-vers-une-nouvelle-guerre-des-sables_223260)
+- **Quand l’Algérie s’emmêle les boussoles et le bon sens …**: [Link](https://maroc-diplomatique.net/quand-lalgerie-semmele-les-boussoles-et-le-bon-sens/)
+
+
 ### طقس اليوم (N/A, Wed, 16 Oct 2024 23:40:00 -0700)
 
 - **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-10-1448768.html)
