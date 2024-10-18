@@ -1,3 +1,20 @@
+### محمد الخلفي (N/A, Fri, 18 Oct 2024 05:00:00 -0700)
+
+- **بعد معاناة طويلة.. نقل الفنان المغربي "محمد الخلفي" في وضع صحي حرج إلى إحدى 
+المصحات الخاصة**: [Link](https://www.akhbarona.com/culture/393983.html)
+- **الفنان محمد الخلفي ينقل إلى مستشفى بالدار البيضاء – اليوم 24**: [Link](https://alyaoum24.com/1923475.html)
+- **"الإشاعة" تنقل محمد الخلفي للمستشفى بشكل مستعجل ومصدر: فحص روتيني**: [Link](https://madar21.com/287802.html)
+
+
+### abdellah taïa (N/A, Fri, 18 Oct 2024 05:00:00 -0700)
+
+- **Abdellah Taïa : « Enfant, j’étais devenu le petit objet sexuel des hommes 
+du quartier »**: [Link](https://www.jeuneafrique.com/1620066/culture/abdellah-taia-enfant-jetais-devenu-le-petit-objet-sexuel-des-hommes-du-quartier/)
+- **Littérature. L’écrivain marocain Abdellah Taïa remporte le prix de la 
+Langue française 2024**: [Link](https://fr.le360.ma/culture/litterature-lecrivain-marocain-abdellah-taia-remporte-le-prix-de-la-langue-francaise-2024_IKFGS5PFOREUTPEYOD377WVQZU/)
+- **« Le Bastion des larmes », roman de la colère et du pardon**: [Link](https://www.lesechos.fr/weekend/livres-expositions/le-bastion-des-larmes-roman-de-la-colere-et-du-pardon-2126127)
+
+
 ### الجزيرة نت (N/A, Thu, 17 Oct 2024 08:20:00 -0700)
 
 - **عاجل | وسائل إعلام إسرائيلية: بلاغ عن إطلاق نار باتجاه جنود إسرائيليين في 
