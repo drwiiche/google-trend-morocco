@@ -1,3 +1,19 @@
+### monaco – lille (N/A, Fri, 18 Oct 2024 11:10:00 -0700)
+
+- **Adi Hütter (AS Monaco - LOSC) : "Zhegrova est l'un des meilleurs, Bouaddi 
+un talent incroyable"**: [Link](https://lepetitlillois.com/2024/10/18/adi-hutter-as-monaco-losc-zhegrova-est-lun-des-meilleurs-bouaddi-un-talent-incroyable/)
+- **Real Madrid, système, absents... Ce qu'il faut savoir sur Lille**: [Link](https://www.asmonaco.com/real-madrid-systeme-absents-ce-quil-faut-savoir-sur-lille/)
+- **📺[8J-L1] Programme TV de tous les matches**: [Link](https://www.lestitisdupsg.fr/a-la-une/%F0%9F%93%BA8j-l1-programme-tv-de-tous-les-matches/)
+
+
+### deportivo alavés – valladolid (N/A, Fri, 18 Oct 2024 11:10:00 -0700)
+
+- **Las posibles alineaciones del Alavés para la jornada 10 según la prensa 
+especializada**: [Link](https://www.futbolfantasy.com/laliga/noticias/120970-las-posibles-alineaciones-del-alaves-para-la-jornada-10-segun-la-prensa-especializada)
+- **Once titular del Valladolid con la vuelta de Javi Sánchez**: [Link](https://www.jornadaperfecta.com/blog/once-valladolid-j10-javi-sanchez/)
+- **"Es un partido muy importante porque es un rival directo"**: [Link](https://www.eldiadevalladolid.com/noticia/z34144deb-db9c-fef7-dc1b0b955dba77c7/202410/es-un-partido-muy-importante-porque-es-un-rival-directo)
+
+
 ### dortmund – sankt pauli (N/A, Fri, 18 Oct 2024 11:00:00 -0700)
 
 - **Match Preview: Dortmund Welcome St. Pauli Back to the Westfalenstadion**: [Link](https://www.fearthewall.com/2024/10/17/24272685/match-preview-dortmund-welcome-st-pauli-back-to-the-westfalenstadion)
