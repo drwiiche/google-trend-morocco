@@ -1,3 +1,10 @@
+### conseil des ministres maroc (N/A, Fri, 18 Oct 2024 10:40:00 -0700)
+
+- **Le roi Mohammed VI préside un Conseil des ministres**: [Link](https://fr.le360.ma/politique/le-roi-mohammed-vi-preside-un-conseil-des-ministres_AR44ZDNZQVBVNKXA7IZ3I5JG4E/)
+- **Le Roi Mohammed VI préside un Conseil des ministres**: [Link](https://medias24.com/2024/10/18/le-roi-mohammed-vi-preside-un-conseil-des-ministres-4/)
+- **Sa Majesté le Roi préside un Conseil des ministres**: [Link](https://aujourdhui.ma/actualite/sa-majeste-le-roi-preside-un-conseil-des-ministres-2)
+
+
 ### al shabab – al-nassr fc (N/A, Fri, 18 Oct 2024 10:20:00 -0700)
 
 - **Al-Shabab vs Al-Nassr: Where and how to watch live Saudi Pro League 2024-25 
