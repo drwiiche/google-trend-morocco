@@ -1,3 +1,14 @@
+### plus belle la vie encore plus belle (N/A, Fri, 18 Oct 2024 10:00:00 -0700)
+
+- **Plus belle la vie, encore plus belle du jeudi 17 octobre 2024 - Episode 193**: [Link](https://www.tf1.fr/tf1/plus-belle-la-vie/videos/plus-belle-la-vie-encore-plus-belle-du-jeudi-17-octobre-2024-episode-193-86753383.html)
+- **Léa et Gabriel triomphent dans l'affaire de l'empoisonneur : Un duo à la 
+hauteur de Miss Marple et Sherlock ! - Plus belle la vie 21 octobre 2024 
+(épisode 195 - résumé complet PBLV)**: [Link](https://www.nouveautes-tele.com/269623-lea-et-gabriel-triomphent-dans-laffaire-de-lempoisonneur-un-duo-a-la-hauteur-de-miss-marple-et-sherlock-plus-belle-la-vie-21-octobre-2024-episode-195-resume-complet-pblv.html)
+- **Plus belle la vie en avance : Robert est innocent, l'empoisonnement est 
+accidentel ! Louis Robbie coincé derrière une grille de la laverie de la 
+résidence... Le résumé de l’épisode 1945 du lundi 21 octobre 2024**: [Link](https://www.programme-tv.net/news/series-tv/363033-plus-belle-la-vie-en-avance-robert-est-innocent-l-empoisonnement-est-accidentel-louis-robbie-coince-derriere-une-grille-de-la-laverie-de-la-residence-le-resume-de-lepisode-1945-du-lundi-21-octobre-2024/)
+
+
 ### onu sahara occidental (N/A, Fri, 18 Oct 2024 09:00:00 -0700)
 
 - **n°999. Ce que Staffan de Mistura veut dire par « partition » du Sahara**: [Link](https://ledesk.ma/enclair/ce-que-staffan-de-mistura-veut-dire-par-partition-du-sahara/)
