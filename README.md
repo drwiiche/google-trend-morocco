@@ -1,3 +1,12 @@
+### onu sahara occidental (N/A, Fri, 18 Oct 2024 09:00:00 -0700)
+
+- **n°999. Ce que Staffan de Mistura veut dire par « partition » du Sahara**: [Link](https://ledesk.ma/enclair/ce-que-staffan-de-mistura-veut-dire-par-partition-du-sahara/)
+- **De Mistura: "Le moment est venu" de s'intéresser à la proposition 
+d'autonomie au Sahara**: [Link](https://fr.hespress.com/391290-de-mistura-le-moment-est-venu-de-sinteresser-a-la-proposition-dautonomie-au-sahara.html)
+- **Exclu Maroc Hebdo. De Mistura n’a pas formulé de proposition pour partager 
+le Sahara (source diplomatique à l’ONU)**: [Link](https://www.maroc-hebdo.press.ma/exclu-maroc-hebdo-mistura-na-pas-formule-proposition-partager-sahara-source-diplomatique-lonu)
+
+
 ### يحيى السنوار حركة حماس (N/A, Fri, 18 Oct 2024 02:40:00 -0700)
 
 - **هاجم الجنود بقنابل وأصاب أحدهم.. إسرائيل تكشف آخر لحظات الاشتباك مع السنوار**: [Link](https://www.aljazeera.net/news/2024/10/18/%D8%A3%D9%84%D9%82%D9%89-%D9%82%D9%86%D8%A8%D9%84%D8%AA%D9%8A%D9%86-%D9%88%D8%A3%D8%B5%D8%A7%D8%A8-%D8%AC%D9%86%D8%AF%D9%8A%D8%A7-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D9%83%D8%B4%D9%81)
