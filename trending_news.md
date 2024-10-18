@@ -1,3 +1,22 @@
+### dortmund – sankt pauli (N/A, Fri, 18 Oct 2024 11:00:00 -0700)
+
+- **Match Preview: Dortmund Welcome St. Pauli Back to the Westfalenstadion**: [Link](https://www.fearthewall.com/2024/10/17/24272685/match-preview-dortmund-welcome-st-pauli-back-to-the-westfalenstadion)
+- **Expected Borussia Dortmund lineup for Bundesliga match vs St. Pauli**: [Link](https://bvbbuzz.com/expected-borussia-dortmund-lineup-for-bundesliga-match-vs-st-pauli-01jackjd5rqj/2)
+- **Preview: Borussia Dortmund vs. St Pauli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/borussia-dortmund/preview/preview-dortmund-vs-st-pauli-prediction-team-news-lineups_555561.html)
+
+
+### الشباب ضد النصر (N/A, Fri, 18 Oct 2024 10:50:00 -0700)
+
+- **حمدالله أمام النصر.. 3 أهداف وانتصاران**: [Link](https://www.alarabiya.net/sport/2024/10/17/%D8%AD%D9%85%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-3-%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%88%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D9%8A%D9%86)
+- **تشكيل الديربي: تغيير وحيد في النصر.. وحمد الله يعود للشباب**: [Link](https://m.kooora.com/?n=1362011&o=n27332)
+- **حمد الله وجها لوجه أمام رونالدو بحثا عن المقدمة**: [Link](https://ar.sport.le360.ma/football/lions-atlas/IMQBP3FULNGELC3ZH4TBFDSZA4/)
+
+
+### rue20 (N/A, Fri, 18 Oct 2024 10:50:00 -0700)
+
+
+
+
 ### conseil des ministres maroc (N/A, Fri, 18 Oct 2024 10:40:00 -0700)
 
 - **Le roi Mohammed VI préside un Conseil des ministres**: [Link](https://fr.le360.ma/politique/le-roi-mohammed-vi-preside-un-conseil-des-ministres_AR44ZDNZQVBVNKXA7IZ3I5JG4E/)
