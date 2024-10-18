@@ -1,3 +1,11 @@
+### يحيى السنوار حركة حماس (N/A, Fri, 18 Oct 2024 02:40:00 -0700)
+
+- **هاجم الجنود بقنابل وأصاب أحدهم.. إسرائيل تكشف آخر لحظات الاشتباك مع السنوار**: [Link](https://www.aljazeera.net/news/2024/10/18/%D8%A3%D9%84%D9%82%D9%89-%D9%82%D9%86%D8%A8%D9%84%D8%AA%D9%8A%D9%86-%D9%88%D8%A3%D8%B5%D8%A7%D8%A8-%D8%AC%D9%86%D8%AF%D9%8A%D8%A7-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D9%83%D8%B4%D9%81)
+- **مصادر العربية: السنوار كان على خلاف مع قيادات حماس بالخارج.. ورفض تنفيذ 
+توصيات إيرانية**: [Link](https://www.alarabiya.net/arab-and-world/2024/10/18/%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D9%83%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%AE%D9%84%D8%A7%D9%81-%D9%85%D8%B9-%D9%82%D9%8A%D8%A7%D8%AF%D8%A7%D8%AA-%D8%AD%D9%85%D8%A7%D8%B3-%D8%A8%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC-%D9%88%D8%B1%D9%81%D8%B6-%D8%AA%D9%86%D9%81%D9%8A%D8%B0-%D8%AA%D9%88%D8%B5%D9%8A%D8%A7%D8%AA-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9)
+- **فيديو يظهر لحظة قصف دبابة إسرائيلية المبنى الذي كان يتواجد فيه يحيى السنوار**: [Link](https://arabic.cnn.com/middle-east/video/2024/10/18/v163930-gaza-video-shows-moment-of-firing-on-the-building-where-sinwar-was-located)
+
+
 ### ferrari f80 (N/A, Fri, 18 Oct 2024 07:30:00 -0700)
 
 - **Ferrari Unveils First Supercar in 11 Years Costing €3.6 Million**: [Link](https://www.bloomberg.com/news/articles/2024-10-17/ferrari-unveils-first-supercar-in-11-years-costing-3-6-million)
