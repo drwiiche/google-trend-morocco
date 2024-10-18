@@ -1,3 +1,10 @@
+### sinwar (N/A, Thu, 17 Oct 2024 07:40:00 -0700)
+
+- **Israel says it has killed Hamas leader Yahya Sinwar in Gaza**: [Link](https://apnews.com/article/israel-palestinians-hamas-lebanon-hezbollah-news-10-17-2024-d12ca71945313e601cf10876072f4182)
+- **US hails Israeli announcement of killing Sinwar, calls for Gaza ‘day after’**: [Link](https://www.aljazeera.com/news/2024/10/17/us-hails-israeli-announcement-of-killing-sinwar-calls-for-gaza-day-after)
+- **After Sinwar's Death, Israel Must Press Ahead With a Hostage Deal**: [Link](https://www.haaretz.com/israel-news/2024-10-17/ty-article/.premium/after-sinwars-death-israel-must-press-ahead-with-a-hostage-deal/00000192-9bc6-d9c2-a7f3-9fc6fc7a0000)
+
+
 ### ispits (N/A, Thu, 17 Oct 2024 13:40:00 -0700)
 
 - **مباراة ولوج معاهد التكوين المهني في الميدان الصحي**: [Link](https://febrayer.com/1076094.html)
