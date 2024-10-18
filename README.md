@@ -1,3 +1,11 @@
+### onu sahara marocain (N/A, Fri, 18 Oct 2024 11:40:00 -0700)
+
+- **n°999. Ce que Staffan de Mistura veut dire par « partition » du Sahara**: [Link](https://ledesk.ma/enclair/ce-que-staffan-de-mistura-veut-dire-par-partition-du-sahara/)
+- **Mohamed Talib : le Maroc ne cédera pas un pouce de son territoire**: [Link](https://fr.hespress.com/391326-mohamed-talib-le-maroc-ne-cedera-pas-un-pouce-de-son-territoire.html)
+- **Sahara : voici les recommandations émanant du dernier rapport d’Antonio 
+Guterres**: [Link](https://medias24.com/2024/10/17/sahara-voici-ce-que-proposent-les-recommandations-du-dernier-rapport-dantonio-guterres/)
+
+
 ### معاذ الجامعي (N/A, Fri, 18 Oct 2024 11:40:00 -0700)
 
 - **قانون المالية/مراسيم عسكرية/ تعيينات في مناصب عليا/ جلالة الملك يترأس مجلسا 
