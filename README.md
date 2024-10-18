@@ -1,3 +1,10 @@
+### جلول صمصم (N/A, Fri, 18 Oct 2024 12:20:00 -0700)
+
+- **نبذة عن جلول صمصم الذي عين واليا مديرا عاما للجماعات الترا?...**: [Link](https://kech24.com/%D9%86%D8%A8%D8%B0%D8%A9-%D8%B9%D9%86-%D8%AC%D9%84%D9%88%D9%84-%D8%B5%D9%85%D8%B5%D9%85-%D8%A7%D9%84%D8%B0%D9%8A-%D8%B9%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D9%8A%D8%A7-%D9%85%D8%AF%D9%8A%D8%B1%D8%A7-%D8%B9%D8%A7%D9%85%D8%A7-%D9%84%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9.html)
+- **صمصم.. رجل المهام الكبرى الذي عين واليا للمديرية العامة للجماعات الترابية 
+(نبذة)**: [Link](https://le12.ma/article/530398/)
+
+
 ### alavés vs valladolid (N/A, Fri, 18 Oct 2024 14:10:00 -0700)
 
 - **Preview: Alaves vs. Real Valladolid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/alaves/preview/preview-alaves-vs-valladolid-prediction-team-news-lineups_555535.html)
