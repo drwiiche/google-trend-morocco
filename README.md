@@ -1,3 +1,11 @@
+### teams (N/A, Fri, 18 Oct 2024 01:00:00 -0700)
+
+- **Which NBA teams will be best (and worst) on defense this season? Projecting 
+where all 30 squads will finish**: [Link](https://www.cbssports.com/nba/news/which-nba-teams-will-be-best-and-worst-on-defense-this-season-projecting-where-all-30-squads-will-finish/)
+- **Which NBA Teams Will Dominate Offense in 2023-24? Full Rankings!**: [Link](https://bvmsports.com/2024/10/16/which-nba-teams-will-dominate-offense-in-2023-24-full-rankings/)
+- **NBA Offense Predictions: The Best and Worst Teams for the Upcoming Season**: [Link](https://www.footboom1.com/en/news/basketball/1947473-nba-offense-predictions-the-best-and-worst-teams-for-the-upcoming-season)
+
+
 ### alyaoum24 (N/A, Thu, 17 Oct 2024 22:40:00 -0700)
 
 
