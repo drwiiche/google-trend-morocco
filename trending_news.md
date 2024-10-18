@@ -1,3 +1,11 @@
+### dortmund (N/A, Fri, 18 Oct 2024 12:20:00 -0700)
+
+- **Liveticker | Borussia Dortmund - FC St. Pauli : | 7. Spieltag | Bundesliga 
+2024/25**: [Link](https://www.kicker.de/dortmund-gegen-st-pauli-2024-bundesliga-4936841/ticker)
+- **📷 Wie knapp kann eine Entscheidung sein? Der BVB im Millimeter-Glück!**: [Link](https://onefootball.com/de/news/wie-knapp-kann-eine-entscheidung-sein-der-bvb-im-millimeter-glueck-40186533)
+- **Jetzt live: Lässt sich Kobel vom schwächsten Angriff der Liga düpieren?**: [Link](https://sport.ch/topnews/1362174/jetzt-live-laesst-sich-kobel-vom-schwaechsten-angriff-der-liga-duepieren)
+
+
 ### usm alger – cr belouizdad (N/A, Fri, 18 Oct 2024 12:00:00 -0700)
 
 - **Après la CAF, l’USMA reçoit une autre terrible nouvelle**: [Link](https://fennecfootball.com/apres-la-caf-lusma-recoit-une-autre-terrible-nouvelle/)
