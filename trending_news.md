@@ -1,3 +1,38 @@
+### معاذ الجامعي (N/A, Fri, 18 Oct 2024 11:40:00 -0700)
+
+- **قانون المالية/مراسيم عسكرية/ تعيينات في مناصب عليا/ جلالة الملك يترأس مجلسا 
+للوزراء**: [Link](https://rue20.com/847159.html)
+- **وفاء جمالي، لطيفة مفتقر وسعيد الليث بين مسؤولين عينهم الملك على رأس مؤسسات 
+جديدة – اليوم 24**: [Link](https://alyaoum24.com/1923746.html)
+- **أبرزهم الشامي والفردوس .. الملك يعين عددا من السفراء الجدد**: [Link](https://al3omk.com/1016600.html)
+
+
+### chakib benmoussa (N/A, Fri, 18 Oct 2024 11:40:00 -0700)
+
+- **Benmoussa succède à Lahlimi à la tête du HCP, Lahlimi décoré**: [Link](https://medias24.com/2024/10/18/benmoussa-succede-a-lahlimi-a-la-tete-du-hcp-lahlimi-decore/)
+- **SM le Roi nomme Chakib Benmoussa Haut Commissaire au Plan**: [Link](https://www.leconomiste.com/flash-infos/sm-le-roi-nomme-chakib-benmoussa-haut-commissaire-au-plan)
+- **Chakib Benmoussa nommé Haut Commissaire au Plan en remplacement de Lahlimi**: [Link](https://fr.hespress.com/391420-chakib-benmoussa-nomme-haut-commissaire-au-plan-en-remplacement-de-lahlimi.html)
+
+
+### شكيب بنموسى (N/A, Fri, 18 Oct 2024 11:30:00 -0700)
+
+- **الملك محمد السادس يعين بنموسى مندوبا ساميا للتخطيط بدل لحليمي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B9%D9%8A%D9%86-%D8%A8%D9%86%D9%85%D9%88%D8%B3%D9%89-%D9%85%D9%86%D8%AF%D9%88%D8%A8%D8%A7-%D8%B3-1449781.html)
+- **الملك محمد السادس يعين شكيب بنموسى مندوبا ساميا للتخطيط**: [Link](https://www.akhbarona.com/national/394009.html)
+- **عاجل. بنموسى خرج من الحكومة وشد المندوبية السامية للتخطيط**: [Link](https://www.goud.ma/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A8%D9%86%D9%85%D9%88%D8%B3%D9%89-%D8%AE%D8%B1%D8%AC-%D9%85%D9%86-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D9%88%D8%B4%D8%AF-%D8%A7%D9%84%D9%85%D9%86%D8%AF%D9%88%D8%A8-910285/)
+
+
+### الجريدة الرسمية (N/A, Fri, 18 Oct 2024 11:20:00 -0700)
+
+- **الجريدة الرسمية تنشر 12 حكما حديثا للمحكمة الدستورية**: [Link](https://www.youm7.com/story/2024/10/17/%D8%A7%D9%84%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D8%AA%D9%86%D8%B4%D8%B1-12-%D8%AD%D9%83%D9%85%D8%A7-%D8%AD%D8%AF%D9%8A%D8%AB%D8%A7-%D9%84%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D8%B3%D8%AA%D9%88%D8%B1%D9%8A%D8%A9/6744658)
+- **المحاكم الدستورية وأحكامها**: [Link](https://www.aljarida.com/article/78174)
+- **«الدستورية العليا» تصدر حكمها في 12 دعوى أبرزها «نادي الصيد»**: [Link](https://gate.ahram.org.eg/News/5010636.aspx)
+
+
+### hespress (N/A, Fri, 18 Oct 2024 11:00:00 -0700)
+
+
+
+
 ### monaco – lille (N/A, Fri, 18 Oct 2024 11:10:00 -0700)
 
 - **Adi Hütter (AS Monaco - LOSC) : "Zhegrova est l'un des meilleurs, Bouaddi 
