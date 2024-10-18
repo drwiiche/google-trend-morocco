@@ -1,3 +1,11 @@
+### ferrari f80 (N/A, Fri, 18 Oct 2024 07:30:00 -0700)
+
+- **Ferrari Unveils First Supercar in 11 Years Costing €3.6 Million**: [Link](https://www.bloomberg.com/news/articles/2024-10-17/ferrari-unveils-first-supercar-in-11-years-costing-3-6-million)
+- **View Photos of the 2026 Ferrari F80**: [Link](https://www.caranddriver.com/photos/g62624633/2026-ferrari-f80-gallery/)
+- **Ferrari’s F80 uses ‘Boost optimization’ to give drivers more power where 
+they need it**: [Link](https://www.theverge.com/2024/10/17/24272542/ferrari-f80-hybrid-supercar-boost-optimization)
+
+
 ### al-hilal – al feiha (N/A, Fri, 18 Oct 2024 07:10:00 -0700)
 
 - **How to watch Al Hilal vs. Al Feiha online for free**: [Link](https://mashable.com/article/al-hilal-al-feiha-saudi-pro-league-2024-live-stream-for-free)
