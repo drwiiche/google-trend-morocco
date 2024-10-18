@@ -1,3 +1,11 @@
+### cristiano ronaldo (N/A, Fri, 18 Oct 2024 05:50:00 -0700)
+
+- **The World’s Highest-Paid Soccer Players 2024**: [Link](https://www.forbes.com/sites/justinbirnbaum/2024/10/17/the-worlds-highest-paid-soccer-players-2024/)
+- **Cristiano Ronaldo's staggering earnings revealed as Al-Nassr star beats 
+Lionel Messi to make history**: [Link](https://www.gbnews.com/sport/football/cristiano-ronaldo-earnings-al-nassr-lionel-messi)
+- **Messi, Ronaldo and Mbappé - the top ten highest paid players in the world**: [Link](https://www.transfermarkt.com/messi-ronaldo-and-mbappe-the-top-ten-highest-paid-players-in-the-world/view/news/435258)
+
+
 ### محمد الخلفي (N/A, Fri, 18 Oct 2024 05:00:00 -0700)
 
 - **بعد معاناة طويلة.. نقل الفنان المغربي "محمد الخلفي" في وضع صحي حرج إلى إحدى 
