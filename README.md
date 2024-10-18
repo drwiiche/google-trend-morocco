@@ -1,3 +1,10 @@
+### فتيحة العيادي (N/A, Fri, 18 Oct 2024 13:20:00 -0700)
+
+- **الشامي يعود ممثلاً للمغرب لدى الاتحاد الأوروبي.. وهذه قائمة السفراء الجدد**: [Link](https://www.akhbarona.com/politic/394012.html)
+- **الملك يعين فتيحة ثم العيادي سفيرة للمغرب بالدانمارك**: [Link](https://ar.hibapress.com/details-563671.html)
+- **نبذة عن عثمان الفردوس السفير الجديد للمغرب لدى جمهورية الكوت ديفوار**: [Link](https://ar.le360.ma/politique/I3ONMO4GKJASDGRLA3AJLERNBU/)
+
+
 ### monaco fc (N/A, Fri, 18 Oct 2024 12:50:00 -0700)
 
 - **AS Monaco preparing for life without Folarin Balogun**: [Link](https://www.getfootballnewsfrance.com/2024/as-monaco-preparing-for-life-without-folarin-balogun/)
