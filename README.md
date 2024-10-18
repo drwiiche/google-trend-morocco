@@ -1,3 +1,13 @@
+### rca (N/A, Fri, 18 Oct 2024 14:00:00 -0700)
+
+- **Era îngheţării tarifelor RCA va lua sfârşit începând cu ianuarie 2025. 
+Sorin Mititelu, Vicepreşedinte**: [Link](https://www.zf.ro/banci-si-asigurari/era-inghetarii-tarifelor-rca-lua-sfarsit-incepand-ianuarie-2025-22515495)
+- **Tarifele RCA, plafonate doar „în teorie”: Șoferii plătesc sute de lei în 
+plus față de anul...**: [Link](https://ziare.com/rca/tarife-2024-asigurare-1899722)
+- **Prețul asigurării RCA în 2024: Cum influențează vârsta și istoricul fără 
+accidente | Ziarul de Iași**: [Link](https://www.presshub.ro/pretul-asigurarii-rca-in-2024-cum-influenteaza-varsta-si-istoricul-fara-accidente-ziarul-de-iasi-349125/)
+
+
 ### حركة حماس يحيى السنوار (N/A, Fri, 18 Oct 2024 13:40:00 -0700)
 
 - **"متى تنتهي الحرب؟".. رسالة من نجل السنوار قرب جثة والده**: [Link](https://www.alarabiya.net/arab-and-world/2024/10/18/-%D9%85%D8%AA%D9%89-%D8%AA%D9%86%D8%AA%D9%87%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D9%86-%D9%86%D8%AC%D9%84-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D9%82%D8%B1%D8%A8-%D8%AC%D8%AB%D8%A9-%D9%88%D8%A7%D9%84%D8%AF%D9%87)
