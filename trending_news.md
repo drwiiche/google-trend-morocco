@@ -1,3 +1,12 @@
+### al shabab – al-nassr fc (N/A, Fri, 18 Oct 2024 10:20:00 -0700)
+
+- **Al-Shabab vs Al-Nassr: Where and how to watch live Saudi Pro League 2024-25 
+Matchday 7**: [Link](https://bolavip.com/en/soccer/al-shabab-vs-al-nassr-where-and-how-to-watch-live-saudi-pro-league-2024-25-matchday-6)
+- **Ronaldo's position on the youth match**: [Link](https://www.ysscores.com/en/news/5533506/Ronaldo's-position-on-the-youth-match)
+- **Al-Nassr's Potential Starting XI Against Al-Shabab: Cristiano Ronaldo Leads 
+the Line**: [Link](https://www.footboom1.com/en/news/football/1950010-al-nassr-s-potential-starting-xi-against-al-shabab-cristiano-ronaldo-leads-the-line)
+
+
 ### محمود حمدان (N/A, Fri, 18 Oct 2024 08:00:00 -0700)
 
 - **الحرب على غزة.. حماس تعلن استشهاد السنوار وإصابة إسرائيليين قرب البحر الميت**: [Link](https://www.aljazeera.net/news/liveblog/2024/10/18/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-3)
