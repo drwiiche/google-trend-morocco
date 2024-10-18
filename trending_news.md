@@ -1,3 +1,19 @@
+### usm alger – cr belouizdad (N/A, Fri, 18 Oct 2024 12:00:00 -0700)
+
+- **Après la CAF, l’USMA reçoit une autre terrible nouvelle**: [Link](https://fennecfootball.com/apres-la-caf-lusma-recoit-une-autre-terrible-nouvelle/)
+- **Sports - Trois belles affiches au programme**: [Link](https://www.lexpressiondz.com/sports/trois-belles-affiches-au-programme-386652)
+- **Ligue 1 Mobilis - 5e journée : favorable au leader, derby indécis au 5 
+juillet**: [Link](http://news.radioalgerie.dz/fr/node/53705)
+
+
+### nasdas (N/A, Fri, 18 Oct 2024 12:00:00 -0700)
+
+- **Nasdas, l’influenceur numéro 1 de Snapchat est de retour sur les réseaux**: [Link](https://madeinperpignan.com/breve/nasdas-linfluenceur-numero-1-de-snapchat-est-de-retour-sur-les-reseaux/)
+- **“On a été aspirés par la spirale négative des réseaux sociaux” : Nasdas est 
+de retour sur Snapchat**: [Link](https://www.konbini.com/internet/on-a-ete-aspires-par-la-spirale-negative-des-reseaux-sociaux-nasdas-est-de-retour-sur-snapchat/)
+- **Nasdas signe son retour sur Snapchat après des mois d’absence**: [Link](https://mcetv.ouest-france.fr/decouvertes/reseaux-sociaux-co/nasdas-fait-son-grand-retour-sur-snapchat-apres-des-mois-dabsence-17102024/)
+
+
 ### onu sahara marocain (N/A, Fri, 18 Oct 2024 11:40:00 -0700)
 
 - **n°999. Ce que Staffan de Mistura veut dire par « partition » du Sahara**: [Link](https://ledesk.ma/enclair/ce-que-staffan-de-mistura-veut-dire-par-partition-du-sahara/)
