@@ -1,3 +1,12 @@
+### al-hilal – al feiha (N/A, Fri, 18 Oct 2024 07:10:00 -0700)
+
+- **How to watch Al Hilal vs. Al Feiha online for free**: [Link](https://mashable.com/article/al-hilal-al-feiha-saudi-pro-league-2024-live-stream-for-free)
+- **Al-Hilal’s expected formation to face Al-Fayhaa and its return to Queen 
+Arena**: [Link](https://www.ysscores.com/en/news/5576264/Al-Hilal%E2%80%99s-expected-formation-to-face-Al-Fayhaa-and-its-return-to-Queen-Arena)
+- **Will Neymar Jr. Play Tonight in the SPL? How to Watch Al-Hilal vs Al-Feiha 
+Live Streaming?**: [Link](https://www.republicworld.com/sports/football/will-neymar-jr-play-tonight-in-the-spl-how-to-watch-al-hilal-vs-al-feiha-live-streaming)
+
+
 ### خليل الحية (N/A, Fri, 18 Oct 2024 04:50:00 -0700)
 
 - **حركة "حماس" تنعى القائد يحيى السنوار**: [Link](https://www.hespress.com/%D8%AD%D8%B1%D9%83%D8%A9-%D8%AD%D9%85%D8%A7%D8%B3-%D8%AA%D9%86%D8%B9%D9%89-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D8%AF-%D9%8A%D8%AD%D9%8A%D9%89-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-1449583.html)
