@@ -1,3 +1,8 @@
+### alyaoum24 (N/A, Thu, 17 Oct 2024 22:40:00 -0700)
+
+
+
+
 ### sinwar (N/A, Thu, 17 Oct 2024 07:40:00 -0700)
 
 - **Israel says it has killed Hamas leader Yahya Sinwar in Gaza**: [Link](https://apnews.com/article/israel-palestinians-hamas-lebanon-hezbollah-news-10-17-2024-d12ca71945313e601cf10876072f4182)
