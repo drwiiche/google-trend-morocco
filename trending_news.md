@@ -1,3 +1,11 @@
+### محمود حمدان (N/A, Fri, 18 Oct 2024 08:00:00 -0700)
+
+- **الحرب على غزة.. حماس تعلن استشهاد السنوار وإصابة إسرائيليين قرب البحر الميت**: [Link](https://www.aljazeera.net/news/liveblog/2024/10/18/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-3)
+- **يحيى السنوار: "ماذا بعد مقتل عدو إسرائيل اللدود؟" في جيروزاليم بوست**: [Link](https://www.bbc.com/arabic/articles/cwyvq7ywlpeo)
+- **إسلاميو المغرب: اغتيال السنوار يزيد المقاومة ثباتا .. والنضال الفلسطيني 
+يستمر**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A%D9%88%D9%86-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D8%A7%D8%B3%D8%AA%D8%B4%D9%87%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D9%8A%D8%B2%D9%8A%D8%AF-1449569.html)
+
+
 ### plus belle la vie encore plus belle (N/A, Fri, 18 Oct 2024 10:00:00 -0700)
 
 - **Plus belle la vie, encore plus belle du jeudi 17 octobre 2024 - Episode 193**: [Link](https://www.tf1.fr/tf1/plus-belle-la-vie/videos/plus-belle-la-vie-encore-plus-belle-du-jeudi-17-octobre-2024-episode-193-86753383.html)
