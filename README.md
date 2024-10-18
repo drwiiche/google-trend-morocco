@@ -1,3 +1,10 @@
+### monaco fc (N/A, Fri, 18 Oct 2024 12:50:00 -0700)
+
+- **AS Monaco preparing for life without Folarin Balogun**: [Link](https://www.getfootballnewsfrance.com/2024/as-monaco-preparing-for-life-without-folarin-balogun/)
+- **Can Monaco go without the Flo vs. Lille?**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles-video/can-monaco-go-without-the-flo-vs-lille-2024-10-18)
+- **USMNT’s Folarin Balogun set for two months out with dislocated shoulder**: [Link](https://www.nytimes.com/athletic/5847109/2024/10/16/folarin-balogun-shoulder-injury-update/)
+
+
 ### كود (N/A, Fri, 18 Oct 2024 11:40:00 -0700)
 
 - **دعم أممي لحل سياسي بشأن الصحراء**: [Link](https://www.hespress.com/%D8%AF%D8%B9%D9%85-%D8%A3%D9%85%D9%85%D9%8A-%D9%84%D8%AD%D9%84-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D8%A8%D8%B4%D8%A3%D9%86-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-1449680.html)
