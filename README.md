@@ -1,3 +1,11 @@
+### الجزيرة نت (N/A, Thu, 17 Oct 2024 08:20:00 -0700)
+
+- **عاجل | وسائل إعلام إسرائيلية: بلاغ عن إطلاق نار باتجاه جنود إسرائيليين في 
+منطقة جنوب البحر الميت**: [Link](https://www.aljazeera.net/news/2024/10/18/%D8%B9%D8%A7%D8%AC%D9%84-%D9%88%D8%B3%D8%A7%D8%A6%D9%84-%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D9%84%D8%A7%D8%BA-%D8%B9%D9%86)
+- **الجيش الإسرائيلي يجري بحثا عن مسلح ثالث قرب البحر الميت**: [Link](https://www.skynewsarabia.com/middle-east/1748793-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A8%D8%AD%D8%AB%D8%A7-%D9%85%D8%B3%D9%84%D8%AD-%D8%AB%D8%A7%D9%84%D8%AB-%D9%82%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D9%85%D9%8A%D8%AA)
+- **إسرائيل تعلن قتل مسلحَين عبرا من الأردن**: [Link](https://www.alhurra.com/israel/2024/10/18/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%B9%D9%84%D9%86-%D9%82%D8%AA%D9%84-%D9%85%D8%B3%D9%84%D8%AD%D9%8E%D9%8A%D9%86-%D8%B9%D8%A8%D8%B1%D8%A7-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86)
+
+
 ### teams (N/A, Fri, 18 Oct 2024 01:00:00 -0700)
 
 - **Which NBA teams will be best (and worst) on defense this season? Projecting 
