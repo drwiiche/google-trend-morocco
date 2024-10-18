@@ -1,3 +1,11 @@
+### خليل الحية (N/A, Fri, 18 Oct 2024 04:50:00 -0700)
+
+- **حركة "حماس" تنعى القائد يحيى السنوار**: [Link](https://www.hespress.com/%D8%AD%D8%B1%D9%83%D8%A9-%D8%AD%D9%85%D8%A7%D8%B3-%D8%AA%D9%86%D8%B9%D9%89-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D8%AF-%D9%8A%D8%AD%D9%8A%D9%89-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-1449583.html)
+- **الحرب على غزة مباشر.. حماس تعلن استشهاد السنوار وإصابة إسرائيليين قرب البحر 
+الميت**: [Link](https://www.aljazeera.net/news/liveblog/2024/10/18/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-3?update=6979015)
+- **أين قتل السنوار؟ تقرير يحدد مكانه على بعد 300 متر من موقع إسرائيلي**: [Link](https://www.alhurra.com/palestine/2024/10/18/%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1%D8%9F-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%83%D8%A7%D9%86%D9%87-300-%D9%85%D8%AA%D8%B1-%D9%85%D9%88%D9%82%D8%B9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A)
+
+
 ### cristiano ronaldo (N/A, Fri, 18 Oct 2024 05:50:00 -0700)
 
 - **The World’s Highest-Paid Soccer Players 2024**: [Link](https://www.forbes.com/sites/justinbirnbaum/2024/10/17/the-worlds-highest-paid-soccer-players-2024/)
