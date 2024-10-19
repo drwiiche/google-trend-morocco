@@ -1,3 +1,9 @@
+### أوساسونا ضد ريال بتيس (N/A, Sat, 19 Oct 2024 07:20:00 -0700)
+
+- **أوساسونا وريال بيتيس في الدوري الإسباني.. الموعد والقنوات الناقلة**: [Link](https://almashhadalaraby.com/news/476691)
+- **بث مباشر.. مشاهدة مباراة أوساسونا وريال بيتيس في الدوري الإسباني**: [Link](https://blogksa.com/uncategorized/135260/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A---%D8%AA%D8%AF%D9%88%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A.html)
+
+
 ### tottenham (N/A, Sat, 19 Oct 2024 05:20:00 -0700)
 
 - **Kudus sent off for striking multiple Spurs players**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/mohammed-kudus-sent-off-for-striking-multiple-tottenham-players)
