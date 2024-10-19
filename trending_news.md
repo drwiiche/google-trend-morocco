@@ -1,3 +1,28 @@
+### وديع دادا (N/A, Sat, 19 Oct 2024 13:10:00 -0700)
+
+- **القناة الثانية توقف وديع دادا ونقابة الصحافة تدخل على الخط**: [Link](https://ar.hibapress.com/details-564124.html)
+- **“دوزيم” نتاقمات من وديع دادا. حضر اجتماع نقابي لاحوه على مجلس تأديبي وبنت 
+ممثل النقابة لخرى ما تعرفش حتى تهدر بالفرنساوية ودخلوها تخدم**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%A7-3-910464/)
+- **القناة الثاني توقف الصحافي وديع دادا**: [Link](https://www.achkayen.com/580152/.html)
+
+
+### madrid vs (N/A, Sat, 19 Oct 2024 13:10:00 -0700)
+
+- **La posible alineación del Atlético de Madrid vs Leganés en la jornada 10 de 
+La Liga**: [Link](https://www.90min.com/es/la-posible-alineacion-del-atletico-de-madrid-vs-leganes-en-la-jornada-10-de-la-liga)
+- **Atlético - Leganés: canal TV, a qué hora es, dónde y cómo ver LaLiga EA 
+Sports online hoy**: [Link](https://as.com/futbol/primera/atletico-leganes-canal-tv-a-que-hora-es-donde-y-como-ver-laliga-ea-sports-online-hoy-n/)
+- **El pepino se amarga**: [Link](https://www.sport.es/es/noticias/apuestas-deportivas/pepino-amarga-109618089)
+
+
+### celta vigo (N/A, Sat, 19 Oct 2024 12:20:00 -0700)
+
+- **(VIDEO) Mbappé's Stunning Long-Range Goal Against Celta**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/-video-mbapp%C3%A9-s-stunning-long-range-goal-against-celta-2024-10-19)
+- **WATCH: Kylian Mbappe smashes Real Madrid in front on La Liga return**: [Link](https://www.football-espana.net/2024/10/19/watch-kylian-mbappe-real-madrid-in-front-la-liga-return)
+- **Football Tracker: Mbappe scores stunning goal for Real, Juventus take on 
+Lazio**: [Link](https://www.flashscore.com/news/football-tracker-mbappe-scores-stunning-goal-for-real-juventus-take-on-lazio/tzPHqwtf/)
+
+
 ### psg (N/A, Sat, 19 Oct 2024 12:00:00 -0700)
 
 - **DIRECT. PSG-Strasbourg (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/psg-strasbourg-live/655929)
