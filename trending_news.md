@@ -1,3 +1,12 @@
+### tottenham (N/A, Sat, 19 Oct 2024 05:20:00 -0700)
+
+- **Kudus sent off for striking multiple Spurs players**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/mohammed-kudus-sent-off-for-striking-multiple-tottenham-players)
+- **West Ham suffer second-half nightmare after Tottenham goal blitz and Kudus 
+red card**: [Link](https://www.telegraph.co.uk/football/2024/10/19/tottenham-vs-west-ham-live-score-latest-premier-league/)
+- **West Ham star Mohammed Kudus SENT OFF after striking two Tottenham players 
+in face and accidentally KOing...**: [Link](https://www.thesun.co.uk/sport/31180675/mohammed-kudus-sent-off-tottenham-west-ham-ko/)
+
+
 ### osasuna – betis (N/A, Sat, 19 Oct 2024 06:20:00 -0700)
 
 - **Vicente Moreno, sobre Iker Muñoz, Kike Barja, Abde, Moncayola, Pablo 
