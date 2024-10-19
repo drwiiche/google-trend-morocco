@@ -1,3 +1,42 @@
+### osasuna – betis (N/A, Sat, 19 Oct 2024 06:20:00 -0700)
+
+- **Vicente Moreno, sobre Iker Muñoz, Kike Barja, Abde, Moncayola, Pablo 
+Ibáñez, Boyomo, Budimir, Bryan y el Betis**: [Link](https://www.futbolfantasy.com/laliga/noticias/121012-vicente-moreno-sobre-iker-munoz-kike-barja-abde-moncayola-pablo-ibanez-boyomo-budimir-bryan-y)
+- **Previa Osasuna-Real Betis: 3 puntos que valen puestos europeos**: [Link](https://onefootball.com/id/berita/previa-osasuna-real-betis-3-puntos-que-valen-puestos-europeos-40187977)
+- **Prueba de autoexigencia en El Sadar para un Betis sin Lo Celso**: [Link](https://vivasevilla.es/andalucia/1788403/prueba-de-autoexigencia-en-el-sadar-para-un-betis-sin-lo-celso/)
+
+
+### fulham – aston villa (N/A, Sat, 19 Oct 2024 06:20:00 -0700)
+
+- **Team news for Fulham fixture**: [Link](https://www.avfc.co.uk/news/2024/october/18/team-news-for-fulham-fixture/)
+- **Aston Villa’s Jaden Philogene doubtful for Fulham clash after sustaining 
+injury with England Under-21s - The Athletic**: [Link](https://www.nytimes.com/athletic/5841973/2024/10/14/jaden-philogene-injury-villa-england/)
+- **Ollie Watkins BOOSTED to 12/1 to score a header against Fulham today**: [Link](https://www.dailymail.co.uk/sport/skybet/article-13956763/Ollie-Watkins-Aston-Villa-Fulham.html)
+
+
+### southampton – leicester (N/A, Sat, 19 Oct 2024 06:20:00 -0700)
+
+- **Why Russell Martin's assessment of Leicester City can lead Southampton to a 
+convincing win**: [Link](https://saintsmarching.com/why-russell-martin-s-assessment-of-leicester-city-can-lead-southampton-to-a-convincing-win-01jag698nkxn)
+- **‘A Good Opportunity’ – Cooper On Saints Challenge**: [Link](https://www.lcfc.com/news/4150617/a-good-opportunity--cooper-on-saints-challenge/featured)
+- **Match Pack: Saints vs Leicester**: [Link](https://www.southamptonfc.com/en/news/article/match-pack-saints-vs-leicester-2024-10-19)
+
+
+### newcastle – brighton (N/A, Sat, 19 Oct 2024 06:20:00 -0700)
+
+- **Sky Sports expert chasing his Newcastle United losses**: [Link](https://www.themag.co.uk/2024/10/sky-sports-expert-chasing-his-newcastle-united-losses/)
+- **Newcastle vs. Brighton - Eddie Howe: Pre-Match Press Conference**: [Link](https://cominghomenewcastle.sbnation.com/2024/10/19/24273311/newcastle-vs-brighton-eddie-howe-pre-match-press-conference)
+- **Brighton XI vs Newcastle: Pedro latest and predicted lineup**: [Link](https://www.standard.co.uk/sport/football/brighton-xi-vs-newcastle-joao-pedro-injury-latest-predicted-lineup-confirmed-team-news-today-b1188371.html)
+
+
+### manchester united – brentford (N/A, Sat, 19 Oct 2024 06:10:00 -0700)
+
+- **Erik ten Hag confirms team news for Brentford clash**: [Link](https://www.manutd.com/en/news/detail/erik-ten-hag-confirms-team-news-for-brentford-on-19-oct)
+- **Jonny Evans set to play LEFT-BACK as scale of Man Utd injury crisis becomes 
+clear**: [Link](https://www.mirror.co.uk/sport/football/news/man-united-injuries-jonny-evans-33888696)
+- **LIVE: Manchester United vs Brentford – English Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2024/10/19/live-manchester-united-vs-brentford-english-premier-league-football)
+
+
 ### توتنهام ضد وست هام (N/A, Sat, 19 Oct 2024 05:10:00 -0700)
 
 - **التشكيلة الرسمية لمباراة توتنهام ووست هام يونايتد**: [Link](https://hihi2.com/2024/10/19/p2895600.html)
