@@ -1,3 +1,11 @@
+### ferrari f80 concept (N/A, Sat, 19 Oct 2024 13:40:00 -0700)
+
+- **Ferrari Unveils First Supercar in 11 Years Costing €3.6 Million**: [Link](https://www.bloomberg.com/news/articles/2024-10-17/ferrari-unveils-first-supercar-in-11-years-costing-3-6-million)
+- **Ferrari F80 First Look: Twin-Turbo V6 Hybrid Makes Nearly 1,200 HP**: [Link](https://www.edmunds.com/car-news/ferrari-f80-first-look.html)
+- **Ferrari’s F80 uses ‘Boost optimization’ to give drivers more power where 
+they need it**: [Link](https://www.theverge.com/2024/10/17/24272542/ferrari-f80-hybrid-supercar-boost-optimization)
+
+
 ### هشام عبود (N/A, Sat, 19 Oct 2024 13:10:00 -0700)
 
 - **إختفاء الصحفي الجزائري هشام عبود المعارض لنظام "الكابرانات"**: [Link](https://ar.hibapress.com/details-564163.html)
