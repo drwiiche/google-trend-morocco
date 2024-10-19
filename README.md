@@ -1,3 +1,10 @@
+### newcastle (N/A, Sat, 19 Oct 2024 09:20:00 -0700)
+
+- **Premier League Primary Stars promote ‘No Room for Racism’**: [Link](https://www.bcfc.co.uk/foundation-news/premier-league-primary-stars-promote-no-room-for-racism/)
+- **LFC supports Premier League's No Room For Racism initiative**: [Link](https://www.liverpoolfc.com/es/news/lfc-supports-premier-leagues-no-room-racism-initiative)
+- **Aston Villa proudly support No Room For Racism**: [Link](https://www.avfc.co.uk/news/2024/october/18/aston-villa-no-room-for-racism/)
+
+
 ### bayern munich (N/A, Sat, 19 Oct 2024 10:40:00 -0700)
 
 - **Saturday's Bundesliga predictions including Bayern Munich vs. Stuttgart**: [Link](https://www.sportsmole.co.uk/football/bayern-munich/predictions-bundesliga/feature/saturdays-bundesliga-predictions-including-bayern-munich-vs-stuttgart_555742.html)
