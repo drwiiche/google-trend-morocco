@@ -1,3 +1,10 @@
+### chakib benmoussa hcp (N/A, Fri, 18 Oct 2024 17:50:00 -0700)
+
+- **Chakib Benmoussa remplace Ahmed Lahlimi à la tête du HCP**: [Link](https://ledesk.ma/encontinu/chakib-benmoussa-remplace-ahmed-lahlimi-a-la-tete-du-hcp/)
+- **Benmoussa succède à Lahlimi à la tête du HCP, Lahlimi décoré**: [Link](https://medias24.com/2024/10/18/benmoussa-succede-a-lahlimi-a-la-tete-du-hcp-lahlimi-decore/)
+- **S.M. le Roi nomme Chakib Benmoussa Haut Commissaire au Plan**: [Link](https://lematin.ma/activites-royales/sm-le-roi-nomme-chakib-benmoussa-haut-commissaire-au-plan/247710)
+
+
 ### مصطفى بايتاس (N/A, Fri, 18 Oct 2024 14:50:00 -0700)
 
 - **"وزارة بايتاس" تشجع تكوين الموظفين**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A8%D8%A7%D9%8A%D8%AA%D8%A7%D8%B3-%D8%AA%D8%B4%D8%AC%D8%B9-%D8%AA%D9%83%D9%88%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%88%D8%B8%D9%81%D9%8A%D9%86-1448414.html)
