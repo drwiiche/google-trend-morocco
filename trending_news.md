@@ -1,3 +1,30 @@
+### bournemouth vs arsenal (N/A, Sat, 19 Oct 2024 09:40:00 -0700)
+
+- **Chris Sutton predicts that Arsenal could be in for a big surprise at 
+Bournemouth**: [Link](https://www.justarsenal.com/sutton-predicts-that-arsenal-could-be-in-for-a-big-surprise-at-bournemouth/378500)
+- **Bournemouth - Arsenal live: Premier League - Football**: [Link](https://www.tntsports.co.uk/football/premier-league/2024-2025/live-bournemouth-arsenal_mtc1523696/live-commentary.shtml)
+- **U.S. international Tyler Adams in Bournemouth's squad for game against 
+Arsenal**: [Link](https://www.republicworld.com/sports/football/tyler-adams-in-bournemouth-s-squad-for-game-against-arsenal)
+
+
+### nouveaux ambassadeurs maroc (N/A, Sat, 19 Oct 2024 09:40:00 -0700)
+
+- **Ahmed Réda Chami redésigné ambassadeur du Maroc à l’UE**: [Link](https://ledesk.ma/encontinu/ahmed-reda-chami-redesigne-ambassadeur-du-maroc-a-lue/)
+- **La nomination par SM le Roi de nouveaux ambassadeurs, une Volonté Royale 
+proactive pour consacrer la défense des intérêts suprêmes du Maroc 
+(Cherkaoui Roudani)**: [Link](https://www.mapexpress.ma/actualite/opinions-et-debats/nomination-sm-roi-nouveaux-ambassadeurs-volonte-royale-proactive-consacrer-defense-interets-supremes-du-maroc-cherkaoui-roudani/)
+- **Le Roi Mohammed VI nomme de nouveaux ambassadeurs du Royaume**: [Link](https://fr.hespress.com/391417-le-roi-mohammed-vi-nomme-de-nouveaux-ambassadeurs-du-royaume.html)
+
+
+### مشروع قانون المالية 2025 (N/A, Sat, 19 Oct 2024 08:20:00 -0700)
+
+- **فتاح العلوي: مشروع "قانون المالية 2025" يوازن بين الطموحات والإمكانيات**: [Link](https://www.hespress.com/%D9%81%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D8%B9%D9%84%D9%88%D9%8A-%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-2025-%D9%8A%D9%88%D8%A7-1450203.html)
+- **حكومة أخنوش تفي بوعودها برفع الدعم المالي الموجه للأسر الفقيرة ليتجاوز 2600 
+مليار سنة 2025**: [Link](https://rue20.com/847339.html)
+- **مالية 2025.. الحكومة تحدث 29 ألف منصب شغل 69% منها بقطاعات الداخلية والصحة 
+والجيش – اليوم 24**: [Link](https://alyaoum24.com/1923987.html)
+
+
 ### أنطاليا سبور ضد غلطة سراي (N/A, Sat, 19 Oct 2024 09:00:00 -0700)
 
 - **زياش يثير ضجة بحذف الصور مع المنتخب**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%B6%D8%AC%D8%A9-%D8%A8%D8%AD%D8%B0%D9%81-%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-1448742.html)
