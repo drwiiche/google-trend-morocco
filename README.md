@@ -1,3 +1,36 @@
+### bournemouth – arsenal (N/A, Sat, 19 Oct 2024 08:40:00 -0700)
+
+- **Team news: Saka misses Bournemouth game**: [Link](https://www.arsenal.com/news/team-news-saka-misses-bournemouth-game)
+- **Mikel Arteta provides fitness updates for Kai Havertz and Gabriel Martinelli**: [Link](https://paininthearsenal.com/mikel-arteta-fitness-updates-kai-havertz-gabriel-martinelli-bournemouth-arsenal)
+- **Premier League injury news round-up: Bukayo Saka in fitness race for 
+Arsenal, Reece James and Son Heung-min return**: [Link](https://www.eurosport.com/football/premier-league/2024-2025/injury-news-bukayo-saka-fitness-race-arsenal-reece-james-son-heung-min-return_sto20046485/story.shtml)
+
+
+### girona – real sociedad (N/A, Sat, 19 Oct 2024 08:40:00 -0700)
+
+- **PREVIA Girona vs. Real Sociedad**: [Link](https://www.gironafc.cat/es/noticias/previa-girona-vs-real-sociedad-2425)
+- **«Take, esta noche voy a cenar sushi»**: [Link](https://www.diariovasco.com/real-sociedad/take-noche-cenar-sushi-20241018205910-nt.html)
+- **Míchel: "Nuestra lesiones musculares son por el calendario"**: [Link](https://www.sport.es/es/videos/girona/20241018/michel-lesiones-musculares-son-calendario/109667373.shtml)
+
+
+### ac milan – udinese (N/A, Sat, 19 Oct 2024 08:40:00 -0700)
+
+- **Milan Boss Paulo Fonseca Contemplating Insane Line-up Changes Vs Udinese**: [Link](https://cultofcalcio.com/milan-boss-paulo-fonseca-contemplating-insane-line-up-changes-vs-udinese/)
+- **The five key battles that could win or lose the game for Milan against 
+Udinese**: [Link](https://onefootball.com/en/news/the-five-key-battles-that-could-win-or-lose-the-game-for-milan-against-udinese-40188693)
+- **A reaction is needed after Fonseca 'attack' on the team - Other available 
+coaches are watching the situation with interest**: [Link](https://milanreports.com/2024/10/19/reaction-is-needed-fonseca-coaches/)
+
+
+### mbc (N/A, Sat, 19 Oct 2024 08:30:00 -0700)
+
+- **أنصار فصائل عراقية موالية لإيران يعتدون على مكاتب شركة إنتاج مرتبطة بقناة 
+سعودية**: [Link](https://www.alhurra.com/iraq/2024/10/19/%D8%A3%D9%86%D8%B5%D8%A7%D8%B1-%D9%81%D8%B5%D8%A7%D8%A6%D9%84-%D8%B9%D8%B1%D8%A7%D9%82%D9%8A%D8%A9-%D9%85%D9%88%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%8A%D8%B9%D8%AA%D8%AF%D9%88%D9%86-%D9%85%D9%83%D8%A7%D8%AA%D8%A8-%D8%B4%D8%B1%D9%83%D8%A9-%D8%A5%D9%86%D8%AA%D8%A7%D8%AC-%D9%85%D8%B1%D8%AA%D8%A8%D8%B7%D8%A9-%D8%A8%D9%82%D9%86%D8%A7%D8%A9-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9)
+- **"بعد وصف السنوار وهنية ونصر الله بالإرهابيين": مئات العراقيين يقتحمون مكاتب 
+"ام بي سي" ويحرقونه**: [Link](https://www.i24news.tv/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/middle-east/artc-d5766fd6)
+- **بعد غضب واسع.. "MBC" السعودية تحذف التقرير المسيء لقادة حماس الشهداء (شاهد)**: [Link](https://arabi21.com/story/1634190/%D8%A8%D8%B9%D8%AF-%D8%BA%D8%B6%D8%A8-%D9%88%D8%A7%D8%B3%D8%B9-MBC-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D9%81-%D8%A7%D9%84%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%A1-%D9%84%D9%82%D8%A7%D8%AF%D8%A9-%D8%AD%D9%85%D8%A7%D8%B3-%D8%A7%D9%84%D8%B4%D9%87%D8%AF%D8%A7%D8%A1-%D8%B4%D8%A7%D9%87%D8%AF)
+
+
 ### brest – rennes (N/A, Sat, 19 Oct 2024 08:30:00 -0700)
 
 - **Rennes : l’avenir de Julien Stéphan ne tient plus qu’à un fil !**: [Link](https://www.footmercato.net/a4783615115195233095-rennes-lavenir-de-julien-stephan-ne-tient-plus-qua-un-fil)
