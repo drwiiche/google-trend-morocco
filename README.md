@@ -1,3 +1,17 @@
+### antalyaspor – galatasaray (N/A, Sat, 19 Oct 2024 08:10:00 -0700)
+
+- **Lider Galatasaray Antalya'da 3 puan arıyor: İlk 11'ler belli oldu**: [Link](https://www.ntv.com.tr/galeri/sporskor/lider-galatasaray-antalyada-3-puan-ariyor-ilk-11ler-belli-oldu,GvVVgAn7YEedEFVZsCTscQ)
+- **Barış Alper Yılmaz, Osimhen ve Hakim Ziyech Antalyaspor maçında neden yok?**: [Link](https://www.sportif54.com/baris-alper-yilmaz-osimhen-ve-hakim-ziyech-antalyaspor-macinda-neden-yok-131750.html)
+- **Alex de Souza, Okan Buruk'a karşı**: [Link](https://www.cnnturk.com/spor/futbol/live-antalyaspor-galatasaray-maci-canli-izle-antalyaspor-galatasaray-maci-sifresiz-izle-bein-sports-izle-mac-izle-2169866)
+
+
+### bayer leverkusen (N/A, Sat, 19 Oct 2024 08:10:00 -0700)
+
+- **Thoma Eichin zu Neuansetzung des Frauen-Bundesliga-Spiels gegen Freiburg**: [Link](https://sport.sky.de/fussball/artikel/thoma-eichin-zu-neuansetzung-des-frauen-bundesliga-spiels-gegen-freiburg/13236624/36046)
+- **"Bild": Bayer-Fußballerinnen gehen in Berufung**: [Link](https://www.rnz.de/sport/fussball_artikel,-Nach-DFB-Urteil-Bild-Bayer-Fussballerinnen-gehen-in-Berufung-_arid,1425658.html)
+- **Bayer-Fußballerinnen gehen in Berufung**: [Link](https://www.gn-online.de/sportwelt/bayer-fussballerinnen-gehen-in-berufung-554051.html)
+
+
 ### bet365 (N/A, Sat, 19 Oct 2024 08:00:00 -0700)
 
 - **Bet365 Bonus Code WEEK365: Secure $200 Bonus or $1K Safety Net for CFB**: [Link](https://www.newsweek.com/bet365-bonus-code-week365-secure-200-bonus-1k-safety-net-cfb-october-19-1971631)
