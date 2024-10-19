@@ -1,3 +1,26 @@
+### توتنهام ضد وست هام (N/A, Sat, 19 Oct 2024 05:10:00 -0700)
+
+- **التشكيلة الرسمية لمباراة توتنهام ووست هام يونايتد**: [Link](https://hihi2.com/2024/10/19/p2895600.html)
+- **توتنهام يتطلّع لاستعادة نغمة الانتصارات من بوابة وست هام**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%8A%D8%AA%D8%B7%D9%84-%D8%B9-%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D9%86%D8%BA%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-2024-10-19)
+- **يلا شوت "توتنهام ضد وست هام".. بدون تقطيع مشاهدة مباراة توتنهام ووست هام 
+اليوم بث مباشر تويتر في**: [Link](https://real.alsaudinews.com/192394/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D8%B6%D8%AF-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9/)
+
+
+### دنيا بطمة (N/A, Sat, 19 Oct 2024 05:10:00 -0700)
+
+- **اسم دنيا بطمة يعود للواجهة.. هل انتحرت في سجنها؟**: [Link](https://www.alarabiya.net/culture-and-art/2024/10/16/%D8%A7%D8%B3%D9%85-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A8%D8%B7%D9%85%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%87%D9%84-%D8%A7%D9%86%D8%AA%D8%AD%D8%B1%D8%AA-%D9%81%D9%8A-%D8%B3%D8%AC%D9%86%D9%87%D8%A7)
+- **ابتسام بطمة تنفي شائعة الإفراج القريب عن شقيقتها دنيا**: [Link](https://ar.le360.ma/people/RVAMKWFXQFDVLE6IPD5KRPGSUU/)
+- **سكوب.. دنيا بطمة تغادر أسوار السجن قبل نهاية عقوبتها**: [Link](https://kech24.com/%D8%B3%D9%83%D9%88%D8%A8-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A8%D8%B7%D9%85%D8%A9-%D8%AA%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A3%D8%B3%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D9%82%D8%A8%D9%84-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%B9%D9%82%D9%88%D8%A8%D8%AA%D9%87%D8%A7.html)
+
+
+### isabelle de borchgrave (N/A, Sat, 19 Oct 2024 04:20:00 -0700)
+
+- **L’artiste belge Isabelle de Borchgrave, née à Etterbeek, s’est éteinte à 
+l’âge de 78 ans**: [Link](https://www.sudinfo.be/id900750/article/2024-10-18/lartiste-belge-isabelle-de-borchgrave-nee-etterbeek-sest-eteinte-lage-de-78-ans)
+- **Disparition d'Isabelle "Bebelle" de Borchgrave**: [Link](https://www.eventail.be/art-et-culture/toutes-categories/disparition-disabelle-bebelle-de-borchgrave)
+- **La couleur des idées**: [Link](https://auvio.rtbf.be/media/la-couleur-des-idees-la-couleur-des-idees-3259103)
+
+
 ### tottenham vs west ham (N/A, Sat, 19 Oct 2024 04:20:00 -0700)
 
 - **Premier League LIVE: Build-up to Tottenham Hotspur vs West Ham United 
