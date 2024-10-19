@@ -1,3 +1,19 @@
+### manchester united (N/A, Sat, 19 Oct 2024 07:30:00 -0700)
+
+- **Erik ten Hag: Manchester United manager accuses media of making up 
+'fairytales and lies' about his future**: [Link](https://www.bbc.com/sport/football/articles/cp3wgq0n1q9o)
+- **Ten Hag Dismisses Speculation Amid Man Utd Struggles**: [Link](https://thewillnews.com/ten-hag-dismisses-speculation-amid-man-utd-struggles/)
+- **‘Stories, fairytales and lies’: Ten Hag on speculation around his potential 
+sacking**: [Link](https://www.socialnews.xyz/2024/10/18/stories-fairytales-and-lies-ten-hag-on-speculation-around-his-potential-sacking/?utm_source=rss&utm_medium=rss&utm_campaign=stories-fairytales-and-lies-ten-hag-on-speculation-around-his-potential-sacking)
+
+
+### أتلتيك بيلباو ضد إسبانيول (N/A, Sat, 19 Oct 2024 06:20:00 -0700)
+
+- **بالصور: ويليامز يقود بيلباو لفوز كاسح**: [Link](https://m.kooora.com/?n=1362179&o=n)
+- **موعد مباراة أتليتك بلباو وإسبانيول في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/476689)
+- **بث مباشر.. مشاهدة مباراة أتلتيك بيلباو وإسبانيول في الدوري الإسباني**: [Link](https://blogksa.com/uncategorized/134634/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A---%D8%AA%D8%AF%D9%88%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A.html)
+
+
 ### أوساسونا ضد ريال بتيس (N/A, Sat, 19 Oct 2024 07:20:00 -0700)
 
 - **أوساسونا وريال بيتيس في الدوري الإسباني.. الموعد والقنوات الناقلة**: [Link](https://almashhadalaraby.com/news/476691)
