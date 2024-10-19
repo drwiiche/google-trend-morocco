@@ -1,3 +1,11 @@
+### hichem aboud (N/A, Sat, 19 Oct 2024 14:30:00 -0700)
+
+- **Alerte. Un opposant algérien disparaît en Espagne | L'observateur**: [Link](https://lobservateur.info/article/112224/monde/alerte-un-opposant-algerien-disparait-en-espagne)
+- **Inquiétude suscitée par la disparition du journaliste algérien Hichem 
+Aboud, collaborateur d'Atalayar**: [Link](https://www.atalayar.com/fr/articulo/politique/inquietude-suscitee-par-disparition-du-journaliste-algerien-hichem-aboud-collaborateur-datalayar/20241019220520206424.html)
+- **Mystérieuse disparition du journaliste algérien Hichem Aboud**: [Link](https://www.medi1news.com/fr/article/332106.html)
+
+
 ### wac vs sccm (N/A, Sat, 19 Oct 2024 14:10:00 -0700)
 
 - **Botola Pro D1 Inwi: le Wydad Casablanca s’impose face au Chabab Mohammedia**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-wydad-casablanca-simpose-face-au-chabab-mohammedia_RPS36O6MMJEGRLZRFCVFZMU6ME/)
