@@ -1,3 +1,11 @@
+### wac vs sccm (N/A, Sat, 19 Oct 2024 14:10:00 -0700)
+
+- **Botola Pro D1 Inwi: le Wydad Casablanca s’impose face au Chabab Mohammedia**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-wydad-casablanca-simpose-face-au-chabab-mohammedia_RPS36O6MMJEGRLZRFCVFZMU6ME/)
+- **Botola Pro D1 : le Wydad Casablanca s'impose face au Chabab Mohammedia**: [Link](https://www.menara.ma/fr/article/botola-pro-d1-le-wydad-casablanca-simpose-face-au-chabab-mohammedia)
+- **Tournoi professionnel.. Le Wydad Athletic Club remporte la victoire contre 
+Shabab Al-Mohammadia - HIBAPRESS**: [Link](https://fr.hibapress.com/news-140792.html)
+
+
 ### inter miami – new england (N/A, Sat, 19 Oct 2024 14:10:00 -0700)
 
 - **MLS Decision Day: How playoff bracket is shaping up on final day of 2024 
