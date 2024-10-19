@@ -1,3 +1,11 @@
+### ترتيب الدوري المغربي (N/A, Sat, 19 Oct 2024 14:20:00 -0700)
+
+- **معسكر مغلق للجيش الملكي قبل معركة الرجاء**: [Link](https://www.kooora.com/?n=1362188)
+- **فوز الجيش وبركان في الدوري المغربي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%A8%D9%87%D8%AF%D9%81-1449819.html)
+- **شيبا: "ضيعنا فرصا كثيرة أمام منافس مثل الجيش الملكي وطموحنا أن نُزاحم 
+الفِرق على المراتب الأولى"**: [Link](https://m.elbotola.com/article/2024-10-18-20-07-502.html)
+
+
 ### juventus (N/A, Sat, 19 Oct 2024 13:40:00 -0700)
 
 - **Kalulu, un rimpianto per il Milan? Lui risponde così**: [Link](https://www.milannews.it/gli-ex/kalulu-un-rimpianto-per-il-milan-lui-risponde-cosi-553277)
