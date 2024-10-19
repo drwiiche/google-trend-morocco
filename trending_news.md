@@ -1,3 +1,12 @@
+### juventus (N/A, Sat, 19 Oct 2024 13:40:00 -0700)
+
+- **Kalulu, un rimpianto per il Milan? Lui risponde così**: [Link](https://www.milannews.it/gli-ex/kalulu-un-rimpianto-per-il-milan-lui-risponde-cosi-553277)
+- **Lazio, furia Fabiani: "Douglas Luiz tira un pugno a Patric, il Var a cosa 
+serve?"**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/lazio/2024/10/19-134313015/lazio_furia_fabiani_douglas_luiz_tira_un_pugno_a_patric_il_var_a_cosa_serve_)
+- **La Juve di Thiago vince alla Allegri e per una sera i tifosi bianconeri 
+napoletanizzati risfoderano Boniperti**: [Link](https://www.ilnapolista.it/2024/10/juve-thiago-vince-alla-allegri/)
+
+
 ### hichem aboud (N/A, Sat, 19 Oct 2024 14:30:00 -0700)
 
 - **Alerte. Un opposant algérien disparaît en Espagne | L'observateur**: [Link](https://lobservateur.info/article/112224/monde/alerte-un-opposant-algerien-disparait-en-espagne)
