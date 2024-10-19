@@ -1,3 +1,12 @@
+### léon marchand (N/A, Sat, 19 Oct 2024 10:10:00 -0700)
+
+- **Coupe du monde : Record de France de Léon Marchand sur 200 m quatre nages 
+petit bassin à Shanghai**: [Link](https://www.lequipe.fr/Natation/Actualites/Record-de-france-de-leon-marchand-sur-200-m-quatre-nages-petit-bassin-a-shanghai/1514711)
+- **Coupe du Monde : Marchand ne compte pas s'arrêter là**: [Link](https://sports.orange.fr/plus-de-sport/sports-nautiques/article/coupe-du-monde-marchand-ne-compte-pas-s-arreter-la-exclu-CNT000002fxogS.html)
+- **« C’est un peu la galère » : une tournée deux ambiances pour Léon Marchand 
+et son pote à Shanghai**: [Link](https://www.leparisien.fr/sports/cest-un-peu-la-galere-une-tournee-deux-ambiances-pour-leon-marchand-et-son-pote-a-shanghai-19-10-2024-LZT33G3UMNEABBFUJSLNN27WIU.php)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Sat, 19 Oct 2024 11:40:00 -0700)
 
 - **بالصور.. آرسنال "المنقوص" يسقط في فخ بورنموث**: [Link](https://m.kooora.com/?n=1362273&o=n)
