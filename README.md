@@ -1,3 +1,41 @@
+### paris-sg – strasbourg (N/A, Sat, 19 Oct 2024 11:20:00 -0700)
+
+- **DIRECT. PSG-Strasbourg (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/psg-strasbourg-live/655929)
+- **Luis Enrique et la vie privée des joueurs - France - Paris Saint-Germain**: [Link](https://www.sofoot.com/breves/luis-enrique-psg-et-la-vie-privee-des-joueurs)
+- **Le PSG tombe de haut face à Strasbourg**: [Link](https://www.footmercato.net/a4730637671013289190-le-psg-tombe-de-haut-face-a-strasbourg)
+
+
+### juventus – lazio (N/A, Sat, 19 Oct 2024 11:20:00 -0700)
+
+- **Juve - Lazio, i tifosi rispondono presente: il dato sui tagliandi venduti**: [Link](https://www.lalaziosiamonoi.it/news/juve-lazio-i-tifosi-rispondono-presente-il-dato-sui-tagliandi-venduti-212692)
+- **Motta: “Con Douglas ho parlato pochissimo. Adzic? La postura dice tutto”**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2024/10/18-134237242/motta_con_douglas_ho_parlato_pochissimo_adzic_la_postura_dice_tutto)
+- **LIVE TJ - I convocati: torna Weah. Out Conceicao, McKennie, Koopmeiners, 
+Nico, Milik e Bremer. Thiago...**: [Link](https://www.tuttojuve.com/altre-notizie/live-tj-i-convocati-torna-weah-out-conceicao-mckennie-koopmeiners-nico-milik-e-bremer-thiago-motta-si-affidera-al-4-2-3-1-douglas-luiz-e-cabal-titolar-706654)
+
+
+### celta vigo – real madrid (N/A, Sat, 19 Oct 2024 11:10:00 -0700)
+
+- **Celta - Real Madrid en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/celta-r-madrid/2024/10/19/01_0101_20241019_176_186-directo.html)
+- **La SER anuncia sorpresa en la alineación de Ancelotti en Vigo: un titular 
+va al banquillo**: [Link](https://www.defensacentral.com/real_madrid/1709328897-la-ser-anuncia-sorpresa-en-la-alineacion-de-ancelotti-en-vigo-un-titular-va-al-banquillo)
+- **Kylian Mbappé es titular con el Real Madrid ante el Celta**: [Link](https://www.lanacion.com.ar/agencias/kylian-mbappe-es-titular-con-el-real-madrid-ante-el-celta-nid19102024/)
+
+
+### سلتا فيغو ضد الريال (N/A, Sat, 19 Oct 2024 11:10:00 -0700)
+
+- **إنجاز استثنائي ينتظر أنشيلوتي أمام سيلتا فيجو**: [Link](https://www.kooora.com/?n=1362031)
+- **رسالة دعم على قميص الريال قبل مباراة سيلتا فيغو من أجل كارفخال**: [Link](https://hihi2.com/2024/10/19/p2896094.html)
+- **موعد مباراة سيلتا فيغو ضد ريال مدريد بالدوري الإسباني والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/10/17/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+
+
+### celta vigo vs real madrid (N/A, Sat, 19 Oct 2024 11:10:00 -0700)
+
+- **CONFIRMED lineups: Celta Vigo vs Real Madrid, 2024 La Liga**: [Link](https://www.managingmadrid.com/2024/10/19/24273606/celta-vigo-vs-real-madrid-2024-la-liga-live-online-stream)
+- **Real Madrid Vs. Celta Vigo Preview: Ancelotti Makes Three Line Up Changes**: [Link](https://www.forbes.com/sites/tomsanderson/2024/10/19/real-madrid-vs-celta-vigo-preview-ancelotti-makes-three-line-up-changes/)
+- **La Liga Soccer Livestream: How to Watch Celta Vigo vs. Real Madrid From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-celta-vigo-vs-real-madrid-from-anywhere/)
+
+
 ### newcastle (N/A, Sat, 19 Oct 2024 09:20:00 -0700)
 
 - **Premier League Primary Stars promote ‘No Room for Racism’**: [Link](https://www.bcfc.co.uk/foundation-news/premier-league-primary-stars-promote-no-room-for-racism/)
