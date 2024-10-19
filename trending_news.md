@@ -1,3 +1,10 @@
+### tottenham – west ham (N/A, Sat, 19 Oct 2024 03:40:00 -0700)
+
+- **Team News | Füllkrug remains absent as West Ham get set for Tottenham**: [Link](https://www.whufc.com/news/team-news-fullkrug-remains-absent-west-ham-get-set-tottenham)
+- **Predictable Absence From Training Spells Trouble for Hammers**: [Link](https://www.claretandhugh.info/predictable-absence-from-training-spells-trouble-for-hammers/)
+- **"Even longer" | ExWHUEmployee | Niclas Fullkrug injury blow for West Ham**: [Link](https://www.thewesthamway.com/2024/10/16/even-longer-exwhuemployee-niclas-fullkrug-injury-blow-for-west-ham/)
+
+
 ### chakib benmoussa hcp (N/A, Fri, 18 Oct 2024 17:50:00 -0700)
 
 - **Chakib Benmoussa remplace Ahmed Lahlimi à la tête du HCP**: [Link](https://ledesk.ma/encontinu/chakib-benmoussa-remplace-ahmed-lahlimi-a-la-tete-du-hcp/)
