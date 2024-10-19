@@ -1,3 +1,12 @@
+### tottenham vs west ham (N/A, Sat, 19 Oct 2024 04:20:00 -0700)
+
+- **Premier League LIVE: Build-up to Tottenham Hotspur vs West Ham United 
+(12:30 kick off) & seven other games**: [Link](https://www.bbc.com/sport/football/live/c0qedpznv3wt)
+- **🚨 Son returns! Tottenham and West Ham name starting XIs**: [Link](https://sports.yahoo.com/son-returns-tottenham-west-ham-101800492.html)
+- **Tottenham vs West Ham LIVE STREAM (10/19/24): How to watch Premier League, 
+Son Heung-min’s return**: [Link](https://www.syracuse.com/tv/2024/10/tottenham-vs-west-ham-live-stream-101924-how-to-watch-premier-league-son-heung-mins-return.html)
+
+
 ### ath. bilbao – espanyol (N/A, Sat, 19 Oct 2024 04:10:00 -0700)
 
 - **Día completo en San Mamés: primero Athletic y después running**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20241019/1002335926/dia-completo-san-mames-primero-athletic-running.html)
