@@ -1,3 +1,19 @@
+### inter miami – new england (N/A, Sat, 19 Oct 2024 14:10:00 -0700)
+
+- **MLS Decision Day: How playoff bracket is shaping up on final day of 2024 
+season**: [Link](https://www.usatoday.com/story/sports/mls/2024/10/19/mls-decision-day-schedule-playoff-bracket-watch/75735179007/)
+- **Inter Miami vs. New England Revolution LIVE STREAM (10/19/24): Watch Messi 
+play online | Time, TV, channel fo**: [Link](https://www.nj.com/sports/2024/10/inter-miami-vs-new-england-revolution-live-stream-101924-watch-messi-play-online-time-tv-channel-for-mls-game.html)
+- **Taylor Twellman reminisces Revs’ 2021 points record on ‘The Soccer Show’**: [Link](https://985thesportshub.com/2024/10/19/taylor-twellman-revolution-record/)
+
+
+### wac (N/A, Sat, 19 Oct 2024 14:10:00 -0700)
+
+- **UTA holds onto 1st as GCU turns focus to Saturday**: [Link](https://gculopes.com/news/2024/10/18/womens-volleyball-lopes-fall-in-three-at-uta-turn-towards-hosting-tarleton-saturday.aspx)
+- **This Week In WAC Volleyball - Oct. 17**: [Link](https://wacsports.com/news/2024/10/17/this-week-in-wac-volleyball-oct-17.aspx)
+- **Mavs Stay Unbeaten In Conference, Rattle Off Eighth-Straight Win**: [Link](https://bvmsports.com/2024/10/17/mavs-stay-unbeaten-in-conference-rattle-off-eighth-straight-win/)
+
+
 ### ترتيب البطولة المغربية (N/A, Sat, 19 Oct 2024 14:00:00 -0700)
 
 - **مفارقة مثيرة في موقعة الوداد وشباب المحمدية**: [Link](https://www.kooora.com/?n=1361785)
