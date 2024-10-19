@@ -1,3 +1,27 @@
+### antalyaspor vs galatasaray (N/A, Sat, 19 Oct 2024 10:10:00 -0700)
+
+- **Preview: Antalyaspor vs. Galatasaray - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/antalyaspor/preview/preview-antalyaspor-vs-galatasaray-prediction-team-news-lineups_555696.html)
+- **Antalyaspor vs Galatasaray Live Stream & Tips – Visitors to Win With BTTS 
+in the Super Lig**: [Link](https://www.freetips.com/football/turkish-super-lig/antalyaspor-vs-galatasaray-live-stream-20241018-0040/)
+- **Antalyaspor vs Galatasaray Prediction and Betting Tips | October 19th 2024**: [Link](https://www.sportskeeda.com/football/antalyaspor-vs-galatasaray-prediction-betting-tips-october-19th-2024)
+
+
+### f1 (N/A, Sat, 19 Oct 2024 10:10:00 -0700)
+
+- **Everything you need to know about the US GP sprint race**: [Link](https://www.gpfans.com/en/f1-news/1032658/f1-sprint-race-today-united-states-grand-prix-2024-start-times-schedule-tv-channel/)
+- **US Grand Prix: Max Verstappen takes sprint pole with Lando Norris fourth**: [Link](https://www.bbc.com/sport/formula1/articles/cx2m9597ke1o)
+- **F1 Austin qualifying schedule of today**: [Link](https://racingnews365.com/f1-qualifying-austin-2024-schedule-today)
+
+
+### arsenal (N/A, Sat, 19 Oct 2024 10:00:00 -0700)
+
+- **Premier League LIVE: Build-up to Tottenham Hotspur vs West Ham United 
+(12:30 kick off) & seven other games**: [Link](https://www.bbc.com/sport/football/live/c0qedpznv3wt?page=2)
+- **Chris Sutton predicts that Arsenal could be in for a big surprise at 
+Bournemouth**: [Link](https://www.justarsenal.com/sutton-predicts-that-arsenal-could-be-in-for-a-big-surprise-at-bournemouth/378500)
+- **🚨 Saka out! Arsenal and Bournemouth name XIs for south coast clash**: [Link](https://sports.yahoo.com/saka-arsenal-bournemouth-name-xis-151900890.html)
+
+
 ### bournemouth vs arsenal (N/A, Sat, 19 Oct 2024 09:40:00 -0700)
 
 - **Chris Sutton predicts that Arsenal could be in for a big surprise at 
