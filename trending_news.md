@@ -1,3 +1,19 @@
+### ath. bilbao – espanyol (N/A, Sat, 19 Oct 2024 04:10:00 -0700)
+
+- **Día completo en San Mamés: primero Athletic y después running**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20241019/1002335926/dia-completo-san-mames-primero-athletic-running.html)
+- **Aspirando a un Regreso con Tres Puntos**: [Link](https://www.footboom1.com/es/news/football/1957540-aiming-for-a-comeback-with-three-points)
+- **Athletic - Espanyol: horario y dónde ver hoy en TV el partido de LaLiga EA 
+Sports**: [Link](https://www.marca.com/futbol/primera-division/2024/10/18/athletic-espanyol-horario-ver-tv-partido-laliga-ea-sports.html)
+
+
+### kemi seba (N/A, Sat, 19 Oct 2024 03:10:00 -0700)
+
+- **Kemi Seba, éliminatoires CAN-2025, guerre au Soudan : l’hebdo Afrique**: [Link](https://www.france24.com/fr/afrique/20241018-kemi-seba-%C3%A9liminatoires-can-2025-guerre-au-soudan-l-hebdo-afrique)
+- **Garde à vue de Kemi Seba : le panafricaniste interrogé sur ses liens 
+supposés avec Wagner**: [Link](https://www.jeuneafrique.com/1622166/politique/garde-a-vue-de-kemi-seba-le-panafricaniste-interroge-sur-ses-liens-supposes-avec-wagner/)
+- **Kémi Séba est libre mais demeure sous le coup d'une enquête**: [Link](https://fr.africanews.com/2024/10/18/kemi-seba-est-libre-mais-demeure-sous-le-coup-dune-enquete/)
+
+
 ### tottenham – west ham (N/A, Sat, 19 Oct 2024 03:40:00 -0700)
 
 - **Team News | Füllkrug remains absent as West Ham get set for Tottenham**: [Link](https://www.whufc.com/news/team-news-fullkrug-remains-absent-west-ham-get-set-tottenham)
