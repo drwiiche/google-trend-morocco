@@ -1,3 +1,37 @@
+### ترتيب البطولة المغربية (N/A, Sat, 19 Oct 2024 14:00:00 -0700)
+
+- **مفارقة مثيرة في موقعة الوداد وشباب المحمدية**: [Link](https://www.kooora.com/?n=1361785)
+- **آيت منا كايخدم مصلحة الفريق ديالو: دار لشباب المحمدية الدخلة بثمن طالع 
+فماتش الوداد**: [Link](https://www.goud.ma/%D8%A2%D9%8A%D8%AA-%D9%85%D9%86%D8%A7-%D9%83%D8%A7%D9%8A%D8%AE%D8%AF%D9%85-%D9%85%D8%B5%D9%84%D8%AD%D8%A9-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%AF%D9%8A%D8%A7%D9%84%D9%88-%D8%AF%D8%A7%D8%B1-%D9%84-910269/)
+- **الوداد يختتم تحضيراته بمركب ويلنس تأهبا لمواجهة شباب المحمدية في الجولة 6 
+من البطولة**: [Link](https://m.elbotola.com/article/2024-10-18-15-53-864.html)
+
+
+### real madrid match (N/A, Sat, 19 Oct 2024 14:00:00 -0700)
+
+- **Real Madrid vs. Celtic FC Live Stream: Time, TV, Channels, & How To Watch 
+UWCL Online**: [Link](https://www.managingmadrid.com/2024/10/17/24271963/real-madrid-femenino-vs-celtic-fcwomen-live-stream-time-tv-channels-how-to-watch-uwcl-online)
+- **Roma and Real Madrid cruise to victories in Women's Champions League**: [Link](https://www.castanet.net/news/Soccer/512355/Roma-and-Real-Madrid-cruise-to-victories-in-Womens-Champions-League)
+- **Amy Gallacher: The UWCL stage is one we all want to be playing our part in**: [Link](https://sports.yahoo.com/amy-gallacher-uwcl-stage-one-100000388.html)
+
+
+### wydad (N/A, Sat, 19 Oct 2024 13:50:00 -0700)
+
+- **Le salaire de Rulani Mokwena à Wydad AC dévoilé**: [Link](https://www.footboom1.com/fr/news/football/1954123-rulani-mokwena-s-salary-at-wydad-ac-unveiled)
+- **Bouchaib Lahrach, président de la commission centrale d’arbitrage: «Le 
+Wydad n’est pas ciblé» (VIDEO)**: [Link](https://www.lesiteinfo.com/sport/630325-bouchaib-lahrach-president-de-la-commission-centrale-darbitrage-le-wydad-nest-pas-cible-video.html)
+- **Wydad Casablanca : un joueur veut quitter le club en janvier**: [Link](https://www.lesiteinfo.com/sport/630231-wydad-casablanca-un-joueur-veut-quitter-le-club-en-janvier.html)
+
+
+### pfl (N/A, Sat, 19 Oct 2024 13:10:00 -0700)
+
+- **AJ McKee reveals Khabib Nurmagomedov already told him fight against Usman 
+Nurmagomedov is next**: [Link](https://www.mmafighting.com/2024/10/18/24272164/aj-mckee-reveals-khabib-nurmagomedov-already-told-him-fight-against-usman-nurmagomedov-is-next)
+- **I beat ‘career-ending’ injury to reclaim Conor McGregor’s belt – now I’m 
+fighting with Francis Ngannou...**: [Link](https://talksport.com/mma/2175064/paul-hughes-conor-mcgregor-francis-ngannou-pfl-mma-ireland/)
+- **The Craic | Dan Hardy on UFC vs PFL, Paul Hughes plans to shock the world**: [Link](https://sports.yahoo.com/craic-dan-hardy-ufc-vs-170000785.html)
+
+
 ### ferrari f80 concept (N/A, Sat, 19 Oct 2024 13:40:00 -0700)
 
 - **Ferrari Unveils First Supercar in 11 Years Costing €3.6 Million**: [Link](https://www.bloomberg.com/news/articles/2024-10-17/ferrari-unveils-first-supercar-in-11-years-costing-3-6-million)
