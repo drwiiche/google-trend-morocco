@@ -1,3 +1,13 @@
+### ngannou vs ferreira (N/A, Sat, 19 Oct 2024 11:50:00 -0700)
+
+- **PFL Battle of the Giants and UFC Vegas 99 Preview Show: Will Francis 
+Ngannou have a triumphant return to MMA?**: [Link](https://www.mmafighting.com/2024/10/18/24273428/pfl-battle-of-giants-ufc-vegas-99-preview-show-will-francis-ngannou-have-triumphant-return-to-mma)
+- **I ‘refuse for life to take me down,’ says world heavyweight champion 
+Francis Ngannou**: [Link](https://english.alarabiya.net/sports/2024/10/19/i-refuse-for-life-to-take-me-down-says-world-heavyweight-champion-francis-ngannou)
+- **Exclusive: Renan Ferreira Delivers Surprising Response to Tom Aspinall’s 
+'Not Elite' Remark Before Francis Ngannou Fight**: [Link](https://www.essentiallysports.com/ufc-mma-news-exclusive-renan-ferreira-delivers-surprising-response-to-tom-aspinalls-not-elite-remark-before-francis-ngannou-fight/)
+
+
 ### léon marchand (N/A, Sat, 19 Oct 2024 10:10:00 -0700)
 
 - **Coupe du monde : Record de France de Léon Marchand sur 200 m quatre nages 
