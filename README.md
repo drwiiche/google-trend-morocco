@@ -1,3 +1,18 @@
+### maes lacrim (N/A, Fri, 18 Oct 2024 15:10:00 -0700)
+
+- **Trois têtes d’affiche pour un clash : Maes s’en prend à Lacrim et même 
+Booba n’aurait pas osé…**: [Link](https://www.sudinfo.be/id900960/article/2024-10-18/trois-tetes-daffiche-pour-un-clash-maes-sen-prend-lacrim-et-meme-booba-naurait)
+- **Booba et Lacrim unis contre Maes, il riposte**: [Link](https://generations.fr/news/coulisse/78475/booba-et-lacrim-unis-contre-maes-il-riposte)
+- **Lacrim entre en clash avec Maes et sort un diss track dans la foulée**: [Link](https://www.konbini.com/popculture/lacrim-entre-en-clash-avec-maes-et-sort-un-diss-track-dans-la-foulee/)
+
+
+### عبد السلام فريندو (N/A, Fri, 18 Oct 2024 12:40:00 -0700)
+
+- **من هو عبد السلام فريندو عامل إقليم الدريوش الجديد ؟**: [Link](https://ar.hibapress.com/details-563863.html)
+- **تعيين الكاتب العام بعمالة فاس عاملا على إقليم الدريوش**: [Link](https://l3assima.ma/ar/21374)
+- **الملك محمد السادس يعين ولاة وعمالا وسفراء جددا .. هذه القائمة كاملة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B9%D9%8A%D9%86-%D9%88%D9%84%D8%A7%D8%A9-%D9%88%D8%B9%D9%85%D8%A7%D9%84%D8%A7-%D9%88%D8%B3%D9%81-1449754.html)
+
+
 ### عبد اللطيف النحلي (N/A, Fri, 18 Oct 2024 11:40:00 -0700)
 
 - **تعيين عبد اللطيف النحلي عاملاً جديداً على إقليم الخميسات خلفاً لمنصور قرطاح**: [Link](https://ar.hibapress.com/details-563691.html)
