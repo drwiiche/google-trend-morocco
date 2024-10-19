@@ -1,3 +1,17 @@
+### أنطاليا سبور ضد غلطة سراي (N/A, Sat, 19 Oct 2024 09:00:00 -0700)
+
+- **زياش يثير ضجة بحذف الصور مع المنتخب**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%B6%D8%AC%D8%A9-%D8%A8%D8%AD%D8%B0%D9%81-%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-1448742.html)
+- **حقيقة استبعاد زياش من معسكر المغرب المقبل**: [Link](https://www.kooora.com/?n=1361787)
+- **صور لحكيم زياش في تداريبه الأخيرة رفقة غالطة سراي**: [Link](https://ar.sport.le360.ma/internal-gallery/4NA7OY6MIBHGDD3XKSEHY75XE4/)
+
+
+### bayern – stuttgart (N/A, Sat, 19 Oct 2024 08:50:00 -0700)
+
+- **Darum ist auch der FC Bayern für VfB-Trainer Hoeneß ein echter Herzensverein**: [Link](https://www.suedwest24.de/sport/vfb-stuttgart/onkel-vertrag-wechsel-sebastian-hoeness-fc-bayern-muenchen-trainer-vater-93360025.html)
+- **Ohne Musiala: Auf diese Startelf setzt Kompany im Südschlager**: [Link](https://fcbinside.de/2024/10/19/ohne-musiala-auf-diese-startelf-setzt-kompany-im-suedschlager/)
+- **FC Bayern – VfB Stuttgart im Live-Ticker: Bundesliga-Topspiel heute**: [Link](https://www.bild.de/sport/fussball/fc-bayern-vfb-stuttgart-im-live-ticker-bundesliga-topspiel-heute-6710fc93a0e636753eda40da)
+
+
 ### bournemouth – arsenal (N/A, Sat, 19 Oct 2024 08:40:00 -0700)
 
 - **Team news: Saka misses Bournemouth game**: [Link](https://www.arsenal.com/news/team-news-saka-misses-bournemouth-game)
