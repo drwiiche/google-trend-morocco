@@ -1,3 +1,27 @@
+### bet365 (N/A, Sat, 19 Oct 2024 08:00:00 -0700)
+
+- **Bet365 Bonus Code WEEK365: Secure $200 Bonus or $1K Safety Net for CFB**: [Link](https://www.newsweek.com/bet365-bonus-code-week365-secure-200-bonus-1k-safety-net-cfb-october-19-1971631)
+- **NFL betting offer: Get £30 in free bets with Paddy Power + two special bet 
+builders...**: [Link](https://talksport.com/betting/2179015/nfl-betting-offer-paddy-power/)
+- **bet365 Bonus Code POSTNEWS scores $1K bet insurance or $200 in bonus bets 
+for Oregon-Purdue, all Friday sports**: [Link](https://nypost.com/2024/10/18/betting/bet365-bonus-code-postnews-scores-1k-bet-insurance-or-200-in-bonus-bets-for-oregon-purdue-all-friday-sports/)
+
+
+### ipswich town – everton (N/A, Sat, 19 Oct 2024 07:50:00 -0700)
+
+- **Everton at Ipswich: Starting Lineups & How to Watch | Branthwaite out**: [Link](https://royalbluemersey.sbnation.com/2024/10/19/24274140/ipswich-everton-starting-lineups-tv-schedule-live-stream-and-how-to-watch-online)
+- **Football Accumulator Tips: Saturday's 19/1 Premier League punt**: [Link](https://news.paddypower.com/football/premier-league/2024/10/19/football-accumulator-tips-saturday-premier-league-betting-19-october/)
+- **Taylor: Focus on the Performance and First Win Will Come**: [Link](https://www.twtd.co.uk/ipswich-town-news/48129/taylor-focus-on-the-performance-and-first-win-will-come)
+
+
+### leverkusen vs eintracht frankfurt (N/A, Sat, 19 Oct 2024 07:50:00 -0700)
+
+- **Eintracht Frankfurt bei Angstgegner Leverkusen - Wirtz dieses Mal was?**: [Link](https://www.hessenschau.de/sport/fussball/eintracht-frankfurt/eintracht-frankfurt-bei-angstgegner-leverkusen---wirtz-dieses-mal-was--v1,eintracht-angeberwissen-leverkusen100.html)
+- **Bundesliga-Konferenz im Liveticker: Leverkusen, Leipzig und Freiburg am 
+Samstag**: [Link](https://www.sportbuzzer.de/fussball/bundesliga/bundesliga-konferenz-im-liveticker-leverkusen-leipzig-und-freiburg-am-samstag-KPTXLUCADNES7JP3WS2WIDJOPI.html)
+- **🔴 Verfolgerduell in Leverkusen: Die Buli-Konferenz im Liveblog**: [Link](https://onefootball.com/de/news/verfolgerduell-in-leverkusen-die-buli-konferenz-im-liveblog-40188743)
+
+
 ### osasuna vs real betis (N/A, Sat, 19 Oct 2024 07:40:00 -0700)
 
 - **Osasuna vs. Betis (Oct 19, 2024) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/704757)
