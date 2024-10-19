@@ -1,3 +1,11 @@
+### psg (N/A, Sat, 19 Oct 2024 12:00:00 -0700)
+
+- **DIRECT. PSG-Strasbourg (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/psg-strasbourg-live/655929)
+- **Paris Saint-Germain - Strasbourg en direct - Ligue 1 : Football Scores & 
+Résultats - 19/10/2024**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/live-paris-saint-germain-strasbourg_mtc1526238/live-commentary.shtml)
+- **PRONOS PARIS RMC Les paris sur Paris-SG - Strasbourg du 19 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-les-paris-sur-paris-sg-strasbourg-du-19-octobre-ligue-1_AN-202410180825.html)
+
+
 ### ngannou vs ferreira (N/A, Sat, 19 Oct 2024 11:50:00 -0700)
 
 - **PFL Battle of the Giants and UFC Vegas 99 Preview Show: Will Francis 
