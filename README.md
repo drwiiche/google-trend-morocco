@@ -1,3 +1,11 @@
+### real madrid club de fútbol (N/A, Sat, 19 Oct 2024 12:00:00 -0700)
+
+- **Ancelotti: "¿En cuántos de estos 200 partidos no hemos sufrido?"**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/19/ancelotti-cuantos-200-partidos-hemos-sufrido.html)
+- **Modric los deja en evidencia**: [Link](https://as.com/opinion/modric-los-deja-en-evidencia-n/)
+- **Modrić es el jugador más veterano que disputa un partido oficial en la 
+historia del Real Madrid**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/actualidad/modric-el-jugador-mas-veterano-de-la-historia-del-madrid-19-10-2024)
+
+
 ### ترتيب الدوري المغربي (N/A, Sat, 19 Oct 2024 14:20:00 -0700)
 
 - **معسكر مغلق للجيش الملكي قبل معركة الرجاء**: [Link](https://www.kooora.com/?n=1362188)
