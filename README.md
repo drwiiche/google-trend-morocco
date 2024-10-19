@@ -1,3 +1,15 @@
+### osasuna vs real betis (N/A, Sat, 19 Oct 2024 07:40:00 -0700)
+
+- **Osasuna vs. Betis (Oct 19, 2024) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/704757)
+- **Osasuna vs. Betis (19 Oct, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/704757)
+- **Osasuna vs. Betis (Oct 19, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704757)
+
+
+### ليفركوزن ضد آينتراخت (N/A, Sat, 19 Oct 2024 07:40:00 -0700)
+
+
+
+
 ### manchester united (N/A, Sat, 19 Oct 2024 07:30:00 -0700)
 
 - **Erik ten Hag: Manchester United manager accuses media of making up 
