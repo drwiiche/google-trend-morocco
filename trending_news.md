@@ -1,3 +1,10 @@
+### brest – rennes (N/A, Sat, 19 Oct 2024 08:30:00 -0700)
+
+- **Rennes : l’avenir de Julien Stéphan ne tient plus qu’à un fil !**: [Link](https://www.footmercato.net/a4783615115195233095-rennes-lavenir-de-julien-stephan-ne-tient-plus-qua-un-fil)
+- **Brest - Stade rennais : la compo de Stéphan**: [Link](https://www.stade-rennais-online.com/Brest-Stade-rennais-la-compo-de-Stephan.html)
+- **Suivez le multiplex de la 7ème journée de Ligue 1 2024-2025**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/live-stade-brestois-stade-rennais_mtc1526240/live-commentary.shtml)
+
+
 ### antalyaspor – galatasaray (N/A, Sat, 19 Oct 2024 08:10:00 -0700)
 
 - **Lider Galatasaray Antalya'da 3 puan arıyor: İlk 11'ler belli oldu**: [Link](https://www.ntv.com.tr/galeri/sporskor/lider-galatasaray-antalyada-3-puan-ariyor-ilk-11ler-belli-oldu,GvVVgAn7YEedEFVZsCTscQ)
