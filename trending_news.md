@@ -1,3 +1,18 @@
+### ترتيب الدوري الانجليزي (N/A, Sat, 19 Oct 2024 11:40:00 -0700)
+
+- **بالصور.. آرسنال "المنقوص" يسقط في فخ بورنموث**: [Link](https://m.kooora.com/?n=1362273&o=n)
+- **آرسنال يرفع شعار الفوز أمام بورنموث**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B1%D9%81%D8%B9-%D8%B4%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-2024-10-19)
+- **تشكيلة أرسنال و بورنموث في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/10/19/p2895895.html)
+
+
+### mazraoui (N/A, Sat, 19 Oct 2024 11:30:00 -0700)
+
+- **Premier League Manchester United 2 Brentford 1 Full time**: [Link](https://www.bbc.com/sport/football/live/cp95eg5dpdzt)
+- **Erik ten Hag confirms team news for Brentford clash**: [Link](https://www.manutd.com/en/news/detail/erik-ten-hag-confirms-team-news-for-brentford-on-19-oct)
+- **Erik ten Hag facing defensive injury crisis with Jonny Evans set for new 
+role**: [Link](https://www.mirror.co.uk/sport/football/news/man-united-injuries-jonny-evans-33888696)
+
+
 ### paris-sg – strasbourg (N/A, Sat, 19 Oct 2024 11:20:00 -0700)
 
 - **DIRECT. PSG-Strasbourg (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/psg-strasbourg-live/655929)
