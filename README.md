@@ -1,3 +1,10 @@
+### cuba (N/A, Sat, 19 Oct 2024 23:10:00 -0700)
+
+- **Cuba hit by second nationwide blackout amid worsening energy crisis**: [Link](https://www.cnn.com/2024/10/19/americas/cuba-second-nationwide-blackout-intl/index.html)
+- **Much of Cuba remains without power - 24 hours after main power plant fails**: [Link](https://www.bbc.com/news/articles/c8elzx8dg7zo)
+- **Cuba Suffers Second Power Outage in 24 Hours, Realizing Years of Warnings**: [Link](https://www.nytimes.com/2024/10/19/world/americas/cuba-power-outage.html)
+
+
 ### inter miami vs new england (N/A, Sat, 19 Oct 2024 15:20:00 -0700)
 
 - **Club World Cup: Lionel Messi's Inter Miami named as MLS participant in 
