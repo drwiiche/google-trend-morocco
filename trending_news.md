@@ -1,3 +1,11 @@
+### kick (N/A, Sun, 20 Oct 2024 16:40:00 -0700)
+
+- **N3on banned on Kick for this savage reason**: [Link](https://www.mundodeportivo.com/us/en/20241020/705243/n3on-banned-on-kick-for-this-savage-reason.html)
+- **Winners and losers: 5 takeaways from Packers in Week 7**: [Link](https://fansided.com/winners-and-losers-5-takeaways-from-packers-in-week-7-01janv27qnjy)
+- **Passing problems cause Texans to waste an impressive performance from their 
+injury-riddled defense**: [Link](https://apnews.com/article/houston-texans-stroud-3f478fc38ef41b54188c90b16ced5959)
+
+
 ### fc barcelona (N/A, Sun, 20 Oct 2024 12:00:00 -0700)
 
 - **Confirmado: ¡Gavi vuelve contra el Sevilla!**: [Link](https://www.marca.com/futbol/barcelona/2024/10/20/confirmado-gavi-vuelve-sevilla.html)
