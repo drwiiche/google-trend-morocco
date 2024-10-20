@@ -1,3 +1,18 @@
+### inter (N/A, Sun, 20 Oct 2024 12:40:00 -0700)
+
+- **PRESS ROOM | Comments after Inter-Juventus Women**: [Link](https://www.juventus.com/en/news/articles/press-room-comments-after-inter-juventus-women-x2633)
+- **Preview: Inter vs Juventus Women**: [Link](https://onefootball.com/en/news/preview-inter-vs-juventus-women-40190644)
+- **Women, the complete guide of Inter vs. Juventus**: [Link](https://onefootball.com/en/news/women-the-complete-guide-of-inter-vs-juventus-40172393)
+
+
+### barça (N/A, Sun, 20 Oct 2024 12:40:00 -0700)
+
+- **El Barça busca extender ante Baskonia su momento más dulce**: [Link](https://www.sport.es/es/noticias/baloncesto-barca/barca-busca-extender-baskonia-momento-109788366)
+- **El Unicaja, líder en solitario y único invicto tras la derrota del Barça en 
+el Palau**: [Link](https://www.infobae.com/america/agencias/2024/10/20/el-unicaja-lider-en-solitario-y-unico-invicto-tras-la-derrota-del-barca-en-el-palau/)
+- **Forrest toma el Palau**: [Link](https://www.noticiasdealava.eus/baskonia/2024/10/20/forrest-toma-palau-baskonia-barcelona-acb-8829868.html)
+
+
 ### ouadih dada 2m (N/A, Sun, 20 Oct 2024 12:00:00 -0700)
 
 - **Activité syndicale : Ouadih Dada est interdit de ses fonctions à 2M à 
