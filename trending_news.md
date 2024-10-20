@@ -1,3 +1,25 @@
+### pablo torre (N/A, Sun, 20 Oct 2024 14:00:00 -0700)
+
+- **10:00H | 20 OCT 2024 | Myriam Rodilla**: [Link](https://www.cadena100.es/programas/myriam-rodilla/horas-completas/10-00h-20-oct-2024-myriam-rodilla-20241020_126802.html)
+- **Gol de Pedri (Barcelona, 2 - Sevilla, 0)**: [Link](https://www.cope.es/programas/tiempo-de-juego/audios/gol-pedri-barcelona-2-sevilla-0-20241020_3031244.html)
+- **19:30 | 20 OCT 2024 | TIEMPO DE JUEGO**: [Link](https://www.cope.es/programas/tiempo-de-juego/horas-completas/19-30-20-oct-2024-juego-20241020_3031238.html)
+
+
+### نادين نسيب نجيم (N/A, Sun, 20 Oct 2024 14:00:00 -0700)
+
+- **نادين نسيب نجيم تتحدث للمرة الأولى عن سبب انفصالها عن خطيبها**: [Link](https://www.lahamag.com/article/216326-%D9%86%D8%A7%D8%AF%D9%8A%D9%86-%D9%86%D8%B3%D9%8A%D8%A8-%D9%86%D8%AC%D9%8A%D9%85-%D8%AA%D8%AA%D8%AD%D8%AF%D8%AB-%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D8%B9%D9%86-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%86%D9%81%D8%B5%D8%A7%D9%84%D9%87%D8%A7-%D8%B9%D9%86-%D8%AE%D8%B7%D9%8A%D8%A8%D9%87%D8%A7)
+- **نادين نجيم "عزباء"؟ وعمدة روما يسخر من تصريحات ماكرون بسبب مسلسل.. الأبرز 
+في أسبوع**: [Link](https://arabic.cnn.com/entertainment/video/2024/10/14/v163710-trending-segment-nadine-nassib-njeim)
+- **إيلي باسيل يكشف الصدمة.. سرقة وخداع وراء انفصال نادين نسيب نجيم**: [Link](https://www.akhbar-sharq.com/news/19432)
+
+
+### gavi (N/A, Sun, 20 Oct 2024 13:50:00 -0700)
+
+- **Confirmado: ¡Gavi vuelve contra el Sevilla!**: [Link](https://www.marca.com/futbol/barcelona/2024/10/20/confirmado-gavi-vuelve-sevilla.html)
+- **El retorno de Gavi llegará con una sorpresa muy especial**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241020/1002336697/recuperacion-gavi-tendra-documental.html)
+- **Dani Olmo, objetivo 'El Clásico': el plan de regreso tras la lesión**: [Link](https://www.eldesmarque.com/futbol/fc-barcelona/20241020/dani-olmo-objetivo-el-clasico-plan-regreso-tras-lesion_300477912.html)
+
+
 ### lewandowski (N/A, Sun, 20 Oct 2024 12:50:00 -0700)
 
 - **Miał być wielki pojedynek. "Lewy" przyćmił młodego gwiazdora**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1151814/co-za-slowa-o-lewandowskim-najlepszy-napastnik-na-swiecie)
