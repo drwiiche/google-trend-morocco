@@ -1,3 +1,11 @@
+### atlético madrid – leganés (N/A, Sun, 20 Oct 2024 06:30:00 -0700)
+
+- **Atlético de Madrid vs. Leganés: Pronósticos y predicciones del partido por 
+La Liga de España 2024-2025**: [Link](https://www.sportingnews.com/us-es/la-liga/news/atletico-madrid-leganes-pronosticos-predicciones/b19c3893dc4eb84007301ff5)
+- **El Atlético busca ante el Leganés aparcar sus dudas**: [Link](https://madridpress.com/art/337718/el-atletico-busca-ante-el-leganes-aparcar-sus-dudas)
+- **Atlético-Leganés: olla a presión en el estreno del Rijadh Air Metropolitano**: [Link](https://okdiario.com/deportes/atletico-leganes-olla-presion-estreno-del-rijadh-air-metropolitano-13653189)
+
+
 ### dani olmo (N/A, Sun, 20 Oct 2024 06:00:00 -0700)
 
 - **Confirmado: ¡Gavi vuelve contra el Sevilla!**: [Link](https://www.marca.com/futbol/barcelona/2024/10/20/confirmado-gavi-vuelve-sevilla.html)
