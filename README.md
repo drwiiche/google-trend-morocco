@@ -1,3 +1,10 @@
+### formula 1 (N/A, Sun, 20 Oct 2024 12:20:00 -0700)
+
+- **As Formula One season nears finish, 2025 driver lineups take shape**: [Link](https://www.washingtonpost.com/sports/2024/10/18/f1-driver-lineup-changes-2025/)
+- **Formula 1 Driver Contract Updates: 2025 Racing Lineup Revealed!**: [Link](https://www.justjared.com/2024/10/20/formula-1-driver-contract-updates-2025-racing-lineup-revealed/2/)
+- **Formula 1 Driver Contract Updates: 2025 Racing Lineup Revealed!**: [Link](https://www.justjared.com/2024/10/20/formula-1-driver-contract-updates-2025-racing-lineup-revealed/)
+
+
 ### برشلونة (N/A, Sun, 20 Oct 2024 12:10:00 -0700)
 
 - **هاري كين: برشلونة يشبه شتوتجارت**: [Link](https://www.kooora.com/?n=1362417)
