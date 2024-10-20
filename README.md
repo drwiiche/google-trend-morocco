@@ -1,3 +1,20 @@
+### zone-turf (N/A, Sun, 20 Oct 2024 01:40:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 7 Turania**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-7-turania-125796.html)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 13 Reve de 
+Prince**: [Link](https://www.zone-turf.fr/actualite/obstacle/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-13-reve-de-prince-125792.html)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 6 Dazzling 
+Jewel**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-6-dazzling-jewel-125764.html)
+
+
+### ngannou (N/A, Sat, 19 Oct 2024 15:40:00 -0700)
+
+- **What time is Ngannou vs. Ferreira ringwalk? Walk-in time for PFL fight**: [Link](https://www.usatoday.com/story/sports/mma/2024/10/19/francis-ngannou-renan-ferreira-fight-time-ringwalk/75754666007/)
+- **PFL Battle Of The Giants Results: Ngannou Vs. Ferreira Fight Card**: [Link](https://www.forbes.com/sites/trentreinsmith/2024/10/19/pfl-battle-of-the-giants-results-ngannou-vs-ferreira-fight-card/)
+- **I ‘refuse for life to take me down,’ says world heavyweight champion 
+Francis Ngannou**: [Link](https://english.alarabiya.net/sports/2024/10/19/i-refuse-for-life-to-take-me-down-says-world-heavyweight-champion-francis-ngannou)
+
+
 ### messi (N/A, Sat, 19 Oct 2024 17:30:00 -0700)
 
 - **Club World Cup: Lionel Messi's Inter Miami named as MLS participant in 
