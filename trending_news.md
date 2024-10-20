@@ -1,3 +1,13 @@
+### inter miami vs new england (N/A, Sat, 19 Oct 2024 15:20:00 -0700)
+
+- **Club World Cup: Lionel Messi's Inter Miami named as MLS participant in 
+32-team tournament**: [Link](https://www.bbc.com/sport/football/articles/c5y3nlw52ero)
+- **FIFA selects Lionel Messi's Inter Miami to play in Club World Cup 2025**: [Link](https://www.usatoday.com/story/sports/soccer/2024/10/19/fifa-club-world-cup-2025-inter-miami-messi/75757646007/)
+- **Inter Miami player ratings vs New England Revolution: Lionel Messi king of 
+MLS as Argentine scores hat-trick in 11 minutes, leading Herons to 
+regular-season points record**: [Link](https://www.goal.com/en-cm/lists/inter-miami-player-ratings-vs-new-england-revolution-luis-suarez-lionel-messi-mls-points-record/blte1371a3da1356f48)
+
+
 ### real madrid celta vigo (N/A, Sat, 19 Oct 2024 14:20:00 -0700)
 
 - **Carlo Ancelotti: "Modric Changed the Game"**: [Link](https://www.footboom1.com/en/news/football/1961566-carlo-ancelotti-modric-changed-the-game)
