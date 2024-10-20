@@ -1,3 +1,32 @@
+### fcb (N/A, Sun, 20 Oct 2024 11:20:00 -0700)
+
+- **Preview: Barcelona vs. Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/race-for-the-la-liga-title/preview/preview-barcelona-vs-sevilla-prediction-team-news-lineups_555772.html)
+- **Yamal, Eric Garcia start in a 4-2-3-1: How Barcelona can line up against 
+Sevilla**: [Link](https://barcauniversal.com/yamal-eric-garcia-start-in-a-4-2-3-1-how-barcelona-can-line-up-against-sevilla/)
+- **La Liga Soccer Livestream: How to Watch Barcelona vs. Sevilla From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-barcelona-vs-sevilla-from-anywhere/)
+
+
+### barcelone – séville (N/A, Sun, 20 Oct 2024 11:10:00 -0700)
+
+- **FC Barcelone - Séville : les compositions officielles**: [Link](https://www.footmercato.net/a6032970193084795081-fc-barcelone-seville-les-compositions-officielles)
+- **Sur quelle chaîne et à quelle heure voir Barça - Séville**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4149064/sur-quelle-chaine-et-a-quelle-heure-voir-barca-seville)
+- **Barça, l'annonce forte d'Hansi Flick pour Ansu Fati**: [Link](https://www.goal.com/fr/news/barca-l-annonce-forte-d-hansi-flick-pour-ansu-fati/blta0aaf7ba633f6cfa)
+
+
+### barcelona vs sevilla (N/A, Sun, 20 Oct 2024 11:10:00 -0700)
+
+- **Barcelona - Sevilla en directo | LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/barcelona-sevilla/2024/10/20/01_0101_20241020_178_179-directo.html)
+- **¡Ya hay once oficial del Barça para medirse al Sevilla!**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241020/1002337138/hay-once-oficial-barca-medirse-sevilla.html)
+- **Barcelona - Sevilla, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/barcelona-sevilla-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+
+
+### montpellier – marseille (N/A, Sun, 20 Oct 2024 11:10:00 -0700)
+
+- **DIRECT. Montpellier-OM (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/montpellier-om-live/655925)
+- **L’OM sonne la révolte contre Montpellier**: [Link](https://www.footmercato.net/a8834849997424043148-lom-sonne-la-revolte-contre-montpellier)
+- **[Podcasts] Vincent Collet invité exceptionnel de Stephen Brunch - 20/10**: [Link](https://rmcsport.bfmtv.com/replay-emissions/stephen-time/vincent-collet-invite-exceptionnel-de-stephen-brunch-20-10_EN-202410200295.html)
+
+
 ### roma – inter (N/A, Sun, 20 Oct 2024 11:00:00 -0700)
 
 - **Roma-Inter, una notte da gladiatori: nessuno può permettersi di sbagliare**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/20-10-2024/serie-a-roma-inter-juric-contro-inzaghi-partita-da-gladiatori.shtml)
