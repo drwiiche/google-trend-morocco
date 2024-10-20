@@ -1,3 +1,18 @@
+### lewandowski (N/A, Sun, 20 Oct 2024 12:50:00 -0700)
+
+- **Miał być wielki pojedynek. "Lewy" przyćmił młodego gwiazdora**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1151814/co-za-slowa-o-lewandowskim-najlepszy-napastnik-na-swiecie)
+- **Kosmiczny wyczyn Lewandowskiego. To się dzieje naprawdę, nie ma już odwrotu**: [Link](https://sport.interia.pl/robert-lewandowski/news-kosmiczny-wyczyn-lewandowskiego-to-sie-dzieje-naprawde-nie-m,nId,7839828)
+- **Hiszpanie nie czekali. Już piszą o Robercie Lewandowskim. Jeden wniosek**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/laliga/hiszpanie-nie-czekali-juz-pisza-o-robercie-lewandowskim-jeden-wniosek/4m43qyg)
+
+
+### inter milan (N/A, Sun, 20 Oct 2024 12:50:00 -0700)
+
+- **Acerbi subbed off injured for Inter after Calhanoglu**: [Link](https://football-italia.net/acerbi-subbed-off-injured-inter-calhanoglu/)
+- **Revealed - Why Hakan Calhanoglu subbed off early for Inter vs Roma**: [Link](https://sempreinter.com/2024/10/20/revealed-why-hakan-calhanoglu-subbed-off-early-inter-roma/)
+- **Not Just Calhanoglu – Italy Star Also Off With Thigh Problem In Inter Milan 
+Serie A Clash Vs Roma**: [Link](https://onefootball.com/en/news/not-just-calhanoglu-italy-star-also-off-with-thigh-problem-in-inter-milan-serie-a-clash-vs-roma-40195756)
+
+
 ### inter (N/A, Sun, 20 Oct 2024 12:40:00 -0700)
 
 - **PRESS ROOM | Comments after Inter-Juventus Women**: [Link](https://www.juventus.com/en/news/articles/press-room-comments-after-inter-juventus-women-x2633)
