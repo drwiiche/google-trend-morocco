@@ -1,3 +1,10 @@
+### city (N/A, Sun, 20 Oct 2024 07:50:00 -0700)
+
+- **Army base’s dining hall repaired after deadly Hezbollah drone attack**: [Link](https://www.timesofisrael.com/liveblog_entry/army-bases-dining-hall-repaired-after-deadly-hezbollah-drone-attack/)
+- **US intervention points to growing concerns over Israel’s air defences**: [Link](https://www.theguardian.com/world/2024/oct/14/attacks-by-hezbollah-and-iran-showed-a-degree-of-israeli-vulnerability-what-now)
+- **Sirens heard in Haifa following a rocket attack from Lebanon**: [Link](https://apnews.com/video/lebanon-war-and-unrest-israel-hamas-war-haifa-israel-c6c2aba726af4628ac8adf784bb4fea3)
+
+
 ### villarreal – getafe (N/A, Sun, 20 Oct 2024 08:40:00 -0700)
 
 - **Villarreal vs Getafe: Vista previa del partido y predicción**: [Link](https://www.footboom1.com/es/news/football/1960075-villarreal-vs-getafe-match-preview-and-prediction)
