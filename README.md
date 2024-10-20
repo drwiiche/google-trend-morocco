@@ -1,3 +1,13 @@
+### messi (N/A, Sat, 19 Oct 2024 17:30:00 -0700)
+
+- **Club World Cup: Lionel Messi's Inter Miami named as MLS participant in 
+32-team tournament**: [Link](https://www.bbc.com/sport/football/articles/c5y3nlw52ero)
+- **Lionel Messi, Inter Miami qualify for 2025 FIFA Club World Cup after 
+setting MLS regular-season points record in win over New England Revolution**: [Link](https://www.goal.com/en-om/lists/lionel-messi-inter-miami-qualify-for-2025-fifa-club-world-mls-regular-season-points-record/bltd6b6c5c548bdd085)
+- **Inter Miami to Compete in Club World Cup after Setting MLS Points Record 
+with Stellar Performances from Messi and Suárez**: [Link](https://www.footboom1.com/en/news/football/1962490-inter-miami-to-compete-in-club-world-cup-after-setting-mls-points-record-with-stellar-performances-from-messi-and-suarez)
+
+
 ### kech24 (N/A, Sat, 19 Oct 2024 23:00:00 -0700)
 
 
