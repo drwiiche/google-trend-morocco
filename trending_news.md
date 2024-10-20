@@ -1,3 +1,11 @@
+### empoli – naples (N/A, Sun, 20 Oct 2024 04:10:00 -0700)
+
+- **Football Tracker: Napoli taking on Empoli in Serie A as busy Sunday gets 
+underway**: [Link](https://www.flashscore.com/news/football-tracker-napoli-taking-on-empoli-in-serie-a-as-busy-sunday-gets-underway/tzPHqwtf/)
+- **Soccer-League leaders Napoli still a work in progress, says Conte**: [Link](https://www.msn.com/en-ae/sports/football/soccer-league-leaders-napoli-still-a-work-in-progress-says-conte/ar-AA1svCYW)
+- **Conte says Napoli still a work in progress**: [Link](https://www.beinsports.com/en-nz/football/serie-a/articles/conte-says-napoli-still-a-work-in-progress-2024-10-18)
+
+
 ### bls (N/A, Sun, 20 Oct 2024 02:00:00 -0700)
 
 - **Real average hourly earnings increased 1.5 percent from September 2023 to 
