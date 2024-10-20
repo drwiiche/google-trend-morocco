@@ -1,3 +1,28 @@
+### lecce – fiorentina (N/A, Sun, 20 Oct 2024 05:30:00 -0700)
+
+- **Serie A: in campo alle 15 Lecce-Fiorentina - DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/10/20/serie-a-in-campo-alle-15-lecce-fiorentina-diretta_d784b57f-d501-433b-8202-06f5f5149357.html)
+- **Il tabù personale da abbattere per Palladino, anche da squalificato. 
+Gudmundsson può intanto eguagliare Toni**: [Link](https://www.fiorentinanews.com/news/91792248326/il-tabu-personale-da-abbattere-per-palladino-anche-da-squalificato-gudmundsson-puo-intanto-eguagliare-toni)
+- **Ramadani: Chiedo scusa a mister Gotti per il brutto gesto che ho fatto 
+nella gara col Parma**: [Link](https://www.quotidianodipuglia.it/sport/news/serie_a_ramadani_gotti_calcio_scuse_parma-8425641.html)
+
+
+### napoli (N/A, Sun, 20 Oct 2024 05:30:00 -0700)
+
+- **Rigore Napoli, le immagini e la rabbia social: “Comico e imbarazzante"**: [Link](https://www.tuttosport.com/foto/calcio/serie-a/napoli/2024/10/20-134340860/rigore_napoli_le_immagini_e_la_rabbia_social_comico_e_imbarazzante)
+- **LE PAGELLE DEGLI AZZURRI – Buongiorno inossidabile, Lukaku non c’è**: [Link](https://www.pianetazzurro.it/2024/10/20/le-pagelle-degli-azzurri-buongiorno-inossidabile-lukaku-non-ce/)
+- **Ugolini: «La differenza l’ha fatta Conte con i cambi». Quagliarella: «Punti 
+pesanti»**: [Link](https://www.ilnapolista.it/2024/10/ugolini-la-differenza-lha-fatta-conte-con-i-cambi-quagliarella-punti-pesanti/)
+
+
+### wolves – manchester city (N/A, Sun, 20 Oct 2024 05:10:00 -0700)
+
+- **Preview: Wolverhampton Wanderers vs. Manchester City - prediction, team 
+news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-city/preview/preview-wolves-vs-man-city-prediction-team-news-lineups_555773.html)
+- **Pep provides De Bruyne and Ake injury update**: [Link](https://www.mancity.com/news/mens/pep-guardiola-wolves-v-manchester-city-team-news-63864842)
+- **Manchester City seeks to achieve a record against Wolverhampton**: [Link](https://www.ysscores.com/en/news/5693251/Manchester-City-seeks-to-achieve-a-record-against-Wolverhampton)
+
+
 ### empoli – naples (N/A, Sun, 20 Oct 2024 04:10:00 -0700)
 
 - **Football Tracker: Napoli taking on Empoli in Serie A as busy Sunday gets 
