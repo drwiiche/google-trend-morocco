@@ -1,3 +1,10 @@
+### real madrid celta vigo (N/A, Sat, 19 Oct 2024 14:20:00 -0700)
+
+- **Carlo Ancelotti: "Modric Changed the Game"**: [Link](https://www.footboom1.com/en/news/football/1961566-carlo-ancelotti-modric-changed-the-game)
+- **Modrić wins his 250th league game as a Madrid player**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/modric-250-victorias-en-liga-como-madridista-19-10-2024)
+- **Luka Modrić sets all-time Real Madrid record in Celta Vigo clash**: [Link](https://sports.yahoo.com/luka-modri-sets-time-real-203900317.html)
+
+
 ### red (N/A, Sat, 19 Oct 2024 23:40:00 -0700)
 
 - **Rice blasts Arsenal's 'naivety' after B'mouth loss**: [Link](https://www.espn.com/soccer/story/_/id/41887712/declan-rice-blasts-arsenal-naivety-loss-bournemouth)
