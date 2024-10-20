@@ -1,3 +1,20 @@
+### liverpool – chelsea (N/A, Sun, 20 Oct 2024 07:30:00 -0700)
+
+- **Virgil van Dijk: We will need to be fully focused and prepared to fight**: [Link](https://www.liverpoolfc.com/news/virgil-van-dijk-we-will-need-be-fully-focused-and-prepared-fight)
+- **Alan Shearer's Premier League predictions including Liverpool v Chelsea**: [Link](https://metro.co.uk/2024/10/18/alan-shearers-premier-league-predictions-including-liverpool-v-chelsea-21814799/)
+- **‘A real test’ – Glen Johnson drops Liverpool v Chelsea prediction amid 
+praise for ‘chilled’ Slot**: [Link](https://www.empireofthekop.com/2024/10/20/glen-johnson-liverpool-chelsea-prediction/)
+
+
+### mustapha aboumaarouf (N/A, Sun, 20 Oct 2024 07:30:00 -0700)
+
+- **Réforme de la santé : Qui sont les trois nouveaux patrons des agences 
+stratégiques?**: [Link](https://mobile.telquel.ma/2024/10/19/reforme-de-la-sante-qui-sont-les-trois-nouveaux-patrons-des-agences-strategiques_1899641)
+- **Biographie de M. Samir Ahid, nouveau directeur de l'Agence marocaine du 
+médicament et des produits de santé**: [Link](https://www.mapexpress.ma/actualite/societe-et-regions/biographie-m-samir-ahid-nouveau-directeur-lagence-marocaine-du-medicament-produits-sante/)
+- **Qui sont les 8 nouveaux patrons d’agences stratégiques nommés par le roi ?**: [Link](https://ledesk.ma/2024/10/19/qui-sont-les-8-nouveaux-patrons-dagences-strategiques-nommes-par-le-roi/)
+
+
 ### venezia – atalanta (N/A, Sun, 20 Oct 2024 06:50:00 -0700)
 
 - **✅ Le UFFICIALI delle 15: Pasalic in mediana, le scelte su CDK e Kean**: [Link](https://onefootball.com/it/notizie/le-ufficiali-delle-15-pasalic-in-mediana-le-scelte-su-cdk-e-kean-40193875)
