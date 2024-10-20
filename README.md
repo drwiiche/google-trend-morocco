@@ -1,3 +1,19 @@
+### villarreal vs getafe (N/A, Sun, 20 Oct 2024 10:20:00 -0700)
+
+- **Preview: Villarreal vs. Getafe - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/preview/preview-villarreal-vs-getafe-prediction-team-news-lineups_555768.html)
+- **Marcelino García: "Getafe is a Complicated Team"**: [Link](https://www.footboom1.com/en/news/football/1958794-marcelino-garcia-getafe-is-a-complicated-team)
+- **Football Bet of the Day: Back Villarreal for victory**: [Link](https://onefootball.com/en/news/football-bet-of-the-day-back-villarreal-for-victory-40193517)
+
+
+### f1 (N/A, Sun, 20 Oct 2024 10:10:00 -0700)
+
+- **F1 United States GP live updates: Latest from today’s Grand Prix with Lando 
+Norris on pole - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/f1-united-states-gp-live-updates-race-results-latest/7TdAfGOtLSVP/)
+- **Start Time for F1 Sprint Qualifying Austin 2024 Today**: [Link](https://racingnews365.com/start-time-for-f1-sprint-qualifying-austin-2024-today)
+- **PIRELLI STRATEGY GUIDE: What are the tactical options for the United States 
+Grand Prix in Austin? | Formula 1®**: [Link](https://www.formula1.com/en/latest/article/pirelli-strategy-guide-what-are-the-tactical-options-for-the-us-grand-prix.22Venm6kPRmtqPSjciirph)
+
+
 ### city (N/A, Sun, 20 Oct 2024 07:50:00 -0700)
 
 - **Army base’s dining hall repaired after deadly Hezbollah drone attack**: [Link](https://www.timesofisrael.com/liveblog_entry/army-bases-dining-hall-repaired-after-deadly-hezbollah-drone-attack/)
