@@ -1,3 +1,12 @@
+### chelsea (N/A, Sun, 20 Oct 2024 08:30:00 -0700)
+
+- **Chelsea: The stats behind 'fun to watch' resurgence**: [Link](https://www.bbc.com/sport/football/articles/cn8yd1yexdeo)
+- **Enzo Maresca names Chelsea’s best game this season and answer will surprise 
+fans**: [Link](https://chelsea.news/2024/10/maresca-names-chelseas-best-game-of-season/)
+- **Jamie Carragher makes Thomas Tuchel point in setting clear target for Enzo 
+Maresca at Chelsea**: [Link](https://www.football.london/chelsea-fc/news/jamie-carragher-makes-thomas-tuchel-30174529)
+
+
 ### villarreal vs getafe (N/A, Sun, 20 Oct 2024 10:20:00 -0700)
 
 - **Preview: Villarreal vs. Getafe - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/preview/preview-villarreal-vs-getafe-prediction-team-news-lineups_555768.html)
