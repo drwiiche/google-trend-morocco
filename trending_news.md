@@ -1,3 +1,11 @@
+### chelsea vs liverpool (N/A, Sun, 20 Oct 2024 09:50:00 -0700)
+
+- **Premier League LIVE: Liverpool vs Chelsea - follow live text, score updates 
+& radio commentary**: [Link](https://www.bbc.com/sport/football/live/c1wnxgl4223t)
+- **Virgil van Dijk: We will need to be fully focused and prepared to fight**: [Link](https://www.liverpoolfc.com/news/virgil-van-dijk-we-will-need-be-fully-focused-and-prepared-fight)
+- **Luis Diaz can equal an unlikely Ian Rush feat in Liverpool vs. Chelsea**: [Link](https://www.thisisanfield.com/2024/10/luis-diaz-can-equal-an-unlikely-ian-rush-feat-in-liverpool-vs-chelsea/)
+
+
 ### barca (N/A, Sun, 20 Oct 2024 11:30:00 -0700)
 
 - **Barcelona vs. Sevilla (Oct 20, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704753)
