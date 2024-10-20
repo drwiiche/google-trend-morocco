@@ -1,3 +1,18 @@
+### jurgen klopp (N/A, Sun, 20 Oct 2024 14:30:00 -0700)
+
+- **Pep Guardiola considering one-year Manchester City extension after England 
+make contact**: [Link](https://www.telegraph.co.uk/football/2024/10/14/pep-guardiola/)
+- **Pep Guardiola pledges to quit football when he loses love of the game**: [Link](https://www.theguardian.com/football/2024/oct/19/pep-guardiola-pledges-to-quit-football-when-he-loses-love-of-the-game-manchester-city)
+- **Pep Guardiola Highlights Influential Coaches and the GOAT of Management**: [Link](https://bvmsports.com/2024/10/19/pep-guardiola-highlights-influential-coaches-and-the-goat-of-management/)
+
+
+### pedri (N/A, Sun, 20 Oct 2024 13:40:00 -0700)
+
+- **Pedri, o las gafas que son prismáticos**: [Link](https://www.lavanguardia.com/deportes/fc-barcelona/20241020/10037309/pedri-ansu-fati-lamine-yamal-sevilla.html)
+- **Pedri suma y sigue**: [Link](https://www.elcorreo.com/deportes/futbol/liga-primera/pedri-suma-sigue-20241018173501-ntrc.html)
+- **Pedri, refresco de fantasía | España - Serbia**: [Link](https://www.sport.es/es/noticias/seleccion/pedri-refresco-fantasia-109389632)
+
+
 ### pablo torre (N/A, Sun, 20 Oct 2024 14:00:00 -0700)
 
 - **10:00H | 20 OCT 2024 | Myriam Rodilla**: [Link](https://www.cadena100.es/programas/myriam-rodilla/horas-completas/10-00h-20-oct-2024-myriam-rodilla-20241020_126802.html)
