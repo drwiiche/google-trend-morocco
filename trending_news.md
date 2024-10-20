@@ -1,3 +1,10 @@
+### dani olmo (N/A, Sun, 20 Oct 2024 06:00:00 -0700)
+
+- **Confirmado: ¡Gavi vuelve contra el Sevilla!**: [Link](https://www.marca.com/futbol/barcelona/2024/10/20/confirmado-gavi-vuelve-sevilla.html)
+- **335 días después, vuelve Pablo Páez Gavira**: [Link](https://www.sport.es/es/videos/barca/20241020/335-dias-despues-vuelve-pablo/109873519.shtml)
+- **Tres 'fichajes' y una duda en la convocatoria de Flick para el Barça-Sevilla**: [Link](https://cronicaglobal.elespanol.com/culemania/primer-equipo/20241020/tres-fichajes-duda-convocatoria-flick-para-barca-sevilla/894910511_0.html)
+
+
 ### zamalek – pyramids (N/A, Sun, 20 Oct 2024 06:00:00 -0700)
 
 - **Salem Al Shamsi: Pyramids is bigger than Zamalek**: [Link](https://www.kingfut.com/2024/10/20/pyramids-bigger-zamalek/)
