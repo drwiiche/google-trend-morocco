@@ -1,3 +1,12 @@
+### francis ngannou (N/A, Sat, 19 Oct 2024 16:10:00 -0700)
+
+- **PFL Battle of the Giants: Francis Ngannou vs. Renan Ferreira main card live 
+updates**: [Link](https://www.dazn.com/en-US/news/mma/battle-of-the-giants-francis-ngannou-vs-renan-ferreira-live-updates-results-highlights/2d2rx14oaurw1d2iakng6j1qd)
+- **What time is Ngannou vs. Ferreira ringwalk? Walk-in time for PFL fight**: [Link](https://www.usatoday.com/story/sports/mma/2024/10/19/francis-ngannou-renan-ferreira-fight-time-ringwalk/75754666007/)
+- **Conor McGregor bets big money on Francis Ngannou to lose at PFL Battle of 
+the Giants**: [Link](https://www.mmafighting.com/2024/10/19/24274497/conor-mcgregor-bets-big-money-on-francis-ngannou-to-lose-at-pfl-battle-of-the-giants)
+
+
 ### mls (N/A, Sat, 19 Oct 2024 16:50:00 -0700)
 
 - **D.C. United Forward Christian Benteke Wins 2024 MLS Golden Boot Presented 
