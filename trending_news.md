@@ -1,3 +1,11 @@
+### marcos alonso (N/A, Sat, 19 Oct 2024 13:50:00 -0700)
+
+- **¡Búscate en la comida de la Asociación de Vecinos de Sofán!**: [Link](https://www.lavozdegalicia.es/album/carballo/2024/10/19/buscate-comida-asociacion-vecinos-sofan/01101729363818984294118.htm)
+- **Unas vistas de altura en A Coruña: la Torre de Salvamento Marítimo**: [Link](https://www.elidealgallego.com/albums/view/112678/unas-vistas-altura-coruna-torre-salvamento-maritimo)
+- **Unas vistas de altura en A Coruña: la Semana de la Arquitectura abre los 
+balcones de la Torre de Salvamento**: [Link](https://www.elidealgallego.com/articulo/a-coruna/unas-vistas-altura-coruna-semana-arquitectura-abre-balcones-torre-salvamento-5030286)
+
+
 ### francis ngannou (N/A, Sat, 19 Oct 2024 16:10:00 -0700)
 
 - **PFL Battle of the Giants: Francis Ngannou vs. Renan Ferreira main card live 
