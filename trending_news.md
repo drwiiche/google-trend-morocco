@@ -1,3 +1,10 @@
+### برشلونة (N/A, Sun, 20 Oct 2024 12:10:00 -0700)
+
+- **هاري كين: برشلونة يشبه شتوتجارت**: [Link](https://www.kooora.com/?n=1362417)
+- **هاري كين يتحدث عن ليفاندوفسكي.. ويشبه برشلونة بهذا الخصم !**: [Link](https://hihi2.com/2024/10/20/p2897878.html)
+- **الصحف الإسبانية تحذر برشلونة من بايرن ميونخ**: [Link](https://www.riyadiyatv.com/115027)
+
+
 ### chelsea vs liverpool (N/A, Sun, 20 Oct 2024 09:50:00 -0700)
 
 - **Premier League LIVE: Liverpool vs Chelsea - follow live text, score updates 
