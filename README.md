@@ -1,3 +1,18 @@
+### roma – inter (N/A, Sun, 20 Oct 2024 11:00:00 -0700)
+
+- **Roma-Inter, una notte da gladiatori: nessuno può permettersi di sbagliare**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/20-10-2024/serie-a-roma-inter-juric-contro-inzaghi-partita-da-gladiatori.shtml)
+- **Roma, da Dybala e Koné a Dovbyk e Hermoso: cosa filtra sulla probabile 
+formazione**: [Link](https://www.sosfanta.com/news/roma-da-dybala-e-kone-a-dovbyk-e-hermoso-cosa-filtra-sulla-probabile-formazione/)
+- **[[STREAMING/TV]]Roma-Inter In Diretta Streaming Italian Serie A 20.10.2024**: [Link](https://www.justgiving.com/team/streaming-roma-inter-in-diretta-streaming-tv)
+
+
+### احسان دقسة (N/A, Sun, 20 Oct 2024 11:00:00 -0700)
+
+- **الاحتلال يعلن مقتل "قائد لواء" برتبة عقيد للمرة الأولى منذ بدء حرب الإبادة**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%82%D8%AA%D9%84-%D9%82%D8%A7%D8%A6%D8%AF-%D9%84%D9%88%D8%A7%D8%A1-%D8%A8%D8%B1%D8%AA%D8%A8%D8%A9-%D8%B9%D9%82/)
+- **بعد مقتل قائد لواء إسرائيلي.. الدويري: كتيبة جباليا تفوقت على نفسها**: [Link](https://www.aljazeera.net/news/2024/10/20/%D8%A8%D8%B9%D8%AF-%D9%85%D9%82%D8%AA%D9%84-%D9%82%D8%A7%D8%A6%D8%AF-%D9%84%D9%88%D8%A7%D8%A1-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D9%8A%D8%B1%D9%8A)
+- **الجيش الإسرائيلي يعلن مقتل قائد اللواء 401 في قطاع غزة**: [Link](https://www.skynewsarabia.com/middle-east/1749174-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%82%D8%AA%D9%84-%D9%82%D8%A7%D9%8A%D9%94%D8%AF-%D8%A7%D9%84%D9%84%D9%88%D8%A7%D8%A1-401-%D9%82%D8%B7%D8%A7%D8%B9-%D8%BA%D8%B2%D8%A9)
+
+
 ### chelsea (N/A, Sun, 20 Oct 2024 08:30:00 -0700)
 
 - **Chelsea: The stats behind 'fun to watch' resurgence**: [Link](https://www.bbc.com/sport/football/articles/cn8yd1yexdeo)
