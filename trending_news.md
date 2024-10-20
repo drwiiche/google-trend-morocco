@@ -1,3 +1,11 @@
+### mls (N/A, Sat, 19 Oct 2024 16:50:00 -0700)
+
+- **D.C. United Forward Christian Benteke Wins 2024 MLS Golden Boot Presented 
+by Audi**: [Link](https://www.mlssoccer.com/news/d-c-united-forward-christian-benteke-wins-2024-mls-golden-boot-presented-by-audi)
+- **D.C. United's Christian Benteke wins 2024 MLS Golden Boot with 23 goals**: [Link](https://www.goal.com/en-ke/lists/d-c-united-s-christian-benteke-wins-2024-mls-golden-boot-23-goals/bltb32f94848792954b)
+- **D.C. United's Christian Benteke Wins 2024 MLS Golden Boot**: [Link](https://www.wavy.com/sports/sports-illustrated/8390109/d-c-uniteds-christian-benteke-wins-2024-mls-golden-boot)
+
+
 ### inter miami (N/A, Sat, 19 Oct 2024 15:50:00 -0700)
 
 - **Miami qualifies for Club World Cup, will host tournament’s opening game at 
