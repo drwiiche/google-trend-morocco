@@ -1,3 +1,11 @@
+### red (N/A, Sat, 19 Oct 2024 23:40:00 -0700)
+
+- **Rice blasts Arsenal's 'naivety' after B'mouth loss**: [Link](https://www.espn.com/soccer/story/_/id/41887712/declan-rice-blasts-arsenal-naivety-loss-bournemouth)
+- **Every word of Mikel’s post-Bournemouth presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikels-post-bournemouth-presser-0)
+- **William Saliba red card: Arsenal star sent off in controversial incident 
+(video)**: [Link](https://www.nbcsports.com/soccer/news/william-saliba-red-card-should-arsenal-back-have-been-sent-off-video)
+
+
 ### marcos alonso (N/A, Sat, 19 Oct 2024 13:50:00 -0700)
 
 - **¡Búscate en la comida de la Asociación de Vecinos de Sofán!**: [Link](https://www.lavozdegalicia.es/album/carballo/2024/10/19/buscate-comida-asociacion-vecinos-sofan/01101729363818984294118.htm)
