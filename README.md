@@ -1,3 +1,10 @@
+### barca (N/A, Sun, 20 Oct 2024 11:30:00 -0700)
+
+- **Barcelona vs. Sevilla (Oct 20, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704753)
+- **Official: Barcelona starting XI against Sevilla | La Liga**: [Link](https://sports.yahoo.com/official-barcelona-starting-xi-against-174300372.html)
+- **FC Barcelona Vs. Sevilla Preview: Flick Makes Several Line Up Changes**: [Link](https://www.forbes.com/sites/tomsanderson/2024/10/20/fc-barcelona-vs-sevilla-preview-flick-makes-several-line-up-changes/)
+
+
 ### fcb (N/A, Sun, 20 Oct 2024 11:20:00 -0700)
 
 - **Preview: Barcelona vs. Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/race-for-the-la-liga-title/preview/preview-barcelona-vs-sevilla-prediction-team-news-lineups_555772.html)
