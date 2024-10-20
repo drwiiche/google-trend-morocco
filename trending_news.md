@@ -1,3 +1,10 @@
+### mohamed el khalfi (N/A, Sat, 19 Oct 2024 17:50:00 -0700)
+
+- **L’acteur Mohammed El Khalfi hospitalisé en réanimation à Casablanca**: [Link](https://www.h24info.ma/lacteur-mohammed-el-khalfi-hospitalise-en-reanimation-a-casablanca/)
+- **Inquiétude autour de la santé de l’acteur marocain Mohamed El Khalfi**: [Link](https://www.bladi.net/inquietude-autour-sante-acteur-marocain-mohamed-khalfi,111080.html)
+- **L’acteur marocain Mohamed El Khalfi placé en réanimation**: [Link](https://www.lesiteinfo.com/maroc/630261-lacteur-marocain-mohamed-el-khalfi-place-en-reanimation.html)
+
+
 ### real madrid club de fútbol (N/A, Sat, 19 Oct 2024 12:00:00 -0700)
 
 - **Ancelotti: "¿En cuántos de estos 200 partidos no hemos sufrido?"**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/19/ancelotti-cuantos-200-partidos-hemos-sufrido.html)
