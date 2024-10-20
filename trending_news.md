@@ -1,3 +1,18 @@
+### zamalek – pyramids (N/A, Sun, 20 Oct 2024 06:00:00 -0700)
+
+- **Salem Al Shamsi: Pyramids is bigger than Zamalek**: [Link](https://www.kingfut.com/2024/10/20/pyramids-bigger-zamalek/)
+- **Zamalek Aims to Build on Recent CAF Super Cup Triumph as They Face Pyramids 
+in Egyptian Super Cup Semifinal.**: [Link](https://www.egypttoday.com/Article/8/135491/Zamalek-Aims-to-Build-on-Recent-CAF-Super-Cup-Triumph)
+- **Gomez checks on Dunga's condition**: [Link](https://www.ysscores.com/en/news/5670697/Gomez-checks-on-Dunga's-condition)
+
+
+### محمد الشوبي (N/A, Sun, 20 Oct 2024 05:40:00 -0700)
+
+- **وعكة صحية تدخل الشوبي العناية المركزة**: [Link](https://www.hespress.com/%D9%88%D8%B9%D9%83%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9-%D8%AA%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D8%B4%D9%88%D8%A8%D9%8A-%D8%A7%D9%84%D8%B9%D9%86%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D8%A9-1450533.html)
+- **بعد يوم على تكريمه.. نقل الفنان محمد الشوبي إلى العناية المركزة**: [Link](https://al3omk.com/1016963.html)
+- **الفنان محمد الشوبي في قسم الإنعاش بمصحة في طنجة**: [Link](https://www.achkayen.com/580331/.html)
+
+
 ### lecce – fiorentina (N/A, Sun, 20 Oct 2024 05:30:00 -0700)
 
 - **Serie A: in campo alle 15 Lecce-Fiorentina - DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2024/10/20/serie-a-in-campo-alle-15-lecce-fiorentina-diretta_d784b57f-d501-433b-8202-06f5f5149357.html)
