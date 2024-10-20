@@ -1,3 +1,11 @@
+### fc barcelona (N/A, Sun, 20 Oct 2024 12:00:00 -0700)
+
+- **Confirmado: ¡Gavi vuelve contra el Sevilla!**: [Link](https://www.marca.com/futbol/barcelona/2024/10/20/confirmado-gavi-vuelve-sevilla.html)
+- **Gavi regresa... y se lleva la ovación atronadora de la noche**: [Link](https://www.sport.es/es/noticias/barca/gavi-regresa-lleva-ovacion-atronadora-109909120)
+- **Flick declara el estado de felicidad en el Barcelona: «Estamos todos muy 
+contentos»**: [Link](https://okdiario.com/deportes/flick-declara-estado-felicidad-barcelona-estamos-todos-muy-contentos-13674269)
+
+
 ### gta (N/A, Sun, 20 Oct 2024 15:20:00 -0700)
 
 - **All GTA 5 Monkey Mosaic locations**: [Link](https://www.sportskeeda.com/gta/all-gta-5-monkey-mosaic-locations)
