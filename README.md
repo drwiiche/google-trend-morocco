@@ -1,3 +1,10 @@
+### pronostics quinté (N/A, Sun, 20 Oct 2024 08:30:00 -0700)
+
+- **Quinté+ du 20/10/2024 à ParisLonchamp : Super Alex, un super point d'appui**: [Link](https://www.paris-turf.com/actualites/france/quinte-du-20-10-2024-a-parislonchamp-super-alex-un-super-point-d-appui-30323124204)
+- **Les pronostics Quinté du 20/10/2024 à Paris Longchamp**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-20102024-a-paris-longchamp-4273936)
+- **Les pronos hippiques du dimanche 20 octobre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-20-octobre-2024_AN-202410190313.html)
+
+
 ### atletico madrid (N/A, Sun, 20 Oct 2024 08:10:00 -0700)
 
 - **Preview: Atletico Madrid vs. Leganes - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/preview/preview-atletico-vs-leganes-prediction-team-news-lineups_555764.html)
