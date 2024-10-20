@@ -1,3 +1,17 @@
+### atletico madrid (N/A, Sun, 20 Oct 2024 08:10:00 -0700)
+
+- **Preview: Atletico Madrid vs. Leganes - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/preview/preview-atletico-vs-leganes-prediction-team-news-lineups_555764.html)
+- **Atlético - Leganés: Open for Football**: [Link](https://www.footboom1.com/en/news/football/1961465-atletico-leganes-open-for-football)
+- **Atletico Madrid vs. CD Leganes Prediction, Picks, Live Odds - October 20**: [Link](https://www.bleachernation.com/picks/2024/10/19/atletico-madrid-vs-cd-leganes-prediction-picks-live-odds-october-20/)
+
+
+### مانشستر سيتي (N/A, Sun, 20 Oct 2024 08:10:00 -0700)
+
+- **ترتيب الدوري الإنجليزي بعد فوز مانشستر سيتي على وولفرهامبتون**: [Link](https://hihi2.com/2024/10/20/p2897892.html)
+- **رقم قياسي جديد لمانشستر سيتي**: [Link](https://www.kooora.com/?n=1362495)
+- **غوارديولا: ما يحدث في العالم من حروب لاعتقادنا الخاطئ أننا الأفضل**: [Link](https://www.aljazeera.net/sport/2024/10/19/guardiola-tuchel)
+
+
 ### ليفربول ضد تشيلسي (N/A, Sun, 20 Oct 2024 07:50:00 -0700)
 
 - **الذكاء الاصطناعي يتوقع نتيجة ليفربول وتشيلسي**: [Link](https://www.kooora.com/?n=1362389)
