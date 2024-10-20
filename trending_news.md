@@ -1,3 +1,11 @@
+### inter miami (N/A, Sat, 19 Oct 2024 15:50:00 -0700)
+
+- **Miami qualifies for Club World Cup, will host tournament’s opening game at 
+Hard Rock Stadium - The Athletic**: [Link](https://www.nytimes.com/athletic/5855746/2024/10/19/miami-club-world-cup-hard-rock-stadium/)
+- **Messi and Suarez are 'too awesome'**: [Link](https://www.vietnam.vn/en/messi-va-suarez-qua-khung/)
+- **Five magic Messi moments with Miami**: [Link](https://www.fifa.com/en/articles/lionel-messi-five-magic-moments-inter-miami)
+
+
 ### mohamed el khalfi (N/A, Sat, 19 Oct 2024 17:50:00 -0700)
 
 - **L’acteur Mohammed El Khalfi hospitalisé en réanimation à Casablanca**: [Link](https://www.h24info.ma/lacteur-mohammed-el-khalfi-hospitalise-en-reanimation-a-casablanca/)
