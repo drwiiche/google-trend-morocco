@@ -1,3 +1,10 @@
+### ليفربول ضد تشيلسي (N/A, Sun, 20 Oct 2024 07:50:00 -0700)
+
+- **الذكاء الاصطناعي يتوقع نتيجة ليفربول وتشيلسي**: [Link](https://www.kooora.com/?n=1362389)
+- **مباشر.. مباراة ليفربول ضد تشلسي في الدوري الإنجليزي الممتاز**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/20/liverpool-chelsea-premier-league)
+- **ليفربول يستضيف تشيلسي في أول اختبار حقيقي بعد التوقف الدولي**: [Link](https://sport.al3omk.com/70435.html)
+
+
 ### liverpool – chelsea (N/A, Sun, 20 Oct 2024 07:30:00 -0700)
 
 - **Virgil van Dijk: We will need to be fully focused and prepared to fight**: [Link](https://www.liverpoolfc.com/news/virgil-van-dijk-we-will-need-be-fully-focused-and-prepared-fight)
