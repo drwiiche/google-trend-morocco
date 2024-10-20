@@ -1,3 +1,10 @@
+### venezia – atalanta (N/A, Sun, 20 Oct 2024 06:50:00 -0700)
+
+- **✅ Le UFFICIALI delle 15: Pasalic in mediana, le scelte su CDK e Kean**: [Link](https://onefootball.com/it/notizie/le-ufficiali-delle-15-pasalic-in-mediana-le-scelte-su-cdk-e-kean-40193875)
+- **LIVE Serie A - Tra poco Lecce-Fiorentina e Venezia-Atalanta**: [Link](https://www.vocegiallorossa.it/serie-a/live-serie-a-lecce-fiorentina-0-0-e-venezia-atalanta-0-0-al-via-le-gare-delle-15-00-260271)
+- **Dea in emergenza difesa, ma con Djimsiti e Ruggeri pronti!**: [Link](https://www.tuttoatalanta.com/zingonia/dea-in-emergenza-difesa-ma-con-djimsiti-e-ruggeri-pronti-108553)
+
+
 ### atlético madrid – leganés (N/A, Sun, 20 Oct 2024 06:30:00 -0700)
 
 - **Atlético de Madrid vs. Leganés: Pronósticos y predicciones del partido por 
