@@ -1,3 +1,30 @@
+### villarreal – getafe (N/A, Sun, 20 Oct 2024 08:40:00 -0700)
+
+- **Villarreal vs Getafe: Vista previa del partido y predicción**: [Link](https://www.footboom1.com/es/news/football/1960075-villarreal-vs-getafe-match-preview-and-prediction)
+- **Villarreal - Getafe: Duelo de banquillos con Baena en el foco**: [Link](https://www.marca.com/futbol/primera-division/2024/10/20/villarreal-getafe-duelo-banquillos-baena-foco.html)
+- **El Villarreal, a superar la ristra de bajas para ganar la batalla al 
+incómodo Getafe de Bordalás**: [Link](https://castellonplaza.com/elvillarrealasuperarlaristradebajasparaganarlabatallaalgetafedebordalas)
+
+
+### samsunspor – fenerbahçe (N/A, Sun, 20 Oct 2024 08:40:00 -0700)
+
+- **Samsunspor - Fenerbahçe maçı ne zaman, saat kaçta? Samsunspor - Fenerbahçe 
+maçı hangi kanalda? (İlk 11'ler)**: [Link](https://www.ntvspor.net/futbol/samsunspor-fenerbahce-maci-ne-zaman-saat-kacta-samsunspor-fenerbahce-maci-hangi-kanalda-ilk-11-ler-671243803b902603f772f73f)
+- **Fenerbahçe-Samsunspor Maçında Osayi Samuel ve İrfan Can Neden Kadroda Yok?**: [Link](https://www.sportif54.com/fenerbahce-samsunspor-macinda-osayi-ve-irfan-can-neden-kadroda-yok-131819.html)
+- **Samsunspor – Fenerbahçe maçının heyecanı “Türkiye’nin En Yüksek Oranları” 
+ile Misli’de - Futbol - Spor Haberleri**: [Link](https://www.milliyet.com.tr/skorer/samsunspor-fenerbahce-macinin-heyecani-turkiyenin-en-yuksek-oranlari-ile-mislide-7213993)
+
+
+### nasdas (N/A, Sun, 20 Oct 2024 08:40:00 -0700)
+
+- **D'importants mouvements de foule pour accueillir le Perpignanais Nasdas à 
+l'inauguration d'une boutique à Paris**: [Link](https://france3-regions.francetvinfo.fr/occitanie/pyrenees-orientales/perpignan/d-importants-mouvements-de-foule-pour-accueillir-le-perpignanais-nasdas-a-l-inauguration-d-une-boutique-a-paris-3048268.html)
+- **Paris : l'influenceur Nasdas provoque une émeute lors de son passage dans 
+un pop-up store à Châtelet**: [Link](https://www.cnews.fr/france/2024-10-19/paris-linfluenceur-nasdas-provoque-une-emeute-lors-de-son-passage-dans-un-pop)
+- **ALERTE l'influenceur NASDAS provoque une émeute lors de son passage à 
+chatelet**: [Link](https://www.jeuxvideo.com/forums/42-51-75024992-1-0-1-0-0.htm)
+
+
 ### pronostics quinté (N/A, Sun, 20 Oct 2024 08:30:00 -0700)
 
 - **Quinté+ du 20/10/2024 à ParisLonchamp : Super Alex, un super point d'appui**: [Link](https://www.paris-turf.com/actualites/france/quinte-du-20-10-2024-a-parislonchamp-super-alex-un-super-point-d-appui-30323124204)
