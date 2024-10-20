@@ -1,3 +1,11 @@
+### bls (N/A, Sun, 20 Oct 2024 02:00:00 -0700)
+
+- **Real average hourly earnings increased 1.5 percent from September 2023 to 
+September 2024**: [Link](https://www.bls.gov/opub/ted/2024/real-average-hourly-earnings-increased-1-5-percent-from-september-2023-to-september-2024.htm)
+- **Consumer prices up 2.4 percent from September 2023 to September 2024 : The 
+Economics Daily**: [Link](https://www.bls.gov/opub/ted/2024/consumer-prices-up-2-4-percent-from-september-2023-to-september-2024.htm)
+
+
 ### zone-turf (N/A, Sun, 20 Oct 2024 01:40:00 -0700)
 
 - **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 7 Turania**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-7-turania-125796.html)
