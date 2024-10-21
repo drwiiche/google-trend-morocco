@@ -1,3 +1,11 @@
+### al rayyan – al-ahli saudi (N/A, Mon, 21 Oct 2024 10:30:00 -0700)
+
+- **Al Rayyan coach: Our goal is to win against Al Ahli Saudi FC**: [Link](https://thepeninsulaqatar.com/article/21/10/2024/al-rayyan-coach-our-goal-is-to-win-against-al-ahli-saudi-fc)
+- **Al-Ahli to Face Al-Rayyan in the AFC Champions League Elite**: [Link](https://english.aawsat.com/sports/5073006-al-ahli-face-al-rayyan-afc-champions-league-elite?_wrapper_format=html&page=1)
+- **ACL Elite: Al Rayyan seek first win, as Al Sadd and Al Gharafa strive to 
+maintain rhythm at home**: [Link](https://dohanews.co/acl-elite-al-rayyan-seek-first-win-as-al-sadd-and-al-gharafa-seek-to-maintain-rhythm-at-home/)
+
+
 ### nottm forest – crystal palace (N/A, Mon, 21 Oct 2024 11:20:00 -0700)
 
 - **Nottingham Forest v Crystal Palace: Premier League – live**: [Link](https://www.theguardian.com/football/live/2024/oct/21/nottingham-forest-v-crystal-palace-premier-league-live-score-updates)
