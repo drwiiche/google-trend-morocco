@@ -1,3 +1,12 @@
+### ouragan oscar (N/A, Mon, 21 Oct 2024 03:20:00 -0700)
+
+- **Cuba : troisième nuit sans électricité dans l’île, touchée par la tempête 
+Oscar**: [Link](https://www.lemonde.fr/international/article/2024/10/20/une-nouvelle-nuit-sans-electricite-a-cuba-ou-approche-l-ouragan-oscar_6356505_3210.html)
+- **Arrivée imminente d'un ouragan à Cuba, qui passe sa deuxième nuit sans 
+électricité**: [Link](https://medias24.com/agence-presse/arrivee-imminente-dun-ouragan-a-cuba-qui-passe-sa-deuxieme-nuit-sans-electricite/)
+- **Cuba en panne totale d’électricité : que se passe-t-il sur l’île ?**: [Link](https://www.sudouest.fr/international/panne-d-electricite-geante-que-se-passe-t-il-a-cuba-21840440.php)
+
+
 ### teams (N/A, Mon, 21 Oct 2024 01:10:00 -0700)
 
 - **Latest bowl projections: More changes at the top; Indiana eyes playoff spot**: [Link](https://www.espn.com/college-football/insider/story/_/id/41902950/college-football-playoff-bowl-projections-week-8)
