@@ -1,3 +1,26 @@
+### nottm forest – crystal palace (N/A, Mon, 21 Oct 2024 11:20:00 -0700)
+
+- **Nottingham Forest v Crystal Palace: Premier League – live**: [Link](https://www.theguardian.com/football/live/2024/oct/21/nottingham-forest-v-crystal-palace-premier-league-live-score-updates)
+- **How to watch & follow Nottingham Forest v Palace LIVE**: [Link](https://www.cpfc.co.uk/news/information/how-to-watch-follow-nottingham-forest-crystal-palace-october-2024/)
+- **Nottingham Forest can edge Crystal Palace in a Monday night thriller**: [Link](https://metro.co.uk/2024/10/20/nottingham-forest-can-edge-crystal-palace-a-monday-night-thriller-21830403/)
+
+
+### 2m (N/A, Mon, 21 Oct 2024 11:10:00 -0700)
+
+- **Prominent Journalist Ouadih Dada Suspended from Morocco’s 2M TV Amid Union 
+Controversy**: [Link](https://www.moroccoworldnews.com/2024/10/365858/prominent-journalist-ouadih-dada-suspended-from-moroccos-2m-tv-amid-union-controversy)
+- **Moroccan journalist's 2M suspension sparks union concerns**: [Link](https://en.yabiladi.com/articles/details/155403/moroccan-journalist-s-suspension-sparks-union.html)
+- **Shropshire manufacturer rolls out £2m investment in new tech**: [Link](https://www.thebusinessdesk.com/westmidlands/news/2091375-shropshire-manufacturer-rolls-out-2m-investment-in-new-tech)
+
+
+### champions league (N/A, Mon, 21 Oct 2024 11:10:00 -0700)
+
+- **Depleted Girona will not tiptoe around the Champions League, says Michel**: [Link](https://www.beinsports.com/en-nz/football/uefa-champions-league/articles/depleted-girona-will-not-tiptoe-around-the-champions-league-says-michel-2024-10-21)
+- **César Blackman and Slovan Bratislava Aim to Rebound Against Wounded Girona 
+in Champions League**: [Link](https://www.footboom1.com/en/news/football/1969507-cesar-blackman-and-slovan-bratislava-aim-to-rebound-against-wounded-girona-in-champions-league)
+- **Preview: Girona vs. Slovan Bratislava - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/champions-league/preview/preview-girona-vs-slovan-bratislava-prediction-team-news-lineups_555920.html)
+
+
 ### afc champions league (N/A, Mon, 21 Oct 2024 11:00:00 -0700)
 
 - **Ronaldo, Al-Nassr's ACL game shifted amid Iran security concerns | Daily 
