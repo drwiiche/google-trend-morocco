@@ -1,3 +1,12 @@
+### groupe holmarcom (N/A, Mon, 21 Oct 2024 08:50:00 -0700)
+
+- **Holmarcom va céder 11,30% du capital de CDM au public pour plus d'un 
+milliard de DH**: [Link](https://medias24.com/2024/10/19/holmarcom-va-ceder-1130-du-capital-de-cdm-au-public-pour-plus-dun-millard-de-dh/)
+- **Holmarcom cède 11% de Crédit du Maroc via une OPV d’1 MMDH**: [Link](https://ledesk.ma/enoff/holmarcom-cede-11-de-credit-du-maroc-via-une-opv-d1-mmdh/)
+- **Holmarcom lance une offre publique de vente d'actions Crédit du Maroc pour 
+un montant d'un milliard de dirhams**: [Link](https://lematin.ma/economie/holmarcom-lance-une-offre-publique-de-vente-dactions-credit-du-maroc/247907)
+
+
 ### al ain vs al-hilal (N/A, Mon, 21 Oct 2024 08:30:00 -0700)
 
 - **How to watch today's Al-Ain vs Al Hilal AFC Champions League game: Live 
