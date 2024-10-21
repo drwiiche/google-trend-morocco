@@ -1,3 +1,10 @@
+### estonia (N/A, Mon, 21 Oct 2024 13:30:00 -0700)
+
+- **Estonia to Install Blade Buoys Along Water Border with Russia**: [Link](https://odessa-journal.com/estonia-to-install-blade-buoys-on-water-border-with-russia)
+- **Estonia Officially Supports Morocco's Autonomy Plan for Western Sahara**: [Link](https://www.moroccoworldnews.com/2024/10/365860/estonia-officially-supports-morocco-s-autonomy-plan-for-western-sahara)
+- **Algeria’s diplomacy suffers from ‘schizophrenia’, Moroccan diplomat says**: [Link](https://northafricapost.com/81109-algerias-diplomacy-suffers-from-schizophrenia-moroccan-diplomat-says.html)
+
+
 ### arda güler (N/A, Mon, 21 Oct 2024 12:30:00 -0700)
 
 - **Türk hackerlar gündeme getirmişti | Ali Koç istifa mı etti?**: [Link](https://gdh.digital/turk-hackerlar-gundeme-getirmisti-ali-koc-istifa-mi-etti-132552)
