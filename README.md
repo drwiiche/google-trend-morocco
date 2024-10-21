@@ -1,3 +1,28 @@
+### afc champions league (N/A, Mon, 21 Oct 2024 11:00:00 -0700)
+
+- **Ronaldo, Al-Nassr's ACL game shifted amid Iran security concerns | Daily 
+Sabah**: [Link](https://www.dailysabah.com/sports/football/ronaldo-al-nassrs-acl-game-shifted-amid-iran-security-concerns)
+- **Esteghlal FC vs Al-Nassr in AFC Champions League Elite 2024-25 on October 
+22 - watch live in India**: [Link](https://www.sportsadda.com/football/news/esteghlal-vs-al-nassr-afc-champions-league-elite-2024-25-telecast-watch-live-streaming-match-times-india)
+- **Cristiano Ronaldo’s Al Nassr to play in Dubai this week**: [Link](https://www.timeoutriyadh.com/news/esteghlal-al-nassr)
+
+
+### al hilal vs al ain (N/A, Mon, 21 Oct 2024 10:50:00 -0700)
+
+- **Al Ain FC vs. Al Hilal prediction, odds & betting tip 21.10.2024**: [Link](https://www.transfermarkt.com/betting/al-ain-fc-al-hilal-prediction-tip-21-10-2024/)
+- **Eric: Al Hilal has a more cohesive and harmonious team**: [Link](https://www.ysscores.com/en/news/5720464/Eric:-Al-Hilal-has-a-more-cohesive-and-harmonious-team)
+- **Al Hilal vs Al Ain- Expected Starting Lineups, Injuries, Live Streaming & 
+TV Channels for Neymar’s Return Match After Long Injury Hiatus**: [Link](https://www.essentiallysports.com/soccer-football-news-al-hilal-vs-al-ain-expected-starting-lineups-injuries-live-streaming-tv-channels-for-neymars-return-match-after-long-injury-hiatus/)
+
+
+### التعديل الحكومي (N/A, Mon, 21 Oct 2024 10:50:00 -0700)
+
+- **مفاجآت تنتظر التعديل الحكومي**: [Link](https://assabah.ma/806656.html)
+- **فصل قطاع الرياضة عن وزارة التربية الوطنية والتعليم وارد في التعديل الحكومي 
+المرتقب**: [Link](https://ar.hibapress.com/details-564438.html)
+- **المنصوري: التعديل الحكومي في طور النقاش مع رئيس الحكومة (فيديو)**: [Link](https://rue20.com/847337.html)
+
+
 ### visite macron maroc (N/A, Mon, 21 Oct 2024 09:40:00 -0700)
 
 - **Communiqué du Ministère de la Maison Royale, du Protocole et de la 
