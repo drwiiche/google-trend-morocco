@@ -1,3 +1,13 @@
+### journaliste ouadih dada (N/A, Sun, 20 Oct 2024 23:50:00 -0700)
+
+- **Activité syndicale : Ouadih Dada est interdit de ses fonctions à 2M à 
+partir de ce lundi 21 octobre**: [Link](https://www.maroc-hebdo.press.ma/activite-syndicale-ouadih-dada-interdit-ses-fonctions-2m-partir-ce-lundi-21-octobre)
+- **2M: Hamid Saâdni suspend Ouadih Dada, le SNPM dénonce « une tentative 
+d’intimidation »**: [Link](https://www.h24info.ma/2m-hamid-saadni-suspend-ouadih-dada-le-snpm-denonce-une-tentative-dintimidation/)
+- **Le Syndicat National de la Presse Marocaine renouvelle sa coordination avec 
+la Deuxième Chaîne (photos) -**: [Link](https://fr.hibapress.com/news-140493.html)
+
+
 ### moldavie (N/A, Sun, 20 Oct 2024 22:50:00 -0700)
 
 - **En Moldavie, le résultat du référendum sur l’adhésion du pays à l’UE reste 
