@@ -1,3 +1,18 @@
+### referendum moldavie (N/A, Mon, 21 Oct 2024 15:40:00 -0700)
+
+- **Moldova referendum: Provisional results show thin margin for EU membership**: [Link](https://www.bbc.com/news/articles/c1wnr5qdxe7o)
+- **Moldova barely approves its EU referendum amid allegations of Russian 
+interference**: [Link](https://www.npr.org/2024/10/21/nx-s1-5159997/moldova-eu-referendum-presidential-election-russia-interference)
+- **Tugged Between East and West, Moldovans Vote in Pivotal Elections**: [Link](https://www.nytimes.com/2024/10/20/world/europe/moldova-election-russia-eu.html)
+
+
+### imane khelif (N/A, Mon, 21 Oct 2024 15:40:00 -0700)
+
+- **Boxe : Imane Khelif annonce une grosse évolution de sa carrière**: [Link](https://www.dzfoot.com/divers/boxe-imane-khelif-annonce-une-grosse-evolution-de-sa-carriere-267108.html)
+- **Sports - Imane Khelif se projette dans l’avenir**: [Link](https://www.lexpressiondz.com/sports/imane-khelif-se-projette-dans-l-avenir-387001)
+- **Un film documentaire sur le parcours d’Imane Khelif**: [Link](https://www.horizons.dz/?p=177735)
+
+
 ### estonia (N/A, Mon, 21 Oct 2024 13:30:00 -0700)
 
 - **Estonia to Install Blade Buoys Along Water Border with Russia**: [Link](https://odessa-journal.com/estonia-to-install-blade-buoys-on-water-border-with-russia)
