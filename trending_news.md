@@ -1,3 +1,12 @@
+### al ain – al-hilal (N/A, Mon, 21 Oct 2024 08:00:00 -0700)
+
+- **Referees for the Al Hilal and Al Ain match in tomorrow’s match**: [Link](https://www.ysscores.com/en/news/5728069/Referees-for-the-Al-Hilal-and-Al-Ain-match-in-tomorrow%E2%80%99s-match)
+- **Where to watch Al Ain vs Al Hilal live in the USA: 2024–25 AFC Champions 
+League**: [Link](https://bolavip.com/en/soccer/where-to-watch-al-ain-vs-al-hilal-live-in-the-usa-2024-25-afc-champions-league)
+- **Al Hilal vs Al Ain- Expected Starting Lineups, Injuries, Live Streaming & 
+TV Channels for Neymar’s Return Match After Long Injury Hiatus**: [Link](https://www.essentiallysports.com/soccer-football-news-al-hilal-vs-al-ain-expected-starting-lineups-injuries-live-streaming-tv-channels-for-neymars-return-match-after-long-injury-hiatus/)
+
+
 ### macron maroc (N/A, Sun, 20 Oct 2024 19:50:00 -0700)
 
 - **Emmanuel Macron effectuera une visite d'Etat au Maroc du 28 au 30 octobre**: [Link](https://lematin.ma/nation/emmanuel-macron-effectuera-une-visite-detat-au-maroc-du-28-au-30-octobre/247967)
