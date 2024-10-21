@@ -1,3 +1,11 @@
+### al hilal (N/A, Mon, 21 Oct 2024 08:40:00 -0700)
+
+- **Inside Neymar's £130m year without football: Brazil superstar was caught in 
+an OnlyFans scandal, faced paterni**: [Link](https://www.dailymail.co.uk/sport/football/article-13982837/Neymar-football-Al-Hilal-David-Beckham-Brazil-ACL.html)
+- **Brazil’s Neymar set to return for Al Hilal after long injury layoff**: [Link](https://www.aljazeera.com/sports/2024/10/20/brazils-neymar-set-to-return-to-al-hilal-after-long-injury-layoff)
+- **Neymar's emotional words about his injury**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/neymar-s-emotional-words-about-his-injury-2024-10-20)
+
+
 ### groupe holmarcom (N/A, Mon, 21 Oct 2024 08:50:00 -0700)
 
 - **Holmarcom va céder 11,30% du capital de CDM au public pour plus d'un 
