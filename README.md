@@ -1,3 +1,10 @@
+### macron maroc (N/A, Sun, 20 Oct 2024 19:50:00 -0700)
+
+- **Emmanuel Macron effectuera une visite d'Etat au Maroc du 28 au 30 octobre**: [Link](https://lematin.ma/nation/emmanuel-macron-effectuera-une-visite-detat-au-maroc-du-28-au-30-octobre/247967)
+- **Macron au Maroc : Airbus, Sahara & OQTF**: [Link](https://www.lepoint.fr/monde/macron-au-maroc-airbus-sahara-oqtf-20-10-2024-2573185_24.php)
+- **Rabat annonce la visite d’Emmanuel Macron du 28 au 30 octobre**: [Link](https://ledesk.ma/encontinu/rabat-annonce-la-visite-demmanuel-macron-du-28-au-30-octobre/)
+
+
 ### gladiator 2 (N/A, Mon, 21 Oct 2024 05:40:00 -0700)
 
 - **Denzel Washington on His ‘Gladiator II’ Role: “I’m Putting This Dress On, 
