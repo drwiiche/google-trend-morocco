@@ -1,3 +1,10 @@
+### العين ضد الهلال (N/A, Mon, 21 Oct 2024 08:10:00 -0700)
+
+- **سفيان رحيمي يتربص بـ"رقم قياسي"**: [Link](https://www.hespress.com/%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%8A%D8%AA%D8%B1%D8%A8%D8%B5-%D8%A8%D9%80%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-1450834.html)
+- **رحيمي يقود العين.. ونيمار على دكة بدلاء الهلال**: [Link](https://m.kooora.com/?n=1362750&o=n52675028)
+- **دوري النخبة الآسيوي..النجم سفيان رحيمي في مواجهة نيمار العائد لصفوف الهلال**: [Link](https://ar.sport.le360.ma/football/UPPRXC65F5GSPPYFFS5B6YJPLM/)
+
+
 ### al ain – al-hilal (N/A, Mon, 21 Oct 2024 08:00:00 -0700)
 
 - **Referees for the Al Hilal and Al Ain match in tomorrow’s match**: [Link](https://www.ysscores.com/en/news/5728069/Referees-for-the-Al-Hilal-and-Al-Ain-match-in-tomorrow%E2%80%99s-match)
