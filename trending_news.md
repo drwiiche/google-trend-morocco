@@ -1,3 +1,12 @@
+### teams (N/A, Mon, 21 Oct 2024 01:10:00 -0700)
+
+- **Latest bowl projections: More changes at the top; Indiana eyes playoff spot**: [Link](https://www.espn.com/college-football/insider/story/_/id/41902950/college-football-playoff-bowl-projections-week-8)
+- **CFP Bracket Watch: Oregon is new No. 1 seed ahead of Georgia, Miami, Iowa 
+St; BYU in and 'Bama out**: [Link](https://apnews.com/article/cfp-bracket-college-football-76a342eb25814de668df0bf56fd840f9)
+- **College Football Playoff Rankings projection: Alabama and Tennessee fall 
+out of field, Notre Dame hops in**: [Link](https://www.cbssports.com/college-football/news/college-football-playoff-rankings-projection-alabama-and-tennessee-fall-out-of-field-notre-dame-hops-in/)
+
+
 ### neymar (N/A, Mon, 21 Oct 2024 00:20:00 -0700)
 
 - **Neymar, fin al calvario**: [Link](https://as.com/futbol/internacional/neymar-fin-al-calvario-n/)
