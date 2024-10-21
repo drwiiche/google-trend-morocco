@@ -1,3 +1,11 @@
+### visite macron maroc (N/A, Mon, 21 Oct 2024 09:40:00 -0700)
+
+- **Communiqué du Ministère de la Maison Royale, du Protocole et de la 
+Chancellerie**: [Link](https://www.mapexpress.ma/actualite/activites-royales/communique-du-ministere-maison-royale-du-protocole-chancellerie-10/)
+- **Emmanuel Macron sera en visite d'État au Maroc du 28 au 30 octobre**: [Link](https://www.bfmtv.com/politique/elysee/emmanuel-macron-sera-en-visite-d-etat-au-maroc-du-28-au-30-octobre_AD-202410210522.html)
+- **Rabat annonce la visite d’Emmanuel Macron du 28 au 30 octobre**: [Link](https://ledesk.ma/encontinu/rabat-annonce-la-visite-demmanuel-macron-du-28-au-30-octobre/)
+
+
 ### al hilal (N/A, Mon, 21 Oct 2024 08:40:00 -0700)
 
 - **Inside Neymar's £130m year without football: Brazil superstar was caught in 
