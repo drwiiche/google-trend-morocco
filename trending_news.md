@@ -1,3 +1,12 @@
+### gladiator 2 (N/A, Mon, 21 Oct 2024 05:40:00 -0700)
+
+- **Denzel Washington on His ‘Gladiator II’ Role: “I’m Putting This Dress On, 
+These Rings, and I’m Going Crazy”**: [Link](https://www.hollywoodreporter.com/movies/movie-news/denzel-washington-gladiator-ii-paul-mescal-1236035650/)
+- **‘Gladiator 2’ Sends Ridley Scott, Denzel Washington and Paul Mescal into 
+the Oscar Race; First Reactions Call Sequel ‘Epic’ and ‘Absolute Sicko Sh-t’**: [Link](https://variety.com/2024/film/awards/gladiator-2-first-reaction-ridley-scott-oscars-1236182621/)
+- **'Gladiator II' First Reactions Say Ridley Scott Sequel Is "Unhinged"**: [Link](https://deadline.com/2024/10/gladiator-ii-first-reactions-ridley-scott-sequel-unhinged-deliciously-cinematic-machiavellian-1236121555/)
+
+
 ### douane maroc (N/A, Mon, 21 Oct 2024 00:50:00 -0700)
 
 - **Aéroport de Fès-Saïss: une passagère transportait des cendres d’origine 
