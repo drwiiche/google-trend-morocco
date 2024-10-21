@@ -1,3 +1,10 @@
+### arda güler (N/A, Mon, 21 Oct 2024 12:30:00 -0700)
+
+- **Türk hackerlar gündeme getirmişti | Ali Koç istifa mı etti?**: [Link](https://gdh.digital/turk-hackerlar-gundeme-getirmisti-ali-koc-istifa-mi-etti-132552)
+- **FETÖ Elebaşı Gülen’in Cenaze Tarihi Belli Oldu**: [Link](https://www.haberaktuel.com/feto-elebasi-gulen-in-cenaze-tarihi-belli-oldu-2968869)
+- **Juventus'un resmi sosyal medya hesabı hacklendi**: [Link](https://tr.al-ain.com/article/juventus-resmi-sosyal-medya-hesabi-hacklendi)
+
+
 ### al rayyan – al-ahli saudi (N/A, Mon, 21 Oct 2024 10:30:00 -0700)
 
 - **Al Rayyan coach: Our goal is to win against Al Ahli Saudi FC**: [Link](https://thepeninsulaqatar.com/article/21/10/2024/al-rayyan-coach-our-goal-is-to-win-against-al-ahli-saudi-fc)
