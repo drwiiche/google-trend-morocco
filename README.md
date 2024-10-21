@@ -1,3 +1,13 @@
+### moldavie (N/A, Sun, 20 Oct 2024 22:50:00 -0700)
+
+- **En Moldavie, le résultat du référendum sur l’adhésion du pays à l’UE reste 
+indécis, la présidente Sandu dénonce « une attaque sans précédent contre la 
+démocratie »**: [Link](https://www.lemonde.fr/international/article/2024/10/21/moldavie-le-non-a-l-adhesion-du-pays-a-l-ue-pointe-en-tete-la-presidente-sandu-denonce-une-attaque-sans-precedent-contre-la-democratie_6357047_3210.html)
+- **Moldavie : un score serré au référendum sur l'UE, Sandu en tête de la 
+présidentielle**: [Link](https://www.france24.com/fr/europe/20241020-choisir-ue-ou-renouer-avec-moscou-double-scrutin-d%C3%A9cisif-en-moldavie)
+- **Les Moldaves à la croisée des chemins**: [Link](https://fr.euronews.com/my-europe/2024/10/20/les-moldaves-a-la-croisee-des-chemins)
+
+
 ### kech24 (N/A, Sun, 20 Oct 2024 23:20:00 -0700)
 
 
