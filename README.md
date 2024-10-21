@@ -1,3 +1,16 @@
+### هسبريس (N/A, Sun, 20 Oct 2024 23:10:00 -0700)
+
+
+
+
+### barcelona vs (N/A, Sun, 20 Oct 2024 12:40:00 -0700)
+
+- **UEFA Champions League: Barcelona vs Bayern Múnich Fecha 3**: [Link](https://www.eldiarioar.com/deportes/futbol/champions-league/uefa-champions-league-barcelona-vs-bayern-munich-fecha-3_1_11748055.html)
+- **Kompany: "Flick hizo mucho por el Bayern, como Guardiola, Heynckes y otros"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241019/1002336674/kompany-flick-hizo-bayern-querra-ganar.html)
+- **FC Barcelona vs Bayern de Múnich: cómo ver el partido, posibles 
+alineaciones y pronóstico**: [Link](https://www.90min.com/es/fc-barcelona-vs-bayern-de-munich-como-ver-posibles-alineaciones-y-pronostico-23-10-2024)
+
+
 ### kick (N/A, Sun, 20 Oct 2024 16:40:00 -0700)
 
 - **N3on banned on Kick for this savage reason**: [Link](https://www.mundodeportivo.com/us/en/20241020/705243/n3on-banned-on-kick-for-this-savage-reason.html)
