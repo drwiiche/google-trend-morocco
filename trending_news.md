@@ -1,3 +1,9 @@
+### douane maroc (N/A, Mon, 21 Oct 2024 00:50:00 -0700)
+
+- **Aéroport de Fès-Saïss: une passagère transportait des cendres d’origine 
+humaine**: [Link](https://fr.le360.ma/societe/aeroport-de-fes-saiss-des-cendres-dorigine-humaine-retrouvees-sur-une-passagere_HDQLQ6ORRRFVDJXOS3IKYWWEYY/)
+
+
 ### ouragan oscar (N/A, Mon, 21 Oct 2024 03:20:00 -0700)
 
 - **Cuba : troisième nuit sans électricité dans l’île, touchée par la tempête 
