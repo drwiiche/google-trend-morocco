@@ -1,3 +1,11 @@
+### al ain vs al-hilal (N/A, Mon, 21 Oct 2024 08:30:00 -0700)
+
+- **How to watch today's Al-Ain vs Al Hilal AFC Champions League game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-al-ain-vs-al-hilal-afc-champions-league-game-live-stream-tv-channel-start-time/blt414c04752ba43641)
+- **Eric: Al Hilal has a more cohesive and harmonious team**: [Link](https://www.ysscores.com/en/news/5720464/Eric:-Al-Hilal-has-a-more-cohesive-and-harmonious-team)
+- **Preview: Al-Ain vs. Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ain/preview/preview-al-ain-vs-al-hilal-prediction-team-news-lineups_555891.html)
+
+
 ### العين ضد الهلال (N/A, Mon, 21 Oct 2024 08:10:00 -0700)
 
 - **سفيان رحيمي يتربص بـ"رقم قياسي"**: [Link](https://www.hespress.com/%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%8A%D8%AA%D8%B1%D8%A8%D8%B5-%D8%A8%D9%80%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-1450834.html)
