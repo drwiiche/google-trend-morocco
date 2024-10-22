@@ -1,3 +1,33 @@
+### kooora (N/A, Tue, 22 Oct 2024 11:40:00 -0700)
+
+- **فليك: لا أستطيع تغيير ماضي برشلونة مع بايرن**: [Link](https://www.kooora.com/?n=1362961)
+- **كومباني: مباراة برشلونة ستكون صعبة**: [Link](https://hihi2.com/2024/10/22/p2901772.html)
+- **موعد مباراة برشلونة ضد بايرن ميونخ بدوري أبطال أوروبا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/10/22/barcelona-bayern-munich)
+
+
+### جدول مباريات اليوم (N/A, Tue, 22 Oct 2024 11:40:00 -0700)
+
+- **"سحر ميسي" يقود الدوري الأمريكي لأرقام قياسية**: [Link](https://www.kooora.com/?n=1362982)
+- **الفريق المثالي لليوم الأخير من الموسم العادي للدوري الأمريكي**: [Link](https://hihi2.com/2024/10/22/p2900447.html)
+- **ميسي يُحقق رقمًا قياسيًّا يصعب على رونالدو تحقيقه!**: [Link](https://ar.hibapress.com/details-564853.html)
+
+
+### psg vs psv (N/A, Tue, 22 Oct 2024 11:30:00 -0700)
+
+- **Ligue des champions : PSG, victoire impérative**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-champions/ligue-des-champions-psg-victoire-imperative-20241021)
+- **Le PSG avertit ses supporters avant le PSV Eindhoven**: [Link](https://www.goal.com/fr/listes/le-psg-avertit-ses-supporters-avant-le-psv-eindhoven/blt98755d42a40edb0b)
+- **LdC : Peter Bosz s’enflamme pour Bradley Barcola**: [Link](https://www.footmercato.net/a819097489828444747-ldc-peter-bosz-senflamme-pour-bradley-barcola)
+
+
+### raja vs far (N/A, Tue, 22 Oct 2024 11:20:00 -0700)
+
+- **Botola : le Clasico Raja-AS FAR en vedette, l’Ittihad Tanger accueille la 
+RCAZ pour consolider son leadership**: [Link](https://lematin.ma/sports/botola-le-clasico-raja-as-far-en-vedette/248169)
+- **Botola Pro D1 Inwi: le programme de ce mardi 22 octobre, Raja-AS FAR en 
+tête d’affiche**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-programme-de-ce-mardi-22-octobre-raja-as-far-en-tete-daffiche_D7IC6XPN5VH4JIJXRTLBE7OH2Y/)
+- **Raja-AS FAR: mauvaise nouvelle pour les Militaires**: [Link](https://www.lesiteinfo.com/sport/630499-raja-as-far-mauvaise-nouvelle-pour-les-militaires.html)
+
+
 ### بي اس جي ضد بي اس في (N/A, Tue, 22 Oct 2024 11:20:00 -0700)
 
 - **حكيمي على رأس قائمة باريس لمواجهة أيندهوفن**: [Link](https://www.kooora.com/?n=1362974)
