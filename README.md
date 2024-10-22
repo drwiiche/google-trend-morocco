@@ -1,3 +1,25 @@
+### vinicius júnior (N/A, Tue, 22 Oct 2024 14:30:00 -0700)
+
+- **Tabela de Jogos da Liga dos Campeões para Quarta-Feira**: [Link](https://www.footboom1.com/br/news/football/1975957-champions-league-match-schedule-for-wednesday)
+- **Champions League: o que esperar da Jornada 3 na quarta-feira**: [Link](https://pt.uefa.com/uefachampionsleague/news/0292-1c1a80c69f70-70944f3448d9-1000--champions-league-o-que-esperar-da-jornada-3-na-quarta-feira/)
+- **Segundo do Dortmund no Bernabéu! Malen cruza da direita para Gittens ampliar**: [Link](https://tntsports.com.br/videos/lance_3_gol_2_borussia_16x9-vf20241022mp4.html)
+
+
+### as far (N/A, Tue, 22 Oct 2024 14:30:00 -0700)
+
+- **Botola Pro D1 Inwi: Schedule for Tuesday, October 22, Raja-AS FAR Headlining**: [Link](https://www.footboom1.com/en/news/football/1973321-botola-pro-d1-inwi-schedule-for-tuesday-october-22-raja-as-far-headlining)
+- **The 7th Round of the Moroccan Football League "Inwi" Kicks Off**: [Link](https://fesnews.media/290140/2024/10/21/)
+- **Botola Pro D1 inwi: A Purely Technical Day**: [Link](https://www.footboom1.com/en/news/football/1953865-botola-pro-d1-inwi-a-purely-technical-day)
+
+
+### rahimi (N/A, Tue, 22 Oct 2024 14:30:00 -0700)
+
+- **Al Ain FC vs. Al Hilal prediction, odds & betting tip 21.10.2024**: [Link](https://www.transfermarkt.com/betting/al-ain-fc-al-hilal-prediction-tip-21-10-2024/)
+- **Al Ain manager regrets the behavior of his team's fans**: [Link](https://www.ysscores.com/en/news/5811449/Al-Ain-manager-regrets-the-behavior-of-his-team's-fans)
+- **Rahimi’s Hat-Trick Heroics Fall Short as 10-Man Al Hilal Edge Al Ain 5-4 in 
+AFC Champions League Thriller**: [Link](https://en.africatopsports.com/2024/10/22/rahimis-hat-trick-heroics-fall-short-as-10-man-al-hilal-edge-al-ain-5-4-in-afc-champions-league-thriller/)
+
+
 ### rudiger (N/A, Tue, 22 Oct 2024 14:00:00 -0700)
 
 - **Real Madrid defender open to Saudi Arabia exit with contract talks on the 
