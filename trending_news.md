@@ -1,3 +1,36 @@
+### live (N/A, Tue, 22 Oct 2024 13:20:00 -0700)
+
+- **Live with the Red Wolves Basketball Radio Show Begins Monday, Oct. 28**: [Link](https://astateredwolves.com/news/2024/10/22/mens-basketball-live-with-the-red-wolves-basketball-radio-show-begins-monday-oct-28.aspx)
+- **‘Live with the Red Wolves’ basketball radio show begins Monday**: [Link](https://jonesbororightnow.com/news/268862-live-with-the-red-wolves-basketball-radio-show-begins-monday/)
+- **Watch Prep Countdown LIVE beginning at 7pm!**: [Link](https://www.swxlocalsports.com/tri-cities-yakima/watch-prep-countdown-live-beginning-at-7pm/video_b5474f52-8fe5-11ef-b22b-eb51ab0f8be8.html)
+
+
+### 365 (N/A, Tue, 22 Oct 2024 13:20:00 -0700)
+
+- **New autonomous agents scale your team like never before**: [Link](https://blogs.microsoft.com/blog/2024/10/21/new-autonomous-agents-scale-your-team-like-never-before/)
+- **Microsoft introduces ‘AI employees’ that can handle client queries**: [Link](https://www.theguardian.com/technology/2024/oct/21/microsoft-launches-ai-employees-that-can-perform-some-business-tasks)
+- **Microsoft launches Copilot AI features as investors look for signs 
+artificial intelligence is paying off**: [Link](https://finance.yahoo.com/news/microsoft-launches-copilot-ai-features-as-investors-look-for-signs-artificial-intelligence-is-paying-off-093044133.html)
+
+
+### paris (N/A, Tue, 22 Oct 2024 13:20:00 -0700)
+
+- **Le parquet de Paris ouvre une enquête pour provocation à la haine raciale 
+pour un maillot floqué « anti juif » dans le métro**: [Link](https://www.lemonde.fr/societe/article/2024/10/22/le-parquet-de-paris-ouvre-une-enquete-pour-provocation-a-la-haine-raciale-pour-un-maillot-floque-anti-juif-dans-le-metro_6358273_3224.html)
+- **Paris : un homme photographié avec un maillot floqué «anti juif», une 
+enquête ouverte**: [Link](https://www.lefigaro.fr/faits-divers/paris-un-homme-photographie-avec-un-maillot-floque-anti-juif-une-enquete-ouverte-20241022)
+- **Enquête ouverte après la photographie d'un homme dans le métro parisien 
+portant un maillot floqué "Anti Juif"**: [Link](https://www.francetvinfo.fr/faits-divers/un-homme-photographie-dans-le-metro-parisien-avec-un-maillot-floque-anti-juif-la-ratp-va-porter-plainte_6853424.html)
+
+
+### psv eindhoven (N/A, Tue, 22 Oct 2024 13:10:00 -0700)
+
+- **Gehavend PSV begint met Tillman en Dams aan Champions League-duel bij PSG**: [Link](https://www.nu.nl/voetbal/6332640/gehavend-psv-begint-met-tillman-en-dams-aan-champions-league-duel-bij-psg.html)
+- **Verrassend advies voor Bosz aangaande beginopstelling in Parijs: 'Hij kan 
+ook als middenvelder'**: [Link](https://www.psvinside.nl/verrassend-advies-voor-bosz-aangaande-beginopstelling-in-parijs-hij-kan-ook-als-middenvelder/)
+- **Bosz geeft update over blessure van Schouten: 'Maar ik ben geen dokter'**: [Link](https://www.msn.com/nl-nl/sport/voetbal/bosz-geeft-update-over-blessure-van-schouten-maar-ik-ben-geen-dokter/vi-AA1sF34o)
+
+
 ### botola (N/A, Tue, 22 Oct 2024 13:00:00 -0700)
 
 - **Botola Pro D1 Inwi: Le DHJ bat le MAT**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-dhj-bat-le-mat_YORSMKKT7JGBRARBYBBJIICCMY/)
