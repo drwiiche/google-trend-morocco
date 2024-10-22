@@ -1,3 +1,78 @@
+### بي اس جي ضد بي اس في (N/A, Tue, 22 Oct 2024 11:20:00 -0700)
+
+- **حكيمي على رأس قائمة باريس لمواجهة أيندهوفن**: [Link](https://www.kooora.com/?n=1362974)
+- **مدرب أيندهوفن يعول على صيباري في ظل غياب أهم لاعبيه**: [Link](https://www.almountakhab.com/node/16205662)
+- **نتائج سلبية لـ باريس سان جيرمان قبل مواجهة آيندهوفن**: [Link](https://hihi2.com/2024/10/22/p2901267.html)
+
+
+### girona – slovan bratislava (N/A, Tue, 22 Oct 2024 11:20:00 -0700)
+
+- **Preview: Girona vs. Slovan Bratislava - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/champions-league/preview/preview-girona-vs-slovan-bratislava-prediction-team-news-lineups_555920.html)
+- **The First Big Night in Europe Can't Wait Any Longer**: [Link](https://www.footboom1.com/en/news/football/1972471-the-first-big-night-in-europe-can-t-wait-any-longer)
+- **Girona vs Slovan Bratislava: Preview, predictions and lineups**: [Link](https://www.90min.com/girona-vs-slovan-bratislava-preview-predictions-lineups-22-10-24)
+
+
+### monaco vs (N/A, Tue, 22 Oct 2024 11:20:00 -0700)
+
+- **Monaco vs. Red Star Belgrade Preview: October 22, 2024**: [Link](https://www.footboom1.com/en/news/football/1969227-monaco-vs-red-star-belgrade-preview-october-22-2024)
+- **Monaco Soccer Champions League**: [Link](https://www.idahostatejournal.com/sports/national/monaco-soccer-champions-league/image_d9731dd6-3230-59ce-8f02-483e19b37033.html)
+- **Monaco vs FK Crvena Zvezda: Predicted Lineups, Score Prediction and 7/4 Bet 
+Builder**: [Link](https://www.whoscored.com/Articles/LxizS6nvEEGrBJpUIuaK7Q/Show/Monaco-vs-FK-Crvena-Zvezda-Predicted-Lineups-Score-Prediction-Champions-League-Preview)
+
+
+### 2m (N/A, Tue, 22 Oct 2024 11:20:00 -0700)
+
+- **Moroccan journalist's 2M suspension sparks union concerns**: [Link](https://en.yabiladi.com/articles/details/155403/moroccan-journalist-s-suspension-sparks-union.html)
+- **Prominent Journalist Ouadih Dada Suspended from Morocco’s 2M TV Amid Union 
+Controversy**: [Link](https://www.moroccoworldnews.com/2024/10/365858/prominent-journalist-ouadih-dada-suspended-from-moroccos-2m-tv-amid-union-controversy)
+
+
+### real madrid – dortmund (N/A, Tue, 22 Oct 2024 11:10:00 -0700)
+
+- **Preview: Real Madrid vs. Borussia Dortmund - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/preview/preview-real-madrid-vs-dortmund-prediction-team-news-lineups_555940.html)
+- **Spanish and German Soccer Royalty Collide in Third Round of Champions 
+League Games**: [Link](https://english.aawsat.com/sports/5073605-spanish-and-german-soccer-royalty-collide-third-round-champions-league-games)
+- **Brandt: 'We are not seeking revenge for the final at Wembley'**: [Link](https://www.besoccer.com/new/brandt-we-are-not-seeking-revenge-for-the-final-at-wembley-1335073)
+
+
+### الريال ضد دورتموند (N/A, Tue, 22 Oct 2024 11:10:00 -0700)
+
+- **فينيسيوس ومبابي يقودان ريال مدريد أمام دورتموند**: [Link](https://m.kooora.com/?n=1363034&o=n)
+- **تشكيلة ريال مدريد للقاء بروسيا دورتموند في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/10/22/p2901649.html)
+- **أنشيلوتي يعلن قائمة ريال مدريد المستدعاة لمواجهة بوروسيا دورتموند**: [Link](https://www.hibasport.com/details-279826.html)
+
+
+### real madrid (N/A, Tue, 22 Oct 2024 11:10:00 -0700)
+
+- **Real Madrid - Borussia Dortmund, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/real-madrid-borussia-dortmund-en-directo-champions-league-hoy-en-vivo-n/)
+- **Alineación confirmada del Real Madrid contra el Borussia Dortmund hoy, 
+partido de Champions League**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/21/alineaciones-probables-real-madrid-vs-borussia-dortmund-champions-league.html)
+- **Oficial: las 3 únicas bajas en la convocatoria del Real Madrid contra el 
+Borussia Dortmund**: [Link](https://www.defensacentral.com/real_madrid/1709329060-oficial-las-3-unicas-bajas-en-la-convocatoria-del-real-madrid-contra-el-borussia-dortmund)
+
+
+### arsenal – chakhtior donetsk (N/A, Tue, 22 Oct 2024 11:10:00 -0700)
+
+- **Every word of Mikel’s pre-Shakhtar presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikels-pre-shakhtar-presser)
+- **Arsenal must get back to winning ways against Shakhtar tonight**: [Link](https://www.justarsenal.com/arsenal-must-get-back-to-winning-ways-against-shakhtar-tonight/378712)
+- **Mikel Arteta admits Arsenal have a serious problem that could derail title 
+hopes**: [Link](https://www.nowarsenal.com/latest-news/mikel-arteta-admits-arsenal-have-a-serious-problem-that-could-derail-title-hopes/)
+
+
+### juventus – stuttgart (N/A, Tue, 22 Oct 2024 11:10:00 -0700)
+
+- **Preview: Juventus vs. Stuttgart - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/juventus/champions-league/preview/preview-juventus-vs-stuttgart-prediction-team-news-lineups_555930.html)
+- **Consistency key for Champions League and Serie A success, says Motta**: [Link](https://www.beinsports.com/en-au/football/uefa-champions-league/articles/consistency-key-for-champions-league-and-serie-a-success-says-motta-2024-10-21)
+- **Past success turns into burden for Stuttgart ahead of Juve duel**: [Link](http://www.china.org.cn/sports/2024-10/22/content_117499058.htm)
+
+
+### ريال مدريد (N/A, Tue, 22 Oct 2024 11:10:00 -0700)
+
+- **كروس: جددت مع ريال مدريد في 5 دقائق**: [Link](https://www.kooora.com/?n=1363028)
+- **كروس يختار المنصب الأنسب له بعد الاعتزال**: [Link](https://hihi2.com/2024/10/22/p2901208.html)
+- **كروس: لست مهتماً بإقامة مباراة اعتزالي**: [Link](https://www.alarabiya.net/sport/2024/10/22/%D9%83%D8%B1%D9%88%D8%B3-%D9%84%D8%B3%D8%AA-%D9%85%D9%87%D8%AA%D9%85%D8%A7%D9%8B-%D8%A8%D8%A7%D9%82%D8%A7%D9%85%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%8A)
+
+
 ### youssef chippo (N/A, Tue, 22 Oct 2024 11:00:00 -0700)
 
 - **La femme de Youssef Chippo arrêtée après un accident mortel**: [Link](https://www.bladi.net/femme-youssef-chippo-arretee-accident-mortel,111162.html)
