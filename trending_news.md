@@ -1,3 +1,55 @@
+### youssef chippo (N/A, Tue, 22 Oct 2024 11:00:00 -0700)
+
+- **La femme de Youssef Chippo arrêtée après un accident mortel**: [Link](https://www.bladi.net/femme-youssef-chippo-arretee-accident-mortel,111162.html)
+- **Rabat: l’épouse de Youssef Chippo placée en garde à vue**: [Link](https://www.lesiteinfo.com/maroc/630484-rabat-lepouse-de-youssef-chippo-placee-en-garde-a-vue.html)
+- **Rabat.. L’épouse de Youssef Shibo a été arrêtée et placée sous mesure de 
+garde théorique - HIBAPRESS**: [Link](https://fr.hibapress.com/news-141398.html)
+
+
+### milan ac (N/A, Tue, 22 Oct 2024 10:50:00 -0700)
+
+- **DIRECT. AC Milan-Club Bruges (Coupe des clubs champions 2024-2025) à suivre 
+en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/ac-milan-club-bruges-live/667998)
+- **Pronostic Milan Club Bruges : Analyse, cotes et prono du match de Ligue des 
+champions**: [Link](https://www.sofoot.com/breves/pronostic-milan-club-bruges-analyse-cotes-et-prono-du-match-de-ligue-des-champions)
+- **VIDEO : Fonseca balance sa compo en conf' !**: [Link](https://news.maxifoot.fr/video/fonseca-balance-sa-compo-en-conf-foot-421452.htm)
+
+
+### rca vs far (N/A, Tue, 22 Oct 2024 10:50:00 -0700)
+
+- **Botola : le Clasico Raja-AS FAR en vedette, l’Ittihad Tanger accueille la 
+RCAZ pour consolider son leadership**: [Link](https://lematin.ma/sports/botola-le-clasico-raja-as-far-en-vedette/248169)
+- **Botola Pro D1 Inwi: le programme de ce mardi 22 octobre, Raja-AS FAR en 
+tête d’affiche**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-programme-de-ce-mardi-22-octobre-raja-as-far-en-tete-daffiche_D7IC6XPN5VH4JIJXRTLBE7OH2Y/)
+- **Raja-AS FAR: mauvaise nouvelle pour les Militaires**: [Link](https://www.lesiteinfo.com/sport/630499-raja-as-far-mauvaise-nouvelle-pour-les-militaires.html)
+
+
+### دوري ابطال اوروبا (N/A, Tue, 22 Oct 2024 10:40:00 -0700)
+
+- **الرسم التكتيكي لـ ريال مدريد أمام بروسيا دورتموند**: [Link](https://hihi2.com/2024/10/22/p2901671.html)
+- **الريال في طريقه لملعب السانتياجو برنابيو قبل مواجهة بروسيا في دوري 
+الأبطال.. شاهد**: [Link](https://hihi2.com/2024/10/22/p2901666.html)
+- **شاهين: أتحدث يوميا مع نجم الريال.. وسأموت سعيدا في هذه الحالة**: [Link](https://www.kooora.com/?n=1362882)
+
+
+### uefa champions league (N/A, Tue, 22 Oct 2024 10:20:00 -0700)
+
+- **Preview: Real Madrid vs. Borussia Dortmund - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/preview/preview-real-madrid-vs-dortmund-prediction-team-news-lineups_555940.html)
+- **Spanish and German Soccer Royalty Collide in Third Round of Champions 
+League Games**: [Link](https://english.aawsat.com/sports/5073605-spanish-and-german-soccer-royalty-collide-third-round-champions-league-games)
+- **Brandt: 'We are not seeking revenge for the final at Wembley'**: [Link](https://www.besoccer.com/new/brandt-we-are-not-seeking-revenge-for-the-final-at-wembley-1335073)
+
+
+### ac milan (N/A, Tue, 22 Oct 2024 10:00:00 -0700)
+
+- **GdS: ‘Here comes Zlatan’ – Ibrahimovic expected to hold discussions at 
+Milanello**: [Link](https://sempremilan.com/gds-here-comes-zlatan-discussions-milanello)
+- **Mazzara: Milan squad left ‘alone’ while ownership prioritise accounts over 
+winning**: [Link](https://onefootball.com/en/news/mazzara-milan-squad-left-alone-while-ownership-prioritise-accounts-over-winning-40197776)
+- **Ibrahimovic: "Fonseca? He just needs to be himself. We’ve built a team that 
+has to do well in Italy and abroad"**: [Link](https://milanreports.com/2024/10/22/ibrahimovic-fonseca-must-be-himself/)
+
+
 ### ميلان ضد كلوب بروج (N/A, Tue, 22 Oct 2024 10:30:00 -0700)
 
 - **قبل يوم كامل.. فونسيكا يعلن تشكيل ميلان للقاء بروج**: [Link](https://www.kooora.com/?n=1362762)
