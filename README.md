@@ -1,3 +1,10 @@
+### quinte du jour (N/A, Tue, 22 Oct 2024 00:50:00 -0700)
+
+- **Quinté du mardi 22 octobre 2024 à Clairefontaine : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-mardi-22-octobre-2024-a-clairefontaine-les-pronostics-7900431264)
+- **Equidia met le feu au Quinté+ du mardi 22 octobre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-mardi-22-octobre)
+- **Les pronos hippiques du mardi 22 octobre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-22-octobre-2024_AN-202410210646.html)
+
+
 ### al hilal vs (N/A, Mon, 21 Oct 2024 11:20:00 -0700)
 
 - **Al Ain FC vs. Al Hilal prediction, odds & betting tip 21.10.2024**: [Link](https://www.transfermarkt.com/betting/al-ain-fc-al-hilal-prediction-tip-21-10-2024/)
