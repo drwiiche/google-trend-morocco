@@ -1,3 +1,10 @@
+### استقلال ضد النصر (N/A, Tue, 22 Oct 2024 08:40:00 -0700)
+
+- **بيولي: رونالدو ملهم.. ولا مواجهة سهلة**: [Link](https://m.kooora.com/?n=1362769&pg=6&o=n)
+- **مباشر.. مباراة استقلال طهران ضد النصر بدوري أبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/22/esteghlal-vs-al-nassr)
+- **كريستيانو رونالدو والنصر وسط جدل تغيير الملعب في دوري أبطال آسيا**: [Link](https://hihi2.com/2024/10/22/p2901319.html)
+
+
 ### esteghlal – al-nassr fc (N/A, Tue, 22 Oct 2024 08:20:00 -0700)
 
 - **Preview: Esteghlal vs. Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/esteghlal/preview/preview-esteghlal-vs-al-nassr-prediction-team-news-lineups_555982.html)
