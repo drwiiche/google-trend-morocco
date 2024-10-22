@@ -1,3 +1,11 @@
+### neymar (N/A, Tue, 22 Oct 2024 06:50:00 -0700)
+
+- **¡Mágica vuelta de Neymar un año después!**: [Link](https://as.com/futbol/internacional/magica-vuelta-de-neymar-un-ano-despues-n/)
+- **Neymar regresa 371 días después... en un partido con ¡dos hat-tricks!**: [Link](https://www.marca.com/futbol/futbol-internacional/2024/10/21/neymar-regresa-371-dias-despues-partido-dos-hat-tricks.html)
+- **Hat-Trick de Rahimi en la Champions Asiática eclipsa la vuelta de Neymar a 
+los estadios**: [Link](https://es.rue20.com/2024/10/21/hat-trick-de-rahimi-en-la-champions-asiatica-eclipsa-la-vuelta-de-neymar-a-los-estadios/)
+
+
 ### اخبارنا (N/A, Mon, 21 Oct 2024 23:50:00 -0700)
 
 
