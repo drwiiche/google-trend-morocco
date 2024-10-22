@@ -1,3 +1,10 @@
+### fethullah gülen (N/A, Tue, 22 Oct 2024 02:10:00 -0700)
+
+- **Kanlı parayı kim yönetecek? FETÖ'de 30 milyar dolar kavgası**: [Link](https://www.ntv.com.tr/galeri/turkiye/kanli-parayi-kim-yonetecek-fetode-30-milyar-dolar-kavgasi,R_am_xS3hUq6MRl6bYEHzg)
+- **BİR ANI | Hocaefendi’nin hak ve hakikat ‘takıntısı’**: [Link](https://www.tr724.com/bir-ani-hocaefendinin-hak-ve-hakikat-takintisi/)
+- **Kemeraltı esnafından teröristbaşının cenazesi için bir çuval kına**: [Link](https://www.karsmanset.com/haber/kemeralti-esnafindan-teroristbasinin-cenazesi-icin-bir-cuval-kina-1302859.htm)
+
+
 ### emmanuel macron maroc (N/A, Tue, 22 Oct 2024 02:00:00 -0700)
 
 - **Que sait-on de la première visite d’État d’Emmanuel Macron au Maroc ?**: [Link](https://mobile.telquel.ma/2024/10/21/que-sait-on-de-la-premiere-visite-detat-demmanuel-macron-au-maroc%E2%80%89_1899673)
