@@ -1,3 +1,34 @@
+### arryadia (N/A, Tue, 22 Oct 2024 12:10:00 -0700)
+
+
+
+
+### champions league 2024 (N/A, Tue, 22 Oct 2024 12:10:00 -0700)
+
+- **Training: City get ready for Sparta**: [Link](https://www.mancity.com/citytv/mens/open-training-man-city-sparta-prague-champions-league-63865198)
+- **Man City boss Pep Guardiola delivers new verdict on Wolves after 2-1 result 
+at Molineux**: [Link](https://www.molineux.news/news/man-city-boss-pep-guardiola-delivers-new-verdict-on-wolves-after-2-1-result-at-molineux/)
+- **Man City XI vs Sparta Prague: Confirmed team news, predicted lineup and 
+injury latest for Champions League**: [Link](https://www.standard.co.uk/sport/football/man-city-xi-vs-sparta-prague-confirmed-team-news-predicted-lineup-injury-latest-champions-league-2024-b1189206.html)
+
+
+### koor (N/A, Tue, 22 Oct 2024 12:10:00 -0700)
+
+- **Zingen met Karin Bloemen. ‘Dit concert zie ik als een cadeau aan de 
+koorleden van Songs for You’**: [Link](https://www.ijmuidercourant.nl/regio/ijmond/zingen-met-karin-bloemen.-dit-concert-zie-ik-als-een-cadeau-aan-de-koorleden-van-songs-for-you/23653734.html)
+- **Zingen met Karin Bloemen. ‘Dit concert zie ik als een cadeau aan de 
+koorleden van Songs for You’**: [Link](https://www.noordhollandsdagblad.nl/regio/ijmond/zingen-met-karin-bloemen.-dit-concert-zie-ik-als-een-cadeau-aan-de-koorleden-van-songs-for-you/23653362.html)
+- **Herfstconcert Koor VocAarle**: [Link](https://www.mooilaarbeek.nl/nieuws/activiteiten-evenementen/58287/herfstconcert-koor-vocaarle)
+
+
+### دوري الأبطال (N/A, Tue, 22 Oct 2024 11:40:00 -0700)
+
+- **قبل يوم كامل.. فونسيكا يعلن تشكيل ميلان للقاء بروج**: [Link](https://www.kooora.com/?n=1362762)
+- **كاماردا يحقق رقمًا تاريخيًا في مباراة ميلان وكلوب بروج**: [Link](https://hihi2.com/2024/10/22/p2901847.html)
+- **ميلان ضد كلوب بروج.. ميلان يبحث عن أول نقطة لة في دوري أبطال أوروبا 
+2024-2025 – السعودية نيوز**: [Link](https://real.alsaudinews.com/195659/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B6%D8%AF-%D9%83%D9%84%D9%88%D8%A8-%D8%A8%D8%B1%D9%88%D8%AC-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A3%D9%88%D9%84-%D9%86%D9%82/)
+
+
 ### dortmund (N/A, Tue, 22 Oct 2024 12:00:00 -0700)
 
 - **BVB beginnt ohne Groß und Can - Süle startet**: [Link](https://de.nachrichten.yahoo.com/sport/bvb-beginnt-ohne-gro%C3%9F-can-181413610.html)
