@@ -1,3 +1,18 @@
+### ميلان ضد كلوب بروج (N/A, Tue, 22 Oct 2024 10:30:00 -0700)
+
+- **قبل يوم كامل.. فونسيكا يعلن تشكيل ميلان للقاء بروج**: [Link](https://www.kooora.com/?n=1362762)
+- **بث مباشر مباراة ميلان وكلوب بروج في دوري ابطال اوروبا**: [Link](https://alhorianews.com/%D8%B3%D9%8A%D9%88-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D9%83%D9%84%D9%88%D8%A8-%D8%A8%D8%B1%D9%88%D8%AC-%D9%81/)
+- **تشكيلة ميلان الرسمية لمواجهة كلوب بروج في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/10/22/p2901601.html)
+
+
+### real madrid vs dortmund (N/A, Tue, 22 Oct 2024 10:20:00 -0700)
+
+- **Preview: Real Madrid vs. Borussia Dortmund - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/preview/preview-real-madrid-vs-dortmund-prediction-team-news-lineups_555940.html)
+- **Spanish and German Soccer Royalty Collide in Third Round of Champions 
+League Games**: [Link](https://english.aawsat.com/sports/5073605-spanish-and-german-soccer-royalty-collide-third-round-champions-league-games)
+- **Brandt: 'We are not seeking revenge for the final at Wembley'**: [Link](https://www.besoccer.com/new/brandt-we-are-not-seeking-revenge-for-the-final-at-wembley-1335073)
+
+
 ### monaco fc (N/A, Tue, 22 Oct 2024 10:20:00 -0700)
 
 - **Highly-rated AS Monaco prospects make first Champions League squad**: [Link](https://sports.yahoo.com/highly-rated-monaco-prospects-first-131100321.html)
