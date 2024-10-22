@@ -1,3 +1,10 @@
+### dortmund (N/A, Tue, 22 Oct 2024 12:00:00 -0700)
+
+- **BVB beginnt ohne Groß und Can - Süle startet**: [Link](https://de.nachrichten.yahoo.com/sport/bvb-beginnt-ohne-gro%C3%9F-can-181413610.html)
+- **Jetzt live: Hält Kobel gegen die Real-Stars dicht?**: [Link](https://sport.ch/sportch/1364547/jetzt-live-haelt-kobel-gegen-die-real-stars-dicht)
+- **Live ab 19:45 Uhr: Die Warm-Up-Show vor dem Auswärtsspiel in Madrid**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2024/10/22/Live-ab-1945-Uhr-Die-Warm-Up-Show-vor-dem-Auswaertsspiel-in-Madrid.html)
+
+
 ### kooora (N/A, Tue, 22 Oct 2024 11:40:00 -0700)
 
 - **فليك: لا أستطيع تغيير ماضي برشلونة مع بايرن**: [Link](https://www.kooora.com/?n=1362961)
