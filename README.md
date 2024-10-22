@@ -1,3 +1,11 @@
+### brahim diaz (N/A, Tue, 22 Oct 2024 07:20:00 -0700)
+
+- **Real Madrid: Brahim Diaz Returns to Team Training**: [Link](https://www.footboom1.com/en/news/football/1971882-real-madrid-brahim-diaz-returns-to-team-training)
+- **Brahim Diaz back in team training after injury**: [Link](https://www.besoccer.com/new/brahim-diaz-back-in-team-training-after-injury-1334980)
+- **Real Madrid attacker doubtful to return for El Clasico, likely to come back 
+vs Valencia**: [Link](https://sports.yahoo.com/real-madrid-attacker-doubtful-return-075400036.html)
+
+
 ### neymar (N/A, Tue, 22 Oct 2024 06:50:00 -0700)
 
 - **¡Mágica vuelta de Neymar un año después!**: [Link](https://as.com/futbol/internacional/magica-vuelta-de-neymar-un-ano-despues-n/)
