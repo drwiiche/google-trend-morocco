@@ -1,3 +1,12 @@
+### luc gérard nyafé (N/A, Tue, 22 Oct 2024 00:10:00 -0700)
+
+- **Affaire CMT : Luc Gérard condamné sans avoir été convoqué par la justice**: [Link](https://ledesk.ma/2024/10/21/affaire-cmt-luc-gerard-condamne-sans-avoir-ete-convoque-par-la-justice/)
+- **CMT : Luc Gerard se retire de ses fonctions de Président et de DG pour se 
+consacrer à sa défense**: [Link](https://boursenews.ma/article/marches/CMT-luc-gerard-defense)
+- **Luc-Gérard Nyafé, PDG de la CMT, condamné à la prison avec sursis et à une 
+amende de 827 MDH**: [Link](https://medias24.com/2024/10/21/luc-gerard-nyafe-pdg-de-la-cmt-condamne-a-la-prison-avec-sursis-et-a-une-amende-de-827-mdh/)
+
+
 ### nottingham forest (N/A, Mon, 21 Oct 2024 13:50:00 -0700)
 
 - **Nottingham Forest handed triple ban ahead of Crystal Palace and Newcastle 
