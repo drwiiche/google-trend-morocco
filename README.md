@@ -1,3 +1,17 @@
+### monaco fc (N/A, Tue, 22 Oct 2024 10:20:00 -0700)
+
+- **Highly-rated AS Monaco prospects make first Champions League squad**: [Link](https://sports.yahoo.com/highly-rated-monaco-prospects-first-131100321.html)
+- **Preview: Monaco vs. Red Star Belgrade - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/as-monaco/champions-league/preview/preview-monaco-vs-red-star-prediction-team-news-lineups_555970.html)
+- **Monaco predicted XI v Crvena zvezda: Folarin Balogun and Mohammed Salisu out**: [Link](https://www.getfootballnewsfrance.com/2024/monaco-predicted-xi-v-crvena-zvezda-folarin-balogun-and-mohammed-salisu-out/)
+
+
+### moldavie referendum (N/A, Tue, 22 Oct 2024 10:20:00 -0700)
+
+- **Moldova and Georgia ring alarm bells for the EU**: [Link](https://www.politico.eu/article/moldova-georgia-elections-eu-membership-referendum-russian-influence-kremlin-bribes-disinformation/)
+- **Tugged Between East and West, Moldovans Vote in Pivotal Elections**: [Link](https://www.nytimes.com/2024/10/20/world/europe/moldova-election-russia-eu.html)
+- **Moldova referendum: Provisional results show thin margin for EU membership**: [Link](https://www.bbc.com/news/articles/c1wnr5qdxe7o)
+
+
 ### يوسف شيبو (N/A, Tue, 22 Oct 2024 10:10:00 -0700)
 
 - **حادث يلقي بزوجة شيبو في الحراسة النظرية**: [Link](https://www.hespress.com/%D8%AD%D8%A7%D8%AF%D8%AB-%D9%8A%D9%84%D9%82%D9%8A-%D8%A8%D8%B2%D9%88%D8%AC%D8%A9-%D8%B4%D9%8A%D8%A8%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%86%D8%B8%D8%B1%D9%8A-1451990.html)
