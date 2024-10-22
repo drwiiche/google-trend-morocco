@@ -1,3 +1,18 @@
+### emmanuel macron maroc (N/A, Tue, 22 Oct 2024 02:00:00 -0700)
+
+- **Que sait-on de la première visite d’État d’Emmanuel Macron au Maroc ?**: [Link](https://mobile.telquel.ma/2024/10/21/que-sait-on-de-la-premiere-visite-detat-demmanuel-macron-au-maroc%E2%80%89_1899673)
+- **Macron au Maroc : Airbus, Sahara & OQTF**: [Link](https://www.lepoint.fr/monde/macron-au-maroc-airbus-sahara-oqtf-20-10-2024-2573185_24.php)
+- **Communiqué du Ministère de la Maison Royale, du Protocole et de la 
+Chancellerie**: [Link](https://www.mapexpress.ma/actualite/activites-royales/communique-du-ministere-maison-royale-du-protocole-chancellerie-10/)
+
+
+### العين الاماراتي (N/A, Mon, 21 Oct 2024 11:10:00 -0700)
+
+- **طرح تذاكر مواجهة الأهلي والعين**: [Link](https://www.kooora.com/?n=1362805)
+- **طاقم حكام تركي لمباراة الأهلي المصري والعين الإماراتي**: [Link](https://www.raialyoum.com/%D8%B7%D8%A7%D9%82%D9%85-%D8%AD%D9%83%D8%A7%D9%85-%D8%AA%D8%B1%D9%83%D9%8A-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%88/)
+- **موعد مباراة الأهلي ضد العين والقنوات الناقلة**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2024/10/22/2661922/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+
+
 ### quinte du jour (N/A, Tue, 22 Oct 2024 00:50:00 -0700)
 
 - **Quinté du mardi 22 octobre 2024 à Clairefontaine : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-mardi-22-octobre-2024-a-clairefontaine-les-pronostics-7900431264)
