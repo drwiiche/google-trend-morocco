@@ -1,3 +1,30 @@
+### ac milan – club brugge (N/A, Tue, 22 Oct 2024 09:00:00 -0700)
+
+- **Milan Primavera 1-1 Club Brugge: 95th-minute Ossola equaliser earns 
+deserved draw**: [Link](https://sempremilan.com/milan-primavera-1-1-club-brugge-match-report)
+- **Fonseca prepared to show Milan's growth after tough Champions League start**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/fonseca-prepared-to-show-milans-growth-after-tough-champions-league-start-2024-10-21)
+- **Simon Mignolet ahead of AC Milan-Bruges: 'I've never played at San Siro... 
+but we can win here'**: [Link](https://www.footboom1.com/en/news/football/1972377-simon-mignolet-ahead-of-ac-milan-bruges-i-ve-never-played-at-san-siro-but-we-can-win-here)
+
+
+### ligue des champions (N/A, Tue, 22 Oct 2024 09:00:00 -0700)
+
+- **EdF : Bruno Genesio s’emballe pour Antoine Griezmann**: [Link](https://www.footmercato.net/a4183341721813882857-edf-bruno-genesio-semballe-pour-antoine-griezmann)
+- **« Lille affiche un football courageux », selon l'entraîneur de l'Atlético 
+de Madrid Diego Simeone avant leur rencontre en Ligue des champions**: [Link](https://www.lequipe.fr/Football/Actualites/-lille-affiche-un-football-courageux-selon-l-entraineur-de-l-atletico-de-madrid-diego-simeone-avant-leur-rencontre-en-ligue-des-champions/1515412)
+- **Atlético-Losc: "Il a offert tout son talent à la France", Simeone vante les 
+mérites de Griezmann**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/atletico-losc-il-a-offert-tout-son-talent-a-la-france-simeone-vante-les-merites-de-griezmann_AV-202410220572.html)
+
+
+### monaco – étoile rouge (N/A, Tue, 22 Oct 2024 08:50:00 -0700)
+
+- **Étoile Rouge de Belgrade : qui est Andrija Maksimovic, le "Messi Serbe" qui 
+va affronter l’AS Monaco**: [Link](https://www.footmercato.net/a8384065085258794264-etoile-rouge-de-belgrade-qui-est-andrija-maksimovic-le-messi-serbe-qui-va-affronter-las-monaco)
+- **Ligue des Champions : Adi Hütter a confiance en sa ligne d’attaque**: [Link](https://www.beinsports.com/fr-fr/football/uefa-ligue-des-champions/articles/ligue-des-champions-adi-h%C3%BCtter-a-confiance-en-sa-ligne-d-attaque-2024-10-22)
+- **Youth League, matchs en retard VS Ghisonaccia et l'OL... Le programme de 
+l'Academy**: [Link](https://onefootball.com/fr/news/youth-league-matchs-en-retard-vs-ghisonaccia-et-lol-le-programme-de-lacademy-40201745)
+
+
 ### استقلال ضد النصر (N/A, Tue, 22 Oct 2024 08:40:00 -0700)
 
 - **بيولي: رونالدو ملهم.. ولا مواجهة سهلة**: [Link](https://m.kooora.com/?n=1362769&pg=6&o=n)
