@@ -1,3 +1,13 @@
+### vladimir poutine (N/A, Tue, 22 Oct 2024 06:00:00 -0700)
+
+- **La Chine pousse à l’élargissement des BRICS pour légitimer sa vision d’un 
+nouvel ordre mondial**: [Link](https://www.lemonde.fr/international/article/2024/10/22/la-chine-pousse-a-l-elargissement-des-brics-pour-legitimer-sa-vision-d-un-nouvel-ordre-mondial_6358088_3210.html)
+- **Face à Narendra Modi, Vladimir Poutine salue "le partenariat stratégique" 
+entre la Russie et l'Inde**: [Link](https://www.france24.com/fr/info-en-continu/20241022-sommet-des-brics-%C3%A0-kazan-poutine-veut-montrer-que-la-russie-n-est-pas-isol%C3%A9e)
+- **Sommet de Kazan : entre bloc alternatif et bloc anti-occidental, les Brics 
+se cherchent encore**: [Link](https://www.courrierinternational.com/article/analyse-sommet-de-kazan-entre-bloc-alternatif-et-bloc-anti-occidental-les-brics-se-cherchent-encore_223607)
+
+
 ### luc gérard nyafé (N/A, Tue, 22 Oct 2024 00:10:00 -0700)
 
 - **Affaire CMT : Luc Gérard condamné sans avoir été convoqué par la justice**: [Link](https://ledesk.ma/2024/10/21/affaire-cmt-luc-gerard-condamne-sans-avoir-ete-convoque-par-la-justice/)
