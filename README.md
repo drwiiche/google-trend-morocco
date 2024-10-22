@@ -1,3 +1,10 @@
+### يوسف شيبو (N/A, Tue, 22 Oct 2024 10:10:00 -0700)
+
+- **حادث يلقي بزوجة شيبو في الحراسة النظرية**: [Link](https://www.hespress.com/%D8%AD%D8%A7%D8%AF%D8%AB-%D9%8A%D9%84%D9%82%D9%8A-%D8%A8%D8%B2%D9%88%D8%AC%D8%A9-%D8%B4%D9%8A%D8%A8%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%86%D8%B8%D8%B1%D9%8A-1451990.html)
+- **اعتقال زوجة لاعب مغربي شهير ووضعها رهن تدابير الحراسة النظرية بالرباط**: [Link](https://www.akhbarona.com/society/394241.html)
+- **وضع زوجة لاعب مغربي معروف تحت الحراسة النظرية**: [Link](https://sabahagadir.ma/325416.html)
+
+
 ### ac milan – club brugge (N/A, Tue, 22 Oct 2024 09:00:00 -0700)
 
 - **Milan Primavera 1-1 Club Brugge: 95th-minute Ossola equaliser earns 
