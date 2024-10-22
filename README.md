@@ -1,3 +1,20 @@
+### yalla kora (N/A, Tue, 22 Oct 2024 12:40:00 -0700)
+
+- **كووورة يكشف كواليس التحقيق مع ثلاثي الزمالك**: [Link](https://www.kooora.com/?n=1362946)
+- **بعد اعتقال لاعبيه بالإمارات.. الزمالك يدرس الانسحاب من السوبر المصري أمام 
+الأهلي**: [Link](https://m.alayam24.com/articles-533772.html)
+- **الغندور:" الزمالك لازم يعتذر في بيان رسمي لفرد الأمن المعتدى عليه"**: [Link](https://www.egypttelegraph.com/article/84026/%D8%A7%D9%84%D8%BA%D9%86%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%84%D8%A7%D8%B2%D9%85-%D9%8A%D8%B9%D8%AA%D8%B0%D8%B1-%D9%81%D9%8A-%D8%A8%D9%8A%D8%A7%D9%86-%D8%B1%D8%B3%D9%85%D9%8A)
+
+
+### barca vs bayern (N/A, Tue, 22 Oct 2024 12:40:00 -0700)
+
+- **Rueda de prensa de Flick, en directo: última hora del Barcelona - Bayern de 
+Champions hoy en vivo**: [Link](https://as.com/futbol/champions/rueda-de-prensa-de-flick-en-directo-ultima-hora-del-barcelona-bayern-de-champions-hoy-en-vivo-n/)
+- **Los nombres propios de Flick: Casadó, De Jong y Eric**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241022/1002338329/nombres-propios-flick-casado-jong-eric.html)
+- **FC Barcelona | Flick cocina a fuego lento el Barça-Bayern...con Christensen 
+de fondo**: [Link](https://www.sport.es/es/noticias/barca/flick-cocina-fuego-lento-barca-110070596)
+
+
 ### bein sport (N/A, Tue, 22 Oct 2024 12:30:00 -0700)
 
 - **"أقوي المباريات" تردد قناة بي ان سبورت 3 الجديد 2024 BeIN Sports علي جميع 
