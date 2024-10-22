@@ -1,3 +1,11 @@
+### elon musk (N/A, Tue, 22 Oct 2024 07:50:00 -0700)
+
+- **Blade Runner 2049 producers sue Elon Musk over cybercab images**: [Link](https://www.bbc.com/news/articles/ce3z37dpvl9o)
+- **‘Blade Runner 2049’ Producers Sue Elon Musk, Tesla and Warner Bros. 
+Discovery, Alleging Copyright Infringement**: [Link](https://variety.com/2024/biz/news/blade-runner-2049-lawsuit-elon-musk-tesla-warner-bros-discovery-1236184961/)
+- **‘Blade Runner 2049’ Producers Sue Elon Musk Over ‘Robotaxi’ Imagery**: [Link](https://www.nytimes.com/2024/10/21/business/media/elon-musk-alcon-entertainment-robotaxi-lawsuit.html)
+
+
 ### brahim diaz (N/A, Tue, 22 Oct 2024 07:20:00 -0700)
 
 - **Real Madrid: Brahim Diaz Returns to Team Training**: [Link](https://www.footboom1.com/en/news/football/1971882-real-madrid-brahim-diaz-returns-to-team-training)
