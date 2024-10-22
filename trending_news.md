@@ -1,3 +1,12 @@
+### modric (N/A, Tue, 22 Oct 2024 13:30:00 -0700)
+
+- **Luka Modric may be Real Madrid’s oldest ever player but he’s still got it | 
+Sid Lowe**: [Link](https://www.theguardian.com/football/2024/oct/21/luka-modric-real-madrid-la-liga)
+- **In appreciation of Luka Modric, the magician about to become Real Madrid’s 
+oldest-ever player - The Athletic**: [Link](https://www.nytimes.com/athletic/5830617/2024/10/19/modric-real-madrid-croatia-dinamo-tottenham-chelsea/)
+- **Real Madrid Needs A Succession Plan For Luka Modric’s Eventual Exit**: [Link](https://www.forbes.com/sites/henryflynn/2024/10/21/real-madrid-needs-a-succession-plan-for-luka-modrics-eventual-exit/)
+
+
 ### live (N/A, Tue, 22 Oct 2024 13:20:00 -0700)
 
 - **Live with the Red Wolves Basketball Radio Show Begins Monday, Oct. 28**: [Link](https://astateredwolves.com/news/2024/10/22/mens-basketball-live-with-the-red-wolves-basketball-radio-show-begins-monday-oct-28.aspx)
