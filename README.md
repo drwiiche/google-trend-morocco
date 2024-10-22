@@ -1,3 +1,12 @@
+### christine boisson actrice (N/A, Mon, 21 Oct 2024 22:00:00 -0700)
+
+- **L’actrice Christine Boisson connue pour ses rôles dans « Emmanuelle » et « 
+Le Bal des actrices » est morte**: [Link](https://www.lemonde.fr/culture/article/2024/10/21/l-actrice-christine-boisson-connue-pour-ses-roles-dans-emmanuelle-et-le-bal-des-actrices-est-morte_6357687_3246.html)
+- **Mort de l’actrice Christine Boisson qui a fait ses débuts dans Emmanuelle**: [Link](https://www.lefigaro.fr/cinema/mort-de-l-actrice-christine-boisson-qui-a-fait-ses-debuts-dans-emmanuelle-20241021)
+- **Mort de l'actrice Christine Boisson (Emmanuelle, Le Bal des actrices) à 68 
+ans**: [Link](https://www.programme-tv.net/news/people/363258-mort-de-l-actrice-christine-boisson-emmanuelle-le-bal-des-actrices-a-68-ans/)
+
+
 ### referendum moldavie (N/A, Mon, 21 Oct 2024 15:40:00 -0700)
 
 - **Moldova referendum: Provisional results show thin margin for EU membership**: [Link](https://www.bbc.com/news/articles/c1wnr5qdxe7o)
