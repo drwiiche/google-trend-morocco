@@ -1,3 +1,11 @@
+### real madrid vs barcelona (N/A, Tue, 22 Oct 2024 14:40:00 -0700)
+
+- **El pronóstico de Manolo Lama sobre lo que va a pasar en el Clásico: "El 
+Madrid..."**: [Link](https://www.defensacentral.com/real_madrid/1709329029-el-pronostico-de-manolo-lama-sobre-lo-que-va-a-pasar-en-el-clasico-el-madrid)
+- **Real Madrid y Barcelona en noches de Champions**: [Link](https://www.prensa-latina.cu/2024/10/22/real-madrid-y-barcelona-en-noches-de-champions/)
+- **Semana grande: partidazos en la Champions y El Clásico**: [Link](https://cadenaser.com/nacional/2024/10/22/semana-grande-partidazos-en-la-champions-y-el-clasico-cadena-ser/)
+
+
 ### vinicius júnior (N/A, Tue, 22 Oct 2024 14:30:00 -0700)
 
 - **Tabela de Jogos da Liga dos Campeões para Quarta-Feira**: [Link](https://www.footboom1.com/br/news/football/1975957-champions-league-match-schedule-for-wednesday)
