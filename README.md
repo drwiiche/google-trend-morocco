@@ -1,3 +1,27 @@
+### sports (N/A, Tue, 22 Oct 2024 13:40:00 -0700)
+
+- **Skyhawk Sports Talk: Season 2, Episode 9**: [Link](https://utmsports.com/news/2024/10/21/general-skyhawk-sports-talk-season-2-episode-9.aspx)
+- **Essential Happenings in Sports: The Summit League Guide Revealed**: [Link](https://thesummitleague.org/news/2024/10/21/general-essential-happenings-in-sports-the-summit-league-guide-revealed.aspx)
+- **Navy Basketball Single-Game Tickets Now Available; Patriot League 
+Television Schedule Announced**: [Link](https://navysports.com/news/2024/10/22/mens-basketball-navy-basketball-single-game-tickets-now-available-patriot-league-television-schedule-announced.aspx)
+
+
+### match (N/A, Tue, 22 Oct 2024 13:40:00 -0700)
+
+- **Cody Rhodes Competes In Huge First-Time-Ever Match After WWE Raw Goes Off 
+Air**: [Link](https://itrwrestling.com/news/cody-rhodes-competes-in-huge-first-time-ever-match-after-wwe-raw-goes-off-air/)
+- **Watch: Shocking WWE Championship Match Takes Place After Monday Night Raw**: [Link](https://comicbook.com/wwe/news/shock-wwe-championship-match-after-raw-cody-rhodes-jacob-fatu/)
+- **Cody Rhodes hands Jacob Fatu first singles loss in Raw dark match**: [Link](https://www.msn.com/en-us/sports/mma_ufc/cody-rhodes-hands-jacob-fatu-first-singles-loss-in-raw-dark-match/ar-AA1sIZTN)
+
+
+### هاشم صفي الدين (N/A, Tue, 22 Oct 2024 13:00:00 -0700)
+
+- **عاجل.. الجيش الإسرائيلي: قتلنا هاشم صفي الدين في غارة على الضاحية الجنوبية 
+لبيروت قبل 3 أسابيع**: [Link](https://www.aljazeera.net/news/2024/10/22/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%82%D8%AA%D9%84%D9%86%D8%A7-%D9%87%D8%A7%D8%B4%D9%85-%D8%B5%D9%81%D9%8A)
+- **لبنان.. انتشال جثمان هاشم صفي الدين بالمريجة ومعه 23 شخصا**: [Link](https://www.alarabiya.net/arab-and-world/2024/10/23/%D8%A7%D9%86%D8%AA%D8%B4%D8%A7%D9%84-%D8%AC%D8%AB%D9%85%D8%A7%D9%86-%D9%87%D8%A7%D8%B4%D9%85-%D8%B5%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%B1%D9%8A%D8%AC%D8%A9-%D9%88%D9%85%D8%B9%D9%87-23-%D8%B4%D8%AE%D8%B5%D8%A7)
+- **الجيش الإسرائيلي يؤكد مقتل صفي الدين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF-%D9%85%D9%82%D8%AA%D9%84-%D8%B5%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-1452154.html)
+
+
 ### modric (N/A, Tue, 22 Oct 2024 13:30:00 -0700)
 
 - **Luka Modric may be Real Madrid’s oldest ever player but he’s still got it | 
