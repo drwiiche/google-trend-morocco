@@ -1,3 +1,11 @@
+### nottingham forest (N/A, Mon, 21 Oct 2024 13:50:00 -0700)
+
+- **Nottingham Forest handed triple ban ahead of Crystal Palace and Newcastle 
+United games**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/nottingham-forest-handed-triple-ban-ahead-of-crystal-palace-and-newcastle-united-games-4831091)
+- **The Daily Hilario: Saturday**: [Link](https://weaintgotnohistory.sbnation.com/2024/10/19/24273832/the-daily-hilario-saturday-october-19)
+- **Forest boss Nuno seeks ref fairness ahead Palace clash**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-forest-boss-nuno-seeks-ref-fairness-ahead-palace-clash-2e44fa4e-757c-45a6-8693-f0460c84aadf)
+
+
 ### fethullah gülen (N/A, Tue, 22 Oct 2024 02:10:00 -0700)
 
 - **Kanlı parayı kim yönetecek? FETÖ'de 30 milyar dolar kavgası**: [Link](https://www.ntv.com.tr/galeri/turkiye/kanli-parayi-kim-yonetecek-fetode-30-milyar-dolar-kavgasi,R_am_xS3hUq6MRl6bYEHzg)
