@@ -1,3 +1,50 @@
+### rudiger (N/A, Tue, 22 Oct 2024 14:00:00 -0700)
+
+- **Real Madrid defender open to Saudi Arabia exit with contract talks on the 
+horizon**: [Link](https://www.yardbarker.com/soccer/articles/real_madrid_defender_open_to_saudi_arabia_exit_with_contract_talks_on_the_horizon/s1_15980_41101660)
+- **Real Madrid superstar attracted by the possibility of Saudi switch – report**: [Link](https://madriduniversal.com/real-madrid-superstar-attracted-by-the-possibility-of-saudi-switch-report/)
+- **UEFA Champions League Real Madrid 2 Borussia Dortmund 2 68 minutes played. 
+In progress**: [Link](https://www.bbc.com/sport/football/live/c70zpkxqe87t)
+
+
+### real madrid – borussia dortmund : composition (N/A, Tue, 22 Oct 2024 14:00:00 -0700)
+
+
+
+
+### ballon d'or 2024 (N/A, Tue, 22 Oct 2024 14:00:00 -0700)
+
+- **Ballon d’Or 2024: Aitana Bonmati, Caroline Graham Hansen, Mallory Swanson - 
+Who will win the women’s award?**: [Link](https://www.tntsports.co.uk/football/ballon-d-or/2024/ballon-dor-feminin-bonmati-graham-hansen-swanson_sto20047409/story.shtml)
+- **Is the Ballon d'Or for Hansen? A Lead from Norway**: [Link](https://www.footboom1.com/en/news/football/1972457-is-the-ballon-d-or-for-hansen-a-lead-from-norway)
+- **BBC Women's Footballer of the Year contender Caroline Graham Hansen**: [Link](https://www.bbc.com/sport/football/videos/c2lnyx8gp0xo)
+
+
+### lucas vazquez (N/A, Tue, 22 Oct 2024 13:50:00 -0700)
+
+- **21:00H |18 oct 2024 | ALMUDENA NAVARRO**: [Link](https://www.cadena100.es/programas/almudena-navarro/horas-completas/21-00h-18-oct-2024-almudena-navarro-20241022_126910.html)
+- **Gol de Lucas Vázquez (Real Madrid, 3 - Borussia Dortmund, 2)**: [Link](https://www.cope.es/programas/tiempo-de-juego/audios/gol-lucas-vazquez-real-madrid-3-borussia-dortmund-2-20241022_3032796.html)
+- **Gol de Juanpe (Girona, 2 - Slovan Bratislava, 0)**: [Link](https://www.cope.es/programas/tiempo-de-juego/audios/gol-juanpe-girona-2-slovan-bratislava-0-20241022_3032788.html)
+
+
+### match today (N/A, Tue, 22 Oct 2024 13:50:00 -0700)
+
+- **AA vs WF Dream11 Prediction, Fantasy Cricket Tips, Playing XI, Pitch Report 
+& Injury Updates For 4th Match of The Ford Trophy, 2024**: [Link](https://www.crictracker.com/fantasy-cricket-tips/dream11-aa-vs-wf-dream11-prediction-fantasy-cricket-tips-playing-xi-pitch-report-injury-updates-for-4th-match-of-the-ford-trophy-2024/)
+- **Cricket Betting Tips and Match Predictions: The Ford Trophy 2024 - Match 4, 
+5 and 6 - October 23rd**: [Link](https://www.cricketworld.com/cricket-betting-tips-and-match-predictions-the-ford-trophy-2024-match-4-5-and-6-october-23rd/97803.htm)
+- **AA vs WF Dream11 Prediction Today Match 4 The Ford Trophy OD 2024**: [Link](https://cricketaddictor.com/fantasy-cricket/aa-vs-wf-dream11-prediction-today-match-4-the-ford-trophy-od-2024/)
+
+
+### الرجاء (N/A, Tue, 22 Oct 2024 13:50:00 -0700)
+
+- **3 غيابات في قائمة الرجاء المستدعاة لمباراة الجيش مقابل عودة النجاري وباعدي 
+وحضور رحيمي**: [Link](https://m.elbotola.com/article/2024-10-21-21-07-678.html)
+- **الرجاويين متضامنين مع العسكريين اللي تمنعو من حضور الكلاسيكو: حرية التنقل 
+قضية تجمعنا**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D9%88%D9%8A%D9%8A%D9%86-%D9%85%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D9%85%D8%B9-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D9%84%D9%8A-%D8%AA%D9%85-910996/)
+- **حريمات أبرز غيابات الجيش في كلاسيكو الرجاء**: [Link](https://www.almountakhab.com/node/13205678)
+
+
 ### sports (N/A, Tue, 22 Oct 2024 13:40:00 -0700)
 
 - **Skyhawk Sports Talk: Season 2, Episode 9**: [Link](https://utmsports.com/news/2024/10/21/general-skyhawk-sports-talk-season-2-episode-9.aspx)
