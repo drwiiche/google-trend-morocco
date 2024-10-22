@@ -1,3 +1,11 @@
+### esteghlal – al-nassr fc (N/A, Tue, 22 Oct 2024 08:20:00 -0700)
+
+- **Preview: Esteghlal vs. Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/esteghlal/preview/preview-esteghlal-vs-al-nassr-prediction-team-news-lineups_555982.html)
+- **Asian football federation accused of ‘unequal treatment’ after moving games 
+from Iran - The Athletic**: [Link](https://www.nytimes.com/athletic/5859770/2024/10/21/iran-security-travel-afc-champions-league/)
+- **Pioli: Cristiano Ronaldo is inspiring and facing independence is difficult**: [Link](https://www.ysscores.com/en/news/5808678/Pioli:-Cristiano-Ronaldo-is-inspiring-and-facing-independence-is-difficult)
+
+
 ### elon musk (N/A, Tue, 22 Oct 2024 07:50:00 -0700)
 
 - **Blade Runner 2049 producers sue Elon Musk over cybercab images**: [Link](https://www.bbc.com/news/articles/ce3z37dpvl9o)
