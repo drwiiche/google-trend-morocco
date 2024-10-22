@@ -1,3 +1,26 @@
+### يلا كورة مباريات اليوم (N/A, Tue, 22 Oct 2024 12:20:00 -0700)
+
+- **فيديو: بدرالدين و محمد فؤاد.. إفريقيا كلها فخورة بالمغرب باستثتاء أعداء 
+النجاح**: [Link](https://www.almountakhab.com/node/16205683)
+- **برنامج مباريات المحترفين المغاربة في دوري أبطال آسيا للنخبة**: [Link](https://www.hibasport.com/details-279785.html)
+- **اصحاب الضيافة مرشحون لاكتساح ضيوفهم في الجولة الثالثة من دوري ابطال اوروبا**: [Link](https://www.akhbarak.net/news/details/46708083/3/%D8%A7%D8%B5%D8%AD%D8%A7%D8%A8-%D8%A7%D9%84%D8%B6%D9%8A%D8%A7%D9%81%D8%A9-%D9%85%D8%B1%D8%B4%D8%AD%D9%88%D9%86-%D9%84%D8%A7%D9%83%D8%AA%D8%B3%D8%A7%D8%AD-%D8%B6%D9%8A%D9%88%D9%81%D9%87%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+
+
+### آرسنال ضد شاختار (N/A, Tue, 22 Oct 2024 12:20:00 -0700)
+
+- **أرتيتا: علينا تحويل الألم إلى حافز أمام شاختار**: [Link](https://www.kooora.com/?n=1362748)
+- **بث مباشر لـ مباراة آرسنال وشاختار في دوري أبطال أوروبا**: [Link](https://alhorianews.com/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%80-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%B4%D8%A7%D8%AE%D8%AA%D8%A7%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88/)
+- **بث مباشر ماتش ارسنال اليوم .. جميع القنوات المفتوحة الناقلة لمباراة ارسنال 
+وشاختار اليوم تويتر في دوري ابطال**: [Link](https://real.alsaudinews.com/195548/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A7%D8%AA%D8%B4-%D8%A7%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AC%D9%85%D9%8A%D8%B9-%D8%A7%D9%84%D9%82%D9%86%D9%88/)
+
+
+### psg (N/A, Tue, 22 Oct 2024 11:50:00 -0700)
+
+- **DIRECT. PSG-PSV Eindhoven (Ligue des champions 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/psg-psv-eindhoven-live/668003)
+- **PSG - PSV : les compositions officielles**: [Link](https://www.footmercato.net/a842832632635946065-psg-psv-les-compositions-officielles)
+- **Ligue des champions : PSG, victoire impérative**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-champions/ligue-des-champions-psg-victoire-imperative-20241021)
+
+
 ### arryadia (N/A, Tue, 22 Oct 2024 12:10:00 -0700)
 
 
