@@ -1,3 +1,82 @@
+### botola (N/A, Tue, 22 Oct 2024 13:00:00 -0700)
+
+- **Botola Pro D1 Inwi: Le DHJ bat le MAT**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-dhj-bat-le-mat_YORSMKKT7JGBRARBYBBJIICCMY/)
+- **D1 J7: Le DHJ vainqueur du MAT**: [Link](https://www.lopinion.ma/D1-J7-Le-DHJ-vainqueur-du-MAT_a59319.html)
+- **Botola : le Difaa El Jadida bat le Moghreb Tétouan (1-0)**: [Link](https://www.lesiteinfo.com/sport/630523-botola-le-difaa-el-jadida-bat-le-moghreb-tetouan-1-0.html)
+
+
+### البطولة (N/A, Tue, 22 Oct 2024 13:00:00 -0700)
+
+- **الماص يتصدر مؤقتا والحسنية يهزم تواركة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-%D9%88%D8%A7%D9%84%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D8%AA%D9%88%D8%A7%D8%B1%D9%83-1452042.html)
+- **المغرب الفاسي يطيح بالمحمدية ويرتقي لصدارة الدوري**: [Link](https://m.kooora.com/?n=1363026&pg=1&o=n)
+- **البطولة الإحترافية 1: كونغوليان يقودان حسنية أكادير للفوز على إتحاد تواركة**: [Link](https://www.almountakhab.com/node/13205681)
+
+
+### psv (N/A, Tue, 22 Oct 2024 13:00:00 -0700)
+
+- **Wat blijft er van Paris Saint-Germain over zonder supersterren?**: [Link](https://nos.nl/l/2541674)
+- **Live Champions League | Aftellen naar PSG-PSV, twee goals Reijnders bij 
+Milan**: [Link](https://www.nu.nl/sport/6332633/live-champions-league-aftellen-naar-psg-psv-twee-goals-reijnders-bij-milan.html)
+- **(GRATIS-Live!)*PSG PSV Live Kijken op tv en livestream 22 oktober 2024**: [Link](https://www.justgiving.com/team/psg-v-psv-live-kijken-op-tv)
+
+
+### 0 (N/A, Tue, 22 Oct 2024 13:00:00 -0700)
+
+- **Stephen Brown leads Nymburk past Vechta for 3-0**: [Link](https://www.eurohoops.net/en/fiba-champions-league/1731969/stephen-brown-leads-nymburk-past-vechta-for-3-0/)
+- **Rye Field Hockey Dismantles Henry Hudson 8-0 to Conclude Regular Season**: [Link](https://myrye.com/2024/10/rye-field-hockey-dismantles-henry-hudson-8-0-to-conclude-regular-season/)
+- **Champions League LIVE: Arsenal vs Shakhtar Donetsk, Aston Villa vs Bologna 
+scores, radio & updates**: [Link](https://www.bbc.com/sport/football/live/cdd4q7d6955t)
+
+
+### psg vs (N/A, Tue, 22 Oct 2024 12:50:00 -0700)
+
+- **Champions League Soccer: Livestream Real Madrid vs. Borussia Dortmund From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/champions-league-soccer-livestream-real-madrid-vs-borussia-dortmund-from-anywhere/)
+- **PSV predicted XI v PSG: Jerdy Schouten out, Ivan Perisic ineligible**: [Link](https://www.getfootballnewsfrance.com/2024/psv-predicted-xi-v-psg-jerdy-schouten-out-ivan-perisic-ineligible/)
+- **For us Barça fans... we appreciate the Dutch school**: [Link](https://www.footboom1.com/en/news/football/1968888-for-us-barca-fans-we-appreciate-the-dutch-school)
+
+
+### score live (N/A, Tue, 22 Oct 2024 12:50:00 -0700)
+
+- **How to watch Celtics' banner raising, ring ceremony on Opening Night**: [Link](https://sports.yahoo.com/watch-celtics-banner-raising-ring-154207761.html)
+- **OG Anunoby on making things difficult for Jayson Tatum ahead of 
+Knicks-Celtics matchup | SNY**: [Link](https://bvmsports.com/2024/10/22/og-anunoby-on-making-things-difficult-for-jayson-tatum-ahead-of-knicks-celtics-matchup-sny/)
+- **NBA betting tips today: A preview of the Eastern Conference Finals?**: [Link](https://mrfixitstips.co.uk/nba-betting-tips-today-a-preview-of-the-eastern-conference-finals/)
+
+
+### kooora.com (N/A, Tue, 22 Oct 2024 12:50:00 -0700)
+
+- **فليك: لا أستطيع تغيير ماضي برشلونة مع بايرن**: [Link](https://www.kooora.com/?n=1362961)
+- **صورة.. رسالة مولر لـ فليك قبل مواجهة البايرن وبرشلونة**: [Link](https://hihi2.com/2024/10/22/p2901948.html)
+- **موعد مباراة برشلونة ضد بايرن ميونخ بدوري أبطال أوروبا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/10/22/barcelona-bayern-munich)
+
+
+### raja vs (N/A, Tue, 22 Oct 2024 12:50:00 -0700)
+
+- **Ex-Pakistan Skipper Mohammad Hafeez Drops 'PR Agencies' Bombshell After 
+Massive Win Against England**: [Link](https://sports.ndtv.com/cricket/ex-pakistan-skipper-mohammad-hafeez-drops-pr-agencies-bombshell-after-massive-win-vs-england-6819568)
+- **Pakistan cricket needs impactful performances not PR agencies, says Hafeez**: [Link](https://www.geosuper.tv/latest/39614-pakistan-cricket-needs-impactful-performances-not-pr-agencies-says-hafeez)
+- **Mohammad Amir defends Babar Azam amidst criticism following Test victory**: [Link](https://english.aaj.tv/news/330384963/mohammad-amir-defends-babar-azam-amidst-criticism-following-test-victory)
+
+
+### koo (N/A, Tue, 22 Oct 2024 12:50:00 -0700)
+
+- **'Nama cimaafi marataa ta'uu koo waan beekuf pirezidaantin Chaayinaa na 
+kabaja' - Tiraamp**: [Link](https://www.bbc.com/afaanoromoo/articles/c3e9g7713p1o)
+- **INEOS contemplating keeping Erik ten Hag at the helm till the end of the 
+season after impressive Brentford win**: [Link](https://thepeoplesperson.com/2024/10/21/ineos-contemplating-keeping-erik-ten-hag-at-the-helm-till-the-end-of-the-season-after-impressive-brentford-win-286727/)
+- **'Discontent at Old Trafford' - United Rep Speaks Out on Slow Season Start**: [Link](https://www.footboom1.com/en/news/football/1972979-discontent-at-old-trafford-united-rep-speaks-out-on-slow-season-start)
+
+
+### bet 365 (N/A, Tue, 22 Oct 2024 12:50:00 -0700)
+
+- **bet365 Bonus Code POSTNEWS: Unlock $200 in bonus bets or $1,000 first bet 
+offer for 'Monday Night Football' double-feature**: [Link](https://nypost.com/2024/10/21/betting/bet365-bonus-code-postnews-unlock-200-in-bonus-bets-or-1000-first-bet-offer-for-monday-night-football-double-feature/)
+- **New Bet365 Bonus Code “SYRACUSE”: Upgraded $1.2K betting bonus for Monday 
+Night Football tonight**: [Link](https://www.syracuse.com/betting/2024/10/new-bet365-bonus-code-unlocks-200-sports-betting-deal-for-monday-odds.html)
+- **Bet365 NFL bonus code PWEVG guarantees $200 bonus: Chargers vs Cardinals**: [Link](https://www.pickswise.com/news/bet365-nfl-bonus-code-pwevg-guarantees-200-bonus-chargers-vs-cardinals/)
+
+
 ### yalla kora (N/A, Tue, 22 Oct 2024 12:40:00 -0700)
 
 - **كووورة يكشف كواليس التحقيق مع ثلاثي الزمالك**: [Link](https://www.kooora.com/?n=1362946)
