@@ -1,3 +1,42 @@
+### harry kane (N/A, Wed, 23 Oct 2024 12:20:00 -0700)
+
+- **EXCLUSIVE: Hamann backs Bayern's Kane to break trophy curse under Kompany's 
+guidance**: [Link](https://www.flashscore.com/news/soccer-champions-league-exclusive-hamann-backs-bayern-s-kane-to-break-trophy-curse-under-kompany-s-guidance/SUWSM7Xj/)
+- **Barcelona v Bayern Munich live - UEFA Champions League latest as Hansi 
+Flick faces former club**: [Link](https://www.tntsports.co.uk/football/champions-league/2024-2025/live-fc-barcelona-fc-bayern-munich_mtc1525255/live-commentary.shtml)
+- **Barcelona vs Bayern Brawl: When, How to Watch the Game**: [Link](https://www.moroccoworldnews.com/2024/10/365904/barcelona-vs-bayern-brawl-when-how-to-watch-the-game)
+
+
+### yallakora (N/A, Wed, 23 Oct 2024 12:20:00 -0700)
+
+- **صلاح ونونيز في هجوم ليفربول أمام لايبزيج**: [Link](https://m.kooora.com/?n=1363283&o=n26971)
+- **طيف كلوب يخيم على مواجهة ليفربول ولايبزيغ في أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2024/10/22/klopp-liverpool-leipzigfc-champions-league)
+- **تشكيلة ليفربول و لايبزيج في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/10/23/p2903575.html)
+
+
+### match live (N/A, Wed, 23 Oct 2024 12:20:00 -0700)
+
+- **Vinícius on Madrid future: Want to stay 'forever'**: [Link](https://www.espn.com/soccer/story/_/id/41956500/vinicius-jr-real-madrid-future-want-stay-forever)
+- **Champions League briefing: Has Vinicius Jr sealed the Ballon d’Or? Plus a 
+Pulisic olimpico**: [Link](https://www.nytimes.com/athletic/5864095/2024/10/22/vinicius-jr-ballon-dor-goal/)
+- **Real Madrid 5-2 Borussia Dortmund: Three Takeaways from collapse at the 
+Bernabeu**: [Link](https://bvbbuzz.com/real-madrid-5-2-borussia-dortmund-three-takeaways-collapse)
+
+
+### match (N/A, Wed, 23 Oct 2024 12:20:00 -0700)
+
+
+
+
+### live tv (N/A, Wed, 23 Oct 2024 12:20:00 -0700)
+
+- **Starting 5, Oct. 22: Bucks vs. 76ers, Clippers vs. Suns mark ESPN 
+doubleheader**: [Link](https://www.nba.com/news/starting-5-espn-doubleheader-oct-22)
+- **Joel Embiid and Paul George-less Sixers a 3.5-Point Underdog in Season 
+Opener Against Bucks**: [Link](https://www.crossingbroad.com/2024/10/joel-embiid-and-paul-george-less-sixers-a-3-5-point-underdog-in-season-opener-against-bucks.html)
+- **NBA Odds, Picks & Predictions: Wednesday (10/23)**: [Link](https://www.bettingpros.com/articles/nba-odds-picks-predictions-wednesday-10-23/)
+
+
 ### raphinha (N/A, Wed, 23 Oct 2024 12:10:00 -0700)
 
 - **Raphinha: The Most Underrated Gem**: [Link](https://www.footboom1.com/en/news/football/1977241-raphinha-the-most-underrated-gem)
