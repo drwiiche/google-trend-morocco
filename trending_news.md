@@ -1,3 +1,12 @@
+### rafinha (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
+
+- **Raphinha: Williams Barça shirts were disrespectful**: [Link](https://www.espn.com/soccer/story/_/id/41940843/nico-williams-barcelona-shirts-showed-disrespect-raphinha)
+- **Barcelona’s Raphinha addresses ‘disrespectful’ reaction following Nico 
+Williams saga - The Athletic**: [Link](https://www.nytimes.com/athletic/5863165/2024/10/22/raphinha-nico-williams-barcelona/)
+- **Raphinha hits out at ‘lack of respect’ over fan gesture with Nico Williams 
+Barcelona shirt**: [Link](https://www.barcablaugranes.com/2024/10/22/24276680/raphinha-hits-out-at-lack-of-respect-over-fan-gesture-with-nico-williams-barcelona-shirt)
+
+
 ### ترتيبات دوري أبطال أوروبا (N/A, Wed, 23 Oct 2024 14:20:00 -0700)
 
 - **بالصور: لدغة تورام تنقذ إنتر ميلان من فخ يونج بويز**: [Link](https://www.kooora.com/?n=1363328)
