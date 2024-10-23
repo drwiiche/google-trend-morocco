@@ -1,3 +1,29 @@
+### أتلتيكو مدريد ضد ليل (N/A, Wed, 23 Oct 2024 11:30:00 -0700)
+
+- **رقم قياسي غير معتاد في مباراة أتلتيكو مدريد وليل**: [Link](https://www.kooora.com/?n=1363015&o=nces)
+- **سيميوني يؤكد سعيه لتطوير أداء أتليتيكو مدريد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF-%D8%B3%D8%B9%D9%8A%D9%87-%D9%84%D8%AA%D8%B7%D9%88%D9%8A%D8%B1-%D8%A3%D8%AF%D8%A7%D8%A1-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2024-10-22)
+- **تشكيلة أتلتيكو مدريد المتوقعة أمام ليل بدوري الأبطال**: [Link](https://hihi2.com/2024/10/23/p2902651.html)
+
+
+### alerte enlevement santiago pourquoi (N/A, Wed, 23 Oct 2024 11:30:00 -0700)
+
+- **Nourrisson enlevé dans une maternité : la voiture des parents retrouvée à 
+Charleroi, en Belgique**: [Link](https://www.lemonde.fr/societe/article/2024/10/23/nourrisson-enleve-dans-une-maternite-la-voiture-des-parents-retrouvee-a-charleroi-en-belgique_6358706_3224.html)
+- **Nourrisson enlevé à Aulnay-sous-Bois : la situation de Santiago est 
+"dramatique", estime un pédiatre**: [Link](https://www.francetvinfo.fr/faits-divers/enlevements/nourrisson-enleve-a-aulnay-sous-bois-la-situation-de-santiago-est-dramatique-estime-un-pediatre_6853778.html)
+- **Santiago: pourquoi l’alerte enlèvement est-elle levée alors que le 
+nourrisson n'a pas été retrouvé?**: [Link](https://www.bfmtv.com/paris/santiago-pourquoi-l-alerte-enlevement-est-elle-levee-alors-que-le-nourrisson-n-a-pas-ete-retrouve_AV-202410220960.html)
+
+
+### bayer leverkusen (N/A, Wed, 23 Oct 2024 11:10:00 -0700)
+
+- **Brest hält gegen Leverkusen ein Unentschieden**: [Link](https://www.koha.net/de/futboll/bresti-po-e-ndal-ne-barazim-leverkusenin)
+- **Stade Brest vs. Bayer Leverkusen heute live: Champions League im TV, 
+Livestream und Liveticker**: [Link](https://www.ran.de/sports/fussball/champions-league/news/stade-brest-vs-bayer-leverkusen-heute-live-champions-league-im-tv-livestream-und-liveticker-halbzeit11-449804)
+- **Satter Volley aus 16 Metern: Lees-Melou antwortet auf Wirtz | Match-Clip 
+Champions League | Video**: [Link](https://www.kicker.de/satter-volley-aus-16-metern-lees-melou-antwortet-auf-wirtz-1061782/video)
+
+
 ### barcelone – bayern (N/A, Wed, 23 Oct 2024 11:10:00 -0700)
 
 - **Barcelona vs Bayern Brawl: When, How to Watch the Game**: [Link](https://www.moroccoworldnews.com/2024/10/365904/barcelona-vs-bayern-brawl-when-how-to-watch-the-game)
