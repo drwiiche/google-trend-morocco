@@ -1,3 +1,10 @@
+### هسبريس (N/A, Tue, 22 Oct 2024 22:50:00 -0700)
+
+- **ابتدائية الرباط تؤجل جلسات محاكمة "طلبة الطب" إلى شهر نونبر المقبل**: [Link](https://www.hespress.com/%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%AA%D8%A4%D8%AC%D9%84-%D8%AC%D9%84%D8%B3%D8%A7%D8%AA-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D8%B7%D9%84%D8%A8-1452431.html)
+- **الصمدي يكشف 8 إجراءات جديدة في الدخول الجامعي المقبل**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B5%D9%85%D8%AF%D9%8A-%D9%8A%D9%83%D8%B0%D9%91%D8%A8-%D9%85%D9%8A%D8%B1%D8%A7%D9%88%D9%8A-%D9%84%D9%85-%D9%8A%D8%AA%D9%85-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%B9%D9%84%D9%89/)
+- **"بووانو" عن أزمة كليات الطب : يستوجب أن نستقيل حينما نفشل في حل ملف ما**: [Link](https://ar.hibapress.com/details-565196.html)
+
+
 ### bayern munich (N/A, Wed, 23 Oct 2024 05:50:00 -0700)
 
 - **Betfair welcome offer: Get 50/1 on A goal to be Scored in Barcelona v 
