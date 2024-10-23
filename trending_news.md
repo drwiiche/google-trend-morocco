@@ -1,3 +1,19 @@
+### wac (N/A, Wed, 23 Oct 2024 09:40:00 -0700)
+
+- **CV frosh football team improves to 8-0, 5-0 in WAC**: [Link](https://www.cerescourier.com/sports/high-school-sports/cv-frosh-football-team-improves-to-8-0-5-0-in-wac/)
+- **This Week In WAC Men's Soccer - Oct. 23**: [Link](http://wacsports.com/news/2024/10/23/this-week-in-wac-mens-soccer-oct-23.aspx)
+- **University Credit Union WAC Men’s Soccer Players Of The Week Announced**: [Link](https://wacsports.com/news/2024/10/14/soccer-m-university-credit-union-wac-mens-soccer-players-of-the-week-announced.aspx)
+
+
+### wydad (N/A, Wed, 23 Oct 2024 09:40:00 -0700)
+
+- **“Quand on joue hors Alger, c’est exactement comme en Afrique” : le dérapage 
+de Beaumelle**: [Link](https://fennecfootball.com/quand-on-joue-hors-alger-cest-exactement-comme-en-afrique-le-derapage-de-beaumelle/)
+- **Ligue 1 (J5) : Gros défi pour Slimani et son club**: [Link](https://www.dzfoot.com/football-en-algerie/ligue-1-j5-un-derby-algerois-a-laffiche-aujourdhui-266846.html)
+- **Football | Meknès - Wydad Casablanca : Chaîne/streaming et où voir le match 
+à quelle heure en France ?**: [Link](https://www.mediasportif.fr/2024/10/23/football-meknes-wydad-casablanca-chaine-streaming-et-ou-voir-le-match-a-quelle-heure-en-france/)
+
+
 ### atalanta – celtic glasgow (N/A, Wed, 23 Oct 2024 09:10:00 -0700)
 
 - **Massimo Donati: Celtic should have no fear against Atalanta in Champions 
