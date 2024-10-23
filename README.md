@@ -1,3 +1,50 @@
+### ترتيب دوري ابطال اوروبا (N/A, Wed, 23 Oct 2024 14:00:00 -0700)
+
+- **بالفيديو.. ريمونتادا تقود ريال مدريد لفوز مجنون وفوز أول لميلان وثان لأرسنال**: [Link](https://www.aljazeera.net/sport/2024/10/23/real-madrid-vinicius-junior)
+- **عصبة أبطال أوروبا (الجولة 3): برنامج الأربعاء**: [Link](https://www.almountakhab.com/node/13205701)
+- **جدول ترتيب دوري أبطال أوروبا بنظامه الجديد.. مفاجأة في الصدارة**: [Link](https://www.almasryalyoum.com/news/details/3289951)
+
+
+### ترتيب دوري أبطال أوروبا (N/A, Wed, 23 Oct 2024 13:50:00 -0700)
+
+- **فينيسيوس: هذا ما قاله أنشيلوتي لتحقيق الريمونتادا ضد دورتموند**: [Link](https://www.kooora.com/?n=1363105)
+- **تعليق بنزيما على منشور فينيسيوس بعد الفوز على دورتموند**: [Link](https://hihi2.com/2024/10/23/p2902359.html)
+- **دوري الأبطال/ ر.مدريد يكتسح ب.دورتموند (5-2) وأرسنال يهزم شاختار دونيتسك 
+(1-0) وجيرونا يتغلب على سلافيا براتيسلافا (2-0)**: [Link](https://m.elbotola.com/article/2024-10-22-21-01-141.html)
+
+
+### gavi (N/A, Wed, 23 Oct 2024 13:50:00 -0700)
+
+- **La playlist de Gavi con Queen, Police y Jackson que bate récords**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241022/1002337849/playlist-gavi-queen-police-jackson.html)
+- **Jugador del Barcelona confesó que escucha Guns N’ Roses y Queen para 
+curarse de grave lesión**: [Link](https://www.radioacktiva.com/2024/jugador-del-barcelona-confeso-que-escucha-guns-n-roses-y-queen-para-curarse-de-grave-lesion-357723.html)
+- **Hansi Flick nunca tiene bastante**: [Link](https://www.marca.com/futbol/barcelona/2024/10/21/hansi-flick-nunca.html)
+
+
+### real madrid vs barcelona (N/A, Wed, 23 Oct 2024 13:50:00 -0700)
+
+- **Courtois también se pierde el Clásico**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/23/courtois-pierde-clasico.html)
+- **Rodrygo sufrió un pinchazo en los isquiotibiales y será sometido a pruebas**: [Link](https://as.com/futbol/champions/rodrygo-sufrio-un-pinchazo-en-los-isquiotibiales-y-sera-sometido-a-pruebas-n/)
+- **Ancelotti ya tiene su alineación para el Clásico tras el K.O de Courtois y 
+Rodrygo**: [Link](https://www.defensacentral.com/real_madrid/1709329169-ancelotti-ya-tiene-su-alineacion-para-el-clasico-tras-el-ko-de-courtois-y-rodrygo)
+
+
+### classement champions league (N/A, Wed, 23 Oct 2024 13:30:00 -0700)
+
+- **Ligue des champions I J3 - Même face au Bayer Leverkusen, Brest 
+impressionne : "On a été loin d’être ridicules"**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-i-j3-meme-face-au-bayer-leverkusen-brest-impressionne-on-a-ete-loin-detre-ridicu_sto10376593/story.shtml)
+- **Brest 1-1 Bayer Leverkusen, Ligue des champions : résumé du match 
+(23/10/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/brest-bayer-leverkusen-live/668007)
+- **EN DIRECT Brest - Bayer Leverkusen : Gros soleil et ambiance de feu pour po…**: [Link](https://www.20minutes.fr/sport/football/ligue_des_champions/4117201-20241023-brest-bayer-leverkusen-direct-brestois-plus-exploit-pres-suivez-match-ligue-champions-18h15)
+
+
+### رافينيا دياز (N/A, Wed, 23 Oct 2024 13:20:00 -0700)
+
+- **إحصائيات رافينيا أمام البايرن**: [Link](https://hihi2.com/2024/10/24/p2904007.html)
+- **مباشر مباراة برشلونة ضد بايرن ميونخ (4-1) في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/23/barcelona-v-bayern-munich)
+- **ترتيب دوري أبطال أوروبا بعد فوز برشلونة على البايرن**: [Link](https://hihi2.com/2024/10/23/p2904000.html)
+
+
 ### kooora (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
 
 - **إصابة رودريجو تضع أنشيلوتي أمام 3 خيارات في الكلاسيكو**: [Link](https://www.kooora.com/?n=1363237)
