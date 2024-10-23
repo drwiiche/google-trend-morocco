@@ -1,3 +1,11 @@
+### brest – leverkusen (N/A, Wed, 23 Oct 2024 09:00:00 -0700)
+
+- **Preview: Brest vs. Bayer Leverkusen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/brest/champions-league/preview/preview-brest-vs-bpoint-leverkusen-prediction-team-news-lineups_556019.html)
+- **Any Other Bets: Champions League and EFL for Wednesday 23 October**: [Link](https://www.sportinglife.com/football/news/any-other-bets-champions-league-and-efl-for-wednesday-23-october/221283)
+- **Champions League: Brest go from amateur football to Real Madrid date in 
+Europe**: [Link](https://www.bbc.com/sport/football/articles/c2lnl2d87rvo)
+
+
 ### galatasaray (N/A, Wed, 23 Oct 2024 07:30:00 -0700)
 
 - **Galatasaray, Avrupa'da 321. maçına çıkacak**: [Link](https://www.gunes.com/spor/elfsborg-karsilasmasi-galatasaray-avrupada-321-macina-cikacak-1213039)
