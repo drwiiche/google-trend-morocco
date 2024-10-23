@@ -1,3 +1,10 @@
+### cuba (N/A, Tue, 22 Oct 2024 22:50:00 -0700)
+
+- **Six Dead, Oscar Worsens Cuba Energy Crisis**: [Link](https://weather.com/storms/hurricane/video/hurricane-oscar-cuba-power-outages-energy-crisis-fuel-damage)
+- **Record rainfall accumulations in 48 hours in Guantánamo.**: [Link](https://en.cibercuba.com/noticias/2024-10-23-u1-e199894-s27061-nid290653-record-acumulados-lluvias-48-horas-guantanamo)
+- **Impact of hurricane Oscar on banana and tomato crops in Guantánamo**: [Link](https://www.freshplaza.com/north-america/article/9670874/impact-of-hurricane-oscar-on-banana-and-tomato-crops-in-guantanamo/)
+
+
 ### اخبارنا (N/A, Tue, 22 Oct 2024 23:10:00 -0700)
 
 - **"جمعية الصحفيين الإماراتية" تطلق استراتيجيتها للأعوام 2025-2028**: [Link](https://www.emaratalyoum.com/life/culture/2024-10-23-1.1891684)
