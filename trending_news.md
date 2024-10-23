@@ -1,3 +1,10 @@
+### classico (N/A, Tue, 22 Oct 2024 14:10:00 -0700)
+
+- **Ten iconic moments in the history of El Classico**: [Link](https://supersport.com/football/spain/news/15d8f84c-ee92-436e-9f2b-66061ed65ece/ten-iconic-moments-in-the-history-of-el-classico)
+- **The history of ELCLASICO, decade by decade**: [Link](https://supersport.com/football/spain/news/4112bca1-65f4-40b5-9da2-d48701d5385f/the-history-of-elclasico-decade-by-decade)
+- **10 iconic moments in the history of ELCLASICO**: [Link](https://supersport.com/football/spain/news/15d8f84c-ee92-436e-9f2b-66061ed65ece/10-iconic-moments-in-the-history-of-elclasico)
+
+
 ### vladimir poutine (N/A, Tue, 22 Oct 2024 22:30:00 -0700)
 
 - **Poutine, Xi et la volonté de domination du monde**: [Link](https://www.journaldemontreal.com/2024/10/21/poutine-xi-et-la-volonte-de-domination-du-monde)
