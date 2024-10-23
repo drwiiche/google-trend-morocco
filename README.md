@@ -1,3 +1,11 @@
+### nba (N/A, Tue, 22 Oct 2024 16:40:00 -0700)
+
+- **NBA sportsbook promos: ESPN BET, bet365 lead options for opening night**: [Link](https://www.ajc.com/sports-betting/nba-sportsbook-promos-espn-bet-bet365-lead-options-for-opening-night/CYVNZRY6SBHMNAYBYGESG7MMOU/)
+- **BetMGM Bonus Code NYP250: Unlock $100 in four states for Knicks-Celtics, 
+three more offers live elsewhere**: [Link](https://nypost.com/2024/10/22/betting/betmgm-bonus-code-nyp250-unlock-100-in-four-states-for-knicks-celtics-three-more-offers-live-elsewhere/)
+- **ESPN BET promo code AMNY activates $1K first bet reset for Knicks-Celtics**: [Link](https://metrophiladelphia.com/espn-bet-promo-code-nba-knicks-celtics/)
+
+
 ### ترتيب الدوري المغربي (N/A, Tue, 22 Oct 2024 14:30:00 -0700)
 
 - **الماص يتصدر مؤقتا والحسنية يهزم تواركة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-%D9%88%D8%A7%D9%84%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D8%AA%D9%88%D8%A7%D8%B1%D9%83-1452042.html)
