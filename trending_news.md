@@ -1,3 +1,11 @@
+### vladimir poutine (N/A, Tue, 22 Oct 2024 22:30:00 -0700)
+
+- **Poutine, Xi et la volonté de domination du monde**: [Link](https://www.journaldemontreal.com/2024/10/21/poutine-xi-et-la-volonte-de-domination-du-monde)
+- **Les chemins de fer russes augmentent le transport de marchandises avec la 
+Chine de 15,7 % en 9 mois**: [Link](http://bamada.net/les-chemins-de-fer-russes-augmentent-le-transport-de-marchandises-avec-la-chine-de-157-en-9-mois)
+- **La Chine dépasse l’Europe en tant que premier marché pour le gaz russe**: [Link](https://www.leconomistemaghrebin.com/2024/10/22/chine-depasse-europe-premier-marche-gaz-russe/)
+
+
 ### botola pro (N/A, Tue, 22 Oct 2024 14:40:00 -0700)
 
 
