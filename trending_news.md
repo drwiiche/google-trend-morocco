@@ -1,3 +1,13 @@
+### miraoui (N/A, Wed, 23 Oct 2024 04:00:00 -0700)
+
+- **Grève des étudiants en médecine: Abdellatif Miraoui lâché par les députés 
+de la majorité**: [Link](https://fr.le360.ma/politique/greve-des-etudiants-en-medecine-abdellatif-miraoui-lache-par-les-deputes-de-la-majorite_4RPE5SI2ENDTZO7EOUV6P5CYV4/)
+- **Médecine : Après 300 jours de boycott, les étudiants maintiennent la 
+pression**: [Link](https://fr.hespress.com/391878-medecine-apres-300-jours-de-boycott-les-etudiants-maintiennent-la-pression.html)
+- **Les hôpitaux et CHU de nouveau paralysés par la grève des médecins internes 
+et résidants**: [Link](https://lematin.ma/nation/les-hopitaux-et-chu-de-nouveau-paralyses-par-la-greve-des-medecins-internes/248053)
+
+
 ### فيفي عبده (N/A, Wed, 23 Oct 2024 01:40:00 -0700)
 
 - **بالحجاب وبدون مكياج.. فيفي عبده توجه رسالة لأهل لبنان وغزة**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/10/21/%D8%A8%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%A8-%D9%88%D8%A8%D8%AF%D9%88%D9%86-%D9%85%D8%B3%D8%A7%D8%AD%D9%8A%D9%82-%D9%81%D9%8A%D9%81%D9%8A-%D8%B9%D8%A8%D8%AF%D9%87-%D8%AA%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%84%D8%A3%D9%87%D9%84-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D9%88%D8%BA%D8%B2%D8%A9)
