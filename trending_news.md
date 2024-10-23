@@ -1,3 +1,10 @@
+### barca vs real (N/A, Wed, 23 Oct 2024 13:30:00 -0700)
+
+- **Real Madrid: Injuries to Courtois and Rodrygo Ahead of Clasico**: [Link](https://al24news.com/en/real-madrid-injuries-to-courtois-and-rodrygo-ahead-of-clasico/)
+- **Who will take Rodrygo's place for El Clásico?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/who-will-take-rodrygo-s-place-for-el-cl%C3%A1sico-2024-10-23)
+- **Courtois Sustains Injury: Lunin Could Feature Against Barcelona**: [Link](https://www.footboom1.com/en/news/football/1978558-courtois-sustains-injury-lunin-could-feature-against-barcelona)
+
+
 ### benfica (N/A, Wed, 23 Oct 2024 13:20:00 -0700)
 
 - **Benfica-Feyenoord: águias ao ataque do topo da Champions**: [Link](https://www.abola.pt/futebol/jogo/benfica-feyenoord-4427101/benfica-feyenoord-acompanhe-em-direto)
