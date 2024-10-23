@@ -1,3 +1,20 @@
+### olmo (N/A, Wed, 23 Oct 2024 14:20:00 -0700)
+
+- **Dani Olmo talks his move to Barcelona, Pedri, Yamal, Raphinha, and Flick in 
+latest interview**: [Link](https://sports.yahoo.com/dani-olmo-talks-move-barcelona-080100668.html)
+- **Dani Olmo explains how Raphinha is inspiring Hansi Flick’s Barcelona team**: [Link](https://www.barcablaugranes.com/2024/10/23/24276543/dani-olmo-explains-how-raphinha-is-inspiring-hansi-flicks-barcelona-team)
+- **Demanding FC Barcelona Star Olmo: ‘I Haven’t Done Anything Yet’**: [Link](https://www.forbes.com/sites/tomsanderson/2024/10/22/demanding-fc-barcelona-star-olmo-i-havent-done-anything-yet/)
+
+
+### vincent kompany (N/A, Wed, 23 Oct 2024 13:20:00 -0700)
+
+- **Bayern Munich Pays Tribute to Barcelona's "La Masia"**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles-video/bayern-munich-pays-tribute-to-barcelona-s-la-masia-2024-10-21)
+- **Champions League: He’ll be the best in football history – Kompany hails 
+Barcelona star**: [Link](https://dailypost.ng/2024/10/23/champions-league-hell-be-the-best-in-football-history-kompany-hails-barcelona-star/)
+- **Kompany: This is my opinion on Yamal and Kubarsi, and tomorrow's match will 
+be exciting**: [Link](https://www.ysscores.com/en/news/5861488/Kompany:-This-is-my-opinion-on-Yamal-and-Kubarsi,-and-tomorrow's-match-will-be-exciting)
+
+
 ### nouveaux ministres maroc (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
 
 - **Voici la liste officielle des ministres du gouvernement Akhannouch II**: [Link](https://mobile.telquel.ma/instant-t/2024/10/23/voici-la-liste-officielle-des-ministres-du-gouvernement-akhannouch-ii_1900366/)
