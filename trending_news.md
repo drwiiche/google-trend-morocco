@@ -1,3 +1,10 @@
+### التعديل الحكومي المغرب (N/A, Tue, 22 Oct 2024 23:50:00 -0700)
+
+- **جدول أعمال مجلس الحكومة الخميس**: [Link](https://www.hespress.com/%D8%AC%D8%AF%D9%88%D9%84-%D8%A3%D8%B9%D9%85%D8%A7%D9%84-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-1452406.html)
+- **فشل الوزيرين ”ميراوي“ و”مزور“ يُعجل بخروجهما من الحكومة**: [Link](https://ar.hibapress.com/details-565228.html)
+- **عبد الجليل وزير النقل طار من الحكومة.. غاب عن افتتاح مؤتمر دولي بطنجة**: [Link](https://rue20.com/848242.html)
+
+
 ### galatasaray – elfsborg (N/A, Wed, 23 Oct 2024 06:40:00 -0700)
 
 - **How to Watch UEFA Europa League: Soccer Streaming Live in the US - 
