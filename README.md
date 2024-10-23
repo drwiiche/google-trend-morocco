@@ -1,3 +1,34 @@
+### برشلونة (N/A, Wed, 23 Oct 2024 11:00:00 -0700)
+
+- **ريال مدريد يعلن إصابة كورتوا قبل الكلاسيكو**: [Link](https://www.kooora.com/?n=1363178)
+- **أول ظهور لـ رودريجو بعد إصابته.. صورة**: [Link](https://hihi2.com/2024/10/23/p2903344.html)
+- **التقرير الطبي لكورتوا**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/medical-reports/parte-medico-de-courtois-23-10-2024)
+
+
+### fc barcelone (N/A, Wed, 23 Oct 2024 11:00:00 -0700)
+
+- **Match spectaculaire entre Barça et le Bayern**: [Link](https://www.footmercato.net/a1233908269804788620-match-spectaculaire-entre-barca-et-le-bayern)
+- **Ligue des champions - 3e journée - Hansi Flick (FC Barcelone) retrouve le 
+Bayern pour un choc explosif**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-3e-journee-hansi-flick-fc-barcelone-retrouve-le-bayern-pour-un-choc-explosif_sto10375158/story.shtml)
+- **FC Barcelone-Bayern Munich : Adam Aznou dans la liste des convoqués**: [Link](https://www.lesiteinfo.com/sport/630512-fc-barcelone-bayern-munich-adam-aznou-dans-la-liste-des-convoques.html)
+
+
+### barca (N/A, Wed, 23 Oct 2024 10:50:00 -0700)
+
+- **Barcelona vs Bayern Brawl: When, How to Watch the Game**: [Link](https://www.moroccoworldnews.com/2024/10/365904/barcelona-vs-bayern-brawl-when-how-to-watch-the-game)
+- **Preview: Hansi Flick faces former club as Barca and Bayern go head-to-head**: [Link](https://www.fotmob.com/topnews/15726-preview-hansi-flick-faces-former-club-barca-bayern-go-head-head?utm_source=fotmob)
+- **LIVE: Barcelona vs Bayern Munich – UEFA Champions League football**: [Link](https://www.aljazeera.com/sports/liveblog/2024/10/23/live-barcelona-vs-bayern-munich-uefa-champions-league-football)
+
+
+### التعديل الحكومي 2024 (N/A, Wed, 23 Oct 2024 10:10:00 -0700)
+
+- **أخنوش يؤكد زيادة حصة الجماعات من مداخيل الضريبة على القيمة المضافة**: [Link](https://www.hespress.com/%D8%A3%D8%AE%D9%86%D9%88%D8%B4-%D9%8A%D8%A4%D9%83%D8%AF-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%AD%D8%B5%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D9%85%D8%AF%D8%A7%D8%AE%D9%8A-1452295.html)
+- **تأجيل التعديل الحكومي يربك اجتماع الأغلبية وهذه أبرز الأسماء المرشحة 
+للاستوزار – اليوم 24**: [Link](https://alyaoum24.com/1924748.html)
+- **أخنوش: رفعنا حصة الجماعات الترابية من مداخيل الضريبة على القيمة المضافة إلى 
+32%**: [Link](https://ar.hibapress.com/details-565345.html)
+
+
 ### remaniement ministériel maroc (N/A, Wed, 23 Oct 2024 09:40:00 -0700)
 
 - **Remaniement: le Roi reçoit les membres du nouveau gouvernement Akhannouch**: [Link](https://fr.le360.ma/politique/remaniement-le-roi-recoit-les-membres-du-nouveau-gouvernement-akhannouch-dans-sa-nouvelle-mouture_PANRKVHOJRENRBZPIECVRTP6WY/)
