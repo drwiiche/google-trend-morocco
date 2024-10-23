@@ -1,3 +1,10 @@
+### visite emmanuel macron maroc (N/A, Tue, 22 Oct 2024 22:50:00 -0700)
+
+- **Les moments forts de la visite d’État d’Emmanuel Macron au Maroc**: [Link](https://fr.le360.ma/politique/les-moments-forts-de-la-visite-detat-demmanuel-macron-au-maroc_BFB4BCWYJNA6BAWEU5YZXSMVWY/)
+- **Emmanuel Macron en visite d'État au Maroc du 28 au 30 octobre**: [Link](https://www.france24.com/fr/info-en-continu/20241021-%F0%9F%94%B4-le-pr%C3%A9sident-emmanuel-macron-effectuera-une-visite-d-%C3%A9tat-au-maroc-du-28-au-30-octobre)
+- **Diplomatie Rabat-Paris : Samira Sitaïl, le verbe haut**: [Link](https://www.forbes.fr/business/diplomatie-rabat-paris-samira-sitail-le-verbe-haut/)
+
+
 ### hihi2 (N/A, Tue, 22 Oct 2024 14:40:00 -0700)
 
 
