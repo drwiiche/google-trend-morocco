@@ -1,3 +1,29 @@
+### barsa (N/A, Wed, 23 Oct 2024 12:40:00 -0700)
+
+- **Lucha de fanáticos previo al Barça vs. Bayern Múnich en Champions**: [Link](https://www.tudn.com/futbol/uefa-champions-league/barcelona-vs-bayern-munich-lucha-fanaticos-montjuic-previo-champions-league)
+- **Vergonzoso: insultos a Vinicius de aficionados culés antes del Barça – 
+Bayern**: [Link](https://www.defensacentral.com/real_madrid/1709329193-vergonzoso-insultos-a-vinicius-de-aficionados-cules-antes-del-barca-bayern)
+- **El mensaje de Garrido a los ultras del FC Barcelona: "Que no se preocupen 
+que no les vamos a echar de menos"**: [Link](https://cadenaser.com/nacional/2024/10/23/el-mensaje-de-garrido-a-los-ultras-del-fc-barcelona-que-no-se-preocupen-que-no-les-vamos-a-echar-de-menos-cadena-ser/)
+
+
+### zinédine zidane (N/A, Wed, 23 Oct 2024 12:40:00 -0700)
+
+- **Football: The Wild Rumor Sending Zinédine Zidane to Saudi Arabia**: [Link](https://www.footboom1.com/en/news/football/1977235-football-the-wild-rumor-sending-zinedine-zidane-to-saudi-arabia)
+- **Al-Mashal: We have not seen the Saudi national team in this situation**: [Link](https://www.ysscores.com/en/news/5521156/Al-Mashal:-We-have-not-seen-the-Saudi-national-team-in-this-situation)
+- **Roberto Mancini 'facing sack in Saudi Arabia' after kicking off with 
+homegrown players**: [Link](https://www.express.co.uk/sport/football/1964196/roberto-mancini-facing-sack-saudi)
+
+
+### ucl (N/A, Wed, 23 Oct 2024 12:30:00 -0700)
+
+- **UEFA Champions League Atalanta 0 Celtic 0 5 minutes played. In progress**: [Link](https://www.bbc.com/sport/football/live/c70z2qy2eeet)
+- **Massimo Donati: Celtic should have no fear against Atalanta in Champions 
+League**: [Link](https://news.stv.tv/sport/massimo-donati-celtic-should-have-no-fear-against-atalanta-in-champions-league)
+- **Atalanta vs Celtic Predictions and Betting Tips: Celtic looking to avoid 
+more European misery**: [Link](https://www.goal.com/en-us/betting/atalanta-vs-celtic-predictions-and-betting-tips-celtic-looking-to-avoid-more-european-misery/blt41524f3b3934824f)
+
+
 ### bet365 (N/A, Wed, 23 Oct 2024 12:30:00 -0700)
 
 - **DraftKings promo | $200 in bonus bets for NBA futures betting**: [Link](https://www.cbssports.com/betting/news/draftkings-promo-bet-5-get-200-in-bonus-bets-instantly/)
