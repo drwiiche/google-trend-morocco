@@ -1,3 +1,11 @@
+### nouveaux ministres maroc (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
+
+- **Voici la liste officielle des ministres du gouvernement Akhannouch II**: [Link](https://mobile.telquel.ma/instant-t/2024/10/23/voici-la-liste-officielle-des-ministres-du-gouvernement-akhannouch-ii_1900366/)
+- **Remaniement: la liste des nouvelles nominations au gouvernement**: [Link](https://ledesk.ma/2024/10/23/remaniement-la-liste-des-nouvelles-nominations-au-gouvernement/)
+- **Remaniement ministériel, une réponse aux défis actuels avec de nouveaux 
+experts**: [Link](https://fr.hespress.com/392176-remaniement-ministeriel-une-reponse-aux-defis-actuels-avec-de-nouveaux-experts.html)
+
+
 ### ترتيب دوري ابطال اوروبا (N/A, Wed, 23 Oct 2024 14:00:00 -0700)
 
 - **بالفيديو.. ريمونتادا تقود ريال مدريد لفوز مجنون وفوز أول لميلان وثان لأرسنال**: [Link](https://www.aljazeera.net/sport/2024/10/23/real-madrid-vinicius-junior)
