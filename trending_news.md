@@ -1,3 +1,38 @@
+### liverpool (N/A, Wed, 23 Oct 2024 13:00:00 -0700)
+
+- **Arsenal 1-0 Shakhtar Donetsk: Own goal gives hosts victory in Champions 
+League**: [Link](https://www.bbc.com/sport/football/live/c62gyd56wl0t)
+- **Premier League red card rules explained as William Saliba and Mohammed 
+Kudus face different bans**: [Link](https://www.football.london/arsenal-fc/news/premier-league-red-card-rules-30185746)
+- **William Saliba: Arsenal will not appeal centre-back's red card at 
+Bournemouth and he will miss home game vs Liverpool**: [Link](https://www.skysports.com/football/news/11670/13238222/william-saliba-arsenal-will-not-appeal-centre-backs-red-card-at-bournemouth-and-he-will-miss-home-game-vs-liverpool)
+
+
+### inter milan (N/A, Wed, 23 Oct 2024 12:50:00 -0700)
+
+- **Preview: Young Boys vs. Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/young-boys/champions-league/preview/preview-young-boys-vs-inter-milan-prediction-team-news-lineups_556005.html)
+- **EX Inter Milan & Switzerland Winger Warns Young Boys About Star Goalkeeper: 
+“Not Easy To Score Against Sommer”**: [Link](https://sempreinter.com/2024/10/23/xherdan-shaqiri-warns-young-boys-not-easy-score-against-sommer/)
+- **How Inter could line up in midfield without Calhanoglu**: [Link](https://football-italia.net/how-inter-could-line-up-without-calhanoglu/)
+
+
+### sports (N/A, Wed, 23 Oct 2024 12:50:00 -0700)
+
+- **Under-the-radar Wisconsin sporting events and teams worth a look in the 
+final months of 2024**: [Link](https://www.jsonline.com/story/sports/2024/10/23/wisconsin-sporting-events-and-teams-worth-a-look-in-late-2024-speedskating-basketball-hockey-more/75796456007/)
+- **Sports Extra: Fall Week 9**: [Link](https://www.keyc.com/2024/10/23/sports-extra-fall-week-9/)
+- **Sports Extra: Fall Week 9 (Part II)**: [Link](https://www.keyc.com/video/2024/10/22/sports-extra-fall-week-9-part-ii/)
+
+
+### بث مباشر للمباريات (N/A, Wed, 23 Oct 2024 12:40:00 -0700)
+
+- **مدرب الحسين: نلعب للفوز دائما.. وناساف فريق كبير**: [Link](https://m.kooora.com/?n=1362954&pg=1&o=n)
+- **القنوات الناقلة لمباراة الحسين إربد اليوم ضد ناساف كارشي في دوري أبطال آسيا 
+2 مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/718784212233621-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%86-%D8%A5%D8%B1%D8%A8%D8%AF-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B6%D8%AF-%D9%86%D8%A7%D8%B3%D8%A7%D9%81-%D9%83%D8%A7%D8%B1%D8%B4%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-2-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **تألق عارف الحاج في فوز "الحسين ضد نسف قرشي".. نتيجة مباراة الحسين وناساف 
+اليوم تويتر في دوري أبطال**: [Link](https://real.alsaudinews.com/196492/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%86-%D8%B6%D8%AF-%D9%86%D8%B3%D9%81-%D9%82%D8%B1%D8%B4%D9%8A-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9-%D9%85/)
+
+
 ### barsa (N/A, Wed, 23 Oct 2024 12:40:00 -0700)
 
 - **Lucha de fanáticos previo al Barça vs. Bayern Múnich en Champions**: [Link](https://www.tudn.com/futbol/uefa-champions-league/barcelona-vs-bayern-munich-lucha-fanaticos-montjuic-previo-champions-league)
