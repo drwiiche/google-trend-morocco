@@ -1,3 +1,11 @@
+### soufiane rahimi (N/A, Wed, 23 Oct 2024 05:10:00 -0700)
+
+- **L'entraîneur d'Al Ain dithyrambique envers Soufiane Rahimi**: [Link](https://fr.hespress.com/391954-lentraineur-dal-ain-dithyrambique-envers-soufiane-rahimi.html)
+- **Al Ain-Al Hilal : revivez le hat-trick de Soufiane Rahimi (VIDEO)**: [Link](https://www.lesiteinfo.com/sport/630438-al-ain-al-hilal-revivez-le-hat-trick-de-soufiane-rahimi-videos.html)
+- **Sufyan Rahimi marque contre Al Hilal Arabie Saoudite en Ligue des Champions 
+de l'AFC pour l'Élite**: [Link](https://fr.hibapress.com/news-141146.html)
+
+
 ### miraoui (N/A, Wed, 23 Oct 2024 04:00:00 -0700)
 
 - **Grève des étudiants en médecine: Abdellatif Miraoui lâché par les députés 
