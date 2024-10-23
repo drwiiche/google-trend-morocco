@@ -1,3 +1,27 @@
+### bein sport 1 (N/A, Wed, 23 Oct 2024 12:00:00 -0700)
+
+- **"beIN sport 2" تردد قناة بي ان سبورت 2 بجودة HD الجديد 2024 علي جميع 
+الأقمار الصناعية –**: [Link](https://real.alsaudinews.com/196434/bein-sport-2-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-2-%D8%A8%D8%AC%D9%88%D8%AF%D8%A9-hd-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-202/)
+- **حملها الآن.. تردد قناة beIN sports 1HD.. فما هي خطوات تحميل القناة؟**: [Link](https://n.khabrna.com/303785/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-1hd/)
+- **تابعها بإشارة ذكية تردد قناة بي ان سبورت اسيا 2024 beIN Sports AFC - المساء 
+الاخباري**: [Link](https://newsy.almesasports.com/269620/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA/)
+
+
+### barca match (N/A, Wed, 23 Oct 2024 12:00:00 -0700)
+
+- **LaLiga could hold first ever domestic game on US soil as early as this 
+December with Barcelona's clash with At**: [Link](https://www.dailymail.co.uk/sport/football/article-13983571/LaLiga-game-Barcelona-Atletico-Madrid-Miami.html)
+- **La Liga's Barcelona v Atletico Madrid set for Miami**: [Link](https://thecelticstar.com/celtic-will-be-interested-in-barcelona-and-atletico-madrid-plans-to-play-league-match-in-miami/)
+- **Uruguayan Giménez Opposes La Liga Match in the USA**: [Link](https://www.footboom1.com/en/news/football/1974358-uruguayan-gimenez-opposes-la-liga-match-in-the-usa)
+
+
+### mcdonald's (N/A, Wed, 23 Oct 2024 11:50:00 -0700)
+
+- **E. coli Outbreak Linked to McDonald’s Quarter Pounders**: [Link](https://www.cdc.gov/ecoli/outbreaks/e-coli-O157.html)
+- **McDonald's provides update on E. coli breakout as shares drop amid scandal**: [Link](https://finance.yahoo.com/news/mcdonalds-provides-update-on-e-coli-breakout-as-shares-drop-amid-scandal-181936035.html)
+- **1 Dead as McDonald's Food Poisoning Outbreak Spreads to 10 States**: [Link](https://www.sciencealert.com/1-dead-as-mcdonalds-food-poisoning-outbreak-spreads-to-10-states)
+
+
 ### أتلتيكو مدريد ضد ليل (N/A, Wed, 23 Oct 2024 11:30:00 -0700)
 
 - **رقم قياسي غير معتاد في مباراة أتلتيكو مدريد وليل**: [Link](https://www.kooora.com/?n=1363015&o=nces)
