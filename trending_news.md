@@ -1,3 +1,26 @@
+### kooora (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
+
+- **إصابة رودريجو تضع أنشيلوتي أمام 3 خيارات في الكلاسيكو**: [Link](https://www.kooora.com/?n=1363237)
+- **غياب كورتوا ورودريغو عن الكلاسيكو بين ريال مدريد وبرشلونة**: [Link](https://www.aljazeera.net/sport/2024/10/23/barcelona-real-madrid-courtois-rodrygo)
+- **التقرير الطبي لكورتوا**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/medical-reports/parte-medico-de-courtois-23-10-2024)
+
+
+### jamal musiala (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
+
+- **Report: Musiala to start on bench against Barcelona**: [Link](https://sports.yahoo.com/report-musiala-start-bench-against-121400874.html)
+- **Kompany gives fresh update on Musiala ahead of Barcelona clash**: [Link](https://bulinews.com/kompany-gives-fresh-update-musiala-ahead-barcelona-clash)
+- **Training Report: Bayern Munich’s Jamal Musiala trains again, looks fir for 
+FC Barcelona; Hiroki Ito works out; and MORE!**: [Link](https://www.bavarianfootballworks.com/2024/10/22/24276578/training-report-bayern-munich-jamal-musiala-trains-again-hiroki-ito-kane-muller-kimmich)
+
+
+### inter (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
+
+- **Carlos Augusto adds to growing Inter injury crisis**: [Link](https://football-italia.net/carlos-augusto-growing-inter-injury-crisis/)
+- **Inter Milan Duo Face Race Against Time To Regain Match Fitness Ahead Of 
+Juventus Clash**: [Link](https://sempreinter.com/2024/10/22/acerbi-calhanoglu-facing-race-against-time-help-inter-against-juventus/)
+- **Another Inter Stalwart Likely to Sit Out Juventus Game**: [Link](https://cultofcalcio.com/another-inter-stalwart-likely-to-sit-out-juventus-game/)
+
+
 ### barca vs real (N/A, Wed, 23 Oct 2024 13:30:00 -0700)
 
 - **Real Madrid: Injuries to Courtois and Rodrygo Ahead of Clasico**: [Link](https://al24news.com/en/real-madrid-injuries-to-courtois-and-rodrygo-ahead-of-clasico/)
