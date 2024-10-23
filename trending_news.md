@@ -1,3 +1,63 @@
+### benfica (N/A, Wed, 23 Oct 2024 13:20:00 -0700)
+
+- **Benfica-Feyenoord: águias ao ataque do topo da Champions**: [Link](https://www.abola.pt/futebol/jogo/benfica-feyenoord-4427101/benfica-feyenoord-acompanhe-em-direto)
+- **Pavlidis? Muito bom. Aursnes? Muito inteligente? Kokçu? Expectativa maior 
+para ele**: [Link](https://www.footboom1.com/br/news/football/1977948-pavlidis-very-good-aursnes-very-intelligent-kokcu-expect-more-from-him)
+- **AO VIVO: Igor Paixão ameaça o segundo, mas atira ao lado (16')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-dos-campeoes-ao-vivo-igor-paixao-ameaca-o-segundo-mas-atira-ao-lado-16/h8t15GmJ/)
+
+
+### classico (N/A, Wed, 23 Oct 2024 13:20:00 -0700)
+
+- **Real Madrid: Injuries to Courtois and Rodrygo Ahead of Clasico**: [Link](https://al24news.com/en/real-madrid-injuries-to-courtois-and-rodrygo-ahead-of-clasico/)
+- **Who will take Rodrygo's place for El Clásico?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/who-will-take-rodrygo-s-place-for-el-cl%C3%A1sico-2024-10-23)
+- **Courtois Sustains Injury: Lunin Could Feature Against Barcelona**: [Link](https://www.footboom1.com/en/news/football/1978558-courtois-sustains-injury-lunin-could-feature-against-barcelona)
+
+
+### real vs barca (N/A, Wed, 23 Oct 2024 13:20:00 -0700)
+
+- **ESPN unveils MegaCast for Real Madrid-Barcelona ‘El Clásico’**: [Link](https://awfulannouncing.com/espn/espn-unveils-megacast-for-real-madrid-barcelona-el-clasico.html)
+- **On the Pitch: Classic Week**: [Link](https://www.footboom1.com/en/news/football/1971931-on-the-pitch-classic-week)
+- **ESPN unveils special programming for first El Clasico of season**: [Link](https://worldsoccertalk.com/tv/espn-unveils-special-programming-for-first-el-clasico-of-season/)
+
+
+### lamine yamal (N/A, Wed, 23 Oct 2024 13:10:00 -0700)
+
+- **El Barça, al Bayern: Lamine Yamal se mira pero no se toca**: [Link](https://www.marca.com/futbol/barcelona/2024/10/23/barca-bayern-lamine-yamal-mira-toca.html)
+- **"Cubarsí y Lamine son impresionantes. Mis respetos a La Masia"**: [Link](https://www.sport.es/es/noticias/barca/cubarsi-lamine-son-impresionantes-respetos-110117738)
+- **Kompany: “No lo afronto como un duelo de entrenadores”**: [Link](https://as.com/futbol/internacional/kompany-no-lo-afronto-como-un-duelo-de-entrenadores-n/)
+
+
+### kompany (N/A, Wed, 23 Oct 2024 13:10:00 -0700)
+
+- **Bayern Munich Pays Tribute to Barcelona's "La Masia"**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles-video/bayern-munich-pays-tribute-to-barcelona-s-la-masia-2024-10-21)
+- **Champions League: He’ll be the best in football history – Kompany hails 
+Barcelona star**: [Link](https://dailypost.ng/2024/10/23/champions-league-hell-be-the-best-in-football-history-kompany-hails-barcelona-star/)
+- **Kompany: This is my opinion on Yamal and Kubarsi, and tomorrow's match will 
+be exciting**: [Link](https://www.ysscores.com/en/news/5861488/Kompany:-This-is-my-opinion-on-Yamal-and-Kubarsi,-and-tomorrow's-match-will-be-exciting)
+
+
+### محمد السادس (N/A, Wed, 23 Oct 2024 13:10:00 -0700)
+
+- **الملك يستقبل الأعضاء الجدد المعينين بالهاكا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%B9%D9%8A%D9%86%D9%8A%D9%86-%D8%A8-1452656.html)
+- **الملك محمد السادس يبعث ببرقية تعزية لأسرة الإعلامي بلعيد بويميد**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%B9%D9%8A%D9%86%D9%8A%D9%86-%D8%A8/)
+- **سيدنا يستقبل الأعضاء الجدد المعينين بالمجلس الأعلى للاتصال السمعي البصري**: [Link](https://www.goud.ma/%D8%B3%D9%8A%D8%AF%D9%86%D8%A7-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%B9%D9%8A%D9%86%D9%8A%D9%86-%D8%A8-911252/)
+
+
+### live score (N/A, Wed, 23 Oct 2024 13:10:00 -0700)
+
+- **Preview: Red Bull Salzburg vs. Dinamo Zagreb - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/red-bull-salzburg/champions-league/preview/preview-salzburg-vs-dinamo-zagreb-prediction-team-news-lineups_556004.html)
+- **RB Salzburg vs Dinamo Zagreb LIVE Score Updates (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2024/10/23/1201429-rb-salzburg-vs-dinamo-zagreb-live-score-updates-stream-info-and-how-to-watch-champions-league-match.html)
+- **Crunch Champions League encounter v Zagreb**: [Link](https://onefootball.com/en/news/crunch-champions-league-encounter-v-zagreb-40200089)
+
+
+### atletico madrid (N/A, Wed, 23 Oct 2024 12:50:00 -0700)
+
+- **Atletico raises awareness of fans with disabilities at Champions League game**: [Link](https://apnews.com/article/atletico-madrid-lille-champions-league-inclusion-89cd69b317ba9a53197ea4d231467489)
+- **Spain: “Most inclusive Champions League match” at Metropolitano**: [Link](https://stadiumdb.com/news/2024/10/spain_most_inclusive_champions_league_match_at_metropolitano)
+- **Atletico raises awareness of fans with disabilities at Champions League game**: [Link](https://www.wnky.com/i/atletico-raises-awareness-of-fans-with-disabilities-at-champions-league-game/)
+
+
 ### liverpool (N/A, Wed, 23 Oct 2024 13:00:00 -0700)
 
 - **Arsenal 1-0 Shakhtar Donetsk: Own goal gives hosts victory in Champions 
