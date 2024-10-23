@@ -1,3 +1,10 @@
+### اخبارنا (N/A, Tue, 22 Oct 2024 23:10:00 -0700)
+
+- **"جمعية الصحفيين الإماراتية" تطلق استراتيجيتها للأعوام 2025-2028**: [Link](https://www.emaratalyoum.com/life/culture/2024-10-23-1.1891684)
+- **بالصور.. الرطوبة تسقط لاعبي النصر أرضًا**: [Link](https://www.kooora.com/?n=1363052)
+- **شاهد رد فعل كريستيانو رونالدو بعد هتاف الإيرانيين لـ"ميسي"**: [Link](https://ar.hibapress.com/details-565184.html)
+
+
 ### visite emmanuel macron maroc (N/A, Tue, 22 Oct 2024 22:50:00 -0700)
 
 - **Les moments forts de la visite d’État d’Emmanuel Macron au Maroc**: [Link](https://fr.le360.ma/politique/les-moments-forts-de-la-visite-detat-demmanuel-macron-au-maroc_BFB4BCWYJNA6BAWEU5YZXSMVWY/)
