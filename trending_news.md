@@ -1,3 +1,10 @@
+### فيفي عبده (N/A, Wed, 23 Oct 2024 01:40:00 -0700)
+
+- **بالحجاب وبدون مكياج.. فيفي عبده توجه رسالة لأهل لبنان وغزة**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/10/21/%D8%A8%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%A8-%D9%88%D8%A8%D8%AF%D9%88%D9%86-%D9%85%D8%B3%D8%A7%D8%AD%D9%8A%D9%82-%D9%81%D9%8A%D9%81%D9%8A-%D8%B9%D8%A8%D8%AF%D9%87-%D8%AA%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%84%D8%A3%D9%87%D9%84-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D9%88%D8%BA%D8%B2%D8%A9)
+- **دعما لفلسطين ولبنان.. فيفي عبده تشعل مواقع التواصل (فيديو)**: [Link](https://ar.hibapress.com/details-564799.html)
+- **فيفي عبده بالحجاب وتتصدر تريند جوجل لهذا السبب**: [Link](https://www.masrawy.com/arts/zoom/details/2024/10/22/2662021/%D9%81%D9%8A%D9%81%D9%8A-%D8%B9%D8%A8%D8%AF%D9%87-%D8%A8%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%A8-%D9%88%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AA%D8%B1%D9%8A%D9%86%D8%AF-%D8%AC%D9%88%D8%AC%D9%84-%D9%84%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8)
+
+
 ### classico (N/A, Tue, 22 Oct 2024 14:10:00 -0700)
 
 - **Ten iconic moments in the history of El Classico**: [Link](https://supersport.com/football/spain/news/15d8f84c-ee92-436e-9f2b-66061ed65ece/ten-iconic-moments-in-the-history-of-el-classico)
