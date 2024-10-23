@@ -1,3 +1,19 @@
+### ترتيبات دوري أبطال أوروبا (N/A, Wed, 23 Oct 2024 14:20:00 -0700)
+
+- **بالصور: لدغة تورام تنقذ إنتر ميلان من فخ يونج بويز**: [Link](https://www.kooora.com/?n=1363328)
+- **الانتر يتخطى يونج بويز بدوري الأبطال بهدف قاتل**: [Link](https://hihi2.com/2024/10/24/p2904023.html)
+- **إنتر للعودة بنقاط الفوز من أرض يونغ بويز**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D9%86%D8%AA%D8%B1-%D9%84%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A8%D9%86%D9%82%D8%A7%D8%B7-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D9%85%D9%86-%D8%A3%D8%B1%D8%B6-%D9%8A%D9%88%D9%86%D8%BA-%D8%A8%D9%88%D9%8A%D8%B2-2024-10-23)
+
+
+### pedri (N/A, Wed, 23 Oct 2024 13:50:00 -0700)
+
+- **La playlist de Gavi con Queen, Police y Jackson que bate récords**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241022/1002337849/playlist-gavi-queen-police-jackson.html)
+- **Jugador del Barcelona confesó que escucha Guns N’ Roses y Queen para 
+curarse de grave lesión**: [Link](https://www.radioacktiva.com/2024/jugador-del-barcelona-confeso-que-escucha-guns-n-roses-y-queen-para-curarse-de-grave-lesion-357723.html)
+- **El mensaje de Carvajal a Gavi en redes que sorprende a 3 días del Clásico: 
+“A disfrutar…”**: [Link](https://www.realmadridexclusivo.com/curiosidades/mensaje-carvajal-gavi-en-redes-sorprende-3-dias-clasico-a-disfrutar_162533_102.html)
+
+
 ### olmo (N/A, Wed, 23 Oct 2024 14:20:00 -0700)
 
 - **Dani Olmo talks his move to Barcelona, Pedri, Yamal, Raphinha, and Flick in 
