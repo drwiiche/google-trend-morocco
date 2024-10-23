@@ -1,3 +1,27 @@
+### raphinha (N/A, Wed, 23 Oct 2024 12:10:00 -0700)
+
+- **Raphinha: The Most Underrated Gem**: [Link](https://www.footboom1.com/en/news/football/1977241-raphinha-the-most-underrated-gem)
+- **Barcelona name their price as Man City, Newcastle track Catalans star who's 
+in the form of his life**: [Link](https://www.teamtalk.com/manchester-city/barcelona-name-their-price-as-man-city-newcastle-track-catalans-star-whos-in-the-form-of-his-life)
+- **Man City ponder blockbuster Barcelona raid as frontrunners emerge in race 
+to sign ‘sacrificable’ star**: [Link](https://www.msn.com/en-za/news/other/man-city-ponder-blockbuster-barcelona-raid-as-frontrunners-emerge-in-race-to-sign-sacrificable-star/ar-AA1sI2lE)
+
+
+### ار بي ليبزيج ضد ليفربول (N/A, Wed, 23 Oct 2024 12:10:00 -0700)
+
+- **صلاح ونونيز في هجوم ليفربول أمام لايبزيج**: [Link](https://m.kooora.com/?n=1363283&o=n26971)
+- **طيف كلوب يخيم على مواجهة ليفربول ولايبزيغ في أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2024/10/22/klopp-liverpool-leipzigfc-champions-league)
+- **تشكيلة ليفربول و لايبزيج في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/10/23/p2903575.html)
+
+
+### ldc (N/A, Wed, 23 Oct 2024 12:10:00 -0700)
+
+- **Ligue des champions | Brest contraint le Bayer Leverkusen au nul (1-1)**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-brest-contraint-le-bayer-leverkusen-au-nul-1-1_sto20047864/story.shtml)
+- **Foot : Brest résiste au Bayer Leverkusen et reste invaincu en Ligue des 
+champions**: [Link](https://www.lequipe.fr/Football/Actualites/Brest-resiste-au-bayer-leverkusen-et-reste-invaincu-en-ligue-des-champions/1515762)
+- **Vidéo : le but égalisateur exceptionnel de Pierre Lees-Melou face au Bayer**: [Link](https://www.footmercato.net/a5550603900195542976-video-le-but-egalisateur-exceptionnel-de-pierre-lees-melou-face-au-bayer)
+
+
 ### bein sport 1 (N/A, Wed, 23 Oct 2024 12:00:00 -0700)
 
 - **"beIN sport 2" تردد قناة بي ان سبورت 2 بجودة HD الجديد 2024 علي جميع 
