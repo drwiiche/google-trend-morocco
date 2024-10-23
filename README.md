@@ -1,3 +1,50 @@
+### bet365 (N/A, Wed, 23 Oct 2024 12:30:00 -0700)
+
+- **DraftKings promo | $200 in bonus bets for NBA futures betting**: [Link](https://www.cbssports.com/betting/news/draftkings-promo-bet-5-get-200-in-bonus-bets-instantly/)
+- **Best sportsbook promos for Knicks vs Celtics include bet $10, get $200 
+BetMGM promo**: [Link](https://www.nj.com/betting/2024/10/best-sportsbook-promo-codes-for-knicks-vs-celtics-include-bet-10-get-200-betmgm-promo.html)
+- **Bet365 Bonus Code MHSXLM Activates $200 Bonus or $1K Safety Net for NBA**: [Link](https://milehighsports.com/bet365-bonus-code-mhsxlm-nba-10-23/)
+
+
+### lewandowski (N/A, Wed, 23 Oct 2024 12:30:00 -0700)
+
+- **Hansi Flick zdecydował! Poznaliśmy wyjściowy skład Barcelony na mecz z 
+Bayernem Monachium**: [Link](https://sport.tvp.pl/83113181/hansi-flick-zdecydowal-poznalismy-wyjsciowy-sklad-fc-barcelona-na-mecz-z-bayernem-monachium)
+- **Liga Mistrzów: multirelacja ze środowych meczów [RELACJA NA ŻYWO]**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/liga-mistrzow/liga-mistrzow-multirelacja-ze-srodowych-meczow-relacja-na-zywo/66665eb)
+- **Relacja na żywo**: [Link](https://www.meczyki.pl/newsy/pilka-nozna/relacje-multiliga-lm-relacja-na-zywo-wynik-live-akcja-po-akcji/253378)
+
+
+### يلا كورة مباريات اليوم (N/A, Wed, 23 Oct 2024 12:30:00 -0700)
+
+- **النسخة الإلكترونية لجريدة المنتخب يصيغة PDF - العدد 3917 ليوم 2024-10-17**: [Link](https://www.almountakhab.com/version-pdf/2243)
+- **برنامج مباريات المحترفين المغاربة في دوري أبطال آسيا للنخبة**: [Link](https://www.hibasport.com/details-279785.html)
+- **اصحاب الضيافة مرشحون لاكتساح ضيوفهم في الجولة الثالثة من دوري ابطال اوروبا**: [Link](https://www.akhbarak.net/news/details/46708083/3/%D8%A7%D8%B5%D8%AD%D8%A7%D8%A8-%D8%A7%D9%84%D8%B6%D9%8A%D8%A7%D9%81%D8%A9-%D9%85%D8%B1%D8%B4%D8%AD%D9%88%D9%86-%D9%84%D8%A7%D9%83%D8%AA%D8%B3%D8%A7%D8%AD-%D8%B6%D9%8A%D9%88%D9%81%D9%87%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+
+
+### rb leipzig vs liverpool (N/A, Wed, 23 Oct 2024 12:30:00 -0700)
+
+- **Eine Leipzigerin jubelt für Liverpool - warum das denn?**: [Link](https://www.mdr.de/nachrichten/sachsen/leipzig/leipzig-leipzig-land/fussball-rb-leipzig-liverpool-fanclub-german-reds-100.html)
+- **Leipzig von Champions-League-Fehlstart nicht eingeschüchtert**: [Link](https://www.lauterbacher-anzeiger.de/sport/fussball/leipzig-von-champions-league-fehlstart-nicht-eingeschuechtert-zr-93368345.html)
+- **Arne Slot erklärt die neuesten Informationen zu Jota, Chiesa und Liverpool 
+Squad Fitness**: [Link](https://www.liverpoolfc.com/de/news/arne-slot-explains-latest-jota-chiesa-and-liverpool-squad-fitness)
+
+
+### live (N/A, Wed, 23 Oct 2024 12:20:00 -0700)
+
+- **Live Oak Society Celebrates College of Charleston Donors**: [Link](https://today.charleston.edu/2024/10/23/live-oak-society-celebrates-donors/)
+- **Barcelona v Bayern Munich live - UEFA Champions League latest as Hansi 
+Flick faces former club**: [Link](https://www.tntsports.co.uk/football/champions-league/2024-2025/live-fc-barcelona-fc-bayern-munich_mtc1525255/live-commentary.shtml)
+- **Barcelona vs Bayern Brawl: When, How to Watch the Game**: [Link](https://www.moroccoworldnews.com/2024/10/365904/barcelona-vs-bayern-brawl-when-how-to-watch-the-game)
+
+
+### bein sport (N/A, Wed, 23 Oct 2024 12:10:00 -0700)
+
+- **تابعها بإشارة ذكية تردد قناة بي ان سبورت اسيا 2024 beIN Sports AFC - المساء 
+الاخباري**: [Link](https://newsy.almesasports.com/269620/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA/)
+- **تردد قنوات بين اسبورت bein sport المفتوحة على النايل سات**: [Link](https://alkhabarkw.com/channels/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A8%D9%8A%D9%86-%D8%A7%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9/77449/)
+- **تردد قناة bein sport الجديد 2024 وطريقة تنزيلها على الرسيفر**: [Link](https://news.elsob7.com/1219493/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sport-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-2024-%D9%88%D8%B7%D8%B1%D9%8A%D9%82%D8%A9-%D8%AA%D9%86%D8%B2%D9%8A%D9%84%D9%87%D8%A7-%D8%B9%D9%84/)
+
+
 ### harry kane (N/A, Wed, 23 Oct 2024 12:20:00 -0700)
 
 - **EXCLUSIVE: Hamann backs Bayern's Kane to break trophy curse under Kompany's 
