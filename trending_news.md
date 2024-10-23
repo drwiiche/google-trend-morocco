@@ -1,3 +1,10 @@
+### galatasaray (N/A, Wed, 23 Oct 2024 07:30:00 -0700)
+
+- **Galatasaray, Avrupa'da 321. maçına çıkacak**: [Link](https://www.gunes.com/spor/elfsborg-karsilasmasi-galatasaray-avrupada-321-macina-cikacak-1213039)
+- **Okan Buruk'tan 3'lü savunma tercihi için yanıt**: [Link](https://www.ntvspor.net/futbol/okan-buruk-tan-3-lu-savunma-tercihi-icin-yanit-671903243b902603f7734631)
+- **Bu Akşam Hangi Maçlar Var, Hangi Kanalda? 23 Ekim 2024 Günün Maçları!**: [Link](https://www.cnnturk.com/spor/bu-aksam-hangi-maclar-var-hangi-kanalda-23-ekim-2024-gunun-maclari-2168641)
+
+
 ### التعديل الحكومي المغرب (N/A, Tue, 22 Oct 2024 23:50:00 -0700)
 
 - **جدول أعمال مجلس الحكومة الخميس**: [Link](https://www.hespress.com/%D8%AC%D8%AF%D9%88%D9%84-%D8%A3%D8%B9%D9%85%D8%A7%D9%84-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-1452406.html)
