@@ -1,3 +1,25 @@
+### عز الدين الميداوي (N/A, Wed, 23 Oct 2024 09:50:00 -0700)
+
+- **عز الدين الميداوي مرشح بقوة لخلافة ميراوي في وزارة التعليم العالي**: [Link](https://klamkom.com/2024/10/22/%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%8A%D8%AF%D8%A7%D9%88%D9%8A-%D9%85%D8%B1%D8%B4%D8%AD-%D8%A8%D9%82%D9%88%D8%A9-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D9%85%D9%8A%D8%B1/)
+- **عز الدين الميداوي خلفا لعبد اللطيف ميراوي في وزارة التعليم العالي**: [Link](https://marrakech7.com/%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%8A%D8%AF%D8%A7%D9%88%D9%8A-%D8%AE%D9%84%D9%81%D8%A7-%D9%84%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D8%B7%D9%8A%D9%81-%D9%85%D9%8A%D8%B1/)
+
+
+### map (N/A, Wed, 23 Oct 2024 09:50:00 -0700)
+
+- **Wethersfield firefighter dies in UTV crash while battling Berlin brush fire**: [Link](https://www.wfsb.com/2024/10/23/wethersfield-firefighter-dies-utv-crash-while-battling-berlin-brush-fire/)
+- **Procession to be held for fallen Wethersfield firefighter**: [Link](https://www.wtnh.com/news/connecticut/hartford/procession-to-be-held-for-fallen-wethersfield-firefighter/)
+- **Flags directed to half-staff in honor of firefighter killed at brush fire 
+in Berlin**: [Link](https://www.nbcconnecticut.com/news/local/flags-directed-to-half-staff-in-honor-of-firefighter-killed-at-brush-fire-in-berlin/3415817/)
+
+
+### تعديل حكومي (N/A, Wed, 23 Oct 2024 09:40:00 -0700)
+
+- **التعديل الحكومي.. الملك يستقبل أعضاء الحكومة الجديدة**: [Link](https://ar.hibapress.com/details-565476.html)
+- **هؤلاء هم الوزراء الجدد الذين عينهم الملك اليوم ضمن التعديل الحكومي – اليوم 
+24**: [Link](https://alyaoum24.com/1924952.html)
+- **حصري/ استقبال ملكي اليوم للوزراء الجدد**: [Link](https://rue20.com/848339.html)
+
+
 ### wac (N/A, Wed, 23 Oct 2024 09:40:00 -0700)
 
 - **CV frosh football team improves to 8-0, 5-0 in WAC**: [Link](https://www.cerescourier.com/sports/high-school-sports/cv-frosh-football-team-improves-to-8-0-5-0-in-wac/)
