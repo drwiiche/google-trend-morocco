@@ -1,3 +1,10 @@
+### remaniement ministériel maroc (N/A, Wed, 23 Oct 2024 09:40:00 -0700)
+
+- **Remaniement: le Roi reçoit les membres du nouveau gouvernement Akhannouch**: [Link](https://fr.le360.ma/politique/remaniement-le-roi-recoit-les-membres-du-nouveau-gouvernement-akhannouch-dans-sa-nouvelle-mouture_PANRKVHOJRENRBZPIECVRTP6WY/)
+- **Mehdi Bensaïd : "réformes, emploi et défi de la communication"**: [Link](https://fr.hespress.com/391966-mehdi-bensaid-reformes-emploi-et-defi-de-la-communication.html)
+- **Remaniement, pas remaniement… la grande illusion continue !**: [Link](https://maroc-diplomatique.net/remaniement-pas-remaniement-la-grande-illusion-continue/)
+
+
 ### hespress (N/A, Wed, 23 Oct 2024 10:10:00 -0700)
 
 - **متابعة زوجة يوسف شيبو في حالة سراح**: [Link](https://www.hespress.com/%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%B2%D9%88%D8%AC%D8%A9-%D8%B4%D9%8A%D8%A8%D9%88-%D9%81%D9%8A-%D8%AD%D8%A7%D9%84%D8%A9-%D8%B3%D8%B1%D8%A7%D8%AD-1452531.html)
