@@ -1,3 +1,11 @@
+### bayern munich (N/A, Wed, 23 Oct 2024 05:50:00 -0700)
+
+- **Betfair welcome offer: Get 50/1 on A goal to be Scored in Barcelona v 
+Bayern Munich**: [Link](https://www.101greatgoals.com/free-bets/betfair-welcome-offer-get-50-1-on-a-goal-to-be-scored-in-barcelona-v-bayern-munich/)
+- **The Secrets of Bayern's Match Day Agenda, in Detail**: [Link](https://www.footboom1.com/en/news/football/1977500-the-secrets-of-bayern-s-match-day-agenda-in-detail)
+- **Will Bayern Munich vs. FC Barcelona live up to the hype?**: [Link](https://www.bavarianfootballworks.com/2024/10/23/24275627/bayern-munich-fc-barcelona-champions-league-flick-kompany-lewandowski-kane-musiala-yamal-muller)
+
+
 ### actrice christine boisson (N/A, Wed, 23 Oct 2024 06:00:00 -0700)
 
 
