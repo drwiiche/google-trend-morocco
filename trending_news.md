@@ -1,3 +1,28 @@
+### atalanta – celtic glasgow (N/A, Wed, 23 Oct 2024 09:10:00 -0700)
+
+- **Massimo Donati: Celtic should have no fear against Atalanta in Champions 
+League**: [Link](https://news.stv.tv/sport/massimo-donati-celtic-should-have-no-fear-against-atalanta-in-champions-league)
+- **'Celtic need European ammunition to aim at sceptics'**: [Link](https://www.bbc.com/sport/football/articles/c5y9yvwl230o)
+- **Roy Aitken: This is a positive test for us**: [Link](https://onefootball.com/en/news/roy-aitken-this-is-a-positive-test-for-us-40206925)
+
+
+### نبيلة الرميلي (N/A, Wed, 23 Oct 2024 09:10:00 -0700)
+
+- **الرميلي تخاطب "بيجيدي": أوجعتكم الأرقام**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%85%D9%8A%D9%84%D9%8A-%D8%AA%D8%AE%D8%A7%D8%B7%D8%A8-%D8%A8%D9%8A%D8%AC%D9%8A%D8%AF%D9%8A-%D8%A3%D9%88%D8%AC%D8%B9%D8%AA%D9%83%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7-1452126.html)
+- **عمدة الدار البيضاء: ميزانية الجماعة في أحسن الظروف ومداخيلنا ارتفعت بـ40%**: [Link](https://ar.le360.ma/economie/DIDO6RHWHBCGTF3VGHVW4MGAJU/)
+- **عمدة الدار البيضاء تقدر فائضا بـ80 مليار درهم العام المقبل بعد بيع ممتلكات 
+الجماعة – اليوم 24**: [Link](https://alyaoum24.com/1924614.html)
+
+
+### التعديل الحكومي الجديد 2024 (N/A, Wed, 23 Oct 2024 08:50:00 -0700)
+
+- **أخنوش يؤكد زيادة حصة الجماعات من مداخيل الضريبة على القيمة المضافة**: [Link](https://www.hespress.com/%D8%A3%D8%AE%D9%86%D9%88%D8%B4-%D9%8A%D8%A4%D9%83%D8%AF-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%AD%D8%B5%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D9%85%D8%AF%D8%A7%D8%AE%D9%8A-1452295.html)
+- **تأجيل التعديل الحكومي يربك اجتماع الأغلبية وهذه أبرز الأسماء المرشحة 
+للاستوزار – اليوم 24**: [Link](https://alyaoum24.com/1924748.html)
+- **أخنوش: رفعنا حصة الجماعات الترابية من مداخيل الضريبة على القيمة المضافة إلى 
+32%**: [Link](https://ar.hibapress.com/details-565345.html)
+
+
 ### brest – leverkusen (N/A, Wed, 23 Oct 2024 09:00:00 -0700)
 
 - **Preview: Brest vs. Bayer Leverkusen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/brest/champions-league/preview/preview-brest-vs-bpoint-leverkusen-prediction-team-news-lineups_556019.html)
