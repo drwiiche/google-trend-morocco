@@ -1,3 +1,56 @@
+### barcelone – bayern (N/A, Wed, 23 Oct 2024 11:10:00 -0700)
+
+- **Barcelona vs Bayern Brawl: When, How to Watch the Game**: [Link](https://www.moroccoworldnews.com/2024/10/365904/barcelona-vs-bayern-brawl-when-how-to-watch-the-game)
+- **LIVE Barcelona vs Bayern Munich updates, UEFA Champions League: Score, When 
+and where to watch, BAR v BAY, 12:30 AM IST kick-off**: [Link](https://sportstar.thehindu.com/football/champions-league/barcelona-vs-bayern-munich-live-score-uefa-champions-league-bar-v-bay-updates-goals-ucl-highlights/article68788206.ece)
+- **Preview: Hansi Flick faces former club as Barca and Bayern go head-to-head**: [Link](https://www.fotmob.com/topnews/15726-preview-hansi-flick-faces-former-club-barca-bayern-go-head-head?utm_source=fotmob)
+
+
+### برشلونة ضد البايرن (N/A, Wed, 23 Oct 2024 11:10:00 -0700)
+
+- **الذكاء الاصطناعي يتوقع نتيجة قمة برشلونة وبايرن ميونخ**: [Link](https://www.kooora.com/?n=1363164)
+- **صور.. لحظة وصول لاعبي البايرن إلى ملعب برشلونة**: [Link](https://hihi2.com/2024/10/23/p2903589.html)
+- **حالة إحباط في برشلونة بسبب حكم مباراة بايرن ميونخ**: [Link](https://www.aljazeera.net/sport/2024/10/23/barcelona-referee-slavko-vincic-bayern-munich)
+
+
+### manchester city – sparta prague (N/A, Wed, 23 Oct 2024 11:10:00 -0700)
+
+- **Predicted Starting Line-Up: Manchester City vs Sparta Prague (UEFA 
+Champions League)**: [Link](https://cityxtra.co.uk/19950/predicted-starting-line-up-manchester-city-vs-sparta-prague-uefa-champions-league/)
+- **Manchester City - Sparta Prague live: Champions League - Football**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/live-manchester-city-sparta-prague_mtc1525250/live-commentary.shtml)
+- **Pep Guardiola applauds Manchester City mentality ahead of Sparta Prague test**: [Link](https://www.flashscore.com/news/soccer-champions-league-pep-guardiola-applauds-manchester-city-mentality-ahead-of-sparta-prague-test/faBVT9ge/)
+
+
+### atlético madrid – lille (N/A, Wed, 23 Oct 2024 11:10:00 -0700)
+
+- **Atletico Madrid vs Lille: Preview, predictions and lineups**: [Link](https://www.90min.com/atletico-madrid-vs-lille-preview-predictions-lineups-23-10-24)
+- **Jonathan David: Lille's Threat Against Interested Atlético**: [Link](https://www.footboom1.com/en/news/football/1978147-jonathan-david-lille-s-threat-against-interested-atletico)
+- **Watch Atletico Madrid vs. Lille OSC: UEFA Champions League free live stream**: [Link](https://www.masslive.com/tv/2024/10/watch-atletico-madrid-vs-lille-osc-uefa-champions-league-free-live-stream.html)
+
+
+### rb leipzig – liverpool (N/A, Wed, 23 Oct 2024 11:10:00 -0700)
+
+- **Preview: RB Leipzig vs. Liverpool - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/liverpool/champions-league/preview/preview-rb-leipzig-vs-liverpool-prediction-team-news-lineups_556029.html)
+- **Salah leads Liverpool's lineup against Leipzig in the Champions League**: [Link](https://www.ysscores.com/en/news/5901135/Salah-leads-Liverpool's-lineup-against-Leipzig-in-the-Champions-League)
+- **Arne Slot exclusive: 'There was nothing wrong with my self-confidence' – 
+Liverpool boss on fast start**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/liverpool-arne-slot-rb-leipzig-dominik-szoboszlai_sto20047674/story.shtml)
+
+
+### leverkusen (N/A, Wed, 23 Oct 2024 11:10:00 -0700)
+
+- **Bei der Rückkehr in die Bretagne: Terriers Kampf gegen die Torflaute**: [Link](https://www.kicker.de/bei-der-rueckkehr-in-die-bretagne-terriers-kampf-gegen-die-torflaute-1061640/artikel)
+- **Brests bemerkenswerter Aufstieg: Vom Amateurfußball zu 
+Champions-League-Anwärtern**: [Link](https://www.footboom1.com/de/news/football/1978249-brest-s-remarkable-ascent-from-the-depths-of-amateurism-to-champions-league-contenders)
+- **Fußball heute live im TV und STREAM: Bayer Leverkusen bei Stade Brest**: [Link](https://www.dazn.com/de-DE/news/fussball/fussball-heute-live-tv-stream-bayer-leverkusen-stade-brest/16k2bbu3lz37f1rwc2vjr71sui)
+
+
+### bayern (N/A, Wed, 23 Oct 2024 11:10:00 -0700)
+
+- **FC Barcelona vs FC Bayern München im Liveticker: Lewy und Lewy lassen**: [Link](https://www.11freunde.de/international/champions-league/fc-barcelona-vs-fc-bayern-muenchen-im-liveticker-lewy-und-lewy-lassen-a-c260b749-ddf2-4637-bc25-cbbbbeecd388)
+- **Die Geheimnisse von Bayerns Spieltag-Agenda im Detail**: [Link](https://www.footboom1.com/de/news/football/1977500-the-secrets-of-bayern-s-match-day-agenda-in-detail)
+- **Freund vor Barça-Duell: "Wir schauen gar nicht auf die Tabelle"**: [Link](https://fcbinside.de/2024/10/23/freund-vor-barca-duell-wir-schauen-gar-nicht-auf-die-tabelle/)
+
+
 ### برشلونة (N/A, Wed, 23 Oct 2024 11:00:00 -0700)
 
 - **ريال مدريد يعلن إصابة كورتوا قبل الكلاسيكو**: [Link](https://www.kooora.com/?n=1363178)
