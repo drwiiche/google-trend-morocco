@@ -1,3 +1,12 @@
+### manchester united (N/A, Thu, 24 Oct 2024 11:20:00 -0700)
+
+- **Fenerbahce v Manchester United: Erik ten Hag says his side cannot afford 
+any more injuries**: [Link](https://www.bbc.com/sport/football/live/c20j5d3q72lt)
+- **Amrabat and Mazraoui Set for Moroccan Duel in Istanbul: When, How to Watch**: [Link](https://moroccoworldnews.com/2024/10/365921/amrabat-and-mazraoui-set-for-moroccan-duel-in-istanbul-when-how-to-watch)
+- **Football Tracker: Mourinho's Fenerbahce facing Manchester United, Spurs & 
+Porto in action**: [Link](https://www.flashscore.com/news/football-tracker-mourinho-s-fenerbahce-facing-manchester-united-spurs-porto-in-action/juOdAhXo/)
+
+
 ### berrada (N/A, Thu, 24 Oct 2024 12:00:00 -0700)
 
 - **Remaniement. Ceux qui restent, ceux qui partent, ceux qui débarquent**: [Link](https://medias24.com/2024/10/23/remaniement-ceux-qui-restent-ceux-qui-partent-ceux-qui-debarquent/)
