@@ -1,3 +1,11 @@
+### accident bugatti maroc (N/A, Thu, 24 Oct 2024 01:40:00 -0700)
+
+- **Deux Bugatti Chiron se percutent et emportent un camion**: [Link](https://www.caradisiac.com/deux-bugatti-chiron-se-percutent-et-emportent-un-camion-211834.htm)
+- **Accident près de Tanger : une Bugatti de trois millions d’euros impliquée**: [Link](https://www.bladi.net/accident-pres-tanger-bugatti-trois-millions-euros-impliquee,111179.html)
+- **Vidéo: Grave accident entre deux Bugatti et un camion sur la route de 
+Tanger…**: [Link](https://lnt.ma/video-grave-accident-entre-deux-bugatti-et-un-camion-sur-la-route-de-tanger/)
+
+
 ### amine tahraoui ministre (N/A, Wed, 23 Oct 2024 14:30:00 -0700)
 
 - **Qui est Amine Tahraoui, le poulain du couple Akhannouch nommé ministre de 
