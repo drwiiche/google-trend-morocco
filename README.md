@@ -1,3 +1,11 @@
+### rodrygo (N/A, Thu, 24 Oct 2024 05:50:00 -0700)
+
+- **Rodrygo: rotura en el bíceps femoral y baja aproximada de 20 días**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/24/rodrygo-pierde-clasico-estara-baja-proximos-20-dias.html)
+- **¡Courtois, KO para el Clásico!**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20241023/1002338920/courtois-ko-clasico.html)
+- **Ancelotti ya tiene su alineación para el Clásico tras el K.O de Courtois y 
+Rodrygo**: [Link](https://www.defensacentral.com/real_madrid/1709329169-ancelotti-ya-tiene-su-alineacion-para-el-clasico-tras-el-ko-de-courtois-y-rodrygo)
+
+
 ### accident bugatti maroc (N/A, Thu, 24 Oct 2024 01:40:00 -0700)
 
 - **Deux Bugatti Chiron se percutent et emportent un camion**: [Link](https://www.caradisiac.com/deux-bugatti-chiron-se-percutent-et-emportent-un-camion-211834.htm)
