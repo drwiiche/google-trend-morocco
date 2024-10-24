@@ -1,3 +1,10 @@
+### tottenham (N/A, Thu, 24 Oct 2024 13:20:00 -0700)
+
+- **Timo Werner must be axed at half-time in Tottenham v AZ Alkmaar**: [Link](https://www.tottenhamhotspurnews.com/statsandtactics/ange-postecoglou-must-drag-timo-werner-off-at-half-time-in-tottenham-v-az-alkmaar/)
+- **Postecoglou delivers verdict on Maddison vs Richarlison penalty debate**: [Link](https://www.standard.co.uk/sport/football/tottenham-richarlison-maddison-penalty-postecoglou-b1190004.html)
+- **AZ Alkmaar suffer slender defeat at Tottenham Hotspur**: [Link](http://www.football-oranje.com/az-alkmaar-suffer-slender-defeat-at-tottenham-hotspur/)
+
+
 ### europa league (N/A, Thu, 24 Oct 2024 14:00:00 -0700)
 
 - **Man Utd ratings vs Fenerbahce, world-class Andre Onana gets 9/10 as 8/10 
