@@ -1,3 +1,10 @@
+### nouveau gouvernement marocain (N/A, Wed, 23 Oct 2024 23:10:00 -0700)
+
+- **Remaniement : voici les membres du gouvernement Akhannouch II**: [Link](https://medias24.com/2024/10/23/att-remaniement-voici-les-membres-du-gouvernement-akhannouch-ii/)
+- **Voici la liste officielle des ministres du gouvernement Akhannouch II**: [Link](https://mobile.telquel.ma/instant-t/2024/10/23/voici-la-liste-officielle-des-ministres-du-gouvernement-akhannouch-ii_1900366/)
+- **Remaniement: la liste des nouvelles nominations au gouvernement**: [Link](https://ledesk.ma/2024/10/23/remaniement-la-liste-des-nouvelles-nominations-au-gouvernement/)
+
+
 ### lille fc (N/A, Wed, 23 Oct 2024 14:40:00 -0700)
 
 - **Ligue 1 Predictions | Round 8**: [Link](https://www.getfootballnewsfrance.com/2024/ligue-1-predictions-round-8-3/)
