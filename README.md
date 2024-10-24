@@ -1,3 +1,15 @@
+### ligue europa conférence (N/A, Thu, 24 Oct 2024 13:40:00 -0700)
+
+
+
+
+### real betis (N/A, Thu, 24 Oct 2024 13:20:00 -0700)
+
+- **Betis - Copenhague en directo | la Conference League en vivo hoy**: [Link](https://www.marca.com/futbol/conference-league/betis-copenhague/2024/10/24/01_01105_20241024_185_569-directo.html)
+- **Real Betis - Copenhague, en directo: Conference League, hoy en vivo**: [Link](https://as.com/futbol/uefa/real-betis-copenhague-en-directo-conference-league-hoy-en-vivo-n/)
+- **Pellegrini pone fecha al regreso de Lo Celso**: [Link](https://onefootball.com/es/noticias/pellegrini-pone-fecha-al-regreso-de-lo-celso-40209542)
+
+
 ### malmö – olympiakos (N/A, Thu, 24 Oct 2024 13:30:00 -0700)
 
 - **Rydström om missnöjet: "Vi får inte gå vilse i ett felsökande"**: [Link](https://www.fotbollskanalen.se/europa-league/rydstrom-om-missnojet-vi-far-inte-ga-vilse-i-ett-felsokande/)
