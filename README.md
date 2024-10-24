@@ -1,3 +1,12 @@
+### europa league (N/A, Thu, 24 Oct 2024 14:00:00 -0700)
+
+- **Man Utd ratings vs Fenerbahce, world-class Andre Onana gets 9/10 as 8/10 
+star turns his form and club career around**: [Link](https://www.unitedinfocus.com/match-coverage/man-utd-ratings-vs-fenerbahce-world-class-andre-onana-gets-9-10-as-8-10-star-turns-his-form-and-club-career-around/)
+- **Jose Mourinho in disbelief on the touchline at Andre Onana’s ‘spectacular’ 
+double save**: [Link](https://www.independent.co.uk/sport/football/andre-onana-save-jose-mourinho-reaction-b2635227.html)
+- **Europa League talking points: Ugarte improved & Mazraoui experiment**: [Link](https://strettynews.com/2024/10/24/europa-league-talking-points-ugarte-improved/)
+
+
 ### أبو عبيدة (N/A, Thu, 24 Oct 2024 14:20:00 -0700)
 
 - **بعد أن توقع اغتيال "نصر الله" و"السنوار".. "الحسيني" يوجه رسالة تحذير 
