@@ -1,3 +1,11 @@
+### barca vs real madrid (N/A, Wed, 23 Oct 2024 14:00:00 -0700)
+
+- **Barça y Real Madrid golean antes del Clásico**: [Link](https://cadenaser.com/nacional/2024/10/24/barca-y-real-madrid-golean-antes-del-clasico-cadena-ser/)
+- **Celebran en Barcelona: La victoria que condena al Real Madrid en 'El 
+Clásico'**: [Link](https://apuestas.betfair.es/futbol/futbol-espanol/laliga/celebran-en-barcelona-la-victoria-que-condena-al-real-madrid-en-el-clasico-231024-1245.html)
+- **Las dos formas de la victoria**: [Link](https://www.diariodeburgos.es/noticia/zfca9e1e8-9724-c18e-9d8896d92e73fde3/202410/las-dos-formas-de-la-victoria)
+
+
 ### zone turf (N/A, Thu, 24 Oct 2024 00:00:00 -0700)
 
 - **Tiercé Quarté Quinté d'hier > arrivée, résultats et rapports**: [Link](https://www.paris-turf.com/course/parislongchamp-prix-rieussec-idc-48b4a622e04bda2c18202217fa50da68)
