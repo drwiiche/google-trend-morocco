@@ -1,3 +1,19 @@
+### berrada (N/A, Thu, 24 Oct 2024 12:00:00 -0700)
+
+- **Remaniement. Ceux qui restent, ceux qui partent, ceux qui débarquent**: [Link](https://medias24.com/2024/10/23/remaniement-ceux-qui-restent-ceux-qui-partent-ceux-qui-debarquent/)
+- **Mohamed Saad Berrada, de « roi de la sucette » à ministre de l’Education 
+nationale**: [Link](https://ledesk.ma/2024/10/23/mohamed-saad-berrada-de-roi-de-la-sucette-a-ministre-de-leducation-nationale/)
+- **Gouvernement Akhannouch II: qui sont les six nouveaux secrétaires d’État 
+nommés par le Roi**: [Link](https://fr.le360.ma/politique/gouvernement-akhannouch-ii-qui-sont-les-six-nouveaux-secretaires-detat-nommes-par-le-roi_MJ7GAMEJVBEJPJVXDDTYYXT5M4/)
+
+
+### abdelaziz barrada (N/A, Thu, 24 Oct 2024 11:30:00 -0700)
+
+- **Décès de l'ex-international marocain Abdelaziz Barrada**: [Link](https://fr.hespress.com/392419-deces-de-lex-international-marocain-abdelaziz-barrada.html)
+- **Décès d’Abdelaziz Berrada, ex-international marocain, à l’âge de 35 ans**: [Link](https://laquotidienne.ma/article/info-quotidienne/abdelaziz-berrada)
+- **Décès d'Abdelaziz Barrada**: [Link](https://www.foot01.com/info/deces-d-abdelaziz-barrada-444536)
+
+
 ### ath. bilbao – slavia prague (N/A, Thu, 24 Oct 2024 11:40:00 -0700)
 
 - **Thursday's Europa League predictions and free football tips**: [Link](https://www.racingpost.com/sport/football-tips/europa-league/thursdays-europa-league-predictions-and-free-football-tips-afeja4q2TY0z/)
