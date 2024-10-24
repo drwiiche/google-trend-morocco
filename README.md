@@ -1,3 +1,42 @@
+### al ahly – zamalek (N/A, Thu, 24 Oct 2024 09:40:00 -0700)
+
+- **Gomez: Al-Ahly is very strong, and I trust all the players**: [Link](https://www.ysscores.com/en/news/5890796/Gomez:-Al-Ahly-is-very-strong,-and-I-trust-all-the-players)
+- **Amin Omar appointed referee for Egyptian Super Cup final**: [Link](https://www.kingfut.com/2024/10/24/amin-omar-super-cup-final/)
+- **Ahly’s Koller determined to win the Super Cup despite lack of preparation 
+time - Egyptian Football - Sports**: [Link](https://english.ahram.org.eg/NewsContent/6/51/534020/Sports/Egyptian-Football/Ahly%E2%80%99s-Koller-determined-to-win-the-Super-Cup-desp.aspx)
+
+
+### st. gallen – fiorentina (N/A, Thu, 24 Oct 2024 09:40:00 -0700)
+
+- **Preview: St Gallen vs. Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/st-gallen/europa-conference-league/preview/preview-st-gallen-vs-fiorentina-prediction-team-news-lineups_556096.html)
+- **The stadium where tonight's match will take place. Kybunpark, 20 covered 
+seats**: [Link](https://sport.quotidiano.net/en/calcio/fiorentina/lo-stadio-in-cui-andra-in-scena-la-partita-di-stasera-kybunpark-20mila-posti-coperti-1e78bb7f)
+- **Fiorentina Faces San Gallo in Crucial Conference League Match**: [Link](https://www.ilmessaggero.it/en/fiorentina_faces_san_gallo_in_crucial_conference_league_match-8435749.html?next_page=1)
+
+
+### roma – dynamo kiev (N/A, Thu, 24 Oct 2024 09:40:00 -0700)
+
+- **Preview: Roma vs. Dynamo Kiev - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/roma/europa-league/preview/preview-roma-vs-dynamo-kiev-prediction-team-news-lineups_556093.html)
+- **Vitalii Buialskyi: “We must play densely both in defense and attack”**: [Link](https://fcdynamo.com/en/news/vitalii-buyalskii-u-matci-z-romoyu-potribno-diyati-kompaktno-yak-v-oboroni-tak-i-v-ataci)
+- **Eduardo Guerrero and Dynamo Kyiv Seek First Victory in Europe in Italy**: [Link](https://www.footboom1.com/en/news/football/1981496-eduardo-guerrero-and-dynamo-kyiv-seek-first-victory-in-europe-in-italy)
+
+
+### panathinaikos vs chelsea (N/A, Thu, 24 Oct 2024 09:30:00 -0700)
+
+- **Preview: Panathinaikos vs. Chelsea - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/chelsea/europa-conference-league/preview/preview-panathinaikos-vs-chelsea-prediction-team-news-lineups_556144.html)
+- **What Nkunku, Veiga and Tosin have in common as they prepare for Conference 
+League clash**: [Link](https://chelsea.news/2024/10/tosin-nkunku-veiga-conference-league/)
+- **Why Enzo Maresca could get special treatment from home fans in tonight’s 
+game**: [Link](https://sports.yahoo.com/why-enzo-maresca-could-special-105300432.html)
+
+
+### باناثينايكوس ضد تشيلسي (N/A, Thu, 24 Oct 2024 09:30:00 -0700)
+
+- **ذكريات حزينة تطارد ماريسكا قبل مواجهة باناثينايكوس**: [Link](https://m.kooora.com/?n=1363301&o=n)
+- **ذكريات حزينة تطارد مدرب تشيلسي قبل لقاء باناثينايكوس**: [Link](https://hihi2.com/2024/10/24/p2904867.html)
+- **تشلسي يحط رحاله على أرض باناثينايكوس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%8A%D8%AD%D8%B7-%D8%B1%D8%AD%D8%A7%D9%84%D9%87-%D8%B9%D9%84%D9%89-%D8%A3%D8%B1%D8%B6-%D8%A8%D8%A7%D9%86%D8%A7%D8%AB%D9%8A%D9%86%D8%A7%D9%8A%D9%83%D9%88%D8%B3-2024-10-24)
+
+
 ### m. tel-aviv – real sociedad (N/A, Thu, 24 Oct 2024 08:50:00 -0700)
 
 - **Lemkin before Real Sociedad**: [Link](https://www.maccabi-tlv.co.il/en/2024/10/lemkin-before-real-sociedad/)
