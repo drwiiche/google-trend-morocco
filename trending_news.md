@@ -1,3 +1,11 @@
+### m. tel-aviv – real sociedad (N/A, Thu, 24 Oct 2024 08:50:00 -0700)
+
+- **Lemkin before Real Sociedad**: [Link](https://www.maccabi-tlv.co.il/en/2024/10/lemkin-before-real-sociedad/)
+- **Europa - Maccabi Tel Aviv vs Real Sociedad: Fans Protest Against Israel 
+(Video)**: [Link](https://www.footboom1.com/en/news/football/1981445-europa-maccabi-tel-aviv-vs-real-sociedad-fans-protest-against-israel-video)
+- **Preview: Maccabi Tel Aviv vs. Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/maccabi-tel-aviv/europa-league/preview/preview-mpoint-tel-aviv-vs-real-sociedad-prediction-team-news-lineups_556102.html)
+
+
 ### rodrygo (N/A, Thu, 24 Oct 2024 05:50:00 -0700)
 
 - **Rodrygo: rotura en el bíceps femoral y baja aproximada de 20 días**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/24/rodrygo-pierde-clasico-estara-baja-proximos-20-dias.html)
