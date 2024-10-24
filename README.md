@@ -1,3 +1,27 @@
+### zone turf (N/A, Thu, 24 Oct 2024 00:00:00 -0700)
+
+- **Tiercé Quarté Quinté d'hier > arrivée, résultats et rapports**: [Link](https://www.paris-turf.com/course/parislongchamp-prix-rieussec-idc-48b4a622e04bda2c18202217fa50da68)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 9 Happy du 
+Bois**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-9-happy-du-bois-125816.html)
+- **Quinté Plus PMU : Jango Vici trouve un magnifique engagement**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-jango-vici-trouve-un-magnifique-engagement-125830.html)
+
+
+### e coli (N/A, Thu, 24 Oct 2024 00:00:00 -0700)
+
+- **What we know about the McDonald’s E. coli outbreak investigation**: [Link](https://www.cnn.com/2024/10/23/health/mcdonalds-e-coli-quarter-pounder-investigation/index.html)
+- **E. coli Outbreak Linked to McDonald’s Quarter Pounders**: [Link](https://www.cdc.gov/ecoli/outbreaks/e-coli-O157.html)
+- **Coloradan who died from E. coli infection linked to McDonald’s food was 
+Mesa County resident**: [Link](https://www.cpr.org/2024/10/23/e-coli-mcdonalds-mesa-county-victim/)
+
+
+### nba (N/A, Wed, 23 Oct 2024 23:50:00 -0700)
+
+- **Intuit Dome debut proved James Harden is returning to MVP form**: [Link](https://clipperholics.com/intuit-dome-debut-proved-james-harden-returning-mvp-form)
+- **Kevin Durant Puts Up 25**: [Link](https://bleacherreport.com/videos/596317-kevin-durant-puts-up-25)
+- **Game Recap: Suns Escape from L.A., winning 116-113 in season opener against 
+Clippers**: [Link](https://www.brightsideofthesun.com/2024/10/23/24277392/game-recap-phoenix-suns-escape-from-l-a-winning-116-113-season-opener-against-los-angeles-clippers)
+
+
 ### nouveau gouvernement marocain (N/A, Wed, 23 Oct 2024 23:10:00 -0700)
 
 - **Remaniement : voici les membres du gouvernement Akhannouch II**: [Link](https://medias24.com/2024/10/23/att-remaniement-voici-les-membres-du-gouvernement-akhannouch-ii/)
