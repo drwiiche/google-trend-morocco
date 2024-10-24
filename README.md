@@ -1,3 +1,18 @@
+### lyon – besiktas (N/A, Thu, 24 Oct 2024 12:50:00 -0700)
+
+- **Lyon-Beşiktaş Maçı TRT Spor’da mı TRT 1’de Mi Canlı Yayınlanacak?**: [Link](https://www.sportif54.com/lyon-besiktas-maci-trt-sporda-mi-trt-1de-mi-canli-yayinlanacak-132177.html)
+- **Fransa'da ilk 11'ler belli oldu: Beşiktaş'ın kadrosunda kimler var?**: [Link](https://www.egetelgraf.com/fransada-ilk-11ler-belli-oldu-besiktasin-kadrosunda-kimler-var)
+- **Giovanni van Bronckhorst: Puan ve puanlar almak istiyoruz! - Futbol 
+Haberleri**: [Link](https://www.haberturk.com/giovanni-van-bronckhorst-puan-ve-puanlar-almak-istiyoruz-3731728-spor)
+
+
+### ahly vs zamalek (N/A, Thu, 24 Oct 2024 12:50:00 -0700)
+
+- **مباشر.. مباراة الأهلي ضد الزمالك (0-0) في نهائي السوبر المصري**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/24/al-ahly-vs-zamalek)
+- **بث مباشر: شاهد مباراة الأهلي والزمالك في نهائي السوبر المصري 2024**: [Link](https://www.kooora.com/?n=1363492)
+- **نهائي مصري قوي ومثير بنكهة مغربية**: [Link](https://ar.sport.le360.ma/football/W7QSGO2W4ZBQPDGHXP4W3XXILA/)
+
+
 ### real betis vs copenhagen (N/A, Thu, 24 Oct 2024 12:20:00 -0700)
 
 - **Betis vs. København (25 Oct, 2024) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/720640)
