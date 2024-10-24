@@ -1,3 +1,10 @@
+### lille fc (N/A, Wed, 23 Oct 2024 14:40:00 -0700)
+
+- **Ligue 1 Predictions | Round 8**: [Link](https://www.getfootballnewsfrance.com/2024/ligue-1-predictions-round-8-3/)
+- **Monaco and Lille Draw as PSG Closes In**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/monaco-and-lille-draw-as-psg-closes-in-2024-10-18)
+- **The reactions of Lamine Camara and George Ilenikhena after facing Lille**: [Link](https://onefootball.com/es/noticias/the-reactions-of-lamine-camara-and-george-ilenikhena-after-facing-lille-40187337)
+
+
 ### musiala (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
 
 - **Musiala expected to start on Bayern's bench against Barcelona**: [Link](https://bulinews.com/musiala-start-bench-against-barcelona)
