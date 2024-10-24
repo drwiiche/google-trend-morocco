@@ -1,3 +1,17 @@
+### تركيا (N/A, Thu, 24 Oct 2024 13:00:00 -0700)
+
+- **وزير الداخلية التركي يكشف عن هوية المنفذ الثاني لهجوم أنقرة**: [Link](https://www.aljazeera.net/news/2024/10/24/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%87%D9%88%D9%8A%D8%A9)
+- **باحث سياسي لـCNN: هجوم أنقرة جاء بعد مناقشة "القضية الكردية" في برلمان تركيا**: [Link](https://arabic.cnn.com/middle-east/video/2024/10/24/v164276-turkey-attack-ctw-dalay-guest-live-ctw)
+- **سرّ الهجوم على "قلب صناعة الدفاع التركية"**: [Link](https://www.alhurra.com/turkey/2024/10/24/%D8%B3%D8%B1%D9%91-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85-%D9%82%D9%84%D8%A8-%D8%B5%D9%86%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9)
+
+
+### barrada (N/A, Thu, 24 Oct 2024 12:50:00 -0700)
+
+- **Ex-Marseille and Morocco footballer dies suddenly aged 35**: [Link](https://www.dailystar.co.uk/sport/football/breaking-abdelaziz-barrada-dies-35-33966374)
+- **Abdel Barrada Passes Away at 35 Due to Cardiac Failure**: [Link](https://www.footboom1.com/en/news/football/1985572-abdel-barrada-passes-away-at-35-due-to-cardiac-failure)
+- **Former Moroccan International Abdelaziz Barrada Dies at 35**: [Link](https://www.moroccoworldnews.com/2024/10/365944/former-moroccan-international-abdelaziz-barrada-dies-at-35)
+
+
 ### lyon – besiktas (N/A, Thu, 24 Oct 2024 12:50:00 -0700)
 
 - **Lyon-Beşiktaş Maçı TRT Spor’da mı TRT 1’de Mi Canlı Yayınlanacak?**: [Link](https://www.sportif54.com/lyon-besiktas-maci-trt-sporda-mi-trt-1de-mi-canli-yayinlanacak-132177.html)
