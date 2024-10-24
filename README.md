@@ -1,3 +1,12 @@
+### musiala (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
+
+- **Musiala expected to start on Bayern's bench against Barcelona**: [Link](https://bulinews.com/musiala-start-bench-against-barcelona)
+- **Training Report: Bayern Munich’s Jamal Musiala trains again, looks fir for 
+FC Barcelona; Hiroki Ito works out; and MORE!**: [Link](https://www.bavarianfootballworks.com/2024/10/22/24276578/training-report-bayern-munich-jamal-musiala-trains-again-hiroki-ito-kane-muller-kimmich)
+- **Bayern Munich midfielder ‘working intensively’ to return against Barcelona 
+– report**: [Link](https://barcauniversal.com/bayern-munich-midfielder-working-intensively-to-return-against-barcelona-report/)
+
+
 ### الملك محمد السادس (N/A, Wed, 23 Oct 2024 15:30:00 -0700)
 
 - **الملك يستقبل الأعضاء الجدد المعينين بالهاكا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%B9%D9%8A%D9%86%D9%8A%D9%86-%D8%A8-1452656.html)
