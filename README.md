@@ -1,3 +1,10 @@
+### الملك محمد السادس (N/A, Wed, 23 Oct 2024 15:30:00 -0700)
+
+- **الملك يستقبل الأعضاء الجدد المعينين بالهاكا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%B9%D9%8A%D9%86%D9%8A%D9%86-%D8%A8-1452656.html)
+- **الملك محمد السادس يبعث ببرقية تعزية لأسرة الإعلامي بلعيد بويميد**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%B9%D9%8A%D9%86%D9%8A%D9%86-%D8%A8/)
+- **جلالة الملك يستقبل الأعضاء الجدد في الهاكا**: [Link](https://rue20.com/848424.html)
+
+
 ### rafinha (N/A, Wed, 23 Oct 2024 13:40:00 -0700)
 
 - **Raphinha: Williams Barça shirts were disrespectful**: [Link](https://www.espn.com/soccer/story/_/id/41940843/nico-williams-barcelona-shirts-showed-disrespect-raphinha)
