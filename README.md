@@ -1,3 +1,12 @@
+### amine tahraoui ministre (N/A, Wed, 23 Oct 2024 14:30:00 -0700)
+
+- **Qui est Amine Tahraoui, le poulain du couple Akhannouch nommé ministre de 
+la Santé**: [Link](https://ledesk.ma/2024/10/23/qui-est-amine-tahraoui-le-poulain-du-couple-akhannouch-nomme-ministre-de-la-sante/)
+- **Qui est Amine Tahraoui, le nouveau ministre de la Santé?**: [Link](https://fr.hespress.com/392174-qui-est-amine-tahraoui-le-nouveau-ministre-de-la-sante.html)
+- **Qui est Amine Tahraoui, le nouveau ministre de la Santé et de la Protection 
+sociale ?**: [Link](https://www.lopinion.ma/Qui-est-Amine-Tahraoui-le-nouveau-ministre-de-la-Sante-et-de-la-Protection-sociale_a59355.html)
+
+
 ### barca vs real madrid (N/A, Wed, 23 Oct 2024 14:00:00 -0700)
 
 - **Barça y Real Madrid golean antes del Clásico**: [Link](https://cadenaser.com/nacional/2024/10/24/barca-y-real-madrid-golean-antes-del-clasico-cadena-ser/)
