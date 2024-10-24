@@ -1,3 +1,10 @@
+### malmö – olympiakos (N/A, Thu, 24 Oct 2024 13:30:00 -0700)
+
+- **Rydström om missnöjet: "Vi får inte gå vilse i ett felsökande"**: [Link](https://www.fotbollskanalen.se/europa-league/rydstrom-om-missnojet-vi-far-inte-ga-vilse-i-ett-felsokande/)
+- **Simon Kroon om att göra mål för MFF mot Olympiakos: "Ett minne för livet"**: [Link](https://gasetten.se/malmo-ff/simon-kroon-om-att-gora-mal-for-mff-mot-olympiakos-ett-minne-for-livet/)
+- **Henrik Rydström inför Olympiacos**: [Link](https://www.mff.se/henrik-rydstrom-infor-olympiacos/)
+
+
 ### تركيا (N/A, Thu, 24 Oct 2024 13:00:00 -0700)
 
 - **وزير الداخلية التركي يكشف عن هوية المنفذ الثاني لهجوم أنقرة**: [Link](https://www.aljazeera.net/news/2024/10/24/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%87%D9%88%D9%8A%D8%A9)
