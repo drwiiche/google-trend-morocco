@@ -1,3 +1,18 @@
+### ath. bilbao – slavia prague (N/A, Thu, 24 Oct 2024 11:40:00 -0700)
+
+- **Thursday's Europa League predictions and free football tips**: [Link](https://www.racingpost.com/sport/football-tips/europa-league/thursdays-europa-league-predictions-and-free-football-tips-afeja4q2TY0z/)
+- **Valverde Names 25-Man Squad for Slavia Clash, Including Vesga and Sancet**: [Link](https://www.footboom1.com/en/news/football/1980503-valverde-names-25-man-squad-for-slavia-clash-including-vesga-and-sancet)
+- **Football Bet of the Day: San Mames showdown to deliver goals**: [Link](https://betting.betfair.com/football/the-jokers-bet-of-the-day/athletic-club-v-slavia-prague-betting-tips---san-mames-showdown-to-deliver-goals-241024-140.html)
+
+
+### عبد العزيز برادة (N/A, Thu, 24 Oct 2024 11:20:00 -0700)
+
+- **عاجل/ وفاة لاعب المنتخب المغربي السابق عبد العزيز برادة**: [Link](https://www.elbotola.com/article/2024-10-24-18-37-496.html)
+- **عبد العزيز برادة في ذمة الله**: [Link](https://sport.al3omk.com/70891.html)
+- **وفاة عبد العزيز برادة لاعب المنتخب المغربي سابقا بسبب سكته قلبية - موقع 
+كوول - gool**: [Link](https://achtari24.com/gool/2024/10/24/%D9%88%D9%81%D8%A7%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A8%D8%B1%D8%A7%D8%AF%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85/)
+
+
 ### betis – copenhague (N/A, Thu, 24 Oct 2024 11:20:00 -0700)
 
 - **Preview: Real Betis vs. Copenhagen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/europa-conference-league/preview/preview-betis-vs-copenhagen-prediction-team-news-lineups_556164.html)
