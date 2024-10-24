@@ -1,3 +1,10 @@
+### al riyad – al ittihad (N/A, Thu, 24 Oct 2024 10:40:00 -0700)
+
+- **High-flyers Al Riyadh and Al Ittihad meet, Donis returns to Al Wehda**: [Link](https://onefootball.com/en/news/high-flyers-al-riyadh-and-al-ittihad-meet-donis-returns-to-al-wehda-40208946)
+- **Preview: Al Riyadh vs. Al Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-riyadh/preview/preview-al-riyadh-vs-al-ittihad-prediction-team-news-lineups_556112.html)
+- **Detecting developments in the bilateral union injury**: [Link](https://www.ysscores.com/en/news/5805764/Detecting-developments-in-the-bilateral-union-injury)
+
+
 ### ferencváros tc – nice (N/A, Thu, 24 Oct 2024 10:10:00 -0700)
 
 - **Ferencvaros-Nice: Abdelmonem ne veut plus faire "flipper" les Niçois**: [Link](https://rmcsport.bfmtv.com/football/europa-league/ferencvaros-nice-abdelmonem-ne-veut-plus-faire-flipper-les-nicois_AV-202410240558.html)
