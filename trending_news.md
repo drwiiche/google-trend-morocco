@@ -1,3 +1,20 @@
+### ferencváros tc – nice (N/A, Thu, 24 Oct 2024 10:10:00 -0700)
+
+- **Ferencvaros-Nice: Abdelmonem ne veut plus faire "flipper" les Niçois**: [Link](https://rmcsport.bfmtv.com/football/europa-league/ferencvaros-nice-abdelmonem-ne-veut-plus-faire-flipper-les-nicois_AV-202410240558.html)
+- **La minute Rouge et Noir : Rapace ou ça casse à Budapest !**: [Link](https://www.radiofrance.fr/francebleu/podcasts/la-minute-rouge-et-noir/la-minute-rouge-et-noir-rapace-ou-ca-casse-a-budapest-4532209)
+- **Ferencváros - Nice en direct commenté**: [Link](https://www.ogcnice.com/fr/video/127753/ferencvaros-nice-en-direct-commente.html)
+
+
+### mcdonald's (N/A, Thu, 24 Oct 2024 10:10:00 -0700)
+
+- **FDA eyes McDonald's supplier Taylor Farms' onions as source of E. Coli 
+outbreak**: [Link](https://www.nbcnews.com/health/health-news/fda-mcdonalds-e-coli-onions-farms-source-rcna177007)
+- **Onions Recalled in Deadly E.Coli Outbreaks Linked to McDonald’s Quarter 
+Pounders**: [Link](https://www.nytimes.com/2024/10/24/health/mcdonalds-ecoli-quarter-pounders-recall.html)
+- **Amid McDonald’s-linked E. coli outbreak, here are symptoms to watch for and 
+ways to stay safe**: [Link](https://www.cnn.com/2024/10/24/health/mcdonalds-e-coli-outbreak-symptoms-treatment-wellness/index.html)
+
+
 ### al ahly – zamalek (N/A, Thu, 24 Oct 2024 09:40:00 -0700)
 
 - **Gomez: Al-Ahly is very strong, and I trust all the players**: [Link](https://www.ysscores.com/en/news/5890796/Gomez:-Al-Ahly-is-very-strong,-and-I-trust-all-the-players)
