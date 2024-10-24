@@ -1,3 +1,49 @@
+### betis – copenhague (N/A, Thu, 24 Oct 2024 11:20:00 -0700)
+
+- **Preview: Real Betis vs. Copenhagen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/europa-conference-league/preview/preview-betis-vs-copenhagen-prediction-team-news-lineups_556164.html)
+- **Pellegrini admits Copenhagen clash a must-win for Real Betis**: [Link](https://www.tribalfootball.com/article/soccer-laliga-pellegrini-admits-copenhagen-clash-a-must-win-for-real-betis-346d9f8c-4bb4-464c-a231-925838208bc0)
+- **Real Betis vs Copenhagen Predictions & Tips – Back the Home Team in the 
+Conference League**: [Link](https://www.freetips.com/football/uefa-europa-conference-league/real-betis-vs-copenhagen-predictions-20241023-0034/)
+
+
+### fenerbahçe vs man united (N/A, Thu, 24 Oct 2024 11:20:00 -0700)
+
+- **Manchester United: Inside Jose Mourinho's two-year reign at Old Trafford**: [Link](https://www.bbc.com/sport/football/articles/cwy1302n0q5o)
+- **Amrabat and Mazraoui Set for Moroccan Duel in Istanbul: When, How to Watch**: [Link](https://moroccoworldnews.com/2024/10/365921/amrabat-and-mazraoui-set-for-moroccan-duel-in-istanbul-when-how-to-watch)
+- **Ten Hag Responds to Mourinho: "When You Don't Win..."**: [Link](https://www.footboom1.com/en/news/football/1983594-ten-hag-responds-to-mourinho-when-you-don-t-win)
+
+
+### فنربخشة ضد مان يونايتد (N/A, Thu, 24 Oct 2024 11:20:00 -0700)
+
+- **تشكيلة مانشستر يونايتد الرسمية لمباراة فنربخشة في الدوري الأوروبي**: [Link](https://hihi2.com/2024/10/24/p2905371.html)
+- **مزراوي والنصيري وجها لوجه في مباراة اليونايتد وفنربخشة**: [Link](https://www.kooora.com/?n=1363525)
+- **مواجهة مرتقبة بين فنربهتشه جوزيه مورينيو ويونايتد تين هاغ**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%81%D9%86%D8%B1%D8%A8%D9%87%D8%AA%D8%B4%D9%87-%D8%AC%D9%88%D8%B2%D9%8A%D9%87-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%88%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%AA%D9%8A%D9%86-%D9%87%D8%A7%D8%BA-2024-10-24)
+
+
+### tottenham – az (N/A, Thu, 24 Oct 2024 11:20:00 -0700)
+
+- **Tottenham v AZ Alkmaar: Team news, betting odds, where to watch, lineups, 
+prediction**: [Link](https://www.tottenhamhotspurnews.com/news/tottenham-v-az-alkmaar-team-news-betting-odds-where-to-watch-lineups-prediction/)
+- **Pundit askes Ange to be wary about Parrott ahead of UEL clash**: [Link](https://tothelaneandback.com/2024/10/24/pundit-askes-ange-to-be-wary-about-former-player-parrott-ahead-of-europa-league-clash/)
+- **Postecoglou confirms Son will miss AZ clash**: [Link](https://www.beinsports.com/en-us/soccer/uefa-europa-league/articles/postecoglou-confirms-son-will-miss-az-clash-2024-10-23)
+
+
+### rodrygo real madrid (N/A, Thu, 24 Oct 2024 11:20:00 -0700)
+
+- **Rodrygo: rotura en el bíceps femoral y baja aproximada de 20 días**: [Link](https://www.marca.com/futbol/real-madrid/2024/10/24/rodrygo-pierde-clasico-estara-baja-proximos-20-dias.html)
+- **Parte médico de Courtois**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-de-courtois-23-10-2024)
+- **Ancelotti ya tiene su alineación para el Clásico tras el K.O de Courtois y 
+Rodrygo**: [Link](https://www.defensacentral.com/real_madrid/1709329169-ancelotti-ya-tiene-su-alineacion-para-el-clasico-tras-el-ko-de-courtois-y-rodrygo)
+
+
+### fenerbahçe – manchester united (N/A, Thu, 24 Oct 2024 11:10:00 -0700)
+
+- **UEFA Avrupa Ligi Fenerbahçe - Manchester United maçı hangi kanalda ? 
+Şifresiz mi ? İşte Muhtemel 11'ler**: [Link](https://bha.net.tr/son-dakika/uefa-avrupa-ligi-fenerbahce-manchester-united-maci-hangi-kanalda-sifresiz-mi-iste-muhtemel-11ler)
+- **Jose Mourinho: "Kazanmak için savaşacağız"**: [Link](https://www.ntvspor.net/futbol/jose-mourinho-kazanmak-icin-savasacagiz-671a908d3b902603f7735d64)
+- **Fred: Bu sezon kesinlikle şampiyon olmak zorundayız**: [Link](https://t24.com.tr/haber/fred-bu-sezon-kesinlikle-sampiyon-olmak-zorundayiz,1191944)
+
+
 ### al riyad – al ittihad (N/A, Thu, 24 Oct 2024 10:40:00 -0700)
 
 - **High-flyers Al Riyadh and Al Ittihad meet, Donis returns to Al Wehda**: [Link](https://onefootball.com/en/news/high-flyers-al-riyadh-and-al-ittihad-meet-donis-returns-to-al-wehda-40208946)
