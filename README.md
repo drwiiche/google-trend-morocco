@@ -1,3 +1,20 @@
+### kick (N/A, Thu, 24 Oct 2024 19:00:00 -0700)
+
+- **Kick bans Xenathewitch for violence after she tied a person up on stream 
+against their will**: [Link](https://www.sportskeeda.com/us/streamers/news-kick-bans-xenathewitch-violence-tied-person-stream-will)
+- **How to watch Matildas vs. Switzerland in Australia: Live stream, TV channel 
+for friendly match**: [Link](https://www.sportingnews.com/au/football/news/matildas-switzerland-australia-live-stream/127354464f76ecfddb038bd2)
+- **Tillies vow to improve world ranking**: [Link](https://www.codesports.com.au/football/tillies-vow-to-improve-world-ranking/video/aa9fb575310999cca2d29191dd9a3125)
+
+
+### نادين الراسي (N/A, Thu, 24 Oct 2024 17:40:00 -0700)
+
+- **نادين الراسي تترك منزلها بـ«البيجاما» بسبب القصف الإسرائيلي**: [Link](https://www.alquds.co.uk/%D9%86%D8%A7%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%B1%D8%A7%D8%B3%D9%8A-%D8%AA%D8%AA%D8%B1%D9%83-%D9%85%D9%86%D8%B2%D9%84%D9%87%D8%A7-%D8%A8%D9%80%D8%A7%D9%84%D8%A8%D9%8A%D8%AC%D8%A7%D9%85%D8%A7/)
+- **نادين الراسى تتصدر التريند بعد إدانتها الوضع في لبنان: بنهرب بالبيجاما**: [Link](https://www.youm7.com/story/2024/10/23/%D9%86%D8%A7%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%B1%D8%A7%D8%B3%D9%89-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D9%8A%D9%86%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%A5%D8%AF%D8%A7%D9%86%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D9%88%D8%B6%D8%B9-%D9%81%D9%8A-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%A8%D9%86%D9%87%D8%B1%D8%A8/6751676)
+- **"هربت بالروب والبيجاما".. نادين الراسي تتصدر تريند جوجل بعد مغادرة منزلها 
+في لبنان**: [Link](https://www.masrawy.com/arts/zoom/details/2024/10/23/2662897/-%D9%87%D8%B1%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D8%B1%D9%88%D8%A8-%D9%88%D8%A7%D9%84%D8%A8%D9%8A%D8%AC%D8%A7%D9%85%D8%A7-%D9%86%D8%A7%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%B1%D8%A7%D8%B3%D9%8A-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AA%D8%B1%D9%8A%D9%86%D8%AF-%D8%AC%D9%88%D8%AC%D9%84-%D8%A8%D8%B9%D8%AF-%D9%85%D8%BA%D8%A7%D8%AF%D8%B1%D8%A9-%D9%85%D9%86%D8%B2%D9%84%D9%87%D8%A7-%D9%81%D9%8A-%D9%84%D8%A8%D9%86%D8%A7%D9%86)
+
+
 ### tottenham (N/A, Thu, 24 Oct 2024 13:20:00 -0700)
 
 - **Timo Werner must be axed at half-time in Tottenham v AZ Alkmaar**: [Link](https://www.tottenhamhotspurnews.com/statsandtactics/ange-postecoglou-must-drag-timo-werner-off-at-half-time-in-tottenham-v-az-alkmaar/)
