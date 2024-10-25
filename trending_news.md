@@ -1,3 +1,11 @@
+### barca vs real (N/A, Fri, 25 Oct 2024 15:00:00 -0700)
+
+- **El Clasico: Explaining Real Madrid's La Liga unbeaten run**: [Link](https://www.bbc.com/sport/football/articles/c207l14xlp6o)
+- **El Clásico Real Madrid vs Barcelona: Carlo Ancelotti Praises Lamine Yamal 
+Ahead of El Clásico**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/carlo-ancelotti-praises-lamine-yamal-ahead-of-el-cl%C3%A1sico-2024-10-25)
+- **Guti and Kluivert: Premium Analysts for 'El Clásico' on DAZN**: [Link](https://www.footboom1.com/en/news/football/1988998-guti-and-kluivert-premium-analysts-for-el-clasico-on-dazn)
+
+
 ### footballeur abdelaziz barrada (N/A, Fri, 25 Oct 2024 14:10:00 -0700)
 
 - **Décès de l'ex-international marocain Abdelaziz Barrada**: [Link](https://fr.hespress.com/392419-deces-de-lex-international-marocain-abdelaziz-barrada.html)
