@@ -1,3 +1,11 @@
+### raja casablanca (N/A, Fri, 25 Oct 2024 12:10:00 -0700)
+
+- **Botola: L'AS FAR proteste contre l’arbitrage du match face au Raja**: [Link](https://fr.hespress.com/392079-botola-las-far-proteste-contre-larbitrage-du-match-face-au-raja.html)
+- **Botola Pro D1 : Le Raja Casablanca et l'AS FAR se quittent dos à dos**: [Link](https://www.menara.ma/fr/article/botola-pro-d1-le-raja-casablanca-et-las-far-se-quittent-dos-a-dos-2)
+- **Botola : le Clasico Raja-AS FAR en vedette, l’Ittihad Tanger accueille la 
+RCAZ pour consolider son leadership**: [Link](https://lematin.ma/sports/botola-le-clasico-raja-as-far-en-vedette/248169)
+
+
 ### ترتيب البطولة المغربية (N/A, Fri, 25 Oct 2024 12:00:00 -0700)
 
 - **بطرد لاعبه بيكورو أمام "الماص".. الرجاء الرياضي يحصد بطاقته الحمراء الأولى 
