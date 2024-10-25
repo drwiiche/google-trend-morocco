@@ -1,3 +1,12 @@
+### iran (N/A, Fri, 25 Oct 2024 16:30:00 -0700)
+
+- **Several explosions heard in Tehran, Iranian state media say: Live updates**: [Link](https://www.cnn.com/world/live-news/israel-iran-lebanon-gaza-war-10-25-24-intl-hnk/index.html)
+- **Israel at War Day 385 Iranian Reports: At Least Five Explosions Heard in 
+Tehran and Nearby City in Iran**: [Link](https://www.haaretz.com/israel-news/2024-10-25/ty-article-live/.premium/israel-warns-residents-in-south-beirut-to-evacuate-as-idf-airstrike-continue/00000192-c169-d249-a99a-e5fd098a0000)
+- **Explosion reported in a building allegedly belonging to the Iranian 
+security system in Tehran**: [Link](https://www.jpost.com/breaking-news/article-826110)
+
+
 ### barca vs real (N/A, Fri, 25 Oct 2024 15:00:00 -0700)
 
 - **El Clasico: Explaining Real Madrid's La Liga unbeaten run**: [Link](https://www.bbc.com/sport/football/articles/c207l14xlp6o)
