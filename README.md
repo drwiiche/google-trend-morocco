@@ -1,3 +1,12 @@
+### nba (N/A, Thu, 24 Oct 2024 19:30:00 -0700)
+
+- **Klay Thompson sets Dallas Mavericks record on debut against San Antonio 
+Spurs**: [Link](https://www.bbc.com/sport/basketball/articles/cx2ymxp30p8o)
+- **NBA Season Kickoff: Kleber and Dallas Open with Victory**: [Link](https://www.footboom1.com/en/news/basketball/1986637-nba-season-kickoff-kleber-and-dallas-open-with-victory)
+- **Klay Thompson Saved Luka Doncic From Huge Embarrassment on Day 1 At The 
+Job: "Not Look Stupid"**: [Link](https://www.essentiallysports.com/nba-active-basketball-news-klay-thompson-saved-luka-doncic-from-huge-embarrassment-on-day-one-at-the-job-not-look-stupid/)
+
+
 ### staffan de mistura (N/A, Thu, 24 Oct 2024 13:50:00 -0700)
 
 - **UN envoy proposes partitioning Western Sahara**: [Link](https://apnews.com/article/western-sahara-morocco-united-nations-ca8345164fdfc69cf9696635aa481bcb)
