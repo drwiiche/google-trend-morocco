@@ -1,3 +1,11 @@
+### ترتيب البطولة المغربية (N/A, Fri, 25 Oct 2024 12:00:00 -0700)
+
+- **بطرد لاعبه بيكورو أمام "الماص".. الرجاء الرياضي يحصد بطاقته الحمراء الأولى 
+هذا الموسم في الدوري الاحترافي**: [Link](https://m.elbotola.com/article/2024-10-25-18-11-344.html)
+- **سا بينتو يستدعي لاعبا مثيرا للجدل لمباراة الرجاء والمغرب ا...**: [Link](https://sport.lesiteinfo.com/elbotola/448554.html)
+- **مدرب إيطالي يجهز "مفاجأة" لريكاردو سابينتو قبل مواجهة المغرب الفاسي**: [Link](https://ar.sport.le360.ma/football/F7IRJ3VZJVFCNC3AYHCP7FUXCM/)
+
+
 ### rennes – le havre (N/A, Fri, 25 Oct 2024 11:40:00 -0700)
 
 - **Rennes-Le Havre, compos : Digard tanche pour Ayew ! Un choix fort pour le 
