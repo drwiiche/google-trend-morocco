@@ -1,3 +1,13 @@
+### emmanuel macron maroc (N/A, Fri, 25 Oct 2024 12:30:00 -0700)
+
+- **Visite d'Emmanuel Macron au Maroc : à quelles retombées économiques 
+s'attendre ?**: [Link](https://lematin.ma/economie/visite-de-macron-au-maroc-a-quelles-retombees-economiques-sattendre/248554)
+- **Visite d'Emmanuel Macron : le casting des grandes entreprises françaises 
+qui se déplaceront au Maroc**: [Link](https://telquel.ma/2024/10/25/visite-demmanuel-macron-le-casting-des-grandes-entreprises-francaises-qui-se-deplaceront-au-maroc_1900936)
+- **Eau, énergie, et sécurité: les sujets au menu de la visite d’Emmanuel 
+Macron à Rabat**: [Link](https://ledesk.ma/2024/10/24/eau-energie-et-securite-les-sujets-au-menu-de-la-visite-demmanuel-macron-a-rabat/)
+
+
 ### rca (N/A, Fri, 25 Oct 2024 12:20:00 -0700)
 
 
