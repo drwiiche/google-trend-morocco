@@ -1,3 +1,20 @@
+### iam (N/A, Fri, 25 Oct 2024 09:10:00 -0700)
+
+- **Does that 2% pay raise mean federal employees are chumps?**: [Link](https://federalnewsnetwork.com/tom-temin-commentary/2024/10/does-that-2-pay-raise-mean-federal-employees-are-chumps/)
+- **Striking workers’ pension demand reflects longing for a bygone era**: [Link](https://www.washingtonpost.com/business/2024/10/25/pensions-boeing/)
+- **As Machinists strike extends, Boeing is running out of runway**: [Link](https://www.seattletimes.com/business/boeing-aerospace/as-machinists-strike-extends-boeing-is-running-out-of-runway/)
+
+
+### mohamed saad berrada ministre (N/A, Fri, 25 Oct 2024 09:10:00 -0700)
+
+- **Akhannouch: les sortants ont travaillé avec sérieux mais il fallait un 
+nouvel élan**: [Link](https://medias24.com/2024/10/25/akhannouch-les-sortants-ont-travaille-avec-serieux-mais-il-fallait-un-nouvel-elan/)
+- **Gouvernement Akhannouch II : la répartition des portefeuilles par parti 
+(Infographies)**: [Link](https://medias24.com/2024/10/25/gouvernement-akhannouch-ii-la-repartition-par-parti/)
+- **Mohamed Saad Berrada, de « roi de la sucette » à ministre de l’Education 
+nationale**: [Link](https://ledesk.ma/2024/10/23/mohamed-saad-berrada-de-roi-de-la-sucette-a-ministre-de-leducation-nationale/)
+
+
 ### الخلود ضد النصر (N/A, Fri, 25 Oct 2024 07:50:00 -0700)
 
 - **بيولي يقرر استبعاد رونالدو من مباراة الخلود**: [Link](https://www.kooora.com/?n=1363498)
