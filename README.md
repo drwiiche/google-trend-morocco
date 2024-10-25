@@ -1,3 +1,10 @@
+### إسبانيول ضد إشبيلية (N/A, Fri, 25 Oct 2024 11:30:00 -0700)
+
+- **إسبانيول يسعى لثأر تاريخي أمام إشبيلية في الدوري الإسباني**: [Link](https://www.egypttelegraph.com/article/84689/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%AB%D8%A3%D8%B1-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%81%D9%8A)
+- **بث مباشر لمباراة إسبانيول ضد إشبيلية في الدوري الإسباني**: [Link](https://alhorianews.com/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D8%B6%D8%AF-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%81/)
+- **موعد مباراة إسبانيول وإشبيلية في الدوري الإنجليزي**: [Link](https://almashhadalaraby.com/news/477611)
+
+
 ### ezzalzouli (N/A, Fri, 25 Oct 2024 11:20:00 -0700)
 
 - **Europa es una quimera para el Betis**: [Link](https://www.marca.com/futbol/betis/2024/10/25/europa-quimera-betis.html)
