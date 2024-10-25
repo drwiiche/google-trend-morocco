@@ -1,3 +1,26 @@
+### ezzalzouli (N/A, Fri, 25 Oct 2024 11:20:00 -0700)
+
+- **Europa es una quimera para el Betis**: [Link](https://www.marca.com/futbol/betis/2024/10/25/europa-quimera-betis.html)
+- **Pesadilla en el Villamarín**: [Link](https://as.com/futbol/uefa/pesadilla-en-el-villamarin-n/)
+- **Los goles de Abde y En-Nesyri no evitan los empates de Betis y Fenerbahçe 
+en Conference y Europa League**: [Link](https://es.rue20.com/2024/10/24/ez-abde-marca-con-el-betis-y-en-nesyri-con-el-fenerbahce-ambos-no-pasan-del-empate/)
+
+
+### espanyol – séville (N/A, Fri, 25 Oct 2024 11:10:00 -0700)
+
+- **Pronostic Espanyol - Séville, Liga**: [Link](https://www.sportytrader.com/pronostics/espanyol-seville-222605/)
+- **Manolo González est clair : "Il faut gagner, chaque match à domicile est 
+une finale"**: [Link](https://www.footboom1.com/fr/news/football/1984637-manolo-gonzalez-is-clear-we-must-win-at-home-every-match-is-a-final)
+- **Las Palmas / Atlético Madrid Football Liga 2024-2025**: [Link](https://tv-programme.com/football-liga_sport/las-palmas-atletico-madrid_e1022562)
+
+
+### leicester – nottm forest (N/A, Fri, 25 Oct 2024 11:10:00 -0700)
+
+- **Paul Merson has made his Leicester City vs Nottingham Forest prediction**: [Link](https://www.nottinghamforest.news/2024/10/25/paul-merson-has-made-his-leicester-city-vs-nottingham-forest-prediction/)
+- **‘We’re On The Right Path’ – Pre-Forest Thoughts From Cooper**: [Link](https://www.lcfc.com/news/4154790/-/featured)
+- **Leicester vs Forest: How to watch, TV channel, kick-off time, date**: [Link](https://www.nottinghamforest.co.uk/news/2024/october/24/forest-vs-crystal-palace--how-to-watch-tv-channel-date/)
+
+
 ### iam (N/A, Fri, 25 Oct 2024 09:10:00 -0700)
 
 - **Does that 2% pay raise mean federal employees are chumps?**: [Link](https://federalnewsnetwork.com/tom-temin-commentary/2024/10/does-that-2-pay-raise-mean-federal-employees-are-chumps/)
