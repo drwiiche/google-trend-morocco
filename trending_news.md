@@ -1,3 +1,11 @@
+### nouveaux walis et gouverneurs (N/A, Fri, 25 Oct 2024 04:10:00 -0700)
+
+- **Qui est Jelloul Samsseme, le nouveau wali directeur général des 
+Collectivités territoriales**: [Link](https://medias24.com/2024/10/24/qui-est-jelloul-samsseme-le-nouveau-wali-directeur-general-des-collectivites-territoriales/)
+- **Le roi Mohammed VI reçoit les nouveaux walis et gouverneurs**: [Link](https://fr.le360.ma/politique/le-roi-mohammed-vi-recoit-les-nouveaux-walis-et-gouverneurs_35UHQBK3WNGTXLQ5EZKO7GVXAY/)
+- **Fès-Meknès: Les chantiers prioritaires du nouveau wali**: [Link](https://www.leconomiste.com/article/1126875-fes-meknes-les-chantiers-prioritaires-du-nouveau-wali)
+
+
 ### العين ضد دبا الحصن (N/A, Fri, 25 Oct 2024 05:40:00 -0700)
 
 - **مدرب كلباء: مباراة الوحدة فرصة للبدلاء**: [Link](https://m.kooora.com/?n=1363398&o=n3116878)
