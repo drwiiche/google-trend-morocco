@@ -1,3 +1,10 @@
+### staffan de mistura (N/A, Thu, 24 Oct 2024 13:50:00 -0700)
+
+- **UN envoy proposes partitioning Western Sahara**: [Link](https://apnews.com/article/western-sahara-morocco-united-nations-ca8345164fdfc69cf9696635aa481bcb)
+- **UN envoy proposes Western Sahara partition plan**: [Link](https://www.reuters.com/world/africa/un-envoy-proposes-western-sahara-partition-plan-2024-10-17/)
+- **Antonio Guterres welcomes Morocco's compliance with the ceasefire**: [Link](https://www.msn.com/en-xl/news/other/antonio-guterres-welcomes-moroccos-compliance-with-the-ceasefire/ar-AA1sNx14)
+
+
 ### kick (N/A, Thu, 24 Oct 2024 19:00:00 -0700)
 
 - **Kick bans Xenathewitch for violence after she tied a person up on stream 
