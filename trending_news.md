@@ -1,3 +1,10 @@
+### العين ضد دبا الحصن (N/A, Fri, 25 Oct 2024 05:40:00 -0700)
+
+- **مدرب كلباء: مباراة الوحدة فرصة للبدلاء**: [Link](https://m.kooora.com/?n=1363398&o=n3116878)
+- **العين على باب دبا الحصن في مواجهة محتدمة بين قمة وقاع الدوري الإماراتي**: [Link](https://alkhabarkw.com/sport/%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A8%D8%A7%D8%A8-%D8%AF%D8%A8%D8%A7-%D8%A7%D9%84%D8%AD%D8%B5%D9%86-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%AD%D8%AA%D8%AF%D9%85/79607/)
+- **«الزعيم» ينشد التعويض قبل «رحلة القارات»**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4524509/-%D8%A7%D9%84%D8%B2%D8%B9%D9%8A%D9%85--%D9%8A%D9%86%D8%B4%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D9%82%D8%A8%D9%84--%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D8%A7%D8%AA)
+
+
 ### teams (N/A, Fri, 25 Oct 2024 01:00:00 -0700)
 
 - **Unrivaled unveils team names, branding**: [Link](https://www.sportsbusinessjournal.com/Articles/2024/10/24/unrivaled-team-branding)
