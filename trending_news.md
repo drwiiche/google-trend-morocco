@@ -1,3 +1,17 @@
+### rca (N/A, Fri, 25 Oct 2024 12:20:00 -0700)
+
+
+
+
+### real madrid vs barcelona (N/A, Fri, 25 Oct 2024 12:20:00 -0700)
+
+- **Un Clásico de muchos quilates: este es el valor de mercado actual de las 
+plantillas de Barça y Real Madrid**: [Link](https://www.mundodeportivo.com/futbol/el-clasico-barca-real-madrid/20241025/1002339545/clasico-quilates-valor-mercado-actual-plantillas-barca-real-madrid.html)
+- **Así han reaccionado los madridistas al show del Barça ante el Bayern**: [Link](https://www.sport.es/es/noticias/real-madrid/han-reaccionado-madridistas-show-barca-110299333)
+- **Javier Tebas: "Esperamos que el Clásico sea un partido para disfrutar y 
+sufrir"**: [Link](https://www.marca.com/futbol/primera-division/2024/10/25/javier-tebas-esperamos-clasico-sea-partido-disfrutar-sufrir.html)
+
+
 ### raja casablanca (N/A, Fri, 25 Oct 2024 12:10:00 -0700)
 
 - **Botola: L'AS FAR proteste contre l’arbitrage du match face au Raja**: [Link](https://fr.hespress.com/392079-botola-las-far-proteste-contre-larbitrage-du-match-face-au-raja.html)
