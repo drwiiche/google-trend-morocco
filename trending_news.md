@@ -1,3 +1,12 @@
+### rennes – le havre (N/A, Fri, 25 Oct 2024 11:40:00 -0700)
+
+- **Rennes-Le Havre, compos : Digard tanche pour Ayew ! Un choix fort pour le 
+HAC**: [Link](https://www.football365.fr/rennes-le-havre-compos-digard-tanche-pour-ayew-un-choix-fort-pour-le-hac-10208809.html)
+- **VIDÉO. Stade Rennais. Les grands débuts du duo Jota - Gomez contre Le Havre 
+?**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/video-stade-rennais-les-grands-debuts-du-duo-jota-gomez-contre-le-havre-6bfa53bb-a2ea-3d4d-b02e-d34bf05ecbb0)
+- **Stade rennais - Le Havre : la compo de Stéphan**: [Link](https://www.stade-rennais-online.com/Stade-rennais-Le-Havre-la-compo-de-Stephan.html)
+
+
 ### إسبانيول ضد إشبيلية (N/A, Fri, 25 Oct 2024 11:30:00 -0700)
 
 - **إسبانيول يسعى لثأر تاريخي أمام إشبيلية في الدوري الإسباني**: [Link](https://www.egypttelegraph.com/article/84689/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%AB%D8%A3%D8%B1-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%81%D9%8A)
