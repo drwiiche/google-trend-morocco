@@ -1,3 +1,20 @@
+### al-kholood club – al-nassr fc (N/A, Fri, 25 Oct 2024 07:20:00 -0700)
+
+- **Preview: Al Kholood vs. Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-kholood/preview/preview-al-kholood-vs-al-nassr-prediction-team-news-lineups_556194.html)
+- **Will Cristiano Ronaldo Play Tonight in SPL? How to Watch Al-Nassr vs 
+Al-Kholood Live Streaming?**: [Link](https://www.republicworld.com/sports/football/will-cristiano-ronaldo-play-tonight-in-spl-how-to-watch-al-nassr-vs-al-kholood-live-streaming)
+- **Al Kholood vs Al Nassr: Where and how to watch live Saudi Pro League 
+2024-25 Matchday 8**: [Link](https://bolavip.com/en/soccer/al-kholood-vs-al-nassr-where-and-how-to-watch-live-saudi-pro-league-2024-25-matchday-8)
+
+
+### classico (N/A, Fri, 25 Oct 2024 07:10:00 -0700)
+
+- **Barcelona’s Dani Olmo: ‘El Clásico is the best match in Europe’**: [Link](https://www.barcablaugranes.com/2024/10/25/24278657/barcelonas-dani-olmo-el-clasico-is-the-best-match-in-europe)
+- **Real Madrid superstar hailed as ‘world-class’ by Barcelona midfielder ahead 
+of Clasico**: [Link](https://madriduniversal.com/real-madrid-superstar-hailed-as-world-class-by-barcelona-midfielder-ahead-of-clasico/)
+- **Barcelona's De Jong Eager for El Clasico Showdown: 'The Pinnacle of Rivalry'**: [Link](https://www.footboom1.com/en/news/football/1987023-barcelona-s-de-jong-eager-for-el-clasico-showdown-the-pinnacle-of-rivalry)
+
+
 ### al ain vs dibba al hisn (N/A, Fri, 25 Oct 2024 06:50:00 -0700)
 
 
