@@ -1,3 +1,17 @@
+### الخلود ضد النصر (N/A, Fri, 25 Oct 2024 07:50:00 -0700)
+
+- **بيولي يقرر استبعاد رونالدو من مباراة الخلود**: [Link](https://www.kooora.com/?n=1363498)
+- **غيابات النصر أمام الخلود في دوري روشن**: [Link](https://hihi2.com/2024/10/25/p2906396.html)
+- **مباشر.. مباراة الخلود ضد النصر في الدوري السعودي للمحترفين**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/25/al-kholood-vs-al-nassr)
+
+
+### ghizlane benjelloun (N/A, Fri, 25 Oct 2024 06:40:00 -0700)
+
+- **Ghizlane Benjelloun désignée Personnalité 2024 de l'ONU au Maroc**: [Link](https://www.leconomiste.com/flash-infos/ghizlane-benjelloun-designee-personnalite-2024-de-l-onu-au-maroc)
+- **Ghizlane Benjelloun désignée personnalité 2024 de l'ONU Maroc**: [Link](https://lematin.ma/societe/ghizlane-benjelloun-designee-personnalite-2024-de-lonu-maroc/248427)
+- **Ghizlane Benjelloun désignée Personnalité 2024 de l'ONU au Maroc**: [Link](https://www.menara.ma/fr/article/ghizlane-benjelloun-designee-personnalite-2024-de-lonu-au-maroc)
+
+
 ### al-kholood club – al-nassr fc (N/A, Fri, 25 Oct 2024 07:20:00 -0700)
 
 - **Preview: Al Kholood vs. Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-kholood/preview/preview-al-kholood-vs-al-nassr-prediction-team-news-lineups_556194.html)
