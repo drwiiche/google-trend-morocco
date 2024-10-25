@@ -1,3 +1,10 @@
+### footballeur abdelaziz barrada (N/A, Fri, 25 Oct 2024 14:10:00 -0700)
+
+- **Décès de l'ex-international marocain Abdelaziz Barrada**: [Link](https://fr.hespress.com/392419-deces-de-lex-international-marocain-abdelaziz-barrada.html)
+- **Message de condoléances et de compassion**: [Link](https://frmf.ma/fr/%D8%AA%D8%B9%D8%B2%D9%8A%D8%A9-%D9%81%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%88%D9%85-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A8%D8%B1%D8%A7%D8%AF%D8%A9/)
+- **Abdelaziz Barrada, ancien milieu de l'OM, est mort à 35 ans**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/abdelaziz-barrada-ancien-milieu-de-l-om-est-mort-a-35-ans_AN-202410240975.html)
+
+
 ### espanyol vs sevilla (N/A, Fri, 25 Oct 2024 12:40:00 -0700)
 
 - **Preview: Espanyol vs. Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/preview-espanyol-vs-sevilla-prediction-team-news-lineups_556181.html)
