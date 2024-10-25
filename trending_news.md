@@ -1,3 +1,11 @@
+### teams (N/A, Fri, 25 Oct 2024 01:00:00 -0700)
+
+- **Unrivaled unveils team names, branding**: [Link](https://www.sportsbusinessjournal.com/Articles/2024/10/24/unrivaled-team-branding)
+- **WNBA star Arike Ogunbowale excited for Unrivaled league: 'We have equity 
+and we want it to keep growing'**: [Link](https://www.cbssports.com/wnba/news/wnba-star-arike-ogunbowale-excited-for-unrivaled-league-we-have-equity-and-we-want-it-to-keep-growing/)
+- **New Unrivaled Basketball League Reveals Sweet New Team Names, Logos**: [Link](https://www.si.com/wnba/new-unrivaled-basketball-league-reveals-sweet-new-team-names-logos)
+
+
 ### nba (N/A, Thu, 24 Oct 2024 19:30:00 -0700)
 
 - **Klay Thompson sets Dallas Mavericks record on debut against San Antonio 
