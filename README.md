@@ -1,3 +1,11 @@
+### espanyol vs sevilla (N/A, Fri, 25 Oct 2024 12:40:00 -0700)
+
+- **Preview: Espanyol vs. Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/preview-espanyol-vs-sevilla-prediction-team-news-lineups_556181.html)
+- **How to Watch LaLiga: Soccer Streaming Live in the US - Friday, October 25**: [Link](https://www.sfgate.com/sports/watching-games/article/laliga-live-stream-10-25-2024-19861230.php)
+- **Espanyol vs Sevilla Prediction, 10/25/2024 La Liga Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/espanyol-vs-sevilla-prediction-10-25-2024-la-liga-soccer-pick-tips-and-odds.html)
+
+
 ### emmanuel macron maroc (N/A, Fri, 25 Oct 2024 12:30:00 -0700)
 
 - **Visite d'Emmanuel Macron au Maroc : à quelles retombées économiques 
