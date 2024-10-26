@@ -1,3 +1,12 @@
+### fc barcelone (N/A, Sat, 26 Oct 2024 00:10:00 -0700)
+
+- **Real Madrid - Barcelone : à quelle heure et sur quelle chaîne regarder le 
+match classico de La Liga en...**: [Link](https://rmcsport.bfmtv.com/football/liga/real-madrid-barcelone-a-quelle-heure-et-sur-quelle-chaine-regarder-le-match-classico-de-la-liga-en-direct_AN-202410260034.html)
+- **Real Madrid : Carlo Ancelotti préparerait des changements surprises pour le 
+Clasico**: [Link](https://www.footmercato.net/a6503821842934360201-real-madrid-carlo-ancelotti-preparerait-des-changements-surprises-pour-le-clasico)
+- **Espagne: premier Clasico de l’ère Mbappé-Yamal**: [Link](https://www.h24info.ma/espagne-premier-clasico-de-lere-mbappe-yamal/)
+
+
 ### اليوم 24 (N/A, Sat, 26 Oct 2024 00:20:00 -0700)
 
 - **تلاعبات مالية في سوق الدواجن ومنازل على وشك الانهيار... دعوات عاجلة لإنقاذ 
