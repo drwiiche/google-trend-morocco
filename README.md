@@ -1,3 +1,10 @@
+### kooora (N/A, Sat, 26 Oct 2024 13:50:00 -0700)
+
+- **أنشيلوتي: الرباعية لا تعكس مجريات الكلاسيكو.. ومساعد فليك غير محترم**: [Link](https://www.kooora.com/?n=1364072)
+- **أول تعليق من أنشيلوتي بعد رباعية برشلونة**: [Link](https://hihi2.com/2024/10/27/p2908993.html)
+- **هانزي فليك يوضح سبب مشاداة كارلو أنشيلوتي في الكلاسيكو**: [Link](https://ar.hibapress.com/details-566877.html)
+
+
 ### hervé renard (N/A, Sat, 26 Oct 2024 15:10:00 -0700)
 
 - **Revealed: The reasons behind 'cold' Roberto Mancini's Saudi Arabia job 
