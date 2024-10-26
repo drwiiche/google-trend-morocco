@@ -1,3 +1,25 @@
+### الهلال ضد التعاون (N/A, Sat, 26 Oct 2024 10:40:00 -0700)
+
+- **جيسوس: بونو سيواصل الغياب.. ولن نستعجل على نيمار**: [Link](https://www.kooora.com/?n=1363710)
+- **مباشر.. الهلال ضد التعاون في الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/26/al-hilal-vs-al-taawoun)
+- **مدرب الهلال السعودي يكشف آخر تطورات إصابة ياسين بونو**: [Link](https://ar.hibapress.com/details-566463.html)
+
+
+### reims – brest (N/A, Sat, 26 Oct 2024 10:40:00 -0700)
+
+- **DIRECT. Reims-Brest (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/reims-brest-live/655938)
+- **OM – PSG : la pique d'Eric Roy sur la programmation du Classique**: [Link](https://www.onzemondial.com/ligue-1/om-psg-la-pique-d-eric-roy-sur-la-programmation-du-classique-922257)
+- **Stade Brestois. « Je ne suis pas un robot », quel est le protocole de 
+récupération mis en place ?**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/stade-brestois-je-ne-suis-pas-un-robot-quel-est-le-protocole-de-recuperation-mis-en-place-d327d8a8-939a-11ef-8d50-f75a8f5479a6)
+
+
+### تشكيلة ريال مدريد (N/A, Sat, 26 Oct 2024 10:30:00 -0700)
+
+- **فينيسيوس ومبابي يقودان ريال مدريد في الكلاسيكو**: [Link](https://www.kooora.com/?n=1363982)
+- **تشكيلة ريال مدريد الرسمية للقاء برشلونة في الليغا**: [Link](https://hihi2.com/2024/10/26/p2908348.html)
+- **دياز يعود لقائمة الريال لمواجهة برشلونة**: [Link](https://www.hespress.com/%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88-1453547.html)
+
+
 ### lionel messi (N/A, Sat, 26 Oct 2024 10:00:00 -0700)
 
 - **'I got so angry with Lionel Messi that even Pep Guardiola told him to shut 
