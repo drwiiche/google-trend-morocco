@@ -1,3 +1,12 @@
+### hervé renard (N/A, Sat, 26 Oct 2024 15:10:00 -0700)
+
+- **Revealed: The reasons behind 'cold' Roberto Mancini's Saudi Arabia job 
+sacking - with an eye-watering tax-free**: [Link](https://www.dailymail.co.uk/sport/football/article-14005109/The-reasons-cold-Roberto-Mancinis-Saudi-Arabia-job-sacking-eye-watering-tax-free-severance.html)
+- **The World’s highest-paid Coach Roberto Mancini has been fired**: [Link](https://sarajevotimes.com/the-worlds-highest-paid-coach-roberto-mancini-has-been-fired/)
+- **Saudi Arabia identify potential Mancini replacement after contract 
+termination**: [Link](https://football-italia.net/saudi-arabia-identify-mancini-replacement/)
+
+
 ### marca (N/A, Sat, 26 Oct 2024 14:00:00 -0700)
 
 
