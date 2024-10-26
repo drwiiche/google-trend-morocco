@@ -1,3 +1,12 @@
+### gafi algérie (N/A, Sat, 26 Oct 2024 16:10:00 -0700)
+
+- **L’Algérie, l’Angola, la Côte d’Ivoire et le Liban ajoutés à la « liste 
+grise » du GAFI, l’organisme de lutte contre le blanchiment**: [Link](https://www.lemonde.fr/international/article/2024/10/25/lutte-contre-le-blanchiment-le-groupe-d-action-financiere-ajoute-quatre-pays-a-sa-liste-grise_6359699_3210.html)
+- **Blanchiment d'argent: Le GAFI ajoute l'Algérie et 3 autres pays à sa liste 
+grise**: [Link](https://fr.hespress.com/392588-blanchiment-dargent-le-gafi-ajoute-lalgerie-et-3-autres-pays-a-sa-liste-grise.html)
+- **Les pays africains les plus anciens de la liste grise du GAFI**: [Link](https://afrique.le360.ma/economie/les-pays-africains-les-plus-anciens-de-la-liste-grise-du-gafi_N4MD4WANHZCOXDAWINHSBVZ4L4/)
+
+
 ### kooora (N/A, Sat, 26 Oct 2024 13:50:00 -0700)
 
 - **أنشيلوتي: الرباعية لا تعكس مجريات الكلاسيكو.. ومساعد فليك غير محترم**: [Link](https://www.kooora.com/?n=1364072)
