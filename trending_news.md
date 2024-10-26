@@ -1,3 +1,19 @@
+### dortmund (N/A, Sat, 26 Oct 2024 07:50:00 -0700)
+
+- **Nächste Hiobsbotschaft für BVB! Nuri Sahin verkündet wochenlangen Ausfall**: [Link](https://www.spox.com/de/sport/fussball/bundesliga/2410/News/naechste-hiobsbotschaft-fuer-bvb-nuri-sahin-verkuendet-wochenlangen-ausfall.html)
+- **Dortmund | Wieder die Leiste: Ryerson mit Verletzung ausgewechselt**: [Link](https://www.ligainsider.de/julian-ryerson_18478/dortmund-wieder-die-leiste-ryerson-mit-verletzung-ausgewechselt-365512/)
+- **Schock für Borussia Dortmund: Abwehrchef Niklas Süle fällt mehrere Wochen 
+mit einer Sprunggelenksverletzung aus**: [Link](https://www.eurosport.de/fussball/bundesliga/2024-2025/schock-fur-borussia-dortmund-abwehrchef-niklas-sule-fallt-mehrere-wochen-mit-einer-sprunggelenksverletzung-aus_sto20048377/story.shtml)
+
+
+### aston villa (N/A, Sat, 26 Oct 2024 07:30:00 -0700)
+
+- **Premier League Aston Villa versus AFC Bournemouth kick off 15:00 Sat 26 Oct 
+2024**: [Link](https://www.bbc.com/sport/football/live/cz6w66wlz4pt)
+- **Team news for Cherries clash**: [Link](https://www.avfc.co.uk/news/2024/october/25/team-news-for-bournemouth-clash/)
+- **Bournemouth midfielder sidelined following knee surgery**: [Link](https://bournemouth.vitalfootball.co.uk/bournemouth-midfielder-sidelined-following-knee-surgery/)
+
+
 ### ufc (N/A, Sat, 26 Oct 2024 07:50:00 -0700)
 
 - **UFC 308 Results: Winners And Losers From Topuria Vs. Holloway Card**: [Link](https://www.forbes.com/sites/trentreinsmith/2024/10/26/ufc-308-results-winners-and-losers-from-topuria-vs-holloway-card/)
