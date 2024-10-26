@@ -1,3 +1,62 @@
+### raphinha (N/A, Sat, 26 Oct 2024 14:00:00 -0700)
+
+- **Barcelona vs. Real Madrid: El Clasico date, time, channel**: [Link](https://www.espn.com/soccer/story/_/id/42001080/barcelona-vs-real-madrid-el-clasico-date-channel)
+- **Rivaldo explains why Raphinha is thriving at Barcelona under Hansi Flick**: [Link](https://www.barcablaugranes.com/2024/10/25/24276544/rivaldo-explains-why-raphinha-is-thriving-at-barcelona-under-hansi-flick)
+- **Real Madrid, beware! Reinvented Raphinha channelling Neymar as Barcelona’s 
+new leading man ahead of El Clasico after silencing Nico Willliams transfer 
+brigade**: [Link](https://www.goal.com/en-in/lists/real-madrid-beware-raphinha-neymar-barcelona-leading-man-el-clasico-silencing-nico-willliams-transfer/blt632ef338f3700495)
+
+
+### classement liga (N/A, Sat, 26 Oct 2024 14:00:00 -0700)
+
+- **DIRECT. Reims-Brest (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/reims-brest-live/655938)
+- **Suivez le multiplex de la 7ème journée de Ligue 1 2024-2025**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/live-stade-de-reims-stade-brestois_mtc1526143/live-commentary.shtml)
+- **OM – PSG : la pique d'Eric Roy sur la programmation du Classique**: [Link](https://www.onzemondial.com/ligue-1/om-psg-la-pique-d-eric-roy-sur-la-programmation-du-classique-922257)
+
+
+### as (N/A, Sat, 26 Oct 2024 14:00:00 -0700)
+
+- **'Do we trust women?': Harris seizes on Beyoncé endorsement as campaign 
+faces a gender divide**: [Link](https://www.usatoday.com/story/news/politics/elections/2024/10/26/kamala-harris-womens-rights-deepening-gender-divide/75858964007/)
+- **'It's time to sing a new song': Beyoncé campaigns for Harris in Houston**: [Link](https://www.cnn.com/2024/10/25/politics/video/beyonce-kamala-harris-houston-rally-digvid)
+- **Multiple people faint as thousands line up outside Shell Energy Stadium 
+ahead of Kamala Harris rally in Houston**: [Link](https://www.click2houston.com/news/local/2024/10/25/multiple-people-faint-as-thousands-line-up-outside-shell-energy-stadium-ahead-of-kamala-harris-rally-in-houston/)
+
+
+### hansi flick (N/A, Sat, 26 Oct 2024 13:50:00 -0700)
+
+- **Barcelona vs Bayern Brawl: When, How to Watch the Game**: [Link](https://moroccoworldnews.com/2024/10/365904/barcelona-vs-bayern-brawl-when-how-to-watch-the-game)
+- **28 km: The difference between Barcelona’s 2-8 humiliation and 4-1 triumph 
+vs Bayern**: [Link](https://barcauniversal.com/28-km-the-difference-between-barcelonas-2-8-humiliation-and-4-1-triumph-vs-bayern/)
+- **'It was revenge!' - Raphinha admits Barcelona's thrashing of Bayern Munich 
+was 'for the fans' after years of humiliation at hands of German giants**: [Link](https://www.goal.com/en-kw/lists/revenge-raphinha-barcelona-thrashing-bayern-munich-for-fans-humiliation-german-giants/blta978cb1aed4d7883)
+
+
+### gavi (N/A, Sat, 26 Oct 2024 13:50:00 -0700)
+
+- **El cambio vital de Gavi tras superar su grave lesión**: [Link](https://as.com/futbol/primera/el-cambio-vital-de-gavi-tras-superar-su-grave-lesion-n/)
+- **Gavi se apunta al once del 'Clásico': "Espero jugar el partido completo"**: [Link](https://www.sport.es/es/noticias/barca/gavi-apunta-once-clasico-espero-110419580)
+- **Hansi Flick, confiado tras la victoria del Barcelona: "Sabemos cómo 
+queremos jugar"**: [Link](https://www.directvsports.com/futbol/Hansi-Flick-confiado-tras-la-victoria-del-Barcelona-Sabemos-como-queremos-jugar-20241020-0050.html)
+
+
+### yamal (N/A, Sat, 26 Oct 2024 13:50:00 -0700)
+
+- **Revealed: Barcelona’s Position on PSG Summer Target as Arsenal, Liverpool 
+Show Interest**: [Link](https://sports.yahoo.com/revealed-barcelona-position-psg-summer-202500536.html)
+- **Barcelona plan to meet with superagent to improve young phenom’s salary – 
+report**: [Link](https://barcauniversal.com/barcelona-plan-to-meet-with-superagent-to-improve-young-phenoms-salary-report/)
+- **What Barcelona insiders are really saying about selling Lamine Yamal to 
+Liverpool**: [Link](https://www.rousingthekop.com/2024/10/26/what-barcelona-insiders-are-really-saying-about-selling-lamine-yamal-to-liverpool/)
+
+
+### live score (N/A, Sat, 26 Oct 2024 13:50:00 -0700)
+
+- **Laying out a perfect Saturday roadmap for Illinois football**: [Link](https://writingillini.com/laying-out-a-perfect-saturday-roadmap-for-illinois-football-01jb4byhjbn0)
+- **The Oregon Defense Finds Its Black, Scary, Freaky Soul**: [Link](https://athlonsports.com/college/ducks-digest/the-oregon-defense-finds-its-black-scary-freaky-soul)
+- **Game Thread: Oregon Hosts Illinois**: [Link](https://www.addictedtoquack.com/2024/10/26/24280211/game-thread-oregon-hosts-illinois)
+
+
 ### widad (N/A, Sat, 26 Oct 2024 13:40:00 -0700)
 
 - **رئيس الوداد « يصفع « موكوينا بقرار جديد قبل « الميركاتو الشتوي »**: [Link](https://ar.sport.le360.ma/football/FHE6CE4IKBCCFKOZTZ2LGCSRTM/)
