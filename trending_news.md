@@ -1,3 +1,13 @@
+### lens – lille (N/A, Sat, 26 Oct 2024 11:30:00 -0700)
+
+- **RC Lens – LOSC : Bruno Genesio annonce huit forfaits et donne des nouvelles 
+de Bouaddi**: [Link](https://le11hdf.fr/rc-lens-losc-bruno-genesio-annonce-huit-forfaits-et-donne-des-nouvelles-de-bouaddi/)
+- **Lutte contre l'homophobie et initiation à la pratique sportive, le ministre 
+des Sports va assister à RC Lens - LOSC**: [Link](https://lepetitlillois.com/2024/10/26/lutte-contre-lhomophobie-et-initiation-a-la-pratique-sportive-le-ministre-des-sports-va-assister-a-rc-lens-losc/)
+- **« L’impression que tout le stade joue le jeu », l’atmosphère de l’enceinte 
+du LOSC jugée par Benjamin André**: [Link](https://onefootball.com/es/noticias/limpression-que-tout-le-stade-joue-le-jeu-latmosphere-de-lenceinte-du-losc-jugee-par-benjamin-andre-40222573)
+
+
 ### real madrid - barcelona (N/A, Sat, 26 Oct 2024 11:20:00 -0700)
 
 - **Real Madrid squad for Barcelona match**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/squad-call/convocatoria-del-real-madrid-para-el-clasico-25-10-2024)
