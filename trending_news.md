@@ -1,3 +1,33 @@
+### يلا كورة (N/A, Sat, 26 Oct 2024 12:30:00 -0700)
+
+
+
+
+### koo (N/A, Sat, 26 Oct 2024 12:30:00 -0700)
+
+- **Blame Mahama for your dead career — Agya Koo fires back at Mr. Beautiful**: [Link](https://www.modernghana.com/entertainment/78965/blame-mahama-for-your-dead-career-agya-koo-fires.html)
+- **Blame Mahama for your dead career - Agya Koo replies Mr. Beautiful over 
+sabotage claims**: [Link](https://www.ghanaweb.com/GhanaHomePage/entertainment/Blame-Mahama-for-your-dead-career-Agya-Koo-replies-Mr-Beautiful-over-sabotage-claims-1957207)
+- **Koo Selected as this years Connecticut Poetry Circuit Poet**: [Link](https://patch.com/connecticut/hamden/koo-selected-year-s-connecticut-poetry-circuit-poet)
+
+
+### bellingham (N/A, Sat, 26 Oct 2024 12:30:00 -0700)
+
+- **The Record of Lionel Messi That Jude Bellingham Can Match in El Clásico 
+Between Real Madrid and Barcelona**: [Link](https://www.footboom1.com/en/news/football/1992300-the-record-of-lionel-messi-that-jude-bellingham-can-match-in-el-clasico-between-real-madrid-and-barcelona)
+- **How Jude Bellingham can match Lionel Messi record in El Clasico**: [Link](https://www.90min.com/how-jude-bellingham-can-match-lionel-messi-record-el-clasico)
+- **Jude Bellingham, Stunning News Before the Clásico: Joan Laporta, Fermín 
+Smile**: [Link](https://madrid-barcelona.com/en/real-madrid/jude-bellingham-throws-cold-water-before-the-classic-joan-laporta-and-fermin-smile)
+
+
+### يلا كورة مباريات اليوم (N/A, Sat, 26 Oct 2024 12:20:00 -0700)
+
+- **رقم مرعب يبرز الفارق بين هالاند وجيسوس**: [Link](https://www.kooora.com/?n=1363943)
+- **مانشستر سيتي ينفرد برقم قياسي في البريميرليغ هذا الموسم**: [Link](https://hihi2.com/2024/10/26/p2908306.html)
+- **غوارديولا يشيد بأداء ساوثهامبتون بعد فوز صعب لمانشستر سيتي في الدوري 
+الإنكليزي**: [Link](https://www.alquds.co.uk/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A3%D8%AF%D8%A7%D8%A1-%D8%B3%D8%A7%D9%88%D8%AB%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D8%A8%D8%B9%D8%AF/)
+
+
 ### match today (N/A, Sat, 26 Oct 2024 12:20:00 -0700)
 
 - **Scorchers squad confirmed for WBBL season opener**: [Link](https://www.perthscorchers.com.au/news/4156503/scorchers-squad-confirmed-for-season-opener)
