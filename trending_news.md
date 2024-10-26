@@ -1,3 +1,25 @@
+### flashscore (N/A, Sat, 26 Oct 2024 13:20:00 -0700)
+
+- **Editors' Picks: Title challengers clash around Europe while MLB World 
+Series begins**: [Link](https://www.flashscore.com/news/soccer-premier-league-editors-picks-title-challengers-clash-around-europe-while-mlb-world-series-begins/tjnBgYBc/)
+- **Brest continue good form with battling victory over Reims**: [Link](https://www.flashscore.com/news/reims-brest-report-2024-10-26/vJFXn6mf/)
+- **LIVE: Reims vs Brest (Ligue 1 2024-2025) Follow the Action Live**: [Link](https://www.footboom1.com/en/news/football/1991690-live-reims-vs-brest-ligue-1-2024-2025-follow-the-action-live)
+
+
+### robert lewandowski (N/A, Sat, 26 Oct 2024 13:20:00 -0700)
+
+- **Znamy składy El Clasico! Tak zaprezentują się Real Madryt i FC Barcelona**: [Link](https://sport.tvp.pl/83170032/pilka-nozna-znamy-sklady-el-clasico-tak-zaprezentuja-sie-real-madryt-i-fc-barcelona)
+- **Ona kibicuje Realowi, on Barcelonie. To trzeba zobaczyć**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1153253/ona-kibicuje-realowi-on-barcelonie-to-trzeba-zobaczyc)
+- **Kluczowe aspekty El Clásico według Lobo Carrasco**: [Link](https://www.fcbarca.com/121793-kluczowe-aspekty-el-clasico-wedlug-lobo-carrasco.html)
+
+
+### match day (N/A, Sat, 26 Oct 2024 13:20:00 -0700)
+
+- **Dave Brailsford to double-up as Old Trafford match-day PA in latest Man 
+United cuts**: [Link](https://news.paddypower.com/football-news/2024/10/26/brailsford-doubles-up-as-match-day-pa-in-latest-man-united-cuts-satire/)
+- **Champions League: All the fixtures and results**: [Link](https://www.uefa.com/uefachampionsleague/news/0290-1bbe6365b47a-0668db2bbcb1-1000--champions-league-all-the-fixtures-and-results/)
+
+
 ### wydad vs berkane (N/A, Sat, 26 Oct 2024 13:10:00 -0700)
 
 - **Botola Pro D1 Inwi: Matches on Saturday, October 26, Headlined by Wydad vs. 
