@@ -1,3 +1,39 @@
+### real madrid - barcelona (N/A, Sat, 26 Oct 2024 11:20:00 -0700)
+
+- **Real Madrid squad for Barcelona match**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/squad-call/convocatoria-del-real-madrid-para-el-clasico-25-10-2024)
+- **Brahim Díaz Returns from Injury as Real Madrid Prepares for El Clásico**: [Link](https://www.moroccoworldnews.com/2024/10/365959/brahim-diaz-returns-from-injury-as-real-madrid-prepares-for-el-clasico)
+- **El Clasico 2024: Real Madrid vs Barcelona head-to-head last 10 fixtures**: [Link](https://www.cnbctv18.com/photos/sports/el-clasico-2024-real-madrid-vs-barcelona-head-to-head-last-10-fixtures-19499689.htm)
+
+
+### al-hilal vs al-taawoun (N/A, Sat, 26 Oct 2024 11:20:00 -0700)
+
+- **How to watch Al Hilal vs. Al Taawon online for free**: [Link](https://mashable.com/article/al-hilal-al-taawon-saudi-pro-league-2024-live-stream-for-free)
+- **Gerrard seeking big reaction, Al Taawoun out to jam Al Hilal machine**: [Link](https://onefootball.com/en/news/gerrard-seeking-big-reaction-al-taawoun-out-to-jam-al-hilal-machine-40220857)
+- **Preview: Al-Hilal vs. Al-Taawoun - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/preview-al-hilal-vs-al-taawoun-prediction-team-news-lineups_556309.html)
+
+
+### watch wrestling (N/A, Sat, 26 Oct 2024 11:20:00 -0700)
+
+- **Deonna Purrazzo Explains Her Decision To Leave TNA Wrestling**: [Link](https://www.yahoo.com/entertainment/deonna-purrazzo-explains-her-decision-143000266.html)
+- **Former WWE star was kept hidden in Tony Khan's office before "super top 
+secret" AEW debut**: [Link](https://www.sportskeeda.com/aew/news-former-wwe-star-kept-hidden-tony-khan-s-office-super-top-secret-aew-debut)
+- **Deonna Purrazzo Names AEW Stars She Wants To Wrestle**: [Link](https://www.wrestlinginc.com/1697406/deonna-purrazzo-names-aew-stars-wants-wrestle/)
+
+
+### الريال ضد برشلونة (N/A, Sat, 26 Oct 2024 11:10:00 -0700)
+
+- **الذكاء الاصطناعي يتوقع نتيجة الكلاسيكو**: [Link](https://www.kooora.com/?n=1363882)
+- **تشكيلة برشلونة الرسمية للقاء ريال مدريد في الليغا**: [Link](https://hihi2.com/2024/10/26/p2908347.html)
+- **دياز يعود لقائمة الريال لمواجهة برشلونة**: [Link](https://www.hespress.com/%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88-1453547.html)
+
+
+### real madrid – barcelone (N/A, Sat, 26 Oct 2024 10:10:00 -0700)
+
+- **Real Madrid - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a11558567568463997-real-madrid-fc-barcelone-les-compositions-officielles)
+- **DIRECT. Real-Barça: suivez le premier Clasico avec Mbappé en live**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-liga-suivez-le-clasico-real-barca-en-live-commente_LS-202410260061.html)
+- **Liga : premier Clasico de l'ère Mbappé-Yamal**: [Link](https://fr.hespress.com/392674-liga-premier-clasico-de-lere-mbappe-yamal.html)
+
+
 ### khamzat chimaev (N/A, Sat, 26 Oct 2024 11:00:00 -0700)
 
 - **Prelim Results | UFC 308: Topuria vs Holloway**: [Link](https://www.ufc.com/news/prelim-results-highlights-winner-interviews-ufc-308-topuria-vs-holloway)
