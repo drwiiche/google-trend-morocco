@@ -1,3 +1,35 @@
+### جورجينا رودريغيز (N/A, Fri, 25 Oct 2024 17:50:00 -0700)
+
+- **جورجينا تشكر ممرضي وأطباء السعودية.. ما السبب؟**: [Link](https://www.alarabiya.net/social-media/2024/10/25/%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D8%AA%D8%B4%D9%83%D8%B1-%D9%85%D9%85%D8%B1%D8%B6%D9%8A-%D9%88%D8%A3%D8%B7%D8%A8%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%85%D8%A7-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8)
+- **جورجينا رودريغيز تتجاوز أزمة صحية حادة**: [Link](https://www.akhbarona.com/last/394427.html)
+- **شريكة رونالدو جورجينا رودريغيز تكشف عن تعرضها لأزمة صحية**: [Link](https://arabic.cnn.com/entertainment/article/2024/10/25/ronaldo-georgina-rodriguez-reveals-that-she-is-suffering-from-a-health-crisis)
+
+
+### ritchy thibault (N/A, Fri, 25 Oct 2024 17:20:00 -0700)
+
+- **Un collaborateur de la députée LFI Ersilia Soudais interdit d'accès à 
+l'Assemblée nationale**: [Link](https://www.francetvinfo.fr/politique/la-france-insoumise/un-collaborateur-de-la-deputee-lfi-ersilia-soudais-interdit-d-acces-a-l-assemblee-nationale_6859100.html)
+- **INFO EUROPE 1 – Bruno Retailleau porte plainte contre Ritchy Thibault, 
+attaché parlementaire de la...**: [Link](https://www.europe1.fr/politique/info-europe-1-bruno-retailleau-porte-plainte-contre-ritchy-thibault-attache-parlementaire-de-la-deputee-lfi-ersilia-soudais-4274259)
+- **La Police Nationale est-elle «enfant de Pétain» ?**: [Link](https://contre-attaque.net/2024/10/25/la-police-nationale-est-elle-enfant-de-petain/)
+
+
+### aljazeera (N/A, Fri, 25 Oct 2024 16:50:00 -0700)
+
+- **Al Jazeera rejects Israeli claim that its journalists have militant links**: [Link](https://www.washingtonpost.com/world/2024/10/24/al-jazeera-idf-accuses-militant-hamas-journalists/)
+- **Al Jazeera Rejects IDF Allegations That Six of Its Reporters Are Affiliated 
+With Hamas**: [Link](https://www.haaretz.com/middle-east-news/2024-10-25/ty-article/.premium/al-jazeera-rejects-idf-allegations-that-six-of-its-reporters-are-affiliated-with-hamas/00000192-c326-d243-a5db-ff77de400000)
+- **Israel accuses 6 Al Jazeera journalists in Gaza of being Palestinian 
+militants**: [Link](https://apnews.com/article/al-jazeera-journalists-hamas-islamic-jihad-israel-983215f9904bffa7f3d5518235e19e86)
+
+
+### الجزيرة (N/A, Fri, 25 Oct 2024 16:50:00 -0700)
+
+- **إسرائيل تبدأ الهجوم على إيران وانفجارات تهز طهران**: [Link](https://www.aljazeera.net/news/2024/10/26/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D9%88%D8%A7%D9%82%D8%B9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%BA%D9%8A%D8%B1-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D8%B3%D9%85%D8%A7%D8%B9-%D8%AF%D9%88%D9%8A-3)
+- **مباشر إسرائيل تعلن تنفيذ ضربات جوية على إيران**: [Link](https://www.bbc.com/arabic/live/c89vl3gkw90t)
+- **الاحتلال الإسرائيلي يشنّ عدواناً جوياً على إيران**: [Link](https://www.almayadeen.net/news/politics/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%8A%D8%B4%D9%86-%D8%B9%D8%AF%D9%88%D8%A7%D9%86%D8%A7-%D8%AC%D9%88%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+
+
 ### inter miami – atlanta utd (N/A, Fri, 25 Oct 2024 16:50:00 -0700)
 
 - **Football: What is the 'Messi Cam', tested Saturday in the MLS Championship?**: [Link](https://www.footboom1.com/en/news/football/1988163-football-what-is-the-messi-cam-tested-saturday-in-the-mls-championship)
