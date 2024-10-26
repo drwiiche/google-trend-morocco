@@ -1,3 +1,12 @@
+### sonia dahmani (N/A, Fri, 25 Oct 2024 22:00:00 -0700)
+
+- **En Tunisie, deux ans de prison pour Sonia Dahmani à la suite de 
+déclarations médiatiques**: [Link](https://www.lemonde.fr/afrique/article/2024/10/25/en-tunisie-deux-ans-de-prison-pour-sonia-dahmani-pour-une-declaration-mediatique_6359526_3212.html)
+- **En Tunisie, l’avocate Sonia Dahmani condamnée à deux ans de prison pour « 
+diffusion de fausses nouvelles »**: [Link](https://www.nouvelobs.com/monde/20241024.OBS95432/en-tunisie-l-avocate-sonia-dahmani-condamnee-a-deux-ans-de-prison-pour-diffusion-de-fausses-nouvelles.html)
+- **L’ère de la déconstruction et de la démolition**: [Link](https://www.businessnews.com.tn/L%E2%80%99%C3%A8re-de-la-d%C3%A9construction-et-de-la-d%C3%A9molition,523,142013,3)
+
+
 ### al jazeera (N/A, Fri, 25 Oct 2024 17:10:00 -0700)
 
 - **Al Jazeera rejects Israeli claim that its journalists have militant links**: [Link](https://www.washingtonpost.com/world/2024/10/24/al-jazeera-idf-accuses-militant-hamas-journalists/)
