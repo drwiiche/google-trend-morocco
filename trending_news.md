@@ -1,3 +1,12 @@
+### sandrine rousseau (N/A, Sat, 26 Oct 2024 01:00:00 -0700)
+
+- **Assemblée: Sandrine Rousseau, accusée d'avoir fait un bras d'honneur, 
+présente ses excuses pour avoir...**: [Link](https://www.bfmtv.com/politique/parlement/assemblee-sandrine-rousseau-accusee-d-avoir-fait-un-bras-d-honneur-presente-ses-excuses-pour-avoir-entame-un-geste_AV-202410250739.html)
+- **Sandrine Rousseau répond au RN avec un bras d’honneur à l’Assemblée**: [Link](https://www.20minutes.fr/politique/4117944-20241025-budget-2025-assemblee-sandrine-rousseau-esquisse-bras-honneur-apres-amendement-rn-puis-excuse)
+- **Budget : Sandrine Rousseau esquisse un bras d’honneur en direction des 
+députés RN, avant de s’excuser**: [Link](https://www.lefigaro.fr/politique/budget-sandrine-rousseau-esquisse-un-bras-d-honneur-en-direction-des-deputes-rn-avant-de-s-excuser-20241025)
+
+
 ### fc barcelone (N/A, Sat, 26 Oct 2024 00:10:00 -0700)
 
 - **Real Madrid - Barcelone : à quelle heure et sur quelle chaîne regarder le 
