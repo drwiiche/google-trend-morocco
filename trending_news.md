@@ -1,3 +1,18 @@
+### las palmas – girona (N/A, Sat, 26 Oct 2024 09:00:00 -0700)
+
+- **Las Palmas - Girona: horario y dónde ver en TV el partido de LaLiga EA 
+Sports**: [Link](https://www.marca.com/futbol/primera-division/2024/10/26/palmas-girona-horario-ver-tv-partido-laliga-ea-sports.html)
+- **El mundo amarillo quiere disfrutar de otra tarde en rosa**: [Link](https://www.tintaamarilla.es/el-mundo-amarillo-quiere-disfrutar-de-otra-tarde-en-rosa/)
+- **La UD concluye la semana en el Gran Canaria**: [Link](https://www.udlaspalmas.net/2024/10/25/la-ud-concluye-en-el-gran-canaria-la-preparacion-del-duelo-contra-el-girona/)
+
+
+### werder – leverkusen (N/A, Sat, 26 Oct 2024 09:00:00 -0700)
+
+- **Werder Bremen im Liveticker gegen Bayer Leverkusen: Bundesliga heute LIVE**: [Link](https://www.deichstube.de/news/werder-bremen-bayer-04-leverkusen-liveticker-live-ticker-heute-ole-werner-vorbericht-samstag-bundesliga-heimspiel-svw-plan-zr-93374237.html)
+- **Bereit für das Top-Spiel**: [Link](https://onefootball.com/es/noticias/bereit-fuer-das-top-spiel-40217169)
+- **Fußball-Bundesliga: Werder Bremen empfängt Leverkusen**: [Link](https://www.zdf.de/nachrichten/sport/bundesliga-werder-bremen-bayer-leverkusen-werner-100.html)
+
+
 ### dortmund (N/A, Sat, 26 Oct 2024 07:50:00 -0700)
 
 - **Nächste Hiobsbotschaft für BVB! Nuri Sahin verkündet wochenlangen Ausfall**: [Link](https://www.spox.com/de/sport/fussball/bundesliga/2410/News/naechste-hiobsbotschaft-fuer-bvb-nuri-sahin-verkuendet-wochenlangen-ausfall.html)
