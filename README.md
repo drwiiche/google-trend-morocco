@@ -1,3 +1,12 @@
+### augsbourg – dortmund (N/A, Sat, 26 Oct 2024 05:40:00 -0700)
+
+- **RN+ BVB-Kader fürs Augsburg-Spiel: Ryerson-Entscheidung gefallen – vier 
+U23-Spieler rücken auf**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-kader-fuers-augsburg-spiel-ryerson-entscheidung-gefallen-vier-u23-spieler-ruecken-auf-w952347-2001417543/)
+- **Englische Woche für den FCA: Auftakt gegen Borussia Dortmund**: [Link](https://www.radio-augsburg.de/englische-woche-fuer-den-fca-auftakt-gegen-borussia-dortmund-60371/)
+- **Schwere Aufgabe für die zweitschwächste Defenive der Bundesliga - FC 
+Augsburg gegen Borussia Dortmund gefordert**: [Link](https://presse-augsburg.de/schwere-aufgabe-fuer-die-zweitschwaechste-defenive-der-bundesliga-fc-augsburg-gegen-borussia-dortmund-gefordert/980634/)
+
+
 ### mls (N/A, Fri, 25 Oct 2024 18:30:00 -0700)
 
 - **MIAvsATL 10-25-2024 | MLS Match Recap**: [Link](https://www.mlssoccer.com/competitions/mls-cup-playoffs-cup-short/2024/matches/miavsatl-10-25-2024/)
