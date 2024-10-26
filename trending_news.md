@@ -1,3 +1,28 @@
+### rayo – deportivo alavés (N/A, Sat, 26 Oct 2024 06:30:00 -0700)
+
+- **Once del Rayo Vallecano ante Deportivo Alavés**: [Link](https://unionrayo.com/once-rayo-alaves-jornada-11-laliga/)
+- **James vuelve a ser suplente en el Rayo**: [Link](https://es.besoccer.com/noticia/sigue-directo-rayo-vallecano-deportivo-alaves-laliga-2024-25-1335530)
+- **Iñigo Pérez: "Se genera preocupación por los equipos que vienen con 
+derrotas seguidas"**: [Link](https://www.marca.com/futbol/rayo/2024/10/25/inigo-perez-genera-preocupacion-equipos-vienen-derrotas-seguidas.html)
+
+
+### aston villa – bournemouth (N/A, Sat, 26 Oct 2024 06:30:00 -0700)
+
+- **Team news for Cherries clash**: [Link](https://www.avfc.co.uk/news/2024/october/25/team-news-for-bournemouth-clash/)
+- **Bournemouth 14/5 to upset Aston Villa in the Premier League today**: [Link](https://www.dailymail.co.uk/sport/skybet/article-13956841/Bournemouth-Premier-League-Aston-Villa.html)
+- **Bournemouth's Scott sidelined after knee surgery, Sinisterra to miss Aston 
+Villa clash**: [Link](https://www.flashscore.com/news/soccer-premier-league-bournemouth-s-scott-sidelined-after-knee-surgery-sinisterra-to-miss-aston-villa-clash/MwFFwaSj/)
+
+
+### glovo maroc (N/A, Sat, 26 Oct 2024 06:30:00 -0700)
+
+- **Affaire Glovo. L’éclairage du Conseil de la concurrence**: [Link](https://medias24.com/2024/10/25/conseil-de-la-concurrence-une-operation-de-visite-et-saisie-inopinee-a-ete-realisee-sans-le-marche-de-la-livraison-a-domicile/)
+- **Visé par une enquête pour “pratiques anticoncurrentielles”, Glovo Maroc 
+réagit**: [Link](https://mobile.telquel.ma/2024/10/25/vise-par-une-enquete-pour-pratiques-anticoncurrentielles-glovo-maroc-reagit_1900759)
+- **Perquisition au siège de Glovo à Casablanca: les précisions du Conseil de 
+la concurrence**: [Link](https://fr.le360.ma/economie/perquisition-au-siege-de-glovo-a-casablanca-les-precisions-du-conseil-de-la-concurrence_LALGMGCXPVB7RGVHYOOPYK337Y/)
+
+
 ### مان سيتي ضد ساوثهامبتون (N/A, Sat, 26 Oct 2024 06:20:00 -0700)
 
 - **تشكيلة مانشستر سيتي الرسمية لمواجهة ساوثهامبتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/10/26/p2908022.html)
