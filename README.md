@@ -1,3 +1,23 @@
+### lionel messi (N/A, Sat, 26 Oct 2024 10:00:00 -0700)
+
+- **'I got so angry with Lionel Messi that even Pep Guardiola told him to shut 
+up'**: [Link](https://www.mirror.co.uk/sport/football/news/marquez-pep-guardiola-messi-barcelona-33975324)
+- **Revealed: Lionel Messi was told to 'shut up' by Pep Guardiola in furious 
+bust-up with ex-Barcelona team-mate**: [Link](https://www.goal.com/en-sg/lists/lionel-messi-shut-up-pep-guardiola-bust-up-ex-barcelona-team-mate/blt4c415cc7f9d35bef)
+- **Why Pep Guardiola once told Lionel Messi to ‘shut up’ in heated Barcelona 
+training dispute**: [Link](https://www.sportingnews.com/us/soccer/news/pep-guardiola-lionel-messi-shut-barcelona-training/eb8e211d9a45ea41e8319e52)
+
+
+### everton – fulham (N/A, Sat, 26 Oct 2024 09:50:00 -0700)
+
+- **Premier League LIVE SCORES: Everton vs Fulham on NOW, Haaland scores in 
+City win, Brentford edge thriller...**: [Link](https://www.thesun.co.uk/sport/31248844/premier-league-live-scores-results-man-city-aston-villa/)
+- **Premier League LIVE: Build-up to Aston Villa vs Bournemouth & four other 
+games**: [Link](https://www.bbc.co.uk/sport/football/live/ce80dzzxjd0t?page=2)
+- **Jermaine Pennant shares new Everton prediction ahead of Fulham clash in 
+Premier League**: [Link](https://www.goodisonnews.com/2024/10/26/jermaine-pennant-shares-new-everton-prediction-ahead-of-fulham-clash-in-premier-league/)
+
+
 ### las palmas – girona (N/A, Sat, 26 Oct 2024 09:00:00 -0700)
 
 - **Las Palmas - Girona: horario y dónde ver en TV el partido de LaLiga EA 
