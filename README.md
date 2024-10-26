@@ -1,3 +1,11 @@
+### cnn (N/A, Fri, 25 Oct 2024 17:30:00 -0700)
+
+- **Takeaways from Kamala Harris’ CNN town hall**: [Link](https://www.cnn.com/2024/10/23/politics/takeaways-kamala-harris-town-hall/index.html)
+- **Welcome to Kamala’s Word Salad City**: [Link](https://thespectator.com/newsletter/welcome-to-kamalas-word-salad-city-thunderdome-10-25-2024/)
+- **American Energy Alliance: 10 Questions for Vice President Kamala Harris 
+Ahead of Her Town Hall in Pennsylvania**: [Link](https://www.poten.com/american-energy-alliance-10-questions-for-vice-president-kamala-harris-ahead-of-her-town-hall-in-pennsylvania/)
+
+
 ### إنتر ميامي ضد أتلانتا يونايتد (N/A, Fri, 25 Oct 2024 18:30:00 -0700)
 
 - **بادرة جديدة للاستمتاع بمباريات ميسي مع إنتر ميامي**: [Link](https://www.kooora.com/?n=1363411)
