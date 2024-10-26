@@ -1,3 +1,20 @@
+### match today (N/A, Sat, 26 Oct 2024 12:20:00 -0700)
+
+- **Scorchers squad confirmed for WBBL season opener**: [Link](https://www.perthscorchers.com.au/news/4156503/scorchers-squad-confirmed-for-season-opener)
+- **WBBL 2024, Match 3 | PS-W vs MS-W Preview: Key Players And Stats, Live 
+Streaming, Pitch Report, Probable XIs**: [Link](https://cricket.one/cricket-analysis/wbbl-2024-match-3-ps-w-vs-ms-w-preview-key-players-and-stats-live-streaming-pitch-report-probable-xis/671ceed8ac94d32b0f029d5f)
+- **Match 3: Perth Scorchers Women vs Melbourne Stars Women | Squads | Players 
+to Watch | Fantasy Playing XI | Live Streaming | Pitch Report**: [Link](https://femalecricket.com/wbbl10/55107-match-3-perth-scorchers-women-vs-melbourne-stars-women-squads-players-to-watch-fantasy-playing-xi-live-streaming-pitch-report.html)
+
+
+### rma vs bar (N/A, Sat, 26 Oct 2024 12:00:00 -0700)
+
+- **Real Madrid vs Barcelona LIVE: RMA v FCB, Vinicius starts for Los Blancos, 
+El Clasico in La Liga updates**: [Link](https://sportstar.thehindu.com/football/real-madrid-vs-barcelona-live-score-el-clasico-rma-v-fcb-goals-highlights-la-liga-updates/article68801018.ece)
+- **Real Madrid squad for Barcelona match**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/squad-call/convocatoria-del-real-madrid-para-el-clasico-25-10-2024)
+- **Brahim Díaz Returns from Injury as Real Madrid Prepares for El Clásico**: [Link](https://www.moroccoworldnews.com/2024/10/365959/brahim-diaz-returns-from-injury-as-real-madrid-prepares-for-el-clasico)
+
+
 ### bein sport (N/A, Sat, 26 Oct 2024 12:10:00 -0700)
 
 - **" ماتش برشلونة وريال مدريد " تردد قناة beIN Sports HD 1 لمشاهدة الكلاسيكو 
