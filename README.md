@@ -1,3 +1,12 @@
+### lakers (N/A, Sat, 26 Oct 2024 04:20:00 -0700)
+
+- **Phoenix Suns vs Los Angeles Lakers Oct 25, 2024 Box Scores**: [Link](https://www.nba.com/game/phx-vs-lal-0022400085/box-score)
+- **Reddick’s plan to give Davis an increased role has led to 2-0 start for 
+Lakers**: [Link](https://apnews.com/article/lakers-reddick-davis-6c55a6c31d035cc1ee90410af710c691)
+- **Bradley Beal on loss vs. Lakers: ‘It’s super frustraging, we got real 
+complacent’**: [Link](https://hoopshype.com/2024/10/26/bradley-beal-on-loss-vs-lakers-its-super-frustraging-we-got-real-complacent/)
+
+
 ### valladolid – villarreal (N/A, Sat, 26 Oct 2024 04:10:00 -0700)
 
 - **El Valladolid calibra su cambio de tendencia ante un Villarreal de 
