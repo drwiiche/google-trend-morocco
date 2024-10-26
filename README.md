@@ -1,3 +1,12 @@
+### guadeloupe (N/A, Sat, 26 Oct 2024 06:50:00 -0700)
+
+- **La Guadeloupe toujours sans électricité, le préfet annonce un couvre-feu**: [Link](https://medias24.com/agence-presse/la-guadeloupe-toujours-sans-electricite-le-prefet-annonce-un-couvre-feu/)
+- **Coupure de courant en Guadeloupe : le préfet annonce un couvre-feu et la 
+réquisition de salariés d’EDF**: [Link](https://www.lemonde.fr/outre-mer/article/2024/10/25/toute-la-guadeloupe-privee-d-electricite-en-raison-d-un-incident-electrique-generalise-annonce-edf_6359682_1840826.html)
+- **Conflit EDF PEI : Black out en Guadeloupe, tous les moteurs de la centrale 
+de Jarry à l'arrêt, la gendarmerie sécurise la salle des commandes**: [Link](https://la1ere.francetvinfo.fr/guadeloupe/conflit-edf-pei-black-out-en-guadeloupe-tous-les-moteurs-de-la-centrale-de-la-pointe-jarry-a-l-arret-1531600.html)
+
+
 ### rayo – deportivo alavés (N/A, Sat, 26 Oct 2024 06:30:00 -0700)
 
 - **Once del Rayo Vallecano ante Deportivo Alavés**: [Link](https://unionrayo.com/once-rayo-alaves-jornada-11-laliga/)
