@@ -1,3 +1,12 @@
+### ufc (N/A, Sat, 26 Oct 2024 07:50:00 -0700)
+
+- **UFC 308 Results: Winners And Losers From Topuria Vs. Holloway Card**: [Link](https://www.forbes.com/sites/trentreinsmith/2024/10/26/ufc-308-results-winners-and-losers-from-topuria-vs-holloway-card/)
+- **UFC 308: Why Khamzat Chimaev may no longer be the future superstar many 
+expected upon his arrival**: [Link](https://www.cbssports.com/mma/news/ufc-308-why-khamzat-chimaev-may-no-longer-be-the-future-superstar-many-expected-upon-his-arrival/)
+- **What UK time is UFC 308 tonight? Ilia Topuria vs Max Holloway fight start 
+time**: [Link](https://www.mirror.co.uk/sport/other-sports/mma/what-uk-time-ufc-308-33959621)
+
+
 ### bet 365 (N/A, Sat, 26 Oct 2024 07:30:00 -0700)
 
 - **bet365 Bonus Code 'COVERS': Get a $200 Bonus or a $1K Safety Net for Pacers 
