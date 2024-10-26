@@ -1,3 +1,12 @@
+### lille fc (N/A, Sat, 26 Oct 2024 14:30:00 -0700)
+
+- **Atletico Madrid 1-3 Lille: Jonathan David double helps visitors sink 
+Atletico**: [Link](https://www.bbc.com/sport/football/live/cgey37v3j70t)
+- **Benjamin André Reveals What Marco Guida Whistled for the Penalty at the 
+Metropolitano**: [Link](https://www.footboom1.com/en/news/football/1985539-benjamin-andre-reveals-what-marco-guida-whistled-for-the-penalty-at-the-metropolitano)
+- **"We could have scored three or four goals in the first half"**: [Link](https://www.bundle.app/en/sport/%22we-could-have-scored-three-or-four-goals-in-the-first-half%22-a72ab3e3-17b3-473d-a6c2-908d494c34b9)
+
+
 ### brahim diaz (N/A, Sat, 26 Oct 2024 14:20:00 -0700)
 
 - **Unjust Omission: Outrage, Surprise Over Brahim Diaz’s Absence from CAF 
