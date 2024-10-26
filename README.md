@@ -1,3 +1,19 @@
+### bet 365 (N/A, Sat, 26 Oct 2024 07:30:00 -0700)
+
+- **bet365 Bonus Code 'COVERS': Get a $200 Bonus or a $1K Safety Net for Pacers 
+vs Knicks**: [Link](https://www.covers.com/daily-promos/bet365-bonus-code-nba-pacers-vs-knicks-october-25-2024)
+- **Best NBA Betting Apps Offers For NBA Season**: [Link](https://bookies.com/news/best-nba-app-promos-october-25-2024)
+- **ESPN BET Promo Code NEWSWEEK: Get $1,000 Bet Reset for Yankees-Dodgers, NBA**: [Link](https://www.newsweek.com/espn-bet-promo-code-newsweek-1000-bet-reset-yankees-dodgers-nba-october-25-1975182)
+
+
+### napoli (N/A, Sat, 26 Oct 2024 07:30:00 -0700)
+
+- **Doppio cambio per Conte a 20' dalla fine: dentro Kvaratskhelia e Raspadori**: [Link](https://www.calcionapoli24.it/brevi/doppio-cambio-per-conte-a-20-dalla-fine-dentro-kvaratskhelia-e-raspadori-n623085.html)
+- **Moviola Napoli-Lecce: perché il goal di Di Lorenzo è stato annullato, 
+giusto fischiare il fuorigioco?**: [Link](https://www.goal.com/it/liste/moviola-napoli-lecce-goal-annullato-episodi-rigori-cartellini-var/blt4d7959008b329dd9)
+- **Tutto il calcio live**: [Link](https://www.diretta.it/news/calcio-serie-a-calcio-live-news-in-campo-napoli-lecce-0-0/rsuKdfUq/)
+
+
 ### brentford – ipswich town (N/A, Sat, 26 Oct 2024 07:20:00 -0700)
 
 - **'They'll have to improve massively' - Legend Shearer's prediction for Town 
