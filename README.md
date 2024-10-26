@@ -1,3 +1,18 @@
+### khamzat chimaev (N/A, Sat, 26 Oct 2024 11:00:00 -0700)
+
+- **Prelim Results | UFC 308: Topuria vs Holloway**: [Link](https://www.ufc.com/news/prelim-results-highlights-winner-interviews-ufc-308-topuria-vs-holloway)
+- **Video: Robert Whittaker, Khamzat Chimaev exchange icy stares in faceoff 
+ahead of UFC 308**: [Link](https://www.mmafighting.com/2024/10/25/24279384/video-robert-whittaker-khamzat-chimaev-exchange-icy-stares-in-faceoff-ahead-of-ufc-308)
+- **UFC 308 Ultimate Guide: The Boogeyman’s chilling promise**: [Link](https://www.codesports.com.au/ufc/ufc-308-ultimate-guide-khamzat-chimaevs-coldblooded-promise-to-robert-whittaker/news-story/ae6b1b3d9f277700d7ddbdaa58310467)
+
+
+### طقس طنجة (N/A, Sat, 26 Oct 2024 10:50:00 -0700)
+
+- **توقعات بتسجيل تساقطات مطرية وانخفاض في درجات الحرارة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%81-1454053.html)
+- **طقس السبت: زخات مطرية ابتداء من منتصف النهار بعدد من المناطق – اليوم 24**: [Link](https://alyaoum24.com/1925434.html)
+- **الرعد والشتا جايين لعدد من المناطق**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%B1%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%B4%D8%AA%D8%A7-%D8%AC%D8%A7%D9%8A%D9%8A%D9%86-%D9%84%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-911548/)
+
+
 ### الهلال ضد التعاون (N/A, Sat, 26 Oct 2024 10:40:00 -0700)
 
 - **جيسوس: بونو سيواصل الغياب.. ولن نستعجل على نيمار**: [Link](https://www.kooora.com/?n=1363710)
