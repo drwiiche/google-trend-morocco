@@ -1,3 +1,10 @@
+### stuttgart – holstein kiel (N/A, Sat, 26 Oct 2024 07:10:00 -0700)
+
+- **Hoeneß: "Eine Challenge, die wir annehmen müssen"**: [Link](https://www.kicker.de/hoeness-eine-challenge-die-wir-annehmen-muessen-1062360/artikel)
+- **Stuttgart gegen Holstein: Spielvorschau und Prognosen**: [Link](https://www.footboom1.com/de/news/football/1987891-stuttgart-vs-holstein-match-preview-and-predictions)
+- **Undav gibt offen zu: So steht es um die Motivation vor dem Spiel gegen Kiel**: [Link](https://onefootball.com/de/news/undav-gibt-offen-zu-so-steht-es-um-die-motivation-vor-dem-spiel-gegen-kiel-40221092)
+
+
 ### guadeloupe (N/A, Sat, 26 Oct 2024 06:50:00 -0700)
 
 - **La Guadeloupe toujours sans électricité, le préfet annonce un couvre-feu**: [Link](https://medias24.com/agence-presse/la-guadeloupe-toujours-sans-electricite-le-prefet-annonce-un-couvre-feu/)
