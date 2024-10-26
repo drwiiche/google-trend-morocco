@@ -1,3 +1,11 @@
+### valladolid – villarreal (N/A, Sat, 26 Oct 2024 04:10:00 -0700)
+
+- **El Valladolid calibra su cambio de tendencia ante un Villarreal de 
+'Champions'**: [Link](https://www.infobae.com/america/agencias/2024/10/25/el-valladolid-calibra-su-cambio-de-tendencia-ante-un-villarreal-de-champions/)
+- **Fútbol en directo | Valladolid y Villarreal abren la jornada del sábado**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-futbol-en-directo-valladolid-y-villarreal-abren-la-jornada-del-sabado/fHOqO20T/)
+- **La fiesta del gol en contra llega esta tarde al José Zorrilla**: [Link](https://as.com/futbol/primera/la-fiesta-del-gol-en-contra-llega-esta-tarde-al-jose-zorrilla-n/)
+
+
 ### real madrid – fc barcelone (N/A, Sat, 26 Oct 2024 03:30:00 -0700)
 
 - **Liga : premier Clasico de l'ère Mbappé-Yamal**: [Link](https://fr.hespress.com/392674-liga-premier-clasico-de-lere-mbappe-yamal.html)
