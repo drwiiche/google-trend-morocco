@@ -1,3 +1,18 @@
+### ancelotti (N/A, Sat, 26 Oct 2024 14:10:00 -0700)
+
+- **Figo Rivela il Suo Preferito in El Clásico**: [Link](https://www.footboom1.com/it/news/football/1992542-figo-reveals-favorite-in-el-clasico)
+- **Il Barcellona affonda il Real Madrid nel Clasico**: [Link](https://www.rsi.ch/sport/calcio/Il-Barcellona-affonda-il-Real-Madrid-nel-Clasico--2311497.html)
+- **Vinicius contro Rafinha, super Clasico alla brasiliana**: [Link](https://www.ladige.it/foto/vinicius-contro-rafinha-super-clasico-alla-brasiliana-1.3911334?p=1)
+
+
+### وداد (N/A, Sat, 26 Oct 2024 14:10:00 -0700)
+
+- **الوداد يستعيد مفيد والساخي قبل موقعة بركان**: [Link](https://www.kooora.com/?n=1363713)
+- **فوز ثمين لنهضة بركان على الوداد**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%B2-%D8%AB%D9%85%D9%8A%D9%86-%D9%84%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1454341.html)
+- **مباريات « حارقة » وقوية في منافسات البطولة الاحترافية الأولى …البرنامج 
+بالكامل**: [Link](https://ar.sport.le360.ma/football/VSR6CAAIE5CUFOOFE27KBXFREU/)
+
+
 ### raphinha (N/A, Sat, 26 Oct 2024 14:00:00 -0700)
 
 - **Barcelona vs. Real Madrid: El Clasico date, time, channel**: [Link](https://www.espn.com/soccer/story/_/id/42001080/barcelona-vs-real-madrid-el-clasico-date-channel)
