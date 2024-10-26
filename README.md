@@ -1,3 +1,11 @@
+### al jazeera (N/A, Fri, 25 Oct 2024 17:10:00 -0700)
+
+- **Al Jazeera rejects Israeli claim that its journalists have militant links**: [Link](https://www.washingtonpost.com/world/2024/10/24/al-jazeera-idf-accuses-militant-hamas-journalists/)
+- **Al Jazeera Rejects IDF Allegations That Six of Its Reporters Are Affiliated 
+With Hamas**: [Link](https://www.haaretz.com/middle-east-news/2024-10-25/ty-article/.premium/al-jazeera-rejects-idf-allegations-that-six-of-its-reporters-are-affiliated-with-hamas/00000192-c326-d243-a5db-ff77de400000)
+- **Israel targets the few remaining journalists in northern Gaza**: [Link](https://www.lemonde.fr/en/international/article/2024/10/25/israel-targets-the-few-remaining-journalists-in-northern-gaza_6730496_4.html)
+
+
 ### cnn (N/A, Fri, 25 Oct 2024 17:30:00 -0700)
 
 - **Takeaways from Kamala Harris’ CNN town hall**: [Link](https://www.cnn.com/2024/10/23/politics/takeaways-kamala-harris-town-hall/index.html)
