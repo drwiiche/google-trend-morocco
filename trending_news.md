@@ -1,3 +1,24 @@
+### wydad vs berkane (N/A, Sat, 26 Oct 2024 13:10:00 -0700)
+
+- **Botola Pro D1 Inwi: Matches on Saturday, October 26, Headlined by Wydad vs. 
+RS Berkane**: [Link](https://www.footboom1.com/en/news/football/1990829-botola-pro-d1-inwi-matches-on-saturday-october-26-headlined-by-wydad-vs-rs-berkane)
+
+
+### mbappe (N/A, Sat, 26 Oct 2024 13:10:00 -0700)
+
+- **Real Madrid - FC Barcelona live: La Liga - Football**: [Link](https://www.eurosport.com/football/la-liga/2024-2025/live-real-madrid-fc-barcelona_mtc1524116/live-commentary.shtml)
+- **Spanish La Liga Real Madrid 0 Barcelona 0 Half time**: [Link](https://www.bbc.com/sport/football/live/cqjrjjrz5dgt)
+- **Disallowed Goal for Mbappé with Celebration Included!**: [Link](https://www.footboom1.com/en/news/football/1992634-disallowed-goal-for-mbappe-with-celebration-included)
+
+
+### kamala harris (N/A, Sat, 26 Oct 2024 13:10:00 -0700)
+
+- **Harris and Trump locked in dead heat in seven-state poll, with some voters 
+still deciding**: [Link](https://www.washingtonpost.com/politics/2024/10/21/harris-trump-post-schar-school-poll/)
+- **Marist Arizona Poll: U.S. Presidential Contest in Arizona, October 2024**: [Link](https://maristpoll.marist.edu/polls/marist-arizona-poll-u-s-presidential-contest-in-arizona-october-2024/)
+- **October 2024 National Poll: Trump 49%, Harris 49%**: [Link](https://emersoncollegepolling.com/october-2024-national-poll-trump-49-harris-49/)
+
+
 ### marc casadó (N/A, Sat, 26 Oct 2024 12:50:00 -0700)
 
 - **El jugador del Barça que alucinó al ver el nuevo Bernabéu por dentro: “Esto 
