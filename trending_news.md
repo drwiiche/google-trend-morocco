@@ -1,3 +1,33 @@
+### مان سيتي ضد ساوثهامبتون (N/A, Sat, 26 Oct 2024 06:20:00 -0700)
+
+- **تشكيلة مانشستر سيتي الرسمية لمواجهة ساوثهامبتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/10/26/p2908022.html)
+- **هالاند يقود هجوم السيتي أمام ساوثهامبتون**: [Link](https://www.kooora.com/?n=1363918)
+- **مانشستر سيتي من أجل الفوز على ساوثهامبتون**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%B3%D8%A7%D9%88%D8%AB%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-2024-10-26)
+
+
+### brighton – wolves (N/A, Sat, 26 Oct 2024 06:20:00 -0700)
+
+- **How to watch Brighton vs Wolves | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20241026-how-to-watch-brighton-vs-wolves/)
+- **Brighton and Hove Albion boss says we won’t underestimate Wolves**: [Link](https://www.brightonandhovenews.org/2024/10/25/brighton-and-hove-albion-boss-says-we-wont-underestimate-wolves/)
+- **Danny Welbeck latest as Fabian Hurzeler addresses the 'truth' about Wolves**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/danny-welbeck-latest-fabian-hurzeler-30233440)
+
+
+### manchester city – southampton (N/A, Sat, 26 Oct 2024 06:10:00 -0700)
+
+- **Pep Guardiola has four big things to consider for Man City vs Southampton**: [Link](https://www.manchestercity.news/man-city-must-let-in-form-star-off-the-leash-and-prey-on-southampton-weakness/)
+- **LIVE: Manchester City vs Southampton – English Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2024/10/26/live-manchester-city-vs-southampton-english-premier-league)
+- **Guardiola: This is the team's condition, and the Southampton coach will 
+succeed**: [Link](https://www.ysscores.com/en/news/5982904/Guardiola:-This-is-the-team's-condition,-and-the-Southampton-coach-will-succeed)
+
+
+### naples – lecce (N/A, Sat, 26 Oct 2024 06:10:00 -0700)
+
+- **Saturday's Serie A predictions including Napoli vs. Lecce**: [Link](https://www.sportsmole.co.uk/football/napoli/serie-a-predictions/feature/saturdays-serie-a-predictions-including-napoli-vs-lecce_556371.html)
+- **Soccer-Napoli's Conte preparing for emotional clash with his former club 
+Lecce**: [Link](https://www.msn.com/en-us/sports/soccer/soccer-napoli-s-conte-preparing-for-emotional-clash-with-his-former-club-lecce/ar-AA1sSdfQ)
+- **How to Watch Serie A: Soccer Streaming Live in the US - Saturday, October 26**: [Link](https://www.sfgate.com/sports/watching-games/article/serie-a-live-stream-10-26-2024-19862706.php)
+
+
 ### أوغسبورغ ضد دورتموند (N/A, Sat, 26 Oct 2024 06:00:00 -0700)
 
 - **القنوات الناقلة لمباراة بوروسيا دورتموند وأوغسبورغ اليوم في الدوري الألماني 
