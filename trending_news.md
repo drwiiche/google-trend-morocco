@@ -1,3 +1,11 @@
+### mls (N/A, Fri, 25 Oct 2024 18:30:00 -0700)
+
+- **MIAvsATL 10-25-2024 | MLS Match Recap**: [Link](https://www.mlssoccer.com/competitions/mls-cup-playoffs-cup-short/2024/matches/miavsatl-10-25-2024/)
+- **How we Saw Vancouver Earn a Spot in the Play Offs in an Epic Night at 
+Providence Park, a Photo Gallery.**: [Link](https://prostinternational.com/2024/10/24/how-we-saw-vancouver-earn-a-spot-in-the-play-offs-in-an-epic-night-at-providence-park-a-photo-gallery/)
+- **Report Card: Total Domination**: [Link](https://thethirdsub.ca/2024/10/25/report-card-total-domination/)
+
+
 ### lakers (N/A, Sat, 26 Oct 2024 04:20:00 -0700)
 
 - **Phoenix Suns vs Los Angeles Lakers Oct 25, 2024 Box Scores**: [Link](https://www.nba.com/game/phx-vs-lal-0022400085/box-score)
