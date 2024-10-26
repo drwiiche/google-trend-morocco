@@ -1,3 +1,12 @@
+### brentford – ipswich town (N/A, Sat, 26 Oct 2024 07:20:00 -0700)
+
+- **'They'll have to improve massively' - Legend Shearer's prediction for Town 
+at Bees**: [Link](https://www.eadt.co.uk/sport/24679375.brentford-v-ipswich-town-alan-shearers-prediction/)
+- **McKenna on Wolves clash: it's another great chance for us to go and test 
+ourselves**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-mckenna-on-wolves-clash-it-s-another-great-chance-for-us-to-go-and-test-ourselves-2cd58f33-5178-4725-9220-92d1f7f6d6d8)
+- **Frank: McKenna and His Staff Have Done a Fantastic Job**: [Link](https://www.twtd.co.uk/forum/594770/frank-mckenna-and-his-staff-have-done-a-fantastic-job)
+
+
 ### stuttgart – holstein kiel (N/A, Sat, 26 Oct 2024 07:10:00 -0700)
 
 - **Hoeneß: "Eine Challenge, die wir annehmen müssen"**: [Link](https://www.kicker.de/hoeness-eine-challenge-die-wir-annehmen-muessen-1062360/artikel)
