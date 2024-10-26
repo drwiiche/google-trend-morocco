@@ -1,3 +1,10 @@
+### widad (N/A, Sat, 26 Oct 2024 13:40:00 -0700)
+
+- **رئيس الوداد « يصفع « موكوينا بقرار جديد قبل « الميركاتو الشتوي »**: [Link](https://ar.sport.le360.ma/football/FHE6CE4IKBCCFKOZTZ2LGCSRTM/)
+- **لاعب الوداد يعلن عن خبر هام لجماهير النادي**: [Link](https://sport.lesiteinfo.com/elbotola/448695.html)
+- **"بونغاني زونغو" يغادر الوداد الرياضي.. صفقة انتقاله للفريق تبرد**: [Link](https://www.analkhabar.com/%D8%A8%D9%88%D9%86%D8%BA%D8%A7%D9%86%D9%8A-%D8%B2%D9%88%D9%86%D8%BA%D9%88-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D8%B5/)
+
+
 ### wac (N/A, Sat, 26 Oct 2024 13:30:00 -0700)
 
 - **ROUNDUP: Spartans secure outright WAC championship, RC falls at Orestimba**: [Link](https://www.mantecabulletin.com/sports/high-school-football/roundup-spartans-secure-outright-wac-championship-rc-falls-at-orestimba/)
