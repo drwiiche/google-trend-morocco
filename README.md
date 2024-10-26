@@ -1,3 +1,11 @@
+### real madrid – fc barcelone (N/A, Sat, 26 Oct 2024 03:30:00 -0700)
+
+- **Liga : premier Clasico de l'ère Mbappé-Yamal**: [Link](https://fr.hespress.com/392674-liga-premier-clasico-de-lere-mbappe-yamal.html)
+- **Real Madrid - Barcelone : à quelle heure et sur quelle chaîne regarder le 
+match classico de La Liga en...**: [Link](https://rmcsport.bfmtv.com/football/liga/real-madrid-barcelone-a-quelle-heure-et-sur-quelle-chaine-regarder-le-match-classico-de-la-liga-en-direct_AN-202410260034.html)
+- **Clasico, Carlo Ancelotti opère deux changements contre le Barça**: [Link](https://www.goal.com/fr/news/clasico-carlo-ancelotti-opere-deux-changements-contre-le-barca/blt7992c58a094b5e40)
+
+
 ### sandrine rousseau (N/A, Sat, 26 Oct 2024 01:00:00 -0700)
 
 - **Assemblée: Sandrine Rousseau, accusée d'avoir fait un bras d'honneur, 
