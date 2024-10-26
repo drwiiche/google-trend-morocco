@@ -1,3 +1,35 @@
+### wac (N/A, Sat, 26 Oct 2024 13:30:00 -0700)
+
+- **ROUNDUP: Spartans secure outright WAC championship, RC falls at Orestimba**: [Link](https://www.mantecabulletin.com/sports/high-school-football/roundup-spartans-secure-outright-wac-championship-rc-falls-at-orestimba/)
+- **WAC Fall Invitational Day 1: Tennis Highlights & Semifinals Set Up**: [Link](https://bvmsports.com/2024/10/25/wac-fall-invitational-day-1-tennis-highlights-semifinals-set-up/)
+- **ACU Advances One in WAC Fall Invitational**: [Link](https://acusports.com/news/2024/10/25/mens-tennis-acus-morozov-advances-to-round-two-of-wac-fall-invitational.aspx)
+
+
+### modric (N/A, Sat, 26 Oct 2024 13:30:00 -0700)
+
+- **2 Real Madrid stars to return Barcelona**: [Link](https://sports.yahoo.com/2-real-madrid-stars-return-131000565.html)
+- **Real Madrid Player Whose Presence in Starting XI "Bums Relaño Out": 
+"Hopefully He Plays Well Today, But He Bores Me"**: [Link](https://www.footboom1.com/en/news/football/1992486-real-madrid-player-whose-presence-in-starting-xi-bums-relano-out-hopefully-he-plays-well-today-but-he-bores-me)
+- **APTOPIX Spain Soccer La Liga**: [Link](https://www.wvnews.com/sports/pro/aptopix-spain-soccer-la-liga/image_3d5f6a55-93c6-5df9-a89d-00c5434ab674.html)
+
+
+### real madrid barcelone direct gratuit (N/A, Sat, 26 Oct 2024 13:30:00 -0700)
+
+- **Real Madrid - FC Barcelone en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-real-madrid-fc-barcelone_mtc1524116/live-commentary.shtml)
+- **Streaming Real Madrid - Barcelone, comment regarder le choc en direct ?**: [Link](https://www.20minutes.fr/guide-achat/4117894-20241026-streaming-real-madrid-barcelone-direct-comment-regarder-choc-liga-samedi-soir)
+- **Clasico : le résumé de la première période !**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/clasico-le-r%C3%A9sum%C3%A9-de-la-premi%C3%A8re-p%C3%A9riode-2024-10-26)
+
+
+### wydad (N/A, Sat, 26 Oct 2024 13:30:00 -0700)
+
+- **Botola Pro D1 (8è journée): Choc WAC-RSB ce samedi, la tête du classement 
+en vue**: [Link](https://fr.hespress.com/392656-botola-pro-d1-8e-journee-choc-wac-rsb-ce-samedi-la-tete-du-classement-en-vue.html)
+- **Botola : La RSB croise le fer avec le Wydad pour conserver les commandes, 
+l’IRT et l’AS FAR en embuscade**: [Link](https://lematin.ma/sports/botola-la-rsb-croise-le-fer-avec-le-wydad-pour-conserver-les-commandes/248676)
+- **Botola Pro D1 Inwi: le programme de ce samedi 26 octobre, Wydad-RS Berkane 
+en tête d’affiche**: [Link](http://www.le360.ma/sports/botola-pro-d1-inwi-le-programme-de-ce-samedi-26-octobre-wydad-rs-berkane-en-tete-daffiche_DSYRI2HMMJHUTGYOIPL7TM6Z6I/)
+
+
 ### flashscore (N/A, Sat, 26 Oct 2024 13:20:00 -0700)
 
 - **Editors' Picks: Title challengers clash around Europe while MLB World 
