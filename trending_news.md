@@ -1,3 +1,19 @@
+### live football (N/A, Sat, 26 Oct 2024 12:40:00 -0700)
+
+- **Laying out a perfect Saturday roadmap for Illinois football**: [Link](https://writingillini.com/laying-out-a-perfect-saturday-roadmap-for-illinois-football-01jb4byhjbn0)
+- **The Oregon Defense Finds Its Black, Scary, Freaky Soul**: [Link](https://athlonsports.com/college/ducks-digest/the-oregon-defense-finds-its-black-scary-freaky-soul)
+- **Pre-game betting odds between No. 1 Oregon and No. 20 Illinois**: [Link](https://247sports.com/college/usc/article/oregon-ducks-football-betting-odds-illinois-football-big-ten-conference-matchup-week-nine-238632329/)
+
+
+### iptv (N/A, Sat, 26 Oct 2024 12:40:00 -0700)
+
+- **Google ordered to 'remotely delete IPTV apps from phones' after landmark 
+court ruling**: [Link](https://www.ladbible.com/news/technology/google-magistv-iptv-apps-delete-court-order-501363-20241025)
+- **Pirate IPTV’s ‘Breaking Bad’ Headteacher Risked More Than Most, Paid the 
+Price**: [Link](https://torrentfreak.com/pirate-iptvs-breaking-bad-headteacher-risked-more-than-most-paid-the-price-241026/)
+- **DAZN Quashes Rumors Surrounding Subscription Sharing**: [Link](https://www.footboom1.com/en/news/football/1990948-dazn-quashes-rumors-surrounding-subscription-sharing)
+
+
 ### يلا كورة (N/A, Sat, 26 Oct 2024 12:30:00 -0700)
 
 
