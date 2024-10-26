@@ -1,3 +1,10 @@
+### inter miami – atlanta utd (N/A, Fri, 25 Oct 2024 16:50:00 -0700)
+
+- **Football: What is the 'Messi Cam', tested Saturday in the MLS Championship?**: [Link](https://www.footboom1.com/en/news/football/1988163-football-what-is-the-messi-cam-tested-saturday-in-the-mls-championship)
+- **Your Friday start: Does Miami have what it takes to make a double?**: [Link](https://solondais.fr/2024/10/25/RU2644OxxEe.html)
+- **Inter Miami vs. Atlanta United Live Stream: Preview & Predictions**: [Link](https://bvmsports.com/2024/10/24/inter-miami-vs-atlanta-united-live-stream-preview-predictions/)
+
+
 ### iran (N/A, Fri, 25 Oct 2024 16:30:00 -0700)
 
 - **Several explosions heard in Tehran, Iranian state media say: Live updates**: [Link](https://www.cnn.com/world/live-news/israel-iran-lebanon-gaza-war-10-25-24-intl-hnk/index.html)
