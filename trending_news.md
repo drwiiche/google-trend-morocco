@@ -1,3 +1,30 @@
+### brahim diaz (N/A, Sat, 26 Oct 2024 14:20:00 -0700)
+
+- **Unjust Omission: Outrage, Surprise Over Brahim Diaz’s Absence from CAF 
+Awards List**: [Link](https://www.moroccoworldnews.com/2024/10/365951/unjust-omission-outrage-surprise-over-brahim-diazs-absence-from-caf-awards-list)
+- **‘What happened?’, asks Nicolas Jackson as Chelsea ace and Mo Salah SNUBBED 
+from African Player of the Year...**: [Link](https://www.thesun.co.uk/sport/31318809/nicolas-jackson-chelsea-mohamed-salah-liverpool-boniface-kudus/)
+- **Liverpool star and Xabi Alonso favourite omitted from Africa Player of the 
+Year award in shock reveal**: [Link](https://www.liverpoolworld.uk/sport/football/liverpool/liverpool-star-and-xabi-alonso-favourite-omitted-from-africa-player-of-the-year-award-in-shock-reveal-4839844)
+
+
+### la liga table (N/A, Sat, 26 Oct 2024 14:20:00 -0700)
+
+- **La Liga Predictions Matchday 11**: [Link](https://www.goal.com/en-ke/betting/la-liga-predictions-matchday-11/bltd01b64e742bf1255)
+- **Marcelino Praises Team's Consistency and Defensive Solidity After Victory 
+Against Valladolid**: [Link](https://www.footboom1.com/en/news/football/1991950-marcelino-praises-team-s-consistency-and-defensive-solidity-after-victory-against-valladolid)
+- **Saturday's La Liga predictions including Real Madrid vs. Barcelona**: [Link](https://www.sportsmole.co.uk/football/real-madrid/la-liga-predictions/feature/saturdays-la-liga-predictions-including-real-madrid-vs-barcelona_556369.html)
+
+
+### amine adli (N/A, Sat, 26 Oct 2024 14:20:00 -0700)
+
+- **Leverkusen's Adli To Miss Rest Of 2024 With Injury**: [Link](https://www.barrons.com/news/leverkusen-s-adli-to-miss-rest-of-2024-with-injury-1b35e2df)
+- **Xabi Alonso handed huge Bayer Leverkusen injury blow before Liverpool 
+reunion**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/xabi-alonso-handed-huge-bayer-30233831)
+- **Simon Rolfes provides update on Bayer Leverkusen’s Amine Adli: “It’s an 
+injury that won’t just last a few days.”**: [Link](https://sports.yahoo.com/simon-rolfes-provides-bayer-leverkusen-104000582.html)
+
+
 ### ancelotti (N/A, Sat, 26 Oct 2024 14:10:00 -0700)
 
 - **Figo Rivela il Suo Preferito in El Clásico**: [Link](https://www.footboom1.com/it/news/football/1992542-figo-reveals-favorite-in-el-clasico)
