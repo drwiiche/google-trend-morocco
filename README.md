@@ -1,3 +1,34 @@
+### marc casadó (N/A, Sat, 26 Oct 2024 12:50:00 -0700)
+
+- **El jugador del Barça que alucinó al ver el nuevo Bernabéu por dentro: “Esto 
+parece…”**: [Link](https://www.defensacentral.com/real_madrid/1709329338-el-jugador-del-barca-que-alucino-al-ver-el-nuevo-bernabeu-por-dentro-esto-parece)
+- **¿Cuántos partidos ha jugado Marc Casadó en su carrera profesional?**: [Link](https://record.com.do/futbol/cuantos-partidos-ha-jugado-marc-casado-en-su-carrera-profesional-196258.html)
+- **Cubarsí avisa a Marc Casadó para que no le impresione el Bernabéu: “Si 
+miras arriba…”**: [Link](https://www.defensacentral.com/real_madrid/1709329256-cubarsi-avisa-a-marc-casado-para-que-no-le-impresione-el-bernabeu-si-miras-arriba)
+
+
+### كورة (N/A, Sat, 26 Oct 2024 12:30:00 -0700)
+
+- **صورة.. رد فعل أنشيلوتي على فرصة فينيسيوس الضائعة**: [Link](https://hihi2.com/2024/10/26/p2908585.html)
+- **يامال أم فينيسيوس.. من الأثقل في صراع جبهة النار بالكلاسيكو؟**: [Link](https://www.kooora.com/?n=1363821)
+- **فينيسيوس ورافينيا... صراع برازيلي كبير في الكلاسيكو**: [Link](https://www.alaraby.co.uk/sport/%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D9%83%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88)
+
+
+### fcb (N/A, Sat, 26 Oct 2024 12:20:00 -0700)
+
+- **Arsenal, Aston Villa interested in Barcelona forward, club open to offers**: [Link](https://barcauniversal.com/arsenal-aston-villa-interested-in-barcelona-forward-club-open-to-offers/)
+- **Aston Villa make £12.5m bid to sign £165k-p/w Barcelona ace and get reply**: [Link](https://www.footballfancast.com/aston-villa-news-transfer-bid-sign-barcelona-ferran-torres-reply-received/)
+- **Aston Villa lodge bid for £54.2m forward in attempt to crush Mikel Arteta 
+dream**: [Link](https://www.birminghamworld.uk/sport/football/transfers-aston-villa-bid-barcelona-forward-ferran-torres-mikel-arteta-arsenal-4839592)
+
+
+### yallakora (N/A, Sat, 26 Oct 2024 12:10:00 -0700)
+
+- **الكشف عن راتب بالوتيلي مع جنوى**: [Link](https://hihi2.com/2024/10/26/p2908571.html)
+- **التجربة الخامسة في إيطاليا.. سكاي: جنوى يقترب من ضم بالوتيلي**: [Link](https://www.filgoal.com/articles/492713/%D8%A7%D9%84%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3%D8%A9-%D9%81%D9%8A-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%B3%D9%83%D8%A7%D9%8A-%D8%AC%D9%86%D9%88%D9%89-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B6%D9%85-%D8%A8%D8%A7%D9%84%D9%88%D8%AA%D9%8A%D9%84%D9%8A)
+- **بالوتيلي يقترب من الانتقال إلى صفوف جنوى**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%B3%D9%8A%D8%B1%D9%8A-%D8%A2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D9%84%D9%88%D8%AA%D9%8A%D9%84%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A5%D9%84%D9%89-%D8%B5%D9%81%D9%88%D9%81-%D8%AC%D9%86%D9%88%D9%89-2024-10-26)
+
+
 ### live football (N/A, Sat, 26 Oct 2024 12:40:00 -0700)
 
 - **Laying out a perfect Saturday roadmap for Illinois football**: [Link](https://writingillini.com/laying-out-a-perfect-saturday-roadmap-for-illinois-football-01jb4byhjbn0)
