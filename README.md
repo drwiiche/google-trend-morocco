@@ -1,3 +1,73 @@
+### bein sport (N/A, Sat, 26 Oct 2024 12:10:00 -0700)
+
+- **" ماتش برشلونة وريال مدريد " تردد قناة beIN Sports HD 1 لمشاهدة الكلاسيكو 
+مباشر 2024 بجودة عالية**: [Link](https://real.alsaudinews.com/198293/%D9%85%D8%A7%D8%AA%D8%B4-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-hd/)
+- **الاضواء تتجه نحو..ترددات قناة بي إن سبورت 1 و 2 و 3 beIN Sports الناقلة 
+لمباريات دوري أبطال أوروبا**: [Link](https://alkhabarkw.com/channels/%D8%A7%D9%84%D8%A7%D8%B6%D9%88%D8%A7%D8%A1-%D8%AA%D8%AA%D8%AC%D9%87-%D9%86%D8%AD%D9%88-%D8%AA%D8%B1%D8%AF%D8%AF%D8%A7%D8%AA-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1/77432/)
+- **"ثبتها الان" تردد قناة بي ان سبورت 1 bein sport على الأقمار الصناعية 
+المختلفة - إقرأ نيوز**: [Link](https://iq.iqraa.news/930131/%D8%AB%D8%A8%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%A7%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-1-bein-sport-%D8%B9%D9%84%D9%89/)
+
+
+### kora (N/A, Sat, 26 Oct 2024 12:10:00 -0700)
+
+
+
+
+### live tv (N/A, Sat, 26 Oct 2024 12:10:00 -0700)
+
+- **What channel is OU football vs Ole Miss on today? Time, TV schedule to 
+watch Week 9 game**: [Link](https://www.oklahoman.com/story/sports/college/sooners/2024/10/26/oklahoma-ole-miss-channel-today-time-tv-schedule-streaming-info/75828116007/)
+- **LIVE BLOG: Oklahoma State Heads to Waco in Search of its First Big 12 Win**: [Link](https://bvmsports.com/2024/10/26/live-blog-oklahoma-state-heads-to-waco-in-search-of-its-first-big-12-win/)
+- **Uniform Reveal: OSU to Wear Orange-White-Orange Uniforms for Road Game 
+against Baylor**: [Link](https://pistolsfiringblog.com/uniform-reveal-osu-to-wear-orange-white-orange-uniforms-for-road-game-against-baylor/)
+
+
+### lewandowski (N/A, Sat, 26 Oct 2024 12:10:00 -0700)
+
+- **Znamy składy El Clasico! Tak zaprezentują się Real Madryt i FC Barcelona**: [Link](https://sport.tvp.pl/83170032/pilka-nozna-znamy-sklady-el-clasico-tak-zaprezentuja-sie-real-madryt-i-fc-barcelona)
+- **Ciesz się El Clásico z tą limitowaną ofertą od DAZN**: [Link](https://www.footboom1.com/pl/news/football/1990405-enjoy-the-clasico-with-this-limited-time-offer-from-dazn)
+- **Kto powinien uzupełnić środek pola Barcelony w pojedynku z Realem? [Ankieta]**: [Link](https://www.fcbarca.com/121802-kto-powinien-uzupelnic-srodek-pola-barcelony-w-pojedynku-z-realem-ankieta.html)
+
+
+### lamine yamal (N/A, Sat, 26 Oct 2024 12:10:00 -0700)
+
+- **Las nuevas botas de Lamine Yamal: diseño, precio y dónde comprarlas**: [Link](https://www.relevo.com/futbol/liga-primera/nuevas-botas-lamine-yamal-cuestan-20241025141751-nt.html)
+- **Leo Messi «ficha» a Lamine Yamal de forma inesperada: el papel que le ha 
+reservado a la gran promesa**: [Link](https://www.eldiario24.com/deportes/2024/10/26/messi-yamal-adidas/)
+- **Lamine Yamal: "Cuando la grada me grita, es como si mi madre estuviese 
+delante y me dijese que fuese a por el rival"**: [Link](https://www.marca.com/futbol/barcelona/2024/10/25/lamine-yamal-grada-me-grita-mi-madre-estuviese-delante-me-dijese-fuese-rival.html)
+
+
+### sports (N/A, Sat, 26 Oct 2024 12:00:00 -0700)
+
+- **NBC Sports Next Strikes Partnership with USA Cheer, Bolsters Momentum for 
+its SportsEngine Motion Tech**: [Link](https://www.sportsvideo.org/2024/10/24/nbc-sports-next-strikes-partnership-with-usa-cheer-bolsters-momentum-for-its-sportsengine-motion-tech/)
+- **USA Cheer Adopts NBC Sports Next’s SportsEngine Motion**: [Link](https://www.tvtechnology.com/news/usa-cheer-adopts-nbc-sports-nexts-sportsengine-motion)
+- **NBC SPORTS NEXT BOLSTERS MOMENTUM FOR ITS SPORTSENGINE MOTION TECHNOLOGY 
+THROUGH ‘PREFERRED PROVIDER’ DESIGNATION WITH USA CHEER**: [Link](https://www.nbcsports.com/pressbox/press-releases/nbc-sports-next-bolsters-momentum-for-its-sportsengine-motion-technology-through-preferred-provider-designation-with-usa-cheer)
+
+
+### live (N/A, Sat, 26 Oct 2024 12:00:00 -0700)
+
+- **Yankees-Dodgers World Series Game 2 FAQ (8 ET/5 PT on FOX)**: [Link](https://www.mlb.com/news/yankees-vs-dodgers-world-series-game-2-starting-lineups-and-pitching-matchup)
+- **World Series 2024 Livestream: How to Watch the New York Yankees vs. LA 
+Dodgers Live Online**: [Link](https://variety.com/2024/shopping/news/how-to-watch-world-series-yankees-vs-dodgers-live-online-1236189818/)
+- **What time is the World Series today? TV schedule, channel to watch Yankees 
+vs. Dodgers Game 1**: [Link](https://www.sportingnews.com/us/mlb/news/world-series-time-schedule-channel-watch-yankees-dodgers/5ca83ad2b50efbb99e909081)
+
+
+### atalanta – hellas vérone (N/A, Sat, 26 Oct 2024 12:00:00 -0700)
+
+- **Serie A line-ups: Atalanta vs. Verona**: [Link](https://football-italia.net/serie-a-line-ups-atalanta-vs-verona-3/)
+- **Preview: Atalanta BC vs. Hellas Verona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/preview/preview-atalanta-vs-hellas-verona-prediction-team-news-lineups_556250.html)
+- **Serie A Liveblog: Napoli-Lecce and Atalanta-Verona**: [Link](https://sports.yahoo.com/serie-liveblog-napoli-lecce-atalanta-115900425.html)
+
+
+### match (N/A, Sat, 26 Oct 2024 12:00:00 -0700)
+
+
+
+
 ### lens – lille (N/A, Sat, 26 Oct 2024 11:30:00 -0700)
 
 - **RC Lens – LOSC : Bruno Genesio annonce huit forfaits et donne des nouvelles 
