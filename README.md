@@ -1,3 +1,36 @@
+### west ham – manchester united (N/A, Sun, 27 Oct 2024 06:10:00 -0700)
+
+- **West Ham vs Manchester United: Antony ruled out with sprained ankle**: [Link](https://www.bbc.com/sport/football/live/c9wrj7dzzxlt)
+- **Paul Merson Drops Big Ten Hag Future Verdict Ahead of Man Utd v West Ham**: [Link](https://www.givemesport.com/paul-merson-big-ten-hag-future-verdict-ahead-of-man-utd-west-ham/)
+- **Confirmed XI: Hojlund, Garnacho & Rashford start against West Ham; Amass, 
+Fletcher & Wheatley on the bench**: [Link](https://mufclatest.com/confirmed-xi-hojlund-garnacho-rashford-start-against-west-ham-amass-fletcher-wheatley-on-the-bench/)
+
+
+### chelsea – newcastle (N/A, Sun, 27 Oct 2024 06:10:00 -0700)
+
+- **Premier League Chelsea versus Newcastle United kick off 14:00 Sun 27 Oct 
+2024**: [Link](https://www.bbc.com/sport/football/live/cvgl519dd0mt)
+- **Latest. Team news: Almirón and Barnes start at Stamford Bridge**: [Link](https://www.newcastleunited.com/en/news/team-news-almiron-and-barnes-start-at-stamford-bridge)
+- **Best Odds and Predictions Chelsea vs Newcastle (27/10/24) | Argentina**: [Link](https://www.footboom1.com/en/news/football/1994323-best-odds-and-predictions-chelsea-vs-newcastle-27-10-24-argentina)
+
+
+### crystal palace – tottenham (N/A, Sun, 27 Oct 2024 06:10:00 -0700)
+
+- **Tottenham predicted team vs Crystal Palace - Postecoglou makes Moore, 
+Maddison and Sarr calls**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/gallery/tottenham-predicted-team-vs-crystal-30231986)
+- **Harry Redknapp predicts Crystal Palace vs Spurs score in four-goal thriller**: [Link](https://www.spurs-web.com/spurs-news/harry-redknapp-predicts-crystal-palace-vs-spurs-score-in-four-goal-thriller/)
+- **Sutton warns of Palace threat to Tottenham’s winning run ahead of weekend 
+fixture**: [Link](https://www.yardbarker.com/soccer/articles/sutton_warns_of_palace_threat_to_tottenhams_winning_run_ahead_of_weekend_fixture/s1_17451_41125239)
+
+
+### san antonio spurs (N/A, Sun, 27 Oct 2024 06:10:00 -0700)
+
+- **Spurs hold off a Rockets surge to get their first win of the season**: [Link](https://www.poundingtherock.com/2024/10/26/24279805/spurs-hold-off-a-rockets-surge-to-get-their-first-win-of-the-season)
+- **Victor Wembanyma scored 29 points, Jeremy Sochan added a 17-point, 
+12-rebound double-double and Keld…**: [Link](https://hoopshype.com/rumor/3246429/)
+- **Keldon Johnson Scores 16**: [Link](https://bleacherreport.com/videos/597903-keldon-johnson-scores-16)
+
+
 ### x (N/A, Sat, 26 Oct 2024 20:20:00 -0700)
 
 - **NC man wins $1 million for signing Elon Musk petition. Why the checks may 
