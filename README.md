@@ -1,3 +1,13 @@
+### x (N/A, Sat, 26 Oct 2024 20:20:00 -0700)
+
+- **NC man wins $1 million for signing Elon Musk petition. Why the checks may 
+be short-lived**: [Link](https://www.charlotteobserver.com/news/politics-government/article294591584.html)
+- **Musk offers voters $1 million a day to sign PAC petition backing the 
+Constitution. Is that legal?**: [Link](https://apnews.com/article/musk-1-million-giveaway-trump-voters-petition-b4e48acbfe04fde735e60b1911ad0197)
+- **Elon Musk's $1 million swing-state voter lottery falls into legal gray 
+area, experts say**: [Link](https://www.nbcnews.com/tech/tech-news/musk-1-million-voter-petition-lottery-falls-legal-gray-area-experts-s-rcna176362)
+
+
 ### leganés – celta vigo (N/A, Sun, 27 Oct 2024 05:10:00 -0700)
 
 - **Leganés - Celta | Haller y el reto de acabar con la doble sequía: previa, 
