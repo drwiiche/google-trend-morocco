@@ -1,3 +1,27 @@
+### ريال بتيس ضد أتلتيكو مدريد (N/A, Sun, 27 Oct 2024 10:00:00 -0700)
+
+- **سيميوني: كرة القدم تدار بقوتين.. وهذه الخطوة مهمة لنا**: [Link](https://www.kooora.com/?n=1363946)
+- **أتلتيكو مدريد يواجه ريال بيتيس فى مواجهة قوية بالدوري الإسباني**: [Link](https://www.youm7.com/story/2024/10/27/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%81%D9%89-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A/6755211)
+- **سورولوث الضحية.. سيميوني يعدل تشكيل أتلتيكو مدريد بعد الخسارة من ليل**: [Link](https://www.yallakora.com/la-liga/2907/news/488264/%D8%B3%D9%88%D8%B1%D9%88%D9%84%D9%88%D8%AB-%D8%A7%D9%84%D8%B6%D8%AD%D9%8A%D8%A9-%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B9%D8%AF%D9%84-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%85%D9%86-%D9%84%D9%8A%D9%84)
+
+
+### betis – atlético madrid (N/A, Sun, 27 Oct 2024 09:50:00 -0700)
+
+- **Simeone: ¿El Clásico? "Tenemos que dar valor e importancia a nuestro 
+partido"**: [Link](https://www.marca.com/futbol/atletico/2024/10/26/simeone-clasico-dar-valor-e-importancia-nuestro-partido.html)
+- **Los posibles onces del Betis-Atlético**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20241027/1002341574/posibles-onces-betis-atletico.html)
+- **Lino y Reinildo entran por Sorloth y Galán**: [Link](https://as.com/futbol/primera/lino-y-reinildo-entran-por-sorloth-y-galan-n/)
+
+
+### ballon d'or 2024 (N/A, Sun, 27 Oct 2024 09:50:00 -0700)
+
+- **2024 Ballon d'Or ceremony: When and where, all the nominees, how the awards 
+are decided**: [Link](https://www.uefa.com/ballondor/news/0292-1c270550362a-8ed0eb6212eb-1000--2024-ballon-d-or-ceremony-when-and-where-all-the-nominees-h/)
+- **Real Madrid is close to overtaking Barcelona**: [Link](https://www.ysscores.com/en/news/6074634/Real-Madrid-is-close-to-overtaking-Barcelona)
+- **Move over Messi and Ronaldo. A new generation of soccer stars is lining up 
+to win the Ballon d'Or**: [Link](https://apnews.com/article/ballon-dor-winner-favourite-vinicius-rodri-haaland-fe5be8499d218c7e615fa726df0b89b9)
+
+
 ### lyon – auxerre (N/A, Sun, 27 Oct 2024 09:30:00 -0700)
 
 - **Ligue 1 - OL - Auxerre | Lyon accroché à domicile par l'AJA**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/ligue-1-ol-auxerre-lyon-accroche-a-domicile-par-l-aja_sto10381686/story.shtml)
