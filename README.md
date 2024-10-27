@@ -1,3 +1,11 @@
+### fenerbahçe – bodrum (N/A, Sun, 27 Oct 2024 08:40:00 -0700)
+
+- **Tadic ve Szymanski Neden Oynamıyor? Mourinho’dan Ters Köşe!**: [Link](https://www.sportif54.com/tadic-ve-szymanski-neden-oynamiyor-mourinhodan-ters-kose-132379.html)
+- **Fenerbahçe - Bodrum FK maçı ne zaman, saat kaçta ve hangi kanalda canlı 
+yayınlanacak? | Trendyol Süper Lig**: [Link](https://www.aspor.com.tr/fenerbahce/2024/10/27/fenerbahce-bodrum-fk-maci-ne-zaman-saat-kacta-ve-hangi-kanalda-canli-yayinlanacak-trendyol-super-lig)
+- **Sarıgül'den Bodrum Maçı Yorumu**: [Link](https://kenttv.net/haber/22198432/sarigulden-bodrum-maci-yorumu)
+
+
 ### arsenal – liverpool (N/A, Sun, 27 Oct 2024 08:30:00 -0700)
 
 - **Arsenal vs Liverpool: Premier League title rivals meet on Sunday in crucial 
