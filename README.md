@@ -1,3 +1,11 @@
+### سعد الصغير (N/A, Sun, 27 Oct 2024 10:10:00 -0700)
+
+- **سعد الصغير أثناء محاكمته: "لا أتعاطى الحشيش.. أتناول الترامادول فقط لأسباب 
+طبية"**: [Link](https://www.alarabiya.net/culture-and-art/2024/10/27/%D8%B3%D8%B9%D8%AF-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1-%D8%A3%D8%AB%D9%86%D8%A7%D8%A1-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%AA%D9%87-%D9%84%D8%A7-%D8%A3%D8%AA%D8%B9%D8%A7%D8%B7%D9%89-%D8%A7%D9%84%D8%AD%D8%B4%D9%8A%D8%B4-%D8%A3%D8%AA%D9%86%D8%A7%D9%88%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D9%85%D8%A7%D8%AF%D9%88%D9%84-%D9%81%D9%82%D8%B7-%D9%84%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%B7%D8%A8%D9%8A%D8%A9-)
+- **سعد الصغير أمام جنايات القاهرة.. هكذا سارت أولى جلسات محاكمته**: [Link](https://arabic.cnn.com/entertainment/article/2024/10/27/this-is-what-saad-al-saghir-said-during-his-first-trial-session)
+- **بدء محاكمة سعد الصغير بتهمة تعاطي المخدرات**: [Link](https://www.raialyoum.com/%D8%A8%D8%AF%D8%A1-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D8%B3%D8%B9%D8%AF-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%AA%D8%B9%D8%A7%D8%B7%D9%8A-%D8%A7%D9%84%D9%85%D8%AE/)
+
+
 ### ريال بتيس ضد أتلتيكو مدريد (N/A, Sun, 27 Oct 2024 10:00:00 -0700)
 
 - **سيميوني: كرة القدم تدار بقوتين.. وهذه الخطوة مهمة لنا**: [Link](https://www.kooora.com/?n=1363946)
