@@ -1,3 +1,12 @@
+### حالة الطقس غدا (N/A, Sun, 27 Oct 2024 15:10:00 -0700)
+
+- **«العواصف قادمة ».. بيان عاجل بشأن تحول حالة الطقس فى نوفمبر: اتخذوا 
+التدابير اللازمة**: [Link](https://www.almasryalyoum.com/news/details/3292757)
+- **إنذار مبكر.. الأرصاد تكشف للمواطنين ما سيحدث للطقس خلال الساعات القادمة**: [Link](https://zahraa.mr/3463880/%D8%A5%D9%86%D8%B0%D8%A7%D8%B1-%D9%85%D8%A8%D9%83%D8%B1-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D9%83%D8%B4%D9%81-%D9%84%D9%84%D9%85%D9%88%D8%A7%D8%B7%D9%86%D9%8A%D9%86-%D9%85%D8%A7-%D8%B3/)
+- **تحذير عاجل من الأرصاد الجوية.. عواصف رعدية وأمطار غزيرة تضرب مصر خلال 
+الأيام القادمة**: [Link](https://baladnaelyoum.com/news/1054568)
+
+
 ### formula 1 (N/A, Sun, 27 Oct 2024 14:50:00 -0700)
 
 - **Mexico City GP Qualifying: Carlos Sainz claims dramatic pole position from 
