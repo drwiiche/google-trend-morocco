@@ -1,3 +1,13 @@
+### marathon casablanca (N/A, Sat, 26 Oct 2024 23:30:00 -0700)
+
+- **Restrictions de la circulation le 27 octobre à Casablanca à cause du 
+Marathon : voici la liste des artères concernées**: [Link](https://medias24.com/2024/10/24/restrictions-de-la-circulation-le-27-octobre-a-casablanca-a-cause-du-marathon-voici-la-liste-des-arteres-concernees/)
+- **Le 15ème Marathon International de Casablanca verra la participation de 
+plus de 50 pays**: [Link](https://ledesk.ma/encontinu/le-15eme-marathon-international-de-casablanca-verra-la-participation-de-plus-de-50-pays/)
+- **Marathon de Casablanca : attention aux restrictions de circulation ce 
+dimanche**: [Link](https://lematin.ma/regions/marathon-de-casablanca-attention-aux-restrictions-de-circulation/248493)
+
+
 ### roberto mancini (N/A, Sat, 26 Oct 2024 21:40:00 -0700)
 
 - **"Distaccato, lontano dalla gente": Mancini-Arabia Saudita, dietro un 
