@@ -1,3 +1,18 @@
+### تشيلسي ضد نيوكاسل يونايتد (N/A, Sun, 27 Oct 2024 07:10:00 -0700)
+
+- **نيتو أساسيا وإنزو بديلا أمام نيوكاسل**: [Link](https://m.kooora.com/?n=1364154&o=n)
+- **ترتيب هدافي تشيلسي في البريميرليغ هذا الموسم قبل مواجهة نيوكاسل**: [Link](https://hihi2.com/2024/10/27/p2909716.html)
+- **البلوز والماكبايس في مواجهة تاريخية.. مباراة تشيلسي ونيوكاسل يونايتد اليوم**: [Link](https://e.ajil.news/4433/%D8%A7%D9%84%D8%A8%D9%84%D9%88%D8%B2-%D9%88%D8%A7%D9%84%D9%85%D8%A7%D9%83%D8%A8%D8%A7%D9%8A%D8%B3-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%85/)
+
+
+### chelsea vs newcastle (N/A, Sun, 27 Oct 2024 06:50:00 -0700)
+
+- **Premier League Chelsea 0 Newcastle United 0 13 minutes played. In progress**: [Link](https://www.bbc.com/sport/football/live/cvgl519dd0mt)
+- **Why £100m man and summer arrival have been ruthlessly dropped by Enzo 
+Maresca**: [Link](https://chelsea.news/2024/10/jadon-sancho-enzo-dropped/)
+- **Mikhailo Mudryk Named as Substitute for Chelsea's Clash Against Newcastle**: [Link](https://www.footboom1.com/en/news/football/1994763-mikhailo-mudryk-named-as-substitute-for-chelsea-s-clash-against-newcastle)
+
+
 ### بوخوم ضد البايرن (N/A, Sun, 27 Oct 2024 06:50:00 -0700)
 
 - **كومباني يتطلع لمعادلة رقم فليك الأسطوري**: [Link](https://www.kooora.com/?n=1364078)
