@@ -1,3 +1,10 @@
+### ترتيب الدوري الفرنسي (N/A, Sun, 27 Oct 2024 12:50:00 -0700)
+
+- **سلوت: آرسنال أول فريق يتفوق علينا**: [Link](https://www.kooora.com/?n=1364293)
+- **قائمة الهدافين التاريخيين للبريميرليج بعد صعود صلاح للمركز الثامن**: [Link](https://hihi2.com/2024/10/27/p2910364.html)
+- **شاهد ملخص تعادل ليفربول وأرسنال في الدوري الإنجليزي الممتاز**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/27/arsenal-v-liverpool)
+
+
 ### psg vs (N/A, Sun, 27 Oct 2024 12:50:00 -0700)
 
 - **Marseille v PSG Tips: Hakimi’s the man in our 15/1 Bet Builder**: [Link](https://news.paddypower.com/football/2024/10/27/marseille-v-psg-tips-hakimis-15-1-bet-builder-october-27/)
