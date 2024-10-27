@@ -1,3 +1,11 @@
+### leganés – celta vigo (N/A, Sun, 27 Oct 2024 05:10:00 -0700)
+
+- **Leganés - Celta | Haller y el reto de acabar con la doble sequía: previa, 
+análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2024/10/27/leganes-celta-haller-reto-acabar-doble-sequia-previa-analisis-pronostico-prediccion.html)
+- **Oportunidad para consolidar el plan**: [Link](https://www.farodevigo.es/celta-de-vigo/2024/10/27/oportunidad-consolidar-plan-110539718.html)
+- **Aidoo, fuera de la convocatoria para Leganés**: [Link](https://www.infobae.com/espana/agencias/2024/10/26/aidoo-fuera-de-la-convocatoria-para-leganes/)
+
+
 ### الوداد (N/A, Sat, 26 Oct 2024 14:20:00 -0700)
 
 - **موكوينا: "لو لعبنا ضد ن. بركان 10 مرات لكانت انتصاراتنا أكثر من هزائمنا 
