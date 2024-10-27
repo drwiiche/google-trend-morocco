@@ -1,3 +1,21 @@
+### félix lebrun (N/A, Sun, 27 Oct 2024 07:50:00 -0700)
+
+- **Tennis de table : Victoire historique de Félix Lebrun, en finale à 
+Montpellier après un exploit face au n°2 mondial**: [Link](https://www.lequipe.fr/Tennis-de-table/Actualites/Victoire-historique-de-felix-lebrun-en-finale-a-montpellier-apres-un-exploit-face-au-n-2-mondial/1516635)
+- **23 coups, défense venue d'ailleurs : le point de martien entre les frères 
+Félix et Alexis Lebrun**: [Link](https://www.eurosport.fr/tennis-de-table/23-coups-defense-venue-d-ailleurs-le-point-de-martien-entre-les-freres-felix-et-alexis-lebrun_sto10380390/story.shtml)
+- **WTT Champions Montpellier. À quelle heure et sur quelle chaîne TV voir la 
+demie de Félix Lebrun ?**: [Link](https://www.ouest-france.fr/sport/tennis-de-table/felix-lebrun/wtt-champions-montpellier-a-quelle-heure-et-sur-quelle-chaine-tv-voir-la-demie-de-felix-lebrun-b5fd37cc-93a5-11ef-8d50-f75a8f5479a6)
+
+
+### chelsea (N/A, Sun, 27 Oct 2024 06:50:00 -0700)
+
+- **Latest. Team news: Almirón and Barnes start at Stamford Bridge**: [Link](https://www.newcastleunited.com/en/news/team-news-almiron-and-barnes-start-at-stamford-bridge)
+- **Why £100m man and summer arrival have been ruthlessly dropped by Enzo 
+Maresca**: [Link](https://chelsea.news/2024/10/jadon-sancho-enzo-dropped/)
+- **Premier League Soccer: Livestream Chelsea vs. Newcastle From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-chelsea-vs-newcastle-from-anywhere/)
+
+
 ### saint tropez (N/A, Sun, 27 Oct 2024 07:40:00 -0700)
 
 - **Floods in the south-east of France: One department remains on high alert**: [Link](https://www.connexionfrance.com/news/floods-in-the-south-east-of-france-one-department-remains-on-high-alert/686138)
