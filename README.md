@@ -1,3 +1,11 @@
+### وست هام ضد مان يونايتد (N/A, Sun, 27 Oct 2024 06:30:00 -0700)
+
+- **برونو فيرنانديز يعود لتشكيل مانشستر يونايتد أمام وست هام**: [Link](https://m.kooora.com/?n=1364152&o=n)
+- **غيابات مانشستر يونايتد أمام وست هام في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/10/27/p2909251.html)
+- **يلا شوت المان يونايتد LIVE.. مشاهدة مباراة مانشستر يونايتد ضد وست هام بث 
+مباشر اليوم في الدوري الإنجليزي**: [Link](https://e.ajil.news/4395/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-%D8%A7%D9%84%D9%85%D8%A7%D9%86-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-live-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85/)
+
+
 ### west ham – manchester united (N/A, Sun, 27 Oct 2024 06:10:00 -0700)
 
 - **West Ham vs Manchester United: Antony ruled out with sprained ankle**: [Link](https://www.bbc.com/sport/football/live/c9wrj7dzzxlt)
