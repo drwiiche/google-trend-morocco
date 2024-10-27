@@ -1,3 +1,13 @@
+### bronny james (N/A, Sun, 27 Oct 2024 03:30:00 -0700)
+
+- **LeBron James got to play with his son. Now Bronny can work on developing a 
+game fit for the NBA.**: [Link](https://www.bostonglobe.com/2024/10/26/sports/lakers-lebron-james-bronny-james/)
+- **Skip Bayless says LeBron James doesn't like Bronny being demoted to G 
+League, doubts it will happen**: [Link](https://www.marca.com/en/basketball/nba/los-angeles-lakers/2024/10/26/671d0de6268e3e80748b457f.html)
+- **Skip Bayless launches conspiracy theory on whether Lakers will actually 
+send Bronny to G League**: [Link](https://ahnfiredigital.com/nba/lakers/skip-bayless-launches-conspiracy-theory-on-whether-lakers-will-actually-send-bronny-to-g-league/)
+
+
 ### marathon casablanca (N/A, Sat, 26 Oct 2024 23:30:00 -0700)
 
 - **Restrictions de la circulation le 27 octobre à Casablanca à cause du 
