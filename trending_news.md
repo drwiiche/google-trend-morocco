@@ -1,3 +1,10 @@
+### طقس (N/A, Sat, 26 Oct 2024 19:40:00 -0700)
+
+- **توقعات بتسجيل تساقطات مطرية وانخفاض في درجات الحرارة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%81-1454053.html)
+- **الطقس غدا السبت.. زخات مطرية مرتقبة في عدد من المناطق**: [Link](https://ar.hibapress.com/details-566480.html)
+- **الرعد والشتا جايين لعدد من المناطق**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%B1%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%B4%D8%AA%D8%A7-%D8%AC%D8%A7%D9%8A%D9%8A%D9%86-%D9%84%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-911548/)
+
+
 ### heure france (N/A, Sat, 26 Oct 2024 18:00:00 -0700)
 
 - **Passage à l'heure d'hiver: pourquoi n'a-t-on toujours pas supprimé le 
