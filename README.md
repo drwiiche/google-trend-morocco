@@ -1,3 +1,11 @@
+### fiorentina – roma (N/A, Sun, 27 Oct 2024 12:20:00 -0700)
+
+- **FORM. UFFICIALI, KEAN DAL PRIMO. BELTRAN UNICO CAMBIO RISPETTO A LECCE**: [Link](https://www.firenzeviola.it/copertina/form-ufficiali-kean-dal-primo-beltran-unico-cambio-rispetto-a-lecce-435876)
+- **Fiorentina-Roma, queste sono le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/72174/fiorentina-roma-queste-sono-le-formazioni-ufficiali)
+- **È sfida per la supremazia americana in Serie A: Commisso si gode il nuovo 
+ciclo e cerca il sorpasso a stelle e strisce su Friedkin**: [Link](https://www.fiorentinanews.com/news/546253475334/e-sfida-per-la-supremazia-americana-in-serie-a-commisso-si-gode-il-nuovo-ciclo-e-cerca-il-sorpasso-a-stelle-e-strisce-su-friedkin)
+
+
 ### marseille – paris-sg (N/A, Sun, 27 Oct 2024 12:10:00 -0700)
 
 - **DIRECT. OM-PSG (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/om-psg-live/655932)
