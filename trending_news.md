@@ -1,3 +1,27 @@
+### montpellier – toulouse (N/A, Sun, 27 Oct 2024 10:40:00 -0700)
+
+- **DIRECT. Montpellier-Toulouse (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/montpellier-toulouse-live/655934)
+- **OGC Nice - Monaco en direct - Ligue 1 : Football Scores & Résultats - 
+27/10/2024**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/live-ogc-nice-monaco_mtc1526191/live.shtml)
+- **MHSC - TFC : le 11 de départ du TFC**: [Link](https://www.lesviolets.com/actu/mhsc-tfc-le-11-de-depart-du-tfc,74274.html)
+
+
+### inter (N/A, Sun, 27 Oct 2024 10:40:00 -0700)
+
+- **Juventus Probable Line-Up Against Inter – Significant Attacking Overhaul**: [Link](https://cultofcalcio.com/juventus-probable-line-up-against-inter/)
+- **Inzaghi and Motta talk up Derby d'Italia chances**: [Link](https://www.beinsports.com/en-au/football/serie-a/articles/inzaghi-and-motta-talk-up-derby-d-italia-chances-2024-10-26)
+- **Internazionale - Juventus live: Serie A - Football**: [Link](https://www.tntsports.co.uk/football/serie-a/2024-2025/live-internazionale-juventus_mtc1534004/live-commentary.shtml)
+
+
+### wojciech szczęsny (N/A, Sun, 27 Oct 2024 10:40:00 -0700)
+
+- **Pena przerwał milczenie ws. Szczęsnego. Niespodziewana deklaracja, w 
+Hiszpanii aż huczy**: [Link](https://sport.interia.pl/barcelona-fc/news-pena-przerwal-milczenie-ws-szczesnego-niespodziewana-deklara,nId,7844382)
+- **To już pewne. Fatalne wieści dla fanów Szczęsnego. Tego nikt się nie 
+spodziewał**: [Link](https://www.sport.pl/pilka/7,64946,31418308,to-juz-pewne-fatalne-wiesci-dla-fanow-szczesnego-tego-nikt.html)
+- **"Ani jednego argumentu". Boniek dosadnie o sytuacji Szczęsnego**: [Link](https://www.meczyki.pl/newsy/pilka-nozna/ani-jednego-argumentu-boniek-dosadnie-o-sytuacji-szczesnego/253684)
+
+
 ### inter vs juventus (N/A, Sun, 27 Oct 2024 10:30:00 -0700)
 
 - **Inzaghi confirms three Inter options to replace Calhanoglu against Juventus**: [Link](https://football-italia.net/three-inter-options-to-replace-calhanoglu/)
