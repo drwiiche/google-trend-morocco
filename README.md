@@ -1,3 +1,21 @@
+### géorgie (N/A, Sun, 27 Oct 2024 08:20:00 -0700)
+
+- **Législatives en Géorgie : l’opposition refuse de reconnaître des « 
+élections volées », la commission électorale proclame la victoire du parti 
+prorusse au pouvoir**: [Link](https://www.lemonde.fr/international/article/2024/10/27/legislatives-en-georgie-l-opposition-refuse-de-reconnaitre-des-elections-volees-la-commission-electorale-proclame-la-victoire-du-parti-prorusse-au-pouvoir_6360337_3211.html)
+- **En Géorgie, des législatives cruciales pour son avenir européen**: [Link](https://medias24.com/agence-presse/en-georgie-des-legislatives-cruciales-pour-son-avenir-europeen/)
+- **Législatives en Géorgie : le parti au pouvoir annoncé vainqueur par la 
+commission électorale après un scrutin émaillé d'incidents**: [Link](https://www.francetvinfo.fr/monde/europe/georgie/legislatives-en-georgie-le-parti-au-pouvoir-revendique-une-majorite-solide-face-aux-oppositions-pro-europeennes_6861686.html)
+
+
+### لائحة العطل (N/A, Sun, 27 Oct 2024 08:20:00 -0700)
+
+- **تعرف إلى لائحة العطل الجامعية 2024- 2025 في المغرب**: [Link](https://almashhad.com/article/459217420284850-entertainment/885631200257364-%D8%AA%D8%B9%D8%B1%D9%81-%D8%A5%D9%84%D9%89-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%B9%D8%B7%D9%84-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D9%8A%D8%A9-2024-2025-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+- **"وقتــاش العطــلة".. العطل الرسمية 2025 في المغرب كما أعلنتها وزارة التربية 
+الوطنية**: [Link](https://ar.elbadil.com/676138/%D9%88%D9%82%D8%AA%D9%80%D9%80%D8%A7%D8%B4-%D8%A7%D9%84%D8%B9%D8%B7%D9%80%D9%80%D9%84%D8%A9-%D8%A7%D9%84%D8%B9%D8%B7%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-2025-%D9%81%D9%8A-%D8%A7/)
+- **وزارة التربية الوطنية المغربية تعلن موعد العطل الرسمية لعام 2025**: [Link](https://e.ajil.news/3473/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D9%85/)
+
+
 ### félix lebrun (N/A, Sun, 27 Oct 2024 07:50:00 -0700)
 
 - **Tennis de table : Victoire historique de Félix Lebrun, en finale à 
