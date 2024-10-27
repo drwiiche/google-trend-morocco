@@ -1,3 +1,27 @@
+### vfl bochum – bayern (N/A, Sun, 27 Oct 2024 06:40:00 -0700)
+
+- **An ihn hat der FC Bayern ganz schlechte Erinnerungen**: [Link](https://www.sport1.de/news/fussball/bundesliga/2024/10/an-ihn-hat-der-fc-bayern-ganz-schlechte-erinnerungen)
+- **VfL Bochum vs. FC Bayern München LIVE: Bundesliga im LIVE-TICKER**: [Link](https://www.dazn.com/de-DE/news/fussball/vfl-bochum-vs-fc-bayern-muenchen-live-bundesliga-ticker-blog/skivec4f0nyu1065glxonzwfc)
+- **FC Bayern: Aufstellung da: Superstar zurück, Thomas Müller auf der Bank**: [Link](https://www.bild.de/sport/fussball/fc-bayern-aufstellung-da-superstar-zurueck-thomas-mueller-auf-der-bank-671e3823b54ff317ce968a78)
+
+
+### لائحة العطل 2025 (N/A, Sun, 27 Oct 2024 06:40:00 -0700)
+
+- **تعرف إلى لائحة العطل الجامعية 2024- 2025 في المغرب**: [Link](https://almashhad.com/article/459217420284850-entertainment/885631200257364-%D8%AA%D8%B9%D8%B1%D9%81-%D8%A5%D9%84%D9%89-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%B9%D8%B7%D9%84-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D9%8A%D8%A9-2024-2025-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+- **"وقتــاش العطــلة".. العطل الرسمية 2025 في المغرب كما أعلنتها وزارة التربية 
+الوطنية**: [Link](https://ar.elbadil.com/676138/%D9%88%D9%82%D8%AA%D9%80%D9%80%D8%A7%D8%B4-%D8%A7%D9%84%D8%B9%D8%B7%D9%80%D9%80%D9%84%D8%A9-%D8%A7%D9%84%D8%B9%D8%B7%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-2025-%D9%81%D9%8A-%D8%A7/)
+- **وزارة التربية الوطنية المغربية تعلن موعد العطل الرسمية لعام 2025**: [Link](https://e.ajil.news/3473/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D9%85/)
+
+
+### arsenal vs liverpool (N/A, Sun, 27 Oct 2024 06:40:00 -0700)
+
+- **Arsenal vs Liverpool: Premier League title rivals meet on Sunday in crucial 
+match**: [Link](https://www.bbc.com/sport/football/articles/cpqdj7pelwqo)
+- **Is Arsenal star William Saliba suspended vs Liverpool amid Fantasy Premier 
+League confusion**: [Link](https://www.football.london/arsenal-fc/news/arsenal-star-william-saliba-suspended-30235014)
+- **The Daily Acca: Depleted Gunners to be beaten in this 18/1 shot**: [Link](https://onefootball.com/en/news/the-daily-acca-depleted-gunners-to-be-beaten-in-this-181-shot-40225168)
+
+
 ### وست هام ضد مان يونايتد (N/A, Sun, 27 Oct 2024 06:30:00 -0700)
 
 - **برونو فيرنانديز يعود لتشكيل مانشستر يونايتد أمام وست هام**: [Link](https://m.kooora.com/?n=1364152&o=n)
