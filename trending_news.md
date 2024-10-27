@@ -1,3 +1,19 @@
+### inter – juventus (N/A, Sun, 27 Oct 2024 09:20:00 -0700)
+
+- **Motta sorprende: per Yildiz e Thuram rischio panchina, dentro Weah. Fiducia 
+a Danilo**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/27-10-2024/inter-juve-la-formazione-di-thiago-motta-yildiz-in-panchina.shtml)
+- **Serie A, verso un Derby d’Italia con tante assenze e nel segno di due 
+fratelli**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-verso-un-derby-d-italia-con-tante-assenze-e-nel-segno-di-due-fratelli/Y7myFz7m/)
+- **LA PARTITA PEGGIORE NEL MOMENTO PIU' DIFFICILE**: [Link](https://www.tuttojuve.com/primo-piano/la-partita-peggiore-nel-momento-piu-difficile-707509)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 27 Oct 2024 09:10:00 -0700)
+
+- **ترتيب هدافي الدوري الإنجليزي**: [Link](https://hihi2.com/2024/10/26/p2908567.html)
+- **جدول ترتيب الدوري الإنجليزي.. ليفربول في الصدارة**: [Link](https://www.egypttelegraph.com/article/85136/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9)
+- **بطولة إنجلترا لكرة القدم.. النتائج والترتيب في الجولة الـ 8**: [Link](https://www.analkhabar.com/%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D8%A6%D8%AC/)
+
+
 ### fenerbahçe – bodrum (N/A, Sun, 27 Oct 2024 08:40:00 -0700)
 
 - **Tadic ve Szymanski Neden Oynamıyor? Mourinho’dan Ters Köşe!**: [Link](https://www.sportif54.com/tadic-ve-szymanski-neden-oynamiyor-mourinhodan-ters-kose-132379.html)
