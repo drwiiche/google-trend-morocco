@@ -1,3 +1,10 @@
+### أولمبيك مارسيليا ضد بي اس جي (N/A, Sun, 27 Oct 2024 12:10:00 -0700)
+
+- **حكيمي وحارث وجها لوجه في كلاسيكو فرنسا**: [Link](https://m.kooora.com/?n=1364271&o=n)
+- **الموعد والقنوات الناقلة لمباراة باريس سان جيرمان ومارسيليا في الدوري الفرنسي**: [Link](https://www.almasryalyoum.com/news/details/3292504)
+- **تشكيلة باريس سان جيرمان المتوقعة أمام مارسيليا في الدوري الفرنسي**: [Link](https://hihi2.com/2024/10/27/p2909311.html)
+
+
 ### fiorentina – roma (N/A, Sun, 27 Oct 2024 12:20:00 -0700)
 
 - **FORM. UFFICIALI, KEAN DAL PRIMO. BELTRAN UNICO CAMBIO RISPETTO A LECCE**: [Link](https://www.firenzeviola.it/copertina/form-ufficiali-kean-dal-primo-beltran-unico-cambio-rispetto-a-lecce-435876)
