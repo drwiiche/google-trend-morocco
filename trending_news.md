@@ -1,3 +1,26 @@
+### om (N/A, Sun, 27 Oct 2024 12:00:00 -0700)
+
+- **For OM-PSG, DAZN Sends... Comedians**: [Link](https://www.footboom1.com/en/news/football/1994997-for-om-psg-dazn-sends-comedians)
+- **OM-PSG: DAZN Sends Comedians, Nobody Is Laughing**: [Link](https://www.footboom1.com/en/news/football/1994721-om-psg-dazn-sends-comedians-nobody-is-laughing)
+- **What could unlock Elye Wahi’s potential at Marseille?**: [Link](https://sports.yahoo.com/could-unlock-elye-wahi-potential-114000651.html)
+
+
+### psg (N/A, Sun, 27 Oct 2024 11:50:00 -0700)
+
+- **DIRECT. OM-PSG (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/om-psg-live/655932)
+- **OM - PSG : sur quelle chaîne et à quelle heure voir le match de Ligue 1 en 
+direct ?**: [Link](https://www.ouest-france.fr/sport/football/olympique-de-marseille/om-psg-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-1-en-direct-c3bda6be-92d1-11ef-bba1-911d20d147e0)
+- **OM - PSG : les compositions probables**: [Link](https://www.footmercato.net/a3444814383759388573-om-psg-les-compositions-probables)
+
+
+### ligue 1 (N/A, Sun, 27 Oct 2024 11:50:00 -0700)
+
+- **DIRECT. OL-Auxerre (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/lyon-auxerre-live/655933)
+- **Penalty litigieux et réserve technique : que s'est-il passé lors 
+d'Olympique Lyonnais - AJ Auxerre**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/penalty-litigieux-et-reserve-technique-que-s-est-il-passe-lors-d-olympique-lyonnais-aj-auxerre_sto10381691/story.shtml)
+- **Lyon : les regrets de Tessmann**: [Link](https://news.maxifoot.fr/lyon/les-regrets-de-tessmann-foot-421818.htm)
+
+
 ### psg vs marseille (N/A, Sun, 27 Oct 2024 11:40:00 -0700)
 
 
