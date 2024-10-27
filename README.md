@@ -1,3 +1,21 @@
+### heure france (N/A, Sat, 26 Oct 2024 18:00:00 -0700)
+
+- **Passage à l'heure d'hiver: pourquoi n'a-t-on toujours pas supprimé le 
+changement d'heure?**: [Link](https://www.bfmtv.com/societe/passage-a-l-heure-d-hiver-pourquoi-n-a-t-on-toujours-pas-supprime-le-changement-d-heure_AN-202410260043.html)
+- **Heure d’hiver le 27 octobre 2024 : on avance ou on recule ?**: [Link](https://www.humanite.fr/vie-quotidienne/changement-dheure/heure-dhiver-le-27-octobre-2024-on-avance-ou-on-recule)
+- **Ça va faire très mal : pourquoi le changement d'heure d'hiver 2024 sera 
+encore pire que celui d'été**: [Link](https://www.linternaute.com/actualite/societe/2673608-article/)
+
+
+### olmo (N/A, Sat, 26 Oct 2024 14:10:00 -0700)
+
+- **Barcelona’s Dani Olmo: ‘El Clásico is the best match in Europe’**: [Link](https://www.chatsports.com/soccer/a/source/barcelonas-dani-olmo-el-clasico-is-the-best-match-in-europe-18017594)
+- **Barcelona summer signing looking forward to first Clasico - 'We can beat 
+Madrid with our ideas'**: [Link](https://barcauniversal.com/barcelona-summer-signing-looking-forward-to-first-clasico-we-can-beat-madrid-with-our-ideas/)
+- **“There are no favourites” – Barcelona star looking forward to first El 
+Clasico experience**: [Link](https://www.football-espana.net/2024/10/24/there-are-no-favourites-barcelona-star-looking-forward-to-first-el-clasico-experience)
+
+
 ### flick (N/A, Sat, 26 Oct 2024 14:40:00 -0700)
 
 - **Barcelona vs. Bayern: Robert Lewandowski's career record against his former 
