@@ -1,3 +1,11 @@
+### lyon – auxerre (N/A, Sun, 27 Oct 2024 09:30:00 -0700)
+
+- **Ligue 1 - OL - Auxerre | Lyon accroché à domicile par l'AJA**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/ligue-1-ol-auxerre-lyon-accroche-a-domicile-par-l-aja_sto10381686/story.shtml)
+- **Penalty litigieux et réserve technique : que s'est-il passé lors 
+d'Olympique Lyonnais - AJ Auxerre**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/penalty-litigieux-et-reserve-technique-que-s-est-il-passe-lors-d-olympique-lyonnais-aj-auxerre_sto10381691/story.shtml)
+- **DIRECT. OL-Auxerre (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/lyon-auxerre-live/655933)
+
+
 ### inter – juventus (N/A, Sun, 27 Oct 2024 09:20:00 -0700)
 
 - **Motta sorprende: per Yildiz e Thuram rischio panchina, dentro Weah. Fiducia 
