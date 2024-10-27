@@ -1,3 +1,27 @@
+### psg vs marseille (N/A, Sun, 27 Oct 2024 11:40:00 -0700)
+
+
+
+
+### serie a (N/A, Sun, 27 Oct 2024 11:40:00 -0700)
+
+- **LIVE Serie A - Inter-Juventus 4-2, poker di Dumfries**: [Link](https://www.vocegiallorossa.it/serie-a/live-serie-a-inter-juventus-4-2-poker-di-dumfries-260623)
+- **Rovella a Dazn: «Standing ovation? Un'esperienza emozionante, il nostro 
+potenziale è incerto»**: [Link](https://www.laziochannel.it/2024/10/rovella-a-dazn-standing-ovation-unesperienza-emozionante-il-nostro-potenziale-e-incerto/)
+- **L'angolo rossoblù: «Con la Lazio finisce 3 a 0 per i padroni di casa. Nulla 
+da eccepire sul risultato**: [Link](https://www.pianetagenoa1893.net/primo-piano/langolo-rossoblu-con-la-lazio-finisce-3-a-0-per-i-padroni-di-casa-nulla-da-eccepire-sul-risultato/)
+
+
+### juventus (N/A, Sun, 27 Oct 2024 10:40:00 -0700)
+
+- **Danilo, ormai sembra Alex Sandro: l'Inter dopo lo Stoccarda, il regala 
+rigori**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2024/10/27-134612415/danilo_ormai_sembra_alex_sandro_l_inter_dopo_lo_stoccarda_il_regala_rigori)
+- **Yildiz entra.. segna e spacca! Doppietta micidiale del talentino bianconero 
+a San Siro**: [Link](https://www.tuttojuve.com/altre-notizie/yildiz-entra-segna-e-spacca-doppietta-micidiale-del-talentino-bianconero-a-san-siro-707735)
+- **Inter-Juventus, 75.056 spettatori a San Siro. Secondo incasso della storia 
+della Serie A**: [Link](https://www.fcinter1908.it/ultimora/inter-juventus-spettatori-incasso-record/)
+
+
 ### الدوري الانجليزي (N/A, Sun, 27 Oct 2024 11:30:00 -0700)
 
 - **محمد صلاح ثامن هدافي البريميرليج عبر تاريخه**: [Link](https://hihi2.com/2024/10/27/p2910261.html)
