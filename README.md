@@ -1,3 +1,11 @@
+### direction générale de la météorologie (N/A, Sun, 27 Oct 2024 14:40:00 -0700)
+
+- **Alerte météo. Froid, pluie et neige dans plusieurs régions**: [Link](https://medias24.com/2024/10/27/alerte-meteo-froid-pluie-et-neige-dans-plusieurs-regions/)
+- **Fortes pluies, chutes de neige et temps froid de lundi à mercredi dans 
+plusieurs villes du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-de-lundi-au-mercredi-dans-plusieurs-villes-du-maroc/248889)
+- **Les températures attendues ce dimanche 27 octobre 2024**: [Link](https://fr.hespress.com/392688-les-temperatures-attendues-ce-dimanche-27-octobre-2024.html)
+
+
 ### amine harit (N/A, Sun, 27 Oct 2024 13:20:00 -0700)
 
 - **Marseille vs. PSG (Oct 27, 2024) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/706502)
