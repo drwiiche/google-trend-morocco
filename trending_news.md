@@ -1,3 +1,11 @@
+### flick (N/A, Sat, 26 Oct 2024 14:40:00 -0700)
+
+- **Barcelona vs. Bayern: Robert Lewandowski's career record against his former 
+club**: [Link](https://www.sportsmole.co.uk/football/barcelona/feature/robert-lewandowskis-record-vs-bayern-munich_556043.html)
+- **LewanGOALsky Approaches Clásico with 700 Career Goals**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/lewangoalsky-approaches-cl%C3%A1sico-with-700-career-goals-2024-10-25)
+- **Barcelona hitman in the clear lead for the Pichichi award**: [Link](https://barcauniversal.com/barcelona-hitman-in-the-clear-lead-for-the-pichichi-award/)
+
+
 ### gafi algérie (N/A, Sat, 26 Oct 2024 16:10:00 -0700)
 
 - **L’Algérie, l’Angola, la Côte d’Ivoire et le Liban ajoutés à la « liste 
