@@ -1,3 +1,10 @@
+### real sociedad vs osasuna (N/A, Sun, 27 Oct 2024 14:10:00 -0700)
+
+- **Real Sociedad vs. Osasuna (Oct 27, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704767)
+- **Real Sociedad welcome back 4 players for Osasuna clash**: [Link](https://sports.yahoo.com/real-sociedad-welcome-back-4-161000167.html)
+- **Real and Osasuna Gear Up for European Battle**: [Link](https://www.footboom1.com/en/news/football/1991963-real-and-osasuna-gear-up-for-european-battle)
+
+
 ### حالة الطقس غدا (N/A, Sun, 27 Oct 2024 15:10:00 -0700)
 
 - **«العواصف قادمة ».. بيان عاجل بشأن تحول حالة الطقس فى نوفمبر: اتخذوا 
