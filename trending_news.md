@@ -1,3 +1,19 @@
+### psg vs (N/A, Sun, 27 Oct 2024 12:50:00 -0700)
+
+- **Marseille v PSG Tips: Hakimi’s the man in our 15/1 Bet Builder**: [Link](https://news.paddypower.com/football/2024/10/27/marseille-v-psg-tips-hakimis-15-1-bet-builder-october-27/)
+- **A Tense Classico Awaits - La Nouvelle République Algérie**: [Link](https://www.footboom1.com/en/news/football/1993710-a-tense-classico-awaits-la-nouvelle-republique-algerie)
+- **List of Saint-Germain absences in the French Clasico**: [Link](https://www.ysscores.com/en/news/6022806/List-of-Saint-Germain-absences-in-the-French-Clasico)
+
+
+### classement ligue 1 (N/A, Sun, 27 Oct 2024 12:50:00 -0700)
+
+- **DIRECT. OL-Auxerre (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/lyon-auxerre-live/655933)
+- **Penalty litigieux et réserve technique : que s'est-il passé lors 
+d'Olympique Lyonnais - AJ Auxerre**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/penalty-litigieux-et-reserve-technique-que-s-est-il-passe-lors-d-olympique-lyonnais-aj-auxerre_sto10381691/story.shtml)
+- **OL - Auxerre : situation ubuesque, les Auxerrois déposent une réserve en 
+plein match**: [Link](https://www.footmercato.net/a8672470603516394645-ol-auxerre-situation-ubuesque-les-auxerrois-deposent-une-reserve-en-plein-match)
+
+
 ### أولمبيك مارسيليا ضد بي اس جي (N/A, Sun, 27 Oct 2024 12:10:00 -0700)
 
 - **حكيمي وحارث وجها لوجه في كلاسيكو فرنسا**: [Link](https://m.kooora.com/?n=1364271&o=n)
