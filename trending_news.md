@@ -1,3 +1,16 @@
+### roberto mancini (N/A, Sat, 26 Oct 2024 21:40:00 -0700)
+
+- **"Distaccato, lontano dalla gente": Mancini-Arabia Saudita, dietro un 
+esonero da 25 milioni**: [Link](https://www.gazzetta.it/Calcio/nazionali/26-10-2024/mancini-esonerato-in-arabia-saudita-i-motivi-e-la-liquidazione.shtml)
+- **L'ex allenatore della Costa d'Avorio Hervé Renard torna in Arabia Saudita**: [Link](https://www.footboom1.com/it/news/football/1993035-former-ivory-coast-coach-herve-renard-returns-to-saudi-arabia)
+- **MANCINI, Dopo l'esonero gli amici lo attendono a Jesi**: [Link](https://www.firenzeviola.it/ex-viola/mancini-dopo-l-esonero-gli-amici-lo-attendono-a-jesi-435833)
+
+
+### hihi2 (N/A, Sat, 26 Oct 2024 14:30:00 -0700)
+
+
+
+
 ### طقس (N/A, Sat, 26 Oct 2024 19:40:00 -0700)
 
 - **توقعات بتسجيل تساقطات مطرية وانخفاض في درجات الحرارة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%81-1454053.html)
