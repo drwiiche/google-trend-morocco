@@ -1,3 +1,11 @@
+### arsenal – liverpool (N/A, Sun, 27 Oct 2024 08:30:00 -0700)
+
+- **Arsenal vs Liverpool: Premier League title rivals meet on Sunday in crucial 
+match**: [Link](https://www.bbc.com/sport/football/articles/cpqdj7pelwqo)
+- **The Daily Acca: Depleted Gunners to be beaten in this 18/1 shot**: [Link](https://onefootball.com/fr/news/the-daily-acca-depleted-gunners-to-be-beaten-in-this-181-shot-40225168)
+- **Liverpool off to 'fantastic start' under Slot**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/liverpool-off-to-fantastic-start-under-arne-slot)
+
+
 ### géorgie (N/A, Sun, 27 Oct 2024 08:20:00 -0700)
 
 - **Législatives en Géorgie : l’opposition refuse de reconnaître des « 
