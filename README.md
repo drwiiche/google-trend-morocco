@@ -1,3 +1,11 @@
+### f1 (N/A, Sun, 27 Oct 2024 11:10:00 -0700)
+
+- **F1 Mexico GP – Start time, how to watch, starting grid & TV channel**: [Link](https://www.motorsport.com/f1/news/f1-mexico-gp-start-time-how-to-watch-starting-grid-tv-channel/10667345/)
+- **F1 live streams: Link to watch Mexico Grand Prix online**: [Link](https://www.independent.co.uk/f1/f1-live-stream-link-free-mexico-b2636484.html)
+- **Sainz clinches sensational pole position ahead of Verstappen and Norris 
+during dramatic qualifying session in Mexico**: [Link](https://www.formula1.com/en/latest/article/sainz-clinches-sensational-pole-position-ahead-of-verstappen-and-norris.5b8PfwxS7dT9icIJsWGtCf)
+
+
 ### montpellier – toulouse (N/A, Sun, 27 Oct 2024 10:40:00 -0700)
 
 - **DIRECT. Montpellier-Toulouse (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/montpellier-toulouse-live/655934)
