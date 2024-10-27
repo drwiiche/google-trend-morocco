@@ -1,3 +1,10 @@
+### saint tropez (N/A, Sun, 27 Oct 2024 07:40:00 -0700)
+
+- **Floods in the south-east of France: One department remains on high alert**: [Link](https://www.connexionfrance.com/news/floods-in-the-south-east-of-france-one-department-remains-on-high-alert/686138)
+- **Floods hit Saint-Tropez as rains lash south of France**: [Link](https://www.caledonianrecord.com/news/national/floods-hit-saint-tropez-as-rains-lash-south-of-france/article_17db6ef4-3ac7-567a-9de3-9309be207977.html)
+- **Floods hit Saint-Tropez as rains lash south of France**: [Link](https://www.news-shield.com/news/national/article_edbf4142-feec-5680-9a4e-57d83fd601ff.html)
+
+
 ### تشيلسي ضد نيوكاسل يونايتد (N/A, Sun, 27 Oct 2024 07:10:00 -0700)
 
 - **نيتو أساسيا وإنزو بديلا أمام نيوكاسل**: [Link](https://m.kooora.com/?n=1364154&o=n)
