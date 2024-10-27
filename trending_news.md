@@ -1,3 +1,10 @@
+### amine harit (N/A, Sun, 27 Oct 2024 13:20:00 -0700)
+
+- **Marseille vs. PSG (Oct 27, 2024) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/706502)
+- **Video: Harit Provides PSG Advantage Following Straight Red Card**: [Link](https://onefootball.com/en/news/video-harit-provides-psg-advantage-following-straight-red-card-40227917)
+- **Video: Harit Provides PSG Advantage Following Straight Red Card**: [Link](https://psgtalk.com/2024/10/video-harit-provides-psg-advantage-following-straight-red-card/)
+
+
 ### real sociedad (N/A, Sun, 27 Oct 2024 13:30:00 -0700)
 
 - **Real Sociedad vs. Osasuna (Oct 27, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704767)
