@@ -1,3 +1,17 @@
+### marseille – paris-sg (N/A, Sun, 27 Oct 2024 12:10:00 -0700)
+
+- **DIRECT. OM-PSG (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/om-psg-live/655932)
+- **Streaming Real Madrid - Barcelone, comment regarder le choc en direct ?**: [Link](https://www.20minutes.fr/guide-achat/4117894-20241026-streaming-real-madrid-barcelone-direct-comment-regarder-choc-liga-samedi-soir)
+- **OM - PSG : Mason Greenwood, funambule et sniper d'élite**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/om-psg-mason-greenwood-funambule-et-sniper-delite_sto20048191/story.shtml)
+
+
+### real sociedad – osasuna (N/A, Sun, 27 Oct 2024 12:10:00 -0700)
+
+- **Seis cambios en el once titular para enfrentarse a Osasuna**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20241027/1002341928/seis-cambios-once-titular-enfrentarse-osasuna.html)
+- **¿Quién se llevará la victoria en el derbi entre la Real y Osasuna?**: [Link](https://www.eitb.eus/es/deportes/futbol/osasuna/videos/detalle/9614201/quien-se-llevara-victoria-en-derbi-entre-real-y-osasuna/)
+- **Roberto López Ufarte: Piernas frescas siempre necesarias**: [Link](https://www.diariovasco.com/real-sociedad/roberto-lopez-ufarte-piernas-frescas-siempre-necesarias-20241027083331-nt.html)
+
+
 ### om (N/A, Sun, 27 Oct 2024 12:00:00 -0700)
 
 - **For OM-PSG, DAZN Sends... Comedians**: [Link](https://www.footboom1.com/en/news/football/1994997-for-om-psg-dazn-sends-comedians)
