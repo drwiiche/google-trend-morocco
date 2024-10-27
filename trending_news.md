@@ -1,3 +1,11 @@
+### الوداد (N/A, Sat, 26 Oct 2024 14:20:00 -0700)
+
+- **موكوينا: "لو لعبنا ضد ن. بركان 10 مرات لكانت انتصاراتنا أكثر من هزائمنا 
+وفلسفتي ومبادئي سأموت من أجلها"**: [Link](https://m.elbotola.com/article/2024-10-26-23-05-654.html)
+- **بالصور: لاعبو الوداد ومدربه يحتمون بالأمن من هجوم الجماهير**: [Link](https://www.kooora.com/?n=1364089)
+- **غضب عارم لجماهير الوداد بعد الهزيمة أمام نهضة بركان**: [Link](https://www.akhbarona.com/videos/394548.html)
+
+
 ### bronny james (N/A, Sun, 27 Oct 2024 03:30:00 -0700)
 
 - **LeBron James got to play with his son. Now Bronny can work on developing a 
