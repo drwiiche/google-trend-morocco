@@ -1,3 +1,27 @@
+### zidane (N/A, Sun, 27 Oct 2024 10:20:00 -0700)
+
+- **Zidane, ça se confirme !**: [Link](https://www.football.fr/international/zidane-ca-se-confirme-2-720752.html)
+- **Sir Alex Ferguson: Paul Scholes says it was 'distasteful' and 
+'disrespectful' to end legend's ambassador role**: [Link](https://www.eurosport.com/football/premier-league/2024-2025/paul-scholes-sir-alex-ferguson-ineos-manchester-united-ambassador-contract-disrespectful_sto20048204/story.shtml)
+- **Sir Alex Ferguson set to miss Man United clash with Brentford in first 
+match since legendary manager's ambassa**: [Link](https://www.dailymail.co.uk/sport/football/article-13977607/Sir-Alex-Ferguson-miss-Man-United-Brentford-ambassadorial-contact-axed.html)
+
+
+### ليفربول (N/A, Sun, 27 Oct 2024 10:20:00 -0700)
+
+- **صلاح وأسلحة أخرى.. كيف يستغل سلوت ثغرات آرسنال؟**: [Link](https://www.kooora.com/?n=1363910)
+- **آرسنال المثقل بالإصابات يسعى لتجنّب الخسارة أمام ليفربول**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%AB%D9%82%D9%84-%D8%A8%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%AA%D8%AC%D9%86-%D8%A8-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-2024-10-27)
+- **تشكيلة أرسنال الرسمية للقاء ليفربول في الدوري الانجليزي**: [Link](https://hihi2.com/2024/10/27/p2909918.html)
+
+
+### manchester united (N/A, Sun, 27 Oct 2024 09:00:00 -0700)
+
+- **Erik ten Hag left fuming after 'injustice' during Man Utd's loss at West Ham**: [Link](https://www.skysports.com/football/video/30998/13242873/erik-ten-hag-left-fuming-after-injustice-during-man-utds-loss-at-west-ham)
+- **Wolves' Matheus Cunha scores equaliser against Brighton in 93rd minute in 
+Premier League**: [Link](https://www.skysports.com/football/video/30998/13242276/wolves-matheus-cunha-scores-late-equaliser-against-brighton-in-93rd-minute-in-premier-league)
+- **RB Leipzig vs Liverpool: Darwin Nunez performance analysed**: [Link](https://www.skysports.com/football/video/11095/13240326/rb-leipzig-vs-liverpool-darwin-nunez-performance-analysed)
+
+
 ### سعد الصغير (N/A, Sun, 27 Oct 2024 10:10:00 -0700)
 
 - **سعد الصغير أثناء محاكمته: "لا أتعاطى الحشيش.. أتناول الترامادول فقط لأسباب 
