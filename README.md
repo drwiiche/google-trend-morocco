@@ -1,3 +1,12 @@
+### formula 1 (N/A, Sun, 27 Oct 2024 14:50:00 -0700)
+
+- **Mexico City GP Qualifying: Carlos Sainz claims dramatic pole position from 
+Max Verstappen and Lando Norris**: [Link](https://www.skysports.com/f1/news/12433/13241874/mexico-city-gp-qualifying-carlos-sainz-claims-dramatic-pole-position-from-max-verstappen-and-lando-norris)
+- **LIVE: 2024 F1 Mexican Grand Prix**: [Link](https://racingnews365.com/live-2024-f1-mexican-grand-prix)
+- **PIRELLI STRATEGY GUIDE: What are the tactical options for the Mexico City 
+Grand Prix?**: [Link](https://www.formula1.com/en/latest/article/pirelli-strategy-guide-what-are-the-tactical-options-for-the-mexico-city.6cQO7nqDd43MtdW6cEQs7m)
+
+
 ### direction générale de la météorologie (N/A, Sun, 27 Oct 2024 14:40:00 -0700)
 
 - **Alerte météo. Froid, pluie et neige dans plusieurs régions**: [Link](https://medias24.com/2024/10/27/alerte-meteo-froid-pluie-et-neige-dans-plusieurs-regions/)
