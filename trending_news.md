@@ -1,3 +1,10 @@
+### real sociedad (N/A, Sun, 27 Oct 2024 13:30:00 -0700)
+
+- **Real Sociedad vs. Osasuna (Oct 27, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704767)
+- **Real Sociedad welcome back 4 players for Osasuna clash**: [Link](https://sports.yahoo.com/real-sociedad-welcome-back-4-161000167.html)
+- **Real and Osasuna Gear Up for European Battle**: [Link](https://www.footboom1.com/en/news/football/1991963-real-and-osasuna-gear-up-for-european-battle)
+
+
 ### ترتيب الدوري الفرنسي (N/A, Sun, 27 Oct 2024 12:50:00 -0700)
 
 - **سلوت: آرسنال أول فريق يتفوق علينا**: [Link](https://www.kooora.com/?n=1364293)
