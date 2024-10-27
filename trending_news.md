@@ -1,3 +1,27 @@
+### inter vs juventus (N/A, Sun, 27 Oct 2024 10:30:00 -0700)
+
+- **Inzaghi confirms three Inter options to replace Calhanoglu against Juventus**: [Link](https://football-italia.net/three-inter-options-to-replace-calhanoglu/)
+- **Revealed – Why Albania Star To Miss Out On Inter Milan Starting XI For 
+Serie A Clash Vs Juventus**: [Link](https://sempreinter.com/2024/10/27/revealed-why-kristjan-asllani-wont-be-in-inter-milan-starting-xi-juventus/)
+- **Inzaghi: ‘Juventus always change in principles, Allegri had his ideas, 
+Motta others’**: [Link](https://onefootball.com/it/notizie/inzaghi-juventus-always-change-in-principles-allegri-had-his-ideas-motta-others-40221441)
+
+
+### الإنتر ضد يوفنتوس (N/A, Sun, 27 Oct 2024 10:30:00 -0700)
+
+- **حدث نادر في قائمة يوفنتوس لموقعة إنتر ميلان**: [Link](https://www.kooora.com/?n=1364105)
+- **موطا يرشح إنتر ونابولي لإحراز اللقب**: [Link](https://www.almountakhab.com/node/13205830)
+- **قمة إيطالية بين إنتر ميلان وجوفنتوس بطموحات مشتركة**: [Link](https://sport.al3omk.com/70942.html)
+
+
+### inter milan (N/A, Sun, 27 Oct 2024 10:30:00 -0700)
+
+- **Probable Juventus lineup vs Inter: Weah & Fagioli in new roles?**: [Link](https://www.juvefc.com/probable-juventus-lineup-vs-inter-weah-fagioli-in-new-roles/)
+- **Inzaghi and Motta talk up Derby d'Italia chances**: [Link](https://www.beinsports.com/en-au/football/serie-a/articles/inzaghi-and-motta-talk-up-derby-d-italia-chances-2024-10-26)
+- **Juventus & Serbia Star Looking To Score First Goal Vs Inter Milan At San 
+Siro**: [Link](https://sempreinter.com/2024/10/27/dusan-vlahovic-looking-to-score-first-goal-inter-milan-san-siro/)
+
+
 ### zidane (N/A, Sun, 27 Oct 2024 10:20:00 -0700)
 
 - **Zidane, ça se confirme !**: [Link](https://www.football.fr/international/zidane-ca-se-confirme-2-720752.html)
