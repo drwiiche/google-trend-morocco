@@ -1,3 +1,10 @@
+### بوخوم ضد البايرن (N/A, Sun, 27 Oct 2024 06:50:00 -0700)
+
+- **كومباني يتطلع لمعادلة رقم فليك الأسطوري**: [Link](https://www.kooora.com/?n=1364078)
+- **بايرن ميونخ يستهدف سلسلة تهديفية رائعة منذ عهد فليك**: [Link](https://hihi2.com/2024/10/27/p2909688.html)
+- **بطولة ألمانيا: بايرن ودورتموند لمداواة الجراح الأوروبية**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20241025-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%88%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%84%D9%85%D8%AF%D8%A7%D9%88%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D8%AD-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9)
+
+
 ### vfl bochum – bayern (N/A, Sun, 27 Oct 2024 06:40:00 -0700)
 
 - **An ihn hat der FC Bayern ganz schlechte Erinnerungen**: [Link](https://www.sport1.de/news/fussball/bundesliga/2024/10/an-ihn-hat-der-fc-bayern-ganz-schlechte-erinnerungen)
