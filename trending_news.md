@@ -1,3 +1,11 @@
+### franz beckenbauer (N/A, Mon, 28 Oct 2024 13:20:00 -0700)
+
+- **Beckenbauer beim Ballon d'Or 2024 geehrt**: [Link](https://www.bundesliga.com/de/bundesliga/news/ballon-dor-2024-sonderauszeichnung-franz-beckenbauer-fc-bayern-weltmeister-29514)
+- **Ballon-d’Or: Beckenbauer-Familie auf dem roten Teppich – Die Gala im 
+Live-Ticker**: [Link](https://www.bild.de/sport/fussball/ballon-dor-beckenbauer-familie-auf-dem-roten-teppich-die-gala-im-live-ticker-671fa8a16063df6906927f1e)
+- **Beckenbauer wird beim Ballon d‘Or Tribut gezollt – Rummenigge hält Rede**: [Link](https://www.fussball.news/1-bundesliga/fc-bayern-muenchen/ballon-d-or-franz-beckenbauer-karl-heinz-rummenigge-tribut-zr-93381243.html)
+
+
 ### ballon d'or 2024 bein sport (N/A, Mon, 28 Oct 2024 12:00:00 -0700)
 
 - **Ballon d'Or 2024 LIVE - Vinicius Junior battles Rodri, Jude Bellingham for 
