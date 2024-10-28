@@ -1,3 +1,18 @@
+### galatasaray – besiktas (N/A, Mon, 28 Oct 2024 09:10:00 -0700)
+
+- **Salih Uçan "En büyük dileğimiz Beşiktaş'ı şampiyon görmek"**: [Link](https://ortacizgi.com/salih-ucan-en-buyuk-dilegimiz-besiktasi-sampiyon-gormek)
+- **Galatasaray, derbi için stada geldi**: [Link](https://www.mersintime.com/galatasaray-derbi-icin-stada-geldi)
+- **Cumhurbaşkanlığı Kabinesi, Cumhurbaşkanı Erdoğan başkanlığında Beştepe'de 
+toplandı**: [Link](https://www.haberler.com/politika/cumhurbaskanligi-kabinesi-cumhurbaskani-erdogan-17983156-haberi/)
+
+
+### iphone 16 (N/A, Mon, 28 Oct 2024 06:20:00 -0700)
+
+- **Apple releases Apple Intelligence. Here's how to get it on your iPhone**: [Link](https://www.cnbc.com/2024/10/28/apple-intelligence-released-heres-how-to-get-it-on-your-iphone.html)
+- **iOS 18.1 iPhone Update: Release Date Confirmed, iOS 18.2 Beta Live**: [Link](https://www.forbes.com/sites/davidphelan/2024/10/25/ios-181-iphone-update-release-date-confirmed-ios-182-beta-live/)
+- **Apple launches the iPhone into the AI era with free software update**: [Link](https://finance.yahoo.com/news/apple-launches-iphone-ai-era-150111409.html)
+
+
 ### as (N/A, Mon, 28 Oct 2024 08:30:00 -0700)
 
 - **Georgian president won’t recognize parliamentary election result and calls 
