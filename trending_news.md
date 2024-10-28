@@ -1,3 +1,12 @@
+### beckenbauer (N/A, Mon, 28 Oct 2024 13:20:00 -0700)
+
+- **Who is Bayern Munich’s biggest ever legend: Franz Beckenbauer or Thomas 
+Müller?**: [Link](https://www.bavarianfootballworks.com/2024/10/27/24280135/bayern-munich-biggest-ever-legend-franz-beckenbauer-thomas-muller)
+- **Thomas Muller, Robert Lewandowski & the 25 best Bayern Munich players of 
+the 21st century so far - ranked**: [Link](https://www.goal.com/en/lists/best-bayern-munich-players-21st-century-ranked/blt54836cf12fbb2681)
+- **Thomas Müller Named Bayern Munich's Best Player of the 21st Century by Goal**: [Link](https://www.footboom1.com/en/news/football/1975785-thomas-muller-named-bayern-munich-s-best-player-of-the-21st-century-by-goal)
+
+
 ### gerd muller trophy (N/A, Mon, 28 Oct 2024 13:30:00 -0700)
 
 - **Gerd Muller Trophy 2024: Kane vs Mbappe for Top Scorer Award!**: [Link](https://bvmsports.com/2024/10/26/gerd-muller-trophy-2024-kane-vs-mbappe-for-top-scorer-award/)
