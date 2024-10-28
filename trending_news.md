@@ -1,3 +1,20 @@
+### france football (N/A, Mon, 28 Oct 2024 12:00:00 -0700)
+
+- **Ballon d’Or, un nouveau trophée dévoilé !**: [Link](https://www.sports.fr/football/ballon-d-or/ballon-dor-un-nouveau-trophee-devoile-876587.html)
+- **Ballon d’or 2024. À quelle heure et sur quelle chaîne TV suivre la 
+cérémonie de remise ?**: [Link](https://www.ouest-france.fr/sport/football/ballon-d-or/ballon-dor-2024-a-quelle-heure-et-sur-quelle-chaine-tv-suivre-la-ceremonie-de-remise-780e2004-9470-11ef-bba1-911d20d147e0)
+- **Vinicius, Rodri, Bellingham, Yamal : qui sera le nouveau roi de la 68e 
+cérémonie du Ballon d'Or ? (Foot)**: [Link](https://www.lequipe.fr/Football/Actualites/Vinicius-rodri-bellingham-yamal-qui-sera-le-nouveau-roi-de-la-68e-ceremonie-du-ballon-d-or/1516702)
+
+
+### football (N/A, Mon, 28 Oct 2024 12:00:00 -0700)
+
+- **This week’s top 25 high school football rankings by The Times**: [Link](https://www.latimes.com/sports/highschool/story/2024-10-27/la-times-top-25-high-school-football-rankings-week-9)
+- **Mater Dei LB Nasir Wyatt talks Oregon Ducks, California connections, 
+winning a national title**: [Link](https://www.si.com/high-school/california/mater-dei-lb-nasir-wyatt-talks-oregon-ducks-california-connections-winning-a-national-title-01jb56eswwmn)
+- **High School Football: St. Frances Academy Joins MaxPreps Top 25!**: [Link](https://bvmsports.com/2024/10/28/high-school-football-st-frances-academy-joins-maxpreps-top-25/)
+
+
 ### الحسن الثاني (N/A, Mon, 28 Oct 2024 11:40:00 -0700)
 
 
