@@ -1,3 +1,19 @@
+### amine harit (N/A, Mon, 28 Oct 2024 08:20:00 -0700)
+
+- **Luis Enrique basks in PSG's emphatic Classique win**: [Link](https://www.beinsports.com/en-my/football/ligue-1/articles/luis-enrique-basks-in-psgs-emphatic-classique-win-2024-10-28)
+- **OM: Riolo's Troubling Announcement Following PSG Defeat!**: [Link](https://www.footboom1.com/en/news/football/1997502-om-riolo-s-troubling-announcement-following-psg-defeat)
+- **Referee Defends Amine Harit’s Red Card in OM Defeat to PSG**: [Link](https://onefootball.com/en/news/referee-defends-amine-harits-red-card-in-om-defeat-to-psg-40228851)
+
+
+### erik ten hag (N/A, Mon, 28 Oct 2024 05:50:00 -0700)
+
+- **Erik ten Hag sacked by Manchester United after two-and-a-half years as 
+manager with side 14th in Premier League**: [Link](https://www.skysports.com/football/news/11667/13213318/erik-ten-hag-sacked-by-manchester-united-after-two-and-a-half-years-as-manager-with-side-14th-in-premier-league)
+- **Club statement**: [Link](https://www.manutd.com/en/news/detail/man-utd-official-club-statement-on-erik-ten-hag-28-oct)
+- **Manchester United could be restricted to managerial free agents amid 
+Solskjaer option**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/manchester-united-could-restricted-managerial-30245227)
+
+
 ### balon de oro 2024 (N/A, Mon, 28 Oct 2024 07:50:00 -0700)
 
 - **Balón de Oro 2024 en directo | Nominados y última hora de la gala**: [Link](https://www.marca.com/futbol/balon-oro/2024/10/28/671f53d81ff7ff37b0ecd1ed-directo.html)
