@@ -1,3 +1,12 @@
+### ballon d'or (N/A, Mon, 28 Oct 2024 00:40:00 -0700)
+
+- **Ballon d'Or chief suggests Cristiano Ronaldo 'very upset' with award ruling 
+as CR7 abstains from voting and ceremony**: [Link](https://www.goal.com/en-ke/lists/ballon-d-or-chief-suggests-cristiano-ronaldo-very-upset-award-ruling-cr7-abstains-voting-ceremony/blt7a7b8cbb6636289d)
+- **Didier Drogba on the 2024 Ballon d'Or: "We Will Miss Messi and Ronaldo"**: [Link](https://www.footboom1.com/en/news/football/1994484-didier-drogba-on-the-2024-ballon-d-or-we-will-miss-messi-and-ronaldo)
+- **‘Some are very upset with us’ – Is Cristiano Ronaldo staging Ballon d’Or 
+protest?...**: [Link](https://talksport.com/football/2201008/cristiano-ronaldo-ballon-dor-protest/)
+
+
 ### hervé renard arabie saoudite (N/A, Mon, 28 Oct 2024 01:00:00 -0700)
 
 - **Hervé Renard reprend les rênes de la sélection saoudienne**: [Link](https://fr.hespress.com/392765-herve-renard-reprend-les-renes-de-la-selection-saoudienne.html)
