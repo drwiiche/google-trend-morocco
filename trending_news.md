@@ -1,3 +1,13 @@
+### as (N/A, Mon, 28 Oct 2024 08:30:00 -0700)
+
+- **Georgian president won’t recognize parliamentary election result and calls 
+for a protest**: [Link](https://apnews.com/article/georgia-russia-election-european-union-8f040cb30e1d9c9e778383cbcbb7b2c1)
+- **Election in Eastern Europe sparks calls for investigation into voter 
+'pressure'**: [Link](https://www.usatoday.com/story/news/world/2024/10/28/georgia-election-pro-russia-party-investigation-protests/75889627007/)
+- **Alleging ‘Russian special operation,’ Georgian president calls for protests 
+over disputed election**: [Link](https://www.cnn.com/2024/10/27/europe/georgia-election-russia-protests-intl-latam/index.html)
+
+
 ### amine harit (N/A, Mon, 28 Oct 2024 08:20:00 -0700)
 
 - **Luis Enrique basks in PSG's emphatic Classique win**: [Link](https://www.beinsports.com/en-my/football/ligue-1/articles/luis-enrique-basks-in-psgs-emphatic-classique-win-2024-10-28)
