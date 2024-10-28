@@ -1,3 +1,10 @@
+### ssc live (N/A, Mon, 28 Oct 2024 12:40:00 -0700)
+
+- **Di Lorenzo scores as Napoli avoid Lecce scare**: [Link](https://www.bbc.com/sport/football/live/cvglgglmgx7t)
+- **Napoli 1-0 Lecce (Oct 26, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/712199)
+- **Conte: ‘Had to calm Napoli anxiety’ and will watch Inter-Juventus**: [Link](https://football-italia.net/conte-calm-napoli-anxiety-watch-inter-juventus/)
+
+
 ### ssc sport (N/A, Mon, 28 Oct 2024 12:30:00 -0700)
 
 - **تردد قناة SSC 4 الناقلة لحفل الكرة الذهبية 2024 عبر كافة الأقمار الصناعية 
