@@ -1,3 +1,11 @@
+### rodri (N/A, Mon, 28 Oct 2024 07:00:00 -0700)
+
+- **El Balón de Oro y París esperan a Vinicius Júnior**: [Link](https://www.marca.com/futbol/balon-oro/2024/10/28/balon-oro-paris-esperan-vinicius-junior.html)
+- **Aitana, Vinicius y Lamine, favoritos en la Gala del Balón de Oro**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241028/1002341845/aitana-vinicius-lamine-favoritos-gala-balon-oro.html)
+- **Ramón de Mon deja al madridismo en shock al anunciar el posible K.O. de 
+Vini en el Balón de Oro: “No hay…”**: [Link](https://www.realmadridexclusivo.com/ultima-hora/ramon-mon-deja-madridismo-en-shock-anunciar-posible-ko-vini-en_162884_102.html)
+
+
 ### ten hag (N/A, Mon, 28 Oct 2024 06:20:00 -0700)
 
 - **Club statement**: [Link](https://www.manutd.com/en/news/detail/man-utd-official-club-statement-on-erik-ten-hag-28-oct)
