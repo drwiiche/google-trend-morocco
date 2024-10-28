@@ -1,3 +1,18 @@
+### غلطة سراي ضد بشكتاش (N/A, Mon, 28 Oct 2024 09:50:00 -0700)
+
+- **غلطة سراي يواجه بشكتاش في "ديربي" الدوري التركي**: [Link](https://www.alaraby.co.uk/sport/%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A8%D8%B4%D9%83%D8%AA%D8%A7%D8%B4-%D9%81%D9%8A-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A)
+- **القنوات الناقلة لمباراة غلطة سراي وبشكتاش اليوم في الدوري التركي**: [Link](https://www.akhbar-sharq.com/news/20553)
+- **جلطة سراي يستضيف بشكتاش في قمة الدوري التركي**: [Link](https://m.gomhuriaonline.com/Gomhuria/1539727.html)
+
+
+### ballon d'or 2024 date et heure (N/A, Mon, 28 Oct 2024 08:00:00 -0700)
+
+- **EN DIRECT Ballon d'or 2024 : Le Real Madrid fait du boudin car le trophée 
+va lui échapper, Saliba 24e**: [Link](https://www.20minutes.fr/sport/football/4118200-20241028-direct-ballon-or-2024-sacre-annonce-vinicius-nouveau-podium-mbappe)
+- **Ballon d'Or : Suivez en direct la cérémonie du Ballon d'Or 2024**: [Link](https://www.lequipe.fr/Football/actu-en-direct/ballon-d-or-live/13406)
+- **Ballon d’Or 2024 : Florentino Pérez a empêché Vinicius Jr de venir à Paris**: [Link](https://www.footmercato.net/a269433224736520064-ballon-dor-2024-florentino-perez-a-empeche-vinicius-jr-de-venir-a-paris)
+
+
 ### عبد المجيد تبون (N/A, Mon, 28 Oct 2024 09:30:00 -0700)
 
 - **تبون يلتقي السيسي في القاهرة ضمن جولة عربية تشمل مسقط**: [Link](https://www.aljazeera.net/news/2024/10/27/%D8%AA%D8%A8%D9%88%D9%86-%D9%8A%D9%84%D8%AA%D9%82%D9%8A-%D8%A7%D9%84%D8%B3%D9%8A%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%B6%D9%85%D9%86-%D8%AC%D9%88%D9%84%D8%A9)
