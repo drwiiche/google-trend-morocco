@@ -1,3 +1,10 @@
+### wetter (N/A, Sun, 27 Oct 2024 23:30:00 -0700)
+
+- **The mystery of the missing La Niña continues – and we don't know why**: [Link](https://www.newscientist.com/article/2452742-the-mystery-of-the-missing-la-nina-continues-and-we-dont-know-why/)
+- **Winter is coming, but the forecast hinges on looming La Niña**: [Link](https://www.usatoday.com/story/news/weather/2024/10/24/winter-2024-forecast-looming-la-nina/75820971007/)
+- **John Wheeler: Other factors besides La Niña point to a cold and snowy winter**: [Link](https://www.inforum.com/weather/john-wheeler-other-factors-besides-la-nina-point-to-a-cold-and-snowy-winter)
+
+
 ### حفل الكرة الذهبية 2024 (N/A, Mon, 28 Oct 2024 04:00:00 -0700)
 
 - **فينيسيوس بين حلم الذهب وكابوس التسريبات**: [Link](https://www.kooora.com/?n=1364335)
