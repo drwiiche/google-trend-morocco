@@ -1,3 +1,12 @@
+### vinicius (N/A, Mon, 28 Oct 2024 07:30:00 -0700)
+
+- **Ballon d'Or 2024: All you need to know**: [Link](https://www.premierleague.com/news/4155438)
+- **2024 Ballon d'Or ceremony: Categories, nominees, telecast and live 
+streaming - All you need to know**: [Link](https://www.hindustantimes.com/sports/football/2024-ballon-dor-ceremony-categories-nominees-telecast-and-live-streaming-all-you-need-to-know-101730115034600.html)
+- **Ballon d'Or 2024 winner decided as Vinicius Jr faces competition from 
+Arsenal and Chelsea stars**: [Link](https://www.football.london/arsenal-fc/news/ballon-dor-2024-winner-decided-30240860)
+
+
 ### rodri (N/A, Mon, 28 Oct 2024 07:00:00 -0700)
 
 - **El Balón de Oro y París esperan a Vinicius Júnior**: [Link](https://www.marca.com/futbol/balon-oro/2024/10/28/balon-oro-paris-esperan-vinicius-junior.html)
