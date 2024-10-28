@@ -1,3 +1,13 @@
+### wayne rooney (N/A, Mon, 28 Oct 2024 05:50:00 -0700)
+
+- **Wayne Rooney: Plymouth Argyle boss wants side to improve on the 'nasty bits 
+of the game'**: [Link](https://www.bbc.com/sport/football/articles/cpdvvyx1d65o)
+- **Wayne Rooney inspires comeback of season as Plymouth climb out of 
+Championship relegation zone...**: [Link](https://talksport.com/football/2199842/wayne-rooney-plymouth-preston-comeback-championship/)
+- **What a comeback for Wayne Rooney! Plymouth net stoppage time equaliser 
+after going three goals down in Championship clash against Preston**: [Link](https://www.goal.com/en/lists/wayne-rooney-plymouth-stoppage-time-equaliser-championship-clash-preston/bltbb139b4732890b78)
+
+
 ### wetter (N/A, Sun, 27 Oct 2024 23:30:00 -0700)
 
 - **The mystery of the missing La Niña continues – and we don't know why**: [Link](https://www.newscientist.com/article/2452742-the-mystery-of-the-missing-la-nina-continues-and-we-dont-know-why/)
