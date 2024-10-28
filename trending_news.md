@@ -1,3 +1,11 @@
+### vinicius júnior (N/A, Mon, 28 Oct 2024 15:40:00 -0700)
+
+- **Quem ganhou a Bola de Ouro 2024? Veja premiados e ranking**: [Link](https://www.uol.com.br/esporte/ultimas-noticias/2024/10/28/quem-ganhou-a-bola-de-ouro-2024-veja-onde-assistir-e-horario-do-premio.htm)
+- **Vini Jr não leva Bola de Ouro, mas tem a marca mais valiosa do futebol; 
+veja ranking**: [Link](https://www.infomoney.com.br/business/vini-jr-nao-leva-bola-de-ouro-mas-tem-a-marca-mais-valiosa-do-futebol-veja-ranking/)
+- **Bola de Ouro 2024: confira ao vivo os vencedores do prêmio**: [Link](https://exame.com/esporte/bola-de-ouro-2024-confira-ao-vivo-os-vencedores-do-premio/)
+
+
 ### cruyff (N/A, Mon, 28 Oct 2024 14:00:00 -0700)
 
 - **ELPA partners with the Johan Cruyff Institute to provide players with new 
