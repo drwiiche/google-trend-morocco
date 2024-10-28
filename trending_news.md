@@ -1,3 +1,13 @@
+### ballon d'or 2024 date (N/A, Mon, 28 Oct 2024 05:10:00 -0700)
+
+- **2024 Ballon d'Or ceremony: When and where, all the nominees, how the awards 
+are decided**: [Link](https://www.uefa.com/ballondor/news/0292-1c270550362a-8ed0eb6212eb-1000--2024-ballon-d-or-ceremony-when-and-where-all-the-nominees-h/)
+- **Lionel Messi, Cristiano Ronaldo and every Ballon d'Or winner of the 21st 
+century so far - ranked**: [Link](https://www.goal.com/en-us/lists/ballon-dor-winners-21st-century-ranked/blt264ca33b8a94f757)
+- **Ballon d'Or free live stream: How to watch awards night online as Vinicius 
+Jr bids for top trophy**: [Link](https://www.sportingnews.com/us/soccer/news/ballon-d-or-free-live-stream-watch-football-awards-vinicius/3a350b5a0d87c2c6abcd2a95)
+
+
 ### galatasaray – besiktas (N/A, Mon, 28 Oct 2024 09:10:00 -0700)
 
 - **Salih Uçan "En büyük dileğimiz Beşiktaş'ı şampiyon görmek"**: [Link](https://ortacizgi.com/salih-ucan-en-buyuk-dilegimiz-besiktasi-sampiyon-gormek)
