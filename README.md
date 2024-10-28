@@ -1,3 +1,34 @@
+### bein sport (N/A, Mon, 28 Oct 2024 12:10:00 -0700)
+
+- **تردد قناة bein sport news المفتوحة الناقلة لحفل الكرة الذهبية اليوم 2024 
+علي النايل سات**: [Link](https://real.alsaudinews.com/200936/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sport-news-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D8%AD%D9%81%D9%84-%D8%A7%D9%84/)
+- **علي القمر الصناعي نايل وعرب سات تردد قناة بين سبورت المفتوحة الجديد - 
+المساء الاخباري**: [Link](https://newsy.almesasports.com/273842/%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9/)
+- **الاضواء تتجه نحو..ترددات قناة بي إن سبورت 1 و 2 و 3 beIN Sports الناقلة 
+لمباريات دوري أبطال أوروبا**: [Link](https://alkhabarkw.com/channels/%D8%A7%D9%84%D8%A7%D8%B6%D9%88%D8%A7%D8%A1-%D8%AA%D8%AA%D8%AC%D9%87-%D9%86%D8%AD%D9%88-%D8%AA%D8%B1%D8%AF%D8%AF%D8%A7%D8%AA-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1/77432/)
+
+
+### l'équipe live (N/A, Mon, 28 Oct 2024 12:10:00 -0700)
+
+
+
+
+### ballon d'or 2024 live stream (N/A, Mon, 28 Oct 2024 12:10:00 -0700)
+
+- **Ballon d’Or 2024 heute LIVE im TV, Stream und Ticker - Weltfußsballerwahl**: [Link](https://www.sport1.de/news/fussball/2024/10/ballon-dor-2024-heute-live-im-tv-stream-und-ticker-weltfusssballerwahl)
+- **Vinícius entgeht Ballon d‘Or: Für Toni Kroos „riesen Überraschung“**: [Link](https://www.realtotal.de/real-madrid-vinicius-entgeht-ballon-dor-fuer-toni-kroos-riesen-ueberraschung/)
+- **DAZN oder Sky: Wer zeigt / überträgt die Ballon d'Or Verleihung 2024 heute 
+live im Free-TV und Livestream**: [Link](https://www.spox.com/de/sport/fussball/international/2410/Artikel/dazn-oder-sky-wer-zeigt-uebertraegt-die-ballon-dor-verleihung-2024-heute-live-im-free-tv-und-livestream.html)
+
+
+### francis ngannou (N/A, Mon, 28 Oct 2024 12:10:00 -0700)
+
+- **What's up with Dana White's weird thing about Francis Ngannou?**: [Link](https://sports.yahoo.com/whats-up-with-dana-whites-weird-thing-about-francis-ngannou-172814395.html)
+- **Ex-UFC fighter calls out Dana White's "unnecessary and petty" behaviour 
+about Francis Ngannou after latest comments**: [Link](https://www.sportskeeda.com/mma/news-ex-ufc-fighter-calls-dana-white-s-unnecessary-petty-behaviour-francis-ngannou-latest-comments)
+- **Dana White Squashes Dream Fight: ‘We’ll Never Be In Business Together’**: [Link](https://www.forbes.com/sites/brianmazique/2024/10/27/dana-white-squashes-dream-fight-well-never-be-in-business-together/)
+
+
 ### france football (N/A, Mon, 28 Oct 2024 12:00:00 -0700)
 
 - **Ballon d’Or, un nouveau trophée dévoilé !**: [Link](https://www.sports.fr/football/ballon-d-or/ballon-dor-un-nouveau-trophee-devoile-876587.html)
