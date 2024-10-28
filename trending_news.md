@@ -1,3 +1,12 @@
+### ballon d'or 2024 bein sport (N/A, Mon, 28 Oct 2024 12:00:00 -0700)
+
+- **Ballon d'Or 2024 LIVE - Vinicius Junior battles Rodri, Jude Bellingham for 
+award; Aitana Bonmati women's favourite**: [Link](https://www.eurosport.com/football/ballon-d-or/2024/vinicius-junior-rodri-jude-bellingham-erling-haaland-bukayo-saka-aitana-bonmati-ada-hegerberg-lauren-james-lucy-bronze_sto20048952/story.shtml)
+- **Ballon d'Or 2024 Live Streaming Award Ceremony Live Telecast: When And 
+Where To Watch**: [Link](https://sports.ndtv.com/football/ballon-dor-2024-live-streaming-award-ceremony-live-telecast-when-and-where-to-watch-6891921)
+- **Sources: Vinícius to skip Ballon d'Or, expects snub**: [Link](https://www.espn.com/soccer/story/_/id/42052014/vinicius-junior-real-madrid-skip-ballon-dor-awards-sources)
+
+
 ### ssc live (N/A, Mon, 28 Oct 2024 12:40:00 -0700)
 
 - **Di Lorenzo scores as Napoli avoid Lecce scare**: [Link](https://www.bbc.com/sport/football/live/cvglgglmgx7t)
