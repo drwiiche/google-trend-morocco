@@ -1,3 +1,28 @@
+### hervé renard arabie saoudite (N/A, Mon, 28 Oct 2024 01:00:00 -0700)
+
+- **Hervé Renard reprend les rênes de la sélection saoudienne**: [Link](https://fr.hespress.com/392765-herve-renard-reprend-les-renes-de-la-selection-saoudienne.html)
+- **Hervé Renard de retour comme sélectionneur de l’Arabie Saoudite**: [Link](https://sport.le360.ma/football/herve-renard-de-retour-comme-selectionneur-de-larabie-saoudite_ZIR5TE5NDJCWJLW7EUULHXBOOE/)
+- **Après les Bleues, Hervé Renard de retour à la tête de la sélection d'Arabie 
+saoudite**: [Link](https://www.eurosport.fr/football/apres-les-bleues-herve-renard-de-retour-en-arabie-saoudite_sto10380671/story.shtml)
+
+
+### kylian mbappé real madrid (N/A, Mon, 28 Oct 2024 00:50:00 -0700)
+
+- **Lamine Yamal makes history as Barcelona hammers Real Madrid in El Clásico**: [Link](https://www.cnn.com/2024/10/27/sport/lamine-yamal-history-barcelona-real-madrid-el-clasico-spt-intl/index.html)
+- **Defeat in the Clásico**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/reports/cronica-rm-barcelona-j11-liga-26-10-2024)
+- **Robert Lewandowski shows Kylian Mbappe how it's done! Winners & losers as 
+Barcelona striker makes the difference while frustrated Real Madrid star 
+misfires in his Clasico debut**: [Link](https://www.goal.com/en/lists/robert-lewandowski-kylian-mbappe-winners-and-losers-barcelona-real-madrid-misfires-clasico-debut/bltd61fe27bdf801e1a)
+
+
+### windy (N/A, Sun, 27 Oct 2024 21:40:00 -0700)
+
+- **Kansas City weather: Windy start to the week with rain midweek**: [Link](https://www.kmbc.com/article/kansas-city-weather-windy-start-to-the-week-with-rain-midweek/62729591)
+- **Storm Track 3 Forecast: Strong winds, fire danger, record highs Monday**: [Link](https://www.ksn.com/weather/weather-blog/storm-track-3-forecast-strong-winds-fire-danger-record-highs-monday/)
+- **FIRST WARN FORECAST: Stunning Sunday ahead, dangerously high wind to start 
+the work week**: [Link](https://www.kctv5.com/2024/10/27/first-warn-forecast-stunning-sunday-ahead-dangerously-high-wind-start-work-week/)
+
+
 ### visite macron maroc (N/A, Mon, 28 Oct 2024 00:40:00 -0700)
 
 - **Sahara et frontières avec l'Algérie: des archives françaises inédites 
