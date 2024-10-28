@@ -1,3 +1,17 @@
+### الطقس (N/A, Sun, 27 Oct 2024 23:30:00 -0700)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-12-1454502.html)
+- **مقاييس الأمطار المسجلة بالمملكة خلال الـ 24 ساعة الماضية**: [Link](https://ar.hibapress.com/details-567022.html)
+- **انذار لهذه المدن المغربية من الاثنين الى الأربعاء؟**: [Link](https://www.ariffino.net/nador-live/%D8%A7%D9%86%D8%B0%D8%A7%D8%B1-%D9%84%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D8%AF%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A7)
+
+
+### زيارة ماكرون للمغرب (N/A, Sun, 27 Oct 2024 19:00:00 -0700)
+
+- **"شراكة استراتيجية واستثنائية" .. تفاصيل برنامج زيارة ماكرون إلى المغرب**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%88%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A8%D8%B1%D9%86-1454552.html)
+- **"زيارة المصالحة الكبرى" بين باريس والرباط.. ماكرون يتجه للمغرب**: [Link](https://www.alarabiya.net/north-africa/morocco/2024/10/28/-%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D9%84%D8%AD%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89-%D8%A8%D9%8A%D9%86-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%88%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D9%85%D8%A7%D9%83%D8%B1%D9%88%D9%86-%D9%8A%D8%AA%D8%AC%D9%87-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **رسمي ..ماكرون سيقدم خطابا يوم الثلاثاء بالبرلمان**: [Link](https://ar.hibapress.com/details-567049.html)
+
+
 ### météo (N/A, Sun, 27 Oct 2024 23:00:00 -0700)
 
 - **Météo week-end prolongé de la Toussaint : entre plein soleil et grisaille 
