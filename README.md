@@ -1,3 +1,20 @@
+### météo (N/A, Sun, 27 Oct 2024 23:00:00 -0700)
+
+- **Météo week-end prolongé de la Toussaint : entre plein soleil et grisaille 
+tenace**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2024-10-27/meteo-week-end-prolonge-de-la-toussaint-entre-plein-soleil-et-grisaille-tenace-72697)
+- **Grand retour de l’anticyclone et d’un temps calme qui va durer**: [Link](https://meteo-express.com/article/grand-retour-de-lanticyclone-et-dun-temps-calme-qui-va-durer/%20)
+- **France : nombreux brouillards et nuages bas au cours des prochaines heures 
+! Le soleil va-t-il parvenir à s'imposer ?**: [Link](https://www.tameteo.com/actualites/previsions/france-nombreux-brouillards-et-nuages-bas-au-cours-des-prochaines-heures-le-soleil-va-t-il-parvenir-a-s-imposer-previsions-meteo.html)
+
+
+### weather (N/A, Sun, 27 Oct 2024 23:00:00 -0700)
+
+- **Tips to curb the combine fire epidemic**: [Link](https://www.farmprogress.com/harvest/tips-to-curb-the-combine-fire-epidemic)
+- **Maryland Department of Agriculture and Maryland Farm Bureau Remind Farmers 
+to Be Vigilant of Dry Conditions During Harvest**: [Link](https://news.maryland.gov/mda/press-release/2024/10/25/maryland-department-of-agriculture-and-maryland-farm-bureau-remind-farmers-to-be-vigilant-of-dry-conditions-during-harvest/)
+- **Chicagoland’s drought deepens, but this weekend might bring some relief**: [Link](https://www.fox32chicago.com/weather/chicagolands-drought-deepens-weekend-might-bring-relief)
+
+
 ### real sociedad vs osasuna (N/A, Sun, 27 Oct 2024 14:10:00 -0700)
 
 - **Real Sociedad vs. Osasuna (Oct 27, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704767)
