@@ -1,3 +1,21 @@
+### aitana bonmatí (N/A, Mon, 28 Oct 2024 14:20:00 -0700)
+
+- **Balón de Oro 2024, en directo | Aitana Bonmatí gana el trofeo a mejor 
+jugadora por segundo año consecutivo**: [Link](https://elpais.com/deportes/futbol/2024-10-28/premio-balon-de-oro-en-directo-la-gala-de-entrega-en-vivo.html)
+- **¿Quién ganó el Balón de Oro Femenino 2024? Premios y ganadoras en la 
+ceremonia**: [Link](https://www.marca.com/mx/futbol/balon-oro/2024/10/28/671ffebc22601d471b8b459f.html)
+- **Aitana Bonmatí deslumbra con un vestido blanco de pedrería en la gala del 
+Balón de Oro**: [Link](https://www.lavanguardia.com/magazine/moda/20241028/10057692/aitana-bonmati-deslumbra-vestido-blanco-pedreria-gala-balon-oro.html)
+
+
+### neige maroc (N/A, Mon, 28 Oct 2024 14:20:00 -0700)
+
+- **Alerte météo. Froid, pluie et neige dans plusieurs régions**: [Link](https://medias24.com/2024/10/27/alerte-meteo-froid-pluie-et-neige-dans-plusieurs-regions/)
+- **Niveau de vigilance orange: fortes pluies et rafales de vent du lundi au 
+mercredi**: [Link](https://ledesk.ma/encontinu/niveau-de-vigilance-orange-fortes-pluies-et-rafales-de-vent-du-lundi-au-mercredi/)
+- **Les températures attendues ce lundi 28 octobre 2024**: [Link](https://fr.hespress.com/392689-les-temperatures-attendues-ce-lundi-28-octobre-2024.html)
+
+
 ### jennifer hermoso (N/A, Mon, 28 Oct 2024 14:00:00 -0700)
 
 - **La voz que inspira en su lucha a Jenni Hermoso, premio Sócrates: "Es por 
