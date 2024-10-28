@@ -1,3 +1,9 @@
+### cruyff (N/A, Mon, 28 Oct 2024 14:00:00 -0700)
+
+- **ELPA partners with the Johan Cruyff Institute to provide players with new 
+academic opportunities**: [Link](https://www.eurohoops.net/en/euroleague/1734540/elpa-johan-cruyff-institute-new-partnership-euroleague/)
+
+
 ### george weah (N/A, Mon, 28 Oct 2024 14:40:00 -0700)
 
 - **George Weah red-carpet interview | 2024 Ballon d'Or**: [Link](https://supersport.com/football/general/video/6e278391-803a-4179-a6c3-00f94148bf87/george-weah-red-carpet-interview-2024-ballon-d-or)
