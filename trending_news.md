@@ -1,3 +1,28 @@
+### bein sport news (N/A, Mon, 28 Oct 2024 11:10:00 -0700)
+
+- **تردد قناة بي ان سبورت المفتوحة bein sport الناقلة لحفل الكرة الذهبية 2024 
+بث مباشر اليوم – السعودية نيوز**: [Link](https://real.alsaudinews.com/200947/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-bein-sport-%D8%A7%D9%84%D9%86%D8%A7%D9%82/)
+- **استقبل الان.. تردد قنوات bein sports hd1 2024 عبر القمر الصناعي نايل سات**: [Link](https://n.khabrna.com/304942/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D9%88%D8%A7%D8%AA-bein-sports-hd1-2024/)
+- **علي القمر الصناعي نايل وعرب سات تردد قناة بين سبورت المفتوحة الجديد - 
+المساء الاخباري**: [Link](https://newsy.almesasports.com/273842/%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9/)
+
+
+### 2m (N/A, Mon, 28 Oct 2024 10:30:00 -0700)
+
+- **Modern Art Oxford gallery gets a £2m revamp**: [Link](https://www.theartnewspaper.com/2024/10/28/modern-art-oxford-gallery-gets-a-%C2%A32m-revamp)
+- **Anglican Church commences planting of 2m trees**: [Link](https://thenationonlineng.net/anglican-church-commences-planting-of-2m-trees/)
+- **Kubwa Anglican Diocese launches 2m tree planting campaign**: [Link](https://guardian.ng/news/kubwa-anglican-diocese-launches-2m-tree-planting-campaign/)
+
+
+### ballon d'or 2024 live (N/A, Mon, 28 Oct 2024 10:20:00 -0700)
+
+- **Ballon d'Or 2024 live streaming: When and where to watch award ceremony in 
+India?**: [Link](https://www.indiatvnews.com/sports/football/ballon-dor-2024-live-streaming-when-and-where-to-watch-award-ceremony-in-india-2024-10-28-959341)
+- **2024 Ballon d'Or ceremony: When and where, all the nominees, how the awards 
+are decided**: [Link](https://www.uefa.com/ballondor/news/0292-1c270550362a-8ed0eb6212eb-1000--2024-ballon-d-or-ceremony-when-and-where-all-the-nominees-h/)
+- **Ballon d’Or LIVE: Latest updates as Real Madrid boycott Paris ceremony**: [Link](https://www.independent.co.uk/sport/football/ballon-dor-awards-live-stream-vinicius-jr-rodri-b2636743.html)
+
+
 ### غلطة سراي ضد بشكتاش (N/A, Mon, 28 Oct 2024 09:50:00 -0700)
 
 - **غلطة سراي يواجه بشكتاش في "ديربي" الدوري التركي**: [Link](https://www.alaraby.co.uk/sport/%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A8%D8%B4%D9%83%D8%AA%D8%A7%D8%B4-%D9%81%D9%8A-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A)
