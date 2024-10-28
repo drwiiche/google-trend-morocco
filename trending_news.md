@@ -1,3 +1,17 @@
+### ten hag (N/A, Mon, 28 Oct 2024 06:20:00 -0700)
+
+- **Club statement**: [Link](https://www.manutd.com/en/news/detail/man-utd-official-club-statement-on-erik-ten-hag-28-oct)
+- **Former Manchester United manager Ferguson to leave ambassador role**: [Link](https://www.reuters.com/sports/soccer/former-manchester-united-manager-ferguson-leave-ambassador-role-2024-10-15/)
+- **Erik ten Hag: Manchester United manager sacked after West Ham defeat**: [Link](https://www.bbc.com/sport/football/articles/cpvznn4v01yo)
+
+
+### موعد الكرة الذهبية 2024 (N/A, Mon, 28 Oct 2024 04:10:00 -0700)
+
+- **فينيسيوس بين حلم الكرة الذهبية وكابوس التسريبات**: [Link](https://www.kooora.com/?n=1364335)
+- **موعد حفل جائزة الكرة الذهبية**: [Link](https://hihi2.com/2024/10/28/p2911239.html)
+- **من سيفوز بالكرة الذهبية 2024 مساء اليوم؟**: [Link](https://m.elbotola.com/article/2024-10-28-09-30-776.html)
+
+
 ### wayne rooney (N/A, Mon, 28 Oct 2024 05:50:00 -0700)
 
 - **Wayne Rooney: Plymouth Argyle boss wants side to improve on the 'nasty bits 
