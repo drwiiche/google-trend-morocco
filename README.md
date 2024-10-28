@@ -1,3 +1,12 @@
+### george weah (N/A, Mon, 28 Oct 2024 14:40:00 -0700)
+
+- **George Weah red-carpet interview | 2024 Ballon d'Or**: [Link](https://supersport.com/football/general/video/6e278391-803a-4179-a6c3-00f94148bf87/george-weah-red-carpet-interview-2024-ballon-d-or)
+- **'I Won the Ballon d'Or, Played for Chelsea and Became President of my 
+Country'**: [Link](https://www.givemesport.com/geroge-weah-ballon-dor-later-became-liberia-president/)
+- **How much the Ballon d’Or is worth to a player – and why it’s become such a 
+big deal**: [Link](https://www.nytimes.com/athletic/5869965/2024/10/28/what-is-the-ballon-dor-worth/)
+
+
 ### جورج ويا (N/A, Mon, 28 Oct 2024 14:40:00 -0700)
 
 - **سجل الأكثر حصدا للكرة الذهبية الإفريقية على مر التاريخ**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%84%D8%A3%D9%83%D8%AB%D8%B1-%D8%AD%D8%B5%D8%AF%D8%A7-%D9%84%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/)
