@@ -1,3 +1,18 @@
+### ballon d'or ceremony (N/A, Mon, 28 Oct 2024 10:10:00 -0700)
+
+- **Vinicius Jr and Real Madrid Won’t Attend the Ballon d’Or Ceremony**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/vinicius-jr-and-real-madrid-won-t-attend-the-ballon-d-or-ceremony-2024-10-28)
+- **Ballon d'Or 2024 predictions: Will Vinicius Junior or Rodri win this year's 
+award?**: [Link](https://www.sportsmole.co.uk/football/man-city/ballon-dor/feature/unfashionable-rodri-or-magical-vinicius-who-will-win-the-2024-ballon-dor_556497.html)
+- **Rodri to be named Ballon d'Or 2024 winner in shock twist: reports**: [Link](https://www.fourfourtwo.com/news/rodri-to-be-named-ballon-dor-2024-winner-in-shock-twist)
+
+
+### محمد السادس (N/A, Mon, 28 Oct 2024 09:40:00 -0700)
+
+- **الملك محمد السادس يظهر مستعينا بعكاز طبي أثناء استقبال الرئيس ماكرون**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B8%D9%87%D8%B1-%D9%85%D8%B3%D8%AA%D8%B9%D9%8A%D9%86%D8%A7-%D8%A8%D8%B9%D9%83%D8%A7%D8%B2-%D8%B7-1455193.html)
+- **عاجل..الملك محمد السادس يستقبل الرئيس الفرنسي ماكرون**: [Link](https://www.akhbarona.com/national/394656.html)
+- **المغرب فرنسا … نحو بناء فضاء دبلوماسي جديد**: [Link](https://ar.hibapress.com/details-567232.html)
+
+
 ### al ittihad – al jandal (N/A, Mon, 28 Oct 2024 09:50:00 -0700)
 
 - **Is Karim Benzema playing tonight for Al Ittihad vs Al Jandal in Kings' Cup?**: [Link](https://khelnow.com/football/world-football-is-karim-benzema-playing-tonight-al-ittihad-vs-al-jandal-kings-cup-202410)
