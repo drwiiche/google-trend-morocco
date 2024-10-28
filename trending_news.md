@@ -1,3 +1,12 @@
+### visite macron maroc (N/A, Mon, 28 Oct 2024 00:40:00 -0700)
+
+- **Sahara et frontières avec l'Algérie: des archives françaises inédites 
+seront remises au Maroc**: [Link](https://ledesk.ma/enoff/sahara-et-frontieres-avec-lalgerie-des-archives-francaises-inedites-seront-remises-au-maroc/)
+- **Au Maroc, les ambitions économiques des entreprises françaises**: [Link](https://www.lemonde.fr/afrique/article/2024/10/27/au-maroc-les-ambitions-economiques-des-entreprises-francaises_6361439_3212.html)
+- **Visite d'Etat du Président Macron: le programme, la composition de la 
+délégation...**: [Link](https://medias24.com/2024/10/27/visite-detat-du-president-macron-le-programme-la-composition-de-la-delegation/)
+
+
 ### macron (N/A, Mon, 28 Oct 2024 00:40:00 -0700)
 
 - **Sahara et frontières avec l'Algérie: des archives françaises inédites 
