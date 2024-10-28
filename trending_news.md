@@ -1,3 +1,10 @@
+### عبد المجيد تبون (N/A, Mon, 28 Oct 2024 09:30:00 -0700)
+
+- **تبون يلتقي السيسي في القاهرة ضمن جولة عربية تشمل مسقط**: [Link](https://www.aljazeera.net/news/2024/10/27/%D8%AA%D8%A8%D9%88%D9%86-%D9%8A%D9%84%D8%AA%D9%82%D9%8A-%D8%A7%D9%84%D8%B3%D9%8A%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%B6%D9%85%D9%86-%D8%AC%D9%88%D9%84%D8%A9)
+- **ماذا في جولة الرئيس الجزائري إلى مصر وسلطنة عمان؟.. هذه ملفاتها ورسائلها**: [Link](https://arabi21.com/story/1636334/%D9%85%D8%A7%D8%B0%D8%A7-%D9%81%D9%8A-%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%A5%D9%84%D9%89-%D9%85%D8%B5%D8%B1-%D9%88%D8%B3%D9%84%D8%B7%D9%86%D8%A9-%D8%B9%D9%85%D8%A7%D9%86-%D9%87%D8%B0%D9%87-%D9%85%D9%84%D9%81%D8%A7%D8%AA%D9%87%D8%A7-%D9%88%D8%B1%D8%B3%D8%A7%D8%A6%D9%84%D9%87%D8%A7)
+- **الرئيس الجزائري تبون يتحول إلى مادة للسخرية بسبب تلعثمه أمام السيسي**: [Link](https://ar.hibapress.com/details-567105.html)
+
+
 ### ballon d'or ceremony (N/A, Mon, 28 Oct 2024 10:10:00 -0700)
 
 - **Vinicius Jr and Real Madrid Won’t Attend the Ballon d’Or Ceremony**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/vinicius-jr-and-real-madrid-won-t-attend-the-ballon-d-or-ceremony-2024-10-28)
