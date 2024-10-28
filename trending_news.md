@@ -1,3 +1,9 @@
+### al ittihad – al jandal (N/A, Mon, 28 Oct 2024 09:50:00 -0700)
+
+- **Is Karim Benzema playing tonight for Al Ittihad vs Al Jandal in Kings' Cup?**: [Link](https://khelnow.com/football/world-football-is-karim-benzema-playing-tonight-al-ittihad-vs-al-jandal-kings-cup-202410)
+- **Al Ittihad vs Al Jandal Prediction, lineups, betting tips & odds**: [Link](https://khelnow.com/football/world-football-al-ittihad-vs-al-jandal-prediction-202410)
+
+
 ### ballon d'or 2024 date (N/A, Mon, 28 Oct 2024 05:10:00 -0700)
 
 - **2024 Ballon d'Or ceremony: When and where, all the nominees, how the awards 
