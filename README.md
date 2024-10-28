@@ -1,3 +1,27 @@
+### natalie portman (N/A, Mon, 28 Oct 2024 12:20:00 -0700)
+
+- **Natalie Portman’s October Book Club Pick Is a ‘Wickedly Entertaining’ Spy 
+Novel & It’s on Major Sale Today**: [Link](https://www.yahoo.com/entertainment/natalie-portman-october-book-club-172034246.html)
+- **Natalie Portman’s October Book Club Pick Is a ‘Wickedly Entertaining’ Spy 
+Novel & It’s on Major Sale Today**: [Link](https://www.sheknows.com/entertainment/articles/1234727514/natalie-portman-october-2024-book-club-pick/)
+- **Superstar Actress Says ‘Get Lost’ to Ranbir!**: [Link](https://www.m9.news/bollywood/superstar-actress-natalie-portman-says-get-lost-to-ranbir/)
+
+
+### ssc (N/A, Mon, 28 Oct 2024 12:20:00 -0700)
+
+- **SSC CGL Result 2024 Live: Where, how to check tier 1 marks when announced**: [Link](https://www.hindustantimes.com/education/exam-results/ssc-cgl-result-2024-live-tier-1-scores-cut-off-marks-ssc-gov-in-direct-link-results-date-time-news-101730097107737.html)
+- **JSSC CGL Result 2024: Latest Update on Jharkhand CGL Recruitment Exam**: [Link](https://www.patrika.com/en/education-news/jssc-cgl-result-2024-latest-update-on-jharkhand-cgl-recruitment-exam-19083555)
+- **SSC CGL Tier 1 Result 2024 Date And Time: SSC Likely To Release CGL Tier 1 
+Results soon At ssc.gov.in**: [Link](https://english.jagran.com/education/ssc-cgl-tier-1-result-2024-date-and-time-ssc-likely-to-release-cgl-tier-1-results-soon-at-ssc-gov-in-10197345)
+
+
+### الاتحاد ضد الجندل (N/A, Mon, 28 Oct 2024 12:20:00 -0700)
+
+- **لماذا يغيب بنزيما وعوار عن مباراة الجندل؟**: [Link](https://www.kooora.com/?n=1364459&o=n)
+- **5 تفصيلات بشأن مباراة الاتحاد أمام الجندل في كأس الملك**: [Link](https://hihi2.com/2024/10/28/p2909797.html)
+- **بالفيديو.. الصبحان يكشف توقعه لنتيجة مباراة "الاتحاد والجندل" في كأس الملك**: [Link](https://sport.al-marsd.com/article/207879/%D8%A2%D8%AE%D8%B1-%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B5%D8%A8%D8%AD%D8%A7%D9%86-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D9%88%D9%82%D8%B9%D9%87-%D9%84%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D8%AC%D9%86%D8%AF%D9%84-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83)
+
+
 ### bein sport (N/A, Mon, 28 Oct 2024 12:10:00 -0700)
 
 - **تردد قناة bein sport news المفتوحة الناقلة لحفل الكرة الذهبية اليوم 2024 
