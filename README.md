@@ -1,3 +1,12 @@
+### ssc sport (N/A, Mon, 28 Oct 2024 12:30:00 -0700)
+
+- **تردد قناة SSC 4 الناقلة لحفل الكرة الذهبية 2024 عبر كافة الأقمار الصناعية 
+بجودة عالية HD – السعودية نيوز**: [Link](https://real.alsaudinews.com/200876/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-ssc-4-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-20/)
+- **عرب ونايل سات اضبط تردد قنوات SSC سبورت السعودية - المساء الاخباري**: [Link](https://newsy.almesasports.com/274081/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D9%88%D8%A7%D8%AA-ssc/)
+- **لعشاق الرياضة وكرة القدم: تردد قنوات ssc الجديد لمتابعة البرامج الرياضية 
+والمباريات المحلية والعالمية بجودة عالية للصوت والصورة**: [Link](https://gm.aarcegypt.org/%D9%84%D8%B9%D8%B4%D8%A7%D9%82-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D9%88%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D9%88%D8%A7%D8%AA-ssc-%D8%A7/)
+
+
 ### natalie portman (N/A, Mon, 28 Oct 2024 12:20:00 -0700)
 
 - **Natalie Portman’s October Book Club Pick Is a ‘Wickedly Entertaining’ Spy 
