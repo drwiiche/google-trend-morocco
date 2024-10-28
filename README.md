@@ -1,3 +1,39 @@
+### jennifer hermoso (N/A, Mon, 28 Oct 2024 14:00:00 -0700)
+
+- **La voz que inspira en su lucha a Jenni Hermoso, premio Sócrates: "Es por 
+ella y por todas las mujeres que seguiré siendo valiente"**: [Link](https://www.relevo.com/futbol/inspira-jenni-hermoso-20241028194344-nt.html)
+- **Qué es el premio Sócrates de Balón de Oro y quién se lo llevó el año pasado**: [Link](https://www.abc.es/deportes/futbol/premio-socrates-balon-oro-llevo-ano-pasado-20241028181500-nt.html)
+- **Jennifer Hermoso: "Luchamos para que las niñas tengan referentes"**: [Link](https://es-us.noticias.yahoo.com/deportes/jennifer-hermoso-luchamos-ni%C3%B1as-tengan-200457251.html)
+
+
+### johan cruyff (N/A, Mon, 28 Oct 2024 14:00:00 -0700)
+
+- **Flick se puso firme con la petición de la plantilla tras la goleada en el 
+Clásico**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241028/1002342197/flick-puso-firme-peticion-plantilla-goleada-clasico.html)
+- **Comida de conjura para un Barça intratable**: [Link](https://jijantes.com/comida-de-conjura-para-un-barca-intratable/)
+- **Hansi Flick corta el rollo de los futbolistas del Barça**: [Link](https://cronicaglobal.elespanol.com/culemania/primer-equipo/20241028/hansi-flick-corta-rollo-los-futbolistas-barca/896910331_0.html)
+
+
+### lautaro martinez (N/A, Mon, 28 Oct 2024 14:00:00 -0700)
+
+- **El ranking histórico de los argentinos en el Balón de Oro y el récord de 
+Batistuta que buscará Lautaro Martínez**: [Link](https://www.infobae.com/deportes/2024/10/28/el-ranking-historico-de-los-argentinos-en-el-balon-de-oro-y-el-record-de-batistuta-que-buscara-lautaro-martinez/)
+- **Lautaro, sin vueltas sobre Vinícius tras su ausencia en el Balón de Oro: 
+"Ojalá..."**: [Link](https://tntsports.com.ar/internacional/lautaro-martinez-balon-de-oro-ausencia-vinicius-ojala--20241028-0016.html)
+- **Arrancó la gala del Balón de Oro: Rodri es el principal candidato y Lautaro 
+Martínez está en el Top 7**: [Link](https://www.elcomercial.com.ar/38449-arranco-la-gala-del-balon-de-oro-rodri-es-el-principal-candidato-y-lautaro-martinez-esta-en-el-top-7)
+
+
+### drogba (N/A, Mon, 28 Oct 2024 13:50:00 -0700)
+
+- **Ballon d’Or 2024 award ceremony: Date, timing, live streaming, nominees, 
+where to watch info**: [Link](https://sportstar.thehindu.com/football/ballon-dor-2024-live-awards-ceremony-telecast-streaming-date-time-vinicius-ronaldo-messi-mbappe-news/article68804296.ece)
+- **When is the 2024 Ballon d’Or ceremony? Start time, venue and full list of 
+nominees**: [Link](https://www.independent.co.uk/sport/football/ballon-dor-2024-when-start-time-venue-today-b2636714.html)
+- **Ballon d’Or 2024: How does the Ballon d’Or format work? What are the 
+changes made to football’s prestigious award?**: [Link](https://www.tntsports.co.uk/football/ballon-d-or-2024-nominees-voting-format-awards-vinicius-junior-jude-bellingham_sto20045565/story.shtml)
+
+
 ### beckenbauer (N/A, Mon, 28 Oct 2024 13:20:00 -0700)
 
 - **Who is Bayern Munich’s biggest ever legend: Franz Beckenbauer or Thomas 
