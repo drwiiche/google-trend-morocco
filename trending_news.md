@@ -1,3 +1,10 @@
+### إلياس المالكي (N/A, Mon, 28 Oct 2024 14:30:00 -0700)
+
+- **التنازل عن متابعة إلياس المالكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%86%D8%A7%D8%B2%D9%84-%D8%B9%D9%86-%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-1455459.html)
+- **اليوتيوبر "طاطا هالة" تتضامن مع إلياس المالكي (صورة)**: [Link](https://ar.hibapress.com/details-567258.html)
+- **عاجل.. هذا ما قررته النيابة العامة في قضية توقيف إلياس المالكي**: [Link](https://www.akhbarona.com/society/394648.html)
+
+
 ### aitana bonmatí (N/A, Mon, 28 Oct 2024 14:20:00 -0700)
 
 - **Balón de Oro 2024, en directo | Aitana Bonmatí gana el trofeo a mejor 
