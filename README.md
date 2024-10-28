@@ -1,3 +1,11 @@
+### gerd muller trophy (N/A, Mon, 28 Oct 2024 13:30:00 -0700)
+
+- **Gerd Muller Trophy 2024: Kane vs Mbappe for Top Scorer Award!**: [Link](https://bvmsports.com/2024/10/26/gerd-muller-trophy-2024-kane-vs-mbappe-for-top-scorer-award/)
+- **What is the Gerd Muller Trophy? Past winners and nominees for 2024**: [Link](https://www.90min.com/what-is-gerd-muller-trophy-past-winners-nominees)
+- **Who won the Gerd Muller Trophy? Why Ronaldo, Mbappe lose out to Harry Kane 
+or Mbappe for 2024 top goal scorer prize at Ballon d'Or**: [Link](https://www.sportingnews.com/us/soccer/news/who-won-gerd-muller-trophy-2024-top-scorer-ronaldo-kane-mbappe/444eb2abf30cf6f5b4002680)
+
+
 ### franz beckenbauer (N/A, Mon, 28 Oct 2024 13:20:00 -0700)
 
 - **Beckenbauer beim Ballon d'Or 2024 geehrt**: [Link](https://www.bundesliga.com/de/bundesliga/news/ballon-dor-2024-sonderauszeichnung-franz-beckenbauer-fc-bayern-weltmeister-29514)
