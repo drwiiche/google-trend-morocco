@@ -1,3 +1,12 @@
+### balon de oro 2024 (N/A, Mon, 28 Oct 2024 07:50:00 -0700)
+
+- **Balón de Oro 2024 en directo | Nominados y última hora de la gala**: [Link](https://www.marca.com/futbol/balon-oro/2024/10/28/671f53d81ff7ff37b0ecd1ed-directo.html)
+- **Así funciona la votación del Balón de Oro: quién es el jurado, criterios y 
+qué se valora**: [Link](https://as.com/futbol/internacional/asi-funciona-la-votacion-del-balon-de-oro-quien-es-el-jurado-criterios-y-que-se-valora-n/)
+- **Argentina, el país con más Balones de Oro gracias a Lionel Messi, Alfredo 
+Di Stéfano y Omar Sívori**: [Link](https://bolavip.com/ar/seleccion/argentina-el-pais-con-mas-balones-de-oro-gracias-a-lionel-messi-alfredo-di-stefano-y-omar-sivori)
+
+
 ### marca (N/A, Mon, 28 Oct 2024 07:40:00 -0700)
 
 
