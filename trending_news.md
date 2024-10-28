@@ -1,3 +1,12 @@
+### macron (N/A, Mon, 28 Oct 2024 00:40:00 -0700)
+
+- **Sahara et frontières avec l'Algérie: des archives françaises inédites 
+seront remises au Maroc**: [Link](https://ledesk.ma/enoff/sahara-et-frontieres-avec-lalgerie-des-archives-francaises-inedites-seront-remises-au-maroc/)
+- **Au Maroc, les ambitions économiques des entreprises françaises**: [Link](https://www.lemonde.fr/afrique/article/2024/10/27/au-maroc-les-ambitions-economiques-des-entreprises-francaises_6361439_3212.html)
+- **Visite d'Etat du Président Macron: le programme, la composition de la 
+délégation...**: [Link](https://medias24.com/2024/10/27/visite-detat-du-president-macron-le-programme-la-composition-de-la-delegation/)
+
+
 ### الطقس (N/A, Sun, 27 Oct 2024 23:30:00 -0700)
 
 - **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-12-1454502.html)
