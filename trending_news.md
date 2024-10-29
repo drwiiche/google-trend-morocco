@@ -1,3 +1,12 @@
+### mario balotelli (N/A, Tue, 29 Oct 2024 06:30:00 -0700)
+
+- **Calciomercato Genoa, non solo Balotelli: idea Folorunsho e occhio a Messias**: [Link](https://www.fantamaster.it/calciomercato-genoa-acquisti-gennaio-folorunsho-non-solo-balotelli-messias/)
+- **CAPOZUCCA A RFV, Su Kean meriti di società e allenatore. Va riconosciuto il 
+lavoro di Pradè sul mercato. Balotelli...**: [Link](https://www.firenzeviola.it/l-esclusiva/capozucca-a-rfv-su-kean-meriti-di-societa-e-allenatore-va-riconosciuto-il-lavoro-di-prade-sul-mercato-balotelli-436047)
+- **Il grazie inaspettato di Mario Balotelli: «Senza il duro lavoro di 
+Francesco Facchinetti, non sarei arrivato al Genoa»**: [Link](https://brescia.corriere.it/notizie/sport/24_ottobre_29/mario-balotelli-ringrazia-francesco-facchinetti-senza-il-suo-duro-lavoro-non-sarei-arrivato-al-genoa-b92c0bc6-78a0-4921-bb42-9f562beb8xlk.shtml)
+
+
 ### حسن يوسف (N/A, Tue, 29 Oct 2024 02:40:00 -0700)
 
 - **وفاة الفنان المصري حسن يوسف**: [Link](https://ar.hibapress.com/details-567665.html)
