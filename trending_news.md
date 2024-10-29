@@ -1,3 +1,12 @@
+### teddy riner (N/A, Tue, 29 Oct 2024 15:50:00 -0700)
+
+- **Visite d’État de Macron : pourquoi la présence de Yassine Belattar fait 
+couler beaucoup d’encre**: [Link](https://mobile.telquel.ma/instant-t/2024/10/29/visite-detat-de-macron-pourquoi-la-presence-de-yassine-belattar-fait-couler-beaucoup-dencre_1901462/)
+- **Maroc-France : vers un nouveau partenariat stratégique renforcé**: [Link](https://fr.hespress.com/392977-maroc-france-vers-un-nouveau-partenariat-strategique-renforce.html)
+- **Le ministère de l'Europe et des Affaires étrangères français actualise la 
+carte du Maroc**: [Link](https://medias24.com/2024/10/29/le-ministere-de-leurope-et-des-affaires-etrangeres-francais-actualise-la-carte-du-maroc/)
+
+
 ### bhl (N/A, Tue, 29 Oct 2024 15:40:00 -0700)
 
 - **Visite d’État de Macron : pourquoi la présence de Yassine Belattar fait 
