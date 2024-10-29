@@ -1,3 +1,42 @@
+### poblense vs villarreal (N/A, Tue, 29 Oct 2024 13:50:00 -0700)
+
+- **Tuesday's Copa del Rey predictions including Poblense vs. Villarreal**: [Link](https://www.sportsmole.co.uk/football/villamuriel/copa-del-rey-predictions/feature/tuesdays-copa-del-rey-predictions-including-poblense-vs-villarreal_556632.html)
+
+
+### 2m (N/A, Tue, 29 Oct 2024 13:50:00 -0700)
+
+- **WDC leads €2m investment in biotechnology company Ovagen**: [Link](https://www.rte.ie/news/business/2024/1029/1478010-wdc-leads-2m-investment-in-biotechnology-company-ovagen/)
+- **Mayo biotech Ovagen raises €2m and plans to hire 60**: [Link](https://www.siliconrepublic.com/start-ups/ovagen-funding-biotech-research-wdc-vaccine)
+- **Major €2 million investment in Ballina company**: [Link](https://www.westernpeople.ie/news/major-2-million-investment-in-ballina-company_arid-36419.html)
+
+
+### astur cf – valladolid (N/A, Tue, 29 Oct 2024 13:50:00 -0700)
+
+- **Latasa se retira con molestias en el tobillo**: [Link](https://www.jornadaperfecta.com/blog/latasa-molestias-tobillo-real-valladolid/)
+- **Las bajas del Pucela para el partido de Copa: "Hay alguno más que se puede 
+quedar fuera"**: [Link](https://www.eldesmarque.com/futbol/real-valladolid/20241029/paulo-pezzolano-bajas-pucela-astur-cf-primera-ronda-copa-rey_300486072.html)
+- **De ser la voz de los partidos del Real Oviedo a jugar contra el Valladolid 
+en Copa: "Es un poco locura"**: [Link](https://www.lne.es/deportes/deporte-astur/2024/10/29/voz-partidos-real-oviedo-jugar-110737458.html)
+
+
+### lalla hasna (N/A, Tue, 29 Oct 2024 13:30:00 -0700)
+
+- **S.A.R. la Princesse Lalla Hasnaa et Madame Brigitte Macron visitent le 
+jardin d’essais botaniques de Rabat**: [Link](https://lematin.ma/nation/sar-la-princesse-lalla-hasnaa-et-mme-macron-visitent-le-jardin-de-rabat/249216)
+- **Déjeuner au Chellah et inauguration du Grand théâtre de Rabat: les grands 
+moments culturels de la visite du couple Macron au Maroc**: [Link](https://fr.le360.ma/culture/dejeuner-au-chellah-et-inauguration-du-grand-theatre-de-rabat-les-grands-moments-culturels-de-la_OJE2YVSQ4FGMHBHGBCQTE2K6SM/)
+- **La Princesse Lalla Hasnaa, en compagnie de Brigitte Macron, inaugure le 
+Théâtre Royal de Rabat**: [Link](https://medias24.com/2024/10/29/la-princesse-lalla-hasnaa-en-compagnie-de-brigitte-macron-inaugure-le-theatre-royal-de-rabat/)
+
+
+### milan vs napoli (N/A, Tue, 29 Oct 2024 12:30:00 -0700)
+
+- **GdS: ‘Milan forward without Leao’ – Fonseca makes brave choice for Napoli 
+game**: [Link](https://sempremilan.com/milan-forward-without-leao-fonseca-napoli)
+- **AC Milan vs. SSC Napoli Prediction, Picks, Live Odds - October 29**: [Link](https://www.bleachernation.com/picks/2024/10/29/ac-milan-vs-ssc-napoli-prediction-picks-live-odds-october-29/)
+- **Serie A line-ups: Milan vs. Napoli**: [Link](https://football-italia.net/serie-a-line-ups-milan-vs-napoli-3/)
+
+
 ### لالة حسناء (N/A, Tue, 29 Oct 2024 13:40:00 -0700)
 
 - **الأميرة لالة حسناء تدشن المسرح الملكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D8%A9-%D9%84%D8%A7%D9%84%D8%A9-%D8%AD%D8%B3%D9%86%D8%A7%D8%A1-%D8%AA%D8%AF%D8%B4%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%B1%D8%AD-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-1455972.html)
