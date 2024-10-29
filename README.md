@@ -1,3 +1,13 @@
+### mbc masr 2 (N/A, Tue, 29 Oct 2024 10:40:00 -0700)
+
+- **مشاهدة ماتش الاهلى والعين مباشر .. تردد قناة ‎MBC MASR 2‎ ام بى سى مصر 
+لمشاهدة مباراة الاهلى والعين اليوم**: [Link](https://real.alsaudinews.com/201585/%D9%85%D8%A7%D8%AA%D8%B4-%D8%A7%D9%84%D8%A7%D9%87%D9%84%D9%89-%D9%88%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-mbc-masr-2-%D8%A7%D9%85-%D8%A8/)
+- **تابعوا أروع الدراما العربية علي تردد قناة ام بي سي مصر 2024 الجديد - المساء 
+الاخباري**: [Link](https://newsy.almesasports.com/274371/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%85-%D8%A8%D9%8A-%D8%B3%D9%8A-%D9%85%D8%B5%D8%B1-4/)
+- **"نايل سات" هُنا تردد قناة mbc مصر hd القناة الناقلة لمباراة الأهلي والعين 
+مجاناً وبإشارة قوية**: [Link](https://n.khabrna.com/306120/%D9%86%D8%A7%D9%8A%D9%84-%D8%B3%D8%A7%D8%AA-%D9%87%D9%8F%D9%86%D8%A7-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-mbc-%D9%85%D8%B5%D8%B1-hd-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84/)
+
+
 ### compostela – deportivo alavés (N/A, Tue, 29 Oct 2024 10:30:00 -0700)
 
 - **Compostela - Alavés en directo: Copa del Rey hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/compostela-alaves-en-directo-copa-del-rey-hoy-en-vivo-n/)
