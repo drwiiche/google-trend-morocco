@@ -1,3 +1,12 @@
+### bhl (N/A, Tue, 29 Oct 2024 15:40:00 -0700)
+
+- **Visite d’État de Macron : pourquoi la présence de Yassine Belattar fait 
+couler beaucoup d’encre**: [Link](https://mobile.telquel.ma/instant-t/2024/10/29/visite-detat-de-macron-pourquoi-la-presence-de-yassine-belattar-fait-couler-beaucoup-dencre_1901462/)
+- **La reconnaissance du Sahara marocain au cœur du rapprochement Paris-Rabat**: [Link](https://www.bfmtv.com/politique/gouvernement/la-reconnaissance-du-sahara-marocain-au-c-ur-du-rapprochement-paris-rabat_VN-202410290963.html)
+- **Le ministère français des Affaires étrangères publie la carte intégrale du 
+Maroc, comprenant son Sahara**: [Link](https://fr.le360.ma/politique/le-ministere-francais-des-affaires-etrangeres-publie-la-carte-integrale-du-maroc-comprenant-son_22P5VT4ODZBPJN64BURY4FIJLM/)
+
+
 ### aziz akhannouch (N/A, Tue, 29 Oct 2024 14:40:00 -0700)
 
 - **Visite d’État de Macron : pourquoi la présence de Yassine Belattar fait 
