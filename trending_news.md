@@ -1,3 +1,10 @@
+### compostela – deportivo alavés (N/A, Tue, 29 Oct 2024 10:30:00 -0700)
+
+- **Compostela - Alavés en directo: Copa del Rey hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/compostela-alaves-en-directo-copa-del-rey-hoy-en-vivo-n/)
+- **El Compos y su afición vivirán un partido histórico**: [Link](https://cadenaser.com/galicia/2024/10/29/el-compos-y-su-aficion-viviran-un-partido-historico-radio-galicia/)
+- **Permuy: “A ilusión el Alavés no nos va a ganar”**: [Link](https://www.infobae.com/espana/agencias/2024/10/28/permuy-a-ilusion-el-alaves-no-nos-va-a-ganar/)
+
+
 ### al ahly – al ain (N/A, Tue, 29 Oct 2024 09:30:00 -0700)
 
 - **Sherif Abdel Moneim: The Al Ain match is difficult for Al Ahly**: [Link](https://www.ysscores.com/en/news/6165111/Sherif-Abdel-Moneim:-The-Al-Ain-match-is-difficult-for-Al-Ahly)
