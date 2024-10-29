@@ -1,3 +1,12 @@
+### lalla hasnaa (N/A, Mon, 28 Oct 2024 17:10:00 -0700)
+
+- **La princesse Lalla Hasnaa et Sheikha Al Mayassa Bint Hamad Al Thani 
+président le dîner de gala de la «Fashion Trust Arabia» à Marrakech**: [Link](https://fr.le360.ma/culture/marrakech-la-princesse-lalla-hasnaa-et-sheikha-al-mayassa-bint-hamad-al-thani-president-le-diner-de_LI5RB7GR75AJPJ37Q7LRRKMOFQ/)
+- **La princesse Lalla Hasnaa et la cheikha Al-Mayassa soutiennent les 
+créateurs émergents à Marrakech**: [Link](https://histoiresroyales.fr/princesse-lalla-hasnaa-cheikha-al-mayassa-soutiennent-createurs-emergents-marrakech/)
+- **L'artiste égyptien Ahmed Helmy remercie les Marocains - HIBAPRESS**: [Link](https://fr.hibapress.com/news-142518.html)
+
+
 ### vinicius júnior (N/A, Mon, 28 Oct 2024 15:40:00 -0700)
 
 - **Quem ganhou a Bola de Ouro 2024? Veja premiados e ranking**: [Link](https://www.uol.com.br/esporte/ultimas-noticias/2024/10/28/quem-ganhou-a-bola-de-ouro-2024-veja-onde-assistir-e-horario-do-premio.htm)
