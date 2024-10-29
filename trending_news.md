@@ -1,3 +1,11 @@
+### napoli (N/A, Tue, 29 Oct 2024 14:10:00 -0700)
+
+- **LIVE Milan-Napoli 0-2: la sblocca Lukaku, Musah divora il pari. Poi 
+raddoppia Kvara**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/29-10-2024/milan-napoli-live-diretta-serie-a.shtml)
+- **LIVE MN - Verso Milan-Napoli: arrivate le ufficiali. Out Leao e Pulisic**: [Link](https://www.milannews.it/primo-piano/live-mn-verso-milan-napoli-arrivate-le-ufficiali-out-leao-e-pulisic-554350)
+- **Invasione a San Siro: ottomila tifosi al seguito degli azzurri**: [Link](https://napoli.repubblica.it/sport/2024/10/29/news/tifosi_napoli_milan_san_siro-423585238/)
+
+
 ### poblense vs villarreal (N/A, Tue, 29 Oct 2024 13:50:00 -0700)
 
 - **Tuesday's Copa del Rey predictions including Poblense vs. Villarreal**: [Link](https://www.sportsmole.co.uk/football/villamuriel/copa-del-rey-predictions/feature/tuesdays-copa-del-rey-predictions-including-poblense-vs-villarreal_556632.html)
