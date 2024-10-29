@@ -1,3 +1,12 @@
+### حالة الطقس (N/A, Mon, 28 Oct 2024 23:20:00 -0700)
+
+- **الأرصاد تكشف تفاصيل حالة الطقس غدًا الثلاثاء 29 أكتوبر 2024 ودرجات الحرارة 
+المتوقعة**: [Link](https://www.almasryalyoum.com/news/details/3293264)
+- **أمطار تضرب هذه المناطق.. الأرصاد تحذر من طقس الساعات القادمة بسبب هذه 
+الظاهرة**: [Link](https://zahraa.mr/3474179/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-2/)
+- **تحذير.. سقوط أمطار غزيرة وعواصف رعدية في هذه المحافظات**: [Link](https://alhorianews.com/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D8%B3%D9%82%D9%88%D8%B7-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%88%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%81%D9%8A/)
+
+
 ### météo (N/A, Mon, 28 Oct 2024 23:00:00 -0700)
 
 - **Alerte météo. Froid, pluie et neige dans plusieurs régions**: [Link](https://medias24.com/2024/10/27/alerte-meteo-froid-pluie-et-neige-dans-plusieurs-regions/)
