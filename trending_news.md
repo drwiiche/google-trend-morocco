@@ -1,3 +1,10 @@
+### إلياس المالكي (N/A, Tue, 29 Oct 2024 13:20:00 -0700)
+
+- **إلياس المالكي‬ يواجه ثلاث شكايات**: [Link](https://www.hespress.com/%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%AB%D9%84%D8%A7%D8%AB-%D8%B4%D9%83%D8%A7%D9%8A%D8%A7%D8%AA-1456003.html)
+- **متابعة اليوتوبر إلياس المالكي في حالة اعتقال وإيداعه سجن الجديدة**: [Link](https://ar.hibapress.com/details-567840.html)
+- **إيداع إلياس المالكي السجن المحلي بالجديدة**: [Link](https://www.akhbarona.com/society/394732.html)
+
+
 ### brentford – sheffield wednesday (N/A, Tue, 29 Oct 2024 12:40:00 -0700)
 
 - **Tuesday's EFL Cup predictions including Brentford vs. Sheffield Wednesday**: [Link](https://www.sportsmole.co.uk/football/southampton/efl-cup-predictions/feature/tuesdays-efl-cup-predictions-including-brentford-vs-sheffield-wednesday_556630.html)
