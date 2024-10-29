@@ -1,3 +1,43 @@
+### al ahly – al ain (N/A, Tue, 29 Oct 2024 09:30:00 -0700)
+
+- **Sherif Abdel Moneim: The Al Ain match is difficult for Al Ahly**: [Link](https://www.ysscores.com/en/news/6165111/Sherif-Abdel-Moneim:-The-Al-Ain-match-is-difficult-for-Al-Ahly)
+- **Park Yongwoo: Al Ain fully focused on Al Ahly test**: [Link](https://www.fifa.com/en/tournaments/mens/intercontinentalcup/2024/articles/park-yongwoo-interview-al-ain)
+- **Al Ain to face Al Ahly in Egypt for FIFA qualifier**: [Link](https://www.dubaieye1038.com/news/sports/al-ain-to-face-al-ahly-in-egypt-for-fifa-qualifier/)
+
+
+### الأهلي ضد العين (N/A, Tue, 29 Oct 2024 09:30:00 -0700)
+
+- **شايفر لكووورة: رحيمي وحده لن يكفي العين للفوز على الأهلي**: [Link](https://www.kooora.com/?n=1364601)
+- **القنوات المفتوحة الناقلة لمباراة الأهلي والعين مباشر اليوم.. معلقو اللقاء**: [Link](https://www.almasryalyoum.com/news/details/3293813)
+- **مدرب الأهلي يشيد بسفيان رحيمي**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-1455455.html)
+
+
+### coupe du monde des clubs fifa (N/A, Tue, 29 Oct 2024 09:30:00 -0700)
+
+- **Coupe des Confédérations des clubs : Soufiane Rahimi prêt à affronter 
+Achraf Dari**: [Link](https://fr.hespress.com/393146-coupe-des-confederations-des-clubs-soufiane-rahimi-pret-a-affronter-achraf-dari.html)
+- **Composition Al Ahly - Al Ain, Mondial des clubs, 2ème journée, match du 
+mardi 29 octobre 2024**: [Link](https://rmcsport.bfmtv.com/football/mondial-des-clubs/live/2024/match-Al-Ahly-Al-Ain-2eme-tour_FM-240922308228.html)
+- **FIFA Intercontinental Cup 2024 | Coupe Afrique-Asie-Pacifique en direct**: [Link](https://www.fifa.com/fr/articles/diffusion-al-ahly-al-ain-live-fifa-plus)
+
+
+### leverkusen – elversberg (N/A, Tue, 29 Oct 2024 09:20:00 -0700)
+
+- **Elversberg: Größter Gästeanhang aller Zeiten in Leverkusen**: [Link](https://www.diefalsche9.de/elversberg-groesster-gaesteanhang-aller-zeiten-in-leverkusen/)
+- **Bayer Leverkusen gegen SV Elversberg im Live-Ticker: DFB-Pokal heute**: [Link](https://www.bild.de/sport/fussball/bayer-leverkusen-gegen-sv-elversberg-im-live-ticker-dfb-pokal-heute-671f9ad52652ca07c946d84a)
+- **Alonso wird Elversberg nicht unterschätzen**: [Link](https://www.faz.net/agenturmeldungen/dpa/alonso-wird-elversberg-nicht-unterschaetzen-110074815.html)
+
+
+### ruben amorim (N/A, Tue, 29 Oct 2024 09:00:00 -0700)
+
+- **Man. United prepara-se para levar já Rúben Amorim do Sporting e sucessor 
+está definido**: [Link](https://www.abola.pt/futebol/noticias/man-united-prepara-se-para-levar-ja-ruben-amorim-do-sporting-e-sucessor-esta-definido-2024102823065402523)
+- **Diretor da Premier League Elogia 'Notável' Alvo de Treinador para o 
+Manchester United**: [Link](https://www.footboom1.com/br/news/football/2001809-premier-league-chief-lauds-remarkable-manager-target-for-manchester-united)
+- **André Pinotes Batista: «Não há um sportinguista disposto a abrir mão de 
+Rúben Amorim»**: [Link](https://www.record.pt/multimedia/videos/detalhe/andre-pinotes-batista-nao-ha-um-sportinguista-disposto-a-abrir-mao-de-ruben-amorim)
+
+
 ### hassan youssef (N/A, Tue, 29 Oct 2024 07:20:00 -0700)
 
 - **Celebs: Renowned Egyptian actor Hasan Youssef dies aged 90**: [Link](https://www.gdnonline.com/Details/1336148/Renowned-Egyptian-actor-Hasan-Youssef-dies-aged-90)
