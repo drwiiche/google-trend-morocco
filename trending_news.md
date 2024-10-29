@@ -1,3 +1,22 @@
+### al-nassr vs al-taawoun (N/A, Tue, 29 Oct 2024 11:10:00 -0700)
+
+- **Match Date for Al-Nasr vs Al-Taawoun in the Custodian of the Two Holy 
+Mosques Cup and Broadcasting Channels**: [Link](https://www.footboom1.com/en/news/football/2001025-match-date-for-al-nasr-vs-al-taawoun-in-the-custodian-of-the-two-holy-mosques-cup-and-broadcasting-channels)
+- **Where to watch Al-Nassr vs Al Taawon live for free in the USA: 2024–25 
+King's Cup**: [Link](https://bolavip.com/en/soccer/where-to-watch-al-nassr-vs-al-taawon-live-for-free-in-the-usa-2024-25-kings-cup)
+- **Al Nassr vs Al Taawoun Live Streaming: Saudi King's Cup Schedule, How and 
+Where to Watch in India, UK, USA**: [Link](https://www.mykhel.com/football/al-nassr-vs-al-taawoun-live-streaming-saudi-kings-cup-schedule-how-and-where-to-watch-in-india-u-317011.html)
+
+
+### club world cup (N/A, Tue, 29 Oct 2024 11:10:00 -0700)
+
+- **Ballon d’Or 2024: Pep Guardiola 'not here to judge' Real Madrid boycott as 
+Manchester City's Rodri scoops main prize**: [Link](https://www.eurosport.com/football/ballon-d-or/2024/pep-guardiola-real-madrid-boycott-rodri-manchester-city_sto20049455/story.shtml)
+- **Vinicius Junior: Brazil reacts to the 'injustice' of Real Madrid forward 
+missing out on Ballon d'Or to Man City's Rodri**: [Link](https://www.bbc.com/sport/football/articles/c0k8vmg0p57o)
+- **Players and Media react to Rodrigo’s Ballon d’Or win**: [Link](https://www.mancity.com/news/mens/rodri-ballon-dor-media-and-player-reaction-man-city-63865793)
+
+
 ### النصر ضد التعاون (N/A, Tue, 29 Oct 2024 10:50:00 -0700)
 
 - **التاريخ يبشر النصر قبل صدام التعاون في كأس الملك**: [Link](https://www.kooora.com/?n=1364594)
