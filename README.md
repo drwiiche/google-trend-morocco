@@ -1,3 +1,10 @@
+### brentford – sheffield wednesday (N/A, Tue, 29 Oct 2024 12:40:00 -0700)
+
+- **Tuesday's EFL Cup predictions including Brentford vs. Sheffield Wednesday**: [Link](https://www.sportsmole.co.uk/football/southampton/efl-cup-predictions/feature/tuesdays-efl-cup-predictions-including-brentford-vs-sheffield-wednesday_556630.html)
+- **Brentford and Bryan Mbeumo can continue scoring run in Carabao Cup**: [Link](https://metro.co.uk/2024/10/28/brentford-bryan-mbeumo-can-continue-scoring-run-carabao-cup-21876644/)
+- **Match Preview: Brentford v Sheffield Wednesday**: [Link](https://www.brentfordfc.com/en/news/article/match-previews-brentford-v-sheffield-wednesday-carabao-cup-29-10-2024)
+
+
 ### al-nassr fc – al taawon (N/A, Tue, 29 Oct 2024 10:10:00 -0700)
 
 - **Match Date for Al-Nasr vs Al-Taawoun in the Custodian of the Two Holy 
