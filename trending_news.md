@@ -1,3 +1,38 @@
+### rb leipzig – sankt pauli (N/A, Tue, 29 Oct 2024 12:00:00 -0700)
+
+- **Mit Poulsen-Doppelpack: RB-Sieg gegen St. Pauli – Claude-Maurice schlägt 
+auch gegen Schalke zu**: [Link](https://www.transfermarkt.de/mit-poulsen-doppelpack-rb-sieg-gegen-st-pauli-claude-maurice-schlagt-auch-gegen-schalke-zu/view/news/445593)
+- **FC St. Pauli: Die Aufstellung gegen RB Leipzig ist da!**: [Link](https://www.ligainsider.de/fc-st-pauli/20/fc-st-pauli-die-aufstellung-gegen-rb-leipzig-ist-da-365652/)
+- **Gegen St. Pauli – 4:2! ÖFB-Star Baumgartner zeigt im DFB-Pokal auf**: [Link](https://www.heute.at/s/42-oefb-star-baumgartner-zeigt-im-dfb-pokal-auf-120069789)
+
+
+### ac milan – naples (N/A, Tue, 29 Oct 2024 11:50:00 -0700)
+
+- **Serie A Liveblog: Milan-Napoli, Cagliari-Bologna, Lecce-Verona**: [Link](https://football-italia.net/serie-a-liveblog-milan-napoli-cagliari-bologna/)
+- **Milan face bogey coach Antonio Conte**: [Link](https://www.besoccer.com/new/milan-face-bogey-coach-antonio-conte-1335848)
+- **Sky: Pulisic may be benched vs Napoli due to flu-like symptoms**: [Link](https://milanreports.com/2024/10/29/pulisic-benched-flu-like-symptoms/)
+
+
+### quai d'orsay (N/A, Tue, 29 Oct 2024 11:50:00 -0700)
+
+- **Le site du Quai d’Orsay publie la carte officielle du Maroc avec son Sahara**: [Link](https://www.h24info.ma/le-site-du-quai-dorsay-publie-la-carte-officielle-du-maroc-avec-son-sahara/)
+- **Le ministère de l'Europe et des Affaires étrangères français actualise la 
+carte du Maroc**: [Link](https://medias24.com/2024/10/29/le-ministere-de-leurope-et-des-affaires-etrangeres-francais-actualise-la-carte-du-maroc/)
+- **Pour être grand, il faut voir grand**: [Link](https://sport.le360.ma/football/pour-etre-grand-il-faut-voir-grand_E3TMAUX2E5ANJMBBH7RC4XOCF4/)
+
+
+### mounïm kbab (N/A, Tue, 29 Oct 2024 11:10:00 -0700)
+
+
+
+
+### كاس العالم للاندية (N/A, Tue, 29 Oct 2024 10:30:00 -0700)
+
+- **رامي ربيعة ينقذ مرمى الأهلي من هدف محقق "فيديو"**: [Link](https://koraplus.com/Article/67965/%D8%B1%D8%A7%D9%85%D9%8A-%D8%B1%D8%A8%D9%8A%D8%B9%D8%A9-%D9%8A%D9%86%D9%82%D8%B0-%D9%85%D8%B1%D9%85%D9%89-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%85%D9%86-%D9%87%D8%AF%D9%81-%D9%85%D8%AD%D9%82%D9%82-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+- **فوق العادة.. إعلامي يتغزل في نجمي الأهلي**: [Link](https://www.elbalad.news/6367508)
+- **المعلق الإماراتي فارس عوض: وسام أبوعلي فان باستن الأهلي**: [Link](https://www.almasryalyoum.com/news/details/3294439)
+
+
 ### al-nassr vs al-taawoun (N/A, Tue, 29 Oct 2024 11:10:00 -0700)
 
 - **Match Date for Al-Nasr vs Al-Taawoun in the Custodian of the Two Holy 
