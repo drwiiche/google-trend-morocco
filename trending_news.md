@@ -1,3 +1,12 @@
+### vinicius ballon d or 2024 (N/A, Mon, 28 Oct 2024 20:50:00 -0700)
+
+- **DIRECT. Ballon d'or 2024: l'entourage de Vinicius Jr. désormais convaincu 
+qu'il ne gagnera pas (info RMC Sport)**: [Link](https://rmcsport.bfmtv.com/football/direct-suivez-en-live-toutes-les-infos-sur-la-ceremonie-du-ballon-d-or_LN-202410280233.html)
+- **Foot : Le classement complet du Ballon d'Or 2024**: [Link](https://www.lequipe.fr/Football/Actualites/Decouvrez-le-classement-du-ballon-d-or-2024-en-direct/1516861)
+- **Rodri Ballon d'Or après l'ère Messi - Cristiano Rolando, la victoire du 
+football**: [Link](https://www.eurosport.fr/football/ballon-d-or/2024/rodri-ballon-d-or-apres-l-ere-messi-cristiano-rolando-la-victoire-du-football_sto10382522/story.shtml)
+
+
 ### alerte météo maroc (N/A, Mon, 28 Oct 2024 19:20:00 -0700)
 
 - **Alerte météo. Froid, pluie et neige dans plusieurs régions**: [Link](https://medias24.com/2024/10/27/alerte-meteo-froid-pluie-et-neige-dans-plusieurs-regions/)
