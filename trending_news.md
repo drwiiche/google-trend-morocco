@@ -1,3 +1,21 @@
+### x (N/A, Mon, 28 Oct 2024 20:00:00 -0700)
+
+- **Khamenei’s day-old Hebrew account on X suspended after threats against 
+Israel**: [Link](https://www.timesofisrael.com/khameneis-day-old-hebrew-account-on-x-suspended-after-threats-against-israel/)
+- **Iran Supreme Leader's Hebrew X Account Suspended, Last Post Was...**: [Link](https://www.ndtv.com/world-news/iran-supreme-leaders-hebrew-x-account-suspended-last-post-was-6889056)
+- **Elon Musk’s X suspends new account of Iran’s Supreme Leader after it posts 
+in Hebrew**: [Link](https://fortune.com/2024/10/28/elon-musks-x-suspends-new-account-of-irans-supreme-leader-after-it-posts-in-hebrew/)
+
+
+### ballon d'or 2023 (N/A, Mon, 28 Oct 2024 14:30:00 -0700)
+
+- **2024 Ballon d'Or ceremony: When and where, all the nominees, how the awards 
+were decided | Ballon d’Or 2024/25**: [Link](https://www.uefa.com/ballondor/news/0292-1c270550362a-8ed0eb6212eb-1000--2024-ballon-d-or-ceremony-when-and-where-all-the-nominees-ho/)
+- **Aitana Bonmati wins the 2024 Ballon d'Or Feminin**: [Link](https://www.90min.com/aitana-bonmati-wins-2024-ballon-d-or-feminin)
+- **The Spaniards Aitana Bonmatí and Rodri Hernández crowned World Football 
+Kings**: [Link](https://www.footboom1.com/en/news/football/1999708-the-spaniards-aitana-bonmati-and-rodri-hernandez-crowned-world-football-kings)
+
+
 ### vinicius ballon d or 2024 (N/A, Mon, 28 Oct 2024 20:50:00 -0700)
 
 - **DIRECT. Ballon d'or 2024: l'entourage de Vinicius Jr. désormais convaincu 
