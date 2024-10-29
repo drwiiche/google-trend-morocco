@@ -1,3 +1,9 @@
+### hassan youssef (N/A, Tue, 29 Oct 2024 07:20:00 -0700)
+
+- **Celebs: Renowned Egyptian actor Hasan Youssef dies aged 90**: [Link](https://www.gdnonline.com/Details/1336148/Renowned-Egyptian-actor-Hasan-Youssef-dies-aged-90)
+- **Veteran Egyptian Actor Hassan Youssef has Passed Away at the Age of 90**: [Link](https://cairoscene.com/Buzz/Veteran-Egyptian-Actor-Hassan-Youssef-has-Passed-Away-at-the-Age-of-90)
+
+
 ### الطائي ضد الهلال (N/A, Tue, 29 Oct 2024 07:20:00 -0700)
 
 - **الحمدان وليوناردو يقودان هجوم الهلال أمام الطائي**: [Link](https://m.kooora.com/?n=1364656&o=n)
