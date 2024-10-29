@@ -1,3 +1,39 @@
+### météo (N/A, Mon, 28 Oct 2024 23:00:00 -0700)
+
+- **Alerte météo. Froid, pluie et neige dans plusieurs régions**: [Link](https://medias24.com/2024/10/27/alerte-meteo-froid-pluie-et-neige-dans-plusieurs-regions/)
+- **Les températures attendues ce lundi 28 octobre 2024**: [Link](https://fr.hespress.com/392689-les-temperatures-attendues-ce-lundi-28-octobre-2024.html)
+- **Pluies localement fortes ce dimanche dans plusieurs provinces du Royaume**: [Link](https://ledesk.ma/encontinu/pluies-localement-fortes-ce-dimanche-dans-plusieurs-provinces-du-royaume/)
+
+
+### weather (N/A, Mon, 28 Oct 2024 23:00:00 -0700)
+
+- **Mangaluru Weather Update: Light Rain Expected for the Next Few Days**: [Link](https://newskarnataka.com/karnataka/mangaluru/mangaluru-weather-update-light-rain-expected-for-the-next-few-days/29102024/)
+- **Seattle weather: Morning clouds to crisp, sunny Tuesday**: [Link](https://www.fox13seattle.com/weather/morning-clouds-crisp-sunny-tuesday)
+- **Northeast Ohio Weather: Record warmth potential next few days**: [Link](https://www.cleveland19.com/2024/10/29/northeast-ohio-weather-record-warmth-potential-next-few-days/)
+
+
+### احوال الطقس (N/A, Mon, 28 Oct 2024 22:50:00 -0700)
+
+- **"فيضانات شتنبر" تستوجب الصرامة في التعامل القبلي مع النشرات الإنذارية**: [Link](https://www.hespress.com/%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA-%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-%D8%AA%D8%B3%D8%AA%D9%88%D8%AC%D8%A8-%D8%A7%D9%84%D8%B5%D8%B1%D8%A7%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B9-1455053.html)
+- **الثلوج تقطع الطرقات بالرشيدية وتنغير**: [Link](https://rue20.com/849427.html)
+- **أمطار وثلوج وطقس بارد في عدة مناطق بالمملكة**: [Link](https://www.analkhabar.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D9%88%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%81%D9%8A-%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A8%D8%A7%D9%84%D9%85/)
+
+
+### nba (N/A, Mon, 28 Oct 2024 20:40:00 -0700)
+
+- **Recap: Nuggets Finally Get Win Over The Toronto Raptors**: [Link](https://www.denverstiffs.com/recap-nuggets-finally-get-win-over-the-toronto-raptors/)
+- **Jamal Murray Scores 17**: [Link](https://bleacherreport.com/videos/598993-jamal-murray-scores-17)
+- **StatMuse: Jokic in the OT win: 40 PTS 10 REB 2 BLK 18-27 FG 3-5 3P 
+Back-to-back 40-point games. pic.…**: [Link](https://hoopshype.com/rumor/3250027/)
+
+
+### balotelli (N/A, Mon, 28 Oct 2024 17:00:00 -0700)
+
+- **Soccer: Balotelli fired up to help struggling Genoa**: [Link](https://ansabrasil.com.br/english/news/2024/10/28/soccer-balotelli-fired-up-to-help-struggling-genoa_6a9460a8-eddb-48eb-81af-7aaf4d0260a9.html)
+- **Mario Balotelli Set for Medical as He Aims for Serie A Comeback with Genoa**: [Link](https://www.footboom1.com/en/news/football/1998333-mario-balotelli-set-for-medical-as-he-aims-for-serie-a-comeback-with-genoa)
+- **Balotelli speaks to reporters before Genoa medical: I'm fired up**: [Link](https://www.tribalfootball.com/article/soccer-serie-a-balotelli-speaks-to-reporters-before-genoa-medical-i-m-fired-up-57e82f65-3031-4ab9-aaa5-1fb7b8306f6b)
+
+
 ### x (N/A, Mon, 28 Oct 2024 20:00:00 -0700)
 
 - **Khamenei’s day-old Hebrew account on X suspended after threats against 
