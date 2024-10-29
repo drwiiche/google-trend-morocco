@@ -1,3 +1,10 @@
+### alerte météo maroc (N/A, Mon, 28 Oct 2024 19:20:00 -0700)
+
+- **Alerte météo. Froid, pluie et neige dans plusieurs régions**: [Link](https://medias24.com/2024/10/27/alerte-meteo-froid-pluie-et-neige-dans-plusieurs-regions/)
+- **Les températures attendues ce lundi 28 octobre 2024**: [Link](https://fr.hespress.com/392689-les-temperatures-attendues-ce-lundi-28-octobre-2024.html)
+- **Pluies localement fortes ce dimanche dans plusieurs provinces du Royaume**: [Link](https://ledesk.ma/encontinu/pluies-localement-fortes-ce-dimanche-dans-plusieurs-provinces-du-royaume/)
+
+
 ### lalla hasnaa (N/A, Mon, 28 Oct 2024 17:10:00 -0700)
 
 - **La princesse Lalla Hasnaa et Sheikha Al Mayassa Bint Hamad Al Thani 
