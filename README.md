@@ -1,3 +1,12 @@
+### al-nassr fc – al taawon (N/A, Tue, 29 Oct 2024 10:10:00 -0700)
+
+- **Match Date for Al-Nasr vs Al-Taawoun in the Custodian of the Two Holy 
+Mosques Cup and Broadcasting Channels**: [Link](https://www.footboom1.com/en/news/football/2001025-match-date-for-al-nasr-vs-al-taawoun-in-the-custodian-of-the-two-holy-mosques-cup-and-broadcasting-channels)
+- **Where to watch Al-Nassr vs Al Taawon live in the USA: 2024–25 King's Cup**: [Link](https://bolavip.com/en/soccer/where-to-watch-al-nassr-vs-al-taawon-live-for-free-in-the-usa-2024-25-kings-cup)
+- **Is Cristiano Ronaldo playing tonight for Al Nassr vs Al Taawoun in Kings 
+Cup?**: [Link](https://khelnow.com/football/world-football-is-cristiano-ronaldo-playing-tonight-al-nassr-vs-al-taawoun-kings-cup-202410)
+
+
 ### rb leipzig – sankt pauli (N/A, Tue, 29 Oct 2024 12:00:00 -0700)
 
 - **Mit Poulsen-Doppelpack: RB-Sieg gegen St. Pauli – Claude-Maurice schlägt 
