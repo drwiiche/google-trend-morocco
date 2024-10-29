@@ -1,3 +1,12 @@
+### aziz akhannouch (N/A, Tue, 29 Oct 2024 14:40:00 -0700)
+
+- **Visite d’État de Macron : pourquoi la présence de Yassine Belattar fait 
+couler beaucoup d’encre**: [Link](https://mobile.telquel.ma/instant-t/2024/10/29/visite-detat-de-macron-pourquoi-la-presence-de-yassine-belattar-fait-couler-beaucoup-dencre_1901462/)
+- **Emmanuel Macron valorise les talents marocains du gaming**: [Link](https://fr.hespress.com/393346-emmanuel-macron-valorise-les-talents-marocains-du-gaming.html)
+- **Le ministère français des Affaires étrangères publie la carte intégrale du 
+Maroc, comprenant son Sahara**: [Link](https://fr.le360.ma/politique/le-ministere-francais-des-affaires-etrangeres-publie-la-carte-integrale-du-maroc-comprenant-son_22P5VT4ODZBPJN64BURY4FIJLM/)
+
+
 ### napoli (N/A, Tue, 29 Oct 2024 14:10:00 -0700)
 
 - **LIVE Milan-Napoli 0-2: la sblocca Lukaku, Musah divora il pari. Poi 
