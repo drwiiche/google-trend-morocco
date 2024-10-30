@@ -1,3 +1,18 @@
+### inter milan (N/A, Wed, 30 Oct 2024 11:20:00 -0700)
+
+- **Inter Milan Veteran Wingback Evaluates Nerazzurri Scudetto Charge: “It’s 
+Important To Keep Up With Napoli”**: [Link](https://sempreinter.com/2024/10/30/inter-milan-ace-matteo-darmian-its-important-keep-up-with-napoli/)
+- **Inzaghi: ‘Barella can play new role, Inter must improve’**: [Link](https://football-italia.net/inzaghi-barella-can-play-role-inter-improve/)
+- **Wednesday's Serie A predictions including Empoli vs. Inter Milan**: [Link](https://www.sportsmole.co.uk/football/empoli/serie-a-predictions/feature/wednesdays-serie-a-predictions-including-empoli-vs-inter_556751.html)
+
+
+### didier drogba (N/A, Wed, 30 Oct 2024 11:20:00 -0700)
+
+- **Ballon d’Or : La femme de Drogba stoppe une polémique gênante**: [Link](https://www.foot01.com/foot-europeen/ballon-d-or-la-femme-de-drogba-stoppe-une-polemique-genante-444737)
+- **Une légende de l’OM recale le PSG !**: [Link](https://le10sport.com/football/ligue1/om/une-legende-de-lom-recale-le-psg-718541)
+- **OM : Drogba raconte son chef-d'œuvre face à Newcastle**: [Link](https://www.lephoceen.fr/infos-om/autour-de-l-om/om-drogba-raconte-son-chef-d-uvre-face-a-newcastle-220080)
+
+
 ### ruben amorim (N/A, Wed, 30 Oct 2024 10:30:00 -0700)
 
 - **Guardiola sobre Amorim: «Olhem para a época que está a ter...»**: [Link](https://www.abola.pt/futebol/noticias/guardiola-sobre-amorim-olhem-para-a-epoca-que-esta-a-ter-2024103000191386991)
