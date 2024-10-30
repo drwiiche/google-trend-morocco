@@ -1,3 +1,12 @@
+### valence (N/A, Wed, 30 Oct 2024 03:40:00 -0700)
+
+- **Inondations à Valence, en Espagne : au moins 51 morts, selon les autorités**: [Link](https://www.lemonde.fr/climat/article/2024/10/30/inondations-en-espagne-des-corps-retrouves-selon-les-autorites_6366199_1652612.html)
+- **DIRECT. Crues éclair en Espagne: des dizaines de personnes bloquées dans un 
+centre commercial**: [Link](https://www.bfmtv.com/international/europe/espagne/direct-crues-eclair-en-espagne-le-bilan-provisoire-s-alourdit-a-51-morts_LN-202410300351.html)
+- **Innondations en Espagne : au moins 51 morts, le premier ministre appelle 
+les habitants à «rester sur leurs gardes»**: [Link](https://www.lefigaro.fr/flash-actu/espagne-plus-de-600-incidents-recenses-apres-des-pluies-torrentielles-dans-le-sud-est-20241029)
+
+
 ### hussein fahmy (N/A, Wed, 30 Oct 2024 03:10:00 -0700)
 
 - **Mustafa Fahmy dies aged 82: Celebrated Egyptian actor had a TV and film 
