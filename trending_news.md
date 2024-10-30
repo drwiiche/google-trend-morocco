@@ -1,3 +1,10 @@
+### طقس (N/A, Tue, 29 Oct 2024 23:50:00 -0700)
+
+- **الخير الإلهي.. تساقطات مطرية مهمة منتظرة اليوم بهذه المناطق المغربية**: [Link](https://www.akhbarona.com/national/394755.html)
+- **الأرصاد تحذر من أمطار قوية في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1455750.html)
+- **المديرية العامة للأرصاد الجوية تبشر المغاربة بأمطار قادمة**: [Link](https://www.analkhabar.com/%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%84%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%A8%D8%B4%D8%B1-%D8%A7-7/)
+
+
 ### valence (N/A, Wed, 30 Oct 2024 03:40:00 -0700)
 
 - **Inondations à Valence, en Espagne : au moins 51 morts, selon les autorités**: [Link](https://www.lemonde.fr/climat/article/2024/10/30/inondations-en-espagne-des-corps-retrouves-selon-les-autorites_6366199_1652612.html)
