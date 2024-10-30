@@ -1,3 +1,11 @@
+### chelsea (N/A, Wed, 30 Oct 2024 14:50:00 -0700)
+
+- **Chelsea fans’ preferred lineup against Newcastle: Cucurella at right back?**: [Link](https://weaintgotnohistory.sbnation.com/2024/10/30/24283787/chelsea-fans-preferred-lineup-against-newcastle-cucurella-at-right-back)
+- **Latest. Team news: Gordon starts as Howe makes five changes for cup tie**: [Link](https://www.newcastleunited.com/en/news/team-news-gordon-starts-as-howe-makes-five-changes-for-cup-tie)
+- **Cole Palmer thanks comparisons to Gianfranco Zola: "He’s an icon in FIFA, 
+so he must have been great"**: [Link](https://www.footboom1.com/en/news/football/2002067-cole-palmer-thanks-comparisons-to-gianfranco-zola-he-s-an-icon-in-fifa-so-he-must-have-been-great)
+
+
 ### city (N/A, Wed, 30 Oct 2024 13:50:00 -0700)
 
 - **Man City dealt huge Savinho injury blow vs Tottenham in latest Pep 
