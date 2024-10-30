@@ -1,3 +1,20 @@
+### man utd (N/A, Wed, 30 Oct 2024 14:10:00 -0700)
+
+- **Man Utd: Interim manager Ruud van Nistelrooy says club can be 'unstoppable'**: [Link](https://www.bbc.com/sport/football/articles/c5ym7gg7vjpo)
+- **Inside Manchester United’s pursuit of Ruben Amorim and Erik ten Hag’s exit 
+as manager - The Athletic**: [Link](https://www.nytimes.com/athletic/5883160/2024/10/30/ten-hag-amorim-welbeck-berrada/)
+- **Sporting Officially Announce Ruben Amorim Will Join Manchester United**: [Link](https://www.si.com/onsi/soccer/liverpool/rival-watch/sporting-officially-announce-ruben-amorim-will-join-manchester-united)
+
+
+### ronaldo (N/A, Wed, 30 Oct 2024 14:10:00 -0700)
+
+- **'Of course he will be there' - Vitinha confident Ronaldo will feature at 
+2026 World Cup**: [Link](https://www.beinsports.com/en-my/football/world-cup/articles/of-course-he-will-be-there-vitinha-confident-ronaldo-will-feature-at-2026-world-cup-2024-10-30)
+- **Al-Nassr Seeks to Renew Cristiano Ronaldo's Contract**: [Link](https://www.footboom1.com/en/news/football/2003274-al-nassr-seeks-to-renew-cristiano-ronaldo-s-contract)
+- **Fresh Cristiano Ronaldo retirement hint dropped after ex-Man Utd star costs 
+Al-Nassr**: [Link](https://www.mirror.co.uk/sport/football/news/cristiano-ronaldo-alnassr-retire-manutd-34001247)
+
+
 ### فؤاد عبد المومني (N/A, Wed, 30 Oct 2024 14:00:00 -0700)
 
 - **النيابة العامة تدخل على خط الاتهامات التي روجها أحد "قيادات الهوندا" في حق 
