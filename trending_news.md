@@ -1,3 +1,18 @@
+### حالة الطقس اليوم (N/A, Tue, 29 Oct 2024 23:20:00 -0700)
+
+- **«هجمة شتوية حادة».. بيان عاجل بشأن حالة الطقس الأسبوع المقبل: أمطار رعدية 
+تضرب البلاد**: [Link](https://www.almasryalyoum.com/news/details/3294046)
+- **«معلومات المناخ»: أمطار رعدية على 4 مناطق بداية من الخميس المقبل**: [Link](https://m.akhbarelyom.com/news/newdetails/4477386/1/%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%AE-%D8%B3%D9%82%D9%88%D8%B7-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1)
+- **أخبار × 24 ساعة.. الأرصاد: أمطار متفاوتة الشدة اعتبارًا من الجمعة**: [Link](https://m2.youm7.com/story/2024/10/30/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%C3%97-24-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%A7%D9%88%D8%AA%D8%A9-%D8%A7%D9%84%D8%B4%D8%AF%D8%A9-%D8%A7%D8%B9%D8%AA%D8%A8%D8%A7%D8%B1%D9%8B%D8%A7-%D9%85%D9%86/6759379)
+
+
+### الطقس (N/A, Tue, 29 Oct 2024 23:00:00 -0700)
+
+- **الأرصاد تحذر من أمطار قوية في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1455750.html)
+- **الطقس غدا الأربعاء … أمطار وبرودة بعدد من المناطق**: [Link](https://ar.hibapress.com/details-567914.html)
+- **الأرصاد الجوية تحذر من أمطار قوية في هذه المناطق**: [Link](https://www.akhbarona.com/national/394686.html)
+
+
 ### weather (N/A, Tue, 29 Oct 2024 23:10:00 -0700)
 
 - **BREVARD WEATHER FORECAST: Mostly Sunny Skies, High Near 83 on Wednesday on 
