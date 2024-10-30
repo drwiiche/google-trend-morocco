@@ -1,3 +1,11 @@
+### aston villa (N/A, Wed, 30 Oct 2024 14:40:00 -0700)
+
+- **Aston Villa 1-2 Crystal Palace LIVE match updates as Kamada punishes Carlos 
+mistake to restore lead**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/aston-villa-crystal-palace-live-30251209)
+- **Tyrone Mings and Boubacar Kamara start Palace Carabao Cup clash**: [Link](https://www.avfc.co.uk/news/2024/october/30/mings-and-kamara-start-palace-carabao-cup-clash/)
+- **Glasner: We play to win every game**: [Link](https://www.cpfc.co.uk/news/first-team/oliver-glasner-pre-aston-villa-carabao-cup-press-conference/)
+
+
 ### man utd (N/A, Wed, 30 Oct 2024 14:10:00 -0700)
 
 - **Man Utd: Interim manager Ruud van Nistelrooy says club can be 'unstoppable'**: [Link](https://www.bbc.com/sport/football/articles/c5ym7gg7vjpo)
