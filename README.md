@@ -1,3 +1,10 @@
+### mustapha fahmi acteur (N/A, Wed, 30 Oct 2024 02:50:00 -0700)
+
+- **Décès de l'acteur égyptien Mustapha Fahmi**: [Link](https://www.mosaiquefm.net/fr/people/1334419/deces-de-l-acteur-egyptien-mustapha-fahmi)
+- **Mustafa Fahmy, icône du cinéma égyptien, n'est plus**: [Link](https://www.lopinion.ma/Mustafa-Fahmy-icone-du-cinema-egyptien-n-est-plus_a59603.html)
+- **L'acteur égyptien Moustapha Fehmi n'est plus**: [Link](https://www.lorientlejour.com/article/1433518/lacteur-egyptien-moustapha-fehmi-nest-plus.html)
+
+
 ### inondations espagne (N/A, Wed, 30 Oct 2024 01:50:00 -0700)
 
 - **"Une situation sans précédent": l'Espagne touchée par des crues éclair, des 
