@@ -1,3 +1,13 @@
+### city (N/A, Wed, 30 Oct 2024 13:50:00 -0700)
+
+- **Man City dealt huge Savinho injury blow vs Tottenham in latest Pep 
+Guardiola problem**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-city-breaking-news-live-30266255)
+- **Savinho in tears after coming off injured for Man City in League Cup match. 
+Akanji also hurt**: [Link](https://apnews.com/article/savinho-akanji-injuries-man-city-8e9cf48a71e20ec06f712cc072c00232)
+- **Savinho stretchered off in tears in Man City's Carabao Cup clash with 
+Tottenham as Pep Guardiola faces significant injury concern**: [Link](https://www.goal.com/en-om/lists/savinho-man-city-carabao-cup-tottenham-pep-guardiola-injury-concern/blt93fdc5b4360b9cfa)
+
+
 ### win (N/A, Wed, 30 Oct 2024 14:30:00 -0700)
 
 - **Historian who correctly predicted 9 of last 10 presidential elections picks 
