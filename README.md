@@ -1,3 +1,14 @@
+### valencia (N/A, Wed, 30 Oct 2024 01:00:00 -0700)
+
+- **Última hora de la DANA en Valencia y el resto de España | La Guardia Civil 
+cifra en 13 los muertos, entre ellos cuatro niños, por la devastadora DANA 
+que ha asolado la Comunidad Valenciana**: [Link](https://www.elmundo.es/espana/2024/10/30/6721cf1ba75cca8941c8e21a-directo.html)
+- **La Guardia Civil confirma que hay 13 muertos, cuatro de ellos niños, por la 
+DANA que azota el este de España**: [Link](https://www.marca.com/tiramillas/actualidad/desastres-naturales/2024/10/29/67215072e2704e259f8b45a1.html)
+- **Última hora de la DANA en España, en directo: inundaciones, muertos, 
+desaparecidos y carreteras cortadas**: [Link](https://www.larazon.es/el-tiempo/ultima-hora-dana-espana-directo-inundaciones-muertos-desaparecidos-carreteras-cortadas_202410306721d31fd8f8950001d4e121.html)
+
+
 ### طقس اليوم (N/A, Tue, 29 Oct 2024 23:50:00 -0700)
 
 - **«هجمة شتوية حادة».. بيان عاجل بشأن حالة الطقس الأسبوع المقبل: أمطار رعدية 
