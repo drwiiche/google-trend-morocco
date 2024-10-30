@@ -1,3 +1,19 @@
+### river plate (N/A, Tue, 29 Oct 2024 19:00:00 -0700)
+
+- **Qué pasa si River gana, empata o pierde contra Atlético Mineiro la vuelta 
+de la semifinal de la Copa Libert...**: [Link](https://bolavip.com/ar/river/que-pasa-si-river-gana-empata-o-pierde-contra-atletico-mineiro-la-vuelta-de-la-semifinal-de-la-copa-libertadores-2024)
+- **Se demora el comienzo de River vs. Atlético Mineiro por la vuelta de la 
+Copa Libertadores: los motivos**: [Link](https://www.directvsports.com/futbol/Se-retraso-el-comienzo-de-River-vs.-Atletico-Mineiro-por-la-vuelta-de-la-Copa-Libertadores-los-motivos-20241029-0059.html)
+- **OPINA: ¿El mejor recibimiento de la historia de la Libertadores?**: [Link](https://onefootball.com/es/noticias/opina-el-mejor-recibimiento-de-la-historia-de-la-libertadores-40238023)
+
+
+### مصطفى فهمي (N/A, Tue, 29 Oct 2024 18:00:00 -0700)
+
+- **وفاة الفنان المصري القدير مصطفى فهمي**: [Link](https://www.akhbarona.com/culture/394752.html)
+- **وفاة الفنان مصطفي فهمي عن عمر يناهز 82 سنة**: [Link](https://www.almasryalyoum.com/news/details/3294666)
+- **تفاصيل الساعات الأخيرة بحياة مصطفى فهمي.. وموقف شقيقه حسين**: [Link](https://www.alarabiya.net/culture-and-art/2024/10/30/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D8%A8%D8%AD%D9%8A%D8%A7%D8%A9-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D9%81%D9%87%D9%85%D9%8A-%D9%88%D9%85%D9%88%D9%82%D9%81-%D8%B4%D9%82%D9%8A%D9%82%D9%87-%D8%AD%D8%B3%D9%8A%D9%86-)
+
+
 ### teddy riner (N/A, Tue, 29 Oct 2024 15:50:00 -0700)
 
 - **Visite d’État de Macron : pourquoi la présence de Yassine Belattar fait 
