@@ -1,3 +1,24 @@
+### san pedro – celta vigo (N/A, Wed, 30 Oct 2024 13:40:00 -0700)
+
+- **Celta Vigo rest six key players for Copa del Rey tie**: [Link](https://sports.yahoo.com/celta-vigo-rest-six-key-231200438.html)
+- **UD San Pedro - Celta: A Match Worth Half a Century of Existence**: [Link](https://www.footboom1.com/en/news/football/2005401-ud-san-pedro-celta-a-match-worth-half-a-century-of-existence)
+- **Preview: UD San Pedro vs. Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ud-san-pedro/preview/preview-ud-san-pedro-vs-celta-vigo-prediction-team-news-lineups_556696.html)
+
+
+### juventus (N/A, Wed, 30 Oct 2024 13:40:00 -0700)
+
+- **✅ Le UFFICIALI delle 20:45: Yildiz ❌, la scelta su Koop, CDK e McKennie**: [Link](https://onefootball.com/id/berita/le-ufficiali-delle-2045-yildiz-la-scelta-su-koop-cdk-e-mckennie-40241284)
+- **Guardalà (Sky Sport): "Ecco il piano di Motta per Koopmeiners"**: [Link](https://www.tuttojuve.com/altre-notizie/guardala-sky-sport-ecco-il-piano-di-motta-per-koopmeiners-708183)
+- **Juve, attenta a Bernabé: il gialloblù è il migliore in Serie A**: [Link](https://www.ilbianconero.com/a/juve-parma-bernabe-serie-a-il-bianconero-80305)
+
+
+### manchester city (N/A, Wed, 30 Oct 2024 13:40:00 -0700)
+
+- **City EDS hold nerve to win EFL Trophy clash in shootout**: [Link](https://www.mancity.com/news/eds-academy/grimsby-town-city-eds-efl-trophy-match-report-202425-63865822)
+- **Heskey is the future of Manchester City, thanks to last night's win**: [Link](https://www.fourfourtwo.com/news/heskey-is-the-future-of-manchester-city-thanks-to-last-nights-win)
+- **Emile Heskey's sons score to see Man City advance in EFL Trophy!**: [Link](https://www.skysports.com/football/video/19530/13244463/emile-heskeys-sons-score-to-see-man-city-advance-in-efl-trophy)
+
+
 ### carabao cup (N/A, Wed, 30 Oct 2024 13:30:00 -0700)
 
 - **Why VAR will not be in operation for Chelsea's Carabao Cup tie vs Newcastle**: [Link](https://www.si.com/onsi/soccer/chelsea/news/why-no-var-chelsea-newcastle-carabao-cup-01jba3bd0bbe)
