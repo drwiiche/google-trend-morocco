@@ -1,3 +1,12 @@
+### win (N/A, Wed, 30 Oct 2024 14:30:00 -0700)
+
+- **Historian who correctly predicted 9 of last 10 presidential elections picks 
+Harris, still**: [Link](https://www.usatoday.com/story/news/politics/elections/2024/10/30/historian-allan-lichtman-predicts-harris-win/75939976007/)
+- **Election ‘Nostradamus’ stands by Harris win prediction: ‘Flock of crows in 
+my stomach’**: [Link](https://nypost.com/2024/10/30/us-news/election-nostradamus-stands-by-harris-win-prediction-flock-of-crows-in-my-stomach/)
+- **Opinion | James Carville: Three Reasons I’m Certain Kamala Harris Will Win**: [Link](https://www.nytimes.com/2024/10/23/opinion/kamala-harris-win-election.html)
+
+
 ### man united (N/A, Wed, 30 Oct 2024 13:30:00 -0700)
 
 - **Manchester United 5-2 Leicester, Newcastle 2-0 Chelsea: Carabao Cup 
