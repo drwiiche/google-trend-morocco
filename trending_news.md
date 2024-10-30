@@ -1,3 +1,20 @@
+### طقس اليوم (N/A, Tue, 29 Oct 2024 23:50:00 -0700)
+
+- **«هجمة شتوية حادة».. بيان عاجل بشأن حالة الطقس الأسبوع المقبل: أمطار رعدية 
+تضرب البلاد**: [Link](https://www.almasryalyoum.com/news/details/3294046)
+- **اعتدال أجواء الخريف.. درجات الحرارة المتوقعة في مصر اليوم الأربعاء**: [Link](https://m.akhbarelyom.com/news/newdetails/4478212/1/%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D9%84-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%AE%D8%B1%D9%8A%D9%81-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82)
+- **أخبار × 24 ساعة.. الأرصاد: أمطار متفاوتة الشدة اعتبارًا من الجمعة**: [Link](https://m2.youm7.com/story/2024/10/30/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%C3%97-24-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%A7%D9%88%D8%AA%D8%A9-%D8%A7%D9%84%D8%B4%D8%AF%D8%A9-%D8%A7%D8%B9%D8%AA%D8%A8%D8%A7%D8%B1%D9%8B%D8%A7-%D9%85%D9%86/6759379)
+
+
+### neige maroc (N/A, Tue, 29 Oct 2024 22:30:00 -0700)
+
+- **Le temps qu'il fera ce mardi 29 octobre 2024**: [Link](https://fr.hespress.com/392786-le-temps-quil-fera-ce-mardi-29-octobre-2024.html)
+- **Fortes pluies, grêle et chutes de neige attendues jusqu'à jeudi dans 
+plusieurs villes du Maroc (DGM)**: [Link](https://lematin.ma/regions/fortes-pluies-grele-et-chutes-de-neige-attendues-jusqua-jeudi-au-maroc/249198)
+- **Météo. Temps pluvieux sur l'ensemble du pays avec rafales de vent assez 
+fortes sur l’Oriental et les plaines atlantiques Nord**: [Link](https://fr.le360.ma/societe/meteo-temps-pluvieux-sur-lensemble-du-pays-avec-rafales-de-vent-assez-fortes-sur-loriental-et-les_ZIA3XYXZXZAJZNRMAKQIATV6YI/)
+
+
 ### الطقس اليوم (N/A, Tue, 29 Oct 2024 23:40:00 -0700)
 
 - **«هجمة شتوية حادة».. بيان عاجل بشأن حالة الطقس الأسبوع المقبل: أمطار رعدية 
