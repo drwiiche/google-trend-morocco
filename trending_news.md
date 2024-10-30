@@ -1,3 +1,10 @@
+### ruben amorim (N/A, Wed, 30 Oct 2024 10:30:00 -0700)
+
+- **Guardiola sobre Amorim: «Olhem para a época que está a ter...»**: [Link](https://www.abola.pt/futebol/noticias/guardiola-sobre-amorim-olhem-para-a-epoca-que-esta-a-ter-2024103000191386991)
+- **Manchester United quer treinador português para substituir Ten Hag**: [Link](https://placar.com.br/futebol-europeu/manchester-united-quer-treinador-portugues-para-substituir-ten-hag/)
+- **Sporting: Amorim já prepara receção ao Estrela da Amadora para a Liga**: [Link](https://cnnportugal.iol.pt/liga/sporting/sporting-amorim-ja-prepara-rececao-ao-estrela-da-amadora-para-a-liga)
+
+
 ### empoli – inter (N/A, Wed, 30 Oct 2024 10:00:00 -0700)
 
 - **FORMAZIONI UFFICIALI – Da Frattesi a Lucca, Thauvin, Lautaro, Bisseck e 
