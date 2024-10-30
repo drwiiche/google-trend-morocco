@@ -1,3 +1,10 @@
+### carabao cup (N/A, Wed, 30 Oct 2024 13:30:00 -0700)
+
+- **Why VAR will not be in operation for Chelsea's Carabao Cup tie vs Newcastle**: [Link](https://www.si.com/onsi/soccer/chelsea/news/why-no-var-chelsea-newcastle-carabao-cup-01jba3bd0bbe)
+- **EFL make Newcastle United vs Chelsea official decision after £50,000 FA fine**: [Link](https://www.newcastleworld.com/sport/football/newcastle-united/efl-make-newcastle-united-vs-chelsea-official-decision-after-ps50000-fa-fine-4845053)
+- **Why VAR will not be in operation for Chelsea's Carabao Cup tie vs Newcastle**: [Link](https://onefootball.com/en/news/why-var-will-not-be-in-operation-for-chelseas-carabao-cup-tie-vs-newcastle-40240591)
+
+
 ### manchester united (N/A, Wed, 30 Oct 2024 13:20:00 -0700)
 
 - **Man Utd: Interim manager Ruud van Nistelrooy says club can be 'unstoppable'**: [Link](https://www.bbc.com/sport/football/articles/c5ym7gg7vjpo)
