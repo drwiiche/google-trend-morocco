@@ -1,3 +1,16 @@
+### extremadura – girona (N/A, Wed, 30 Oct 2024 12:50:00 -0700)
+
+
+
+
+### بريستون ضد آرسنال (N/A, Wed, 30 Oct 2024 12:50:00 -0700)
+
+- **أرتيتا يزف خبرًا سعيدًا لجمهور آرسنال**: [Link](https://www.kooora.com/?n=1364685)
+- **أرتيتا يوضح موقف لاعبيه المصابين من مباراة بريستون**: [Link](https://hihi2.com/2024/10/29/p2912716.html)
+- **البث المباشر لمشاهدة مباراة ارسنال وبريستون نورث اليوم يلا شوت تويتر في كاس 
+الرابطة الإنجليزية –**: [Link](https://real.alsaudinews.com/202224/%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%A8-3/)
+
+
 ### tottenham – manchester city (N/A, Wed, 30 Oct 2024 12:30:00 -0700)
 
 - **Carabao Cup LIVE: Tottenham v Man City plus five other games - scores, 
