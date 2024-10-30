@@ -1,3 +1,55 @@
+### newcastle – chelsea (N/A, Wed, 30 Oct 2024 12:00:00 -0700)
+
+- **Newcastle waiting on result of Anthony Gordon scan after groin injury sees 
+winger miss Chelsea loss - The Athletic**: [Link](https://www.nytimes.com/athletic/5876513/2024/10/27/anthony-gordon-injury-newcastle/)
+- **Chelsea fans’ preferred lineup against Newcastle: Cucurella at right back?**: [Link](https://weaintgotnohistory.sbnation.com/2024/10/30/24283787/chelsea-fans-preferred-lineup-against-newcastle-cucurella-at-right-back)
+- **Cole Palmer thanks comparisons to Gianfranco Zola: "He’s an icon in FIFA, 
+so he must have been great"**: [Link](https://www.footboom1.com/en/news/football/2002067-cole-palmer-thanks-comparisons-to-gianfranco-zola-he-s-an-icon-in-fifa-so-he-must-have-been-great)
+
+
+### ajax (N/A, Wed, 30 Oct 2024 12:00:00 -0700)
+
+- **Aartsrivaal waakzaam voor Bueno: ''We moeten daar een oplossing voor 
+vinden''**: [Link](https://onefootball.com/en/news/aartsrivaal-waakzaam-voor-bueno-we-moeten-daar-een-oplossing-voor-vinden-40238431)
+- **Negatief record lonkt voor Ajax na Feyenoord-clash**: [Link](https://www.soccernews.nl/news/negatief-record-lonkt-voor-ajax-na-feyenoord-clash/)
+- **Ajax begint met Weghorst en Akpom aan uitduel met Feyenoord**: [Link](https://www.rtl.nl/nieuws/sport/artikel/5477938/ajax-begint-met-weghorst-en-akpom-aan-uitduel-met-feyenoord)
+
+
+### manchester united – leicester (N/A, Wed, 30 Oct 2024 11:50:00 -0700)
+
+- **Predicted Manchester United line-up to face Leicester as Ruud van 
+Nistelrooy takes charge**: [Link](https://www.unitedinfocus.com/match-coverage/predicted-manchester-united-line-up-to-face-leicester-as-ruud-van-nistelrooy-takes-charge/)
+- **David Moyes' trophy-winning start, Louis van Gaal's home setback and Erik 
+ten Hag's Brighton nightmare - how t**: [Link](https://www.dailymail.co.uk/sport/football/article-14019459/David-Moyes-Louis-van-Gaal-Erik-ten-Hag-Brighton-Man-United-Ruud-van-Nistelrooy.html)
+- **'If Ten Hag was in charge, maybe it would have been an easier game'**: [Link](https://www.aol.com/ten-hag-charge-maybe-easier-120929957.html)
+
+
+### mainz 05 – bayern (N/A, Wed, 30 Oct 2024 11:50:00 -0700)
+
+- **DFB-Pokal: Die Aufstellungen der Abendspiele**: [Link](https://neunzigplus.de/dfb-pokal/dfb-pokal-abend-lineups/)
+- **FSV Mainz 05 - FC Bayern München im Free-TV und Livestream: Hier siehst du 
+das Spiel live**: [Link](https://www.derwesten.de/sport/fussball/bayern-muenchen-fcb-tv-livestream-dfb-pokal-mainz-id300586267.html)
+- **Kompany reagiert auf Rasentrick: „Können auch auf dem Gipfel des Himalaya 
+spielen“**: [Link](https://www.merkur.de/sport/fc-bayern/himalaya-spielen-kompany-reagiert-auf-sandtrick-von-mainz-koennen-auch-auf-dem-gipfel-des-zr-93382351.html)
+
+
+### preston north end – arsenal (N/A, Wed, 30 Oct 2024 11:50:00 -0700)
+
+- **Team News: Setford makes debut and Saliba returns**: [Link](https://www.arsenal.com/news/team-news-setford-makes-debut-and-saliba-returns)
+- **Preston game should give Sterling and Jesus a chance to shine for Arsenal**: [Link](https://onefootball.com/en/news/preston-game-should-give-sterling-and-jesus-a-chance-to-shine-for-arsenal-40239662)
+- **Arsenal could make 7 changes for Carabao Cup as Mikel Arteta eyes return to 
+winning form**: [Link](https://www.liverpool.com/premier-league/arsenal-could-make-7-changes-30261307)
+
+
+### brighton – liverpool (N/A, Wed, 30 Oct 2024 11:50:00 -0700)
+
+- **Slot names Liverpool player who ‘deserves to play’ against Brighton after 
+‘showing up for the team’**: [Link](https://www.empireofthekop.com/2024/10/30/arne-slot-wataru-endo/)
+- **Can Mo Salah equal Ian Rush & Roger Hunt to lead Liverpool to 26th 
+quarter-final?**: [Link](https://www.thisisanfield.com/2024/10/can-mo-salah-equal-ian-rush-roger-hunt-to-lead-liverpool-to-26th-quarter-final/)
+- **'A trophy well worth winning'**: [Link](https://www.aol.com/trophy-well-worth-winning-150624508.html)
+
+
 ### inter milan (N/A, Wed, 30 Oct 2024 11:20:00 -0700)
 
 - **Inter Milan Veteran Wingback Evaluates Nerazzurri Scudetto Charge: “It’s 
