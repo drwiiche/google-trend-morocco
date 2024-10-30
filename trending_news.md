@@ -1,3 +1,27 @@
+### tottenham – manchester city (N/A, Wed, 30 Oct 2024 12:30:00 -0700)
+
+- **Carabao Cup LIVE: Tottenham v Man City plus five other games - scores, 
+radio commentary & text updates**: [Link](https://www.bbc.com/sport/football/live/cdenw561wk5t)
+- **Pep Guardiola hints at using Man City academy player against Tottenham 
+Hotspur**: [Link](https://www.manchestercity.news/pep-guardiola-hints-there-is-someone-in-man-citys-academy-who-could-feature-against-tottenham-hotspur/)
+- **Copybet Prediction Challenge: Chance to win a £50 free bet by predicting 
+the winner of Tottenham vs Man City**: [Link](https://onefootball.com/en/news/copybet-prediction-challenge-chance-to-win-a-50-free-bet-by-predicting-the-winner-of-tottenham-vs-man-city-40240349)
+
+
+### برايتون ضد ليفربول (N/A, Wed, 30 Oct 2024 12:30:00 -0700)
+
+- **تشكيلة ليفربول ضد برايتون في كأس كاراباو**: [Link](https://hihi2.com/2024/10/30/p2914053.html)
+- **ليفربول يريح صلاح في مواجهة برايتون**: [Link](https://www.kooora.com/?n=1364897)
+- **موعد مباراة ليفربول وبرايتون والقنوات الناقلة في كأس كاراباو**: [Link](https://www.almasryalyoum.com/news/details/3294736)
+
+
+### توتنهام ضد مان سيتي (N/A, Wed, 30 Oct 2024 12:30:00 -0700)
+
+- **توتنهام بقوته الضاربة.. وهالاند على دكة مان سيتي**: [Link](https://www.kooora.com/?n=1364906)
+- **البطولة التي لا يهتم بها بيب غوارديولا!**: [Link](https://hihi2.com/2024/10/30/p2913524.html)
+- **مباشر.. مباراة توتنهام ضد مانشستر سيتي في كأس الرابطة**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/30/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D8%B6%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
+
+
 ### aston villa – crystal palace (N/A, Wed, 30 Oct 2024 12:20:00 -0700)
 
 - **Aston Villa vs Crystal Palace: How to watch the Carabao Cup fourth round, 
