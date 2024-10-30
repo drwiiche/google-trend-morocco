@@ -1,3 +1,12 @@
+### aston villa – crystal palace (N/A, Wed, 30 Oct 2024 12:20:00 -0700)
+
+- **Aston Villa vs Crystal Palace: How to watch the Carabao Cup fourth round, 
+TV channel, team news and more**: [Link](https://www.wearepalace.uk/match-coverage/aston-villa-vs-crystal-palace-how-to-watch-the-carabao-cup-fourth-round-tv-channel-team-news-and-more/)
+- **Unai Emery to make Broggio call for Aston Villa v Crystal Palace**: [Link](https://www.astonvillanews.co.uk/2024/10/29/unai-emery-set-to-make-ben-broggio-decision-for-aston-villa-v-crystal-palace/)
+- **EFL Cup: Aston Villa v Crystal Palace: Leon Bailey's chance to shine in 
+hunt for silverware**: [Link](https://www.expressandstar.com/sport/football/aston-villa/2024/10/30/efl-cup-aston-villa-v-crystal-palace-leon-baileys-chance-to-shine-in-hunt-for-silverware/)
+
+
 ### للا مريم (N/A, Wed, 30 Oct 2024 12:10:00 -0700)
 
 - **الأميرة للا مريم وبريجيت ماكرون تطلقان حملة “محاربة التنمر في الوسط المدرسي 
