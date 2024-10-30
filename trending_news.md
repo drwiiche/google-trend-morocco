@@ -1,3 +1,12 @@
+### hussein fahmy (N/A, Wed, 30 Oct 2024 03:10:00 -0700)
+
+- **Mustafa Fahmy dies aged 82: Celebrated Egyptian actor had a TV and film 
+career spanning 50 years**: [Link](https://www.thenationalnews.com/arts-culture/film-tv/2024/10/30/egyptian-actor-mustafa-fahmy-dead/)
+- **Official Trailer Released For Egyptian Documentary "The Brink Of Dreams" | 
+NileFM | EGYPT'S#1 FOR HIT MUSIC**: [Link](https://nilefm.com/entertainment/article/11451/veteran-egyptian-actor-mostafa-fahmy-dies-at-the-age-of-82)
+- **Egyptian Actor Mostafa Fahmy Passes Away at Age 82**: [Link](https://www.emirates247.com/lifestyle/egyptian-actor-mostafa-fahmy-passes-away-at-age-82-2024-10-30-1.734917)
+
+
 ### mustapha fahmi acteur (N/A, Wed, 30 Oct 2024 02:50:00 -0700)
 
 - **Décès de l'acteur égyptien Mustapha Fahmi**: [Link](https://www.mosaiquefm.net/fr/people/1334419/deces-de-l-acteur-egyptien-mustapha-fahmi)
