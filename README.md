@@ -1,3 +1,12 @@
+### inondations espagne (N/A, Wed, 30 Oct 2024 01:50:00 -0700)
+
+- **"Une situation sans précédent": l'Espagne touchée par des crues éclair, des 
+corps sans vie retrouvés**: [Link](https://www.bfmtv.com/international/europe/espagne/on-a-eu-juste-le-temps-de-monter-sur-un-pont-l-espagne-touchee-par-des-crues-eclair-des-corps-sans-vie-retrouves_AV-202410300148.html)
+- **“Le pire est encore à venir”: des rues transformées en rivières et des 
+grêlons de la taille d'un œuf en Espagne**: [Link](https://www.7sur7.be/monde/le-pire-est-encore-a-venir-des-rues-transformees-en-rivieres-et-des-grelons-de-la-taille-d-un-oeuf-en-espagne~a96d4527/)
+- **Vidéo. No Comment. Le sud de l'Espagne ravagé par les inondations**: [Link](https://fr.euronews.com/video/2024/10/29/no-comment-de-fortes-pluies-provoquent-des-inondations-devastatrices-en-espagne)
+
+
 ### valencia (N/A, Wed, 30 Oct 2024 01:00:00 -0700)
 
 - **Última hora de la DANA en Valencia y el resto de España | La Guardia Civil 
