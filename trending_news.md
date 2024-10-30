@@ -1,3 +1,13 @@
+### gerard darmon (N/A, Tue, 29 Oct 2024 16:40:00 -0700)
+
+- **En vidéo, les bilatérales Maroc-France (Laftit, Bourita, Mezzour, Khlie, 
+Bensaid et Zidane...)**: [Link](https://medias24.com/2024/10/29/en-video-les-bilaterales-maroc-france-laftit-bourita-mezzour-khlie-bensaid-et-zidane/)
+- **La coopération franco-marocaine au service de la sécurité alimentaire en 
+Afrique**: [Link](https://fr.hespress.com/393470-la-cooperation-franco-marocaine-au-service-de-la-securite-alimentaire-en-afrique.html)
+- **Protectorat: pour Emmanuel Macron, la France est entrée par « effraction » 
+au Maroc**: [Link](https://ledesk.ma/culture/protectorat-pour-emmanuel-macron-la-france-est-entree-par-effraction-au-maroc/)
+
+
 ### طقس (N/A, Tue, 29 Oct 2024 23:50:00 -0700)
 
 - **الخير الإلهي.. تساقطات مطرية مهمة منتظرة اليوم بهذه المناطق المغربية**: [Link](https://www.akhbarona.com/national/394755.html)
