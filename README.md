@@ -1,3 +1,12 @@
+### empoli – inter (N/A, Wed, 30 Oct 2024 10:00:00 -0700)
+
+- **FORMAZIONI UFFICIALI – Da Frattesi a Lucca, Thauvin, Lautaro, Bisseck e 
+Oristanio: le decisioni**: [Link](https://www.sosfanta.com/box-ultimora/formazioni-ufficiali-da-frattesi-a-lucca-thauvin-lautaro-bisseck-e-oristanio-le-decisioni/)
+- **Ripartenza Inzaghi, vuole la scossa Inter: basta regali e più cattiveria**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/30-10-2024/serie-a-inter-la-scossa-di-inzaghi-prima-dell-empoli.shtml)
+- **Darmian a DAZN: "E' importante tenere il passo del Napoli, ma dobbiamo 
+guardare a noi stessi"**: [Link](https://www.fcinternews.it/news/darmian-a-i-dazn-i-e-importante-tenere-il-passo-del-napoli-ma-dobbiamo-guardare-a-noi-stessi-967407)
+
+
 ### فيضانات اسبانيا اليوم (N/A, Wed, 30 Oct 2024 09:00:00 -0700)
 
 - **إسبانيا تعلن الحداد لمدة ثلاثة أيام**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D8%AD%D8%AF%D8%A7%D8%AF-%D9%84%D9%85%D8%AF%D8%A9-%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D8%A3%D9%8A%D8%A7%D9%85-1456580.html)
