@@ -1,3 +1,13 @@
+### arielle dombasle (N/A, Tue, 29 Oct 2024 16:00:00 -0700)
+
+- **Visite d’État de Macron : pourquoi la présence de Yassine Belattar fait 
+couler beaucoup d’encre**: [Link](https://mobile.telquel.ma/instant-t/2024/10/29/visite-detat-de-macron-pourquoi-la-presence-de-yassine-belattar-fait-couler-beaucoup-dencre_1901462/)
+- **Le ministère français des Affaires étrangères publie la carte intégrale du 
+Maroc, comprenant son Sahara**: [Link](https://fr.le360.ma/politique/le-ministere-francais-des-affaires-etrangeres-publie-la-carte-integrale-du-maroc-comprenant-son_22P5VT4ODZBPJN64BURY4FIJLM/)
+- **Le ministère de l'Europe et des Affaires étrangères français actualise la 
+carte du Maroc**: [Link](https://medias24.com/2024/10/29/le-ministere-de-leurope-et-des-affaires-etrangeres-francais-actualise-la-carte-du-maroc/)
+
+
 ### river plate (N/A, Tue, 29 Oct 2024 19:00:00 -0700)
 
 - **Qué pasa si River gana, empata o pierde contra Atlético Mineiro la vuelta 
