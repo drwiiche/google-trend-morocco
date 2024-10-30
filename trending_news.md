@@ -1,3 +1,28 @@
+### manchester united (N/A, Wed, 30 Oct 2024 13:20:00 -0700)
+
+- **Man Utd: Interim manager Ruud van Nistelrooy says club can be 'unstoppable'**: [Link](https://www.bbc.com/sport/football/articles/c5ym7gg7vjpo)
+- **Inside Manchester United’s pursuit of Ruben Amorim and Erik ten Hag’s exit 
+as manager - The Athletic**: [Link](https://www.nytimes.com/athletic/5883160/2024/10/30/ten-hag-amorim-welbeck-berrada/)
+- **Sporting Officially Announce Ruben Amorim Will Join Manchester United**: [Link](https://www.si.com/onsi/soccer/liverpool/rival-watch/sporting-officially-announce-ruben-amorim-will-join-manchester-united)
+
+
+### الجريدة الرسمية 2024 (N/A, Wed, 30 Oct 2024 13:10:00 -0700)
+
+- **الجريدة الرسمية تنشر 3 قرارات جديدة لوزارة الداخلية (التفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3293987)
+- **«الداخلية» تقرر السماح لـ63 مواطناً مصرياً بالحصول على جنسيات أجنبية**: [Link](https://www.almasdar.com/148345)
+- **وزير الداخلية يأذن لـ 42 شخصاً بالحصول على الجنسيات الأجنبية**: [Link](https://www.msn.com/ar-eg/news/national/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D9%8A%D8%A3%D8%B0%D9%86-%D9%84%D9%80-42-%D8%B4%D8%AE%D8%B5%D8%A7%D9%8B-%D8%A8%D8%A7%D9%84%D8%AD%D8%B5%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AC%D9%86%D8%A8%D9%8A%D8%A9/ar-AA1t0one)
+
+
+### microsoft copilot (N/A, Wed, 30 Oct 2024 12:50:00 -0700)
+
+- **Microsoft Copilot AI use extends deep into corporate America, but companies 
+aren’t 100% sold**: [Link](https://www.cnbc.com/2024/10/29/microsoft-gen-ai-grows-inside-office-pcs-but-buyers-arent-100percent-sold.html)
+- **How Copilots are helping customers and partners drive pragmatic innovation 
+to achieve business results that matter**: [Link](https://blogs.microsoft.com/blog/2024/10/29/how-copilots-are-helping-customers-and-partners-drive-pragmatic-innovation-to-achieve-business-results-that-matter/)
+- **Avanade, Finastra and Vodafone among companies adopting Microsoft Copilot 
+to drive innovation**: [Link](https://www.technologyrecord.com/article/avanade-finastra-and-vodafone-among-companies-adopting-microsoft-copilot-to-drive-innovation)
+
+
 ### extremadura – girona (N/A, Wed, 30 Oct 2024 12:50:00 -0700)
 
 
