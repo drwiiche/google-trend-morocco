@@ -1,3 +1,10 @@
+### فيضانات اسبانيا اليوم (N/A, Wed, 30 Oct 2024 09:00:00 -0700)
+
+- **إسبانيا تعلن الحداد لمدة ثلاثة أيام**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D8%AD%D8%AF%D8%A7%D8%AF-%D9%84%D9%85%D8%AF%D8%A9-%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D8%A3%D9%8A%D8%A7%D9%85-1456580.html)
+- **فيضانات فالينسيا: المفقودون المغاربة ضمن ضحايا الفاجعة بلغ 13 شخصا**: [Link](https://ar.hibapress.com/details-568223.html)
+- **كارثة فالنسيا تؤجل مباراتين في كأس ملك إسبانيا**: [Link](https://www.kooora.com/?n=1364860)
+
+
 ### gerard darmon (N/A, Tue, 29 Oct 2024 16:40:00 -0700)
 
 - **En vidéo, les bilatérales Maroc-France (Laftit, Bourita, Mezzour, Khlie, 
