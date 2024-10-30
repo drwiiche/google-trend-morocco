@@ -1,3 +1,11 @@
+### man united (N/A, Wed, 30 Oct 2024 13:30:00 -0700)
+
+- **Manchester United 5-2 Leicester, Newcastle 2-0 Chelsea: Carabao Cup 
+clockwatch – live**: [Link](https://www.theguardian.com/football/live/2024/oct/30/manchester-united-leicester-brighton-liverpool-preston-arsenal-carabao-cup-clockwatch-live)
+- **🔴 LIVE: EFL Cup - Man Utd flying, Spurs ahead, Gakpo stars for Liverpool**: [Link](https://sports.yahoo.com/live-efl-cup-casemiro-nets-193500480.html)
+- **🔴 LIVE: EFL Cup - Man Utd 4-1 up, Spurs ahead, Newcastle dominate Chelsea**: [Link](https://onefootball.com/en/news/live-efl-cup-man-utd-4-1-up-spurs-ahead-newcastle-dominate-chelsea-40241541)
+
+
 ### aston villa (N/A, Wed, 30 Oct 2024 14:40:00 -0700)
 
 - **Aston Villa 1-2 Crystal Palace LIVE match updates as Kamada punishes Carlos 
