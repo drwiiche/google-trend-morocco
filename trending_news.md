@@ -1,3 +1,10 @@
+### gévora vs real betis (N/A, Thu, 31 Oct 2024 13:20:00 -0700)
+
+- **Betis Goes All Out for the Cup**: [Link](https://www.footboom1.com/en/news/football/2008174-betis-goes-all-out-for-the-cup)
+- **Preview: Gevora vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/gevora/copa-del-rey/preview/preview-gevora-vs-betis-prediction-team-news-lineups_556793.html)
+- **Pellegrini: "Every competition we play, we approach with the desire to win"**: [Link](https://www.footboom1.com/en/news/football/2005302-pellegrini-every-competition-we-play-we-approach-with-the-desire-to-win)
+
+
 ### ontiñena – las palmas (N/A, Thu, 31 Oct 2024 13:10:00 -0700)
 
 - **Ontiñena, los más ‘grandes’ de la Copa del Rey**: [Link](https://www.marca.com/futbol/copa-rey/2024/10/31/ontinena-grandes-copa-rey.html)
