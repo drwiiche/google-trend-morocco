@@ -1,3 +1,22 @@
+### mercure (N/A, Thu, 31 Oct 2024 02:20:00 -0700)
+
+- **Contamination au mercure : BLOOM révèle un scandale de santé publique d’une 
+ampleur inédite**: [Link](https://bloomassociation.org/contamination-au-mercure-bloom-revele-un-scandale-de-sante-publique-dune-ampleur-inedite/)
+- **Alerte consommateur : chaque boîte de thon analysée contient une substance 
+toxique**: [Link](https://www.futura-sciences.com/sante/actualites/alimentation-alerte-consommateur-chaque-boite-thon-analysee-contient-substance-toxique-117115/)
+- **Thon et mercure : la grande distribution doit retirer le poison de ses 
+rayons**: [Link](https://www.foodwatch.org/fr/sinformer/nos-campagnes/alimentation-et-sante/contaminants/bloom-thon-et-mercure-la-grande-distribution-doit-retirer-le-poison-de-ses-rayons)
+
+
+### raphinha (N/A, Thu, 31 Oct 2024 02:10:00 -0700)
+
+- **FC Barcelona Star Raphinha ‘Felt Like A Commodity’ And Considered Leaving 
+Club**: [Link](https://www.forbes.com/sites/tomsanderson/2024/10/31/fc-barcelona-star-raphinha-felt-like-a-commodity-and-considered-leaving-club/)
+- **Raphinha: I was sure Hansi Flick would fall in love with me at Barcelona**: [Link](https://www.barcablaugranes.com/2024/10/30/24283628/raphinha-i-was-sure-hansi-flick-would-fall-in-love-with-me-at-barcelona)
+- **Barcelona’s €60m-rated superstar thriving after Flick’s reassurance in 
+private chat**: [Link](https://barcauniversal.com/barcelonas-e60m-rated-superstar-thriving-after-flicks-reassurance-in-private-chat/)
+
+
 ### lalla khadija maroc (N/A, Thu, 31 Oct 2024 01:00:00 -0700)
 
 - **Emmanuel Macron en visite d’Etat au Maroc : des retrouvailles qui irritent 
