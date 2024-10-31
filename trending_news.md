@@ -1,3 +1,20 @@
+### إلياس المالكي (N/A, Thu, 31 Oct 2024 16:20:00 -0700)
+
+- **رفض السراح المؤقت لإلياس المالكي**: [Link](https://www.hespress.com/%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%B3%D8%B1%D8%A7%D8%AD-%D8%A7%D9%84%D9%85%D8%A4%D9%82%D8%AA-%D9%84%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-1457309.html)
+- **رضوان الرمضاني يعلق على قضية إلياس المالكي**: [Link](https://ar.hibapress.com/details-568591.html)
+- **اعتقال الستريمر المغربي المعروف إلياس المالكي وهذه قائمة التهم**: [Link](https://rue20.com/850155.html)
+
+
+### black friday (N/A, Thu, 31 Oct 2024 16:10:00 -0700)
+
+- **Best Buy Black Friday Sale: Early Discounts and Everything You Need to 
+Prepare**: [Link](https://www.cnet.com/deals/best-buy-black-friday-deals/)
+- **Shop these expert-picked Amazon early Black Friday deals before next 
+month’s sales**: [Link](https://www.cnn.com/cnn-underscored/deals/amazon-early-black-friday-deals-2024-10-30)
+- **When is Amazon's Cyber Monday 2024 sale? Here’s what you need to know about 
+the big retail event.**: [Link](https://www.aboutamazon.com/news/retail/when-is-cyber-monday-2024)
+
+
 ### roma (N/A, Thu, 31 Oct 2024 15:00:00 -0700)
 
 - **Roma, Dovbyk in panchina? Le ultime sul problema al ginocchio**: [Link](https://www.fantacalcio.it/news/calcio-italia/31_10_2024/roma-dovbyk-in-panchina-le-ultime-sul-problema-al-ginocchio-468413)
