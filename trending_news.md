@@ -1,3 +1,10 @@
+### الدوري الانجليزي (N/A, Wed, 30 Oct 2024 23:50:00 -0700)
+
+- **الخنوس يهز شباك مانشستر يونايتد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AE%D9%86%D9%88%D8%B3-%D9%8A%D9%87%D8%B2-%D8%B4%D8%A8%D8%A7%D9%83-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-1456918.html)
+- **فان نيستلروي: كاسيميرو مظلوم.. وما يُقال عنه غير صحيح**: [Link](https://www.kooora.com/?n=1364992)
+- **خماسية لمانشستر يونايتد في أول مباراة بعد رحيل تين هاغ وتأهل نيوكاسل وآرسنال**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AE%D9%85%D8%A7%D8%B3%D9%8A%D8%A9-%D9%84%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%B1%D8%AD%D9%8A%D9%84-%D8%AA%D9%8A%D9%86-%D9%87%D8%A7%D8%BA-%D9%88%D8%AA%D8%A3%D9%87%D9%84-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%88%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-2024-10-30)
+
+
 ### mercure (N/A, Thu, 31 Oct 2024 02:20:00 -0700)
 
 - **Contamination au mercure : BLOOM révèle un scandale de santé publique d’une 
