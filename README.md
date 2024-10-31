@@ -1,3 +1,11 @@
+### ontiñena – las palmas (N/A, Thu, 31 Oct 2024 13:10:00 -0700)
+
+- **Ontiñena, los más ‘grandes’ de la Copa del Rey**: [Link](https://www.marca.com/futbol/copa-rey/2024/10/31/ontinena-grandes-copa-rey.html)
+- **La pista que podría estar dando Diego Martínez con McBurnie**: [Link](https://www.futbolfantasy.com/laliga/noticias/121408-la-pista-que-podria-estar-dando-diego-martinez-con-mcburnie)
+- **Ontiñena avisa: “Se han guardado para el Atlético y creo que se han 
+equivocado”**: [Link](https://www.aragondigital.es/articulo/deportes/ontinena-avisa-han-guardado-atletico-creo-que-han-equivocado/20241031205700893383.html)
+
+
 ### roma – torino (N/A, Thu, 31 Oct 2024 13:00:00 -0700)
 
 - **Roma, Dovbyk out con il Torino: le ultime**: [Link](https://www.fantacalcio.it/news/calcio-italia/31_10_2024/roma-dubbi-pellegrini-e-dovbyk-per-il-torino-le-ultime-468436)
