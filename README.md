@@ -1,3 +1,11 @@
+### carlos alcaraz (N/A, Thu, 31 Oct 2024 12:40:00 -0700)
+
+- **La victoria de Humbert presenta un partido infernal para Alcaraz en los 
+octavos de París-Bercy**: [Link](https://www.marca.com/tenis/masters-1000-paris/2024/10/30/67223ee0e2704e0e2d8b456d.html)
+- **Todo lo que debes saber del tenis en directo del 31/10/24**: [Link](https://www.flashscore.es/noticias/tenis-paris-atp-individuales-tenis-en-directo-alcaraz-juega-con-ugo-humbert-en-el-open-de-paris/GM38szht/)
+- **Alcaraz, declarado ya enemigo nº 1 en el Masters 1000 ATP de París**: [Link](https://www.mundodeportivo.com/tenis/20241030/1002343921/alcaraz-declarado-enemigo-n-1-masters-1000-atp-paris.html)
+
+
 ### gévora – betis (N/A, Thu, 31 Oct 2024 12:30:00 -0700)
 
 - **La historia de Dani y un corazón dividido entre Gévora y Betis**: [Link](https://www.diariodesevilla.es/realbetis/gane-contento-historia-dani-betis-gevora-copa-del-rey_0_2002689689.html)
