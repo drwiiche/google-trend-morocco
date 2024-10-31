@@ -1,3 +1,19 @@
+### al ittihad – al-ahli saudi (N/A, Thu, 31 Oct 2024 10:10:00 -0700)
+
+- **Fabinho admits it's 'not nice' facing former Liverpool team-mate after 
+being forced to apologise**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/fabinho-admits-its-not-nice-30264922)
+- **Preview: Al Ittihad vs. Al-Ahli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittihad/preview/preview-al-ittihad-vs-al-ahli-prediction-team-news-lineups_556794.html)
+- **Casey: I love playing in a stadium full of fans**: [Link](https://www.ysscores.com/en/news/6255653/Casey:-I-love-playing-in-a-stadium-full-of-fans)
+
+
+### genoa – fiorentina (N/A, Thu, 31 Oct 2024 10:10:00 -0700)
+
+- **Preview: Genoa vs. Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/genoa/preview/preview-genoa-vs-fiorentina-prediction-team-news-lineups_556738.html)
+- **ACF Fiorentina vs. Genoa CFC Prediction, Picks, Live Odds - October 31**: [Link](https://www.bleachernation.com/picks/2024/10/31/acf-fiorentina-vs-genoa-cfc-prediction-picks-live-odds-october-31/)
+- **Genoa vs Fiorentina Prediction, 10/31/2024 Serie A Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/genoa-vs-fiorentina-prediction-10-31-2024-serie-a-soccer-pick-tips-and-odds.html)
+
+
 ### حمزة بورزوق (N/A, Thu, 31 Oct 2024 09:20:00 -0700)
 
 - **إلياس المالكي‎ "ينهار" بمحكمة الجديدة**: [Link](https://www.hespress.com/%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D9%8A%D9%86%D9%87%D8%A7%D8%B1-%D8%A8%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-1457104.html)
