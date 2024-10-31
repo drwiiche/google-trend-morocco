@@ -1,3 +1,13 @@
+### lalla khadija maroc (N/A, Thu, 31 Oct 2024 01:00:00 -0700)
+
+- **Emmanuel Macron en visite d’Etat au Maroc : des retrouvailles qui irritent 
+l’Algérie**: [Link](https://www.lemonde.fr/international/article/2024/10/28/l-ombre-de-l-algerie-sur-les-retrouvailles-franco-marocaines_6362393_3210.html)
+- **En vidéo, les bilatérales Maroc-France (Laftit, Bourita, Mezzour, Khlie, 
+Bensaid et Zidane...)**: [Link](https://medias24.com/2024/10/29/en-video-les-bilaterales-maroc-france-laftit-bourita-mezzour-khlie-bensaid-et-zidane/)
+- **Paris et Rabat ont noué "un partenariat renforcé" contre "l'immigration 
+clandestine"**: [Link](https://www.france24.com/fr/afrique/20241030-paris-et-rabat-ont-nou%C3%A9-un-partenariat-renforc%C3%A9-contre-l-immigration-clandestine)
+
+
 ### الطقس اليوم (N/A, Thu, 31 Oct 2024 00:00:00 -0700)
 
 - **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-11-1456670.html)
