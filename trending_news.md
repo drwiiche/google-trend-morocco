@@ -1,3 +1,12 @@
+### emmanuel macron au maroc (N/A, Thu, 31 Oct 2024 14:10:00 -0700)
+
+- **Après la France, que faire?**: [Link](https://fr.le360.ma/monde/apres-la-france-que-faire_S7UBG4N3ZZBMTK5MX7S6SU73LA/)
+- **« Le discours d’Emmanuel Macron à Rabat érige le cas marocain en bon 
+exemple de mémoire de la colonisation »**: [Link](https://www.lemonde.fr/afrique/article/2024/10/31/le-discours-d-emmanuel-macron-a-rabat-erige-le-cas-marocain-en-bon-exemple-de-memoire-de-la-colonisation_6369453_3212.html)
+- **EXCLUSIF. Un entretien avec Mohamed Benchaâboun : Accélérateur 
+d'investissements Maroc-France et FM6I**: [Link](https://medias24.com/2024/10/30/exclusif-un-entretien-avec-c-accelerateur-dinvestissement-maroc-france-et-fm6i/)
+
+
 ### gévora vs real betis (N/A, Thu, 31 Oct 2024 13:20:00 -0700)
 
 - **Betis Goes All Out for the Cup**: [Link](https://www.footboom1.com/en/news/football/2008174-betis-goes-all-out-for-the-cup)
