@@ -1,3 +1,11 @@
+### roma (N/A, Thu, 31 Oct 2024 15:00:00 -0700)
+
+- **Roma, Dovbyk in panchina? Le ultime sul problema al ginocchio**: [Link](https://www.fantacalcio.it/news/calcio-italia/31_10_2024/roma-dovbyk-in-panchina-le-ultime-sul-problema-al-ginocchio-468413)
+- **Torino, la rabbia di Vanoli contro lo staff medico: ecco cos'è successo**: [Link](https://www.calciomercato.com/news/torino-la-rabbia-di-vanoli-contro-lo-staff-medico-ecco-cose-succ-54412)
+- **Dybala eguaglia Totti: nessuno in Serie A ha segnato più di loro fuori dal 
+weekend**: [Link](https://www.forzaroma.info/news-as-roma/dybala-pareggia-totti-nessuno-in-serie-a-ha-segnato-piu-di-loro-fuori-dal-weekend/)
+
+
 ### emmanuel macron au maroc (N/A, Thu, 31 Oct 2024 14:10:00 -0700)
 
 - **Après la France, que faire?**: [Link](https://fr.le360.ma/monde/apres-la-france-que-faire_S7UBG4N3ZZBMTK5MX7S6SU73LA/)
