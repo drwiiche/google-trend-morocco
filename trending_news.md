@@ -1,3 +1,8 @@
+### al shabab – al wehda (N/A, Thu, 31 Oct 2024 07:30:00 -0700)
+
+- **Al-Shabab vs Al-Wehda Lineups, prediction, betting tips & odds**: [Link](https://khelnow.com/football/world-football-al-shabab-vs-al-wehda-prediction-202410)
+
+
 ### inondations espagne valence (N/A, Thu, 31 Oct 2024 02:30:00 -0700)
 
 - **En direct, inondations en Espagne : « Pour l’instant, il n’est pas possible 
