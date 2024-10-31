@@ -1,3 +1,10 @@
+### man city (N/A, Wed, 30 Oct 2024 13:40:00 -0700)
+
+- **Match report: Newcastle 2-0 Chelsea | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/match-report-newcastle-0-2-chelsea)
+- **Carabao Cup quarter-final draw information**: [Link](https://www.tottenhamhotspur.com/news/2024/october/carabao-cup-quarter-final-draw-information/)
+- **Carabao Cup draw in full after quarter-finalists learn next opponents**: [Link](https://www.independent.co.uk/sport/football/carabao-cup-quarter-final-draw-live-man-utd-liverpool-arsenal-b2638276.html)
+
+
 ### chelsea (N/A, Wed, 30 Oct 2024 14:50:00 -0700)
 
 - **Chelsea fans’ preferred lineup against Newcastle: Cucurella at right back?**: [Link](https://weaintgotnohistory.sbnation.com/2024/10/30/24283787/chelsea-fans-preferred-lineup-against-newcastle-cucurella-at-right-back)
