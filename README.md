@@ -1,3 +1,17 @@
+### الاتحاد ضد الأهلي (N/A, Thu, 31 Oct 2024 12:10:00 -0700)
+
+- **مباشر بعد قليل.. ديربي جدة بين الاتحاد والأهلي لحظة بلحظة**: [Link](https://www.kooora.com/?n=1365049)
+- **محرز وعوار يشعلان قمة الدوري السعودي بين الاتحاد والأهلي**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D8%AD%D8%B1%D8%B2-%D9%88%D8%B9%D9%88%D8%A7%D8%B1-%D9%8A%D8%B4%D8%B9%D9%84%D8%A7%D9%86-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A)
+- **محرز يتحدى ديابي في التشكيل المتوقع لديربي جدة**: [Link](https://www.kooora.com/?n=1364959)
+
+
+### fiorentina (N/A, Thu, 31 Oct 2024 12:00:00 -0700)
+
+- **Genoa-Fiorentina, le formazioni ufficiali**: [Link](https://www.fantacalcio.it/news/calcio-italia/31_10_2024/genoa-fiorentina-formazioni-ufficiali-468425)
+- **FACCENDA A RFV, Comuzzo non mi somiglia ma è forte**: [Link](https://www.firenzeviola.it/primo-piano/faccenda-a-rfv-comuzzo-non-mi-somiglia-ma-e-forte-436211)
+- **I convocati viola per il Genoa: Kean no, Comuzzo e Mandragora sì**: [Link](https://www.virgilio.it/italia/firenze/notizielocali/i_convocati_viola_per_il_genoa_kean_no_comuzzo_e_mandragora_s_-74218970.html)
+
+
 ### poupette kenza (N/A, Thu, 31 Oct 2024 11:20:00 -0700)
 
 - **Après quatre mois de détention, l’influenceuse Poupette Kenza vient de 
