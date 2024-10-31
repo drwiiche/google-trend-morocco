@@ -1,3 +1,10 @@
+### حمزة بورزوق (N/A, Thu, 31 Oct 2024 09:20:00 -0700)
+
+- **إلياس المالكي‎ "ينهار" بمحكمة الجديدة**: [Link](https://www.hespress.com/%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D9%8A%D9%86%D9%87%D8%A7%D8%B1-%D8%A8%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-1457104.html)
+- **الدولي السابق حمزة بورزوق يتنازل لإلياس المالكي**: [Link](https://www.akhbarona.com/society/394815.html)
+- **رضوان الرمضاني يعلق على قضية إلياس المالكي**: [Link](https://ar.hibapress.com/details-568591.html)
+
+
 ### alstom maroc (N/A, Thu, 31 Oct 2024 04:30:00 -0700)
 
 - **Zoom sur le "TGV M" que compte fournir Alstom à l'ONCF**: [Link](https://fr.hespress.com/393477-zoom-sur-le-tgv-m-que-compte-fournir-alstom-a-loncf.html)
