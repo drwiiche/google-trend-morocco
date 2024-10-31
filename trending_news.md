@@ -1,3 +1,14 @@
+### inondations espagne valence (N/A, Thu, 31 Oct 2024 02:30:00 -0700)
+
+- **En direct, inondations en Espagne : « Pour l’instant, il n’est pas possible 
+de donner le nombre de disparus », déclare la ministre de la défense 
+espagnole**: [Link](https://www.lemonde.fr/planete/live/2024/10/31/en-direct-inondations-en-espagne-pour-l-instant-il-n-est-pas-possible-de-donner-le-nombre-de-disparus-declare-la-ministre-de-la-defense-espagnole_6366811_3244.html)
+- **«Une vague noire est apparue et la maison a disparu» : Letur, petit village 
+traumatisé par les inondations en Espagne**: [Link](https://www.lefigaro.fr/international/inondations-en-espagne-et-d-un-seul-coup-tout-etait-couvert-d-eau-et-de-boue-de-branches-et-de-troncs-20241031)
+- **"Elle s'était accrochée à un panneau" : le témoignage des Français pris au 
+piège des inondations en Espagne**: [Link](https://www.tf1info.fr/international/video-reportage-tf1-des-gens-coinces-appelaient-a-l-aide-des-francais-pris-au-piege-des-inondations-en-espagne-temoignent-2331473.html)
+
+
 ### الدوري الانجليزي (N/A, Wed, 30 Oct 2024 23:50:00 -0700)
 
 - **الخنوس يهز شباك مانشستر يونايتد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AE%D9%86%D9%88%D8%B3-%D9%8A%D9%87%D8%B2-%D8%B4%D8%A8%D8%A7%D9%83-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-1456918.html)
