@@ -1,3 +1,45 @@
+### poupette kenza (N/A, Thu, 31 Oct 2024 11:20:00 -0700)
+
+- **Après quatre mois de détention, l’influenceuse Poupette Kenza vient de 
+sortir de prison**: [Link](https://www.leparisien.fr/faits-divers/apres-quatre-mois-de-detention-linfluenceuse-poupette-kenza-vient-de-sortir-de-prison-31-10-2024-OJAJTLP3TNEE5CWO243DHHPMHY.php)
+- **Rouen. Kenza Benchrif, alias Poupette Kenza, libérée sous contrôle 
+judiciaire**: [Link](https://www.tendanceouest.com/actualite-423542-rouen-kenza-benchrif-alias-poupette-kenza-liberee-sous-controle-judiciaire)
+- **Poupette Kenza libérée de prison : la surprenante annonce qui agite la Toile**: [Link](https://www.public.fr/poupette-kenza-liberee-de-prison-la-surprenante-annonce-qui-agite-la-toile)
+
+
+### fc jove español san vicente – real sociedad (N/A, Thu, 31 Oct 2024 11:10:00 -0700)
+
+- **La Federación no descarta fijar el Jove - Real para la semana del parón**: [Link](https://www.noticiasdegipuzkoa.eus/reala/2024/10/31/federacion-jove-real-sociedad-copa-8874226.html)
+- **Partido aplazado**: [Link](https://www.realsociedad.eus/es/noticias/detalle/partido-aplazado-2)
+- **El calendario de la Real Sociedad se mantiene hasta el partido del Barcelona**: [Link](https://www.diariovasco.com/real-sociedad/calendario-real-sociedad-mantiene-partido-barcelona-20241031183238-nt.html)
+
+
+### vic vs atlético madrid (N/A, Thu, 31 Oct 2024 11:10:00 -0700)
+
+- **Copa del Rey | La UE Vic, ante el partido de su vida**: [Link](https://www.sport.es/es/noticias/copa-del-rey/ue-vic-partido-vida-110918488)
+- **El Atlético se cuela en la cuna del hockey, el curioso 'scouting' del Vic 
+para esta Copa**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20241031/1002344359/atletico-cuela-cuna-hockey-curioso-scouting-vic-copa.html)
+- **Onda Deportiva Madrid 31/10/24**: [Link](https://www.ondacero.es/emisoras/comunidad-madrid/madrid/audios-podcast/onda-deportiva-madrid/onda-deportiva-madrid-311024_2024103167237b86d058410001ca8227.html)
+
+
+### san tirso – espanyol (N/A, Thu, 31 Oct 2024 11:10:00 -0700)
+
+- **El San Tirso SD, un equipo de aldea que quiere ser un 'hueso' para el 
+Espanyol: «Nos pegan muchos palos por nuestro estilo**: [Link](https://www.relevo.com/futbol/copa-del-rey/tirso-equipo-aldea-quiere-hueso-20241031071535-nt.html)
+- **Fabio Rodríguez: “Lo más difícil y doloroso para mí es decidir quién se 
+queda sin jugar”**: [Link](https://www.dxtcampeon.com/articulo/o-noso-futbol/fabio-rodriguez-dificil-doloroso-decidir-quien-queda-jugar-5052569)
+- **La diversión de la Copa del Rey**: [Link](https://el1900.com/diversion-copa-rey-espanyol-san-tirso/)
+
+
+### coupe du roi (N/A, Thu, 31 Oct 2024 10:50:00 -0700)
+
+- **DIRECT. Inondations en Espagne: le bilan provisoire s'alourdit à 158 morts**: [Link](https://www.bfmtv.com/international/europe/espagne/direct-inondations-en-espagne-au-moins-95-morts-trois-jours-de-deuil-national-decretes_LN-202410310091.html)
+- **Le Maroc légèrement affecté par la dépression atmosphérique “Dana” qui 
+touche l'Espagne**: [Link](https://medias24.com/2024/10/31/le-maroc-legerement-affecte-par-la-depression-atmospherique-dana-qui-touche-lespagne/)
+- **"Elle s'était accrochée à un panneau" : le témoignage des Français pris au 
+piège des inondations en Espagne**: [Link](https://www.tf1info.fr/international/video-reportage-tf1-des-gens-coinces-appelaient-a-l-aide-des-francais-pris-au-piege-des-inondations-en-espagne-temoignent-2331473.html)
+
+
 ### vic ضد أتلتيكو مدريد (N/A, Thu, 31 Oct 2024 10:30:00 -0700)
 
 - **جدول ونتائج مباريات كأس ملك إسبانيا 2024-2025 .. والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1364766)
