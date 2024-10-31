@@ -1,3 +1,10 @@
+### roma – torino (N/A, Thu, 31 Oct 2024 13:00:00 -0700)
+
+- **Roma, Dovbyk out con il Torino: le ultime**: [Link](https://www.fantacalcio.it/news/calcio-italia/31_10_2024/roma-dubbi-pellegrini-e-dovbyk-per-il-torino-le-ultime-468436)
+- **SERIE A, Le formazioni delle due gare delle 20.45**: [Link](https://www.firenzeviola.it/news/serie-a-le-formazioni-delle-due-gare-delle-20-45-436235)
+- **Le ultime dall'Olimpico: gioca Gineitis, fuori Vlasic**: [Link](https://www.toro.it/toro/partite/ultime-olimpico-roma-torino-24-25/1363488/)
+
+
 ### carlos alcaraz (N/A, Thu, 31 Oct 2024 12:40:00 -0700)
 
 - **La victoria de Humbert presenta un partido infernal para Alcaraz en los 
