@@ -1,3 +1,12 @@
+### halloween (N/A, Thu, 31 Oct 2024 10:40:00 -0700)
+
+- **See Photos of Hoda Kotb, Jenna Bush Hager, Salma Hayek, Jimmy Fallon and 
+More**: [Link](https://people.com/star-tracks-thursday-october-31-2024-new-celebrity-photos-updated-daily-8737238)
+- **TODAY Halloween 2024: All The Costume Reveals and Best Moments**: [Link](https://www.today.com/life/holidays/live-blog/2024-today-show-halloween-costume-reveal-rcna177634)
+- **'Today' show channels 'Titanic' and Mrs. Doubtfire: See bold daytime TV 
+host costumes**: [Link](https://www.usatoday.com/story/entertainment/tv/2024/10/31/halloween-2024-costumes-morning-daytime-talk-shows/75963470007/)
+
+
 ### al ittihad – al-ahli saudi (N/A, Thu, 31 Oct 2024 10:10:00 -0700)
 
 - **Fabinho admits it's 'not nice' facing former Liverpool team-mate after 
