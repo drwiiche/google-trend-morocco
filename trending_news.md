@@ -1,3 +1,19 @@
+### alstom maroc (N/A, Thu, 31 Oct 2024 04:30:00 -0700)
+
+- **Zoom sur le "TGV M" que compte fournir Alstom à l'ONCF**: [Link](https://fr.hespress.com/393477-zoom-sur-le-tgv-m-que-compte-fournir-alstom-a-loncf.html)
+- **n°1005. Alstom fournira les TGV, qui pour les autres trains dont a besoin 
+l’ONCF ?**: [Link](https://ledesk.ma/enclair/alstom-fournira-les-tgv-qui-pour-les-autres-trains-dont-a-besoin-loncf/)
+- **Contrat avec Alstom, marchés attribués, budget mobilisé : les détails de 
+Rabie Khlie sur la phase II de la LGV**: [Link](https://medias24.com/2024/10/30/contrat-avec-alstom-marches-attribues-budget-mobilise-les-details-de-rabie-khlie-sur-la-phase-ii-de-la-lgv/)
+
+
+### مسلسل ليلى (N/A, Wed, 30 Oct 2024 17:10:00 -0700)
+
+- **كم عدد حلقات المسلسل التركي ليلى مع قصة المسلسل الجديد؟ إثارة وانتقام**: [Link](https://almashhad.com/article/459217420284850-entertainment/419885144473962-%D9%83%D9%85-%D8%B9%D8%AF%D8%AF-%D8%AD%D9%84%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D9%84%D9%8A%D9%84%D9%89-%D9%85%D8%B9-%D9%82%D8%B5%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A5%D8%AB%D8%A7%D8%B1%D8%A9-%D9%88%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%85/)
+- **بالفيديو| جونجا فوصلاتري تتصدر برقصة النصر في مسلسل "ليلى"**: [Link](https://www.foochia.com/celebrities/wfdb3q7)
+- **تفاصيل مسلسل ليلى التركي.. عدد الحلقات والقصة والأبطال**: [Link](https://mojazanba.com/misc/30440/2024/10/28/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D9%84%D9%8A%D9%84%D9%89/)
+
+
 ### sorec (N/A, Thu, 31 Oct 2024 06:40:00 -0700)
 
 
