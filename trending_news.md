@@ -1,3 +1,10 @@
+### prix gasoil maroc (N/A, Fri, 1 Nov 2024 07:00:00 -0700)
+
+- **Carburants: à quoi faut-il s’attendre?**: [Link](https://fr.le360.ma/economie/carburants-a-quoi-faut-il-sattendre_5MGU7E6JWFCAPHZS4DCBHZRV7A/)
+- **Revue de presse de ce vendredi 1er novembre 2024**: [Link](https://fr.hespress.com/393908-revue-de-presse-de-ce-vendredi-1er-novembre-2024.html)
+- **Baisse de 20 centimes du prix du gasoil, stabilité pour l’essence**: [Link](https://lematin.ma/economie/baisse-de-20-centimes-du-prix-du-gasoil-stabilite-pour-lessence/249671)
+
+
 ### المسيرة الخضراء (N/A, Fri, 1 Nov 2024 06:20:00 -0700)
 
 
