@@ -1,3 +1,10 @@
+### turf (N/A, Fri, 1 Nov 2024 07:50:00 -0700)
+
+- **Quinté du samedi 2 novembre 2024 à Compiègne : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-samedi-2-novembre-2024-a-compiegne-les-pronostics-7900435476)
+- **Quinté+ du samedi 2 novembre à Compiègne : Cuncerto, en avant la musique**: [Link](https://www.equidia.fr/articles/quinte/template-article-quinte-du-samedi-02-novembre)
+- **Quinté Plus PMU : Cuncerto doit pouvoir confirmer**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-cuncerto-doit-pouvoir-confirmer-125888.html)
+
+
 ### le meilleur pâtissier (N/A, Fri, 1 Nov 2024 07:30:00 -0700)
 
 - **"Le Meilleur Pâtissier" 2024 : pour Inès, "le temps est le pire ennemi" 
