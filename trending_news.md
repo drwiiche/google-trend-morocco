@@ -1,3 +1,11 @@
+### championnat d'arabie saoudite (N/A, Fri, 1 Nov 2024 11:20:00 -0700)
+
+- **Steven Gerrard scandalise l’Arabie saoudite**: [Link](https://www.footmercato.net/a7916012677525166639-steven-gerrard-scandalise-larabie-saoudite)
+- **Steven Gerrard s'engage à se battre en tant qu'entraîneur d'Al-Ettifaq 
+malgré les critiques**: [Link](https://www.footboom1.com/fr/news/football/2014007-steven-gerrard-pledges-to-battle-on-as-al-ettifaq-manager-amidst-criticism)
+- **Steven Gerrard, fin de l’aventure saoudienne ?**: [Link](https://www.football.fr/etranger/arabie-saoudite/steven-gerrard-fin-de-laventure-saoudienne-722054.html)
+
+
 ### ssc (N/A, Fri, 1 Nov 2024 11:00:00 -0700)
 
 - **Seven Advance to Finals in Annual SSC Fight Tonight Competition**: [Link](https://www.ssc.spaceforce.mil/Newsroom/Article-Display/Article/3949459/seven-advance-to-finals-in-annual-ssc-fight-tonight-competition)
