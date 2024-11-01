@@ -1,3 +1,11 @@
+### love is blind habibi reunion (N/A, Fri, 1 Nov 2024 02:30:00 -0700)
+
+- **When will Love is Blind: Habibi Reunion air? Confirmed release date, 
+trailer, and more details revealed**: [Link](https://www.soapcentral.com/shows/when-will-love-blind-habibi-reunion-air-confirmed-release-date-trailer-details-revealed)
+- **Love Is Blind Habibi Season 1: Which Couples Are Still Together?**: [Link](https://screenrant.com/love-is-blind-habibi-season-1-couples-still-together/)
+- **Love is Blind Habibi reunion: Full relationship breakdowns and release date**: [Link](https://www.thenationalnews.com/arts-culture/film-tv/2024/10/28/love-is-blind-habibi-reunion-date/)
+
+
 ### novembre (N/A, Fri, 1 Nov 2024 01:00:00 -0700)
 
 - **Les prévisions météo pour ce vendredi 1er novembre**: [Link](https://medias24.com/2024/11/01/les-previsions-meteo-pour-ce-vendredi-1er-novembre/)
