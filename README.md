@@ -1,3 +1,11 @@
+### résolution onu sahara occidental (N/A, Fri, 1 Nov 2024 02:30:00 -0700)
+
+- **n°1007. Sahara : l’Algérie mise en échec au Conseil de sécurité de l’ONU**: [Link](https://ledesk.ma/enclair/sahara-lalgerie-mise-en-echec-au-conseil-de-securite-de-lonu/)
+- **Résolution 2756 : Victoire de la diplomatie marocaine (Politologue)**: [Link](https://fr.hespress.com/393909-resolution-2756-victoire-de-la-diplomatie-marocaine-el-ouardi.html)
+- **Malgré une tentative de torpillage de l’Algérie, le mandat de la Minurso 
+maintenu tel quel**: [Link](https://mobile.telquel.ma/2024/11/01/1902141_1902141)
+
+
 ### love is blind habibi reunion (N/A, Fri, 1 Nov 2024 02:30:00 -0700)
 
 - **When will Love is Blind: Habibi Reunion air? Confirmed release date, 
