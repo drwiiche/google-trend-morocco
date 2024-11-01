@@ -1,3 +1,18 @@
+### nasr (N/A, Fri, 1 Nov 2024 12:00:00 -0700)
+
+- **Khalifa Al-Dosari will miss Al-Hilal against Al-Nasr**: [Link](https://www.ysscores.com/en/news/6331503/Khalifa-Al-Dosari-will-miss-Al-Hilal-against-Al-Nasr)
+- **Neves to miss Capital Derby**: [Link](https://onefootball.com/en/news/neves-to-miss-capital-derby-40214202)
+- **Revealing the duration of Neves’ absence from Al Hilal**: [Link](https://www.ysscores.com/en/news/5960357/Revealing-the-duration-of-Neves%E2%80%99-absence-from-Al-Hilal)
+
+
+### leverkusen – stuttgart (N/A, Fri, 1 Nov 2024 11:50:00 -0700)
+
+- **Preview: Bayer Leverkusen vs. Stuttgart - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/preview-bpoint-leverkusen-vs-stuttgart-prediction-team-news-lineups_556867.html)
+- **Alonso calls for defensive improvement**: [Link](https://www.beinsports.com/en-nz/football/bundesliga/articles-video/alonso-calls-for-defensive-improvement-2024-10-31)
+- **All about the next opponent: interview with Leverkusen expert Sebastian 
+Bergmann**: [Link](https://onefootball.com/fr/news/all-about-the-next-opponent-interview-with-leverkusen-expert-sebastian-bergmann-40249090)
+
+
 ### موناكو ضد أنجيه (N/A, Fri, 1 Nov 2024 11:40:00 -0700)
 
 - **معلقو مباريات الجولة العاشرة في الدوري الفرنسي**: [Link](https://hihi2.com/2024/11/01/p2916619.html)
