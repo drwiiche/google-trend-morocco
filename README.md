@@ -1,3 +1,18 @@
+### deportivo alavés – majorque (N/A, Fri, 1 Nov 2024 12:10:00 -0700)
+
+- **Pronostic Alavés - Majorque, Liga**: [Link](https://www.sportytrader.com/pronostics/alaves-majorque-224322/)
+- **Jagoba Arrasate : 'Demain, il y aura des changements, nous allons injecter 
+de la faim et de la fraîcheur'**: [Link](https://www.footboom1.com/fr/news/football/2009229-jagoba-arrasate-tomorrow-there-will-be-changes-we-will-inject-hunger-and-freshness)
+- **DIRECT. Alavés-Majorque (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/alaves-majorque-live/657394)
+
+
+### naziha belkeziz bcp (N/A, Fri, 1 Nov 2024 10:10:00 -0700)
+
+- **Naziha Belkeziz sera nommée PDG du Groupe BCP**: [Link](https://lematin.ma/economie/naziha-belkeziz-sera-nommee-pdg-du-groupe-bcp/249753)
+- **Groupe BCP : Naziha BELKEZIZ bientôt nommée PDG de la banque**: [Link](https://boursenews.ma/article/marches/Naziha-BELKEZIZ-BCP)
+- **Naziha Belkeziz, première femme à la tête du groupe BCP**: [Link](https://www.infomediaire.net/naziha-belkeziz-premiere-femme-a-la-tete-du-groupe-bcp/)
+
+
 ### nasr (N/A, Fri, 1 Nov 2024 12:00:00 -0700)
 
 - **Khalifa Al-Dosari will miss Al-Hilal against Al-Nasr**: [Link](https://www.ysscores.com/en/news/6331503/Khalifa-Al-Dosari-will-miss-Al-Hilal-against-Al-Nasr)
