@@ -1,3 +1,18 @@
+### walid regragui (N/A, Fri, 1 Nov 2024 13:00:00 -0700)
+
+- **Lions de l'Atlas : on connait les dates des rencontres face au Gabon et au 
+Lesotho**: [Link](https://fr.hespress.com/394058-lions-de-latlas-on-connait-les-dates-des-rencontres-face-au-gabon-et-au-lesotho.html)
+- **Un revenant dans l’équipe du Maroc**: [Link](https://www.bladi.net/revenant-equipe-maroc,111322.html)
+- **Walid Regragui se tourne vers la Botola**: [Link](https://www.lesiteinfo.com/sport/631451-walid-regragui-se-tourne-vers-la-botola.html)
+
+
+### ترتيب الدوري السعودي (N/A, Fri, 1 Nov 2024 12:50:00 -0700)
+
+- **ديربي جدة يفي بالوعود.. قاضية بلان تضع يايسله في مهب الريح**: [Link](https://www.kooora.com/?n=1365195&o=ncde)
+- **مباشر.. مباراة الاتحاد ضد الأهلي (1-0) في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2024/10/31/al-ittihad-vs-al-ahly?update=7023020)
+- **ماتياس يايسله: الأهلي يعاني في دوري روشن هذا الموسم**: [Link](https://hihi2.com/2024/11/01/p2914820.html)
+
+
 ### monaco fc (N/A, Fri, 1 Nov 2024 12:30:00 -0700)
 
 - **Preview: Monaco vs. Angers - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/as-monaco/preview/preview-monaco-vs-angers-prediction-team-news-lineups_556852.html)
