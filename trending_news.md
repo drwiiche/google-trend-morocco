@@ -1,3 +1,9 @@
+### ssc (N/A, Fri, 1 Nov 2024 11:00:00 -0700)
+
+- **Seven Advance to Finals in Annual SSC Fight Tonight Competition**: [Link](https://www.ssc.spaceforce.mil/Newsroom/Article-Display/Article/3949459/seven-advance-to-finals-in-annual-ssc-fight-tonight-competition)
+- **SSC swims over Ogemaw**: [Link](https://www.arenacindependent.com/sports/2024/11/01/ssc-swims-over-ogemaw/)
+
+
 ### monaco – angers (N/A, Fri, 1 Nov 2024 10:20:00 -0700)
 
 - **Ascenseur, objectif, système… Tout savoir sur le SCO d'Angers**: [Link](https://www.asmonaco.com/ascenseur-objectif-dujeux-tout-savoir-sur-angers/)
