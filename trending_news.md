@@ -1,3 +1,11 @@
+### spirou (N/A, Fri, 1 Nov 2024 13:30:00 -0700)
+
+- **"Spirou": une BD avec des dessins racistes retirée des librairies**: [Link](https://www.bfmtv.com/people/bandes-dessinees/spirou-une-bd-avec-des-dessins-racistes-retiree-des-librairies_AN-202410310419.html)
+- **Un album de Spirou retiré de la vente : Dupuis mis sous pression par les 
+réseaux sociaux**: [Link](https://www.lesoir.be/633284/article/2024-11-01/un-album-de-spirou-retire-de-la-vente-dupuis-mis-sous-pression-par-les-reseaux)
+- **Spirou, un album raciste ?**: [Link](https://actualitte.com/newsletter/1826/spirou-un-album-raciste)
+
+
 ### walid regragui (N/A, Fri, 1 Nov 2024 13:00:00 -0700)
 
 - **Lions de l'Atlas : on connait les dates des rencontres face au Gabon et au 
