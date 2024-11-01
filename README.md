@@ -1,3 +1,27 @@
+### banque populaire maroc (N/A, Fri, 1 Nov 2024 01:10:00 -0700)
+
+- **Groupe BCP : Naziha BELKEZIZ bientôt nommée PDG de la banque**: [Link](https://boursenews.ma/article/marches/Naziha-BELKEZIZ-BCP)
+- **Naziha Belkeziz sera nommée PDG du Groupe BCP**: [Link](https://lematin.ma/economie/naziha-belkeziz-sera-nommee-pdg-du-groupe-bcp/249753)
+- **Naziha Belkeziz, première femme à la tête du groupe BCP**: [Link](https://www.infomediaire.net/naziha-belkeziz-premiere-femme-a-la-tete-du-groupe-bcp/)
+
+
+### وزارة الأوقاف والشؤون الإسلامية (N/A, Thu, 31 Oct 2024 22:20:00 -0700)
+
+- **لجنة تسائل مندوبية الأوقاف بتزنيت**: [Link](https://www.hespress.com/%D9%84%D8%AC%D9%86%D8%A9-%D8%AA%D8%B3%D8%A7%D8%A6%D9%84-%D9%85%D9%86%D8%AF%D9%88%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%A8%D8%AA%D8%B2%D9%86%D9%8A%D8%AA-1456081.html)
+- **لجنة تسائل مندوبية الأوقاف بتزنيت**: [Link](https://www.msn.com/ar-eg/news/other/%D9%84%D8%AC%D9%86%D8%A9-%D8%AA%D8%B3%D8%A7%D8%A6%D9%84-%D9%85%D9%86%D8%AF%D9%88%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%A8%D8%AA%D8%B2%D9%86%D9%8A%D8%AA/ar-AA1tbClW)
+- **محكمة النقض تنتصر لورثة الملولي ضد وزارة الأوقاف في الملف العقاري الثالث 
+بمدينة زاكورة**: [Link](https://anfaspress.com/news/voir/141241-2024-10-25-10-03-52)
+
+
+### jumia maroc (N/A, Thu, 31 Oct 2024 15:20:00 -0700)
+
+- **Le Black Friday Jumia du 1er au 29 novembre**: [Link](https://lematin.ma/lifestyle/le-black-friday-jumia-du-1er-au-29-novembre/249700)
+- **Libre Tribune – E-commerce au Maroc : Avantages, risques et besoin de 
+régulation**: [Link](https://lnt.ma/libre-tribune-e-commerce-au-maroc-avantages-risques-et-besoin-de-regulation/)
+- **Jumia: Le Black Friday de retour, avec des remises jusqu'à 80% partout en 
+Côte d’Ivoire**: [Link](https://www.abidjanshow.com/news/actu-for-men/276741-jumia-le-black-friday-de-retour-avec-des-remises-jusqua-80-partout-en-cote-divoire)
+
+
 ### résolution onu sahara occidental (N/A, Fri, 1 Nov 2024 02:30:00 -0700)
 
 - **n°1007. Sahara : l’Algérie mise en échec au Conseil de sécurité de l’ONU**: [Link](https://ledesk.ma/enclair/sahara-lalgerie-mise-en-echec-au-conseil-de-securite-de-lonu/)
