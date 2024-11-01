@@ -1,3 +1,11 @@
+### bp (N/A, Fri, 1 Nov 2024 02:30:00 -0700)
+
+- **BP shares fall to lowest since 2022 after sharp drop in the oil major's 
+third-quarter profit**: [Link](https://www.cnbc.com/2024/10/29/bp-earnings-q3-2024.html)
+- **BP reports 31% decline in Q3 2024 net income to $2.26bn**: [Link](https://finance.yahoo.com/news/bp-reports-31-decline-q3-155653536.html)
+- **BP Stock Is falling After Earnings Beat. Why It's Trailing Exxon, Chevron.**: [Link](https://www.barrons.com/articles/bp-earnings-stock-price-46affc20)
+
+
 ### black friday 2024 (N/A, Thu, 31 Oct 2024 16:40:00 -0700)
 
 - **Best Buy Black Friday Sale: Early Discounts and Everything You Need to 
