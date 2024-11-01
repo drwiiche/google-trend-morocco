@@ -1,3 +1,10 @@
+### zeturf (N/A, Fri, 1 Nov 2024 07:20:00 -0700)
+
+- **Quinté du vendredi 1er novembre 2024 à Laval : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-vendredi-1er-novembre-2024-a-laval-les-pronostics-7900435101)
+- **Les Notes des partants du Quinté+ de ce vendredi 1er novembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-vendredi-1er-novembre)
+- **Les pronos hippiques du vendredi 1er novembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-1er-novembre-2024_AN-202410310867.html)
+
+
 ### naziha belkeziz (N/A, Fri, 1 Nov 2024 05:30:00 -0700)
 
 - **Groupe BCP : Naziha BELKEZIZ bientôt nommée PDG de la banque**: [Link](https://boursenews.ma/article/marches/Naziha-BELKEZIZ-BCP)
