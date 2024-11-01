@@ -1,3 +1,11 @@
+### monaco fc (N/A, Fri, 1 Nov 2024 12:30:00 -0700)
+
+- **Preview: Monaco vs. Angers - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/as-monaco/preview/preview-monaco-vs-angers-prediction-team-news-lineups_556852.html)
+- **How to Watch Ligue 1: Soccer Streaming Live in the US - Friday, November 1**: [Link](https://www.sfgate.com/sports/watching-games/article/ligue-1-live-stream-11-1-2024-19878018.php)
+- **Monaco predicted XI v Angers: Denis Zakaria absence could force formation 
+change**: [Link](https://www.getfootballnewsfrance.com/2024/monaco-predicted-xi-v-angers-denis-zakaria-absence-could-force-formation-change/)
+
+
 ### lille – lyon (N/A, Fri, 1 Nov 2024 12:20:00 -0700)
 
 - **OL : le groupe convoqué pour le déplacement à Lille**: [Link](https://www.footmercato.net/a8200499801450239869-ol-le-groupe-convoque-pour-le-deplacement-a-lille)
