@@ -1,3 +1,10 @@
+### موناكو ضد أنجيه (N/A, Fri, 1 Nov 2024 11:40:00 -0700)
+
+- **معلقو مباريات الجولة العاشرة في الدوري الفرنسي**: [Link](https://hihi2.com/2024/11/01/p2916619.html)
+- **موناكو يسعى إلى استعادة نغمة الفوز**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D9%86%D8%BA%D9%85%D8%A9-%D8%A7%D9%84%D9%81%D9%88%D8%B2-2024-11-01)
+- **استمتع بمشاهدة البث المباشر لمباراة موناكو ضد أنجيه في الدوري الفرنسي اليوم**: [Link](https://ar.pressbee.net/show8842044.html?title=%D8%A7%D8%B3%D8%AA%D9%85%D8%AA%D8%B9-%D8%A8%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D8%B6%D8%AF-%D8%A3%D9%86%D8%AC%D9%8A%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81)
+
+
 ### championnat d'arabie saoudite (N/A, Fri, 1 Nov 2024 11:20:00 -0700)
 
 - **Steven Gerrard scandalise l’Arabie saoudite**: [Link](https://www.footmercato.net/a7916012677525166639-steven-gerrard-scandalise-larabie-saoudite)
