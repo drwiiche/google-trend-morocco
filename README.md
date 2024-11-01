@@ -1,3 +1,13 @@
+### le meilleur pâtissier (N/A, Fri, 1 Nov 2024 07:30:00 -0700)
+
+- **"Le Meilleur Pâtissier" 2024 : pour Inès, "le temps est le pire ennemi" 
+dans le concours**: [Link](https://www.marmiton.org/tendance/le-meilleur-patissier-2024-pour-ines-le-temps-est-le-pire-ennemi-dans-le-concours-s4098392.html)
+- **Le Meilleur Pâtissier saison 13 - épreuves, Chef invité, candidats éliminés 
+: voici le résumé du quatrième épisode**: [Link](https://www.cuisineaz.com/articles/le-meilleur-patissier-saison-13-epreuves-chef-invite-candidats-elimines-voici-le-resume-du-quatrieme-episode-12018.aspx)
+- **Inès éliminée du Meilleur pâtissier 2024 : "Laëtitia Milot a été une vraie 
+source de bienveillance"**: [Link](https://www.programme-tv.net/news/tv/363900-ines-eliminee-du-meilleur-patissier-2024-laetitia-milot-a-ete-une-vraie-source-de-bienveillance/)
+
+
 ### zeturf (N/A, Fri, 1 Nov 2024 07:20:00 -0700)
 
 - **Quinté du vendredi 1er novembre 2024 à Laval : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-vendredi-1er-novembre-2024-a-laval-les-pronostics-7900435101)
