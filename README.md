@@ -1,3 +1,8 @@
+### sorec (N/A, Fri, 1 Nov 2024 07:40:00 -0700)
+
+
+
+
 ### turf (N/A, Fri, 1 Nov 2024 07:50:00 -0700)
 
 - **Quinté du samedi 2 novembre 2024 à Compiègne : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-samedi-2-novembre-2024-a-compiegne-les-pronostics-7900435476)
