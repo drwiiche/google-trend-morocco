@@ -1,3 +1,11 @@
+### novembre (N/A, Fri, 1 Nov 2024 01:00:00 -0700)
+
+- **Les prévisions météo pour ce vendredi 1er novembre**: [Link](https://medias24.com/2024/11/01/les-previsions-meteo-pour-ce-vendredi-1er-novembre/)
+- **Météo. Temps régulier sur le Royaume ce 1er novembre, avec de la gelée sur 
+les reliefs de l’Atlas**: [Link](https://fr.le360.ma/societe/meteo-temps-regulier-sur-le-royaume-ce-1er-novembre-avec-de-la-gelee-sur-les-reliefs-de-latlas_XA5KLIPKPNHNJMQRE4NK4KZ334/)
+- **Météo: les couleurs du ciel ce vendredi 1er novembre**: [Link](https://www.h24info.ma/meteo-les-couleurs-du-ciel-ce-vendredi-1er-novembre/)
+
+
 ### bp (N/A, Fri, 1 Nov 2024 02:30:00 -0700)
 
 - **BP shares fall to lowest since 2022 after sharp drop in the oil major's 
