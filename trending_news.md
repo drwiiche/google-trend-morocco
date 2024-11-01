@@ -1,3 +1,27 @@
+### monaco – angers (N/A, Fri, 1 Nov 2024 10:20:00 -0700)
+
+- **Ascenseur, objectif, système… Tout savoir sur le SCO d'Angers**: [Link](https://www.asmonaco.com/ascenseur-objectif-dujeux-tout-savoir-sur-angers/)
+- **Ligue 1 : Monaco n'est plus intouchable**: [Link](https://www.flashscore.fr/actualites/une-fin-d-invincibilite-qui-pousse-au-rebond-pour-l-as-monaco/zVv4wGa6/)
+- **ASM-SCO : Les compositions probables**: [Link](https://asm-supporters.fr/actualites/60447-asm-sco-les-compositions-probables-4)
+
+
+### al-nassr fc – al-hilal (N/A, Fri, 1 Nov 2024 10:10:00 -0700)
+
+- **Pioli explains why he chose to leave Italy after Milan exit: “Accepted very 
+willingly”**: [Link](https://sempremilan.com/pioli-explains-why-leave-italy-after-milan-exit)
+- **Al Nassr vs Al Hilal: Where to Watch, Kick-off Time, and Line-ups for the 
+Asian Champions League Match**: [Link](https://www.footboom1.com/en/news/football/2013451-al-nassr-vs-al-hilal-where-to-watch-kick-off-time-and-line-ups-for-the-asian-champions-league-match)
+- **Cristiano Ronaldo vs Aleksandar Mitrovic: Goals, Assists & Stats Comparison 
+Between Al Nassr and Al Hilal Star**: [Link](https://www.essentiallysports.com/soccer-football-news-cristiano-ronaldo-vs-aleksandar-mitrovic-goals-assists-stats-comparison-between-al-nassr-and-al-hilal-star/)
+
+
+### النصر ضد الهلال (N/A, Fri, 1 Nov 2024 10:10:00 -0700)
+
+- **عودة بونو وماني الأبرز في التشكيل المتوقع لديربي الرياض**: [Link](https://www.kooora.com/?n=1365180)
+- **مباشر.. مباراة النصر ضد الهلال في الدوري السعودي 2024-2025**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/1/al-nassr-vs-al-hilal-1)
+- **محمد العويس خارج قائمة الهلال أمام النصر في دوري روشن**: [Link](https://hihi2.com/2024/11/01/p2916385.html)
+
+
 ### prix gasoil maroc (N/A, Fri, 1 Nov 2024 07:00:00 -0700)
 
 - **Carburants: à quoi faut-il s’attendre?**: [Link](https://fr.le360.ma/economie/carburants-a-quoi-faut-il-sattendre_5MGU7E6JWFCAPHZS4DCBHZRV7A/)
