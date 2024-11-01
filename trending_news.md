@@ -1,3 +1,25 @@
+### naziha belkeziz (N/A, Fri, 1 Nov 2024 05:30:00 -0700)
+
+- **Groupe BCP : Naziha BELKEZIZ bientôt nommée PDG de la banque**: [Link](https://boursenews.ma/article/marches/Naziha-BELKEZIZ-BCP)
+- **Naziha Belkeziz sera nommée PDG du Groupe BCP**: [Link](https://lematin.ma/economie/naziha-belkeziz-sera-nommee-pdg-du-groupe-bcp/249753)
+- **Naziha Belkeziz, première femme à la tête du groupe BCP**: [Link](https://www.infomediaire.net/naziha-belkeziz-premiere-femme-a-la-tete-du-groupe-bcp/)
+
+
+### ruben amorim (N/A, Fri, 1 Nov 2024 05:20:00 -0700)
+
+- **Amorim: «Há fases em que estamos bem na vida mas falta qualquer coisa...»**: [Link](https://www.abola.pt/futebol/noticias/amorim-ha-fases-em-que-estamos-bem-na-vida-mas-falta-qualquer-coisa-2024103112045514801)
+- **Brasileiros entram em ‘barca’ de saída do Manchester United**: [Link](https://sportbuzz.com.br/futebol/2024/11/01/brasileiros-entram-em-barca-de-saida-do-manchester-united/)
+- **Souness Questiona Expertise Futebolística da Direção do Man Utd Enquanto 
+INEOS Enfrenta Críticas**: [Link](https://www.footboom1.com/br/news/football/2012429-souness-questions-footballing-expertise-of-man-utd-s-top-brass-as-ineos-faces-criticism)
+
+
+### toussaint (N/A, Fri, 1 Nov 2024 00:50:00 -0700)
+
+- **La Toussaint, une manière de reconnecter avec les ancêtres**: [Link](https://la1ere.francetvinfo.fr/martinique/la-toussaint-une-maniere-de-reconnecter-avec-les-ancetres-1533205.html)
+- **Textes et prières du vendredi 1er novembre 2024**: [Link](https://international.la-croix.com/fr/prions/textes-et-prieres-du-vendredi-1er-novembre-2024)
+- **ABC de la foi : Communion des saints**: [Link](https://www.lavie.fr/ma-vie/spiritualite/abc-de-la-foi-communion-des-saints-96439.php)
+
+
 ### banque populaire maroc (N/A, Fri, 1 Nov 2024 01:10:00 -0700)
 
 - **Groupe BCP : Naziha BELKEZIZ bientôt nommée PDG de la banque**: [Link](https://boursenews.ma/article/marches/Naziha-BELKEZIZ-BCP)
