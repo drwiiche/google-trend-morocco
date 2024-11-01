@@ -1,3 +1,11 @@
+### lille – lyon (N/A, Fri, 1 Nov 2024 12:20:00 -0700)
+
+- **OL : le groupe convoqué pour le déplacement à Lille**: [Link](https://www.footmercato.net/a8200499801450239869-ol-le-groupe-convoque-pour-le-deplacement-a-lille)
+- **Ligue 1 : le LOSC peut-il se mêler à la bataille du podium**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-les-dogues-peuvent-ils-se-meler-a-la-bataille-pour-le-podium/AoQPTXCr/)
+- **Lille - Lyon : sur quelle chaîne et à quelle heure voir le match de Ligue 1 
+en direct ?**: [Link](https://www.ouest-france.fr/sport/football/lille-osc/lille-lyon-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-1-en-direct-5de0dc3c-96df-11ef-81c3-38013e2f80e5)
+
+
 ### deportivo alavés – majorque (N/A, Fri, 1 Nov 2024 12:10:00 -0700)
 
 - **Pronostic Alavés - Majorque, Liga**: [Link](https://www.sportytrader.com/pronostics/alaves-majorque-224322/)
