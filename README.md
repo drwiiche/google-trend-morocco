@@ -1,3 +1,12 @@
+### al ittihad (N/A, Thu, 31 Oct 2024 13:20:00 -0700)
+
+- **'Humble' N'Golo Kante praised as ex-Chelsea star cleans up scarves after 
+Al-Ittihad fans tossed them on the pi**: [Link](https://www.dailymail.co.uk/sport/football/article-14027689/NGolo-Kante-Chelsea-Al-Ittihad-Jeddah-derby-cleans-up.html)
+- **Footage shows ‘humble’ N’Golo Kante cleaning pitch up after fan delay 
+tactic as ex-Chelsea star shows his c...**: [Link](https://talksport.com/football/2214467/ngolo-kante-stays-on-pitch-to-clean-up-pitch-chelsea/)
+- **Watch: N'Golo Kante wins hearts by cleaning up pitch during Al-Ittihad game**: [Link](https://www.msn.com/en-in/sports/football/watch-n-golo-kante-wins-hearts-by-cleaning-up-pitch-during-al-ittihad-game/ar-AA1tjqN7)
+
+
 ### الياس المالكي (N/A, Thu, 31 Oct 2024 19:20:00 -0700)
 
 - **إلياس المالكي‎ "ينهار" بمحكمة الجديدة**: [Link](https://www.hespress.com/%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D9%8A%D9%86%D9%87%D8%A7%D8%B1-%D8%A8%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-1457104.html)
