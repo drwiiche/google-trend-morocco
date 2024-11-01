@@ -1,3 +1,12 @@
+### black friday 2024 (N/A, Thu, 31 Oct 2024 16:40:00 -0700)
+
+- **Best Buy Black Friday Sale: Early Discounts and Everything You Need to 
+Prepare**: [Link](https://www.cnet.com/deals/best-buy-black-friday-deals/)
+- **The best Black Friday Amazon deals 2024: Early sales live now**: [Link](https://www.zdnet.com/article/best-black-friday-amazon-deals-2024/)
+- **When is Amazon's Cyber Monday sale? Here’s what you need to know about the 
+big retail event.**: [Link](https://www.aboutamazon.com/news/retail/when-is-cyber-monday-2024)
+
+
 ### al ittihad (N/A, Thu, 31 Oct 2024 13:20:00 -0700)
 
 - **'Humble' N'Golo Kante praised as ex-Chelsea star cleans up scarves after 
