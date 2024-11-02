@@ -1,3 +1,11 @@
+### newcastle – arsenal (N/A, Sat, 2 Nov 2024 04:40:00 -0700)
+
+- **Every word from Mikel's pre-Newcastle presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikels-pre-newcastle-presser-2)
+- **Arsenal's Mikel Arteta Adopts All Blacks' Inspiring Philosophy Ahead of 
+Newcastle Clash**: [Link](https://www.footboom1.com/en/news/football/2015132-arsenal-s-mikel-arteta-adopts-all-blacks-inspiring-philosophy-ahead-of-newcastle-clash)
+- **Confirmed Arsenal team to face Newcastle – Partey still in defence**: [Link](https://www.justarsenal.com/confirmed-arsenal-team-to-face-newcastle-partey-still-in-defence/379477)
+
+
 ### grand prix bresil (N/A, Sat, 2 Nov 2024 03:20:00 -0700)
 
 - **GP Brésil : Piastri partira en tête de la course sprint devant Norris et 
