@@ -1,3 +1,27 @@
+### bournemouth – manchester city (N/A, Sat, 2 Nov 2024 07:10:00 -0700)
+
+- **Walker returns as City make seven changes for Bournemouth trip**: [Link](https://www.mancity.com/news/mens/bournemouth-away-premier-league-team-news-tactics-63866147)
+- **Pep Guardiola orders struggling Man City squad to 'play through the pain' 
+amid Kevin De Bruyne hope**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/pep-guardiola-orders-struggling-man-30279308)
+- **Iraola on injuries, confidence and Man City**: [Link](https://sports.yahoo.com/iraola-injuries-confidence-man-city-141546086.html)
+
+
+### liverpool – brighton (N/A, Sat, 2 Nov 2024 07:10:00 -0700)
+
+- **Arne Slot update on Alisson Becker, Federico Chiesa and Diogo Jota fitness**: [Link](https://www.liverpoolfc.com/news/arne-slot-update-alisson-becker-federico-chiesa-and-diogo-jota-fitness)
+- **Liverpool suffer seismic double blow**: [Link](https://www.anfieldcentral.co.uk/liverpool-suffer-seismic-double-blow/)
+- **Who's Missing: Manchester City facing injury crisis, Arsenal without key 
+players**: [Link](https://www.flashscore.com/news/soccer-premier-league-who-s-missing-manchester-city-facing-injury-crisis-arsenal-without-key-players/KYYwowit/)
+
+
+### ruben amorim (N/A, Sat, 2 Nov 2024 07:10:00 -0700)
+
+- **Assim fica o organigrama do Man. United com Rúben Amorim**: [Link](https://www.abola.pt/futebol/noticias/assim-fica-o-organigrama-do-man-united-com-ruben-amorim-2024110117111262721)
+- **Por Que Não Deveria Dar Certo?**: [Link](https://www.footboom1.com/br/news/football/2015257-why-shouldn-t-it-go-well)
+- **Varandas deixa bicada ao rival: «Preocupava-me era dar dez milhões para 
+mandar o treinador embora**: [Link](https://www.zerozero.pt/news_rss.php?id=380136)
+
+
 ### bayern – union berlin (N/A, Sat, 2 Nov 2024 06:40:00 -0700)
 
 - **FC Bayern gegen Union Berlin im Liveticker, Bundesliga-Konferenz: Fünf 
