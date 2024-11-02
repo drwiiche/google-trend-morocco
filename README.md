@@ -1,3 +1,16 @@
+### x (N/A, Fri, 1 Nov 2024 20:40:00 -0700)
+
+- **Election officials are outmatched by Elon Musk’s misinformation machine**: [Link](https://www.cnn.com/2024/10/31/politics/election-officials-outmatched-elon-musk-misinformation/index.html)
+- **Top election official says colleagues gave Elon Musk ‘hand-delivered’ notes 
+to stop him from spreading misinformation**: [Link](https://fortune.com/2024/11/01/election-official-elon-musk-hand-delivered-note-misinformation-donald-trump/)
+- **Elon Musk says X users fight falsehoods. The falsehoods are winning.**: [Link](https://www.washingtonpost.com/technology/2024/10/30/elon-musk-x-fact-check-community-notes-misinformation/)
+
+
+### influenceuse poupette kenza (N/A, Fri, 1 Nov 2024 16:10:00 -0700)
+
+
+
+
 ### spirou (N/A, Fri, 1 Nov 2024 13:30:00 -0700)
 
 - **"Spirou": une BD avec des dessins racistes retirée des librairies**: [Link](https://www.bfmtv.com/people/bandes-dessinees/spirou-une-bd-avec-des-dessins-racistes-retiree-des-librairies_AN-202410310419.html)
