@@ -1,3 +1,12 @@
+### damso chrome (N/A, Sat, 2 Nov 2024 12:00:00 -0700)
+
+- **Damso : une carrière marquée par l’authenticité et la controverse**: [Link](https://www.afrik.com/damso-une-carriere-marquee-par-l-authenticite-et-la-controverse)
+- **Damso annonce la sortie de son nouvel album "J'ai menti" et dévoile un 
+premier extrait**: [Link](https://www.bfmtv.com/people/musique/damso-annonce-la-sortie-de-son-nouvel-album-j-ai-menti-et-devoile-un-premier-extrait_AN-202411010718.html)
+- **Le rappeur Damso annonce plusieurs sessions d'écoute privées pour son 
+nouvel EP : c'est déjà complet à Lille**: [Link](https://france3-regions.francetvinfo.fr/hauts-de-france/nord-0/le-rappeur-damso-annonce-plusieurs-sessions-d-ecoute-privees-pour-son-nouvel-ep-c-est-deja-complet-a-lille-3052627.html)
+
+
 ### monza – ac milan (N/A, Sat, 2 Nov 2024 12:10:00 -0700)
 
 - **Paolo Berlusconi confirms Monza only paid ‘minor fee’ for Maldini to Milan**: [Link](https://sempremilan.com/berlusconi-monza-paid-minor-fee-maldini-milan)
