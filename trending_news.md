@@ -1,3 +1,27 @@
+### raja casablanca (N/A, Sat, 2 Nov 2024 10:00:00 -0700)
+
+- **Raja: Anas Zniti présent contre le CODM**: [Link](https://sport.le360.ma/football/botola/raja-anas-zniti-present-contre-le-codm_2URQMBILPRGRDJ43CQYHZIBXKE/)
+- **Botola Pro: le Raja en quête de victoire face au CODM**: [Link](https://snrtnews.com/fr/article/botola-pro-le-raja-en-quete-de-victoire-face-au-codm-105885)
+- **Raja de Casablanca : de retour aux affaires, Anas Zniti devra faire oublier 
+Mehdi El Harrar**: [Link](https://lematin.ma/sports/raja-de-casablanca-anas-zniti-devra-faire-oublier-mehdi-el-harrar/249209)
+
+
+### premier league (N/A, Sat, 2 Nov 2024 09:50:00 -0700)
+
+- **Isak scores as Arsenal drop points at Newcastle**: [Link](https://www.bbc.com/sport/football/live/cvge8x3v5n2t)
+- **Every word from Mikel's pre-Newcastle presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikels-pre-newcastle-presser-2)
+- **Football Tracker: Liverpool and Man City in Premier League action, Bayern 
+hosting Union**: [Link](https://www.flashscore.com/news/football-tracker-liverpool-and-man-city-in-premier-league-action-bayern-hosting-union/jZARhq6K/)
+
+
+### dortmund – rb leipzig (N/A, Sat, 2 Nov 2024 09:50:00 -0700)
+
+- **Borussia Dortmund – RB Leipzig im Live-Ticker: Bundesliga-Topspiel heute**: [Link](https://www.bild.de/sport/fussball/borussia-dortmund-rb-leipzig-im-live-ticker-bundesliga-topspiel-heute-6724e115048fa103a43be220)
+- **Fußball-Bundesliga: Rose warnt vor BVB: Immer spezielle und schwierige 
+Aufgabe**: [Link](https://www.np-coburg.de/inhalt.fussball-bundesliga-rose-warnt-vor-bvb-immer-spezielle-und-schwierige-aufgabe.31524f81-88ab-447f-bfc1-2d20915b007f.html)
+- **Deutsche-Liga-Ticker - LIVE: Frankfurt nicht zu stoppen, Bayern führt**: [Link](https://www.krone.at/3577126)
+
+
 ### udinese – juventus (N/A, Sat, 2 Nov 2024 09:40:00 -0700)
 
 - **Koopmeiners e Yildiz tornano dal 1', conferma per Vlahovic. Ecco la Juve di 
