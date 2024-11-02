@@ -1,3 +1,21 @@
+### osasuna – valladolid (N/A, Sat, 2 Nov 2024 05:20:00 -0700)
+
+- **(Previa) Osasuna busca Europa ante el Valladolid y el Girona alejar el 
+descenso ante el Leganés**: [Link](https://www.infobae.com/america/agencias/2024/11/01/previa-osasuna-busca-europa-ante-el-valladolid-y-el-girona-alejar-el-descenso-ante-el-leganes/)
+- **Asalto a la fortaleza navarra**: [Link](https://www.realvalladolid.es/noticias/previa-primer-equipo)
+- **Dónde ver y escuchar el partido liga entre Osasuna y Valladolid en El Sadar**: [Link](https://www.cope.es/emisoras/navarra/navarra-provincia/pamplona/deportes-cope-navarra/noticias/ver-escuchar-partido-liga-osasuna-valladolid-sadar-20241102_3035814.html)
+
+
+### madrid inondations (N/A, Sat, 2 Nov 2024 04:40:00 -0700)
+
+- **Espagne : le bilan des inondations s'alourdit, 10 000 soldats et policiers 
+envoyés en renfort**: [Link](https://www.france24.com/fr/europe/20241102-espagne-arm%C3%A9e-volontaires-secours-sinistr%C3%A9s-pr%C3%A8s-valence-inondations)
+- **"On ouvre les voitures les unes après les autres": Éric a sauvé plusieurs 
+personnes pendant les inondations...**: [Link](https://www.bfmtv.com/international/europe/espagne/on-ouvre-les-voitures-les-unes-apres-les-autres-eric-a-sauve-plusieurs-personnes-pendant-les-inondations-en-espagne_AV-202411010771.html)
+- **Letizia et Felipe d’Espagne face au drame : ils prennent une décision plus 
+forte que les mots**: [Link](https://www.gala.fr/l_actu/news_de_stars/letizia-et-felipe-despagne-face-au-drame-ils-prennent-une-decision-plus-forte-que-les-mots_555048)
+
+
 ### نيوكاسل يونايتد ضد آرسنال (N/A, Sat, 2 Nov 2024 04:50:00 -0700)
 
 - **التشكيلة الرسمية لمباراة نيوكاسل يونايتد وأرسنال في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/11/02/p2917601.html)
