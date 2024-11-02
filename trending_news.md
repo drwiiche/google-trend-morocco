@@ -1,3 +1,27 @@
+### dani carvajal (N/A, Sat, 2 Nov 2024 12:50:00 -0700)
+
+- **El lateral derecho a debate y examen: la aparición de Fortea con Alexander 
+Arnold en el horizonte**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/02/lateral-derecho-debate-examen-aparicion-fortea-alexander-arnold-horizonte.html)
+- **Ancelotti da el OK: 'adelanta' a Alexander-Arnold por sorpresa, el Real 
+Madrid tiene nuevo lateral**: [Link](https://www.realmadridconfidencial.com/actualidad/ancelotti-da-ok-adelanta-alexander-arnold-por-sorpresa-real-madrid-tiene-nuevo-lateral_163282_102.html)
+- **Dani Carvajal suelta el bombazo: el nuevo Jesús Navas ficha por el Madrid, 
+oficial**: [Link](https://madrid-barcelona.com/real-madrid/dani-carvajal-bombazo-nuevojesus-navas-ficha-madrid)
+
+
+### أسبانيا (N/A, Sat, 2 Nov 2024 12:00:00 -0700)
+
+- **سيميوني يتفق مع فليك بشأن الجولة 12 في الليجا**: [Link](https://www.kooora.com/?n=1365466)
+- **مزاد قمصان برشلونة في الديربي لجمع التبرعات لفالنسيا**: [Link](https://hihi2.com/2024/11/02/p2918385.html)
+- **قنصلية المملكة في فالنسيا تبحث عن 16 مغربيا جراء الفيضانات المدمرة**: [Link](https://www.akhbarona.com/society/394970.html)
+
+
+### وزارة الأوقاف والشؤون الإسلامية (N/A, Sat, 2 Nov 2024 11:30:00 -0700)
+
+- **فاتح شهر جمادى الأولى الاثنين بالمغرب**: [Link](https://www.hespress.com/%D9%81%D8%A7%D8%AA%D8%AD-%D8%B4%D9%87%D8%B1-%D8%AC%D9%85%D8%A7%D8%AF%D9%89-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1458250.html)
+- **وزارة الأوقاف تعلن موعد فاتح شهر جمادى الأولى بالمغرب**: [Link](https://ar.hibapress.com/details-569488.html)
+- **🔥الأوقاف تراقب هلال جمادى الأولى**: [Link](https://www.tanja7.com/146798/)
+
+
 ### damso chrome (N/A, Sat, 2 Nov 2024 12:00:00 -0700)
 
 - **Damso : une carrière marquée par l’authenticité et la controverse**: [Link](https://www.afrik.com/damso-une-carriere-marquee-par-l-authenticite-et-la-controverse)
