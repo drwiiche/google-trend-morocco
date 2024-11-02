@@ -1,3 +1,37 @@
+### paris-sg – lens (N/A, Sat, 2 Nov 2024 08:20:00 -0700)
+
+- **Le PSG enfonce le RC Lens**: [Link](https://www.footmercato.net/a4101201717287254981-le-psg-enfonce-le-rc-lens)
+- **PRONOS PARIS RMC Les paris sur Paris-SG - Lens du 2 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-les-paris-sur-paris-sg-lens-du-2-novembre-ligue-1_AN-202411010686.html)
+- **PSG : Le pari incompréhensible de Riolo**: [Link](https://www.footboom1.com/fr/news/football/2017209-psg-riolo-s-unfathomable-bet)
+
+
+### ليفربول ضد برايتون (N/A, Sat, 2 Nov 2024 08:20:00 -0700)
+
+- **تشكيلة ليفربول الرسمية لمواجهة برايتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/11/02/p2917756.html)
+- **مباراة ليفربول وبرايتون بث مباشر في الدوري الإنجليزي الممتاز**: [Link](https://aboutmsr.com/%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%B9%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A/)
+- **مدرب برايتون يرفع راية التحدي أمام ليفربول والسيتي**: [Link](https://m.kooora.com/?n=1365197&o=n)
+
+
+### snrt (N/A, Sat, 2 Nov 2024 08:20:00 -0700)
+
+- **SNRT : quatre nouvelles chaînes dédiées au sport approuvées par le CSCA**: [Link](https://ledesk.ma/encontinu/snrt-quatre-nouvelles-chaines-dediees-au-sport-approuvees-par-le-csca/)
+- **Le Maroc se dote de quatre nouvelles chaînes sportives**: [Link](https://fr.hespress.com/393512-le-maroc-se-dote-de-quatre-nouvelles-chaines-sportives.html)
+- **Le Conseil Supérieur de la Communication Audiovisuelle approuve le cahier 
+des charges de la SNRT prévoyant la création de quatre nouvelles chaînes de 
+télévision dédiées au sport**: [Link](https://amadalamazigh.press.ma/fr/le-conseil-superieur-de-la-communication-audiovisuelle-approuve-le-cahier-des-charges-de-la-snrt-prevoyant-la-creation-de-quatre-nouvelles-chaines-de-television-dediees-au-sport/)
+
+
+### rca (N/A, Sat, 2 Nov 2024 08:10:00 -0700)
+
+- **Șoferii riscă să plătească polițe mai scumpe dacă nu-și anunță asigurătorul 
+la vânzarea mașinii**: [Link](https://ziarulunirea.ro/soferii-risca-sa-plateasca-polite-mai-scumpe-daca-nu-si-anunta-asiguratorul-la-vanzarea-masinii-908845/)
+- **Șoferiță fără permis, prinsă conducând o mașină fără ITP și RCA, la miez de 
+noapte, prin Costișa – Frătăuții Noi**: [Link](https://suceava-smartpress.ro/soferita-fara-permis-prinsa-conducand-o-masina-fara-itp-si-rca-la-miez-de-noapte-prin-costisa-fratautii-noi/)
+- **Tupeu maxim la o tânără de 27 de ani din Frătăuții Noi. A condus fără 
+permis o mașină fără ITP și RCA. A rămas fără mașină și s-a ales cu dosar 
+penal și amenzi**: [Link](https://www.svnews.ro/tupeu-maxim-la-o-tanara-de-27-de-ani-din-fratautii-noi-a-condus-fara-permis-o-masina-fara-itp-si-rca-a-ramas-fara-masina-si-s-a-ales-cu-dosar-penal-si-amenzi/444487/)
+
+
 ### zeturf (N/A, Sat, 2 Nov 2024 07:40:00 -0700)
 
 - **Les Notes des partants du Quinté+ de ce vendredi 1er novembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-vendredi-1er-novembre)
