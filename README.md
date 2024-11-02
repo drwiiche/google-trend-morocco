@@ -1,3 +1,18 @@
+### wolves – crystal palace (N/A, Sat, 2 Nov 2024 10:10:00 -0700)
+
+- **Preview | Wolves vs Crystal Palace | Features | News**: [Link](https://www.wolves.co.uk/news/features/20241101-preview-wolves-vs-crystal-palace/)
+- **Matheus Cunha has just commentated over his Wolves vs Brighton equaliser 
+and it’s absolutely brilliant**: [Link](https://www.molineux.news/news/matheus-cunha-has-just-commentated-over-his-wolves-vs-brighton-equaliser-and-its-absolutely-brilliant/)
+- **Gary O'Neil issues rallying cry to Wolves players**: [Link](https://www.expressandstar.com/sport/2024/11/01/gary-oneil-issues-rallying-cry-to-wolves-players/)
+
+
+### البطولة (N/A, Sat, 2 Nov 2024 10:10:00 -0700)
+
+- **عبوب في مباراة ترتيب الأوراق**: [Link](https://assabah.ma/808945.html)
+- **مباريات اليوم عن الجولة التاسعة من البطولة الإحترافية**: [Link](https://www.sport7.ma/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B9%D9%86-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B3%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A8/)
+- **البطولة الوطنية الدورة 9.. برنامج مباريات اليوم السبت**: [Link](https://www.analkhabar.com/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D8%A9-9-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7/)
+
+
 ### raja casablanca (N/A, Sat, 2 Nov 2024 10:00:00 -0700)
 
 - **Raja: Anas Zniti présent contre le CODM**: [Link](https://sport.le360.ma/football/botola/raja-anas-zniti-present-contre-le-codm_2URQMBILPRGRDJ43CQYHZIBXKE/)
