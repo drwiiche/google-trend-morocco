@@ -1,3 +1,11 @@
+### نيوكاسل يونايتد ضد آرسنال (N/A, Sat, 2 Nov 2024 04:50:00 -0700)
+
+- **التشكيلة الرسمية لمباراة نيوكاسل يونايتد وأرسنال في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/11/02/p2917601.html)
+- **أرتيتا: شرط وحيد لمشاركة جابرييل أمام نيوكاسل**: [Link](https://www.kooora.com/?n=1365200)
+- **مباشر مباراة أرسنال ونيوكاسل (0-0) في الجولة الـ 10 بالدوري الإنجليزي 
+الممتاز**: [Link](https://www.almasryalyoum.com/news/details/3296873)
+
+
 ### newcastle – arsenal (N/A, Sat, 2 Nov 2024 04:40:00 -0700)
 
 - **Every word from Mikel's pre-Newcastle presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikels-pre-newcastle-presser-2)
