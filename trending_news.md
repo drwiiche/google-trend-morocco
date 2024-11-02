@@ -1,3 +1,11 @@
+### ترتيب الدوري الانجليزي (N/A, Sat, 2 Nov 2024 09:50:00 -0700)
+
+- **تقييم لاعبو ليفربول بعد الفوز على برايتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/11/02/p2918099.html)
+- **هدف خيالي صلاح "ليفربول ضد برايتون".. نتيجة مباراة ليفربول وبرايتون اليوم 
+تويتر الدوري**: [Link](https://real.alsaudinews.com/204466/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9/)
+- **فيديو | ماذا قدم محمد صلاح في مباراة ليفربول وبرايتون بـ الدوري الإنجليزي؟**: [Link](https://www.btolat.com/news/356444)
+
+
 ### wolves – crystal palace (N/A, Sat, 2 Nov 2024 10:10:00 -0700)
 
 - **Preview | Wolves vs Crystal Palace | Features | News**: [Link](https://www.wolves.co.uk/news/features/20241101-preview-wolves-vs-crystal-palace/)
