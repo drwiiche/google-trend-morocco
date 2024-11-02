@@ -1,3 +1,12 @@
+### kemi badenoch (N/A, Sat, 2 Nov 2024 13:50:00 -0700)
+
+- **Kemi Badenoch promises change after historic Tory leadership win**: [Link](https://www.bbc.com/news/articles/c0qdnewgx19o)
+- **Kemi Badenoch's husband Hamish has one thing in common with Denis Thatcher 
+- but seems more like Philip May**: [Link](https://news.sky.com/story/kemi-badenochs-husband-hamish-has-one-thing-in-common-with-denis-thatcher-but-seems-more-like-philip-may-13247001)
+- **The U.K. Conservative party's new leader is the first Black woman to lead a 
+major British party**: [Link](https://www.nbcnews.com/news/world/uk-conservative-party-kemi-badenoch-new-leader-rcna178503)
+
+
 ### derniers sondages elections americaines (N/A, Sat, 2 Nov 2024 13:20:00 -0700)
 
 - **Cet historien connaît déjà le nom du nouveau président américain**: [Link](https://www.20minutes.fr/monde/4119028-20241031-election-americaine-2024-historien-connait-deja-nom-vainqueur-voici-gagnant)
