@@ -1,3 +1,10 @@
+### marcelo (N/A, Sat, 2 Nov 2024 11:50:00 -0700)
+
+- **Conflito entre Marcelo e Seu Treinador na Beira do Campo**: [Link](https://www.footboom1.com/br/news/football/2017860-marcelo-and-his-coach-clash-on-the-sidelines)
+- **Mano avalia o que faltou para o Fluminense vencer a partida contra o Grêmio**: [Link](https://www.netflu.com.br/mano-avalia-o-que-faltou-para-o-fluminense-vencer-a-partida-contra-o-gremio/)
+- **Marcelo disse a Mano Menezes para não encostar nele, revela portal**: [Link](https://esporte.ig.com.br/parceiros/jogada10/2024-11-02/marcelo-disse-a-mano-menezes-para-nao-encostar-nele--revela-portal.html)
+
+
 ### ajax – psv eindhoven (N/A, Sat, 2 Nov 2024 11:20:00 -0700)
 
 - **All About | PSV and Ajax exactly balanced prior to 166th official game**: [Link](https://www.psv.nl/en/media/artikel/alles-over-psv-en-ajax-precies-in-balans-voorafgaand-aan-166e-officiele-duel)
