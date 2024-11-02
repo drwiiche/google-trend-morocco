@@ -1,3 +1,11 @@
+### tiger (N/A, Sat, 2 Nov 2024 00:20:00 -0700)
+
+- **Adam Driver, Jeremy Strong, Anne Hathaway Set For James Gray's 'Tiger'**: [Link](https://deadline.com/2024/11/adam-driver-jeremy-strong-anne-hathaway-james-gray-paper-tiger-hot-project-afm-1236164974/)
+- **James Gray Sets Next Film ‘Paper Tiger’ Starring Adam Driver, Jeremy 
+Strong, and Anne Hathaway**: [Link](https://www.indiewire.com/news/breaking-news/james-gray-next-film-paper-tiger-adam-driver-jeremy-strong-anne-hathaway-1235062326/)
+- **Adam Driver and Anne Hathaway To Star in a Twisty New Crime Thriller**: [Link](https://collider.com/adam-driver-anne-hathaway-cast-paper-tiger/)
+
+
 ### اخبارنا (N/A, Fri, 1 Nov 2024 23:30:00 -0700)
 
 
