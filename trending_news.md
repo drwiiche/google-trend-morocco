@@ -1,3 +1,22 @@
+### atlanta utd – inter miami (N/A, Sat, 2 Nov 2024 15:10:00 -0700)
+
+- **Match Preview: Atlanta United hosts Inter Miami CF in Game 2 of Best-of-3 
+Series**: [Link](https://www.atlutd.com/news/match-preview-atlanta-united-hosts-inter-miami-cf-in-game-2-of-best-of-3-series-mls-cup-playoffs-saturday-november-2)
+- **Inter Miami Predicted Lineup vs. Atlanta United: MLS Cup Playoffs**: [Link](https://www.si.com/soccer/inter-miami-predicted-lineup-vs-atlanta-united-mls-cup-playoffs-11-2-24)
+- **MATCH PREVIEW: Inter Miami CF to Visit Atlanta United for Second Match in 
+the Audi 2024 MLS Cup Playoffs Round One Best-of-3-series**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-to-visit-atlanta-united-for-second-match-in-the-audi-2024-mls-cup-playoffs-round-one-best-of-3-series)
+
+
+### élection présidentielle américaine (N/A, Sat, 2 Nov 2024 12:30:00 -0700)
+
+- **En direct, présidentielle américaine 2024 : le dernier week-end d’une 
+longue campagne pour Donald Trump et Kamala Harris**: [Link](https://www.lemonde.fr/international/live/2024/11/02/en-direct-presidentielle-americaine-2024-les-dernieres-informations-sur-donald-trump-kamala-harris-et-les-sondages-a-3-jours-du-vote_6362433_3210.html)
+- **Présidentielle américaine : en prévision d’éventuels débordements, la Garde 
+Nationale mobilisée à Washington**: [Link](https://www.lesoir.be/633399/article/2024-11-02/presidentielle-americaine-en-prevision-deventuels-debordements-la-garde)
+- **L'État de Washington ordonne à l'armée d'être prête à intervenir dans les 
+violences électorales**: [Link](https://www.vietnam.vn/fr/bang-washington-chi-dao-quan-doi-san-sang-can-thiep-bao-luc-bau-cu/)
+
+
 ### مونزا ضد ميلان (N/A, Sat, 2 Nov 2024 14:10:00 -0700)
 
 
