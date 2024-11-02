@@ -1,3 +1,26 @@
+### zeturf (N/A, Sat, 2 Nov 2024 07:40:00 -0700)
+
+- **Les Notes des partants du Quinté+ de ce vendredi 1er novembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-vendredi-1er-novembre)
+- **Les pronostics Quinté du 01/11/2024 à Laval**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-01112024-a-laval-4276236)
+- **Les pronos hippiques du vendredi 1er novembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-1er-novembre-2024_AN-202410310867.html)
+
+
+### ipswich town – leicester (N/A, Sat, 2 Nov 2024 07:40:00 -0700)
+
+- **Steve Cooper addresses Leicester City right flank problems ahead of big 
+decision**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/steve-cooper-addresses-leicester-city-9682574)
+- **Assessing Ipswich’s Competitive Journey in the Premier League**: [Link](https://www.footboom1.com/en/news/football/2016593-assessing-ipswich-s-competitive-journey-in-the-premier-league)
+- **KIERAN'S THOUGHTS ON FOXES CLASH**: [Link](https://www.itfc.co.uk/news/2024/november/01/Kieran-McKenna-on-Ipswich-Town-Premier-League-clash-Leicester-City-Portman-Road/)
+
+
+### nottm forest – west ham (N/A, Sat, 2 Nov 2024 07:40:00 -0700)
+
+- **“Virus” | Hammers dealt blow ahead of Forest**: [Link](https://www.thewesthamway.com/2024/11/02/virus-hammers-dealt-blow-ahead-of-forest/)
+- **Start The Best Eleven Today – Demand From Fans and Pundits Alike**: [Link](https://www.claretandhugh.info/start-the-best-eleven-today-demand-from-fans-and-pundits-alike/)
+- **Julen Lopetegui left blown away by Nottingham Forest as he makes Man United 
+comparison**: [Link](https://www.nottinghamforest.news/2024/11/01/julen-lopetegui-left-blown-away-by-nottingham-forest-as-he-makes-man-united-comparison/)
+
+
 ### بورنموث ضد مان سيتي (N/A, Sat, 2 Nov 2024 07:30:00 -0700)
 
 - **دي بروين على مقاعد بدلاء مانشستر سيتي أمام بورنموث**: [Link](https://www.kooora.com/?n=1365459)
