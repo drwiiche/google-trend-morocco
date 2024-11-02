@@ -1,3 +1,31 @@
+### derniers sondages elections americaines (N/A, Sat, 2 Nov 2024 13:20:00 -0700)
+
+- **Cet historien connaît déjà le nom du nouveau président américain**: [Link](https://www.20minutes.fr/monde/4119028-20241031-election-americaine-2024-historien-connait-deja-nom-vainqueur-voici-gagnant)
+- **En direct, présidentielle américaine 2024 : le dernier week-end d’une 
+campagne serrée pour Donald Trump et Kamala Harris**: [Link](https://www.lemonde.fr/international/live/2024/11/02/en-direct-presidentielle-americaine-2024-le-dernier-week-end-d-une-longue-campagne-pour-donald-trump-et-kamala-harris_6362433_3210.html)
+- **Patrick J. Deneen : «Une défaite de Kamala Harris face à l’ancien président 
+Trump est de plus en plus probable»**: [Link](https://www.lefigaro.fr/vox/monde/patrick-j-deneen-une-defaite-de-kamala-harris-face-a-l-ancien-president-trump-est-de-plus-en-plus-probable-20241101)
+
+
+### jean pierre papin (N/A, Sat, 2 Nov 2024 13:20:00 -0700)
+
+- **‘I have a problem with a certain person’ – Jean-Pierre Papin sheds light on 
+Marseille situation**: [Link](https://sports.yahoo.com/problem-certain-person-jean-pierre-143600409.html)
+- **Roberto De Zerbi: "I Have No Issues with Papin – Everything Written is 
+False and Fabricated"**: [Link](https://www.footboom1.com/en/news/football/2016889-roberto-de-zerbi-i-have-no-issues-with-papin-everything-written-is-false-and-fabricated)
+- **Jean-Pierre Papin Faces Conflict at Marseille: "It's Either Me or This 
+Person"**: [Link](https://www.footboom1.com/en/news/football/2016845-jean-pierre-papin-faces-conflict-at-marseille-it-s-either-me-or-this-person)
+
+
+### leon marchand (N/A, Sat, 2 Nov 2024 13:10:00 -0700)
+
+- **Coupe du monde (Singapour) | Léon Marchand, une nouvelle victoire sur le 
+400m 4 nages mais pas de nouveau record**: [Link](https://www.eurosport.fr/natation/coupe-du-monde-singapour-leon-marchand-une-nouvelle-victoire-sur-le-400m-4-nages-mais-pas-de-nouveau-record_sto20050482/story.shtml)
+- **Coupe du monde : Léon Marchand remporte le 400 m 4 nages à Singapour et 
+assoit un peu plus son hégémonie**: [Link](https://www.lequipe.fr/Natation/Actualites/Leon-marchand-remporte-le-400-m-4-nages-a-singapour-et-assoit-un-peu-plus-son-hegemonie/1517795)
+- **Natation: Léon Marchand pulvérise le record du monde du 200 m quatre nages**: [Link](https://sport.le360.ma/autres-sports/natation-leon-marchand-pulverise-le-record-du-monde-du-200-m-quatre-nages_OUYEBEPSMVHK3AHJWAK2AE6EAU/)
+
+
 ### dani carvajal (N/A, Sat, 2 Nov 2024 12:50:00 -0700)
 
 - **El lateral derecho a debate y examen: la aparición de Fortea con Alexander 
