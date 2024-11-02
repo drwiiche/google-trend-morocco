@@ -1,3 +1,11 @@
+### bayern – union berlin (N/A, Sat, 2 Nov 2024 06:40:00 -0700)
+
+- **FC Bayern gegen Union Berlin im Liveticker, Bundesliga-Konferenz: Fünf 
+Spiele**: [Link](https://www.focus.de/sport/fussball/bundesliga1/bundesliga-9-spieltag-konferenz-im-liveticker-fuenf-spiele-am-samstag_id_260446300.html)
+- **Bundesliga: Das sind die Aufstellungen der Samstagsspiele**: [Link](https://neunzigplus.de/bundesliga/bundesliga-lineups-sa-nm-7/)
+- **Schon gegen Mainz war's zu sehen: Neue Bayern-Stärke als Trumpf gegen Union**: [Link](https://www.fnp.de/sport/fussball/abstauben-so-wollen-die-bayern-gegen-union-berlin-drei-punkte-zr-93388107.html)
+
+
 ### osasuna – valladolid (N/A, Sat, 2 Nov 2024 05:20:00 -0700)
 
 - **(Previa) Osasuna busca Europa ante el Valladolid y el Girona alejar el 
