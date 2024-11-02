@@ -1,3 +1,17 @@
+### monza – ac milan (N/A, Sat, 2 Nov 2024 12:10:00 -0700)
+
+- **Paolo Berlusconi confirms Monza only paid ‘minor fee’ for Maldini to Milan**: [Link](https://sempremilan.com/berlusconi-monza-paid-minor-fee-maldini-milan)
+- **Tuttosport: Fonseca smiles as ‘driving force’ Pulisic returns to starting XI**: [Link](https://onefootball.com/en/news/tuttosport-fonseca-smiles-as-driving-force-pulisic-returns-to-starting-xi-40252683)
+- **Serie A Liveblog: Monza-Milan, Udinese-Juventus, Bologna-Lecce**: [Link](https://football-italia.net/serie-a-liveblog-monza-milan-udinese-juventus/)
+
+
+### brest – nice (N/A, Sat, 2 Nov 2024 12:10:00 -0700)
+
+- **DIRECT. Brest-Nice: suivez le match de la 10e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-brest-nice-suivez-le-match-de-la-10e-journee-de-ligue-1-en-live_LS-202411020352.html)
+- **Stade Brestois. Luck Zogbé de retour à l’entraînement . Sport**: [Link](https://dinan.maville.com/sport/detail_-stade-brestois.-luck-zogbe-de-retour-a-l-entrainement-_region-6533624_actu.Htm)
+- **Brest - Nice : Les compos (19h sur DAZN)**: [Link](https://www.foot01.com/ligue1/brest-nice-les-compos-19h-sur-dazn-444921)
+
+
 ### marcelo (N/A, Sat, 2 Nov 2024 11:50:00 -0700)
 
 - **Conflito entre Marcelo e Seu Treinador na Beira do Campo**: [Link](https://www.footboom1.com/br/news/football/2017860-marcelo-and-his-coach-clash-on-the-sidelines)
