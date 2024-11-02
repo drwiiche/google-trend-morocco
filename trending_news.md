@@ -1,3 +1,19 @@
+### grand prix bresil (N/A, Sat, 2 Nov 2024 03:20:00 -0700)
+
+- **GP Brésil : Piastri partira en tête de la course sprint devant Norris et 
+Leclerc**: [Link](https://www.eurosport.fr/formule-1/grand-prix-de-sao-paulo/2024/gp-bresil-piastri-partira-en-tete-de-la-course-sprint-devant-norris-et-leclerc_sto20050379/story.shtml)
+- **F1 : le programme TV du Grand Prix du Brésil 2024**: [Link](https://f1i.autojournal.fr/infos/saison-f1-2024/programme-tv-horaires-grand-prix-bresil-f1-2024-sao-paulo/)
+- **Piastri fait la pole du Sprint F1 à Interlagos devant Norris**: [Link](https://motorsport.nextgen-auto.com/fr/formule-1/piastri-fait-la-pole-du-sprint-f1-a-interlagos-devant-norris,195152.html)
+
+
+### mustafa fahmy (N/A, Sat, 2 Nov 2024 03:20:00 -0700)
+
+- **Egyptian Actor Mostafa Fahmy Passes Away at Age 82**: [Link](https://www.emirates247.com/lifestyle/egyptian-actor-mostafa-fahmy-passes-away-at-age-82-2024-10-30-1.734917)
+- **Mustafa Fahmy dies aged 82: Celebrated Egyptian actor had a TV and film 
+career spanning 50 years**: [Link](https://www.msn.com/en-ae/entertainment/other/mustafa-fahmy-dies-aged-82-celebrated-egyptian-actor-had-a-tv-and-film-career-spanning-50-years/ar-AA1tbbxt?ocid=BingNewsSerp)
+- **Celebrated Egyptian Actor Mustafa Fahmy Passes Away at 82**: [Link](https://egyptianstreets.com/2024/10/30/celebrated-egyptian-actor-mustafa-fahmy-passes-away-at-82/)
+
+
 ### tiger (N/A, Sat, 2 Nov 2024 00:20:00 -0700)
 
 - **Adam Driver, Jeremy Strong, Anne Hathaway Set For James Gray's 'Tiger'**: [Link](https://deadline.com/2024/11/adam-driver-jeremy-strong-anne-hathaway-james-gray-paper-tiger-hot-project-afm-1236164974/)
