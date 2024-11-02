@@ -1,3 +1,11 @@
+### pl (N/A, Sat, 2 Nov 2024 10:40:00 -0700)
+
+- **Kadrowicz Grbicia nie wstydził się tego wyznać i to tuż przed hitem 
+PlusLigi. "Tęsknię za nim"**: [Link](https://sport.interia.pl/siatkowka/ekstraklasa-mezczyzn/news-kadrowicz-grbicia-nie-wstydzil-sie-tego-wyznac-i-to-tuz-prze,nId,7848238)
+- **Bełchatowskie pszczoły utonęły w Warcie**: [Link](https://www.lodzkie.pl/strona-glowna/aktualnosci/be%C5%82chatowskie-pszczo%C5%82y-uton%C4%99%C5%82y-w-warcie)
+- **Efektowne zwycięstwo w hicie kolejki PlusLigi! Wielki powrót Bartosza Kwolka**: [Link](https://przegladsportowy.onet.pl/siatkowka/plusliga/efektowne-zwyciestwo-w-hicie-kolejki-plusligi-wielki-powrot-bartosza-kwolka/0lklr3f)
+
+
 ### botola (N/A, Sat, 2 Nov 2024 10:30:00 -0700)
 
 - **Botola Pro D1 : Programme de la 9è journée**: [Link](https://fr.hespress.com/394047-botola-pro-d1-programme-de-la-9e-journee.html)
