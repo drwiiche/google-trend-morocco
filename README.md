@@ -1,3 +1,10 @@
+### ajax – psv eindhoven (N/A, Sat, 2 Nov 2024 11:20:00 -0700)
+
+- **All About | PSV and Ajax exactly balanced prior to 166th official game**: [Link](https://www.psv.nl/en/media/artikel/alles-over-psv-en-ajax-precies-in-balans-voorafgaand-aan-166e-officiele-duel)
+- **Saturday's Eredivisie predictions including Ajax vs. PSV**: [Link](https://www.sportsmole.co.uk/football/willem-ii/eredivisie-predictions/feature/saturdays-eredivisie-predictions-including-ajax-vs-psv_557043.html)
+- **Ajax vs PSV: Match Preview and Prediction**: [Link](https://www.footboom1.com/en/news/football/2014323-ajax-vs-psv-match-preview-and-prediction)
+
+
 ### pl (N/A, Sat, 2 Nov 2024 10:40:00 -0700)
 
 - **Kadrowicz Grbicia nie wstydził się tego wyznać i to tuż przed hitem 
