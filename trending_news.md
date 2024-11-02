@@ -1,3 +1,27 @@
+### liverpool (N/A, Sat, 2 Nov 2024 09:00:00 -0700)
+
+- **Arne Slot update on Alisson Becker, Federico Chiesa and Diogo Jota fitness**: [Link](https://www.liverpoolfc.com/news/arne-slot-update-alisson-becker-federico-chiesa-and-diogo-jota-fitness)
+- **Liverpool suffer seismic double blow**: [Link](https://www.anfieldcentral.co.uk/liverpool-suffer-seismic-double-blow/)
+- **Who's Missing: Manchester City facing injury crisis, Arsenal without key 
+players**: [Link](https://www.flashscore.com/news/soccer-premier-league-who-s-missing-manchester-city-facing-injury-crisis-arsenal-without-key-players/KYYwowit/)
+
+
+### city (N/A, Sat, 2 Nov 2024 09:00:00 -0700)
+
+- **Indianapolis wanted to turn a closed school into an ‘Opportunity Hub.’ 
+That’s on hold now.**: [Link](https://www.chalkbeat.org/indiana/2024/10/31/indianapolis-withdraws-offer-to-buy-ips-john-marshall-school-building/)
+- **Deal to turn abandoned high school into community center falls through**: [Link](https://www.wrtv.com/news/local-news/deal-to-turn-abandoned-high-school-into-community-center-falls-through)
+- **Future of shuttered school building unclear after city withdraws offer to 
+buy it**: [Link](https://mirrorindy.org/city-withdraws-offer-to-buy-closed-school-building-john-marshall-far-eastside-indy/)
+
+
+### man city (N/A, Sat, 2 Nov 2024 08:50:00 -0700)
+
+- **Guardiola waits on injured stars**: [Link](https://www.mancity.com/news/mens/bournemouth-v-city-pep-guardiola-provides-injury-update-63866067)
+- **Guardiola’s worrying update hands Arsenal a Premier League title boost**: [Link](https://www.justarsenal.com/guardiolas-worrying-update-hands-arsenal-a-premier-league-title-boost/379418)
+- **Sources: New Savinho injury update emerges after Tottenham exit**: [Link](https://cityxtra.co.uk/20400/sources-new-savinho-injury-update-emerges-after-tottenham-exit/)
+
+
 ### paris-sg – lens (N/A, Sat, 2 Nov 2024 08:20:00 -0700)
 
 - **Le PSG enfonce le RC Lens**: [Link](https://www.footmercato.net/a4101201717287254981-le-psg-enfonce-le-rc-lens)
