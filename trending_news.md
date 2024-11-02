@@ -1,3 +1,12 @@
+### udinese – juventus (N/A, Sat, 2 Nov 2024 09:40:00 -0700)
+
+- **Koopmeiners e Yildiz tornano dal 1', conferma per Vlahovic. Ecco la Juve di 
+Udine**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/01-11-2024/juventus-la-probabile-formazione-di-thiago-motta-per-la-partita-con-l-udinese.shtml)
+- **Udinese, Nani: "Con la Juve grande occasione per rifarci"**: [Link](https://www.tuttoudinese.it/notizie/udinese-nani-con-la-juve-grande-occasione-per-rifarci-166228)
+- **Calcio Live News: Le formazioni ufficiali di Udinese-Juventus, il Bologna 
+vince 1-0 nel finale**: [Link](https://www.diretta.it/news/calcio-serie-a-calcio-live-news-le-formazioni-ufficiali-di-udinese-juventus-il-bologna-vince-1-0-nel-finale/8Qsfnl4S/)
+
+
 ### liverpool (N/A, Sat, 2 Nov 2024 09:00:00 -0700)
 
 - **Arne Slot update on Alisson Becker, Federico Chiesa and Diogo Jota fitness**: [Link](https://www.liverpoolfc.com/news/arne-slot-update-alisson-becker-federico-chiesa-and-diogo-jota-fitness)
