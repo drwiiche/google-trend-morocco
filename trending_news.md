@@ -1,3 +1,19 @@
+### بورنموث ضد مان سيتي (N/A, Sat, 2 Nov 2024 07:30:00 -0700)
+
+- **دي بروين على مقاعد بدلاء مانشستر سيتي أمام بورنموث**: [Link](https://www.kooora.com/?n=1365459)
+- **الرسم التكتيكي لـ مانشستر سيتي أمام بورنموث**: [Link](https://hihi2.com/2024/11/02/p2917787.html)
+- **بطولة إنكلترا - الدورة 10: البرنامج**: [Link](https://www.almountakhab.com/node/13206036)
+
+
+### bournemouth vs man city (N/A, Sat, 2 Nov 2024 07:30:00 -0700)
+
+- **Premier League AFC Bournemouth versus Manchester City kick off 15:00 Sat 2 
+Nov 2024**: [Link](https://www.bbc.com/sport/football/live/cwygp95enwrt)
+- **Pep Guardiola orders struggling Man City squad to 'play through the pain' 
+amid Kevin De Bruyne hope**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/pep-guardiola-orders-struggling-man-30279308)
+- **Bournemouth vs Man City live stream: How to watch Premier League game online**: [Link](https://www.tomsguide.com/entertainment/sports/watch-bournemouth-vs-man-city-live-stream-premier-league-24-25)
+
+
 ### bournemouth – manchester city (N/A, Sat, 2 Nov 2024 07:10:00 -0700)
 
 - **Walker returns as City make seven changes for Bournemouth trip**: [Link](https://www.mancity.com/news/mens/bournemouth-away-premier-league-team-news-tactics-63866147)
