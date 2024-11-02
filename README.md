@@ -1,3 +1,11 @@
+### botola (N/A, Sat, 2 Nov 2024 10:30:00 -0700)
+
+- **Botola Pro D1 : Programme de la 9è journée**: [Link](https://fr.hespress.com/394047-botola-pro-d1-programme-de-la-9e-journee.html)
+- **Botola Pro D1 Inwi: Berkane bat Tétouan et prend le large**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-berkane-bat-tetouan-et-prend-le-large_6JQZLCCGZ5BUXB25YPKVAFMFBU/)
+- **Botola : le WAC décidé à renouer avec la victoire face au FUS, l’AS FAR 
+défie Zemamra**: [Link](https://lematin.ma/sports/botola-le-wac-decide-a-renouer-avec-la-victoire-face-au-fus/249794)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Sat, 2 Nov 2024 09:50:00 -0700)
 
 - **تقييم لاعبو ليفربول بعد الفوز على برايتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/11/02/p2918099.html)
