@@ -1,3 +1,20 @@
+### roi felipe vi (N/A, Sun, 3 Nov 2024 10:30:00 -0800)
+
+- **Inondations en Espagne : les habitants de la région de Valence, de nouveau 
+en alerte rouge, appelés à rentrer chez eux**: [Link](https://www.lemonde.fr/planete/article/2024/11/03/inondations-en-espagne-les-habitants-de-la-region-de-valence-de-nouveau-en-alerte-rouge-appeles-a-rentrer-chez-eux_6373463_3245.html)
+- **"Assassins !" : le couple royal espagnol et Pedro Sanchez conspués par des 
+sinistrés en colère**: [Link](https://www.france24.com/fr/info-en-continu/20241103-espagne-les-inondations-ont-fait-213-morts-le-roi-attendu-sur-place)
+- **Liga : la journée de la honte**: [Link](https://www.footmercato.net/a1553461898612026852-liga-la-journee-de-la-honte)
+
+
+### sevilla vs real sociedad (N/A, Sun, 3 Nov 2024 10:30:00 -0800)
+
+- **How to watch today's Sevilla vs Real Sociedad La Liga game: Live stream, TV 
+channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-sevilla-vs-real-sociedad-la-liga-game-live-stream-tv-channel-start-time/bltdf05c8cb0969231f)
+- **The Silent Danger of Real Sociedad: An Awkward Visitor**: [Link](https://www.footboom1.com/en/news/football/2015841-the-silent-danger-of-real-sociedad-an-awkward-visitor)
+- **Real Sociedad vs. Sevilla FC Prediction, Picks, Live Odds - November 3**: [Link](https://www.bleachernation.com/picks/2024/11/03/real-sociedad-vs-sevilla-fc-prediction-picks-live-odds-november-3/)
+
+
 ### fc barcelone (N/A, Sun, 3 Nov 2024 07:30:00 -0800)
 
 - **FC Barcelone 3-1 Espanyol Barcelone, La Liga : le Barça sans trembler face 
