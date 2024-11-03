@@ -1,3 +1,13 @@
+### inter milan (N/A, Sun, 3 Nov 2024 13:50:00 -0800)
+
+- **Dimarco: Venezia have ‘quality’ and ‘confidence’, Inter expected ‘difficult 
+season’**: [Link](https://football-italia.net/dimarco-inter-venezia-difficult-season/)
+- **Inter Milan Coach Denies Having One Eye On Serie A Rivals Napoli Losing To 
+Atalanta: ‘We Focused On Training’ For Venezia Clash**: [Link](https://sempreinter.com/2024/11/03/inzaghi-denies-having-one-eye-napoli-loss-ahead-of-inter-venezia/)
+- **Revealed – When Canada & Albania Stars Targeting Returns For Inter Milan 
+With Arsenal & Napoli Clashes Looming**: [Link](https://onefootball.com/de/news/revealed-when-canada-albania-stars-targeting-returns-for-inter-milan-with-arsenal-napoli-clashes-looming-40257258)
+
+
 ### guinée équatoriale (N/A, Sun, 3 Nov 2024 12:50:00 -0800)
 
 - **Affaire Ebang Engonga: le scandale sexuel qui secoue la Guinée équatoriale**: [Link](https://lanouvelletribune.info/2024/11/affaire-ebang-engonga-le-scandale-sexuel-qui-secoue-la-guinee-equatoriale/)
