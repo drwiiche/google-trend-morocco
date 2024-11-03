@@ -1,3 +1,26 @@
+### barca (N/A, Sun, 3 Nov 2024 08:20:00 -0800)
+
+- **Spanish La Liga Barcelona 2 Espanyol 0 31 minutes played. In progress**: [Link](https://www.bbc.com/sport/football/live/c30pd96nqent)
+- **FC Barcelona - RCD Espanyol live: La Liga - Football**: [Link](https://www.eurosport.com/football/la-liga/2024-2025/live-fc-barcelona-rcd-espanyol_mtc1524128/live-commentary.shtml)
+- **La Liga Soccer Livestream: How to Watch Barcelona vs. Espanyol From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-barcelona-vs-espanyol-from-anywhere/)
+
+
+### barca match (N/A, Sun, 3 Nov 2024 08:20:00 -0800)
+
+- **Valencia floods: La Liga managers criticise decision to play weekend games**: [Link](https://www.bbc.com/sport/football/articles/czj7nnd9lkdo)
+- **Why Aren’t Real Madrid and Valencia Playing?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/why-aren-t-real-madrid-and-valencia-playing-2024-11-02)
+- **Barcelona ready for Espanyol but Flick wants sport suspended due to deadly 
+Valencia floods**: [Link](https://www.flashscore.com/news/soccer-laliga-barcelona-ready-for-espanyol-but-flick-wants-sport-suspended-due-to-deadly-valencia-floods/OSxIXrqm/)
+
+
+### fcb (N/A, Sun, 3 Nov 2024 08:10:00 -0800)
+
+- **Men's Ballon d'Or: Full List of Winners**: [Link](https://www.si.com/soccer/men-s-ballon-d-or-full-list-of-winners)
+- **Guardiola congratulates Rodrigo on Ballon d’Or win**: [Link](https://www.mancity.com/news/mens/pep-guardiola-rodrigo-ballon-dor-reaction-63865795)
+- **Ballon d'Or 2024 Live Streaming Award Ceremony Live Telecast: When And 
+Where To Watch**: [Link](https://sports.ndtv.com/football/ballon-dor-2024-live-streaming-award-ceremony-live-telecast-when-and-where-to-watch-6891921)
+
+
 ### toulouse – reims (N/A, Sun, 3 Nov 2024 08:00:00 -0800)
 
 - **DIRECT. Toulouse-Reims (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/toulouse-reims-live/655940)
