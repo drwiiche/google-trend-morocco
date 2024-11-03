@@ -1,3 +1,11 @@
+### tottenham – aston villa (N/A, Sun, 3 Nov 2024 05:10:00 -0800)
+
+- **Tottenham drop Richarlison team news hint for Aston Villa clash as Dominic 
+Solanke decision made**: [Link](https://www.football.london/tottenham-hotspur-fc/news/tottenham-drop-richarlison-team-news-30286601)
+- **Villa’s Premier League Test at Spurs: Key Battles and How to Watch**: [Link](https://onefootball.com/en/news/villas-premier-league-test-at-spurs-key-battles-and-how-to-watch-40256932)
+- **Villa boss Emery: Intelligent market work key to success here**: [Link](https://www.tribalfootball.com/article/soccer-champions-league-villa-boss-emery-intelligent-market-work-key-to-success-here-49724f92-fceb-4fde-9056-ce4807a3585d)
+
+
 ### أتلتيكو مدريد ضد لاس بالماس (N/A, Sun, 3 Nov 2024 04:50:00 -0800)
 
 - **سيميوني: تنتظرنا مباراة خطيرة**: [Link](https://www.kooora.com/?n=1365464)
