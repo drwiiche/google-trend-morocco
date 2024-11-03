@@ -1,3 +1,11 @@
+### novi sad (N/A, Sun, 3 Nov 2024 01:00:00 -0800)
+
+- **Hundreds hold vigil for victims of roof collapse in northern Serbian city**: [Link](https://apnews.com/article/serbia-roof-collapse-rescue-mourning-66adec34537a93b2c9b73285a0017511)
+- **BiH Security Minister expressed his Condolence to Authorities and Citizens 
+of Serbia**: [Link](https://sarajevotimes.com/bih-security-minister-expressed-his-condolence-to-authorities-and-citizens-of-serbia/)
+- **The rescue operation in Novi Sad ended, 14 dead and 3 injured**: [Link](https://kosovapress.com/en/article?id=572717)
+
+
 ### léon marchand (N/A, Sun, 3 Nov 2024 00:30:00 -0700)
 
 - **Coupe du monde (Singapour) | Léon Marchand, une nouvelle victoire sur le 
