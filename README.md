@@ -1,3 +1,11 @@
+### f1 gp bresil (N/A, Sun, 3 Nov 2024 12:00:00 -0800)
+
+- **Grand Prix de Sao Paulo | De 44 à 62 points d'avance sur Norris : 
+Verstappen file vers un 4e titre**: [Link](https://www.eurosport.fr/formule-1/grand-prix-de-sao-paulo/2024/grand-prix-de-sao-paulo-de-44-a-62-points-davance-sur-norris-verstappen-file-vers-un-4e-titre_sto20050887/story.shtml)
+- **Grand Prix de São Paulo 2024 de formule 1, résumé de la course**: [Link](https://www.lequipe.fr/Formule-1/course-en-direct/grand-prix-de-sao-paulo-2024/course-live/1250)
+- **F1: Max Verstappen remporte le GP du Brésil**: [Link](https://www.h24info.ma/f1-max-verstappen-remporte-le-gp-du-bresil/)
+
+
 ### ath. bilbao – betis (N/A, Sun, 3 Nov 2024 11:10:00 -0800)
 
 - **Once del Athletic: A por la quinta plaza con Djaló en San Mamés**: [Link](https://www.eldesmarque.com/futbol/athletic-club/20241103/once-confirmado-athletic-betis-san-mames_300487215.html)
