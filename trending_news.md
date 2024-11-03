@@ -1,3 +1,10 @@
+### guinée équatoriale (N/A, Sun, 3 Nov 2024 12:50:00 -0800)
+
+- **Affaire Ebang Engonga: le scandale sexuel qui secoue la Guinée équatoriale**: [Link](https://lanouvelletribune.info/2024/11/affaire-ebang-engonga-le-scandale-sexuel-qui-secoue-la-guinee-equatoriale/)
+- **Affaire de s3xtape en Guinée Équatoriale : plus de 200 femmes dont des 
+personnalités seraient…**: [Link](https://yop.l-frii.com/affaire-de-s3xtape-en-guinee-equatoriale-plus-de-200-femmes-dont-des-personnalites-seraient/)
+
+
 ### athletic club vs real betis (N/A, Sun, 3 Nov 2024 12:10:00 -0800)
 
 - **Preview: Athletic Bilbao vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/preview/preview-athletic-bilbao-vs-betis-prediction-team-news-lineups_557105.html)
