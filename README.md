@@ -1,3 +1,18 @@
+### أتلتيكو مدريد ضد لاس بالماس (N/A, Sun, 3 Nov 2024 04:50:00 -0800)
+
+- **سيميوني: تنتظرنا مباراة خطيرة**: [Link](https://www.kooora.com/?n=1365464)
+- **بث مباشر مباراة أتلتيكو مدريد ولاس بالماس في الدوري الإسباني**: [Link](https://aboutmsr.com/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%84%D8%A7%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%A7%D8%B3/)
+- **القنوات الناقلة لمباراة أتلتيكو مدريد ولاس بالماس اليوم في الدوري الإسباني 
+مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/243861219486040-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%84%D8%A7%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%A7%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### napoli vs atalanta (N/A, Sun, 3 Nov 2024 04:50:00 -0800)
+
+- **Napoli-Atalanta 0-2 (Lookman 10', 31'): finisce il primo tempo**: [Link](https://www.tuttonapoli.net/in-primo-piano/napoli-atalanta-0-2-lookman-10-31-finisce-il-primo-tempo-592084)
+- **Lukaku o Retegui, chi è il più forte? I numeri (per ora) parlano chiaro**: [Link](https://www.areanapoli.it/campionato/lukaku-o-retegui-chi-e-il-pia-forte-i-numeri-per-ora-parlano-chiaro_569557.html)
+- **NAPOLI, FOLORUNSHO NON VA NEMMENO IN PANCHINA**: [Link](https://www.sportmediaset.mediaset.it/calcio/napoli-folorunsho-non-va-nemmeno-in-panchina_89768709-202402k.shtml)
+
+
 ### bourita (N/A, Sun, 3 Nov 2024 04:40:00 -0800)
 
 - **Bourita : « Le Maroc n’intervient pas dans les relations que d’autres pays 
