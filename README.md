@@ -1,3 +1,22 @@
+### manchester united (N/A, Sun, 3 Nov 2024 08:50:00 -0800)
+
+- **Manchester United: Ruud van Nistelrooy has no issue with former team-mates' 
+complaints**: [Link](https://www.bbc.com/sport/football/articles/cj4v5x5dq7ro)
+- **Why Ruben Amorim must SACK Ruud van Nistelrooy now to have any chance of 
+fixing Man Utd ‘s***show’...**: [Link](https://www.thesun.co.uk/sport/31461363/ruben-amorim-man-utd-van-nistelrooy-deeney/)
+- **Who will be MUFC manager in Manchester United vs Chelsea Premier League 
+match?**: [Link](https://sportstar.thehindu.com/football/who-will-be-mufc-manager-in-manchester-united-vs-chelsea-premier-league-mun-v-che-latest-updates/article68826037.ece)
+
+
+### pedro sanchez (N/A, Sun, 3 Nov 2024 08:50:00 -0800)
+
+- **Última hora de la dana, en directo | Los Reyes, Sánchez y Mazón, increpados 
+al grito de “asesinos” durante su visita a Paiporta**: [Link](https://elpais.com/espana/2024-11-03/ultima-hora-de-la-dana-en-directo.html)
+- **La impactante reacción de la Reina Letizia cubierta de lodo ante los 
+insultos del pueblo**: [Link](https://as.com/videos/actualidad/la-impactante-reaccion-de-la-reina-letizia-cubierta-de-lodo-ante-los-graves-insultos-del-pueblo-v/)
+- **Paiporta: Gritos y lanzamiento de barro a los reyes, Sánchez y Mazón**: [Link](https://www.rtve.es/noticias/20241102/gritos-barro-reyes-sanchez-mazon-visita-paiporta-chiva-valencia-dana/16313696.shtml)
+
+
 ### séville – real sociedad (N/A, Sun, 3 Nov 2024 08:40:00 -0800)
 
 - **Pronostic Séville - Real Sociedad, Liga**: [Link](https://www.sportytrader.com/pronostics/seville-real-sociedad-225226/)
