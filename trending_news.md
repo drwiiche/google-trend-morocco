@@ -1,3 +1,47 @@
+### bourita (N/A, Sun, 3 Nov 2024 04:40:00 -0800)
+
+- **Bourita : « Le Maroc n’intervient pas dans les relations que d’autres pays 
+entretiennent avec l’Algérie »**: [Link](https://fr.hespress.com/394194-bourita-le-maroc-nintervient-pas-dans-les-relations-que-dautres-pays-entretiennent-avec-lalgerie.html)
+- **Un président à Rabat : au royaume des mille royaumes**: [Link](https://mobile.telquel.ma/2024/11/01/un-president-a-rabat-au-royaume-des-mille-royaumes_1902415)
+- **ROUNDUP. Une quarantaine d'accords signés à l'issue de la visite d'État 
+d'Emmanuel Macron (Infographies)**: [Link](https://medias24.com/2024/11/01/maroc-france-une-quarantaine-daccords-signes-a-lissue-de-la-visite-detat-demmanuel-macron-infographies/)
+
+
+### napoli (N/A, Sun, 3 Nov 2024 04:40:00 -0800)
+
+- **Sacchi: "Il perfezionismo di Conte e il Sistema di Gasp, vi racconto 
+Napoli-Atalanta"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Napoli/03-11-2024/sacchi-su-napoli-atalanta-conte-contro-gasperini.shtml)
+- **La sfida dei centravanti: Lukaku partecipa a un gol ogni 71', l'unico a 
+fare meglio è... Retegui**: [Link](https://www.tuttonapoli.net/rassegna-stampa/la-sfida-dei-centravanti-lukaku-partecipa-a-un-gol-ogni-71-l-unico-a-fare-meglio-e-retegui-592074)
+- **DIRETTA NAPOLI-ATALANTA Frana Gomme Madone 0-1 (9' Lookman)**: [Link](https://www.tuttoatalanta.com/primo-piano/diretta-napoli-atalanta-i-frana-gomme-madone-i-0-1-9-lookman-109166)
+
+
+### f1 (N/A, Sun, 3 Nov 2024 04:20:00 -0800)
+
+- **LIVE COVERAGE: Follow all the action from qualifying for the Sao Paulo 
+Grand Prix | Formula 1®**: [Link](https://www.formula1.com/en/latest/article/live-coverage-qualifying-in-brazil-2024-sunday.4RrMWmxQVqbGHcnzJNySU8)
+- **Adjusted starting grid for 2024 F1 Brazilian Grand Prix Sprint after 
+multiple penalties**: [Link](https://racingnews365.com/starting-grid-for-2024-f1-brazilian-grand-prix)
+- **Brazilian GP 2024: Qualifying moved to Sunday after heavy rain**: [Link](https://www.bbc.com/sport/formula1/articles/cdd0ey1v5j9o)
+
+
+### atlético madrid – las palmas (N/A, Sun, 3 Nov 2024 04:10:00 -0800)
+
+- **Atlético de Madrid - Las Palmas, en directo el partido de la jornada 12 de 
+Liga**: [Link](https://www.rtve.es/deportes/20241103/atletico-madrid-las-palmas-directo-resumen-resultado-liga/16308600.shtml)
+- **El día de la marmota en el Metropolitano**: [Link](https://as.com/opinion/el-dia-de-la-marmota-en-el-metropolitano-n/)
+- **Diego Martínez: “Tenemos que ser el equipo de los últimos partidos”**: [Link](https://efe.com/canarias/2024-11-02/diego-martinez-tenemos-que-ser-el-equipo-de-los-ultimos-partidos/)
+
+
+### حنان ترك (N/A, Sun, 3 Nov 2024 04:00:00 -0800)
+
+- **حنان ترك ترفض الاحتفال بـ"الهالوين" وتترك رسالة على باب منزلها في الولايات 
+المتحدة**: [Link](https://ar.hibapress.com/details-569575.html)
+- **حنان ترك تشعل تفاعلا بفيديو جديد بعد رسالة لجيرانها بالهالوين**: [Link](https://arabic.cnn.com/entertainment/article/2024/11/03/hanan-tork-video-viral-halloween-letter-neighbors)
+- **النشرة الصباحية من «المصري اليوم».. سعر الذهب والدولار وحالة الطقس السبت.. 
+وحنان ترك تثير الجدل بشأن الاحتفال بالهالوين.. ما القصة؟**: [Link](https://www.almasryalyoum.com/news/details/3296737)
+
+
 ### المسيرة الخضراء (N/A, Sun, 3 Nov 2024 04:00:00 -0800)
 
 
