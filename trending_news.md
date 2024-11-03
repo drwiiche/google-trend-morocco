@@ -1,3 +1,28 @@
+### toulouse – reims (N/A, Sun, 3 Nov 2024 08:00:00 -0800)
+
+- **DIRECT. Toulouse-Reims (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/toulouse-reims-live/655940)
+- **Suivez le multiplex de la 7ème journée de Ligue 1 2024-2025**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/live-toulouse-fc-stade-de-reims_mtc1526133/live-commentary.shtml)
+- **Carles Martinez Novell : “On a envie de retrouver ce sentiment de joie 
+toutes les semaines”**: [Link](https://www.lesviolets.com/actu/carles-martinez-novell-on-a-envie-de-retrouver-ce-sentiment-de-joie-toutes-les-semaines,74362.html)
+
+
+### nasser bourita (N/A, Sun, 3 Nov 2024 07:50:00 -0800)
+
+- **Bourita : « Le Maroc n’intervient pas dans les relations que d’autres pays 
+entretiennent avec l’Algérie »**: [Link](https://fr.hespress.com/394194-bourita-le-maroc-nintervient-pas-dans-les-relations-que-dautres-pays-entretiennent-avec-lalgerie.html)
+- **Un président à Rabat : au royaume des mille royaumes**: [Link](https://mobile.telquel.ma/2024/11/01/un-president-a-rabat-au-royaume-des-mille-royaumes_1902415)
+- **ROUNDUP. Une quarantaine d'accords signés à l'issue de la visite d'État 
+d'Emmanuel Macron (Infographies)**: [Link](https://medias24.com/2024/11/01/maroc-france-une-quarantaine-daccords-signes-a-lissue-de-la-visite-detat-demmanuel-macron-infographies/)
+
+
+### adam aznou (N/A, Sun, 3 Nov 2024 07:50:00 -0800)
+
+- **FC Bayern: Überraschend! Welcher Star für Debütant Aznou die größte Hilfe 
+ist**: [Link](https://www.bild.de/sport/fussball/fc-bayern-ueberraschend-welcher-star-fuer-debuetant-aznou-die-groesste-hilfe-ist-67277b02048fa103a43bf50e)
+- **Adam Aznou: Aus Barças Talentschmiede zum Bayern-Profi**: [Link](https://www.gn-online.de/sportwelt/adam-aznou-aus-barcas-talentschmiede-zum-bayern-profi-555478.html)
+- **"Extrem großes Talent" - Großes Lob für Bayern-Youngster**: [Link](https://www.msn.com/de-de/sport/fussball/extrem-gro%C3%9Fes-talent-gro%C3%9Fes-lob-f%C3%BCr-bayern-youngster/ar-AA1tqfhY)
+
+
 ### manchester united – chelsea (N/A, Sun, 3 Nov 2024 07:40:00 -0800)
 
 - **'They're just lazy' - Paul Merson and Alan Shearer disagree with Man United 
