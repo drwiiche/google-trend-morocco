@@ -1,3 +1,17 @@
+### wac (N/A, Sun, 3 Nov 2024 10:50:00 -0800)
+
+- **WAC Men's Basketball TV Schedule & Live Stream Links - Monday, November 4**: [Link](https://www.sfgate.com/sports/watching-games/article/wac-mens-basketball-live-stream-11-4-2024-19884260.php)
+- **Tarleton Soccer embarks on first WAC Tournament match against CBU on Sunday**: [Link](https://tarletonsports.com/news/2024/11/2/womens-soccer-tarleton-soccer-embarks-on-first-wac-tournament-match-against-cbu-on-sunday.aspx)
+- **Wildcats End Season in Stephenville**: [Link](https://acusports.com/news/2024/10/26/womens-soccer-wildcats-end-season-in-stephenville.aspx)
+
+
+### wydad (N/A, Sun, 3 Nov 2024 10:50:00 -0800)
+
+- **Nabila Rmili s’excuse auprès des supporters du Wydad et du Raja**: [Link](https://www.lesiteinfo.com/sport/631406-nabila-rmili-sexcuse-aupres-des-supporters-du-wydad-et-du-raja.html)
+- **Botola: La Renaissance de Berkane bat le Moghreb Tétouan**: [Link](https://fr.hespress.com/394209-botola-la-renaissance-de-berkane-bat-le-moghreb-tetouan.html)
+- **Botola Pro D1 Inwi: Le CODM tient en échec le Raja**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-codm-tient-en-echec-le-raja_UUVPSXIJ4FE37LUSCUF3PAIQM4/)
+
+
 ### roi felipe vi (N/A, Sun, 3 Nov 2024 10:30:00 -0800)
 
 - **Inondations en Espagne : les habitants de la région de Valence, de nouveau 
