@@ -1,3 +1,18 @@
+### x (N/A, Sat, 2 Nov 2024 20:20:00 -0700)
+
+- **Were Bad Bunny and Ricky Martin really shadow banned by Instagram and X?**: [Link](https://www.vox.com/culture/381925/instagram-shadow-ban-political-election-posts-ricky-martin-bad-bunny-twitter-x-censorship)
+- **Election officials are outmatched by Elon Musk’s misinformation machine**: [Link](https://www.cnn.com/2024/10/31/politics/election-officials-outmatched-elon-musk-misinformation/index.html)
+- **Top election official says colleagues gave Elon Musk ‘hand-delivered’ notes 
+to stop him from spreading misinformation**: [Link](https://fortune.com/2024/11/01/election-official-elon-musk-hand-delivered-note-misinformation-donald-trump/)
+
+
+### mls (N/A, Sat, 2 Nov 2024 18:10:00 -0700)
+
+- **Minnesota United vs Real Salt Lake: How to watch, stream Round One Game 2**: [Link](https://www.mlssoccer.com/news/minnesota-united-vs-real-salt-lake-how-to-watch-stream-round-one-game-2)
+- **Real Salt Lake Still Alive After Emeka Eneli Goal**: [Link](https://kslsports.com/529793/emeka-eneli-gives-real-salt-lake-life-with-second-half-goal/)
+- **Loons plan to stay defense-first in order to sweep RSL**: [Link](https://fieldlevelmedia.com/mls/loons-plan-to-stay-defense-first-in-order-to-sweep-rsl/)
+
+
 ### six (N/A, Sat, 2 Nov 2024 18:10:00 -0700)
 
 - **Jason Kelce Smashes College Football Fan's Phone After They Called Brother 
