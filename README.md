@@ -1,3 +1,47 @@
+### ath. bilbao – betis (N/A, Sun, 3 Nov 2024 11:10:00 -0800)
+
+- **Once del Athletic: A por la quinta plaza con Djaló en San Mamés**: [Link](https://www.eldesmarque.com/futbol/athletic-club/20241103/once-confirmado-athletic-betis-san-mames_300487215.html)
+- **Partidazo catedralicio por los puestos Champions de LaLiga**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/partidazo-catedralicio-puestos-champions-laliga-20241103190942-nts.html)
+- **Valverde repite por tercera vez convocatoria con 25 jugadores y la única 
+baja de Simón**: [Link](https://www.infobae.com/espana/agencias/2024/11/02/valverde-repite-por-tercera-vez-convocatoria-con-25-jugadores-y-la-unica-baja-de-simon/)
+
+
+### nantes – marseille (N/A, Sun, 3 Nov 2024 11:10:00 -0800)
+
+- **OM : le groupe pour le déplacement à Nantes**: [Link](https://www.footmercato.net/a8419893171718216042-om-le-groupe-pour-le-deplacement-a-nantes)
+- **Marseille – Nantes : Lien streaming, chaîne tv pour regarder le match ?**: [Link](https://www.webmanagercenter.com/2024/11/03/533487/marseille-nantes-lien-streaming-chaine-tv-pour-regarder-le-match-2/)
+- **Nantes-OM : le onze de départ de l'OM**: [Link](https://www.lephoceen.fr/infos-om/autour-de-l-om/nantes-om-le-onze-de-depart-de-l-om-220264)
+
+
+### inter – venezia (N/A, Sun, 3 Nov 2024 11:10:00 -0800)
+
+- **Inter, la formazione: cosa filtra su Thuram, Calhanoglu, Sommer e Mkhitaryan**: [Link](https://www.sosfanta.com/news/inter-la-formazione-cosa-filtra-su-thuram-calhanoglu-sommer-e-mkhitaryan/)
+- **Venezia, Haps a DAZN : "Giocare a San Siro è meraviglioso, daremo tutto"**: [Link](https://www.fcinternews.it/l-avversario/venezia-haps-a-i-dazn-i-giocare-a-san-siro-e-meraviglioso-daremo-tutto-967721)
+- **I titolarissimi oggi, i cambi con l'Arsenal. Inzaghi gestirà così la rosa**: [Link](https://www.linterista.it/news/i-titolarissimi-oggi-i-cambi-con-l-arsenal-inzaghi-gestira-cosi-la-rosa-140509)
+
+
+### botola pro (N/A, Sun, 3 Nov 2024 11:00:00 -0800)
+
+- **Raja Stumbles Against CODM, RSB Strengthens Its Position**: [Link](https://www.footboom1.com/en/news/football/2021173-raja-stumbles-against-codm-rsb-strengthens-its-position)
+- **Exciting Draw Between Raja and CODM in Moroccan League**: [Link](https://fesnews.media/291039/2024/11/02/)
+
+
+### van nistelrooy (N/A, Sun, 3 Nov 2024 10:00:00 -0800)
+
+- **Ruud van Nistelrooy ready for criticism from ex-Manchester United teammates**: [Link](https://www.theguardian.com/football/2024/nov/02/ruud-van-nistelrooy-ready-for-criticism-from-ex-manchester-united-teammates)
+- **Every word from Ruud's press conference: Part two**: [Link](https://www.manutd.com/en/news/detail/ruud-van-nistelrooy-press-conference-part-two-ahead-of-man-utd-v-chelsea)
+- **Amorim told solving Man Utd 's***show' begins with sacking Ten Hag deputy 
+and 'clearing the decks'**: [Link](https://www.football365.com/news/amorim-told-solving-man-utd-show-begins-sacking-ten-hag-deputy-clearing-decks)
+
+
+### diego simeone (N/A, Sun, 3 Nov 2024 09:40:00 -0800)
+
+- **Atlético 2-0 Las Palmas (Nov 3, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704777)
+- **European football roundup: Simeone’s son scores for Atlético, Napoli 
+thrashed**: [Link](https://www.theguardian.com/football/2024/nov/03/european-football-roundup-simeone-son-atletico-napoli-barcelona-inter)
+- **🚨 Atlético Madrid beat Las Palmas to continue unbeaten home record**: [Link](https://sports.yahoo.com/atl-tico-madrid-beat-las-150300851.html)
+
+
 ### wac (N/A, Sun, 3 Nov 2024 10:50:00 -0800)
 
 - **WAC Men's Basketball TV Schedule & Live Stream Links - Monday, November 4**: [Link](https://www.sfgate.com/sports/watching-games/article/wac-mens-basketball-live-stream-11-4-2024-19884260.php)
