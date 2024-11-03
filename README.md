@@ -1,3 +1,18 @@
+### barcelone – espanyol (N/A, Sun, 3 Nov 2024 06:20:00 -0800)
+
+- **Barcelona squad named for Espanyol**: [Link](https://www.barcablaugranes.com/2024/11/3/24285772/barcelona-espanyol-la-liga-team-news-squad-list)
+- **FCBN cover 11/3/2024: MONTJUIC WILL HAVE A DERBY AGAIN**: [Link](https://www.fcbarcelonanoticias.com/en/football-covers/cover-fcbn-3-11-2024-montjuic-volvera-live-derbi_308358_102.html)
+- **La Liga Soccer Livestream: How to Watch Barcelona vs. Espanyol From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-barcelona-vs-espanyol-from-anywhere/)
+
+
+### barcelona vs espanyol (N/A, Sun, 3 Nov 2024 06:20:00 -0800)
+
+- **Barcelona - Espanyol en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/barcelona-espanyol/2024/11/03/01_0101_20241103_178_177-directo.html)
+- **Lista del Barça para el derbi: solo un cambio respecto al Clásico**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241103/1002346108/lista-barca-derbi-cambio-respecto-clasico.html)
+- **FC Barcelona | El Barça se entrena sin Eric Garcia, pero con la perla que 
+birló al Madrid**: [Link](https://www.sport.es/es/noticias/barca/barca-entrena-eric-garcia-perla-111204900)
+
+
 ### atletico madrid (N/A, Sun, 3 Nov 2024 06:00:00 -0800)
 
 - **‘Alone against the world’ - Arrival from Manchester City is ‘increasingly 
