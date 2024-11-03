@@ -1,3 +1,10 @@
+### أتلتيك بيلباو ضد ريال بتيس (N/A, Sun, 3 Nov 2024 11:30:00 -0800)
+
+- **بالصور: بيلباو يفرض التعادل على ريال بيتيس**: [Link](https://m.kooora.com/?n=1365845&o=n27345)
+- **بلباو وبيتيس يعطلان بعضهما بالتعادل في الدوري الإسباني**: [Link](https://www.yallakora.com/la-liga/2907/news/488913/%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%B9%D8%B7%D9%84%D8%A7%D9%86-%D8%A8%D8%B9%D8%B6%D9%87%D9%85%D8%A7-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A)
+- **اهداف مباراة ريال بيتيس واتلتيك بلباو (1-1) الدوري الاسباني**: [Link](https://www.btolat.com/video/81470)
+
+
 ### inter milan (N/A, Sun, 3 Nov 2024 13:50:00 -0800)
 
 - **Dimarco: Venezia have ‘quality’ and ‘confidence’, Inter expected ‘difficult 
