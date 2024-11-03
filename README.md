@@ -1,3 +1,34 @@
+### séville – real sociedad (N/A, Sun, 3 Nov 2024 08:40:00 -0800)
+
+- **Pronostic Séville - Real Sociedad, Liga**: [Link](https://www.sportytrader.com/pronostics/seville-real-sociedad-225226/)
+- **Le Danger Silencieux de la Real Sociedad : Un Visiteur Maladroit**: [Link](https://www.footboom1.com/fr/news/football/2015841-the-silent-danger-of-real-sociedad-an-awkward-visitor)
+- **DIRECT. Séville FC-Real Sociedad (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/seville-fc-real-sociedad-live/657396)
+
+
+### man united (N/A, Sun, 3 Nov 2024 08:40:00 -0800)
+
+- **Inside the deal to appoint Ruben Amorim as Manchester United head coach - 
+The Athletic**: [Link](https://www.nytimes.com/athletic/5891147/2024/11/02/amorim-manchester-united-coach-inside-deal/)
+- **Ruben Amorim wants to bring £70m Ousmane Diomande with him to Man Utd in 
+transfer for one of Europe’s mo...**: [Link](https://www.thesun.co.uk/sport/31448009/ruben-amorim-ousmane-diomande-man-utd-transfer/)
+- **Football gossip: Diomande, Gyokeres, Vinicius, Gerrard, Sane**: [Link](https://www.bbc.com/sport/football/articles/c20n180w0nlo)
+
+
+### dani olmo (N/A, Sun, 3 Nov 2024 08:10:00 -0800)
+
+- **VIDEO: Dani Olmo marca el primer gol del Barcelona ante el Espanyol**: [Link](https://www.directvsports.com/futbol/VIDEO-Dani-Olmo-marca-el-primer-gol-del-Barcelona-ante-el-Espanyol-20241103-0036.html)
+- **Lamine y Casadó compitieron por dar la asistencia de la jornada**: [Link](https://es.besoccer.com/noticia/lamine-y-casado-compitieron-por-dar-la-asistencia-de-la-jornada-1336463)
+- **Ni Lamine ni Lewandowski: los fichajes de Deco que destrozan al Espanyol en 
+media hora**: [Link](https://cronicaglobal.elespanol.com/culemania/primer-equipo/20241103/ni-lamine-lewandowski-fichajes-deco-destrozan-espanyol/898410181_0.html)
+
+
+### man united vs chelsea (N/A, Sun, 3 Nov 2024 07:50:00 -0800)
+
+- **Man Utd vs Chelsea predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.co.uk/sport/football/articles/cvge5478z75o)
+- **Chris Sutton's Premier League predictions v The Piano winner Brad Kella**: [Link](https://www.bbc.com/sport/football/articles/clyj53j4dyro)
+- **Sutton's predictions: Man Utd v Chelsea**: [Link](https://www.aol.com/suttons-predictions-man-utd-v-110339211.html)
+
+
 ### olmo (N/A, Sun, 3 Nov 2024 08:30:00 -0800)
 
 - **WATCH: Dani Olmo at the double as Barcelona go 3-0 up against Espanyol**: [Link](https://ca.sports.yahoo.com/news/watch-dani-olmo-double-barcelona-155500566.html)
