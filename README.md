@@ -1,3 +1,19 @@
+### athletic club vs real betis (N/A, Sun, 3 Nov 2024 12:10:00 -0800)
+
+- **Preview: Athletic Bilbao vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/preview/preview-athletic-bilbao-vs-betis-prediction-team-news-lineups_557105.html)
+- **Valverde: "Betis Start Strong in Matches and We Must Stay Alert"**: [Link](https://www.footboom1.com/en/news/football/2018049-valverde-betis-start-strong-in-matches-and-we-must-stay-alert)
+- **Athletic Bilbao vs Betis Prediction, 11/3/2024 La Liga Soccer Pick, Tips 
+and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/athletic-bilbao-vs-betis-prediction-11-3-2024-la-liga-soccer-pick-tips-and-odds.html)
+
+
+### fenerbahçe (N/A, Sun, 3 Nov 2024 11:10:00 -0800)
+
+- **Simon Banza: "Bu güzel şehir için savaşmaya devam edeceğiz"**: [Link](https://www.ntvspor.net/futbol/simon-banza-bu-guzel-sehir-icin-savasmaya-devam-edecegiz-6727d56d7c338f03f75e54b4)
+- **Mourinho: "Bana göre en büyük skandal..."**: [Link](https://beinsports.com.tr/haber/mourinho-bana-gore-en-buyuk-skandal)
+- **90+12'de gelen mağlubiyet sonrası Şenol Güneş: Hak edeceğimiz bir galibiyet 
+alacakken kaybettik**: [Link](https://gazeteoksijen.com/spor/9012de-gelen-maglubiyet-sonrasi-senol-gunes-hak-edecegimiz-bir-galibiyet-alacakken-kaybettik-227146)
+
+
 ### f1 gp bresil (N/A, Sun, 3 Nov 2024 12:00:00 -0800)
 
 - **Grand Prix de Sao Paulo | De 44 à 62 points d'avance sur Norris : 
