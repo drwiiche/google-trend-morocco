@@ -1,3 +1,12 @@
+### léon marchand (N/A, Sun, 3 Nov 2024 00:30:00 -0700)
+
+- **Coupe du monde (Singapour) | Léon Marchand, une nouvelle victoire sur le 
+400m 4 nages mais pas de nouveau record**: [Link](https://www.eurosport.fr/natation/coupe-du-monde-singapour-leon-marchand-une-nouvelle-victoire-sur-le-400m-4-nages-mais-pas-de-nouveau-record_sto20050482/story.shtml)
+- **Natation: Léon Marchand pulvérise le record du monde du 200 m quatre nages**: [Link](https://sport.le360.ma/autres-sports/natation-leon-marchand-pulverise-le-record-du-monde-du-200-m-quatre-nages_OUYEBEPSMVHK3AHJWAK2AE6EAU/)
+- **Coupe du monde : Léon Marchand remporte le 400 m 4 nages à Singapour et 
+assoit un peu plus son hégémonie**: [Link](https://www.lequipe.fr/Natation/Actualites/Leon-marchand-remporte-le-400-m-4-nages-a-singapour-et-assoit-un-peu-plus-son-hegemonie/1517795)
+
+
 ### marcelo fluminense (N/A, Sat, 2 Nov 2024 23:40:00 -0700)
 
 - **Veja qual será o futuro de Marcelo após rescisão com Fluminense**: [Link](https://www.vamofutebol.com/veja-qual-sera-o-futuro-de-marcelo-apos-rescisao-com-fluminense/)
