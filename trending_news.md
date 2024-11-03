@@ -1,3 +1,19 @@
+### trabzonspor – fenerbahçe (N/A, Sun, 3 Nov 2024 07:20:00 -0800)
+
+- **En-Nesyri mi Dzeko mu? Fenerbahçe Trabzonspor maçında Mourinho'nun tercihi 
+kim olacak?**: [Link](https://oxu.az/tr/spor/en-nesyri-mi-dzeko-mu-fenerbahce-trabzonspor-macinda-mourinho-nun-tercihi-kim-olacak)
+- **Şenol Güneş: "Maçı kaldıracak durumda değildi"**: [Link](https://beinsports.com.tr/haber/senol-gunes-maci-kaldiracak-durumda-degildi)
+- **Hakem Oğuzhan Çakır kimdir, nereli, kaç yaşında? Oğuzhan Çakır'ın kariyeri 
+ve biyografi bilgileri**: [Link](https://www.hurriyet.com.tr/sporarena/hakem-oguzhan-cakir-kimdir-nereli-kac-yasinda-oguzhan-cakirin-kariyeri-ve-biyografi-bilgileri-42579805)
+
+
+### barca vs espanyol (N/A, Sun, 3 Nov 2024 07:20:00 -0800)
+
+- **Barcelona squad named for Espanyol**: [Link](https://www.barcablaugranes.com/2024/11/3/24285772/barcelona-espanyol-la-liga-team-news-squad-list)
+- **A Derby with Two Realities**: [Link](https://www.footboom1.com/en/news/football/2020300-a-derby-with-two-realities)
+- **FCBN cover 11/3/2024: MONTJUIC WILL HAVE A DERBY AGAIN**: [Link](https://www.fcbarcelonanoticias.com/en/football-covers/cover-fcbn-3-11-2024-montjuic-volvera-live-derbi_308358_102.html)
+
+
 ### giuliano simeone (N/A, Sun, 3 Nov 2024 06:40:00 -0800)
 
 - **Atlético vs. Las Palmas (3 Nov, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/704777)
