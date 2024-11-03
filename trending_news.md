@@ -1,3 +1,12 @@
+### fc barcelone (N/A, Sun, 3 Nov 2024 07:30:00 -0800)
+
+- **FC Barcelone 3-1 Espanyol Barcelone, La Liga : le Barça sans trembler face 
+à l'Espanyol**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/fc-barcelone-espanyol-barcelone-live/657399)
+- **FC Barcelone - Espanyol en direct - La Liga : Football Scores & Résultats - 
+03/11/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-fc-barcelone-espanyol_mtc1524128/live.shtml)
+- **La Liga : Dani Olmo et Raphinha offrent le derby au Barça**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/la-liga-dani-olmo-et-raphinha-offrent-le-derby-au-bar%C3%A7a-2024-11-03)
+
+
 ### chelsea (N/A, Sun, 3 Nov 2024 09:30:00 -0800)
 
 - **Man United vs Chelsea: Confirmed team news for Premier League clash**: [Link](https://www.si.com/onsi/soccer/chelsea/match-coverage/man-united-chelsea-confirmed-team-news-premier-league-clash-01jbs7swzdjp)
