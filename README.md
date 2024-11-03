@@ -1,3 +1,11 @@
+### chelsea (N/A, Sun, 3 Nov 2024 09:30:00 -0800)
+
+- **Man United vs Chelsea: Confirmed team news for Premier League clash**: [Link](https://www.si.com/onsi/soccer/chelsea/match-coverage/man-united-chelsea-confirmed-team-news-premier-league-clash-01jbs7swzdjp)
+- **Everything falls into place for £54m Chelsea player to have his best game 
+yet against Man U**: [Link](https://chelsea.news/2024/11/neto-man-u/)
+- **Confirmed Chelsea line up vs Man United | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-man-united-031124)
+
+
 ### manchester united (N/A, Sun, 3 Nov 2024 08:50:00 -0800)
 
 - **Manchester United: Ruud van Nistelrooy has no issue with former team-mates' 
