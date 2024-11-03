@@ -1,3 +1,11 @@
+### olmo (N/A, Sun, 3 Nov 2024 08:30:00 -0800)
+
+- **WATCH: Dani Olmo at the double as Barcelona go 3-0 up against Espanyol**: [Link](https://ca.sports.yahoo.com/news/watch-dani-olmo-double-barcelona-155500566.html)
+- **Dani Olmo’s 10-year odyssey back to Barcelona – told by the coaches who 
+made him - The Athletic**: [Link](https://www.nytimes.com/athletic/5762299/2024/10/31/dani-olmo-barcelona-return/)
+- **The Hour of Dani Olmo**: [Link](https://www.footboom1.com/en/news/football/2020296-the-hour-of-dani-olmo)
+
+
 ### barca (N/A, Sun, 3 Nov 2024 08:20:00 -0800)
 
 - **Spanish La Liga Barcelona 2 Espanyol 0 31 minutes played. In progress**: [Link](https://www.bbc.com/sport/football/live/c30pd96nqent)
