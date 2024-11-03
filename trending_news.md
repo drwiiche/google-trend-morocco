@@ -1,3 +1,20 @@
+### marcelo fluminense (N/A, Sat, 2 Nov 2024 23:40:00 -0700)
+
+- **Veja qual será o futuro de Marcelo após rescisão com Fluminense**: [Link](https://www.vamofutebol.com/veja-qual-sera-o-futuro-de-marcelo-apos-rescisao-com-fluminense/)
+- **Notícias destacadas do futebol brasileiro no dia 02 de novembro de 2024**: [Link](https://pt.besoccer.com/noticia/noticias-destacadas-do-futebol-brasileiro-no-dia-02-de-novembro-de-2024-1336415)
+- **O quinto**: [Link](https://explosaotricolor.com.br/o-quinto/)
+
+
+### adriano (N/A, Sat, 2 Nov 2024 19:30:00 -0700)
+
+- **Iconic 00s football star is unrecognisable swigging beer barefoot in the 
+street as he struggles with alcoholism**: [Link](https://www.dailymail.co.uk/sport/football/article-14029953/footballer-health-unrecognisable-alcoholism-fathers-death.html)
+- **Brazil legend Adriano seen partying in the street with no shoes on weeks 
+before returning to play one last...**: [Link](https://www.thesun.co.uk/sport/31465954/brazil-adriano/)
+- **Brazilian Legend Adriano Back on the Streets... Has He Relapsed into 
+Depression and Addiction? - HIBAPRESS**: [Link](https://www.footboom1.com/en/news/football/2019259-brazilian-legend-adriano-back-on-the-streets-has-he-relapsed-into-depression-and-addiction-hibapress)
+
+
 ### gazoduc nigeria maroc (N/A, Sat, 2 Nov 2024 19:20:00 -0700)
 
 - **Le projet de Gazoduc Atlantique Africain au stade de l’acquisition du 
