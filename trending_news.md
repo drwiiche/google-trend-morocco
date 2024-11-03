@@ -1,3 +1,28 @@
+### atletico madrid (N/A, Sun, 3 Nov 2024 06:00:00 -0800)
+
+- **‘Alone against the world’ - Arrival from Manchester City is ‘increasingly 
+lethal’ at new club, becoming the team's saviour**: [Link](https://sportwitness.co.uk/alone-against-the-world-arrival-from-manchester-city-is-increasingly-lethal-at-new-club-becoming-the-teams-saviour/)
+- **Atletico vs Las Palmas: Match Preview and Predictions**: [Link](https://www.footboom1.com/en/news/football/2017242-atletico-vs-las-palmas-match-preview-and-predictions)
+- **How to Watch LaLiga: Soccer Streaming Live in the US - Sunday, November 3**: [Link](https://www.sfgate.com/sports/watching-games/article/laliga-live-stream-11-3-2024-19882343.php)
+
+
+### torino – fiorentina (N/A, Sun, 3 Nov 2024 05:50:00 -0800)
+
+- **Le ultime dal Grande Torino: Lazaro in panchina, titolari Sosa e Pedersen**: [Link](https://www.toro.it/toro/partite/ultime-grande-torino-torino-fiorentina-formazioni-ufficiali-24-25/1363809/)
+- **La Stampa: “Prova d’appello per il Toro”**: [Link](https://www.toronews.net/rassegna-stampa/la-stampa-prova-dappello-per-il-toro/)
+- **Fotogallery: Torino - Fiorentina**: [Link](https://www.torinofc.it/photogallery/03/11/2024/fotogallery-torino-fiorentina_31113)
+
+
+### star academy (N/A, Sun, 3 Nov 2024 04:40:00 -0800)
+
+- **Star Academy 2024 : Quel candidat a été éliminé ce samedi 2 novembre, à 
+l’issue du troisième prime ?**: [Link](https://www.programme-tv.net/news/tv/364060-star-academy-2024-quel-candidat-a-ete-elimine-ce-samedi-2-novembre-a-lissue-du-troisieme-prime/)
+- **Star Academy 2024 : Dernier au revoir à l'élève éliminé, Charles rappelé à 
+l'ordre par Nikos pendant les votes**: [Link](https://www.purepeople.com/article/star-academy-2024-dernier-au-revoir-a-l-eleve-elimine-charles-rappele-a-l-ordre-par-nikos-pendant-les-votes_a529512/1)
+- **“Moi je serai là" : Maylis fait une tendre déclaration à Thomas, son coup 
+de cœur de l’aventure**: [Link](https://www.voici.fr/tele/moi-je-serai-la-maylis-fait-une-tendre-declaration-a-thomas-son-coup-de-coeur-de-laventure-793092)
+
+
 ### tottenham – aston villa (N/A, Sun, 3 Nov 2024 05:10:00 -0800)
 
 - **Tottenham drop Richarlison team news hint for Aston Villa clash as Dominic 
