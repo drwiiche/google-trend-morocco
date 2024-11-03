@@ -1,3 +1,10 @@
+### لائحة العطل 2024 (N/A, Sun, 3 Nov 2024 02:30:00 -0800)
+
+- **عطلتان رسميتان للمغاربة في نونبر 2024.**: [Link](https://sabahagadir.ma/327627.html)
+- **✅ المغاربة يترقبون عطلتين رسميتين خلال نونبر الجاري**: [Link](https://tanja24.com/%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8%D9%88%D9%86-%D8%B9%D8%B7%D9%84%D8%AA%D9%8A%D9%86-%D8%B1%D8%B3%D9%85%D9%8A%D8%AA%D9%8A%D9%86-%D8%AE%D9%84%D8%A7%D9%84/)
+- **تلاميذ المغرب على موعد مع عطل وطنية وبينية أخرى خلال الأسابيع المقبلة**: [Link](https://www.akhbarona.com/education/394600.html)
+
+
 ### bls (N/A, Sun, 3 Nov 2024 01:10:00 -0800)
 
 - **Conservative group’s ‘watch list’ targets federal employees for firing**: [Link](https://www.washingtonpost.com/investigations/2024/11/02/federal-career-employees-watchlist-trump/)
