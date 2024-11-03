@@ -1,3 +1,13 @@
+### gazoduc nigeria maroc (N/A, Sat, 2 Nov 2024 19:20:00 -0700)
+
+- **Le projet de Gazoduc Atlantique Africain au stade de l’acquisition du 
+foncier**: [Link](http://ledesk.ma/2024/11/03/le-projet-de-gazoduc-atlantique-africain-au-stade-de-lacquisition-du-foncier/)
+- **Gazoduc : Benali participe à la réunion ministérielle conjointe organisée 
+par la CEDEAO**: [Link](https://fr.hespress.com/394175-gazoduc-benali-participe-a-la-reunion-ministerielle-conjointe-organisee-par-la-cedeao.html)
+- **Benali : Le Gazoduc Nigeria-Maroc, moteur de développement durable pour 
+l'Afrique**: [Link](https://www.leconomiste.com/flash-infos/benali-le-gazoduc-nigeria-maroc-moteur-de-developpement-durable-pour-l-afrique)
+
+
 ### x (N/A, Sat, 2 Nov 2024 20:20:00 -0700)
 
 - **Were Bad Bunny and Ricky Martin really shadow banned by Instagram and X?**: [Link](https://www.vox.com/culture/381925/instagram-shadow-ban-political-election-posts-ricky-martin-bad-bunny-twitter-x-censorship)
