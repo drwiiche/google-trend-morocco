@@ -1,3 +1,11 @@
+### bls (N/A, Sun, 3 Nov 2024 01:10:00 -0800)
+
+- **Conservative group’s ‘watch list’ targets federal employees for firing**: [Link](https://www.washingtonpost.com/investigations/2024/11/02/federal-career-employees-watchlist-trump/)
+- **Project 2025′s potential impact on Maryland? Fewer student loans, federal 
+jobs and crabs**: [Link](https://www.thebaltimorebanner.com/politics-power/national-politics/project-2025-maryland-impact-CRW2OE3KX5HLPCWHCOSDSQ3PKQ/)
+- **Biden admin aims to stymie Trump’s plans to purge civil service**: [Link](https://www.eenews.net/articles/biden-admin-aims-to-stymie-trumps-plans-to-purge-civil-service/)
+
+
 ### novi sad (N/A, Sun, 3 Nov 2024 01:00:00 -0800)
 
 - **Hundreds hold vigil for victims of roof collapse in northern Serbian city**: [Link](https://apnews.com/article/serbia-roof-collapse-rescue-mourning-66adec34537a93b2c9b73285a0017511)
