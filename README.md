@@ -1,3 +1,13 @@
+### six (N/A, Sat, 2 Nov 2024 18:10:00 -0700)
+
+- **Jason Kelce Smashes College Football Fan's Phone After They Called Brother 
+Travis a Homophobic Slur**: [Link](https://people.com/jason-kelce-smashes-fans-phone-after-they-call-travis-homophobic-slur-8738785)
+- **Jason Kelce shoved to ground by Penn State fan before repeating gay slur 
+hurled at him in new video**: [Link](https://www.pennlive.com/pennstatefootball/2024/11/jason-kelce-shoved-to-ground-before-repeating-gay-slur-hurled-at-him-by-penn-state-fan-in-new-video.html)
+- **Jason Kelce slams fan’s phone on ground, exchanges homophobic slur after 
+insult about Travis dating Taylor Swift**: [Link](https://www.nytimes.com/athletic/5893037/2024/11/02/jason-kelce-taylor-swift-fan-taunt-phone/)
+
+
 ### atlanta utd – inter miami (N/A, Sat, 2 Nov 2024 15:10:00 -0700)
 
 - **Match Preview: Atlanta United hosts Inter Miami CF in Game 2 of Best-of-3 
