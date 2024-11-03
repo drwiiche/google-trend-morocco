@@ -1,3 +1,20 @@
+### manchester united – chelsea (N/A, Sun, 3 Nov 2024 07:40:00 -0800)
+
+- **'They're just lazy' - Paul Merson and Alan Shearer disagree with Man United 
+vs Chelsea prediction**: [Link](https://www.football.london/chelsea-fc/news/theyre-just-lazy-paul-merson-30287051)
+- **Ruud van Nistelrooy includes academy trio in Man United squad vs Chelsea, 
+two could make their debut**: [Link](https://www.unitedinfocus.com/match-coverage/ruud-van-nistelrooy-includes-academy-trio-in-man-united-squad-vs-chelsea-two-could-make-their-debut/)
+- **Confirmed Man United XI: Rasmus Hojlund starts, no place again for Amad**: [Link](https://thepeoplesperson.com/2024/11/03/confirmed-man-united-xi-rasmus-hojlund-starts-no-place-again-for-amad-287205/)
+
+
+### tottenham (N/A, Sun, 3 Nov 2024 06:20:00 -0800)
+
+- **Son finds Johnson for Tottenham's equalizer**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/heung-min-son-finds-brennan-johnson-for-tottenhams-equalizer-v-villa)
+- **Heung-min Son apperars to make X-rated remark as he questions being 
+substituted...**: [Link](https://talksport.com/football/2220060/heung-min-son-substituted-reaction-tottenham-aston-villa/)
+- **Britain Soccer Premier League**: [Link](https://www.wvnews.com/sports/pro/britain-soccer-premier-league/image_d00878ab-88ae-588d-8453-60a453bd4f53.html)
+
+
 ### trabzonspor – fenerbahçe (N/A, Sun, 3 Nov 2024 07:20:00 -0800)
 
 - **En-Nesyri mi Dzeko mu? Fenerbahçe Trabzonspor maçında Mourinho'nun tercihi 
