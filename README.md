@@ -1,3 +1,10 @@
+### giuliano simeone (N/A, Sun, 3 Nov 2024 06:40:00 -0800)
+
+- **Atlético vs. Las Palmas (3 Nov, 2024) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/704777)
+- **Atlético 2-0 Vic (31 Oct, 2024) Final Score - ESPN (IN)**: [Link](https://www.espn.in/football/match/_/gameId/722264/atletico-madrid-ue-vic)
+- **Valencia floods: La Liga managers criticise decision to play weekend games**: [Link](https://www.bbc.com/sport/football/articles/czj7nnd9lkdo)
+
+
 ### barcelone – espanyol (N/A, Sun, 3 Nov 2024 06:20:00 -0800)
 
 - **Barcelona squad named for Espanyol**: [Link](https://www.barcablaugranes.com/2024/11/3/24285772/barcelona-espanyol-la-liga-team-news-squad-list)
