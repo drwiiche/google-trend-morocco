@@ -1,3 +1,21 @@
+### herby moreau (N/A, Mon, 4 Nov 2024 03:10:00 -0800)
+
+- **L’animateur et journaliste culturel Herby Moreau est décédé à l’âge de 56 
+ans**: [Link](https://ici.radio-canada.ca/nouvelle/2117296/herby-moreau-deces-showbiz-culturel)
+- **Le Gala de l'ADISQ se fait sévèrement critiquer pour l'absence d'hommage à 
+Herby Moreau**: [Link](https://www.mondedestars.com/nouvelles/le-gala-de-l-adisq-se-fait-severement-critiquer-pour-l-absence-d-hommage-a-herby-moreau)
+- **Gregory Charles réagit au décès d’Herby Moreau**: [Link](https://hollywoodpq.com/gregory-charles-reagit-au-deces-dherby-moreau/)
+
+
+### guinee equatoriale (N/A, Mon, 4 Nov 2024 02:40:00 -0800)
+
+- **Affaire Ebang Engonga: le scandale sexuel qui secoue la Guinée équatoriale**: [Link](https://lanouvelletribune.info/2024/11/affaire-ebang-engonga-le-scandale-sexuel-qui-secoue-la-guinee-equatoriale/)
+- **Guinée équatoriale – Baltasar Ebang Engonga : Teodoro Nguema Obiang Mangue 
+réagit**: [Link](https://www.afrique-sur7.fr/guinee-equatoriale-baltasar-ebang-engonga-teodoro-nguema-obiang-mangue-reagit)
+- **Affaire de s3xtape en Guinée Équatoriale : plus de 200 femmes dont des 
+personnalités seraient…**: [Link](https://yop.l-frii.com/affaire-de-s3xtape-en-guinee-equatoriale-plus-de-200-femmes-dont-des-personnalites-seraient/)
+
+
 ### maia sandu (N/A, Mon, 4 Nov 2024 02:40:00 -0800)
 
 - **Moldova election: Pro-EU leader Maia Sandu claims victory despite alleged 
