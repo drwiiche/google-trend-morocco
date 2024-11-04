@@ -1,3 +1,11 @@
+### الهلال ضد استقلال (N/A, Mon, 4 Nov 2024 09:30:00 -0800)
+
+- **موسيماني: أتمنى ألا نبالغ في احترام الهلال**: [Link](https://www.kooora.com/?n=1365797)
+- **تشكيلة الهلال الرسمية أمام الاستقلال الإيراني**: [Link](https://hihi2.com/2024/11/04/p2921101.html)
+- **موعد مباراة الهلال السعودي ضد استقلال طهران بدوري أبطال آسيا والقنوات 
+الناقلة**: [Link](https://www.aljazeera.net/sport/2024/11/3/al-hilal-esteghlal-tehran)
+
+
 ### al-hilal – esteghlal (N/A, Mon, 4 Nov 2024 09:20:00 -0800)
 
 - **Jesus: Neymar will be present against Esteghlal**: [Link](https://www.ysscores.com/en/news/6468348/Jesus:-Neymar-will-be-present-against-Esteghlal)
