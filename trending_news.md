@@ -1,3 +1,20 @@
+### achraf hakimi (N/A, Mon, 4 Nov 2024 04:50:00 -0800)
+
+- **Hakimi, en el once ideal de octubre de las 5 grandes ligas europeas**: [Link](https://es.rue20.com/2024/11/03/hakimi-en-el-once-ideal-de-octubre-de-las-5-grandes-ligas-europeas/)
+- **تفوق حكيمي يكشف أزمة إنريكي في باريس**: [Link](https://m.kooora.com/?n=1365859&o=n)
+- **فابريزيو رومانو: "عقد حكيمي الجديد في باريس سان جيرمان جاهز تقريبا"**: [Link](https://m.elbotola.com/article/2024-11-02-09-40-19.html)
+
+
+### meteo barcelone (N/A, Mon, 4 Nov 2024 03:40:00 -0800)
+
+- **"C'est un cimetière": près de Valence, le parking inondé d'un centre 
+commercial suscite toutes les craintes**: [Link](https://www.bfmtv.com/international/europe/espagne/c-est-un-cimetiere-pres-de-valence-le-parking-inonde-d-un-centre-commercial-suscite-toutes-les-craintes_AV-202411030320.html)
+- **Les images des jets de boue visant le roi et la reine d’Espagne près de 
+Valence**: [Link](https://www.huffingtonpost.fr/international/video/le-roi-d-espagne-felipe-vi-et-la-reine-letizia-pris-a-partie-par-les-sinistres-des-inondations-pres-de-valence_241722.html)
+- **A Valence, en Espagne, la colère des habitants après les inondations : « 
+Nos hommes politiques n’ont pas pris la mesure de ce qui se passait »**: [Link](https://www.lemonde.fr/planete/article/2024/11/04/a-valence-la-colere-des-habitants-apres-les-inondations-nos-hommes-politiques-n-ont-pas-pris-la-mesure-de-ce-qui-se-passait_6375104_3244.html)
+
+
 ### hakimi (N/A, Mon, 4 Nov 2024 04:30:00 -0800)
 
 - **Hakimi, en el once ideal de octubre de las 5 grandes ligas europeas**: [Link](https://es.rue20.com/2024/11/03/hakimi-en-el-once-ideal-de-octubre-de-las-5-grandes-ligas-europeas/)
