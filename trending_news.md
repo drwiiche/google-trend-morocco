@@ -1,3 +1,38 @@
+### celta vigo – getafe (N/A, Mon, 4 Nov 2024 11:20:00 -0800)
+
+- **Preview: Celta Vigo vs. Getafe - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/getafe/preview/preview-celta-vigo-vs-getafe-prediction-team-news-lineups_557171.html)
+- **Celta vs Getafe: previous stats | LaLiga EA Sports 2024/2025**: [Link](https://en.as.com/resultados/futbol/primera/2024_2025/directo/regular_a_12_480470/)
+- **Celta Vigo vs Getafe prediction, odds & betting tips – 4/11/2024**: [Link](https://footballwhispers.com/blog/celta-vigo-vs-getafe-prediction/)
+
+
+### fulham – brentford (N/A, Mon, 4 Nov 2024 11:20:00 -0800)
+
+- **Why Fulham v Brentford deserves more recognition**: [Link](https://www.fulhamish.co.uk/post/2024-11-04-why-fulham-v-brentford-deserves-more-recognition/)
+- **Match Preview: Fulham v Brentford**: [Link](https://www.brentfordfc.com/en/news/article/match-previews-fulham-v-brentford-premier-league-04-11-2024)
+- **Fulham manager Marco Silva insists he is fully aware of the threat posed by 
+free-scoring Brentford as he draws**: [Link](https://www.dailymail.co.uk/sport/football/article-14035973/Fulham-manager-Marco-Silva-insists-fully-aware-threat-posed-free-scoring-Brentford-draws-comparisons-two-teams-ahead-west-London-derby.html)
+
+
+### imane khelif (N/A, Mon, 4 Nov 2024 11:20:00 -0800)
+
+- **الملاكم الجزائري إيمان خليف لديه كروموسومات XY: تقرير طبي جزائري فرنسي 
+يعترف - تليكسبريس**: [Link](https://telexpresse.com/352802.html)
+- **"لديها خصيتين وقضيب"!.. تسريب التقرير الطبي الخاص بالملاكمة الجزائرية إيمان 
+خليف**: [Link](https://www.tanja7.com/147181/%D9%84%D8%AF%D9%8A%D9%87%D8%A7-%D8%AE%D8%B5%D9%8A%D8%AA%D9%8A%D9%86-%D9%88%D9%82%D8%B6%D9%8A%D8%A8-%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A7%D9%84%D8%B7%D8%A8%D9%8A-%D8%A7%D9%84%D8%AE%D8%A7%D8%B5-%D8%A8%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%A5%D9%8A%D9%85%D8%A7%D9%86-%D8%AE%D9%84%D9%8A%D9%81/)
+- **Regard magnétique et looks pointus: la championne de boxe Imane Khelif, 
+star du dernier Vogue Arabia**: [Link](https://www.bfmtv.com/luxe/mode/regard-magnetique-et-looks-pointus-la-championne-de-boxe-imane-khelif-star-du-dernier-vogue-arabia_GN-202411040434.html)
+
+
+### mourinho (N/A, Mon, 4 Nov 2024 11:20:00 -0800)
+
+- **Jose Mourinho: Fenerbahce coach slams Turkish referees after win at 
+Trabzonspor**: [Link](https://www.bbc.com/sport/football/articles/cy9j0jvxyddo)
+- **Watch: Jose Mourinho’s failed knee slide before astonishing rant over 
+‘corruption’ in Turkey**: [Link](https://www.telegraph.co.uk/football/2024/11/04/watch-jose-mourinho-knee-slide-fail-rant-corruption-turkey/)
+- **'Nobody watches': José Mourinho embarks on VAR-inspired rant about Turkish 
+football – video**: [Link](https://www.theguardian.com/football/video/2024/nov/04/jose-mourinho-var-rant-turkish-football-fenerbahce-video)
+
+
 ### قرعة امريكا (N/A, Mon, 4 Nov 2024 09:40:00 -0800)
 
 - **اللوتري الأمريكي 2025.. الموقع الرسمى للتسجيل مجاناً في قرعة الهجرة لأمريكا 
