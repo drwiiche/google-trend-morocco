@@ -1,3 +1,12 @@
+### kamel daoud (N/A, Mon, 4 Nov 2024 03:50:00 -0800)
+
+- **Le prix Goncourt décerné à l'écrivain Kamel Daoud**: [Link](https://fr.hespress.com/394402-le-prix-goncourt-decerne-a-lecrivain-kamel-daoud.html)
+- **L’écrivain Kamel Daoud récompensé par le Prix Goncourt pour son roman sur 
+les massacres de la «décennie noire» en Algérie**: [Link](https://fr.le360.ma/culture/lecrivain-kamel-daoud-recompense-par-le-prix-goncourt-pour-son-roman-sur-les-massacres-de-la_QBYGV3BOVJF5TJJ7E5W3HXTQTQ/)
+- **"Houris" de Kamel Daoud : ce prix Goncourt dont l’Algérie ne veut pas 
+entendre parler**: [Link](https://www.lepoint.fr/monde/ce-goncourt-dont-l-algerie-ne-veut-pas-entendre-parler-03-11-2024-2574309_24.php)
+
+
 ### herby moreau (N/A, Mon, 4 Nov 2024 03:10:00 -0800)
 
 - **L’animateur et journaliste culturel Herby Moreau est décédé à l’âge de 56 
