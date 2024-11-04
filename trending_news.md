@@ -1,3 +1,12 @@
+### trump (N/A, Mon, 4 Nov 2024 12:00:00 -0800)
+
+- **US elections live: Trump threatens Mexico over immigration into US; Harris 
+blitzes Pennsylvania in final campaign push**: [Link](https://www.theguardian.com/us-news/live/2024/nov/04/donald-trump-kamala-harris-us-election-polls-latest-live-news)
+- **Donald Trump threatens Mexico with tariffs over southern border crossings**: [Link](https://www.cairnspost.com.au/news/world/donald-trump-threatens-mexico-with-tariffs-over-southern-border-crossings/video/ccd5775fb3721bfb9e489369c0ae22fe)
+- **US election: Donald Trump tipped for voting boost after making ‘astonishing 
+revelation’ in final pitch**: [Link](https://www.gbnews.com/news/us/us-election-donald-trump-revelation-mexico-tariff)
+
+
 ### celta vigo – getafe (N/A, Mon, 4 Nov 2024 11:20:00 -0800)
 
 - **Preview: Celta Vigo vs. Getafe - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/getafe/preview/preview-celta-vigo-vs-getafe-prediction-team-news-lineups_557171.html)
