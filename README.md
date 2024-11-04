@@ -1,3 +1,11 @@
+### مصطفى العلوي (N/A, Mon, 4 Nov 2024 15:20:00 -0800)
+
+- **حقيقة وفاة قيدوم الصحفيين مصطفى العلوي.**: [Link](https://agadir24.info/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%88%D9%81%D8%A7%D8%A9-%D9%82%D9%8A%D8%AF%D9%88%D9%85-%D8%A7%D9%84%D8%B5%D8%AD%D9%81%D9%8A%D9%8A%D9%86-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D8%A7%D9%84%D8%B9%D9%84%D9%88/)
+- **خبار وفاة الصحافي مصطفى العلوي كذوب.. مقرب منو ل”كود”: السيد صحة سلام وراه 
+كاين دبا فمكة**: [Link](https://www.goud.ma/%D8%AE%D8%A8%D8%A7%D8%B1-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D8%A7%D9%84%D8%B9%D9%84%D9%88%D9%8A-%D9%83%D8%B0%D9%88%D8%A8-%D9%85%D9%82-913750/)
+- **الإشاعة تقتل من جديد الصحفي مصطفى العلوي**: [Link](https://anfaspress.com/news/voir/141755-2024-11-04-11-27-30)
+
+
 ### mariah carey (N/A, Mon, 4 Nov 2024 14:30:00 -0800)
 
 - **Mariah Carey's New Wax Figure Is Pitch Perfect**: [Link](https://www.today.com/popculture/news/mariah-carey-wax-figure-rcna178575)
