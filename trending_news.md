@@ -1,3 +1,9 @@
+### al-ahli saudi – al shorta (N/A, Mon, 4 Nov 2024 07:30:00 -0800)
+
+- **Demiral's absence from the Al-Ahly-Shorta match**: [Link](https://www.ysscores.com/en/news/6476899/Demiral's-absence-from-the-Al-Ahly-Shorta-match)
+- **Al-Ahli vs Al-Shorta prediction, H2H & Probable Line-ups - November 4, 2024**: [Link](https://dailysports.net/predictions/alahli-vs-alshorta-prediction-h2h-probable-lineups-november-4-2024/)
+
+
 ### barcelone (N/A, Mon, 4 Nov 2024 05:40:00 -0800)
 
 - **Liga : le FC Barcelone écrase l’Espanyol et conforte son statut de leader**: [Link](https://fr.hespress.com/394300-liga-le-fc-barcelone-ecrase-lespanyol-et-conforte-son-statut-de-leader.html)
