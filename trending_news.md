@@ -1,3 +1,13 @@
+### lazio (N/A, Mon, 4 Nov 2024 13:20:00 -0800)
+
+- **Lazio, l'entusiasmo di Dia: "La gente parla di noi perché vinciamo quasi 
+ogni partita"**: [Link](https://www.tuttomercatoweb.com/serie-a/lazio-l-entusiasmo-di-dia-la-gente-parla-di-noi-perche-vinciamo-quasi-ogni-partita-2031435)
+- **PICCOLI A DAZN: "Dobbiamo essere più cinici. Stasera dovremo dare il 
+massimo"**: [Link](https://www.tuttocagliari.net/interviste/piccoli-a-dazn-dobbiamo-essere-piu-cinici-stasera-dovremo-dare-il-massimo-129906)
+- **Penna in Trasferta – De Lellis: “Baroni ha portato normalità. Sardi 
+deludenti finora”**: [Link](https://www.calciocasteddu.it/2024/11/03/penna-in-trasferta-de-lellis-baroni-ha-portato-normalita-sardi-deludenti-finora/)
+
+
 ### neymar (N/A, Mon, 4 Nov 2024 12:30:00 -0800)
 
 - **¡Neymar, otra vez lesionado!**: [Link](https://www.sport.es/es/noticias/futbol-internacional/neymar-vez-lesionado-111378485)
