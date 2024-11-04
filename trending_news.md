@@ -1,3 +1,10 @@
+### hakimi (N/A, Mon, 4 Nov 2024 04:30:00 -0800)
+
+- **Hakimi, en el once ideal de octubre de las 5 grandes ligas europeas**: [Link](https://es.rue20.com/2024/11/03/hakimi-en-el-once-ideal-de-octubre-de-las-5-grandes-ligas-europeas/)
+- **El nuevo contrato de renovación de Hakimi ya está preparado**: [Link](https://es.rue20.com/2024/11/02/el-nuevo-contrato-de-renovacion-de-luc-ya-esta-preparado/)
+- **Adiós a Brahim, va a firmar con el PSG: Florentino no puede impedirlo**: [Link](https://www.defensacentral.com/real_madrid/1709329786-adios-a-brahim-va-a-firmar-con-el-psg-florentino-no-puede-impedirlo)
+
+
 ### kamel daoud (N/A, Mon, 4 Nov 2024 03:50:00 -0800)
 
 - **Le prix Goncourt décerné à l'écrivain Kamel Daoud**: [Link](https://fr.hespress.com/394402-le-prix-goncourt-decerne-a-lecrivain-kamel-daoud.html)
