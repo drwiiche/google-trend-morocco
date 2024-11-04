@@ -1,3 +1,11 @@
+### kamel daoud houris (N/A, Mon, 4 Nov 2024 08:20:00 -0800)
+
+- **L’écrivain Kamel Daoud récompensé par le prix Goncourt pour son roman sur 
+les massacres de la «décennie noire» en Algérie**: [Link](https://fr.le360.ma/culture/lecrivain-kamel-daoud-recompense-par-le-prix-goncourt-pour-son-roman-sur-les-massacres-de-la_QBYGV3BOVJF5TJJ7E5W3HXTQTQ/)
+- **Kamel Daoud remporte le prix Goncourt 2024 avec Houris**: [Link](https://medias24.com/2024/11/04/kamel-daoud-remporte-le-prix-goncourt-2024-avec-houris/)
+- **Kamel Daoud, un Goncourt très politique**: [Link](https://www.nouvelobs.com/bibliobs/20241104.OBS95868/kamel-daoud-un-goncourt-tres-politique.html)
+
+
 ### مخلوق غريب في استراليا (N/A, Mon, 4 Nov 2024 06:40:00 -0800)
 
 - **مخلوق غريب يظهر في أستراليا.. والسكان يعتقدون أنه "كائن فضائي"**: [Link](https://www.alarabiya.net/social-media/2024/11/02/%D9%85%D8%AE%D9%84%D9%88%D9%82-%D8%BA%D8%B1%D9%8A%D8%A8-%D9%8A%D8%B8%D9%87%D8%B1-%D9%81%D9%8A-%D8%A3%D8%B3%D8%AA%D8%B1%D8%A7%D9%84%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D8%B3%D9%83%D8%A7%D9%86-%D9%8A%D8%B9%D8%AA%D9%82%D8%AF%D9%88%D9%86-%D8%A3%D9%86%D9%87-%D9%83%D8%A7%D8%A6%D9%86-%D9%81%D8%B6%D8%A7%D8%A6%D9%8A-)
