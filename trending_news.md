@@ -1,3 +1,20 @@
+### al-hilal – esteghlal (N/A, Mon, 4 Nov 2024 09:20:00 -0800)
+
+- **Jesus: Neymar will be present against Esteghlal**: [Link](https://www.ysscores.com/en/news/6468348/Jesus:-Neymar-will-be-present-against-Esteghlal)
+- **Neymar's boss: We know Pitso Mosimane**: [Link](https://www.snl24.com/kickoff/worldnews/around-the-world/neymars-boss-jorge-jesus-we-know-pitso-mosimane-20241104)
+- **Al Hilal Vs Esteghlal: Mousimani’s Presence Adds Pressure as Al Hilal Seeks 
+Revenge**: [Link](https://dailysports.net/news/al-hilal-vs-esteghlal-mousimanis-presence-adds-pressure-as-al-hilal-seeks-revenge/)
+
+
+### المسيرة الخضراء (N/A, Mon, 4 Nov 2024 08:50:00 -0800)
+
+- **الذكرى 49 للمسيرة الخضراء.. تجسيد لأروع صور التلاحم بين العرش العلوي والشعب 
+المغربي لاستكمال الاستقلال الوطني وتحقيق الوحدة الترابية**: [Link](https://www.mapexpress.ma/ar/actualite/%D8%A7%D9%84%D8%B0%D9%83%D8%B1%D9%89-49-%D9%84%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D8%A7%D8%A1-%D8%AA%D8%AC%D8%B3%D9%8A%D8%AF-%D9%84%D8%A3%D8%B1%D9%88%D8%B9-%D8%B5/%D9%85%D8%AC%D8%AA%D9%85%D8%B9-%D9%88%D8%AC%D9%87%D8%A7%D8%AA/)
+- **بسرية تامة.. هكذا هيأ الحسن الثاني لتموين 350 ألف متطوع في المسيرة الخضراء**: [Link](https://m.alayam24.com/articles-536314.html)
+- **مجتمع : هيئات حقوقية تنظم قافلة الترافع عن ملف الصحراء المغربية من البيضاء 
+إلى معبر الكركرات**: [Link](https://assahraa.ma/web/2024/180929)
+
+
 ### فيليب السادس ملك إسبانيا (N/A, Mon, 4 Nov 2024 08:30:00 -0800)
 
 - **رشق العاهل الإسباني بالطين يعيد نقاش الملكية البرلمانية بالجارة الشمالية**: [Link](https://www.hespress.com/%D8%B1%D8%B4%D9%82-%D9%81%D9%8A%D9%84%D9%8A%D8%A8%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D8%A8%D8%A7%D9%84%D8%B7%D9%8A%D9%86-%D9%8A%D8%B9%D9%8A%D8%AF-%D9%86%D9%82%D8%A7%D8%B4-%D8%A7%D9%84%D9%85-1459210.html)
