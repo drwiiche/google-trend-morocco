@@ -1,3 +1,18 @@
+### maia sandu (N/A, Mon, 4 Nov 2024 02:40:00 -0800)
+
+- **Moldova election: Pro-EU leader Maia Sandu claims victory despite alleged 
+Russian meddling**: [Link](https://www.bbc.com/news/articles/cz7w9dglzzlo)
+- **Putin Lost a Round in Moldova. The Fight’s Far From Over.**: [Link](https://www.bloomberg.com/opinion/articles/2024-11-04/putin-lost-a-round-in-moldova-the-fight-s-far-from-over)
+- **Pro-West Leader Wins High-Stakes Vote in Former Soviet Republic**: [Link](https://www.nytimes.com/2024/11/03/world/europe/sandu-pro-west-moldova-president.html)
+
+
+### inter (N/A, Sun, 3 Nov 2024 13:50:00 -0800)
+
+- **Inter’s Champions League opponents Arsenal struggling**: [Link](https://football-italia.net/inters-champions-league-arsenal-struggling/)
+- **Inter vs Arsenal: Latest team news, predicted lineup and injuries**: [Link](https://metro.co.uk/2024/11/03/inter-vs-arsenal-latest-team-news-predicted-lineup-injuries-21920350/)
+- **How to buy last minute tickets for Inter vs Arsenal in Champions League**: [Link](https://www.yardbarker.com/soccer/articles/how_to_buy_last_minute_tickets_for_inter_vs_arsenal_in_champions_league/s1_17344_41136771)
+
+
 ### quincy jones (N/A, Mon, 4 Nov 2024 01:30:00 -0800)
 
 - **Quincy Jones, music titan who worked with everyone from Frank Sinatra to 
