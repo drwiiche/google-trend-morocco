@@ -1,3 +1,11 @@
+### لائحة العطل 2024 (N/A, Sun, 3 Nov 2024 23:20:00 -0800)
+
+- **" وزارة التربية الوطنية توضح " لائحة العطل المدرسية 2024-2025 الرسمية 
+الجديدة بالمغرب –**: [Link](https://real.alsaudinews.com/199985/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%B9/)
+- **تلاميذ المغرب على موعد مع عطل وطنية وبينية أخرى خلال الأسابيع المقبلة**: [Link](https://www.akhbarona.com/education/394600.html)
+- **بعد عودة التلاميذ للمدارس.. هذه أقرب عطلة قادمة بالمغرب**: [Link](https://www.analkhabar.com/%D8%A8%D8%B9%D8%AF-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D9%85%D9%8A%D8%B0-%D9%84%D9%84%D9%85%D8%AF%D8%A7%D8%B1%D8%B3-%D9%87%D8%B0%D9%87-%D8%A3%D9%82%D8%B1%D8%A8/)
+
+
 ### mazraoui (N/A, Sun, 3 Nov 2024 21:00:00 -0800)
 
 - **Who was Man of the Match v Chelsea?**: [Link](https://www.manutd.com/en/news/detail/man-of-the-match-results-following-man-utd-v-chelsea-3-november-2024)
