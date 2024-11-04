@@ -1,3 +1,12 @@
+### moldavie (N/A, Sun, 3 Nov 2024 23:40:00 -0800)
+
+- **Moldavie : la proeuropéenne Maia Sandu réélue présidente, un nouveau revers 
+pour le Kremlin**: [Link](https://www.lemonde.fr/international/article/2024/11/04/moldavie-la-proeuropeenne-maia-sandu-reelue-presidente-un-nouveau-revers-pour-le-kremlin_6374711_3210.html)
+- **Présidentielle en Moldavie : Macron félicite Sandu et salue le «triomphe» 
+de la démocratie**: [Link](https://www.lefigaro.fr/international/presidentielle-en-moldavie-macron-felicite-sandu-et-salue-le-triomphe-de-la-democratie-20241104)
+- **La Moldavie de retour aux urnes, dans l'ombre de Moscou**: [Link](https://medias24.com/agence-presse/la-moldavie-de-retour-aux-urnes-dans-lombre-de-moscou/)
+
+
 ### وزارة الأوقاف والشؤون الإسلامية (N/A, Sun, 3 Nov 2024 21:40:00 -0800)
 
 - **وزارة الأوقاف تعلن موعد فاتح شهر جمادى الأولى بالمغرب**: [Link](https://ar.hibapress.com/details-569488.html)
