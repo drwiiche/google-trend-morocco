@@ -1,3 +1,12 @@
+### mazraoui (N/A, Sun, 3 Nov 2024 21:00:00 -0800)
+
+- **Who was Man of the Match v Chelsea?**: [Link](https://www.manutd.com/en/news/detail/man-of-the-match-results-following-man-utd-v-chelsea-3-november-2024)
+- **'I don't agree' - Noussair Mazraoui makes Manchester United admission after 
+Chelsea draw**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/i-dont-agree-noussair-mazraoui-30289745)
+- **100% dribbles, 13 duels won, 92% passing: United star sends big message to 
+Ruben Amorim after Chelsea draw**: [Link](https://sports.yahoo.com/100-dribbles-13-duels-won-043700570.html)
+
+
 ### roi felipe d espagne (N/A, Sun, 3 Nov 2024 20:00:00 -0800)
 
 - **Les images des jets de boue visant le roi et la reine d’Espagne près de 
