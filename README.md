@@ -1,3 +1,10 @@
+### ترتيب الدوري المغربي (N/A, Sun, 3 Nov 2024 11:00:00 -0800)
+
+- **جدول ترتيب الدوري المغربي 2024/2025 بعد نهاية الجولة 9**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2024-2025-%D8%A8%D8%B9%D8%AF-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-2/)
+- **المنع يطال جماهير الرجاء والجيش الملكي ..رياضة**: [Link](https://ar.pressbee.net/show8838422.html?title=%D8%A7%D9%84%D9%85%D9%86%D8%B9-%D9%8A%D8%B7%D8%A7%D9%84-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A)
+- **أمين الكرمة: تجاوزنا مرحلة الصدمة**: [Link](https://m.kooora.com/?n=1365446&o=n1007968)
+
+
 ### ps5 pro (N/A, Sun, 3 Nov 2024 15:50:00 -0800)
 
 - **PlayStation 5 Pro specs and teardown leaks ahead of launch: 16.7 TFLOPS 
