@@ -1,3 +1,11 @@
+### barcelone (N/A, Mon, 4 Nov 2024 05:40:00 -0800)
+
+- **Liga : le FC Barcelone écrase l’Espanyol et conforte son statut de leader**: [Link](https://fr.hespress.com/394300-liga-le-fc-barcelone-ecrase-lespanyol-et-conforte-son-statut-de-leader.html)
+- **Barça : Hansi Flick, le dernier avertissement**: [Link](https://www.football365.fr/hansi-flick-le-dernier-avertissement-10211223.html)
+- **Le Barça choque encore l’Europe, le vestiaire de Manchester City hausse le 
+ton**: [Link](https://www.footmercato.net/a171520586066473421-le-barca-choque-encore-leurope-le-vestiaire-de-manchester-city-hausse-le-ton)
+
+
 ### achraf hakimi (N/A, Mon, 4 Nov 2024 04:50:00 -0800)
 
 - **Hakimi, en el once ideal de octubre de las 5 grandes ligas europeas**: [Link](https://es.rue20.com/2024/11/03/hakimi-en-el-once-ideal-de-octubre-de-las-5-grandes-ligas-europeas/)
