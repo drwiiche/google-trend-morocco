@@ -1,3 +1,12 @@
+### nekfeu (N/A, Mon, 4 Nov 2024 13:50:00 -0800)
+
+- **Le rappeur Nekfeu accusé de viols et violences par son ex-femme, plusieurs 
+plaintes déjà classées sans...**: [Link](https://www.bfmtv.com/police-justice/le-rappeur-nekfeu-accuse-de-viols-et-de-violences-par-son-ex-femme_AN-202411040374.html)
+- **L’ex-compagne de Nekfeu va porter plainte pour viols et violences répétés**: [Link](https://www.20minutes.fr/faits_divers/4119403-20241104-nekfeu-ex-compagne-rappeur-annonce-depot-plainte-viols-violences-repetes)
+- **Le rappeur Nekfeu accusé par son ex-compagne de «violences psychologiques, 
+sexuelles et physiques»**: [Link](https://www.lefigaro.fr/faits-divers/le-rappeur-nekfeu-accuse-par-son-ex-compagne-de-violences-psychologiques-sexuelles-et-physiques-20241104)
+
+
 ### lazio (N/A, Mon, 4 Nov 2024 13:20:00 -0800)
 
 - **Lazio, l'entusiasmo di Dia: "La gente parla di noi perché vinciamo quasi 
