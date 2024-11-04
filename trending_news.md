@@ -1,3 +1,11 @@
+### mariah carey (N/A, Mon, 4 Nov 2024 14:30:00 -0800)
+
+- **Mariah Carey's New Wax Figure Is Pitch Perfect**: [Link](https://www.today.com/popculture/news/mariah-carey-wax-figure-rcna178575)
+- **Mariah Carey unveils her new waxwork – can you tell them apart?**: [Link](https://www.yahoo.com/entertainment/mariah-carey-unveils-her-waxwork-111612682.html)
+- **Mariah Carey's Christmas Wax Figure Is the Most Convincing One Ever - 
+Seriously, Who's Who!?**: [Link](https://people.com/mariah-carey-christmas-wax-figure-is-the-most-convincing-one-ever-see-the-uncanny-resemblance-8739226)
+
+
 ### celta vigo (N/A, Mon, 4 Nov 2024 14:00:00 -0800)
 
 - **Preview: Celta Vigo vs. Getafe - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/getafe/preview/preview-celta-vigo-vs-getafe-prediction-team-news-lineups_557171.html)
