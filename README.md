@@ -1,3 +1,20 @@
+### jour férié 2024 (N/A, Mon, 4 Nov 2024 00:20:00 -0800)
+
+- **Du culte des morts à la culture de la mort : la lente dégringolade 
+civilisationnelle des sociétés occidentales**: [Link](https://atlantico.fr/article/decryptage/du-culte-des-morts-a-la-culture-de-la-mort-la-lente-degringolade-civilisationnelle-des-societes-occidentales-religion-societe-vatican-occident-damien-le-guay)
+- **Toussaint : être saint aujourd'hui ?**: [Link](https://www.radiofrance.fr/franceculture/podcasts/solae-le-rendez-vous-protestant/toussaint-etre-saint-aujourd-hui-6478304)
+- **Deux novembre**: [Link](https://www.acadienouvelle.com/chroniques/2024/11/03/deux-novembre/)
+
+
+### elections americaines (N/A, Sun, 3 Nov 2024 23:30:00 -0800)
+
+- **En direct, présidentielle américaine 2024 : un dernier dimanche de campagne 
+marqué par les surenchères de Donald Trump... suivez notre direct**: [Link](https://www.lemonde.fr/international/live/2024/11/04/en-direct-presidentielle-americaine-2024-un-dernier-dimanche-de-campagne-marque-par-les-surencheres-de-donald-trump-suivez-notre-direct_6362433_3210.html)
+- **Quand la présidentielle américaine tourne à la guerre des sexes**: [Link](https://www.france24.com/fr/am%C3%A9riques/20241104-quand-pr%C3%A9sidentielle-am%C3%A9ricaine-tourne-guerre-sexes-vote-harris-trump)
+- **Présidentielle américaine : ce que disent les derniers sondages dans les « 
+swing states »**: [Link](https://www.leparisien.fr/international/etats-unis/presidentielle-americaine-ce-que-disent-les-derniers-sondages-dans-les-swing-states-03-11-2024-4WHAKCZEKNBAZEQ3XDA2IER5IE.php)
+
+
 ### moldavie (N/A, Sun, 3 Nov 2024 23:40:00 -0800)
 
 - **Moldavie : la proeuropéenne Maia Sandu réélue présidente, un nouveau revers 
