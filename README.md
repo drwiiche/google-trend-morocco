@@ -1,3 +1,11 @@
+### quincy jones (N/A, Mon, 4 Nov 2024 01:30:00 -0800)
+
+- **Quincy Jones, music titan who worked with everyone from Frank Sinatra to 
+Michael Jackson, dies at 91**: [Link](https://apnews.com/article/quincy-jones-dead-a9e31c7e39c448d8971519f47a22dd21)
+- **Record Producer Quincy Jones passes away at 91**: [Link](https://www.wionews.com/entertainment/record-producer-quincy-jones-passes-away-at-91-773129)
+- **5 Quincy Jones songs producers need to hear**: [Link](https://www.musicradar.com/artists/producers-engineers/5-quincy-jones-songs-producers-need-to-hear)
+
+
 ### jour férié 2024 (N/A, Mon, 4 Nov 2024 00:20:00 -0800)
 
 - **Du culte des morts à la culture de la mort : la lente dégringolade 
