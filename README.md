@@ -1,3 +1,11 @@
+### ps5 pro (N/A, Sun, 3 Nov 2024 15:50:00 -0800)
+
+- **PlayStation 5 Pro specs and teardown leaks ahead of launch: 16.7 TFLOPS 
+RDNA GPU and 8 Zen2 cores**: [Link](https://videocardz.com/newz/playstation-5-pro-specs-and-teardown-leaks-ahead-of-launch-16-7-tflops-rdna-gpu-and-8-zen2-cores)
+- **I have a theory on how the PS5 Pro could actually outclass PCs**: [Link](https://www.digitaltrends.com/computing/ps5-pro-could-beat-pc/)
+- **Sony quietly removes 8K from PS5 Pro – here’s why**: [Link](https://geeksided.com/sony-quietly-removes-8k-from-ps5-pro-here-s-why-01jbs31wkgzc)
+
+
 ### أتلتيك بيلباو ضد ريال بتيس (N/A, Sun, 3 Nov 2024 11:30:00 -0800)
 
 - **بالصور: بيلباو يفرض التعادل على ريال بيتيس**: [Link](https://m.kooora.com/?n=1365845&o=n27345)
