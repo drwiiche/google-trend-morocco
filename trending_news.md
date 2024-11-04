@@ -1,3 +1,13 @@
+### roi felipe d espagne (N/A, Sun, 3 Nov 2024 20:00:00 -0800)
+
+- **Les images des jets de boue visant le roi et la reine d’Espagne près de 
+Valence**: [Link](https://www.huffingtonpost.fr/international/video/le-roi-d-espagne-felipe-vi-et-la-reine-letizia-pris-a-partie-par-les-sinistres-des-inondations-pres-de-valence_241722.html)
+- **Le couple royal espagnol et Pedro Sanchez conspués par des sinistrés en 
+colère**: [Link](https://www.france24.com/fr/info-en-continu/20241103-espagne-les-inondations-ont-fait-213-morts-le-roi-attendu-sur-place)
+- **Inondations en Espagne : l’alerte rétrogradée en orange à Valence ; 
+fermeture des classes lundi**: [Link](https://www.lemonde.fr/planete/article/2024/11/03/inondations-en-espagne-les-habitants-de-la-region-de-valence-de-nouveau-en-alerte-rouge-appeles-a-rentrer-chez-eux_6373463_3245.html)
+
+
 ### ترتيب الدوري المغربي (N/A, Sun, 3 Nov 2024 11:00:00 -0800)
 
 - **جدول ترتيب الدوري المغربي 2024/2025 بعد نهاية الجولة 9**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2024-2025-%D8%A8%D8%B9%D8%AF-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-2/)
