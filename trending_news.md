@@ -1,3 +1,26 @@
+### viktor gyökeres (N/A, Tue, 5 Nov 2024 13:10:00 -0800)
+
+- **Gyokeres tem lugar no Man. City? Guardiola nem hesita**: [Link](https://www.abola.pt/futebol/noticias/gyokeres-tem-lugar-no-man-city-guardiola-nem-hesita-2024110420141234333)
+- **Sporting Lisboa vs. Manchester City: Como Assistir ao Jogo da Liga dos 
+Campeões ao Vivo?**: [Link](https://www.footboom1.com/br/news/football/2029568-sporting-lisbon-vs-manchester-city-how-to-watch-the-champions-league-match-live)
+- **5 clubes que chegam pressionados à 4ª rodada da fase de liga da Champions 
+League**: [Link](https://www.90min.com/pt-BR/clubes-chegam-pressionados-4-rodada-fase-liga-champions-league)
+
+
+### gyokeres (N/A, Tue, 5 Nov 2024 13:10:00 -0800)
+
+- **Vinicius Jr: Why fans of Real Madrid forward believe Ballon d'Or triumph 
+will come, despite 2024 setback**: [Link](https://www.bbc.com/sport/football/articles/cp9zn5439v0o)
+- **The Rodri Situation**: [Link](https://www.footboom1.com/en/news/football/2024292-the-rodri-situation)
+- **Ancelotti uses DANA tragedy to excuse the sadness of Real Madrid’s 
+‘spoiled’ child Vinicius**: [Link](https://www.mundodeportivo.com/us/en/20241105/707405/ancelotti-uses-dana-tragedy-to-excuse-the-sadness-of-real-madrid-s-spoiled-child-vinicius.html)
+
+
+### lille fc (N/A, Tue, 5 Nov 2024 13:10:00 -0800)
+
+- **UEFA Youth League: Juve held to draw by ten-man Lille**: [Link](https://onefootball.com/id/berita/uefa-youth-league-juve-held-to-draw-by-ten-man-lille-40267816)
+
+
 ### juventus (N/A, Tue, 5 Nov 2024 13:00:00 -0800)
 
 - **Lille-Juventus: dove vederla in diretta tv e streaming, probabili formazioni**: [Link](https://www.repubblica.it/sport/calcio/champions/2024/11/05/news/lille_juventus_dove_vedere_tv_formazioni-423596729/)
