@@ -1,3 +1,10 @@
+### psv eindhoven – girona (N/A, Tue, 5 Nov 2024 09:00:00 -0800)
+
+- **PSV vs. Girona (Nov 5, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/720376)
+- **PSV Eindhoven vs Girona Prediction, Pick, Odds for Champions League Tuesday**: [Link](https://www.actionnetwork.com/soccer/psv-eindhoven-vs-girona-prediction-pick-odds-for-champions-league-tuesday)
+- **The Price of Ambition**: [Link](https://www.footboom1.com/en/news/football/2026905-the-price-of-ambition)
+
+
 ### film seul (N/A, Tue, 5 Nov 2024 08:20:00 -0800)
 
 - **"Seul" sur France 2 et en streaming/replay**: [Link](https://bullesdeculture.com/events/seul-france-2-streaming-replay/)
