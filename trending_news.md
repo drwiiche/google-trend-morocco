@@ -1,3 +1,33 @@
+### kooora tv (N/A, Tue, 5 Nov 2024 14:00:00 -0800)
+
+
+
+
+### monaco fc (N/A, Tue, 5 Nov 2024 14:00:00 -0800)
+
+- **Preview: Bologna vs. Monaco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/preview-bologna-vs-monaco-prediction-team-news-lineups_557208.html)
+- **PLAYER RATINGS | Bologna 0-1 Monaco: Thilo Kehrer hands Monaco late victory 
+to greatly enhance Champions League qualification hopes**: [Link](https://www.getfootballnewsfrance.com/2024/player-ratings-bologna-0-1-monaco-thilo-kehrer-hands-monaco-late-victory-to-greatly-enhance-champions-league-qualification-hopes/)
+- **Watch Bologna vs. AS Monaco: UEFA Champions League free live stream**: [Link](https://www.masslive.com/tv/2024/11/watch-bologna-vs-as-monaco-uefa-champions-league-free-live-stream.html)
+
+
+### real madrid fc (N/A, Tue, 5 Nov 2024 13:40:00 -0800)
+
+- **Benzema Spoke About Real Madrid's Difficult Moment**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/benzema-spoke-about-real-madrid-s-difficult-moment-2024-11-05)
+- **UEFA Champions League Real Madrid versus AC Milan kick off 20:00 Tue 5 Nov 
+2024**: [Link](https://www.bbc.com/sport/football/live/c4gm0drjw2rt)
+- **Real Madrid - AC Milan live: Champions League - Football**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/live-real-madrid-ac-milan_mtc1525258/live-commentary.shtml)
+
+
+### sporting (N/A, Tue, 5 Nov 2024 13:10:00 -0800)
+
+- **Gyokeres tem lugar no Man. City? Guardiola nem hesita**: [Link](https://www.abola.pt/futebol/noticias/gyokeres-tem-lugar-no-man-city-guardiola-nem-hesita-2024110420141234333)
+- **Phil Foden não perdoa erro de Morita. Marcador aberto em Alvalade (Sporting 
+0-1 Manchester City)**: [Link](https://www.tsf.pt/1380512873/phil-foden-nao-perdoa-erro-de-morita-marcador-aberto-em-alvalade-sporting-0-1-manchester-city/)
+- **Destaques europeus: Liga dos Campeões aquece com os titãs a enfrentarem 
+testes complicados**: [Link](https://www.flashscore.pt/noticias/futebol-liga-europa-destaques-europeus-liga-dos-campeoes-aquece-com-os-titas-a-enfrentarem-testes-complicados/pOQd3KBk/)
+
+
 ### real madrid (N/A, Tue, 5 Nov 2024 13:40:00 -0800)
 
 - **Real Madrid - Milan, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/real-madrid-milan-en-directo-champions-league-hoy-en-vivo-n/)
