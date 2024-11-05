@@ -1,3 +1,11 @@
+### us election 2024 (N/A, Mon, 4 Nov 2024 22:50:00 -0800)
+
+- **Live updates: 2024 presidential election | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/2024-election-trump-harris/index.html)
+- **US election: It’s voting day – What polls say; what Harris, Trump are up to**: [Link](https://www.aljazeera.com/news/2024/11/5/us-election-zero-days-left-what-polls-say-what-harris-and-trump-are-up-to)
+- **Trump, Harris sprint to the finish line with less than 24 hours before 
+Election Day**: [Link](https://www.foxnews.com/live-news/donald-trump-kamala-harris-election-news-11-4-24)
+
+
 ### us election (N/A, Mon, 4 Nov 2024 18:30:00 -0800)
 
 - **Live updates: 2024 presidential election | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/2024-election-trump-harris/index.html)
