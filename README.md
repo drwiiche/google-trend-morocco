@@ -1,3 +1,10 @@
+### us election results (N/A, Tue, 5 Nov 2024 09:30:00 -0800)
+
+- **An hour-by-hour guide to election night poll closings**: [Link](https://www.cnn.com/2024/11/05/politics/polls-close-time-election-dg/index.html)
+- **When Will We Know Who Won the Battleground States?**: [Link](https://www.wsj.com/politics/elections/when-election-vote-results-certified-president-2024-aa56812b)
+- **See a Map of the 2024 Presidential Race Results**: [Link](https://time.com/7171969/presidential-election-results-map-states-called-electoral-college-associated-press/)
+
+
 ### mazraoui (N/A, Tue, 5 Nov 2024 09:20:00 -0800)
 
 - **Manchester United have unexpectedly discovered a new undroppable player 
