@@ -1,3 +1,12 @@
+### yves parlier (N/A, Tue, 5 Nov 2024 02:30:00 -0800)
+
+- **Samuel Le Bihan a perdu 10 kilos en 3 semaines pour le tournage de Seul, 
+l'acteur dévoile son régime**: [Link](https://www.purepeople.com/article/samuel-le-bihan-a-perdu-10-kilos-en-3-semaines-pour-le-tournage-de-seul-l-acteur-devoile-son-regime_a529578/1)
+- **Programme TV du lundi 4 novembre : « Seul », « Sur le front », « 40 »… 
+Notre sélection**: [Link](https://www.leparisien.fr/culture-loisirs/tv/programme-tv-du-lundi-4-novembre-seul-sur-le-front-40-notre-selection-04-11-2024-ZZRAR2XX35GH5ANQZ24HTS2IK4.php)
+- **Vivez en direct l’Everest des mers !**: [Link](https://www.francetelevisions.fr/et-vous/notre-tele/les-programmes-a-ne-pas-rater/la-10e-edition-du-vendee-globe-en-majeste-sur-france-televisions-35199)
+
+
 ### trump vs harris (N/A, Tue, 5 Nov 2024 01:50:00 -0800)
 
 - **US election 2024 live updates: Trump and Harris neck and neck as millions 
