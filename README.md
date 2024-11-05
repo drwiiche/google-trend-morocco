@@ -1,3 +1,13 @@
+### josé mourinho (N/A, Mon, 4 Nov 2024 16:10:00 -0800)
+
+- **Jose Mourinho: Fenerbahce coach slams Turkish referees after win at 
+Trabzonspor**: [Link](https://www.bbc.com/sport/football/articles/cy9j0jvxyddo)
+- **Watch: Jose Mourinho’s failed knee slide before astonishing rant over 
+‘corruption’ in Turkey**: [Link](https://www.telegraph.co.uk/football/2024/11/04/watch-jose-mourinho-knee-slide-fail-rant-corruption-turkey/)
+- **'Nobody watches': José Mourinho embarks on VAR-inspired rant about Turkish 
+football – video**: [Link](https://www.theguardian.com/football/video/2024/nov/04/jose-mourinho-var-rant-turkish-football-fenerbahce-video)
+
+
 ### مصطفى العلوي (N/A, Mon, 4 Nov 2024 15:20:00 -0800)
 
 - **حقيقة وفاة قيدوم الصحفيين مصطفى العلوي.**: [Link](https://agadir24.info/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%88%D9%81%D8%A7%D8%A9-%D9%82%D9%8A%D8%AF%D9%88%D9%85-%D8%A7%D9%84%D8%B5%D8%AD%D9%81%D9%8A%D9%8A%D9%86-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D8%A7%D9%84%D8%B9%D9%84%D9%88/)
