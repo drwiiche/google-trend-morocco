@@ -1,3 +1,21 @@
+### élections présidentielles américaines (N/A, Tue, 5 Nov 2024 05:20:00 -0800)
+
+- **Présidentielle américaine 2024 : à quelle heure sera révélé le résultat de 
+l’élection entre Harris et Trump ?**: [Link](https://www.sudouest.fr/international/etats-unis/elections/presidentielle-americaine-2024-a-quelle-heure-sera-revele-le-resultat-de-l-election-entre-harris-et-trump-22024978.php)
+- **EN DIRECT Election américaine 2024 : Ça y est, les bureaux de vote sont 
+ouverts…**: [Link](https://www.20minutes.fr/monde/election-presidentielle-americaine/4119601-20241105-direct-election-americaine-2024-millions-americains-appretent-departager-kamala-harris-donald-trump)
+- **Présidentielle américaine 2024 : Kamala Harris à Philadelphie et Donald 
+Trump dans le Michigan pour leur dernier meeting de campagne**: [Link](https://www.lemonde.fr/international/live/2024/11/04/en-direct-presidentielle-americaine-2024-donald-trump-et-kamala-harris-en-pennsylvanie-la-justice-autorise-elon-musk-a-continuer-a-distribuer-des-cheques-d-un-million-de-dollars-aux-electeurs-des-swing-states-suivez-les-dernieres-heures-de-la_6362433_3210.html)
+
+
+### carlo ancelotti (N/A, Tue, 5 Nov 2024 05:00:00 -0800)
+
+- **Sacchi has one Milan hope against Madrid, reveals Ancelotti’s recent calls**: [Link](https://football-italia.net/sacchi-one-milan-hope-madrid-ancelotti-calls/)
+- **When the Art of Football Became Science: Arrigo Sacchi's Milan and the Fall 
+of the 'Quinta del Buitre'**: [Link](https://www.footboom1.com/en/news/football/2028040-when-the-art-of-football-became-science-arrigo-sacchi-s-milan-and-the-fall-of-the-quinta-del-buitre)
+- **Sacchi, Baresi, Maldini...**: [Link](https://www.footboom1.com/en/news/football/2026553-sacchi-baresi-maldini)
+
+
 ### وفاة الصحفي مصطفى العلوي (N/A, Tue, 5 Nov 2024 03:50:00 -0800)
 
 - **حقيقة وفاة قيدوم الصحفيين مصطفى العلوي.**: [Link](https://agadir24.info/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%88%D9%81%D8%A7%D8%A9-%D9%82%D9%8A%D8%AF%D9%88%D9%85-%D8%A7%D9%84%D8%B5%D8%AD%D9%81%D9%8A%D9%8A%D9%86-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D8%A7%D9%84%D8%B9%D9%84%D9%88/)
