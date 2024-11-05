@@ -1,3 +1,43 @@
+### barcelone (N/A, Tue, 5 Nov 2024 14:20:00 -0800)
+
+- **Le dernier Grand Prix de la saison de MotoGP aura lieu à Barcelone**: [Link](https://www.lequipe.fr/Moto/Actualites/Le-dernier-grand-prix-de-la-saison-de-motogp-aura-lieu-a-barcelone/1518372)
+- **Inondations en Espagne. Moto GP : le Grand Prix de Valence aura finalement 
+lieu à Barcelone**: [Link](https://lemans.maville.com/sport/infos/detail_-inondations-en-espagne.-moto-gp-le-grand-prix-de-valence-aura-finalement-lieu-a-barcelone-_-6538336_actu.Htm)
+- **MotoGP: la dernière course de la saison déplacée à Barcelone, la polémique 
+enfle**: [Link](https://rmcsport.bfmtv.com/auto-moto/moto/moto-gp-la-derniere-course-de-la-saison-deplacee-a-barcelone-la-polemique-enfle_AV-202411050592.html)
+
+
+### ancelotti (N/A, Tue, 5 Nov 2024 14:20:00 -0800)
+
+- **LIVE Alle 21 Real Madrid-Milan: Leao torna titolare, Mbappé sfida Maignan**: [Link](https://www.gazzetta.it/Calcio/Champions-League/05-11-2024/real-madrid-milan-live-diretta-champions.shtml)
+- **RMA-MIL (1-3): Rudiger accorcia le distanze, anzi no. Il Var annulla**: [Link](https://www.milannews.it/news/rma-mil-1-3-rudiger-accorcia-le-distanze-anzi-no-il-var-annulla-555268)
+- **Rivedi Maignan: "La squadra ha fiducia in Leao". Stasera giocherà dal 1' 
+contro il Real**: [Link](https://www.tuttomercatoweb.com/serie-a/rivedi-maignan-la-squadra-ha-fiducia-in-leao-stasera-giochera-dal-1-contro-il-real-2031664)
+
+
+### ليل ضد يوفنتوس (N/A, Tue, 5 Nov 2024 14:10:00 -0800)
+
+- **بالصور.. فلاهوفيتش ينقذ يوفنتوس من ورطة ليل**: [Link](https://m.kooora.com/?n=1366283&o=n26971)
+- **يوفنتوس يعود من فرنسا بتعادل ثمين مع ليل**: [Link](https://hihi2.com/2024/11/06/p2923016.html)
+- **الصحراوي وبوعدي في التشكيل الرسمي أمام يوفنتوس**: [Link](https://www.almountakhab.com/node/13206231)
+
+
+### بولونيا ضد موناكو (N/A, Tue, 5 Nov 2024 14:10:00 -0800)
+
+- **طاقم التحكيم الأذربيجاني يدير مباراة بولونيا الإيطالي مع موناكو بدوري أبطال 
+أوروبا**: [Link](https://azertag.az/ar/xeber/arabic-3260240)
+- **موناكو يتخطي عقبة بولونيا في الأبطال**: [Link](https://www.ysscores.com/ar/news/6576266/%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%8A%D8%AA%D8%AE%D8%B7%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D8%A8%D9%88%D9%84%D9%88%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **موعد مباراة بولونيا وموناكو في دوري أبطال أوروبا اليوم 2024-11-05 والقنوات 
+الناقلة**: [Link](https://mes7at.com/matches/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%88%D9%84%D9%88%D9%86%D9%8A%D8%A7-%D9%88%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8/)
+
+
+### ترتيب دوري ابطال اوروبا (N/A, Tue, 5 Nov 2024 14:00:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 5 نوفمبر 2024 والقنوات الناقلة والمعلقين**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-5-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2024-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt918bba1abdfecebc)
+- **قمم قوية ومُنتظرة في ليلة دوري أبطال أوروبا**: [Link](https://www.alaraby.co.uk/sport/%D9%82%D9%85%D9%85-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D9%85%D9%8F%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **الريال أمام ميلان ولشبونة مع السيتي وليفربول يواجه ليفركوزن**: [Link](https://24.ae/article/855337/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1)
+
+
 ### kooora tv (N/A, Tue, 5 Nov 2024 14:00:00 -0800)
 
 
