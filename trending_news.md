@@ -1,3 +1,10 @@
+### يسرائيل كاتس (N/A, Tue, 5 Nov 2024 10:50:00 -0800)
+
+- **عاجل | القناة 12 الإسرائيلية: نتنياهو يقيل وزير الدفاع غالانت**: [Link](https://www.aljazeera.net/news/2024/11/5/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-12-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88)
+- **نتانياهو يقيل وزير الدفاع الإسرائيلي**: [Link](https://www.hespress.com/%D9%86%D8%AA%D8%A7%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D9%82%D9%8A%D9%84-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-1459961.html)
+- **بعد دقائق من إقالة وزير دفاع إسرائيل.. أول تعليق من بن غفير**: [Link](https://www.alhurra.com/israel/2024/11/05/%D8%AF%D9%82%D8%A7%D8%A6%D9%82-%D8%A5%D9%82%D8%A7%D9%84%D8%A9-%D9%88%D8%B2%D9%8A%D8%B1-%D8%AF%D9%81%D8%A7%D8%B9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A3%D9%88%D9%84-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1)
+
+
 ### psv vs girona (N/A, Tue, 5 Nov 2024 10:30:00 -0800)
 
 - **DIRECT. PSV Eindhoven-Gérone (Ligue des champions 2024-2025) à suivre en 
