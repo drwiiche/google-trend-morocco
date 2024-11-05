@@ -1,3 +1,21 @@
+### usa (N/A, Tue, 5 Nov 2024 10:00:00 -0800)
+
+- **Joe Rogan, Harrison Ford, Megyn Kelly among late celebrity endorsements 
+before Election Day 2024**: [Link](https://www.usatoday.com/story/news/politics/elections/2024/11/05/celebrity-endorsements-election-day-kamala-harris-donald-trump/76062974007/)
+- **Harrison Ford makes presidential endorsement days before 2024 election**: [Link](https://www.independent.co.uk/news/world/americas/us-politics/harrison-ford-endorsement-harris-trump-b2640782.html)
+- **Harrison Ford becomes latest Hollywood A-lister to endorse Kamala Harris: 
+I'm voting to 'move forward'**: [Link](https://www.foxnews.com/media/harrison-ford-latest-hollywood-a-lister-endorse-kamala-harris-im-voting-move-forward)
+
+
+### ucl (N/A, Tue, 5 Nov 2024 09:50:00 -0800)
+
+- **Darmian on Inter, Arsenal, Saka and why Premier League looks ‘faster’ than 
+Serie A**: [Link](https://football-italia.net/darmian-inter-arsenal-saka-epl-looks-faster/)
+- **Podolski Hails Saka as Arsenal's Top Talent While Pushing for Calafiori's 
+Development**: [Link](https://www.footboom1.com/en/news/football/2028255-podolski-hails-saka-as-arsenal-s-top-talent-while-pushing-for-calafiori-s-development)
+- **Inzaghi expecting Arsenal reaction after Newcastle defeat**: [Link](https://www.fotmob.com/news/1d7l7ks4n5jnm1golxdc6b5y0h-inzaghi-expecting-arsenal-reaction-after-newcastle-defeat)
+
+
 ### us election results (N/A, Tue, 5 Nov 2024 09:30:00 -0800)
 
 - **An hour-by-hour guide to election night poll closings**: [Link](https://www.cnn.com/2024/11/05/politics/polls-close-time-election-dg/index.html)
