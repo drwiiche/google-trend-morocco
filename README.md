@@ -1,3 +1,11 @@
+### film seul (N/A, Tue, 5 Nov 2024 08:20:00 -0800)
+
+- **"Seul" sur France 2 et en streaming/replay**: [Link](https://bullesdeculture.com/events/seul-france-2-streaming-replay/)
+- **Samuel Le Bihan a perdu 10 kilos en 3 semaines pour le tournage de Seul, 
+l'acteur dévoile son régime**: [Link](https://www.purepeople.com/article/samuel-le-bihan-a-perdu-10-kilos-en-3-semaines-pour-le-tournage-de-seul-l-acteur-devoile-son-regime_a529578/1)
+- **Sud Radio Média - Émission du 4 novembre 2024**: [Link](https://www.sudradio.fr/emission/le-10-heures-midi-media-960)
+
+
 ### real madrid – ac milan (N/A, Tue, 5 Nov 2024 07:50:00 -0800)
 
 - **Real Madrid vs AC Milan Showdown: When, How to Watch, Team News**: [Link](https://www.moroccoworldnews.com/2024/11/366148/real-madrid-vs-ac-milan-showdown-when-how-to-watch-team-news)
