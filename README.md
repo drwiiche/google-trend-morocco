@@ -1,3 +1,12 @@
+### election usa (N/A, Mon, 4 Nov 2024 20:30:00 -0800)
+
+- **Live updates: 2024 presidential election | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/2024-election-trump-harris/index.html)
+- **Trump blended nostalgia with attacks on Pelosi and Harris in final campaign 
+speech**: [Link](https://www.politico.com/news/2024/11/05/trump-blends-nostalgia-with-attacks-on-pelosi-and-harris-in-final-campaign-speech-00187368)
+- **Election 2024: Kamala Harris, Trump hold final rallies on eve of Election 
+Day**: [Link](https://www.nbcnews.com/politics/2024-election/live-blog/election-2024-trump-harris-live-updates-rcna178430)
+
+
 ### air france vols mer rouge (N/A, Mon, 4 Nov 2024 17:40:00 -0800)
 
 - **Air France suspend "jusqu'à nouvel ordre" le survol de la zone de la mer 
