@@ -1,3 +1,39 @@
+### sporting – manchester city (N/A, Tue, 5 Nov 2024 11:10:00 -0800)
+
+- **Sporting vs Man City: Champions League line-ups, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c238450zre1t)
+- **LIVE: Sporting Lisbon vs Manchester City – UEFA Champions League**: [Link](https://www.aljazeera.com/sports/liveblog/2024/11/5/live-sporting-lisbon-vs-manchester-city-uefa-champions-league)
+- **Sporting CP vs Man City: Gyokeres and Haaland among 85/1 Bet Builder**: [Link](https://www.whoscored.com/Articles/7A7ADz5MN0KXn64_UU2YTw/Show/Sporting-CP-vs-Man-City-Champions-League-Viktor-Gyokeres-Erling-Haaland-Phil-Foden-Ederson-85-1-Bet-Builder)
+
+
+### liverpool – leverkusen (N/A, Tue, 5 Nov 2024 11:10:00 -0800)
+
+- **Confirmed Liverpool line-up v Bayer Leverkusen**: [Link](https://www.liverpoolfc.com/de/news/confirmed-liverpool-line-v-bayer-leverkusen)
+- **Rolfes' Angriffslust und Xhakas Warnung vor Anfield: "Dann wird es sehr 
+schwer"**: [Link](https://www.kicker.at/rolfes-angriffslust-und-xhakas-warnung-vor-anfield-dann-wird-es-sehr-schwer-1065260/artikel)
+- **Slot: "Alonso ist etwas Besonderes“**: [Link](https://www.msn.com/de-de/video/other/slot-alonso-ist-etwas-besonderes/vi-AA1tudy2)
+
+
+### lille – juventus (N/A, Tue, 5 Nov 2024 11:10:00 -0800)
+
+- **LOSC Lille vs Juventus: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2024/11/05/losc-lille-vs-juventus-preview-and-prediction/)
+- **Juve must play at their limits against in-form Lille, warns Motta**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/juve-must-play-at-their-limits-against-in-form-lille-warns-motta-2024-11-04)
+- **Motta and Thuram: We are aiming for victory in Lille encounter**: [Link](https://www.juventus.com/en/news/articles/motta-and-thuram-we-are-aiming-for-victory-in-lille-encounter)
+
+
+### الريال ضد ميلان (N/A, Tue, 5 Nov 2024 11:00:00 -0800)
+
+- **الذكاء الاصطناعي يتوقع نتيجة قمة ريال مدريد وميلان**: [Link](https://www.kooora.com/?n=1366110)
+- **رقم مميز لريال مدريد قبل مباراة ميلان**: [Link](https://hihi2.com/2024/11/05/p2922637.html)
+- **الحزن يخيم على فينيسيوس ورفاقه في ريال مدريد.. وأنشيلوتي: ل?...**: [Link](https://kech24.com/%D8%A7%D9%84%D8%AD%D8%B2%D9%86-%D9%8A%D8%AE%D9%8A%D9%85-%D8%B9%D9%84%D9%89-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D8%B1%D9%81%D8%A7%D9%82%D9%87-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A3%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%84%D9%8A%D8%B3-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9.html)
+
+
+### madrid real (N/A, Tue, 5 Nov 2024 11:00:00 -0800)
+
+- **Real Madrid - Milan, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/real-madrid-milan-en-directo-champions-league-hoy-en-vivo-n/)
+- **Once del Madrid ante el Milan: Ancelotti deja en el banquillo a un fijo**: [Link](https://www.sport.es/es/noticias/real-madrid/once-madrid-milan-ancelotti-deja-111405919)
+- **La alineación del Real Madrid para el duelo ante el Milan**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20241105/1002347681/alineacion-real-madrid-duelo-milan.html)
+
+
 ### يسرائيل كاتس (N/A, Tue, 5 Nov 2024 10:50:00 -0800)
 
 - **عاجل | القناة 12 الإسرائيلية: نتنياهو يقيل وزير الدفاع غالانت**: [Link](https://www.aljazeera.net/news/2024/11/5/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-12-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88)
