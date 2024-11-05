@@ -1,3 +1,12 @@
+### psv vs girona (N/A, Tue, 5 Nov 2024 10:30:00 -0800)
+
+- **DIRECT. PSV Eindhoven-Gérone (Ligue des champions 2024-2025) à suivre en 
+direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/psv-eindhoven-girona-live/668016)
+- **PSV Eindhoven - Girona : les compositions sont là**: [Link](https://www.footmercato.net/a2979868199396022606-psv-eindhoven-girona-les-compositions-sont-la)
+- **Viktor Tsygankov Ecarté de la Convocation de Girona pour le Match contre le 
+PSV**: [Link](https://www.footboom1.com/fr/news/football/2025479-viktor-tsygankov-left-out-of-girona-s-squad-for-psv-match)
+
+
 ### champions league (N/A, Tue, 5 Nov 2024 10:20:00 -0800)
 
 - **Must-win games on road for Barcelona & Atletico Madrid**: [Link](http://www.uniindia.com/news/sports/football-champions-league-barcelona/3318097.html)
