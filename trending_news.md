@@ -1,3 +1,11 @@
+### brahim diaz (N/A, Tue, 5 Nov 2024 13:30:00 -0800)
+
+- **Brahim Diaz: Moroccan Fans’ Support Serves as Strong Motivation for Atlas 
+Lions**: [Link](https://www.moroccoworldnews.com/2024/11/366128/brahim-diaz-moroccan-fans-support-serves-as-strong-motivation-for-atlas-lions)
+- **Real Madrid star Brahim Diaz ready to write history with Morocco**: [Link](https://en.yabiladi.com/articles/details/155932/real-madrid-star-brahim-diaz.html)
+- **Brahim Diaz Says He's Ready to Make History with Morocco**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/brahim-diaz-says-he-s-ready-to-make-history-with-morocco-2024-11-04)
+
+
 ### bellingham (N/A, Tue, 5 Nov 2024 13:20:00 -0800)
 
 - **About half of Whatcom and Skagit County voters have now cast their ballots**: [Link](https://mybellinghamnow.com/news/297792-about-half-of-whatcom-and-skagit-county-voters-have-now-cast-their-ballots/)
