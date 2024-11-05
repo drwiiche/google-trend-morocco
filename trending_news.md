@@ -1,3 +1,68 @@
+### juventus (N/A, Tue, 5 Nov 2024 13:00:00 -0800)
+
+- **Lille-Juventus: dove vederla in diretta tv e streaming, probabili formazioni**: [Link](https://www.repubblica.it/sport/calcio/champions/2024/11/05/news/lille_juventus_dove_vedere_tv_formazioni-423596729/)
+- **Questo è il miglior Yildiz di sempre? Ecco cos'è davvero cambiato, c'entra 
+la gestione di Thiago**: [Link](https://www.ilbianconero.com/a/yildiz-gestione-thiago-motta-41522)
+- **Jugovic: "Koop come me? Alla sua età avevo vinto due Coppe. Tra Vlahovic e 
+David tengo Dusan, ma..."**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/05-11-2024/vladimir-jugovic-l-intervista-prima-di-lilla-juve-io-vlahovic-david-e.shtml)
+
+
+### real madrid match (N/A, Tue, 5 Nov 2024 13:00:00 -0800)
+
+- **Real Madrid vs Milan: An Emotional Tribute to the Valencia Community**: [Link](https://www.footboom1.com/en/news/football/2028260-real-madrid-vs-milan-an-emotional-tribute-to-the-valencia-community)
+- **Spain floods see Copa games postponed again**: [Link](http://www.china.org.cn/sports/2024-11/05/content_117526563.htm)
+- **Ancelotti: No one wanted to play, and the Ballon d'Or passed**: [Link](https://www.ysscores.com/en/news/6506315/Ancelotti:-No-one-wanted-to-play,-and-the-Ballon-d'Or-passed)
+
+
+### ترتيب دوري أبطال أوروبا (N/A, Tue, 5 Nov 2024 13:00:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 5 نوفمبر 2024 والقنوات الناقلة والمعلقين**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-5-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2024-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt918bba1abdfecebc)
+- **قمم قوية ومُنتظرة في ليلة دوري أبطال أوروبا**: [Link](https://www.alaraby.co.uk/sport/%D9%82%D9%85%D9%85-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D9%85%D9%8F%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **الريال أمام ميلان ولشبونة مع السيتي وليفربول يواجه ليفركوزن**: [Link](https://24.ae/article/855337/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1)
+
+
+### rma vs (N/A, Tue, 5 Nov 2024 13:00:00 -0800)
+
+- **Real Madrid vs. Milan (5 Nov, 2024) Live Score**: [Link](https://africa.espn.com/football/match/_/gameId/720380)
+- **Champions League live blog: Real Madrid-Milan, Liverpool-Bayern Leverkusen**: [Link](https://www.espn.com/soccer/story/_/id/42114203/2024-uefa-champions-league-matchday-4-live-updates-highlights-real-madrid-ac-milan-liverpool-bayer-leverkusen-manchester-city)
+- **Real Madrid - AC Milan live: Champions League - Football**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/live-real-madrid-ac-milan_mtc1525258/live-commentary.shtml)
+
+
+### champions league 2024 (N/A, Tue, 5 Nov 2024 13:00:00 -0800)
+
+- **Flick talks Gavi, Pena, Szczesny, Deco, offside trap ahead of Crvena Zvezda 
+vs Barcelona**: [Link](https://barcauniversal.com/flick-talks-gavi-pena-szczesny-deco-offside-trap-ahead-of-crvena-zvezda-vs-barcelona/)
+- **“We are facing the best team in Europe” – Barcelona glowingly praised ahead 
+of Champions League clash**: [Link](https://www.football-espana.net/2024/11/05/we-are-facing-the-best-team-in-europe-barcelona-glowingly-praised-ahead-of-champions-league-clash)
+- **Who is Andrija Maksimovic? The "Serbian Messi" Who Challenged Lamine Yamal**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles-video/who-is-andrija-maksimovic-the-serbian-messi-who-challenged-lamine-yamal-2024-11-05)
+
+
+### liverpool (N/A, Tue, 5 Nov 2024 12:50:00 -0800)
+
+- **Virgil van Dijk: We need to take Brighton positives into Leverkusen clash**: [Link](https://www.liverpoolfc.com/news/virgil-van-dijk-we-need-take-brighton-positives-leverkusen-clash)
+- **African players in Europe: Salah takes Liverpool back to top**: [Link](https://www.rfi.fr/en/sports/20241104-african-players-in-europe-salah-takes-liverpool-back-to-top)
+- **"Absolutely Crazy" - Exploring the Importance of Anfield's Atmosphere in 
+Liverpool's Title Push**: [Link](https://anfieldindex.com/74885/absolutely-crazy-exploring-the-importance-of-anfields-atmosphere-in-liverpools-title-push.html)
+
+
+### robert kennedy (N/A, Tue, 5 Nov 2024 12:50:00 -0800)
+
+- **RFK Jr. says Trump would push to remove fluoride from drinking water. 'It's 
+possible,' Trump says**: [Link](https://apnews.com/article/rfk-kennedy-trunt-fluoride-water-eaf74072a1d037ba37475337b470dcb8)
+- **GOP’s closing election message on health baffles strategists, worries 
+experts**: [Link](https://www.bostonglobe.com/2024/11/04/nation/gops-closing-election-message-health-baffles-strategists-worries-experts/)
+- **Can Refrigerator Filters Remove Fluoride From Water? A Fact Check**: [Link](https://www.greenmatters.com/news/do-fridge-filters-remove-fluoride)
+
+
+### k (N/A, Tue, 5 Nov 2024 12:50:00 -0800)
+
+- **A California canine officer was an ace at locating drugs. Authorities say 
+it was all made up**: [Link](https://www.sfchronicle.com/bayarea/article/california-canine-officer-indictment-contraband-19879763.php)
+- **Former San Quentin K-9 officer indicted for planting contraband, 
+'pretending' to find**: [Link](https://www.ktvu.com/news/former-san-quentin-k-9-officer-indicted-planting-contraband-pretending-find)
+- **Day Around The Bay: Ace Drug-Finding K-9 Officer Apparently A Fraud**: [Link](https://sfist.com/2024/11/01/day-around-the-bay-k9-officer-fraud/)
+
+
 ### celtic glasgow – rb leipzig (N/A, Tue, 5 Nov 2024 12:40:00 -0800)
 
 - **RB Leipzig: Bitshiabu in der Startelf gegen Celtic - Die News zum Spiel**: [Link](https://www.lvz.de/sport/regional/rb-leipzig-bitshiabu-in-der-startelf-gegen-celtic-die-news-zum-spiel-FEUNU4PZA4TRPOCCO5RAO35JFA.html)
