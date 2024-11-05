@@ -1,3 +1,47 @@
+### dortmund – sturm graz (N/A, Tue, 5 Nov 2024 11:20:00 -0800)
+
+- **Sky-Experte Janko: "Der BVB ist im Moment keine gefestigte Mannschaft"**: [Link](https://www.skysportaustria.at/mediathek/janko-der-bvb-ist-im-moment-keine-gefestigte-mannschaft/)
+- **„Wann ist Anpfiff?“ Sturm-Fans in Feierlaune!**: [Link](https://fan.at/news/672a268694aed8693168845d)
+- **Wiedersehen mit Ex-BVB-Talent Stankovic muss ausfallen**: [Link](https://bvbwld.de/2024/11/05/wiedersehen-mit-ex-bvb-talent-stankovic-muss-ausfallen/)
+
+
+### bologne – monaco (N/A, Tue, 5 Nov 2024 11:20:00 -0800)
+
+- **Bologna : Sam Beukema, la muraille néerlandaise dont doit se méfier l’AS 
+Monaco**: [Link](https://www.footmercato.net/a8672453068860634497-bologna-sam-beukema-la-muraille-neerlandaise-dont-doit-se-mefier-las-monaco)
+- **LdC : Bologne-Monaco, les compos probables**: [Link](https://news.maxifoot.fr/ligue-champions/bologne-monaco-les-compos-probables-foot-422290.htm)
+- **Pronostic Bologne Monaco : Analyse, cotes et prono de l’affiche de Ligue 
+des champions**: [Link](https://www.sofoot.com/breves/pronostic-bologne-monaco-analyse-cotes-et-prono-de-laffiche-de-ligue-des-champions)
+
+
+### سبورتينغ ضد مان سيتي (N/A, Tue, 5 Nov 2024 11:20:00 -0800)
+
+- **مفاجأة في تشكيل مانشستر سيتي أمام سبورتنج**: [Link](https://www.kooora.com/?n=1366235)
+- **مانشستر سيتي لا يعرف الخسارة ضد لشبونة في دوري الابطال**: [Link](https://hihi2.com/2024/11/05/p2922650.html)
+- **سبورتينغ القوي هجومياً... خطر كبير على مانشستر سيتي أوروبياً**: [Link](https://www.alaraby.co.uk/sport/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D8%A7%D9%84%D9%82%D9%88%D9%8A-%D9%87%D8%AC%D9%88%D9%85%D9%8A%D8%A7%D9%8B-%D8%AE%D8%B7%D8%B1-%D9%83%D8%A8%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A7%D9%8B)
+
+
+### ليفربول ضد ليفركوزن (N/A, Tue, 5 Nov 2024 11:20:00 -0800)
+
+- **صلاح يقود ليفربول أمام ليفركوزن**: [Link](https://m.kooora.com/?n=1366238&o=n)
+- **أفضل تشكيلة مشتركة بين ليفربول وباير ليفركوزن**: [Link](https://hihi2.com/2024/11/05/p2922437.html)
+- **مشاهدة مباراة ليفربول ضد باير ليفركوزن في دوري أبطال أوروبا**: [Link](https://aboutmsr.com/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B6%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2/)
+
+
+### madrid (N/A, Tue, 5 Nov 2024 11:20:00 -0800)
+
+- **Real Madrid - Milan, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/real-madrid-milan-en-directo-champions-league-hoy-en-vivo-n/)
+- **Once del Madrid ante el Milan: Ancelotti deja en el banquillo a un fijo**: [Link](https://www.sport.es/es/noticias/real-madrid/once-madrid-milan-ancelotti-deja-111405919)
+- **La alineación del Real Madrid para el duelo ante el Milan**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20241105/1002347681/alineacion-real-madrid-duelo-milan.html)
+
+
+### غالانت (N/A, Tue, 5 Nov 2024 11:00:00 -0800)
+
+- **عاجل | القناة 12 الإسرائيلية: نتنياهو يقيل وزير الدفاع غالانت**: [Link](https://www.aljazeera.net/news/2024/11/5/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-12-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88)
+- **بعد دقائق من إقالة وزير دفاع إسرائيل.. أول تعليق من بن غفير**: [Link](https://www.alhurra.com/israel/2024/11/05/%D8%AF%D9%82%D8%A7%D8%A6%D9%82-%D8%A5%D9%82%D8%A7%D9%84%D8%A9-%D9%88%D8%B2%D9%8A%D8%B1-%D8%AF%D9%81%D8%A7%D8%B9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A3%D9%88%D9%84-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1)
+- **نتانياهو يقيل وزير الدفاع الإسرائيلي**: [Link](https://www.hespress.com/%D9%86%D8%AA%D8%A7%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D9%82%D9%8A%D9%84-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-1459961.html)
+
+
 ### sporting – manchester city (N/A, Tue, 5 Nov 2024 11:10:00 -0800)
 
 - **Sporting vs Man City: Champions League line-ups, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c238450zre1t)
