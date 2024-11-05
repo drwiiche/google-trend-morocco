@@ -1,3 +1,43 @@
+### theo hernandez (N/A, Tue, 5 Nov 2024 12:30:00 -0800)
+
+- **CM: Paz, Güler, Theo Hernandez – possible future deals between Real Madrid 
+and Milan**: [Link](https://sempremilan.com/possible-future-deals-between-real-madrid-milan)
+- **MN: ‘Dumped by Real, captain of Milan’ – Hernandez looking for revenge on 
+Bernabeu return**: [Link](https://sports.yahoo.com/mn-dumped-real-captain-milan-153500490.html)
+- **Theo Hernández: The Next Big Bargain**: [Link](https://www.footboom1.com/en/news/football/2027988-theo-hernandez-the-next-big-bargain)
+
+
+### bet365 (N/A, Tue, 5 Nov 2024 12:30:00 -0800)
+
+- **Bet365 Bonus Code WEEK365: $150 Bonus or $1K Safety Net for NHL This Week**: [Link](https://www.newsweek.com/bet365-bonus-code-week365-150-bonus-1k-safety-net-nhl-this-week-november-5-1979978)
+- **$1,000 Bet365 new-user promo code PWEVG365: Jaguars vs Eagles now**: [Link](https://www.pickswise.com/news/1000-bet365-new-user-promo-code-pwevg365-jaguars-vs-eagles-now/)
+- **bet365 Bonus Code TOPACTION: Claim $200 in Bonus Bets or $1K First Bet 
+Offer for Bucs-Chiefs MNF**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-topaction-claim-200-in-bonus-bets-or-1000-first-bet-offer-for-bucs-chiefs-mnf)
+
+
+### morata (N/A, Tue, 5 Nov 2024 12:30:00 -0800)
+
+- **Former Real Madrid star expecting to be booed at the Bernabeu ahead of 
+return with AC Milan**: [Link](https://madriduniversal.com/former-real-madrid-star-expecting-to-be-booed-at-the-bernabeu-ahead-of-return-with-ac-milan/)
+- **Alvaro Morata interview: ‘I know I can help players not make the mistakes I 
+made’ - The Athletic**: [Link](https://www.nytimes.com/athletic/5892476/2024/11/04/alvaro-morata-interview-milan-madrid/)
+- **AC Milan star used to go to bars with Real Madrid ultras**: [Link](https://sports.yahoo.com/ac-milan-star-used-bars-174400070.html)
+
+
+### yallakora (N/A, Tue, 5 Nov 2024 12:30:00 -0800)
+
+- **ميسي على رأس قائمة الأرجنتين لمواجهتي باراجواي وبيرو**: [Link](https://m.kooora.com/?n=1366197&o=n)
+- **ميسي على رأس قائمة الأرجنتين لمواجهتي باراجواي وبيرو**: [Link](https://hihi2.com/2024/11/05/p2922525.html)
+- **مفاجآت في قائمة الأرجنتين لتصفيات المونديال**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5078615-%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+
+
+### yalla (N/A, Tue, 5 Nov 2024 12:30:00 -0800)
+
+- **Ministry of Youth’s Yalla Camp Takes to Bahariya Oasis & White Desert**: [Link](https://cairoscene.com/Buzz/Ministry-of-Youth-s-Yalla-Camp-Takes-to-Bahariya-Oasis-White-Desert)
+- **‘Yalla Parkour’ Trailer: Gazan Youth Athletes Practice Parkour with a 
+Palestinian Spirit**: [Link](https://www.indiewire.com/news/trailers/yalla-parkour-trailer-gaza-documentary-1235062195/)
+
+
 ### chase oliver (N/A, Tue, 5 Nov 2024 12:10:00 -0800)
 
 - **Armed, Gay and Looking for Redemption**: [Link](https://newlinesmag.com/reportage/armed-gay-and-looking-for-redemption/)
