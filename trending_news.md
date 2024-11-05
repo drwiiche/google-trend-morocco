@@ -1,3 +1,10 @@
+### chase oliver (N/A, Tue, 5 Nov 2024 12:10:00 -0800)
+
+- **Armed, Gay and Looking for Redemption**: [Link](https://newlinesmag.com/reportage/armed-gay-and-looking-for-redemption/)
+- **Where Libertarian Presidential Candidate Chase Oliver Stands on Guns**: [Link](https://www.guns.com/news/2024/11/03/where-libertarian-presidential-candidate-chase-oliver-stands-on-guns)
+- **This man is looking to steal female votes from Harris and Trump**: [Link](https://www.afr.com/world/north-america/this-man-is-looking-to-steal-female-votes-from-harris-and-trump-20241103-p5knfh)
+
+
 ### jill stein (N/A, Tue, 5 Nov 2024 12:00:00 -0800)
 
 - **US election 2024: Could Jill Stein determine whether Trump or Harris wins?**: [Link](https://www.aljazeera.com/news/2024/11/5/us-election-2024-could-jill-stein-determine-whether-trump-or-harris-wins)
