@@ -1,3 +1,16 @@
+### quinte (N/A, Tue, 5 Nov 2024 05:40:00 -0800)
+
+
+
+
+### المغرب (N/A, Tue, 5 Nov 2024 05:40:00 -0800)
+
+- **عمره 15 ألف سنة.. اكتشاف مذهل بمغارة في المغرب**: [Link](https://www.alarabiya.net/north-africa/morocco/2024/11/04/%D8%B9%D9%85%D8%B1%D9%87-15-%D8%A3%D9%84%D9%81-%D8%B3%D9%86%D8%A9-%D8%A7%D9%83%D8%AA%D8%B4%D8%A7%D9%81-%D8%A3%D9%82%D8%AF%D9%85-%D8%A7%D8%B3%D8%AA%D8%B9%D9%85%D8%A7%D9%84-%D8%B7%D8%A8%D9%8A-%D9%84%D9%84%D8%A3%D8%B9%D8%B4%D8%A7%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **علماء يكشفون عن دور نبتة "الإفيدرا" في دفن الإنسان القديم بالمغرب**: [Link](https://www.hespress.com/%D8%B9%D9%84%D9%85%D8%A7%D8%A1-%D9%8A%D9%83%D8%B4%D9%81%D9%88%D9%86-%D8%B9%D9%86-%D8%AF%D9%88%D8%B1-%D9%86%D8%A8%D8%AA%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D9%8A%D8%AF%D8%B1%D8%A7-%D9%81%D9%8A-%D8%AF-1458704.html)
+- **اكتشاف أقدم استعمال « طبي » للأعشاب في العالم بمغارة الحمام بتافوغالت عمره 
+15ألف سنة – اليوم 24**: [Link](https://alyaoum24.com/1927341.html)
+
+
 ### élections présidentielles américaines (N/A, Tue, 5 Nov 2024 05:20:00 -0800)
 
 - **Présidentielle américaine 2024 : à quelle heure sera révélé le résultat de 
