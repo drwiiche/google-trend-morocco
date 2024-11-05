@@ -1,3 +1,18 @@
+### ligue des champions (N/A, Tue, 5 Nov 2024 11:40:00 -0800)
+
+- **Lille-Juventus : Edon Zhegrova, l'irrégularité comme principal défaut**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/lille-juventus-edon-zhegrova-lirregularite-comme-principal-defaut_sto20051026/story.shtml)
+- **Lille - Juventus : les compositions officielles**: [Link](https://www.footmercato.net/a2309122947670093743-lille-juventus-les-compositions-officielles)
+- **DIRECT. Lille-Juventus Turin (Ligue des champions 2024-2025) à suivre en 
+direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/lille-juventus-turin-live/668020)
+
+
+### liverpool vs leverkusen (N/A, Tue, 5 Nov 2024 11:40:00 -0800)
+
+- **Liverpool Confirmed Lineup Vs Bayer Leverkusen for November 5**: [Link](https://lastwordonsports.com/football/2024/11/05/liverpool-confirmed-lineup-vs-bayer-leverkusen/)
+- **This Team Can Pose a Threat to Bayern**: [Link](https://www.footboom1.com/en/news/football/2027600-this-team-can-pose-a-threat-to-bayern)
+- **Alonso reveals why he refused to replace Klopp at Liverpool**: [Link](https://telegrafi.com/en/alonso-tregon-arsyen-pse-nuk-pranoi-te-zevendesonte-kloppin-te-liverpooli/)
+
+
 ### dortmund – sturm graz (N/A, Tue, 5 Nov 2024 11:20:00 -0800)
 
 - **Sky-Experte Janko: "Der BVB ist im Moment keine gefestigte Mannschaft"**: [Link](https://www.skysportaustria.at/mediathek/janko-der-bvb-ist-im-moment-keine-gefestigte-mannschaft/)
