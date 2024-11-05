@@ -1,3 +1,12 @@
+### kamala harris (N/A, Mon, 4 Nov 2024 23:10:00 -0800)
+
+- **US election 2024 live updates: Trump and Harris neck and neck as millions 
+set to vote in US election**: [Link](https://www.bbc.com/news/live/czxrnw5qrprt)
+- **November 2024 Final Swing State Polls: Too-Close-To-Call Election for 
+President**: [Link](https://emersoncollegepolling.com/november-2024-final-swing-state-polls-too-close-to-call-election-for-president/)
+- **November 4, 2024, presidential campaign news**: [Link](https://www.cnn.com/politics/live-news/trump-harris-election-11-04-24/index.html)
+
+
 ### yves parlier (N/A, Tue, 5 Nov 2024 02:30:00 -0800)
 
 - **Samuel Le Bihan a perdu 10 kilos en 3 semaines pour le tournage de Seul, 
