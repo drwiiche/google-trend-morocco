@@ -1,3 +1,10 @@
+### bellingham (N/A, Tue, 5 Nov 2024 13:20:00 -0800)
+
+- **About half of Whatcom and Skagit County voters have now cast their ballots**: [Link](https://mybellinghamnow.com/news/297792-about-half-of-whatcom-and-skagit-county-voters-have-now-cast-their-ballots/)
+- **LIVE: Election coverage and updates on My Bellingham Now and KGMI**: [Link](https://kpug1170.com/news/297792-live-election-coverage-and-updates-on-my-bellingham-now-and-kgmi/)
+- **Last-minute voting tips in Washington state: Replacing a ballot and more**: [Link](https://www.allsides.com/news/2024-11-04-1715/politics-last-minute-voting-tips-washington-state-replacing-ballot-and-more)
+
+
 ### viktor gyökeres (N/A, Tue, 5 Nov 2024 13:10:00 -0800)
 
 - **Gyokeres tem lugar no Man. City? Guardiola nem hesita**: [Link](https://www.abola.pt/futebol/noticias/gyokeres-tem-lugar-no-man-city-guardiola-nem-hesita-2024110420141234333)
