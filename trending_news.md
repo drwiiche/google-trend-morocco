@@ -1,3 +1,35 @@
+### mazraoui (N/A, Tue, 5 Nov 2024 09:20:00 -0800)
+
+- **Manchester United have unexpectedly discovered a new undroppable player 
+this season**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/manchester-united-unexpectedly-discovered-new-30294472)
+- **'Excellent' Man Utd star insists 'everybody knows that' Red Devils are in a 
+false position**: [Link](https://www.teamtalk.com/manchester-united/red-devils-star-insists-united-false-position-and-reveals-how-everybody-knows-that)
+- **Red Devils Rally for Hope Amid Turmoil**: [Link](https://www.footboom1.com/en/news/football/2025287-red-devils-rally-for-hope-amid-turmoil)
+
+
+### al-nassr fc – al ain (N/A, Tue, 5 Nov 2024 09:10:00 -0800)
+
+- **Al Nassr vs Al Ain LIVE score, AFC Champions League: Where to watch Ronaldo 
+play; Lineups out soon; Kick off at 11:30 PM IST**: [Link](https://sportstar.thehindu.com/football/al-nassr-vs-al-ain-live-score-updates-afc-champions-league-elite-highlights-cristiano-ronaldo-nas-v-ain-streaming-info-news/article68833381.ece)
+- **Crespo: Facing Al-Nasr is difficult**: [Link](https://www.ysscores.com/en/news/6522284/Crespo:-Facing-Al-Nasr-is-difficult)
+- **Soufiane Rahimi: Al Ain's Key Weapon Against Al Nassr at "Al Awal Park"**: [Link](https://dailysports.net/news/sofiane-rahimi-al-ains-key-weapon-against-al-nassr-at-al-awal-park/)
+
+
+### النصر ضد العين (N/A, Tue, 5 Nov 2024 09:10:00 -0800)
+
+- **العين يعول على رحيمي أمام النصر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D9%8A%D8%B9%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-1459326.html)
+- **رونالدو ولابا كودجو يقودان هجوم النصر والعين في القمة الآسيوية**: [Link](https://m.kooora.com/?n=1366202&o=n27322)
+- **الأنظار تتجه إلى رحيمي اليوم وهو يواجه رونالدو**: [Link](https://www.almountakhab.com/node/16206205)
+
+
+### adam aznou (N/A, Tue, 5 Nov 2024 09:10:00 -0800)
+
+- **Auf diese Einwechslung haben Bayern-Fans gewartet**: [Link](https://www.sport1.de/tv-video/video/auf-diese-einwechslung-haben-bayern-fans-gewartet__BE329EBE-7C9D-4B90-8688-9A7FEC0E1E0C)
+- **Neues Juwel für den FC Bayern: Flick und Barcelona dürften sich mächtig 
+ärgern**: [Link](https://www.wetterauer-zeitung.de/sport/fussball/neues-juwel-fuer-den-fc-bayern-flick-und-barcelona-duerften-sich-maechtig-aergern-zr-93390062.html)
+- **"Extra-Spieler dabei": Adam Aznous große Chance beim FC Bayern München**: [Link](https://www.spox.com/de/sport/listen/fussball/bundesliga/fc-bayern/2411/extra-spieler-dabei-adam-aznous-grosse-chance-beim-fcb-ftr.html)
+
+
 ### psv eindhoven – girona (N/A, Tue, 5 Nov 2024 09:00:00 -0800)
 
 - **PSV vs. Girona (Nov 5, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/720376)
