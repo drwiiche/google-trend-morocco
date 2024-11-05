@@ -1,3 +1,14 @@
+### air france vols mer rouge (N/A, Mon, 4 Nov 2024 17:40:00 -0800)
+
+- **Air France suspend "jusqu'à nouvel ordre" le survol de la zone de la mer 
+Rouge après le signalement d'un possible "objet lumineux" au-dessus du 
+Soudan**: [Link](https://www.francetvinfo.fr/economie/aeronautique/air-france-suspend-jusqu-a-nouvel-ordre-tout-survol-de-la-zone-de-la-mer-rouge-par-ses-avions_6876110.html)
+- **Tim était à bord d’un vol Air France qui a fait demi-tour au-dessus du 
+Soudan: “Le pilote a parlé d’un ou plusieurs missiles”**: [Link](https://www.7sur7.be/monde/tim-etait-a-bord-dun-vol-air-france-qui-a-fait-demi-tour-au-dessus-du-soudan-le-pilote-a-parle-dun-ou-plusieurs-missiles~a89e4eac/)
+- **Un avion et deux Belges font demi-tour après avoir aperçu un objet lumineux 
+près du Soudan : "Le pilote a parlé d'un ou plusieurs missiles "**: [Link](https://www.lalibre.be/international/moyen-orient/2024/11/04/un-avion-et-deux-belges-font-demi-tour-apres-avoir-apercu-un-objet-lumineux-pres-du-soudan-le-pilote-a-parle-dun-ou-plusieurs-missiles-FRBRHS7SL5HOPOPHTUY4RAWNEA/)
+
+
 ### us election 2024 (N/A, Mon, 4 Nov 2024 22:50:00 -0800)
 
 - **Live updates: 2024 presidential election | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/2024-election-trump-harris/index.html)
