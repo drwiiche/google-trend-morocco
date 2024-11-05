@@ -1,3 +1,12 @@
+### trump vs harris (N/A, Tue, 5 Nov 2024 01:50:00 -0800)
+
+- **US election 2024 live updates: Trump and Harris neck and neck as millions 
+set to vote in US election**: [Link](https://www.bbc.com/news/live/czxrnw5qrprt)
+- **November 2024 Final Swing State Polls: Too-Close-To-Call Election for 
+President**: [Link](https://emersoncollegepolling.com/november-2024-final-swing-state-polls-too-close-to-call-election-for-president/)
+- **November 4, 2024, presidential campaign news**: [Link](https://www.cnn.com/politics/live-news/trump-harris-election-11-04-24/index.html)
+
+
 ### 6 novembre (N/A, Tue, 5 Nov 2024 01:20:00 -0800)
 
 - **"Je n’ai rien pu faire" : Sara avoue à Roxane avoir été violée dans Demain 
