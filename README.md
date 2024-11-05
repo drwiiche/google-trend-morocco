@@ -1,3 +1,14 @@
+### 6 novembre (N/A, Tue, 5 Nov 2024 01:20:00 -0800)
+
+- **"Je n’ai rien pu faire" : Sara avoue à Roxane avoir été violée dans Demain 
+nous appartient**: [Link](https://www.programme-television.org/news/series/series-quotidiennes/je-n-ai-rien-pu-faire-sara-avoue-a-roxane-avoir-ete-violee-dans-demain-nous-appartient-4734546)
+- **Demain nous appartient en avance : Octave est-il le violeur de Rachel, 
+Lilou et Sara ? Timothée a peut-être découvert la preuve ! Le résumé de 
+l'épisode 1807 du mardi 5 novembre 2024**: [Link](https://www.programme-tv.net/news/series-tv/364125-demain-nous-appartient-en-avance-octave-est-il-le-violeur-de-rachel-lilou-et-sara-timothee-a-peut-etre-decouvert-la-preuve-le-resume-de-l-episode-1807-du-mardi-5-novembre-2024/)
+- **Demain nous appartient : "Ça me rend malade ce qu'il t’es arrivé..." Le 
+résumé du 01 novembre (SPOILERS)**: [Link](https://fr.news.yahoo.com/demain-appartient-%C3%A7a-rend-malade-165002603.html)
+
+
 ### الانتخابات الامريكية (N/A, Mon, 4 Nov 2024 19:30:00 -0800)
 
 - **الانتخابات الأميركية: تغطية مباشرة للسباق نحو البيت الأبيض**: [Link](https://asharq.com/politics/94918/%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%87%D8%A7%D8%B1%D9%8A%D8%B3/)
