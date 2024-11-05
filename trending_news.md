@@ -1,3 +1,34 @@
+### real madrid (N/A, Tue, 5 Nov 2024 13:40:00 -0800)
+
+- **Real Madrid - Milan, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/real-madrid-milan-en-directo-champions-league-hoy-en-vivo-n/)
+- **Uno a uno del Real Madrid vs Milan: valoración y comentarios**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/05/real-madrid-vs-milan-valoracion-comentarios.html)
+- **La UEFA adelanta la alineación de Ancelotti contra el Milan: sorpresa en la 
+medular**: [Link](https://www.defensacentral.com/real_madrid/1709329859-la-uefa-adelanta-la-alineacion-de-ancelotti-contra-el-milan-sorpresa-en-la-medular)
+
+
+### yalla kora (N/A, Tue, 5 Nov 2024 13:40:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 5 نوفمبر 2024 والقنوات الناقلة والمعلقين**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-5-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2024-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt918bba1abdfecebc)
+- **قمم قوية ومُنتظرة في ليلة دوري أبطال أوروبا**: [Link](https://www.alaraby.co.uk/sport/%D9%82%D9%85%D9%85-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D9%85%D9%8F%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **الريال أمام ميلان ولشبونة مع السيتي وليفربول يواجه ليفركوزن**: [Link](https://24.ae/article/855337/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1)
+
+
+### reijnders (N/A, Tue, 5 Nov 2024 13:40:00 -0800)
+
+- **Tottenham work on signing midfielder in January – Sources**: [Link](https://www.footballinsider247.com/tottenham-work-on-signing-midfielder-in-january-sources/)
+- **The £21m Tottenham transfer agreement to add to Ange Postecoglou masterplan 
+in 2025**: [Link](https://www.football.london/tottenham-hotspur-fc/transfer-news/21m-tottenham-transfer-agreement-add-30301057)
+- **Three fast centre-backs Spurs should sign as Micky Van de Ven backup**: [Link](https://www.spurs-web.com/tottenham-hotspur-fan-articles/three-fast-centre-backs-spurs-should-sign-as-micky-van-de-ven-backup/)
+
+
+### tijjani reijnders (N/A, Tue, 5 Nov 2024 13:40:00 -0800)
+
+- **Reijnders krijgt handen op elkaar in Italië: 'Hij is essentieel voor Milan'**: [Link](https://www.vi.nl/nieuws/reijnders-krijgt-handen-op-elkaar-in-italie-hij-is-essentieel-voor-milan)
+- **‘Arne Slot gaat voor Oranje-transfer’**: [Link](https://www.soccernews.nl/news/arne-slot-gaat-voor-oranje-transfer/)
+- **Liverpool hoopt AC Milan met sensationele ruildeal te overtuigen van 
+transfer Tijjani Reijnders**: [Link](https://onefootball.com/es/noticias/liverpool-hoopt-ac-milan-met-sensationele-ruildeal-te-overtuigen-van-transfer-tijjani-reijnders-40262962)
+
+
 ### brahim diaz (N/A, Tue, 5 Nov 2024 13:30:00 -0800)
 
 - **Brahim Diaz: Moroccan Fans’ Support Serves as Strong Motivation for Atlas 
