@@ -1,3 +1,27 @@
+### real madrid – ac milan (N/A, Tue, 5 Nov 2024 07:50:00 -0800)
+
+- **Real Madrid vs AC Milan Showdown: When, How to Watch, Team News**: [Link](https://www.moroccoworldnews.com/2024/11/366148/real-madrid-vs-ac-milan-showdown-when-how-to-watch-team-news)
+- **Gazzetta: Milan’s Fonseca to lineup in a more defensive 3-4-3 formation**: [Link](https://milanreports.com/2024/11/05/milan-fonseca-lineup-343-formation/)
+- **Leão: The Star on the Decline Looking to Resurrect at the Bernabéu**: [Link](https://www.footboom1.com/en/news/football/2026996-leao-the-star-on-the-decline-looking-to-resurrect-at-the-bernabeu)
+
+
+### انتخابات امريكا (N/A, Tue, 5 Nov 2024 06:00:00 -0800)
+
+- **انتخابات أميركا مباشر.. ملايين الناخبين يصوتون لاختيار الرئيس الـ47**: [Link](https://www.aljazeera.net/news/liveblog/2024/11/5/%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D8%A7-%D8%A8%D8%AF%D8%A1-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%B9-%D8%A8%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA)
+- **في بلدة صغيرة.. "أول نتيجة" بانتخابات أميركا مقلقة**: [Link](https://www.skynewsarabia.com/world/1752831-%D8%A8%D9%84%D8%AF%D8%A9-%D8%B5%D8%BA%D9%8A%D8%B1%D8%A9-%D8%A7%D9%94%D9%88%D9%84-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%A8%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%94%D9%85%D9%8A%D8%B1%D9%83%D8%A7-%D9%85%D9%82%D9%84%D9%82%D8%A9)
+- **تعادل هاريس وترامب في نتائج الانتخابات الرئاسية الأمريكية.. فرضية معقدة**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%87%D8%A7%D8%B1%D9%8A%D8%B3-%D9%88%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%81%D9%8A-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7-1459184.html)
+
+
+### elections usa 2024 (N/A, Tue, 5 Nov 2024 00:40:00 -0800)
+
+- **Présidentielle américaine : une élection lourde de conséquences pour les 
+économies européenne et française**: [Link](https://www.lefigaro.fr/conjoncture/presidentielle-americaine-une-election-lourde-de-consequences-pour-les-economies-europeenne-et-francaise-20241105)
+- **Présidentielle américaine 2024 : « Trump ou Harris ? L’élection d’aucun des 
+deux candidats n’est avantageuse pour Wall Street »**: [Link](https://www.lemonde.fr/idees/article/2024/11/04/presidentielle-americaine-trump-ou-harris-l-election-d-aucun-des-deux-candidats-n-est-avantageuse-pour-wall-street_6375387_3232.html)
+- **Wall Street termine en baisse, prises de bénéfices avant une élection 
+incertaine**: [Link](https://medias24.com/agence-presse/wall-street-termine-en-baisse-prises-de-benefices-avant-une-election-incertaine/)
+
+
 ### ذكرى المسيرة الخضراء 2024 (N/A, Tue, 5 Nov 2024 00:20:00 -0800)
 
 - **جلالة الملك يوجّه خطاباً للأمة في ذكرى المسيرة الخضراء**: [Link](https://rue20.com/851419.html)
