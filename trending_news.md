@@ -1,3 +1,10 @@
+### هاي كورة (N/A, Tue, 5 Nov 2024 14:50:00 -0800)
+
+- **لماذا فشل مبابي في تقديم نفسه حتى الآن؟**: [Link](https://hihi2.com/2024/11/06/p2923145.html)
+- **بنزيمة يكشف أسباب معاناة مبابي مع ريال مدريد**: [Link](https://www.aljazeera.net/sport/2024/11/5/benzema-real-madrid-mbappe)
+- **نجوم ريال مدريد "ينقلبون" على كيليان مبابي!**: [Link](https://m.elbotola.com/article/2024-11-04-10-08-381.html)
+
+
 ### hihi2 (N/A, Tue, 5 Nov 2024 14:30:00 -0800)
 
 
