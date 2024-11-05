@@ -1,3 +1,10 @@
+### celtic glasgow – rb leipzig (N/A, Tue, 5 Nov 2024 12:40:00 -0800)
+
+- **RB Leipzig: Bitshiabu in der Startelf gegen Celtic - Die News zum Spiel**: [Link](https://www.lvz.de/sport/regional/rb-leipzig-bitshiabu-in-der-startelf-gegen-celtic-die-news-zum-spiel-FEUNU4PZA4TRPOCCO5RAO35JFA.html)
+- **„Der Hauptfokus liegt auf uns“ – Baumgartner will erste CL-Punkte**: [Link](https://www.skysportaustria.at/mediathek/der-hauptfokus-liegt-auf-uns-baumgartner-will-erste-cl-punkte-2/)
+- **Die Fotos aus Glasgow: Die Roten Bullen auf Champions League-Reise**: [Link](https://rbleipzig.com/de/news/fotos-rb-leipzig-champions-league-celtic-glasgow)
+
+
 ### theo hernandez (N/A, Tue, 5 Nov 2024 12:30:00 -0800)
 
 - **CM: Paz, Güler, Theo Hernandez – possible future deals between Real Madrid 
