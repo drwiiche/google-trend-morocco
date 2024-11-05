@@ -1,3 +1,10 @@
+### jill stein (N/A, Tue, 5 Nov 2024 12:00:00 -0800)
+
+- **US election 2024: Could Jill Stein determine whether Trump or Harris wins?**: [Link](https://www.aljazeera.com/news/2024/11/5/us-election-2024-could-jill-stein-determine-whether-trump-or-harris-wins)
+- **Another Midnight Call to Avert Authoritarian Capture and Climate Collapse**: [Link](https://deceleration.news/another-midnight-call-to-avert-authoritarian-capture-and-climate-collapse/)
+- **US elections: European Greens call for Jill Stein to step down**: [Link](https://www.eureporter.co/blogspot/elections/greens-2/2024/11/04/us-elections-european-greens-call-for-jill-stein-to-step-down/)
+
+
 ### ligue des champions (N/A, Tue, 5 Nov 2024 11:40:00 -0800)
 
 - **Lille-Juventus : Edon Zhegrova, l'irrégularité comme principal défaut**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/lille-juventus-edon-zhegrova-lirregularite-comme-principal-defaut_sto20051026/story.shtml)
