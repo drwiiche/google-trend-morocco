@@ -1,3 +1,12 @@
+### us election (N/A, Mon, 4 Nov 2024 18:30:00 -0800)
+
+- **Live updates: 2024 presidential election | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/2024-election-trump-harris/index.html)
+- **US election 2024 live updates: Trump launches insults at final rally as 
+Harris ends campaign promising to ‘get to work’**: [Link](https://www.theguardian.com/us-news/live/2024/nov/05/us-election-2024-live-updates-donald-trump-vs-kamala-harris-results-presidential-elections-day-latest-news-polls-update)
+- **Election 2024 live updates: Trump, Harris hitting campaign trails hard; new 
+polls**: [Link](https://www.usatoday.com/story/news/politics/elections/2024/11/04/election-2024-live-updates-trump-harris/76033477007/)
+
+
 ### josé mourinho (N/A, Mon, 4 Nov 2024 16:10:00 -0800)
 
 - **Jose Mourinho: Fenerbahce coach slams Turkish referees after win at 
