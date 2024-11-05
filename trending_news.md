@@ -1,3 +1,35 @@
+### champions league (N/A, Tue, 5 Nov 2024 10:20:00 -0800)
+
+- **Must-win games on road for Barcelona & Atletico Madrid**: [Link](http://www.uniindia.com/news/sports/football-champions-league-barcelona/3318097.html)
+- **When and where to watch Crvena Zvezda v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4162683/when-and-where-to-watch-crvena-zvezda-v-fc-barcelona)
+- **Lamine Yamal's Test in 'Maradona's Territory'**: [Link](https://www.footboom1.com/en/news/football/2025947-lamine-yamal-s-test-in-maradona-s-territory)
+
+
+### psv (N/A, Tue, 5 Nov 2024 10:20:00 -0800)
+
+- **Live Champions League | PSV op voorsprong tegen Girona na goal Flamingo**: [Link](https://www.nu.nl/voetbal/6334326/live-champions-league-psv-op-voorsprong-tegen-girona-na-goal-flamingo.html)
+- **Het middenveld van Bosz: sparen en defensief denken**: [Link](https://www.vi.nl/nieuws/het-middenveld-van-bosz-sparen-en-defensief-denken)
+- **Malik Tillman verrast iedereen tegen Girona: 'Waar komt dit ineens vandaan?'**: [Link](https://www.fcupdate.nl/voetbalnieuws/2024/11/psvs-malik-tillman-verrast-in-champions-league-wedstrijd-tegen-girona)
+
+
+### cnn (N/A, Tue, 5 Nov 2024 10:20:00 -0800)
+
+- **The Latest: Trump and Harris cede stage to voters who’ll also decide 
+control of House and Senate**: [Link](https://www.myarklamiss.com/news/politics/ap-politics/ap-the-latest-trump-and-harris-cede-stage-to-voters-wholl-also-decide-control-of-house-and-senate/)
+- **US election 2024 results: When will we know who won?**: [Link](https://www.bbc.com/news/articles/cde7ng85jwgo)
+- **An hour-by-hour guide to election night poll closings**: [Link](https://www.cnn.com/2024/11/05/politics/polls-close-time-election-dg/index.html)
+
+
+### élection présidentielle américaine (N/A, Tue, 5 Nov 2024 10:00:00 -0800)
+
+- **En direct, présidentielle américaine 2024 : Kamala Harris appelle « tout le 
+monde à sortir voter », Donald Trump dit qu’il reconnaîtra sa défaite « si 
+l’élection est juste »**: [Link](https://www.lemonde.fr/international/live/2024/11/05/en-direct-presidentielle-americaine-2024-kamala-harris-appelle-tout-le-monde-a-sortir-voter-donald-trump-dit-qu-il-reconnaitra-sa-defaite-si-l-election-est-juste_6376692_3210.html)
+- **Élection présidentielle américaine : à quelle heure les résultats 
+seront-ils connus ?**: [Link](https://www.lefigaro.fr/elections-americaines/election-presidentielle-americaine-a-quelle-heure-les-resultats-seront-ils-connus-20241105)
+- **DIRECT. Élection américaine 2024: Donald Trump a voté en Floride**: [Link](https://www.bfmtv.com/international/amerique-nord/etats-unis/elections-americaines/direct-election-americaine-2024-trump-ou-harris-les-etats-unis-votent-ce-mardi-5-novembre-suivez-cette-journee-historique_LN-202411050051.html)
+
+
 ### usa (N/A, Tue, 5 Nov 2024 10:00:00 -0800)
 
 - **Joe Rogan, Harrison Ford, Megyn Kelly among late celebrity endorsements 
