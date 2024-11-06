@@ -1,3 +1,24 @@
+### étoile rouge – barcelone (N/A, Wed, 6 Nov 2024 11:00:00 -0800)
+
+- **PRONOS PARIS RMC Le buteur du jour du 6 novembre – Ligue des champions**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-6-novembre-ligue-des-champions_AN-202411050614.html)
+- **Barça : Lamine Yamal, la dernière provocation**: [Link](https://www.football365.fr/lamine-yamal-la-derniere-provocation-10211522.html)
+- **Étoile Rouge - Barça : Conquérir l'enfer**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4162958/etoile-rouge-barca-conquerir-lenfer)
+
+
+### النجم الأحمر ضد برشلونة (N/A, Wed, 6 Nov 2024 11:00:00 -0800)
+
+- **قبل مواجهة برشلونة.. حكاية الدبابة الموجودة خارج ملعب النجم الأحمر ؟**: [Link](https://hihi2.com/2024/11/06/p2924336.html)
+- **صورة.. جماهير النجم الأحمر تنتشر في ملعب المباراة قبل مواجهة برشلونة**: [Link](https://hihi2.com/2024/11/06/p2924373.html)
+- **فيرمين لوبيز يحذر برشلونة من تجربة صعبة**: [Link](https://www.kooora.com/?n=1366226)
+
+
+### الخطاب الملكي (N/A, Wed, 6 Nov 2024 09:30:00 -0800)
+
+- **الملك يوجه خطاب المسيرة إلى المغاربة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D9%88%D8%AC%D9%87-%D8%AE%D8%B7%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-1460248.html)
+- **مساء يومه الأربعاء.. الملك يخاطب شعبه بمناسبة ذكرى المسيرة الخضراء**: [Link](https://ar.hibapress.com/details-570650.html)
+- **الملك محمد السادس: المسيرات المتواصلة تهدفُ إلى تكريم المواطن المغربي**: [Link](https://ar.telquel.ma/%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D9%88%D8%AC%D9%87-%D8%AE%D8%B7/)
+
+
 ### election donald trump (N/A, Wed, 6 Nov 2024 10:00:00 -0800)
 
 - **Trump Wins 2024 U.S. Presidential Election: Live Updates**: [Link](https://www.nytimes.com/live/2024/11/06/us/trump-election-harris-news)
