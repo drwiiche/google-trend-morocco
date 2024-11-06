@@ -1,3 +1,36 @@
+### fox news (N/A, Tue, 5 Nov 2024 19:00:00 -0800)
+
+- **Fox’s 2020 Arizona call was a political earthquake. Could it happen again?**: [Link](https://www.washingtonpost.com/style/media/2024/11/04/fox-news-election-night-projections-process/)
+- **Betting markets give surprising prediction on when 2024 election will be 
+called**: [Link](https://www.dailymail.co.uk/news/article-14039725/Betting-markets-surprising-prediction-2024-election-called.html)
+- **Election Bettors Say This Swing State Will Be The Last One Called, Could 
+Decide 2024 Election**: [Link](https://www.inkl.com/news/election-bettors-say-this-swing-state-will-be-the-last-one-called-in-2024-election-could-decide-election)
+
+
+### us election 2024 live results (N/A, Tue, 5 Nov 2024 17:10:00 -0800)
+
+- **Congressional elections live updates: Republicans win Senate majority**: [Link](https://apnews.com/live/senate-house-election-updates-11-5-2024)
+- **Republicans on track to take control of the Senate**: [Link](https://www.cnn.com/politics/live-news/senate-house-governor-election-11-05-24/index.html)
+- **Republican Gov. Jim Justice projected to take WV U.S. Senate seat over 
+Elliott**: [Link](https://westvirginiawatch.com/2024/11/05/republican-gov-jim-justice-soundly-takes-wv-senate-seat-over-elliott/)
+
+
+### نتائج انتخابات امريكا 2024 (N/A, Tue, 5 Nov 2024 16:30:00 -0800)
+
+- **على خلفية الانتخابات الرئاسية.. سعر البتكوين يسجل رقما قياسيا يفوق 75 ألف 
+دولار**: [Link](https://www.mc-doualiya.com/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7/20241106-%D8%B9%D9%84%D9%89-%D8%AE%D9%84%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D9%8A%D8%A9-%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%A8%D8%AA%D9%83%D9%88%D9%8A%D9%86-%D9%8A%D8%B3%D8%AC%D9%84-%D8%B1%D9%82%D9%85%D8%A7-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A7-%D9%8A%D9%81%D9%88%D9%82-75-%D8%A3%D9%84%D9%81-%D8%AF%D9%88%D9%84%D8%A7%D8%B1)
+- **بيتكوين عند قمة تاريخية مع تقدم ترامب في الانتخابات الأمريكية**: [Link](https://www.alquds.co.uk/%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%8A%D9%86-%D8%B9%D9%86%D8%AF-%D9%82%D9%85%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%85%D8%B9-%D8%AA%D9%82%D8%AF%D9%85-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%81/)
+- **تراجع أسعار العملات الرقمية اليوم الثلاثاء 5 نوفمبر 2024.. انخفاض بيتكوين**: [Link](https://www.raialyoum.com/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB/)
+
+
+### election (N/A, Tue, 5 Nov 2024 15:50:00 -0800)
+
+- **Live election updates: Harris’ path to victory grows less forgiving**: [Link](https://apnews.com/live/trump-harris-election-updates-11-5-2024)
+- **What states does Kamala Harris need to win?**: [Link](https://www.foxla.com/news/what-states-does-kamala-harris-need-win)
+- **Marion McKeone: As North Carolina and Georgia go red, only the blue wall 
+can save Harris bid now**: [Link](https://www.businesspost.ie/news/marion-mckeone-as-north-carolina-and-georgia-go-red-only-the-blue-wall-can-save-harris-bid-now/)
+
+
 ### us presidential election (N/A, Tue, 5 Nov 2024 18:40:00 -0800)
 
 - **North Carolina remains a state of ticket splitters**: [Link](https://www.axios.com/local/raleigh/2024/11/06/nc-election-results-trump-josh-stein-split-ticket)
