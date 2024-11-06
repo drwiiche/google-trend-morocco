@@ -1,3 +1,33 @@
+### kooora (N/A, Wed, 6 Nov 2024 14:00:00 -0800)
+
+- **ريال مدريد يستقر على صفقة صيفية جديدة**: [Link](https://www.kooora.com/?n=1366495)
+- **عام 2025 سيكون مهما لـ ريال مدريد**: [Link](https://hihi2.com/2024/11/06/p2924430.html)
+- **تطورات اهتمام ريال مدريد بالتعاقد مع مدافع لايبزيغ - جورنالك الرياضي**: [Link](https://gornalak.com/uncategorized/70303/%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A7%D9%87%D8%AA%D9%85%D8%A7%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%BA---%D8%AC%D9%88%D8%B1%D9%86%D8%A7%D9%84%D9%83-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A.html)
+
+
+### ترتيب دوري ابطال اوروبا (N/A, Wed, 6 Nov 2024 14:00:00 -0800)
+
+- **ترتيب هدافي دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/11/07/p2924678.html)
+- **صورة: ليفربول صاحب العلامة الكاملة من النقاط في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/11/06/p2924468.html)
+- **مركز مُحرج لريال مدريد بترتيب المجموعة الموحدة في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2024/11/6/real-madrid-champions-league)
+
+
+### paris (N/A, Wed, 6 Nov 2024 14:00:00 -0800)
+
+- **Et le 47ᵉ président des Etats-Unis selon le Harry’s Bar est…**: [Link](https://www.nouvelobs.com/monde/20241106.OBS95959/et-le-47e-president-des-etats-unis-selon-le-harry-s-bar-est.html)
+- **Présidentielle américaine : les partisans de Trump jubilent, ceux de Harris 
+quittent les lieux de rassemblement**: [Link](https://www.lefigaro.fr/elections-americaines/presidentielle-americaine-les-photos-des-supporteurs-d-harris-et-de-trump-entre-deception-et-expectative-20241106)
+- **À Paris, le Harry’s Bar qui organise un vote fictif a choisi son président**: [Link](https://www.20minutes.fr/monde/election-presidentielle-americaine/4119825-20241106-election-americaine-2024-paris-harry-bar-organise-vote-fictif-choisi-president)
+
+
+### عدد سكان المغرب (N/A, Wed, 6 Nov 2024 13:40:00 -0800)
+
+- **إحصاء السكان يكشف عن عدد الأجانب المقيمين بالمغرب**: [Link](https://rue20.com/852075.html)
+- **رسميا: عدد سكان المغرب يلامس 37 مليون نسمة.. بينهم 148 ألف أجنبي**: [Link](https://al3omk.com/1021521.html)
+- **إحصاء 2024: سكان المغرب يقتربون من 37 مليون نسمة مع تزايد طفيف في عدد 
+المقيمين الأجانب**: [Link](https://alhakika24.com/2024/11/06/%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-2024-%D8%B3%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8%D9%88%D9%86-%D9%85%D9%86-37-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%86/)
+
+
 ### bet 365 (N/A, Wed, 6 Nov 2024 12:40:00 -0800)
 
 - **Bet365 Promo Code for TNF: Get $150 in Bonus Bets with Code 365BV4**: [Link](https://www.bettorsinsider.com/sports-betting/2024/11/06/bet365-promo-code-for-tnf-get-150-in-bonus-bets-with-code-365bv4)
