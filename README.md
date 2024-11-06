@@ -1,3 +1,10 @@
+### الانتخابات الامريكية 2024 (N/A, Tue, 5 Nov 2024 21:00:00 -0800)
+
+- **الانتخابات الأميركية: تغطية مباشرة للسباق نحو البيت الأبيض**: [Link](https://asharq.com/politics/94918/%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%87%D8%A7%D8%B1%D9%8A%D8%B3/)
+- **ترامب يتقدم و3 ولايات تحفظ لهاريس آخر الأمال**: [Link](https://www.aljazeera.net/news/2024/11/6/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%AA%D9%82%D8%AF%D9%85-%D9%883-%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%AA%D8%AD%D9%81%D8%B8-%D9%84%D9%87%D8%A7%D8%B1%D9%8A%D8%B3-%D8%A2%D8%AE%D8%B1)
+- **أولًا بأول.. نتائج انتخابات الرئاسة الأمريكية بين هاريس وترامب**: [Link](https://arabic.cnn.com/world/article/2024/11/06/us-election-harris-trump-results)
+
+
 ### bbc (N/A, Tue, 5 Nov 2024 22:00:00 -0800)
 
 - **North Carolina election results 2024 live updates**: [Link](https://www.washingtonpost.com/elections/results/2024/11/05/north-carolina/)
