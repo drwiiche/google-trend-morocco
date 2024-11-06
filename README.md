@@ -1,3 +1,10 @@
+### ترامب (N/A, Tue, 5 Nov 2024 21:20:00 -0800)
+
+- **أولًا بأول.. نتائج انتخابات الرئاسة الأمريكية بين هاريس وترامب**: [Link](https://arabic.cnn.com/world/article/2024/11/06/us-election-harris-trump-results)
+- **أنصار هاريس يغادرون.. وأنصار ترامب يحتفلون**: [Link](https://www.skynewsarabia.com/world/1753029-%D8%A7%D9%94%D9%86%D8%B5%D8%A7%D8%B1-%D9%87%D8%A7%D8%B1%D9%8A%D8%B3-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1%D9%88%D9%86-%D9%88%D8%A7%D9%94%D9%86%D8%B5%D8%A7%D8%B1-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%AD%D8%AA%D9%81%D9%84%D9%88%D9%86)
+- **10 نقاط تشرح تعقيدات التصويت وعدّ الأصوات بالانتخابات الأميركية**: [Link](https://www.aljazeera.net/politics/2024/11/6/%D8%AA%D8%B9%D9%82%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B5%D9%88%D9%8A%D8%AA-%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A3%D8%B5%D9%88%D8%A7%D8%AA)
+
+
 ### الانتخابات الامريكية 2024 (N/A, Tue, 5 Nov 2024 21:00:00 -0800)
 
 - **الانتخابات الأميركية: تغطية مباشرة للسباق نحو البيت الأبيض**: [Link](https://asharq.com/politics/94918/%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%87%D8%A7%D8%B1%D9%8A%D8%B3/)
