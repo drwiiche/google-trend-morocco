@@ -1,3 +1,28 @@
+### stuttgart – atalanta (N/A, Wed, 6 Nov 2024 11:40:00 -0800)
+
+- **Preview: Stuttgart vs. Atalanta BC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/stuttgart/champions-league/preview/preview-stuttgart-vs-atalanta-prediction-team-news-lineups_557295.html)
+- **El Bilal Aims to Frustrate Former Club**: [Link](https://www.footboom1.com/en/news/football/2029785-el-bilal-aims-to-frustrate-former-club)
+- **All about the next opponent: Interview with Bergamo fan Cettina**: [Link](https://onefootball.com/es/noticias/all-about-the-next-opponent-interview-with-bergamo-fan-cettina-40269288)
+
+
+### snrt (N/A, Wed, 6 Nov 2024 11:40:00 -0800)
+
+- **Le metteur en scène Ayoub El Aïassi, désormais à la tête d’une nouvelle 
+direction au sein de la SNRT**: [Link](https://fr.le360.ma/medias/le-metteur-en-scene-ayoub-el-aiassi-desormais-a-la-tete-dune-nouvelle-direction-au-sein-de-la-snrt_MP4CDQBVXRGYVAN5FDDM3CKPUY/)
+- **Nouvelle Nomination à la SNRT: Ayoub EL Aïassi, nouveau Directeur Adjoint 
+des Programmes Culturels**: [Link](https://www.maroc-hebdo.press.ma/-nouvelle-nomination-snrt-)
+- **بعد نجاحها في “دار النسا”.. ابتسام العروسي تطل عبر “شكون كان يقول”**: [Link](https://lallafatema.ma/%D8%A8%D8%B9%D8%AF-%D9%86%D8%AC%D8%A7%D8%AD%D9%87%D8%A7-%D9%81%D9%8A-%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D8%B3%D8%A7-%D8%A7%D8%A8%D8%AA%D8%B3%D8%A7%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B3-2/)
+
+
+### club brugge (N/A, Wed, 6 Nov 2024 11:40:00 -0800)
+
+- **Rusten geblazen op Jan Breydel! Verdienstelijk Club kwam dichtst bij goal 
+met trap op de paal van Jutglà**: [Link](https://www.hln.be/champions-league/rusten-geblazen-op-jan-breydel-verdienstelijk-club-kwam-dichtst-bij-goal-met-trap-op-de-paal-van-jutgla~a291cfb3/)
+- **Tzolis scoort als eerste tegen Aston Villa, Vermant heeft ook al viering 
+klaar**: [Link](https://www.voetbalprimeur.be/videos/1236728/tzolis-scoort-als-eerste-tegen-aston-villa-vermant-heeft-ook-al-viering-klaar.html)
+- **Slot dankzij Club Brugge nog de enige foutloze CL-manager**: [Link](https://www.vi.nl/nieuws/slot-dankzij-club-brugge-nog-de-enige-foutloze-cl-manager)
+
+
 ### estrella roja - barcelona (N/A, Wed, 6 Nov 2024 11:30:00 -0800)
 
 - **Estrella Roja - Barcelona, en directo: Champions League hoy en vivo**: [Link](https://as.com/futbol/champions/estrella-roja-barcelona-en-directo-champions-league-hoy-en-vivo-n/)
