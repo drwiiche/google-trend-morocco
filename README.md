@@ -1,3 +1,18 @@
+### us presidential election (N/A, Tue, 5 Nov 2024 18:40:00 -0800)
+
+- **North Carolina remains a state of ticket splitters**: [Link](https://www.axios.com/local/raleigh/2024/11/06/nc-election-results-trump-josh-stein-split-ticket)
+- **Election 2024 live updates: Trump wins North Carolina, in first swing-state 
+race call**: [Link](https://www.washingtonpost.com/elections/2024/11/05/election-live-updates-trump-harris/)
+- **Opinion | There Are Battleground States — and Then There’s North Carolina**: [Link](https://www.nytimes.com/2024/11/05/opinion/north-carolina-harris-trump.html)
+
+
+### swing states (N/A, Tue, 5 Nov 2024 17:30:00 -0800)
+
+- **Harris and Trump Battle to the Wire in Swing States, Times/Siena Polls Find**: [Link](https://www.nytimes.com/2024/11/03/us/politics/harris-trump-times-siena-poll.html)
+- **US election updates: Results roll in as polls close in Trump-Harris race**: [Link](https://www.aljazeera.com/news/liveblog/2024/11/5/us-election-live-latest-polls-show-harris-trump-tied-on-election-eve)
+- **Here is what my final polling data says about the US presidential election**: [Link](https://www.theguardian.com/commentisfree/2024/nov/05/elections-polling-data-trump-harris)
+
+
 ### us elections 2024 (N/A, Tue, 5 Nov 2024 20:50:00 -0800)
 
 - **Iowa President Election 2024 Live Results: Trump Wins**: [Link](https://www.nbcnews.com/politics/2024-elections/iowa-president-results)
