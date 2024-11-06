@@ -1,3 +1,14 @@
+### elections usa (N/A, Tue, 5 Nov 2024 14:40:00 -0800)
+
+- **En direct, élection américaine 2024 : Donald Trump mène la course aux 
+grands électeurs face à Kamala Harris, les résultats des « swing states » 
+toujours attendus**: [Link](https://www.lemonde.fr/international/live/2024/11/06/en-direct-election-americaine-2024-le-scrutin-s-acheve-du-vermont-a-la-floride-suivez-les-premiers-resultats-de-la-presidentielle_6376692_3210.html)
+- **Elections américaines 2024 : suivez en direct les résultats dans les swing 
+states**: [Link](https://www.liberation.fr/international/amerique/elections-americaines-2024-suivez-en-direct-les-resultats-dans-les-swing-states-20241105_VBW7GJ3XGBBW7OEDPCEUCKI5ME/)
+- **En direct : Donald Trump remporte la Floride et le Texas, Kamala Harris 
+l'Illinois et New York**: [Link](https://www.france24.com/fr/am%C3%A9riques/20241105-en-direct-election-americaine-donald-trump-kamala-harris-walz-vance-scrutin-vote-resultat)
+
+
 ### polymarket (N/A, Tue, 5 Nov 2024 17:50:00 -0800)
 
 - **Polymarket spends over $50,000 on election betting social media ads**: [Link](https://www.nbcnews.com/tech/social-media/polymarket-election-odds-market-ads-kalshi-polls-robinhood-rcna178020)
