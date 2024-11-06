@@ -1,3 +1,21 @@
+### cubarsi (N/A, Wed, 6 Nov 2024 15:00:00 -0800)
+
+- **Pau Cubarsi goes off covered in blood after kick to face in Barcelona’s 
+Champions League win**: [Link](https://www.barcablaugranes.com/2024/11/6/24289900/pau-cubars)
+- **Injury strikes Koparsi**: [Link](https://www.ysscores.com/en/news/6638139/Injury-strikes-Koparsi)
+- **Bloodied FC Barcelona Star Cubarsi Shows Off War Wounds And Stitches After 
+UCL Win (VIDEO)**: [Link](https://www.forbes.com/sites/tomsanderson/2024/11/06/bloodied-fc-barcelona-star-cubarsi-shows-off-war-wounds-and-stitches-after-ucl-win-video/)
+
+
+### champions league classement (N/A, Wed, 6 Nov 2024 14:10:00 -0800)
+
+- **25e, le PSG est en position d'éliminé, Brest est 4e : le classement de la 
+Ligue des champions après la 4e journée**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/25e-le-psg-est-en-position-delimine-le-classement-de-la-ligue-des-champions-apres-la-4e-journee_sto20051880/story.shtml)
+- **J4 : le classement complet de la Ligue des Champions**: [Link](https://www.footmercato.net/a1422878022250941000-j4-le-classement-complet-de-la-ligue-des-champions)
+- **Ligue des Champions : Diaz, Saibari et Ben Seghir en action, absence d'Adli 
+... programme de ce mardi**: [Link](https://fr.hespress.com/394557-ligue-des-champions-diaz-saibari-et-ben-seghir-en-action-absence-dadli-programme-de-ce-mardi.html)
+
+
 ### ligue des champions (N/A, Wed, 6 Nov 2024 12:50:00 -0800)
 
 - **25e, le PSG est en position d'éliminé, Brest est 4e : le classement de la 
