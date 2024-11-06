@@ -1,3 +1,12 @@
+### trump age (N/A, Wed, 6 Nov 2024 04:10:00 -0800)
+
+- **Breakingviews: Europe is unprepared for the Trump storm**: [Link](https://www.reuters.com/breakingviews/europe-is-unprepared-trump-storm-2024-11-06/)
+- **Europe praises Trump's victory amid wider fears of an impending economic 
+nightmare**: [Link](https://www.cnbc.com/2024/11/06/eu-reaction-to-us-election-2024.html)
+- **America’s European allies face challenging times, whoever wins the 
+presidential election**: [Link](https://apnews.com/article/europe-transatlantic-relations-election-trump-harris-ukraine-2e98d6bf7982e44faa53590b858c6746)
+
+
 ### gladiator 2 (N/A, Wed, 6 Nov 2024 06:00:00 -0800)
 
 - **Paul Mescal explains why he didn’t reach out to Russell Crowe for 
