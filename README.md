@@ -1,3 +1,34 @@
+### عيد المسيرة الخضراء (N/A, Wed, 6 Nov 2024 00:00:00 -0800)
+
+- **ذكرى المسيرة الخضراء.. احتفالات في زمن الانتصارات**: [Link](https://ar.hibapress.com/details-570335.html)
+- **المسيرة الخضراء .. مغاربة يتذكرون ملحمة الصحراء بالمصاحف والأعلام الحمراء**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D8%A7%D8%A1-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D8%AA%D8%B0%D9%83%D8%B1%D9%88%D9%86-%D9%85%D9%84%D8%AD%D9%85%D8%A9-1459722.html)
+- **بالصور.. المدرسة الابتدائية المعمورة بسلا تحتفي بالذكرى 49 للمسيرة الخضراء 
+المظفرة**: [Link](https://www.ahdath.info/article/230872/%D9%85%D8%AC%D8%AA%D9%85%D8%B9/%D8%AA%D8%B9%D9%84%D9%8A%D9%85/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D8%A9-%D8%A7%D9%84%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D9%85%D9%88%D8%B1%D8%A9-%D8%A8%D8%B3%D9%84%D8%A7-%D8%AA%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D8%A7%D9%84%D8%B0%D9%83%D8%B1%D9%89-49-%D9%84%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%B8%D9%81%D8%B1%D8%A9)
+
+
+### elecciones estados unidos (N/A, Tue, 5 Nov 2024 23:10:00 -0800)
+
+- **Resultados de las Elecciones en español**: [Link](https://www.kcra.com/article/spanish-election-results/62720045)
+- **Trump participará en varias cenas en Florida**: [Link](https://www.wfmz.com/espanol/noticias/trump-participar-en-varias-cenas-en-florida/article_e20daeda-9bef-11ef-aec5-aff584e4ea9e.html)
+
+
+### elon musk (N/A, Tue, 5 Nov 2024 23:10:00 -0800)
+
+- **Elon Musk’s $1 million-a-day voter sweepstakes can proceed, a Pennsylvania 
+judge says**: [Link](https://apnews.com/article/musk-million-sweepstakes-lottery-pennsylvania-krasner-4f683c48eb7dcc57f183e54ef16e7320)
+- **Elon Musk can keep giving $1m to voters, judge rules**: [Link](https://www.bbc.com/news/articles/crlnjzzk919o)
+- **Pennsylvania judge allows Elon Musk's $1 million voter giveaway**: [Link](https://www.reuters.com/legal/judge-weighs-challenge-elon-musks-1-million-voter-giveaway-2024-11-04/)
+
+
+### yoav gallant (N/A, Tue, 5 Nov 2024 20:30:00 -0800)
+
+- **Benjamin Netanyahu fires defence minister Yoav Gallant, triggering protests 
+across Israel**: [Link](https://www.theguardian.com/world/2024/nov/05/benjamin-netanyahu-fires-israeli-defence-minister-yoav-gallant)
+- **Netanyahu fires Israeli Defense Minister Yoav Gallant, after months of 
+clashes over war and politics**: [Link](https://www.cnn.com/2024/11/05/middleeast/netanyahu-yoav-gallant-intl-latam/index.html)
+- **LIVE: Netanyahu fires Gallant; 54 people killed in Israeli attacks on Gaza**: [Link](https://www.aljazeera.com/news/liveblog/2024/11/5/live-israel-bombs-syria-attacks-gazas-kamal-adwan-hospital-again)
+
+
 ### ترامب (N/A, Tue, 5 Nov 2024 21:20:00 -0800)
 
 - **أولًا بأول.. نتائج انتخابات الرئاسة الأمريكية بين هاريس وترامب**: [Link](https://arabic.cnn.com/world/article/2024/11/06/us-election-harris-trump-results)
