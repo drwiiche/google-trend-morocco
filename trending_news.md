@@ -1,3 +1,19 @@
+### الجزيرة نت (N/A, Tue, 5 Nov 2024 21:30:00 -0800)
+
+- **نيويورك صن: هكذا يمكن أن يفوز ترامب بالانتخابات ثم يستبعد أو يعزل**: [Link](https://www.aljazeera.net/politics/2024/11/6/%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%B5%D9%86-%D9%87%D9%83%D8%B0%D8%A7-%D9%8A%D9%85%D9%83%D9%86-%D8%A3%D9%86-%D9%8A%D9%81%D9%88%D8%B2-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8)
+- **نيويورك تايمز: الانتخابات الرئاسية هي الأهم ولكن هناك 469 سباقا آخر ويجب 
+منع أنصار ترامب من الفوز بها**: [Link](https://www.alquds.co.uk/%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%AA%D8%A7%D9%8A%D9%85%D8%B2-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D9%8A%D8%A9-%D9%87%D9%8A/)
+- **الرأي | لماذا أيدت هيئة تحرير صحيفة نيويورك تايمز كامالا هاريس**: [Link](https://agenbrilink.net/news/%D8%A7%D9%84%D8%B1%D8%A3%D9%8A-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A3%D9%8A%D8%AF%D8%AA-%D9%87%D9%8A%D8%A6%D8%A9-%D8%AA%D8%AD%D8%B1%D9%8A%D8%B1-%D8%B5%D8%AD%D9%8A%D9%81%D8%A9-%D9%86%D9%8A%D9%88%D9%8A/109064/)
+
+
+### 2024 united states elections (N/A, Tue, 5 Nov 2024 17:50:00 -0800)
+
+- **Live updates: 2024 presidential election | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/2024-election-trump-harris/index.html)
+- **Georgia President Election 2024 Live Results**: [Link](https://www.nbcnews.com/politics/2024-elections/georgia-president-results)
+- **US election 2024 live: Donald Trump closes in on victory with two crucial 
+swing-state wins**: [Link](https://www.theguardian.com/us-news/live/2024/nov/05/presidential-election-harris-trump-polls-results-live-updates)
+
+
 ### pennsylvania (N/A, Tue, 5 Nov 2024 19:40:00 -0800)
 
 - **Pennsylvania President Election 2024 Live Results**: [Link](https://www.nbcnews.com/politics/2024-elections/pennsylvania-president-results)
