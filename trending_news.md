@@ -1,3 +1,11 @@
+### نتائج الانتخابات الرئاسية الأمريكية (N/A, Tue, 5 Nov 2024 16:50:00 -0800)
+
+- **أولًا بأول.. نتائج انتخابات الرئاسة الأمريكية بين هاريس وترامب**: [Link](https://arabic.cnn.com/world/article/2024/11/06/us-election-harris-trump-results)
+- **انتخابات أمريكا.. ترامب يتفوق على هاريس في ولاية أوهايو**: [Link](https://ar.hibapress.com/details-570573.html)
+- **بنسلفانيا، ميشيغان، ويسكونسن… تابعوا مباشرة نتائج الانتخابات الأمريكية في 
+الولايات السبع المتأرجحة**: [Link](https://www.france24.com/ar/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7/20241105-%D8%A8%D9%86%D8%B3%D9%84%D9%81%D8%A7%D9%86%D9%8A%D8%A7-%D9%85%D9%8A%D8%B4%D9%8A%D8%BA%D8%A7%D9%86-%D9%88%D9%8A%D8%B3%D9%83%D9%88%D9%86%D8%B3%D9%86-%D8%AA%D8%A7%D8%A8%D8%B9%D9%88%D8%A7-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D8%A8%D8%B9-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D8%B1%D8%AC%D8%AD%D8%A9)
+
+
 ### elections usa (N/A, Tue, 5 Nov 2024 14:40:00 -0800)
 
 - **En direct, élection américaine 2024 : Donald Trump mène la course aux 
