@@ -1,3 +1,11 @@
+### bet 365 (N/A, Wed, 6 Nov 2024 12:40:00 -0800)
+
+- **Bet365 Promo Code for TNF: Get $150 in Bonus Bets with Code 365BV4**: [Link](https://www.bettorsinsider.com/sports-betting/2024/11/06/bet365-promo-code-for-tnf-get-150-in-bonus-bets-with-code-365bv4)
+- **bet365 Bonus Code TOPACTION: $1,000 First Bet Insurance or $150 Bonus 
+Available for Any Event, Including UEFA Champions League**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-topaction-1000-first-bet-insurance-or-150-bonus-available-for-any-event-including-uefa-champions-league)
+- **Bet365 Bonus Code WEEK365: $150 Bonus for NBA Games This Week**: [Link](https://www.newsweek.com/bet365-bonus-code-week365-150-bonus-nba-games-this-week-november-6-1980985)
+
+
 ### champions league 2024 (N/A, Wed, 6 Nov 2024 13:00:00 -0800)
 
 - **Liverpool 4-0 Bayer Leverkusen: Luis Diaz scores hat-trick as Xabi Alonso 
