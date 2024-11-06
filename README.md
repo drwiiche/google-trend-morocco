@@ -1,3 +1,20 @@
+### gladiator 2 (N/A, Wed, 6 Nov 2024 06:00:00 -0800)
+
+- **Paul Mescal explains why he didn’t reach out to Russell Crowe for 
+‘Gladiator II’ advice**: [Link](https://www.yahoo.com/entertainment/paul-mescal-explains-why-didn-190724803.html)
+- **How Paul Mescal went from ‘normal person’ to superstar – in under five years**: [Link](https://www.telegraph.co.uk/films/0/paul-mescal-gladiator-2-career-movies/)
+- **Paul Mescal and Denzel Washington Hail Ridley Scott’s ‘Gladiator 2’ in 
+Tokyo: ‘There’s No Better Director for Focusing on an Audience’s Sense of 
+Entertainment’**: [Link](https://variety.com/2024/film/news/paul-mescal-denzel-washington-ridley-scott-gladiator-2-tokyo-festival-1236199380/)
+
+
+### النتائج النهائية لمباراة التعليم 2024 (N/A, Wed, 6 Nov 2024 03:00:00 -0800)
+
+- **وظائف شهر نوفمبر على بوابة الوظائف الحكومية.. اعرف التفاصيل كاملة**: [Link](https://www.elwatannews.com/news/details/7656759)
+- **التسجيل في بوابة الوظائف**: [Link](https://mojazanba.com/tag/%D8%A7%D9%84%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D9%81%D9%8A-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D9%88%D8%B8%D8%A7%D8%A6%D9%81/)
+- **وزارة العدل تبحث عن مخرج من أزمة المفوضين القضائيين بتوظيفات جديدة**: [Link](https://www.belpresse.com/featured/526128.html)
+
+
 ### la marche verte maroc (N/A, Wed, 6 Nov 2024 04:00:00 -0800)
 
 - **La Marche Verte racontée par le défunt Roi Hassan II**: [Link](https://fr.le360.ma/politique/la-marche-verte-racontee-par-le-defunt-roi-hassan-ii_ALOZKCSUDJFWRII7JLUXNBTK2Y/)
