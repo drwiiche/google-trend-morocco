@@ -1,3 +1,27 @@
+### psg vs atlético madrid (N/A, Wed, 6 Nov 2024 11:20:00 -0800)
+
+- **Luis Enrique, Atlético's 'Fortune' and Why One of Europe's Great Matches is 
+a Final**: [Link](https://www.footboom1.com/en/news/football/2030785-luis-enrique-atletico-s-fortune-and-why-one-of-europe-s-great-matches-is-a-final)
+- **PSG vs Atletico Madrid live updates: Champions League confirmed team news 
+and latest score - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/psg-atletico-madrid-live-updates-champions-league-score-result/Wnl6qP4JSYdM/)
+- **Luis Enrique insists PSG players are ready to 'fight tomorrow' ahead of 
+Atletico clash**: [Link](https://www.flashscore.com/news/soccer-champions-league-luis-enrique-insists-psg-players-are-ready-to-fight-tomorrow-ahead-of-atletico-clash/SEp0z7ho/)
+
+
+### البايرن ضد بنفيكا (N/A, Wed, 6 Nov 2024 11:20:00 -0800)
+
+- **كين وموسيالا يقودان بايرن ميونخ أمام بنفيكا**: [Link](https://m.kooora.com/?n=1366479&o=n)
+- **قائمة هدافي بايرن ميونخ في دوري الأبطال قبل مواجهة بنفيكا**: [Link](https://hihi2.com/2024/11/06/p2923659.html)
+- **تشكيل بايرن ميونخ أمام بينفيكا في دوري الأبطال**: [Link](https://www.egypttelegraph.com/article/89570/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%8A%D9%86%D9%81%D9%8A%D9%83%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A)
+
+
+### الإنتر ضد آرسنال (N/A, Wed, 6 Nov 2024 11:20:00 -0800)
+
+- **أرتيتا يتلقى نبأ عظيما بعد 3 ضربات موجعة**: [Link](https://www.kooora.com/?n=1366161)
+- **تشكيلة أرسنال وإنتر ميلان الرسمية في دوري أبطال اوروبا**: [Link](https://hihi2.com/2024/11/06/p2924371.html)
+- **دوري أبطال أوروبا: قمة إنتر وأرسنال تخطف الأنظار**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%82%D9%85%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%88%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%AA%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D9%86%D8%B8%D8%A7%D8%B1)
+
+
 ### paris-sg – atlético madrid (N/A, Wed, 6 Nov 2024 11:10:00 -0800)
 
 - **Luis Enrique, Atlético's 'Fortune' and Why One of Europe's Great Matches is 
