@@ -1,3 +1,10 @@
+### belgrade (N/A, Wed, 6 Nov 2024 11:50:00 -0800)
+
+- **Vavrinka: Čestitao sam mu na zlatnoj medalji**: [Link](https://meridiansport.me/tenis/vavrinka-cestitao-sam-mu/)
+- **Đere ima priliku da osveti Lajovića**: [Link](https://meridiansport.rs/tenis/dere-ajdukovic-belgrade-open/)
+- **Đere srušio Vavrinku: Srbin bolji od trostrukog grend slem šampiona**: [Link](https://una.rs/sport/tenis/dere-srusio-vavrinku-srbin-bolji-od-trostrukog-grend-slem-sampiona)
+
+
 ### stuttgart – atalanta (N/A, Wed, 6 Nov 2024 11:40:00 -0800)
 
 - **Preview: Stuttgart vs. Atalanta BC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/stuttgart/champions-league/preview/preview-stuttgart-vs-atalanta-prediction-team-news-lineups_557295.html)
