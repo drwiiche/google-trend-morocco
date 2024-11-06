@@ -1,3 +1,17 @@
+### pennsylvania (N/A, Tue, 5 Nov 2024 19:40:00 -0800)
+
+- **Pennsylvania President Election 2024 Live Results**: [Link](https://www.nbcnews.com/politics/2024-elections/pennsylvania-president-results)
+- **It’s Really, Really Close**: [Link](https://www.monmouth.edu/polling-institute/reports/monmouthpoll_pa_103024/)
+- **Fox News Poll: It’s neck-and-neck in Pennsylvania presidential race**: [Link](https://www.foxnews.com/official-polls/fox-news-poll-its-neck-and-neck-pennsylvania-presidential-race)
+
+
+### us election polls 2024 (N/A, Tue, 5 Nov 2024 16:10:00 -0800)
+
+- **Live updates: 2024 presidential election | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/2024-election-trump-harris/index.html)
+- **Georgia President Election 2024 Live Results**: [Link](https://www.nbcnews.com/politics/2024-elections/georgia-president-results)
+- **Nevada presidential, senatorial and referendum exit polls**: [Link](https://www.washingtonpost.com/elections/interactive/2024/nevada-exit-polls/)
+
+
 ### fox news (N/A, Tue, 5 Nov 2024 19:00:00 -0800)
 
 - **Fox’s 2020 Arizona call was a political earthquake. Could it happen again?**: [Link](https://www.washingtonpost.com/style/media/2024/11/04/fox-news-election-night-projections-process/)
