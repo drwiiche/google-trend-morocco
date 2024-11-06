@@ -1,3 +1,13 @@
+### arsenal vs (N/A, Wed, 6 Nov 2024 13:00:00 -0800)
+
+- **Champions League LIVE: Club Brugge v Aston Villa & Inter vs Arsenal - 
+scores & updates**: [Link](https://www.bbc.com/sport/football/live/c3e890j3125t)
+- **The most absurd penalty ever seen: Mings took Martinez's goal kick with his 
+hand**: [Link](https://www.besoccer.com/new/the-most-absurd-penalty-ever-seen-mings-took-martinez-s-goal-kick-with-his-hand-1336880)
+- **Club Brugge vs Aston Villa Predictions and Betting Tips: Villa can extend 
+perfect start**: [Link](https://www.goal.com/en-us/betting/club-brugge-vs-aston-villa-predictions-and-betting-tips-villa-can-extend-perfect-start/blt889c4045a9d13b1a)
+
+
 ### kooora (N/A, Wed, 6 Nov 2024 14:00:00 -0800)
 
 - **ريال مدريد يستقر على صفقة صيفية جديدة**: [Link](https://www.kooora.com/?n=1366495)
