@@ -1,3 +1,20 @@
+### 6 novembre (N/A, Wed, 6 Nov 2024 01:00:00 -0800)
+
+- **Le temps qu'il fera ce mercredi 6 novembre 2024**: [Link](https://fr.hespress.com/394710-le-temps-quil-fera-ce-mercredi-6-novembre-2024.html)
+- **Météo. Températures du jour en hausse maintenue sur les plaines atlantiques 
+et les régions du sud ce 6 novembre**: [Link](https://fr.le360.ma/societe/meteo-temperatures-du-jour-en-hausse-maintenue-sur-les-plaines-atlantiques-et-les-regions-du-sud-ce_XDJD7KVZO5HZZHALIFJOK4DOVM/)
+- **Météo en France ce 6 novembre 2024 : un ciel partagé entre des nuages, du 
+soleil et du brouillard, ce jour**: [Link](https://www.francetvinfo.fr/meteo/previsions-quotidiennes/meteo-en-france-ce-6-novembre-2024-un-ciel-partage-entre-des-nuages-du-soleil-et-du-brouillard-ce-jour_6880859.html)
+
+
+### bitcoin price (N/A, Wed, 6 Nov 2024 00:50:00 -0800)
+
+- **Bitcoin surges to $75,000, a new record, as traders bet Trump has election 
+edge**: [Link](https://www.cnbc.com/2024/11/05/bitcoin-crypto-market-election-night.html)
+- **Bitcoin Hits a Record as Crypto Investors Root for a Trump Win**: [Link](https://www.nytimes.com/2024/11/05/technology/bitcoin-election-trump.html)
+- **Bitcoin Jumps to Record as Traders Watch US Election Results**: [Link](https://www.bloomberg.com/news/articles/2024-11-05/bitcoin-heads-into-us-election-count-with-biggest-jump-in-a-week)
+
+
 ### 2024 united states presidential election (N/A, Tue, 5 Nov 2024 22:50:00 -0800)
 
 - **US presidential election 2024: Kamala Harris cancels election night party 
