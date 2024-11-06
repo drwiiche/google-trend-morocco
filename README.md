@@ -1,3 +1,18 @@
+### etoile rouge (N/A, Wed, 6 Nov 2024 08:00:00 -0800)
+
+- **Barça : Lamine Yamal, la dernière provocation**: [Link](https://www.football365.fr/lamine-yamal-la-derniere-provocation-10211522.html)
+- **Étoile Rouge - Barça : Conquérir l'enfer**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4162958/etoile-rouge-barca-conquerir-lenfer)
+- **Le ‘Messi Serbe’ avertit Lamine Yamal : « Je vais lui montrer que je suis 
+meilleur que lui »**: [Link](https://yop.l-frii.com/le-messi-serbe-avertit-lamine-yamal-je-vais-lui-montrer-que-je-suis-meilleur-que-lui/)
+
+
+### biden (N/A, Wed, 6 Nov 2024 05:40:00 -0800)
+
+- **Where Harris’ campaign went wrong**: [Link](https://www.cnn.com/2024/11/06/politics/harris-campaign-went-wrong/index.html)
+- **Why Kamala Harris lost the election**: [Link](https://www.politico.com/news/2024/11/06/how-bidens-vulnerabilities-led-to-a-bloodbath-for-harris-00187807)
+- **For second time in eight years, a loss for a woman presidential candidate**: [Link](https://www.washingtonpost.com/politics/2024/11/06/no-woman-president-us/)
+
+
 ### election presidentielle etats unis (N/A, Wed, 6 Nov 2024 06:40:00 -0800)
 
 - **En direct, résultats élection américaine 2024 : Donald Trump devient le 47e 
