@@ -1,3 +1,11 @@
+### classement champions league (N/A, Tue, 5 Nov 2024 13:50:00 -0800)
+
+- **EN DIRECT Lille-Juventus : Après le Real et l’Atlético, Le Losc vise un aut…**: [Link](https://www.20minutes.fr/sport/football/ligue_des_champions/4119405-20241105-direct-losc-juventus-apres-real-atletico-lille-vise-autre-enorme-coup-ligue-champions-suivez-choc-20h30)
+- **Ligue des champions | LOSC - Juventus | Thiago Motta, premières secousses, 
+zéro panique : "Je crois en ma philosophie"**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-losc-juventus-thiago-motta-premieres-secousses-zero-panique-je-crois-en-ma-philosophie_sto20051157/story.shtml)
+- **Foot : Lille tient tête à la Juventus Turin en Ligue des champions**: [Link](https://www.lequipe.fr/Football/Actualites/Ligue-des-champions-lille-tient-tete-a-la-juventus/1518504)
+
+
 ### city vs (N/A, Tue, 5 Nov 2024 13:40:00 -0800)
 
 - **Dykes Holds Weekly Presser**: [Link](https://gofrogs.com/news/2024/11/5/football-dykes-holds-weekly-presser.aspx)
