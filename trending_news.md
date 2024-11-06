@@ -1,3 +1,20 @@
+### هسبريس (N/A, Tue, 5 Nov 2024 22:30:00 -0800)
+
+- **فوز ترامب يعصف بالعملة الإيرانية**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%B2-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%B9%D8%B5%D9%81-%D8%A8%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A9-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-1460198.html)
+- **إيران تقلل من أهمية الانتخابات الرئاسية الأمريكية: مستعدون للمواجهة مع 
+إسرائيل**: [Link](https://www.alquds.co.uk/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%82%D9%84%D9%84-%D9%85%D9%86-%D8%A3%D9%87%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D8%A6%D8%A7%D8%B3/)
+- **إسرائيل تتحمس وإيران تتوجس: ترمب عائد؟!**: [Link](https://www.alarabiya.net/politics/2024/11/04/%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%AA%D8%AD%D9%85%D8%B3-%D9%88%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%AA%D9%88%D8%AC%D8%B3-%D8%AA%D8%B1%D9%85%D8%A8-%D8%B9%D8%A7%D8%A6%D8%AF-)
+
+
+### news (N/A, Tue, 5 Nov 2024 21:30:00 -0800)
+
+- **Unexpectedly, news outlets wind up having a relatively traditional election 
+night experience**: [Link](https://apnews.com/article/election-media-coverage-trump-harris-87900329cb4a3400c021bde149011ef5)
+- **TV Networks Prepared for a Long Wait That Wasn’t**: [Link](https://www.nytimes.com/2024/11/06/business/media/tv-networks-election-night.html)
+- **As Trump Gained Election Lead, TV Anchors Tried to Convince Viewers to Keep 
+Watching**: [Link](https://variety.com/2024/tv/news/trump-election-tv-news-anchors-fox-news-nbc-news-cnn-1236202383/)
+
+
 ### نتائج مباراة التعليم 2024 (N/A, Wed, 6 Nov 2024 03:00:00 -0800)
 
 - **قوائم https men gov ma رابط نتائج مباراة التعليم 2024 دورة أكتوبر جميع 
