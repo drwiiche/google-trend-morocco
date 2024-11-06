@@ -1,3 +1,12 @@
+### polymarket (N/A, Tue, 5 Nov 2024 17:50:00 -0800)
+
+- **Polymarket spends over $50,000 on election betting social media ads**: [Link](https://www.nbcnews.com/tech/social-media/polymarket-election-odds-market-ads-kalshi-polls-robinhood-rcna178020)
+- **Polymarket paying US-based influencers to promote election betting despite 
+federal ban: report**: [Link](https://nypost.com/2024/11/05/business/polymarket-paying-us-based-influencers-to-promote-election-betting/)
+- **Polymarket Allegedly Paid Influencers to Promote Controversial Election 
+Wagering**: [Link](https://www.binance.com/en/square/post/15834104618449)
+
+
 ### classement champions league (N/A, Tue, 5 Nov 2024 13:50:00 -0800)
 
 - **EN DIRECT Lille-Juventus : Après le Real et l’Atlético, Le Losc vise un aut…**: [Link](https://www.20minutes.fr/sport/football/ligue_des_champions/4119405-20241105-direct-losc-juventus-apres-real-atletico-lille-vise-autre-enorme-coup-ligue-champions-suivez-choc-20h30)
