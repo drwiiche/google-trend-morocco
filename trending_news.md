@@ -1,3 +1,50 @@
+### barcelona (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
+
+- **Estrella Roja - Barcelona, en directo: Champions League hoy en vivo**: [Link](https://as.com/futbol/champions/estrella-roja-barcelona-en-directo-champions-league-hoy-en-vivo-n/)
+- **Frenkie de Jong y Gerard Martín, titulares ante el Estrella Roja**: [Link](https://www.sport.es/es/noticias/barca/alineacion-barcelona-estrella-roja-champions-league-111440850)
+- **Alineación probable del Barça contra el Estrella Roja en Champions: una 
+sola duda**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241106/1002347900/probable-alineacion-barca-duda.html)
+
+
+### psg (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
+
+- **Paris Saint-Germain - Atlético Madrid en direct: Ligue des champions - 
+Football**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/live-paris-saint-germain-atletico-madrid_mtc1525260/live-commentary.shtml)
+- **PSG-Atlético : les compositions officielles**: [Link](https://www.footmercato.net/a4945932945704748495-psg-atletico-les-compositions-officielles)
+- **LdC : Le PSG d'Achraf Hakimi face à l'Atlético de Madrid, voici le 
+programme de ce mercredi**: [Link](https://fr.hespress.com/394800-ldc-le-psg-dachraf-hakimi-face-a-latletico-de-madrid-voici-le-programme-de-ce-mercredi.html)
+
+
+### bet365 (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
+
+- **Bet365 Promo Code for TNF: Get $150 in Bonus Bets with Code 365BV4**: [Link](https://www.bettorsinsider.com/sports-betting/2024/11/06/bet365-promo-code-for-tnf-get-150-in-bonus-bets-with-code-365bv4)
+- **bet365 Bonus Code TOPACTION: $1,000 First Bet Insurance or $150 Bonus 
+Available for Any Event, Including UEFA Champions League**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-topaction-1000-first-bet-insurance-or-150-bonus-available-for-any-event-including-uefa-champions-league)
+- **Bet365 Bonus Code WEEK365: $150 Bonus for NBA Games This Week**: [Link](https://www.newsweek.com/bet365-bonus-code-week365-150-bonus-nba-games-this-week-november-6-1980985)
+
+
+### livescore (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
+
+- **Time added on for fans’ mental health**: [Link](https://bdaily.co.uk/articles/2024/11/06/time-added-on-for-fans-mental-health)
+- **Livescore and Dimitar Berbatov ask fans to take ‘extra added time’ for 
+their mental health**: [Link](https://www.manchesterworld.uk/community/livescore-and-dimitar-berbatov-ask-fans-to-take-extra-added-time-for-their-mental-health-4855487)
+
+
+### bayern (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
+
+- **Anatoliy Trubin startet im Spiel gegen Bayern München**: [Link](https://www.footboom1.com/de/news/football/2033382-anatoliy-trubin-starts-in-match-against-bayern-munich)
+- **„Immer noch einer der besten Torhüter“: Benfica-Legende verteidigt Neuer**: [Link](https://www.merkur.de/sport/fc-bayern/immer-noch-einer-der-besten-torhueter-benfica-legende-verteidigt-neuer-zr-93396452.html)
+- **"Sie wissen, dass ich das nicht meine, oder?": Kompany scherzt mit der 
+Presse | "Ich schaue in die erste Reihe" | Video**: [Link](https://www.kicker.de/sie-wissen-dass-ich-das-nicht-meine-oder-kompany-scherzt-mit-der-presse-1065476/video)
+
+
+### باريس سان جيرمان (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
+
+- **الرسم التكتيكي لفريقي باريس سان جيرمان و أتلتيكو مدريد في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/11/06/p2924431.html)
+- **سيريزو: لا أعرف أي شيء عن تصريحات إنريكي**: [Link](https://www.kooora.com/?n=1366383)
+- **حكيمي .. سهرتي الأوروبية معكم**: [Link](https://www.almountakhab.com/node/13206258)
+
+
 ### كورة لايف (N/A, Wed, 6 Nov 2024 12:20:00 -0800)
 
 - **ترتيب دوري أبطال أوروبا بعد هزيمة الريال أمام الميلان**: [Link](https://hihi2.com/2024/11/06/p2923029.html)
