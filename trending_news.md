@@ -1,3 +1,12 @@
+### carrefour jordanie (N/A, Tue, 5 Nov 2024 22:30:00 -0800)
+
+- **Le groupe Carrefour a-t-il cessé son activité en Jordanie en raison du 
+boycott lié à Israël ?**: [Link](https://www.liberation.fr/checknews/le-groupe-carrefour-a-t-il-cesse-son-activite-en-jordanie-en-raison-du-boycott-lie-a-israel-20241105_2OSP4PN4MVFYXNYVZ3QWCDFLVQ/)
+- **Face au boycott, Carrefour annonce l'arrêt de ses opérations en Jordanie**: [Link](https://www.lefigaro.fr/flash-eco/face-au-boycott-carrefour-annonce-l-arret-de-ses-operations-en-jordanie-20241105)
+- **Carrefour ferme tous ses magasins en Jordanie, des pressions également au 
+Maroc**: [Link](https://www.bladi.net/carrefour-quitte-jordanie,111386.html)
+
+
 ### عيد المسيرة الخضراء (N/A, Wed, 6 Nov 2024 00:00:00 -0800)
 
 - **ذكرى المسيرة الخضراء.. احتفالات في زمن الانتصارات**: [Link](https://ar.hibapress.com/details-570335.html)
