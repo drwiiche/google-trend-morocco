@@ -1,3 +1,10 @@
+### joe biden (N/A, Wed, 6 Nov 2024 00:20:00 -0800)
+
+- **On the night he once hoped to win reelection, Biden retreats from view**: [Link](https://www.washingtonpost.com/politics/2024/11/05/joe-biden-election-day/)
+- **Where is Joe Biden now? Here's how US president spent election night**: [Link](https://www.hindustantimes.com/world-news/us-news/where-is-joe-biden-now-heres-how-us-president-spent-election-night-101730873794980.html)
+- **Biden will not attend Harris election night watch party**: [Link](https://www.washingtonexaminer.com/news/white-house/3217564/joe-biden-not-attend-harris-election-night-watch-party/)
+
+
 ### 6 novembre (N/A, Wed, 6 Nov 2024 01:00:00 -0800)
 
 - **Le temps qu'il fera ce mercredi 6 novembre 2024**: [Link](https://fr.hespress.com/394710-le-temps-quil-fera-ce-mercredi-6-novembre-2024.html)
