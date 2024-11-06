@@ -1,3 +1,12 @@
+### who won the election (N/A, Tue, 5 Nov 2024 21:40:00 -0800)
+
+- **Live election updates: Trump has 267 of the 270 electoral votes needed to 
+win presidency**: [Link](https://apnews.com/live/trump-harris-election-updates-11-5-2024)
+- **Election 2024 live updates: Trump gives speech after Pennsylvania, Georgia 
+wins over Harris**: [Link](https://www.nbcnews.com/politics/2024-election/live-blog/presidential-election-2024-live-updates-rcna175556)
+- **It’s Really, Really Close**: [Link](https://www.monmouth.edu/polling-institute/reports/monmouthpoll_pa_103024/)
+
+
 ### joe biden (N/A, Wed, 6 Nov 2024 00:20:00 -0800)
 
 - **On the night he once hoped to win reelection, Biden retreats from view**: [Link](https://www.washingtonpost.com/politics/2024/11/05/joe-biden-election-day/)
