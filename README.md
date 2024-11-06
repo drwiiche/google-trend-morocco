@@ -1,3 +1,10 @@
+### estrella roja - barcelona (N/A, Wed, 6 Nov 2024 11:30:00 -0800)
+
+- **Estrella Roja - Barcelona, en directo: Champions League hoy en vivo**: [Link](https://as.com/futbol/champions/estrella-roja-barcelona-en-directo-champions-league-hoy-en-vivo-n/)
+- **El Barça tiene dos objetivos en Belgrado**: [Link](https://www.sport.es/es/noticias/barca/barca-objetivos-belgrado-111416945)
+- **Estrella Roja - Barcelona en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/estrella-roja-barcelona/2024/11/06/01_0103_20241106_214_178-directo.html)
+
+
 ### psg vs atlético madrid (N/A, Wed, 6 Nov 2024 11:20:00 -0800)
 
 - **Luis Enrique, Atlético's 'Fortune' and Why One of Europe's Great Matches is 
