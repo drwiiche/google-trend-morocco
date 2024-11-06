@@ -1,3 +1,44 @@
+### paris-sg – atlético madrid (N/A, Wed, 6 Nov 2024 11:10:00 -0800)
+
+- **Luis Enrique, Atlético's 'Fortune' and Why One of Europe's Great Matches is 
+a Final**: [Link](https://www.footboom1.com/en/news/football/2030785-luis-enrique-atletico-s-fortune-and-why-one-of-europe-s-great-matches-is-a-final)
+- **PSG vs Atletico Madrid live updates: Champions League confirmed team news 
+and latest score - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/psg-atletico-madrid-live-updates-champions-league-score-result/Wnl6qP4JSYdM/)
+- **PSG predicted XI v Atletico Madrid: Gianluigi Donnarumma to return?**: [Link](https://sports.yahoo.com/psg-predicted-xi-v-atletico-101200721.html)
+
+
+### crvena zvezda vs barcelona (N/A, Wed, 6 Nov 2024 11:10:00 -0800)
+
+- **Hansi Flick has one major selection dilemma ahead of Barcelona's UCL tie vs 
+Crvena Zvezda**: [Link](https://barcauniversal.com/hansi-flick-has-one-major-selection-dilemma-ahead-of-barcelonas-ucl-tie-vs-crvena-zvezda/)
+- **Barcelona squad named for Crvena Zvezda**: [Link](https://www.barcablaugranes.com/2024/11/6/24287844/crvena-zvezda-barcelona-champions-league-team-news-squad-list)
+- **Andrija Maksimovic Unfiltered Ahead of Barça Clash: "I'll Show That I'm 
+Better Than Yamal"**: [Link](https://www.footboom1.com/en/news/football/2031787-andrija-maksimovic-unfiltered-ahead-of-barca-clash-i-ll-show-that-i-m-better-than-yamal)
+
+
+### inter – arsenal (N/A, Wed, 6 Nov 2024 11:10:00 -0800)
+
+- **Remembering Arsenal's 5-1 Champions League win over Inter Milan at San Siro**: [Link](https://www.bbc.com/sport/football/articles/cly2vp1vqp7o)
+- **Inzaghi Discusses Sir Alex Ferguson Parallels Ahead of Arsenal Clash**: [Link](https://www.footboom1.com/en/news/football/2031975-inzaghi-discusses-sir-alex-ferguson-parallels-ahead-of-arsenal-clash)
+- **Inter vs. Arsenal, the official lineups**: [Link](https://onefootball.com/en/news/inter-vs-arsenal-the-official-lineups-40272786)
+
+
+### bayern – benfica (N/A, Wed, 6 Nov 2024 11:10:00 -0800)
+
+- **Report: Bayern Munich’s Leroy Sané "back at 100%", poised for Champions 
+League start**: [Link](https://www.bavarianfootballworks.com/2024/11/6/24285498/bayern-munich-leroy-sane-injury-return-champions-league-start-vincent-kompany-benfica-germany)
+- **"The team is convinced they can deliver a great game" - Bruno Lage**: [Link](https://www.footboom1.com/en/news/football/2029986-the-team-is-convinced-they-can-deliver-a-great-game-bruno-lage)
+- **Germany Soccer Champions League**: [Link](https://lufkindailynews.com/anpa/sports/germany-soccer-champions-league/image_06b78e39-abab-5607-9cdf-a8646a4cc5a6.html)
+
+
+### discours marche verte 2024 (N/A, Wed, 6 Nov 2024 10:40:00 -0800)
+
+- **Marche Verte: Discours royal ce mercredi 6 novembre à 20H30**: [Link](https://medias24.com/2024/11/06/marche-verte-discours-royal-ce-mercredi-6-novembre-a-20h30/)
+- **La Marche verte : Symbole de l'unité et de la persévérance du Maroc pour le 
+Sahara**: [Link](https://fr.hespress.com/394877-la-marche-verte-symbole-de-lunite-et-de-la-perseverance-du-maroc-pour-le-sahara.html)
+- **La Marche Verte racontée par le défunt Roi Hassan II**: [Link](https://fr.le360.ma/politique/la-marche-verte-racontee-par-le-defunt-roi-hassan-ii_ALOZKCSUDJFWRII7JLUXNBTK2Y/)
+
+
 ### étoile rouge – barcelone (N/A, Wed, 6 Nov 2024 11:00:00 -0800)
 
 - **PRONOS PARIS RMC Le buteur du jour du 6 novembre – Ligue des champions**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-6-novembre-ligue-des-champions_AN-202411050614.html)
