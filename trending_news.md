@@ -1,3 +1,10 @@
+### bbc (N/A, Tue, 5 Nov 2024 22:00:00 -0800)
+
+- **North Carolina election results 2024 live updates**: [Link](https://www.washingtonpost.com/elections/results/2024/11/05/north-carolina/)
+- **Winning North Carolina and Georgia, Donald Trump seizes the advantage**: [Link](https://www.economist.com/united-states/2024/11/06/winning-north-carolina-donald-trump-seizes-the-early-advantage)
+- **Opinion | There Are Battleground States — and Then There’s North Carolina**: [Link](https://www.nytimes.com/2024/11/05/opinion/north-carolina-harris-trump.html)
+
+
 ### الجزيرة نت (N/A, Tue, 5 Nov 2024 21:30:00 -0800)
 
 - **نيويورك صن: هكذا يمكن أن يفوز ترامب بالانتخابات ثم يستبعد أو يعزل**: [Link](https://www.aljazeera.net/politics/2024/11/6/%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%B5%D9%86-%D9%87%D9%83%D8%B0%D8%A7-%D9%8A%D9%85%D9%83%D9%86-%D8%A3%D9%86-%D9%8A%D9%81%D9%88%D8%B2-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8)
