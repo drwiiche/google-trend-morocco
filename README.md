@@ -1,3 +1,12 @@
+### election donald trump (N/A, Wed, 6 Nov 2024 10:00:00 -0800)
+
+- **Trump Wins 2024 U.S. Presidential Election: Live Updates**: [Link](https://www.nytimes.com/live/2024/11/06/us/trump-election-harris-news)
+- **Live updates: Trump wins the 2024 presidential election, CNN projects | CNN 
+Politics**: [Link](https://www.cnn.com/politics/live-news/election-trump-harris-11-06-24/index.html)
+- **How Donald Trump found his footing and fought his way back to the White 
+House**: [Link](https://www.washingtonpost.com/politics/2024/11/06/how-donald-trump-won-presidential-election/)
+
+
 ### club brugge – aston villa (N/A, Wed, 6 Nov 2024 09:00:00 -0800)
 
 - **Unai Emery Faces Striker Headache as Ollie Watkins and Jhon Duran Struggle 
