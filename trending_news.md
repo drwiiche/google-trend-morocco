@@ -1,3 +1,25 @@
+### كورة مباشر (N/A, Wed, 6 Nov 2024 12:40:00 -0800)
+
+- **الرسم التكتيكي لفريقي باريس سان جيرمان و أتلتيكو مدريد في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/11/06/p2924431.html)
+- **سيريزو: لا أعرف أي شيء عن تصريحات إنريكي**: [Link](https://www.kooora.com/?n=1366383)
+- **حكيمي .. سهرتي الأوروبية معكم**: [Link](https://www.almountakhab.com/node/13206258)
+
+
+### fcb (N/A, Wed, 6 Nov 2024 12:40:00 -0800)
+
+- **Pedri Reveals Xavi's Fines to the Barça Dressing Room**: [Link](https://www.footboom1.com/en/news/football/2031797-pedri-reveals-xavi-s-fines-to-the-barca-dressing-room)
+- **Pedri sheds light on Xavi's brutal dressing room fines at Barcelona as he 
+reveals Hansi Flick's different approach to discipline**: [Link](https://www.goal.com/en-bh/lists/pedri-xavi-brutal-dressing-room-fines-barcelona-reveals-hansi-flick-discipline/blt24eafaad7a0e25d5)
+- **Pedri Opens Up: From Barcelona's Fines to Struggles with English**: [Link](https://www.footboom1.com/en/news/football/2029236-pedri-opens-up-from-barcelona-s-fines-to-struggles-with-english)
+
+
+### uefa champions league (N/A, Wed, 6 Nov 2024 12:40:00 -0800)
+
+- **Lille 1-1 Juventus: Dusan Vlahovic penalty levels tie in France**: [Link](https://www.bbc.com/sport/football/live/ced9ljyzw11t)
+- **Standout Stats | Lille-Juventus**: [Link](https://www.juventus.com/en/news/articles/standout-stats-lille-juventus)
+- **Motta: Juventus 'deserved more' from Lille stalemate**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/motta-juventus-deserved-more-from-lille-stalemate-2024-11-06)
+
+
 ### barcelona (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
 
 - **Estrella Roja - Barcelona, en directo: Champions League hoy en vivo**: [Link](https://as.com/futbol/champions/estrella-roja-barcelona-en-directo-champions-league-hoy-en-vivo-n/)
