@@ -1,3 +1,36 @@
+### كورة لايف (N/A, Wed, 6 Nov 2024 12:20:00 -0800)
+
+- **ترتيب دوري أبطال أوروبا بعد هزيمة الريال أمام الميلان**: [Link](https://hihi2.com/2024/11/06/p2923029.html)
+- **موراتا بعد ثلاثية الريال: من الصعب أن تهزم 11 أسدا**: [Link](https://www.kooora.com/?n=1366308)
+- **دوري الأبطال/ ريال مدريد ينهزم في ميدانه أمام ميلان (3-1) والتعادل يحسم 
+مباراة ليل ويوفنتوس (1-1) ودورتموند يفوز على شتورم غراتس (1-0)**: [Link](https://m.elbotola.com/article/2024-11-05-22-01-670.html)
+
+
+### barca vs (N/A, Wed, 6 Nov 2024 12:20:00 -0800)
+
+- **Estrella Roja - Barcelona, en directo: Champions League hoy en vivo**: [Link](https://as.com/futbol/champions/estrella-roja-barcelona-en-directo-champions-league-hoy-en-vivo-n/)
+- **Estrella Roja - FC Barcelona, en directo: alineaciones, horario y dónde ver 
+| Champions League**: [Link](https://www.sport.es/es/noticias/barca/estrella-roja-barcelona-champions-directo-111431511)
+- **Alineación probable del Barça contra el Estrella Roja en Champions: una 
+sola duda**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241106/1002347900/probable-alineacion-barca-duda.html)
+
+
+### paris saint germain (N/A, Wed, 6 Nov 2024 12:20:00 -0800)
+
+- **DIRECT. PSG-Atlético de Madrid (Ligue des champions 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/psg-atletico-de-madrid-live/668027)
+- **Paris Saint-Germain - Atlético Madrid en direct: Ligue des champions - 
+Football**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/live-paris-saint-germain-atletico-madrid_mtc1525260/live-commentary.shtml)
+- **LdC : Le PSG d'Achraf Hakimi face à l'Atlético de Madrid, voici le 
+programme de ce mercredi**: [Link](https://fr.hespress.com/394800-ldc-le-psg-dachraf-hakimi-face-a-latletico-de-madrid-voici-le-programme-de-ce-mercredi.html)
+
+
+### crvena zvezda (N/A, Wed, 6 Nov 2024 12:10:00 -0800)
+
+- **Milan Purović: Čudo je ona "rupa"; Barseloni neće biti prijatno**: [Link](https://meridiansport.me/fudbal/purovic/)
+- **Iznenađenje među novinarima: Ivanić i Radonjić na neuobičajenom mestu**: [Link](https://naslovi.net/2024-11-07/danas/iznenadjenje-medju-novinarima-ivanic-i-radonjic-na-neuobicajenom-mestu/38224179)
+- **ZA PAMĆENJE "Delije" napravile "rimejk" korografije iz 1996. godine (VIDEO)**: [Link](https://www.maxbetsport.rs/za-pamcenje-delije-napravile-rimejk-korografije-iz-1996-godine-video-557747/)
+
+
 ### belgrade (N/A, Wed, 6 Nov 2024 11:50:00 -0800)
 
 - **Vavrinka: Čestitao sam mu na zlatnoj medalji**: [Link](https://meridiansport.me/tenis/vavrinka-cestitao-sam-mu/)
