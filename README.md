@@ -1,3 +1,28 @@
+### marche verte maroc (N/A, Wed, 6 Nov 2024 01:10:00 -0800)
+
+- **La Marche Verte racontée par le défunt Roi Hassan II**: [Link](https://fr.le360.ma/politique/la-marche-verte-racontee-par-le-defunt-roi-hassan-ii_ALOZKCSUDJFWRII7JLUXNBTK2Y/)
+- **À Settat, Abou Zaid inaugure des projets structurants pour la marche verte**: [Link](https://fr.hespress.com/394684-a-settat-abou-zaid-inaugure-des-projets-structurants-pour-la-marche-verte.html)
+- **Le Maroc célèbre le 49e anniversaire de la Marche verte**: [Link](https://lematin.ma/nation/le-maroc-celebre-le-49e-anniversaire-de-la-marche-verte/250337)
+
+
+### naziha belkeziz (N/A, Wed, 6 Nov 2024 00:20:00 -0800)
+
+- **Naziha Belkeziz nommée PDG du groupe BCP**: [Link](https://fr.hespress.com/394642-naziha-belkeziz-nommee-pdg-du-groupe-bcp.html)
+- **Naziha Belkeziz nommée PDG de la Banque Centrale Populaire**: [Link](https://lematin.ma/economie/naziha-belkeziz-nommee-pdg-de-la-banque-centrale-populaire/250320)
+- **L’œil de Carlos. Enfin une femme dans le club fermé des patrons de banques 
+marocaines!**: [Link](https://fr.le360.ma/medias/loeil-de-carlos-enfin-une-femme-dans-le-club-ferme-des-patrons-de-banques-marocaines_N2UKMZIBLRCRXF6ERSYJO43TPY/)
+
+
+### le monde (N/A, Tue, 5 Nov 2024 21:50:00 -0800)
+
+- **Le monde footballistique azuréen est en deuil: Gilbert Castello nous a 
+quittés à l'âge de 73 ans**: [Link](https://www.nicematin.com/football/le-monde-footballistique-azureen-est-en-deuil-gilbert-castello-nous-a-quittes-a-l-age-de-73-ans-955209)
+- **DIRECT. Élection américaine: Donald Trump revendique "une victoire jamais 
+vue dans notre pays" face à Kamala Harris**: [Link](https://www.bfmtv.com/international/amerique-nord/etats-unis/elections-americaines/direct-election-americaine-suivez-les-premiers-resultats-du-duel-entre-donald-trump-et-kamala-harris_LN-202411050973.html)
+- **Présidentielle américaine 2024 : la carte des résultats en temps réel, Etat 
+par Etat**: [Link](https://www.lemonde.fr/les-decodeurs/article/2024/11/06/presidentielle-americaine-2024-la-carte-des-resultats-en-temps-reel-etat-par-etat_6377923_4355771.html)
+
+
 ### president usa 2024 (N/A, Wed, 6 Nov 2024 00:10:00 -0800)
 
 - **November 4, 2024 - US election news | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/2024-election-trump-harris/index.html)
