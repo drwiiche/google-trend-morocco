@@ -1,3 +1,11 @@
+### president usa 2024 (N/A, Wed, 6 Nov 2024 00:10:00 -0800)
+
+- **November 4, 2024 - US election news | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/2024-election-trump-harris/index.html)
+- **Who's winning the swing states? Live 2024 battleground results**: [Link](https://fortune.com/2024/11/05/swing-states-battleground-us-election-result-presidential/)
+- **History repeats? What happens if Trump and Harris both win on Nov 5; the 
+aftermath of the US election**: [Link](https://www.hindustantimes.com/world-news/history-repeats-what-happens-if-trump-and-harris-both-win-on-nov-5-the-aftermath-of-the-us-election-101730854363899.html)
+
+
 ### who won the election (N/A, Tue, 5 Nov 2024 21:40:00 -0800)
 
 - **Live election updates: Trump has 267 of the 270 electoral votes needed to 
