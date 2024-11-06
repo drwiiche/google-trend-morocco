@@ -1,3 +1,12 @@
+### ligue des champions (N/A, Wed, 6 Nov 2024 12:50:00 -0800)
+
+- **25e, le PSG est en position d'éliminé, Brest est 4e : le classement de la 
+Ligue des champions après la 4e journée**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/25e-le-psg-est-en-position-delimine-le-classement-de-la-ligue-des-champions-apres-la-4e-journee_sto20051880/story.shtml)
+- **J4 : le classement complet de la Ligue des Champions**: [Link](https://www.footmercato.net/a1422878022250941000-j4-le-classement-complet-de-la-ligue-des-champions)
+- **Real Madrid - AC Milan. À quelle heure et sur quelle chaîne suivre le match 
+de Ligue des champions ?**: [Link](https://www.ouest-france.fr/sport/football/espagne/real-madrid/real-madrid-milan-ac-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-en-direct-18e9284a-9aff-11ef-940c-520b50887c11)
+
+
 ### arsenal vs (N/A, Wed, 6 Nov 2024 13:00:00 -0800)
 
 - **Champions League LIVE: Club Brugge v Aston Villa & Inter vs Arsenal - 
