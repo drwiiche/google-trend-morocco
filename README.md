@@ -1,3 +1,20 @@
+### 2024 united states presidential election (N/A, Tue, 5 Nov 2024 22:50:00 -0800)
+
+- **US presidential election 2024: Kamala Harris cancels election night party 
+as path to victory narrows**: [Link](https://www.bbc.com/news/articles/clyg856px7eo)
+- **Kamala Harris fails to swing around swing states as Donald Trump set to 
+become next US President**: [Link](https://www.deccanherald.com/world/kamala-harris-fails-to-swing-around-swing-states-as-donald-trump-set-to-become-next-us-president-3263055)
+- **Election Day 2024: Here’s Harris’ Clearest Path To Victory—As Trump’s North 
+Carolina Win Narrows Path (Updated)**: [Link](https://www.forbes.com/sites/saradorn/2024/11/05/election-day-2024-heres-harris-clearest-path-to-victory-as-trumps-north-carolina-win-narrows-path-updated/)
+
+
+### elections (N/A, Tue, 5 Nov 2024 19:50:00 -0800)
+
+- **Presidential Election 2024 Live Results: Kamala Harris vs. Donald Trump**: [Link](https://www.nbcnews.com/politics/2024-elections/president-results)
+- **Presidential Election Battleground States and Early Voting 2024 Results**: [Link](https://www.nbcnews.com/politics/2024-elections/president-electoral-college-battleground-states)
+- **When Will We Know 2024 Election Results? | FiveThirtyEight**: [Link](https://projects.fivethirtyeight.com/when-will-we-know-who-won-2024-election/)
+
+
 ### carrefour jordanie (N/A, Tue, 5 Nov 2024 22:30:00 -0800)
 
 - **Le groupe Carrefour a-t-il cessé son activité en Jordanie en raison du 
