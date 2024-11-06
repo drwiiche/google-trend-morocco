@@ -1,3 +1,46 @@
+### champions league 2024 (N/A, Wed, 6 Nov 2024 13:00:00 -0800)
+
+- **Liverpool 4-0 Bayer Leverkusen: Luis Diaz scores hat-trick as Xabi Alonso 
+suffers defeat on Anfield return**: [Link](https://www.bbc.com/sport/football/live/cwy5grq8n55t)
+- **Liverpool 4-0 Bayer Leverkusen: Champions League – as it happened**: [Link](https://www.theguardian.com/football/live/2024/nov/05/liverpool-v-bayer-leverkusen-champions-league-live)
+- **Arne Slot has totally binned what Jurgen Klopp was trying to do with 
+'unbelievable' Liverpool player**: [Link](https://www.rousingthekop.com/2024/11/06/arne-slot-has-totally-binned-what-jurgen-klopp-was-trying-to-do-with-unbelievable-liverpool-player/)
+
+
+### champions league (N/A, Wed, 6 Nov 2024 12:50:00 -0800)
+
+- **Champions League LIVE: Club Brugge v Aston Villa & Inter vs Arsenal - 
+scores & updates**: [Link](https://www.bbc.com/sport/football/live/c3e890j3125t)
+- **Champions League LIVE: Club Brugge 1-0 Aston Villa & Inter vs Arsenal - 
+scores & updates**: [Link](https://www.bbc.co.uk/sport/football/live/c3e890j3125t)
+- **The most absurd penalty ever seen: Mings took Martinez's goal kick with his 
+hand**: [Link](https://www.besoccer.com/new/the-most-absurd-penalty-ever-seen-mings-took-martinez-s-goal-kick-with-his-hand-1336880)
+
+
+### bayern munich (N/A, Wed, 6 Nov 2024 12:50:00 -0800)
+
+- **Report: Bayern Munich’s Leroy Sané "back at 100%", poised for Champions 
+League start**: [Link](https://www.bavarianfootballworks.com/2024/11/6/24285498/bayern-munich-leroy-sane-injury-return-champions-league-start-vincent-kompany-benfica-germany)
+- **Germany Soccer Champions League**: [Link](https://www.idahostatejournal.com/sports/national/germany-soccer-champions-league/image_1fe0768c-c3a4-5858-bf4c-5a43d81277da.html)
+- **Kompany targeting Champions League top eight despite stuttering start**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/kompany-targeting-champions-league-top-eight-despite-stuttering-start-2024-11-05)
+
+
+### flashscore (N/A, Wed, 6 Nov 2024 12:50:00 -0800)
+
+- **Shakhtar Donetsk 2-1 Young Boys: Hosts come from behind to earn first 
+Champions League win**: [Link](https://www.bbc.com/sport/football/live/cqlr60p0gkzt)
+- **Keller replaces von Ballmoos - Magnin backs this eleven against Shakhtar**: [Link](https://www.bluewin.ch/en/sport/football/keller-replaces-von-ballmoos-magnin-backs-this-eleven-against-shakhtar-2436163.html)
+- **Preview: Shakhtar Donetsk vs. Young Boys - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/shakhtar-donetsk/champions-league/preview/preview-shakhtar-vs-young-boys-prediction-team-news-lineups_557329.html)
+
+
+### ucl (N/A, Wed, 6 Nov 2024 12:50:00 -0800)
+
+- **AC Milan topple Champions League holders Real Madrid**: [Link](https://www.beinsports.com/en-mena/football/uefa-champions-league/articles-video/ac-milan-topple-champions-league-holders-real-madrid-2024-11-05)
+- **Real Madrid - AC Milan live: Champions League - Football**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/live-real-madrid-ac-milan_mtc1525258/live-commentary.shtml)
+- **Player Ratings: Real Madrid 1-3 AC Milan – Leao responds in style: 
+Reijnders sublime**: [Link](https://sempremilan.com/player-ratings-real-madrid-1-3-ac-milan-leao)
+
+
 ### كورة مباشر (N/A, Wed, 6 Nov 2024 12:40:00 -0800)
 
 - **الرسم التكتيكي لفريقي باريس سان جيرمان و أتلتيكو مدريد في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/11/06/p2924431.html)
