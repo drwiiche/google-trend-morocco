@@ -1,3 +1,10 @@
+### la marche verte maroc (N/A, Wed, 6 Nov 2024 04:00:00 -0800)
+
+- **La Marche Verte racontée par le défunt Roi Hassan II**: [Link](https://fr.le360.ma/politique/la-marche-verte-racontee-par-le-defunt-roi-hassan-ii_ALOZKCSUDJFWRII7JLUXNBTK2Y/)
+- **Anniversaire marche verte: Le Roi s'adresse à la nation ce mercredi**: [Link](https://fr.hespress.com/394806-anniversaire-marche-verte-le-roi-sadresse-a-la-nation-ce-mercredi.html)
+- **Le Maroc célèbre le 49e anniversaire de la Marche verte**: [Link](https://lematin.ma/nation/le-maroc-celebre-le-49e-anniversaire-de-la-marche-verte/250337)
+
+
 ### هسبريس (N/A, Tue, 5 Nov 2024 22:30:00 -0800)
 
 - **فوز ترامب يعصف بالعملة الإيرانية**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%B2-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%B9%D8%B5%D9%81-%D8%A8%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A9-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-1460198.html)
