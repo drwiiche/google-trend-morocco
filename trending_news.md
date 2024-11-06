@@ -1,3 +1,13 @@
+### نتائج مباراة التعليم (N/A, Wed, 6 Nov 2024 03:20:00 -0800)
+
+- **يهم الناجحين في مباراة التعليم.. هذه الوثائق المطلوبة لإتمام عملية التسجيل 
+(صور)**: [Link](https://ar.hibapress.com/details-570712.html)
+- **"مباشر الان".. الاستعلام عن نتائج الفائزين في مباراة التعليم 2024 عبر موقع 
+وزارة التربية الوطنية men.gov.ma**: [Link](https://sa.mwlana.com/70863/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D9%84%D8%A7%D9%85-%D8%B9%D9%86-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D9%81%D8%A7%D8%A6%D8%B2/)
+- **الآن .. رابط نتائج مباراة التعليم النهائية 2025 لوائح المقبولين men.gov.ma 
+وزارة التربية الوطنية**: [Link](https://n.khabrna.com/312783/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-2024-2025-2/)
+
+
 ### etoile rouge (N/A, Wed, 6 Nov 2024 08:00:00 -0800)
 
 - **Barça : Lamine Yamal, la dernière provocation**: [Link](https://www.football365.fr/lamine-yamal-la-derniere-provocation-10211522.html)
