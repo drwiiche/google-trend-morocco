@@ -1,3 +1,22 @@
+### election presidentielle etats unis (N/A, Wed, 6 Nov 2024 06:40:00 -0800)
+
+- **En direct, résultats élection américaine 2024 : Donald Trump devient le 47e 
+président des Etats-Unis, après sa victoire dans le Wisconsin ; suivez les 
+réactions**: [Link](https://www.lemonde.fr/international/live/2024/11/06/en-direct-resultats-election-americaine-2024-donald-trump-devient-le-47e-president-des-etats-unis-apres-sa-victoire-dans-le-wisconsin-suivez-les-reactions_6376692_3210.html)
+- **Présidentielle américaine : "On a senti le vent tourner"**: [Link](https://www.france24.com/fr/vid%C3%A9o/20241106-pr%C3%A9sidentielle-am%C3%A9ricaine-on-a-commenc%C3%A9-%C3%A0-sentir-le-vent-tourner)
+- **DIRECT. Élection américaine: Donald Trump revendique "une victoire jamais 
+vue dans notre pays" face à Kamala Harris**: [Link](https://www.bfmtv.com/international/amerique-nord/etats-unis/elections-americaines/direct-election-americaine-suivez-les-premiers-resultats-du-duel-entre-donald-trump-et-kamala-harris_LN-202411050973.html)
+
+
+### jd vance (N/A, Wed, 6 Nov 2024 06:20:00 -0800)
+
+- **Usha Vance set to become 1st Indian-origin Second Lady of US: 10 things to 
+know about the Yale graduate lawyer | Today News**: [Link](https://www.livemint.com/news/usha-vance-set-to-become-1st-indian-origin-second-lady-of-us-10-things-to-know-about-her-11730886973512.html)
+- **India’s Hindus celebrate Trump victory, Harris ancestral village 
+disappointed**: [Link](https://en.armradio.am/2024/11/06/indias-hindus-celebrate-trump-victory-harris-ancestral-village-disappointed/)
+- **Telugu-origin Usha Chilukuri set to become ‘Second Lady’ of US**: [Link](https://pune.news/international/telugu-origin-usha-chilukuri-set-to-become-second-lady-of-us-262958/)
+
+
 ### trump age (N/A, Wed, 6 Nov 2024 04:10:00 -0800)
 
 - **Breakingviews: Europe is unprepared for the Trump storm**: [Link](https://www.reuters.com/breakingviews/europe-is-unprepared-trump-storm-2024-11-06/)
