@@ -1,3 +1,25 @@
+### us elections 2024 (N/A, Tue, 5 Nov 2024 20:50:00 -0800)
+
+- **Iowa President Election 2024 Live Results: Trump Wins**: [Link](https://www.nbcnews.com/politics/2024-elections/iowa-president-results)
+- **Trump Takes Iowa, Despite a Surprising Poll**: [Link](https://www.barrons.com/livecoverage/election-results-trump-harris-2024/card/trump-takes-iowa-despite-a-surprising-poll-7llC53Rw5fuYGGVsnZ2H)
+- **Poll showing Harris up in Iowa throws 'monkey wrench' into election 
+prognosis: Expert**: [Link](https://abcnews.go.com/Politics/poll-showing-harris-iowa-throws-monkey-wrench-election/story?id=115463596)
+
+
+### g (N/A, Tue, 5 Nov 2024 19:30:00 -0800)
+
+- **South Dakota Ballot Measures: Election 2024 Live Results**: [Link](https://www.nbcnews.com/politics/2024-elections/south-dakota-ballot-measures)
+- **South Dakota voting on marijuana again with IM 29**: [Link](https://www.keloland.com/keloland-com-original/south-dakota-voting-on-marijuana-again-with-im-29/)
+- **South Dakota Amendment G election results 2024 live updates**: [Link](https://www.washingtonpost.com/elections/results/2024/11/05/south-dakota-amendment-g-abortion/)
+
+
+### bitcoin (N/A, Tue, 5 Nov 2024 19:10:00 -0800)
+
+- **Asia stocks mixed as investors await US presidential result**: [Link](https://www.bbc.com/news/articles/c6246e3w935o)
+- **Forex Today: Attention remains on US election prior to the FOMC event**: [Link](https://www.fxstreet.com/news/forex-today-attention-remains-on-us-election-prior-to-the-fomc-event-202411051901)
+- **Dollar climbs as Trump makes early gains in exit polls; Bitcoin rises**: [Link](https://www.cnbc.com/2024/11/06/dollar-climbs-as-trump-makes-early-gains-in-exit-polls-bitcoin-rises.html)
+
+
 ### نتائج الانتخابات الرئاسية الأمريكية (N/A, Tue, 5 Nov 2024 16:50:00 -0800)
 
 - **أولًا بأول.. نتائج انتخابات الرئاسة الأمريكية بين هاريس وترامب**: [Link](https://arabic.cnn.com/world/article/2024/11/06/us-election-harris-trump-results)
