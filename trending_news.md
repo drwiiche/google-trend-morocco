@@ -1,3 +1,11 @@
+### betis – nk celje (N/A, Thu, 7 Nov 2024 11:10:00 -0800)
+
+- **Preview: Real Betis vs. Celje - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/europa-conference-league/preview/preview-betis-vs-celje-prediction-team-news-lineups_557403.html)
+- **Bartra: "The Message Must Be Delivered on the Pitch, Not in Press 
+Conferences"**: [Link](https://www.footboom1.com/en/news/football/2032096-bartra-the-message-must-be-delivered-on-the-pitch-not-in-press-conferences)
+- **Real Betis vs Celje Prediction and Betting Tips | November 7th 2024**: [Link](https://www.sportskeeda.com/football/real-betis-vs-celje-prediction-betting-tips-november-7th-2024)
+
+
 ### olympiakos (N/A, Thu, 7 Nov 2024 12:20:00 -0800)
 
 - **Jose Luis Mendilibar's Remarkable Journey with Olympiakos Piraeus**: [Link](https://www.footboom1.com/en/news/football/2037164-jose-luis-mendilibar-s-remarkable-journey-with-olympiakos-piraeus)
