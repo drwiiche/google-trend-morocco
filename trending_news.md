@@ -1,3 +1,35 @@
+### chelsea (N/A, Thu, 7 Nov 2024 13:00:00 -0800)
+
+- **Europa League & Conference League: Man Utd & Chelsea in action after Spurs 
+lose**: [Link](https://www.bbc.com/sport/football/live/cj3mnmmd22kt)
+- **Europa League table: Latest standings, fixtures and results**: [Link](https://www.standard.co.uk/sport/football/europa-league-table-2024-2025-standings-fixtures-results-matchday-4-b1184139.html)
+- **Man Utd v PAOK: Interim boss Ruud van Nistelrooy uncertain on future**: [Link](https://www.bbc.com/sport/football/live/ckgd2gnd3q4t)
+
+
+### dkhissi (N/A, Thu, 7 Nov 2024 13:00:00 -0800)
+
+- **Le Maroc élu à la majorité à la vice-présidence d'Interpol pour l'Afrique**: [Link](https://fr.hespress.com/395002-le-maroc-elu-a-la-majorite-a-la-vice-presidence-dinterpol-pour-lafrique.html)
+- **Le Maroc décroche la vice-présidence d’Interpol pour l’Afrique**: [Link](https://ledesk.ma/encontinu/le-maroc-decroche-la-vice-presidence-dinterpol-pour-lafrique/)
+- **Diapo. Le Maroc élu à la vice-présidence d’Interpol pour l’Afrique**: [Link](https://fr.le360.ma/societe/diapo-le-maroc-elu-a-la-vice-presidence-dinterpol-pour-lafrique_W33O2WZ75BBV3D3DMQTPN3ORGA/)
+
+
+### real sociedad (N/A, Thu, 7 Nov 2024 13:00:00 -0800)
+
+- **Real Sociedad vs. Barcelona (Nov 10, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704786)
+- **Real Sociedad vs. Barcelona lineups, expected starting 11, confirmed team 
+news and injuries: Barca on scoring run in La Liga**: [Link](https://www.sportingnews.com/us/soccer/news/real-sociedad-barcelona-lineups-starting-11-team-news-injuries-liga/49c25ae9d69ee6f0c2891fc8)
+- **Real Sociedad vs. Barcelona: predicted lineups, team news and score 
+prediction**: [Link](https://fansided.com/real-sociedad-barcelona-predicted-lineups-team-news-score-prediction)
+
+
+### hoffenheim – lyon (N/A, Thu, 7 Nov 2024 12:50:00 -0800)
+
+- **Auf der Suche nach dem Torjäger**: [Link](https://onefootball.com/en/news/auf-der-suche-nach-dem-torjaeger-40274725)
+- **Europapokal am Donnerstag: Die Aufstellungen von Hoffenheim und Heidenheim**: [Link](https://neunzigplus.de/europa-league/hoffenheim-heidenheim-aufstellungen/)
+- **Europa League heute live im Free-TV: Diese Spiele werden bei RTL im TV und 
+Livestream übertragen**: [Link](https://www.swp.de/unterhaltung/tv/europa-league-heute-live-im-free-tv-diese-spiele-werden-bei-rtl-im-tv-und-livestream-uebertragen-77641812.html)
+
+
 ### betis – nk celje (N/A, Thu, 7 Nov 2024 11:10:00 -0800)
 
 - **Preview: Real Betis vs. Celje - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/europa-conference-league/preview/preview-betis-vs-celje-prediction-team-news-lineups_557403.html)
