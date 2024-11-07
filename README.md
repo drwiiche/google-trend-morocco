@@ -1,3 +1,10 @@
+### برشلونة (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
+
+- **ساعة فليك تكشف سر نجاحه في برشلونة**: [Link](https://www.kooora.com/?n=1365957)
+- **فليك: أخطأت في حق ليفاندوفسكي.. وهذا أكثر ما يعجبني في برشلونة الآن**: [Link](https://www.btolat.com/news/356773)
+- **أول تعليق من فليك بعد الفوز بخماسية على النجم الأحمر بدوري الأبطال**: [Link](https://hihi2.com/2024/11/07/p2924799.html)
+
+
 ### cubarsi (N/A, Wed, 6 Nov 2024 15:00:00 -0800)
 
 - **Pau Cubarsi goes off covered in blood after kick to face in Barcelona’s 
