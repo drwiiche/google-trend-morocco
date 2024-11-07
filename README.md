@@ -1,3 +1,10 @@
+### recensement maroc 2024 (N/A, Thu, 7 Nov 2024 03:50:00 -0800)
+
+- **Recensement 2024 : voici les premiers résultats**: [Link](https://lematin.ma/nation/recensement-2024-voici-les-premiers-resultats/250371)
+- **RGPH 2024 : voici la population légale au Maroc au début septembre 2024**: [Link](https://medias24.com/2024/11/07/rgph-2024-voici-la-population-legale-au-maroc-au-debut-septembre-2024/)
+- **La population marocaine a augmenté de près de 3 millions de personnes**: [Link](https://fr.hespress.com/394983-la-population-marocaine-a-augmente-de-pres-de-3-millions-de-personnes.html)
+
+
 ### frmf (N/A, Thu, 7 Nov 2024 02:50:00 -0800)
 
 - **Nouvelle décision concernant le match WAC-IRT**: [Link](https://www.lesiteinfo.com/sport/631724-nouvelle-decision-concernant-le-match-wac-irt.html)
