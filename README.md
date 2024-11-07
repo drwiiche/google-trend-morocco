@@ -1,3 +1,38 @@
+### manchester united – paok (N/A, Thu, 7 Nov 2024 11:10:00 -0800)
+
+- **Erik ten Hag's prediction set to come true as Harry Amass tipped to make 
+Man United debut vs PAOK**: [Link](https://www.unitedinfocus.com/news/erik-ten-hags-prediction-set-to-come-true-as-harry-amass-prepares-to-make-his-man-united-debut-vs-paok/)
+- **Ruud van Nistelrooy’s advice to Rasmus Hojlund: Remain calm under pressure 
+to become a ruthless finisher**: [Link](https://thepeoplesperson.com/2024/11/06/ruud-van-nistelrooys-advice-to-rasmus-hojlund-remain-calm-under-pressure-to-become-a-ruthless-finisher-287333/)
+- **Man United vs PAOK - Europa League: Live score, team news and updates as 
+Red Devils go in search of first...**: [Link](https://www.dailymail.co.uk/sport/football/article-14054067/Man-United-vs-PAOK-Europa-League-Chelsea-vs-Noah-Conference-League-Live-Result.html)
+
+
+### chelsea – noah (N/A, Thu, 7 Nov 2024 11:10:00 -0800)
+
+- **"The most important thing" - Maresca details what's impressed him most 
+about highly rated teenager**: [Link](https://chelsea.news/2024/11/enzo-maresca-tyrique-george-praise/)
+- **Chelsea injury news as Enzo Maresca without two players for Noah clash amid 
+Cole Palmer update**: [Link](https://www.football.london/chelsea-fc/news/chelsea-injury-news-enzo-maresca-30316802)
+- **How to watch Chelsea vs Noah in the Conference League**: [Link](https://theprideoflondon.com/how-to-watch-chelsea-vs-noah-conference-league-07-11-24)
+
+
+### viktoria plzen – real sociedad (N/A, Thu, 7 Nov 2024 11:10:00 -0800)
+
+- **Preview: Viktoria Plzen vs. Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/viktoria-plzen/europa-league/preview/preview-plzen-vs-real-sociedad-prediction-team-news-lineups_557390.html)
+- **Victoria vs Real Sociedad: Match Preview and Prediction**: [Link](https://www.footboom1.com/en/news/football/2033607-victoria-vs-real-sociedad-match-preview-and-prediction)
+- **Real Sociedad Travel to Plzen with Expected Absences of Turrientes and 
+'Barrene', Plus Aihen**: [Link](https://www.footboom1.com/en/news/football/2032154-real-sociedad-travel-to-plzen-with-expected-absences-of-turrientes-and-barrene-plus-aihen)
+
+
+### olympiakos – glasgow rangers (N/A, Thu, 7 Nov 2024 10:50:00 -0800)
+
+- **UEFA Europa League Olympiakos Piraeus 0 Rangers 0 Half time**: [Link](https://www.bbc.com/sport/football/live/c5yrlyvr159t)
+- **Olympiacos 1 Rangers 0 LIVE as the Greeks take the lead amid bizarre 
+Clement decision**: [Link](https://www.dailyrecord.co.uk/sport/football/football-news/olympiacos-rangers-live-europa-league-34060727)
+- **'Clement's direct style can come to fruition in Athens'**: [Link](https://www.allsides.com/news/2024-11-07-0715/sports-clements-direct-style-can-come-fruition-athens)
+
+
 ### nice – twente (N/A, Thu, 7 Nov 2024 10:40:00 -0800)
 
 - **Live Europees voetbal | Twente komt vroeg op voorsprong in Nice door goal 
