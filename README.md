@@ -1,3 +1,13 @@
+### ldc (N/A, Wed, 6 Nov 2024 14:00:00 -0800)
+
+- **Ligue des champions : Aston Villa s'incline en concédant un pénalty-gag à 
+Bruges**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/ligue-des-champions-le-barca-se-balade-aston-villa-chute_sto20051851/story.shtml)
+- **Foot : Le penalty ridicule concédé par Aston Villa après une erreur 
+improbable de Tyron Mings en Ligue des champions**: [Link](https://www.lequipe.fr/Football/Actualites/L-improbable-erreur-de-tyron-mings-qui-a-offert-un-penalty-au-club-bruges-en-ligue-des-champions/1518681)
+- **Lucas Digne : « j’ai le sentiment de jouer le meilleur football de ma 
+carrière »**: [Link](https://www.footmercato.net/a8692380812708280023-lucas-digne-jai-le-sentiment-de-jouer-le-meilleur-football-de-ma-carriere)
+
+
 ### برشلونة (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
 
 - **ساعة فليك تكشف سر نجاحه في برشلونة**: [Link](https://www.kooora.com/?n=1365957)
