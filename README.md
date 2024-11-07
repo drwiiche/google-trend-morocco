@@ -1,3 +1,10 @@
+### olympiakos (N/A, Thu, 7 Nov 2024 12:20:00 -0800)
+
+- **Jose Luis Mendilibar's Remarkable Journey with Olympiakos Piraeus**: [Link](https://www.footboom1.com/en/news/football/2037164-jose-luis-mendilibar-s-remarkable-journey-with-olympiakos-piraeus)
+- **Roman Yaremchuk on the Bench for Match Against Rangers**: [Link](https://www.footboom1.com/en/news/football/2036968-roman-yaremchuk-on-the-bench-for-match-against-rangers)
+- **Greece Soccer Europa League**: [Link](https://www.idahostatejournal.com/sports/national/greece-soccer-europa-league/image_8bf3c877-e4f5-5a06-83d7-032aacf74d46.html)
+
+
 ### تشيلسي ضد نوح (N/A, Thu, 7 Nov 2024 11:40:00 -0800)
 
 - **تشيلسي أول الإنجليز في تجربة أرمينية**: [Link](https://www.kooora.com/?n=1366344)
