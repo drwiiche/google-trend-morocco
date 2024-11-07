@@ -1,3 +1,11 @@
+### kylian mbappé real madrid (N/A, Wed, 6 Nov 2024 21:50:00 -0800)
+
+- **Kylian Mbappe blames Carlo Ancelotti’s tactics for Real Madrid struggles**: [Link](https://therealchamps.com/kylian-mbappe-blames-carlo-ancelotti-tactics-real-madrid-struggles)
+- **Mbappé: An Ultimatum Laid Out Live!**: [Link](https://www.footboom1.com/en/news/football/2034221-mbappe-an-ultimatum-laid-out-live)
+- **'He's a left winger, but Vincius Jr. is the best in the world' - Karim 
+Benzema disagrees with Kylian Mbappé's Real Madrid position**: [Link](https://www.getfootballnewsfrance.com/2024/hes-a-left-winger-but-vincius-jr-is-the-best-in-the-world-karim-benzema-disagrees-with-kylian-mbappes-real-madrid-position/)
+
+
 ### barca match (N/A, Wed, 6 Nov 2024 12:50:00 -0800)
 
 - **Gavi shares Pau Cubarsi update after defender has 10 stitches after 
