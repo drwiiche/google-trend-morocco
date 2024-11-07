@@ -1,3 +1,11 @@
+### real betis vs celje (N/A, Thu, 7 Nov 2024 13:00:00 -0800)
+
+- **Riera's Plan to Bring Down Betis: "I've Asked Them to Put On Headphones and 
+Feel the Noise"**: [Link](https://www.footboom1.com/en/news/football/2035475-riera-s-plan-to-bring-down-betis-i-ve-asked-them-to-put-on-headphones-and-feel-the-noise)
+- **Preview: Real Betis vs. Celje - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/europa-conference-league/preview/preview-betis-vs-celje-prediction-team-news-lineups_557403.html)
+- **Betis - Celje: In League Attire**: [Link](https://www.footboom1.com/en/news/football/2034817-betis-celje-in-league-attire)
+
+
 ### ligue europa conférence (N/A, Thu, 7 Nov 2024 13:20:00 -0800)
 
 
