@@ -1,3 +1,12 @@
+### balthazar video (N/A, Thu, 7 Nov 2024 15:30:00 -0800)
+
+- **Balthazar Scandal: After a shocking video was revealed, a married woman 
+speaks out while her husband files for divorce.**: [Link](https://www.ghanaweb.com/blogs/zeqblog/Balthazar-Scandal-After-a-shocking-video-was-revealed-a-married-woman-speaks-out-while-her-husband-files-for-divorce-1845)
+- **An official in Equatorial Guinea is investigated for hundreds of sex videos**: [Link](https://abcnews.go.com/International/wireStory/official-equatorial-guinea-investigated-hundreds-sex-videos-115514451)
+- **According to a close source, Baltazar pays women $16,000 just to chop them 
+in a day.**: [Link](https://www.ghanaweb.com/blogs/mira360/According-to-a-close-source-Baltazar-pays-women-16-000-just-to-chop-them-in-a-day-1789)
+
+
 ### outer banks (N/A, Thu, 7 Nov 2024 14:50:00 -0800)
 
 - **Rudy Pankow on Playing JJ, the Most Loyal Pogue on Outer Banks**: [Link](https://www.netflix.com/tudum/articles/outer-banks-jj-season-4-finale)
