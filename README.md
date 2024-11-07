@@ -1,3 +1,17 @@
+### تشيلسي ضد نوح (N/A, Thu, 7 Nov 2024 11:40:00 -0800)
+
+- **تشيلسي أول الإنجليز في تجربة أرمينية**: [Link](https://www.kooora.com/?n=1366344)
+- **تشيلسي يستضيف نوح في مباراة محسومة**: [Link](https://hihi2.com/2024/11/06/p2924111.html)
+- **تشلسي في مهمة سهلة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%81%D9%8A-%D9%85%D9%87%D9%85%D8%A9-%D8%B3%D9%87%D9%84%D8%A9-2024-11-07)
+
+
+### roma (N/A, Thu, 7 Nov 2024 11:40:00 -0800)
+
+- **Stop alla circolazione, c’è la sentenza: cambia tutto**: [Link](https://derapate.allaguida.it/articolo/stop-alla-circolazione-ce-la-sentenza-cambia-tutto/9247/)
+- **Roma, auto d'epoca: la nuova ordinanza cambia tutto**: [Link](https://www.virgilio.it/motori/notizie/roma-auto-storiche-via-libera-circolazione/252561/)
+- **Blocco traffico Roma 10 novembre 2024: orari e deroghe**: [Link](https://www.sicurauto.it/news/attualita-e-curiosita/blocco-traffico-roma-10-novembre-2024-orari-e-deroghe/)
+
+
 ### az – fenerbahçe (N/A, Thu, 7 Nov 2024 11:20:00 -0800)
 
 - **AZ Alkmaar hangi ülkenin takımı? Fenerbahçenin rakibi AZ Alkmaar hakkında 
