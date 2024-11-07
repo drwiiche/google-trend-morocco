@@ -1,3 +1,19 @@
+### anne seften (N/A, Wed, 6 Nov 2024 23:30:00 -0800)
+
+- **La journaliste Anne Seften « ne reviendra pas à l’antenne » sur LCI**: [Link](https://www.20minutes.fr/arts-stars/medias/4119996-20241106-lci-journaliste-anne-seften-reviendra-antenne-quitte-chaine-info)
+- **La présentatrice Anne Seften licenciée de LCI après avoir giflé son chef 
+d’édition**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/la-presentatrice-anne-seften-licenciee-de-lci-apres-avoir-gifle-son-chef-d-edition-20241105)
+- **Anne Seften licenciée de LCI après une altercation avec son chef d’édition**: [Link](https://programmetv.ouest-france.fr/chaines/programme-tv-lci-112/anne-seften-licenciee-de-lci-apres-une-altercation-avec-son-chef-dedition-898a2c8c-9c1e-11ef-ad61-4b47559018ee)
+
+
+### barça (N/A, Wed, 6 Nov 2024 13:00:00 -0800)
+
+- **Gavi avala el fichaje, el Barça ya se anima y cierra la operación secreta: 
+'6M€ y ...'**: [Link](https://es.e-noticies.cat/futbol/gavi-avala-fichaje-barca-ya-se-anima-y-cierra-operacion-secreta-6-millones)
+- **Flick: “A Cubarsí le han dado puntos, pero es joven, se recuperará”**: [Link](https://as.com/futbol/flick-a-cubarsi-le-han-dado-puntos-pero-es-joven-se-recuperara-n/)
+- **El Barça golea: da igual cuando lea esto**: [Link](https://www.marca.com/futbol/barcelona/2024/11/06/barca-golea-da-igual-lea-esto.html)
+
+
 ### kylian mbappé real madrid (N/A, Wed, 6 Nov 2024 21:50:00 -0800)
 
 - **Kylian Mbappe blames Carlo Ancelotti’s tactics for Real Madrid struggles**: [Link](https://therealchamps.com/kylian-mbappe-blames-carlo-ancelotti-tactics-real-madrid-struggles)
