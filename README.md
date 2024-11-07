@@ -1,3 +1,10 @@
+### outer banks (N/A, Thu, 7 Nov 2024 14:50:00 -0800)
+
+- **Rudy Pankow on Playing JJ, the Most Loyal Pogue on Outer Banks**: [Link](https://www.netflix.com/tudum/articles/outer-banks-jj-season-4-finale)
+- **What Time Does ‘Outer Banks’ Season 4 Part 2 Come Out On Netflix?**: [Link](https://www.forbes.com/sites/monicamercuri/2024/11/06/what-time-does-outer-banks-season-4-part-2-come-out-on-netflix/)
+- **'Outer Banks' boss breaks down that 'gratuitous' season 4 finale death**: [Link](https://ew.com/outer-banks-showrunner-season-4-finale-death-8740266)
+
+
 ### population maroc (N/A, Thu, 7 Nov 2024 14:20:00 -0800)
 
 - **RGPH 2024: Comment se répartit la population au Maroc**: [Link](https://ledesk.ma/datadesk/rgph-2024-comment-se-repartit-la-population-au-maroc/)
