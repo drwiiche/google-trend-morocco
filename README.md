@@ -1,3 +1,12 @@
+### discours roi mohammed vi (N/A, Thu, 7 Nov 2024 06:00:00 -0800)
+
+- **Discours royal Marche Verte: Le Roi annonce une réforme des instances en 
+charge des MRE**: [Link](https://medias24.com/2024/11/06/discours-royal-marche-verte-le-roi-annonce-une-reforme-des-instances-en-charge-des-mre/)
+- **L’Association Marocaine des Automobiles Anciennes célèbre la Marche Verte**: [Link](https://fr.hespress.com/394876-lassociation-marocaine-des-automobiles-anciennes-celebre-la-marche-verte.html)
+- **Musée Saint-Exupéry, Casa del Mar... Bensaid visite des sites culturels 
+dans les provinces de Laâyoune et Tarfaya**: [Link](https://mobile.telquel.ma/instant-t/2024/11/07/musee-saint-exupery-casa-del-mar-bensaid-visite-des-sites-culturels-dans-les-provinces-de-laayoune-et-tarfaya_1903064/)
+
+
 ### ayyoub bouaddi (N/A, Thu, 7 Nov 2024 02:20:00 -0800)
 
 - **CM: Milan to challenge Juventus for Lille star ‘launched by Fonseca’**: [Link](https://sempremilan.com/milan-challenge-juventus-lille-star-fonseca)
