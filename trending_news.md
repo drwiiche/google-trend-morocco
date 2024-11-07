@@ -1,3 +1,19 @@
+### az – fenerbahçe (N/A, Thu, 7 Nov 2024 11:20:00 -0800)
+
+- **AZ Alkmaar hangi ülkenin takımı? Fenerbahçenin rakibi AZ Alkmaar hakkında 
+bilinenler**: [Link](https://www.ntv.com.tr/sporskor/az-alkmaar-hangi-ulkenin-takimi-fenerbahcenin-rakibi-az-alkmaar-hakkinda-bilinenler,xzMydvNDz06JA08JB15Jyg)
+- **Fenerbahçe, AZ Alkmaar karşsıında galibiyet peşinde! Maçtaki en yüksek 
+oranlar Misli'de...**: [Link](https://www.hurriyet.com.tr/sporarena/fenerbahce-az-alkmaar-karssiinda-galibiyet-pesinde-mactaki-en-yuksek-oranlar-mislide-42584021)
+- **TRT 1 canlı yayın: AZ Alkmaar-Fenerbahçe maçı şifresiz izle**: [Link](https://www.yaylahaber.com.tr/trt-1-canli-yayin-az-alkmaar-fenerbahce-maci-sifresiz-izle)
+
+
+### مان يونايتد ضد باوك (N/A, Thu, 7 Nov 2024 11:20:00 -0800)
+
+- **مزراوي أساسيا أمام باوك.. وراشفورد بديلا**: [Link](https://www.kooora.com/?n=1366723)
+- **تشكيلة مانشستر يونايتد الرسمية لمواجهة باوك في الدوري الأوروبي**: [Link](https://hihi2.com/2024/11/07/p2925937.html)
+- **موعد مباراة مانشستر يونايتد وباوك في الدوري الأوروبي**: [Link](https://alhorianews.com/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%A8%D8%A7%D9%88%D9%83-%D9%81%D9%8A-%D8%A7/)
+
+
 ### manchester united – paok (N/A, Thu, 7 Nov 2024 11:10:00 -0800)
 
 - **Erik ten Hag's prediction set to come true as Harry Amass tipped to make 
