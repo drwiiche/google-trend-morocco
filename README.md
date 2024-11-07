@@ -1,3 +1,11 @@
+### barca match (N/A, Wed, 6 Nov 2024 12:50:00 -0800)
+
+- **Gavi shares Pau Cubarsi update after defender has 10 stitches after 
+Barcelona win**: [Link](https://www.barcablaugranes.com/2024/11/7/24289938/gavi-shares-pau-cubarsi-update-after-defender-has-10-stitches-after-barcelona-win)
+- **Cubarsí's Condition After Clash with Red Star Revealed**: [Link](https://www.footboom1.com/en/news/football/2034229-cubarsi-s-condition-after-clash-with-red-star-revealed)
+- **Injury strikes Koparsi**: [Link](https://www.ysscores.com/en/news/6638139/Injury-strikes-Koparsi)
+
+
 ### خطاب الملك محمد السادس المسيرة الخضراء (N/A, Wed, 6 Nov 2024 21:30:00 -0800)
 
 - **محمد السادس: هناك من يستغل قضية الصحراء للحصول على منفذ على الأطلسي**: [Link](https://www.alhurra.com/morocco/2024/11/06/%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B3%D8%AA%D8%BA%D9%84-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D9%84%D9%84%D8%AD%D8%B5%D9%88%D9%84-%D9%85%D9%86%D9%81%D8%B0-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3%D9%8A)
