@@ -1,3 +1,12 @@
+### nice – twente (N/A, Thu, 7 Nov 2024 10:40:00 -0800)
+
+- **Live Europees voetbal | Twente komt vroeg op voorsprong in Nice door goal 
+Rots**: [Link](https://www.nu.nl/voetbal/6334592/live-europees-voetbal-twente-komt-vroeg-op-voorsprong-in-nice-door-goal-rots.html)
+- **Janssen verbaasd door keuzes Oosting: 'Lijkt alsof ze bezig zijn met het 
+weekend'**: [Link](https://www.voetbalprimeur.nl/nieuws/1237044/janssen-verbaasd-door-keuzes-oosting.html)
+- **Lammers prijst opponent OGC Nice: "Beter kan het bijna niet"**: [Link](https://www.twentefans.nl/lammers-prijst-opponent-ogc-nice-beter-kan-het-bijna-niet/)
+
+
 ### tottenham (N/A, Thu, 7 Nov 2024 10:10:00 -0800)
 
 - **Team News: Mikey Moore and Richarlison miss Tottenham vs Galatasaray clash**: [Link](https://www.spurs-web.com/spurs-news/team-news-mikey-moore-and-richarlison-miss-tottenham-vs-galatasaray-clash/)
