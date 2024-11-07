@@ -1,3 +1,25 @@
+### ligue europa conférence (N/A, Thu, 7 Nov 2024 13:20:00 -0800)
+
+
+
+
+### neymar (N/A, Thu, 7 Nov 2024 13:20:00 -0800)
+
+- **El video del increíble robo que sufrió Neymar cuando saludó a un fanático 
+en pleno estadio**: [Link](https://www.infobae.com/deportes/2024/11/07/el-video-del-increible-robo-que-sufrio-neymar-cuando-saludo-a-un-fanatico-en-pleno-estadio/)
+- **Video | Insólito: un hincha le da la mano a Neymar, le roba un anillo y lo 
+vende por una astronómica cifra**: [Link](https://www.eltiempo.com/deportes/futbol-internacional/video-insolito-un-hincha-le-da-la-mano-a-neymar-le-roba-un-anillo-y-lo-vende-por-una-astronomica-cifra-3397691)
+- **Neymar fue víctima de insólito robo en Arabia: este fue el millonario 
+accesorio que le quitaron**: [Link](https://www.noticiasrcn.com/deportes/neymar-robo-de-anillo-el-valor-por-el-que-pusieron-en-venta-este-accesorio-770290)
+
+
+### olaf scholz (N/A, Thu, 7 Nov 2024 13:20:00 -0800)
+
+- **Ampel-Regierung zerbricht: Scholz entlässt Lindner.**: [Link](https://www.bild.de/politik/inland/regierungskrise-in-deutschland-showdown-um-die-ampel-macht-67288f86ebdb8724738e8224)
+- **Liveblog zum Ampel-Aus: ++ CDU-Chef Merz bei Bundespräsident Steinmeier ++**: [Link](https://www.tagesschau.de/newsticker/liveblog-ampel-krise-102.html)
+- **Das sagt Olaf Scholz zum Ampel-Aus**: [Link](https://www.spiegel.de/politik/deutschland/livestream-das-sagt-olaf-scholz-zum-ampel-aus-a-9c947327-878a-4d2d-96dc-92e4593f6958)
+
+
 ### chelsea (N/A, Thu, 7 Nov 2024 13:00:00 -0800)
 
 - **Europa League & Conference League: Man Utd & Chelsea in action after Spurs 
