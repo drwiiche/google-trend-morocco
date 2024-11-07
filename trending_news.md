@@ -1,3 +1,11 @@
+### adam masina (N/A, Thu, 7 Nov 2024 05:00:00 -0800)
+
+- **عودة دياز وماسينا وعطية الله وغياب زياش .. الركراكي يستدعي "أسود الأطلس"**: [Link](https://www.hespress.com/%D8%B9%D9%88%D8%AF%D8%A9-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%88%D9%85%D8%A7%D8%B3%D9%8A%D9%86%D8%A7-%D9%88%D8%B9%D8%B7%D9%8A%D8%A9-%D8%A7%D9%84%D9%84%D9%87-%D9%88%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B2%D9%8A%D8%A7-1460796.html)
+- **فيديو: مباشر.. تحليل اللائحة النهائية للمنتخب المغربي لمواجهة الغابون و 
+ليسوتو / مفاجآت كيف العادة**: [Link](https://www.almountakhab.com/node/16206285)
+- **الركراكي يكشف قائمة الأسود لمواجهة الغابون وليسوتو في تصفيات "كان 2025"**: [Link](https://www.akhbarona.com/sport/lionatlas/395255.html)
+
+
 ### discours roi mohammed vi (N/A, Thu, 7 Nov 2024 06:00:00 -0800)
 
 - **Discours royal Marche Verte: Le Roi annonce une réforme des instances en 
