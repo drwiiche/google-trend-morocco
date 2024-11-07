@@ -1,3 +1,10 @@
+### population maroc (N/A, Thu, 7 Nov 2024 14:20:00 -0800)
+
+- **RGPH 2024: Comment se répartit la population au Maroc**: [Link](https://ledesk.ma/datadesk/rgph-2024-comment-se-repartit-la-population-au-maroc/)
+- **Officiel. Le Maroc compte 36,82 millions d’habitants**: [Link](https://fr.le360.ma/societe/officiel-le-maroc-compte-3682-millions-dhabitants_XIAPL7AENVA7PGW5FYBSPAQANU/)
+- **Recensement : Une baisse continue de la taille des ménages**: [Link](https://www.leconomiste.com/flash-infos/recensement-une-baisse-continue-de-la-taille-des-menages)
+
+
 ### eleona jerusalem (N/A, Thu, 7 Nov 2024 13:40:00 -0800)
 
 - **French minister scraps holy site visit after Israeli police arrest gendarmes**: [Link](https://www.theguardian.com/world/2024/nov/07/french-minister-scraps-holy-site-visit-after-israeli-police-arrest-gendarmes)
