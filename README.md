@@ -1,3 +1,11 @@
+### frmf (N/A, Thu, 7 Nov 2024 02:50:00 -0800)
+
+- **Nouvelle décision concernant le match WAC-IRT**: [Link](https://www.lesiteinfo.com/sport/631724-nouvelle-decision-concernant-le-match-wac-irt.html)
+- **Un accord entre le Wydad Athletic Club et l'Ittihad Tanger concernant les 
+billets pour leur match du**: [Link](https://fr.hibapress.com/news-145455.html)
+- **Botola Pro: Changement de date pour le match Wydad-Ittihad de Tanger**: [Link](https://snrtnews.com/fr/article/botola-pro-changement-de-date-pour-le-match-wydad-ittihad-de-tanger-106074)
+
+
 ### دوري ابطال اوروبا (N/A, Wed, 6 Nov 2024 14:00:00 -0800)
 
 - **بالأرقام.. صلاح يحتل عرشا عربيا في دوري الأبطال**: [Link](https://m.kooora.com/?n=1366470&o=n)
