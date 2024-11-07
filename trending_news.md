@@ -1,3 +1,29 @@
+### zed – al ahly (N/A, Thu, 7 Nov 2024 09:40:00 -0800)
+
+- **Live score: ZED FC v Ahly (Egyptian Premier League) - Egyptian Football - 
+Sports**: [Link](https://english.ahram.org.eg/NewsContent/6/51/534889/Sports/Egyptian-Football/Live-score-ZED-FC-v-Ahly-Egyptian-Premier-League.aspx)
+- **History of Al-Ahly’s confrontations against Zed**: [Link](https://www.ysscores.com/en/news/6667738/History-of-Al-Ahly%E2%80%99s-confrontations-against-Zed)
+- **ZED vs Al Ahly prediction, H2H & Probable Line-ups - November 7, 2024**: [Link](https://dailysports.net/predictions/zed-vs-al-ahly-prediction-h2h-probable-lineups-november-7-2024/)
+
+
+### europa league (N/A, Thu, 7 Nov 2024 09:40:00 -0800)
+
+- **Manchester United clear path for 17-year-old to make debut vs PAOK in 
+Europa League**: [Link](https://www.unitedinfocus.com/news/manchester-united-confirm-17-year-old-could-make-debut-vs-paok-in-europa-league/)
+- **Man Utd promote 17-year-old wonderkid to squad at last-minute ahead of 
+Europa League clash against PAOK...**: [Link](https://www.thesun.co.uk/sport/31573976/man-utd-europa-league-jayce-fitzgerald/)
+- **Academy starlet Jayce Fitzgerald included in Man United’s squad vs. 
+Leicester City as Christian Eriksen pulls out**: [Link](https://thepeoplesperson.com/2024/10/30/academy-starlet-jayce-fitzgerald-included-in-man-uniteds-squad-vs-leicester-city-as-christian-eriksen-pulls-out-287073/)
+
+
+### سعر الذهب اليوم في المغرب (N/A, Thu, 7 Nov 2024 09:40:00 -0800)
+
+- **أسعار الذهب في المغرب تسجل انخفاضا.. وتقديرات باستمرار التراجع بعد فوز 
+ترامب في الانتخابات**: [Link](https://www.akhbarona.com/economy/395236.html)
+- **مزاد على سبائك الذهب يشعل المنافسة بين "تجار الهمزة" في المغرب**: [Link](https://www.hespress.com/%D9%85%D8%B2%D8%A7%D8%AF-%D8%B9%D9%84%D9%89-%D8%B3%D8%A8%D8%A7%D8%A6%D9%83-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D8%A8%D9%8A%D9%86-1459093.html)
+- **ثمن الذهب في المغرب بيع وشراء بالدرهم المغربي بعد انخفاضه**: [Link](https://alhorianews.com/%D8%AB%D9%85%D9%86-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D9%8A%D8%B9-%D9%88%D8%B4%D8%B1%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D8%A7/)
+
+
 ### galatasaray (N/A, Thu, 7 Nov 2024 09:20:00 -0800)
 
 - **Okan Buruk: Kendi oyunumuzu kabul ettirmek istiyoruz**: [Link](https://www.ntv.com.tr/sporskor/okan-buruk-kendi-oyunumuzu-kabul-ettirmek-istiyoruz,HvPV_p7270eqojZpKVX93A)
