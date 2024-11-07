@@ -1,3 +1,20 @@
+### tottenham (N/A, Thu, 7 Nov 2024 10:10:00 -0800)
+
+- **Team News: Mikey Moore and Richarlison miss Tottenham vs Galatasaray clash**: [Link](https://www.spurs-web.com/spurs-news/team-news-mikey-moore-and-richarlison-miss-tottenham-vs-galatasaray-clash/)
+- **'Out for six months' – Latest injury could be a 'serious blow' for Ange 
+Postecoglou’s side, says former Spurs man**: [Link](https://www.yardbarker.com/soccer/articles/out_for_six_months_latest_injury_could_be_a_serious_blow_for_ange_postecoglous_side_says_former_spurs_man/s1_15977_41186793)
+- **Neymar breaks silence after emotional Tottenham update with nine-word 
+message**: [Link](https://www.football.london/tottenham-hotspur-fc/news/neymar-breaks-silence-after-emotional-30310184)
+
+
+### ligue europa (N/A, Thu, 7 Nov 2024 10:10:00 -0800)
+
+- **Pronostic Nice - Twente, Ligue Europa**: [Link](https://www.sportytrader.com/pronostics/nice-twente-225982/)
+- **OL, Nice, Manchester United, Chelsea...Comment suivre tous les matchs de C3 
+et de C4 ?**: [Link](https://www.onzemondial.com/ligue-europa/ol-nice-manchester-united-chelsea-comment-suivre-tous-les-matchs-de-c3-et-de-c4-924486)
+- **Le 11 des Aiglons face à Twente**: [Link](https://www.ogcnice.com/fr/article/127840/le-11-des-aiglons-face-a-twente.html)
+
+
 ### union saint-gilloise – roma (N/A, Thu, 7 Nov 2024 10:00:00 -0800)
 
 - **Preview: Union SG vs. Roma - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/union-sg/europa-league/preview/preview-union-sg-vs-roma-prediction-team-news-lineups_557361.html)
