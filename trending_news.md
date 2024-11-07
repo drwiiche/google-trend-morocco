@@ -1,3 +1,18 @@
+### محاكم (N/A, Thu, 7 Nov 2024 00:30:00 -0800)
+
+- **المحاكم تتعزز بالأطباء والممرضين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%83%D9%85-%D8%AA%D8%AA%D8%B9%D8%B2%D8%B2-%D8%A8%D8%A7%D9%84%D8%A3%D8%B7%D8%A8%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%85%D9%85%D8%B1%D8%B6%D9%8A%D9%86-1459733.html)
+- **المحاكم تتعزز بالأطباء والممرضين**: [Link](https://www.msn.com/ar-eg/news/other/%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%83%D9%85-%D8%AA%D8%AA%D8%B9%D8%B2%D8%B2-%D8%A8%D8%A7%D9%84%D8%A3%D8%B7%D8%A8%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%85%D9%85%D8%B1%D8%B6%D9%8A%D9%86/ar-AA1tBosM)
+- **المحاكم تتعزز بالأطباء والممرضين**: [Link](https://mr.mansheet.net/uncategorized/11827/%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%83%D9%85-%D8%AA%D8%AA%D8%B9%D8%B2%D8%B2-%D8%A8%D8%A7%D9%84%D8%A3%D8%B7%D8%A8%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%85%D9%85%D8%B1%D8%B6%D9%8A%D9%86)
+
+
+### نتائج مباريات اليوم (N/A, Wed, 6 Nov 2024 14:40:00 -0800)
+
+- **جدول مباريات اليوم الخميس 7 نوفمبر 2024 في دوري روشن السعودي والقنوات 
+الناقلة والمعلقين**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-7-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2024-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltbb35b84058cd36a0)
+- **مواعيد مباريات اليوم.. مرموش وعبد المنعم فى مهمة أوروبية مع فرانكفورت ونيس**: [Link](https://www.youm7.com/story/2024/11/7/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%88%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%85%D9%86%D8%B9%D9%85-%D9%81%D9%89-%D9%85%D9%87%D9%85%D8%A9-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%85%D8%B9/6768245)
+- **أبرزها الأهلي وزد في الدوري.. مواعيد مباريات اليوم الخميس في جميع المسابقات**: [Link](https://mr.mansheet.net/uncategorized/14308/%D8%A3%D8%A8%D8%B1%D8%B2%D9%87%D8%A7-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%B2%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D9%81%D9%8A-%D8%AC%D9%85%D9%8A%D8%B9-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%A8%D9%82%D8%A7%D8%AA)
+
+
 ### facebook (N/A, Thu, 7 Nov 2024 00:00:00 -0800)
 
 - **US Supreme Court mulls Facebook bid to escape securities fraud suit**: [Link](https://www.reuters.com/legal/us-supreme-court-hear-facebook-bid-escape-securities-fraud-suit-2024-11-06/)
