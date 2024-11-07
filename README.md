@@ -1,3 +1,9 @@
+### ayyoub bouaddi (N/A, Thu, 7 Nov 2024 02:20:00 -0800)
+
+- **CM: Milan to challenge Juventus for Lille star ‘launched by Fonseca’**: [Link](https://sempremilan.com/milan-challenge-juventus-lille-star-fonseca)
+- **Milan and Juventus After Fast-Rising Lille Starlet**: [Link](https://cultofcalcio.com/milan-and-juventus-after-rising-lille-starlet-bouaddi/)
+
+
 ### incendie casablanca (N/A, Thu, 7 Nov 2024 04:40:00 -0800)
 
 - **Casablanca: un incendie déclaré à la Tour Atlas de l’avenue des FAR**: [Link](https://ledesk.ma/encontinu/casablanca-un-incendie-declare-a-la-tour-atlas-de-lavenue-des-far/)
