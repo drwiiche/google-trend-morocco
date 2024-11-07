@@ -1,3 +1,10 @@
+### دوري الأبطال (N/A, Wed, 6 Nov 2024 12:30:00 -0800)
+
+- **بسكين بارد.. أتلتيكو مدريد يطعن باريس في حديقة الأمراء**: [Link](https://www.kooora.com/?n=1366531)
+- **قمة مرتقبة بين باريس سان جيرمان وضيفه أتليتيكو مدريد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D8%B6%D9%8A%D9%81%D9%87-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2024-11-06)
+- **غادرة هي الكرة .. حكيمي سقط بالضربة القاضية**: [Link](https://www.almountakhab.com/node/13206274)
+
+
 ### ldc (N/A, Wed, 6 Nov 2024 14:00:00 -0800)
 
 - **Ligue des champions : Aston Villa s'incline en concédant un pénalty-gag à 
