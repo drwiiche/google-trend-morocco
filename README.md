@@ -1,3 +1,11 @@
+### facebook (N/A, Thu, 7 Nov 2024 00:00:00 -0800)
+
+- **US Supreme Court mulls Facebook bid to escape securities fraud suit**: [Link](https://www.reuters.com/legal/us-supreme-court-hear-facebook-bid-escape-securities-fraud-suit-2024-11-06/)
+- **Facebook asks US supreme court to dismiss fraud suit over Cambridge 
+Analytica scandal**: [Link](https://www.theguardian.com/technology/2024/nov/06/facebook-cambridge-analytica-lawsuit)
+- **The morning read for Wednesday, Nov. 6**: [Link](https://www.scotusblog.com/2024/11/the-morning-read-for-wednesday-nov-6/)
+
+
 ### anne seften (N/A, Wed, 6 Nov 2024 23:30:00 -0800)
 
 - **La journaliste Anne Seften « ne reviendra pas à l’antenne » sur LCI**: [Link](https://www.20minutes.fr/arts-stars/medias/4119996-20241106-lci-journaliste-anne-seften-reviendra-antenne-quitte-chaine-info)
