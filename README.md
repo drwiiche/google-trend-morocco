@@ -1,3 +1,20 @@
+### incendie casablanca (N/A, Thu, 7 Nov 2024 04:40:00 -0800)
+
+- **Casablanca: un incendie déclaré à la Tour Atlas de l’avenue des FAR**: [Link](https://ledesk.ma/encontinu/casablanca-un-incendie-declare-a-la-tour-atlas-de-lavenue-des-far/)
+- **Diapo. Incendie à la Tour Atlas de Casablanca**: [Link](https://fr.le360.ma/societe/diapo-incendie-a-la-tour-atlas-de-casablanca_7UZOR6WUPRAR3PZWTMPQNMDIP4/)
+- **Incendie dans une compagnie d’assurance à Casablanca: ce que l’on sait**: [Link](https://www.lesiteinfo.com/maroc/631776-incendie-dans-une-compagnie-dassurance-a-casablanca-ce-que-lon-sait.html)
+
+
+### القوات المساعدة (N/A, Thu, 7 Nov 2024 04:20:00 -0800)
+
+- **سلم رواتب الشرطة المغربية الجديد 2024 بعد زيادة الأجور وموعد صرفها.. الأمن 
+الوطني يجيب**: [Link](https://news.elsob7.com/1222698/%D8%B3%D9%84%D9%85-%D8%B1%D9%88%D8%A7%D8%AA%D8%A8-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-2024-%D8%A8%D8%B9%D8%AF-2/)
+- **سيكون في هذا الموعد متى موعد زيادة الأجور والمرتبات بالمغرب 2024 للقطاع 
+الخاص والعام - المساء الاخباري**: [Link](https://newsy.almesasports.com/288981/%D9%85%D9%88%D8%B9%D8%AF-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%B1-%D9%88%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D8%A8%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+- **موعد صرف الزيادة في اجور موظفي الجيش والقوات المساعدة 2024 المغرب بعد 
+مصادقة الملك محمد السادس عليها –**: [Link](https://real.alsaudinews.com/209487/%D9%85%D9%88%D8%B9%D8%AF-%D8%B5%D8%B1%D9%81-%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D8%AC%D9%88%D8%B1-%D9%85%D9%88%D8%B8%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%88%D8%A7/)
+
+
 ### recensement maroc 2024 (N/A, Thu, 7 Nov 2024 03:50:00 -0800)
 
 - **Recensement 2024 : voici les premiers résultats**: [Link](https://lematin.ma/nation/recensement-2024-voici-les-premiers-resultats/250371)
