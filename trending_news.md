@@ -1,3 +1,11 @@
+### galatasaray (N/A, Thu, 7 Nov 2024 09:20:00 -0800)
+
+- **Okan Buruk: Kendi oyunumuzu kabul ettirmek istiyoruz**: [Link](https://www.ntv.com.tr/sporskor/okan-buruk-kendi-oyunumuzu-kabul-ettirmek-istiyoruz,HvPV_p7270eqojZpKVX93A)
+- **Fernando Muslera, geri döndü!**: [Link](https://ajansspor.com/haber/fernando-muslera-geri-dondu-680489)
+- **Galatasaray - Tottenham maçı canlı yayın bilgisi | Galatasaray maçı hangi 
+kanalda? (GS- Tottenham maçı canlı izle)**: [Link](https://www.ntvspor.net/futbol/galatasaray-tottenham-maci-canli-yayin-bilgisi-galatasaray-maci-hangi-kanalda-gs-tottenham-maci-canli-izle-672ce1d27c338f03f75e8589)
+
+
 ### yoav gallant (N/A, Thu, 7 Nov 2024 09:10:00 -0800)
 
 - **Israel's Netanyahu shows who calls the shots with Gallant sacking**: [Link](https://www.bbc.com/news/articles/clyvl72zdzqo)
