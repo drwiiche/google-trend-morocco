@@ -1,3 +1,21 @@
+### ludogorets – ath. bilbao (N/A, Thu, 7 Nov 2024 09:00:00 -0800)
+
+- **Preview: Ludogorets Razgrad vs. Athletic Bilbao - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/ludogorets-razgrad/preview/preview-ludogorets-vs-athletic-bilbao-prediction-team-news-lineups_557400.html)
+- **Jovicevic's Words Ahead of Clash with Athletic**: [Link](https://www.footboom1.com/en/news/football/2033487-jovicevic-s-words-ahead-of-clash-with-athletic)
+- **Europa League 2024/25 | Preview of Ludogorets-Athletic Club: The Lions Face 
+Injury Woes in Their Mission to Bulgaria (18:45)**: [Link](https://www.footboom1.com/en/news/football/2035968-europa-league-2024-25-preview-of-ludogorets-athletic-club-the-lions-face-injury-woes-in-their-mission-to-bulgaria-18-45)
+
+
+### galatasaray – tottenham (N/A, Thu, 7 Nov 2024 08:50:00 -0800)
+
+- **What delighted mischievous Ange Postecoglou and the Tottenham transfer 
+target he denied**: [Link](https://www.football.london/tottenham-hotspur-fc/news/what-delighted-mischievous-ange-postecoglou-30317054)
+- **Preview: Spurs travel to Turkish league leaders Galatasaray in the Europa 
+League**: [Link](https://www.fotmob.com/topnews/16135-preview-spurs-travel-turkish-league-leaders-galatasaray-europa-league?utm_source=fotmob)
+- **Welcome to Hell! Galatasaray’s best wins against English clubs**: [Link](https://thefootballfaithful.com/welcome-to-hell-galatasarays-best-wins-against-english-clubs/)
+
+
 ### المندوبية السامية للتخطيط (N/A, Thu, 7 Nov 2024 05:30:00 -0800)
 
 - **رسميا .. الإحصاء العام يكشف وصول عدد سكان المغرب إلى 36,8 ملايين نسمة**: [Link](https://www.hespress.com/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%8A%D9%83%D8%B4%D9%81-%D9%88%D8%B5%D9%88%D9%84-%D8%B9%D8%AF%D8%AF-%D8%B3%D9%83%D8%A7-1460845.html)
