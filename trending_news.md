@@ -1,3 +1,10 @@
+### yoav gallant (N/A, Thu, 7 Nov 2024 09:10:00 -0800)
+
+- **Israel's Netanyahu shows who calls the shots with Gallant sacking**: [Link](https://www.bbc.com/news/articles/clyvl72zdzqo)
+- **As a Lame Duck, Biden Could Become Tougher With Israel**: [Link](https://foreignpolicy.com/2024/11/06/as-a-lame-duck-biden-could-become-tougher-with-israel/)
+- **Who Is Gideon Saar, Israel’s New Foreign Minister?**: [Link](https://www.nytimes.com/2024/11/06/world/middleeast/gideon-saar-israel-foreign-minister.html)
+
+
 ### ludogorets – ath. bilbao (N/A, Thu, 7 Nov 2024 09:00:00 -0800)
 
 - **Preview: Ludogorets Razgrad vs. Athletic Bilbao - prediction, team news, 
