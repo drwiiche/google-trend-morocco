@@ -1,3 +1,11 @@
+### eleona jerusalem (N/A, Thu, 7 Nov 2024 13:40:00 -0800)
+
+- **French minister scraps holy site visit after Israeli police arrest gendarmes**: [Link](https://www.theguardian.com/world/2024/nov/07/french-minister-scraps-holy-site-visit-after-israeli-police-arrest-gendarmes)
+- **French FM: Israeli police briefly arrest two French officials in 
+'unacceptable' move**: [Link](https://www.jpost.com/breaking-news/article-828070)
+- **Israeli police detain two French Consulate gendarmes in Jerusalem**: [Link](https://www.france24.com/en/middle-east/20241107-armed-israeli-police-enter-french-owned-jerusalem-church-and-arrest-two-gendarmes)
+
+
 ### real betis vs celje (N/A, Thu, 7 Nov 2024 13:00:00 -0800)
 
 - **Riera's Plan to Bring Down Betis: "I've Asked Them to Put On Headphones and 
