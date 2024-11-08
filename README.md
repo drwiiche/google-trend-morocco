@@ -1,3 +1,11 @@
+### rayo – las palmas (N/A, Fri, 8 Nov 2024 11:20:00 -0800)
+
+- **Lista para viajar a Vallecas con Cillessen, pero sin Sinkgraven ni los 
+lesionados**: [Link](https://www.futbolfantasy.com/laliga/noticias/121707-lista-para-viajar-a-vallecas-con-cillessen-pero-sin-sinkgraven-ni-los-lesionados)
+- **Hernández Maeso será el árbitro en el Rayo Vallecano vs Las Palmas**: [Link](https://unionrayo.com/hernandez-maeso-arbitro-rayo-las-palmas/)
+- **Noticias Deportes 18:00 (08/11/24)**: [Link](https://www.ondacero.es/deportes/ultimas-noticias/noticias-deportes-1800-081124_20241108672e465e65664200019c68f6.html)
+
+
 ### marseille – auxerre (N/A, Fri, 8 Nov 2024 11:00:00 -0800)
 
 - **« Comme quand j'étais joueur » : Djibril Cissé s'épanouit à nouveau sur les 
