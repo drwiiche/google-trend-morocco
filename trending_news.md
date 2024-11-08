@@ -1,3 +1,12 @@
+### horaire priere rabat (N/A, Thu, 7 Nov 2024 21:40:00 -0800)
+
+- **Akhannouch annonce un programme « structuré » pour la gestion des affaires 
+des MRE**: [Link](https://lematin.ma/nation/akhannouch-annonce-un-programme-pour-la-gestion-des-affaires-des-mre/250538)
+- **Discours Marche verte : le CCME disposé à mettre en œuvre les orientations 
+royales**: [Link](https://fr.hespress.com/395027-discours-marche-verte-le-ccme-dispose-a-mettre-en-oeuvre-les-orientations-royales.html)
+- **Les Marocains du monde, un potentiel d'investissement sous-exploité**: [Link](https://medias24.com/2024/11/07/les-marocains-du-monde-un-potentiel-dinvestissement-sous-exploite/)
+
+
 ### al-hilal – al-ettifaq (N/A, Fri, 8 Nov 2024 05:50:00 -0800)
 
 - **Al Hilal vs Al Ettifaq LIVE Score Updates, Stream Info and How to Watch 
