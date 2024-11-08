@@ -1,3 +1,22 @@
+### سانت لوسيا (N/A, Fri, 8 Nov 2024 12:00:00 -0800)
+
+- **سانت لوسيا تدعم الوحدة الترابية للمغرب**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86%D8%AA-%D9%84%D9%88%D8%B3%D9%8A%D8%A7-%D8%AA%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1-1461516.html)
+- **خلق المخطط المغربي للحكم الذاتي للصحراء “دينامية حقيقية”**: [Link](https://ar.hibapress.com/details-571303.html)
+- **المغرب وسانت لوسيا عازمان على تعميق تعاونهما الثنائي**: [Link](https://ar.le360.ma/economie/JXF2DDXCERHCXGJWTBQALAWSX4/)
+
+
+### union berlin – fribourg (N/A, Fri, 8 Nov 2024 11:50:00 -0800)
+
+
+
+
+### r1c5 (N/A, Fri, 8 Nov 2024 11:30:00 -0800)
+
+- **Faites le papier du Quinté+ de ce samedi 9 novembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-samedi-9-novembre)
+- **Quinté du vendredi 8 novembre 2024 en nocturne à Vincennes : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-vendredi-8-novembre-2024-en-nocturne-a-vincennes-les-pronostics-7900437643)
+- **Les pronostics hippiques de Sébastien Mortagne : Vendredi 8 Novembre**: [Link](https://www.rdlradio.fr/page-contenu-article-950)
+
+
 ### djokovic (N/A, Fri, 8 Nov 2024 11:40:00 -0800)
 
 - **Novak Djokovic hints whether he will play in the Davis Cup as he confirms 
