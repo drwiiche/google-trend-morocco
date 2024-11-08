@@ -1,3 +1,21 @@
+### al-ahli saudi – al-raed (N/A, Fri, 8 Nov 2024 07:00:00 -0800)
+
+- **Al Raed's North African band of brothers out to get one over Mahrez**: [Link](https://onefootball.com/en/news/al-raeds-north-african-band-of-brothers-out-to-get-one-over-mahrez-40278033)
+- **Al-Ahli Vs Al Raed Live Streaming, Saudi Pro League 2024-25: When, Where To 
+Watch On TV And Online**: [Link](https://www.outlookindia.com/sports/football/al-ahli-saudi-vs-al-raed-live-streaming-saudi-pro-league-2024-25-when-where-to-watch-on-tv-and-online)
+- **Al-Ahly Saudi coach warns of the strength of Al-Raed**: [Link](https://www.ysscores.com/en/news/6647728/Al-Ahly-Saudi-coach-warns-of-the-strength-of-Al-Raed)
+
+
+### inoxtag (N/A, Fri, 8 Nov 2024 05:50:00 -0800)
+
+- **INFO EUROPE 1 - Le domicile du youtubeur Inoxtag cambriolé mercredi**: [Link](https://www.europe1.fr/faits-divers/info-europe-1-le-domicile-du-youtubeur-inoxtag-cambriole-ce-mercredi-4277428)
+- **«Les amis, tout va bien pour moi» : après avoir subi deux cambriolages, 
+Inoxtag rassure ses fans**: [Link](https://www.leparisien.fr/faits-divers/les-amis-tout-va-bien-pour-moi-apres-avoir-subi-deux-cambriolages-inoxtag-rassure-ses-fans-07-11-2024-BGVDKL4NAZEGDHUCRCKZGKGAEM.php)
+- **Après avoir subi deux cambriolages en 6 mois, le Youtubeur Inoxtag rassure 
+ses fans: "Les amis, tout va bien pour moi. Je vais prendre les précautions 
+nécessaires pour que cela ne se reproduise plus"**: [Link](https://www.jeanmarcmorandini.com/article-589337-apres-avoir-subi-deux-cambriolages-en-6-mois-le-youtubeur-inoxtag-rassure-ses-fans-les-amis-tout-va-bien-pour-moi-je-vais-prendre-les-precautions-necessaires-pour-que-cela-ne-se-reproduise-plus.html)
+
+
 ### horaire priere rabat (N/A, Thu, 7 Nov 2024 21:40:00 -0800)
 
 - **Akhannouch annonce un programme « structuré » pour la gestion des affaires 
