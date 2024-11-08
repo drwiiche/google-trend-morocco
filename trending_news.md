@@ -1,3 +1,10 @@
+### marseille vs auxerre (N/A, Fri, 8 Nov 2024 13:30:00 -0800)
+
+- **Preview: Marseille vs. Auxerre - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/marseille/preview/preview-marseille-vs-auxerre-prediction-team-news-lineups_557434.html)
+- **Marseille rally to help victims of Spanish floods during Auxerre fixture**: [Link](https://sports.yahoo.com/marseille-rally-help-victims-spanish-180300619.html)
+- **Marseille predicted XI v Auxerre: Neal Maupay and Jonathan Rowe to start**: [Link](https://www.getfootballnewsfrance.com/2024/marseille-predicted-xi-v-auxerre-neal-maupay-and-jonathan-rowe-to-start/)
+
+
 ### om (N/A, Fri, 8 Nov 2024 13:10:00 -0800)
 
 - **Wild Rumors: New vintage OM-1II edition to be announced in January?**: [Link](https://www.43rumors.com/wild-rumors-new-vintage-om-1ii-edition-to-be-announced-in-january/)
