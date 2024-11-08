@@ -1,3 +1,11 @@
+### algérie france (N/A, Fri, 8 Nov 2024 14:30:00 -0800)
+
+- **Sahara: Alger capitule devant Madrid et tente de faire pression sur Paris**: [Link](https://fr.hespress.com/395013-sahara-alger-capitule-devant-madrid-et-tente-de-faire-pression-sur-paris.html)
+- **Confusion en Algérie sur l’imposition de sanctions commerciales à la France**: [Link](https://www.lemonde.fr/afrique/article/2024/11/08/confusion-en-algerie-sur-l-imposition-de-sanctions-commerciales-a-la-france_6383041_3212.html)
+- **Algérie : menace sur les relations commerciales avec la France, panique 
+dans les milieux d'affaires**: [Link](https://www.lefigaro.fr/international/algerie-menace-sur-les-relations-commerciales-avec-la-france-panique-dans-les-milieux-d-affaires-20241106)
+
+
 ### marseille vs auxerre (N/A, Fri, 8 Nov 2024 13:30:00 -0800)
 
 - **Preview: Marseille vs. Auxerre - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/marseille/preview/preview-marseille-vs-auxerre-prediction-team-news-lineups_557434.html)
