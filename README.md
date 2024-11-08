@@ -1,3 +1,21 @@
+### al-riyadh vs al-nassr (N/A, Fri, 8 Nov 2024 09:10:00 -0800)
+
+- **Preview: Al Riyadh vs. Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-riyadh/preview/preview-al-riyadh-vs-al-nassr-prediction-team-news-lineups_557501.html)
+- **Cristiano Ronaldo Set to Feature Tonight as Al-Nassr Takes on Al-Riyadh in 
+the SPL**: [Link](https://www.footboom1.com/en/news/football/2038938-cristiano-ronaldo-set-to-feature-tonight-as-al-nassr-takes-on-al-riyadh-in-the-spl)
+- **How to watch today's Al-Riyadh vs Al Nassr Saudi Pro League game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-al-riyadh-vs-al-nassr-saudi-pro-league-game-live-stream-tv-channel-start-time/blt5ccc93f012851d43)
+
+
+### espagne (N/A, Fri, 8 Nov 2024 09:10:00 -0800)
+
+- **En Espagne, la catastrophe ravive les divisions autour de l’héritage de 
+Franco**: [Link](https://www.lemonde.fr/m-le-mag/article/2024/11/07/en-espagne-la-catastrophe-ravive-les-divisions-autour-de-l-heritage-de-franco_6380800_4500055.html)
+- **Le nombre de disparus ne cesse d’augmenter après les inondations en Espagne**: [Link](https://www.20minutes.fr/monde/espagne/4120048-20241107-inondations-espagne-desormais-93-nombre-disparus-cesse-augmenter)
+- **VIDEOS. Une rivière dévale la rue, une trentaine de voitures emportées 
+jusqu’au port… Les images choquantes des orages à Cadaqués**: [Link](https://www.lindependant.fr/2024/11/08/videos-une-riviere-devale-la-rue-une-trentaine-de-voitures-emportees-jusquau-port-les-images-choquantes-des-orages-a-cadaques-12311079.php)
+
+
 ### yassine bounou (N/A, Fri, 8 Nov 2024 08:50:00 -0800)
 
 - **Yassine Bounou Honored in Madrid's Football Legends Museum**: [Link](https://www.moroccoworldnews.com/2024/11/366219/yassine-bounou-honored-in-madrid-s-football-legends-museum)
