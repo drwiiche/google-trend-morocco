@@ -1,3 +1,10 @@
+### fenerbahçe (N/A, Thu, 7 Nov 2024 13:40:00 -0800)
+
+- **Bayern Basketbol Takımı, forvet Onuralp Bitim’i kiraladı.**: [Link](https://fcbayern.com/basketball/en/news/2024-25/11/onuralp-bitim-turkish)
+- **Onuralp Bitim, Fenerbahçe Beko'da**: [Link](https://www.ntvspor.net/diger-sporlar/onuralp-bitim-fenerbahce-beko-da-672de1ba7c338f03f75e9b49)
+- **Onuralp Bitim, resmen Fenerbahçe'de**: [Link](https://www.fanatik.com.tr/video/video-onuralp-bitim-resmen-fenerbahcede-2563104)
+
+
 ### amsterdam (N/A, Fri, 8 Nov 2024 01:30:00 -0800)
 
 - **Israeli and Dutch leaders condemn antisemitic attacks on Israelis in 
