@@ -1,3 +1,11 @@
+### abdellatif hammouchi (N/A, Fri, 8 Nov 2024 08:00:00 -0800)
+
+- **Qui est Mohammed Dkhissi, le nouveau Monsieur Afrique d’Interpol**: [Link](https://medias24.com/2024/11/08/qui-est-mohammed-dkhissi-le-nouveau-monsieur-afrique-dinterpol/)
+- **Le Maroc décroche la vice-présidence d’Interpol pour l’Afrique**: [Link](https://ledesk.ma/encontinu/le-maroc-decroche-la-vice-presidence-dinterpol-pour-lafrique/)
+- **Abdellatif Hammouchi préside la délégation du Maroc à l'AG d'Interpol à 
+Glasgow**: [Link](https://fr.hespress.com/395156-abdellatif-hammouchi-preside-la-delegation-du-maroc-a-lag-dinterpol-a-glasgow.html)
+
+
 ### al-ahli saudi – al-raed (N/A, Fri, 8 Nov 2024 07:00:00 -0800)
 
 - **Al Raed's North African band of brothers out to get one over Mahrez**: [Link](https://onefootball.com/en/news/al-raeds-north-african-band-of-brothers-out-to-get-one-over-mahrez-40278033)
