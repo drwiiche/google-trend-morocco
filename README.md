@@ -1,3 +1,12 @@
+### interpol maroc (N/A, Fri, 8 Nov 2024 02:10:00 -0800)
+
+- **Abdellatif Hammouchi préside la délégation du Maroc à l'AG d'Interpol à 
+Glasgow**: [Link](https://fr.hespress.com/395156-abdellatif-hammouchi-preside-la-delegation-du-maroc-a-lag-dinterpol-a-glasgow.html)
+- **Le Maroc décroche la vice-présidence d’Interpol pour l’Afrique**: [Link](https://ledesk.ma/encontinu/le-maroc-decroche-la-vice-presidence-dinterpol-pour-lafrique/)
+- **Le Maroc reçoit le drapeau pour accueillir la 93e Assemblée générale 
+d'Interpol**: [Link](https://medias24.com/2024/11/08/le-maroc-recoit-le-drapeau-pour-accueillir-la-93e-assemblee-generale-dinterpol/)
+
+
 ### barron trump (N/A, Fri, 8 Nov 2024 01:50:00 -0800)
 
 - **Who is Barron Trump? The president-elect's son who got the internet buzzing 
