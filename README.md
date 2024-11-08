@@ -1,3 +1,12 @@
+### marseille – auxerre (N/A, Fri, 8 Nov 2024 11:00:00 -0800)
+
+- **« Comme quand j'étais joueur » : Djibril Cissé s'épanouit à nouveau sur les 
+terrains, mais en tant qu'entraîneur des attaquants à Auxerre (Ligue 1)**: [Link](https://www.lequipe.fr/Football/Article/-comme-quand-j-etais-joueur-djibril-cisse-s-epanouit-a-nouveau-sur-les-terrains-mais-en-tant-qu-entraineur-des-attaquants-a-auxerre/1518921)
+- **OM: Amine Harit forfait contre Auxerre**: [Link](https://sport.le360.ma/football/ligue-1/om-amine-harit-forfait-contre-auxerre_LMPCY6J3MNHM5O62C733MXMZ3M/)
+- **Ligue 1 - J11 : Un arbitre inédit cette saison et Stéphanie Frappart à la 
+vidéo pour OGC Nice - LOSC**: [Link](https://lepetitlillois.com/2024/11/08/ligue-1-j11-un-arbitre-inedit-cette-saison-et-stephanie-frappart-a-la-video-pour-ogc-nice-losc/)
+
+
 ### al-riyadh vs al-nassr (N/A, Fri, 8 Nov 2024 09:10:00 -0800)
 
 - **Preview: Al Riyadh vs. Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-riyadh/preview/preview-al-riyadh-vs-al-nassr-prediction-team-news-lineups_557501.html)
