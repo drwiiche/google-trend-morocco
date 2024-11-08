@@ -1,3 +1,12 @@
+### barron trump (N/A, Fri, 8 Nov 2024 01:50:00 -0800)
+
+- **Who is Barron Trump? The president-elect's son who got the internet buzzing 
+on election night**: [Link](https://news.sky.com/story/who-is-barron-trump-the-president-elects-son-who-got-the-internet-buzzing-on-election-night-13249973)
+- **Donald Trump's British ally Nigel Farage’s special message for ‘very bright 
+18-year-old’ Barron Trump**: [Link](https://www.hindustantimes.com/trending/donald-trumps-british-ally-nigel-farage-s-special-message-for-very-bright-18-year-old-barron-trump-101731030974362.html)
+- **Barron Trump, son of Donald and Melania Trump, votes for the first time**: [Link](https://kyma.com/decision-2024/2024/11/06/barron-trump-son-of-donald-and-melania-trump-votes-for-the-first-time/)
+
+
 ### la population du maroc (N/A, Thu, 7 Nov 2024 23:50:00 -0800)
 
 - **Résultats du recensement de la population au Maroc: ce qu’il faut retenir**: [Link](https://fr.le360.ma/economie/resultats-du-recensement-de-la-population-au-maroc-ce-quil-faut-retenir_M3O4ELAN6NDFLDYMGIUU4U7QHU/)
