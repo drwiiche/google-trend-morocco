@@ -1,3 +1,10 @@
+### apoel – fiorentina (N/A, Thu, 7 Nov 2024 12:10:00 -0800)
+
+- **UEL and UECL Liveblog: USG-Roma, Lazio-Porto, APOEL-Fiorentina**: [Link](https://sports.yahoo.com/uel-uecl-liveblog-usg-roma-163500116.html)
+- **UEL and UECL Liveblog: USG-Roma, Lazio-Porto, APOEL-Fiorentina**: [Link](https://football-italia.net/europa-liveblog-roma-lazio-porto-fiorentina/)
+- **Preview: APOEL vs. Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/apoel/europa-conference-league/preview/preview-apoel-vs-fiorentina-prediction-team-news-lineups_557365.html)
+
+
 ### balthazar video (N/A, Thu, 7 Nov 2024 15:30:00 -0800)
 
 - **Balthazar Scandal: After a shocking video was revealed, a married woman 
