@@ -1,3 +1,18 @@
+### la population du maroc (N/A, Thu, 7 Nov 2024 23:50:00 -0800)
+
+- **Résultats du recensement de la population au Maroc: ce qu’il faut retenir**: [Link](https://fr.le360.ma/economie/resultats-du-recensement-de-la-population-au-maroc-ce-quil-faut-retenir_M3O4ELAN6NDFLDYMGIUU4U7QHU/)
+- **RGPH 2024: Augmentation de 3 millions de la population marocaine**: [Link](https://industries.ma/rgph-2024-augmentation-de-3-millions-de-la-population-marocaine/)
+- **Recensement : Une baisse continue de la taille des ménages**: [Link](https://www.leconomiste.com/flash-infos/recensement-une-baisse-continue-de-la-taille-des-menages)
+
+
+### chantal gaemperle (N/A, Thu, 7 Nov 2024 16:00:00 -0800)
+
+- **LVMH : la directrice des ressources humaines mise à pied, la gouvernance du 
+groupe de luxe bouge**: [Link](https://www.sudouest.fr/france/lvmh-la-directrice-des-ressources-humaines-mise-a-pied-la-gouvernance-du-groupe-de-luxe-bouge-22066634.php)
+- **LVMH : Bernard Arnault écarte subitement sa DRH, Chantal Gaemperle**: [Link](https://www.lalettre.fr/fr/entreprises_luxe-et-conso/2024/11/07/lvmh--bernard-arnault-ecarte-subitement-sa-drh-chantal-gaemperle,110336683-art)
+- **La DRH du groupe LVMH aurait été mise à pied en vue d'un licenciement**: [Link](https://ch.zonebourse.com/cours/action/LVMH-4669/actualite/La-DRH-du-groupe-LVMH-aurait-ete-mise-a-pied-en-vue-d-un-licenciement-48294296/)
+
+
 ### gendarmes francais israel (N/A, Thu, 7 Nov 2024 16:20:00 -0800)
 
 - **En direct, guerre au Proche-Orient : plus de 60 personnes tuées dans des 
