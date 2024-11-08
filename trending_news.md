@@ -1,3 +1,12 @@
+### amsterdam (N/A, Fri, 8 Nov 2024 01:30:00 -0800)
+
+- **Israeli and Dutch leaders condemn antisemitic attacks on Israelis in 
+Amsterdam**: [Link](https://www.bbc.com/news/live/cwyge1587e5t)
+- **Israeli soccer fans attacked in Amsterdam, Israeli and Dutch authorities say**: [Link](https://www.cnn.com/2024/11/07/europe/israel-soccer-fans-attacked-amsterdam-intl-hnk/index.html)
+- **Israel sends rescue planes after football fans reportedly attacked in 
+Amsterdam**: [Link](https://www.theguardian.com/world/2024/nov/08/israel-sends-rescue-planes-football-fans-reportedly-attacked-amsterdam)
+
+
 ### interpol maroc (N/A, Fri, 8 Nov 2024 02:10:00 -0800)
 
 - **Abdellatif Hammouchi préside la délégation du Maroc à l'AG d'Interpol à 
