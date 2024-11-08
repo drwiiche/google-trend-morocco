@@ -1,3 +1,9 @@
+### جليلة التلمسي (N/A, Fri, 8 Nov 2024 13:20:00 -0800)
+
+- **الفنانة جليلة التلمسي كاتبة كلمات أغنية "وردة على وردة"…ضيفة عدد جديد من 
+"رشيد شو"-مساء الجمعة في 9 و30 دقيقة**: [Link](https://2m.ma/news/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%AC%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D9%84%D9%85%D8%B3%D9%8A-%D9%83%D8%A7%D8%AA%D8%A8%D8%A9-%D9%83%D9%84%D9%85%D8%A7%D8%AA-%D8%A3%D8%BA%D9%86%D9%8A%D8%A9-%D9%88%D8%B1%D8%AF%D8%A9-%D8%B9%D9%84%D9%89-%D9%88%D8%B1%D8%AF%D8%A9-%D8%B6%D9%8A%D9%81-%D8%B9%D8%AF%D8%AF-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D8%B1%D8%B4%D9%8A%D8%AF-%D8%B4%D9%88-%D9%85%D8%B3%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%81%D9%8A-9-%D9%8830-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-20241108)
+
+
 ### algérie france (N/A, Fri, 8 Nov 2024 14:30:00 -0800)
 
 - **Sahara: Alger capitule devant Madrid et tente de faire pression sur Paris**: [Link](https://fr.hespress.com/395013-sahara-alger-capitule-devant-madrid-et-tente-de-faire-pression-sur-paris.html)
