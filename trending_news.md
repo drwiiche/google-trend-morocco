@@ -1,3 +1,20 @@
+### djokovic (N/A, Fri, 8 Nov 2024 11:40:00 -0800)
+
+- **Novak Djokovic hints whether he will play in the Davis Cup as he confirms 
+plans for 2025 season**: [Link](https://www.thetennisgazette.com/news/novak-djokovic-hints-whether-he-will-play-in-the-davis-cup-as-he-confirms-plans-for-2025-season/)
+- **“I’m going to play in the first week of the season” – Djokovic**: [Link](https://www.tennismajors.com/atp/im-going-to-play-in-the-first-week-of-the-season-djokovic-795785.html)
+- **Focused on Tennis, Djokovic Confirms He Will Play in First Week of 2025**: [Link](https://www.footboom1.com/en/news/tennis/2039497-focused-on-tennis-djokovic-confirms-he-will-play-in-first-week-of-2025)
+
+
+### israel gendarmes français (N/A, Fri, 8 Nov 2024 11:40:00 -0800)
+
+- **Ce que l’on sait après l’arrestation de gendarmes français par la police 
+israélienne à Jérusalem-Est**: [Link](https://www.humanite.fr/monde/jerusalem-est/ce-que-lon-sait-apres-larrestation-de-gendarmes-francais-par-la-police-israelienne-a-jerusalem-est)
+- **En direct, guerre au Proche-Orient : la France va convoquer l’ambassadeur 
+d’Israël à Paris après un incident diplomatique à Jérusalem**: [Link](https://www.lemonde.fr/international/live/2024/11/07/en-direct-guerre-au-proche-orient-la-france-va-convoquer-l-ambassadeur-d-israel-a-paris-apres-un-incident-diplomatique-a-jerusalem_6376613_3210.html)
+- **Réveil Courrier du 8 novembre 2024**: [Link](https://www.courrierinternational.com/reveil/2024-11-08)
+
+
 ### rayo – las palmas (N/A, Fri, 8 Nov 2024 11:20:00 -0800)
 
 - **Lista para viajar a Vallecas con Cillessen, pero sin Sinkgraven ni los 
