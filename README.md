@@ -1,3 +1,12 @@
+### gendarmes francais israel (N/A, Thu, 7 Nov 2024 16:20:00 -0800)
+
+- **En direct, guerre au Proche-Orient : plus de 60 personnes tuées dans des 
+frappes au Liban, selon l’armée israélienne**: [Link](https://www.lemonde.fr/international/live/2024/11/07/en-direct-guerre-au-proche-orient-l-armee-israelienne-dit-avoir-elimine-plus-de-60-personnes-dans-des-frappes-au-liban_6376613_3210.html)
+- **Liban: quatre Casques bleus blessés dans une frappe israélienne**: [Link](https://www.h24info.ma/liban-quatre-casques-bleus-blesses-dans-une-frappe-israelienne/)
+- **EN DIRECT - Proche-Orient : après l’arrestation de deux gendarmes français 
+à Jérusalem, Paris va convoquer l’ambassadeur d’Israël**: [Link](https://www.liberation.fr/international/moyen-orient/en-direct-guerre-au-proche-orient-israel-poursuit-ses-bombardements-sur-le-liban-20241107_GQZF5WXMINGOZGCP6VSB3SRMX4/)
+
+
 ### apoel – fiorentina (N/A, Thu, 7 Nov 2024 12:10:00 -0800)
 
 - **UEL and UECL Liveblog: USG-Roma, Lazio-Porto, APOEL-Fiorentina**: [Link](https://sports.yahoo.com/uel-uecl-liveblog-usg-roma-163500116.html)
