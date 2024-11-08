@@ -1,3 +1,20 @@
+### yassine bounou (N/A, Fri, 8 Nov 2024 08:50:00 -0800)
+
+- **Yassine Bounou Honored in Madrid's Football Legends Museum**: [Link](https://www.moroccoworldnews.com/2024/11/366219/yassine-bounou-honored-in-madrid-s-football-legends-museum)
+- **Atlas Lions goalkeeper Yassine Bounou honored among legends at Madrid's 
+Football Museum**: [Link](https://www.msn.com/en-xl/news/other/atlas-lions-goalkeeper-yassine-bounou-honored-among-legends-at-madrid-s-football-museum/ar-AA1tGBzS)
+- **Atlas Lions goalkeeper Yassine Bounou honored among legends at Madrid's 
+Football Museum**: [Link](https://en.yabiladi.com/articles/details/156030/atlas-lions-goalkeeper-yassine-bounou.html)
+
+
+### al-hilal vs al-ettifaq (N/A, Fri, 8 Nov 2024 07:10:00 -0800)
+
+- **Al-Hilal ‘consider terminating Neymar’s £130m-a-year contract in January**: [Link](https://sarajevotimes.com/al-hilal-consider-terminating-neymars-130m-a-year-contract-in-january/)
+- **'It would be a pleasure' - Neymar jokes about next move after injured 
+Al-Hilal star returns to Brazil for treatment amid uncertain future**: [Link](https://www.goal.com/en-cm/lists/pleasure-neymar-jokes-next-move-injured-al-hilal-star-returns-brazil-treatment-uncertain-future/blt109500412d72ef05)
+- **EARTHQUAKE in Arabia: Cristiano Ronaldo for Neymar?**: [Link](https://www.fichajes.net/en/news/earthquake-in-arabia-cristiano-ronaldo-for-neymar-20241106.html)
+
+
 ### abdellatif hammouchi (N/A, Fri, 8 Nov 2024 08:00:00 -0800)
 
 - **Qui est Mohammed Dkhissi, le nouveau Monsieur Afrique d’Interpol**: [Link](https://medias24.com/2024/11/08/qui-est-mohammed-dkhissi-le-nouveau-monsieur-afrique-dinterpol/)
