@@ -1,3 +1,12 @@
+### al-hilal – al-ettifaq (N/A, Fri, 8 Nov 2024 05:50:00 -0800)
+
+- **Al Hilal vs Al Ettifaq LIVE Score Updates, Stream Info and How to Watch 
+Saudi Professional League Match**: [Link](https://www.vavel.com/en-us/soccer/2024/11/08/1203401-al-hilal-vs-al-ettifaq-live-score-updates-stream-info-and-how-to-watchsaudi-professional-leaguematch.html)
+- **Preview: Al-Hilal vs. Al Ettifaq - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/preview-al-hilal-vs-al-ettifaq-prediction-team-news-lineups_557493.html)
+- **Al-Hilal Vs Al-Ettifaq Live Streaming, Saudi Pro League 2024-25: When, 
+Where To Watch On TV And Online**: [Link](https://www.outlookindia.com/sports/football/al-hilal-vs-al-ettifaq-live-streaming-saudi-pro-league-2024-25-when-where-to-watch-on-tv-and-online)
+
+
 ### fenerbahçe (N/A, Thu, 7 Nov 2024 13:40:00 -0800)
 
 - **Bayern Basketbol Takımı, forvet Onuralp Bitim’i kiraladı.**: [Link](https://fcbayern.com/basketball/en/news/2024-25/11/onuralp-bitim-turkish)
