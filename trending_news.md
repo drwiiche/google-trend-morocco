@@ -1,3 +1,11 @@
+### om (N/A, Fri, 8 Nov 2024 13:10:00 -0800)
+
+- **Wild Rumors: New vintage OM-1II edition to be announced in January?**: [Link](https://www.43rumors.com/wild-rumors-new-vintage-om-1ii-edition-to-be-announced-in-january/)
+- **OM System Might Give us the Camera We All Wanted, Sort Of**: [Link](https://www.thephoblographer.com/2024/11/08/om-system-reportedly-will-launch-a-vintage-camera/)
+- **Some wild rumors from China: OM Digital to announce a “vintage” 
+camera….that is NOT the PEN-F?**: [Link](https://www.43rumors.com/some-wild-rumors-from-china-om-digital-to-announce-a-vintage-camera-that-is-not-the-pen-f/)
+
+
 ### سانت لوسيا (N/A, Fri, 8 Nov 2024 12:00:00 -0800)
 
 - **سانت لوسيا تدعم الوحدة الترابية للمغرب**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86%D8%AA-%D9%84%D9%88%D8%B3%D9%8A%D8%A7-%D8%AA%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1-1461516.html)
