@@ -1,3 +1,18 @@
+### كالياري ضد ميلان (N/A, Sat, 9 Nov 2024 09:00:00 -0800)
+
+- **تشكيلة ميلان المتوقعة أمام كالياري في الدوري الإيطالي**: [Link](https://hihi2.com/2024/11/09/p2927924.html)
+- **فونسيكا: "غدا يبدأ كاماردا و لياو ضد كالياري"**: [Link](https://milanreports.com/ar/2024/11/08/%D9%81%D9%88%D9%86%D8%B3%D9%8A%D9%83%D8%A7-%D8%BA%D8%AF%D8%A7-%D9%8A%D8%A8%D8%AF%D8%A3-%D9%83%D8%A7%D9%85%D8%A7%D8%B1%D8%AF%D8%A7-%D9%88-%D9%84%D9%8A%D8%A7%D9%88/)
+- **يلا شوت "كالياري ضد ميلان".. بدون تقطيع مشاهدة مباراة ميلان وكالياري اليوم 
+بث مباشر تويتر الدوري**: [Link](https://real.alsaudinews.com/210898/cagliari-vs-milan-day/)
+
+
+### برايتون ضد مان سيتي (N/A, Sat, 9 Nov 2024 08:50:00 -0800)
+
+- **تشكيلة مانشستر سيتي الرسمية لمواجهة برايتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/11/09/p2928457.html)
+- **هالاند أساسيا ودي بروين بديلا في تشكيل السيتي للقاء برايتون**: [Link](http://www.kooora.com/default.aspx?n=1367090&pg=1&o=n)
+- **جوارديولا: أعلم سبب معاناة مانشستر سيتي**: [Link](https://www.raialyoum.com/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A3%D8%B9%D9%84%D9%85-%D8%B3%D8%A8%D8%A8-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA/)
+
+
 ### brighton – manchester city (N/A, Sat, 9 Nov 2024 08:40:00 -0800)
 
 - **Walker and Gundogan start in two changes for Brighton clash**: [Link](https://onefootball.com/es/noticias/walker-and-gundogan-start-in-two-changes-for-brighton-clash-40287034)
