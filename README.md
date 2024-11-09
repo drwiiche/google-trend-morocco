@@ -1,3 +1,20 @@
+### crystal palace – fulham (N/A, Sat, 9 Nov 2024 07:20:00 -0800)
+
+- **Paul Merson and Chris Sutton in total agreement over prediction for Crystal 
+Palace vs Fulham**: [Link](https://www.wearepalace.uk/news/paul-merson-and-chris-sutton-in-total-agreement-over-prediction-for-crystal-palace-vs-fulham/)
+- **Before The Whistle: Crystal Palace v Fulham**: [Link](https://www.fulhamish.co.uk/post/2024-11-08-before-the-whistle-crystal-palace-v-fulham-2/)
+- **Crystal Palace boss Oliver Glasner ponders midfield solution to injury 
+crisis**: [Link](https://www.newsshopper.co.uk/sport/24712158.oliver-glasner-justin-devenny-make-first-palace-appearance/)
+
+
+### bayern munich (N/A, Sat, 9 Nov 2024 07:20:00 -0800)
+
+- **Arsenal and Man Utd transfer blow as Bayern Munich make enquiry for £63m 
+target**: [Link](https://metro.co.uk/2024/11/09/arsenal-man-utd-transfer-blow-bayern-munich-make-enquiry-63m-target-21960738/)
+- **Viktor Gyokeres: Sporting Lisbon 'receive enquiry' from European giants**: [Link](https://www.sportsmole.co.uk/football/man-utd/transfer-talk/news/sporting-receive-enquiry-from-european-giants-for-gyokeres_557770.html)
+- **Man Utd in race to sign Benjamin Sesko – Christian Falk**: [Link](https://football-talk.co.uk/209322/man-utd-in-race-to-sign-benjamin-sesko-christian-falk/)
+
+
 ### brentford – bournemouth (N/A, Sat, 9 Nov 2024 07:10:00 -0800)
 
 - **Injury update: Thiago and Nunes to feature in behind-closed-doors friendly**: [Link](https://www.brentfordfc.com/en/news/article/first-team-igor-thiago-gustavo-nunes-injury-update)
