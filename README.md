@@ -1,3 +1,20 @@
+### lens – nantes (N/A, Sat, 9 Nov 2024 10:20:00 -0800)
+
+- **Nantes : L'OM l'a traumatisé, ce joueur témoigne**: [Link](https://www.foot01.com/equipe/nantes/nantes-l-om-l-a-traumatise-ce-joueur-temoigne-445240)
+- **Suivez le multiplex de la 7ème journée de Ligue 1 2024-2025**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/live-rc-lens-nantes_mtc1526141/live-commentary.shtml)
+- **El Aynaoui titulaire pour la première fois cette saison, Labeau-Lascary en 
+pointe, la compo du RC Lens contre Nantes**: [Link](https://www.lavoixdunord.fr/1521241/article/2024-11-09/el-aynaoui-titulaire-pour-la-premiere-fois-cette-saison-labeau-lascary-en-pointe)
+
+
+### man city (N/A, Sat, 9 Nov 2024 10:10:00 -0800)
+
+- **Football gossip: Ederson, Mourinho, Guardiola, Mbeumo, Gyokeres, Davies, 
+Porro**: [Link](https://www.bbc.com/sport/football/articles/cvg7n1zkp8po)
+- **Zubimendi to Man City: O’Rourke on Liverpool target agreeing January deal**: [Link](https://www.footballinsider247.com/zubimendi-to-man-city-orourke-on-liverpool-target-agreeing-january-deal/)
+- **Jamie Carragher reveals the reason Man City may struggle to resolve their 
+issues in the January transfer marke**: [Link](https://www.dailymail.co.uk/sport/football/article-14059907/Jamie-Carragher-reveals-reason-Man-City-struggle-resolve-issues-January-transfer-market-three-straight-defeats-season-ending-injury-Rodri.html)
+
+
 ### monaco fc (N/A, Sat, 9 Nov 2024 10:00:00 -0800)
 
 - **Italiano: Bologna ‘only did 48 minutes of training and 20 of video’ ahead 
