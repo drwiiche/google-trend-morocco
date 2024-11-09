@@ -1,3 +1,11 @@
+### monaco fc (N/A, Sat, 9 Nov 2024 10:00:00 -0800)
+
+- **Italiano: Bologna ‘only did 48 minutes of training and 20 of video’ ahead 
+of Monaco**: [Link](https://football-italia.net/italiano-bologna-only-did-48-minutes-training/)
+- **Thilo "money time" Kehrer is your MVP and POTM after the win in Bologna**: [Link](https://onefootball.com/en/news/thilo-money-time-kehrer-is-your-mvp-and-potm-after-the-win-in-bologna-40277247)
+- **Watch Bologna vs. AS Monaco: UEFA Champions League free live stream**: [Link](https://www.masslive.com/tv/2024/11/watch-bologna-vs-as-monaco-uefa-champions-league-free-live-stream.html)
+
+
 ### كالياري ضد ميلان (N/A, Sat, 9 Nov 2024 09:00:00 -0800)
 
 - **تشكيلة ميلان المتوقعة أمام كالياري في الدوري الإيطالي**: [Link](https://hihi2.com/2024/11/09/p2927924.html)
