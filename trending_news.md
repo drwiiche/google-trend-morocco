@@ -1,3 +1,10 @@
+### susie wiles trump (N/A, Fri, 8 Nov 2024 16:40:00 -0800)
+
+- **Donald Trump picks Susie Wiles to be chief of staff**: [Link](https://www.politico.com/news/2024/11/07/donald-trump-susie-wiles-chief-of-staff-00188346)
+- **Headlines for November 08, 2024**: [Link](https://www.democracynow.org/2024/11/8/headlines)
+- **The Litmus Test to Join Susie Wiles in Trump’s White House**: [Link](https://www.notus.org/2024-election/trump-team-litmus-test-next-administration)
+
+
 ### chatgpt (N/A, Fri, 8 Nov 2024 16:20:00 -0800)
 
 - **Sam Altman may have dropped millions of dollars—and OpenAI shares—to buy a 
