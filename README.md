@@ -1,3 +1,11 @@
+### manchester city (N/A, Sat, 9 Nov 2024 11:20:00 -0800)
+
+- **Jack Grealish: Man City manager Pep Guardiola unhappy with England call**: [Link](https://www.bbc.com/sport/football/articles/cvgknzd9gqwo)
+- **England did not contact Manchester City over Jack Grealish, claims Guardiola**: [Link](https://www.theguardian.com/football/2024/nov/08/england-did-not-contact-manchester-city-over-jack-grealish-claims-guardiola)
+- **Brighton & Hove Albion - Manchester City Live - Premier League: Football 
+Scores & Highlights - 09/11/2024**: [Link](https://www.tntsports.co.uk/football/premier-league/2024-2025/live-brighton-hove-albion-manchester-city_mtc1523759/live.shtml)
+
+
 ### angers – paris-sg (N/A, Sat, 9 Nov 2024 11:10:00 -0800)
 
 - **Ligue 1 : Vol annulé, les joueurs du PSG se rendent à Angers en car**: [Link](https://www.lequipe.fr/Football/Actualites/Vol-annule-les-joueurs-du-psg-se-rendent-a-angers-en-car/1519296)
