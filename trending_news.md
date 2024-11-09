@@ -1,3 +1,13 @@
+### samantha de bendern (N/A, Sat, 9 Nov 2024 15:30:00 -0800)
+
+- **[Vidéo] Incident diplomatique franco-israélien à Jérusalem, deux gendarmes 
+français arrêtés**: [Link](https://www.rfi.fr/fr/moyen-orient/20241107-vid%C3%A9o-incident-diplomatique-franco-isra%C3%A9lien-%C3%A0-j%C3%A9rusalem-deux-gendarmes-fran%C3%A7ais-arr%C3%AAt%C3%A9s)
+- **En direct, guerre au Proche-Orient : la France va convoquer l’ambassadeur 
+d’Israël à Paris après un incident diplomatique à Jérusalem**: [Link](https://www.lemonde.fr/international/live/2024/11/07/en-direct-guerre-au-proche-orient-la-france-va-convoquer-l-ambassadeur-d-israel-a-paris-apres-un-incident-diplomatique-a-jerusalem_6376613_3210.html)
+- **Incident diplomatique à Jérusalem : les députés insoumis dénoncent un «acte 
+d'intimidation inacceptable», la classe politique réagit**: [Link](https://www.lefigaro.fr/politique/incident-diplomatique-a-jerusalem-les-deputes-insoumis-denoncent-un-acte-d-intimidation-inacceptable-la-classe-politique-reagit-20241107)
+
+
 ### liverpool vs (N/A, Sat, 9 Nov 2024 13:00:00 -0800)
 
 - **Liverpool vs Aston Villa live online: score, stats and updates | Premier 
