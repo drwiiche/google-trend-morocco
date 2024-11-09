@@ -1,3 +1,12 @@
+### mainz 05 – dortmund (N/A, Sat, 9 Nov 2024 05:40:00 -0800)
+
+- **Bundesliga-Konferenz im Ticker - BVB muss in Mainz ran, Hecking-Debüt gegen 
+Bayer, Bremen erwartet Kiel**: [Link](https://de.nachrichten.yahoo.com/bundesliga-konferenz-ticker-bvb-muss-091257789.html)
+- **Henriksen: "Es ist Zufall, dass wir zu Hause nicht gewonnen haben" | Letzte 
+Saison haperte es auswärts | Video**: [Link](https://www.kicker.at/henriksen-es-ist-zufall-dass-wir-zu-hause-nicht-gewonnen-haben-1066334/video)
+- **"Gas geben und an uns glauben"**: [Link](https://onefootball.com/en/news/gas-geben-und-an-uns-glauben-40282139)
+
+
 ### امستردام (N/A, Sat, 9 Nov 2024 05:10:00 -0800)
 
 - **هولندا تحقق باشتباكات إسرائيليين مع مؤيدين لفلسطين**: [Link](https://www.aljazeera.net/news/2024/11/9/%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-2)
