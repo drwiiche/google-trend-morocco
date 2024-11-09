@@ -1,3 +1,13 @@
+### rachid mekhloufi (N/A, Sat, 9 Nov 2024 01:10:00 -0800)
+
+- **Décès de Rachid Makhloufi, qui avait promu la cause de l'indépendance de 
+l'Algérie**: [Link](https://www.eurosport.fr/football/rachid-makhloufi-legende-du-football-algerien-et-joueur-historique-de-lasse-est-mort_sto20052461/story.shtml)
+- **Rachid Mekhloufi, légende de l’AS Saint-Etienne et du football algérien, 
+est mort**: [Link](https://www.lemonde.fr/sport/article/2024/11/08/rachid-mekhloufi-legende-de-l-as-saint-etienne-et-du-football-algerien-est-mort_6384125_3242.html)
+- **Disparition : Légende de Saint-Étienne et symbole de l'Algérie 
+indépendante, Rachid Mekhloufi est mort**: [Link](https://www.lequipe.fr/Football/Actualites/Legende-de-saint-etienne-et-symbole-de-l-algerie-independante-rachid-mekhloufi-est-mort/1519170)
+
+
 ### whatsapp (N/A, Fri, 8 Nov 2024 22:10:00 -0800)
 
 - **WhatsApp users in this country will need to pay licence fee to postal 
