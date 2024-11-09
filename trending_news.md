@@ -1,3 +1,10 @@
+### wac vs irt (N/A, Sat, 9 Nov 2024 12:20:00 -0800)
+
+- **قائمة الوداد ضد اتحاد طنجة.. غياب بوطويل ومحروس مقابل حضور نيانغ والشاذلي**: [Link](https://m.elbotola.com/article/2024-11-08-19-43-733.html)
+- **فرصة ثمينة لموكوينا في لقاء اتحاد طنجة**: [Link](https://sport.lesiteinfo.com/elbotola/449804.html)
+- **موكوينا يبعد 5 لاعبين جدد عن الوداد**: [Link](https://ar.sport.le360.ma/football/botola/LKMJBN4625ENLOL7YCV3TCBMKA/)
+
+
 ### angers vs psg (N/A, Sat, 9 Nov 2024 12:20:00 -0800)
 
 - **Saturday's Ligue 1 predictions including Angers vs. Paris Saint-Germain**: [Link](https://www.sportsmole.co.uk/football/strasbourg/ligue-1-predictions/feature/saturdays-ligue-1-predictions-including-angers-vs-psg_557650.html)
