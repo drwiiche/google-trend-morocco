@@ -1,3 +1,12 @@
+### sergio ramos (N/A, Sat, 9 Nov 2024 13:40:00 -0800)
+
+- **El Madrid puede fichar ya**: [Link](https://as.com/futbol/primera/el-madrid-puede-fichar-ya-n/)
+- **Guti 'pide' fichar a Sergio Ramos: "Está sin equipo, lateral y central, a 
+coste cero..."**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/09/guti-pide-fichar-sergio-ramos-equipo-lateral-central-coste-cero.html)
+- **Guti pone encima de la mesa el jugador que debe fichar el Madrid: sería un 
+bombazo**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20241109/1002350202/guti-pone-encima-mesa-jugador-debe-fichar-madrid-seria-bombazo.html)
+
+
 ### ليفربول (N/A, Sat, 9 Nov 2024 13:40:00 -0800)
 
 - **أرنولد يتعرض للإصابة قبل 18 يوم من مواجهة ريال مدريد**: [Link](https://hihi2.com/2024/11/10/p2928943.html)
