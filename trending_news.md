@@ -1,3 +1,33 @@
+### real madrid – osasuna (N/A, Sat, 9 Nov 2024 04:10:00 -0800)
+
+- **Alineación posible del Real Madrid contra Osasuna en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-contra-osasuna-en-laliga-ea-sports-n-2/)
+- **Asencio, principal novedad en la lista de convocados de Ancelotti**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/08/asencio-principal-novedad-lista-convocados-ancelotti.html)
+- **Una sorpresa en el once del Real Madrid ante Osasuna**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20241109/1002349935/sorpresa-once-real-madrid-osasuna.html)
+
+
+### الريال ضد أوساسونا (N/A, Sat, 9 Nov 2024 04:10:00 -0800)
+
+- **فينيسيوس ومبابي يقودان ريال مدريد أمام أوساسونا**: [Link](https://m.kooora.com/?n=1367017&o=n)
+- **ريال مدريد يختتم استعداداته للقاء أوساسونا**: [Link](https://hihi2.com/2024/11/09/p2928014.html)
+- **أنشيلوتي ينتظر رد فعل إيجابيا من لاعبيه ضد أوساسونا**: [Link](https://www.aljazeera.net/sport/2024/11/8/%D8%A7%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%B1%D8%AF-%D9%81%D8%B9%D9%84-%D8%A5%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A-%D9%85%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87)
+
+
+### real madrid vs osasuna (N/A, Sat, 9 Nov 2024 04:10:00 -0800)
+
+- **Osasuna devise a special strategy to stop Real Madrid megastar in La Liga 
+clash**: [Link](https://madriduniversal.com/osasuna-devise-a-special-strategy-to-stop-real-madrid-megastar-in-la-liga-clash/)
+- **Meet Asencio: Ancelotti's Choice for Real Madrid's Defense**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/meet-asencio-ancelotti-s-choice-for-real-madrid-s-defense-2024-11-08)
+- **Carlo Ancelotti: "Valverde is Looking Sharp and Ready to Play"**: [Link](https://www.footboom1.com/en/news/football/2041400-carlo-ancelotti-valverde-is-looking-sharp-and-ready-to-play)
+
+
+### bourse maroc (N/A, Sat, 9 Nov 2024 03:40:00 -0800)
+
+- **Bourse de Casablanca : clôture en hausse**: [Link](https://fr.hespress.com/395291-bourse-de-casablanca-cloture-en-hausse-55.html)
+- **Bourse de Casablanca : les tops et flops de cette semaine**: [Link](https://www.lesiteinfo.com/economie/631965-bourse-de-casablanca-les-tops-et-flops-de-cette-semaine.html)
+- **AMMC. Le MASI atteint son plus haut niveau de l’année à 14.372,84 pts en 
+septembre**: [Link](https://medias24.com/2024/11/02/ammc-le-masi-atteint-son-plus-haut-niveau-de-lannee-a-14-37284-pts-en-septembre/)
+
+
 ### rachid mekhloufi (N/A, Sat, 9 Nov 2024 01:10:00 -0800)
 
 - **Décès de Rachid Makhloufi, qui avait promu la cause de l'indépendance de 
