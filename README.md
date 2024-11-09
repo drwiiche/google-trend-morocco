@@ -1,3 +1,33 @@
+### angers – paris-sg (N/A, Sat, 9 Nov 2024 11:10:00 -0800)
+
+- **Ligue 1 : Vol annulé, les joueurs du PSG se rendent à Angers en car**: [Link](https://www.lequipe.fr/Football/Actualites/Vol-annule-les-joueurs-du-psg-se-rendent-a-angers-en-car/1519296)
+- **PSG : Luis Enrique va faire tourner contre Angers**: [Link](https://www.footmercato.net/a1012669215997040048-psg-luis-enrique-va-faire-tourner-contre-angers)
+- **PRONOS PARIS RMC Le pari football de Coach Courbis du 9 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-coach-courbis-du-9-novembre-ligue-1_AN-202411090251.html)
+
+
+### liverpool – aston villa (N/A, Sat, 9 Nov 2024 11:10:00 -0800)
+
+- **Team news for Liverpool test**: [Link](https://www.avfc.co.uk/news/2024/november/08/aston-villa-v-liverpool-team-news/)
+- **Liverpool vs Aston Villa 8pm kick-off time explained as Premier League 
+change made**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/liverpool-vs-aston-villa-8pm-30333240)
+- **No 12:30pm Premier League Clash This Weekend Due to Fixture Rescheduling**: [Link](https://www.footboom1.com/en/news/football/2042991-no-12-30pm-premier-league-clash-this-weekend-due-to-fixture-rescheduling)
+
+
+### juventus – torino (N/A, Sat, 9 Nov 2024 11:10:00 -0800)
+
+- **Serie A Liveblog: Juventus-Torino, Cagliari-Milan, Venezia-Parma**: [Link](https://football-italia.net/serie-a-live-juventus-torino-cagliari-milan/)
+- **Motta calls for full Juve effort for Turin derby**: [Link](https://www.beinsports.com/en-nz/football/serie-a/articles/motta-calls-for-full-juve-effort-for-turin-derby-2024-11-08)
+- **Moggi insists Torino and Juventus has a similar problem ahead of the Turin 
+derby**: [Link](https://www.yardbarker.com/soccer/articles/moggi_insists_torino_and_juventus_has_a_similar_problem_ahead_of_the_turin_derby/s1_16484_41203869)
+
+
+### hassan akesbi (N/A, Sat, 9 Nov 2024 11:00:00 -0800)
+
+- **Décès de Hassan Akesbi, légende du football marocain**: [Link](https://sport.le360.ma/football/deces-de-hassan-akesbi-legende-du-football-marocain_AF445R6FIRACDEVKYWLH4NGZZE/)
+- **Décès de Hassan Akesbi: Les condoléances de la FRMF**: [Link](https://fr.hespress.com/395483-deces-de-hassan-akesbi-les-condoleances-de-la-frmf.html)
+- **Message de condoléances et de compassion à la famille de Feu Hassan Akesbi**: [Link](https://frmf.ma/fr/%D8%AA%D8%B9%D8%B2%D9%8A%D8%A9-%D9%81%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%88%D9%85-%D8%AD%D8%B3%D9%86-%D8%A3%D9%82%D8%B5%D8%A8%D9%8A/)
+
+
 ### ستراسبورغ ضد موناكو (N/A, Sat, 9 Nov 2024 10:30:00 -0800)
 
 - **بن صغير رفع موناكو للعالي بهدفين بستراسبورغ**: [Link](https://www.almountakhab.com/node/13206367)
