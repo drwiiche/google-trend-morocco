@@ -1,3 +1,19 @@
+### sankt pauli – bayern (N/A, Sat, 9 Nov 2024 05:50:00 -0800)
+
+- **FC Bayern: Überraschung von Vincent Kompany: Knaller in der Startelf!**: [Link](https://www.bild.de/sport/fussball/fc-bayern-ueberraschung-von-vincent-kompany-knaller-in-der-startelf-672f612b97f2db3e32b62244)
+- **Als St. Pauli zum Weltpokalsiegerbesieger wurde | Wisst ihr noch ...? | 
+Video**: [Link](https://www.kicker.de/als-st-pauli-zum-weltpokalsiegerbesieger-wurde-1066430/video)
+- **Bayern-Torfabrik kratzt an neuem Bundesliga-Rekord**: [Link](https://fcbinside.de/2024/11/09/bayern-torfabrik-kratzt-an-neuem-bundesliga-rekord/)
+
+
+### vfl bochum – leverkusen (N/A, Sat, 9 Nov 2024 05:50:00 -0800)
+
+- **Der Meister spielt gegen die letzte Mannschaft in der Tabelle**: [Link](https://www.koha.net/de/futboll/kampioni-luan-ndaj-ekipit-te-fundit-ne-tabele)
+- **VfL Bochum – Bayer Leverkusen im TV und Livestream: Hier siehst du das 
+Spiel live**: [Link](https://www.derwesten.de/sport/fussball/bayer-04-leverkusen-tv-livestream-sky-dazn-bundesliga-bochum-id300790552.html)
+- **Alonsos Weg zur Konstanz: "Egal ob Liverpool oder Bochum"**: [Link](https://www.sport1.de/tv-video/video/alonsos-weg-zur-konstanz-egal-ob-liverpool-oder-bochum-__4BDB777E-F15F-4DCC-BC3D-F02161CF3443)
+
+
 ### mainz 05 – dortmund (N/A, Sat, 9 Nov 2024 05:40:00 -0800)
 
 - **Bundesliga-Konferenz im Ticker - BVB muss in Mainz ran, Hecking-Debüt gegen 
