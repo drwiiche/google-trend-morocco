@@ -1,3 +1,11 @@
+### villarreal – deportivo alavés (N/A, Sat, 9 Nov 2024 06:30:00 -0800)
+
+- **Villarreal - Alavés | Luto por la DANA en La Cerámica: previa, análisis, 
+pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2024/11/09/villarreal-alaves-luto-dana-ceramica-previa-analisis-pronostico-prediccion.html)
+- **Villareal vs. Alavés: ¿Cómo está el historial?**: [Link](https://record.com.do/futbol/villareal-vs-dep-alaves-como-esta-el-historial-198146.html)
+- **Lista para recibir al Alavés con Denis Suárez y con cuatro bajas**: [Link](https://www.futbolfantasy.com/laliga/noticias/121764-lista-para-recibir-al-alaves-con-denis-suarez-y-con-cuatro-bajas)
+
+
 ### madrid real (N/A, Sat, 9 Nov 2024 06:10:00 -0800)
 
 - **Real Madrid: Alarma con Militao ante una nueva grave lesión de rodilla**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/09/alarma-militao-nueva-grave-lesion-rodilla.html)
