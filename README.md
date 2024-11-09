@@ -1,3 +1,13 @@
+### cagliari – ac milan (N/A, Sat, 9 Nov 2024 08:10:00 -0800)
+
+- **Fonseca discusses his Leao ‘strategy’, prioritising Scudetto fight and fan 
+perception**: [Link](https://sempremilan.com/fonseca-leao-strategy-scudetto-fan-perception)
+- **Eight Serie A starters younger than Camarda, including Milan Ballon d’Or 
+winner**: [Link](https://football-italia.net/eight-serie-a-starters-younger-than-camarda/)
+- **First-half goals and H2H superiority: All the key stats ahead of 
+Cagliari-Milan**: [Link](https://onefootball.com/de/news/first-half-goals-and-h2h-superiority-all-the-key-stats-ahead-of-cagliari-milan-40286376)
+
+
 ### liga (N/A, Sat, 9 Nov 2024 07:00:00 -0800)
 
 - **La Liga Soccer Livestream: How to Watch Real Madrid vs. Osasuna From 
