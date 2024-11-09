@@ -1,3 +1,11 @@
+### brighton – manchester city (N/A, Sat, 9 Nov 2024 08:40:00 -0800)
+
+- **Walker and Gundogan start in two changes for Brighton clash**: [Link](https://onefootball.com/es/noticias/walker-and-gundogan-start-in-two-changes-for-brighton-clash-40287034)
+- **Guardiola confident Man City can avoid fourth straight loss**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/guardiola-confident-man-city-can-avoid-fourth-straight-loss-2024-11-08)
+- **Brighton vs Manchester City preview: Storylines, odds, prediction for 
+slumping City’s away test**: [Link](https://www.nytimes.com/athletic/5909105/2024/11/09/brighton-manchester-city-preview-odds-prediction/)
+
+
 ### zidane real madrid (N/A, Sat, 9 Nov 2024 08:30:00 -0800)
 
 - **Zinedine Zidane’s stance on a return to Real Madrid as Carlo Ancelotti 
