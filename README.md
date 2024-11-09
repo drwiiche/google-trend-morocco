@@ -1,3 +1,17 @@
+### ستراسبورغ ضد موناكو (N/A, Sat, 9 Nov 2024 10:30:00 -0800)
+
+- **بن صغير رفع موناكو للعالي بهدفين بستراسبورغ**: [Link](https://www.almountakhab.com/node/13206367)
+- **معلقو الجولة الحادية عشرة من الدوري الفرنسي**: [Link](https://hihi2.com/2024/11/08/p2927244.html)
+- **بالصور: إلياس بن صغير يقود موناكو لفوز مثير أمام ستراسبورج**: [Link](https://m.kooora.com/?n=1367118&o=n)
+
+
+### حسن اقصبي (N/A, Sat, 9 Nov 2024 10:30:00 -0800)
+
+- **الجامعة تعزي في وفاة حسن أقصبي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%B9%D8%B2%D9%8A-%D9%81%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D8%AD%D8%B3%D9%86-%D8%A3%D9%82%D8%B5%D8%A8%D9%8A-1462012.html)
+- **كرة القدم المغربية تفقد أحد أساطيرها**: [Link](https://www.akhbarona.com/sport/lionatlas/395394.html)
+- **وفاة أسطورة الكورة المغربي حسن أقصبي بعد صراع مع المرض**: [Link](https://www.goud.ma/%D9%88%D9%81%D8%A7%D8%A9-%D8%A3%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%AD%D8%B3%D9%86-%D8%A3%D9%82%D8%B5%D8%A8%D9%8A-%D8%A8-914668/)
+
+
 ### lens – nantes (N/A, Sat, 9 Nov 2024 10:20:00 -0800)
 
 - **Nantes : L'OM l'a traumatisé, ce joueur témoigne**: [Link](https://www.foot01.com/equipe/nantes/nantes-l-om-l-a-traumatise-ce-joueur-temoigne-445240)
