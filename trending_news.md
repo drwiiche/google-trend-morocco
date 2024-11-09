@@ -1,3 +1,28 @@
+### chatgpt (N/A, Fri, 8 Nov 2024 16:20:00 -0800)
+
+- **Sam Altman may have dropped millions of dollars—and OpenAI shares—to buy a 
+single URL**: [Link](https://fortune.com/2024/11/07/sam-altman-15-million-dollar-url-chat-com/)
+- **OpenAI's splashy purchase of a 4-letter domain name is a smart play**: [Link](https://www.businessinsider.com/openai-acquires-chat-com-url-website-domain-2024-11)
+- **OpenAI acquires Chat.com domain**: [Link](https://finance.yahoo.com/news/openai-acquires-chat-com-domain-115202492.html)
+
+
+### jacques dessange (N/A, Fri, 8 Nov 2024 16:00:00 -0800)
+
+- **Mort de Benjamin Dessange, fils du coiffeur Jacques Dessange, mis en cause 
+pour harcèlement sexuel aggravé**: [Link](https://www.lefigaro.fr/flash-actu/mort-de-benjamin-dessange-fils-du-coiffeur-jacques-dessange-mis-en-cause-pour-harcelement-sexuel-aggrave-20241107)
+- **Poursuivi pour harcèlement sexuel, le fils de Jacques Dessange est mort**: [Link](https://www.20minutes.fr/faits_divers/4120409-20241108-poursuivi-harcelement-sexuel-aggrave-fils-cadet-jacques-dessange-decede)
+- **Toute l'actualité "Benjamin Dessange"**: [Link](https://www.jeanmarcmorandini.com/actualite-benjamin-dessange.html)
+
+
+### yael braun pivet (N/A, Fri, 8 Nov 2024 15:30:00 -0800)
+
+- **Story 2 : “Brule un sioniste”, tags antisémites à Lyon - 08/11**: [Link](https://www.bfmtv.com/replay-emissions/bfm-story-week-end/story-2-brule-un-sioniste-tags-antisemites-a-lyon-08-11_VN-202411080812.html)
+- **Tags et manifestation propalestinienne contre la venue de Yaël Braun-Pivet 
+dans une université de Lyon**: [Link](https://www.la-croix.com/tags-et-manifestation-propalestinienne-contre-la-venue-de-yael-braun-pivet-dans-une-universite-de-lyon-20241108)
+- **Lyon : Des militants propalestiniens manifestent contre la venue de Yaël 
+Braun-Pivet**: [Link](https://www.francelive.fr/teaser/20-minutes/lyon-des-militants-propalestiniens-manifestent-contre-la-venue-de-yael-braun-pivet-8749262/)
+
+
 ### جليلة التلمسي (N/A, Fri, 8 Nov 2024 13:20:00 -0800)
 
 - **الفنانة جليلة التلمسي كاتبة كلمات أغنية "وردة على وردة"…ضيفة عدد جديد من 
