@@ -1,3 +1,27 @@
+### premier league (N/A, Sat, 9 Nov 2024 11:30:00 -0800)
+
+- **Premier League Brentford 3 AFC Bournemouth 2 90 minutes plus 6 played. In 
+progress**: [Link](https://www.bbc.com/sport/football/live/c8jy1yjxpd9t)
+- **Injury update: Thiago and Nunes to feature in behind-closed-doors friendly**: [Link](https://www.brentfordfc.com/en/news/article/first-team-igor-thiago-gustavo-nunes-injury-update)
+- **Yoane Wissa’s wild goalscoring stat that shows he’s more prolific than 
+Mohamed Salah and Cole Palmer...**: [Link](https://talksport.com/football/2248997/yoane-wissa-mohamed-salah-cole-palmer-stat/)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sat, 9 Nov 2024 11:30:00 -0800)
+
+- **ليفربول يتطلع لتعزيز قبضته على البريميرليج.. والسيتي لنفض غبار الهزائم**: [Link](https://www.kooora.com/?n=1366793)
+- **السيتي يسعى للاستفاقة من كبواته وليفربول للابتعاد بصدارة الدوري الإنجليزي**: [Link](https://sport.al3omk.com/71743.html)
+- **بطولة إنكلترا - المرحلة 11: البرنامج**: [Link](https://www.almountakhab.com/node/13206316)
+
+
+### botola pro (N/A, Sat, 9 Nov 2024 11:30:00 -0800)
+
+- **Botola Pro D1 Inwi: Fixtures for Saturday, November 9, Featuring Exciting 
+Clashes MAS-AS FAR and WAC-IRT**: [Link](https://www.footboom1.com/en/news/football/2042797-botola-pro-d1-inwi-fixtures-for-saturday-november-9-featuring-exciting-clashes-mas-as-far-and-wac-irt)
+- **Botola Pro D1 Inwi: OCS Triumphs Over JSS**: [Link](https://www.footboom1.com/en/news/football/2014148-botola-pro-d1-inwi-ocs-triumphs-over-jss)
+- **Botola: WAC, Raja, AS FAR... The Schedule for Matchday 10**: [Link](https://www.footboom1.com/en/news/football/2036302-botola-wac-raja-as-far-the-schedule-for-matchday-10)
+
+
 ### manchester city (N/A, Sat, 9 Nov 2024 11:20:00 -0800)
 
 - **Jack Grealish: Man City manager Pep Guardiola unhappy with England call**: [Link](https://www.bbc.com/sport/football/articles/cvgknzd9gqwo)
