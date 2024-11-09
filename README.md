@@ -1,3 +1,30 @@
+### botola (N/A, Sat, 9 Nov 2024 11:40:00 -0800)
+
+- **Botola Pro D1 Inwi: le MAS s’impose face à l’AS FAR et prend la deuxième 
+place**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-mas-simpose-face-a-las-far-et-prend-la-deuxieme-place_66LGF5MQNBE73NJ3RLC3RP6F7A/)
+- **Botola : la RSB défend son leadership face à l’UTS, le MAS et l’AS FAR sont 
+à l'affût**: [Link](https://lematin.ma/sports/botola-la-rsb-defend-son-leadership-face-a-luts/250642)
+- **Botola Pro D1 : Succès à domicile de la Renaissance Zemamra face à 
+l'Olympic Safi**: [Link](https://www.menara.ma/fr/article/botola-pro-d1-succes-a-domicile-de-la-renaissance-zemamra-face-a-lolympic-safi)
+
+
+### المحبس (N/A, Sat, 9 Nov 2024 11:40:00 -0800)
+
+- **"البوليساريو" تطلق مقذوفات على مهرجان بمنطقة المحبس بالصحراء المغربية**: [Link](https://ar.hibapress.com/details-571841.html)
+- **في عملية إرهابية جديدة.. قذائف عشوائية للبوليساريو تسقط قرب خيام مهرجان 
+مقام بالمحبس**: [Link](https://www.akhbarona.com/society/395398.html)
+- **مقذوفات متفجرة تستهدف مناطق في اسا الزاك يرجح أن مصدرها البوليساريو – اليوم 
+24**: [Link](https://alyaoum24.com/1928506.html)
+
+
+### nac breda – psv eindhoven (N/A, Sat, 9 Nov 2024 11:40:00 -0800)
+
+- **Preview: NAC Breda vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/nac-breda/preview/preview-nac-breda-vs-psv-prediction-team-news-lineups_557618.html)
+- **Press conference | 'We as PSV have to win every game, because a top club 
+always has to'**: [Link](https://www.psv.nl/en/media/artikel/persconferentie-wij-moeten-als-psv-elke-wedstrijd-winnen-want-een-topclub-moet-dat-altijd)
+- **NAC Breda vs PSV Eindhoven Prediction and Betting Tips | November 9th 2024**: [Link](https://www.sportskeeda.com/football/nac-breda-vs-psv-eindhoven-prediction-betting-tips-november-9th-2024)
+
+
 ### premier league (N/A, Sat, 9 Nov 2024 11:30:00 -0800)
 
 - **Premier League Brentford 3 AFC Bournemouth 2 90 minutes plus 6 played. In 
