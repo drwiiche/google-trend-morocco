@@ -1,3 +1,21 @@
+### strasbourg – monaco (N/A, Sat, 9 Nov 2024 07:30:00 -0800)
+
+- **Guela Doué : « Avec Désiré, on s’est vraiment tirés vers le haut » - Ligue 
+1 - J11 - Strasbourg-Monaco**: [Link](https://www.sofoot.com/articles/guela-doue-avec-desire-on-sest-vraiment-tires-vers-le-haut)
+- **Sékou Mara : « Je dois améliorer ma palette pour pouvoir progresser »**: [Link](https://girondins4ever.com/breves/20241109/536804-sekou-mara-je-dois-ameliorer-ma-palette-pour-pouvoir-progresser/)
+- **Radoslaw Majecki : "Montrer la même concentration qu'à Bologne"**: [Link](https://www.asmonaco.com/radoslaw-majecki-montrer-la-meme-concentration-qua-bologne/)
+
+
+### wolves – southampton (N/A, Sat, 9 Nov 2024 07:30:00 -0800)
+
+- **Gary O’Neil shares promising injury update as Wolves duo train ahead of 
+Southampton clash**: [Link](https://www.molineux.news/news/gary-oneil-shares-promising-injury-update-as-wolves-duo-train-ahead-of-southampton-clash/)
+- **Southampton news: Opinion - Learning while losing 'not sustainable' for 
+Saints - Fan questions answered**: [Link](https://www.bbc.com/sport/football/articles/c8ek1d8ydjlo)
+- **Any Other Bets: Sack race, EFL and Premier League tips for Saturday 9 
+November**: [Link](https://www.sportinglife.com/football/news/any-other-bets-sack-race-efl-and-premier-league-tips-for-saturday-9-november/221676)
+
+
 ### crystal palace – fulham (N/A, Sat, 9 Nov 2024 07:20:00 -0800)
 
 - **Paul Merson and Chris Sutton in total agreement over prediction for Crystal 
