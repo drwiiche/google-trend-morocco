@@ -1,3 +1,12 @@
+### jérusalem (N/A, Sat, 9 Nov 2024 01:30:00 -0800)
+
+- **Gendarmes expulsés en Israël : un camouflet pour la France**: [Link](https://www.lepoint.fr/monde/gendarmes-expulses-en-israel-un-camouflet-pour-la-france-08-11-2024-2574813_24.php)
+- **Incident diplomatique à Jérusalem : un "message adressé aux Français et aux 
+Européens pour dire 'on fait ce qu'on veut'", estime un politologue**: [Link](https://www.francetvinfo.fr/monde/proche-orient/guerre/incident-diplomatique-a-jerusalem-un-message-adresse-aux-francais-et-aux-europeens-pour-dire-on-fait-ce-qu-on-veut-estime-un-politologue_6884795.html)
+- **Une chroniqueuse de LCI s’excuse après des propos sur les gendarmes arrêtés 
+en Israël**: [Link](https://www.huffingtonpost.fr/international/article/incident-a-l-eleona-la-chroniqueuse-samantha-de-bendern-s-excuse-apres-ses-propos-sur-lci_242013.html)
+
+
 ### أياكس أمستردام (N/A, Sat, 9 Nov 2024 01:00:00 -0800)
 
 - **زياش: عندما لا يتعلق الأمر بالأطفال يفرون**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%B4-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%84%D8%A7-%D9%8A%D8%AA%D8%B9%D9%84%D9%82-%D8%A7%D9%84%D8%A3%D9%85%D8%B1-%D8%A8%D8%A7%D9%84%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D9%8A%D9%81%D8%B1-1461508.html)
