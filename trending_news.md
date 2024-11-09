@@ -1,3 +1,10 @@
+### kech24 (N/A, Fri, 8 Nov 2024 22:50:00 -0800)
+
+- **مشهد لا يوصف.. دهسوا مغربياً وحشروه بين سيارتين**: [Link](https://www.alarabiya.net/north-africa/morocco/2024/11/09/%D9%85%D8%B4%D9%87%D8%AF-%D9%84%D8%A7-%D9%8A%D9%88%D8%B5%D9%81-%D8%AF%D9%87%D8%B3%D9%88%D8%A7-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7%D9%8B-%D9%88%D8%AD%D8%B4%D8%B1%D9%88%D9%87-%D8%A8%D9%8A%D9%86-%D8%B3%D9%8A%D8%A7%D8%B1%D8%AA%D9%8A%D9%86)
+- **دهس عمدي يوقف 7 أشخاص بالبيضاء**: [Link](https://www.hespress.com/%D8%AF%D9%87%D8%B3-%D8%B9%D9%85%D8%AF%D9%8A-%D9%8A%D9%88%D9%82%D9%81-7-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D8%A8%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1461642.html)
+- **عاجل..اعتقال سبعة أشخاص تورطوا في اعتداء مرعب في الشارع الع...**: [Link](https://kech24.com/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D8%B3%D8%A8%D8%B9%D8%A9-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%85%D9%86-%D9%85%D8%A7%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%88%D8%B1%D8%B7%D9%88%D8%A7-%D9%81%D9%8A-%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D9%85%D8%B1%D8%B9%D8%A8-%D8%A8%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B1.html)
+
+
 ### susie wiles trump (N/A, Fri, 8 Nov 2024 16:40:00 -0800)
 
 - **Donald Trump picks Susie Wiles to be chief of staff**: [Link](https://www.politico.com/news/2024/11/07/donald-trump-susie-wiles-chief-of-staff-00188346)
