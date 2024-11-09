@@ -1,3 +1,11 @@
+### zidane real madrid (N/A, Sat, 9 Nov 2024 08:30:00 -0800)
+
+- **Zinedine Zidane’s stance on a return to Real Madrid as Carlo Ancelotti 
+wobbles**: [Link](https://sports.yahoo.com/zinedine-zidane-stance-return-real-112900382.html)
+- **Zidane's Return to Real Madrid Fully Excluded**: [Link](https://www.footboom1.com/en/news/football/2042265-zidane-s-return-to-real-madrid-fully-excluded)
+- **No plans for Real Madrid return as legendary manager eyes national team role**: [Link](https://madriduniversal.com/no-plans-for-real-madrid-return-as-legendary-manager-eyes-national-team-role/)
+
+
 ### cagliari – ac milan (N/A, Sat, 9 Nov 2024 08:10:00 -0800)
 
 - **Fonseca discusses his Leao ‘strategy’, prioritising Scudetto fight and fan 
