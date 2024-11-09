@@ -1,3 +1,18 @@
+### madrid real (N/A, Sat, 9 Nov 2024 06:10:00 -0800)
+
+- **Real Madrid: Alarma con Militao ante una nueva grave lesión de rodilla**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/09/alarma-militao-nueva-grave-lesion-rodilla.html)
+- **Rodrygo se lesiona**: [Link](https://as.com/futbol/primera/rodrygo-se-lesiona-n/)
+- **Ancelotti no se lo puede creer: ¡Tres lesionados en la primera parte!**: [Link](https://www.sport.es/es/noticias/real-madrid/ancelotti-creer-tres-lesionados-primera-111535972)
+
+
+### raul asencio (N/A, Sat, 9 Nov 2024 05:50:00 -0800)
+
+- **Real Madrid vs Osasuna 2024 live stream: Time, TV channels and how to watch 
+La Liga online**: [Link](https://www.managingmadrid.com/2024/11/9/24291396/real-madrid-osasuna-2024-live-stream-time-tv-how-to-watch-la-liga-online)
+- **Meet Asencio: Ancelotti's Choice for Real Madrid's Defense**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/meet-asencio-ancelotti-s-choice-for-real-madrid-s-defense-2024-11-08)
+- **Carlo Ancelotti: "Valverde is Looking Sharp and Ready to Play"**: [Link](https://www.footboom1.com/en/news/football/2041400-carlo-ancelotti-valverde-is-looking-sharp-and-ready-to-play)
+
+
 ### sankt pauli – bayern (N/A, Sat, 9 Nov 2024 05:50:00 -0800)
 
 - **FC Bayern: Überraschung von Vincent Kompany: Knaller in der Startelf!**: [Link](https://www.bild.de/sport/fussball/fc-bayern-ueberraschung-von-vincent-kompany-knaller-in-der-startelf-672f612b97f2db3e32b62244)
