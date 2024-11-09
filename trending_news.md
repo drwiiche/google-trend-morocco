@@ -1,3 +1,10 @@
+### سانت باولي ضد البايرن (N/A, Sat, 9 Nov 2024 06:10:00 -0800)
+
+- **كومباني: أطالب ديفيز بشيء واحد.. ولا أتدخل مع ناجلسمان**: [Link](https://www.kooora.com/?n=1366811)
+- **تقييم لاعبو بايرن ميونخ و سانت باولي في الشوط الأول**: [Link](https://hihi2.com/2024/11/09/p2928327.html)
+- **بث مباشر لمباراة بايرن ميونخ وسانت باولي في الدوري الألماني**: [Link](https://aboutmsr.com/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/)
+
+
 ### strasbourg – monaco (N/A, Sat, 9 Nov 2024 07:30:00 -0800)
 
 - **Guela Doué : « Avec Désiré, on s’est vraiment tirés vers le haut » - Ligue 
