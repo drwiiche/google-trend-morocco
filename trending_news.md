@@ -1,3 +1,11 @@
+### whatsapp (N/A, Fri, 8 Nov 2024 22:10:00 -0800)
+
+- **WhatsApp users in this country will need to pay licence fee to postal 
+department to become WhatsApp Group**: [Link](https://timesofindia.indiatimes.com/technology/social/whatsapp-users-in-this-country-will-need-to-pay-licence-fee-to-postal-department-to-become-whatsapp-group-admins/articleshow/115095958.cms)
+- **‘Data protection is the new game changer’**: [Link](https://www.herald.co.zw/data-protection-is-the-new-game-changer/)
+- **Zimbabwe introduces licensing for WhatsApp group admins**: [Link](https://techpoint.africa/2024/11/08/zimbabwe-licensing-whatsapp-group-admins/)
+
+
 ### jérusalem (N/A, Sat, 9 Nov 2024 01:30:00 -0800)
 
 - **Gendarmes expulsés en Israël : un camouflet pour la France**: [Link](https://www.lepoint.fr/monde/gendarmes-expulses-en-israel-un-camouflet-pour-la-france-08-11-2024-2574813_24.php)
