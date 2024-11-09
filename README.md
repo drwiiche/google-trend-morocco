@@ -1,3 +1,10 @@
+### امستردام (N/A, Sat, 9 Nov 2024 05:10:00 -0800)
+
+- **هولندا تحقق باشتباكات إسرائيليين مع مؤيدين لفلسطين**: [Link](https://www.aljazeera.net/news/2024/11/9/%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-2)
+- **زياش: عندما لا يتعلق الأمر بالأطفال يفرون**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%B4-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%84%D8%A7-%D9%8A%D8%AA%D8%B9%D9%84%D9%82-%D8%A7%D9%84%D8%A3%D9%85%D8%B1-%D8%A8%D8%A7%D9%84%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D9%8A%D9%81%D8%B1-1461508.html)
+- **ما الذي حصل فعلا في أمستردام؟ | رأي القدس**: [Link](https://www.alquds.co.uk/%D9%85%D8%A7-%D8%A7%D9%84%D8%B0%D9%8A-%D8%AD%D8%B5%D9%84-%D9%81%D8%B9%D9%84%D8%A7-%D9%81%D9%8A-%D8%A3%D9%85%D8%B3%D8%AA%D8%B1%D8%AF%D8%A7%D9%85%D8%9F/)
+
+
 ### real madrid – osasuna (N/A, Sat, 9 Nov 2024 04:10:00 -0800)
 
 - **Alineación posible del Real Madrid contra Osasuna en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-contra-osasuna-en-laliga-ea-sports-n-2/)
