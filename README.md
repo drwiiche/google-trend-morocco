@@ -1,3 +1,18 @@
+### ليفربول (N/A, Sat, 9 Nov 2024 13:40:00 -0800)
+
+- **أرنولد يتعرض للإصابة قبل 18 يوم من مواجهة ريال مدريد**: [Link](https://hihi2.com/2024/11/10/p2928943.html)
+- **قاهر الأساطير.. صلاح يهزم هنري مرتين في أسبوع**: [Link](https://www.kooora.com/?n=1367172)
+- **ليفربول يسعى لمواصلة تألقه عندما يستضيف أستون فيلا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%AA%D8%A3%D9%84%D9%82%D9%87-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-2024-11-09)
+
+
+### raja casablanca (N/A, Sat, 9 Nov 2024 13:10:00 -0800)
+
+- **Botola Pro D1 (10è journée): nul blanc entre le Moghreb Tétouan et le Raja 
+Casablanca**: [Link](https://fr.hespress.com/395513-botola-pro-d1-10e-journee-nul-blanc-entre-le-moghreb-tetouan-et-le-raja-casablanca.html)
+- **Botola Pro D1 Inwi: le MAT et le Raja se quittent bons amis**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-mat-et-le-raja-se-quittent-bons-amis_LM2PSSWIFVHXDO2SQNP627XAFM/)
+- **Le Raja sous pression avant son duel face au Moghreb de Tétouan**: [Link](https://snrtnews.com/fr/article/le-raja-sous-pression-avant-son-duel-face-au-moghreb-de-tetouan-106183)
+
+
 ### حسن أقصبي (N/A, Sat, 9 Nov 2024 13:20:00 -0800)
 
 - **الجامعة تعزي في وفاة حسن أقصبي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%B9%D8%B2%D9%8A-%D9%81%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D8%AD%D8%B3%D9%86-%D8%A3%D9%82%D8%B5%D8%A8%D9%8A-1462012.html)
