@@ -1,3 +1,22 @@
+### brentford – bournemouth (N/A, Sat, 9 Nov 2024 07:10:00 -0800)
+
+- **Injury update: Thiago and Nunes to feature in behind-closed-doors friendly**: [Link](https://www.brentfordfc.com/en/news/article/first-team-igor-thiago-gustavo-nunes-injury-update)
+- **Premier League LIVE: Build-up to Brentford v Bournemouth (15:00 GMT 
+kick-off) plus five other games**: [Link](https://www.bbc.co.uk/sport/football/live/clywvkqp91vt)
+- **Cherries travel to London to face Bees in final clash before international 
+break**: [Link](https://www.bournemouthecho.co.uk/sport/24711876.afc-bournemouth-travel-brentford-team-news-head-to-head/)
+
+
+### aguerd (N/A, Sat, 9 Nov 2024 07:10:00 -0800)
+
+- **Partey absence continues as Ghana call up duo Antwi and Simpson for crunch 
+matches**: [Link](https://www.cafonline.com/caf-africa-cup-of-nations/news/partey-absence-continues-as-ghana-call-up-duo-antwi-and-simpson-for-crunch-matches/)
+- **2025 AFCON qualifiers: Black Stars to open camp on Sunday ahead of Angola 
+and Niger games**: [Link](https://ghanasoccernet.com/2025-afcon-qualifiers-black-stars-to-open-camp-on-sunday-ahead-of-angola-and-niger-games)
+- **International manager axes Arsenal star from the national team after 
+speaking to him**: [Link](https://onefootball.com/id/berita/international-manager-axes-arsenal-star-from-the-national-team-after-speaking-to-him-40285440)
+
+
 ### west ham – everton (N/A, Sat, 9 Nov 2024 06:40:00 -0800)
 
 - **Good News At Last To Uplift Irons’ Spirits**: [Link](https://www.claretandhugh.info/good-news-at-last-to-uplift-irons-spirits/)
