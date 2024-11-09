@@ -1,3 +1,19 @@
+### west ham – everton (N/A, Sat, 9 Nov 2024 06:40:00 -0800)
+
+- **Good News At Last To Uplift Irons’ Spirits**: [Link](https://www.claretandhugh.info/good-news-at-last-to-uplift-irons-spirits/)
+- **Julen Lopetegui insists he has 'a lot of time' to turn things around and 
+plays down pressure after the Hammers**: [Link](https://www.dailymail.co.uk/sport/football/article-14058427/Julen-Lopetegui-turn-things-pressure-Hammers-poor-start.html)
+- **Everton face anxious wait on Dwight McNeil as doubts raised ahead of West 
+Ham United clash**: [Link](https://www.goodisonnews.com/2024/11/09/everton-face-anxious-wait-on-dwight-mcneil-as-doubts-raised-ahead-of-west-ham-united-clash/)
+
+
+### laliga (N/A, Sat, 9 Nov 2024 06:40:00 -0800)
+
+- **The two LaLiga players who could sign for Villarreal**: [Link](https://www.fichajes.net/en/news/the-two-laliga-players-who-could-sign-for-villarreal-20241109.html)
+- **The LaLiga club that strongly backs Luis Milla**: [Link](https://www.fichajes.net/en/news/the-laliga-club-that-strongly-backs-luis-milla-20241106.html)
+- **'Hard to talk about football': Real Madrid's Ancelotti after floods**: [Link](https://www.nbc39.com/news/national/hard-to-talk-about-football-real-madrids-ancelotti-after-floods/article_b8e93f53-031e-5c24-a682-3790c28dbda5.html)
+
+
 ### villarreal – deportivo alavés (N/A, Sat, 9 Nov 2024 06:30:00 -0800)
 
 - **Villarreal - Alavés | Luto por la DANA en La Cerámica: previa, análisis, 
