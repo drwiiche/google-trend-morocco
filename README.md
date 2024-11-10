@@ -1,3 +1,12 @@
+### atalanta – udinese (N/A, Sun, 10 Nov 2024 03:40:00 -0800)
+
+- **Dal ribaltone Inter al malinteso Napoli: ora Samardzic vuole prendersi solo 
+l'Atalanta**: [Link](https://www.tuttomercatoweb.com/serie-a/dal-ribaltone-inter-al-malinteso-napoli-ora-samardzic-vuole-prendersi-solo-l-atalanta-2033363)
+- **Percassi: “Fatto le corse per finire lo stadio in breve. I sold out sono 
+motivo di soddisfazione”**: [Link](https://www.alfredopedulla.com/percassi-fatto-le-corse-per-finire-lo-stadio-in-breve-i-sold-out-sono-motivo-di-soddisfazione/)
+- **Kamara: "Oggi la mentalità è fondamentale"**: [Link](https://www.udinese.it/news/squadra/kamara-oggi-la-mentalita-e-fondamentale)
+
+
 ### georgina cooper (N/A, Sun, 10 Nov 2024 02:30:00 -0800)
 
 - **Supermodel Georgina Cooper dead aged 46: Shocked fashion world mourns one 
