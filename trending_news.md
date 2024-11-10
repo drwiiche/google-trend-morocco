@@ -1,3 +1,22 @@
+### manchester united – leicester (N/A, Sun, 10 Nov 2024 05:10:00 -0800)
+
+- **United Injury Updates: Kobbie Mainoo, Tyrell Malacia, Leny Yoro, Harry 
+Maguire, Luke Shaw**: [Link](https://www.thesportsbank.net/football/manchester-united/mainoo-yoro-shaw/)
+- **Man United handed Amad boost as four drop team news hint for Leicester City**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-united-handed-amad-boost-30337608)
+- **Premier League: Build-up to three games at 14:00 GMT, including Man Utd v 
+Leicester**: [Link](https://www.bbc.com/sport/football/live/clygd5z1n90t)
+
+
+### tottenham – ipswich town (N/A, Sun, 10 Nov 2024 05:10:00 -0800)
+
+- **Tottenham team confirmed vs Ipswich Town - Cristian Romero returns and 
+attacker back from injury**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/tottenham-team-confirmed-vs-ipswich-30338598)
+- **Will Son Heung-min (33) be able to make a turnaround on the situation of 
+early replacement for the s..**: [Link](https://www.mk.co.kr/en/sports/11163972)
+- **Tottenham could set new all-time Premier League record with victory over 
+Ipswich Town**: [Link](https://www.sportsmole.co.uk/football/spurs/news/comeback-kings-spurs-could-make-premier-league-history-with-ipswich-win_557788.html)
+
+
 ### betis – celta vigo (N/A, Sun, 10 Nov 2024 04:10:00 -0800)
 
 - **Betis - Celta | Con los focos en Lo Celso y Borja Iglesias: previa, 
