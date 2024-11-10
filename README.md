@@ -1,3 +1,10 @@
+### mohammed dkhissi (N/A, Sat, 9 Nov 2024 15:50:00 -0800)
+
+- **Coopération sécuritaire: le Maroc prend le flambeau d’Interpol**: [Link](https://fr.le360.ma/politique/cooperation-securitaire-le-maroc-prend-le-flambeau-dinterpol_W73ZLSDANJHNXF7ZP4L2JARLWU/)
+- **Qui est Mohamed Dkhissi, le nouveau Monsieur Afrique d’Interpol**: [Link](https://medias24.com/2024/11/08/qui-est-mohammed-dkhissi-le-nouveau-monsieur-afrique-dinterpol/)
+- **Hammouchi reçoit le drapeau d’Interpol pour préparer son AG au Maroc en 2025**: [Link](https://lematin.ma/nation/hammouchi-recoit-le-drapeau-dinterpol-pour-preparer-son-ag-au-maroc/250552)
+
+
 ### inter miami – atlanta utd (N/A, Sat, 9 Nov 2024 16:20:00 -0800)
 
 - **Inter Miami Predicted Lineup vs. Atlanta United: MLS Cup Playoffs**: [Link](https://www.si.com/soccer/inter-miami-predicted-lineup-vs-atlanta-united-mls-cup-playoffs-11-9-24)
