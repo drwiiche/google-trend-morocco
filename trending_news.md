@@ -1,3 +1,11 @@
+### rennes – toulouse (N/A, Sun, 10 Nov 2024 08:30:00 -0800)
+
+- **Ligue 1 : Sampaoli bien présent en tribunes au Roazhon Park pour le match 
+entre Rennes et Toulouse**: [Link](https://www.lequipe.fr/Football/Actualites/Sampaoli-bien-present-en-tribunes-au-roazhon-park-pour-le-match-entre-rennes-et-toulouse/1519521)
+- **PRONOS PARIS RMC Le pari football de Coach Courbis du 10 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-coach-courbis-du-10-novembre-ligue-1_AN-202411100234.html)
+- **Stade Rennais - Toulouse : Les compositions (17h sur DAZN 3)**: [Link](https://www.foot01.com/ligue1/stade-rennais-toulouse-les-compositions-17h-sur-dazn-3-445298)
+
+
 ### atletico madrid (N/A, Sun, 10 Nov 2024 08:20:00 -0800)
 
 - **RCD Mallorca vs Atletico Madrid: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2024/11/10/rcd-mallorca-vs-atletico-madrid-preview-and-prediction-2/)
