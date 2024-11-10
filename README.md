@@ -1,3 +1,12 @@
+### classement liga (N/A, Sun, 10 Nov 2024 13:50:00 -0800)
+
+- **Majorque 0-1 Atlético de Madrid, La Liga : résumé du match (10/11/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/majorque-atletico-de-madrid-live/657405)
+- **Majorque - Atlético Madrid en direct - La Liga : Football Scores & 
+Résultats - 10/11/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-majorque-atletico-madrid_mtc1524061/live.shtml)
+- **Muriqi : "Le style de Simeone à l'Atleti me plaît énormément ; c'est une 
+équipe qui mord et presse"**: [Link](https://www.footboom1.com/fr/news/football/2045910-muriqi-simeone-s-style-at-atleti-appeals-to-me-greatly-it-s-a-team-that-bites-and-presses)
+
+
 ### la liga standings (N/A, Sun, 10 Nov 2024 14:20:00 -0800)
 
 - **La Liga Soccer Livestream: How to Watch Real Madrid vs. Osasuna From 
