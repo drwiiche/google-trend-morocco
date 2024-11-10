@@ -1,3 +1,27 @@
+### betis – celta vigo (N/A, Sun, 10 Nov 2024 04:10:00 -0800)
+
+- **Betis - Celta | Con los focos en Lo Celso y Borja Iglesias: previa, 
+análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2024/11/10/betis-celta-focos-celso-borja-iglesias-previa-analisis-pronostico-prediccion.html)
+- **Betis - Celta en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-ea-sports/betis-celta/2024/11/10/01_0101_20241110_185_176-directo.html)
+- **Betis - Celta: Una autoridad en la Liga**: [Link](https://www.diariodesevilla.es/realbetis/betis-celta-autoridad-liga_0_2002758010.html)
+
+
+### galatasaray – samsunspor (N/A, Sun, 10 Nov 2024 04:10:00 -0800)
+
+- **Galatasaray, en yakın takipçisi Samsunspor karşısında: İlk 11'ler belli oldu**: [Link](https://www.ntv.com.tr/galeri/sporskor/galatasaray-en-yakin-takipcisi-samsunspor-karsisinda-ilk-11ler-belli-oldu,Hpkin__1MkWYMTf6TFym8w)
+- **Galatasaray - Samsunspor maçı saat kaçta, ne zaman? Galatasaray - 
+Samsunspor maçı hangi kanalda? (İlk 11'ler)**: [Link](https://www.ntvspor.net/futbol/galatasaray-samsunspor-maci-saat-kacta-ne-zaman-galatasaray-samsunspor-maci-hangi-kanalda-ilk-11-ler-672df9497c338f03f75e9c6e)
+- **CANLI | Galatasaray'ın konuğu Samsunspor! Süper Lig'de heyecan dolu maç**: [Link](https://www.milliyet.com.tr/skorer/live-galatasarayin-konugu-samsunspor-super-ligde-heyecan-dolu-mac-7230428)
+
+
+### rodrygo (N/A, Sun, 10 Nov 2024 04:10:00 -0800)
+
+- **Parte médico de Militão**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-09-11-2024)
+- **Un mes sin Lucas ni Rodrygo**: [Link](https://as.com/futbol/primera/un-mes-sin-lucas-y-rodrygo-n/)
+- **Álvaro Benito pone el foco en un posible responsable de la grave lesión de 
+Militao: "Hay que darle una vuelta a la superficie"**: [Link](https://cadenaser.com/nacional/2024/11/09/alvaro-benito-pone-el-foco-en-un-posible-responsable-de-la-grave-lesion-de-militao-hay-que-darle-una-vuelta-a-la-superficie-cadena-ser/)
+
+
 ### atalanta – udinese (N/A, Sun, 10 Nov 2024 03:40:00 -0800)
 
 - **Dal ribaltone Inter al malinteso Napoli: ora Samardzic vuole prendersi solo 
