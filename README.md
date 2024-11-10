@@ -1,3 +1,12 @@
+### manchester united (N/A, Sun, 10 Nov 2024 06:50:00 -0800)
+
+- **Premier League: Man Utd 2-0 up, Nottm Forest lead Newcastle, Ipswich 
+winning at Spurs**: [Link](https://www.bbc.com/sport/football/live/clygd5z1n90t)
+- **The Premier League: Follow all the action in our live blog**: [Link](https://www.joe.co.uk/sport/the-premier-league-follow-all-the-action-in-our-live-blog-6-464222)
+- **Manchester United vs Leicester, Nottingham Forest vs Newcastle and More: 
+Live Football Action**: [Link](https://www.footboom1.com/en/news/football/2047471-manchester-united-vs-leicester-nottingham-forest-vs-newcastle-and-more-live-football-action)
+
+
 ### man united (N/A, Sun, 10 Nov 2024 06:30:00 -0800)
 
 - **Football gossip: Danilo, Diomande, Ramos, Davies, Gyokeres, Marmoush**: [Link](https://www.bbc.com/sport/football/articles/ckg06rpl0yxo)
