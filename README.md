@@ -1,3 +1,12 @@
+### georgina cooper (N/A, Sun, 10 Nov 2024 02:30:00 -0800)
+
+- **Supermodel Georgina Cooper dead aged 46: Shocked fashion world mourns one 
+of the faces of 90s 'Cool Britannia'**: [Link](https://www.dailymail.co.uk/news/article-14059203/Supermodel-Georgina-Cooper-dead-aged-46-Shocked-fashion-world-mourns-one-faces-90s-Cool-Britannia-friend-Kate-Moss-death-Greek-island-Kos.html)
+- **Model Georgina Cooper, the Face of Cool Britannia, Dies at 46**: [Link](https://wwd.com/fashion-news/fashion-features/georgina-cooper-model-dies-at-1236715447/)
+- **Was COVID-19 The Cause Of Supermodel Georgina Cooper's Brain Hemorrhage 
+That Resulted In Her Death? Find Out**: [Link](https://www.timesnownews.com/health/was-covid-19-the-cause-of-supermodel-georgina-coopers-brain-hemorrhage-that-resulted-in-her-death-find-out-article-115102934)
+
+
 ### la cage netflix (N/A, Sun, 10 Nov 2024 01:20:00 -0800)
 
 - **‘The Cage’ Netflix Review: Stream It Or Skip It?**: [Link](https://decider.com/2024/11/09/the-cage-2024-netflix-review/)
