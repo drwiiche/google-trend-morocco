@@ -1,3 +1,24 @@
+### real sociedad (N/A, Sun, 10 Nov 2024 12:00:00 -0800)
+
+- **Barcelona confirm Hector Fort out of Real Sociedad clash with injury**: [Link](https://www.barcablaugranes.com/2024/11/10/24292630/barcelona-confirm-hector-fort-out-of-real-sociedad-clash-with-injury)
+- **Preview: Time for a Reaction**: [Link](https://www.footboom1.com/en/news/football/2046010-preview-time-for-a-reaction)
+- **Yamal could miss Barca's trip to Real Sociedad**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles/yamal-could-miss-barca-s-trip-to-real-sociedad-2024-11-09)
+
+
+### lyon – saint-étienne (N/A, Sun, 10 Nov 2024 12:00:00 -0800)
+
+- **DIRECT. OL-ASSE (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/lyon-asse-live/655949)
+- **L’histoire derrière le chant « Emmenez-moi », devenu le symbole du derby**: [Link](https://www.20minutes.fr/sport/football/ligue-1/4120094-20241110-ol-asse-presque-poetique-comment-chant-lyonnais-emmenez-devenu-symbole-ultime-derby)
+- **OL - ASSE : Pétrot ne veut "pas jouer le derby avant le derby"**: [Link](https://www.olympique-et-lyonnais.com/ol-asse-petrot-ne-veut-pas-jouer-le-derby-avant-le-derby,343917.html)
+
+
+### inter vs napoli (N/A, Sun, 10 Nov 2024 11:50:00 -0800)
+
+- **Journalist reveals Lukaku’s unanswered question ahead of Inter reunion**: [Link](https://football-italia.net/lukaku-unanswered-question-inter-napoli/)
+- **Can Antonio Conte take Napoli to the Scudetto?**: [Link](https://www.fotmob.com/ja/topnews/16240-can-antonio-conte-take-napoli-scudetto?utm_source=fotmob)
+- **Internazionale - Napoli live: Serie A - Football**: [Link](https://www.tntsports.co.uk/football/serie-a/2024-2025/live-internazionale-napoli_mtc1533863/live-commentary.shtml)
+
+
 ### braga – sporting (N/A, Sun, 10 Nov 2024 11:30:00 -0800)
 
 - **O estranho adeus de Ruben Amorim: deixou as coisas na academia do Sporting, 
