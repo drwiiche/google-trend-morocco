@@ -1,3 +1,12 @@
+### chelsea (N/A, Sun, 10 Nov 2024 10:20:00 -0800)
+
+- **Chelsea v Arsenal: 'A work in progress' - how Enzo Maresca is turning Blues 
+fortunes around**: [Link](https://www.bbc.com/sport/football/articles/cx2n9r0lr03o)
+- **Chelsea star reveals heartwarming reason for his glowing form this season**: [Link](https://metro.co.uk/2024/11/07/chelsea-star-reveals-heartwarming-reason-glowing-form-this-season-21949491/)
+- **'Changed a lot' - Colwill hints dig at Pochettino after Maresca's key 
+Chelsea change**: [Link](https://www.si.com/onsi/soccer/chelsea/news/levi-colwill-hints-pochettino-dig-maresca-key-chelsea-change-01jbq7ebb51m)
+
+
 ### 11 novembre (N/A, Sun, 10 Nov 2024 10:00:00 -0800)
 
 - **Lundi 11 novembre à Rennes : tabac, commerces, boulangeries... Ce qui est 
