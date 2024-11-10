@@ -1,3 +1,10 @@
+### la liga (N/A, Sun, 10 Nov 2024 13:20:00 -0800)
+
+- **Real Sociedad 1-0 Barcelona (Nov 10, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704786)
+- **Real Sociedad puts the brakes on Barcelona**: [Link](https://www.marca.com/en/football/spanish-football/2024/11/11/673138e946163ff23b8b457d.html)
+- **European football: Barcelona suffer shock defeat against Real Sociedad**: [Link](https://www.theguardian.com/football/2024/nov/10/european-football-roundup-barcelona-inter-napoli-roma)
+
+
 ### gladiator 2 (N/A, Sun, 10 Nov 2024 14:40:00 -0800)
 
 - **Gladiator 2’s Ridley Scott addresses Barry Keoghan’s sudden exit: ‘He’s a 
