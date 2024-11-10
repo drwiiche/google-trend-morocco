@@ -1,3 +1,17 @@
+### real sociedad – barcelone (N/A, Sun, 10 Nov 2024 11:00:00 -0800)
+
+- **Real Sociedad - Barcelona en directo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/real-sociedad-barcelona/2024/11/10/01_0101_20241110_188_178-directo.html)
+- **Que el ritmo no pare en San Sebastián**: [Link](https://www.sport.es/es/noticias/barca/previa-real-sociedad-barcelona-laliga-111539844)
+- **Real Sociedad - Barcelona, en directo | LaLiga EA Sports de fútbol**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241110/1002347999/real-sociedad-barcelona-directo-hoy-laliga-ea-sports-futbol-vivo.html)
+
+
+### 11 novembre maroc (N/A, Sun, 10 Nov 2024 11:00:00 -0800)
+
+- **Le temps qu'il fera ce dimanche 10 novembre 2024**: [Link](https://fr.hespress.com/395394-le-temps-quil-fera-ce-dimanche-10-novembre-2024.html)
+- **Météo: les couleurs du ciel et les températures ce dimanche 10 novembre**: [Link](https://www.h24info.ma/meteo-les-couleurs-du-ciel-et-les-temperatures-ce-dimanche-10-novembre/)
+- **Quel temps pour ce lundi 11 novembre ?**: [Link](https://www.menara.ma/fr/article/quel-temps-pour-ce-lundi-11-novembre)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Sun, 10 Nov 2024 10:30:00 -0800)
 
 - **ليفربول يتطلع لتعزيز قبضته على البريميرليج.. والسيتي لنفض غبار الهزائم**: [Link](https://www.kooora.com/?n=1366793)
