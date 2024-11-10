@@ -1,3 +1,12 @@
+### braga – sporting (N/A, Sun, 10 Nov 2024 11:30:00 -0800)
+
+- **O estranho adeus de Ruben Amorim: deixou as coisas na academia do Sporting, 
+não se conseguiu despedir dos funcionários, mas o coração continua a ser 
+vermelho**: [Link](https://www.tvguia.pt/estrelas/detalhe/o-estranho-adeus-de-ruben-amorim-deixou-as-coisas-na-academia-do-sporting-nao-se-conseguiu-despedir-dos-funcionarios-mas-o-coracao-continua-a-ser-vermelho)
+- **VÍDEO: Ricardo Horta inaugura o marcador após erro de Debast**: [Link](https://www.abola.pt/futebol/noticias/video-ricardo-horta-inaugura-o-marcador-apos-erro-de-debast-2024111019204161175)
+- **Santa Clara vence Vitória de Guimarães e pressiona Sporting de Braga**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/santa-clara-vence-vitoria-de-guimaraes-e-pressiona-sporting-de-braga)
+
+
 ### برشلونة (N/A, Sun, 10 Nov 2024 11:20:00 -0800)
 
 - **بويول: يؤسفني عدم مزاملة سواريز.. وهذه أسرار نجاح جوارديولا**: [Link](https://www.kooora.com/?n=1367290)
