@@ -1,3 +1,20 @@
+### chelsea – arsenal (N/A, Sun, 10 Nov 2024 07:40:00 -0800)
+
+- **Midfielder may have accidentally shown just what Enzo Maresca is preparing 
+his players for against Arsenal**: [Link](https://chelsea.news/2024/11/lavia-preparing-arsenal/)
+- **Lavia proud to be now proving himself at Chelsea**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-lavia-proud-to-be-now-proving-himself-at-chelsea-da0c0e07-6805-4211-a069-a495bbcd9cf8)
+- **Chelsea fans’ preferred lineup against Arsenal: Christopher Nkunku if Cole 
+Palmer can’t go**: [Link](https://weaintgotnohistory.sbnation.com/2024/11/10/24292619/chelsea-fans-preferred-lineup-against-arsenal-christopher-nkunku-if-cole-palmer-cant-go)
+
+
+### pronostics pmu quinté (N/A, Sun, 10 Nov 2024 07:40:00 -0800)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 2 Short Final**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-2-short-final-125949.html)
+- **Paris-Vincennes Prix d'Arcachon**: [Link](https://www.paris-turf.com/course/paris-vincennes-prix-darcachon-idc-b38903166896fc165f64ea127e4914c5)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 12 Destiny 
+Di Poggio**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-12-destiny-di-poggio-125934.html)
+
+
 ### tottenham vs ipswich town (N/A, Sun, 10 Nov 2024 07:00:00 -0800)
 
 - **TEAM NEWS | SPURS (A)**: [Link](https://www.itfc.co.uk/news/2024/november/10/Tottenham-Hotspur-Ipswich-Town-team-news-November/)
