@@ -1,3 +1,10 @@
+### حسن اقصبي (N/A, Sun, 10 Nov 2024 11:10:00 -0800)
+
+- **الجامعة تعزي في وفاة حسن أقصبي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%B9%D8%B2%D9%8A-%D9%81%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D8%AD%D8%B3%D9%86-%D8%A3%D9%82%D8%B5%D8%A8%D9%8A-1462012.html)
+- **كرة القدم المغربية تفقد أحد أساطيرها**: [Link](https://www.akhbarona.com/sport/lionatlas/395394.html)
+- **لقجع يعزي في وفاة لاعب المنتخب المغربي السابق حسن أقصبي**: [Link](https://ar.hibapress.com/details-571857.html)
+
+
 ### real sociedad – barcelone (N/A, Sun, 10 Nov 2024 11:00:00 -0800)
 
 - **Real Sociedad - Barcelona en directo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/real-sociedad-barcelona/2024/11/10/01_0101_20241110_188_178-directo.html)
