@@ -1,3 +1,18 @@
+### la liga table (N/A, Sun, 10 Nov 2024 14:00:00 -0800)
+
+- **Football: Spanish La Liga table**: [Link](https://www.bssnews.net/sports/222092)
+- **La Liga Soccer Livestream: How to Watch Real Madrid vs. Osasuna From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-real-madrid-vs-osasuna-from-anywhere/)
+- **Meet Asencio: Ancelotti's Choice for Real Madrid's Defense**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/meet-asencio-ancelotti-s-choice-for-real-madrid-s-defense-2024-11-08)
+
+
+### لا ليغا (N/A, Sun, 10 Nov 2024 13:50:00 -0800)
+
+- **جيرونا يواصل صحوته بإسقاط خيتافي.. وبلباو يخطف تعادلا قاتلا**: [Link](https://m.kooora.com/?n=1367388&o=n27345)
+- **الفريق الإسباني الذي يسير على نهج برشلونة**: [Link](https://hihi2.com/2024/11/09/p2928058.html)
+- **الدوري الإسباني.. جيرونا يتفوق على خيتافي.. وأتلتيك بلباو يعود من بعيد**: [Link](https://www.yallakora.com/la-liga/2907/news/489401/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D9%88%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%8A%D8%B9%D9%88%D8%AF-%D9%85%D9%86-%D8%A8%D8%B9%D9%8A%D8%AF)
+
+
 ### laliga (N/A, Sun, 10 Nov 2024 13:30:00 -0800)
 
 - **Just in: Hansi Flick benches Lamine Yamal due to a slight injury**: [Link](https://barcauniversal.com/just-in-hansi-flick-benches-yamal-due-to-a-slight-injury/)
