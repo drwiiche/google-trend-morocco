@@ -1,3 +1,12 @@
+### nottm forest – newcastle (N/A, Sun, 10 Nov 2024 05:20:00 -0800)
+
+- **West Ham United 0-0 Everton: Bore draw keeps pressure on Hammers boss 
+Lopetegui**: [Link](https://www.bbc.com/sport/football/live/cwy9k9y83e1t)
+- **Manchester United vs Leicester City LIVE: Premier League team news, 
+line-ups and more**: [Link](https://www.aol.com/manchester-united-vs-leicester-city-120020006.html)
+- **Lopetegui used to working under pressure amid West Ham scrutiny**: [Link](https://www.sportsmax.tv/football/international/item/154407-lopetegui-used-to-working-under-pressure-amid-west-ham-scrutiny)
+
+
 ### manchester united – leicester (N/A, Sun, 10 Nov 2024 05:10:00 -0800)
 
 - **United Injury Updates: Kobbie Mainoo, Tyrell Malacia, Leny Yoro, Harry 
