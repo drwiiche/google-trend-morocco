@@ -1,3 +1,11 @@
+### kamel daoud (N/A, Sun, 10 Nov 2024 01:00:00 -0800)
+
+- **Kamel Daoud, prix Goncourt : "Je me suis demandé pourquoi ma mère n’a pas 
+eu droit à une vie et de la liberté ?"**: [Link](https://www.lamontagne.fr/brive-la-gaillarde-19100/loisirs/kamel-daoud-prix-goncourt-je-me-suis-demande-pourquoi-ma-mere-na-pas-eu-droit-a-une-vie-et-de-la-liberte_14592735/)
+- **Kamel Daoud, un Goncourt contre l’assignation identitaire**: [Link](https://www.lemonde.fr/idees/article/2024/11/08/kamel-daoud-un-goncourt-contre-l-assignation-identitaire_6383142_3232.html)
+- **Un film révèle comment et pourquoi Kamel Daoud a obtenu le prix Goncourt**: [Link](https://www.algeriepatriotique.com/2024/11/09/un-film-revele-comment-et-pourquoi-kamel-daoud-a-obtenu-le-prix-goncourt/)
+
+
 ### éder militão (N/A, Sun, 10 Nov 2024 00:50:00 -0800)
 
 - **Modric: I hope this win will be a turning point in the season**: [Link](https://www.ysscores.com/en/news/6797393/Modric:-I-hope-this-win-will-be-a-turning-point-in-the-season)
