@@ -1,3 +1,34 @@
+### ترتيب الدوري الاسباني (N/A, Sun, 10 Nov 2024 12:50:00 -0800)
+
+- **فينيسيوس يضيق الخناق على ليفاندوفسكي**: [Link](https://www.kooora.com/?n=1367075)
+- **دياز: "جماهير ريال مدريد تستحق الفرح من جديد وينفطر قلبي حينما أُشاهد زميلا 
+لي يبكي بسبب الإصابة"**: [Link](https://m.elbotola.com/article/2024-11-10-11-19-57.html)
+- **أنشيلوتي يكشف سر عودة ريال مدريد إلى الفوز!**: [Link](https://hihi2.com/2024/11/10/p2929349.html)
+
+
+### fcb vs (N/A, Sun, 10 Nov 2024 12:50:00 -0800)
+
+- **Match report: Bullets 2-0 Kamuzu Barracks**: [Link](https://nyasabigbullets.com/top-stories/match-report-bullets-2-0-kamuzu-barracks/)
+- **Historic K116 Million Grossed as FCB Nyasa Big Bullets Secure Airtel Top 8 
+Glory**: [Link](https://www.footboom1.com/en/news/football/2045711-historic-k116-million-grossed-as-fcb-nyasa-big-bullets-secure-airtel-top-8-glory)
+- **Pasuwa triumphs over Mponda**: [Link](https://www.capitalradiomalawi.com/2024/11/09/pasuwa-triumphs-over-mponda/)
+
+
+### lewandowski (N/A, Sun, 10 Nov 2024 12:50:00 -0800)
+
+- **Wielka burza w Hiszpanii. Robert Lewandowski w centrum kontrowersji**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/laliga/wielka-burza-w-hiszpanii-robert-lewandowski-w-centrum-kontrowersji/nrqlxgb)
+- **Lewandowski z golem, gdyby nie... czubek buta**: [Link](https://kanalsportowy.pl/pilka-nozna/lewandowski-cieszyl-sie-z-gola-radosc-zakonczyl/)
+- **Robert Lewandowski pozbawiony gola. Zdecydował... czubek buta**: [Link](https://transfery.info/aktualnosci/robert-lewandowski-pozbawiony-gola-zdecydowal-czubek-buta/227847)
+
+
+### barcelona vs (N/A, Sun, 10 Nov 2024 12:20:00 -0800)
+
+- **Segundo Alejandro Castillo: “Nos jugamos llegar a Copa Libertadores o a una 
+final incluso…”**: [Link](https://onefootball.com/es/noticias/segundo-alejandro-castillo-nos-jugamos-llegar-a-copa-libertadores-o-a-una-final-incluso-40287046)
+- **En vivo | Barcelona SC vs. Cumbayá, por la fecha 13 de la Liga Pro**: [Link](https://www.ecuavisa.com/deportes/futbol-nacional/envivo-barcelona-cumbaya-fecha13-resultado-ligapro-BA8288704)
+- **EN VIVO | Barcelona SC gana a Cumbayá por la LigaPro con gol de Eduard Bello**: [Link](https://www.primicias.ec/deportes/envivo-barcelona-sporting-club-cumbaya-ligapro-resultado-82936/)
+
+
 ### barça (N/A, Sun, 10 Nov 2024 12:20:00 -0800)
 
 - **Lamine Yamal, baja en Anoeta por una lesión en el tobillo**: [Link](https://www.marca.com/futbol/barcelona/2024/11/10/lamine-yamal-baja-lesion-anoeta.html)
