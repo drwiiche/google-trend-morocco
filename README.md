@@ -1,3 +1,10 @@
+### mallorca vs atlético madrid (N/A, Sun, 10 Nov 2024 09:20:00 -0800)
+
+- **Mallorca - Atlético, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/mallorca-atletico/2024/11/10/01_0101_20241110_181_175-directo.html)
+- **Liga | El Atlético de Madrid recupera la esencia del "Cholismo"**: [Link](https://www.fichajes.com/a6536249228183848944-liga-el-atletico-de-madrid-recupera-la-esencia-del-cholismo)
+- **El Atlético gana en Son Moix gracias a un gol de la ‘Araña’ y a Oblak**: [Link](https://onefootball.com/es/noticias/el-atletico-gana-en-son-moix-gracias-a-un-gol-de-la-arana-y-a-oblak-40291688)
+
+
 ### arsenal (N/A, Sun, 10 Nov 2024 09:00:00 -0800)
 
 - **Enzo Maresca delivers Cole Palmer fitness update ahead of Arsenal | News | 
