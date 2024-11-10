@@ -1,3 +1,17 @@
+### atletico madrid (N/A, Sun, 10 Nov 2024 08:20:00 -0800)
+
+- **RCD Mallorca vs Atletico Madrid: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2024/11/10/rcd-mallorca-vs-atletico-madrid-preview-and-prediction-2/)
+- **Jagoba Arrasate: "We Need to be Effective in the Areas"**: [Link](https://www.footboom1.com/en/news/football/2043390-jagoba-arrasate-we-need-to-be-effective-in-the-areas)
+- **Soccer-Simeone wants Atletico to build on momentum after PSG win**: [Link](https://www.msn.com/en-ae/sports/football/soccer-simeone-wants-atletico-to-build-on-momentum-after-psg-win/ar-AA1tN5HE)
+
+
+### توتنهام ضد إيبسويتش تاون (N/A, Sun, 10 Nov 2024 07:40:00 -0800)
+
+- **إيبسويتش يحصد انتصاره الأول بالبريميرليج عبر بوابة توتنهام**: [Link](https://m.kooora.com/?n=1367322&o=n)
+- **اهداف مباراة ابسويتش تاون وتوتنهام في الدوري الانجليزي**: [Link](https://www.btolat.com/video/81648)
+- **التحدي المقبل لـ توتنهام بعد الهزيمة أمام إبسويتش تاون**: [Link](https://hihi2.com/2024/11/10/p2930124.html)
+
+
 ### fenerbahçe – sivasspor (N/A, Sun, 10 Nov 2024 07:50:00 -0800)
 
 - **Zeki Murat Göle'den sakatlık vurgusu: Fenerbahçe'de kadro tercihinin arka 
