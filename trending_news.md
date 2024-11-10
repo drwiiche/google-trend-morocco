@@ -1,3 +1,11 @@
+### المغرب (N/A, Sat, 9 Nov 2024 20:10:00 -0800)
+
+- **بعد إعلان نتائج الإحصاء العام.. مغاربة: هل نسير نحو الانقراض؟**: [Link](https://www.alhurra.com/maghreb-voices/2024/11/08/%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%86%D8%B3%D9%8A%D8%B1-%D9%86%D8%AD%D9%88-%D8%A7%D9%84%D8%A7%D9%86%D9%82%D8%B1%D8%A7%D8%B6%D8%9F)
+- **تراجع النمو السكاني في المغرب .. باحثون يرصدون تغير "السلوك الإنجابي"**: [Link](https://www.hespress.com/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D9%86%D9%85%D9%88-%D8%A7%D9%84%D8%B3%D9%83%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D8%A7%D8%AD%D8%AB%D9%88%D9%86-1461894.html)
+- **نتائج الإحصاء العام بالمغرب: أهم 7 تحولات ديمغرافية في التركيبة السكانية 
+للمملكة**: [Link](https://ar.le360.ma/economie/AUUYNUNZ7ZG5XDILUEWEJWDDTQ/)
+
+
 ### mohammed dkhissi (N/A, Sat, 9 Nov 2024 15:50:00 -0800)
 
 - **Coopération sécuritaire: le Maroc prend le flambeau d’Interpol**: [Link](https://fr.le360.ma/politique/cooperation-securitaire-le-maroc-prend-le-flambeau-dinterpol_W73ZLSDANJHNXF7ZP4L2JARLWU/)
