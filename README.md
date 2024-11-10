@@ -1,3 +1,29 @@
+### برشلونة (N/A, Sun, 10 Nov 2024 11:20:00 -0800)
+
+- **بويول: يؤسفني عدم مزاملة سواريز.. وهذه أسرار نجاح جوارديولا**: [Link](https://www.kooora.com/?n=1367290)
+- **لماذا لعبت فقط لبرشلونة؟.. بويول يجيب**: [Link](https://hihi2.com/2024/11/10/p2930227.html)
+- **بويول يكشف سر نجاح فريق برشلونة المتكامل**: [Link](https://www.akhbarak.net/news/details/46735269/3/%D8%A8%D9%88%D9%8A%D9%88%D9%84-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D9%86%D8%AC%D8%A7%D8%AD-%D9%81%D8%B1%D9%8A%D9%82-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%83%D8%A7%D9%85%D9%84)
+
+
+### عبد القادر لشهب (N/A, Sun, 10 Nov 2024 11:20:00 -0800)
+
+- **‬الجامعة تنعى الدولي السابق لشهب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D9%86%D8%B9%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%84%D8%B4%D9%87%D8%A8-1462290.html)
+- **بحضور بنكيران وبنعبد الله..جنازة مهيبة في وداع لاعب الوداد وسفير المغرب 
+بروسيا وكندا عبد القادر لشهب**: [Link](https://www.akhbarona.com/videos/395466.html)
+- **الجامعة تُنعي لاعب الوداد ومولودية وجدة والدولي المغربي السابق عبد القادر 
+لشهب بعد وفاته**: [Link](https://m.elbotola.com/article/2024-11-10-12-37-61.html)
+
+
+### lionel messi (N/A, Sun, 10 Nov 2024 11:20:00 -0800)
+
+- **Lionel Messi's Inter Miami knocked out of MLS Cup play-offs by Atlanta 
+United**: [Link](https://www.bbc.com/sport/football/live/cdj3xp2x2xzt)
+- **Does anyone like the MLS playoff format? Players, coaches weigh in on 
+controversial best-of-3 structure**: [Link](https://sports.yahoo.com/does-anyone-like-the-mls-playoff-format-players-coaches-weigh-in-on-controversial-best-of-three-structure-154639207.html)
+- **'You're a coward!' - Jordi Alba's furious rant to referee after Inter Miami 
+shockingly eliminated from MLS playoffs by Atlanta United**: [Link](https://www.goal.com/en-kw/lists/coward-jordi-alba-furious-rant-referee-inter-miami-eliminated-mls-playoffs-atlanta-united/bltc3b5b1f1e8203de0)
+
+
 ### حسن اقصبي (N/A, Sun, 10 Nov 2024 11:10:00 -0800)
 
 - **الجامعة تعزي في وفاة حسن أقصبي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%B9%D8%B2%D9%8A-%D9%81%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D8%AD%D8%B3%D9%86-%D8%A3%D9%82%D8%B5%D8%A8%D9%8A-1462012.html)
