@@ -1,3 +1,18 @@
+### 11 novembre (N/A, Sun, 10 Nov 2024 10:00:00 -0800)
+
+- **Lundi 11 novembre à Rennes : tabac, commerces, boulangeries... Ce qui est 
+ouvert en ce jour férié**: [Link](https://actu.fr/bretagne/rennes_35238/lundi-11-novembre-a-rennes-tabac-commerces-boulangeries-ce-qui-est-ouvert-en-ce-jour-ferie_61848050.html)
+- **À Rennes, près de deux commerces sur trois seraient fermés le 11-Novembre**: [Link](https://www.francelive.fr/teaser/ouest-france/a-rennes-pres-de-deux-commerces-sur-trois-seraient-fermes-le-11-novembre-8748250/)
+- **À Rennes, près de deux commerces sur trois seraient fermés le 11-Novembre**: [Link](https://rennes.maville.com/actu/actudet_-a-rennes-pres-de-deux-commerces-sur-trois-seraient-fermes-le-11-novembre-_fil-6540215_actu.Htm)
+
+
+### stuttgart – eintracht francfort (N/A, Sun, 10 Nov 2024 09:50:00 -0800)
+
+- **Stuttgart vs. Frankfurt (Nov 10, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/711514)
+- **All about the next opponent: Interview with Frankfurt fan Cettina**: [Link](https://onefootball.com/id/berita/all-about-the-next-opponent-interview-with-frankfurt-fan-cettina-40288958)
+- **Sunday's Bundesliga predictions including Stuttgart vs. Frankfurt**: [Link](https://www.sportsmole.co.uk/football/augsburg/predictions-bundesliga/feature/sundays-bundesliga-predictions-including-stuttgart-vs-frankfurt_557761.html)
+
+
 ### getafe – girona (N/A, Sun, 10 Nov 2024 09:40:00 -0800)
 
 - **'Bordalás Barça' se prepara para chocar con el Girona bajo la dirección de 
