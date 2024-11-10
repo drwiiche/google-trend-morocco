@@ -1,3 +1,12 @@
+### la cage netflix (N/A, Sun, 10 Nov 2024 01:20:00 -0800)
+
+- **‘The Cage’ Netflix Review: Stream It Or Skip It?**: [Link](https://decider.com/2024/11/09/the-cage-2024-netflix-review/)
+- **‘The Cage’ Ending Explained & Series Recap: Will Taylor Be Banned From The 
+Ring In Season 2?**: [Link](https://m.imdb.com/news/ni64938905/?ref_=tt_nwr_2)
+- **“Ducking” Allegations Follows Jon Jones as Netflix Promotion Gets Derailed 
+Before Stipe Miocic UFC 309 Fight**: [Link](https://www.essentiallysports.com/ufc-mma-news-ducking-allegations-follows-jon-jones-as-netflix-promotion-gets-derailed-before-stipe-miocic-ufc-309-fight/)
+
+
 ### inter miami (N/A, Sat, 9 Nov 2024 17:10:00 -0800)
 
 - **Lionel Messi Scores First Career MLS Cup Playoff Goal vs. Atlanta United**: [Link](https://www.si.com/soccer/lionel-messi-scores-first-career-mls-cup-playoff-goal)
