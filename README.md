@@ -1,3 +1,19 @@
+### fenerbahçe – sivasspor (N/A, Sun, 10 Nov 2024 07:50:00 -0800)
+
+- **Zeki Murat Göle'den sakatlık vurgusu: Fenerbahçe'de kadro tercihinin arka 
+planı**: [Link](https://www.ntvspor.net/futbol/zeki-murat-gole-den-sakatlik-vurgusu-fenerbahce-de-kadro-tercihinin-arka-plani-6730d30c7c338f03f75ebb88)
+- **Net Global Sivasspor’da Tek Türk Murat Paluli**: [Link](https://www.sivasmemleket.com.tr/net-global-sivassporda-tek-turk-murat-paluli)
+- **Kanarya, sahasında Yiğidolar ile karşı karşıya - Spor Haberleri**: [Link](https://www.cnnturk.com/spor/futbol/live-fenerbahce-sivasspor-maci-canli-izle-fenerbahce-sivasspor-maci-sifresiz-izle-bein-sports-izle-sifresiz-mac-izle-2181998)
+
+
+### chelsea vs arsenal (N/A, Sun, 10 Nov 2024 07:40:00 -0800)
+
+- **Team news: Odegaard and Rice to start at Chelsea**: [Link](https://www.arsenal.com/news/team-news-odegaard-and-rice-start-chelsea)
+- **Chelsea v Arsenal: Premier League – live**: [Link](https://www.theguardian.com/football/live/2024/nov/10/chelsea-v-arsenal-premier-league-live)
+- **Chelsea XI vs Arsenal: Cole Palmer injury latest, predicted lineup and 
+confirmed team news for Premier League**: [Link](https://www.standard.co.uk/sport/football/chelsea-fc-xi-vs-arsenal-cole-palmer-injury-latest-predicted-lineup-confirmed-team-news-premier-league-2024-today-b1192854.html)
+
+
 ### chelsea – arsenal (N/A, Sun, 10 Nov 2024 07:40:00 -0800)
 
 - **Midfielder may have accidentally shown just what Enzo Maresca is preparing 
