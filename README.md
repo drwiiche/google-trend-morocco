@@ -1,3 +1,11 @@
+### inter miami – atlanta utd (N/A, Sat, 9 Nov 2024 16:20:00 -0800)
+
+- **Inter Miami Predicted Lineup vs. Atlanta United: MLS Cup Playoffs**: [Link](https://www.si.com/soccer/inter-miami-predicted-lineup-vs-atlanta-united-mls-cup-playoffs-11-9-24)
+- **Busquets gives Inter Miami surprise fitness boost**: [Link](https://www.espn.com/soccer/story/_/id/42269111/miami-avoid-messi-calls-silly-mistakes-martino)
+- **Sergio Busquets now may play alongside Lionel Messi for Inter Miami against 
+Atlanta United**: [Link](https://www.foxsports.com/stories/soccer/sergio-busquets-now-may-play-alongside-lionel-messi-inter-miami-against-atlanta-united)
+
+
 ### samantha de bendern (N/A, Sat, 9 Nov 2024 15:30:00 -0800)
 
 - **[Vidéo] Incident diplomatique franco-israélien à Jérusalem, deux gendarmes 
