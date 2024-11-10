@@ -1,3 +1,11 @@
+### man united (N/A, Sun, 10 Nov 2024 06:30:00 -0800)
+
+- **Football gossip: Danilo, Diomande, Ramos, Davies, Gyokeres, Marmoush**: [Link](https://www.bbc.com/sport/football/articles/ckg06rpl0yxo)
+- **Man United could be about to agree multiple loan signings – O’Rourke**: [Link](https://www.footballinsider247.com/man-united-could-be-about-to-agree-multiple-loan-signings-orourke/)
+- **Rubem Amorim desperate to make ex-Man City player who slammed Pep Guardiola 
+his first Man Utd signing**: [Link](https://www.sportbible.com/football/football-news/man-utd/ruben-amorim-man-utd-pep-guardiola-transfer-news-126123-20241110)
+
+
 ### fiorentina – hellas vérone (N/A, Sun, 10 Nov 2024 06:10:00 -0800)
 
 - **Zanetti: "Difficult test in Florence, let's show continuity of performance 
