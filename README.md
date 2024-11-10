@@ -1,3 +1,12 @@
+### man united vs leicester city (N/A, Sun, 10 Nov 2024 05:10:00 -0800)
+
+- **Premier League Manchester United 2 Leicester City 0 Half time**: [Link](https://www.bbc.com/sport/football/live/c1lgj2eje9vt)
+- **Three things Ruud van Nistelrooy will want to achieve vs. Leicester City 
+today**: [Link](https://thepeoplesperson.com/2024/11/10/three-things-ruud-van-nistelrooy-will-want-to-achieve-vs-leicester-city-today-287482/)
+- **Premier League live: Scores and latest updates including Man Utd vs 
+Leicester**: [Link](https://www.telegraph.co.uk/football/2024/11/10/premier-league-live-scores-and-latest-updates/)
+
+
 ### manchester united (N/A, Sun, 10 Nov 2024 06:50:00 -0800)
 
 - **Premier League: Man Utd 2-0 up, Nottm Forest lead Newcastle, Ipswich 
