@@ -1,3 +1,26 @@
+### barca (N/A, Sun, 10 Nov 2024 12:10:00 -0800)
+
+- **Real Sociedad vs. Barcelona (Nov 10, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704786)
+- **Real Sociedad - FC Barcelona live: La Liga - Football**: [Link](https://www.eurosport.com/football/la-liga/2024-2025/live-real-sociedad-fc-barcelona_mtc1524062/live-commentary.shtml)
+- **FC Barcelona Vs. Real Sociedad Line Up: Flick Drops Two Big Stars**: [Link](https://www.forbes.com/sites/tomsanderson/2024/11/10/fc-barcelona-vs-real-sociedad-line-up-flick-drops-two-big-stars/)
+
+
+### lamine yamal (N/A, Sun, 10 Nov 2024 12:10:00 -0800)
+
+- **Lamine Yamal, baja por lesión en Anoeta**: [Link](https://www.marca.com/futbol/barcelona/2024/11/10/lamine-yamal-baja-lesion-anoeta.html)
+- **Parte médico oficial de Lamine Yamal**: [Link](https://www.sport.es/es/noticias/barca/comunicado-parte-medico-lamine-yamal-111568903)
+- **Once confirmado del Barça ante la Real Sociedad sin el descartado Lamine ni 
+Olmo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241110/1002350640/once-confirmado-barca-real-sociedad-descartado-lamine-olmo.html)
+
+
+### napoli (N/A, Sun, 10 Nov 2024 12:10:00 -0800)
+
+- **Capello: "Piazzati, singoli, dettagli, vi spiego Inter-Napoli"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/10-11-2024/inter-napoli-sfida-scudetto-il-commento-di-fabio-capello.shtml)
+- **Inter, a Milano torna Conte: Inzaghi, l'eterno confronto e la rendita che 
+non c'è**: [Link](https://www.tuttomercatoweb.com/serie-a/inter-a-milano-torna-conte-inzaghi-l-eterno-confronto-e-la-rendita-che-non-c-e-2033271)
+- **Montolivo: “Il pallino delle mani dell’Inter e Conte andrà di ripartenza”**: [Link](https://www.fcinter1908.it/ultimora/pallino-inter-montolivo/)
+
+
 ### real sociedad (N/A, Sun, 10 Nov 2024 12:00:00 -0800)
 
 - **Barcelona confirm Hector Fort out of Real Sociedad clash with injury**: [Link](https://www.barcablaugranes.com/2024/11/10/24292630/barcelona-confirm-hector-fort-out-of-real-sociedad-clash-with-injury)
