@@ -1,3 +1,19 @@
+### fcb (N/A, Sun, 10 Nov 2024 12:20:00 -0800)
+
+- **Just in: Hansi Flick benches Lamine Yamal due to a slight injury**: [Link](https://barcauniversal.com/just-in-hansi-flick-benches-yamal-due-to-a-slight-injury/)
+- **Injured Real Sociedad star ruled out of Barcelona clash**: [Link](https://www.football-espana.net/2024/11/08/injured-real-sociedad-star-ruled-out-barcelona)
+- **Soccer-Tired Yamal could be rested against Sociedad, Flick says**: [Link](https://www.msn.com/en-gb/sport/football/soccer-tired-yamal-could-be-rested-against-sociedad-flick-says/ar-AA1tNkGa)
+
+
+### cubarsi (N/A, Sun, 10 Nov 2024 12:20:00 -0800)
+
+- **Cubarsí Trains with Mask, Lamine in Gym, and Dani Olmo Absent Due to 
+Discomfort**: [Link](https://www.footboom1.com/en/news/football/2042986-cubarsi-trains-with-mask-lamine-in-gym-and-dani-olmo-absent-due-to-discomfort)
+- **Hansi Flick Optimistic About Pau Cubarsi’s Injury Return**: [Link](https://bvmsports.com/2024/11/09/hansi-flick-optimistic-about-pau-cubarsis-injury-return/)
+- **Soccer Tough: Barcelona's Pau Cubarsi Gets 10 Stitches After Getting Kicked 
+In The Face, Would Do It Again Because 'Everything For The Badge'**: [Link](https://www.barstoolsports.com/blog/3530512/soccer-tough-barcelonas-pau-cubarsi-gets-10-stitches-after-getting-kicked-in-the-face-would-do-it-again-because-everything-for-the-badge)
+
+
 ### barca (N/A, Sun, 10 Nov 2024 12:10:00 -0800)
 
 - **Real Sociedad vs. Barcelona (Nov 10, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704786)
