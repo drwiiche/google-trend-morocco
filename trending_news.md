@@ -1,3 +1,22 @@
+### gladiator 2 (N/A, Sun, 10 Nov 2024 14:40:00 -0800)
+
+- **Gladiator 2’s Ridley Scott addresses Barry Keoghan’s sudden exit: ‘He’s a 
+challenge, but it’s worth it’**: [Link](https://www.the-independent.com/arts-entertainment/films/news/gladiator-2-barry-keoghan-ridley-scott-cast-b2644458.html)
+- **Barry Keoghan on His Role That Might’ve Been in ‘Gladiator II’: Ridley 
+Scott Is ‘Just Legendary’**: [Link](https://www.indiewire.com/news/breaking-news/barry-keoghan-reacts-ridley-scott-confirming-his-gladiator-role-1235063892/)
+- **Ridley Scott Just Revealed That This A-List Actor Was Meant To Be In 
+Gladiator 2**: [Link](https://uk.news.yahoo.com/ridley-scott-just-revealed-list-135520271.html)
+
+
+### serie a (N/A, Sun, 10 Nov 2024 14:10:00 -0800)
+
+- **FINALE Inter-Napoli 1-1, Simeone sciupa il vantaggio all'ultimo secondo**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/10-11-2024/inter-napoli-live-la-diretta-serie-a.shtml)
+- **Politano: "Importante reagire dopo il ko con l'Atalanta, gran gara in casa 
+dei campioni"**: [Link](https://www.tuttomercatoweb.com/serie-a/politano-importante-reagire-dopo-il-ko-con-l-atalanta-gran-gara-in-casa-dei-campioni-2033813)
+- **Conte show in diretta, Marelli azzittito: "Errore clamoroso, ma che 
+significa!"**: [Link](https://www.tuttosport.com/news/calcio/serie-a/napoli/2024/11/10-135184511/conte_show_in_diretta_marelli_azzittito_errore_clamoroso_ma_che_significa_)
+
+
 ### classement liga (N/A, Sun, 10 Nov 2024 13:50:00 -0800)
 
 - **Majorque 0-1 Atlético de Madrid, La Liga : résumé du match (10/11/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/majorque-atletico-de-madrid-live/657405)
