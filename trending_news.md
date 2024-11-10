@@ -1,3 +1,20 @@
+### fiorentina – hellas vérone (N/A, Sun, 10 Nov 2024 06:10:00 -0800)
+
+- **Zanetti: "Difficult test in Florence, let's show continuity of performance 
+and team spirit" / VIDEO**: [Link](https://www.hellasverona.it/en/news/zanetti-difficult-test-in-florence-lets-show-continuity-of-performance-and-team-spirit-video)
+- **Fiorentina vs Hellas Verona: Lineups and how to watch**: [Link](https://www.violanation.com/2024/11/10/24292599/fiorentina-hellas-verona-serie-a-formation-lineups-watch-online-stream)
+- **Fiorentina host Verona to continue the run of form**: [Link](https://www.legaseriea.it/media/serie-a/fiorentina-host-verona-to-continue-the-run-of-form-726n377)
+
+
+### ajax (N/A, Sun, 10 Nov 2024 06:10:00 -0800)
+
+- **“Zondag wacht alweer grote wedstrijd”**: [Link](https://fctwente.nl/nieuws/-zondag-wacht-alweer-grote-wedstrijd/)
+- **Live Eredivisie | Twente en Ajax begonnen aan topper, ook Heerenveen in 
+actie**: [Link](https://www.nu.nl/voetbal/6334895/live-eredivisie-twente-en-ajax-begonnen-aan-topper-ook-heerenveen-in-actie.html)
+- **Francesco Farioli zet Brian Brobbey op de bank en kiest voor nieuwe spits 
+tegen Twente**: [Link](https://sportnieuws.nl/voetbal/nieuws/francesco-farioli-zet-brian-brobbey-op-de-bank-en-kiest-voor-nieuwe-spits-tegen-twente-2024111012062929000/)
+
+
 ### mike pompeo (N/A, Sun, 10 Nov 2024 06:00:00 -0800)
 
 - **Nikki Haley responds after Trump says she won't be part of new cabinet, 
