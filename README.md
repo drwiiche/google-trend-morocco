@@ -1,3 +1,12 @@
+### vendredi 15 novembre (N/A, Sun, 10 Nov 2024 08:40:00 -0800)
+
+- **Du rock, du funk et du metal : FFF ce vendredi 15 novembre sur la scène de 
+l’Oasis**: [Link](https://www.ouest-france.fr/pays-de-la-loire/le-mans-72000/du-rock-du-funk-et-du-metal-fff-ce-vendredi-15-novembre-sur-la-scene-de-loasis-f580c6a8-9df4-11ef-8def-0b9cee127ff4)
+- **Concert - Une bonne dose de vitamines avec le groupe FFF à Orléans**: [Link](https://www.larep.fr/orleans-45000/loisirs/une-bonne-dose-de-vitamines-avec-le-groupe-fff-a-orleans_14593374/)
+- **"Il y a eu un plaisir de se retrouver mais ce n'est jamais sans tumulte." 
+Rencontre avec Marco Prince du groupe FFF de retour en concert à Uzès**: [Link](https://www.midilibre.fr/2024/11/08/il-y-a-eu-un-plaisir-de-se-retrouver-mais-ce-nest-jamais-sans-tumulte-rencontre-avec-marco-prince-du-groupe-fff-de-retour-en-concert-a-uzes-12304853.php)
+
+
 ### rennes – toulouse (N/A, Sun, 10 Nov 2024 08:30:00 -0800)
 
 - **Ligue 1 : Sampaoli bien présent en tribunes au Roazhon Park pour le match 
