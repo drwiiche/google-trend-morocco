@@ -1,3 +1,12 @@
+### arsenal (N/A, Sun, 10 Nov 2024 09:00:00 -0800)
+
+- **Enzo Maresca delivers Cole Palmer fitness update ahead of Arsenal | News | 
+Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-delivers-cole-palmer-fitness-update-ahead-of-arsenal)
+- **Football must outlaw reckless tackles such as Martinez’s – he could have 
+ended Palmer’s career**: [Link](https://www.telegraph.co.uk/football/2024/11/03/football-outlaw-reckless-tackles-such-martinez-palmer/)
+- **How Chelsea could line up to face Arsenal in Cole Palmer’s absence**: [Link](https://arsenalcore.com/how-chelsea-could-line-up-to-face-arsenal-in-cole-palmers-absence/)
+
+
 ### vendredi 15 novembre (N/A, Sun, 10 Nov 2024 08:40:00 -0800)
 
 - **Du rock, du funk et du metal : FFF ce vendredi 15 novembre sur la scène de 
