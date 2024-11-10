@@ -1,3 +1,19 @@
+### la liga standings (N/A, Sun, 10 Nov 2024 14:20:00 -0800)
+
+- **La Liga Soccer Livestream: How to Watch Real Madrid vs. Osasuna From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-real-madrid-vs-osasuna-from-anywhere/)
+- **Meet Asencio: Ancelotti's Choice for Real Madrid's Defense**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/meet-asencio-ancelotti-s-choice-for-real-madrid-s-defense-2024-11-08)
+- **Carlo Ancelotti: "Valverde is Looking Sharp and Ready to Play"**: [Link](https://www.footboom1.com/en/news/football/2041400-carlo-ancelotti-valverde-is-looking-sharp-and-ready-to-play)
+
+
+### ترتيب الدوري الإسباني (N/A, Sun, 10 Nov 2024 14:20:00 -0800)
+
+- **فينيسيوس يضيق الخناق على ليفاندوفسكي**: [Link](https://www.kooora.com/?n=1367075)
+- **دياز: "جماهير ريال مدريد تستحق الفرح من جديد وينفطر قلبي حينما أُشاهد زميلا 
+لي يبكي بسبب الإصابة"**: [Link](https://m.elbotola.com/article/2024-11-10-11-19-57.html)
+- **البرازيليان رودريغو وميليتاو يعودان لعيادة ريال مدريد**: [Link](https://www.aljazeera.net/sport/2024/11/9/rodrygo-real-madrid-milito)
+
+
 ### la liga table (N/A, Sun, 10 Nov 2024 14:00:00 -0800)
 
 - **Football: Spanish La Liga table**: [Link](https://www.bssnews.net/sports/222092)
