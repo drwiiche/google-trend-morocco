@@ -1,3 +1,10 @@
+### fc barcelone (N/A, Sun, 10 Nov 2024 12:30:00 -0800)
+
+- **DIRECT. Real Sociedad-FC Barcelone (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-sociedad-fc-barcelone-live/657407)
+- **Barça : Lamine Yamal blessé**: [Link](https://www.footmercato.net/a6225624234042581119-barca-lamine-yamal-blesse)
+- **PRONOS PARIS RMC Le pari à l’extérieur du 10 novembre – Liga - Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-10-novembre-liga-espagne_AN-202411090309.html)
+
+
 ### fcb (N/A, Sun, 10 Nov 2024 12:20:00 -0800)
 
 - **Just in: Hansi Flick benches Lamine Yamal due to a slight injury**: [Link](https://barcauniversal.com/just-in-hansi-flick-benches-yamal-due-to-a-slight-injury/)
