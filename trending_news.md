@@ -1,3 +1,19 @@
+### getafe – girona (N/A, Sun, 10 Nov 2024 09:40:00 -0800)
+
+- **'Bordalás Barça' se prepara para chocar con el Girona bajo la dirección de 
+Míchel**: [Link](https://www.footboom1.com/es/news/football/2045653-bordalas-barca-set-to-clash-with-girona-under-michel-s-guidance)
+- **Duarte, Yellu e Iglesias, novedades en el Getafe; Romeu y Juanpe, en el 
+Girona**: [Link](https://www.infobae.com/espana/agencias/2024/11/10/duarte-yellu-e-iglesias-novedades-en-el-getafe-romeu-y-juanpe-en-el-girona/)
+- **PRÈVIA Getafe vs Girona**: [Link](https://www.gironafc.cat/es/noticias/previa-getafe-vs-girona-2425)
+
+
+### valladolid – ath. bilbao (N/A, Sun, 10 Nov 2024 09:40:00 -0800)
+
+- **Prohibido perder**: [Link](https://www.diariodevalladolid.es/deportes/real-valladolid/241109/264943/prohibido-perder.html)
+- **La mejor "gasolina" para el Athletic en la temporada 2024-25**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20241110/1002350316/mejor-gasolina-athletic-temporada-2024-25.html)
+- **Acariciar la 'Champions', salir del descenso**: [Link](https://www.infobae.com/america/agencias/2024/11/09/acariciar-la-champions-salir-del-descenso/)
+
+
 ### mallorca vs atlético madrid (N/A, Sun, 10 Nov 2024 09:20:00 -0800)
 
 - **Mallorca - Atlético, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/mallorca-atletico/2024/11/10/01_0101_20241110_181_175-directo.html)
