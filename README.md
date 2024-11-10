@@ -1,3 +1,11 @@
+### barça (N/A, Sun, 10 Nov 2024 12:20:00 -0800)
+
+- **Lamine Yamal, baja en Anoeta por una lesión en el tobillo**: [Link](https://www.marca.com/futbol/barcelona/2024/11/10/lamine-yamal-baja-lesion-anoeta.html)
+- **Parte médico oficial de Lamine Yamal**: [Link](https://www.sport.es/es/noticias/barca/comunicado-parte-medico-lamine-yamal-111568903)
+- **Once confirmado del Barça ante la Real Sociedad sin el descartado Lamine ni 
+Olmo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241110/1002350640/once-confirmado-barca-real-sociedad-descartado-lamine-olmo.html)
+
+
 ### fc barcelone (N/A, Sun, 10 Nov 2024 12:30:00 -0800)
 
 - **DIRECT. Real Sociedad-FC Barcelone (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-sociedad-fc-barcelone-live/657407)
