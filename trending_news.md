@@ -1,3 +1,19 @@
+### laliga (N/A, Sun, 10 Nov 2024 13:30:00 -0800)
+
+- **Just in: Hansi Flick benches Lamine Yamal due to a slight injury**: [Link](https://barcauniversal.com/just-in-hansi-flick-benches-yamal-due-to-a-slight-injury/)
+- **Injured Real Sociedad star ruled out of Barcelona clash**: [Link](https://www.football-espana.net/2024/11/08/injured-real-sociedad-star-ruled-out-barcelona)
+- **Barcelona confirm Hector Fort out of Real Sociedad clash with injury**: [Link](https://www.barcablaugranes.com/2024/11/10/24292630/barcelona-confirm-hector-fort-out-of-real-sociedad-clash-with-injury)
+
+
+### classement la liga (N/A, Sun, 10 Nov 2024 13:30:00 -0800)
+
+- **Majorque 0-1 Atlético de Madrid, La Liga : résumé du match (10/11/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/majorque-atletico-de-madrid-live/657405)
+- **Majorque - Atlético Madrid en direct - La Liga : Football Scores & 
+Résultats - 10/11/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-majorque-atletico-madrid_mtc1524061/live.shtml)
+- **Muriqi : "Le style de Simeone à l'Atleti me plaît énormément ; c'est une 
+équipe qui mord et presse"**: [Link](https://www.footboom1.com/fr/news/football/2045910-muriqi-simeone-s-style-at-atleti-appeals-to-me-greatly-it-s-a-team-that-bites-and-presses)
+
+
 ### liga (N/A, Sun, 10 Nov 2024 13:20:00 -0800)
 
 - **Ilias Akhomach Out for Season Due to Injury Post First La Liga Goal**: [Link](https://www.moroccoworldnews.com/2024/11/366260/ilias-akhomach-out-for-season-due-to-injury-post-first-la-liga-goal)
