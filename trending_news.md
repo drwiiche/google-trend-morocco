@@ -1,3 +1,18 @@
+### nice – lille (N/A, Sun, 10 Nov 2024 05:30:00 -0800)
+
+- **Ligue 1 – J11 : Avion cloué au sol, le départ des joueurs du LOSC à Nice 
+reporté**: [Link](https://lepetitlillois.com/2024/11/09/ligue-1-j11-avion-cloue-au-sol-le-depart-des-joueurs-du-losc-a-nice-reporte/)
+- **Les mots de Franck Haise et "Momo" Cho avant Nice - Lille**: [Link](https://www.ogcnice.com/fr/article/127860/les-mots-de-franck-haise-et-momo-cho-avant-nice-lille.html)
+- **OGC Nice: le stade plus facilement accessible en transports en commun**: [Link](https://www.bfmtv.com/cote-d-azur/replay-emissions/azur-week-end/ogc-nice-le-stade-plus-facilement-accessible-en-transports-en-commun_VN-202411100176.html)
+
+
+### galatasaray vs samsunspor (N/A, Sun, 10 Nov 2024 05:30:00 -0800)
+
+- **Preview: Galatasaray vs. Samsunspor - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/preview/preview-galatasaray-vs-samsunspor-prediction-team-news-lineups_557709.html)
+- **Galatasaray Set to Clash with Samsunspor in Super League Showdown**: [Link](https://www.footboom1.com/en/news/football/2042468-galatasaray-set-to-clash-with-samsunspor-in-super-league-showdown)
+- **How to Watch Galatasaray vs. Samsunspor: Live Stream, TV Channel, Start Time**: [Link](https://ftw.usatoday.com/article/how-to-watch-galatasaray-vs-samsunspor-live-stream-tv-channel-start-time-2)
+
+
 ### nottm forest – newcastle (N/A, Sun, 10 Nov 2024 05:20:00 -0800)
 
 - **West Ham United 0-0 Everton: Bore draw keeps pressure on Hammers boss 
