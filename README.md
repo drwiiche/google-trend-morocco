@@ -1,3 +1,11 @@
+### éder militão (N/A, Sun, 10 Nov 2024 00:50:00 -0800)
+
+- **Modric: I hope this win will be a turning point in the season**: [Link](https://www.ysscores.com/en/news/6797393/Modric:-I-hope-this-win-will-be-a-turning-point-in-the-season)
+- **Rodrygo and Lucas Awaiting Tests, Out for 1 Month and 3 Weeks Respectively**: [Link](https://www.footboom1.com/en/news/football/2044452-rodrygo-and-lucas-awaiting-tests-out-for-1-month-and-3-weeks-respectively)
+- **Ancelotti: "The team put in a good performance, with more attitude and 
+commitment"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rp-ancelotti-post-rm-osasuna-j13-liga-09-11-2024)
+
+
 ### المغرب (N/A, Sat, 9 Nov 2024 20:10:00 -0800)
 
 - **بعد إعلان نتائج الإحصاء العام.. مغاربة: هل نسير نحو الانقراض؟**: [Link](https://www.alhurra.com/maghreb-voices/2024/11/08/%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%86%D8%B3%D9%8A%D8%B1-%D9%86%D8%AD%D9%88-%D8%A7%D9%84%D8%A7%D9%86%D9%82%D8%B1%D8%A7%D8%B6%D8%9F)
