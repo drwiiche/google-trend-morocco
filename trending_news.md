@@ -1,3 +1,12 @@
+### mike pompeo (N/A, Sun, 10 Nov 2024 06:00:00 -0800)
+
+- **Nikki Haley responds after Trump says she won't be part of new cabinet, 
+says she wishes him 'great success'**: [Link](https://www.foxnews.com/politics/nikki-haley-responds-after-trump-says-she-wont-part-new-cabinet-says-she-wishes-him-great-success)
+- **Pompeo and Haley will not be invited to join Trump's administration**: [Link](https://www.tehrantimes.com/news/506093/Pompeo-and-Haley-will-not-be-invited-to-join-Trump-s-administration)
+- **Trump rules out two GOP stalwarts from joining his administration: 'Will 
+not be inviting'**: [Link](https://www.msn.com/en-us/news/politics/trump-rules-out-two-gop-stalwarts-from-joining-his-administration-will-not-be-inviting/ar-AA1tO8HY?ocid=msedgntp&pc=ACTS&cvid=a6a2601b4af9414185f3c4e6c473d541&ei=15)
+
+
 ### nice – lille (N/A, Sun, 10 Nov 2024 05:30:00 -0800)
 
 - **Ligue 1 – J11 : Avion cloué au sol, le départ des joueurs du LOSC à Nice 
