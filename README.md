@@ -1,3 +1,10 @@
+### tottenham vs ipswich town (N/A, Sun, 10 Nov 2024 07:00:00 -0800)
+
+- **TEAM NEWS | SPURS (A)**: [Link](https://www.itfc.co.uk/news/2024/november/10/Tottenham-Hotspur-Ipswich-Town-team-news-November/)
+- **Tuanzebe and Cajuste Start At Spurs**: [Link](https://www.twtd.co.uk/ipswich-town-news/48292/tuanzebe-and-cajuste-start-at-spurs)
+- **Tottenham slammed as 'frail' against Ipswich Town by ruthless former star**: [Link](https://www.londonworld.com/sport/football/spurs/tottenham-slammed-as-frail-against-ipswich-town-4860476)
+
+
 ### man united vs leicester city (N/A, Sun, 10 Nov 2024 05:10:00 -0800)
 
 - **Premier League Manchester United 2 Leicester City 0 Half time**: [Link](https://www.bbc.com/sport/football/live/c1lgj2eje9vt)
