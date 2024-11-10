@@ -1,3 +1,12 @@
+### inter miami (N/A, Sat, 9 Nov 2024 17:10:00 -0800)
+
+- **Lionel Messi Scores First Career MLS Cup Playoff Goal vs. Atlanta United**: [Link](https://www.si.com/soccer/lionel-messi-scores-first-career-mls-cup-playoff-goal)
+- **'You're a coward!' - Jordi Alba's furious rant to referee after Inter Miami 
+shockingly eliminated from MLS playoffs by Atlanta United**: [Link](https://www.goal.com/en-ae/lists/coward-jordi-alba-furious-rant-referee-inter-miami-eliminated-mls-playoffs-atlanta-united/bltc3b5b1f1e8203de0)
+- **Inter Miami are out of the MLS Playoffs after loss to Atlanta United -- 
+Social Media reacts to stunning upset**: [Link](https://www.goal.com/en-om/lists/inter-miami-out-of-mls-playoffs-after-loss-to-atlanta-united-social-media-stunning-upset/blt05d33c311930342a)
+
+
 ### kamel daoud (N/A, Sun, 10 Nov 2024 01:00:00 -0800)
 
 - **Kamel Daoud, prix Goncourt : "Je me suis demandé pourquoi ma mère n’a pas 
