@@ -1,3 +1,12 @@
+### shiba inu coin (N/A, Mon, 11 Nov 2024 06:50:00 -0800)
+
+- **Dog-themed meme coins Dogecoin, Shiba Inu and Dogwifhat extend gains as 
+Trump-led rally persists**: [Link](https://www.fxstreet.com/cryptocurrencies/news/dog-themed-meme-coins-dogecoin-shiba-inu-and-dogwifhat-extend-gains-as-trump-led-rally-persists-202411111538)
+- **Pundit Says Shiba Inu $100B Market Cap Is Confirmed—Here’s the Price per 
+SHIB if This Happens**: [Link](https://thecryptobasic.com/2024/11/11/pundit-says-shiba-inu-100b-market-cap-is-confirmed-heres-the-price-per-shib-if-this-happens/)
+- **Five leading SHIB alternatives set for 20,000% growth in next 4 months**: [Link](https://crypto.news/five-leading-shib-alternatives-set-for-20000-growth-in-next-4-months/)
+
+
 ### atp finals (N/A, Mon, 11 Nov 2024 07:50:00 -0800)
 
 - **Clamoroso alle Atp Finals 2024, Alcaraz perde al debutto contro Ruud**: [Link](https://www.torinotoday.it/sport/atp-tennis/alcaraz-sconfitto-ruud-atp-torino.html)
