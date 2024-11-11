@@ -1,3 +1,19 @@
+### guerre maroc algérie (N/A, Mon, 11 Nov 2024 00:10:00 -0800)
+
+- **Les caporaux d’Alger se préparent pour la guerre**: [Link](https://fr.le360.ma/politique/les-caporaux-dalger-se-preparent-pour-la-guerre_Y2W65OTNLRDO7GBBYBTEW6IFME/)
+- **Le Maroc et l’Algérie au bord de la guerre ? « Tout incident pourrait 
+déclencher une véritable crise**: [Link](https://www.lavoixdunord.fr/1521509/article/2024-11-10/le-maroc-et-l-algerie-au-bord-de-la-guerre-tout-incident-pourrait-declencher-une)
+- **Vidéo anti-Marche Verte, ou quand les médias algériens touchent le fond**: [Link](https://fr.hespress.com/395494-video-anti-marche-verte-ou-quand-les-medias-algeriens-touchent-le-fond.html)
+
+
+### 11 novembre férié (N/A, Sun, 10 Nov 2024 23:10:00 -0800)
+
+- **Pourquoi le 11 novembre est-il férié ?**: [Link](https://www.lunion.fr/id659088/article/2024-11-08/pourquoi-le-11-novembre-est-il-ferie)
+- **Cérémonie du 11 Novembre à travers les âges : les moments les plus 
+emblématiques**: [Link](https://www.defense.gouv.fr/actualites/ceremonie-du-11-novembre-travers-ages-moments-plus-emblematiques)
+- **Commémoration de l’armistice de 1918, demain**: [Link](https://www.petitbleu.fr/2024/11/10/commemoration-de-larmistice-de-1918-demain-12314681.php)
+
+
 ### لائحة العطل 2024 (N/A, Sun, 10 Nov 2024 23:40:00 -0800)
 
 - **لائحة العطل المدرسية 2024-2025 المغرب لطلاب المدارس والجامعات وزارة التربية 
