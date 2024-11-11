@@ -1,3 +1,11 @@
+### carlos alcaraz (N/A, Mon, 11 Nov 2024 06:20:00 -0800)
+
+- **Sinner y Zverev luchan por el Bonus Pool en Turín**: [Link](https://www.nittoatpfinals.com/es/news/atp-masters-1000-nitto-atp-finals-2024-bonus-pool)
+- **El boliviano Juan Carlos Prado Angelo, el último 'sparring' de Alcaraz 
+antes del debut en las ATP Finals**: [Link](https://www.marca.com/tenis/copa-masters/2024/11/10/boliviano-juan-carlos-prado-angelo-ultimo-sparring-alcaraz-debut-atp-finals.html)
+- **Alcaraz - Ruud, las estadísticas del partido**: [Link](https://www.abc.es/deportes/tenis/alcaraz-ruud-estadisticas-partido-20241111133528-di.html)
+
+
 ### حميد المهداوي (N/A, Mon, 11 Nov 2024 05:40:00 -0800)
 
 - **"ابتدائية" الرباط تدين الصحفي المهداوي بسنة ونصف حبسا نافذا وتعويض 150 
