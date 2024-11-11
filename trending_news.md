@@ -1,3 +1,13 @@
+### film gladiator 2 (N/A, Sun, 10 Nov 2024 14:00:00 -0800)
+
+- **Gladiator 2’s Ridley Scott addresses Barry Keoghan’s sudden exit: ‘He’s a 
+challenge, but it’s worth it’**: [Link](https://www.the-independent.com/arts-entertainment/films/news/gladiator-2-ridley-scott-barry-keoghan-cast-b2644749.html)
+- **Barry Keoghan on His Role That Might’ve Been in ‘Gladiator II’: Ridley 
+Scott Is ‘Just Legendary’**: [Link](https://www.indiewire.com/news/breaking-news/barry-keoghan-reacts-ridley-scott-confirming-his-gladiator-role-1235063892/)
+- **Ridley Scott Just Revealed That This A-List Actor Was Meant To Be In 
+Gladiator 2**: [Link](https://uk.news.yahoo.com/ridley-scott-just-revealed-list-135520271.html)
+
+
 ### مفيدة شيحة (N/A, Sun, 10 Nov 2024 16:10:00 -0800)
 
 - **بعد وفاتها اليوم.. من هي والدة الإعلامية مفيدة شيحة؟**: [Link](https://www.egypttelegraph.com/article/90494/%D8%A8%D8%B9%D8%AF-%D9%88%D9%81%D8%A7%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%86-%D9%87%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D8%A9-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A%D8%A9)
