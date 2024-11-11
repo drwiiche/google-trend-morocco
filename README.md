@@ -1,3 +1,11 @@
+### la liga classement (N/A, Sun, 10 Nov 2024 14:00:00 -0800)
+
+- **Le FC Barcelone est fou de rage !**: [Link](https://www.footmercato.net/a4622505835869467084-le-fc-barcelone-est-fou-de-rage)
+- **Real Sociedad-Barça: polémique autour d'un but hors-jeu de Lewandowski avec 
+une possible grosse erreur du...**: [Link](https://rmcsport.bfmtv.com/football/liga/real-sociedad-barca-polemique-autour-d-un-but-hors-jeu-de-lewandowski-avec-une-possible-grosse-erreur-du-revelateur_AV-202411100416.html)
+- **Real Sociedad 1-0 FC Barcelone, La Liga : Le Barça sans solution**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-sociedad-fc-barcelone-live/657407)
+
+
 ### sergio ramos (N/A, Mon, 11 Nov 2024 05:10:00 -0800)
 
 - **Sale Ramos, entra Tah**: [Link](https://as.com/futbol/primera/sale-ramos-entra-tah-n/)
