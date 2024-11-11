@@ -1,3 +1,19 @@
+### sergio ramos (N/A, Mon, 11 Nov 2024 05:10:00 -0800)
+
+- **Sale Ramos, entra Tah**: [Link](https://as.com/futbol/primera/sale-ramos-entra-tah-n/)
+- **Guti pone encima de la mesa el jugador que debe fichar el Madrid: sería un 
+bombazo**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20241109/1002350202/guti-pone-encima-mesa-jugador-debe-fichar-madrid-seria-bombazo.html)
+- **Las 10 mejores opciones de defensores libres que tiene Real Madrid para 
+sumar ya**: [Link](https://onefootball.com/id/berita/las-10-mejores-opciones-de-defensores-libres-que-tiene-real-madrid-para-sumar-ya-40290553)
+
+
+### الدوري الاسباني (N/A, Sun, 10 Nov 2024 14:00:00 -0800)
+
+- **خط دفاع ريال مدريد المتوقع في الفترة القادمة**: [Link](https://hihi2.com/2024/11/10/p2929886.html)
+- **3 أسماء على طاولة ريال مدريد في ميركاتو الشتاء لحل أزمة الإصابات**: [Link](https://www.aljazeera.net/sport/2024/11/11/real-madrid-militao)
+- **تضارب حول سعي ريال مدريد خلف لابورت**: [Link](https://www.kooora.com/?n=1367250)
+
+
 ### barcelone (N/A, Sun, 10 Nov 2024 14:10:00 -0800)
 
 - **Barça : blessé, Lewandowski ne rejoindra pas la Pologne ! (Officiel)**: [Link](https://www.onzemondial.com/liga/barca-blesse-lewandowski-ne-rejoindra-pas-la-pologne-officiel-925812)
