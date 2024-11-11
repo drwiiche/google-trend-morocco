@@ -1,3 +1,11 @@
+### المهداوي (N/A, Mon, 11 Nov 2024 05:40:00 -0800)
+
+- **المحكمة تدين المهداوي بالحبس والغرامة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%AA%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D8%A7%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D8%AD%D8%A8%D8%B3-%D9%88%D8%A7%D9%84%D8%BA%D8%B1%D8%A7%D9%85-1462876.html)
+- **حكم بسجن صحفي مغربي عاما ونصف في قضية "سيارة وزير العدل"**: [Link](https://www.alhurra.com/morocco/2024/11/11/%D8%AD%D9%83%D9%85-%D8%A8%D8%B3%D8%AC%D9%86-%D8%B5%D8%AD%D9%81%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D8%A7%D9%85%D8%A7-%D9%88%D9%86%D8%B5%D9%81-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%AF%D9%84)
+- **هادشي كيضر بالبلاد وبالصحافة.. عاجل: عام ونص نافذة ديال الحبس فحق المهداوي 
+مع أداء 150 مليون لوزير العدل**: [Link](https://www.goud.ma/%D9%87%D8%A7%D8%AF%D8%B4%D9%8A-%D9%83%D9%8A%D8%B6%D8%B1-%D8%A8%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D9%88%D8%A8%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%B9%D8%A7%D8%AC%D9%84-%D8%B9%D8%A7%D9%85-914990/)
+
+
 ### maroc algérie guerre (N/A, Mon, 11 Nov 2024 12:30:00 -0800)
 
 - **Les caporaux d’Alger se préparent pour la guerre**: [Link](https://fr.le360.ma/politique/les-caporaux-dalger-se-preparent-pour-la-guerre_Y2W65OTNLRDO7GBBYBTEW6IFME/)
