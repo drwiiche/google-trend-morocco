@@ -1,3 +1,10 @@
+### barcelone (N/A, Sun, 10 Nov 2024 14:10:00 -0800)
+
+- **Barça : blessé, Lewandowski ne rejoindra pas la Pologne ! (Officiel)**: [Link](https://www.onzemondial.com/liga/barca-blesse-lewandowski-ne-rejoindra-pas-la-pologne-officiel-925812)
+- **Robert Lewandowski Blessé : Des gestes douloureux marquent sa sortie**: [Link](https://www.footboom1.com/fr/news/football/2050651-robert-lewandowski-injured-pained-gestures-mark-his-exit)
+- **Lewandowski, la tuile !**: [Link](https://www.football365.fr/lewandowski-la-tuile-10212570.html)
+
+
 ### محمد المسيح (N/A, Mon, 11 Nov 2024 03:00:00 -0800)
 
 - **وفاة “المسيح” أحد أبرز رواد فن الحلقة بساحة جامع الفنا**: [Link](https://kech24.com/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%AD-%D8%A3%D8%AD%D8%AF-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%B1%D9%88%D8%A7%D8%AF-%D9%81%D9%86-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-%D8%A8%D8%B3%D8%A7%D8%AD%D8%A9-%D8%AC%D8%A7%D9%85%D8%B9-%D8%A7%D9%84%D9%81%D9%86%D8%A7.html)
