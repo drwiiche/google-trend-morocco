@@ -1,3 +1,11 @@
+### atp finals (N/A, Mon, 11 Nov 2024 07:50:00 -0800)
+
+- **Clamoroso alle Atp Finals 2024, Alcaraz perde al debutto contro Ruud**: [Link](https://www.torinotoday.it/sport/atp-tennis/alcaraz-sconfitto-ruud-atp-torino.html)
+- **Tennis Tracker: tutte le partite della giornata live**: [Link](https://www.diretta.it/news/tennis-finals-turin-atp-singolare-tennis-tracker-alcaraz-parte-male-a-torino-e-ruud-lo-domina-in-due-set-attesa-per-zverev-rublev/WdYpiivR/)
+- **Che sorpresa a Torino! Alcaraz si arrende in 2 set a Ruud e adesso rischia 
+grosso**: [Link](https://www.oasport.it/2024/11/che-sorpresa-a-torino-alcaraz-si-arrende-in-2-set-a-ruud-e-adesso-rischia-grosso/)
+
+
 ### algérie maroc (N/A, Mon, 11 Nov 2024 07:40:00 -0800)
 
 - **Les caporaux d’Alger se préparent pour la guerre**: [Link](https://fr.le360.ma/politique/les-caporaux-dalger-se-preparent-pour-la-guerre_Y2W65OTNLRDO7GBBYBTEW6IFME/)
