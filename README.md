@@ -1,3 +1,11 @@
+### maroc vs egypte u17 (N/A, Mon, 11 Nov 2024 12:40:00 -0800)
+
+- **Foot/U20 : Le Maroc participera en Egypte au championnat UNAF**: [Link](https://fr.hespress.com/395616-foot-u20-le-maroc-participera-en-egypte-au-championnat-unaf.html)
+- **CAN 2025 (U17/Zone UNAF) Algérie-Tunisie: les Verts pour démarrer du bon 
+pied**: [Link](https://al24news.com/fr/can-2025-u17-zone-unaf-algerie-tunisie-les-verts-pour-demarrer-du-bon-pied/)
+- **UNAF U17 : L'Algérie débute par une défaite rageante au Maroc**: [Link](https://www.dzfoot.com/equipes-nationales/unaf-u17-lalgerie-debute-par-une-defaite-rageante-au-maroc-268999.html)
+
+
 ### zeturf (N/A, Mon, 11 Nov 2024 07:00:00 -0800)
 
 - **Les Notes des partants du Quinté+ de ce samedi 9 novembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-samedi-9-novembre)
