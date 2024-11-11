@@ -1,3 +1,11 @@
+### sporting (N/A, Sun, 10 Nov 2024 13:00:00 -0800)
+
+- **Ruben Amorim na hora da despedida: “Não vou ser diferente em Manchester”**: [Link](https://www.publico.pt/2024/11/10/desporto/noticia/ruben-amorim-nao-vou-diferente-manchester-2111302)
+- **«O futuro treinador do Sporting será anunciado a 11 de novembro»**: [Link](https://www.msn.com/pt-pt/desporto/futebol/o-futuro-treinador-do-sporting-ser%C3%A1-anunciado-a-11-de-novembro/vi-AA1tmmO8)
+- **Amorim: «Os jornalistas sempre me trataram com respeito e foi um prazer 
+lidar com vocês»**: [Link](https://maisfutebol.iol.pt/videos/673129e30cf28c51602e33fe/amorim-os-jornalistas-sempre-me-trataram-com-respeito-e-foi-um-prazer-lidar-com-voces)
+
+
 ### film gladiator 2 (N/A, Sun, 10 Nov 2024 14:00:00 -0800)
 
 - **Gladiator 2’s Ridley Scott addresses Barry Keoghan’s sudden exit: ‘He’s a 
