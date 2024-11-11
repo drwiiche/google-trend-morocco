@@ -1,3 +1,8 @@
+### incident diplomatique (N/A, Mon, 11 Nov 2024 11:40:00 -0800)
+
+
+
+
 ### ruud van nistelrooy (N/A, Mon, 11 Nov 2024 10:40:00 -0800)
 
 - **Ruben Amorim: New Manchester United head coach 'not naive' to 'difficult' 
