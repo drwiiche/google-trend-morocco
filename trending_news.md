@@ -1,3 +1,11 @@
+### ruud van nistelrooy (N/A, Mon, 11 Nov 2024 10:40:00 -0800)
+
+- **Ruben Amorim: New Manchester United head coach 'not naive' to 'difficult' 
+job**: [Link](https://www.bbc.com/sport/football/articles/c1ml3exxm3go)
+- **Van Nistelrooy leaves Utd after Amorim arrival**: [Link](https://www.espn.com/soccer/story/_/id/42329281/ruud-van-nistelrooy-leaves-man-united-ruben-amorim-arrival)
+- **Club statement**: [Link](https://www.manutd.com/en/news/detail/statement-on-ruud-van-nistelrooy-and-coaching-staff-departures)
+
+
 ### المنتخب المغربي (N/A, Mon, 11 Nov 2024 10:50:00 -0800)
 
 - **بالصور: منتخب المغرب يقدم قمصانه الجديدة**: [Link](https://www.kooora.com/?n=1367563)
