@@ -1,3 +1,11 @@
+### 11 novembre jour férié (N/A, Mon, 11 Nov 2024 04:00:00 -0800)
+
+- **Supprimer un jour férié ? Pourquoi la mesure peut virer au casse-tête**: [Link](https://www.leparisien.fr/economie/supprimer-un-jour-ferie-pourquoi-la-mesure-peut-virer-au-casse-tete-11-11-2024-FUNHGZOQUZD4DCYUTXLLYVXYD4.php)
+- **Suppression d’un jour férié : comment a été instaurée la journée de 
+solidarité envers les personnes âgées et handicapées**: [Link](https://www.ladepeche.fr/2024/11/11/suppression-dun-jour-ferie-comment-a-ete-instauree-la-journee-de-solidarite-envers-les-personnes-agees-et-handicapees-12311242.php)
+- **Le 15 août, le 8-Mai, Noël ? Nos lecteurs divisés sur le jour férié de trop**: [Link](https://www.20minutes.fr/societe/4120005-20241108-budget-2025-entre-15-aout-facile-accepter-nombreux-ponts-mai-noel-jour-ferie-supprimer)
+
+
 ### carlos alcaraz (N/A, Mon, 11 Nov 2024 06:20:00 -0800)
 
 - **Sinner y Zverev luchan por el Bonus Pool en Turín**: [Link](https://www.nittoatpfinals.com/es/news/atp-masters-1000-nitto-atp-finals-2024-bonus-pool)
