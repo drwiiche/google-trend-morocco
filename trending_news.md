@@ -1,3 +1,12 @@
+### barcelona vs real sociedad (N/A, Sun, 10 Nov 2024 12:50:00 -0800)
+
+- **Raphinha se toma a cachondeo el gol anulado a Lewandowski: así son los pies 
+del polaco**: [Link](https://www.marca.com/futbol/barcelona/2024/11/11/raphinha-toma-cachondeo-gol-anulado-lewandowski.html)
+- **La postura oficial del CTA sobre el gol anulado a Lewandowski | Real 
+Sociedad - Barça**: [Link](https://www.sport.es/es/noticias/barca/postura-oficial-cta-gol-anulado-lewandowski-111577941)
+- **Flick: “El gol anulado fue una decisión errónea, no era fuera de juego”**: [Link](https://as.com/futbol/primera/flick-le-he-dicho-al-arbitro-que-era-una-mala-decision-n/)
+
+
 ### guerre maroc algérie (N/A, Mon, 11 Nov 2024 00:10:00 -0800)
 
 - **Les caporaux d’Alger se préparent pour la guerre**: [Link](https://fr.le360.ma/politique/les-caporaux-dalger-se-preparent-pour-la-guerre_Y2W65OTNLRDO7GBBYBTEW6IFME/)
