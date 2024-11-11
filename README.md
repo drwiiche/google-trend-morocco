@@ -1,3 +1,15 @@
+### مفيدة شيحة (N/A, Sun, 10 Nov 2024 16:10:00 -0800)
+
+- **بعد وفاتها اليوم.. من هي والدة الإعلامية مفيدة شيحة؟**: [Link](https://www.egypttelegraph.com/article/90494/%D8%A8%D8%B9%D8%AF-%D9%88%D9%81%D8%A7%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%86-%D9%87%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D8%A9-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A%D8%A9)
+- **رحيل والدتي مفيدة شيحة وأحمد مكي.. ووالدة مي عزالدين في المستشفى**: [Link](https://aboutmsr.com/%D8%B1%D8%AD%D9%8A%D9%84-%D9%88%D8%A7%D9%84%D8%AF%D8%A9-%D9%85%D9%81%D9%8A%D8%AF%D8%A9-%D8%B4%D9%8A%D8%AD%D8%A9-%D9%88%D9%85%D9%83%D9%8A/)
+- **عزاء والدة الإعلامية مفيدة شيحة غدًا في مسجد المشير طنطاوي**: [Link](https://www.youm7.com/story/2024/11/10/%D8%B9%D8%B2%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D8%AF%D8%A9-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D9%85%D9%81%D9%8A%D8%AF%D8%A9-%D8%B4%D9%8A%D8%AD%D8%A9-%D8%BA%D8%AF%D9%8B%D8%A7-%D9%81%D9%8A-%D9%85%D8%B3%D8%AC%D8%AF-%D8%A7%D9%84%D9%85%D8%B4%D9%8A%D8%B1-%D8%B7%D9%86%D8%B7%D8%A7%D9%88%D9%8A/6772701)
+
+
+### kubo (N/A, Sun, 10 Nov 2024 12:50:00 -0800)
+
+
+
+
 ### la liga (N/A, Sun, 10 Nov 2024 13:20:00 -0800)
 
 - **Real Sociedad 1-0 Barcelona (Nov 10, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704786)
