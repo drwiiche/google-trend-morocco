@@ -1,3 +1,11 @@
+### مباريات المنتخب المغربي (N/A, Mon, 11 Nov 2024 10:10:00 -0800)
+
+- **بث مباشر مباراة منتخب مصر والمغرب اليوم (0-0) في تصفيات شمال أفريقيا 
+للناشئين**: [Link](https://www.almasryalyoum.com/news/details/3304096)
+- **اليوم الإثنين .. قمة بين المغرب و مصر من أجل التأهل إلى كأس إفريقيا**: [Link](https://ar.sport.le360.ma/football/can/J6E76DU3PZDT5GFQRRHXNLBU7U/)
+- **موعد مباراة المنتخب المغربي لأقل من 17 سنة ومصر والقنوات الناقلة**: [Link](https://www.analkhabar.com/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D8%A3%D9%82%D9%84/)
+
+
 ### shiba inu coin (N/A, Mon, 11 Nov 2024 06:50:00 -0800)
 
 - **Dog-themed meme coins Dogecoin, Shiba Inu and Dogwifhat extend gains as 
