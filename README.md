@@ -1,3 +1,10 @@
+### qatar (N/A, Mon, 11 Nov 2024 02:40:00 -0800)
+
+- **Qatar tells Israel not to target senior Hamas officials in Qatar - report**: [Link](https://www.jpost.com/breaking-news/article-828446)
+- **With Time Running Out, Israel's Hostage Families Just Got Some Horrific News**: [Link](https://www.haaretz.com/israel-news/haaretz-today/2024-11-10/ty-article/.highlight/with-time-running-out-israels-hostage-families-just-got-some-horrific-news/00000193-16db-dbee-addf-9efb25ca0000)
+- **Qatar stalls its Gaza ceasefire mediation**: [Link](https://www.reuters.com/world/middle-east/qatar-pull-out-gaza-ceasefire-mediation-source-says-2024-11-09/)
+
+
 ### algérie maroc guerre (N/A, Mon, 11 Nov 2024 01:50:00 -0800)
 
 - **Les caporaux d’Alger se préparent pour la guerre**: [Link](https://fr.le360.ma/politique/les-caporaux-dalger-se-preparent-pour-la-guerre_Y2W65OTNLRDO7GBBYBTEW6IFME/)
