@@ -1,3 +1,10 @@
+### محمد المسيح (N/A, Mon, 11 Nov 2024 03:00:00 -0800)
+
+- **وفاة “المسيح” أحد أبرز رواد فن الحلقة بساحة جامع الفنا**: [Link](https://kech24.com/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%AD-%D8%A3%D8%AD%D8%AF-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%B1%D9%88%D8%A7%D8%AF-%D9%81%D9%86-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-%D8%A8%D8%B3%D8%A7%D8%AD%D8%A9-%D8%AC%D8%A7%D9%85%D8%B9-%D8%A7%D9%84%D9%81%D9%86%D8%A7.html)
+- **رمز من رموز فن الحلقة " محمد المسيح" في ذمة الله**: [Link](https://agadir24.info/%D8%B1%D9%85%D8%B2-%D9%85%D9%86-%D8%B1%D9%85%D9%88%D8%B2-%D9%81%D9%86-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%AD-%D9%81%D9%8A-%D8%B0%D9%85/)
+- **ما حقيقة وفاة نجم “الحلقة” بمراكش عبد الإله المسيح؟**: [Link](https://al3omk.com/1022435.html)
+
+
 ### guerre maroc algerie (N/A, Mon, 11 Nov 2024 03:10:00 -0800)
 
 - **Les caporaux d’Alger se préparent pour la guerre**: [Link](https://fr.le360.ma/politique/les-caporaux-dalger-se-preparent-pour-la-guerre_Y2W65OTNLRDO7GBBYBTEW6IFME/)
