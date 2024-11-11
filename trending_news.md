@@ -1,3 +1,20 @@
+### حميد المهداوي (N/A, Mon, 11 Nov 2024 05:40:00 -0800)
+
+- **"ابتدائية" الرباط تدين الصحفي المهداوي بسنة ونصف حبسا نافذا وتعويض 150 
+مليون لفائدة وزير العدل**: [Link](https://alyaoum24.com/1928809.html)
+- **هادشي كيضر بالبلاد وبالصحافة.. عاجل: عامين ونص نافذة ديال الحبس فحق 
+المهداوي مع أداء 150 مليون لوزير العدل**: [Link](https://www.goud.ma/%D9%87%D8%A7%D8%AF%D8%B4%D9%8A-%D9%83%D9%8A%D8%B6%D8%B1-%D8%A8%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D9%88%D8%A8%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%B9%D8%A7%D8%AC%D9%84-%D8%B9%D8%A7%D9%85-914990/)
+- **الحكم ضد المهدوي بالسجن النافذ والغرامة**: [Link](https://badil.info/163489)
+
+
+### aguerd (N/A, Mon, 11 Nov 2024 05:40:00 -0800)
+
+- **The LaLiga defender who is on Real Madrid's agenda**: [Link](https://www.fichajes.net/en/news/the-laliga-defender-who-is-on-real-madrids-agenda-20241111.html)
+- **Real Sociedad 1-0 Barcelona: Lamine Yamal absence felt as Barca fall to La 
+Liga defeat**: [Link](https://www.bbc.com/sport/football/live/cvgxnzvnrmpt)
+- **President of the Spanish Mouse: Criticism expresses ignorance**: [Link](https://www.ysscores.com/en/news/6909921/President-of-the-Spanish-Mouse:-Criticism-expresses-ignorance)
+
+
 ### la liga classement (N/A, Sun, 10 Nov 2024 14:00:00 -0800)
 
 - **Le FC Barcelone est fou de rage !**: [Link](https://www.footmercato.net/a4622505835869467084-le-fc-barcelone-est-fou-de-rage)
