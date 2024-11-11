@@ -1,3 +1,10 @@
+### zeturf (N/A, Mon, 11 Nov 2024 07:00:00 -0800)
+
+- **Les Notes des partants du Quinté+ de ce samedi 9 novembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-samedi-9-novembre)
+- **Les pronostics Quinté du 09/11/2024 à Vincennes**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-09112024-a-vincennes-4277875)
+- **Résultats PMU : Arrivée du Tiercé du jour**: [Link](https://www.zone-turf.fr/quinte/resultats-pmu-arrivee-du-tierce-du-jour-125946.html)
+
+
 ### maroc egypte u17 (N/A, Mon, 11 Nov 2024 13:10:00 -0800)
 
 - **Foot/U20 : Le Maroc participera en Egypte au championnat UNAF**: [Link](https://fr.hespress.com/395616-foot-u20-le-maroc-participera-en-egypte-au-championnat-unaf.html)
