@@ -1,3 +1,13 @@
+### لائحة العطل 2024 (N/A, Sun, 10 Nov 2024 23:40:00 -0800)
+
+- **لائحة العطل المدرسية 2024-2025 المغرب لطلاب المدارس والجامعات وزارة التربية 
+والتعليم تُعلن – السعودية**: [Link](https://real.alsaudinews.com/211859/%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%B9%D8%B7%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-2024-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D8%B7%D9%84%D8%A7%D8%A8-%D8%A7/)
+- **تعرف علي الإحتفال الجديد بـ موعد عطلة ذكرى المسيرة الخضراء 2024 في المغرب - 
+المساء الاخباري**: [Link](https://newsy.almesasports.com/293702/%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D8%B7%D9%84%D8%A9-%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D8%A7%D8%A1/)
+- **"وفقاً لقرار الحكومة المغربية".. رزنامة الاعياد الوطنية والدينية بالمغرب 
+2024-2025 وجدول الاجازات المدرسية**: [Link](https://n.khabrna.com/311805/%D9%88%D9%81%D9%82%D8%A7%D9%8B-%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%B1%D8%B2%D9%86%D8%A7%D9%85%D8%A9/)
+
+
 ### sporting (N/A, Sun, 10 Nov 2024 13:00:00 -0800)
 
 - **Ruben Amorim na hora da despedida: “Não vou ser diferente em Manchester”**: [Link](https://www.publico.pt/2024/11/10/desporto/noticia/ruben-amorim-nao-vou-diferente-manchester-2111302)
