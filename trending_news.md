@@ -1,3 +1,11 @@
+### algérie maroc guerre (N/A, Mon, 11 Nov 2024 01:50:00 -0800)
+
+- **Les caporaux d’Alger se préparent pour la guerre**: [Link](https://fr.le360.ma/politique/les-caporaux-dalger-se-preparent-pour-la-guerre_Y2W65OTNLRDO7GBBYBTEW6IFME/)
+- **Vidéo anti-Marche Verte, ou quand les médias algériens touchent le fond**: [Link](https://fr.hespress.com/395494-video-anti-marche-verte-ou-quand-les-medias-algeriens-touchent-le-fond.html)
+- **Le Maroc et l’Algérie au bord de la guerre ? « Tout incident pourrait 
+déclencher une véritable crise**: [Link](https://www.lavoixdunord.fr/1521509/article/2024-11-10/le-maroc-et-l-algerie-au-bord-de-la-guerre-tout-incident-pourrait-declencher-une)
+
+
 ### barcelona vs real sociedad (N/A, Sun, 10 Nov 2024 12:50:00 -0800)
 
 - **Raphinha se toma a cachondeo el gol anulado a Lewandowski: así son los pies 
