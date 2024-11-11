@@ -1,3 +1,11 @@
+### maroc egypte u17 (N/A, Mon, 11 Nov 2024 13:10:00 -0800)
+
+- **Foot/U20 : Le Maroc participera en Egypte au championnat UNAF**: [Link](https://fr.hespress.com/395616-foot-u20-le-maroc-participera-en-egypte-au-championnat-unaf.html)
+- **CAN 2025 (U17/Zone UNAF) Algérie-Tunisie: les Verts pour démarrer du bon 
+pied**: [Link](https://al24news.com/fr/can-2025-u17-zone-unaf-algerie-tunisie-les-verts-pour-demarrer-du-bon-pied/)
+- **Maroc-Egypte (U17): à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-egypte-u17-a-quelle-heure-et-sur-quelle-chaine_E4MUIGL56VAVPD2D4DXYEV5H2A/)
+
+
 ### المهداوي (N/A, Mon, 11 Nov 2024 05:40:00 -0800)
 
 - **المحكمة تدين المهداوي بالحبس والغرامة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%AA%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D8%A7%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D8%AD%D8%A8%D8%B3-%D9%88%D8%A7%D9%84%D8%BA%D8%B1%D8%A7%D9%85-1462876.html)
