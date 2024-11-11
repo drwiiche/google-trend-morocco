@@ -1,3 +1,11 @@
+### maroc algerie guerre (N/A, Mon, 11 Nov 2024 14:30:00 -0800)
+
+- **Les caporaux d’Alger se préparent pour la guerre**: [Link](https://fr.le360.ma/politique/les-caporaux-dalger-se-preparent-pour-la-guerre_Y2W65OTNLRDO7GBBYBTEW6IFME/)
+- **Le Maroc et l’Algérie au bord de la guerre ? « Tout incident pourrait 
+déclencher une véritable crise**: [Link](https://www.lavoixdunord.fr/1521509/article/2024-11-10/le-maroc-et-l-algerie-au-bord-de-la-guerre-tout-incident-pourrait-declencher-une)
+- **Accusations et réalités d’Alger : qui veut vraiment la guerre ?**: [Link](https://fr.hespress.com/395476-accusations-et-realites-dalger-qui-veut-vraiment-la-guerre.html)
+
+
 ### maroc vs egypte u17 (N/A, Mon, 11 Nov 2024 12:40:00 -0800)
 
 - **Foot/U20 : Le Maroc participera en Egypte au championnat UNAF**: [Link](https://fr.hespress.com/395616-foot-u20-le-maroc-participera-en-egypte-au-championnat-unaf.html)
