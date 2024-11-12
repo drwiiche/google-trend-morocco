@@ -1,3 +1,25 @@
+### netflix (N/A, Mon, 11 Nov 2024 16:30:00 -0800)
+
+- **5 best teen comedies on Netflix right now**: [Link](https://www.tomsguide.com/entertainment/netflix/5-best-teen-comedies-on-netflix-right-now)
+- **Netflix's Arcane Season 2 Opens With Shifting Alliances and Bad Blood**: [Link](https://www.cnet.com/tech/services-and-software/netflixs-arcane-season-2-opens-with-shifting-alliances-and-bad-blood/)
+- **Arcane showrunner explains why the Netflix show had to end with season 2, 
+saying it would have been "irresponsible" to continue**: [Link](https://www.gamesradar.com/entertainment/animation-shows/arcane-showrunner-explains-why-the-netflix-show-had-to-end-with-season-2-saying-it-would-have-been-irresponsible-to-continue/)
+
+
+### the penguin (N/A, Mon, 11 Nov 2024 16:30:00 -0800)
+
+- **Colin Farrell Open to ‘The Penguin’ Season 2: “Of Course I Would Do It”**: [Link](https://www.hollywoodreporter.com/tv/tv-features/colin-farrell-penguin-finale-interview-1236055938/)
+- **‘The Penguin’: Who Is Selina Kyle, Sofia’s Half-Sister Who Sent the Letter?**: [Link](https://www.esquire.com/uk/culture/tv/a62869057/the-penguin-who-is-selina-kyle-sofias-half-sister-who-sent-the-letter/)
+- **Colin Farrell Reveals How Much The Penguin Is In The Batman 2**: [Link](https://screenrant.com/the-batman-2-penguin-colin-farrell-reveals/)
+
+
+### bitcoin (N/A, Mon, 11 Nov 2024 16:00:00 -0800)
+
+- **Bitcoin tops record $80,000 as Trump nears sweep of US Congress**: [Link](https://www.bbc.com/news/articles/c89v1w5lxxqo)
+- **Bitcoin price tops $87,000 for first time amid ‘Trump pump’**: [Link](https://www.theguardian.com/technology/2024/nov/11/bitcoin-price-tops-81000-trump-cryptocurrencies)
+- **Where the Demand Comes From as Bitcoin Breaks Through $82K: Van Straten**: [Link](https://www.coindesk.com/markets/2024/11/11/where-the-demand-comes-from-as-bitcoin-breaks-through-82k-van-straten/)
+
+
 ### maroc algerie guerre (N/A, Mon, 11 Nov 2024 14:30:00 -0800)
 
 - **Les caporaux d’Alger se préparent pour la guerre**: [Link](https://fr.le360.ma/politique/les-caporaux-dalger-se-preparent-pour-la-guerre_Y2W65OTNLRDO7GBBYBTEW6IFME/)
