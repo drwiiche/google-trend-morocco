@@ -1,3 +1,21 @@
+### song jae rim (N/A, Tue, 12 Nov 2024 05:10:00 -0800)
+
+- **Queen Woo And Two Weeks Actor Song Jae Rim Dies At 39**: [Link](https://www.ndtv.com/entertainment/queen-woo-and-two-weeks-actor-song-jae-rim-dies-at-39-7001559)
+- **Actor Song Jae Rim found dead in Seoul apartment at age 39; Police find 
+two-page letter**: [Link](https://timesofindia.indiatimes.com/web-series/news/korean/actor-song-jae-rim-found-dead-in-seoul-apartment-at-age-39-police-find-two-page-letter/articleshow/115215531.cms)
+- **Song Jae Rim, 39-year-old South Korean actor, found dead in his Seoul 
+apartment**: [Link](https://m.economictimes.com/news/international/global-trends/song-jae-rim-39-year-old-south-korean-actor-found-dead-in-his-seoul-apartment/articleshow/115217658.cms)
+
+
+### gladiator 2 (N/A, Tue, 12 Nov 2024 05:10:00 -0800)
+
+- **‘Gladiator II’ Review: Paul Mescal Is a Pensive Avenger in Ridley Scott’s 
+Serviceable but Far From Great Sequel**: [Link](https://variety.com/2024/film/reviews/gladiator-2-review-paul-mescal-denzel-washington-pedro-pascal-ridley-scott-1236204115/)
+- **Gladiator II reviews: Critics say Paul Mescal film is 'gobsmacking' and 
+'loopy'**: [Link](https://www.bbc.com/news/articles/c20g5xw0y6wo)
+- **‘Gladiator 2’ Reviews Are In, And Better Than ‘Gladiator’**: [Link](https://www.forbes.com/sites/paultassi/2024/11/11/gladiator-2-reviews-are-in-and-better-than-gladiator/)
+
+
 ### موعد مباراة المنتخب المغربي (N/A, Tue, 12 Nov 2024 04:40:00 -0800)
 
 - **"أشبال U17" يكتسحون منتخب مصر**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-u17-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD%D9%88%D9%86-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-1463236.html)
