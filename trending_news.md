@@ -1,3 +1,12 @@
+### ici tout commence (N/A, Tue, 12 Nov 2024 13:00:00 -0800)
+
+- **Ici tout commence du lundi 11 novembre 2024 - Episode 1043**: [Link](https://www.tf1.fr/tf1/ici-tout-commence/videos/ici-tout-commence-du-lundi-11-novembre-2024-episode-1043-83398874.html)
+- **Ici Tout Commence en avance du 15 novembre 2024 : Anaïs fait face à un 
+terrible handicap et Rose écoute son cœur (Résumé de l'épisode 1047)**: [Link](https://newsactual.fr/ici-tout-commence-en-avance-du-15-novembre-2024-anais-fait-face-a-un-terrible-handicap-et-rose-ecoute-son-coeur-resume-de-lepisode-1047/)
+- **Ici tout commence (spoilers) : Milan sauve Anaïs et Coline se met dans un 
+énorme pétrin**: [Link](https://www.telestar.fr/serie_tv/ici-tout-commence-spoilers-milan-sauve-anais-et-coline-se-met-dans-un-enorme-petrin-1697879)
+
+
 ### الطقس غدًا (N/A, Tue, 12 Nov 2024 12:00:00 -0800)
 
 - **تقلبات جوية.. تحذير من حالة الطقس اليوم الثلاثاء 12-11-2024**: [Link](https://aboutmsr.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85/)
