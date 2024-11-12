@@ -1,3 +1,21 @@
+### 2m (N/A, Tue, 12 Nov 2024 13:10:00 -0800)
+
+- **Saarbrücken-based MONA AI secures €2 million aiming to revolutionise 
+recruitment**: [Link](https://www.eu-startups.com/2024/11/saarbrucken-based-mona-ai-secures-e2-million-aiming-to-revolutionise-recruitment-with-ai/)
+- **Biffa Sues Contractor For £2M Over Waste Scheme Tax Scam**: [Link](https://www.law360.com/articles/2249328/biffa-sues-contractor-for-2m-over-waste-scheme-tax-scam)
+- **SeaO2 Raises Over €2M in Funding**: [Link](https://www.finsmes.com/2024/11/seao2-raises-over-e2m-in-funding.html)
+
+
+### jon jones (N/A, Tue, 12 Nov 2024 10:00:00 -0800)
+
+- **UFC 309 fight card, odds, date and start time for Jon Jones vs. Stipe 
+Miocic, more**: [Link](https://sports.yahoo.com/ufc-309-fight-card-odds-date-and-start-time-for-jon-jones-vs-stipe-miocic-more-190025350.html)
+- **‘Two finishes in 10 years’… Magomed Ankalaev continues to goad Jon Jones 
+over claims UFC champ is ‘ducking’ Tom Aspinall**: [Link](https://bloodyelbow.com/2024/11/12/two-finishes-in-10-years-magomed-ankalaev-continues-to-goad-jon-jones-over-claims-ufc-champ-is-ducking-tom-aspinall/)
+- **What Happens to Tom Aspinall Interim UFC Heavyweight Title After UFC 309: 
+Jon Jones vs Stipe Miocic?**: [Link](https://www.essentiallysports.com/ufc-mma-news-what-happens-to-tom-aspinall-interim-ufc-heavyweight-title-after-ufc-309-jon-jones-vs-stipe-miocic/)
+
+
 ### ici tout commence (N/A, Tue, 12 Nov 2024 13:00:00 -0800)
 
 - **Ici tout commence du lundi 11 novembre 2024 - Episode 1043**: [Link](https://www.tf1.fr/tf1/ici-tout-commence/videos/ici-tout-commence-du-lundi-11-novembre-2024-episode-1043-83398874.html)
