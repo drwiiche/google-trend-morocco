@@ -1,3 +1,10 @@
+### marco rubio (N/A, Tue, 12 Nov 2024 09:30:00 -0800)
+
+- **Trump Expected to Name Marco Rubio as Secretary of State**: [Link](https://www.nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html)
+- **Trump lining up Marco Rubio and Kristi Noem for top jobs**: [Link](https://www.bbc.com/news/articles/c33epjve28ko)
+- **Trump expected to appoint China critics Marco Rubio and Mike Waltz**: [Link](https://www.theguardian.com/us-news/2024/nov/11/trump-mike-waltz-national-security-adviser)
+
+
 ### الشيخ محمد حسان (N/A, Tue, 12 Nov 2024 04:30:00 -0800)
 
 - **جديد حيازة نجل داعية مصري للمخدرات.. سيارة فارهة ومنصب بفضائية شهيرة**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/11/11/%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AD%D9%8A%D8%A7%D8%B2%D8%A9-%D9%86%D8%AC%D9%84-%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A-%D9%84%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D9%81%D8%A7%D8%B1%D9%87%D8%A9-%D9%88%D9%85%D9%86%D8%B5%D8%A8-%D8%A8%D9%81%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D8%B4%D9%87%D9%8A%D8%B1%D8%A9)
