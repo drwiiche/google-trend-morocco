@@ -1,3 +1,18 @@
+### المنتخب المغربي (N/A, Tue, 12 Nov 2024 10:20:00 -0800)
+
+- **الركراكي:اتصلت بزياش ويجب عليه استعادة مستواه**: [Link](https://www.almountakhab.com/node/13206473)
+- **الركراكي يكشف أسباب استبعاده لحكيم زياش**: [Link](https://kech24.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF%D9%87-%D9%84%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4.html)
+- **مركب المعمورة يستقبل أسود الأطلس**: [Link](https://www.hespress.com/%D9%85%D8%B1%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B9%D9%85%D9%88%D8%B1%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1463194.html)
+
+
+### christophe lecourtier (N/A, Tue, 12 Nov 2024 10:00:00 -0800)
+
+- **Journées économiques Maroc-France : 50 chefs d’entreprise français à 
+Laâyoune et Dakhla**: [Link](https://ledesk.ma/enoff/journees-economiques-maroc-france-50-chefs-dentreprise-francais-a-laayoune-et-dakhla/)
+- **L’Agence française de développement met le cap sur les provinces du Sud**: [Link](https://fr.le360.ma/economie/lagence-francaise-de-developpement-met-le-cap-sur-les-provinces-du-sud_TOVGDXXV7NHVRBURSGMLTB7EWU/)
+- **Christophe Lecourtier en visite au Sahara**: [Link](https://fr.hespress.com/395773-christophe-lecourtier-en-visite-au-sahara.html)
+
+
 ### marco rubio (N/A, Tue, 12 Nov 2024 09:30:00 -0800)
 
 - **Trump Expected to Name Marco Rubio as Secretary of State**: [Link](https://www.nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html)
