@@ -1,3 +1,12 @@
+### um6p (N/A, Tue, 12 Nov 2024 13:20:00 -0800)
+
+- **L’UM6P organise la 2e édition du « International Campus of Excellence 
+Africa »**: [Link](https://fr.hespress.com/395846-lum6p-organise-la-2e-edition-du-international-campus-of-excellence-africa.html)
+- **L’UM6P organise la 2e édition du « International Campus of Excellence 
+Africa »**: [Link](https://www.leconomiste.com/flash-infos/l-um6p-organise-la-2e-edition-du-international-campus-excellence-africa)
+- **L’UM6P accueille le Nobel de médecine Richard Roberts**: [Link](https://www.challenge.ma/lum6p-accueille-le-nobel-de-medecine-richard-roberts-291049/)
+
+
 ### 2m (N/A, Tue, 12 Nov 2024 13:10:00 -0800)
 
 - **Saarbrücken-based MONA AI secures €2 million aiming to revolutionise 
