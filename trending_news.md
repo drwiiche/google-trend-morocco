@@ -1,3 +1,10 @@
+### akhomach (N/A, Tue, 12 Nov 2024 07:50:00 -0800)
+
+- **Zakaria Aboukhlal Joins Morocco Squad to Replace Injured Akhomach**: [Link](https://www.moroccoworldnews.com/2024/11/366310/zakaria-aboukhlal-joins-morocco-squad-to-replace-injured-akhomach)
+- **Moroccan international Ilias Akhomach suffers serious knee injury**: [Link](https://en.yabiladi.com/articles/details/156114/moroccan-international-ilias-akhomach-suffers.html)
+- **Villarreal keen to launch January bid to re-sign attacker from Wolves**: [Link](https://www.football-espana.net/2024/11/10/villarreal-keen-to-launch-january-bid-to-re-sign-attacker-from-wolves)
+
+
 ### incident diplomatique israël (N/A, Tue, 12 Nov 2024 07:10:00 -0800)
 
 - **Incident à Jérusalem : "La France n’acceptera pas que cela se reproduise", 
