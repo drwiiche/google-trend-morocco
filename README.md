@@ -1,3 +1,19 @@
+### sarah saldmann (N/A, Tue, 12 Nov 2024 02:00:00 -0800)
+
+- **Quelle Époque : Sarah Saldmann règle ses comptes avec François Ruffin qu’il 
+l’a virée de son film en plein tournage (VIDEO)**: [Link](https://www.programme-television.org/news/tv/sequences-tele/quelle-epoque-sarah-saldmann-regle-ses-comptes-avec-francois-ruffin-qu-il-l-a-viree-de-son-film-en-plein-tournage-video-4734791)
+- **« Au boulot ! » : rendez-vous en terre inconnue parmi les classes populaires**: [Link](https://www.courrier-picard.fr/id577056/article/2024-11-11/au-boulot-rendez-vous-en-terre-inconnue-parmi-les-classes-populaires)
+- **Qui est Sarah Saldmann, l’avocate et chroniqueuse star de CNews, visage du 
+film Au Boulot ! de François Ruffin ?**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/qui-est-sarah-saldmann-l-avocate-et-chroniqueuse-star-de-cnews-visage-du-film-au-boulot-de-francois-ruffin-20241111)
+
+
+### nayef aguerd (N/A, Tue, 12 Nov 2024 01:00:00 -0800)
+
+- **The LaLiga defender who is on Real Madrid's agenda**: [Link](https://www.fichajes.net/en/news/the-laliga-defender-who-is-on-real-madrids-agenda-20241111.html)
+- **Real Madrid contemplating Nayef Aguerd swoop**: [Link](https://thehardtackle.com/transfer-news/2024/11/12/real-madrid-contemplating-nayef-aguerd-swoop/)
+- **Flick slams 'wrong' VAR decision in Barça loss**: [Link](https://www.espn.com/soccer/story/_/id/42314833/barcelona-coach-flick-slams-wrong-var-decision)
+
+
 ### bitcoin price (N/A, Mon, 11 Nov 2024 16:50:00 -0800)
 
 - **Bitcoin is closing in on $90,000 for the first time ever**: [Link](https://www.cnbc.com/2024/11/11/crypto-market-action-today.html)
