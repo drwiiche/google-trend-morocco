@@ -1,3 +1,13 @@
+### coinmarketcap (N/A, Mon, 11 Nov 2024 16:20:00 -0800)
+
+- **Why Dogecoin Price Is Surging: Breaking News and Price Analysis for 
+November 2024**: [Link](https://www.financemagnates.com/cryptocurrency/why-dogecoin-price-is-surgingbreaking-newsandprice-analysisfornovember-2024/)
+- **Memecoin prices explode as Dogecoin, Shiba Inu lead the way, and Flockerz 
+ICO nears $1.5M**: [Link](https://cointelegraph.com/market-releases/memecoin-prices-explode-as-dogecoin-shiba-inu-lead-the-way-and-flockerz-ico-nears-15m)
+- **Pundit Says Shiba Inu $100B Market Cap Is Confirmed—Here’s the Price per 
+SHIB if This Happens**: [Link](https://thecryptobasic.com/2024/11/11/pundit-says-shiba-inu-100b-market-cap-is-confirmed-heres-the-price-per-shib-if-this-happens/)
+
+
 ### btc (N/A, Mon, 11 Nov 2024 16:20:00 -0800)
 
 - **Bitcoin is closing in on $90,000 for the first time ever**: [Link](https://www.cnbc.com/2024/11/11/crypto-market-action-today.html)
