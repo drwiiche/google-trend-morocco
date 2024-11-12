@@ -1,3 +1,12 @@
+### intoxication alimentaire (N/A, Tue, 12 Nov 2024 01:10:00 -0800)
+
+- **Médiouna: une intoxication alimentaire entraîne l’hospitalisation de 140 
+personnes**: [Link](https://fr.le360.ma/societe/mediouna-une-intoxication-alimentaire-entraine-lhospitalisation-de-140-personnes_RKS2FPEH55EAHBWIP7HSTQ3754/)
+- **Médiouna: 140 hospitalisations après une intoxication dans un restaurant**: [Link](https://www.h24info.ma/mediouna-140-hospitalisations-apres-une-intoxication-dans-un-restaurant/)
+- **Casablanca : plus de 50 personnes hospitalisées suite à une intoxication 
+alimentaire à Mediouna**: [Link](https://www.lesiteinfo.com/maroc/632021-casablanca-plus-de-50-personnes-hospitalisees-suite-a-une-intoxication-alimentaire-a-mediouna.html)
+
+
 ### song jae-rim (N/A, Tue, 12 Nov 2024 05:30:00 -0800)
 
 - **Queen Woo And Two Weeks Actor Song Jae Rim Dies At 39**: [Link](https://www.ndtv.com/entertainment/queen-woo-and-two-weeks-actor-song-jae-rim-dies-at-39-7001559)
