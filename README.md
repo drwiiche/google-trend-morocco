@@ -1,3 +1,21 @@
+### song jae-rim (N/A, Tue, 12 Nov 2024 05:30:00 -0800)
+
+- **Queen Woo And Two Weeks Actor Song Jae Rim Dies At 39**: [Link](https://www.ndtv.com/entertainment/queen-woo-and-two-weeks-actor-song-jae-rim-dies-at-39-7001559)
+- **Actor Song Jae Rim found dead in Seoul apartment at age 39; Police find 
+two-page letter**: [Link](https://timesofindia.indiatimes.com/web-series/news/korean/actor-song-jae-rim-found-dead-in-seoul-apartment-at-age-39-police-find-two-page-letter/articleshow/115215531.cms)
+- **South Korean Actor Song Jae Rim Passes Away At 39, Found Dead In Seoul 
+Apartment**: [Link](https://www.news18.com/movies/south-korean-actor-song-jae-rim-passes-away-at-39-found-dead-in-seoul-apartment-9117748.html)
+
+
+### ياسين بوراس (N/A, Tue, 12 Nov 2024 01:30:00 -0800)
+
+- **وفاة ياسين بوراس بعد أقل من 48 ساعة على تعيينه مسؤولا عن متاجر النادي 
+المكناسي الرسمية - Elbotola**: [Link](https://m.elbotola.com/article/2024-11-12-09-52-951.html)
+- **وفاة مفاجئ لأحد أوفى مشجعي النادي المكناسي بعد يوم من تعيينه مسؤولا عن 
+متاجر الفريق (صور)**: [Link](https://sabahagadir.ma/330278.html)
+- **وفاة « سفير " النادي المكناسي بعد أقل من 24 ساعة بعد تعيينه**: [Link](http://ar.sport.le360.ma/football/MV3UYT4HDFDY5OEM5OK4KYBVUI/)
+
+
 ### song jae rim (N/A, Tue, 12 Nov 2024 05:10:00 -0800)
 
 - **Queen Woo And Two Weeks Actor Song Jae Rim Dies At 39**: [Link](https://www.ndtv.com/entertainment/queen-woo-and-two-weeks-actor-song-jae-rim-dies-at-39-7001559)
