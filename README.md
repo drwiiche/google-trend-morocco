@@ -1,3 +1,12 @@
+### incident diplomatique israël (N/A, Tue, 12 Nov 2024 07:10:00 -0800)
+
+- **Incident à Jérusalem : "La France n’acceptera pas que cela se reproduise", 
+déclare Jean-Noël Barrot**: [Link](https://www.france24.com/fr/europe/20241112-en-direct-chef-diplomatie-france-jean-no%C3%ABl-barrot-questions-france24-rfi-ukraine-liban-gaza-donald-trump)
+- **Incident diplomatique à Jérusalem : l’ambassadeur d’Israël convoqué ce 
+mardi au ministère des Affaires étrangères**: [Link](https://www.leparisien.fr/international/israel/incident-diplomatique-a-jerusalem-lambassadeur-disrael-convoque-ce-mardi-au-ministere-des-affaires-etrangeres-11-11-2024-XX3YCEMOGFCCDLKYKOR52IGT5A.php)
+- **Gendarmes expulsés en Israël : un camouflet pour la France**: [Link](https://www.lepoint.fr/monde/gendarmes-expulses-en-israel-un-camouflet-pour-la-france-08-11-2024-2574813_24.php)
+
+
 ### intoxication alimentaire (N/A, Tue, 12 Nov 2024 01:10:00 -0800)
 
 - **Médiouna: une intoxication alimentaire entraîne l’hospitalisation de 140 
