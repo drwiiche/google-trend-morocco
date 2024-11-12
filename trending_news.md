@@ -1,3 +1,10 @@
+### الشيخ محمد حسان (N/A, Tue, 12 Nov 2024 04:30:00 -0800)
+
+- **جديد حيازة نجل داعية مصري للمخدرات.. سيارة فارهة ومنصب بفضائية شهيرة**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/11/11/%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AD%D9%8A%D8%A7%D8%B2%D8%A9-%D9%86%D8%AC%D9%84-%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A-%D9%84%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D9%81%D8%A7%D8%B1%D9%87%D8%A9-%D9%88%D9%85%D9%86%D8%B5%D8%A8-%D8%A8%D9%81%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D8%B4%D9%87%D9%8A%D8%B1%D8%A9)
+- **ضجة واسعة بعد اعتقال نجل الداعية الشهير محمد حسان إثر وقوعه في المحظور**: [Link](https://www.akhbarona.com/world/395512.html)
+- **مصر.. التحقيق مع نجل داعية شهير بتهمة حيازة مواد مخدرة**: [Link](https://arabic.cnn.com/middle-east/article/2024/11/11/egypt-investigation-famous-preacher-son-charges-possessing-narcotics)
+
+
 ### akhomach (N/A, Tue, 12 Nov 2024 07:50:00 -0800)
 
 - **Zakaria Aboukhlal Joins Morocco Squad to Replace Injured Akhomach**: [Link](https://www.moroccoworldnews.com/2024/11/366310/zakaria-aboukhlal-joins-morocco-squad-to-replace-injured-akhomach)
