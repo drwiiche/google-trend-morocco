@@ -1,3 +1,11 @@
+### bitcoin price (N/A, Mon, 11 Nov 2024 16:50:00 -0800)
+
+- **Bitcoin is closing in on $90,000 for the first time ever**: [Link](https://www.cnbc.com/2024/11/11/crypto-market-action-today.html)
+- **Bitcoin, Dogecoin and Solana Surge in Post-Election Crypto Price Jump**: [Link](https://www.wsj.com/livecoverage/stock-market-today-dow-sp500-nasdaq-live-11-11-2024/card/bitcoin-dogecoin-and-solana-surge-in-post-election-crypto-price-jump-U5Qi7sntwzDsGRmSaOlw)
+- **Bitcoin has topped $87,000 for a new record high. What to know about 
+crypto's post-election rally**: [Link](https://apnews.com/article/bitcoin-price-record-trump-election-rally-crypto-9a22f5b5ce24824d7df5a3ab4a58e8a0)
+
+
 ### coinmarketcap (N/A, Mon, 11 Nov 2024 16:20:00 -0800)
 
 - **Why Dogecoin Price Is Surging: Breaking News and Price Analysis for 
