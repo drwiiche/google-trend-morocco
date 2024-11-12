@@ -1,3 +1,28 @@
+### btc (N/A, Mon, 11 Nov 2024 16:20:00 -0800)
+
+- **Bitcoin is closing in on $90,000 for the first time ever**: [Link](https://www.cnbc.com/2024/11/11/crypto-market-action-today.html)
+- **Bitcoin Record Lifts Crypto Market Value Past Pandemic-Era Peak**: [Link](https://www.bloomberg.com/news/articles/2024-11-11/bitcoin-btc-record-lifts-crypto-market-value-past-pandemic-era-peak)
+- **Bitcoin has topped $87,000 for a new record high. What to know about 
+crypto's post-election rally**: [Link](https://apnews.com/article/bitcoin-price-record-trump-election-rally-crypto-9a22f5b5ce24824d7df5a3ab4a58e8a0)
+
+
+### couhaib driouech (N/A, Mon, 11 Nov 2024 15:50:00 -0800)
+
+- **Zaakwaarnemer: 'Driouech vond het een eer, maar daarom is hij nu niet 
+beschikbaar'**: [Link](https://www.voetbalprimeur.nl/nieuws/1237843/driouech-wil-nog-niet-kiezen-tussen-oranje-en-marokko.html)
+- **Jong Oranje met debutant Driouech tegen regerend kampioen Engeland en EK 
+2025-host Slowakije**: [Link](https://www.onsoranje.nl/nieuws/jong-oranje-mannen/81749/jong-oranje-met-debutant-driouech-tegen-regerend-kampioen-engeland)
+- **Ongelooflijke misser van de KNVB toont aan: nauwelijks geleerd van 
+hoofdpijndossier rond Hakim Ziyech**: [Link](https://sportnieuws.nl/voetbal/nieuws/ongelooflijke-misser-van-de-knvb-toont-aan-nauwelijks-geleerd-van-hoofdpijndossier-rond-hakim-ziyech-2024111115391404504/)
+
+
+### الصحفي حميد المهداوي (N/A, Mon, 11 Nov 2024 12:00:00 -0800)
+
+- **حكم بسجن صحفي مغربي في قضية "سيارة وزير العدل"**: [Link](https://www.alhurra.com/morocco/2024/11/11/%D8%AD%D9%83%D9%85-%D8%A8%D8%B3%D8%AC%D9%86-%D8%B5%D8%AD%D9%81%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%AF%D9%84)
+- **المحكمة تدين المهداوي بالحبس والغرامة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%AA%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D8%A7%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D8%AD%D8%A8%D8%B3-%D9%88%D8%A7%D9%84%D8%BA%D8%B1%D8%A7%D9%85-1462876.html)
+- **القضاء يحكم بسجن حميد المهدوي وتغريمه 150 مليون سنتيم لصالح وهبي**: [Link](https://ar.hibapress.com/details-572254.html)
+
+
 ### netflix (N/A, Mon, 11 Nov 2024 16:30:00 -0800)
 
 - **5 best teen comedies on Netflix right now**: [Link](https://www.tomsguide.com/entertainment/netflix/5-best-teen-comedies-on-netflix-right-now)
