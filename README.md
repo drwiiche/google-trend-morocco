@@ -1,3 +1,11 @@
+### azzedine ounahi (N/A, Mon, 11 Nov 2024 22:50:00 -0800)
+
+- **Eliminatoires CAN Maroc-2025 : début des entrainements des Lions de l’Atlas**: [Link](https://frmf.ma/fr/eliminatoires-can-maroc-2025-debut-des-entrainements-des-lions-de-latlas/)
+- **Panathinaïkós : Sorti sur blessure, Azzedine Ounahi rejoindra bel et bien 
+les Lions de l'Atlas**: [Link](https://fr.hespress.com/395651-panathinaikos-sorti-sur-blessure-azzedine-ounahi-rejoindra-bel-et-bien-les-lions-de-latlas.html)
+- **Lions de l’Atlas: voici les sifflets pour le Gabon et le Lesotho**: [Link](https://sport.le360.ma/football/can/lions-de-latlas-voici-les-sifflets-pour-le-gabon-et-le-lesotho_5UB4KLXVA5FUJJI4UK4PW7IK4A/)
+
+
 ### sarah saldmann (N/A, Tue, 12 Nov 2024 02:00:00 -0800)
 
 - **Quelle Époque : Sarah Saldmann règle ses comptes avec François Ruffin qu’il 
