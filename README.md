@@ -1,3 +1,12 @@
+### محاكم (N/A, Tue, 12 Nov 2024 03:30:00 -0800)
+
+- **"خرق الإضراب" يستدعي محامين إلى المساءلة في هيئة الدار البيضاء**: [Link](https://www.hespress.com/%D8%AE%D8%B1%D9%82-%D8%A7%D9%84%D8%A5%D8%B6%D8%B1%D8%A7%D8%A8-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D9%85%D8%AD%D8%A7%D9%85%D9%8A%D9%86-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%A1-1463149.html)
+- **عاجل… جمعية هيئات المحامين تعلق الإضراب المفتوح عن العمل في المحاكم – اليوم 
+24**: [Link](https://alyaoum24.com/1928850.html)
+- **المحاكم تتنفس الصعداء ،،، المحامون يعودون للاستئناف عملهم غدا الثلاثاء بعد 
+لقاء مع وزير العدل**: [Link](https://ar.hibapress.com/details-572458.html)
+
+
 ### azzedine ounahi (N/A, Mon, 11 Nov 2024 22:50:00 -0800)
 
 - **Eliminatoires CAN Maroc-2025 : début des entrainements des Lions de l’Atlas**: [Link](https://frmf.ma/fr/eliminatoires-can-maroc-2025-debut-des-entrainements-des-lions-de-latlas/)
