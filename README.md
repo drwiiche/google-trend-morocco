@@ -1,3 +1,14 @@
+### steven witkoff (N/A, Wed, 13 Nov 2024 13:00:00 -0800)
+
+- **Trump appoints real estate investor, golf partner as Middle East peace envoy**: [Link](https://www.politico.com/live-updates/2024/11/12/congress/from-trumps-golf-partner-to-middle-east-envoy-00189132)
+- **Republican Senator Scott eliminated from leadership contest in first round, 
+source says**: [Link](https://bluewaterhealthyliving.com/republican-senator-scott-eliminated/)
+- **6c722eacU.S. President-elect Donald Trump has named Steven Witkoff, a 
+longtime close friend and Jewish businessman, whom he called a 
+“highly-respected leader in business and philanthropy,” as his special 
+Middle East envoy.e0a13c90f3bd22003b005e**: [Link](https://ejpress.org/trump-nominates-jewish-businessman-close-friend-as-special-middle-east-envoy/6c722eace0a13c90f3bd22003b005e06/)
+
+
 ### malaga espagne (N/A, Wed, 13 Nov 2024 12:10:00 -0800)
 
 - **Inondations en Espagne : Madrid s’apprête à incorporer l’aide du Maroc**: [Link](https://ledesk.ma/encontinu/inondations-en-espagne-madrid-sapprete-a-incorporer-laide-du-maroc/)
