@@ -1,3 +1,10 @@
+### marsa maroc (N/A, Wed, 13 Nov 2024 06:50:00 -0800)
+
+- **Portuaire : Après le Bénin, Marsa Maroc jette l'ancre au Liberia**: [Link](https://boursenews.ma/article/marches/Marsa-maroc-liberia)
+- **Marsa Maroc s'étend en Afrique et va opérer au Liberia**: [Link](https://lematin.ma/economie/marsa-maroc-setend-en-afrique-et-va-operer-au-liberia/251186)
+- **Marsa Maroc étend ses tentacules en Afrique**: [Link](https://www.challenge.ma/marsa-maroc-etend-ses-tentacules-en-afrique-291191/)
+
+
 ### tout le monde veut prendre sa place (N/A, Wed, 13 Nov 2024 06:30:00 -0800)
 
 - **Isabelle éliminée de Tout le monde veut prendre sa place : "Je n'y étais 
