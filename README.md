@@ -1,3 +1,12 @@
+### malaga espagne (N/A, Wed, 13 Nov 2024 12:10:00 -0800)
+
+- **Inondations en Espagne : Madrid s’apprête à incorporer l’aide du Maroc**: [Link](https://ledesk.ma/encontinu/inondations-en-espagne-madrid-sapprete-a-incorporer-laide-du-maroc/)
+- **Espagne : Malaga, Tarragone et Valence en alerte rouge face à de nouvelles 
+pluies torrentielles, deux semaines après les inondations meurtrières**: [Link](https://www.lemonde.fr/planete/article/2024/11/13/espagne-malaga-tarragone-et-valence-en-alerte-rouge-face-a-de-nouvelles-pluies-torrentielles-deux-semaines-apres-les-inondations-meurtrieres_6390748_3245.html)
+- **Inondations en Espagne : Le Maroc envoie une aide composée de 25 camions et 
+70 travailleurs**: [Link](https://fr.hespress.com/396108-inondations-en-espagne-le-maroc-envoie-une-aide-composee-de-25-camions-et-70-travailleurs.html)
+
+
 ### الطقس غدًا (N/A, Wed, 13 Nov 2024 12:00:00 -0800)
 
 - **«موجة باردة» ومنخفض جوى جديد.. بيان مهم بشأن تحول حالة الطقس ودرجات الحرارة**: [Link](https://www.almasryalyoum.com/news/details/3304987)
