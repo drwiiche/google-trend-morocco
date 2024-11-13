@@ -1,3 +1,17 @@
+### météo (N/A, Tue, 12 Nov 2024 22:00:00 -0800)
+
+- **Les pluies de retour mercredi et jeudi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/les-pluies-de-retour-mercredi-et-jeudi-dans-plusieurs-regions-du-maroc/251065)
+- **Le temps qu'il fera ce mercredi 13 novembre 2024**: [Link](https://fr.hespress.com/395563-le-temps-quil-fera-ce-mercredi-13-novembre-2024.html)
+- **Météo: les couleurs du ciel ce mardi 12 novembre 2024**: [Link](https://www.h24info.ma/meteo-les-couleurs-du-ciel-ce-mardi-12-novembre-2024/)
+
+
+### الطقس (N/A, Tue, 12 Nov 2024 22:00:00 -0800)
+
+- **الطقس في المغرب: المنخفض الأطلسي يتخذ منحى مفاجئ ـ صور ـ**: [Link](https://www.analkhabar.com/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3%D9%8A-%D9%8A%D8%AA%D8%AE%D8%B0-%D9%85/)
+- **طقس الثلاثاء: سحب كثيفة مع ضباب في عدد من المناطق – اليوم 24**: [Link](https://alyaoum24.com/1928926.html)
+- **توقعات الأرصاد الجوية.. انخفاض في درجة الحرارة ابتداءً من يوم الأربعاء**: [Link](https://rue20.com/853228.html)
+
+
 ### weather (N/A, Tue, 12 Nov 2024 22:00:00 -0800)
 
 - **BREVARD WEATHER FORECAST: Mostly Sunny, High Near 81, Windy on Wednesday on 
