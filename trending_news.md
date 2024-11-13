@@ -1,3 +1,11 @@
+### الطقس غدًا (N/A, Wed, 13 Nov 2024 12:00:00 -0800)
+
+- **«موجة باردة» ومنخفض جوى جديد.. بيان مهم بشأن تحول حالة الطقس ودرجات الحرارة**: [Link](https://www.almasryalyoum.com/news/details/3304987)
+- **مصر | امتداد منخفض جوي ضعيف يؤثر على البلاد بداية الأسبوع وفرص الأمطار تشمل 
+هذه المناطق**: [Link](https://www.arabiaweather.com/ar/content/%D9%85%D8%B5%D8%B1-%D8%A7%D9%85%D8%AA%D8%AF%D8%A7%D8%AF-%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D8%B6%D8%B9%D9%8A%D9%81-%D9%8A%D8%A4%D8%AB%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%88%D9%81%D8%B1%D8%B5-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B4%D9%85%D9%84-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82)
+- **طقس الأربعاء معتدل.. والأرصاد تحذر من اضطراب الملاحة البحرية**: [Link](https://gate.ahram.org.eg/News/5030244.aspx)
+
+
 ### mike tyson vs jake paul (N/A, Wed, 13 Nov 2024 10:20:00 -0800)
 
 - **Mike Tyson vs. Jake Paul referee handled YouTuber fight last year**: [Link](https://www.usatoday.com/story/sports/boxing/2024/11/13/mike-tyson-jake-paul-referee-mark-calo-oy/76247190007/)
