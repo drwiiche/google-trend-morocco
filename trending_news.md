@@ -1,3 +1,12 @@
+### gladiator ii (N/A, Wed, 13 Nov 2024 07:40:00 -0800)
+
+- **Airbnb Is Renting Out the Colosseum for Up to 16 Lucky Guests to Live Out 
+Their ‘Gladiator’ Fantasies**: [Link](https://variety.com/2024/film/news/gladiator-2-airbnb-colosseum-experiencebook-online-1236208248/)
+- **Roman Colosseum Opens For Gladiator Combat Thanks To Airbnb Icons**: [Link](https://www.forbes.com/sites/jimdobson/2024/11/13/roman-colosseum-opens-for-gladiator-combat-thanks-to-airbnb-icons/)
+- **Airbnb Launches Once-in-a-Lifetime 'Gladiator II' Experience Inside the 
+Colosseum After Hours (Exclusive)**: [Link](https://people.com/airbnb-debuts-iconic-gladiator-ii-experience-at-the-colosseum-exclusive-8743211)
+
+
 ### marsa maroc (N/A, Wed, 13 Nov 2024 06:50:00 -0800)
 
 - **Portuaire : Après le Bénin, Marsa Maroc jette l'ancre au Liberia**: [Link](https://boursenews.ma/article/marches/Marsa-maroc-liberia)
