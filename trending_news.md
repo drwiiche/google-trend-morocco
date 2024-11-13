@@ -1,3 +1,13 @@
+### carlos alcaraz (N/A, Wed, 13 Nov 2024 05:30:00 -0800)
+
+- **ATP Finals 2024: calendario, fechas, horarios, grupos y dónde ver por TV y 
+online**: [Link](https://www.elmundo.es/como/2024/11/08/672dda1efdddff680f8b456d.html)
+- **Carlos Alcaraz sale a entrenar con una tira nasal antes del partido con 
+Rublev**: [Link](https://www.marca.com/tenis/copa-masters/2024/11/13/carlos-alcaraz-sale-entrenar-tira-nasal-partido-rublev.html)
+- **Alcaraz - Rublev, en directo hoy: partido de las ATP Finals 2024 de tenis, 
+en vivo**: [Link](https://www.mundodeportivo.com/tenis/20241113/1002351742/alcaraz-rublev-directo-hoy-partido-atp-finals-2024-tenis-vivo.html)
+
+
 ### namibie – cameroun (N/A, Wed, 13 Nov 2024 05:20:00 -0800)
 
 - **Comment suivre le match des éliminatoires de la CAN 2025 Namibie - Cameroun**: [Link](https://www.20minutes.fr/sport/football/4120584-20241110-namibie-cameroun-chaine-heure-voir-match-eliminatoires-can-2025)
