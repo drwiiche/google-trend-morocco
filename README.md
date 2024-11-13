@@ -1,3 +1,12 @@
+### vivek ramaswamy (N/A, Wed, 13 Nov 2024 03:40:00 -0800)
+
+- **Trump selects Elon Musk to lead government efficiency department**: [Link](https://www.theguardian.com/us-news/2024/nov/12/trump-appoints-elon-musk-government-efficiency-department)
+- **Elon Musk and Vivek Ramaswamy will lead new ‘Department of Government 
+Efficiency’ in Trump administration**: [Link](https://www.cnn.com/2024/11/12/politics/elon-musk-vivek-ramaswamy-department-of-government-efficiency-trump/index.html)
+- **Donald Trump appoints Elon Musk to 'efficiency' role and Fox News host as 
+defence secretary**: [Link](https://www.bbc.com/news/live/cnvjr42yq39t)
+
+
 ### طقس (N/A, Tue, 12 Nov 2024 22:40:00 -0800)
 
 - **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-14-1463720.html)
