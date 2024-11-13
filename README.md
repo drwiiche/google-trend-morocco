@@ -1,3 +1,13 @@
+### revalorisation retraite 2025 (N/A, Wed, 13 Nov 2024 08:00:00 -0800)
+
+- **Toutes les pensions de retraite vont finalement augmenter, voici les 
+nouveaux montants au 1er janvier**: [Link](https://www.linternaute.com/argent/magazine/6611645-retraites-1er-janvier/)
+- **La revalorisation des retraites en 2025 coûtera de 500 à 800 millions 
+d'euros**: [Link](https://medias24.com/agence-presse/la-revalorisation-des-retraites-en-2025-coutera-de-500-a-800-millions-deuros/)
+- **Calendrier, montant, personnes concernées, coût... Ce que l’on sait sur la 
+revalorisation des pensions de retraite**: [Link](https://www.lefigaro.fr/conjoncture/calendrier-montant-personnes-concernees-cout-ce-que-l-on-sait-sur-la-revalorisation-des-pensions-de-retraite-20241112)
+
+
 ### gladiator ii (N/A, Wed, 13 Nov 2024 07:40:00 -0800)
 
 - **Airbnb Is Renting Out the Colosseum for Up to 16 Lucky Guests to Live Out 
