@@ -1,3 +1,12 @@
+### elon musk (N/A, Tue, 12 Nov 2024 22:30:00 -0800)
+
+- **Trump selects Elon Musk to lead government efficiency department**: [Link](https://www.theguardian.com/us-news/2024/nov/12/trump-appoints-elon-musk-government-efficiency-department)
+- **Trump transition live updates: Trump gives Elon Musk and Fox News host key 
+jobs as he prepares for second term**: [Link](https://www.bbc.com/news/live/cnvjr42yq39t)
+- **Elon Musk, Vivek Ramaswamy to lead Trump's Department of Government 
+Efficiency**: [Link](https://www.foxnews.com/politics/elon-musk-vivek-ramaswamy-lead-trumps-department-government-efficiency)
+
+
 ### météo (N/A, Tue, 12 Nov 2024 22:00:00 -0800)
 
 - **Les pluies de retour mercredi et jeudi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/les-pluies-de-retour-mercredi-et-jeudi-dans-plusieurs-regions-du-maroc/251065)
