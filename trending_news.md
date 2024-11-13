@@ -1,3 +1,18 @@
+### حالة الطقس (N/A, Wed, 13 Nov 2024 02:30:00 -0800)
+
+- **برودة وأمطار.. الأرصاد تكشف حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/3303775)
+- **مصر | طقس معتدل نهاراً مع استمرار متوقع للبرودة الليلية خلال الأيام القادمة**: [Link](https://www.arabiaweather.com/ar/content/%D9%85%D8%B5%D8%B1-%D8%B7%D9%82%D8%B3-%D9%85%D8%B9%D8%AA%D8%AF%D9%84-%D9%86%D9%87%D8%A7%D8%B1%D8%A7%D9%8B-%D9%85%D8%B9-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D9%84%D9%8A%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%8A%D8%A7%D9%85-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D9%85%D8%A9)
+- **تحذير عاجل من الأرصاد.. ضباب كثيف يغطي هذه المناطق**: [Link](https://www.elbalad.news/6381973)
+
+
+### ruud van nistelrooy (N/A, Wed, 13 Nov 2024 02:30:00 -0800)
+
+- **Ruben Amorim arrives in Manchester**: [Link](https://www.manutd.com/en/news/detail/new-man-utd-head-coach-ruben-amorim-arrives-at-carrington-11-november-2024)
+- **Van Nistelrooy return after Tottenham sack Postecoglou among five PL next 
+moves post-Man Utd**: [Link](https://www.football365.com/news/feature-ruud-van-nistelrooy-post-man-utd-moves-tottenham-everton-west-ham)
+- **Van Nistelrooy leaves Utd after Amorim arrival**: [Link](https://www.espn.com/soccer/story/_/id/42329281/ruud-van-nistelrooy-leaves-man-united-ruben-amorim-arrival)
+
+
 ### pete hegseth (N/A, Wed, 13 Nov 2024 00:20:00 -0800)
 
 - **Live updates: Latest on the 2024 election and Trump’s presidential 
