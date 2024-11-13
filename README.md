@@ -1,3 +1,18 @@
+### tout le monde veut prendre sa place (N/A, Wed, 13 Nov 2024 06:30:00 -0800)
+
+- **Isabelle éliminée de Tout le monde veut prendre sa place : "Je n'y étais 
+plus du tout"**: [Link](https://www.programme-tv.net/news/tv/364639-isabelle-eliminee-de-tout-le-monde-veut-prendre-sa-place-je-n-y-etais-plus-du-tout/)
+- **Qui est Anne, la nouvelle championne de Tout le monde veut prendre sa place 
+déjà vue sur TF1 ?**: [Link](https://www.allocine.fr/tvactu/articles/article-1000113465.html)
+- **Tout le monde veut prendre sa place : "Un gros…", la vraie raison de 
+l’élimination d’Isabelle après 104 victoires**: [Link](https://www.telestar.fr/actu_tv/tout-le-monde-veut-prendre-sa-place-un-gros-la-vraie-raison-de-lelimination-disabelle-apres-104-victoires-1697951)
+
+
+### amir richardson (N/A, Tue, 12 Nov 2024 23:40:00 -0800)
+
+- **Lions de l'Atlas: Injured Amir Richardson Replaced by Reda Belahyane**: [Link](https://www.footboom1.com/en/news/football/2055685-lions-de-l-atlas-injured-amir-richardson-replaced-by-reda-belahyane)
+
+
 ### almería espagne (N/A, Wed, 13 Nov 2024 05:40:00 -0800)
 
 - **Inondations en Espagne : Madrid s’apprête à incorporer l’aide du Maroc**: [Link](https://ledesk.ma/encontinu/inondations-en-espagne-madrid-sapprete-a-incorporer-laide-du-maroc/)
