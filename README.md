@@ -1,3 +1,12 @@
+### almería espagne (N/A, Wed, 13 Nov 2024 05:40:00 -0800)
+
+- **Inondations en Espagne : Madrid s’apprête à incorporer l’aide du Maroc**: [Link](https://ledesk.ma/encontinu/inondations-en-espagne-madrid-sapprete-a-incorporer-laide-du-maroc/)
+- **Espagne : de nouvelles pluies torrentielles, deux semaines après les 
+inondations meurtrières**: [Link](https://www.lemonde.fr/planete/article/2024/11/13/espagne-de-nouvelles-pluies-torrentielles-attendues-des-ecoles-fermees_6390748_3244.html)
+- **Inondations en Espagne : Une équipe marocaine prend part aux opérations de 
+secours**: [Link](https://lematin.ma/nation/inondations-en-espagne-une-equipe-marocaine-mobilisee-pour-les-secours/251187)
+
+
 ### carlos alcaraz (N/A, Wed, 13 Nov 2024 05:30:00 -0800)
 
 - **ATP Finals 2024: calendario, fechas, horarios, grupos y dónde ver por TV y 
