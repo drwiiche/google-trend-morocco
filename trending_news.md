@@ -1,3 +1,10 @@
+### mike tyson vs jake paul (N/A, Wed, 13 Nov 2024 10:20:00 -0800)
+
+- **Mike Tyson vs. Jake Paul referee handled YouTuber fight last year**: [Link](https://www.usatoday.com/story/sports/boxing/2024/11/13/mike-tyson-jake-paul-referee-mark-calo-oy/76247190007/)
+- **Heavyweight boxer who had 'street fight' with Mike Tyson calls out Jake Paul**: [Link](https://www.themirror.com/sport/boxing/mike-tyson-jake-paul-briggs-803467)
+- **Mike Tyson, Jake Paul, and the unpredictable and unexpected**: [Link](https://www.boxingscene.com/mike-tyson-jake-paul-unpredictable-unexpected--200130)
+
+
 ### revalorisation retraite 2025 (N/A, Wed, 13 Nov 2024 08:00:00 -0800)
 
 - **Toutes les pensions de retraite vont finalement augmenter, voici les 
