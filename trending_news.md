@@ -1,3 +1,12 @@
+### عيد الاستقلال (N/A, Wed, 13 Nov 2024 08:40:00 -0800)
+
+- **تخليدا لعيد الاستقلال.. مدينة آسا تحتضن الدورة الأولى للمهرجان الدولي 
+للألعاب الشعبية**: [Link](https://ar.telquel.ma/%D8%AA%D8%AE%D9%84%D9%8A%D8%AF%D8%A7-%D9%84%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A2%D8%B3%D8%A7-%D8%AA%D8%AD%D8%AA%D8%B6%D9%86/)
+- **آسا تحتضن المهرجان الدولي الأول للألعاب الشعبية**: [Link](https://febrayer.com/1079875.html)
+- **عيد الاستقلال: تنظيم الدورة الأولى من مهرجان آسا الدولي للألعاب الشعبية 
+يومي 17 و18 نونبر. ..رياضة**: [Link](https://ar.pressbee.net/show8893040.html?title=%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D9%85%D9%86-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D8%A2%D8%B3%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D9%84%D8%A3%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84)
+
+
 ### groupe ocp (N/A, Wed, 13 Nov 2024 14:20:00 -0800)
 
 - **Washington augmente le taux de droits de douane sur les engrais d’OCP à 
