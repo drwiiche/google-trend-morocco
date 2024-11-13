@@ -1,3 +1,12 @@
+### groupe ocp (N/A, Wed, 13 Nov 2024 14:20:00 -0800)
+
+- **Washington augmente le taux de droits de douane sur les engrais d’OCP à 
+16,81 %**: [Link](https://ledesk.ma/2024/11/11/washington-augmente-le-taux-de-droits-de-douane-sur-les-engrais-docp-a-1681/)
+- **La réélection de Trump, une mauvaise nouvelle pour le marocain OCP­ ?**: [Link](https://www.jeuneafrique.com/1629497/economie-entreprises/la-reelection-de-trump-une-mauvaise-nouvelle-pour-le-marocain-ocp/)
+- **Phosphates : l’OCP réagit à la hausse des droits de douane par les 
+Etats-Unis**: [Link](https://mobile.telquel.ma/instant-t/2024/11/12/phosphates-locp-reagit-a-la-hausse-des-droits-de-douane-par-les-etats-unis_1904026/)
+
+
 ### عز الدين أوناحي (N/A, Wed, 13 Nov 2024 13:20:00 -0800)
 
 - **أوناحي يطمئن الركراكي قبل رحلة الجابون**: [Link](https://m.kooora.com/?n=1367956&o=n27102)
