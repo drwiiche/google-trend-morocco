@@ -1,3 +1,10 @@
+### عز الدين أوناحي (N/A, Wed, 13 Nov 2024 13:20:00 -0800)
+
+- **أوناحي يطمئن الركراكي قبل رحلة الجابون**: [Link](https://m.kooora.com/?n=1367956&o=n27102)
+- **هل يغيب أوناحي عن مباراة الغابون ؟**: [Link](https://www.almountakhab.com/node/16206462)
+- **مصدر: أوناحي لا يعاني من أي إصابة**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%AF%D8%B1-%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%84%D8%A7-%D9%8A%D8%B9%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D8%A3%D9%8A-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-1462632.html)
+
+
 ### steven witkoff (N/A, Wed, 13 Nov 2024 13:00:00 -0800)
 
 - **Trump appoints real estate investor, golf partner as Middle East peace envoy**: [Link](https://www.politico.com/live-updates/2024/11/12/congress/from-trumps-golf-partner-to-middle-east-envoy-00189132)
