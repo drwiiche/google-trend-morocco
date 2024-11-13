@@ -1,3 +1,13 @@
+### retraites revalorisation 2025 (N/A, Wed, 13 Nov 2024 05:10:00 -0800)
+
+- **Retraite : voici de combien votre pension sera revalorisée en 2025, selon 
+votre profil**: [Link](https://www.capital.fr/votre-retraite/retraite-voici-de-combien-votre-pension-sera-revalorisee-en-2025-selon-votre-profil-1505333)
+- **La revalorisation des retraites en 2025 coûtera de 500 à 800 millions 
+d'euros**: [Link](https://medias24.com/agence-presse/la-revalorisation-des-retraites-en-2025-coutera-de-500-a-800-millions-deuros/)
+- **Toutes les pensions de retraite vont finalement augmenter, voici les 
+nouveaux montants au 1er janvier**: [Link](https://www.linternaute.com/argent/magazine/6611645-retraites-1er-janvier/)
+
+
 ### vivek ramaswamy (N/A, Wed, 13 Nov 2024 03:40:00 -0800)
 
 - **Trump selects Elon Musk to lead government efficiency department**: [Link](https://www.theguardian.com/us-news/2024/nov/12/trump-appoints-elon-musk-government-efficiency-department)
