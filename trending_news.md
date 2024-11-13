@@ -1,3 +1,12 @@
+### the penguin (N/A, Tue, 12 Nov 2024 16:10:00 -0800)
+
+- **Colin Farrell Answers All Your 'The Penguin' Season 1 Questions and Breaks 
+Down That Shocking Finale [Exclusive]**: [Link](https://collider.com/the-pengin-ending-explained-colin-farrell/)
+- **'The Penguin' Season 2: Everything We Know**: [Link](https://www.marieclaire.com/culture/tv-shows/the-penguin-season-2/)
+- **How The Penguin ending sets the stage for The Batman Part II — and just 
+maybe season 2**: [Link](https://ew.com/the-penguin-ending-sets-up-the-batman-part-2-8742159)
+
+
 ### um6p (N/A, Tue, 12 Nov 2024 13:20:00 -0800)
 
 - **L’UM6P organise la 2e édition du « International Campus of Excellence 
