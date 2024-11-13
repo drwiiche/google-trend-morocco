@@ -1,3 +1,20 @@
+### namibie – cameroun (N/A, Wed, 13 Nov 2024 05:20:00 -0800)
+
+- **Comment suivre le match des éliminatoires de la CAN 2025 Namibie - Cameroun**: [Link](https://www.20minutes.fr/sport/football/4120584-20241110-namibie-cameroun-chaine-heure-voir-match-eliminatoires-can-2025)
+- **Organisation : le Minsep veille**: [Link](https://www.cameroon-tribune.cm/article.html/67943/fr.html/organisation-le-minsep)
+- **Cameroun : les trois chiffres marquants de la liste de Marc Brys**: [Link](https://sportnewsafrica.com/news-football/cameroun-les-trois-chiffres-marquants-de-la-liste-de-marc-brys/)
+
+
+### malaga (N/A, Wed, 13 Nov 2024 05:20:00 -0800)
+
+- **DANA, última hora en directo en España: 223 muertos y 23 desaparecidos | 
+Alerta roja en Málaga y Tarragona y nueva DANA en el Mediterráneo**: [Link](https://as.com/actualidad/sociedad/dana-ultima-hora-en-directo-en-espana-223-muertos-y-23-desaparecidos-alerta-roja-en-malaga-y-tarragona-y-nueva-dana-en-el-mediterraneo-n/)
+- **Última hora de la dana, en directo | La dana causa ya las primeras 
+incidencias horas antes de alcanzar su máxima intensidad**: [Link](https://elpais.com/espana/2024-11-13/ultima-hora-de-la-dana-en-directo.html)
+- **Última hora de la nueva DANA, en directo: alerta roja de la AEMET en Málaga 
+y Tarragona por lluvias intensas**: [Link](https://www.larazon.es/sociedad/ultima-hora-nueva-dana-directo-alerta-roja-aemet-malaga-tarragona-lluvias-intensas_2024111367344b523509400001a1c8c5.html)
+
+
 ### retraites revalorisation 2025 (N/A, Wed, 13 Nov 2024 05:10:00 -0800)
 
 - **Retraite : voici de combien votre pension sera revalorisée en 2025, selon 
