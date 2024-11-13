@@ -1,3 +1,12 @@
+### pete hegseth (N/A, Wed, 13 Nov 2024 00:20:00 -0800)
+
+- **Live updates: Latest on the 2024 election and Trump’s presidential 
+transition | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/trump-election-house-11-12-24/index.html)
+- **Trump builds out national security team with picks of Hegseth for Pentagon, 
+Noem for DHS**: [Link](https://apnews.com/article/trump-transition-white-house-staff-huckabee-f51121db5b18814bbab014e872c2a736)
+- **Trump Picks Pete Hegseth, a Veteran and Fox News Host, for Defense Secretary**: [Link](https://www.nytimes.com/2024/11/12/us/politics/pete-hegseth-defense-secretary-trump.html)
+
+
 ### elon musk (N/A, Tue, 12 Nov 2024 22:30:00 -0800)
 
 - **Trump selects Elon Musk to lead government efficiency department**: [Link](https://www.theguardian.com/us-news/2024/nov/12/trump-appoints-elon-musk-government-efficiency-department)
