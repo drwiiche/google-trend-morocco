@@ -1,3 +1,12 @@
+### marine le pen (N/A, Wed, 13 Nov 2024 15:20:00 -0800)
+
+- **Procès des assistants parlementaires du FN : cinq ans de prison, dont deux 
+ferme, et cinq ans d’inéligibilité requis contre Marine Le Pen**: [Link](https://www.lemonde.fr/societe/article/2024/11/13/proces-des-assistants-parlementaires-du-fn-des-peines-d-ineligibilite-requises-contre-marine-le-pen-et-les-vingt-quatre-autres-prevenus_6392285_3224.html)
+- **Procès du RN: cinq ans de prison et une peine d'inéligibilité requis à 
+l'encontre de Marine Le Pen**: [Link](https://www.bfmtv.com/police-justice/proces-du-rn-une-peine-d-ineligibilite-requise-a-l-encontre-de-marine-le-pen-et-de-tous-les-prevenus_AN-202411130886.html)
+- **Marine Le Pen dans le piège de « l’inéligibilité obligatoire »**: [Link](https://www.lepoint.fr/societe/marine-le-pen-dans-le-piege-de-l-ineligibilite-obligatoire-13-11-2024-2575169_23.php)
+
+
 ### عيد الاستقلال (N/A, Wed, 13 Nov 2024 08:40:00 -0800)
 
 - **تخليدا لعيد الاستقلال.. مدينة آسا تحتضن الدورة الأولى للمهرجان الدولي 
