@@ -1,3 +1,20 @@
+### فنزويلا ضد البرازيل (N/A, Thu, 14 Nov 2024 12:40:00 -0800)
+
+- **شكوك حول مشاركة ثنائي البرازيل أمام فنزويلا**: [Link](https://m.kooora.com/?n=1367937&o=n1000333)
+- **تصفيات مونديال 2026: البرازيل لمواصلة رحلة التعافي والحاق الخسارة الأولى 
+بفنزويلا على أرضها**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20241114-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%81%D9%8A-%D9%88%D8%A7%D9%84%D8%AD%D8%A7%D9%82-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D8%A8%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-%D8%B9%D9%84%D9%89-%D8%A3%D8%B1%D8%B6%D9%87%D8%A7)
+- **فينيسيوس بديلاً لرودريغو في تشكيلة البرازيل المثقلة بالإصابات**: [Link](https://sports.asharq.com/football/57701/%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D8%A8%D8%AF%D9%8A%D9%84%D8%A7-%D9%84%D8%B1%D9%88%D8%AF%D8%B1%D9%8A%D8%BA%D9%88-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AB%D9%82%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA/)
+
+
+### italie vs belgique (N/A, Thu, 14 Nov 2024 12:10:00 -0800)
+
+- **Foot : Avec Romelu Lukaku, la Belgique croit encore en ses chances de 
+qualification en Ligue des nations**: [Link](https://www.lequipe.fr/Football/Actualites/Avec-romelu-lukaku-la-belgique-croit-encore-en-ses-chances-de-qualification-en-ligue-des-nations/1520130)
+- **Si les Diables Rouges ne font pas de miracle, voici ce qui les attend pour 
+éviter la relégation en "D2 européenne"**: [Link](https://www.walfoot.be/news/2024-11-14/si-les-diables-rouges-ne-font-pas-de-miracle-voici-ce-qui-les-attend-pour-eviter-la-relegation-en-ligue-des-nations-b)
+- **Diagonal de Manuel Jous : Les Absents Auront-ils Tort ?**: [Link](https://www.footboom1.com/fr/news/football/2060516-manuel-jous-s-diagonal-will-the-absent-be-wrong)
+
+
 ### venezuela – brésil (N/A, Thu, 14 Nov 2024 12:20:00 -0800)
 
 - **Pronostic Venezuela - Brésil, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/venezuela-bresil-227511/)
