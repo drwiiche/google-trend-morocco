@@ -1,3 +1,21 @@
+### paraguay – argentine (N/A, Thu, 14 Nov 2024 15:00:00 -0800)
+
+- **Mondial 2026: Une "loi anti-Messi" décrétée**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/une-loi-anti-messi-decretee-880946.html)
+- **Paraguay – Argentine : les compositions probables, chaîne tv et heure**: [Link](https://www.befoot.net/paraguay-argentine-compos-probables-chainetv-heure/)
+- **Versus / Avec un grand enthousiasme, l'Albirroja robuste d'Alfaro attend 
+l'Argentine**: [Link](https://www.footboom1.com/fr/news/football/2060892-versus-with-great-enthusiasm-alfaro-s-robust-albirroja-awaits-argentina)
+
+
+### le pen marine (N/A, Thu, 14 Nov 2024 14:50:00 -0800)
+
+- **Procès du RN: cinq ans de prison et une peine d'inéligibilité requis à 
+l'encontre de Marine Le Pen**: [Link](https://www.bfmtv.com/police-justice/proces-du-rn-une-peine-d-ineligibilite-requise-a-l-encontre-de-marine-le-pen-et-de-tous-les-prevenus_AN-202411130886.html)
+- **L’immoralité des élus et le laxisme judiciaire, combats politiques de 
+Marine Le Pen… jusqu’à sa mise en cause**: [Link](https://www.lemonde.fr/politique/article/2024/11/14/l-immoralite-des-elus-et-le-laxisme-judiciaire-combats-politiques-de-marine-le-pen-jusqu-a-sa-mise-en-cause_6393891_823448.html)
+- **«Il n’aurait pas dû dire ça» : Xavier Bertrand tacle Gérald Darmanin après 
+sa réaction sur la possible inéligibilité de Marine Le Pen**: [Link](https://www.lefigaro.fr/politique/il-n-aurait-pas-du-dire-ca-xavier-bertrand-tacle-gerald-darmanin-apres-sa-reaction-sur-la-possible-ineligibilite-de-marine-le-pen-20241114)
+
+
 ### brazil vs (N/A, Thu, 14 Nov 2024 14:30:00 -0800)
 
 - **Preview: Venezuela vs. Brazil - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/venezuela/world-cup/preview/preview-venezuela-vs-brazil-prediction-team-news-lineups_557953.html)
