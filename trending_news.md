@@ -1,3 +1,11 @@
+### nations league (N/A, Thu, 14 Nov 2024 11:20:00 -0800)
+
+- **Denmark vs. Spain: Predicted La Roja XI for vital Nations League fixture**: [Link](https://www.sportsmole.co.uk/football/spain/uefa-nations-league/predicted-lineups/will-yamal-williams-start-predicted-spain-xi-vs-denmark_558021.html)
+- **Nations League: Spain travel to Denmark aiming to secure a spot in final**: [Link](https://www.socialnews.xyz/2024/11/14/nations-league-spain-travel-to-denmark-aiming-to-secure-a-spot-in-final/)
+- **Denmark Vs Spain, UEFA Nations League 2024-25, Live Streaming: When, Where 
+To Watch Matchday 5 Fixture**: [Link](https://www.outlookindia.com/sports/football/denmark-vs-spain-uefa-nations-league-2024-25-live-streaming-when-where-to-watch-matchday-5-fixture-on-tv-and-online)
+
+
 ### burkina faso – sénégal (N/A, Thu, 14 Nov 2024 11:00:00 -0800)
 
 - **Burkina Faso – Sénégal : les compositions probables, chaîne tv et heure**: [Link](https://galsenfoot.sn/burkina-faso-senegal-les-compositions-probables-chaine-tv-et-heure/)
