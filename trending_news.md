@@ -1,3 +1,10 @@
+### venezuela – brésil (N/A, Thu, 14 Nov 2024 12:20:00 -0800)
+
+- **Pronostic Venezuela - Brésil, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/venezuela-bresil-227511/)
+- **Dorival dévoile la composition du Brésil pour le match contre le Venezuela**: [Link](https://fr.besoccer.com/info/dorival-devoile-la-composition-du-bresil-pour-le-match-contre-le-venezuela-1337799)
+- **Venezuela – Brésil : Les compos probables avec Vinicius**: [Link](https://www.sport.fr/football/venezuela-bresil-les-compos-probables-avec-vinicius-1239550.shtm)
+
+
 ### greece vs england (N/A, Thu, 14 Nov 2024 11:50:00 -0800)
 
 - **Greece vs England live updates: Harry Kane benched for UEFA Nations League 
