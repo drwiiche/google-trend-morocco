@@ -1,3 +1,11 @@
+### france vs israel (N/A, Thu, 14 Nov 2024 04:20:00 -0800)
+
+- **France mounts big security operation for Israel match after Amsterdam 
+violence**: [Link](https://www.bbc.com/news/articles/c98d9nrg1rgo)
+- **Protests against pro-Israel gala on eve of France-Israel match**: [Link](https://www.aljazeera.com/program/newsfeed/2024/11/14/protests-against-pro-israel-gala-on-eve-of-france-israel-match)
+- **Pro-Palestine protesters march against Zionist gala in Paris**: [Link](https://www.france24.com/en/video/20241114-pro-palestine-protester-denounce-zionist-gala-in-paris)
+
+
 ### éliminatoires de la can (N/A, Thu, 14 Nov 2024 05:20:00 -0800)
 
 - **Eliminatoires CAN Maroc-2025 : départ des Lions de l’Atlas pour Franceville**: [Link](https://frmf.ma/fr/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%AA%D8%AA%D9%88%D8%AC%D9%87-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86/)
