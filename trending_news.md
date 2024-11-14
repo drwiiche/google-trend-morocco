@@ -1,3 +1,10 @@
+### éliminatoires de la can (N/A, Thu, 14 Nov 2024 05:20:00 -0800)
+
+- **Eliminatoires CAN Maroc-2025 : départ des Lions de l’Atlas pour Franceville**: [Link](https://frmf.ma/fr/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%AA%D8%AA%D9%88%D8%AC%D9%87-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86/)
+- **Dans la tête de Walid Regragui**: [Link](https://sport.le360.ma/football/can/dans-la-tete-de-walid-regragui_PRNBZFKFY5H47I5XGJPBJQAKWE/)
+- **Eliminatoires CAN 2025 : Les Lions de l'Atlas sont au Gabon**: [Link](https://fr.hespress.com/396227-eliminatoires-can-2025-les-lions-de-latlas-sont-au-gabon.html)
+
+
 ### غينيا الاستوائية ضد الجزائر (N/A, Thu, 14 Nov 2024 05:10:00 -0800)
 
 - **مباشر.. مباراة الجزائر وغينيا الإستوائية في تصفيات أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/14/algeria-caf-guinea)
