@@ -1,3 +1,11 @@
+### عيد الاستقلال (N/A, Thu, 14 Nov 2024 09:10:00 -0800)
+
+- **تخليدا لعيد الاستقلال.. مدينة آسا تحتضن الدورة الأولى للمهرجان الدولي 
+للألعاب الشعبية**: [Link](https://ar.telquel.ma/%D8%AA%D8%AE%D9%84%D9%8A%D8%AF%D8%A7-%D9%84%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A2%D8%B3%D8%A7-%D8%AA%D8%AD%D8%AA%D8%B6%D9%86/)
+- **إجازة رسمية.. هذا موعد عيد الاستقلال في المغرب 2024**: [Link](https://almashhad.com/article/773112298002792-News/779696411547616-%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2024/)
+- **حفل فني متنوع بمدينة الفنيدق احتفالاً بالمسيرة الخضراء وعيد الاستقلال**: [Link](https://presstetouan.com/%D8%AD%D9%81%D9%84-%D9%81%D9%86%D9%8A-%D9%85%D8%AA%D9%86%D9%88%D8%B9-%D8%A8%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D9%8A%D8%AF%D9%82-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D8%A7%D9%8B/)
+
+
 ### iraq vs jordan (N/A, Thu, 14 Nov 2024 09:00:00 -0800)
 
 - **Iraq vs Jordan LIVE Score Updates (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2024/11/14/1204193-iraq-vs-jordan-live-score-updates-stream-info-and-how-to-watch-asian-qualifiers-for-the-2026-world-cup-match.html)
