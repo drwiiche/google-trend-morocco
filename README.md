@@ -1,3 +1,12 @@
+### نتائج الامتحان المهني 2023 (N/A, Thu, 14 Nov 2024 07:40:00 -0800)
+
+- **بلاغ هام من وزارة التربية الوطنية والتعليم الأولي والرياضة**: [Link](https://presstetouan.com/%D8%A8%D9%84%D8%A7%D8%BA-%D9%87%D8%A7%D9%85-%D9%85%D9%86-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AA-4/)
+- **وزارة التربية الوطنية تكشف عن موعد إعلان نتائج امتحانات الكفاءة المهنية 
+لسنة 2023**: [Link](https://www.akhbarona.com/education/395528.html)
+- **التربية الوطنية .. إعلان النتائج النهائية لإمتحان الكفاءة المهنية رسم سنة 
+2023 في المغرب حسب الاستحقاق "خلال ساعات"**: [Link](https://news.elsob7.com/1269373/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A7%D9%85%D8%AA%D8%AD%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D9%87%D9%86%D9%8A-2023-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+
+
 ### irak – jordanie (N/A, Thu, 14 Nov 2024 07:30:00 -0800)
 
 - **Mousa Tamari de retour avec la sélection de Jordanie**: [Link](https://www.allezpaillade.com/selection/mousa-tamari-de-retour-avec-la-selection-de-jordanie/)
