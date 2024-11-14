@@ -1,3 +1,9 @@
+### okx major listing (N/A, Wed, 13 Nov 2024 09:50:00 -0800)
+
+- **OKX Introduces Pre-Market Futures for MAJOR Token, Announces ACT Listing**: [Link](https://www.globenewswire.com/news-release/2024/11/14/2980792/0/en/OKX-Introduces-Pre-Market-Futures-for-MAJOR-Token-Announces-ACT-Listing.html)
+- **What is Major: Telegram's social play-to-earn game**: [Link](https://www.okx.com/learn/major)
+
+
 ### marché à terme (N/A, Wed, 13 Nov 2024 15:30:00 -0800)
 
 - **Marché des capitaux : Top départ du marché à terme**: [Link](https://boursenews.ma/article/marches/top-depart-marche-a-terme)
