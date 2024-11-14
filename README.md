@@ -1,3 +1,10 @@
+### عاصفة دانا المغرب (N/A, Wed, 13 Nov 2024 15:20:00 -0800)
+
+- **أمطار غزيرة تتهاطل على مدينة طنجة**: [Link](https://www.akhbarona.com/videos/395660.html)
+- **طقس اليوم.. قطرات مطرية متوقعة بهذه المناطق**: [Link](https://ar.hibapress.com/details-573209.html)
+- **✅ إعصار "دانا" يقترب من المغرب ومنطقة طنجة في مرمى العواصف العاتية**: [Link](https://tanja24.com/%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D8%AF%D8%A7%D9%86%D8%A7-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%B7%D9%86%D8%AC/)
+
+
 ### pluie malaga (N/A, Thu, 14 Nov 2024 01:00:00 -0800)
 
 - **Espagne : fin de l’alerte rouge aux intempéries dans le sud et l’est du pays**: [Link](https://www.lemonde.fr/planete/article/2024/11/14/espagne-fin-de-l-alerte-rouge-aux-intemperies-dans-le-sud-et-l-est-du-pays_6390748_3245.html)
