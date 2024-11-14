@@ -1,3 +1,11 @@
+### العراق ضد الأردن (N/A, Thu, 14 Nov 2024 08:40:00 -0800)
+
+- **مباشر.. مباراة العراق ضد الأردن في تصفيات كأس العام 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/14/iraq-vs-jordan)
+- **تصفيات كأس العالم: الأردن لتكرار الفوز والعراق لرد الاعتبار في مباراة 
+مرتقبة في البصرة**: [Link](https://www.bbc.com/arabic/articles/c9vnjjmyrwdo)
+- **مدرب الأردن: قرأنا العراق بشكل شامل.. وعودة التعمري إضافة مهمة**: [Link](https://m.kooora.com/?n=1367962&o=n25918)
+
+
 ### madagascar – tunisie (N/A, Thu, 14 Nov 2024 08:10:00 -0800)
 
 - **Elim. CAN 2025 : Avec Skhiri et Laïdouni, la compo de la Tunisie contre 
