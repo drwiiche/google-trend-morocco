@@ -1,3 +1,10 @@
+### pluie malaga (N/A, Thu, 14 Nov 2024 01:00:00 -0800)
+
+- **Espagne : fin de l’alerte rouge aux intempéries dans le sud et l’est du pays**: [Link](https://www.lemonde.fr/planete/article/2024/11/14/espagne-fin-de-l-alerte-rouge-aux-intemperies-dans-le-sud-et-l-est-du-pays_6390748_3245.html)
+- **Inondations en Espagne : Madrid s’apprête à incorporer l’aide du Maroc**: [Link](https://ledesk.ma/encontinu/inondations-en-espagne-madrid-sapprete-a-incorporer-laide-du-maroc/)
+- **24 camions marocains déployés pour assainir Valence après les inondations**: [Link](https://mobile.telquel.ma/instant-t/2024/11/13/24-camions-marocains-deployes-pour-assainir-valence-apres-les-inondations_1904204/)
+
+
 ### pleine lune novembre 2024 taureau (N/A, Wed, 13 Nov 2024 15:50:00 -0800)
 
 - **Pleine Lune en Taureau du 15 novembre : ce signe affiche une sexualité 
