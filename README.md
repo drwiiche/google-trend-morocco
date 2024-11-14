@@ -1,3 +1,22 @@
+### irak – jordanie (N/A, Thu, 14 Nov 2024 07:30:00 -0800)
+
+- **Mousa Tamari de retour avec la sélection de Jordanie**: [Link](https://www.allezpaillade.com/selection/mousa-tamari-de-retour-avec-la-selection-de-jordanie/)
+- **Irak | Découvrez les conditions météorologiques attendues pour le match de 
+l’équipe nationale demain jeudi**: [Link](https://www.arabiaweather.com/fr/content/%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%AA%D8%B2%D8%A7%D9%85%D9%86%D8%A7%D9%8B-%D9%85%D8%B9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D9%88%D9%85-%D8%BA%D8%AF-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3)
+- **L'équipe nationale jordanienne se prépare pour un affrontement crucial avec 
+l'Irak**: [Link](https://www.footboom1.com/fr/news/football/2056905-jordan-s-national-team-gears-up-for-crucial-clash-with-iraq)
+
+
+### match france israël (N/A, Thu, 14 Nov 2024 07:30:00 -0800)
+
+- **France-Israël : un match à très hauts risques, « toutes les conditions de 
+sécurité sont garanties », assure Laurent Nuñez**: [Link](https://www.lemonde.fr/societe/article/2024/11/14/france-israel-un-match-a-tres-hauts-risques_6393085_3224.html)
+- **France-Israël : après Emmanuel Macron et Nicolas Sarkozy, François Hollande 
+prévoit lui aussi d’assister au match**: [Link](https://www.leparisien.fr/politique/france-israel-apres-emmanuel-macron-et-nicolas-sarkozy-francois-hollande-prevoit-lui-aussi-dassister-au-match-12-11-2024-CLKSEZGPQNHMNF4TJITP6C3WTQ.php)
+- **PRONOS PARIS RMC Les paris sur France - Israël du 14 novembre – Ligue des 
+Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-les-paris-sur-france-israel-du-14-novembre-ligue-des-nations_AN-202411130533.html)
+
+
 ### algerie foot (N/A, Thu, 14 Nov 2024 07:00:00 -0800)
 
 - **Ligue 1 Mc Donald’s : L’actuel meilleur dribbleur est… Algérien !**: [Link](https://lagazettedufennec.com/ligue-1-mc-donalds-lactuel-meilleur-dribbleur-est-algerien/)
