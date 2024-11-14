@@ -1,3 +1,11 @@
+### guinée équatoriale – algérie (N/A, Thu, 14 Nov 2024 04:40:00 -0800)
+
+- **Guinée Equatoriale – Algérie (CAN 2025) : l’ENTV va-t-elle diffuser le 
+match ?**: [Link](https://www.tsa-algerie.com/guinee-equatoriale-algerie-can-2025-lentv-va-t-elle-diffuser-le-match/)
+- **EN : Les verts sont arrivés à Malabo (photos)**: [Link](https://www.dzfoot.com/equipes-nationales/en-les-verts-sont-arrives-a-malabo-photos-269188.html)
+- **Sports - Les Verts veulent asseoir leur suprématie**: [Link](https://www.lexpressiondz.com/sports/les-verts-veulent-asseoir-leur-suprematie-387754)
+
+
 ### malaga pluie (N/A, Thu, 14 Nov 2024 03:50:00 -0800)
 
 - **Espagne : fin de l’alerte rouge aux intempéries dans le sud et l’est du pays**: [Link](https://www.lemonde.fr/planete/article/2024/11/14/espagne-fin-de-l-alerte-rouge-aux-intemperies-dans-le-sud-et-l-est-du-pays_6390748_3245.html)
