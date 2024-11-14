@@ -1,3 +1,11 @@
+### italy vs belgium (N/A, Thu, 14 Nov 2024 13:00:00 -0800)
+
+- **UEFA Nations League Belgium 0 Italy 1 45 minutes plus 1 played. In progress**: [Link](https://www.bbc.com/sport/football/live/c1e73876e6xt)
+- **How to watch Greece vs England in the USA: Live stream and TV for 2024-25 
+UEFA Nations League**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-greece-vs-england-in-the-usa-live-stream-and-tv-for-2024-25-uefa-nations-league/)
+- **Tonali: ‘Italy take the initiative now and enjoy our football’**: [Link](https://football-italia.net/tonali-italy-take-initiative-enjoy-football/)
+
+
 ### bénin – nigeria (N/A, Thu, 14 Nov 2024 11:40:00 -0800)
 
 - **AFCON 2025Q: Super Eagles New Invites, Collins Ready To Fight For Shirt.o**: [Link](https://en.africatopsports.com/2024/11/13/afcon-2025q-super-eagles-new-invites-collins-ready-to-fight-for-shirt-o/)
