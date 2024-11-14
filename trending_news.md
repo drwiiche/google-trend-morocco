@@ -1,3 +1,12 @@
+### australie – arabie saoudite (N/A, Thu, 14 Nov 2024 02:30:00 -0800)
+
+- **Qualifs. Asie. CDM 26: Australie-Arabie Saoudite et Irak-Jordanie les 
+affiches de jeudi !**: [Link](https://www.lopinion.ma/Qualifs-Asie-CDM-26-Australie-Arabie-Saoudite-et-Irak-Jordanie-les-affiches-de-jeudi-_a60128.html)
+- **La Rivalité de Renard se Poursuit Alors que les Saoudiens Affrontent les 
+Socceroos**: [Link](https://www.footboom1.com/fr/news/football/2057213-renard-s-rivalry-continues-as-saudis-face-socceroos)
+- **Arabie saoudite : Le retour de Renard, c'est jeudi en Australie**: [Link](https://sports.orange.fr/football/coupe-du-monde/article/arabie-saoudite-le-retour-de-renard-c-est-jeudi-en-australie-exclu-CNT000002fPqCT.html)
+
+
 ### عاصفة دانا المغرب (N/A, Wed, 13 Nov 2024 15:20:00 -0800)
 
 - **أمطار غزيرة تتهاطل على مدينة طنجة**: [Link](https://www.akhbarona.com/videos/395660.html)
