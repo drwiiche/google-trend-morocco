@@ -1,3 +1,17 @@
+### weather (N/A, Wed, 13 Nov 2024 22:00:00 -0800)
+
+- **Weather**: [Link](https://www.miningjournal.net/news/records/weather/2024/11/weather-2333/)
+- **Thursday’s weather: Sunny, cooler high of 48**: [Link](https://manchester.inklink.news/thursdays-weather-sunny-cooler-high-of-48/)
+- **Today’s forecast: Sunny with a high near 48**: [Link](https://allwny.com/2024/11/13/todays-forecast-sunny-with-a-high-near-48-4/)
+
+
+### météo (N/A, Wed, 13 Nov 2024 21:50:00 -0800)
+
+- **Le temps qu'il fera ce jeudi 14 novembre 2024**: [Link](https://fr.hespress.com/395746-le-temps-quil-fera-ce-jeudi-14-novembre-2024.html)
+- **Les pluies de retour au Maroc, les villes concernées**: [Link](https://www.lesiteinfo.com/maroc/632185-les-pluies-de-retour-au-maroc-les-villes-concernees.html)
+- **Météo demain jeudi : orages dans ces zones - HIBAPRESS**: [Link](https://fr.hibapress.com/news-147087.html)
+
+
 ### okx major listing (N/A, Wed, 13 Nov 2024 09:50:00 -0800)
 
 - **OKX Introduces Pre-Market Futures for MAJOR Token, Announces ACT Listing**: [Link](https://www.globenewswire.com/news-release/2024/11/14/2980792/0/en/OKX-Introduces-Pre-Market-Futures-for-MAJOR-Token-Announces-ACT-Listing.html)
