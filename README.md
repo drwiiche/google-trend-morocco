@@ -1,3 +1,11 @@
+### algerie foot (N/A, Thu, 14 Nov 2024 07:00:00 -0800)
+
+- **Ligue 1 Mc Donald’s : L’actuel meilleur dribbleur est… Algérien !**: [Link](https://lagazettedufennec.com/ligue-1-mc-donalds-lactuel-meilleur-dribbleur-est-algerien/)
+- **France – Ligue 1 choquée : deux joueurs de l’équipe d’Algérie prennent le 
+pouvoir**: [Link](https://fennecfootball.com/france-ligue-1-choquee-deux-joueurs-de-lequipe-dalgerie-prennent-le-pouvoir/)
+- **France : la Ligue 1 Mc Donald’s tient son nouveau Belaili**: [Link](https://fennecfootball.com/france-la-ligue-1-mc-donalds-tient-son-nouveau-belaili/)
+
+
 ### equatorial guinea vs algeria (N/A, Thu, 14 Nov 2024 06:30:00 -0800)
 
 - **Equatorial Guinea target AFCON qualification with victory over Algeria**: [Link](https://supersport.com/football/africa-cup-qual/news/2bbf2820-5748-424b-bf4e-2b82267f4fb9/equatorial-guinea-target-afcon-qualification-with-victory-over-algeria)
