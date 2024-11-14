@@ -1,3 +1,11 @@
+### equatorial guinea vs algeria (N/A, Thu, 14 Nov 2024 06:30:00 -0800)
+
+- **Equatorial Guinea target AFCON qualification with victory over Algeria**: [Link](https://supersport.com/football/africa-cup-qual/news/2bbf2820-5748-424b-bf4e-2b82267f4fb9/equatorial-guinea-target-afcon-qualification-with-victory-over-algeria)
+- **Uncategorised AFCON2025Q:Equatorial Guinea Faces Algeria in High-Stakes 
+Clash, name starting lineup**: [Link](https://en.africatopsports.com/2024/11/14/afcon2025qequatorial-guinea-faces-algeria-in-high-stakes-clash-name-starting-lineup/)
+- **Equatorial Guinea vs Algeria LIVE Score Updates (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2024/11/14/1204195-equatorial-guinea-vs-algeria-live-score-updates-stream-info-and-how-to-watch-africa-cup-of-nations-qualifiers-match.html)
+
+
 ### france vs israel (N/A, Thu, 14 Nov 2024 04:20:00 -0800)
 
 - **France mounts big security operation for Israel match after Amsterdam 
