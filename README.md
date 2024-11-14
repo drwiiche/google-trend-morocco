@@ -1,3 +1,10 @@
+### الطقس (N/A, Wed, 13 Nov 2024 22:00:00 -0800)
+
+- **أمطار غزيرة تتهاطل على مدينة طنجة**: [Link](https://www.akhbarona.com/videos/395660.html)
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-12-1464241.html)
+- **نشرة إنذارية.. رياح قوية مرتقبة بعدد من مناطق المملكة**: [Link](https://kech24.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-2.html)
+
+
 ### weather (N/A, Wed, 13 Nov 2024 22:00:00 -0800)
 
 - **Weather**: [Link](https://www.miningjournal.net/news/records/weather/2024/11/weather-2333/)
