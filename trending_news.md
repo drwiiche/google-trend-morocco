@@ -1,3 +1,11 @@
+### madagascar – tunisie (N/A, Thu, 14 Nov 2024 08:10:00 -0800)
+
+- **Elim. CAN 2025 : Avec Skhiri et Laïdouni, la compo de la Tunisie contre 
+Madagascar**: [Link](https://www.africatopsports.com/2024/11/14/elim-can-2025-avec-skhiri-et-laidouni-la-compo-de-la-tunisie-contre-madagascar/)
+- **Madagascar joue sa dernière carte : Plus rien à perdre…**: [Link](https://lapresse.tn/2024/11/14/madagascar-joue-sa-derniere-carte-plus-rien-a-perdre/)
+- **Sélection tunisienne : Les joueurs s’entrainent en Afrique du Sud**: [Link](https://www.arabesque.tn/fr/article/121431/selection-tunisienne-les-joueurs-s-entrainent-en-afrique-du-sud)
+
+
 ### نتائج الامتحان المهني 2023 (N/A, Thu, 14 Nov 2024 07:40:00 -0800)
 
 - **بلاغ هام من وزارة التربية الوطنية والتعليم الأولي والرياضة**: [Link](https://presstetouan.com/%D8%A8%D9%84%D8%A7%D8%BA-%D9%87%D8%A7%D9%85-%D9%85%D9%86-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AA-4/)
