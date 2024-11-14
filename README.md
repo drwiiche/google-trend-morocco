@@ -1,3 +1,20 @@
+### غينيا الاستوائية ضد الجزائر (N/A, Thu, 14 Nov 2024 05:10:00 -0800)
+
+- **مباشر.. مباراة الجزائر وغينيا الإستوائية في تصفيات أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/14/algeria-caf-guinea)
+- **موعد مباراة الجزائر وغينيا الاستوائية والقنوات الناقلة في تصفيات أمم 
+أفريقيا 2025**: [Link](https://www.almasryalyoum.com/news/details/3305937)
+- **ضربة ثانية للمحاربين قبل مواجهتي غينيا الاستوائية وليبيريا**: [Link](https://www.kooora.com/?n=1367602)
+
+
+### frmf (N/A, Thu, 14 Nov 2024 05:10:00 -0800)
+
+- **Foot : voici le nouveau maillot de l’équipe nationale du Maroc (photos)**: [Link](https://medias24.com/2024/11/12/foot-voici-le-nouveau-maillot-de-lequipe-nationale-du-maroc-photos/)
+- **La FRMF et PUMA révèlent les nouveaux maillots des équipes nationales 
+marocaines en prévision des prochaines échéances notamment la CAN Maroc 
+2025 – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%88-2/)
+- **Maroc : Voici le nouveau maillot des Lions de l'Atlas**: [Link](https://fr.hespress.com/395899-maroc-voici-le-nouveau-maillot-des-lions-de-latlas-2.html)
+
+
 ### guinée équatoriale – algérie (N/A, Thu, 14 Nov 2024 04:40:00 -0800)
 
 - **Guinée Equatoriale – Algérie (CAN 2025) : l’ENTV va-t-elle diffuser le 
