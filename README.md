@@ -1,3 +1,32 @@
+### sahara occidental (N/A, Thu, 14 Nov 2024 10:30:00 -0800)
+
+- **Décolonisation du Sahara : Il y a 49 ans, l’accord tripartite de Madrid 
+tordait le cou aux manœuvres dilatoires d’Alger**: [Link](https://maroc-diplomatique.net/decolonisation-du-sahara-il-y-a-49-ans-laccord-tripartite-de-madrid/)
+- **2ème séminaire international de solidarité et d'échange culturel pour la 
+paix au Sahara Occidental : les causes de libération mises en avant**: [Link](https://al24news.com/fr/2eme-seminaire-international-de-solidarite-et-dechange-culturel-pour-la-paix-au-sahara-occidental-les-causes-de-liberation-mises-en-avant/)
+- **Internationale - Le Makhzen torture à mort un prisonnier sahraoui**: [Link](https://www.lexpressiondz.com/internationale/le-makhzen-torture-a-mort-un-prisonnier-sahraoui-387776)
+
+
+### وزارة التربية الوطنية (N/A, Thu, 14 Nov 2024 10:20:00 -0800)
+
+- **استمرار "مذكرة الساعات الإضافية" يثير نقاش الجودة في التعليم العمومي**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D9%85%D8%B0%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D8%B6%D8%A7%D9%81%D9%8A%D8%A9-%D9%8A%D8%AB%D9%8A%D8%B1-1464474.html)
+- **برادة يشتري السلم بالساعات الإضافية**: [Link](https://ar.le360.ma/societe/PMVH3BCTM5FE7IJANIJYKB7BRI/)
+- **في قرار مثير للجدل من الوزير الجديد.. السماح لأساتذة القطاع العام بتقديم 
+ساعات إضافية في التعليم الخصوصي**: [Link](https://www.akhbarona.com/education/395559.html)
+
+
+### men gov ma (N/A, Thu, 14 Nov 2024 10:10:00 -0800)
+
+
+
+
+### المنتخب المغربي (N/A, Thu, 14 Nov 2024 10:00:00 -0800)
+
+- **بالصور: الجابون تستقبل بعثة المغرب بالورود**: [Link](https://www.kooora.com/?n=1368026)
+- **من يكون بديل سفيان رحيمي ضد الغابون؟**: [Link](https://www.almountakhab.com/node/16206528)
+- **المنتخب المغربي يصل إلى فرانسفيل**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D9%81%D8%B1%D8%A7%D9%86%D8%B3%D9%81%D9%8A%D9%84-1464417.html)
+
+
 ### مباراة المغرب (N/A, Thu, 14 Nov 2024 09:40:00 -0800)
 
 - **موعد مباراة الجابون والمغرب في تصفيات أمم أفريقيا 2025 .. والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1367958)
