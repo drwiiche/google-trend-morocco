@@ -1,3 +1,18 @@
+### باراغواي ضد الأرجنتين (N/A, Thu, 14 Nov 2024 15:20:00 -0800)
+
+- **مدرب باراجواي يبرر القرار الخاص بقميص ميسي**: [Link](https://www.kooora.com/?n=1368048)
+- **ما سبب حظر قميص ميسي في مباراة باراغواي ضد الأرجنتين؟**: [Link](https://m.elbotola.com/article/2024-11-14-14-37-996.html)
+- **باراغواي تمنع ارتداء قميص ميسي في المباراة ضد الارجنتين**: [Link](https://hihi2.com/2024/11/11/p2931922.html)
+
+
+### paraguay vs argentina (N/A, Thu, 14 Nov 2024 15:20:00 -0800)
+
+- **Argentina busca consolidar la punta en su vista a Paraguay, que se ilusiona 
+con volver a un Mundial**: [Link](https://www.vision360.bo/noticias/2024/11/14/15184-argentina-busca-consolidar-la-punta-en-su-vista-a-paraguay-que-se-ilusiona-con-volver-a-un-mundial)
+- **¡Espectacular! Así luce el mosaico para el partido de la Albirroja**: [Link](https://onefootball.com/es/noticias/espectacular-asi-luce-el-mosaico-para-el-partido-de-la-albirroja-40309492)
+- **¿Jugará Messi contra Paraguay en las Eliminatorias de Conmebol?**: [Link](https://us.as.com/futbol/jugara-messi-contra-paraguay-en-las-eliminatorias-de-conmebol-n/)
+
+
 ### paraguay – argentine (N/A, Thu, 14 Nov 2024 15:00:00 -0800)
 
 - **Mondial 2026: Une "loi anti-Messi" décrétée**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/une-loi-anti-messi-decretee-880946.html)
