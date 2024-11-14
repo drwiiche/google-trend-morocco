@@ -1,3 +1,12 @@
+### bénin – nigeria (N/A, Thu, 14 Nov 2024 11:40:00 -0800)
+
+- **AFCON 2025Q: Super Eagles New Invites, Collins Ready To Fight For Shirt.o**: [Link](https://en.africatopsports.com/2024/11/13/afcon-2025q-super-eagles-new-invites-collins-ready-to-fight-for-shirt-o/)
+- **Nigeria predicted lineup, expected starting 11, team news and squad for 
+Benin match: Osimhen returns for showdown with former boss**: [Link](https://www.sportingnews.com/us/soccer/news/nigeria-lineup-starting-11-team-news-squad-benin-match-osimhen/efe878b39961830f94296dea)
+- **'A challenge that I enjoy' - Benin's ex-Huddersfield striker insists he's 
+unfazed about facing Troost-Ekong**: [Link](https://www.allnigeriasoccer.com/read_news.php?nid=53672)
+
+
 ### venezuela vs brazil (N/A, Thu, 14 Nov 2024 12:50:00 -0800)
 
 - **Venezuela busca recuperarse en las eliminatorias frente a Brasil**: [Link](https://cnnespanol.cnn.com/video/venezuela-brasil-eliminatoria-deportes-tv)
