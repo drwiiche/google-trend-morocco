@@ -1,3 +1,27 @@
+### brazil vs (N/A, Thu, 14 Nov 2024 14:30:00 -0800)
+
+- **Preview: Venezuela vs. Brazil - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/venezuela/world-cup/preview/preview-venezuela-vs-brazil-prediction-team-news-lineups_557953.html)
+- **How to watch Ecuador vs Bolivia in the USA: Live stream and TV for 2026 
+World Cup Qualifiers**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-ecuador-vs-bolivia-in-the-usa-live-stream-and-tv-for-2026-world-cup-qualifiers/)
+- **Venezuela Brazil Wcup 2026 Soccer**: [Link](https://www.hjnews.com/sports/nation/venezuela-brazil-wcup-2026-soccer/image_e7172173-e183-58fc-a6c6-d5ff5c6bd171.html)
+
+
+### brazil (N/A, Thu, 14 Nov 2024 14:30:00 -0800)
+
+- **Explosions Outside Brazil’s Supreme Court Leave 1 Dead**: [Link](https://www.nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html)
+- **Explosives and timer found on suspect’s body after attack on Brazil’s top 
+court**: [Link](https://www.cnn.com/2024/11/13/americas/brazil-supreme-court-explosions-intl-latam/index.html)
+- **Bombings in Brazil’s capital revive fears over fate of democracy**: [Link](https://www.washingtonpost.com/world/2024/11/14/bombings-brazils-capital-revive-fears-over-fate-democracy/)
+
+
+### argentine foot (N/A, Thu, 14 Nov 2024 14:30:00 -0800)
+
+- **Mondial 2026: Une "loi anti-Messi" décrétée**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/une-loi-anti-messi-decretee-880946.html)
+- **Paraguay – Argentine : les compositions probables, chaîne tv et heure**: [Link](https://www.befoot.net/paraguay-argentine-compos-probables-chainetv-heure/)
+- **Versus / Avec un grand enthousiasme, l'Albirroja robuste d'Alfaro attend 
+l'Argentine**: [Link](https://www.footboom1.com/fr/news/football/2060892-versus-with-great-enthusiasm-alfaro-s-robust-albirroja-awaits-argentina)
+
+
 ### italy vs belgium (N/A, Thu, 14 Nov 2024 13:00:00 -0800)
 
 - **UEFA Nations League Belgium 0 Italy 1 45 minutes plus 1 played. In progress**: [Link](https://www.bbc.com/sport/football/live/c1e73876e6xt)
