@@ -1,3 +1,30 @@
+### greece vs england (N/A, Thu, 14 Nov 2024 11:50:00 -0800)
+
+- **Greece vs England live updates: Harry Kane benched for UEFA Nations League 
+game, latest - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/greece-england-live-updates-nations-league-score-result/8oab6PbH1Yvq/)
+- **AEK Owner Offers €300,000 Bonus For Greek Victory Over England – Greek City 
+Times**: [Link](https://greekcitytimes.com/2024/11/14/aek-owner-offers-e300000-bonus-for-greek-victory-over-england/)
+- **UEFA Nations League permutations: Can England be promoted, who will be 
+relegated, and who will qualify for finals?**: [Link](https://www.sportingnews.com/in/football/news/uefa-nations-league-permutations-promoted-relegated-qualify-final/89be858cce9c51101c0a2ced)
+
+
+### belgium vs italy (N/A, Thu, 14 Nov 2024 11:50:00 -0800)
+
+- **Preview: Belgium vs. Italy - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/belgium/uefa-nations-league/preview/preview-belgium-vs-italy-prediction-team-news-lineups_557931.html)
+- **How to watch Greece vs England in the USA: Live stream and TV for 2024-25 
+UEFA Nations League**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-greece-vs-england-in-the-usa-live-stream-and-tv-for-2024-25-uefa-nations-league/)
+- **Azzurri Manager Experiments With Inter Milan Megastar In New Role Ahead Of 
+Belgium Vs Italy Nations League Clash**: [Link](https://sempreinter.com/2024/11/13/italy-boss-luciano-spalletti-tests-inter-milan-star-nicolo-barella-new-role/)
+
+
+### mike tyson (N/A, Thu, 14 Nov 2024 11:50:00 -0800)
+
+- **Mike Tyson vs. Jake Paul date and time: Fight schedule, odds, how to watch**: [Link](https://www.usatoday.com/story/sports/boxing/2024/11/14/mike-tyson-jake-paul-date-time-schedule/76261827007/)
+- **Mike Tyson v Jake Paul: Tyson health 'just fine' but precautions in place 
+for fight**: [Link](https://www.bbc.com/sport/boxing/articles/cx2lppk8xkxo)
+- **Yes, Texas sanctioned Tyson-Paul, but there are three major caveats**: [Link](https://www.espn.com/boxing/story/_/id/42293726/jake-paul-mike-tyson-boxing-fight-sanctioned-safety)
+
+
 ### nations league (N/A, Thu, 14 Nov 2024 11:20:00 -0800)
 
 - **Denmark vs. Spain: Predicted La Roja XI for vital Nations League fixture**: [Link](https://www.sportsmole.co.uk/football/spain/uefa-nations-league/predicted-lineups/will-yamal-williams-start-predicted-spain-xi-vs-denmark_558021.html)
