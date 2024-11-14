@@ -1,3 +1,20 @@
+### venezuela vs brazil (N/A, Thu, 14 Nov 2024 12:50:00 -0800)
+
+- **Venezuela busca recuperarse en las eliminatorias frente a Brasil**: [Link](https://cnnespanol.cnn.com/video/venezuela-brasil-eliminatoria-deportes-tv)
+- **"Tenemos La Obligación De Competir", Dice Asistente Técnico Cufré En 
+Vísperas Del Partido Venezuela-Brasil**: [Link](https://www.barrons.com/news/spanish/tenemos-la-obligacion-de-competir-dice-asistente-tecnico-cufre-en-visperas-del-partido-venezuela-brasil-4e281912)
+- **Vinicius Jr sustituirá a Rodrygo en un Brasil mermado por las lesiones**: [Link](https://www.reuters.com/es/deportivo/KVR2PGOG6JJEZPHXCNBJJCOXZQ-2024-11-13/)
+
+
+### belgique vs italie (N/A, Thu, 14 Nov 2024 12:20:00 -0800)
+
+- **Foot : Avec Romelu Lukaku, la Belgique croit encore en ses chances de 
+qualification en Ligue des nations**: [Link](https://www.lequipe.fr/Football/Actualites/Avec-romelu-lukaku-la-belgique-croit-encore-en-ses-chances-de-qualification-en-ligue-des-nations/1520130)
+- **Si les Diables Rouges ne font pas de miracle, voici ce qui les attend pour 
+éviter la relégation en "D2 européenne"**: [Link](https://www.walfoot.be/news/2024-11-14/si-les-diables-rouges-ne-font-pas-de-miracle-voici-ce-qui-les-attend-pour-eviter-la-relegation-en-ligue-des-nations-b)
+- **Diagonal de Manuel Jous : Les Absents Auront-ils Tort ?**: [Link](https://www.footboom1.com/fr/news/football/2060516-manuel-jous-s-diagonal-will-the-absent-be-wrong)
+
+
 ### فنزويلا ضد البرازيل (N/A, Thu, 14 Nov 2024 12:40:00 -0800)
 
 - **شكوك حول مشاركة ثنائي البرازيل أمام فنزويلا**: [Link](https://m.kooora.com/?n=1367937&o=n1000333)
