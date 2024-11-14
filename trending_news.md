@@ -1,3 +1,11 @@
+### marché à terme (N/A, Wed, 13 Nov 2024 15:30:00 -0800)
+
+- **Marché des capitaux : Top départ du marché à terme**: [Link](https://boursenews.ma/article/marches/top-depart-marche-a-terme)
+- **Lancement du marché à terme : les annonces de Nadia Fettah**: [Link](https://medias24.com/2024/11/12/lancement-du-marche-a-terme-les-annonces-de-nadia-fettah/)
+- **Casablanca : Trois conventions pour la transformation de la Société 
+Gestionnaire de la Bourse en Holding**: [Link](https://fr.hespress.com/395966-casablanca-trois-conventions-pour-la-transformation-de-la-societe-gestionnaire-de-la-bourse-en-holding.html)
+
+
 ### marine le pen (N/A, Wed, 13 Nov 2024 15:20:00 -0800)
 
 - **Procès des assistants parlementaires du FN : cinq ans de prison, dont deux 
