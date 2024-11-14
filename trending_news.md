@@ -1,3 +1,51 @@
+### burkina faso – sénégal (N/A, Thu, 14 Nov 2024 11:00:00 -0800)
+
+- **Burkina Faso – Sénégal : les compositions probables, chaîne tv et heure**: [Link](https://galsenfoot.sn/burkina-faso-senegal-les-compositions-probables-chaine-tv-et-heure/)
+- **Galatasaray : on connaît la nature de la blessure et la durée 
+d’indisponibilité de Ismail Jakobs**: [Link](https://www.seneweb.com/news/Sport/galatasaray-on-connait-la-nature-de-la-b_n_455772.html)
+- **Equipe Nationale : Boulaye Dia et Lamine Camara forfaits face au Burkina 
+Faso**: [Link](https://www.sudquotidien.sn/equipe-nationale-boulaye-dia-et-lamine-camara-forfaits-face-au-burkina-faso/)
+
+
+### belgique – italie (N/A, Thu, 14 Nov 2024 11:00:00 -0800)
+
+- **La retransmission du match des Diables rouges impactée par la grève à la 
+RTBF**: [Link](https://www.lesoir.be/636015/article/2024-11-14/la-retransmission-du-match-des-diables-rouges-impactee-par-la-greve-la-rtbf)
+- **Italie : Nicolò Savona et Pietro Comuzzo, les deux nouvelles trouvailles de 
+Luciano Spalletti**: [Link](https://www.footmercato.net/a8381701505772890457-italie-nicolo-savona-et-pietro-comuzzo-les-deux-nouvelles-trouvailles-de-luciano-spalletti)
+- **Ligue des Nations : Les Bleus qualifiés pour les phases finales dès ce soir 
+si…**: [Link](https://www.beinsports.com/fr-fr/football/ligue-des-nations/articles/ligue-des-nations-les-bleus-qualifi%C3%A9s-pour-les-phases-finales-d%C3%A8s-ce-soir-si-2024-11-14)
+
+
+### فرنسا ضد إسرائيل (N/A, Thu, 14 Nov 2024 11:00:00 -0800)
+
+- **استنفار أمني قبل مباراة فرنسا وإسرائيل**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A-1464487.html)
+- **مغردون يطالبون بحملات تبرع للمقاومة بغزة ردا على "حفل العار" بفرنسا**: [Link](https://www.aljazeera.net/programs/networks/2024/11/14/%D9%85%D8%BA%D8%B1%D8%AF%D9%88%D9%86-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8%D9%88%D9%86-%D8%A8%D8%AD%D9%85%D9%84%D8%A7%D8%AA-%D8%AA%D8%A8%D8%B1%D8%B9-%D9%84%D9%84%D9%85%D9%82%D8%A7%D9%88%D9%85%D8%A9)
+- **المهام القذرة للإعلام الفرنسي! | حفيظ دراجي**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%85%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D9%82%D8%B0%D8%B1%D8%A9-%D9%84%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/)
+
+
+### france – israël (N/A, Thu, 14 Nov 2024 10:50:00 -0800)
+
+- **France - Israël : des journalistes recalés à l’entrée**: [Link](https://www.footmercato.net/a6261666720788018164-france-israel-des-journalistes-recales-sans-raison-a-lentree)
+- **France - Israël : les compositions officielles**: [Link](https://www.footmercato.net/a1886116229106008327-france-israel-les-compositions-officielles)
+- **EN DIRECT Match France - Israël : Seuls les drapeaux français et israéliens 
+seront autorisés au Stade de France…**: [Link](https://www.20minutes.fr/sport/football/4121221-20241114-direct-tensions-avant-france-israel-plus-4-000-policiers-gendarmes-deployes-revivre-violences-amsterdam)
+
+
+### كووورة (N/A, Thu, 14 Nov 2024 10:50:00 -0800)
+
+- **ألونسو يقرر إنهاء مغامرته مع باير ليفركوزن**: [Link](https://www.kooora.com/?n=1368167)
+- **بايرن أم ريال مدريد.. أين سيتجه قلب ألونسو؟!**: [Link](https://hihi2.com/2024/11/14/p2935499.html)
+- **تشابي ألونسو يتخذ القرار الذي ينتظره ريال مدريد**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/1301339/%D8%AA%D8%B4%D8%A7%D8%A8%D9%8A-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%AA%D8%AE%D8%B0-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%8A-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1%D9%87-%D8%B1)
+
+
+### maroc egypte u20 (N/A, Thu, 14 Nov 2024 10:50:00 -0800)
+
+- **UNAF U20: Maroc-Égypte, jamais deux sans trois ?**: [Link](https://snrtnews.com/fr/article/unaf-u20-maroc-egypte-jamais-deux-sans-trois-106548)
+- **Tournoi UNAF U17 Maroc 2024 : victoire du Maroc face à l’Egypte 5-1**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%85%D8%B5%D8%B1/)
+- **Mohamed Ouhabi : “Chaque match sera un défi”**: [Link](https://www.mountakhab.net/mohamed-ouhabi-chaque-match-sera-un-defi/)
+
+
 ### sahara occidental (N/A, Thu, 14 Nov 2024 10:30:00 -0800)
 
 - **Décolonisation du Sahara : Il y a 49 ans, l’accord tripartite de Madrid 
