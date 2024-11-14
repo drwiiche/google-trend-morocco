@@ -1,3 +1,11 @@
+### iraq vs jordan (N/A, Thu, 14 Nov 2024 09:00:00 -0800)
+
+- **Iraq vs Jordan LIVE Score Updates (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2024/11/14/1204193-iraq-vs-jordan-live-score-updates-stream-info-and-how-to-watch-asian-qualifiers-for-the-2026-world-cup-match.html)
+- **What will weather be like tomorrow?**: [Link](https://en.royanews.tv/news/55545)
+- **The Jordanian team concludes preparations in Amman and heads to Basra on 
+Wednesday morning**: [Link](https://www.ysscores.com/en/news/6981388/The-Jordanian-team-concludes-preparations-in-Amman-and-heads-to-Basra-on-Wednesday-morning)
+
+
 ### العراق ضد الأردن (N/A, Thu, 14 Nov 2024 08:40:00 -0800)
 
 - **مباشر.. مباراة العراق ضد الأردن في تصفيات كأس العام 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/14/iraq-vs-jordan)
