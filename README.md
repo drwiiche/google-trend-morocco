@@ -1,3 +1,13 @@
+### pleine lune novembre 2024 taureau (N/A, Wed, 13 Nov 2024 15:50:00 -0800)
+
+- **Pleine Lune en Taureau du 15 novembre : ce signe affiche une sexualité 
+débordante**: [Link](https://www.aufeminin.com/signes-astrologiques/pleine-lune-en-taureau-du-15-novembre-ce-signe-affiche-une-sexualite-debordante-s4099494.html)
+- **Pleine Lune du 15 novembre: la dernière Super Lune de l’année va chambouler 
+le Zodiaque**: [Link](https://www.salutbonjour.ca/2024/11/13/pleine-lune-du-15-novembre-la-derniere-super-lune-de-lannee-va-chambouler-le-zodiaque)
+- **Ne manquez pas la pleine lune du Castor qui va illuminer le ciel dans la 
+nuit du 15 au 16 novembre**: [Link](https://www.demotivateur.fr/sciences/ne-manquez-pas-la-pleine-lune-du-castor-qui-va-illuminer-le-ciel-dans-la-nuit-du-15-au-16-novembre-41535)
+
+
 ### حالة الطقس اليوم (N/A, Wed, 13 Nov 2024 22:50:00 -0800)
 
 - **خلي الجاكت معاك.. الأرصاد تعلن عن تقلبات جوية قادمة فى هذا الموعد: أمطار 
