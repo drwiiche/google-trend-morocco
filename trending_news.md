@@ -1,3 +1,11 @@
+### المنتخب المغربي (N/A, Fri, 15 Nov 2024 05:20:00 -0800)
+
+- **تاريخ المباريات بين المغرب والغابون .. تفوق طفيف لصالح "أسود الأطلس"**: [Link](https://www.hespress.com/%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86-%D8%AA-1464760.html)
+- **احترافية/إلمام بالتفاصيل الدقيقة/صمود لساعات طوال/ لقجع نجم فوق العادة في 
+ماراطون مناقشة مشروع قانون المالية**: [Link](https://rue20.com/854760.html)
+- **التشكيلة المحتملة للمنتخب المغربي في مباراة الغابون**: [Link](https://www.akhbarona.com/sport/lionatlas/395737.html)
+
+
 ### ouganda – afrique du sud (N/A, Fri, 15 Nov 2024 05:10:00 -0800)
 
 - **CAN 2025 (Q): Afrique du Sud : Mihlali Mayambela blessé et remplacé chez 
