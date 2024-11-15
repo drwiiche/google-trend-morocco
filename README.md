@@ -1,3 +1,37 @@
+### frmf (N/A, Fri, 15 Nov 2024 10:30:00 -0800)
+
+- **La FRMF et PUMA révèlent les nouveaux maillots des équipes nationales 
+marocaines en prévision des prochaines échéances notamment la CAN Maroc 
+2025 – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%88-2/)
+- **Foot : voici le nouveau maillot de l’équipe nationale du Maroc (photos)**: [Link](https://medias24.com/2024/11/12/foot-voici-le-nouveau-maillot-de-lequipe-nationale-du-maroc-photos/)
+- **La FRMF lance sa boutique en ligne**: [Link](https://sport.le360.ma/football/lions-atlas/la-frmf-lance-sa-boutique-en-ligne_OBM3LUWQMNFN5L3MPV3TXB2GOM/)
+
+
+### gabón - marruecos (N/A, Fri, 15 Nov 2024 10:20:00 -0800)
+
+- **Regragui: “Nuestro objetivo para 2025 es claro: ganar el título africano en 
+Marruecos”**: [Link](https://es.rue20.com/2024/11/14/regragui-nuestro-objetivo-para-2025-es-claro-ganar-el-titulo-africano-en-marruecos/)
+- **Clasificatorias a la CAN 2025 (Jornada 5): La Selección Nacional Llega a 
+Franceville**: [Link](https://www.footboom1.com/es/news/football/2060916-can-2025-qualifiers-matchday-5-national-team-arrives-in-franceville)
+- **Gabón - Marruecos: horario y dónde ver en TV el partido de clasificación a 
+la Copa África**: [Link](https://www.marca.com/futbol/copa-africa/2024/11/15/gabon-marruecos-horario-ver-tv-partido-clasificacion-copa-africa.html)
+
+
+### africa cup of nations qualification (N/A, Fri, 15 Nov 2024 10:10:00 -0800)
+
+- **How to watch Zimbabwe vs Kenya game**: [Link](https://www.soccer24.co.zw/2024/11/15/how-to-watch-zimbabwe-vs-kenya-game-2/)
+- **Warriors through to 2025 AFCON**: [Link](https://www.newzimbabwe.com/warriors-through-to-2025-afcon/)
+- **Chigova’s widow, kids for Warriors game**: [Link](https://www.herald.co.zw/chigovas-widow-kids-for-warriors-game/)
+
+
+### gabon – maroc (N/A, Fri, 15 Nov 2024 10:00:00 -0800)
+
+- **Gabon-Maroc: le onze de départ des Lions de l’Atlas, avec les grands 
+revenants**: [Link](https://sport.le360.ma/football/can/gabon-maroc-le-onze-de-depart-des-lions-de-latlas-avec-les-grands-revenants_TBEWLA2ESFEEVBAO2WCB6CT43Q/)
+- **Walid Regragui : Le match face au Gabon, un véritable défi avant la CAN 2025**: [Link](https://fr.hespress.com/396382-walid-regragui-le-match-face-au-gabon-un-veritable-defi-avant-la-can-2025.html)
+- **Eliminatoires CAN Maroc-2025 : départ des Lions de l’Atlas pour Franceville**: [Link](https://frmf.ma/fr/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%AA%D8%AA%D9%88%D8%AC%D9%87-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86/)
+
+
 ### الغابون ضد المغرب (N/A, Fri, 15 Nov 2024 10:00:00 -0800)
 
 - **القنوات الناقلة لمباراة المنتخب المغربي ضد الغابون**: [Link](https://ar.hibapress.com/details-573716.html)
