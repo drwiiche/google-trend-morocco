@@ -1,3 +1,10 @@
+### مباراة المغرب (N/A, Fri, 15 Nov 2024 05:40:00 -0800)
+
+- **حماس رحيمي يحفز لاعبي المغرب**: [Link](https://www.kooora.com/?n=1368307&o=n27102)
+- **التشكيلة المحتملة للمنتخب المغربي في مباراته ضد الغابون**: [Link](https://ar.hibapress.com/details-573645.html)
+- **القنوات الناقلة لمباراة المنتخب المغربي أمام نظيره الغابوني**: [Link](https://www.akhbarona.com/sport/lionatlas/395741.html)
+
+
 ### carlos alcaraz (N/A, Fri, 15 Nov 2024 06:20:00 -0800)
 
 - **A falta de aire, Alcaraz tira de su cañón**: [Link](https://elpais.com/deportes/tenis/2024-11-14/a-falta-de-aire-alcaraz-tira-de-su-canon.html)
