@@ -1,3 +1,36 @@
+### يلا شوت (N/A, Fri, 15 Nov 2024 11:00:00 -0800)
+
+- **دي لا فوينتي: سنواجه الدنمارك بخطتين**: [Link](https://m.kooora.com/?n=1368246&o=n)
+- **أفضل وأسوء ذكريات أولمو في 5 سنوات مع المنتخب**: [Link](https://hihi2.com/2024/11/15/p2935805.html)
+- **موعد مباراة إسبانيا والدنمارك في دوري أمم أوروبا والقنوات الناقلة**: [Link](https://baladnaelyoum.com/news/1057389)
+
+
+### كورة (N/A, Fri, 15 Nov 2024 11:00:00 -0800)
+
+- **عاجل: ريال مدريد حسم اتفاقه مع ديفيز وسيوقع معه في يناير**: [Link](https://hihi2.com/2024/11/15/p2936860.html)
+- **برشلونة يستهدف 3 صفقات مجانية في الصيف**: [Link](https://aboutmsr.com/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-3-%D8%B5%D9%81%D9%82%D8%A7%D8%AA-%D9%85%D8%AC%D8%A7%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D9%8A%D9%81/)
+- **ألفونسو ديفيس يعود إلى فليك؟ برشلونة يعتزم تفجير قنبلة في وجه ريال مدريد!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%84%D9%81%D9%88%D9%86%D8%B3%D9%88-%D8%AF%D9%8A%D9%81%D9%8A%D8%B3-%D9%81%D9%84%D9%8A%D9%83-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B9%D8%AA%D8%B2%D9%85-%D8%AA%D9%81%D8%AC%D9%8A%D8%B1-%D9%82%D9%86%D8%A8%D9%84%D8%A9-%D9%88%D8%AC%D9%87-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt46702ed746ae29db)
+
+
+### kooora tv (N/A, Fri, 15 Nov 2024 11:00:00 -0800)
+
+
+
+
+### كورة لايف (N/A, Fri, 15 Nov 2024 10:50:00 -0800)
+
+- **ملخص وأهداف مباراة مصر ضد الرأس الأخضر (1-1) في تصفيات أمم إفريقيا**: [Link](https://www.almasryalyoum.com/news/details/3307139)
+- **كاب فيردي توقف انتصارات مصر بتعادل مثير**: [Link](https://www.kooora.com/?n=1368377)
+- **ملخص مباراة الرأس الأخضر ومصر في تصفيات أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/15/cabo-verde-vs-egypt?update=7068105)
+
+
+### snrt (N/A, Fri, 15 Nov 2024 10:50:00 -0800)
+
+- **Baitas: Le PLF 2025 démontre l'engagement de l'Exécutif pour un Etat social**: [Link](https://fr.hespress.com/396381-baitas-le-plf-2025-demontre-lengagement-de-lexecutif-pour-un-etat-social.html)
+- **Le PLF 2025 adopté en première lecture à la Chambre des représentants**: [Link](https://lematin.ma/nation/le-plf-2025-adopte-en-premiere-lecture-a-la-chambre-des-representants/251641)
+- **Le projet de loi de finances pour l’année 2025 adopté par le Parlement**: [Link](https://www.h24info.ma/le-projet-de-loi-de-finances-pour-lannee-2025-adopte-par-le-parlement/)
+
+
 ### kooora (N/A, Fri, 15 Nov 2024 10:40:00 -0800)
 
 - **كروس يفتح باب العودة إلى ريال مدريد**: [Link](https://www.kooora.com/?n=1368363)
