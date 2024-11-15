@@ -1,3 +1,26 @@
+### الرأس الأخضر ضد مصر (N/A, Fri, 15 Nov 2024 08:00:00 -0800)
+
+- **القنوات الناقلة لمباراة منتخب مصر والمعلق**: [Link](https://www.almasryalyoum.com/news/details/3307054)
+- **مباشر.. مباراة الرأس الأخضر ضد مصر في تصفيات أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/15/cabo-verde-vs-egypt)
+- **موعد مباراة مصر وكاب فيردي في تصفيات أمم أفريقيا 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/?n=1368154)
+
+
+### maroc (N/A, Fri, 15 Nov 2024 05:40:00 -0800)
+
+- **Inondations en Espagne: le détail de l’aide dépêchée par le Maroc**: [Link](https://fr.le360.ma/societe/inondations-en-espagne-le-detail-de-laide-depechee-par-le-maroc_LEP5HEMY4VCXPFX747OWUBBPDY/)
+- **Inondations: Pedro Sánchez remercie le Maroc pour son soutien aux efforts 
+de secours à Valence**: [Link](https://fr.hespress.com/396505-inondations-pedro-sanchez-remercie-le-maroc-pour-son-soutien-aux-efforts-de-secours-a-valence.html)
+- **Ces voitures plastifiées à Malaga attestent du désespoir des habitants face 
+aux intempéries**: [Link](https://www.huffingtonpost.fr/international/article/en-espagne-ces-voitures-plastifiees-a-malaga-montrent-le-desespoir-des-habitants-face-aux-intemperies_242242.html)
+
+
+### morocco vs gabon (N/A, Fri, 15 Nov 2024 05:20:00 -0800)
+
+- **Gabon vs Morocco: When, How to Watch Atlas Lions Tough Away AFCON Qualifier**: [Link](https://www.moroccoworldnews.com/2024/11/366378/gabon-vs-morocco-when-how-to-watch-atlas-lions-tough-away-afcon-qualifier)
+- **Regragui : Fierce competition for places in Morocco national team**: [Link](https://en.yabiladi.com/articles/details/156188/regragui-fierce-competition-places-morocco.html)
+- **CAN-2025 Qualifiers: Morocco’s Head Coach Unveils 26-Man Squad**: [Link](https://www.fananews.com/language/en/can-2025-qualifiers-moroccos-head-coach-unveils-26-man-squad-2/)
+
+
 ### zambie – côte d'ivoire (N/A, Fri, 15 Nov 2024 07:30:00 -0800)
 
 - **Pronostic Zambie – Côte d’Ivoire : nos conseils de paris sur le match des 
