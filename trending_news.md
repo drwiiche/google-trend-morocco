@@ -1,3 +1,17 @@
+### brahim diaz (N/A, Fri, 15 Nov 2024 11:20:00 -0800)
+
+- **Brahim Diaz Set to Leave Real Madrid in 2026 Amid Financial Restructuring**: [Link](https://www.moroccoworldnews.com/2024/11/366372/brahim-diaz-set-to-leave-real-madrid-in-2026-amid-financial-restructuring)
+- **Transfer Market: Real Madrid Opens Door for Four Players**: [Link](https://www.footboom1.com/en/news/football/2057138-transfer-market-real-madrid-opens-door-for-four-players)
+- **Real Madrid planning for 4 signings next summer – two deals already close**: [Link](https://www.football-espana.net/2024/11/12/real-madrid-planning-for-4-signings-next-summer-two-deals-already-close)
+
+
+### danemark – espagne (N/A, Fri, 15 Nov 2024 11:10:00 -0800)
+
+- **Pronostic Danemark - Espagne, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/danemark-espagne-227788/)
+- **Pedri et Dani Olmo : Un Duo Luttant Contre la 'Staffetta'**: [Link](https://www.footboom1.com/fr/news/football/2063903-pedri-and-dani-olmo-a-duo-fighting-against-the-staffetta)
+- **Danemark-Espagne : Chaîne et horaire du 5ème match du groupe D**: [Link](https://www.coeurmarseillais.fr/danemark-espagne-chaine-et-horaire-du-5eme-match-du-groupe-d/)
+
+
 ### portugal – pologne (N/A, Fri, 15 Nov 2024 11:10:00 -0800)
 
 - **PRONOS PARIS RMC Le pari sûr du 15 novembre – Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-15-novembre-ligue-des-nations_AN-202411140400.html)
