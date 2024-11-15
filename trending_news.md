@@ -1,3 +1,12 @@
+### brazil foot (N/A, Thu, 14 Nov 2024 14:50:00 -0800)
+
+- **Le problème Vinicius Junior inquiète le Brésil**: [Link](https://www.footmercato.net/a6002568058723592291-le-probleme-vinicius-junior-inquiete-le-bresil)
+- **Cinq buts en cinq ans : Vinicius Jr doit améliorer son bilan déplorable 
+avec le Brésil sous peine de vivre un Mondial 2026 embarrassant**: [Link](https://www.goal.com/fr/listes/cinq-buts-en-cinq-ans-vinicius-jr-doit-ameliorer-son-bilan-deplorable-avec-le-bresil-sous-peine-de-vivre-un-mondial-2026-embarrassant/bltce599ec3f2b23d54)
+- **Vinícius Júnior « provoque la persécution qu’il subit », selon l’ancien 
+sélectionneur du Brésil**: [Link](https://www.sofoot.com/breves/vinicius-junior-provoque-la-persecution-quil-subit-selon-lancien-selectionneur-du-bresil)
+
+
 ### باراغواي ضد الأرجنتين (N/A, Thu, 14 Nov 2024 15:20:00 -0800)
 
 - **مدرب باراجواي يبرر القرار الخاص بقميص ميسي**: [Link](https://www.kooora.com/?n=1368048)
