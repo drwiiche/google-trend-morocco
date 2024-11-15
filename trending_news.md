@@ -1,3 +1,13 @@
+### zambie – côte d'ivoire (N/A, Fri, 15 Nov 2024 07:30:00 -0800)
+
+- **Pronostic Zambie – Côte d’Ivoire : nos conseils de paris sur le match des 
+Éléphants**: [Link](https://www.afrik-foot.com/pronostic-zambie-cote-divoire-2)
+- **El. CAN 2025 (5è jrnée) Emerse Faé : « Gagner les deux matchs pour remonter 
+au classement FIFA**: [Link](https://www.sport-ivoire.ci/football-can/el-can-2025-5%C3%A8-jrn%C3%A9e-emerse-fa%C3%A9-%C2%AB-gagner-les-deux-matchs-pour-remonter-au-classement)
+- **3e édition du Forum Afrique, RSE et Santé en format hybride, en duplex 
+entre Paris, Genève et Abidjan**: [Link](https://news.abidjan.net/galeries/54379/3e-edition-du-forum-afrique-rse-et-sante-en-format-hybride-en-duplex-entre-paris-geneve-et-abidjan)
+
+
 ### osame sahraoui (N/A, Fri, 15 Nov 2024 06:50:00 -0800)
 
 
