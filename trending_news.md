@@ -1,3 +1,28 @@
+### gérald darmanin (N/A, Fri, 15 Nov 2024 09:20:00 -0800)
+
+- **L’immoralité des élus et le laxisme judiciaire, combats politiques de 
+Marine Le Pen… jusqu’à sa mise en cause**: [Link](https://www.lemonde.fr/politique/article/2024/11/14/l-immoralite-des-elus-et-le-laxisme-judiciaire-combats-politiques-de-marine-le-pen-jusqu-a-sa-mise-en-cause_6393891_823448.html)
+- **Procès des assistants du RN : le virage à 180 ° de Marine Le Pen**: [Link](https://www.lepoint.fr/politique/proces-des-assistants-du-rn-le-virage-a-180-de-marine-le-pen-14-11-2024-2575281_20.php)
+- **Possible inéligibilité de Marine Le Pen : «Mon mouvement politique a un 
+genou à terre», reconnaît Jordan Bardella**: [Link](https://www.lefigaro.fr/politique/possible-ineligibilite-de-marine-le-pen-mon-mouvement-politique-a-un-genou-a-terre-reconnait-jordan-bardella-20241114)
+
+
+### morocco vs (N/A, Fri, 15 Nov 2024 08:20:00 -0800)
+
+- **Gabon vs Morocco: When, How to Watch Atlas Lions Tough Away AFCON Qualifier**: [Link](https://www.moroccoworldnews.com/2024/11/366378/gabon-vs-morocco-when-how-to-watch-atlas-lions-tough-away-afcon-qualifier)
+- **Atlas Lions coach Regragui previews «open and offensive» clash as Morocco 
+faces Gabon**: [Link](https://en.yabiladi.com/articles/details/156279/atlas-lions-coach-regragui-previews.html)
+- **CAN-2025 Qualifiers: Morocco’s Head Coach Unveils 26-Man Squad**: [Link](https://www.fananews.com/language/en/can-2025-qualifiers-moroccos-head-coach-unveils-26-man-squad-2/)
+
+
+### match maroc gabon (N/A, Fri, 15 Nov 2024 07:40:00 -0800)
+
+- **CAN 2025. Le Maroc en quête d'équilibre face au Gabon**: [Link](https://medias24.com/2024/11/15/can-2025-le-maroc-en-quete-dequilibre-face-au-gabon/)
+- **Walid Regragui : Le match face au Gabon, un véritable défi avant la CAN 2025**: [Link](https://fr.hespress.com/396382-walid-regragui-le-match-face-au-gabon-un-veritable-defi-avant-la-can-2025.html)
+- **Gabon-Maroc: la compo probable des Lions de l’Atlas, avec Bounou, Diaz et 
+Mazraoui**: [Link](https://sport.le360.ma/football/can/gabon-maroc-la-compo-probable-des-lions-de-latlas-avec-bounou-diaz-et-mazraoui_F2RG73DAEJAJ7DLHXOLC7JJJQQ/)
+
+
 ### fenerbahçe – zenit (N/A, Fri, 15 Nov 2024 09:00:00 -0800)
 
 
