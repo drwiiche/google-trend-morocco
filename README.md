@@ -1,3 +1,27 @@
+### k (N/A, Fri, 15 Nov 2024 11:30:00 -0800)
+
+- **Driver, K-9 officer killed during chase, shootout in Fulton County, police 
+say**: [Link](https://www.fox5atlanta.com/news/gbi-investigation-roosevelt-highway-fairburn)
+- **Coweta County K-9 fatally shot after high-speed pursuit**: [Link](https://www.times-herald.com/news/coweta-county-k-9-fatally-shot-after-high-speed-pursuit/article_ef24a4ca-a284-11ef-9703-e31949dfebfb.html)
+- **Suspect and K-9 dead, deputy injured after chase crosses into Fulton County**: [Link](https://www.11alive.com/article/news/local/roosevelt-highway-police-high-speed-chase-k9-dead-shooting-deputies/85-7c17eec6-276e-4f70-945d-75406801372c)
+
+
+### match today (N/A, Fri, 15 Nov 2024 11:30:00 -0800)
+
+- **India bat with series win up for grabs; both sides unchanged**: [Link](https://www.espncricinfo.com/series/india-in-south-africa-2024-25-1449299/south-africa-vs-india-4th-t20i-1449304/match-report)
+- **India Seeks to Enhance Stellar T20 Record Against South Africa**: [Link](https://bvmsports.com/2024/11/14/india-seeks-to-enhance-stellar-t20-record-against-south-africa/)
+- **India vs South Africa: Johannesburg Set for Decisive Final T20I as India 
+Aim for Series Win**: [Link](https://www.wionews.com/videos/india-vs-south-africa-johannesburg-set-for-decisive-final-t20i-as-india-aim-for-series-win-776465)
+
+
+### يلا كورة مباريات اليوم (N/A, Fri, 15 Nov 2024 11:30:00 -0800)
+
+- **مواعيد مباريات اليوم والقنوات الناقلة| أبرزها مصر ضد الرأس الأخضر.. ومواجهة 
+البرتغال وبولندا**: [Link](https://www.almasryalyoum.com/news/details/3306940)
+- **ابرزها بلجيكا و إيطاليا و فنزويلا و البرازيل.. مواعيد مباريات اليوم**: [Link](https://m.gomhuriaonline.com/Gomhuria/1548959.html)
+- **جدول مباريات اليوم الجمعة 15 نوفمبر 2024 والقنوات الناقلة والمعلقين**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-15-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2024-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt8e2768fa3c1ad262)
+
+
 ### brahim diaz (N/A, Fri, 15 Nov 2024 11:20:00 -0800)
 
 - **Brahim Diaz Set to Leave Real Madrid in 2026 Amid Financial Restructuring**: [Link](https://www.moroccoworldnews.com/2024/11/366372/brahim-diaz-set-to-leave-real-madrid-in-2026-amid-financial-restructuring)
