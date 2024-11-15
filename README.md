@@ -1,3 +1,39 @@
+### portugal – pologne (N/A, Fri, 15 Nov 2024 11:10:00 -0800)
+
+- **PRONOS PARIS RMC Le pari sûr du 15 novembre – Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-15-novembre-ligue-des-nations_AN-202411140400.html)
+- **Pronostic Portugal - Pologne, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/portugal-pologne-227733/)
+- **Europe : Un nouvel absent de poids pour Bayern/PSG**: [Link](https://www.culturepsg.com/ja/news/europe/un-nouvel-absent-de-poids-pour-bayern-psg/53633)
+
+
+### aubameyang (N/A, Fri, 15 Nov 2024 11:10:00 -0800)
+
+- **Aubameyang’s New Declaration of Love for Barcelona**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles-video/aubameyang-s-new-declaration-of-love-for-barcelona-2024-11-13)
+- **Pierre-Emerick Aubameyang Reflects on His Time at FC Barcelona**: [Link](https://www.footboom1.com/en/news/football/2064017-pierre-emerick-aubameyang-reflects-on-his-time-at-fc-barcelona)
+- **Former Barcelona forward reflects on Camp Nou days as the best of his career**: [Link](https://sports.yahoo.com/former-barcelona-forward-reflects-camp-064000599.html)
+
+
+### sports (N/A, Fri, 15 Nov 2024 11:10:00 -0800)
+
+- **Sports betting and the NFL: Why the league embraced gambling and what’s next**: [Link](https://www.ohio.edu/news/2024/11/sports-betting-nfl-why-league-embraced-gambling-whats-next)
+- **NFL Promos Week 11: Bet Boosts & Sign-Up Bonuses**: [Link](https://www.oddsshark.com/nfl/week-11-betting-promos)
+- **How to Crush NFL Player Prop Bets in the Final Stretch of the Season**: [Link](https://www.betus.com.pa/nfl/news/how-to-crush-nfl-player-prop-bets-in-the-final-stretch-of-the-season-mads/)
+
+
+### yalla kora (N/A, Fri, 15 Nov 2024 11:10:00 -0800)
+
+- **أسوأ نهاية في انتظار غوارديولا**: [Link](https://hihi2.com/2024/11/13/p2933676.html)
+- **إجابة مثيرة من رودري حول مستقبل جوارديولا مع مانشستر سيتي**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/1301047/%D8%A5%D8%AC%D8%A7%D8%A8%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%85%D9%86-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%AD%D9%88%D9%84-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A)
+- **هل بدأ العد التنازلي لجوارديولا مع مانشستر سيتي؟**: [Link](https://www.kooora.com/?n=1366146)
+
+
+### live (N/A, Fri, 15 Nov 2024 11:10:00 -0800)
+
+- **‘Live With Kelly & Mark’ Spooks Up Monster Halloween Viewership With Best 
+Audience In 7 Months**: [Link](https://deadline.com/2024/11/live-with-kelly-and-mark-halloween-viewership-ratings-2024-1236178151/)
+- **Saudi Arabia’s Public Investment Fund Sold Its Entire Live Nation Stake**: [Link](https://www.billboard.com/pro/saudi-arabia-public-investment-fund-sells-live-nation-shares/)
+- **Mike Tyson vs. Jake Paul date and time: Fight schedule, odds, how to watch**: [Link](https://www.usatoday.com/story/sports/boxing/2024/11/14/mike-tyson-jake-paul-date-time-schedule/76261827007/)
+
+
 ### يلا شوت (N/A, Fri, 15 Nov 2024 11:00:00 -0800)
 
 - **دي لا فوينتي: سنواجه الدنمارك بخطتين**: [Link](https://m.kooora.com/?n=1368246&o=n)
