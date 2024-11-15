@@ -1,3 +1,11 @@
+### portugal fc (N/A, Fri, 15 Nov 2024 12:40:00 -0800)
+
+- **FC Porto: Deniz Gul em tratamento**: [Link](https://www.abola.pt/futebol/noticias/fc-porto-deniz-gul-em-tratamento-2024111514013189222)
+- **Vítor Bruno chama jovem da equipa B e tem quatro jogadores no boletim 
+clínico no treino do FC Porto**: [Link](https://desporto.sapo.pt/futebol/primeira-liga/artigos/vitor-bruno-chama-jovem-da-equipa-b-e-tem-quatro-jogadores-no-boletim-clinico-no-treino-do-fc-porto)
+- **FC Porto contou com uma novidade no treino desta sexta-feira**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/fc-porto-contou-com-uma-novidade-no-treino-desta-sexta-feira/)
+
+
 ### coupe d'afrique 2025 (N/A, Fri, 15 Nov 2024 12:30:00 -0800)
 
 - **CAN 2025 : Le Gabon, l'Ouganda et l'Afrique du Sud assurent leur 
