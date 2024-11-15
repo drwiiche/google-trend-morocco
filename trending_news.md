@@ -1,3 +1,12 @@
+### netflix (N/A, Fri, 15 Nov 2024 14:40:00 -0800)
+
+- **Deadpool & Wolverine, Twisters, Netflix’s Emilia Pérez, and every movie new 
+to streaming**: [Link](https://www.polygon.com/what-to-watch/475713/new-movies-watch-streaming-deadpool-wolverine-netflix-emilia-perez-twisters)
+- **OTT Releases This Friday, November 15, 2024**: [Link](https://www.bizzbuzz.news/12-new-ott-releases-this-weekend-movies-series-releasing-on-the-15th-november)
+- **Weekend Binge Alert: Top New Shows And Films Hitting Screens Today; Check 
+List Below**: [Link](https://www.punekarnews.in/weekend-binge-alert-top-new-shows-and-films-hitting-screens-today-check-list-below/)
+
+
 ### جينيفر لوبيز (N/A, Fri, 15 Nov 2024 14:50:00 -0800)
 
 - **نساء آل صعب... أناقة ساحرة وجمال آسر**: [Link](https://www.lahamag.com/article/217352-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A2%D9%84-%D8%B5%D8%B9%D8%A8-%D8%A3%D9%86%D8%A7%D9%82%D8%A9-%D8%B3%D8%A7%D8%AD%D8%B1%D8%A9-%D9%88%D8%AC%D9%85%D8%A7%D9%84-%D9%8A%D8%A3%D8%B3%D8%B1-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9)
