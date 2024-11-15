@@ -1,3 +1,13 @@
+### le pen marine (N/A, Fri, 15 Nov 2024 06:00:00 -0800)
+
+- **Procès du RN : cinq ans de prison dont deux ferme requis contre Marine Le 
+Pen**: [Link](https://www.france24.com/fr/info-en-continu/20241113-%F0%9F%94%B4-proc%C3%A8s-du-rn-des-peines-d-in%C3%A9ligibilit%C3%A9-requises-pour-marine-le-pen-et-les-autres-pr%C3%A9venus)
+- **Possible inéligibilité de Marine Le Pen : Gérald Darmanin vivement critiqué 
+après avoir remis en cause l’indépendance de la justice**: [Link](https://www.lemonde.fr/politique/article/2024/11/15/possible-ineligibilite-de-marine-le-pen-gerald-darmanin-vivement-critique-apres-avoir-remis-en-cause-l-independance-de-la-justice_6394791_823448.html)
+- **Procès des assistants parlementaires du FN : l'avocat du Parlement européen 
+"plutôt hostile à l'exécution provisoire" des peines**: [Link](https://www.francetvinfo.fr/politique/front-national/affaire-des-assistants-fn-au-parlement-europeen/proces-des-assistants-parlementaires-du-fn-l-avocat-du-parlement-europeen-plutot-hostile-a-l-execution-provisoire-des-peines_6896921.html)
+
+
 ### مباريات اليوم المغرب (N/A, Fri, 15 Nov 2024 05:30:00 -0800)
 
 - **رغم مشاركة ميسي.. باراجواي تعاقب الأرجنتين**: [Link](https://www.kooora.com/?n=1368251)
