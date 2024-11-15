@@ -1,3 +1,26 @@
+### الغابون ضد المغرب (N/A, Fri, 15 Nov 2024 10:00:00 -0800)
+
+- **القنوات الناقلة لمباراة المنتخب المغربي ضد الغابون**: [Link](https://ar.hibapress.com/details-573716.html)
+- **تعرف على تشكلية المنتخب المغربي ضد الغابون**: [Link](https://www.almountakhab.com/node/16206569)
+- **حماس رحيمي يحفز لاعبي المغرب**: [Link](https://www.kooora.com/?n=1368307)
+
+
+### gabon vs morocco (N/A, Fri, 15 Nov 2024 10:00:00 -0800)
+
+- **Gabon vs Morocco: When, How to Watch Atlas Lions Tough Away AFCON Qualifier**: [Link](https://www.moroccoworldnews.com/2024/11/366378/gabon-vs-morocco-when-how-to-watch-atlas-lions-tough-away-afcon-qualifier)
+- **Atlas Lions coach Regragui previews «open and offensive» clash as Morocco 
+faces Gabon**: [Link](https://en.yabiladi.com/articles/details/156279/atlas-lions-coach-regragui-previews.html)
+- **Preview: Gabon vs. Morocco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/gabon/preview/preview-gabon-vs-morocco-prediction-team-news-lineups_558051.html)
+
+
+### egypte foot (N/A, Fri, 15 Nov 2024 09:50:00 -0800)
+
+- **Tournoi UNAF U20 : Mouad Dahak Homme du match (Maroc-Egypte)**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%85%D8%B9%D8%A7%D8%AF-%D8%A7%D9%84%D8%B6%D8%AD%D8%A7%D9%83-%D8%A3%D8%AD%D8%B3%D9%86-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7/)
+- **Tournoi de l’UNAF: les Lionceaux U20 dominent les Pharaons**: [Link](https://sport.le360.ma/football/lions-atlas/tournoi-de-lunaf-les-lionceaux-u20-dominent-les-pharaons_LK2TDYRYT5FX7IPOWVKBRZ52AU/)
+- **Mohamed Ouahbi : « Un match difficile, mais une première victoire 
+essentielle »**: [Link](https://www.mountakhab.net/mohamed-ouahbi-un-match-difficile-mais-une-premiere-victoire-essentielle/)
+
+
 ### gérald darmanin (N/A, Fri, 15 Nov 2024 09:20:00 -0800)
 
 - **L’immoralité des élus et le laxisme judiciaire, combats politiques de 
