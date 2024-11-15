@@ -1,3 +1,12 @@
+### carlos alcaraz (N/A, Fri, 15 Nov 2024 06:20:00 -0800)
+
+- **A falta de aire, Alcaraz tira de su cañón**: [Link](https://elpais.com/deportes/tenis/2024-11-14/a-falta-de-aire-alcaraz-tira-de-su-canon.html)
+- **Qué dicen los expertos sobre las tiras nasales, el remedio de Ronaldo en 
+los 90 que vuelve a usar Alcaraz**: [Link](https://www.eldebate.com/salud-y-bienestar/salud/20241115/dicen-expertos-sobre-tiras-nasales-remedio-ronaldo-90-vuelve-usar-alcaraz_244865.html)
+- **Highlights extendidas: Alcaraz vence a Rublev, y Zverev a Ruud en el 4° día 
+en Turín**: [Link](https://www.atptour.com/es/video/extended-highlights-alcaraz-dances-past-rublev-zverev-sees-off-ruud-on-day-4-in-turin-2024)
+
+
 ### le pen marine (N/A, Fri, 15 Nov 2024 06:00:00 -0800)
 
 - **Procès du RN : cinq ans de prison dont deux ferme requis contre Marine Le 
