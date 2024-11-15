@@ -1,3 +1,11 @@
+### cape verde vs egypt (N/A, Fri, 15 Nov 2024 08:40:00 -0800)
+
+- **Preview: Cape Verde vs. Egypt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cape-verde/africa-cup-of-nations/preview/preview-cape-verde-vs-egypt-prediction-team-news-lineups_558025.html)
+- **How to watch today's Cape Verde vs Egypt AFCON qualification game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-cape-verde-vs-egypt-afcon-qualification-game-live-stream-tv-channe-start-time/bltdb1dd94593b7ec11)
+- **Blue Sharks out to tear Pharaohs apart to boost hopes**: [Link](https://supersport.com/football/general/news/8acd03d3-ad0e-4893-9f11-9fa1895135e2/blue-sharks-out-to-tear-pharaohs-apart-to-boost-hopes)
+
+
 ### الرأس الأخضر ضد مصر (N/A, Fri, 15 Nov 2024 08:00:00 -0800)
 
 - **القنوات الناقلة لمباراة منتخب مصر والمعلق**: [Link](https://www.almasryalyoum.com/news/details/3307054)
