@@ -1,3 +1,11 @@
+### coupe d'afrique 2025 (N/A, Fri, 15 Nov 2024 12:30:00 -0800)
+
+- **CAN 2025 : Le Gabon, l'Ouganda et l'Afrique du Sud assurent leur 
+qualification**: [Link](https://fr.hespress.com/396320-can-2025-le-gabon-louganda-et-lafrique-du-sud-assurent-leur-qualification.html)
+- **CAN CAF TotalEnergies 2025 : 15 pays prêts pour l'embarquement**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-caf-totalenergies/infos/can-caf-totalenergies-2025-15-pays-prets-pour-lembarquement/)
+- **Qualifs CAN 2025 : le Mali, la Zambie et le Zimbabwe qualifiés**: [Link](https://www.footmercato.net/a7718381513719338240-qualifs-can-2025-le-mali-la-zambie-et-le-zimbabwe-qualifies)
+
+
 ### écosse – croatie (N/A, Fri, 15 Nov 2024 12:20:00 -0800)
 
 - **DIRECT. Écosse-Croatie (Ligue des nations A 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/ecosse-croatie-live/632580)
