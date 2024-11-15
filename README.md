@@ -1,3 +1,49 @@
+### call of duty (N/A, Fri, 15 Nov 2024 12:00:00 -0800)
+
+- **Warzone & Black Ops 6 Nov 15 update patch notes: Double XP tokens removed 
+and custom loadout increase**: [Link](https://www.dexerto.com/call-of-duty/warzone-black-ops-6-nov-15-update-patch-notes-custom-loadout-increase-xp-tokens-removed-2981530/)
+- **Your Modern Warfare 3 Double XP Tokens Are Now In Call Of Duty: Black Ops 6**: [Link](https://www.gamespot.com/articles/your-modern-warfare-3-double-xp-tokens-are-now-in-call-of-duty-black-ops-6/1100-6527774/)
+- **Call of Duty: Black Ops 6 and Call of Duty: Warzone Battle Pass and 
+BlackCell**: [Link](https://support.activision.com/black-ops-6/articles/black-ops-6-battle-pass)
+
+
+### portugal (N/A, Fri, 15 Nov 2024 12:00:00 -0800)
+
+- **Portugal-Polónia: uma oportunidade para cada lado**: [Link](https://www.abola.pt/futebol/jogo/portugal-polonia-2891184/portugal-polonia-siga-aqui-o-encontro)
+- **18h30m Edição João Gomes Dias**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/18h30m-edicao-joao-gomes-dias_a1_1615156)
+- **Joga na Polónia e diz: "Penso que será um jogo tranquilo para Portugal"**: [Link](https://www.ojogo.pt/7998599450/joga-na-polonia-e-diz-penso-que-sera-um-jogo-tranquilo-para-portugal/)
+
+
+### angola – ghana (N/A, Fri, 15 Nov 2024 12:00:00 -0800)
+
+- **Ghana's AFCON 2025 Hopes Hang in Balance, Says Michail Antonio**: [Link](https://www.footboom1.com/en/news/football/2062147-ghana-s-afcon-2025-hopes-hang-in-balance-says-michail-antonio)
+- **Angola vs Ghana LIVE Score Updates, Stream Info and How to Watch Africa Cup 
+of Nations Qualifiers**: [Link](https://www.vavel.com/en-us/soccer/2024/11/15/1204323-angola-vs-ghana-live-score-updates-stream-info-and-how-to-watch-africa-cup-of-nations-qualifiers.html)
+- **Black Sable Antelopes aim to break Ghana’s qualification hopes**: [Link](https://supersport.com/football/general/news/98c0c066-0008-42bd-b31c-1b3dec45face/black-sable-antelopes-aim-to-break-ghana-s-qualification-hopes)
+
+
+### كرة (N/A, Fri, 15 Nov 2024 11:50:00 -0800)
+
+- **اعتقال شخصين في مباراة فرنسا وإسرائيل**: [Link](https://www.hespress.com/%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D8%B4%D8%AE%D8%B5%D9%8A%D9%86-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-1465154.html)
+- **نائب فرنسي يتهم المشجعين الإسرائيليين ودعوة بأمستردام لمحاكمتهم**: [Link](https://www.aljazeera.net/news/2024/11/15/%D8%A7%D8%AA%D9%87%D8%A7%D9%85-%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%84%D9%84%D9%85%D8%B4%D8%AC%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D9%8A%D9%86)
+- **4 ألاف شرطي فرنسي وطائرات هليكوبتر لتأمين فريق "مكابي تل أبيب"**: [Link](https://ar.hibapress.com/details-573517.html)
+
+
+### match maroc 2024 (N/A, Fri, 15 Nov 2024 11:50:00 -0800)
+
+- **Tournoi UNAF U20 : Mouad Dahak Homme du match (Maroc-Egypte)**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%85%D8%B9%D8%A7%D8%AF-%D8%A7%D9%84%D8%B6%D8%AD%D8%A7%D9%83-%D8%A3%D8%AD%D8%B3%D9%86-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7/)
+- **EN U17 : L'incroyable mauvaise série de Lahoussine**: [Link](https://www.dzfoot.com/equipes-nationales/en-u17-lincroyable-mauvaise-serie-de-lahoussine-269424.html)
+- **Mohamed Ouahbi : « Un match difficile, mais une première victoire 
+essentielle »**: [Link](https://www.mountakhab.net/mohamed-ouahbi-un-match-difficile-mais-une-premiere-victoire-essentielle/)
+
+
+### الدنمارك ضد إسبانيا (N/A, Fri, 15 Nov 2024 11:40:00 -0800)
+
+- **دي لا فوينتي: سنواجه الدنمارك بخطتين**: [Link](https://m.kooora.com/?n=1368246&o=n)
+- **موعد مباراة إسبانيا والدنمارك والقنوات الناقلة في دوري الأمم الأوروبية**: [Link](https://www.almasryalyoum.com/news/details/3306949)
+- **تشكيلة إسبانيا الرسمية ضد الدنمارك**: [Link](https://hihi2.com/2024/11/15/p2936866.html)
+
+
 ### portugal vs poland (N/A, Fri, 15 Nov 2024 11:40:00 -0800)
 
 - **England vs. Greece: How to watch the UEFA Nations League match today**: [Link](https://sports.yahoo.com/england-vs-greece-how-to-watch-the-uefa-nations-league-match-today-182305594.html)
