@@ -1,3 +1,29 @@
+### sexualité (N/A, Fri, 15 Nov 2024 04:40:00 -0800)
+
+- **Masturbation féminine : « En parler, c’est aussi contribuer au fait 
+qu’aucune de nous n’ait honte »**: [Link](https://www.lemonde.fr/intimites/article/2024/11/14/l-essor-de-la-masturbation-feminine-en-parler-c-est-aussi-contribuer-au-fait-qu-aucune-de-nous-n-ait-honte_6392940_6190330.html)
+- **Les Français et le sexe : moins de relations, plaisir, nouvelles 
+pratiques... Que dit la dernière enquête scientifique**: [Link](https://www.sudouest.fr/sante/les-francais-et-le-sexe-moins-de-relations-plaisir-nouvelles-pratiques-que-dit-la-derniere-enquete-scientifique-22137500.php)
+- **Premiers résultats de la grande enquête nationale « Contexte des sexualités 
+en France 2023**: [Link](https://presse.inserm.fr/premiers-resultats-de-la-grande-enquete-nationale-contexte-des-sexualites-en-france-2023/69505/)
+
+
+### maroc gabon (N/A, Fri, 15 Nov 2024 04:40:00 -0800)
+
+- **Eliminatoires CAN Maroc-2025 : départ des Lions de l’Atlas pour Franceville**: [Link](https://frmf.ma/fr/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%AA%D8%AA%D9%88%D8%AC%D9%87-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86/)
+- **Walid Regragui : Le match face au Gabon, un véritable défi avant la CAN 2025**: [Link](https://fr.hespress.com/396382-walid-regragui-le-match-face-au-gabon-un-veritable-defi-avant-la-can-2025.html)
+- **Gabon-Maroc: la compo probable des Lions de l’Atlas, avec Bounou, Diaz et 
+Mazraoui**: [Link](https://sport.le360.ma/football/can/gabon-maroc-la-compo-probable-des-lions-de-latlas-avec-bounou-diaz-et-mazraoui_F2RG73DAEJAJ7DLHXOLC7JJJQQ/)
+
+
+### spotify (N/A, Thu, 14 Nov 2024 15:00:00 -0800)
+
+- **Spotify Stock Soars As Analysts Crank Up Volume Of Bullish Ratings**: [Link](https://www.investors.com/news/technology/spotify-stock-soars-record-high-q3-report/)
+- **Spotify Reports Third Quarter 2024 Earnings**: [Link](https://newsroom.spotify.com/2024-11-12/spotify-reports-third-quarter-2024-earnings/)
+- **Spotify Hits 252M Premium Subscribers, On Track For First Full Year of 
+Profitability**: [Link](https://www.hollywoodreporter.com/business/business-news/spotify-earnings-profitability-subscribers-1236060081/)
+
+
 ### gladiator ii (N/A, Fri, 15 Nov 2024 02:50:00 -0800)
 
 - **Gladiator II First Reviews: The Grand Spectacle of Action and Intrigue 
