@@ -1,3 +1,11 @@
+### argentina (N/A, Thu, 14 Nov 2024 17:40:00 -0800)
+
+- **Sin retenciones: el nuevo escenario que vive la lechería**: [Link](https://www.lanacion.com.ar/economia/campo/sin-retenciones-el-nuevo-escenario-que-vive-la-lecheria-nid14112024/)
+- **En plena primavera, la lechería vive un "veranito" que tiene incentivos 
+para extenderse a 2025**: [Link](https://www.infocampo.com.ar/en-plena-primavera-la-lecheria-vive-un-veranito-que-tiene-incentivos-para-extenderse-a-2025/)
+- **Los tamberos aseguran que 2024 trajo gran alivio a la cadena láctea**: [Link](https://laopinionpergamino.com.ar/nota/20421/2024/11/los-tamberos-aseguran-que-2024-trajo-gran-alivio-a-la-cadena-lactea)
+
+
 ### brazil foot (N/A, Thu, 14 Nov 2024 14:50:00 -0800)
 
 - **Le problème Vinicius Junior inquiète le Brésil**: [Link](https://www.footmercato.net/a6002568058723592291-le-probleme-vinicius-junior-inquiete-le-bresil)
