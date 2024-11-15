@@ -1,3 +1,31 @@
+### portugal vs poland (N/A, Fri, 15 Nov 2024 11:40:00 -0800)
+
+- **England vs. Greece: How to watch the UEFA Nations League match today**: [Link](https://sports.yahoo.com/england-vs-greece-how-to-watch-the-uefa-nations-league-match-today-182305594.html)
+- **Preview: Portugal vs. Poland - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/portugal/uefa-nations-league/preview/preview-portugal-vs-poland-prediction-team-news-lineups_558037.html)
+- **UEFA Nations League: Portugal vs Poland live match timings and streaming**: [Link](https://www.business-standard.com/sports/football-news/uefa-nations-league-portugal-vs-poland-live-match-timings-and-streaming-124111501003_1.html)
+
+
+### البرتغال ضد بولندا (N/A, Fri, 15 Nov 2024 11:40:00 -0800)
+
+- **رونالدو على رأس هجوم البرتغال أمام بولندا**: [Link](https://www.kooora.com/?n=1368393&o=n)
+- **رونالدو يقود تشكيلة البرتغال الرسمية ضد بولندا**: [Link](https://hihi2.com/2024/11/15/p2936881.html)
+- **دوري الأمم: إسبانيا تواجه الدنمارك وقمة بين البرتغال وبولندا**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%AF%D9%86%D9%85%D8%A7%D8%B1%D9%83-%D9%88%D9%82%D9%85%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D8%A8%D9%88%D9%84%D9%86%D8%AF%D8%A7)
+
+
+### قميص المنتخب المغربي (N/A, Fri, 15 Nov 2024 11:40:00 -0800)
+
+- **بالصور: بهذه الأقمصة سيقوم الفريق الوطني بعملية الإحماء**: [Link](https://www.almountakhab.com/node/16206552)
+- **المنتخب المغربي بقميص جديد وباللون الأبيض ضد الغابون**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/450448.html)
+- **الصفحة الرسمية للمنتخب الوطني تعلن عن افتتاح المتجر الإلكتروني يومه الجمعة**: [Link](https://2m.ma/news/%D8%A7%D9%84%D8%B5%D9%81%D8%AD%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D9%85%D8%AA%D8%AC%D8%B1-%D8%A7%D9%84%D8%A5%D9%84%D9%83%D8%AA%D8%B1%D9%88%D9%86%D9%8A-%D9%8A%D9%88%D9%85%D9%87-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9--20241115)
+
+
+### franceville (N/A, Fri, 15 Nov 2024 11:40:00 -0800)
+
+- **Le Conseil municipal des jeunes de Merville-Franceville a été renouvelé**: [Link](https://www.ouest-france.fr/normandie/merville-franceville-plage-14810/le-conseil-municipal-des-jeunes-de-merville-franceville-a-ete-renouvele-54016bd0-a2bc-11ef-bcd3-5c538e177ee8)
+- **Le Conseil municipal des jeunes de Merville-Franceville a été renouvelé**: [Link](https://caen.maville.com/actu/actudet_-le-conseil-municipal-des-jeunes-de-merville-franceville-a-ete-renouvele-_fil-6553179_actu.Htm)
+- **Gabon-Maroc: à quelle heure et sur quelles chaînes?**: [Link](https://sport.le360.ma/football/can/gabon-maroc-a-quelle-heure-et-sur-quelles-chaines_NJDDG35DJZAY7CHHXRUZ545E54/)
+
+
 ### k (N/A, Fri, 15 Nov 2024 11:30:00 -0800)
 
 - **Driver, K-9 officer killed during chase, shootout in Fulton County, police 
