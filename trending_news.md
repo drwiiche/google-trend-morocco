@@ -1,3 +1,10 @@
+### omar el hilali (N/A, Thu, 14 Nov 2024 23:10:00 -0800)
+
+- **Manchester City drague Omar El Hilali, Aston Villa également sur le coup**: [Link](https://fr.hespress.com/396365-manchester-city-drague-omar-el-hilali-aston-villa-egalement-sur-le-coup.html)
+- **Qui est le Marocain Omar El Hilali, qui rend fou Guardiola ?**: [Link](https://fennecfootball.com/qui-est-le-marocain-omar-el-hilali-qui-rend-fou-guardiola/)
+- **Mercato: Omar El Hilali dans le viseur de Manchester City**: [Link](https://sport.le360.ma/football/mercato-omar-el-hilali-dans-le-viseur-de-manchester-city_447M6P5W3RGCPNGS5CTSWPJOQU/)
+
+
 ### argentina (N/A, Thu, 14 Nov 2024 17:40:00 -0800)
 
 - **Sin retenciones: el nuevo escenario que vive la lechería**: [Link](https://www.lanacion.com.ar/economia/campo/sin-retenciones-el-nuevo-escenario-que-vive-la-lecheria-nid14112024/)
