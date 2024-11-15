@@ -1,3 +1,17 @@
+### kooora (N/A, Fri, 15 Nov 2024 10:40:00 -0800)
+
+- **كروس يفتح باب العودة إلى ريال مدريد**: [Link](https://www.kooora.com/?n=1368363)
+- **كروس يلمح إلى إمكانية العودة لريال مدريد في المستقبل**: [Link](https://hihi2.com/2024/11/15/p2936686.html)
+- **هل يعود توني كروس إلى ريال مدريد؟.. رغم اعتزاله**: [Link](https://www.cornersport.org/2614)
+
+
+### koora (N/A, Fri, 15 Nov 2024 10:40:00 -0800)
+
+- **وسط إنجلترا المتألق يستعد لإظهار ما افتقده منتخب "الأسود الثلاثة"**: [Link](https://www.independentarabia.com/node/611878/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%88%D8%B3%D8%B7-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%84%D9%82-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A5%D8%B8%D9%87%D8%A7%D8%B1-%D9%85%D8%A7-%D8%A7%D9%81%D8%AA%D9%82%D8%AF%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A9)
+- **سلوت كشف السر.. "جيزيل" غيرت لاعب ليفربول للأفضل**: [Link](https://www.egypttelegraph.com/article/90126/%D8%B3%D9%84%D9%88%D8%AA-%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B3%D8%B1-%D8%AC%D9%8A%D8%B2%D9%8A%D9%84-%D8%BA%D9%8A%D8%B1%D8%AA-%D9%84%D8%A7%D8%B9%D8%A8-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84)
+- **جيرارد: عاقبوا كل من تأخر في استدعاء لاعب ليفربول**: [Link](https://m.kooora.com/?n=1368305&o=n26972)
+
+
 ### frmf (N/A, Fri, 15 Nov 2024 10:30:00 -0800)
 
 - **La FRMF et PUMA révèlent les nouveaux maillots des équipes nationales 
