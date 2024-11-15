@@ -1,3 +1,10 @@
+### italie foot (N/A, Thu, 14 Nov 2024 12:40:00 -0800)
+
+- **Diffusion Italie/France Espoirs – Heure et chaîne pour voir le match**: [Link](https://www.parisfans.fr/autour-du-psg/diffusion-italie-france-espoirs-heure-et-chaine-pour-voir-le-match-803421.html)
+- **Retour en vidéo sur la victoire de l’équipe de France U20 face à l’Italie**: [Link](https://rugby-scapulaire.com/breves/167467-retour-en-video-sur-la-victoire-de-lequipe-de-france-u20-face-a-litalie)
+- **France moins 20 ans : La marche italienne**: [Link](https://www.ffr.fr/actualites/france-moins-20-ans/france-moins-20-ans-la-marche-italienne)
+
+
 ### omar el hilali (N/A, Thu, 14 Nov 2024 23:10:00 -0800)
 
 - **Manchester City drague Omar El Hilali, Aston Villa également sur le coup**: [Link](https://fr.hespress.com/396365-manchester-city-drague-omar-el-hilali-aston-villa-egalement-sur-le-coup.html)
