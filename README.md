@@ -1,3 +1,19 @@
+### spain vs (N/A, Fri, 15 Nov 2024 13:10:00 -0800)
+
+- **Denmark vs. Spain lineups, confirmed starting 11, team news and injuries: 
+No Lamine Yamal for Euro 2024 winners**: [Link](https://www.sportingnews.com/us/soccer/news/denmark-vs-spain-starting-11-team-news-and-injuries/ad544f42c47261c22877ed8f)
+- **Denmark - Spain live: UEFA Nations League - Football**: [Link](https://www.eurosport.com/football/uefa-nations-league/2024-2025/live-denmark-spain_mtc1561300/live-commentary.shtml)
+- **Denmark-Spain LIVE STREAM (11/15/24): Where to watch UEFA Nations League, 
+Christian Eriksen today**: [Link](https://www.syracuse.com/tv/2024/11/denmark-spain-live-stream-111524-where-to-watch-uefa-nations-league-christian-eriksen-today.html)
+
+
+### caf (N/A, Fri, 15 Nov 2024 13:10:00 -0800)
+
+- **CBE ready to make CAF Women’s Champions League debut on Sunday**: [Link](https://cecafaonline.com/cbe-ready-to-make-womens-champions-league-debut-against-edo-queens/)
+- **CAF WCL: Edo Queens storm Morocco for financial windfall**: [Link](https://www.tv360nigeria.com/caf-wcl-edo-queens-storm-morocco-for-financial-windfall/)
+- **CAF Champions League: Gov Okpebholo rallies support for Edo Queens**: [Link](https://newsdiaryonline.com/caf-champions-league-gov-okpebholo-rallies-support-for-edo-queens/)
+
+
 ### أوباميانج (N/A, Fri, 15 Nov 2024 12:50:00 -0800)
 
 - **أوباميانج: أفضل برشلونة على آرسنال.. لم أرغب في إيذاء أرتيتا**: [Link](https://www.kooora.com/?n=1367968)
