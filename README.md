@@ -1,3 +1,17 @@
+### fenerbahçe – zenit (N/A, Fri, 15 Nov 2024 09:00:00 -0800)
+
+
+
+
+### éliminatoires de la can (N/A, Fri, 15 Nov 2024 08:20:00 -0800)
+
+- **CAN 2025 (Q) : la Mauritanie reste en vie**: [Link](https://www.afrik-foot.com/can-2025-q-la-mauritanie-reste-en-vie)
+- **Qualifs CAN 2025 : Le but stratosphérique d’Aboubakary Koïta avec la 
+Mauritanie**: [Link](https://www.sport.fr/football/qualifs-can-2025-le-but-stratospherique-daboubakary-koita-avec-la-mauritanie-1241731.shtm)
+- **Qualifications de la CAN 2025 : Les Mourabitounes arrivent au Botswana pour 
+un match crucial**: [Link](https://www.footboom1.com/fr/news/football/2060973-afcon-2025-qualifiers-mourabitounes-arrive-in-botswana-for-crucial-match)
+
+
 ### cape verde vs egypt (N/A, Fri, 15 Nov 2024 08:40:00 -0800)
 
 - **Preview: Cape Verde vs. Egypt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cape-verde/africa-cup-of-nations/preview/preview-cape-verde-vs-egypt-prediction-team-news-lineups_558025.html)
