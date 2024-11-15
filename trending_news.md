@@ -1,3 +1,10 @@
+### جينيفر لوبيز (N/A, Fri, 15 Nov 2024 14:50:00 -0800)
+
+- **نساء آل صعب... أناقة ساحرة وجمال آسر**: [Link](https://www.lahamag.com/article/217352-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A2%D9%84-%D8%B5%D8%B9%D8%A8-%D8%A3%D9%86%D8%A7%D9%82%D8%A9-%D8%B3%D8%A7%D8%AD%D8%B1%D8%A9-%D9%88%D8%AC%D9%85%D8%A7%D9%84-%D9%8A%D8%A3%D8%B3%D8%B1-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9)
+- **إيلي صعب في عرض خيالي في الرياض**: [Link](https://www.bbc.com/arabic/articles/ce3ykl9dx2lo)
+- **نانسي عجرم تنشر صورة مع سيلين ديون وجينفر لوبيز وتعلق: "لحظة خالدة"**: [Link](https://www.masrawy.com/arts/zoom/details/2024/11/15/2675223/%D9%86%D8%A7%D9%86%D8%B3%D9%8A-%D8%B9%D8%AC%D8%B1%D9%85-%D8%AA%D9%86%D8%B4%D8%B1-%D8%B5%D9%88%D8%B1%D8%A9-%D9%85%D8%B9-%D8%B3%D9%8A%D9%84%D9%8A%D9%86-%D8%AF%D9%8A%D9%88%D9%86-%D9%88%D8%AC%D9%8A%D9%86%D9%81%D8%B1-%D9%84%D9%88%D8%A8%D9%8A%D8%B2-%D9%88%D8%AA%D8%B9%D9%84%D9%82-%D9%84%D8%AD%D8%B8%D8%A9-%D8%AE%D8%A7%D9%84%D8%AF%D8%A9-)
+
+
 ### troy (N/A, Fri, 15 Nov 2024 14:10:00 -0800)
 
 - **Troy Aikman airs out on Cowboys ahead of 'Monday Night Football' matchup**: [Link](https://www.usatoday.com/story/sports/nfl/cowboys/2024/11/15/troy-aikman-att-stadium-sunlight-mike-mccarthy/76337021007/)
