@@ -1,3 +1,12 @@
+### gladiator ii (N/A, Fri, 15 Nov 2024 02:50:00 -0800)
+
+- **Gladiator II First Reviews: The Grand Spectacle of Action and Intrigue 
+You’re Hoping For**: [Link](https://editorial.rottentomatoes.com/article/gladiator-ii-first-reviews-the-grand-spectacle-of-action-and-intrigue-youre-hoping-for/)
+- **Fred Hechinger on working with Ridley Scott for 'Gladiator II': It's beyond 
+dream come true**: [Link](https://www.hindustantimes.com/entertainment/hollywood/fred-hechinger-on-working-with-ridley-scott-for-gladiator-ii-it-s-beyond-dream-come-true-101731666860079.html)
+- **Gladiator II review – Paul Mescal slays in Ridley Scott’s gobsmacking reboot**: [Link](https://www.theguardian.com/film/2024/nov/11/gladiator-2-review-paul-mescal-ridley-scott)
+
+
 ### italie foot (N/A, Thu, 14 Nov 2024 12:40:00 -0800)
 
 - **Diffusion Italie/France Espoirs – Heure et chaîne pour voir le match**: [Link](https://www.parisfans.fr/autour-du-psg/diffusion-italie-france-espoirs-heure-et-chaine-pour-voir-le-match-803421.html)
