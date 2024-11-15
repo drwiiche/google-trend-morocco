@@ -1,3 +1,20 @@
+### ouganda – afrique du sud (N/A, Fri, 15 Nov 2024 05:10:00 -0800)
+
+- **CAN 2025 (Q): Afrique du Sud : Mihlali Mayambela blessé et remplacé chez 
+les Bafana Bafana.**: [Link](https://togofoot.tg/can-2025-q-afrique-du-sud-mihlali-mayambela-blesse-et-remplace-chez-les-bafana-bafana/)
+- **Elim CAN 2025 : Où suivre le match Ouganda – Afrique du Sud?**: [Link](https://www.africatopsports.com/2024/11/15/elim-can-2025-ou-suivre-le-match-ouganda-afrique-du-sud/)
+- **OPINION : L'avenir du football sud-africain repose sur les talents locaux, 
+pas sur les imports**: [Link](https://www.footboom1.com/fr/news/football/2042242-opinion-south-africa-s-football-future-lies-in-homegrown-talent-not-imports)
+
+
+### مباراة المغرب اليوم (N/A, Fri, 15 Nov 2024 05:10:00 -0800)
+
+- **تاريخ المباريات بين المغرب والغابون .. تفوق طفيف لصالح "أسود الأطلس"**: [Link](https://www.hespress.com/%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86-%D8%AA-1464760.html)
+- **القنواة الناقلة لمباراة المنتخب المغربي أمام نظيره الغابوني**: [Link](https://www.akhbarona.com/sport/lionatlas/395741.html)
+- **الركراكي : سأحاول إقحام لاعبين جدد أمام الغابون ليتأقلموا في ظل الغيابات 
+للإصابات**: [Link](https://rue20.com/854637.html)
+
+
 ### sexualité (N/A, Fri, 15 Nov 2024 04:40:00 -0800)
 
 - **Masturbation féminine : « En parler, c’est aussi contribuer au fait 
