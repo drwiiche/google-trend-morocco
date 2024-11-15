@@ -1,3 +1,11 @@
+### troy (N/A, Fri, 15 Nov 2024 14:10:00 -0800)
+
+- **Troy Aikman airs out on Cowboys ahead of 'Monday Night Football' matchup**: [Link](https://www.usatoday.com/story/sports/nfl/cowboys/2024/11/15/troy-aikman-att-stadium-sunlight-mike-mccarthy/76337021007/)
+- **Jerry Jones' Cowboys blind to sun issues, but at least one NFL team has 
+figured out shade with new stadium**: [Link](https://www.cbssports.com/nfl/news/jerry-jones-cowboys-blind-to-sun-issues-but-at-least-one-nfl-team-has-figured-out-shade-with-new-stadium/)
+- **Travis Kelce: Sun glare at AT&T Stadium is 'f***ing ridiculous'**: [Link](https://www.fox4news.com/sports/travis-kelce-sun-att-stadium-ridiculous)
+
+
 ### ronaldo (N/A, Fri, 15 Nov 2024 13:30:00 -0800)
 
 - **Louis Saha Tips Real Madrid Legend Cristiano Ronaldo To Follow David 
