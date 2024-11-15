@@ -1,3 +1,11 @@
+### أوباميانج (N/A, Fri, 15 Nov 2024 12:50:00 -0800)
+
+- **أوباميانج: أفضل برشلونة على آرسنال.. لم أرغب في إيذاء أرتيتا**: [Link](https://www.kooora.com/?n=1367968)
+- **أوباميانغ يختار أفضل فترة في مسيرته الكروية**: [Link](https://hihi2.com/2024/11/13/p2934296.html)
+- **الفترة الأفضل في مسيرتي | نجم القادسية السعودي يتحدث عن فترته الاحترافية 
+الأفضل في اوروبا**: [Link](https://alsaudia-web.com/news2377285.html)
+
+
 ### portugal fc (N/A, Fri, 15 Nov 2024 12:40:00 -0800)
 
 - **FC Porto: Deniz Gul em tratamento**: [Link](https://www.abola.pt/futebol/noticias/fc-porto-deniz-gul-em-tratamento-2024111514013189222)
