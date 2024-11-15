@@ -1,3 +1,25 @@
+### écosse – croatie (N/A, Fri, 15 Nov 2024 12:20:00 -0800)
+
+- **DIRECT. Écosse-Croatie (Ligue des nations A 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/ecosse-croatie-live/632580)
+- **Pariez sur l'Ecosse pour mettre fin à sa mauvaise passe !**: [Link](https://www.goal.com/fr/parier-en-ligne/pariez-sur-l-ecosse-pour-mettre-fin-a-sa-mauvaise-passe/bltf21569e1d44fb6be)
+- **Écosse vs Croatie : Placez notre incroyable pari à 80/1 et sécurisez 50 £ 
+de paris gratuits !**: [Link](https://www.footboom1.com/fr/news/football/2061123-scotland-vs-croatia-place-our-incredible-80-1-bet-builder-and-secure-gbp50-in-free-bets)
+
+
+### hakimi (N/A, Fri, 15 Nov 2024 12:20:00 -0800)
+
+- **Mbappé necesita una gestión de Ancelotti**: [Link](https://www.marca.com/futbol/real-madrid/opinion/2024/11/15/mbappe-necesita-gestion-ancelotti.html)
+- **Dejen en paz a Mbappé**: [Link](https://www.lagalerna.com/dejen-en-paz-a-mbappe/)
+- **Ángel Antonio Herrera: Mbappé y la DANA**: [Link](https://www.abc.es/opinion/angel-antonio-herrera-mbappe-dana-20241114193735-nt.html)
+
+
+### espagne foot (N/A, Fri, 15 Nov 2024 12:10:00 -0800)
+
+- **Ligue des nations : l’Espagne, la vie sans Lamine Yamal**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-nations/ligue-des-nations-l-espagne-la-vie-sans-lamine-yamal-20241115)
+- **La Malédiction des Doués Gauchers de Barcelone**: [Link](https://www.footboom1.com/fr/news/football/2059430-the-curse-of-barcelona-s-talented-lefties)
+- **Barça : Hansi Flick veut être prudent avec Lamine Yamal**: [Link](https://www.footmercato.net/a5320358264239818862-barca-hansi-flick-veut-etre-prudent-avec-lamine-yamal)
+
+
 ### call of duty (N/A, Fri, 15 Nov 2024 12:00:00 -0800)
 
 - **Warzone & Black Ops 6 Nov 15 update patch notes: Double XP tokens removed 
