@@ -1,3 +1,24 @@
+### yassine bounou (N/A, Fri, 15 Nov 2024 13:20:00 -0800)
+
+
+
+
+### nations league (N/A, Fri, 15 Nov 2024 13:20:00 -0800)
+
+- **Tonali shoots Italy past Belgium and into Nations League quarter-finals**: [Link](https://www.beinsports.com/en-mena/football/uefa-nations-league/articles-video/tonali-shoots-italy-past-belgium-and-into-nations-league-quarter-finals-2024-11-14)
+- **England vs. Greece: How to watch the UEFA Nations League match today**: [Link](https://sports.yahoo.com/england-vs-greece-how-to-watch-the-uefa-nations-league-match-today-182305594.html)
+- **Italy and France reach Nations League quarter-finals**: [Link](https://www.bbc.com/sport/football/live/c1e73876e6xt)
+
+
+### saibari (N/A, Fri, 15 Nov 2024 12:50:00 -0800)
+
+- **Ismael Saibari maakt schitterende eerste interlandgoal bij ruime 
+overwinning Marokko**: [Link](https://www.voetbalzone.nl/nieuws/ismael-saibari-maakt-schitterende-eerste-interlandgoal-bij-ruime-overwinning-marokko/bltc7eb4cb01025e506)
+- **Hakim Ziyech: bedankt!**: [Link](https://www.bladna.nl/hakim-ziyech-bedankt,59102.html)
+- **Ismael Saibari maakt schitterende eerste interlandgoal bij ruime 
+overwinning Marokko**: [Link](https://www.voetbalzone.nl/nieuws/ismael-saibari-maakt-schitterende-eerste-interlandgoal-bij-ruime-overwinning-marokko/bltc7eb4cb01025e506)
+
+
 ### spain vs (N/A, Fri, 15 Nov 2024 13:10:00 -0800)
 
 - **Denmark vs. Spain lineups, confirmed starting 11, team news and injuries: 
