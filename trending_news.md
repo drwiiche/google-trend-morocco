@@ -1,3 +1,10 @@
+### طقس طنجة (N/A, Fri, 15 Nov 2024 22:00:00 -0800)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-7-1464845.html)
+- **يوعابد يكشف مدى تأثير منخفص جوي قوي جنوب إسبانيا على المغرب**: [Link](https://ar.le360.ma/societe/D37KCRFRSZBN7LEEOWQR6ADBSI/)
+- **مقاييس التساقطات المطرية بالمغرب خلال 24 ساعة الأخيرة**: [Link](https://www.analkhabar.com/%D9%85%D9%82%D8%A7%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-4/)
+
+
 ### ufc (N/A, Fri, 15 Nov 2024 20:30:00 -0800)
 
 - **UFC 309 Jones vs Miocic: Jon Jones shakes Stipe Miocic's hand at weigh-in 
