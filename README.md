@@ -1,3 +1,11 @@
+### pays-bas – hongrie (N/A, Sat, 16 Nov 2024 11:00:00 -0800)
+
+- **Pronostic Pays-Bas - Hongrie, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/pays-bas-hongrie-228024/)
+- **Pays-Bas – Hongrie : chaîne TV, heure et compos probables du match**: [Link](https://www.topmercato.com/1873235-pays-bas-hongrie-chaine-tv-heure-et-compos-probables-du-match/)
+- **Le Statut des Attaquants qui a Empêché les Pays-Bas de Convoquer Memphis 
+Depay et Ce qu'il Faut Regarder sur Disney+**: [Link](https://www.footboom1.com/fr/news/basketball/2068879-the-status-of-forwards-that-led-the-netherlands-not-to-call-up-memphis-depay-and-what-to-watch-on-disney)
+
+
 ### guinée – rd congo (N/A, Sat, 16 Nov 2024 10:50:00 -0800)
 
 - **CAN 2025 : la renaissance de la République démocratique du Congo**: [Link](https://www.footmercato.net/a3206780384471710346-can-2025-la-renaissance-de-la-republique-democratique-du-congo)
