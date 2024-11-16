@@ -1,3 +1,12 @@
+### nora achahbar (N/A, Sat, 16 Nov 2024 06:00:00 -0800)
+
+- **How a toxic mix of antisemitism, racism and xenophobia culminated in 
+Amsterdam violence**: [Link](https://www.cnn.com/2024/11/15/europe/amsterdam-violence-antisemitism-racism-xenophobia-intl/index.html)
+- **Dutch gov’t avoids collapse over handling of antisemitic attacks on Israeli 
+soccer fans**: [Link](https://www.timesofisrael.com/dutch-government-teeters-over-handling-of-antisemitic-attacks-on-israeli-soccer-fans/)
+- **Opinion | Amsterdam Is About Jew Hatred — and Gaza**: [Link](https://www.nytimes.com/2024/11/13/opinion/friedman-gaza-amsterdam-antisemitism.html)
+
+
 ### القليعة (N/A, Sat, 16 Nov 2024 07:20:00 -0800)
 
 - **مواجهات تستنفر الأمنيين في القليعة**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AA%D8%B3%D8%AA%D9%86%D9%81%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%86%D9%8A%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D9%84%D9%8A%D8%B9%D8%A9-1465869.html)
