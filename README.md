@@ -1,3 +1,20 @@
+### euphoria (N/A, Sat, 16 Nov 2024 01:10:00 -0800)
+
+- **'Euphoria' Season 3 In Production This January With 8-Episode Season**: [Link](https://variety.com/2024/tv/news/euphoria-season-3-production-january-8-episodes-1236205253/)
+- **HBO responds to Euphoria cancellation rumors**: [Link](https://www.independent.co.uk/arts-entertainment/tv/news/euphoria-hbo-canceled-season-three-b2644074.html)
+- **Zendaya feels 'extra safe' working with Tom Holland**: [Link](https://www.inkl.com/news/zendaya-feels-extra-safe-working-with-tom-holland)
+
+
+### who won mike tyson or jake paul (N/A, Fri, 15 Nov 2024 19:40:00 -0800)
+
+- **'It's hard to make it exciting': Jake Paul reacts to beating Mike Tyson – 
+video**: [Link](https://www.theguardian.com/sport/video/2024/nov/16/its-hard-to-make-it-exciting-jake-paul-reacts-to-beating-mike-tyson-video)
+- **Mike Tyson vs. Jake Paul on Netflix: What price is the fight on 
+pay-per-view Friday night?**: [Link](https://www.cbssports.com/boxing/news/mike-tyson-vs-jake-paul-on-netflix-what-price-is-the-fight-on-pay-per-view-friday-night/)
+- **Mike Tyson vs Jake Paul: Here’s how many watched boxing match in Texas and 
+on Netflix—millions? Check numbers here**: [Link](https://www.livemint.com/sports/news/mike-tyson-v-jake-paul-boxing-match-70000-spectators-watch-live-att-stadium-netflix-stream-280mn-subscribers-sports-news-11731734945778.html)
+
+
 ### karoline leavitt (N/A, Sat, 16 Nov 2024 04:50:00 -0800)
 
 - **Trump Names Karoline Leavitt as His White House Press Secretary**: [Link](https://www.nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-press-secretary.html)
