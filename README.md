@@ -1,3 +1,10 @@
+### germany vs bosnia and herzegovina (N/A, Sat, 16 Nov 2024 12:10:00 -0800)
+
+- **Preview: Germany vs. Bosnia-Herzegovina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/germany/uefa-nations-league/preview/preview-germany-vs-bosnia-hvina-prediction-team-news-lineups_558077.html)
+- **Germany - Bosnia and Herzegovina live: UEFA Nations League - Football**: [Link](https://www.eurosport.com/football/uefa-nations-league/2024-2025/live-germany-bosnia-and-herzegovina_mtc1561288/live-commentary.shtml)
+- **How to watch Germany vs. Bosnia and Herzegovina: Live stream, TV channel**: [Link](https://ftw.usatoday.com/2024/11/how-to-watch-germany-vs-bosnia-and-herzegovina-live-stream-tv-channel)
+
+
 ### real madrid club de fútbol – fc barcelone (N/A, Sat, 16 Nov 2024 11:30:00 -0800)
 
 - **Real Madrid - Barcelona en directo**: [Link](https://www.marca.com/futbol/liga-f/r-madrid-barcelona/2024/11/16/01_0122_20241116_16928_9121-directo.html)
