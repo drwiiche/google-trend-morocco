@@ -1,3 +1,13 @@
+### georges ibrahim abdallah (N/A, Fri, 15 Nov 2024 22:20:00 -0800)
+
+- **La libération de Georges Ibrahim Abdallah suspendue par un appel du Parquet 
+national antiterroriste**: [Link](https://www.lemonde.fr/societe/article/2024/11/16/la-liberation-de-georges-ibrahim-abdallah-suspendue-par-un-appel-du-parquet-national-antiterroriste_6396162_3224.html)
+- **France: un tribunal ordonne la libération du militant pro-palestinien 
+Georges Ibrahim Abdallah après 40 ans de détention**: [Link](https://www.rfi.fr/fr/france/20241115-france-un-tribunal-ordonne-la-lib%C3%A9ration-de-georges-ibrahim-abdallah-apr%C3%A8s-40-ans-de-d%C3%A9tention)
+- **La justice française ordonne la libération du propalestinien Georges 
+Abdallah après 40 ans de prison**: [Link](https://www.france24.com/fr/info-en-continu/20241115-%F0%9F%94%B4-france-un-tribunal-ordonne-la-lib%C3%A9ration-du-militant-libanais-propalestinien-georges-abdallah-emprisonn%C3%A9-depuis-40-ans)
+
+
 ### suisse – serbie (N/A, Fri, 15 Nov 2024 13:40:00 -0800)
 
 - **Suisse-Serbie : streaming gratuit, chaîne TV et compos**: [Link](https://www.football365.fr/suisse-serbie-streaming-gratuit-chaine-tv-et-compos-10212519.html)
