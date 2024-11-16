@@ -1,3 +1,19 @@
+### guinée – rd congo (N/A, Sat, 16 Nov 2024 10:50:00 -0800)
+
+- **CAN 2025 : la renaissance de la République démocratique du Congo**: [Link](https://www.footmercato.net/a3206780384471710346-can-2025-la-renaissance-de-la-republique-democratique-du-congo)
+- **ASSE : inquiétude pour Dylan Batubinsika**: [Link](https://www.dailymercato.com/news/asse-inquietude-pour-dylan-batubinsika)
+- **Direct d’Abidjan : Saidou Sow dans le 11 de départ du Syli**: [Link](https://guineefoot.info/direct-dabidjan-saidou-sow-dans-le-11-de-depart-du-syli/)
+
+
+### allemagne – bosnie-herzégovine (N/A, Sat, 16 Nov 2024 10:50:00 -0800)
+
+- **Pronostic Allemagne - Bosnie-Herzégovine, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/allemagne-bosnie-herzegovine-228046/)
+- **Allemagne – Bosnie-Herzégovine : chaîne TV, heure et compos probables du 
+match**: [Link](https://www.topmercato.com/1873228-allemagne-bosnie-herzegovine-chaine-tv-heure-et-compos-probables-du-match/)
+- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier du 16 novembre – 
+Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-du-16-novembre-ligue-des-nations_AN-202411160307.html)
+
+
 ### éthiopie – tanzanie (N/A, Sat, 16 Nov 2024 08:50:00 -0800)
 
 - **Elim CAN 2025 : Éthiopie-Tanzanie, où et quand suivre le match ?**: [Link](https://www.africatopsports.com/2024/11/16/ethiopie-tanzanie-ou-et-quand-suivre-le-match/)
