@@ -1,3 +1,20 @@
+### jon jones (N/A, Fri, 15 Nov 2024 22:30:00 -0800)
+
+- **UFC 309 Jones vs Miocic: Jon Jones shakes Stipe Miocic's hand at weigh-in 
+after Thursday snub**: [Link](https://www.bbc.com/sport/mixed-martial-arts/articles/cx2lkmdxr25o)
+- **UFC fans only just realising why Tom Aspinall weighed in for UFC 309 
+despite not featuring on the card**: [Link](https://www.sportbible.com/mma/ufc/ufc-news/tom-aspinall-ufc-309-weighin-597329-20241115)
+- **Daniel Cormier Reveals Stipe Miocic’s Anger Post UFC 309 Jones Faceoff**: [Link](https://bvmsports.com/2024/11/15/daniel-cormier-reveals-stipe-miocics-anger-post-ufc-309-jones-faceoff/)
+
+
+### الطقس (N/A, Fri, 15 Nov 2024 22:20:00 -0800)
+
+- **طقس السبت: أجواء مطرية مرتقبة بعدة أقاليم**: [Link](https://ar.le360.ma/societe/2K5FBBJLVNB2XFL53VGSAAEZZU/)
+- **طقس يوم غد السبت.. يرتقب تساقط قطرات مطرية متفرقة بالسواحل الوسطى والأطلس 
+المتوسط**: [Link](https://chouftv.ma/press/728595.html)
+- **مناخ صعب في طقس المغرب السبت؟**: [Link](https://www.ariffino.net/nador-live/%D9%85%D9%86%D8%A7%D8%AE-%D8%B5%D8%B9%D8%A8-%D9%81%D9%8A-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA%D8%9F)
+
+
 ### logan paul (N/A, Fri, 15 Nov 2024 17:20:00 -0800)
 
 - **How much were Mike Tyson and Jake Paul paid for their fight, and what prize 
