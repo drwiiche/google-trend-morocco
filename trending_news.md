@@ -1,3 +1,10 @@
+### karoline leavitt (N/A, Sat, 16 Nov 2024 04:50:00 -0800)
+
+- **Trump Names Karoline Leavitt as His White House Press Secretary**: [Link](https://www.nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-press-secretary.html)
+- **Karoline Leavitt to become youngest White House press secretary**: [Link](https://www.bbc.com/news/articles/cvgep2lexy4o)
+- **Trump’s White House press secretary: 5 possible picks**: [Link](https://thehill.com/homenews/administration/4987055-trump-press-secretary-candidates/)
+
+
 ### star academy (N/A, Sat, 16 Nov 2024 04:50:00 -0800)
 
 - **Star Academy 2024 - Prime du 15 novembre 2024 - Partie 1**: [Link](https://www.tf1.fr/tf1/star-academy/videos/star-academy-2024-prime-du-15-novembre-2024-partie-1-21515946.html)
