@@ -1,3 +1,11 @@
+### ansu fati (N/A, Sat, 16 Nov 2024 09:40:00 -0800)
+
+- **Barcelona injured star wanted by Jose Mourinho’s Fenerbahce in January – 
+report**: [Link](https://barcauniversal.com/barcelona-injured-star-wanted-by-jose-mourinhos-fenerbahce-in-january-report/)
+- **Ansu Fati Chooses Destination Away from Barça, Call and Signing in Progress**: [Link](https://www.footboom1.com/en/news/football/2068771-ansu-fati-chooses-destination-away-from-barca-call-and-signing-in-progress)
+- **Hansi Flick has major doubts about Barcelona attacking starlet – report**: [Link](https://sports.yahoo.com/hansi-flick-major-doubts-barcelona-165100019.html)
+
+
 ### germany vs bosnia and herzegovina (N/A, Sat, 16 Nov 2024 12:10:00 -0800)
 
 - **Preview: Germany vs. Bosnia-Herzegovina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/germany/uefa-nations-league/preview/preview-germany-vs-bosnia-hvina-prediction-team-news-lineups_558077.html)
