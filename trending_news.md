@@ -1,3 +1,10 @@
+### القليعة (N/A, Sat, 16 Nov 2024 07:20:00 -0800)
+
+- **مواجهات تستنفر الأمنيين في القليعة**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AA%D8%B3%D8%AA%D9%86%D9%81%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%86%D9%8A%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D9%84%D9%8A%D8%B9%D8%A9-1465869.html)
+- **أحداث فوضى في القليعة تثير استنفارًا أمنيًا واسعًا**: [Link](https://www.akhbarona.com/society/395826.html)
+- **اشتوكة.. تدخل أمني لاحتواء فوضى وشغب المهاجرين الأفارقة بالقليعة**: [Link](https://ar.hibapress.com/details-573908.html)
+
+
 ### mauro icardi (N/A, Sat, 16 Nov 2024 06:50:00 -0800)
 
 - **Mauro Icardi’s heartbreak: Wanda Nara confirms new relationship**: [Link](https://en.nogomania.com/read/Mauro-Icardis-heartbreak-Wanda-Nara-confirms-new-relationship)
