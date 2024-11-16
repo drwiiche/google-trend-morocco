@@ -1,3 +1,13 @@
+### le pen marine (N/A, Sat, 16 Nov 2024 01:30:00 -0800)
+
+- **Marine Le Pen réactive son hostilité à l’égard de la justice : « C’est ma 
+mort politique qui est réclamée »**: [Link](https://www.lemonde.fr/politique/article/2024/11/16/marine-le-pen-reactive-son-hostilite-a-l-egard-de-la-justice-c-est-ma-mort-politique-qui-est-reclamee_6396228_823448.html)
+- **Procès des assistants parlementaires du FN : Marine Le Pen estime que le 
+parquet réclame sa «peine de mort politique»**: [Link](https://www.lefigaro.fr/politique/proces-des-assistants-parlementaires-du-fn-marine-le-pen-estime-que-le-parquet-a-requis-sa-peine-de-mort-politique-20241115)
+- **Bracelet électronique, 300.000 euros d'amende: ce que risque Marine Le Pen 
+en plus de la peine...**: [Link](https://www.bfmtv.com/politique/front-national/bracelet-electronique-300-000-euros-d-amende-ce-que-risque-marine-le-pen-en-plus-de-la-peine-d-ineligibilite_AN-202411140901.html)
+
+
 ### georges ibrahim abdallah (N/A, Fri, 15 Nov 2024 22:20:00 -0800)
 
 - **La libération de Georges Ibrahim Abdallah suspendue par un appel du Parquet 
