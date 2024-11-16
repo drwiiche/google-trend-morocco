@@ -1,3 +1,11 @@
+### uruguay – colombie (N/A, Fri, 15 Nov 2024 18:00:00 -0800)
+
+- **How to Watch Uruguay vs Colombia, Live Stream World Cup Qualifiers, Channel**: [Link](https://www.newsweek.com/sports/how-watch-uruguay-vs-colombia-live-stream-world-cup-qualifiers-tv-channel-1986753)
+- **FIFA 2026: Uruguay clinches 3-2 victory over Colombia in thrilling World 
+Cup Qualifier | Watch**: [Link](https://www.livemint.com/sports/football-news/fifa-2026-uruguay-clinches-3-2-victory-over-colombia-in-thrilling-world-cup-qualifier-watch-11731724040189.html)
+- **How to watch Uruguay vs. Colombia in World Cup Qualifiers online for free**: [Link](https://mashable.com/article/uruguay-colombia-world-cup-qualifiers-2024-live-stream-for-free)
+
+
 ### tyson vs paul heure (N/A, Fri, 15 Nov 2024 17:10:00 -0800)
 
 
