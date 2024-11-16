@@ -1,3 +1,10 @@
+### ألمانيا ضد البوسنة والهرسك (N/A, Sat, 16 Nov 2024 13:00:00 -0800)
+
+- **الحيرة تضرب ناجلسمان قبل مواجهة البوسنة**: [Link](https://www.kooora.com/?n=1368487&o=n)
+- **ألمانيا تتقدم بثلاثية على البوسنة والهرسك في الشوط الأول**: [Link](https://hihi2.com/2024/11/16/p2938353.html)
+- **شكوك حول مشاركة نجم ألمانيا في مباراة البوسنة**: [Link](https://arabic.sport360.com/article/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7/1301181/%D8%B4%D9%83%D9%88%D9%83-%D8%AD%D9%88%D9%84-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%86%D8%AC%D9%85-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7)
+
+
 ### ansu fati (N/A, Sat, 16 Nov 2024 09:40:00 -0800)
 
 - **Barcelona injured star wanted by Jose Mourinho’s Fenerbahce in January – 
