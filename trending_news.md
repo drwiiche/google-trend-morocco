@@ -1,3 +1,20 @@
+### ufc 309 (N/A, Sat, 16 Nov 2024 11:20:00 -0800)
+
+- **UFC 309 fight rankings: What is can't-miss beyond Jones-Miocic?**: [Link](https://www.espn.com/mma/story/_/id/42388257/ranking-fights-ufc-309-jon-jones-vs-stipe-miocic-leads-way)
+- **How to Watch UFC 309: Jones vs. Miocic Online**: [Link](https://www.rollingstone.com/product-recommendations/lifestyle/how-to-watch-ufc-309-jones-vs-miocic-livestream-fight-1235163835/)
+- **Daniel Cormier: Stipe Miocic 'was so mad and upset' backstage after UFC 309 
+faceoff with Jon Jones**: [Link](https://mmajunkie.usatoday.com/2024/11/ufc-309-daniel-cormier-stipe-moicic-so-mad-jon-jones-faceoff)
+
+
+### prix gasoil maroc (N/A, Sat, 16 Nov 2024 11:00:00 -0800)
+
+- **Carburants: nouvelle baisse des prix à la pompe à partir du samedi 16 
+novembre**: [Link](https://fr.le360.ma/economie/carburants-nouvelle-baisse-des-prix-a-la-pompe-a-partir-du-samedi-16-novembre_IC7IJR6WIBGH7GLSRBTFEXM2NY/)
+- **Prix des carburants au Maroc : Le litre d'essence enregistre une baisse de 
+30 centimes ce samedi**: [Link](https://fr.hespress.com/396611-prix-des-carburants-au-maroc-le-litre-dessence-enregistre-une-baisse-de-30-centimes-ce-samedi.html)
+- **Bonne nouvelle pour les automobilistes marocains**: [Link](https://www.bladi.net/bonne-automobilistes-marocains,111567.html)
+
+
 ### pays-bas – hongrie (N/A, Sat, 16 Nov 2024 11:00:00 -0800)
 
 - **Pronostic Pays-Bas - Hongrie, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/pays-bas-hongrie-228024/)
