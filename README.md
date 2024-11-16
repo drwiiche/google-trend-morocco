@@ -1,3 +1,19 @@
+### logan paul (N/A, Fri, 15 Nov 2024 17:20:00 -0800)
+
+- **How much were Mike Tyson and Jake Paul paid for their fight, and what prize 
+money will the winner earn?**: [Link](https://www.cbsnews.com/news/jake-paul-mike-tyson-fight-money-2024/)
+- **Tyson vs. Paul reactions: Fans sound off on depressing, frustrating night**: [Link](https://www.usatoday.com/story/sports/boxing/2024/11/16/mike-tyson-vs-jake-paul-fight-reactions/76325168007/)
+- **Which Paul Brother Is Richer: Logan or Jake?**: [Link](https://parade.com/celebrities/logan-paul-net-worth)
+
+
+### combat mike tyson (N/A, Fri, 15 Nov 2024 15:30:00 -0800)
+
+- **Mike Tyson vs. Jake Paul live updates, results and analysis**: [Link](https://www.espn.com/boxing/story/_/id/42352328/mike-tyson-vs-jake-paul-live-boxing-updates-results-analysis)
+- **Highlights: Jake Paul defeats Mike Tyson via unanimous decision in boxing 
+match**: [Link](https://www.nbcnews.com/sports/live-blog/mike-tyson-jake-paul-fight-boxing-winner-live-updates-rcna180242)
+- **Jake Paul eases to victory by decision over Mike Tyson**: [Link](https://abcnews.go.com/US/mike-tyson-jake-paul-fight-watch-former-champ/story?id=115895377)
+
+
 ### uruguay – colombie (N/A, Fri, 15 Nov 2024 18:00:00 -0800)
 
 - **How to Watch Uruguay vs Colombia, Live Stream World Cup Qualifiers, Channel**: [Link](https://www.newsweek.com/sports/how-watch-uruguay-vs-colombia-live-stream-world-cup-qualifiers-tv-channel-1986753)
