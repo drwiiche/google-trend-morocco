@@ -1,3 +1,12 @@
+### mauro icardi (N/A, Sat, 16 Nov 2024 06:50:00 -0800)
+
+- **Mauro Icardi’s heartbreak: Wanda Nara confirms new relationship**: [Link](https://en.nogomania.com/read/Mauro-Icardis-heartbreak-Wanda-Nara-confirms-new-relationship)
+- **Wanda Nara's Love Triangle Takes Centre Stage as L-Gante Sparks Outrage in 
+FenerbahÃ§e Kit**: [Link](https://www.footboom1.com/en/news/football/2062514-wanda-nara-s-love-triangle-takes-centre-stage-as-l-gante-sparks-outrage-in-fenerbaha-e-kit)
+- **L-Gante sparks controversy by wearing Fenerbahce jersey during live 
+broadcast**: [Link](https://www.turkiyetoday.com/lifestyle/l-gante-sparks-controversy-by-wearing-fenerbahce-jersey-during-live-broadcast-79494/)
+
+
 ### euphoria (N/A, Sat, 16 Nov 2024 01:10:00 -0800)
 
 - **'Euphoria' Season 3 In Production This January With 8-Episode Season**: [Link](https://variety.com/2024/tv/news/euphoria-season-3-production-january-8-episodes-1236205253/)
