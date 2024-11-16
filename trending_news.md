@@ -1,3 +1,11 @@
+### ufc (N/A, Fri, 15 Nov 2024 20:30:00 -0800)
+
+- **UFC 309 Jones vs Miocic: Jon Jones shakes Stipe Miocic's hand at weigh-in 
+after Thursday snub**: [Link](https://www.bbc.com/sport/mixed-martial-arts/articles/cx2lkmdxr25o)
+- **Charles Oliviera Vs. Micheal Chandler: How To Watch UFC 309 Live**: [Link](https://www.forbes.com/advisor/in/business/software/charles-oliviera-vs-micheal-chandler-how-to-watch-ufc-309-live/)
+- **UFC 309 Embedded | Episode 6**: [Link](https://www.ufc.com/video/143875)
+
+
 ### jon jones (N/A, Fri, 15 Nov 2024 22:30:00 -0800)
 
 - **UFC 309 Jones vs Miocic: Jon Jones shakes Stipe Miocic's hand at weigh-in 
