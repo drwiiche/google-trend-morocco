@@ -1,3 +1,18 @@
+### rafael nadal (N/A, Sat, 16 Nov 2024 13:10:00 -0800)
+
+- **Where to Watch the Davis Cup? Follow It Live on Movistar Plus+**: [Link](https://www.footboom1.com/en/news/tennis/2067771-where-to-watch-the-davis-cup-follow-it-live-on-movistar-plus)
+- **Rafael Nadal's training in Malaga can be followed live**: [Link](https://www.puntodebreak.com/en/2024/11/16/rafael-nadals-training-in-malaga-can-be-followed-live)
+- **Nadal 'couldn't ask for more' ahead of final career event**: [Link](https://www.sportsmax.tv/other-sports/column1/tennis-other-racket-sports/item/154689-nadal-couldn-t-ask-for-more-ahead-of-final-career-event)
+
+
+### uefa nations league (N/A, Sat, 16 Nov 2024 11:00:00 -0800)
+
+- **Highlights: Portugal 5-1 Poland**: [Link](https://www.uefa.com/uefanationsleague/video/highlights/0293-1c580dfa564b-28ec7594f673-1000--highlights-portugal-5-1-poland/)
+- **Portugal vs Poland LIVE Streaming info: When, where to watch Cristiano 
+Ronaldo in UEFA Nations League?**: [Link](https://sportstar.thehindu.com/football/portugal-vs-poland-live-streaming-info-when-where-to-watch-cristiano-ronaldo-uefa-nations-league/article68872104.ece)
+- **Video: Zielinski and Zalewski stop CR7 for photos after Portugal 5-1 Poland**: [Link](https://football-italia.net/video-ronaldo-stopped-by-serie-a-stars-pics/)
+
+
 ### ألمانيا ضد البوسنة والهرسك (N/A, Sat, 16 Nov 2024 13:00:00 -0800)
 
 - **الحيرة تضرب ناجلسمان قبل مواجهة البوسنة**: [Link](https://www.kooora.com/?n=1368487&o=n)
