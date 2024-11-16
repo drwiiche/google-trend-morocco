@@ -1,3 +1,41 @@
+### kick (N/A, Fri, 15 Nov 2024 17:20:00 -0800)
+
+- **England vs. Greece: How to watch the UEFA Nations League match today**: [Link](https://sports.yahoo.com/england-vs-greece-how-to-watch-the-uefa-nations-league-match-today-182305594.html)
+- **UEFA Nations League: What's at stake, 2026 World Cup qualifying impact**: [Link](https://www.espn.co.uk/football/story/_/id/42364120/uefa-nations-league-whats-stake-2026-world-cup-qualifying-impact)
+- **Cristiano Ronaldo double helps send Portugal into Nations League 
+quarter-finals**: [Link](https://www.bbc.com/sport/football/live/cjw09zy044gt)
+
+
+### mike tyson vs jake paul مباشر (N/A, Fri, 15 Nov 2024 17:10:00 -0800)
+
+- **Boxe : A 58 ans, Mike Tyson remonte sur le ring contre le YouTuber Jake Paul**: [Link](https://lematin.ma/sports/boxe-a-58-ans-mike-tyson-remonte-sur-le-ring/251376)
+- **توقيت نزال مايك تايسون وجيك بول والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/11/15/%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D9%86%D8%B2%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%83-%D8%AA%D8%A7%D9%8A%D8%B3%D9%88%D9%86-%D9%88%D8%AC%D9%8A%D9%83-%D8%A8%D9%88%D9%84)
+- **بعد 19 عامًا من اعتزاله.. المخاوف تحاصر عودة تايسون لحلبة الملاكمة**: [Link](https://www.kooora.com/?n=1368088)
+
+
+### twitch (N/A, Fri, 15 Nov 2024 16:50:00 -0800)
+
+- **New Twitch policy bans the word ‘Zionist’ amid antisemitism accusations**: [Link](https://www.dexerto.com/twitch/new-twitch-policy-bans-the-word-zionist-amid-antisemitism-accusations-2981532/)
+- **Twitch forbids the use of 'Zionist' to 'attack or demean,' but says you can 
+still use it to talk about the political movement**: [Link](https://www.pcgamer.com/software/platforms/twitch-forbids-the-use-of-zionist-to-attack-or-demean-but-says-you-can-still-use-it-to-talk-about-the-political-movement/)
+- **Twitch lays out new hate speech policy on word ‘Zionist’ after antisemitism 
+allegations**: [Link](https://www.aol.com/twitch-lays-hate-speech-policy-010903892.html)
+
+
+### joy awards (N/A, Fri, 15 Nov 2024 16:00:00 -0800)
+
+- **من بينهم لمجرد ولازارو.. مغاربة ينافسون على جوائز 2025 «جوي أواردز»**: [Link](https://ar.le360.ma/culture/M5WRSBICUNAMVNPTIQF5NSAOBQ/)
+- **مغاربة ينافسون على جوائز “جوي إووردز”**: [Link](https://assabah.ma/811226.html)
+- **رياضيون مغاربة ينافسون في "جوي أواردز"**: [Link](https://www.hespress.com/%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D9%88%D9%86-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D9%86%D8%A7%D9%81%D8%B3%D9%88%D9%86-%D9%81%D9%8A-%D8%AC%D9%88%D9%8A-%D8%A3%D9%88%D8%A7%D8%B1%D8%AF%D8%B2-1463390.html)
+
+
+### مايك تايسون ضد جيك بول مباشر (N/A, Fri, 15 Nov 2024 15:50:00 -0800)
+
+- **توقيت نزال مايك تايسون وجيك بول والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/11/15/%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D9%86%D8%B2%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%83-%D8%AA%D8%A7%D9%8A%D8%B3%D9%88%D9%86-%D9%88%D8%AC%D9%8A%D9%83-%D8%A8%D9%88%D9%84)
+- **بعد 19 عامًا من اعتزاله.. المخاوف تحاصر عودة تايسون لحلبة الملاكمة**: [Link](https://www.kooora.com/?n=1368088)
+- **مايك تايسون يصفع صانع المحتوى بول!**: [Link](https://www.beinsports.com/ar-mena/%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%83%D9%85%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D9%8A%D9%83-%D8%AA%D8%A7%D9%8A%D8%B3%D9%88%D9%86-%D9%8A%D8%B5%D9%81%D8%B9-%D8%B5%D8%A7%D9%86%D8%B9-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D9%88%D9%89-%D8%A8%D9%88%D9%84-2024-11-15)
+
+
 ### olympique lyonnais (N/A, Fri, 15 Nov 2024 15:50:00 -0800)
 
 - **OL - Rétrogradation à titre conservatoire pour Lyon à l’issue de la saison, 
