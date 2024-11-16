@@ -1,3 +1,21 @@
+### star academy (N/A, Sat, 16 Nov 2024 04:50:00 -0800)
+
+- **Star Academy 2024 - Prime du 15 novembre 2024 - Partie 1**: [Link](https://www.tf1.fr/tf1/star-academy/videos/star-academy-2024-prime-du-15-novembre-2024-partie-1-21515946.html)
+- **"Ça ne sera pas simple" : L’avertissement de Lucie Bernardoni à Emma (Star 
+Academy) après son élimination**: [Link](https://www.programme-tv.net/news/tv/364959-ca-ne-sera-pas-simple-lavertissement-de-lucie-bernardoni-a-emma-star-academy-apres-son-elimination/)
+- **"Star Academy" : Jean-Pascal Lacoste de retour en surprise**: [Link](https://www.public.fr/star-academy-jean-pascal-lacoste-de-retour-en-surprise)
+
+
+### thomas guénolé (N/A, Sat, 16 Nov 2024 03:50:00 -0800)
+
+- **«C’est une trahison» : Thomas Guénolé suspendu de «Touche pas à mon poste!» 
+après avoir «piégé» Hanouna**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/c-est-une-trahison-thomas-guenole-suspendu-de-touche-pas-a-mon-poste-apres-avoir-piege-hanouna-20241115)
+- **Keffieh palestinien caché dans TPMP : Cyril Hanouna annonce avoir suspendu 
+Thomas Guénolé après "sa tra...**: [Link](https://www.jeanmarcmorandini.com/article-590159-keffieh-palestinien-cache-dans-tpmp-cyril-hanouna-annonce-avoir-suspendu-thomas-guenole-apres-sa-trahison-colere-des-chroniqueurs-ce-mec-est-pas-clean-deloyaute-c-est-degueulasse-c-est-un-lache.html)
+- **« Touche pas à mon poste » : un chroniqueur mis à pied après avoir « piégé 
+» Cyril Hanouna pendant l’émission**: [Link](https://www.sudinfo.be/id914588/article/2024-11-16/touche-pas-mon-poste-un-chroniqueur-mis-pied-apres-avoir-piege-cyril-hanouna)
+
+
 ### le pen marine (N/A, Sat, 16 Nov 2024 01:30:00 -0800)
 
 - **Marine Le Pen réactive son hostilité à l’égard de la justice : « C’est ma 
