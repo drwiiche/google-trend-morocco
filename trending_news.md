@@ -1,3 +1,10 @@
+### suisse – serbie (N/A, Fri, 15 Nov 2024 13:40:00 -0800)
+
+- **Suisse-Serbie : streaming gratuit, chaîne TV et compos**: [Link](https://www.football365.fr/suisse-serbie-streaming-gratuit-chaine-tv-et-compos-10212519.html)
+- **Football - Granit Xhaka: «Ce n'est que la Ligue des nations»**: [Link](https://www.lematin.ch/story/football-granit-xhaka-ce-n-est-que-la-ligue-des-nations-103221573)
+- **L’Aurèle enhardit la Nati malgré un nul acerbe**: [Link](https://www.carton-rouge.ch/2024/11/16/laurele-enhardit-la-nati-malgre-un-nul-acerbe/)
+
+
 ### طقس (N/A, Fri, 15 Nov 2024 23:10:00 -0800)
 
 - **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-7-1464845.html)
