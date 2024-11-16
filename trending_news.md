@@ -1,3 +1,25 @@
+### olympique lyonnais (N/A, Fri, 15 Nov 2024 15:50:00 -0800)
+
+- **OL - Rétrogradation à titre conservatoire pour Lyon à l’issue de la saison, 
+annonce la DNCG**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/ol-retrogradation-a-titre-conservatoire-pour-lyon-a-lissue-de-la-saison-annonce-la-dncg_sto20054448/story.shtml)
+- **Ligue 1 : L'OL interdit de recrutement cet hiver et rétrogradé à titre 
+conservatoire en fin de saison par la DNCG**: [Link](https://www.lequipe.fr/Football/Actualites/L-ol-interdit-de-recrutement-cet-hiver-et-retrograde-a-titre-conservatoire-en-fin-de-saison-par-la-dncg/1520558)
+- **Coup de tonnerre à l'OL, le club lyonnais interdit de recrutement et 
+rétrogradé à titre conservatoire**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/coup-de-tonnerre-a-l-ol-le-club-lyonnais-interdit-de-recrutement-et-retrograde-a-titre-conservatoire-en-fin-de-saison_AV-202411150933.html)
+
+
+### watch wrestling (N/A, Fri, 15 Nov 2024 15:30:00 -0800)
+
+- **We Asked A.I To Rank The Most Influential Male Professional Wrestlers Ever**: [Link](https://www.thesportster.com/ai-rank-most-influential-male-professional-wrestlers-wwe-njpw-rock-austin/)
+- **Street Profits Aim for WWE Tag Gold Against Motor City Machine Guns**: [Link](https://bvmsports.com/2024/11/15/street-profits-aim-for-wwe-tag-gold-against-motor-city-machine-guns/)
+- **The John Report: WWE SmackDown 11/15/24 Review**: [Link](https://tjrwrestling.net/review/the-john-report-wwe-smackdown-11-15-24/)
+
+
+### obama young (N/A, Fri, 15 Nov 2024 12:50:00 -0800)
+
+- **Obama Foundation Leaders Africa Program 2025-2026**: [Link](https://opportunitydesk.org/2024/11/13/obama-foundation-leaders-africa-program-2025-2026/)
+
+
 ### netflix (N/A, Fri, 15 Nov 2024 14:40:00 -0800)
 
 - **Deadpool & Wolverine, Twisters, Netflix’s Emilia Pérez, and every movie new 
