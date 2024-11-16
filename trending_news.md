@@ -1,3 +1,12 @@
+### real madrid club de fútbol – fc barcelone (N/A, Sat, 16 Nov 2024 11:30:00 -0800)
+
+- **Real Madrid - Barcelona en directo**: [Link](https://www.marca.com/futbol/liga-f/r-madrid-barcelona/2024/11/16/01_0122_20241116_16928_9121-directo.html)
+- **Real Madrid - FC Barcelona: resultado y goles en vivo del clásico femenino 
+| Liga F**: [Link](https://www.sport.es/es/noticias/futbol-femenino-barca/real-madrid-barcelona-clasico-femenino-directo-111742114)
+- **Así ha cambiado la foto en el Clásico: el "nos las comemos con patatas" de 
+Alexia Putellas, 29 bajas y un primer pulso sin afición**: [Link](https://www.relevo.com/futbol/liga-femenina/cambiado-foto-clasico-bajas-comemos-20241116092037-nt.html)
+
+
 ### ufc 309 (N/A, Sat, 16 Nov 2024 11:20:00 -0800)
 
 - **UFC 309 fight rankings: What is can't-miss beyond Jones-Miocic?**: [Link](https://www.espn.com/mma/story/_/id/42388257/ranking-fights-ufc-309-jon-jones-vs-stipe-miocic-leads-way)
