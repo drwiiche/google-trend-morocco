@@ -1,3 +1,10 @@
+### éthiopie – tanzanie (N/A, Sat, 16 Nov 2024 08:50:00 -0800)
+
+- **Elim CAN 2025 : Éthiopie-Tanzanie, où et quand suivre le match ?**: [Link](https://www.africatopsports.com/2024/11/16/ethiopie-tanzanie-ou-et-quand-suivre-le-match/)
+- **Éthiopie-Tanzanie : les compositions officielles**: [Link](https://www.africatopsports.com/2024/11/16/ethiopie-tanzanie-les-compositions-officielles/)
+- **Elim CAN 2025 : Ethiopie-Tanzanie, les Taifa Stars en patrons à la pause**: [Link](https://www.africatopsports.com/2024/11/16/ethiopie-tanzanie-les-taifa-stars-en-patrons-a-la-pause/)
+
+
 ### nora achahbar (N/A, Sat, 16 Nov 2024 06:00:00 -0800)
 
 - **How a toxic mix of antisemitism, racism and xenophobia culminated in 
