@@ -1,3 +1,10 @@
+### داليا فؤاد (N/A, Sun, 17 Nov 2024 06:30:00 -0800)
+
+- **ضجة كبيرة بعد اعتقال مذيعة شهيرة بسبب "مُخدر اغتصاب الفتيات"**: [Link](https://www.akhbarona.com/last/395876.html)
+- **فيديوهات مخلة ومخدرات.. القبض على بلوغر شهيرة في مصر**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2024/11/15/%D9%81%D9%8A%D8%AF%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D9%85%D8%A8%D8%AA%D8%B0%D9%84%D8%A9-%D9%88%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D8%A8%D8%B6-%D8%B9%D9%84%D9%89-%D8%A8%D9%84%D9%88%D8%AC%D8%B1-%D8%B4%D9%87%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
+- **أجهزة الأمن المصرية تقبض على مذيعة شهيرة بتهمة حيازة مخدرات**: [Link](https://www.alquds.co.uk/%D8%A3%D8%AC%D9%87%D8%B2%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%AA%D9%82%D8%A8%D8%B6-%D8%B9%D9%84%D9%89-%D9%85%D8%B0%D9%8A%D8%B9%D8%A9-%D8%B4%D9%87%D9%8A/)
+
+
 ### paul pogba (N/A, Sun, 17 Nov 2024 04:50:00 -0800)
 
 - **Arsenal advised to avoid signing 'lazy' Pogba as Souness brutally destroys 
