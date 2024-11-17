@@ -1,3 +1,12 @@
+### england vs ireland (N/A, Sun, 17 Nov 2024 08:40:00 -0800)
+
+- **England vs Republic of Ireland: Live text coverage, radio commentary and 
+stats**: [Link](https://www.bbc.com/sport/football/live/c98envjpj72t)
+- **The Daily Acca: A low-scorer at Wembley in this 9/2 treble**: [Link](https://onefootball.com/en/news/the-daily-acca-a-low-scorer-at-wembley-in-this-92-treble-40318753)
+- **Heimir Hallgrímsson Focuses on Defensive Readiness Ahead of Showdown with 
+England**: [Link](https://www.footboom1.com/en/news/football/2071127-heimir-hallgrimsson-focuses-on-defensive-readiness-ahead-of-showdown-with-england)
+
+
 ### angleterre – irlande (N/A, Sun, 17 Nov 2024 08:20:00 -0800)
 
 - **Pronostic Angleterre - Irlande, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/angleterre-irlande-228073/)
