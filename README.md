@@ -1,3 +1,10 @@
+### rabiot (N/A, Sun, 17 Nov 2024 13:10:00 -0800)
+
+- **Rabiot & Coman run the show in open training**: [Link](https://sports.yahoo.com/rabiot-coman-run-show-open-013549282.html)
+- **A Terrible Mistake by Rabiot at PSG Called Out**: [Link](https://www.footboom1.com/en/news/football/2067236-a-terrible-mistake-by-rabiot-at-psg-called-out)
+- **OM: Rabiot Blasted!**: [Link](https://www.footboom1.com/en/news/football/2066958-om-rabiot-blasted)
+
+
 ### استقلال المغرب (N/A, Sun, 17 Nov 2024 13:00:00 -0800)
 
 - **عيد الاستقلال ..ذكرى خالدة تجسد تلاحم العرش والشعب**: [Link](https://ar.hibapress.com/details-574198.html)
