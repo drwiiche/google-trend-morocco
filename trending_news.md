@@ -1,3 +1,22 @@
+### fête de l'indépendance du maroc (N/A, Sun, 17 Nov 2024 15:10:00 -0800)
+
+- **Fête de l'Indépendance: Un symbole de fierté et d'attachement à la Nation**: [Link](https://fr.hespress.com/396680-fete-de-lindependance-un-symbole-de-fierte-et-dattachement-a-la-nation.html)
+- **“Fez Summer 55” de Abdelhai Laraki diffusé à l'occasion de la fête de 
+l'Indépendance**: [Link](https://lematin.ma/culture/fez-summer-55-de-abdelhai-laraki-diffuse-a-la-tele/251733)
+- **69e anniversaire du retour de feu SM Mohammed V de l'exil: une occasion de 
+commémorer l’épopée héroïque de la lutte nationale pour l’indépendance**: [Link](https://2m.ma/fr/news/69e-anniversaire-du-retour-de-feu-SM-Mohammed-V-de-l-exil-une-occasion-de-comm%C3%A9morer-l-%C3%A9pop%C3%A9e-h%C3%A9ro%C3%AFque-de-la-lutte-nationale-pour-l-ind%C3%A9pendance-20241115)
+
+
+### عيد استقلال المغرب (N/A, Sun, 17 Nov 2024 15:10:00 -0800)
+
+- **عطلة جديدة في انتظار المغاربة**: [Link](https://m.alayam24.com/articles-539242.html)
+- **الذكرى الـ69 لعودة جلالة المغفور له محمد الخامس من المنفى .. لحظة تاريخية 
+وازنة في مسيرة الكفاح الوطني لنيل الاستقلال**: [Link](https://www.maroc.ma/ar/%D8%A7%D9%84%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D9%8069-%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D9%81%D9%88%D8%B1-%D9%84%D9%87-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D9%81%D9%89-%D9%84%D8%AD%D8%B8%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%88%D8%A7%D8%B2%D9%86%D8%A9-%D9%81%D9%8A-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D9%81%D8%A7%D8%AD-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A)
+- **جامعة القاضي عياض تنظم حفلاً رياضياً وفنياً بمناسبة تخليد الذكرى التاسعة 
+والأربعين للمسيرة الخضراء المظفرة، والذكرى التاسعة والستين لعيد الاستقلال 
+المجيد**: [Link](https://al-intifada.com/archives/234994)
+
+
 ### algerie crash avion militaire (N/A, Sun, 17 Nov 2024 14:40:00 -0800)
 
 - **157 morts dans le crash d’un avion de transport militaire en Algérie : 
