@@ -1,3 +1,12 @@
+### france (N/A, Sun, 17 Nov 2024 11:40:00 -0800)
+
+- **Exclusif – Jalibert ne sera pas rappelé avec le XV de France pour préparer 
+l’Argentine**: [Link](https://www.rugbyrama.fr/2024/11/17/exclusif-midol-matthieu-jalibert-ubb-ne-sera-pas-rappele-avec-le-xv-de-france-pour-preparer-la-rencontre-face-a-largentine-12329277.php)
+- **Olivier Magne comprend la décision de Fabien Galthié d'éc...**: [Link](https://www.rugby-addict.com/fr/article/rc-toulon-rct/olivier-magne-comprend-la-decision-de-fabien-galthie-d-ecarter-matthieu-jalibert/6739c5ddb9f1f1746a065592)
+- **XV de France : la liste des 42 Bleus pour affronter l’Argentine, sans 
+Matthieu Jalibert**: [Link](https://www.leparisien.fr/sports/rugby/xv-de-france/xv-de-france-la-liste-des-42-bleus-pour-affronter-largentine-sans-matthieu-jalibert-17-11-2024-C3QCJV4A2VBF7EDJQOA22BT6PA.php)
+
+
 ### israël – belgique (N/A, Sun, 17 Nov 2024 11:00:00 -0800)
 
 - **Football : 5 joueurs de l’équipe de Belgique ne joueront pas contre Israël**: [Link](https://fr.timesofisrael.com/football-5-joueurs-de-lequipe-de-belgique-ne-joueront-pas-contre-israel/)
