@@ -1,3 +1,19 @@
+### italie – france (N/A, Sun, 17 Nov 2024 10:50:00 -0800)
+
+- **Italie - France : après la frustration, enfin l'efficacité ?**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2024-2025/italie-france-apres-la-frustration-enfin-l-efficacite_sto10394701/story.shtml)
+- **Italie-France : pour les Bleus, l’ultime sortie d’une triste année 2024 qui 
+a flouté leur image**: [Link](https://www.lemonde.fr/sport/article/2024/11/17/italie-france-pour-les-bleus-l-ultime-sortie-d-une-triste-annee-2024-qui-a-floute-leur-image_6398871_3242.html)
+- **"Un cycle qui se termine", "on attend que Deschamps s'en aille" : avant 
+Italie-France, le désamour croissant des fans de foot pour les Bleus**: [Link](https://www.francetvinfo.fr/sports/foot/equipe-de-france/un-cycle-qui-se-termine-on-attend-que-deschamps-s-en-aille-avant-italie-france-le-desamour-croissant-des-fans-de-foot-pour-les-bleus_6901046.html)
+
+
+### بطولة شمال إفريقيا لأقل من 17 سنة 2024 (N/A, Sun, 17 Nov 2024 10:50:00 -0800)
+
+- **"منتخب U20" ينتصر على تونس**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-u20-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%AA%D9%88%D9%86%D8%B3-1466441.html)
+- **المنتخب الوطني لأقل من 17 سنة يتعادل على المنتخب التونسي**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B9%D9%84%D9%89/)
+- **مواجهة مزدوجة اليوم الأحد بين المغرب وتونس..موعد المبارتين والقنوات الناقلة**: [Link](https://www.akhbarona.com/sport/lionatlas/395865.html)
+
+
 ### france vs italy (N/A, Sun, 17 Nov 2024 10:40:00 -0800)
 
 - **Italie - France : Mike Maignan (ex-LOSC), source de motivation 
