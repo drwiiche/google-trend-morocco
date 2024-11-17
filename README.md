@@ -1,3 +1,11 @@
+### maroc vs lesotho (N/A, Sun, 17 Nov 2024 09:50:00 -0800)
+
+- **Lancement de la vente des billets du match de l’équipe nationale contre le 
+Lesotho**: [Link](https://frmf.ma/fr/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86-9/)
+- **Walid Regragui prend une décision avant le match Maroc-Lesotho**: [Link](https://www.lesiteinfo.com/maroc/632539-walid-regragui-prend-une-decision-avant-le-match-maroc-lesotho.html)
+- **CAN 2025: les Lions de l’Atlas reprennent le job avant Maroc-Lesotho**: [Link](https://sport.le360.ma/football/lions-atlas/can-2025-les-lions-de-latlas-reprennent-le-job-avant-maroc-lesotho_ZD6IMAGVJ5EP7MYTFARMJYNSQM/)
+
+
 ### miss danemark (N/A, Sun, 17 Nov 2024 09:30:00 -0800)
 
 - **Miss Danemark couronnée Miss Univers, Indira Ampiot dans le top 30**: [Link](https://www.20minutes.fr/arts-stars/culture/4121750-20241117-miss-univers-2024-miss-danemark-remporte-concours-indira-ampiot-top-30)
