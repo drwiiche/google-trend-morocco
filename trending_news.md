@@ -1,3 +1,38 @@
+### angleterre – irlande (N/A, Sun, 17 Nov 2024 08:20:00 -0800)
+
+- **Pronostic Angleterre - Irlande, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/angleterre-irlande-228073/)
+- **Heimir Hallgrímsson se concentre sur la préparation défensive avant 
+l'affrontement avec l'Angleterre**: [Link](https://www.footboom1.com/fr/news/football/2071127-heimir-hallgrimsson-focuses-on-defensive-readiness-ahead-of-showdown-with-england)
+- **PRONOS PARIS RMC Le pari football de Coach Courbis du 17 novembre - Ligue 
+des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-coach-courbis-du-17-novembre-ligue-des-nations_AN-202411170308.html)
+
+
+### algeria vs liberia (N/A, Sun, 17 Nov 2024 08:20:00 -0800)
+
+- **Algeria keen to finish unbeaten in Group E**: [Link](https://supersport.com/football/general/news/32628cb4-5783-4b8f-bb61-1bfa92accb53/algeria-keen-to-finish-unbeaten-in-group-e)
+- **Preview: Algeria vs. Liberia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/algeria/preview/preview-algeria-vs-liberia-prediction-team-news-lineups_558218.html)
+
+
+### algerie foot (N/A, Sun, 17 Nov 2024 08:20:00 -0800)
+
+- **“Mystérieuse” : l’équipe d’Algérie intrigue l’Allemagne**: [Link](https://fennecfootball.com/mysterieuse-lequipe-dalgerie-intrigue-lallemagne/)
+- **Une rencontre décisive entre Petkovic et ce binational en vue !**: [Link](https://fennecfootball.com/une-rencontre-decisive-entre-petkovic-et-ce-binational-en-vue/)
+- **Appel à l’aide : le frère de l’ex-international Hamid Merakchi réclame le 
+rapatriement de sa dépouille**: [Link](https://fennecfootball.com/le-frere-de-merakchi-reclame-le-rapatriement-de-sa-depouille/)
+
+
+### arryadia (N/A, Sun, 17 Nov 2024 08:10:00 -0800)
+
+
+
+
+### المغرب تونس (N/A, Sun, 17 Nov 2024 08:10:00 -0800)
+
+- **مواجهة مزدوجة اليوم الأحد بين المغرب وتونس..موعد المبارتين والقنوات الناقلة**: [Link](https://www.akhbarona.com/sport/lionatlas/395865.html)
+- **المنتخب الوطني لاقل من 17 سنة يستعد للقاء تونس**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D9%82%D8%A7-8/)
+- **مواجهة مزدوجة للمنتخب المغربي ضد تونس (التوقيت والقنوات)**: [Link](https://www.analkhabar.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B2%D8%AF%D9%88%D8%AC%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3/)
+
+
 ### الجزائر ضد ليبيريا (N/A, Sun, 17 Nov 2024 07:50:00 -0800)
 
 - **الموعد والقنوات الناقلة لمباراة الجزائر وليبيريا مباشر في تصفيات أمم أفريقيا**: [Link](https://www.almasryalyoum.com/news/details/3308168)
