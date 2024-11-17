@@ -1,3 +1,13 @@
+### paul pogba (N/A, Sun, 17 Nov 2024 04:50:00 -0800)
+
+- **Arsenal advised to avoid signing 'lazy' Pogba as Souness brutally destroys 
+former Man Utd star for 'wasted talent'**: [Link](https://www.teamtalk.com/arsenal/souness-destroys-lazy-paul-pogba-explosive-rant-arsenal-transfer-derailed-man-utd-flop)
+- **'I'm Not Sure' Former Arsenal Star Says Gunners Don't Have The 'Guts' To 
+Sign Ex-Manchester United Ace**: [Link](https://goonernews.com/blog/arsenal-paul-pogba/?utm_source=thumbnail&utm_medium=aggregator&utm_campaign=related-stories)
+- **Graeme Souness tells Premier League teams to avoid 'lazy' free agent Paul 
+Pogba**: [Link](https://www.liverpool.com/liverpool-fc-news/transfer-news/paul-pogba-transfer-juventus-souness-30384461)
+
+
 ### محمد عفيف (N/A, Sun, 17 Nov 2024 04:30:00 -0800)
 
 - **الحرب على غزة.. اغتيال قيادي كبير بحزب الله ومجزرة في بيت لاهيا**: [Link](https://www.aljazeera.net/news/liveblog/2024/11/17/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B9%D8%B4%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D9%87%D8%AF%D8%A7%D8%A1-15)
