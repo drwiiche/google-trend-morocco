@@ -1,3 +1,19 @@
+### togo – guinée équatoriale (N/A, Sun, 17 Nov 2024 09:00:00 -0800)
+
+- **Dix équipes désormais qualifiées pour la CAN 2025 au Maroc**: [Link](https://fr.hespress.com/396204-dix-equipes-desormais-qualifiees-pour-la-can-2025-au-maroc.html)
+- **Elim CAN 2025 : Togo-Guinée Équatoriale, où suivre le match**: [Link](https://www.africatopsports.com/2024/11/17/togo-guinee-equatoriale-ou-suivre-le-match/)
+- **Dare Nibombé échoue à remplir une part de son contrat avec les Éperviers, 
+mais s’en défend**: [Link](https://afriquinfos.com/dare-nibombe-echoue-a-remplir-une-part-de-son-contrat-avec-les-eperviers-mais-sen-defend/)
+
+
+### ilias akhomach (N/A, Sun, 17 Nov 2024 09:00:00 -0800)
+
+- **Akhomach se suma la larga lista de lesionados de rodilla en el Villarreal**: [Link](https://as.com/futbol/primera/akomach-se-suma-la-larga-lista-de-lesionados-de-rodilla-en-el-villarreal-n/)
+- **La lesión de Kiko Femenía le deja fuera del grupo de jugadores que ha 
+disputado todos los partidos**: [Link](https://castellonplaza.com/lesion-kiko-femenia-deja-fuera-grupo-jugadores-que-ha-disputado-todos-partidos)
+- **Ilias Akomach, operado con éxito de los ligamentos de su rodilla derecha**: [Link](https://www.msn.com/es-es/salud/other/ilias-akomach-operado-con-%C3%A9xito-de-los-ligamentos-de-su-rodilla-derecha/ar-AA1uboRT)
+
+
 ### england vs ireland (N/A, Sun, 17 Nov 2024 08:40:00 -0800)
 
 - **England vs Republic of Ireland: Live text coverage, radio commentary and 
