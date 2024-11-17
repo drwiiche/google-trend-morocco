@@ -1,3 +1,12 @@
+### miss univers 2024 (N/A, Sun, 17 Nov 2024 03:50:00 -0800)
+
+- **Miss Univers 2024: Miss Danemark couronnée, la Française Indira Ampiot 
+termine dans le top 30**: [Link](https://www.bfmtv.com/people/miss-univers-2024-miss-danemark-couronnee-la-francaise-indira-ampiot-termine-dans-le-top-30_AN-202411170086.html)
+- **Miss Univers 2024 : La Danoise élue, la Libanaise loin du top 30**: [Link](https://www.lorientlejour.com/article/1435830/miss-univers-2024-la-danoise-elue-la-libanaise-loin-du-top-30.html)
+- **Miss Univers 2024 : qui est la gagnante Victoria Kjær Theilvig, Miss 
+Danemark ?**: [Link](https://www.gala.fr/l_actu/news_de_stars/miss-univers-2024-qui-est-la-gagnante-victoria-kjaer-theilvig-miss-danemark_555989)
+
+
 ### jon jones (N/A, Sat, 16 Nov 2024 16:40:00 -0800)
 
 - **UFC 309: Jon Jones not retiring after retaining Heavyweight title vs Stipe 
