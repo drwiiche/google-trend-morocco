@@ -1,3 +1,26 @@
+### ayyoub bouaddi (N/A, Sun, 17 Nov 2024 14:00:00 -0800)
+
+- **Arsenal tracking exciting French wonderkid to bolster Mikel Arteta's side: 
+report**: [Link](https://www.fourfourtwo.com/news/arsenal-tracking-exciting-french-wonderkid-to-bolster-mikel-artetas-side-report)
+- **Liverpool have watched Zubimendi-like teenager FSG could get for just £25m**: [Link](https://www.footballfancast.com/liverpool-have-watched-zubimendi-like-midfielder-ayyoub-bouaddi/)
+- **Chelsea could sign their biggest talent since Palmer in 25m Caicedo clone**: [Link](https://www.msn.com/en-gb/sport/football/chelsea-could-sign-their-biggest-talent-since-palmer-in-25m-caicedo-clone/ar-AA1tXFgN)
+
+
+### إسرائيل ضد بلجيكا (N/A, Sun, 17 Nov 2024 14:00:00 -0800)
+
+- **بلجيكا تخسر من إسرائيل**: [Link](https://24.ae/article/858138/%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D8%AA%D8%AE%D8%B3%D8%B1-%D9%85%D9%86-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **ضمن فريق صفقة الأهلي المنتظرة.. من هو محمد أبو فاني لاعب منتخب إسرائيل قبل 
+مواجهة بلجيكا؟**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2024/11/17/2676143/%D8%B6%D9%85%D9%86-%D9%81%D8%B1%D9%8A%D9%82-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D9%85%D9%86-%D9%87%D9%88-%D9%85%D8%AD%D9%85%D8%AF-%D8%A3%D8%A8%D9%88-%D9%81%D8%A7%D9%86%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-)
+- **منتخب بلجيكا يتعثر أمام الكيان الصهيوني في دوري الأمم الأوروبية**: [Link](https://www.youm7.com/story/2024/11/17/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%8A%D8%AA%D8%B9%D8%AB%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%83%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D8%B5%D9%87%D9%8A%D9%88%D9%86%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/6780838)
+
+
+### france vs (N/A, Sun, 17 Nov 2024 11:10:00 -0800)
+
+- **Thomas Ramos’s boot helps France to thrilling win over New Zealand**: [Link](https://www.theguardian.com/sport/2024/nov/16/thomas-ramoss-boot-helps-france-to-thrilling-win-over-new-zealand)
+- **France 30-29 New Zealand: Hosts inflict All Blacks' first autumn loss**: [Link](https://www.bbc.com/sport/rugby-union/articles/c3e8w74qk9go)
+- **All Blacks winger chimes in on GOAT debate after France defe...**: [Link](https://www.rugby-addict.com/en/article/home/all-blacks-winger-chimes-in-on-goat-debate-after-france-defeat/67395361ac5b5ada4e068822)
+
+
 ### ligue des nations (N/A, Sun, 17 Nov 2024 11:50:00 -0800)
 
 - **Angleterre 5-0 Irlande, Ligue des nations B : L'Angleterre libérée !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-b/2025/angleterre-irlande-live/632641)
