@@ -1,3 +1,12 @@
+### andy kerbrat (N/A, Sun, 17 Nov 2024 05:10:00 -0800)
+
+- **Le député Kerbrat, la drogue et l’argent public : récit d’une descente aux 
+enfers**: [Link](https://www.mediapart.fr/journal/politique/151124/le-depute-kerbrat-la-drogue-et-l-argent-public-recit-d-une-descente-aux-enfers)
+- **Affaire Andy Kerbrat: Yaël Braun-Pivet saisit le déontologue de l'Assemblée**: [Link](https://rmc.bfmtv.com/actualites/politique/affaire-andy-kerbrat-yael-braun-pivet-saisit-le-deontologue-de-l-assemblee_AV-202411160133.html)
+- **Le député Insoumis Andy Kerbrat a utilisé son avance de frais à l'Assemblée 
+Nationale pour acheter des...**: [Link](https://www.jeanmarcmorandini.com/article-590177-le-depute-insoumis-andy-kerbrat-a-utilise-son-avance-de-frais-a-l-assemblee-nationale-pour-acheter-des-drogues-associees-au-chemsex-ces-relations-sexuelles-multiples-et-en-groupes-sous-substances.html)
+
+
 ### crash avion militaire algerie (N/A, Sun, 17 Nov 2024 06:40:00 -0800)
 
 - **157 morts dans le crash d’un avion de transport militaire en Algérie : 
