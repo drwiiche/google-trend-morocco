@@ -1,3 +1,12 @@
+### vladimir poutine (N/A, Sat, 16 Nov 2024 18:50:00 -0800)
+
+- **Olaf Scholz reprend contact avec Vladimir Poutine et fâche l’Ukraine**: [Link](https://www.lemonde.fr/international/article/2024/11/16/guerre-en-ukraine-le-coup-de-fil-entre-olaf-scholz-et-vladimir-poutine-a-ouvert-la-boite-de-pandore-selon-volodymyr-zelensky_6396331_3210.html)
+- **Guerre en Ukraine : en appelant Poutine, Scholz a « ouvert la boîte de 
+Pandore », déplore Zelensky**: [Link](https://www.huffingtonpost.fr/international/article/guerre-en-ukraine-en-appelant-poutine-scholz-a-ouvert-la-boite-de-pandore-deplore-zelensky_242325.html)
+- **Guerre en Ukraine : L'Allemagne demande à la Russie de retirer ses troupes, 
+Poutine reste ferme**: [Link](https://www.20minutes.fr/monde/ukraine/4121447-20241115-direct-guerre-ukraine-attaque-aerienne-russe-massive-odessa-sud-pays)
+
+
 ### ufc (N/A, Sat, 16 Nov 2024 15:40:00 -0800)
 
 - **UFC 309 live updates: Time, streaming for Jones vs. Miocic card**: [Link](https://www.usatoday.com/story/sports/ufc/2024/11/16/ufc-309-live-results-fights-jones-miocic/76302656007/)
