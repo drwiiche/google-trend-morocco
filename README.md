@@ -1,3 +1,12 @@
+### maroc vs tunisie u17 (N/A, Sun, 17 Nov 2024 07:30:00 -0800)
+
+- **UNAF U17 et U20 / Maroc - Tunisie, double confrontation ce dimanche : 
+Horaires? Chaînes?**: [Link](https://www.lopinion.ma/UNAF-U17-et-U20-Maroc-Tunisie-double-confrontation-ce-dimanche-Horaires-Chaines_a60261.html)
+- **Tournoi UNAF U17 : sur quelle chaine et à quelle heure suivre Tunisie-Maroc 
+ce dimanche ?**: [Link](https://sport.tunisienumerique.com/tournoi-unaf-u17-sur-quelle-chaine-et-a-quelle-heure-suivre-tunisie-maroc-ce-dimanche/)
+- **Foot - CAN-2025 (U17) Zone UNAF (2e journée) : la Tunisie bat la Libye (2-1)**: [Link](https://www.tap.info.tn/fr/Portail-Titres-de-l-actualit%C3%A9/18105652-foot-can-2025)
+
+
 ### algérie – liberia (N/A, Sun, 17 Nov 2024 07:30:00 -0800)
 
 - **Algérie - Liberia : Où voir le match ?**: [Link](https://www.dzfoot.com/programme-tv/algerie-liberia-ou-voir-le-match-269553.html)
