@@ -1,3 +1,11 @@
+### france vs italy (N/A, Sun, 17 Nov 2024 10:40:00 -0800)
+
+- **Italie - France : Mike Maignan (ex-LOSC), source de motivation 
+supplémentaire pour la Squadra Azzurra**: [Link](https://lepetitlillois.com/2024/11/17/italie-france-mike-maignan-ex-losc-source-de-motivation-supplementaire-pour-la-squadra-azzurra/)
+- **Bleus : Maignan fou de foot**: [Link](https://sports.orange.fr/football/equipe-de-france/bleus/article/bleus-maignan-fou-de-foot-CNT000002gkOn2.html)
+- **[News-Anciens] EDF A : Maignan, Spalletti n’a pas oublié (L’Equipe)**: [Link](https://www.lestitisdupsg.fr/a-la-une/%F0%9F%87%AB%F0%9F%87%B7-news-anciens-edf-a-maignan-spalletti-na-pas-oublie/)
+
+
 ### إنجلترا ضد أيرلندا (N/A, Sun, 17 Nov 2024 10:20:00 -0800)
 
 - **إنجلترا تنهي استعداداتها لملاقاة جمهورية أيرلندا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D8%AA%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87%D8%A7-%D9%84%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A3%D9%8A%D8%B1%D9%84%D9%86%D8%AF%D8%A7-2024-11-17)
