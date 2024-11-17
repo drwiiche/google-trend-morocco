@@ -1,3 +1,12 @@
+### ligue des nations (N/A, Sun, 17 Nov 2024 11:50:00 -0800)
+
+- **Angleterre 5-0 Irlande, Ligue des nations B : L'Angleterre libérée !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-b/2025/angleterre-irlande-live/632641)
+- **Heimir Hallgrímsson se concentre sur la préparation défensive avant 
+l'affrontement avec l'Angleterre**: [Link](https://www.footboom1.com/fr/news/football/2071127-heimir-hallgrimsson-focuses-on-defensive-readiness-ahead-of-showdown-with-england)
+- **PRONOS PARIS RMC Le pari football de Coach Courbis du 17 novembre - Ligue 
+des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-coach-courbis-du-17-novembre-ligue-des-nations_AN-202411170308.html)
+
+
 ### rabiot (N/A, Sun, 17 Nov 2024 13:10:00 -0800)
 
 - **Rabiot & Coman run the show in open training**: [Link](https://sports.yahoo.com/rabiot-coman-run-show-open-013549282.html)
