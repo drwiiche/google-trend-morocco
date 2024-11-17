@@ -1,3 +1,11 @@
+### achraf hakimi (N/A, Sun, 17 Nov 2024 15:20:00 -0800)
+
+- **Hakimi se perderá el partido contra Lesoto para regresar al PSG**: [Link](https://es.rue20.com/2024/11/17/hakimi-se-perdera-el-partido-contra-lesoto-para-regresar-al-psg/)
+- **📹 PSG inauguró una academia en Marruecos con Achraf Hakimi**: [Link](https://www.vermouth-deportivo.com.ar/%F0%9F%93%B9-psg-inauguro-una-academia-en-marruecos-y-achraf-hakimi-fue-el-gran-protagonista/)
+- **حكيمي يغادر معسكر المنتخب المغربي ويلتحق بباريس سان جيرمان بعد اتفاق ودي 
+بين الجامعة والنادي الفرنسي - Elbotola**: [Link](https://m.elbotola.com/article/2024-11-17-17-56-14.html)
+
+
 ### fête de l'indépendance du maroc (N/A, Sun, 17 Nov 2024 15:10:00 -0800)
 
 - **Fête de l'Indépendance: Un symbole de fierté et d'attachement à la Nation**: [Link](https://fr.hespress.com/396680-fete-de-lindependance-un-symbole-de-fierte-et-dattachement-a-la-nation.html)
