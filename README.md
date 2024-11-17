@@ -1,3 +1,10 @@
+### algérie – liberia (N/A, Sun, 17 Nov 2024 07:30:00 -0800)
+
+- **Algérie - Liberia : Où voir le match ?**: [Link](https://www.dzfoot.com/programme-tv/algerie-liberia-ou-voir-le-match-269553.html)
+- **Algérie – Libéria : voici l’équipe arbitrale désignée**: [Link](https://fennecfootball.com/algerie-liberia-voici-lequipe-arbitrale-designee/)
+- **Sports - Historique pour les Verts**: [Link](https://www.lexpressiondz.com/sports/historique-pour-les-verts-387849)
+
+
 ### andy kerbrat (N/A, Sun, 17 Nov 2024 05:10:00 -0800)
 
 - **Le député Kerbrat, la drogue et l’argent public : récit d’une descente aux 
