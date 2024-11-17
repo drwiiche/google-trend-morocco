@@ -1,3 +1,20 @@
+### guendouzi (N/A, Sun, 17 Nov 2024 12:20:00 -0800)
+
+- **Lazio midfielder Guendouzi admits football and life in Italy surprising him**: [Link](https://www.tribalfootball.com/article/soccer-serie-a-lazio-midfielder-guendouzi-admits-football-and-life-in-italy-surprising-him-f64aa5b7-5570-4e7c-ad55-692b1a6c1401)
+- **I played with Arsenal star axed by Mikel Arteta - here's why he made the 
+right decision**: [Link](https://www.football.london/arsenal-fc/news/played-arsenal-star-axed-mikel-30386062)
+- **'I played with Arsenal star Mikel Arteta froze out - I understand exactly 
+why he did it'**: [Link](https://www.mirror.co.uk/sport/football/news/mikel-arteta-arsenal-aliadiere-guendouzi-34123683)
+
+
+### israel vs belgium (N/A, Sun, 17 Nov 2024 12:20:00 -0800)
+
+- **UEFA Nations League Israel versus Belgium kick off 19:45 Sun 17 Nov 2024**: [Link](https://www.bbc.com/sport/football/live/c206gewd1x3t)
+- **Former Israeli International, Who Played for Standard and Liverpool, 
+Discusses Belgium's Match Against Israel**: [Link](https://www.footboom1.com/en/news/football/2068618-former-israeli-international-who-played-for-standard-and-liverpool-discusses-belgium-s-match-against-israel)
+- **Any Other Bets: Nations League tips for Sunday 17 November**: [Link](https://www.sportinglife.com/football/news/any-other-bets-nations-league-tips-for-sunday-17-november/221834)
+
+
 ### france (N/A, Sun, 17 Nov 2024 11:40:00 -0800)
 
 - **Exclusif – Jalibert ne sera pas rappelé avec le XV de France pour préparer 
