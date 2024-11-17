@@ -1,3 +1,11 @@
+### محمد عفيف (N/A, Sun, 17 Nov 2024 04:30:00 -0800)
+
+- **الحرب على غزة.. اغتيال قيادي كبير بحزب الله ومجزرة في بيت لاهيا**: [Link](https://www.aljazeera.net/news/liveblog/2024/11/17/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B9%D8%B4%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D9%87%D8%AF%D8%A7%D8%A1-15)
+- **رويترز: غارة إسرائيلية تقتل مسؤول الإعلام في حزب الله**: [Link](https://www.skynewsarabia.com/middle-east/1755636-%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A7%D9%95%D8%B3%D8%B1%D8%A7%D9%8A%D9%94%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D9%84-%D9%85%D8%B3%D9%88%D9%94%D9%88%D9%84-%D8%A7%D9%84%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%85-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87)
+- **إسرائيل تدعي استهداف مقرات لـ”حزب الله” خلال موجة هجمات جوية على الضاحية 
+الجنوبية لبيروت.. والمسؤول الإعلامي في الحزب كان في المبنى المستهدف**: [Link](https://www.raialyoum.com/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%AF%D8%B9%D9%8A-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%85%D9%82%D8%B1%D8%A7%D8%AA-%D9%84%D9%80%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87/)
+
+
 ### miss univers 2024 (N/A, Sun, 17 Nov 2024 03:50:00 -0800)
 
 - **Miss Univers 2024: Miss Danemark couronnée, la Française Indira Ampiot 
