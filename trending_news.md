@@ -1,3 +1,12 @@
+### jon jones (N/A, Sat, 16 Nov 2024 16:40:00 -0800)
+
+- **UFC 309: Jon Jones not retiring after retaining Heavyweight title vs Stipe 
+Miocic**: [Link](https://www.indiatoday.in/sports/story/ufc-309-jon-jones-beats-stipe-miocic-heavyweight-title-not-retiring-madison-square-garden-2634696-2024-11-17)
+- **What time does Jon Jones fight Stipe Miocic at UFC 309?**: [Link](https://www.independent.co.uk/sport/ufc/ufc-309-start-time-jones-miocic-b2645266.html)
+- **UFC 309: Jon Jones stops Stipe Miocic with spinning kick to retain 
+heavyweight title**: [Link](https://www.bbc.com/sport/mixed-martial-arts/articles/cgj7zdzveedo)
+
+
 ### crash avion algerie (N/A, Sun, 17 Nov 2024 01:40:00 -0800)
 
 - **157 morts dans le crash d’un avion de transport militaire en Algérie : 
