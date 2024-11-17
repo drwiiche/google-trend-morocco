@@ -1,3 +1,33 @@
+### israël – belgique (N/A, Sun, 17 Nov 2024 11:00:00 -0800)
+
+- **Football : 5 joueurs de l’équipe de Belgique ne joueront pas contre Israël**: [Link](https://fr.timesofisrael.com/football-5-joueurs-de-lequipe-de-belgique-ne-joueront-pas-contre-israel/)
+- **Six matchs, pas un seul but, mais Diable Rouge : la justification 
+surréaliste de Tedesco concernant le dernier sélectionné**: [Link](https://www.walfoot.be/news/2024-11-16/six-matchs-pas-un-seul-but-mais-diable-rouge--la-justification-surrealiste-de-tedesco-concernant-le-dernier-selectionne)
+- **PRONOS PARIS RMC Le pari à l'extérieur du 17 novembre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-17-novembre-ligue-des-nations_AN-202411160357.html)
+
+
+### italy vs france (N/A, Sun, 17 Nov 2024 11:00:00 -0800)
+
+- **GdS: What filters from Milan regarding Theo’s injury in view of Juventus 
+game**: [Link](https://sempremilan.com/what-filters-milan-theo-hernandez-juventus)
+- **Donnarumma out of Italy vs. France, Vicario takes over gloves**: [Link](https://football-italia.net/donnarumma-out-of-italy-vs-france-vicario/)
+- **Spalletti: We have to show our quality without too much chatter**: [Link](https://www.ysscores.com/en/news/7226622/Spalletti:-We-have-to-show-our-quality-without-too-much-chatter)
+
+
+### إيطاليا ضد فرنسا (N/A, Sun, 17 Nov 2024 11:00:00 -0800)
+
+- **صدام مرتقب على الصدارة بين إيطاليا وفرنسا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B5%D8%AF%D8%A7%D9%85-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7-2024-11-17)
+- **القوة الضاربة تحكم تشكيل قمة إيطاليا وفرنسا**: [Link](https://www.kooora.com/?n=1368802&o=n)
+- **في مباراة الثأر.. فرنسا تسعى للإطاحة بإيطاليا في قمة دوري الأمم الأوروبية**: [Link](https://sport.al3omk.com/72188.html)
+
+
+### 18 novembre (N/A, Sun, 17 Nov 2024 11:00:00 -0800)
+
+- **Les températures attendues ce dimanche 17 novembre 2024**: [Link](https://fr.hespress.com/396656-les-temperatures-attendues-ce-dimanche-17-novembre-2024.html)
+- **Temps passagèrement nuageux, ce lundi 18 novembre**: [Link](https://medias24.com/2024/11/17/temps-passagerement-nuageux-ce-lundi-18-novembre/)
+- **Météo du dimanche : pluie, orage et neige dans ces zones - HIBAPRESS**: [Link](https://fr.hibapress.com/news-147801.html)
+
+
 ### italie – france (N/A, Sun, 17 Nov 2024 10:50:00 -0800)
 
 - **Italie - France : après la frustration, enfin l'efficacité ?**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2024-2025/italie-france-apres-la-frustration-enfin-l-efficacite_sto10394701/story.shtml)
