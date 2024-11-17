@@ -1,3 +1,12 @@
+### miss danemark (N/A, Sun, 17 Nov 2024 09:30:00 -0800)
+
+- **Miss Danemark couronnée Miss Univers, Indira Ampiot dans le top 30**: [Link](https://www.20minutes.fr/arts-stars/culture/4121750-20241117-miss-univers-2024-miss-danemark-remporte-concours-indira-ampiot-top-30)
+- **Miss Univers 2024 : qui est la gagnante Victoria Kjær Theilvig, Miss 
+Danemark ?**: [Link](https://www.gala.fr/l_actu/news_de_stars/miss-univers-2024-qui-est-la-gagnante-victoria-kjaer-theilvig-miss-danemark_555989)
+- **Miss Univers 2024: Miss Danemark couronnée, la Française Indira Ampiot 
+termine dans le top 30**: [Link](https://www.bfmtv.com/people/miss-univers-2024-miss-danemark-couronnee-la-francaise-indira-ampiot-termine-dans-le-top-30_AN-202411170086.html)
+
+
 ### togo – guinée équatoriale (N/A, Sun, 17 Nov 2024 09:00:00 -0800)
 
 - **Dix équipes désormais qualifiées pour la CAN 2025 au Maroc**: [Link](https://fr.hespress.com/396204-dix-equipes-desormais-qualifiees-pour-la-can-2025-au-maroc.html)
