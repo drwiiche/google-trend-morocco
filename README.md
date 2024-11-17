@@ -1,3 +1,10 @@
+### الجزائر ضد ليبيريا (N/A, Sun, 17 Nov 2024 07:50:00 -0800)
+
+- **الموعد والقنوات الناقلة لمباراة الجزائر وليبيريا مباشر في تصفيات أمم أفريقيا**: [Link](https://www.almasryalyoum.com/news/details/3308168)
+- **مباشر.. مباراة الجزائر ضد ليبيريا في تصفيات أمم أفريقيا 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/17/algeria-can2025-liberia)
+- **زروقي يغادر معسكر الجزائر**: [Link](https://m.kooora.com/?n=1368520&o=n27102)
+
+
 ### maroc vs tunisie u17 (N/A, Sun, 17 Nov 2024 07:30:00 -0800)
 
 - **UNAF U17 et U20 / Maroc - Tunisie, double confrontation ce dimanche : 
