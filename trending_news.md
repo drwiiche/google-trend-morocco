@@ -1,3 +1,13 @@
+### crash avion algerie (N/A, Sun, 17 Nov 2024 01:40:00 -0800)
+
+- **157 morts dans le crash d’un avion de transport militaire en Algérie : 
+Quand l’omerta de la junte masque ses échecs et ses compromissions**: [Link](https://fr.le7tv.ma/2024/11/16/157-morts-dans-le-crash-dun-avion-de-transport-militaire-en-algerie-quand-lomerta-de-la-junte-masque-ses-echecs-et-ses-compromissions/)
+- **Algérie : Des membres du Polisario et de l’armée cubaine parmi les victimes 
+du crash d’avion**: [Link](https://www.yabiladi.com/articles/details/156315/algerie-membres-polisario-l-armee-cubaine.html)
+- **Algérie : Des membres du Polisario et de l’armée cubaine parmi les victimes 
+du crash d’avion**: [Link](https://www.msn.com/fr-fr/actualite/monde/alg%C3%A9rie-des-membres-du-polisario-et-de-l-arm%C3%A9e-cubaine-parmi-les-victimes-du-crash-d-avion/ar-AA1ud3Qx)
+
+
 ### zone-turf (N/A, Sun, 17 Nov 2024 01:30:00 -0800)
 
 - **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 4 Josh Power**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-4-josh-power-125988.html)
