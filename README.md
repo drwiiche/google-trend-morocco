@@ -1,3 +1,10 @@
+### toni kroos (N/A, Sat, 16 Nov 2024 14:10:00 -0800)
+
+- **Toni Kroos drops significant Real Madrid return hint**: [Link](https://www.90min.com/toni-kroos-real-madrid-return-hint)
+- **Toni Kroos Does Not Rule Out Returning To Real Madrid**: [Link](https://www.beinsports.com/en-us/soccer/articles-video/toni-kroos-does-not-rule-out-returning-to-real-madrid-2024-11-15)
+- **Retired Toni Kroos Doesn’t Rule Out Real Madrid Return**: [Link](https://www.forbes.com/sites/tomsanderson/2024/11/15/retired-toni-kroos-doesnt-rule-out-real-madrid-return/)
+
+
 ### rafael nadal (N/A, Sat, 16 Nov 2024 13:10:00 -0800)
 
 - **Where to Watch the Davis Cup? Follow It Live on Movistar Plus+**: [Link](https://www.footboom1.com/en/news/tennis/2067771-where-to-watch-the-davis-cup-follow-it-live-on-movistar-plus)
