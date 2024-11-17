@@ -1,3 +1,20 @@
+### gladiator 2 (N/A, Sun, 17 Nov 2024 10:10:00 -0800)
+
+- **‘Gladiator II’ Unleashes $87M In Overseas Bow; Biggest Ever Offshore Start 
+For A Ridley Scott-Directed Movie – International Box Office**: [Link](https://deadline.com/2024/11/gladiator-2-opening-weekend-international-box-office-ridley-scott-1236179583/)
+- **‘Gladiator II’ Scores Mighty $87 Million in International Box Office Debut**: [Link](https://www.aol.com/gladiator-ii-scores-mighty-87-171609600.html)
+- **Gladiator II review – Paul Mescal fends off sharks, rhinos and a 
+scenery-chewing Denzel Washington**: [Link](https://www.theguardian.com/film/2024/nov/17/gladiator-ii-review-paul-mescal-denzel-washington-ridley-scott-formulaic-sequel)
+
+
+### maroc u17 (N/A, Sun, 17 Nov 2024 09:00:00 -0800)
+
+- **"منتخب U20" ينتصر على تونس**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-u20-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%AA%D9%88%D9%86%D8%B3-1466441.html)
+- **المنتخب المغربي تحت 17 سنة يتعادل مع نظيره التونسي (2-2) في ثاني جولات 
+بطولة شمال أفريقيا المؤهلة لـ"الكان"**: [Link](https://m.elbotola.com/article/2024-11-17-17-01-974.html)
+- **الموعد والقنوات المجانية الناقلة لمباراتي المغرب ضد تونس**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/450575.html)
+
+
 ### maroc vs lesotho (N/A, Sun, 17 Nov 2024 09:50:00 -0800)
 
 - **Lancement de la vente des billets du match de l’équipe nationale contre le 
