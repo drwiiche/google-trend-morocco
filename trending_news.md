@@ -1,3 +1,10 @@
+### إنجلترا ضد أيرلندا (N/A, Sun, 17 Nov 2024 10:20:00 -0800)
+
+- **إنجلترا تنهي استعداداتها لملاقاة جمهورية أيرلندا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D8%AA%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87%D8%A7-%D9%84%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A3%D9%8A%D8%B1%D9%84%D9%86%D8%AF%D8%A7-2024-11-17)
+- **كارسلي: أوقفت احتفالات إنجلترا**: [Link](https://www.kooora.com/?n=1368340)
+- **الرسم التكتيكي لمنتخبي إنجلترا و أيرلندا في دوري الأمم الأوروبية**: [Link](https://hihi2.com/2024/11/17/p2939324.html)
+
+
 ### gladiator 2 (N/A, Sun, 17 Nov 2024 10:10:00 -0800)
 
 - **‘Gladiator II’ Unleashes $87M In Overseas Bow; Biggest Ever Offshore Start 
