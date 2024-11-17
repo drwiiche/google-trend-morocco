@@ -1,3 +1,19 @@
+### استقلال المغرب (N/A, Sun, 17 Nov 2024 13:00:00 -0800)
+
+- **عيد الاستقلال ..ذكرى خالدة تجسد تلاحم العرش والشعب**: [Link](https://ar.hibapress.com/details-574198.html)
+- **عطلة جديدة في انتظار المغاربة**: [Link](https://m.alayam24.com/articles-539242.html)
+- **الذكرى الـ69 لعودة جلالة المغفور له محمد الخامس من المنفى .. لحظة تاريخية 
+وازنة في مسيرة الكفاح الوطني لنيل الاستقلال**: [Link](https://www.maroc.ma/ar/%D8%A7%D9%84%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D9%8069-%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D9%81%D9%88%D8%B1-%D9%84%D9%87-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D9%81%D9%89-%D9%84%D8%AD%D8%B8%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%88%D8%A7%D8%B2%D9%86%D8%A9-%D9%81%D9%8A-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D9%81%D8%A7%D8%AD-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A)
+
+
+### nations league (N/A, Sun, 17 Nov 2024 11:50:00 -0800)
+
+- **England 5-0 Republic of Ireland: Hosts score five in second half to earn 
+Nations League promotion**: [Link](https://www.bbc.com/sport/football/live/c98envjpj72t)
+- **Harry Kane NOW 1/1 to have 2+ shots on target today**: [Link](https://www.dailymail.co.uk/sport/skybet/article-14037917/Harry-Kane-Republic-Ireland-England.html)
+- **Carsley has given Tuchel the solution to England's trickiest problem**: [Link](https://www.standard.co.uk/sport/football/england-carsley-tuchel-lewis-hall-left-back-b1194526.html)
+
+
 ### guendouzi (N/A, Sun, 17 Nov 2024 12:20:00 -0800)
 
 - **Lazio midfielder Guendouzi admits football and life in Italy surprising him**: [Link](https://www.tribalfootball.com/article/soccer-serie-a-lazio-midfielder-guendouzi-admits-football-and-life-in-italy-surprising-him-f64aa5b7-5570-4e7c-ad55-692b1a6c1401)
