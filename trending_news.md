@@ -1,3 +1,19 @@
+### zone-turf (N/A, Sun, 17 Nov 2024 01:30:00 -0800)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 4 Josh Power**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-4-josh-power-125988.html)
+- **Paris-Vincennes Prix Dejopeja**: [Link](https://www.paris-turf.com/course/paris-vincennes-prix-dejopeja-idc-2f17a8c84e57a49249386a72f854e542)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 3 In En Vrie**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-3-in-en-vrie-125972.html)
+
+
+### miss france 2025 (N/A, Sun, 17 Nov 2024 00:30:00 -0800)
+
+- **EN IMAGES - Miss France 2025 : découvrez les photos officielles des 30 
+candidates**: [Link](https://www.tf1info.fr/culture/programme-tf1-miss-france-2025-decouvrez-les-photos-officielles-des-30-candidates-2334365.html)
+- **PHOTOS – Miss France 2025 : votez pour votre candidate préférée**: [Link](https://www.francebleu.fr/infos/medias-people/photos-miss-france-2025-votez-pour-votre-candidate-preferee-1628657)
+- **Marine Futol - Miss Réunion 2024 : biographie, news, photos et videos - 
+Télé-Loisirs**: [Link](https://www.programme-tv.net/biographie/4061285-futol-miss-reunion-2024-marine/)
+
+
 ### vladimir poutine (N/A, Sat, 16 Nov 2024 18:50:00 -0800)
 
 - **Olaf Scholz reprend contact avec Vladimir Poutine et fâche l’Ukraine**: [Link](https://www.lemonde.fr/international/article/2024/11/16/guerre-en-ukraine-le-coup-de-fil-entre-olaf-scholz-et-vladimir-poutine-a-ouvert-la-boite-de-pandore-selon-volodymyr-zelensky_6396331_3210.html)
