@@ -1,3 +1,13 @@
+### crash avion militaire algerie (N/A, Sun, 17 Nov 2024 06:40:00 -0800)
+
+- **157 morts dans le crash d’un avion de transport militaire en Algérie : 
+Quand l’omerta de la junte masque ses échecs et ses compromissions**: [Link](https://fr.le7tv.ma/2024/11/16/157-morts-dans-le-crash-dun-avion-de-transport-militaire-en-algerie-quand-lomerta-de-la-junte-masque-ses-echecs-et-ses-compromissions/)
+- **Algérie : Des membres du Polisario et de l’armée cubaine parmi les victimes 
+du crash d’avion**: [Link](https://www.yabiladi.com/articles/details/156315/algerie-membres-polisario-l-armee-cubaine.html)
+- **L'écrasement d'un avion militaire algérien au nord-ouest du pays est une 
+information infondée**: [Link](https://www.barlamane.com/fr/lecrasement-dun-avion-militaire-algerien-au-nord-ouest-du-pays-est-une-information-infondee/)
+
+
 ### داليا فؤاد (N/A, Sun, 17 Nov 2024 06:30:00 -0800)
 
 - **ضجة كبيرة بعد اعتقال مذيعة شهيرة بسبب "مُخدر اغتصاب الفتيات"**: [Link](https://www.akhbarona.com/last/395876.html)
