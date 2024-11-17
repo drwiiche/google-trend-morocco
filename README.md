@@ -1,3 +1,12 @@
+### ufc (N/A, Sat, 16 Nov 2024 15:40:00 -0800)
+
+- **UFC 309 live updates: Time, streaming for Jones vs. Miocic card**: [Link](https://www.usatoday.com/story/sports/ufc/2024/11/16/ufc-309-live-results-fights-jones-miocic/76302656007/)
+- **Jon Jones vs. Stipe Miocic: How to watch UFC 309 tonight, full fight card 
+and more**: [Link](https://sports.yahoo.com/jon-jones-vs-stipe-miocic-how-to-watch-ufc-309-tonight-full-fight-card-and-more-175544814.html)
+- **Stipe Miocic ‘different’ from anyone Jon Jones has faced before: ‘He’ll 
+find out … I’m going to touch that chin’**: [Link](https://www.mmafighting.com/2024/11/16/24292370/stipe-miocic-jon-jones-im-different-anyone-hes-faced-hell-find-out-im-going-to-touch-that-chin)
+
+
 ### toni kroos (N/A, Sat, 16 Nov 2024 14:10:00 -0800)
 
 - **Toni Kroos drops significant Real Madrid return hint**: [Link](https://www.90min.com/toni-kroos-real-madrid-return-hint)
