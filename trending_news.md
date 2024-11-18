@@ -1,3 +1,10 @@
+### malawi – burkina faso (N/A, Mon, 18 Nov 2024 06:20:00 -0800)
+
+- **Malawi vs Burkina Faso: When, How to Watch, Plus Predicted Lineups**: [Link](https://www.moroccoworldnews.com/2024/11/366427/malawi-vs-burkina-faso-when-how-to-watch-plus-predicted-lineups)
+- **Flames Aiming for Redemption Against Stallions in Afcon Finale**: [Link](https://www.footboom1.com/en/news/football/2074546-flames-aiming-for-redemption-against-stallions-in-afcon-finale)
+- **Preview: Malawi vs. Burkina Faso - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/malawi/africa-cup-of-nations/preview/preview-malawi-vs-burkina-faso-prediction-team-news-lineups_558275.html)
+
+
 ### marcel desailly (N/A, Mon, 18 Nov 2024 06:00:00 -0800)
 
 - **DNA Test Confirms: Former Footballer Marcel Desailly is the Father of 
