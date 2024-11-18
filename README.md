@@ -1,3 +1,51 @@
+### portugal fc (N/A, Mon, 18 Nov 2024 12:00:00 -0800)
+
+- **Five Dynamo players feature for Ukraine U21 against Portugal**: [Link](https://fcdynamo.com/en/news/pyatero-dinamivciv-vzyali-ucast-u-matci-molodiznoyi-zbirnoyi-ukrayini-proti-portugaliyi)
+- **Cheapest 84, 85, 86, 87 and 88 rated players in EA FC 25**: [Link](https://www.oneesports.gg/gaming/cheapest-85-rated-players-in-fc-25-all/)
+- **Best EA FC 25 formations – win more games with these pro-player tactics**: [Link](https://www.mirror.co.uk/gaming/best-ea-fc-25-formations-34117946)
+
+
+### caf (N/A, Mon, 18 Nov 2024 12:00:00 -0800)
+
+- **‘I don’t care about awards,’ Boniface reacts to CAF Player of the Year snub**: [Link](https://punchng.com/i-dont-care-about-awards-boniface-reacts-to-caf-player-of-the-year-snub/)
+- **Hakimi, Lookman, Guirassy, Adingra, & Williams make #CAFAwards24 Top Five 
+Men’s Shortlist**: [Link](https://www.cafonline.com/news/hakimi-lookman-guirassy-adingra-williams-make-cafawards24-top-five-men-s-shortlist/)
+- **Lookman, Williams Among Candidates For African Award**: [Link](https://www.barrons.com/news/lookman-williams-among-candidates-for-african-award-04eee20f)
+
+
+### الطقس غدًا (N/A, Mon, 18 Nov 2024 11:50:00 -0800)
+
+- **رياح وفرص سقوط الأمطار مستمرة اليوم.. الأرصاد تكشف طقس الساعات المقبلة 
+وبيان درجات الحرارة**: [Link](https://www.almasryalyoum.com/news/details/3309161)
+- **سقوط أمطار.. حالة الطقس اليوم الاثنين 18-11-2024**: [Link](https://aboutmsr.com/%D8%B3%D9%82%D9%88%D8%B7-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-18-11-2024/)
+- **خليكم مستعدين.. «الأرصاد»: سقوط أمطار على هذه المحافظات خلال الـ72 ساعة 
+القادمة**: [Link](https://zahraa.mr/3579191/%D8%AE%D9%84%D9%8A%D9%83%D9%85-%D9%85%D8%B3%D8%AA%D8%B9%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B3%D9%82%D9%88%D8%B7-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B9%D9%84/)
+
+
+### diaz (N/A, Mon, 18 Nov 2024 11:50:00 -0800)
+
+- **Dana White Should Never Book Former Champion For Another Fight**: [Link](https://www.forbes.com/sites/brianmazique/2024/11/16/dana-white-should-never-book-former-champion-for-another-fight/)
+- **Nick Diaz's bizarre behavior and his girlfriend’s plea for help**: [Link](https://www.mmaweekly.com/news/nick-diazs-bizarre-behavior-and-his-girlfriends-plea-for-help)
+- **Nick Diaz reportedly pulls out of comeback fight against Vicente Luque at 
+UFC 310, with late replacement stepping in to take-on the Brazilian**: [Link](https://bloodyelbow.com/2024/11/16/nick-diaz-reportedly-pulls-out-of-comeback-fight-against-vicente-luque-at-ufc-310-with-late-replacement-stepping-in-to-take-on-the-brazilian/)
+
+
+### hakimi (N/A, Mon, 18 Nov 2024 11:50:00 -0800)
+
+- **Hakimi se perderá el partido contra Lesoto para regresar al PSG**: [Link](https://es.rue20.com/2024/11/17/hakimi-se-perdera-el-partido-contra-lesoto-para-regresar-al-psg/)
+- **PSG: Achraf Hakimi Liberado por Marruecos**: [Link](https://www.footboom1.com/es/news/football/2073746-psg-achraf-hakimi-released-by-morocco)
+- **Renovación en camino para una pieza del PSG**: [Link](https://www.fichajes.com/a4612120406333573740-renovacion-en-camino-para-una-pieza-del-psg)
+
+
+### match today (N/A, Mon, 18 Nov 2024 11:50:00 -0800)
+
+- **Rwanda stun Nigeria, Benin clinch final TotalEnergies CAF AFCON spot from 
+Group D**: [Link](https://www.cafonline.com/caf-africa-cup-of-nations/news/rwanda-stun-nigeria-benin-clinch-final-totalenergies-caf-afcon-spot-from-group-d/)
+- **Nigeria vs Rwanda: When, How to Watch, Predicted Lineup**: [Link](https://www.moroccoworldnews.com/2024/11/366434/nigeria-vs-rwanda-when-how-to-watch-predicted-lineup)
+- **Boniface, Iheanacho flop again, Chukwueze shines – Five takeaways from 
+Nigeria’s loss to Rwanda**: [Link](https://soccernet.ng/2024/11/boniface-iheanacho-flop-again-chukwueze-shines-five-takeaways-from-nigerias-loss-to-rwanda.html)
+
+
 ### can 2025 (N/A, Mon, 18 Nov 2024 11:40:00 -0800)
 
 - **TotalEnergies CAF AFCON 2025: 21 countries secure tickets for Morocco**: [Link](https://www.cafonline.com/caf-africa-cup-of-nations/news/totalenergies-caf-afcon-2025-21-countries-secure-tickets-for-morocco/)
