@@ -1,3 +1,10 @@
+### roi mohammed 6 paris (N/A, Sun, 17 Nov 2024 23:40:00 -0800)
+
+- **En image. Le Roi Mohammed VI en bonne santé lors de son déplacement à Paris**: [Link](https://www.h24info.ma/en-image-le-roi-mohammed-vi-en-bonne-sante-lors-de-son-deplacement-a-paris/)
+- **Le roi Mohammed VI en visite en France**: [Link](https://www.bladi.net/roi-maroc-paris-bequille-marocains-rassures,111598.html)
+- **Mohammed VI en jean fleuri dans un grand magasin à Paris**: [Link](https://www.tsa-algerie.com/mohammed-vi-en-jean-fleuri-dans-un-grand-magasin-a-paris/)
+
+
 ### malawi – burkina faso (N/A, Mon, 18 Nov 2024 06:20:00 -0800)
 
 - **Malawi vs Burkina Faso: When, How to Watch, Plus Predicted Lineups**: [Link](https://www.moroccoworldnews.com/2024/11/366427/malawi-vs-burkina-faso-when-how-to-watch-plus-predicted-lineups)
