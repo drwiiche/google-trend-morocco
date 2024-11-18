@@ -1,3 +1,10 @@
+### ghana – niger (N/A, Mon, 18 Nov 2024 07:40:00 -0800)
+
+- **Niger vs Ghana: Where and How to Watch AFCON Qualifier Game**: [Link](https://www.moroccoworldnews.com/2024/11/366432/niger-vs-ghana-where-and-how-to-watch-afcon-qualifier-game)
+- **Frustrated Fans Demand Boycott Ahead of Black Stars' Clash with Niger**: [Link](https://www.footboom1.com/en/news/football/2075842-frustrated-fans-demand-boycott-ahead-of-black-stars-clash-with-niger)
+- **Otto Addo makes six changes to starting lineup for Niger qualifier**: [Link](https://www.ghanafa.org/otto-addo-makes-six-changes-to-starting-lineup-for-niger-qualifier)
+
+
 ### roi mohammed 6 paris (N/A, Sun, 17 Nov 2024 23:40:00 -0800)
 
 - **En image. Le Roi Mohammed VI en bonne santé lors de son déplacement à Paris**: [Link](https://www.h24info.ma/en-image-le-roi-mohammed-vi-en-bonne-sante-lors-de-son-deplacement-a-paris/)
