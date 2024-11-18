@@ -1,3 +1,9 @@
+### marcel desailly (N/A, Mon, 18 Nov 2024 06:00:00 -0800)
+
+- **DNA Test Confirms: Former Footballer Marcel Desailly is the Father of 
+10-Year-Old Victoria**: [Link](https://www.footboom1.com/en/news/football/2074923-dna-test-confirms-former-footballer-marcel-desailly-is-the-father-of-10-year-old-victoria)
+
+
 ### ukraine (N/A, Mon, 18 Nov 2024 03:20:00 -0800)
 
 - **Ukraine: Fury in Russia at missile move but Putin so far silent**: [Link](https://www.bbc.com/news/articles/cvg5l1220zxo)
