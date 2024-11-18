@@ -1,3 +1,11 @@
+### portugal (N/A, Mon, 18 Nov 2024 12:30:00 -0800)
+
+- **Por que Cristiano Ronaldo não está jogando em Portugal x Croácia?**: [Link](https://www.sportingnews.com/br/futebol/noticias/por-que-cristiano-ronaldo-nao-esta-jogando-portugal-croacia/aed1e55930c19f7e5fe85fd6)
+- **Liga das Nações: Um Dia Especial para a Croácia em um Estádio Memorável 
+para Portugal**: [Link](https://www.footboom1.com/br/news/football/2074497-nations-league-a-special-day-for-croatia-in-a-memorable-stadium-for-portugal)
+- **Martínez faz sete alterações e estreia Tomás Araújo frente à Croácia**: [Link](https://www.rtp.pt/noticias/selecao-nacional/martinez-faz-sete-alteracoes-e-estreia-tomas-araujo-frente-a-croacia_d1615750)
+
+
 ### coupe d'afrique (N/A, Mon, 18 Nov 2024 12:10:00 -0800)
 
 - **Coupe d’Afrique de rugby : Le XV national déterminé à se qualifier à la 
