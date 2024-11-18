@@ -1,3 +1,40 @@
+### croatie – portugal (N/A, Mon, 18 Nov 2024 11:00:00 -0800)
+
+- **« Ce sera peut-être encore plus dur d'affronter le Portugal sans Ronaldo », 
+Luka Modric (Croatie)**: [Link](https://www.lequipe.fr/Football/Actualites/-ce-sera-peut-etre-encore-plus-dur-d-affronter-le-portugal-sans-ronaldo-luka-modric-croatie/1521098)
+- **Cristiano Ronaldo, absence confirmée !**: [Link](https://www.football365.fr/cristiano-ronaldo-absence-confirmee-10213723.html)
+- **Matchs Aujourd'hui, Lundi 18 Novembre 2024 : Horaires et Chaînes de 
+Télévision pour Suivre EN VIVO la Ligue des Nations**: [Link](https://www.footboom1.com/fr/news/football/2074288-matches-today-monday-november-18-2024-timings-and-tv-channels-to-watch-en-vivo-nations-league)
+
+
+### bein sport (N/A, Mon, 18 Nov 2024 11:00:00 -0800)
+
+- **"متع نفسك" تردد قناة beIN Sports على مختلف الأقمار الصناعية 2024 بجودة مميزة**: [Link](https://ar.fekrafn.com/%D9%85%D8%AA%D8%B9-%D9%86%D9%81%D8%B3%D9%83-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-%D8%B9%D9%84%D9%89-%D9%85%D8%AE%D8%AA%D9%84%D9%81-%D8%A7%D9%84%D8%A3%D9%82%D9%85%D8%A7/)
+- **تردد قناة بي إن سبورت الناقلة لجميع المبارايات العالمية والمحلية**: [Link](https://news.elsob7.com/1254785/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D8%A7%D9%84%D9%85/)
+- **"استقبل الآن".. تردد قناة بي ان سبورت 1 و 2 علي الأقمار الصناعية بجودة hd 
+وكيفية الضبط علي التلفاز**: [Link](https://s3ody.net/2650/%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A2%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-1-%D9%88-2-%D8%B9%D9%84/)
+
+
+### بث مباشر (N/A, Mon, 18 Nov 2024 11:00:00 -0800)
+
+- **موعد مباراة كرواتيا والبرتغال في دوري الأمم الأوروبية 2024-2025 والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1368653)
+- **مدرب البرتغال يمدح لوكا مودريتش**: [Link](https://hihi2.com/2024/11/18/p2940471.html)
+- **البرتغال تحل ضيفةً على كرواتيا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%AA%D8%AD%D9%84-%D8%B6%D9%8A%D9%81%D8%A9-%D8%B9%D9%84%D9%89-%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7-2024-11-18)
+
+
+### espagne – suisse (N/A, Mon, 18 Nov 2024 10:50:00 -0800)
+
+- **Pronostic Espagne - Suisse, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/espagne-suisse-228346/)
+- **Football: Yvon Mvogo vise toujours le poste de numéro 1 avec la Nati**: [Link](https://www.blick.ch/fr/sport/football/le-fribourgeois-ne-lache-rien-yvon-mvogo-jattends-ma-chance-id20330467.html)
+- **Une Tâche Quasi Insurmontable Attend la Nati**: [Link](https://www.footboom1.com/fr/news/football/2074216-an-almost-insurmountable-task-awaits-the-nati)
+
+
+### arryadia (N/A, Mon, 18 Nov 2024 10:50:00 -0800)
+
+
+
+
 ### central african republic vs gabon (N/A, Mon, 18 Nov 2024 10:40:00 -0800)
 
 - **Preview: Central African Republic vs. Gabon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/central-african-republic/africa-cup-of-nations/preview/preview-car-vs-gabon-prediction-team-news-lineups_558286.html)
