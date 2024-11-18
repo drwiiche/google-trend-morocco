@@ -1,3 +1,19 @@
+### المغرب (N/A, Mon, 18 Nov 2024 09:40:00 -0800)
+
+- **أبو خلال لكووورة: عودتي للمنتخب أنصفت تضحياتي**: [Link](https://m.kooora.com/?n=1368958&o=ncma)
+- **الركراكي يضطر إلى إجراء تغييرات في تشكيلة "الأسود" خلال مواجهة ليسوتو**: [Link](https://www.akhbarona.com/sport/lionatlas/395907.html)
+- **الركراكي يختتم استعدادات المنتخب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-1466530.html)
+
+
+### match maroc lesotho (N/A, Mon, 18 Nov 2024 03:10:00 -0800)
+
+- **Maroc - Lesotho : À quelle heure et sur quelle chaîne regarder le match ce 
+lundi ?**: [Link](https://www.20minutes.fr/guide-achat/4121756-20241118-maroc-lesotho-heure-chaine-regarder-match-lundi)
+- **Eliminatoires CAN-Maroc 2025 : composition du Maroc face au Lesoth**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D8%B3%D9%88%D8%AA%D9%88/)
+- **Achraf Hakimi quitte le camp de l'équipe nationale avant le match contre le 
+Lesotho**: [Link](https://fr.hespress.com/396705-achraf-hakimi-quitte-le-camp-de-lequipe-nationale-avant-le-match-contre-le-lesotho.html)
+
+
 ### ليسوتو (N/A, Mon, 18 Nov 2024 09:20:00 -0800)
 
 - **الركراكي يختتم استعدادات المنتخب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-1466530.html)
