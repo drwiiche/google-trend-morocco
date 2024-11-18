@@ -1,3 +1,12 @@
+### ligue des nations (N/A, Mon, 18 Nov 2024 13:40:00 -0800)
+
+- **Italie 1-3 France : décevante ou prometteuse... quel bilan tirent les Bleus 
+de leur année 2024**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/italie-1-3-france-decevante-ou-prometteuse-quel-bilan-tirent-les-bleus-de-leur-annee-2024_VN-202411180313.html)
+- **Italie 1-3 France, Ligue des nations A : résumé du match (17/11/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/italie-france-live/632630)
+- **«Belle soirée», message à Mbappé, «fierté»... Les mots de Deschamps après 
+Italie-France**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-nations/belle-soiree-message-a-mbappe-fierte-les-mots-de-deschamps-apres-italie-france-20241118)
+
+
 ### نتائج مباريات اليوم (N/A, Mon, 18 Nov 2024 13:40:00 -0800)
 
 - **مواعيد مباريات اليوم.. قمة كرواتيا مع البرتغال ومواجهات تصفيات أفريقيا**: [Link](https://www.youm7.com/story/2024/11/18/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%82%D9%85%D8%A9-%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/6779277)
