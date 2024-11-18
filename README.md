@@ -1,3 +1,29 @@
+### central african republic vs gabon (N/A, Mon, 18 Nov 2024 10:40:00 -0800)
+
+- **Preview: Central African Republic vs. Gabon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/central-african-republic/africa-cup-of-nations/preview/preview-car-vs-gabon-prediction-team-news-lineups_558286.html)
+- **When, How to Watch Central African Republic vs Gabon AFCON Qualifier**: [Link](https://www.moroccoworldnews.com/2024/11/366438/when-how-to-watch-central-african-republic-vs-gabon-afcon-qualifier)
+- **Central African Republic vs Gabon: How to stream and receive the best 
+betting offers**: [Link](https://www.101greatgoals.com/live-streaming/football-matches/central-african-republic-vs-gabon-how-to-stream-and-receive-the-best-betting-offers/)
+
+
+### alphonso davies (N/A, Mon, 18 Nov 2024 10:40:00 -0800)
+
+- **Transfer Update: Where Bayern Munich stands with Leroy Sané, Kingsley 
+Coman, and Serge Gnabry**: [Link](https://www.bavarianfootballworks.com/2024/11/14/24295094/bayern-munich-transfer-update-leroy-sane-kingsley-coman-serge-gnabry-arsenal-manchester-united)
+- **The 3 stars that Bayern Munich could lose**: [Link](https://www.fichajes.net/en/news/the-3-stars-that-bayern-munich-could-lose-20241118.html)
+- **Burnley FC action with Koleosho looks shrewd amid new Bayern Munich update**: [Link](https://footballleagueworld.co.uk/burnley-fc-action-with-koleosho-looks-shrewd-amid-new-bayern-munich-update/)
+
+
+### جمهورية أفريقيا الوسطى ضد الغابون (N/A, Mon, 18 Nov 2024 10:30:00 -0800)
+
+- **"مباراة التأهل".. موعد والقنوات الناقلة مباراة جمهورية أفريقيا الوسطى ضد 
+الغابون في التصفيات المؤهلة لكأس أمم افريقيا 2025**: [Link](https://s3ody.net/2594/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/)
+- **فرص الغابون المتألقة في بلوغ كأس الأمم الأفريقية 2025 قبل صدامها المرتقب مع 
+أفريقيا الوسطى اليوم!**: [Link](https://ar.fekrafn.com/%D9%81%D8%B1%D8%B5-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%84%D9%82%D8%A9-%D9%81%D9%8A-%D8%A8%D9%84%D9%88%D8%BA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85/)
+- **القنوات الناقلة لمباراة جمهورية أفريقيا الوسطى والغابون عبر جميع الأقمار 
+الصناعية المختلفة**: [Link](https://s3ody.net/4023/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A3%D9%81%D8%B1%D9%8A/)
+
+
 ### marruecos - lesoto (N/A, Mon, 18 Nov 2024 10:30:00 -0800)
 
 - **Regragui culmina los preparativos de la selección marroquí para el duelo 
