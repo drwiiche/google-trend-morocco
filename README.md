@@ -1,3 +1,37 @@
+### إبراهيم دياز (N/A, Mon, 18 Nov 2024 11:20:00 -0800)
+
+- **صحيفة إسبانية تصف الألمعي ابراهيم بالقديس**: [Link](https://www.almountakhab.com/node/16206662)
+- **لقطة بين إبراهيم دياز ولاعب الغابون تثير تفاعلاً**: [Link](https://arabic.cnn.com/sport/article/2024/11/16/brahim-diaz-player-morocco-gabon-match)
+- **صورة : تأثير إبراهيم دياز في منتخب المغرب**: [Link](https://hihi2.com/2024/11/18/p2940558.html)
+
+
+### match live (N/A, Mon, 18 Nov 2024 11:20:00 -0800)
+
+- **Ireland’s dangerous precedent and promotion for England**: [Link](https://www.theguardian.com/football/2024/nov/18/football-daily-email-england-republic-of-ireland)
+- **England 5-0 Republic of Ireland: Heimir Hallgrimsson 'lost for words' after 
+Wembley collapse**: [Link](https://www.bbc.com/sport/football/articles/c5yx5y4lv2eo)
+- **England 5-0 Republic of Ireland: Lee Carsley goes out on a high as Three 
+Lions promoted back to League A of UEFA Nations League**: [Link](https://www.skysports.com/football/england-vs-rep-ire/report/503657)
+
+
+### kooora tv (N/A, Mon, 18 Nov 2024 11:20:00 -0800)
+
+
+
+
+### coupe d'afrique 2025 (N/A, Mon, 18 Nov 2024 11:20:00 -0800)
+
+- **Éliminatoires de la CAN 2025: voici les 19 pays déjà qualifiés et les 5 
+places restant à pourvoir lors de la 6e journée**: [Link](https://afrique.le360.ma/sports/eliminatoires-de-la-can-2025-voici-les-19-pays-deja-qualifies-et-les-5-places-restant-a-a-pourvoir_7ZEBHJ7LBJDNVDWTHYCXPOZLVY/)
+- **CAN 2025: Guinée, Bénin, Mauritanie, Niger, pour qui les derniers billets ?**: [Link](https://www.rfi.fr/fr/afrique-foot/20241117-can-2025-guin%C3%A9e-b%C3%A9nin-mauritanie-niger-pour-qui-les-derniers-billets)
+- **Eliminatoires CAN 2025: Voici le programme de la 6ème et dernière journée**: [Link](https://fr.hespress.com/396642-eliminatoires-can-2025-voici-le-programme-de-la-6eme-et-derniere-journee.html)
+
+
+### مباريات اليوم مباشر (N/A, Mon, 18 Nov 2024 11:10:00 -0800)
+
+
+
+
 ### koora (N/A, Mon, 18 Nov 2024 11:10:00 -0800)
 
 - **حكيمي ممثل المغرب في جائزة الأفضل**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%85%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D8%A7%D9%84%D8%A3%D9%81%D8%B6%D9%84-1466972.html)
