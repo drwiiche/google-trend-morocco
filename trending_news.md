@@ -1,3 +1,10 @@
+### mohammed vi paris (N/A, Sun, 17 Nov 2024 23:20:00 -0800)
+
+- **En image. Le Roi Mohammed VI en bonne santé lors de son déplacement à Paris**: [Link](https://www.h24info.ma/en-image-le-roi-mohammed-vi-en-bonne-sante-lors-de-son-deplacement-a-paris/)
+- **Le roi Mohammed VI en visite en France**: [Link](https://www.bladi.net/roi-maroc-paris-bequille-marocains-rassures,111598.html)
+- **Mohammed VI en jean fleuri dans un grand magasin à Paris**: [Link](https://www.tsa-algerie.com/mohammed-vi-en-jean-fleuri-dans-un-grand-magasin-a-paris/)
+
+
 ### achraf hakimi (N/A, Sun, 17 Nov 2024 15:20:00 -0800)
 
 - **Hakimi se perderá el partido contra Lesoto para regresar al PSG**: [Link](https://es.rue20.com/2024/11/17/hakimi-se-perdera-el-partido-contra-lesoto-para-regresar-al-psg/)
