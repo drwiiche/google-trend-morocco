@@ -1,3 +1,17 @@
+### ukraine (N/A, Mon, 18 Nov 2024 03:20:00 -0800)
+
+- **Ukraine: Fury in Russia at missile move but Putin so far silent**: [Link](https://www.bbc.com/news/articles/cvg5l1220zxo)
+- **Biden Allows Ukraine to Strike Russia With Long-Range U.S. Missiles**: [Link](https://www.nytimes.com/2024/11/17/us/politics/biden-ukraine-russia-atacms-missiles.html)
+- **Biden lifts ban on Ukraine using US weapons to strike deeper into Russia**: [Link](https://www.theguardian.com/world/2024/nov/17/biden-has-lifted-ban-on-ukraine-using-us-weapons-to-strike-deeper-into-russia-reports)
+
+
+### lesotho (N/A, Mon, 18 Nov 2024 01:40:00 -0800)
+
+- **Preview: Morocco vs. Lesotho - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/morocco/africa-cup-of-nations/preview/preview-morocco-vs-lesotho-prediction-team-news-lineups_558285.html)
+- **PSG: Achraf Hakimi Released by Morocco**: [Link](https://www.footboom1.com/en/news/football/2073746-psg-achraf-hakimi-released-by-morocco)
+- **Regragui warns against complacency in upcoming Lesotho encounter**: [Link](https://supersport.com/football/general/news/5f68c334-c9ed-47bf-acd8-f0704185b722/regragui-warns-against-complacency-in-upcoming-lesotho-encounter)
+
+
 ### benjamin netanyahu (N/A, Mon, 18 Nov 2024 02:40:00 -0800)
 
 - **What’s New in the Case of the Document Leaks Roiling Israel**: [Link](https://www.nytimes.com/2024/11/17/world/middleeast/israel-document-leaks.html)
