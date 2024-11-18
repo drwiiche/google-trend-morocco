@@ -1,3 +1,10 @@
+### الملك محمد السادس (N/A, Sun, 17 Nov 2024 23:40:00 -0800)
+
+- **جلالة الملك يظهر في أحد مراكز التسوق بباريس**: [Link](https://kech24.com/%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B8%D9%87%D8%B1-%D9%81%D9%8A-%D8%A3%D8%AD%D8%AF-%D9%85%D8%B1%D8%A7%D9%83%D8%B2-%D8%A7%D9%84%D8%AA%D8%B3%D9%88%D9%82-%D8%A8%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3.html)
+- **ظهور جديد للملك في باريس يُخرس أفواه إعلام دولة "العالم الآخر" (صورة)**: [Link](https://www.akhbarona.com/social/395889.html)
+- **الملك محمد السادس يظهر بصحة جيدة يتجول في باريس بدون عكاز طبي**: [Link](https://rue20.com/855103.html)
+
+
 ### mohammed vi paris (N/A, Sun, 17 Nov 2024 23:20:00 -0800)
 
 - **En image. Le Roi Mohammed VI en bonne santé lors de son déplacement à Paris**: [Link](https://www.h24info.ma/en-image-le-roi-mohammed-vi-en-bonne-sante-lors-de-son-deplacement-a-paris/)
