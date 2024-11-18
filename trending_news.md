@@ -1,3 +1,12 @@
+### benjamin netanyahu (N/A, Mon, 18 Nov 2024 02:40:00 -0800)
+
+- **What’s New in the Case of the Document Leaks Roiling Israel**: [Link](https://www.nytimes.com/2024/11/17/world/middleeast/israel-document-leaks.html)
+- **Netanyahu aide leaked stolen doc to try to ‘skew hostage deal debate’ in 
+PM’s favor**: [Link](https://www.timesofisrael.com/netanyahu-aide-leaked-stolen-doc-to-try-to-skew-hostage-deal-debate-in-pms-favor/)
+- **With More BibiLeaks Revelations, the Question Remains: Did Netanyahu's Aide 
+Act Alone?**: [Link](https://www.haaretz.com/israel-news/2024-11-18/ty-article/.premium/did-netanyahu-aide-arrested-in-bibileaks-affair-really-run-anti-hostage-campaign-alone/00000193-3bb5-df68-a1db-bffda6650000)
+
+
 ### هسبريس (N/A, Sun, 17 Nov 2024 22:40:00 -0800)
 
 
