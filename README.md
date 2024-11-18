@@ -1,3 +1,41 @@
+### marruecos - lesoto (N/A, Mon, 18 Nov 2024 10:30:00 -0800)
+
+- **Regragui culmina los preparativos de la selección marroquí para el duelo 
+ante Lesoto**: [Link](https://es.rue20.com/2024/11/17/regragui-culmina-los-preparativos-de-la-seleccion-marroqui-para-el-duelo-ante-lesoto/)
+- **Marruecos - Lesoto, en directo | Clasificación a la Copa África, hoy en vivo**: [Link](https://www.marca.com/futbol/futbol-internacional/2024/11/18/673b7fa2f49425d14d3ee3ca-directo.html)
+- **Partido Marruecos - Lesoto: ¿A qué hora y en qué canal?**: [Link](https://www.footboom1.com/es/news/football/2075144-match-morocco-lesotho-what-time-and-on-which-channel)
+
+
+### africa cup of nations qualification (N/A, Mon, 18 Nov 2024 10:30:00 -0800)
+
+- **Back-to-Back Defeats for the Elephants: Idriss Diallo’s Strong Message 
+Ahead of CIV vs Chad**: [Link](https://www.footboom1.com/en/news/football/2075610-back-to-back-defeats-for-the-elephants-idriss-diallo-s-strong-message-ahead-of-civ-vs-chad)
+- **CAN 2025 (Q): Where and How to Buy Your Tickets for Ivory Coast vs. Chad?**: [Link](https://www.footboom1.com/en/news/football/2076262-can-2025-q-where-and-how-to-buy-your-tickets-for-ivory-coast-vs-chad)
+- **Kenya seeking third straight win against Namibia**: [Link](https://supersport.com/football/general/news/65c2d92a-4ff4-4eab-b68e-d6e022f27de2/kenya-seeking-third-straight-win-against-namibia)
+
+
+### maroc – lesotho (N/A, Mon, 18 Nov 2024 10:10:00 -0800)
+
+- **Eliminatoires CAN-Maroc 2025 : composition du Maroc face au Lesoth**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D8%B3%D9%88%D8%AA%D9%88/)
+- **Elim CAN 2025 : Regragui dévoile son onze de départ face au Lesotho**: [Link](https://fr.hespress.com/396870-elim-can-2025-regragui-devoile-son-onze-de-depart-face-au-lesotho.html)
+- **Maroc-Lesotho: le onze de départ des Lions de l’Atlas, avec Aznou**: [Link](https://sport.le360.ma/football/can/maroc-lesotho-le-onze-de-depart-des-lions-de-latlas-avec-aznou_VVVQRDP4PJGRRP5I6X24TA55IM/)
+
+
+### morocco vs lesotho (N/A, Mon, 18 Nov 2024 09:00:00 -0800)
+
+- **Morocco vs Lesotho: When, How to Watch, Plus Rising Stars to Look Out For 
+in AFCON Qualifier**: [Link](https://www.moroccoworldnews.com/2024/11/366439/morocco-vs-lesotho-when-how-to-watch-plus-rising-stars-to-look-out-for-in-afcon-qualifier)
+- **Preview: Morocco vs. Lesotho - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/morocco/africa-cup-of-nations/preview/preview-morocco-vs-lesotho-prediction-team-news-lineups_558285.html)
+- **PSG: Achraf Hakimi Released by Morocco**: [Link](https://www.footboom1.com/en/news/football/2073746-psg-achraf-hakimi-released-by-morocco)
+
+
+### le roi mohammed vi à paris (N/A, Mon, 18 Nov 2024 07:20:00 -0800)
+
+- **En image. Le Roi Mohammed VI en bonne santé lors de son déplacement à Paris**: [Link](https://www.h24info.ma/en-image-le-roi-mohammed-vi-en-bonne-sante-lors-de-son-deplacement-a-paris/)
+- **Le roi Mohammed VI en visite en France**: [Link](https://www.bladi.net/roi-maroc-paris-bequille-marocains-rassures,111598.html)
+- **Mohammed VI en jean fleuri dans un grand magasin à Paris**: [Link](https://www.tsa-algerie.com/mohammed-vi-en-jean-fleuri-dans-un-grand-magasin-a-paris/)
+
+
 ### nigeria – rwanda (N/A, Mon, 18 Nov 2024 09:40:00 -0800)
 
 - **Nigeria vs Rwanda: When, How to Watch, Predicted Lineup**: [Link](https://www.moroccoworldnews.com/2024/11/366434/nigeria-vs-rwanda-when-how-to-watch-predicted-lineup)
