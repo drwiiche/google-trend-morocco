@@ -1,3 +1,42 @@
+### إسبانيا ضد سويسرا (N/A, Mon, 18 Nov 2024 11:30:00 -0800)
+
+- **تشكيلة إسبانيا الاساسية لمواجهة سويسرا في دوري الامم الاوروبية**: [Link](https://hihi2.com/2024/11/18/p2940989.html)
+- **دي لا فوينتي: عام 2024 كان موسم الأحلام**: [Link](https://m.kooora.com/?n=1368889&o=n)
+- **منتخب إسبانيا يواجه سويسرا دون ضغوط**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B3%D9%88%D9%8A%D8%B3%D8%B1%D8%A7-%D8%AF%D9%88%D9%86-%D8%B6%D8%BA%D9%88%D8%B7-2024-11-18)
+
+
+### spain vs switzerland (N/A, Mon, 18 Nov 2024 11:30:00 -0800)
+
+- **Preview: Spain vs. Switzerland - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spain/uefa-nations-league/preview/preview-spain-vs-switzerland-prediction-team-news-lineups_558250.html)
+- **An Almost Insurmountable Task Awaits the Nati**: [Link](https://www.footboom1.com/en/news/football/2074216-an-almost-insurmountable-task-awaits-the-nati)
+- **Luis de la Fuente: Spain determined to sign off with UEFA Nations League 
+win v Switzerland**: [Link](https://sports.yahoo.com/luis-la-fuente-spain-determined-190200775.html)
+
+
+### كاس افريقيا 2025 (N/A, Mon, 18 Nov 2024 11:30:00 -0800)
+
+- **3 منتخبات عربية تطارد الفرصة الأخيرة للظهور في كان المغرب**: [Link](https://www.kooora.com/?n=1368654)
+- **هكذا يتأهل السودان وليبيا وموريتانيا إلى كأس أفريقيا 2025**: [Link](https://www.aljazeera.net/sport/2024/11/18/can2025-sudan-mauritania-libya)
+- **قائمة المنتخبات المتأهلة إلى كأس أمم أفريقيا "المغرب 2025"**: [Link](https://ar.hibapress.com/details-574417.html)
+
+
+### ملعب الحسيمة (N/A, Mon, 18 Nov 2024 11:30:00 -0800)
+
+- **أول مباراة دولية في ملعب الحسيمة**: [Link](https://www.hespress.com/%D8%A3%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AF%D9%88%D9%84%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%85%D8%A9-1466157.html)
+- **أول مباراة دولية في الملعب الكبير للحسيمة**: [Link](https://www.akhbarona.com/national/395920.html)
+- **صور ومَشاهِد جوية: شموخ الملاعب المغربية.. شاهدوا ملعب الحسيمة الكبير 
+قُبيْل افتتاحه**: [Link](https://ar.le360.ma/sports/IJCQNKIWLZCEPF4EPFXQRQ24VE/)
+
+
+### live (N/A, Mon, 18 Nov 2024 11:30:00 -0800)
+
+- **Laken Riley went for a morning jog. Less than 30 minutes later, she was 
+dead. What we know about her final moments**: [Link](https://www.cnn.com/2024/11/17/us/laken-riley-killing-final-moments-timeline/index.html)
+- **Laken Riley case: Man waives jury trial in killing of Georgia nursing 
+student**: [Link](https://apnews.com/article/georgia-student-killed-immigration-trump-ef36ef9b2bb0a699aa010f096449b051)
+- **Crime Scene Specialist Testifies In Jose Ibarra Trial**: [Link](https://www.inkl.com/news/crime-scene-specialist-testifies-in-jose-ibarra-trial)
+
+
 ### إبراهيم دياز (N/A, Mon, 18 Nov 2024 11:20:00 -0800)
 
 - **صحيفة إسبانية تصف الألمعي ابراهيم بالقديس**: [Link](https://www.almountakhab.com/node/16206662)
