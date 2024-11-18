@@ -1,3 +1,29 @@
+### coupe d'afrique (N/A, Mon, 18 Nov 2024 12:10:00 -0800)
+
+- **Coupe d’Afrique de rugby : Le XV national déterminé à se qualifier à la 
+phase finale**: [Link](https://www.menara.ma/fr/article/coupe-dafrique-de-rugby-le-xv-national-determine-a-se-qualifier-a-la-phase-finale)
+- **Rugby à XV – Coupe d’Afrique: les Makis joueront leur demi-finale contre le 
+Botswana**: [Link](https://newsmada.com/2024/11/18/rugby-a-xv-coupe-dafrique-les-makis-joueront-leur-demi-finale-contre-le-botswana/)
+- **Casablanca accueillera dès après-demain 18 au 24 novembre les éliminatoires 
+de la Coupe d'Afrique de**: [Link](https://fr.hibapress.com/news-147230.html)
+
+
+### portugal foot (N/A, Mon, 18 Nov 2024 12:00:00 -0800)
+
+- **Manchester United star set for early return after UEFA Nations League win**: [Link](https://strettynews.com/2024/11/16/bruno-fernandes-manchester-united-return-after-uefa-nations-win/)
+- **Another Insane Cristiano Ronaldo Milestone Ready to Drop**: [Link](https://extratimetalk.com/cristiano-ronaldo-insane-milestone/)
+- **Fans Marvel at Ronaldo's Incredible Overhead Kick in Portugal's Win Over 
+Poland**: [Link](https://www.msn.com/en-xl/africa/kenya/fans-marvel-at-ronaldo-s-incredible-overhead-kick-in-portugal-s-win-over-poland/ar-AA1udiW6)
+
+
+### الرياضية مباشر (N/A, Mon, 18 Nov 2024 11:40:00 -0800)
+
+- **مدرب منتخب تونس تحت 17 سنة: "استغلينا نقاط ضعف المغرب وليس من السهل أن تكون 
+متأخرا ثم تسجل هدف التعادل"**: [Link](https://m.elbotola.com/article/2024-11-18-13-30-600.html)
+- **"أشبال U17" يتعادلون مع التونسيين**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-u17-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D9%88%D9%86-%D9%85%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A%D9%8A%D9%86-1466494.html)
+- **المنتخب المغربي لأقل من 20 سنة يفوز على تونس في بطولة شمال أفريقيا**: [Link](https://ar.hibapress.com/details-574322.html)
+
+
 ### portugal fc (N/A, Mon, 18 Nov 2024 12:00:00 -0800)
 
 - **Five Dynamo players feature for Ukraine U21 against Portugal**: [Link](https://fcdynamo.com/en/news/pyatero-dinamivciv-vzyali-ucast-u-matci-molodiznoyi-zbirnoyi-ukrayini-proti-portugaliyi)
