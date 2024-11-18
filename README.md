@@ -1,3 +1,10 @@
+### تصفيات كاس افريقيا 2025 (N/A, Mon, 18 Nov 2024 12:10:00 -0800)
+
+- **ليبيا تفشل في بلوغ نهائيات إفريقيا**: [Link](https://www.hespress.com/%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%AA%D9%81%D8%B4%D9%84-%D9%81%D9%8A-%D8%A8%D9%84%D9%88%D8%BA-%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-1466982.html)
+- **منتخب عربي يغيب عن كأس إفريقيا 2025 بالمغرب**: [Link](https://www.akhbarona.com/sport/worldfoot/395951.html)
+- **تشكيل ليبيا المتوقع في مباراة الحسم**: [Link](https://www.kooora.com/?n=1368868&o=n27102)
+
+
 ### spain vs (N/A, Mon, 18 Nov 2024 13:00:00 -0800)
 
 - **Spain vs. Switzerland (Nov 18, 2024) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/699023)
