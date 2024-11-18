@@ -1,3 +1,65 @@
+### koora (N/A, Mon, 18 Nov 2024 11:10:00 -0800)
+
+- **حكيمي ممثل المغرب في جائزة الأفضل**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%85%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D8%A7%D9%84%D8%A3%D9%81%D8%B6%D9%84-1466972.html)
+- **الكاف تستمر في فضائح جوائزها**: [Link](https://www.almountakhab.com/node/16206669)
+- **جوائز "كاف".. نهضة بركان حاضر في القائمة المختصرة لأفضل فريق**: [Link](https://ar.hibapress.com/details-574634.html)
+
+
+### كرواتيا ضد البرتغال (N/A, Mon, 18 Nov 2024 11:10:00 -0800)
+
+- **موعد مباراة كرواتيا والبرتغال في دوري الأمم الأوروبية 2024-2025 والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1368653)
+- **مدرب البرتغال يمدح لوكا مودريتش**: [Link](https://hihi2.com/2024/11/18/p2940471.html)
+- **البرتغال تحل ضيفةً على كرواتيا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%AA%D8%AD%D9%84-%D8%B6%D9%8A%D9%81%D8%A9-%D8%B9%D9%84%D9%89-%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7-2024-11-18)
+
+
+### croatia vs portugal (N/A, Mon, 18 Nov 2024 11:10:00 -0800)
+
+- **Preview: Croatia vs. Portugal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/croatia/uefa-nations-league/preview/preview-croatia-vs-portugal-prediction-team-news-lineups_558248.html)
+- **Why Cristiano Ronaldo has been released from the Portugal squad as Al Nassr 
+star misses out on Erling...**: [Link](https://talksport.com/football/2280932/why-cristiano-ronaldo-released-portugal-erling-haaland-record/)
+- **LIVE: Croatia vs Portugal – UEFA Nations League Group A1**: [Link](https://www.aljazeera.com/sports/liveblog/2024/11/18/live-croatia-vs-portugal-uefa-nations-league-group-a1)
+
+
+### yalla kora (N/A, Mon, 18 Nov 2024 11:10:00 -0800)
+
+- **صحيفة إندونيسية تسلط الضوء على "نقطة ضعف" السعودية**: [Link](https://www.kooora.com/?n=1368875)
+- **موعد مباراة إندونيسيا ضد السعودية في تصفيات كأس العالم والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/11/18/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AF%D9%88%D9%86%D9%8A%D8%B3%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%81%D9%8A)
+- **من ضمنها إندونيسيا.. 4 منتخبات لم تنتصر في تصفيات كأس العالم**: [Link](https://hihi2.com/2024/11/18/p2940267.html)
+
+
+### sports (N/A, Mon, 18 Nov 2024 11:10:00 -0800)
+
+- **E3 Sports aims to provide more opportunities for youth athletes**: [Link](https://www.keloland.com/news/eye-on-keloland/e3-sports-aims-to-provide-more-opportunities-for-youth-athletes/)
+- **E3 Sports Complex hopes to change the game**: [Link](https://www.kotatv.com/2024/11/11/e3-sports-complex-hopes-change-game/)
+- **E3 Sports aims to provide more opportunities for youth athletes**: [Link](https://www.aol.com/e3-sports-aims-more-opportunities-042410461.html)
+
+
+### brahim diaz (N/A, Mon, 18 Nov 2024 11:10:00 -0800)
+
+- **Real Madrid Transfer News Roundup (11/18/2024): Brahim Diaz, Jonathan Tah, 
+Alexandre Lacazette And More**: [Link](https://www.si.com/onsi/soccer/real-madrid/transfers-and-rumors/real-madrid-transfer-news-roundup-11-18-2024-diaz-tah-lacazette)
+- **Real Madrid ponder shock move for former Arsenal striker**: [Link](https://www.goal.com/en-cm/lists/real-madrid-ponder-shock-move-former-arsenal-striker/bltd015a18e2b83d464)
+- **Real Madrid ponder shock move for former Arsenal striker**: [Link](https://www.goal.com/en-sa/lists/real-madrid-ponder-shock-move-former-arsenal-striker/bltd015a18e2b83d464)
+
+
+### vs (N/A, Mon, 18 Nov 2024 11:10:00 -0800)
+
+- **Mics Caught Patrick Mahomes Gushing Over Josh Allen’s TD Run in Postgame 
+Handshake**: [Link](https://www.si.com/nfl/mics-caught-patrick-mahomes-gushing-over-josh-allens-td-run)
+- **Bills vs. Chiefs score, takeaways: Josh Allen's fourth-down TD propels 
+Buffalo, hands Kansas City first loss**: [Link](https://www.cbssports.com/nfl/news/bills-vs-chiefs-score-josh-allens-fourth-down-touchdown-propels-buffalo-hands-kansas-city-first-loss/live/)
+- **How to watch the Kansas City Chiefs vs. Buffalo Bills NFL game today: 
+Livestream options, more**: [Link](https://www.cbsnews.com/essentials/how-to-watch-the-kansas-city-chiefs-vs-buffalo-bills-nfl-game-today-livestream-options-more/)
+
+
+### يلا شوت (N/A, Mon, 18 Nov 2024 11:00:00 -0800)
+
+- **تشكيلة إسبانيا الاساسية لمواجهة سويسرا في دوري الامم الاوروبية**: [Link](https://hihi2.com/2024/11/18/p2940989.html)
+- **دي لا فوينتي: عام 2024 كان موسم الأحلام**: [Link](https://m.kooora.com/?n=1368889&o=n)
+- **لا فوينتي: انتصار على سويسرا لختام 2024 بشكل مثالي**: [Link](https://24.ae/article/858216/%D9%84%D8%A7-%D9%81%D9%88%D9%8A%D9%86%D8%AA%D9%8A-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%B9%D9%84%D9%89-%D8%B3%D9%88%D9%8A%D8%B3%D8%B1%D8%A7-%D9%84%D8%AE%D8%AA%D8%A7%D9%85-2024-%D8%A8%D8%B4%D9%83%D9%84-%D9%85%D8%AB%D8%A7%D9%84%D9%8A)
+
+
 ### croatie – portugal (N/A, Mon, 18 Nov 2024 11:00:00 -0800)
 
 - **« Ce sera peut-être encore plus dur d'affronter le Portugal sans Ronaldo », 
