@@ -1,3 +1,11 @@
+### nigeria – rwanda (N/A, Mon, 18 Nov 2024 09:40:00 -0800)
+
+- **Nigeria vs Rwanda: When, How to Watch, Predicted Lineup**: [Link](https://www.moroccoworldnews.com/2024/11/366434/nigeria-vs-rwanda-when-how-to-watch-predicted-lineup)
+- **Super Eagles starting XI: Okoye, Dele-Bashiru, Iheanacho, Boniface, Simon 
+start; Osho home debut**: [Link](https://www.allnigeriasoccer.com/read_news.php?nid=53728)
+- **AFCON 2025Q: Rwanda not scared of Super Eagles big stars – Bizimana**: [Link](https://dailypost.ng/?p=1143389)
+
+
 ### المغرب (N/A, Mon, 18 Nov 2024 09:40:00 -0800)
 
 - **أبو خلال لكووورة: عودتي للمنتخب أنصفت تضحياتي**: [Link](https://m.kooora.com/?n=1368958&o=ncma)
