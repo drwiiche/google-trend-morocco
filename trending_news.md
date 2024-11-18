@@ -1,3 +1,43 @@
+### can 2025 (N/A, Mon, 18 Nov 2024 11:40:00 -0800)
+
+- **TotalEnergies CAF AFCON 2025: 21 countries secure tickets for Morocco**: [Link](https://www.cafonline.com/caf-africa-cup-of-nations/news/totalenergies-caf-afcon-2025-21-countries-secure-tickets-for-morocco/)
+- **The race for the last Cup of Nations finals places**: [Link](https://supersport.com/football/general/news/946bae61-37a1-4233-ad6e-6f2b43249434/the-race-for-the-last-cup-of-nations-finals-places)
+- **CAN 2025 qualifiers: Ghana eliminated while Comoros, Mali, Zambia and 
+Zimbabwe booked their tickets on fifth day**: [Link](https://medafricatimes.com/37472-can-2025-qualifiers-ghana-eliminated-while-comoros-mali-zambia-and-zimbabwe-booked-their-tickets-on-fifth-day.html)
+
+
+### tnt (N/A, Mon, 18 Nov 2024 11:40:00 -0800)
+
+- **'Inside the NBA' moving to ESPN, ABC next season**: [Link](https://www.espn.com/nba/story/_/id/42464696/inside-nba-appear-espn-abc-next-season)
+- **Warner Bros. Discovery and the National Basketball Association Reach 
+Agreement to Expand Long-Standing Partnership**: [Link](https://press.wbd.com/us/media-release/warner-bros-discovery-and-national-basketball-association-reach-agreement-expand-long)
+- **Big 12 football on TNT? New deal will feature 13 football games on WBD 
+channels after settlement**: [Link](https://sports.yahoo.com/big-12-football-on-tnt-new-deal-will-feature-13-football-games-on-wbd-channels-after-settlement-135956401.html)
+
+
+### marokko – lesotho (N/A, Mon, 18 Nov 2024 11:40:00 -0800)
+
+- **Marokko-Lesotho: om hoe laat en op welke zender?**: [Link](https://www.bladna.nl/voetbal-wedstrijd-marokko-lesotho-live,59165.html)
+- **Marokko wil Lesotho met ruime zege verslaan**: [Link](https://www.bladna.nl/marokko-lesotho-zege-verslaan,59151.html)
+
+
+### ko (N/A, Mon, 18 Nov 2024 11:40:00 -0800)
+
+- **UFC 309: Fantasy booking next fights for Jones, Oliveira and Chandler**: [Link](https://www.espn.com/mma/story/_/id/42452267/ufc-309-next-jon-jones-charles-oliveira-michael-chandler-bo-nickal)
+- **Daniel Cormier: UFC 309 showed that Jon Jones and Stipe Miocic 'were not on 
+the same level'**: [Link](https://sports.yahoo.com/daniel-cormier-ufc-309-showed-191534271.html)
+- **Jon Jones retains UFC heavyweight title with spinning kick to stop Stipe 
+Miocic, celebrates with President-elect Donald Trump**: [Link](https://www.cnn.com/2024/11/17/sport/jon-jones-stipe-miocic-donald-trump-spt-intl/index.html)
+
+
+### يلا كورة مباريات اليوم (N/A, Mon, 18 Nov 2024 11:30:00 -0800)
+
+- **قمة إيطاليا وفرنسا الأبرز.. مواعيد مباريات اليوم الأحد والقنوات الناقلة**: [Link](https://www.almasryalyoum.com/news/details/3308172)
+- **جدول مبارايات اليوم.. المغرب تونس ومصر الجزائر وقمة فرنسا وإيطاليا**: [Link](https://www.analkhabar.com/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D9%88%D9%86%D8%B3/)
+- **مواعيد مباريات اليوم في تصفيات إفريقيا ودوري الأمم الأوروبية والقنوات 
+الناقلة**: [Link](https://alhorianews.com/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A/)
+
+
 ### إسبانيا ضد سويسرا (N/A, Mon, 18 Nov 2024 11:30:00 -0800)
 
 - **تشكيلة إسبانيا الاساسية لمواجهة سويسرا في دوري الامم الاوروبية**: [Link](https://hihi2.com/2024/11/18/p2940989.html)
