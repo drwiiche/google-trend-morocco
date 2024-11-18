@@ -1,3 +1,11 @@
+### spain vs (N/A, Mon, 18 Nov 2024 13:00:00 -0800)
+
+- **Spain vs. Switzerland (Nov 18, 2024) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/699023)
+- **Spain vs. Switzerland (19 Nov, 2024) Live Score**: [Link](https://www.espn.com.au/football/match/_/gameId/699023)
+- **Spain vs. Switzerland lineups, predicted starting 11, team news and 
+injuries: Morata to lead La Roja**: [Link](https://www.sportingnews.com/us/soccer/news/spain-vs-switzerland-lineups-starting-11-team-news-injuries/75d21d4e46a733c5910e71e7)
+
+
 ### saibari (N/A, Mon, 18 Nov 2024 12:40:00 -0800)
 
 - **Atlas Leeuwen stap dichter bij wereldtop**: [Link](https://www.bladna.nl/atlas-leeuwen-fifa-ranking-wereldtop,59168.html)
