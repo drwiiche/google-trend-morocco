@@ -1,3 +1,18 @@
+### saibari (N/A, Mon, 18 Nov 2024 12:40:00 -0800)
+
+- **Atlas Leeuwen stap dichter bij wereldtop**: [Link](https://www.bladna.nl/atlas-leeuwen-fifa-ranking-wereldtop,59168.html)
+- **PSV’er Ismael Saibari schittert in zijn achtste interland en laat de 
+supporters van Marokko genieten**: [Link](https://www.ed.nl/psv/psver-ismael-saibari-schittert-in-zijn-achtste-interland-en-laat-de-supporters-van-marokko-genieten~a9c3537a/)
+- **Marokko verslaat Gabon met 1-5 in CAN 2025-kwalificatiewedstrijd**: [Link](https://nieuws.marokko.nl/98017/marokko-verslaat-gabon-met-1-5-in-can-2025-kwalificatiewedstrijd/)
+
+
+### morocco football (N/A, Mon, 18 Nov 2024 12:40:00 -0800)
+
+- **Hakim Ziyech, Morocco 2025, Atlas Lions... Mohamed Timoumi Speaks Out**: [Link](https://www.footboom1.com/en/news/football/2075968-hakim-ziyech-morocco-2025-atlas-lions-mohamed-timoumi-speaks-out)
+- **Morocco Gears Up for Final AFCON Qualifier Against Lesotho**: [Link](https://www.moroccoworldnews.com/2024/11/366443/morocco-gears-up-for-final-afcon-qualifier-against-lesotho)
+- **Preview: Morocco vs. Lesotho - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/morocco/africa-cup-of-nations/preview/preview-morocco-vs-lesotho-prediction-team-news-lineups_558285.html)
+
+
 ### portugal (N/A, Mon, 18 Nov 2024 12:30:00 -0800)
 
 - **Por que Cristiano Ronaldo não está jogando em Portugal x Croácia?**: [Link](https://www.sportingnews.com/br/futebol/noticias/por-que-cristiano-ronaldo-nao-esta-jogando-portugal-croacia/aed1e55930c19f7e5fe85fd6)
