@@ -1,3 +1,18 @@
+### hongrie – allemagne (N/A, Tue, 19 Nov 2024 11:00:00 -0800)
+
+- **Pronostic Hongrie - Allemagne, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/hongrie-allemagne-228574/)
+- **Hongrie – Allemagne : les compositions probables, chaîne TV et heure**: [Link](https://www.befoot.net/hongrie-allemagne-compos-probables-chaine-tv-heure/)
+- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier du 19 novembre - 
+Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-du-19-novembre-ligue-des-nations_AN-202411190548.html)
+
+
+### الكويت ضد الأردن (N/A, Tue, 19 Nov 2024 10:50:00 -0800)
+
+- **المنتخب الكويتي يختبر المدرب سلامي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%B3%D9%84%D8%A7%D9%85%D9%8A-1467126.html)
+- **مباشر مباراة الكويت ضد الأردن (0-0) في تصفيات كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/19/kuwait-v-jordan)
+- **“كتيبة السلامي” تسعى لترسيخ حظوظ كأس العالم في مواجهتها لمنتخب الكويت**: [Link](https://m.alayam24.com/articles-539606.html)
+
+
 ### sénégal – burundi (N/A, Tue, 19 Nov 2024 10:40:00 -0800)
 
 - **CAN 2025 (Q) : Les Lions de Pape Thiaw pour finir l’année en beauté face au 
