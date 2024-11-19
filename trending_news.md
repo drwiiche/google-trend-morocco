@@ -1,3 +1,11 @@
+### الطقس اليوم (N/A, Mon, 18 Nov 2024 21:50:00 -0800)
+
+- **إنذار جوي بشأن الطقس اليوم: أمطار رعدية على هذه المدن.. و«موجة باردة» ليلاً**: [Link](https://www.almasryalyoum.com/news/details/3309827)
+- **غدا طقس معتدل نهارا وشبورة وأمطار رعدية ببعض المناطق والصغرى بالقاهرة 17**: [Link](https://www.youm7.com/story/2024/11/18/%D8%BA%D8%AF%D8%A7-%D8%B7%D9%82%D8%B3-%D9%85%D8%B9%D8%AA%D8%AF%D9%84-%D9%86%D9%87%D8%A7%D8%B1%D8%A7-%D9%88%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A8%D8%A8%D8%B9%D8%B6-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%88%D8%A7%D9%84%D8%B5%D8%BA%D8%B1%D9%89/6781416)
+- **مصر | تيارات رطبة وفرص الأمطار تشمل أنحاء عدة من البلاد حتى الأربعاء قد 
+تكون رعدية غزيرة**: [Link](https://www.arabiaweather.com/ar/content/%D9%85%D8%B5%D8%B1-%D8%AA%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B1%D8%B7%D8%A8%D8%A9-%D9%88%D9%81%D8%B1%D8%B5-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B4%D9%85%D9%84-%D8%A3%D9%86%D8%AD%D8%A7%D8%A1-%D8%B9%D8%AF%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D8%AD%D8%AA%D9%89-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D9%82%D8%AF-%D8%AA%D9%83%D9%88%D9%86-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9)
+
+
 ### marcel desailly (N/A, Mon, 18 Nov 2024 23:30:00 -0800)
 
 - **DNA Test Confirms: Former Footballer Marcel Desailly is the Father of 
