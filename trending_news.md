@@ -1,3 +1,12 @@
+### egypte foot (N/A, Tue, 19 Nov 2024 08:00:00 -0800)
+
+- **Eliminatoires de la CAN 2025: l'Egypte sans Salah mais avec une triplette 
+offensive intéressante contre le Botswana**: [Link](https://french.ahram.org.eg/News/56992.aspx)
+- **Programme TV Foot : À quelle heure et sur quelle chaîne regarder les matchs 
+de ce soir (19 Novembre 2024) ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-programme-tv-foot-a-quelle-heure-et-sur-quelle-chaine-regarder-les-matchs-de-ce-soir-19-novembre-2024-ij-464052.html)
+- **Foot mondial : sur quelles chaines suivre les matches de mardi ?**: [Link](https://sport.tunisienumerique.com/foot-mondial-sur-quelles-chaines-suivre-les-matches-de-mardi-20/)
+
+
 ### côte d'ivoire – tchad (N/A, Tue, 19 Nov 2024 07:30:00 -0800)
 
 - **Dernière journée Élim CAN 2025: Pour l’honneur, Faé met la pression sur ses 
