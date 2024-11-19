@@ -1,3 +1,21 @@
+### rd congo – éthiopie (N/A, Tue, 19 Nov 2024 08:20:00 -0800)
+
+- **RDC-Ethiopie : « Je suis prêt à tout donner pour mon pays », assure 
+Nathanael Mbuku**: [Link](https://www.radiookapi.net/2024/11/18/actualite/sport/rdc-ethiopie-je-suis-pret-tout-donner-pour-mon-pays-assure-nathanael)
+- **Sébastien Desabre annonce des changements pour le dernier match des 
+éliminatoires de la CAN**: [Link](https://www.journaldekinshasa.com/sebastien-desabre-annonce-des-changements-pour-le-dernier-match-des-eliminatoires-de-la-can/)
+- **Elim/CAN 2025 : « nous sommes entrain d’ évaluer le poste d’attaquant...On 
+a pas un titulaire à part entière» (Sebastien Desabre)**: [Link](https://actualite.cd/2024/11/19/elimcan-2025-nous-sommes-entrain-d-evaluer-le-poste-dattaquanton-pas-un-titulaire-part)
+
+
+### rafael nadal (N/A, Tue, 19 Nov 2024 08:10:00 -0800)
+
+- **Rafael Nadal to play singles at Davis Cup**: [Link](https://www.espn.com/tennis/story/_/id/42484645/davis-cup-rafael-nadal-play-singles-retirement)
+- **Preview: Netherlands v Spain**: [Link](https://www.daviscup.com/en/news/334903.aspx)
+- **A look at Rafael Nadal’s 22 Grand Slam titles as he prepares to retire 
+after the Davis Cup**: [Link](https://apnews.com/article/rafael-nadal-retirement-grand-slam-titles-5c66748cb027abd36622dd22b4a3b6d5)
+
+
 ### egypte foot (N/A, Tue, 19 Nov 2024 08:00:00 -0800)
 
 - **Eliminatoires de la CAN 2025: l'Egypte sans Salah mais avec une triplette 
