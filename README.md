@@ -1,3 +1,10 @@
+### اليوم العالمي للرجل (N/A, Tue, 19 Nov 2024 04:20:00 -0800)
+
+- **اليوم العالمي للرجل.. اعرف هدفه وقصة الاحتفال به**: [Link](https://www.elwatannews.com/news/details/7689381)
+- **اليوم العالمي للرجل وعلاقته بسرطان البروستاتا ومعركة القادسية**: [Link](https://almsaey.akhbarelyom.com/news/newdetails/3477524/1/%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D9%84%D9%84%D8%B1%D8%AC%D9%84-%D9%88%D8%B9%D9%84%D8%A7%D9%82%D8%AA%D9%87-%D8%A8%D8%B3%D8%B1%D8%B7%D8%A7%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D9%88)
+- **موعد اليوم العالمي للرجل 2024 احتفاء عالمي بدور الرجل في المجتمع 2025**: [Link](https://ye.alyemenalghad.com/news-arab/%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D9%84%D9%84%D8%B1%D8%AC%D9%84-2024/)
+
+
 ### guerre suede finlande (N/A, Tue, 19 Nov 2024 04:00:00 -0800)
 
 - **Ce que contient le guide adressé aux Suédois pour se préparer à une 
