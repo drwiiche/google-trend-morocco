@@ -1,3 +1,19 @@
+### egypt vs botswana (N/A, Tue, 19 Nov 2024 07:20:00 -0800)
+
+- **Preview: Egypt vs. Botswana - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/egypt/preview/preview-egypt-vs-botswana-prediction-team-news-lineups_558341.html)
+- **Egypt To Face Mauritania Tonight At African Cup Of Nations Qualifiers | 
+NileFM | EGYPT'S#1 FOR HIT MUSIC**: [Link](https://nilefm.com/sports/article/11508/egypt-to-face-botswana-in-the-6th-round-of-afcon-qualifiers)
+- **Egypt takes on Botswana in AFCON qualifier**: [Link](https://egyptian-gazette.com/sports/egypt-takes-on-botswana-in-afcon-qualifier/)
+
+
+### مصر ضد بوتسوانا (N/A, Tue, 19 Nov 2024 07:10:00 -0800)
+
+- **تحفيز رئاسي للاعبي بوتسوانا قبل مواجهة مصر**: [Link](https://m.kooora.com/?n=1369135&o=n27102)
+- **القنوات الناقلة لمباراة مصر وبوتسوانا في تصفيات أمم أفريقيا 2025**: [Link](https://www.almasryalyoum.com/news/details/3309465)
+- **"ثبت دلوقتي" تردد قناة beIN Sports HD 2 الجديد 2024 الناقلة لماتش مصر 
+وبوتسوانا في الجولة الأخيرة**: [Link](https://real.alsaudinews.com/218944/%D8%AB%D8%A8%D8%AA-%D8%AF%D9%84%D9%88%D9%82%D8%AA%D9%8A-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-hd-2-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-2024-%D8%A7%D9%84%D9%86%D8%A7%D9%82/)
+
+
 ### حكيم زياش (N/A, Tue, 19 Nov 2024 06:20:00 -0800)
 
 - **الركراكي: المنتخب المغربي عائلة واحدة.. والفوز بـ"الكان" رهين بالاتحاد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D8%A7%D8%A6%D9%84%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-1467096.html)
