@@ -1,3 +1,11 @@
+### koweït – jordanie (N/A, Tue, 19 Nov 2024 09:30:00 -0800)
+
+- **Koweït - Jordanie en direct - Qualif. Coupe du Monde - AFC : Football 
+Scores & Résultats - 19/11/2024**: [Link](https://www.eurosport.fr/football/qualif-coupe-du-monde-afc/2026/live-koweit-jordanie_mtc1492123/live.shtml)
+- **Date du match Jordanie-Koweït, chaînes de diffusion et conditions 
+météorologiques prévues**: [Link](https://www.arabiaweather.com/fr/content/date-du-match-jordaniekowet-chanes-de-diffusion-et-conditions-mtorologiques-prvues)
+
+
 ### oman – irak (N/A, Tue, 19 Nov 2024 08:50:00 -0800)
 
 - **Oman to face Iraq in crucial World Cup qualifier**: [Link](https://timesofoman.com/article/152230-oman-to-face-iraq-in-crucial-world-cup-qualifier)
