@@ -1,3 +1,11 @@
+### gm (N/A, Tue, 19 Nov 2024 00:20:00 -0800)
+
+- **General Motors lays off about 1,000 workers, cutting costs to compete in a 
+crowded automobile market**: [Link](https://apnews.com/article/general-motors-layoffs-cost-cutting-5e2cc6f8a3210ea364d670a1902a7c65)
+- **GM laying off nearly 1,000 workers, mostly in US, source says**: [Link](https://www.reuters.com/business/autos-transportation/gm-laying-off-nearly-1000-workers-most-us-source-says-2024-11-15/)
+- **General Motors announces huge layoffs ahead of potential turmoil**: [Link](https://www.thestreet.com/automotive/general-motors-announces-huge-layoffs-ahead-of-potential-turmoil)
+
+
 ### الطقس اليوم (N/A, Mon, 18 Nov 2024 21:50:00 -0800)
 
 - **إنذار جوي بشأن الطقس اليوم: أمطار رعدية على هذه المدن.. و«موجة باردة» ليلاً**: [Link](https://www.almasryalyoum.com/news/details/3309827)
