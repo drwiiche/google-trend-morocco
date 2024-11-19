@@ -1,3 +1,12 @@
+### afrique du sud – soudan du sud (N/A, Tue, 19 Nov 2024 08:40:00 -0800)
+
+- **Les difficultés financières réduisent le Soudan du Sud à seulement 15 
+joueurs contre les Bafana Bafana**: [Link](https://www.footboom1.com/fr/news/football/2078457-financial-struggles-limiting-south-sudan-to-just-15-players-against-bafana)
+- **Elim. CAN 2025 : Où suivre le match Afrique du Sud vs Soudan du Sud ?**: [Link](https://www.africatopsports.com/2024/11/19/elim-can-2025-ou-suivre-le-match-afrique-du-sud-vs-soudan-du-sud/)
+- **Compositions d'équipe Afrique du Sud vs Soudan du Sud - Qualifications CAN 
+2024**: [Link](https://fr.besoccer.com/match/seleccion-sudafrica/seleccion-sudan-del-sur/2024747118/compos)
+
+
 ### rd congo – éthiopie (N/A, Tue, 19 Nov 2024 08:20:00 -0800)
 
 - **RDC-Ethiopie : « Je suis prêt à tout donner pour mon pays », assure 
