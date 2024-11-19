@@ -1,3 +1,16 @@
+### colombie – équateur (N/A, Tue, 19 Nov 2024 15:20:00 -0800)
+
+- **Pronostic Colombie - Équateur, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/colombie-equateur-228635/)
+- **Attention aux Cartons : Trois Équatoriens Risquent de Manquer le Prochain 
+Match de Qualification**: [Link](https://www.footboom1.com/fr/news/football/2080962-beware-of-booking-three-ecuadorians-risk-missing-next-qualifying-match)
+- **PRONOS PARIS RMC Le pari à domicile du 19 novembre – Qualifications CDM 2026**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-19-novembre-qualifications-cdm-2026_AN-202411180584.html)
+
+
+### joachim son forget eva (N/A, Tue, 19 Nov 2024 15:20:00 -0800)
+
+
+
+
 ### argentine – pérou (N/A, Tue, 19 Nov 2024 15:10:00 -0800)
 
 - **PRONOS PARIS RMC Le buteur du jour du 19 novembre – Qualifications CDM 2026**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-19-novembre-qualifications-cdm-2026_AN-202411180580.html)
