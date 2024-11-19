@@ -1,3 +1,11 @@
+### bosnie-herzégovine – pays-bas (N/A, Tue, 19 Nov 2024 11:10:00 -0800)
+
+- **Pronostic Bosnie-Herzégovine - Pays-Bas, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/bosnie-herzegovine-pays-bas-228568/)
+- **DIRECT. Bosnie-Herzégovine-Pays-Bas (Ligue des nations A 2025) à suivre en 
+direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2025/bosnie-herzegovine-pays-bas-live/632677)
+- **Bosnie - Pays-Bas : quelle heure et quelle chaîne pour suivre le match ?**: [Link](https://www.onzemondial.com/selections/bosnie-pays-bas-quelle-heure-et-quelle-chaine-pour-suivre-le-match-926277)
+
+
 ### hongrie – allemagne (N/A, Tue, 19 Nov 2024 11:00:00 -0800)
 
 - **Pronostic Hongrie - Allemagne, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/hongrie-allemagne-228574/)
