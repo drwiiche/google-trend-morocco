@@ -1,3 +1,10 @@
+### طقس (N/A, Mon, 18 Nov 2024 22:50:00 -0800)
+
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-12-1467122.html)
+- **فاس تسجل أعلى مقاييس الأمطار خلال آخر 24 ساعة**: [Link](https://ar.hibapress.com/details-574517.html)
+- **طقس الاثنين…أمطار مرتقبة بعدد من المناطق**: [Link](https://aljarida24.ma/p/actualites/296238/)
+
+
 ### gm (N/A, Tue, 19 Nov 2024 00:20:00 -0800)
 
 - **General Motors lays off about 1,000 workers, cutting costs to compete in a 
