@@ -1,3 +1,19 @@
+### argentina vs peru (N/A, Tue, 19 Nov 2024 15:30:00 -0800)
+
+- **Solano Elogia a Argentina Antes del Encuentro con Perú: Orgulloso de Tener 
+a los Campeones del Mundo**: [Link](https://www.footboom1.com/es/news/football/2080458-solano-praises-argentina-ahead-of-clash-with-peru-proud-to-have-the-world-champions)
+- **¿Quiénes quedaron fuera del banco de la Selección vs. Perú?**: [Link](https://www.ole.com.ar/seleccion/banco-argentina-peru-seleccion-eliminatorias_0_I7XCezJZ1T.html)
+- **¿Cómo le fue a la selección argentina cuando hizo de local en La Bombonera?**: [Link](https://www.90min.com/es/como-le-fue-a-la-seleccion-argentina-cuando-hizo-de-local-en-la-bombonera)
+
+
+### الأرجنتين ضد بيرو (N/A, Tue, 19 Nov 2024 15:30:00 -0800)
+
+- **الأرجنتين تبحث عن نقاط الحسم.. والبرازيل في اختبار ناري**: [Link](https://www.kooora.com/?n=1369034)
+- **هل يفك ميسي عقدته ضد بيرو؟**: [Link](https://hihi2.com/2024/11/19/p2942431.html)
+- **سكالوني يحذر نجوم الأرجنتين: انتهى زمن "أبطال الكوبا".. وميسي الاستثناء 
+الوحيد في خطتي الجديدة**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%83%D8%A7%D9%84%D9%88%D9%86%D9%8A-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%84%D9%83%D9%88%D8%A8%D8%A7-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A1-/blt57b3f62fc0b11878)
+
+
 ### colombie – équateur (N/A, Tue, 19 Nov 2024 15:20:00 -0800)
 
 - **Pronostic Colombie - Équateur, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/colombie-equateur-228635/)
