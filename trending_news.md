@@ -1,3 +1,10 @@
+### oman – irak (N/A, Tue, 19 Nov 2024 08:50:00 -0800)
+
+- **Oman to face Iraq in crucial World Cup qualifier**: [Link](https://timesofoman.com/article/152230-oman-to-face-iraq-in-crucial-world-cup-qualifier)
+- **Oman offers free visas for Iraqi fans ahead of World Cup Qualifier in Muscat**: [Link](https://www.muscatdaily.com/2024/11/10/oman-offers-free-visas-for-iraqi-fans/)
+- **Preview: Oman vs. Iraq - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/oman/world-cup-2026/preview/preview-oman-vs-iraq-prediction-team-news-lineups_558334.html)
+
+
 ### afrique du sud – soudan du sud (N/A, Tue, 19 Nov 2024 08:40:00 -0800)
 
 - **Les difficultés financières réduisent le Soudan du Sud à seulement 15 
