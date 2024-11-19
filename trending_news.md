@@ -1,3 +1,21 @@
+### côte d'ivoire – tchad (N/A, Tue, 19 Nov 2024 07:30:00 -0800)
+
+- **Dernière journée Élim CAN 2025: Pour l’honneur, Faé met la pression sur ses 
+joueurs**: [Link](https://www.linfodrome.com/sport/103333-derniere-journee-elim-can-2025-pour-l-honneur-fae-met-la-pression-sur-ses-joueurs)
+- **Côte d’Ivoire-Tchad : à quelle heure et sur quelle chaîne TV voir le match 
+des éliminatoires de la CAN 2025**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/cote-divoire-tchad-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-des-eliminatoires-de-la-can-2025-19-11-2024-GJSUZERWWREUTIPUTAW4X6WAKY.php)
+- **Éliminatoires CAN 2025 : après des défaites des Eléphants, Idriss Diallo 
+sonne la mobilisation**: [Link](https://lanouvelletribune.info/2024/11/eliminatoires-can-2025-apres-des-defaites-des-elephants-idriss-diallo-sonne-la-mobilisation/)
+
+
+### égypte – botswana (N/A, Tue, 19 Nov 2024 06:30:00 -0800)
+
+- **Egypt vs. Botswana (19 Nov, 2024) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/722126)
+- **Preview: Egypt vs. Botswana - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/egypt/preview/preview-egypt-vs-botswana-prediction-team-news-lineups_558341.html)
+- **Egypt To Face Mauritania Tonight At African Cup Of Nations Qualifiers | 
+NileFM | EGYPT'S#1 FOR HIT MUSIC**: [Link](https://nilefm.com/sports/article/11508/egypt-to-face-botswana-in-the-6th-round-of-afcon-qualifiers)
+
+
 ### egypt vs botswana (N/A, Tue, 19 Nov 2024 07:20:00 -0800)
 
 - **Preview: Egypt vs. Botswana - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/egypt/preview/preview-egypt-vs-botswana-prediction-team-news-lineups_558341.html)
