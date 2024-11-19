@@ -1,3 +1,25 @@
+### bourse maroc (N/A, Tue, 19 Nov 2024 05:50:00 -0800)
+
+- **Marché interbancaire: Bank Al-Maghrib lancera deux nouveaux segments début 
+2025**: [Link](https://boursenews.ma/article/marches/marche-interbancaire-lancement-segments-bam-2025)
+- **Nandini Sukumar : "Le marché à terme est désormais une réalité concrète 
+pour la Bourse de Casablanca"**: [Link](https://lematin.ma/economie/le-marche-a-terme-est-une-realite-concrete-pour-la-bourse-de-casa-wfe/251287)
+- **Le Maroc axe sa stratégie sur l'investissement dans le marché des produits 
+financiers dérivés**: [Link](https://www.atalayar.com/fr/articulo/economie-et-entreprises/maroc-axe-sa-strategie-sur-linvestissement-dans-marche-des-produits-financiers-derives/20241118072719207685.html)
+
+
+### joachim son forget (N/A, Tue, 19 Nov 2024 04:40:00 -0800)
+
+
+
+
+### هند السداسي (N/A, Tue, 19 Nov 2024 03:40:00 -0800)
+
+- **المغنية هند السداسي تثير الجدل بإعلان طلاقها عبر "إنستغرام"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D9%86%D9%8A%D8%A9-%D9%87%D9%86%D8%AF-%D8%A7%D9%84%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A8%D8%A5%D8%B9%D9%84%D8%A7%D9%86-1466898.html)
+- **هند السداسي تعلق: “عدياني محتارين فيا”**: [Link](https://ralia.lesiteinfo.com/celebrites/__trashed-59-206844.html)
+- **غلطة حياتي.. مطربة مغربية تلجأ للقضاء لطلب الطلاق بعد أشهر من زوجها**: [Link](https://www.akhbar-sharq.com/news/23455)
+
+
 ### tanzanie – guinée (N/A, Tue, 19 Nov 2024 05:20:00 -0800)
 
 - **Changement d’horaire du coup d’envoi Tanzanie-Guinée (communiqué)**: [Link](https://guineenews.org/changement-dhoraire-du-coup-denvoi-tanzanie-guinee-communique/)
