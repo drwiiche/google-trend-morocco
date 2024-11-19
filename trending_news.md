@@ -1,3 +1,11 @@
+### argentine – pérou (N/A, Tue, 19 Nov 2024 15:10:00 -0800)
+
+- **PRONOS PARIS RMC Le buteur du jour du 19 novembre – Qualifications CDM 2026**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-19-novembre-qualifications-cdm-2026_AN-202411180580.html)
+- **Argentine-Pérou : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/argentine-perou-streaming-chaine-tv-et-compos-10213894.html)
+- **Qualif. Coupe du monde : À quelle heure et sur quelle chaîne voir 
+Argentine-Pérou ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-argentine-perou/1521137)
+
+
 ### kuwait vs jordan (N/A, Tue, 19 Nov 2024 12:20:00 -0800)
 
 - **Kuwait vs Jordan LIVE Score Updates, Stream Info and How to Watch 2026 
