@@ -1,3 +1,12 @@
+### sénégal – burundi (N/A, Tue, 19 Nov 2024 10:40:00 -0800)
+
+- **CAN 2025 (Q) : Les Lions de Pape Thiaw pour finir l’année en beauté face au 
+Burundi**: [Link](https://wiwsport.com/2024/11/19/can-2025-q-les-lions-de-pape-thiaw-pour-finir-lannee-en-beaute-face-au-burundi/)
+- **Sénégal - Burundi : À quelle heure et sur quelle chaîne regarder le match 
+ce mardi ?**: [Link](https://www.20minutes.fr/guide-achat/4121959-20241119-senegal-burundi-heure-chaine-regarder-match-mardi)
+- **VIDEO / Éliminatoires Can 2025 : Kalidou Koulibaly veut ”finir en beauté”**: [Link](https://aps.sn/eliminatoires-can-2025-kalidou-koulibaly-veut-finir-en-beaute/)
+
+
 ### nadal (N/A, Tue, 19 Nov 2024 10:00:00 -0800)
 
 - **Preview: Netherlands v Spain**: [Link](https://www.daviscup.com/en/news/334903.aspx)
