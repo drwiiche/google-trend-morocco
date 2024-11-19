@@ -1,3 +1,11 @@
+### kuwait vs jordan (N/A, Tue, 19 Nov 2024 12:20:00 -0800)
+
+- **Kuwait vs Jordan LIVE Score Updates, Stream Info and How to Watch 2026 
+World Cup Qualifiers Match**: [Link](https://www.vavel.com/en-us/soccer/2024/11/19/1204770-kuwait-vs-jordan-live-score-updates-stream-info-and-how-to-watch-world-cup-2026-qualifiers-match.html)
+- **Kuwait eyes crucial victory over Jordan in World Cup qualifiers**: [Link](https://www.arabtimesonline.com/news/kuwait-eyes-crucial-victory-over-jordan-in-world-cup-qualifiers/)
+- **Preview: Kuwait vs. Jordan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/kuwait/world-cup-2026/preview/preview-kuwait-vs-jordan-prediction-team-news-lineups_558330.html)
+
+
 ### bosnie-herzégovine – pays-bas (N/A, Tue, 19 Nov 2024 11:10:00 -0800)
 
 - **Pronostic Bosnie-Herzégovine - Pays-Bas, Ligue des Nations**: [Link](https://www.sportytrader.com/pronostics/bosnie-herzegovine-pays-bas-228568/)
