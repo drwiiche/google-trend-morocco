@@ -1,3 +1,12 @@
+### nadal (N/A, Tue, 19 Nov 2024 10:00:00 -0800)
+
+- **Preview: Netherlands v Spain**: [Link](https://www.daviscup.com/en/news/334903.aspx)
+- **Rafael Nadal Farewell Match Live Streaming Davis Cup 2024 Finals Live 
+Telecast: When And Where To Wa..**: [Link](https://sports.ndtv.com/tennis/rafael-nadal-farewell-match-live-streaming-davis-cup-2024-finals-live-telecast-when-and-where-to-watch-7055607)
+- **A look at Rafael Nadal’s 22 Grand Slam titles as he prepares to retire 
+after the Davis Cup**: [Link](https://apnews.com/article/rafael-nadal-retirement-grand-slam-titles-5c66748cb027abd36622dd22b4a3b6d5)
+
+
 ### koweït – jordanie (N/A, Tue, 19 Nov 2024 09:30:00 -0800)
 
 - **Koweït - Jordanie en direct - Qualif. Coupe du Monde - AFC : Football 
