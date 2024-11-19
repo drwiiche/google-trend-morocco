@@ -1,3 +1,26 @@
+### météo (N/A, Mon, 18 Nov 2024 21:40:00 -0800)
+
+- **Demain, un front froid traversera la France, avec des cumuls pouvant 
+atteindre jusqu'à 50 l/m². Quelles zones touchées ?**: [Link](https://www.tameteo.com/actualites/previsions/demain-un-front-froid-traversera-la-france-avec-des-cumuls-pouvant-atteindre-jusqu-a-50-l-m-quelles-zones-touchees-previsions-meteo.html)
+- **Alerte Météo : Episode de fortes pluies et de vent fort**: [Link](https://actualite.lachainemeteo.com/alerte-meteo/8200-episode-de-fortes-pluies-et-de-vent-fort)
+- **Un coup de vent va frapper la France : des rafales à 100 km/h attendues, 
+voici où ça va souffler le plus fort**: [Link](https://actu.fr/meteo/un-coup-de-vent-va-frapper-la-france-des-rafales-a-100-km-h-attendues-voici-ou-ca-va-souffler-le-plus-fort_61877954.html)
+
+
+### الطقس (N/A, Mon, 18 Nov 2024 21:40:00 -0800)
+
+- **الطقس غدا الثلاثاء.. أمطار متفرقة وتساقطات ثلجية في بعض المناطق**: [Link](https://ar.hibapress.com/details-574631.html)
+- **توقعات طقس اليوم الإثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-4-1466402.html)
+- **توقع هطول أمطار أو زخات محليا بعدد من مناطق المملكة.**: [Link](https://agadir24.info/%D8%AA%D9%88%D9%82%D8%B9-%D9%87%D8%B7%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A3%D9%88-%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86.html)
+
+
+### weather (N/A, Mon, 18 Nov 2024 21:40:00 -0800)
+
+- **Pressed for powder, study finds ski areas are relying more on snowmaking**: [Link](https://www.greatlakesnow.org/2024/11/pressed-for-powder-study-finds-ski-areas-are-relying-more-on-snowmaking/)
+- **UW expert urges optimism as mild Wisconsin weather impacts winter sports**: [Link](https://www.wmtv15news.com/2024/11/18/uw-expert-urges-optimism-mild-wisconsin-weather-impacts-winter-sports/)
+- **UW expert urges optimism as mild Wisconsin weather impacts winter sports**: [Link](https://www.wmtv15news.com/video/2024/11/18/uw-expert-urges-optimism-mild-wisconsin-weather-impacts-winter-sports/)
+
+
 ### portugal match (N/A, Mon, 18 Nov 2024 12:40:00 -0800)
 
 - **Another Insane Cristiano Ronaldo Milestone Ready to Drop**: [Link](https://extratimetalk.com/cristiano-ronaldo-insane-milestone/)
