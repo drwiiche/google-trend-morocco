@@ -1,3 +1,13 @@
+### guerre suede finlande (N/A, Tue, 19 Nov 2024 04:00:00 -0800)
+
+- **Ce que contient le guide adressé aux Suédois pour se préparer à une 
+possible guerre**: [Link](https://www.bfmtv.com/international/europe/ce-que-contient-le-guide-adresse-aux-suedois-pour-se-preparer-a-une-possible-guerre_AN-202411190378.html)
+- **Pourquoi les Suédois et les Finlandais ont reçu des conseils pour se 
+préparer en cas d'attaque ?**: [Link](https://fr.news.yahoo.com/pourquoi-les-suedois-et-les-finlandais-ont-recu-des-conseils-pour-se-preparer-en-cas-dattaque-165633040.html)
+- **La Suède et la Finlande donnent des conseils à la population en cas de 
+guerre**: [Link](https://www.20minutes.fr/monde/ukraine/4121930-20241118-guerre-ukraine-suede-finlande-prodiguent-conseils-population-cas-conflit-arme)
+
+
 ### طقس (N/A, Mon, 18 Nov 2024 22:50:00 -0800)
 
 - **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-12-1467122.html)
