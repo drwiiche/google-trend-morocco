@@ -1,3 +1,11 @@
+### tanzanie – guinée (N/A, Tue, 19 Nov 2024 05:20:00 -0800)
+
+- **Changement d’horaire du coup d’envoi Tanzanie-Guinée (communiqué)**: [Link](https://guineenews.org/changement-dhoraire-du-coup-denvoi-tanzanie-guinee-communique/)
+- **Éliminatoires de la CAN 2025: la Guinée et la Tanzanie pour une place 
+qualificative, l'Éthiopie éliminée**: [Link](https://information.tv5monde.com/afrique/eliminatoires-de-la-can-2025-la-guinee-et-la-tanzanie-pour-une-place-qualificative)
+- **Tanzanie – Guinée : chaîne TV et heure du match**: [Link](https://www.afrik-foot.com/tanzanie-guinee-chaine-tv-et-heure-du-match)
+
+
 ### اليوم العالمي للرجل (N/A, Tue, 19 Nov 2024 04:20:00 -0800)
 
 - **اليوم العالمي للرجل.. اعرف هدفه وقصة الاحتفال به**: [Link](https://www.elwatannews.com/news/details/7689381)
