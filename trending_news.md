@@ -1,3 +1,11 @@
+### miss danemark miss univers (N/A, Mon, 18 Nov 2024 17:00:00 -0800)
+
+- **Miss Danemark couronnée Miss Univers, Indira Ampiot dans le top 30**: [Link](https://www.20minutes.fr/arts-stars/culture/4121750-20241117-miss-univers-2024-miss-danemark-remporte-concours-indira-ampiot-top-30)
+- **En images : Victoria Kjær Theilvig du Danemark remporte Miss Univers 2024**: [Link](https://fr.euronews.com/culture/2024/11/18/en-images-victoria-kjaer-theilvig-du-danemark-remporte-miss-univers-2024)
+- **Qui a gagné Miss Univers 2024 et quelle place pour la Française Indira 
+Ampiot ? Voici le classement**: [Link](https://www.programme-tv.net/news/tv/364980-qui-a-gagne-miss-univers-2024-et-quelle-place-pour-la-francaise-indira-ampiot-voici-le-classement/)
+
+
 ### météo (N/A, Mon, 18 Nov 2024 21:40:00 -0800)
 
 - **Demain, un front froid traversera la France, avec des cumuls pouvant 
