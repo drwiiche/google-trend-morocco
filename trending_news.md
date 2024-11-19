@@ -1,3 +1,12 @@
+### thomas guénolé (N/A, Mon, 18 Nov 2024 23:10:00 -0800)
+
+- **«Il se prend pour Donald Trump» : nouvel échange houleux entre Cyril 
+Hanouna et Thomas Guénolé**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/il-se-prend-pour-donald-trump-nouvel-echange-houleux-entre-cyril-hanouna-et-thomas-guenole-20241118)
+- **Cyril Hanouna explique pour quelle raison il a préféré "écarter" Thomas 
+Guénolé de "TPMP"**: [Link](https://www.public.fr/cyril-hanouna-explique-pour-quelle-raison-il-a-prefere-ecarter-thomas-guenole-de-tpmp)
+- **Cyril Hanouna vire un chroniqueur qui n’a pas signé une pétition pour C8**: [Link](https://mcetv.ouest-france.fr/mon-mag-buzz/tv/cyril-hanouna-vire-un-chroniqueur-qui-na-pas-signe-une-petition-pour-c8-12112024/)
+
+
 ### احوال الطقس (N/A, Mon, 18 Nov 2024 22:20:00 -0800)
 
 - **نشرة إنذارية: أمطار ورياح عاصفية**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D8%B9%D8%A7%D8%B5%D9%81%D9%8A%D8%A9-1467040.html)
