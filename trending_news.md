@@ -1,3 +1,9 @@
+### marcel desailly (N/A, Mon, 18 Nov 2024 23:30:00 -0800)
+
+- **DNA Test Confirms: Former Footballer Marcel Desailly is the Father of 
+10-Year-Old Victoria**: [Link](https://www.footboom1.com/en/news/football/2074923-dna-test-confirms-former-footballer-marcel-desailly-is-the-father-of-10-year-old-victoria)
+
+
 ### thomas guénolé (N/A, Mon, 18 Nov 2024 23:10:00 -0800)
 
 - **«Il se prend pour Donald Trump» : nouvel échange houleux entre Cyril 
