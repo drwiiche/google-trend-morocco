@@ -1,3 +1,21 @@
+### حكيم زياش (N/A, Tue, 19 Nov 2024 06:20:00 -0800)
+
+- **الركراكي: المنتخب المغربي عائلة واحدة.. والفوز بـ"الكان" رهين بالاتحاد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D8%A7%D8%A6%D9%84%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-1467096.html)
+- **زياش يثير الجدل مجددًا بمنشور على إنستغرام أثناء مباراة المغرب وليسوتو 
+(صورة)**: [Link](https://www.akhbarona.com/sport/lionatlas/395953.html)
+- **هل كان وليد صادقا فيما قاله عن مزراوي؟**: [Link](https://www.almountakhab.com/node/16206683)
+
+
+### tom aspinall (N/A, Tue, 19 Nov 2024 06:10:00 -0800)
+
+- **Jon Jones Embraces Unique Nickname from Tom Aspinall Fans after UFC 309**: [Link](https://www.si.com/fannation/mma/news/jon-jones-embraces-unique-nickname-tom-aspinall-fans-ufc-309)
+- **Exactly what happened when Tom Aspinall crossed paths with Jon Jones' 
+brothers at UFC 309**: [Link](https://bloodyelbow.com/2024/11/17/exactly-what-happened-when-tom-aspinall-crossed-paths-with-jon-jones-brothers-at-ufc-309/)
+- **“Jones Brothers Acting Like Tom Couldn’t Put Their Lights Out” – Fans React 
+as Tom Aspinall Finds Himself in a “Dirty” Spot With Jon Jones’ Family at 
+UFC 309**: [Link](https://www.essentiallysports.com/ufc-mma-news-jones-brothers-acting-like-tom-couldnt-put-their-lights-out-fans-react-as-tom-aspinall-finds-himself-in-a-dirty-spot-with-jon-jones-fami/)
+
+
 ### bourse maroc (N/A, Tue, 19 Nov 2024 05:50:00 -0800)
 
 - **Marché interbancaire: Bank Al-Maghrib lancera deux nouveaux segments début 
