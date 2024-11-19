@@ -1,3 +1,11 @@
+### portugal match (N/A, Mon, 18 Nov 2024 12:40:00 -0800)
+
+- **Another Insane Cristiano Ronaldo Milestone Ready to Drop**: [Link](https://extratimetalk.com/cristiano-ronaldo-insane-milestone/)
+- **Portugal vs Poland - Player Ratings**: [Link](https://onefootball.com/es/noticias/portugal-vs-poland-player-ratings-40316496)
+- **Cristiano Ronaldo's Scissor Kick Against Poland Named Best Goal of UEFA 
+Nations League Matchday 5**: [Link](https://www.footboom1.com/en/news/football/2072747-cristiano-ronaldo-s-scissor-kick-against-poland-named-best-goal-of-uefa-nations-league-matchday-5)
+
+
 ### ligue des nations (N/A, Mon, 18 Nov 2024 13:40:00 -0800)
 
 - **Italie 1-3 France : décevante ou prometteuse... quel bilan tirent les Bleus 
