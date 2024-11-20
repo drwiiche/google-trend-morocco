@@ -1,3 +1,31 @@
+### morocco vs algeria (N/A, Wed, 20 Nov 2024 10:20:00 -0800)
+
+- **Tunisia, Morocco begin AFCON U-20 UNAF Qualifiers with victories**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/tunisia-morocco-begin-afcon-u-20-unaf-qualifiers-with-victories/)
+- **Morocco vs Algeria U20: When, How to Watch the Crucial AFCON Qualifier**: [Link](https://www.moroccoworldnews.com/2024/11/366482/morocco-vs-algeria-u20-when-how-to-watch-the-crucial-afcon-qualifier)
+- **VIDEO: Egypt Falls to Morocco in U20 North African Championship**: [Link](https://www.kingfut.com/2024/11/15/egypt-morocco-north-africa-championship/)
+
+
+### arryadia (N/A, Wed, 20 Nov 2024 10:10:00 -0800)
+
+
+
+
+### الرياضية مباشر (N/A, Wed, 20 Nov 2024 10:10:00 -0800)
+
+- **المنتخب الكويتي يختبر المدرب سلامي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%B3%D9%84%D8%A7%D9%85%D9%8A-1467126.html)
+- **ترتيب مجموعة الأردن في تصفيات كأس العالم 2026 بعد التعادل مع الكويت**: [Link](https://www.almasryalyoum.com/news/details/3310480)
+- **السلامي: "ما زالت حظوظ الأردن قائمة في التأهل للمونديال رغم تقدم العراق 
+لوصافة المجموعة"**: [Link](https://m.elbotola.com/article/2024-11-20-12-07-36.html)
+
+
+### unaf u17 (N/A, Wed, 20 Nov 2024 09:40:00 -0800)
+
+- **Tournoi UNAF U17: Maroc-Tunisie 2-2**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B9%D9%84%D9%89/)
+- **UNAF U17 / Ce soir, Maroc-Libye: Horaire ? Chaînes ?**: [Link](https://www.lopinion.ma/UNAF-U17-Ce-soir-Maroc-Libye-Horaire-Chaines_a60353.html)
+- **Foot-CAN 2025 (U17) Zone UNAF (4e journée) : La Tunisie sincline devant 
+lEgypte 2-3 et compromet ses chances de qualification**: [Link](https://www.tap.info.tn/fr/Portail-Titres-de-l-actualit%C3%A9/18126827-foot-can-2025-u17)
+
+
 ### بطولة شمال إفريقيا لأقل من 20 سنة 2024 (N/A, Wed, 20 Nov 2024 09:50:00 -0800)
 
 - **منتخب مصر للشباب ينتظر حسم طلبه في بطولة شمال أفريقيا**: [Link](https://m.kooora.com/?n=1369319&o=n3114105)
