@@ -1,3 +1,11 @@
+### reddit (N/A, Wed, 20 Nov 2024 14:40:00 -0800)
+
+- **Reddit is down – live updates on the huge outage**: [Link](https://www.techradar.com/news/live/reddit-is-down-november-2024-2)
+- **Reddit Outage Leaves Users With Upstream Connect Error Message and Infinite 
+Loading Times**: [Link](https://www.ign.com/articles/reddit-outage-leaves-users-with-upstream-connect-error-message-and-infinite-loading-times)
+- **Reddit and Venmo down: Users report outages on multiple social media sites**: [Link](https://www.independent.co.uk/news/world/americas/venmo-reddit-outage-down-site-crash-b2650836.html)
+
+
 ### lalla meryem (N/A, Wed, 20 Nov 2024 14:00:00 -0800)
 
 - **S.A.R. la Princesse Lalla Meryem préside la cérémonie de célébration du 25e 
