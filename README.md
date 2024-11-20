@@ -1,3 +1,12 @@
+### lalla meryem (N/A, Wed, 20 Nov 2024 14:00:00 -0800)
+
+- **S.A.R. la Princesse Lalla Meryem préside la cérémonie de célébration du 25e 
+anniversaire du Parlement de l'enfant**: [Link](https://lematin.ma/videos/celebration-du-25e-anniversaire-du-parlement-de-lenfant/252047)
+- **Lalla Meryem préside la cérémonie de célébration du 25è anniversaire du 
+Parlement de l'enfant**: [Link](https://fr.hespress.com/396991-lalla-meryem-preside-la-ceremonie-de-celebration-du-25e-anniversaire-du-parlement-de-lenfant.html)
+- **Jeunes parlementaires: Un bootcamp d’entrepreneuriat dédié**: [Link](https://www.leconomiste.com/article/1127967-jeunes-parlementaires-un-bootcamp-d-entrepreneuriat-dedie)
+
+
 ### onssa (N/A, Wed, 20 Nov 2024 07:30:00 -0800)
 
 
