@@ -1,3 +1,26 @@
+### البرازيل ضد أوروغواي (N/A, Tue, 19 Nov 2024 17:20:00 -0800)
+
+- **مدرب البرازيل: سنحاول "تحييد" أوروجواي.. والأداء ليس مثاليا**: [Link](https://m.kooora.com/?n=1369052&o=n)
+- **تصفيات مونديال 2026: البرازيل والأرجنتين للعودة إلى سكة الانتصارات**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20241119-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%88%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%84%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A5%D9%84%D9%89-%D8%B3%D9%83%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA)
+- **قمة طاحنة ما بين البرازيل وأوروجواي**: [Link](https://hihi2.com/2024/11/19/p2942392.html)
+
+
+### brazil vs uruguay (N/A, Tue, 19 Nov 2024 16:50:00 -0800)
+
+- **Brazil vs Uruguay prediction and betting tips on November 20, 2024**: [Link](https://ratingbet.com/predictions/brazil-vs-uruguay-prediction-and-betting-tips-on-november-20-2024/)
+- **How to Watch Brazil vs. Uruguay: 2026 FIFA World Cup Qualifiers**: [Link](https://www.si.com/soccer/how-to-watch-brazil-vs-uruguay-2026-fifa-world-cup-qualifiers-11-19-24)
+- **Brazil vs Uruguay Live streaming: World Cup qualifiers Live TV telecast, 
+channel, time**: [Link](https://www.mykhel.com/football/brazil-vs-uruguay-world-cup-qualifiers-match-live-streaming-details-321259.html)
+
+
+### argentine foot (N/A, Tue, 19 Nov 2024 16:50:00 -0800)
+
+- **Bleus : La France pourrait dépasser l'Argentine au classement FIFA**: [Link](https://www.lequipe.fr/Football/Actualites/La-france-pourrait-depasser-l-argentine-au-classement-fifa/1521119)
+- **Équipe de France. Résultats, contenu, Deschamps, Mbappé : le bilan d’une 
+année 2024 très**: [Link](https://laval.maville.com/sport/detail_-equipe-de-france.-resultats-contenu-deschamps-mbappe-le-bilan-d-une-annee-2024-tres-mouvementee-_54135-6557137_actu.Htm)
+- **DIRECT. Équipe de France : « L'heure de Zidane viendra sans doute un jour »**: [Link](https://www.leparisien.fr/sports/football/equipe-de-france/direct-equipe-de-france-quel-bilan-pour-les-bleus-de-deschamps-quid-de-mbappe-posez-vos-questions-a-notre-journaliste-18-11-2024-HHHR6KZUSNCA5N6FGX2V36HGGQ.php)
+
+
 ### brésil – uruguay (N/A, Tue, 19 Nov 2024 16:00:00 -0800)
 
 - **Brésil : le cri du cœur de Marquinhos**: [Link](https://www.footmercato.net/a7907661137625779876-bresil-le-cri-du-coeur-de-marquinhos)
