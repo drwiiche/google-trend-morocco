@@ -1,3 +1,10 @@
+### نوال الكويتية (N/A, Wed, 20 Nov 2024 04:30:00 -0800)
+
+- **مجلس الوزراء يقر سحب الجنسية من مزورين**: [Link](https://alseyassah.com/article/424760/%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D9%8A%D9%82%D8%B1-%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9-%D9%85%D9%86-%D9%85%D8%B2%D9%88%D8%B1%D9%8A%D9%86/)
+- **أنباء سحب الجنسية من نوال الكويتية تثير الجدل.. وحقيقة اعتزالها تكشف!**: [Link](https://www.raialyoum.com/%D8%A3%D9%86%D8%A8%D8%A7%D8%A1-%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9-%D9%85%D9%86-%D9%86%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA%D9%8A%D8%A9-%D8%AA%D8%AB%D9%8A/)
+- **ما هو أصل نوال الكويتية: هل هي من البدون أم عراقية؟**: [Link](https://mojazanba.com/fn/34392/2024/11/19/%D9%85%D8%A7-%D9%87%D9%88-%D8%A3%D8%B5%D9%84-%D9%86%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA%D9%8A%D8%A9-%D9%87%D9%84-%D9%87%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%AF%D9%88%D9%86/)
+
+
 ### maroc vs algerie (N/A, Wed, 20 Nov 2024 04:30:00 -0800)
 
 - **Tournoi UNAF U20: Ahmed Khatir Homme du match**: [Link](https://frmf.ma/fr/%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A3%D8%AD%D9%85%D8%AF-%D8%AE%D8%AA%D9%8A%D8%B1-%D8%A3%D8%AD%D8%B3%D9%86-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D9%85/)
