@@ -1,3 +1,12 @@
+### député joachim son forget (N/A, Wed, 20 Nov 2024 06:20:00 -0800)
+
+- **Elle s'appelait Joachim. Eva Son-Forget annonce sa transition de genre**: [Link](https://www.blick.ch/fr/suisse/lenfant-terrible-de-la-politique-elle-sappelait-joachim-eva-son-forget-annonce-sa-transition-de-genre-id20330681.html)
+- **Joachim Son-Forget n'est plus... L'ex-députée s'appelle désormais Eva, la 
+réaction de ses 3 enfants évoquée**: [Link](https://fr.news.yahoo.com/joachim-forget-nest-lex-d%C3%A9put%C3%A9e-104300430.html)
+- **Un ex-député zemmouriste annonce qu'il devient une femme : "Dans mon camp, 
+ça va faire grincer des dents"**: [Link](https://www.linternaute.com/actualite/politique/6664129-un-ex-depute-zemmouriste-annonce-qu-il-devient-une-femme-dans-mon-camp-ca-va-faire-grincer-des-dents/)
+
+
 ### نوال الكويتية (N/A, Wed, 20 Nov 2024 04:30:00 -0800)
 
 - **مجلس الوزراء يقر سحب الجنسية من مزورين**: [Link](https://alseyassah.com/article/424760/%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D9%8A%D9%82%D8%B1-%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9-%D9%85%D9%86-%D9%85%D8%B2%D9%88%D8%B1%D9%8A%D9%86/)
