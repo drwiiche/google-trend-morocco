@@ -1,3 +1,13 @@
+### bryan johnson (N/A, Tue, 19 Nov 2024 23:40:00 -0800)
+
+- **Man Who Once Used Son's Blood In Bid for Eternal Youth Details Fat 
+Injection 'Gone Wrong'**: [Link](https://toofab.com/2024/11/18/bryan-johnson-fat-transfer-mishap/)
+- **‘Project Baby Face’ Fat Injections Cause Entrepreneur’s Face to ‘Blow Up’ 
+amid His $2 Million Quest to Look Younger**: [Link](https://people.com/bryan-johnson-project-blueprint-donor-face-fat-injections-allergic-reaction-photos-8747053)
+- **Tech millionaire who spends $2 million a year to live forever looks 
+unrecognizable after anti-aging procedure**: [Link](https://fortune.com/well/article/bryan-johnson-live-longer-unrecognizable-anti-aging-procedure/)
+
+
 ### meteo (N/A, Tue, 19 Nov 2024 22:50:00 -0800)
 
 - **Weather: Anomalous African Heat Ready to Return, Let’s See When**: [Link](https://www.meteogiornale.it/eng/2024/11/weather-news/weather-anomalous-african-heat-ready-to-return-lets-see-when/)
