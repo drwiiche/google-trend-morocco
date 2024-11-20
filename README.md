@@ -1,3 +1,18 @@
+### vinicius júnior (N/A, Wed, 20 Nov 2024 11:20:00 -0800)
+
+- **Artigo: Protagonismo Negro X Racismo**: [Link](https://tnsul.com/2024/11/20/artigo-protagonismo-negro-x-racismo/)
+- **Vini Jr: como funciona o teste de ancestralidade feito pelo jogador**: [Link](https://www.metropoles.com/saude/vini-jr-como-funciona-teste-ancestralidade)
+- **Vinícius descobre que tem antepassados dos Camarões**: [Link](https://www.publico.pt/2024/11/20/desporto/noticia/vinicius-descobre-antepassados-camaroes-2112645)
+
+
+### maroc u17 (N/A, Wed, 20 Nov 2024 10:20:00 -0800)
+
+- **Tournoi UNAF U17: Maroc-Tunisie 2-2**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B9%D9%84%D9%89/)
+- **UNAF U17 / Ce soir, Maroc-Libye: Horaire ? Chaînes ?**: [Link](https://www.lopinion.ma/UNAF-U17-Ce-soir-Maroc-Libye-Horaire-Chaines_a60353.html)
+- **Foot-CAN 2025 (U17) Zone UNAF (4e journée) : La Tunisie sincline devant 
+lEgypte 2-3 et compromet ses chances de qualification**: [Link](https://www.tap.info.tn/fr/Portail-Titres-de-l-actualit%C3%A9/18126827-foot-can-2025-u17)
+
+
 ### morocco vs algeria (N/A, Wed, 20 Nov 2024 10:20:00 -0800)
 
 - **Tunisia, Morocco begin AFCON U-20 UNAF Qualifiers with victories**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/tunisia-morocco-begin-afcon-u-20-unaf-qualifiers-with-victories/)
