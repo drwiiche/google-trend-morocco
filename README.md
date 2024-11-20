@@ -1,3 +1,18 @@
+### brésil – uruguay (N/A, Tue, 19 Nov 2024 16:00:00 -0800)
+
+- **Brésil : le cri du cœur de Marquinhos**: [Link](https://www.footmercato.net/a7907661137625779876-bresil-le-cri-du-coeur-de-marquinhos)
+- **Qualif. Coupe du monde : À quelle heure et sur quelle chaîne voir 
+Brésil-Uruguay ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-uruguay-bresil/1521147)
+- **Football : L’ambition de Vinicius Jr pour le Brésil**: [Link](https://www.beinsports.com/fr-fr/football/articles/football-l-ambition-de-vinicius-jr-pour-le-br%C3%A9sil-2024-11-19)
+
+
+### الياس المالكي (N/A, Tue, 19 Nov 2024 15:00:00 -0800)
+
+- **القضاء يدين المالكي بـ4 أشهر حبسا نافذا.. والبراءة من "كراهية الأمازيغ"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D9%8A%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D8%A8%D9%804-%D8%A3%D8%B4%D9%87%D8%B1-%D8%AD%D8%A8%D8%B3%D8%A7-%D9%86%D8%A7%D9%81%D8%B0%D8%A7-1467653.html)
+- **إدانة اليوتيوبر إلياس المالكي بالحبس والغرامة**: [Link](https://ar.hibapress.com/details-575108.html)
+- **عاجل.. حكم بالحبس النافذ في حق الستريمر إلياس المالكي**: [Link](https://www.akhbarona.com/society/396025.html)
+
+
 ### argentina vs peru (N/A, Tue, 19 Nov 2024 15:30:00 -0800)
 
 - **Solano Elogia a Argentina Antes del Encuentro con Perú: Orgulloso de Tener 
