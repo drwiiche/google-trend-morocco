@@ -1,3 +1,10 @@
+### مباراة المغرب والجزائر (N/A, Wed, 20 Nov 2024 04:00:00 -0800)
+
+- **مواجهة حارقة بين المغرب والجزائر للتأهل لكأس إفريقيا**: [Link](https://www.analkhabar.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AD%D8%A7%D8%B1%D9%82%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%84%D9%84%D8%AA%D8%A3/)
+- **مباراة التأهل لكأس أمم إفريقيا: الموعد والقناة الناقلة لمب...**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/450854.html)
+- **قناة "الرياضية" تزف خبرا سارا للجماهير المغربية**: [Link](https://ar.sport.le360.ma/football/lions-atlas/OLIIKOUPBZDODNLZMGQCKWKV3A/)
+
+
 ### bryan johnson (N/A, Tue, 19 Nov 2024 23:40:00 -0800)
 
 - **Man Who Once Used Son's Blood In Bid for Eternal Youth Details Fat 
