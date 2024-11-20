@@ -1,3 +1,11 @@
+### yamal (N/A, Wed, 20 Nov 2024 12:10:00 -0800)
+
+- **Injured Barcelona fan favourite has limited scope for action against Celta 
+Vigo**: [Link](https://barcauniversal.com/injured-barcelona-fan-favourite-has-limited-scope-for-action-against-celta-vigo/)
+- **Barcelona could cover Lamine Yamal's injury with 16-year-old sensation**: [Link](https://www.msn.com/en-au/sport/other/barcelona-could-cover-lamine-yamal-s-injury-with-16-year-old-sensation/ar-AA1u5FOD)
+- **Lamine Yamal ‘practically ruled out’ of Barcelona’s clash with Celta**: [Link](https://www.barcablaugranes.com/2024/11/20/24301460/lamine-yamal-practically-ruled-out-of-barcelonas-clash-with-celta)
+
+
 ### vinicius júnior (N/A, Wed, 20 Nov 2024 11:20:00 -0800)
 
 - **Artigo: Protagonismo Negro X Racismo**: [Link](https://tnsul.com/2024/11/20/artigo-protagonismo-negro-x-racismo/)
