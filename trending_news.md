@@ -1,3 +1,13 @@
+### denzel washington (N/A, Wed, 20 Nov 2024 06:30:00 -0800)
+
+- **Denzel Washington Lost Best Actor to Kevin Spacey and Stopped Voting for 
+Oscars: ‘They Don’t Care About Me? I Don’t Care. I Gave Up. I Got Bitter.’**: [Link](https://variety.com/2024/film/news/denzel-washington-lost-oscar-kevin-spacey-stopped-voting-1236214174/)
+- **Denzel Washington says he ‘gave up’ on the Oscars after losing to Kevin 
+Spacey**: [Link](https://www.msn.com/en-gb/news/uknews/denzel-washington-says-he-gave-up-on-the-oscars-after-losing-to-kevin-spacey/ar-AA1uq1Ib)
+- **Denzel Washington was 'bitter' after losing two Oscars ｜ BANG Showbiz 
+English**: [Link](https://nordot.app/1231865146356285998)
+
+
 ### député joachim son forget (N/A, Wed, 20 Nov 2024 06:20:00 -0800)
 
 - **Elle s'appelait Joachim. Eva Son-Forget annonce sa transition de genre**: [Link](https://www.blick.ch/fr/suisse/lenfant-terrible-de-la-politique-elle-sappelait-joachim-eva-son-forget-annonce-sa-transition-de-genre-id20330681.html)
