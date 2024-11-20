@@ -1,3 +1,12 @@
+### المغرب ضد الجزائر (N/A, Wed, 20 Nov 2024 06:50:00 -0800)
+
+- **مجانًا.. القنوات المفتوحة الناقلة لمباراة المغرب والجزائر في تصفيات أمم 
+إفريقيا للشباب**: [Link](https://www.almasryalyoum.com/news/details/3310916)
+- **تصفيات شمال أفريقيا المؤهلة لكأس أفريقيا تحت 20 سنة/ المغرب يواجه الجزائر 
+اليوم الأربعاء (19:00) وعينه على تحقيق ثالث انتصاراته**: [Link](https://m.elbotola.com/article/2024-11-20-11-30-967.html)
+- **الأشبال يواجهون الجزائر في ديربي التأهل**: [Link](https://assabah.ma/812080.html)
+
+
 ### denzel washington (N/A, Wed, 20 Nov 2024 06:30:00 -0800)
 
 - **Denzel Washington Lost Best Actor to Kevin Spacey and Stopped Voting for 
