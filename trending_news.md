@@ -1,3 +1,12 @@
+### meteo (N/A, Tue, 19 Nov 2024 22:50:00 -0800)
+
+- **Weather: Anomalous African Heat Ready to Return, Let’s See When**: [Link](https://www.meteogiornale.it/eng/2024/11/weather-news/weather-anomalous-african-heat-ready-to-return-lets-see-when/)
+- **Weather Weekend, changes again: with the Subtropical Anticyclone, 
+temperatures return to +20°C**: [Link](https://www.meteogiornale.it/eng/2024/11/weather-news/weather-weekend-changes-again-with-the-subtropical-anticyclone-temperatures-return-to-20c/)
+- **Weather: warm southwesterly wind coming, thermometers going crazy from 
+Tuesday!**: [Link](https://www.meteogiornale.it/eng/2024/11/weather-news/weather-warm-southwesterly-wind-coming-thermometers-going-crazy-from-tuesday/)
+
+
 ### البرازيل ضد أوروغواي (N/A, Tue, 19 Nov 2024 17:20:00 -0800)
 
 - **مدرب البرازيل: سنحاول "تحييد" أوروجواي.. والأداء ليس مثاليا**: [Link](https://m.kooora.com/?n=1369052&o=n)
