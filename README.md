@@ -1,3 +1,10 @@
+### بطولة شمال إفريقيا لأقل من 17 سنة 2024 (N/A, Wed, 20 Nov 2024 10:00:00 -0800)
+
+- **الفوز يفصل الفتيان عن “الكان”**: [Link](https://assabah.ma/812065.html)
+- **دورة "لوناف" لأقل من 17 سنة.. تقديم موعد مواجهات الجولة الخامسة**: [Link](https://www.ennaharonline.com/%D8%AF%D9%88%D8%B1%D8%A9-%D9%84%D9%88%D9%86%D8%A7%D9%81-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D9%88%D8%A7/)
+- **دورة إنحاد شمال إفريقيا: تونس تنفرد بالصدارة بعد الفوز على الجزائر**: [Link](https://www.almountakhab.com/node/16206556)
+
+
 ### yamal (N/A, Wed, 20 Nov 2024 12:10:00 -0800)
 
 - **Injured Barcelona fan favourite has limited scope for action against Celta 
