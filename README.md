@@ -1,3 +1,18 @@
+### العروبة ضد العين (N/A, Thu, 21 Nov 2024 07:20:00 -0800)
+
+- **مدرب العين: لدينا مشاكل دفاعية.. وهذه طريقة العلاج**: [Link](https://m.kooora.com/?n=1369315&pg=1&o=n1000127)
+- **العروبة والعين.. «كسر التعادل» في «الحوار الثالث»**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4531027/%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%A8%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D9%8A%D9%86----%D9%83%D8%B3%D8%B1-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84--%D9%81%D9%8A--%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB)
+- **مباراتان تفتتحان الجولة الثامنة من دوري أدنوك اليوم | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2024-11-21/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D8%A7%D9%86-%D8%AA%D9%81%D8%AA%D8%AA%D8%AD%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%85%D9%86%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%AF%D9%86%D9%88%D9%83-%D8%A7%D9%84%D9%8A%D9%88%D9%85/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D9%85%D8%AD%D9%84%D9%8A/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+
+
+### netanyahu (N/A, Thu, 21 Nov 2024 07:20:00 -0800)
+
+- **What is the ICC, which has issued arrest warrants for Israeli and Hamas 
+leaders?**: [Link](https://www.reuters.com/world/what-is-international-criminal-court-2024-11-21/)
+- **ICC issues arrest warrants for Netanyahu, Gallant and Hamas commander**: [Link](https://www.bbc.com/news/articles/cly2exvx944o)
+- **LIVE: ICC arrest warrants for Israel’s Netanyahu and Gallant, Hamas’s Deif**: [Link](https://www.aljazeera.com/news/liveblog/2024/11/21/live-israeli-attacks-kill-52-in-north-gaza-us-defends-gaza-ceasefire-veto)
+
+
 ### boualem sansal (N/A, Thu, 21 Nov 2024 08:00:00 -0800)
 
 - **L'écrivain Boualem Sansal emprisonné en Algérie**: [Link](https://www.marianne.net/monde/l-ecrivain-boualem-sansal-emprisonne-en-algerie)
