@@ -1,3 +1,22 @@
+### الفجر (N/A, Wed, 20 Nov 2024 21:20:00 -0800)
+
+- **"شاهد مدبلج للعربية" تردد قناة الفجر الجزائرية قيامة عثمان بعد حصوله على 
+نسبة مشاهدة عالية بالدول**: [Link](https://ae.ahdath-alyom.com/50841/%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%AF%D8%A8%D9%84%D8%AC-%D9%84%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-%D8%A7%D9%84/)
+- **“لا تفوتك لحظة من متعة المشاهدة! كل ما تحتاج معرفته عن تردد قناة الفجر 
+الجزائرية وأفضل الأعمال الدرامية التي تعرضها”**: [Link](https://ye.alyemenalghad.com/general/%D9%84%D8%A7-%D8%AA%D9%81%D9%88%D8%AA%D9%83-%D9%84%D8%AD%D8%B8%D8%A9-%D9%85%D9%86-%D9%85%D8%AA%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%83%D9%84-%D9%85%D8%A7-%D8%AA%D8%AD/)
+- **" اضبطها وتابع أجمل المسلسلات التركية" تردد قناة الفجر الجزائرية الجديد على 
+القمر الصناعي نايل سات وعرب سات**: [Link](http://www.akhbarak.net/news/details/46746720/11/quot-%D8%A7%D8%B6%D8%A8%D8%B7%D9%87%D8%A7-%D9%88%D8%AA%D8%A7%D8%A8%D8%B9-%D8%A3%D8%AC%D9%85%D9%84-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D8%B3%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-quot-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D8%A7%D9%84%D8%B5%D9%86%D8%A7%D8%B9%D9%8A-%D9%86%D8%A7%D9%8A%D9%84-%D8%B3%D8%A7%D8%AA-%D9%88%D8%B9%D8%B1%D8%A8-%D8%B3%D8%A7%D8%AA)
+
+
+### kamel daoud houris (N/A, Wed, 20 Nov 2024 16:10:00 -0800)
+
+- **Insolite. L'écrivain Kamel Daoud visé par une plainte en Algérie**: [Link](https://fr.hespress.com/397010-insolite-lecrivain-kamel-daoud-vise-par-une-plainte-en-algerie.html)
+- **Saâda Arbane accuse l’écrivain et sa femme d’avoir exploité son histoire - 
+Le roman Houris : fiction ou réalité cachée**: [Link](https://elwatan-dz.com/saada-arbane-accuse-lecrivain-et-sa-femme-davoir-exploite-son-histoire-le-roman-houris-fiction-ou-realite-cachee)
+- **En Algérie, l’écrivain Kamel Daoud et sa femme accusés de « viol de 
+l’intimité » par une victime du terrorisme**: [Link](https://www.lemonde.fr/afrique/article/2024/11/18/en-algerie-l-ecrivain-kamel-daoud-et-sa-femme-accuses-de-viol-de-l-intimite-par-une-victime-du-terrorisme_6401362_3212.html)
+
+
 ### unaf u20 (N/A, Wed, 20 Nov 2024 10:00:00 -0800)
 
 - **Tournoi UNAF U20: Maroc-Tunisie 2-1**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%AA%D9%88/)
