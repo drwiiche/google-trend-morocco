@@ -1,3 +1,13 @@
+### jordan bardella (N/A, Thu, 21 Nov 2024 07:00:00 -0800)
+
+- **"Ça vaut pour tout le monde": Bardella juge qu'une personne condamnée ne 
+peut pas être candidate RN**: [Link](https://www.bfmtv.com/politique/front-national/ca-vaut-pour-tout-le-monde-bardella-juge-qu-une-personne-condamnee-ne-peut-pas-etre-candidate-rn_AV-202411181061.html)
+- **«La règle numéro un» pour être candidat du Rassemblement national est de 
+«ne pas avoir de condamnation judiciaire», assure Jordan Bardella**: [Link](https://www.lefigaro.fr/politique/la-regle-numero-une-pour-etre-candidat-du-rassemblement-national-est-de-ne-pas-avoir-condamnation-judiciaire-assure-jordan-bardella-20241119)
+- **Vidéo. Jordan Bardella avoue qu'il ne souhaite pas que Marine Le Pen se 
+présente si elle est condamnée**: [Link](https://www.humanite.fr/politique/jordan-bardella/jordan-bardella-avoue-quil-ne-souhaite-pas-que-marine-le-pen-se-presente-si-elle-est-condamnee)
+
+
 ### choguel kokalla maïga (N/A, Thu, 21 Nov 2024 05:40:00 -0800)
 
 - **Mali : le premier ministre et le gouvernement limogés**: [Link](https://lematin.ma/monde/mali-le-premier-ministre-et-le-gouvernement-limoges/252246)
