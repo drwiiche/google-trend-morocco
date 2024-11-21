@@ -1,3 +1,11 @@
+### skn st. pölten frauen – fc barcelone (N/A, Thu, 21 Nov 2024 12:20:00 -0800)
+
+- **Barcelona weiter hungrig: "Wir wollen so viele Tore wie möglich machen"**: [Link](https://www.kicker.de/barcelona-weiter-hungrig-wir-wollen-so-viele-tore-wie-moeglich-machen-1069300/artikel)
+- **Champions League: St. Pölten nach Abfuhr vor Barca gewarnt**: [Link](https://sport.orf.at/stories/3134758/)
+- **Women's Champions League - St. Pölten will gegen Barça Zuschauerrekord 
+knacken**: [Link](https://www.noen.at/meinfussball/frauen-bundesliga/women-s-champions-league-st-poelten-will-gegen-barca-zuschauerrekord-knacken-448662480)
+
+
 ### vinicius júnior (N/A, Thu, 21 Nov 2024 11:50:00 -0800)
 
 - **Vinicius Deve Focar no Futebol e Evitar Controvérsias por um Ano Inteiro**: [Link](https://www.footboom1.com/br/news/football/2086320-vinicius-should-focus-on-football-and-avoid-controversies-for-a-whole-year)
