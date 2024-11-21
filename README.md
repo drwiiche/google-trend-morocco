@@ -1,3 +1,11 @@
+### jaguar voiture (N/A, Thu, 21 Nov 2024 01:20:00 -0800)
+
+- **«Et sinon, vous faites encore des voitures ?» : Jaguar épinglée pour sa 
+nouvelle image trop «woke»**: [Link](https://www.lefigaro.fr/societes/et-sinon-vous-faites-encore-des-voitures-jaguar-epingle-pour-sa-nouvelle-image-trop-woke-20241120)
+- **Jaguar présente son « modernisme exubérant » avec le concept Design Vision**: [Link](https://ecoloauto.com/jaguar-presente-son-modernisme-exuberant-avec-le-concept-design-vision/)
+- **Jaguar : Première photo de la XJ électrique**: [Link](https://fr.news.yahoo.com/jaguar-premi%C3%A8re-photo-xj-%C3%A9lectrique-183018836.html)
+
+
 ### vigilance neige verglas (N/A, Thu, 21 Nov 2024 07:20:00 -0800)
 
 - **Tempête Caetano : 14.000 foyers privés d'électricité en Limousin, des 
