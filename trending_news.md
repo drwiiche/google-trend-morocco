@@ -1,3 +1,12 @@
+### choguel kokalla maïga (N/A, Thu, 21 Nov 2024 05:40:00 -0800)
+
+- **Mali : le premier ministre et le gouvernement limogés**: [Link](https://lematin.ma/monde/mali-le-premier-ministre-et-le-gouvernement-limoges/252246)
+- **Au Mali, le Premier ministre Choguel Maïga limogé après ses propos 
+critiques contre la junte**: [Link](https://www.jeuneafrique.com/1632363/politique/au-mali-rumeurs-de-limogeage-de-choguel-maiga-apres-le-report-du-conseil-des-ministres/)
+- **Journal de l'Afrique - Mali : les militaires au pouvoir renvoient le 
+Premier ministre Maïga et le gouvernement**: [Link](https://www.france24.com/fr/%C3%A9missions/journal-de-l-afrique/20241120-mali-les-militaires-au-pouvoir-renvoient-le-premier-ministre-ma%C3%AFga-et-le-gouvernement)
+
+
 ### avion da42 (N/A, Thu, 21 Nov 2024 06:10:00 -0800)
 
 - **Crash d'un avion d'entraînement à la base de Benslimane : deux officiers 
