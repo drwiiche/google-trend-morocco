@@ -1,3 +1,22 @@
+### fc jove español san vicente – real sociedad (N/A, Thu, 21 Nov 2024 11:40:00 -0800)
+
+- **[A por ellos] "Cien maneras de volver", por Mikel Recalde**: [Link](https://www.noticiasdegipuzkoa.eus/reala/2024/11/21/cien-maneras-volver-mikel-recalde-8957683.html)
+- **Imanol: ''Bastante desgracia ha pasado con lo de la DANA como para 
+quejarnos por jugar en esta fecha''**: [Link](https://www.eitb.eus/es/deportes/futbol/real-sociedad/videos/detalle/9632073/imanol-bastante-desgracia-ha-pasado-con-lo-de-dana-como-para-quejarnos-por-jugar-en-esta-fecha/)
+- **Imanol Alguacil confirma 2 fichajes contra el Athletic**: [Link](https://www.msn.com/es-es/deportes/futbol/imanol-alguacil-confirma-2-fichajes-contra-el-athletic/ar-AA1uvfLZ)
+
+
+### paul pogba (N/A, Thu, 21 Nov 2024 11:40:00 -0800)
+
+- **‘I’d be so happy to see you in Marseille’ – Former France international 
+urges Paul Pogba to make sensational switch**: [Link](https://sports.yahoo.com/d-happy-see-marseille-former-182600976.html)
+- **'Marseille is a very, very, very, good choice!' - Paul Pogba urged to link 
+up with former Man Utd team-mate Mason Greenwood at Ligue 1 club after 
+Juventus exit**: [Link](https://www.goal.com/en-kw/lists/marseille-paul-pogba-mason-greenwood-ligue-1-juventus-exit/blt33d391d2067c7f16)
+- **Paul Pogba 'offers himself' to elite European team but is immediately told 
+they want 'nothing to do with him'**: [Link](https://www.sportbible.com/football/football-news/paul-pogba-transfer-juventus-free-agent-offer-507121-20241121)
+
+
 ### paypal (N/A, Thu, 21 Nov 2024 04:10:00 -0800)
 
 - **PayPal has just broken**: [Link](https://www.the-independent.com/tech/paypal-down-not-working-status-latest-b2651247.html)
