@@ -1,3 +1,11 @@
+### vinicius júnior (N/A, Thu, 21 Nov 2024 11:50:00 -0800)
+
+- **Vinicius Deve Focar no Futebol e Evitar Controvérsias por um Ano Inteiro**: [Link](https://www.footboom1.com/br/news/football/2086320-vinicius-should-focus-on-football-and-avoid-controversies-for-a-whole-year)
+- **Dia da Consciência Negra: Vinícius Júnior dá forte depoimento sobre combate 
+ao racismo**: [Link](https://gazetadourubu.com/noticia/dia-da-consciencia-negra-vinicius-junior-da-forte-depoimento-sobre-combate-ao-racismo)
+- **Vinícius Júnior recebe homenagem em Salvador por sua ancestralidade africana**: [Link](https://www1.brasilemfolhas.com.br/2024/11/vinicius-junior-recebe-homenagem-em-salvador-por-sua-ancestralidade-africana/)
+
+
 ### fc jove español san vicente – real sociedad (N/A, Thu, 21 Nov 2024 11:40:00 -0800)
 
 - **[A por ellos] "Cien maneras de volver", por Mikel Recalde**: [Link](https://www.noticiasdegipuzkoa.eus/reala/2024/11/21/cien-maneras-volver-mikel-recalde-8957683.html)
