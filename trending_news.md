@@ -1,3 +1,11 @@
+### unaf u20 (N/A, Wed, 20 Nov 2024 10:00:00 -0800)
+
+- **Tournoi UNAF U20: Maroc-Tunisie 2-1**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%AA%D9%88/)
+- **UNAF U20/U17 : Les Lionceaux de l'Atlas en action ce mercredi, voici le 
+programme**: [Link](https://fr.hespress.com/397119-unaf-u20-u17-les-lionceaux-de-latlas-en-action-ce-mercredi-voici-le-programme.html)
+- **Match Maroc – Algérie : A quelle heure et sur quelle chaine ? (Live)**: [Link](https://www.bladi.net/match-maroc-algerie-quelle-heure-quelle-chaine-live,111642.html)
+
+
 ### unaf u20 maroc algérie (N/A, Wed, 20 Nov 2024 11:40:00 -0800)
 
 - **Tournoi UNAF U20: Maroc-Tunisie 2-1**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%AA%D9%88/)
