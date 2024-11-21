@@ -1,3 +1,11 @@
+### boualem sansal (N/A, Thu, 21 Nov 2024 08:00:00 -0800)
+
+- **L'écrivain Boualem Sansal emprisonné en Algérie**: [Link](https://www.marianne.net/monde/l-ecrivain-boualem-sansal-emprisonne-en-algerie)
+- **Où est passé l’écrivain algérien Boualem Sansal ?**: [Link](https://www.lepoint.fr/monde/ou-est-passe-l-ecrivain-algerien-boualem-sansal-21-11-2024-2575941_24.php)
+- **Vives inquiétudes à Paris sur une possible arrestation de Boualem Sansal en 
+Algérie**: [Link](https://www.lefigaro.fr/international/vives-inquietudes-a-paris-sur-une-possible-arrestation-de-boualem-sansal-en-algerie-20241121)
+
+
 ### reddit (N/A, Thu, 21 Nov 2024 07:40:00 -0800)
 
 - **Reddit is down again – it's the second major outage in two days for the 
