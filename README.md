@@ -1,3 +1,11 @@
+### casablanca (N/A, Thu, 21 Nov 2024 14:50:00 -0800)
+
+- **De retour de Rio, Xi Jinping fera escale au Maroc**: [Link](https://maroc-diplomatique.net/de-retour-de-rio-xi-jinping-fera-escale-au-maroc/)
+- **Sahara Marocain : demain la Chine ?**: [Link](https://www.bladi.net/sahara-marocain-demain-chine,111614.html)
+- **Quelle signification géopolitique de l’escale de Xi Jinping au Maroc après 
+les Îles Canaries ?**: [Link](https://www.le1.ma/quelle-signification-geopolitique-de-lescale-de-xi-jinping-au-maroc-apres-les-iles-canaries/)
+
+
 ### xi jinping (N/A, Thu, 21 Nov 2024 14:00:00 -0800)
 
 - **China Warns US Over Russia-Ukraine War After Missile Move**: [Link](https://www.newsweek.com/china-warns-us-russia-ukraine-war-1989561)
