@@ -1,3 +1,12 @@
+### avion da42 (N/A, Thu, 21 Nov 2024 06:10:00 -0800)
+
+- **Crash d'un avion d'entraînement à la base de Benslimane : deux officiers 
+tués**: [Link](https://www.leconomiste.com/flash-infos/crash-d-un-avion-d-entrainement-la-base-de-benslimane-deux-officiers-tues)
+- **Info360. Deux morts dans le crash d’un petit avion à l’aéroport de 
+Benslimane**: [Link](https://fr.le360.ma/societe/info360-deux-morts-dans-le-crash-dun-petit-avion-a-laeroport-de-benslimane_BHVRXPRO4JHRZB2ZRM5DZJ2H7U/)
+- **Benslimane : crash d’un avion militaire, deux officiers tués**: [Link](https://www.barlamane.com/fr/benslimane-crash-dun-avion-militaire-deux-officiers-tues/)
+
+
 ### pogba (N/A, Thu, 21 Nov 2024 06:00:00 -0800)
 
 - **Sources: Pogba eyes top European team after ban**: [Link](https://www.espn.co.uk/football/story/_/id/42462697/paul-pogba-keen-restart-career-europe-ban-sources)
