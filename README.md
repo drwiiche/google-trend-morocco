@@ -1,3 +1,10 @@
+### pogba (N/A, Thu, 21 Nov 2024 06:00:00 -0800)
+
+- **Sources: Pogba eyes top European team after ban**: [Link](https://www.espn.co.uk/football/story/_/id/42462697/paul-pogba-keen-restart-career-europe-ban-sources)
+- **Newcastle Eyeing Move for 'Phenomenal' Star Who Once Cost £93m**: [Link](https://www.givemesport.com/newcastle-eyeing-move-for-phenomenal-star-who-once-cost-93m/)
+- **Paul Pogba’s Juventus Contract Terminated**: [Link](https://oldjuve.com/paul-pogba-s-juventus-contract-terminated)
+
+
 ### maroc iran (N/A, Thu, 21 Nov 2024 00:50:00 -0800)
 
 - **Missiles Arash : Le rôle de l’Iran dans le soutien au Polisario dévoilé**: [Link](https://maroc-diplomatique.net/missiles-arash-le-role-de-liran-dans-le-soutien-au-polisario-devoile/)
