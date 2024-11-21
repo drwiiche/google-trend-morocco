@@ -1,3 +1,12 @@
+### reddit (N/A, Thu, 21 Nov 2024 07:40:00 -0800)
+
+- **Reddit is down again – it's the second major outage in two days for the 
+popular discussion platform**: [Link](https://www.techradar.com/news/live/reddit-is-down-november-2024-2)
+- **Is Reddit down? Here's what we know on November 21 2024**: [Link](https://ftw.usatoday.com/2024/11/is-reddit-down-thursday-november-21-2024)
+- **Reddit is down for many users, according to DownDetector. Here's what to 
+know.**: [Link](https://www.cbsnews.com/news/reddit-down-outage-downdetector-what-to-know/)
+
+
 ### jordan bardella (N/A, Thu, 21 Nov 2024 07:00:00 -0800)
 
 - **"Ça vaut pour tout le monde": Bardella juge qu'une personne condamnée ne 
