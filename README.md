@@ -1,3 +1,10 @@
+### achraf fayda (N/A, Thu, 21 Nov 2024 07:30:00 -0800)
+
+- **Achraf Fayda: The New Visionary Leader at the Helm of Morocco’s Tourism 
+Future**: [Link](https://www.moroccoworldnews.com/2024/11/366521/achraf-fayda-the-new-visionary-leader-at-the-helm-of-moroccos-tourism-future)
+- **Government Council Appoints Achraf Fayda as New Director General of ONMT**: [Link](https://www.moroccoworldnews.com/2024/11/366512/government-council-appoints-achraf-fayda-as-new-director-general-of-onmt)
+
+
 ### keno (N/A, Thu, 21 Nov 2024 10:10:00 -0800)
 
 - **Maryland Lottery player wins $100,008 Keno prize on her birthday**: [Link](https://www.upi.com/Odd_News/2024/11/21/lotto-Maryland-Lottery-birthday-Keno/4081732220814/)
