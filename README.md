@@ -1,3 +1,12 @@
+### pix (N/A, Thu, 21 Nov 2024 00:10:00 -0800)
+
+- **Comunicado para brasileiros que utilizam o cartão de crédito**: [Link](https://monitordomercado.com.br/noticias/173431-comunicado-para-brasileiros-que-utilizam-o-cartao-de-credito/)
+- **Regra do Pix começa a valer em 01/2025 e pega usuários de surpresa: mudou 
+TUDO!**: [Link](https://pronatec.pro.br/regra-do-pix-comeca-a-valer-em-01-2025/)
+- **Stone inicia testes de Pix por aproximação e começará a liberar uso em 
+piloto**: [Link](https://mercadoeconsumo.com.br/18/11/2024/meios-de-pagamento/stone-inicia-testes-de-pix-por-aproximacao-e-comecara-a-liberar-uso-em-piloto/)
+
+
 ### الفجر (N/A, Wed, 20 Nov 2024 21:20:00 -0800)
 
 - **"شاهد مدبلج للعربية" تردد قناة الفجر الجزائرية قيامة عثمان بعد حصوله على 
