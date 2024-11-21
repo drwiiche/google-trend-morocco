@@ -1,3 +1,12 @@
+### vigilance neige verglas (N/A, Thu, 21 Nov 2024 07:20:00 -0800)
+
+- **Tempête Caetano : 14.000 foyers privés d'électricité en Limousin, des 
+routes coupées et des trains supprimés ce jeudi**: [Link](https://www.francebleu.fr/infos/meteo/tempete-caetano-en-limousin-des-chutes-d-arbres-coupures-d-electricite-et-trains-supprimes-signales-ce-jeudi-2768904)
+- **Neige, verglas et vent : 54 départements en vigilance orange avant le 
+passage de la tempête Caetano**: [Link](https://www.lemonde.fr/planete/article/2024/11/21/neige-verglas-et-vent-cinquante-quatre-departements-en-vigilance-orange_6404848_3245.html)
+- **Coup de froid cette semaine**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/coup-de-froid-cette-semaine)
+
+
 ### العروبة ضد العين (N/A, Thu, 21 Nov 2024 07:20:00 -0800)
 
 - **مدرب العين: لدينا مشاكل دفاعية.. وهذه طريقة العلاج**: [Link](https://m.kooora.com/?n=1369315&pg=1&o=n1000127)
