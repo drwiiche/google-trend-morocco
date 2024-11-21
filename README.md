@@ -1,3 +1,12 @@
+### iran (N/A, Thu, 21 Nov 2024 03:20:00 -0800)
+
+- **Iran Suggests Pausing Its High Levels of Uranium Enrichment to Avoid 
+Censure, Monitor Says**: [Link](https://www.nytimes.com/2024/11/19/world/middleeast/1iran-bomb-grade-nuclear-fuel.html)
+- **Iran vastly increased nuclear fuel stockpile ahead of Trump return, UN 
+agency finds**: [Link](https://www.foxnews.com/politics/iran-increased-nuclear-fuel-stockpile-trump-return-un-agency-finds)
+- **Iran offers to cap sensitive uranium stock as IAEA resolution looms**: [Link](https://www.reuters.com/world/middle-east/iran-offers-cap-sensitive-uranium-stock-avoid-iaea-resolution-2024-11-19/)
+
+
 ### pix (N/A, Thu, 21 Nov 2024 00:10:00 -0800)
 
 - **Comunicado para brasileiros que utilizam o cartão de crédito**: [Link](https://monitordomercado.com.br/noticias/173431-comunicado-para-brasileiros-que-utilizam-o-cartao-de-credito/)
