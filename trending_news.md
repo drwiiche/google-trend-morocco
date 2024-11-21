@@ -1,3 +1,10 @@
+### paypal (N/A, Thu, 21 Nov 2024 04:10:00 -0800)
+
+- **PayPal has just broken**: [Link](https://www.the-independent.com/tech/paypal-down-not-working-status-latest-b2651247.html)
+- **PayPal down: Thousands of customers report brief outage**: [Link](https://www.bbc.com/news/articles/cly2exevgxxo)
+- **PayPal hit with ‘system issue’ as outage affects merchant payments**: [Link](https://nypost.com/2024/11/21/business/paypal-hit-with-system-issue-affecting-merchant-payments/)
+
+
 ### jaguar voiture (N/A, Thu, 21 Nov 2024 01:20:00 -0800)
 
 - **«Et sinon, vous faites encore des voitures ?» : Jaguar épinglée pour sa 
