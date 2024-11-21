@@ -1,3 +1,17 @@
+### xi jinping (N/A, Thu, 21 Nov 2024 14:00:00 -0800)
+
+- **China Warns US Over Russia-Ukraine War After Missile Move**: [Link](https://www.newsweek.com/china-warns-us-russia-ukraine-war-1989561)
+- **China's Xi Calls For Gaza Ceasefire: Xinhua**: [Link](https://www.barrons.com/news/china-s-xi-calls-for-gaza-ceasefire-xinhua-news-agency-a1d098f0)
+- **No end in sight**: [Link](https://www.globaltimes.cn/page/202411/1323395.shtml)
+
+
+### jove español vs real sociedad (N/A, Thu, 21 Nov 2024 12:10:00 -0800)
+
+- **Jove Español 0 - 5 Real Sociedad: resumen, resultado y goles**: [Link](https://as.com/futbol/copa_del_rey/jove-espanol-real-sociedad-en-directo-copa-del-rey-hoy-en-vivo-n/)
+- **Jove Español - Real Sociedad, en directo | Copa del Rey, hoy en vivo**: [Link](https://www.marca.com/futbol/copa-del-rey/jove-r-sociedad/2024/11/21/01_0105_20241121_22143_188-directo.html)
+- **Exhibición de Ander Barrenetxea: dos goles y dos asistencias**: [Link](https://www.diariovasco.com/real-sociedad/exhibicion-ander-barrenetxea-dos-goles-dos-asistencias-20241121222034-nt.html)
+
+
 ### achraf fayda (N/A, Thu, 21 Nov 2024 07:30:00 -0800)
 
 - **Achraf Fayda: The New Visionary Leader at the Helm of Morocco’s Tourism 
