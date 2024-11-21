@@ -1,3 +1,10 @@
+### keno (N/A, Thu, 21 Nov 2024 10:10:00 -0800)
+
+- **Maryland Lottery player wins $100,008 Keno prize on her birthday**: [Link](https://www.upi.com/Odd_News/2024/11/21/lotto-Maryland-Lottery-birthday-Keno/4081732220814/)
+- **CT Lottery: Trio of $100,000 prizes claimed Tuesday, Nov. 19, while $25,000 
+Keno prize remains unclaimed**: [Link](https://www.courant.com/2024/11/20/ct-lottery-25000-keno-prize-drawn-tuesday-nov-19-unclaimed/)
+
+
 ### skn st. pölten frauen – fc barcelone (N/A, Thu, 21 Nov 2024 12:20:00 -0800)
 
 - **Barcelona weiter hungrig: "Wir wollen so viele Tore wie möglich machen"**: [Link](https://www.kicker.de/barcelona-weiter-hungrig-wir-wollen-so-viele-tore-wie-moeglich-machen-1069300/artikel)
