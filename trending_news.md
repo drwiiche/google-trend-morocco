@@ -1,3 +1,17 @@
+### paris-sg – toulouse (N/A, Fri, 22 Nov 2024 11:20:00 -0800)
+
+- **Ligue 1 : Yoram Zague titulaire avec le PSG contre Toulouse**: [Link](https://www.lequipe.fr/Football/Actualites/Yoram-zague-titulaire-avec-le-psg-contre-toulouse/1522009)
+- **L'analyse de But Football Club - Comme si tout allait bien**: [Link](https://canal-supporters.com/lanalyse-de-but-football-club-comme-si-tout-allait-bien/)
+- **L'avant-match en Live du Parc des Princes à 20h**: [Link](https://www.psg.fr/equipes/equipe-premiere/content/avant-match-en-live-du-parc-des-princes-paris-saint-germain-toulouse-fc-ligue-1-2024-2025)
+
+
+### بي اس جي ضد تولوز (N/A, Fri, 22 Nov 2024 11:20:00 -0800)
+
+- **إنريكي يستعين بوجه جديد في قائمة باريس**: [Link](https://www.kooora.com/?n=1369712)
+- **إنريكي: حكيمي يمتلك قوة بدنية مذهلة**: [Link](https://www.hespress.com/%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%85%D8%AA%D9%84%D9%83-%D9%82%D9%88%D8%A9-%D8%A8%D8%AF%D9%86%D9%8A%D8%A9-%D9%85%D8%B0%D9%87%D9%84%D8%A9-1468532.html)
+- **معلقو مباريات الجولة الثانية عشرة في الدوري الفرنسي**: [Link](https://hihi2.com/2024/11/22/p2945584.html)
+
+
 ### le président chinois xi jinping (N/A, Fri, 22 Nov 2024 11:10:00 -0800)
 
 - **Xi Jinping quitte le Maroc après sa courte visite au Royaume**: [Link](https://ledesk.ma/encontinu/xi-jinping-quitte-le-maroc-apres-sa-courte-visite-au-royaume/)
