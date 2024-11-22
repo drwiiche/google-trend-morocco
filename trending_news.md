@@ -1,3 +1,10 @@
+### monaco fc (N/A, Fri, 22 Nov 2024 12:30:00 -0800)
+
+- **Preview: Monaco vs. Brest - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/as-monaco/preview/preview-monaco-vs-brest-prediction-team-news-lineups_558514.html)
+- **Why The Best Game of The Weekend is in Ligue 1**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles-video/why-the-best-game-of-the-weekend-is-in-ligue-1-2024-11-21)
+- **Monaco vs Brest Prediction, 11/22/2024 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/monaco-vs-brest-prediction-11-22-2024-soccer-pick-tips-and-odds.html)
+
+
 ### rima hassan (N/A, Fri, 22 Nov 2024 12:00:00 -0800)
 
 - **La possibilité d’une conférence avec Rima Hassan à Sciences Po, rejetée par 
