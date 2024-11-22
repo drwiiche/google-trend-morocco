@@ -1,3 +1,12 @@
+### derby (N/A, Fri, 22 Nov 2024 08:40:00 -0800)
+
+- **Derby County predicted lineup, team and injury news as Corey 
+Blackett-Taylor starts vs Preston**: [Link](https://www.derbycounty.news/news/derby-county-predicted-lineup-team-and-injury-news-as-corey-blackett-taylor-starts-vs-preston/)
+- **PRE-MATCH INTERVIEW: ‘We need to build on recent results and come into 
+these games feeling strong’ - Thompson**: [Link](https://www.dcfc.co.uk/news/2024/11/pre-match-interview-we-need-to-build-on-recent-results-and-come-into-these-games-feeling-strong-thompson)
+- **Preston North End vs Derby County Predictions, Odds & Betting Preview**: [Link](https://insights.betfred.com/football/preston-north-end-vs-derby-county-predictions-odds-betting-preview-saturday-23-november-2024/)
+
+
 ### النصر ضد القادسية (N/A, Fri, 22 Nov 2024 08:20:00 -0800)
 
 - **قرار حاسم من بيولي قبل لقاء القادسية**: [Link](https://www.kooora.com/?n=1369631)
