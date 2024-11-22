@@ -1,3 +1,17 @@
+### getafe – valladolid (N/A, Fri, 22 Nov 2024 11:30:00 -0800)
+
+- **Paulo Pezzolano: «Tenemos que ir a competir»**: [Link](https://offsidersports.com/paulo-pezzolano-tenemos-que-ir-a-competir/)
+- **Pólvora mojada en el Coliseum**: [Link](https://www.marca.com/futbol/primera-division/2024/11/22/polvora-mojada-coliseum.html)
+- **Fútbol en directo | Vuelve LaLiga con el Getafe-Valladolid en el Coliseum**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-futbol-en-directo-vuelve-laliga-con-el-getafe-valladolid-en-el-coliseum/AFeRz9W9/)
+
+
+### psg vs toulouse (N/A, Fri, 22 Nov 2024 11:30:00 -0800)
+
+- **Friday's Ligue 1 predictions including Paris Saint-Germain vs. Toulouse**: [Link](https://www.sportsmole.co.uk/football/psg/ligue-1-predictions/feature/fridays-ligue-1-predictions-including-psg-vs-toulouse_558598.html)
+- **Alert for Nuno Mendes, Portuguese coach gives news**: [Link](https://www.msn.com/en-gb/sport/other/alert-for-nuno-mendes-portuguese-coach-gives-news/ar-AA1uo2JB)
+- **PSG vs Toulouse Prediction, 11/22/2024 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/psg-vs-toulouse-prediction-11-22-2024-soccer-pick-tips-and-odds.html)
+
+
 ### paris-sg – toulouse (N/A, Fri, 22 Nov 2024 11:20:00 -0800)
 
 - **Ligue 1 : Yoram Zague titulaire avec le PSG contre Toulouse**: [Link](https://www.lequipe.fr/Football/Actualites/Yoram-zague-titulaire-avec-le-psg-contre-toulouse/1522009)
