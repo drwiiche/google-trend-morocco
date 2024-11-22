@@ -1,3 +1,10 @@
+### snrt (N/A, Fri, 22 Nov 2024 08:30:00 -0800)
+
+- **Xi Jinping quitte le Maroc après sa courte visite au Royaume**: [Link](https://ledesk.ma/encontinu/xi-jinping-quitte-le-maroc-apres-sa-courte-visite-au-royaume/)
+- **La Chine plus que jamais en force au Maroc**: [Link](https://fr.le360.ma/economie/la-chine-plus-que-jamais-en-force-au-maroc_TRGECDBJYFCHJJQFTJOO54C3MA/)
+- **Maroc-Chine : voilà ce que Xi Jinping a dit au prince Moulay Hassan**: [Link](https://telquel.ma/instant-t/2024/11/22/maroc-chine-voila-ce-que-xi-jinping-a-dit-au-prince-moulay-hassan_1905698/)
+
+
 ### الرجاء (N/A, Fri, 22 Nov 2024 08:40:00 -0800)
 
 - **موكوينا يغضب لاعب الوداد قبل الديربي البيضاوي**: [Link](https://www.kooora.com/?n=1369663)
