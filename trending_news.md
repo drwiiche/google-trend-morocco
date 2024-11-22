@@ -1,3 +1,19 @@
+### le président chinois xi jinping (N/A, Fri, 22 Nov 2024 11:10:00 -0800)
+
+- **Xi Jinping quitte le Maroc après sa courte visite au Royaume**: [Link](https://ledesk.ma/encontinu/xi-jinping-quitte-le-maroc-apres-sa-courte-visite-au-royaume/)
+- **Maroc-Chine : On en sait un peu plus sur la visite éclair de Xi Jiping au 
+Maroc**: [Link](https://www.h24info.ma/maroc-chine-on-en-sait-un-peu-plus-sur-la-visite-eclair-de-xi-jiping-au-maroc/)
+- **La Chine plus que jamais en force au Maroc**: [Link](https://fr.le360.ma/economie/la-chine-plus-que-jamais-en-force-au-maroc_TRGECDBJYFCHJJQFTJOO54C3MA/)
+
+
+### bayern vs augsburg (N/A, Fri, 22 Nov 2024 11:10:00 -0800)
+
+- **FC Bayern München - FC Augsburg im TV und Livestream: Hier siehst du das 
+Bundesliga-Spiel live**: [Link](https://www.derwesten.de/sport/fussball/bayern-muenchen-fcb-tv-livestream-bundesliga-augsburg-id300586267.html)
+- **11. Spieltag: Last-minute-Update zu den Aufstellungs-Prognosen**: [Link](https://www.ligainsider.de/ligainsider_1381/11-spieltag-last-minute-update-zu-den-aufstellungs-prognosen-366881/)
+- **Sportwetten: Bundesliga-Tipps der Wett-Profis!**: [Link](https://www.bild.de/sport/fussball/sportwetten-bundesliga-tipps-der-wett-profis-673f1aad4df82f515063e45d)
+
+
 ### موناكو ضد بريست (N/A, Fri, 22 Nov 2024 10:50:00 -0800)
 
 - **مواجهة مرتقبة بين موناكو وبريست**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%88%D8%A8%D8%B1%D9%8A%D8%B3%D8%AA-2024-11-22)
