@@ -1,3 +1,25 @@
+### président chinois xi jinping (N/A, Fri, 22 Nov 2024 14:20:00 -0800)
+
+- **Maroc-Chine : ce que Xi Jinping a dit au prince Moulay Hassan**: [Link](https://mobile.telquel.ma/instant-t/2024/11/22/maroc-chine-voila-ce-que-xi-jinping-a-dit-au-prince-moulay-hassan_1905698/)
+- **Xi Jinping quitte le Maroc après sa courte visite au Royaume**: [Link](https://ledesk.ma/encontinu/xi-jinping-quitte-le-maroc-apres-sa-courte-visite-au-royaume/)
+- **La Chine plus que jamais en force au Maroc**: [Link](https://fr.le360.ma/economie/la-chine-plus-que-jamais-en-force-au-maroc_TRGECDBJYFCHJJQFTJOO54C3MA/)
+
+
+### sporting – amarante futebol clube (N/A, Fri, 22 Nov 2024 14:10:00 -0800)
+
+- **Vídeo: Edwards com fome de golo… e vão dois do inglês**: [Link](https://www.abola.pt/futebol/noticias/video-edwards-com-fome-de-golo-e-vao-dois-do-ingles-2024112221413535278)
+- **Gyokeres no banco: o primeiro onze de João Pereira no comando técnico do 
+Sporting**: [Link](https://www.ojogo.pt/1170556499/gyokeres-no-banco-o-primeiro-onze-de-joao-pereira-no-comando-tecnico-do-sporting/)
+- **Em direto: Sporting 5-0 Amarante (2.ª parte)**: [Link](https://tribuna.expresso.pt/futebol-nacional/2024-11-22-em-direto-sporting-5-0-amarante--2.-parte--ed4d966f)
+
+
+### bayern (N/A, Fri, 22 Nov 2024 13:20:00 -0800)
+
+- **Per Hattrick zum Meilenstein: Harry Kane stellt neuen Bundesliga-Rekord auf**: [Link](https://onefootball.com/de/news/per-hattrick-zum-meilenstein-harry-kane-stellt-neuen-bundesliga-rekord-auf-40342874)
+- **Handelfmeter wird zum "Befreiungsschlag der Bayern"**: [Link](https://www.kicker.de/handelfmeter-wird-zum-befreiungsschlag-der-bayern-1069828/video)
+- **Drei Tore von Harry Kane: FC Bayern gewinnt 3:0 gegen Augsburg**: [Link](https://www.sueddeutsche.de/sport/bundesliga-bayern-augsburg-tore-ergebnis-tabelle-li.3152551)
+
+
 ### psg (N/A, Fri, 22 Nov 2024 12:40:00 -0800)
 
 - **PSG : Milan Skriniar a 3 portes de sortie**: [Link](https://www.footmercato.net/a4546652409078353198-psg-milan-skriniar-a-3-portes-de-sortie)
