@@ -1,3 +1,11 @@
+### bitcoin (N/A, Thu, 21 Nov 2024 18:10:00 -0800)
+
+- **Bitcoin Smashes Through $94,787 Barrier to Set New All-Time High**: [Link](https://www.moroccoworldnews.com/2024/11/366507/bitcoin-smashes-through-94-787-barrier-to-set-new-all-time-high)
+- **Bitcoin eyes $100K as new crypto options fuel the trading frenzy**: [Link](https://sherwood.news/snacks/crypto/bitcoin-eyes-usd100k-as-new-crypto-options-fuel-the-trading-frenzy/)
+- **Bitcoin Approaches $100,000, Examining the Institutional Forces Behind Over 
+2.7 Million BTC Holdings**: [Link](https://www.binance.com/en/square/post/16534198916505)
+
+
 ### xi jinping maroc (N/A, Thu, 21 Nov 2024 15:40:00 -0800)
 
 - **China's Xi visits Morocco, meets with crown prince**: [Link](https://www.reuters.com/world/chinas-xi-visits-morocco-meets-with-crown-prince-says-state-media-2024-11-22/)
