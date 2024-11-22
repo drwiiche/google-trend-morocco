@@ -1,3 +1,25 @@
+### النصر ضد القادسية (N/A, Fri, 22 Nov 2024 08:20:00 -0800)
+
+- **قرار حاسم من بيولي قبل لقاء القادسية**: [Link](https://www.kooora.com/?n=1369631)
+- **تشكيلة النصر وتشكيلة الاهلي هذا المساء**: [Link](https://hihi2.com/2024/11/22/p2944660.html)
+- **النصر يفتقد تاليسكا ولابورت أمام القادسية**: [Link](https://www.al-jazirah.com/2024/20241122/sp6.htm)
+
+
+### al-nassr fc – al qadisiya (N/A, Fri, 22 Nov 2024 08:10:00 -0800)
+
+- **Preview: Al-Nassr vs. Al Quadisiya - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/preview-al-nassr-vs-al-quadisiya-prediction-team-news-lineups_558543.html)
+- **How to watch Al Nassr at Al Qadsiah soccer: Live stream, TV channel**: [Link](https://ftw.usatoday.com/2024/11/how-to-watch-al-nassr-at-al-qadsiah-soccer-live-stream-tv-channel)
+- **Will Cristiano Ronaldo Play Tonight in Al-Nassr vs Al-Qadisiyah Saudi Pro 
+League 2024–25 Match? Here's**: [Link](https://www.latestly.com/sports/football/will-cristiano-ronaldo-play-tonight-in-al-nassr-vs-al-qadisiyah-saudi-pro-league-2024-25-match-heres-possibility-of-cr7-featuring-in-starting-xi-6437260.html)
+
+
+### kylian mbappé real madrid (N/A, Fri, 22 Nov 2024 05:10:00 -0800)
+
+- **Kylian Mbappe vs PSG: €55m decision confirmed**: [Link](https://www.footballtransfers.com/en/transfer-news/es-la-liga/2024/11/kylian-mbappe-vs-psg-eur55m-decision-confirmed)
+- **PSG must pay Mbappé millions in unpaid wages as French League upholds ruling**: [Link](https://worldsoccertalk.com/news/psg-must-pay-mbappe-millions-in-unpaid-wages-as-french-league-upholds-ruling/)
+- **FFF rejects PSG request in €55M salary dispute with Mbappe**: [Link](https://www.thescore.com/topsn/news/3135965/fff-rejects-psg-request-in-%E2%82%AC-55-m-salary-dispute-with-mbappe)
+
+
 ### btc to usd (N/A, Thu, 21 Nov 2024 17:20:00 -0800)
 
 - **Bitcoin Smashes Through $94,787 Barrier to Set New All-Time High**: [Link](https://www.moroccoworldnews.com/2024/11/366507/bitcoin-smashes-through-94-787-barrier-to-set-new-all-time-high)
