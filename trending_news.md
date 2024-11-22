@@ -1,3 +1,12 @@
+### rima hassan (N/A, Fri, 22 Nov 2024 12:00:00 -0800)
+
+- **La possibilité d’une conférence avec Rima Hassan à Sciences Po, rejetée par 
+la direction, a été validée par le tribunal administratif**: [Link](https://www.lemonde.fr/societe/article/2024/11/22/sciences-po-le-tribunal-administratif-de-paris-valide-la-possibilite-d-une-conference-avec-rima-hassan_6408462_3224.html)
+- **Europe 13h : Antisémitisme en France, incarcération de Boualem Sansal et 
+conférence de Rima Hassan à...**: [Link](https://www.europe1.fr/emissions/europe-1-midi3/europe-13h-antisemitisme-en-france-incarceration-de-boualem-sansal-et-conference-de-rima-hassan-a-sciences-po-paris-4280732)
+- **Une conférence de Rima Hassan sur la Palestine une nouvelle fois interdite**: [Link](https://www.20minutes.fr/politique/4122459-20241121-strasbourg-conference-palestine-eurodeputee-lfi-rima-hassan-nouvelle-fois-interdite)
+
+
 ### getafe – valladolid (N/A, Fri, 22 Nov 2024 11:30:00 -0800)
 
 - **Paulo Pezzolano: «Tenemos que ir a competir»**: [Link](https://offsidersports.com/paulo-pezzolano-tenemos-que-ir-a-competir/)
