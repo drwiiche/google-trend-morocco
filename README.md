@@ -1,3 +1,11 @@
+### président chinois maroc (N/A, Thu, 21 Nov 2024 23:40:00 -0800)
+
+- **La Chine plus que jamais en force au Maroc**: [Link](https://fr.le360.ma/economie/la-chine-plus-que-jamais-en-force-au-maroc_TRGECDBJYFCHJJQFTJOO54C3MA/)
+- **Le prince héritier Moulay El Hassan reçoit le président chinois Xi Jinping**: [Link](https://ledesk.ma/encontinu/le-prince-heritier-moulay-el-hassan-recoit-le-president-chinois-xi-jinping/)
+- **Sur Hautes Instructions de S.M. le Roi, S.A.R. le Prince Héritier Moulay El 
+Hassan reçoit le Président chinois**: [Link](https://lematin.ma/videos/sar-le-prince-heritier-moulay-el-hassan-recoit-le-president-chinois/252407)
+
+
 ### cmgp (N/A, Fri, 22 Nov 2024 01:30:00 -0800)
 
 - **CMGP Group obtient le visa de l’AMMC pour son introduction en bourse**: [Link](https://boursenews.ma/article/marches/Cmgp-ipo-visa)
