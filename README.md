@@ -1,3 +1,12 @@
+### ecrivain algerien boualem sansal (N/A, Fri, 22 Nov 2024 04:00:00 -0800)
+
+- **L'écrivain Boualem Sansal emprisonné en Algérie**: [Link](https://www.marianne.net/monde/l-ecrivain-boualem-sansal-emprisonne-en-algerie)
+- **Emmanuel Macron "très préoccupé" par la "disparition" de l'écrivain 
+franco-algérien Boualem Sansal**: [Link](https://www.bfmtv.com/politique/elysee/emmanuel-macron-tres-preoccupe-par-la-disparition-de-l-ecrivain-franco-algerien-boualem-sansal_AN-202411211098.html)
+- **Kamel Daoud: «J’espère vivement que mon ami Boualem Sansal reviendra parmi 
+nous très bientôt»**: [Link](https://www.lefigaro.fr/vox/monde/kamel-daoud-j-espere-vivement-que-mon-ami-boualem-sansal-reviendra-parmi-nous-tres-bientot-20241121)
+
+
 ### panama (N/A, Fri, 22 Nov 2024 03:20:00 -0800)
 
 - **Panamá suspende relaciones diplomáticas con la República Árabe Saharaui**: [Link](https://www.prensa.com/politica/panama-suspende-relaciones-diplomaticas-con-la-republica-arabe-saharaui/)
