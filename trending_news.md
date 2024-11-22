@@ -1,3 +1,10 @@
+### psg (N/A, Fri, 22 Nov 2024 12:40:00 -0800)
+
+- **PSG : Milan Skriniar a 3 portes de sortie**: [Link](https://www.footmercato.net/a4546652409078353198-psg-milan-skriniar-a-3-portes-de-sortie)
+- **PSG : le message énigmatique de Luis Enrique à Milan Skriniar**: [Link](https://www.topmercato.com/1874140-psg-le-message-enigmatique-de-luis-enrique-a-milan-skriniar/)
+- **Mercato - PSG : Deux transferts confirmés pour cet hiver ?**: [Link](https://le10sport.com/football/mercato/mercato-psg-deux-transferts-confirmes-pour-cet-hiver-722085)
+
+
 ### monaco fc (N/A, Fri, 22 Nov 2024 12:30:00 -0800)
 
 - **Preview: Monaco vs. Brest - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/as-monaco/preview/preview-monaco-vs-brest-prediction-team-news-lineups_558514.html)
