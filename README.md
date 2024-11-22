@@ -1,3 +1,12 @@
+### monaco – brest (N/A, Fri, 22 Nov 2024 09:40:00 -0800)
+
+- **Monaco - Stade Brestois en direct - Ligue 1 : Football Scores & Résultats - 
+22/11/2024**: [Link](https://www.eurosport.fr/football/ligue-1/2024-2025/live-monaco-stade-brestois_mtc1526119/live-commentary.shtml)
+- **PRONOS PARIS RMC Le pari foot de Lionel Charbonnier et de Jérôme Rothen du 
+22 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-lionel-charbonnier-et-de-jerome-rothen-du-22-novembre-ligue-1_AN-202411220654.html)
+- **Eric Roy met la pression sur joueur du SB29 avant Monaco - Brest**: [Link](https://www.jeunesfooteux.com/Eric-Roy-met-la-pression-sur-joueur-du-SB29-avant-Monaco-Brest_a73990.html)
+
+
 ### botola (N/A, Fri, 22 Nov 2024 09:30:00 -0800)
 
 - **Raja vs Wydad Casablanca: Preview, Team News**: [Link](https://www.moroccoworldnews.com/2024/11/366501/raja-vs-wydad-casablanca-preview-team-news)
