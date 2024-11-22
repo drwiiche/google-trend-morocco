@@ -1,3 +1,11 @@
+### panama (N/A, Fri, 22 Nov 2024 03:20:00 -0800)
+
+- **Panamá suspende relaciones diplomáticas con la República Árabe Saharaui**: [Link](https://www.prensa.com/politica/panama-suspende-relaciones-diplomaticas-con-la-republica-arabe-saharaui/)
+- **Panamá suspende el reconocimiento de la República Árabe Saharaui Democrática**: [Link](https://www.elpais.cr/2024/11/21/panama-suspende-el-reconocimiento-de-la-republica-arabe-saharaui-democratica/)
+- **Panamá suspende relaciones diplomáticas con la República Árabe Saharaui 
+Democrática**: [Link](https://www.telemetro.com/nacionales/panama-suspende-relaciones-diplomaticas-la-republica-arabe-saharaui-democratica-n6018816)
+
+
 ### président chinois maroc (N/A, Thu, 21 Nov 2024 23:40:00 -0800)
 
 - **La Chine plus que jamais en force au Maroc**: [Link](https://fr.le360.ma/economie/la-chine-plus-que-jamais-en-force-au-maroc_TRGECDBJYFCHJJQFTJOO54C3MA/)
