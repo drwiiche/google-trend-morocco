@@ -1,3 +1,17 @@
+### موناكو ضد بريست (N/A, Fri, 22 Nov 2024 10:50:00 -0800)
+
+- **مواجهة مرتقبة بين موناكو وبريست**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%88%D8%A8%D8%B1%D9%8A%D8%B3%D8%AA-2024-11-22)
+- **إنريكي: حكيمي يمتلك قوة بدنية مذهلة**: [Link](https://www.hespress.com/%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%85%D8%AA%D9%84%D9%83-%D9%82%D9%88%D8%A9-%D8%A8%D8%AF%D9%86%D9%8A%D8%A9-%D9%85%D8%B0%D9%87%D9%84%D8%A9-1468532.html)
+- **معلقو مباريات الجولة الثانية عشرة في الدوري الفرنسي**: [Link](https://hihi2.com/2024/11/22/p2945584.html)
+
+
+### botola pro (N/A, Fri, 22 Nov 2024 09:50:00 -0800)
+
+- **Raja vs Wydad Casablanca: Preview, Team News**: [Link](https://www.moroccoworldnews.com/2024/11/366501/raja-vs-wydad-casablanca-preview-team-news)
+- **A Day Dedicated to Derbies**: [Link](https://www.footboom1.com/en/news/football/2090000-a-day-dedicated-to-derbies)
+- **Wydad President 'Expresses' Satisfaction With Mokwena**: [Link](https://www.snl24.com/soccerladuma/international/african-football/wydad-chief-expresses-satisfaction-with-rulani-mokwena-players-ahead-of-raja-clash-20241122)
+
+
 ### bayern – augsbourg (N/A, Fri, 22 Nov 2024 10:40:00 -0800)
 
 - **Bayern Munich’s Vincent Kompany wary of FC Augsburg amid injuries, won’t 
