@@ -1,3 +1,11 @@
+### cmgp (N/A, Fri, 22 Nov 2024 01:30:00 -0800)
+
+- **CMGP Group obtient le visa de l’AMMC pour son introduction en bourse**: [Link](https://boursenews.ma/article/marches/Cmgp-ipo-visa)
+- **Le spécialiste de l’irrigation CMGP s’introduit à la Bourse de Casablanca**: [Link](https://lematin.ma/economie/le-specialiste-de-lirrigation-cmgp-sintroduit-a-la-bourse-de-casablanca/252408)
+- **Bourse de Casablanca: feu vert pour l’introduction de CMGP Group, 
+spécialiste de l’irrigation**: [Link](https://fr.le360.ma/economie/bourse-de-casablanca-feu-vert-pour-lintroduction-de-cmgp-group-specialiste-de-lirrigation_2SOUSZK56VG2FEDRDC7VII5MIE/)
+
+
 ### bitcoin (N/A, Thu, 21 Nov 2024 18:10:00 -0800)
 
 - **Bitcoin Smashes Through $94,787 Barrier to Set New All-Time High**: [Link](https://www.moroccoworldnews.com/2024/11/366507/bitcoin-smashes-through-94-787-barrier-to-set-new-all-time-high)
