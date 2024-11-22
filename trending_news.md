@@ -1,3 +1,18 @@
+### hamburg (N/A, Thu, 21 Nov 2024 16:10:00 -0800)
+
+- **Verfassungsausschuss uneins über früheren Wahltermin**: [Link](https://www.sat1regional.de/newsticker/verfassungsausschuss-uneins-ueber-frueheren-wahltermin/)
+- **Wird die Hamburg-Wahl verschoben? Landeswahlleiter wird deutlich (M+)**: [Link](https://www.mopo.de/hamburg/politik/wird-die-hamburg-wahl-verschoben-landeswahlleiter-mahnt-zur-eile/)
+- **Superwahljahr - bleibt es beim Termin für die Hamburgische Bürgerschaft?**: [Link](https://www.ndr.de/903/podcasts/Superwahljahr-bleibt-es-beim-Termin-fuer-die-Hamburgische-Buergerschaft,audio1758034.html)
+
+
+### crash avion militaire maroc (N/A, Thu, 21 Nov 2024 15:50:00 -0800)
+
+- **Info360. Deux morts dans le crash d’un petit avion à l’aéroport de 
+Benslimane**: [Link](https://fr.le360.ma/societe/info360-deux-morts-dans-le-crash-dun-petit-avion-a-laeroport-de-benslimane_BHVRXPRO4JHRZB2ZRM5DZJ2H7U/)
+- **Benslimane : crash d’un avion militaire, deux officiers tués**: [Link](https://www.barlamane.com/fr/benslimane-crash-dun-avion-militaire-deux-officiers-tues/)
+- **Maroc : un avion des Forces royales air s’écrase à Benslimane**: [Link](https://www.bladi.net/maroc-avion-forces-royales-air-ecrase-benslimane,111657.html)
+
+
 ### casablanca (N/A, Thu, 21 Nov 2024 14:50:00 -0800)
 
 - **De retour de Rio, Xi Jinping fera escale au Maroc**: [Link](https://maroc-diplomatique.net/de-retour-de-rio-xi-jinping-fera-escale-au-maroc/)
