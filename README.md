@@ -1,3 +1,11 @@
+### xi jinping maroc (N/A, Thu, 21 Nov 2024 15:40:00 -0800)
+
+- **China's Xi visits Morocco, meets with crown prince**: [Link](https://www.reuters.com/world/chinas-xi-visits-morocco-meets-with-crown-prince-says-state-media-2024-11-22/)
+- **China's Xi visits Morocco, meets with crown prince**: [Link](https://www.straitstimes.com/world/chinas-xi-visits-morocco-meets-with-crown-prince)
+- **Crown Prince Moulay El Hassan Welcomes Chinese President Xi Jinping to 
+Morocco for Official State Visit**: [Link](https://www.moroccoworldnews.com/2024/11/366524/crown-prince-moulay-el-hassan-welcomes-chinese-president-xi-jinping-to-morocco-for-official-state-visit)
+
+
 ### hamburg (N/A, Thu, 21 Nov 2024 16:10:00 -0800)
 
 - **Verfassungsausschuss uneins über früheren Wahltermin**: [Link](https://www.sat1regional.de/newsticker/verfassungsausschuss-uneins-ueber-frueheren-wahltermin/)
