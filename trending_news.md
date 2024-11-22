@@ -1,3 +1,12 @@
+### bayern – augsbourg (N/A, Fri, 22 Nov 2024 10:40:00 -0800)
+
+- **Bayern Munich’s Vincent Kompany wary of FC Augsburg amid injuries, won’t 
+commit to start for Thomas Müller**: [Link](https://www.bavarianfootballworks.com/2024/11/21/24302252/bayern-munich-vincent-kompany-fc-augsburg-amid-injuries-sane-gnabry-palhinha-pavlovic-coman-muller)
+- **Preview: Bayern Munich vs. Augsburg - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayern-munich/preview/preview-bayern-vs-augsburg-prediction-team-news-lineups_558566.html)
+- **Bundesliga Soccer Livestream: How to Watch Bayern Munich vs. Augsburg From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/bundesliga-soccer-livestream-how-to-watch-bayern-munich-vs-augsburg-from-anywhere/)
+
+
 ### cmgp group (N/A, Fri, 22 Nov 2024 10:20:00 -0800)
 
 - **IPO. Focus sur l’introduction en bourse de CMGP Group**: [Link](https://medias24.com/2024/11/22/ipo-focus-sur-lintroduction-de-cmgp-group-a-la-bourse/)
