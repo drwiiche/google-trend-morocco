@@ -1,3 +1,18 @@
+### paul pogba (N/A, Fri, 22 Nov 2024 10:00:00 -0800)
+
+- **Pogba 'Told' Which Club He Should Join**: [Link](https://www.snl24.com/soccerladuma/international/ligue-1/pogba-told-which-club-he-should-join-20241122)
+- **Rami sends Marseille message to ex-Juventus teammate Pogba**: [Link](https://www.tribalfootball.com/article/soccer-serie-a-rami-sends-marseille-message-to-ex-juventus-teammate-pogba-5dbff0dc-aec9-4ac2-b495-64507a5713e4)
+- **Paul Pogba is encouraged to sign for Marseille by forgotten World Cup 
+winner - as he brands transfer periods '**: [Link](https://www.dailymail.co.uk/sport/football/article-14110899/Paul-Pogba-sign-Marseille-World-Cup-winner.html)
+
+
+### hakimi (N/A, Fri, 22 Nov 2024 10:00:00 -0800)
+
+- **Golpe del PSG con Achraf**: [Link](https://as.com/futbol/internacional/golpe-del-psg-con-achraf-n/)
+- **Hakimi extiende su contrato con el PSG hasta 2029**: [Link](https://es.rue20.com/2024/11/21/hakimi-extiende-su-contrato-con-el-psg-hasta-2029/)
+- **Luis Enrique se asegura la continuidad de Achraf**: [Link](https://www.sport.es/es/noticias/psg/luis-enrique-asegura-continuidad-achraf-111918672)
+
+
 ### monaco – brest (N/A, Fri, 22 Nov 2024 09:40:00 -0800)
 
 - **Monaco - Stade Brestois en direct - Ligue 1 : Football Scores & Résultats - 
