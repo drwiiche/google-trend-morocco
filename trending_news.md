@@ -1,3 +1,10 @@
+### btc to usd (N/A, Thu, 21 Nov 2024 17:20:00 -0800)
+
+- **Bitcoin Smashes Through $94,787 Barrier to Set New All-Time High**: [Link](https://www.moroccoworldnews.com/2024/11/366507/bitcoin-smashes-through-94-787-barrier-to-set-new-all-time-high)
+- **Crypto market buzzing in anticipation of regulatory change**: [Link](https://www.fxstreet.com/cryptocurrencies/news/crypto-market-buzzing-in-anticipation-of-regulatory-change-202411220911)
+- **Bitcoin price (BTCUSD) forecast update - 22-11-2024**: [Link](https://www.economies.com/crypto/analysis/bitcoin-price-(btcusd)-forecast-update---22-11-2024-113991)
+
+
 ### raja vs wydad (N/A, Fri, 22 Nov 2024 04:30:00 -0800)
 
 - **Botola D1 : deux derby pour ouvrir le bal de la 11e journée**: [Link](https://lematin.ma/sports/botola-d1-deux-derby-pour-ouvrir-le-bal-de-la-11e-journee/252344)
