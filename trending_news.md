@@ -1,3 +1,10 @@
+### botola (N/A, Fri, 22 Nov 2024 09:30:00 -0800)
+
+- **Raja vs Wydad Casablanca: Preview, Team News**: [Link](https://www.moroccoworldnews.com/2024/11/366501/raja-vs-wydad-casablanca-preview-team-news)
+- **A Day Dedicated to Derbies**: [Link](https://www.footboom1.com/en/news/football/2090000-a-day-dedicated-to-derbies)
+- **Wydad President 'Expresses' Satisfaction With Mokwena**: [Link](https://www.snl24.com/soccerladuma/international/african-football/wydad-chief-expresses-satisfaction-with-rulani-mokwena-players-ahead-of-raja-clash-20241122)
+
+
 ### snrt (N/A, Fri, 22 Nov 2024 08:30:00 -0800)
 
 - **Xi Jinping quitte le Maroc après sa courte visite au Royaume**: [Link](https://ledesk.ma/encontinu/xi-jinping-quitte-le-maroc-apres-sa-courte-visite-au-royaume/)
