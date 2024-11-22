@@ -1,3 +1,11 @@
+### cmgp group (N/A, Fri, 22 Nov 2024 10:20:00 -0800)
+
+- **IPO. Focus sur l’introduction en bourse de CMGP Group**: [Link](https://medias24.com/2024/11/22/ipo-focus-sur-lintroduction-de-cmgp-group-a-la-bourse/)
+- **Bourse de Casablanca: feu vert pour l’introduction de CMGP Group, 
+spécialiste de l’irrigation**: [Link](https://fr.le360.ma/economie/bourse-de-casablanca-feu-vert-pour-lintroduction-de-cmgp-group-specialiste-de-lirrigation_2SOUSZK56VG2FEDRDC7VII5MIE/)
+- **CMGP Group obtient le visa de l’AMMC pour son introduction en bourse**: [Link](https://ledesk.ma/encontinu/cmgp-group-obtient-le-visa-de-lammc-pour-son-introduction-en-bourse/)
+
+
 ### paul pogba (N/A, Fri, 22 Nov 2024 10:00:00 -0800)
 
 - **Pogba 'Told' Which Club He Should Join**: [Link](https://www.snl24.com/soccerladuma/international/ligue-1/pogba-told-which-club-he-should-join-20241122)
