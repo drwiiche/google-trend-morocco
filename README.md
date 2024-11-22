@@ -1,3 +1,10 @@
+### raja vs wydad (N/A, Fri, 22 Nov 2024 04:30:00 -0800)
+
+- **Botola D1 : deux derby pour ouvrir le bal de la 11e journée**: [Link](https://lematin.ma/sports/botola-d1-deux-derby-pour-ouvrir-le-bal-de-la-11e-journee/252344)
+- **Des adhérents du Raja offrent une prime pour motiver les joueurs**: [Link](https://fr.hespress.com/397370-des-adherents-du-raja-offrent-une-prime-pour-motiver-les-joueurs.html)
+- **Raja-Wydad : A quelle heure et sur quelle chaîne**: [Link](https://medias24.com/2024/11/22/raja-wydad-a-quelle-heure-et-sur-quelle-chaine/)
+
+
 ### ecrivain algerien boualem sansal (N/A, Fri, 22 Nov 2024 04:00:00 -0800)
 
 - **L'écrivain Boualem Sansal emprisonné en Algérie**: [Link](https://www.marianne.net/monde/l-ecrivain-boualem-sansal-emprisonne-en-algerie)
