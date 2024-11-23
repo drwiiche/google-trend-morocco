@@ -1,3 +1,16 @@
+### lens – marseille (N/A, Sat, 23 Nov 2024 07:20:00 -0800)
+
+- **RC Lens: Gervais Martel Shares Touching Confessions About His Illness**: [Link](https://www.footboom1.com/en/news/football/2093849-rc-lens-gervais-martel-shares-touching-confessions-about-his-illness)
+
+
+### livescore (N/A, Sat, 23 Nov 2024 07:20:00 -0800)
+
+- **Man Utd icon Dimitar Berbatov wants last-minute goals and red cards – for 
+brilliant reason**: [Link](https://www.dailystar.co.uk/sport/football/dimitar-berbatov-mental-health-issues-34169280)
+- **Dimitar Berbatov issues mental health rallying cry as new campaign launches**: [Link](https://www.football.london/tottenham-hotspur-fc/news/dimitar-berbatov-issues-mental-health-30432546)
+- **Berbatov Champions 'Extra Added Time' Initiative for Mental Health Awareness**: [Link](https://www.footboom1.com/en/news/football/2079076-berbatov-champions-extra-added-time-initiative-for-mental-health-awareness)
+
+
 ### bournemouth – brighton (N/A, Sat, 23 Nov 2024 07:10:00 -0800)
 
 - **Preview: Bournemouth vs. Brighton & Hove Albion - prediction, team news, 
