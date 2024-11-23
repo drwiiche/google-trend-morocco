@@ -1,3 +1,26 @@
+### girona – espanyol (N/A, Sat, 23 Nov 2024 09:00:00 -0800)
+
+- **Un Derby Rico en Historia**: [Link](https://www.footboom1.com/es/news/football/2093203-a-derby-rich-in-history)
+- **Portada ‘El 1900’ del sábado 23 de noviembre de 2024**: [Link](https://el1900.com/portada-el1900-23-noviembre-2024-girona-fc-espanyol/)
+- **Asprilla y Krejci y Sergio Gómez y Veliz, las novedades del Girona y el 
+Espanyol**: [Link](https://www.infobae.com/espana/agencias/2024/11/23/asprilla-y-krejci-y-sergio-gomez-y-veliz-las-novedades-del-girona-y-el-espanyol/)
+
+
+### مان سيتي ضد توتنهام (N/A, Sat, 23 Nov 2024 08:50:00 -0800)
+
+- **هالاند وسون وجهًا لوجه في موقعة السيتي وتوتنهام**: [Link](https://www.kooora.com/?n=1370004)
+- **تعليقات غوارديولا قبل لقاء توتنهام**: [Link](https://hihi2.com/2024/11/23/p2947076.html)
+- **قمّة مرتقبة بين مانشستر سيتي وتوتنهام**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85-%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-2024-11-23)
+
+
+### aston villa (N/A, Sat, 23 Nov 2024 08:50:00 -0800)
+
+- **🎥 Spurs midfielder Eveliina Summanen scores outrageous goal from distance**: [Link](https://sports.yahoo.com/spurs-midfielder-eveliina-summanen-scores-134500858.html)
+- **“It’s an opportunity to test ourselves” – Morris ahead of cup clash with 
+Villa**: [Link](https://onefootball.com/id/berita/its-an-opportunity-to-test-ourselves-morris-ahead-of-cup-clash-with-villa-40340463)
+- **Spurs keen to enjoy cup run says Vilahamn ahead of Aston Villa tie**: [Link](https://sports.yahoo.com/spurs-keen-enjoy-cup-run-221100254.html)
+
+
 ### manchester city – tottenham (N/A, Sat, 23 Nov 2024 08:40:00 -0800)
 
 - **Preview: Manchester City vs. Tottenham Hotspur - prediction, team news, 
