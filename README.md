@@ -1,3 +1,18 @@
+### aston villa – crystal palace (N/A, Sat, 23 Nov 2024 06:40:00 -0800)
+
+- **Preview: Aston Villa vs. Crystal Palace - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/aston-villa/preview/preview-aston-villa-vs-crystal-palace-prediction-team-news-lineups_558671.html)
+- **Palace boss Glasner admits Emery admiration: Success everywhere he goes**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-palace-boss-glasner-admits-emery-admiration-success-everywhere-he-goes-d4577668-2208-4a49-9e94-61801409e03d)
+- **Villa's Ezri Konsa set to miss Palace clash as Emery's injury woes continue**: [Link](https://www.besoccer.com/new/villa-s-ezri-konsa-set-to-miss-palace-clash-as-emery-s-injury-woes-continue-1338701)
+
+
+### hellas vérone – inter (N/A, Sat, 23 Nov 2024 05:30:00 -0800)
+
+- **Serie A official line-ups: Verona vs. Inter**: [Link](https://football-italia.net/serie-a-official-line-ups-verona-vs-inter/)
+- **Inzaghi reassuring: ‘Asllani and Correa earned Inter opportunity’**: [Link](https://sports.yahoo.com/inzaghi-reassuring-asllani-correa-earned-133800850.html)
+- **Hellas Verona vs Inter Milan Prediction, 11/23/2024 Soccer Pick, Tips and 
+Odds**: [Link](https://www.docsports.com/free-picks/soccer/2024/hellas-verona-vs-inter-milan-prediction-11-23-2024-soccer-pick-tips-and-odds.html)
+
+
 ### atlético madrid – deportivo alavés (N/A, Sat, 23 Nov 2024 06:30:00 -0800)
 
 - **Atlético-Alavés: Entre el homenaje y la reentrada sin margen de error**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20241122/1002357955/atletico-alaves-homenaje-reentrada-margen-error.html)
