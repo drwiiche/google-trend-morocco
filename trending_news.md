@@ -1,3 +1,12 @@
+### écrivain algérien boualem sansal (N/A, Fri, 22 Nov 2024 21:20:00 -0800)
+
+- **Algérie : Macron “très préoccupé” par la “disparition” de l’écrivain 
+Boualem Sansal**: [Link](https://mobile.telquel.ma/instant-t/2024/11/22/algerie-macron-tres-preoccupe-par-la-disparition-de-lecrivain-boualem-sansal_1905494/)
+- **Pourquoi l’écrivain franco-algérien Boualem Sansal a été arrêté par Alger**: [Link](https://fr.le360.ma/culture/pourquoi-lecrivain-franco-algerien-boualem-sansal-a-ete-arrete-par-alger_NVDIIWF7ZJEB5AQYPL76WYZQJA/)
+- **Le silence persistant de l’auteur franco-algérien Boualem Sansal, arrêté en 
+Algérie, sème l’inquiétude dans les milieux politique et littéraire**: [Link](https://www.lemonde.fr/afrique/article/2024/11/23/le-silence-persistant-de-l-auteur-franco-algerien-boualem-sansal-arrete-en-algerie-seme-l-inquietude-dans-les-milieux-politique-et-litteraire_6409824_3212.html)
+
+
 ### achraf hakimi (N/A, Fri, 22 Nov 2024 17:00:00 -0800)
 
 - **Golpe del PSG con Achraf**: [Link](https://as.com/futbol/internacional/golpe-del-psg-con-achraf-n/)
