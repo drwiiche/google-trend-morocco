@@ -1,3 +1,19 @@
+### city (N/A, Sat, 23 Nov 2024 09:50:00 -0800)
+
+- **City of Albany answers frequently asked questions about Combined Sewer 
+Separation Project**: [Link](https://www.walb.com/2024/11/23/city-albany-answers-frequently-asked-questions-about-combined-sewer-separation-project/)
+- **Maine’s easternmost city could be a model for the nation’s renewable future**: [Link](https://mainemorningstar.com/2024/11/23/maines-easternmost-city-could-be-a-model-for-the-nations-renewable-future/)
+- **City of Bradenton announces final storm debris collection**: [Link](https://www.mysuncoast.com/2024/11/23/city-bradenton-announces-final-storm-debris-collection/)
+
+
+### manchester city (N/A, Sat, 23 Nov 2024 09:50:00 -0800)
+
+- **Pep Guardiola promises to stay at Manchester City even if relegated**: [Link](https://www.bbc.com/sport/football/articles/cn42rn78d1go)
+- **Pep Guardiola agrees new Manchester City contract - The Athletic**: [Link](https://www.nytimes.com/athletic/5931613/2024/11/19/pep-guardiola-new-man-city-contract/)
+- **Arne Slot praises 'best manager in the league' after new contract 
+confirmation**: [Link](https://www.90min.com/arne-slot-praises-best-manager-in-league-new-contract)
+
+
 ### اتحاد طنجة (N/A, Sat, 23 Nov 2024 09:20:00 -0800)
 
 - **دموع حارس طنجة الشاب تثير التعاطف في ديربي الشمال بعد قرار استبداله المفاجئ**: [Link](https://www.akhbarona.com/sport/footmarocain/396258.html)
