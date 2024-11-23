@@ -1,3 +1,18 @@
+### leverkusen – heidenheim (N/A, Sat, 23 Nov 2024 06:00:00 -0800)
+
+- **Heidenheim am Scheideweg: In Europa top, in der Bundesliga flop**: [Link](https://www.watson.ch/sport/fussball/426849163-heidenheim-am-scheideweg-in-europa-top-in-der-bundesliga-flop)
+- **Verkehrsinfo: Bayer 04 Leverkusen gegen den 1. FC Heidenheim**: [Link](https://www.leverkusen.de/pressemodul/pressemitteilungen/november/bayer-04-gegen-fc-heidenheim)
+- **Restprogramm des 1. FC Heidenheim: von Chelsea bis zur Castroper Straße**: [Link](https://www.swr.de/sport/fussball/1-fc-heidenheim/fc-heidenheim-restprogramm-chelsea-100.html)
+
+
+### cristiano ronaldo (N/A, Sat, 23 Nov 2024 06:00:00 -0800)
+
+- **Quinones scores and assists as Al Qadsiah turn tables on Al Nassr**: [Link](https://onefootball.com/de/news/quinones-scores-and-assists-as-al-qadsiah-turn-tables-on-al-nassr-40343205)
+- **Cristiano Ronaldo ends amazing scoring drought as Al Nassr suffer another 
+title race blow**: [Link](https://www.sportingnews.com/us/soccer/news/cristiano-ronaldo-ends-amazing-scoring-drought-al-nassr/10dc7acf00b014fb751f003e)
+- **Cristiano Scores, But Julián Quiñones Responds with Goal and Assist**: [Link](https://www.footboom1.com/en/news/football/2091621-cristiano-scores-but-julian-quinones-responds-with-goal-and-assist)
+
+
 ### valencia vs real betis (N/A, Sat, 23 Nov 2024 05:30:00 -0800)
 
 - **Preview: Valencia vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/preview-valencia-vs-betis-prediction-team-news-lineups_558677.html)
