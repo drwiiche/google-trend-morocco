@@ -1,3 +1,10 @@
+### achraf hakimi (N/A, Fri, 22 Nov 2024 17:00:00 -0800)
+
+- **Golpe del PSG con Achraf**: [Link](https://as.com/futbol/internacional/golpe-del-psg-con-achraf-n/)
+- **Hakimi extiende su contrato con el PSG hasta 2029**: [Link](https://es.rue20.com/2024/11/21/hakimi-extiende-su-contrato-con-el-psg-hasta-2029/)
+- **Luis Enrique se asegura la continuidad de Achraf**: [Link](https://www.sport.es/es/noticias/psg/luis-enrique-asegura-continuidad-achraf-111918672)
+
+
 ### président chinois xi jinping (N/A, Fri, 22 Nov 2024 14:20:00 -0800)
 
 - **Maroc-Chine : ce que Xi Jinping a dit au prince Moulay Hassan**: [Link](https://mobile.telquel.ma/instant-t/2024/11/22/maroc-chine-voila-ce-que-xi-jinping-a-dit-au-prince-moulay-hassan_1905698/)
