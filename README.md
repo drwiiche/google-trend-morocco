@@ -1,3 +1,11 @@
+### jaguar (N/A, Fri, 22 Nov 2024 22:50:00 -0800)
+
+- **Jaguar mystifies with ‘reimagined’ brand identity**: [Link](https://www.creativereview.co.uk/jaguar-car-branding-logo-design/)
+- **Hats off to Jaguar’s ‘inclusive’ new branding: now people of all 
+backgrounds won’t buy its cars**: [Link](https://www.theguardian.com/commentisfree/2024/nov/22/jaguar-new-branding-cars-donald-trump)
+- **Jaguar boss defends ‘bold’ rebranding after backlash over video**: [Link](https://www.ft.com/content/e164df19-54e2-48d8-b07c-50687813bf56)
+
+
 ### محمد رحيم (N/A, Sat, 23 Nov 2024 01:20:00 -0800)
 
 - **وفاة المطرب والملحن المصري محمد رحيم عن عمر 45 سنة**: [Link](https://ar.hibapress.com/details-576164.html)
