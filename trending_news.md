@@ -1,3 +1,49 @@
+### سلتا فيغو ضد برشلونة (N/A, Sat, 23 Nov 2024 11:10:00 -0800)
+
+- **من سيكون قائد برشلونة أمام سيلتا فيغو ؟**: [Link](https://hihi2.com/2024/11/23/p2947347.html)
+- **تشكيلة برشلونة الرسمية للقاء سيلتا فيغو في الدوري الاسباني**: [Link](https://hihi2.com/2024/11/23/p2947363.html)
+- **هل تتكرر معاناة فليك أمام سيلتا فيجو؟**: [Link](https://www.kooora.com/?n=1369905)
+
+
+### celta vigo vs barcelona (N/A, Sat, 23 Nov 2024 11:10:00 -0800)
+
+- **Celta Vigo vs. Barcelona (Nov 23, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704792)
+- **Barcelona squad named for Celta Vigo**: [Link](https://www.barcablaugranes.com/2024/11/23/24303664/celta-vigo-barcelona-la-liga-team-news-squad-list)
+- **La Liga Soccer Livestream: How to Watch Celta Vigo vs. Barcelona From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-celta-vigo-vs-barcelona-from-anywhere/)
+
+
+### juventus (N/A, Sat, 23 Nov 2024 11:00:00 -0800)
+
+- **LIVE Milan-Juve 0-0 Super Thiaw su Cambiaso. Punizione di Reijnders 
+altissima**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/23-11-2024/milan-juventus-le-probabili-formazioni-diretta-serie-a.shtml)
+- **Serie A, le formazioni ufficiali di Parma-Atalanta: Pasalic e Lookman dal 1'**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-le-formazioni-ufficiali-di-parma-atalanta-pasalic-e-lookman-dal-1/bqheX7R7/)
+- **Zirkzee Juve, arriva il consiglio di Altafini: «È perfetto»**: [Link](https://www.juventusnews24.com/zirkzee-juve-calciomercato-altafini-parole/)
+
+
+### maroc libye u20 (N/A, Sat, 23 Nov 2024 10:50:00 -0800)
+
+- **Tournoi de L’UNAF U20: la sélection nationale fait match nul face à son 
+homologue d’Algérie**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%A7-2/)
+- **UNAF U20 / Maroc-Libye ce samedi : Horaire? Chaînes?**: [Link](https://www.lopinion.ma/UNAF-U20-Maroc-Libye-ce-samedi-Horaire-Chaines_a60474.html)
+- **CAN U20 : le Maroc qualifié avant même de jouer**: [Link](https://fr.hespress.com/397798-can-u20-le-maroc-qualifie-avant-meme-de-jouer.html)
+
+
+### الجيش الملكي (N/A, Sat, 23 Nov 2024 10:50:00 -0800)
+
+- **مواجهة مغربية خاصة في نهائي دوري أبطال إفريقيا للسيدات**: [Link](https://www.kooora.com/?n=1369404)
+- **الجيش الملكي ينهزم أمام مازيمبي في نهائي دوري أبطال أفريقيا للسيدات**: [Link](https://ar.hibapress.com/details-576316.html)
+- **الجمهور كما تحبه گود.. المشجعين جاو بقوة لتشجيع عيالات ليفار ضد مازيمبي 
+والفينال حاضر فيه لقجع وموتسيبي والوالي امهيدية**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D9%83%D9%85%D8%A7-%D8%AA%D8%AD%D8%A8%D9%87-%DA%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%B4%D8%AC%D8%B9%D9%8A%D9%86-%D8%AC%D8%A7%D9%88-%D8%A8%D9%82%D9%88%D8%A9-917362/)
+
+
+### al-khaleej vs al-hilal (N/A, Sat, 23 Nov 2024 10:40:00 -0800)
+
+- **Donis returns to Al Hilal with Al Khaleej confounding expectations**: [Link](https://www.spl.com.sa/en/news/513960/donis-returns-to-al-hilal-with-al-khaleej-confounding-expectations)
+- **Al Hilal vs Al Khaleej: Match Preview, Broadcast Details and Expert Insights**: [Link](https://www.footboom1.com/en/news/football/2095245-al-hilal-vs-al-khaleej-match-preview-broadcast-details-and-expert-insights)
+- **Preview: Al Khaleej vs. Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-khaleej/preview/preview-al-khaleej-vs-al-hilal-prediction-team-news-lineups_558687.html)
+
+
 ### city (N/A, Sat, 23 Nov 2024 09:50:00 -0800)
 
 - **City of Albany answers frequently asked questions about Combined Sewer 
