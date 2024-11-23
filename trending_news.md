@@ -1,3 +1,11 @@
+### fc barcelone (N/A, Sat, 23 Nov 2024 12:30:00 -0800)
+
+- **Celta Vigo - FC Barcelone en direct - La Liga : Football Scores & Résultats 
+- 23/11/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-celta-vigo-fc-barcelone_mtc1524068/live-commentary.shtml)
+- **Celta Vigo - FC Barcelone: les compositions officielles**: [Link](https://www.footmercato.net/a581299119336772626-celta-vigo-fc-barcelone-les-compositions-officielles)
+- **Gavi, titulaire un an après**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4174602/gavi-titulaire-un-an-apres/featured)
+
+
 ### fcb (N/A, Sat, 23 Nov 2024 12:20:00 -0800)
 
 - **Why isn’t Lamine Yamal playing for Barcelona against Celta Vigo in LaLiga?**: [Link](https://en.as.com/soccer/why-isnt-lamine-yamal-playing-for-barcelona-against-celta-vigo-in-laliga-n/)
