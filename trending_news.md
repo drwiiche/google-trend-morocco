@@ -1,3 +1,18 @@
+### ميلان ضد يوفنتوس (N/A, Sat, 23 Nov 2024 09:10:00 -0800)
+
+- **لياو في مواجهة وياه بالتشكيل المتوقع لقمة ميلان ويوفنتوس**: [Link](https://www.kooora.com/?n=1369912)
+- **مدرب ميلان: يوفنتوس أفضل من ريال مدريد في هذا الأمر**: [Link](https://hihi2.com/2024/11/22/p2945305.html)
+- **الدوريات الأوروبية: قمة بين ميلان ويوفنتوس واختبار صعب للسيتي**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%82%D9%85%D8%A9-%D8%A8%D9%8A%D9%86-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%88%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8-%D9%84%D9%84%D8%B3%D9%8A%D8%AA%D9%8A)
+
+
+### leverkusen vs heidenheim (N/A, Sat, 23 Nov 2024 09:10:00 -0800)
+
+- **Leverkusen vs. Heidenheim (Nov 23, 2024) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/711522)
+- **Victor Boniface: Leverkusen's star striker out for extended period with 
+muscle injury**: [Link](https://www.flashscore.com/news/soccer-bundesliga-leverkusen-s-star-striker-boniface-out-for-extended-period-with-muscle-injury/CM8PEOEE/)
+- **Leverkusen forward Boniface injured on Nigeria duty again**: [Link](https://www.thederrick.com/ap/sports/leverkusen-forward-boniface-injured-on-nigeria-duty-again/article_3ba65fda-a10c-5775-ae37-45813812f4a5.html)
+
+
 ### girona – espanyol (N/A, Sat, 23 Nov 2024 09:00:00 -0800)
 
 - **Un Derby Rico en Historia**: [Link](https://www.footboom1.com/es/news/football/2093203-a-derby-rich-in-history)
