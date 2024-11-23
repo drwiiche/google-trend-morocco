@@ -1,3 +1,10 @@
+### psv eindhoven – groningen (N/A, Sat, 23 Nov 2024 12:40:00 -0800)
+
+- **Preview: PSV Eindhoven vs. Groningen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/preview-psv-vs-groningen-prediction-team-news-lineups_558711.html)
+- **All About | PSV can continue unprecedented run against FC Groningen**: [Link](https://www.psv.nl/en/media/artikel/alles-over-psv-kan-ongekende-reeks-tegen-fc-groningen-voortzetten)
+- **PSV Eindhoven vs Groningen Prediction and Betting Tips | November 23rd 2024**: [Link](https://www.sportskeeda.com/football/psv-eindhoven-vs-groningen-prediction-betting-tips-november-23rd-2024)
+
+
 ### fc barcelone (N/A, Sat, 23 Nov 2024 12:30:00 -0800)
 
 - **Celta Vigo - FC Barcelone en direct - La Liga : Football Scores & Résultats 
