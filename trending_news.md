@@ -1,3 +1,13 @@
+### bournemouth – brighton (N/A, Sat, 23 Nov 2024 07:10:00 -0800)
+
+- **Preview: Bournemouth vs. Brighton & Hove Albion - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/bournemouth/preview/preview-bournemouth-vs-brighton-prediction-team-news-lineups_558601.html)
+- **Cherries and Seagulls Square Off in Thrilling South Coast Derby: Team 
+Updates and Historical Matchup**: [Link](https://www.footboom1.com/en/news/football/2092477-cherries-and-seagulls-square-off-in-thrilling-south-coast-derby-team-updates-and-historical-matchup)
+- **'They are one of the strongest teams': Brighton boss complementary of 
+Cherries**: [Link](https://www.bournemouthecho.co.uk/sport/24745228.fabian-hurzeler-calls-afc-bournemouth-one-strongest-teams/)
+
+
 ### real betis (N/A, Sat, 23 Nov 2024 06:50:00 -0800)
 
 - **Mestalla, con un nudo en la garganta**: [Link](https://www.marca.com/futbol/valencia/2024/11/23/mestalla-nudo-garganta.html)
