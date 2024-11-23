@@ -1,3 +1,11 @@
+### valencia vs real betis (N/A, Sat, 23 Nov 2024 05:30:00 -0800)
+
+- **Preview: Valencia vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/preview-valencia-vs-betis-prediction-team-news-lineups_558677.html)
+- **Baraja: 'We Need to Manage Our Emotions'**: [Link](https://www.footboom1.com/en/news/football/2092902-baraja-we-need-to-manage-our-emotions)
+- **Gayà: “We will try to dedicate the victory to the victims and those 
+affected by the DANA. We have to fight every ball for them”**: [Link](https://onefootball.com/en/news/gaya-we-will-try-to-dedicate-the-victory-to-the-victims-and-those-affected-by-the-dana-we-have-to-fight-every-ball-for-them-40327736)
+
+
 ### emmanuel macron (N/A, Sat, 23 Nov 2024 04:20:00 -0800)
 
 - **Marc Bloch, historien et résistant, va entrer au Panthéon, annonce Emmanuel 
