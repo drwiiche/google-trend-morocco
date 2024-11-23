@@ -1,3 +1,12 @@
+### paris saint germain (N/A, Fri, 22 Nov 2024 13:50:00 -0800)
+
+- **PSG: "On a besoin d'un stade prêt dans 3-4 ans", Al-Khelaïfi réaffirme la 
+volonté du club de quitter le Parc**: [Link](https://rmcsport.bfmtv.com/football/clubs/paris-saint-germain/direct-conference-de-presse-de-luis-enrique-et-inauguration-du-campus-paris-saint-germain-a-poissy-suivez-toute-l-actu-du-psg-en-live_LN-202411210383.html)
+- **PSG : Rachida Dati monte au créneau pour le Parc des Princes**: [Link](https://www.footmercato.net/a6389613610230725335-psg-rachida-dati-monte-au-creneau-pour-le-parc-des-princes)
+- **Ligue 1 : La mairie de Paris « ne nous laisse pas le choix » de partir du 
+Parc des Princes, réaffirme Nasser al-Khelaïfi, président du PSG**: [Link](https://www.lequipe.fr/Football/Actualites/La-mairie-de-paris-ne-nous-laisse-pas-le-choix-de-partir-du-parc-des-princes-reaffirme-nasser-al-khelaifi-president-du-psg/1521830)
+
+
 ### écrivain algérien boualem sansal (N/A, Fri, 22 Nov 2024 21:20:00 -0800)
 
 - **Algérie : Macron “très préoccupé” par la “disparition” de l’écrivain 
