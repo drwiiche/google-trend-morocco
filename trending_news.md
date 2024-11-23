@@ -1,3 +1,11 @@
+### maroc vs algerie u17 (N/A, Sat, 23 Nov 2024 07:30:00 -0800)
+
+- **UNAF U17/ Cet après-midi, un intense Maroc-Algérie : Horaire? Chaînes ?**: [Link](https://www.lopinion.ma/UNAF-U17-Cet-apres-midi-un-intense-Maroc-Algerie-Horaire-Chaines_a60475.html)
+- **Match Maroc – Algérie : A quelle heure et sur quelle chaine regarder le 
+live ?**: [Link](https://www.bladi.net/match-maroc-algerie-quelle-heure-quelle-chaine-regarder-live,111692.html)
+- **Tournoi de L’UNAF U17: la sélection nationale s’impose face à la Libye**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%84%D9%8A/)
+
+
 ### bodrum – galatasaray (N/A, Sat, 23 Nov 2024 07:30:00 -0800)
 
 - **Bodrum Galatasaray Taraftarları Derneği lokali açıldı**: [Link](http://www.dha.com.tr/yerel-haberler/mugla/bodrum/bodrum-galatasaray-taraftarlari-dernegi-lokali-2537106)
