@@ -1,3 +1,10 @@
+### aspas (N/A, Sat, 23 Nov 2024 13:30:00 -0800)
+
+- **"Aspas nota el brazo de Gerard Martín y se deja caer, no hay penalti"**: [Link](https://www.marca.com/radio/2024/11/23/67423c8f46163fa0198b4586.html)
+- **¡Vaya inicio de Gerard Martín en Vigo: tarjeta en el minuto 2!**: [Link](https://www.sport.es/es/noticias/barca/inicio-gerard-martin-vigo-tarjeta-111984777)
+- **🔴EN VIVO: Lewandowski no perdona y el Barça ya gana 0-2**: [Link](https://onefootball.com/es/noticias/en-vivo-lewandowski-no-perdona-y-el-barca-ya-gana-0-2-40346425)
+
+
 ### barca vs (N/A, Sat, 23 Nov 2024 12:10:00 -0800)
 
 - **Celta - Barcelona, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/celta-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
