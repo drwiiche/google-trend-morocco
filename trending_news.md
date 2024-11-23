@@ -1,3 +1,11 @@
+### fcb (N/A, Sat, 23 Nov 2024 12:20:00 -0800)
+
+- **Why isn’t Lamine Yamal playing for Barcelona against Celta Vigo in LaLiga?**: [Link](https://en.as.com/soccer/why-isnt-lamine-yamal-playing-for-barcelona-against-celta-vigo-in-laliga-n/)
+- **Hansi Flick on offside controversy, responds to Lionel Messi comments and 
+discusses Barcelona formation change**: [Link](https://www.football-espana.net/2024/11/22/hansi-flick-on-offside-controversy-responds-to-lionel-messi-comments-and-discusses-barcelona-formation-change)
+- **Alejandro Balde may not play against Celta due to muscle discomfort**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/alejandro-balde-may-not-play-against-celta-due-to-muscle-discomfort_308808_102.html)
+
+
 ### لمياء بومهدي (N/A, Sat, 23 Nov 2024 11:50:00 -0800)
 
 - **اللقب الإفريقي يفلت من نساء الجيش**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%8A%D9%81%D9%84%D8%AA-%D9%85%D9%86-%D9%86%D8%B3%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-1469780.html)
