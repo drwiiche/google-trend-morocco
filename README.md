@@ -1,3 +1,11 @@
+### real betis (N/A, Sat, 23 Nov 2024 06:50:00 -0800)
+
+- **Mestalla, con un nudo en la garganta**: [Link](https://www.marca.com/futbol/valencia/2024/11/23/mestalla-nudo-garganta.html)
+- **Joaquín lleva balones y "un chute de alegría" a los niños de Alfafar 
+afectados por la dana**: [Link](https://www.infobae.com/espana/agencias/2024/11/23/joaquin-lleva-balones-y-un-chute-de-alegria-a-los-ninos-de-alfafar-afectados-por-la-dana/)
+- **Baraja: "Tenemos que gestionar las emociones"**: [Link](https://www.levante-emv.com/valencia-cf/2024/11/23/baraja-gestionar-emociones-111962271.html)
+
+
 ### aston villa – crystal palace (N/A, Sat, 23 Nov 2024 06:40:00 -0800)
 
 - **Preview: Aston Villa vs. Crystal Palace - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/aston-villa/preview/preview-aston-villa-vs-crystal-palace-prediction-team-news-lineups_558671.html)
