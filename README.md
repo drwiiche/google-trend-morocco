@@ -1,3 +1,10 @@
+### classement la liga (N/A, Sat, 23 Nov 2024 14:00:00 -0800)
+
+- **Celta Vigo 2-2 FC Barcelone, La Liga : Sans Yamal, le Barça accroché**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/celta-vigo-fc-barcelone-live/657414)
+- **Gavi, titulaire un an après**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4174602/gavi-titulaire-un-an-apres)
+- **Pronostic Celta de Vigo Barcelone : Analyse, cotes et prono du match de Liga**: [Link](https://www.sofoot.com/breves/pronostic-celta-vigo-barcelone-analyse-cotes-et-prono-du-match-de-liga-3)
+
+
 ### hihi2 (N/A, Sat, 23 Nov 2024 14:30:00 -0800)
 
 
