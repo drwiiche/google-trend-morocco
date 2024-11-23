@@ -1,3 +1,18 @@
+### atlético madrid – deportivo alavés (N/A, Sat, 23 Nov 2024 06:30:00 -0800)
+
+- **Atlético-Alavés: Entre el homenaje y la reentrada sin margen de error**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20241122/1002357955/atletico-alaves-homenaje-reentrada-margen-error.html)
+- **Previa Atlético de Madrid – Alavés: Tres puntos de oro**: [Link](https://onefootball.com/fr/news/previa-atletico-de-madrid-alaves-tres-puntos-de-oro-40344738)
+- **Ya conocemos las alineaciones titulares para el Atleti-Alavés**: [Link](https://www.atleticodemadrid.com/noticias/ya-conocemos-las-alineaciones-titulares-para-el-atleti-alaves-5)
+
+
+### valence – betis (N/A, Sat, 23 Nov 2024 04:10:00 -0800)
+
+- **Valencia vs. Betis (Nov 23, 2024) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/704799)
+- **Preview: Valencia vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/preview-valencia-vs-betis-prediction-team-news-lineups_558677.html)
+- **Football Returns to Mestalla with an Emotional Tribute to the 223 Victims 
+and Those Affected by the Flood**: [Link](https://www.footboom1.com/en/news/football/2094569-football-returns-to-mestalla-with-an-emotional-tribute-to-the-223-victims-and-those-affected-by-the-flood)
+
+
 ### arsenal – nottm forest (N/A, Sat, 23 Nov 2024 06:10:00 -0800)
 
 - **Every word from Mikel Arteta's pre-Forest presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikel-artetas-pre-forest-presser-0)
