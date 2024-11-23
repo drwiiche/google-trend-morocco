@@ -1,3 +1,11 @@
+### لمياء بومهدي (N/A, Sat, 23 Nov 2024 11:50:00 -0800)
+
+- **اللقب الإفريقي يفلت من نساء الجيش**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%8A%D9%81%D9%84%D8%AA-%D9%85%D9%86-%D9%86%D8%B3%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-1469780.html)
+- **الجيش الملكي ينهزم أمام مازيمبي في نهائي دوري أبطال أفريقيا للسيدات**: [Link](https://ar.hibapress.com/details-576316.html)
+- **المغربية لمياء بومهدي صنعت تاريخ مازيمبي وربّحتهم أول لقب شومبيونزليگ د 
+العيالات على ظهر ليفار**: [Link](https://www.goud.ma/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%85%D9%8A%D8%A7%D8%A1-%D8%A8%D9%88%D9%85%D9%87%D8%AF%D9%8A-%D8%B5%D9%86%D8%B9%D8%AA-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%85%D8%A7%D8%B2%D9%8A-917381/)
+
+
 ### premier league (N/A, Sat, 23 Nov 2024 11:30:00 -0800)
 
 - **Jackson & Fernandez's mentality showcases Chelsea's serious Champions 
