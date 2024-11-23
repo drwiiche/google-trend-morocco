@@ -1,3 +1,18 @@
+### المغرب الجزائر (N/A, Sat, 23 Nov 2024 08:20:00 -0800)
+
+- **الجزائر تستأنف ترحيل مهاجرين مغاربة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%B3%D8%AA%D8%A3%D9%86%D9%81-%D8%AA%D8%B3%D9%84%D9%8A%D9%85-%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%8A%D9%86-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-1469156.html)
+- **الجزائر تفرج عن العشرات من المغاربة المحتجزين بأراضيها**: [Link](https://ar.hibapress.com/details-575987.html)
+- **السلطات الجزائرية تفتح حدودها البرية مع المغرب استثنائيا لهذا السبب**: [Link](https://arabi21.com/story/1642404/%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%AA%D9%81%D8%AA%D8%AD-%D8%AD%D8%AF%D9%88%D8%AF%D9%87%D8%A7-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A7-%D9%84%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8)
+
+
+### ac milan – juventus (N/A, Sat, 23 Nov 2024 08:10:00 -0800)
+
+- **Preview: AC Milan vs. Juventus - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ac-milan/preview/preview-ac-milan-vs-juventus-prediction-team-news-lineups_558594.html)
+- **USMNT stars headline Derby d'Italia: Where Christian Pulisic, Yunus Musah, 
+Weston McKennie and Tim Weah stand heading into AC Milan vs Juventus**: [Link](https://www.goal.com/en-kw/lists/usmnt-christian-pulisic-yunus-musah-tim-weah-weston-mckennie-juventus-acmilan/bltb47afa0c56dfeac8)
+- **Fonseca: 'I Want My Milan to Be Like Sinner'**: [Link](https://www.footboom1.com/en/news/tennis/2091389-fonseca-i-want-my-milan-to-be-like-sinner)
+
+
 ### maroc vs algerie u17 (N/A, Sat, 23 Nov 2024 07:30:00 -0800)
 
 - **UNAF U17/ Cet après-midi, un intense Maroc-Algérie : Horaire? Chaînes ?**: [Link](https://www.lopinion.ma/UNAF-U17-Cet-apres-midi-un-intense-Maroc-Algerie-Horaire-Chaines_a60475.html)
