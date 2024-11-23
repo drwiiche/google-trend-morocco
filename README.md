@@ -1,3 +1,11 @@
+### barca match (N/A, Sat, 23 Nov 2024 12:30:00 -0800)
+
+- **‘He’s ready to start’… Hansi Flick says €90m Barcelona star is now fully 
+recovered and ready to start games again**: [Link](https://barcanewsnetwork.com/hes-ready-to-start-hansi-flick-says-e90m-barcelona-star-is-now-fully-recovered-and-ready-to-start-games-again/)
+- **Gavi Returns to Starting Lineup After a Year**: [Link](https://www.footboom1.com/en/news/football/2095765-gavi-returns-to-starting-lineup-after-a-year)
+- **Barcelona star to be handed first start of the season vs Celta Vigo**: [Link](https://sports.yahoo.com/barcelona-star-handed-first-start-202500903.html)
+
+
 ### aspas (N/A, Sat, 23 Nov 2024 13:30:00 -0800)
 
 - **"Aspas nota el brazo de Gerard Martín y se deja caer, no hay penalti"**: [Link](https://www.marca.com/radio/2024/11/23/67423c8f46163fa0198b4586.html)
