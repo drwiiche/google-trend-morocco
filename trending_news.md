@@ -1,3 +1,11 @@
+### kayserispor – fenerbahçe (N/A, Sat, 23 Nov 2024 04:40:00 -0800)
+
+- **Fenerbahçe-Kayserispor maçı ilk 11'i! Amrabat ilk 11 de mi? Oosterwolde ilk 
+11'de mi? En-Nesyri ilk 11'de! Oğuz Aydın ilk 11'de!**: [Link](https://12punto.com.tr/galeri/galeri-fenerbahce-kayserispor-maci-ilk-11i-amrabat-ilk-11-de-mi-oosterwolde-ilk-11de-mi-en-nesyri-ilk-11de-oguz-aydin-ilk-11de-61464)
+- **Ackah'tan Fenerbahçe maçı açıklaması**: [Link](https://www.sabah.com.tr/spor/futbol/2024/11/23/ackahtan-fenerbahce-maci-aciklamasi)
+- **Jose Mourinho: "Bizi detaylı analiz ederseniz..."**: [Link](https://beinsports.com.tr/haber/jose-mourinho-bizi-detayli-analiz-ederseniz)
+
+
 ### ليستر سيتي ضد تشيلسي (N/A, Sat, 23 Nov 2024 04:00:00 -0800)
 
 - **بالمر وجاكسون يقودان هجوم تشيلسي أمام ليستر**: [Link](https://www.kooora.com/?n=1369921)
