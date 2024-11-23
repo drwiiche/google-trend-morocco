@@ -1,3 +1,34 @@
+### manchester city – tottenham (N/A, Sat, 23 Nov 2024 08:40:00 -0800)
+
+- **Preview: Manchester City vs. Tottenham Hotspur - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/spurs/preview/preview-man-city-vs-spurs-prediction-team-news-lineups_558617.html)
+- **Man City vs Spurs Simulation: Haaland Dominates in 3-1 Victory**: [Link](https://themusicessentials.com/trending-pop-culture-news/man-city-vs-spurs-simulation-haaland-dominates-in-3-1-victory/)
+- **LIVE: Manchester City vs Tottenham Hotspur – English Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2024/11/23/live-manchester-city-vs-tottenham-hotspur-english-premier-league-footbal)
+
+
+### atletico madrid (N/A, Sat, 23 Nov 2024 08:30:00 -0800)
+
+- **Atletico Madrid Slams Spanish Police Over Misleading Social Media Post**: [Link](https://www.footboom1.com/en/news/football/2094804-atletico-madrid-slams-spanish-police-over-misleading-social-media-post)
+- **Spanish police detain 3 people for racist slurs during the clasico match at 
+Madrid's stadium**: [Link](https://www.caledonianrecord.com/sports/world/spanish-police-detain-3-people-for-racist-slurs-during-the-clasico-match-at-madrids-stadium/article_6e59ebd9-736d-52ac-a717-1c1be20f3d53.html)
+- **Three Arrested In Spain For Racist Abuse At Liga Clasico**: [Link](https://www.barrons.com/news/three-arrested-in-spain-for-racist-abuse-at-liga-clasico-55f2409d)
+
+
+### مباراة المغرب والجزائر اقل من 17 (N/A, Sat, 23 Nov 2024 08:30:00 -0800)
+
+- **مواجهة كروية جديدة بين المغرب والجزائر.. التوقيت والقناة الناقلة**: [Link](https://www.analkhabar.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%83%D8%B1%D9%88%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6/)
+- **جدول مباريات اليوم السبت 23-11-2024 في بطولة شمال إفريقيا لأقل من 20 سنة 
+2024**: [Link](https://almashhad.com/article/218257510540304-sports/512381788395393-%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-23112024-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-2024/)
+- **تصفيات “كان” الفتيان.. الموعد والقناة الناقلة لمباراة الم...**: [Link](https://kech24.com/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%81%D8%AA%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1.html)
+
+
+### galatasaray (N/A, Sat, 23 Nov 2024 08:30:00 -0800)
+
+- **Bodrumspor Galatasaray Maçı Canlı İzle Bein Sports 1**: [Link](https://tr.al-ain.com/article/bodrumspor-galatasaray-super-lig-13-hafta)
+- **Okan Buruk'tan Victor Nelsson ve Metehan Baltacı açıklaması! GS spor haberi**: [Link](https://www.aspor.com.tr/galatasaray/2024/11/23/okan-buruktan-victor-nelsson-ve-metehan-baltaci-aciklamasi)
+- **Volkan Demirel: "İsimler önemli değil, biz de 11 kişiyiz"**: [Link](https://beinsports.com.tr/haber/volkan-demirel-isimler-onemli-degil-biz-de-11-kisiyiz)
+
+
 ### المغرب الجزائر (N/A, Sat, 23 Nov 2024 08:20:00 -0800)
 
 - **الجزائر تستأنف ترحيل مهاجرين مغاربة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%B3%D8%AA%D8%A3%D9%86%D9%81-%D8%AA%D8%B3%D9%84%D9%8A%D9%85-%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%8A%D9%86-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-1469156.html)
