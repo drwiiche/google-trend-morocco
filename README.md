@@ -1,3 +1,28 @@
+### reims – lyon (N/A, Sat, 23 Nov 2024 12:50:00 -0800)
+
+- **EN DIRECT Stade de Reims - Lyon : Diouf, le gardien rémois, écœure 
+Lacazette… Suivez le match avec nous…**: [Link](https://www.20minutes.fr/sport/football/ligue-1/4122865-20241123-direct-stade-reims-lyon-apres-sanctions-dncg-lyonnais-veulent-concentrer-terrain-suivez-match)
+- **PRONOS PARIS RMS Le pari football de Rolland Courbis du 23 novembre - Ligue 
+1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rms-le-pari-football-de-rolland-courbis-du-23-novembre-ligue-1_AN-202411221110.html)
+- **Mohamed Ali Diadié va honorer sa première apparition dans le groupe du 
+Stade de Reims face à l’Olympique Lyonnais**: [Link](https://www.lunion.fr/id664216/article/2024-11-23/mohamed-ali-diadie-va-honorer-sa-premiere-apparition-dans-le-groupe-du-stade-de)
+
+
+### barcelona (N/A, Sat, 23 Nov 2024 12:30:00 -0800)
+
+- **Celta - Barcelona, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/celta-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Ya hay lista de convocados para Vigo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241123/1002358131/hay-lista-convocados-vigo.html)
+- **Celta - Barcelona en directo: ¡Paradón de Iñaki Peña! | LaLiga en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/celta-barcelona/2024/11/23/01_0101_20241123_176_178-directo.html)
+
+
+### far vs tp mazembe (N/A, Sat, 23 Nov 2024 11:00:00 -0800)
+
+- **LdC féminie CAF : les Congolaises du TP Mazembe championnes d'Afrique**: [Link](https://fr.hespress.com/397781-ldc-feminie-caf-les-congolaises-du-tp-mazembe-championnes-dafrique.html)
+- **Vivez en direct la finale de la Ligue des Champions Féminine de la CAF 
+entre l’AS FAR et le TP Mazembe ce samedi soir**: [Link](https://www.cafonline.com/fr/ligue-des-champions-feminine/infos/vivez-en-direct-la-finale-de-la-ligue-des-champions-feminine-de-la-caf-entre-l-as-far-et-le-tp-mazembe-ce-samedi-soir/)
+- **LDC CAF Féminine : Le TP Mazembe de Lamia Boumehdi sacrée**: [Link](https://www.leconomiste.com/flash-infos/ldc-caf-feminine-le-tp-mazembe-de-lamia-boumehdi-sacree)
+
+
 ### psv eindhoven – groningen (N/A, Sat, 23 Nov 2024 12:40:00 -0800)
 
 - **Preview: PSV Eindhoven vs. Groningen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/preview-psv-vs-groningen-prediction-team-news-lineups_558711.html)
