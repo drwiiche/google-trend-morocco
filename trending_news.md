@@ -1,3 +1,15 @@
+### hihi2 (N/A, Sat, 23 Nov 2024 14:30:00 -0800)
+
+
+
+
+### لا ليغا (N/A, Sat, 23 Nov 2024 14:30:00 -0800)
+
+- **صورة.. هل استحق جيرارد مارتن الطرد ضد سيلتا فيغو؟**: [Link](https://hihi2.com/2024/11/24/p2947611.html)
+- **أسباس ينفجر غضبًا أمام برشلونة**: [Link](https://www.kooora.com/?n=1370115&pg=1&o=n)
+- **انفعال ياجو أسباس وعدم طرد لاعب برشلونة**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%86%D9%81%D8%B9%D8%A7%D9%84-%D9%8A%D8%A7%D8%AC%D9%88-%D8%A3%D8%B3%D8%A8%D8%A7%D8%B3-%D9%88%D8%B9%D8%AF%D9%85-%D8%B7%D8%B1%D8%AF-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86/)
+
+
 ### barca match (N/A, Sat, 23 Nov 2024 12:30:00 -0800)
 
 - **‘He’s ready to start’… Hansi Flick says €90m Barcelona star is now fully 
