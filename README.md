@@ -1,3 +1,10 @@
+### محمد رحيم (N/A, Sat, 23 Nov 2024 01:20:00 -0800)
+
+- **وفاة المطرب والملحن المصري محمد رحيم عن عمر 45 سنة**: [Link](https://ar.hibapress.com/details-576164.html)
+- **وفاة الملحن المصري محمد رحيم بشكل مفاجئ.. وتامر حسني مصدوم**: [Link](https://www.alarabiya.net/culture-and-art/2024/11/23/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D8%B1%D8%AD%D9%8A%D9%85-%D8%A8%D8%B4%D9%83%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%88%D8%A7%D9%84%D9%8A%D8%B3%D8%A7-%D9%85%D8%B5%D8%AF%D9%88%D9%85%D8%A9)
+- **بعد وفاته المفاجئة.. من هو محمد رحيم؟ (تقرير)**: [Link](https://www.almasryalyoum.com/news/details/3312810)
+
+
 ### marseille (N/A, Sat, 23 Nov 2024 00:50:00 -0800)
 
 - **Météo Bouches-du-Rhône: des nuages ce samedi, jusqu'à 15°C à Marseille**: [Link](https://www.bfmtv.com/marseille/meteo/meteo-bouches-du-rhone-des-nuages-ce-samedi-jusqu-a-15-c-a-marseille_VN-202411230246.html)
