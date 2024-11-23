@@ -1,3 +1,13 @@
+### chelsea (N/A, Sat, 23 Nov 2024 04:50:00 -0800)
+
+- **Chelsea fitness update on Reece James, Cole Palmer and Levi Colwill | News 
+| Official Site**: [Link](https://www.chelseafc.com/en/news/article/chelsea-fitness-update-on-reece-james-cole-palmer-and-levi-colwill)
+- **Nervous wait for ‘devastated’ Reece James and Chelsea as he has scan on 
+hamstring injury**: [Link](https://www.telegraph.co.uk/football/2024/11/22/reece-james-scan-hamstring-injury-chelsea-devastated/)
+- **"Where he goes after that is a massive struggle" - Former PL striker sends 
+warning to Reece James after latest injury for Chelsea captain**: [Link](https://www.sportskeeda.com/football/news-where-goes-massive-struggle-former-pl-striker-sends-warning-reece-james-latest-injury-chelsea-captain)
+
+
 ### kayserispor – fenerbahçe (N/A, Sat, 23 Nov 2024 04:40:00 -0800)
 
 - **Fenerbahçe-Kayserispor maçı ilk 11'i! Amrabat ilk 11 de mi? Oosterwolde ilk 
