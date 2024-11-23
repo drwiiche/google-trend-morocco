@@ -1,3 +1,10 @@
+### arsenal – nottm forest (N/A, Sat, 23 Nov 2024 06:10:00 -0800)
+
+- **Every word from Mikel Arteta's pre-Forest presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikel-artetas-pre-forest-presser-0)
+- **Predictions for this one?**: [Link](https://www.besoccer.com/new/live-arsenal-v-nottingham-forest-1338775)
+- **Declan Rice Injury: Progress & Return date for Arsenal midfielder**: [Link](https://paininthearsenal.com/declan-rice-injury-progress-return-date-arsenal-midfielder-22-11-24)
+
+
 ### leverkusen – heidenheim (N/A, Sat, 23 Nov 2024 06:00:00 -0800)
 
 - **Heidenheim am Scheideweg: In Europa top, in der Bundesliga flop**: [Link](https://www.watson.ch/sport/fussball/426849163-heidenheim-am-scheideweg-in-europa-top-in-der-bundesliga-flop)
