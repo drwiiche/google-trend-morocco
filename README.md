@@ -1,3 +1,24 @@
+### leicester – chelsea (N/A, Sat, 23 Nov 2024 03:40:00 -0800)
+
+- **Chelsea fitness update on Reece James, Cole Palmer and Levi Colwill | News 
+| Official Site**: [Link](https://www.chelseafc.com/en/news/article/chelsea-fitness-update-on-reece-james-cole-palmer-and-levi-colwill)
+- **Stan Collymore predicts the score for Leicester vs Chelsea in the Premier 
+League**: [Link](https://www.thechelseachronicle.com/news/stan-collymore-predicts-the-score-for-leicester-vs-chelsea-in-the-premier-league/)
+- **'They were in the garden and at my window' - Enzo Maresca tells hilarious 
+story of Leicester players gatecrashing his home celebration 2am after 
+winning Championship title**: [Link](https://www.goal.com/en/lists/enzo-maresca-story-leicester-players-gatecrashing-his-home-celebration-winning-championship-title/bltff70772bf15b8a96)
+
+
+### bayern munich (N/A, Fri, 22 Nov 2024 13:00:00 -0800)
+
+- **Exclusive: Man City jump ahead of Liverpool for £100m-rated complete 
+midfielder who Spanish giants covet**: [Link](https://www.caughtoffside.com/2024/11/20/man-city-liverpool-real-madrid-florian-wirtz/)
+- **Report: With Real Madrid, Manchester City lurking, Bayern Munich’s Max 
+Eberl given permission to talk to Florian Wirtz**: [Link](https://www.bavarianfootballworks.com/2024/11/23/24303377/report-with-real-madrid-manchester-city-bayern-munichs-max-eberl-florian-wirtz)
+- **Arne Slot suffers double blow as Liverpool hit with transfer setback after 
+Pep Guardiola update**: [Link](https://www.liverpool.com/liverpool-fc-news/transfer-news/liverpool-transfer-blow-pep-guardiola-30424287)
+
+
 ### jaguar (N/A, Fri, 22 Nov 2024 22:50:00 -0800)
 
 - **Jaguar mystifies with ‘reimagined’ brand identity**: [Link](https://www.creativereview.co.uk/jaguar-car-branding-logo-design/)
