@@ -1,3 +1,12 @@
+### emmanuel macron (N/A, Sat, 23 Nov 2024 04:20:00 -0800)
+
+- **Marc Bloch, historien et résistant, va entrer au Panthéon, annonce Emmanuel 
+Macron**: [Link](https://www.lemonde.fr/politique/article/2024/11/23/marc-bloch-historien-et-resistant-va-entrer-au-pantheon-annonce-emmanuel-macron_6410417_823448.html)
+- **80e anniversaire de la Libération : le camp de Natzweiler-Struthof au 
+centre de l’hommage présidentiel**: [Link](https://www.la-croix.com/culture/80e-anniversaire-de-la-liberation-le-camp-de-natzweiler-struthof-au-centre-de-l-hommage-presidentiel-20241122)
+- **Mémoire : ce que la France doit à l’Alsace ! L’édito de Michel Taube**: [Link](https://www.opinion-internationale.com/2024/11/23/memoire-ce-que-la-france-doit-a-lalsace-ledito-de-michel-taube_129734.html)
+
+
 ### chelsea (N/A, Sat, 23 Nov 2024 04:50:00 -0800)
 
 - **Chelsea fitness update on Reece James, Cole Palmer and Levi Colwill | News 
