@@ -1,3 +1,24 @@
+### bodrum – galatasaray (N/A, Sat, 23 Nov 2024 07:30:00 -0800)
+
+- **Bodrum Galatasaray Taraftarları Derneği lokali açıldı**: [Link](http://www.dha.com.tr/yerel-haberler/mugla/bodrum/bodrum-galatasaray-taraftarlari-dernegi-lokali-2537106)
+- **Dernek Lokali Törenle Açıldı**: [Link](https://kenttv.net/video/22454926/dernek-lokali-torenle-acildi)
+- **Bodrum Galatasaray Taraftarları Derneği lokali açıldı**: [Link](https://gundemfethiye.com/bodrum-galatasaray-taraftarlari-dernegi-lokali-acildi-76458/)
+
+
+### آرسنال ضد نوتينغهام فورست (N/A, Sat, 23 Nov 2024 07:30:00 -0800)
+
+- **تغييرات بالجملة في تشكيل آرسنال أمام نوتنجهام**: [Link](https://www.kooora.com/?n=1369956)
+- **أرقام مميزة لـ ساكا مع أرسنال على ملعب الإمارات**: [Link](https://hihi2.com/2024/11/23/p2946984.html)
+- **آرسنال يطمح إلى العودة لسكة الانتصارات**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B7%D9%85%D8%AD-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D8%B3%D9%83%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-2024-11-23)
+
+
+### الملحن محمد رحيم (N/A, Sat, 23 Nov 2024 07:30:00 -0800)
+
+- **كدمات وخدوش على جسده.. التحقيق في وفاة الملحن محمد رحيم**: [Link](https://ar.hibapress.com/details-576219.html)
+- **عانى من التهميش.. ما لا تعرفه عن الملحن المصري محمد رحيم**: [Link](https://www.alarabiya.net/culture-and-art/2024/11/23/%D9%82%D9%84%D8%A8%D9%87-%D9%84%D9%85-%D9%8A%D8%AD%D8%AA%D9%85%D9%84-%D9%85%D8%A7%D8%B0%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%84%D9%84%D9%85%D9%84%D8%AD%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D8%B1%D8%AD%D9%8A%D9%85-%D9%82%D8%A8%D9%84-%D9%88%D9%81%D8%A7%D8%AA%D9%87)
+- **تشييع جثمان محمد رحيم من مسجد الشرطة بالشيخ زايد بعد صلاة ظهر اليوم**: [Link](https://www.youm7.com/story/2024/11/23/%D8%AA%D8%B4%D9%8A%D9%8A%D8%B9-%D8%AC%D8%AB%D9%85%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%B1%D8%AD%D9%8A%D9%85-%D9%85%D9%86-%D9%85%D8%B3%D8%AC%D8%AF-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A8%D8%A7%D9%84%D8%B4%D9%8A%D8%AE-%D8%B2%D8%A7%D9%8A%D8%AF-%D8%A8%D8%B9%D8%AF/6786835)
+
+
 ### lens – marseille (N/A, Sat, 23 Nov 2024 07:20:00 -0800)
 
 - **RC Lens: Gervais Martel Shares Touching Confessions About His Illness**: [Link](https://www.footboom1.com/en/news/football/2093849-rc-lens-gervais-martel-shares-touching-confessions-about-his-illness)
