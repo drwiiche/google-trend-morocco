@@ -1,3 +1,11 @@
+### benjamin netanyahu (N/A, Sat, 23 Nov 2024 00:30:00 -0800)
+
+- **Benjamin Netanyahu is a wanted man – and he has only himself to blame**: [Link](https://www.theguardian.com/commentisfree/2024/nov/22/benjamin-netanyahu-icc-israel)
+- **No 10 indicates Benjamin Netanyahu faces arrest if he enters UK**: [Link](https://www.bbc.com/news/articles/cjr4gvydxeno)
+- **Top war-crimes court issues arrest warrants for Netanyahu and others in 
+Israel-Hamas fighting**: [Link](https://apnews.com/article/icc-israel-hamas-warrants-netanyahu-palestinian-arrest-73c854d072e0a1a41b19b2cb2cdd07fa)
+
+
 ### paris saint germain (N/A, Fri, 22 Nov 2024 13:50:00 -0800)
 
 - **PSG: "On a besoin d'un stade prêt dans 3-4 ans", Al-Khelaïfi réaffirme la 
