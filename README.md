@@ -1,3 +1,10 @@
+### barca vs (N/A, Sat, 23 Nov 2024 12:10:00 -0800)
+
+- **Celta - Barcelona, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/celta-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Ya hay lista de convocados para Vigo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241123/1002358131/hay-lista-convocados-vigo.html)
+- **Celta - Barcelona en directo: LaLiga hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/celta-barcelona/2024/11/23/01_0101_20241123_176_178-directo.html)
+
+
 ### reims – lyon (N/A, Sat, 23 Nov 2024 12:50:00 -0800)
 
 - **EN DIRECT Stade de Reims - Lyon : Diouf, le gardien rémois, écœure 
