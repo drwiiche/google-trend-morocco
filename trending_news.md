@@ -1,3 +1,19 @@
+### premier league (N/A, Sat, 23 Nov 2024 11:30:00 -0800)
+
+- **Jackson & Fernandez's mentality showcases Chelsea's serious Champions 
+League focus**: [Link](https://www.si.com/onsi/soccer/chelsea/columns/jackson-fernandez-mentality-showcases-chelsea-serious-champions-league-bid-01jdcrcgh3jh)
+- **Chelsea, Arsenal and Brighton Narrow Gap on Leader Liverpool**: [Link](https://www.footboom1.com/en/news/football/2095471-chelsea-arsenal-and-brighton-narrow-gap-on-leader-liverpool)
+- **Why Pedro Neto & Malo Gusto are absent from the Chelsea squad for the 
+Premier League clash with Leicester - explained**: [Link](https://www.goal.com/en-cm/lists/pedro-neto-absent-chelsea-squad-premier-league-clash-leicester-explained/bltd48cf5d4b46ab7b0)
+
+
+### celta de vigo - barcelona (N/A, Sat, 23 Nov 2024 11:30:00 -0800)
+
+- **Celta - Barcelona, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/celta-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Celta - Barcelona en directo | LaLiga en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/celta-barcelona/2024/11/23/01_0101_20241123_176_178-directo.html)
+- **Ya hay lista de convocados para Vigo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241123/1002358131/hay-lista-convocados-vigo.html)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Sat, 23 Nov 2024 11:20:00 -0800)
 
 - **بالصور: تشيلسي يستعيد نغمة الانتصارات على أنقاض ليستر**: [Link](https://www.kooora.com/?n=1369961)
