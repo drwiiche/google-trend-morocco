@@ -1,3 +1,11 @@
+### marseille (N/A, Sat, 23 Nov 2024 00:50:00 -0800)
+
+- **Météo Bouches-du-Rhône: des nuages ce samedi, jusqu'à 15°C à Marseille**: [Link](https://www.bfmtv.com/marseille/meteo/meteo-bouches-du-rhone-des-nuages-ce-samedi-jusqu-a-15-c-a-marseille_VN-202411230246.html)
+- **Quel temps est-il prévu à Marseille et ses environs le samedi 23 novembre 
+2024 ?**: [Link](https://www.ouest-france.fr/meteo/provence-alpes-cote-dazur/marseille-13000/la-meteo-du-jour-a-marseille-60aa21cd-051b-588c-88a3-1c9f1e565659)
+- **TOULON : Météo - De la pluie attendus jeudi en Provence**: [Link](https://presseagence.fr/paris-meteo-de-la-pluie-attendus-jeudi-en-provence/)
+
+
 ### benjamin netanyahu (N/A, Sat, 23 Nov 2024 00:30:00 -0800)
 
 - **Benjamin Netanyahu is a wanted man – and he has only himself to blame**: [Link](https://www.theguardian.com/commentisfree/2024/nov/22/benjamin-netanyahu-icc-israel)
