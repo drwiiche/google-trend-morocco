@@ -1,3 +1,21 @@
+### ipswich town vs man united (N/A, Sun, 24 Nov 2024 07:50:00 -0800)
+
+- **Ruben Amorim has a six-player puzzle to solve at Man United after making 
+3-4-3 decision this week**: [Link](https://www.unitedinfocus.com/opinion/ruben-amorim-has-a-six-player-puzzle-to-solve-at-man-united-after-making-3-4-3-decision-this-week/)
+- **Ipswich vs Manchester United live updates: Premier League team news ahead 
+of Ruben Amorim’s first game**: [Link](https://www.nytimes.com/athletic/live-blogs/ipswich-manchester-united-live-updates-premier-league-score-result/WESUArGjLI89/)
+- **Yoro debut in 3 big changes | Expected Man Utd line-up (3-4-2-1) vs Ipswich 
+Town with Casemiro decision made**: [Link](https://onefootball.com/en/news/yoro-debut-in-3-big-changes-expected-man-utd-line-up-3-4-2-1-vs-ipswich-town-with-casemiro-decision-made-40348029)
+
+
+### إيبسويتش تاون ضد مان يونايتد (N/A, Sun, 24 Nov 2024 07:50:00 -0800)
+
+- **تشكيلة مانشستر يونايتد الرسمية لمواجهة ايبسويتش تاون في الدوري الإنجليزي**: [Link](https://hihi2.com/2024/11/24/p2948802.html)
+- **في أول تشكيلة رسمية للمدرب الجديد أموريم.. مزراوي أساسي رفقة مان يونايتد 
+أمام إبسويتش تاون**: [Link](https://www.elbotola.com/article/2024-11-24-15-40-228.html)
+- **سام مرسي: لا نهتم بشؤون مانشستر يونايتد**: [Link](https://www.kooora.com/?n=1370184)
+
+
 ### ipswich town – manchester united (N/A, Sun, 24 Nov 2024 07:40:00 -0800)
 
 - **Premier League predictions: Chris Sutton v The Farm singer & Liverpool fan 
