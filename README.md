@@ -1,3 +1,12 @@
+### ipswich town – manchester united (N/A, Sun, 24 Nov 2024 07:40:00 -0800)
+
+- **Premier League predictions: Chris Sutton v The Farm singer & Liverpool fan 
+Peter Hooton**: [Link](https://www.bbc.com/sport/football/articles/cjdlp5kv4dgo)
+- **Ruben Amorim has a six-player puzzle to solve at Man United after making 
+3-4-3 decision this week**: [Link](https://www.unitedinfocus.com/opinion/ruben-amorim-has-a-six-player-puzzle-to-solve-at-man-united-after-making-3-4-3-decision-this-week/)
+- **Manchester United Predicted Lineup vs. Ipswich Town for November 24**: [Link](https://lastwordonsports.com/football/2024/11/24/manchester-united-predicted-lineup-vs-ipswich-town/)
+
+
 ### real madrid (N/A, Sun, 24 Nov 2024 07:30:00 -0800)
 
 - **Posible alineación del Real Madrid hoy contra el Leganés en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-hoy-contra-el-leganes-en-laliga-ea-sports-n/)
