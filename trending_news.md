@@ -1,3 +1,12 @@
+### ath. bilbao – real sociedad (N/A, Sun, 24 Nov 2024 11:00:00 -0800)
+
+- **Imanol deja fuera del 'once' a un pilar y sorprende con dos futbolistas 
+menos frescos**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20241124/1002359113/imanol-deja-fuera-once-pilar-sorprende-dos-futbolistas-frescos.html)
+- **Valverde: «Nos ha venido bien el parón»**: [Link](https://offsidersports.com/valverde-nos-ha-venido-bien-el-paron/)
+- **Yeray y Djaló, sorpresas en el Athletic; la Real, con Javi López, Sergio y 
+Barrene**: [Link](https://www.infobae.com/espana/agencias/2024/11/24/yeray-y-djalo-sorpresas-en-el-athletic-la-real-con-javi-lopez-sergio-y-barrene/)
+
+
 ### أتلتيك بيلباو ضد ريال سوسيداد (N/A, Sun, 24 Nov 2024 11:30:00 -0800)
 
 - **فالفيريدي يشدد على صعوبة مواجهة سوسييداد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%81%D8%A7%D9%84%D9%81%D9%8A%D8%B1%D9%8A%D8%AF%D9%8A-%D9%8A%D8%B4%D8%AF%D8%AF-%D8%B9%D9%84%D9%89-%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF-2024-11-21)
