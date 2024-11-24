@@ -1,3 +1,13 @@
+### hakim ziyech (N/A, Sun, 24 Nov 2024 03:50:00 -0800)
+
+- **Forgotten former Chelsea star guilty of SHOCKING miss - as fans are left 
+baffled by his blunder**: [Link](https://www.dailymail.co.uk/sport/football/article-14118909/Forgotten-former-Chelsea-star-guilty-SHOCKING-miss-fans-left-baffled-blunder.html)
+- **‘Embarrassing’ – Ex-Chelsea star Hakim Ziyech misses open goal from eight 
+yards out in miss of season conte...**: [Link](https://talksport.com/football/2312404/hakim-ziyech-miss-season-open-goal-chelsea-galatasaray/)
+- **'Everyone was egoistic except Osimhen'- Ex-Fenerbahce chief singles out 
+Galatasaray striker for praise**: [Link](https://www.allnigeriasoccer.com/read_news.php?nid=53792)
+
+
 ### osasuna – villarreal (N/A, Sun, 24 Nov 2024 04:10:00 -0800)
 
 - **Osasuna-Villarreal, previa, horario y dónde ver por TV: reto en lo alto**: [Link](https://www.noticiasdenavarra.com/osasuna/2024/11/24/osasuna-villarreal-previa-horario-ver-8969935.html)
