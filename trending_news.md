@@ -1,3 +1,12 @@
+### napoli (N/A, Sun, 24 Nov 2024 10:30:00 -0800)
+
+- **Ritiro pre gara a Pozzuoli in vista della Roma: la reazione della squadra 
+alla notizia**: [Link](https://www.calcionapoli24.it/rassegna_stampa/ritiro-pre-gara-a-pozzuoli-in-vista-della-roma-la-reazione-della-n626292.html)
+- **Altro pienone al Maradona, è il quarto di fila: la nota della SSCNapoli**: [Link](https://www.tuttonapoli.net/notizie/altro-pienone-al-maradona-e-il-quarto-di-fila-la-nota-della-sscnapoli-594078)
+- **La legge del gol dell'ex: Angelino sbaglia, Lukaku porta avanti il Napoli 
+su assist di Di Lorenzo**: [Link](https://www.tuttomercatoweb.com/serie-a/la-legge-del-gol-dell-ex-angelino-sbaglia-lukaku-porta-avanti-il-napoli-su-assist-di-di-lorenzo-2038556)
+
+
 ### real madrid match (N/A, Sun, 24 Nov 2024 10:10:00 -0800)
 
 - **DIRECT. Leganés-Real Madrid (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/leganes-real-madrid-live/657413)
