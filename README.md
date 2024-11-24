@@ -1,3 +1,17 @@
+### real madrid (N/A, Sun, 24 Nov 2024 07:30:00 -0800)
+
+- **Posible alineación del Real Madrid hoy contra el Leganés en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-hoy-contra-el-leganes-en-laliga-ea-sports-n/)
+- **Al Madrid le acechan más bajas**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/23/madrid-le-acechan-bajas.html)
+- **El equipo se está entrenando**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-23-11-2024)
+
+
+### ليفربول (N/A, Sun, 24 Nov 2024 07:30:00 -0800)
+
+- **مدرب ساوثهامبتون: لدينا فرصة لإزعاج ليفربول**: [Link](https://www.kooora.com/?n=1369954)
+- **مباشر مباراة ليفربول وساوثهامبتون الآن في الدوري الإنجليزي**: [Link](https://www.almasryalyoum.com/news/details/3313692)
+- **3 أرقام قياسية بانتظار محمد صلاح في مباراة ساوثهامبتون**: [Link](https://www.raialyoum.com/3-%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D8%A8%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1/)
+
+
 ### côme – fiorentina (N/A, Sun, 24 Nov 2024 06:30:00 -0800)
 
 - **✅ Le UFFICIALI delle 15: la scelta su Che Adams, Maldini, Cataldi e Audero**: [Link](https://onefootball.com/it/notizie/le-ufficiali-delle-15-la-scelta-su-che-adams-maldini-cataldi-e-audero-40349272)
