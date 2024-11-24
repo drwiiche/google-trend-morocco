@@ -1,3 +1,19 @@
+### tp mazembe (N/A, Sat, 23 Nov 2024 21:50:00 -0800)
+
+- **LdC féminie CAF : les Congolaises du TP Mazembe championnes d'Afrique**: [Link](https://fr.hespress.com/397781-ldc-feminie-caf-les-congolaises-du-tp-mazembe-championnes-dafrique.html)
+- **Vivez en direct la finale de la Ligue des Champions Féminine de la CAF 
+entre l’AS FAR et le TP Mazembe ce samedi soir**: [Link](https://www.cafonline.com/fr/ligue-des-champions-feminine/infos/vivez-en-direct-la-finale-de-la-ligue-des-champions-feminine-de-la-caf-entre-l-as-far-et-le-tp-mazembe-ce-samedi-soir/)
+- **LDC (F) Maroc 25 : les 'Askariates', rendant une mauvaise copie, ratent 
+l’épreuve finale !**: [Link](https://www.lopinion.ma/LDC-F-Maroc-25-les-Askariates--rendant-une-mauvaise-copie-ratent-l-epreuve-finale-_a60492.html)
+
+
+### barca vs celta vigo (N/A, Sat, 23 Nov 2024 12:20:00 -0800)
+
+- **Celta 2-2 Barcelona: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/celta-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Flick, muy enfadado, habló con los jugadores tras el empate**: [Link](https://www.sport.es/es/noticias/barca/flick-enfadado-hablo-jugadores-empate-111988265)
+- **El Barça juega con fuego en Balaídos y se quema**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241123/1002358479/barca-juega-fuego-balaidos-quema.html)
+
+
 ### laliga (N/A, Sat, 23 Nov 2024 13:50:00 -0800)
 
 - **Atlético 2-1 Alavés (Nov 23, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704791)
