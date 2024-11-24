@@ -1,3 +1,18 @@
+### osasuna – villarreal (N/A, Sun, 24 Nov 2024 04:10:00 -0800)
+
+- **Osasuna-Villarreal, previa, horario y dónde ver por TV: reto en lo alto**: [Link](https://www.noticiasdenavarra.com/osasuna/2024/11/24/osasuna-villarreal-previa-horario-ver-8969935.html)
+- **Kike Barja entra en la lista y se quedan fuera Benito y Javi Martínez**: [Link](https://www.futbolfantasy.com/laliga/noticias/122208-kike-barja-entra-en-la-lista-y-se-quedan-fuera-benito-y-javi-martinez)
+- **Reto mayúculo en El Sadar**: [Link](https://nostresport.com/reto-mayuculo-en-el-sadar/)
+
+
+### liga (N/A, Sat, 23 Nov 2024 14:00:00 -0800)
+
+- **Bad News for Barça! Lamine Yamal Will Miss Several Key Matches Due to Injury**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/bad-news-for-bar%C3%A7a-lamine-yamal-will-miss-several-key-matches-due-to-injury-2024-11-22)
+- **Hansi Flick explains why Alejandro Balde benched for Barcelona against Celta**: [Link](https://www.barcablaugranes.com/2024/11/23/24304179/hansi-flick-explains-why-alejandro-balde-benched-for-barcelona-against-celta)
+- **Hansi Flick on offside controversy, responds to Lionel Messi comments and 
+discusses Barcelona formation change**: [Link](https://www.yardbarker.com/soccer/articles/hansi_flick_on_offside_controversy_responds_to_lionel_messi_comments_and_discusses_barcelona_formation_change/s1_15980_41278601)
+
+
 ### léa salamé (N/A, Sun, 24 Nov 2024 03:30:00 -0800)
 
 - **Quelle époque ! (France 2) : Qui sont les invités de Léa Salamé ce samedi 
