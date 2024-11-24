@@ -1,3 +1,10 @@
+### لا ليغا (N/A, Sun, 24 Nov 2024 10:50:00 -0800)
+
+- **تيباس: بيريز لن يستطيع خداع أندية الليجا**: [Link](https://www.kooora.com/?n=1370272)
+- **رابطة الدورى الإسبانى لرئيس ريال مدريد: اللص يعتقد أن الجميع مثله**: [Link](https://www.youm7.com/story/2024/11/24/%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%89-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%89-%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%84%D8%B5-%D9%8A%D8%B9%D8%AA%D9%82%D8%AF-%D8%A3%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9/6789012)
+- **خلاف جديد مع تيباس.. ريال مدريد يطالب رسميًا بوقف تمويل دوري الكرة النسائية!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D9%84%D8%A7%D9%81-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AA%D9%8A%D8%A8%D8%A7%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D9%88%D9%82%D9%81-%D8%AA%D9%85%D9%88%D9%8A%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%86%D8%B3%D8%A7%D9%8A%D9%94%D9%8A%D8%A9/blt1c43951e92e5b724)
+
+
 ### napoli (N/A, Sun, 24 Nov 2024 10:30:00 -0800)
 
 - **Ritiro pre gara a Pozzuoli in vista della Roma: la reazione della squadra 
