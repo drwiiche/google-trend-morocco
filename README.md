@@ -1,3 +1,11 @@
+### la liga (N/A, Sat, 23 Nov 2024 14:30:00 -0800)
+
+- **Preview: Leganes vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/race-for-the-la-liga-title/preview/preview-leganes-vs-real-madrid-prediction-team-news-lineups_558774.html)
+- **Ancelotti Makes It Clear: Giving Minutes to Academy Players Is Not His 
+Priority**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/ancelotti-makes-it-clear-giving-minutes-to-academy-players-is-not-his-priority-2024-11-23)
+- **Final training session ahead of Leganés clash**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/trainings/el-equipo-se-esta-entrenando-23-11-2024)
+
+
 ### ترتيب الدوري الاسباني (N/A, Sat, 23 Nov 2024 14:00:00 -0800)
 
 - **ليفاندوفسكي يعتلي عرش أوروبا برقم استثنائي**: [Link](https://www.kooora.com/?n=1370124&o=n)
