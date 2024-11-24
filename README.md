@@ -1,3 +1,35 @@
+### leganés – real madrid (N/A, Sun, 24 Nov 2024 08:40:00 -0800)
+
+- **Posible alineación del Real Madrid hoy contra el Leganés en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-hoy-contra-el-leganes-en-laliga-ea-sports-n/)
+- **Al Madrid le acechan más bajas**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/23/madrid-le-acechan-bajas.html)
+- **El equipo se está entrenando**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-23-11-2024)
+
+
+### ليغانيز ضد الريال (N/A, Sun, 24 Nov 2024 08:40:00 -0800)
+
+- **تغييرات بالجملة في تشكيل ريال مدريد لمواجهة ليجانيس**: [Link](https://www.kooora.com/?n=1370262)
+- **تشكيلة ريال مدريد الرسمية للقاء ليغانيز في الدوري الاسباني**: [Link](https://hihi2.com/2024/11/24/p2948821.html)
+- **قناة ريال مدريد تواصل احتجاجاتها على التحكيم: "كلما فاز النادي بالليغا يكون 
+ذلك بمثابة معجزة"**: [Link](https://m.elbotola.com/article/2024-11-23-17-34-805.html)
+
+
+### real vs (N/A, Sun, 24 Nov 2024 08:30:00 -0800)
+
+- **Sunday's La Liga predictions including Leganes vs. Real Madrid**: [Link](https://www.sportsmole.co.uk/football/real-madrid/la-liga-predictions/feature/sundays-la-liga-predictions-including-leganes-vs-real-madrid_558846.html)
+- **Brahim, Academy Graduate and Golden Opportunity**: [Link](https://www.footboom1.com/en/news/football/2096921-brahim-academy-graduate-and-golden-opportunity)
+- **La Liga Soccer Livestream: How to Watch Leganés vs. Real Madrid From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-livestream-how-to-watch-leganes-vs-real-madrid-from-anywhere/)
+
+
+### fpl live (N/A, Sun, 24 Nov 2024 08:10:00 -0800)
+
+- **Chelsea fitness update on Reece James, Cole Palmer and Levi Colwill | News 
+| Official Site**: [Link](https://www.chelseafc.com/en/news/article/chelsea-fitness-update-on-reece-james-cole-palmer-and-levi-colwill)
+- **Premier League injury news and updates: Saka, Rice doubts, Alisson may 
+return**: [Link](https://www.eurosport.com/football/premier-league/2024-2025/premier-league-injury-news-bukayo-saka-declan-rice-ben-white-alisson-kevin-de-bruyne-dwight-mcneil-reece-james-trent-alexander-arnold-arsenal-liverpool-man-city-mateo-kovacic_sto20056194/story.shtml)
+- **How long Cole Palmer is out for and five FPL replacements**: [Link](https://inews.co.uk/sport/fantasy-football/how-long-cole-palmer-out-five-fpl-replacements-3394977)
+
+
 ### manchester united (N/A, Sun, 24 Nov 2024 08:20:00 -0800)
 
 - **Ruben Amorim: Manchester United boss says he is the 'smiling one'**: [Link](https://www.bbc.com/sport/football/articles/cn4vn74nq5zo)
