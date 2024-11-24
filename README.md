@@ -1,3 +1,18 @@
+### أتلتيك بيلباو ضد ريال سوسيداد (N/A, Sun, 24 Nov 2024 11:30:00 -0800)
+
+- **فالفيريدي يشدد على صعوبة مواجهة سوسييداد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%81%D8%A7%D9%84%D9%81%D9%8A%D8%B1%D9%8A%D8%AF%D9%8A-%D9%8A%D8%B4%D8%AF%D8%AF-%D8%B9%D9%84%D9%89-%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF-2024-11-21)
+- **الموعد والقنوات الناقلة لمباراة أتلتيك بيلباو ضد ريال سوسيداد في الدوري 
+الإسباني**: [Link](https://www.akhbar-sharq.com/news/24172)
+- **لاعب بيلباو أندير هيريرا يؤكد على أهمية ديربي الباسك ضد سوسييداد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D8%A3%D9%86%D8%AF%D9%8A%D8%B1-%D9%87%D9%8A%D8%B1%D9%8A%D8%B1%D8%A7-%D9%8A%D8%A4%D9%83%D8%AF-%D8%B9%D9%84%D9%89-%D8%A3%D9%87%D9%85%D9%8A%D8%A9-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%A8%D8%A7%D8%B3%D9%83-%D8%B6%D8%AF-%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF-2024-11-21)
+
+
+### laliga (N/A, Sun, 24 Nov 2024 11:30:00 -0800)
+
+- **Osasuna vs. Villarreal (Nov 24, 2024) Pregame**: [Link](https://www.espn.com/soccer/preview/_/gameId/704797)
+- **Gerard Scores After Ten Months: "It's Been Much Suffering"**: [Link](https://www.footboom1.com/en/news/football/2098817-gerard-scores-after-ten-months-it-s-been-much-suffering)
+- **Preview: Osasuna vs. Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/preview/preview-osasuna-vs-villarreal-prediction-team-news-lineups_558767.html)
+
+
 ### حفيظ دراجي (N/A, Sun, 24 Nov 2024 11:20:00 -0800)
 
 - **صنصال يفضح البنية الشمولية للنظام العسكري المسيطر على الجزائر**: [Link](https://www.hespress.com/%D8%B5%D9%86%D8%B5%D8%A7%D9%84-%D9%8A%D9%81%D8%B6%D8%AD-%D8%A7%D9%84%D8%A8%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D9%85%D9%88%D9%84%D9%8A%D8%A9-%D9%84%D9%84%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D8%B9-1469722.html)
