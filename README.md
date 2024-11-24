@@ -1,3 +1,11 @@
+### tp mazembe feminine (N/A, Sun, 24 Nov 2024 01:40:00 -0800)
+
+- **LdC féminie CAF : les Congolaises du TP Mazembe championnes d'Afrique**: [Link](https://fr.hespress.com/397781-ldc-feminie-caf-les-congolaises-du-tp-mazembe-championnes-dafrique.html)
+- **Vivez en direct la finale de la Ligue des Champions Féminine de la CAF 
+entre l’AS FAR et le TP Mazembe ce samedi soir**: [Link](https://www.cafonline.com/fr/ligue-des-champions-feminine/infos/vivez-en-direct-la-finale-de-la-ligue-des-champions-feminine-de-la-caf-entre-l-as-far-et-le-tp-mazembe-ce-samedi-soir/)
+- **Alioua : "On a donné le maximum"**: [Link](https://www.menara.ma/fr/article/alioua-on-a-donne-le-maximum)
+
+
 ### iago aspas (N/A, Sat, 23 Nov 2024 13:40:00 -0800)
 
 - **Aspas estalla y Soto Grado, en el foco: «Es segunda amarilla a Gerard»**: [Link](https://as.com/futbol/primera/aspas-estalla-y-soto-grado-en-el-foco-es-segunda-amarilla-a-gerard-n/)
