@@ -1,3 +1,29 @@
+### lille – rennes (N/A, Sun, 24 Nov 2024 05:50:00 -0800)
+
+- **Ligue 1 : Jorge Sampaoli aligne un 3-4-3 face à Lille pour sa première avec 
+Rennes**: [Link](https://www.lequipe.fr/Football/Actualites/Vers-un-3-4-3-pour-la-premiere-composition-de-jorge-sampaoli-avec-rennes/1522471)
+- **LOSC : Trois retours dans le groupe lillois pour affronter le Stade Rennais**: [Link](https://madeinfoot.ouest-france.fr/infos/article-losc-trois-retours-dans-le-groupe-lillois-pour-affronter-le-stade-rennais-464434.html)
+- **LOSC - Rennes : Les compos (15h sur DAZN)**: [Link](https://www.foot01.com/ligue1/losc-rennes-les-compos-15h-sur-dazn-445905)
+
+
+### liverpool (N/A, Sun, 24 Nov 2024 05:50:00 -0800)
+
+- **Loan watch: Seven Liverpool players involved on Saturday**: [Link](https://www.liverpoolfc.com/news/loan-watch-seven-liverpool-players-involved-saturday)
+- **I've got one big fear about Liverpool amid two-horse Premier League title 
+race with Man City**: [Link](https://www.liverpool.com/liverpool-fc-news/features/liverpool-man-city-premier-league-30438962)
+- **Jan Molby Previews Liverpool's Upcoming Southampton, Real Madrid and Man 
+City Clashes**: [Link](https://anfieldindex.com/75468/jan-molby-previews-liverpools-upcoming-southampton-real-madrid-and-man-city-clashes.html)
+
+
+### novak djokovic (N/A, Sun, 24 Nov 2024 05:50:00 -0800)
+
+- **Andy Murray coaching Novak Djokovic: What it could mean for friends and 
+rivals**: [Link](https://www.bbc.com/sport/tennis/articles/cn8gnvrvd8zo)
+- **Andy Murray returns to coach old rival Novak Djokovic for Australian Open**: [Link](https://www.theguardian.com/sport/2024/nov/23/andy-murray-to-coach-novak-djokovic-australian-open-tennis)
+- **Tennis Rumor: Jannik Sinner Reportedly Maintains Stoic Silence on Novak 
+Djokovic’s Coaching Alliance with Andy Murray**: [Link](https://www.essentiallysports.com/atp-tennis-news-tennis-rumor-jannik-sinner-reportedly-maintains-stoic-silence-on-novak-djokovics-coaching-alliance-with-andy-murray/)
+
+
 ### southampton – liverpool (N/A, Sun, 24 Nov 2024 05:10:00 -0800)
 
 - **Premier League Southampton versus Liverpool kick off 14:00 Sun 24 Nov 2024**: [Link](https://www.bbc.com/sport/football/live/czd526ymz2mt)
