@@ -1,3 +1,11 @@
+### nice – strasbourg (N/A, Sun, 24 Nov 2024 13:30:00 -0800)
+
+- **DIRECT. Nice-Strasbourg (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/nice-strasbourg-live/655959)
+- **Ligue 1. Deux retours dans le groupe de 22 joueurs du Racing à Nice**: [Link](https://www.dna.fr/sport/2024/11/23/deux-retours-dans-le-groupe-de-22-joueurs-du-racing-a-nice)
+- **PRONOS PARIS RMC Le pari football de Rolland Courbis sur Nice - Strasbourg 
+- Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-rolland-courbis-sur-nice-strasbourg-ligue-1_AN-202411230583.html)
+
+
 ### ath. bilbao – real sociedad (N/A, Sun, 24 Nov 2024 11:00:00 -0800)
 
 - **Imanol deja fuera del 'once' a un pilar y sorprende con dos futbolistas 
