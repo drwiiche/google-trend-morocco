@@ -1,3 +1,11 @@
+### real madrid club de fútbol (N/A, Sun, 24 Nov 2024 09:30:00 -0800)
+
+- **Asamblea General del Real Madrid 2024: comparecencia de Florentino Pérez y 
+votaciones**: [Link](https://as.com/futbol/primera/asamblea-general-del-real-madrid-en-directo-comparecencia-de-florentino-perez-hoy-en-vivo-n/)
+- **Florentino, sobre la Superliga: "Nosotros no queremos ser Blockbuster..."**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/24/florentino-sobre-superliga-nosotros-queremos-blockbuster.html)
+- **"Móviles apagados y fuera de la sala"**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20241123/1002358125/moviles-apagados-fuera-sala.html)
+
+
 ### naples – roma (N/A, Sun, 24 Nov 2024 09:00:00 -0800)
 
 - **S.S.C. Napoli vs. A.S. Roma: Lineups & Match Thread**: [Link](https://www.chiesaditotti.com/2024/11/24/24304682/s-s-c-napoli-vs-a-s-roma-lineups-match-thread)
