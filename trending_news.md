@@ -1,3 +1,10 @@
+### الدوري الاسباني (N/A, Sat, 23 Nov 2024 14:00:00 -0800)
+
+- **ريال مدريد يستعين بالرديف قبل زيارة ليجانيس**: [Link](https://www.kooora.com/?n=1369936)
+- **مفاجأة أنشيلوتي أمام ليغانيس**: [Link](https://hihi2.com/2024/11/24/p2948183.html)
+- **مبابي يقود قائمة ريال مدريد ضد ليجانيس في الدوري الإسباني**: [Link](https://www.almasryalyoum.com/news/details/3313134)
+
+
 ### f1 (N/A, Sat, 23 Nov 2024 21:50:00 -0800)
 
 - **Free Las Vegas F1 Live Stream: Where to Watch This Week's Formula One GP**: [Link](https://www.businessinsider.com/guides/streaming/free-las-vegas-f1-live-stream-where-to-watch-formula-one-2024)
