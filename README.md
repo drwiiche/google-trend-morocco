@@ -1,3 +1,11 @@
+### لطيفة رأفت (N/A, Sat, 23 Nov 2024 13:20:00 -0800)
+
+- **دفاع سعيد الناصري يجدد طلبه استدعاء مدير سجن الجديدة بحثا عن حقيقة معاملة 
+تفضيلية لـ"إسكوبار"**: [Link](https://alyaoum24.com/1931260.html)
+- **مستجدات قضية "إسكوبار الصحراء"**: [Link](https://www.hespress.com/%D9%85%D8%B3%D8%AA%D8%AC%D8%AF%D8%A7%D8%AA-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A5%D8%B3%D9%83%D9%88%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-2-1469025.html)
+- **قضية «إسكوبار الصحراء».. عقد قران الفنانة لطيفة رأفت بالمحكمة**: [Link](https://ar.le360.ma/people/RGXMSAVSYJGZVJOSDKL7EFJ3GE/)
+
+
 ### barcelona vs (N/A, Sat, 23 Nov 2024 12:40:00 -0800)
 
 - **Datos y estadísticas del Barcelona - Brest de la UEFA Champions League**: [Link](https://es.uefa.com/uefachampionsleague/news/0293-1c5d2de6b2d3-660b93006c73-1000--datos-y-estadisticas-del-barcelona-brest-de-la-uefa-champi/)
