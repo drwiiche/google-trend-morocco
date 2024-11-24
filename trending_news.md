@@ -1,3 +1,11 @@
+### manchester united (N/A, Sun, 24 Nov 2024 08:20:00 -0800)
+
+- **Ruben Amorim: Manchester United boss says he is the 'smiling one'**: [Link](https://www.bbc.com/sport/football/articles/cn4vn74nq5zo)
+- **Ruben Amorim tells Man Utd squad why all managers post-Fergie have failed 
+with stars ‘blown away’ by ‘Mo...**: [Link](https://www.thesun.co.uk/sport/31820352/ruben-amorim-man-utd-alex-ferguson-shadow/)
+- **Why I haven’t met Alex Ferguson for advice – Amorim**: [Link](https://thesun.ng/why-i-havent-met-alex-ferguson-for-advice-amorim/)
+
+
 ### ipswich town vs man united (N/A, Sun, 24 Nov 2024 07:50:00 -0800)
 
 - **Ruben Amorim has a six-player puzzle to solve at Man United after making 
