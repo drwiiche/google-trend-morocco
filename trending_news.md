@@ -1,3 +1,11 @@
+### barcelona vs (N/A, Sat, 23 Nov 2024 12:40:00 -0800)
+
+- **Datos y estadísticas del Barcelona - Brest de la UEFA Champions League**: [Link](https://es.uefa.com/uefachampionsleague/news/0293-1c5d2de6b2d3-660b93006c73-1000--datos-y-estadisticas-del-barcelona-brest-de-la-uefa-champi/)
+- **FC Barcelona vs Stade Brestois: cómo ver el partido, alineaciones y 
+pronóstico**: [Link](https://www.90min.com/es/fc-barcelona-vs-stade-brestois-como-ver-el-partido-alineaciones-y-pronostico)
+- **UEFA Champions League: Barcelona vs Stade Brestois Fecha 5**: [Link](https://www.msn.com/es-xl/noticias/other/uefa-champions-league-barcelona-vs-stade-brestois-fecha-5/ar-AA1uC1zX)
+
+
 ### tp mazembe feminine (N/A, Sun, 24 Nov 2024 01:40:00 -0800)
 
 - **LdC féminie CAF : les Congolaises du TP Mazembe championnes d'Afrique**: [Link](https://fr.hespress.com/397781-ldc-feminie-caf-les-congolaises-du-tp-mazembe-championnes-dafrique.html)
