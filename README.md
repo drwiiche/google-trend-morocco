@@ -1,3 +1,11 @@
+### f1 (N/A, Sat, 23 Nov 2024 21:50:00 -0800)
+
+- **Free Las Vegas F1 Live Stream: Where to Watch This Week's Formula One GP**: [Link](https://www.businessinsider.com/guides/streaming/free-las-vegas-f1-live-stream-where-to-watch-formula-one-2024)
+- **Russell charges to Las Vegas GP pole over Sainz and Gasly**: [Link](https://www.formula1.com/en/latest/article/russell-charges-to-pole-for-las-vegas-grand-prix-over-sainz-and-gasly.4UjbnFjRtnyaSVWe2NPRZx)
+- **Las Vegas Grand Prix: George Russell on pole with Max Verstappen fifth and 
+Lando Norris sixth**: [Link](https://www.bbc.com/sport/formula1/articles/cdxy7e926yzo)
+
+
 ### tp mazembe (N/A, Sat, 23 Nov 2024 21:50:00 -0800)
 
 - **LdC féminie CAF : les Congolaises du TP Mazembe championnes d'Afrique**: [Link](https://fr.hespress.com/397781-ldc-feminie-caf-les-congolaises-du-tp-mazembe-championnes-dafrique.html)
