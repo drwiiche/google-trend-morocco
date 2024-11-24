@@ -1,3 +1,11 @@
+### côme – fiorentina (N/A, Sun, 24 Nov 2024 06:30:00 -0800)
+
+- **✅ Le UFFICIALI delle 15: la scelta su Che Adams, Maldini, Cataldi e Audero**: [Link](https://onefootball.com/it/notizie/le-ufficiali-delle-15-la-scelta-su-che-adams-maldini-cataldi-e-audero-40349272)
+- **Il Como contro la Fiorentina cerca la vittoria per allontanarsi dalle zone 
+basse della classifica**: [Link](https://www.rainews.it/tgr/lombardia/articoli/2024/11/como-contro-la-fiorentina-cerca-la-vittoria-per-allontanarsi-dalle-zone-basse-della-classifica-3929686a-9eaa-40e1-9dcd-8405a0c300b5.html)
+- **GOLDANIGA, Viola tra le prime. Lavorato per tenere Kean**: [Link](https://www.firenzeviola.it/avversari/goldaniga-viola-tra-le-prime-lavorato-per-tenere-kean-437990)
+
+
 ### lille – rennes (N/A, Sun, 24 Nov 2024 05:50:00 -0800)
 
 - **Ligue 1 : Jorge Sampaoli aligne un 3-4-3 face à Lille pour sa première avec 
