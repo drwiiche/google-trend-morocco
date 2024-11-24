@@ -1,3 +1,10 @@
+### iago aspas (N/A, Sat, 23 Nov 2024 13:40:00 -0800)
+
+- **Aspas estalla y Soto Grado, en el foco: «Es segunda amarilla a Gerard»**: [Link](https://as.com/futbol/primera/aspas-estalla-y-soto-grado-en-el-foco-es-segunda-amarilla-a-gerard-n/)
+- **"Aspas nota el brazo de Gerard Martín y se deja caer, no hay penalti"**: [Link](https://www.marca.com/radio/2024/11/23/67423c8f46163fa0198b4586.html)
+- **Negreirato con aspavientos**: [Link](https://www.lagalerna.com/negreirato-con-aspavientos/)
+
+
 ### fcb vs (N/A, Sat, 23 Nov 2024 13:10:00 -0800)
 
 - **Bad News for Barça! Lamine Yamal Will Miss Several Key Matches Due to Injury**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/bad-news-for-bar%C3%A7a-lamine-yamal-will-miss-several-key-matches-due-to-injury-2024-11-22)
