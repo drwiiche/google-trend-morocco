@@ -1,3 +1,11 @@
+### classement liga (N/A, Sat, 23 Nov 2024 14:00:00 -0800)
+
+- **Atlético de Madrid 2-1 Alavés, La Liga : résumé du match (23/11/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/atletico-de-madrid-alaves-live/657411)
+- **Liga : l'Atlético de Madrid renverse Alavés et double le Real Madrid, 
+émotion à Valence**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-latletico-de-madrid-renverse-alaves-et-double-le-real-madrid-emotion-a-valence_sto20056682/story.shtml)
+- **La Liga : Griezmann et l'Atlético renversent Alavés**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/la-liga-griezmann-et-l-atl%C3%A9tico-renversent-alav%C3%A9s-2024-11-23)
+
+
 ### classement la liga (N/A, Sat, 23 Nov 2024 14:00:00 -0800)
 
 - **Celta Vigo 2-2 FC Barcelone, La Liga : Sans Yamal, le Barça accroché**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/celta-vigo-fc-barcelone-live/657414)
