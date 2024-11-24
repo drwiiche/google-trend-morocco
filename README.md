@@ -1,3 +1,18 @@
+### la samir maroc (N/A, Sun, 24 Nov 2024 09:50:00 -0800)
+
+- **Quel avenir pour la raffinerie de la SAMIR?**: [Link](https://fr.le360.ma/economie/quel-avenir-pour-la-raffinerie-de-la-samir_HFV2GIEUQJGWRAUCB5RMX4A3IE/)
+- **Samir : vers une réouverture de la raffinerie ?**: [Link](https://www.challenge.ma/samir-vers-une-reouverture-de-la-raffinerie-291749/)
+- **Remise en activité de la Samir : une vraie bonne idée ?**: [Link](https://mobile.telquel.ma/2024/11/21/remise-en-activite-de-la-samir-une-vraie-bonne-idee_1905302)
+
+
+### real (N/A, Sun, 24 Nov 2024 08:50:00 -0800)
+
+- **Madrid click after position swap for Mbappé, Vini**: [Link](https://www.espn.com/soccer/story/_/id/42586710/real-madrid-click-mbappe-vinicius-position-swap)
+- **European football: Kylian Mbappé and Jude Bellingham on target as Real 
+cruise**: [Link](https://www.theguardian.com/football/2024/nov/24/european-roundup-kylian-mbappe-and-jude-bellingham-on-target-as-real-cruise)
+- **Spanish La Liga Leganés 0 Real Madrid 3 Full time**: [Link](https://www.bbc.com/sport/football/live/c78dkp0gkz0t)
+
+
 ### nice – strasbourg (N/A, Sun, 24 Nov 2024 13:30:00 -0800)
 
 - **DIRECT. Nice-Strasbourg (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/nice-strasbourg-live/655959)
