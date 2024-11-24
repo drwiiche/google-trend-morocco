@@ -1,3 +1,12 @@
+### man utd (N/A, Sun, 24 Nov 2024 10:10:00 -0800)
+
+- **Football gossip: Gyokeres, Camavinga, Davies, Zirkzee, Reijnders**: [Link](https://www.bbc.com/sport/football/articles/cp87x2ww4k0o)
+- **Man Utd and Man City ready for £65m Viktor Gyokeres transfer scrap as BOTH 
+sides think they have secret...**: [Link](https://www.thesun.co.uk/sport/31897686/man-utd-man-city-victor-gyokeres-transfer/)
+- **A star striker is linked to Manchester City but they need one in January 
+not next summer**: [Link](https://sports.yahoo.com/star-striker-linked-manchester-city-090000510.html)
+
+
 ### la samir maroc (N/A, Sun, 24 Nov 2024 09:50:00 -0800)
 
 - **Quel avenir pour la raffinerie de la SAMIR?**: [Link](https://fr.le360.ma/economie/quel-avenir-pour-la-raffinerie-de-la-samir_HFV2GIEUQJGWRAUCB5RMX4A3IE/)
