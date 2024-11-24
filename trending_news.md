@@ -1,3 +1,12 @@
+### laliga (N/A, Sat, 23 Nov 2024 13:50:00 -0800)
+
+- **Atlético 2-1 Alavés (Nov 23, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704791)
+- **Atletico Madrid turns the tables on Alaves and temporarily destroys second 
+place**: [Link](https://www.ysscores.com/en/news/7628023/Atletico-Madrid-turns-the-tables-on-Alaves-and-temporarily-destroys-second-place)
+- **Simeone's Tears and His 700 Matches as Atlético Manager: "Thank You to My 
+Family for the Time I Took From Them"**: [Link](https://www.footboom1.com/en/news/football/2095997-simeone-s-tears-and-his-700-matches-as-atletico-manager-thank-you-to-my-family-for-the-time-i-took-from-them)
+
+
 ### la liga (N/A, Sat, 23 Nov 2024 14:30:00 -0800)
 
 - **Preview: Leganes vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/race-for-the-la-liga-title/preview/preview-leganes-vs-real-madrid-prediction-team-news-lineups_558774.html)
