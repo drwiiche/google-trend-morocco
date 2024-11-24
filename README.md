@@ -1,3 +1,10 @@
+### real madrid match (N/A, Sun, 24 Nov 2024 10:10:00 -0800)
+
+- **DIRECT. Leganés-Real Madrid (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/leganes-real-madrid-live/657413)
+- **Real Madrid : l'étonnante sortie du coach de Leganes sur Mbappé**: [Link](https://www.onzemondial.com/liga/real-madrid-l-etonnante-sortie-du-coach-de-leganes-sur-mbappe-928377)
+- **Pronostic Leganés Real Madrid : Analyse, cotes et prono du match de Liga**: [Link](https://www.sofoot.com/breves/pronostic-leganes-real-madrid-analyse-cotes-et-prono-du-match-de-liga)
+
+
 ### real madrid club de fútbol (N/A, Sun, 24 Nov 2024 09:30:00 -0800)
 
 - **Asamblea General del Real Madrid 2024: comparecencia de Florentino Pérez y 
