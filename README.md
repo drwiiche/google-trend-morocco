@@ -1,3 +1,18 @@
+### naples – roma (N/A, Sun, 24 Nov 2024 09:00:00 -0800)
+
+- **S.S.C. Napoli vs. A.S. Roma: Lineups & Match Thread**: [Link](https://www.chiesaditotti.com/2024/11/24/24304682/s-s-c-napoli-vs-a-s-roma-lineups-match-thread)
+- **Preview: Napoli vs. Roma - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/napoli/preview/preview-napoli-vs-roma-prediction-team-news-lineups_558789.html)
+- **Serie A Liveblog including Napoli-Roma and Lazio-Bologna**: [Link](https://sports.yahoo.com/serie-liveblog-including-napoli-roma-102800629.html)
+
+
+### man united (N/A, Sun, 24 Nov 2024 09:00:00 -0800)
+
+- **Football gossip: Gyokeres, Camavinga, Davies, Zirkzee, Reijnders**: [Link](https://www.bbc.com/sport/football/articles/cp87x2ww4k0o)
+- **Man Utd ready to take on Man City for Viktor Gyokeres transfer after Ruben 
+Amorim plea**: [Link](https://www.mirror.co.uk/sport/football/news/man-united-transfers-viktor-gyokeres-34172874)
+- **Man Utd confident of signing in-form star ahead of Arsenal and Man City**: [Link](https://metro.co.uk/2024/11/24/man-utd-confident-signing-in-form-star-ahead-arsenal-man-city-22052872/)
+
+
 ### leganés – real madrid (N/A, Sun, 24 Nov 2024 08:40:00 -0800)
 
 - **Posible alineación del Real Madrid hoy contra el Leganés en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-hoy-contra-el-leganes-en-laliga-ea-sports-n/)
