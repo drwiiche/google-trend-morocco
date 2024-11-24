@@ -1,3 +1,11 @@
+### southampton – liverpool (N/A, Sun, 24 Nov 2024 05:10:00 -0800)
+
+- **Premier League Southampton versus Liverpool kick off 14:00 Sun 24 Nov 2024**: [Link](https://www.bbc.com/sport/football/live/czd526ymz2mt)
+- **Kelleher: "[Liverpool] Need to Take Every Team Seriously"**: [Link](https://liverpooloffside.sbnation.com/2024/11/24/24304520/kelleher-liverpool-need-to-take-every-team-seriously-premier-league-southampton-manchester-city-slot)
+- **Confirmed Liverpool lineup vs. Southampton: Robertson starts, Elliott IN 
+squad**: [Link](https://www.thisisanfield.com/2024/11/confirmed-liverpool-lineup-vs-southampton-robertson-starts-elliott-in-squad/)
+
+
 ### hakim ziyech (N/A, Sun, 24 Nov 2024 03:50:00 -0800)
 
 - **Forgotten former Chelsea star guilty of SHOCKING miss - as fans are left 
