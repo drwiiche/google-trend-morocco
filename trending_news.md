@@ -1,3 +1,10 @@
+### ترتيب الدوري الاسباني (N/A, Sat, 23 Nov 2024 14:00:00 -0800)
+
+- **ليفاندوفسكي يعتلي عرش أوروبا برقم استثنائي**: [Link](https://www.kooora.com/?n=1370124&o=n)
+- **بطولة إسبانيا.. برنامج مباريات الدورة 11 مع التوقيت**: [Link](https://www.analkhabar.com/%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D8%B9/)
+- **الصالح سبورت : ترتيب هدافي الدوري الإسباني بعد هدف رافينها أمام سيلتا فيجو**: [Link](https://pro.saleh13.com/8890/%D8%A7%D9%84%D8%B5%D8%A7%D9%84%D8%AD-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8/)
+
+
 ### classement liga (N/A, Sat, 23 Nov 2024 14:00:00 -0800)
 
 - **Atlético de Madrid 2-1 Alavés, La Liga : résumé du match (23/11/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/atletico-de-madrid-alaves-live/657411)
