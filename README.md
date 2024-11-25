@@ -1,3 +1,12 @@
+### visa chine (N/A, Mon, 25 Nov 2024 09:20:00 -0800)
+
+- **Voyage en Chine : l’exemption de visa étendue à 30 jours**: [Link](https://visasnews.com/voyage-en-chine-lexemption-de-visa-etendue-a-30-jours/)
+- **(Multimédia) Les pays européens accueillent favorablement l'élargissement 
+de la politique d'exemption de visa de la Chine**: [Link](https://french.xinhuanet.com/20241123/ada5fcf60c78484aafd718b891c568e4/c.html)
+- **Exemption de visa: Les Luxembourgeois pourront voyager plus facilement en 
+Chine**: [Link](https://www.lessentiel.lu/fr/story/exemption-de-visa-les-luxembourgeois-pourront-voyager-plus-facilement-en-chine-103226863)
+
+
 ### newcastle – west ham (N/A, Mon, 25 Nov 2024 11:10:00 -0800)
 
 - **Big West Ham Worry As The ‘Two Doubtful’ Vs Newcastle Are Identified**: [Link](https://www.claretandhugh.info/big-west-ham-worry-as-the-two-doubtful-vs-newcastle-are-identified/)
