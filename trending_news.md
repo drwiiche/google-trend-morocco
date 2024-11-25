@@ -1,3 +1,11 @@
+### newcastle – west ham (N/A, Mon, 25 Nov 2024 11:10:00 -0800)
+
+- **Big West Ham Worry As The ‘Two Doubtful’ Vs Newcastle Are Identified**: [Link](https://www.claretandhugh.info/big-west-ham-worry-as-the-two-doubtful-vs-newcastle-are-identified/)
+- **Premier League Predictions & best bets: West Ham's struggles to continue at 
+Newcastle on Monday Night Football**: [Link](https://www.skysports.com/football/news/11661/13257280/premier-league-predictions-best-bets-ruben-amorims-party-to-be-spoiled-by-ipswich-on-super-sunday)
+- **Newcastle talisman drops return hint ahead of West Ham**: [Link](https://nothingbutnewcastle.com/2024/11/latest-news/newcastle-kieran-trippier-eddie-howe-premier-league-team-news-nufc-whufc/)
+
+
 ### iphone 17 (N/A, Mon, 25 Nov 2024 11:00:00 -0800)
 
 - **アップル、厚さわずか6ミリ「史上最薄のiPhone」を発売する可能性**: [Link](https://forbesjapan.com/articles/detail/75211)
