@@ -1,3 +1,11 @@
+### brahim diaz (N/A, Sun, 24 Nov 2024 23:50:00 -0800)
+
+- **Arsenal Target Brahim Diaz as Real Madrid Star Draws Premier League Interest**: [Link](https://www.moroccoworldnews.com/2024/11/366548/arsenal-target-brahim-diaz-as-real-madrid-star-draws-premier-league-interest)
+- **Tottenham keeping close tabs on 25-year-old utility man unhappy at La Liga 
+club**: [Link](https://www.yardbarker.com/soccer/articles/tottenham_keeping_close_tabs_on_25_year_old_utility_man_unhappy_at_la_liga_club/s1_15977_41283916)
+- **Arsenal target £50m "Messi-esque" dynamo who could solve their Saka problem**: [Link](https://www.footballfancast.com/arsenal-target-messi-esque-diaz-who-could-solve-their-saka-problem/)
+
+
 ### société générale maroc (N/A, Sun, 24 Nov 2024 18:30:00 -0800)
 
 - **Société générale Maroc : feu vert pour Moulay Hafid Elalamy, qui entre 
