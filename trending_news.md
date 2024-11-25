@@ -1,3 +1,12 @@
+### al gharafa – al-nassr fc (N/A, Mon, 25 Nov 2024 07:00:00 -0800)
+
+- **Ronaldo in Doha for Al Gharafa, Al Nassr showdown at Al Bayt Stadium**: [Link](https://thepeninsulaqatar.com/article/24/11/2024/ronaldo-in-doha-for-al-nassr-al-gharafa-showdown-at-albaytstadium)
+- **Al Gharafa vs Al Nassr Live Football Streaming For AFC Champions League 
+2024-25 Match: How to Watch AGH vs**: [Link](https://www.news18.com/football/al-gharafa-vs-al-nassr-live-football-streaming-for-afc-champions-league-2024-25-match-how-to-watch-agh-vs-nssr-coverage-on-tv-and-online-9131782.html)
+- **Al-Gharafa vs Al Nassr FC Prediction, Match Preview & Live Streaming, 25 
+November 2024**: [Link](https://www.insidesport.in/football/al-gharafa-vs-al-nassr-fc-prediction-match-preview-live-streaming-25-november-2024/)
+
+
 ### hakim ziyech (N/A, Mon, 25 Nov 2024 07:00:00 -0800)
 
 - **Life Without Ziyech?**: [Link](https://www.footboom1.com/en/news/football/2101443-life-without-ziyech)
