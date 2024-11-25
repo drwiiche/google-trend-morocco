@@ -1,3 +1,10 @@
+### iphone 17 (N/A, Mon, 25 Nov 2024 11:00:00 -0800)
+
+- **アップル、厚さわずか6ミリ「史上最薄のiPhone」を発売する可能性**: [Link](https://forbesjapan.com/articles/detail/75211)
+- **iPhone17 Proシリーズがデザイン変更〜背面上部がアルミ、下部がガラスに？**: [Link](https://iphone-mania.jp/iphone17-590744/)
+- **「iPhone 17 Pro」の5倍ズームはさらに強化？「iPhone 17 Air」に望遠レンズはナシか**: [Link](https://gadget.phileweb.com/post-89273/)
+
+
 ### champions league (N/A, Mon, 25 Nov 2024 09:10:00 -0800)
 
 - **Expected Returns for PSG Against Bayern Munich in the Champions League**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles-video/a-much-anticipated-return-for-psg-against-bayern-munich-in-champions-league-2024-11-25)
