@@ -1,3 +1,12 @@
+### الطقس اليوم (N/A, Sun, 24 Nov 2024 22:30:00 -0800)
+
+- **إنذار جوى بشأن حالة الطقس غدا وخريطة سقوط الأمطار: «استعدوا لموجة قارسة 
+البرودة»**: [Link](https://www.almasryalyoum.com/news/details/3314078)
+- **حذرت من هذه الظاهرة.. الأرصاد تكشف تفاصيل طقس الساعات القادمة | وهل الشتاء 
+الحالي هو الأصعب؟**: [Link](https://zahraa.mr/3616210/%D8%AD%D8%B0%D8%B1%D8%AA-%D9%85%D9%86-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D9%83%D8%B4%D9%81-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A/)
+- **الأرصاد تعلن أماكن سقوط الأمطار لمدة 6 أيام**: [Link](https://www.masrawy.com/news/news_egypt/details/2024/11/25/2680588/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%B9%D9%84%D9%86-%D8%A3%D9%85%D8%A7%D9%83%D9%86-%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%84%D9%85%D8%AF%D8%A9-6-%D8%A3%D9%8A%D8%A7%D9%85)
+
+
 ### madrid (N/A, Sun, 24 Nov 2024 09:40:00 -0800)
 
 - **El mejor Madrid para el Día D**: [Link](https://as.com/futbol/primera/el-mejor-madrid-para-el-dia-d-n/)
