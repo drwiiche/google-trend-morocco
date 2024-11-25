@@ -1,3 +1,11 @@
+### الفجر (N/A, Sun, 24 Nov 2024 21:20:00 -0800)
+
+- **إحداثيات واشارة قوية علي تردد قناة الفجر الجزائرية el-fajr الجديد علي 
+النايل وعرب سات - المساء الاخباري**: [Link](https://newsy.almesasports.com/315646/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-37/)
+- **تردد قناة الفجر الجزائرية آخر تحديث 2024.. مشاهدة مسلسل عثمان**: [Link](https://aboutmsr.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%A2%D8%AE%D8%B1-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AB-2024-%D9%85/)
+- **"بكل سهولة" ثبت الآن أحدث تردد لقناة الفجر الجزائرية 2024**: [Link](https://news.elsob7.com/1294584/%D8%A8%D9%83%D9%84-%D8%B3%D9%87%D9%88%D9%84%D8%A9-%D8%AB%D8%A8%D8%AA-%D8%A7%D9%84%D8%A2%D9%86-%D8%A3%D8%AD%D8%AF%D8%AB-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%81/)
+
+
 ### madrid vs (N/A, Sun, 24 Nov 2024 10:00:00 -0800)
 
 - **Las cuatro pruebas de Ancelotti que terminan de coser el traje de Anfield**: [Link](https://www.relevo.com/futbol/carlo-prueba-traje-anfield-encuentra-20241124210302-nt.html)
