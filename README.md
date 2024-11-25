@@ -1,3 +1,19 @@
+### outlook (N/A, Mon, 25 Nov 2024 00:10:00 -0800)
+
+- **Buckle up! A temperature roller coaster in store Thanksgiving week**: [Link](https://www.ksat.com/weather/2024/11/24/san-antonio-get-ready-for-a-temperature-roller-coaster-thanksgiving-week/)
+- **Next cold front on the way**: [Link](https://www.wdsu.com/article/next-cold-front-on-the-way/63001321)
+- **Wet, chilly weather for Thanksgiving week**: [Link](https://www.wlwt.com/article/wet-chilly-weather-for-thanksgiving-week/62999449)
+
+
+### lazio (N/A, Sun, 24 Nov 2024 13:40:00 -0800)
+
+- **Lazio-Bologna 3-0: i biancocelesti non mollano il secondo posto**: [Link](https://www.repubblica.it/sport/calcio/serie-a/2024/11/24/news/lazio_bologna_gol-423716973/)
+- **Una serata da dimenticare. Odgaard si batte senza incidere. Miranda e De 
+Silvestri travolti. Orsolini, sostituzione immeritata**: [Link](https://sport.quotidiano.net/calcio/bologna/una-serata-da-dimenticare-odgaard-c5fe934f)
+- **Bologna, Italiano: "L'espulsione ha chiuso la partita. Ecco come sta 
+Ferguson"**: [Link](https://www.fantacalcio.it/news/calcio-italia/25_11_2024/bologna-italiano-l-espulsione-ha-chiuso-la-partita-ecco-come-sta-ferguson-469494)
+
+
 ### brahim diaz (N/A, Sun, 24 Nov 2024 23:50:00 -0800)
 
 - **Arsenal Target Brahim Diaz as Real Madrid Star Draws Premier League Interest**: [Link](https://www.moroccoworldnews.com/2024/11/366548/arsenal-target-brahim-diaz-as-real-madrid-star-draws-premier-league-interest)
