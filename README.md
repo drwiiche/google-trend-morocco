@@ -1,3 +1,12 @@
+### hakim ziyech (N/A, Mon, 25 Nov 2024 07:00:00 -0800)
+
+- **Life Without Ziyech?**: [Link](https://www.footboom1.com/en/news/football/2101443-life-without-ziyech)
+- **Forgotten former Chelsea star guilty of SHOCKING miss - as fans are left 
+baffled by his blunder**: [Link](https://www.chatsports.com/chelsea/a/source/forgotten-former-chelsea-star-guilty-of-shocking-miss-as-fans-are-left-baffled-by-his-blunder-18047175)
+- **‘Embarrassing’ – Ex-Chelsea star Hakim Ziyech misses open goal from eight 
+yards out in miss of season conte...**: [Link](https://talksport.com/football/2312404/hakim-ziyech-miss-season-open-goal-chelsea-galatasaray/)
+
+
 ### العين ضد الأهلي (N/A, Mon, 25 Nov 2024 05:50:00 -0800)
 
 - **سفيان رحيمي على أعتاب إنجاز تاريخي مع العين**: [Link](https://ar.hibapress.com/details-576554.html)
