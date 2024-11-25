@@ -1,3 +1,13 @@
+### mohamed salah (N/A, Mon, 25 Nov 2024 03:10:00 -0800)
+
+- **Mohamed Salah’s Liverpool future and what his ‘I’m more out than in’ 
+comments mean - The Athletic**: [Link](https://www.nytimes.com/athletic/5945083/2024/11/25/mohamed-salah-liverpool-contract-decision/)
+- **Southampton 2-3 Liverpool: How can Reds allow superstar Mohamed Salah to 
+leave?**: [Link](https://www.bbc.com/sport/football/articles/cvg4y5dvljeo)
+- **Mohamed Salah speaks out on Liverpool contract and admits he's 
+'disappointed' in rare interview**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/mohamed-salah-liverpool-contract-breaking-30442700)
+
+
 ### ayyoub bouaddi maroc (N/A, Mon, 25 Nov 2024 00:40:00 -0800)
 
 - **Ayyoub Bouaddi penche pour les Lions de l'Atlas**: [Link](https://fr.hespress.com/397928-ayyoub-bouaddi-penche-pour-les-lions-de-latlas.html)
