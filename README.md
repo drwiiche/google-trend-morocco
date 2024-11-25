@@ -1,3 +1,13 @@
+### gazoduc (N/A, Mon, 25 Nov 2024 13:10:00 -0800)
+
+- **Gazoduc Africain Atlantique : le Maroc lancera les premiers appels d’offres 
+en 2025**: [Link](https://ledesk.ma/2024/11/25/gazoduc-africain-atlantique-le-maroc-lancera-les-premiers-appels-doffres-en-2025/)
+- **Gazoduc Nigeria-Maroc : les appels d’offres pour le tronçon marocain prévus 
+pour 2025**: [Link](https://fr.hespress.com/397969-gazoduc-nigeria-maroc-les-appels-doffres-pour-le-troncon-marocain-prevus-pour-2025.html)
+- **Maroc, Nigeria Gazoduc Nigeria-Maroc : la Cedeao se dirige vers une 
+signature en décembre**: [Link](https://www.africaintelligence.fr/afrique-ouest/2024/11/25/gazoduc-nigeria-maroc--la-cedeao-se-dirige-vers-une-signature-en-decembre,110341859-art)
+
+
 ### visa chine (N/A, Mon, 25 Nov 2024 09:20:00 -0800)
 
 - **Voyage en Chine : l’exemption de visa étendue à 30 jours**: [Link](https://visasnews.com/voyage-en-chine-lexemption-de-visa-etendue-a-30-jours/)
