@@ -1,3 +1,19 @@
+### al ain – al-ahli saudi (N/A, Mon, 25 Nov 2024 05:20:00 -0800)
+
+- **Jordan's Adam Makhadma to Officiate Key AFC Elite Champions League Clash 
+Between Al-Ahly and Al-Ain**: [Link](https://www.footboom1.com/en/news/football/2101352-jordan-s-adam-makhadma-to-officiate-key-afc-elite-champions-league-clash-between-al-ahly-and-al-ain)
+- **Date of the Match Between Al-Ahly Saudi Arabia and Al-Ain in the AFC 
+Champions League 2025 - Notiulti**: [Link](https://www.footboom1.com/en/news/football/2100009-date-of-the-match-between-al-ahly-saudi-arabia-and-al-ain-in-the-afc-champions-league-2025-notiulti)
+
+
+### diaz (N/A, Sun, 24 Nov 2024 19:40:00 -0800)
+
+- **As Man City spiral, Liverpool open historic lead in title race**: [Link](https://www.espn.com/soccer/story/_/id/42584509/european-soccer-weekend-review-premier-league-laliga-bundesliga-highlights-analysis)
+- **Mohamed Salah Joins Liverpool’s Legends with Historic Away Goal**: [Link](https://sports.yahoo.com/mohamed-salah-joins-liverpool-legends-115000160.html)
+- **Southampton 2 Liverpool 3: Salah to the rescue… but what happened at the 
+back? And was it a penalty? - The Athletic**: [Link](https://www.nytimes.com/athletic/5940174/2024/11/24/southampton-2-liverpool-3-salah-slot-konate-van-dijk/)
+
+
 ### charles leclerc (N/A, Mon, 25 Nov 2024 04:30:00 -0800)
 
 - **New Ferrari data helps uncover true culprit in Leclerc v Sainz war**: [Link](https://www.planetf1.com/features/ferrari-data-uncover-true-culprit-charles-leclerc-carlos-sainz-war)
