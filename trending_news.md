@@ -1,3 +1,11 @@
+### charles leclerc (N/A, Mon, 25 Nov 2024 04:30:00 -0800)
+
+- **New Ferrari data helps uncover true culprit in Leclerc v Sainz war**: [Link](https://www.planetf1.com/features/ferrari-data-uncover-true-culprit-charles-leclerc-carlos-sainz-war)
+- **Why all the tension between Charles and Carlos after the Las Vegas Grand 
+Prix?**: [Link](https://www.italpassion.fr/en/competition/why-the-tension-between-charles-and-carlos-after-the-las-vegas-grand-prix/)
+- **Boss plays down collapsing Leclerc-Sainz relationship**: [Link](https://motorsport.nextgen-auto.com/en/formula-1/boss-plays-down-collapsing-leclerc-sainz-relationship,195750.html)
+
+
 ### mohamed salah (N/A, Mon, 25 Nov 2024 03:10:00 -0800)
 
 - **Mohamed Salah’s Liverpool future and what his ‘I’m more out than in’ 
