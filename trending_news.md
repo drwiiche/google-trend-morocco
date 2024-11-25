@@ -1,3 +1,11 @@
+### royal air maroc (N/A, Mon, 25 Nov 2024 00:50:00 -0800)
+
+- **La RAM réceptionne son 10ème Dreamliner pour ses nouvelles lignes 
+long-courrier**: [Link](https://ledesk.ma/encontinu/la-ram-receptionne-son-10eme-dreamliner-pour-ses-nouvelles-lignes-long-courrier/)
+- **La RAM réceptionne son dixième Boeing 787-9 Dreamliner**: [Link](https://fr.hespress.com/397916-la-ram-receptionne-son-dixieme-boeing-787-9-dreamliner.html)
+- **Royal Air Maroc réceptionne son 10e Boieng 787-9 Dreamliner**: [Link](https://www.leconomiste.com/flash-infos/royal-air-maroc-receptionne-son-10e-boieng-787-9-dreamliner)
+
+
 ### outlook (N/A, Mon, 25 Nov 2024 00:10:00 -0800)
 
 - **Buckle up! A temperature roller coaster in store Thanksgiving week**: [Link](https://www.ksat.com/weather/2024/11/24/san-antonio-get-ready-for-a-temperature-roller-coaster-thanksgiving-week/)
