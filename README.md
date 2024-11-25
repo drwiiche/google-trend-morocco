@@ -1,3 +1,10 @@
+### سعد الصغير (N/A, Mon, 25 Nov 2024 05:20:00 -0800)
+
+- **الحكم على الفنان المصري سعد الصغير بالسجن لمدة سنوات**: [Link](https://www.akhbarona.com/culture/396335.html)
+- **لحيازته المخدرات.. السجن 3 سنوات للمطرب سعد الصغير**: [Link](https://www.alarabiya.net/culture-and-art/2024/11/25/%D8%A7%D8%AA%D9%87%D9%85-%D8%A8%D8%AD%D9%8A%D8%A7%D8%B2%D8%A9-%D8%A7%D9%84%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B4%D8%AF%D8%AF-%D9%84%D9%84%D9%85%D8%B7%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%B3%D8%B9%D8%AF-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1)
+- **المشدد 3 سنوات لـ سعد الصغير في اتهامه بحيازة مخدرات**: [Link](https://www.almasryalyoum.com/news/details/3314503)
+
+
 ### al ain – al-ahli saudi (N/A, Mon, 25 Nov 2024 05:20:00 -0800)
 
 - **Jordan's Adam Makhadma to Officiate Key AFC Elite Champions League Clash 
