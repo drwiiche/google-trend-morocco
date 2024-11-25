@@ -1,3 +1,12 @@
+### athletic club vs real sociedad (N/A, Sun, 24 Nov 2024 12:30:00 -0800)
+
+- **Imanol: “Si hubiera podido quitar a los once, lo habría hecho”**: [Link](https://as.com/futbol/primera/imanol-si-hubiera-podido-quitar-a-los-once-lo-habria-hecho-n/)
+- **Oyarzabal responde a Imanol: "Igual hay que echar un ojo a cómo planteamos 
+el partido"**: [Link](https://www.marca.com/futbol/real-sociedad/2024/11/25/oyarzabal-responde-imanol-igual-hay-echar-ojo-planteamos-partido.html)
+- **Valverde:»los derbis siempre son especiales, tienen ese componente 
+emocional de la rivalidad»**: [Link](https://onefootball.com/en/news/valverdelos-derbis-siempre-son-especiales-tienen-ese-componente-emocional-de-la-rivalidad-40351768)
+
+
 ### royal air maroc (N/A, Mon, 25 Nov 2024 00:50:00 -0800)
 
 - **La RAM réceptionne son 10ème Dreamliner pour ses nouvelles lignes 
