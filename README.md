@@ -1,3 +1,12 @@
+### société générale maroc (N/A, Sun, 24 Nov 2024 18:30:00 -0800)
+
+- **Société générale Maroc : feu vert pour Moulay Hafid Elalamy, qui entre 
+enfin dans l’arène du secteur bancaire**: [Link](https://www.jeuneafrique.com/1631792/economie-entreprises/societe-generale-maroc-feu-vert-pour-moulay-hafid-elalamy-qui-entre-enfin-dans-larene-du-secteur-bancaire/)
+- **Deal SG-Saham. Après l'obtention de l'agrément de Bank Al-Maghrib, closing 
+imminent de l'opération**: [Link](https://medias24.com/2024/11/22/deal-sg-saham-apres-lobtention-de-lagrement-de-bank-al-maghrib-closing-imminent-de-loperation/)
+- **Rachat de Société Générale Maroc: Bank Al-Maghrib donne son feu vert**: [Link](https://fr.le360.ma/economie/rachat-de-societe-generale-maroc-bank-al-maghrib-donne-son-feu-vert_AUTXMR4SZBCWZC26JZIMIYH6OY/)
+
+
 ### الطقس اليوم (N/A, Sun, 24 Nov 2024 22:30:00 -0800)
 
 - **إنذار جوى بشأن حالة الطقس غدا وخريطة سقوط الأمطار: «استعدوا لموجة قارسة 
