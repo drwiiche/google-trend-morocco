@@ -1,3 +1,17 @@
+### champions league (N/A, Mon, 25 Nov 2024 09:10:00 -0800)
+
+- **Expected Returns for PSG Against Bayern Munich in the Champions League**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles-video/a-much-anticipated-return-for-psg-against-bayern-munich-in-champions-league-2024-11-25)
+- **Germany Soccer Champions League**: [Link](https://lufkindailynews.com/anpa/sports/germany-soccer-champions-league/image_1ffad1f6-37c8-5159-bace-8aa850b4fc04.html)
+- **Kompany blocking out criticism ahead of UCL test against PSG**: [Link](https://sports.yahoo.com/kompany-blocking-criticism-ahead-ucl-155400983.html)
+
+
+### al ain (N/A, Mon, 25 Nov 2024 08:10:00 -0800)
+
+- **Ministry of Defence continues preparations for "Union Fortress 10"**: [Link](http://www.timesaerospace.aero/news/events/ministry-of-defence-continues-preparations-for-union-fortress-10)
+- **UAE’s ‘Union Fortress’ returns to Al Ain after six years**: [Link](https://www.defensehere.com/en/uaes-union-fortress-returns-to-al-ain-after-six-years)
+- **UAE: Ministry of Defence prepares for Union Fortress 10**: [Link](https://singraulimirror.in/news/uae-ministry-of-defence-prepares-for-union-fortress-10)
+
+
 ### lamine yamal (N/A, Mon, 25 Nov 2024 08:00:00 -0800)
 
 - **Erling Haaland & Lamine Yamal earn footballers ‘different animals’ praise 
