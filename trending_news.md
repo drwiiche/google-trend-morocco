@@ -1,3 +1,10 @@
+### ayyoub bouaddi maroc (N/A, Mon, 25 Nov 2024 00:40:00 -0800)
+
+- **Ayyoub Bouaddi penche pour les Lions de l'Atlas**: [Link](https://fr.hespress.com/397928-ayyoub-bouaddi-penche-pour-les-lions-de-latlas.html)
+- **Le Maroc veut arracher une pépite à la France**: [Link](https://www.bladi.net/maroc-arracher-pepite-france,111706.html)
+- **Le Maroc se prépare pour accueillir son "Haaland"**: [Link](https://fennecfootball.com/le-maroc-se-prepare-pour-accueillir-son-haaland/)
+
+
 ### athletic club vs real sociedad (N/A, Sun, 24 Nov 2024 12:30:00 -0800)
 
 - **Imanol: “Si hubiera podido quitar a los once, lo habría hecho”**: [Link](https://as.com/futbol/primera/imanol-si-hubiera-podido-quitar-a-los-once-lo-habria-hecho-n/)
