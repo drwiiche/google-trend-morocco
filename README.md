@@ -1,3 +1,11 @@
+### madrid vs (N/A, Sun, 24 Nov 2024 10:00:00 -0800)
+
+- **Las cuatro pruebas de Ancelotti que terminan de coser el traje de Anfield**: [Link](https://www.relevo.com/futbol/carlo-prueba-traje-anfield-encuentra-20241124210302-nt.html)
+- **Probabilidades de Liverpool de ganarle al Real Madrid**: [Link](https://www.365scores.com/es/news/liverpool-probabilidades-vs-real-madrid/)
+- **De suplente en los últimos partidos a titular en Anfield, Ancelotti 
+confirma sus intenciones para la Champions**: [Link](https://www.realmadridexclusivo.com/curiosidades/suplente-en-ultimos-partidos-titular-en-anfield-ancelotti-confirma-sus-intenciones-champions_164658_102.html)
+
+
 ### real madrid vs (N/A, Sun, 24 Nov 2024 09:00:00 -0800)
 
 - **Las cuatro pruebas de Ancelotti que terminan de coser el traje de Anfield**: [Link](https://www.relevo.com/futbol/carlo-prueba-traje-anfield-encuentra-20241124210302-nt.html)
