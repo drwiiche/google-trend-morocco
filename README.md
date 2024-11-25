@@ -1,3 +1,18 @@
+### lamine yamal (N/A, Mon, 25 Nov 2024 08:00:00 -0800)
+
+- **Erling Haaland & Lamine Yamal earn footballers ‘different animals’ praise 
+from NFL superstar Garrett Wilson**: [Link](https://www.goal.com/en-sa/lists/erling-haaland-lamine-yamal-footballers-different-animals-praise-nfl-superstar-garrett-wilson/blt8924beecc294ba5f)
+- **Barcelona are bleeding without Lamine Yamal!**: [Link](https://www.marca.com/en/football/barcelona/2024/11/24/67435929e2704e72ad8b459f.html)
+- **FCBN Cover 11/25/2024: DOUBT AGAINST BREST**: [Link](https://www.fcbarcelonanoticias.com/en/football-covers/cover-of-fcbn-25-11-2024-doubt-in-front-of-the-brest_308855_102.html)
+
+
+### الغرافة ضد النصر (N/A, Mon, 25 Nov 2024 07:50:00 -0800)
+
+- **بيولي يضع شرطًا لمشاركة رونالدو أمام الغرافة**: [Link](https://www.kooora.com/?n=1370194)
+- **تشكيلة الغرافة القطري الرسمية لمواجهة النصر**: [Link](https://hihi2.com/2024/11/25/p2950341.html)
+- **مباشر مباراة الغرافة القطري ضد النصر السعودي بدوري أبطال آسيا**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/25/al-nassr-v-al-gharafa)
+
+
 ### al gharafa – al-nassr fc (N/A, Mon, 25 Nov 2024 07:00:00 -0800)
 
 - **Ronaldo in Doha for Al Gharafa, Al Nassr showdown at Al Bayt Stadium**: [Link](https://thepeninsulaqatar.com/article/24/11/2024/ronaldo-in-doha-for-al-nassr-al-gharafa-showdown-at-albaytstadium)
