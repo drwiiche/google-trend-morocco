@@ -1,3 +1,11 @@
+### madrid (N/A, Sun, 24 Nov 2024 09:40:00 -0800)
+
+- **El mejor Madrid para el Día D**: [Link](https://as.com/futbol/primera/el-mejor-madrid-para-el-dia-d-n/)
+- **Javier Aznar: ¡Viven!**: [Link](https://www.abc.es/deportes/real-madrid/javier-aznar-viven-20241124211103-nt.html)
+- **Ramón de Mon da la clave sobre la mejoría en defensa del Real Madrid: 
+'Sobre todo…'**: [Link](https://realmadridconfidencial.com/primer-equipo/ramon-mon-da-clave-sobre-mejoria-defensa-del-real-madrid-sobre-todo)
+
+
 ### jill green (N/A, Sun, 24 Nov 2024 15:50:00 -0800)
 
 - **Who is Jill Green? TV Show From’s Season Finale Dedication Sparks 
