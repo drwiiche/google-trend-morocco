@@ -1,3 +1,18 @@
+### al hilal (N/A, Tue, 26 Nov 2024 10:00:00 -0800)
+
+- **Yanga and Al Hilal Champions League Showdown: Lineups confirmed!**: [Link](https://en.africatopsports.com/2024/11/26/yanga-and-al-hilal-champions-league-showdown-lineups-confirmed/)
+- **Al Hilal shock Young Africans SC in Dar es Salaam**: [Link](https://cecafaonline.com/al-hilal-shock-young-africans-in-dar-es-salaam/)
+- **False start for Ramovic as Yanga lose again**: [Link](https://www.thecitizen.co.tz/tanzania/sports/false-start-for-ramovic-as-yanga-lose-again-4836974)
+
+
+### دوري ابطال اوروبا (N/A, Tue, 26 Nov 2024 09:50:00 -0800)
+
+- **فليك يعلن قائمة برشلونة الرسمية لموقعة بريست**: [Link](https://www.kooora.com/?n=1370667)
+- **فليك: "أتمنى أن تكون هذه آخر مباراة يغيب عنها لامين يامال"**: [Link](https://m.elbotola.com/article/2024-11-25-17-20-407.html)
+- **موعد والقناة الناقلة لمباراة برشلونة وبريست اليوم في دوري أبطال أوروبا.. 
+والمعلق**: [Link](https://www.btolat.com/news/358118)
+
+
 ### سبارتا براغ ضد أتلتيكو مدريد (N/A, Tue, 26 Nov 2024 09:40:00 -0800)
 
 - **رئيس أتلتيكو مدريد: التأهل الأوروبي سهل أو صعب**: [Link](https://www.kooora.com/?n=1370704)
