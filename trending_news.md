@@ -1,3 +1,20 @@
+### barca (N/A, Tue, 26 Nov 2024 11:30:00 -0800)
+
+- **FC Barcelona News: 26 November 2024; All set for Brest clash, Barça send 
+scouts to watch Viktor Gyökeres**: [Link](https://www.barcablaugranes.com/2024/11/26/24305722/fc-barcelona-news-26-november-2024-all-set-brest-clash-barca-send-scouts-to-watch-viktor-gyokeres)
+- **Brest’s Cinderella story continues against Barcelona despite domestic slide 
+| Eric Devin**: [Link](https://www.theguardian.com/football/2024/nov/25/brests-cinderella-story-continues-against-barcelona-despite-domestic-slide)
+- **FC Barcelona Vs. Brest Champions League Line Up: Flick Makes Changes**: [Link](https://www.forbes.com/sites/tomsanderson/2024/11/26/fc-barcelona-vs-brest-champions-league-line-up-flick-makes-changes/)
+
+
+### leverkusen – rb salzburg (N/A, Tue, 26 Nov 2024 11:30:00 -0800)
+
+- **Preview: Bayer Leverkusen vs. Red Bull Salzburg - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/champions-league/preview/preview-bpoint-leverkusen-vs-salzburg-prediction-team-news-lineups_558938.html)
+- **Champions League night at German champions**: [Link](https://sports.yahoo.com/champions-league-night-german-champions-180100504.html)
+- **Alonso's injury concerns growing amid Leverkusen fixture congestion**: [Link](https://www.beinsports.com/en-my/football/uefa-champions-league/articles/alonsos-injury-concerns-growing-amid-leverkusen-fixture-congestion-2024-11-25)
+
+
 ### مان سيتي ضد فيينورد (N/A, Tue, 26 Nov 2024 11:20:00 -0800)
 
 - **دي بروين على مقاعد بدلاء مانشستر سيتي أمام فينورد**: [Link](https://www.kooora.com/?n=1370812)
