@@ -1,3 +1,43 @@
+### manchester city – feyenoord (N/A, Tue, 26 Nov 2024 11:10:00 -0800)
+
+- **Guidetti: "Mijn voorkeur ligt bij Feyenoord vanavond"**: [Link](https://1908.nl/artikelen/guidetti-mijn-voorkeur-ligt-bij-feyenoord-vanavond)
+- **VN Langs de Lijn: Milan gelijk bij rust, Atléti heerst in Praag**: [Link](https://www.voetbalnieuws.nl/nieuws/1240778/vn-langs-de-lijn-milan-gelijk-bij-rust-atl-ti-heerst-in-praag.html)
+- **Met deze namen hoopt Priske te stunten tegen City**: [Link](https://www.vi.nl/video/met-deze-namen-hoopt-priske-te-stunten-tegen-city)
+
+
+### البايرن ضد بي اس جي (N/A, Tue, 26 Nov 2024 11:10:00 -0800)
+
+- **كين: لم نشعر بالذعر بعد عثرة برشلونة**: [Link](https://www.kooora.com/?n=1370487)
+- **القنوات الناقلة لمباراة بايرن ميونخ وباريس سان جيرمان مباشر في دوري أبطال 
+أوروبا**: [Link](https://www.almasryalyoum.com/news/details/3315322)
+- **لويس إنريكي يعول على أشرف حكيمي للتأهل في عصبة الأبطال**: [Link](https://sport.lesiteinfo.com/internationaux/451434.html)
+
+
+### sporting – arsenal (N/A, Tue, 26 Nov 2024 11:10:00 -0800)
+
+- **Preview: Sporting Lisbon vs. Arsenal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arsenal/champions-league/preview/preview-sporting-lisbon-vs-arsenal-prediction-team-news-lineups_558913.html)
+- **Sporting's new manager highlights Arsenal's two 'great players' ahead of 
+Champions League clash**: [Link](https://tbrfootball.com/sportings-new-manager-highlights-arsenals-two-great-players-ahead-of-champions-league-clash/)
+- **Confirmed Arsenal team to face Sporting Club – Strong team**: [Link](https://www.justarsenal.com/confirmed-arsenal-team-to-face-sporting-club-strong-team/381327)
+
+
+### champions league 2024 (N/A, Tue, 26 Nov 2024 11:10:00 -0800)
+
+- **Liverpool v Real Madrid team news: Updates on Vinicius Jr, Trent 
+Alexander-Arnold, Kostas Tsimikas and more**: [Link](https://www.independent.co.uk/sport/football/liverpool-real-madrid-team-news-champions-league-b2653354.html)
+- **Vinicius Jr ruled out of Real Madrid's trip to Liverpool**: [Link](https://www.bbc.com/sport/football/articles/c3rxejx8y8eo)
+- **Vinícius Jr. Injured, Blames the “Crazy Schedule”**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/vin%C3%ADcius-jr-injured-blames-the-crazy-schedule-2024-11-25)
+
+
+### bayern – paris-sg (N/A, Tue, 26 Nov 2024 11:00:00 -0800)
+
+- **Preview: Bayern Munich vs. Paris Saint-Germain - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/bayern-munich/champions-league/preview/preview-bayern-vs-psg-prediction-team-news-lineups_558932.html)
+- **Kimpembe's 21-month ordeal comes to an end**: [Link](https://www.besoccer.com/new/kimpembe-s-21-month-ordeal-comes-to-an-end-1339124)
+- **PSG boss Enrique embraces underdogs tag in crunch Champions League tie at 
+Bayern**: [Link](https://www.rfi.fr/en/sports/20241126-psg-boss-enrique-embraces-underdogs-tag-in-crunch-champions-league-tie-at-bayern)
+
+
 ### barcelone – brest (N/A, Tue, 26 Nov 2024 11:00:00 -0800)
 
 - **Ligue des champions: Brest toujours au sommet, le PSG, City et le Real 
