@@ -1,3 +1,10 @@
+### btp (N/A, Tue, 26 Nov 2024 08:30:00 -0800)
+
+- **Transgender police allowed to strip-search women under new guidance**: [Link](https://www.telegraph.co.uk/news/2024/11/22/transgender-police-allowed-strip-search-women-new-guidance/)
+- **Trans ideology is stripping women of their dignity**: [Link](https://www.spiked-online.com/2024/11/25/trans-ideology-is-stripping-women-of-their-dignity/)
+- **Sex Matters threatens British Transport Police with legal action**: [Link](https://sex-matters.org/posts/updates/sex-matters-threatens-british-transport-police-with-legal-action/)
+
+
 ### السد ضد الهلال (N/A, Tue, 26 Nov 2024 07:50:00 -0800)
 
 - **مباشر بعد قليل: السد والهلال في النخبة الآسيوية لحظة بلحظة**: [Link](https://www.kooora.com/?n=1370720&o=n)
