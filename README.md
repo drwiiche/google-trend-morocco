@@ -1,3 +1,23 @@
+### عيسى ديوب (N/A, Tue, 26 Nov 2024 15:00:00 -0800)
+
+- **الركراكي يبدأ زيارته من فرنسا برفقة مساعده بنمحمود لضم لاعبين إثنين للأسود**: [Link](https://www.almountakhab.com/node/16206916)
+- **خطوة استباقية للركراكي.. نجمان جديدان في حسابات “الأسود”**: [Link](https://m.alayam24.com/articles-541157.html)
+- **الركراكي يطير إلى أوروبا من أجل "هالاند" ونجم ليل**: [Link](https://ar.hibapress.com/details-576984.html)
+
+
+### ecrivain algerien boualem sansal (N/A, Tue, 26 Nov 2024 14:50:00 -0800)
+
+
+
+
+### محمد السادس (N/A, Tue, 26 Nov 2024 14:50:00 -0800)
+
+- **الملك يتجول في العاصمة الفرنسية رفقة ولي العهد والأميرة لالة خديجة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%AA%D8%AC%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-%D8%B1%D9%81%D9%82%D8%A9-%D9%88-1470944.html)
+- **رفقة ابنيه وبسروال "من يقرر الحرب".. صور محمد السادس بباريس تثير تفاعل 
+مغاربة**: [Link](https://www.alhurra.com/morocco/2024/11/26/%D8%B1%D9%81%D9%82%D8%A9-%D8%A7%D8%A8%D9%86%D9%8A%D9%87-%D9%88%D8%A8%D8%B3%D8%B1%D9%88%D8%A7%D9%84-%D9%8A%D9%82%D8%B1%D8%B1-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B5%D9%88%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D8%A8%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%AA%D9%81%D8%A7%D8%B9%D9%84-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9)
+- **صور دافئة للعائلة الملكية وسط صقيع باريس**: [Link](https://rue20.com/857600.html)
+
+
 ### bayer leverkusen (N/A, Tue, 26 Nov 2024 14:30:00 -0800)
 
 - **Drei Prinzen für Xabi Alonso**: [Link](https://www.footboom1.com/de/news/football/2106930-three-princes-for-xabi-alonso)
