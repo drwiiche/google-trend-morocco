@@ -1,3 +1,18 @@
+### نتائج مباريات اليوم (N/A, Tue, 26 Nov 2024 14:00:00 -0800)
+
+- **«بـ10 لاعبين».. منتخب مصر للشباب يهزم تونس ويتأهل إلى كأس أمم أفريقيا**: [Link](https://www.almasryalyoum.com/news/details/3315720)
+- **مكافآت للاعبي منتخب مصر للشباب.. وميكالي يقدم وعدًا**: [Link](https://www.kooora.com/?n=1370852&pg=1&o=n)
+- **المنتخبات المتأهلة إلى كأس أمم إفريقيا للشباب بعد انتهاء تصفيات شمال 
+إفريقيا تحت 20 عامًا**: [Link](https://www.btolat.com/news/358205)
+
+
+### arsenal (N/A, Tue, 26 Nov 2024 12:50:00 -0800)
+
+- **Sporting v Arsenal, Bayern Munich v PSG, and more: Champions League – live**: [Link](https://www.theguardian.com/football/live/2024/nov/26/champions-league-sporting-arsenal-bayern-psg-clockwatch-live)
+- **🔴 LIVE: Arsenal and Barça ahead; Bayern host PSG; Man City in action**: [Link](https://sports.yahoo.com/ucl-live-milan-pegged-back-181200804.html)
+- **🔴 LIVE: Arsenal and Barça ahead; Bayern lead PSG; Haaland scores**: [Link](https://onefootball.com/fr/news/live-arsenal-and-barca-ahead-bayern-lead-psg-haaland-scores-40359510)
+
+
 ### koora (N/A, Tue, 26 Nov 2024 12:40:00 -0800)
 
 - **برشلونة ينقلب على مشجعيه**: [Link](https://www.kooora.com/?n=1370650)
