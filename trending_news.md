@@ -1,3 +1,10 @@
+### vinicius jr (N/A, Mon, 25 Nov 2024 23:30:00 -0800)
+
+- **Vinicius Jr ruled out of Real Madrid's trip to Liverpool**: [Link](https://www.bbc.com/sport/football/articles/c3rxejx8y8eo)
+- **Vini Jr. medical report**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/medical-reports/parte-medico-de-vini-jr-25-11-2024)
+- **Vinícius Jr. Injured, Blames the “Crazy Schedule”**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/vin%C3%ADcius-jr-injured-blames-the-crazy-schedule-2024-11-25)
+
+
 ### محمد رحيم (N/A, Mon, 25 Nov 2024 15:20:00 -0800)
 
 - **جرّاح قلب يكشف أسباب الكدمات على جسم الراحل محمد رحيم**: [Link](https://www.lahamag.com/article/217738-%D8%AC%D8%B1%D8%A7%D8%AD-%D9%82%D9%84%D8%A8-%D9%8A%D9%83%D8%B4%D9%81-%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%83%D8%AF%D9%85%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D8%AC%D8%B3%D9%85-%D8%A7%D9%84%D8%B1%D8%A7%D8%AD%D9%84-%D9%85%D8%AD%D9%85%D8%AF-%D8%B1%D8%AD%D9%8A%D9%85)
