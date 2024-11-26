@@ -1,3 +1,11 @@
+### ligue des champions (N/A, Tue, 26 Nov 2024 08:40:00 -0800)
+
+- **Ligue des champions: Brest toujours au sommet, le PSG, City et le Real 
+sommés de réagir**: [Link](https://fr.hespress.com/398095-ligue-des-champions-brest-toujours-au-sommet-le-psg-city-et-le-real-sommes-de-reagir.html)
+- **Le FC Barcelone ferme une de ses tribunes d’animation**: [Link](https://www.footmercato.net/a6144977108057738488-le-fc-barcelone-ferme-une-de-ses-tribunes-danimation)
+- **Le groupe du Barça pour la réception de Brest**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4175738/le-groupe-du-barca-pour-la-reception-de-brest/featured)
+
+
 ### btp (N/A, Tue, 26 Nov 2024 08:30:00 -0800)
 
 - **Transgender police allowed to strip-search women under new guidance**: [Link](https://www.telegraph.co.uk/news/2024/11/22/transgender-police-allowed-strip-search-women-new-guidance/)
