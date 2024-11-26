@@ -1,3 +1,13 @@
+### al ahly – stade d'abidjan (N/A, Tue, 26 Nov 2024 07:20:00 -0800)
+
+- **Kohler: Our ambition is the African title. I do not know how long Wissam 
+will be absent**: [Link](https://www.ysscores.com/en/news/7755984/Kohler:-Our-ambition-is-the-African-title.-I-do-not-know-how-long-Wissam-will-be-absent)
+- **Open Channels Broadcasting Today's Match Between Al-Ahly and Abidjan 
+Stadium in the African Champions League**: [Link](https://www.footboom1.com/en/news/football/2104673-open-channels-broadcasting-today-s-match-between-al-ahly-and-abidjan-stadium-in-the-african-champions-league)
+- **Al Ahly brace for CAF Champions League group stage opener as Stade 
+d’Abidjan dream of an upset**: [Link](https://www.pulsesports.co.ke/football/story/al-ahly-brace-for-caf-champions-league-group-stage-opener-as-stade-dabidjan-dream-of-an-upset-2024112608385328369)
+
+
 ### tp mazembe – mc alger (N/A, Tue, 26 Nov 2024 05:40:00 -0800)
 
 - **TP Mazembe-MC Alger : voici le 11 de départ de Beaumelle**: [Link](https://fennecfootball.com/tp-mazembe-mc-alger-voici-le-11-de-depart-de-beaumelle/)
