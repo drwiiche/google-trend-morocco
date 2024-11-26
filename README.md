@@ -1,3 +1,39 @@
+### كورة (N/A, Tue, 26 Nov 2024 13:00:00 -0800)
+
+- **هواجس الماضي القريب.. هل تقتل لعنة الشباب موهبة يامال؟**: [Link](https://www.kooora.com/?n=1370622)
+- **جمهور برشلونة يختار بديل لامين جمال**: [Link](https://hihi2.com/2024/11/26/p2951789.html)
+- **بسبب لامين يامال.. هل يعود برشلونة إلى «كبوة ميسي»؟**: [Link](https://al-ain.com/article/lamine-yamal-barcelona-no-wins-messi)
+
+
+### man city (N/A, Tue, 26 Nov 2024 13:00:00 -0800)
+
+- **Man City January transfer window: Golden touch is under scrutiny**: [Link](https://www.bbc.com/sport/football/articles/c05z4zem3l0o)
+- **Manchester City Faces Transfer Dilemmas Amid Growing Concerns**: [Link](https://www.footboom1.com/en/news/football/2106025-manchester-city-faces-transfer-dilemmas-amid-growing-concerns)
+- **Man City will follow Omar Berrada transfer message in January window**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-city-follow-omar-berrada-30406175)
+
+
+### city (N/A, Tue, 26 Nov 2024 13:00:00 -0800)
+
+- **Atherton to explore becoming a charter city**: [Link](https://www.almanacnews.com/atherton/2024/11/26/atherton-to-explore-becoming-a-charter-city/)
+- **Letter to the editor: What are priorities and commitments of Edmonds mayor, 
+city council?**: [Link](https://myedmondsnews.com/2024/11/letter-to-the-editor-what-are-priorities-and-commitments-of-edmonds-mayor-city-council/)
+- **City council to hold public hearing Dec. 3 on Edmonds fire/EMS options**: [Link](https://myedmondsnews.com/2024/11/city-council-to-hold-public-hearing-dec-3-on-edmonds-fire-ems-options/)
+
+
+### inter milan (N/A, Tue, 26 Nov 2024 13:00:00 -0800)
+
+- **Confirmed lineups: Inter vs. RB Leipzig**: [Link](https://bulinews.com/confirmed-lineups-inter-leipzig)
+- **Leipzig in false Champions League position, says Inter's Inzaghi**: [Link](https://www.beinsports.com/en-my/football/uefa-champions-league/articles/leipzig-in-false-champions-league-position-says-inters-inzaghi-2024-11-25)
+- **Marotta: Inter have ‘24 players who can fit all our needs’**: [Link](https://football-italia.net/marotta-inter-have-24-players-fit-our-needs/)
+
+
+### flashscore (N/A, Tue, 26 Nov 2024 12:50:00 -0800)
+
+- **UCL Fantasy Matchday 5 team reveal: Yamal out, Pulisic in?**: [Link](https://www.fantasyfootballscout.co.uk/2024/11/26/ucl-fantasy-matchday-5-team-reveal-yamal-out-pulisic-in/)
+- **Tuesday's Champions League predictions including Man City vs. Feyenoord**: [Link](https://www.sportsmole.co.uk/football/arsenal/champions-league-predictions/feature/tuesdays-champions-league-predictions-including-man-city-vs-feyenoord_558984.html)
+- **🔴 LIVE: Arsenal and Barça ahead; Bayern lead PSG; Haaland scores**: [Link](https://onefootball.com/fr/news/live-arsenal-and-barca-ahead-bayern-lead-psg-haaland-scores-40359510)
+
+
 ### bet365 (N/A, Tue, 26 Nov 2024 12:40:00 -0800)
 
 - **Don't Miss Out on Monday Night Football: Grab Bet365's $150 Bonus with Code 
