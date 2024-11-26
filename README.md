@@ -1,3 +1,31 @@
+### كورة لايف بث مباشر (N/A, Tue, 26 Nov 2024 12:10:00 -0800)
+
+- **حدث نادر في آرسنال قبل موقعة لشبونة**: [Link](https://www.kooora.com/?n=1370594)
+- **مباشر مباراة أرسنال وسبورتنج لشبونة (0-0) بدورى أبطال أوروبا..لحظة بلحظة**: [Link](https://www.almasryalyoum.com/news/details/3315737)
+- **اختبار صعب لآرسنال على أرض سبورتينغ**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8-%D9%84%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%A3%D8%B1%D8%B6-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-2024-11-26)
+
+
+### yalla kora (N/A, Tue, 26 Nov 2024 12:10:00 -0800)
+
+- **خلال مؤتمر الريال.. سؤال شائك لسلوت حول مصير صلاح**: [Link](https://www.kooora.com/?n=1370727)
+- **موقف حاسم من سلوت بعد تصريحات صلاح حول مستقبله**: [Link](https://hihi2.com/2024/11/26/p2952460.html)
+- **خبير لغة الجسد يكشف "المشاعر الحقيقية" لصلاح بشأن خلافه مع ليفربول**: [Link](https://www.alarabiya.net/sport/2024/11/26/%D8%AE%D8%A8%D9%8A%D8%B1-%D9%84%D8%BA%D8%A9-%D8%A7%D9%84%D8%AC%D8%B3%D8%AF-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B9%D8%B1-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D9%8A%D8%A9-%D9%84%D8%B5%D9%84%D8%A7%D8%AD-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AE%D9%84%D8%A7%D9%81%D9%87-%D9%85%D8%B9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-)
+
+
+### bein sport 1 (N/A, Tue, 26 Nov 2024 12:10:00 -0800)
+
+
+
+
+### bayern (N/A, Tue, 26 Nov 2024 12:10:00 -0800)
+
+- **Bayern gegen PSG Live-Streaming>>#@@#NOTV: Bayern gegen PSG im Streaming! 
+Bayern gegen PSG direkt 6937**: [Link](https://www.ffcc.info/koto/video/video-bayern-gegen-psg-bdz-552-iya-154565.html)
+- **Kimmich zu Paris? So reagiert PSG-Coach Enrique auf die Gerüchte**: [Link](https://fcbinside.de/2024/11/26/kimmich-zu-paris-so-reagiert-psg-coach-enrique-auf-die-geruechte/)
+- **„Der braucht immer ein bisschen länger“ Vor Bayern-Kracher: Experte bei 
+TV-Schalte plötzlich noch in der Maske**: [Link](https://www.express.de/sport/fussball/fc-bayern-muenchen/vor-bayern-duell-experte-im-tv-ploetzlich-noch-in-der-maske-907263)
+
+
 ### ترتيب دوري أبطال أوروبا (N/A, Tue, 26 Nov 2024 12:00:00 -0800)
 
 - **مواجهات كسر عظم تخوضها الاندية الاسبانية في الجولات الاربع المتبقية من دوري 
