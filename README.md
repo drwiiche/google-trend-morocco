@@ -1,3 +1,12 @@
+### bateau egypte (N/A, Tue, 26 Nov 2024 02:00:00 -0800)
+
+- **Egypte: 17 disparus après le naufrage d'un bateau touristique en mer Rouge**: [Link](https://fr.hespress.com/398016-egypte-17-disparus-apres-le-naufrage-dun-bateau-touristique-en-mer-rouge.html)
+- **Egypte : ce que l’on sait sur la vingtaine de personnes disparues après le 
+naufrage d’un navire de tourisme en mer Rouge**: [Link](https://www.liberation.fr/international/afrique/egypte-une-vingtaine-de-touristes-disparus-apres-le-naufrage-dun-bateau-en-mer-rouge-20241125_YOAM43SVARG4NM6MJSECTZD5YY/)
+- **Disparus, circonstances... Ce que l'on sait du naufrage d'un bateau en mer 
+Rouge au large de l'Égypte**: [Link](https://www.bfmtv.com/international/afrique/egypte/disparus-circonstances-ce-que-l-on-sait-du-naufrage-d-un-bateau-en-mer-rouge-au-large-de-l-egypte_AD-202411251042.html)
+
+
 ### vinicius jr (N/A, Mon, 25 Nov 2024 23:30:00 -0800)
 
 - **Vinicius Jr ruled out of Real Madrid's trip to Liverpool**: [Link](https://www.bbc.com/sport/football/articles/c3rxejx8y8eo)
