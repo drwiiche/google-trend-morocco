@@ -1,3 +1,40 @@
+### barcelone – brest (N/A, Tue, 26 Nov 2024 11:00:00 -0800)
+
+- **Ligue des champions: Brest toujours au sommet, le PSG, City et le Real 
+sommés de réagir**: [Link](https://fr.hespress.com/398095-ligue-des-champions-brest-toujours-au-sommet-le-psg-city-et-le-real-sommes-de-reagir.html)
+- **Le FC Barcelone ferme une de ses tribunes d’animation**: [Link](https://www.footmercato.net/a6144977108057738488-le-fc-barcelone-ferme-une-de-ses-tribunes-danimation)
+- **Le groupe du Barça pour la réception de Brest**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4175738/le-groupe-du-barca-pour-la-reception-de-brest)
+
+
+### برشلونة ضد بريست (N/A, Tue, 26 Nov 2024 11:00:00 -0800)
+
+- **فليك يعلن قائمة برشلونة الرسمية لموقعة بريست**: [Link](https://www.kooora.com/?n=1370667)
+- **الرسم التكتيكي لـ برشلونة أمام بريست في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/11/26/p2952419.html)
+- **فليك: "أتمنى أن تكون هذه آخر مباراة يغيب عنها لامين يامال"**: [Link](https://m.elbotola.com/article/2024-11-25-17-20-407.html)
+
+
+### barcelona vs brest (N/A, Tue, 26 Nov 2024 11:00:00 -0800)
+
+- **Prueba de madurez**: [Link](https://as.com/futbol/champions/prueba-de-madurez-n/)
+- **Dos incógnitas en el once del Barça para recibir al Brest**: [Link](https://www.sport.es/es/noticias/barca/incognitas-once-barca-recibir-brest-112032403)
+- **Una buena noticia en la convocatoria del Barça ante el Brest**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241126/1002359950/buena-noticia-convocatoria-barca-brest.html)
+
+
+### الأميرة للا خديجة (N/A, Tue, 26 Nov 2024 10:50:00 -0800)
+
+- **الملك يتجول في العاصمة الفرنسية رفقة ولي العهد والأميرة لالة خديجة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%AA%D8%AC%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-%D8%B1%D9%81%D9%82%D8%A9-%D9%88-1470944.html)
+- **رفقة ابنيه وبسروال "من يقرر الحرب".. صور محمد السادس بباريس تثير تفاعل 
+مغاربة**: [Link](https://www.alhurra.com/morocco/2024/11/26/%D8%B1%D9%81%D9%82%D8%A9-%D8%A7%D8%A8%D9%86%D9%8A%D9%87-%D9%88%D8%A8%D8%B3%D8%B1%D9%88%D8%A7%D9%84-%D9%8A%D9%82%D8%B1%D8%B1-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B5%D9%88%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D8%A8%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%AA%D9%81%D8%A7%D8%B9%D9%84-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9)
+- **صور دافئة للعائلة الملكية وسط صقيع باريس**: [Link](https://rue20.com/857600.html)
+
+
+### caf champions league (N/A, Tue, 26 Nov 2024 10:30:00 -0800)
+
+- **Allende – What Sundowns want to fix in Champions League this season**: [Link](https://www.afrik-foot.com/en-za/allende-what-sundowns-want-to-fix-in-champions-league-this-season)
+- **Downs eager to move on after Cup shock**: [Link](https://www.sowetanlive.co.za/sport/soccer/2024-11-26-downs-eager-to-move-on-after-cup-shock/)
+- **How Downs fell for Magesi trap that slayed Pirates**: [Link](https://www.snl24.com/kickoff/sanews/premiership/mamelodi-sundowns/how-downs-fell-for-magesi-trap-that-slayed-pirates-20241125)
+
+
 ### btp maroc (N/A, Tue, 26 Nov 2024 10:30:00 -0800)
 
 - **Suhail Global Company présente ses solutions innovantes au Salon 
