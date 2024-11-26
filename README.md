@@ -1,3 +1,28 @@
+### سبارتا براغ ضد أتلتيكو مدريد (N/A, Tue, 26 Nov 2024 09:40:00 -0800)
+
+- **رئيس أتلتيكو مدريد: التأهل الأوروبي سهل أو صعب**: [Link](https://www.kooora.com/?n=1370704)
+- **قائمة أتليتكو مدريد وغياباته عن مواجهة سبارتا براغ**: [Link](https://hihi2.com/2024/11/25/p2950005.html)
+- **سيميوني: النظام الجديد لدوري الأبطال ليس سهلا**: [Link](https://gate.ahram.org.eg/News/5039615.aspx)
+
+
+### psg vs bayern (N/A, Tue, 26 Nov 2024 09:30:00 -0800)
+
+- **Preview: Bayern Munich vs. Paris Saint-Germain - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/bayern-munich/champions-league/preview/preview-bayern-vs-psg-prediction-team-news-lineups_558932.html)
+- **PSG boss Enrique embraces underdogs tag in crunch Champions League tie at 
+Bayern**: [Link](https://www.rfi.fr/en/sports/20241126-psg-boss-enrique-embraces-underdogs-tag-in-crunch-champions-league-tie-at-bayern)
+- **Titans in Trouble**: [Link](https://www.footboom1.com/en/news/football/2103657-titans-in-trouble)
+
+
+### mohammed vi (N/A, Tue, 26 Nov 2024 09:30:00 -0800)
+
+- **Ensemble, décontractés et heureux: ces clichés (presque) ordinaires du roi 
+Mohammed VI avec ses enfants à Paris**: [Link](https://fr.le360.ma/politique/ensemble-decontractes-et-heureux-ces-cliches-presque-ordinaires-du-roi-mohammed-vi-avec-ses-enfants_AFUIYKYFGRGQJLPTMMP4I34KZU/)
+- **Mohammed VI en escapade parisienne avec ses enfants**: [Link](https://www.pointdevue.fr/royal/maroc/mohammed-vi-en-escapade-parisienne-avec-ses-enfants)
+- **Le Roi Mohammed VI, le Prince Moulay El Hassan et la Princesse Lalla 
+Khadija à Paris**: [Link](https://fr.hespress.com/398147-le-roi-mohammed-vi-le-prince-moulay-el-hassan-et-la-princesse-lalla-khadija-a-paris.html)
+
+
 ### uefa champions league (N/A, Tue, 26 Nov 2024 09:20:00 -0800)
 
 - **Preview: Liverpool vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/liverpool/champions-league/preview/preview-liverpool-vs-real-madrid-prediction-team-news-lineups_559006.html)
