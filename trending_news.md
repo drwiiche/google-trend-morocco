@@ -1,3 +1,20 @@
+### bet365 (N/A, Tue, 26 Nov 2024 12:40:00 -0800)
+
+- **Don't Miss Out on Monday Night Football: Grab Bet365's $150 Bonus with Code 
+"SYRACUSE"**: [Link](https://www.footboom1.com/en/news/basketball/2103368-don-t-miss-out-on-monday-night-football-grab-bet365-s-150-bonus-with-code-syracuse)
+- **bet365 Promo Code for 49ers vs Packers: Claim $150 in Bonus Bets or $1,000 
+Safety Net**: [Link](https://deadspin.com/betting/bet365-bonus-code-for-49ers-vs-packers-unlock-150-in-bonus-bets-or-1000-safety-net/)
+- **Upgraded Bet365 bonus code “SYRACUSE”: $1,150 betting bonus now available 
+for Black Friday**: [Link](https://www.syracuse.com/betting/2024/11/upgraded-bet365-bonus-code-offers-150-bonus-for-sports-betting-odds-this-tuesday.html)
+
+
+### live (N/A, Tue, 26 Nov 2024 12:40:00 -0800)
+
+- **Fusion+ Live: 1inch Introduces Full Cross-Chain Swap Functionality**: [Link](https://www.morningstar.com/news/globe-newswire/9290401/fusion-live-1inch-introduces-full-cross-chain-swap-functionality)
+- **Crosschain swaps without bridges: Here’s how it works**: [Link](https://cointelegraph.com/news/crosschain-swaps-without-bridges-heres-how-it-works)
+- **Composability is the only way DeFi will survive—and thrive | Opinion**: [Link](https://crypto.news/composability-is-the-only-way-defi-survive-opinion/)
+
+
 ### classement champions league (N/A, Tue, 26 Nov 2024 12:30:00 -0800)
 
 - **Ligue des champions : pourquoi le Stade Brestois a déjà touché le 
