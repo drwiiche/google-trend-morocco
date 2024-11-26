@@ -1,3 +1,18 @@
+### ترتيب دوري أبطال أوروبا (N/A, Tue, 26 Nov 2024 12:00:00 -0800)
+
+- **مواجهات كسر عظم تخوضها الاندية الاسبانية في الجولات الاربع المتبقية من دوري 
+ابطال اوروبا**: [Link](https://hihi2.com/2024/11/25/p2950755.html)
+- **نتائج مباريات دوري أبطال أوروبا اليوم الثلاثاء 26 نوفمبر 2024 - دادي مود**: [Link](https://onnews.in/yalla-kora/55506.html)
+- **أبرزها بولونيا.. 6 فرق تبحث عن الفوز الأول في دوري أبطال أوروبا**: [Link](https://www.msn.com/ar-eg/sports/other/%D8%A3%D8%A8%D8%B1%D8%B2%D9%87%D8%A7-%D8%A8%D9%88%D9%84%D9%88%D9%86%D9%8A%D8%A7-6-%D9%81%D8%B1%D9%82-%D8%AA%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/ar-AA1uN7Z1)
+
+
+### man city vs feyenoord (N/A, Tue, 26 Nov 2024 11:50:00 -0800)
+
+- **Preview: Manchester City vs. Feyenoord - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-city/champions-league/preview/preview-man-city-vs-feyenoord-prediction-team-news-lineups_558919.html)
+- **Grealish, Ake and Nunes return for Champions League clash**: [Link](https://www.mancity.com/news/mens/manchester-city-v-feyenoord-team-news-champions-league-63868242)
+- **As well as Akanji: Pep must now drop 3/10 Man City star**: [Link](https://www.footballfancast.com/as-well-as-akanji-guardiola-must-drop-in-man-city-gundogan/)
+
+
 ### as far (N/A, Tue, 26 Nov 2024 11:40:00 -0800)
 
 - **Who Will Get Off to a Strong Start: Raja or ASFAR in the CAF Champions 
