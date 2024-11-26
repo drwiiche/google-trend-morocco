@@ -1,3 +1,12 @@
+### classement champions league (N/A, Tue, 26 Nov 2024 12:30:00 -0800)
+
+- **Ligue des champions : pourquoi le Stade Brestois a déjà touché le 
+jackpot... et n’a pas fini de gagner de l’argent**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-champions/ligue-des-champions-la-somme-colossale-que-brest-peut-recuperer-20241126)
+- **VIDEO : le co-président de Brest fait le show !**: [Link](https://news.maxifoot.fr/video/le-co-president-de-brest-fait-le-show-foot-423517.htm)
+- **SB29 à Barcelone : "Nos salariés sont à fond derrière le club" lance le PDG 
+de la Sill, sponsor historique**: [Link](https://www.francebleu.fr/emissions/l-invite-actu-de-france-bleu-breizh-izel/stade-brestois-a-barcelone-un-sentiment-d-appartenance-pour-le-pdg-de-la-sill-sponsor-du-club-1864532)
+
+
 ### كورة لايف بث مباشر (N/A, Tue, 26 Nov 2024 12:10:00 -0800)
 
 - **حدث نادر في آرسنال قبل موقعة لشبونة**: [Link](https://www.kooora.com/?n=1370594)
