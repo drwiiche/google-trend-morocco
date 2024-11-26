@@ -1,3 +1,36 @@
+### الأهلي ضد نادي ستاد أبيدجان (N/A, Tue, 26 Nov 2024 09:00:00 -0800)
+
+- **الشحات يتخطى رقم وليد سليمان.. ويطارد الخطيب وأبو تريكة**: [Link](https://m.kooora.com/?n=1370740&o=n27483)
+- **قناة مفتوحة.. شاهد مباراة الأهلي واستاد أبيدجان بدوري الأبطال مجانا**: [Link](https://www.masrawy.com/sports/sports_news/details/2024/11/26/2681382/%D9%82%D9%86%D8%A7%D8%A9-%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D8%B3%D8%AA%D8%A7%D8%AF-%D8%A3%D8%A8%D9%8A%D8%AF%D8%AC%D8%A7%D9%86-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%85%D8%AC%D8%A7%D9%86%D8%A7)
+- **كولر: “لا ننسى ما فعله المنتخب المغربي في كأس العالم الأ?...**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/451358.html)
+
+
+### sparta prague – atlético madrid (N/A, Tue, 26 Nov 2024 08:50:00 -0800)
+
+- **Preview: Sparta Prague vs. Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/champions-league/preview/preview-sparta-prague-vs-atletico-prediction-team-news-lineups_558926.html)
+- **New Champions League format not easy for anyone, says Simeone**: [Link](https://supersport.com/football/uefa-champions-league/news/b97cd792-7053-490a-8ab7-5cdf1e52db76/new-champions-league-format-not-easy-for-anyone-says-simeone)
+- **Atlético Travels to Prague Without Le Normand, Molina, and Lemar**: [Link](https://www.footboom1.com/en/news/football/2101315-atletico-travels-to-prague-without-le-normand-molina-and-lemar)
+
+
+### slovan bratislava – ac milan (N/A, Tue, 26 Nov 2024 08:50:00 -0800)
+
+- **MN: Milan predicted XI vs. Slovan Bratislava – Changes galore in the 
+Champions League**: [Link](https://sempremilan.com/milan-predicted-xi-slovan-bratislava)
+- **How to watch Bayern vs PSG in the USA: Live Stream and TV for 2024-25 UEFA 
+Champions League**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-bayern-vs-psg-in-the-usa-live-stream-and-tv-for-2024-25-uefa-champions-league/)
+- **Slovan boss Weiss admits Milan have ‘weaknesses’ after ‘boring’ Juventus 
+game**: [Link](https://www.yardbarker.com/soccer/articles/slovan_boss_weiss_admits_milan_have_weaknesses_after_boring_juventus_game/s1_15965_41295458)
+
+
+### lamine yamal (N/A, Tue, 26 Nov 2024 08:50:00 -0800)
+
+- **Lamine Yamal dependence underlined after Barcelona drop points again in La 
+Liga**: [Link](https://www.football-espana.net/2024/11/24/lamine-yamal-dependence-underlined-after-barcelona-drop-points-again-in-la-liga)
+- **Flick concerned by Barca's poor form without Yamal**: [Link](http://www.china.org.cn/sports/2024-11/26/content_117568784.htm)
+- **Lamine Yamal's absence continues! Bacelona wonderkid set to sit out Brest 
+Champions League clash after missing training**: [Link](https://www.goal.com/en-us/lists/lamine-yamal-absence-bacelona-wonderkid-sit-out-brest-champions-league-clash-missing-training/blt50a805a5e87f6552)
+
+
 ### ligue des champions (N/A, Tue, 26 Nov 2024 08:40:00 -0800)
 
 - **Ligue des champions: Brest toujours au sommet, le PSG, City et le Real 
