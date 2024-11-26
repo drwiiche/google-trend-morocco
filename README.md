@@ -1,3 +1,24 @@
+### btp maroc (N/A, Tue, 26 Nov 2024 10:30:00 -0800)
+
+- **Suhail Global Company présente ses solutions innovantes au Salon 
+international du bâtiment à El Jadida**: [Link](https://medias24.com/2024/11/21/suhail-global-company-presente-ses-solutions-innovantes-au-salon-international-du-batiment-a-el-jadida/)
+- **SIB : Plus de 200.000 visiteurs**: [Link](https://www.leconomiste.com/flash-infos/sib-plus-de-200-000-visiteurs)
+- **Dynamique du secteur du BTP au Maroc : Investissements et acteurs clés pour 
+2024**: [Link](https://www.btpnews.ma/dynamique-du-secteur-du-btp-au-maroc-investissements-et-acteurs-cles-pour-2024/)
+
+
+### ligue des champions de la caf (N/A, Tue, 26 Nov 2024 10:10:00 -0800)
+
+- **Espérance - Djoliba: La formation probable des Sang et Or**: [Link](https://www.mosaiquefm.net/fr/football/1347778/cafcl-la-formation-probable-de-l-esperance-face-a-djoliba)
+- **La Ligue des Champions de la CAF s'ouvre avec ES Tunis face à Djoliba AC**: [Link](https://www.footboom1.com/fr/news/football/2104653-caf-champions-league-launches-with-es-tunis-taking-on-djoliba-ac)
+- **LDC : Sur quelles chaînes suivre le match entre l’Espérance ST et Djoliba AC**: [Link](https://www.webdo.tn/fr/actualite/sport/ldc-sur-quelles-chaines-suivre-le-match-entre-l-esperance-st-et-djoliba-ac/217866)
+
+
+### سلوفان براتيسلافا ضد ميلان (N/A, Tue, 26 Nov 2024 09:50:00 -0800)
+
+
+
+
 ### paris saint germain (N/A, Tue, 26 Nov 2024 10:20:00 -0800)
 
 - **Le Bayern punit le PSG**: [Link](https://www.footmercato.net/a602373882310743053-le-bayern-punit-le-psg)
