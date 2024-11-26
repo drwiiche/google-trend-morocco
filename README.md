@@ -1,3 +1,11 @@
+### al sadd – al-hilal (N/A, Tue, 26 Nov 2024 07:20:00 -0800)
+
+- **Al Sadd relish ‘tough’ Al Hilal challenge, eye win**: [Link](https://thepeninsulaqatar.com/article/26/11/2024/al-sadd-relish-tough-al-hilal-challenge-eye-win)
+- **Al Sadd vs Al Hilal Live Stream & Tips - High Scoring Game in the AFC 
+Champions League**: [Link](https://www.freetips.com/football/afc-champions-league/al-sadd-vs-al-hilal-live-stream-20241126-0007/)
+- **Al Sadd brace for tough Al Hilal test| Gulf Times**: [Link](https://www.gulf-times.com/article/695331/sports/al-sadd-brace-for-tough-al-hilal-test)
+
+
 ### al ahly – stade d'abidjan (N/A, Tue, 26 Nov 2024 07:20:00 -0800)
 
 - **Kohler: Our ambition is the African title. I do not know how long Wissam 
