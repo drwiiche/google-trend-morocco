@@ -1,3 +1,10 @@
+### السد ضد الهلال (N/A, Tue, 26 Nov 2024 07:50:00 -0800)
+
+- **مباشر بعد قليل: السد والهلال في النخبة الآسيوية لحظة بلحظة**: [Link](https://www.kooora.com/?n=1370720&o=n)
+- **بونو وسايس.. إصطدام مثير بكل المقاييس**: [Link](https://www.almountakhab.com/node/16206913)
+- **أفضل 3 لاعبين في تشكيلة الهلال**: [Link](https://hihi2.com/2024/11/26/p2951900.html)
+
+
 ### al sadd – al-hilal (N/A, Tue, 26 Nov 2024 07:20:00 -0800)
 
 - **Al Sadd relish ‘tough’ Al Hilal challenge, eye win**: [Link](https://thepeninsulaqatar.com/article/26/11/2024/al-sadd-relish-tough-al-hilal-challenge-eye-win)
