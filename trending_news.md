@@ -1,3 +1,42 @@
+### paris (N/A, Tue, 26 Nov 2024 14:10:00 -0800)
+
+- **Ensemble, décontractés et heureux: ces clichés (presque) ordinaires du roi 
+Mohammed VI avec ses enfants à Paris**: [Link](https://fr.le360.ma/politique/ensemble-decontractes-et-heureux-ces-cliches-presque-ordinaires-du-roi-mohammed-vi-avec-ses-enfants_AFUIYKYFGRGQJLPTMMP4I34KZU/)
+- **Mon Roi est tout simplement Royal… Il est le Roi de tout le monde**: [Link](https://maroc-diplomatique.net/mon-roi-est-tout-simplement-royal-il-est-le-roi-de-tout-le-monde/)
+- **Le Roi Mohammed VI à Paris : un moment de bonheur en famille**: [Link](https://medias24.com/2024/11/26/le-roi-mohammed-vi-a-paris-un-moment-de-bonheur-en-famille/)
+
+
+### ليفركوزن ضد ريد بول سالزبورغ (N/A, Tue, 26 Nov 2024 14:10:00 -0800)
+
+- **بالصور.. ليفركوزن يمزق شباك سالزبورج**: [Link](https://m.kooora.com/?n=1370875&o=n)
+- **مباشر مشاهدة مباراة بايرن ليفركوزن ضد ريد بول سالزبورغ في دوري أبطال أوروبا 
+(5-0)**: [Link](https://www.dostor.org/4877300)
+- **القنوات المفتوحة الناقلة لمباريات دوري أبطال أوروبا وعبر جميع الأقمار 
+الصناعية المختلفة العربسات والنايل سات**: [Link](https://s3ody.net/12753/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88-2/)
+
+
+### man city vs (N/A, Tue, 26 Nov 2024 14:00:00 -0800)
+
+- **Rodrigo Bentancur sanctioned**: [Link](https://www.thefa.com/news/2024/nov/18/rodrigo-bentancur-sanctioned-181124)
+- **Borja Sainz opens the scoring for Norwich City against Plymouth Argyle**: [Link](https://www.skysports.com/football/video/30998/13261250/borja-sainz-opens-the-scoring-for-norwich-city-against-plymouth-argyle)
+- **‘Optimistic’ Update on Tottenham Appeal for Bentancur Ban Emerges**: [Link](https://www.givemesport.com/optimistic-update-on-tottenham-appeal-for-bentancur-ban-emerges/)
+
+
+### ترتيب دوري ابطال اوروبا (N/A, Tue, 26 Nov 2024 13:30:00 -0800)
+
+- **حفلة أهداف.. نتائج كبيرة الليلة في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/11/27/p2952806.html)
+- **ترتيب دوري ابطال اوروبا ونظام التأهل.. الريال خارج التأهل ليفربول بالعلامة 
+الكاملة**: [Link](https://s3ody.net/14035/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%88%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7/)
+- **نتائج مباريات دوري أبطال أوروبا اليوم الثلاثاء 26 نوفمبر 2024 - دادي مود**: [Link](https://onnews.in/yalla-kora/55506.html)
+
+
+### دوري ابطال افريقيا (N/A, Tue, 26 Nov 2024 13:20:00 -0800)
+
+- **الأهلي يقسو على استاد أبيدجان برباعية في مستهل مشواره بدوري أبطال إفريقيا**: [Link](https://www.almasryalyoum.com/news/details/3315721)
+- **عصبة أبطال إفريقيا: مهرجان أهداف مصري وانتصار ثمين للهلال السوداني**: [Link](https://www.almountakhab.com/node/13206942)
+- **مدرب ستاد أبيدجان: الأهلي الأفضل في أفريقيا.. ولكن**: [Link](https://www.kooora.com/?n=1370636)
+
+
 ### نتائج مباريات اليوم (N/A, Tue, 26 Nov 2024 14:00:00 -0800)
 
 - **«بـ10 لاعبين».. منتخب مصر للشباب يهزم تونس ويتأهل إلى كأس أمم أفريقيا**: [Link](https://www.almasryalyoum.com/news/details/3315720)
