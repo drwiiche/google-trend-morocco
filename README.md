@@ -1,3 +1,31 @@
+### مان سيتي ضد فيينورد (N/A, Tue, 26 Nov 2024 11:20:00 -0800)
+
+- **دي بروين على مقاعد بدلاء مانشستر سيتي أمام فينورد**: [Link](https://www.kooora.com/?n=1370812)
+- **رقم تاريخي بانتظار هالاند ضد فينورد**: [Link](https://hihi2.com/2024/11/26/p2952450.html)
+- **السيتي يتلقى ضربة موجعة قبل ساعات من مواجهة فينورد**: [Link](https://arabi21.com/story/1643078/%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D8%AC%D8%B9%D8%A9-%D9%82%D8%A8%D9%84-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%81%D9%8A%D9%86%D9%88%D8%B1%D8%AF)
+
+
+### barcelona - stade brestois (N/A, Tue, 26 Nov 2024 11:20:00 -0800)
+
+- **Preview: Barcelona vs. Brest - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/champions-league/preview/preview-barcelona-vs-brest-prediction-team-news-lineups_558939.html)
+- **'We should not blame anyone' - Inigo Martinez addresses Celta draw**: [Link](https://www.besoccer.com/new/we-should-not-blame-anyone-inigo-martinez-addresses-celta-draw-1339137)
+- **Flick Demands Greater Connection from Players to Overcome Brest**: [Link](https://www.footboom1.com/en/news/football/2104186-flick-demands-greater-connection-from-players-to-overcome-brest)
+
+
+### inter – rb leipzig (N/A, Tue, 26 Nov 2024 11:20:00 -0800)
+
+- **RB Leipzig im Opernhaus des Fußballs: Ein letzter Tanz am Wallfahrtsort?**: [Link](https://www.lvz.de/sport/regional/rb-leipzig-im-opernhaus-des-fussballs-ein-letzter-tanz-am-wallfahrtsort-E3OJX5P75ZFI7MYNK5AYEMX3BY.html)
+- **Leipziger Charaktertest: In der Königsklasse unter Druck**: [Link](https://www.thueringer-allgemeine.de/sport/article407759643/leipziger-charaktertest-in-der-koenigsklasse-unter-druck.html)
+- **Trainer Marco Rose spricht zum ersten Mal über die Krise bei RB Leipzig**: [Link](https://www.footboom1.com/de/news/football/2104834-coach-marco-rose-speaks-about-crisis-at-rb-leipzig-for-the-first-time)
+
+
+### manises – getafe (N/A, Tue, 26 Nov 2024 11:20:00 -0800)
+
+- **El Getafe, el último rival del entrenador del Manises**: [Link](https://as.com/futbol/copa_del_rey/el-getafe-el-ultimo-rival-del-entrenador-del-manises-n/)
+- **Angileri, Aleñá y Mayoral, fuera de la lista para el partido de Copa**: [Link](https://www.futbolfantasy.com/laliga/noticias/122271-angileri-alena-y-mayoral-fuera-de-la-lista-para-el-partido-de-copa)
+- **Bordalás: "El fútbol es una fiesta, pero mañana no lo va a ser"**: [Link](https://www.sport.es/es/noticias/copa-del-rey/bordalas-futbol-fiesta-manana-112025290)
+
+
 ### manchester city – feyenoord (N/A, Tue, 26 Nov 2024 11:10:00 -0800)
 
 - **Guidetti: "Mijn voorkeur ligt bij Feyenoord vanavond"**: [Link](https://1908.nl/artikelen/guidetti-mijn-voorkeur-ligt-bij-feyenoord-vanavond)
