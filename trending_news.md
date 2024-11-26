@@ -1,3 +1,36 @@
+### paris saint germain (N/A, Tue, 26 Nov 2024 10:20:00 -0800)
+
+- **Le Bayern punit le PSG**: [Link](https://www.footmercato.net/a602373882310743053-le-bayern-punit-le-psg)
+- **"C'est très comparable à l'époque Guardiola" : Kompany, débuts de folie**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/bayern-munich-psg-c-est-tres-comparable-a-l-epoque-guardiola-vincent-kompany-debuts-de-folie_vid2271612/video.shtml)
+- **Ligue des champions: l’exploit ou la peur pour le PSG face au Bayern Munich**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-lexploit-ou-la-peur-pour-le-psg-face-au-bayern-munich_CNQF3V2VU5ASHJPRLC3DBYC74E/)
+
+
+### raja casablanca – as far (N/A, Tue, 26 Nov 2024 10:10:00 -0800)
+
+- **Maillot du Raja floqué de la carte intégrale du Maroc: L’Algérien Yousri 
+Bouzok aurait refusé de jouer contre l’AS FAR**: [Link](https://sport.le360.ma/football/ligue-des-champions-caf/maillot-du-raja-floque-de-la-carte-integrale-du-maroc-lalgerien-yousri-bouzok-aurait-refuse-de-jouer_IJTDVTTTSNA5JANWTQGD7W5PG4/)
+- **Ligue des Champions CAF : Duel fratricide entre le Raja Casablanca et l'AS 
+FAR**: [Link](https://fr.hespress.com/397992-coupes-africaines-des-clubs-raja-casablanca-et-as-far-en-tete-daffiche.html)
+- **Une entrée en scène captivante pour la phase de groupes de la Ligue des 
+Champions CAF TotalEnergies 2024/25, marquée par un derby marocain**: [Link](https://www.cafonline.com/fr/ligue-des-champions-caf-totalenergies/news/une-entree-en-scene-captivante-pour-la-phase-de-groupes-de-la-ligue-des-champions-caf-totalenergies-202425-marquee-par-un-derby-marocain/)
+
+
+### الرجاء ضد الجيش الملكي (N/A, Tue, 26 Nov 2024 10:10:00 -0800)
+
+- **حقيقة تحذير يسري بوزوق من الجزائر ؟**: [Link](https://www.almountakhab.com/node/13206925)
+- **بعد واقعة بركان.. نظام الكابرانات يهدد لاعب الرجاء "يسري بوزوق" بسبب خريطة 
+المغرب**: [Link](https://www.akhbarona.com/sport/footmarocain/396392.html)
+- **الزنيتي: الجيش الملكي خصم عنيد.. ولكننا مستعدون للقتال من أجل الجماهير**: [Link](https://aljarida24.ma/p/actualites/296974/)
+
+
+### psg (N/A, Tue, 26 Nov 2024 10:10:00 -0800)
+
+- **Youth League : le PSG atomise le Bayern Munich, Brest battu par le FC 
+Barcelone**: [Link](https://www.footmercato.net/a8615938648142502077-youth-league-le-psg-atomise-le-bayern-munich-brest-battu-par-le-fc-barcelone)
+- **Adam Aznou en difficulté face au PSG**: [Link](https://www.mountakhab.net/adam-aznou-en-difficulte-face-au-psg/)
+- **Le programme de la 5e journée de l'UEFA Youth League**: [Link](https://www.psg.fr/equipes/the-club/content/programme-de-la-5e-journee-de-la-phase-de-ligue-de-luefa-youth-league-2024-2025-fc-bayern-munich-paris-saint-germain)
+
+
 ### al hilal (N/A, Tue, 26 Nov 2024 10:00:00 -0800)
 
 - **Yanga and Al Hilal Champions League Showdown: Lineups confirmed!**: [Link](https://en.africatopsports.com/2024/11/26/yanga-and-al-hilal-champions-league-showdown-lineups-confirmed/)
