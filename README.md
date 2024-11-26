@@ -1,3 +1,10 @@
+### uefa champions league (N/A, Tue, 26 Nov 2024 09:20:00 -0800)
+
+- **Preview: Liverpool vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/liverpool/champions-league/preview/preview-liverpool-vs-real-madrid-prediction-team-news-lineups_559006.html)
+- **UCL Matchday 5 preview: Bayern host PSG, Liverpool eye revenge over Madrid**: [Link](https://pune.news/sports/ucl-matchday-5-preview-bayern-host-psg-liverpool-eye-revenge-over-madrid-271933/)
+- **Van Dijk's Frustration with Real Madrid: "It's Disappointing"**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles-video/van-dijk-s-frustration-with-real-madrid-it-s-disappointing-2024-11-26)
+
+
 ### الأهلي ضد نادي ستاد أبيدجان (N/A, Tue, 26 Nov 2024 09:00:00 -0800)
 
 - **الشحات يتخطى رقم وليد سليمان.. ويطارد الخطيب وأبو تريكة**: [Link](https://m.kooora.com/?n=1370740&o=n27483)
