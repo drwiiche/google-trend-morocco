@@ -1,3 +1,18 @@
+### bayer leverkusen (N/A, Tue, 26 Nov 2024 14:30:00 -0800)
+
+- **Drei Prinzen für Xabi Alonso**: [Link](https://www.footboom1.com/de/news/football/2106930-three-princes-for-xabi-alonso)
+- **Bullen-Noten - Einer mit Herz und zehn Totalversager**: [Link](https://www.krone.at/3606696)
+- **Bayer-Stars in der Einzelkritik: Wirtz überragt alle – Grimaldo zeigt 
+altbekannte Qualitäten**: [Link](https://www.ksta.de/sport/bayer-04-leverkusen/florian-wirtz-ueberragt-bayer-leverkusen-in-der-einzelkritik-907336)
+
+
+### manchester city (N/A, Tue, 26 Nov 2024 12:50:00 -0800)
+
+- **Rodrigo Bentancur sanctioned**: [Link](https://www.thefa.com/news/2024/nov/18/rodrigo-bentancur-sanctioned-181124)
+- **Borja Sainz opens the scoring for Norwich City against Plymouth Argyle**: [Link](https://www.skysports.com/football/video/30998/13261250/borja-sainz-opens-the-scoring-for-norwich-city-against-plymouth-argyle)
+- **Postecoglou defends Tottenham's right to appeal Bentancur's seven-game ban**: [Link](https://www.flashscore.com/news/soccer-premier-league-postecoglou-defends-tottenham-s-right-to-appeal-bentancur-s-seven-game-ban/KUGl2Oy0/)
+
+
 ### paris (N/A, Tue, 26 Nov 2024 14:10:00 -0800)
 
 - **Ensemble, décontractés et heureux: ces clichés (presque) ordinaires du roi 
