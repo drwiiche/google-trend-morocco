@@ -1,3 +1,13 @@
+### sporting vs arsenal (N/A, Tue, 26 Nov 2024 12:10:00 -0800)
+
+- **‘The player that connects everything’ – Arteta says Odegaard turns Arsenal 
+into ‘different team’**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/mikel-arteta-martin-odegaard-arsenal-success-return-david-raya-sporting-champions-league_sto20057319/story.shtml)
+- **Bukayo Saka’s top performance against Forest has only extended his 
+incredible run of form**: [Link](https://www.justarsenal.com/bukayo-sakas-top-performance-against-forest-has-only-extended-his-incredible-run-of-form/381265)
+- **Ethan Nwaneri: The English Lamine Yamal Being Shaped by Mikel Arteta's 
+'Cement' and 'Brick by Brick' Philosophy**: [Link](https://www.footboom1.com/en/news/football/2100953-ethan-nwaneri-the-english-lamine-yamal-being-shaped-by-mikel-arteta-s-cement-and-brick-by-brick-philosophy)
+
+
 ### كورة (N/A, Tue, 26 Nov 2024 13:00:00 -0800)
 
 - **هواجس الماضي القريب.. هل تقتل لعنة الشباب موهبة يامال؟**: [Link](https://www.kooora.com/?n=1370622)
