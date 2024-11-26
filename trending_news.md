@@ -1,3 +1,11 @@
+### as far (N/A, Tue, 26 Nov 2024 11:40:00 -0800)
+
+- **Who Will Get Off to a Strong Start: Raja or ASFAR in the CAF Champions 
+League?**: [Link](https://www.footboom1.com/en/news/football/2105723-who-will-get-off-to-a-strong-start-raja-or-asfar-in-the-caf-champions-league)
+- **African Club Cups: Raja/AS FAR Headliners**: [Link](https://www.footboom1.com/en/news/football/2104788-african-club-cups-raja-as-far-headliners)
+- **CAF Women’s Champions League Final Post Match Facts**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/caf-women-s-champions-league-final-post-match-facts/)
+
+
 ### barca (N/A, Tue, 26 Nov 2024 11:30:00 -0800)
 
 - **FC Barcelona News: 26 November 2024; All set for Brest clash, Barça send 
