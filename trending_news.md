@@ -1,3 +1,10 @@
+### tp mazembe – mc alger (N/A, Tue, 26 Nov 2024 05:40:00 -0800)
+
+- **TP Mazembe-MC Alger : voici le 11 de départ de Beaumelle**: [Link](https://fennecfootball.com/tp-mazembe-mc-alger-voici-le-11-de-depart-de-beaumelle/)
+- **La « CAF » sanctionne le Mouloudia Algérie - HIBAPRESS**: [Link](https://fr.hibapress.com/news-149669.html)
+- **Sports - La CAF veut mettre le MCA sous pression**: [Link](https://www.lexpressiondz.com/sports/la-caf-veut-mettre-le-mca-sous-pression-388134)
+
+
 ### bateau egypte (N/A, Tue, 26 Nov 2024 02:00:00 -0800)
 
 - **Egypte: 17 disparus après le naufrage d'un bateau touristique en mer Rouge**: [Link](https://fr.hespress.com/398016-egypte-17-disparus-apres-le-naufrage-dun-bateau-touristique-en-mer-rouge.html)
