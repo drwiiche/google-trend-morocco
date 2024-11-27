@@ -1,3 +1,20 @@
+### girona fc (N/A, Wed, 27 Nov 2024 11:00:00 -0800)
+
+- **Preview: Sturm Graz vs. Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sturm-graz/champions-league/preview/preview-sturm-graz-vs-girona-prediction-team-news-lineups_559039.html)
+- **Soccer-Resurgent Girona aim to carry momentum into Champions League clash 
+with Sturm Graz**: [Link](https://www.msn.com/en-ae/sports/football/soccer-resurgent-girona-aim-to-carry-momentum-into-champions-league-clash-with-sturm-graz/ar-AA1uOfVr)
+- **UEFA Champions League Sturm Graz versus Girona kick off 17:45 Wed 27 Nov 
+2024**: [Link](https://www.bbc.com/sport/football/live/clygvzz52g0t)
+
+
+### liverpool – real madrid (N/A, Wed, 27 Nov 2024 09:10:00 -0800)
+
+- **Preview: Liverpool vs. Real Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/liverpool/champions-league/preview/preview-liverpool-vs-real-madrid-prediction-team-news-lineups_559006.html)
+- **Liverpool vs Real Madrid live streaming: How to watch UCL match in India, 
+TV channel, kick-off time, and**: [Link](https://timesofindia.indiatimes.com/sports/football/top-stories/liverpool-vs-real-madrid-live-streaming-how-to-watch-ucl-match-in-india-tv-channel-kick-off-time-and-predicted-xis/articleshow/115739030.cms)
+- **Highlighted Matches Today in the Champions League**: [Link](https://www.footboom1.com/en/news/football/2110089-highlighted-matches-today-in-the-champions-league)
+
+
 ### ريال مدريد (N/A, Wed, 27 Nov 2024 10:30:00 -0800)
 
 - **أنشيلوتي يعلن تشكيلًا اضطراريًا لمواجهة ليفربول**: [Link](https://www.kooora.com/?n=1371043)
