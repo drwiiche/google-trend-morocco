@@ -1,3 +1,18 @@
+### kooora (N/A, Wed, 27 Nov 2024 13:20:00 -0800)
+
+- **مصير إنريكي ومنافس حكيمي.. باريس يضع خطة الشتاء**: [Link](https://www.kooora.com/?n=1371036)
+- **اضعف حصيلة نقاطية للباريسي بعد خمس جولات من دوري ابطال اوروبا**: [Link](https://hihi2.com/2024/11/27/p2954103.html)
+- **هذه هي حسابات حكيمي للتأهل العصيب**: [Link](https://www.almountakhab.com/node/13206959)
+
+
+### mbappe (N/A, Wed, 27 Nov 2024 13:20:00 -0800)
+
+- **Liverpool dodged a bullet with Kylian Mbappe: Superstar forward has 
+undoubtedly made Real Madrid worse**: [Link](https://www.goal.com/en/lists/liverpool-dodged-bullet-kylian-mbappe-superstar-forward-real-madrid-worse/bltdf196f7d0f003d3a)
+- **They Signed the World’s Best Soccer Player—and They Somehow Got Worse**: [Link](https://www.wsj.com/sports/soccer/kylian-mbappe-real-madrid-goals-ab33bc97)
+- **The cold, hard numbers behind Kylian Mbappé's malaise at Real Madrid**: [Link](https://www.espn.com/soccer/story/_/id/42606854/the-numbers-kylian-mbappes-malaise-real-madrid)
+
+
 ### classement champions league (N/A, Wed, 27 Nov 2024 13:10:00 -0800)
 
 - **Ligue des Champions de l’UEFA: cinq marocains à suivre ce soir**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-de-luefa-cinq-marocains-a-suivre-ce-soir_XMYPQT6V4VAVRFE47L4CTWMIIE/)
