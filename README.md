@@ -1,3 +1,26 @@
+### match live (N/A, Wed, 27 Nov 2024 12:20:00 -0800)
+
+- **Syed Mushtaq Ali Trophy 2024: Rajasthan cricket team beat Hyderabad by 24 
+runs**: [Link](https://www.rajasthanroyals.com/latest-news/syed-mushtaq-ali-trophy-2024-hyderabad-vs-rajasthan-report)
+- **Hyderabad vs Rajasthan Highlights: Rajasthan beat Hyderabad by 24 runs | 
+Mint**: [Link](https://www.livemint.com/sports/cricket-news/hyderabad-vs-rajasthan-live-score-match-40-of-syed-mushtaq-ali-trophy-2024-final-updates-today-27-nov-2024-11732681779952.html)
+- **HYD vs RJS Dream11 Prediction Today Match 40 Indian Domestic T20 Trophy 2024**: [Link](https://cricketaddictor.com/fantasy-cricket/hyd-vs-rjs-dream11-prediction-today-match-40-indian-domestic-t20-trophy-2024/)
+
+
+### yallakora (N/A, Wed, 27 Nov 2024 12:10:00 -0800)
+
+- **المصري يعبر عقبة إنييمبا في الكونفيدرالية**: [Link](https://www.kooora.com/?n=1371046)
+- **صلاح محسن يقود هجوم المصرى أمام إنيمبا بالكونفيدرالية**: [Link](https://www.youm7.com/story/2024/11/27/%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D8%AD%D8%B3%D9%86-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%89-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D9%86%D9%8A%D9%85%D8%A8%D8%A7-%D8%A8%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9/6792383)
+- **المصري البورسعيدي يستحوذ على إنيمبا بهدف في الشوط الأول بالكونفدرالية**: [Link](https://sport.elwatannews.com/ar/1/1/1188573/%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A7%D9%84%D8%A8%D9%88%D8%B1%D8%B3%D8%B9%D9%8A%D8%AF%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AD%D9%88%D8%B0-%D8%B9%D9%84%D9%89-%D8%A5%D9%86%D9%8A%D9%85%D8%A8%D8%A7-%D8%A8%D9%87%D8%AF%D9%81-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D8%A8%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9)
+
+
+### كورة لايف بث مباشر (N/A, Wed, 27 Nov 2024 12:00:00 -0800)
+
+- **أرتيتا بعد الخماسية: أظهرنا شخصيتنا أمام سبورتنج لشبونة**: [Link](https://m.kooora.com/?n=1370900&o=n)
+- **اولى بوادر انهيار سبورتينغ لشبونة بعد رحيل مدربه اموريم**: [Link](https://hihi2.com/2024/11/27/p2953836.html)
+- **ملخص وأهداف مباراة أرسنال وسبورتنج لشبونة (5-1) بدورى أبطال أوروبا**: [Link](https://www.almasryalyoum.com/news/details/3315737)
+
+
 ### yalla kora (N/A, Wed, 27 Nov 2024 12:00:00 -0800)
 
 - **"مورينيو كان محقاً".. نجم مصري يقتحم معركة صلاح و"الأسطورة"**: [Link](https://www.alarabiya.net/sport/2024/11/27/-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%83%D8%A7%D9%86-%D9%85%D8%AD%D9%82%D8%A7%D9%8B-%D9%86%D8%AC%D9%85-%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D9%82%D8%AA%D8%AD%D9%85-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%B5%D9%84%D8%A7%D8%AD-%D9%88-%D8%A7%D9%84%D8%A3%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-)
