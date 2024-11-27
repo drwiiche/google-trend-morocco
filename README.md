@@ -1,3 +1,49 @@
+### نهضة بركان (N/A, Wed, 27 Nov 2024 13:00:00 -0800)
+
+- **النهضة البركانية يختبر جاهزيته أمام لواندا سول**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%86%D9%87%D8%B6%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%83%D8%A7%D9%86%D9%8A%D8%A9-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1-%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%AA%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%88%D8%A7%D9%86%D8%AF%D8%A7-%D8%B3%D9%88%D9%84-2024-11-27)
+- **المحمدي: "سنلعب مباراتنا الأولى بكأس الكونفدرالية في ملعبنا ونحن جاهزون 
+للمواجهة"**: [Link](https://m.elbotola.com/article/2024-11-27-12-05-329.html)
+- **الموساوي أبرز الغائبين**: [Link](https://www.almountakhab.com/node/13206956)
+
+
+### flashscore (N/A, Wed, 27 Nov 2024 12:50:00 -0800)
+
+- **Man Utd, Spurs news conferences, Man City, Arsenal Champions League 
+reaction and build-up**: [Link](https://www.bbc.com/sport/football/live/cdrd80k0jv3t)
+- **🔴 UCL LIVE: Stuttgart collapse in Belgrade; Sturm Graz stun Girona**: [Link](https://onefootball.com/en/news/ucl-live-stuttgart-collapse-in-belgrade-sturm-graz-stun-girona-40364270)
+- **Champions League: Liverpool hosting Real Madrid, Aston Villa facing Juventus**: [Link](https://www.flashscore.com/news/soccer-champions-league-champions-league-live-girona-stuttgart-in-early-action-liverpool-vs-real-madrid-to-come/EeSi5267/)
+
+
+### مباراة اليوم (N/A, Wed, 27 Nov 2024 12:50:00 -0800)
+
+- **ريال مدريد يتخطى ليغانيس دون عناء**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AA%D8%AE%D8%B7%D9%89-%D9%84%D9%8A%D8%BA%D8%A7%D9%86%D9%8A%D8%B3-%D8%AF%D9%88%D9%86-%D8%B9%D9%86%D8%A7%D8%A1-2024-11-24)
+- **فينيسيوس يمنح مبابي الهدية الأولى**: [Link](https://www.kooora.com/?n=1370318)
+- **نتائج أخر 5 مباريات لـ ريال مدريد قبل مواجهة ليفربول**: [Link](https://hihi2.com/2024/11/27/p2953122.html)
+
+
+### monaco fc (N/A, Wed, 27 Nov 2024 12:50:00 -0800)
+
+- **Former Benfica Man Reflects on Monaco Journey: 'Life Gave Me This Club'**: [Link](https://www.footboom1.com/en/news/football/2108968-former-benfica-man-reflects-on-monaco-journey-life-gave-me-this-club)
+- **MATCH REPORT | Monaco beat Benfica in Youth League**: [Link](https://sports.yahoo.com/match-report-monaco-beat-benfica-172100782.html)
+- **Preview: Monaco vs. Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/as-monaco/champions-league/preview/preview-monaco-vs-benfica-prediction-team-news-lineups_559033.html)
+
+
+### livescore (N/A, Wed, 27 Nov 2024 12:50:00 -0800)
+
+- **LiveScore calls for ‘Extra Added Time’ on mental health**: [Link](https://sbcnews.co.uk/marketing/2024/11/25/livescore-extra-time-nov/)
+- **Dimitar Berbatov sends mental health rallying cry as LiveScore launch 
+Premier League campaign**: [Link](https://www.mirror.co.uk/sport/football/news/dimitar-berbatov-mental-health-livescore-34169243)
+- **Berbatov Champions 'Extra Added Time' Initiative for Mental Health Awareness**: [Link](https://www.footboom1.com/en/news/football/2079076-berbatov-champions-extra-added-time-initiative-for-mental-health-awareness)
+
+
+### psv (N/A, Wed, 27 Nov 2024 12:50:00 -0800)
+
+- **Zenden en Janssen hard voor PSV: 'Het oogt gemakzuchtig'**: [Link](https://www.vi.nl/nieuws/zenden-en-janssen-hard-voor-psv-het-oogt-gemakzuchtig)
+- **Luuk de Jong en Noa Lang starten bij PSV tegen Shakhtar Donetsk**: [Link](https://www.telegraaf.nl/sport/1954529004/luuk-de-jong-en-noa-lang-keren-tegen-shakhtar-donetsk-terug-in-basis-bij-psv)
+- **PSV nieuws: Opstelling PSV: Bosz heeft Lang terug en beslist over 
+spitspositie**: [Link](https://www.fcupdate.nl/voetbalnieuws/2024/11/psv-nieuws-opstelling-psv-bosz-heeft-lang-terug-en-beslist-over-spitspositie)
+
+
 ### bet365 (N/A, Wed, 27 Nov 2024 12:40:00 -0800)
 
 - **bet365 Bonus Code ND365BONUS: Claim $1k or $150 Black Friday Week Promo**: [Link](https://lastwordonsports.com/nfl/2024/11/26/bet365-bonus-code-nd365bonus-claim-1k-or-150-black-friday-week-promo/)
