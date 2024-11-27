@@ -1,3 +1,11 @@
+### avocat gilles devers (N/A, Wed, 27 Nov 2024 08:30:00 -0800)
+
+- **Avocat français du Front Polisario, Gilles Devers est décédé**: [Link](https://ledesk.ma/encontinu/avocat-francais-du-front-polisario-gilles-devers-est-decede/)
+- **Décès de Gilles Devers, l'avocat du Polisario auprès de la Justice 
+européenne**: [Link](https://www.lopinion.ma/Deces-de-Gilles-Devers-l-avocat-du-Polisario-aupres-de-la-Justice-europeenne_a60614.html)
+- **Mort de Gilles Devers, l’avocat des peuples opprimés**: [Link](https://www.humanite.fr/monde/anticolonialisme/mort-de-gilles-devers-lavocat-des-peuples-opprimes)
+
+
 ### bourse maroc (N/A, Wed, 27 Nov 2024 07:00:00 -0800)
 
 - **Marsa Maroc : AGR à l'achat, une croissance bénéficiaire à deux chiffres 
