@@ -1,3 +1,11 @@
+### pep guardiola (N/A, Wed, 27 Nov 2024 04:20:00 -0800)
+
+- **Guardiola, sobre las autolesiones: “Me las hice con los dedos... quiero 
+hacerme daño”**: [Link](https://as.com/futbol/champions/guardiola-no-nos-puede-pasar-esto-n/)
+- **El Manchester City, contra las cuerdas: "Esto es territorio desconocido..."**: [Link](https://www.marca.com/futbol/champions-league/2024/11/27/manchester-city-cuerdas-esto-territorio-desconocido.html)
+- **¡Guardiola aparece con la cabeza y la nariz llenas de arañazos!**: [Link](https://www.mundodeportivo.com/futbol/champions-league/20241126/1002360456/guardiola-aparece-lleno-aranazos-cabeza-nariz.html)
+
+
 ### tzipi livni (N/A, Wed, 27 Nov 2024 01:50:00 -0800)
 
 - **Pressure Portugal to Arrest and Prosecute Israeli War Criminal Tzipi Livni**: [Link](https://bdsmovement.net/news/pressure-portugal-arrest-and-prosecute-israeli-war-criminal-tzipi-livni)
