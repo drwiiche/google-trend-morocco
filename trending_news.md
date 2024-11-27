@@ -1,3 +1,19 @@
+### مولاي الحسن (N/A, Wed, 27 Nov 2024 06:20:00 -0800)
+
+- **رفقة ابنيه وبسروال "من يقرر الحرب".. صور محمد السادس بباريس تثير تفاعل 
+مغاربة**: [Link](https://www.alhurra.com/morocco/2024/11/26/%D8%B1%D9%81%D9%82%D8%A9-%D8%A7%D8%A8%D9%86%D9%8A%D9%87-%D9%88%D8%A8%D8%B3%D8%B1%D9%88%D8%A7%D9%84-%D9%8A%D9%82%D8%B1%D8%B1-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B5%D9%88%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D8%A8%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%AA%D9%81%D8%A7%D8%B9%D9%84-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9)
+- **سيلفي حنان أبوي .. صور الملك تخطف الأنظار**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%84%D9%81%D9%8A-%D8%AD%D9%86%D8%A7%D9%86-%D8%A3%D8%A8%D9%88%D9%8A-%D8%B5%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%AA%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D9%86%D8%B8%D8%A7-1471268.html)
+- **صور الملك وهو يتجول رفقة نجليه في باريس تلهب مواقع التواصل الاجتماعي**: [Link](https://ar.le360.ma/politique/ZLLUYVAMWNHWFDVDH2MUZE2LFQ/)
+
+
+### yousri bouzok (N/A, Wed, 27 Nov 2024 06:00:00 -0800)
+
+- **Algerian player boycotts match over Morocco map on jersey**: [Link](https://en.yabiladi.com/articles/details/156714/algerian-player-boycotts-match-over.html)
+- **The Raja Jersey and the Map of Morocco at the Center of Debate**: [Link](https://www.footboom1.com/en/news/football/2107747-the-raja-jersey-and-the-map-of-morocco-at-the-center-of-debate)
+- **Algerian Player Yousri Bouzok Reportedly Pulls Out of Raja Match Over Full 
+Morocco Map on Jersey**: [Link](https://moroccoworldnews.com/2024/11/366609/algerian-player-yousri-bouzok-reportedly-pulls-out-of-raja-match-over-full-morocco-map-on-jersey)
+
+
 ### pep guardiola (N/A, Wed, 27 Nov 2024 04:20:00 -0800)
 
 - **Guardiola, sobre las autolesiones: “Me las hice con los dedos... quiero 
