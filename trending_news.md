@@ -1,3 +1,36 @@
+### bet365 (N/A, Wed, 27 Nov 2024 12:40:00 -0800)
+
+- **bet365 Bonus Code ND365BONUS: Claim $1k or $150 Black Friday Week Promo**: [Link](https://lastwordonsports.com/nfl/2024/11/26/bet365-bonus-code-nd365bonus-claim-1k-or-150-black-friday-week-promo/)
+- **New bet365 promo: Bet $5, Get $150 in Bonus Bets for NFL Thanksgiving**: [Link](https://www.pennlive.com/betting/2024/11/new-bet365-promo-bet-5-get-150-in-bonus-bets-for-nfl-thanksgiving.html)
+- **New Bet365 Bonus Code “DIMERS”: Upgraded $1,150 Betting Bonus Now Available 
+for NBA Cup Tonight and NFL on Thanksgiving**: [Link](https://www.dimers.com/news/new-bet365-bonus-code-offers-150-bonus-for-sports-betting-odds-on-november-27-2024)
+
+
+### modric (N/A, Wed, 27 Nov 2024 12:40:00 -0800)
+
+- **A Special Gesture: Luka Modric Sends His Ballon d'Or to Young Croatian 
+Player After Serious Injury**: [Link](https://www.footboom1.com/en/news/football/2106336-a-special-gesture-luka-modric-sends-his-ballon-d-or-to-young-croatian-player-after-serious-injury)
+- **Luka Modric snubs Lionel Messi and Cristiano Ronaldo as he builds ultimate 
+six-a-side team...**: [Link](https://talksport.com/football/2319539/luka-modric-snubs-lionel-messi-cristiano-ronaldo-six-a-side/)
+- **Players who made 100 Champions League appearances**: [Link](https://www.fourfourtwo.com/features/players-who-made-100-champions-league-appearances)
+
+
+### raul asencio (N/A, Wed, 27 Nov 2024 12:40:00 -0800)
+
+- **Real Madrid defender Raul Asencio and his alleged involvement in sex-tape 
+investigation**: [Link](https://www.nytimes.com/athletic/5951188/2024/11/27/raul-asencio-real-madrid-sex-tape-investigation/)
+- **“He’s ready” – Carlo Ancelotti confirms 21-year-old Real Madrid rookie will 
+start against Liverpool**: [Link](https://www.football-espana.net/2024/11/26/hes-ready-carlo-ancelotti-confirms-21-year-old-real-madrid-rookie-will-start-against-liverpool)
+- **Breakout Real Madrid gem set to face his sternest test yet tonight**: [Link](https://sports.yahoo.com/breakout-real-madrid-gem-set-152700985.html)
+
+
+### rma (N/A, Wed, 27 Nov 2024 12:40:00 -0800)
+
+- **Mbappé finds rhythm in preferred position before Madrid visit Liverpool**: [Link](https://www.theguardian.com/football/2024/nov/27/kylian-mbappe-preferred-position-real-madrid-liverpool)
+- **Real Madrid Star Kylian Mbappe Sheds Light On Vinicius Jr. Relationship**: [Link](https://www.forbes.com/sites/tomsanderson/2024/11/25/real-madrid-star-kylian-mbappe-sheds-light-on-vinicius-jr-relationship/)
+- **Real Madrid 3-0 Leganés (Nov 24, 2024) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/704796)
+
+
 ### bein sport (N/A, Wed, 27 Nov 2024 12:30:00 -0800)
 
 
