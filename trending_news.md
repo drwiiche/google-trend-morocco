@@ -1,3 +1,28 @@
+### mohamed salah (N/A, Wed, 27 Nov 2024 13:30:00 -0800)
+
+- **Richard Hughes branded a 'robot' and blamed for lacking emotion in Mo Salah 
+Liverpool contract talks**: [Link](https://www.rousingthekop.com/2024/11/27/richard-hughes-branded-a-robot-and-blamed-for-lacking-emotion-in-mo-salah-liverpool-contract-talks/)
+- **Liverpool Stars 'Shocked' After What Has Happened in Last 48 Hours**: [Link](https://www.givemesport.com/liverpool-teammates-shocked-after-salah-latest/)
+- **'How do you replace 30 goals a season?' - Ferdinand and Keown defend Salah 
+after contract dispute**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/rio-ferdinand-martin-keown-mohamed-salah-contract-liverpool_sto20057647/story.shtml)
+
+
+### kylian mbappé (N/A, Wed, 27 Nov 2024 13:30:00 -0800)
+
+- **Kylian Mbappé Ranks 125th in Shot Accuracy Among Forwards in Europe's Top 5 
+Leagues**: [Link](https://www.footboom1.com/en/news/football/2106066-kylian-mbappe-ranks-125th-in-shot-accuracy-among-forwards-in-europe-s-top-5-leagues)
+- **UEFA Champions League: Seven games including Aston Villa v Juventus & 
+Liverpool v Real Madrid - radio & text**: [Link](https://www.bbc.com/sport/football/live/clygx9q6qz3t)
+- **Liverpool v Real Madrid: Champions League – live**: [Link](https://www.theguardian.com/football/live/2024/nov/27/liverpool-v-real-madrid-champions-league-live-score-updates)
+
+
+### ترتيب دوري ابطال اوروبا (N/A, Wed, 27 Nov 2024 13:30:00 -0800)
+
+- **جدول ترتيب دوري أبطال أوروبا قبل مباراة ليفربول ضد الريال اليوم**: [Link](https://www.almasryalyoum.com/news/details/3316468)
+- **حفلة أهداف.. نتائج كبيرة الليلة في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/11/27/p2952806.html)
+- **نتائج مباريات دوري أبطال أوروبا**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/412999.html)
+
+
 ### kooora (N/A, Wed, 27 Nov 2024 13:20:00 -0800)
 
 - **مصير إنريكي ومنافس حكيمي.. باريس يضع خطة الشتاء**: [Link](https://www.kooora.com/?n=1371036)
