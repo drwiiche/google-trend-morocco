@@ -1,3 +1,24 @@
+### marca (N/A, Wed, 27 Nov 2024 14:20:00 -0800)
+
+
+
+
+### score live (N/A, Wed, 27 Nov 2024 14:10:00 -0800)
+
+- **5 Things: Flyers @ Predators**: [Link](https://www.nhl.com/flyers/news/5-things-flyers-predators-x9492)
+- **Wednesday Morning Fly By: Prepping for thanks**: [Link](https://www.broadstreethockey.com/post/philadelphia-flyers-news-wednesday-morning-fly-by-prepping-for-thanks/)
+- **Will Roman Josi Score a Goal Against the Flyers on November 27?**: [Link](https://www.vicksburgpost.com/2024/11/26/will-roman-josi-score-a-goal-against-the-flyers-on-november-27/)
+
+
+### classement champions league 2025 (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **Liverpool engloutit le Real Madrid et continue son sans-faute**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/liverpool-engloutit-le-real-madrid-2-0-et-continue-son-sans-faute-en-ligue-des-champions_sto10403614/story.shtml)
+- **DIRECT. Liverpool-Real Madrid (Ligue des champions 2024-2025) à suivre en 
+direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/liverpool-real-madrid-live/668047)
+- **DIRECT. Ligue des champions: suivez Liverpool-Real Madrid et le multiplex 
+de la 5e journée en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-ligue-des-champions-suivez-liverpool-real-madrid-et-le-multiplex-de-la-5e-journee-en-live_LS-202411270378.html)
+
+
 ### ترتيب دوري أبطال (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
 
 - **جدول ترتيب دوري أبطال أوروبا قبل مباراة ليفربول ضد الريال اليوم**: [Link](https://www.almasryalyoum.com/news/details/3316468)
