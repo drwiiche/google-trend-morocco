@@ -1,3 +1,11 @@
+### mac allister (N/A, Wed, 27 Nov 2024 14:00:00 -0800)
+
+- **« Un gros résultat » - Caoimhin Kelleher et Alexis Mac Allister sur 
+Liverpool 2-0 Real Madrid**: [Link](https://www.liverpoolfc.com/fr/news/big-result-caoimhin-kelleher-and-alexis-mac-allister-liverpool-2-0-real-madrid)
+- **Chelsea prêt à piocher dans l’effectif de Liverpool ?**: [Link](https://www.les-transferts.com/rumeurs-transferts/chelsea-pret-a-piocher-dans-leffectif-de-liverpool.html)
+- **Chelsea lié à Kelleher : Quelle est la véritable histoire ?**: [Link](https://www.footboom1.com/fr/news/football/2079301-chelsea-linked-with-kelleher-what-s-the-real-story)
+
+
 ### hihi2 (N/A, Wed, 27 Nov 2024 14:30:00 -0800)
 
 
