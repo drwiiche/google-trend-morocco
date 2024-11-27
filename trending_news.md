@@ -1,3 +1,46 @@
+### ترتيب دوري أبطال (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **جدول ترتيب دوري أبطال أوروبا قبل مباراة ليفربول ضد الريال اليوم**: [Link](https://www.almasryalyoum.com/news/details/3316468)
+- **حفلة أهداف.. نتائج كبيرة الليلة في دوري أبطال أوروبا**: [Link](https://hihi2.com/2024/11/27/p2952806.html)
+- **نتائج مباريات دوري أبطال أوروبا**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/412999.html)
+
+
+### endrick (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **Barcelona ace beats Man Utd stars to prestigious award previously won by 
+Rooney**: [Link](https://manutdnews.com/barcelona-ace-beats-man-utd-stars-to-prestigious-award-previously-won-by-rooney/)
+- **Golden Boy 2024 | Yildiz receives the most votes online!**: [Link](https://sports.yahoo.com/golden-boy-2024-yildiz-receives-174500529.html)
+- **Who could win 2024 Golden Boy: Yamal, Mainoo, Yildiz nominated**: [Link](https://www.yardbarker.com/soccer/articles/who_could_win_2024_golden_boy_yamal_mainoo_yildiz_nominated/s1_17344_41308445)
+
+
+### sofascore (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **Kochergin scored for Raków (VIDEO) (Nov. 24, 2024)**: [Link](https://dynamo.kiev.ua/en/news/627783-kochergin-scored-for-rakw-video)
+- **Vladyslav Kocherhin Named in Polish League Team of the Week by Sofascore**: [Link](https://www.footboom1.com/en/news/football/2108240-vladyslav-kocherhin-named-in-polish-league-team-of-the-week-by-sofascore)
+- **Vladyslav Kocherhin Scores Winning Goal for Raków against Korona (Video)**: [Link](https://www.footboom1.com/en/news/football/2098590-vladyslav-kocherhin-scores-winning-goal-for-rakow-against-korona-video)
+
+
+### courtois (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **Courtois saves Real**: [Link](https://www.koha.net/en/futboll/courtoisi-e-shpeton-realin)
+- **Courtois Is Already Thinking About Retirement**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/courtois-is-already-thinking-about-retirement-2024-11-26)
+- **Raúl Arribas: "Lunin Has to Compete with a Monster"**: [Link](https://www.footboom1.com/en/news/football/2104340-raul-arribas-lunin-has-to-compete-with-a-monster)
+
+
+### bellingham (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **Starting Lineups - Liverpool vs Real Madrid | 27.11.2024**: [Link](https://www.skysports.com/football/liverpool-vs-real-madrid/teams/521685)
+- **Bellingham opens up on 'hero' Gerrard and Liverpool transfer links**: [Link](https://www.eurosport.com/football/champions-league/2024-2025/jude-bellingham-liverpool-move-hero-steven-gerrard_sto20057608/story.shtml)
+- **“Would I love to play with Trent? We’ll see what happens'**: [Link](https://www.besoccer.com/new/ldquo-would-i-love-to-play-with-trent-we-rsquo-ll-see-what-happens-1339304)
+
+
+### koora (N/A, Wed, 27 Nov 2024 13:30:00 -0800)
+
+- **بعد إيذاء نفسه.. جوارديولا يتراجع عن اعترافه الجدلي**: [Link](https://www.kooora.com/?n=1370982)
+- **جروح غوارديولا.. سببها "شاب جزائري"**: [Link](https://www.alarabiya.net/sport/2024/11/27/%D8%AC%D8%B1%D9%88%D8%AD-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B3%D8%A8%D8%A8%D9%87%D8%A7-%D8%B4%D8%A7%D8%A8-%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-)
+- **تعادل فينورد المثير ضد سيتي يدخله تاريخ دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2024/11/27/%D9%81%D9%8A%D9%86%D9%88%D8%B1%D8%AF-%D9%8A%D9%86%D8%B6%D9%85-%D9%84%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9)
+
+
 ### 365 (N/A, Wed, 27 Nov 2024 13:30:00 -0800)
 
 - **Microsoft Outages: Issues Resolved More Than 24 Hours After Outlook, Teams 
