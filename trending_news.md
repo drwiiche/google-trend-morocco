@@ -1,3 +1,20 @@
+### mohamed aouzal (N/A, Wed, 27 Nov 2024 03:00:00 -0800)
+
+- **L’ancien président du Raja, Mohamed Aouzal, placé en détention préventive à 
+Oukacha**: [Link](https://fr.le360.ma/societe/lancien-president-du-raja-mohamed-aouzal-place-en-detention-preventive-a-oukacha_C3MPDUT25FBALLGI24RWNE5QBQ/)
+- **Casablanca : l’ancien président du Raja, Mohamed Aouzal, placé en détention 
+pour abus de confiance**: [Link](https://www.barlamane.com/fr/casablanca-lancien-president-du-raja-mohamed-aouzal-place-en-detention-pour-abus-de-confiance/)
+- **L'ancien président du Raja Club a été arrêté et placé à la prison d'Okasha 
+- HIBAPRESS**: [Link](https://fr.hibapress.com/news-150261.html)
+
+
+### cmgp (N/A, Wed, 27 Nov 2024 02:30:00 -0800)
+
+- **CMGP. Une IPO pour financer l’avenir et attirer de nouveaux investisseurs**: [Link](https://medias24.com/2024/11/26/cmgp-une-ipo-pour-financer-lavenir-et-attirer-de-nouveaux-investisseurs/)
+- **Les détails de l’introduction en bourse de CMGP Group**: [Link](https://ledesk.ma/2024/11/23/les-details-de-lintroduction-en-bourse-de-cmgp-group/)
+- **Les ambitions de CMGP Group après son introduction en Bourse**: [Link](https://lematin.ma/economie/les-ambitions-de-cmgp-group-apres-son-introduction-en-bourse/252696)
+
+
 ### roi mohammed vi paris (N/A, Tue, 26 Nov 2024 15:50:00 -0800)
 
 - **Le Roi Mohammed VI, le Prince Moulay El Hassan et la Princesse Lalla 
