@@ -1,3 +1,12 @@
+### roi mohammed vi paris (N/A, Tue, 26 Nov 2024 15:50:00 -0800)
+
+- **Le Roi Mohammed VI, le Prince Moulay El Hassan et la Princesse Lalla 
+Khadija à Paris**: [Link](https://fr.hespress.com/398147-le-roi-mohammed-vi-le-prince-moulay-el-hassan-et-la-princesse-lalla-khadija-a-paris.html)
+- **Mon Roi est tout simplement Royal… Il est le Roi de tout le monde**: [Link](https://maroc-diplomatique.net/mon-roi-est-tout-simplement-royal-il-est-le-roi-de-tout-le-monde/)
+- **Des photos du roi et ses enfants à Paris suscitent l’enthousiasme sur les 
+réseaux sociaux**: [Link](https://mobile.telquel.ma/instant-t/2024/11/26/des-photos-du-roi-et-ses-enfants-a-paris-suscitent-lenthousiasme-sur-les-reseaux-sociaux_1905951/)
+
+
 ### anne hidalgo (N/A, Tue, 26 Nov 2024 17:40:00 -0800)
 
 - **Anne Hidalgo au « Monde » : « Je ne me présenterai pas à un troisième 
