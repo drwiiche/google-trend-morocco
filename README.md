@@ -1,3 +1,20 @@
+### 365 (N/A, Wed, 27 Nov 2024 13:30:00 -0800)
+
+- **Microsoft Outages: Issues Resolved More Than 24 Hours After Outlook, Teams 
+Impacted**: [Link](https://www.forbes.com/sites/maryroeloffs/2024/11/26/microsoft-outages-issues-resolved-more-than-24-hours-after-outlook-teams-impacted/)
+- **Microsoft’s massive Outlook and Teams outage resolves after more than a day**: [Link](https://www.cnn.com/2024/11/25/tech/microsofts-outlook-teams-outage/index.html)
+- **Microsoft 365 outage impacts Exchange Online, Teams, Sharepoint**: [Link](https://www.bleepingcomputer.com/news/microsoft/microsoft-365-outage-impacts-exchange-online-teams-sharepoint/)
+
+
+### real madrid vs barcelona (N/A, Wed, 27 Nov 2024 13:20:00 -0800)
+
+- **Los Barça Legends jugaran ante el Real Madrid Leyendas**: [Link](https://www.fcbarcelona.es/es/noticias/4176296/los-barca-legends-jugaran-ante-el-real-madrid-leyendas)
+- **Djokovic, la otra estrella invitada en el clásico de leyendas entre Barça y 
+Madrid**: [Link](https://www.sport.es/es/noticias/barca/djokovic-estrella-invitada-clasico-leyendas-112109333)
+- **Ver EN VIVO ONLINE FC Barcelona vs. Real Madrid, Amistoso Juego de 
+Leyendas: Dónde ver, TV, canal y Streaming**: [Link](https://www.goal.com/es-ar/listados/ver-en-vivo-online-fc-barcelona-vs-real-madrid-amistoso-juego-de-leyendas-donde-ver-tv-canal-streaming/blt761a362940e38556)
+
+
 ### mohamed salah (N/A, Wed, 27 Nov 2024 13:30:00 -0800)
 
 - **Richard Hughes branded a 'robot' and blamed for lacking emotion in Mo Salah 
