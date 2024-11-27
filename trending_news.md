@@ -1,3 +1,19 @@
+### ليفربول ضد الريال (N/A, Wed, 27 Nov 2024 11:10:00 -0800)
+
+- **أنشيلوتي يعلن تشكيلًا اضطراريًا لمواجهة ليفربول**: [Link](https://www.kooora.com/?n=1371043)
+- **الرسم التكتيكي لـ ريال مدريد أمام ليفربول**: [Link](https://hihi2.com/2024/11/27/p2954016.html)
+- **الملكي أبكى صلاح 7 مرات في 8 مباريات.. فهل ينتقم بالهدف 50؟**: [Link](https://elaph.com/Web/Sports/2024/11/1554330.html)
+
+
+### aston villa – juventus (N/A, Wed, 27 Nov 2024 11:10:00 -0800)
+
+- **UEFA Champions League Aston Villa versus Juventus kick off 20:00 Wed 27 Nov 
+2024**: [Link](https://www.bbc.com/sport/football/live/c3e8kww9300t)
+- **Aston Villa vs Juventus LIVE: Champions League team news and line-ups as 
+hosts target famous night**: [Link](https://sports.yahoo.com/aston-villa-vs-juventus-live-173816878.html)
+- **Motta, Cambiaso confident ahead of Aston Villa clash despite truncated squad**: [Link](https://www.blackwhitereadallover.com/2024/11/27/24306845/thiago-motta-andrea-cambiaso-juventus-aston-villa2024-champions-league-press-conference-analysis)
+
+
 ### girona fc (N/A, Wed, 27 Nov 2024 11:00:00 -0800)
 
 - **Preview: Sturm Graz vs. Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sturm-graz/champions-league/preview/preview-sturm-graz-vs-girona-prediction-team-news-lineups_559039.html)
