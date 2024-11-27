@@ -1,3 +1,45 @@
+### ريال مدريد (N/A, Wed, 27 Nov 2024 10:30:00 -0800)
+
+- **أنشيلوتي يعلن تشكيلًا اضطراريًا لمواجهة ليفربول**: [Link](https://www.kooora.com/?n=1371043)
+- **رسميا : غولر أساسيا للمرة الاولى مع الريال في دوري الابطال**: [Link](https://hihi2.com/2024/11/27/p2954006.html)
+- **موقعة مرتقبة بين ليفربول وريال مدريد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2024-11-27)
+
+
+### المنحة (N/A, Wed, 27 Nov 2024 10:20:00 -0800)
+
+- **التضامن والعمل الاجتماعي تعلن التسجيل في منحة الطفل بالجزائر - المساء 
+الاخباري**: [Link](https://newsy.almesasports.com/322389/%D8%A7%D9%84%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D9%81%D9%8A-%D9%85%D9%86%D8%AD%D8%A9-%D8%A7%D9%84%D8%B7%D9%81%D9%84-%D8%A8%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-3/)
+- **"1000 دينار لكل ست بيت" رابط التسجيل في منحة المرأة الماكثة في البيت 2024 
+عبر anem.dz وشروط**: [Link](https://real.alsaudinews.com/221595/1000-%D8%AF%D8%B1%D9%87%D9%85-%D9%84%D9%83%D9%84-%D8%B3%D8%AA-%D8%A8%D9%8A%D8%AA-%D8%B1%D8%A7%D8%A8%D8%B7-%D8%A7%D9%84%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D9%81%D9%8A-%D9%85%D9%86%D8%AD%D8%A9-%D8%A7/)
+- **" وكالة التشغيل " ضوابط و شروط الحصول على منحة المرأة الماكثة في البيت 2024**: [Link](https://news.nicekoora.com/314/%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D8%B4%D8%BA%D9%8A%D9%84-%D8%B6%D9%88%D8%A7%D8%A8%D8%B7-%D9%88-%D8%B4%D8%B1%D9%88%D8%B7-%D8%A7%D9%84%D8%AD%D8%B5%D9%88%D9%84-%D8%B9%D9%84%D9%89/)
+
+
+### فرح الفاسي (N/A, Wed, 27 Nov 2024 10:20:00 -0800)
+
+- **زيارة فرح الفاسي لحماتها تشعل مواقع التواصل الاجتماعي**: [Link](https://ar.hibapress.com/details-577460.html)
+- **علاقة فرح الفاسي بأم طليقها عمر لطفي تشعل مواقع التواصل ال?...**: [Link](https://ar.lesiteinfo.com/cultures/%D8%B9%D9%84%D8%A7%D9%82%D8%A9-%D9%81%D8%B1%D8%AD-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D8%A8%D8%A3%D9%85-%D8%B7%D9%84%D9%8A%D9%82%D9%87%D8%A7-%D8%B9%D9%85%D8%B1-%D9%84%D8%B7%D9%81%D9%8A-%D8%AA%D8%B4-896776.html)
+- **الفنانة التطوانية فرح الفاسي تثير الجدل بتدوينة عن ترك الماضي والتركيز على 
+الحاضر**: [Link](https://presstetouan.com/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A%D8%A9-%D9%81%D8%B1%D8%AD-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC/)
+
+
+### bourse (N/A, Wed, 27 Nov 2024 10:10:00 -0800)
+
+- **Le spectre d’une chute du gouvernement Barnier fait frissonner les marchés**: [Link](https://www.lemonde.fr/politique/article/2024/11/27/le-spectre-d-une-chute-du-gouvernement-barnier-fait-frissonner-les-marches_6416890_823448.html)
+- **Les Bourses européennes ouvrent en baisse, Paris plie face aux tensions 
+politiques françaises**: [Link](https://medias24.com/agence-presse/les-bourses-europeennes-ouvrent-en-baisse-paris-plie-face-aux-tensions-politiques-francaises/)
+- **L'Europe toujours sous pression, Wall Street plombée par la tech**: [Link](https://www.challenges.fr/economie/l-europe-toujours-sous-pression-wall-street-plombee-par-la-tech_912742)
+
+
+### real vs liverpool (N/A, Wed, 27 Nov 2024 08:40:00 -0800)
+
+- **UEFA Champions League Liverpool versus Real Madrid kick off 20:00 Wed 27 
+Nov 2024**: [Link](https://www.bbc.com/sport/football/live/c78dgjj1x35t)
+- **Injury news: Updates on Alexander-Arnold, Alisson, Chiesa, Elliott, Jota 
+and Tsimikas**: [Link](https://www.liverpoolfc.com/news/injury-news-updates-alexander-arnold-alisson-chiesa-elliott-jota-and-tsimikas)
+- **Mohamed Salah jokes and Trent Alexander-Arnold returns - what we spotted in 
+Liverpool training**: [Link](https://www.liverpool.com/liverpool-fc-news/features/mohamed-salah-trent-alexanderarnold-liverpool-30453643)
+
+
 ### real madrid (N/A, Wed, 27 Nov 2024 09:50:00 -0800)
 
 - **Liverpool - Real Madrid, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/liverpool-real-madrid-en-directo-champions-league-hoy-en-vivo-n/)
