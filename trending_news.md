@@ -1,3 +1,13 @@
+### anne hidalgo (N/A, Tue, 26 Nov 2024 17:40:00 -0800)
+
+- **Anne Hidalgo au « Monde » : « Je ne me présenterai pas à un troisième 
+mandat de maire de Paris »**: [Link](https://www.lemonde.fr/politique/article/2024/11/26/anne-hidalgo-je-ne-me-presenterai-pas-a-un-troisieme-mandat-de-maire-de-paris_6414736_823448.html)
+- **Plus de 9 milliards d’euros de dette : l’accablant bilan économique d’Anne 
+Hidalgo à la mairie de Paris**: [Link](https://www.lefigaro.fr/conjoncture/plus-de-9-milliards-d-euros-de-dette-le-tres-lourd-bilan-economique-d-anne-hidalgo-a-la-mairie-de-paris-20241126)
+- **« Je veux être le maire de la réconciliation des Parisiens » : Emmanuel 
+Grégoire se lance dans les municipales**: [Link](https://www.leparisien.fr/paris-75/je-veux-etre-le-maire-de-la-reconciliation-des-parisiens-emmanuel-gregoire-se-lance-dans-les-municipales-19-11-2024-A57PIM7YSVBRNLDPMNOW7QQ3RI.php)
+
+
 ### arsenal vs (N/A, Tue, 26 Nov 2024 13:20:00 -0800)
 
 - **‘The player that connects everything’ – Arteta says Odegaard turns Arsenal 
