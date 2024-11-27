@@ -1,3 +1,16 @@
+### real madrid (N/A, Wed, 27 Nov 2024 09:50:00 -0800)
+
+- **Liverpool - Real Madrid, en directo: Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/liverpool-real-madrid-en-directo-champions-league-hoy-en-vivo-n/)
+- **Arne Slot: "Su alineación nos sorprenderá, pero sabemos que contará con 
+grandes jugadores..."**: [Link](https://www.marca.com/futbol/champions-league/2024/11/26/arne-slot-alineacion-sorprendera-sabemos-contara-grandes-jugadores.html)
+- **El equipo se está entrenando en Anfield**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-en-anfield-26-11-2024)
+
+
+### étoile rouge – stuttgart (N/A, Wed, 27 Nov 2024 09:40:00 -0800)
+
+
+
+
 ### sturm graz – girona (N/A, Wed, 27 Nov 2024 09:10:00 -0800)
 
 - **Voraussichtliche Aufstellung von Girona gegen Sturm Graz im 
