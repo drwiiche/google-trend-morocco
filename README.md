@@ -1,3 +1,16 @@
+### hihi2 (N/A, Wed, 27 Nov 2024 14:30:00 -0800)
+
+
+
+
+### match (N/A, Wed, 27 Nov 2024 13:30:00 -0800)
+
+- **Eduardo Camavinga Hobbles Off Against Liverpool to Deepen Real Madrid 
+Injury Troubles**: [Link](https://www.si.com/soccer/eduardo-camavinga-hobbles-off-against-liverpool-to-deepen-real-madrid-injury-troubles)
+- **Eduardo Camavinga injured in Real Madrid's match against Liverpool**: [Link](https://www.ksl.com/article/51199802/eduardo-camavinga-injured-in-real-madrids-match-against-liverpool)
+- **Eduardo Camavinga injured in Real Madrid’s match against Liverpool**: [Link](https://www.thestar.com/sports/soccer/eduardo-camavinga-injured-in-real-madrids-match-against-liverpool/article_41015d83-4e6d-579d-897f-79ad11650078.html)
+
+
 ### marca (N/A, Wed, 27 Nov 2024 14:20:00 -0800)
 
 
