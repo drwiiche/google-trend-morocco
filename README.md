@@ -1,3 +1,19 @@
+### bologne – lille (N/A, Wed, 27 Nov 2024 11:30:00 -0800)
+
+- **« Ils ont sorti des couteaux, c'était un cauchemar » : les supporters 
+lillois sous le choc après l'attaque de plusieurs ultras de Bologne (Lille)**: [Link](https://www.lequipe.fr/Football/Article/-ils-ont-sorti-des-couteaux-c-etait-un-cauchemar-les-supporters-lillois-sous-le-choc-apres-l-attaque-de-plusieurs-ultras-de-bologne/1523159)
+- **Agression d’un groupe de supporters lillois à Bologne**: [Link](https://www.losc.fr/actualites/2024-11-27/agression-dun-groupe-de-supporters-lillois-bologne)
+- **LdC : des supporters du LOSC violemment agressés à Bologne**: [Link](https://www.footmercato.net/a4205363148053083791-ldc-des-supporters-du-losc-agresses-a-bologne)
+
+
+### pogba (N/A, Wed, 27 Nov 2024 11:30:00 -0800)
+
+- **€150,000 Checks and €20,000 Bundles: Paul Pogba's Extraordinary Generosity 
+Towards His Close Ones**: [Link](https://www.footboom1.com/en/news/football/2106861-eur150-000-checks-and-eur20-000-bundles-paul-pogba-s-extraordinary-generosity-towards-his-close-ones)
+- **Pogba extortion trial begins in Paris**: [Link](https://www.insideworldfootball.com/2024/11/27/pogba-extortion-trial-begins-paris/)
+- **Pogba's brother, five others, on trial for blackmailing him**: [Link](https://www.caledonianrecord.com/news/national/pogbas-brother-five-others-on-trial-for-blackmailing-him/article_9cac05ab-20b2-51b0-a5a3-f65f38574344.html)
+
+
 ### monaco – benfica (N/A, Wed, 27 Nov 2024 11:20:00 -0800)
 
 - **Preview: Monaco vs. Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/as-monaco/champions-league/preview/preview-monaco-vs-benfica-prediction-team-news-lineups_559033.html)
