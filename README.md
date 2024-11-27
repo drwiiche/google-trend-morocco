@@ -1,3 +1,12 @@
+### tzipi livni (N/A, Wed, 27 Nov 2024 01:50:00 -0800)
+
+- **Pressure Portugal to Arrest and Prosecute Israeli War Criminal Tzipi Livni**: [Link](https://bdsmovement.net/news/pressure-portugal-arrest-and-prosecute-israeli-war-criminal-tzipi-livni)
+- **Algerian delegation expels Zionist war criminal Tzipi Livni from UNAOC 
+forum in Portugal**: [Link](https://al24news.com/en/algerian-delegation-expels-zionist-war-criminal-tzipi-livni-from-unaoc-forum-in-portugal/)
+- **Strengthening Algeria-Portugal Ties: Diplomatic Talks in Cascais Reflect 
+Shared Commitment to Bilateral Growth and Regional Peace**: [Link](https://www.dzair-tube.dz/en/strengthening-algeria-portugal-ties-diplomatic-talks-in-cascais-reflect-shared-commitment-to-bilateral-growth-and-regional-peace/)
+
+
 ### iptv (N/A, Wed, 27 Nov 2024 03:40:00 -0800)
 
 - **Everything You Need to Know About IPTV: A New Era in Entertainment**: [Link](https://mwwire.com/2024/11/26/everything-you-need-to-know-about-iptv-a-new-era-in-entertainment/)
