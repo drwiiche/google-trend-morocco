@@ -1,3 +1,11 @@
+### can u20 (N/A, Wed, 27 Nov 2024 08:50:00 -0800)
+
+- **CAN U20 : L'Egypte rejoint le Maroc après avoir battu la Tunisie**: [Link](https://fr.hespress.com/398244-can-u20-legypte-rejoint-le-maroc-apres-avoir-battu-la-tunisie.html)
+- **Éliminatoires de la CAN U20 : bilan concluant des Lionceaux de l’Atlas en 
+Égypte**: [Link](https://lematin.ma/sports/eliminatoires-can-u20-bilan-concluant-des-lionceaux-de-latlas/253191)
+- **L’Equipe Nationale U20 remporte le Tournoi de l’UNAF et se qualifie en CAN**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D9%81%D9%88%D8%B2-%D8%A8%D8%A8%D8%B7%D9%88%D9%84/)
+
+
 ### avocat gilles devers (N/A, Wed, 27 Nov 2024 08:30:00 -0800)
 
 - **Avocat français du Front Polisario, Gilles Devers est décédé**: [Link](https://ledesk.ma/encontinu/avocat-francais-du-front-polisario-gilles-devers-est-decede/)
