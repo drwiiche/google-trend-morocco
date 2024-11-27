@@ -1,3 +1,51 @@
+### bein sport (N/A, Wed, 27 Nov 2024 12:30:00 -0800)
+
+
+
+
+### arda güler (N/A, Wed, 27 Nov 2024 12:30:00 -0800)
+
+- **Liverpool Real Madrid CANLI izle! (ŞİFRESİZ) Liverpool Real Madrid maçı 
+hangi kanalda, canlı yayın nerede ve nasıl izlenir?**: [Link](https://www.haberler.com/haberler/liverpool-real-madrid-canli-izle-sifresiz-18095513-haberi/)
+- **Arda Güler kararı resmen açıklandı! Bir ilk...**: [Link](https://beinsports.com.tr/haber/arda-guler-karari-resmen-aciklandi-bir-ilk)
+- **CANLI | Arda Güler ilk 11'de! Real Madrid, Liverpool deplasmanında - Futbol 
+- Spor Haberleri**: [Link](https://www.milliyet.com.tr/skorer/canli-arda-guler-ilk-11de-real-madrid-liverpool-deplasmaninda-7244802)
+
+
+### bet 365 (N/A, Wed, 27 Nov 2024 12:30:00 -0800)
+
+- **bet365 Bonus Code ND365BONUS: Claim $1k or $150 Black Friday Week Promo**: [Link](https://lastwordonsports.com/nfl/2024/11/26/bet365-bonus-code-nd365bonus-claim-1k-or-150-black-friday-week-promo/)
+- **New bet365 promo: Bet $5, Get $150 in Bonus Bets for NFL Thanksgiving**: [Link](https://www.pennlive.com/betting/2024/11/new-bet365-promo-bet-5-get-150-in-bonus-bets-for-nfl-thanksgiving.html)
+- **New Bet365 Bonus Code “DIMERS”: Upgraded $1,150 Betting Bonus Now Available 
+for NBA Cup Tonight and NFL on Thanksgiving**: [Link](https://www.dimers.com/news/new-bet365-bonus-code-offers-150-bonus-for-sports-betting-odds-on-november-27-2024)
+
+
+### real madrid match (N/A, Wed, 27 Nov 2024 12:30:00 -0800)
+
+- **DIRECT. Liverpool-Real Madrid (Ligue des champions 2024-2025) à suivre en 
+direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/liverpool-real-madrid-live/668047)
+- **DIRECT. Liverpool - Real Madrid : suivez le match**: [Link](https://www.linternaute.com/sport/foot/6716816-direct-liverpool-real-madrid-suivez-le-match/)
+- **Liverpool - Real Madrid en direct - Ligue des champions : Football Scores & 
+Résultats - 27/11/2024**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/live-liverpool-real-madrid_mtc1525359/live.shtml)
+
+
+### juventus (N/A, Wed, 27 Nov 2024 12:30:00 -0800)
+
+- **Gli infortuni Juve sono troppi: la teoria di Motta e la battuta che 
+sdrammatizza**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2024/11/27-135808004/gli_infortuni_juve_sono_troppi_la_teoria_di_motta_e_la_battuta_che_sdrammatizza)
+- **Juventus, Scanavino: "Tanti progressi in società e sul campo. Siamo sulla 
+buona strada"**: [Link](https://www.tuttomercatoweb.com/serie-a/juventus-scanavino-tanti-progressi-in-societa-e-sul-campo-siamo-sulla-buona-strada-2039764)
+- **Weah a Prime Video: "Mi piace il mio nuovo ruolo, posso aiutare la squadra"**: [Link](https://www.bianconeranews.it/altre-notizie/weah-a-prime-video-mi-piace-il-mio-nuovo-ruolo-posso-aiutare-la-squadra-86775)
+
+
+### raúl asencio del rosario (N/A, Wed, 27 Nov 2024 11:50:00 -0800)
+
+- **Liverpool - Real Madrid, en directo: fase liga de la Champions League hoy, 
+en vivo**: [Link](https://as.com/futbol/champions/liverpool-real-madrid-en-directo-fase-liga-de-la-champions-league-hoy-en-vivo-n/)
+- **Liverpool - Real Madrid en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/liverpool-r-madrid/2024/11/27/01_0103_20241127_14_186-directo.html)
+- **El equipo se está entrenando en Anfield**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-en-anfield-26-11-2024)
+
+
 ### match live (N/A, Wed, 27 Nov 2024 12:20:00 -0800)
 
 - **Syed Mushtaq Ali Trophy 2024: Rajasthan cricket team beat Hyderabad by 24 
