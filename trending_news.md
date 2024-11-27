@@ -1,3 +1,11 @@
+### bourse maroc (N/A, Wed, 27 Nov 2024 07:00:00 -0800)
+
+- **Marsa Maroc : AGR à l'achat, une croissance bénéficiaire à deux chiffres 
+prévue jusqu'en 2028**: [Link](https://boursenews.ma/article/marches/marsa-maroc-agr-recommandation)
+- **Marsa Maroc : trafic et chiffre d'affaires en hausse à fin septembre 2024**: [Link](https://medias24.com/2024/11/26/marsa-maroc-trafic-et-chiffre-daffaires-en-hausse-a-fin-septembre-2024/)
+- **Marsa Maroc, un titre à acheter (Attijari)**: [Link](https://lematin.ma/economie/marsa-maroc-un-titre-a-acheter-attijari/253096)
+
+
 ### مولاي الحسن (N/A, Wed, 27 Nov 2024 06:20:00 -0800)
 
 - **رفقة ابنيه وبسروال "من يقرر الحرب".. صور محمد السادس بباريس تثير تفاعل 
