@@ -1,3 +1,24 @@
+### classement champions league (N/A, Wed, 27 Nov 2024 13:10:00 -0800)
+
+- **Ligue des Champions de l’UEFA: cinq marocains à suivre ce soir**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-de-luefa-cinq-marocains-a-suivre-ce-soir_XMYPQT6V4VAVRFE47L4CTWMIIE/)
+- **Ligue des champions : le PSG virtuellement éliminé, Brest toujours dans la 
+course... Le classement après la soirée de mardi**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-champions/ligue-des-champions-l-inter-devant-le-barca-le-psg-virtuellement-elimine-le-classement-de-la-c1-apres-la-soiree-de-mardi-20241126)
+- **Ligue des champions : Bayern-PSG et Real-Liverpool à l'affiche**: [Link](https://lematin.ma/sports/ligue-des-champions-bayern-psg-et-real-liverpool-a-laffiche/252901)
+
+
+### monaco (N/A, Wed, 27 Nov 2024 13:10:00 -0800)
+
+- **DIRECT. Monaco-Benfica (Ligue des champions 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/monaco-benfica-live/668045)
+- **Monaco - Benfica : les compos officielles**: [Link](https://www.footmercato.net/a5109004665256605191-monaco-benfica-les-compos-officielles)
+- **Monaco - Benfica en direct - Ligue des champions : Football Scores & 
+Résultats - 27/11/2024**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2024-2025/live-monaco-benfica_mtc1525353/live-commentary.shtml)
+
+
+### دينامو زغرب ضد دورتموند (N/A, Wed, 27 Nov 2024 13:10:00 -0800)
+
+
+
+
 ### نهضة بركان (N/A, Wed, 27 Nov 2024 13:00:00 -0800)
 
 - **النهضة البركانية يختبر جاهزيته أمام لواندا سول**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%86%D9%87%D8%B6%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%83%D8%A7%D9%86%D9%8A%D8%A9-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1-%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%AA%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%88%D8%A7%D9%86%D8%AF%D8%A7-%D8%B3%D9%88%D9%84-2024-11-27)
