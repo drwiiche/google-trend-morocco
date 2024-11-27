@@ -1,3 +1,11 @@
+### sturm graz – girona (N/A, Wed, 27 Nov 2024 09:10:00 -0800)
+
+- **Voraussichtliche Aufstellung von Girona gegen Sturm Graz im 
+Champions-League-Spiel**: [Link](https://www.footboom1.com/de/news/football/2109458-probable-line-up-for-girona-against-sturm-graz-in-champions-league-match)
+- **Aus der Kurve an die Seitenlinie der Königsklasse**: [Link](https://fan.at/news/67461a06b06da94b609fbf4c)
+- **Der SK Sturm träumt von einem historischen Coup**: [Link](https://www.nachrichten.at/sport/fussball/fussball-international/der-sk-sturm-traeumt-von-einem-historischen-coup;art191891,4003659)
+
+
 ### can u20 (N/A, Wed, 27 Nov 2024 08:50:00 -0800)
 
 - **CAN U20 : L'Egypte rejoint le Maroc après avoir battu la Tunisie**: [Link](https://fr.hespress.com/398244-can-u20-legypte-rejoint-le-maroc-apres-avoir-battu-la-tunisie.html)
