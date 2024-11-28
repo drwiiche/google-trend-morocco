@@ -1,3 +1,11 @@
+### classement ligue des champions 2024 (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **Ligue des champions: le projet du PSG de Luis Enrique au bord du gouffre**: [Link](https://fr.hespress.com/398346-ligue-des-champions-le-projet-du-psg-de-luis-enrique-au-bord-du-gouffre.html)
+- **Bayern Munich 1-0 PSG, Ligue des champions : résumé du match (26/11/2024)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2024-2025/bayern-munich-psg-live/668037)
+- **Safonov, le plan de Luis Enrique, la prise de conscience de la direction: 
+dans les coulisses de la défaite...**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/safonov-le-plan-de-luis-enrique-la-prise-de-conscience-de-la-direction-dans-les-coulisses-de-la-defaite-du-psg-a-munich_AV-202411270697.html)
+
+
 ### samsung galaxy s25 ultra (N/A, Wed, 27 Nov 2024 17:00:00 -0800)
 
 - **New Samsung Leak Reveals Galaxy S25 Utlra Design Choices**: [Link](https://www.forbes.com/sites/ewanspence/2024/11/27/samsung-galaxy-s25-ultra-design-photos-specs-flat-screen-corners-leak/)
