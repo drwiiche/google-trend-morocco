@@ -1,3 +1,18 @@
+### champions league classement (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **Ligue des champions : Lewandowski devient le 3e joueur de l’histoire à 
+passer la barre des 100 buts en C1**: [Link](https://www.20minutes.fr/sport/football/4123561-20241127-ligue-champions-lewandowski-devient-3e-joueur-histoire-passer-barre-100-buts-c1)
+- **FC Barcelone : Robert Lewandowski marque son 100e but en Ligue des Champions**: [Link](https://fr.hespress.com/398263-fc-barcelone-robert-lewandowski-marque-son-100e-but-en-ligue-des-champions.html)
+- **Foot: Lewandowski inscrit contre Brest son 100ème but en C1**: [Link](https://sport.le360.ma/football/foot-lewandowski-inscrit-contre-brest-son-100eme-but-en-c1_ZYRPH5GWTVDRHOAYSKBEESM2ZQ/)
+
+
+### ترتيبات دوري أبطال أوروبا (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **جدول مباريات اليوم في دوري أبطال أوروبا 2024-2025**: [Link](https://hihi2.com/2024/11/27/p2952938.html)
+- **برنامج مباريات دوري أبطال اروبا لهذا اليوم**: [Link](https://www.hibasport.com/details-281977.html)
+- **البرنامج الكامل لمباريات الجولة الخامسة من دوري أبطال أوروبا**: [Link](https://ar.sport.le360.ma/football/ONAS6Y4KFRBTRHN7ED2UWNBNVM/)
+
+
 ### mac allister (N/A, Wed, 27 Nov 2024 14:00:00 -0800)
 
 - **« Un gros résultat » - Caoimhin Kelleher et Alexis Mac Allister sur 
