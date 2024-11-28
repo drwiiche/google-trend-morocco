@@ -1,3 +1,11 @@
+### uefa champions league standings (N/A, Wed, 27 Nov 2024 14:20:00 -0800)
+
+- **Champions League table after Round 5: Two Italians in top 8**: [Link](https://football-italia.net/champions-league-table-two-italians-top-8/)
+- **How's the top of the table looking?**: [Link](https://www.nytimes.com/athletic/live-blogs/bayern-munich-psg-live-updates-champions-league-score-result/GGcdOVa4x9gd/Z1a39Ka6f80h/)
+- **Liverpool Leads Impressively While Real Madrid Struggles: Champions League 
+Standings Update**: [Link](https://www.footboom1.com/en/news/football/2111335-liverpool-leads-impressively-while-real-madrid-struggles-champions-league-standings-update)
+
+
 ### champions league classement (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
 
 - **Ligue des champions : Lewandowski devient le 3e joueur de l’histoire à 
