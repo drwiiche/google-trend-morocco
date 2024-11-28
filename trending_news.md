@@ -1,3 +1,10 @@
+### man utd (N/A, Thu, 28 Nov 2024 13:10:00 -0800)
+
+- **Europa League LIVE: Man Utd, Rangers & Spurs in action - radio & text**: [Link](https://www.bbc.com/sport/football/live/c8xpd92dq4nt)
+- **Preview: Manchester United vs. Bodo/Glimt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-utd/europa-league/preview/preview-man-utd-vs-bodoglimt-prediction-team-news-lineups_559096.html)
+- **Man Utd receive defensive boost as Maguire and Martinez return to training**: [Link](https://www.besoccer.com/new/man-utd-receive-defensive-boost-as-maguire-and-martinez-return-to-training-1339432)
+
+
 ### lacoste maroc (N/A, Thu, 28 Nov 2024 13:00:00 -0800)
 
 - **Un polo Lacoste orné d’une carte du monde où le Maroc est séparé du Sahara 
