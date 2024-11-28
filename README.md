@@ -1,3 +1,11 @@
+### slavia prague – fenerbahçe (N/A, Thu, 28 Nov 2024 11:30:00 -0800)
+
+- **Fenerbahce vs Slavia Prague: Starting Lineups and Match Preview**: [Link](https://www.footboom1.com/en/news/football/2113919-fenerbahce-vs-slavia-prague-starting-lineups-and-match-preview)
+- **Fenerbahce faces injury crisis ahead of crucial UEFA clash against Slavia 
+Prague**: [Link](https://www.turkiyetoday.com/sports/fenerbahce-faces-injury-crisis-ahead-of-crucial-uefa-clash-against-slavia-prague-86162/)
+- **Preview: Slavia Prague vs. Fenerbahce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/slavia-prague/europa-league/preview/preview-slavia-prague-vs-fenerbahce-prediction-team-news-lineups_559057.html)
+
+
 ### مان يونايتد ضد بودو/ غليمت (N/A, Thu, 28 Nov 2024 11:20:00 -0800)
 
 - **تغييرات بالجملة في تشكيل اليونايتد أمام بودو جليمت**: [Link](https://m.kooora.com/?n=1371316&o=n)
