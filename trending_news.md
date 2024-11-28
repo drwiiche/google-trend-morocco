@@ -1,3 +1,11 @@
+### black friday (N/A, Thu, 28 Nov 2024 15:30:00 -0800)
+
+- **The 15 best Black Friday deals on Thanksgiving Day 2024**: [Link](https://www.yahoo.com/lifestyle/the-15-best-black-friday-deals-on-thanksgiving-day-2024-110031511.html)
+- **Amazon Black Friday Deals: 55+ Discounts Worth Shopping From Apple, 
+Samsung, Microsoft and More**: [Link](https://www.cnet.com/deals/best-amazon-black-friday-deals-2024-11-28/)
+- **What time do stores open on Black Friday? A list of select retailers**: [Link](https://www.nbcchicago.com/news/local/what-time-do-stores-open-on-black-friday-a-list-of-select-retailers/3611920/)
+
+
 ### man united (N/A, Thu, 28 Nov 2024 12:40:00 -0800)
 
 - **Europa League LIVE: Man Utd, Rangers & Spurs in action - radio & text**: [Link](https://www.bbc.co.uk/sport/football/live/c8xpd92dq4nt)
