@@ -1,3 +1,12 @@
+### boualem sansal (N/A, Wed, 27 Nov 2024 22:50:00 -0800)
+
+- **L’Algérie a décrété la détention préventive de l’écrivain Boualem Sansal**: [Link](https://ledesk.ma/encontinu/lalgerie-a-decrete-la-detention-preventive-de-lecrivain-boualem-sansal/)
+- **La France juge "inacceptable" la détention par l'Algérie de l'écrivain 
+Boualem Sansal**: [Link](https://fr.hespress.com/398306-la-france-juge-inacceptable-la-detention-par-lalgerie-de-lecrivain-boualem-sansal.html)
+- **Ce qu’il écrit «blesse le sentiment national» algérien : le reproche de 
+Benjamin Stora à l’écrivain emprisonné Boualem Sansal suscite un tollé**: [Link](https://www.lefigaro.fr/actualite-france/boualem-sansal-alimentait-un-discours-hostile-a-l-egard-des-musulmans-attaque-le-politologue-nedjib-sidi-moussa-20241125)
+
+
 ### محمد صلاح (N/A, Wed, 27 Nov 2024 14:00:00 -0800)
 
 - **جاريث بيل: صلاح يثير ضجة من أجل المال**: [Link](https://www.kooora.com/?n=1371097)
