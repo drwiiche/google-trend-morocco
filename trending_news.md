@@ -1,3 +1,19 @@
+### europa league (N/A, Thu, 28 Nov 2024 07:40:00 -0800)
+
+- **Team news for United v Bodo/Glimt**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-bodo-glimt-in-the-europa-league)
+- **Amorim Hails Game-Changing 'Reinforcements' at Manchester United: 'A 
+Transformational Step Towards Unstoppable Strength'**: [Link](https://motorcyclesports.net/amorim-hails-game-changing-reinforcements-at-manchester-united-a-transformational-step-towards-unstoppable-strength/)
+- **Man Utd receive defensive boost as Maguire and Martinez return to training**: [Link](https://www.besoccer.com/new/man-utd-receive-defensive-boost-as-maguire-and-martinez-return-to-training-1339432)
+
+
+### كلاسيكو الاساطير (N/A, Thu, 28 Nov 2024 07:30:00 -0800)
+
+- **حفل عشاء في قطر لأساطير ريال مدريد وبرشلونة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AD%D9%81%D9%84-%D8%B9%D8%B4%D8%A7%D8%A1-%D9%81%D9%8A-%D9%82%D8%B7%D8%B1-%D9%84%D8%A3%D8%B3%D8%A7%D8%B7%D9%8A%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-2024-11-28)
+- **برشلونة للعودة إلى الانتصارات المحلية.. والريال يأمل في تجاوز أحزانه 
+الأوروبية**: [Link](https://m.kooora.com/?n=1371200&o=n)
+- **«كلاسيكو الأساطير» في خليفة الدولي غدًا**: [Link](https://www.raya.com/2024/11/27/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%B7%D9%8A%D8%B1-%D9%81%D9%8A-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D8%BA%D8%AF/)
+
+
 ### anne hidalgo (N/A, Thu, 28 Nov 2024 03:40:00 -0800)
 
 - **Anne Hidalgo au « Monde » : « Je ne me présenterai pas à un troisième 
