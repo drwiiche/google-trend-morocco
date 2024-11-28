@@ -1,3 +1,10 @@
+### مان يونايتد ضد بودو/ غليمت (N/A, Thu, 28 Nov 2024 11:20:00 -0800)
+
+- **تغييرات بالجملة في تشكيل اليونايتد أمام بودو جليمت**: [Link](https://m.kooora.com/?n=1371316&o=n)
+- **روبن أموريم يلتقي بجمهور مانشستر يونايتد لأول مرة**: [Link](https://hihi2.com/2024/11/28/p2955550.html)
+- **مانشستر يونايتد ينشد النقاط الثلاث من بوابة بودو/غليمت**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D9%86%D8%B4%D8%AF-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB-%D9%85%D9%86-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA-2024-11-28)
+
+
 ### manchester united – bodø/glimt (N/A, Thu, 28 Nov 2024 11:10:00 -0800)
 
 - **Team news for United v Bodo/Glimt**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-bodo-glimt-in-the-europa-league)
