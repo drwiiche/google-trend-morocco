@@ -1,3 +1,11 @@
+### ronaldinho (N/A, Thu, 28 Nov 2024 09:20:00 -0800)
+
+- **What is Baller League? The football project explained**: [Link](https://thefootballfaithful.com/baller-league-ksi-chunkz-figo-terry-shearer/)
+- **KSI, Ronaldinho And Lineker Join Baller League**: [Link](https://www.barrons.com/news/ksi-ronaldinho-and-lineker-join-baller-league-186a93fc)
+- **‘Fragile’ City collapse, Arsenal’s 5-star display, OGs take Baller League 
+global**: [Link](https://www.scmp.com/sport/football/article/3288270/fragile-city-collapse-arsenals-5-star-display-ogs-take-baller-league-global)
+
+
 ### ath. bilbao – elfsborg (N/A, Thu, 28 Nov 2024 09:00:00 -0800)
 
 - **Athletic-Elfsborg: Athletic Club Aims for Round of 16 Qualification - 
