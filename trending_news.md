@@ -1,3 +1,10 @@
+### eduardo camavinga (N/A, Thu, 28 Nov 2024 11:50:00 -0800)
+
+- **Parte médico de Camavinga**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-de-camavinga-28-11-2024)
+- **Se confirman los peores augurios con Camavinga: rotura en el bíceps femoral**: [Link](https://www.marca.com/futbol/real-madrid/2024/11/28/confirman-peores-augurios-camavinga-rotura-biceps-femoral.html)
+- **Ojo al estado físico de Bellingham, Mbappé y Brahim**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20241128/1002361459/ojo-fisico-bellingham-mbappe-brahim.html)
+
+
 ### slavia prague – fenerbahçe (N/A, Thu, 28 Nov 2024 11:30:00 -0800)
 
 - **Fenerbahce vs Slavia Prague: Starting Lineups and Match Preview**: [Link](https://www.footboom1.com/en/news/football/2113919-fenerbahce-vs-slavia-prague-starting-lineups-and-match-preview)
