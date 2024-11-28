@@ -1,3 +1,20 @@
+### manchester united (N/A, Thu, 28 Nov 2024 12:40:00 -0800)
+
+- **Ipswich 1-1 Man Utd: Premier League result, reaction and highlights | 
+Football News**: [Link](https://www.skysports.com/football/live-blog/12309/13257159/ipswich-vs-man-united-live-premier-league-match-updates-news-score-stream-and-highlights)
+- **'It's pretty clear that we're making progress' says McKenna**: [Link](https://www.impartialreporter.com/sport/24749516.mckenna-happy-progress-draw-amorims-united/)
+- **Ipswich Town column: Blues deserved to beat United and good performances 
+have to start turning into wins**: [Link](https://www.dissexpress.co.uk/sport/ipswich-town-column-blues-deserved-to-beat-united-and-good-9393839/)
+
+
+### fiorentina – paphos (N/A, Thu, 28 Nov 2024 12:40:00 -0800)
+
+- **Preview: Fiorentina vs. Pafos FC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fiorentina/europa-conference-league/preview/preview-fiorentina-vs-pafos-prediction-team-news-lineups_559076.html)
+- **AC Milan Owned Star Not Risked By Fiorentina In Europa Conference League 
+Clash – Saved For Inter Milan Serie A Showdown**: [Link](https://sports.yahoo.com/ac-milan-owned-star-not-165100634.html)
+- **UEFA Conference League Matchday 4: What to look out for**: [Link](https://www.uefa.com/uefaconferenceleague/news/0293-1c60e1ad3444-34cbe2072e43-1000--uefa-conference-league-matchday-4-what-to-look-out-for/)
+
+
 ### توتنهام ضد روما (N/A, Thu, 28 Nov 2024 12:20:00 -0800)
 
 - **موقعة مرتقبة بين توتنهام وروما**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%88%D8%B1%D9%88%D9%85%D8%A7-2024-11-28)
