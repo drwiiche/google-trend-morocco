@@ -1,3 +1,10 @@
+### توتنهام ضد روما (N/A, Thu, 28 Nov 2024 12:20:00 -0800)
+
+- **موقعة مرتقبة بين توتنهام وروما**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%88%D8%B1%D9%88%D9%85%D8%A7-2024-11-28)
+- **الرسم التكتيكي لفريقي توتنهام و روما في الدوري الأوروبي**: [Link](https://hihi2.com/2024/11/28/p2955658.html)
+- **برنامج مباريات المحترفين المغاربة اليوم في الدوري الأوروبي**: [Link](https://www.hibasport.com/details-282106.html)
+
+
 ### eduardo camavinga (N/A, Thu, 28 Nov 2024 11:50:00 -0800)
 
 - **Parte médico de Camavinga**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-de-camavinga-28-11-2024)
