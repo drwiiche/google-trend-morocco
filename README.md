@@ -1,3 +1,11 @@
+### gilles devers avocat (N/A, Thu, 28 Nov 2024 00:00:00 -0800)
+
+- **Avocat français du Front Polisario, Gilles Devers est décédé**: [Link](https://ledesk.ma/encontinu/avocat-francais-du-front-polisario-gilles-devers-est-decede/)
+- **Décès de Gilles Devers, l'avocat du Polisario auprès de la Justice 
+européenne**: [Link](https://www.lopinion.ma/Deces-de-Gilles-Devers-l-avocat-du-Polisario-aupres-de-la-Justice-europeenne_a60614.html)
+- **Internationale - L'Algérie présente ses condoléances à sa famille**: [Link](https://www.lexpressiondz.com/internationale/l-algerie-presente-ses-condoleances-a-sa-famille-388222)
+
+
 ### boualem sansal (N/A, Wed, 27 Nov 2024 22:50:00 -0800)
 
 - **L’Algérie a décrété la détention préventive de l’écrivain Boualem Sansal**: [Link](https://ledesk.ma/encontinu/lalgerie-a-decrete-la-detention-preventive-de-lecrivain-boualem-sansal/)
