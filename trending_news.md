@@ -1,3 +1,10 @@
+### nice – glasgow rangers (N/A, Thu, 28 Nov 2024 13:40:00 -0800)
+
+- **Souttar addresses Euro style comparison and his Rangers reliability**: [Link](https://www.rangersreview.co.uk/interviews/24756163.souttar-pinpoints-reasons-behind-rangers-reliability/)
+- **Souttar: Enjoying A Run Of Games**: [Link](https://www.rangers.co.uk/article/souttar-enjoying-a-run-of-games/12ql00511ZdaFFaOYSHzqT)
+- **Clement under ‘Suffocating pressure’ as Rangers clash v Nice predicted**: [Link](https://www.ibroxnews.com/2024/11/28/clement-under-suffocating-pressure-as-rangers-clash-v-nice-predicted/)
+
+
 ### twitch (N/A, Thu, 28 Nov 2024 13:20:00 -0800)
 
 - **Furious fans call for Kai Cenat to be banned from Twitch claiming latest 
