@@ -1,3 +1,11 @@
+### lacoste maroc (N/A, Thu, 28 Nov 2024 13:00:00 -0800)
+
+- **Un polo Lacoste orné d’une carte du monde où le Maroc est séparé du Sahara 
+fait polémique**: [Link](https://www.jeuneafrique.com/1635123/politique/un-polo-lacoste-orne-dune-carte-du-monde-ou-le-maroc-est-separe-du-sahara-fait-polemique/)
+- **Lacoste récidive avec une carte tronquée du Maroc sur ses polos**: [Link](https://www.h24info.ma/lacoste-recidive-avec-une-carte-tronquee-du-maroc-sur-ses-polos/)
+- **Confidentiel/ Le Sahara Occidental se pose et s’impose à la marque Lacoste**: [Link](https://lapatrienews.dz/confidentiel-le-sahara-occidental-se-pose-et-simpose-a-la-marque-lacoste/)
+
+
 ### manchester united (N/A, Thu, 28 Nov 2024 12:40:00 -0800)
 
 - **Ipswich 1-1 Man Utd: Premier League result, reaction and highlights | 
