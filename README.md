@@ -1,3 +1,19 @@
+### benyamin netanyahou (N/A, Thu, 28 Nov 2024 01:30:00 -0800)
+
+- **Trump, Congress looking to put suffocating sanctions on 'kangaroo' ICC over 
+Netanyahu arrest warrant**: [Link](https://www.yahoo.com/news/trump-congress-looking-put-suffocating-090024493.html)
+- **The International Criminal Court’s Folly**: [Link](https://www.theatlantic.com/international/archive/2024/11/icc-arrest-warrant-israel/680820/)
+- **Cuomo joins Netanyahu’s legal defense team against ICC warrants as he mulls 
+2025 NYC mayoral run**: [Link](https://www.foxnews.com/politics/cuomo-joins-netanyahus-legal-defense-team-against-icc-warrants-he-mulls-2025-nyc-mayoral-run)
+
+
+### thanksgiving (N/A, Thu, 28 Nov 2024 00:00:00 -0800)
+
+- **A Proclamation on Thanksgiving Day, 2024**: [Link](https://www.whitehouse.gov/briefing-room/presidential-actions/2024/11/27/a-proclamation-on-thanksgiving-day-2024/)
+- **What’s open and closed on Thanksgiving Day 2024**: [Link](https://www.wvtm13.com/article/thanksgiving-store-hours-2024/63032077)
+- **Happy Thanksgiving 2024!**: [Link](https://www.afacwa.org/happy_thanksgiving_2024)
+
+
 ### gilles devers avocat (N/A, Thu, 28 Nov 2024 00:00:00 -0800)
 
 - **Avocat français du Front Polisario, Gilles Devers est décédé**: [Link](https://ledesk.ma/encontinu/avocat-francais-du-front-polisario-gilles-devers-est-decede/)
