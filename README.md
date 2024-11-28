@@ -1,3 +1,26 @@
+### kylian mbappé real madrid (N/A, Thu, 28 Nov 2024 14:00:00 -0800)
+
+- **Mbappe needs ‘love and support’ after Real Madrid’s loss to Liverpool**: [Link](https://www.aljazeera.com/sports/2024/11/28/mbappe-needs-love-and-support-after-real-madrids-loss-to-liverpool)
+- **Kylian Mbappe Is A Liability — And The Team Is Working Overtime To Cover Up 
+For His Mistakes**: [Link](https://www.managingmadrid.com/2024/11/28/24307643/kylian-mbappe-is-a-liability-and-the-team-is-working-overtime-to-cover-up-for-his-mistakes)
+- **Mbappé and the Stats Behind His Struggles at Real Madrid**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/mbapp%C3%A9-and-the-stats-behind-his-struggles-at-real-madrid-2024-11-28)
+
+
+### tottenham (N/A, Thu, 28 Nov 2024 12:40:00 -0800)
+
+- **Tottenham v Roma: Europa League – live**: [Link](https://www.theguardian.com/football/live/2024/nov/28/tottenham-v-roma-europa-league-live-score-updates)
+- **Video: Hummels disaster continues for Roma with Tottenham penalty**: [Link](https://football-italia.net/video-hummels-disaster-continue-roma-tottenham/)
+- **Tottenham drop the ball right at the death: Five things we learned from 
+Tottenham 2-2 AS Roma**: [Link](https://onefootball.com/de/news/tottenham-drop-the-ball-right-at-the-death-five-things-we-learned-from-tottenham-2-2-as-roma-40369943)
+
+
+### tottenham vs roma (N/A, Thu, 28 Nov 2024 12:10:00 -0800)
+
+- **Tottenham have goalkeeper shortlist amid Ange Postecoglou transfer admission**: [Link](https://www.tottenhamhotspurnews.com/exclusives/tottenham-have-goalkeeper-shortlist-amid-ange-postecoglou-transfer-admission/)
+- **Picture: Vicario inspired by Buffon as recovery from injury continues**: [Link](https://football-italia.net/vicario-inspired-buffon-recover-injury-continues/)
+- **Tottenham's potential surprise for the Roma clash in the Europa League**: [Link](https://onefootball.com/en/news/tottenhams-potential-surprise-for-the-roma-clash-in-the-europa-league-40365719)
+
+
 ### nice – glasgow rangers (N/A, Thu, 28 Nov 2024 13:40:00 -0800)
 
 - **Souttar addresses Euro style comparison and his Rangers reliability**: [Link](https://www.rangersreview.co.uk/interviews/24756163.souttar-pinpoints-reasons-behind-rangers-reliability/)
