@@ -1,3 +1,10 @@
+### محمد صلاح (N/A, Wed, 27 Nov 2024 14:00:00 -0800)
+
+- **جاريث بيل: صلاح يثير ضجة من أجل المال**: [Link](https://www.kooora.com/?n=1371097)
+- **تحذير ليفربول من تكرار خطأ ميسي.. "امنحوا صلاح ما يريد"**: [Link](https://www.alarabiya.net/sport/2024/11/27/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%85%D9%86-%D8%AA%D9%83%D8%B1%D8%A7%D8%B1-%D8%AE%D8%B7%D8%A3-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A7%D9%85%D9%86%D8%AD%D9%88%D8%A7-%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D8%A7-%D9%8A%D8%B1%D9%8A%D8%AF-)
+- **هل انتهت قصة الحب بين صلاح "الأناني" وليفربول؟**: [Link](https://www.aljazeera.net/sport/2024/11/26/salah-liverpool)
+
+
 ### classement ligue des champions 2024 (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
 
 - **Ligue des champions: le projet du PSG de Luis Enrique au bord du gouffre**: [Link](https://fr.hespress.com/398346-ligue-des-champions-le-projet-du-psg-de-luis-enrique-au-bord-du-gouffre.html)
