@@ -1,3 +1,10 @@
+### man united (N/A, Thu, 28 Nov 2024 12:40:00 -0800)
+
+- **Europa League LIVE: Man Utd, Rangers & Spurs in action - radio & text**: [Link](https://www.bbc.co.uk/sport/football/live/c8xpd92dq4nt)
+- **Europa League table: Latest standings, fixtures and results**: [Link](https://www.standard.co.uk/sport/football/europa-league-table-2024-2025-standings-fixtures-results-matchday-5-b1184139.html)
+- **Postecoglou's Tottenham Stumble as United Shine in Europa League**: [Link](https://www.footboom1.com/en/news/football/2114490-postecoglou-s-tottenham-stumble-as-united-shine-in-europa-league)
+
+
 ### lacoste carte maroc (N/A, Thu, 28 Nov 2024 14:10:00 -0800)
 
 - **Un polo Lacoste orné d’une carte du monde où le Maroc est séparé du Sahara 
