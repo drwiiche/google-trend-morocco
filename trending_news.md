@@ -1,3 +1,42 @@
+### ligue europa (N/A, Thu, 28 Nov 2024 10:30:00 -0800)
+
+- **Soir d'Europe pour les Niçois**: [Link](https://www.ogcnice.com/fr/article/127944/soir-deurope-pour-les-nicois.html)
+- **« Je m'attendais à ce qu'on puisse dépenser plus » : les regrets de 
+Philippe Clement sur son passage à Monaco**: [Link](https://www.lequipe.fr/Football/Article/Philippe-clement-sur-son-passage-a-monaco-je-m-attendais-a-ce-qu-on-puisse-depenser-plus/1523153)
+- **La minute Rouge et Noir : Niçois es-tu là ?**: [Link](https://www.radiofrance.fr/francebleu/podcasts/la-minute-rouge-et-noir/la-minute-rouge-et-noir-nicois-es-tu-la-2327408)
+
+
+### az alkmaar vs galatasaray (N/A, Thu, 28 Nov 2024 10:30:00 -0800)
+
+- **Preview: AZ Alkmaar vs. Galatasaray - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/az/europa-league/preview/preview-az-vs-galatasaray-prediction-team-news-lineups_559080.html)
+- **Football Bet of the Day: Expect an action-packed encounter in Alkmaar on 
+Thursday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-expect-an-action-packed-encounter-in-alkmaar-on-thursday/)
+- **Netherlands Soccer Europa League**: [Link](https://lufkindailynews.com/anpa/sports/netherlands-soccer-europa-league/image_f043e750-be72-5f88-bbd0-ea3fa54f0207.html)
+
+
+### fk qarabag – lyon (N/A, Thu, 28 Nov 2024 10:30:00 -0800)
+
+- **UEFA Europa League Qarabağ 0 Olympique Lyonnais 1 19 minutes played. In 
+progress**: [Link](https://www.bbc.com/sport/football/live/cy4nzvlk040t)
+- **FK Qarabag vs. Lyon (28 Nov, 2024) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/720586)
+- **Preview: Qarabag FK vs. Lyon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/qarabag-fk/europa-league/preview/preview-qarabag-vs-lyon-prediction-team-news-lineups_559110.html)
+
+
+### real madrid vs barcelona (N/A, Thu, 28 Nov 2024 10:20:00 -0800)
+
+- **Los Barça Legends jugaran ante el Real Madrid Leyendas**: [Link](https://www.fcbarcelona.es/es/noticias/4176296/los-barca-legends-jugaran-ante-el-real-madrid-leyendas)
+- **Djokovic pone fecha a su próxima aparición**: [Link](https://www.estadiodeportivo.com/estar-al-dia/al-toque/djokovic-pone-fecha-proxima-aparicion-20241127-472737.html)
+- **Ver EN VIVO ONLINE FC Barcelona vs. Real Madrid, Amistoso Juego de 
+Leyendas: Dónde ver, TV, canal y Streaming**: [Link](https://www.goal.com/es-mx/listados/ver-en-vivo-online-fc-barcelona-vs-real-madrid-amistoso-juego-de-leyendas-donde-ver-tv-canal-streaming/blt761a362940e38556)
+
+
+### هايدينهايم ضد تشيلسي (N/A, Thu, 28 Nov 2024 10:10:00 -0800)
+
+- **تشيلسي بالبدلاء أمام هايدنهايم في دوري المؤتمر**: [Link](https://m.kooora.com/?n=1371281&o=n)
+- **تشيلسي يلاقي هاينديهايم من أجل التأهل المبكر**: [Link](https://hihi2.com/2024/11/27/p2954002.html)
+- **هايدنهايم ضد تشيلسى.. سانشو يقود تشكيل البلوز فى دورى المؤتمر الأوروبى**: [Link](https://www.youm7.com/story/2024/11/28/%D9%87%D8%A7%D9%8A%D8%AF%D9%86%D9%87%D8%A7%D9%8A%D9%85-%D8%B6%D8%AF-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%89-%D8%B3%D8%A7%D9%86%D8%B4%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%A8%D9%84%D9%88%D8%B2-%D9%81%D9%89-%D8%AF%D9%88%D8%B1%D9%89-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1/6793576)
+
+
 ### ألكمار ضد غلطة سراي (N/A, Thu, 28 Nov 2024 09:30:00 -0800)
 
 - **القنوات الناقلة لمباراة غلطة سراي وإي زد ألكمار في الدوري الأوروبي مع 
