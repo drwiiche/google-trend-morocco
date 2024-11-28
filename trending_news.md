@@ -1,3 +1,11 @@
+### arne slot (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
+
+- **Arne Slot on Conor Bradley and Ibrahima Konate injuries**: [Link](https://www.liverpoolfc.com/news/arne-slot-conor-bradley-and-ibrahima-konate-injuries)
+- **What journalist spotted in final few minutes at Anfield will put a dampener 
+on Liverpool’s glee**: [Link](https://www.empireofthekop.com/2024/11/27/bradley-liverpool-hamstring-injury-blow/)
+- **Liverpool dealt major double injury blow before Manchester City visit**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/liverpool-dealt-major-double-injury-30467730)
+
+
 ### uefa champions league standings (N/A, Wed, 27 Nov 2024 14:20:00 -0800)
 
 - **Champions League table after Round 5: Two Italians in top 8**: [Link](https://football-italia.net/champions-league-table-two-italians-top-8/)
