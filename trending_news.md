@@ -1,3 +1,29 @@
+### ath. bilbao – elfsborg (N/A, Thu, 28 Nov 2024 09:00:00 -0800)
+
+- **Athletic-Elfsborg: Athletic Club Aims for Round of 16 Qualification - 
+Preview, Analysis, Prediction**: [Link](https://www.footboom1.com/en/news/football/2112377-athletic-elfsborg-athletic-club-aims-for-round-of-16-qualification-preview-analysis-prediction)
+- **Valverde talks about Unai Simón's return and rotations**: [Link](https://www.comuniate.com/en/noticias/26795/valverde-talks-about-unai-simons-return-and-rotations)
+- **Preview: Athletic Bilbao vs. Elfsborg - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/europa-league/preview/preview-athletic-bilbao-vs-elfsborg-prediction-team-news-lineups_559044.html)
+
+
+### az – galatasaray (N/A, Thu, 28 Nov 2024 08:50:00 -0800)
+
+- **Türk temsilcileri Beşiktaş ve Galatasaray Avrupa sınavında: İlk 11'ler 
+belli oldu**: [Link](https://www.ntv.com.tr/galeri/sporskor/turk-temsilcileri-besiktas-ve-galatasaray-avrupa-sinavinda-ilk-11ler-belli-oldu,leemxzEVykqCvosEh-EhQQ)
+- **Hollanda’da ortalık karıştı! - Aspor**: [Link](https://www.aspor.com.tr/webtv/galatasaray/hollandada-ortalik-karisti)
+- **Avrupa Ligi bugün hangi maçlar var, saat kaçta? 28 Kasım Perşembe Avrupa 
+Ligi maç programı (Bugün kimin maçı var)**: [Link](https://www.ntvspor.net/foto-galeri/avrupa-ligi-bugun-hangi-maclar-var-saat-kacta-28-kasim-persembe-avrupa-ligi-mac-programi-bugun-kimin-maci-var-6748845b12dd4303efdb8430)
+
+
+### heidenheim – chelsea (N/A, Thu, 28 Nov 2024 08:50:00 -0800)
+
+- **Chelsea must not underestimate Heidenheim test, says Maresca**: [Link](https://www.beinsports.com/en-au/football/uefa-conference-league/articles/chelsea-must-not-underestimate-heidenheim-test-says-maresca-2024-11-27)
+- **How to watch Tottenham vs Roma: TV channel and live stream for Europa 
+League today**: [Link](https://au.sports.yahoo.com/watch-heidenheim-vs-chelsea-tv-060056906.html)
+- **UEFA Conference League Soccer: Livestream Heidenheim vs. Chelsea From 
+Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/uefa-conference-league-soccer-livestream-heidenheim-vs-chelsea-from-anywhere/)
+
+
 ### europa league (N/A, Thu, 28 Nov 2024 07:40:00 -0800)
 
 - **Team news for United v Bodo/Glimt**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-bodo-glimt-in-the-europa-league)
