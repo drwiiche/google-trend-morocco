@@ -1,3 +1,12 @@
+### samsung galaxy s25 ultra (N/A, Wed, 27 Nov 2024 17:00:00 -0800)
+
+- **New Samsung Leak Reveals Galaxy S25 Utlra Design Choices**: [Link](https://www.forbes.com/sites/ewanspence/2024/11/27/samsung-galaxy-s25-ultra-design-photos-specs-flat-screen-corners-leak/)
+- **Exclusive: More images of the Samsung Galaxy S25 Ultra, including One UI 7 
+screenshots**: [Link](https://www.androidauthority.com/samsung-galaxy-s25-ultra-exclusive-3503414/)
+- **FCC certification confirms some Samsung Galaxy S25 series details - 
+GSMArena.com news**: [Link](https://www.gsmarena.com/fcc_certification_confirms_some_samsung_galaxy_s25_series_details-news-65518.php)
+
+
 ### arne slot (N/A, Wed, 27 Nov 2024 13:50:00 -0800)
 
 - **Arne Slot on Conor Bradley and Ibrahima Konate injuries**: [Link](https://www.liverpoolfc.com/news/arne-slot-conor-bradley-and-ibrahima-konate-injuries)
