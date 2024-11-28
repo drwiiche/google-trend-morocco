@@ -1,3 +1,34 @@
+### manchester united – bodø/glimt (N/A, Thu, 28 Nov 2024 11:10:00 -0800)
+
+- **Team news for United v Bodo/Glimt**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-bodo-glimt-in-the-europa-league)
+- **Preview: Amorim set for Old Trafford debut in the Europa League**: [Link](https://www.fotmob.com/ko/topnews/16653-preview-amorim-set-old-trafford-debut-europa-league?utm_source=fotmob)
+- **Man Utd receive defensive boost as Maguire and Martinez return to training**: [Link](https://www.besoccer.com/new/man-utd-receive-defensive-boost-as-maguire-and-martinez-return-to-training-1339432)
+
+
+### real sociedad – ajax (N/A, Thu, 28 Nov 2024 11:10:00 -0800)
+
+- **This is the squad for Real Sociedad - Ajax**: [Link](https://english.ajax.nl/articles/this-is-the-squad-for-real-sociedad-ajax/)
+- **Real Sociedad vs Ajax Amsterdam prediction 28.11.2024**: [Link](https://www.transfermarkt.com/betting/real-sociedad-ajax-amsterdam-prediction-28-11-24/)
+- **Wout Weghorst ruled out of Ajax squad for Europa League clash with Real 
+Sociedad over fitness concerns**: [Link](https://sports.yahoo.com/wout-weghorst-ruled-ajax-squad-122900957.html)
+
+
+### mladá boleslav – betis (N/A, Thu, 28 Nov 2024 11:10:00 -0800)
+
+- **Preview: Mlada Boleslav vs. Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mlada-boleslav/europa-conference-league/preview/preview-mlada-boleslav-vs-betis-prediction-team-news-lineups_559118.html)
+- **Mladá Boleslav - Betis: Lesson Learned?**: [Link](https://www.footboom1.com/en/news/football/2111985-mlada-boleslav-betis-lesson-learned)
+- **Mladá Boleslav vs Real Betis: Schedule and TV Broadcast for Conference 
+League Matchday 4**: [Link](https://www.footboom1.com/en/news/football/2104284-mlada-boleslav-vs-real-betis-schedule-and-tv-broadcast-for-conference-league-matchday-4)
+
+
+### tottenham – roma (N/A, Thu, 28 Nov 2024 11:10:00 -0800)
+
+- **Ange Postecoglou and Udogie press conference - Tottenham boss on Guglielmo 
+Vicario and Forster**: [Link](https://www.football.london/tottenham-hotspur-fc/news/ange-postecoglou-udogie-press-conference-30459457)
+- **El Shaarawy favored to start over Angelino vs Spurs**: [Link](https://romapress.net/el-shaarawy-favored-to-start-over-angelino-vs-spurs/)
+- **Postecoglou relishing Roma test against 'unbelievable' Ranieri**: [Link](https://www.beinsports.com/en-my/football/uefa-europa-league/articles/postecoglou-relishing-roma-test-against-unbelievable-ranieri-2024-11-27)
+
+
 ### نتائج ifps (N/A, Thu, 28 Nov 2024 10:40:00 -0800)
 
 - **شبهات تلاحق نتائج توظيف بوزارة الصحة**: [Link](https://m.alayam24.com/articles-541064.html)
