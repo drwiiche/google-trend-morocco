@@ -1,3 +1,12 @@
+### anne hidalgo (N/A, Thu, 28 Nov 2024 03:40:00 -0800)
+
+- **Anne Hidalgo au « Monde » : « Je ne me présenterai pas à un troisième 
+mandat de maire de Paris »**: [Link](https://www.lemonde.fr/politique/article/2024/11/26/anne-hidalgo-je-ne-me-presenterai-pas-a-un-troisieme-mandat-de-maire-de-paris_6414736_823448.html)
+- **À Paris, une armée de communicants au service d’Anne Hidalgo**: [Link](https://www.lefigaro.fr/politique/a-paris-une-armee-de-communicants-au-service-d-anne-hidalgo-20241127)
+- **Adoubé par Anne Hidalgo, Rémi Féraud veut « transformer tous les quartiers 
+de Paris en zone à trafic limité**: [Link](https://www.leparisien.fr/elections/municipales/adoube-par-anne-hidalgo-remi-feraud-veut-transformer-tous-les-quartiers-de-paris-en-zone-a-trafic-limite-27-11-2024-2RP6HUILZZFADI74IMKXR4EXYI.php)
+
+
 ### benyamin netanyahou (N/A, Thu, 28 Nov 2024 01:30:00 -0800)
 
 - **Trump, Congress looking to put suffocating sanctions on 'kangaroo' ICC over 
