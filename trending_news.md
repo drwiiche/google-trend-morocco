@@ -1,3 +1,9 @@
+### نتائج ifps (N/A, Thu, 28 Nov 2024 10:40:00 -0800)
+
+- **شبهات تلاحق نتائج توظيف بوزارة الصحة**: [Link](https://m.alayam24.com/articles-541064.html)
+- **نتائج انتقاء مباراة معاهد التكوين في الميدان الصحي 2025/2024**: [Link](https://www.dimajadid.com/alwadifa-maroc/57049/resultats-preselection-concours-ifps-2024-2025/)
+
+
 ### ligue europa (N/A, Thu, 28 Nov 2024 10:30:00 -0800)
 
 - **Soir d'Europe pour les Niçois**: [Link](https://www.ogcnice.com/fr/article/127944/soir-deurope-pour-les-nicois.html)
