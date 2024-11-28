@@ -1,3 +1,29 @@
+### lacoste carte maroc (N/A, Thu, 28 Nov 2024 14:10:00 -0800)
+
+- **Un polo Lacoste orné d’une carte du monde où le Maroc est séparé du Sahara 
+fait polémique**: [Link](https://www.jeuneafrique.com/1635123/politique/un-polo-lacoste-orne-dune-carte-du-monde-ou-le-maroc-est-separe-du-sahara-fait-polemique/)
+- **Lacoste récidive avec une carte tronquée du Maroc sur ses polos**: [Link](https://www.h24info.ma/lacoste-recidive-avec-une-carte-tronquee-du-maroc-sur-ses-polos/)
+- **Confidentiel/ Le Sahara Occidental se pose et s’impose à la marque Lacoste**: [Link](https://lapatrienews.dz/confidentiel-le-sahara-occidental-se-pose-et-simpose-a-la-marque-lacoste/)
+
+
+### roma (N/A, Thu, 28 Nov 2024 14:10:00 -0800)
+
+- **Hummels, il gesto dopo il rigore provocato in Tottenham-Roma: non può 
+crederci**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/roma/2024/11/28-135873071/hummels_il_gesto_dopo_il_rigore_provocato_in_tottenham-roma_non_puo_crederci)
+- **Ghisolfi: 'Friedkin in Texas per il Ringraziamento ma il loro cuore è con 
+la Roma'**: [Link](https://www.virgilio.it/italia/roma/notizielocali/ghisolfi_friedkin_in_texas_per_il_ringraziamento_ma_il_loro_cuore_con_la_roma_-74363510.html)
+- **Ranieri: "Io non ho avuto amichevoli per valutare tutte le opzioni che 
+posso avere". VIDEO!**: [Link](https://www.vocegiallorossa.it/interviste/ranieri-io-non-ho-avuto-amichevoli-per-valutare-tutte-le-opzioni-che-posso-avere-video-261836)
+
+
+### ريال سوسيداد ضد أياكس (N/A, Thu, 28 Nov 2024 11:30:00 -0800)
+
+- **أجاكس يهدد أكرد بسلاح هجومي ثلاثي الأبعاد**: [Link](https://www.almountakhab.com/node/16206984)
+- **شاهد.. بث مباشر لمباراة ريال سوسيداد الإسباني أمام أياكس أمستردام الهولندي 
+في الدوري الأوروبي**: [Link](https://kw.jarida.onl/uncategorized/43929.html)
+- **ريال سوسيداد يفوز على أياكس 0 2 في الدوري الأوروبي**: [Link](https://www.vetogate.com/5293545)
+
+
 ### kylian mbappé real madrid (N/A, Thu, 28 Nov 2024 14:00:00 -0800)
 
 - **Mbappe needs ‘love and support’ after Real Madrid’s loss to Liverpool**: [Link](https://www.aljazeera.com/sports/2024/11/28/mbappe-needs-love-and-support-after-real-madrids-loss-to-liverpool)
