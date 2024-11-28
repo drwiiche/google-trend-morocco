@@ -1,3 +1,13 @@
+### twitch (N/A, Thu, 28 Nov 2024 13:20:00 -0800)
+
+- **Furious fans call for Kai Cenat to be banned from Twitch claiming latest 
+video of 'hanging' stunt went too far**: [Link](https://www.dailymail.co.uk/news/article-14136387/Furious-fans-Kai-Cenat-Twitch-video-hanging-stunt.html)
+- **Are Kai Cenat and Magician Max Major Feuding After Viral Hanging Prank? The 
+Drama Explained**: [Link](https://www.yahoo.com/entertainment/kai-cenat-magician-max-major-155900779.html)
+- **Is Kai Cenat in trouble? Streamer broadcast live drowning of magician in 
+'failed' magic trick**: [Link](https://www.marca.com/en/technology/gaming/2024/11/28/674884bd22601db7178b457b.html)
+
+
 ### man utd (N/A, Thu, 28 Nov 2024 13:10:00 -0800)
 
 - **Europa League LIVE: Man Utd, Rangers & Spurs in action - radio & text**: [Link](https://www.bbc.com/sport/football/live/c8xpd92dq4nt)
