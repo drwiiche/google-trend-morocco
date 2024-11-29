@@ -1,3 +1,11 @@
+### black friday maroc (N/A, Thu, 28 Nov 2024 16:00:00 -0800)
+
+- **Black Friday au Maroc : entre opportunité et mascarade**: [Link](https://fr.hespress.com/398525-black-friday-au-maroc-entre-opportunite-et-mascarade.html)
+- **“L’Invité Eco”. Badr Bouslikhane: “Chez Jumia, le Black Friday, c’est une 
+manœuvre organisationnelle d’envergure”**: [Link](https://www.h24info.ma/black-friday-jumia-867072-2/)
+- **Black Friday : voici l’offre alléchante de la Royal Air Maroc**: [Link](https://www.visa-algerie.com/black-friday-voici-loffre-allechante-de-la-royal-air-maroc/)
+
+
 ### royal air maroc (N/A, Fri, 29 Nov 2024 01:10:00 -0800)
 
 - **Royal Air Maroc Cargo à la rencontre des exportateurs marocains**: [Link](https://ecoactu.ma/royal-air-maroc-cargo-a-la-rencontre-des-exportateurs-marocains/)
