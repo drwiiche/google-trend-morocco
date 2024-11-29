@@ -1,3 +1,11 @@
+### ترتيب الدوري المغربي (N/A, Fri, 29 Nov 2024 13:10:00 -0800)
+
+- **إعلامي مصري يهاجم رضا سليم -فيديو**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/451724.html)
+- **كولر: الأهلي استحق الفوز اليوم رغم الصعوبات**: [Link](https://www.kooora.com/?n=1370858)
+- **دوري أبطال إفريقيا: مهرجان أهداف مصري والجيش الملكي يحسم « الكلاسيكو 
+الافريقي »**: [Link](https://ar.sport.le360.ma/football/ligue-des-champions-caf/3CFHO647QZBSRAAZROWJN6YB6I/)
+
+
 ### tchad (N/A, Fri, 29 Nov 2024 12:40:00 -0800)
 
 - **En Afrique francophone, la France paye le "flou" sur l’utilité de sa 
