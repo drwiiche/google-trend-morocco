@@ -1,3 +1,12 @@
+### poupette kenza (N/A, Thu, 28 Nov 2024 17:00:00 -0800)
+
+- **« Je suis devenue célèbre trop vite » : les aveux contrits de Poupette 
+Kenza dans l’affaire d’extorsion**: [Link](https://www.leparisien.fr/faits-divers/je-suis-devenue-celebre-trop-vite-les-aveux-contrits-de-poupette-kenza-dans-laffaire-dextorsion-26-11-2024-MXGXZDSPBVHE7P42XYTC3G4UBQ.php)
+- **Depuis sa cellule, Poupette Kenza a déclaré vouloir « changer de vie »**: [Link](https://www.20minutes.fr/arts-stars/people/4123714-20241127-depuis-cellule-influenceuse-poupette-kenza-declare-vouloir-changer-vie)
+- **« C’est bien moi qui a écrit ces messages, pas Allan » : Poupette Kenza est 
+passée à des aveux**: [Link](https://www.lavoixdunord.fr/1527726/article/2024-11-28/c-est-bien-moi-qui-ecrit-ces-messages-pas-allan-poupette-kenza-est-passee-des)
+
+
 ### black friday (N/A, Thu, 28 Nov 2024 15:30:00 -0800)
 
 - **The 15 best Black Friday deals on Thanksgiving Day 2024**: [Link](https://www.yahoo.com/lifestyle/the-15-best-black-friday-deals-on-thanksgiving-day-2024-110031511.html)
