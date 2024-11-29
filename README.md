@@ -1,3 +1,12 @@
+### claudia sheinbaum (N/A, Fri, 29 Nov 2024 02:30:00 -0800)
+
+- **Mexico’s president denies Trump’s claim that she agreed to shut down the 
+US-Mexico border**: [Link](https://www.cnn.com/2024/11/28/politics/trump-mexican-president-call-tariffs/index.html)
+- **Explaining Economics to Trump Won't Save Mexico**: [Link](https://www.bloomberg.com/opinion/articles/2024-11-29/explaining-economics-to-trump-won-t-save-mexico)
+- **Mexican president says she is confident that a tariff war with the US can 
+be averted**: [Link](https://www.yahoo.com/news/mexican-president-says-she-confident-175901032.html)
+
+
 ### black friday maroc (N/A, Thu, 28 Nov 2024 16:00:00 -0800)
 
 - **Black Friday au Maroc : entre opportunité et mascarade**: [Link](https://fr.hespress.com/398525-black-friday-au-maroc-entre-opportunite-et-mascarade.html)
