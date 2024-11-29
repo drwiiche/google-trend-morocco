@@ -1,3 +1,11 @@
+### al-nassr fc – damac (N/A, Fri, 29 Nov 2024 05:50:00 -0800)
+
+- **Preview: Al-Nassr vs. Damac - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/preview-al-nassr-vs-damac-prediction-team-news-lineups_559180.html)
+- **Victory outperforms Damak historically**: [Link](https://www.ysscores.com/en/news/7854925/Victory-outperforms-Damak-historically)
+- **Will Cristiano Ronaldo Play Tonight in The SPL? How to Watch Al-Nassr vs 
+Damac Live Streaming?**: [Link](https://www.republicworld.com/sports/football/will-cristiano-ronaldo-play-tonight-in-the-spl-how-to-watch-al-nassr-vs-damac-live-streaming)
+
+
 ### habous (N/A, Fri, 29 Nov 2024 04:10:00 -0800)
 
 - **Toufiq à Retailleau : “Nous sommes laïques nous aussi” car “il n’y a pas de 
