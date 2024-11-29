@@ -1,3 +1,12 @@
+### tour mohammed vi (N/A, Fri, 29 Nov 2024 03:20:00 -0800)
+
+- **La Tour Mohammed VI a son premier, et prestigieux, locataire**: [Link](https://fr.le360.ma/economie/la-tour-mohammed-vi-a-son-premier-et-prestigieux-locataire_VJ7JTCQGG5DL3MTVKTR273ZMYQ/)
+- **Sous enseigne Waldorf Astoria de Hilton, l’hôtel de la Tour Mohammed VI 
+ouvrira en 2025**: [Link](https://ledesk.ma/encontinu/sous-enseigne-waldorf-astoria-de-hilton-lhotel-de-la-tour-mohammed-vi-ouvrira-en-2025/)
+- **Inauguration, superficie, capacité… Tout savoir sur le futur hôtel de luxe 
+de la tour Mohammed VI**: [Link](https://www.h24info.ma/inauguration-superficie-capacite-tout-savoir-sur-lhotel-waldorf-astoria-de-la-tour-mohammed-vi/)
+
+
 ### claudia sheinbaum (N/A, Fri, 29 Nov 2024 02:30:00 -0800)
 
 - **Mexico’s president denies Trump’s claim that she agreed to shut down the 
