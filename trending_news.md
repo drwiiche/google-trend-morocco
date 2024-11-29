@@ -1,3 +1,10 @@
+### thanksgiving 2024 (N/A, Thu, 28 Nov 2024 20:10:00 -0800)
+
+- **Fairbanks Thanksgiving 2024**: [Link](https://www.newsminer.com/fairbanks-thanksgiving-2024/image_335d9fe0-adf0-11ef-a935-7f9b4f463382.html)
+- **Fairbanks Thanksgiving 2024**: [Link](https://www.newsminer.com/fairbanks-thanksgiving-2024/image_2f2b04e4-adf0-11ef-a1b7-5f7475212089.html)
+- **Fairbanks Thanksgiving 2024**: [Link](https://www.newsminer.com/fairbanks-thanksgiving-2024/image_308cf572-adf0-11ef-b469-a34136996231.html)
+
+
 ### poupette kenza (N/A, Thu, 28 Nov 2024 17:00:00 -0800)
 
 - **« Je suis devenue célèbre trop vite » : les aveux contrits de Poupette 
