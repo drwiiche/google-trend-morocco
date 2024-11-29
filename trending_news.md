@@ -1,3 +1,10 @@
+### majorque – valence (N/A, Fri, 29 Nov 2024 11:10:00 -0800)
+
+- **DIRECT. Majorque-Valence CF (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/majorque-valence-cf-live/657425)
+- **Nous devons nous appuyer sur ce que nous avons fait contre le Betis**: [Link](https://www.footboom1.com/fr/news/football/2115014-we-must-build-on-what-we-did-against-betis)
+- **Pourquoi l'absence de Muric est importante pour Valence**: [Link](https://www.koha.net/fr/futboll/pse-mungesa-e-muriqit-eshte-e-rendesishme-per-valencian)
+
+
 ### zeturf (N/A, Fri, 29 Nov 2024 11:20:00 -0800)
 
 - **Tiercé. Les pronostics de «L'Alsace» pour vendredi 29 novembre - Prix Vesta**: [Link](https://www.lalsace.fr/actualite/2024/11/28/nos-pronostics-pour-vendredi-29-novembre-prix-vesta)
