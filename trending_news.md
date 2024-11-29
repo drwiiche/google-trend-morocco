@@ -1,3 +1,11 @@
+### bernard arnault (N/A, Thu, 28 Nov 2024 23:30:00 -0800)
+
+- **LVMH chief confronts leftwing MP in illegal spying trial**: [Link](https://www.ft.com/content/af9d1d9e-249a-4b68-bac9-1877e5992880)
+- **Europe’s richest man denies involvement in alleged scheme to spy on French 
+MP**: [Link](https://www.politico.eu/article/bernard-arnault-lmvh-europe-richest-man-denies-involvement-in-scheme-to-spy-on-french-politician/)
+- **Luxury Empire in the Dock: Arnault Faces Fiery Legal Testimony**: [Link](https://www.devdiscourse.com/article/law-order/3174665-luxury-empire-in-the-dock-arnault-faces-fiery-legal-testimony)
+
+
 ### thanksgiving 2024 (N/A, Thu, 28 Nov 2024 20:10:00 -0800)
 
 - **Fairbanks Thanksgiving 2024**: [Link](https://www.newsminer.com/fairbanks-thanksgiving-2024/image_335d9fe0-adf0-11ef-a935-7f9b4f463382.html)
