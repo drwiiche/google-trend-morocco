@@ -1,3 +1,20 @@
+### wydad (N/A, Fri, 29 Nov 2024 09:20:00 -0800)
+
+- **Botola : Une multitude de matchs relevés lors de la 12e journée**: [Link](https://fr.hespress.com/398577-botola-une-multitude-de-matchs-releves-lors-de-la-12e-journee.html)
+- **Botola : le Raja sans supporters à Agadir, la RSB pour une 7e victoire de 
+suite**: [Link](https://lematin.ma/sports/botola-le-raja-sans-supporters-a-agadir-la-rsb-pour-une-7e-victoire/253583)
+- **Union Touarga-IR Tanger et Wydad-OC Safi: à quelles heures et sur quelle 
+chaîne?**: [Link](https://sport.le360.ma/football/botola/union-touarga-ir-tanger-et-wydad-oc-safi-a-quelles-heures-et-sur-quelle-chaine_3XQN3BWTIJCULKJMKOJ37N4KWE/)
+
+
+### igamane (N/A, Fri, 29 Nov 2024 09:10:00 -0800)
+
+- **Europa League: Nice v Rangers - radio & text**: [Link](https://www.bbc.com/sport/football/live/cj4vjnxk152t)
+- **Rangers Europa League top eight chances outlined alongside play-off 
+likelihood**: [Link](https://www.rangersreview.co.uk/news/24760150.rangers-europa-league-top-eight-chances-laid-bare-ahead-spurs/)
+- **Philippe Clement reckons Rangers romp in France best show of season**: [Link](https://hellorayo.co.uk/clyde/sport/football-news/clement-rangers-romp-best-season/)
+
+
 ### al-ahli saudi – al wehda (N/A, Fri, 29 Nov 2024 08:40:00 -0800)
 
 - **⁠Al Ahli vs Al Wehda Lineups, prediction, betting tips & odds**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-al-wehda-prediction-202411)
