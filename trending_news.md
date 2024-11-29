@@ -1,3 +1,11 @@
+### zeturf (N/A, Fri, 29 Nov 2024 11:20:00 -0800)
+
+- **Tiercé. Les pronostics de «L'Alsace» pour vendredi 29 novembre - Prix Vesta**: [Link](https://www.lalsace.fr/actualite/2024/11/28/nos-pronostics-pour-vendredi-29-novembre-prix-vesta)
+- **Kenzo du Mont, la base solide du Quinté+ de ce vendredi 29 novembre à 
+Vincennes**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/kenzo-du-mont-la-base-solide-du-quinte-de-ce-vendredi-29-novembre-a-vincennes)
+- **Les pronostics Quinté du 29/11/2024 à Vincennes**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-29112024-a-vincennes-4282213)
+
+
 ### reims – lens (N/A, Fri, 29 Nov 2024 11:20:00 -0800)
 
 - **Pronostic Reims - Lens, Ligue 1**: [Link](https://www.sportytrader.com/pronostics/stade-de-reims-lens-230593/)
