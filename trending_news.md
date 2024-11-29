@@ -1,3 +1,12 @@
+### habous (N/A, Fri, 29 Nov 2024 04:10:00 -0800)
+
+- **Toufiq à Retailleau : “Nous sommes laïques nous aussi” car “il n’y a pas de 
+contrainte en religion”**: [Link](https://mobile.telquel.ma/instant-t/2024/11/26/toufiq-a-darmanin-nous-sommes-laiques-et-il-ny-a-pas-de-contrainte-en-religion_1905938/)
+- **"Les Marocains sont laïques" : Ahmed Taoufiq critiqué après son échange 
+avec un ministre français**: [Link](https://fr.hespress.com/398092-les-marocains-sont-laiques-ahmed-taoufiq-critique-apres-son-echange-avec-un-ministre-francais.html)
+- **Ahmed Toufiq: pourquoi le Maroc est un État laïc**: [Link](https://fr.le360.ma/politique/ahmed-toufiq-pourquoi-le-maroc-est-un-etat-laic_4UWUDJYEABGI5LJMEOLVD45PTQ/)
+
+
 ### tour mohammed vi (N/A, Fri, 29 Nov 2024 03:20:00 -0800)
 
 - **La Tour Mohammed VI a son premier, et prestigieux, locataire**: [Link](https://fr.le360.ma/economie/la-tour-mohammed-vi-a-son-premier-et-prestigieux-locataire_VJ7JTCQGG5DL3MTVKTR273ZMYQ/)
