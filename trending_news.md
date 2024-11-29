@@ -1,3 +1,20 @@
+### tchad (N/A, Fri, 29 Nov 2024 12:40:00 -0800)
+
+- **En Afrique francophone, la France paye le "flou" sur l’utilité de sa 
+présence militaire**: [Link](https://www.france24.com/fr/afrique/20241129-en-afrique-francophone-la-france-paye-le-flou-sur-l-utilit%C3%A9-de-sa-pr%C3%A9sence-militaire)
+- **Le Tchad rompt ses accords de défense avec la France, un camouflet pour 
+Paris**: [Link](https://www.lemonde.fr/afrique/article/2024/11/29/le-tchad-rompt-ses-accords-de-defense-avec-la-france-un-camouflet-pour-paris_6419906_3212.html)
+- **La présence militaire française en Afrique continue de baisser**: [Link](https://mobile.telquel.ma/instant-t/2024/11/29/la-presence-militaire-francaise-en-afrique-continue-de-baisser_1906464/)
+
+
+### bouzok (N/A, Fri, 29 Nov 2024 12:40:00 -0800)
+
+- **Is Algerian footballer Bouzok leaving Raja after jersey controversy ?**: [Link](https://en.yabiladi.com/articles/details/156869/algerian-footballer-bouzok-leaving-raja.html)
+- **The Raja Jersey and the Map of Morocco at the Center of Debate**: [Link](https://www.footboom1.com/en/news/football/2107747-the-raja-jersey-and-the-map-of-morocco-at-the-center-of-debate)
+- **Algerian Player Yousri Bouzok Reportedly Pulls Out of Raja Match Over Full 
+Morocco Map on Jersey**: [Link](https://www.moroccoworldnews.com/2024/11/366609/algerian-player-yousri-bouzok-reportedly-pulls-out-of-raja-match-over-full-morocco-map-on-jersey)
+
+
 ### majorque – valence (N/A, Fri, 29 Nov 2024 11:10:00 -0800)
 
 - **DIRECT. Majorque-Valence CF (La Liga 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/majorque-valence-cf-live/657425)
