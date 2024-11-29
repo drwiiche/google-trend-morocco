@@ -1,3 +1,12 @@
+### cmgp group (N/A, Fri, 29 Nov 2024 08:10:00 -0800)
+
+- **CMGP Group: BMCE Capital Global Research recommande de souscrire à l'IPO et 
+dévoile son cours cible**: [Link](https://boursenews.ma/article/marches/cmgp-group-bkgr-recommandation-ipo)
+- **CMGP. Une IPO pour financer l’avenir et attirer de nouveaux investisseurs**: [Link](https://medias24.com/2024/11/26/cmgp-une-ipo-pour-financer-lavenir-et-attirer-de-nouveaux-investisseurs/)
+- **Bourse de Casablanca : Attijari recommande de souscrire à l’IPO de CMGP 
+Group**: [Link](https://lematin.ma/economie/attijari-recommande-de-souscrire-a-lipo-de-cmgp-group/253445)
+
+
 ### black friday 2024 (N/A, Fri, 29 Nov 2024 07:10:00 -0800)
 
 - **The best Black Friday 2024 deals to shop from Amazon, Apple, Macy's, 
