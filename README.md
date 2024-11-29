@@ -1,3 +1,11 @@
+### ram (N/A, Fri, 29 Nov 2024 02:50:00 -0800)
+
+- **Kiara Advani Wore Everything From Cutout Gowns To Chiffon Sarees In Naa Naa 
+Hyraanaa**: [Link](https://www.ndtv.com/lifestyle/ram-charan-starring-movie-game-changers-song-naa-naa-hyraanaa-featured-kiara-advani-in-everything-from-pearl-cutout-gowns-to-chiffon-sarees-7134655)
+- **Naa Naa Hyraanaa: Ram Charan’s looks steal the show**: [Link](https://www.123telugu.com/mnews/naa-naa-hyraanaa-ram-charans-looks-steal-the-show.html)
+- **NaaNaa Hyraanaa Video: Melody Of The Year?**: [Link](https://www.gulte.com/movienews/326839/naanaa-hyraanaa-video-melody-of-the-year)
+
+
 ### zoo ain sebaa (N/A, Fri, 29 Nov 2024 05:30:00 -0800)
 
 - **Casablanca : tarifs, animaux, financement, gestion, échéancier... Voici 
