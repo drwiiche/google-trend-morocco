@@ -1,3 +1,13 @@
+### zoo ain sebaa (N/A, Fri, 29 Nov 2024 05:30:00 -0800)
+
+- **Casablanca : tarifs, animaux, financement, gestion, échéancier... Voici 
+tout ce qu'il faut savoir sur le zoo de Aïn Sebaâ**: [Link](https://medias24.com/2024/11/28/casablanca-tarifs-animaux-financement-gestion-echeancier-voici-tout-ce-quil-faut-savoir-sur-le-zoo-de-ain-sebaa/)
+- **Zoo d'Aïn Sbaâ : pour Rmili, “si la commune avait loué le parc, le ticket 
+aurait coûté 500 dirhams au lieu de 80”**: [Link](https://mobile.telquel.ma/2024/11/28/prix-du-zoo-dain-sbaa-pour-rmili-si-la-commune-avait-loue-le-parc-le-ticket-aurait-coute-500-dirhams_1906255)
+- **Casablanca: l’ouverture du Parc zoologique de Aïn Sebaa programmée pour 
+juin 2025**: [Link](https://fr.le360.ma/societe/casablanca-louverture-du-parc-zoologique-de-ain-sebaa-programmee-pour-juin-2025_VRKXLHO67VAT7LWNPOXKCTL6BM/)
+
+
 ### حلب (N/A, Fri, 29 Nov 2024 06:10:00 -0800)
 
 - **تعزيزات عسكرية تصل إلى مدينة حلب**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2%D8%A7%D8%AA-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%AD%D9%84%D8%A8-1472680.html)
