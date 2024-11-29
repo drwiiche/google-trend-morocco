@@ -1,3 +1,12 @@
+### black friday 2024 (N/A, Fri, 29 Nov 2024 07:10:00 -0800)
+
+- **The best Black Friday 2024 deals to shop from Amazon, Apple, Macy's, 
+Walmart, Wayfair, Target and more**: [Link](https://www.yahoo.com/lifestyle/best-black-friday-2024-deals-083156262.html)
+- **Black Friday deals you can’t miss in the US: Target, Walmart, Macy’s & more**: [Link](https://www.livemint.com/news/us-news/black-friday-deals-you-cant-miss-in-the-us-target-walmart-macys-more-11732891446047.html)
+- **I've sorted through thousands of Black Friday deals, and these are the very 
+best**: [Link](https://www.polygon.com/black-friday/475492/best-deals-games-movies-toys)
+
+
 ### ram (N/A, Fri, 29 Nov 2024 02:50:00 -0800)
 
 - **Kiara Advani Wore Everything From Cutout Gowns To Chiffon Sarees In Naa Naa 
