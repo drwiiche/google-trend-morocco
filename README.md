@@ -1,3 +1,20 @@
+### brighton – southampton (N/A, Fri, 29 Nov 2024 11:10:00 -0800)
+
+- **Premier League Predictions & best bets: Southampton to win at Brighton, 
+Liverpool to miss opportunity to beat Man City**: [Link](https://www.skysports.com/football/news/11095/13262867/premier-league-predictions-best-bets-southampton-to-win-at-brighton-liverpool-to-miss-opportunity-to-beat-man-city)
+- **Dunk return sets up defensive decision with van Hecke and Igor in good form**: [Link](https://www.theargus.co.uk/sport/24759063.lewis-dunk-pushing-return-brightons-line-up/)
+- **In-form Welbeck threats Southampton shaky defence**: [Link](https://www.besoccer.com/new/in-form-welbeck-threats-southampton-shaky-defence-1339553)
+
+
+### al-nassr vs damac (N/A, Fri, 29 Nov 2024 06:50:00 -0800)
+
+- **Victory outperforms Damak historically**: [Link](https://www.ysscores.com/en/news/7854925/Victory-outperforms-Damak-historically)
+- **How to watch today's Al Nassr vs Damac Saudi Pro League game: Live stream, 
+TV channel, and start time**: [Link](https://www.goal.com/en-us/news/al-nassr-v-damac-live-stream-online-tv-where-to-watch/blt707332038e47641d)
+- **Will Cristiano Ronaldo Play Tonight in The SPL? How to Watch Al-Nassr vs 
+Damac Live Streaming?**: [Link](https://www.republicworld.com/sports/football/will-cristiano-ronaldo-play-tonight-in-the-spl-how-to-watch-al-nassr-vs-damac-live-streaming)
+
+
 ### wydad (N/A, Fri, 29 Nov 2024 09:20:00 -0800)
 
 - **Botola : Une multitude de matchs relevés lors de la 12e journée**: [Link](https://fr.hespress.com/398577-botola-une-multitude-de-matchs-releves-lors-de-la-12e-journee.html)
