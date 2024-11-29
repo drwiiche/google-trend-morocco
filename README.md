@@ -1,3 +1,8 @@
+### al-ahli saudi – al wehda (N/A, Fri, 29 Nov 2024 08:40:00 -0800)
+
+- **⁠Al Ahli vs Al Wehda Lineups, prediction, betting tips & odds**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-al-wehda-prediction-202411)
+
+
 ### cmgp group (N/A, Fri, 29 Nov 2024 08:10:00 -0800)
 
 - **CMGP Group: BMCE Capital Global Research recommande de souscrire à l'IPO et 
