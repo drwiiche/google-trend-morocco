@@ -1,3 +1,21 @@
+### reims – lens (N/A, Fri, 29 Nov 2024 11:20:00 -0800)
+
+- **Pronostic Reims - Lens, Ligue 1**: [Link](https://www.sportytrader.com/pronostics/stade-de-reims-lens-230593/)
+- **Quel avait été le bilan de Will Still avec le Stade de Reims ?**: [Link](https://onefootball.com/fr/news/quel-avait-ete-le-bilan-de-will-still-avec-le-stade-de-reims-40371072)
+- **Foot : Reims avec Aurelio Buta et Yaya Fofana pour la réception de Lens**: [Link](https://www.lequipe.fr/Football/Actualites/Reims-avec-aurelio-buta-et-yaya-fofana-pour-la-reception-de-lens/1523536)
+
+
+### marruecos (N/A, Fri, 29 Nov 2024 11:20:00 -0800)
+
+- **Santa Lucía reafirma su pleno apoyo a la soberanía de Marruecos sobre su 
+Sahara y expresa su gran aprecio por la Visión de Su Majestad el Rey para 
+una cooperación Sur-Sur solidaria y activa**: [Link](https://www.maroc.ma/ar/node/116692)
+- **Granada elogia el compromiso de Marruecos de fomentar la cooperación con la 
+región del Caribe**: [Link](https://es.rue20.com/2024/11/28/granada-elogia-el-compromiso-de-marruecos-de-fomentar-la-cooperacion-con-la-region-del-caribe/)
+- **Sahara Occidentale: Rabat accelera sul Piano di autonomia, cruciali i 
+prossimi sei mesi**: [Link](https://www.agenzianova.com/es/news/S%C3%A1hara-Occidental-Rabat-acelera-los-pr%C3%B3ximos-seis-meses-en-el-crucial-plan-de-autonom%C3%ADa/)
+
+
 ### brighton – southampton (N/A, Fri, 29 Nov 2024 11:10:00 -0800)
 
 - **Premier League Predictions & best bets: Southampton to win at Brighton, 
