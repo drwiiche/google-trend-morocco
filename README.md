@@ -1,3 +1,10 @@
+### حلب (N/A, Fri, 29 Nov 2024 06:10:00 -0800)
+
+- **تعزيزات عسكرية تصل إلى مدينة حلب**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2%D8%A7%D8%AA-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%AD%D9%84%D8%A8-1472680.html)
+- **الجيش السوري يعلن مواصلة التصدي للفصائل المسلحة**: [Link](https://www.skynewsarabia.com/middle-east/1758606-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D8%A7-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85-%D8%AD%D9%84%D8%A8-%D9%88%D8%A7%D9%95%D8%AF%D9%84%D8%A8)
+- **سوريا: تعديل موازين القوى لفرض تسوية؟ | رأي القدس**: [Link](https://www.alquds.co.uk/%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%AA%D8%B9%D8%AF%D9%8A%D9%84-%D9%85%D9%88%D8%A7%D8%B2%D9%8A%D9%86-%D8%A7%D9%84%D9%82%D9%88%D9%89-%D9%84%D9%81%D8%B1%D8%B6-%D8%AA%D8%B3%D9%88%D9%8A%D8%A9%D8%9F/)
+
+
 ### al-nassr fc – damac (N/A, Fri, 29 Nov 2024 05:50:00 -0800)
 
 - **Preview: Al-Nassr vs. Damac - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/preview-al-nassr-vs-damac-prediction-team-news-lineups_559180.html)
