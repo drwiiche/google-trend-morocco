@@ -1,3 +1,29 @@
+### ac milan – empoli (N/A, Sat, 30 Nov 2024 08:20:00 -0800)
+
+- **Milan plan another opportunity for Musah, but Slovan scorer dropped for 
+Empoli**: [Link](https://football-italia.net/milan-plan-another-musah-opportunity-empoli/)
+- **Live Streaming AC Milan vs. Empoli FC: Match Preview and Odds**: [Link](https://www.footboom1.com/en/news/football/2103110-live-streaming-ac-milan-vs-empoli-fc-match-preview-and-odds)
+- **Saturday's Serie A predictions including AC Milan vs. Empoli**: [Link](https://www.sportsmole.co.uk/football/como/serie-a-predictions/feature/saturdays-serie-a-predictions-including-ac-milan-vs-empoli_559352.html)
+
+
+### al shabab – al-hilal (N/A, Sat, 30 Nov 2024 08:10:00 -0800)
+
+- **How to watch today's Al Shabab vs Al Hilal Saudi Pro League game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/al-shabab-v-al-hilal-live-stream-online-tv-where-to-watch/blt26641706a69a1997)
+- **Will Neymar Jr Play Tonight in Al-Shabab vs Al-Hilal Saudi Pro League 
+2024-25 Football Match? Here’s the Possibility of Neymar Featuring in 
+Starting XI**: [Link](https://www.latestly.com/sports/football/will-neymar-jr-play-tonight-in-al-shabab-vs-al-hilal-saudi-pro-league-2024-25-football-match-heres-the-possibility-of-neymar-featuring-in-starting-xi-6457189.html)
+- **Preview: Al Shabab vs. Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-shahbab/preview/preview-al-shabab-vs-al-hilal-prediction-team-news-lineups_559332.html)
+
+
+### classement la liga (N/A, Sat, 30 Nov 2024 07:00:00 -0800)
+
+- **Barcelone battu à domicile par un sans-grade**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/liga-le-fc-barcelone-battu-a-domicile-par-las-palmas-1-2_sto20058735/story.shtml)
+- **Lamine Yamal et Ferran, dans le groupe pour Las Palmas**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4177877/lamine-yamal-et-ferran-dans-le-groupe-pour-las-palmas)
+- **Rien ne va plus en Liga pour le Barça avec une défaite à domicile contre 
+Las Palmas**: [Link](https://www.flashscore.fr/actualites/rien-ne-va-plus-en-liga-pour-le-barca-avec-une-defaite-a-domicile-contre-las-palmas/W2m7X7A7/)
+
+
 ### hihi2 (N/A, Sat, 30 Nov 2024 07:30:00 -0800)
 
 
