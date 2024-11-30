@@ -1,3 +1,17 @@
+### flashscore (N/A, Sat, 30 Nov 2024 07:10:00 -0800)
+
+- **Vlahovic and Savona could leave Juventus with 13 outfielders for Lecce**: [Link](https://football-italia.net/vlahovic-savona-leave-juventus-13-outfielders/)
+- **Motta: We are on the right track, and we are working to improve**: [Link](https://www.ysscores.com/en/news/7961882/Motta:-We-are-on-the-right-track,-and-we-are-working-to-improve)
+- **Motta's Injury-hit Juve Struggling To Fire Ahead Of Villa Trip**: [Link](https://www.barrons.com/news/motta-s-injury-hit-juve-struggling-to-fire-ahead-of-villa-trip-bcf51f78)
+
+
+### classement liga (N/A, Sat, 30 Nov 2024 07:10:00 -0800)
+
+- **Lamine Yamal, c’est officiel**: [Link](https://www.football365.fr/lamine-yamal-cest-officiel-10215361.html)
+- **LdC : un grand absent pour le Barça face à Brest**: [Link](https://www.footmercato.net/a9044933575290151936-ldc-un-grand-absent-pour-le-barca-face-a-brest)
+- **Encore un retour : l'infirmerie se vide**: [Link](https://www.blaugranas.fr/club/encore-un-retour-l-infirmerie-se-vide-7163)
+
+
 ### ترتيب الدوري الاسباني (N/A, Sat, 30 Nov 2024 07:00:00 -0800)
 
 - **موعد مباراة ليفربول ومانشستر سيتي في الدوري الإنجليزي 2024-25 والقنوات 
