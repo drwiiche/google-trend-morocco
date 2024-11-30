@@ -1,3 +1,23 @@
+### manuel bompard (N/A, Sat, 30 Nov 2024 01:50:00 -0800)
+
+- **Assemblée nationale : « Tu vas le payer »… Naïma Moutchou dénonce les 
+menaces de Manuel Bompard**: [Link](https://fr.news.yahoo.com/assembl%C3%A9e-nationale-vas-payer-na%C3%AFma-192016333.html)
+- **"J'ai pété un câble": le député Modem qui a failli en venir aux mains avec 
+des élus du NFP "regrette" mais...**: [Link](https://www.bfmtv.com/politique/parlement/j-ai-pete-un-cable-le-depute-modem-qui-a-failli-en-venir-aux-mains-avec-des-elus-du-nfp-regrette-mais-denonce-des-pressions_AV-202411290418.html)
+- **Altercation à l'Assemblée nationale : "J'ai été ciblé sur les réseaux avec 
+ma photo, mes coordonnées", explique Nicolas Turquois, l'élu MoDem à 
+l'origine de l'incident**: [Link](https://www.francetvinfo.fr/politique/parlement-francais/assemblee-nationale/altercation-a-l-assemblee-nationale-j-ai-ete-cible-sur-les-reseaux-avec-ma-photo-mes-coordonnees-explique-nicolas-turquois-l-elu-modem-a-l-origine-de-l-incident_6927113.html)
+
+
+### festival du film marrakech (N/A, Sat, 30 Nov 2024 00:50:00 -0800)
+
+- **Lever de rideau sur la 21ème édition du Festival international du film de 
+Marrakech**: [Link](https://ledesk.ma/culture/lever-de-rideau-sur-la-21eme-edition-du-festival-international-du-film-de-marrakech/)
+- **Virginie Efira, Monica Bellucci et Tim Burton, Jacob Elordi… Les stars sur 
+le tapis rouge de Marrakech**: [Link](https://www.parismatch.com/people/virginie-efira-monica-bellucci-et-tim-burton-jacob-elordi-les-stars-sur-le-tapis-rouge-de-marrakech-244066)
+- **71 films de 32 pays, le FIFM 2024 sous le signe de la diversité**: [Link](https://fr.hespress.com/398843-71-films-de-32-pays-le-fifm-2024-sous-le-signe-de-la-diversite.html)
+
+
 ### journaliste marine vlahovic (N/A, Fri, 29 Nov 2024 22:50:00 -0800)
 
 
