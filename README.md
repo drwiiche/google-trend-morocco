@@ -1,3 +1,17 @@
+### west ham – arsenal (N/A, Sat, 30 Nov 2024 08:40:00 -0800)
+
+- **Preview: West Ham United vs. Arsenal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arsenal/preview/preview-west-ham-vs-arsenal-prediction-team-news-lineups_559239.html)
+- **Liverpool snubbed as Julen Lopetegui names Arsenal best Premier League team**: [Link](https://www.standard.co.uk/sport/football/liverpool-arsenal-premier-league-lopetegui-b1197111.html)
+- **Paul Merson Predicts The Outcome As Arsenal Take On West Ham**: [Link](https://goonernews.com/blog/arsenal-news-paul-merson-west-ham-score-prediction/)
+
+
+### الشباب ضد الهلال (N/A, Sat, 30 Nov 2024 08:30:00 -0800)
+
+- **مالكوم يعود لتشكيل الهلال في ديربي الرياض**: [Link](https://www.kooora.com/?n=1371665&o=n)
+- **مباشر مباراة الهلال ضد الشباب في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2024/11/30/al-hilal-v-al-shabab)
+- **هل يستطيع جيسوس الحفاظ على تفوقه أمام الشباب هذا الموسم؟**: [Link](https://hihi2.com/2024/11/30/p2957346.html)
+
+
 ### ac milan – empoli (N/A, Sat, 30 Nov 2024 08:20:00 -0800)
 
 - **Milan plan another opportunity for Musah, but Slovan scorer dropped for 
