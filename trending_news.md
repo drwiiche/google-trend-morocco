@@ -1,3 +1,8 @@
+### journaliste marine vlahovic (N/A, Fri, 29 Nov 2024 22:50:00 -0800)
+
+
+
+
 ### tchad militaire (N/A, Fri, 29 Nov 2024 23:30:00 -0800)
 
 - **La présence militaire française en Afrique continue de baisser**: [Link](https://mobile.telquel.ma/instant-t/2024/11/29/la-presence-militaire-francaise-en-afrique-continue-de-baisser_1906464/)
