@@ -1,3 +1,11 @@
+### union berlin – leverkusen (N/A, Sat, 30 Nov 2024 06:00:00 -0800)
+
+- **Mukiele und Belocian zurück: Xabi Alonso hofft auf Terrier in München**: [Link](https://www.kicker.de/mukiele-und-belocian-zurueck-xabi-alonso-hofft-auf-terrier-in-muenchen-1071591/artikel)
+- **Jetzt live hören und im Ticker: Kann der 1. FC Union seine Torflaute gegen 
+Meister Leverkusen beenden?**: [Link](https://www.rbb24.de/sport/beitrag/2024/11/fussball-bundesliga-union-berlin-bayer-04-leverkusen-liveticker-audiostream-spielbericht.html)
+- **Bundesliga-Tracker: Brandt-Einsatz weiter offen - Bayer mit zwei Rückkehrern**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-tracker-brandt-einsatz-weiter-offen-bayer-mit-zwei-ruckkehrern/ADGk9ewI/)
+
+
 ### fcb (N/A, Sat, 30 Nov 2024 05:30:00 -0800)
 
 - **Hansi Flick says Lamine Yamal ‘will play’ and talks replacing Marc Casadó 
