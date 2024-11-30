@@ -1,3 +1,17 @@
+### ميلان ضد إمبولي (N/A, Sat, 30 Nov 2024 09:40:00 -0800)
+
+
+
+
+### diaz (N/A, Sat, 30 Nov 2024 09:40:00 -0800)
+
+- **How Luis Diaz is really feeling at Liverpool after claims he could reject 
+contract**: [Link](https://www.rousingthekop.com/2024/11/30/how-luis-diaz-is-really-feeling-at-liverpool-after-claims-he-could-reject-contract/)
+- **Liverpool star forward ready to QUIT after disappointing contract offer**: [Link](https://www.anfieldwatch.co.uk/liverpool-fc/news/liverpool-contract-offer-luis-diaz-arne-slot-richard-hughes/)
+- **PSG and Barcelona plotting bids for shock Liverpool player after 
+'disagreements' behind the scenes**: [Link](https://www.sportbible.com/football/football-news/liverpool/liverpool-transfer-news-psg-barcelona-bids-047526-20241130)
+
+
 ### al-shabab vs al-hilal (N/A, Sat, 30 Nov 2024 09:30:00 -0800)
 
 - **How to watch today's Al Shabab vs Al Hilal Saudi Pro League game: Live 
