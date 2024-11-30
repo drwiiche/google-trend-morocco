@@ -1,3 +1,11 @@
+### paris-sg – nantes (N/A, Sat, 30 Nov 2024 11:20:00 -0800)
+
+- **L'arrêté ministériel suspendu (mise à jour)**: [Link](https://www.fcnantes.com/articles/article2809.php?num=46227)
+- **Foot: le PSG revient à la Ligue 1 et à une domination qui ne dit pas tout**: [Link](https://information.tv5monde.com/sport/foot-le-psg-revient-la-ligue-1-et-une-domination-qui-ne-dit-pas-tout-2750817)
+- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier du 30 novembre – 
+Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-du-30-novembre-ligue-1_AN-202411300345.html)
+
+
 ### valladolid – atlético madrid (N/A, Sat, 30 Nov 2024 11:10:00 -0800)
 
 - **34-6, el demoledor balance de los últimos duelos entre Atlético y Valladolid**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20241130/1002362480/34-6-demoledor-balance-ultimos-duelos-valladolid-atletico.html)
