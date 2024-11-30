@@ -1,3 +1,18 @@
+### barcelona vs las palmas (N/A, Sat, 30 Nov 2024 04:10:00 -0800)
+
+- **Barcelona - Las Palmas, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/barcelona-las-palmas-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
+- **Posible once del Barça ante Las Palmas con retoques**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20241130/1002362172/posible-once-barca-palmas-duda-hoy-vivo.html)
+- **Barcelona - Las Palmas, en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/barcelona-las-palmas/2024/11/30/01_0101_20241130_178_407-directo.html)
+
+
+### black friday ps5 slim (N/A, Sat, 30 Nov 2024 04:10:00 -0800)
+
+- **The Best Black Friday Gaming Deals**: [Link](https://www.wired.com/story/black-friday-gaming-deals-2024-1/)
+- **The Sony PS5 Is on Sale for Black Friday (at the Lowest Price We’ve Seen)**: [Link](https://www.nytimes.com/wirecutter/money/black-friday-playstation5-deals-2024-1129/)
+- **Black Friday store hours 2024: What time do IKEA, TJ Maxx, Gap, Burlington 
+and more open?**: [Link](https://www.usatoday.com/story/money/shopping/2024/11/29/black-friday-2024-store-hours/76594267007/)
+
+
 ### manuel bompard (N/A, Sat, 30 Nov 2024 01:50:00 -0800)
 
 - **Assemblée nationale : « Tu vas le payer »… Naïma Moutchou dénonce les 
