@@ -1,3 +1,19 @@
+### brest – strasbourg (N/A, Sat, 30 Nov 2024 10:40:00 -0800)
+
+- **DIRECT. Brest-Strasbourg (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/brest-strasbourg-live/655970)
+- **Stade Brestois. « Ils démarrent avec beaucoup d’intensité » : les clés du 
+match contre Strasbourg**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/stade-brestois-ils-demarrent-avec-beaucoup-dintensite-les-cles-du-match-contre-strasbourg-07393096-ae6d-11ef-b968-56ee5c51c9ef)
+- **Brest - Strasbourg : Les compos (19h sur DAZN)**: [Link](https://www.foot01.com/ligue1/brest-strasbourg-les-compos-19h-sur-dazn-446200)
+
+
+### bundesliga (N/A, Sat, 30 Nov 2024 10:40:00 -0800)
+
+- **FCK muss auf Ragnar Ache verzichten**: [Link](https://fck.de/de/fck-muss-auf-ragnar-ache-verzichten/)
+- **„Bin überfordert“: Karaman lässt Trainer-Frage offen**: [Link](https://www.fussballtransfers.com/a333042516683299963-bin-ueberfordert-karaman-laesst-trainer-frage-offen)
+- **RN+ Frust, Resignation und viele Floskeln: Schalkes Krise wird immer 
+schlimmer**: [Link](https://www.ruhrnachrichten.de/schalke-04/frust-resignation-und-viele-floskeln-schalkes-krise-wird-immer-schlimmer-w967615-2001460712/)
+
+
 ### bayern (N/A, Sat, 30 Nov 2024 10:20:00 -0800)
 
 - **Bitter für Bayern: Harry Kane gegen BVB verletzt ausgewechselt**: [Link](https://www.90min.de/bitter-harry-kane-gegen-bvb-verletzt-ausgewechselt-30-11-2024)
