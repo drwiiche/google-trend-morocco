@@ -1,3 +1,10 @@
+### psg vs nantes (N/A, Sat, 30 Nov 2024 12:10:00 -0800)
+
+- **Saturday's Ligue 1 predictions including Paris Saint-Germain vs. Nantes**: [Link](https://www.sportsmole.co.uk/football/rennes/ligue-1-predictions/feature/saturdays-ligue-1-predictions-including-psg-vs-nantes_559350.html)
+- **Ligue 1 Soccer: Livestream PSG vs. Nantes From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/ligue-1-soccer-livestream-psg-vs-nantes-from-anywhere/)
+- **Ligue 1 Tips: Back odds-against outcome in big Sunday showdown**: [Link](https://betting.betfair.com/football/french-football/ligue-1-tips-back-odds-against-outcome-in-big-sunday-showdown-291124-164.html)
+
+
 ### botafogo (N/A, Sat, 30 Nov 2024 13:00:00 -0800)
 
 - **Final da Libertadores: está inaugurado o marcador!**: [Link](https://www.abola.pt/futebol/jogo/atletico-mineiro-botafogo-4433199/at-mineiro-botafogo-siga-aqui-a-final-da-libertadores)
