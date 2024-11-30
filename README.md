@@ -1,3 +1,10 @@
+### wolves – bournemouth (N/A, Sat, 30 Nov 2024 07:20:00 -0800)
+
+- **Matchday Blog | Wolves vs Bournemouth | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20241130-matchday-blog-wolves-vs-bournemouth/)
+- **🔴 LIVE: Three goals in opening eight minutes at Molineux in frenetic start**: [Link](https://onefootball.com/en/news/live-three-goals-in-opening-eight-minutes-at-molineux-in-frenetic-start-40376838)
+- **Premier League live: Scores and latest updates from 3pm kick-offs**: [Link](https://www.telegraph.co.uk/football/2024/11/30/premier-league-live-scores-latest-3pm-updates-leicester/)
+
+
 ### flashscore (N/A, Sat, 30 Nov 2024 07:10:00 -0800)
 
 - **Vlahovic and Savona could leave Juventus with 13 outfielders for Lecce**: [Link](https://football-italia.net/vlahovic-savona-leave-juventus-13-outfielders/)
