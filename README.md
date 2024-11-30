@@ -1,3 +1,20 @@
+### bassirou diomaye faye (N/A, Sat, 30 Nov 2024 11:40:00 -0800)
+
+- **Président sénégalais : La France va devoir fermer ses bases au Sénégal**: [Link](https://fr.hespress.com/398747-president-senegalais-la-france-va-devoir-fermer-ses-bases-au-senegal.html)
+- **De gifles en camouflets, l’interminable fin de règne de la France en Afrique**: [Link](https://www.lexpress.fr/monde/afrique/de-gifles-en-camouflets-linterminable-fin-de-regne-de-la-france-en-afrique-FA7BJ2E7IVBB5PYUGA3OAGQLKQ/)
+- **La présence militaire française en Afrique continue de baisser**: [Link](https://telquel.ma/2024/11/29/la-presence-militaire-francaise-en-afrique-continue-de-baisser_1906464)
+
+
+### arsenal vs (N/A, Sat, 30 Nov 2024 11:20:00 -0800)
+
+- **Premier League release statement on Bukayo Saka incident during West Ham vs 
+Arsenal**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-arsenal-saka-west-ham-34222442)
+- **One man is trending on social media following first half of West Ham vs 
+Arsenal as fans make their feelings clear**: [Link](https://www.sportbible.com/football/football-news/west-ham/west-ham-arsenal-premier-league-825014-20241130)
+- **West Ham fans miss multiple goals after leaving the London Stadium en masse 
+in protest at seeing their team go**: [Link](https://www.dailymail.co.uk/sport/football/article-14143851/West-Ham-fans-miss-multiple-goals-leaving-London-Stadium-en-masse-going-4-0-against-Arsenal-inside-36-minutes.html)
+
+
 ### بي اس جي ضد نانت (N/A, Sat, 30 Nov 2024 11:30:00 -0800)
 
 - **باريس يستعيد نجمه بعد غياب طويل**: [Link](https://www.kooora.com/?n=1371587)
