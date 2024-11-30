@@ -1,3 +1,10 @@
+### مدينة حلب السورية (N/A, Sat, 30 Nov 2024 10:50:00 -0800)
+
+- **خبير عسكري: المعارضة السورية تحدت خطوطا حمراء للنظام و3 أمور تفسر تقدمها**: [Link](https://www.aljazeera.net/news/2024/11/30/%D8%AE%D8%A8%D9%8A%D8%B1-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%B1%D8%B6%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AA)
+- **الطيران السوري يقصف أحياء حلب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A-%D9%8A%D9%82%D8%B5%D9%81-%D8%A3%D8%AD%D9%8A%D8%A7%D8%A1-%D8%AD%D9%84%D8%A8-1473299.html)
+- **هذا ما نعرفه عن تقدم "هيئة تحرير الشام" السريع بشمال سوريا**: [Link](https://www.alarabiya.net/arab-and-world/syria/2024/11/30/%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D9%86%D8%B9%D8%B1%D9%81%D9%87-%D8%B9%D9%86-%D8%AA%D9%82%D8%AF%D9%85-%D9%87%D9%8A%D8%A6%D8%A9-%D8%AA%D8%AD%D8%B1%D9%8A%D8%B1-%D8%A7%D9%84%D8%B4%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D8%B1%D9%8A%D8%B9-%D8%A8%D8%B4%D9%85%D8%A7%D9%84-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7)
+
+
 ### brest – strasbourg (N/A, Sat, 30 Nov 2024 10:40:00 -0800)
 
 - **DIRECT. Brest-Strasbourg (Ligue 1 2024-2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/brest-strasbourg-live/655970)
