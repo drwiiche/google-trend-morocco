@@ -1,3 +1,18 @@
+### hihi2 (N/A, Sat, 30 Nov 2024 07:30:00 -0800)
+
+
+
+
+### bet 365 (N/A, Sat, 30 Nov 2024 07:10:00 -0800)
+
+- **bet365 Bonus Code ROTOWIRE Nabs $1000 First-Bet Safety Net for NCAAF 
+Rivalry Games**: [Link](https://www.rotowire.com/news/bet365-bonus-code-rotowire-nabs-1000-first-bet-safety-net-for-ncaaf-rivalry-games-87835)
+- **A new DraftKings Casino promo code has dropped for Thanksgiving: Play $10, 
+Get $100 instantly**: [Link](https://www.nj.com/casinos/2024/11/a-new-draftkings-casino-promo-code-has-dropped-for-thanksgiving-play-10-get-100-instantly.html)
+- **Upgraded Bet365 Bonus Code “SYRACUSE”: New $1K+ betting bonus will now 
+remain available through Black Friday weekend**: [Link](https://www.syracuse.com/betting/2024/11/new-bet365-bonus-code-offers-150-bonus-for-sports-betting-odds-this-saturday.html)
+
+
 ### wolves – bournemouth (N/A, Sat, 30 Nov 2024 07:20:00 -0800)
 
 - **Matchday Blog | Wolves vs Bournemouth | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20241130-matchday-blog-wolves-vs-bournemouth/)
