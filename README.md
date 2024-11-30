@@ -1,3 +1,10 @@
+### بي اس جي ضد نانت (N/A, Sat, 30 Nov 2024 11:30:00 -0800)
+
+- **باريس يستعيد نجمه بعد غياب طويل**: [Link](https://www.kooora.com/?n=1371587)
+- **موعد مباراة باريس سان جيرمان ونانت في الدوري الفرنسي.. والقنوات الناقلة**: [Link](https://www.almasryalyoum.com/news/details/3317768)
+- **معلقو مباريات الجولة الثالثة عشرة في الدوري الفرنسي**: [Link](https://hihi2.com/2024/11/29/p2956736.html)
+
+
 ### paris-sg – nantes (N/A, Sat, 30 Nov 2024 11:20:00 -0800)
 
 - **L'arrêté ministériel suspendu (mise à jour)**: [Link](https://www.fcnantes.com/articles/article2809.php?num=46227)
