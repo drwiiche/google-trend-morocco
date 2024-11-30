@@ -1,3 +1,18 @@
+### bayern (N/A, Sat, 30 Nov 2024 10:20:00 -0800)
+
+- **Bitter für Bayern: Harry Kane gegen BVB verletzt ausgewechselt**: [Link](https://www.90min.de/bitter-harry-kane-gegen-bvb-verletzt-ausgewechselt-30-11-2024)
+- **Kolumne „Meine Bayern“: Welchen Ausfall sich Bayern nicht leisten kann**: [Link](https://sportbild.bild.de/fussball/fc-bayern-muenchen/kolumne-meine-bayern-welchen-ausfall-sich-bayern-nicht-leisten-kann-6744634d48afcc0e4ec30ffb)
+- **Bayern-Nackenschlag: Kane in Dortmund verletzt ausgewechselt**: [Link](https://www.eurosport.de/fussball/fc-bayern-harry-kane-im-duell-mit-borussia-dortmund-fruh-verletzt-ausgewechselt-ruckschlag-fur-rekordmeister_sto20058824/story.shtml)
+
+
+### west ham vs arsenal (N/A, Sat, 30 Nov 2024 09:30:00 -0800)
+
+- **Odegaard nets penalty to make it 3-0 over West Ham**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/martin-odegaard-tucks-away-arsenals-penalty-to-make-it-3-0-over-west-ham)
+- **Premier League release statement on Bukayo Saka incident during West Ham vs 
+Arsenal**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-arsenal-saka-west-ham-34222442)
+- **Britain Soccer Premier League**: [Link](https://www.wvnews.com/sports/pro/britain-soccer-premier-league/image_a4976446-d305-5f47-9e55-04bad8558805.html)
+
+
 ### bayern munich (N/A, Sat, 30 Nov 2024 10:10:00 -0800)
 
 - **Thomas Müller: "Dortmund my biggest German rival"**: [Link](https://www.bundesliga.com/en/bundesliga/news/borussia-dortmund-bayern-munich-pre-match-quotes-reaction-der-klassiker-29858)
