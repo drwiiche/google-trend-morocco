@@ -1,3 +1,13 @@
+### la liga (N/A, Sat, 30 Nov 2024 06:20:00 -0800)
+
+- **Real Madrid star faces accusations of piracy from La Liga president – ‘He 
+was pirating the match’**: [Link](https://sports.yahoo.com/real-madrid-star-faces-accusations-070000314.html)
+- **La Liga Raises Concerns Over Vinicius Jr's Instagram Activity During 
+Liverpool Showdown**: [Link](https://www.footboom1.com/en/news/football/2119174-la-liga-raises-concerns-over-vinicius-jr-s-instagram-activity-during-liverpool-showdown)
+- **La Liga send letter to Real Madrid after President Javier Tebas calls out 
+Vinicius Junior**: [Link](https://www.football-espana.net/2024/11/29/la-liga-send-letter-to-real-madrid-after-president-javier-tebas-calls-out-vinicius-junior)
+
+
 ### brentford – leicester (N/A, Sat, 30 Nov 2024 06:20:00 -0800)
 
 - **Match Preview: Brentford v Leicester City**: [Link](https://www.brentfordfc.com/en/news/article/match-previews-brentford-v-leicester-city-premier-league-30-11-2024)
