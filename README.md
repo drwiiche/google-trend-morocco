@@ -1,3 +1,11 @@
+### fcb (N/A, Sat, 30 Nov 2024 05:30:00 -0800)
+
+- **Hansi Flick says Lamine Yamal ‘will play’ and talks replacing Marc Casadó 
+ahead of Barcelona’s clash against Las Palmas**: [Link](https://www.barcablaugranes.com/2024/11/29/24308713/hansi-flick-lamine-yamal-will-play-replacing-marc-casado-barcelona-las-palmas)
+- **Barcelona Injury Update: Ansu on the Mend, Positive News for Defence**: [Link](https://www.footboom1.com/en/news/football/2112633-barcelona-injury-update-ansu-on-the-mend-positive-news-for-defence)
+- **Jamal returns to the Barcelona team this weekend**: [Link](https://en.vijesti.me/sports-e/football-c/734742/jamal-is-returning-to-the-barcelona-team-for-the-weekend)
+
+
 ### barca (N/A, Sat, 30 Nov 2024 05:20:00 -0800)
 
 - **Spanish La Liga Barcelona versus Las Palmas kick off 13:00 Sat 30 Nov 2024**: [Link](https://www.bbc.com/sport/football/live/c4gz1d1rz05t)
