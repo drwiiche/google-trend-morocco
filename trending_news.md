@@ -1,3 +1,11 @@
+### amazon (N/A, Fri, 29 Nov 2024 19:40:00 -0800)
+
+- **We Found 61 Deep Discounts at the Amazon Black Friday Sale**: [Link](https://www.cnet.com/deals/best-amazon-black-friday-deals-2024-11-29/)
+- **The Best Black Friday Tech Deals**: [Link](https://www.wired.com/story/black-friday-tech-deals-2024/)
+- **I've sorted through thousands of Black Friday deals, and these are the very 
+best**: [Link](https://www.polygon.com/black-friday/475492/best-deals-games-movies-toys)
+
+
 ### ابتسام العروسي (N/A, Fri, 29 Nov 2024 13:20:00 -0800)
 
 - **الفنانة ابتسام العروسي تتحدث عن انفصالها عن زوجها السابق…في "رشيد شو"**: [Link](https://2m.ma/news/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D8%A8%D8%AA%D8%B3%D8%A7%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B3%D9%8A-%D8%AA%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%86%D9%81%D8%B5%D8%A7%D9%84%D9%87%D8%A7-%D8%B9%D9%86-%D8%B2%D9%88%D8%AC%D9%87%D8%A7-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%81%D9%8A-%D8%B1%D8%B4%D9%8A%D8%AF-%D8%B4%D9%88--20241129)
