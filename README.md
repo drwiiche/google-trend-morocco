@@ -1,3 +1,12 @@
+### volodymyr zelensky (N/A, Sat, 30 Nov 2024 14:50:00 -0800)
+
+- **Zelenskyy suggests 'hot phase' of Ukraine war could end in return for NATO 
+membership if offered - even if seized land isn't returned immediately**: [Link](https://news.sky.com/story/zelenskyy-suggests-hes-prepared-to-end-ukraine-war-in-return-for-nato-membership-even-if-russia-doesnt-immediately-return-seized-land-13263085)
+- **Ukraine war: Zelensky says Nato membership could end 'hot phase'**: [Link](https://www.bbc.com/news/articles/cn8g8ylvyldo)
+- **Decisions may be implemented in coming weeks and months for the sake of 
+security – Zelenskyy**: [Link](https://www.pravda.com.ua/eng/news/2024/11/30/7487060/)
+
+
 ### psg vs nantes (N/A, Sat, 30 Nov 2024 12:10:00 -0800)
 
 - **Saturday's Ligue 1 predictions including Paris Saint-Germain vs. Nantes**: [Link](https://www.sportsmole.co.uk/football/rennes/ligue-1-predictions/feature/saturdays-ligue-1-predictions-including-psg-vs-nantes_559350.html)
