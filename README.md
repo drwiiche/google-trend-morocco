@@ -1,3 +1,37 @@
+### ترتيب الدوري الاسباني (N/A, Sat, 30 Nov 2024 07:00:00 -0800)
+
+- **موعد مباراة ليفربول ومانشستر سيتي في الدوري الإنجليزي 2024-25 والقنوات 
+الناقلة**: [Link](https://www.kooora.com/?n=1371450)
+- **محمد صلاح… سلاح ليفربول الفتاك أمام السيتي**: [Link](https://hihi2.com/2024/11/30/p2958005.html)
+- **ليفربول يفتقد خدمات مدافعه الفرنسي كوناتيه بسبب الاصابة**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/413354.html)
+
+
+### bet365 (N/A, Sat, 30 Nov 2024 07:00:00 -0800)
+
+- **bet365 Bonus Code ROTOWIRE Nabs $1000 First-Bet Safety Net for NCAAF 
+Rivalry Games**: [Link](https://www.rotowire.com/news/bet365-bonus-code-rotowire-nabs-1000-first-bet-safety-net-for-ncaaf-rivalry-games-87835)
+- **A new DraftKings Casino promo code has dropped for Thanksgiving: Play $10, 
+Get $100 instantly**: [Link](https://www.nj.com/casinos/2024/11/a-new-draftkings-casino-promo-code-has-dropped-for-thanksgiving-play-10-get-100-instantly.html)
+- **Upgraded Bet365 Bonus Code “SYRACUSE”: New $1K+ betting bonus will now 
+remain available through Black Friday weekend**: [Link](https://www.syracuse.com/betting/2024/11/new-bet365-bonus-code-offers-150-bonus-for-sports-betting-odds-this-saturday.html)
+
+
+### lamine yamal (N/A, Sat, 30 Nov 2024 07:00:00 -0800)
+
+- **Barcelona star Lamine Yamal paid tribute to Lionel Messi in Las Palmas clash**: [Link](https://ca.sports.yahoo.com/news/barcelona-star-lamine-yamal-paid-142300546.html)
+- **Hansi Flick Seeks a Transfer to Broaden Lamine Yamal's Experience: The Best 
+Teacher**: [Link](https://madrid-barcelona.com/en/fc-barcelona/hansi-flick-asks-for-transfer-so-that-lamina-yamal-can-learn-better-as-teacher)
+- **Who could win 2024 Golden Boy: Yamal, Mainoo, Yildiz nominated**: [Link](https://football-italia.net/who-could-win-2024-golden-boy/)
+
+
+### deportivo alavés – leganés (N/A, Sat, 30 Nov 2024 06:50:00 -0800)
+
+- **Alavés - Leganés | Vitoria no quiere oír hablar de la ley del ex: previa, 
+análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2024/11/30/alaves-leganes-vitoria-quiere-oir-hablar-ley-ex-previa-analisis-pronostico-prediccion.html)
+- **Previa | Alavés – Leganés: Duelo directo para alejarse del descenso**: [Link](https://offsidersports.com/previa-alaves-leganes-duelo-directo-para-alejarse-del-descenso/)
+- **Pronóstico Deportivo Alavés Leganés - LaLiga 30/11/24**: [Link](https://www.sportytrader.com/es/pronosticos/deportivo-alaves-leganes-231017/)
+
+
 ### la liga (N/A, Sat, 30 Nov 2024 06:20:00 -0800)
 
 - **Real Madrid star faces accusations of piracy from La Liga president – ‘He 
