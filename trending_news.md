@@ -1,3 +1,18 @@
+### al-ettifaq – al ittihad (N/A, Sat, 30 Nov 2024 06:10:00 -0800)
+
+- **A duo of derby duels, while RSL leaders Al Ittihad go to Al Ettifaq**: [Link](https://www.spl.com.sa/en/news/514516/double-derby-delight-while-rsl-leaders-al-ittihad-go-to-al-ettifaq)
+- **Gerrard: Facing Al-Ittihad is difficult. And we are ready**: [Link](https://www.ysscores.com/en/news/7918498/Gerrard:-Facing-Al-Ittihad-is-difficult.-And-we-are-ready)
+- **Preview: Al Ettifaq vs. Al Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittifaq/preview/preview-al-ettifaq-vs-al-ittihad-prediction-team-news-lineups_559333.html)
+
+
+### fifa (N/A, Sat, 30 Nov 2024 06:10:00 -0800)
+
+- **Morocco, Portugal, and Spain surpass 2030 World Cup hosting criteria**: [Link](https://en.yabiladi.com/articles/details/156902/morocco-portugal-spain-surpass-2030.html)
+- **FIFA: Joint Morocco-Portugal-Spain Bid Exceeds World Cup Hosting Standards**: [Link](https://www.moroccoworldnews.com/2024/11/366684/fifa-joint-morocco-portugal-spain-bid-exceeds-world-cup-hosting-standards)
+- **Who will host 2030 World Cup final? The race between the Bernabeu, Camp Nou 
+and Casablanca**: [Link](https://www.nytimes.com/athletic/5958060/2024/11/30/world-cup-final-2030-stadium-where/)
+
+
 ### union berlin – leverkusen (N/A, Sat, 30 Nov 2024 06:00:00 -0800)
 
 - **Mukiele und Belocian zurück: Xabi Alonso hofft auf Terrier in München**: [Link](https://www.kicker.de/mukiele-und-belocian-zurueck-xabi-alonso-hofft-auf-terrier-in-muenchen-1071591/artikel)
