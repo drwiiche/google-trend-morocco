@@ -1,3 +1,10 @@
+### atletico madrid (N/A, Sat, 30 Nov 2024 12:40:00 -0800)
+
+- **Antoine Griezmann set for Atletico Madrid recall at Real Valladolid**: [Link](https://sports.yahoo.com/antoine-griezmann-set-atletico-madrid-192000846.html)
+- **Where the 'Parking' League Takes Place**: [Link](https://www.footboom1.com/en/news/tennis/2118544-where-the-parking-league-takes-place)
+- **Real Valladolid vs Atletico Madrid: Preview and Prediction**: [Link](https://thehardtackle.com/round-up/2024/11/29/real-valladolid-vs-atletico-madrid-preview-and-prediction/)
+
+
 ### bassirou diomaye faye (N/A, Sat, 30 Nov 2024 11:40:00 -0800)
 
 - **Président sénégalais : La France va devoir fermer ses bases au Sénégal**: [Link](https://fr.hespress.com/398747-president-senegalais-la-france-va-devoir-fermer-ses-bases-au-senegal.html)
