@@ -1,3 +1,12 @@
+### tchad militaire (N/A, Fri, 29 Nov 2024 23:30:00 -0800)
+
+- **La présence militaire française en Afrique continue de baisser**: [Link](https://mobile.telquel.ma/instant-t/2024/11/29/la-presence-militaire-francaise-en-afrique-continue-de-baisser_1906464/)
+- **«Un coup de sang du gouvernement»: les soldats français mis à la porte par 
+le Tchad et le Sénégal**: [Link](https://www.lefigaro.fr/international/un-coup-de-sang-du-gouvernement-les-soldats-francais-mis-a-la-porte-par-le-tchad-et-le-senegal-20241129)
+- **Après le Mali, le Burkina Faso et le Niger, le Tchad rompt ses accords de 
+coopération de défense avec la France**: [Link](https://www.letemps.ch/monde/afrique/apres-le-mali-le-burkina-faso-et-le-niger-le-tchad-rompt-ses-accords-de-cooperation-de-defense-avec-la-france)
+
+
 ### amazon (N/A, Fri, 29 Nov 2024 19:40:00 -0800)
 
 - **We Found 61 Deep Discounts at the Amazon Black Friday Sale**: [Link](https://www.cnet.com/deals/best-amazon-black-friday-deals-2024-11-29/)
