@@ -1,3 +1,19 @@
+### botafogo (N/A, Sat, 30 Nov 2024 13:00:00 -0800)
+
+- **Final da Libertadores: está inaugurado o marcador!**: [Link](https://www.abola.pt/futebol/jogo/atletico-mineiro-botafogo-4433199/at-mineiro-botafogo-siga-aqui-a-final-da-libertadores)
+- **Pênalti para o Botafogo contra o Atlético foi bem marcado? Márcio Rezende 
+analisa**: [Link](https://www.itatiaia.com.br/esportes/futebol/copa-libertadores/2024/11/30/penalti-para-o-botafogo-contra-o-atletico-foi-bem-marcado-marcio-rezende-analisa)
+- **Aos 43 min do 1º tempo - gol de pênalti de Alex Telles do Botafogo contra o 
+Atlético-MG**: [Link](https://ge.globo.com/futebol/libertadores/video/aos-43-min-do-1o-tempo-gol-de-penalti-de-alex-telles-do-botafogo-contra-o-atletico-mg-13144092.ghtml)
+
+
+### إسبانيول ضد سلتا فيغو (N/A, Sat, 30 Nov 2024 11:20:00 -0800)
+
+- **إسبانيول يتجاوز أحزانه بالفوز على سيلتا فيجو**: [Link](https://www.kooora.com/?n=1371753)
+- **جدول مباريات اليوم في الدوري الإسباني**: [Link](https://hihi2.com/2024/11/30/p2957207.html)
+- **بطولة إسبانيا - برنامج المرحلة 15**: [Link](https://www.almountakhab.com/node/13207017)
+
+
 ### atletico madrid (N/A, Sat, 30 Nov 2024 12:40:00 -0800)
 
 - **Antoine Griezmann set for Atletico Madrid recall at Real Valladolid**: [Link](https://sports.yahoo.com/antoine-griezmann-set-atletico-madrid-192000846.html)
