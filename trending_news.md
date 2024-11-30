@@ -1,3 +1,11 @@
+### bayern munich (N/A, Sat, 30 Nov 2024 10:10:00 -0800)
+
+- **Thomas Müller: "Dortmund my biggest German rival"**: [Link](https://www.bundesliga.com/en/bundesliga/news/borussia-dortmund-bayern-munich-pre-match-quotes-reaction-der-klassiker-29858)
+- **Vincent Kompany: "This is the Most Important Game of the Season for Both 
+Bayern and Dortmund"**: [Link](https://terrikon.com/en/posts/502199)
+- **A 'Klassiker' with the Best Musiala... but Ignored by 'The Best'**: [Link](https://www.footboom1.com/en/news/football/2118860-a-klassiker-with-the-best-musiala-but-ignored-by-the-best)
+
+
 ### وست هام ضد آرسنال (N/A, Sat, 30 Nov 2024 10:00:00 -0800)
 
 - **ساكا وتروسارد في هجوم آرسنال أمام وست هام**: [Link](https://www.kooora.com/?n=1371686)
