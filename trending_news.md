@@ -1,3 +1,27 @@
+### barca (N/A, Sat, 30 Nov 2024 05:20:00 -0800)
+
+- **Spanish La Liga Barcelona versus Las Palmas kick off 13:00 Sat 30 Nov 2024**: [Link](https://www.bbc.com/sport/football/live/c4gz1d1rz05t)
+- **Possible Barcelona lineup for LaLiga clash against Las Palmas as Lamine 
+Yamal returns**: [Link](https://en.as.com/soccer/possible-barcelona-lineup-for-laliga-clash-against-las-palmas-as-lamine-yamal-returns-n/)
+- **Barcelona midfield ace set for an emotional encounter against Las Palmas**: [Link](https://sports.yahoo.com/barcelona-midfield-ace-set-emotional-112300563.html)
+
+
+### fc barcelone (N/A, Sat, 30 Nov 2024 05:20:00 -0800)
+
+- **FC Barcelone - UD Las Palmas en direct - La Liga : Football Scores & 
+Résultats - 30/11/2024**: [Link](https://www.eurosport.fr/football/la-liga/2024-2025/live-fc-barcelone-ud-las-palmas_mtc1524169/live.shtml)
+- **Las Palmas : Pour que la fête du 125e anniversaire soit belle**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4178269/fc-barcelone-las-palmas-pour-que-la-fete-du-125e-anniversaire-soit-belle)
+- **Le onze de départ du Barça contre Las Palmas**: [Link](https://www.blaugranas.fr/match/le-onze-de-depart-du-barca-contre-las-palmas-7174)
+
+
+### برشلونة (N/A, Sat, 30 Nov 2024 05:10:00 -0800)
+
+- **برشلونة يواجه بالماس مزهوًا بانتصاره.. والريال يسعى لمداواة جراحه أمام 
+خيتافي**: [Link](https://www.kooora.com/?n=1371476)
+- **مصابو برشلونة يؤازرون الفريق أمام لاس بالماس**: [Link](https://hihi2.com/2024/11/30/p2958001.html)
+- **بطولة إسبانيا: برشلونة لاستعادة نغمة الفوز وريال المدجج بالإصابات للتعويض**: [Link](https://ar.sport.le360.ma/football/AMNUFRVAYBA2HI353L246UNT7Y/)
+
+
 ### barcelona vs las palmas (N/A, Sat, 30 Nov 2024 04:10:00 -0800)
 
 - **Barcelona - Las Palmas, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/barcelona-las-palmas-en-directo-laliga-ea-sports-hoy-en-vivo-n-2/)
