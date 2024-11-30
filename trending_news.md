@@ -1,3 +1,19 @@
+### brentford – leicester (N/A, Sat, 30 Nov 2024 06:20:00 -0800)
+
+- **Match Preview: Brentford v Leicester City**: [Link](https://www.brentfordfc.com/en/news/article/match-previews-brentford-v-leicester-city-premier-league-30-11-2024)
+- **Thomas Frank reveals whether Igor Thiago will start Brentford's Premier 
+League clash with Leicester**: [Link](https://www.sportsmole.co.uk/football/brentford/news/frank-makes-igor-thiago-decision-ahead-of-leicester-clash_559422.html)
+- **Premier League Soccer: Livestream Brentford vs. Leicester From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-livestream-brentford-vs-leicester-from-anywhere/)
+
+
+### crystal palace – newcastle (N/A, Sat, 30 Nov 2024 06:20:00 -0800)
+
+- **Preview: Crystal Palace vs. Newcastle United - prediction, team news, 
+lineups**: [Link](https://www.sportsmole.co.uk/football/crystal-palace/preview/preview-crystal-palace-vs-newcastle-prediction-team-news-lineups_559276.html)
+- **TF Preview – Crystal Palace (a) 30 Nov 2024**: [Link](https://true-faith.co.uk/tf-preview-crystal-palace-a-30-nov-2024/)
+- **Crystal Palace v Newcastle, Brentford v Leicester, and more: football – live**: [Link](https://www.theguardian.com/football/live/2024/nov/30/crystal-palace-v-newcastle-brentford-v-leicester-and-more-football-live)
+
+
 ### al-ettifaq – al ittihad (N/A, Sat, 30 Nov 2024 06:10:00 -0800)
 
 - **A duo of derby duels, while RSL leaders Al Ittihad go to Al Ettifaq**: [Link](https://www.spl.com.sa/en/news/514516/double-derby-delight-while-rsl-leaders-al-ittihad-go-to-al-ettifaq)
