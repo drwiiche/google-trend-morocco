@@ -1,3 +1,12 @@
+### al-shabab vs al-hilal (N/A, Sat, 30 Nov 2024 09:30:00 -0800)
+
+- **How to watch today's Al Shabab vs Al Hilal Saudi Pro League game: Live 
+stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/al-shabab-v-al-hilal-live-stream-online-tv-where-to-watch/blt26641706a69a1997)
+- **Will Neymar Jr Play Tonight in Al-Shabab vs Al-Hilal Saudi Pro League 
+2024-25 Football Match? Here’s the**: [Link](https://www.latestly.com/sports/football/will-neymar-jr-play-tonight-in-al-shabab-vs-al-hilal-saudi-pro-league-2024-25-football-match-heres-the-possibility-of-neymar-featuring-in-starting-xi-6457189.html)
+- **Preview: Al Shabab vs. Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-shahbab/preview/preview-al-shabab-vs-al-hilal-prediction-team-news-lineups_559332.html)
+
+
 ### دورتموند ضد البايرن (N/A, Sat, 30 Nov 2024 09:00:00 -0800)
 
 - **التشكيل الرسمي لصدام دورتموند وبايرن ميونخ**: [Link](https://www.kooora.com/?n=1371689)
