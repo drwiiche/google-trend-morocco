@@ -1,3 +1,34 @@
+### دورتموند ضد البايرن (N/A, Sat, 30 Nov 2024 09:00:00 -0800)
+
+- **التشكيل الرسمي لصدام دورتموند وبايرن ميونخ**: [Link](https://www.kooora.com/?n=1371689)
+- **تشكيلة بايرن ميونخ و بروسيا دورتموند في الدوري الألماني**: [Link](https://hihi2.com/2024/11/30/p2958420.html)
+- **مشاهدة مباراة بوروسيا دورتموند وبايرن ميونخ الكلاسيكو مباشر في الدوري 
+الألماني**: [Link](https://aboutmsr.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%88%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE/)
+
+
+### dortmund – bayern (N/A, Sat, 30 Nov 2024 08:50:00 -0800)
+
+- **Liveticker | Borussia Dortmund - Bayern München : | 12. Spieltag | 
+Bundesliga 2024/25**: [Link](https://www.kicker.de/dortmund-gegen-bayern-2024-bundesliga-4936885/ticker)
+- **Verkehrschaos erwartet: BVB warnt vor Anreiseproblemen zum Heimspiel gegen 
+FC Bayern**: [Link](https://www.t-online.de/region/dortmund/id_100542254/bvb-spiel-gegen-fc-bayern-anreisechaos-droht.html)
+- **Didi Hamann und Erik Meijer sprechen über das Topspiel Dortmund gegen Bayern**: [Link](https://sport.sky.de/fussball/artikel/didi-hamann-und-erik-meijer-sprechen-ueber-das-topspiel-dortmund-gegen-bayern/13263571/34828)
+
+
+### espanyol – celta vigo (N/A, Sat, 30 Nov 2024 08:50:00 -0800)
+
+- **Preview: Espanyol vs. Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/preview-espanyol-vs-celta-vigo-prediction-team-news-lineups_559264.html)
+- **Football Bet of the Day: Back Parakeets to fly high in Spain**: [Link](https://onefootball.com/en/news/football-bet-of-the-day-back-parakeets-to-fly-high-in-spain-40375358)
+- **Claudio Giráldez: "We Always Look Up and Want More"**: [Link](https://www.footboom1.com/en/news/football/2116210-claudio-giraldez-we-always-look-up-and-want-more)
+
+
+### hamza igamane (N/A, Sat, 30 Nov 2024 08:10:00 -0800)
+
+- **Rangers: Clement ‘admits’ he lied about Hamza Igamane injury**: [Link](https://onefootball.com/en/news/rangers-clement-admits-he-lied-about-hamza-igamane-injury-40372323)
+- **Rangers: Clement ‘admits’ he lied about Hamza Igamane injury**: [Link](https://www.ibroxnoise.co.uk/2024/11/rangers-clement-admits-he-lied-about-hamza-igamane-injury/)
+- **Steven Gerrard mentioned in astonishing Rangers verdict after Nice win**: [Link](https://www.ibroxnews.com/2024/11/29/steven-gerrard-mentioned-in-astonishing-rangers-verdict-after-nice-win/)
+
+
 ### west ham – arsenal (N/A, Sat, 30 Nov 2024 08:40:00 -0800)
 
 - **Preview: West Ham United vs. Arsenal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/arsenal/preview/preview-west-ham-vs-arsenal-prediction-team-news-lineups_559239.html)
