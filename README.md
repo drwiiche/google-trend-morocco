@@ -1,3 +1,26 @@
+### manchester united – everton (N/A, Sun, 1 Dec 2024 04:40:00 -0800)
+
+- **Preview: Manchester United vs. Everton - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-utd/preview/preview-man-utd-vs-everton-prediction-team-news-lineups_559380.html)
+- **RED DEVILS V TOFFEES: POSSIBLE LINEUPS!**: [Link](https://www.besoccer.com/new/live-man-united-v-everton-1339763)
+- **Confirmed Man United XI vs Everton: Joshua Zirkzee and Kobbie Mainoo start**: [Link](https://thepeoplesperson.com/2024/12/01/confirmed-man-united-xi-vs-everton-joshua-zirkzee-and-kobbie-mainoo-start-288187/)
+
+
+### chelsea – aston villa (N/A, Sun, 1 Dec 2024 04:40:00 -0800)
+
+- **Preview: Chelsea vs. Aston Villa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/chelsea/preview/preview-chelsea-vs-aston-villa-prediction-team-news-lineups_559417.html)
+- **Stan Collymore highlights Chelsea as the worst in the league for one thing 
+as he makes Aston Villa prediction**: [Link](https://chelsea.news/2024/11/stan-collymore-chelsea-aston-villa-prediction/)
+- **🚨 Neto and Sancho both start! Chelsea & Villa name their starting XIs**: [Link](https://onefootball.com/en/news/neto-and-sancho-both-start-chelsea-villa-name-their-starting-xis-40380508)
+
+
+### tottenham – fulham (N/A, Sun, 1 Dec 2024 04:40:00 -0800)
+
+- **Preview: Tottenham Hotspur vs. Fulham - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/spurs/preview/preview-spurs-vs-fulham-prediction-team-news-lineups_559389.html)
+- **Fulham's Marco Silva Calls on Ex-Arsenal Players to Step Up Against Spurs**: [Link](https://www.footboom1.com/en/news/football/2123834-fulham-s-marco-silva-calls-on-ex-arsenal-players-to-step-up-against-spurs)
+- **Dejan Kulusevski admits Tottenham's clash with Fulham is a 'must-win' after 
+Roma slip**: [Link](https://www.flashscore.com/news/soccer-premier-league-dejan-kulusevski-admits-tottenham-s-clash-with-fulham-is-a-must-win-after-roma-slip/pMF4SYuH/)
+
+
 ### villarreal – girona (N/A, Sun, 1 Dec 2024 04:10:00 -0800)
 
 - **Marcelino confirma a Parejo, Kiko Femenía y Pape Gueye y su plan con Gerard 
