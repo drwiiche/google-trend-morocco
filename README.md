@@ -1,3 +1,12 @@
+### man utd (N/A, Sun, 1 Dec 2024 06:50:00 -0800)
+
+- **November's awards: We need your help!**: [Link](https://www.manutd.com/en/news/detail/vote-for-man-utd-player-and-goal-of-the-month-for-november-2024)
+- **Manchester United vs Everton: Premier League preview, team news, stats & 
+head-to-head - BBC Sport**: [Link](https://www.bbc.com/sport/football/live/ckglqgrwgx0t)
+- **Ruben Amorim reveals reason Joshua Zirkzee starts ahead of Rasmus Hojlund 
+for Everton clash**: [Link](https://www.sportbible.com/football/football-news/man-utd/manchester-utd-joshua-zirkzee-rasmus-hojlund-ruben-amorim-selection-289882-20241201)
+
+
 ### copa libertadores (N/A, Sun, 1 Dec 2024 06:40:00 -0800)
 
 - **Luiz Henrique da a Botafogo la primera Libertadores de su historia**: [Link](https://www.marca.com/futbol/copa-libertadores/cronica/2024/11/30/674b8c2646163f72788b4590.html)
