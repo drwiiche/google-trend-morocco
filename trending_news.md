@@ -1,3 +1,10 @@
+### kooora tv (N/A, Sun, 1 Dec 2024 08:40:00 -0800)
+
+- **الركراكي يقترب من التتويج على حساب عموتة**: [Link](https://ar.sport.le360.ma/football/A7UQZOHXCZGLNO7E66ZVFT6JWU/)
+- **أشرف حكيمي أم صلاح.. من هو أغلى لاعب عربي في 2024؟**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A3%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A3%D9%85-%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D9%86-%D9%87%D9%88-%D8%A3%D8%BA%D9%84%D9%89-%D9%84%D8%A7%D8%B9%D8%A8-%D8%B9%D8%B1%D8%A8%D9%8A/)
+- **صلاح يتقدم على حكيمي في استفتاء كووورة للأفضل 2024**: [Link](https://www.kooora.com/?n=1371574)
+
+
 ### لا ليغا (N/A, Sun, 1 Dec 2024 08:10:00 -0800)
 
 - **فليك يبرر الهزيمة أمام لاس بالماس**: [Link](https://www.kooora.com/?n=1371666)
