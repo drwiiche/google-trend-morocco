@@ -1,3 +1,11 @@
+### charles kushner (N/A, Sun, 1 Dec 2024 06:10:00 -0800)
+
+- **Trump picks Jared Kushner's father for ambassador to France**: [Link](https://www.bbc.com/news/articles/c0qdq9z7pjzo)
+- **Trump selects Jared Kushner’s father, Charles Kushner, for ambassador to 
+France**: [Link](https://www.cnn.com/2024/11/30/politics/charles-kushner-france-ambassador-trump/index.html)
+- **Tax fraud convict Charles Kushner named US envoy to France**: [Link](https://www.msn.com/en-ie/news/world/tax-fraud-convict-charles-kushner-named-us-envoy-to-france/ar-AA1v3Pix)
+
+
 ### manchester united (N/A, Sun, 1 Dec 2024 06:00:00 -0800)
 
 - **Man United star 'wants to LEAVE in January' to be reunited with former boss 
