@@ -1,3 +1,10 @@
+### galatasaray – eyüpspor (N/A, Sun, 1 Dec 2024 07:20:00 -0800)
+
+- **Galatasaray'dan maç öncesi hakem tepkisi: "Kötü niyetin göstergesi"**: [Link](https://www.ntvspor.net/futbol/galatasaray-dan-mac-oncesi-hakem-tepkisi-kotu-niyetin-gostergesi-674c74b612dd4303efdbc061)
+- **Eray Yazgan: 'VAR hakemi ataması skandal bir karardır'**: [Link](https://www.malatyaguncel.com/eray-yazgan-var-hakemi-atamasi-skandal-bir-karardir-2664752h.htm)
+- **Avrupa'da bu fikstürün örneği çok! - Futbol - Spor Haberleri**: [Link](https://www.milliyet.com.tr/skorer/avrupada-bu-fiksturun-ornegi-cok-7247310)
+
+
 ### liverpool – manchester city (N/A, Sun, 1 Dec 2024 07:10:00 -0800)
 
 - **Liverpool vs Man City: Kevin De Bruyne to start? Will Trent 
