@@ -1,3 +1,17 @@
+### classement la liga (N/A, Sun, 1 Dec 2024 09:20:00 -0800)
+
+- **DIRECT. Real Madrid-Getafe (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-madrid-getafe-live/657426)
+- **DIRECT. Real Madrid-Getafe: suivez le match de la 15e journée de Liga**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-real-madrid-getafe-suivez-le-match-de-la-15e-journee-de-liga_LS-202412010297.html)
+- **Liga : en vidéo, le but libérateur de Kylian Mbappé face à Getafe**: [Link](https://www.lefigaro.fr/sports/football/espagne/liga-en-video-le-but-liberateur-de-kylian-mbappe-face-a-getafe-20241201)
+
+
+### pronostics quinté (N/A, Sun, 1 Dec 2024 09:20:00 -0800)
+
+- **Quinté+: Les Notes des partants du Quinté+ de ce dimanche 1er décembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-dimanche-1er-decembre)
+- **Quinté du dimanche 1er décembre 2024 à Vincennes : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-1er-decembre-2024-a-vincennes-les-pronostics-7900445933)
+- **Les pronos hippiques du dimanche 1er décembre 2024**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-1er-decembre-2024_AN-202411300393.html)
+
+
 ### ترتيب الدوري المغربي (N/A, Sun, 1 Dec 2024 09:10:00 -0800)
 
 - **الدفاع الجديدي - نهضة بركان: هل يكون السابع تواليا؟**: [Link](https://www.almountakhab.com/node/13207098)
