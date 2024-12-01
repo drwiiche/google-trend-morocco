@@ -1,3 +1,11 @@
+### psg (N/A, Sat, 30 Nov 2024 12:30:00 -0800)
+
+- **PSG - Nantes : la réaction totalement désabusée de Luis Enrique**: [Link](https://www.footmercato.net/a4809832662807628669-psg-nantes-la-reaction-totalement-desabusee-de-luis-enrique)
+- **Zidane, la rumeur enfle !**: [Link](https://www.football.fr/mercato/zidane-la-rumeur-enfle-726905.html)
+- **Le Top de l'After Foot : “On ne mérite pas notre classement en LDC”, Luis 
+Enrique se voile-t-il la face ? – 29/11**: [Link](https://rmcsport.bfmtv.com/replay-emissions/after-foot/le-top-de-l-after-foot-on-ne-merite-pas-notre-classement-en-ldc-luis-enrique-se-voile-t-il-la-face-29-11_EN-202411291087.html)
+
+
 ### paris saint germain (N/A, Sat, 30 Nov 2024 14:00:00 -0800)
 
 - **PSG - Nantes : la réaction totalement désabusée de Luis Enrique**: [Link](https://www.footmercato.net/a4809832662807628669-psg-nantes-la-reaction-totalement-desabusee-de-luis-enrique)
