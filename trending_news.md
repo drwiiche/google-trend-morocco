@@ -1,3 +1,19 @@
+### villarreal – girona (N/A, Sun, 1 Dec 2024 04:10:00 -0800)
+
+- **Marcelino confirma a Parejo, Kiko Femenía y Pape Gueye y su plan con Gerard 
+Moreno**: [Link](https://www.eldesmarque.com/futbol/villarreal-cf/20241129/marcelino-confirma-parejo-kiko-femenina-pape-gueye-plan-gerard-moreno_300516347.html)
+- **Marcelino piropea al Girona: “Es un equipo divertido”**: [Link](https://castellonaldia.elmundo.es/deportes/villarreal-cf/marcelino-piropea-girona-equipo-divertido-villarreal-cf-laliga-CF22143111)
+- **El Villarreal, un espejo para el Girona**: [Link](https://www.superdeporte.es/villarreal-cf/2024/11/30/villarreal-espejo-girona-112203250.html)
+
+
+### kash patel (N/A, Sun, 1 Dec 2024 03:50:00 -0800)
+
+- **Donald Trump picks Kash Patel for FBI and Chad Chronister to DEA**: [Link](https://www.bbc.com/news/articles/c30p5qlj970o)
+- **Trump picks loyalist Kash Patel to run FBI**: [Link](https://www.theguardian.com/us-news/2024/dec/01/trump-picks-loyalist-kash-patel-to-run-fbi)
+- **Trump announces he intends to replace current FBI director with loyalist 
+Kash Patel**: [Link](https://www.cnn.com/2024/11/30/politics/kash-patel-fbi-director-trump/index.html)
+
+
 ### utrecht – psv eindhoven (N/A, Sun, 1 Dec 2024 03:30:00 -0800)
 
 - **All about | After seventeen matches, FC Utrecht brought unprecedented 
