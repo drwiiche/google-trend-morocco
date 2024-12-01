@@ -1,3 +1,19 @@
+### laliga (N/A, Sun, 1 Dec 2024 09:30:00 -0800)
+
+- **Julián Álvarez's Scoring Streak in LaLiga with Atlético Madrid**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles-video/juli%C3%A1n-%C3%A1lvarez-scoring-streak-in-laliga-with-atl%C3%A9tico-madrid-2024-12-01)
+- **Joao Felix comparison adds extra smile for Atletico Madrid**: [Link](https://www.football-espana.net/2024/11/27/joao-felix-comparison-adds-extra-smile-for-atletico-madrid)
+- **Alejandro Balde injury for Barcelona could spell bad news for Celtic**: [Link](https://www.67hailhail.com/transfers/fabrizio-romanos-post-might-now-just-spell-bad-news-for-celtic-and-brendan-rodgers-in-january/)
+
+
+### liverpool fc (N/A, Sun, 1 Dec 2024 09:30:00 -0800)
+
+- **Arne Slot: The best teams don't admire their work - they keep on pushing**: [Link](https://www.liverpoolfc.com/news/arne-slot-best-teams-dont-admire-their-work-they-keep-pushing)
+- **Arne Slot Explains Why Real Madrid Are The Best Team In Europe Despite 
+Recent Defeat Against Liverpool**: [Link](https://www.si.com/onsi/soccer/real-madrid/champions-league/arne-slot-explains-why-real-madrid-are-the-best-team-in-europe-despite-recent-defeat-against-liverpool)
+- **‘I will not apologise’: Arne Slot issues 22-word command to Liverpool 
+players ahead of Real Madrid test**: [Link](https://www.msn.com/en-gb/sport/football/i-will-not-apologise-arne-slot-issues-22-word-command-to-liverpool-players-ahead-of-real-madrid-test/ar-AA1uRxwD)
+
+
 ### classement la liga (N/A, Sun, 1 Dec 2024 09:20:00 -0800)
 
 - **DIRECT. Real Madrid-Getafe (La Liga 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2024-2025/real-madrid-getafe-live/657426)
