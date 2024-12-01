@@ -1,3 +1,11 @@
+### utrecht – psv eindhoven (N/A, Sun, 1 Dec 2024 03:30:00 -0800)
+
+- **All about | After seventeen matches, FC Utrecht brought unprecedented 
+winning streak to an end**: [Link](https://www.psv.nl/en/media/artikel/alles-over-na-zeventien-wedstrijden-bracht-fc-utrecht-einde-aan-ongekende-zegereeks)
+- **Sunday's Eredivisie predictions including FC Utrecht vs. PSV Eindhoven**: [Link](https://www.sportsmole.co.uk/football/fc-utrecht/eredivisie-predictions/feature/sundays-eredivisie-predictions-including-utrecht-vs-psv_559454.html)
+- **Preview: FC Utrecht vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fc-utrecht/preview/preview-utrecht-vs-psv-prediction-team-news-lineups_559427.html)
+
+
 ### psg (N/A, Sat, 30 Nov 2024 12:30:00 -0800)
 
 - **PSG - Nantes : la réaction totalement désabusée de Luis Enrique**: [Link](https://www.footmercato.net/a4809832662807628669-psg-nantes-la-reaction-totalement-desabusee-de-luis-enrique)
