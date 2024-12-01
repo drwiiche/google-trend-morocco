@@ -1,3 +1,11 @@
+### real madrid vs getafe (N/A, Sun, 1 Dec 2024 06:30:00 -0800)
+
+- **Rodrygo return boosts injury-hit Real Madrid**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/rodrygo-return-boosts-injury-hit-real-madrid-2024-11-30)
+- **Ancelotti: “The Getafe game is going to be tough, we'll have to perform 
+well to win it"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/ancelotti-30-11-2024)
+- **The numbers behind Getafe’s away misfortune against Real Madrid**: [Link](https://madriduniversal.com/the-numbers-behind-getafes-away-misfortune-against-real-madrid/)
+
+
 ### charles kushner (N/A, Sun, 1 Dec 2024 06:10:00 -0800)
 
 - **Trump picks Jared Kushner's father for ambassador to France**: [Link](https://www.bbc.com/news/articles/c0qdq9z7pjzo)
