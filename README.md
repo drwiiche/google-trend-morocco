@@ -1,3 +1,10 @@
+### هسبريس (N/A, Sat, 30 Nov 2024 23:00:00 -0800)
+
+- **أشكال جديدة للتسول تتمدد بالشوارع المغربية.. قصص محبوكة وطرق احتيالية**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D9%83%D8%A7%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D8%AA%D8%B3%D9%88%D9%84-%D8%AA%D8%AA%D9%85%D8%AF%D8%AF-%D8%A8%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D8%A7%D9%84%D9%85-1473123.html)
+- **اي مسؤولية لـ “سبيطار مرشيش” في انتشار المختلين عقلي?...**: [Link](https://kech24.com/%D8%A7%D9%8A-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9-%D9%84%D9%80-%D8%B3%D8%A8%D9%8A%D8%B7%D8%A7%D8%B1-%D9%85%D8%B1%D8%B4%D9%8A%D8%B4-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%B4%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AE%D8%AA%D9%84%D9%8A%D9%86-%D8%B9%D9%82%D9%84%D9%8A%D8%A7-%D8%A8%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D8%9F.html)
+- **حملات أمنية تستهدف المتشردين والمختلين عقليا بمراكش**: [Link](https://ar.hibapress.com/details-576266.html)
+
+
 ### ibrahima konaté (N/A, Sat, 30 Nov 2024 18:30:00 -0800)
 
 - **"One of a kind" £180k-a-week Liverpool star fit to start against Man City**: [Link](https://www.footballfancast.com/trent-alexander-arnold-fit-to-start-for-liverpool-against-man-city/)
