@@ -1,3 +1,19 @@
+### liverpool – manchester city (N/A, Sun, 1 Dec 2024 07:10:00 -0800)
+
+- **Liverpool vs Man City: Kevin De Bruyne to start? Will Trent 
+Alexander-Arnold lose his place? The key selection dilemmas**: [Link](https://www.skysports.com/football/news/11661/13262466/liverpool-vs-man-city-kevin-de-bruyne-to-start-will-trent-alexander-arnold-lose-his-place-the-key-selection-dilemmas)
+- **Premier League LIVE: Build-up to four matches including Liverpool v 
+Manchester City**: [Link](https://www.bbc.com/sport/football/live/ce894p7ygjgt)
+- **Troy Deeney: Liverpool clash is ‘perfect game’ for struggling Man City...**: [Link](https://talksport.com/football/2338447/troy-deeney-manchester-city-liverpool-arne-slot-pep-guardiola/)
+
+
+### ليفربول ضد مان سيتي (N/A, Sun, 1 Dec 2024 07:10:00 -0800)
+
+- **التشكيلة الرسمية لمانشستر سيتي و ليفربول في الدوري الانجليزي**: [Link](https://hihi2.com/2024/12/01/p2959873.html)
+- **صلاح وهالاند وجها لوجه في قمة ليفربول والسيتي**: [Link](https://www.kooora.com/?n=1371914)
+- **موعد مباراة ليفربول ضد مانشستر سيتي بالدوري الإنجليزي والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2024/11/30/liverpool-manchester-city)
+
+
 ### man utd (N/A, Sun, 1 Dec 2024 06:50:00 -0800)
 
 - **November's awards: We need your help!**: [Link](https://www.manutd.com/en/news/detail/vote-for-man-utd-player-and-goal-of-the-month-for-november-2024)
