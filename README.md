@@ -1,3 +1,29 @@
+### manchester united (N/A, Sun, 1 Dec 2024 06:00:00 -0800)
+
+- **Man United star 'wants to LEAVE in January' to be reunited with former boss 
+after Ruben Amorim previously iden**: [Link](https://www.dailymail.co.uk/sport/football/article-14143241/Man-United-joshua-zirkzee-juventus-thiago-motta.html)
+- **Game over for classy Man Utd star, with exit assured and two new signings 
+coming**: [Link](https://www.msn.com/en-gb/sport/other/game-over-for-classy-man-utd-star-with-exit-assured-and-two-new-signings-coming/ar-AA1v204p)
+- **Manchester United vs Everton: Premier League preview, team news, stats & 
+head-to-head - BBC Sport**: [Link](https://www.bbc.com/sport/football/live/ckglqgrwgx0t)
+
+
+### montpellier – lille (N/A, Sun, 1 Dec 2024 05:50:00 -0800)
+
+- **Lucas (supporter montpelliérain) : « Le LOSC est un club qui ne fait parler 
+de lui qu’en bien »**: [Link](https://lepetitlillois.com/2024/12/01/lucas-supporter-montpellierain-le-losc-est-un-club-qui-ne-fait-parler-de-lui-quen-bien/)
+- **Joris Chotard : « Se donner à 100% ne sera pas suffisant »**: [Link](https://onefootball.com/fr/news/joris-chotard-se-donner-a-100-ne-sera-pas-suffisant-40379466)
+- **PRONOS PARIS RMC Le buteur du jour du 1er décembre - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-1er-decembre-ligue-1_AN-202411300436.html)
+
+
+### real madrid – getafe (N/A, Sun, 1 Dec 2024 05:40:00 -0800)
+
+- **Real Madrid - Getafe en directo | LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/r-madrid-getafe/2024/12/01/01_0101_20241201_186_1450-directo.html)
+- **Arda Güler, el primero: los 3 cambios que prepara Ancelotti para el partido 
+contra el Getafe**: [Link](https://www.defensacentral.com/real_madrid/1709331231-arda-guler-el-primero-los-3-cambios-que-prepara-ancelotti-para-el-partido-contra-el-getafe)
+- **Convocatoria del Real Madrid contra el Getafe**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-getafe-30-11-2024)
+
+
 ### تشيلسي ضد أستون فيلا (N/A, Sun, 1 Dec 2024 05:40:00 -0800)
 
 - **قبل انطلاق مباراة تشيلسي وأستون فيلا.. رقم مميز لـ جاكسون**: [Link](https://hihi2.com/2024/12/01/p2959734.html)
