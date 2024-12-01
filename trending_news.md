@@ -1,3 +1,11 @@
+### syria live (N/A, Sun, 1 Dec 2024 08:40:00 -0800)
+
+- **Syrian and Russian jets step up strikes on rebels after opposition seize 
+much of Aleppo**: [Link](https://www.cnn.com/2024/12/01/middleeast/syrian-regime-airstrikes-opposition-forces-intl/index.html)
+- **Syria: Who are Hayat Tahrir al-Sham, the rebels seizing control of Aleppo?**: [Link](https://www.bbc.com/news/articles/ce313jn453zo)
+- **Syrian rebels reach central Aleppo as army announces ‘temporary withdrawal’**: [Link](https://www.aljazeera.com/news/2024/11/30/syrian-army-announces-temporary-withdrawal-from-aleppo-after-rebel-assault)
+
+
 ### kooora tv (N/A, Sun, 1 Dec 2024 08:40:00 -0800)
 
 - **الركراكي يقترب من التتويج على حساب عموتة**: [Link](https://ar.sport.le360.ma/football/A7UQZOHXCZGLNO7E66ZVFT6JWU/)
