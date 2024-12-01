@@ -1,3 +1,11 @@
+### copa libertadores (N/A, Sun, 1 Dec 2024 06:40:00 -0800)
+
+- **Luiz Henrique da a Botafogo la primera Libertadores de su historia**: [Link](https://www.marca.com/futbol/copa-libertadores/cronica/2024/11/30/674b8c2646163f72788b4590.html)
+- **Va por ti, Garrincha**: [Link](https://as.com/futbol/internacional/va-por-ti-garrincha-n/)
+- **Final Copa Libertadores: Atlético Mineiro - Botafogo: sigue en directo el 
+partido entre Atlético Mineiro y Botafogo**: [Link](https://www.sport.es/es/directo/copa-libertadores/final-copa-libertadores-atletico-mineiro-112214626/narracion)
+
+
 ### real madrid vs getafe (N/A, Sun, 1 Dec 2024 06:30:00 -0800)
 
 - **Rodrygo return boosts injury-hit Real Madrid**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/rodrygo-return-boosts-injury-hit-real-madrid-2024-11-30)
