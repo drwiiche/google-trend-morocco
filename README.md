@@ -1,3 +1,29 @@
+### ترتيب الدوري المغربي (N/A, Sun, 1 Dec 2024 09:10:00 -0800)
+
+- **الدفاع الجديدي - نهضة بركان: هل يكون السابع تواليا؟**: [Link](https://www.almountakhab.com/node/13207098)
+- **أبرزها مواجهة الحسنية ضد الرجاء.. الجولة الـ12 من البطولة تختتم اليوم الأحد 
+بثلاث مباريات**: [Link](https://m.elbotola.com/article/2024-12-01-11-24-348.html)
+- **القنوات الناقلة لمباراة نهضة بركان والدفاع الحسني الجديدي في الدوري المغربي 
+مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/465819308419211-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AD%D8%B3%D9%86%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### rca (N/A, Sun, 1 Dec 2024 09:10:00 -0800)
+
+- **Important pentru toți șoferii! Un gigant internațional va vinde RCA în 
+România, într-o formulă unică.…**: [Link](https://www.economica.net/important-pentru-toti-soferii-un-gigant-international-va-vinde-rca-in-romania-intr-o-formula-unica-ce-soferi-vor-avea-preturi-mici_792191.html)
+- **Reapare în România o firmă de asigurări de poveste. Cum se va numi? Prin ce 
+se distinge?**: [Link](https://newsweek.ro/economie/reapare-in-romania-o-firma-de-asigurari-de-poveste-cum-se-va-numi-prin-ce-se-distinge)
+- **Economica.net | Anytime de la Interamerican ar putea vinde polițe RCA în 
+România. Afaceri predictibile**: [Link](https://termene.ro/articole/economica-net-anytime-de-la-interamerican-ar-putea-vinde-polite-rca-in-romania)
+
+
+### yalla kora (N/A, Sun, 1 Dec 2024 08:10:00 -0800)
+
+- **بالصور: مانشستر يونايتد يكتسح إيفرتون**: [Link](https://www.kooora.com/?n=1371922)
+- **تعليق مفاجئ من اموريم بعد الفوز على إيفرتون**: [Link](https://hihi2.com/2024/12/01/p2960123.html)
+- **أداء رائع لمزراوي وعلى هذا الأساس استبدل**: [Link](https://www.almountakhab.com/node/13207105)
+
+
 ### réal madrid (N/A, Sun, 1 Dec 2024 09:00:00 -0800)
 
 - **Le Real Madrid passe à l'attaque sur un dossier XXL**: [Link](https://www.onzemondial.com/transferts/le-real-madrid-passe-a-l-attaque-sur-un-dossier-xxl-929880)
