@@ -1,3 +1,43 @@
+### réal madrid (N/A, Sun, 1 Dec 2024 09:00:00 -0800)
+
+- **Le Real Madrid passe à l'attaque sur un dossier XXL**: [Link](https://www.onzemondial.com/transferts/le-real-madrid-passe-a-l-attaque-sur-un-dossier-xxl-929880)
+- **Un cadre sur le départ, Liverpool veut piocher au Bayer Leverkusen**: [Link](https://www.football365.fr/un-cadre-sur-le-depart-liverpool-veut-piocher-au-bayer-leverkusen-10215136.html)
+- **L'avenir de Liverpool assuré même sans Alexander-Arnold, affirme Lawrenson**: [Link](https://www.footboom1.com/fr/news/football/2119812-liverpool-s-future-secure-even-without-alexander-arnold-claims-lawrenson)
+
+
+### ofi crète – olympiakos (N/A, Sun, 1 Dec 2024 09:00:00 -0800)
+
+- **OFI vs Olympiacos Prediction and Betting Tips | December 1st 2024**: [Link](https://www.sportskeeda.com/football/ofi-vs-olympiacos-prediction-betting-tips-december-1st-2024)
+
+
+### fiorentina – inter (N/A, Sun, 1 Dec 2024 08:50:00 -0800)
+
+- **Fiorentina, bella illusione o seria concorrente? L'Inter ce lo dirà. Juve, 
+Motta ha perso i gol**: [Link](https://www.gazzetta.it/Calcio/Serie-A/01-12-2024/fiorentina-inter-e-i-gol-della-juve-il-commento-alla-serie-a-di-agresti-sulla-gazzetta.shtml)
+- **Palladino-Inzaghi: Uno scontro d’alta classifica che nessuno si sarebbe 
+aspettato in estate**: [Link](https://www.labaroviola.com/palladino-inzaghi-uno-scontro-dalta-classifica-che-nessuno-si-sarebbe-aspettato-in-estate/279020/)
+- **Lautaro in campo al Franchi, nel 2017 fu corteggiato a lungo dalla 
+Fiorentina**: [Link](https://www.linterista.it/news/lautaro-in-campo-al-franchi-nel-2017-fu-corteggiato-a-lungo-dalla-fiorentina-143573)
+
+
+### toulouse – auxerre (N/A, Sun, 1 Dec 2024 08:50:00 -0800)
+
+- **DIRECT. Toulouse-Auxerre (Ligue 1 2024-2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2024-2025/toulouse-auxerre-live/655969)
+- **Carles Martinez Novell : “Il faudra qu’on soit très proche de notre 
+meilleur niveau face à Auxerre”**: [Link](https://www.lesviolets.com/actu/carles-martinez-novell-il-faudra-quon-soit-tres-proche-de-notre-meilleur-niveau-face-a-auxerre,74756.html)
+- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier du 1er décembre – 
+Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-du-1er-decembre-ligue-1_AN-202412010250.html)
+
+
+### max verstappen (N/A, Sun, 1 Dec 2024 08:50:00 -0800)
+
+- **Lando Norris dismisses Verstappen’s McLaren title claim: ‘He should start 
+doing comedy’ - The Athletic**: [Link](https://www.nytimes.com/athletic/5955378/2024/11/28/lando-norris-max-verstappen-f1-championship-claim-mclaren/)
+- **Max Verstappen warned as F1 icon tips third star to join Lan...**: [Link](https://www.motors-addict.com/en/article/formula1/max-verstappen-warned-as-f1-icon-tips-third-star-to-join-lando-norris-in-2025-title-fight/674c7546a6b0578043039242?utm_campaign=rss)
+- **Lando Norris who missed winning the 2024 F1 Championship due to Max 
+Verstappen, makes a Bold Claim says, 'Could Have Won if there Was No...'**: [Link](https://thesportstak.com/motor-sports/story/lando-norris-who-missed-winning-the-2024-f1-championship-due-to-max-verstappen-makes-a-bold-claim-says-could-have-won-if-there-was-no-3148164-2024-11-29)
+
+
 ### syria live (N/A, Sun, 1 Dec 2024 08:40:00 -0800)
 
 - **Syrian and Russian jets step up strikes on rebels after opposition seize 
