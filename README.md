@@ -1,3 +1,11 @@
+### paris saint germain (N/A, Sat, 30 Nov 2024 14:00:00 -0800)
+
+- **PSG - Nantes : la réaction totalement désabusée de Luis Enrique**: [Link](https://www.footmercato.net/a4809832662807628669-psg-nantes-la-reaction-totalement-desabusee-de-luis-enrique)
+- **Zidane, la rumeur enfle !**: [Link](https://www.football.fr/mercato/zidane-la-rumeur-enfle-726905.html)
+- **Le Top de l'After Foot : “On ne mérite pas notre classement en LDC”, Luis 
+Enrique se voile-t-il la face ? – 29/11**: [Link](https://rmcsport.bfmtv.com/replay-emissions/after-foot/le-top-de-l-after-foot-on-ne-merite-pas-notre-classement-en-ldc-luis-enrique-se-voile-t-il-la-face-29-11_EN-202411291087.html)
+
+
 ### هسبريس (N/A, Sat, 30 Nov 2024 23:00:00 -0800)
 
 - **أشكال جديدة للتسول تتمدد بالشوارع المغربية.. قصص محبوكة وطرق احتيالية**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D9%83%D8%A7%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D8%AA%D8%B3%D9%88%D9%84-%D8%AA%D8%AA%D9%85%D8%AF%D8%AF-%D8%A8%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D8%A7%D9%84%D9%85-1473123.html)
