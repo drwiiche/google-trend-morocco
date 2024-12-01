@@ -1,3 +1,11 @@
+### ibrahima konaté (N/A, Sat, 30 Nov 2024 18:30:00 -0800)
+
+- **"One of a kind" £180k-a-week Liverpool star fit to start against Man City**: [Link](https://www.footballfancast.com/trent-alexander-arnold-fit-to-start-for-liverpool-against-man-city/)
+- **Liverpool fans will hate watching how many times Endrick fouled Konate 
+before causing injury**: [Link](https://www.empireofthekop.com/2024/11/29/ibou-konate-endrick-fouls/)
+- **Liverpool v Manchester City: Team news**: [Link](https://www.liverpoolfc.com/news/liverpool-v-manchester-city-team-news-1)
+
+
 ### volodymyr zelensky (N/A, Sat, 30 Nov 2024 14:50:00 -0800)
 
 - **Zelenskyy suggests 'hot phase' of Ukraine war could end in return for NATO 
