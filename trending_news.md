@@ -1,3 +1,10 @@
+### ريال مدريد (N/A, Sun, 1 Dec 2024 07:50:00 -0800)
+
+- **التشكيل المتوقع.. مبابي ودياز في هجوم الريال أمام خيتافي**: [Link](https://www.kooora.com/?n=1371832)
+- **مبابي يحرز هدف ريال مدريد الثاني في شباك خيتافي**: [Link](https://hihi2.com/2024/12/01/p2960027.html)
+- **إبراهيم دياز جاهز لمواجهة خيتافي**: [Link](https://www.hespress.com/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%AC%D8%A7%D9%87%D8%B2-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-1472978.html)
+
+
 ### galatasaray – eyüpspor (N/A, Sun, 1 Dec 2024 07:20:00 -0800)
 
 - **Galatasaray'dan maç öncesi hakem tepkisi: "Kötü niyetin göstergesi"**: [Link](https://www.ntvspor.net/futbol/galatasaray-dan-mac-oncesi-hakem-tepkisi-kotu-niyetin-gostergesi-674c74b612dd4303efdbc061)
