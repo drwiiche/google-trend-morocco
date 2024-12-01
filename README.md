@@ -1,3 +1,10 @@
+### مان يونايتد ضد إيفرتون (N/A, Sun, 1 Dec 2024 04:50:00 -0800)
+
+- **راشفورد يقود هجوم مانشستر يونايتد أمام إيفرتون**: [Link](https://www.kooora.com/?n=1371876&o=n)
+- **إيفرتون يحتل المركز الثالث في تاريخ اليونايتد**: [Link](https://hihi2.com/2024/12/01/p2959663.html)
+- **أموريم (مدرب مانشستر يونايتد): "مزراوي لاعب لا يصدق.. إنه مستقبلنا"**: [Link](https://www.elbotola.com/article/2024-11-29-10-17-897.html)
+
+
 ### manchester united – everton (N/A, Sun, 1 Dec 2024 04:40:00 -0800)
 
 - **Preview: Manchester United vs. Everton - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/man-utd/preview/preview-man-utd-vs-everton-prediction-team-news-lineups_559380.html)
