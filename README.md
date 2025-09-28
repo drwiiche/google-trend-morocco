@@ -1,3 +1,15 @@
+### newcastle united f.c. vs arsenal f.c. timeline (N/A, Sun, 28 Sep 2025 06:20:00 -0700)
+
+- **Preview: Newcastle United v Arsenal | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-newcastle-united-v-arsenal-3)
+- **Arsenal out to silence Mikel Arteta critics by ending St James' Park hoodoo**: [Link](https://www.inkl.com/news/arsenal-out-to-silence-mikel-arteta-critics-by-ending-st-james-park-hoodoo)
+- **Newcastle United vs Arsenal: Top Over/Under Odds, Goalscorer Betting Tips and More**: [Link](https://theplayoffs.news/en/newcastle-united-vs-arsenal-top-over-under-odds-goalscorer-betting-tips/)
+
+
+### sergueï lavrov (N/A, Sun, 28 Sep 2025 06:10:00 -0700)
+
+
+
+
 ### رايو فاليكانو ضد إشبيلية (N/A, Sun, 28 Sep 2025 05:50:00 -0700)
 
 - **موعد مباراة رايو فاليكانو ضد إشبيلية في الدوري الاسباني والقنوات الناقلة**: [Link](https://zahraa.mr/5902335/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D8%B6%D8%AF-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%81/)
