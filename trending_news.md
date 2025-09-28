@@ -1,3 +1,10 @@
+### raja club athletic (N/A, Sun, 28 Sep 2025 09:40:00 -0700)
+
+- **Le Raja Club Athletic de Casablanca inaugure un terrain de basketball NBA pour les jeunes d’Al Fida**: [Link](https://ledesk.ma/encontinu/le-raja-club-athletic-de-casablanca-inaugure-un-terrain-de-basketball-nba-pour-les-jeunes-dal-fida/)
+- **La NBA s’invite à Laâyoune avec le lancement de la Junior League**: [Link](https://sport.le360.ma/basket-ball/nba/la-junior-nba-league-sinvite-a-laayoune-pour-son-lancement-au-maroc_CQPBYBWDABEBXKUOLFSJ4WEZSA/)
+- **Le Raja Club Athletic inaugure un terrain de basket rénové aux normes NBA au profit de la jeunesse casablancaise**: [Link](https://www.barlamane.com/fr/le-raja-club-athletic-inaugure-un-terrain-de-basket-renove-aux-normes-nba-au-profit-de-la-jeunesse-casablancaise/)
+
+
 ### fc barcelone (N/A, Sun, 28 Sep 2025 09:30:00 -0700)
 
 - **DIRECT. FC Barcelone-Real Sociedad (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/fc-barcelone-real-sociedad-live/676773)
