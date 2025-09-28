@@ -1,3 +1,10 @@
+### the washington post (N/A, Sun, 28 Sep 2025 16:30:00 -0700)
+
+- **Ryder Cup: Recap Sunday Singles at Bethpage**: [Link](https://www.pgatour.com/article/news/latest/2025/09/28/live-blog-live-updates-sunday-singles-ryder-cup-bethpage-black-europe-usa-scheffler-mcilroy)
+- **What is the Ryder Cup? 2025 format, teams, all-time winners**: [Link](https://www.espn.com/golf/story/_/id/46072682/what-ryder-cup-2025-format-teams-all-winners)
+- **Ryder Cup 2025: Saturday Morning Foursome Pairings**: [Link](https://www.rydercup.com/news-media/ryder-cup-2025--saturday-morning-foursome-pairings)
+
+
 ### nepal (N/A, Sun, 28 Sep 2025 16:00:00 -0700)
 
 - **Nepal protests: Committee imposes travel restrictions on ex-PM Oli; barred from leaving country**: [Link](https://timesofindia.indiatimes.com/world/rest-of-world/nepal-protests-committee-imposes-travel-restrictions-on-ex-pm-oli-barred-from-leaving-country/articleshow/124195728.cms)
