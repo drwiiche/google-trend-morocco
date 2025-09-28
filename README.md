@@ -1,3 +1,17 @@
+### elche – celta vigo (N/A, Sun, 28 Sep 2025 06:40:00 -0700)
+
+- **Previa | El Celta busca la primera victoria ante el invicto Elche**: [Link](https://onefootball.com/es/noticias/previa-el-celta-busca-la-primera-victoria-ante-el-invicto-elche-41729966)
+- **Elche - Celta en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-ea-sports/elche-celta/2025/09/28/01_0101_20250928_954_176-directo.html)
+- **Horario y dónde ver por TV el Elche - Celta de Vigo de LaLiga EA Sports**: [Link](https://www.mundodeportivo.com/horarios/futbol/20250928/1002540409/horario-donde-ver-tv-elche-celta-vigo-laliga-ea-sports.html)
+
+
+### rúben amorim (N/A, Sun, 28 Sep 2025 03:20:00 -0700)
+
+- **Manchester United começa a pensar no sucessor de Ruben Amorim**: [Link](https://www.flashscore.pt/noticias/futebol-premier-league-manchester-united-comeca-a-pensar-no-sucessor-de-ruben-amorim/zuntUwwA/)
+- **Cuidado, Amorim: treinador na Bundesliga ambiciona o lugar do português**: [Link](https://www.abola.pt/noticias/cuidado-amorim-treinador-na-bundesliga-ambiciona-o-lugar-do-portugues-2025092415490487406)
+- **Lá fora: Ruben Amorim "espancado" e Real Madrid 'atropelado'**: [Link](https://sapo.pt/artigo/la-fora-ruben-amorim-espancado-e-real-madrid-atropelado-68d8db34ef3e2223c5f525cc)
+
+
 ### newcastle united f.c. vs arsenal f.c. timeline (N/A, Sun, 28 Sep 2025 06:20:00 -0700)
 
 - **Preview: Newcastle United v Arsenal | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-newcastle-united-v-arsenal-3)
