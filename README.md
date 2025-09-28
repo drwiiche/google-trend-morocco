@@ -1,3 +1,10 @@
+### saïd jedidi (N/A, Sun, 28 Sep 2025 07:30:00 -0700)
+
+- **Décès du journaliste Saïd Jedidi, pionnier de la presse hispanophone au Maroc**: [Link](https://fr.le360.ma/medias/deces-du-journaliste-said-jedidi-pionnier-de-la-presse-hispanophone-au-maroc_W3D6NDIL5BHE3AHXLTCXB4ADQY/)
+- **Décès de Said Jedidi, la voix du Maroc en espagnol**: [Link](https://medias24.com/2025/09/28/deces-de-said-jedidi-voix-du-maroc-en-espagnol/)
+- **Décès du journaliste et écrivain Saïd Jedidi**: [Link](https://www.mapexpress.ma/actualite/societe-et-regions/deces-du-journaliste-ecrivain-said-jedidi/)
+
+
 ### fc barcelona vs real sociedad timeline (N/A, Sun, 28 Sep 2025 06:40:00 -0700)
 
 - **Barcelona Predicted Lineup vs. Real Sociedad: Lewandowski Leads Line, Yamal in Squad**: [Link](https://www.si.com/soccer/barcelona-predicted-lineup-vs-real-sociedad-la-liga-9-28-25)
