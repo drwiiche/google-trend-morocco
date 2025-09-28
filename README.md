@@ -1,3 +1,24 @@
+### lille – lyon (N/A, Sun, 28 Sep 2025 07:50:00 -0700)
+
+- **Giroud et Igamane, deux buteurs impossibles à associer dans l'attaque du LOSC ?**: [Link](https://www.lequipe.fr/Football/Article/Giroud-et-igamane-deux-buteurs-impossibles-a-associer-dans-l-attaque-du-losc/1597258)
+- **En direct : Lille-Lyon (0-0)**: [Link](https://www.sofoot.com/articles/en-direct-lille-lyon-2025)
+- **LOSC - OL : décryptage de l'adversaire**: [Link](https://www.ol.fr/fr/actualites/losc-ol-decryptage-de-l-adversaire)
+
+
+### نيوكاسل يونايتد ضد آرسنال (N/A, Sun, 28 Sep 2025 07:50:00 -0700)
+
+- **أرتيتا يوضح آخر تطورات تجديد عقد صليبا**: [Link](https://24.ae/article/920472/%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D9%88%D8%B6%D8%AD-%D8%A2%D8%AE%D8%B1-%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%82%D8%AF-%D8%B5%D9%84%D9%8A%D8%A8%D8%A7)
+- **آرسنال يصطدم بنيوكاسل وجماهيره في مباراة شعارها الندية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%88%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%87-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B4%D8%B9%D8%A7%D8%B1%D9%87%D8%A7-%D8%A7%D9%84%D9%86%D8%AF%D9%8A%D8%A9-2025-09-28)
+- **قبل اللقاء .. تعرف على اسم معلق مباراة أرسنال ونيوكاسل يونايتد في الدوري الإنجليزي والقنوات الناقلة**: [Link](https://alkhabarkw.com/5963/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%A7%D8%B3%D9%85-%D9%85%D8%B9%D9%84%D9%82-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1/)
+
+
+### مباراة المغرب اليوم (N/A, Sun, 28 Sep 2025 06:50:00 -0700)
+
+- **المنتخب الوطني لأقل من 20 سنة يجري آخر حصة تدريبية قبل لقاء إسبانيا**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5-6/)
+- **وهبي يستدعي لاعب من البطولة للمشاركة في مونديال الشباب**: [Link](https://www.radiomars.ma/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%84%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81/)
+- **المنتخب المغربي تحت 20 سنة يبدأ مشواره في كأس العالم للشباب بمواجهة إسبانيا**: [Link](https://m.elbotola.com/article/2025-09-28-11-30-936.html)
+
+
 ### newcastle – arsenal (N/A, Sun, 28 Sep 2025 07:40:00 -0700)
 
 - **Premier League LIVE: Newcastle United vs Arsenal - score, stats, radio commentary & live text updates**: [Link](https://www.bbc.com/sport/football/live/cq8edxevyw3t)
