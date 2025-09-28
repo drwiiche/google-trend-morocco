@@ -1,3 +1,10 @@
+### donald trump (N/A, Sun, 28 Sep 2025 01:50:00 -0700)
+
+- **Mayor Wilson Responds to President’s Threat to Send Troops to Portland**: [Link](https://www.portland.gov/mayor/keith-wilson/news/2025/9/27/mayor-wilson-responds-presidents-threat-send-troops-portland)
+- **Trump orders deployment of troops to Portland and authorises 'full force'**: [Link](https://www.bbc.com/news/articles/cddmn6ge6e2o)
+- **Portland leaders urge calm amid reports of a surge in federal officers at the ICE building**: [Link](https://www.opb.org/article/2025/09/26/ice-building-portland-leaders-urge-calm-increase-federal-officers/)
+
+
 ### generation z (N/A, Sun, 28 Sep 2025 01:30:00 -0700)
 
 - **How Does Gen Z Divorce Look Different?**: [Link](https://www.nytimes.com/2025/09/27/style/gen-z-divorce.html)
