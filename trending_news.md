@@ -1,3 +1,15 @@
+### botola (N/A, Sun, 28 Sep 2025 12:40:00 -0700)
+
+- **إقناع الشابي بالرحيل وإقامة حفل لتوديعه - Lematin Sports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%B4%D8%A7%D8%A8%D9%8A-%D8%B9%D9%86-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%84%D8%B3%D9%84%D8%A8%D9%8A-%D9%88%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8/8866)
+
+
+### u20 world cup (N/A, Sun, 28 Sep 2025 12:40:00 -0700)
+
+- **Nigeria's U20 team captain Daniel Bameyi exclusive: "We can achieve anything"**: [Link](https://www.olympics.com/en/news/nigeria-s-u20-team-captain-daniel-bameyi-exclusive-we-can-achieve-anything-fifa-world-cup)
+- **All you need to know ahead of World Cup clash between Norway and Nigeria**: [Link](https://www.tribalfootball.com/article/soccer-world-cup-u20-all-you-need-to-know-ahead-of-world-cup-clash-between-norway-and-nigeria-81464020-58f3-4975-87ac-b1bc7c570bd0)
+- **U-20 World Cup: Kamaldeen, Maigana vow to inspire Flying Eagles, eye global glory**: [Link](https://thenationonlineng.net/u-20-world-cup-kamaldeen-maigana-vow-to-inspire-flying-eagles-eye-global-glory/)
+
+
 ### real betis vs osasuna (N/A, Sun, 28 Sep 2025 12:20:00 -0700)
 
 - **Full-length Replay: MD10: Tigres UANL vs Atlas FC**: [Link](https://www.foxsports.com/replay/fmc-k4t0b7m7lk4sf8vx)
