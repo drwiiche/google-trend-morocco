@@ -1,3 +1,17 @@
+### fc barcelona vs real sociedad timeline (N/A, Sun, 28 Sep 2025 06:40:00 -0700)
+
+- **Barcelona Predicted Lineup vs. Real Sociedad: Lewandowski Leads Line, Yamal in Squad**: [Link](https://www.si.com/soccer/barcelona-predicted-lineup-vs-real-sociedad-la-liga-9-28-25)
+- **La Liga Soccer: Stream Barcelona vs. Real Sociedad Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-barcelona-vs-real-sociedad-live-from-anywhere/)
+- **PREVIEW | FC Barcelona v Reial Sociedad**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4370589/preview-fc-barcelona-v-reial-sociedad)
+
+
+### 3i atlas nasa (N/A, Sun, 28 Sep 2025 03:30:00 -0700)
+
+- **News on 3I/ATLAS: Lack of Non-Gravitational Acceleration Implies an Anomalously Massive Object**: [Link](https://avi-loeb.medium.com/news-on-3i-atlas-lack-of-non-gravitational-acceleration-implies-an-anomalously-massive-object-7ad320e69cef)
+- **Studying a distant visitor: What we know about Interstellar Object 3I/ATLAS**: [Link](https://www.planetary.org/articles/studying-a-distant-visitor-what-we-know-about-interstellar-object-3i-atlas)
+- **3 BRILLIANT MINUTES: A comet and the moon**: [Link](https://www.wbay.com/2025/09/25/3-brilliant-minutes-comet-moon/)
+
+
 ### elche – celta vigo (N/A, Sun, 28 Sep 2025 06:40:00 -0700)
 
 - **Previa | El Celta busca la primera victoria ante el invicto Elche**: [Link](https://onefootball.com/es/noticias/previa-el-celta-busca-la-primera-victoria-ante-el-invicto-elche-41729966)
