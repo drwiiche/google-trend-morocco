@@ -1,3 +1,22 @@
+### fenerbahçe – antalyaspor (N/A, Sun, 28 Sep 2025 09:20:00 -0700)
+
+- **Fenerbahçe'den Bartuğ Elmaz kararı!**: [Link](https://www.hurriyet.com.tr/sporarena/fenerbahceden-bartug-elmaz-karari-42964738)
+- **Fenerbahçe – Antalyaspor maçı ne zaman, saat kaçta ve hangi kanalda?**: [Link](https://www.24saatgazetesi.com/fenerbahce-antalyaspor-maci-ne-zaman-saat-kacta-ve-hangi-kanalda)
+- **Fenerbahçe’de tüm gözler artık Asensio’da!**: [Link](https://www.msn.com/tr-tr/spor/other/fenerbah%C3%A7e-de-t%C3%BCm-g%C3%B6zler-art%C4%B1k-asensio-da/ar-AA1NrLXm)
+
+
+### rs berkane (N/A, Sun, 28 Sep 2025 09:00:00 -0700)
+
+
+
+
+### newcastle vs arsenal (N/A, Sun, 28 Sep 2025 08:00:00 -0700)
+
+- **Billy Vigar | 2003-2025**: [Link](https://www.arsenal.com/news/billy-vigar-2003-2025)
+- **FA to conduct safety review of perimeter walls at football grounds | Tap to know more | Inshorts**: [Link](https://inshorts.com/en/news/fa-to-conduct-safety-review-of-perimeter-walls-at-football-grounds-1758970621791)
+- **Why are Arsenal and Newcastle players wearing black armbands?**: [Link](https://www.thesun.co.uk/sport/36856247/why-arsenal-newcastle-wearing-black-armbands/)
+
+
 ### dro fernández (N/A, Sun, 28 Sep 2025 09:00:00 -0700)
 
 - **Dro, más Masia para Flick**: [Link](https://as.com/futbol/primera/dro-mas-masia-para-flick-n/)
