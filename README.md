@@ -1,3 +1,17 @@
+### roma – hellas vérone (N/A, Sun, 28 Sep 2025 05:40:00 -0700)
+
+- **Probable Formation: Roma vs Hellas Verona**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/37341/probable-formation-roma-vs-hellas-verona)
+- **Artem Dovbyk confirmed to start vs Hellas Verona**: [Link](https://romapress.net/artem-dovbyk-confirmed-to-start-vs-hellas-verona/)
+- **Gasperini's pre-Verona press conference**: [Link](https://www.asroma.com/en/news/74005/gasperinis-pre-verona-press-conference)
+
+
+### aston villa – fulham (N/A, Sun, 28 Sep 2025 05:30:00 -0700)
+
+- **Villans entertain Cottagers in B6**: [Link](https://www.avfc.co.uk/news/2025/september/28/villans-entertain-cottagers-in-b6/)
+- **Fulham news: Cottagers out to end 11-year winless in Premier League clash with Aston Villa**: [Link](https://www.sportsmole.co.uk/football/fulham/news/fulham-out-to-end-11-year-winless-run-in-aston-villa-fixture_582459.html)
+- **Aston Villa team news as Unai Emery makes SIX changes for Premier League fixture against Fulham**: [Link](https://www.avillafan.com/39390/aston-villa-team-news-as-unai-emery-makes-six-changes-for-premier-league-fixture-against-fulham/)
+
+
 ### طقس (N/A, Sun, 28 Sep 2025 02:30:00 -0700)
 
 - **أحوال الطقس.. تسجيل انخفاض في درجات الحرارة اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%86%D8%B3%D8%A8%D9%8A%D8%A7-%D8%A8%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%B3%D9%88/)
