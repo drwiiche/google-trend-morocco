@@ -1,3 +1,10 @@
+### رايو فاليكانو ضد إشبيلية (N/A, Sun, 28 Sep 2025 05:50:00 -0700)
+
+- **موعد مباراة رايو فاليكانو ضد إشبيلية في الدوري الاسباني والقنوات الناقلة**: [Link](https://zahraa.mr/5902335/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D8%B6%D8%AF-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%81/)
+- **بث مباشر.. رايو فاليكانو في اختبار ناري أمام إشبيلية بالدوري الإسباني**: [Link](https://www.elfagr.org/5225318)
+- **رايو فاليكانو ضد إشبيلية**: [Link](https://www.turkeytodey.com/154452/%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D8%B6%D8%AF-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9/)
+
+
 ### roma – hellas vérone (N/A, Sun, 28 Sep 2025 05:40:00 -0700)
 
 - **Probable Formation: Roma vs Hellas Verona**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/37341/probable-formation-roma-vs-hellas-verona)
