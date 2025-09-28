@@ -1,3 +1,10 @@
+### santiago (N/A, Sun, 28 Sep 2025 14:50:00 -0700)
+
+- **Milan vs Napoli, en vivo: Serie A hoy, en directo | Última hora de Giménez, Modric…**: [Link](https://mexico.as.com/futbol/milan-vs-napoli-en-vivo-serie-a-hoy-en-directo-ultima-hora-de-gimenez-modric-n/)
+- **Allegri confirma el regreso de Leao, tiene dudas sobre Pulisic para el partido contra el Nápoles**: [Link](https://www.gazetaexpress.com/es/Allegri-confirma-el-regreso-de-Leao--tiene-dudas-sobre-Pulisic-para-el-partido-ante-el-N%C3%A1poles/)
+- **Santiago Giménez va por su primer gol en la Serie A ante el líder Nápoles**: [Link](https://889noticias.mx/espacio-deportivo/santiago-gimenez-va-por-su-primer-gol-en-la-serie-a-ante-el-lider-napoles/)
+
+
 ### radio mars (N/A, Sun, 28 Sep 2025 14:40:00 -0700)
 
 - **حكيمي: علاقتي بمبابي وطيدة.. ونساعد بعضنا البعض في الأوقات الصعبة**: [Link](https://sport.al3omk.com/90553.html)
