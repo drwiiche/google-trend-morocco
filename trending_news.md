@@ -1,3 +1,8 @@
+### quelle epoque (N/A, Sun, 28 Sep 2025 04:00:00 -0700)
+
+
+
+
 ### donald trump (N/A, Sun, 28 Sep 2025 01:50:00 -0700)
 
 - **Mayor Wilson Responds to President’s Threat to Send Troops to Portland**: [Link](https://www.portland.gov/mayor/keith-wilson/news/2025/9/27/mayor-wilson-responds-presidents-threat-send-troops-portland)
