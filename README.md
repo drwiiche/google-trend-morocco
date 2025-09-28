@@ -1,3 +1,31 @@
+### real betis vs osasuna (N/A, Sun, 28 Sep 2025 12:20:00 -0700)
+
+- **Full-length Replay: MD10: Tigres UANL vs Atlas FC**: [Link](https://www.foxsports.com/replay/fmc-k4t0b7m7lk4sf8vx)
+- **Real Betis vs. CA Osasuna Prediction, Picks, Live Odds - September 28**: [Link](https://www.bleachernation.com/picks/2025/09/28/real-betis-vs-ca-osasuna-prediction-picks-live-odds-september-28/)
+- **Tigres UANL vs. Atlas prediction, odds, Liga MX picks [9/24/2025]**: [Link](https://www.dimers.com/news/tigres-uanl-vs-atlas-prediction-liga-mx-wednesday-09-24-2025-ac)
+
+
+### wydad (N/A, Sun, 28 Sep 2025 12:20:00 -0700)
+
+- **Gad Elmaleh sans filtre à Casablanca : entre rires, confessions et émotions**: [Link](https://fr.hespress.com/443007-gad-elmaleh-sans-filtre-a-casablanca-entre-rires-confessions-et-emotions.html)
+- **Gad Elmaleh au Complexe Mohammed V pour le match Wydad-RCAZ**: [Link](https://sport.le360.ma/football/botola/gad-elmaleh-au-complexe-mohammed-v-pour-le-match-wydad-rcaz_BZFMOZCWCBEKJCFFA3P3G4FFIE/)
+- **Gad Elmaleh reporte son show casablancais du 28 au 29 septembre**: [Link](https://lematin.ma/culture/gad-elmaleh-reporte-son-show-casablancais-du-28-au-29-septembre/303359)
+
+
+### morocco vs spain (N/A, Sun, 28 Sep 2025 12:10:00 -0700)
+
+- **Morocco’s next wave primed for first U-20 World Cup in 20 years**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/morocco-s-next-wave-primed-for-first-u-20-world-cup-in-20-years/)
+- **Moroccan U20 team calls Ilyass Mahssoub for World Cup in Santiago**: [Link](https://en.yabiladi.com/articles/details/177459/moroccan-team-calls-ilyass-mahssoub.html)
+- **U20 World Cup: When and How to Watch Morocco vs Spain**: [Link](https://www.moroccoworldnews.com/2025/09/260857/u20-world-cup-when-and-how-to-watch-morocco-vs-spain/)
+
+
+### kac (N/A, Sun, 28 Sep 2025 12:00:00 -0700)
+
+- **Ex-KAC master player returns to North America!**: [Link](https://www.dubnetwork.ca/ex-kac-master-player-returns-to-north-america/)
+- **ECHL: Mitch Wahl Returns to Idaho**: [Link](https://insidetherink.com/echl-mitch-wahl-returns-to-idaho/)
+- **MITCH WAHL RE-JOINS STEELHEADS FOR FIRST TIME SINCE 2013-14 SEASON**: [Link](https://idahosteelheads.com/news/2025/09/mitch-wahl-re-joins-steelheads-for-first-time-since-2013-14-season)
+
+
 ### مباريات المنتخب المغربي (N/A, Sun, 28 Sep 2025 12:10:00 -0700)
 
 - **كأس العرب: تحديد مواعيد مباريات المنتخب الوطني**: [Link](https://www.mosaiquefm.net/ar/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/1462419/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A)
