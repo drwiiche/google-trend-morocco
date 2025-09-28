@@ -1,3 +1,17 @@
+### ترتيب الدوري المغربي (N/A, Sun, 28 Sep 2025 09:50:00 -0700)
+
+- **الجولة الثالثة.. تعيينات الحكام**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85/)
+- **فيديو: انطلاق الجولة الثالثة من البطولة الاحترافية "إنوي" لموسم 2025-2026**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A5%D9%86%D9%88%D9%8A-%D9%84%D9%85%D9%88%D8%B3%D9%85-20250926)
+- **الدوري المغربي.. صراع الصدارة المبكر وتحديات المشاركة الأفريقية**: [Link](https://24.ae/article/920403/)
+
+
+### arsenal vs (N/A, Sun, 28 Sep 2025 09:40:00 -0700)
+
+- **Newcastle vs Arsenal - Premier League: Live score, team news and updates as Nick Woltemade fires the hosts...**: [Link](https://www.dailymail.co.uk/sport/football/article-15136865/Newcastle-vs-Arsenal-2025-26-Premier-League-Live-Result.html)
+- **Woltemade heads in Newcastle's opener v. Arsenal**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/nick-woltemade-rises-up-to-head-in-newcastles-opener-against-arsenal)
+- **Caught on camera: Mikel Arteta's reaction to Arsenal being denied clear penalty against Newcastle United**: [Link](https://tribuna.com/en/blogs/caught-on-camera-mikel-artetas-reaction-to-arsenal-being-den/)
+
+
 ### raja club athletic (N/A, Sun, 28 Sep 2025 09:40:00 -0700)
 
 - **Le Raja Club Athletic de Casablanca inaugure un terrain de basketball NBA pour les jeunes d’Al Fida**: [Link](https://ledesk.ma/encontinu/le-raja-club-athletic-de-casablanca-inaugure-un-terrain-de-basketball-nba-pour-les-jeunes-dal-fida/)
