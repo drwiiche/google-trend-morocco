@@ -1,3 +1,24 @@
+### barcelone – real sociedad (N/A, Sun, 28 Sep 2025 08:40:00 -0700)
+
+- **Alineación posible del Barça hoy ante la Real Sociedad: en manos de Szczesny**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-la-real-sociedad-en-manos-de-szczesny-n/)
+- **El Barça, a por el liderato con Szczesny y Lamine**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20250928/1002540071/aval-szczesny-magia-lamine-real.html)
+- **El regreso a Montjuïc tiene premio**: [Link](https://www.sport.es/es/noticias/barca/regreso-montjuic-premio-122031469)
+
+
+### برشلونة ضد ريال سوسيداد (N/A, Sun, 28 Sep 2025 08:40:00 -0700)
+
+- **بقيادة ليفاندوفسكي.. الغيابات الطارئة تغير ملامح برشلونة أمام سوسيداد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A--%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D8%A7%D8%B1%D9%8A%D9%94%D8%A9-%D8%AA%D8%BA%D9%8A%D8%B1-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF/blt9a7fa5cacb2af3bd)
+- **موعد مباراة برشلونة ضد ريال سوسييداد والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/9/27/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF)
+- **برشلونة يستعيد نجمه.. لامين يامال حاضر ضد ريال سوسيداد**: [Link](https://m.elbotola.com/article/2025-09-28-10-50-751.html)
+
+
+### ud tenerife – real madrid club de fútbol (N/A, Sun, 28 Sep 2025 08:40:00 -0700)
+
+- **En directo online: Costa Adeje Tenerife-Real Madrid - ¿Dónde y cuándo ver el partido? - Resultado en vivo – Liga F 2025/2026 – Jornada 5 - Hoy**: [Link](https://espanol.eurosport.com/futbol/liga-f-moeve/2025-2026/live-tenerife-real-madrid-femenino_mtc1611462/live-commentary.shtml)
+- **Tres leyendas blanquiazules harán el saque de honor en el Costa Adeje Tenerife-Real Madrid**: [Link](https://diariodeavisos.elespanol.com/2025/09/tres-leyendas-blanquiazules-haran-el-saque-de-honor-en-el-costa-adeje-tenerife-real-madrid/)
+- **Andersson se estrena ante el imbatible Tenerife**: [Link](https://as.com/futbol/femenino/andersson-se-estrena-ante-el-imbatible-tenerife-n/)
+
+
 ### manifestations maroc (N/A, Sun, 28 Sep 2025 08:20:00 -0700)
 
 - **Maroc : des jeunes interpellés alors qu’ils manifestaient pour la justice sociale**: [Link](https://www.ouest-france.fr/monde/maroc/maroc-des-jeunes-interpelles-alors-quils-manifestaient-pour-la-justice-sociale-e026d5e4-9c19-11f0-b811-6c36c51f00fc)
