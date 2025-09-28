@@ -1,3 +1,17 @@
+### dro fernández (N/A, Sun, 28 Sep 2025 09:00:00 -0700)
+
+- **Dro, más Masia para Flick**: [Link](https://as.com/futbol/primera/dro-mas-masia-para-flick-n/)
+- **¿Quién es Dro? La joya del FC Barcelona que partirá de inicio contra la Real Sociedad**: [Link](https://cadenaser.com/nacional/2025/09/28/quien-es-dro-la-joya-del-fc-barcelona-que-partira-de-inicio-contra-la-real-sociedad-cadena-ser/)
+- **'Es el sustituto de Gavi': Hansi Flick lo tiene claro, jugará en el Barça con Pedri**: [Link](https://carpetasfcb.com/masculino/sustituto-gavi-hansi-flick-lo-tiene-claro-jugara-barca-con-pedri)
+
+
+### benzema (N/A, Sun, 28 Sep 2025 08:50:00 -0700)
+
+- **Karim Benzema reunion with Jose Mourinho?! Benfica boss open to signing ex-Real Madrid star with Al-Ittihad prepared to let him go for bargain fee**: [Link](https://www.goal.com/en/lists/karim-benzema-reunion-jose-mourinho-benfica-signing-real-madrid-al-ittihad-transfer-fee/blt9920dde39b789856)
+- **Benzema could reunite with Mourinho at Benfica in January - Marca**: [Link](https://tribuna.com/en/news/2025-09-27-benzema-could-reunite-with-mourinho-at-benfica-in-january-marca/)
+- **Benzema back to Europe? Mourinho weighs in**: [Link](https://sports.yahoo.com/article/benzema-back-europe-mourinho-weighs-054000241.html)
+
+
 ### barcelone – real sociedad (N/A, Sun, 28 Sep 2025 08:40:00 -0700)
 
 - **Alineación posible del Barça hoy ante la Real Sociedad: en manos de Szczesny**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-la-real-sociedad-en-manos-de-szczesny-n/)
