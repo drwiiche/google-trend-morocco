@@ -1,3 +1,10 @@
+### milan (N/A, Sun, 28 Sep 2025 13:30:00 -0700)
+
+- **Stella Jean Spring 2026: In Defense of Artisanship**: [Link](https://wwd.com/runway/spring-2026/milan/stella-jean/review/)
+- **Stella Jean's Milan runway features artisans from Bhutan and an appeal to preserve craftsmanship**: [Link](https://www.elpasoinc.com/stella-jeans-milan-runway-features-artisans-from-bhutan-and-an-appeal-to-preserve-craftsmanship/article_ba2bb6ba-0354-59f9-a87f-85abda4c7777.html)
+- **Stella Jean's Milan runway features artisans from Bhutan and an appeal to preserve craftsmanship**: [Link](https://www.independent.co.uk/news/italian-bhutan-milan-armani-stella-b2835090.html)
+
+
 ### morocco (N/A, Sun, 28 Sep 2025 13:20:00 -0700)
 
 - **Morocco Mourns Pioneer of Spanish-Language Local Media Saïd Jedidi**: [Link](https://www.moroccoworldnews.com/2025/09/260869/morocco-mourns-pioneer-of-spanish-language-local-media-said-jedidi/)
