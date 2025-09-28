@@ -1,3 +1,10 @@
+### wydad match (N/A, Sun, 28 Sep 2025 12:40:00 -0700)
+
+- **Gad Elmaleh au Complexe Mohammed V pour le match Wydad-RCAZ**: [Link](https://sport.le360.ma/football/botola/gad-elmaleh-au-complexe-mohammed-v-pour-le-match-wydad-rcaz_BZFMOZCWCBEKJCFFA3P3G4FFIE/)
+- **Gad Elmaleh sans filtre à Casablanca : entre rires, confessions et émotions**: [Link](https://fr.hespress.com/443007-gad-elmaleh-sans-filtre-a-casablanca-entre-rires-confessions-et-emotions.html)
+- **Gad Elmaleh reporte son show casablancais du 28 au 29 septembre**: [Link](https://lematin.ma/culture/gad-elmaleh-reporte-son-show-casablancais-du-28-au-29-septembre/303359)
+
+
 ### serie a (N/A, Sun, 28 Sep 2025 14:00:00 -0700)
 
 - **Serie A: in campo Milan-Napoli 2-1**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/09/28/serie-a-in-campo-milan-napoli-2-1_742b2701-47df-4d4d-a886-7dd638dd92a2.html)
