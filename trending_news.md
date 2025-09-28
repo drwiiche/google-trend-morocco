@@ -1,3 +1,17 @@
+### betis – osasuna (N/A, Sun, 28 Sep 2025 11:10:00 -0700)
+
+- **Los 21 futbolistas que han jugado en Betis y Osasuna: la 'Ley del Ex' puede aparecer en la Cartuja**: [Link](https://www.diariodesevilla.es/realbetis/21-futbolistas-han-jugado-betis-osasuna_0_2004893554.html)
+- **Cinco bajas y dos canteranos en la última sesión antes de recibir a Osasuna**: [Link](https://mundobetis.com/2025/09/27/cinco-bajas-y-dos-canteranos-en-la-ultima-sesion-antes-de-recibir-a-osasuna/)
+- **Betis - Osasuna: El Betis quiere crecer en la Cartuja**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/dddd-20250928163250-nts.html)
+
+
+### ac milan – naples (N/A, Sun, 28 Sep 2025 11:10:00 -0700)
+
+- **GdS: Different but sustainable models – Milan vs. Napoli extends beyond the pitch**: [Link](https://sempremilan.com/gds-sustainable-milan-napoli-beyond-pitch)
+- **A battle of brains awaits at San Siro: Modric vs Lobotka**: [Link](https://milanreports.com/2025/09/27/battle-of-brains-modric-lobotka/)
+- **Allegri: Napoli are favourites for the Serie A title**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/allegri-napoli-are-favourites-for-the-serie-a-title-2025-09-27)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Sun, 28 Sep 2025 10:40:00 -0700)
 
 - **هالاند يتجاوز أسطورة مانشستر يونايتد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/blt0088273e4faa1348)
