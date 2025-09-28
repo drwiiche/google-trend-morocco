@@ -1,3 +1,31 @@
+### ترتيب الدوري الاسباني (N/A, Sun, 28 Sep 2025 11:30:00 -0700)
+
+- **المونديال وديربي مدريد.. اختبارات الكبار تبعثر أفكار ألونسو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%88%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF--%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A8%D8%A7%D8%B1-%D8%AA%D8%A8%D8%B9%D8%AB%D8%B1-%D8%A7%D9%94%D9%81%D9%83%D8%A7%D8%B1-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88/blt2abc4d9766e89206)
+- **ما سر دموع سيميوني في ديربي مدريد؟**: [Link](https://www.aljazeera.net/sport/2025/9/27/%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D8%AF%D9%85%D9%88%D8%B9-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%B1%D8%AF%D9%8A%D8%AF)
+- **في مباراة شهدت تسجيل 7 أهداف.. أتليتيكو مدريد يحسم مواجهة الديربي أمام ريال مدريد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B4%D9%87%D8%AF%D8%AA-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-7-%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2025-09-27)
+
+
+### laliga (N/A, Sun, 28 Sep 2025 11:30:00 -0700)
+
+- **Atletico thrash Liga leaders Real Madrid in gripping derby**: [Link](https://www.beinsports.com/en-mena/football/la-liga/articles-video/atletico-thrash-liga-leaders-real-madrid-in-gripping-derby-2025-09-27)
+- **Atletico Madrid 5-2 Real Madrid: Xabi Alonso's side concede five in derby**: [Link](https://www.bbc.com/sport/football/live/c0q7ppe8wq8t)
+- **Real Madrid’s youthful rebuild is a work in progress under Xabi Alonso – it showed against Atletico**: [Link](https://berawangnews.com/real-madrids-youthful-rebuild-is-a-work-in-progress-under-xabi-alonso-it-showed-against-atletico/)
+
+
+### rennes – lens (N/A, Sun, 28 Sep 2025 11:30:00 -0700)
+
+- **Stade Rennais - RC Lens. « Quand on sera tous à 100 %, ça va faire mal ! » : Mahdi Camara se livre**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/stade-rennais-rc-lens-quand-on-sera-tous-a-100-pourcent-ca-va-faire-mal-mahdi-camara-se-livre-af363338-9c5c-11f0-ba76-fc23b95d5062)
+- **« C'est le meilleur duo que j'ai pu avoir, c'était le feu et l'eau » : Habib Beye et Pierre Sage, une collaboration fructueuse au Red Star en 2022**: [Link](https://www.lequipe.fr/Football/Article/Les-deux-coaches-habib-beye-rennes-et-pierre-sage-lens-partenaires-dans-le-staff-du-red-star-en-2022-et-2023-s-opposent-pour-la-premiere-fois-chez-les-pros/1597153)
+- **Ligue 1. Le clash du dimanche soir : Ludovic Blas v Florian Thauvin**: [Link](https://www.flashscore.fr/actualites/le-clash-du-dimanche-soir-ludovic-blas-x-florian-thauvin/63vSa7nL/)
+
+
+### macron grace presidentielle sarkozy (N/A, Sun, 28 Sep 2025 11:30:00 -0700)
+
+- **Condamnation de Nicolas Sarkozy : « Les attaques et menaces de mort » contre les magistrats « sont inadmissibles », dénonce Emmanuel Macron**: [Link](https://www.lemonde.fr/societe/article/2025/09/28/condamnation-de-nicolas-sarkozy-les-attaques-et-menaces-de-mort-contre-les-magistrats-sont-inadmissibles-denonce-l-elysee_6643268_3225.html)
+- **Propos de Nicolas Sarkozy sur la justice : l'ancien président "met de l'huile sur le feu", dénonce la présidente du Syndicat de la magistrature**: [Link](https://www.franceinfo.fr/politique/affaire/financement-de-la-campagne-de-sarkozy/propos-de-nicolas-sarkozy-sur-la-justice-l-ancien-president-met-de-l-huile-sur-le-feu-denonce-la-presidente-du-syndicat-de-la-magistrature_7519189.html)
+- **L’éditorial de Vincent Trémolet de Villers : «Sur les ruines de la démocratie»**: [Link](https://www.lefigaro.fr/vox/politique/l-editorial-de-vincent-tremolet-de-villers-sur-les-ruines-de-la-democratie-20250926)
+
+
 ### betis – osasuna (N/A, Sun, 28 Sep 2025 11:10:00 -0700)
 
 - **Los 21 futbolistas que han jugado en Betis y Osasuna: la 'Ley del Ex' puede aparecer en la Cartuja**: [Link](https://www.diariodesevilla.es/realbetis/21-futbolistas-han-jugado-betis-osasuna_0_2004893554.html)
