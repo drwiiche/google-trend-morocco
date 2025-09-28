@@ -1,3 +1,10 @@
+### nepal (N/A, Sun, 28 Sep 2025 16:00:00 -0700)
+
+- **Nepal protests: Committee imposes travel restrictions on ex-PM Oli; barred from leaving country**: [Link](https://timesofindia.indiatimes.com/world/rest-of-world/nepal-protests-committee-imposes-travel-restrictions-on-ex-pm-oli-barred-from-leaving-country/articleshow/124195728.cms)
+- **Nepal’s Ousted PM KP Sharma Oli Denies Issuing Shooting Orders During ‘Gen Z’ Protests**: [Link](https://www.deccanherald.com/world/deposed-pm-kp-sharma-oli-breaks-silence-after-weeks-denies-giving-shooting-orders-on-gen-z-protesters-3745452)
+- **Nepal: Oli denies any wrongdoing in Gen-Z protest, blames infiltrators for escalation of situation**: [Link](https://www.tribuneindia.com/news/world/nepal-oli-denies-any-wrongdoing-in-gen-z-protest-blames-infiltrators-for-escalation-of-situation/)
+
+
 ### santiago (N/A, Sun, 28 Sep 2025 14:50:00 -0700)
 
 - **Milan vs Napoli, en vivo: Serie A hoy, en directo | Última hora de Giménez, Modric…**: [Link](https://mexico.as.com/futbol/milan-vs-napoli-en-vivo-serie-a-hoy-en-directo-ultima-hora-de-gimenez-modric-n/)
