@@ -1,3 +1,17 @@
+### morocco (N/A, Sun, 28 Sep 2025 13:20:00 -0700)
+
+- **Morocco Mourns Pioneer of Spanish-Language Local Media Saïd Jedidi**: [Link](https://www.moroccoworldnews.com/2025/09/260869/morocco-mourns-pioneer-of-spanish-language-local-media-said-jedidi/)
+- **Said Jedidi, a great professional and pioneer of Spanish-language journalism in Morocco passes away**: [Link](https://www.atalayar.com/en/articulo/society/said-jedidi-great-professional-and-pioneer-of-spanish-language-journalism-in-morocco-passes-away/20250928165302218815.html)
+- **Saïd Jedidi, Pioneer of Spanish Press in Morocco, Dies at 77**: [Link](https://barlamantoday.com/2025/09/28/said-jedidi-pioneer-of-spanish-press-in-morocco-died-77/)
+
+
+### kooora مباريات اليوم (N/A, Sun, 28 Sep 2025 13:20:00 -0700)
+
+- **جدول مباريات اليوم الأحد 28 سبتمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-28-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt10ca95657c2fe4e7)
+- **بروفة الأبطال.. مواجهات نارية تشعل ملاعب أوروبا الليلة بين أرسنال ونيوكاسل وبرشلونة ويتحدى ريال سوسيداد قبل قمة باريس سان جيرمان وميلان يستضيف نابولي في صراع الدوري الإيطالي**: [Link](https://arabsport.org/2025/09/28/%D8%A8%D8%B1%D9%88%D9%81%D8%A9-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D9%85%D9%84%D8%A7%D8%B9/)
+- **جدول مباريات كرة القدم الأوروبية المباشرة 28 سبتمبر: نيوكاسل ضد أرسنال**: [Link](https://www.vietnam.vn/ar/lich-truc-tiep-bong-da-chau-au-ngay-28-9-newcastle-dau-arsenal)
+
+
 ### bein sport (N/A, Sun, 28 Sep 2025 13:00:00 -0700)
 
 - **Argentina Brazil Soccer Copa Libertadores**: [Link](https://www.couriernews.com/sports/argentina-brazil-soccer-copa-libertadores/image_9b2b14ee-bf38-5427-b362-13e68b820be2.html)
