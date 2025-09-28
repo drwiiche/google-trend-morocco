@@ -1,3 +1,17 @@
+### مباريات المنتخب المغربي (N/A, Sun, 28 Sep 2025 12:10:00 -0700)
+
+- **كأس العرب: تحديد مواعيد مباريات المنتخب الوطني**: [Link](https://www.mosaiquefm.net/ar/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/1462419/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A)
+- **برنامج مباريات المنتخب المغربي في كأس العرب 2025**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/9348)
+- **عودة نسور قرطاج.. تعرف على مجموعة تونس في كأس العرب قطر 2025 ومواعيد المباريات القادمة**: [Link](https://www.sabaharabi.com/684071)
+
+
+### fc barcelone match (N/A, Sun, 28 Sep 2025 11:30:00 -0700)
+
+- **FC Barcelone 2-1 Real Sociedad, La Liga : résumé du match (28/09/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/fc-barcelone-real-sociedad-live/676773)
+- **FC Barcelone - Real Sociedad en direct - La Liga : Football Scores & Résultats - 28/09/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-fc-barcelone-real-sociedad_mtc1610679/live-commentary.shtml)
+- **DIRECT. Barça-Real Sociedad: suivez le match de la 7e journée de Liga en live**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-barca-real-sociedad-suivez-le-match-de-la-7e-journee-de-liga-en-live_LS-202509280259.html)
+
+
 ### ميلان ضد نابولي (N/A, Sun, 28 Sep 2025 11:50:00 -0700)
 
 - **ما القنوات الناقلة لمباراة ميلان ونابولي في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt429e72daff78a25b)
