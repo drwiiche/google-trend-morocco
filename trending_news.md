@@ -1,3 +1,10 @@
+### fc barcelone (N/A, Sun, 28 Sep 2025 09:30:00 -0700)
+
+- **DIRECT. FC Barcelone-Real Sociedad (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/fc-barcelone-real-sociedad-live/676773)
+- **FC Barcelone - Real Sociedad : les compositions officielles**: [Link](https://www.footmercato.net/a5700665810076621395-fc-barcelone-real-sociedad-les-compositions-officielles)
+- **Prêts pour la réception de la Real Sociedad**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4370550/prets-pour-la-reception-de-la-real-sociedad)
+
+
 ### fenerbahçe – antalyaspor (N/A, Sun, 28 Sep 2025 09:20:00 -0700)
 
 - **Fenerbahçe'den Bartuğ Elmaz kararı!**: [Link](https://www.hurriyet.com.tr/sporarena/fenerbahceden-bartug-elmaz-karari-42964738)
