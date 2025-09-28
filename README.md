@@ -1,3 +1,17 @@
+### serie a (N/A, Sun, 28 Sep 2025 14:00:00 -0700)
+
+- **Serie A: in campo Milan-Napoli 2-1**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/09/28/serie-a-in-campo-milan-napoli-2-1_742b2701-47df-4d4d-a886-7dd638dd92a2.html)
+- **Diarra il nuovo Bosman: «La Fifa chiarisca i criteri per rompere con i club. Va riequilibrato il potere giocatori-club» Racconta la sua vicenda al Paìs. «La Fifa era vicina ai club russi per il Mondiale 2018. Ora rispetti la sentenza. Il giocatore non può andare via gr**: [Link](https://www.facebook.com/ilnapolista/photos/diarra-il-nuovo-bosman-la-fifa-chiarisca-i-criteri-per-rompere-con-i-club-va-rie/1308189224653063/)
+- **Live - Milan - Napoli: Napoli sotto di due gol. Inizia la ripresa (2 - 0, 3 Saelemaekers; 31 Pulisic)**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/live_milan_napoli_napoli_sotto_di_due_gol_inizia_la_ripresa_2_0_3_saelemaekers_31_pulisic_-75796129.html)
+
+
+### coupe du monde u20 2025 (N/A, Sun, 28 Sep 2025 13:00:00 -0700)
+
+- **Le replay de Japon - Egypte - Foot**: [Link](https://sports.orange.fr/videos/football/le-replay-de-japon-egypte-foot-CNT000002kVVsa.html)
+- **CDM U20 Chili 2025 : Le programme de cette nuit**: [Link](https://www.lopinion.ma/CDM-U20-Chili-2025-Le-programme-de-cette-nuit_a72252.html)
+- **Coupe du Monde U20 2025 : Le Chili et la Nouvelle-Zélande dos à dos à la pause**: [Link](https://africafootunited.com/coupe-du-monde-u20-2025-le-chili-et-la-nouvelle-zelande-dos-a-dos-a-la-pause/)
+
+
 ### milan (N/A, Sun, 28 Sep 2025 13:30:00 -0700)
 
 - **Stella Jean Spring 2026: In Defense of Artisanship**: [Link](https://wwd.com/runway/spring-2026/milan/stella-jean/review/)
