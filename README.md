@@ -1,3 +1,31 @@
+### barca vs (N/A, Sun, 28 Sep 2025 10:30:00 -0700)
+
+- **Barcelona hoy: alineación vs Real Sociedad en LaLiga**: [Link](https://www.365scores.com/es/news/alineacion-barcelona-hoy-real-sociedad/)
+- **El error de Joan Garcia, minimizado por Hansi Flick mientras el técnico del Barcelona elogia el impacto de Robert Lewandowski y Frenkie de Jong en la victoria sobre el Oviedo**: [Link](https://es-us.noticias.yahoo.com/deportes/error-joan-garcia-minimizado-hansi-101556043.html)
+- **Lewandowski y Ferran Torres: un toma y daca constante**: [Link](https://onefootball.com/en/news/lewandowski-y-ferran-torres-un-toma-y-daca-constante-41718770)
+
+
+### نبيلة منيب (N/A, Sun, 28 Sep 2025 10:30:00 -0700)
+
+- **الأمانة العامة للمصباح تحمل الحكومة المسؤولية عن تزايد التظاهرات السلمية المطالبة بأبسط الخدمات الأساسية وتدعو السلطات إلى التعامل بحكمة مع هذه التظاهرات وتسريح كل المعتقلين**: [Link](https://www.pjd.ma/219834-%D8%A7%D9%84%D8%A3%D9%85%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%84%D9%84%D9%85%D8%B5%D8%A8%D8%A7%D8%AD-%D8%AA%D8%AD%D9%85%D9%84-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7.html)
+- **إسبانيا ترحّل مهاجرا مغربيا رغم ادعائه خطر الاضطهاد في بلاده بسبب مشاركته في احتجاجات ضد التطبيع**: [Link](https://ar.telquel.ma/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-z-%D9%8A%D9%88%D9%86%D8%B3-%D8%B3%D8%B1%D8%A7%D8%AC-%D9%8A%D9%85%D9%83%D9%86-%D9%85%D8%B9%D8%A7%D9%82%D8%A8%D8%A9-%D8%A7/)
+- **"جيل Z".. من الاحتجاجات إلى إعادة تشكيل الوعي الجماعي بالمغرب**: [Link](https://ar.hibapress.com/details-661443.html)
+
+
+### botola 2 (N/A, Sun, 28 Sep 2025 10:30:00 -0700)
+
+- **بداية متعثرة للمغرب التطواني في بطولة القسم الثاني**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D9%85%D8%AA%D8%B9%D8%AB%D8%B1%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A/9321)
+- **البطولة الوطنية الاحترافية "إنوي" لكرة القدم (القسم الثاني – الدورة الأولى)..مواجهات متكافئة في مستهل الموسم**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A5%D9%86%D9%88%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D8%A9-20250926)
+- **فصائل "الماط" تقاطع لقاء أبي الجعد**: [Link](https://www.hesport.com/%D9%81%D8%B5%D8%A7%D8%A6%D9%84-%D8%A7%D9%84%D9%85%D8%A7%D8%B7-%D8%AA%D9%82%D8%A7%D8%B7%D8%B9-%D9%84%D9%82%D8%A7%D8%A1-%D8%A3%D8%A8%D9%8A-%D8%A7%D9%84%D8%AC%D8%B9%D8%AF-406478.html)
+
+
+### barca (N/A, Sun, 28 Sep 2025 10:10:00 -0700)
+
+- **Szczesny, De Jong start in a 4-2-3-1 – How Barcelona can line up against Real Sociedad**: [Link](https://barcauniversal.com/szczesny-de-jong-start-in-a-4-2-3-1-how-barcelona-can-line-up-against-real-sociedad/)
+- **Barcelona's Yamal to return from injury against Sociedad**: [Link](http://www.china.org.cn/2025-09/28/content_118101528.shtml)
+- **Barcelona squad named for Real Sociedad**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/102227/barcelona-real-sociedad-la-liga-team-news-squad-list)
+
+
 ### manifestations au maroc (N/A, Sun, 28 Sep 2025 10:20:00 -0700)
 
 - **Maroc : des jeunes interpellés alors qu’ils manifestaient pour la justice sociale**: [Link](https://www.ouest-france.fr/monde/maroc/maroc-des-jeunes-interpelles-alors-quils-manifestaient-pour-la-justice-sociale-e026d5e4-9c19-11f0-b811-6c36c51f00fc)
