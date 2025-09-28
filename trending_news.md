@@ -1,3 +1,31 @@
+### bein sport (N/A, Sun, 28 Sep 2025 13:00:00 -0700)
+
+- **Argentina Brazil Soccer Copa Libertadores**: [Link](https://www.couriernews.com/sports/argentina-brazil-soccer-copa-libertadores/image_9b2b14ee-bf38-5427-b362-13e68b820be2.html)
+- **Flamengo and LDU advance to Copa Libertadores semifinals in South America**: [Link](https://www.heraldbulletin.com/sports/national_sports/flamengo-and-ldu-advance-to-copa-libertadores-semifinals-in-south-america/article_281e7f7e-94a1-5b38-9a8f-de047c8df078.html)
+- **Flamengo and LDU advance to Copa Libertadores semifinals in South America**: [Link](https://www.chronicleonline.com/sports/soccer/flamengo-and-ldu-advance-to-copa-libertadores-semifinals-in-south-america/article_d04b9f93-e32b-5478-8fa8-1069b3928c02.html)
+
+
+### world cup u20 (N/A, Sun, 28 Sep 2025 13:00:00 -0700)
+
+- **Cuba vs. Argentina: How to Watch 2025 FIFA U-20 World Cup Match**: [Link](https://www.msn.com/en-us/sports/soccer/cuba-vs-argentina-how-to-watch-2025-fifa-u-20-world-cup-match/ar-AA1NsHD2)
+- **U-20 World Cup kicks off: when Argentina play and where to watch**: [Link](https://onefootball.com/id/berita/u-20-world-cup-kicks-off-when-argentina-play-and-where-to-watch-41731254)
+- **Kenya, Tanzania through to next round of FIFA U-20 Women’s World Cup qualifiers**: [Link](https://cecafaonline.com/kenyas-rising-starlets-shine-bright-with-4-0-triumph-over-ethiopia/)
+
+
+### milan ac (N/A, Sun, 28 Sep 2025 12:50:00 -0700)
+
+- **DIRECT. AC Milan-Naples (Serie A 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/ac-milan-naples-live/673014)
+- **AC Milan - Naples : les compositions officielles**: [Link](https://www.footmercato.net/a2490464540374490242-ac-milan-naples-les-compositions-officielles)
+- **Comment voir le match de Serie A AC Milan - Naples (chaîne, heure)**: [Link](https://www.20minutes.fr/sport/football/4175678-20250928-ac-milan-naples-chaine-heure-voir-match-serie)
+
+
+### البطولة (N/A, Sun, 28 Sep 2025 12:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الدفاع الجديدي والرجاء في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt282cb876537e1e87)
+- **فادلو يبدأ مشواره بانتصار ويعتلي الصدارة مع الرجاء**: [Link](https://www.radiomars.ma/%D9%81%D8%A7%D8%AF%D9%84%D9%88-%D9%8A%D8%A8%D8%AF%D8%A3-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D8%A8%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%88%D9%8A%D8%B9%D8%AA%D9%84%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF/)
+- **أول ظهور لفادلو في دكة احتياط الرجاء بعد تسلمه مهمة قيادة الفريق 🟢🦅**: [Link](https://m.elbotola.com/video/details/68d9546d044e25aee80c3fbb/)
+
+
 ### botola (N/A, Sun, 28 Sep 2025 12:40:00 -0700)
 
 - **إقناع الشابي بالرحيل وإقامة حفل لتوديعه - Lematin Sports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%B4%D8%A7%D8%A8%D9%8A-%D8%B9%D9%86-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%84%D8%B3%D9%84%D8%A8%D9%8A-%D9%88%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8/8866)
