@@ -1,3 +1,10 @@
+### newcastle – arsenal (N/A, Sun, 28 Sep 2025 07:40:00 -0700)
+
+- **Premier League LIVE: Newcastle United vs Arsenal - score, stats, radio commentary & live text updates**: [Link](https://www.bbc.com/sport/football/live/cq8edxevyw3t)
+- **Newcastle United vs Arsenal: Top Over/Under Odds, Goalscorer Betting Tips and More**: [Link](https://theplayoffs.news/en/newcastle-united-vs-arsenal-top-over-under-odds-goalscorer-betting-tips/)
+- **Arsenal XI vs Newcastle: Starting lineup, confirmed team news and injury latest for Premier League**: [Link](https://www.standard.co.uk/sport/football/arsenal-xi-vs-newcastle-confirmed-team-news-starting-lineup-injury-latest-premier-league-today-b1249862.html)
+
+
 ### saïd jedidi (N/A, Sun, 28 Sep 2025 07:30:00 -0700)
 
 - **Décès du journaliste Saïd Jedidi, pionnier de la presse hispanophone au Maroc**: [Link](https://fr.le360.ma/medias/deces-du-journaliste-said-jedidi-pionnier-de-la-presse-hispanophone-au-maroc_W3D6NDIL5BHE3AHXLTCXB4ADQY/)
