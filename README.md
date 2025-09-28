@@ -1,3 +1,10 @@
+### radio mars (N/A, Sun, 28 Sep 2025 14:40:00 -0700)
+
+- **حكيمي: علاقتي بمبابي وطيدة.. ونساعد بعضنا البعض في الأوقات الصعبة**: [Link](https://sport.al3omk.com/90553.html)
+- **حكيمي يكشف فضل زين الدين زيدان في مساره الكروي في الريال**: [Link](https://ar.sport.le360.ma/football/lions-atlas/7FVVGR32GFEZXKPGBZFHQGMZ4U/)
+- **حكيمي يبرر غياب صديقه مبابي عن تشكيلته المثالية**: [Link](https://ar.lesiteinfo.com/sport/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%A8%D8%B1%D8%B1-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B5%D8%AF%D9%8A%D9%82%D9%87-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%B9%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%AA%D9%87-958864.html)
+
+
 ### widad (N/A, Sun, 28 Sep 2025 13:10:00 -0700)
 
 - **الوداد يتعرف على خصمه في كأس الكونفدرالية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%AE%D8%B5%D9%85%D9%87-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9/9359)
