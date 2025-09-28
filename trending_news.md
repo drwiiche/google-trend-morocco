@@ -1,3 +1,10 @@
+### manifestations au maroc (N/A, Sun, 28 Sep 2025 10:20:00 -0700)
+
+- **Maroc : des jeunes interpellés alors qu’ils manifestaient pour la justice sociale**: [Link](https://www.ouest-france.fr/monde/maroc/maroc-des-jeunes-interpelles-alors-quils-manifestaient-pour-la-justice-sociale-e026d5e4-9c19-11f0-b811-6c36c51f00fc)
+- **Genz212, Moroccan Youth Voice... des signaux faibles et assourdissants (1/2)**: [Link](https://medias24.com/2025/09/25/genz212-moroccan-youth-voice-un-signaux-faibles-et-assourdissants-1-2/)
+- **Au Maroc, des morts suspectes à l’hôpital public d’Agadir symbolisent un pays à deux vitesses**: [Link](https://www.lemonde.fr/afrique/article/2025/09/23/au-maroc-des-morts-suspectes-a-l-hopital-public-d-agadir-symbolisent-un-pays-a-deux-vitesses_6642488_3212.html)
+
+
 ### ترتيب الدوري المغربي (N/A, Sun, 28 Sep 2025 09:50:00 -0700)
 
 - **الجولة الثالثة.. تعيينات الحكام**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85/)
