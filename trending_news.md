@@ -1,3 +1,24 @@
+### the washington post morocco (N/A, Sun, 28 Sep 2025 17:30:00 -0700)
+
+- **Gen Z Moroccans denounce government priorities in some of the largest protests in years**: [Link](https://www.cnn.com/2025/09/28/africa/gen-z-moroccans-protest-stadiums-intl-latam)
+- **Young Moroccans clash with police while protesting stadium spending and health system decline**: [Link](https://www.washingtonpost.com/business/2025/09/28/morocco-protests-youth-corruption/0c111ad2-9c8a-11f0-af12-ae28224a8694_story.html)
+- **Police Disperse Morocco Youth Voice Protests in Rabat, Casablanca**: [Link](https://www.moroccoworldnews.com/2025/09/260847/police-disperse-morocco-youth-voice-protests-in-rabat-casablanca/)
+
+
+### air arabia (N/A, Sun, 28 Sep 2025 16:00:00 -0700)
+
+- **Air Arabia launches early bird promotion on 1 million seats from INR 6,038!**: [Link](https://www.hindustantimes.com/genesis/air-arabia-launches-early-bird-promotion-on-1-million-seats-from-inr-6038-101758790161569.html)
+- **Air Arabia launches massive 1 million ‘super seat sale’; fly one-way from Dh139**: [Link](https://gulfnews.com/business/aviation/air-arabia-launches-massive-1-million-super-seat-sale-fly-one-way-from-dh139-1.500287018)
+- **Air Arabia Launches New Fare Campaign for Moroccan Travelers with Massive Discounts**: [Link](https://barlamantoday.com/2025/09/25/air-arabia-launches-new-fare-campaign-for-moroccan-travelers-with-massive-discounts/)
+
+
+### u-20 world cup (N/A, Sun, 28 Sep 2025 15:20:00 -0700)
+
+- **Nigeria's U20 team captain Daniel Bameyi exclusive: "We can achieve anything"**: [Link](https://www.olympics.com/en/news/nigeria-s-u20-team-captain-daniel-bameyi-exclusive-we-can-achieve-anything-fia-world-cup)
+- **All you need to know ahead of World Cup clash between Norway and Nigeria**: [Link](https://www.tribalfootball.com/article/soccer-world-cup-u20-all-you-need-to-know-ahead-of-world-cup-clash-between-norway-and-nigeria-81464020-58f3-4975-87ac-b1bc7c570bd0)
+- **FIFA U-20 World Cup:Bamayi Confident in Improved Flying Eagles Ahead of Opener**: [Link](https://en.africatopsports.com/2025/09/27/fifa-u-20-world-cupbamayi-confident-in-improved-flying-eagles-ahead-of-opener/)
+
+
 ### washington post (N/A, Sun, 28 Sep 2025 17:40:00 -0700)
 
 - **Trump says he'll attend Pete Hegseth's gathering of generals to tell them 'how well we're doing militarily'**: [Link](https://www.nbcnews.com/politics/donald-trump/trump-pete-hegseth-generals-military-meeting-rcna234216)
