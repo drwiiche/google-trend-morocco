@@ -1,3 +1,10 @@
+### الطقس اليوم (N/A, Sun, 28 Sep 2025 23:00:00 -0700)
+
+- **أعملوا حسابكم.. ظاهرة جوية تظل 4 ساعات غدا والأرصاد تحذر**: [Link](https://zahraa.mr/5903883/%D8%A3%D8%B9%D9%85%D9%84%D9%88%D8%A7-%D8%AD%D8%B3%D8%A7%D8%A8%D9%83%D9%85-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%B8%D9%84-4-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%BA%D8%AF/)
+- **اضطراب الملاحة.. توقعات الظواهر الجوية غدًا تثير تحذيرات واسعة في البلاد**: [Link](https://arabsport.org/2025/09/28/%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%AD%D8%A9-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B8%D9%88%D8%A7%D9%87%D8%B1-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9/)
+- **حالة الطقس اليوم الاثنين 29-9-2025**: [Link](https://www.gomhuriaonline.com/Gomhuria/1703813.html)
+
+
 ### xabi alonso real madrid (N/A, Sun, 28 Sep 2025 21:10:00 -0700)
 
 - **Atlético de Madrid - Real Madrid, debate en directo con AS: ¡manda tu pregunta u opinión y participa!**: [Link](https://as.com/futbol/primera/atletico-de-madrid-real-madrid-debate-en-directo-con-as-manda-tu-pregunta-u-opinion-y-participa-n/)
