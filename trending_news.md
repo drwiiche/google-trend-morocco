@@ -1,3 +1,10 @@
+### weather (N/A, Sun, 28 Sep 2025 23:00:00 -0700)
+
+- **Tribunal awards Rs 16.7 lakh compensation to couple injured in road accident**: [Link](https://udayavani.com/tribunal-awards-rs-167-lakh-compensation-to-couple-injured-in-road-accident-245558?lang=en)
+- **Mumbai rains: ‘Orange’ alert in place; light to moderate showers in city**: [Link](https://www.thehindu.com/news/cities/mumbai/mumbai-rains-orange-alert-in-place-light-to-moderate-showers-in-city/article70107801.ece)
+- **Maharashtra Schools and Colleges Closed in Palghar District Due to Heavy Rainfall**: [Link](https://www.timesnownews.com/education/maharashtra-schools-closed-in-palghar-district-due-to-heavy-rainfall-mumbai-thane-raigad-latest-news-imd-weather-report-article-152911086)
+
+
 ### x (N/A, Sun, 28 Sep 2025 21:10:00 -0700)
 
 - **Karnataka: Legal setback for Elon Musk's X in fight against India content takedown**: [Link](https://www.bbc.com/news/articles/clyqxp0z7x0o)
