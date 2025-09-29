@@ -1,3 +1,17 @@
+### tony blair (N/A, Mon, 29 Sep 2025 05:20:00 -0700)
+
+- **Could Tony Blair run Gaza?**: [Link](https://www.economist.com/middle-east-and-africa/2025/09/25/could-tony-blair-run-gaza)
+- **Tony Blair seeks to play key role in Gaza under Donald Trump peace plan**: [Link](https://www.ft.com/content/938ff3cb-f073-41e1-bb5c-381c79adff13)
+- **Playful dog jumps out of a closet and surprises its owner in Brazil**: [Link](https://uk.news.yahoo.com/playful-dog-jumps-closet-surprises-210145690.html)
+
+
+### michael schumacher (N/A, Mon, 29 Sep 2025 03:20:00 -0700)
+
+- **F1 Veteran Mick Schumacher To Test With RLL on IMS Road Course**: [Link](https://www.indycar.com/news/2025/09/09-26-schumacher-rll-test)
+- **Mick Schumacher to test IndyCar at Indianapolis Motor Speedway**: [Link](https://www.grandprix247.com/2025/09/29/f1-news-mick-schumacher-to-test-indycar-at-indianapolis-motor-speedway-bobby-rahal-michael-schumacher-formula-1/)
+- **Michael Schumacher's son Mick makes huge change from F1 with former Haas driver set to undergo test session**: [Link](https://www.the-sun.com/sport/motorsport/15256817/michael-schumacher-mick-formula-one-indycar-haas-mercedes/)
+
+
 ### journaliste said jedidi (N/A, Mon, 29 Sep 2025 03:20:00 -0700)
 
 - **Décès du journaliste et écrivain Saïd Jedidi**: [Link](https://www.mapexpress.ma/actualite/societe-et-regions/deces-du-journaliste-ecrivain-said-jedidi/)
