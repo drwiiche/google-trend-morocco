@@ -1,3 +1,10 @@
+### الأهلي ضد الزمالك (N/A, Mon, 29 Sep 2025 11:00:00 -0700)
+
+- **هتافات زملكاوية ضد زيزو.. وجماهير الأهلي ترد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%AA%D8%A7%D9%81%D8%A7%D8%AA-%D8%B2%D9%85%D9%84%D9%83%D8%A7%D9%88%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%B2%D9%8A%D8%B2%D9%88--%D9%88%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%AA%D8%B1%D8%AF/blt25242ca52da1f7b7)
+- **قمة الأهلي والزمالك آخر فرصة لـ 4 نجوم في قطبي الكرة المصرية**: [Link](https://www.alaraby.co.uk/sport/%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D8%A2%D8%AE%D8%B1-%D9%81%D8%B1%D8%B5%D8%A9-%D9%84%D9%80-4-%D9%86%D8%AC%D9%88%D9%85-%D9%81%D9%8A-%D9%82%D8%B7%D8%A8%D9%8A-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)
+- **تصدي محمد الشناوي الرائع يحرم عدي الدباغ من تسجيل هدف محقق لـ الزمالك**: [Link](https://www.btolat.com/video/88110)
+
+
 ### al-duhail – al-ahli saudi (N/A, Mon, 29 Sep 2025 10:40:00 -0700)
 
 - **Resolute Al Duhail host holders Al Ahli Saudi in ACL Elite**: [Link](https://thepeninsulaqatar.com/article/29/09/2025/resolute-al-duhail-host-holders-al-ahli-saudi-in-acl-elite)
