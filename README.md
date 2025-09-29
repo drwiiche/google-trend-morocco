@@ -1,3 +1,10 @@
+### طقس اليوم (N/A, Sun, 28 Sep 2025 23:40:00 -0700)
+
+- **سحب منخفضة.. تحذير عاجل من الأرصاد بشأن حالة الطقس الساعات المقبلة**: [Link](https://zahraa.mr/5904816/%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A8%D8%B4%D8%A3%D9%86/)
+- **«أجواء خريفية».. الأرصاد تكشف خريطة الظواهر الجوية اليوم وحالة الطقس حتى مطلع الأسبوع المقبل**: [Link](https://darelhilal.com/News/3075075.aspx)
+- **أجواء خريفية متقلبة.. تعرف على درجات الحرارة في جميع محافظات مصر اليوم**: [Link](https://www.altreeq.com/518252)
+
+
 ### moon (N/A, Sun, 28 Sep 2025 23:30:00 -0700)
 
 - **Daily Horoscope: Astrological insights for September 29, 2025 - Moon in Capricorn brings focus and drive**: [Link](https://english.dainikjagranmpcg.com/astrology/daily-horoscope-astrological-insights-for-september-29-2025-moon/article-5639)
