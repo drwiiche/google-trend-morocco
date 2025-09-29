@@ -1,3 +1,10 @@
+### journaliste said jedidi (N/A, Mon, 29 Sep 2025 03:20:00 -0700)
+
+- **Décès du journaliste et écrivain Saïd Jedidi**: [Link](https://www.mapexpress.ma/actualite/societe-et-regions/deces-du-journaliste-ecrivain-said-jedidi/)
+- **Décès de Said Jedidi, la voix du Maroc en espagnol**: [Link](https://medias24.com/2025/09/28/deces-de-said-jedidi-voix-du-maroc-en-espagnol/)
+- **Décès de Said Jedidi, le Maroc perd un grand journaliste**: [Link](https://www.bladi.net/deces-said-jedidi-maroc-perd-grand-journaliste,117068.html)
+
+
 ### manifestation maroc (N/A, Mon, 29 Sep 2025 02:40:00 -0700)
 
 - **Au Maroc, nouvelles interpellations lors de manifestations pour le deuxième jour d’affilée**: [Link](https://www.lemonde.fr/afrique/article/2025/09/29/au-maroc-nouvelles-interpellations-lors-de-manifestations-pour-le-deuxieme-jour-consecutif_6643411_3212.html)
