@@ -1,3 +1,10 @@
+### carlos alcaraz (N/A, Mon, 29 Sep 2025 02:40:00 -0700)
+
+- **Sin complicaciones en el tobillo, Alcaraz avanza a semifinales en Tokio**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20250928-sin-molestias-en-el-tobillo-alcaraz-avanza-a-semifinales-en-tokio)
+- **Resumen Alcaraz-Nakashima: A semifinales en cohete (6-2 y 6-4)**: [Link](https://espanol.eurosport.com/tenis/atp-tokio/2025/carlos-alcaraz-brandon-nakashima-resumen-mejores-puntos-y-resultado-highlights-cuartos-de-final-hoy_vid60030874/video.shtml)
+- **Directo | Alcaraz - Ruud**: [Link](https://www.elcomercio.es/deportes/tenis/directo-alcaraz-ruud-tokio-20250929201724-dirc.html)
+
+
 ### طقس اليوم (N/A, Sun, 28 Sep 2025 23:40:00 -0700)
 
 - **سحب منخفضة.. تحذير عاجل من الأرصاد بشأن حالة الطقس الساعات المقبلة**: [Link](https://zahraa.mr/5904816/%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A8%D8%B4%D8%A3%D9%86/)
