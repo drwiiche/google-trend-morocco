@@ -1,3 +1,22 @@
+### al-duhail – al-ahli saudi (N/A, Mon, 29 Sep 2025 10:40:00 -0700)
+
+- **Resolute Al Duhail host holders Al Ahli Saudi in ACL Elite**: [Link](https://thepeninsulaqatar.com/article/29/09/2025/resolute-al-duhail-host-holders-al-ahli-saudi-in-acl-elite)
+
+
+### rúben amorim (N/A, Mon, 29 Sep 2025 10:40:00 -0700)
+
+- **Cortar Ruben Amorim dá corte de cabelo?**: [Link](https://www.abola.pt/noticias/cortar-ruben-amorim-da-corte-de-cabelo-2025092814460026819)
+- **“Final Four” da Taça da Liga apresentada em Leiria**: [Link](https://www.rtp.pt/noticias/desporto/final-four-da-taca-da-liga-apresentada-em-leiria_a1687036)
+- **Xavi Hernández manifesta vontade de assumir o Manchester United**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/xavi-hernandez-manifesta-vontade-de-assumir-o-manchester-united/)
+
+
+### bourse de casablanca (N/A, Mon, 29 Sep 2025 10:40:00 -0700)
+
+- **Une semaine dans le négatif pour la Bourse de Casablanca**: [Link](https://fr.hespress.com/443162-une-semaine-dans-le-negatif-pour-la-bourse-de-casablanca.html)
+- **La Bourse de Casablanca ouvre dans le vert**: [Link](https://le12.ma/fr/la-bourse-de-casablanca-ouvre-dans-le-vert-10/)
+- **Bourse de Casablanca. Le MASI termine en baisse de 0,45%**: [Link](https://medias24.com/2025/09/26/bourse-de-casablanca-le-masi-termine-en-baisse-de-045/)
+
+
 ### al ahly – zamalek (N/A, Mon, 29 Sep 2025 09:40:00 -0700)
 
 - **Cairo Derby Blow: Al Ahly Hit with Major Absences**: [Link](https://foot-africa.com/en/news/cairo-derby-blow-al-ahly-hit-with-major-absences-898302/)
