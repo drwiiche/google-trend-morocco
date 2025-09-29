@@ -1,3 +1,10 @@
+### donald trump (N/A, Mon, 29 Sep 2025 13:50:00 -0700)
+
+- **Revealed: US 21-point plan for ending Gaza war, creating pathway to Palestinian state**: [Link](https://www.timesofisrael.com/revealed-us-21-point-plan-for-ending-gaza-war-creating-pathway-to-palestinian-state/)
+- **Watch Live: Trump and Netanyahu Hold News Conference on Gaza Plan**: [Link](https://www.nytimes.com/live/2025/09/29/world/trump-netanyahu-israel-gaza)
+- **Trump’s Gaza peace plan leaves door ajar for Palestinian state**: [Link](https://www.washingtonpost.com/national-security/2025/09/27/trump-21-point-gaza-peace-plan/)
+
+
 ### kairat almaty (N/A, Mon, 29 Sep 2025 12:50:00 -0700)
 
 - **Xabi Alonso: “Sometimes, to take one step forward, you have to take two steps back”**: [Link](https://www.managingmadrid.com/real-madrid-cf-champions-league/98755/xabi-alonso-sometimes-to-take-one-step-forward-you-have-to-take-two-steps-back)
