@@ -1,3 +1,17 @@
+### washington post (N/A, Sun, 28 Sep 2025 17:40:00 -0700)
+
+- **Trump says he'll attend Pete Hegseth's gathering of generals to tell them 'how well we're doing militarily'**: [Link](https://www.nbcnews.com/politics/donald-trump/trump-pete-hegseth-generals-military-meeting-rcna234216)
+- **Hegseth abruptly summons top military commanders to a meeting in Virginia next week**: [Link](https://apnews.com/article/pentagon-hegseth-meeting-military-commanders-4ceb8026bff7c652b08c08e8afb1df99)
+- **Hegseth Is Said to Have Summoned U.S. Military Brass From Around the Globe**: [Link](https://www.nytimes.com/2025/09/25/us/politics/hegseth-generals-admirals-summoned.html)
+
+
+### laurent blanc (N/A, Sun, 28 Sep 2025 15:50:00 -0700)
+
+- **Barcelona legend could join forces with Real Madrid icon Benzema in Saudi Arabia**: [Link](https://getfootballnewsspain.com/barcelona-legend-could-join-forces-with-real-madrid-icon-benzema-in-saudi-arabia/)
+- **Man Utd legend and World Cup winner sacked after just four games of Saudi season**: [Link](https://www.thesun.co.uk/sport/36854815/man-utd-world-cup-laurent-blanc-saudi-arabia/)
+- **Al Ittihad: Xavi targeted to replace Laurent Blanc**: [Link](https://foot-africa.com/en/news/al-ittihad-xavi-targeted-to-replace-laurent-blanc-898080/)
+
+
 ### the washington post (N/A, Sun, 28 Sep 2025 16:30:00 -0700)
 
 - **Ryder Cup: Recap Sunday Singles at Bethpage**: [Link](https://www.pgatour.com/article/news/latest/2025/09/28/live-blog-live-updates-sunday-singles-ryder-cup-bethpage-black-europe-usa-scheffler-mcilroy)
