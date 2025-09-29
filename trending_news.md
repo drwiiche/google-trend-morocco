@@ -1,3 +1,17 @@
+### kairat almaty (N/A, Mon, 29 Sep 2025 12:50:00 -0700)
+
+- **Xabi Alonso: “Sometimes, to take one step forward, you have to take two steps back”**: [Link](https://www.managingmadrid.com/real-madrid-cf-champions-league/98755/xabi-alonso-sometimes-to-take-one-step-forward-you-have-to-take-two-steps-back)
+- **Kairat-Real Madrid: The numbers behind the biggest mismatch in Champions League history**: [Link](https://www.nytimes.com/athletic/6658553/2025/09/29/kairat-real-madrid-champions-league-comparison/)
+- **Almaty Gears Up to Host Real Madrid’s Galácticos**: [Link](https://timesca.com/almaty-gears-up-to-host-real-madrids-galacticos/)
+
+
+### accenture (N/A, Mon, 29 Sep 2025 09:30:00 -0700)
+
+- **Accenture plans on 'exiting' staff who can't be reskilled on AI amid restructuring strategy**: [Link](https://www.cnbc.com/2025/09/26/accenture-plans-on-exiting-staff-who-cant-be-reskilled-on-ai.html)
+- **Accenture lays off more than 11,000 employees: CEO Julie Sweet says we are 'exiting' employees we can't .**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/accenture-lays-off-more-than-11000-employees-ceo-julie-sweet-says-we-are-exiting-employees-we-cant-/articleshow/124205771.cms)
+- **Why Accenture is Training 700,000 Staff in Agentic AI**: [Link](https://aimagazine.com/news/why-accenture-is-teaching-700000-employees-to-use-agentic-ai)
+
+
 ### ryder cup (N/A, Mon, 29 Sep 2025 11:40:00 -0700)
 
 - **Ryder Cup 2025: Team Europe complete historic away win despite Team USA's singles fightback at Bethpage Black**: [Link](https://www.skysports.com/golf/news/11071/13440366/ryder-cup-2025-team-europe-complete-historic-away-win-despite-team-usas-singles-fightback-at-bethpage-black)
