@@ -1,3 +1,10 @@
+### xabi alonso real madrid (N/A, Sun, 28 Sep 2025 21:10:00 -0700)
+
+- **Atlético de Madrid - Real Madrid, debate en directo con AS: ¡manda tu pregunta u opinión y participa!**: [Link](https://as.com/futbol/primera/atletico-de-madrid-real-madrid-debate-en-directo-con-as-manda-tu-pregunta-u-opinion-y-participa-n/)
+- **Así tumbó Simeone a Xabi: El mensaje previo, la espalda de los laterales, la sorpresa de Sorloth...**: [Link](https://www.marca.com/futbol/atletico/2025/09/27/asi-tumbo-simeone-xabi-mensaje-previo-espalda-laterales-sorpresa-sorloth.html)
+- **Con doblete de Julián Álvarez, el Atlético golea 5-2 al Real Madrid en el derbi**: [Link](https://www.chicagotribune.com/2025/09/27/con-doblete-de-julin-lvarez-el-atltico-golea-5-2-al-real-madrid-en-el-derbi/)
+
+
 ### weather (N/A, Sun, 28 Sep 2025 23:00:00 -0700)
 
 - **Tribunal awards Rs 16.7 lakh compensation to couple injured in road accident**: [Link](https://udayavani.com/tribunal-awards-rs-167-lakh-compensation-to-couple-injured-in-road-accident-245558?lang=en)
