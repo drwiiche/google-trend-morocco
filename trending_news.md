@@ -1,3 +1,10 @@
+### moon (N/A, Sun, 28 Sep 2025 23:30:00 -0700)
+
+- **Daily Horoscope: Astrological insights for September 29, 2025 - Moon in Capricorn brings focus and drive**: [Link](https://english.dainikjagranmpcg.com/astrology/daily-horoscope-astrological-insights-for-september-29-2025-moon/article-5639)
+- **Horoscope today, September 29, 2025: Predictions for all zodiac signs**: [Link](https://www.indiatvnews.com/astrology/horoscope-today-29-september-2025-2025-09-29-1010446)
+- **Daily Horoscope for Monday, September 29, 2025 by Georgia Nicols**: [Link](https://www.statesman.com/horoscope/article/georgia-nicols-horoscope-monday-09-29-25-21067672.php)
+
+
 ### jannik sinner (N/A, Mon, 29 Sep 2025 00:50:00 -0700)
 
 - **LIVE Alle 13 Musetti-Tien: Lorenzo a caccia della semifinale**: [Link](https://www.gazzetta.it/Tennis/ATP/29-09-2025/sinner-marozsan-diretta-quarti-atp-pechino-live.shtml)
