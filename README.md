@@ -1,3 +1,10 @@
+### nasaf – al-hilal (N/A, Mon, 29 Sep 2025 06:00:00 -0700)
+
+- **Al-Hilal departs for Uzbekistan and Inzaghi to hold a press conference tomorrow evening**: [Link](https://alhilal.com/en/news/al-hilal-departs-for-uzbekistan-and-inzaghi-to-hold-a-press-conference)
+- **Nasaf vs Al Hilal: Live streaming, TV channel, kick-off time & where to watch AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-nasaf-vs-al-hilal-where-to-watch-202509)
+- **Nasaf Qarshi vs Al-Hilal prediction and betting tips 29 September 2025**: [Link](https://dailysports.net/predictions/nasaf-qarshi-vs-al-hilal-will-al-hilal-extend-their-winning-streak/)
+
+
 ### tony blair (N/A, Mon, 29 Sep 2025 05:20:00 -0700)
 
 - **Could Tony Blair run Gaza?**: [Link](https://www.economist.com/middle-east-and-africa/2025/09/25/could-tony-blair-run-gaza)
