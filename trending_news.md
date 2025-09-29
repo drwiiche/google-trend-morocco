@@ -1,3 +1,10 @@
+### al ahly – zamalek (N/A, Mon, 29 Sep 2025 09:40:00 -0700)
+
+- **Cairo Derby Blow: Al Ahly Hit with Major Absences**: [Link](https://foot-africa.com/en/news/cairo-derby-blow-al-ahly-hit-with-major-absences-898302/)
+- **Al Ahly SC vs Zamalek SC prediction and betting tips 29 September 2025**: [Link](https://dailysports.net/predictions/al-ahly-vs-zamalek-prediction-h2h-and-probable-lineups-29092025/)
+- **Zamalek’s Chico Banza ruled out of Cairo Derby super clash with Al Ahly**: [Link](https://www.panafricafootball.com/post/zamalek-chico-banza-derby-al-ahly/)
+
+
 ### نسف قرشي ضد الهلال (N/A, Mon, 29 Sep 2025 06:30:00 -0700)
 
 - **مباشر.. مباراة الهلال ضد ناساف (0-0) في دوري أبطال آسيا للنخبة.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2025/9/29/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D9%86%D8%A7%D8%B3%D8%A7%D9%81-0-0-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A)
