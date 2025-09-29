@@ -1,3 +1,10 @@
+### ryder cup (N/A, Mon, 29 Sep 2025 11:40:00 -0700)
+
+- **Ryder Cup 2025: Team Europe complete historic away win despite Team USA's singles fightback at Bethpage Black**: [Link](https://www.skysports.com/golf/news/11071/13440366/ryder-cup-2025-team-europe-complete-historic-away-win-despite-team-usas-singles-fightback-at-bethpage-black)
+- **Ryder Cup 2025 live updates: Latest reaction to Europe’s win and the U.S. failure at Bethpage - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/ryder-cup-2025-live-updates-news-reaction/Mfsd6IuEzF5V/)
+- **Keegan Bradley didn’t win Ryder Cup but gained something valuable**: [Link](https://golf.com/news/keegan-bradley-ryder-cup-respect/)
+
+
 ### everton – west ham (N/A, Mon, 29 Sep 2025 11:20:00 -0700)
 
 - **Everton can join historic club with Hill Dickinson Stadium feat vs West Ham**: [Link](https://www.goodisonnews.com/2025/09/28/everton-can-join-historic-club-with-hill-dickinson-stadium-feat-vs-west-ham/)
