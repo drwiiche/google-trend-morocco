@@ -1,3 +1,10 @@
+### نسف قرشي ضد الهلال (N/A, Mon, 29 Sep 2025 06:30:00 -0700)
+
+- **مباشر.. مباراة الهلال ضد ناساف (0-0) في دوري أبطال آسيا للنخبة.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2025/9/29/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D9%86%D8%A7%D8%B3%D8%A7%D9%81-0-0-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A)
+- **إنزاغي: ناساف خطير.. والإصابة ستحرمنا من نونيز**: [Link](https://24.ae/article/920829/%D8%A5%D9%86%D8%B2%D8%A7%D8%BA%D9%8A-%D9%86%D8%A7%D8%B3%D8%A7%D9%81-%D8%AE%D8%B7%D9%8A%D8%B1-%D9%88%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B3%D8%AA%D8%AD%D8%B1%D9%85%D9%86%D8%A7-%D9%85%D9%86-%D9%86%D9%88%D9%86%D9%8A%D8%B2)
+- **كبير آسيا يستعيد مالكوم.. ويفقد سالم ونونيز أمام ناساف**: [Link](https://www.al-jazirah.com/2025/20250928/sp4.htm)
+
+
 ### nasaf – al-hilal (N/A, Mon, 29 Sep 2025 06:00:00 -0700)
 
 - **Al-Hilal departs for Uzbekistan and Inzaghi to hold a press conference tomorrow evening**: [Link](https://alhilal.com/en/news/al-hilal-departs-for-uzbekistan-and-inzaghi-to-hold-a-press-conference)
