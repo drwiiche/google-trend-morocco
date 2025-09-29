@@ -1,3 +1,10 @@
+### manifestation maroc (N/A, Mon, 29 Sep 2025 02:40:00 -0700)
+
+- **Au Maroc, nouvelles interpellations lors de manifestations pour le deuxième jour d’affilée**: [Link](https://www.lemonde.fr/afrique/article/2025/09/29/au-maroc-nouvelles-interpellations-lors-de-manifestations-pour-le-deuxieme-jour-consecutif_6643411_3212.html)
+- **Genz212, Moroccan Youth Voice... des signaux faibles et assourdissants (1/2)**: [Link](https://medias24.com/2025/09/25/genz212-moroccan-youth-voice-un-signaux-faibles-et-assourdissants-1-2/)
+- **Maroc : des jeunes interpellés alors qu’ils manifestaient pour la justice sociale**: [Link](https://www.ouest-france.fr/monde/maroc/maroc-des-jeunes-interpelles-alors-quils-manifestaient-pour-la-justice-sociale-e026d5e4-9c19-11f0-b811-6c36c51f00fc)
+
+
 ### carlos alcaraz (N/A, Mon, 29 Sep 2025 02:40:00 -0700)
 
 - **Sin complicaciones en el tobillo, Alcaraz avanza a semifinales en Tokio**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20250928-sin-molestias-en-el-tobillo-alcaraz-avanza-a-semifinales-en-tokio)
