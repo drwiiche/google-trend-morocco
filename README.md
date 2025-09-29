@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Mon, 29 Sep 2025 00:50:00 -0700)
+
+- **LIVE Alle 13 Musetti-Tien: Lorenzo a caccia della semifinale**: [Link](https://www.gazzetta.it/Tennis/ATP/29-09-2025/sinner-marozsan-diretta-quarti-atp-pechino-live.shtml)
+- **Tutto il tennis in diretta**: [Link](https://www.diretta.it/news/tennis-tokyo-atp-singolare-tennis-tracker-a-pechino-sinner-sfida-marozsan-poi-musetti-tien/d4c8aq8K/)
+- **Live Jannik Sinner - Alex De Minaur - ATP, Beijing: Punteggi & Highlights Tennis - 30/09/2025**: [Link](https://www.eurosport.it/tennis/atp-beijing/2025/live-alex-de-minaur_mtc1645283/live.shtml)
+
+
 ### الطقس اليوم (N/A, Sun, 28 Sep 2025 23:00:00 -0700)
 
 - **أعملوا حسابكم.. ظاهرة جوية تظل 4 ساعات غدا والأرصاد تحذر**: [Link](https://zahraa.mr/5903883/%D8%A3%D8%B9%D9%85%D9%84%D9%88%D8%A7-%D8%AD%D8%B3%D8%A7%D8%A8%D9%83%D9%85-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%B8%D9%84-4-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%BA%D8%AF/)
