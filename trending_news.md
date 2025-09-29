@@ -1,3 +1,10 @@
+### alerte rouge meteo valence espagne (N/A, Mon, 29 Sep 2025 14:50:00 -0700)
+
+- **Espagne : Valence et sa région toujours en alerte rouge inondations après des fortes pluies**: [Link](https://www.lemonde.fr/climat/article/2025/09/29/espagne-valence-et-sa-region-toujours-en-alerte-rouge-inondations-apres-des-fortes-pluies_6643306_1652613.html)
+- **Des pluies soudaines et violentes déclenchent des sauvetages et évacuations dans le nord de l'Espagne**: [Link](https://fr.euronews.com/video/2025/09/29/des-pluies-soudaines-et-abondantes-declenchent-des-sauvetages-et-evacuations-dans-le-nord)
+- **Alerte orange à Valencia : cours suspendus dans les zones les plus exposées**: [Link](https://lepetitjournal.com/valence/actualites/alerte-orange-valencia-cours-suspendus-zones-exposees-423351)
+
+
 ### donald trump (N/A, Mon, 29 Sep 2025 13:50:00 -0700)
 
 - **Revealed: US 21-point plan for ending Gaza war, creating pathway to Palestinian state**: [Link](https://www.timesofisrael.com/revealed-us-21-point-plan-for-ending-gaza-war-creating-pathway-to-palestinian-state/)
