@@ -1,3 +1,10 @@
+### x (N/A, Sun, 28 Sep 2025 21:10:00 -0700)
+
+- **Karnataka: Legal setback for Elon Musk's X in fight against India content takedown**: [Link](https://www.bbc.com/news/articles/clyqxp0z7x0o)
+- **Musk's X says to appeal Indian court order on content removal system**: [Link](https://finance.yahoo.com/news/musks-x-says-appeal-indian-044935674.html)
+- **Sahyog and the free speech maze**: [Link](https://www.deccanherald.com/opinion/sahyog-and-the-free-speech-maze-3746340)
+
+
 ### the washington post morocco (N/A, Sun, 28 Sep 2025 17:30:00 -0700)
 
 - **Gen Z Moroccans denounce government priorities in some of the largest protests in years**: [Link](https://www.cnn.com/2025/09/28/africa/gen-z-moroccans-protest-stadiums-intl-latam)
