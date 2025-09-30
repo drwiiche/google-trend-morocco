@@ -1,3 +1,38 @@
+### bodø/glimt – tottenham (N/A, Tue, 30 Sep 2025 11:30:00 -0700)
+
+- **Tottenham predicted team vs Bodo/Glimt - Sarr, Johnson and Porro return but Xavi decision made**: [Link](https://www.football.london/tottenham-hotspur-fc/news/tottenham-predicted-team-vs-bodoglimt-32577053)
+- **Spurs head past the Arctic Circle in search of added creativity**: [Link](https://www.theguardian.com/football/2025/sep/29/spurs-past-arctic-circle-added-creativity-bodo-glimt-champions-league)
+- **Bodo/Glimt: Meet Bjorn Mannsverk - the former fighter pilot inspiring Norwegian club's players as they face Spurs in Champions League**: [Link](https://www.skysports.com/football/news/11945/13440993/bodo-glimt-meet-bjorn-mannsverk-the-former-fighter-pilot-inspiring-norwegian-clubs-players-as-they-face-spurs-in-champions-league)
+
+
+### galatasaray – liverpool (N/A, Tue, 30 Sep 2025 11:20:00 -0700)
+
+- **Galatasaray ve Liverpool yine kozlarını paylaşacak**: [Link](https://boldmedya.com/2025/09/30/galatasaray-ve-liverpool-yine-kozlarini-paylasacak/)
+- **Galatasaray - Liverpool maçı canlı izle! Liverpool - GS maçı TRT1’de mi?**: [Link](https://www.24saatgazetesi.com/galatasaray-liverpool-maci-canli-izle-liverpool-gs-maci-trt1de-mi)
+- **Liverpool'da Salah ve Wirtz kararı! Galatasaray karşısında...**: [Link](http://mobil.hurriyet.com.tr/sporarena/liverpoolda-salah-ve-wirtz-karari-galatasaray-karsisinda-42967446)
+
+
+### inter – slavia prague (N/A, Tue, 30 Sep 2025 11:20:00 -0700)
+
+- **Preview: Inter Milan vs Slavia Prague - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/champions-league/preview/inter-milan-vs-slavia-prague-prediction-team-news-lineups_582473.html)
+- **Inter Milan Vs Slavia Prague – Cristian Chivu Still Undecided On Striker Partner To Lautaro Martinez**: [Link](https://sempreinter.com/2025/09/30/inter-milan-slavia-prague-lautaro-martinez-partner-undecided/)
+- **Chivu warns Inter against rising expectations ahead of Slavia clash**: [Link](https://www.beinsports.com/en-my/football/uefa-champions-league/articles/chivu-warns-inter-against-rising-expectations-ahead-of-slavia-clash-2025-09-29)
+
+
+### atlético madrid – eintracht francfort (N/A, Tue, 30 Sep 2025 11:10:00 -0700)
+
+- **Football Bet of the Day: Follow Frankfurt for goals in Madrid on Tuesday night**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-follow-frankfurt-for-goals-in-madrid-on-tuesday-night/)
+- **'Yesterday is history, the present is what matters'**: [Link](https://www.besoccer.com/new/yesterday-is-history-the-present-is-what-matters-1375512)
+- **Simeone focused ahead on Eintracht task rather than derby-day Madrid thrashing**: [Link](https://www.beinsports.com/en-asia/football/uefa-champions-league/articles/simeone-focused-ahead-on-eintracht-task-rather-than-derby-day-madrid-thrashing-2025-09-29)
+
+
+### marseille – ajax (N/A, Tue, 30 Sep 2025 11:10:00 -0700)
+
+- **Marseille Olympic vs Ajax Amsterdam – Pronostic Free and Prediction – Champions League – 30/09/2025**: [Link](https://pensebet.com/en/olympique-de-marseille-vs-ajax-amsterdam-pronostic-gratuit-et-predictions-ligue-des-champions-30-09-2025/)
+- **Preview: Marseille vs Ajax - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/marseille/champions-league/preview/marseille-vs-ajax-prediction-team-news-lineups_582462.html)
+- **Leonardo Balerdi a doubt for Marseille’s Champions League clash with Ajax**: [Link](https://sports.yahoo.com/article/leonardo-balerdi-doubt-marseille-champions-160000777.html)
+
+
 ### uefa champions league (N/A, Tue, 30 Sep 2025 11:00:00 -0700)
 
 - **Liverpool confirm 21-man travelling squad for Galatasaray trip**: [Link](https://www.liverpoolfc.com/news/liverpool-confirm-21-man-travelling-squad-galatasaray-trip)
