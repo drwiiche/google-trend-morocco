@@ -1,3 +1,17 @@
+### كازاخستان (N/A, Tue, 30 Sep 2025 10:40:00 -0700)
+
+- **خطوة تاريخية: كازاخستان تدخل عالم الأصول الرقمية عبر عملة بينانس**: [Link](https://www.arabictrader.com/ar/news/cryptocurrencies/197053/%D8%AE%D8%B7%D9%88%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%83%D8%A7%D8%B2%D8%A7%D8%AE%D8%B3%D8%AA%D8%A7%D9%86-%D8%AA%D8%AF%D8%AE%D9%84-%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%A3%D8%B5%D9%88%D9%84-%D8%A7%D9%84%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D8%B9%D8%A8%D8%B1-%D8%B9%D9%85%D9%84%D8%A9-%D8%A8%D9%8A%D9%86%D8%A7%D9%86%D8%B3)
+- **كازاخستان تطلق صندوق أليم للعملات المشفرة في AIFC، وتختار بينانس للحفظ**: [Link](https://news.bitcoin.com/ar/kazakhstan-totliq-sunduq-alim-lilumat-almshfrt-fi-aifc-watkhtar-binans-lilhfth/)
+- **كازاخستان تطلق صندوق Alem Crypto لبناء احتياطيات استراتيجية من الأصول الرقمية**: [Link](https://financefeeds.com/ar/kazakhstan-launches-alem-crypto-fund-to-build-strategic-digital-asset-reserves/)
+
+
+### ucl (N/A, Tue, 30 Sep 2025 10:40:00 -0700)
+
+- **Liverpool confirm 21-man travelling squad for Galatasaray trip**: [Link](https://www.liverpoolfc.com/news/liverpool-confirm-21-man-travelling-squad-galatasaray-trip)
+- **Galatasaray vs Liverpool – Match Preview & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/09/261071/galatasaray-vs-liverpool-match-preview-score-prediction/)
+- **⚔️ German showdown in the Champions League: all eyes on this clash**: [Link](https://onefootball.com/en/news/german-showdown-in-the-champions-league-all-eyes-on-this-clash-41741480)
+
+
 ### champions league (N/A, Tue, 30 Sep 2025 10:20:00 -0700)
 
 - **Barcelona vs PSG Prediction: Lamine Yamal to Make Statement After Ballon d’Or Snub?**: [Link](https://theanalyst.com/articles/barcelona-vs-psg-prediction-champions-league-10-2025)
