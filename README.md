@@ -1,3 +1,24 @@
+### غلطة سراي ضد ليفربول (N/A, Tue, 30 Sep 2025 11:50:00 -0700)
+
+- **سلوت يبين لماذا ضم إيكيتيكي وإيزاك.. ويكشف نقطة ضعف ليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D8%A8%D9%8A%D9%86-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%B6%D9%85-%D8%A7%D9%95%D9%8A%D9%83%D9%8A%D8%AA%D9%8A%D9%83%D9%8A-%D9%88%D8%A7%D9%95%D9%8A%D8%B2%D8%A7%D9%83--%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D9%86%D9%82%D8%B7%D8%A9-%D8%B6%D8%B9%D9%81-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/bltdc746384e4bc161a)
+- **ليفربول يكمل استعداداته لمواجهة مستضيفه غلطه سراي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D9%83%D9%85%D9%84-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B3%D8%AA%D8%B6%D9%8A%D9%81%D9%87-%D8%BA%D9%84%D8%B7%D9%87-%D8%B3%D8%B1%D8%A7%D9%8A-2025-09-29)
+- **بث مباشر لمباراة غلطة سراي التركي وليفربول الإنجليزي في دوري أبطال أوروبا**: [Link](https://www.eremnews.com/sports/pqddxlp)
+
+
+### chelsea – benfica (N/A, Tue, 30 Sep 2025 11:20:00 -0700)
+
+- **'Always a Blue' - Mourinho's affection for Chelsea**: [Link](https://www.bbc.com/sport/football/articles/c2lxw7dz0llo)
+- **‘The biggest one’: returning José Mourinho says he is still Chelsea’s greatest manager**: [Link](https://www.theguardian.com/football/2025/sep/29/jose-mourinho-chelsea-greatest-manager-benfica-champions-league)
+- **Chelsea vs Benfica LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/09/30/1235747-chelsea-vs-benfica-live-updates-in-uefa-champions-league.html)
+
+
+### 2m (N/A, Tue, 30 Sep 2025 11:00:00 -0700)
+
+- **Unlocking Zambia’s Carbon Market: Miombo Woodland Restoration to Remove 2M Tonnes of CO₂ Annually**: [Link](https://carboncredits.com/unlocking-zambias-carbon-market-miombo-woodland-restoration-to-remove-2m-tonnes-of-co%E2%82%82-annually/)
+- **Could ‘Ecopreneurs’ be the Key to Reviving the African Carbon-Credit Market?**: [Link](https://www.wsj.com/articles/could-ecopreneuers-be-the-key-to-reviving-the-african-carbon-market-87027f9b)
+- **P23M smuggled cigarettes seized, 5 nabbed in Sulu**: [Link](https://www.manilatimes.net/2025/10/01/regions/p23m-smuggled-cigarettes-seized-5-nabbed-in-sulu/2192562)
+
+
 ### bodø/glimt – tottenham (N/A, Tue, 30 Sep 2025 11:30:00 -0700)
 
 - **Tottenham predicted team vs Bodo/Glimt - Sarr, Johnson and Porro return but Xavi decision made**: [Link](https://www.football.london/tottenham-hotspur-fc/news/tottenham-predicted-team-vs-bodoglimt-32577053)
