@@ -1,3 +1,10 @@
+### ajax (N/A, Tue, 30 Sep 2025 13:40:00 -0700)
+
+- **Ajax mist Wout Weghorst in Champions League-duel met Olympique Marseille: ‘Hij is niet fit genoeg’**: [Link](https://www.ad.nl/voetbal/ajax-mist-wout-weghorst-in-champions-league-duel-met-olympique-marseille-hij-is-niet-fit-genoeg~a22670c7/)
+- **Marseille-fans sneren naar Ajax met indrukwekkend spandoek: 'F*ck Ajax'**: [Link](https://www.voetbalprimeur.nl/nieuws/1697483/marseille-fans-sneren-naar-ajax-met-immens-spandoek.html)
+- **Heitinga legt uit waarom hij Sutalo op de bank houdt en Ajax wil 'spelen met lef'**: [Link](https://www.ajaxshowtime.com/hoofdnieuws/heitinga-legt-uit-waarom-hij-sutalo-op-de-bank-houdt-en-ajax-wil-spelen-met-lef)
+
+
 ### marseille fc (N/A, Tue, 30 Sep 2025 13:40:00 -0700)
 
 - **PSG : De Zerbi s'excuse, Yamal relance la polémique, transferts en approche !**: [Link](https://www.butfootballclub.fr/620210-les-infos-du-jour-les-milieux-du-psg-courtises-de-zerbi-om-fait-son-mea-culpa-la-polemique-yamal-rebondit-encore/)
