@@ -1,3 +1,17 @@
+### ايت عميرة (N/A, Tue, 30 Sep 2025 12:40:00 -0700)
+
+- **الأغلبية الحكومية بالمغرب "مستعدة للتجاوب" مع مطالب "جيل زد"**: [Link](https://www.aljazeera.net/news/2025/9/30/%D8%A7%D9%84%D8%A3%D8%BA%D9%84%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D9%8A%D8%A9-%D9%85%D8%B3%D8%AA%D8%B9%D8%AF%D8%A9-%D9%84%D9%84%D8%AA%D8%AC%D8%A7%D9%88%D8%A8)
+- **شغب يستنفر الأمن في أيت اعميرة**: [Link](https://www.hespress.com/%D8%B4%D8%BA%D8%A8-%D9%8A%D8%B3%D8%AA%D9%86%D9%81%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A8%D8%A3%D9%8A%D8%AA-%D8%A7%D8%B9%D9%85%D9%8A%D8%B1%D8%A9-1632700.html)
+- **الجنرال الذي كان يشرف على الأمن الوطني في الجزائر يفر إلى إسبانيا وسط توترات داخلية**: [Link](https://ar.telquel.ma/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%B9%D9%86%D9%8A%D9%81%D8%A9-%D9%81%D9%8A-%D8%B9%D8%AF%D8%AF-%D9%85/)
+
+
+### atletico madrid (N/A, Tue, 30 Sep 2025 12:30:00 -0700)
+
+- **Diego Simeone suspension: Atletico Madrid boss given one-match ban for Liverpool fans clash**: [Link](https://www.bbc.com/sport/football/articles/c8jmkzk98meo)
+- **Diego Simeone charged by UEFA as coach alleged to have spat at fans named**: [Link](https://www.thisisanfield.com/2025/09/diego-simeone-charged-by-uefa-as-coach-alleged-to-have-spat-at-fans-named/)
+- **Before CL match at Atletico: Eintracht striker Jonathan Burkardt misses suspended Diego Simeone**: [Link](https://tribuna.com/en/news/2025-09-29-before-cl-match-at-atletico-eintracht-striker-jonathan-burkardt-misses-suspended-diego-si/)
+
+
 ### liverpool (N/A, Tue, 30 Sep 2025 12:50:00 -0700)
 
 - **Prem icon questions Liverpool after nightmare Galatasaray start – 'does he trust his team'**: [Link](https://www.dailystar.co.uk/sport/football/arne-slot-liverpool-champions-league-35992620)
