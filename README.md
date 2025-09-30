@@ -1,3 +1,10 @@
+### kazakhstan (N/A, Tue, 30 Sep 2025 09:40:00 -0700)
+
+- **Kazakhstan launches its first crypto reserve - Alem Crypto Fund - for long-term investment in digital assets**: [Link](https://www.gov.kz/memleket/entities/maidd/press/news/details/1077013?lang=en)
+- **Kazakhstan Starts State BNB Reserve: BNB Price Prediction for October – Can BNB Hit $1,250?**: [Link](https://finance.yahoo.com/news/kazakhstan-starts-state-bnb-bnb-114328632.html)
+- **Kazakhstan debuts state-backed crypto fund with BNB**: [Link](https://cointelegraph.com/news/kazakhstan-state-backed-crypto-fund-bnb-binance)
+
+
 ### atalanta – club brugge (N/A, Tue, 30 Sep 2025 09:10:00 -0700)
 
 - **Preview: Atalanta BC vs Club Brugge - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/champions-league/preview/atalanta-vs-brugge-prediction-team-news-lineups_582469.html)
