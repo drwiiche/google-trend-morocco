@@ -1,3 +1,24 @@
+### marseille vs ajax (N/A, Tue, 30 Sep 2025 12:20:00 -0700)
+
+- **Preview: Marseille vs Ajax - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/marseille/champions-league/preview/marseille-vs-ajax-prediction-team-news-lineups_582462.html)
+- **Leonardo Balerdi a doubt for Marseille’s Champions League clash with Ajax**: [Link](https://sports.yahoo.com/article/leonardo-balerdi-doubt-marseille-champions-160000777.html)
+- **UEFA Champions League: Probable line-ups for Marseille vs Ajax Amsterdam**: [Link](https://foot-africa.com/en/news/uefa-champions-league-probable-line-ups-for-marseille-vs-ajax-amsterdam-900144/)
+
+
+### تشيلسي ضد بنفيكا (N/A, Tue, 30 Sep 2025 12:20:00 -0700)
+
+- **بعد أن فقد هيبته..مورينيو يواجه نفسه بعودة تاريخية لدوري الأبطال (جاهز ومؤجل)**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%94%D9%86-%D9%81%D9%82%D8%AF-%D9%87%D9%8A%D8%A8%D8%AA%D9%87-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%86%D9%81%D8%B3%D9%87-%D8%A8%D8%B9%D9%88%D8%AF%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/bltf5a7ac6ab61b73ee)
+- **دوري أبطال أوروبا: عودة مورينيو إلى ستامفورد بريدج تُعيد ذكريات قديمة ومشاعر متبانية**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20250929-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%A5%D9%84%D9%89-%D8%B3%D8%AA%D8%A7%D9%85%D9%81%D9%88%D8%B1%D8%AF-%D8%A8%D8%B1%D9%8A%D8%AF%D8%AC-%D8%AA%D9%8F%D8%B9%D9%8A%D8%AF-%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D9%82%D8%AF%D9%8A%D9%85%D8%A9-%D9%88%D9%85%D8%B4%D8%A7%D8%B9%D8%B1-%D9%85%D8%AA%D8%A8%D8%A7%D9%86%D9%8A%D8%A9)
+- **هل سيعود مورينيو إلى تدريب تشيلسي؟ المدرب البرتغالي يجيب**: [Link](https://arabic.cnn.com/sport/article/2025/09/29/jose-mourinho-chelsea)
+
+
+### om (N/A, Tue, 30 Sep 2025 12:20:00 -0700)
+
+- **Nieuwe koers ACM vraagt om meer regie en sturing**: [Link](https://energeia.nl/nieuwe-koers-acm-vraagt-om-meer-regie-en-sturing/)
+- **ACM pleit voor snelle aanpak netcongestie, schat kosten wachtrij op 10 tot 40 miljard per jaar**: [Link](https://www.mobiliteit.nl/beleid/2025/09/24/acm-pleit-voor-snelle-aanpak-netcongestie-schat-kosten-wachtrij-op-10-tot-40-miljard-per-jaar/)
+- **Nieuwe regels voor netbeheerders zodat huishoudens niet onnodig veel betalen**: [Link](https://www.nu.nl/economie/6369884/nieuwe-regels-voor-netbeheerders-zodat-huishoudens-niet-onnodig-veel-betalen.html)
+
+
 ### أولمبيك مارسيليا ضد أياكس (N/A, Tue, 30 Sep 2025 12:10:00 -0700)
 
 - **بث مباشر مباراة مارسيليا وأياكس في دوري أبطال أوروبا**: [Link](https://infosports.news/ar/news/228299/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%88%D8%A3%D9%8A%D8%A7%D9%83%D8%B3-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1.html)
