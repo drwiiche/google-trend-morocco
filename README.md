@@ -1,3 +1,10 @@
+### genoa – lazio (N/A, Mon, 29 Sep 2025 12:40:00 -0700)
+
+- **Home Disaster: Johan Vásquez's Genoa Thrashed 0-3 by Lazio in a Counterattack Showdown**: [Link](https://www.ultimominuto.news/en/news/Home-Disaster-Johan-Vasquezs-Genoa-Thrashed-0-3-by-Lazio-in-a-Counterattack-Showdown-20250929-0069.html)
+- **Caleb Ekuban vs. Lazio – Player props & odds to score a goal on September 29**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/09/29/caleb-ekuban-soccer-player-props-9-29-2025/86414587007/)
+- **Taty Castellanos scores and assists for Lazio in 3-0 win vs. Genoa**: [Link](https://mundoalbiceleste.com/2025/09/29/taty-castellanos-scores-and-assists-for-lazio-in-3-0-win-vs-genoa/)
+
+
 ### هبة بريس (N/A, Mon, 29 Sep 2025 22:40:00 -0700)
 
 - **عاجل.. الأرض تهتز مجددا بالحوز والسكان يستشعرون الارتداد**: [Link](https://ar.hibapress.com/details-661789.html)
