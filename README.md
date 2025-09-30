@@ -1,3 +1,10 @@
+### caisse marocaine des retraites (N/A, Tue, 30 Sep 2025 01:10:00 -0700)
+
+- **CMR: Paiement des pensions pour les nouveaux retraités de l’Éducation nationale**: [Link](https://fr.hespress.com/443238-cmr-paiement-des-pensions-pour-les-nouveaux-retraites-de-leducation-nationale.html)
+- **Versement de plus de 4000 nouvelles pensions de retraite pour le secteur de l’Éducation**: [Link](https://fr.hibapress.com/news-209207.html)
+- **Plus de 4 000 enseignants retraités bénéficient de leurs pensions en août**: [Link](https://fnh.ma/article/actualite-economique/cmr-paiement-pensions-aout-2025)
+
+
 ### طقس (N/A, Mon, 29 Sep 2025 23:30:00 -0700)
 
 - **تحذير بشأن حالة الطقس اليوم بـ القاهرة والمحافظات: «ارتفاع مفاجئ» في الحرارة**: [Link](https://www.almasryalyoum.com/news/details/3561566)
