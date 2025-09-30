@@ -1,3 +1,17 @@
+### morocco (N/A, Mon, 29 Sep 2025 17:40:00 -0700)
+
+- **Young Moroccans clash with police while protesting stadium spending and health system decline**: [Link](https://www.washingtonpost.com/business/2025/09/28/morocco-protests-youth-corruption/0c111ad2-9c8a-11f0-af12-ae28224a8694_story.html)
+- **Gen Z Moroccans denounce government priorities in some of the largest protests in years**: [Link](https://edition.cnn.com/2025/09/28/africa/gen-z-moroccans-protest-stadiums-intl-latam)
+- **Gen Z protesters rally across Morocco demanding health, education reforms**: [Link](https://www.aljazeera.com/news/2025/9/29/gen-z-protesters-rally-across-morocco-demanding-health-education-reforms)
+
+
+### الاحتجاجات بالمغرب (N/A, Mon, 29 Sep 2025 17:10:00 -0700)
+
+- **الأمانة العامة للمصباح تحمل الحكومة المسؤولية عن تزايد التظاهرات السلمية المطالبة بأبسط الخدمات الأساسية وتدعو السلطات إلى التعامل بحكمة مع هذه التظاهرات وتسريح كل المعتقلين**: [Link](https://www.pjd.ma/219834-%D8%A7%D9%84%D8%A3%D9%85%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%84%D9%84%D9%85%D8%B5%D8%A8%D8%A7%D8%AD-%D8%AA%D8%AD%D9%85%D9%84-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7.html)
+- **إنزال أمني يمنع شبابا من الاحتجاج**: [Link](https://www.hespress.com/%D8%A5%D9%86%D8%B2%D8%A7%D9%84-%D8%A3%D9%85%D9%86%D9%8A-%D9%8A%D9%85%D9%86%D8%B9-%D8%B4%D8%A8%D8%A7%D8%A8%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC-1632177.html)
+- **العثماني يدعو إلى الصراحة مع المواطنين معتبرا احتجاجات "جيل زد" مؤشرا على أزمة**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B9%D8%AB%D9%85%D8%A7%D9%86%D9%8A-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D8%B1%D8%A7%D8%AD%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B7%D9%86%D9%8A/)
+
+
 ### alerte rouge meteo valence espagne (N/A, Mon, 29 Sep 2025 14:50:00 -0700)
 
 - **Espagne : Valence et sa région toujours en alerte rouge inondations après des fortes pluies**: [Link](https://www.lemonde.fr/climat/article/2025/09/29/espagne-valence-et-sa-region-toujours-en-alerte-rouge-inondations-apres-des-fortes-pluies_6643306_1652613.html)
