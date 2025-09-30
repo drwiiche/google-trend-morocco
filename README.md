@@ -1,3 +1,10 @@
+### عادل إمام (N/A, Tue, 30 Sep 2025 14:30:00 -0700)
+
+- **يؤدي مناسك العمرة.. حقيقة ظهور الزعيم عادل إمام على كرسي متحرك**: [Link](https://www.almasryalyoum.com/news/details/3561767)
+- **قصة صور بالـAI تتصدر التريند للزعيم عادل إمام آخرها بملابس الإحرام**: [Link](https://www.youm7.com/story/2025/9/29/%D9%82%D8%B5%D8%A9-%D8%B5%D9%88%D8%B1-%D8%A8%D8%A7%D9%84%D9%80AI-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D9%8A%D9%86%D8%AF-%D9%84%D9%84%D8%B2%D8%B9%D9%8A%D9%85-%D8%B9%D8%A7%D8%AF%D9%84-%D8%A5%D9%85%D8%A7%D9%85-%D8%A2%D8%AE%D8%B1%D9%87%D8%A7-%D8%A8%D9%85%D9%84%D8%A7%D8%A8%D8%B3/7138615)
+- **عادل إمام في صدارة البحث.. هل يعود الزعيم بمشروع فني جديد؟**: [Link](https://newsroom.info/171336)
+
+
 ### ajax (N/A, Tue, 30 Sep 2025 13:40:00 -0700)
 
 - **Ajax mist Wout Weghorst in Champions League-duel met Olympique Marseille: ‘Hij is niet fit genoeg’**: [Link](https://www.ad.nl/voetbal/ajax-mist-wout-weghorst-in-champions-league-duel-met-olympique-marseille-hij-is-niet-fit-genoeg~a22670c7/)
