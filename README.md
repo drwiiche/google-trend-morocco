@@ -1,3 +1,24 @@
+### uefa champions league (N/A, Tue, 30 Sep 2025 11:00:00 -0700)
+
+- **Liverpool confirm 21-man travelling squad for Galatasaray trip**: [Link](https://www.liverpoolfc.com/news/liverpool-confirm-21-man-travelling-squad-galatasaray-trip)
+- **⚔️ German showdown in the Champions League: all eyes on this clash**: [Link](https://onefootball.com/en/news/german-showdown-in-the-champions-league-all-eyes-on-this-clash-41741480)
+- **VIDEO: No sleep for Liverpool stars! Galatasaray fans launch huge fireworks display outside team hotel at 2AM ahead of Champions League clash in Istanbul**: [Link](https://www.goal.com/en-sa/lists/video-no-sleep-liverpool-galatasaray-fans-fireworks-team-hotel-2am-champions-league-istanbul/blt39614c6eeff2d307)
+
+
+### rma vs (N/A, Tue, 30 Sep 2025 10:50:00 -0700)
+
+- **Atlético crush Real Madrid to leave Simeone in tears and Alonso hurting | Sid Lowe**: [Link](https://www.theguardian.com/football/blog/2025/sep/29/diego-simeone-atletico-real-madrid-la-liga)
+- **Atletico dominated the derby by exposing Real Madrid in the channels**: [Link](https://www.nytimes.com/athletic/6672881/2025/09/29/atletico-real-madrid-derby-tactical-analysis/)
+- **Journalist Singles Out Three Real Madrid Players and Xabi Alonso in Atletico Defeat**: [Link](https://www.si.com/onsi/soccer/real-madrid/la-liga/journalist-singles-out-three-real-madrid-players-and-xabi-alonso-in-atletico-defeat)
+
+
+### دوري الأبطال (N/A, Tue, 30 Sep 2025 10:30:00 -0700)
+
+- **موعد مباراة برشلونة وسان جيرمان في دوري أبطال أوروبا والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/9/30/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A8%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+- **إنريكي يخسر نصف قوته أمام برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%AE%D8%B3%D8%B1-%D9%86%D8%B5%D9%81-%D9%82%D9%88%D8%AA%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt0f9759729c46a89f)
+- **بيدري: "باريس سان جيرمان من بين الأفضل وبرشلونة هو الأفضل"**: [Link](https://m.elbotola.com/article/2025-09-30-13-19-906.html)
+
+
 ### كازاخستان (N/A, Tue, 30 Sep 2025 10:40:00 -0700)
 
 - **خطوة تاريخية: كازاخستان تدخل عالم الأصول الرقمية عبر عملة بينانس**: [Link](https://www.arabictrader.com/ar/news/cryptocurrencies/197053/%D8%AE%D8%B7%D9%88%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%83%D8%A7%D8%B2%D8%A7%D8%AE%D8%B3%D8%AA%D8%A7%D9%86-%D8%AA%D8%AF%D8%AE%D9%84-%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%A3%D8%B5%D9%88%D9%84-%D8%A7%D9%84%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D8%B9%D8%A8%D8%B1-%D8%B9%D9%85%D9%84%D8%A9-%D8%A8%D9%8A%D9%86%D8%A7%D9%86%D8%B3)
