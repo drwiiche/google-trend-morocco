@@ -1,3 +1,10 @@
+### valence espagne (N/A, Tue, 30 Sep 2025 04:10:00 -0700)
+
+- **Intempéries en Espagne : orages et pluies diluviennes au nord de Valence**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-09-29/intemperies-en-espagne-orages-et-pluies-diluviennes-au-nord-de-valence-81791)
+- **Espagne : Valence et sa région toujours en alerte rouge inondations après des fortes pluies**: [Link](https://www.lemonde.fr/climat/article/2025/09/29/espagne-valence-et-sa-region-toujours-en-alerte-rouge-inondations-apres-des-fortes-pluies_6643306_1652613.html)
+- **Des pluies soudaines et violentes déclenchent des sauvetages et évacuations dans le nord de l'Espagne**: [Link](https://fr.euronews.com/video/2025/09/29/des-pluies-soudaines-et-abondantes-declenchent-des-sauvetages-et-evacuations-dans-le-nord)
+
+
 ### carlos alcaraz (N/A, Tue, 30 Sep 2025 02:30:00 -0700)
 
 - **Alcaraz no se cansa de ganar: récord de triunfos y novena final seguida**: [Link](https://as.com/tenis/alcaraz-no-se-cansa-de-ganar-record-de-triunfos-y-novena-final-seguida-n/)
