@@ -1,3 +1,10 @@
+### fc kairat almaty vs real madrid timeline (N/A, Tue, 30 Sep 2025 06:50:00 -0700)
+
+- **Kairat in the Champions League: 13-hour flights, Chelsea's wonderkid and Real Madrid**: [Link](https://www.bbc.com/sport/football/articles/czjvekl4ewno)
+- **Real Madrid Predicted Lineup vs. Kairat: Defensive Injuries Haunt Alonso**: [Link](https://www.si.com/soccer/real-madrid-predicted-lineup-vs-kairat-champions-league-9-30-25)
+- **Xabi Alonso: "We've switched into Champions League mode and we want to win the game"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/xabi-alonso-29-09-2025)
+
+
 ### valence espagne (N/A, Tue, 30 Sep 2025 04:10:00 -0700)
 
 - **Intempéries en Espagne : orages et pluies diluviennes au nord de Valence**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-09-29/intemperies-en-espagne-orages-et-pluies-diluviennes-au-nord-de-valence-81791)
