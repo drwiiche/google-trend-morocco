@@ -1,3 +1,10 @@
+### طقس (N/A, Mon, 29 Sep 2025 23:30:00 -0700)
+
+- **تحذير بشأن حالة الطقس اليوم بـ القاهرة والمحافظات: «ارتفاع مفاجئ» في الحرارة**: [Link](https://www.almasryalyoum.com/news/details/3561566)
+- **هو الصيف رجع تاني! أجزاء شديدة الحرارة تضرب بعض المناطق وبيان هام من الأرصاد**: [Link](https://zahraa.mr/5909494/%D9%87%D9%88-%D8%A7%D9%84%D8%B5%D9%8A%D9%81-%D8%B1%D8%AC%D8%B9-%D8%AA%D8%A7%D9%86%D9%8A-%D8%A3%D8%AC%D8%B2%D8%A7%D8%A1-%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA/)
+- **درجات الحرارة اليوم الثلاثاء بمحافظات مصر.. شبورة صباحية وأجواء حارة**: [Link](https://www.altreeq.com/518356)
+
+
 ### genoa – lazio (N/A, Mon, 29 Sep 2025 12:40:00 -0700)
 
 - **Home Disaster: Johan Vásquez's Genoa Thrashed 0-3 by Lazio in a Counterattack Showdown**: [Link](https://www.ultimominuto.news/en/news/Home-Disaster-Johan-Vasquezs-Genoa-Thrashed-0-3-by-Lazio-in-a-Counterattack-Showdown-20250929-0069.html)
