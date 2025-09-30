@@ -1,3 +1,10 @@
+### atalanta – club brugge (N/A, Tue, 30 Sep 2025 09:10:00 -0700)
+
+- **Preview: Atalanta BC vs Club Brugge - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/champions-league/preview/atalanta-vs-brugge-prediction-team-news-lineups_582469.html)
+- **Atalanta-Brugge, the executive luncheon**: [Link](https://en.atalanta.it/news/atalanta-club-brugge-the-executive-luncheon-30-9-2025)
+- **Champions League Liveblog: Atalanta vs. Club Brugge and Inter vs. Slavia Prague**: [Link](https://football-italia.net/champions-league-lb-atalanta-club-inter-slavia/)
+
+
 ### kairat – real madrid (N/A, Tue, 30 Sep 2025 09:00:00 -0700)
 
 - **Kairat in the Champions League: 13-hour flights, Chelsea's wonderkid and Real Madrid**: [Link](https://www.bbc.com/sport/football/articles/czjvekl4ewno)
