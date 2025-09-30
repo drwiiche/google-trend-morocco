@@ -1,3 +1,17 @@
+### الطقس اليوم (N/A, Mon, 29 Sep 2025 23:50:00 -0700)
+
+- **تحذير بشأن حالة الطقس اليوم بـ القاهرة والمحافظات: «ارتفاع مفاجئ» في الحرارة**: [Link](https://www.almasryalyoum.com/news/details/3561566)
+- **هو الصيف رجع تاني! أجزاء شديدة الحرارة تضرب بعض المناطق وبيان هام من الأرصاد**: [Link](https://zahraa.mr/5909494/%D9%87%D9%88-%D8%A7%D9%84%D8%B5%D9%8A%D9%81-%D8%B1%D8%AC%D8%B9-%D8%AA%D8%A7%D9%86%D9%8A-%D8%A3%D8%AC%D8%B2%D8%A7%D8%A1-%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA/)
+- **توقعات الأرصاد: طقس معتدل ليلًا وصباحًا على أغلب الأنحاء وحرارة مرتفعة جنوبًا**: [Link](https://fath-news.com/ar/551688-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B7%D9%82%D8%B3-%D9%85%D8%B9%D8%AA%D8%AF%D9%84-%D9%84%D9%8A%D9%84%D8%A7-%D9%88%D8%B5%D8%A8%D8%A7%D8%AD%D8%A7-%D8%B9%D9%84%D9%89-304)
+
+
+### ici tout commence (N/A, Mon, 29 Sep 2025 23:10:00 -0700)
+
+- **Ici tout commence : ce qui vous attend dans l'épisode 1274 du mardi 30 septembre 2025 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000166864.html)
+- **Ici tout commence en avance : résumé de l'épisode 1275 du mercredi 1er octobre**: [Link](https://www.melty.fr/series/ici-tout-commence-en-avance-resume-de-lepisode-1275-du-mercredi-1er-octobre-2265657.html)
+- **Ici tout commence : "Gaspard se sent trahi", Maxym Anciaux révèle la réaction de son personnage face à la nouvelle escroquerie de sa mère Eléonore**: [Link](https://www.programme-tv.net/news/series-tv/388559-ici-tout-commence-gaspard-se-sent-trahi-maxym-anciaux-revele-la-reaction-de-son-personnage-face-a-la-nouvelle-escroquerie-de-sa-mere-eleonore/)
+
+
 ### jannik sinner (N/A, Mon, 29 Sep 2025 23:20:00 -0700)
 
 - **LIVE Sinner-De Minaur alle 8. Jannik cerca la terza finale di fila a Pechino**: [Link](https://www.gazzetta.it/Tennis/ATP/30-09-2025/sinner-de-minaur-live-a-pechino-la-diretta.shtml)
