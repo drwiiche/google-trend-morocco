@@ -1,3 +1,10 @@
+### pafos vs bayern (N/A, Tue, 30 Sep 2025 12:40:00 -0700)
+
+- **Meet Pafos, the first-timers whose owner ‘wants to win the Champions League’ - The Athletic**: [Link](https://www.nytimes.com/athletic/6673062/2025/09/30/pafos-champions-league-bayern/)
+- **'Do I get my visa now?' – Kompany enjoys learning about Bayern's new challenger Pafos**: [Link](https://www.beinsports.com/en-asia/football/uefa-champions-league/articles/do-i-get-my-visa-now--kompany-enjoys-learning-about-bayerns-new-challenger-pafos-2025-09-29)
+- **Cyprus Soccer Champions League**: [Link](https://lufkindailynews.com/anpa/sports/cyprus-soccer-champions-league/image_49a37820-40c4-516f-85d2-09406f93fc5f.html)
+
+
 ### بافوس ضد البايرن (N/A, Tue, 30 Sep 2025 12:30:00 -0700)
 
 - **وجهة جديدة في خريطة بايرن الأوروبية… ونوير على أعتاب إنجاز شخصي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%AC%D9%87%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9--%D9%88%D9%86%D9%88%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B9%D8%AA%D8%A7%D8%A8-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%B4%D8%AE%D8%B5%D9%8A/blt7f649be60e8e67fc)
