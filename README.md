@@ -1,3 +1,17 @@
+### بافوس ضد البايرن (N/A, Tue, 30 Sep 2025 12:30:00 -0700)
+
+- **وجهة جديدة في خريطة بايرن الأوروبية… ونوير على أعتاب إنجاز شخصي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%AC%D9%87%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9--%D9%88%D9%86%D9%88%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B9%D8%AA%D8%A7%D8%A8-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%B4%D8%AE%D8%B5%D9%8A/blt7f649be60e8e67fc)
+- **"رجل واحد لا يكفي" .. مدرب بافوس يعتمد على خبرته ومدافع تشيلسي السابق لإيقاف خطورة هاري كين خلال مواجهة بايرن ميونخ**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A8%D8%A7%D9%81%D9%88%D8%B3-%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%AF%D9%8A%D9%81%D9%8A%D8%AF-%D9%84%D9%88%D9%8A%D8%B2/blt6a1f0400cce0bee2)
+- **هاري كين يعادل رقم نيمار في دوري أبطال أوروبا**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=30092025&id=19aa0989-0760-4239-b2aa-395a9fb37639)
+
+
+### bayern munich (N/A, Tue, 30 Sep 2025 12:30:00 -0700)
+
+- **Meet Pafos, the first-timers whose owner ‘wants to win the Champions League’ - The Athletic**: [Link](https://www.nytimes.com/athletic/6673062/2025/09/30/pafos-champions-league-bayern/)
+- **Champions League: Páfos vs Bayern Munich, a lopsided duel?**: [Link](https://foot-africa.com/en/news/champions-league-pafos-vs-bayern-munich-a-lopsided-duel-899991/)
+- **Cyprus Soccer Champions League**: [Link](https://lufkindailynews.com/anpa/sports/cyprus-soccer-champions-league/image_49a37820-40c4-516f-85d2-09406f93fc5f.html)
+
+
 ### marseille vs ajax (N/A, Tue, 30 Sep 2025 12:20:00 -0700)
 
 - **Preview: Marseille vs Ajax - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/marseille/champions-league/preview/marseille-vs-ajax-prediction-team-news-lineups_582462.html)
