@@ -1,3 +1,24 @@
+### champions league (N/A, Tue, 30 Sep 2025 10:20:00 -0700)
+
+- **Barcelona vs PSG Prediction: Lamine Yamal to Make Statement After Ballon d’Or Snub?**: [Link](https://theanalyst.com/articles/barcelona-vs-psg-prediction-champions-league-10-2025)
+- **Luis Enrique talks Pedri, Hansi Flick, Xana and Dembele ahead of UCL clash against Barcelona**: [Link](https://barcauniversal.com/luis-enrique-talks-pedri-hansi-flick-xana-and-dembele-ahead-of-ucl-clash-against-barcelona/)
+- **Barcelona vs PSG: UEFA Champions League – team news, start time and lineups**: [Link](https://www.aljazeera.com/sports/2025/9/30/barcelona-vs-psg-uefa-champions-league-team-news-start-time-and-lineups)
+
+
+### real madrid (N/A, Tue, 30 Sep 2025 10:10:00 -0700)
+
+- **Vitamina kazaja para el Madrid antes de la alta montaña**: [Link](https://as.com/futbol/champions/vitamina-kazaja-para-el-madrid-antes-de-la-alta-montana-n/)
+- **El equipo se entrenó en el Ortalyq Stadıon**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-en-almaty-29-09-2025)
+- **Almaty, el último refugio de Arshavin**: [Link](https://www.marca.com/futbol/champions-league/2025/09/30/almaty-ultimo-refugio-arshavin.html)
+
+
+### ligue des champions (N/A, Tue, 30 Sep 2025 10:10:00 -0700)
+
+- **Achraf Hakimi désigne le joueur du PSG qui va maîtriser Lamine Yamal**: [Link](https://www.footmercato.net/a8381969780976186856-achraf-hakimi-designe-le-joueur-du-psg-qui-va-maitriser-lamine-yamal)
+- **Où et quand voir FC Barcelone - Paris Saint-Germain**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4372475/ou-et-quand-voir-fc-barcelone-paris-saint-germain)
+- **Pedri : « Le PSG est parmi les meilleurs, le Barça est le meilleur »**: [Link](https://m.elbotola.com/fr/article/2025-09-30-13-19-575.html)
+
+
 ### kazakhstan (N/A, Tue, 30 Sep 2025 09:40:00 -0700)
 
 - **Kazakhstan launches its first crypto reserve - Alem Crypto Fund - for long-term investment in digital assets**: [Link](https://www.gov.kz/memleket/entities/maidd/press/news/details/1077013?lang=en)
