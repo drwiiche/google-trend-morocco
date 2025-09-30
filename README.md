@@ -1,3 +1,31 @@
+### kairat – real madrid (N/A, Tue, 30 Sep 2025 09:00:00 -0700)
+
+- **Kairat in the Champions League: 13-hour flights, Chelsea's wonderkid and Real Madrid**: [Link](https://www.bbc.com/sport/football/articles/czjvekl4ewno)
+- **Chelsea sign player who is “fast, strong, and finishes very well with both feet”**: [Link](https://chelsea.news/2025/09/chelsea-sign-player-who-is-fast-strong-and-finishes-very-well-with-both-feet/)
+- **Will Kylian Mbappe play? Predicted lineups for Real Madrid vs. Kairat Almaty in UEFA Champions League**: [Link](https://worldsoccertalk.com/news/will-kylian-mbappe-play-predicted-lineups-for-real-madrid-vs-kairat-almaty-in-uefa-champions-league/)
+
+
+### كيرات ضد الريال (N/A, Tue, 30 Sep 2025 09:00:00 -0700)
+
+- **بعد كارثة الديربي..ألونسو يواجه ألماتي بتشكيلة صادمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/la-composition-du-real-madrid-contre-kairat-a-fuite-xabi-alonso-bouleverse-tout/blt3fcc80acc41d7d33)
+- **ريال مدريد وليفربول يسعيان للتعويض في أبطال أوروبا بعد الكبوة محليا**: [Link](https://www.aljazeera.net/sport/2025/9/29/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84)
+- **مهاجم كايرات قبل مواجهة ريال مدريد: "الكل ينتظر هزيمتنا بنتيجة 0-10"**: [Link](https://m.elbotola.com/article/2025-09-30-10-54-545.html)
+
+
+### mondial u20 (N/A, Tue, 30 Sep 2025 08:50:00 -0700)
+
+- **Coupe du Monde U20 ( Maroc – Espagne): Yassine Gessime « Meilleur Joueur » (FIFA)**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%AC%D8%A7%D8%B3%D9%8A%D9%85-%D8%A3%D9%81%D8%B6%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D9%85/)
+- **Mondial U20 : le Maroc entame son parcours par une victoire face à l’Espagne 2 à 0**: [Link](https://mobile.telquel.ma/instant-t/2025/09/29/mondial-u20-le-maroc-entame-son-parcours-par-une-victoire-face-a-lespagne-2-a-0_1952807/)
+- **Les Lionceaux de l’Atlas salués au Chili après leur succès face à l’Espagne**: [Link](https://fr.hespress.com/443244-les-lionceaux-de-latlas-salues-au-chili-apres-leur-succes-face-a-lespagne.html)
+
+
+### instagram (N/A, Tue, 30 Sep 2025 00:00:00 -0700)
+
+- **Farah Khan reacts to claims of unfollowing Deepika Padukone: 'I was one of the first few people to see he**: [Link](https://timesofindia.indiatimes.com/entertainment/hindi/bollywood/news/farah-khan-reacts-to-claims-of-unfollowing-deepika-padukone-i-was-one-of-the-first-few-people-to-see-her-when-dua-was-born-/articleshow/124225495.cms)
+- **Farah Khan and Deepika Padukone unfollow each other on Instagram amid rift over 8-hour work shift joke? Here’s the truth | Bollywood**: [Link](https://www.hindustantimes.com/entertainment/bollywood/farah-khan-and-deepika-padukone-unfollow-each-other-on-instagram-amid-rift-over-8-hour-work-shift-joke-here-s-the-truth-101759206892868.html)
+- **Amid Reports Of Deepika Padukone Unfollowing Farah Khan On Instagram, Director Says, "We Were Not Following Each Other Earlier, Too"**: [Link](https://www.ndtv.com/entertainment/amid-reports-of-deepika-padukone-unfollowing-farah-khan-on-instagram-director-says-we-were-not-following-each-other-earlier-too-9369064)
+
+
 ### fc kairat almaty vs real madrid timeline (N/A, Tue, 30 Sep 2025 06:50:00 -0700)
 
 - **Kairat in the Champions League: 13-hour flights, Chelsea's wonderkid and Real Madrid**: [Link](https://www.bbc.com/sport/football/articles/czjvekl4ewno)
