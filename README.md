@@ -1,3 +1,10 @@
+### elyaz zidane (N/A, Mon, 29 Sep 2025 14:20:00 -0700)
+
+- **Des Bleuets poussifs viennent à bout de l'Afrique du Sud pour leurs débuts à la Coupe du monde U20**: [Link](https://www.lequipe.fr/Football/Actualites/Des-bleuets-poussifs-viennent-a-bout-de-l-afrique-du-sud-pour-leurs-debuts-a-la-coupe-du-monde-u20/1597778)
+- **Mondial U20, France : la grosse erreur d’Elyaz Zidane contre l’Afrique du Sud**: [Link](https://www.footmercato.net/a9185121872020990194-mondial-u20-la-grosse-erreur-delyaz-zidane-contre-lafrique-du-sud)
+- **France-Afrique du Sud: les Bleuets lancent leur Coupe du monde U20 par une victoire compliquée**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/direct-france-afrique-du-sud-suivez-en-live-le-premier-match-des-bleuets-a-la-coupe-du-monde-u20-au-chili_LS-202509290925.html)
+
+
 ### morocco (N/A, Mon, 29 Sep 2025 17:40:00 -0700)
 
 - **Young Moroccans clash with police while protesting stadium spending and health system decline**: [Link](https://www.washingtonpost.com/business/2025/09/28/morocco-protests-youth-corruption/0c111ad2-9c8a-11f0-af12-ae28224a8694_story.html)
