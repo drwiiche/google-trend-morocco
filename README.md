@@ -1,3 +1,24 @@
+### liverpool (N/A, Tue, 30 Sep 2025 12:50:00 -0700)
+
+- **Prem icon questions Liverpool after nightmare Galatasaray start – 'does he trust his team'**: [Link](https://www.dailystar.co.uk/sport/football/arne-slot-liverpool-champions-league-35992620)
+- **Liverpool handed new Dominik Szoboszlai penalty verdict as Mark Clattenburg point made**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/liverpool-handed-new-dominik-szoboszlai-32584802)
+- **‘Looked soft’ – James Pearce questions huge refereeing decision which went against Liverpool**: [Link](https://www.empireofthekop.com/2025/09/30/pearce-osimhen-galatasaray-penalty-liverpool/)
+
+
+### bayern (N/A, Tue, 30 Sep 2025 12:50:00 -0700)
+
+- **🔥 Er kann es ja doch! Jackson macht die Bayern endlich glücklich**: [Link](https://onefootball.com/de/news/er-kann-es-ja-doch-jackson-macht-die-bayern-endlich-gluecklich-41742445)
+- **Champions League: FC Paphos im Portrait - das steckt hinter dem Gegner des FC Bayern aus Zypern**: [Link](https://www.ran.de/sports/fussball/champions-league/news/champions-league-fc-paphos-im-portrait-das-steckt-hinter-dem-gegner-des-fc-bayern-aus-zypern-594738)
+- **Alle Spiele im Ticker: Pafos empfängt Bayern ++ Liverpool zu Gast bei Gala ++ Atlético fordert Frankfurt | blue News**: [Link](https://www.bluewin.ch/de/sport/champions-league/pafos-empfaengt-bayern-liverpool-zu-gast-bei-gala-atletico-fordert-frankfurt-2896672.html)
+
+
+### الإنتر ضد سلافيا براغ (N/A, Tue, 30 Sep 2025 12:50:00 -0700)
+
+- **مؤتمر كيفو: لا يمكننا النظر بعيدا في دوري أبطال أوروبا**: [Link](https://www.filgoal.com/articles/514331/%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D9%83%D9%8A%D9%81%D9%88-%D9%84%D8%A7-%D9%8A%D9%85%D9%83%D9%86%D9%86%D8%A7-%D8%A7%D9%84%D9%86%D8%B8%D8%B1-%D8%A8%D8%B9%D9%8A%D8%AF%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **موعد مباراة إنتر ميلان وسلافيا براج بث مباشر اليوم في دوري أبطال أوروبا**: [Link](https://il.upes.org/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D8%B3%D9%84%D8%A7%D9%81%D9%8A%D8%A7-%D8%A8%D8%B1%D8%A7%D8%AC-%D8%A8%D8%AB/)
+- **إنتر يستقبل سلافيا براغ وعينه على النقاط كاملةً**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D9%86%D8%AA%D8%B1-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%B3%D9%84%D8%A7%D9%81%D9%8A%D8%A7-%D8%A8%D8%B1%D8%A7%D8%BA-%D9%88%D8%B9%D9%8A%D9%86%D9%87-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D9%83%D8%A7%D9%85%D9%84%D8%A9-2025-09-30)
+
+
 ### pafos vs bayern (N/A, Tue, 30 Sep 2025 12:40:00 -0700)
 
 - **Meet Pafos, the first-timers whose owner ‘wants to win the Champions League’ - The Athletic**: [Link](https://www.nytimes.com/athletic/6673062/2025/09/30/pafos-champions-league-bayern/)
