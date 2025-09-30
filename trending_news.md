@@ -1,3 +1,10 @@
+### carlos alcaraz (N/A, Tue, 30 Sep 2025 02:30:00 -0700)
+
+- **Alcaraz no se cansa de ganar: récord de triunfos y novena final seguida**: [Link](https://as.com/tenis/alcaraz-no-se-cansa-de-ganar-record-de-triunfos-y-novena-final-seguida-n/)
+- **Carlos Alcaraz come en la mesa del 'Big Three' y llega a su décima final de la temporada**: [Link](https://www.marca.com/tenis/2025/09/29/carlos-alcaraz-come-mesa-big-three-llega-decima-final-temporada.html)
+- **Carlos Alcaraz - Taylor Fritz en directo - ATP Tokio: Resultados y resúmenes de Tenis - 30/09/2025**: [Link](https://espanol.eurosport.com/tenis/atp-tokio/2025/live-carlos-alcaraz-taylor-fritz_mtc1645222/live-commentary.shtml)
+
+
 ### caisse marocaine des retraites (N/A, Tue, 30 Sep 2025 01:10:00 -0700)
 
 - **CMR: Paiement des pensions pour les nouveaux retraités de l’Éducation nationale**: [Link](https://fr.hespress.com/443238-cmr-paiement-des-pensions-pour-les-nouveaux-retraites-de-leducation-nationale.html)
