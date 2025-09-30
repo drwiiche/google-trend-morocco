@@ -1,3 +1,10 @@
+### inter miami – chicago fire (N/A, Tue, 30 Sep 2025 15:50:00 -0700)
+
+- **Inter Miami vs. Chicago Fire: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/inter-miami-vs-chicago-fire-preview-predictions-lineups-9-30-25)
+- **Inter Miami vs Chicago Fire LIVE score, Major League Soccer: Where to watch Messi match? Kick off at 5:00 AM IST**: [Link](https://sportstar.thehindu.com/football/inter-miami-vs-chicago-fire-live-score-updates-watch-lionel-messi-match-major-league-soccer-highlights-streaming/article70115442.ece)
+- **Mascherano says Inter Miami will fight on in Supporters' Shield hunt**: [Link](https://www.beinsports.com/en-au/football/mls/articles/mascherano-says-inter-miami-will-fight-on-in-supporters-shield-hunt-2025-09-29)
+
+
 ### hespress (N/A, Tue, 30 Sep 2025 15:20:00 -0700)
 
 - **المغرب.. اعتقال بارون المخدرات "موسى" بعد زفافه المثير للجدل**: [Link](https://www.skynewsarabia.com/varieties/1824038-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D8%A8%D8%A7%D8%B1%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D9%85%D9%88%D8%B3%D9%89-%D8%B2%D9%81%D8%A7%D9%81%D9%87-%D8%A7%D9%84%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%AC%D8%AF%D9%84)
