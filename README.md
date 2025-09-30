@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Mon, 29 Sep 2025 23:20:00 -0700)
+
+- **LIVE Sinner-De Minaur alle 8. Jannik cerca la terza finale di fila a Pechino**: [Link](https://www.gazzetta.it/Tennis/ATP/30-09-2025/sinner-de-minaur-live-a-pechino-la-diretta.shtml)
+- **Sinner-De Minaur, partita la semifinale che scotta. Perchè Jannik continuerà a sperimentare**: [Link](https://www.rainews.it/articoli/2025/09/sinner-de-minaur-la-semifinale-che-scotta-ma-jannik-continuera-a-sperimentare-nuovi-moduli-china-open-3bb4f29c-77ff-4295-b3ab-c8b25e4e258f.html)
+- **Atp Pechino, Sinner vola in semifinale**: [Link](https://agrpress.it/atp-pechino-sinner-vola-in-semifinale/)
+
+
 ### elyaz zidane (N/A, Mon, 29 Sep 2025 14:20:00 -0700)
 
 - **Des Bleuets poussifs viennent à bout de l'Afrique du Sud pour leurs débuts à la Coupe du monde U20**: [Link](https://www.lequipe.fr/Football/Actualites/Des-bleuets-poussifs-viennent-a-bout-de-l-afrique-du-sud-pour-leurs-debuts-a-la-coupe-du-monde-u20/1597778)
