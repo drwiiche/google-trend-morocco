@@ -1,3 +1,10 @@
+### oujda (N/A, Tue, 30 Sep 2025 14:40:00 -0700)
+
+- **Oujda abrite la 14e édition du film maghrébin**: [Link](https://www.leconomiste.com/oujda-abrite-la-14e-edition-du-film-maghrebin/)
+- **[Vidéo] L’émouvant discours de Marcel Khalifa, invité de marque du 14e Festival International Maghrébin du Film d’Oujda**: [Link](https://lecollimateur.ma/194986)
+- **Oujda : Clap de départ pour la 14è édition du Festival international maghrébin du film**: [Link](https://www.mapexpress.ma/actualite/culture-et-medias/oujda-clap-depart-14e-edition-du-festival-international-maghrebin-du-film/)
+
+
 ### عادل إمام (N/A, Tue, 30 Sep 2025 14:30:00 -0700)
 
 - **يؤدي مناسك العمرة.. حقيقة ظهور الزعيم عادل إمام على كرسي متحرك**: [Link](https://www.almasryalyoum.com/news/details/3561767)
