@@ -1,3 +1,31 @@
+### hespress (N/A, Tue, 30 Sep 2025 15:20:00 -0700)
+
+- **المغرب.. اعتقال بارون المخدرات "موسى" بعد زفافه المثير للجدل**: [Link](https://www.skynewsarabia.com/varieties/1824038-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D8%A8%D8%A7%D8%B1%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D9%85%D9%88%D8%B3%D9%89-%D8%B2%D9%81%D8%A7%D9%81%D9%87-%D8%A7%D9%84%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%AC%D8%AF%D9%84)
+- **الناظور.. سقوط "اليد اليمنى" لموسى أزغنغان في كمين أمني محكم**: [Link](https://ar.hibapress.com/details-661264.html)
+- **إيقاف الرجل الثاني في زفاف “موسى”**: [Link](https://assabah.ma/873690.html)
+
+
+### halima ben ali (N/A, Tue, 30 Sep 2025 15:20:00 -0700)
+
+- **Halima Ben Ali, fille de l’ancien autocrate, arrêtée à Paris à la demande de la Tunisie**: [Link](https://www.lemonde.fr/societe/article/2025/09/30/une-des-filles-de-ben-ali-halima-arretee-a-paris-a-la-demande-des-autorites-tunisiennes_6643766_3224.html)
+- **L’une des filles de l’ex-dictateur tunisien Ben Ali arrêtée à Paris**: [Link](https://www.20minutes.fr/justice/4176210-20250930-tunisie-filles-ex-dictateur-ben-ali-arretee-paris)
+- **Halima, une des filles de Ben Ali, arrêtée à Paris à la demande de la Tunisie**: [Link](https://www.lefigaro.fr/international/halima-une-des-filles-de-ben-ali-arretee-a-paris-a-la-demande-de-la-tunisie-20250930)
+
+
+### nepal (N/A, Tue, 30 Sep 2025 15:20:00 -0700)
+
+- **Nepal chooses a 2-year-old girl as new living goddess worshipped by both Hindus and Buddhists**: [Link](https://apnews.com/article/nepal-living-goddess-hindu-tradition-0cd93fa79e3446ffdf995210f44b8f99)
+- **Nepal chooses a 2-year-old girl as new living goddess worshipped by both Hindus and Buddhists**: [Link](https://abcnews.go.com/International/wireStory/nepal-chooses-2-year-girl-new-living-goddess-126068153)
+- **See Nepal's living goddess leave her palace to bless throngs of worshipers**: [Link](https://www.newsday.com/news/nation/nepal-festival-living-goddess-hindu-indra-jatra-v92421)
+
+
+### انزكان (N/A, Tue, 30 Sep 2025 15:00:00 -0700)
+
+- **قضاة الحسابات يفتحون ملفات حساسة في إنزكان أيت ملول**: [Link](https://agadir24.info/%D9%82%D8%B6%D8%A7%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D9%8A%D9%81%D8%AA%D8%AD%D9%88%D9%86-%D9%85%D9%84%D9%81%D8%A7%D8%AA-%D8%AD%D8%B3%D8%A7%D8%B3%D8%A9-%D9%81%D9%8A-%D8%A5%D9%86.html)
+- **محام يراسل لفتيت لعزل منتخبين بعمالة إنزكان بعد ثبوت حالة تضارب المصالح في حقهم**: [Link](https://al3omk.com/1103441.html)
+- **بعد عزل عامل إنزكان آيت ملول.. أين المحاسبة؟**: [Link](https://ar.hibapress.com/details-662026.html)
+
+
 ### oujda (N/A, Tue, 30 Sep 2025 14:40:00 -0700)
 
 - **Oujda abrite la 14e édition du film maghrébin**: [Link](https://www.leconomiste.com/oujda-abrite-la-14e-edition-du-film-maghrebin/)
