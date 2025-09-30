@@ -1,3 +1,10 @@
+### marseille fc (N/A, Tue, 30 Sep 2025 13:40:00 -0700)
+
+- **PSG : De Zerbi s'excuse, Yamal relance la polémique, transferts en approche !**: [Link](https://www.butfootballclub.fr/620210-les-infos-du-jour-les-milieux-du-psg-courtises-de-zerbi-om-fait-son-mea-culpa-la-polemique-yamal-rebondit-encore/)
+- **Doué forfait contre le Barça, coup de tonnerre chez EA, Thauvin pré-convoqué avec les Bleus ... Les immanquables du jour !**: [Link](https://www.onzemondial.com/autres-championnats/doue-forfait-contre-le-barca-coup-de-tonnerre-chez-ea-thauvin-pre-convoque-avec-les-bleus-les-immanquables-du-jour-968096)
+- **PSG, OM, FC Barcelone... Toutes les infos foot et mercato de ce dimanche 28 septembre**: [Link](https://www.90min.com/fr/psg-om-fc-barcelone-toutes-les-infos-foot-et-mercato-de-ce-dimanche-28-septembre-2025)
+
+
 ### ايت عميرة (N/A, Tue, 30 Sep 2025 12:40:00 -0700)
 
 - **الأغلبية الحكومية بالمغرب "مستعدة للتجاوب" مع مطالب "جيل زد"**: [Link](https://www.aljazeera.net/news/2025/9/30/%D8%A7%D9%84%D8%A3%D8%BA%D9%84%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D9%8A%D8%A9-%D9%85%D8%B3%D8%AA%D8%B9%D8%AF%D8%A9-%D9%84%D9%84%D8%AA%D8%AC%D8%A7%D9%88%D8%A8)
