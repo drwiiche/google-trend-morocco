@@ -1,3 +1,17 @@
+### أولمبيك مارسيليا ضد أياكس (N/A, Tue, 30 Sep 2025 12:10:00 -0700)
+
+- **بث مباشر مباراة مارسيليا وأياكس في دوري أبطال أوروبا**: [Link](https://infosports.news/ar/news/228299/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%88%D8%A3%D9%8A%D8%A7%D9%83%D8%B3-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1.html)
+- **دوري الأبطال: أياكس يسافر إلى مرسيليا على غيمة من الشكوك**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5191625-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%8A%D8%A7%D9%83%D8%B3-%D9%8A%D8%B3%D8%A7%D9%81%D8%B1-%D8%A5%D9%84%D9%89-%D9%85%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%BA%D9%8A%D9%85%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B4%D9%83%D9%88%D9%83)
+- **بث مباشر كورة بلس - أياكس يصطدم بمارسيليا في موقعة نارية بدوري أبطال أوروبا 2025**: [Link](https://www.elfagr.org/5226798)
+
+
+### galatasaray vs liverpool (N/A, Tue, 30 Sep 2025 12:10:00 -0700)
+
+- **Liverpool confirm 21-man travelling squad for Galatasaray trip**: [Link](https://www.liverpoolfc.com/news/liverpool-confirm-21-man-travelling-squad-galatasaray-trip)
+- **⚔️ German showdown in the Champions League: all eyes on this clash**: [Link](https://onefootball.com/en/news/german-showdown-in-the-champions-league-all-eyes-on-this-clash-41741480)
+- **Why Mohamed Salah and Alexander Isak aren't starting for Liverpool vs Galatasaray**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/mohamed-salah-alexander-isak-arent-32584585)
+
+
 ### غلطة سراي ضد ليفربول (N/A, Tue, 30 Sep 2025 11:50:00 -0700)
 
 - **سلوت يبين لماذا ضم إيكيتيكي وإيزاك.. ويكشف نقطة ضعف ليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D8%A8%D9%8A%D9%86-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%B6%D9%85-%D8%A7%D9%95%D9%8A%D9%83%D9%8A%D8%AA%D9%8A%D9%83%D9%8A-%D9%88%D8%A7%D9%95%D9%8A%D8%B2%D8%A7%D9%83--%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D9%86%D9%82%D8%B7%D8%A9-%D8%B6%D8%B9%D9%81-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/bltdc746384e4bc161a)
