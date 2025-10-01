@@ -1,3 +1,17 @@
+### instagram (N/A, Tue, 30 Sep 2025 23:50:00 -0700)
+
+- **Exclusive | OpenAI’s New Sora Video Generator to Require Copyright Holders to Opt Out**: [Link](https://www.wsj.com/tech/ai/openais-new-sora-video-generator-to-require-copyright-holders-to-opt-out-071d8b2a?gaa_at=eafs&gaa_n=ASWzDAjxd5FCMG0EVp2XgCeDFqiVK2eluEklJRe82bVXnvsLr8YvGE8-tzQM&gaa_ts=68dcd6b5&gaa_sig=tX6vbTtoKMfRvvKcrhn4Jap6husbVxX1VnJk5BIZ-u6whwORHM-uuvb1IWn0ukvgDQ2TLagvOGKotPcU4H-Rdg%3D%3D)
+- **OpenAI Is Preparing to Launch a Social App for AI-Generated Videos**: [Link](https://www.wired.com/story/openai-launches-sora-2-tiktok-like-app/)
+- **Does Sora 2 Come to Hollywood in Peace — Or to Leave It in Pieces?**: [Link](https://www.hollywoodreporter.com/business/digital/openai-sora-2-video-tool-tiktok-1236390106/)
+
+
+### هبة بريس (N/A, Tue, 30 Sep 2025 23:20:00 -0700)
+
+- **بن كيران: الاحتجاجات خرجت عن مسارها السلمي ويجب وقفها**: [Link](https://ar.hibapress.com/details-662168.html)
+- **اتهمه بـ"الغش".. بنكيران يدعو وهبي للاستقالة**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%88%D8%B5%D9%84%D8%AA-%D8%A7%D8%A8%D9%86-%D9%83%D9%8A%D8%B1%D8%A7%D9%86-%D9%8A%D8%AF%D8%B9%D9%88-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A5%D9%84/)
+- **العدالة والتنمية بطنجة يجدد الثقة في محمد بوزيدان كاتبا إقليميا**: [Link](https://www.pjd.ma/219881-%D8%A7%D9%84%D8%B9%D8%AF%D8%A7%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%A8%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D8%AB%D9%82%D8%A9-%D9%81%D9%8A-%D9%85.html)
+
+
 ### jannik sinner (N/A, Tue, 30 Sep 2025 23:30:00 -0700)
 
 - **La fascia neurale che «legge» il cervello di Sinner: performance o spionaggio?**: [Link](https://www.vanityfair.it/article/jannik-sinner-focuscalm-fascia-neurale)
