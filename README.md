@@ -1,3 +1,10 @@
+### psg vs barcelona (N/A, Wed, 1 Oct 2025 05:30:00 -0700)
+
+- **Plaga en el PSG ante el Barça**: [Link](https://as.com/futbol/champions/plaga-en-el-psg-ante-el-barca-n/)
+- **Barça - PSG, el primer partidazo**: [Link](https://www.sport.es/es/noticias/barca/primer-partidazo-122134873)
+- **Vitinha, principal foco de atención en el último test del PSG**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20250930/1002542241/vitinha-principal-foco-atencion-ultimo-test-psg.html)
+
+
 ### royal air maroc (N/A, Wed, 1 Oct 2025 04:20:00 -0700)
 
 - **Le Maroc élu à Montréal au Conseil de l’Organisation de l’aviation civile internationale**: [Link](https://h24info.ma/maroc/maroc-montreal-laviation-civile-internationale/)
