@@ -1,3 +1,31 @@
+### juventus (N/A, Wed, 1 Oct 2025 13:10:00 -0700)
+
+- **Gioie nerazzurre in Europa: Chivu allontana Inzaghi, Juric avvicina Gasp**: [Link](https://www.gazzetta.it/Calcio/Champions-League/01-10-2025/champions-inter-e-atalanta-ok-per-chivu-e-juric-il-commento-di-agresti-sulla-gazzetta.shtml)
+- **Scommesse calcio, Champions League: ecco le quote delle italiane su Betsson**: [Link](https://www.jamma.it/scommesse/quote/scommesse-calcio-champions-league-ecco-le-quote-delle-italiane-su-betsson-339807)
+- **Champions League, dove seguire Napoli-Sporting e Villareal-Juventus questa sera in diretta streaming e TV?**: [Link](https://startupitalia.eu/lifestyle/champions-league-dove-seguire-napoli-sporting-e-villareal-juventus-questa-sera-in-diretta-streaming-e-tv/)
+
+
+### يلا كورة (N/A, Wed, 1 Oct 2025 13:10:00 -0700)
+
+- **مهاجم الأهلي "المصاب" ينافس سيسكو في تشكيلة منتخب سلوفينيا**: [Link](https://sports.asharq.com/football/88728/%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D8%A8-%D9%8A%D9%86%D8%A7%D9%81%D8%B3-%D8%B3%D9%8A%D8%B3%D9%83%D9%88-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B3%D9%84%D9%88%D9%81%D9%8A%D9%86%D9%8A%D8%A7/)
+- **حدث تاريخي.. استدعاء لاعب الأهلي للمشاركة في تصفيات أوروبا لمونديال 2026**: [Link](https://www.msn.com/ar-eg/sports/other/%D8%AD%D8%AF%D8%AB-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%A7%D8%B3%D8%AA%D8%AF%D8%B9%D8%A7%D8%A1-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%84%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/ar-AA1NFAhV)
+- **جراديشار يفاجئ الأهلي بخطوة عالمية لأول مرة.. وتوقيع ديانج وعبد القادر**: [Link](https://www.ahlynews.com/%D8%AC%D8%B1%D8%A7%D8%AF%D9%8A%D8%B4%D8%A7%D8%B1-%D9%8A%D9%81%D8%A7%D8%AC%D8%A6-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A8%D8%AE%D8%B7%D9%88%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D9%84%D8%A3/)
+
+
+### maroc brésil u20 (N/A, Wed, 1 Oct 2025 13:00:00 -0700)
+
+- **Maroc-Brésil. Le Maroc joue pour une place en huitièmes de la Coupe du monde U20**: [Link](https://medias24.com/2025/10/01/maroc-bresil-coupe-du-monde-u20-maroc-bresil/)
+- **Coupe du Monde U20 : le match Maroc-Brésil, un choc pour l’Histoire**: [Link](https://ledesk.ma/2025/09/30/coupe-du-monde-u20-maroc-vs-bresil-un-choc-pour-lhistoire/)
+- **Mondial U20 : un carton vert utilisé pour la première fois lors du match Maroc-Espagne**: [Link](https://mobile.telquel.ma/instant-t/2025/09/30/mondial-u20-un-carton-vert-utilise-pour-la-premiere-fois-lors-du-match-maroc-espagne_1953026/)
+
+
+### mayulu (N/A, Wed, 1 Oct 2025 12:40:00 -0700)
+
+- **Mayulu backs up UCL final strike with brilliant equaliser in Barcelona ✅**: [Link](https://ca.sports.yahoo.com/news/mayulu-backs-ucl-final-strike-194700011.html)
+- **(Video) Watch Nuno Mendes Amazing Play on Senny Mayulu Goal in PSG-Barcelona Match**: [Link](https://psgtalk.com/2025/10/nuno-mendes-mayulu-psg-barcelona/)
+- **Barcelona vs PSG: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c1edv126d27t)
+
+
 ### دورتموند ضد أتلتيك بيلباو (N/A, Wed, 1 Oct 2025 12:50:00 -0700)
 
 - **دوري الأبطال: كوفاتش يؤكد أن غياب وليامس "قد يساعدنا" ويرحب بعودة غيراسي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20250930-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%83%D9%88%D9%81%D8%A7%D8%AA%D8%B4-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%86-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%88%D9%84%D9%8A%D8%A7%D9%85%D8%B3-%D9%82%D8%AF-%D9%8A%D8%B3%D8%A7%D8%B9%D8%AF%D9%86%D8%A7-%D9%88%D9%8A%D8%B1%D8%AD%D8%A8-%D8%A8%D8%B9%D9%88%D8%AF%D8%A9-%D8%BA%D9%8A%D8%B1%D8%A7%D8%B3%D9%8A)
