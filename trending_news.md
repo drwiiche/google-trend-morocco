@@ -1,3 +1,17 @@
+### سانت خيلويزي ضد نيوكاسل يونايتد (N/A, Wed, 1 Oct 2025 10:00:00 -0700)
+
+- **تشكيلة نيوكاسل المتوقعة ضد يونيون رويال في دوري أبطال أوروبا**: [Link](https://hihi2.com/2025/09/30/p3405761.html)
+- **نيوكاسل في اختبار أوروبي صعب أمام سانت جلواز البلجيكي**: [Link](https://newsroom.info/172109)
+- **هاو مدرب نيوكاسل: الفوز على سان جيلواز سيجنبنا المعاناة بدوري الأبطال**: [Link](https://www.reuters.com/ar/sports/WALC43XRQVMBZN2NAWBTUXM6HI-2025-09-30/)
+
+
+### arrestation halima ben ali (N/A, Wed, 1 Oct 2025 07:20:00 -0700)
+
+- **L’une des filles de l’ex-dictateur tunisien Ben Ali arrêtée à Paris**: [Link](https://www.20minutes.fr/justice/4176210-20250930-tunisie-filles-ex-dictateur-ben-ali-arretee-paris)
+- **Qui est Halima Ben Ali, la très discrète fille de l’ancien président tunisien, arrêtée en France ?**: [Link](https://www.lefigaro.fr/international/qui-est-halima-ben-ali-la-tres-discrete-fille-de-l-ancien-president-tunisien-arretee-en-france-20250930)
+- **Halima Ben Ali, fille de l’ancien autocrate, arrêtée à Paris à la demande de la Tunisie**: [Link](https://www.lemonde.fr/societe/article/2025/09/30/une-des-filles-de-ben-ali-halima-arretee-a-paris-a-la-demande-des-autorites-tunisiennes_6643766_3224.html)
+
+
 ### barcelona vs psg (N/A, Wed, 1 Oct 2025 09:30:00 -0700)
 
 - **Plaga en el PSG ante el Barça**: [Link](https://as.com/futbol/champions/plaga-en-el-psg-ante-el-barca-n/)
