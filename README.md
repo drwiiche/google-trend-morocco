@@ -1,3 +1,23 @@
+### آرسنال ضد أوليمبياكوس (N/A, Wed, 1 Oct 2025 11:50:00 -0700)
+
+- **دوري الأبطال...الكعبي في قائمة أولمبياوكوس لمواجهة أرسنال : lematinsports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D9%88%D9%83%D9%88%D8%B3-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84/9510)
+- **صور – أجواء سعيدة في أرسنال قبل لقاء أولمبياكوس**: [Link](https://hihi2.com/2025/09/30/p3405783.html)
+- **القنوات الناقلة لمباراة أرسنال ضد أوليمبياكوس في دوري أبطال أوروبا مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/351842308043575-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A3%D9%88%D9%84%D9%8A%D9%85%D8%A8%D9%8A%D8%A7%D9%83%D9%88%D8%B3-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### ياسين تيفي (N/A, Wed, 1 Oct 2025 11:40:00 -0700)
+
+- **تطبيق ياسين تي في للأيفون yacine iptv ياسين ايبي تيفي**: [Link](https://pagearabic.com/2025/10/01/%D8%AA%D8%B7%D8%A8%D9%8A%D9%82-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%AA%D9%8A-%D9%81%D9%8A-%D9%84%D9%84%D8%A3%D9%8A%D9%81%D9%88%D9%86-yacine-iptv-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A7%D9%8A%D8%A8%D9%8A/)
+- **تطبيق ياسين تيفي (Yacine TV)**: [Link](https://pagearabic.com/2025/09/27/%D8%AA%D8%B7%D8%A8%D9%8A%D9%82-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%AA%D9%8A%D9%81%D9%8A-yacine-tv/)
+
+
+### ibrahim mbaye (N/A, Wed, 1 Oct 2025 11:30:00 -0700)
+
+- **Senny Mayulu et Ibrahim Mbaye devraient être titulaires contre le FC Barcelone - L'Equipe**: [Link](https://tribuna.com/fr/news/2025-10-01-senny-mayulu-et-ibrahim-mbaye-devraient-etre-titulaire-contre-le-fc-barcelone-lequipe/)
+- **Barcelone PSG : Comment Senny Mayulu se prépare à la rencontre**: [Link](https://www.planetepsg.com/news-118116-club-comment_senny_mayulu_se_prepare_a_la_rencontre.html)
+- **PSG/Auxerre – Mayulu ne mâche pas ses mots sur Luis Enrique et les Titis**: [Link](https://www.msn.com/fr-ca/actualites/other/psg-auxerre-mayulu-ne-m%C3%A2che-pas-ses-mots-sur-luis-enrique-et-les-titis/ar-AA1Nsfd7)
+
+
 ### الزوراء ضد النصر (N/A, Wed, 1 Oct 2025 11:30:00 -0700)
 
 - **مباشر.. مباراة الزوراء ضد النصر في دوري أبطال آسيا 2**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/1/al-nassr-vs-al-zawraa)
