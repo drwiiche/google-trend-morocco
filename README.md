@@ -1,3 +1,31 @@
+### kooora (N/A, Wed, 1 Oct 2025 14:00:00 -0700)
+
+- **"فيفا" ردًا على ترامب: كرة القدم أكبر من قادة العالم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D9%81%D8%A7-%D8%B1%D8%AF%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%94%D9%83%D8%A8%D8%B1-%D9%85%D9%86-%D9%82%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/blt6df02e745e187ace)
+- **نائب رئيس "فيفا": نقل مباريات من مدن مونديال 2026 ليس من اختصاص ترمب**: [Link](https://www.aleqt.com/2025/10/01/article_2767349.html)
+- **ترامب يقول إنه سيفكر في نقل مباريات بكأس العالم**: [Link](https://www.reuters.com/ar/entertainment/HXMV7MPIYBIWJIJ5PGLVMNLRH4-2025-09-26/)
+
+
+### سيدي بيبي (N/A, Wed, 1 Oct 2025 14:00:00 -0700)
+
+- **أعمال تخريب تتخلل احتجاجات "جيل زيد" بالمغرب ودعوات لوقف العنف**: [Link](https://www.aljazeera.net/news/2025/10/1/%D8%A3%D8%B9%D9%85%D8%A7%D9%84-%D8%AA%D8%AE%D8%B1%D9%8A%D8%A8-%D8%AA%D8%AA%D8%AE%D9%84%D9%84-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-%D8%B2%D9%8A%D8%AF)
+- **الداخلية المغربية تكشف حصيلة عنف الاحتجاجات**: [Link](https://www.alarabiya.net/north-africa/morocco/2025/10/01/%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%B9%D9%86%D9%81-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA)
+- **وزارة الداخلية: تدخلات القوات العمومية في بعض الحالات كان الخيار الأخير في مواجهة قلة من المحرضين**: [Link](https://www.mapexpress.ma/ar/videos/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%AA%D8%AF%D8%AE%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D9%85%D9%88%D9%85%D9%8A/)
+
+
+### achraf hakimi (N/A, Wed, 1 Oct 2025 14:00:00 -0700)
+
+- **Achraf Hakimi: "Será un partido bonito de jugar y de ver"**: [Link](https://es-us.noticias.yahoo.com/deportes/achraf-hakimi-partido-bonito-jugar-164258287.html)
+- **Achraf desafía a Lamine: “Nuno Mendes ya demostró que es capaz de pararlo”**: [Link](https://www.lavanguardia.com/deportes/fc-barcelona/20250930/11113310/achraf-lamine-yamal-nuno-mendes-pararlo-psg-barcelona.html)
+- **Hakimi: "A Lamine lo va a marcar el mejor lateral izquierdo del mundo"**: [Link](https://www.sport.es/es/videos/barca/20250930/hakimi-lamine-marcar-mejor-lateral/122133462.shtml)
+
+
+### napoli (N/A, Wed, 1 Oct 2025 13:40:00 -0700)
+
+- **Le UFFICIALI di Napoli-Sporting | La scelta su KDB e Lucca! Beukema 👍**: [Link](https://onefootball.com/en/news/le-ufficiali-di-napoli-sporting-la-scelta-su-kdb-e-lucca-beukema-41746690)
+- **Conte prima del match: 'Schiero la formazione che ci dà maggiori garanzie'**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/conte_prima_del_match_schiero_la_formazione_che_ci_d_maggiori_garanzie_-75812149.html)
+- **Le pagelle di Napoli-Sporting Lisbona: Hojlund "melatonina" di Politano, De Bruyne mette due assist sul tavolo della pace**: [Link](https://www.sportmediaset.mediaset.it/calcio/championsleague/le-pagelle-di-napoli-sporting-lisbona-hojlund-melatonina-di-politano-de-bruyne-mette-due-assist-sul-tavolo-della-pace_104187638-202502k.shtml)
+
+
 ### juventus (N/A, Wed, 1 Oct 2025 13:10:00 -0700)
 
 - **Gioie nerazzurre in Europa: Chivu allontana Inzaghi, Juric avvicina Gasp**: [Link](https://www.gazzetta.it/Calcio/Champions-League/01-10-2025/champions-inter-e-atalanta-ok-per-chivu-e-juric-il-commento-di-agresti-sulla-gazzetta.shtml)
