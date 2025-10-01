@@ -1,3 +1,24 @@
+### dortmund (N/A, Wed, 1 Oct 2025 12:40:00 -0700)
+
+- **BVB vs. Athletic Bilbao heute im Champions League Gratis-Livestream schauen**: [Link](https://cybernews.com/de/online-schauen/dortmund-bilbao-kostenlos-schauen-champions-league-01-10-2025/)
+- **Süle feiert Comeback in der Champions League**: [Link](https://www.ligainsider.de/niklas-suele_2584/suele-feiert-comeback-in-der-champions-league-402917/)
+- **Anreiseinfos zum Heimspiel gegen Athletic Club**: [Link](https://onefootball.com/de/news/anreiseinfos-zum-heimspiel-gegen-athletic-club-41744677)
+
+
+### match (N/A, Wed, 1 Oct 2025 12:30:00 -0700)
+
+- **John Cena's final match to headline Saturday Night's Main Event on Dec. 13 in Washington D.C.**: [Link](https://www.wwe.com/article/john-cena-s-final-match-to-headline-saturday-night-s-main-event-on-dec-13-at-capital-one)
+- **John Cena Sets Final WWE Match As Saturday Night’s Main Event Headliner**: [Link](https://deadline.com/2025/09/john-cena-final-wwe-match-saturday-nights-main-event-1236565646/)
+- **Mark Henry Pitches Surprising Name As John Cena’s Final Opponent in WWE**: [Link](https://sports.yahoo.com/article/mark-henry-pitches-surprising-name-161629535.html)
+
+
+### barca (N/A, Wed, 1 Oct 2025 12:20:00 -0700)
+
+- **Barcelona vs PSG: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c1edv126d27t)
+- **Barcelona vs Paris Saint-Germain: Date, Time and Everything You Need to Know About the Champions League Blockbuster**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/barcelona-vs-paris-saint-germain-date-time-and-everything-you-need-to-know-about-the-champions-league-blockbuster-2025-10-01)
+- **!!+[OffiCial@!]* AS Monaco vs Manchester City LIVE STreams ON TV**: [Link](https://www.goldderby.com/topic/official-as-monaco-vs-manchester-city-live-streams-on-tv/)
+
+
 ### bet365 (N/A, Wed, 1 Oct 2025 12:30:00 -0700)
 
 - **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets win or lose for Yankees vs. Red Sox**: [Link](https://nypost.com/2025/10/01/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-win-or-lose-for-yankees-vs-red-sox/)
