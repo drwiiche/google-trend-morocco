@@ -1,3 +1,24 @@
+### bet365 (N/A, Wed, 1 Oct 2025 12:30:00 -0700)
+
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets win or lose for Yankees vs. Red Sox**: [Link](https://nypost.com/2025/10/01/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-win-or-lose-for-yankees-vs-red-sox/)
+- **Best NJ sportsbook promos: Unlock over $1,000 in bonuses for Yankees vs. Red Sox in MLB Playoffs**: [Link](https://www.nj.com/betting/2025/09/best-nj-sportsbook-promos-unlock-over-1000-in-bonuses-for-yankees-vs-red-sox-in-mlb-playoffs.html)
+- **Underdog Promo Code NEWSWEEK: Claim New $100 Bonus for MLB Playoffs Picks**: [Link](https://www.newsweek.com/sports/betting/underdog-promo-code-newsweek-claim-new-100-bonus-mlb-playoffs-picks-2134602)
+
+
+### فياريال ضد يوفنتوس (N/A, Wed, 1 Oct 2025 12:30:00 -0700)
+
+- **رقم مرعب.. يوفنتوس يواجه مخاوفه في معقل الغواصات الصفراء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/la-juventus-ha-il-mal-di-trasferta-in-champions-e-occhio-al-villarreal-che-vince-da-sette-partite-consecutive-in-casa/bltb941bc2f7e6294f4)
+- **“Villarreal VS Juventus” مباراة فياريال ويوفنتوس في دوري ابطال أوروبا 2025-2026.. القنوات الناقلة والتشكيلات المتوقعة**: [Link](https://zahraa.mr/5915251/villarreal-vs-juventus-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%81%D9%8A-%D8%AF%D9%88/)
+- **القنوات الناقلة لمباراة يوفنتوس أمام فياريال في دوري أبطال أوروبا مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/104522380218756-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### maroc vs brazil (N/A, Wed, 1 Oct 2025 12:30:00 -0700)
+
+- **Maroc-Brésil. Le Maroc joue pour une place en huitièmes de la Coupe du monde U20**: [Link](https://medias24.com/2025/10/01/maroc-bresil-coupe-du-monde-u20-maroc-bresil/)
+- **Coupe du Monde U20 : le match Maroc-Brésil, un choc pour l’Histoire**: [Link](https://ledesk.ma/2025/09/30/coupe-du-monde-u20-maroc-vs-bresil-un-choc-pour-lhistoire/)
+- **Mondial U20 : un carton vert utilisé pour la première fois lors du match Maroc-Espagne**: [Link](https://mobile.telquel.ma/instant-t/2025/09/30/mondial-u20-un-carton-vert-utilise-pour-la-premiere-fois-lors-du-match-maroc-espagne_1953026/)
+
+
 ### flashscore (N/A, Wed, 1 Oct 2025 12:20:00 -0700)
 
 - **Australia beat New Zealand despite Robinson century**: [Link](https://www.bbc.com/sport/cricket/articles/c8d786rlvm3o)
