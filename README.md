@@ -1,3 +1,10 @@
+### snrt (N/A, Wed, 1 Oct 2025 16:40:00 -0700)
+
+- **مارسيل خليفة يهدي تكريم مهرجان وجدة السينمائي إلى غزة**: [Link](https://lakome2.com/art/393569/)
+- **تقنية الهولوغرام تضيء افتتاح المهرجان الدولي المغاربي للفيلم بوجدة**: [Link](https://www.anwarpress.com/699325/)
+- **الإعلان عن قائمة الأفلام المشاركة في الدورة الـ 25 للمهرجان الوطني للفيلم بطنجة**: [Link](https://www.mapexpress.ma/ar/actualite/%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%B9%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D9%81%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7/%D8%A7%D9%84%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85/)
+
+
 ### u20 world cup (N/A, Wed, 1 Oct 2025 16:30:00 -0700)
 
 - **Two Guadalajara Players Featured in the Draw Between Mexico and Spain**: [Link](https://www.chivasdecorazon.com.mx/en/noticias/39907/Dos-del-Guadalajara-presentes-en-el-empate-entre-Mxico-y-Espaa)
