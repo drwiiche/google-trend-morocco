@@ -1,3 +1,15 @@
+### octobre (N/A, Wed, 1 Oct 2025 01:00:00 -0700)
+
+- **Grève du 2 octobre : trains, métros, écoles… le point sur les prévisions de perturbations**: [Link](https://www.lemonde.fr/politique/article/2025/10/01/greve-du-2-octobre-trains-metros-ecoles-le-point-sur-les-previsions-de-perturbations_6643835_823448.html)
+- **Mobilisation de jeudi: Trafic "normal" pour les TGV et la RATP, perturbations dans les Intercités**: [Link](https://medias24.com/agence-presse/mobilisation-de-jeudi-trafic-normal-pour-les-tgv-et-la-ratp-perturbations-dans-les-intercites/)
+- **Grève du 2 octobre : voici à quoi vous devez vous attendre, secteur par secteur**: [Link](https://www.capital.fr/economie-politique/greve-du-2-octobre-voici-a-quoi-vous-devez-vous-attendre-secteur-par-secteur-1518936)
+
+
+### agadir24 (N/A, Wed, 1 Oct 2025 00:10:00 -0700)
+
+
+
+
 ### kun aguero (N/A, Tue, 30 Sep 2025 19:40:00 -0700)
 
 - **El 'Kun' Agüero y el padre de Lamine Yamal no han tenido esta discusión en redes**: [Link](https://www.rtve.es/noticias/20250930/kun-aguero-padre-lamine-yamal-no-han-tenido-esta-discusion-redes/16750968.shtml)
