@@ -1,3 +1,10 @@
+### كأس العالم تحت 20 سنة 2025 (N/A, Wed, 1 Oct 2025 15:30:00 -0700)
+
+- **قدم.. المنتخب السعودي يتعثر أمام كولومبيا في مونديال الشباب**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%8A%D8%AA%D8%B9%D8%AB%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/3702886)
+- **بث مباشر مجانًا.. رابط مشاهدة مباراة السعودية وكولومبيا تحت 20 في كأس العالم**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D8%AA%D8%AD%D8%AA-20/)
+- **سواريز لـ«عكاظ»: نستهدف ثمن نهائي المونديال.. وهذا وعدي للجماهير السعودية**: [Link](https://www.msn.com/ar-ae/news/featured/%D8%B3%D9%88%D8%A7%D8%B1%D9%8A%D8%B2-%D9%84%D9%80-%D8%B9%D9%83%D8%A7%D8%B8-%D9%86%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%88%D9%87%D8%B0%D8%A7-%D9%88%D8%B9%D8%AF%D9%8A-%D9%84%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/ar-AA1NFOSf)
+
+
 ### brésil u-20 – équipe du maroc des moins de 20 ans de football (N/A, Wed, 1 Oct 2025 15:20:00 -0700)
 
 - **Maroc-Brésil. Le Maroc joue pour une place en huitièmes de la Coupe du monde U20**: [Link](https://medias24.com/2025/10/01/maroc-bresil-coupe-du-monde-u20-maroc-bresil/)
