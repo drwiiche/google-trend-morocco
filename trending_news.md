@@ -1,3 +1,67 @@
+### الزوراء ضد النصر (N/A, Wed, 1 Oct 2025 11:30:00 -0700)
+
+- **مباشر.. مباراة الزوراء ضد النصر في دوري أبطال آسيا 2**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/1/al-nassr-vs-al-zawraa)
+- **جيسوس يكشف سبب استبعاد رونالدو من مباراة الزوراء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%A8%D8%A8-%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B2%D9%88%D8%B1%D8%A7%D8%A1/bltb435a7d2defd1f80)
+- **بالفيديو: عماد السالمي وفلاته يطالبان بعدم إشراك رونالدو في مباراة الزوراء العراقي.. ويكشفان عن السبب!**: [Link](https://sport.al-marsd.com/article/243172//%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B9%D9%85%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D9%84%D9%85%D9%8A-%D9%88%D9%81%D9%84%D8%A7%D8%AA%D9%87-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8%D8%A7%D9%86-%D8%A8%D8%B9%D8%AF%D9%85-%D8%A5%D8%B4%D8%B1%D8%A7%D9%83-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B2%D9%88%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82%D9%8A-%D9%88%D9%8A%D9%83%D8%B4%D9%81%D8%A7%D9%86-%D8%B9%D9%86-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8/)
+
+
+### leverkusen – psv eindhoven (N/A, Wed, 1 Oct 2025 11:30:00 -0700)
+
+- **PSV hoping to get Champions League campaign going against stuttering Bayer Leverkusen**: [Link](https://sports.yahoo.com/article/psv-hoping-champions-league-campaign-151100610.html)
+- **Bayer Leverkusen vs PSV LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/01/1235866-bayer-leverkusen-vs-psv-live-updates-in-uefa-champions-league.html)
+- **Hjulmand urges Leverkusen to show 'identity' against PSV**: [Link](https://www.fotmob.com/id/news/174lb95c18zf11ohn1c3scqw0g-hjulmand-urges-leverkusen-show-identity-against-psv)
+
+
+### arsenal – olympiakos (N/A, Wed, 1 Oct 2025 11:20:00 -0700)
+
+- **Team news: Odegaard back in starting line-up**: [Link](https://www.arsenal.com/news/team-news-odegaard-back-starting-line)
+- **Arteta perceives defeat to Olympiacos as an ‘an experience I learnt
+a lot from’**: [Link](https://www.vavel.com/en/football/2025/09/30/arsenal/1235875-arteta-perceives-defeat-to-olympiacos-as-an-an-experience-i-learnta-lot-from.html)
+- **Three straight wins at the Emirates – Arsenal's Greek nightmare returns**: [Link](https://www.besoccer.com/new/three-straight-wins-at-the-emirates-ndash-arsenal-s-greek-nightmare-returns-1375518)
+
+
+### dortmund – ath. bilbao (N/A, Wed, 1 Oct 2025 11:20:00 -0700)
+
+- **'Three years ago, we'd have bitten your hand off to be in Dortmund'**: [Link](https://www.besoccer.com/new/three-years-ago-we-d-have-bitten-your-hand-off-to-be-in-dortmund-1375666)
+- **Athletic coach on BVB: “One of the toughest tasks in Europe.”**: [Link](https://onefootball.com/pt-br/noticias/athletic-coach-on-bvb-one-of-the-toughest-tasks-in-europe-41742596)
+- **Kovac and Dortmund seeking control in Champions League**: [Link](https://www.fotmob.com/id/news/xhmer3p434vu1grwydycgnpa8-kovac-dortmund-seeking-control-champions-league)
+
+
+### villarreal – juventus (N/A, Wed, 1 Oct 2025 11:20:00 -0700)
+
+- **Second-choice Juventus keeper Perin expected to start vs. Villarreal**: [Link](https://football-italia.net/juventus-keeper-perin-starts-villarreal/)
+- **Bremer, Khephren Thuram unavailable for Juventus’ trip to face Villarreal**: [Link](https://www.blackwhitereadallover.com/team-news/32577/juventus-gleison-bremer-khephren-thuram-injury-2025-champions-league-league-phase-team-news)
+- **Villarreal coach does not believe Juventus is rebuilding their team**: [Link](https://www.juvefc.com/villarreal-coach-does-not-believe-juventus-is-rebuilding-their-team/)
+
+
+### موناكو ضد مان سيتي (N/A, Wed, 1 Oct 2025 11:20:00 -0700)
+
+- **قائمة السيتي لمواجهة موناكو في دوري أبطال أوروبا**: [Link](https://ar.mancity.com/news/mens/monaco-champions-league-travelling-squad-63894841)
+- **لماذا أطلق كومباني على زميله بيرناردو سيلفا لقب «المهرج»؟**: [Link](https://twaslnews.com/%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC/2032393/)
+- **صباحك أوروبي.. استمرار غياب مرموش**: [Link](https://www.yallakora.com/la-liga/2982/news/525300/%D8%B5%D8%A8%D8%A7%D8%AD%D9%83-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D8%AA%D9%81%D8%A7%D9%87%D9%85-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%88%D8%AC%D9%88%D9%84%D8%B1-%D9%88%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A3%D8%B2%D9%85%D8%A9-%D8%AF%D9%8A-%D8%A8%D8%B1%D9%88%D9%8A%D9%86)
+
+
+### barcelone – paris-sg (N/A, Wed, 1 Oct 2025 11:10:00 -0700)
+
+- **DIRECT. FC Barcelone-PSG (Ligue des champions 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/fc-barcelone-psg-live/685519)
+- **DIRECT. Barça-PSG: Enrique fait confiance aux jeunes, Yamal titulaire... Suivez le choc de la deuxième journée de la Ligue des champions en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-barca-psg-suivez-le-choc-de-la-deuxieme-journee-de-la-ligue-des-champions-en-live_LS-202510010451.html)
+- **FC Barcelone - PSG : les compositions officielles**: [Link](https://www.footmercato.net/a8963773733793044767-fc-barcelone-psg-les-compositions-officielles)
+
+
+### برشلونة ضد بي اس جي (N/A, Wed, 1 Oct 2025 11:10:00 -0700)
+
+- **عودة نجم مهم.. فليك يعلن قائمة برشلونة لموقعة باريس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%86%D8%AC%D9%85-%D9%85%D9%87%D9%85--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3/blt5f96bc051ae6f180)
+- **مباشر.. مباراة برشلونة ضد باريس سان جيرمان في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86?update=8079736)
+- **حكيمي: فخور برتبتي في الكرة الذهبية**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%81%D8%AE%D9%88%D8%B1-%D8%A8%D8%B1%D8%AA%D8%A8%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-1632843.html)
+
+
+### monaco – manchester city (N/A, Wed, 1 Oct 2025 11:10:00 -0700)
+
+- **Exclusive: Monaco's Vanderson on the Champions League duel against Manchester City: "Practically a national team"**: [Link](https://www.365scores.com/news/exclusive-monacos-vanderson-on-the-champions-league-duel-against-manchester-city-practically-a-national-team?utm_source=365Scores&utm_medium=link&utm_campaign=Contact%2Bus%2Bat%2B365scores%2Bfor%2Bmore%2Btraffic)
+- **Three in a row: Resurgent Fati aims to trouble Man City**: [Link](https://www.besoccer.com/new/three-in-a-row-resurgent-fati-aims-to-trouble-man-city-1375406)
+- **Guardiola, renouveau, transition… Tout savoir sur Manchester City**: [Link](https://www.asmonaco.com/en/a-new-look-bernardo-silva-everything-you-need-to-know-about-manchester-city/)
+
+
 ### match maroc bresil u20 (N/A, Wed, 1 Oct 2025 11:00:00 -0700)
 
 - **Maroc-Brésil : à quelle heure, sur quelles chaînes ? (Coupe du monde U20)**: [Link](https://medias24.com/2025/10/01/maroc-bresil-a-quelle-heure-sur-quelles-chaines-coupe-du-monde-u20/)
