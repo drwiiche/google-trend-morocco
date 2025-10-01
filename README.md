@@ -1,3 +1,10 @@
+### champions league (N/A, Wed, 1 Oct 2025 14:00:00 -0700)
+
+- **Champions League: Man City draw despite Haaland double, Arsenal beat Olympiacos**: [Link](https://www.bbc.co.uk/sport/football/live/cq65pr6vn2zt?page=4)
+- **Arsenal 2-0 Olympiacos: Gabriel Martinelli and Bukayo Saka on target**: [Link](https://www.bbc.com/sport/football/live/cn95znpj2pgt)
+- **Three straight wins at the Emirates: Will Arsenal's Greek tragedy continue or end abruptly?**: [Link](https://www.tribalfootball.com/article/soccer-champions-league-three-straight-wins-at-the-emirates-will-arsenal-s-greek-tragedy-continue-or-end-abruptly-f46bceba-4c00-4433-8102-770b7a176884)
+
+
 ### ترتيب دوري أبطال أوروبا (N/A, Wed, 1 Oct 2025 14:00:00 -0700)
 
 - **فوز كبير لـ دورتموند وتعادل يوفينتوس.. نتائج مباريات اليوم في دوري أبطال أوروبا**: [Link](https://www.cairo24.com/2291719)
