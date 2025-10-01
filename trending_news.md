@@ -1,3 +1,17 @@
+### match maroc u20 (N/A, Tue, 30 Sep 2025 16:50:00 -0700)
+
+- **Coupe du Monde U20 : le match Maroc-Brésil, un choc pour l’Histoire**: [Link](https://ledesk.ma/2025/09/30/coupe-du-monde-u20-maroc-vs-bresil-un-choc-pour-lhistoire/)
+- **Coupe du Monde U20 ( Maroc – Espagne): Yassine Gessime « Meilleur Joueur » (FIFA)**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%AC%D8%A7%D8%B3%D9%8A%D9%85-%D8%A3%D9%81%D8%B6%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D9%85/)
+- **Mondial U20 : un carton vert utilisé pour la première fois lors du match Maroc-Espagne**: [Link](https://mobile.telquel.ma/instant-t/2025/09/30/mondial-u20-un-carton-vert-utilise-pour-la-premiere-fois-lors-du-match-maroc-espagne_1953026/)
+
+
+### romelu lukaku (N/A, Tue, 30 Sep 2025 13:10:00 -0700)
+
+- **Former Man United striker Romelu Lukaku supported after heartbreaking update**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/former-man-united-striker-romelu-32577273)
+- **Premier League legend's dad dies at 58 as star says 'pain and tears are flowing'**: [Link](https://www.dailystar.co.uk/sport/football/breaking-premier-league-legends-dad-35984091)
+- **Zaire (now DR Congo): Roger Lukaku, father of Romelu Lukaku, has passed away**: [Link](https://foot-africa.com/en/news/zaire-now-dr-congo-roger-lukaku-father-of-romelu-lukaku-has-passed-away-899085/)
+
+
 ### inter miami – chicago fire (N/A, Tue, 30 Sep 2025 15:50:00 -0700)
 
 - **Inter Miami vs. Chicago Fire: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/inter-miami-vs-chicago-fire-preview-predictions-lineups-9-30-25)
