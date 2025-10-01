@@ -1,3 +1,17 @@
+### match maroc bresil u20 (N/A, Wed, 1 Oct 2025 11:00:00 -0700)
+
+- **Maroc-Brésil : à quelle heure, sur quelles chaînes ? (Coupe du monde U20)**: [Link](https://medias24.com/2025/10/01/maroc-bresil-a-quelle-heure-sur-quelles-chaines-coupe-du-monde-u20/)
+- **Coupe du Monde U20 : le match Maroc-Brésil, un choc pour l’Histoire**: [Link](https://ledesk.ma/2025/09/30/coupe-du-monde-u20-maroc-vs-bresil-un-choc-pour-lhistoire/)
+- **Mondial U20 : un carton vert utilisé pour la première fois lors du match Maroc-Espagne**: [Link](https://mobile.telquel.ma/instant-t/2025/09/30/mondial-u20-un-carton-vert-utilise-pour-la-premiere-fois-lors-du-match-maroc-espagne_1953026/)
+
+
+### psg barca (N/A, Wed, 1 Oct 2025 10:40:00 -0700)
+
+- **Barcelona defender on PSG’s radar for free transfer next summer**: [Link](https://barcauniversal.com/barcelona-defender-on-psgs-radar-for-free-transfer-next-summer/)
+- **Mercato: PSG targets a key Barça player**: [Link](https://foot-africa.com/en/news/mercato-psg-targets-a-key-barca-player-901935/)
+- **Al-Khelaïfi negotiates 1 signing with Joan Laporta at Montjuïc before Barça-PSG**: [Link](https://madrid-barcelona.com/en/fc-barcelona/al-khelaifi-negotiates-1-signing-with-joan-laporta-at-montjuic-before-the-barca-psg-match)
+
+
 ### غلطة سراي ضد ليفربول (N/A, Wed, 1 Oct 2025 10:30:00 -0700)
 
 - **غلطة سراي يهزم ليفربول وفوز بايرن ومرسيليا وتشلسي وإنتر وأتلتيكو**: [Link](https://www.aljazeera.net/sport/2025/10/1/%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%81%D9%88%D8%B2-%D9%83%D8%A7%D8%B3%D8%AD)
