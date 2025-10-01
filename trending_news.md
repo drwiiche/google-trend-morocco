@@ -1,3 +1,15 @@
+### union saint-gilloise – newcastle (N/A, Wed, 1 Oct 2025 09:00:00 -0700)
+
+- **Union Saint-Gilloise v Newcastle: Christian Burgess and Ross Sykes overcome odds**: [Link](https://www.bbc.com/sport/football/articles/ckg2jdeznevo)
+- **Stadium ban forces Newcastle’s Champions League match to be moved to rival ground**: [Link](https://talksport.com/football/3605293/newcastle-champions-league-union-saint-gilloise-stadium-ban/)
+- **Eddie Howe speaks out – Key updates ahead of Champions League clash vs Union SG**: [Link](https://www.nufcblog.co.uk/2025/10/01/eddie-howe-speaks-out-key-updates-ahead-of-champions-league-clash-vs-union-sg/)
+
+
+### alyaoum24 (N/A, Tue, 30 Sep 2025 22:30:00 -0700)
+
+
+
+
 ### المظاهرات بالمغرب (N/A, Wed, 1 Oct 2025 08:30:00 -0700)
 
 - **احتجاجات "جيل زد" تتواصل في المغرب.. فهل تحتويها الحكومة؟**: [Link](https://www.aljazeera.net/politics/2025/9/30/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%AA%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%87%D9%84)
