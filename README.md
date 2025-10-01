@@ -1,3 +1,24 @@
+### u20 world cup (N/A, Wed, 1 Oct 2025 16:30:00 -0700)
+
+- **Two Guadalajara Players Featured in the Draw Between Mexico and Spain**: [Link](https://www.chivasdecorazon.com.mx/en/noticias/39907/Dos-del-Guadalajara-presentes-en-el-empate-entre-Mxico-y-Espaa)
+- **Spain vs. Mexico: How to Watch, Odds, 2025 FIFA U-20 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/spain-vs-mexico-how-watch-2025-fifa-u-20-world-cup-match)
+- **Obed Vargas: “Our Team Can Challenge Spain”**: [Link](https://el-balad.com/5010063)
+
+
+### bein sports live (N/A, Wed, 1 Oct 2025 16:10:00 -0700)
+
+- **beIN SPORTS North America welcomes Rita Herring as new Managing Director in its 13th year of operations**: [Link](https://www.beinsports.com/en-us/soccer/articles/bein-sports-north-america-welcomes-rita-herring-as-new-managing-director-in-its-13th-year-of-operations-2025-10-01)
+- **'Not good enough' - do Man City have a late goal issue?**: [Link](https://www.bbc.com/sport/football/articles/c62zeg18py3o)
+- **Monaco 2-2 Man City: Pep Guardiola post match interview and reaction**: [Link](https://www.bbc.com/sport/football/videos/c3dr2l9vyv1o)
+
+
+### ترتيب الدوري المغربي (N/A, Wed, 1 Oct 2025 14:10:00 -0700)
+
+- **مقصلة الإقالة تقطع رؤوس المدربين في الدوري المغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%82%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%82%D8%A7%D9%84%D8%A9-%D8%AA%D9%82%D8%B7%D8%B9-%D8%B1%D9%88%D9%94%D9%88%D8%B3-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt066cbe910f6dff4f)
+- **الطاوسي ثاني ضحايا الإقالات هذا الموسم في البطولة**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D8%B3%D9%8A-%D8%AB%D8%A7%D9%86%D9%8A-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D8%A7%D9%84%D8%A5%D9%82%D8%A7%D9%84%D8%A7%D8%AA-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%B3/)
+- **الكوكب ينهي الارتباط بالطاوسي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7-%D8%A8%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D8%B3%D9%8A-1632743.html)
+
+
 ### coupe du monde u20 2025 (N/A, Wed, 1 Oct 2025 14:30:00 -0700)
 
 - **Football - Coupe du monde U20 : Le résumé d'Espagne - Mexique**: [Link](https://www.lequipe.fr/Football/Video/Coupe-du-monde-u20-le-resume-d-espagne-mexique/20217990)
