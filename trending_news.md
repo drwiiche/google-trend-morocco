@@ -1,3 +1,10 @@
+### kun aguero (N/A, Tue, 30 Sep 2025 19:40:00 -0700)
+
+- **El 'Kun' Agüero y el padre de Lamine Yamal no han tenido esta discusión en redes**: [Link](https://www.rtve.es/noticias/20250930/kun-aguero-padre-lamine-yamal-no-han-tenido-esta-discusion-redes/16750968.shtml)
+- **El Kun Agüero, a la gresca con el padre de Lamine Yamal: "Si no fuera por tu hijo estarías vendiendo medias en la calle"**: [Link](https://www.libertaddigital.com/deportes/futbol/2025-09-28/el-kun-aguero-a-la-gresca-con-el-padre-de-lamine-yamal-si-no-fuera-por-tu-hijo-estarias-vendiendo-medias-en-la-calle-7301399/)
+- **“Si no fuera por tu hijo, estarías vendiendo calcetines en la calle”: Sergio Agüero presuntamente mantiene un acalorado intercambio en línea con el padre de Lamine Yamal**: [Link](https://tribuna.com/es/blogs/si-no-fuera-por-tu-hijo-estarias-vendiendo-calcetines-en-la/)
+
+
 ### instagram (N/A, Tue, 30 Sep 2025 23:50:00 -0700)
 
 - **Exclusive | OpenAI’s New Sora Video Generator to Require Copyright Holders to Opt Out**: [Link](https://www.wsj.com/tech/ai/openais-new-sora-video-generator-to-require-copyright-holders-to-opt-out-071d8b2a?gaa_at=eafs&gaa_n=ASWzDAjxd5FCMG0EVp2XgCeDFqiVK2eluEklJRe82bVXnvsLr8YvGE8-tzQM&gaa_ts=68dcd6b5&gaa_sig=tX6vbTtoKMfRvvKcrhn4Jap6husbVxX1VnJk5BIZ-u6whwORHM-uuvb1IWn0ukvgDQ2TLagvOGKotPcU4H-Rdg%3D%3D)
