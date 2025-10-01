@@ -1,3 +1,10 @@
+### fc barcelone match (N/A, Wed, 1 Oct 2025 08:10:00 -0700)
+
+- **Le Barça foudroie le PSG**: [Link](https://www.footmercato.net/a2696304931480617463-le-barca-foudroie-le-psg)
+- **Avant le choc contre le Barça, suivez la conférence de presse du PSG en direct**: [Link](https://www.lequipe.fr/Football/Actualites/Avant-le-choc-contre-le-barca-suivez-la-conference-de-presse-du-psg-en-direct/1597911)
+- **"Nous n'oublierons pas ce geste": l'émotion et les remerciements de Luis Enrique à Al-Khelaïfi pour son geste pour la fondation Xana**: [Link](https://rmcsport.bfmtv.com/football/clubs/paris-saint-germain/nous-n-oublierons-pas-ce-geste-l-emotion-et-les-remerciements-de-luis-enrique-a-al-khelaifi-pour-son-geste-pour-la-fondation-xana_AV-202509300787.html)
+
+
 ### psg vs barcelona (N/A, Wed, 1 Oct 2025 05:30:00 -0700)
 
 - **Plaga en el PSG ante el Barça**: [Link](https://as.com/futbol/champions/plaga-en-el-psg-ante-el-barca-n/)
