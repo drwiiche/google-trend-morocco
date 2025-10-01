@@ -1,3 +1,10 @@
+### brésil u-20 – équipe du maroc des moins de 20 ans de football (N/A, Wed, 1 Oct 2025 15:20:00 -0700)
+
+- **Maroc-Brésil. Le Maroc joue pour une place en huitièmes de la Coupe du monde U20**: [Link](https://medias24.com/2025/10/01/maroc-bresil-coupe-du-monde-u20-maroc-bresil/)
+- **Coupe du Monde U20 : le match Maroc-Brésil, un choc pour l’Histoire**: [Link](https://ledesk.ma/2025/09/30/coupe-du-monde-u20-maroc-vs-bresil-un-choc-pour-lhistoire/)
+- **Mondial U20 : un carton vert utilisé pour la première fois lors du match Maroc-Espagne**: [Link](https://mobile.telquel.ma/instant-t/2025/09/30/mondial-u20-un-carton-vert-utilise-pour-la-premiere-fois-lors-du-match-maroc-espagne_1953026/)
+
+
 ### المغرب ضد البرازيل (N/A, Wed, 1 Oct 2025 14:50:00 -0700)
 
 - **مباشر.. مباراة المغرب ضد البرازيل في كأس العالم للشباب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/2/morocco-vs-chile)
