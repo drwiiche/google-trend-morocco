@@ -1,3 +1,10 @@
+### coupe du monde u20 2025 (N/A, Wed, 1 Oct 2025 14:30:00 -0700)
+
+- **Football - Coupe du monde U20 : Le résumé d'Espagne - Mexique**: [Link](https://www.lequipe.fr/Football/Video/Coupe-du-monde-u20-le-resume-d-espagne-mexique/20217990)
+- **Coupe du Monde U20 2025 : Duel équilibré entre l’Espagne et le Mexique à la pause (1-1)**: [Link](https://africafootunited.com/coupe-du-monde-u20-2025-duel-equilibre-entre-lespagne-et-le-mexique-a-la-pause-1-1/)
+- **Où voir Espagne U20 – Brésil U20, sur quelle chaîne en streaming ?**: [Link](https://www.footix.fr/ou-voir-espagne-u20-bresil-u20-sur-quelle-chaine-en-streaming/)
+
+
 ### البرازيل تحت 20 ضد منتخب المغرب تحت 20 سنة لكرة القدم (N/A, Wed, 1 Oct 2025 15:40:00 -0700)
 
 - **مونديال الشباب/ وهبي يحافظ على نفس الأسماء في تشكيلته الرسمية أمام البرازيل (الخميس 00:00 غرينيتش +1)**: [Link](https://m.elbotola.com/article/2025-10-01-21-41-336.html)
