@@ -1,3 +1,17 @@
+### hespress maroc (N/A, Wed, 1 Oct 2025 01:00:00 -0700)
+
+- **Le sport marocain séduit le Brésil et dope le tourisme**: [Link](https://fr.hespress.com/443222-la-sportivite-marocaine-seduit-le-bresil-et-dope-le-tourisme.html)
+- **أرقام تلخص أزمة الصحة والتعليم في احتجاجات المغرب**: [Link](https://www.aljazeera.net/ebusiness/2025/9/30/generation-z-morocco-education-health)
+- **الحكومة المغربية تعرب عن تفهمها للمطالب الاجتماعية وتؤكد استعدادها للتجاوب معها**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A%D8%A9/20250930-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D9%81%D9%87%D9%85-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D9%84%D8%A8-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AC%D8%A7%D9%88%D8%A8-%D9%85%D8%B8%D8%A7%D9%87%D8%B1%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-%D8%B2%D8%A7%D8%AF-212)
+
+
+### manifestations gen z maroc (N/A, Wed, 1 Oct 2025 00:40:00 -0700)
+
+- **Des manifestations franchissent un palier dangereux avec des actes de violence**: [Link](https://medias24.com/2025/10/01/des-manifestations-franchissent-un-palier-dangereux-avec-des-actes-de-violence/)
+- **Benkirane appelle GenZ212 à cesser les manifestations**: [Link](https://mobile.telquel.ma/instant-t/2025/10/01/benkirane-appelle-genz212-a-cesser-les-manifestations_1953336/)
+- **Qui est la génération Z au Maroc et que veut-elle ? Ce que disent les données et un sociologue**: [Link](https://lematin.ma/nation/qui-est-la-generation-z-au-maroc-et-que-veut-elle/304790)
+
+
 ### octobre (N/A, Wed, 1 Oct 2025 01:00:00 -0700)
 
 - **Grève du 2 octobre : trains, métros, écoles… le point sur les prévisions de perturbations**: [Link](https://www.lemonde.fr/politique/article/2025/10/01/greve-du-2-octobre-trains-metros-ecoles-le-point-sur-les-previsions-de-perturbations_6643835_823448.html)
