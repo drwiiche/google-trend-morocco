@@ -1,3 +1,17 @@
+### fc barcelona vs psg timeline (N/A, Wed, 1 Oct 2025 09:10:00 -0700)
+
+- **Laporta talks Flick, Lamine, Luis Enrique, Figo, Champions League ahead of Barcelona vs PSG**: [Link](https://barcauniversal.com/laporta-talks-flick-lamine-luis-enrique-figo-champions-league-ahead-of-barcelona-vs-psg/)
+- **Barca-PSG showdown: Kang-in Lee's winning run meets Casado’s unbeaten charge**: [Link](https://www.besoccer.com/new/barca-psg-showdown-kang-in-lee-s-winning-run-meets-casado-rsquo-s-unbeaten-charge-1375689)
+- **PSG – Barça: Paris has found the breakthrough**: [Link](https://onefootball.com/en/news/psg-barca-paris-has-found-the-breakthrough-41744893)
+
+
+### benkirane (N/A, Wed, 1 Oct 2025 09:10:00 -0700)
+
+- **Manifestations : le rappel à l'ordre du ministère de l'Intérieur**: [Link](https://medias24.com/2025/10/01/manifestations-le-rappel-a-lordre-du-ministere-de-linterieur/)
+- **Nuit de violences dans plusieurs villes lors d’une quatrième journée de protestations**: [Link](https://mobile.telquel.ma/instant-t/2025/10/01/genz212-des-violences-secouent-plusieurs-villes-lors-dune-quatrieme-nuit-de-protestations_1953348/)
+- **GenZ212: l’interdiction des manifestations expliquée par le ministère de l’Intérieur**: [Link](https://fr.le360.ma/societe/genz212-linterdiction-des-manifestations-expliquee-par-le-ministere-de-linterieur_LEOT3ER63RDFDASE4QEX6WOUGU/)
+
+
 ### union saint-gilloise – newcastle (N/A, Wed, 1 Oct 2025 09:00:00 -0700)
 
 - **Union Saint-Gilloise v Newcastle: Christian Burgess and Ross Sykes overcome odds**: [Link](https://www.bbc.com/sport/football/articles/ckg2jdeznevo)
