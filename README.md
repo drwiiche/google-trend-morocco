@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Tue, 30 Sep 2025 23:30:00 -0700)
+
+- **La fascia neurale che «legge» il cervello di Sinner: performance o spionaggio?**: [Link](https://www.vanityfair.it/article/jannik-sinner-focuscalm-fascia-neurale)
+- **SURREALE: La stella della F1 Charles Leclerc coinvolto in uno scandalo esplosivo di furto di idee con il militare cinese.**: [Link](https://autogear.pt/it/surreale-la-stella-della-f1-charles-leclerc-coinvolto-in-uno-scandalo-esplosivo-di-furto-di-idee-con-i-militari-cinesi/)
+- **La mente brillante di Sinner fa gola ai cinesi. Cosa c'è dietro il "mistero" della fascia neuronale focus calm**: [Link](https://lespresso.it/c/innovazione/2025/9/25/brainco-dati-celebrali-sinner-cina-fascia-neuronale-focus-calm/57162)
+
+
 ### hibapress (N/A, Tue, 30 Sep 2025 23:00:00 -0700)
 
 - **بن كيران: الاحتجاجات خرجت عن مسارها السلمي ويجب وقفها**: [Link](https://ar.hibapress.com/details-662168.html)
