@@ -1,3 +1,38 @@
+### flashscore (N/A, Wed, 1 Oct 2025 12:20:00 -0700)
+
+- **Australia beat New Zealand despite Robinson century**: [Link](https://www.bbc.com/sport/cricket/articles/c8d786rlvm3o)
+- **Squad depth in focus for New Zealand, Australia amid key absences**: [Link](https://www.espncricinfo.com/series/australia-in-new-zealand-2025-26-1491675/new-zealand-vs-australia-1st-t20i-1491714/match-preview)
+- **Tim Robinson century in vain as Black Caps lose first Chappell-Hadlee Twenty20 to Australia**: [Link](https://www.stuff.co.nz/sport/360775586/tim-robinson-century-vain-black-caps-lose-first-chappell-hadlee-twenty20-australia)
+
+
+### barca vs (N/A, Wed, 1 Oct 2025 12:20:00 -0700)
+
+- **Luis Enrique: "Espero que Pedri no traiga la varita"**: [Link](https://www.marca.com/futbol/barcelona/2025/09/30/luis-enrique-espero-pedri-traiga-varita.html)
+- **Luis Enrique: "Soy culer y me encanta ver a este Barça"**: [Link](https://www.sport.es/es/noticias/barca/luis-enrique-culer-encanta-ver-122123887)
+- **Luis Enrique revela por qué Pedri es el 'Harry Potter' del Barça**: [Link](https://monesport.cat/es/futbol-es/paris-saint-germain/luis-enrique-se-deshace-en-elogios-hacia-pedri-451869/)
+
+
+### yallakora (N/A, Wed, 1 Oct 2025 12:20:00 -0700)
+
+- **نائب رئيس "فيفا": نقل مباريات من مدن مونديال 2026 ليس من اختصاص ترمب**: [Link](https://www.aleqt.com/2025/10/01/article_2767349.html)
+- **كيف يستغل ترامب "كأس العالم" لفرض نفوذه وحماية "إسرائيل"؟**: [Link](https://arabi21.com/story/1710192/%D9%83%D9%8A%D9%81-%D9%8A%D8%B3%D8%AA%D8%BA%D9%84-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%81%D8%B1%D8%B6-%D9%86%D9%81%D9%88%D8%B0%D9%87-%D9%88%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **بتواجد حكيمي وزياش... أوناحي يختار تشكيلته المثالية المكونة من 5 أسماء مغربية**: [Link](https://onefootball.com/id/berita/5-41739828)
+
+
+### fcb (N/A, Wed, 1 Oct 2025 12:20:00 -0700)
+
+- **'Like father, like son': Patrick Kluivert's son scores golazo against PSG in UEFA Youth League**: [Link](https://tribuna.com/en/blogs/like-father-like-son-patrick-kluiverts-son-scores-golazo-aga/)
+- **Sport: Milan ’emerge as an option’ for Lewandowski – his stance on Barcelona future**: [Link](https://sempremilan.com/milan-lewandowski-option-stance-barcelona-future)
+- **Serie A giants open talks with agent for Barcelona forward**: [Link](https://www.football-espana.net/2025/09/30/serie-a-giants-open-talks-with-agent-for-barcelona-forward)
+
+
+### match barca (N/A, Wed, 1 Oct 2025 12:20:00 -0700)
+
+- **Polseres Blaugranes to support Xana Foundation at Champions League game with PSG**: [Link](https://www.fcbarcelona.com/en/club/news/4373695/polseres-blaugranes-to-support-xana-foundation-at-champions-league-game-with-psg)
+- **The dedication to Xana that leaves Luis Enrique speechless**: [Link](https://xcatalunya.cat/en/people/xanas-dedication-leaves-luis-enrique-speechless)
+- **Barcelona to auction their PSG match-worn shirts for Xana Foundation helping seriously ill children**: [Link](https://tribuna.com/en/blogs/barcelona-to-auction-their-psg-matchworn-shirts-for-xana-fou/)
+
+
 ### yalla kora (N/A, Wed, 1 Oct 2025 12:10:00 -0700)
 
 - **تحديث جديد فى أسعار فانتازى البريميرليج.. ماذا حدث لـ محمد صلاح؟**: [Link](https://www.youm7.com/story/2025/9/25/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AB-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%89-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D9%85%D8%A7%D8%B0%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%84%D9%80-%D9%85%D8%AD%D9%85%D8%AF/7133388)
