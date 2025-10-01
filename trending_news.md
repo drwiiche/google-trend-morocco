@@ -1,3 +1,10 @@
+### royal air maroc (N/A, Wed, 1 Oct 2025 04:20:00 -0700)
+
+- **Le Maroc élu à Montréal au Conseil de l’Organisation de l’aviation civile internationale**: [Link](https://h24info.ma/maroc/maroc-montreal-laviation-civile-internationale/)
+- **M. Kayouh participe à Montréal à une réunion de la Commission africaine de l’aviation civile**: [Link](https://www.mapexpress.ma/actualite/activite-gouvernementale/m-kayouh-participe-montreal-reunion-commission-africaine-laviation-civile/)
+- **Maroc – Niger : Un nouveau souffle pour l’aviation civile africaine | L'observateur**: [Link](https://lobservateur.info/article/115823/afrique/maroc-niger-un-nouveau-souffle-pour-laviation-civile-africaine)
+
+
 ### hespress maroc (N/A, Wed, 1 Oct 2025 01:00:00 -0700)
 
 - **Le sport marocain séduit le Brésil et dope le tourisme**: [Link](https://fr.hespress.com/443222-la-sportivite-marocaine-seduit-le-bresil-et-dope-le-tourisme.html)
