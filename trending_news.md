@@ -1,3 +1,17 @@
+### دورتموند ضد أتلتيك بيلباو (N/A, Wed, 1 Oct 2025 12:50:00 -0700)
+
+- **دوري الأبطال: كوفاتش يؤكد أن غياب وليامس "قد يساعدنا" ويرحب بعودة غيراسي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20250930-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%83%D9%88%D9%81%D8%A7%D8%AA%D8%B4-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%86-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%88%D9%84%D9%8A%D8%A7%D9%85%D8%B3-%D9%82%D8%AF-%D9%8A%D8%B3%D8%A7%D8%B9%D8%AF%D9%86%D8%A7-%D9%88%D9%8A%D8%B1%D8%AD%D8%A8-%D8%A8%D8%B9%D9%88%D8%AF%D8%A9-%D8%BA%D9%8A%D8%B1%D8%A7%D8%B3%D9%8A)
+- **القنوات الناقلة لمباراة بوروسيا دورتموند ضد أتليتيك بيلباو في دوري أبطال أوروبا مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/913993469593101-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **مدرب دورتموند يؤكد جاهزية جيراسي لمواجهة بلباو ويكشف نصائحه لأديمي**: [Link](https://gate.ahram.org.eg/News/5295805.aspx)
+
+
+### paris (N/A, Wed, 1 Oct 2025 12:40:00 -0700)
+
+- **A la fashion week de Paris, des expérimentations à foison**: [Link](https://www.lemonde.fr/m-styles/article/2025/10/01/a-la-fashion-week-de-paris-des-experimentations-a-foison_6643845_4497319.html)
+- **Défilé - Balmain - Prêt à porter Printemps-Eté 2026**: [Link](https://madame.lefigaro.fr/defiles/balmain/printemps-ete-2026/pret-a-porter/defile-balmain-pret-a-porter-printemps-ete-2026-20250910)
+- **1 minute de mode by Loïc Prigent à la tv**: [Link](https://www.linternaute.com/television/magazine-1-minute-de-mode-by-loic-prigent-p6842850/)
+
+
 ### dortmund (N/A, Wed, 1 Oct 2025 12:40:00 -0700)
 
 - **BVB vs. Athletic Bilbao heute im Champions League Gratis-Livestream schauen**: [Link](https://cybernews.com/de/online-schauen/dortmund-bilbao-kostenlos-schauen-champions-league-01-10-2025/)
