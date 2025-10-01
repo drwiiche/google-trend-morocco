@@ -1,3 +1,10 @@
+### luis enrique (N/A, Wed, 1 Oct 2025 14:20:00 -0700)
+
+- **Batalla generacional de joyas en el Barcelona-PSG por la plaga de lesiones**: [Link](https://www.rtve.es/deportes/20251001/barcelona-psg-champions-lesionados-nuevas-joyas-equipos-generacion-2008/16748563.shtml)
+- **En directo, El Bar: ‘Súper’ Lamine Yamal y el Barça esperan al PSG**: [Link](https://as.com/futbol/videos/en-directo-el-bar-super-lamine-yamal-y-el-barca-esperan-al-psg-v/)
+- **Los niños de Luis Enrique asaltan Montjuic**: [Link](https://www.marca.com/futbol/champions-league/2025/10/01/ninos-luis-enrique-asaltan-montjuic.html)
+
+
 ### champions league (N/A, Wed, 1 Oct 2025 14:00:00 -0700)
 
 - **Champions League: Man City draw despite Haaland double, Arsenal beat Olympiacos**: [Link](https://www.bbc.co.uk/sport/football/live/cq65pr6vn2zt?page=4)
