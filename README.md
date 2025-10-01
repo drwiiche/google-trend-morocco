@@ -1,3 +1,10 @@
+### كووورة (N/A, Wed, 1 Oct 2025 13:50:00 -0700)
+
+- **"فيفا" ردًا على ترامب: كرة القدم أكبر من قادة العالم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D9%81%D8%A7-%D8%B1%D8%AF%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%94%D9%83%D8%A8%D8%B1-%D9%85%D9%86-%D9%82%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/blt6df02e745e187ace)
+- **نائب رئيس "فيفا": نقل مباريات من مدن مونديال 2026 ليس من اختصاص ترمب**: [Link](https://www.aleqt.com/2025/10/01/article_2767349.html)
+- **ترامب يقول إنه سيفكر في نقل مباريات بكأس العالم**: [Link](https://www.reuters.com/ar/entertainment/HXMV7MPIYBIWJIJ5PGLVMNLRH4-2025-09-26/)
+
+
 ### luis enrique (N/A, Wed, 1 Oct 2025 14:20:00 -0700)
 
 - **Batalla generacional de joyas en el Barcelona-PSG por la plaga de lesiones**: [Link](https://www.rtve.es/deportes/20251001/barcelona-psg-champions-lesionados-nuevas-joyas-equipos-generacion-2008/16748563.shtml)
