@@ -1,3 +1,17 @@
+### barcelona vs psg (N/A, Wed, 1 Oct 2025 09:30:00 -0700)
+
+- **Plaga en el PSG ante el Barça**: [Link](https://as.com/futbol/champions/plaga-en-el-psg-ante-el-barca-n/)
+- **Vitinha, principal foco de atención en el último test del PSG**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20250930/1002542241/vitinha-principal-foco-atencion-ultimo-test-psg.html)
+- **Análisis del rival del FC Barcelona: el vigente campeón**: [Link](https://onefootball.com/pt-br/noticias/analisis-del-rival-del-fc-barcelona-el-vigente-campeon-41744047)
+
+
+### shutdown usa (N/A, Wed, 1 Oct 2025 03:50:00 -0700)
+
+- **White House to agencies: Prepare mass firing plans for a potential shutdown**: [Link](https://www.politico.com/news/2025/09/24/white-house-firings-shutdown-00579909)
+- **Live updates: Thousands of federal workers face unpaid leave as US government shutdown hits key services**: [Link](https://www.bbc.com/news/live/clylje0rmp2t)
+- **Government shuts down after Trump and Congress fail to reach deal**: [Link](https://edition.cnn.com/politics/live-news/government-shutdown-us-congress-10-01-25)
+
+
 ### fc barcelona vs psg timeline (N/A, Wed, 1 Oct 2025 09:10:00 -0700)
 
 - **Laporta talks Flick, Lamine, Luis Enrique, Figo, Champions League ahead of Barcelona vs PSG**: [Link](https://barcauniversal.com/laporta-talks-flick-lamine-luis-enrique-figo-champions-league-ahead-of-barcelona-vs-psg/)
