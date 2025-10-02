@@ -1,3 +1,10 @@
+### philippines (N/A, Thu, 2 Oct 2025 06:10:00 -0700)
+
+- **In the Philippines, Search Teams Look for Survivors of Deadly Earthquake**: [Link](https://www.nytimes.com/2025/10/01/world/asia/philippines-earthquake-cebu.html)
+- **'It was love' - Philippine family mourns daughter who died saving kin in quake**: [Link](https://www.yahoo.com/news/articles/love-philippine-family-mourns-daughter-124927466.html)
+- **Philippines ends quake rescue efforts, priority now on helping the 20,000 displaced**: [Link](https://www.reuters.com/business/environment/death-toll-philippine-quake-rises-72-2025-10-02/)
+
+
 ### akhannouch (N/A, Thu, 2 Oct 2025 06:40:00 -0700)
 
 - **Deux assaillants morts à Leqliaa après une attaque contre la Gendarmerie Royale**: [Link](https://medias24.com/2025/10/02/deux-assaillants-morts-a-leqliaa-apres-une-attaque-contre-la-gendarmerie-royale/)
