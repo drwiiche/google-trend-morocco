@@ -1,3 +1,17 @@
+### manifestation casablanca (N/A, Thu, 2 Oct 2025 08:40:00 -0700)
+
+- **Le mouvement GenZ212 appelle à de nouvelles manifestations ce jeudi 2 octobre**: [Link](https://medias24.com/2025/10/02/le-mouvement-genz212-appelle-a-de-nouvelles-manifestations-ce-jeudi-2-octobre/)
+- **GenZ212 maintient ses sit-in malgré une annonce initiale de suspension**: [Link](https://mobile.telquel.ma/2025/10/02/genz212-maintient-ses-sit-in-malgre-une-annonce-initiale-de-suspension_1953665)
+- **Attaque contre la Gendarmerie de Leqliaa: le bilan monte à trois morts**: [Link](https://fr.le360.ma/societe/attaque-contre-la-gendarmerie-de-leqliaa-le-bilan-monte-a-trois-morts_VUJTO7QW7RDLPKHGTXQYVH6RS4/)
+
+
+### casablanca (N/A, Thu, 2 Oct 2025 08:40:00 -0700)
+
+- **Onomo lance sa marque de boutique-hôtels au Maroc avec l’ouverture du Square à Casablanca**: [Link](https://ledesk.ma/2025/10/01/onomo-lance-sa-marque-de-boutique-hotels-au-maroc-avec-louverture-du-square-a-casablanca/)
+- **L'hôtel Le Square by Onomo Collection : un nouveau bijou Art déco au cœur de Casablanca**: [Link](https://lematin.ma/economie/lhotel-le-square-by-onomo-collection-nouveau-joyau-art-deco-de-casablanca/305153)
+- **L’art de voyager sans quitter la ville**: [Link](https://www.plurielle.ma/style-de-vie/adresses/lart-de-voyager-sans-quitter-la-ville/)
+
+
 ### الزوراء ضد النصر (N/A, Thu, 2 Oct 2025 08:20:00 -0700)
 
 - **الخيبري يسجل بعد عامين.. وفيليكس يفتتح سجله الآسيوي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AE%D9%8A%D8%A8%D8%B1%D9%8A-%D9%8A%D8%B3%D8%AC%D9%84-%D8%A8%D8%B9%D8%AF-%D8%B9%D8%A7%D9%85%D9%8A%D9%86--%D9%88%D9%81%D9%8A%D9%84%D9%8A%D9%83%D8%B3-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%B3%D8%AC%D9%84%D9%87-%D8%A7%D9%84%D8%A7%D9%93%D8%B3%D9%8A%D9%88%D9%8A/blt9b8fcf624f99be39)
