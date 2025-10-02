@@ -1,3 +1,24 @@
+### aziz akhannouch (N/A, Thu, 2 Oct 2025 14:30:00 -0700)
+
+- **Il y a cinq ans déjà, les revendications de la GenZ restées lettre morte**: [Link](https://medias24.com/2025/10/02/il-y-a-5-ans-deja-les-revendications-de-la-genz-restees-lettre-morte/)
+- **Tourisme : l’image du Maroc ébranlée par les scènes de violences ?**: [Link](https://mobile.telquel.ma/2025/10/02/tourisme-limage-du-maroc-ebranlee-par-les-scenes-de-violences_1953572)
+- **Manifestations de la GenZ212 : Le CNDH réagit**: [Link](https://www.leconomiste.com/flash-infos/manifestations-de-la-genz212-le-cndh-reagit/)
+
+
+### gessime yassine (N/A, Thu, 2 Oct 2025 13:20:00 -0700)
+
+- **Coupe du Monde masculine U20 de la FIFA Chili 2025: Les Lionceaux de l’Atlas en huitièmes de finales**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%AB/)
+- **Maroc-Brésil : à quelle heure, sur quelles chaînes ? (Coupe du monde U20)**: [Link](https://medias24.com/2025/10/01/maroc-bresil-a-quelle-heure-sur-quelles-chaines-coupe-du-monde-u20/)
+- **Mondial U20 : le Maroc domine le Brésil et valide son billet pour les huitièmes de finale**: [Link](https://ledesk.ma/2025/10/02/mondial-u20-le-maroc-domine-le-bresil-et-valide-son-billet-pour-les-huitiemes-de-finale/)
+
+
+### gouvernement lecornu (N/A, Thu, 2 Oct 2025 13:20:00 -0700)
+
+- **Je connais la liste des ministres du gouvernement Lecornu…**: [Link](https://www.liberation.fr/politique/je-connais-la-liste-des-ministres-du-gouvernement-lecornu-20251001_KVRT66Q6UBDBBBSAZFMKJDUDYQ/)
+- **Taxe Zucman, retraites, AME : les réponses de Sébastien Lecornu**: [Link](https://www.leparisien.fr/politique/taxe-zucman-retraites-ame-les-reponses-de-sebastien-lecornu-26-09-2025-UPNOOV76FJFTPGQLV7V6R7M2FQ.php)
+- **Sébastien Lecornu étudie des mesures balayées par la gauche pour le budget ; LR accentue la pression**: [Link](https://www.lemonde.fr/politique/article/2025/10/02/budget-2026-sebastien-lecornu-etudie-des-baisses-de-prelevements-pour-les-salaries_6644090_823448.html)
+
+
 ### meteo ouragan humberto (N/A, Thu, 2 Oct 2025 14:00:00 -0700)
 
 - **Temps perturbé en fin de semaine**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/temps-perturbe-en-fin-de-semaine)
