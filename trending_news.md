@@ -1,3 +1,10 @@
+### meteo ouragan humberto (N/A, Thu, 2 Oct 2025 14:00:00 -0700)
+
+- **Temps perturbé en fin de semaine**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/temps-perturbe-en-fin-de-semaine)
+- **Ex-ouragan Humberto : une tempête attendue sur les Îles Britanniques vendredi**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-09-29/ex-ouragan-humberto-une-tempete-attendue-sur-les-iles-britanniques-vendredi-81778)
+- **Météo : demain, vendredi 3 octobre, un changement radical de temps est attendu en France. Que va-t-il se passer ?**: [Link](https://www.tameteo.com/actualites/previsions/meteo-demain-vendredi-3-octobre-un-changement-radical-de-temps-est-attendu-en-france-que-va-t-il-se-passer.html)
+
+
 ### nottm forest – midtjylland (N/A, Thu, 2 Oct 2025 12:40:00 -0700)
 
 - **Europa and Conference League: Palace win before Nott'm Forest and Aston Villa play**: [Link](https://www.bbc.com/sport/football/live/c39rpd9gr2kt)
