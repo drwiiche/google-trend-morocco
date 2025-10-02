@@ -1,3 +1,24 @@
+### fenerbahçe – nice (N/A, Thu, 2 Oct 2025 09:20:00 -0700)
+
+- **Avrupa Ligi: Fenerbahçe, Nice karşısında zafer peşinde**: [Link](https://haberkibris.com/avrupa-ligi-fenerbahce-nice-karsisinda-zafer-pesinde-1140-2025-10-02.html)
+- **Fenerbahçe, Kritik Maç İçin Sahada! Nesine.com’da Canlı İdda Heyecanı**: [Link](https://gundemsivas.com/fenerbahce-kritik-mac-icin-sahada-nesine-comda-canli-idda-heyecani/)
+- **Domenico Tedesco: "Bir şeyler başarabileceğimizi hissediyorum"**: [Link](https://beinsports.com.tr/haber/domenico-tedesco-bir-seyler-basarabilecegimizi-hissediyorum)
+
+
+### roma – lille (N/A, Thu, 2 Oct 2025 09:10:00 -0700)
+
+- **Giroud believes he was at his ‘best’ in Italy: “At Milan, many tell me they miss me”**: [Link](https://sempremilan.com/giroud-best-italy-milan-miss-me)
+- **Europa League: Roma vs. Lille – probable line-ups and where to watch on TV**: [Link](https://football-italia.net/roma-v-lille-probable-line-ups-watch-on-tv/)
+- **Gasperini confirms Pellegrini in starting XI vs Lille**: [Link](https://sports.yahoo.com/article/gasperini-confirms-pellegrini-starting-xi-120800849.html)
+
+
+### europa league (N/A, Thu, 2 Oct 2025 09:10:00 -0700)
+
+- **Time and place to ‘make an impact’ on Europa League**: [Link](https://www.celticquicknews.co.uk/time-and-place-to-make-an-impact-on-europa-league/)
+- **There’s nothing quite like Paradise – Kasper Schmeichel**: [Link](https://thecelticstar.com/theres-nothing-quite-like-paradise-kasper-schmeichel/)
+- **Celtic 2-1 Sporting Braga – Our first game against Braga at Paradise**: [Link](https://onefootball.com/en/news/celtic-2-1-sporting-braga-our-first-game-against-braga-at-paradise-41750261)
+
+
 ### manifestation casablanca (N/A, Thu, 2 Oct 2025 08:40:00 -0700)
 
 - **Le mouvement GenZ212 appelle à de nouvelles manifestations ce jeudi 2 octobre**: [Link](https://medias24.com/2025/10/02/le-mouvement-genz212-appelle-a-de-nouvelles-manifestations-ce-jeudi-2-octobre/)
