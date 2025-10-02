@@ -1,3 +1,17 @@
+### maroc foot (N/A, Wed, 1 Oct 2025 17:50:00 -0700)
+
+- **Maroc : des manifestations autorisées pour la première fois dans plusieurs villes, certaines émaillées de violences**: [Link](https://www.lemonde.fr/afrique/article/2025/10/02/maroc-manifestations-autorisees-pour-la-premiere-fois-dans-plusieurs-villes-certaines-emaillees-de-violences_6644001_3212.html)
+- **GenZ212 : l’Intérieur dresse un bilan des violences du 30 septembre**: [Link](https://mobile.telquel.ma/instant-t/2025/10/01/genz212-linterieur-dresse-un-bilan-des-violences-du-30-septembre_1953463/)
+- **🔴🎥 EN DIRECT. Manifestations du 1er octobre 2025 à Sidi Bernoussi (Casablanca)**: [Link](https://medias24.com/2025/10/01/%F0%9F%94%B4%F0%9F%8E%A5en-direct-manifestations-du-1er-octobre-2025-a-sidi-bernoussi-casablanca/)
+
+
+### u20 (N/A, Wed, 1 Oct 2025 14:40:00 -0700)
+
+- **Morocco end 20-year wait with famous win over Spain at U-20 World Cup**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/morocco-end-20-year-wait-with-famous-win-over-spain-at-u-20-world-cup/)
+- **Morocco Beat Brazil to Reach U20 World Cup Knockout tage**: [Link](https://www.moroccoworldnews.com/2025/10/261277/morocco-beat-brazil-to-reach-u20-world-cup-knockout-tage/)
+- **Moroccan U20 team calls Ilyass Mahssoub for World Cup in Santiago**: [Link](https://en.yabiladi.com/articles/details/177459/moroccan-team-calls-ilyass-mahssoub.html)
+
+
 ### radio mars (N/A, Wed, 1 Oct 2025 17:30:00 -0700)
 
 - **أسعار تذاكر لقاء المغرب والبحرين**: [Link](https://www.hespress.com/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-1631055.html)
