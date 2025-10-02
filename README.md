@@ -1,3 +1,10 @@
+### elon musk (N/A, Thu, 2 Oct 2025 04:20:00 -0700)
+
+- **Elon Musk Just Became The First Person Ever Worth $500 Billion**: [Link](https://www.forbes.com/sites/mattdurot/2025/10/01/elon-musk-just-became-the-first-person-ever-worth-500-billion/)
+- **Musk becomes first person ever to see wealth top $500bn**: [Link](https://www.bbc.com/news/articles/c89d3547npjo)
+- **TSLA News Today: Elon Musk’s Wealth Soars on New Tesla Market Wins**: [Link](https://meyka.com/blog/tsla-news-today-elon-musks-wealth-soars-on-new-tesla-market-wins-0210/)
+
+
 ### ibiza (N/A, Thu, 2 Oct 2025 03:00:00 -0700)
 
 - **Hippy House cierra el verano con una fiesta electrónica en Ibiza**: [Link](https://www.diariodeibiza.es/ibiza/2025/10/02/hippy-house-cierra-verano-fiesta-122191204.html)
