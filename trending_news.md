@@ -1,3 +1,10 @@
+### medias24 (N/A, Thu, 2 Oct 2025 10:10:00 -0700)
+
+- **Psychose inexpliquée à Casablanca, les autorités n'ont donné aucune instruction de fermeture ni d'évacuation**: [Link](https://medias24.com/2025/10/02/psychose-inexpliquee-a-casablanca-les-autorites-nont-donne-aucune-instruction-de-fermeture-ni-devacuation/)
+- **Fake news: la Wilaya de Casablanca dément toute fermeture de commerces ou évacuation des lieux de travail**: [Link](https://fr.le360.ma/societe/fake-news-la-wilaya-de-casablanca-dement-toute-fermeture-de-commerces-ou-evacuation-des-lieux-de_M7J4MFFTUFGZDBGSHXKO7EGTRY/)
+- **Casablanca : les entreprises évacuent leurs bureaux en prévision des manifestions**: [Link](https://www.lopinion.ma/Casablanca-les-entreprises-evacuent-leurs-bureaux-en-prevision-des-manifestions_a72424.html)
+
+
 ### 2m (N/A, Thu, 2 Oct 2025 12:10:00 -0700)
 
 - **AI uses medical records to accurately predict onset of disease 20 years into the future**: [Link](https://www.nature.com/articles/d41586-025-02971-3)
