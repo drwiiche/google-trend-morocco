@@ -1,3 +1,10 @@
+### nottm forest – midtjylland (N/A, Thu, 2 Oct 2025 12:40:00 -0700)
+
+- **Europa and Conference League: Palace win before Nott'm Forest and Aston Villa play**: [Link](https://www.bbc.com/sport/football/live/c39rpd9gr2kt)
+- **Tell us your plans for European football's return**: [Link](https://www.msn.com/en-us/sports/soccer/tell-us-your-plans-for-european-football-s-return/ar-AA1NIuxL)
+- **Matchday Guide | Forest v FC Midtjylland**: [Link](https://www.nottinghamforest.co.uk/news/2025/october/02/matchday-guide---forest-v-fc-midtjylland/)
+
+
 ### medias24 (N/A, Thu, 2 Oct 2025 10:10:00 -0700)
 
 - **Psychose inexpliquée à Casablanca, les autorités n'ont donné aucune instruction de fermeture ni d'évacuation**: [Link](https://medias24.com/2025/10/02/psychose-inexpliquee-a-casablanca-les-autorites-nont-donne-aucune-instruction-de-fermeture-ni-devacuation/)
