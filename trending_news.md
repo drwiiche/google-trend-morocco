@@ -1,3 +1,10 @@
+### لودوجوريتس ضد ريال بتيس (N/A, Thu, 2 Oct 2025 09:50:00 -0700)
+
+- **الدوري الأوروبي.. التشكيل الأساسي لفريق ريال بيتيس أمام لودوجوريتس**: [Link](https://www.albawabhnews.com/5272209)
+- **"Ludogorets vs Real Betis".. موعد مباراة لودوجوريتس ضد ريال بيتيس في الدوري الأوروبي والقنوات الناقلة لها**: [Link](https://zahraa.mr/5917911/ludogorets-vs-real-betis-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%88%D8%AF%D9%88%D8%AC%D9%88%D8%B1%D9%8A%D8%AA%D8%B3-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8/)
+- **الموعد والقنوات الناقلة لمباراة لودوجوريتس و ريال بيتيس برسم الدوري الأوروبي**: [Link](https://alamriyadi.com/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%88%D8%AF%D9%88-4/)
+
+
 ### fenerbahçe – nice (N/A, Thu, 2 Oct 2025 09:20:00 -0700)
 
 - **Avrupa Ligi: Fenerbahçe, Nice karşısında zafer peşinde**: [Link](https://haberkibris.com/avrupa-ligi-fenerbahce-nice-karsisinda-zafer-pesinde-1140-2025-10-02.html)
