@@ -1,3 +1,10 @@
+### plus belle la vie encore plus belle (N/A, Thu, 2 Oct 2025 16:30:00 -0700)
+
+- **Plus belle la vie, encore plus belle (TF1) : spoiler, résumé... ce qui vous attend dans l'épisode du 3 octobre 2025**: [Link](https://www.ohmymag.com/news/series/plus-belle-la-vie-encore-plus-belle-tf1-spoiler-resume-ce-qui-vous-attend-dans-l-episode-du-3-octobre-2025_art172884.html)
+- **Plus belle la vie : "Elle a l’air terrorisée"... Les Kepler reçoivent des nouvelles inquiétantes d'Ophélie**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000167775.html)
+- **Plus belle la vie en avance : Les ravisseurs ordonnent l'exécution d'Apolline, Thomas demande pardon à Baptiste… Le résumé de l’épisode 434 du vendredi 3 octobre 2025**: [Link](https://www.programme-tv.net/news/series-tv/388762-plus-belle-la-vie-en-avance-les-ravisseurs-ordonnent-l-execution-d-apolline-thomas-demande-pardon-a-baptiste-le-resume-de-lepisode-434-du-vendredi-3-octobre-2025/)
+
+
 ### aziz akhannouch (N/A, Thu, 2 Oct 2025 14:30:00 -0700)
 
 - **Il y a cinq ans déjà, les revendications de la GenZ restées lettre morte**: [Link](https://medias24.com/2025/10/02/il-y-a-5-ans-deja-les-revendications-de-la-genz-restees-lettre-morte/)
