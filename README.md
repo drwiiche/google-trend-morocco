@@ -1,3 +1,15 @@
+### manifestation maroc (N/A, Wed, 1 Oct 2025 23:30:00 -0700)
+
+- **🔴🎥 EN DIRECT. Manifestations du 1er octobre 2025 à Sidi Bernoussi (Casablanca)**: [Link](https://medias24.com/2025/10/01/%F0%9F%94%B4%F0%9F%8E%A5en-direct-manifestations-du-1er-octobre-2025-a-sidi-bernoussi-casablanca/)
+- **GenZ212 : l’Intérieur dresse un bilan des violences du 30 septembre**: [Link](https://mobile.telquel.ma/instant-t/2025/10/01/genz212-linterieur-dresse-un-bilan-des-violences-du-30-septembre_1953463/)
+- **Violences du 1er octobre: deux morts lors d’un assaut avorté contre la gendarmerie de Leqliaa**: [Link](https://fr.le360.ma/societe/violences-du-1er-octobre-deux-morts-lors-dun-assaut-avorte-contre-la-gendarmerie-de-lqliaaa_523ESSBMB5ACTFRRRG2FGX2VD4/)
+
+
+### kech24 (N/A, Wed, 1 Oct 2025 23:10:00 -0700)
+
+
+
+
 ### akhbarona (N/A, Wed, 1 Oct 2025 22:50:00 -0700)
 
 - **كأس العالم تحت 20 سنة/ المنتخب المغربي يتصدر المجموعة بعد تعادل البرازيل والمكسيك (2-2)**: [Link](https://onefootball.com/en/news/20-2-2-41733722)
