@@ -1,3 +1,20 @@
+### akhbarona (N/A, Wed, 1 Oct 2025 22:50:00 -0700)
+
+- **كأس العالم تحت 20 سنة/ المنتخب المغربي يتصدر المجموعة بعد تعادل البرازيل والمكسيك (2-2)**: [Link](https://onefootball.com/en/news/20-2-2-41733722)
+
+
+### agadir24 (N/A, Wed, 1 Oct 2025 22:50:00 -0700)
+
+
+
+
+### actualités (N/A, Wed, 1 Oct 2025 22:50:00 -0700)
+
+- **Maroc: deux personnes tuées lors des manifestations qui émaillent le pays**: [Link](https://www.bfmtv.com/international/afrique/maroc/video-maroc-deux-personnes-tuees-lors-des-manifestations-qui-emaillent-le-pays_VN-202510020115.html)
+- **Violences au Maroc : deux morts dans une tentative de «prise d'assaut» d'un poste de gendarmerie**: [Link](https://www.cnews.fr/monde/2025-10-02/violences-au-maroc-deux-morts-dans-une-tentative-de-prise-dassaut-dun-poste-de)
+- **GenZ212 : l’Intérieur dresse un bilan des violences du 30 septembre**: [Link](https://mobile.telquel.ma/instant-t/2025/10/01/genz212-linterieur-dresse-un-bilan-des-violences-du-30-septembre_1953463/)
+
+
 ### اليوم 24 (N/A, Wed, 1 Oct 2025 22:40:00 -0700)
 
 - **مظاهرات المغرب: لماذا الآن؟ وهل تطيح بحكومة عزيز أخنوش؟**: [Link](https://www.bbc.com/arabic/articles/cgq4plv8z9go)
