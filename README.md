@@ -1,3 +1,17 @@
+### 2m (N/A, Thu, 2 Oct 2025 12:10:00 -0700)
+
+- **AI uses medical records to accurately predict onset of disease 20 years into the future**: [Link](https://www.nature.com/articles/d41586-025-02971-3)
+- **An AI tool is trying to predict your risk of getting many diseases years in advance – here’s how it works**: [Link](https://theconversation.com/an-ai-tool-is-trying-to-predict-your-risk-of-getting-many-diseases-years-in-advance-heres-how-it-works-265909)
+- **Large language models forecast patient health trajectories enabling digital twins**: [Link](https://www.healthleadersmedia.com/technology/large-language-models-forecast-patient-health-trajectories-enabling-digital-twins)
+
+
+### وفاة الحسن الثاني (N/A, Thu, 2 Oct 2025 11:00:00 -0700)
+
+- **الملك محمد السادس يترأس حفلاً دينياً في الذكرى الـ27 لوفاة الحسن الثاني**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%AA%D8%B1%D8%A3%D8%B3-%D8%AD%D9%81%D9%84%D8%A7%D9%8B-%D8%AF%D9%8A%D9%86%D9%8A%D8%A7%D9%8B-%D9%81-1633924.html)
+- **شخصيات سياسية وعسكرية تترحم على روح الملك الراحل الحسن الثاني**: [Link](https://rue20.com/941693.html)
+- **في الذكرى 27 لوفاة الحسن الثاني.. المغرب يستحضر حكمة ملك قاد الأمة نحو العصرنة والسيادة**: [Link](https://al3omk.com/1104698.html)
+
+
 ### lyon – rb salzburg (N/A, Thu, 2 Oct 2025 12:00:00 -0700)
 
 - **Olympique Lyon vs. FC Salzburg on free TV and stream**: [Link](https://sports.yahoo.com/article/olympique-lyon-vs-fc-salzburg-095500407.html)
