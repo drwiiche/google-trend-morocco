@@ -1,3 +1,17 @@
+### akhannouch (N/A, Thu, 2 Oct 2025 06:40:00 -0700)
+
+- **Deux assaillants morts à Leqliaa après une attaque contre la Gendarmerie Royale**: [Link](https://medias24.com/2025/10/02/deux-assaillants-morts-a-leqliaa-apres-une-attaque-contre-la-gendarmerie-royale/)
+- **GenZ212 : le PPS exprime sa solidarité avec les “revendications légitimes” des jeunes**: [Link](https://mobile.telquel.ma/instant-t/2025/10/02/genz212-le-pps-exprime-sa-solidarite-avec-les-revendications-legitimes-des-jeunes_1953583/)
+- **Manifestations violentes des jeunes : Poursuite de 193 suspects dans plusieurs villes (Ministère public)**: [Link](https://lematin.ma/nation/manifestations-violentes-des-jeunes-poursuite-de-193-suspects/305144)
+
+
+### dv lottery (N/A, Thu, 2 Oct 2025 05:40:00 -0700)
+
+- **2025 Green Card lottery results are out; here's how to check if you won | Hindustan Times**: [Link](https://www.hindustantimes.com/world-news/us-news/2025-green-card-lottery-results-are-out-heres-how-to-check-if-you-won-101759289378681.html)
+- **How do I know if I won the 2025 Visa Lottery? Steps to check your results and what to do next**: [Link](https://www.marca.com/en/lifestyle/us-news/personal-finance/2025/09/28/68d974a622601dbe128b459d.html)
+- **Last chance with the 2025 Visa Lottery: When is the deadline to check the results of the draw?**: [Link](https://www.marca.com/en/lifestyle/us-news/2025/09/28/68d8fd7322601d630f8b457d.html)
+
+
 ### elon musk (N/A, Thu, 2 Oct 2025 04:20:00 -0700)
 
 - **Elon Musk Just Became The First Person Ever Worth $500 Billion**: [Link](https://www.forbes.com/sites/mattdurot/2025/10/01/elon-musk-just-became-the-first-person-ever-worth-500-billion/)
