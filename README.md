@@ -1,3 +1,17 @@
+### celta vigo – paok (N/A, Thu, 2 Oct 2025 11:40:00 -0700)
+
+- **Celta Vigo vs PAOK: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/crl54z3890gt)
+- **Preview: Celta Vigo vs PAOK - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/celta-vigo/europa-league/preview/celta-vigo-vs-paok-prediction-team-news-lineups_582634.html)
+- **Celta Vigo vs PAOK tickets and seats at Balaídos in Vigo**: [Link](https://karlobag.eu/en/tickets/football/celta-vigo-vs-paok-tickets-buy-tickets-and-seats-for-the-uefa-europa-league-match-at-balaidos-in-vigo-q01dx)
+
+
+### roma (N/A, Thu, 2 Oct 2025 11:40:00 -0700)
+
+- **Roma in piazza per Gaza. Sabato il grande corteo, il maxi piano sicurezza sta per scattare**: [Link](https://www.romatoday.it/cronaca/sciopero-roma-4-ottobre-2025-notizie.html)
+- **4 OTTOBRE: A TUTTI I COMUNISTI E LE COMUNISTE!**: [Link](https://www.ilpartitocomunistaitaliano.it/2025/10/02/4-ottobre-a-tutti-i-comunisti-e-le-comuniste/)
+- **Roma blindata per la manifestazione di sabato per la Flotilla, 2mila agenti in campo**: [Link](https://www.radiocolonna.it/cronaca/roma-blindata-per-la-manifestazione-di-sabato-per-la-flotilla-2mila-agenti-in-campo/)
+
+
 ### covid frankenstein symptômes (N/A, Thu, 2 Oct 2025 10:50:00 -0700)
 
 - **Variant « Frankenstein » du Covid-19 : mais d’où vient ce surnom alarmiste ?**: [Link](https://www.leparisien.fr/societe/sante/variant-frankenstein-du-covid-19-mais-dou-vient-ce-surnom-alarmiste-29-09-2025-6LYZ7DIO3VB43FIT6CNX2YVT7I.php)
