@@ -1,3 +1,10 @@
+### bein sports (N/A, Wed, 1 Oct 2025 16:50:00 -0700)
+
+- **غلطة سراي يهزم ليفربول وفوز بايرن ومرسيليا وتشلسي وإنتر وأتلتيكو**: [Link](https://www.aljazeera.net/sport/2025/10/1/%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%81%D9%88%D8%B2-%D9%83%D8%A7%D8%B3%D8%AD)
+- **لا أحد يفتقد ساني.. إحباط مرير يغلف الأمسية التاريخية أمام ليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/niemand-vermisst-leroy-sane-bei-galatasaray-gibt-es-trotz-des-denkwuerdigen-sieges-gegen-liverpool-einen-enttaeuschten/blt4cb1ad725235cd9b)
+- **بلافتة تحمل عبارة "إذا لم تكن القدس حرة فالعالم أسير".. جماهير غلطة سراي تُجدد تضامنها مع فلسطين في مباراة ليفربول!**: [Link](https://m.elbotola.com/article/2025-09-30-20-11-590.html)
+
+
 ### maroc foot (N/A, Wed, 1 Oct 2025 17:50:00 -0700)
 
 - **Maroc : des manifestations autorisées pour la première fois dans plusieurs villes, certaines émaillées de violences**: [Link](https://www.lemonde.fr/afrique/article/2025/10/02/maroc-manifestations-autorisees-pour-la-premiere-fois-dans-plusieurs-villes-certaines-emaillees-de-violences_6644001_3212.html)
