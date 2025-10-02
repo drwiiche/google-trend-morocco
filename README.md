@@ -1,3 +1,17 @@
+### الزوراء ضد النصر (N/A, Thu, 2 Oct 2025 08:20:00 -0700)
+
+- **الخيبري يسجل بعد عامين.. وفيليكس يفتتح سجله الآسيوي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AE%D9%8A%D8%A8%D8%B1%D9%8A-%D9%8A%D8%B3%D8%AC%D9%84-%D8%A8%D8%B9%D8%AF-%D8%B9%D8%A7%D9%85%D9%8A%D9%86--%D9%88%D9%81%D9%8A%D9%84%D9%8A%D9%83%D8%B3-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%B3%D8%AC%D9%84%D9%87-%D8%A7%D9%84%D8%A7%D9%93%D8%B3%D9%8A%D9%88%D9%8A/blt9b8fcf624f99be39)
+- **موعد مباراة النصر ضد الزوراء بدوري أبطال آسيا 2 والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/10/1/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B2%D9%88%D8%B1%D8%A7%D8%A1)
+- **هكذا تفاعل رونالدو مع فوز النصر على الزوراء في العراق**: [Link](https://arabic.cnn.com/sport/article/2025/10/02/ronaldo-al-nasser-al-zawraa-match)
+
+
+### al-zawraa vs al-nassr (N/A, Thu, 2 Oct 2025 08:10:00 -0700)
+
+- **Why Has Cristiano Ronaldo Been Left Out of Al Nassr's Squad to Face Al Zawraa?**: [Link](https://www.si.com/onsi/soccer/real-madrid/legends/why-has-cristiano-ronaldo-been-left-out-of-al-nassr-s-squad-to-face-al-zawraa)
+- **Al-Nassr FC arrives in Baghdad for Al-Zawraa clash, coach explains Ronaldo’s absence**: [Link](https://www.iraqinews.com/iraq/al-nassr-al-zawraa-clash-ronaldo-absence/)
+- **Jorge Jesus explains Cristiano Ronaldo’s absence from Al Nassr squad for AFC Champions League 2 game**: [Link](https://worldsoccertalk.com/news/jorge-jesus-explains-cristiano-ronaldos-absence-from-al-nassr-squad-for-afc-champions-league-2-game/)
+
+
 ### philippines (N/A, Thu, 2 Oct 2025 06:10:00 -0700)
 
 - **In the Philippines, Search Teams Look for Survivors of Deadly Earthquake**: [Link](https://www.nytimes.com/2025/10/01/world/asia/philippines-earthquake-cebu.html)
