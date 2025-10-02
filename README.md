@@ -1,3 +1,24 @@
+### radio mars (N/A, Wed, 1 Oct 2025 17:30:00 -0700)
+
+- **أسعار تذاكر لقاء المغرب والبحرين**: [Link](https://www.hespress.com/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-1631055.html)
+- **البحرين تحضر لكأس العرب بمواجهة المغرب بلائحة بها 3 محترفين فقط : lematinsports**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA/%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D8%AA%D8%AD%D8%B6%D8%B1-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A8%D9%87%D8%A7-3-%D9%85%D8%AD%D8%AA%D8%B1%D9%81%D9%8A%D9%86-%D9%81%D9%82%D8%B7/9508)
+- **مباراة المغرب والبحرين.. بيع أزيد من 42 ألف تذكرة إلى غاية السادسة مساء**: [Link](https://lakome2.com/flash-infos/393524/)
+
+
+### world cup u20 (N/A, Wed, 1 Oct 2025 16:50:00 -0700)
+
+- **Spain vs. Mexico: How to Watch, Odds, 2025 FIFA U-20 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/spain-vs-mexico-how-watch-2025-fifa-u-20-world-cup-match)
+- **How to watch today's Spain U20 vs Mexico U20 World Cup U20 game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-spain-u20-vs-mexico-u20-world-cup-u20-game-live-stream-tv-channel-start-time/blt1bfcdaf4d3b5c1b3)
+- **Mexico's National Team Aims High: Gilberto Mora, the Gem Threatening Spain in the U-20 World Cup**: [Link](https://www.ultimominuto.news/en/news/Mexicos-National-Team-Aims-High-Gilberto-Mora-the-Gem-Threatening-Spain-in-the-U-20-World-Cup-20251001-0012.html)
+
+
+### morocco vs brazil (N/A, Wed, 1 Oct 2025 15:30:00 -0700)
+
+- **Morocco end 20-year wait with famous win over Spain at U-20 World Cup**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/morocco-end-20-year-wait-with-famous-win-over-spain-at-u-20-world-cup/)
+- **Morocco U20 vs Brazil U20: Match Preview & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/261212/morocco-u20-vs-brazil-u20-match-preview-score-prediction/)
+- **Moroccan U20 team calls Ilyass Mahssoub for World Cup in Santiago**: [Link](https://en.yabiladi.com/articles/details/177459/moroccan-team-calls-ilyass-mahssoub.html)
+
+
 ### snrt (N/A, Wed, 1 Oct 2025 16:40:00 -0700)
 
 - **مارسيل خليفة يهدي تكريم مهرجان وجدة السينمائي إلى غزة**: [Link](https://lakome2.com/art/393569/)
