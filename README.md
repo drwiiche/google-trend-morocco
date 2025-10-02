@@ -1,3 +1,17 @@
+### lyon – rb salzburg (N/A, Thu, 2 Oct 2025 12:00:00 -0700)
+
+- **Olympique Lyon vs. FC Salzburg on free TV and stream**: [Link](https://sports.yahoo.com/article/olympique-lyon-vs-fc-salzburg-095500407.html)
+- **Lyon-Salzburg, on which channel to see the match?**: [Link](https://frenchfootballweekly.com/2025/10/02/lyon-salzburg-on-which-channel-to-see-the-match/)
+- **Preview: Lyon vs Salzburg - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lyon/europa-league/preview/lyon-vs-salzburg-prediction-team-news-lineups_582595.html)
+
+
+### lille fc (N/A, Thu, 2 Oct 2025 11:40:00 -0700)
+
+- **Reason Kelechi Iheanacho Celtic goal was ruled out vs Braga**: [Link](https://www.thenational.scot/sport/25513815.reason-iheanacho-celtic-goal-ruled-vs-braga-revealed/)
+- **Palace double advantage; Lille lead Roma; VAR chalks off Celtic strike**: [Link](https://onefootball.com/en/news/palace-double-advantage-lille-lead-roma-var-chalks-off-celtic-strike-41750906)
+- **Palace make European bow; Lille lead Roma; Celtic go behind**: [Link](https://onefootball.com/it/notizie/palace-make-european-bow-lille-lead-roma-celtic-go-behind-41750906)
+
+
 ### celta vigo – paok (N/A, Thu, 2 Oct 2025 11:40:00 -0700)
 
 - **Celta Vigo vs PAOK: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/crl54z3890gt)
