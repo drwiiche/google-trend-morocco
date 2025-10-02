@@ -1,3 +1,8 @@
+### bourse de casablanca (N/A, Thu, 2 Oct 2025 02:00:00 -0700)
+
+
+
+
 ### هبة بريس (N/A, Wed, 1 Oct 2025 23:20:00 -0700)
 
 - **انتشار القوات العمومية في سلا**: [Link](https://www.hespress.com/%D8%A7%D9%86%D8%AA%D8%B4%D8%A7%D8%B1-%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D9%85%D9%88%D9%85%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B3%D9%84%D8%A7-1633505.html)
