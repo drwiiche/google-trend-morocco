@@ -1,3 +1,10 @@
+### hassan 2 (N/A, Thu, 2 Oct 2025 09:50:00 -0700)
+
+- **S.M. le Roi présidera jeudi une veillée religieuse à l’occasion du 27e anniversaire de la disparition de Feu S.M. le Roi Hassan II**: [Link](https://lematin.ma/activites-royales/sm-le-roi-presidera-jeudi-une-veillee-religieuse/305201)
+- **Le Roi préside une veillée religieuse à l’occasion du 27ème anniversaire de la disparition de feu le roi Hassan II**: [Link](https://fr.le360.ma/politique/le-roi-preside-une-veillee-religieuse-a-loccasion-du-27eme-anniversaire-de-la-disparition-de-feu-le_35CWRWVORRDSDOYOTFGKMHBGBU/)
+- **Anniversaire de la disparition de Hassan II : Mohammed VI préside une veillée religieuse ce jeudi**: [Link](https://ledesk.ma/encontinu/anniversaire-de-la-disparition-de-hassan-ii-mohammed-vi-preside-une-veillee-religieuse-ce-jeudi/)
+
+
 ### ذكرى وفاة الحسن الثاني (N/A, Thu, 2 Oct 2025 10:00:00 -0700)
 
 - **الملك يخلد ذكرى وفاة الحسن الثاني**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%AE%D9%84%D8%AF-%D8%B0%D9%83%D8%B1%D9%89-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%86-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-1633653.html)
