@@ -1,3 +1,10 @@
+### ici tout commence (N/A, Thu, 2 Oct 2025 00:00:00 -0700)
+
+- **Ici tout commence : ce qui vous attend dans l'épisode 1276 du jeudi 2 octobre 2025 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000166866.html)
+- **Ici tout commence : le résumé en avance du jeudi 2 octobre, Laetitia découvre le mensonge de Stanislas, Zoé se rapproche de Solal**: [Link](https://www.diverto.tv/actualites/series/ici-tout-commence-le-resume-en-avance-du-jeudi-2-octobre-laetitia-decouvre-le-mensonge-de-stanislas-zoe-se-rapproche-de-solal)
+- **Ici tout commence : L’incroyable mensonge d’Éléonore, Marc Leroy sur le point de découvrir la supercherie sur TF1 ? (spoiler)**: [Link](https://toutelatele.ouest-france.fr/ici-tout-commence-l-incroyable-mensonge-d-eleonore-marc-leroy-sur-le-point-de-decouvrir-la-supercherie-sur-tf1-spoiler-179794)
+
+
 ### هسبريس (N/A, Wed, 1 Oct 2025 22:40:00 -0700)
 
 
