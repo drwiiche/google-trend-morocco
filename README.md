@@ -1,3 +1,17 @@
+### covid frankenstein symptômes (N/A, Thu, 2 Oct 2025 10:50:00 -0700)
+
+- **Variant « Frankenstein » du Covid-19 : mais d’où vient ce surnom alarmiste ?**: [Link](https://www.leparisien.fr/societe/sante/variant-frankenstein-du-covid-19-mais-dou-vient-ce-surnom-alarmiste-29-09-2025-6LYZ7DIO3VB43FIT6CNX2YVT7I.php)
+- **"Il y a suffisamment d'éléments pour parler de 15e vague" : l'épidémie de Covid-19 fait son retour en France sous l'influence d'un nouveau variant**: [Link](https://www.franceinfo.fr/sante/maladie/coronavirus/il-y-a-suffisamment-d-elements-pour-parler-de-15e-vague-l-epidemie-de-covid-19-fait-son-retour-en-france-sous-l-influence-d-un-nouveau-variant_7527070.html)
+- **Variant "Frankenstein", cas en nette hausse… faut-il s’attendre à une forte épidémie de Covid-19 cet automne?**: [Link](https://www.bfmtv.com/sante/variant-frankenstein-cas-en-nette-hausse-faut-il-s-attendre-a-une-forte-epidemie-de-covid-19-cet-automne_AV-202510010040.html)
+
+
+### الحضارة المصرية (N/A, Thu, 2 Oct 2025 10:50:00 -0700)
+
+- **أقدم بكثير مما هو معروف.. محاضرة ستكشف مفاجأة بشأن حضارة مصر**: [Link](https://www.skynewsarabia.com/varieties/1824213-%D8%A7%D9%94%D9%82%D8%AF%D9%85-%D8%A8%D9%83%D8%AB%D9%8A%D8%B1-%D9%87%D9%88-%D9%85%D8%B9%D8%B1%D9%88%D9%81-%D9%85%D8%AD%D8%A7%D8%B6%D8%B1%D8%A9-%D8%B3%D8%AA%D9%83%D8%B4%D9%81-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%AD%D8%B6%D8%A7%D8%B1%D8%A9-%D9%85%D8%B5%D8%B1)
+- **خبير يشكك في تاريخ الحضارة الفرعونية ويقدم أدلة جديدة بالتكنولوجيا**: [Link](https://www.eremnews.com/entertainment/m27vagc)
+- **الدكتور طارق خليل فى محاضرة علمية بجامعة النيل 4 أكتوبر الحالى**: [Link](https://rosaelyoussef.com/1332952/%D8%A7%D9%84%D8%AF%D9%83%D8%AA%D9%88%D8%B1-%D8%B7%D8%A7%D8%B1%D9%82-%D8%AE%D9%84%D9%8A%D9%84-%D9%81%D9%89-%D9%85%D8%AD%D8%A7%D8%B6%D8%B1%D8%A9-%D8%B9%D9%84%D9%85%D9%8A%D8%A9-%D8%A8%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%86%D9%8A%D9%84-4-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D9%89)
+
+
 ### ludogorets vs real betis (N/A, Thu, 2 Oct 2025 10:40:00 -0700)
 
 - **Real Betis vs Ludogorets – Match Preview & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/261375/real-betis-vs-ludogorets-match-preview-score-prediction/)
