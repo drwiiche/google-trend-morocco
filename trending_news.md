@@ -1,3 +1,10 @@
+### ibiza (N/A, Thu, 2 Oct 2025 03:00:00 -0700)
+
+- **Hippy House cierra el verano con una fiesta electrónica en Ibiza**: [Link](https://www.diariodeibiza.es/ibiza/2025/10/02/hippy-house-cierra-verano-fiesta-122191204.html)
+- **One Last Summer Dance con Hippy House Ibiza**: [Link](https://welcometoibiza.com/agenda-ibiza/fiestas/one-last-summer-dance-con-hippy-house-ibiza/)
+- **La prestigiosa arquitecta Benedetta Tagliabue ofrece en Ibiza una conferencia sobre la arquitectura del cuidado**: [Link](https://www.noudiari.es/cultura-ibiza/la-prestigiosa-arquitecta-benedetta-tagliabue-ofrece-en-ibiza-una-conferencia-sobre-la-arquitectura-del-cuidado/)
+
+
 ### المنتخب المغربي (N/A, Wed, 1 Oct 2025 16:40:00 -0700)
 
 - **الركراكي يعلن قائمة المنتخب الوطني المغربي الخاصة بشهر أكتوبر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84-1633605.html)
