@@ -1,3 +1,17 @@
+### ludogorets vs real betis (N/A, Thu, 2 Oct 2025 10:40:00 -0700)
+
+- **Real Betis vs Ludogorets – Match Preview & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/261375/real-betis-vs-ludogorets-match-preview-score-prediction/)
+- **Organization and security measures before Ludogorets – Real Betis match**: [Link](https://www.ludogorets.com/en/news/?i=7185)
+- **Antony aim to pick up Fekir's baton as Betis visit Ludogorets**: [Link](https://www.besoccer.com/new/antony-aim-to-pick-up-fekir-s-baton-as-betis-visit-ludogorets-1375841)
+
+
+### ligue europa (N/A, Thu, 2 Oct 2025 10:40:00 -0700)
+
+- **AS Rome - Lille OSC en direct - Ligue Europa : Football Scores & Résultats - 02/10/2025**: [Link](https://www.eurosport.fr/football/ligue-europa/2025-2026/live-as-rome-lille-osc_mtc1601387/live-commentary.shtml)
+- **« Je suis attaché à ce qu’on se souvienne de moi » : Olivier Giroud (LOSC) touché par l’accueil de l’Italie**: [Link](https://lepetitlillois.com/2025/10/02/je-suis-attache-a-ce-quon-se-souvienne-de-moi-olivier-giroud-losc-touche-par-laccueil-de-litalie/)
+- **Une soirée de « Ligue des Champions » en Italie, Bruno Genesio se projette sur AS Rome – LOSC**: [Link](https://onefootball.com/fr/news/une-soiree-de-ligue-des-champions-en-italie-bruno-genesio-se-projette-sur-as-rome-losc-41747705)
+
+
 ### hassan 2 (N/A, Thu, 2 Oct 2025 09:50:00 -0700)
 
 - **S.M. le Roi présidera jeudi une veillée religieuse à l’occasion du 27e anniversaire de la disparition de Feu S.M. le Roi Hassan II**: [Link](https://lematin.ma/activites-royales/sm-le-roi-presidera-jeudi-une-veillee-religieuse/305201)
