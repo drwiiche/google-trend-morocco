@@ -1,3 +1,10 @@
+### feyenoord – aston villa (N/A, Thu, 2 Oct 2025 11:40:00 -0700)
+
+- **Europa and Conference League: LIVE: Reaction as Nottingham Forest lose but wins for Aston Villa and Crystal Palace**: [Link](https://www.bbc.com/sport/football/live/c39rpd9gr2kt)
+- **Emery: Captain fantastic McGinn leading by example**: [Link](https://www.beinsports.com/en-us/soccer/uefa-europa-league/articles/emery-captain-fantastic-mcginn-leading-by-example-2025-10-02)
+- **Analysis: Villa starting to shake off early-season struggles**: [Link](https://www.aol.com/articles/analysis-villa-starting-shake-off-213644604.html)
+
+
 ### هسبريس (N/A, Thu, 2 Oct 2025 23:00:00 -0700)
 
 
