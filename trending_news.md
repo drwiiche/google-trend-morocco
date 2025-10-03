@@ -1,3 +1,10 @@
+### cristiano ronaldo (N/A, Fri, 3 Oct 2025 01:10:00 -0700)
+
+- **Surprise Ratcliffe plan to resolve £85m blow could see**: [Link](https://www.sportsmole.co.uk/football/man-utd/news/surprise-ratcliffe-plan-to-resolve-gbp85m-blow-could-see-ronaldo-reunite-with-man-utd_582792.html)
+- **United reportedly exploring midseason friendlies to remedy loss of European football**: [Link](https://sports.yahoo.com/article/united-reportedly-exploring-midseason-friendlies-023933705.html)
+- **$140 million Saudi Pro League plan could shockingly hand Manchester United another Cristiano Ronaldo reunion**: [Link](https://worldsoccertalk.com/news/140-million-saudi-pro-league-plan-could-shockingly-hand-manchester-united-another-cristiano-ronaldo-reunion/)
+
+
 ### bâle – stuttgart (N/A, Thu, 2 Oct 2025 12:10:00 -0700)
 
 - **FC Bâle 2-0 VfB Stuttgart, Ligue Europa : résumé du match (02/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2025-2026/fc-bale-vfb-stuttgart-live/685660)
