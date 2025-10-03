@@ -1,3 +1,10 @@
+### bâle – stuttgart (N/A, Thu, 2 Oct 2025 12:10:00 -0700)
+
+- **FC Bâle 2-0 VfB Stuttgart, Ligue Europa : résumé du match (02/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2025-2026/fc-bale-vfb-stuttgart-live/685660)
+- **Des louanges pour Marwin Hitz**: [Link](https://www.rts.ch/sport/football/2025/article/marwin-hitz-heros-du-fc-bale-en-europa-league-contre-stuttgart-29016910.html)
+- **Avant Match: Le FC Bâle comme test!**: [Link](https://enfantsduservette.ch/2025/10/01/avant-match-le-fc-bale-comme-test/)
+
+
 ### feyenoord – aston villa (N/A, Thu, 2 Oct 2025 11:40:00 -0700)
 
 - **Europa and Conference League: LIVE: Reaction as Nottingham Forest lose but wins for Aston Villa and Crystal Palace**: [Link](https://www.bbc.com/sport/football/live/c39rpd9gr2kt)
