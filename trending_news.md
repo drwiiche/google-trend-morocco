@@ -1,3 +1,10 @@
+### alerte belgique (N/A, Fri, 3 Oct 2025 02:00:00 -0700)
+
+- **Plus de 2 millions de Belges ont reçu un message BE-Alert : voici pourquoi**: [Link](https://www.lesoir.be/702538/article/2025-10-02/plus-de-2-millions-de-belges-ont-recu-un-message-be-alert-voici-pourquoi)
+- **Vous allez recevoir un sms dans les prochaines minutes : il ne faut pas y répondre…**: [Link](https://www.sudinfo.be/id1047797/article/2025-10-02/vous-allez-recevoir-un-sms-dans-les-prochaines-minutes-il-ne-faut-pas-y-repondre)
+- **Verviers : une sirène mobile pour renforcer la sécurité**: [Link](https://www.vedia.be/info/verviers-une-sirene-mobile-pour-renforcer-la-securite/209337)
+
+
 ### cristiano ronaldo (N/A, Fri, 3 Oct 2025 01:10:00 -0700)
 
 - **Surprise Ratcliffe plan to resolve £85m blow could see**: [Link](https://www.sportsmole.co.uk/football/man-utd/news/surprise-ratcliffe-plan-to-resolve-gbp85m-blow-could-see-ronaldo-reunite-with-man-utd_582792.html)
