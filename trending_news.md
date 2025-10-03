@@ -1,3 +1,10 @@
+### توكل كرمان (N/A, Thu, 2 Oct 2025 15:40:00 -0700)
+
+- **بومة الشؤم.. المغاربة لا ينتظرون دروساً من توكل كرمان**: [Link](https://www.hespress.com/%D8%A8%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%B4%D8%A4%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%84%D8%A7-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1%D9%88%D9%86-%D8%AF%D8%B1%D9%88%D8%B3%D8%A7%D9%8B-1634077.html)
+- **توكل كرمان الحاصلة على نوبل للسلام تحرض على أعمال العنف بالمغرب**: [Link](https://rue20.com/941914.html)
+- **مغامرات توكل كرمان في شؤون المغرب**: [Link](https://www.middle-east-online.com/%D9%85%D8%BA%D8%A7%D9%85%D8%B1%D8%A7%D8%AA-%D8%AA%D9%88%D9%83%D9%84-%D9%83%D8%B1%D9%85%D8%A7%D9%86-%D9%81%D9%8A-%D8%B4%D8%A4%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+
+
 ### catherine graciet (N/A, Fri, 3 Oct 2025 06:30:00 -0700)
 
 - **Tentative de chantage du roi du Maroc : les deux journalistes français condamnés en appel à de la prison avec sursis**: [Link](https://www.lemonde.fr/afrique/article/2025/10/02/tentative-de-chantage-du-roi-du-maroc-les-deux-journalistes-francais-condamnes-en-appel-a-de-la-prison-avec-sursis_6644115_3212.html)
