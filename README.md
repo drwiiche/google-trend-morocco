@@ -1,3 +1,24 @@
+### osasuna – getafe (N/A, Fri, 3 Oct 2025 11:20:00 -0700)
+
+- **Osasuna - Getafe | Lisci y Bordalás le dan una vuelta: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2025/10/03/osasuna-getafe-lisci-bordalas-le-dan-vuelta-previa-analisis-pronostico-prediccion.html)
+- **El Sadar testará si Lisci sabe darle la vuelta al bache de juego y resultados de Osasuna**: [Link](https://www.naiz.eus/en/info/noticia/20251002/el-sadar-testara-si-lisci-sabe-darle-la-vuelta-al-bache-de-juego-y-resultados-de-osasuna)
+- **Osasuna vs. Getafe: Alineaciones, pronóstico y apuestas del partido de La Liga de España 2025**: [Link](https://www.sportingnews.com/es/futbol/news/osasuna-getafe-alineaciones-pronostico-la-liga-2025/dea78e1ac2fb8d5b90ea6ff7)
+
+
+### bournemouth – fulham (N/A, Fri, 3 Oct 2025 11:20:00 -0700)
+
+- **Threat of Fulham, the start to the season and Iraola's contract: Every word**: [Link](https://www.bournemouthecho.co.uk/sport/25512855.every-word-andoni-iraolas-pre-fulham-press-conference/)
+- **From the press box: Double blow as Silva confirms Tete and Muniz out**: [Link](https://www.fulhamish.co.uk/p/from-the-press-box-double-blow-as)
+- **STAR FOOTBALL PREVIEW Fri: Bournemouth v Fulham**: [Link](https://www.starsportsbet.co.uk/star-football-preview-fri-bournemouth-v-fulham/)
+
+
+### rca (N/A, Fri, 3 Oct 2025 11:10:00 -0700)
+
+- **Cel mai mare asigurător bulgar, care vindea cel mai ieftin RCA în România, interzis nelimitat…**: [Link](https://www.economica.net/cel-mai-mare-asigurator-bulgar-care-vindea-cel-mai-ieftin-rca-in-romania-interzis-definitiv-in-europa-ce-trebuie-sa-stie-cei-200-000-de-clienti-si-2000-de-pagubiti-din-romania_876610.html)
+- **Informații importante pentru asigurații DallBogg, compania căreia ASF i-a interzis să emită contracte noi. DOCUMENT**: [Link](https://alba24.ro/informatii-importante-pentru-asiguratii-dallbogg-compania-careia-asr-i-a-interzis-sa-emita-contracte-noi-document-1101298.html)
+- **Companie de asigurări din Bulgaria, interzisă în România**: [Link](https://www.veridica.ro/stiri/companie-de-asigurari-din-bulgaria-interzisa-in-romania)
+
+
 ### lalla meryem (N/A, Fri, 3 Oct 2025 10:20:00 -0700)
 
 - **Le Roi préside une veillée religieuse en commémoration du 27e anniversaire de la disparition de Feu Hassan II**: [Link](https://medias24.com/2025/10/02/le-roi-preside-une-veillee-religieuse-en-commemoration-du-27e-anniversaire-de-la-disparition-de-feu-hassan-ii/)
