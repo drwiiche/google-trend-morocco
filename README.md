@@ -1,3 +1,10 @@
+### خطبة الجمعة اليوم (N/A, Fri, 3 Oct 2025 05:30:00 -0700)
+
+- **بث مباشر.. شعائر صلاة الجمعة من مسجد السيد البدوي بالغربية**: [Link](https://darelhilal.com/News/3077745.aspx)
+- **وزارة الأوقاف : خطبة الجمعة في مساجد مصر اليوم : شَرَفُ الدِّفَاعِ عَنِ الأَوْطَانِ**: [Link](https://www.doaah.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%81%D9%8A-%D9%85%D8%B3%D8%A7%D8%AC%D8%AF-%D9%85%D8%B5-3/)
+- **شرف الدفاع عن الأوطان.. موضوع خطبة الجمعة اليوم بمساجد الجمهورية**: [Link](https://www.youm7.com/story/2025/10/3/%D8%B4%D8%B1%D9%81-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%B9%D9%86-%D8%A7%D9%84%D8%A3%D9%88%D8%B7%D8%A7%D9%86-%D9%85%D9%88%D8%B6%D9%88%D8%B9-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A8%D9%85%D8%B3%D8%A7%D8%AC%D8%AF-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9/7141326)
+
+
 ### novak djokovic (N/A, Fri, 3 Oct 2025 04:10:00 -0700)
 
 - **Jannik Sinner wins China Open after beating American teenager Learner Tien in straight sets**: [Link](https://www.skysports.com/tennis/news/12110/13442049/jannik-sinner-wins-china-open-after-beating-american-teenager-learner-tien-in-straight-sets)
