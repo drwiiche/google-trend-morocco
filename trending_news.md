@@ -1,3 +1,10 @@
+### منتخب مصر تحت 20 سنة لكرة القدم ضد تشيلي تحت 20 (N/A, Fri, 3 Oct 2025 16:10:00 -0700)
+
+- **القنوات الناقلة مباشر لمباراة مصر ضد تشيلي في كأس العالم للشباب 2025**: [Link](https://www.almasryalyoum.com/news/details/3565328)
+- **قدم.. منتخب مصر يخسر للمرة الثانية في مونديال الشباب**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%AE%D8%B3%D8%B1-%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/3703848)
+- **نتائج وبرنامج كأس العالم لأقل من 20 سنة**: [Link](https://www.almountakhab.com/node/13218126)
+
+
 ### manifestations gen z maroc (N/A, Fri, 3 Oct 2025 15:20:00 -0700)
 
 - **Anace Heddan : “Le cri d’alarme de la Genz212 peut devenir une opportunité historique pour notre pays”**: [Link](https://mobile.telquel.ma/2025/10/03/anace-heddan-le-cri-dalarme-de-la-genz212-peut-devenir-une-opportunite-historique-pour-notre-pays_1953977)
