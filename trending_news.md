@@ -1,3 +1,15 @@
+### ترتيب الدوري المغربي (N/A, Fri, 3 Oct 2025 12:00:00 -0700)
+
+- **نهضة بركان يسقط في فخ التعادل أمام اتحاد يعقوب المنصور**: [Link](https://www.radiomars.ma/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%B3%D9%82%D8%B7-%D9%81%D9%8A-%D9%81%D8%AE-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D8%AA%D8%AD%D8%A7/)
+- **ستة أهداف وصدارة الهدافين... هل تقرب المليوي من المنتخب؟ : lematinsports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%B3%D8%AA%D8%A9-%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%88%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%87%D8%AF%D8%A7%D9%81%D9%8A%D9%86-%D9%87%D9%84-%D8%AA%D9%82%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D9%8A%D9%88%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8/9551)
+- **فاتي لـ”العمق”: كان بإمكاننا الفوز ضد نهضة بركان.. والمطالب الشبابية مشروعة دون شغب**: [Link](https://sport.al3omk.com/90886.html)
+
+
+### match raja (N/A, Fri, 3 Oct 2025 10:50:00 -0700)
+
+
+
+
 ### osasuna – getafe (N/A, Fri, 3 Oct 2025 11:20:00 -0700)
 
 - **Osasuna - Getafe | Lisci y Bordalás le dan una vuelta: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2025/10/03/osasuna-getafe-lisci-bordalas-le-dan-vuelta-previa-analisis-pronostico-prediccion.html)
