@@ -1,3 +1,15 @@
+### botola (N/A, Fri, 3 Oct 2025 14:10:00 -0700)
+
+
+
+
+### amine tahraoui (N/A, Fri, 3 Oct 2025 14:10:00 -0700)
+
+- **Marchés de gardiennage, propreté et accueil dans les hôpitaux : "Plus de 70% des attributaires ne sont pas professionnels" (Tahraoui)**: [Link](https://medias24.com/2025/10/03/marches-de-gardiennage-proprete-et-accueil-dans-les-hopitaux-plus-de-70-des-attributaires-ne-sont-pas-professionnels-tahraoui/)
+- **Santé: des proches de ministres et de parlementaires impliqués dans des affaires de corruption**: [Link](https://fr.le360.ma/politique/sante-des-proches-de-ministres-et-de-parlementaires-impliques-dans-des-affaires-de-corruption_2PBMIT4AMFCWNLBSW5DMLPE7Z4/)
+- **Emplois, augmentations de salaires, formation... Tahraoui fait le point sur la réforme de la santé**: [Link](https://mobile.telquel.ma/instant-t/2025/10/02/emplois-augmentations-de-salaires-formation-tahraoui-fait-le-point-sur-la-reforme-de-la-sante_1953615/)
+
+
 ### virements bancaires (N/A, Fri, 3 Oct 2025 14:00:00 -0700)
 
 - **01net morning : nouvelle sécurité contre les arnaques à l'IBAN, les dangers du smartphone aux toilettes, le navigateur Comet enfin pour tous**: [Link](https://www.01net.com/actualites/01net-morning-nouvelle-securite-pour-les-arnaques-a-liban-les-dangers-du-smartphone-aux-toilettes-le-navigateur-comet-enfin-pour-tous.html)
