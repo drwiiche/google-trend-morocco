@@ -1,3 +1,10 @@
+### raja casablanca (N/A, Fri, 3 Oct 2025 13:50:00 -0700)
+
+- **Raja-MAS: les supporters confiants en Fadlu Davids après sa première apparition**: [Link](https://sport.le360.ma/football/botola/raja-mas-les-supporters-confiants-en-fadlu-davids-apres-sa-premiere-apparition_6HDDJ7QZW5BJNIDIFZR6OR32KI/)
+- **Botola Pro (J4) : Le Raja accroché par le MAS dans le temps additionnel**: [Link](https://www.lopinion.ma/Botola-Pro-J4-Le-Raja-accroche-par-le-MAS-dans-le-temps-additionnel_a72466.html)
+- **MAS: deux blessés avant le choc face au Raja**: [Link](https://snrtnews.com/fr/article/mas-deux-blesses-avant-le-choc-face-au-raja-138380)
+
+
 ### خالد الزروالي (N/A, Fri, 3 Oct 2025 14:10:00 -0700)
 
 - **تغييرات جديدة في مناصب الولاة .. فوزي بمراكش والزروالي بفاس**: [Link](https://www.hespress.com/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%85%D9%86%D8%A7%D8%B5%D8%A8-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D8%A9-%D9%81%D9%88%D8%B2%D9%8A-%D8%A8%D9%85-1634565.html)
