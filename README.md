@@ -1,3 +1,10 @@
+### catherine graciet (N/A, Fri, 3 Oct 2025 06:30:00 -0700)
+
+- **Tentative de chantage du roi du Maroc : les deux journalistes français condamnés en appel à de la prison avec sursis**: [Link](https://www.lemonde.fr/afrique/article/2025/10/02/tentative-de-chantage-du-roi-du-maroc-les-deux-journalistes-francais-condamnes-en-appel-a-de-la-prison-avec-sursis_6644115_3212.html)
+- **Chantage contre le Maroc : Catherine Graciet et Éric Laurent condamnés en appel**: [Link](https://medias24.com/2025/10/03/chantage-contre-le-maroc-catherine-graciet-et-eric-laurent-condamnes-en-appel/)
+- **Chantage au roi Mohammed VI: condamnations en appel pour Catherine Graciet et Eric Laurent**: [Link](https://h24info.ma/maroc/chantage-au-roi-mohammed-vi-condamnations-en-appel-pour-catherine-graciet-et-eric-laurent/)
+
+
 ### خطبة الجمعة اليوم (N/A, Fri, 3 Oct 2025 05:30:00 -0700)
 
 - **بث مباشر.. شعائر صلاة الجمعة من مسجد السيد البدوي بالغربية**: [Link](https://darelhilal.com/News/3077745.aspx)
