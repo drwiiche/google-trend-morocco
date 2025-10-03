@@ -1,3 +1,10 @@
+### 2m (N/A, Fri, 3 Oct 2025 15:10:00 -0700)
+
+- **Gromit auction raises £2m for children's hospital**: [Link](https://ca.news.yahoo.com/gromit-auction-raises-2m-childrens-082805765.html)
+- **And finally… going, going, grom!**: [Link](https://www.scottishfinancialnews.com/articles/and-finally-going-going-grom)
+- **Gromit Unleashed 3 sculptures to go under the hammer | News - Hits Radio (West of England)**: [Link](https://hellorayo.co.uk/hits-radio/bristol/news/gromit-unleashed-3-auction)
+
+
 ### raja casablanca (N/A, Fri, 3 Oct 2025 13:50:00 -0700)
 
 - **Raja-MAS: les supporters confiants en Fadlu Davids après sa première apparition**: [Link](https://sport.le360.ma/football/botola/raja-mas-les-supporters-confiants-en-fadlu-davids-apres-sa-premiere-apparition_6HDDJ7QZW5BJNIDIFZR6OR32KI/)
