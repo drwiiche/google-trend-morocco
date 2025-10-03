@@ -1,3 +1,10 @@
+### lalla meryem (N/A, Fri, 3 Oct 2025 10:20:00 -0700)
+
+- **Le Roi préside une veillée religieuse en commémoration du 27e anniversaire de la disparition de Feu Hassan II**: [Link](https://medias24.com/2025/10/02/le-roi-preside-une-veillee-religieuse-en-commemoration-du-27e-anniversaire-de-la-disparition-de-feu-hassan-ii/)
+- **La princesse Lalla Meryem préside une veillée religieuse en commémoration du 27ème anniversaire de la disparition du roi Hassan II**: [Link](https://fr.le360.ma/politique/la-princesse-lalla-meryem-preside-une-veillee-religieuse-en-commemoration-du-27eme-anniversaire-de_Z3333A6IZJDXLEZ7LYDIZ7RF24/)
+- **Un hommage solennel à la mémoire de Feu SM Hassan II au Mausolée Mohammed V**: [Link](https://fr.le7tv.ma/2025/10/02/un-hommage-solennel-a-la-memoire-de-feu-sm-hassan-ii-au-mausolee-mohammed-v/)
+
+
 ### توكل كرمان (N/A, Thu, 2 Oct 2025 15:40:00 -0700)
 
 - **بومة الشؤم.. المغاربة لا ينتظرون دروساً من توكل كرمان**: [Link](https://www.hespress.com/%D8%A8%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%B4%D8%A4%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%84%D8%A7-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1%D9%88%D9%86-%D8%AF%D8%B1%D9%88%D8%B3%D8%A7%D9%8B-1634077.html)
