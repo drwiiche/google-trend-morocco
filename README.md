@@ -1,3 +1,10 @@
+### mohammed vi (N/A, Fri, 3 Oct 2025 02:30:00 -0700)
+
+- **Mediouna : le roi Mohammed VI lance la réalisation d’un projet solidaire pour les personnes souffrant de troubles mentaux**: [Link](https://mobile.telquel.ma/instant-t/2025/10/01/mediouna-le-roi-lance-la-realisation-dun-projet-solidaire-pour-les-personnes-souffrant-de-troubles-mentaux_1953526/)
+- **Mohammed VI lance un complexe de réhabilitation psychosociale**: [Link](https://fr.apanews.net/news/maroc-mohammed-vi-lance-un-complexe-de-rehabilitation-psychosociale/)
+- **Le Roi Mohammed VI lance un complexe pionnier pour la santé mentale et la réinsertion sociale à Sidi Hajjaj**: [Link](https://medias24.com/2025/10/01/le-roi-mohammed-vi-lance-un-complexe-pionnier-pour-la-sante-mentale-et-la-reinsertion-sociale-a-sidi-hajjaj/)
+
+
 ### alerte belgique (N/A, Fri, 3 Oct 2025 02:00:00 -0700)
 
 - **Plus de 2 millions de Belges ont reçu un message BE-Alert : voici pourquoi**: [Link](https://www.lesoir.be/702538/article/2025-10-02/plus-de-2-millions-de-belges-ont-recu-un-message-be-alert-voici-pourquoi)
