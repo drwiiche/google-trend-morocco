@@ -1,3 +1,10 @@
+### أوساسونا ضد خيتافي (N/A, Fri, 3 Oct 2025 12:20:00 -0700)
+
+- **موعد مباراة أوساسونا وخيتافي في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/530800)
+- **Osasuna vs Getafe..مباراة أوساسونا ضد خيتافي في الدوري الإسباني والقنوات الناقلة**: [Link](https://zahraa.mr/5921802/osasuna-vs-getafe-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D8%B6%D8%AF-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88/)
+- **لقاء مهم في وسط الترتيب بين خيتافي وأوساسونا (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2025/10/osasuna-getafe-j8-laliga-pronostic.html)
+
+
 ### ترتيب الدوري المغربي (N/A, Fri, 3 Oct 2025 12:00:00 -0700)
 
 - **نهضة بركان يسقط في فخ التعادل أمام اتحاد يعقوب المنصور**: [Link](https://www.radiomars.ma/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%B3%D9%82%D8%B7-%D9%81%D9%8A-%D9%81%D8%AE-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D8%AA%D8%AD%D8%A7/)
