@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Fri, 3 Oct 2025 04:10:00 -0700)
+
+- **Jannik Sinner wins China Open after beating American teenager Learner Tien in straight sets**: [Link](https://www.skysports.com/tennis/news/12110/13442049/jannik-sinner-wins-china-open-after-beating-american-teenager-learner-tien-in-straight-sets)
+- **Djokovic, Federer reunion adds more shine to star-studded tournament**: [Link](https://www.chinadaily.com.cn/a/202510/01/WS68dc889ca310f735438b341a.html)
+- **ATP Shanghai Masters 2025 Prize Money – How Much Does the Winner & Runner-Up Earn in Shanghai?**: [Link](https://theplayoffs.news/en/atp-shanghai-masters-2025-prize-money-how-much-does-winner-runner-up-earn-shanghai/)
+
+
 ### mohammed vi (N/A, Fri, 3 Oct 2025 02:30:00 -0700)
 
 - **Mediouna : le roi Mohammed VI lance la réalisation d’un projet solidaire pour les personnes souffrant de troubles mentaux**: [Link](https://mobile.telquel.ma/instant-t/2025/10/01/mediouna-le-roi-lance-la-realisation-dun-projet-solidaire-pour-les-personnes-souffrant-de-troubles-mentaux_1953526/)
