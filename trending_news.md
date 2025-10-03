@@ -1,3 +1,10 @@
+### manifestations gen z maroc (N/A, Fri, 3 Oct 2025 15:20:00 -0700)
+
+- **Anace Heddan : “Le cri d’alarme de la Genz212 peut devenir une opportunité historique pour notre pays”**: [Link](https://mobile.telquel.ma/2025/10/03/anace-heddan-le-cri-dalarme-de-la-genz212-peut-devenir-une-opportunite-historique-pour-notre-pays_1953977)
+- **GenZ 212 : des rassemblements annoncés dans 13 villes ce vendredi 3 octobre**: [Link](https://medias24.com/2025/10/03/genz-212-des-rassemblements-annonces-dans-13-villes-ce-vendredi-3-octobre/)
+- **Génération Z au Maroc: entre impatience, contradictions et espoirs**: [Link](https://fr.le360.ma/societe/generation-z-au-maroc-entre-impatience-contradictions-et-espoirs_YSDRXY6R6FE77DYSYWMSKLDDLU/)
+
+
 ### 2m (N/A, Fri, 3 Oct 2025 15:10:00 -0700)
 
 - **Gromit auction raises £2m for children's hospital**: [Link](https://ca.news.yahoo.com/gromit-auction-raises-2m-childrens-082805765.html)
