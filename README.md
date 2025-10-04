@@ -1,3 +1,17 @@
+### liverpool (N/A, Sat, 4 Oct 2025 09:40:00 -0700)
+
+- **Premier League LIVE: Build-up to kick-offs, including Leeds United v Tottenham, Arsenal v West Ham, Manchester United v Sunderland and Chelsea v Liverpool**: [Link](https://www.bbc.com/sport/football/live/cz69g6xvg24t)
+- **Arsenal 2-0 West Ham, Manchester United 2-0 Sunderland, and more: football clockwatch – as it happened**: [Link](https://www.theguardian.com/football/live/2025/oct/04/arsenal-v-west-ham-manchester-united-v-sunderland-and-more-football-live-clockwatch-score-updates)
+- **Football Tracker: Inter ahead in Serie A before Chelsea host Liverpool, Bayern also to come**: [Link](https://www.flashscore.com/news/football-tracker-inter-ahead-in-serie-a-before-chelsea-host-liverpool-bayern-also-to-come/dEtb0Ufl/)
+
+
+### metz vs marseille (N/A, Sat, 4 Oct 2025 09:30:00 -0700)
+
+- **Preview: Metz vs Marseille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/metz/preview/metz-vs-marseille-prediction-team-news-lineups_582741.html)
+- **"PSG B", the heavy accusation of OM**: [Link](https://frenchfootballweekly.com/2025/10/03/psg-b-the-heavy-accusation-of-om/)
+- **De Zerbi targets strong finish against Metz before break: 'We have always lost'**: [Link](https://tribuna.com/en/news/2025-10-03-de-zerbi-targets-strong-finish-against-metz-before-break-we-have-always-lost/)
+
+
 ### real madrid vs villarreal cf timeline (N/A, Sat, 4 Oct 2025 09:10:00 -0700)
 
 - **Real Madrid Predicted Lineup vs. Villarreal: Mbappe Eyes Continuation of Ballon d’Or Form**: [Link](https://www.si.com/soccer/real-madrid-predicted-lineup-vs-villarreal-la-liga-10-4-25)
