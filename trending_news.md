@@ -1,3 +1,10 @@
+### donald trump (N/A, Fri, 3 Oct 2025 19:10:00 -0700)
+
+- **Three airstrikes hit Gaza in early hours as IDF told to prepare for phase one of Trump plan**: [Link](https://www.bbc.com/news/live/cn0xvnxqj2xt)
+- **Official Hamas documents prove Hamas’s direct involvement in the Gaza flotilla Ministry of Foreign Affairs**: [Link](https://www.gov.il/en/pages/official-hamas-documents-prove-hamas-s-direct-involvement-in-the-gaza-flotilla-30-sep-2025)
+- **Israel and Hamas signal willingness to move forward on Trump’s Gaza peace plan**: [Link](https://www.cnn.com/2025/10/03/politics/trump-hamas-deadline-gaza-deal)
+
+
 ### jane goodall (N/A, Sat, 4 Oct 2025 01:50:00 -0700)
 
 - **What Jane Goodall Taught Us About Living a Long Life**: [Link](https://www.nytimes.com/2025/10/02/well/jane-goodall-aging-long-life.html)
