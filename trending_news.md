@@ -1,3 +1,17 @@
+### manchester united (N/A, Sat, 4 Oct 2025 08:00:00 -0700)
+
+- **'Double the price' - cost of watching Man Utd for fan forced to move**: [Link](https://www.bbc.com/sport/football/articles/c15kypn0kqeo)
+- **'Double the price' - cost of watching Man Utd for fan forced to move**: [Link](https://www.aol.com/articles/double-price-cost-watching-man-083456457.html)
+- **Manchester United vs Sunderland: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cd63lx6w3nyt)
+
+
+### man united vs sunderland (N/A, Sat, 4 Oct 2025 06:40:00 -0700)
+
+- **Man Utd handed VAR verdict after controversial penalty call – 'I can't understand it'**: [Link](https://www.dailystar.co.uk/sport/football/man-utd-sunderland-var-penalty-36014662)
+- **Man United Faces Referee Criticism for Mistakes in Premier League Match**: [Link](https://berawangnews.com/man-united-handed-fresh-referee-verdict-as-premier-league-told-two-mistakes-made-3/)
+- **Premier League statement explains why Sunderland penalty claim was overturned against Man Utd**: [Link](https://www.sunderlandecho.com/sport/football/sunderland-afc/man-utd-sunderland-var-premier-league-5345998)
+
+
 ### arsenal vs west ham (N/A, Sat, 4 Oct 2025 07:10:00 -0700)
 
 - **Odegaard on his fitness and UCL excitement**: [Link](https://www.arsenal.com/news/odegaard-his-fitness-and-ucl-excitement)
