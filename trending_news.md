@@ -1,3 +1,24 @@
+### fifa (N/A, Fri, 3 Oct 2025 18:20:00 -0700)
+
+- **Ranking the Best Official FIFA World Cup Balls of All Time**: [Link](https://bleacherreport.com/articles/25255377-ranking-best-official-fifa-world-cup-balls-all-time)
+- **Adidas's new World Cup ball is out - and everyone's saying the same thing**: [Link](https://www.fourfourtwo.com/news/adidass-new-world-cup-ball-is-out-and-everyones-saying-the-same-thing)
+- **adidas introduced TRIONDA at landmark events in New York, Toronto and Mexico City, with World Cup Legends Jürgen Klinsmann, Cafu, Zinedine Zidane, Alessandro Del Piero and Xavi joining the brand in Brooklyn**: [Link](https://news.adidas.com/football/adidas-introduced-trionda-at-landmark-events-in-new-york--toronto-and-mexico-city--with-world-cup-le/s/6c65a1df-b2b8-4869-83a9-6dd1f076d918)
+
+
+### world cup u20 (N/A, Fri, 3 Oct 2025 18:10:00 -0700)
+
+- **Live: New Zealand v Japan - FIFA Under-20 World Cup**: [Link](https://www.stuff.co.nz/sport/360839143/live-new-zealand-v-japan-fifa-under-20-world-cup)
+- **Thank you. I see the miracle round of 16 with good luck after beating Panama...Japan vanquished New Zealand 30**: [Link](https://en.sportschosun.com/sports/2025/10/thank-you-i-see-miracle-round-of-114107)
+- **New Zealand Japan U20 WCup Soccer**: [Link](https://www.wvnews.com/sports/pro/new-zealand-japan-u20-wcup-soccer/image_792edaeb-be9b-5232-ba1b-fa58b8278bdd.html)
+
+
+### fifa world cup u20 (N/A, Fri, 3 Oct 2025 18:10:00 -0700)
+
+- **U-20 World Cup: Egypt keep hopes alive after late drama**: [Link](https://www.panafricafootball.com/post/u-20-world-cup-egypt-still-alive/)
+- **Egypt Chile U20 WCup Soccer**: [Link](https://www.wvnews.com/sports/pro/egypt-chile-u20-wcup-soccer/image_464a7a5e-7493-56e4-905a-c19d97d1f1c9.html)
+- **Egypt fall to Japan in U-20 World Cup opener, Nabih confident of revival**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/egypt-fall-to-japan-in-u-20-world-cup-opener-nabih-confident-of-revival/)
+
+
 ### منتخب مصر تحت 20 سنة لكرة القدم ضد تشيلي تحت 20 (N/A, Fri, 3 Oct 2025 16:10:00 -0700)
 
 - **القنوات الناقلة مباشر لمباراة مصر ضد تشيلي في كأس العالم للشباب 2025**: [Link](https://www.almasryalyoum.com/news/details/3565328)
