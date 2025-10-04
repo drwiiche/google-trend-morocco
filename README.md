@@ -1,3 +1,24 @@
+### leverkusen – union berlin (N/A, Sat, 4 Oct 2025 06:00:00 -0700)
+
+- **Hjulmand und Bayer: Kampf gegen das Kopfkino**: [Link](https://www.kicker.de/hjulmand-und-bayer-kampf-gegen-das-kopfkino-1152373/artikel)
+- **Bundesliga: 2 heiße Startelf-Duelle bei Bayern! Alle Infos und Aufstellungen**: [Link](https://www.bild.de/sport/fussball/bundesliga-2-heisse-startelf-duelle-bei-bayern-alle-infos-und-aufstellungen-68dfb161dc95f1f53102aa12)
+- **Jetzt live hören und im Ticker: Union will mit Rückkehrer Baumgart in Leverkusen punkten**: [Link](https://www.rbb24.de/sport/beitrag/2025/10/fussball-berlin-1-fc-union-bundesliga-bayer-leverkusen.html)
+
+
+### match maroc mexique u20 (N/A, Sat, 4 Oct 2025 06:00:00 -0700)
+
+- **Coupe du Monde masculine U20 de la FIFA Chili 2025: Les Lionceaux de l’Atlas en huitièmes de finales**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%AB/)
+- **Match Maroc-Mexique : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-mexique-a-quelle-heure-et-sur-quelles-chaines/305347)
+- **Mondial U20 : le Maroc domine le Brésil et valide son billet pour les huitièmes de finale**: [Link](https://ledesk.ma/2025/10/02/mondial-u20-le-maroc-domine-le-bresil-et-valide-son-billet-pour-les-huitiemes-de-finale/)
+
+
+### dortmund – rb leipzig (N/A, Sat, 4 Oct 2025 05:50:00 -0700)
+
+- **🔴 Buli-Konferenz im Liveblog: Gewinnt der BVB heute gegen RB Leipzig?**: [Link](https://onefootball.com/de/news/buli-konferenz-im-liveblog-gewinnt-der-bvb-heute-gegen-rb-leipzig-41759543)
+- **Borussia Dortmund – RB Leipzig im TV: Anstoßzeit, Sender und Statistik**: [Link](https://www.feverpitch.de/borussia-dortmund-rb-leipzig/)
+- **BVB: Aufstellung da! Kovac setzt Bellingham wieder auf die Bank**: [Link](https://www.bild.de/sport/fussball/bvb-aufstellung-da-kovac-setzt-bellingham-wieder-auf-die-bank-68e10f73c9fcb483178b777e)
+
+
 ### ملك المغرب محمد السادس (N/A, Sat, 4 Oct 2025 05:10:00 -0700)
 
 - **الملك محمد السادس: محطات في حياته وحكمه**: [Link](https://www.bbc.com/arabic/articles/ce3y75zwzqvo)
