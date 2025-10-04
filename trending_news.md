@@ -1,3 +1,17 @@
+### auxerre – lens (N/A, Sat, 4 Oct 2025 11:50:00 -0700)
+
+- **Amorim respire, Manchester United gagne enfin, Arsenal solide !**: [Link](https://www.onzemondial.com/croix-redirect/962038)
+- **L1 : Auxerre-Lens, les compos probables**: [Link](https://www.maxifoot.fr/ligue-1/auxerre-lens-les-compos-probables-foot-442178.htm)
+- **Voyager en Bourgogne pour confirmer le bon cru de septembre**: [Link](https://onefootball.com/pt-br/noticias/voyager-en-bourgogne-pour-confirmer-le-bon-cru-de-septembre-41758546)
+
+
+### bundesliga (N/A, Sat, 4 Oct 2025 11:50:00 -0700)
+
+- **Zehnter Sieg im zehnten Spiel: Bayern gewinnen in Frankfurt souverän | Fußball-Bundesliga**: [Link](https://www.zdfheute.de/sport/bundesliga-2025-2026-eintracht-frankfurt-fc-bayern-muenchen-spielbericht-100.html)
+- **Eintracht-Kolumne Ballhorn: Don‘t stop believin!**: [Link](https://www.fr.de/eintracht-frankfurt/eintracht-kolumne-ballhorn-don-stop-believin-93969495.html)
+- **1. Bundesliga: Die verrückten 15 Bayern-Sekunden – Anstoß-Panne & Blitz-Tor**: [Link](https://www.bild.de/sport/fussball/1-bundesliga-die-verrueckten-15-bayern-sekunden-anstoss-panne-blitz-tor-68e127e8a46476f164b86a30)
+
+
 ### classement premier league (N/A, Sat, 4 Oct 2025 11:40:00 -0700)
 
 - **DIRECT. Chelsea-Liverpool (Premier League 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/chelsea-liverpool-live/673567)
