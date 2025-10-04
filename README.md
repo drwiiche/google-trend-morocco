@@ -1,3 +1,10 @@
+### eintracht frankfurt vs bayern (N/A, Sat, 4 Oct 2025 10:40:00 -0700)
+
+- **Vincent Kompany und FC Bayern winkt der Start-Rekord**: [Link](https://www.grenzecho.net/129940/artikel/2025-10-04/vincent-kompany-und-fc-bayern-winkt-der-start-rekord)
+- **„Kriegen wir dafür Zuschlag?“: Vor Topspiel: TV-Expertin Simic flüchtet zu Matthäus**: [Link](https://www.express.de/sport/fussball/vor-bundesliga-topspiel-tv-expertin-simic-fluechtet-zu-matthaeus-1121786)
+- **Eintracht Frankfurt – Bayern München hier im Live-Ticker: Halbzeit! Bayern lässt Frankfurt keine Chance**: [Link](https://www.bild.de/sport/fussball/bundesliga-frankfurt-bayern-muenchen-hier-im-live-ticker-68dcf289eb7e531160b3f7ec)
+
+
 ### أتلتيك بيلباو ضد مايوركا (N/A, Sat, 4 Oct 2025 10:30:00 -0700)
 
 - **Athletic Bilbao vs Mallorca.. الموعد والقنوات الناقلة لمباراة أتلتيك بيلباو ضد ريال مايوركا في الدوري الإسباني**: [Link](https://zahraa.mr/5925328/athletic-bilbao-vs-mallorca-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7/)
