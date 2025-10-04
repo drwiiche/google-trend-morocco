@@ -1,3 +1,10 @@
+### الجزيرة (N/A, Fri, 3 Oct 2025 22:20:00 -0700)
+
+- **غزّيون يبتهجون بعد رد حماس على خطة وقف الحرب**: [Link](https://www.aljazeera.net/news/2025/10/4/%D8%BA%D8%B2%D9%8A%D9%88%D9%86-%D9%8A%D8%A8%D8%AA%D9%87%D8%AC%D9%88%D9%86-%D8%A8%D8%B9%D8%AF-%D8%B1%D8%AF-%D8%AD%D9%85%D8%A7%D8%B3-%D8%B9%D9%84%D9%89-%D8%AE%D8%B7%D8%A9-%D9%88%D9%82%D9%81)
+- **بعد رد حماس، ترامب يقول إن "هذا يوم عظيم" وإسرائيل تستعد لـ "التنفيذ الفوري" للمرحلة الأولى من الخطة الأمريكية**: [Link](https://www.bbc.com/arabic/live/c20zyeel9xxt)
+- **إعلام عبري: رد حماس على خطة ترامب يضع الكرة في ملعبه**: [Link](https://www.aa.com.tr/ar/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%B9%D8%A8%D8%B1%D9%8A-%D8%B1%D8%AF-%D8%AD%D9%85%D8%A7%D8%B3-%D8%B9%D9%84%D9%89-%D8%AE%D8%B7%D8%A9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%B6%D8%B9-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D9%81%D9%8A-%D9%85%D9%84%D8%B9%D8%A8%D9%87/3707125)
+
+
 ### aziz akhannouch (N/A, Fri, 3 Oct 2025 23:30:00 -0700)
 
 - **Au Maroc, la mobilisation inédite d’une partie de la jeunesse met le gouvernement à l’épreuve**: [Link](https://www.lemonde.fr/afrique/article/2025/10/01/au-maroc-la-mobilisation-inedite-d-une-partie-de-la-jeunesse-met-le-gouvernement-a-l-epreuve_6643833_3212.html)
