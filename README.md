@@ -1,3 +1,17 @@
+### twitch (N/A, Sat, 4 Oct 2025 04:00:00 -0700)
+
+- **TikTok, YouTube, Twitch Pitch Themselves as Partners to Film, TV Execs In Spain**: [Link](https://www.hollywoodreporter.com/business/digital/youtube-tiktok-twitch-entertainment-partners-iberseries-1236391806/)
+- **Why TikTok, YouTube, and Twitch Are Pitching to Spanish Film and TV Execs**: [Link](https://inews.zoombangla.com/why-tiktok-youtube-and-twitch-are-pitching-to-spanish-film-and-tv-execs/)
+- **TikTok, YouTube, Twitch Pitch Themselves as Partners to Film, TV Execs In Spain**: [Link](https://www.yahoo.com/entertainment/tv/articles/tiktok-youtube-twitch-pitch-themselves-161830315.html)
+
+
+### leeds united – tottenham (N/A, Sat, 4 Oct 2025 03:50:00 -0700)
+
+- **Leeds - Tottenham**: [Link](https://www.flashscore.com/match/football/leeds-tUxUbLR2/tottenham-UDg08Ohm/)
+- **Stach insists Leeds ready for Spurs challenge**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-stach-insists-leeds-ready-for-spurs-challenge-b3429ada-1d6b-414f-baae-93812a52a89d)
+- **Tottenham Hotspur XI vs Leeds United – Predicted lineup and team news**: [Link](https://sports.yahoo.com/article/tottenham-hotspur-xi-vs-leeds-050200748.html)
+
+
 ### donald trump (N/A, Fri, 3 Oct 2025 19:10:00 -0700)
 
 - **Three airstrikes hit Gaza in early hours as IDF told to prepare for phase one of Trump plan**: [Link](https://www.bbc.com/news/live/cn0xvnxqj2xt)
