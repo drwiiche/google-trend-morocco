@@ -1,3 +1,17 @@
+### classement premier league (N/A, Sat, 4 Oct 2025 11:40:00 -0700)
+
+- **DIRECT. Chelsea-Liverpool (Premier League 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/chelsea-liverpool-live/673567)
+- **PRONOS PARIS RMC Le nul du jour du 4 octobre - Premier League - Angleterre**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-4-octobre-premier-league-angleterre_AN-202510030841.html)
+- **Chelsea - Liverpool : les compositions officielles**: [Link](https://www.footmercato.net/a958482031375951138-chelsea-liverpool-les-compositions-officielles)
+
+
+### premier league (N/A, Sat, 4 Oct 2025 11:30:00 -0700)
+
+- **Leeds United were part of an unwelcome Premier League first this weekend as eight-goal record set**: [Link](https://www.leedsunited.news/news/leeds-united-were-part-of-an-unwelcome-premier-league-first-this-weekend-as-eight-goal-record-set/)
+- **Late drama being delivered this season more than ever**: [Link](https://www.premierleague.com/en/news/4430518/more-late-goals-and-stoppage-time-winners-being-scored-in-2025-26)
+- **Saturday breaks late-goal Premier Lge record**: [Link](https://beritasriwijaya.co.id/saturday-breaks-late-goal-premier-lge-record/)
+
+
 ### morocco vs mexico (N/A, Sat, 4 Oct 2025 11:20:00 -0700)
 
 - **Where can you watch the U-20 national team take on Morocco LIVE?**: [Link](https://www.chivasdecorazon.com.mx/en/noticias/39919/Dnde-ver-EN-VIVO-a-los-Rojiblancos-de-Seleccin-Sub-20-ante-Marruecos)
