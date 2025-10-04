@@ -1,3 +1,38 @@
+### morocco vs mexico (N/A, Sat, 4 Oct 2025 11:20:00 -0700)
+
+- **Where can you watch the U-20 national team take on Morocco LIVE?**: [Link](https://www.chivasdecorazon.com.mx/en/noticias/39919/Dnde-ver-EN-VIVO-a-los-Rojiblancos-de-Seleccin-Sub-20-ante-Marruecos)
+- **Mexico vs. Morocco: How to Watch, Odds, U-20 Preview**: [Link](https://www.msn.com/en-us/sports/fifa_world_cup/mexico-vs-morocco-how-to-watch-odds-u-20-preview/ar-AA1NR9E9)
+- **How to watch Mexico U20 vs Morocco U20 in the USA: Live Stream and TV for 2025 U20 World Cup**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-mexico-u20-vs-morocco-u20-in-the-usa-live-stream-and-tv-for-2025-u20-world-cup/)
+
+
+### real madrid – villarreal (N/A, Sat, 4 Oct 2025 11:10:00 -0700)
+
+- **Militao, Valverde start in a 4-3-3 – How Real Madrid can line up against Villarreal**: [Link](https://madriduniversal.com/militao-valverde-start-in-a-4-3-3-how-real-madrid-can-line-up-against-villarreal/)
+- **Alonso seeking end to poor run against top sides in tough test vs Villarreal**: [Link](https://www.flashscore.com/news/soccer-laliga-alonso-seeking-end-to-poor-run-against-top-sides-in-tough-test-vs-villarreal/nkQzAEEN/)
+- **La Liga Soccer: Stream Real Madrid vs. Villarreal Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-real-madrid-vs-villarreal-live-from-anywhere/)
+
+
+### الريال ضد فياريال (N/A, Sat, 4 Oct 2025 11:10:00 -0700)
+
+- **مباشر مباراة ريال مدريد ضد فياريال في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/4/real-madrid-vs-villareal)
+- **عودة ميليتاو تزين قائمة ريال مدريد لموقعة فياريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%8A%D9%84%D9%8A%D8%AA%D8%A7%D9%88-%D8%AA%D8%B2%D9%8A%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84/blta61bf2ee431297f3)
+- **ريال مدريد يسعى إلى استعادة توازنه محليا خلال مواجهته لفياريال**: [Link](https://2m.ma/ar/news/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%AA%D9%88%D8%A7%D8%B2%D9%86%D9%87-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D8%AE%D9%84%D8%A7%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%AA%D9%87-%D9%84%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-20251004)
+
+
+### المغرب المكسيك (N/A, Sat, 4 Oct 2025 11:00:00 -0700)
+
+- **مباشر.. مباراة المغرب ضد المكسيك (0-0) في كأس العالم للشباب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/4/morocco-vs-mexico)
+- **المغرب يعبر لثمن نهائي مونديال الشباب على أكتاف البرازيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B9%D8%A8%D8%B1-%D9%84%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D9%83%D8%AA%D8%A7%D9%81-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84/bltf2f5eb05f9e8ca6b)
+- **مونديال U20 .. وهبي يستثمر لقاء المكسيك في "التدوير" وتحفيز اللاعبين**: [Link](https://www.hespress.com/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-u20-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AB%D9%85%D8%B1-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83-%D9%81%D9%8A-1634882.html)
+
+
+### chelsea (N/A, Sat, 4 Oct 2025 09:50:00 -0700)
+
+- **Chelsea lose key player to injury at worst moment after strong performance against Liverpool**: [Link](https://ca.sports.yahoo.com/news/chelsea-lose-key-player-injury-182200940.html)
+- **Young defender a more “natural” fit alongside Badiashile claims Chelsea analyst**: [Link](https://onefootball.com/pt-br/noticias/young-defender-a-more-natural-fit-alongside-badiashile-claims-chelsea-analyst-41759709)
+- **Young defender a more “natural” fit alongside Badiashile claims Chelsea analyst**: [Link](https://chelsea.news/2025/10/acheampong-natural-fit-badiashile-chelsea-analyst/)
+
+
 ### eintracht frankfurt vs bayern (N/A, Sat, 4 Oct 2025 10:40:00 -0700)
 
 - **Vincent Kompany und FC Bayern winkt der Start-Rekord**: [Link](https://www.grenzecho.net/129940/artikel/2025-10-04/vincent-kompany-und-fc-bayern-winkt-der-start-rekord)
