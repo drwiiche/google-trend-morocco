@@ -1,3 +1,10 @@
+### atalanta – côme (N/A, Sat, 4 Oct 2025 12:10:00 -0700)
+
+- **Match Preview Atalanta vs Como**: [Link](https://comofootball.com/match-preview-atalanta-vs-como/)
+- **Il calcio organizzato di Fabregas, la sfida con Juric: ecco il bigino che presenta Atalanta-Como**: [Link](https://www.ecodibergamo.it/stories/premium/corner/atuttocampo/il-calcio-organizzato-di-fabregas-la-sfida-con-juric-ecco-il-bigino-che-presen-o_3359702_11/)
+- **I convocati per Atalanta-Como | Serie A Enilive 2025/26**: [Link](https://www.atalanta.it/news/i-convocati-per-atalanta-como-serie-a-enilive-2025-26)
+
+
 ### auxerre – lens (N/A, Sat, 4 Oct 2025 11:50:00 -0700)
 
 - **Amorim respire, Manchester United gagne enfin, Arsenal solide !**: [Link](https://www.onzemondial.com/croix-redirect/962038)
