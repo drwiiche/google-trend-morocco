@@ -1,3 +1,17 @@
+### real madrid vs villarreal cf timeline (N/A, Sat, 4 Oct 2025 09:10:00 -0700)
+
+- **Real Madrid Predicted Lineup vs. Villarreal: Mbappe Eyes Continuation of Ballon d’Or Form**: [Link](https://www.si.com/soccer/real-madrid-predicted-lineup-vs-villarreal-la-liga-10-4-25)
+- **La Liga Soccer: Stream Real Madrid vs. Villarreal Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-real-madrid-vs-villarreal-live-from-anywhere/)
+- **Real Madrid vs. Villarreal live stream, where to watch LaLiga online, odds: Xabi Alonso's side need to react**: [Link](https://www.cbssports.com/soccer/news/real-madrid-vs-villarreal-live-stream-where-to-watch-laliga-online-odds-xabi-alonsos-side-need-to-react/)
+
+
+### chelsea vs liverpool (N/A, Sat, 4 Oct 2025 08:50:00 -0700)
+
+- **Salah, Anelka & Co. - Every player to play for Chelsea & Liverpool since 2000 ahead of PL clash**: [Link](https://www.transfermarkt.com/salah-anelka-amp-co-every-player-to-play-for-chelsea-amp-liverpool-since-2000-ahead-of-pl-clash/view/news/461237)
+- **'We'll do everything to win' - Ryan Gravenberch on Reds responding at Chelsea**: [Link](https://www.liverpoolfc.com/news/well-do-everything-win-ryan-gravenberch-reds-responding-chelsea)
+- **Enzo Maresca expresses concerns over Chelsea's defensive line ahead of Liverpool clash**: [Link](https://www.si.com/onsi/soccer/chelsea/news/enzo-maresca-expresses-concerns-over-defensive-line-liverpool-clash-01k6q9sv9pw1)
+
+
 ### تشيلسي ضد ليفربول (N/A, Sat, 4 Oct 2025 08:50:00 -0700)
 
 - **الذكاء الاصطناعي يتوقع نتيجة قمة تشيلسي وليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%82%D9%85%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt658ff205bb6d60a2)
