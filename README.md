@@ -1,3 +1,10 @@
+### العمق (N/A, Fri, 3 Oct 2025 22:50:00 -0700)
+
+- **حركة "جيل زد" في المغرب تدعو لمظاهرات جديدة**: [Link](https://www.aljazeera.net/news/2025/10/3/%D8%AD%D8%B1%D9%83%D8%A9-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D9%85%D8%B8%D8%A7%D9%87%D8%B1%D8%A7%D8%AA)
+- **احتجاجات "جيل زد" المغربي بالأرقام**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A%D8%A9/20251003-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A3%D8%B1%D9%82%D8%A7%D9%85-212)
+- **الزفزافي يحضر في وقفة "زد البيضاء"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B2%D9%81%D8%B2%D8%A7%D9%81%D9%8A-%D9%8A%D8%AD%D8%B6%D8%B1-%D9%81%D9%8A-%D9%88%D9%82%D9%81%D8%A9-%D8%B2%D8%AF-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1634584.html)
+
+
 ### coupe du monde u20 2025 (N/A, Fri, 3 Oct 2025 22:20:00 -0700)
 
 - **Le résumé de Egypte - Nouvelle-Zélande**: [Link](https://www.lequipe.fr/Football/Video/Le-resume-de-egypte-nouvelle-zelande/20217910)
