@@ -1,3 +1,10 @@
+### ملك المغرب محمد السادس (N/A, Sat, 4 Oct 2025 05:10:00 -0700)
+
+- **الملك محمد السادس: محطات في حياته وحكمه**: [Link](https://www.bbc.com/arabic/articles/ce3y75zwzqvo)
+- **أخبار العالم : الملك محمد السادس: محطات في حياته وحكمه**: [Link](https://www.nafeza2world.com/Akhbar-Al-Alm/2330381)
+- **الملك محمد السادس: محطات في حياته وحكمه**: [Link](https://a5r5br.net/international/international-news/6658200-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%85%D8%AD%D8%B7%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AD%D9%8A%D8%A7%D8%AA%D9%87-%D9%88%D8%AD%D9%83%D9%85%D9%87)
+
+
 ### real oviedo – levante (N/A, Sat, 4 Oct 2025 04:20:00 -0700)
 
 - **🔴La Liga EN VIVO: Jornada de tensión antes del parón**: [Link](https://onefootball.com/pt-br/noticias/la-liga-en-vivo-jornada-de-tension-antes-del-paron-41759539)
