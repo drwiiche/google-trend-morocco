@@ -1,3 +1,17 @@
+### maroc foot (N/A, Sat, 4 Oct 2025 14:10:00 -0700)
+
+- **Botola Pro Inwi: le FUS signe sa première victoire de la saison face à l’Ittihad de Tanger**: [Link](https://sport.le360.ma/football/botola/botola-pro-inwi-le-fus-signe-sa-premiere-victoire-de-la-saison-face-a-littihad-de-tanger_CFIXUMA4XRGVXBHAET7KNBRKWU/)
+- **Le RCAZ et le KACM ne se départagent pas**: [Link](https://www.lesiteinfo.com/sport/656618-le-rcaz-et-le-kacm-ne-se-departagent-pas.html)
+- **Botola Pro (J4) : Le FUS frappe fort à Tanger !**: [Link](https://www.lopinion.ma/Botola-Pro-J4-Le-FUS-frappe-fort-a-Tanger-_a72483.html)
+
+
+### كأس العالم تحت 20 سنة 2025 (N/A, Sat, 4 Oct 2025 14:10:00 -0700)
+
+- **شاهد.. لقطة الموسم من فوز مصر على تشيلي بكأس العالم للشباب**: [Link](https://www.aljazeera.net/sport/2025/10/4/%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D9%82%D8%B7%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D9%85%D9%86-%D9%81%D9%88%D8%B2-%D9%85%D8%B5%D8%B1)
+- **بعد صدمة اللعب النظيف.. سيناريوهات معقدة ترسم حظوظ تأهل منتخب مصر إلى ثمن نهائي مونديال الشباب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D9%85%D8%B9%D9%82%D8%AF%D8%A9-%D8%AA%D8%B1%D8%B3%D9%85-%D8%AD%D8%B8%D9%88%D8%B8-%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D9%84%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/bltdfe98296271232c2)
+- **مؤلف ومخرج مباراة مصروتشيلى**: [Link](https://www.shorouknews.com/mobile/columns/view.aspx?cdate=04102025&id=f1ec512e-17fd-4e61-884e-a8521c7f094a)
+
+
 ### ريال مدريد اليوم (N/A, Sat, 4 Oct 2025 14:00:00 -0700)
 
 - **توهج رودريجو يحرج ألونسو.. ويهدد فينيسيوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D9%87%D8%AC-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A%D8%AC%D9%88-%D9%8A%D8%AD%D8%B1%D8%AC-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88--%D9%88%D9%8A%D9%87%D8%AF%D8%AF-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3/blt40c4e38b0280a4ec)
