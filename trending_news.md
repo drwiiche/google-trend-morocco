@@ -1,3 +1,17 @@
+### tgcc (N/A, Sat, 4 Oct 2025 15:30:00 -0700)
+
+- **TGCC et Jet Contractors : deux valeurs du BTP au cœur des attentes en bourse**: [Link](https://medias24.com/2025/10/04/tgcc-et-jet-contractors-deux-valeurs-du-btp-au-coeur-des-attentes-en-bourse/)
+- **TGCC : Le RNPG bondit de 60,6% au 1er semestre**: [Link](https://www.lavieeco.com/argent/tgcc-le-rnpg-bondit-de-606-au-1er-semestre/)
+- **TGCC : résultat net en hausse de 60,6 % à 416 MDH au S1-2025**: [Link](https://ecoactu.ma/tgcc-resultat-net-en-hausse-de-606-a-416-mdh/)
+
+
+### world cup u20 (N/A, Sat, 4 Oct 2025 13:30:00 -0700)
+
+- **Spain vs Brazil LIVE Score Updates in U-20 World Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/04/1236253-spain-vs-brazil-live-updates-in-u20-world-cup.html)
+- **Spain Brazil U20 WCup Soccer**: [Link](https://www.couriernews.com/sports/spain-brazil-u20-wcup-soccer/image_77b01af7-5c0c-5fed-93e4-da5e09b52747.html)
+- **Why are Lamine Yamal and Endrick not playing today in Spain vs Brazil at 2025 FIFA U-20 World Cup?**: [Link](https://bolavip.com/en/soccer/why-are-lamine-yamal-and-endrick-not-playing-today-in-spain-vs-brazil-at-2025-fifa-u-20-world-cup)
+
+
 ### brazil u20 (N/A, Sat, 4 Oct 2025 14:40:00 -0700)
 
 - **Spain vs Brazil LIVE Score Updates: Bravo opens the scoring (1-0)**: [Link](https://www.vavel.com/en-us/soccer/2025/10/04/1236253-spain-vs-brazil-live-updates-in-u20-world-cup.html)
