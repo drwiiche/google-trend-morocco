@@ -1,3 +1,10 @@
+### mexique u-20 – équipe du maroc des moins de 20 ans de football (N/A, Sat, 4 Oct 2025 12:20:00 -0700)
+
+- **Coupe du Monde masculine U20 de la FIFA Chili 2025: Les Lionceaux de l’Atlas en huitièmes de finales**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%AB/)
+- **Maroc - Mexique U20. Quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/10/04/maroc-mexique-u20-quelle-heure-quelles-chaines/)
+- **Mondial U20 : les lionceaux de l’Atlas aspirent à remporter le titre (Ouahbi)**: [Link](https://lematin.ma/sports/mondial-u20-les-lionceaux-de-latlas-veulent-remporter-le-titre-ouahbi/305592)
+
+
 ### atalanta – côme (N/A, Sat, 4 Oct 2025 12:10:00 -0700)
 
 - **Match Preview Atalanta vs Como**: [Link](https://comofootball.com/match-preview-atalanta-vs-como/)
