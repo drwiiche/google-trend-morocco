@@ -1,3 +1,17 @@
+### brazil u20 (N/A, Sat, 4 Oct 2025 14:40:00 -0700)
+
+- **Spain vs Brazil LIVE Score Updates: Bravo opens the scoring (1-0)**: [Link](https://www.vavel.com/en-us/soccer/2025/10/04/1236253-spain-vs-brazil-live-updates-in-u20-world-cup.html)
+- **Spain vs Brazil LIVE Score Updates in U-20 World Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/04/1236253-spain-vs-brazil-live-updates-in-u20-world-cup.html)
+- **Spain Brazil U20 WCup Soccer**: [Link](https://www.chronicleonline.com/sports/soccer/spain-brazil-u20-wcup-soccer/image_7cd77546-c552-5d1c-ad59-7623bee65201.html)
+
+
+### فضل شاكر (N/A, Sat, 4 Oct 2025 14:40:00 -0700)
+
+- **المغني فضل شاكر يسلم نفسه للجيش اللبناني بعد فراره من العدالة لسنوات**: [Link](https://www.alarabiya.net/arab-and-world/2025/10/04/%D8%A7%D9%86%D8%A8%D8%A7%D8%A1-%D8%B9%D9%86-%D8%AA%D8%B3%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%81%D8%B6%D9%84-%D8%B4%D8%A7%D9%83%D8%B1-%D9%86%D9%81%D8%B3%D9%87-%D9%84%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%84%D8%A8%D9%86%D8%A7%D9%86%D9%8A)
+- **الفنان فضل شاكر يسلّم نفسه إلى الجيش اللبناني**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%81%D8%B6%D9%84-%D8%B4%D8%A7%D9%83%D8%B1-%D9%8A%D8%B3%D9%84%D9%91%D9%85-%D9%86%D9%81%D8%B3%D9%87-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84/)
+- **فضل شاكر يسلم نفسه إلى مخابرات الجيش اللبناني**: [Link](https://arabic.cnn.com/entertainment/article/2025/10/04/fadel-shaker-surrenders-himself-to-lebanese-army-intelligence)
+
+
 ### ufc 320 (N/A, Sat, 4 Oct 2025 14:20:00 -0700)
 
 - **Official Scorecards | UFC 320: Ankalaev vs Pereira 2**: [Link](https://www.ufc.com/news/ufc-320-ankalaev-vs-pereira-2-official-scorecards-las-vegas)
