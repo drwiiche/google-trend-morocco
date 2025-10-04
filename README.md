@@ -1,3 +1,17 @@
+### real madrid match (N/A, Sat, 4 Oct 2025 13:00:00 -0700)
+
+- **DIRECT. Real Madrid-Villarreal (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-madrid-villarreal-live/676785)
+- **Real Madrid-Villarreal : les compositions officielles**: [Link](https://www.footmercato.net/a1928427623770321282-real-madrid-villarreal-les-compositions-officielles)
+- **Villarreal : Marcelino ne va « rien préparer de spécial » pour Mbappé**: [Link](https://sports.orange.fr/football/espagne/article/villarreal-marcelino-ne-va-rien-preparer-de-special-pour-mbappe-CNT000002l2lrn.html)
+
+
+### sanae takaichi (N/A, Sat, 4 Oct 2025 12:50:00 -0700)
+
+- **Sanae Takaichi set to become Japan's first female prime minister**: [Link](https://www.bbc.com/news/articles/cx2pmy7m72lo)
+- **Takaichi poised to become Japan's first female PM after winning LDP poll**: [Link](https://www.japantimes.co.jp/news/2025/10/04/japan/politics/ldp-election-winner-takaichi/)
+- **Japan's ruling party to pick new leader, hoping to revive fortunes**: [Link](https://www.reutersconnect.com/item/japans-ruling-party-to-pick-new-leader-hoping-to-revive-fortunes/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1JDMlg0SEE0R1c5Rg%3D%3D/?utm_medium=rcom-article-media&utm_campaign=rcom-rcp-lead)
+
+
 ### real madrid (N/A, Sat, 4 Oct 2025 12:30:00 -0700)
 
 - **Posible alineación del Real Madrid contra el Villarreal en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-villarreal-en-laliga-ea-sports-n-2/)
