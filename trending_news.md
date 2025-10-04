@@ -1,3 +1,30 @@
+### real madrid (N/A, Sat, 4 Oct 2025 12:30:00 -0700)
+
+- **Posible alineación del Real Madrid contra el Villarreal en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-villarreal-en-laliga-ea-sports-n-2/)
+- **Fede Valverde, titular en el lateral derecho en un once sin Bellingham**: [Link](https://www.msn.com/es-us/noticias/mundo/fede-valverde-titular-en-el-lateral-derecho-en-un-once-sin-bellingham/ar-AA1NRDGE)
+- **Real Madrid, con Franco Mastantuono de titular, recibe a Villarreal por la Liga de España: minuto a minuto, en directo**: [Link](https://www.clarin.com/deportes/real-madrid-franco-mastantuono-titular-recibe-villarreal-liga-espana-minuto-minuto-directo_0_KmLQfsnGlZ.html)
+
+
+### mexico u-20 vs morocco u-20 (N/A, Sat, 4 Oct 2025 12:30:00 -0700)
+
+- **Where can you watch the U-20 national team take on Morocco LIVE?**: [Link](https://www.chivasdecorazon.com.mx/en/noticias/39919/Dnde-ver-EN-VIVO-a-los-Rojiblancos-de-Seleccin-Sub-20-ante-Marruecos)
+- **Mexico vs. Morocco: How to Watch, Odds, U-20 Preview**: [Link](https://www.msn.com/en-us/sports/fifa_world_cup/mexico-vs-morocco-how-to-watch-odds-u-20-preview/ar-AA1NR9E9)
+- **U20 World Cup: What starting XI for Morocco against Mexico?**: [Link](https://foot-africa.com/en/news/u20-world-cup-what-starting-xi-for-morocco-against-mexico-905703/)
+
+
+### المكسيك تحت 20 ضد منتخب المغرب تحت 20 سنة لكرة القدم (N/A, Sat, 4 Oct 2025 12:20:00 -0700)
+
+- **مباشر.. مباراة المغرب ضد المكسيك في كأس العالم للشباب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/4/morocco-vs-mexico)
+- **المغرب يعبر لثمن نهائي مونديال الشباب على أكتاف البرازيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B9%D8%A8%D8%B1-%D9%84%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D9%83%D8%AA%D8%A7%D9%81-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84/bltf2f5eb05f9e8ca6b)
+- **تشكيلة المنتخب الوطني لاقل من 20سنة امام المكسيك**: [Link](https://frmf.ma/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-20%D8%B3%D9%86%D8%A9-%D8%A7%D9%85%D8%A7%D9%85/)
+
+
+### zwolle – psv eindhoven (N/A, Sat, 4 Oct 2025 11:30:00 -0700)
+
+- **All About | 25th edition PEC Zwolle - PSV is all about revenge**: [Link](https://www.psv.nl/en/media/artikel/alles-over-25e-editie-pec-zwolle-psv-staat-in-het-teken-van-revanche)
+- **Preview: PEC Zwolle vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/pec-zwolle/preview/pec-zwolle-vs-psv-prediction-team-news-lineups_582846.html)
+
+
 ### mexique u-20 – équipe du maroc des moins de 20 ans de football (N/A, Sat, 4 Oct 2025 12:20:00 -0700)
 
 - **Coupe du Monde masculine U20 de la FIFA Chili 2025: Les Lionceaux de l’Atlas en huitièmes de finales**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%AB/)
