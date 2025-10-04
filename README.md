@@ -1,3 +1,10 @@
+### gen z 213 algerie (N/A, Sat, 4 Oct 2025 07:10:00 -0700)
+
+- **Algérie: les appels à manifester de la Gen Z 213 restent pour l'instant sans effet**: [Link](https://www.rfi.fr/fr/afrique/20251004-alg%C3%A9rie-les-appels-%C3%A0-manifester-de-la-gen-z-213-restent-pour-l-instant-sans-effet)
+- **Gen Z : en Algérie, la crainte d’une résurrection du Hirak**: [Link](https://www.jeuneafrique.com/1727522/societe/gen-z-en-algerie-la-crainte-dune-resurrection-du-hirak/)
+- **Appels à manifester au Maroc et en Algérie, nouvelle colère de la jeunesse des pays du Sud contre les élites**: [Link](https://www.radiofrance.fr/franceculture/podcasts/la-revue-de-presse-internationale/la-revue-de-presse-internationale-emission-du-vendredi-03-octobre-2025-8254560)
+
+
 ### آرسنال ضد وست هام (N/A, Sat, 4 Oct 2025 06:50:00 -0700)
 
 - **رسائل عن ساكا وتيمبر وأحلام البريميرليج.. أرتيتا يتحدث قبل موقعة وست هام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A--%D9%88%D8%A7%D9%94%D8%AD%D9%84%D8%A7%D9%85-%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%80300/blt23bc60aecb23cff3)
