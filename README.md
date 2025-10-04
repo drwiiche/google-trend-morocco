@@ -1,3 +1,10 @@
+### أتلتيك بيلباو ضد مايوركا (N/A, Sat, 4 Oct 2025 10:30:00 -0700)
+
+- **Athletic Bilbao vs Mallorca.. الموعد والقنوات الناقلة لمباراة أتلتيك بيلباو ضد ريال مايوركا في الدوري الإسباني**: [Link](https://zahraa.mr/5925328/athletic-bilbao-vs-mallorca-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7/)
+- **تشويق الليلة.. كيفية مشاهدة مباراة أتلتيكو مدريد ضد ريال مايوركا اليوم في الدوري الإسباني بخطوات سهلة ومباشرة**: [Link](https://arabsport.org/2025/10/03/%D8%AA%D8%B4%D9%88%D9%8A%D9%82-%D8%A7%D9%84%D9%84%D9%8A%D9%84%D8%A9-%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA/)
+- **الموعد والقنوات الناقلة لمباراة أتلتيك بيلباو و ريال مايوركا برسم الدوري الإسباني**: [Link](https://alamriyadi.com/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA-58/)
+
+
 ### galatasaray – besiktas (N/A, Sat, 4 Oct 2025 10:10:00 -0700)
 
 - **Galatasaray 0-1 Beşiktaş**: [Link](https://www.cnnturk.com/spor/futbol/live-galatasaray-besiktas-maci-bein-sports-1-canli-izle-galatasaray-besiktas-maci-bein-sports-1-sifresiz-izle-galatasaray-2343231)
