@@ -1,3 +1,17 @@
+### inter miami – new england (N/A, Sat, 4 Oct 2025 15:50:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF in Action at Home Against New England Revolution**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-in-action-at-home-against-new-england-revolution)
+- **Inter Miami vs New England Revolution LIVE score, Major League Soccer: Messi in starting lineup for MIA v NE**: [Link](https://sportstar.thehindu.com/football/inter-miami-vs-new-england-revolution-live-score-results-lionel-messi-updates-major-league-soccer-highlights-predictions/article70126238.ece)
+- **New England Revolution to face Lionel Messi and Inter Miami in Florida**: [Link](https://www.heraldnews.com/story/news/local/ojornal/2025/10/03/revolution-to-face-lionel-messi-and-inter-miami-in-final-road-game/86505492007/)
+
+
+### bresil espagne u20 (N/A, Sat, 4 Oct 2025 14:50:00 -0700)
+
+- **Football - Coupe du monde U20 : Le résumé d'Espagne - Mexique**: [Link](https://www.lequipe.fr/Football/Video/Coupe-du-monde-u20-le-resume-d-espagne-mexique/20217990)
+- **Coupe du Monde U20 2025 : l’Espagne et le Brésil dos à dos à la pause (0-0)**: [Link](https://africafootunited.com/coupe-du-monde-u20-2025-lespagne-et-le-bresil-dos-a-dos-a-la-pause-0-0/)
+- **Football : Coupe du monde U20 sur L'Equipe : résumé et diffusions**: [Link](https://programmetv.ouest-france.fr/sport/football/football-coupe-du-monde-u20-m217257271/football-coupe-du-monde-u20-c390847175/)
+
+
 ### tgcc (N/A, Sat, 4 Oct 2025 15:30:00 -0700)
 
 - **TGCC et Jet Contractors : deux valeurs du BTP au cœur des attentes en bourse**: [Link](https://medias24.com/2025/10/04/tgcc-et-jet-contractors-deux-valeurs-du-btp-au-coeur-des-attentes-en-bourse/)
