@@ -1,3 +1,10 @@
+### coupe du monde u20 2025 (N/A, Fri, 3 Oct 2025 22:20:00 -0700)
+
+- **Le résumé de Egypte - Nouvelle-Zélande**: [Link](https://www.lequipe.fr/Football/Video/Le-resume-de-egypte-nouvelle-zelande/20217910)
+- **Mondial U20 : à quelle heure et sur quelle chaîne suivre le match entre l'Egypte et le Chili ?**: [Link](https://foot-africa.com/actualites/mondial-u20-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-entre-legypte-et-le-chili-904254/)
+- **Le résumé de Panama - Ukraine - Foot**: [Link](https://sports.orange.fr/videos/football/le-resume-de-panama-ukraine-foot-CNT000002kYNSW.html)
+
+
 ### heure maroc (N/A, Sat, 4 Oct 2025 00:20:00 -0700)
 
 - **Coupe du Monde masculine U20 de la FIFA Chili 2025: Les Lionceaux de l’Atlas en huitièmes de finales**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%AB/)
