@@ -1,3 +1,17 @@
+### panne de courant (N/A, Sat, 4 Oct 2025 01:00:00 -0700)
+
+- **Cinq mois après la méga-panne électrique en Espagne et au Portugal, un rapport révèle qu'il s'agit de "la première" liée à une surtension en Europe**: [Link](https://www.bfmtv.com/economie/entreprises/energie/cinq-mois-apres-la-mega-panne-electrique-en-espagne-et-au-portugal-un-rapport-revele-qu-il-s-agit-de-la-premiere-liee-a-une-surtension-en-europe_AD-202510030450.html)
+- **Espagne : la panne géante d’avril, un phénomène inédit de surtension**: [Link](https://mobile.telquel.ma/instant-t/2025/10/03/espagne-la-panne-geante-davril-un-phenomene-inedit-de-surtension_1953928/)
+- **Électricité : la régulation de la tension au cœur du black-out espagnol**: [Link](https://www.latribune.fr/article/entreprises-finance/energie-environnement/86373752736389/electricite-la-regulation-de-la-tension-au-coeur-du-black-out-espagnol)
+
+
+### الجزيرة نت (N/A, Fri, 3 Oct 2025 22:30:00 -0700)
+
+- **حركة "جيل زد" في المغرب تدعو لمظاهرات جديدة**: [Link](https://www.aljazeera.net/news/2025/10/3/%D8%AD%D8%B1%D9%83%D8%A9-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D9%85%D8%B8%D8%A7%D9%87%D8%B1%D8%A7%D8%AA)
+- **احتجاجات "جيل زد" المغربي بالأرقام**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A%D8%A9/20251003-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A3%D8%B1%D9%82%D8%A7%D9%85-212)
+- **وزراء مغاربة يدعون "جيل زد" للحوار ووقف الاحتجاجات والتخريب**: [Link](https://www.alarabiya.net/north-africa/morocco/2025/10/02/%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D8%AF%D8%B9%D9%88%D9%86-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A7%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D9%88%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D9%88%D8%A7%D8%B9%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%AE%D8%B1%D9%8A%D8%A8)
+
+
 ### العمق (N/A, Fri, 3 Oct 2025 22:50:00 -0700)
 
 - **حركة "جيل زد" في المغرب تدعو لمظاهرات جديدة**: [Link](https://www.aljazeera.net/news/2025/10/3/%D8%AD%D8%B1%D9%83%D8%A9-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D9%85%D8%B8%D8%A7%D9%87%D8%B1%D8%A7%D8%AA)
