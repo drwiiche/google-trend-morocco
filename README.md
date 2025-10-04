@@ -1,3 +1,10 @@
+### chelsea – liverpool (N/A, Sat, 4 Oct 2025 08:40:00 -0700)
+
+- **Salah, Anelka & Co. - Every player to play for Chelsea & Liverpool since 2000 ahead of PL clash**: [Link](https://www.transfermarkt.com/salah-anelka-amp-co-every-player-to-play-for-chelsea-amp-liverpool-since-2000-ahead-of-pl-clash/view/news/461237)
+- **'We'll do everything to win' - Ryan Gravenberch on Reds responding at Chelsea**: [Link](https://www.liverpoolfc.com/news/well-do-everything-win-ryan-gravenberch-reds-responding-chelsea)
+- **Enzo Maresca expresses concerns over Chelsea's defensive line ahead of Liverpool clash**: [Link](https://www.si.com/onsi/soccer/chelsea/news/enzo-maresca-expresses-concerns-over-defensive-line-liverpool-clash-01k6q9sv9pw1)
+
+
 ### inter – cremonese (N/A, Sat, 4 Oct 2025 08:20:00 -0700)
 
 - **LIVE Alle 18 Inter-Cremonese: Chivu con Lautaro e Bonny**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/04-10-2025/inter-cremonese-live-la-diretta.shtml)
