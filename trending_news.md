@@ -1,3 +1,10 @@
+### arsenal vs west ham (N/A, Sat, 4 Oct 2025 07:10:00 -0700)
+
+- **Odegaard on his fitness and UCL excitement**: [Link](https://www.arsenal.com/news/odegaard-his-fitness-and-ucl-excitement)
+- **Spotted: Odegaard leaves field frustrated following early injury vs West Ham**: [Link](https://tribuna.com/en/blogs/spotted-odegaard-leaves-field-frustrated-following-early-inj/)
+- **Arsenal: New tile for Martin Odegaard**: [Link](https://frenchfootballweekly.com/2025/10/04/arsenal-new-tile-for-martin-odegaard/)
+
+
 ### chelsea f.c. vs liverpool f.c. timeline (N/A, Sat, 4 Oct 2025 07:30:00 -0700)
 
 - **Salah, Anelka & Co. - Every player to play for Chelsea & Liverpool since 2000 ahead of PL clash**: [Link](https://www.transfermarkt.com/salah-anelka-amp-co-every-player-to-play-for-chelsea-amp-liverpool-since-2000-ahead-of-pl-clash/view/news/461237)
