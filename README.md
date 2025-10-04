@@ -1,3 +1,17 @@
+### girona – valence (N/A, Sat, 4 Oct 2025 06:30:00 -0700)
+
+- **Trois semaines d’absence pour Azzedine Ounahi**: [Link](https://sport.le360.ma/football/liga/trois-semaines-dabsence-pour-azzedine-ounahi_FCURR3LYXZEX5I757DSSV47ZXI/)
+- **DIRECT. Gérone-Valence CF (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/girona-valence-cf-live/676784)
+- **Blessé, Ounahi absent trois semaines : coup dur pour Girona et le Maroc?**: [Link](https://lionsdelatlas.ma/blesse-ounahi-absent-trois-semaines-un-coup-dur-pour-et-le-maroc/)
+
+
+### lazio – torino (N/A, Sat, 4 Oct 2025 06:30:00 -0700)
+
+- **Lazio-Torino, le ultime dai campi: granata in campo**: [Link](https://www.toronews.net/toro/lazio-torino-le-ultime-dai-campi-3/)
+- **Lazio-Torino, le formazioni ufficiali**: [Link](https://www.torinofc.it/news/04/10/2025/lazio-torino-le-formazioni-ufficiali_38453)
+- **Torino, i convocati di Baroni per la Lazio: OUT Anjorin e Ismajli. Torna Ilic**: [Link](https://onefootball.com/en/news/torino-i-convocati-di-baroni-per-la-lazio-out-anjorin-e-ismajli-torna-ilic-41759617)
+
+
 ### مان يونايتد ضد سندرلاند (N/A, Sat, 4 Oct 2025 06:30:00 -0700)
 
 - **أموريم: لا يمكننا الهروب من النتائج.. ولدينا تركة الموسم الماضي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%85%D9%88%D8%B1%D9%8A%D9%85-%D9%83%D9%86%D8%A7-%D9%85%D9%81%D9%83%D9%83%D9%8A%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF--%D9%88%D9%84%D8%A7-%D9%8A%D9%85%D9%83%D9%86%D9%86%D8%A7-%D8%A7%D9%84%D9%87%D8%B1%D9%88%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D9%8A%D9%94%D8%AC/blt74b7070ecb6d4938)
