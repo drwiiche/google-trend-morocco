@@ -1,3 +1,17 @@
+### heure maroc (N/A, Sat, 4 Oct 2025 00:20:00 -0700)
+
+- **Coupe du Monde masculine U20 de la FIFA Chili 2025: Les Lionceaux de l’Atlas en huitièmes de finales**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%AB/)
+- **Match Maroc-Mexique : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-mexique-a-quelle-heure-et-sur-quelles-chaines/305347)
+- **Mondial U20 : le Maroc domine le Brésil et valide son billet pour les huitièmes de finale**: [Link](https://ledesk.ma/2025/10/02/mondial-u20-le-maroc-domine-le-bresil-et-valide-son-billet-pour-les-huitiemes-de-finale/)
+
+
+### u20 (N/A, Fri, 3 Oct 2025 22:50:00 -0700)
+
+- **U20 World Cup: What time and on which channel to watch the match between Morocco and Mexico?**: [Link](https://foot-africa.com/en/news/u20-world-cup-what-time-and-on-which-channel-to-watch-the-match-between-morocco-and-mexico-905298/)
+- **Morocco-Mexico U20 World Cup: Atlas Lions ready for Saturday's match**: [Link](https://dailysports.net/news/morocco-mexico-u20-world-cup-atlas-lions-ready-for-saturdays-match/)
+- **Othmane Maamma: Morocco’s breakout star lighting up the U-20 World Cup**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/othmane-maamma-morocco-s-breakout-star-lighting-up-the-u-20-world-cup/)
+
+
 ### الجزيرة (N/A, Fri, 3 Oct 2025 22:20:00 -0700)
 
 - **غزّيون يبتهجون بعد رد حماس على خطة وقف الحرب**: [Link](https://www.aljazeera.net/news/2025/10/4/%D8%BA%D8%B2%D9%8A%D9%88%D9%86-%D9%8A%D8%A8%D8%AA%D9%87%D8%AC%D9%88%D9%86-%D8%A8%D8%B9%D8%AF-%D8%B1%D8%AF-%D8%AD%D9%85%D8%A7%D8%B3-%D8%B9%D9%84%D9%89-%D8%AE%D8%B7%D8%A9-%D9%88%D9%82%D9%81)
