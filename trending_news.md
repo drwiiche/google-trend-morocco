@@ -1,3 +1,10 @@
+### chelsea f.c. vs liverpool f.c. timeline (N/A, Sat, 4 Oct 2025 07:30:00 -0700)
+
+- **Salah, Anelka & Co. - Every player to play for Chelsea & Liverpool since 2000 ahead of PL clash**: [Link](https://www.transfermarkt.com/salah-anelka-amp-co-every-player-to-play-for-chelsea-amp-liverpool-since-2000-ahead-of-pl-clash/view/news/461237)
+- **'We'll do everything to win' - Ryan Gravenberch on Reds responding at Chelsea**: [Link](https://www.liverpoolfc.com/news/well-do-everything-win-ryan-gravenberch-reds-responding-chelsea)
+- **Premier League: Date, kick-off time, TV channels and probable line-ups for the Chelsea vs Liverpool clash**: [Link](https://foot-africa.com/en/news/premier-league-date-kick-off-time-tv-channels-and-probable-line-ups-for-the-chelsea-vs-liverpool-clash-905358/)
+
+
 ### metz – marseille (N/A, Sat, 4 Oct 2025 07:20:00 -0700)
 
 - **Comment De Zerbi s’est créé un problème de riche**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-i-metz-om-7e-journee-i-comment-roberto-de-zerbi-sest-cree-un-probleme-de-riche-a-lolympique-de-marseille_sto23227142/story.shtml)
