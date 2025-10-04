@@ -1,3 +1,17 @@
+### manchester united – sunderland (N/A, Sat, 4 Oct 2025 06:10:00 -0700)
+
+- **Preview: Sunderland next up for Amorim’s United**: [Link](https://www.fotmob.com/pt-PT/topnews/23255-preview-sunderland-next-up-amorims-united?utm_source=fotmob)
+- **Newly-promoted Black Cats can slay Red Devils**: [Link](https://newswav.com/article/newly-promoted-black-cats-can-slay-red-devils-A2510_ykKtX9)
+- **I feel for Ruben Amorim – he can't be blamed for two terrible Man United incidents**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/feel-ruben-amorim--cant-32609587)
+
+
+### arsenal – west ham (N/A, Sat, 4 Oct 2025 06:10:00 -0700)
+
+- **Eberechi Eze, Martin Odegaard or both - what does Mikel Arteta do with his Arsenal attack?**: [Link](https://www.skysports.com/football/news/11095/13442809/eberechi-eze-martin-odegaard-or-both-what-does-mikel-arteta-do-with-his-arsenal-attack)
+- **Mikel Arteta on reaching 300 games in charge | Press conference | News**: [Link](https://www.arsenal.com/news/mikel-arteta-reaching-300-games-charge)
+- **Official Arsenal team to face West Ham United – Trossard and Eze start**: [Link](https://onefootball.com/en/news/official-arsenal-team-to-face-west-ham-united-trossard-and-eze-start-41760020)
+
+
 ### leverkusen – union berlin (N/A, Sat, 4 Oct 2025 06:00:00 -0700)
 
 - **Hjulmand und Bayer: Kampf gegen das Kopfkino**: [Link](https://www.kicker.de/hjulmand-und-bayer-kampf-gegen-das-kopfkino-1152373/artikel)
