@@ -1,3 +1,10 @@
+### ufc 320 (N/A, Sat, 4 Oct 2025 14:20:00 -0700)
+
+- **Official Scorecards | UFC 320: Ankalaev vs Pereira 2**: [Link](https://www.ufc.com/news/ufc-320-ankalaev-vs-pereira-2-official-scorecards-las-vegas)
+- **UFC 320 predictions**: [Link](https://www.mmafighting.com/ufc/406542/ufc-320-predictions)
+- **Alex Pereira Net Worth 2025: How much does Alex Pereira get paid by the UFC?**: [Link](https://www.marca.com/en/lifestyle/celebrity-net-worth/2025/10/04/68e159c622601dc13a8b45d0.html)
+
+
 ### maroc foot (N/A, Sat, 4 Oct 2025 14:10:00 -0700)
 
 - **Botola Pro Inwi: le FUS signe sa première victoire de la saison face à l’Ittihad de Tanger**: [Link](https://sport.le360.ma/football/botola/botola-pro-inwi-le-fus-signe-sa-premiere-victoire-de-la-saison-face-a-littihad-de-tanger_CFIXUMA4XRGVXBHAET7KNBRKWU/)
