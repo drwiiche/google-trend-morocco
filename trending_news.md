@@ -1,3 +1,10 @@
+### real oviedo – levante (N/A, Sat, 4 Oct 2025 04:20:00 -0700)
+
+- **🔴La Liga EN VIVO: Jornada de tensión antes del parón**: [Link](https://onefootball.com/pt-br/noticias/la-liga-en-vivo-jornada-de-tension-antes-del-paron-41759539)
+- **Aarón Escandell y Etta Eyong, duelo de revelaciones en las dos áreas**: [Link](https://as.com/futbol/primera/aaron-y-etta-eyong-duelo-de-revelaciones-en-las-dos-areas-n/)
+- **El Levante UD quiere bajar de la nube al Oviedo**: [Link](https://plazadeportiva.valenciaplaza.com/plazadeportiva/levanteud/el-levante-ud-quiere-bajar-de-la-nube-al-oviedo)
+
+
 ### twitch (N/A, Sat, 4 Oct 2025 04:00:00 -0700)
 
 - **TikTok, YouTube, Twitch Pitch Themselves as Partners to Film, TV Execs In Spain**: [Link](https://www.hollywoodreporter.com/business/digital/youtube-tiktok-twitch-entertainment-partners-iberseries-1236391806/)
