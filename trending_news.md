@@ -1,3 +1,10 @@
+### مان يونايتد ضد سندرلاند (N/A, Sat, 4 Oct 2025 06:30:00 -0700)
+
+- **أموريم: لا يمكننا الهروب من النتائج.. ولدينا تركة الموسم الماضي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%85%D9%88%D8%B1%D9%8A%D9%85-%D9%83%D9%86%D8%A7-%D9%85%D9%81%D9%83%D9%83%D9%8A%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF--%D9%88%D9%84%D8%A7-%D9%8A%D9%85%D9%83%D9%86%D9%86%D8%A7-%D8%A7%D9%84%D9%87%D8%B1%D9%88%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D9%8A%D9%94%D8%AC/blt74b7070ecb6d4938)
+- **أموريم يواجه «عُقدة المباراة 50» لمدربي اليونايتد!**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4610840/%D8%A3%D9%85%D9%88%D8%B1%D9%8A%D9%85-%D9%8A%D9%88%D8%A7%D8%AC%D9%87--%D8%B9%D9%82%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-50--%D9%84%D9%85%D8%AF%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF)
+- **موعد مباراة مانشستر يونايتد وسندرلاند في الدوري الإنجليزي والقنوات الناقلة**: [Link](https://alwatannews.net/watan-sports/article/4060171/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+
+
 ### manchester united – sunderland (N/A, Sat, 4 Oct 2025 06:10:00 -0700)
 
 - **Preview: Sunderland next up for Amorim’s United**: [Link](https://www.fotmob.com/pt-PT/topnews/23255-preview-sunderland-next-up-amorims-united?utm_source=fotmob)
