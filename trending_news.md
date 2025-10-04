@@ -1,3 +1,8 @@
+### bein sport (N/A, Sat, 4 Oct 2025 13:10:00 -0700)
+
+- **The next 9 Ligue 1 matches broadcast on beIN SPORTS**: [Link](https://frenchfootballweekly.com/2025/10/04/the-next-9-ligue-1-matches-broadcast-on-bein-sports/)
+
+
 ### real madrid match (N/A, Sat, 4 Oct 2025 13:00:00 -0700)
 
 - **DIRECT. Real Madrid-Villarreal (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-madrid-villarreal-live/676785)
