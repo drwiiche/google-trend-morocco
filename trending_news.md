@@ -1,3 +1,24 @@
+### inter – cremonese (N/A, Sat, 4 Oct 2025 08:20:00 -0700)
+
+- **LIVE Alle 18 Inter-Cremonese: Chivu con Lautaro e Bonny**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/04-10-2025/inter-cremonese-live-la-diretta.shtml)
+- **Chivu “Abbiamo trovato un equilibrio, dispiace per Thuram”**: [Link](https://www.primaradio.net/chivu-abbiamo-trovato-un-equilibrio-dispiace-per-thuram-2/)
+- **The official line-ups for Inter vs. Cremonese**: [Link](https://www.inter.it/en/news/team-news-inter-cremonese-serie-a-25-26)
+
+
+### girona vs valencia (N/A, Sat, 4 Oct 2025 08:20:00 -0700)
+
+- **Where to Watch Girona FC vs. Valencia CF: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/10/03/where-to-watch-girona-fc-vs-valencia-cf-tv-channel-start-time-and-live-stream-2/)
+- **Live Updates Girona vs Valencia: Today’s LaLiga EA Sports Match Result and Goals**: [Link](https://emegypt.net/1002147)
+- **Preview: Girona vs Valencia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/preview/girona-vs-valencia-prediction-team-news-lineups_582819.html)
+
+
+### arsenal (N/A, Sat, 4 Oct 2025 07:50:00 -0700)
+
+- **Odegaard on his fitness and UCL excitement**: [Link](https://www.arsenal.com/news/odegaard-his-fitness-and-ucl-excitement)
+- **George Russell on pole for Singapore Grand Prix as Verstappen beats McLarens**: [Link](https://www.thederrick.com/ap/sports/george-russell-on-pole-for-singapore-grand-prix-as-verstappen-beats-mclarens/article_9e0cf7f0-caeb-502f-88d6-1acf3b4e9845.html)
+- **🤕 Arsenal midfielder suffers fresh injury setback against West Ham**: [Link](https://sports.yahoo.com/article/arsenal-midfielder-suffers-fresh-injury-144400845.html)
+
+
 ### manchester united (N/A, Sat, 4 Oct 2025 08:00:00 -0700)
 
 - **'Double the price' - cost of watching Man Utd for fan forced to move**: [Link](https://www.bbc.com/sport/football/articles/c15kypn0kqeo)
