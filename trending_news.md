@@ -1,3 +1,17 @@
+### trump (N/A, Fri, 3 Oct 2025 22:50:00 -0700)
+
+- **Live updates: Trump tells Israel to stop bombing Gaza as Hamas agrees to release hostages**: [Link](https://www.bbc.com/news/live/cn0xvnxqj2xt)
+- **Israel and Hamas signal willingness to move forward on Trump’s Gaza peace plan**: [Link](https://www.cnn.com/2025/10/03/politics/trump-hamas-deadline-gaza-deal)
+- **Netanyahu secured key edits to Trump plan, slowing and limiting IDF’s Gaza withdrawal**: [Link](https://www.timesofisrael.com/netanyahu-secures-key-edits-to-trump-plan-to-slow-and-limit-israels-withdrawal-from-gaza/)
+
+
+### u20 world cup 2025 (N/A, Fri, 3 Oct 2025 19:10:00 -0700)
+
+- **How To Watch: Australia U20 at the FIFA U-20 World Cup Chile 2025™**: [Link](https://socceroos.com.au/news/how-watch-australia-u20-fifa-u-20-world-cup-chile-2025tm)
+- **Thank you. I see the miracle round of 16 with good luck after beating Panama...Japan vanquished New Zealand 30**: [Link](https://en.sportschosun.com/sports/2025/10/thank-you-i-see-miracle-round-of-114107)
+- **Young All Whites bow out of FIFA U-20 World Cup 2025™ after Japan defeat**: [Link](https://www.oceaniafootball.com/young-all-whites-bow-out-of-fifa-u-20-world-cup-2025-after-japan-defeat/)
+
+
 ### كأس العالم للشباب 2025 (N/A, Fri, 3 Oct 2025 16:50:00 -0700)
 
 - **القنوات الناقلة مباشر لمباراة مصر ضد تشيلي في كأس العالم للشباب 2025**: [Link](https://www.almasryalyoum.com/news/details/3565328)
