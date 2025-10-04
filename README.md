@@ -1,3 +1,31 @@
+### ريال مدريد اليوم (N/A, Sat, 4 Oct 2025 14:00:00 -0700)
+
+- **توهج رودريجو يحرج ألونسو.. ويهدد فينيسيوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D9%87%D8%AC-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A%D8%AC%D9%88-%D9%8A%D8%AD%D8%B1%D8%AC-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88--%D9%88%D9%8A%D9%87%D8%AF%D8%AF-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3/blt40c4e38b0280a4ec)
+- **غوارديولا يعود إلى مطاردة نجم ريال مدريد**: [Link](https://www.alaraby.co.uk/sport/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D9%85%D8%B7%D8%A7%D8%B1%D8%AF%D8%A9-%D9%86%D8%AC%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **ريال مدريد يبيع رودريغو من أجل أوليس**: [Link](https://24.ae/article/921947/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%A8%D9%8A%D8%B9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A%D8%BA%D9%88-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%A3%D9%88%D9%84%D9%8A%D8%B3)
+
+
+### brazil vs spain u20 (N/A, Sat, 4 Oct 2025 13:40:00 -0700)
+
+- **Spain vs Brazil LIVE Score Updates in U-20 World Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/04/1236253-spain-vs-brazil-live-updates-in-u20-world-cup.html)
+- **Spain Brazil U20 WCup Soccer**: [Link](https://www.couriernews.com/sports/spain-brazil-u20-wcup-soccer/image_af3b7926-2598-588a-b62f-0076c72a84d8.html)
+- **Why are Lamine Yamal and Endrick not playing today in Spain vs Brazil at 2025 FIFA U-20 World Cup?**: [Link](https://bolavip.com/en/soccer/why-are-lamine-yamal-and-endrick-not-playing-today-in-spain-vs-brazil-at-2025-fifa-u-20-world-cup)
+
+
+### match real (N/A, Sat, 4 Oct 2025 13:40:00 -0700)
+
+- **Real Madrid-Villarreal: les Madrilènes rassurent grâce à un grand Vinicius, Mbappé est sorti sur blessure**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-real-madrid-villarreal-suivez-le-match-de-la-7e-journee-de-liga-en-live_LS-202510040287.html)
+- **Comment voir le match de Liga Real Madrid - Villarreal (chaîne, heure)**: [Link](https://www.20minutes.fr/sport/football/4176375-20251004-real-madrid-villarreal-chaine-heure-voir-match-liga-direct)
+- **Villarreal : Marcelino ne va « rien préparer de spécial » pour Mbappé**: [Link](https://sports.orange.fr/football/espagne/article/villarreal-marcelino-ne-va-rien-preparer-de-special-pour-mbappe-CNT000002l2lrn.html)
+
+
+### ياسين تيفي (N/A, Sat, 4 Oct 2025 12:50:00 -0700)
+
+- **«استمتع بمشاهدة المباريات والتشفير دون الحاجة لتسجيل الدخول»**: [Link](https://ar.alaann.press/%D8%A7%D8%B3%D8%AA%D9%85%D8%AA%D8%B9-%D8%A8%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%81%D9%8A%D8%B1-%D8%AF/)
+- **تطبيق ياسين تي في للأيفون yacine iptv ياسين ايبي تيفي**: [Link](https://pagearabic.com/2025/10/01/%D8%AA%D8%B7%D8%A8%D9%8A%D9%82-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%AA%D9%8A-%D9%81%D9%8A-%D9%84%D9%84%D8%A3%D9%8A%D9%81%D9%88%D9%86-yacine-iptv-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A7%D9%8A%D8%A8%D9%8A/)
+- **«استمتع بمشاهدة قناتك المفضلة مع تحميل تطبيق ياسين TV للجوال والكمبيوتر»**: [Link](https://ar.alaann.press/%D8%A7%D8%B3%D8%AA%D9%85%D8%AA%D8%B9-%D8%A8%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%82%D9%86%D8%A7%D8%AA%D9%83-%D8%A7%D9%84%D9%85%D9%81%D8%B6%D9%84%D8%A9-%D9%85%D8%B9-%D8%AA%D8%AD%D9%85%D9%8A/)
+
+
 ### bein sport (N/A, Sat, 4 Oct 2025 13:10:00 -0700)
 
 - **The next 9 Ligue 1 matches broadcast on beIN SPORTS**: [Link](https://frenchfootballweekly.com/2025/10/04/the-next-9-ligue-1-matches-broadcast-on-bein-sports/)
