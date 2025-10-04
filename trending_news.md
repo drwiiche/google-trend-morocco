@@ -1,3 +1,10 @@
+### aziz akhannouch (N/A, Fri, 3 Oct 2025 23:30:00 -0700)
+
+- **Au Maroc, la mobilisation inédite d’une partie de la jeunesse met le gouvernement à l’épreuve**: [Link](https://www.lemonde.fr/afrique/article/2025/10/01/au-maroc-la-mobilisation-inedite-d-une-partie-de-la-jeunesse-met-le-gouvernement-a-l-epreuve_6643833_3212.html)
+- **GenZ212 adresse un mémorandum au roi, demande la démission du gouvernement et une réforme politique globale**: [Link](https://mobile.telquel.ma/instant-t/2025/10/03/genz212-adresse-un-memorandum-au-roi-demande-la-demission-du-gouvernement-et-une-reforme-politique-globale_1953902/)
+- **GenZ 212 : des rassemblements annoncés dans 13 villes ce vendredi 3 octobre**: [Link](https://medias24.com/2025/10/03/genz-212-des-rassemblements-annonces-dans-13-villes-ce-vendredi-3-octobre/)
+
+
 ### trump (N/A, Fri, 3 Oct 2025 22:50:00 -0700)
 
 - **Live updates: Trump tells Israel to stop bombing Gaza as Hamas agrees to release hostages**: [Link](https://www.bbc.com/news/live/cn0xvnxqj2xt)
