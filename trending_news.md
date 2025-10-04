@@ -1,3 +1,10 @@
+### jane goodall (N/A, Sat, 4 Oct 2025 01:50:00 -0700)
+
+- **What Jane Goodall Taught Us About Living a Long Life**: [Link](https://www.nytimes.com/2025/10/02/well/jane-goodall-aging-long-life.html)
+- **Column | What Jane Goodall’s work with chimps can teach us about investing**: [Link](https://www.washingtonpost.com/business/2025/10/03/jane-goodall-investing-lessons/)
+- **Jane Goodall’s 11 Daily Habits That Helped Her Live 91 Years**: [Link](https://www.thehealthy.com/aging/healthy-aging/jane-goodalls-11-daily-habits-that-helped-her-live-91-years/)
+
+
 ### panne de courant (N/A, Sat, 4 Oct 2025 01:00:00 -0700)
 
 - **Cinq mois après la méga-panne électrique en Espagne et au Portugal, un rapport révèle qu'il s'agit de "la première" liée à une surtension en Europe**: [Link](https://www.bfmtv.com/economie/entreprises/energie/cinq-mois-apres-la-mega-panne-electrique-en-espagne-et-au-portugal-un-rapport-revele-qu-il-s-agit-de-la-premiere-liee-a-une-surtension-en-europe_AD-202510030450.html)
