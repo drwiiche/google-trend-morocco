@@ -1,3 +1,31 @@
+### آينتراخت ضد البايرن (N/A, Sat, 4 Oct 2025 10:00:00 -0700)
+
+- **قمة الأهداف المشتعلة.. كين يصطدم بأوزون في معركة بايرن وفرانكفورت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D8%AF%D8%A7%D9%81-%D8%A7%D9%84%D9%85%D8%B4%D8%AA%D8%B9%D9%84%D8%A9--%D9%83%D9%8A%D9%86-%D9%8A%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D8%A7%D9%94%D9%88%D8%B2%D9%88%D9%86-%D9%81%D9%8A-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%88%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA/bltb053cf32592111fa)
+- **مواجهتان ناريتان في البوندسليغا**: [Link](https://akhbar-alkhaleej.com/news/article/1415248)
+- **كومباني محذرا من قوة فرانكفورت: التركيز أهم من الأرقام**: [Link](https://www.elsport.com/news/show/794998/%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%AD%D8%B0%D8%B1%D8%A7-%D9%82%D9%88%D8%A9-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%B2-%D8%A3%D9%87%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85)
+
+
+### الإنتر ضد كريمونيسي (N/A, Sat, 4 Oct 2025 09:50:00 -0700)
+
+- **القنوات الناقلة لمباراة إنتر ميلان ضد كريمونيزي اليوم في الدوري الإيطالي مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/349376466366563-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B6%D8%AF-%D9%83%D8%B1%D9%8A%D9%85%D9%88%D9%86%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **كييفو يبقي لاعبي إنتر في حالة تأهب دائم**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5193374-%D9%83%D9%8A%D9%8A%D9%81%D9%88-%D9%8A%D8%A8%D9%82%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A5%D9%86%D8%AA%D8%B1-%D9%81%D9%8A-%D8%AD%D8%A7%D9%84%D8%A9-%D8%AA%D8%A3%D9%87%D8%A8-%D8%AF%D8%A7%D8%A6%D9%85)
+- **مباراتان ديربي في لومبارديا: إنتر يسعى للفوز الخامس على كريمونيزي، وأتالانتا يواجه كومو**: [Link](https://www.firstonline.info/ar/due-derby-in-lombardia-linter-cerca-la-quinta-vittoria-con-la-cremonese-latalanta-sfida-il-como/)
+
+
+### bayern munich (N/A, Sat, 4 Oct 2025 09:50:00 -0700)
+
+- **Career-high goals and assists - Harry Kane's evolving role at Bayern Munich this season**: [Link](https://www.transfermarkt.com/career-high-goals-and-assists-harry-kanes-evolving-role-at-bayern-munich-this-season/view/news/461235)
+- **Bayern's Kompany: Win Saturday, enjoy Oktoberfest Sunday**: [Link](https://www.espn.com/soccer/story/_/id/46477439/vincent-kompany-bayern-munich-oktoberfest-eintracht-frankfurt)
+- **Nathaniel Brown vs. Bayern Munich – Player props & odds to score a goal on October 4**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/03/nathaniel-brown-soccer-player-props-10-4-2025/86506621007/)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sat, 4 Oct 2025 09:50:00 -0700)
+
+- **هدافو ليفربول في الدوري الانجليزي**: [Link](https://hihi2.com/2025/10/04/p3411777.html)
+- **محمد صلاح يتفوق على رونالدو برقم تاريخى فى الدوري الإنجليزي**: [Link](https://www.youm7.com/story/2025/10/3/%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A8%D8%B1%D9%82%D9%85-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%89-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/7140375)
+- **جدول ترتيب هدافي البريميرليج قبل مباريات اليوم**: [Link](https://gate.ahram.org.eg/News/5297946.aspx)
+
+
 ### liverpool (N/A, Sat, 4 Oct 2025 09:40:00 -0700)
 
 - **Premier League LIVE: Build-up to kick-offs, including Leeds United v Tottenham, Arsenal v West Ham, Manchester United v Sunderland and Chelsea v Liverpool**: [Link](https://www.bbc.com/sport/football/live/cz69g6xvg24t)
