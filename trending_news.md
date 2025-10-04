@@ -1,3 +1,10 @@
+### metz – marseille (N/A, Sat, 4 Oct 2025 07:20:00 -0700)
+
+- **Comment De Zerbi s’est créé un problème de riche**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-i-metz-om-7e-journee-i-comment-roberto-de-zerbi-sest-cree-un-probleme-de-riche-a-lolympique-de-marseille_sto23227142/story.shtml)
+- **Metz - Marseille : sur quelle chaîne et à quelle heure voir le match de Ligue 1 en direct ?**: [Link](https://www.ouest-france.fr/sport/football/olympique-de-marseille/metz-marseille-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-1-en-direct-8349986e-9fa4-11f0-b8c9-cb434b3a2a4e)
+- **« J’envie leur niveau » : Stéphane Le Mignan, coach de Metz, bizut en Ligue 1 et fan de De Zerbi et Luis Enrique**: [Link](https://www.leparisien.fr/sports/football/ligue-1/jenvie-leur-niveau-stephane-le-mignan-coach-de-metz-bizut-en-ligue-1-et-fan-de-de-zerbi-et-luis-enrique-04-10-2025-6KPADU3WNJHZBEDZ3WKTHDDNZM.php)
+
+
 ### gen z 213 algerie (N/A, Sat, 4 Oct 2025 07:10:00 -0700)
 
 - **Algérie: les appels à manifester de la Gen Z 213 restent pour l'instant sans effet**: [Link](https://www.rfi.fr/fr/afrique/20251004-alg%C3%A9rie-les-appels-%C3%A0-manifester-de-la-gen-z-213-restent-pour-l-instant-sans-effet)
