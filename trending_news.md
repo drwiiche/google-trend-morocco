@@ -1,3 +1,31 @@
+### séville – barcelone (N/A, Sun, 5 Oct 2025 06:30:00 -0700)
+
+- **Séville - FC Barcelone : Dernier défi avant la trêve**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4375801/seville--fc-barcelone-dernier-defi-avant-la-treve)
+- **PRONOS PARIS RMC Le pari à l’extérieur du 5 octobre – Liga - Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-5-octobre-liga-espagne_AN-202510040279.html)
+- **Commentaires sur le match Séville - Barcelone, 21h15, 5 octobre : Difficile d'arrêter le « géant catalan »**: [Link](https://www.vietnam.vn/fr/nhan-dinh-tran-dau-sevilla-vs-barcelona-21h15-ngay-5-10-kho-can-ga-khong-lo-xu-catalonia)
+
+
+### إشبيلية ضد برشلونة (N/A, Sun, 5 Oct 2025 06:30:00 -0700)
+
+- **يامال ورافينيا خارج قائمة برشلونة لمواجهة إشبيلية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%95%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9/bltc5dda5a4c0ae3636)
+- **مباشر برشلونة ضد إشبيلية في الدوري الإسباني لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/5/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A)
+- **برشلونة يبحث عن استعادة التوازن أمام إشبيلية بعد صدمة سان جيرمان**: [Link](https://www.youm7.com/story/2025/10/5/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B2%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%AF%D9%85%D8%A9-%D8%B3%D8%A7%D9%86/7142916)
+
+
+### sevilla vs barcelona (N/A, Sun, 5 Oct 2025 06:30:00 -0700)
+
+- **Sevilla - Barcelona hoy, en directo: LaLiga EA Sports, en vivo online**: [Link](https://as.com/futbol/primera/sevilla-barcelona-hoy-en-directo-laliga-ea-sports-en-vivo-online-n/)
+- **Las dudas de Hansi Flick para el once del Sánchez Pizjuán**: [Link](https://www.sport.es/es/noticias/barca/dudas-hansi-flick-once-sanchez-122274857)
+- **Sevilla - Barcelona en directo, el partido de la Liga en vivo**: [Link](https://elpais.com/deportes/futbol/2025-10-05/sevilla-barcelona-en-directo-el-partido-de-la-liga-en-vivo.html)
+
+
+### stuttgart – heidenheim (N/A, Sun, 5 Oct 2025 06:30:00 -0700)
+
+- **Bundesliga im Live-Ticker: Stuttgart - Heidenheim**: [Link](https://web.de/magazine/sport/fussball/bundesliga/bundesliga-live-ticker-stuttgart-heidenheim-41292002)
+- **Angelo Stiller nur auf der Bank: Das ist die VfB-Aufstellung gegen Heidenheim**: [Link](https://www.zvw.de/vfb-stuttgart/angelo-stiller-nur-auf-der-bank-das-ist-die-vfb-aufstellung-gegen-heidenheim_arid-935278)
+- **Fußball-Bundesliga: Schwaben-Duell in Stuttgart - Freiburg beim Schlusslicht**: [Link](https://www.zeit.de/news/2025-10/05/schwaben-duell-in-stuttgart-freiburg-beim-schlusslicht)
+
+
 ### wolves – brighton (N/A, Sun, 5 Oct 2025 06:20:00 -0700)
 
 - **Big Kaoru Mitoma decision made by Fabian Hurzeler ahead of Wolves - Brighton predicted XI**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/big-kaoru-mitoma-decision-made-by-fabian-hurzeler-ahead-of-wolves-brighton-predicted-xi-5346194)
