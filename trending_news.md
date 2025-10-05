@@ -1,3 +1,10 @@
+### ليل ضد بي اس جي (N/A, Sun, 5 Oct 2025 11:00:00 -0700)
+
+- **حكيمي وسط أزمة استثنائية في باريس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%B3%D8%B7-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3/blt35d1ef509513be48)
+- **قمة مرتقبة بين ليل وباريس سان جريمان**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%84%D9%8A%D9%84-%D9%88%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%8A%D9%85%D8%A7%D9%86-2025-10-05)
+- **سان جيرمان يفقد 6 أساسيين في «رحلة ليل»**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4610890/%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D9%81%D9%82%D8%AF-6-%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D9%8A%D9%86-%D9%81%D9%8A--%D8%B1%D8%AD%D9%84%D8%A9-%D9%84%D9%8A%D9%84)
+
+
 ### celta vigo – atlético madrid (N/A, Sun, 5 Oct 2025 11:20:00 -0700)
 
 - **Atletico Madrid XI vs Celta Vigo – Predicted lineup and team news**: [Link](https://sports.yahoo.com/article/atletico-madrid-xi-vs-celta-051000811.html)
