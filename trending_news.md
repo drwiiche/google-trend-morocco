@@ -1,3 +1,10 @@
+### israel (N/A, Sun, 5 Oct 2025 14:20:00 -0700)
+
+- **Netanyahu says he hopes to announce hostages' release in days and vows Hamas will be disarmed**: [Link](https://www.bbc.com/news/live/cn0xvnxqj2xt)
+- **Trump urges Hamas and Israel to move forward as negotiators head to Cairo for talks**: [Link](https://www.cnn.com/world/live-news/israel-gaza-hamas-trump-10-05-25)
+- **Exclusive: Don’t feed the Hamas crocodile, Netanyahu tells Euronews**: [Link](https://www.euronews.com/2025/10/05/exclusive-dont-feed-the-crocodile-because-it-will-come-after-you-netanyahu-tells-euronews)
+
+
 ### حكيم زياش (N/A, Sun, 5 Oct 2025 14:10:00 -0700)
 
 - **زياش يقترب من حلم العودة إلى أوروبا بوجهة مفاجئة تجمعه بنجم الجزائر**: [Link](https://www.alaraby.co.uk/sport/%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AD%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A5%D9%84%D9%89-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D9%88%D8%AC%D9%87%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D8%AA%D8%AC%D9%85%D8%B9%D9%87-%D8%A8%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
