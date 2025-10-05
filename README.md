@@ -1,3 +1,17 @@
+### mls (N/A, Sat, 4 Oct 2025 18:40:00 -0700)
+
+- **Philadelphia Union clinch MLS Supporters' Shield**: [Link](https://www.espn.com/soccer/story/_/id/46480383/philadelphia-union-mls-supporters-shield-title-2025)
+- **After Judge and Stanton come up empty in key spot, bullpen unravels for Yankees in Game 1 of ALDS**: [Link](https://www.thederrick.com/ap/sports/after-judge-and-stanton-come-up-empty-in-key-spot-bullpen-unravels-for-yankees-in/article_814ef9d0-2e16-5257-91bb-c300ad3ed51d.html)
+- **Union beat NYCFC 1-0 to clinch Eastern Conference and Supporters' Shield races**: [Link](https://www.king5.com/article/syndication/associatedpress/union-beat-nycfc-1-0-to-clinch-eastern-conference-and-supporters-shield-races/616-21b3055e-b83c-4221-a8d5-882990c6458d)
+
+
+### ufc (N/A, Sat, 4 Oct 2025 17:30:00 -0700)
+
+- **UFC 320: Ankalaev vs. Pereira 2 Live Fight Coverage**: [Link](https://www.espn.co.uk/mma/fightcenter/_/id/600054473)
+- **Main Card Results | UFC 320: Ankalaev vs Pereira 2**: [Link](https://www.ufc.com/news/ufc-320-ankalaev-vs-pereira-2-event-tonight-main-card-results-recaps-highlights-interviews)
+- **UFC 320: Yana Santos sound off on Macy Chiasson, weight misses after win**: [Link](https://sports.yahoo.com/video/ufc-320-yana-santos-sound-011414708.html)
+
+
 ### youssef zalal (N/A, Sat, 4 Oct 2025 19:00:00 -0700)
 
 - **UFC 320 live blog: Josh Emmett vs. Youssef Zalal**: [Link](https://www.mmafighting.com/ufc-events-ppv/448140/ufc-320-live-blog-josh-emmett-vs-youssef-zalal)
