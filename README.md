@@ -1,3 +1,10 @@
+### fadel chaker (N/A, Sat, 4 Oct 2025 23:20:00 -0700)
+
+- **Pop star turned militant Fadel Shaker surrenders to Lebanese military**: [Link](https://apnews.com/article/lebanon-shaker-singer-surrenders-sidon-military-intelligence-178a0d28df96d69639b2eea491dc5ff3)
+- **Pop star turned Islamist militant Fadel Shaker surrenders to Lebanese military after 12 years on the run**: [Link](https://www.theguardian.com/world/2025/oct/05/pop-star-turned-islamist-militant-fadel-shaker-surrenders-to-lebanese-military-after-12-years-on-the-run)
+- **Lebanon crooner turned fugitive militant surrenders himself to army: judicial source**: [Link](https://www.arabnews.com/node/2617798/middle-east)
+
+
 ### espagne u20 (N/A, Sat, 4 Oct 2025 14:30:00 -0700)
 
 - **DIRECT. Espagne (u20)-Brésil (u20) (Coupe du monde (-20) 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-monde-20/2025/espagne-u20-bresil-u20-live/672505)
