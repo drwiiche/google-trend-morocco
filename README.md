@@ -1,3 +1,17 @@
+### إنتر ميامي ضد نيو إنجلاند (N/A, Sat, 4 Oct 2025 18:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي ونيو إنجلاند ريفوليوشن في الدوري الأمريكي 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%86%D9%8A%D9%88-%D8%A7%D9%95%D9%86%D8%AC%D9%84%D8%A7%D9%86%D8%AF-%D8%B1%D9%8A%D9%81%D9%88%D9%84%D9%8A%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2025/blt526560040e0bf83e)
+- **أداء سيء لميسي بخسارة إنتر ميامي القاسية في الدوري الأميركي**: [Link](https://www.aljazeera.net/sport/2025/10/1/%D8%A3%D8%AF%D8%A7%D8%A1-%D8%B3%D9%8A%D8%A1-%D9%84%D9%85%D9%8A%D8%B3%D9%8A-%D8%A8%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9)
+- **كيف أوقفت أندية أمريكا ميسي؟ السر في خطوتين**: [Link](https://www.365scores.com/ar/news/magazine/%D9%83%D9%8A%D9%81-%D8%A3%D9%88%D9%82%D9%81%D8%AA-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D9%85%D9%8A%D8%B3%D9%8A%D8%9F-%D8%A7%D9%84%D8%B3%D8%B1-%D9%81%D9%8A-%D8%AE%D8%B7/)
+
+
+### streameast (N/A, Sat, 4 Oct 2025 16:40:00 -0700)
+
+- **MLB Wild Card Series Streaming Guide: How to watch, full schedule and everything else you need to know**: [Link](https://sports.yahoo.com/mlb/article/mlb-wild-card-series-streaming-guide-how-to-watch-full-schedule-and-everything-else-you-need-to-know-231918079.html)
+- **Streameast alternatives for MLB Playoffs 2025: How to watch ALDS, NLDS games for free**: [Link](https://www.nj.com/tv/2025/10/streameast-alternatives-nl-dl.html)
+- **How to Watch MLB Playoff Games Online Without Cable**: [Link](https://www.rollingstone.com/product-recommendations/streaming/watch-mlb-playoff-baseball-games-free-streaming-2025-1235440405/)
+
+
 ### لا ليغا (N/A, Sat, 4 Oct 2025 14:00:00 -0700)
 
 - **جيرونا يحقق فوزه الأول هذا الموسم على حساب فالنسيا : lematinsports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7/9706)
