@@ -1,3 +1,10 @@
+### برينتفورد ضد مان سيتي (N/A, Sun, 5 Oct 2025 08:10:00 -0700)
+
+- **جوارديولا يعلن تشكيل مانشستر سيتي لمواجهة برينتفورد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF/blt16a37cc4d63103c7)
+- **اسم غير متوقع يتصدر قائمة هدافي مانشستر سيتي وبرينتفورد التاريخيين**: [Link](https://www.winwin.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B3%D9%85-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF)
+- **"عليّ أن أجلس مع الفرنسي السمين".. هالاند يسخر من نجم مانشستر سيتي قبل موقعة برينتفورد**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%B1%D9%8A%D8%A7%D9%86-%D8%B4%D8%B1%D9%82%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B3%D8%AE%D8%B1%D9%8A%D8%A9-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF/blt1489729332057256)
+
+
 ### barca (N/A, Sun, 5 Oct 2025 08:00:00 -0700)
 
 - **Sevilla vs Barcelona: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cgq4p1n3e2dt)
