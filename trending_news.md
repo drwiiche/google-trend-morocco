@@ -1,3 +1,24 @@
+### إسبانيول ضد ريال بتيس (N/A, Sun, 5 Oct 2025 09:30:00 -0700)
+
+- **نادي "بيتيس" يعلن إصابة أمرابط**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%AF%D9%8A-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%B9%D9%84%D9%86-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-1634835.html)
+- **بيليغريني: "آمل أن يكون أمرابط جاهزًا بعد التوقف الدولي"**: [Link](https://m.elbotola.com/article/2025-10-04-15-29-702.html)
+- **إصابة عبقار تربك حسابات الركراكي: هل يغيب عن وديتي مصر والكونغو؟**: [Link](https://www.alaraby.co.uk/sport/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B9%D8%A8%D9%82%D8%A7%D8%B1-%D8%AA%D8%B1%D8%A8%D9%83-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%87%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D9%88%D8%AF%D9%8A%D8%AA%D9%8A-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88)
+
+
+### samsunspor – fenerbahçe (N/A, Sun, 5 Oct 2025 09:30:00 -0700)
+
+- **Resmi açıklama! Fenerbahçe'ye Ederson şoku**: [Link](https://beinsports.com.tr/haber/resmi-aciklama-fenerbahceye-ederson-soku)
+- **Samsunspor – Fenerbahçe: Muhtemel 11’ler ve maç öncesi tüm detaylar**: [Link](https://tr.irna.ir/news/85958566/Samsunspor-Fenerbah%C3%A7e-Muhtemel-11-ler-ve-ma%C3%A7-%C3%B6ncesi-t%C3%BCm-detaylar)
+- **Fenerbahçe'de kritik maçta kaleyi kimin koruyacağı belli oldu**: [Link](https://www.sozcu.com.tr/ederson-milli-takim-kadrosundan-cikarildi-p234222)
+
+
+### classement liga (N/A, Sun, 5 Oct 2025 09:30:00 -0700)
+
+- **OL 1-2 Toulouse, Ligue 1 : résumé du match (05/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/lyon-toulouse-live/675850)
+- **Djibril Sidibé : "On y a cru jusqu'au bout et on est récompensés avec ces deux buts"**: [Link](https://www.lesviolets.com/actu/djibril-sidibe-on-y-a-cru-jusquau-bout-et-on-est-recompenses-avec-ces-deux-buts,79250.html)
+- **Les critiques de son entraîneur se sont avérées positives : Malick Fofana buteur face à Toulouse (VIDÉO)**: [Link](https://www.dhnet.be/sports/football/diablesrouges/2025/10/05/les-critiques-de-son-entraineur-se-sont-averees-positives-malick-fofana-buteur-face-a-toulouse-video-JXE3RAMGNNBOTOTVAG6OAW2F5M/)
+
+
 ### liga (N/A, Sun, 5 Oct 2025 09:20:00 -0700)
 
 - **Spain Soccer La Liga**: [Link](https://www.hjnews.com/sports/nation/spain-soccer-la-liga/image_2f7dfc0b-f583-559b-94c6-041eaa9631ba.html)
