@@ -1,3 +1,10 @@
+### serie a (N/A, Sun, 5 Oct 2025 11:40:00 -0700)
+
+- **Napoli-Genoa 2-1, gli uomini di Conte la ribaltano vincendo**: [Link](https://onefootball.com/id/berita/napoli-genoa-2-1-gli-uomini-di-conte-la-ribaltano-vincendo-41765855)
+- **Varriale: "Vittoria sofferta ma meritata. Secondo tempo dominato, De Bruyne accende la luce"**: [Link](https://www.calcionapoli24.it/serie_a/varriale-vittoria-sofferta-ma-meritata-secondo-tempo-dominato-de-bruyne-accende-la-n664626.html)
+- **Ekhator, talento nigeriano: gol spettacolare a Napoli**: [Link](https://www.sportoggi.com/ekhator-talento-nigeriano-gol-spettacolare-a-napoli/)
+
+
 ### ليل ضد بي اس جي (N/A, Sun, 5 Oct 2025 11:00:00 -0700)
 
 - **حكيمي وسط أزمة استثنائية في باريس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%B3%D8%B7-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3/blt35d1ef509513be48)
