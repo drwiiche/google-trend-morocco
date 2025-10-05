@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Sun, 5 Oct 2025 04:10:00 -0700)
+
+- **Novak Djokovic retirement timeline predicted as tennis legend's message speaks volumes**: [Link](https://www.mirror.co.uk/sport/tennis/novak-djokovic-retirement-shanghai-masters-36015634)
+- **Novak Djokovic has one piece of advice he wants to share with young tennis players**: [Link](https://www.thetennisgazette.com/news/novak-djokovic-has-one-piece-of-advice-he-wants-to-share-with-young-tennis-players/)
+- **Jessica Pegula’s Coach Predicts Timeline of Novak Djokovic’s Retirement Year**: [Link](https://www.yardbarker.com/tennis/articles/jessica_pegulas_coach_predicts_timeline_of_novak_djokovics_retirement_year/s1_17325_42842708)
+
+
 ### f1 (N/A, Sun, 5 Oct 2025 03:50:00 -0700)
 
 - **What the teams said – Qualifying in Singapore**: [Link](https://www.formula1.com/en/latest/article/what-the-teams-said-qualifying-in-singapore-2025.3RqkZAcnP0OgDObnTGWudS)
