@@ -1,3 +1,17 @@
+### afrique du sud u-20 – états-unis u-20 (N/A, Sun, 5 Oct 2025 13:30:00 -0700)
+
+- **Coupe du monde U20. Japon, Chili, Maroc… Les qualifiés et les affiches des 8es de finale**: [Link](https://www.ouest-france.fr/sport/coupe-du-monde/coupe-du-monde-u20-japon-chili-maroc-les-qualifies-et-les-affiches-des-8es-de-finale-8e29fd5a-a1f2-11f0-a698-dbf3ac8f3cb6)
+- **Mondial U-20 : Les matchs décisifs à suivre ce dimanche 5 octobre**: [Link](https://onefootball.com/es/noticias/mondial-u-20-les-matchs-decisifs-a-suivre-ce-dimanche-5-octobre-41763938)
+- **Le replay de Afrique du sud - Nouvelle-Calédonie - Foot - Coupe du monde U20**: [Link](https://sports.orange.fr/videos/football/le-replay-de-afrique-du-sud-nouvelle-caledonie-foot-coupe-du-monde-u20-CNT000002l2cMU.html)
+
+
+### nuno mendes (N/A, Sun, 5 Oct 2025 13:20:00 -0700)
+
+- **Barcelona 1-2 PSG (Oct 1, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/757687)
+- **Thierry Henry criticises Barcelona manager’s stubborn approach in PSG clash**: [Link](https://semprebarca.com/thierry-henry-criticises-barcelona-managers-stubborn-approach-in-psg-clash/)
+- **Deco and Joan Laporta see Hansi Flick's first mistake: he doesn't have the level for Barça**: [Link](https://e-noticies.cat/en/soccer/deco-and-laporta-see-an-error-flick-doesnt-have-barcelonas-level)
+
+
 ### porto – benfica (N/A, Sun, 5 Oct 2025 12:50:00 -0700)
 
 - **‘O jogo começa às 20h30’: a iniciativa dos adeptos e claques do FC Porto**: [Link](https://onefootball.com/en/news/o-jogo-comeca-as-20h30-a-iniciativa-dos-adeptos-e-claques-do-fc-porto-41764091)
