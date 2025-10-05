@@ -1,3 +1,17 @@
+### sevilla fc vs fc barcelona timeline (N/A, Sun, 5 Oct 2025 04:30:00 -0700)
+
+- **Barcelona Predicted Lineup vs. Sevilla: Lewandowski to Benefit From Yamal Injury**: [Link](https://www.si.com/soccer/barcelona-predicted-lineup-vs-sevilla-la-liga-10-5-25)
+- **Sevilla vs. Barcelona time, where to watch La Liga soccer**: [Link](https://www.usatoday.com/story/sports/soccer/europe/2025/10/05/barcelona-sevilla-time-how-to-watch/86525051007/)
+- **Squad for the trip to Sevilla**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4376015/squad-for-the-trip-to-sevilla)
+
+
+### deportivo alavés – elche (N/A, Sun, 5 Oct 2025 04:30:00 -0700)
+
+- **Alavés vs. Elche – Pronósticos, dónde ver, horario del partido y alineaciones 05-10-2025**: [Link](https://onefootball.com/es/apuestas/alaves-x-elche-05-10-2025)
+- **Rueda de prensa de Eder Sarabia habla previa al Alavés**: [Link](https://www.mundodeportivo.com/videos/futbol/20251005/1002545081/rueda-prensa-eder-sarabia-habla-previa-alaves.html)
+- **Cerca de 200 aficionados acompañarán al Elche CF en Mendizorroza**: [Link](https://www.elchecf.es/noticias/cerca-de-200-aficionados-acompanaran-al-elche-cf-en-mendizorroza)
+
+
 ### géorgie (N/A, Sun, 5 Oct 2025 04:10:00 -0700)
 
 - **Géorgie: le pouvoir menace l'opposition après les manifestations électorales**: [Link](https://medias24.com/agence-presse/georgie-le-pouvoir-menace-lopposition-apres-les-manifestations-electorales/)
