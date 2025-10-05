@@ -1,3 +1,10 @@
+### f1 (N/A, Sun, 5 Oct 2025 03:50:00 -0700)
+
+- **What the teams said – Qualifying in Singapore**: [Link](https://www.formula1.com/en/latest/article/what-the-teams-said-qualifying-in-singapore-2025.3RqkZAcnP0OgDObnTGWudS)
+- **McLaren reveal to 'suffering' in Singapore after discovering 'pattern'**: [Link](https://racingnews365.com/mclaren-reveal-to-suffering-in-singapore-after-discovering-pattern)
+- **Track-specific or a worrying trend? What happened to McLaren's 2025 F1 advantage**: [Link](https://www.motorsport.com/f1/news/track-specific-or-a-worrying-trend-what-happened-to-mclarens-2025-f1-advantage/10765102/)
+
+
 ### هاني رمزي (N/A, Sun, 5 Oct 2025 02:40:00 -0700)
 
 - **وزير الرياضة ونجوم الفن فى حفل زفاف نجل هانى رمزى.. صور**: [Link](https://www.youm7.com/story/2025/10/4/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D9%88%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D9%81%D9%86-%D9%81%D9%89-%D8%AD%D9%81%D9%84-%D8%B2%D9%81%D8%A7%D9%81-%D9%86%D8%AC%D9%84-%D9%87%D8%A7%D9%86%D9%89-%D8%B1%D9%85%D8%B2%D9%89/7144490)
