@@ -1,3 +1,10 @@
+### هاني رمزي (N/A, Sun, 5 Oct 2025 02:40:00 -0700)
+
+- **وزير الرياضة ونجوم الفن فى حفل زفاف نجل هانى رمزى.. صور**: [Link](https://www.youm7.com/story/2025/10/4/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D9%88%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D9%81%D9%86-%D9%81%D9%89-%D8%AD%D9%81%D9%84-%D8%B2%D9%81%D8%A7%D9%81-%D9%86%D8%AC%D9%84-%D9%87%D8%A7%D9%86%D9%89-%D8%B1%D9%85%D8%B2%D9%89/7144490)
+- **بعد زواجه في الكنيسة .. هاني رمزي يحتفل بزفاف نجله قريبًا في إيطاليا|خاص**: [Link](https://www.newsroom.info/174472)
+- **بينهم يسرا وحميدة وداليا البحيري.. توافد الفنانين في حفل زفاف نجل هاني رمزي**: [Link](https://www.almasryalyoum.com/news/details/3566647)
+
+
 ### ameur mansouri (N/A, Sun, 5 Oct 2025 02:10:00 -0700)
 
 - **Paris : l’un des plus gros trafiquants de drogue français arrêté dans les bouchons**: [Link](https://www.leparisien.fr/faits-divers/paris-lun-des-plus-gros-trafiquants-de-drogue-francais-arrete-dans-les-bouchons-03-10-2025-VU6KM3W67FAYHNH46U5F26X3NA.php)
