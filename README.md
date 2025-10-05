@@ -1,3 +1,38 @@
+### liga (N/A, Sun, 5 Oct 2025 09:20:00 -0700)
+
+- **Spain Soccer La Liga**: [Link](https://www.hjnews.com/sports/nation/spain-soccer-la-liga/image_2f7dfc0b-f583-559b-94c6-041eaa9631ba.html)
+- **APTOPIX Spain Soccer La Liga**: [Link](https://www.couriernews.com/sports/aptopix-spain-soccer-la-liga/image_5ec7b0bc-da3c-5f20-a9f4-e37a8aa4ad5f.html)
+- **Spain Soccer La Liga**: [Link](https://lufkindailynews.com/anpa/sports/spain-soccer-la-liga/image_7621fc85-a981-5d5c-aba0-3f1daff2b014.html)
+
+
+### bet365 (N/A, Sun, 5 Oct 2025 09:20:00 -0700)
+
+- **Bet365 Bonus Code 'COVERS': Bet $5, Get $200, Win Or Lose On The MLB Playoffs**: [Link](https://www.covers.com/daily-promos/bet365-bonus-code-mlb-playoffs-sunday-october-5-2025)
+- **NFL Betting Promos, Vikings vs. Browns Best Bets for London Game, Week 5 Odds and Lines**: [Link](https://sportshandle.com/nfl-betting-promos-vikings-vs-browns-best-bets-for-london-game-week-5-odds-and-lines/)
+- **MLB Postseason Odds: How to Bet on the ALDS and NLDS Game 1 Matchups**: [Link](https://www.foxsports.com/stories/betting/mlb-postseason-odds-how-bet-alds-nlds-game-1-matchups)
+
+
+### roony bardghji (N/A, Sun, 5 Oct 2025 09:20:00 -0700)
+
+- **Roony Bardghji called up by Sweden for first time**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4373987/roony-bardghji-called-up-by-sweden-for-first-time)
+- **Gudmundsson latest Leeds star to be called up for October internationals**: [Link](https://ca.sports.yahoo.com/news/gudmundsson-latest-leeds-star-called-093000755.html)
+- **Barcelona youngster earns praise from national team coach after maiden call-up - 'Fantastic player'**: [Link](https://barcauniversal.com/barcelona-youngster-earns-praise-from-national-team-coach-after-maiden-call-up-fantastic-player/)
+
+
+### ترتيب الدوري الاسباني (N/A, Sun, 5 Oct 2025 09:10:00 -0700)
+
+- **“قلبوا الموازين فجأة”.. جدول ترتيب الدوري الإسباني بعد الجولة الأخيرة والمنافسة تشتعل على الصدارة**: [Link](https://www.elqannas.net/%D9%82%D9%84%D8%A8%D9%88%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B2%D9%8A%D9%86-%D9%81%D8%AC%D8%A3%D8%A9-%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF/1510/)
+- **ترتيب أفضل الهدافين في الدوري الإسباني لموسم 2025/2026 بعد نهاية الجولة الثامنة**: [Link](https://twaslnews.com/365scores/2049975/)
+- **جدول ترتيب الدوري الإسباني 2025/ 2026 بعد الجولة الثامنة**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AC%D9%88-5/)
+
+
+### naples – genoa (N/A, Sun, 5 Oct 2025 09:10:00 -0700)
+
+- **Preview: Napoli vs Genoa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/napoli/preview/napoli-vs-genoa-prediction-team-news-lineups_582873.html)
+- **Match Preview | Napoli v Genoa**: [Link](https://sscnapoli.it/en/match-preview-focus-di-napoli-genoa/)
+- **Serie A: Napoli vs. Genoa – Confirmed line-ups**: [Link](https://onefootball.com/en/news/serie-a-napoli-vs-genoa-confirmed-line-ups-41765109)
+
+
 ### match barca (N/A, Sun, 5 Oct 2025 09:00:00 -0700)
 
 - **Sevilla vs Barcelona: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cgq4p1n3e2dt)
