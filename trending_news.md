@@ -1,3 +1,10 @@
+### كاس العالم للشباب (N/A, Sat, 4 Oct 2025 13:50:00 -0700)
+
+- **بعد صدمة اللعب النظيف.. سيناريوهات معقدة ترسم حظوظ تأهل منتخب مصر إلى ثمن نهائي مونديال الشباب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D9%85%D8%B9%D9%82%D8%AF%D8%A9-%D8%AA%D8%B1%D8%B3%D9%85-%D8%AD%D8%B8%D9%88%D8%B8-%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D9%84%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/bltdfe98296271232c2)
+- **«بينهم حمادة أنور».. دكة الفراعنة تمنح تشيلي بطاقة التأهل في مونديال الشباب**: [Link](https://www.almasryalyoum.com/news/details/3565995)
+- **أجندة كأس العالم لأقل من 20 سنة**: [Link](https://www.almountakhab.com/node/16218169)
+
+
 ### spain vs brazil u20 (N/A, Sat, 4 Oct 2025 14:00:00 -0700)
 
 - **Where to watch Spain U20 vs Brazil U20 live in the USA: 2025 U20 World Cup**: [Link](https://bolavip.com/en/soccer/where-to-watch-spain-u20-vs-brazil-u20-live-in-the-usa-2025-u20-world-cup)
