@@ -1,3 +1,10 @@
+### brentford – manchester city (N/A, Sun, 5 Oct 2025 07:40:00 -0700)
+
+- **Manchester City vs Brentford: Latest City injury news and predicted City starting eleven**: [Link](https://esteemedkompany.com/2025/10/05/manchester-city-vs-brentford-latest-city-injury-news-and-predicted-city-starting-eleven-2/)
+- **PAS Keeps Insulting Gerakan… But Gerakan Still Begs for Love!**: [Link](https://newswav.com/article/pas-keeps-insulting-gerakan-but-gerakan-still-begs-for-love-A2510_tx6nxv)
+- **Guardiola gives squad update ahead of Brentford**: [Link](https://www.mancity.com/news/mens/pep-guardiola-brentford-preview-injury-news-63895087)
+
+
 ### alexis sanchez (N/A, Sun, 5 Oct 2025 07:30:00 -0700)
 
 - **Sevilla-Barça, un reencuentro especial para Alexis Sánchez**: [Link](https://www.mundodeportivo.com/futbol/sevilla/20251001/1002542612/sevilla-barca-reencuentro-especial-alexis-sanchez.html)
