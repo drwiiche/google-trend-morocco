@@ -1,3 +1,17 @@
+### monaco – nice (N/A, Sun, 5 Oct 2025 08:20:00 -0700)
+
+- **Tout savoir sur Monaco - Nice**: [Link](https://www.ogcnice.com/fr/article/129300/tout-savoir-sur-monaco-nice.html)
+- **Biereth et Minamino de retour, le milieu Coulibaly-Teze reconduit : découvrez le 11 de l’AS Monaco pour affronter l’OGC Nice dans le derby de la Côte d’Azur**: [Link](https://www.nicematin.com/sports/football/biereth-et-minamino-de-retour-le-milieu-coulibaly-teze-reconduit-decouvrez-le-11-de-l-as-monaco-pour-affronter-l-ogc-nice-dans-le-derby-de-la-cote-d-azur-10650946)
+- **«Si on perd encore deux, trois, quatre matches...» : Adi Hütter et Franck Haise, deux entraîneurs sous pression avant Monaco-Nice**: [Link](https://www.lequipe.fr/Football/Article/-si-on-perd-encore-deux-trois-quatre-matches-adi-hutter-et-franck-haise-deux-entraineurs-sous-pression-avant-monaco-nice/1599197)
+
+
+### everton (N/A, Sun, 5 Oct 2025 08:20:00 -0700)
+
+- **Premier League: Build-up to four games, as Newcastle host Forest**: [Link](https://www.bbc.com/sport/football/live/c7v1r2v4yq0t)
+- **What Everton star did on 35 minutes summed up afternoon but no need for £40m transfer verdicts**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/what-everton-star-35-minutes-32614336)
+- **David Moyes shares Everton’s plan for Tyler Dibling in honest verdict after West Ham display**: [Link](https://www.everton.news/david-moyes-shares-evertons-plan-for-tyler-dibling-in-honest-verdict-after-west-ham-display/)
+
+
 ### برينتفورد ضد مان سيتي (N/A, Sun, 5 Oct 2025 08:10:00 -0700)
 
 - **جوارديولا يعلن تشكيل مانشستر سيتي لمواجهة برينتفورد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF/blt16a37cc4d63103c7)
