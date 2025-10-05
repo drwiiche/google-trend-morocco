@@ -1,3 +1,10 @@
+### اليوم العالمي للمدرس (N/A, Sat, 4 Oct 2025 23:20:00 -0700)
+
+- **اليوم العالمي للمدرس.. تقدير معنوي كبير وواقع مهني مقلق بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D9%84%D9%84%D9%85%D8%AF%D8%B1%D8%B3-%D8%AA%D9%82%D8%AF%D9%8A%D8%B1-%D9%85%D8%B9%D9%86%D9%88%D9%8A-%D9%83%D8%A8%D9%8A%D8%B1-1634434.html)
+- **لتحسين ظروف عملهم.. منظمة تطالب بتحسين الوضعية المادية والاجتماعية لأسرة التعليم**: [Link](https://ar.telquel.ma/%D9%84%D8%AA%D8%AD%D8%B3%D9%8A%D9%86-%D8%B8%D8%B1%D9%88%D9%81-%D8%B9%D9%85%D9%84%D9%87%D9%85-%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D8%AA%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%AA%D8%AD%D8%B3%D9%8A%D9%86-%D8%A7/)
+- **في اليوم العالمي للمدرس... برادة يشيد بدور نساء ورجال التعليم في بناء مدرسة الجودة والنهوض بالمجتمع**: [Link](https://www.ahdath.info/article/244799/%D9%85%D8%AC%D8%AA%D9%85%D8%B9/%D8%AA%D8%B9%D9%84%D9%8A%D9%85/%D9%81%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D9%84%D9%84%D9%85%D8%AF%D8%B1%D8%B3-%D8%A8%D8%B1%D8%A7%D8%AF%D8%A9-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%AF%D9%88%D8%B1-%D9%86%D8%B3%D8%A7%D8%A1-%D9%88%D8%B1%D8%AC%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D9%81%D9%8A-%D8%A8%D9%86%D8%A7%D8%A1-%D9%85%D8%AF%D8%B1%D8%B3%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D9%86%D9%87%D9%88%D8%B6-%D8%A8%D8%A7%D9%84%D9%85%D8%AC%D8%AA%D9%85%D8%B9)
+
+
 ### greve controleur aerien octobre 2025 (N/A, Sun, 5 Oct 2025 00:40:00 -0700)
 
 - **Contrôleurs aériens français: le principal syndicat suspend son préavis de grève des 7, 8 et 9 octobre**: [Link](https://medias24.com/agence-presse/controleurs-aeriens-francais-le-principal-syndicat-suspend-son-preavis-de-greve-des-7-8-et-9-octobre/)
