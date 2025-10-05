@@ -1,3 +1,17 @@
+### celta vigo vs atlético madrid (N/A, Sun, 5 Oct 2025 12:10:00 -0700)
+
+- **En qué canal pasan Celta vs. Atlético de Madrid por la Liga de España 2025-2026 hoy**: [Link](https://es-us.noticias.yahoo.com/deportes/canal-pasan-celta-vs-atl%C3%A9tico-124211623.html)
+- **Claudio junta a Jutglá y Borja Iglesias en el ataque ante el Atlético**: [Link](https://www.farodevigo.es/fotos/celta-de-vigo/2025/10/05/claudio-junta-jutgla-borja-iglesias-122304572.html)
+- **LaLiga: Celta - Atlético en directo | LaLiga EA Sports 2025 - 2026**: [Link](https://www.elmundo.es/deportes/futbol/laliga-ea-sports/celta-atletico/2025/10/05/01_0101_20251005_176_175-directo.html)
+
+
+### les traitres (N/A, Sun, 5 Oct 2025 12:10:00 -0700)
+
+- **Les Traîtres saison 5 : Qui a été éliminé à l'issue de la sixième soirée ce samedi 4 octobre ?**: [Link](https://www.programme-tv.net/news/tv/388868-les-traitres-saison-5-qui-a-ete-elimine-a-l-issue-de-la-sixieme-soiree-ce-samedi-4-octobre/)
+- **Les Traîtres : Théo Fernandez s'effondre en larmes après une révélation de Christine Bravo (ZAPTV)**: [Link](https://portail.free.fr/divertissement/people/les-traitres-theo-fernandez-seffondre-en-larmes-apres-une-revelation-de-christine-bravo-zaptv/)
+- **"Ils ont mené un truc dans l'ombre contre moi" : Voici ce qu'il s'est passé dans l'épisode des Traîtres du 4 octobre**: [Link](https://www.purepeople.com/article/ils-ont-mene-un-truc-dans-lombre-contre-moi-voici-ce-quil-sest-passe-dans-lepisode-des-traitres-du-4-octobre_a543254/1)
+
+
 ### يوفنتوس ضد ميلان (N/A, Sun, 5 Oct 2025 11:50:00 -0700)
 
 - **مباشر.. مباراة يوفنتوس ضد ميلان في الدوري الإيطالي لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/5/juventus-vs-milan-2)
