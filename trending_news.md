@@ -1,3 +1,10 @@
+### celta vigo – atlético madrid (N/A, Sun, 5 Oct 2025 11:20:00 -0700)
+
+- **Atletico Madrid XI vs Celta Vigo – Predicted lineup and team news**: [Link](https://sports.yahoo.com/article/atletico-madrid-xi-vs-celta-051000811.html)
+- **Antoine Griezmann vs. RC Celta de Vigo – Player props & odds to score a goal on October 5**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/05/antoine-griezmann-soccer-player-props-10-5-2025/86533223007/)
+- **Preview: Celta Vigo vs Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/preview/celta-vigo-vs-atletico-prediction-team-news-lineups_582941.html)
+
+
 ### lille – paris-sg (N/A, Sun, 5 Oct 2025 11:00:00 -0700)
 
 - **Le groupe du PSG pour le déplacement à Lille dévoilé, six cadres manquants**: [Link](https://www.lequipe.fr/Football/Actualites/Le-groupe-du-psg-pour-le-deplacement-a-lille-devoile-six-cadres-manquants/1599207)
