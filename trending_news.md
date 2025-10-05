@@ -1,3 +1,17 @@
+### youssef zalal (N/A, Sat, 4 Oct 2025 19:00:00 -0700)
+
+- **UFC 320 live blog: Josh Emmett vs. Youssef Zalal**: [Link](https://www.mmafighting.com/ufc-events-ppv/448140/ufc-320-live-blog-josh-emmett-vs-youssef-zalal)
+- **UFC 320 fight between Ilia Topuria survivors ends in ‘effortless’ 98-second finish**: [Link](https://bloodyelbow.com/2025/10/04/ufc-320-fight-between-ilia-topuria-survivors-ends-in-effortless-98-second-finish/)
+- **UFC 320 results: Youssef Zalal submits Josh Emmett quickly, calls out Lerone Murphy**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2025/10/04/ufc-320-youssef-zalal-submission-josh-emmett-featherweight-callout-lerone-murphy/86531155007/)
+
+
+### strikeout (N/A, Sat, 4 Oct 2025 19:00:00 -0700)
+
+- **With 4 MLB starts under his belt, Melton gets Game 1 nod for Tigers**: [Link](https://www.mlb.com/news/troy-melton-tarik-skubal-to-start-alds-games-1-and-2-for-tigers)
+- **Detroit Tigers win 6-3 over Cleveland Guardians, advance to ALDS vs Seattle Mariners**: [Link](https://www.freep.com/story/sports/mlb/tigers/2025/10/02/tigers-game-3-live-updates-and-analysis-in-mlb-wild-card-series-vs-guardians/86474354007/)
+- **MLB Wild Card Series Streaming Guide: How to watch, full schedule and everything else you need to know**: [Link](https://sports.yahoo.com/mlb/article/mlb-wild-card-series-streaming-guide-how-to-watch-full-schedule-and-everything-else-you-need-to-know-231918079.html)
+
+
 ### إنتر ميامي ضد نيو إنجلاند (N/A, Sat, 4 Oct 2025 18:00:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إنتر ميامي ونيو إنجلاند ريفوليوشن في الدوري الأمريكي 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%86%D9%8A%D9%88-%D8%A7%D9%95%D9%86%D8%AC%D9%84%D8%A7%D9%86%D8%AF-%D8%B1%D9%8A%D9%81%D9%88%D9%84%D9%8A%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2025/blt526560040e0bf83e)
