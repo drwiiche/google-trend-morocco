@@ -1,3 +1,10 @@
+### porto – benfica (N/A, Sun, 5 Oct 2025 12:50:00 -0700)
+
+- **‘O jogo começa às 20h30’: a iniciativa dos adeptos e claques do FC Porto**: [Link](https://onefootball.com/en/news/o-jogo-comeca-as-20h30-a-iniciativa-dos-adeptos-e-claques-do-fc-porto-41764091)
+- **AO VIVO: Farioli lança Alberto Costa e confia no onze base**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-farioli-lanca-alberto-costa-e-confia-no-onze-base/r1cXhE7D/)
+- **Porto x Benfica no Campeonato Português: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/porto-x-benfica-no-campeonato-portugues-onde-assistir-ao-vivo-horario-e-escalacao/)
+
+
 ### juventus (N/A, Sun, 5 Oct 2025 12:30:00 -0700)
 
 - **LIVE Juve-Milan 0-0: coast to coast di Pulisic che poi spreca**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/05-10-2025/juventus-milan-live-diretta-serie-a.shtml)
