@@ -1,3 +1,24 @@
+### milan ac (N/A, Sun, 5 Oct 2025 14:00:00 -0700)
+
+- **Juventus Turin - AC Milan : sur quelle chaîne et à quelle heure voir le match en direct ?**: [Link](https://www.ouest-france.fr/sport/football/italie/juventus-turin/juventus-turin-inter-milan-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-en-direct-1047e12e-9fa7-11f0-b8c9-cb434b3a2a4e)
+- **Comment voir le match de Serie A Juve - Milan AC en direct (chaîne, heure)**: [Link](https://www.20minutes.fr/sport/football/4176381-20251005-juventus-milan-ac-chaine-heure-voir-match-serie-direct)
+- **Juve-Milan est le grand match de dimanche : Allegri fait face à son passé. Mais il faudra surveiller Naples et la Roma.**: [Link](https://www.firstonline.info/fr/juve-milan-e-il-big-match-della-domenica-allegri-contro-il-suo-passato-ma-occhio-a-napoli-e-roma-linter-vince-e-sale-in-vetta/)
+
+
+### grève ryanair (N/A, Sun, 5 Oct 2025 14:00:00 -0700)
+
+- **Contrôleurs aériens français : le principal syndicat suspend son préavis de grève des 7, 8 et 9 octobre**: [Link](https://www.sudouest.fr/economie/social/greve/controleurs-aeriens-francais-le-principal-syndicat-suspend-son-preavis-de-greve-des-7-8-et-9-octobre-26199491.php)
+- **Grève des contrôleurs aériens français : Ryanair annonce jusqu'à 1 800 vols annulés du 7 au 9 octobre 2025**: [Link](https://www.air-journal.fr/2025-10-04-greve-des-controleurs-aeriens-francais-ryanair-annonce-jusqua-1-800-vols-annules-du-7-au-9-octobre-2025-5266189.html)
+- **Contrôleurs aériens en France: ce changement pour le préavis de grève des 7, 8 et 9 octobre**: [Link](https://www.parisselectbook.com/2025/10/05/controleurs-aeriens-en-france-ce-changement-pour-le-preavis-de-greve-des-7-8-et-9-octobre/)
+
+
+### naïma moutchou (N/A, Sun, 5 Oct 2025 13:50:00 -0700)
+
+- **PORTRAIT. Naïma Moutchou : peu connue, cette figure de l’Assemblée nationale entre au gouvernement**: [Link](https://www.ouest-france.fr/politique/gouvernement/portrait-naima-moutchou-peu-connue-cette-figure-de-lassemblee-nationale-entre-au-gouvernement-abf2c018-9f6f-11f0-9269-ac82a639081c)
+- **Naïma Mouchtou placée à la tête de la Fonction publique, de la réforme de l’État, du numérique et de l’IA**: [Link](https://acteurspublics.fr/articles/naima-mouchtou-placee-a-la-tete-de-la-fonction-publique-de-la-reforme-de-letat-du-numerique-et-de-lia/)
+- **Gouvernement Lecornu : Naïma Moutchou ministre, une fidèle d’Edouard Philippe au ministère de la Fonction publique et du Numérique**: [Link](https://www.liberation.fr/politique/gouvernement-lecornu-naima-moutchou-ministre-une-fidele-dedouard-philippe-au-ministere-de-la-fonction-publique-et-du-numerique-20251005_WOZB34RMWNBMBIUOCMAYSRBVME/)
+
+
 ### ethan mbappé (N/A, Sun, 5 Oct 2025 13:40:00 -0700)
 
 - **Ethan Mbappe aiming to emerge from famous brother's shadow**: [Link](https://www.bbc.com/sport/football/articles/c5ykwnj5weyo)
