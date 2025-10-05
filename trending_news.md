@@ -1,3 +1,45 @@
+### match barca (N/A, Sun, 5 Oct 2025 09:00:00 -0700)
+
+- **Sevilla vs Barcelona: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cgq4p1n3e2dt)
+- **What a miss! Rashford fails to convert one-on-one against Sevilla keeper**: [Link](https://dailysports.net/news/what-a-miss-rashford-fails-to-convert-one-on-one-against-sevilla-keeper/)
+- **👀 Barça lose their heads: Sevilla and VAR frustrate Flick and co**: [Link](https://ca.sports.yahoo.com/news/bar-lose-heads-sevilla-var-151900768.html)
+
+
+### classement la liga (N/A, Sun, 5 Oct 2025 09:00:00 -0700)
+
+- **Real Madrid 3-1 Villarreal, La Liga : Le Real Madrid se reprend après le derby !**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-madrid-villarreal-live/676785)
+- **L’incertitude plane pour Kylian Mbappé, la blessure de Lamine Yamal fait trembler le Barça**: [Link](https://www.footmercato.net/a6500743711588473101-lincertitude-plane-pour-kylian-mbappe-la-blessure-de-lamine-yamal-fait-trembler-le-barca)
+- **Le grand flou : Mbappé rassure pour sa cheville, pas Xabi Alonso**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/liga-malgre-son-but-contre-villarreal-kylian-mbappe-souffre-dune-entorse-a-la-cheville-droite-est-incertain-avant-le-rassemblement-des-bleus_sto23228254/story.shtml)
+
+
+### twitch (N/A, Sun, 5 Oct 2025 09:00:00 -0700)
+
+- **Black Ops 7 Multiplayer and Zombies Beta — Everything You Need to Know**: [Link](https://www.callofduty.com/blog/2025/09/cod-bo7-multiplayer-zombies-beta-everything-you-need-to-know)
+- **Free Play Days – Call of Duty: Black Ops 7 Open Beta, Polterguys: Possession Party, Sudden Strike 4, and Dustborn**: [Link](https://news.xbox.com/en-us/2025/10/02/free-play-days-october-2-2025-call-of-duty/)
+- **Call of Duty: Black Ops 7 Multiplayer Review in Progress - Beta Impressions**: [Link](https://www.ign.com/articles/call-of-duty-black-ops-7-multiplayer-review)
+
+
+### espanyol – betis (N/A, Sun, 5 Oct 2025 08:50:00 -0700)
+
+- **Espanyol- Betis: A conquistar el fortín perico**: [Link](https://www.diariodesevilla.es/realbetis/espanyol-betis-conquistar-fortin-perico_0_2004944883.html)
+- **Lista de convocados**: [Link](https://www.rcdespanyol.com/es/noticia/lista-de-convocados/19196)
+- **Manolo González tacha de «muy complicado» el partido contra el Betis**: [Link](https://onefootball.com/pt-br/noticias/manolo-gonzalez-tacha-de-muy-complicado-el-partido-contra-el-betis-41760402)
+
+
+### real sociedad – rayo (N/A, Sun, 5 Oct 2025 08:50:00 -0700)
+
+- **El fútbol usa su fuerza en Anoeta para abrir puertas a la inclusión**: [Link](https://as.com/futbol/primera/el-futbol-usa-su-fuerza-en-anoeta-para-abrir-puertas-a-la-inclusion-n/)
+- **Directo: Real-Rayo | Brais y Soler vuelven al centro del campo**: [Link](https://www.noticiasdegipuzkoa.eus/reala/2025/10/05/directo-real-rayo-brais-soler-10171718.html)
+- **"A vivir Euskadi" con la inclusión en el deporte**: [Link](https://cadenaser.com/euskadi/2025/10/05/a-vivir-euskadi-con-la-inclusion-en-el-deporte-radio-bilbao/)
+
+
+### fcb (N/A, Sun, 5 Oct 2025 07:50:00 -0700)
+
+- **Luis Suarez ‘tells’ €60m star to join Liverpool after initial ‘offer’ REJECTED**: [Link](https://www.teamtalk.com/liverpool/ronald-araujo-anfield-offer-luis-suarez-barcelona)
+- **Chelsea must hijack Liverpool’s move for La Liga star who Enzo Maresca sorely needs**: [Link](https://www.thechelseachronicle.com/columnist/chelsea-must-hijack-liverpools-move-for-la-liga-star-who-enzo-maresca-sorely-needs/)
+- **Barcelona defensive ace turned down four offers to leave last summer**: [Link](https://barcauniversal.com/barcelona-defensive-ace-turned-down-four-offers-to-leave-last-summer/)
+
+
 ### monaco – nice (N/A, Sun, 5 Oct 2025 08:20:00 -0700)
 
 - **Tout savoir sur Monaco - Nice**: [Link](https://www.ogcnice.com/fr/article/129300/tout-savoir-sur-monaco-nice.html)
