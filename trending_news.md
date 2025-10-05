@@ -1,3 +1,10 @@
+### spain vs brazil u20 (N/A, Sat, 4 Oct 2025 14:00:00 -0700)
+
+- **Where to watch Spain U20 vs Brazil U20 live in the USA: 2025 U20 World Cup**: [Link](https://bolavip.com/en/soccer/where-to-watch-spain-u20-vs-brazil-u20-live-in-the-usa-2025-u20-world-cup)
+- **APTOPIX Spain Brazil U20 WCup Soccer**: [Link](https://www.couriernews.com/sports/aptopix-spain-brazil-u20-wcup-soccer/image_957b657f-2876-5a81-9d1f-684e9f4a68b1.html)
+- **Spain vs. Brazil: How to Watch, Odds, U-20 Preview**: [Link](https://www.msn.com/en-us/sports/fifa_world_cup/spain-vs-brazil-how-to-watch-odds-u-20-preview/ar-AA1NQISp)
+
+
 ### mls (N/A, Sat, 4 Oct 2025 18:40:00 -0700)
 
 - **Philadelphia Union clinch MLS Supporters' Shield**: [Link](https://www.espn.com/soccer/story/_/id/46480383/philadelphia-union-mls-supporters-shield-title-2025)
