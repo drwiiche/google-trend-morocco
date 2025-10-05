@@ -1,3 +1,9 @@
+### ethan mbappé (N/A, Sun, 5 Oct 2025 13:40:00 -0700)
+
+- **Ethan Mbappe aiming to emerge from famous brother's shadow**: [Link](https://www.bbc.com/sport/football/articles/c5ykwnj5weyo)
+- **The younger Mbappe emerging from his brother's shadow**: [Link](https://www.aol.com/articles/younger-mbappe-emerging-brothers-shadow-062720480.html)
+
+
 ### afrique du sud u-20 – états-unis u-20 (N/A, Sun, 5 Oct 2025 13:30:00 -0700)
 
 - **Coupe du monde U20. Japon, Chili, Maroc… Les qualifiés et les affiches des 8es de finale**: [Link](https://www.ouest-france.fr/sport/coupe-du-monde/coupe-du-monde-u20-japon-chili-maroc-les-qualifies-et-les-affiches-des-8es-de-finale-8e29fd5a-a1f2-11f0-a698-dbf3ac8f3cb6)
