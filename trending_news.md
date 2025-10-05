@@ -1,3 +1,10 @@
+### عزيز غالي (N/A, Sun, 5 Oct 2025 00:00:00 -0700)
+
+- **ناشطو أسطول الصمود يروون تفاصيل احتجازهم بإسرائيل**: [Link](https://www.aljazeera.net/news/2025/10/5/%D9%86%D8%A7%D8%B4%D8%B7%D9%88-%D8%A3%D8%B3%D8%B7%D9%88%D9%84-%D8%A7%D9%84%D8%B5%D9%85%D9%88%D8%AF-%D9%8A%D8%B1%D9%88%D9%88%D9%86-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84)
+- **الخارجية التركية: طائرة خاصة تقل رعايا 12 دولة بينها موريتانيا**: [Link](https://alakhbar.info/?q=node/63747)
+- **بحارة أتراك ينطلقون بسفنهم إلى البحر الأسود في فعالية لدعم فلسطين**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A8%D8%AD%D8%A7%D8%B1%D8%A9-%D8%A3%D8%AA%D8%B1%D8%A7%D9%83-%D9%8A%D9%86%D8%B7%D9%84%D9%82%D9%88%D9%86-%D8%A8%D8%B3%D9%81%D9%86%D9%87%D9%85-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%81%D9%8A-%D9%81%D8%B9%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D8%AF%D8%B9%D9%85-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86/3706956)
+
+
 ### sevilla fc vs fc barcelona timeline (N/A, Sun, 5 Oct 2025 04:30:00 -0700)
 
 - **Barcelona Predicted Lineup vs. Sevilla: Lewandowski to Benefit From Yamal Injury**: [Link](https://www.si.com/soccer/barcelona-predicted-lineup-vs-sevilla-la-liga-10-5-25)
