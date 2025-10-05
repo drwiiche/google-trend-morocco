@@ -1,3 +1,10 @@
+### napoli (N/A, Sun, 5 Oct 2025 10:10:00 -0700)
+
+- **Napoli-Genoa | UFFICIALI: KDB in panchina! Oriali spiega la decisione**: [Link](https://onefootball.com/it/notizie/napoli-genoa-ufficiali-kdb-in-panchina-oriali-spiega-la-decisione-41764889)
+- **Maltempo in #Europa, la #tempesta #Amy si abbatte sul #VecchioContinente**: [Link](https://www.facebook.com/story.php?story_fbid=1274619691371215&id=100064695876217)
+- **Di Lorenzo: "Puntiamo a chiudere questo ciclo con una vittoria"**: [Link](https://www.goldelnapoli.it/di-lorenzo-puntiamo-a-chiudere-questo-ciclo-con-una-vittoria/)
+
+
 ### la liga classement (N/A, Sun, 5 Oct 2025 09:20:00 -0700)
 
 - **Real Madrid 3-1 Villarreal, La Liga : Le Real Madrid se reprend après le derby !**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-madrid-villarreal-live/676785)
