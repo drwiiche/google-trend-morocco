@@ -1,3 +1,10 @@
+### alexis sanchez (N/A, Sun, 5 Oct 2025 07:30:00 -0700)
+
+- **Sevilla-Barça, un reencuentro especial para Alexis Sánchez**: [Link](https://www.mundodeportivo.com/futbol/sevilla/20251001/1002542612/sevilla-barca-reencuentro-especial-alexis-sanchez.html)
+- **“Barcelona proyectó su carrera internacionalmente”: en España destacan el cara a cara que tendrá Alexis Sánchez y el Barça**: [Link](https://www.latercera.com/el-deportivo/noticia/barcelona-proyecto-su-carrera-internacionalmente-en-espana-destacan-el-cara-a-cara-que-tendra-alexis-sanchez-y-el-barca/)
+- **Alexis si, Lamine Yamal no: este domingo juegan Barcelona y Sevilla**: [Link](https://onefootball.com/es/noticias/alexis-si-lamine-yamal-no-este-domingo-juegan-barcelona-y-sevilla-41762653)
+
+
 ### combat salahdine parnasse (N/A, Sun, 5 Oct 2025 06:30:00 -0700)
 
 
