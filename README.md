@@ -1,3 +1,10 @@
+### la liga (N/A, Sun, 5 Oct 2025 09:10:00 -0700)
+
+- **Spain Soccer La Liga**: [Link](https://www.hjnews.com/sports/nation/spain-soccer-la-liga/image_f5c06336-1d87-51e3-a66a-4dc5497d7dcc.html)
+- **APTOPIX Spain Soccer La Liga**: [Link](https://www.couriernews.com/sports/aptopix-spain-soccer-la-liga/image_5ec7b0bc-da3c-5f20-a9f4-e37a8aa4ad5f.html)
+- **Spain Soccer La Liga**: [Link](https://lufkindailynews.com/anpa/sports/spain-soccer-la-liga/image_4a2edee5-a54c-5eaa-87ac-a541325ee405.html)
+
+
 ### إسبانيول ضد ريال بتيس (N/A, Sun, 5 Oct 2025 09:30:00 -0700)
 
 - **نادي "بيتيس" يعلن إصابة أمرابط**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%AF%D9%8A-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%B9%D9%84%D9%86-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-1634835.html)
