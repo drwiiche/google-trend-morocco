@@ -1,3 +1,10 @@
+### géorgie (N/A, Sun, 5 Oct 2025 04:10:00 -0700)
+
+- **Géorgie: le pouvoir menace l'opposition après les manifestations électorales**: [Link](https://medias24.com/agence-presse/georgie-le-pouvoir-menace-lopposition-apres-les-manifestations-electorales/)
+- **Géorgie : des manifestants ont tenté d’entrer dans le palais présidentiel**: [Link](https://www.lemonde.fr/international/article/2025/10/04/georgie-des-manifestants-ont-tente-d-entrer-dans-le-palais-presidentiel_6644429_3210.html)
+- **Géorgie : manifestations réprimées après la victoire du parti au pouvoir aux élections locales**: [Link](https://www.france24.com/fr/europe/20251005-g%C3%A9orgie-manifestations-r%C3%A9prim%C3%A9es-apr%C3%A8s-victoire-parti-pouvoir-%C3%A9lections-locales)
+
+
 ### novak djokovic (N/A, Sun, 5 Oct 2025 04:10:00 -0700)
 
 - **Novak Djokovic retirement timeline predicted as tennis legend's message speaks volumes**: [Link](https://www.mirror.co.uk/sport/tennis/novak-djokovic-retirement-shanghai-masters-36015634)
