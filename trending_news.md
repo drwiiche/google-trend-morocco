@@ -1,3 +1,24 @@
+### fiorentina – roma (N/A, Sun, 5 Oct 2025 06:00:00 -0700)
+
+- **✅ Le UFFICIALI delle 15: la scelta su Dovbyk, Castro, Orso, Gud e Nzola**: [Link](https://onefootball.com/it/notizie/le-ufficiali-delle-15-la-scelta-su-dovbyk-castro-orso-gud-e-nzola-41763906)
+- **Fiorentina, Pioli suona la carica: "Vogliamo la prima vittoria a tutti i costi"**: [Link](https://www.sportmediaset.mediaset.it/calcio/fiorentina-pioli-suona-la-carica-vogliamo-la-prima-vittoria-a-tutti-i-costi_104323321-202502k.shtml)
+- **Gasperini: “Rammaricati per la sconfitta con il Lille. I rigoristi? Ecco chi sono”**: [Link](https://www.forzaroma.info/news-as-roma/gasperini-rammaricati-per-lultima-sconfitta-baldanzi-puo-essere-la-sua-partita/)
+
+
+### aston villa – burnley (N/A, Sun, 5 Oct 2025 05:50:00 -0700)
+
+- **Florentino Luis on settling in at Burnley, survival chances and previous Aston Villa interest**: [Link](https://www.burnleyexpress.net/sport/football/florentino-luis-on-settling-in-at-burnley-survival-chances-and-previous-aston-villa-interest-5344952)
+- **Team news for Clarets clash**: [Link](https://www.avfc.co.uk/news/2025/october/03/team-news-for-clarets-clash/)
+- **Parker confident Burnley can regain 'rock-solid' defensive base**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/parker-confident-burnley-can-regain-rock-solid-defensive-base-2025-10-04)
+
+
+### georgie (N/A, Sun, 5 Oct 2025 05:50:00 -0700)
+
+- **Georgia protesters try to storm Tbilisi presidential palace**: [Link](https://www.bbc.com/news/articles/ce86kgnj7zro)
+- **Georgian PM vows crackdown on opposition after protests, accuses EU of meddling**: [Link](https://www.france24.com/en/europe/20251005-georgian-pm-vows-crackdown-on-opposition-after-protests-accuses-eu-of-meddling)
+- **Health Ministry: 27 injured in October 4 Tbilisi protest, one police officer in critical condition**: [Link](https://georgiatoday.ge/health-ministry-27-injured-in-october-4-tbilisi-protest-one-police-officer-in-critical-condition/)
+
+
 ### newcastle – nottm forest (N/A, Sun, 5 Oct 2025 05:20:00 -0700)
 
 - **Newcastle v Nottingham Forest, Everton v Crystal Palace and more: Premier League clockwatch – live**: [Link](https://www.theguardian.com/football/live/2025/oct/05/newcastle-nottingham-forest-everton-crystal-palace-premier-league-clockwatch-live)
