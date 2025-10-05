@@ -1,3 +1,17 @@
+### حكيم زياش (N/A, Sun, 5 Oct 2025 14:10:00 -0700)
+
+- **زياش يقترب من حلم العودة إلى أوروبا بوجهة مفاجئة تجمعه بنجم الجزائر**: [Link](https://www.alaraby.co.uk/sport/%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AD%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A5%D9%84%D9%89-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D9%88%D8%AC%D9%87%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D8%AA%D8%AC%D9%85%D8%B9%D9%87-%D8%A8%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **تقرير: "جنوى" الإيطالي مهتم بزياش**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%AC%D9%86%D9%88%D9%89-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D9%85%D9%87%D8%AA%D9%85-%D8%A8%D8%B2%D9%8A%D8%A7%D8%B4-1631762.html)
+- **حكيم زياش.. بين ضغط الوقت وحلم العودة لمنتخب المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4--%D8%A8%D9%8A%D9%86-%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D9%88%D8%AD%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt61a211dea4f53100)
+
+
+### classement ligue 1 (N/A, Sun, 5 Oct 2025 14:00:00 -0700)
+
+- **Les réactions d’Akliouche, Diatta et Biereth après le nul dans le Derby**: [Link](https://www.asmonaco.com/les-reactions-de-maghnes-akliouche-krepin-diatta-et-mika-biereth-apres-le-nul-dans-le-derby-entre-monaco-et-nice/)
+- **Diop : « C'est assez frustrant »**: [Link](https://www.ogcnice.com/fr/article/129312/diop-cest-assez-frustrant.html)
+- **Monaco et Nice se vautrent ensemble**: [Link](https://www.boursorama.com/actualite-economique/actualites/monaco-et-nice-se-vautrent-ensemble-05b902037a1f1fc2d6372cf67de94de0)
+
+
 ### milan ac (N/A, Sun, 5 Oct 2025 14:00:00 -0700)
 
 - **Juventus Turin - AC Milan : sur quelle chaîne et à quelle heure voir le match en direct ?**: [Link](https://www.ouest-france.fr/sport/football/italie/juventus-turin/juventus-turin-inter-milan-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-en-direct-1047e12e-9fa7-11f0-b8c9-cb434b3a2a4e)
