@@ -1,3 +1,10 @@
+### لا ليغا (N/A, Sat, 4 Oct 2025 14:00:00 -0700)
+
+- **جيرونا يحقق فوزه الأول هذا الموسم على حساب فالنسيا : lematinsports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7/9706)
+- **جيرونا تنفس الصعداء في غياب أوناحي**: [Link](https://www.almountakhab.com/node/13218188)
+- **تابع بحماس .. القناة الناقلة لمباراة إسبانيول وفالنسيا تكشف تفاصيل النقل الحصري في الجولة السادسة للدوري الإسباني**: [Link](https://arabsport.org/2025/10/02/%D8%AA%D8%A7%D8%A8%D8%B9-%D8%A8%D8%AD%D9%85%D8%A7%D8%B3-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D8%B3%D8%A8/)
+
+
 ### inter miami – new england (N/A, Sat, 4 Oct 2025 15:50:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF in Action at Home Against New England Revolution**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-in-action-at-home-against-new-england-revolution)
