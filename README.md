@@ -1,3 +1,10 @@
+### barca (N/A, Sun, 5 Oct 2025 08:00:00 -0700)
+
+- **Sevilla vs Barcelona: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cgq4p1n3e2dt)
+- **How to Watch Sevilla vs. Barcelona on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-sevilla-vs-barcelona-tv-live-stream-10-5-25)
+- **Squad for the trip to Sevilla**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4376015/squad-for-the-trip-to-sevilla)
+
+
 ### brentford – manchester city (N/A, Sun, 5 Oct 2025 07:40:00 -0700)
 
 - **Manchester City vs Brentford: Latest City injury news and predicted City starting eleven**: [Link](https://esteemedkompany.com/2025/10/05/manchester-city-vs-brentford-latest-city-injury-news-and-predicted-city-starting-eleven-2/)
