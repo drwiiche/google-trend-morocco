@@ -1,3 +1,10 @@
+### juventus (N/A, Sun, 5 Oct 2025 12:30:00 -0700)
+
+- **LIVE Juve-Milan 0-0: coast to coast di Pulisic che poi spreca**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/05-10-2025/juventus-milan-live-diretta-serie-a.shtml)
+- **Tare su Leao e i social: "Finché si rispettano le regole non c'è problema"**: [Link](https://www.sportmediaset.mediaset.it/calcio/tare-su-leao-e-i-social-finche-si-rispettano-le-regole-non-c-e-problema_104343569-202502k.shtml)
+- **Serie A, ora Juve-Milan: 0-0. Vincono Napoli, Roma e Bologna. Udinese-Cagliari 1-1. VIDEO**: [Link](https://tg24.sky.it/sport/2025/10/05/serie-a-partite-oggi-risultati-gol-highlights-video)
+
+
 ### celta vigo vs atlético madrid (N/A, Sun, 5 Oct 2025 12:10:00 -0700)
 
 - **En qué canal pasan Celta vs. Atlético de Madrid por la Liga de España 2025-2026 hoy**: [Link](https://es-us.noticias.yahoo.com/deportes/canal-pasan-celta-vs-atl%C3%A9tico-124211623.html)
