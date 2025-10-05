@@ -1,3 +1,10 @@
+### greve controleur aerien octobre 2025 (N/A, Sun, 5 Oct 2025 00:40:00 -0700)
+
+- **Contrôleurs aériens français: le principal syndicat suspend son préavis de grève des 7, 8 et 9 octobre**: [Link](https://medias24.com/agence-presse/controleurs-aeriens-francais-le-principal-syndicat-suspend-son-preavis-de-greve-des-7-8-et-9-octobre/)
+- **Grève des contrôleurs aériens français : Ryanair annonce jusqu'à 1 800 vols annulés du 7 au 9 octobre 2025**: [Link](https://www.air-journal.fr/2025-10-04-greve-des-controleurs-aeriens-francais-ryanair-annonce-jusqua-1-800-vols-annules-du-7-au-9-octobre-2025-5266189.html)
+- **Les contrôleurs aériens annoncent ce samedi, la levée de leur préavis de grève qui était annoncé pou...**: [Link](https://www.jeanmarcmorandini.com/article-620767-les-controleurs-aeriens-annoncent-ce-samedi-la-levee-de-leur-preavis-de-greve-qui-etait-annonce-pour-les-7-8-et-9-octobre-prochain-les-syndicats-reclamaient-une-revalorisation-des-salaires.html)
+
+
 ### fadel chaker (N/A, Sat, 4 Oct 2025 23:20:00 -0700)
 
 - **Pop star turned militant Fadel Shaker surrenders to Lebanese military**: [Link](https://apnews.com/article/lebanon-shaker-singer-surrenders-sidon-military-intelligence-178a0d28df96d69639b2eea491dc5ff3)
