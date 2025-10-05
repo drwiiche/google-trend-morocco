@@ -1,3 +1,10 @@
+### ameur mansouri (N/A, Sun, 5 Oct 2025 02:10:00 -0700)
+
+- **Paris : l’un des plus gros trafiquants de drogue français arrêté dans les bouchons**: [Link](https://www.leparisien.fr/faits-divers/paris-lun-des-plus-gros-trafiquants-de-drogue-francais-arrete-dans-les-bouchons-03-10-2025-VU6KM3W67FAYHNH46U5F26X3NA.php)
+- **Qui est Ameur Mansouri, l’un des narcotrafiquants les plus recherchés de France, arrêté dans les bouchons parisiens ?**: [Link](https://www.lefigaro.fr/faits-divers/qui-est-ameur-mansouri-l-un-des-narcotrafiquants-les-plus-recherches-de-france-arrete-dans-les-bouchons-parisiens-20251004)
+- **L'un des plus gros trafiquants de drogues français arrêté dans des embouteillages à Paris**: [Link](https://www.franceinfo.fr/societe/drogue/l-un-des-plus-gros-trafiquants-de-drogues-francais-arrete-dans-des-embouteillages-a-paris_7529893.html)
+
+
 ### اليوم العالمي للمدرس (N/A, Sat, 4 Oct 2025 23:20:00 -0700)
 
 - **اليوم العالمي للمدرس.. تقدير معنوي كبير وواقع مهني مقلق بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D9%84%D9%84%D9%85%D8%AF%D8%B1%D8%B3-%D8%AA%D9%82%D8%AF%D9%8A%D8%B1-%D9%85%D8%B9%D9%86%D9%88%D9%8A-%D9%83%D8%A8%D9%8A%D8%B1-1634434.html)
