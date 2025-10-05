@@ -1,3 +1,10 @@
+### la liga classement (N/A, Sun, 5 Oct 2025 09:20:00 -0700)
+
+- **Real Madrid 3-1 Villarreal, La Liga : Le Real Madrid se reprend après le derby !**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-madrid-villarreal-live/676785)
+- **L’incertitude plane pour Kylian Mbappé, la blessure de Lamine Yamal fait trembler le Barça**: [Link](https://www.footmercato.net/a6500743711588473101-lincertitude-plane-pour-kylian-mbappe-la-blessure-de-lamine-yamal-fait-trembler-le-barca)
+- **Le grand flou : Mbappé rassure pour sa cheville, pas Xabi Alonso**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/liga-malgre-son-but-contre-villarreal-kylian-mbappe-souffre-dune-entorse-a-la-cheville-droite-est-incertain-avant-le-rassemblement-des-bleus_sto23228254/story.shtml)
+
+
 ### la liga (N/A, Sun, 5 Oct 2025 09:10:00 -0700)
 
 - **Spain Soccer La Liga**: [Link](https://www.hjnews.com/sports/nation/spain-soccer-la-liga/image_f5c06336-1d87-51e3-a66a-4dc5497d7dcc.html)
