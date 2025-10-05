@@ -1,3 +1,10 @@
+### espagne u20 (N/A, Sat, 4 Oct 2025 14:30:00 -0700)
+
+- **DIRECT. Espagne (u20)-Brésil (u20) (Coupe du monde (-20) 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-monde-20/2025/espagne-u20-bresil-u20-live/672505)
+- **Coupe du Monde U20 2025 : l’Espagne et le Brésil dos à dos à la pause (0-0)**: [Link](https://africafootunited.com/coupe-du-monde-u20-2025-lespagne-et-le-bresil-dos-a-dos-a-la-pause-0-0/)
+- **Le résumé d'Espagne - Mexique - Foot - Coupe du monde U20**: [Link](https://sports.orange.fr/videos/football/le-resume-d-espagne-mexique-foot-coupe-du-monde-u20-CNT000002l0fbt.html)
+
+
 ### كاس العالم للشباب (N/A, Sat, 4 Oct 2025 13:50:00 -0700)
 
 - **بعد صدمة اللعب النظيف.. سيناريوهات معقدة ترسم حظوظ تأهل منتخب مصر إلى ثمن نهائي مونديال الشباب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D9%85%D8%B9%D9%82%D8%AF%D8%A9-%D8%AA%D8%B1%D8%B3%D9%85-%D8%AD%D8%B8%D9%88%D8%B8-%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D9%84%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/bltdfe98296271232c2)
