@@ -1,3 +1,38 @@
+### lille – paris-sg (N/A, Sun, 5 Oct 2025 11:00:00 -0700)
+
+- **Le groupe du PSG pour le déplacement à Lille dévoilé, six cadres manquants**: [Link](https://www.lequipe.fr/Football/Actualites/Le-groupe-du-psg-pour-le-deplacement-a-lille-devoile-six-cadres-manquants/1599207)
+- **La majorité des supporters lillois pessimiste avant LOSC – PSG**: [Link](https://lepetitlillois.com/2025/10/05/la-majorite-des-supporters-lillois-pessimiste-avant-losc-psg/)
+- **Sports - Le PSG se déplace à Lille pour le choc de Ligue 1, l'OM confirme à Metz**: [Link](https://www.france24.com/fr/%C3%A9missions/sports/20251005-le-psg-se-d%C3%A9place-%C3%A0-lille-pour-le-choc-de-ligue-1-l-om-confirme-%C3%A0-metz)
+
+
+### juventus – ac milan (N/A, Sun, 5 Oct 2025 11:00:00 -0700)
+
+- **Capello breaks Juventus-Milan down into three crucial tactical aspects**: [Link](https://sempremilan.com/capello-juventus-milan-three-tactical-aspects)
+- **Milan lean on Modric and Rabiot to punish Juventus’ midfield**: [Link](https://milanreports.com/2025/10/05/milan-modric-rabiot-juventus-midfield/)
+- **Serie A Liveblog: Juventus vs. Milan, Fiorentina vs. Roma and more**: [Link](https://football-italia.net/serie-a-liveblog-juve-milan-fiorentina-roma/)
+
+
+### espanyol vs real betis (N/A, Sun, 5 Oct 2025 10:50:00 -0700)
+
+- **LIVE/FREE: Espanyol vs Real Betis LIVE STREA.Ms 05. 10. 2025**: [Link](https://yourkenora.ca/classifieds/listings/live-free-espanyol-vs-real-betis-live-strea-ms-05-10-2025/?rfy)
+- **Aitor Ruibal vs. Espanyol – Player props & odds to score a goal on October 5**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/04/aitor-ruibal-soccer-player-props-10-5-2025/86527925007/)
+- **Espanyol vs Betis Prediction, 10/5/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/espanyol-vs-betis-prediction-10-5-2025-soccer-pick-tips-and-odds.html)
+
+
+### botola 2 (N/A, Sun, 5 Oct 2025 10:50:00 -0700)
+
+- **Botola D2 / J2 : La JSS maintient le cap, Wydad Témara vainqueur à Fès**: [Link](https://www.lopinion.ma/Botola-D2-J2-La-JSS-maintient-le-cap-Wydad-Temara-vainqueur-a-Fes_a72493.html)
+- **Botola DII / J2 : KAC, SM et JSS à la quête d’un 2e succès cet après-midi !2473**: [Link](https://www.lopinion.ma/Botola-DII-J2-KAC-SM-et-JSS-a-la-quete-d-un-2e-succes-cet-apres-midi-2473_a72473.html)
+- **شباب بن جرير ينفرد بالصدارة بعد مباريات السبت**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D9%86-%D8%AC%D8%B1%D9%8A%D8%B1-%D9%8A%D9%86%D9%81%D8%B1%D8%AF-%D8%A8%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA/9711)
+
+
+### la liga table (N/A, Sun, 5 Oct 2025 09:20:00 -0700)
+
+- **Vinicius double helps Real Madrid beat Villarreal**: [Link](https://www.beinsports.com/en-mena/football/la-liga/articles-video/vinicius-double-helps-real-madrid-beat-villarreal-2025-10-05)
+- **Xabi Alonso: “Vini Jr. played a very good game and had a decisive performance”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rueda-de-prensa-de-xabi-alonso-post-real-madrid-villarreal-j8-liga-04-10-2025)
+- **La Liga football match: Real Madrid vs. Villarreal CF**: [Link](https://english.news.cn/20251005/fae3d8231abf40f780e459eeb2b450c9/c.html)
+
+
 ### napoli (N/A, Sun, 5 Oct 2025 10:10:00 -0700)
 
 - **Napoli-Genoa | UFFICIALI: KDB in panchina! Oriali spiega la decisione**: [Link](https://onefootball.com/it/notizie/napoli-genoa-ufficiali-kdb-in-panchina-oriali-spiega-la-decisione-41764889)
