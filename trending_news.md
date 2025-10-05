@@ -1,3 +1,10 @@
+### naima moutchou ministre (N/A, Sun, 5 Oct 2025 16:00:00 -0700)
+
+- **Gouvernement Lecornu : Naïma Moutchou ministre, une fidèle d’Edouard Philippe au ministère de la Fonction publique et du Numérique**: [Link](https://www.liberation.fr/politique/gouvernement-lecornu-naima-moutchou-ministre-une-fidele-dedouard-philippe-au-ministere-de-la-fonction-publique-et-du-numerique-20251005_WOZB34RMWNBMBIUOCMAYSRBVME/)
+- **Naïma Mouchtou placée à la tête de la Fonction publique, de la réforme de l’État, du numérique et de l’IA**: [Link](https://acteurspublics.fr/articles/naima-mouchtou-placee-a-la-tete-de-la-fonction-publique-de-la-reforme-de-letat-du-numerique-et-de-lia/)
+- **Proche d'Édouard Philippe, Naïma Moutchou, ancienne avocate, nommée ministre de la Fonction publique**: [Link](https://www.bfmtv.com/politique/proche-d-edouard-philippe-naima-moutchou-ancienne-avocate-nommee-ministre-de-la-fonction-publique_AD-202510050364.html)
+
+
 ### israel (N/A, Sun, 5 Oct 2025 14:20:00 -0700)
 
 - **Netanyahu says he hopes to announce hostages' release in days and vows Hamas will be disarmed**: [Link](https://www.bbc.com/news/live/cn0xvnxqj2xt)
