@@ -1,3 +1,10 @@
+### wolves – brighton (N/A, Sun, 5 Oct 2025 06:20:00 -0700)
+
+- **Big Kaoru Mitoma decision made by Fabian Hurzeler ahead of Wolves - Brighton predicted XI**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/big-kaoru-mitoma-decision-made-by-fabian-hurzeler-ahead-of-wolves-brighton-predicted-xi-5346194)
+- **Welbeck to start as Brighton and Hove Albion face Wolves**: [Link](https://www.brightonandhovenews.org/2025/10/05/welbeck-to-start-as-brighton-and-hove-albion-face-wolves/)
+- **Steve Bull: Wolves are improving and now it's time to get back to winning ways**: [Link](https://www.expressandstar.com/sport/2025/10/04/steve-bull-wolves-are-improving-and-now-its-time-to-get-back-to-winning-ways/)
+
+
 ### fiorentina – roma (N/A, Sun, 5 Oct 2025 06:00:00 -0700)
 
 - **✅ Le UFFICIALI delle 15: la scelta su Dovbyk, Castro, Orso, Gud e Nzola**: [Link](https://onefootball.com/it/notizie/le-ufficiali-delle-15-la-scelta-su-dovbyk-castro-orso-gud-e-nzola-41763906)
