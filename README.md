@@ -1,3 +1,24 @@
+### newcastle – nottm forest (N/A, Sun, 5 Oct 2025 05:20:00 -0700)
+
+- **Newcastle v Nottingham Forest, Everton v Crystal Palace and more: Premier League clockwatch – live**: [Link](https://www.theguardian.com/football/live/2025/oct/05/newcastle-nottingham-forest-everton-crystal-palace-premier-league-clockwatch-live)
+- **Postecoglou knows Forest's fortunes must change**: [Link](https://sporty.com/news/postecoglou-knows-forests-fortunes-must-change/1h79av5vrm87y1hfpqc609pq72)
+- **Newcastle vs Forest Predictions and Betting Tips: Another high-scoring battle awaits**: [Link](https://www.goal.com/en-us/betting/newcastle-vs-forest-predictions-and-betting-tips-10-05/blt9cd024948e11d1eb)
+
+
+### everton – crystal palace (N/A, Sun, 5 Oct 2025 05:20:00 -0700)
+
+- **How to watch today's Everton vs Crystal Palace Premier League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-in/news/watch-everton-vs-crystal-palace-premier-league-game-live-stream-tv-channel-start-time/bltcd83d6cf93166eaf)
+- **Moyes still pushing for more improvement from Grealish**: [Link](https://www.beinsports.com/en-nz/football/premier-league/articles/moyes-still-pushing-for-more-improvement-from-grealish-2025-10-04)
+- **How to watch Aston Villa v Burnley**: [Link](https://news.bet365.com/en-gb/article/how-to-watch-aston-villa-v-burnley/2025100312514921191)
+
+
+### grève contrôleurs aériens (N/A, Sun, 5 Oct 2025 05:20:00 -0700)
+
+- **Contrôleurs aériens français : le principal syndicat suspend son préavis de grève des 7, 8 et 9 octobre**: [Link](https://www.sudouest.fr/economie/social/greve/controleurs-aeriens-francais-le-principal-syndicat-suspend-son-preavis-de-greve-des-7-8-et-9-octobre-26199491.php)
+- **Grève des contrôleurs aériens français : Ryanair annonce jusqu'à 1 800 vols annulés du 7 au 9 octobre 2025**: [Link](https://www.air-journal.fr/2025-10-04-greve-des-controleurs-aeriens-francais-ryanair-annonce-jusqua-1-800-vols-annules-du-7-au-9-octobre-2025-5266189.html)
+- **Les contrôleurs aériens annoncent ce samedi, la levée de leur préavis de grève qui était annoncé pou...**: [Link](https://www.jeanmarcmorandini.com/article-620767-les-controleurs-aeriens-annoncent-ce-samedi-la-levee-de-leur-preavis-de-greve-qui-etait-annonce-pour-les-7-8-et-9-octobre-prochain-les-syndicats-reclamaient-une-revalorisation-des-salaires.html)
+
+
 ### عزيز غالي (N/A, Sun, 5 Oct 2025 00:00:00 -0700)
 
 - **ناشطو أسطول الصمود يروون تفاصيل احتجازهم بإسرائيل**: [Link](https://www.aljazeera.net/news/2025/10/5/%D9%86%D8%A7%D8%B4%D8%B7%D9%88-%D8%A3%D8%B3%D8%B7%D9%88%D9%84-%D8%A7%D9%84%D8%B5%D9%85%D9%88%D8%AF-%D9%8A%D8%B1%D9%88%D9%88%D9%86-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84)
