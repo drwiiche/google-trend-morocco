@@ -1,3 +1,10 @@
+### sanae takaichi (N/A, Mon, 6 Oct 2025 02:50:00 -0700)
+
+- **Who is Japan's 'Iron Lady' Sanae Takaichi?**: [Link](https://www.bbc.com/news/articles/crkj5e73xkmo)
+- **Asia Open: The Iron Lady of Liquidity**: [Link](https://www.investing.com/analysis/asia-open-the-iron-lady-of-liquidity-200668006)
+- **Japan braces for shift to conservatism**: [Link](https://www.chinadailyasia.com/article/621188)
+
+
 ### xavier durringer (N/A, Mon, 6 Oct 2025 02:00:00 -0700)
 
 - **Xavier Durringer, scénariste, réalisateur et dramaturge, est mort à 61 ans**: [Link](https://www.lemonde.fr/disparitions/article/2025/10/05/xavier-durringer-scenariste-realisateur-et-dramaturge-est-mort-a-61-ans_6644543_3382.html)
