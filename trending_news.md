@@ -1,3 +1,10 @@
+### nayef aguerd (N/A, Mon, 6 Oct 2025 07:30:00 -0700)
+
+- **Le défenseur de l’OM Nayef Aguerd agressé à l’aéroport de Marignane**: [Link](https://rmcsport.bfmtv.com/football/clubs/olympique-marseille/le-defenseur-de-l-om-nayef-aguerd-agresse-a-l-aeroport-de-marignane_AN-202510060601.html)
+- **OM : Nayef Aguerd a été violemment agressé à l’aéroport de Marseille**: [Link](https://www.footmercato.net/a810718255419645172-om-nayef-aguerd-a-ete-violemment-agresse-a-laeroport-de-marseille)
+- **Tentative d’agression sur Nayef Aguerd à l’aéroport de Marseille**: [Link](https://sport.le360.ma/football/tentative-dagression-sur-nayef-aguerd-a-laeroport-de-marseille_Z3B5SBM6P5DEJMZCJZBXNKXTAM/)
+
+
 ### sébastien lecornu premier ministre (N/A, Mon, 6 Oct 2025 04:50:00 -0700)
 
 - **EN DIRECT, démission de Sébastien Lecornu : le premier ministre démissionnaire de nouveau à l’Elysée**: [Link](https://www.lemonde.fr/politique/live/2025/10/06/en-direct-demission-de-sebastien-lecornu-le-premier-ministre-demissionnaire-de-nouveau-a-l-elysee_6644534_823448.html)
