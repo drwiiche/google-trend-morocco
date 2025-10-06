@@ -1,3 +1,17 @@
+### nayef aguerd agressé (N/A, Mon, 6 Oct 2025 15:00:00 -0700)
+
+- **Le défenseur de l’OM, Nayef Aguerd, agressé à l’aéroport de Marignane**: [Link](https://rmcsport.bfmtv.com/football/clubs/olympique-marseille/le-defenseur-de-l-om-nayef-aguerd-agresse-a-l-aeroport-de-marignane_AN-202510060601.html)
+- **OM : Nayef Aguerd sort du silence après son agression**: [Link](https://www.footmercato.net/a6069741245371036143-om-nayef-aguerd-sort-du-silence-apres-son-agression)
+- **OM - Nayef Aguerd agressé à l'aéroport de Marignane ce lundi**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/om-nayef-aguerd-agresse-a-laeroport-de-marignane-ce-lundi_sto23228748/story.shtml)
+
+
+### dacia hipster (N/A, Mon, 6 Oct 2025 15:00:00 -0700)
+
+- **Dacia challenges low-cost Chinese EVs with prototype 15,000 euro mini-car**: [Link](https://www.reuters.com/business/retail-consumer/dacia-challenges-low-cost-chinese-evs-with-prototype-15000-euro-mini-car-2025-10-06/)
+- **The Dacia Hipster concept is a tiny lightweight inspired by the OG Mini and Japan's kei cars**: [Link](https://www.topgear.com/car-news/electric/dacia-hipster-concept-a-tiny-lightweight-inspired-og-mini-and-japans-kei-cars)
+- **The Dacia Hipster Concept Is A Tiny EV That Fits An Entire Family**: [Link](https://insideevs.com/news/774738/dacia-hipster-concept-ev-official-debut/)
+
+
 ### aljazeera (N/A, Sun, 5 Oct 2025 23:20:00 -0700)
 
 - **Live updates: Gaza ceasefire talks to begin in Egypt as Trump pressures Israel and Hamas to strike deal**: [Link](https://www.cnn.com/world/live-news/israel-gaza-hamas-trump-10-06-25)
