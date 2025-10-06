@@ -1,3 +1,10 @@
+### akdital (N/A, Mon, 6 Oct 2025 07:10:00 -0700)
+
+- **Santé: le groupe Akdital dément formellement bénéficier de fonds publics**: [Link](https://fr.le360.ma/economie/sante-le-groupe-akdital-dement-formellement-beneficier-de-fonds-publics_BM7BWGVNXVBE7MFH7Z2PWWDHS4/)
+- **Cliniques privées : l’ANCP recadre Tahraoui et dément toute subvention publique**: [Link](https://mobile.telquel.ma/2025/10/06/cliniques-privees-lancp-recadre-tahraoui-et-dement-toute-subvention-publique_1954211)
+- **La santé privée est-elle vraiment subventionnée ?**: [Link](https://boursenews.ma/article/marches/sante-subventions-cliniques-privees)
+
+
 ### nayef aguerd (N/A, Mon, 6 Oct 2025 07:30:00 -0700)
 
 - **Le défenseur de l’OM Nayef Aguerd agressé à l’aéroport de Marignane**: [Link](https://rmcsport.bfmtv.com/football/clubs/olympique-marseille/le-defenseur-de-l-om-nayef-aguerd-agresse-a-l-aeroport-de-marignane_AN-202510060601.html)
