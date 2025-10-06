@@ -1,3 +1,10 @@
+### pleine lune octobre 2025 (N/A, Mon, 6 Oct 2025 11:00:00 -0700)
+
+- **Pourquoi la pleine lune du 7 octobre sera plus grosse et lumineuse que d’habitude ?**: [Link](https://www.larepubliquedespyrenees.fr/sciences-et-technologie/pourquoi-la-pleine-lune-du-7-octobre-sera-plus-grosse-et-lumineuse-que-d-habitude-26190213.php)
+- **Un phénomène céleste rare dans le ciel cette nuit : voici le meilleur moment pour observer la Super Lune... et les deux prochains rendez-vous à ne pas manquer**: [Link](https://www.sudinfo.be/id1049746/article/2025-10-06/un-phenomene-celeste-rare-dans-le-ciel-cette-nuit-voici-le-meilleur-moment-pour)
+- **Le rendez-vous de 5 h 48**: [Link](https://www.la-croix.com/a-vif/le-rendez-vous-de-5-h-48-20251006)
+
+
 ### akdital (N/A, Mon, 6 Oct 2025 07:10:00 -0700)
 
 - **Santé: le groupe Akdital dément formellement bénéficier de fonds publics**: [Link](https://fr.le360.ma/economie/sante-le-groupe-akdital-dement-formellement-beneficier-de-fonds-publics_BM7BWGVNXVBE7MFH7Z2PWWDHS4/)
