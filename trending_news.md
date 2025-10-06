@@ -1,3 +1,17 @@
+### xavier durringer (N/A, Mon, 6 Oct 2025 02:00:00 -0700)
+
+- **Xavier Durringer, scénariste, réalisateur et dramaturge, est mort à 61 ans**: [Link](https://www.lemonde.fr/disparitions/article/2025/10/05/xavier-durringer-scenariste-realisateur-et-dramaturge-est-mort-a-61-ans_6644543_3382.html)
+- **Le réalisateur du film "La Conquête", biopic consacré à Nicolas Sarkozy, est mort**: [Link](https://www.dhnet.be/medias/cinema/2025/10/05/le-realisateur-du-film-la-conquete-biopic-consacre-a-nicolas-sarkozy-est-mort-YENFZVMLYFAAFDHLYVNUBEYPDE/)
+- **Claire Keim, Johnny Hallyday, Didier Bourdon... ils l'ont tous connu, ce célèbre réalisateur nous a quittés à l'âge de 61 ans**: [Link](https://www.purepeople.com/article/claire-keim-johnny-hallyday-didier-bourdon-ils-lont-tous-connu-ce-celebre-realisateur-nous-a-quittes-a-lage-de-61-ans_a543259/1)
+
+
+### france (N/A, Mon, 6 Oct 2025 01:20:00 -0700)
+
+- **570 jours d'attente pour un nouveau médicament : « La France se prive d'innovations médicales à force de régulations**: [Link](https://www.lesechos.fr/idees-debats/cercle/570-jours-dattente-pour-un-nouveau-medicament-la-france-se-prive-dinnovations-medicales-a-force-de-regulations-2189667)
+- **Médicaments: en 15 ans, la France est passée de 1er à 6e producteur européen**: [Link](https://www.bfmtv.com/economie/replay-emissions/good-morning-business/video-medicaments-en-15-ans-la-france-est-passee-de-1er-a-6e-producteur-europeen_VN-202510060323.html)
+- **Médicaments : comment la Sécurité sociale pourrait empêcher l’explosion des prix**: [Link](https://www.humanite.fr/social-et-economie/donald-trump/medicaments-comment-la-securite-sociale-pourrait-empecher-lexplosion-des-prix)
+
+
 ### lecornu (N/A, Mon, 6 Oct 2025 01:10:00 -0700)
 
 - **EN DIRECT - Le gouvernement Lecornu va-t-il tenir ? "LR ne peut pas y participer", selon Xavier Bertrand sur RTL**: [Link](https://www.rtl.fr/actu/politique/en-direct-le-gouvernement-lecornu-va-t-il-tenir-colere-chez-lr-menaces-de-censure-passations-de-pouvoir-suivez-les-dernieres-informations-7900548991)
