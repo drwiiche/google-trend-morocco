@@ -1,3 +1,10 @@
+### aljazeera (N/A, Sun, 5 Oct 2025 23:20:00 -0700)
+
+- **Live updates: Gaza ceasefire talks to begin in Egypt as Trump pressures Israel and Hamas to strike deal**: [Link](https://www.cnn.com/world/live-news/israel-gaza-hamas-trump-10-06-25)
+- **Watch Israel, Hamas Hold Deal Talks in Egypt Ahead of Oct.7 Anniversary**: [Link](https://www.bloomberg.com/news/videos/2025-10-06/israel-hamas-hold-talks-in-egypt-video)
+- **Scoop — Trump to Netanyahu on Gaza talks: "You're always so f***ing negative"**: [Link](https://www.axios.com/2025/10/05/trump-netanyahu-call-gaza-peace-deal-hamas)
+
+
 ### pleine lune octobre 2025 (N/A, Mon, 6 Oct 2025 11:00:00 -0700)
 
 - **Pourquoi la pleine lune du 7 octobre sera plus grosse et lumineuse que d’habitude ?**: [Link](https://www.larepubliquedespyrenees.fr/sciences-et-technologie/pourquoi-la-pleine-lune-du-7-octobre-sera-plus-grosse-et-lumineuse-que-d-habitude-26190213.php)
