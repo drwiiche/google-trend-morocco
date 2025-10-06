@@ -1,3 +1,10 @@
+### المظاهرات بالمغرب (N/A, Sun, 5 Oct 2025 17:00:00 -0700)
+
+- **احتجاجات جيل زد بالمغرب.. أرقام عن البطالة والفوارق الاجتماعية**: [Link](https://www.aljazeera.net/ebusiness/2025/10/5/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D8%B9%D9%86)
+- **شعارات "جيل زد" تنادي بمطالب اجتماعية وإصلاحات عاجلة من الرباط**: [Link](https://www.hespress.com/%D8%B4%D8%B9%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%AA%D9%86%D8%A7%D8%AF%D9%8A-%D8%A8%D9%85%D8%B7%D8%A7%D9%84%D8%A8-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A%D8%A9-%D9%88-1635483.html)
+- **وزراء مغاربة يدعون "جيل زد" للحوار ووقف الاحتجاجات والتخريب**: [Link](https://www.alarabiya.net/north-africa/morocco/2025/10/02/%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D8%AF%D8%B9%D9%88%D9%86-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A7%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D9%88%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D9%88%D8%A7%D8%B9%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%AE%D8%B1%D9%8A%D8%A8)
+
+
 ### naima moutchou ministre (N/A, Sun, 5 Oct 2025 16:00:00 -0700)
 
 - **Gouvernement Lecornu : Naïma Moutchou ministre, une fidèle d’Edouard Philippe au ministère de la Fonction publique et du Numérique**: [Link](https://www.liberation.fr/politique/gouvernement-lecornu-naima-moutchou-ministre-une-fidele-dedouard-philippe-au-ministere-de-la-fonction-publique-et-du-numerique-20251005_WOZB34RMWNBMBIUOCMAYSRBVME/)
