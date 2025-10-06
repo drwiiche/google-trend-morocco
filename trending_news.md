@@ -1,3 +1,17 @@
+### lecornu (N/A, Mon, 6 Oct 2025 01:10:00 -0700)
+
+- **EN DIRECT - Le gouvernement Lecornu va-t-il tenir ? "LR ne peut pas y participer", selon Xavier Bertrand sur RTL**: [Link](https://www.rtl.fr/actu/politique/en-direct-le-gouvernement-lecornu-va-t-il-tenir-colere-chez-lr-menaces-de-censure-passations-de-pouvoir-suivez-les-dernieres-informations-7900548991)
+- **EN DIRECT, gouvernement Lecornu : PS et RN promettent la censure ; LR menace de quitter le gouvernement**: [Link](https://www.lemonde.fr/politique/live/2025/10/06/en-direct-gouvernement-lecornu-ps-et-rn-promettent-la-censure-lr-menace-de-quitter-le-gouvernement_6644534_823448.html)
+- **DIRECT. Démission de Sébastien Lecornu: le Premier ministre démissionnaire va s'exprimer à 10h45**: [Link](https://www.bfmtv.com/politique/gouvernement/direct-le-nouveau-gouvernement-peine-nomme-deja-condamne-bruno-retailleau-convoque-une-reunion-d-urgence-des-lr-premier-conseil-des-ministres-a-16h_LN-202510060066.html)
+
+
+### rodri (N/A, Mon, 6 Oct 2025 00:10:00 -0700)
+
+- **La peor noticia de todas para Pep Guardiola y el Manchester City**: [Link](https://www.mundodeportivo.com/futbol/premier-league/20251005/1002545316/peor-noticia-todas-pep-guardiola-manchester-city.html)
+- **Rodrigo se fue lesionado otra vez**: [Link](https://fdpradio.com/rodrigo-se-fue-lesionado-otra-vez/)
+- **Rodri también da el susto... y confirma que no irá con España**: [Link](https://www.marca.com/futbol/premier-league/2025/10/05/rodri-tambien-da-susto-retira-lesionado-manchester-city.html)
+
+
 ### ترتيب الدوري الفرنسي (N/A, Sun, 5 Oct 2025 13:40:00 -0700)
 
 - **بطولة فرنسا: مرسيليا يواصل انتفاضته ويتصدر موقتا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251004-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%85%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%86%D8%AA%D9%81%D8%A7%D8%B6%D8%AA%D9%87-%D9%88%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D9%85%D9%88%D9%82%D8%AA%D8%A7)
