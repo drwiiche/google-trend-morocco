@@ -1,3 +1,10 @@
+### sébastien lecornu premier ministre (N/A, Mon, 6 Oct 2025 04:50:00 -0700)
+
+- **EN DIRECT, démission de Sébastien Lecornu : le premier ministre démissionnaire de nouveau à l’Elysée**: [Link](https://www.lemonde.fr/politique/live/2025/10/06/en-direct-demission-de-sebastien-lecornu-le-premier-ministre-demissionnaire-de-nouveau-a-l-elysee_6644534_823448.html)
+- **Le gouvernement Lecornu va-t-il tenir ? "LR ne peut pas y participer", selon Xavier Bertrand sur RTL**: [Link](https://www.rtl.fr/actu/politique/en-direct-le-gouvernement-lecornu-va-t-il-tenir-colere-chez-lr-menaces-de-censure-passations-de-pouvoir-suivez-les-dernieres-informations-7900548991)
+- **"Pas la rupture promise": pagaille chez les Républicains, qui s'interrogent sur leur maintien dans le gouvernement**: [Link](https://www.bfmtv.com/politique/gouvernement/direct-gouvernement-lecornu-menace-par-la-censure-le-premier-ministre-devoile-sa-feuille-de-route_LN-202510050107.html)
+
+
 ### نزار بركة (N/A, Sun, 5 Oct 2025 14:30:00 -0700)
 
 - **نزار بركة يكشف عن تحديات قطاع الصحة بالمغرب والإجراءات المتخذة**: [Link](https://2m.ma/ar/news/%D9%86%D8%B2%D8%A7%D8%B1-%D8%A8%D8%B1%D9%83%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%AA%D8%AD%D8%AF%D9%8A%D8%A7%D8%AA-%D9%82%D8%B7%D8%A7%D8%B9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AE%D8%B0%D8%A9-20251006)
