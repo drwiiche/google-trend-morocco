@@ -1,3 +1,17 @@
+### rima hassan (N/A, Tue, 7 Oct 2025 04:20:00 -0700)
+
+- **EN DIRECT, Gaza : cent soixante et onze membres de la flottille pour Gaza, dont des Français et Greta Thunberg, ont été expulsés vers la Grèce et Slovaquie**: [Link](https://www.lemonde.fr/international/live/2025/10/06/en-direct-gaza-cent-soixante-et-onze-membres-de-la-flottille-pour-gaza-dont-des-francais-et-greta-thunberg-ont-ete-expulses-vers-la-grece-et-slovaquie_6644360_3210.html)
+- **“Je n'ai pas peur de mettre ma vie en danger” : Mustapha, à bord de la flottille pour Gaza, témoigne**: [Link](https://mobile.telquel.ma/2025/10/06/je-nai-pas-peur-de-mettre-ma-vie-en-danger-mustapha-a-bord-de-la-flottille-pour-gaza-temoigne_1954297)
+- **Rima Hassan assure avoir été « battue » par la police israélienne**: [Link](https://www.20minutes.fr/monde/4177569-20251006-flottille-gaza-rima-hassan-affirme-avoir-battue-policiers-israeliens)
+
+
+### rédoine faïd (N/A, Tue, 7 Oct 2025 04:20:00 -0700)
+
+- **Après une « dégradation inquiétante » de la santé de Rédoine Faïd, son isolement en prison suspendu par la justice**: [Link](https://www.leparisien.fr/faits-divers/apres-une-degradation-inquietante-de-la-sante-de-redoine-faid-son-isolement-en-prison-suspendu-par-la-justice-06-10-2025-BESALB6RQZCMXPDYG7UVCU5UNM.php)
+- **INFO RTL - "Un impact sur la santé physique et psychique du condamné" : l'isolement de Redoine Faïd "suspendu" après 12 ans**: [Link](https://www.rtl.fr/actu/justice-faits-divers/info-rtl-un-impact-sur-la-sante-physique-et-psychique-du-condamne-l-isolement-de-redoine-faid-suspendu-apres-12-ans-7900549146)
+- **A l’isolement depuis 12 ans, le braqueur Rédoine Faïd obtient gain de cause en justice**: [Link](https://www.20minutes.fr/justice/4177487-20251006-caen-isolement-depuis-12-ans-celebre-braqueur-redoine-faid-obtient-gain-cause-justice)
+
+
 ### hakim ziyech (N/A, Mon, 6 Oct 2025 21:30:00 -0700)
 
 - **Ziyech Close to Joining CFR Cluj in Romania**: [Link](https://www.moroccoworldnews.com/2025/10/261980/ziyech-close-to-joining-cfr-cluj-in-romania/)
