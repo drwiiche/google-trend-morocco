@@ -1,3 +1,10 @@
+### othman benjelloun (N/A, Tue, 7 Oct 2025 13:30:00 -0700)
+
+- **Othman Benjelloun cède le domaine d’Ardintoul à un promoteur québécois pour 14,5 millions de dollars**: [Link](https://fr.le360.ma/people/othman-benjelloun-cede-le-domaine-dardintoul-a-un-promoteur-quebecois-pour-145-millions-de-dollars_WW2DTNMPGNDODHSXEW2R734HZE/)
+- **[PHOTOS] Un riche banquier marocain vend son domaine du Québec pour 14,5M$**: [Link](https://www.journaldemontreal.com/2025/10/04/un-riche-banquier-marocain-vend-son-domaine-pour-145m)
+- **Othman Benjelloun cède le Domaine d’Ardintoul à un promoteur de Québec pour 14,5 M$ CA**: [Link](https://ledesk.ma/encontinu/othman-benjelloun-cede-le-domaine-dardintoul-a-un-promoteur-de-quebec-pour-145-m/)
+
+
 ### أوكرانيا تحت 20 ضد منتخب إسبانيا تحت 20 سنة لكرة القدم (N/A, Tue, 7 Oct 2025 12:20:00 -0700)
 
 - **مواعيد مباريات اليوم.. انطلاق ثمن نهائى كأس العالم للشباب**: [Link](https://www.youm7.com/story/2025/10/7/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%89-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/7145965)
