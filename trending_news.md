@@ -1,3 +1,15 @@
+### hakim ziyech (N/A, Mon, 6 Oct 2025 21:30:00 -0700)
+
+- **Ziyech Close to Joining CFR Cluj in Romania**: [Link](https://www.moroccoworldnews.com/2025/10/261980/ziyech-close-to-joining-cfr-cluj-in-romania/)
+- **Hakim Ziyech close to making a decision about his future**: [Link](https://foot-africa.com/en/news/hakim-ziyech-close-to-making-a-decision-about-his-future-905376/)
+- **Ziyech’s stunning transfer could be made official on Monday**: [Link](https://www.mundodeportivo.com/us/en/20251004/731827/ziyech-s-stunning-transfer-could-be-made-official-on-monday.html)
+
+
+### un si grand soleil (N/A, Mon, 6 Oct 2025 20:50:00 -0700)
+
+
+
+
 ### ابتسام لشكر (N/A, Mon, 6 Oct 2025 18:40:00 -0700)
 
 - **حكم استئنافي يبقي عقوبة ابتسام لشكر**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%85-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81%D9%8A-%D9%8A%D8%A8%D9%82%D9%8A-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%A7%D8%A8%D8%AA%D8%B3%D8%A7%D9%85-%D9%84%D8%B4%D9%83%D8%B1-1636008.html)
