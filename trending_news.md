@@ -1,3 +1,10 @@
+### al mada (N/A, Tue, 7 Oct 2025 06:20:00 -0700)
+
+- **Première au Maroc: la Fondation Al Mada et l’INPT inaugurent un Master Data & IA en alternance à Rabat**: [Link](https://fr.le360.ma/economie/premiere-au-maroc-la-fondation-al-mada-et-linpt-inaugurent-un-master-data-ia-en-alternance-a-rabat_RNQZKJWYTJDF5I4GGZO2FYXI5E/)
+- **La Fondation Al Mada et l'INPT lancent un master Data & IA, le premier au Maroc**: [Link](https://medias24.com/2025/10/07/la-fondation-al-mada-et-linpt-lancent-un-master-data-ia-le-premier-au-maroc/)
+- **La Fondation Al Mada et l’INPT lancent à Rabat un Master Data & IA**: [Link](https://mobile.telquel.ma/instant-t/2025/10/06/la-fondation-al-mada-et-linpt-lancent-a-rabat-un-master-data-ia_1954242/)
+
+
 ### tony parker senior (N/A, Tue, 7 Oct 2025 06:20:00 -0700)
 
 - **Condolences Pour in for NBA Legend Tony Parker on Monday**: [Link](https://athlonsports.com/nba/san-antonio-spurs/tony-parker-father-tony-parker-sr-dies-at-70)
