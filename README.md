@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Tue, 7 Oct 2025 04:50:00 -0700)
+
+- **ATP Shanghai Best Bets Including Djokovic vs Munar**: [Link](https://lastwordonsports.com/tennis/2025/10/06/atp-shanghai-best-bets-including-djokovic-vs-munar/)
+- **Rolex Shanghai Masters Betting Odds and Match Previews for October 7, 2025, Men's Singles**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2025/10/07/rolex-shanghai-masters-betting-odds-favorites-match-previews-10-6-2025-mens/86559760007/)
+- **Rolex Shanghai Masters Predictions: Jaume Munar Vs Novak Djokovic – Tuesday 7 October 2025**: [Link](https://www.stevegtennis.com/h2h-predictions/2025/10/07/rolex-shanghai-masters-predictions-jaume-munar-vs-novak-djokovic-tuesday-7-october-2025/)
+
+
 ### rima hassan (N/A, Tue, 7 Oct 2025 04:20:00 -0700)
 
 - **EN DIRECT, Gaza : cent soixante et onze membres de la flottille pour Gaza, dont des Français et Greta Thunberg, ont été expulsés vers la Grèce et Slovaquie**: [Link](https://www.lemonde.fr/international/live/2025/10/06/en-direct-gaza-cent-soixante-et-onze-membres-de-la-flottille-pour-gaza-dont-des-francais-et-greta-thunberg-ont-ete-expulses-vers-la-grece-et-slovaquie_6644360_3210.html)
