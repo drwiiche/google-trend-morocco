@@ -1,3 +1,10 @@
+### tony parker senior (N/A, Tue, 7 Oct 2025 06:20:00 -0700)
+
+- **Condolences Pour in for NBA Legend Tony Parker on Monday**: [Link](https://athlonsports.com/nba/san-antonio-spurs/tony-parker-father-tony-parker-sr-dies-at-70)
+- **Tony Parker’s Father Dies at 70: French Basketball Mourns**: [Link](https://azat.tv/en/tony-parkers-father-dies-at-70-french-basketball-mourns/)
+- **Who Was Tony Parker Sr.? Everything About Spurs Legend’s Father & His Cause of Death**: [Link](https://www.essentiallysports.com/nba-legends-basketball-news-who-was-tony-parker-sr-everything-about-san-antonio-spurs-legends-father-his-cause-of-death/)
+
+
 ### novak djokovic (N/A, Tue, 7 Oct 2025 04:50:00 -0700)
 
 - **ATP Shanghai Best Bets Including Djokovic vs Munar**: [Link](https://lastwordonsports.com/tennis/2025/10/06/atp-shanghai-best-bets-including-djokovic-vs-munar/)
