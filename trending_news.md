@@ -1,3 +1,10 @@
+### ابتسام لشكر (N/A, Mon, 6 Oct 2025 18:40:00 -0700)
+
+- **حكم استئنافي يبقي عقوبة ابتسام لشكر**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%85-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81%D9%8A-%D9%8A%D8%A8%D9%82%D9%8A-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%A7%D8%A8%D8%AA%D8%B3%D8%A7%D9%85-%D9%84%D8%B4%D9%83%D8%B1-1636008.html)
+- **استئنافية الرباط تؤيّد حكم السجن ضد ابتسام لشكر لسنتين ونصف**: [Link](https://ar.telquel.ma/%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%AA%D8%A4%D9%8A%D9%91%D8%AF-%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D8%B6%D8%AF-%D8%A7%D8%A8/)
+- **محكمة استئناف مغربية تثبّت سجن الناشطة ابتسام لشكر بتهمة الإساءة للإسلام**: [Link](https://www.alquds.co.uk/%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AB%D8%A8%D9%91%D8%AA-%D8%B3%D8%AC%D9%86-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%B7/)
+
+
 ### nayef aguerd agressé (N/A, Mon, 6 Oct 2025 15:00:00 -0700)
 
 - **Le défenseur de l’OM, Nayef Aguerd, agressé à l’aéroport de Marignane**: [Link](https://rmcsport.bfmtv.com/football/clubs/olympique-marseille/le-defenseur-de-l-om-nayef-aguerd-agresse-a-l-aeroport-de-marignane_AN-202510060601.html)
