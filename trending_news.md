@@ -1,3 +1,10 @@
+### chili u-20 – mexique u-20 (N/A, Tue, 7 Oct 2025 15:20:00 -0700)
+
+- **Coupe du monde U20. Le Maroc croisera la Corée du Sud en huitièmes**: [Link](https://medias24.com/2025/10/06/coupe-du-monde-u20-le-maroc-croisera-la-coree-du-sud-en-huitiemes/)
+- **Le Maroc, le Nigeria et l’Afrique du Sud se qualifient pour les huitièmes de finale de la Coupe du Monde U-20**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-u-20/news/le-maroc-le-nigeria-et-l-afrique-du-sud-se-qualifient-pour-les-huitiemes-de-finale-de-la-coupe-du-monde-u-20/)
+- **Mondial U20 : Les Lionceaux de l'Atlas prêts à rugir face à la Corée du Sud**: [Link](https://lematin.ma/videos/mondial-u20-les-lionceaux-de-latlas-prets-a-rugir-face-a-la-coree-du-sud/306219)
+
+
 ### othman benjelloun (N/A, Tue, 7 Oct 2025 13:30:00 -0700)
 
 - **Othman Benjelloun cède le domaine d’Ardintoul à un promoteur québécois pour 14,5 millions de dollars**: [Link](https://fr.le360.ma/people/othman-benjelloun-cede-le-domaine-dardintoul-a-un-promoteur-quebecois-pour-145-millions-de-dollars_WW2DTNMPGNDODHSXEW2R734HZE/)
