@@ -1,3 +1,17 @@
+### fc barcelone – bayern munich (N/A, Tue, 7 Oct 2025 11:50:00 -0700)
+
+- **Ligue des Champions féminine : Sur quelle chaîne TV suivre FC Barcelone - Bayern Munich ?**: [Link](https://africafootunited.com/ligue-des-champions-feminine-sur-quelle-chaine-tv-suivre-fc-barcelone-bayern-munich/)
+- **+[DIRECT¡]Barcelona W – Bayern W En Direct Streaming Tv 07 octobre 2025**: [Link](https://yourkenora.ca/classifieds/listings/directbarcelona-w-bayern-w-en-direct-streaming-tv-07-octobre-2025/)
+- **Compositions Probables : Barcelona vs Bayern Munich | 07/10/2025**: [Link](https://www.footix.fr/compositions-probables-barcelona-vs-bayern-munich-07-10-2025/)
+
+
+### love is blind france (N/A, Tue, 7 Oct 2025 11:40:00 -0700)
+
+- **Couples clash over mentalities and support at the Love Is Blind: France reunion**: [Link](https://www.primetimer.com/features/couples-clash-over-mentalities-and-support-at-the-love-is-blind-france-reunion)
+- **"It was a step backwards": Love Is Blind: France star Charles recalls asking Julie for space a month after their wedding**: [Link](https://www.soapcentral.com/shows/it-step-backwards-love-is-blind-france-star-charles-recalls-asking-julie-space-month-wedding)
+- **Love Is Blind: France Reunion: Chloé and Alexandre’s relationship status revealed**: [Link](https://www.primetimer.com/features/love-is-blind-france-reunion-chloe-and-alexandre-s-relationship-status-revealed)
+
+
 ### al mada (N/A, Tue, 7 Oct 2025 06:20:00 -0700)
 
 - **Première au Maroc: la Fondation Al Mada et l’INPT inaugurent un Master Data & IA en alternance à Rabat**: [Link](https://fr.le360.ma/economie/premiere-au-maroc-la-fondation-al-mada-et-linpt-inaugurent-un-master-data-ia-en-alternance-a-rabat_RNQZKJWYTJDF5I4GGZO2FYXI5E/)
