@@ -1,3 +1,10 @@
+### maroc vs coree du sud u20 (N/A, Wed, 8 Oct 2025 12:50:00 -0700)
+
+- **Match Maroc-Corée : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-coree-a-quelle-heure-et-sur-quelles-chaines/306293)
+- **Une GenZ en stand-by**: [Link](https://mobile.telquel.ma/2025/10/08/une-genz-en-stand-by_1954810)
+- **Coupe du monde U-20 de la FIFA: Maroc- Corée du Sud en huitièmes de finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D9%85/)
+
+
 ### omar balafrej (N/A, Wed, 8 Oct 2025 14:50:00 -0700)
 
 - **GenZ212 : six punchlines d’Omar Balafrej qui expliquent son retour viral**: [Link](https://mobile.telquel.ma/2025/10/08/genz212-six-punchlines-domar-balafrej-qui-expliquent-son-retour-viral_1954651)
