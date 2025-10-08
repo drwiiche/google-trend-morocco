@@ -1,3 +1,17 @@
+### تنزانيا ضد زامبيا (N/A, Wed, 8 Oct 2025 12:00:00 -0700)
+
+- **بجودة HD.. القنوات الناقلة لمباراة تنزانيا ضد زامبيا في تصفيات أفريقيا لكأس العالم**: [Link](https://zahraa.mr/5942339/%D8%A8%D8%AC%D9%88%D8%AF%D8%A9-hd-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%86%D8%B2%D8%A7%D9%86/)
+- **تصفيات مونديال 2026 : مدرب تنزانيا يكشف عن اللائحة قبل مواجهة زامبيا**: [Link](https://ar.africatopsports.com/2025/10/03/559031/)
+- **بصـوت فهد عريشي Tanzania vs Zambia :: قنـاة لمتابعـة مباراة تنزانيا ضد زامبيا في تصفيات كأس العالم 2026 اليـوم لا تفوتها**: [Link](https://zahraa.mr/5942084/%D8%A8%D8%B5%D9%80%D9%88%D8%AA-%D9%81%D9%87%D8%AF-%D8%B9%D8%B1%D9%8A%D8%B4%D9%8A-tanzania-vs-zambia-%D9%82%D9%86%D9%80%D8%A7%D8%A9-%D9%84%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D9%80%D8%A9-%D9%85%D8%A8/)
+
+
+### argentine u-20 – nigeria u-20 (N/A, Wed, 8 Oct 2025 12:00:00 -0700)
+
+- **Argentina vs. Nigeria: How to Watch, Odds, U-20 Preview**: [Link](https://www.foxsports.com/stories/soccer/argentina-vs-nigeria-how-watch-odds-u-20-preview)
+- **Nigeria qualify for U-20 World Cup knockouts after dramatic draw with Colombia**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/nigeria-qualify-for-u-20-world-cup-knockouts-after-dramatic-draw-with-colombia/)
+- **FIFA U20 World Cup: Flying Eagles Set for Round of 16 Clash with Argentina**: [Link](https://en.africatopsports.com/2025/10/07/fifa-u20-world-cup-flying-eagles-set-for-round-of-16-clash-with-argentina/)
+
+
 ### niger – congo (N/A, Wed, 8 Oct 2025 11:40:00 -0700)
 
 - **Elim. Coupe du monde 2026 : Niger – Congo, Le Mena en quête d’espoir**: [Link](https://www.africatopsports.com/2025/10/08/elim-coupe-du-monde-2026-niger-congo-le-mena-en-quete-despoir/)
