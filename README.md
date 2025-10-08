@@ -1,3 +1,10 @@
+### real madrid vs roma (N/A, Wed, 8 Oct 2025 10:50:00 -0700)
+
+- **Real Madrid - Roma, en directo: Champions League femenina, en vivo hoy**: [Link](https://as.com/futbol/femenino/real-madrid-roma-en-directo-champions-league-femenina-en-vivo-hoy-f202510-d/)
+- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20251008/1002546637/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
+- **Previa Real Madrid Femenino - AS Roma: Estreno de altura para medir la ambición europea**: [Link](https://madridistareal.com/previa-real-madrid-femenino-as-roma/)
+
+
 ### tchad – mali (N/A, Wed, 8 Oct 2025 10:20:00 -0700)
 
 - **Éliminatoires Mondial 2026 : Date, heure, chaîne et historique Tchad – Mali**: [Link](https://foot-africa.com/actualites/liminatoires-mondial-2026-date-heure-chaine-et-historique-tchad-mali-910239/)
