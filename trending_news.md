@@ -1,3 +1,17 @@
+### ziyech (N/A, Wed, 8 Oct 2025 11:10:00 -0700)
+
+- **Former Chelsea star suffers latest career setback as Romanian side snub Champions League winner over wage demands and claim winger plays with 'FEAR' due to injury concerns**: [Link](https://www.dailymail.co.uk/sport/football/article-15173447/Former-Chelsea-star-career-setback-Romanian-snub-wage-demands-FEAR-injury-concerns.html)
+- **£40m Chelsea flop hits new low as Romanian club refuse to offer him contract - 'He failed'**: [Link](https://www.football.london/chelsea-fc/news/chelsea-transfers-hakim-ziyech-romania-32637266)
+- **Ziyech Considers CFR Cluj Offer After Qatar Exit**: [Link](https://www.moroccoworldnews.com/2025/10/261135/ziyech-considers-cfr-cluj-offer-after-qatar-exit/)
+
+
+### world cup qualifiers (N/A, Wed, 8 Oct 2025 10:10:00 -0700)
+
+- **Libya 3-3 Cape Verde: Blue Sharks miss chance to reach first ever World Cup**: [Link](https://www.bbc.com/sport/football/live/cgmzd0enz0mt)
+- **Egypt, Algeria and Ghana close in on World Cup tickets, Cape Verde eye historic first**: [Link](https://www.cafonline.com/fifa-world-cup/news/egypt-algeria-and-ghana-close-in-on-world-cup-tickets-cape-verde-eye-historic-first/)
+- **2026 FIFA WCQ: 5 African countries likely to book four losers’ spots**: [Link](https://www.vanguardngr.com/2025/10/2026-fifa-wcq-5-african-countries-likely-to-book-four-losers-spots/)
+
+
 ### real madrid vs roma (N/A, Wed, 8 Oct 2025 10:50:00 -0700)
 
 - **Real Madrid - Roma, en directo: Champions League femenina, en vivo hoy**: [Link](https://as.com/futbol/femenino/real-madrid-roma-en-directo-champions-league-femenina-en-vivo-hoy-f202510-d/)
