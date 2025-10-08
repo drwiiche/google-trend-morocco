@@ -1,3 +1,10 @@
+### djibouti – égypte (N/A, Wed, 8 Oct 2025 08:30:00 -0700)
+
+- **Mondial 2026 : le Maroc accueille quatre matchs des éliminatoires africaines**: [Link](https://mobile.telquel.ma/instant-t/2025/10/07/mondial-2026-le-maroc-accueille-quatre-matchs-des-eliminatoires-africaines_1954657/)
+- **Eliminatoires Coupe du monde 2026 : 7 places encore à prendre dans la Zone Afrique**: [Link](https://www.bbc.com/afrique/articles/cx2xknk2zyzo)
+- **Égypte, Algérie et Ghana tout proches du Mondial, le Cap-Vert rêve d’une première historique**: [Link](https://www.cafonline.com/fr/coupe-du-monde-de-la-fifa/news/egypte-algerie-et-ghana-tout-proches-du-mondial-le-cap-vert-reve-d-une-premiere-historique/)
+
+
 ### libye – cap-vert (N/A, Wed, 8 Oct 2025 07:40:00 -0700)
 
 - **Mondial 2026 : le Maroc accueille quatre matchs des éliminatoires africaines**: [Link](https://mobile.telquel.ma/instant-t/2025/10/07/mondial-2026-le-maroc-accueille-quatre-matchs-des-eliminatoires-africaines_1954657/)
