@@ -1,3 +1,10 @@
+### niger – congo (N/A, Wed, 8 Oct 2025 11:40:00 -0700)
+
+- **Elim. Coupe du monde 2026 : Niger – Congo, Le Mena en quête d’espoir**: [Link](https://www.africatopsports.com/2025/10/08/elim-coupe-du-monde-2026-niger-congo-le-mena-en-quete-despoir/)
+- **Maroc – Congo : Fabrizio Cesana a dévoilé sa liste des Diables rouges**: [Link](https://lionsdelatlas.ma/maroc-congo-fabrizio-cesana-a-devoile-sa-liste-des-diables-rouges/)
+- **Comment voir Niger - Congo, en éliminatoires du Mondial (heure, chaîne)**: [Link](https://www.20minutes.fr/sport/football/4177433-20251008-niger-congo-chaine-heure-voir-match-eliminatoires-coupe-monde)
+
+
 ### ziyech (N/A, Wed, 8 Oct 2025 11:10:00 -0700)
 
 - **Former Chelsea star suffers latest career setback as Romanian side snub Champions League winner over wage demands and claim winger plays with 'FEAR' due to injury concerns**: [Link](https://www.dailymail.co.uk/sport/football/article-15173447/Former-Chelsea-star-career-setback-Romanian-snub-wage-demands-FEAR-injury-concerns.html)
