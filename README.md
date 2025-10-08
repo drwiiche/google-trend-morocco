@@ -1,3 +1,10 @@
+### omar balafrej (N/A, Wed, 8 Oct 2025 14:50:00 -0700)
+
+- **GenZ212 : six punchlines d’Omar Balafrej qui expliquent son retour viral**: [Link](https://mobile.telquel.ma/2025/10/08/genz212-six-punchlines-domar-balafrej-qui-expliquent-son-retour-viral_1954651)
+- **Le mouvement GenZ212 annule les manifestations du vendredi 10 octobre**: [Link](https://medias24.com/2025/10/08/le-mouvement-genz212-annule-les-manifestations-du-vendredi-10-octobre/)
+- **Communication de crise : ce que révèlent les sorties médiatiques du gouvernement**: [Link](https://lematin.ma/nation/communication-de-crise-que-revelent-les-sorties-mediatiques-de-lexecutif/306025)
+
+
 ### tanzania vs zambia (N/A, Wed, 8 Oct 2025 14:10:00 -0700)
 
 - **Tanzania vs Zambia – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/262590/tanzania-vs-zambia-match-preview-prediction/)
