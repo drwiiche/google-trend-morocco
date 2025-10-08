@@ -1,3 +1,10 @@
+### طقس (N/A, Tue, 7 Oct 2025 23:50:00 -0700)
+
+- **زخات رعدية متوقعة اليوم الخميس بالأقاليم الصحراوية**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%AA%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3/)
+- **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-49-1636538.html)
+- **طقس الاثنين: استمرار أجواء حارة نسبيا مع هبوب رياح قوية في الجنوب – اليوم 24**: [Link](https://alyaoum24.com/1987954.html)
+
+
 ### chili u-20 – mexique u-20 (N/A, Tue, 7 Oct 2025 15:20:00 -0700)
 
 - **Coupe du monde U20. Le Maroc croisera la Corée du Sud en huitièmes**: [Link](https://medias24.com/2025/10/06/coupe-du-monde-u20-le-maroc-croisera-la-coree-du-sud-en-huitiemes/)
