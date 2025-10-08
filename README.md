@@ -1,3 +1,10 @@
+### virements bancaires (N/A, Wed, 8 Oct 2025 06:50:00 -0700)
+
+- **Le virement instantané s’impose en France : ce qu’il faut savoir sur ce mode de paiement**: [Link](https://www.leparisien.fr/economie/votre-argent/le-virement-instantane-simpose-en-france-ce-quil-faut-savoir-sur-ce-mode-de-paiement-08-10-2025-MOSAAL4PEFCJPAUKPXNEOJVIZQ.php)
+- **Dans les banques, la lutte contre la fraude passe la vitesse supérieure**: [Link](https://www.challenges.fr/entreprise/banque-et-assurance/dans-les-banques-la-lutte-contre-la-fraude-passe-la-vitesse-superieure_626808)
+- **Sécurité des virements bancaires : fausse rumeur et vrai changement à connaître**: [Link](https://www.boursorama.com/budget/banque/actualites/securite-des-virements-bancaires-fausse-rumeur-et-vrai-changement-a-connaitre-45164c6e29f3efb0fa20981500a4897f)
+
+
 ### mourad alem (N/A, Wed, 8 Oct 2025 06:30:00 -0700)
 
 
