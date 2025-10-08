@@ -1,3 +1,10 @@
+### libye – cap-vert (N/A, Wed, 8 Oct 2025 07:40:00 -0700)
+
+- **Mondial 2026 : le Maroc accueille quatre matchs des éliminatoires africaines**: [Link](https://mobile.telquel.ma/instant-t/2025/10/07/mondial-2026-le-maroc-accueille-quatre-matchs-des-eliminatoires-africaines_1954657/)
+- **Mondial 2026: voici le programme complet et les enjeux des 9e et 10e journées des éliminatoires de la zone Afrique**: [Link](https://afrique.le360.ma/sports/mondial-2026-voici-le-programme-complet-et-les-enjeux-des-9e-et-10e-journees-des-eliminatoires-de-la_M7FV2HBGJFBSJKV65T7DDFPMOA/)
+- **Égypte, Algérie et Ghana tout proches du Mondial, le Cap-Vert rêve d’une première historique**: [Link](https://www.cafonline.com/fr/coupe-du-monde-de-la-fifa/news/egypte-algerie-et-ghana-tout-proches-du-mondial-le-cap-vert-reve-d-une-premiere-historique/)
+
+
 ### virements bancaires (N/A, Wed, 8 Oct 2025 06:50:00 -0700)
 
 - **Le virement instantané s’impose en France : ce qu’il faut savoir sur ce mode de paiement**: [Link](https://www.leparisien.fr/economie/votre-argent/le-virement-instantane-simpose-en-france-ce-quil-faut-savoir-sur-ce-mode-de-paiement-08-10-2025-MOSAAL4PEFCJPAUKPXNEOJVIZQ.php)
