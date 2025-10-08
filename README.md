@@ -1,3 +1,24 @@
+### rép. centrafricaine – ghana (N/A, Wed, 8 Oct 2025 09:40:00 -0700)
+
+- **Sélections nationales : Ebenezer Annan convoqué avec le Ghana**: [Link](https://www.asse.fr/fr/actualites/ebenezer-annan-convoque-avec-le-ghana-ac39326)
+- **Éliminatoires Mondial 2026 – Groupe I : Les Black Stars forts leaders**: [Link](https://foot-africa.com/actualites/liminatoires-mondial-2026-groupe-i-les-black-stars-forts-leaders-909414/)
+- **ASSE - Une bonne nouvelle tombe pour cette recrue de l'été des Verts**: [Link](https://madeinsaint-etienne.ouest-france.fr/infos/article-asse-une-bonne-nouvelle-tombe-pour-cette-recrue-de-l-ete-des-verts-497825.html)
+
+
+### nicolas jean (N/A, Wed, 8 Oct 2025 09:40:00 -0700)
+
+- **« HPI » en deuil : le scénariste et co-créateur de la série est décédé**: [Link](https://www.sudinfo.be/id1050056/article/2025-10-07/hpi-en-deuil-le-scenariste-et-co-createur-de-la-serie-est-decede)
+- **A 63 ans, ce membre majeur de HPI et Demain nous appartient nous a quittés**: [Link](https://www.purepeople.com/article/a-63-ans-ce-membre-majeur-de-hpi-et-demain-nous-appartient-nous-a-quittes_a543337/1)
+- **Audrey Fleurot endeuillée, l’un des visages emblématiques de HPI meurt brutalement à 63 ans**: [Link](https://fr.news.yahoo.com/audrey-fleurot-endeuill%C3%A9e-l-visages-184534797.html)
+
+
+### sierra leone – burkina faso (N/A, Wed, 8 Oct 2025 08:50:00 -0700)
+
+- **AK excited for international double-header!**: [Link](https://www.rovers.co.uk/news/2025/october/07/ak-excited-for-international-double-header-/)
+- **World Cup 2026 qualifiers: Date, time, channel and head-to-head Sierra Leone vs Burkina Faso**: [Link](https://foot-africa.com/en/news/world-cup-2026-qualifiers-date-time-channel-and-head-to-head-sierra-leone-vs-burkina-faso-910263/)
+- **FIFA World Cup FIFAWCQ: Sierra Leone wrap up training ahead of Burkina Faso clash**: [Link](https://en.africatopsports.com/2025/10/08/fifawcq-sierra-leone-wrap-up-training-ahead-of-burkina-faso-clash/)
+
+
 ### djibouti vs egypt (N/A, Wed, 8 Oct 2025 09:10:00 -0700)
 
 - **Djibouti vs Egypt – How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/262572/djibouti-vs-egypt-how-to-watch-score-prediction/)
