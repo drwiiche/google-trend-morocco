@@ -1,3 +1,17 @@
+### tanzania vs zambia (N/A, Wed, 8 Oct 2025 14:10:00 -0700)
+
+- **Tanzania vs Zambia – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/262590/tanzania-vs-zambia-match-preview-prediction/)
+- **Klings Kangwa the puppeteer set to lead from the middle of the Park**: [Link](https://zambianfootball.co.zm/klings-kangwa-the-puppeteer-set-to-lead-from-the-middle-of-the-park/)
+- **Zambia faces Tanzania**: [Link](https://diggers.news/goal-diggers/2025/10/08/zambia-faces-tanzania/)
+
+
+### matches amicaux (N/A, Wed, 8 Oct 2025 10:00:00 -0700)
+
+- **Cristiano Ronaldo va retrouver Manchester United**: [Link](https://www.footmercato.net/a7171584424056811969-cristiano-ronaldo-va-retrouver-manchester-united)
+- **Matches amicaux en Arabie Saoudite : le voyage qui pourrait coûter cher à Manchester United... et à Amorim**: [Link](https://www.goal.com/fr/listes/matches-amicaux-en-arabie-saoudite-le-voyage-qui-pourrait-couter-cher-a-manchester-united-et-a-amorim/blte3638b3a9839d901)
+- **Manchester United : le retour de Cr7 se précise**: [Link](https://www.football365.fr/manchester-united-le-retour-de-cr7-se-precise-10258112.html)
+
+
 ### النيجر ضد الكونغو (N/A, Wed, 8 Oct 2025 12:30:00 -0700)
 
 - **مواجهة نارية تشتعل بين النيجر والكونغو برازافيل في تصفيات كأس العالم 2026 والجماهير الإفريقية على أعصابها!**: [Link](https://zahraa.mr/5942519/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B4%D8%AA%D8%B9%D9%84-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA/)
