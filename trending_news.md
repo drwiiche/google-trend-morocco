@@ -1,3 +1,10 @@
+### giorgia meloni (N/A, Wed, 8 Oct 2025 05:00:00 -0700)
+
+- **Giorgia Meloni minacciata di morte: intervista a Ylenja Lucaselli (8.10.2025)**: [Link](https://www.radioradicale.it/scheda/770958/giorgia-meloni-minacciata-di-morte-intervista-a-ylenja-lucaselli)
+- **Minacce di morte a Meloni, Augias: "Non le dica a Vespa ma alla Digos. Ma lei gioca sul personaggio"**: [Link](https://www.repubblica.it/politica/2025/10/08/video/minacce_di_morte_a_meloni_augias_non_le_dica_a_vespa_ma_alla_digos_ma_lei_gioca_sul_personaggio-424899002/)
+- **DiMartedì, Augias contro Meloni: "Un aspetto della sua personalità è il vittimismo" | Libero Quotidiano.it**: [Link](https://www.liberoquotidiano.it/news/personaggi/44463703/dimartedi-augias-contro-meloni-aspetto-personalita-vittimismo/)
+
+
 ### طقس (N/A, Tue, 7 Oct 2025 23:50:00 -0700)
 
 - **زخات رعدية متوقعة اليوم الخميس بالأقاليم الصحراوية**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%AA%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3/)
