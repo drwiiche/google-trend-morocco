@@ -1,3 +1,10 @@
+### argentine vs nigeria u20 (N/A, Wed, 8 Oct 2025 14:10:00 -0700)
+
+- **Argentina vs. Nigeria - Live Score - October 08, 2025**: [Link](https://www.foxsports.com/soccer/fifa-u20-world-cup-argentina-vs-nigeria-oct-08-2025-game-boxscore-624897)
+- **Highlights and goals of Argentina 4-0 Nigeria in World Cup U20**: [Link](https://www.vavel.com/en-us/soccer/2025/10/08/1236776-argentina-vs-nigeria-live-updates-in-u-20-world-cup.html)
+- **U-20 WC: Argentina lead 2-0 as Nigeria struggle to find their rhythm at halftime**: [Link](https://www.vanguardngr.com/2025/10/u-20-wc-argentina-lead-2-0-as-nigeria-struggle-to-find-their-rhythm-at-halftime/)
+
+
 ### maroc vs coree du sud u20 (N/A, Wed, 8 Oct 2025 12:50:00 -0700)
 
 - **Match Maroc-Corée : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-coree-a-quelle-heure-et-sur-quelles-chaines/306293)
