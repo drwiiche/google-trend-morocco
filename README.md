@@ -1,3 +1,10 @@
+### جيبوتي ضد مصر (N/A, Wed, 8 Oct 2025 08:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة جيبوتي ومصر في التصفيات الإفريقية المؤهلة إلى كأس العالم 2026؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%AC%D9%8A%D8%A8%D9%88%D8%AA%D9%8A-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026/bltcc270d7b3fe48bc6)
+- **قبل مواجهة جيبوتي.. كم نقطة تفصل مصر عن التأهل للمونديال؟**: [Link](https://arabic.cnn.com/sport/article/2025/10/07/egypt-national-team-world-cup)
+- **التصفيات الأفريقية: مصر لحسم التأهل وآمال جديدة لليبيا وجزر القمر**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%88%D8%A2%D9%85%D8%A7%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D9%88%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1)
+
+
 ### djibouti – égypte (N/A, Wed, 8 Oct 2025 08:30:00 -0700)
 
 - **Mondial 2026 : le Maroc accueille quatre matchs des éliminatoires africaines**: [Link](https://mobile.telquel.ma/instant-t/2025/10/07/mondial-2026-le-maroc-accueille-quatre-matchs-des-eliminatoires-africaines_1954657/)
