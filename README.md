@@ -1,3 +1,10 @@
+### tchad – mali (N/A, Wed, 8 Oct 2025 10:20:00 -0700)
+
+- **Éliminatoires Mondial 2026 : Date, heure, chaîne et historique Tchad – Mali**: [Link](https://foot-africa.com/actualites/liminatoires-mondial-2026-date-heure-chaine-et-historique-tchad-mali-910239/)
+- **9ème ET 10ème JOURNÉES DES ÉLIMINATOIRES DE LA ZONE AFRIQUE DE LA COUPE DU MONDE 2026 :LE SÉLECTIONNEUR DES AIGLES DU MALI, TOM SAINTFIET CONVOQUE UNE LISTE DE 25 JOUEURS**: [Link](https://bamada.net/9eme-et-10eme-journees-des-eliminatoires-de-la-zone-afrique-de-la-coupe-du-monde-2026-le-selectionneur-des-aigles-du-mali-tom-saintfiet-convoque-une-liste-de-25-joueurs)
+- **Tchad : Retour En Images De La Séance En Présence De Lassine Kouma**: [Link](https://maliactu.net/tchad-retour-en-images-de-la-seance-en-presence-de-lassine-kouma/)
+
+
 ### rép. centrafricaine – ghana (N/A, Wed, 8 Oct 2025 09:40:00 -0700)
 
 - **Sélections nationales : Ebenezer Annan convoqué avec le Ghana**: [Link](https://www.asse.fr/fr/actualites/ebenezer-annan-convoque-avec-le-ghana-ac39326)
