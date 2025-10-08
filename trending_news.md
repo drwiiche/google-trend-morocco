@@ -1,3 +1,10 @@
+### maurice – cameroun (N/A, Wed, 8 Oct 2025 05:40:00 -0700)
+
+- **Maurice-Cameroun : à quelle heure et sur quelle chaîne voir le match ?**: [Link](https://www.lequipe.fr/Football/Actualites/Maurice-cameroun-a-quelle-heure-et-sur-quelle-chaine-voir-le-match/1599491)
+- **Mondial 2026 : Le Cameroun abandonne le rêve de qualification directe après le coup fatal du Cap-Vert**: [Link](https://actucameroun.com/2025/10/07/mondial-2026-le-cameroun-abandonne-le-reve-de-qualification-directe-apres-le-coup-fatal-du-cap-vert/)
+- **Cameroun : Première pour Etta Eyong, un miracle espéré**: [Link](https://sports.orange.fr/football/coupe-du-monde/article/cameroun-premiere-pour-etta-eyong-un-miracle-espere-CNT000002l1VCE.html)
+
+
 ### giorgia meloni (N/A, Wed, 8 Oct 2025 05:00:00 -0700)
 
 - **Giorgia Meloni minacciata di morte: intervista a Ylenja Lucaselli (8.10.2025)**: [Link](https://www.radioradicale.it/scheda/770958/giorgia-meloni-minacciata-di-morte-intervista-a-ylenja-lucaselli)
