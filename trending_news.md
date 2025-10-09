@@ -1,3 +1,10 @@
+### morocco (N/A, Thu, 9 Oct 2025 12:50:00 -0700)
+
+- **From Morocco to Madagascar, Gen Z is taking digital dissent offline**: [Link](https://www.cnn.com/2025/10/04/world/gen-z-protest-movement-explainer-intl)
+- **Youth-led unrest exposes cracks in Morocco's economic model**: [Link](https://www.reuters.com/world/africa/youth-led-unrest-exposes-cracks-moroccos-economic-model-2025-10-06/)
+- **U.S. soccer ‘monitoring the situation’ involving North African protests ahead of Women’s World Cup - The Athletic**: [Link](https://www.nytimes.com/athletic/6694058/2025/10/06/us-soccer-north-african-protests-womens-world-cup/)
+
+
 ### friendlies (N/A, Thu, 9 Oct 2025 11:50:00 -0700)
 
 - **Saint Vincent & the Grenadines 1-0 Cuba - International Friendlies Friendlies 1 - Football**: [Link](https://www.sportsmole.co.uk/football/international-friendlies/saint-vincent--the-grenadines-vs-cuba_game_222238.html)
