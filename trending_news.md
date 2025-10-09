@@ -1,3 +1,17 @@
+### somalie – algérie (N/A, Thu, 9 Oct 2025 08:20:00 -0700)
+
+- **Algérie / Matches d’octobre : Chergui, le djoundi de service !**: [Link](https://lagazettedufennec.com/algerie-matches-doctobre-chergui-le-djoundi-de-service/)
+- **Somalie - Algérie : Quelle équipe aligner ?**: [Link](https://www.dzfoot.com/equipes-nationales/somalie-algerie-quelle-equipe-aligner-285016.html)
+- **ALG : Alf (mille) Mabrouk, les Verts !**: [Link](https://www.footafrique.com/alg-alf-mille-mabrouk-les-verts/)
+
+
+### المغرب ضد مصر (N/A, Thu, 9 Oct 2025 08:20:00 -0700)
+
+- **منتخب مصر المشارك في كأس العرب يواجه المغرب وديًا.. اليوم**: [Link](https://www.youm7.com/story/2025/10/9/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AF%D9%8A%D9%8B%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85/7148462)
+- **رديف مصر يحط الرحال بالدار البيضاء**: [Link](https://www.hespress.com/%D8%B1%D8%AF%D9%8A%D9%81-%D9%85%D8%B5%D8%B1-%D9%8A%D8%AD%D8%B7-%D8%A7%D9%84%D8%B1%D8%AD%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1635858.html)
+- **دعم قوي .. معسكر المنتخب الثاني قبل كأس العرب بقيادة أشرف صبحي وأبوريدة**: [Link](https://arabsport.org/2025/10/09/%D8%AF%D8%B9%D9%85-%D9%82%D9%88%D9%8A-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%82%D8%A8%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7/)
+
+
 ### match maroc (N/A, Thu, 9 Oct 2025 08:10:00 -0700)
 
 - **Football. Maroc-Bahreïn, un laboratoire à ciel ouvert**: [Link](https://medias24.com/2025/10/08/football-maroc-bahrein-un-laboratoire-a-ciel-ouvert/)
