@@ -1,3 +1,17 @@
+### england vs wales (N/A, Thu, 9 Oct 2025 12:00:00 -0700)
+
+- **England vs Wales LIVE: Score, stats & updates from friendly at Wembley**: [Link](https://www.bbc.com/sport/football/live/cvg9j7lqvqvt)
+- **Wales coach Bellamy praises FA for hiring Tuchel**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-wales-coach-bellamy-praises-fa-for-hiring-tuchel-a59052d4-934c-4e32-86b1-996469cbb70f)
+- **England strike early at Wembley; Scotland and the Netherlands in action**: [Link](https://onefootball.com/en/news/england-strike-early-at-wembley-scotland-and-the-netherlands-in-action-41784463)
+
+
+### tempête alice (N/A, Thu, 9 Oct 2025 11:50:00 -0700)
+
+- **Dépression Alice : de violents orages éclatent sur l’Espagne et les Baléares, avec un risque d’inondations**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-10-08/depression-alice-de-violents-orages-eclatent-sur-l-espagne-et-les-baleares-avec-un-risque-d-inondations-82004)
+- **Murcie et Alicante en alerte rouge face à la DANA Alice et aux risques d’inondations**: [Link](https://lepetitjournal.com/valence/actualites/murcie-alicante-alerte-rouge-dana-alice-risques-inondations-424097)
+- **L'AEMET prolonge l'alerte orange à Marina Alta : à quoi ressemblera le futur DANA Alice et combien de temps durera-t-il ?**: [Link](https://fr.lamarinaalta.com/aviso-amarillo-y-naranja-en-la-marina-alta-como-sera-la-futura-dana-alice-y-hasta-cuando-durara/)
+
+
 ### maroc – bahreïn (N/A, Thu, 9 Oct 2025 11:10:00 -0700)
 
 - **Maroc-Bahreïn : à quelle heure et sur quelles chaînes ?**: [Link](https://medias24.com/2025/10/09/maroc-bahrein-a-quelle-heure-et-sur-quelles-chaines/)
