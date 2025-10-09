@@ -1,3 +1,24 @@
+### kooora (N/A, Thu, 9 Oct 2025 09:30:00 -0700)
+
+- **الثلاثي المغربي يُغير خطة السكتيوي بعد ودية مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%8F%D8%BA%D9%8A%D8%B1-%D8%AE%D8%B7%D8%A9-%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D8%A8%D8%B9%D8%AF-%D9%88%D8%AF%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1/blt00c1096fccd260e1)
+- **المنتخب الوطني الرديف يُنهي استعداداته للقاء مصر**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%8F%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7/)
+- **نهضة بركان يخسر نجمه في السوبر الأفريقي**: [Link](https://www.radiomars.ma/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%AE%D8%B3%D8%B1-%D9%86%D8%AC%D9%85%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82/)
+
+
+### matches amicaux (N/A, Thu, 9 Oct 2025 09:30:00 -0700)
+
+- **Cristiano Ronaldo va retrouver Manchester United**: [Link](https://www.footmercato.net/a7171584424056811969-cristiano-ronaldo-va-retrouver-manchester-united)
+- **Matches amicaux en Arabie Saoudite : le voyage qui pourrait coûter cher à Manchester United... et à Amorim**: [Link](https://www.goal.com/fr/listes/matches-amicaux-en-arabie-saoudite-le-voyage-qui-pourrait-couter-cher-a-manchester-united-et-a-amorim/blte3638b3a9839d901)
+- **Cristiano Ronaldo à Manchester United, c'est validé**: [Link](https://fr.news.yahoo.com/sport/cristiano-ronaldo-%C3%A0-manchester-united-150005693.html)
+
+
+### robert badinter (N/A, Thu, 9 Oct 2025 09:10:00 -0700)
+
+- **La tombe de Robert Badinter à Bagneux profanée avant son entrée au Panthéon**: [Link](https://www.liberation.fr/societe/avant-son-entree-au-pantheon-la-tombe-de-robert-badinter-profanee-20251009_GOYHBJBDTFFRLBSFSKLOU5ALQY/)
+- **Panthéonisation de Robert Badinter: qui était Hamida Djandoubi, le dernier condamné à mort guillotiné en France?**: [Link](https://www.bfmtv.com/police-justice/pantheonisation-de-robert-badinter-qui-etait-hamida-djandoubi-le-dernier-condamne-a-mort-guillotine-en-france_AN-202510090031.html)
+- **« Je pense toujours à Badinter quand je la chante » : Julien Clerc interprétera « L’Assassin assassiné » au Panthéon**: [Link](https://www.leparisien.fr/culture-loisirs/musique/je-pense-toujours-a-badinter-quand-je-la-chante-julien-clerc-interpretera-lassassin-assassine-au-pantheon-08-10-2025-SRYQFTUKXFBNLKCN6NEL25GQEM.php)
+
+
 ### somalia vs algeria (N/A, Thu, 9 Oct 2025 08:50:00 -0700)
 
 - **Preview: Somalia vs. Algeria - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/somalia/world-cup/preview/somalia-vs-algeria-prediction-team-news-lineups_583146.html)
