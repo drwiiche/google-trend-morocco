@@ -1,3 +1,10 @@
+### gaza (N/A, Wed, 8 Oct 2025 17:50:00 -0700)
+
+- **What to know as key talks to end the war in Gaza begin**: [Link](https://apnews.com/article/gaza-israel-palestinians-hamas-war-explainer-d5c5057d2fe9e2e255215850b454f601)
+- **Updates: Trump says Israel, Hamas reach Gaza ceasefire deal**: [Link](https://www.aljazeera.com/news/liveblog/2025/10/8/live-israel-keeps-bombing-gaza-as-peace-talks-in-egypt-enter-third-day)
+- **Scoop — Trump to Netanyahu on Gaza talks: "You're always so f***ing negative"**: [Link](https://www.axios.com/2025/10/05/trump-netanyahu-call-gaza-peace-deal-hamas)
+
+
 ### aljazeera (N/A, Wed, 8 Oct 2025 17:20:00 -0700)
 
 - **Al Jazeera chief urges better protection for journalists in conflict zones**: [Link](https://www.aljazeera.com/news/2025/10/8/al-jazeera-chief-urges-better-protection-for-journalists-in-conflict-zones)
