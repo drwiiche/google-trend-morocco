@@ -1,3 +1,36 @@
+### elbotola (N/A, Thu, 9 Oct 2025 09:50:00 -0700)
+
+
+
+
+### snrt (N/A, Thu, 9 Oct 2025 09:40:00 -0700)
+
+- **في ظل احتجاجات جيل زد.. بيتاس يُحمل الحكومات السابقة مسؤولية الاخفاقات**: [Link](https://www.yabiladi.com/articles/details/178295/%D9%81%D9%8A-%D8%B8%D9%84-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF.html)
+- **في ظل المطالب برحيلها.. الحكومة تقول إنها قامت بمنجز كبير وتؤكد التقاط رسالة الشباب المحتج**: [Link](https://lakome2.com/politique/395211/)
+- **بايتاس: "الحضور الحكومي في الإعلام العمومي إرادي.. ونؤدي واجبنا في التواصل مع المواطنين"**: [Link](https://ar.hibapress.com/details-664550.html)
+
+
+### equipe maroc (N/A, Thu, 9 Oct 2025 09:20:00 -0700)
+
+- **Maroc-Bahreïn : à quelle heure et sur quelles chaînes ?**: [Link](https://medias24.com/2025/10/09/maroc-bahrein-a-quelle-heure-et-sur-quelles-chaines/)
+- **Amical Maroc – Bahreïn de ce soir : Ouverture des portes du CS Prince Moulay Abdellah dès 16h**: [Link](https://www.lopinion.ma/Amical-Maroc-Bahrein-de-ce-soir-Ouverture-des-portes-du-CS-Prince-Moulay-Abdellah-des-16h_a72657.html)
+- **Match Maroc–Bahreïn : le comité d’organisation demande aux supporters d’arriver tôt**: [Link](https://telquel.ma/instant-t/2025/10/09/match-maroc-bahrein-le-comite-dorganisation-demande-aux-supporters-darriver-tot_1955148/)
+
+
+### المنتخب المغربي (N/A, Thu, 9 Oct 2025 09:10:00 -0700)
+
+- **بلاغ اللجنة المنظمة لمباراة المنتخب الوطني امام البحرين**: [Link](https://frmf.ma/%D8%A8%D9%84%D8%A7%D8%BA-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7-4/)
+- **موعد مباراة المغرب ضد البحرين والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/10/7/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86)
+- **الكرواني: "متحمس ألف بالمئة".. ننتظر الجماهير لتكرار الأجواء الرائعة أمام البحرين**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA/%D8%A7%D9%84%D9%83%D8%B1%D9%88%D8%A7%D9%86%D9%8A-%D9%85%D8%AA%D8%AD%D9%85%D8%B3-%D8%A3%D9%84%D9%81-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D9%86%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D9%84%D8%AA%D9%83%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D8%A7%D8%A6%D8%B9%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86/9923)
+
+
+### match maroc aujourd'hui (N/A, Thu, 9 Oct 2025 08:50:00 -0700)
+
+- **Amical Maroc A’ – Égypte A’ : un premier test cet après-midi avant la Coupe Arabe des Nations**: [Link](https://www.lopinion.ma/Amical-Maroc-A-Egypte-A-un-premier-test-cet-apres-midi-avant-la-Coupe-Arabe-des-Nations_a72654.html)
+- **Ismaïl Khafi rejoint l’équipe nationale A’**: [Link](https://frmf.ma/fr/%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%AE%D8%A7%D9%81%D9%8A-%D9%8A%D9%86%D8%B6%D9%85-%D8%A5%D9%84%D9%89-%D8%B5%D9%81%D9%88%D9%81-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88/)
+- **Lions de l’Atlas A’: Tarik Sektioui convoque El Berkaoui, El Khaloui et Karmoune**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-a-tarik-sektioui-convoque-el-berkaoui-el-khaloui-et-karmoune_YIGWPFAPMBDLNEG7FL3SHTGMLI/)
+
+
 ### kooora (N/A, Thu, 9 Oct 2025 09:30:00 -0700)
 
 - **الثلاثي المغربي يُغير خطة السكتيوي بعد ودية مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%8F%D8%BA%D9%8A%D8%B1-%D8%AE%D8%B7%D8%A9-%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D8%A8%D8%B9%D8%AF-%D9%88%D8%AF%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1/blt00c1096fccd260e1)
