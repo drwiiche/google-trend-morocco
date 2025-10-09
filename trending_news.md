@@ -1,3 +1,10 @@
+### états-unis u-20 – italie u-20 (N/A, Thu, 9 Oct 2025 12:50:00 -0700)
+
+- **L’Italie face au défi américain pour une place en quarts du Mondial U20**: [Link](https://www.calciomio.fr/litalie-face-au-defi-americain-pour-une-place-en-quarts-du-mondial-u20-id-169338)
+- **Coupe du Monde U20 2025 : Les États-Unis mènent à la pause face à l’Italie, 1-0**: [Link](https://africafootunited.com/coupe-du-monde-u20-2025-les-etats-unis-menent-a-la-pause-face-a-litalie-1-0/)
+- **Duel au Sommet: Italie vs États-Unis**: [Link](https://www.ilmessaggero.it/fr/duel_au_sommet_italie_vs_etats_unis-9112978.html)
+
+
 ### يلا شوت (N/A, Thu, 9 Oct 2025 12:20:00 -0700)
 
 - **الولايات المتحدة تحت 20 ضد إيطاليا تحت 20: نتائج مباشرة، تشكيلات ومواجهات سابقة**: [Link](https://www.365scores.com/ar/football/match/u20-world-cup-5525/italy-u20-usa-u20-5467-12550-5525)
