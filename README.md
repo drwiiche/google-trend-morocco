@@ -1,3 +1,17 @@
+### الصومال ضد الجزائر (N/A, Thu, 9 Oct 2025 08:30:00 -0700)
+
+- **مواجهة مرتقبة بين المنتخب الجزائري ونظيره الصومالي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%88%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84%D8%B5%D9%88%D9%85%D8%A7%D9%84%D9%8A-2025-10-09)
+- **ما القنوات الناقلة لمباراة الصومال والجزائر في التصفيات الإفريقية المؤهلة إلى كأس العالم 2026؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B5%D9%88%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026/bltea5318badca456fa)
+- **كواليس وصول نجل زيدان للجزائر للانضمام لـ"محاربي الصحراء"**: [Link](https://www.aljazeera.net/sport/2025/10/7/%D9%84%D9%88%D9%83%D8%A7-%D9%86%D8%AC%D9%84-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D9%86%D8%B6%D9%85-%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+
+
+### maroc vs (N/A, Thu, 9 Oct 2025 08:30:00 -0700)
+
+- **Dernier entraînement de la sélection A’ avant son match face à l’Egypte**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%8F%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7/)
+- **Lions de l’Atlas A’: Tarik Sektioui convoque El Berkaoui, El Khaloui et Karmoune**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-a-tarik-sektioui-convoque-el-berkaoui-el-khaloui-et-karmoune_YIGWPFAPMBDLNEG7FL3SHTGMLI/)
+- **Maroc - Egypte EN DIRECT 09/10/2025 | Football**: [Link](https://www.flashscore.fr/match/football/egypte-bejDn7NN/maroc-IDKYO3R8/)
+
+
 ### somalie – algérie (N/A, Thu, 9 Oct 2025 08:20:00 -0700)
 
 - **Algérie / Matches d’octobre : Chergui, le djoundi de service !**: [Link](https://lagazettedufennec.com/algerie-matches-doctobre-chergui-le-djoundi-de-service/)
