@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Thu, 9 Oct 2025 04:20:00 -0700)
+
+- **Zizou Bergs v Novak Djokovic (09/10/2025)**: [Link](https://www.flashscore.com/match/tennis/bergs-zizou-SbeTx1o8/djokovic-novak-AZg49Et9/)
+- **Shanghai Masters 2025 Quarterfinal Live Streams Free Start Time, Thursday, October 9, 2025**: [Link](https://yourthunderbay.ca/classifieds/listings/shanghai-masters-2025-quarterfinal-live-streams-free-start-time-thursday-october-9-2025-2/)
+- **ATP Shanghai Quarterfinal Predictions Including Novak Djokovic vs Zizou Bergs**: [Link](https://lastwordonsports.com/tennis/2025/10/08/atp-shanghai-quarterfinal-predictions-djokovic-bergs/)
+
+
 ### غزة (N/A, Thu, 9 Oct 2025 01:50:00 -0700)
 
 - **تفاصيل الساعات الأخيرة داخل البيت الأبيض**: [Link](https://www.aljazeera.net/politics/2025/10/9/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA)
