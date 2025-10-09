@@ -1,3 +1,31 @@
+### équipe du maroc des moins de 20 ans de football – corée du sud u-20 (N/A, Thu, 9 Oct 2025 15:20:00 -0700)
+
+- **Maroc-Corée du Sud (Coupe du monde U20) : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/10/09/maroc-coree-du-sud-u20-quelle-heure-quelles-chaines/)
+- **L’équipe nationale des moins de 20 ans effectue son dernier entraînement avant de défier la Corée du Sud**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%AA%D8%AD%D8%B6%D9%8A/)
+- **Une GenZ en stand-by**: [Link](https://mobile.telquel.ma/2025/10/08/une-genz-en-stand-by_1954810)
+
+
+### منتخب المغرب تحت 20 سنة لكرة القدم ضد كوريا الجنوبية تحت 20 (N/A, Thu, 9 Oct 2025 15:20:00 -0700)
+
+- **تشكيلة "منتخب U20" لمواجهة كوريا**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-u20-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%83%D9%88%D8%B1%D9%8A%D8%A7-1637640.html)
+- **مباشر.. مباراة المغرب ضد كوريا الجنوبية في كأس العالم للشباب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/9/morocco-vs-south-korea)
+- **مونديال الشباب/ تشكيلة المنتخب المغربي.. حضور معمر وباعوف في الدفاع وجسيم يقود الهجوم رفقة زابيري أمام كوريا الجنوبية**: [Link](https://m.elbotola.com/article/2025-10-09-21-42-138.html)
+
+
+### match amical maroc egypte (N/A, Thu, 9 Oct 2025 12:50:00 -0700)
+
+- **Équipe nationale A’: deux matchs amicaux à huis clos du Maroc face à l’Égypte et au koweït**: [Link](https://frmf.ma/fr/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D8%A7%D9%86-%D9%88%D8%AF%D9%8A%D8%AA%D8%A7%D9%86-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A/)
+- **Amical Maroc A’ – Égypte A’ : un premier test cet après-midi avant la Coupe Arabe des Nations**: [Link](https://www.lopinion.ma/Amical-Maroc-A-Egypte-A-un-premier-test-cet-apres-midi-avant-la-Coupe-Arabe-des-Nations_a72654.html)
+- **Amine Zouhzouh et Mahmoud Bentayg offrent la victoire aux Lions A’ face à l’Égypte**: [Link](https://sport.le360.ma/football/lions-atlas/amine-zouhzouh-et-mahmoud-bentayg-offrent-la-victoire-aux-lions-a-face-a-legypte_7VKFTDUMIFA7TFUWBYV5FEW3MY/)
+
+
+### المغرب اليوم (N/A, Thu, 9 Oct 2025 12:20:00 -0700)
+
+- **حركة جيل زد بالمغرب تطلق حملة لمقاطعة شركات أخنوش**: [Link](https://www.aljazeera.net/ebusiness/2025/10/9/%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AD%D9%85%D9%84%D8%A9-%D9%85%D9%82%D8%A7%D8%B7%D8%B9%D8%A9-%D8%A3%D8%AE%D9%86%D9%88%D8%B4)
+- **رغم الدعوات الحكومية للحوار .. الاحتجاجات الشبابية تستمر في الرباط**: [Link](https://www.hespress.com/%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%AF%D8%B9%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D9%8A%D8%A9-%D9%84%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC-1637601.html)
+- **الأستاذ ابن كيران يدعو شباب جيل Z لتأجيل مظاهراتهم ليوم الخميس وينوه بتمسكهم بالثوابت**: [Link](https://www.pjd.ma/220188-%D8%A7%D9%84%D8%A3%D8%B3%D8%AA%D8%A7%D8%B0-%D8%A7%D8%A8%D9%86-%D9%83%D9%8A%D8%B1%D8%A7%D9%86-%D9%8A%D8%AF%D8%B9%D9%88-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%AC%D9%8A%D9%84-z-%D9%84%D8%AA%D8%A3%D8%AC%D9%8A%D9%84.html)
+
+
 ### un si grand soleil (N/A, Thu, 9 Oct 2025 14:40:00 -0700)
 
 
