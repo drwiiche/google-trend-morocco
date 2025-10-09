@@ -1,3 +1,22 @@
+### aljazeera (N/A, Wed, 8 Oct 2025 17:20:00 -0700)
+
+- **Al Jazeera chief urges better protection for journalists in conflict zones**: [Link](https://www.aljazeera.com/news/2025/10/8/al-jazeera-chief-urges-better-protection-for-journalists-in-conflict-zones)
+- **International conference on protection of journalists in armed conflicts kicks off**: [Link](https://thepeninsulaqatar.com/article/08/10/2025/international-conference-on-protection-of-journalists-in-armed-conflicts-kicks-off)
+- **Doha meet stresses protection of journalists in war zones| Gulf Times**: [Link](https://www.gulf-times.com/article/712424/qatar/doha-meet-stresses-protection-of-journalists-in-war-zones)
+
+
+### niger vs congo (N/A, Wed, 8 Oct 2025 13:50:00 -0700)
+
+- **World Cup 2026 qualifiers: Ouagadougou to host Niger vs Congo clash**: [Link](https://sports.yahoo.com/article/world-cup-2026-qualifiers-ouagadougou-174500249.html)
+- **Niger vs. Congo: Betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/08/niger-vs-congo-betting-odds-prediction-pick/86568729007/)
+- **FIFA World Cup FIFAWCQ: Niger, and Congo Confirmed Lineups**: [Link](https://en.africatopsports.com/2025/10/08/fifawcq-niger-and-congo-confirmed-lineups/)
+
+
+### colombie u-20 – afrique du sud u-20 (N/A, Wed, 8 Oct 2025 12:10:00 -0700)
+
+
+
+
 ### argentine vs nigeria u20 (N/A, Wed, 8 Oct 2025 14:10:00 -0700)
 
 - **Argentina vs. Nigeria - Live Score - October 08, 2025**: [Link](https://www.foxsports.com/soccer/fifa-u20-world-cup-argentina-vs-nigeria-oct-08-2025-game-boxscore-624897)
