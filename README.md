@@ -1,3 +1,31 @@
+### yalla kora (N/A, Thu, 9 Oct 2025 16:00:00 -0700)
+
+- **سوروب يحط رحاله في القاهرة لتدريب الأهلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%88%D8%B1%D9%88%D8%A8-%D9%8A%D8%AD%D8%B7-%D8%B1%D8%AD%D8%A7%D9%84%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A/blta0668178bce14ef8)
+- **الدنماركي سوروب مدربا للأهلي المصري**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%86%D9%85%D8%A7%D8%B1%D9%83%D9%8A-%D8%B3%D9%88%D8%B1%D9%88%D8%A8-%D9%85%D8%AF%D8%B1%D8%A8%D8%A7-%D9%84%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-1636936.html)
+- **ياس سوروب: "الأهلي هو أكبر ناد في أفريقيا وتدريبه أشبه بالانتقال إلى برشلونة أو بايرن ميونخ"!**: [Link](https://m.elbotola.com/article/2025-10-08-20-49-436.html)
+
+
+### bein sport (N/A, Thu, 9 Oct 2025 16:00:00 -0700)
+
+- **Somalia 0-3 Algeria: Riyad Mahrez leads Algeria back to World Cup finals**: [Link](https://www.bbc.com/sport/football/live/c0knmp8x1rlt)
+- **Amoura scores twice as Algeria qualify for 2026 World Cup**: [Link](https://www.beinsports.com/en-mena/football/caf-world-cup-qualifiers/articles-video/amoura-scores-twice-as-algeria-qualify-for-2026-world-cup-2025-10-09)
+- **The Arab World Takes Center Stage as a Record Number of Teams Secure World Cup 2026 Spots**: [Link](https://onefootball.com/pt-br/noticias/the-arab-world-takes-center-stage-as-a-record-number-of-teams-secure-world-cup-2026-spots-41785041)
+
+
+### bein sport live (N/A, Thu, 9 Oct 2025 16:00:00 -0700)
+
+- **How did Qatar and Saudi Arabia get home advantage and more rest than rivals in World Cup qualifiers?**: [Link](https://www.theguardian.com/football/2025/oct/07/qatar-saudi-arabia-home-advantage-2026-world-cup-qualifiers)
+- **'Big coach' Queiroz can lead Oman to first World Cup, says Al-Ghassani**: [Link](https://www.channelnewsasia.com/sport/big-coach-queiroz-can-lead-oman-first-world-cup-says-al-ghassani-5387186)
+- **Arabs compete for a Ticket to 2026 World Cup**: [Link](https://tembah.net/en/news?nid=77569)
+
+
+### morocco u-20 vs south korea u-20 (N/A, Thu, 9 Oct 2025 15:30:00 -0700)
+
+- **Under-20 World Cup: Maamma Dazzles As Morocco Progress**: [Link](https://www.watfordfc.com/news/2025/october/07/under-20-world-cup--maamma-dazzles-as-morocco-progress/)
+- **How to watch today's Morocco U20 vs South Korea U20 World Cup game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-gb/news/watch-morocco-u20-vs-south-korea-u20-world-cup-game-live-stream-tv-channel-start-time/bltfaa0eb58093a6bc2)
+- **FIFA U-20 World Cup: Morocco Only Hope for Africa, Arab Teams**: [Link](https://www.moroccoworldnews.com/2025/10/262905/fifa-u-20-world-cup-morocco-only-hope-for-africa-arab-teams/)
+
+
 ### équipe du maroc des moins de 20 ans de football – corée du sud u-20 (N/A, Thu, 9 Oct 2025 15:20:00 -0700)
 
 - **Maroc-Corée du Sud (Coupe du monde U20) : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/10/09/maroc-coree-du-sud-u20-quelle-heure-quelles-chaines/)
