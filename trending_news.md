@@ -1,3 +1,10 @@
+### morocco match (N/A, Thu, 9 Oct 2025 11:00:00 -0700)
+
+- **Morocco Beat Egypt 2-0 in Friendly Ahead of Arab Cup**: [Link](https://www.moroccoworldnews.com/2025/10/262930/morocco-beat-egypt-in-friendly-ahead-of-arab-cup/)
+- **Morocco Names Its Weaponry for Clashes Against Egypt and Kuwait**: [Link](https://foot-africa.com/en/news/morocco-names-its-weaponry-for-clashes-against-egypt-and-kuwait-907197/)
+- **ARAB CUP : Morocco A’ Team Announce Squad for Upcoming Clashes Against Egypt and Kuwait**: [Link](https://en.africatopsports.com/2025/10/05/arab-cup-morocco-a-team-announce-squad-for-upcoming-clashes-against-egypt-and-kuwait/)
+
+
 ### marruecos - baréin (N/A, Thu, 9 Oct 2025 11:40:00 -0700)
 
 - **Estadio Moulay Abdellah de Rabat abre a las 16:00 para el Marruecos-Bahréin**: [Link](https://es.rue20.com/2025/10/09/estadio-moulay-abdellah-de-rabat-abre-a-las-1600-para-el-marruecos-bahrein/)
