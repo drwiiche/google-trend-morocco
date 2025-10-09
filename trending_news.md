@@ -1,3 +1,24 @@
+### match maroc (N/A, Thu, 9 Oct 2025 08:10:00 -0700)
+
+- **Football. Maroc-Bahreïn, un laboratoire à ciel ouvert**: [Link](https://medias24.com/2025/10/08/football-maroc-bahrein-un-laboratoire-a-ciel-ouvert/)
+- **Stage de préparation : Anass Bach rejoint les Lions de l’Atlas**: [Link](https://mobile.telquel.ma/instant-t/2025/10/07/stage-de-preparation-anass-bach-rejoint-les-lions-de-latlas_1954665/)
+- **Foot: jeudi chargé pour les sélections nationales marocaines (programme complet)**: [Link](https://h24info.ma/sport/foot-jeudi-charge-pour-les-selections-nationales-marocaines-programme-complet/)
+
+
+### مباريات المنتخب المغربي (N/A, Thu, 9 Oct 2025 08:10:00 -0700)
+
+- **منتخب مصر المشارك في كأس العرب يواجه المغرب وديًا.. اليوم**: [Link](https://www.youm7.com/story/2025/10/9/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AF%D9%8A%D9%8B%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85/7148462)
+- **رديف مصر يحط الرحال بالدار البيضاء**: [Link](https://www.hespress.com/%D8%B1%D8%AF%D9%8A%D9%81-%D9%85%D8%B5%D8%B1-%D9%8A%D8%AD%D8%B7-%D8%A7%D9%84%D8%B1%D8%AD%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1635858.html)
+- **دعم قوي .. معسكر المنتخب الثاني قبل كأس العرب بقيادة أشرف صبحي وأبوريدة**: [Link](https://arabsport.org/2025/10/09/%D8%AF%D8%B9%D9%85-%D9%82%D9%88%D9%8A-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%82%D8%A8%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7/)
+
+
+### teams (N/A, Thu, 9 Oct 2025 01:50:00 -0700)
+
+- **Reevaluating 32 bold NFL predictions, five weeks in: Which are on target, and which deserve a do-over?**: [Link](https://www.espn.com/nfl/story/_/id/46512815/2025-nfl-season-evaluating-preseason-predictions-all-32-teams-updates)
+- **NFL playoff predictions: Broncos, Rams among 4 teams projected to follow historical trend**: [Link](https://www.nfl.com/news/2025-nfl-playoff-predictions-broncos-rams-among-4-teams-projected-to-follow-historical-trend)
+- **The Big Five: NFL’s biggest surprises of the 2025 season — for better or worse**: [Link](https://www.yardbarker.com/nfl/articles/the_big_five_nfls_biggest_surprises_of_the_2025_season_for_better_or_worse/s1_13132_42866149)
+
+
 ### burundi – kenya (N/A, Thu, 9 Oct 2025 06:10:00 -0700)
 
 - **World Cup (Q): McCarthy confirms Olunga injury concerns for Burundi test**: [Link](https://www.panafricafootball.com/post/world-cup-mccarthy-olunga-burundi/)
