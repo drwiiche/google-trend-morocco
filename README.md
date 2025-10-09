@@ -1,3 +1,31 @@
+### cdm u20 (N/A, Thu, 9 Oct 2025 16:30:00 -0700)
+
+- **CdM U20 : les USA écrasent l’Italie et filent en 1/4 de finale**: [Link](https://www.footmercato.net/a292439488196672659-cdm-u20-les-usa-ecrasent-litalie-et-filent-en-1-4-de-finale)
+- **Mondial U20 : les USA corrigent l’Italie et rejoignent les quarts de finale**: [Link](https://fr.hespress.com/444725-mondial-u20-les-usa-corrigent-litalie-et-rejoignent-les-quarts-de-finale.html)
+- **« Ils abordent cette compétition avec un lourd héritage » : qui sont les joueurs phares de l’Italie au Mondial U20 ?**: [Link](https://www.calciomio.fr/ils-abordent-cette-competition-avec-un-lourd-heritage-qui-sont-les-joueurs-phares-de-litalie-au-mondial-u20-id-169212)
+
+
+### live (N/A, Thu, 9 Oct 2025 16:30:00 -0700)
+
+- **Ari Emanuel bets AI will boost leisure time with three-day working week**: [Link](https://www.ft.com/content/44b9bbc2-2bb0-4b7a-8361-83eb94f134f8)
+- **Emanuel’s Mari to house Madrid, Miami Opens**: [Link](https://www.sportbusiness.com/news/emanuels-mari-to-house-madrid-miami-opens/)
+- **Ari Emanuel’s New Company Finalizes Acquisition of Frieze, with $2 B. in Equity Raised**: [Link](https://www.artnews.com/art-news/market/frieze-acquisition-finalized-mari-ari-emanuel-1234756029/)
+
+
+### live match (N/A, Thu, 9 Oct 2025 16:30:00 -0700)
+
+- **Belarus 0-6 Denmark: Group C leaders strengthen goal-difference lead over Scotland in Group C**: [Link](https://www.bbc.com/sport/football/live/c20ejp7zkn8t)
+- **World Cup qualifying: Højlund double lifts Denmark, Arnautovic hits four of Austria’s 10**: [Link](https://www.theguardian.com/football/2025/oct/09/world-cup-qualifying-hjlund-double-lifts-denmark-arnautovic-hits-four-of-austrias-10)
+- **Hungary Belarus Denmark WCup Soccer**: [Link](https://www.couriernews.com/sports/hungary-belarus-denmark-wcup-soccer/image_cc55f766-93b9-5eaa-8f3b-31d33fdd7a46.html)
+
+
+### u-20 world cup (N/A, Thu, 9 Oct 2025 16:30:00 -0700)
+
+- **United States 3-0 Italy (Oct 9, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/759738)
+- **Benjamin Cremaschi Brace and Niko Tsakiris Goal Lifts U.S. U-20 Men’s National Team to 3-0 Win Over Italy and A Berth in FIFA U-20 World Cup Quarterfinals**: [Link](https://www.ussoccer.com/stories/2025/10/benjamin-cremaschi-brace-and-niko-tsakiris-goal-lifts-us-u-20-mens-national-team-to-3-0-win-over-italy-and-a-berth-in-fifa-u-20-world-cup-quarterfinals)
+- **United States U20 vs Italy U20 Highlights, FIFA U-20 World Cup 2025: USA Through To Quarters**: [Link](https://www.outlookindia.com/sports/football/united-states-u20-vs-italy-u20-live-score-fifa-u-20-world-cup-2025-round-of-16-updates)
+
+
 ### بث مباشر (N/A, Thu, 9 Oct 2025 16:10:00 -0700)
 
 - **المنتخب الوطني الرديف يفوز على مصر**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%85%D8%B5%D8%B1/)
