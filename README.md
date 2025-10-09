@@ -1,3 +1,10 @@
+### arturo gatti jr (N/A, Thu, 9 Oct 2025 03:10:00 -0700)
+
+- **Son of boxing legend Arturo Gatti dead at 17: Prodigy found hanged 16 years after his father's mysterious 'suicide'**: [Link](https://www.dailymail.co.uk/sport/boxing/article-15174503/arturo-gatti-son-dead-hanged-mexico-boxing.html)
+- **Heartbreaking Post Arturo Gatti Jr Made before His Death Aged 17**: [Link](https://www.sportbible.com/boxing/boxing-news/arturo-gatti-jr-instagram-post-117532-20251009)
+- **Who is Arturo Gatti’s widow Amanda Rodrigues? Son found dead like boxing legend**: [Link](https://timesofindia.indiatimes.com/sports/international-sports/who-is-arturo-gattis-widow-amanda-rodrigues-son-found-dead-like-boxing-legend/articleshow/124411266.cms)
+
+
 ### novak djokovic (N/A, Thu, 9 Oct 2025 04:20:00 -0700)
 
 - **Zizou Bergs v Novak Djokovic (09/10/2025)**: [Link](https://www.flashscore.com/match/tennis/bergs-zizou-SbeTx1o8/djokovic-novak-AZg49Et9/)
