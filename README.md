@@ -1,3 +1,10 @@
+### friendlies (N/A, Thu, 9 Oct 2025 11:50:00 -0700)
+
+- **Saint Vincent & the Grenadines 1-0 Cuba - International Friendlies Friendlies 1 - Football**: [Link](https://www.sportsmole.co.uk/football/international-friendlies/saint-vincent--the-grenadines-vs-cuba_game_222238.html)
+- **England vs Wales LIVE: Score, stats & updates from friendly at Wembley**: [Link](https://www.bbc.com/sport/football/live/cvg9j7lqvqvt)
+- **Wales coach Bellamy praises FA for hiring Tuchel**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-wales-coach-bellamy-praises-fa-for-hiring-tuchel-a59052d4-934c-4e32-86b1-996469cbb70f)
+
+
 ### england vs wales (N/A, Thu, 9 Oct 2025 12:00:00 -0700)
 
 - **England vs Wales LIVE: Score, stats & updates from friendly at Wembley**: [Link](https://www.bbc.com/sport/football/live/cvg9j7lqvqvt)
