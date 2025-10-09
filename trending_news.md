@@ -1,3 +1,38 @@
+### maroc – bahreïn (N/A, Thu, 9 Oct 2025 11:10:00 -0700)
+
+- **Maroc-Bahreïn : à quelle heure et sur quelles chaînes ?**: [Link](https://medias24.com/2025/10/09/maroc-bahrein-a-quelle-heure-et-sur-quelles-chaines/)
+- **Match Maroc–Bahreïn : le comité d’organisation demande aux supporters d’arriver tôt**: [Link](https://mobile.telquel.ma/instant-t/2025/10/09/match-maroc-bahrein-le-comite-dorganisation-demande-aux-supporters-darriver-tot_1955148/)
+- **Amical Maroc – Bahreïn de ce soir : Ouverture des portes du CS Prince Moulay Abdellah dès 16h**: [Link](https://www.lopinion.ma/Amical-Maroc-Bahrein-de-ce-soir-Ouverture-des-portes-du-CS-Prince-Moulay-Abdellah-des-16h_a72657.html)
+
+
+### angleterre – pays de galles (N/A, Thu, 9 Oct 2025 11:10:00 -0700)
+
+- **Mauvaise nouvelle pour l'Angleterre... et Vincent Kompany ? Harry Kane est incertain**: [Link](https://www.walfoot.be/news/2025-10-08/mauvaise-nouvelle-pour-langleterre-et-vincent-kompany--harry-kane-est-incertain)
+- **Angleterre – Pays de Galles : Pronostics et cotes – amicaux 2025**: [Link](https://theplayoffs.news/fr/pronostics/angleterre-pays-de-galles-pronostics-et-cotes-amicaux-2025/)
+- **Harry Kane, l'attaquant qui ne rate (presque) plus de penalties depuis son échec face aux Bleus à la Coupe du monde 2022**: [Link](https://www.lequipe.fr/Football/Article/Harry-kane-le-metronome-des-penalties-a-reussi-36-de-ses-37-dernieres-tentatives-depuis-le-mondial-2022/1600103)
+
+
+### المغرب (N/A, Thu, 9 Oct 2025 11:10:00 -0700)
+
+- **المنتخبات المتأهلة لكأس العالم 2026**: [Link](https://www.aljazeera.net/sport/2025/10/8/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%87%D9%84%D8%A9-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
+- **منتخب مصر يبدأ رحلة الإعداد للمونديال في الإمارات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%A8%D8%AF%D8%A7%D9%94-%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D8%B9%D8%AF%D8%A7%D8%AF-%D9%84%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/blt74081f2e0a90f58a)
+- **مصر تتأهل إلى المونديال في المغرب**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%B1-%D8%AA%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1637053.html)
+
+
+### موعد مباراة المغرب (N/A, Thu, 9 Oct 2025 11:10:00 -0700)
+
+- **موعد مباراة المغرب ضد كوريا الجنوبية بثمن نهائي كأس العالم للشباب والتشكيلة والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/10/6/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D9%83%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9)
+- **إنجاز سابق يلهم وهبي للتتويج بكأس العالم في الشيلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D9%84%D9%87%D9%85-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%81%D9%8A-%D8%AA%D8%B4%D9%8A%D9%84%D9%8A/bltf8db174ef1042908)
+- **منتخبان إفريقيان خارج مونديال U20**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D9%86-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7%D9%86-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-u20-1636945.html)
+
+
+### المغرب ضد البحرين (N/A, Thu, 9 Oct 2025 10:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة المغرب والبحرين الودية 2025.. وكيفية مشاهدتها عبر الإنترنت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D9%88%D8%AF%D9%8A%D8%A9-2025/blt14d910bee67334f9)
+- **لاعب مغربي يمثل البحرين أمام “أسود الأطلس”**: [Link](https://www.radiomars.ma/%D9%84%D8%A7%D8%B9%D8%A8-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84/)
+- **قبل مواجهة مصر.. السكتيوي يعزز قائمته بلاعب جديد**: [Link](https://ar.telquel.ma/%D8%AA%D9%88%D8%AC%D9%8A%D9%87%D8%A7%D8%AA-%D8%AA%D9%86%D8%B8%D9%8A%D9%85%D9%8A%D8%A9-%D8%AA%D8%B3%D8%A8%D9%82-%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A8/)
+
+
 ### u17 (N/A, Thu, 9 Oct 2025 10:40:00 -0700)
 
 
