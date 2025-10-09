@@ -1,3 +1,10 @@
+### marruecos - baréin (N/A, Thu, 9 Oct 2025 11:40:00 -0700)
+
+- **Estadio Moulay Abdellah de Rabat abre a las 16:00 para el Marruecos-Bahréin**: [Link](https://es.rue20.com/2025/10/09/estadio-moulay-abdellah-de-rabat-abre-a-las-1600-para-el-marruecos-bahrein/)
+- **Resumen y gol de Marruecos 1-0 Baréin en Amistoso Internacional**: [Link](https://www.vavel.com/mx/futbol-internacional/2025/10/09/1236888-marruecos-vs-bahrein-en-vivo-amistoso-internacional.html)
+- **Brahim se salva de la catástrofe**: [Link](https://as.com/futbol/internacional/brahim-se-salva-de-la-catastrofe-f202510-n/)
+
+
 ### états-unis u-20 – italie u-20 (N/A, Thu, 9 Oct 2025 12:50:00 -0700)
 
 - **L’Italie face au défi américain pour une place en quarts du Mondial U20**: [Link](https://www.calciomio.fr/litalie-face-au-defi-americain-pour-une-place-en-quarts-du-mondial-u20-id-169338)
