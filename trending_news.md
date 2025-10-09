@@ -1,3 +1,10 @@
+### يلا شوت (N/A, Thu, 9 Oct 2025 12:20:00 -0700)
+
+- **الولايات المتحدة تحت 20 ضد إيطاليا تحت 20: نتائج مباشرة، تشكيلات ومواجهات سابقة**: [Link](https://www.365scores.com/ar/football/match/u20-world-cup-5525/italy-u20-usa-u20-5467-12550-5525)
+- **القنوات الناقلة لمباراة إيطاليا والولايات المتحدة الأمريكية في كأس العالم تحث 20 سنة**: [Link](https://infosports.news/ar/news/229231/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D9%88.html)
+- **"America vs Italy".. موعد مباراة أمريكا ضد إيطاليا في كأس العالم تحت 20 سنة والقنوات الناقلة لها**: [Link](https://zahraa.mr/5946894/america-vs-italy-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%B6%D8%AF-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%81%D9%8A-%D9%83/)
+
+
 ### morocco (N/A, Thu, 9 Oct 2025 12:50:00 -0700)
 
 - **From Morocco to Madagascar, Gen Z is taking digital dissent offline**: [Link](https://www.cnn.com/2025/10/04/world/gen-z-protest-movement-explainer-intl)
