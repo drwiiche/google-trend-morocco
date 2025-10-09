@@ -1,3 +1,17 @@
+### maroc (N/A, Thu, 9 Oct 2025 10:10:00 -0700)
+
+- **Maroc-Corée du Sud (Coupe du monde U20) : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/10/09/maroc-coree-du-sud-u20-quelle-heure-quelles-chaines/)
+- **L’équipe nationale des moins de 20 ans effectue son dernier entraînement avant de défier la Corée du Sud**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%AA%D8%AD%D8%B6%D9%8A/)
+- **Une GenZ en stand-by**: [Link](https://mobile.telquel.ma/2025/10/08/une-genz-en-stand-by_1954810)
+
+
+### maroc u17 (N/A, Thu, 9 Oct 2025 10:10:00 -0700)
+
+- **Lions de l’Atlas A, A’, U20 et U17: un jeudi plein pour le football marocain**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-a-a-u20-et-u17-un-jeudi-plein-pour-le-football-marocain_A52BR2PBOVALXAM7MIRK5A5EJE/)
+- **Préparatifs Mondial U17 : les Lionceaux se testent face au Sénégal à Dakar**: [Link](https://lematin.ma/sports/preparatifs-mondial-u17-les-lionceaux-se-testent-face-au-senegal-a-dakar/306197)
+- **Coupe du Monde U17 de la FIFA (préparation): deux matchs amicaux Sénégal- Maroc à Dakar**: [Link](https://frmf.ma/fr/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D8%A7%D9%86-%D9%88%D8%AF%D9%8A%D8%AA%D8%A7%D9%86-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85-8/)
+
+
 ### elbotola (N/A, Thu, 9 Oct 2025 09:50:00 -0700)
 
 
