@@ -1,3 +1,24 @@
+### somalia vs algeria (N/A, Thu, 9 Oct 2025 08:50:00 -0700)
+
+- **Preview: Somalia vs. Algeria - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/somalia/world-cup/preview/somalia-vs-algeria-prediction-team-news-lineups_583146.html)
+- **World Cup 2026 qualifiers / Algeria – "The coach insists on ...": Ibrahim Maza spills the beans**: [Link](https://foot-africa.com/en/news/world-cup-2026-qualifiers-algeria-the-coach-insists-on-ibrahim-maza-spills-the-beans-910326/)
+- **Somalia-Algeria: streaming, TV channel and compositions**: [Link](https://frenchfootballweekly.com/2025/10/09/somalia-algeria-streaming-tv-channel-and-compositions/)
+
+
+### maroc foot (N/A, Thu, 9 Oct 2025 08:30:00 -0700)
+
+- **Ismaïl Khafi rejoint l’équipe nationale A’**: [Link](https://frmf.ma/fr/%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%AE%D8%A7%D9%81%D9%8A-%D9%8A%D9%86%D8%B6%D9%85-%D8%A5%D9%84%D9%89-%D8%B5%D9%81%D9%88%D9%81-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88/)
+- **Lions de l’Atlas A’: Tarik Sektioui convoque El Berkaoui, El Khaloui et Karmoune**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-a-tarik-sektioui-convoque-el-berkaoui-el-khaloui-et-karmoune_YIGWPFAPMBDLNEG7FL3SHTGMLI/)
+- **Maroc - Egypte EN DIRECT 09/10/2025 | Football**: [Link](https://www.flashscore.fr/match/football/egypte-bejDn7NN/maroc-IDKYO3R8/)
+
+
+### morocco vs bahrain (N/A, Thu, 9 Oct 2025 08:20:00 -0700)
+
+- **Morocco vs Bahreïn – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/262807/morocco-vs-bahrein-match-preview-prediction/)
+- **Football: National team begin training**: [Link](https://www.gdnonline.com/Details/1365037/National-team-begin-training-)
+- **How to watch today's Morocco vs Bahrain World Cup qualification game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-morocco-vs-bahrain-world-cup-qualification-game-live-stream-tv-channel-start-time/bltf6ca0c8d632366cf)
+
+
 ### الصومال ضد الجزائر (N/A, Thu, 9 Oct 2025 08:30:00 -0700)
 
 - **مواجهة مرتقبة بين المنتخب الجزائري ونظيره الصومالي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%88%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84%D8%B5%D9%88%D9%85%D8%A7%D9%84%D9%8A-2025-10-09)
