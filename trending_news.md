@@ -1,3 +1,15 @@
+### morocco vs (N/A, Thu, 9 Oct 2025 10:30:00 -0700)
+
+- **U20 World Cup: Morocco vs South Korea – How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/262853/u20-world-cup-morocco-vs-south-korea-how-to-watch-score-prediction/)
+- **Morocco U20 Atlas Cubs ready to face South Korea in World Cup showdown**: [Link](https://en.yabiladi.com/articles/details/178378/morocco-atlas-cubs-ready-face.html)
+- **Under-20 World Cup: Maamma Dazzles As Morocco Progress**: [Link](https://www.watfordfc.com/news/2025/october/07/under-20-world-cup--maamma-dazzles-as-morocco-progress/)
+
+
+### mourad alem marjane (N/A, Thu, 9 Oct 2025 10:10:00 -0700)
+
+
+
+
 ### maroc (N/A, Thu, 9 Oct 2025 10:10:00 -0700)
 
 - **Maroc-Corée du Sud (Coupe du monde U20) : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/10/09/maroc-coree-du-sud-u20-quelle-heure-quelles-chaines/)
