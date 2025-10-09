@@ -1,3 +1,24 @@
+### burundi – kenya (N/A, Thu, 9 Oct 2025 06:10:00 -0700)
+
+- **World Cup (Q): McCarthy confirms Olunga injury concerns for Burundi test**: [Link](https://www.panafricafootball.com/post/world-cup-mccarthy-olunga-burundi/)
+- **Harambee Stars set to wrap up World Cup qualifiers campaign**: [Link](https://ntvkenya.co.ke/sports-2/harambee-stars-set-to-wrap-up-world-cup-qualifiers-campaign/)
+- **McCarthy: We won’t grant The Elephants any favours**: [Link](https://nation.africa/kenya/sports/football/mccarthy-we-won-t-grant-the-elephants-any-favours--5219772)
+
+
+### مروان البرغوثي (N/A, Thu, 9 Oct 2025 06:00:00 -0700)
+
+- **اتفاق غزة: ماذا نعرف عن أهم الشخصيات التي تطالب حماس بالإفراج عنها؟**: [Link](https://www.bbc.com/arabic/articles/c4gv7rpw423o)
+- **إسرائيل تحسمها: لن نسلم جثة السنوار ولن نفرج عن البرغوثي**: [Link](https://www.alarabiya.net/arab-and-world/2025/10/09/%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%AD%D8%B3%D9%85%D9%87%D8%A7-%D9%84%D9%86-%D9%86%D8%B3%D9%84%D9%85-%D8%AC%D8%AB%D8%AA%D9%8A-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D9%88%D8%B4%D9%82%D9%8A%D9%82%D9%87)
+- **الكشف عن مصير رفات الأخوين السنوار.. داخل الصفقة أم لا؟**: [Link](https://www.skynewsarabia.com/middle-east/1826090-%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D9%85%D8%B5%D9%8A%D8%B1-%D8%B1%D9%81%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%88%D9%8A%D9%86-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%B1-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D9%84%D8%A7%D8%9F)
+
+
+### المغرب ضد كوريا الجنوبية (N/A, Wed, 8 Oct 2025 16:10:00 -0700)
+
+- **موعد مباراة المغرب ضد كوريا الجنوبية بثمن نهائي كأس العالم للشباب والتشكيلة والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/10/6/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D9%83%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9)
+- **منتخبان إفريقيان خارج مونديال U20**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D9%86-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7%D9%86-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-u20-1636945.html)
+- **إنجاز سابق يلهم وهبي للتتويج بكأس العالم في الشيلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D9%84%D9%87%D9%85-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%81%D9%8A-%D8%AA%D8%B4%D9%8A%D9%84%D9%8A/bltf8db174ef1042908)
+
+
 ### arturo gatti jr (N/A, Thu, 9 Oct 2025 03:10:00 -0700)
 
 - **Son of boxing legend Arturo Gatti dead at 17: Prodigy found hanged 16 years after his father's mysterious 'suicide'**: [Link](https://www.dailymail.co.uk/sport/boxing/article-15174503/arturo-gatti-son-dead-hanged-mexico-boxing.html)
