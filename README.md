@@ -1,3 +1,24 @@
+### discours roi maroc (N/A, Fri, 10 Oct 2025 07:20:00 -0700)
+
+- **Maroc : après la mobilisation de la Gen Z, un discours du roi très attendu**: [Link](https://www.france24.com/fr/afrique/20251010-maroc-apr%C3%A8s-mobilisation-de-genz-discours-roi-tr%C3%A8s-attendu)
+- **GenZ212 : quels scénarios possibles si la contestation s’intensifie ?**: [Link](https://mobile.telquel.ma/2025/10/09/genz212-quels-scenarios-possibles-si-la-contestation-sintensifie_1954920)
+- **🔴🎥En direct. Manifestations GenZ du 9 octobre 2025, place Maréchal à Casablanca**: [Link](https://medias24.com/live/%F0%9F%94%B4%F0%9F%8E%A5en-direct-manifestations-genz-du-9-octobre-2025-place-marechal-a-casablanca/)
+
+
+### جنوب السودان ضد السنغال (N/A, Fri, 10 Oct 2025 07:20:00 -0700)
+
+- **السنغال يبحث عن التأهل إلى كأس العالم أمام جنوب السودان وتعثر الكونغو**: [Link](https://www.youm7.com/story/2025/10/10/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86/7150427)
+- **استدعاء لاعب نهضة بركان للمنتخب يعزز فرصته للاحتراف الأوروبي من جديد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B3%D8%AA%D8%AF%D8%B9%D8%A7%D8%A1-%D9%84%D8%A7%D8%B9%D8%A8-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%8A%D8%B9%D8%B2%D8%B2-%D9%81%D8%B1%D8%B5%D8%AA%D9%87-%D9%84%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%85%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF/9604)
+- **تصفيات مونديال 2026 : مدرب جنوب السودان يؤكد استعدادهم لمواجهة السنغال**: [Link](https://ar.africatopsports.com/2025/10/10/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026-%D9%85%D8%AF%D8%B1%D8%A8-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%8A%D8%A4%D9%83/)
+
+
+### samuel asamoah (N/A, Fri, 10 Oct 2025 06:10:00 -0700)
+
+- **Samuel Asamoah: Togo midfielder breaks neck in collision with advertising board**: [Link](https://www.bbc.com/sport/football/articles/c3rv5ge49ejo)
+- **Footballer breaks neck in China after colliding with LED board**: [Link](https://www.nst.com.my/sports/football/2025/10/1290683/footballer-breaks-neck-china-after-colliding-led-board)
+- **Samuel Assamoah Suffers Severe Neck Injury in Chinese League 1 Match**: [Link](https://mezha.net/eng/bukvy/samuel-assamoah-suffers-severe-neck-injury-in-chinese-league-1-match/)
+
+
 ### gambia – gabon (N/A, Fri, 10 Oct 2025 07:00:00 -0700)
 
 - **Preview: Gambia vs Gabon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/gambia/world-cup/preview/gambia-vs-gabon-prediction-team-news-lineups_583213.html)
