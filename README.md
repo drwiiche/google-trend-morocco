@@ -1,3 +1,17 @@
+### france vs (N/A, Fri, 10 Oct 2025 11:40:00 -0700)
+
+- **France predicted XI v Azerbaijan: Hugo Ekitiké and Malo Gusto to start**: [Link](https://www.getfootballnewsfrance.com/2025/france-predicted-xi-v-azerbaijan-hugo-ekitike-and-malo-gusto-to-start/)
+- **France Azerbaijan WCup Soccer**: [Link](https://www.couriernews.com/sports/france-azerbaijan-wcup-soccer/image_37300700-da60-5ca0-9136-1eb8dabf369f.html)
+- **Germany lead Luxembourg; France take on Azerbaijan in WCQ**: [Link](https://onefootball.com/en/news/germany-lead-luxembourg-france-take-on-azerbaijan-in-wcq-41789105)
+
+
+### map (N/A, Fri, 10 Oct 2025 09:20:00 -0700)
+
+- **Google Maps may soon let you ask about places like you're in the Gemini app**: [Link](https://www.androidauthority.com/google-maps-ask-maps-chip-3605488/)
+- **Google tests a very welcome change to the Android version of Google Maps**: [Link](https://www.phonearena.com/news/google-tests-important-google-maps-change_id174782)
+- **Google Maps could be turning into a chatbot soon**: [Link](https://www.pocket-lint.com/google-maps-new-gemini-ask-maps-feature/)
+
+
 ### germany vs luxembourg (N/A, Fri, 10 Oct 2025 12:50:00 -0700)
 
 - **World Cup 2026: which countries have qualified and how did they do it?**: [Link](https://www.theguardian.com/football/2025/oct/10/world-cup-2026-which-countries-have-qualified-and-how-did-they-do-it)
