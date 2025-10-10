@@ -1,3 +1,17 @@
+### binance (N/A, Fri, 10 Oct 2025 15:00:00 -0700)
+
+- **Donald Trump Could Soon Pardon Binance Founder Changpeng ‘CZ’ Zhao**: [Link](https://finance.yahoo.com/news/donald-trump-could-soon-pardon-202204530.html)
+- **Trump White House Could Soon Pardon Former Binance CEO Changpeng Zhao: FOX**: [Link](https://bitcoinmagazine.com/news/trump-white-house-could-soon-pardon-former-binance-ceo-changpeng-zhao-fox)
+- **Trump considering pardon for Changpeng Zhao**: [Link](https://bloomingbit.io/en/feed/news/98577)
+
+
+### bitcoin (N/A, Fri, 10 Oct 2025 14:50:00 -0700)
+
+- **Why Is Crypto Down Today? – October 10, 2025**: [Link](https://finance.yahoo.com/news/why-crypto-down-today-october-110047623.html)
+- **Red Uptober? Crypto Liquidations Top $1 Billion as Bitcoin, Ethereum and Solana Erase Gains**: [Link](https://decrypt.co/343866/red-uptober-liquidations-1-billion-bitcoin-ethereum-solana-erase-gains)
+- **Crypto Market Today (Live Updates) October 10 : Ondo Crypto,Hyperliquid Wallet Hacked,Bitcoin Price,The Graph Price**: [Link](https://www.tradingview.com/news/coinpedia:2ffb7dd17094b:0-crypto-market-today-live-updates-october-10-ondo-crypto-hyperliquid-wallet-hacked-bitcoin-price-the-graph-price/)
+
+
 ### premier ministre france (N/A, Fri, 10 Oct 2025 13:20:00 -0700)
 
 - **EN DIRECT - Sébastien Lecornu à nouveau nommé premier ministre par Emmanuel Macron**: [Link](https://www.lefigaro.fr/politique/en-direct-crise-politique-emmanuel-macron-devrait-mettre-fin-a-cinq-jours-de-suspense-en-nommant-un-nouveau-premier-ministre-pour-matignon-20251010)
