@@ -1,3 +1,10 @@
+### خطاب الملك محمد السادس اليوم مباشر (N/A, Fri, 10 Oct 2025 05:50:00 -0700)
+
+- **"ننتظر أن يتحدث إلينا الملك!"... محمد السادس يلقي خطابا أمام البرلمان وسط استمرار احتجاجات "جيل زد"**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A%D8%A9/20251010-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D8%AE%D8%B7%D8%A7%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AD%D8%B1%D9%83%D8%A9-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF)
+- **خطب الملك محمد السادس في الميزان .. رسائل حازمة للفاعلين السياسيين**: [Link](https://www.hespress.com/%D8%AE%D8%B7%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%8A%D8%B2%D8%A7%D9%86-%D8%B1%D8%B3%D8%A7%D8%A6-1637473.html)
+- **شوارع الرباط تتزين استعدادا للخطاب الملكي بالبرلمان**: [Link](https://ar.hibapress.com/details-664848.html)
+
+
 ### kpop demon hunters (N/A, Fri, 10 Oct 2025 05:50:00 -0700)
 
 - **'KPop Demon Hunters,' Labubu among Google's top-searched-for Halloween costumes**: [Link](https://www.usatoday.com/story/money/2025/10/09/halloween-2025-top-costumes-kpop-demon-hunters-labubu/86605507007/)
