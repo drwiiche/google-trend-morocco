@@ -1,3 +1,10 @@
+### belgique – macédoine du nord (N/A, Fri, 10 Oct 2025 12:00:00 -0700)
+
+- **La Belgique touche au but en qualification pour la Coupe du monde 2026**: [Link](https://www.lequipe.fr/Football/Actualites/La-belgique-touche-au-but-en-qualification-pour-la-coupe-du-monde-2026/1600391)
+- **Les Diables Rouges vont-ils nous offrir le même festival de buts face à la Macédoine du Nord? La réponse en direct ce vendredi 10 octobre**: [Link](https://www.moustique.be/television/2025/10/10/les-diables-rouges-vontils-nous-offrir-le-meme-festival-de-buts-face-a-la-macedoine-du-nord-la-reponse-en-direct-ce-vendredi-10-octobre-GA2LW2EZVJD2PC7TH6WZDVCZJI/)
+- **Trossard en faux 9 et Saelemaekers pour le repli : les compos de Belgique – Macédoine du Nord**: [Link](https://www.dhnet.be/sports/football/diablesrouges/2025/10/10/trossard-en-faux-9-et-saelemaekers-pour-le-repli-les-compos-de-belgique-macedoine-du-nord-TA5SMS6Y5VBWTMT4J3T2CZH5ZA/)
+
+
 ### france vs azerbaijan (N/A, Fri, 10 Oct 2025 11:40:00 -0700)
 
 - **France predicted XI v Azerbaijan: Hugo Ekitiké and Malo Gusto to start**: [Link](https://www.getfootballnewsfrance.com/2025/france-predicted-xi-v-azerbaijan-hugo-ekitike-and-malo-gusto-to-start/)
