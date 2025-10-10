@@ -1,3 +1,10 @@
+### france (N/A, Fri, 10 Oct 2025 12:10:00 -0700)
+
+- **Rabiot pris à partie à Paris, la réponse cinglante**: [Link](https://www.sports.fr/football/equipe-de-france/rabiot-pris-a-partie-a-paris-la-reponse-cinglante-957519.html)
+- **« Quelque chose qui ne doit pas avoir lieu » : Deschamps redoute encore des sifflets contre Rabiot**: [Link](https://www.ledauphine.com/sport/2025/10/09/quelque-chose-qui-ne-doit-pas-avoir-lieu-deschamps-redoute-encore-des-sifflets-contre-rabiot)
+- **France - Azerbaïdjan. Adrien Rabiot ciblé par des sifflets au Parc des Princes**: [Link](https://www.ouest-france.fr/sport/football/adrien-rabiot/france-azerbaidjan-adrien-rabiot-cible-par-des-sifflets-au-parc-des-princes-473443c4-a60c-11f0-a399-70ff1c676380)
+
+
 ### virements bancaires (N/A, Fri, 10 Oct 2025 12:30:00 -0700)
 
 - **Virements bancaires : ce qui change à partir de ce jeudi**: [Link](https://www.sudouest.fr/economie/mon-argent/virements-bancaires-ce-qui-change-a-partir-de-ce-jeudi-26265636.php)
