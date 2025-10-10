@@ -1,3 +1,10 @@
+### 2m (N/A, Fri, 10 Oct 2025 07:30:00 -0700)
+
+- **Gang leaders jailed for stealing cars worth £2m**: [Link](https://www.bbc.com/news/articles/c0lk3g3lkx5o)
+- **Ringleaders of car theft gang who stole more than £2m worth of cars are jailed**: [Link](https://news.sky.com/story/ringleaders-of-car-theft-gang-who-stole-more-than-2m-worth-of-cars-are-jailed-13447703)
+- **NICKED Crime Gang Jailed for Nicking Over £2 Million Worth of Cars**: [Link](https://www.uknip.co.uk/news/uk/uk-news/crime-gang-jailed-for-nicking-over-2-million-worth-of-cars/)
+
+
 ### discours roi maroc (N/A, Fri, 10 Oct 2025 07:20:00 -0700)
 
 - **Maroc : après la mobilisation de la Gen Z, un discours du roi très attendu**: [Link](https://www.france24.com/fr/afrique/20251010-maroc-apr%C3%A8s-mobilisation-de-genz-discours-roi-tr%C3%A8s-attendu)
