@@ -1,3 +1,10 @@
+### virements bancaires (N/A, Fri, 10 Oct 2025 12:30:00 -0700)
+
+- **Virements bancaires : ce qui change à partir de ce jeudi**: [Link](https://www.sudouest.fr/economie/mon-argent/virements-bancaires-ce-qui-change-a-partir-de-ce-jeudi-26265636.php)
+- **Du changement dans vos virements à partir de ce jeudi**: [Link](https://www.20minutes.fr/economie/4178027-20251008-changement-virements-partir-jeudi)
+- **Vérification du bénéficiaire de virement : que se passe-t-il en cas d'échec ?**: [Link](https://www.moneyvox.fr/banque/actualites/105349/verification-du-beneficiaire-de-virement-que-se-passe-t-il-en-cas-echec)
+
+
 ### فرنسا ضد أذربيجان (N/A, Fri, 10 Oct 2025 12:10:00 -0700)
 
 - **مبابي: مدريد أقل إيقاعاً من باريس**: [Link](https://www.alarabiya.net/sport/2025/10/09/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%82%D9%84-%D8%A7%D9%8A%D9%82%D8%A7%D8%B9%D8%A7-%D9%85%D9%86-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-)
