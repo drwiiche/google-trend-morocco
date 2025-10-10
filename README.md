@@ -1,3 +1,10 @@
+### maria corina machado (N/A, Fri, 10 Oct 2025 02:40:00 -0700)
+
+- **Live Updates: Nobel Peace Prize Is Set to Be Awarded**: [Link](https://www.nytimes.com/live/2025/10/10/world/nobel-peace-prize)
+- **Who decides the Nobel Peace Prize?**: [Link](https://www.abc.net.au/news/2025-10-10/how-does-the-nobel-peace-prize-work/105870196)
+- **Nobel Peace Prize 2025 live updates: Venezuelan democracy activist María Corina Machado wins**: [Link](https://www.bbc.com/news/live/c1l80g1qe4gt)
+
+
 ### trump prix nobel de la paix (N/A, Fri, 10 Oct 2025 02:20:00 -0700)
 
 - **Le prix Nobel de la paix décerné à Maria Corina Machado**: [Link](https://www.france24.com/fr/europe/20251010-le-prix-nobel-de-la-paix-d%C3%A9cern%C3%A9-%C3%A0-maria-corina-machado)
