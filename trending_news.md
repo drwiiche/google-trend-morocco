@@ -1,3 +1,10 @@
+### coupe du monde u20 2025 (N/A, Thu, 9 Oct 2025 18:00:00 -0700)
+
+- **Coupe du monde U20. France, Japon, Chili, Maroc… Les affiches des 8es de finale**: [Link](https://www.ouest-france.fr/sport/coupe-du-monde/coupe-du-monde-u20-japon-chili-maroc-les-qualifies-et-les-affiches-des-8es-de-finale-8e29fd5a-a1f2-11f0-a698-dbf3ac8f3cb6)
+- **Sauvée par le poteau et la transversale puis victorieuse du Japon au bout de la prolongation, la France se qualifie pour les quarts de finale de la Coupe du monde U20**: [Link](https://www.lequipe.fr/Football/Actualites/Sauvee-par-le-poteau-et-la-transversale-puis-victorieuse-du-japon-au-bout-de-la-prolongation-la-france-se-qualifie-pour-les-quarts-de-finale-de-la-coupe-du-monde-u20/1600218)
+- **Cinq choses à savoir sur Lucas Michal**: [Link](https://ligue1.com/fr/articles/l1_article_3423-cinq-choses-a-savoir-sur-lucas-michal)
+
+
 ### world cup u20 (N/A, Thu, 9 Oct 2025 16:50:00 -0700)
 
 - **Broncos dismiss notion of a trap game as they face winless Jets in London after emotional victory**: [Link](https://www.thederrick.com/ap/sports/broncos-dismiss-notion-of-a-trap-game-as-they-face-winless-jets-in-london-after/article_fcbd6dfa-e5d7-592b-b743-54ce96fe9b1d.html)
