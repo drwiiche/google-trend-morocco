@@ -1,3 +1,17 @@
+### rtm (N/A, Fri, 10 Oct 2025 09:20:00 -0700)
+
+- **WPL 2026 set for historic mega auction â' BCCI finalises dates, player retention, slots and RTM card rules**: [Link](https://www.dnaindia.com/cricket/report-wpl-2026-set-for-historic-mega-auction-bcci-finalises-dates-player-retention-slots-and-rtm-card-rules-3183634)
+- **Women's Premier League Mega Auction Likely In November 2025: Report**: [Link](https://www.news18.com/cricket/womens-premier-league-mega-auction-likely-in-november-2025-report-ws-l-9624271.html)
+- **BCCI Unveils RTM Cards and Retention Rules for WPL 2025 Mega Auction**: [Link](https://pragativadi.com/bcci-unveils-rtm-cards-and-retention-rules-for-wpl-2025-mega-auction/)
+
+
+### الحموشي (N/A, Fri, 10 Oct 2025 09:00:00 -0700)
+
+- **حموشي يؤشر على تعيينات جديدة في مناصب المسؤولية بمصالح ولاية أمن أكادير**: [Link](https://chouftv.ma/press/765127.html)
+- **تعيينات جديدة لتعزيز المسؤولية الأمنية بأكادير**: [Link](https://tiznit24.com/?p=188903)
+- **حموشي يؤشر على تعيينات جديدة شملت 12 منصبا في ولاية أمن أكادير**: [Link](https://24saa.com/%D8%AD%D9%85%D9%88%D8%B4%D9%8A-%D9%8A%D8%A4%D8%B4%D8%B1-%D8%B9%D9%84%D9%89-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%B4%D9%85%D9%84%D8%AA-12-%D9%85%D9%86%D8%B5/)
+
+
 ### zimbabwe – afrique du sud (N/A, Fri, 10 Oct 2025 08:50:00 -0700)
 
 - **Hugo Broos justifie la sélection d’Evidence Makgopa**: [Link](https://foot-africa.com/actualites/hugo-broos-justifie-la-selection-devidence-makgopa-913032/)
