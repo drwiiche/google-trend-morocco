@@ -1,3 +1,10 @@
+### أبو عبيدة (N/A, Fri, 10 Oct 2025 16:10:00 -0700)
+
+- **القسام تعيد نشر كلمة سابقة لأبو عبيدة بعد وقف إطلاق النار**: [Link](https://www.aljazeera.net/news/2025/10/10/%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D8%B9%D9%8A%D8%AF-%D9%86%D8%B4%D8%B1-%D9%83%D9%84%D9%85%D8%A9-%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D9%84%D8%A3%D8%A8%D9%88-%D8%B9%D8%A8%D9%8A%D8%AF%D8%A9)
+- **اتفاق غزة نقطة فارقة، لكنه مجرد بداية**: [Link](https://www.bbc.com/arabic/articles/c62zp37pz33o)
+- **تفاصيل وقف إطلاق النار في غزة.. إليكم ما نعلمه**: [Link](https://arabic.cnn.com/middle-east/video/2025/10/10/v182106-gaza-israel-ceasefire-abdelaziz)
+
+
 ### binance (N/A, Fri, 10 Oct 2025 15:00:00 -0700)
 
 - **Donald Trump Could Soon Pardon Binance Founder Changpeng ‘CZ’ Zhao**: [Link](https://finance.yahoo.com/news/donald-trump-could-soon-pardon-202204530.html)
