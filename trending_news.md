@@ -1,3 +1,10 @@
+### world cup u20 (N/A, Thu, 9 Oct 2025 16:50:00 -0700)
+
+- **Broncos dismiss notion of a trap game as they face winless Jets in London after emotional victory**: [Link](https://www.thederrick.com/ap/sports/broncos-dismiss-notion-of-a-trap-game-as-they-face-winless-jets-in-london-after/article_fcbd6dfa-e5d7-592b-b743-54ce96fe9b1d.html)
+- **SOCCER/ Japanese fans leave a lasting impression at the Under-20 World Cup in Chile**: [Link](https://www.asahi.com/ajw/articles/16083726)
+- **Japanese fans leave a lasting impression at the Under-20 World Cup in Chile**: [Link](https://www.ivpressonline.com/sports/japanese-fans-leave-a-lasting-impression-at-the-under-20-world-cup-in-chile/article_f72684f5-be08-525a-b4e8-1c56936b8265.html)
+
+
 ### u20 world cup 2025 (N/A, Thu, 9 Oct 2025 17:40:00 -0700)
 
 - **USA defeat Italy to reach FIFA U-20 World Cup quarterfinals**: [Link](https://www.mlssoccer.com/news/usa-downs-italy-to-advance-to-quarterfinals-at-fifa-u-20-world-cup)
