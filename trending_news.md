@@ -1,3 +1,10 @@
+### u20 world cup 2025 (N/A, Thu, 9 Oct 2025 17:40:00 -0700)
+
+- **USA defeat Italy to reach FIFA U-20 World Cup quarterfinals**: [Link](https://www.mlssoccer.com/news/usa-downs-italy-to-advance-to-quarterfinals-at-fifa-u-20-world-cup)
+- **Benjamin Cremaschi Brace and Niko Tsakiris Goal Lifts U.S. U-20 Men’s National Team to 3-0 Win Over Italy and A Berth in FIFA U-20 World Cup Quarterfinals**: [Link](https://www.ussoccer.com/stories/2025/10/benjamin-cremaschi-brace-and-niko-tsakiris-goal-lifts-us-u-20-mens-national-team-to-3-0-win-over-italy-and-a-berth-in-fifa-u-20-world-cup-quarterfinals)
+- **United States Italy U20 WCup Soccer**: [Link](https://lufkindailynews.com/anpa/sports/united-states-italy-u20-wcup-soccer/image_3a701d9f-5e64-5ef1-9b9d-19437626f326.html)
+
+
 ### fifa world cup u20 (N/A, Thu, 9 Oct 2025 18:00:00 -0700)
 
 - **Photos of Japan's fans at the men's U20 FIFA World Cup in Chile**: [Link](https://www.aol.com/articles/photos-japans-fans-mens-u20-235526803.html)
