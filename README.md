@@ -1,3 +1,17 @@
+### corée du sud – brésil (N/A, Fri, 10 Oct 2025 03:30:00 -0700)
+
+- **Pronostic Corée du Sud vs Brésil 10/10/2025 : trois conseils pour miser sur des buts à Séoul**: [Link](https://www.goal.com/fr/parier-en-ligne/coree-du-sud-bresil-match-amical-10-octobre/blt049a5ee805764478)
+- **Diffusion Corée du Sud/Brésil – Heure et chaîne pour voir le match**: [Link](https://www.parisfans.fr/autour-du-psg/diffusion-coree-du-sud-bresil-heure-et-chaine-pour-voir-le-match-875452.html)
+- **Football : Son Heung-min va devenir le joueur le plus capé de l'équipe nationale**: [Link](https://fr.yna.co.kr/view/AFR20251001002700884)
+
+
+### كوريا الجنوبية ضد البرازيل (N/A, Fri, 10 Oct 2025 03:30:00 -0700)
+
+- **رودريغو: أشعر أننب حالة جيدة.. وفترة غيابي عن البرازيل مرت كالدهر**: [Link](https://sport.al3omk.com/91215.html)
+- **المنتخب البرازيلي يستعد لمواجهة كوريا الجنوبية ودياً**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%83%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9-%D9%88%D8%AF%D9%8A%D8%A7-2025-10-09)
+- **كاسيميرو يستمر قائدًا للبرازيل في فترة أنشيلوتي**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D9%83%D8%A7%D8%B3%D9%8A%D9%85%D9%8A%D8%B1%D9%88-%D9%8A%D8%B3%D8%AA%D9%85%D8%B1-%D9%82%D8%A7%D8%A6%D8%AF%D8%A7-%D9%84%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%81%D9%8A-%D9%81%D8%AA%D8%B1%D8%A9-%D8%A3%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-97399)
+
+
 ### ashton hall (N/A, Fri, 10 Oct 2025 00:40:00 -0700)
 
 - **What is Ashton Hall’s net worth in 2025? Exploring internet favorite’s stunning fortune and more**: [Link](https://timesofindia.indiatimes.com/sports/international-sports/what-is-ashton-halls-net-worth-in-2025-exploring-internet-favorites-stunning-fortune-and-more/articleshow/124443938.cms)
