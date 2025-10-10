@@ -1,3 +1,10 @@
+### charlie dalin (N/A, Fri, 10 Oct 2025 03:30:00 -0700)
+
+- **Charlie Dalin, vainqueur du Vendée Globe malgré le cancer : « Je ne savais pas si j'allais pouvoir vivre »**: [Link](https://www.lequipe.fr/Voile/Article/Charlie-dalin-vainqueur-du-vendee-globe-malgre-le-cancer-je-ne-savais-pas-si-j-allais-pouvoir-vivre/1599756)
+- **« Un pamplemousse dans le ventre, vous imaginez ? » : Charlie Dalin révèle avoir gagné le Vendée Globe malgré un cancer**: [Link](https://www.leparisien.fr/sports/voile/un-pamplemousse-dans-le-ventre-vous-imaginez-charlie-dalin-revele-avoir-gagne-le-vendee-globe-malgre-un-cancer-08-10-2025-OGQD5XIFHFGBDJUKLSVTRXIV64.php)
+- **ENTRETIEN. « Qu’il communique, ça va nous servir » : le message d’espoir de la médecin de**: [Link](https://saint-brieuc.maville.com/sport/detail_-entretien.-qu-il-communique-ca-va-nous-servir-le-message-d-espoir-de-la-medecin-de-charlie-dalin-_region-7011336_actu.Htm)
+
+
 ### south korea vs brazil (N/A, Fri, 10 Oct 2025 03:50:00 -0700)
 
 - **How to watch South Korea vs Brazil for *FREE* — Stream FIFA Friendly**: [Link](https://www.techradar.com/how-to-watch/football/south-korea-vs-brazil-friendly-free)
