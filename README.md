@@ -1,3 +1,17 @@
+### france – azerbaïdjan (N/A, Fri, 10 Oct 2025 11:00:00 -0700)
+
+- **France-Azerbaïdjan 1995 : Zidane-Djorkaeff première, la der de Ginola... Une fessée au carrefour des ambitieux**: [Link](https://www.lequipe.fr/Football/Article/France-azerbaidjan-1995-zidane-djorkaeff-premiere-la-der-de-ginola-une-fessee-au-carrefour-des-ambitieux/1600286)
+- **Prono France-Azerbaïdjan : analyse, cotes et pronos du match**: [Link](https://www.sofoot.com/articles/prono-france-azerbaidjan-analyse-cote-et-prono-du-match-de-qualifications-a-la-coupe-du-monde-2026)
+- **EN DIRECT France - Azerbaïdjan : Pluie de buts espérée sur la route de la C…**: [Link](https://www.20minutes.fr/sport/football/4178440-20251010-direct-france-azerbaidjan-pluie-buts-esperee-route-coupe-monde-suivez-match)
+
+
+### atlético madrid vs inter (N/A, Fri, 10 Oct 2025 08:50:00 -0700)
+
+- **Atlético vs. Inter Milan (10 Oct, 2025) Live Score**: [Link](https://www.espn.co.uk/football/match/_/gameId/759746)
+- **Atlético Madrid vs Inter LIVE Score Updates: Yann Bisseck equalizes! (1-1)**: [Link](https://www.vavel.com/en-us/soccer/2025/10/10/1237055-atletico-madrid-vs-inter-live-updates-in-international-friendly.html)
+- **Revealed: How Much Inter Milan & Atletico Madrid Will Earn From Libya Friendly In Benghazi**: [Link](https://sempreinter.com/2025/10/10/inter-atletico-libya-friendly-three-million-benghazi/)
+
+
 ### discours du roi mohammed 6 (N/A, Fri, 10 Oct 2025 08:50:00 -0700)
 
 - **GenZ212 : quels scénarios possibles si la contestation s’intensifie ?**: [Link](https://mobile.telquel.ma/2025/10/09/genz212-quels-scenarios-possibles-si-la-contestation-sintensifie_1954920)
