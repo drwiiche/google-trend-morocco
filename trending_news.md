@@ -1,3 +1,17 @@
+### gambia – gabon (N/A, Fri, 10 Oct 2025 07:00:00 -0700)
+
+- **Preview: Gambia vs Gabon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/gambia/world-cup/preview/gambia-vs-gabon-prediction-team-news-lineups_583213.html)
+- **Aubameyang and McKinstry eye glory in Kenya yet, again**: [Link](https://nation.africa/kenya/sports/football/aubameyang-and-mckinstry-eye-glory-in-kenya-yet-again--5220508)
+- **Gambia to host Gabon in Kasarani in a FIFA World Cup Qualifier**: [Link](https://www.kbc.co.ke/gambia-to-host-gabon-in-kasarani-in-a-fifa-world-cup-qualifier/)
+
+
+### الخطاب الملكي 2025 (N/A, Fri, 10 Oct 2025 05:00:00 -0700)
+
+- **حركة جيل زد بالمغرب تطلق حملة لمقاطعة شركات أخنوش**: [Link](https://www.aljazeera.net/ebusiness/2025/10/9/%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AD%D9%85%D9%84%D8%A9-%D9%85%D9%82%D8%A7%D8%B7%D8%B9%D8%A9-%D8%A3%D8%AE%D9%86%D9%88%D8%B4)
+- **احتجاجات تجتاح المغرب في دفعة أخيرة للإصلاحات قبل خطاب متوقع للملك اليوم**: [Link](https://www.alquds.co.uk/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AA%D8%AC%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%AF%D9%81%D8%B9%D8%A9-%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D9%84%D9%84/)
+- **شباب "جيل زد" ينخرطون في وقفة احتجاجية جديدة وسط مدينة طنجة**: [Link](https://www.hespress.com/%D8%B4%D8%A8%D8%A7%D8%A8-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D9%8A%D9%86%D8%AE%D8%B1%D8%B7%D9%88%D9%86-%D9%81%D9%8A-%D9%88%D9%82%D9%81%D8%A9-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D9%8A%D8%A9-%D8%AC-1637577.html)
+
+
 ### خطاب الملك محمد السادس اليوم مباشر (N/A, Fri, 10 Oct 2025 05:50:00 -0700)
 
 - **"ننتظر أن يتحدث إلينا الملك!"... محمد السادس يلقي خطابا أمام البرلمان وسط استمرار احتجاجات "جيل زد"**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A%D8%A9/20251010-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D8%AE%D8%B7%D8%A7%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AD%D8%B1%D9%83%D8%A9-%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF)
