@@ -1,3 +1,10 @@
+### argentine – venezuela (N/A, Fri, 10 Oct 2025 16:30:00 -0700)
+
+- **Lionel Messi laissé à disposition de l'Inter Miami par l'Argentine pour un match contre Atlanta**: [Link](https://www.lequipe.fr/Football/Actualites/Lionel-messi-laisse-a-disposition-de-l-inter-miami-par-l-argentine-pour-un-match-contre-atlanta/1600651)
+- **OM : Balerdi et Rulli reçoivent une bonne nouvelle avant Metz !**: [Link](https://www.sport.fr/football/om-balerdi-et-rulli-recoivent-une-bonne-nouvelle-avant-metz-1360508.shtm)
+- **Argentine : La liste de Lionel Scaloni avec deux Marseillais et un Lyonnais !**: [Link](https://madeinfoot.ouest-france.fr/infos/article-argentine-la-liste-de-lionel-scaloni-avec-deux-marseillais-et-un-lyonnais-497865.html)
+
+
 ### أبو عبيدة (N/A, Fri, 10 Oct 2025 16:10:00 -0700)
 
 - **القسام تعيد نشر كلمة سابقة لأبو عبيدة بعد وقف إطلاق النار**: [Link](https://www.aljazeera.net/news/2025/10/10/%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D8%B9%D9%8A%D8%AF-%D9%86%D8%B4%D8%B1-%D9%83%D9%84%D9%85%D8%A9-%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D9%84%D8%A3%D8%A8%D9%88-%D8%B9%D8%A8%D9%8A%D8%AF%D8%A9)
