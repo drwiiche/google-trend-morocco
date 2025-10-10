@@ -1,3 +1,31 @@
+### zimbabwe – afrique du sud (N/A, Fri, 10 Oct 2025 08:50:00 -0700)
+
+- **Hugo Broos justifie la sélection d’Evidence Makgopa**: [Link](https://foot-africa.com/actualites/hugo-broos-justifie-la-selection-devidence-makgopa-913032/)
+- **Le choc contre les Bafana, une préparation pour la CAN - le capitaine du Zimbabwe**: [Link](https://onefootball.com/es/noticias/le-choc-contre-les-bafana-une-preparation-pour-la-can-le-capitaine-du-zimbabwe-41787919)
+- **Elim. Coupe du monde 2026 : Où suivre en direct le match Zimbabwe vs Afrique du Sud ?**: [Link](https://www.africatopsports.com/2025/10/10/elim-coupe-du-monde-2026-ou-suivre-en-direct-le-match-zimbabwe-vs-afrique-du-sud/)
+
+
+### lesotho – nigeria (N/A, Fri, 10 Oct 2025 08:50:00 -0700)
+
+- **What Nigeria and South Africa need to qualify for the World Cup**: [Link](https://www.standard.co.uk/sport/football/what-nigeria-south-africa-need-qualify-world-cup-b1252096.html)
+- **FIFAWCQ: Chelle Demands High-Intensity Start as Super Eagles Target Crucial Win Against Lesotho**: [Link](https://en.africatopsports.com/2025/10/10/fifawcq-chelle-demands-high-intensity-start-as-super-eagles-target-crucial-win-against-lesotho/)
+- **How Eritrea pulling out could boost Zaidu’s World Cup 2026 hopes**: [Link](https://onefootball.com/en/news/how-eritrea-pulling-out-could-boost-zaidus-world-cup-2026-hopes-41786953)
+
+
+### matchs amicaux (N/A, Fri, 10 Oct 2025 08:50:00 -0700)
+
+- **Tom Picard et l’Alterna Stade Poitevin veulent entretenir la "bonne cohésion" lors du dernier match amical face à Saint-Nazaire**: [Link](https://www.lanouvellerepublique.fr/poitiers/tom-picard-et-l-alterna-stade-poitevin-veulent-entretenir-la-bonne-cohesion-lors-du-dernier-match-amical-face-a-saint-nazaire-1760106135)
+- **Direct Jordanie - Bolivie, Matchs amicaux internationaux, 1ère journée, match du vendredi 10 octobre 2025 : compo et résultat**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/live/2025/match-jordanie-bolivie-tous-les-matchs_FM-250912188836.html)
+- **Pronostic Bolivie vs Jordanie 10 Octobre 2025**: [Link](https://dailysports.net/fr/predictions/bolivie-vs-jordanie-qui-simposera-lors-de-ce-match-amical/)
+
+
+### atlético madrid – inter (N/A, Fri, 10 Oct 2025 08:30:00 -0700)
+
+- **Why Atletico Madrid and Inter are playing a friendly in Libya after Barcelona pulled out**: [Link](https://www.nytimes.com/athletic/6696818/2025/10/10/atletico-madrid-inter-barcelona-libya/)
+- **📜 Simeone's squad for Inter: Koke and Griezmann in**: [Link](https://ca.sports.yahoo.com/news/simeones-squad-inter-koke-griezmann-093900212.html)
+- **Revealed: Inter friendly against Atletico Madrid originally scheduled against Barcelona**: [Link](https://football-italia.net/revealed-inter-friendly-atletico-barcelona/)
+
+
 ### الخطاب الملكي (N/A, Fri, 10 Oct 2025 05:20:00 -0700)
 
 - **حركة جيل زد بالمغرب تطلق حملة لمقاطعة شركات أخنوش**: [Link](https://www.aljazeera.net/ebusiness/2025/10/9/%D8%AC%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AD%D9%85%D9%84%D8%A9-%D9%85%D9%82%D8%A7%D8%B7%D8%B9%D8%A9-%D8%A3%D8%AE%D9%86%D9%88%D8%B4)
