@@ -1,3 +1,10 @@
+### discours du roi mohammed 6 (N/A, Fri, 10 Oct 2025 08:50:00 -0700)
+
+- **GenZ212 : quels scénarios possibles si la contestation s’intensifie ?**: [Link](https://mobile.telquel.ma/2025/10/09/genz212-quels-scenarios-possibles-si-la-contestation-sintensifie_1954920)
+- **Face aux manifestations, le Maroc suspendu à la prise de parole de Mohammed VI**: [Link](https://www.jeuneafrique.com/1729610/politique/face-aux-manifestations-le-maroc-suspendu-a-la-prise-de-parole-de-mohammed-vi/)
+- **Le mouvement GenZ de retour dans la rue**: [Link](https://medias24.com/2025/10/10/le-mouvement-genz-de-retour-dans-la-rue/)
+
+
 ### أتلتيكو مدريد ضد الإنتر (N/A, Fri, 10 Oct 2025 08:50:00 -0700)
 
 - **تضارب في سبب انسحاب برشلونة من مواجهة إنتر في ليبيا**: [Link](https://www.aljazeera.net/sport/2025/10/8/%D8%AA%D8%B6%D8%A7%D8%B1%D8%A8-%D9%81%D9%8A-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
