@@ -1,3 +1,10 @@
+### allemagne – luxembourg (N/A, Fri, 10 Oct 2025 11:10:00 -0700)
+
+- **LIVE - Suivez le match Belgique-Macédoine du Nord en direct**: [Link](https://www.football.fr/coupe-du-monde-2026/live-suivez-le-match-belgique-macedoine-du-nord-en-direct-777944.html)
+- **Allemagne – Luxembourg : la Mannschaft veut frapper fort, voici la chaîne TV et les compos probables**: [Link](https://topfoot.com/1999-allemagne-luxembourg-la-mannschaft-veut-frapper-fort-voici-la-chaine-tv-et-les-compos-probables/)
+- **[Football] Sélection nationale : il faudra (quand même) être immenses**: [Link](https://lequotidien.lu/a-la-une/football-selection-nationale-il-faudra-quand-meme-etre-immenses/)
+
+
 ### france – azerbaïdjan (N/A, Fri, 10 Oct 2025 11:00:00 -0700)
 
 - **France-Azerbaïdjan 1995 : Zidane-Djorkaeff première, la der de Ginola... Une fessée au carrefour des ambitieux**: [Link](https://www.lequipe.fr/Football/Article/France-azerbaidjan-1995-zidane-djorkaeff-premiere-la-der-de-ginola-une-fessee-au-carrefour-des-ambitieux/1600286)
