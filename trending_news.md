@@ -1,3 +1,24 @@
+### discours roi mohammed vi (N/A, Thu, 9 Oct 2025 17:20:00 -0700)
+
+- **Maroc: le mouvement Gen Z met la classe politique sous pression à la veille d'un discours du roi Mohammed VI**: [Link](https://www.rfi.fr/fr/afrique/20251009-maroc-le-mouvement-gen-z-met-la-classe-politique-sous-pression-%C3%A0-la-veille-d-un-discours-du-roi-mohammed-vi)
+- **Le Roi Mohammed VI présidera ce vendredi l'ouverture de la nouvelle session parlementaire**: [Link](https://medias24.com/2025/10/09/le-roi-mohammed-vi-presidera-ce-vendredi-louverture-de-la-nouvelle-session-parlementaire/)
+- **Le roi prononcera un discours vendredi au Parlement à 16h30, retransmis en direct**: [Link](https://mobile.telquel.ma/instant-t/2025/10/09/le-roi-prononcera-un-discours-vendredi-au-parlement-a-16h30-retransmis-en-direct_1955101/)
+
+
+### sports (N/A, Thu, 9 Oct 2025 16:50:00 -0700)
+
+- **LeBron out 3-4 weeks, set to miss Lakers opener**: [Link](https://www.espn.com/nba/story/_/id/46544930/lakers-star-lebron-james-sidelined-3-4-weeks-sciatica)
+- **LeBron James to reportedly miss start of 2025-2026 NBA season due to sciatica**: [Link](https://www.cnn.com/2025/10/09/sport/nba-lebron-james-lakers-sciatica)
+- **LeBron James injury ripple effects: Luka Dončić's MVP case gets stronger, Bronny in Lakers' rotation?**: [Link](https://www.cbssports.com/nba/news/lebron-james-injury-ripple-effects-luka-doncics-mvp-case-gets-stronger-bronny-in-lakers-rotation/)
+
+
+### morocco u20 (N/A, Thu, 9 Oct 2025 16:10:00 -0700)
+
+- **APTOPIX Panama South Korea U20 WCup Soccer**: [Link](https://www.ncnewsonline.com/sports/national_sports/aptopix-panama-south-korea-u20-wcup-soccer/image_a96990ed-c462-564a-94d2-1812cce5d3af.html)
+- **Panama vs. South Korea: U-20 Preview, Odds, and Viewing Info**: [Link](https://www.el-balad.com/6728389)
+- **Panama South Korea U20 WCup Soccer**: [Link](https://www.ncnewsonline.com/sports/national_sports/panama-south-korea-u20-wcup-soccer/image_bc771f37-c724-5fe4-8b83-cb030f126890.html)
+
+
 ### cdm u20 (N/A, Thu, 9 Oct 2025 16:30:00 -0700)
 
 - **CdM U20 : les USA écrasent l’Italie et filent en 1/4 de finale**: [Link](https://www.footmercato.net/a292439488196672659-cdm-u20-les-usa-ecrasent-litalie-et-filent-en-1-4-de-finale)
