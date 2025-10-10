@@ -1,3 +1,15 @@
+### premier ministre france (N/A, Fri, 10 Oct 2025 13:20:00 -0700)
+
+- **EN DIRECT - Sébastien Lecornu à nouveau nommé premier ministre par Emmanuel Macron**: [Link](https://www.lefigaro.fr/politique/en-direct-crise-politique-emmanuel-macron-devrait-mettre-fin-a-cinq-jours-de-suspense-en-nommant-un-nouveau-premier-ministre-pour-matignon-20251010)
+- **Sébastien Lecornu renommé Premier ministre par Emmanuel Macron**: [Link](https://www.bfmtv.com/politique/gouvernement/sebastien-lecornu-renomme-premier-ministre-par-emmanuel-macron_AN-202510100841.html)
+- **EN DIRECT, Sébastien Lecornu renommé premier ministre : le chef du gouvernement promet un budget « pour la fin de l’année » et une équipe qui devra « incarner le renouvellement »**: [Link](https://www.lemonde.fr/politique/live/2025/10/10/en-direct-crise-politique-horizons-decidera-d-une-participation-au-gouvernement-ou-d-un-simple-soutien-lorsque-le-premier-ministre-sera-connu-declare-le-parti-d-edouard-philippe_6645554_823448.html)
+
+
+### akhbarona (N/A, Fri, 10 Oct 2025 09:50:00 -0700)
+
+
+
+
 ### france vs (N/A, Fri, 10 Oct 2025 11:40:00 -0700)
 
 - **France predicted XI v Azerbaijan: Hugo Ekitiké and Malo Gusto to start**: [Link](https://www.getfootballnewsfrance.com/2025/france-predicted-xi-v-azerbaijan-hugo-ekitike-and-malo-gusto-to-start/)
