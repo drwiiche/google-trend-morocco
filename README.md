@@ -1,3 +1,10 @@
+### germany vs luxembourg (N/A, Fri, 10 Oct 2025 12:50:00 -0700)
+
+- **World Cup 2026: which countries have qualified and how did they do it?**: [Link](https://www.theguardian.com/football/2025/oct/10/world-cup-2026-which-countries-have-qualified-and-how-did-they-do-it)
+- **Germany 'need win after win' to avoid WC disaster**: [Link](https://www.espn.com/soccer/story/_/id/46543110/germany-2026-world-cup-qualifying)
+- **Germany vs Luxembourg Lineups, Live Streaming, How & Where to Watch On TV**: [Link](https://athlonsports.com/soccer/germany-vs-luxembourg-lineups-live-streaming-how-where-to-watch-on-tv)
+
+
 ### france (N/A, Fri, 10 Oct 2025 12:10:00 -0700)
 
 - **Rabiot pris à partie à Paris, la réponse cinglante**: [Link](https://www.sports.fr/football/equipe-de-france/rabiot-pris-a-partie-a-paris-la-reponse-cinglante-957519.html)
