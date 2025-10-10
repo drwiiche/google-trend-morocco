@@ -1,3 +1,10 @@
+### hakim ziyech (N/A, Fri, 10 Oct 2025 00:00:00 -0700)
+
+- **Former Chelsea star suffers latest career setback as Romanian side snub Champions League winner over wage demands and claim winger plays with 'FEAR' due to injury concerns**: [Link](https://www.dailymail.co.uk/sport/football/article-15173447/Former-Chelsea-star-career-setback-Romanian-snub-wage-demands-FEAR-injury-concerns.html)
+- **Ziyech Considers CFR Cluj Offer After Qatar Exit**: [Link](https://www.moroccoworldnews.com/2025/10/261135/ziyech-considers-cfr-cluj-offer-after-qatar-exit/)
+- **I was signed by Chelsea for £40m - now I can't get a contract at a Romanian club**: [Link](https://www.mirror.co.uk/sport/football/news/chelsea-transfer-hakim-ziyech-romania-36034021)
+
+
 ### coupe du monde u20 2025 (N/A, Thu, 9 Oct 2025 18:00:00 -0700)
 
 - **Coupe du monde U20. France, Japon, Chili, Maroc… Les affiches des 8es de finale**: [Link](https://www.ouest-france.fr/sport/coupe-du-monde/coupe-du-monde-u20-japon-chili-maroc-les-qualifies-et-les-affiches-des-8es-de-finale-8e29fd5a-a1f2-11f0-a698-dbf3ac8f3cb6)
