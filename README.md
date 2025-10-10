@@ -1,3 +1,10 @@
+### dakhla (N/A, Fri, 10 Oct 2025 01:30:00 -0700)
+
+- **“C'est le moment d'accélérer” : à Dakhla, l'ambassadeur de France soutient les investissements au Sud du royaume**: [Link](https://mobile.telquel.ma/instant-t/2025/10/09/cest-le-moment-daccelerer-a-dakhla-lambassadeur-de-france-soutient-les-investissements-au-sud-du-royaume_1955152/)
+- **À Dakhla, le Maroc et la France scellent une nouvelle ère de partenariat stratégique**: [Link](https://medias24.com/2025/10/09/a-dakhla-le-maroc-et-la-france-scellent-une-nouvelle-ere-de-partenariat-strategique/)
+- **États-Unis, Royaume-Uni, France: le Sahara marocain s’impose comme hub mondial**: [Link](https://fr.le360.ma/politique/etats-unis-uk-france-le-sahara-marocain-simpose-comme-hub-mondial_JC6SYD35QZCU7OA33D6URCD2OA/)
+
+
 ### hakim ziyech (N/A, Fri, 10 Oct 2025 00:00:00 -0700)
 
 - **Former Chelsea star suffers latest career setback as Romanian side snub Champions League winner over wage demands and claim winger plays with 'FEAR' due to injury concerns**: [Link](https://www.dailymail.co.uk/sport/football/article-15173447/Former-Chelsea-star-career-setback-Romanian-snub-wage-demands-FEAR-injury-concerns.html)
