@@ -1,3 +1,10 @@
+### أتلتيكو مدريد ضد الإنتر (N/A, Fri, 10 Oct 2025 08:50:00 -0700)
+
+- **تضارب في سبب انسحاب برشلونة من مواجهة إنتر في ليبيا**: [Link](https://www.aljazeera.net/sport/2025/10/8/%D8%AA%D8%B6%D8%A7%D8%B1%D8%A8-%D9%81%D9%8A-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **القنوات الناقلة ومعلّق مباراة إنتر ميلان وأتلتيكو مدريد الودية في ملعب بنغازي**: [Link](https://www.eremnews.com/sports/ijc4794)
+- **مباراة "انتر ميلان"و "أتلتيكو مدريد"بملعب بنغازي قد تدشن لعودة ليبيا إلى خارطة الرياضة الدولية (إعلام)**: [Link](https://2m.ma/ar/news/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D9%85%D9%84%D8%B9%D8%A8-%D8%A8%D9%86%D8%BA%D8%A7%D8%B2%D9%8A-%D9%82%D8%AF-%D8%AA%D8%AF%D8%B4%D9%86-%D9%84%D8%B9%D9%88%D8%AF%D8%A9-20251010)
+
+
 ### rtm (N/A, Fri, 10 Oct 2025 09:20:00 -0700)
 
 - **WPL 2026 set for historic mega auction â' BCCI finalises dates, player retention, slots and RTM card rules**: [Link](https://www.dnaindia.com/cricket/report-wpl-2026-set-for-historic-mega-auction-bcci-finalises-dates-player-retention-slots-and-rtm-card-rules-3183634)
