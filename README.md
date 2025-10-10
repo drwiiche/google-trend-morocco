@@ -1,3 +1,15 @@
+### 2m tv (N/A, Fri, 10 Oct 2025 08:10:00 -0700)
+
+
+
+
+### discours royal (N/A, Fri, 10 Oct 2025 08:00:00 -0700)
+
+- **Le roi prononcera un discours vendredi au Parlement à 16h30, retransmis en direct**: [Link](https://mobile.telquel.ma/instant-t/2025/10/09/le-roi-prononcera-un-discours-vendredi-au-parlement-a-16h30-retransmis-en-direct_1955101/)
+- **Le Roi Mohammed VI présidera ce vendredi l'ouverture de la nouvelle session parlementaire**: [Link](https://medias24.com/2025/10/09/le-roi-mohammed-vi-presidera-ce-vendredi-louverture-de-la-nouvelle-session-parlementaire/)
+- **Rabat se prépare pour l’ouverture de la session d’automne par le Roi Mohammed VI**: [Link](https://fr.hespress.com/444771-rabat-se-prepare-pour-louverture-de-la-session-dautomne-par-le-roi-mohammed-vi.html)
+
+
 ### 2m (N/A, Fri, 10 Oct 2025 07:30:00 -0700)
 
 - **Gang leaders jailed for stealing cars worth £2m**: [Link](https://www.bbc.com/news/articles/c0lk3g3lkx5o)
