@@ -1,3 +1,10 @@
+### prix nobel de la paix (N/A, Fri, 10 Oct 2025 02:20:00 -0700)
+
+- **Prix Nobel de la paix 2025 : quand et comment suivre l'annonce du lauréat ?**: [Link](https://www.tf1info.fr/international/en-direct-prix-nobel-de-la-paix-2025-heure-chaine-quand-et-comment-suivre-l-annonce-du-laureat-2399719.html)
+- **Le prix Nobel de la paix décerné à Maria Corina Machado**: [Link](https://www.france24.com/fr/europe/20251010-le-prix-nobel-de-la-paix-d%C3%A9cern%C3%A9-%C3%A0-maria-corina-machado)
+- **Pourquoi Trump n’a aucune chance d’avoir le Nobel de la paix (en 2025)**: [Link](https://www.20minutes.fr/monde/etats-unis/4177913-20251009-prix-nobel-paix-2025-pourquoi-donald-trump-aucune-chance-avoir-annee)
+
+
 ### dakhla (N/A, Fri, 10 Oct 2025 01:30:00 -0700)
 
 - **“C'est le moment d'accélérer” : à Dakhla, l'ambassadeur de France soutient les investissements au Sud du royaume**: [Link](https://mobile.telquel.ma/instant-t/2025/10/09/cest-le-moment-daccelerer-a-dakhla-lambassadeur-de-france-soutient-les-investissements-au-sud-du-royaume_1955152/)
