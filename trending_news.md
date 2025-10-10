@@ -1,3 +1,17 @@
+### kpop demon hunters (N/A, Fri, 10 Oct 2025 05:50:00 -0700)
+
+- **'KPop Demon Hunters,' Labubu among Google's top-searched-for Halloween costumes**: [Link](https://www.usatoday.com/story/money/2025/10/09/halloween-2025-top-costumes-kpop-demon-hunters-labubu/86605507007/)
+- **How Is ‘KPop Demon Hunters’ Still Netflix’s #1 Movie, 111 Days Later?**: [Link](https://www.forbes.com/sites/paultassi/2025/10/09/how-is-kpop-demon-hunters-still-netflixs-1-movie-111-days-later/)
+- **K Pop Demon Hunter’s Rumi is going to be the It costume of Halloween**: [Link](https://www.themarysue.com/k-pop-demon-hunters-rumi-is-going-to-be-the-it-costume-of-halloween/)
+
+
+### soudan du sud – sénégal (N/A, Fri, 10 Oct 2025 05:20:00 -0700)
+
+- **Soudan du Sud - Sénégal. À quelle heure et sur quelle chaîne suivre le match pour le Mondial 2026 ?**: [Link](https://www.ouest-france.fr/sport/coupe-du-monde/soudan-du-sud-senegal-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-pour-le-mondial-2026-571051c0-a52b-11f0-be69-69357557951a)
+- **Après la polémique, Ismaïl Jakobs attendu au Sénégal**: [Link](https://sportnewsafrica.com/alertes/apres-la-polemique-ismail-jakobs-attendu-au-senegal)
+- **Mondial 2026 : une chanson pour accompagner les Lions contre le Soudan du Sud et la Mauritanie**: [Link](https://www.seneweb.com/fr/news/Musique/mondial-2026-une-chanson-pour-accompagner-les-lions-contre-le-soudan-du-sud-et-la-mauritanie_n_470543.html)
+
+
 ### charlie dalin (N/A, Fri, 10 Oct 2025 03:30:00 -0700)
 
 - **Charlie Dalin, vainqueur du Vendée Globe malgré le cancer : « Je ne savais pas si j'allais pouvoir vivre »**: [Link](https://www.lequipe.fr/Voile/Article/Charlie-dalin-vainqueur-du-vendee-globe-malgre-le-cancer-je-ne-savais-pas-si-j-allais-pouvoir-vivre/1599756)
