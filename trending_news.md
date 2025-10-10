@@ -1,3 +1,17 @@
+### fifa world cup u20 (N/A, Thu, 9 Oct 2025 18:00:00 -0700)
+
+- **Photos of Japan's fans at the men's U20 FIFA World Cup in Chile**: [Link](https://www.aol.com/articles/photos-japans-fans-mens-u20-235526803.html)
+- **Broncos dismiss notion of a trap game as they face winless Jets in London after emotional victory**: [Link](https://www.thederrick.com/ap/sports/broncos-dismiss-notion-of-a-trap-game-as-they-face-winless-jets-in-london-after/article_fcbd6dfa-e5d7-592b-b743-54ce96fe9b1d.html)
+- **Japan France U20 WCup Soccer**: [Link](https://www.hjnews.com/sports/nation/japan-france-u20-wcup-soccer/image_88f24f6a-111f-51b1-beef-d720b74bdd24.html)
+
+
+### u20 world cup (N/A, Thu, 9 Oct 2025 17:40:00 -0700)
+
+- **USA defeat Italy to reach FIFA U-20 World Cup quarterfinals**: [Link](https://www.mlssoccer.com/news/usa-downs-italy-to-advance-to-quarterfinals-at-fifa-u-20-world-cup)
+- **Benjamin Cremaschi Brace and Niko Tsakiris Goal Lifts U.S. U-20 Men’s National Team to 3-0 Win Over Italy and A Berth in FIFA U-20 World Cup Quarterfinals**: [Link](https://www.ussoccer.com/stories/2025/10/benjamin-cremaschi-brace-and-niko-tsakiris-goal-lifts-us-u-20-mens-national-team-to-3-0-win-over-italy-and-a-berth-in-fifa-u-20-world-cup-quarterfinals)
+- **United States Italy U20 WCup Soccer**: [Link](https://lufkindailynews.com/anpa/sports/united-states-italy-u20-wcup-soccer/image_3a701d9f-5e64-5ef1-9b9d-19437626f326.html)
+
+
 ### discours roi mohammed vi (N/A, Thu, 9 Oct 2025 17:20:00 -0700)
 
 - **Maroc: le mouvement Gen Z met la classe politique sous pression à la veille d'un discours du roi Mohammed VI**: [Link](https://www.rfi.fr/fr/afrique/20251009-maroc-le-mouvement-gen-z-met-la-classe-politique-sous-pression-%C3%A0-la-veille-d-un-discours-du-roi-mohammed-vi)
