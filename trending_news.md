@@ -1,3 +1,17 @@
+### france vs azerbaijan (N/A, Fri, 10 Oct 2025 11:40:00 -0700)
+
+- **France predicted XI v Azerbaijan: Hugo Ekitiké and Malo Gusto to start**: [Link](https://www.getfootballnewsfrance.com/2025/france-predicted-xi-v-azerbaijan-hugo-ekitike-and-malo-gusto-to-start/)
+- **Is Kylian Mbappe playing? Projected lineups for France vs Azerbaijan in 2026 World Cup qualifiers**: [Link](https://worldsoccertalk.com/news/is-kylian-mbappe-playing-projected-lineups-for-france-vs-azerbaijan-in-2026-world-cup-qualifiers/)
+- **France vs. Azerbaijan: Betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/10/france-vs-azerbaijan-betting-odds-prediction-pick/86594961007/)
+
+
+### hibapress (N/A, Fri, 10 Oct 2025 09:40:00 -0700)
+
+- **استنفار في بني ملال بعد تهديد شاب برمي نفسه من سطح المستشفى الجهوي**: [Link](https://24saa.com/%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A8%D9%86%D9%8A-%D9%85%D9%84%D8%A7%D9%84-%D8%A8%D8%B9%D8%AF-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-%D8%B4%D8%A7%D8%A8-%D8%A8%D8%B1%D9%85%D9%8A-%D9%86/)
+- **بني ملال: تدخل أمني سوفا راجل كان غادي ينتاحر من فوق سطح دالسبيطار الجهوي**: [Link](https://www.goud.ma/%D8%A8%D9%86%D9%8A-%D9%85%D9%84%D8%A7%D9%84-%D8%AA%D8%AF%D8%AE%D9%84-%D8%A3%D9%85%D9%86%D9%8A-%D8%B3%D9%88%D9%81%D8%A7-%D8%B1%D8%A7%D8%AC%D9%84-%D9%83%D8%A7%D9%86-%D8%BA%D8%A7%D8%AF%D9%8A-%D9%8A-979057/)
+- **تدخل أمني يجنّب مأساة بمستشفى الجهوي بني ملال**: [Link](https://ar.hibapress.com/details-664949.html)
+
+
 ### allemagne – luxembourg (N/A, Fri, 10 Oct 2025 11:10:00 -0700)
 
 - **LIVE - Suivez le match Belgique-Macédoine du Nord en direct**: [Link](https://www.football.fr/coupe-du-monde-2026/live-suivez-le-match-belgique-macedoine-du-nord-en-direct-777944.html)
