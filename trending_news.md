@@ -1,3 +1,10 @@
+### south korea vs brazil (N/A, Fri, 10 Oct 2025 03:50:00 -0700)
+
+- **How to watch South Korea vs Brazil for *FREE* — Stream FIFA Friendly**: [Link](https://www.techradar.com/how-to-watch/football/south-korea-vs-brazil-friendly-free)
+- **Son Heung-min wants to enjoy 'happiest day ever' when breaking S. Korean caps record**: [Link](https://www.koreaherald.com/article/10590555)
+- **Korea Republic FIFA World Cup Tickets: South Korea in Warm-Up Match for FIFA 2026**: [Link](https://blog.eticketing.co/korea-republic-fifa-world-cup-tickets-south-korea-in-warm-up-match-for-fifa-2026/)
+
+
 ### corée du sud – brésil (N/A, Fri, 10 Oct 2025 03:30:00 -0700)
 
 - **Pronostic Corée du Sud vs Brésil 10/10/2025 : trois conseils pour miser sur des buts à Séoul**: [Link](https://www.goal.com/fr/parier-en-ligne/coree-du-sud-bresil-match-amical-10-octobre/blt049a5ee805764478)
