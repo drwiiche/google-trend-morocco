@@ -1,3 +1,10 @@
+### trump prix nobel de la paix (N/A, Fri, 10 Oct 2025 02:20:00 -0700)
+
+- **Le prix Nobel de la paix décerné à Maria Corina Machado**: [Link](https://www.france24.com/fr/europe/20251010-le-prix-nobel-de-la-paix-d%C3%A9cern%C3%A9-%C3%A0-maria-corina-machado)
+- **Pourquoi Trump n’a aucune chance d’avoir le Nobel de la paix (en 2025)**: [Link](https://www.20minutes.fr/monde/etats-unis/4177913-20251009-prix-nobel-paix-2025-pourquoi-donald-trump-aucune-chance-avoir-annee)
+- **Prix Nobel De La Paix : Trump En Lice Pour La Prestigieuse Distinction Annoncée Aujourd'hui**: [Link](https://www.i24news.tv/fr/actu/international/artc-prix-nobel-de-la-paix-trump-en-lice-pour-la-prestigieuse-distinction-annoncee-aujourd-hui)
+
+
 ### prix nobel de la paix (N/A, Fri, 10 Oct 2025 02:20:00 -0700)
 
 - **Prix Nobel de la paix 2025 : quand et comment suivre l'annonce du lauréat ?**: [Link](https://www.tf1info.fr/international/en-direct-prix-nobel-de-la-paix-2025-heure-chaine-quand-et-comment-suivre-l-annonce-du-laureat-2399719.html)
