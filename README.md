@@ -1,3 +1,10 @@
+### فرنسا ضد أذربيجان (N/A, Fri, 10 Oct 2025 12:10:00 -0700)
+
+- **مبابي: مدريد أقل إيقاعاً من باريس**: [Link](https://www.alarabiya.net/sport/2025/10/09/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%82%D9%84-%D8%A7%D9%8A%D9%82%D8%A7%D8%B9%D8%A7-%D9%85%D9%86-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-)
+- **عناد مبابي يثير مخاوف ريال مدريد قبل الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%86%D8%A7%D8%AF-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AB%D9%8A%D8%B1-%D9%85%D8%AE%D8%A7%D9%88%D9%81-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/bltf1b2f84266537d6c)
+- **جان فيليب ماتيتا... من ظل كريستال بالاس إلى أضواء منتخب فرنسا**: [Link](https://www.alaraby.co.uk/sport/%D8%AC%D8%A7%D9%86-%D9%81%D9%8A%D9%84%D9%8A%D8%A8-%D9%85%D8%A7%D8%AA%D9%8A%D8%AA%D8%A7-%D9%85%D9%86-%D8%B8%D9%84-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D8%A5%D9%84%D9%89-%D8%A3%D8%B6%D9%88%D8%A7%D8%A1-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%81%D8%B1%D9%86%D8%B3%D8%A7)
+
+
 ### belgique – macédoine du nord (N/A, Fri, 10 Oct 2025 12:00:00 -0700)
 
 - **La Belgique touche au but en qualification pour la Coupe du monde 2026**: [Link](https://www.lequipe.fr/Football/Actualites/La-belgique-touche-au-but-en-qualification-pour-la-coupe-du-monde-2026/1600391)
