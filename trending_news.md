@@ -1,3 +1,10 @@
+### منتخب إسبانيا تحت 20 سنة لكرة القدم ضد كولومبيا تحت 20 (N/A, Sat, 11 Oct 2025 13:10:00 -0700)
+
+- **إسبانيا في ربع نهائي مونديال الشباب**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-1636619.html)
+- **مواجهة مرتقبة بين إسبانيا وأوكرانيا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7-2025-10-07)
+- **دور الـ16 في كأس العالم تحت 20 سنة - تشيلي 2025: أوكرانيا تواجه إسبانيا والمضيف يلاقي المكسيك**: [Link](https://www.matchpresse.com/%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%8016-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AD%D8%AA-20-%D8%B3%D9%86%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D9%8A-2025-%D8%A3/)
+
+
 ### diane keaton (N/A, Sat, 11 Oct 2025 12:30:00 -0700)
 
 - **Diane Keaton, Famed for Roles in Father of the Bride First Wives Club and More, Dies at 79 (Exclusive)**: [Link](https://people.com/diane-keaton-dead-oscar-winning-actress-dies-at-79-exclusive-8603118)
