@@ -1,3 +1,17 @@
+### mondial u20 (N/A, Sat, 11 Oct 2025 12:20:00 -0700)
+
+- **Mondial U20 : le Maroc défie les États-Unis pour une place historique en demi-finale**: [Link](https://ledesk.ma/2025/10/11/mondial-u20-le-maroc-defie-les-etats-unis-pour-une-place-historique-en-demi-finale/)
+- **Quarts de finale de la Coupe du monde U20 : le tableau complet**: [Link](https://medias24.com/2025/10/10/quarts-de-finale-de-la-coupe-du-monde-u20-le-tableau-complet/)
+- **Match Maroc - Etats-Unis : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-etats-unis-a-quelle-heure-et-sur-quelles-chaines/306968)
+
+
+### world cup qualifiers (N/A, Sat, 11 Oct 2025 12:20:00 -0700)
+
+- **2026 FIFA World Cup Qualifiers: Egypt qualifies with 3-0 win over Djibouti, Salah scores twice**: [Link](https://www.thehindu.com/sport/football/salah-scores-twice-as-egypt-qualifies-for-2026-world-cup-with-win-over-djibouti/article70142582.ece)
+- **European Qualifiers for the 2026 World Cup: What to look out for on Matchday 8**: [Link](https://www.uefa.com/european-qualifiers/news/029d-1eb28add8cbe-d2a4f5eb4bc8-1000--european-qualifiers-for-the-2026-world-cup-what-to-look-o/)
+- **Qualified teams for the FIFA World Cup 2026: Full list**: [Link](https://www.ottplay.com/sports/news/qualified-teams-for-the-fifa-world-cup-2026-full-list/9a68c691d1706)
+
+
 ### portugal fc (N/A, Sat, 11 Oct 2025 11:30:00 -0700)
 
 - **FC Porto regressa aos treinos no Olival e Farioli chama jovens para o grupo**: [Link](https://www.ojogo.pt/futebol/artigo/fc-porto-regressa-aos-treinos-no-olival-e-farioli-chama-jovens-para-o-grupo/18007608)
