@@ -1,3 +1,10 @@
+### bulgarie – turquie (N/A, Sat, 11 Oct 2025 13:40:00 -0700)
+
+- **Arda Güler marque un but magnifique pour la Turquie et atteint 8 contributions directes en 12 matchs**: [Link](https://tribuna.com/fr/news/2025-10-11-arda-guler-marque-un-but-magnifique-pour-la-turquie-et-atteint-8-contributions-directes-e/)
+- **Qualifs CDM 2026 : La passe de trois pour l'Espagne, le Portugal gagne sur le fil, l'Italie fait le boulot, la Turquie cartonne... le récap' de la soirée**: [Link](https://madeinfoot.ouest-france.fr/infos/article-qualifs-cdm-2026-la-passe-de-trois-pour-l-espagne-le-portugal-gagne-sur-le-fil-l-italie-fait-le-boulot-la-turquie-cartonne-le-recap-de-la-soiree-498846.html)
+- **Football - Qualif. Coupe du monde : Le résumé de Bulgarie - Turquie**: [Link](https://www.lequipe.fr/Football/Video/Qualif-coupe-du-monde-le-resume-de-bulgarie-turquie/20218638)
+
+
 ### spain vs colombia u20 (N/A, Sat, 11 Oct 2025 14:00:00 -0700)
 
 - **Spain's preparations for U20 World Cup quarter-finals against Colombia**: [Link](https://sports.yahoo.com/video/spains-preparations-u20-world-cup-021032515.html)
