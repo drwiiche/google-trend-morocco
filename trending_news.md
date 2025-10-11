@@ -1,3 +1,10 @@
+### mirandés – leganés (N/A, Sat, 11 Oct 2025 08:10:00 -0700)
+
+- **CD Mirandés - CD Leganés, en directo: LaLiga Hypermotion, hoy en vivo**: [Link](https://as.com/futbol/segunda/cd-mirandes-cd-leganes-en-directo-laliga-hypermotion-hoy-en-vivo-f202510-d/)
+- **EN DIRECTO | Sin goles al descanso en Mendizorroza**: [Link](https://www.diariodeburgos.es/noticia/z98046b94-de84-49b4-a775430c8f8328cf/202510/en-directo--sin-goles-al-descanso-en-mendizorroza)
+- **Apuestas y Pronóstico del Mirandés vs Leganés 11/10/25**: [Link](https://www.oddschecker.com/es/pronosticos/futbol/2025/octubre/pronostico-mirandes-vs-leganes-11-10-25)
+
+
 ### valentin vacherot (N/A, Sat, 11 Oct 2025 06:50:00 -0700)
 
 - **World No 204 Valentin Vacherot topples Djokovic to make history in Shanghai**: [Link](https://www.theguardian.com/sport/2025/oct/11/world-no-204-valentin-vacherot-topples-djokovic-to-make-history-in-shanghai-medvedev-rinderknech)
