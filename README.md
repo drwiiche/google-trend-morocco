@@ -1,3 +1,10 @@
+### mexique u-20 – argentine u-20 (N/A, Sat, 11 Oct 2025 15:20:00 -0700)
+
+- **Live Mexique U20 - Argentine U20 Quarts de finale de Coupe du Monde U-20 2025 Chile 12/10**: [Link](https://www.footmercato.net/live/5614082203139156796-mexique-u-20-vs-argentine-u-20)
+- **Mondial U20 : sifflet marocain pour le quart Argentine-Mexique**: [Link](https://fr.hespress.com/444976-mondial-u20-sifflet-marocain-pour-le-quart-argentine-mexique.html)
+- **Mondial U20: Jalal Jayed dirige le choc Mexique-Argentine**: [Link](https://sport.le360.ma/football/mondial-u20-jalal-jayed-dirige-le-choc-mexique-argentine_C73NF3UWBVANTC32SIJYRLOMCY/)
+
+
 ### bulgarie – turquie (N/A, Sat, 11 Oct 2025 13:40:00 -0700)
 
 - **Arda Güler marque un but magnifique pour la Turquie et atteint 8 contributions directes en 12 matchs**: [Link](https://tribuna.com/fr/news/2025-10-11-arda-guler-marque-un-but-magnifique-pour-la-turquie-et-atteint-8-contributions-directes-e/)
