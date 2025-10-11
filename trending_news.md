@@ -1,3 +1,17 @@
+### spain vs colombia u20 (N/A, Sat, 11 Oct 2025 14:00:00 -0700)
+
+- **Spain's preparations for U20 World Cup quarter-finals against Colombia**: [Link](https://sports.yahoo.com/video/spains-preparations-u20-world-cup-021032515.html)
+- **How to watch Spain U20 vs Colombia U20 in the USA: Live Stream and TV for 2025 U20 World Cup**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-spain-u20-vs-colombia-u20-in-the-usa-live-stream-and-tv-for-2025-u20-world-cup/)
+- **Colombia Faces Spain in the U-20 World Cup**: [Link](https://colombiaone.com/2025/10/11/colombia-spain-world-cup/)
+
+
+### espagne vs colombie u20 (N/A, Sat, 11 Oct 2025 13:50:00 -0700)
+
+- **Live Espagne U20 - Colombie U20 (0-1) Quarts de finale de Coupe du Monde U-20 2025 Chile 11/10**: [Link](https://www.footmercato.net/live/1371655798503168091-espagne-u-20-vs-colombie-u-20)
+- **Espagne U-20 - Colombie U-20 en direct - Coupe du monde -20 ans : Football Scores & Résultats - 11/10/2025**: [Link](https://www.eurosport.fr/football/coupe-du-monde-20-ans/2025/live-espagne-u-20-colombie-u-20_mtc1598204/live.shtml)
+- **Fran González, le mur de La Rojita**: [Link](https://onefootball.com/id/berita/fran-gonzalez-le-mur-de-la-rojita-41791304)
+
+
 ### maroc vs usa (N/A, Sat, 11 Oct 2025 13:30:00 -0700)
 
 - **U.S. national team looks to ride consistency to FIFA Under-20 World Cup semi-final berth**: [Link](https://www.nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/)
