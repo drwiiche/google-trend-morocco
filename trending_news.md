@@ -1,3 +1,10 @@
+### donald trump prix nobel de la paix (N/A, Fri, 10 Oct 2025 22:00:00 -0700)
+
+- **Le prix Nobel de la paix décerné à Maria Corina Machado, opposante vénézuélienne**: [Link](https://www.lemonde.fr/international/article/2025/10/10/le-prix-nobel-de-la-paix-decerne-a-l-opposante-venezuelienne-maria-corina-machado_6645609_3210.html)
+- **Pas de Prix Nobel de la Paix pour Donald Trump: la réponse du président du comité Nobel norvégien**: [Link](https://www.bfmtv.com/international/amerique-nord/etats-unis/video-pas-de-prix-nobel-de-la-paix-pour-donald-trump-la-reponse-du-president-du-comite-nobel-norvegien_VN-202510100414.html)
+- **Des « fuites informatiques » avant la nomination du prix Nobel de la paix ? Le comité ouvre une enquête**: [Link](https://www.huffingtonpost.fr/international/article/des-fuites-informatiques-avant-la-nomination-du-prix-nobel-de-la-paix-le-comite-ouvre-une-enquete_255856.html)
+
+
 ### الأرجنتين ضد فنزويلا (N/A, Fri, 10 Oct 2025 17:20:00 -0700)
 
 - **موعد مباراة الأرجنتين وفنزويلا الودية 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/bltcde74d6e9b81d450)
