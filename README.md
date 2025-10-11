@@ -1,3 +1,10 @@
+### إيناس الدغيدي (N/A, Sat, 11 Oct 2025 02:50:00 -0700)
+
+- **لحظة عقد قران إيناس الدغيدي.. وزغرودة من بوسي شلبي وهالة صدقي (فيديو)**: [Link](https://www.youm7.com/story/2025/10/10/%D9%84%D8%AD%D8%B8%D8%A9-%D8%B9%D9%82%D8%AF-%D9%82%D8%B1%D8%A7%D9%86-%D8%A5%D9%8A%D9%86%D8%A7%D8%B3-%D8%A7%D9%84%D8%AF%D8%BA%D9%8A%D8%AF%D9%8A-%D9%88%D8%B2%D8%BA%D8%B1%D9%88%D8%AF%D8%A9-%D9%85%D9%86-%D8%A8%D9%88%D8%B3%D9%8A-%D8%B4%D9%84%D8%A8%D9%8A-%D9%88%D9%87%D8%A7%D9%84%D8%A9/7152078)
+- **بالفيديو- إيناس الدغيدي احتفلت بزفافها وسط اصدقائها المقربين**: [Link](https://bisara7a.com/archives/289937)
+- **هاني رمزي يوجه رسالة لـ إيناس الدغيدي بعد زواجها.. ماذا قال؟**: [Link](https://www.masrawy.com/arts/zoom/details/2025/10/11/2870193/%D9%87%D8%A7%D9%86%D9%8A-%D8%B1%D9%85%D8%B2%D9%8A-%D9%8A%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%84%D9%80-%D8%A5%D9%8A%D9%86%D8%A7%D8%B3-%D8%A7%D9%84%D8%AF%D8%BA%D9%8A%D8%AF%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%B2%D9%88%D8%A7%D8%AC%D9%87%D8%A7-%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%A7%D9%84-)
+
+
 ### novak djokovic (N/A, Sat, 11 Oct 2025 02:00:00 -0700)
 
 - **Shanghai sensation Valentin Vacherot comments on facing Novak Djokovic in SF**: [Link](https://www.tennisworldusa.org/tennis/news/Novak_Djokovic/160329/shanghai-sensation-valentin-vacherot-comments-on-facing-novak-djokovic-in-sf/)
