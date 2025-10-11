@@ -1,3 +1,10 @@
+### pluies torrentielles espagne (N/A, Fri, 10 Oct 2025 14:50:00 -0700)
+
+- **Dépression Alice : de violents orages éclatent sur l’Espagne et les Baléares, avec un risque d’inondations**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-10-08/depression-alice-de-violents-orages-eclatent-sur-l-espagne-et-les-baleares-avec-un-risque-d-inondations-82004)
+- **"C'est de la folie" : les images des pluies torrentielles qui frappent le sud-est de l'Espagne**: [Link](https://www.tf1info.fr/meteo/video-reportage-c-est-de-la-folie-les-images-des-pluies-torrentielles-qui-frappent-le-sud-est-de-l-espagne-2399676.html)
+- **Fortes rafales de vent, risque de grêle, jusqu’à 180 mm de précipitations : une partie de la côte méditerranéenne espagnole en alerte rouge, les autorités donnent l’alerte**: [Link](https://www.lindependant.fr/2025/10/10/fortes-rafales-de-vent-risque-de-grele-jusqua-180-mm-de-precipitations-une-partie-de-la-cote-mediterraneenne-espagnole-en-alerte-rouge-les-autorites-12983649.php)
+
+
 ### donald trump prix nobel de la paix (N/A, Fri, 10 Oct 2025 22:00:00 -0700)
 
 - **Le prix Nobel de la paix décerné à Maria Corina Machado, opposante vénézuélienne**: [Link](https://www.lemonde.fr/international/article/2025/10/10/le-prix-nobel-de-la-paix-decerne-a-l-opposante-venezuelienne-maria-corina-machado_6645609_3210.html)
