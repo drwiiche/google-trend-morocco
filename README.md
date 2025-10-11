@@ -1,3 +1,10 @@
+### kylian mbappé (N/A, Sat, 11 Oct 2025 06:40:00 -0700)
+
+- **Real Madrid Worried Over Deschamps’ Management of Mbappe**: [Link](https://www.moroccoworldnews.com/2025/10/263114/real-madrid-worried-over-deschamps-management-of-mbappe/)
+- **Kylian Mbappe Injury Update: How Long Will Real Madrid Be Without Their Star Striker?**: [Link](https://theplayoffs.news/en/kylian-mbappe-injury-update-how-long-will-real-madrid-be-without-their-star-striker/)
+- **Mbappe and Konate out of France's World Cup qualifier in Iceland**: [Link](https://supersport.com/football/wc-qualification-euro/news/3a0813c2-2522-4050-ab0d-6a2323462b73/mbappe-and-konate-out-of-france-s-world-cup-qualifier-in-iceland)
+
+
 ### donald trump (N/A, Sat, 11 Oct 2025 04:40:00 -0700)
 
 - **Trump threatens to impose additional 100% tariff on China**: [Link](https://www.bbc.com/news/articles/cn4wkd7729po)
