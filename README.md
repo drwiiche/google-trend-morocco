@@ -1,3 +1,17 @@
+### tempete jerry (N/A, Sat, 11 Oct 2025 10:40:00 -0700)
+
+- **Tempête tropicale Jerry en Guadeloupe : l'automobiliste porté disparu après les fortes pluies en Guadeloupe a été retrouvé mort, annoncent les pompiers**: [Link](https://www.franceinfo.fr/france/guadeloupe/la-guadeloupe-placee-en-vigilance-orange-fortes-pluies-et-orages-vagues-submersion-et-vents-violents-en-raison-du-passage-de-la-tempete-tropicale-jerry_7543798.html)
+- **Fortes pluies et orages sur les Petites Antilles en marge de Jerry**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/fortes-pluies-et-orages-sur-les-petites-antilles-en-marge-de-0)
+- **VIDÉO. Un cargo, ancien navire de soutien offshore, s’échoue en Guadeloupe à cause de la tempête**: [Link](https://lemarin.ouest-france.fr/shipping/video-un-cargo-ancien-navire-de-soutien-offshore-sechoue-en-guadeloupe-a-cause-de-la-tempete-jerry-9c46853a-a5e3-11f0-aa8e-e39f42e4d309)
+
+
+### florian thauvin (N/A, Sat, 11 Oct 2025 08:10:00 -0700)
+
+- **Un viejo conocido de la Liga MX anota en el triunfo de Francia sobre Azerbaiyán en las eliminatorias del Mundial 2026**: [Link](https://www.infobae.com/mexico/deportes/2025/10/11/un-viejo-conocido-de-la-liga-mx-anota-en-el-triunfo-de-francia-sobre-azerbaiyan-en-las-eliminatorias-del-mundial-2026/)
+- **Florian Thauvin, un minuto para volver a brillar con Francia**: [Link](https://cadenaser.com/nacional/2025/10/11/florian-thauvin-un-minuto-para-volver-a-brillar-con-francia-cadena-ser/)
+- **Decepcionó en Tigres, hoy vuelve a su selección y anota en la eliminatoria**: [Link](https://mexico.as.com/futbol/decepciono-en-tigres-hoy-vuelve-a-su-seleccion-y-anota-en-la-eliminatoria-n/)
+
+
 ### norvège – israël (N/A, Sat, 11 Oct 2025 09:40:00 -0700)
 
 - **L’accord de paix à Gaza fait baisser la pression sur l’équipe de football d’Israël, qui rêve de la Coupe du monde 2026**: [Link](https://www.lemonde.fr/sport/article/2025/10/11/l-accord-de-paix-a-gaza-fait-baisser-la-pression-sur-l-equipe-de-football-d-israel-qui-reve-de-la-coupe-du-monde-2026_6645767_3242.html)
