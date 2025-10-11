@@ -1,3 +1,24 @@
+### portugal – irlande (N/A, Sat, 11 Oct 2025 11:00:00 -0700)
+
+- **Portugal – Irlande : les compos probables, la chaîne et l’heure du match**: [Link](https://topfoot.com/2007-portugal-irlande-les-compos-probables-la-chaine-et-lheure-du-match/)
+- **Un nouveau record monstrueux pour Cristiano Ronaldo ce soir ?**: [Link](https://www.onzemondial.com/coupe-du-monde/un-nouveau-record-monstrueux-pour-cristiano-ronaldo-ce-soir-969096)
+- **PRONOS PARIS RMC Le pari sûr du 11 octobre - Qualif. Coupe du Monde**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-11-octobre-qualif-coupe-du-monde_AN-202510100792.html)
+
+
+### kylian mbappé real madrid (N/A, Sat, 11 Oct 2025 10:50:00 -0700)
+
+- **Real Madrid Worried Over Deschamps’ Management of Mbappe**: [Link](https://www.moroccoworldnews.com/2025/10/263114/real-madrid-worried-over-deschamps-management-of-mbappe/)
+- **Relief for Real Madrid as superstar’s injury not serious; will resume training next week**: [Link](https://berawangnews.com/relief-for-real-madrid-as-superstars-injury-not-serious-will-resume-training-next-week/)
+- **Kylian Mbappe leaves France squad! Real Madrid superstar forced to return to Spain due to ankle injury and will miss Iceland World Cup qualifier**: [Link](https://uk.sports.yahoo.com/news/kylian-mbappe-leaves-france-squad-120529310.html)
+
+
+### norway vs israel (N/A, Sat, 11 Oct 2025 10:50:00 -0700)
+
+- **Erling Haaland IS human after all! Man City striker misses penalty for Norway in World Cup qualifier against Israel... before fluffing his retake in remarkable scenes**: [Link](https://www.dailymail.co.uk/sport/football/article-15183499/Erling-Haaland-Man-City-striker-misses-penalty-Norway-World-Cup-qualifier-Israel-fluffs-retake.html)
+- **Norway thrash Israel, Italy edge closer to the play-offs ➕**: [Link](https://onefootball.com/en/news/norway-thrash-israel-italy-edge-closer-to-the-play-offs-41792627)
+- **Haaland twice misses penalty for Norway against Israel but scores later**: [Link](https://www.couriernews.com/sports/haaland-twice-misses-penalty-for-norway-against-israel-but-scores-later/article_0b2b95ab-828b-5696-9706-a30782bd44d1.html)
+
+
 ### tempete jerry (N/A, Sat, 11 Oct 2025 10:40:00 -0700)
 
 - **Tempête tropicale Jerry en Guadeloupe : l'automobiliste porté disparu après les fortes pluies en Guadeloupe a été retrouvé mort, annoncent les pompiers**: [Link](https://www.franceinfo.fr/france/guadeloupe/la-guadeloupe-placee-en-vigilance-orange-fortes-pluies-et-orages-vagues-submersion-et-vents-violents-en-raison-du-passage-de-la-tempete-tropicale-jerry_7543798.html)
