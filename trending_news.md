@@ -1,3 +1,17 @@
+### الأرجنتين ضد فنزويلا (N/A, Fri, 10 Oct 2025 17:20:00 -0700)
+
+- **موعد مباراة الأرجنتين وفنزويلا الودية 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/bltcde74d6e9b81d450)
+- **سكالوني يفاجئ الأرجنتين بلاوتارو ريفيرو.. من بائع متجول إلى قلب دفاع المنتخب**: [Link](https://sport.al3omk.com/91204.html)
+- **بث مباشر.. الأرجنتين تواجه فنزويلا في مباراة الودية**: [Link](https://chamaly.ma/2025/10/11/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-%D9%81%D9%8A-%D9%85%D8%A8/)
+
+
+### argentina vs venezuela (N/A, Fri, 10 Oct 2025 16:50:00 -0700)
+
+- **El motivo por el que Leo Messi abandonó la concentración de la selección argentina**: [Link](https://www.si.com/es-us/futbol/el-motivo-por-el-que-leo-messi-abandono-la-concentracion-de-la-seleccion-argentina)
+- **La Selección Argentina enfrenta a Venezuela, con la mente puesta en el Mundial 2026**: [Link](https://onefootball.com/es/noticias/la-seleccion-argentina-enfrenta-a-venezuela-con-la-mente-puesta-en-el-mundial-2026-41789744)
+- **Argentina vs Venezuela EN VIVO. Messi y la Selección Argentina contra Venezuela en Partido Amistoso**: [Link](https://www.marca.com/mx/futbol/argentina-venezuela/2025/10/11/01_0112_20251011_632_833-directo.html)
+
+
 ### argentine – venezuela (N/A, Fri, 10 Oct 2025 16:30:00 -0700)
 
 - **Lionel Messi laissé à disposition de l'Inter Miami par l'Argentine pour un match contre Atlanta**: [Link](https://www.lequipe.fr/Football/Actualites/Lionel-messi-laisse-a-disposition-de-l-inter-miami-par-l-argentine-pour-un-match-contre-atlanta/1600651)
