@@ -1,3 +1,10 @@
+### norvège – israël (N/A, Sat, 11 Oct 2025 09:40:00 -0700)
+
+- **L’accord de paix à Gaza fait baisser la pression sur l’équipe de football d’Israël, qui rêve de la Coupe du monde 2026**: [Link](https://www.lemonde.fr/sport/article/2025/10/11/l-accord-de-paix-a-gaza-fait-baisser-la-pression-sur-l-equipe-de-football-d-israel-qui-reve-de-la-coupe-du-monde-2026_6645767_3242.html)
+- **Haaland à un pas de l'exploit : offrir à la Norvège son premier Mondial depuis 28 ans**: [Link](https://www.goal.com/fr/listes/haaland-a-un-pas-de-l-exploit-offrir-a-la-norvege-son-premier-mondial-depuis-28-ans/blt1f552a3bff2fb2b2)
+- **Qualifs CdM 2026 : le gardien d’Israël arrête deux penalties consécutifs d’Erling Haaland !**: [Link](https://www.footmercato.net/a9039861498354245258-qualifs-cdm-2026-le-gardien-disrael-arrete-deux-penalties-consecutifs-derling-haaland)
+
+
 ### mirandés – leganés (N/A, Sat, 11 Oct 2025 08:10:00 -0700)
 
 - **CD Mirandés - CD Leganés, en directo: LaLiga Hypermotion, hoy en vivo**: [Link](https://as.com/futbol/segunda/cd-mirandes-cd-leganes-en-directo-laliga-hypermotion-hoy-en-vivo-f202510-d/)
