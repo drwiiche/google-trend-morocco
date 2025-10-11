@@ -1,3 +1,45 @@
+### إسبانيا ضد جورجيا (N/A, Sat, 11 Oct 2025 11:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إسبانيا وجورجيا في التصفيات المؤهلة إلى كأس العالم 2026 أوروبا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D8%A7-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt9df427094ba9d2e1)
+- **إسبانيا لا تحتاج لامين يامال لتتألق!**: [Link](https://hihi2.com/2025/10/11/p3421427.html)
+- **غوارديولا: انظروا إلى ما حدث مع كارفخال في ريال مدريد**: [Link](https://www.alarabiya.net/sport/2025/10/03/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A7%D9%86%D8%B8%D8%B1%D9%88%D8%A7-%D8%A7%D9%84%D9%89-%D9%85%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%85%D8%B9-%D9%83%D8%A7%D8%B1%D9%81%D8%AE%D8%A7%D9%84-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+
+
+### portugal vs ireland (N/A, Sat, 11 Oct 2025 11:10:00 -0700)
+
+- **Portugal v Republic of Ireland, Spain v Georgia: World Cup 2026 qualifying – live**: [Link](https://www.theguardian.com/football/live/2025/oct/11/portugal-v-republic-of-ireland-spain-v-georgia-world-cup-2026-qualifying-live)
+- **STAR FOOTBALL PREVIEW Sat: Portugal v Ireland**: [Link](https://www.starsportsbet.co.uk/star-football-preview-sat-portugal-v-ireland/)
+- **Portugal vs Ireland LIVE Score Udpates in 2026 World Cup Qualifiers Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/11/1237167-portugal-vs-ireland-live-udpates-in-2026-qualifiers.html)
+
+
+### spain vs georgia (N/A, Sat, 11 Oct 2025 11:10:00 -0700)
+
+- **Spain vs Georgia – Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/263125/spain-vs-georgia-preview-prediction/)
+- **Spain vs Georgia live stream: how to watch FIFA World Cup 2026 qualifier online from anywhere**: [Link](https://www.techradar.com/how-to-watch/football/spain-vs-georgia-fifa-world-cup-2026-qualifier-free)
+- **Spain vs. Georgia lineups: Predicted starting XI, team news, rosters, match details with Lamine Yamal and Rodri ruled out**: [Link](https://www.sportingnews.com/us/soccer/news/spain-georgia-lineups-starting-xi-roster-world-cup/70f862935bac7da19532b213)
+
+
+### البرتغال ضد أيرلندا (N/A, Sat, 11 Oct 2025 11:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة البرتغال وأيرلندا في التصفيات المؤهلة إلى كأس العالم 2026 أوروبا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D8%A7%D9%94%D9%8A%D8%B1%D9%84%D9%86%D8%AF%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/bltb2718bc92773445b)
+- **رونالدو على بعد هدف من رقم قياسي جديد**: [Link](https://www.elsport.com/news/show/796000/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%B9%D9%84%D9%89-%D8%A8%D8%B9%D8%AF-%D9%87%D8%AF%D9%81-%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF)
+- **لا توتر بين البرتغال و باريس بسبب جواو نيفيز**: [Link](https://hihi2.com/2025/10/11/p3422528.html)
+
+
+### espagne foot (N/A, Sat, 11 Oct 2025 11:10:00 -0700)
+
+- **Espagne : Luis de la Fuente écarte Aymeric Laporte contre la Géorgie**: [Link](https://www.footmercato.net/a5552439939385315108-espagne-luis-de-la-fuente-ecarte-aymeric-laporte-contre-la-georgie)
+- **PRONOS PARIS RMC Le pari du jour du 11 octobre - Qualif. Coupe du Monde**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-11-octobre-qualif-coupe-du-monde_AN-202510100790.html)
+- **Espagne-Géorgie : à quelle heure et sur quelle chaîne voir le match ?**: [Link](https://www.lequipe.fr/Football/Actualites/Espagne-georgie-a-quelle-heure-et-sur-quelle-chaine-voir-le-match/1599996)
+
+
+### portugal (N/A, Sat, 11 Oct 2025 11:10:00 -0700)
+
+- **João Félix e Nuno Tavares fora do jogo com República da Irlanda para o Mundial2026**: [Link](https://www.correiodamanhacanada.com/joao-felix-e-nuno-tavares-fora-do-jogo-com-republica-da-irlanda-para-o-mundial2026/)
+- **Roberto Martínez: «É isso que precisamos, não é um onze inicial, é um grupo de jogadores com competitividade máxima no balneário»**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/roberto-martinez-e-isso-que-precisamos-nao-e-um-onze-inicial-e-um-grupo-de-jogadores-com-competitividade-maxima-no-balneario/)
+- **Martínez volta a mexer... muito: onze provável de Portugal com a Rep. Irlanda**: [Link](https://www.abola.pt/noticias/martinez-volta-a-mexer-muito-onze-provavel-de-portugal-com-a-rep-irlanda-2025101023011545235)
+
+
 ### portugal – irlande (N/A, Sat, 11 Oct 2025 11:00:00 -0700)
 
 - **Portugal – Irlande : les compos probables, la chaîne et l’heure du match**: [Link](https://topfoot.com/2007-portugal-irlande-les-compos-probables-la-chaine-et-lheure-du-match/)
