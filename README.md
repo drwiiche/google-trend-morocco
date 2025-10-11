@@ -1,3 +1,10 @@
+### portugal foot (N/A, Sat, 11 Oct 2025 11:00:00 -0700)
+
+- **97-Foot World Record Wave Surfed at Nazaré, Study Claims**: [Link](https://www.surfer.com/news/vini-dos-santos-world-record-wave-surfed-nazare-study)
+- **Study suggests Vini dos Santos may have ridden a 100-foot wave in Nazaré**: [Link](https://www.surfertoday.com/surfing/vini-dos-santos-100-foot-wave-nazare)
+- **A scientific study measures Vini dos Santos’ wave at almost 100 feet**: [Link](https://en.as.com/other_sports/a-scientific-study-measures-vini-dos-santos-wave-at-almost-100-feet-n/)
+
+
 ### estonie – italie (N/A, Sat, 11 Oct 2025 11:30:00 -0700)
 
 - **CM 2026: Nouveau cauchemar pour l’Italie ?**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/cm-2026-nouveau-cauchemar-pour-litalie-958074.html)
