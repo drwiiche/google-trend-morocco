@@ -1,3 +1,17 @@
+### estonie – italie (N/A, Sat, 11 Oct 2025 11:30:00 -0700)
+
+- **CM 2026: Nouveau cauchemar pour l’Italie ?**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/cm-2026-nouveau-cauchemar-pour-litalie-958074.html)
+- **CDM 2026 : Loin de la Norvège, Gattuso ne veut plus parler de première place**: [Link](https://sports.orange.fr/football/coupe-du-monde/article/cdm-2026-loin-de-la-norvege-gattuso-ne-veut-plus-parler-de-premiere-place-CNT000002la35r.html)
+- **Prédiction de football Estonie - Italie : Blue Dance**: [Link](https://www.vietnam.vn/fr/nhan-dinh-bong-da-estonia-vs-italia-vu-dieu-thien-thanh)
+
+
+### dip doundou guiss (N/A, Sat, 11 Oct 2025 11:00:00 -0700)
+
+- **« Dungeen daj » : Dip Doundou Guiss confirme sa suprématie avec son nouveau clip (officiel)**: [Link](https://www.senenews.com/senenews-people/dungeen-daj-dip-doundou-guiss-confirme-sa-suprematie-avec-son-nouveau-clip-officiel_562035.html)
+- **DIP DOUNDOU GUISS vs NGAKA BLINDÉ : Une dualité sans fin**: [Link](https://www.seneweb.com/fr/news/Culture/dip-doundou-guiss-vs-ngaka-blinde-une-dualite-sans-fin_n_470685.html)
+- **Sénégal - Ngaaka Blindé s'ambiance sur le nouveau son de Dip et annonce une surprise à ses fans (Vidéo)**: [Link](https://senego.com/senegal-ngaaka-blinde-sambiance-sur-le-nouveau-son-de-dip-et-annonce-une-surprise-a-ses-fans-video_1885387.html)
+
+
 ### إسبانيا ضد جورجيا (N/A, Sat, 11 Oct 2025 11:10:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إسبانيا وجورجيا في التصفيات المؤهلة إلى كأس العالم 2026 أوروبا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D8%A7-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt9df427094ba9d2e1)
