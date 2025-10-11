@@ -1,3 +1,10 @@
+### portugal fc (N/A, Sat, 11 Oct 2025 11:30:00 -0700)
+
+- **FC Porto regressa aos treinos no Olival e Farioli chama jovens para o grupo**: [Link](https://www.ojogo.pt/futebol/artigo/fc-porto-regressa-aos-treinos-no-olival-e-farioli-chama-jovens-para-o-grupo/18007608)
+- **FC Porto e Benfica vencem 'liga das miniférias'**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/fc-porto-e-benfica-vencem-liga-das-miniferias)
+- **FC Porto: sessão vespertina sem metade do plantel**: [Link](https://sapo.pt/artigo/fc-porto-sessao-vespertina-sem-metade-do-plantel-68ea138146a7f283dd14f37f)
+
+
 ### portugal foot (N/A, Sat, 11 Oct 2025 11:00:00 -0700)
 
 - **97-Foot World Record Wave Surfed at Nazaré, Study Claims**: [Link](https://www.surfer.com/news/vini-dos-santos-world-record-wave-surfed-nazare-study)
