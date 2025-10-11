@@ -1,3 +1,10 @@
+### inter miami – atlanta utd (N/A, Sat, 11 Oct 2025 15:50:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Hosts Atlanta United for Last Regular Season Home Game**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-atlanta-united-for-last-regular-season-home-game)
+- **Tools to the Match: How the 5-Stripes pick up road win at Inter Miami CF**: [Link](https://www.atlutd.com/news/tools-to-the-match-how-the-5-stripes-pick-up-road-win-at-inter-miami-cf)
+- **Silvetti: Winning titles is Inter Miami's main goal**: [Link](https://www.fotmob.com/news/1gw384oh56nyj1tin9846zj3gg-silvetti-winning-titles-is-inter-miamis-main-goal)
+
+
 ### mexique u-20 – argentine u-20 (N/A, Sat, 11 Oct 2025 15:20:00 -0700)
 
 - **Live Mexique U20 - Argentine U20 Quarts de finale de Coupe du Monde U-20 2025 Chile 12/10**: [Link](https://www.footmercato.net/live/5614082203139156796-mexique-u-20-vs-argentine-u-20)
