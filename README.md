@@ -1,3 +1,10 @@
+### المكسيك تحت 20 ضد الأرجنتين تحت 20 (N/A, Sat, 11 Oct 2025 16:10:00 -0700)
+
+- **جيد يدير مباراة الأرجنتين والمكسيك**: [Link](https://www.hespress.com/%D8%AC%D9%8A%D8%AF-%D9%8A%D8%AF%D9%8A%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83-1638316.html)
+- **مونديال الشباب : الفيفا يختار الحكم المغربي جلال جيد لقيادة مقابلة الأرجنتين والمكسيك**: [Link](https://2m.ma/ar/news/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%AC%D9%84%D8%A7%D9%84-%D8%AC%D9%8A%D8%AF-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%85%D9%82%D8%A7%D8%A8%D9%84%D9%88-20251011)
+- **حكم مغربي لقيادة قمة الأرجنتين أمام المكسيك في مونديال الشيلي**: [Link](https://ar.sport.le360.ma/football/LVYCE7DAGVFBZBQDZSOUFGSFIA/)
+
+
 ### inter miami – atlanta utd (N/A, Sat, 11 Oct 2025 15:50:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Hosts Atlanta United for Last Regular Season Home Game**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-atlanta-united-for-last-regular-season-home-game)
