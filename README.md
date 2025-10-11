@@ -1,3 +1,17 @@
+### diane keaton (N/A, Sat, 11 Oct 2025 12:30:00 -0700)
+
+- **Diane Keaton, Famed for Roles in Father of the Bride First Wives Club and More, Dies at 79 (Exclusive)**: [Link](https://people.com/diane-keaton-dead-oscar-winning-actress-dies-at-79-exclusive-8603118)
+- **Diane Keaton, Oscar-winning star of Annie Hall and The Godfather, dies aged 79**: [Link](https://www.theguardian.com/film/2025/oct/11/diane-keaton-oscar-winning-star-of-annie-hall-and-the-godfather-dies-aged-79)
+- **Diane Keaton, Oscar-Winning ‘Annie Hall’ Star, Dies at 79**: [Link](https://variety.com/2025/film/news/diane-keaton-dead-annie-hall-1236546710/)
+
+
+### yalla (N/A, Sat, 11 Oct 2025 12:10:00 -0700)
+
+- **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
+- **CAF Extends Media Accreditation Deadline for 2025 AFCON**: [Link](https://barlamantoday.com/2025/10/11/caf-extends-media-accreditation-deadline-for-2025-afcon/)
+- **African soccer leader says Morocco street protests do not affect Cup of Nations plans**: [Link](https://www.ncnewsonline.com/sports/national_sports/african-soccer-leader-says-morocco-street-protests-do-not-affect-cup-of-nations-plans/article_81bf2a81-7914-59f2-bcc1-ffe063887863.html)
+
+
 ### mondial u20 (N/A, Sat, 11 Oct 2025 12:20:00 -0700)
 
 - **Mondial U20 : le Maroc défie les États-Unis pour une place historique en demi-finale**: [Link](https://ledesk.ma/2025/10/11/mondial-u20-le-maroc-defie-les-etats-unis-pour-une-place-historique-en-demi-finale/)
