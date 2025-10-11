@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Sat, 11 Oct 2025 02:00:00 -0700)
+
+- **Shanghai sensation Valentin Vacherot comments on facing Novak Djokovic in SF**: [Link](https://www.tennisworldusa.org/tennis/news/Novak_Djokovic/160329/shanghai-sensation-valentin-vacherot-comments-on-facing-novak-djokovic-in-sf/)
+- **ĐOKOVIĆ SHOCKS WITH ADMISSION: In every match I play right now, something is wrong with my body!**: [Link](https://serbiantimes.info/en/dokovic-shocks-with-admission-in-every-match-i-play-right-now-something-is-wrong-with-my-body/)
+- **How to watch Aryna Sabalenka v Jessica Pegula**: [Link](https://news.bet365.com/en-gb/article/how-to-watch-aryna-sabalenka-v-jessica-pegula/2025101015460524805)
+
+
 ### pluies torrentielles espagne (N/A, Fri, 10 Oct 2025 14:50:00 -0700)
 
 - **Dépression Alice : de violents orages éclatent sur l’Espagne et les Baléares, avec un risque d’inondations**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-10-08/depression-alice-de-violents-orages-eclatent-sur-l-espagne-et-les-baleares-avec-un-risque-d-inondations-82004)
