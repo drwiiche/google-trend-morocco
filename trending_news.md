@@ -1,3 +1,10 @@
+### donald trump (N/A, Sat, 11 Oct 2025 04:40:00 -0700)
+
+- **Trump threatens to impose additional 100% tariff on China**: [Link](https://www.bbc.com/news/articles/cn4wkd7729po)
+- **Trump announces 130% tariffs on China. The global trade war just came roaring back**: [Link](https://www.cnn.com/2025/10/10/economy/trump-china-tariff-threats-economy)
+- **Trump threatens 100% China tariffs as Beijing restricts rare-earth exports**: [Link](https://www.theguardian.com/us-news/2025/oct/10/trump-china-tariffs)
+
+
 ### إيناس الدغيدي (N/A, Sat, 11 Oct 2025 02:50:00 -0700)
 
 - **لحظة عقد قران إيناس الدغيدي.. وزغرودة من بوسي شلبي وهالة صدقي (فيديو)**: [Link](https://www.youm7.com/story/2025/10/10/%D9%84%D8%AD%D8%B8%D8%A9-%D8%B9%D9%82%D8%AF-%D9%82%D8%B1%D8%A7%D9%86-%D8%A5%D9%8A%D9%86%D8%A7%D8%B3-%D8%A7%D9%84%D8%AF%D8%BA%D9%8A%D8%AF%D9%8A-%D9%88%D8%B2%D8%BA%D8%B1%D9%88%D8%AF%D8%A9-%D9%85%D9%86-%D8%A8%D9%88%D8%B3%D9%8A-%D8%B4%D9%84%D8%A8%D9%8A-%D9%88%D9%87%D8%A7%D9%84%D8%A9/7152078)
