@@ -1,3 +1,10 @@
+### maroc vs usa (N/A, Sat, 11 Oct 2025 13:30:00 -0700)
+
+- **U.S. national team looks to ride consistency to FIFA Under-20 World Cup semi-final berth**: [Link](https://www.nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/)
+- **Morocco vs. South Korea: How to Watch, Odds, U-20 Preview**: [Link](https://www.foxsports.com/stories/soccer/morocco-vs-korea-how-watch-odds-u-20-preview)
+- **U20 World Cup: What time and on which channel to watch Morocco vs United States?**: [Link](https://foot-africa.com/en/news/u20-world-cup-what-time-and-on-which-channel-to-watch-morocco-vs-united-states-914283/)
+
+
 ### منتخب إسبانيا تحت 20 سنة لكرة القدم ضد كولومبيا تحت 20 (N/A, Sat, 11 Oct 2025 13:10:00 -0700)
 
 - **إسبانيا في ربع نهائي مونديال الشباب**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-1636619.html)
