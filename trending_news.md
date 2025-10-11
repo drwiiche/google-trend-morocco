@@ -1,3 +1,10 @@
+### valentin vacherot (N/A, Sat, 11 Oct 2025 06:50:00 -0700)
+
+- **World No 204 Valentin Vacherot topples Djokovic to make history in Shanghai**: [Link](https://www.theguardian.com/sport/2025/oct/11/world-no-204-valentin-vacherot-topples-djokovic-to-make-history-in-shanghai-medvedev-rinderknech)
+- **Vacherot's unforgettable Shanghai run: Five jaw-dropping facts**: [Link](https://www.atptour.com/en/news/vacherot-shanghai-2025-final-run-incredible-stats)
+- **Down and out: Novak Djokovic suffers shock defeat after on-court back massage**: [Link](https://sports.yahoo.com/article/down-novak-djokovic-suffers-shock-115931424.html)
+
+
 ### kylian mbappé (N/A, Sat, 11 Oct 2025 06:40:00 -0700)
 
 - **Real Madrid Worried Over Deschamps’ Management of Mbappe**: [Link](https://www.moroccoworldnews.com/2025/10/263114/real-madrid-worried-over-deschamps-management-of-mbappe/)
