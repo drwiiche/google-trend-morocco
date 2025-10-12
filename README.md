@@ -1,3 +1,10 @@
+### quinte (N/A, Sun, 12 Oct 2025 01:10:00 -0700)
+
+- **le n° 4 Kamyador - Obstacle**: [Link](https://www.zone-turf.fr/actualite/obstacle/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-4-kamyador-128253.html)
+- **Quinté 2025 : Les clés pour des paris gagnants chaque jour**: [Link](https://www.tierce-magazine.com/pronostics-quinte-du-jour-nos-conseils-experts-pour-reussir-vos-paris-en-2025/)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 5 Java d'Anama**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-5-java-d-anama-128247.html)
+
+
 ### عبد اللطيف الحموشي (N/A, Sat, 11 Oct 2025 23:40:00 -0700)
 
 - **هذه حقيقة خبر إنهاء مهام مدير المخابرات الداخلية المغربية عبد اللطيف الحموشي**: [Link](https://chamaly.ma/2025/10/11/%D9%87%D8%B0%D9%87-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AE%D8%A8%D8%B1-%D8%A5%D9%86%D9%87%D8%A7%D8%A1-%D9%85%D9%87%D8%A7%D9%85-%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%A8%D8%B1%D8%A7/)
