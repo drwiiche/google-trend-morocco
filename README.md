@@ -1,3 +1,10 @@
+### prix jack barbe (N/A, Sun, 12 Oct 2025 08:00:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour dimanche 12 octobre - Prix Jack Barbe**: [Link](https://www.lalsace.fr/actualite/2025/10/11/les-pronostics-de-l-alsace-pour-dimanche-12-octobre-prix-jack-barbe)
+- **Les pronos hippiques du dimanche 12 octobre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-12-octobre-2025_AN-202510110100.html)
+- **Quinté du dimanche 12 octobre 2025 à Auteuil : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-12-octobre-2025-a-auteuil-les-pronostics-7900551934)
+
+
 ### athletic club – real madrid club de fútbol (N/A, Sun, 12 Oct 2025 08:00:00 -0700)
 
 - **Sara Ortega, una todoterreno para el Athletic**: [Link](https://www.deia.eus/athletic-femenino/2025/10/11/sara-ortega-todoterreno-athletic-real-madrid-san-mames-10197728.html)
