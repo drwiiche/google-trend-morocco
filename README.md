@@ -1,3 +1,24 @@
+### charles oliveira (N/A, Sat, 11 Oct 2025 18:30:00 -0700)
+
+- **Main Card Results | UFC Rio**: [Link](https://www.ufc.com/news/ufc-fight-night-oliveira-vs-gamrot-event-tonight-main-card-live-results-recaps-highlights-interviews)
+- **UFC Rio Start Time – UFC Rio Prelims And Main Card Start Time, Oliveira vs Gamrot Main Event Estimated Time**: [Link](https://theplayoffs.news/en/ufc-rio-start-time-ufc-rio-prelims-and-main-card-start-time-oliveira-vs-gamrot-main-event-estimated-time/)
+- **UFC Rio predictions**: [Link](https://www.mmafighting.com/ufc/449432/ufc-rio-predictions)
+
+
+### إنتر ميامي ضد أتلانتا يونايتد (N/A, Sat, 11 Oct 2025 17:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي وأتلانتا يونايتد في الدوري الأمريكي 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2025/bltcb54274e5a43bf1c)
+- **تترقب الجماهير.. موعد مباراة تورونتو ضد إنتر ميامي في الدوري الأمريكي 2025 وأبرز التفاصيل الكاملة**: [Link](https://arabsport.org/2025/10/08/%D8%AA%D8%AA%D8%B1%D9%82%D8%A8-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%B1%D9%88%D9%86%D8%AA%D9%88-%D8%B6%D8%AF/)
+- **أساطير برشلونة يقودون ميامي للانتصار على أتلانتا..فيديو**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1346962/%D8%A3%D8%B3%D8%A7%D8%B7%D9%8A%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%82%D9%88%D8%AF%D9%88%D9%86-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%84%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1)
+
+
+### maroc congo (N/A, Sat, 11 Oct 2025 17:30:00 -0700)
+
+- **Lancement de la vente des billets pour le match de l’équipe nationale contre le Congo**: [Link](https://frmf.ma/fr/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-3/)
+- **Match Maroc-Congo : la billetterie est ouverte**: [Link](https://ledesk.ma/encontinu/match-maroc-congo-la-billetterie-est-ouverte/)
+- **Élim CdM 2026 : les Lions de l’Atlas tiendront une séance ouverte aux médias avant d’affronter le Congo**: [Link](https://fr.hespress.com/445011-elim-cdm-2026-les-lions-de-latlas-tiendront-une-seance-ouverte-aux-medias-avant-daffronter-le-congo.html)
+
+
 ### argentine vs mexique u20 (N/A, Sat, 11 Oct 2025 17:40:00 -0700)
 
 - **Mexico vs Argentina: How to Watch, Odds, U-20 Preview**: [Link](https://www.foxsports.com/stories/soccer/mexico-vs-argentina-how-watch-odds-u-20-world-cup-preview)
