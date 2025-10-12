@@ -1,3 +1,17 @@
+### yalla kora (N/A, Sun, 12 Oct 2025 13:30:00 -0700)
+
+- **"صمت العاجزين".. مجلس الزمالك يمارس هويته بالاختفاء عقب الإخفاقات‎**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%85%D8%AA-%D8%A7%D9%84%D8%B9%D8%A7%D8%AC%D8%B2%D9%8A%D9%86--%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%85%D8%A7%D8%B1%D8%B3-%D9%87%D9%88%D9%8A%D8%AA%D9%87-%D8%A8%D8%A7%D9%84%D8%A7%D8%AE%D8%AA%D9%81%D8%A7%D8%A1-%D8%B9%D9%82%D8%A8-%D8%A7%D9%84%D8%A7%D9%95%D8%AE%D9%81%D8%A7%D9%82%D8%A7%D8%AA%E2%80%8E/bltb7c6cb9f028f01fa)
+- **خالد الغندور يكشف كواليس رفض جون إدوارد تعيين مدرب عام جديد بجهاز فيريرا**: [Link](https://sport.elwatannews.com/ar/1/1/1279241/%D8%AE%D8%A7%D9%84%D8%AF-%D8%A7%D9%84%D8%BA%D9%86%D8%AF%D9%88%D8%B1-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%B1%D9%81%D8%B6-%D8%AC%D9%88%D9%86-%D8%A5%D8%AF%D9%88%D8%A7%D8%B1%D8%AF-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86-%D9%85%D8%AF%D8%B1%D8%A8-%D8%B9%D8%A7%D9%85-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A8%D8%AC%D9%87%D8%A7%D8%B2-%D9%81%D9%8A%D8%B1%D9%8A%D8%B1%D8%A7)
+- **رياضة محلية / اتفاق جنتلمان بين فيريرا واللاعبين في الزمالك قبل مواجهة ديكيداها**: [Link](https://www.khabarmasr.com/news/get_news/1002863/%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%AC%D9%86%D8%AA%D9%84%D9%85%D8%A7%D9%86-%D8%A8%D9%8A%D9%86-%D9%81%D9%8A%D8%B1%D9%8A%D8%B1%D8%A7-%D9%88%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AF%D9%8A%D9%83%D9%8A%D8%AF%D8%A7%D9%87%D8%A7)
+
+
+### match today (N/A, Sun, 12 Oct 2025 13:30:00 -0700)
+
+- **Highlights of FIFA World Cup 2026 AFC Asian Qualifiers group A playoffs match**: [Link](https://english.news.cn/20251012/fc363190649742f68b3c1ad4d71ce9e1/c.html)
+- **UAE Vs Qatar: Ticket Registration Begins 8% Of Seats Allocated For Emirates Fans**: [Link](https://menafn.com/1110185312/UAE-Vs-Qatar-Ticket-Registration-Begins-8-Of-Seats-Allocated-For-Emirates-Fans)
+- **Imported Brazilians take Middle East side close to the Copa**: [Link](https://onefootball.com/pt-br/noticias/imported-brazilians-take-middle-east-side-close-to-the-copa-41793644)
+
+
 ### koora (N/A, Sun, 12 Oct 2025 13:10:00 -0700)
 
 - **ما القنوات الناقلة لمباراة مصر وغينيا بيساو في التصفيات الإفريقية المؤهلة إلى كأس العالم 2026؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A8%D9%8A%D8%B3%D8%A7%D9%88-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026/bltc85a2f3e739d6b93)
