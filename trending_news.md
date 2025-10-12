@@ -1,3 +1,10 @@
+### المكسيك ضد كولومبيا (N/A, Sat, 11 Oct 2025 21:20:00 -0700)
+
+- **كولومبيا تخرج إسبانيا من المونديال**: [Link](https://www.hespress.com/%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D8%AA%D8%AE%D8%B1%D8%AC-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-1638611.html)
+- **مونديال الشباب/ بـ"هاتريك" فياريال.. المنتخب الكولومبي أول المتأهلين إلى نصف النهائي بعد انتصاره في مواجهة "مثيرة" على إسبانيا (3-2)**: [Link](https://m.elbotola.com/article/2025-10-11-21-57-272.html)
+- **جدول مباريات اليوم الثلاثاء 7 أكتوبر 2025 والقنوات الناقلة**: [Link](https://alwatannews.net/watan-sports/article/4060710/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-7-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2025-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+
+
 ### charles oliveira (N/A, Sat, 11 Oct 2025 18:30:00 -0700)
 
 - **Main Card Results | UFC Rio**: [Link](https://www.ufc.com/news/ufc-fight-night-oliveira-vs-gamrot-event-tonight-main-card-live-results-recaps-highlights-interviews)
