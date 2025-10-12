@@ -1,3 +1,17 @@
+### u-20 world cup (N/A, Sun, 12 Oct 2025 14:30:00 -0700)
+
+- **Norway vs France: How to Watch, Odds, U-20 Preview**: [Link](https://www.foxsports.com/stories/soccer/norway-vs-france-how-watch-odds-u-20-world-cup-preview)
+- **USA vs Morocco time, where to watch U-20 World Cup soccer**: [Link](https://www.usatoday.com/story/sports/soccersweep/2025/10/12/usa-morocco-time-how-to-watch-u20-world-cup/86628083007/)
+- **Preview: USA Faces Morocco in U-20 World Cup Quarterfinal**: [Link](https://www.ussoccer.com/stories/2025/10/usa-faces-morocco-u-20-fifa-world-cup-quarterfinal)
+
+
+### morocco vs usa u20 live (N/A, Sun, 12 Oct 2025 14:20:00 -0700)
+
+- **USA vs. Morocco - Live Score, Lineups & Match Hub | 2025 FIFA U-20 World Cup**: [Link](https://www.ussoccer.com/competitions/2025-u-20-fifa-world-cup/matches/united-states-vs-morocco-live-score-lineups-result-match-hub)
+- **USA vs. Italy - Live Score, Lineups & Match Hub | 2025 FIFA U-20 World Cup**: [Link](https://www.ussoccer.com/competitions/2025-u-20-fifa-world-cup/matches/united-states-vs-italy-live-score-lineups-result-match-hub)
+- **USA vs Morocco time, where to watch U-20 World Cup soccer**: [Link](https://www.usatoday.com/story/sports/soccersweep/2025/10/12/usa-morocco-time-how-to-watch-u20-world-cup/86628083007/)
+
+
 ### burkina faso – éthiopie (N/A, Sun, 12 Oct 2025 14:20:00 -0700)
 
 - **Elim. Coupe du monde 2026 : Un triplé de Landry Kaboré offre la victoire au Burkina contre l'Ethiopie**: [Link](https://www.africatopsports.com/2025/10/12/elim-coupe-du-monde-2026-un-triple-de-landry-kabore-offre-la-victoire-au-burkina-contre-lethiopie/)
