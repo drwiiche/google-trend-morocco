@@ -1,3 +1,10 @@
+### accord israël hamas gaza (N/A, Sun, 12 Oct 2025 01:30:00 -0700)
+
+- **EN DIRECT, Gaza | La libération des otages commencera lundi matin, selon le Hamas ; un « sommet de la paix » se tiendra le même jour en Egypte**: [Link](https://www.lemonde.fr/international/live/2025/10/12/en-direct-gaza-la-liberation-des-otages-commencera-lundi-matin-selon-le-hamas-un-sommet-de-la-paix-se-tiendra-le-meme-jour-en-egypte_6645703_3210.html)
+- **"Vous rentrez à la maison": l'émissaire américain Steve Witkoff s'adresse aux otages depuis Tel-Aviv**: [Link](https://www.bfmtv.com/international/moyen-orient/palestine/vous-rentrez-a-la-maison-l-emissaire-americain-steve-witkoff-s-adresse-aux-otages-depuis-tel-aviv_AV-202510110346.html)
+- **Le Hamas balaye cette mesure présente dans le plan de paix de Trump pour Gaza**: [Link](https://www.huffingtonpost.fr/international/article/gaza-le-hamas-balaye-une-mesure-presente-dans-le-plan-de-paix-de-donald-trump_255876.html)
+
+
 ### quinte (N/A, Sun, 12 Oct 2025 01:10:00 -0700)
 
 - **le n° 4 Kamyador - Obstacle**: [Link](https://www.zone-turf.fr/actualite/obstacle/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-4-kamyador-128253.html)
