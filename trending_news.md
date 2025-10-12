@@ -1,3 +1,10 @@
+### زامبيا ضد النيجر (N/A, Sun, 12 Oct 2025 06:10:00 -0700)
+
+- **إرفعوا القبعة للزاكي.. النيجر قريب من السد**: [Link](https://www.almountakhab.com/node/16218358)
+- **بعد تجاوز وعكته الصحية .. الزاكي في مهمة الإطاحة بمنافس « الأسود »**: [Link](https://ar.sport.le360.ma/football/4FD3PIT3DRHYNE2FMP3OIZP4DA/)
+- **النيجر تقسو على الكونغو برازافيل بثلاثية**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D8%AA%D9%82%D8%B3%D9%88-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A8%D8%B1%D8%A7%D8%B2%D8%A7%D9%81%D9%8A%D9%84-%D8%A8%D8%AB%D9%84%D8%A7-407845.html)
+
+
 ### patrice de colmont (N/A, Sun, 12 Oct 2025 05:40:00 -0700)
 
 - **Patrice de Colmont, l'homme de Saint-Tropez, est mort**: [Link](https://www.parismatch.com/Culture/patrice-de-colmont-lhomme-de-saint-tropez-est-mort-258446)
