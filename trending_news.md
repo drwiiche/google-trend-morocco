@@ -1,3 +1,17 @@
+### rancagua (N/A, Sun, 12 Oct 2025 14:40:00 -0700)
+
+- **Antiguo mall de Rancagua se reinaugura como outlet**: [Link](https://www.latercera.com/pulso/noticia/antiguo-mall-de-rancagua-se-reinaugura-como-outlet/)
+- **[REGIONAL] Panaderos eligen el mejor pan batido de la Región de Valparaíso 2025**: [Link](https://diariolaquinta.cl/2025/10/09/regional-panaderos-eligen-el-mejor-pan-batido-de-la-region-de-valparaiso-2025/)
+- **INACAP La Serena fue sede del concurso “La Mejor Marraqueta 2025”**: [Link](https://www.lavozdelnorte.cl/2025/10/inacap-la-serena-fue-sede-del-concurso-la-mejor-marraqueta-2025/)
+
+
+### morocco vs america (N/A, Sun, 12 Oct 2025 14:20:00 -0700)
+
+- **USA vs. Morocco - Live Score, Lineups & Match Hub | 2025 FIFA U-20 World Cup**: [Link](https://www.ussoccer.com/competitions/2025-u-20-fifa-world-cup/matches/united-states-vs-morocco-live-score-lineups-result-match-hub)
+- **USA vs. Italy - Live Score, Lineups & Match Hub | 2025 FIFA U-20 World Cup**: [Link](https://www.ussoccer.com/competitions/2025-u-20-fifa-world-cup/matches/united-states-vs-italy-live-score-lineups-result-match-hub)
+- **USA vs Morocco time, where to watch U-20 World Cup soccer**: [Link](https://www.usatoday.com/story/sports/soccersweep/2025/10/12/usa-morocco-time-how-to-watch-u20-world-cup/86628083007/)
+
+
 ### u-20 world cup (N/A, Sun, 12 Oct 2025 14:30:00 -0700)
 
 - **Norway vs France: How to Watch, Odds, U-20 Preview**: [Link](https://www.foxsports.com/stories/soccer/norway-vs-france-how-watch-odds-u-20-world-cup-preview)
