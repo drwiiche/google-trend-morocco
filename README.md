@@ -1,3 +1,10 @@
+### athletic club – real madrid club de fútbol (N/A, Sun, 12 Oct 2025 08:00:00 -0700)
+
+- **Sara Ortega, una todoterreno para el Athletic**: [Link](https://www.deia.eus/athletic-femenino/2025/10/11/sara-ortega-todoterreno-athletic-real-madrid-san-mames-10197728.html)
+- **Eibar – Almería: horario y dónde ver el partido de la Jornada 10**: [Link](https://www.lavanguardia.com/deportes/futbol/20251012/21302/horario-partido-ca-athletic-w-real-madrid-w-ctx.html)
+- **Lerga confía en ganar al Madrid en San Mamés, el «escenario ideal»**: [Link](https://www.elcorreo.com/athletic/lerga-confia-ganar-madrid-san-mames-escenario-20251010005024-nt.html)
+
+
 ### mls (N/A, Sat, 11 Oct 2025 18:10:00 -0700)
 
 - **Post Match: Ball Don’t Lie**: [Link](https://thethirdsub.ca/2025/10/11/post-match-ball-dont-lie/)
