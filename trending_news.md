@@ -1,3 +1,10 @@
+### mls (N/A, Sat, 11 Oct 2025 18:10:00 -0700)
+
+- **Post Match: Ball Don’t Lie**: [Link](https://thethirdsub.ca/2025/10/11/post-match-ball-dont-lie/)
+- **Muller's last-minute strike earns dramatic win for Vancouver**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/mullers-last-minute-strike-earns-dramatic-win-for-vancouver-2025-10-12)
+- **Lions fall short despite early goal, Gallese heroics**: [Link](http://www.aroundosceola.com/index.php/sports/lions-fall-short-despite-early-goal-gallese-heroics)
+
+
 ### zambia vs niger (N/A, Sun, 12 Oct 2025 07:10:00 -0700)
 
 - **Nkandu urges fans to be at their best behavior during the Niger game**: [Link](https://zambianfootball.co.zm/nkandu-urges-fans-to-be-at-their-best-behavior-during-the-niger-game/)
