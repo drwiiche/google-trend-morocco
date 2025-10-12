@@ -1,3 +1,17 @@
+### egypt vs guinea-bissau (N/A, Sun, 12 Oct 2025 11:50:00 -0700)
+
+- **Egypt vs Guinea-Bissau: nothing to lose for the Pharaohs**: [Link](https://foot-africa.com/en/news/egypt-vs-guinea-bissau-nothing-to-lose-for-the-pharaohs-915528/)
+- **Égypte vs Guinée-Bissau : rien à perdre pour les Pharaons**: [Link](https://onefootball.com/en/news/egypte-vs-guinee-bissau-rien-a-perdre-pour-les-pharaons-41794667)
+- **Egypt vs Guinea-Bissau Preview, prediction, lineups, betting tips & odds | 2026 FIFA World Cup Qualifiers**: [Link](https://khelnow.com/football/world-football-egypt-vs-guinea-bissau-preview-202510)
+
+
+### morocco vs usa (N/A, Sun, 12 Oct 2025 11:20:00 -0700)
+
+- **U20 World Cup: Morocco Ready for Quarterfinal Game Against US**: [Link](https://www.moroccoworldnews.com/2025/10/263179/u20-world-cup-morocco-ready-for-quarterfinal-game-against-us/)
+- **U.S. national team looks to ride consistency to FIFA Under-20 World Cup semifinal berth**: [Link](https://www.nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/)
+- **U.S. U-20 National Team Chases History at the World Cup**: [Link](https://www.beinsports.com/en-us/soccer/articles/u-s-u-20-national-team-chases-history-at-the-world-cup-2025-10-12)
+
+
 ### croatie – gibraltar (N/A, Sun, 12 Oct 2025 11:40:00 -0700)
 
 - **La Croatie de Modric face à Gibraltar**: [Link](https://www.ilmessaggero.it/fr/la_croatie_de_modric_face_a_gibraltar-9122623.html)
