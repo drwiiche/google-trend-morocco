@@ -1,3 +1,17 @@
+### usa u-20 vs morocco u-20 (N/A, Sun, 12 Oct 2025 12:20:00 -0700)
+
+- **U20 World Cup: Morocco Ready for Quarterfinal Game Against US**: [Link](https://www.moroccoworldnews.com/2025/10/263179/u20-world-cup-morocco-ready-for-quarterfinal-game-against-us/)
+- **U.S. national team looks to ride consistency to FIFA Under-20 World Cup semifinal berth**: [Link](https://www.nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/)
+- **U.S. U-20 National Team Chases History at the World Cup**: [Link](https://www.beinsports.com/en-us/soccer/articles/u-s-u-20-national-team-chases-history-at-the-world-cup-2025-10-12)
+
+
+### ghana – comores (N/A, Sun, 12 Oct 2025 12:20:00 -0700)
+
+- **Ghana-Comores : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/ghana-comores-streaming-chaine-tv-et-compos-10258947.html)
+- **Eliminatoires CM 2026 - Le Ghana à 90 minutes de la qualification - Journal des sports Afrique**: [Link](https://www.rfi.fr/fr/podcasts/journal-des-sports-afrique/20251012-eliminatoires-cm-2026-le-ghana-%C3%A0-90-minutes-de-la-qualification)
+- **CM : L’Egypte et le Ghana qualifiés**: [Link](https://www.footafrique.com/cm-legypte-et-le-ghana-qualifies/)
+
+
 ### états-unis u-20 – équipe du maroc des moins de 20 ans de football (N/A, Sun, 12 Oct 2025 12:10:00 -0700)
 
 - **Coupe du monde U20. Maroc - États-Unis. Quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/10/12/coupe-du-monde-u20-maroc-etats-unis-quelle-heure-quelles-chaines/)
