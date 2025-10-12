@@ -1,3 +1,17 @@
+### états-unis u-20 – équipe du maroc des moins de 20 ans de football (N/A, Sun, 12 Oct 2025 12:10:00 -0700)
+
+- **Coupe du monde U20. Maroc - États-Unis. Quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/10/12/coupe-du-monde-u20-maroc-etats-unis-quelle-heure-quelles-chaines/)
+- **Mondial U20 : le Maroc défie les États-Unis pour une place historique en demi-finale**: [Link](https://ledesk.ma/2025/10/11/mondial-u20-le-maroc-defie-les-etats-unis-pour-une-place-historique-en-demi-finale/)
+- **Mondial U20 : le Maroc abordera le match face aux Etats-Unis avec le même état d’esprit que les précédentes rencontres (Ouahbi)**: [Link](https://lematin.ma/sports/mondial-u20-ouahbi-promet-discipline-et-meme-etat-desprit-face-aux-usa/307040)
+
+
+### الولايات المتحدة الأمريكية تحت 20 ضد منتخب المغرب تحت 20 سنة لكرة القدم (N/A, Sun, 12 Oct 2025 12:10:00 -0700)
+
+- **إنجاز تاريخي يحفز شباب المغرب للإطاحة بأمريكا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%8A%D8%AD%D9%81%D8%B2-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%84%D8%A7%D9%95%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D8%A7/bltab740a43ba6cbecb)
+- **"الأشبال" يطمحون لكتابة التاريخ**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D9%8A%D8%B7%D9%85%D8%AD%D9%88%D9%86-%D9%84%D9%83%D8%AA%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-1638865.html)
+- **المنتخب الوطني يواصل استعداداته للقاء الكونغو**: [Link](https://ar.telquel.ma/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B9%D9%86%D8%A7%D8%B5%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7/)
+
+
 ### match maroc aujourd'hui (N/A, Sun, 12 Oct 2025 12:10:00 -0700)
 
 - **Match amical U17: Sénégal-Maroc 0-0**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%A7-2/)
