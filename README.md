@@ -1,3 +1,10 @@
+### صالح الجعفراوي (N/A, Sun, 12 Oct 2025 10:20:00 -0700)
+
+- **تضارب الأنباء حول مصير الناشط الفلسطيني المعروف صالح الجعفراوي**: [Link](https://www.i24news.tv/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/artc-5e654fbc)
+- **استشهاد الصحفي صالح الجعفراوي على يد عصابات خارجة عن القانون في غزة**: [Link](https://www.ammanjo.co/article/247044)
+- **ما حقيقة اختطاف صالح الجعفراوي على يد عائلة دغمش وقتله في غزة؟**: [Link](https://www.sabaharabi.com/685621)
+
+
 ### prix jack barbe (N/A, Sun, 12 Oct 2025 08:00:00 -0700)
 
 - **Tiercé. Les pronostics de L'Alsace pour dimanche 12 octobre - Prix Jack Barbe**: [Link](https://www.lalsace.fr/actualite/2025/10/11/les-pronostics-de-l-alsace-pour-dimanche-12-octobre-prix-jack-barbe)
