@@ -1,3 +1,43 @@
+### كووورة (N/A, Sun, 12 Oct 2025 15:20:00 -0700)
+
+- **من يامال إلى مبابي.. عندما يتحوّل الواجب الوطني إلى كابوس للأندية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%A7%D9%95%D9%84%D9%89-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D8%AA%D8%AD%D9%88%D9%91%D9%84-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D9%83%D8%A7%D8%A8%D9%88%D8%B3-%D9%84%D9%84%D8%A7%D9%94%D9%86%D8%AF%D9%8A%D8%A9-%D9%87%D9%8A%D8%B1%D9%88-%D8%B3%D8%AA%D9%88%D8%B1%D9%8A-%D8%B5%D8%A8%D8%A7%D8%AD%D9%8A/blte5203b50e5951cd2)
+- **التعامل مع اللاعبين في منتخبات بلادهم … مثير للقلق**: [Link](https://hihi2.com/2025/10/11/p3421514.html)
+- **الإصابات تفتح باب تمرّد الأندية على المنتخبات**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%AA%D9%85%D8%B1%D9%91%D8%AF-%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA)
+
+
+### programme coupe du monde u20 (N/A, Sun, 12 Oct 2025 15:20:00 -0700)
+
+- **Coupe du Monde U20 : l’attaquant de l’AS Monaco, Lucas Michal, écrase tout avec la France**: [Link](https://www.footmercato.net/a7109613122202023289-coupe-du-monde-u20-lattaquant-de-las-monaco-lucas-michal-ecrase-tout-avec-la-france)
+- **La France de Djylian N'Guessan qualifiée pour les quarts !**: [Link](https://onefootball.com/fr/news/la-france-de-djylian-nguessan-qualifiee-pour-les-quarts-41786649)
+- **Football : Mmadi et les Bleuets en quarts de finale du Mondial U20**: [Link](https://www.laprovence.com/article/sports/18431341647241/football-mmadi-et-les-bleuets-en-quarts-de-finale-du-mondial-u20)
+
+
+### wc u20 (N/A, Sun, 12 Oct 2025 15:10:00 -0700)
+
+- **Colombia đánh bại Tây Ban Nha, vào bán kết U20 World Cup sau 22 năm**: [Link](https://muctim.tuoitre.vn/colombia-danh-bai-tay-ban-nha-vao-ban-ket-u20-world-cup-sau-22-nam-101251012083626577.htm)
+- **Dự đoán U20 Tây Ban Nha vs U20 Colombia, 3h00 ngày 12/10, U20 World Cup 2025**: [Link](https://webthethao.vn/bong-da-quoc-te/du-doan-u20-tay-ban-nha-vs-u20-colombia-3h00-ngay-1210-u20-world-cup-2025-7H9xcK6Ng.htm)
+- **Tây Ban Nha, Colombia tung đội hình nào tại tứ kết U20 World Cup 2025?**: [Link](https://muctim.tuoitre.vn/tay-ban-nha-colombia-tung-doi-hinh-nao-tai-tu-ket-u20-world-cup-2025-101251011112854514.htm)
+
+
+### baouf (N/A, Sun, 12 Oct 2025 15:10:00 -0700)
+
+- **Mondial U20. Mohamed Ouahbi : « On aspire à atteindre la finale et remporter le titre »**: [Link](https://www.lesiteinfo.com/sport/656588-mondial-u20-mohamed-ouahbi-on-aspire-a-atteindre-la-finale-et-remporter-le-titre.html)
+
+
+### match live (N/A, Sun, 12 Oct 2025 15:10:00 -0700)
+
+- **Egypt qualify for FIFA World Cup 2026 with win over Djibouti**: [Link](https://www.aljazeera.com/sports/2025/10/8/egypt-qualify-for-fifa-world-cup-2026-with-win-over-djibouti)
+- **Maghreb Trio Qualifies for FIFA World Cup for the First Time in History**: [Link](https://www.moroccoworldnews.com/2025/10/263021/maghreb-trio-qualifies-for-fifa-world-cup-for-the-first-time-in-history/)
+- **Algeria confirm two stars ruled out of Uganda clash**: [Link](https://www.panafricafootball.com/post/algeria-confirm-two-stars-ruled-out-of-uganda-clash/)
+
+
+### morocco football (N/A, Sun, 12 Oct 2025 15:00:00 -0700)
+
+- **Everything you need to know about TotalEnergies CAF Africa Cup of Nations, Morocco 2025**: [Link](https://www.cafonline.com/afcon2025/news/everything-you-need-to-know-about-totalenergies-caf-africa-cup-of-nations-morocco-2025/)
+- **African football chief 'confident' AFCON will go ahead in Morocco despite anti-government protests**: [Link](https://www.france24.com/en/sport/20251006-african-football-afcon-2025-morocco)
+- **African soccer leader says Morocco street protests do not affect Cup of Nations plans**: [Link](https://www.ncnewsonline.com/sports/national_sports/african-soccer-leader-says-morocco-street-protests-do-not-affect-cup-of-nations-plans/article_81bf2a81-7914-59f2-bcc1-ffe063887863.html)
+
+
 ### sports (N/A, Sun, 12 Oct 2025 15:00:00 -0700)
 
 - **Penn State fires Franklin amid midseason free fall**: [Link](https://www.espn.com/college-football/story/_/id/46573030/penn-state-fires-head-coach-james-franklin-sources-say)
