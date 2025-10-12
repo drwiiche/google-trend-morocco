@@ -1,3 +1,10 @@
+### fifa (N/A, Sun, 12 Oct 2025 15:50:00 -0700)
+
+- **Morocco Inches Closer to FIFA Top 10 After Victory Over Bahrain**: [Link](https://barlamantoday.com/2025/10/12/morocco-inches-closer-to-fifa-top-10-after-victory-over-bahrain/)
+- **Before the 2026 World Cup draw, Morocco nears the top nine in FIFA rankings**: [Link](https://en.yabiladi.com/articles/details/178508/before-2026-world-draw-morocco.html)
+- **Before the 2026 World Cup draw, Morocco nears the top nine in FIFA rankings**: [Link](https://www.msn.com/en-xl/news/other/before-the-2026-world-cup-draw-morocco-nears-the-top-nine-in-fifa-rankings/ar-AA1OdyR6)
+
+
 ### gouvernement lecornu premier ministre (N/A, Sun, 12 Oct 2025 15:30:00 -0700)
 
 - **Sébastien Lecornu souhaite un "gouvernement libre", "pas emprisonné par les partis"**: [Link](https://www.bfmtv.com/politique/gouvernement/sebastien-lecornu-souhaite-un-gouvernement-libre-pas-emprisonne-par-les-partis_AV-202510110198.html)
