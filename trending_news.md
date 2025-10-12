@@ -1,3 +1,17 @@
+### مصر ضد غينيا بيساو (N/A, Sun, 12 Oct 2025 11:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة مصر وغينيا بيساو في التصفيات الإفريقية المؤهلة إلى كأس العالم 2026؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A8%D9%8A%D8%B3%D8%A7%D9%88-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026/bltc85a2f3e739d6b93)
+- **منتخب مصر يسعى لفوز يعزز تصنيفه الدولي**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%81%D9%88%D8%B2-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%AA%D8%B5%D9%86%D9%8A%D9%81%D9%87-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A)
+- **صلاح يغيب عن مواجهة غينيا بيساو في ختام تصفيات مونديال 2026**: [Link](https://sport.al3omk.com/91406.html)
+
+
+### maroc usa (N/A, Sun, 12 Oct 2025 11:30:00 -0700)
+
+- **Preview: USA Faces Morocco in U-20 World Cup Quarterfinal**: [Link](https://www.ussoccer.com/stories/2025/10/usa-faces-morocco-u-20-fifa-world-cup-quarterfinal)
+- **United States 3-0 Italy (Oct 9, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/759738)
+- **U.S. national team looks to ride consistency to FIFA Under-20 World Cup semifinal berth**: [Link](https://www.nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/)
+
+
 ### morocco vs usa u20 (N/A, Sun, 12 Oct 2025 11:20:00 -0700)
 
 - **U20 World Cup: Morocco Ready for Quarterfinal Game Against US**: [Link](https://www.moroccoworldnews.com/2025/10/263179/u20-world-cup-morocco-ready-for-quarterfinal-game-against-us/)
