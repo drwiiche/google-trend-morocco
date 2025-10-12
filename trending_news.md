@@ -1,3 +1,10 @@
+### match maroc aujourd'hui (N/A, Sun, 12 Oct 2025 12:10:00 -0700)
+
+- **Match amical U17: Sénégal-Maroc 0-0**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%A7-2/)
+- **Préparatifs Mondial U17 : les Lionceaux se testent face au Sénégal à Dakar**: [Link](https://lematin.ma/sports/preparatifs-mondial-u17-les-lionceaux-se-testent-face-au-senegal-a-dakar/306197)
+- **Lions de l’Atlas A, A’, U20 et U17: un jeudi plein pour le football marocain**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-a-a-u20-et-u17-un-jeudi-plein-pour-le-football-marocain_A52BR2PBOVALXAM7MIRK5A5EJE/)
+
+
 ### egypt vs guinea-bissau (N/A, Sun, 12 Oct 2025 11:50:00 -0700)
 
 - **Egypt vs Guinea-Bissau: nothing to lose for the Pharaohs**: [Link](https://foot-africa.com/en/news/egypt-vs-guinea-bissau-nothing-to-lose-for-the-pharaohs-915528/)
