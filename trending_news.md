@@ -1,3 +1,10 @@
+### france vs norway u20 (N/A, Sun, 12 Oct 2025 16:40:00 -0700)
+
+- **How to Watch Norway vs. France: Stream FIFA U-20 World Cup Quarterfinals Live, TV Channel**: [Link](https://www.fubo.tv/news/france/how-to-watch-norway-vs-france-stream-fifa-u-20-world-cup-quarterfinals-live-free-tv-channel/)
+- **How to watch Norway U20 vs France U20 in the USA: Live Stream and TV for 2025 U20 World Cup**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-norway-u20-vs-france-u20-in-the-usa-live-stream-and-tv-for-2025-u20-world-cup/)
+- **Norway-France U20, on which channel to watch the match?**: [Link](https://frenchfootballweekly.com/2025/10/12/norway-france-u20-on-which-channel-to-watch-the-match/)
+
+
 ### fifa (N/A, Sun, 12 Oct 2025 15:50:00 -0700)
 
 - **Morocco Inches Closer to FIFA Top 10 After Victory Over Bahrain**: [Link](https://barlamantoday.com/2025/10/12/morocco-inches-closer-to-fifa-top-10-after-victory-over-bahrain/)
