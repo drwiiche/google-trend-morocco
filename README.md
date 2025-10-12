@@ -1,3 +1,10 @@
+### ايناس الدغيدي (N/A, Sun, 12 Oct 2025 01:30:00 -0700)
+
+- **قصة "قراءة فنجان وتنبؤ".. إيناس الدغيدي تكشف كواليس زواجها بعد الـ70**: [Link](https://www.alarabiya.net/culture-and-art/2025/10/12/%D9%82%D8%B5%D8%A9-%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%81%D9%86%D8%AC%D8%A7%D9%86-%D9%88%D8%AA%D9%86%D8%A8%D8%A4-%D8%A7%D9%8A%D9%86%D8%A7%D8%B3-%D8%A7%D9%84%D8%AF%D8%BA%D9%8A%D8%AF%D9%8A-%D8%AA%D9%83%D8%B4%D9%81-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%B2%D9%88%D8%A7%D8%AC%D9%87%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%8070)
+- **لحظة عقد قران إيناس الدغيدي.. وزغرودة من بوسي شلبي وهالة صدقي (فيديو)**: [Link](https://www.youm7.com/story/2025/10/10/%D9%84%D8%AD%D8%B8%D8%A9-%D8%B9%D9%82%D8%AF-%D9%82%D8%B1%D8%A7%D9%86-%D8%A5%D9%8A%D9%86%D8%A7%D8%B3-%D8%A7%D9%84%D8%AF%D8%BA%D9%8A%D8%AF%D9%8A-%D9%88%D8%B2%D8%BA%D8%B1%D9%88%D8%AF%D8%A9-%D9%85%D9%86-%D8%A8%D9%88%D8%B3%D9%8A-%D8%B4%D9%84%D8%A8%D9%8A-%D9%88%D9%87%D8%A7%D9%84%D8%A9/7152078)
+- **زواج المخرجة إيناس الدغيدي بعد السبعين يخطف الاهتمام بمصر**: [Link](https://aawsat.com/%D9%8A%D9%88%D9%85%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%B1%D9%82/5196168-%D8%B2%D9%88%D8%A7%D8%AC-%D8%A7%D9%84%D9%85%D8%AE%D8%B1%D8%AC%D8%A9-%D8%A5%D9%8A%D9%86%D8%A7%D8%B3-%D8%A7%D9%84%D8%AF%D8%BA%D9%8A%D8%AF%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%B3%D8%A8%D8%B9%D9%8A%D9%86-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A7%D9%87%D8%AA%D9%85%D8%A7%D9%85-%D8%A8%D9%85%D8%B5%D8%B1)
+
+
 ### accord israël hamas gaza (N/A, Sun, 12 Oct 2025 01:30:00 -0700)
 
 - **EN DIRECT, Gaza | La libération des otages commencera lundi matin, selon le Hamas ; un « sommet de la paix » se tiendra le même jour en Egypte**: [Link](https://www.lemonde.fr/international/live/2025/10/12/en-direct-gaza-la-liberation-des-otages-commencera-lundi-matin-selon-le-hamas-un-sommet-de-la-paix-se-tiendra-le-meme-jour-en-egypte_6645703_3210.html)
