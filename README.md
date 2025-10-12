@@ -1,3 +1,10 @@
+### patrice de colmont (N/A, Sun, 12 Oct 2025 05:40:00 -0700)
+
+- **Patrice de Colmont, l'homme de Saint-Tropez, est mort**: [Link](https://www.parismatch.com/Culture/patrice-de-colmont-lhomme-de-saint-tropez-est-mort-258446)
+- **L'un des célibataires les plus convoités d'Hollywood de passage à Paris ! Avant-première au Grand Rex et bain de foule**: [Link](https://fr.news.yahoo.com/lun-c%C3%A9libataires-convoit%C3%A9s-dhollywood-passage-193000862.html)
+- **Disparition de Patrice de Colmont : le propriétaire du restaurant de plage « le Club 55 », à Ramatuelle, s’en est allé**: [Link](https://www.nicematin.com/societe/disparition-de-patrice-de-colmont-le-proprietaire-du-restaurant-de-plage-le-club-55-a-ramatuelle-s-en-est-alle-10652032)
+
+
 ### مصطفى سوليت (N/A, Sun, 12 Oct 2025 03:50:00 -0700)
 
 - **ضحية الإحراق بالحسيمة يفارق الحياة**: [Link](https://www.hespress.com/%D8%B6%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%AD%D8%B1%D8%A7%D9%82-%D8%A8%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%85%D8%A9-%D9%8A%D9%81%D8%A7%D8%B1%D9%82-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A9-1638699.html)
