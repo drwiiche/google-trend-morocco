@@ -1,3 +1,10 @@
+### croatie – gibraltar (N/A, Sun, 12 Oct 2025 11:40:00 -0700)
+
+- **La Croatie de Modric face à Gibraltar**: [Link](https://www.ilmessaggero.it/fr/la_croatie_de_modric_face_a_gibraltar-9122623.html)
+- **Danemark-Grèce en direct**: [Link](https://www.football.fr/coupe-du-monde-2026/danemark-grece-en-direct-778389.html)
+- **Pronostic Croatie-Gibraltar (qualification Coupe du Monde 2026)**: [Link](https://www.score.fr/football/articles/pronostic-croatie-gibraltar-qualification-coupe-du-monde-2026/)
+
+
 ### مصر ضد غينيا بيساو (N/A, Sun, 12 Oct 2025 11:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة مصر وغينيا بيساو في التصفيات الإفريقية المؤهلة إلى كأس العالم 2026؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A8%D9%8A%D8%B3%D8%A7%D9%88-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026/bltc85a2f3e739d6b93)
