@@ -1,3 +1,17 @@
+### argentine vs mexique u20 (N/A, Sat, 11 Oct 2025 17:40:00 -0700)
+
+- **Mexico vs Argentina: How to Watch, Odds, U-20 Preview**: [Link](https://www.foxsports.com/stories/soccer/mexico-vs-argentina-how-watch-odds-u-20-world-cup-preview)
+- **Mexico to face Argentina in U-20 World Cup quarterfinal**: [Link](https://mexiconewsdaily.com/sports/mexico-face-argentina-u-20-quarterfinal/)
+- **Mexico vs Argentina LIVE Score Updates in U-20 World Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/12/1237275-mexico-vs-argentina-live-updates-in-u-20-world-cup.html)
+
+
+### équipe d'espagne des moins de 20 ans de football – colombie u-20 (N/A, Sat, 11 Oct 2025 12:20:00 -0700)
+
+- **Résultat Espagne U20 - Colombie U20 (2-3) Quarts de finale de Coupe du Monde U-20 2025 Chile 11/10**: [Link](https://www.footmercato.net/live/1371655798503168091-espagne-u-20-vs-colombie-u-20)
+- **Espagne U-20 - Colombie U-20 en direct - Coupe du monde -20 ans : Football Scores & Résultats - 11/10/2025**: [Link](https://www.eurosport.fr/football/coupe-du-monde-20-ans/2025/live-espagne-u-20-colombie-u-20_mtc1598204/live.shtml)
+- **Mondial U20 : la Colombie élimine l’Espagne grâce à un triplé de Neiser Villarreal**: [Link](https://fr.hespress.com/445019-mondial-u20-la-colombie-elimine-lespagne-grace-a-un-triple-de-neiser-villarreal.html)
+
+
 ### المكسيك تحت 20 ضد الأرجنتين تحت 20 (N/A, Sat, 11 Oct 2025 16:10:00 -0700)
 
 - **جيد يدير مباراة الأرجنتين والمكسيك**: [Link](https://www.hespress.com/%D8%AC%D9%8A%D8%AF-%D9%8A%D8%AF%D9%8A%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83-1638316.html)
