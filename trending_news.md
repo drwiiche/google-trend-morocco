@@ -1,3 +1,38 @@
+### laurent nunez (N/A, Sun, 12 Oct 2025 14:00:00 -0700)
+
+- **EN DIRECT, gouvernement Lecornu : LR exclut ses membres entrés au gouvernement Lecornu II, dont Rachida Dati, Annie Genevard ou Philippe Tabarot**: [Link](https://www.lemonde.fr/politique/live/2025/10/12/en-direct-nouveau-gouvernement-sebastien-lecornu-est-a-l-elysee-pour-s-entretenir-avec-emmanuel-macron_6645554_823448.html)
+- **Olivier Faure, premier secrétaire du PS : « La dissolution est l’hypothèse la plus vraisemblable »**: [Link](https://www.latribune.fr/article/la-tribune-dimanche/politique/12269373636046/olivier-faure-premier-secretaire-du-ps-la-dissolution-est-l-hypothese-la-plus-vraisemblable)
+- **EN DIRECT Lecornu Premier ministre : 34 ministres et quelques surprises... Les ministres LR exclus de leur parti...**: [Link](https://www.20minutes.fr/politique/4178730-20251012-direct-lecornu-premier-ministre-locataire-matignon-recherche-gouvernement-lr)
+
+
+### bet365 (N/A, Sun, 12 Oct 2025 13:50:00 -0700)
+
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets win or lose for Tigers vs. Mariners**: [Link](https://nypost.com/2025/10/10/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-win-or-lose-for-tigers-vs-mariners/)
+- **NFL Betting Promos: DraftKings, Bet365 Lead Week 6 Sportsbook Offers**: [Link](https://wtop.com/sports/2025/10/nfl-betting-promos-draftkings-bet365-lead-week-6-sportsbook-offers/)
+- **Bet365 Bonus Code WEEK365: Claim $200 Bonus For Late Games, Chiefs-Lions**: [Link](https://www.newsweek.com/sports/betting/bet365-bonus-code-week365-claim-200-bonus-for-late-games-chiefs-lions-10866487)
+
+
+### radio mars (N/A, Sun, 12 Oct 2025 13:50:00 -0700)
+
+- **"دونور" يحتضن ديربي الرجاء والوداد**: [Link](https://www.hespress.com/%D8%AF%D9%88%D9%86%D9%88%D8%B1-%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1638815.html)
+- **إغلاق ملعب محمد الخامس.. مطالب للعمدة بعقد اجتماع عاجل**: [Link](https://ar.le360.ma/sports/DZAMFBKHSRGK7LSXQRB4KD6NB4/)
+- **تحت ضغط الوداد والرجاء.. تأجيل إغلاق ملعب محمد الخامس بالدار البيضاء**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%AA%D8%AD%D8%AA-%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D9%85%D9%84%D8%B9%D8%A8-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1/10076)
+
+
+### morocco (N/A, Sun, 12 Oct 2025 13:50:00 -0700)
+
+- **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
+- **AfCON 2025 ticket sales go live on Monday**: [Link](https://apanews.net/afcon-2025-ticket-sales-go-live-on-monday/)
+- **African soccer leader says Morocco street protests do not affect Cup of Nations plans**: [Link](https://www.chronicle-tribune.com/sports/wire/african-soccer-leader-says-morocco-street-protests-do-not-affect-cup-of-nations-plans/article_cd5218f3-ebc2-5d73-9184-e1d9b69d502c.html)
+
+
+### match (N/A, Sun, 12 Oct 2025 13:30:00 -0700)
+
+- **Gauff reels off 4 games vs. Pegula to win Wuhan**: [Link](https://www.espn.com/tennis/story/_/id/46570888/coco-gauff-beats-jessica-pegula-win-wuhan-open)
+- **Gauff wins all-American clash with Pegula to claim third WTA 1000 title in Wuhan**: [Link](https://www.theguardian.com/sport/2025/oct/12/gauff-wins-all-american-clash-with-pegula-to-claim-third-wta-1000-title-in-wuhan)
+- **Gauff beats Pegula to win Wuhan Open title**: [Link](https://www.bbc.com/sport/tennis/articles/c2373x7yx4ko)
+
+
 ### yalla kora (N/A, Sun, 12 Oct 2025 13:30:00 -0700)
 
 - **"صمت العاجزين".. مجلس الزمالك يمارس هويته بالاختفاء عقب الإخفاقات‎**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%85%D8%AA-%D8%A7%D9%84%D8%B9%D8%A7%D8%AC%D8%B2%D9%8A%D9%86--%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%85%D8%A7%D8%B1%D8%B3-%D9%87%D9%88%D9%8A%D8%AA%D9%87-%D8%A8%D8%A7%D9%84%D8%A7%D8%AE%D8%AA%D9%81%D8%A7%D8%A1-%D8%B9%D9%82%D8%A8-%D8%A7%D9%84%D8%A7%D9%95%D8%AE%D9%81%D8%A7%D9%82%D8%A7%D8%AA%E2%80%8E/bltb7c6cb9f028f01fa)
