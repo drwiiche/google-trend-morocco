@@ -1,3 +1,10 @@
+### burkina faso – éthiopie (N/A, Sun, 12 Oct 2025 14:20:00 -0700)
+
+- **Elim. Coupe du monde 2026 : Un triplé de Landry Kaboré offre la victoire au Burkina contre l'Ethiopie**: [Link](https://www.africatopsports.com/2025/10/12/elim-coupe-du-monde-2026-un-triple-de-landry-kabore-offre-la-victoire-au-burkina-contre-lethiopie/)
+- **Burkina Faso vs Ethiopie: domination stérile des Etalons en première période**: [Link](https://foot-africa.com/actualites/burkina-faso-vs-ethiopie-domination-sterile-des-etalons-en-premiere-periode-916266/)
+- **Eliminatoires Coupe du monde 2026/ Sierra Leone-Burkina Faso ( 0-1): les Etalons font enfin plier les Leone Stars**: [Link](https://www.sidwaya.info/eliminatoires-coupe-du-monde-2026-sierra-leone-burkina-faso-0-1-les-etalons-font-enfin-plier-les-leone-stars/)
+
+
 ### chile (N/A, Sun, 12 Oct 2025 14:10:00 -0700)
 
 - **Pons y "Popín" Castro marcaron dobletes en la goleada y paso de Limache a la final de Copa Chile**: [Link](https://cooperativa.cl/noticias/deportes/futbol/copa-chile/pons-y-popin-castro-marcaron-dobletes-en-la-goleada-y-paso-de-limache/2025-10-12/172518.html)
