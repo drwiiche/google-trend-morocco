@@ -1,3 +1,10 @@
+### gouvernement lecornu premier ministre (N/A, Sun, 12 Oct 2025 15:30:00 -0700)
+
+- **Sébastien Lecornu souhaite un "gouvernement libre", "pas emprisonné par les partis"**: [Link](https://www.bfmtv.com/politique/gouvernement/sebastien-lecornu-souhaite-un-gouvernement-libre-pas-emprisonne-par-les-partis_AV-202510110198.html)
+- **BAROMÈTRE POLITIQUE. Sébastien Lecornu gagne 11 points de popularité**: [Link](https://www.latribune.fr/article/la-tribune-dimanche/politique/89158991295367/barometre-politique-sebastien-lecornu-gagne-11-points-de-popularite)
+- **EN DIRECT Lecornu Premier ministre : 34 ministres et quelques surprises... Les ministres LR exclus de leur parti...**: [Link](https://www.20minutes.fr/politique/4178730-20251012-direct-lecornu-premier-ministre-locataire-matignon-recherche-gouvernement-lr)
+
+
 ### كووورة (N/A, Sun, 12 Oct 2025 15:20:00 -0700)
 
 - **من يامال إلى مبابي.. عندما يتحوّل الواجب الوطني إلى كابوس للأندية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%A7%D9%95%D9%84%D9%89-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D8%AA%D8%AD%D9%88%D9%91%D9%84-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D9%83%D8%A7%D8%A8%D9%88%D8%B3-%D9%84%D9%84%D8%A7%D9%94%D9%86%D8%AF%D9%8A%D8%A9-%D9%87%D9%8A%D8%B1%D9%88-%D8%B3%D8%AA%D9%88%D8%B1%D9%8A-%D8%B5%D8%A8%D8%A7%D8%AD%D9%8A/blte5203b50e5951cd2)
