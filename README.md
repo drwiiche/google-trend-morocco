@@ -1,3 +1,17 @@
+### morocco vs usa u20 (N/A, Sun, 12 Oct 2025 11:20:00 -0700)
+
+- **U20 World Cup: Morocco Ready for Quarterfinal Game Against US**: [Link](https://www.moroccoworldnews.com/2025/10/263179/u20-world-cup-morocco-ready-for-quarterfinal-game-against-us/)
+- **U.S. national team looks to ride consistency to FIFA Under-20 World Cup semifinal berth**: [Link](https://www.nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/)
+- **U.S. U-20 National Team Chases History at the World Cup**: [Link](https://www.beinsports.com/en-us/soccer/articles/u-s-u-20-national-team-chases-history-at-the-world-cup-2025-10-12)
+
+
+### égypte – guinée-bissau (N/A, Sun, 12 Oct 2025 11:10:00 -0700)
+
+- **Pronostic Égypte - Guinée-Bissau, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/egypte-guinee-bissau-296379/)
+- **FC Nantes. Mostafa Mohamed et l'Égypte achèvent leur périple vers le Mondial ce dimanche**: [Link](https://tribunenantaise.fr/actus-fcnantes/fc-nantes-mostafa-mohamed-et-legypte-achevent-leur-periple-vers-le-mondial-ce-dimanche/)
+- **L’Egypte, déjà qualifiée, veut fêter sa place au Mondial face à la Guinée-Bissau au Caire - Sports - Sports**: [Link](https://french.ahram.org.eg/News/71444.aspx)
+
+
 ### المغرب ضد امريكا (N/A, Sun, 12 Oct 2025 10:50:00 -0700)
 
 - **إنجاز تاريخي يحفز شباب المغرب للإطاحة بأمريكا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%8A%D8%AD%D9%81%D8%B2-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%84%D8%A7%D9%95%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D8%A7/bltab740a43ba6cbecb)
