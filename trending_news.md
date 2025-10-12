@@ -1,3 +1,15 @@
+### chile (N/A, Sun, 12 Oct 2025 14:10:00 -0700)
+
+- **Pons y "Popín" Castro marcaron dobletes en la goleada y paso de Limache a la final de Copa Chile**: [Link](https://cooperativa.cl/noticias/deportes/futbol/copa-chile/pons-y-popin-castro-marcaron-dobletes-en-la-goleada-y-paso-de-limache/2025-10-12/172518.html)
+- **La Serena vs Limache - Pronóstico y Apuestas de la Copa Chile 2025**: [Link](https://www.prensafutbol.cl/la-serena-vs-limache-pronostico-y-apuestas-de-copa-chile-2025/)
+- **Huachipato vs Limache: cuándo, dónde y a qué hora se juega la final de Copa Chile 2025**: [Link](https://www.alairelibre.cl/futbol/copa-chile/huachipato-vs-limache-final-copa-chile-2025-horario-sede-entradas/)
+
+
+### estados unidos sub-20 - selección de fútbol sub-20 de marruecos (N/A, Sun, 12 Oct 2025 14:10:00 -0700)
+
+
+
+
 ### laurent nunez (N/A, Sun, 12 Oct 2025 14:00:00 -0700)
 
 - **EN DIRECT, gouvernement Lecornu : LR exclut ses membres entrés au gouvernement Lecornu II, dont Rachida Dati, Annie Genevard ou Philippe Tabarot**: [Link](https://www.lemonde.fr/politique/live/2025/10/12/en-direct-nouveau-gouvernement-sebastien-lecornu-est-a-l-elysee-pour-s-entretenir-avec-emmanuel-macron_6645554_823448.html)
