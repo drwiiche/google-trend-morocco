@@ -1,3 +1,10 @@
+### zambia vs niger (N/A, Sun, 12 Oct 2025 07:10:00 -0700)
+
+- **Nkandu urges fans to be at their best behavior during the Niger game**: [Link](https://zambianfootball.co.zm/nkandu-urges-fans-to-be-at-their-best-behavior-during-the-niger-game/)
+- **Zambia vs Niger: a match for pride**: [Link](https://foot-africa.com/en/news/zambia-vs-niger-a-match-for-pride-915450/)
+- **World Cup (Q): Zambia coach Grant stresses importance of beating Niger**: [Link](https://www.panafricafootball.com/post/world-cup-q-zambia-grant-niger/)
+
+
 ### زامبيا ضد النيجر (N/A, Sun, 12 Oct 2025 06:10:00 -0700)
 
 - **إرفعوا القبعة للزاكي.. النيجر قريب من السد**: [Link](https://www.almountakhab.com/node/16218358)
