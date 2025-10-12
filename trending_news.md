@@ -1,3 +1,50 @@
+### sports (N/A, Sun, 12 Oct 2025 15:00:00 -0700)
+
+- **Penn State fires Franklin amid midseason free fall**: [Link](https://www.espn.com/college-football/story/_/id/46573030/penn-state-fires-head-coach-james-franklin-sources-say)
+- **5 Reasons Matt Rhule Won't Leave for Penn State; Why Nebraska Will Be OK If He Does**: [Link](https://www.si.com/college/nebraska/football/5-reasons-matt-rhule-won-t-leave-for-penn-state-why-nebraska-will-be-ok-if-he-does-james-farnklin-cornhuskers-big-ten)
+- **Penn State Announces Change in Football Leadership**: [Link](https://gopsusports.com/news/2025/10/12/penn-state-announces-change-in-football-leadership)
+
+
+### match day (N/A, Sun, 12 Oct 2025 15:00:00 -0700)
+
+- **Women's Soccer at Loyola Chicago - Sunday, October 12 - Match Day**: [Link](https://richmondspiders.com/news/2025/10/12/match-day-womens-soccer-at-loyola-chicago)
+- **Rams, Spiders Play to Scoreless Draw - University of Rhode Island**: [Link](https://gorhody.com/news/2025/10/5/womens-soccer-rams-spiders-play-to-scoreless-draw.aspx)
+- **Rams escape with tie against Spiders**: [Link](https://www.thecollegianur.com/article/2025/10/rams-escape-with-tie-against-spiders)
+
+
+### cdm u20 (N/A, Sun, 12 Oct 2025 14:50:00 -0700)
+
+- **Coupe du Monde U20 : l’attaquant de l’AS Monaco, Lucas Michal, écrase tout avec la France**: [Link](https://www.footmercato.net/a7109613122202023289-coupe-du-monde-u20-lattaquant-de-las-monaco-lucas-michal-ecrase-tout-avec-la-france)
+- **La France de Djylian N'Guessan qualifiée pour les quarts !**: [Link](https://onefootball.com/fr/news/la-france-de-djylian-nguessan-qualifiee-pour-les-quarts-41786649)
+- **Football : Mmadi et les Bleuets en quarts de finale du Mondial U20**: [Link](https://www.laprovence.com/article/sports/18431341647241/football-mmadi-et-les-bleuets-en-quarts-de-finale-du-mondial-u20)
+
+
+### france u20 (N/A, Sun, 12 Oct 2025 14:50:00 -0700)
+
+- **Norvège vs France : Guide, Cotes et Aperçu U-20**: [Link](https://www.pointsud.ca/europe/france/norvege-vs-france-guide-cotes-et-apercu-u-20/)
+- **Le résumé de Paraguay - Norvège - Foot - Coupe du monde U20**: [Link](https://sports.orange.fr/videos/football/le-resume-de-paraguay-norvege-foot-coupe-du-monde-u20-CNT000002l7ivk.html)
+- **Norvège U20 - France U20 : Diffusion TV et en clair, streaming et compos probables**: [Link](https://www.goal.com/fr/news/watch-norway-u20-vs-france-u20-world-cup-game-live-stream-tv-channel-start-time/blt6c418b1ed925baee)
+
+
+### gessime yassine (N/A, Sun, 12 Oct 2025 14:50:00 -0700)
+
+- **L'OM négocie la signature d'un prodige marocain de Ligue 2**: [Link](https://www.foot01.com/marseille/lom-negocie-la-signature-dun-prodige-marocain-de-ligue-2)
+- **L’USL Dunkerque : les yeux rivés sur l’épopée internationale de Gessime Yassine**: [Link](https://www.nordlittoral.fr/263696/article/2025-10-09/l-usl-dunkerque-les-yeux-rives-sur-l-epopee-internationale-de-gessime-yassine)
+- **De Salon-de-Provence à la gloire mondiale : l’incroyable ascension de Yassine Gessime**: [Link](https://africafoot.com/de-salon-de-provence-a-la-gloire-mondiale-lincroyable-ascension-de-yassine-gessime/)
+
+
+### مبارة اليوم (N/A, Sun, 12 Oct 2025 14:50:00 -0700)
+
+
+
+
+### u20 world cup (N/A, Sun, 12 Oct 2025 14:40:00 -0700)
+
+- **How to Watch Norway vs. France: Stream FIFA U-20 World Cup Quarterfinals Live, TV Channel**: [Link](https://www.fubo.tv/news/france/how-to-watch-norway-vs-france-stream-fifa-u-20-world-cup-quarterfinals-live-free-tv-channel/)
+- **Norway vs France: How to Watch, Odds, U-20 Preview**: [Link](https://www.foxsports.com/stories/soccer/norway-vs-france-how-watch-odds-u-20-world-cup-preview)
+- **USA vs Morocco time, where to watch U-20 World Cup soccer**: [Link](https://www.usatoday.com/story/sports/soccersweep/2025/10/12/usa-morocco-time-how-to-watch-u20-world-cup/86628083007/)
+
+
 ### rancagua (N/A, Sun, 12 Oct 2025 14:40:00 -0700)
 
 - **Antiguo mall de Rancagua se reinaugura como outlet**: [Link](https://www.latercera.com/pulso/noticia/antiguo-mall-de-rancagua-se-reinaugura-como-outlet/)
