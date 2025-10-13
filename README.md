@@ -1,3 +1,17 @@
+### al jazeera (N/A, Mon, 13 Oct 2025 01:10:00 -0700)
+
+- **Live updates: Release of Israeli hostages from Gaza has begun**: [Link](https://www.cnn.com/world/live-news/israel-hamas-gaza-hostages-ceasefire-10-13-25)
+- **All hostages reportedly in Red Cross hands**: [Link](https://www.timesofisrael.com/liveblog_entry/all-hostages-reportedly-in-red-cross-hands/)
+- **Hamas deploys fighters as hostages released, in show of strength**: [Link](https://www.reuters.com/world/middle-east/hamas-deploys-fighters-hostages-released-show-strength-2025-10-13/)
+
+
+### cafonline (N/A, Mon, 13 Oct 2025 00:10:00 -0700)
+
+- **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
+- **Could AFCON be CANCELLED over security fears?**: [Link](https://www.inkl.com/news/could-afcon-be-cancelled-over-security-fears)
+- **African soccer leader says Morocco street protests do not affect Cup of Nations plans**: [Link](https://www.chronicle-tribune.com/sports/wire/african-soccer-leader-says-morocco-street-protests-do-not-affect-cup-of-nations-plans/article_cd5218f3-ebc2-5d73-9184-e1d9b69d502c.html)
+
+
 ### u20 world cup 2025 (N/A, Sun, 12 Oct 2025 15:10:00 -0700)
 
 - **2025 FIFA U-20 World Cup Bracket, Schedule**: [Link](https://www.foxsports.com/stories/soccer/2025-fifa-u-20-world-cup-bracket-schedule)
