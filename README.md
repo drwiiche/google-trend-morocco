@@ -1,3 +1,10 @@
+### espace schengen (N/A, Mon, 13 Oct 2025 09:20:00 -0700)
+
+- **Entrer dans l’espace Schengen ne sera bientôt plus aussi facile : un simple passeport ne suffira plus**: [Link](https://www.rtl.be/actu/monde/europe/entrer-dans-lespace-schengen-ne-sera-bientot-plus-aussi-facile-un-simple/2025-10-12/article/766683)
+- **L’Union européenne déploie un nouveau système électronique de contrôle aux frontières**: [Link](https://fr.euronews.com/my-europe/2025/10/12/lunion-europeenne-deploie-un-nouveau-systeme-electronique-de-controle-aux-frontieres)
+- **Les contrôles biométriques aux frontières entrent en vigueur, ce dimanche**: [Link](https://www.lepoint.fr/voyages/les-controles-biometriques-aux-frontieres-entrent-en-vigueur-ce-dimanche-11-10-2025-2600748_44.php)
+
+
 ### andry rajoelina (N/A, Mon, 13 Oct 2025 09:10:00 -0700)
 
 - **Crise à Madagascar: le président Andry Rajoelina a été exfiltré par un avion militaire français [Info RFI]**: [Link](https://www.rfi.fr/fr/afrique/20251013-crise-%C3%A0-madagascar-le-pr%C3%A9sident-andry-rajoelina-a-%C3%A9t%C3%A9-exfiltr%C3%A9-par-un-avion-militaire-fran%C3%A7ais-info-rfi)
