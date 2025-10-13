@@ -1,3 +1,10 @@
+### fifa u20 world cup (N/A, Sun, 12 Oct 2025 15:10:00 -0700)
+
+- **2025 FIFA U-20 World Cup Bracket, Schedule**: [Link](https://www.foxsports.com/stories/soccer/2025-fifa-u-20-world-cup-bracket-schedule)
+- **U20 World Cup: Colombia & Argentina advance as Morocco eye semis**: [Link](https://africanfootball.com/news/831508/U20-World-Cup-Colombia-Argentina-advance-as-Morocco-eye-semis)
+- **107 Goals Scored as FIFA Unveil the Numbers at FIFA U-20 World Cup Group Stage**: [Link](https://www.sports247.ng/107-goals-scored-as-fifa-unveil-the-numbers-at-fifa-u-20-world-cup-group-stage/)
+
+
 ### u20 (N/A, Sun, 12 Oct 2025 15:00:00 -0700)
 
 - **Preview: USA Faces Morocco in U-20 World Cup Quarterfinal**: [Link](https://www.ussoccer.com/stories/2025/10/usa-faces-morocco-u-20-fifa-world-cup-quarterfinal)
