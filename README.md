@@ -1,3 +1,10 @@
+### u20 (N/A, Sun, 12 Oct 2025 15:00:00 -0700)
+
+- **Preview: USA Faces Morocco in U-20 World Cup Quarterfinal**: [Link](https://www.ussoccer.com/stories/2025/10/usa-faces-morocco-u-20-fifa-world-cup-quarterfinal)
+- **USA vs. Morocco, 2025 U-20 World Cup Quarterfinals: Time, TV schedule, streaming and lineups**: [Link](https://www.starsandstripesfc.com/usmnt/40789/usa-vs-morocco-2025-u-20-world-cup-quarterfinals-time-tv-schedule-streaming-and-lineups)
+- **U20 World Cup: Morocco Ready for Quarterfinal Game Against US**: [Link](https://www.moroccoworldnews.com/2025/10/263179/u20-world-cup-morocco-ready-for-quarterfinal-game-against-us/)
+
+
 ### france vs norway u20 (N/A, Sun, 12 Oct 2025 16:40:00 -0700)
 
 - **How to Watch Norway vs. France: Stream FIFA U-20 World Cup Quarterfinals Live, TV Channel**: [Link](https://www.fubo.tv/news/france/how-to-watch-norway-vs-france-stream-fifa-u-20-world-cup-quarterfinals-live-free-tv-channel/)
