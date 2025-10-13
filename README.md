@@ -1,3 +1,10 @@
+### cameroun – angola (N/A, Mon, 13 Oct 2025 08:40:00 -0700)
+
+- **Éliminatoires Coupe du Monde 2026 : Les compositions probables du match Cameroun – Angola**: [Link](https://foot-africa.com/actualites/liminatoires-coupe-du-monde-2026-les-compositions-probables-du-match-cameroun-angola-914436/)
+- **Pronostic Cameroun – Angola : faut-il miser sur une qualification des Lions Indomptables ?**: [Link](https://www.afrik-foot.com/pronostic-cameroun-angola)
+- **Elim. Coupe du monde 2026 : Avec Mabululu, la compo de l’Angola contre le Cameroun**: [Link](https://www.africatopsports.com/2025/10/13/elim-coupe-du-monde-2026-avec-mabululu-la-compo-de-langola-contre-le-cameroun/)
+
+
 ### مصطفى البراهمة (N/A, Mon, 13 Oct 2025 07:40:00 -0700)
 
 - **اليساري مصطفى البراهمة في ذمة الله**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%8A%D8%B3%D8%A7%D8%B1%D9%8A-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D9%87%D9%85%D8%A9-%D9%81%D9%8A-%D8%B0%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D9%87-1639324.html)
