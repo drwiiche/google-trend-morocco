@@ -1,3 +1,8 @@
+### édouard geffray (N/A, Mon, 13 Oct 2025 05:40:00 -0700)
+
+
+
+
 ### ministres nouveau gouvernement lecornu (N/A, Mon, 13 Oct 2025 05:00:00 -0700)
 
 - **EN DIRECT, gouvernement Lecornu : RN et LFI ont déposé leur motion de censure respective, Macron appelle les partis à « œuvrer à la stabilité »**: [Link](https://www.lemonde.fr/politique/live/2025/10/13/en-direct-gouvernement-lecornu-rn-et-lfi-ont-depose-leur-motion-de-censure-respective-macron-appelle-les-partis-a-uvrer-a-la-stabilite_6645554_823448.html)
