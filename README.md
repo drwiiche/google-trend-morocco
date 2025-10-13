@@ -1,3 +1,17 @@
+### nicolas sarkozy (N/A, Mon, 13 Oct 2025 11:20:00 -0700)
+
+- **INFO RTL - Nicolas Sarkozy sera incarcéré le 21 octobre à la prison de la Santé**: [Link](https://www.rtl.fr/actu/justice-faits-divers/incarceration-de-nicolas-sarkozy-l-ancien-president-est-arrive-au-parquet-national-financier-7900552180)
+- **Condamnation de Nicolas Sarkozy: l'ancien président sera incarcéré le 21 octobre à la prison de la Santé**: [Link](https://www.bfmtv.com/police-justice/condamnation-de-nicolas-sarkozy-l-ancien-president-sera-incarcere-le-21-octobre-a-la-prison-de-la-sante_AN-202510130687.html)
+- **EN DIRECT - Affaire libyenne : Nicolas Sarkozy connaît les modalités de son incarcération**: [Link](https://www.lefigaro.fr/actualite-france/en-direct-affaire-libyenne-nicolas-sarkozy-fixe-ce-lundi-sur-la-date-de-son-incarceration-20251013)
+
+
+### irlande du nord – allemagne (N/A, Mon, 13 Oct 2025 11:10:00 -0700)
+
+- **Irlande du Nord - Allemagne : à quelle heure et sur quelle chaîne suivre le match ?**: [Link](https://www.lequipe.fr/Football/Actualites/Irlande-du-nord-allemagne-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match/1600694)
+- **PRONOS PARIS RMC Le pari sûr du 13 octobre – Qualifs CDM 2026**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-13-octobre-qualifs-cdm-2026_AN-202510120030.html)
+- **Irlande du Nord - Allemagne : heure, chaîne TV... Comment suivre le match à la télévision ou en streaming ?**: [Link](https://www.onzemondial.com/coupe-du-monde/irlande-du-nord-allemagne-heure-chaine-tv-comment-suivre-le-match-a-la-television-ou-en-streaming-968264)
+
+
 ### islande – france (N/A, Mon, 13 Oct 2025 11:00:00 -0700)
 
 - **Première titularisation chez les Bleus pour Mateta en remplacement de Mbappé ?**: [Link](https://www.lequipe.fr/Football/Actualites/Premiere-titularisation-chez-les-bleus-pour-mateta-en-islande/1601099)
