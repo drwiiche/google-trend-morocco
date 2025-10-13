@@ -1,3 +1,10 @@
+### baghdad bounedjah (N/A, Mon, 13 Oct 2025 04:40:00 -0700)
+
+- **Algérie : Youcef Belaïli et Baghdad Bounedjah quittent le rassemblement**: [Link](https://www.footmercato.net/a7387022073916860675-algerie-youcef-belaili-et-baghdad-bounedjah-quittent-le-rassemblement)
+- **Sports - Une leçon d’organisation et de civisme**: [Link](https://www.lexpressiondz.com/sports/une-lecon-d-organisation-et-de-civisme-398740)
+- **« Je ne suis pas Cristiano Ronaldo » : Riyad Mahrez confirme la date de la fin de sa légendaire carrière avec l’Algérie**: [Link](https://foot-africa.com/actualites/je-ne-suis-pas-cristiano-ronaldo-riyad-mahrez-confirme-la-date-de-la-fin-de-sa-legendaire-carriere-avec-lalgerie-914559/)
+
+
 ### tout pour la lumière (N/A, Mon, 13 Oct 2025 03:10:00 -0700)
 
 - **Tout pour la lumière (TF1) : y aura-t-il une saison 2 ?**: [Link](https://www.telestar.fr/serie_tv/tout-pour-la-lumiere-tf1-y-aura-t-il-une-saison-2-1741446)
