@@ -1,3 +1,10 @@
+### ticket can 2025 (N/A, Sun, 12 Oct 2025 23:50:00 -0700)
+
+- **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
+- **Could AFCON be CANCELLED over security fears?**: [Link](https://www.inkl.com/news/could-afcon-be-cancelled-over-security-fears)
+- **African soccer leader says Morocco street protests do not affect Cup of Nations plans**: [Link](https://www.chronicle-tribune.com/sports/wire/african-soccer-leader-says-morocco-street-protests-do-not-affect-cup-of-nations-plans/article_cd5218f3-ebc2-5d73-9184-e1d9b69d502c.html)
+
+
 ### ticket cafonline (N/A, Mon, 13 Oct 2025 00:40:00 -0700)
 
 - **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
