@@ -1,3 +1,10 @@
+### u20 world cup 2025 (N/A, Sun, 12 Oct 2025 15:10:00 -0700)
+
+- **2025 FIFA U-20 World Cup Bracket, Schedule**: [Link](https://www.foxsports.com/stories/soccer/2025-fifa-u-20-world-cup-bracket-schedule)
+- **2025 U20 World Cup Semifinals: Argentina, Colombia, Morocco, and France Clash**: [Link](https://mezha.net/eng/bukvy/2025-u20-world-cup-semifinals-argentina-colombia-morocco-and-france-clash/)
+- **107 Goals Scored as FIFA Unveil the Numbers at FIFA U-20 World Cup Group Stage**: [Link](https://www.sports247.ng/107-goals-scored-as-fifa-unveil-the-numbers-at-fifa-u-20-world-cup-group-stage/)
+
+
 ### caf ticket (N/A, Sun, 12 Oct 2025 23:50:00 -0700)
 
 - **La billetterie de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 ouvre le lundi 13 octobre, l’application YALLA désormais disponible**: [Link](https://www.cafonline.com/fr/can2025/infos/la-billetterie-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-ouvre-le-lundi-13-octobre-l-application-yalla-desormais-disponible/)
