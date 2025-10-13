@@ -1,3 +1,17 @@
+### caf ticket (N/A, Sun, 12 Oct 2025 23:50:00 -0700)
+
+- **La billetterie de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 ouvre le lundi 13 octobre, l’application YALLA désormais disponible**: [Link](https://www.cafonline.com/fr/can2025/infos/la-billetterie-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-ouvre-le-lundi-13-octobre-l-application-yalla-desormais-disponible/)
+- **Lancement officiel de l'application Yalla pour la CAN 2025**: [Link](https://medias24.com/2025/10/11/lancement-officiel-de-lapplication-yalla-pour-la-can-2025/)
+- **CAN Maroc-2025: lancement lundi de la vente des billets et ses modalités de retrait (CAF)**: [Link](https://frmf.ma/fr/%D9%83%D8%A3%D8%B3-%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%A7%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7/)
+
+
+### caf (N/A, Sun, 12 Oct 2025 23:50:00 -0700)
+
+- **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
+- **AfCON 2025 ticket sales go live on Monday**: [Link](https://apanews.net/afcon-2025-ticket-sales-go-live-on-monday/)
+- **African soccer leader says Morocco street protests do not affect Cup of Nations plans**: [Link](https://www.ncnewsonline.com/sports/national_sports/african-soccer-leader-says-morocco-street-protests-do-not-affect-cup-of-nations-plans/article_81bf2a81-7914-59f2-bcc1-ffe063887863.html)
+
+
 ### fifa u20 world cup (N/A, Sun, 12 Oct 2025 15:10:00 -0700)
 
 - **2025 FIFA U-20 World Cup Bracket, Schedule**: [Link](https://www.foxsports.com/stories/soccer/2025-fifa-u-20-world-cup-bracket-schedule)
