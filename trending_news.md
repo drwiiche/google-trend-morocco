@@ -1,3 +1,10 @@
+### philippe aghion (N/A, Mon, 13 Oct 2025 13:50:00 -0700)
+
+- **Philippe Aghion, prix Nobel d’économie 2025 : « Le facteur-clé de la puissance économique, c’est le leadership technologique »**: [Link](https://www.lemonde.fr/international/article/2025/10/13/philippe-aghion-prix-nobel-d-economie-2025-le-facteur-cle-de-la-puissance-economique-c-est-le-leadership-technologique_6645670_3211.html)
+- **Qui est la mère du prix Nobel de l’économie, fondatrice d’une marque de mode culte?**: [Link](https://www.lefigaro.fr/industrie-mode/qui-est-la-mere-du-prix-nobel-de-l-economie-fondatrice-d-une-marque-de-mode-culte-20251013)
+- **Le Nobel d’économie attribué à un trio de chercheurs pour ses travaux sur l'impact des nouvelles technologies sur la croissance**: [Link](https://mobile.telquel.ma/instant-t/2025/10/13/le-nobel-deconomie-attribue-a-un-trio-de-chercheurs-pour-ses-travaux-sur-limpact-des-nouvelles-technologies-sur-la-croissance_1955555/)
+
+
 ### safran (N/A, Mon, 13 Oct 2025 12:20:00 -0700)
 
 - **Safran to open new Airbus engine assembly line in Morocco**: [Link](https://uk.finance.yahoo.com/news/safran-open-airbus-engine-assembly-193751674.html)
