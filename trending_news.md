@@ -1,3 +1,10 @@
+### billetterie can 2025 (N/A, Mon, 13 Oct 2025 00:10:00 -0700)
+
+- **La billetterie de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 ouvre le lundi 13 octobre, l’application YALLA désormais disponible**: [Link](https://www.cafonline.com/fr/can2025/infos/la-billetterie-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-ouvre-le-lundi-13-octobre-l-application-yalla-desormais-disponible/)
+- **CAN 2025 : la billetterie ouvre... Où et comment acheter ses places ?**: [Link](https://www.france24.com/fr/sports/20251012-can-2025-billetterie-acheter-billets)
+- **CAN Maroc-2025: lancement lundi de la vente des billets et ses modalités de retrait (CAF)**: [Link](https://frmf.ma/fr/%D9%83%D8%A3%D8%B3-%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%A7%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7/)
+
+
 ### ticket can 2025 (N/A, Sun, 12 Oct 2025 23:50:00 -0700)
 
 - **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
