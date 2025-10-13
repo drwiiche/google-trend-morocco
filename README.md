@@ -1,3 +1,24 @@
+### pays de galles – belgique (N/A, Mon, 13 Oct 2025 11:50:00 -0700)
+
+- **"Rudi Garcia : reprenez-vous !" : déplacement sous pression**: [Link](https://www.eurosport.fr/football/qualif-coupe-du-monde/2026/belgique-rudi-garcia-reprenez-vous-deplacement-sous-pression_sto23230565/story.shtml)
+- **Pays de Galles-Belgique : les Diables déjà menés au score de manière méritée (Direct, 0-1)**: [Link](https://www.dhnet.be/sports/football/diablesrouges/2025/10/13/de-ketelaere-le-sauveur-lukebakio-la-surprise-et-bellamy-fait-une-revelation-a-son-ami-boeckx-les-compos-probables-de-pays-de-galles-belgique-SASUJT7YGZHEVGYXDZ6OWEEAJM/)
+- **Un seul changement dans la compo, Rudi Garcia brouille les cartes : l'avis de Philippe Albert avant le match des Diables**: [Link](https://www.rtbf.be/article/un-seul-changement-dans-la-compo-rudi-garcia-brouille-les-cartes-l-avis-de-philippe-albert-avant-le-match-des-diables-11615158)
+
+
+### iceland vs france (N/A, Mon, 13 Oct 2025 11:50:00 -0700)
+
+- **Iceland vs. France live stream, where to watch World Cup qualifying online, lineups: Why Kylian Mbappe is out**: [Link](https://www.cbssports.com/soccer/news/iceland-vs-france-live-stream-where-to-watch-world-cup-qualifying-online-lineups-why-kylian-mbappe-is-out/)
+- **The Blues' eleven: Deschamps dares two surprises against Iceland**: [Link](https://frenchfootballweekly.com/2025/10/13/the-blues-eleven-deschamps-dares-two-surprises-against-iceland/)
+- **Behind the scenes: France's trip to windy and rainy Iceland**: [Link](https://sports.yahoo.com/video/behind-scenes-frances-trip-windy-192634234.html)
+
+
+### آيسلندا ضد فرنسا (N/A, Mon, 13 Oct 2025 11:50:00 -0700)
+
+- **7 تعديلات.. ديشامب يغير جلد فرنسا بعد استبعاد مبابي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/7-%D8%AA%D8%B9%D8%AF%D9%8A%D9%84%D8%A7%D8%AA--%D8%AF%D9%8A%D8%B4%D8%A7%D9%85%D8%A8-%D9%8A%D8%BA%D9%8A%D8%B1-%D8%AC%D9%84%D8%AF-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A/blt96c655306ef8fcb2)
+- **بث مباشر لمباراة أيسلندا وفرنسا في تصفيات كأس العالم 2026**: [Link](https://www.eremnews.com/sports/g7bjiru)
+- **منتخب فرنسا يحسم تأهله للمونديال في تلك الحالة!**: [Link](https://hihi2.com/2025/10/13/p3424910.html)
+
+
 ### nicolas sarkozy (N/A, Mon, 13 Oct 2025 11:20:00 -0700)
 
 - **INFO RTL - Nicolas Sarkozy sera incarcéré le 21 octobre à la prison de la Santé**: [Link](https://www.rtl.fr/actu/justice-faits-divers/incarceration-de-nicolas-sarkozy-l-ancien-president-est-arrive-au-parquet-national-financier-7900552180)
