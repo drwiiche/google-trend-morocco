@@ -1,3 +1,17 @@
+### andry rajoelina (N/A, Mon, 13 Oct 2025 09:10:00 -0700)
+
+- **Crise à Madagascar: le président Andry Rajoelina a été exfiltré par un avion militaire français [Info RFI]**: [Link](https://www.rfi.fr/fr/afrique/20251013-crise-%C3%A0-madagascar-le-pr%C3%A9sident-andry-rajoelina-a-%C3%A9t%C3%A9-exfiltr%C3%A9-par-un-avion-militaire-fran%C3%A7ais-info-rfi)
+- **Madagascar : après la mutinerie des militaires, le président Andry Rajoelina demeure invisible**: [Link](https://www.lemonde.fr/afrique/article/2025/10/13/madagascar-apres-la-mutinerie-des-militaires-le-president-andry-rajoelina-demeure-invisible_6646200_3212.html)
+- **Madagascar: Un contingent militaire prend contrôle des forces armées**: [Link](https://www.leconomiste.com/flash-infos/madagascar-un-contingent-militaire-prend-controle-des-forces-armees/)
+
+
+### billetterie can 2025 maroc (N/A, Mon, 13 Oct 2025 08:10:00 -0700)
+
+- **La billetterie de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 ouvre le lundi 13 octobre, l’application YALLA désormais disponible**: [Link](https://www.cafonline.com/fr/can2025/infos/la-billetterie-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-ouvre-le-lundi-13-octobre-l-application-yalla-desormais-disponible/)
+- **CAN 2025 : Voici les tarifs des billets**: [Link](https://www.leconomiste.com/flash-infos/can-2025-voici-les-tarifs-des-billets/)
+- **Média français : le Maroc, locomotive du football africain**: [Link](https://fr.hespress.com/444987-media-francais-le-maroc-locomotive-du-football-africain.html)
+
+
 ### maroc vs congo (N/A, Mon, 13 Oct 2025 08:50:00 -0700)
 
 - **Match Maroc-Congo : la billetterie est ouverte**: [Link](https://ledesk.ma/encontinu/match-maroc-congo-la-billetterie-est-ouverte/)
