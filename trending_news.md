@@ -1,3 +1,17 @@
+### maroc vs congo (N/A, Mon, 13 Oct 2025 08:50:00 -0700)
+
+- **Match Maroc-Congo : la billetterie est ouverte**: [Link](https://ledesk.ma/encontinu/match-maroc-congo-la-billetterie-est-ouverte/)
+- **Qualifications Mondial 2026 : les Lions de l’Atlas veulent rassurer face au Congo-Brazzaville**: [Link](https://lematin.ma/sports/qualifications-mondial-2026-lequipe-du-maroc-veut-rassurer-face-au-congo/307286)
+- **GenZ212 appelle au boycott du match Maroc-Congo**: [Link](https://h24info.ma/maroc/societe/genz212-appelle-au-boycott-du-match-maroc-congo/)
+
+
+### tickets can 2025 (N/A, Mon, 13 Oct 2025 01:40:00 -0700)
+
+- **Pensacola Interstate Fair returns Oct. 16 with rides, music and plenty of ways to save**: [Link](https://www.pnj.com/story/news/local/2025/10/13/pensacola-interstate-fair-2025-events-schedule-dates-and-tickets/86671070007/)
+- **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
+- **From 100 to 900 MAD: AFCON 2025 Tickets on Sale**: [Link](https://www.moroccoworldnews.com/2025/10/263310/from-100-to-900-mad-afcon-2025-tickets-on-sale/)
+
+
 ### cameroun – angola (N/A, Mon, 13 Oct 2025 08:40:00 -0700)
 
 - **Éliminatoires Coupe du Monde 2026 : Les compositions probables du match Cameroun – Angola**: [Link](https://foot-africa.com/actualites/liminatoires-coupe-du-monde-2026-les-compositions-probables-du-match-cameroun-angola-914436/)
