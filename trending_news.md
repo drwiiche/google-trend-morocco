@@ -1,3 +1,10 @@
+### safran (N/A, Mon, 13 Oct 2025 12:20:00 -0700)
+
+- **Safran to open new Airbus engine assembly line in Morocco**: [Link](https://uk.finance.yahoo.com/news/safran-open-airbus-engine-assembly-193751674.html)
+- **King Mohammed VI Inaugurates Safran Aircraft Engine Project in Nouaceur**: [Link](https://www.moroccoworldnews.com/2025/10/263406/king-mohammed-vi-inaugurates-safran-aircraft-engine-project-in-nouaceur/)
+- **Safran to open new Airbus engine assembly line in Morocco**: [Link](https://www.marketscreener.com/news/safran-to-open-new-airbus-engine-assembly-line-in-morocco-ce7d5ad8d081f624)
+
+
 ### pays de galles – belgique (N/A, Mon, 13 Oct 2025 11:50:00 -0700)
 
 - **"Rudi Garcia : reprenez-vous !" : déplacement sous pression**: [Link](https://www.eurosport.fr/football/qualif-coupe-du-monde/2026/belgique-rudi-garcia-reprenez-vous-deplacement-sous-pression_sto23230565/story.shtml)
