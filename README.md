@@ -1,3 +1,17 @@
+### tout pour la lumière (N/A, Mon, 13 Oct 2025 03:10:00 -0700)
+
+- **Tout pour la lumière (TF1) : y aura-t-il une saison 2 ?**: [Link](https://www.telestar.fr/serie_tv/tout-pour-la-lumiere-tf1-y-aura-t-il-une-saison-2-1741446)
+- **Tout pour la lumière : Florence a-t-elle eu un rôle dans le sabotage des auditions ? Le résumé du mardi 14 octobre (SPOILERS)**: [Link](https://fr.news.yahoo.com/lumi%C3%A8re-florence-t-eu-r%C3%B4le-073100758.html)
+- **Tout pour la lumière en avance : résumé des épisodes semaine du 13 octobre (spoilers)**: [Link](https://tv-programme.com/news/tout-pour-la-lumiere-en-avance-resume-des-episodes-semaine-du-13-octobre-spoilers-a03120)
+
+
+### aljazeera (N/A, Sun, 12 Oct 2025 23:40:00 -0700)
+
+- **Palestinian journalist Saleh Aljafarawi shot dead in Gaza City clashes**: [Link](https://www.aljazeera.com/news/2025/10/12/palestinian-journalist-saleh-aljafarawi-shot-dead-in-gaza-city-clashes)
+- **Palestinian journalist killed in fighting between Hamas and local militia in Gaza City**: [Link](https://www.haaretz.com/israel-news/2025-10-13/ty-article/.premium/palestinian-journalist-killed-in-fighting-between-hamas-and-local-militia-in-gaza-city/00000199-d9f6-dde4-a7bd-d9fe560b0000)
+- **Reports: Prominent Gaza influencer killed in clashes between Hamas and Gaza militias**: [Link](https://www.timesofisrael.com/liveblog_entry/reports-prominent-gaza-influencer-killed-in-clashes-between-hamas-and-gaza-militias/)
+
+
 ### billetterie can 2025 (N/A, Mon, 13 Oct 2025 00:10:00 -0700)
 
 - **La billetterie de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 ouvre le lundi 13 octobre, l’application YALLA désormais disponible**: [Link](https://www.cafonline.com/fr/can2025/infos/la-billetterie-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-ouvre-le-lundi-13-octobre-l-application-yalla-desormais-disponible/)
