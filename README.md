@@ -1,3 +1,10 @@
+### islande – france (N/A, Mon, 13 Oct 2025 11:00:00 -0700)
+
+- **Première titularisation chez les Bleus pour Mateta en remplacement de Mbappé ?**: [Link](https://www.lequipe.fr/Football/Actualites/Premiere-titularisation-chez-les-bleus-pour-mateta-en-islande/1601099)
+- **Islande - France : les compositions probables**: [Link](https://www.footmercato.net/a4226470619697649537-islande-france-les-compositions-probables)
+- **DIRECT. Equipe de France: vers une première titularisation en A pour Mateta lors d'Islande-France**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/direct-equipe-de-france-toutes-les-infos-sur-les-bleus-avant-le-match-contre-l-islande_LN-202510120150.html)
+
+
 ### espace schengen (N/A, Mon, 13 Oct 2025 09:20:00 -0700)
 
 - **Entrer dans l’espace Schengen ne sera bientôt plus aussi facile : un simple passeport ne suffira plus**: [Link](https://www.rtl.be/actu/monde/europe/entrer-dans-lespace-schengen-ne-sera-bientot-plus-aussi-facile-un-simple/2025-10-12/article/766683)
