@@ -1,3 +1,10 @@
+### safran maroc (N/A, Mon, 13 Oct 2025 15:00:00 -0700)
+
+- **Safran va assembler des moteurs Leap au Maroc pour répondre aux besoins d'Airbus**: [Link](https://www.lesechos.fr/industrie-services/air-defense/safran-va-assembler-des-moteurs-leap-au-maroc-pour-repondre-aux-besoins-dairbus-2191950)
+- **Nouaceur : SM le Roi préside la cérémonie de présentation et de lancement des travaux de réalisation du complexe industriel de "moteurs d’avions" du groupe Safran**: [Link](https://www.mapexpress.ma/actualite/activites-royales/nouaceur-sm-roi-preside-ceremonie-presentation-lancement-travaux-realisation-du-complexe-industriel-moteurs-davions-du-groupe-safran/)
+- **3,4 milliards de dirhams pour propulser l’industrie aéronautique marocaine vers une nouvelle ère**: [Link](https://industries.ma/34-milliards-de-dirhams-pour-propulser-lindustrie-aeronautique-marocaine-vers-une-nouvelle-ere/)
+
+
 ### philippe aghion (N/A, Mon, 13 Oct 2025 13:50:00 -0700)
 
 - **Philippe Aghion, prix Nobel d’économie 2025 : « Le facteur-clé de la puissance économique, c’est le leadership technologique »**: [Link](https://www.lemonde.fr/international/article/2025/10/13/philippe-aghion-prix-nobel-d-economie-2025-le-facteur-cle-de-la-puissance-economique-c-est-le-leadership-technologique_6645670_3211.html)
