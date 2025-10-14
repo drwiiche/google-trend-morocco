@@ -1,3 +1,10 @@
+### afrique du sud – rwanda (N/A, Tue, 14 Oct 2025 09:00:00 -0700)
+
+- **Pourquoi le carton rouge de Mbekezeli Mbokazi sera une bonne chose pour Orlando Pirates**: [Link](https://foot-africa.com/actualites/pourquoi-le-carton-rouge-de-mbekezeli-mbokazi-sera-une-bonne-chose-pour-orlando-pirates-918555/)
+- **Elim. Coupe du monde 2026 : Où suivre en direct le match Afrique du Sud vs Rwanda ?**: [Link](https://www.africatopsports.com/2025/10/14/elim-coupe-du-monde-2026-ou-suivre-en-direct-le-match-afrique-du-sud-vs-rwanda/)
+- **Ronwen Williams vise une nouvelle victoire contre le Rwanda au Mbombela Stadium !**: [Link](https://onefootball.com/es/noticias/ronwen-williams-vise-une-nouvelle-victoire-contre-le-rwanda-au-mbombela-stadium-41800867)
+
+
 ### nigeria – bénin (N/A, Tue, 14 Oct 2025 08:40:00 -0700)
 
 - **World Cup qualifier stopped by runaway rat, Cape Verde makes history**: [Link](https://www.abc.net.au/news/2025-10-14/cape-verde-qualifies-for-2026-fifa-world-cup/105887380)
