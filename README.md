@@ -1,3 +1,10 @@
+### incarcération nicolas sarkozy (N/A, Tue, 14 Oct 2025 09:40:00 -0700)
+
+- **« Quartier VIP » ou isolement : ce que l’on sait des conditions de détention de Nicolas Sarkozy, à partir du 21 octobre**: [Link](https://www.lemonde.fr/politique/article/2025/10/13/quartier-vip-ou-isolement-ce-que-l-on-sait-des-conditions-de-detention-de-nicolas-sarkozy-a-partir-du-21-octobre_6646313_823448.html)
+- **INFO RTL - Nicolas Sarkozy sera incarcéré le 21 octobre à la prison de la Santé**: [Link](https://www.rtl.fr/actu/justice-faits-divers/incarceration-de-nicolas-sarkozy-l-ancien-president-est-arrive-au-parquet-national-financier-7900552180)
+- **Condamnation de Nicolas Sarkozy: l'ancien président sera incarcéré le 21 octobre à la prison de la Santé**: [Link](https://www.bfmtv.com/police-justice/condamnation-de-nicolas-sarkozy-l-ancien-president-sera-incarcere-le-21-octobre-a-la-prison-de-la-sante_AN-202510130687.html)
+
+
 ### algeria vs uganda (N/A, Tue, 14 Oct 2025 09:10:00 -0700)
 
 - **Preview: Algeria vs Uganda - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/algeria/preview/algeria-vs-uganda-prediction-team-news-lineups_583440.html)
