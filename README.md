@@ -1,3 +1,31 @@
+### marruecos - congo (N/A, Tue, 14 Oct 2025 11:40:00 -0700)
+
+- **Congo, el último paso de Marruecos para superar un récord de 16 años**: [Link](https://es.rue20.com/2025/10/14/congo-el-ultimo-paso-de-marruecos-para-superar-un-record-de-16-anos/)
+- **Inicio de la venta electrónica de entradas para el partido entre Marruecos y Congo a partir de hoy viernes**: [Link](https://tanja24.com/es/2025/10/10/inicio-de-la-venta-electronica-de-entradas-para-el-partido-entre-marruecos-y-congo-a-partir-de-hoy-viernes/)
+- **Marruecos - Congo: pronósticos y apuestas**: [Link](https://news.bet365.es/es-es/article/clasificacion-marruecos-congo-pronosticos-apuestas/2025101307191910129)
+
+
+### italie – israël (N/A, Tue, 14 Oct 2025 11:40:00 -0700)
+
+- **Qualifications Coupe du monde 2026 I Italie - Israël I L'Italie, le barrage et la peur : "Le ballon pesait 50 kilos..."**: [Link](https://www.eurosport.fr/football/qualif-coupe-du-monde/2026/qualifications-coupe-du-monde-2026-i-italie-israel-i-litalie-le-barrage-et-la-peur-le-ballon-pesait-50-kilos_sto23230666/story.shtml)
+- **Italie : la grosse crainte de Gattuso avant Israël**: [Link](https://www.footmercato.net/a1859088511883220401-italie-la-grosse-crainte-de-gattuso-avant-israel)
+- **Mondial 2026 : l’Italie accueille Israël dans un match décisif sous tension à Udine**: [Link](https://fr.hespress.com/445189-mondial-2026-litalie-accueille-israel-dans-un-match-decisif-sous-tension-a-udine.html)
+
+
+### turquie – géorgie (N/A, Tue, 14 Oct 2025 11:40:00 -0700)
+
+- **Pronostic Turquie - Géorgie, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/turquie-georgie-296837/)
+- **Les recettes des billets du match Türkiye-Géorgie seront reversées à Gaza**: [Link](https://www.aa.com.tr/fr/sport/les-recettes-des-billets-du-match-turkiye-g%C3%A9orgie-seront-revers%C3%A9es-%C3%A0-gaza/3716366)
+- **Éliminatoires Coupe du Monde 2026 - Géorgie : « Nos attentes sont élevées et nous le prouverons », Willy Sagnol**: [Link](https://africafootunited.com/eliminatoires-coupe-du-monde-2026-georgie-nos-attentes-sont-elevees-et-nous-le-prouverons-willy-sagnol/)
+
+
+### maroc france u20 (N/A, Tue, 14 Oct 2025 11:40:00 -0700)
+
+- **France - Maroc. Heure, diffusion, enjeux… Tout savoir sur la demi-finale de la Coupe du monde U20**: [Link](https://www.ouest-france.fr/sport/coupe-du-monde/france-maroc-heure-diffusion-enjeux-tout-savoir-sur-la-demi-finale-de-la-coupe-du-monde-u20-01d9c472-a835-11f0-a399-70ff1c676380)
+- **Pourquoi le Maroc, demi-finaliste de la Coupe du monde U20 contre la France, est-il aussi performant chez les jeunes ?**: [Link](https://www.lequipe.fr/Football/Actualites/Formation-locale-renforcee-binationaux-supervises-et-dragues-pourquoi-le-maroc-demi-finaliste-de-la-coupe-du-monde-u20-contre-la-france-est-il-aussi-performant-chez-les-jeunes/1601503)
+- **Coupe du monde U20 2025 - Un choc entre la France et le Maroc en demi-finale | Présentation, date, heure et comment regarder**: [Link](https://www.olympics.com/fr/infos/coupe-du-monde-u20-2025-choc-entre-france-et-maroc-demi-finale-presentation-date-heure-et-comment-regarder-direct)
+
+
 ### مباراة المغرب (N/A, Tue, 14 Oct 2025 11:30:00 -0700)
 
 - **المنتخب المغربي يصعد إلى نصف نهائي كأس العالم تحت 20 عاماً**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B5%D8%B9%D8%AF-%D8%A5%D9%84%D9%89-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AD%D8%AA-20-%D8%B9%D8%A7%D9%85%D8%A7-2025-10-12)
