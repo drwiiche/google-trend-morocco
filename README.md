@@ -1,3 +1,15 @@
+### saudi vs iraq (N/A, Tue, 14 Oct 2025 13:20:00 -0700)
+
+- **Saudi Arabia vs Iraq – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/263487/saudi-arabia-vs-iraq-match-preview-prediction/)
+- **Saudi's Al-Brikan hits double in comeback win over Indonesia**: [Link](https://www.reuters.com/sports/soccer/saudis-al-brikan-hits-double-comeback-win-over-indonesia-2025-10-08/)
+- **Renard banks on experience to seal Saudi Arabia's spot at FIFA World Cup**: [Link](https://onefootball.com/pt-br/noticias/renard-banks-on-experience-to-seal-saudi-arabias-spot-at-fifa-world-cup-41801981)
+
+
+### españa - bulgaria (N/A, Tue, 14 Oct 2025 13:10:00 -0700)
+
+
+
+
 ### latvia vs england (N/A, Tue, 14 Oct 2025 13:00:00 -0700)
 
 - **Latvia vs England LIVE: World Cup 2026 Qualifier score, radio & updates**: [Link](https://www.bbc.com/sport/football/live/cy50xpn41dlt)
