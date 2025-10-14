@@ -1,3 +1,17 @@
+### ticket cafonline (N/A, Tue, 14 Oct 2025 06:30:00 -0700)
+
+- **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
+- **From 100 to 900 MAD: AFCON 2025 Tickets on Sale**: [Link](https://www.moroccoworldnews.com/2025/10/263310/from-100-to-900-mad-afcon-2025-tickets-on-sale/)
+- **African soccer leader says Morocco street protests do not affect Cup of Nations plans**: [Link](https://www.foxsports.com/articles/motor/african-soccer-leader-says-morocco-street-protests-do-not-affect-cup-of-nations-plans)
+
+
+### ticket caf 2025 (N/A, Tue, 14 Oct 2025 06:30:00 -0700)
+
+- **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
+- **From 100 to 900 MAD: AFCON 2025 Tickets on Sale**: [Link](https://www.moroccoworldnews.com/2025/10/263310/from-100-to-900-mad-afcon-2025-tickets-on-sale/)
+- **African soccer leader says Morocco street protests do not affect Cup of Nations plans**: [Link](https://www.foxsports.com/articles/motor/african-soccer-leader-says-morocco-street-protests-do-not-affect-cup-of-nations-plans)
+
+
 ### corée du sud – paraguay (N/A, Tue, 14 Oct 2025 04:10:00 -0700)
 
 - **A l'approche de Corée-Paraguay**: [Link](https://fr.yna.co.kr/view/PYH20251013161900884)
