@@ -1,3 +1,17 @@
+### اليابان ضد البرازيل (N/A, Tue, 14 Oct 2025 03:10:00 -0700)
+
+- **أنشيلوتي يتقلب في النعيم.. من يقود الهجوم البرازيلي في مونديال 2026؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/estevao-willian-new-neymar-trust-richarlison-carlo-ancelotti-brazil-attack-world-cup-success/blt55809495e356dbe3)
+- **الموعد والقنوات الناقلة لمباراة البرازيل واليابان الودية**: [Link](https://www.eremnews.com/sports/agcylsp)
+- **انشيلوتي يجهز مفاجأة هجومية في المنتخب البرازيلي**: [Link](https://www.elsport.com/news/show/796233/%D8%A7%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%8A%D8%AC%D9%87%D8%B2-%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D9%87%D8%AC%D9%88%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A)
+
+
+### japan vs brazil (N/A, Tue, 14 Oct 2025 03:10:00 -0700)
+
+- **Japan v Brazil live: Team news and line-ups ahead of international friendly**: [Link](https://www.independent.co.uk/sport/football/japan-brazil-live-stream-score-result-friendly-b2844546.html)
+- **🚨 Vinicius leads the line, Rodrygo left out: Brazil’s XI to face Japan**: [Link](https://onefootball.com/id/berita/vinicius-leads-the-line-rodrygo-left-out-brazils-xi-to-face-japan-41802715)
+- **Brazil's No. 9 Hisalisson is not a disgrace in Japan. It's definitely preventable**: [Link](https://en.sportschosun.com/sports/2025/10/brazils-no-9-hisalisson-is-not-disgrace-116234)
+
+
 ### japon – brésil (N/A, Tue, 14 Oct 2025 03:00:00 -0700)
 
 - **Brésil : Ancelotti entrouvre la porte à Neymar Jr**: [Link](https://www.footmercato.net/a9216330347690708081-bresil-ancelotti-entrouvre-la-porte-a-neymar-jr)
