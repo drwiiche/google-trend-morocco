@@ -1,3 +1,10 @@
+### maría corina machado (N/A, Tue, 14 Oct 2025 14:20:00 -0700)
+
+- **Un coronel asegura que el premio Nobel a Machado es la respuesta noruega a la traición de Maduro tras el Acuerdo de Barbados**: [Link](https://www.infobae.com/venezuela/2025/10/14/un-coronel-asegura-que-el-premio-nobel-a-machado-es-la-respuesta-noruega-a-la-traicion-de-maduro-tras-el-acuerdo-de-barbados/)
+- **"Maduro necesita entender que se le ha ofrecido un proceso de negociación y que, si lo acepta, le irá mucho mejor. Pero se irá, decida lo que decida": entrevista a María Corina Machado, premio Nobel de la Paz**: [Link](https://www.bbc.com/mundo/articles/cy4r4yxpjvpo)
+- **Sindicato de Venezuela alerta sobre "nuevas y graves manifestaciones de censura" en radios**: [Link](https://es-us.noticias.yahoo.com/sindicato-venezuela-alerta-graves-manifestaciones-162348624.html)
+
+
 ### coupe du monde 2026 (N/A, Tue, 14 Oct 2025 14:10:00 -0700)
 
 - **Mondial 2026 : le Sénégal et la Côte d'Ivoire derniers qualifiés, RD Congo et Gabon en barrages**: [Link](https://www.france24.com/fr/sports/20251014-mondial-2026-senegal-cote-d-ivoire-gabon-rd-congo)
