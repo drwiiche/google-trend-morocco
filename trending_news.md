@@ -1,3 +1,10 @@
+### coupe du monde 2026 (N/A, Tue, 14 Oct 2025 14:10:00 -0700)
+
+- **Mondial 2026 : le Sénégal et la Côte d'Ivoire derniers qualifiés, RD Congo et Gabon en barrages**: [Link](https://www.france24.com/fr/sports/20251014-mondial-2026-senegal-cote-d-ivoire-gabon-rd-congo)
+- **En attendant l'équipe de France: voici tous les pays déjà qualifiés pour la Coupe du monde 2026**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/en-attendant-l-equipe-de-france-voici-tous-les-pays-deja-qualifies-pour-la-coupe-du-monde-2026_AV-202510120343.html)
+- **Coupe du monde 2026. Comment sont départagés les meilleurs deuxièmes en cas d’égalité en Afrique ?**: [Link](https://www.ouest-france.fr/sport/coupe-du-monde/coupe-du-monde-2026-comment-sont-departages-les-meilleurs-deuxiemes-en-cas-degalite-en-afrique-169e051c-a777-11f0-a399-70ff1c676380)
+
+
 ### italy vs israel (N/A, Tue, 14 Oct 2025 14:00:00 -0700)
 
 - **Italy vs Israel: UEFA World Cup Qualifiers stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5yq1l43rnlt)
