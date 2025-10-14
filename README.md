@@ -1,3 +1,24 @@
+### nigeria – bénin (N/A, Tue, 14 Oct 2025 08:40:00 -0700)
+
+- **World Cup qualifier stopped by runaway rat, Cape Verde makes history**: [Link](https://www.abc.net.au/news/2025-10-14/cape-verde-qualifies-for-2026-fifa-world-cup/105887380)
+- **Nigeria vs Benin – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/263462/nigeria-vs-benin-match-preview-prediction/)
+- **Nigerian newspapers review: Do or die clash; 3 teams, one chance**: [Link](https://www.vanguardngr.com/2025/10/nigerian-newspapers-review-do-or-die-clash-3-teams-one-chance/)
+
+
+### الجزائر ضد أوغندا (N/A, Tue, 14 Oct 2025 08:40:00 -0700)
+
+- **مباشر.. مباراة الجزائر ضد أوغندا في تصفيات كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/14/algeria-vs-uganda-2)
+- **بيتكوفيتش يستنجد باللاعبين الشباب... وتغييرات جذرية منتظرة ضد أوغندا**: [Link](https://www.alaraby.co.uk/sport/%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%81%D9%8A%D8%AA%D8%B4-%D9%8A%D8%B3%D8%AA%D9%86%D8%AC%D8%AF-%D8%A8%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D9%88%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AC%D8%B0%D8%B1%D9%8A%D8%A9-%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D8%B6%D8%AF-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7)
+- **بلايلي وبونجاح يغادران معسكر الجزائر قبل مواجهة أوغندا في تصفيات المونديال**: [Link](https://arabi21.com/story/1712861/%D8%A8%D9%84%D8%A7%D9%8A%D9%84%D9%8A-%D9%88%D8%A8%D9%88%D9%86%D8%AC%D8%A7%D8%AD-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1%D8%A7%D9%86-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+
+
+### maroc congo (N/A, Tue, 14 Oct 2025 06:50:00 -0700)
+
+- **Maroc – Congo : à quelle heure et sur quelles chaînes ?**: [Link](https://medias24.com/2025/10/14/maroc-congo-a-quelle-heure-et-sur-quelles-chaines-2/)
+- **Dernier entraînement des Lions de l’Atlas avant le match face au Congo**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%84%D9%82%D8%A7/)
+- **Qualifications Mondial 2026 : les Lions de l’Atlas veulent rassurer face au Congo-Brazzaville**: [Link](https://lematin.ma/sports/qualifications-mondial-2026-lequipe-du-maroc-veut-rassurer-face-au-congo/307286)
+
+
 ### algérie – ouganda (N/A, Tue, 14 Oct 2025 08:20:00 -0700)
 
 - **Algérie-Ouganda : à quelle heure et sur quelle chaîne suivre le dernier match des Fennecs ?**: [Link](https://www.lequipe.fr/Football/Actualites/Algerie-ouganda-a-quelle-heure-et-sur-quelle-chaine-suivre-le-dernier-match-des-fennecs/1600448)
