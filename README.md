@@ -1,3 +1,10 @@
+### corée du sud – paraguay (N/A, Tue, 14 Oct 2025 04:10:00 -0700)
+
+- **A l'approche de Corée-Paraguay**: [Link](https://fr.yna.co.kr/view/PYH20251013161900884)
+- **Corée du Sud/Paraguay – Les équipes officielles : Lee remplaçant**: [Link](https://www.parisfans.fr/?p=876057)
+- **Prédiction Corée du Sud vs Paraguay, H2H et compositions probables - 14 octobre 2025**: [Link](https://dailysports.net/fr/predictions/prediction-coree-du-sud-vs-paraguay-h2h-et-compositions-probables-14-octobre-2025/)
+
+
 ### اليابان ضد البرازيل (N/A, Tue, 14 Oct 2025 03:10:00 -0700)
 
 - **أنشيلوتي يتقلب في النعيم.. من يقود الهجوم البرازيلي في مونديال 2026؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/estevao-willian-new-neymar-trust-richarlison-carlo-ancelotti-brazil-attack-world-cup-success/blt55809495e356dbe3)
