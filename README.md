@@ -1,3 +1,27 @@
+### arryadia (N/A, Tue, 14 Oct 2025 12:00:00 -0700)
+
+
+
+
+### marokko – kongo (N/A, Tue, 14 Oct 2025 12:00:00 -0700)
+
+- **CAF WM 2026 Quali 14.10. - Marokko, Elfenbeinküste & 9 weitere Afrika-Spiele**: [Link](https://www.wette.de/news/caf-wm-2026-qualifikation-wetten-14-oktober-11-spiele-mit-top-quoten-prognosen-und-vorhersagen/)
+
+
+### congo (N/A, Tue, 14 Oct 2025 12:00:00 -0700)
+
+- **Congo, M23 sign deal in Doha on ceasefire monitoring, sources say**: [Link](https://www.reuters.com/world/africa/congo-m23-sign-deal-doha-ceasefire-monitoring-sources-say-2025-10-14/)
+- **DRC, M23 rebels sign deal to enforce ceasefire**: [Link](https://www.trtafrika.com/english/article/4a070d719b93)
+- **African Union Welcomes the Signing of a Ceasefire Verification Mechanism for the Democratic Republic of the Congo**: [Link](https://au.int/ar/node/45499)
+
+
+### spain vs bulgaria (N/A, Tue, 14 Oct 2025 11:50:00 -0700)
+
+- **Will Crystal Palace star keep his place? How Spain could**: [Link](https://www.sportsmole.co.uk/football/spain/world-cup-2026/predicted-lineups/will-crystal-palace-star-keep-his-place-how-spain-could-line-up-against-bulgaria_583459.html)
+- **Why is Lamine Yamal Not Playing for Spain in October?**: [Link](https://www.si.com/soccer/why-is-lamine-yamal-not-playing-for-spain-october-2025)
+- **Spain vs. Bulgaria: Betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/14/spain-vs-bulgaria-betting-odds-prediction-pick/86683530007/)
+
+
 ### marruecos - congo (N/A, Tue, 14 Oct 2025 11:40:00 -0700)
 
 - **Congo, el último paso de Marruecos para superar un récord de 16 años**: [Link](https://es.rue20.com/2025/10/14/congo-el-ultimo-paso-de-marruecos-para-superar-un-record-de-16-anos/)
