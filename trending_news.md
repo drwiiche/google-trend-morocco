@@ -1,3 +1,24 @@
+### latvia vs england (N/A, Tue, 14 Oct 2025 13:00:00 -0700)
+
+- **Latvia vs England LIVE: World Cup 2026 Qualifier score, radio & updates**: [Link](https://www.bbc.com/sport/football/live/cy50xpn41dlt)
+- **🚨 BREAKING: England name XI with World Cup qualification in sight**: [Link](https://ca.sports.yahoo.com/news/breaking-england-name-xi-world-172000431.html)
+- **Tuchel talks learning about Latvia ahead of the World Cup qualifier**: [Link](https://www.vavel.com/en/international-football/2025/10/13/1237523-tuchel-talks-learning-about-latvia-ahead-of-the-world-cup-qualifier.html)
+
+
+### marocco - congo (N/A, Tue, 14 Oct 2025 13:00:00 -0700)
+
+- **Qualificazioni Mondiale 2026, Ndicka ed El Aynaoui titolari nelle loro sfide**: [Link](https://www.forzaroma.info/news-as-roma/qualificazioni-mondiale-2026-ndicka-ed-el-aynaoui-titolari-nelle-loro-sfide/)
+- **Costa d'Avorio-Kenya, Ndicka titolare**: [Link](https://laroma24.it/news/nazionali/2025/10/costa-davorio-kenya-ndicka-titolare)
+- **Modric verso il quinto Mondiale, Hojlund segna ancora. Lewandowski vicino al playoff**: [Link](https://www.tuttosport.com/news/calcio/mondiali-2026/2025/10/12-143769780/modric_verso_il_quinto_mondiale_hojlund_segna_ancora_lewandowski_vicino_al_playoff)
+
+
+### المغرب اليوم (N/A, Tue, 14 Oct 2025 12:20:00 -0700)
+
+- **موعد مباراة المغرب ضد فرنسا بنصف نهائي مونديال الشباب والتشكيلة والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/10/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **لاعبان مغربيان يتواجدان في التشكيلة المثالية لـ"صوفا سكور" لربع نهائي كأس العالم للشباب**: [Link](https://2m.ma/ar/news/%D9%84%D8%A7%D8%B9%D8%A8%D8%A7%D9%86-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7%D9%86-%D9%8A%D8%AA%D9%88%D8%A7%D8%AC%D8%AF%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D9%80-%D8%B5%D9%88%D9%81%D8%A7-%D8%B3%D9%83%D9%88%D8%B1-%D9%84%D8%B1%D8%A8%D8%B9-20251013)
+- **جسيم: "بالنسبة لي أرى أن المنتخب الأمريكي كان الأفضل في هذه النسخة من مونديال الشباب"**: [Link](https://m.elbotola.com/article/2025-10-13-13-58-987.html)
+
+
 ### portugal (N/A, Tue, 14 Oct 2025 12:40:00 -0700)
 
 - **«Chegamos em número, mas há dificuldades na derradeira criação do desequilíbrio»**: [Link](https://www.abola.pt/video/chegamos-em-numero-mas-ha-dificuldades-na-derradeira-criacao-do-desequilibrio-2025101413512755211)
