@@ -1,3 +1,17 @@
+### italy vs israel (N/A, Tue, 14 Oct 2025 14:00:00 -0700)
+
+- **Italy vs Israel: UEFA World Cup Qualifiers stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5yq1l43rnlt)
+- **🎥 Clashes in Udine with flash bombs, crowd boos Israeli anthem**: [Link](https://ca.news.yahoo.com/clashes-udine-flash-bombs-crowd-193400275.html)
+- **‘Show Israel the red card’: Protesters urge boycott of Israel at World Cup**: [Link](https://www.aljazeera.com/video/newsfeed/2025/10/14/show-israel-the-red-card-protesters-urge-boycott-of-israel-at-world-cup)
+
+
+### gabon vs (N/A, Tue, 14 Oct 2025 14:00:00 -0700)
+
+- **Gabon players strike ahead of World Cup qualifier**: [Link](https://en.africatopsports.com/2025/10/14/gabon-players-strike-ahead-of-world-cup-qualifier/)
+- **World Cup 2026 qualifiers: Date, time, channels and Gabon - Burundi head-to-head history**: [Link](https://foot-africa.com/en/news/world-cup-2026-qualifiers-date-time-channels-and-gabon-burundi-head-to-head-history-918090/)
+- **Preview: Gabon vs Burundi - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/gabon/world-cup/preview/gabon-vs-burundi-prediction-team-news-lineups_583460.html)
+
+
 ### saudi vs iraq (N/A, Tue, 14 Oct 2025 13:20:00 -0700)
 
 - **Saudi Arabia vs Iraq – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/263487/saudi-arabia-vs-iraq-match-preview-prediction/)
