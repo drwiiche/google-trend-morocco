@@ -1,3 +1,31 @@
+### yalla kora (N/A, Tue, 14 Oct 2025 12:10:00 -0700)
+
+- **فانتازي يلا كورة.. تغيرات في أسعار اللاعبين قبل الجولة الثامنة**: [Link](https://www.msn.com/ar-eg/sports/other/%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D9%8A%D9%84%D8%A7-%D9%83%D9%88%D8%B1%D8%A9-%D8%AA%D8%BA%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%85%D9%86%D8%A9/ar-AA1Om7Jz)
+- **فانتازي.. انخفاض سعر لاعب ليفربول اليوم**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2025/10/13/2871714/%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%B3%D8%B9%D8%B1-%D9%84%D8%A7%D8%B9%D8%A8-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85-)
+- **فانتازي يلا كورة.. ارتفاع سعر محمد قدوس**: [Link](https://www.yallakora.com/epl/2968/news/526796/%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D9%8A%D9%84%D8%A7-%D9%83%D9%88%D8%B1%D8%A9-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%B3%D8%B9%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D9%82%D8%AF%D9%88%D8%B3)
+
+
+### مباراة المغرب اليوم (N/A, Tue, 14 Oct 2025 11:50:00 -0700)
+
+- **المنتخب الوطني الرديف يفوز على الكويت**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA/)
+- **طارق السكتيوي يكشف تشكيلة "المحليين" لمواجهة الكويت**: [Link](https://snrtnews.com/article/139285)
+- **السكتيوي يكشف تشكيلة المنتخب الوطني الرديف لمواجهة الكويت**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/453058.html)
+
+
+### rd congo – soudan (N/A, Tue, 14 Oct 2025 11:50:00 -0700)
+
+- **La République Démocratique du Congo prête à jouer une qualification historique pour un peuple martyr**: [Link](https://www.footmercato.net/a3743989403920754204-la-republique-democratique-du-congo-prete-a-jouer-une-qualification-historique-pour-un-peuple-martyr)
+- **Éliminatoires Coupe du monde 2026 : les Léopards jouent leur destin mardi face au Soudan**: [Link](https://www.radiookapi.net/2025/10/13/actualite/sport/eliminatoires-coupe-du-monde-2026-les-leopards-jouent-leur-destin-mardi)
+- **EX-FC Nantes : Samuel Moutoussamy et la RDC jouent leur ticket pour la Coupe du Monde 2026 demain soir**: [Link](https://tribunenantaise.fr/actus-fcnantes/ex-fc-nantes-samy-moutoussamy-et-la-rdc-jouent-leur-ticket-pour-la-coupe-du-monde-2026-demain-soir/)
+
+
+### القنوات الناقلة لمباراة المغرب اليوم (N/A, Tue, 14 Oct 2025 11:50:00 -0700)
+
+- **موعد مباراة المغرب ضد فرنسا بنصف نهائي مونديال الشباب والتشكيلة والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/10/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **لاعبان مغربيان يتواجدان في التشكيلة المثالية لـ"صوفا سكور" لربع نهائي كأس العالم للشباب**: [Link](https://2m.ma/ar/news/%D9%84%D8%A7%D8%B9%D8%A8%D8%A7%D9%86-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7%D9%86-%D9%8A%D8%AA%D9%88%D8%A7%D8%AC%D8%AF%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D9%80-%D8%B5%D9%88%D9%81%D8%A7-%D8%B3%D9%83%D9%88%D8%B1-%D9%84%D8%B1%D8%A8%D8%B9-20251013)
+- **جسيم: "بالنسبة لي أرى أن المنتخب الأمريكي كان الأفضل في هذه النسخة من مونديال الشباب"**: [Link](https://m.elbotola.com/article/2025-10-13-13-58-987.html)
+
+
 ### arryadia (N/A, Tue, 14 Oct 2025 12:00:00 -0700)
 
 
