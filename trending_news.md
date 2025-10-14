@@ -1,3 +1,24 @@
+### portugal (N/A, Tue, 14 Oct 2025 12:40:00 -0700)
+
+- **«Chegamos em número, mas há dificuldades na derradeira criação do desequilíbrio»**: [Link](https://www.abola.pt/video/chegamos-em-numero-mas-ha-dificuldades-na-derradeira-criacao-do-desequilibrio-2025101413512755211)
+- **Em jogo tenso em Lisboa, Szalai cabeceia para abrir placar pró-Hungria ante Portugal de Cristiano Ronaldo**: [Link](https://www.mixvale.com.br/2025/10/14/em-jogo-tenso-em-lisboa-szalai-cabeceia-para-abrir-placar-pro-hungria-ante-portugal-de-cristiano-ronaldo/)
+- **AO VIVO: Roberto Martínez aposta em Nélson Semedo e Renato Veiga para enfrentar Hungria**: [Link](https://www.flashscore.pt/noticias/futebol-campeonato-do-mundo-ao-vivo-roberto-martinez-aposta-em-nelson-semedo-e-renato-veiga-para-enfrentar-hungria/4G7aZW75/)
+
+
+### portugal fc (N/A, Tue, 14 Oct 2025 12:40:00 -0700)
+
+- **Bednarek, Kiwior e Froholdt com dia de descanso no regresso das seleções nacionais**: [Link](https://sapo.pt/artigo/bednarek-kiwior-e-froholdt-com-dia-de-descanso-no-regresso-das-selecoes-nacionais-68ee50998e8453e6e1479747)
+- **Francesco Farioli dá folga extra a 3 jogadores do FC Porto**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/francesco-farioli-da-folga-extra-a-3-jogadores-do-fc-porto/)
+- **«Sofre aqui para não sofrer no jogo»: FC Porto mostra reação dos jogadores ao treino de hoje**: [Link](https://www.record.pt/multimedia/videos/detalhe/sofre-aqui-para-nao-sofrer-no-jogo-fc-porto-mostra-reacao-dos-jogadores-ao-treino-de-hoje)
+
+
+### السعودية ضد العراق (N/A, Tue, 14 Oct 2025 12:40:00 -0700)
+
+- **مباشر مباراة العراق ضد السعودية (0-0) بتصفيات كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/14/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9)
+- **كلاسيكو السعودية والعراق.. جيسوس والبوابة السابعة يشعلان ملعب الإنماء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82--%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%88%D8%A7%D9%84%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D8%B9%D8%A9-%D9%8A%D8%B4%D8%B9%D9%84%D8%A7%D9%86-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D9%85%D8%A7%D8%A1/bltd27e1ea44509c664)
+- **رونار: "مباراة العراق المقبلة هي الأهم في مسيرتي التدريبية"**: [Link](https://m.elbotola.com/article/2025-10-13-12-05-318.html)
+
+
 ### مباراة المغرب اليوم مباشر (N/A, Tue, 14 Oct 2025 12:20:00 -0700)
 
 - **موعد مباراة المغرب ضد فرنسا بنصف نهائي مونديال الشباب والتشكيلة والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/10/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
