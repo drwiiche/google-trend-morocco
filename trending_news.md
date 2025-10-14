@@ -1,3 +1,17 @@
+### algeria vs uganda (N/A, Tue, 14 Oct 2025 09:10:00 -0700)
+
+- **Preview: Algeria vs Uganda - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/algeria/preview/algeria-vs-uganda-prediction-team-news-lineups_583440.html)
+- **Cranes must win — and wait**: [Link](https://www.monitor.co.ug/uganda/sports/soccer/cranes-must-win-and-wait-5228232)
+- **Onyango 'optimistic' as Cranes head to Algiers for ‘Do or Die’ World Cup qualifier**: [Link](https://nilepost.co.ug/index.php/sports/293844/onyango-optimistic-as-cranes-head-to-algiers-for-do-or-die-world-cup-qualifier)
+
+
+### tickets can 2025 (N/A, Tue, 14 Oct 2025 06:40:00 -0700)
+
+- **Chiodos Booked for When We Were Young Festival**: [Link](https://ghostcultmag.com/chiodos-booked-for-when-we-were-young-festival/)
+- **WWWY 2025 announces set times, Drain added to fest as Sleeping With Sirens & Never Shout Never exit**: [Link](https://lambgoat.com/news/49944/wwwy-2025-announces-set-times-drain-added-to-fest-as-sleeping-with-sirens-never-shout-never-exit/)
+- **6 Bands That Could Replace Sleeping With Sirens at When We Were Young**: [Link](https://idobi.com/features/when-we-were-young-band-additions-2025/)
+
+
 ### afrique du sud – rwanda (N/A, Tue, 14 Oct 2025 09:00:00 -0700)
 
 - **Pourquoi le carton rouge de Mbekezeli Mbokazi sera une bonne chose pour Orlando Pirates**: [Link](https://foot-africa.com/actualites/pourquoi-le-carton-rouge-de-mbekezeli-mbokazi-sera-une-bonne-chose-pour-orlando-pirates-918555/)
