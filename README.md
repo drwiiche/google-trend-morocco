@@ -1,3 +1,10 @@
+### france vs (N/A, Mon, 13 Oct 2025 12:30:00 -0700)
+
+- **Watch: Nkunku scores beautiful goal for France vs. Iceland – the question it brings**: [Link](https://sempremilan.com/nkunku-scores-beautiful-goal-france-iceland)
+- **Iceland 2-2 France: Jean-Philippe Mateta scores first France goal**: [Link](https://www.bbc.com/sport/football/live/c9qnz99wywvt)
+- **William Saliba did one thing that will impress Mikel Arteta but caused two problems in France display**: [Link](https://tbrfootball.com/william-saliba-did-one-thing-that-will-impress-mikel-arteta-but-caused-two-problems-in-france-display/)
+
+
 ### safran maroc (N/A, Mon, 13 Oct 2025 15:00:00 -0700)
 
 - **Safran va assembler des moteurs Leap au Maroc pour répondre aux besoins d'Airbus**: [Link](https://www.lesechos.fr/industrie-services/air-defense/safran-va-assembler-des-moteurs-leap-au-maroc-pour-repondre-aux-besoins-dairbus-2191950)
