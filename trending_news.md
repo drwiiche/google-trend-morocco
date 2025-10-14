@@ -1,3 +1,10 @@
+### morocco vs congo (N/A, Tue, 14 Oct 2025 10:30:00 -0700)
+
+- **Morocco vs Congo LIVE Score Updates in 2026 World Cup Qualifiers Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/14/1237556-morocco-vs-congo-live-updates-2026-world-cup-qualifiers.html)
+- **Morocco vs Congo Republic Prediction, Preview, Team News and Lineups 14.10.2025**: [Link](https://news.22bet.com/predictions/morocco-vs-congo-republic-caf-qualifiers-prediction-betting-tips-14-10-2025/)
+- **Morocco–Congo World Cup qualifier: Ticket sales open Friday online**: [Link](https://en.yabiladi.com/articles/details/178524/morocco-congo-world-qualifier-ticket.html)
+
+
 ### المغرب ضد الكونغو (N/A, Tue, 14 Oct 2025 10:00:00 -0700)
 
 - **المغرب على أعتاب تحطيم رقم عالمي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A3%D8%B9%D8%AA%D8%A7%D8%A8-%D8%AA%D8%AD%D8%B7%D9%8A%D9%85-%D8%B1%D9%82%D9%85-%D8%B9%D8%A7%D9%84%D9%85%D9%8A-1639959.html)
