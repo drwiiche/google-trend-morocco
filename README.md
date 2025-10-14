@@ -1,3 +1,17 @@
+### japon – brésil (N/A, Tue, 14 Oct 2025 03:00:00 -0700)
+
+- **Brésil : Ancelotti entrouvre la porte à Neymar Jr**: [Link](https://www.footmercato.net/a9216330347690708081-bresil-ancelotti-entrouvre-la-porte-a-neymar-jr)
+- **« En bonne condition physique, il a les qualités pour jouer dans n'importe quelle équipe du monde » : Carlo Ancelotti s'exprime sur Neymar**: [Link](https://www.lequipe.fr/Football/Actualites/-en-bonne-condition-physique-il-a-les-qualites-pour-jouer-dans-n-importe-quelle-equipe-du-monde-carlo-ancelotti-s-exprime-sur-neymar/1601333)
+- **Carlo Ancelotti, la grande annonce**: [Link](https://www.football.fr/bresil/carlo-ancelotti-la-grande-annonce-778690.html)
+
+
+### madagascar (N/A, Tue, 14 Oct 2025 02:40:00 -0700)
+
+- **Madagascar : Andry Rajoelina s’accroche au pouvoir, Emmanuel Macron lui apporte son soutien**: [Link](https://www.lemonde.fr/afrique/article/2025/10/14/madagascar-andry-rajoelina-s-accroche-au-pouvoir-emmanuel-macron-lui-apporte-son-soutien_6646457_3212.html)
+- **Exfiltré à bord d’un avion militaire français ? Caché, le président de Madagascar réagit**: [Link](https://www.huffingtonpost.fr/international/video/exfiltre-a-bord-d-un-avion-militaire-francais-cache-le-president-de-madagascar-reagit_255957.html)
+- **Président introuvable, armée qui rejoint les mutins, 22 morts dans les manifestations : que se passe-t-il à Madagascar ?**: [Link](https://www.lefigaro.fr/international/president-introuvable-armee-qui-rejoint-les-mutins-22-morts-dans-les-manifestations-que-se-passe-t-il-a-madagascar-20251013)
+
+
 ### france vs (N/A, Mon, 13 Oct 2025 12:30:00 -0700)
 
 - **Watch: Nkunku scores beautiful goal for France vs. Iceland – the question it brings**: [Link](https://sempremilan.com/nkunku-scores-beautiful-goal-france-iceland)
