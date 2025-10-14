@@ -1,3 +1,38 @@
+### espagne – bulgarie (N/A, Tue, 14 Oct 2025 11:00:00 -0700)
+
+- **Pronostic Espagne - Bulgarie, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/espagne-bulgarie-296840/)
+- **Italie - Israël : heure, chaîne TV... Sur quelle chaîne regarder le match à la télévision ou en streaming ?**: [Link](https://www.onzemondial.com/coupe-du-monde/italie-israel-heure-chaine-tv-sur-quelle-chaine-regarder-le-match-a-la-television-ou-en-streaming-968273)
+- **Football - Qualif. Coupe du monde : Le Normand : « Ne pas se faire de frayeurs »**: [Link](https://www.lequipe.fr/Football/Video/Qualif-coupe-du-monde-le-normand-ne-pas-se-faire-de-frayeurs/20218816)
+
+
+### portugal – hongrie (N/A, Tue, 14 Oct 2025 11:00:00 -0700)
+
+- **Sélections : Portugal/Hongrie : chaîne de diffusion et compo probable avec 2 joueurs du PSG**: [Link](https://www.culturepsg.com/news/selections/portugal-hongrie-chaine-de-diffusion-et-compo-probable-avec-2-joueurs-du-psg/57316)
+- **PRONOS PARIS RMC Le pari du jour du 14 octobre - Qualif. Coupe du Monde**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-14-octobre-qualif-coupe-du-monde_AN-202510130814.html)
+- **Après Rafael Leão, un deuxième international portugais déclare forfait pour Portugal - Hongrie**: [Link](https://trivela.fr/forfait-portugais-portugal-hongrie/)
+
+
+### match maroc (N/A, Tue, 14 Oct 2025 10:50:00 -0700)
+
+- **Football. Maroc - Congo, un record à battre**: [Link](https://medias24.com/2025/10/14/football-maroc-congo-un-record-a-battre/)
+- **Dernier entraînement des Lions de l’Atlas avant le match face au Congo**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%84%D9%82%D8%A7/)
+- **Football : face au Congo, les Lions de l’Atlas visent un record mondial vieux de 16 ans**: [Link](https://mobile.telquel.ma/instant-t/2025/10/14/football-face-au-congo-les-lions-de-latlas-visent-un-record-mondial-vieux-de-16-ans_1955741/)
+
+
+### world cup qualifiers (N/A, Tue, 14 Oct 2025 10:50:00 -0700)
+
+- **Nigeria vs Benin: CAF World Cup qualifier – start time, team news, lineups**: [Link](https://www.aljazeera.com/sports/2025/10/13/nigeria-vs-benin-world-cup-qualifier-start-time-team-news-and-lineups)
+- **Ghana 1-0 Comoros: Mohammed Kudus first Black Stars to World Cup 2026**: [Link](https://www.bbc.com/sport/football/live/c98dz4jny5jt)
+- **2026 World Cup: CAF confirms Morocco as host for African playoffs**: [Link](https://punchng.com/2026-world-cup-caf-confirms-morocco-as-host-for-african-playoffs/)
+
+
+### تصفيات كاس العالم افريقيا (N/A, Tue, 14 Oct 2025 10:50:00 -0700)
+
+- **مواعيد مباريات اليوم.. أيرلندا الشمالية مع ألمانيا وفرنسا أمام أيسلندا بتصفيات المونديال**: [Link](https://www.youm7.com/story/2025/10/13/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D9%8A%D8%B1%D9%84%D9%86%D8%AF%D8%A7-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%85%D8%B9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%8A%D8%B3%D9%84%D9%86%D8%AF%D8%A7/7154028)
+- **جدول مباريات اليوم الثلاثاء 14 أكتوبر 2025 والقنوات الناقلة والمعلقين**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-14-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2025-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt84b9ef6d607a85fd)
+- **صراع المونديال يشتعل في أوروبا وإفريقيا.. قمم لا تُفوَّت في تصفيات كأس العالم**: [Link](https://alwatannews.net/watan-sports/article/4061617/%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%8A%D8%B4%D8%AA%D8%B9%D9%84-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%88%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%82%D9%85%D9%85-%D9%84%D8%A7-%D8%AA%D9%81%D9%88%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+
+
 ### morocco vs congo (N/A, Tue, 14 Oct 2025 10:30:00 -0700)
 
 - **Morocco vs Congo LIVE Score Updates in 2026 World Cup Qualifiers Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/14/1237556-morocco-vs-congo-live-updates-2026-world-cup-qualifiers.html)
