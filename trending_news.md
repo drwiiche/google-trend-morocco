@@ -1,3 +1,10 @@
+### المنتخبات المتأهلة لكأس العالم 2026 (N/A, Tue, 14 Oct 2025 14:00:00 -0700)
+
+- **المغرب يستضيف الملحق المؤهل لكأس العالم 2026**: [Link](https://www.aljazeera.net/sport/2025/10/12/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D9%85%D8%A4%D9%87%D9%84-%D9%84%D9%83%D8%A3%D8%B3)
+- **«فرصة الملحق».. ترتيب أفضل «ثواني» بتصفيات كأس العالم في أفريقيا**: [Link](https://www.almasryalyoum.com/news/details/3574596)
+- **من هي منتخبات إفريقيا المعنية بالتأهل لمباريات الملحق في تصفيات كأس العالم؟**: [Link](https://www.eremnews.com/sports/ljtqc4m)
+
+
 ### maría corina machado (N/A, Tue, 14 Oct 2025 14:20:00 -0700)
 
 - **Un coronel asegura que el premio Nobel a Machado es la respuesta noruega a la traición de Maduro tras el Acuerdo de Barbados**: [Link](https://www.infobae.com/venezuela/2025/10/14/un-coronel-asegura-que-el-premio-nobel-a-machado-es-la-respuesta-noruega-a-la-traicion-de-maduro-tras-el-acuerdo-de-barbados/)
