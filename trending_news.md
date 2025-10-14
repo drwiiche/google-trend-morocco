@@ -1,3 +1,45 @@
+### مباراة المغرب (N/A, Tue, 14 Oct 2025 11:30:00 -0700)
+
+- **المنتخب المغربي يصعد إلى نصف نهائي كأس العالم تحت 20 عاماً**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B5%D8%B9%D8%AF-%D8%A5%D9%84%D9%89-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AD%D8%AA-20-%D8%B9%D8%A7%D9%85%D8%A7-2025-10-12)
+- **إنجاز تاريخي يحفز شباب المغرب للإطاحة بأمريكا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%8A%D8%AD%D9%81%D8%B2-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%84%D8%A7%D9%95%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D8%A7/bltab740a43ba6cbecb)
+- **مدرب "أشبال الأطلس": اللاعبون يستحقون التأهل لنصف نهائي المونديال**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%88%D9%86-%D9%8A%D8%B3%D8%AA%D8%AD%D9%82%D9%88%D9%86-%D8%A7-1639120.html)
+
+
+### d'angelo (N/A, Tue, 14 Oct 2025 11:30:00 -0700)
+
+- **D’Angelo, Neo-Soul Pioneer and ‘Untitled (How Does It Feel)’ Singer, Dies at 51**: [Link](https://variety.com/2025/music/news/dangelo-dead-neo-soul-pioneer-untitled-voodoo-1236552500/)
+- **D'Angelo Dead at 51 from Pancreatic Cancer**: [Link](https://www.tmz.com/2025/10/14/dangelo-dead/)
+- **Jamie Foxx, Maxwell, Jill Scott, Flea, Doja Cat and more react to the death of D'Angelo**: [Link](https://www.bastillepost.com/global/article/5280337-jamie-foxx-maxwell-jill-scott-flea-doja-cat-and-more-react-to-the-death-of-dangelo)
+
+
+### sénégal – mauritanie (N/A, Tue, 14 Oct 2025 11:20:00 -0700)
+
+- **Mondial 2026. Sénégal–Mauritanie: la flamme des supporters refroidie par la flambée des prix des tickets**: [Link](https://afrique.le360.ma/sports/mondial-2026-senegalmauritanie-la-flamme-des-supporters-refroidie-par-la-flambee-des-prix-des_HQJBCP5GOVAQNLZEQNYWF35MYE/)
+- **Lettre ouverte à la Fédération sénégalaise de football**: [Link](https://sportnewsafrica.com/articles/lettre-ouverte-a-la-federation-senegalaise-de-football)
+- **Sénégal vs Mauritanie : un forfait de taille chez les lions !**: [Link](https://onefootball.com/pt-br/noticias/senegal-vs-mauritanie-un-forfait-de-taille-chez-les-lions-41803148)
+
+
+### البرتغال ضد هنغاريا (N/A, Tue, 14 Oct 2025 11:20:00 -0700)
+
+- **بسبب إصابة سابقة.. استبعاد لياو من معسكر البرتغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B3%D8%A7%D8%A8%D9%82%D8%A9--%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%84%D9%8A%D8%A7%D9%88-%D9%85%D9%86-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84/bltbf09ff3b8cfec6d9)
+- **أفضل الهدافين في تاريخ مواجهات البرتغال وهنغاريا**: [Link](https://hihi2.com/2025/10/13/p3425191.html)
+- **البرتغال ضد المجر.. كريستيانو رونالدو يقود هجوم برازيل أوروبا**: [Link](https://www.youm7.com/story/2025/10/14/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D8%AC%D8%B1-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/7157319)
+
+
+### portugal vs hungary (N/A, Tue, 14 Oct 2025 11:20:00 -0700)
+
+- **Portugal vs. Hungary 2025 livestream: Watch World Cup Qualifiers for free**: [Link](https://mashable.com/article/portugal-hungary-world-cup-qualifiers-2025-live-stream-for-free)
+- **Portugal-Hungary, on which channel to watch the match?**: [Link](https://frenchfootballweekly.com/2025/10/14/portugal-hungary-on-which-channel-to-watch-the-match/)
+- **Portugal vs. Hungary: Betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/14/portugal-vs-hungary-betting-odds-prediction-pick/86679824007/)
+
+
+### maroc – congo (N/A, Tue, 14 Oct 2025 11:00:00 -0700)
+
+- **Football. Maroc-Congo, un record à battre**: [Link](https://medias24.com/2025/10/14/football-maroc-congo-un-record-a-battre/)
+- **Dernier entraînement des Lions de l’Atlas avant le match face au Congo**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%84%D9%82%D8%A7/)
+- **Match Maroc-Congo : la billetterie est ouverte**: [Link](https://ledesk.ma/encontinu/match-maroc-congo-la-billetterie-est-ouverte/)
+
+
 ### espagne – bulgarie (N/A, Tue, 14 Oct 2025 11:00:00 -0700)
 
 - **Pronostic Espagne - Bulgarie, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/espagne-bulgarie-296840/)
