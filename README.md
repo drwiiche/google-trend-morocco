@@ -1,3 +1,38 @@
+### algérie – ouganda (N/A, Tue, 14 Oct 2025 08:20:00 -0700)
+
+- **Algérie-Ouganda : à quelle heure et sur quelle chaîne suivre le dernier match des Fennecs ?**: [Link](https://www.lequipe.fr/Football/Actualites/Algerie-ouganda-a-quelle-heure-et-sur-quelle-chaine-suivre-le-dernier-match-des-fennecs/1600448)
+- **Algérie - Ouganda. À quelle heure et sur quelle chaîne voir le match de qualification au Mondial ?**: [Link](https://www.ouest-france.fr/sport/coupe-du-monde/algerie-ouganda-a-quelle-heure-et-sur-quelle-chaine-voir-le-match-de-qualification-au-mondial-7578c45c-a842-11f0-a399-70ff1c676380)
+- **Le discours poignant de Petković après la qualification de l’Algérie**: [Link](https://foot-africa.com/actualites/le-discours-poignant-de-petkovic-apres-la-qualification-de-lalgerie-918132/)
+
+
+### المغرب ضد الكويت (N/A, Tue, 14 Oct 2025 08:20:00 -0700)
+
+- **تشكيلة المنتخب الوطني الرديف للقاء الكويت**: [Link](https://frmf.ma/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84/)
+- **تشكيلة المنتخب المغربي الرديف أمام الكويت.. السكتيوي يعتمد على البوفتيني وبنتايك ويدفع بهجوم مكون من طنان وحمد الله أزارو**: [Link](https://m.elbotola.com/article/2025-10-14-14-53-424.html)
+- **توقيت مباراة المغرب والكويت الودية والقنوات الناقلة**: [Link](https://infosports.news/ar/news/230058/%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D8%A7.html)
+
+
+### محاكم (N/A, Tue, 14 Oct 2025 08:20:00 -0700)
+
+- **تأجيل جلسة الأمير هشام ضد الطاوجني**: [Link](https://www.hespress.com/%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D8%AC%D9%84%D8%B3%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1-%D9%87%D8%B4%D8%A7%D9%85-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D8%AC%D9%86%D9%8A-1639856.html)
+- **الأمير مولاي هشام أمام القضاء ضد الطاوجني**: [Link](https://badil.info/187870)
+- **الأمير هشام يحضر محاكمة يوتيوبر أمام المحكمة الإبتدائية بالرباط**: [Link](https://rue20.com/945007.html)
+
+
+### groupe safran maroc (N/A, Tue, 14 Oct 2025 08:00:00 -0700)
+
+- **Safran va assembler des moteurs Leap au Maroc pour répondre aux besoins d'Airbus**: [Link](https://www.lesechos.fr/industrie-services/air-defense/safran-va-assembler-des-moteurs-leap-au-maroc-pour-repondre-aux-besoins-dairbus-2191950)
+- **Safran propulse le Maroc dans le club des pays assembleurs de moteurs d’avions**: [Link](https://www.jeuneafrique.com/1730631/economie-entreprises/safran-propulse-le-maroc-dans-le-club-des-pays-assembleurs-de-moteurs-davions/)
+- **3,4 milliards de dirhams pour propulser l’industrie aéronautique marocaine vers une nouvelle ère**: [Link](https://industries.ma/34-milliards-de-dirhams-pour-propulser-lindustrie-aeronautique-marocaine-vers-une-nouvelle-ere/)
+
+
+### cafonline (N/A, Tue, 14 Oct 2025 06:30:00 -0700)
+
+- **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
+- **From 100 to 900 MAD: AFCON 2025 Tickets on Sale**: [Link](https://www.moroccoworldnews.com/2025/10/263310/from-100-to-900-mad-afcon-2025-tickets-on-sale/)
+- **African soccer leader says Morocco street protests do not affect Cup of Nations plans**: [Link](https://www.foxsports.com/articles/motor/african-soccer-leader-says-morocco-street-protests-do-not-affect-cup-of-nations-plans)
+
+
 ### caf ticket (N/A, Tue, 14 Oct 2025 06:40:00 -0700)
 
 - **TotalEnergies CAF Africa Cup of Nations Morocco 2025 Tickets Sales open from Monday, 13 October with YALLA App now available**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-africa-cup-of-nations-morocco-2025-tickets-sales-open-from-monday-13-october-with-yalla-app-now-available/)
