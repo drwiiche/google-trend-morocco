@@ -1,3 +1,10 @@
+### russie sahara marocain (N/A, Wed, 15 Oct 2025 01:30:00 -0700)
+
+- **Sahara marocain : la Russie "ouverte à toute solution acceptable par toutes les parties"**: [Link](https://medias24.com/2025/10/13/sahara-marocain-la-russie-ouverte-a-toute-solution-acceptable-par-toutes-les-parties/)
+- **Sahara occidental : la Russie entrouvre la voie à une résolution du conflit**: [Link](https://www.jeuneafrique.com/1730808/politique/sahara-occidental-la-russie-entrouvre-la-voie-a-une-resolution-du-conflit/)
+- **Riyad réitère son soutien à la souveraineté du Maroc sur le Sahara à l’ONU**: [Link](https://www.leconomiste.com/flash-infos/riyad-reitere-son-soutien-a-la-souverainete-du-maroc-sur-le-sahara-a-lonu/)
+
+
 ### issa tchiroma bakary (N/A, Wed, 15 Oct 2025 00:40:00 -0700)
 
 - **Présidentielle au Cameroun : l’opposant Issa Tchiroma Bakary revendique une « victoire claire »**: [Link](https://www.lemonde.fr/afrique/article/2025/10/14/presidentielle-au-cameroun-issa-tchiroma-bakary-revendique-la-victoire-face-a-paul-biya_6646456_3212.html)
