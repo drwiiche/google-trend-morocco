@@ -1,3 +1,17 @@
+### bein sports live (N/A, Wed, 15 Oct 2025 13:10:00 -0700)
+
+- **Ranked: All 87 national teams that could win the 2026 World Cup**: [Link](https://www.espn.com/soccer/story/_/id/46587255/2026-world-cup-squad-ranking-national-teams-win)
+- **Saudi Arabia earn draw with Iraq to secure World Cup berth**: [Link](https://www.reuters.com/sports/soccer/saudi-arabia-draw-with-iraq-qualify-2026-world-cup-2025-10-14/)
+- **World Cup qualifiers list: Full list of all teams wey don qualify for 2026 World Cup so far**: [Link](https://www.bbc.com/pidgin/articles/cjw9d8w59ejo)
+
+
+### ايات اباظة (N/A, Wed, 15 Oct 2025 13:10:00 -0700)
+
+- **تطورات الحالة الصحية لـ آيات أباظة زوجة عمرو محمود ياسين بعد خضوعها لجراحة دقيقة**: [Link](https://www.almasryalyoum.com/news/details/3574919)
+- **شهيرة تكشف تفاصيل الأزمة الصحية لزوجة ابنها آيات أباظة**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1822052-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D8%A2%D9%8A%D8%A7%D8%AA-%D8%A3%D8%A8%D8%A7%D8%B8%D8%A9)
+- **فنون / شهيرة تكشف تطورات الحالة الصحية لـ آيات أباظة: «خضعت لعملية مدتها 5 ساعات»**: [Link](https://www.khabarmasr.com/news/get_news/1006684/%D8%B4%D9%87%D9%8A%D8%B1%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%80-%D8%A2%D9%8A%D8%A7%D8%AA-%D8%A3%D8%A8%D8%A7%D8%B8%D8%A9:-%C2%AB%D8%AE%D8%B6%D8%B9%D8%AA-%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D9%85%D8%AF%D8%AA%D9%87%D8%A7-5-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA%C2%BB)
+
+
 ### arryadia tnt (N/A, Wed, 15 Oct 2025 13:00:00 -0700)
 
 
