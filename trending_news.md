@@ -1,3 +1,17 @@
+### match maroc france u20 (N/A, Wed, 15 Oct 2025 08:20:00 -0700)
+
+- **France-Maroc: à quelle heure et sur quelle chaîne TV voir le match des Bleuets en Coupe du monde U20?**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/france-maroc-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-des-bleuets-en-coupe-du-monde-u20_AV-202510150641.html)
+- **Maroc - France U20 : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/10/15/maroc-france-u20-quelle-heure-quelles-chaines/)
+- **France - Maroc. Pourquoi les Bleuets peuvent trembler en demi-finale de Coupe du monde U20**: [Link](https://www.ouest-france.fr/sport/football/equipe-maroc/coupe-du-monde-u20-on-peut-faire-mal-a-nimporte-qui-comment-le-maroc-a-enchaine-les-exploits-7bd31978-a839-11f0-a399-70ff1c676380)
+
+
+### victoria secret fashion show 2025 (N/A, Wed, 15 Oct 2025 06:20:00 -0700)
+
+- **Want to watch the 2025 Victoria's Secret Fashion Show? Here are the details.**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2025/10/15/victorias-secret-fashion-show-2025-time-watch/86703597007/)
+- **Backstage at the Victoria’s Secret Fashion Show 2025: How models are getting ready for the runway**: [Link](https://pagesix.com/2025/10/15/photos/backstage-at-the-victorias-secret-fashion-show-2025-models-getting-ready-for-the-runway/)
+- **Want to watch the Victoria's Secret Fashion Show this year? Here's how**: [Link](https://www.statesman.com/entertainment/article/victorias-secret-fashion-show-2025-how-watch-live-21102043.php)
+
+
 ### المغرب ضد فرنسا (N/A, Wed, 15 Oct 2025 10:00:00 -0700)
 
 - **موعد مباراة المغرب ضد فرنسا بنصف نهائي مونديال الشباب والتشكيلة والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/10/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
