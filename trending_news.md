@@ -1,3 +1,36 @@
+### arryadia tnt (N/A, Wed, 15 Oct 2025 13:00:00 -0700)
+
+
+
+
+### تردد قناة bein sport المفتوحة نايل سات (N/A, Wed, 15 Oct 2025 13:00:00 -0700)
+
+- **تردد قناة beIN Sports المفتوحة على نايل سات 2025**: [Link](https://al-ain.com/article/bein-sports-channels-frequency-2025)
+- **استمتع بكأس العالم 2026 والدوري الإنجليزي من بيتك واستقبل تردد بي إن سبورت وتردد اون تايم سبورت**: [Link](https://sa.tqwem.com/mix/%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA/)
+- **الحق قبل الماتش يفوتك! تردد قناة بين سبورت 2025 على النايل سات والعرب سات لمتابعة تصفيات كأس العالم 2026**: [Link](https://ghorbanews.com/68050/)
+
+
+### elyaz zidane (N/A, Wed, 15 Oct 2025 12:50:00 -0700)
+
+- **« Ça fait trois ans qu'on travaille pour qu'il se libère » : l'émancipation d'Elyaz, dernier de la fratrie Zidane et joueur le plus utilisé de l'équipe de France U20**: [Link](https://www.lequipe.fr/Football/Article/-ca-fait-trois-ans-qu-on-travaille-pour-qu-il-se-libere-l-emancipation-d-elyaz-dernier-de-la-fratrie-zidane-et-nouveau-cadre-de-l-equipe-de-france-u20/1601517)
+- **EdF U20 : Bernard Diomède défend Elyaz Zidane**: [Link](https://www.footmercato.net/a1291630485466548326-edf-u20-bernard-diomede-defend-elyaz-zidane)
+- **«Il a les qualités pour jouer au haut niveau» : le sélectionneur de l’équipe de France U20 juge l’un des fils de Zinédine Zidane**: [Link](https://www.cnews.fr/sport/2025-10-14/il-les-qualites-pour-jouer-au-haut-niveau-le-selectionneur-de-lequipe-de-france)
+
+
+### morocco u-20 vs france u-20 (N/A, Wed, 15 Oct 2025 12:20:00 -0700)
+
+- **FIFA U-20 World Cup: Morocco reach the semi-finals**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/fifa-u-20-world-cup-morocco-reach-the-semi-finals/)
+- **Morocco vs France: When, How to Watch U20 World Cup Semi Final**: [Link](https://www.moroccoworldnews.com/2025/10/263696/morocco-vs-france-when-how-to-watch-u20-world-cup-semi-final/)
+- **Atlas Cubs aim for victory against France in U20 World Cup semi-final**: [Link](https://en.yabiladi.com/articles/details/178823/atlas-cubs-victory-against-france.html)
+
+
+### victoria secret (N/A, Wed, 15 Oct 2025 10:20:00 -0700)
+
+- **Want to watch the 2025 Victoria's Secret Fashion Show? Here are the details.**: [Link](https://www.usatoday.com/story/entertainment/celebrities/2025/10/15/victorias-secret-fashion-show-2025-time-watch/86703597007/)
+- **Backstage at the Victoria’s Secret Fashion Show 2025: How models are getting ready for the runway**: [Link](https://pagesix.com/2025/10/15/photos/backstage-at-the-victorias-secret-fashion-show-2025-models-getting-ready-for-the-runway/)
+- **Want to watch the Victoria's Secret Fashion Show this year? Here's how**: [Link](https://www.statesman.com/entertainment/article/victorias-secret-fashion-show-2025-how-watch-live-21102043.php)
+
+
 ### lionel messi (N/A, Wed, 15 Oct 2025 12:30:00 -0700)
 
 - **'Fearless' - Lionel Messi says Brighton's attacking star is a top 10 world talent**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/fearless-lionel-messi-says-brightons-21-year-old-attacking-star-is-a-top-10-world-talent-5361092)
