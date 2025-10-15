@@ -1,3 +1,10 @@
+### morocco vs france u20 (N/A, Wed, 15 Oct 2025 08:10:00 -0700)
+
+- **Morocco’s U-20 Players Set Sights on the World Cup Title**: [Link](https://www.moroccoworldnews.com/2025/10/263364/moroccos-u-20-players-set-sights-on-the-world-cup-title/)
+- **FIFA U-20 World Cup: Morocco reach the semi-finals**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/fifa-u-20-world-cup-morocco-reach-the-semi-finals/)
+- **U20 World Cup: 5 things to know about Othmane Maamma, the tournament’s third-best dribbler**: [Link](https://foot-africa.com/en/news/u20-world-cup-5-things-to-know-about-othmane-maamma-the-tournaments-third-best-dribbler-917868/)
+
+
 ### président malgache andry rajoelina (N/A, Wed, 15 Oct 2025 06:40:00 -0700)
 
 - **Military says it has seized power in Madagascar after president moves to 'safe place'**: [Link](https://www.bbc.com/news/articles/cn8xjjdgl8vo)
