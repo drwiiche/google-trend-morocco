@@ -1,3 +1,10 @@
+### madagascar (N/A, Tue, 14 Oct 2025 22:10:00 -0700)
+
+- **A Madagascar, ces heures qui ont mené les militaires à renverser Andry Rajoelina**: [Link](https://www.lemonde.fr/afrique/article/2025/10/14/a-madagascar-ces-heures-qui-ont-mene-les-militaires-a-renverser-andry-rajoelina_6646650_3212.html)
+- **Crise à Madagascar: le président Andry Rajoelina a été exfiltré par un avion militaire français [Info RFI]**: [Link](https://www.rfi.fr/fr/afrique/20251013-crise-%C3%A0-madagascar-le-pr%C3%A9sident-andry-rajoelina-a-%C3%A9t%C3%A9-exfiltr%C3%A9-par-un-avion-militaire-fran%C3%A7ais-info-rfi)
+- **Président introuvable, armée qui rejoint les mutins, 22 morts dans les manifestations : que se passe-t-il à Madagascar ?**: [Link](https://www.lefigaro.fr/international/president-introuvable-armee-qui-rejoint-les-mutins-22-morts-dans-les-manifestations-que-se-passe-t-il-a-madagascar-20251013)
+
+
 ### mexique – équateur (N/A, Tue, 14 Oct 2025 21:00:00 -0700)
 
 - **Streaming Mexique/Equateur : Où et comment voir le match?**: [Link](https://www.parisfans.fr/autour-du-psg/streaming-mexique-equateur-ou-et-comment-voir-le-match-875360.html)
