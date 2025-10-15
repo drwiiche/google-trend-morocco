@@ -1,3 +1,17 @@
+### argentine (N/A, Wed, 15 Oct 2025 16:10:00 -0700)
+
+- **Les Etats-Unis confirment leur aide à l’Argentine, menaçant de l’arrêter en cas de défaite électorale de Milei fin octobre**: [Link](https://www.lemonde.fr/economie/article/2025/10/15/les-etats-unis-confirment-leur-aide-a-l-argentine-menacant-de-l-arreter-en-cas-de-defaite-electorale-de-milei-fin-octobre_6646927_3234.html)
+- **Milei chez Trump pour sceller l'aide financière américaine à l'Argentine**: [Link](https://medias24.com/agence-presse/milei-chez-trump-pour-sceller-laide-financiere-americaine-a-largentine/)
+- **Les États-Unis travaillent avec le privé sur un autre soutien de 20 milliards de dollars à l'Argentine**: [Link](https://www.rtbf.be/article/les-etats-unis-travaillent-avec-le-prive-sur-un-autre-soutien-de-20-milliards-de-dollars-a-l-argentine-11616907)
+
+
+### argentine u-20 – colombie u-20 (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
+
+- **FIFA U-20 World Cup: 2 countries qualify for semi-final**: [Link](https://www.vanguardngr.com/2025/10/fifa-u-20-world-cup-2-countries-qualify-for-semi-final/)
+- **Argentina U20 starting eleven vs. Colombia at U20 World Cup**: [Link](https://mundoalbiceleste.com/2025/10/15/argentina-u20-starting-eleven-vs-colombia-at-u20-world-cup/)
+- **U20 World Cup: Semi-final and final schedule**: [Link](https://foot-africa.com/en/news/u20-world-cup-semi-final-and-final-schedule-915438/)
+
+
 ### argentine vs (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
 
 - **Lionel Messi bat un record mondial lors de la très large victoire de l'Argentine face à Porto Rico en match amical**: [Link](https://www.lequipe.fr/Football/Actualites/Lionel-messi-bat-un-record-mondial-lors-de-la-tres-large-victoire-de-l-argentine-face-a-porto-rico-en-match-amical/1601727)
