@@ -1,3 +1,31 @@
+### argentine vs (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
+
+- **Lionel Messi bat un record mondial lors de la très large victoire de l'Argentine face à Porto Rico en match amical**: [Link](https://www.lequipe.fr/Football/Actualites/Lionel-messi-bat-un-record-mondial-lors-de-la-tres-large-victoire-de-l-argentine-face-a-porto-rico-en-match-amical/1601727)
+- **Lionel Messi devient le meilleur passeur de l’histoire en sélection**: [Link](https://www.footmercato.net/a2064126823197499386-lionel-messi-devient-le-meilleur-passeur-de-lhistoire-en-selection)
+- **Lionel Messi signe un nouveau record historique avec l’Argentine**: [Link](https://fr.hespress.com/445502-lionel-messi-signe-un-nouveau-record-historique-avec-largentine.html)
+
+
+### football (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
+
+- **NFL Fantasy 2025 Start 'Em, Sit 'Em: Quarterbacks for Week 7**: [Link](https://www.nfl.com/news/nfl-fantasy-2025-start-em-sit-em-quarterbacks-for-week-7)
+- **Thorman’s Snaps and Pace: Week 7**: [Link](https://establishtherun.com/thormans-snaps-and-pace-week-7-6/)
+- **Week 7 Waiver Wire Top Pickups and Drops Likely Available After Reviewing Box Scores**: [Link](https://bleacherreport.com/articles/25260663-week-7-waiver-wire-top-pickups-and-drops-likely-available-after-reviewing-box-scores)
+
+
+### argentina vs colombia (N/A, Wed, 15 Oct 2025 15:50:00 -0700)
+
+- **Mundial Sub-20: cuándo y en qué horario se jugará la final del torneo**: [Link](https://www.mundodeportivo.com/us/futbol/20251015/732471/mundial-sub-20-cuando-que-horario-jugara-final-torneo.html)
+- **Partido de un millón de dólares: Esta es la plata que se juega la Selección Colombia Sub-20 si le gana a Argentina**: [Link](https://es-us.noticias.yahoo.com/partido-mill%C3%B3n-d%C3%B3lares-plata-juega-194500729.html)
+- **¿Por qué no juega Neyser Villarreal en Argentina vs Colombia del Sub 20?**: [Link](https://www.365scores.com/es/news/neyser-villarreal-no-juega-semifinal/)
+
+
+### 2022 world cup (N/A, Wed, 15 Oct 2025 15:50:00 -0700)
+
+- **South Africa qualify | CAF World Cup qualifiers 14 October 2025 | World Cup 26**: [Link](https://www.fifa.com/en/tournaments/mens/worldcup/canadamexicousa2026/articles/caf-qualifiers-matchday-ten-review-three)
+- **World Cup 2026: Tickets, weather, format, kick-off times, qualifiers**: [Link](https://www.bbc.com/sport/football/articles/clyd77mz8z1o)
+- **All to know about FIFA World Cup 2026 – teams, qualifying, format, draw**: [Link](https://www.aljazeera.com/sports/2025/10/15/all-to-know-about-fifa-world-cup-2026)
+
+
 ### argentine vs colombie u20 (N/A, Wed, 15 Oct 2025 14:30:00 -0700)
 
 - **الأرجنتين تكتسح نيجيريا برباعية نظيفة وتتأهل إلى ربع نهائي كأس العالم لأقل من 20 سنة**: [Link](https://www.matchpresse.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%AA%D9%83%D8%AA%D8%B3%D8%AD-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%A8%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D9%86%D8%B8%D9%8A%D9%81/)
