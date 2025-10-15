@@ -1,3 +1,10 @@
+### match live (N/A, Wed, 15 Oct 2025 14:20:00 -0700)
+
+- **Puerto Rico 0-6 Argentina (Oct 14, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/758373)
+- **Argentina vs Puerto Rico highlights: Messi has two assists in win at Chase Stadium**: [Link](https://www.usatoday.com/story/sports/soccer/2025/10/14/messi-argentina-vs-puerto-rico-inter-miami-score-highlights/86689166007/)
+- **Internationals: Alexis Mac Allister scores twice for Argentina against Puerto Rico**: [Link](https://www.liverpoolfc.com/news/internationals-alexis-mac-allister-scores-twice-argentina-against-puerto-rico)
+
+
 ### zidane (N/A, Wed, 15 Oct 2025 14:10:00 -0700)
 
 - **Cranes World Cup dream ends in late Algerian drama**: [Link](https://www.monitor.co.ug/uganda/sports/soccer/cranes-world-cup-dream-ends-in-late-algerian-drama-5230536)
