@@ -1,3 +1,17 @@
+### argentina (N/A, Wed, 15 Oct 2025 16:20:00 -0700)
+
+- **Trump Helped Argentina Face an Economic Meltdown. It Came At a Cost.**: [Link](https://www.nytimes.com/2025/10/15/world/americas/argentina-trump-javier-milei.html)
+- **What to know about the Trump administration's $20B bailout for Argentina**: [Link](https://abcnews.go.com/Politics/trump-administrations-20b-bailout-argentina/story?id=126513232)
+- **Bessent says US considers doubling aid to Argentina by tapping outside funding**: [Link](https://www.politico.com/news/2025/10/15/bessent-says-u-s-considers-doubling-aid-to-argentina-by-tapping-outside-funding-00609011)
+
+
+### كووورة (N/A, Wed, 15 Oct 2025 15:40:00 -0700)
+
+- **أضعف منتخب في العالم يحلم بالمونديال.. والهزيمة الثقيلة شرط مواصلة الطريق!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B6%D8%B9%D9%81-%D9%81%D8%B1%D9%8A%D9%82-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%8A%D8%AD%D9%84%D9%85-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84--%D9%88%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%AB%D9%82%D9%8A%D9%84%D8%A9-%D8%B4%D8%B1%D8%B7-%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%E2%80%8E/bltd431871a5a5eda80)
+- **10 منتخبات تقترب من حسم التأهل للمونديال هذا الأسبوع**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%88%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%88%D8%A2%D8%B3%D9%8A%D9%88%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84/10126)
+- **أبرز 5 حقائق من تصفيات أوروبا لكأس العالم 2026**: [Link](https://hihi2.com/2025/10/15/p3428107.html)
+
+
 ### argentine (N/A, Wed, 15 Oct 2025 16:10:00 -0700)
 
 - **Les Etats-Unis confirment leur aide à l’Argentine, menaçant de l’arrêter en cas de défaite électorale de Milei fin octobre**: [Link](https://www.lemonde.fr/economie/article/2025/10/15/les-etats-unis-confirment-leur-aide-a-l-argentine-menacant-de-l-arreter-en-cas-de-defaite-electorale-de-milei-fin-octobre_6646927_3234.html)
