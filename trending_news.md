@@ -1,3 +1,10 @@
+### porto rico – argentine (N/A, Tue, 14 Oct 2025 16:30:00 -0700)
+
+- **Lionel Messi bat un record mondial lors de la très large victoire de l'Argentine face à Porto Rico en match amical**: [Link](https://www.lequipe.fr/Football/Actualites/Lionel-messi-bat-un-record-mondial-lors-de-la-tres-large-victoire-de-l-argentine-face-a-porto-rico-en-match-amical/1601727)
+- **L’Argentine étrille Porto Rico, Messi double passeur**: [Link](https://sport.le360.ma/football/largentine-etrille-porto-rico-messi-double-passeur_Z26TX6DCMVGCHJ53QCA6TBO2YY/)
+- **Leonardo Balerdi titulaire et performant, l'Argentine écrase Porto Rico**: [Link](https://madeinmarseillais.ouest-france.fr/infos/article-argentine-leonardo-balerdi-titulaire-et-performant-l-argentine-ecrase-porto-rico-499268.html)
+
+
 ### argentine foot (N/A, Tue, 14 Oct 2025 18:40:00 -0700)
 
 - **L’Argentine étrille Porto Rico, Messi double passeur**: [Link](https://sport.le360.ma/football/largentine-etrille-porto-rico-messi-double-passeur_Z26TX6DCMVGCHJ53QCA6TBO2YY/)
