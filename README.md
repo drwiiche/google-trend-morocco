@@ -1,3 +1,17 @@
+### flashscore (N/A, Wed, 15 Oct 2025 15:00:00 -0700)
+
+- **Monchi discusses Arsenal transfer interest in Ollie Watkins as Aston Villa bid stance revealed**: [Link](https://www.football.london/arsenal-fc/transfer-news/monchi-discusses-arsenal-transfer-interest-32682920)
+- **EXCLUSIVE: Monchi reflects on his work at Sevilla & reviving his hometown club**: [Link](https://www.flashscore.com/news/soccer-laliga-exclusive-monchi-reflects-on-his-work-at-sevilla-reviving-his-hometown-club/EDi8odOa/)
+- **Monchi Breaks Silence on His Aston Villa Exit, Time in Birmingham and Rogers Surprise**: [Link](https://myoldmansaid.com/monchi-breaks-silence-on-his-aston-villa-exit-time-in-birmingham-and-rogers-surprise/)
+
+
+### score live (N/A, Wed, 15 Oct 2025 14:50:00 -0700)
+
+- **Roma vs Barcelona: UEFA Women's Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cyv6dv90nr0t)
+- **How To Watch UEFA Women’s Champions League: Roma vs Barcelona TV Channel and Live Stream Info**: [Link](https://www.footitalia.com/news/how-to-watch-uwcl-roma-barcelona-tv-live-stream/)
+- **Roma Vs Barcelona Live Score, UEFA Women’s Champions League 2025-26**: [Link](https://www.bradfordtoday.ca/classifieds/homes-rentals-and-real-estate/open-houses/2033795)
+
+
 ### argentine u20 (N/A, Wed, 15 Oct 2025 14:40:00 -0700)
 
 - **Argentina U20 national team in semi finals of U20 World Cup after 18 years**: [Link](https://mundoalbiceleste.com/2025/10/12/argentina-u20-national-team-in-semi-finals-of-u20-world-cup-after-18-years/)
