@@ -1,3 +1,38 @@
+### live score (N/A, Wed, 15 Oct 2025 14:50:00 -0700)
+
+- **TRIA Prep Salute, Oct 14: Caleb Francois leads Minnetonka football**: [Link](https://kstp.com/minnesota-sports/tria-prep-salute-oct-14-francois-leads-minnetonka-football/)
+- **Minnetonka vs Maple Grove: Live score updates of top Minnesota high school football matchup - Oct. 15, 2025**: [Link](https://www.si.com/high-school/minnesota/minnetonka-vs-maple-grove-live-score-updates-of-top-minnesota-high-school-football-matchup-oct-15-2025-01k7mm1a53gt)
+- **Watch: Minnetonka football on mission to return to 6A Prep Bowl**: [Link](https://kstp.com/minnesota-sports/watch-minnetonka-football-on-mission-to-return-to-6a-prep-bowl/)
+
+
+### olmeta (N/A, Wed, 15 Oct 2025 14:20:00 -0700)
+
+- **Mondial U20 : Lisandru Olmeta affiche ses ambitions avant d’affronter le Maroc**: [Link](https://mountakhab.net/mondial-u20-lisandru-olmeta-affiche-ses-ambitions-avant-daffronter-le-maroc/)
+- **"Je ne suis pas aussi fou que mon père" : Lisandru Olmeta dans l'ombre de son père**: [Link](https://www.linternaute.com/sport/foot/9018331-je-ne-suis-pas-aussi-fou-que-mon-pere-lisandru-olmeta-dans-l-ombre-de-pascal-olmeta/)
+- **« Le petit a fait fort quand même » : Lisandru Olmeta, digne héritier de son père et ange gardien des Bleuets**: [Link](https://www.leparisien.fr/sports/football/equipe-de-france/le-petit-a-fait-fort-quand-meme-lisandru-olmeta-digne-heritier-de-son-pere-et-ange-gardien-des-bleuets-12-10-2025-EO3XUWN6WZE77OHK45I3N6JORE.php)
+
+
+### المغرب وفرنسا مباشرة الان (N/A, Wed, 15 Oct 2025 14:10:00 -0700)
+
+- **جيد يدير مباراة الأرجنتين والمكسيك**: [Link](https://www.hespress.com/%D8%AC%D9%8A%D8%AF-%D9%8A%D8%AF%D9%8A%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83-1638316.html)
+- **الأرجنتين يضرب موعدا ناريا مع كولومبيا في نصف النهائي**: [Link](https://www.almountakhab.com/node/16218439)
+- **موعد مباراة الأرجنتين وكولومبيا في نصف نهائي كأس العالم لأقل من 20 سنة 2025 والقنوات الناقلة**: [Link](https://chamaly.ma/2025/10/15/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D9%86%D8%B5/)
+
+
+### u20 world cup (N/A, Wed, 15 Oct 2025 13:50:00 -0700)
+
+- **Colombia Faces Argentina in U-20 World Cup Semifinals**: [Link](https://colombiaone.com/2025/10/15/colombia-argentina-u-20-world-cup-semifinal/)
+- **Who's in FIFA U-20 World Cup semi-finals?**: [Link](https://www.gamereactor.eu/whos-in-fifa-u-20-world-cup-semi-finals-1616593/)
+- **U20 World Cup: Placente’s line-up against Colombia to reach the final**: [Link](https://onefootball.com/en/news/u20-world-cup-placentes-line-up-against-colombia-to-reach-the-final-41808843)
+
+
+### morocco (N/A, Wed, 15 Oct 2025 13:40:00 -0700)
+
+- **Duke Buchan Sworn In as US Ambassador to Morocco, to Arrive in Rabat Soon**: [Link](https://www.moroccoworldnews.com/2025/10/263783/duke-buchan-sworn-in-as-us-ambassador-to-morocco-to-arrive-in-rabat-soon/)
+- **US Senate Confirms Duke Buchan III as Ambassador to Morocco**: [Link](https://barlamantoday.com/2025/10/09/us-senate-confirms-duke-buchan-as-ambassador-to-morocco/)
+- **U.S. Senate confirms nomination of Duke Buchan as ambassador to Morocco**: [Link](https://northafricapost.com/91340-u-s-senate-confirms-nomination-of-duke-buchan-as-ambassador-to-morocco.html)
+
+
 ### flashscore (N/A, Wed, 15 Oct 2025 15:00:00 -0700)
 
 - **Monchi discusses Arsenal transfer interest in Ollie Watkins as Aston Villa bid stance revealed**: [Link](https://www.football.london/arsenal-fc/transfer-news/monchi-discusses-arsenal-transfer-interest-32682920)
