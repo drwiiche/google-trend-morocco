@@ -1,3 +1,10 @@
+### issa tchiroma bakary (N/A, Wed, 15 Oct 2025 00:40:00 -0700)
+
+- **Présidentielle au Cameroun : l’opposant Issa Tchiroma Bakary revendique une « victoire claire »**: [Link](https://www.lemonde.fr/afrique/article/2025/10/14/presidentielle-au-cameroun-issa-tchiroma-bakary-revendique-la-victoire-face-a-paul-biya_6646456_3212.html)
+- **Présidentielle au Cameroun: duel Biya/Tchiroma dans l'attente des résultats**: [Link](https://medias24.com/agence-presse/presidentielle-au-cameroun-duel-biya-tchiroma-dans-lattente-des-resultats/)
+- **Cameroun : primo-votants, stop ou encore ?**: [Link](https://afrique.tv5monde.com/information/cameroun-primo-votants-stop-ou-encore)
+
+
 ### porto rico – argentine (N/A, Tue, 14 Oct 2025 16:30:00 -0700)
 
 - **Lionel Messi bat un record mondial lors de la très large victoire de l'Argentine face à Porto Rico en match amical**: [Link](https://www.lequipe.fr/Football/Actualites/Lionel-messi-bat-un-record-mondial-lors-de-la-tres-large-victoire-de-l-argentine-face-a-porto-rico-en-match-amical/1601727)
