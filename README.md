@@ -1,3 +1,38 @@
+### gessime yassine (N/A, Wed, 15 Oct 2025 14:00:00 -0700)
+
+- **Mercato : ça s’agite déjà autour de la pépite du Maroc Gessime Yassine**: [Link](https://www.footmercato.net/a5957717274467964372-mercato-ca-sagite-deja-autour-de-la-pepite-du-maroc-gessime-yassine)
+- **U20 : Gessime Yassine convoité par six clubs de la Bundesliga**: [Link](https://fr.hespress.com/445467-u20-gessime-yassine-convoite-par-six-clubs-de-la-bundesliga.html)
+- **Strasbourg suit l'ailier de Dunkerque Gessime Yassine, excellent avec le Maroc à la Coupe du monde U20**: [Link](https://www.lequipe.fr/Football/Actualites/Strasbourg-suit-l-ailier-de-dunkerque-gessime-yassine-excellent-avec-le-maroc-a-la-coupe-du-monde-u20/1601485)
+
+
+### yanis benchaouch (N/A, Wed, 15 Oct 2025 13:50:00 -0700)
+
+- **Maroc U20 : Aston Villa s’intéresse à Yanis Benchaouch**: [Link](https://fr.hespress.com/445363-maroc-u20-aston-villa-sinteresse-a-yanis-benchaouch.html)
+- **Une pépite de l’AS Monaco en Premier League ?**: [Link](https://www.sport.fr/football/une-pepite-de-las-monaco-en-premier-league-1365863.shtm)
+- **Yanis Benchaouch est dans le viseur d'Aston Villa : le Marocain trouvera-t-il sa voie en Angleterre**: [Link](https://onefootball.com/fr/news/yanis-benchaouch-est-dans-le-viseur-daston-villa-le-marocain-trouvera-t-il-sa-voie-en-angleterre-41804611)
+
+
+### lisandru olmeta (N/A, Wed, 15 Oct 2025 13:50:00 -0700)
+
+- **Mondial U20 : Lisandru Olmeta affiche ses ambitions avant d’affronter le Maroc**: [Link](https://mountakhab.net/mondial-u20-lisandru-olmeta-affiche-ses-ambitions-avant-daffronter-le-maroc/)
+- **"Je ne suis pas aussi fou que mon père" : Lisandru Olmeta dans l'ombre de son père**: [Link](https://www.linternaute.com/sport/foot/9018331-je-ne-suis-pas-aussi-fou-que-mon-pere-lisandru-olmeta-dans-l-ombre-de-pascal-olmeta/)
+- **« Le petit a fait fort quand même » : Lisandru Olmeta, digne héritier de son père et ange gardien des Bleuets**: [Link](https://www.leparisien.fr/sports/football/equipe-de-france/le-petit-a-fait-fort-quand-meme-lisandru-olmeta-digne-heritier-de-son-pere-et-ange-gardien-des-bleuets-12-10-2025-EO3XUWN6WZE77OHK45I3N6JORE.php)
+
+
+### valparaiso (N/A, Wed, 15 Oct 2025 13:50:00 -0700)
+
+- **Activan protocolo por paquete sospechoso en sucursal de Banco Estado en Valparaíso**: [Link](https://soy-chile.cl/valparaiso/sociedad/2025/10/15/925022/paquete-sospechoso-banco-valparaiso-carabineros.html)
+- **Una mochila con “accesorios”: descartan artefacto explosivo en sucursal de Banco Estado en Valparaíso**: [Link](https://soychile.cl/Valparaiso/Sociedad/2025/10/15/925022/paquete-sospechoso-banco-valparaiso-carabineros.html)
+- **Activan protocolo por paquete sospechoso en sucursal de Banco Estado en Valparaíso**: [Link](https://www.soychile.cl/Valparaiso/Sociedad/2025/10/15/925022/paquete-sospechoso-banco-valparaiso-carabineros.html)
+
+
+### sports (N/A, Wed, 15 Oct 2025 13:30:00 -0700)
+
+- **NFL buzz for Week 7: What we're hearing on the Eagles' offense, 49ers' injuries, Titans' coaching change**: [Link](https://www.espn.com/nfl/story/_/id/46584393/nfl-week-7-buzz-news-updates-fantasy-intel-questions-predictions)
+- **Prisco's NFL picks, Week 7: Steelers beat Bengals, Bucs lose close one to Lions**: [Link](https://www.cbssports.com/nfl/news/pete-priscos-week-7-nfl-picks-odds-best-bets-steelers-bengals-lions-buccaneers/)
+- **NFL Week 7: Picks, predictions and odds for every game**: [Link](https://www.usatoday.com/story/sports/nfl/2025/10/15/nfl-week-7-picks-predictions-and-odds-every-game/86699837007/)
+
+
 ### maroc (N/A, Wed, 15 Oct 2025 13:40:00 -0700)
 
 - **Nasser Bourita attendu ce jeudi 16 octobre en Russie**: [Link](https://medias24.com/2025/10/15/nasser-bourita-attendu-ce-jeudi-16-octobre-en-russie/)
