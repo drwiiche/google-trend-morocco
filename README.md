@@ -1,3 +1,10 @@
+### argentine u20 (N/A, Wed, 15 Oct 2025 14:40:00 -0700)
+
+- **Argentina U20 national team in semi finals of U20 World Cup after 18 years**: [Link](https://mundoalbiceleste.com/2025/10/12/argentina-u20-national-team-in-semi-finals-of-u20-world-cup-after-18-years/)
+- **FIFA men's U-20 World Cup: Colombia and Argentina in all-South American semi-final, Morocco vs France face off - schedule and how to watch live**: [Link](https://www.olympics.com/en/news/fifa-u-20-world-cup-colombia-argentina-semi-finals-schedule)
+- **FIFA U20 World Cup: Spain and US eliminated as France and Argentina reach semi-finals**: [Link](https://footballtoday.com/2025/10/13/fifa-u20-world-cup-spain-and-us-eliminated-as-france-and-argentina-reach-semi-finals/)
+
+
 ### match live (N/A, Wed, 15 Oct 2025 14:20:00 -0700)
 
 - **Puerto Rico 0-6 Argentina (Oct 14, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/758373)
