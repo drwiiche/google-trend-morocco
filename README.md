@@ -1,3 +1,10 @@
+### cristiano ronaldo (N/A, Wed, 15 Oct 2025 06:40:00 -0700)
+
+- **England qualify for 2026 World Cup, Ronaldo sets record as Portugal held**: [Link](https://www.aljazeera.com/sports/2025/10/15/england-qualify-for-2026-world-cup-ronaldo-sets-record-as-portugal-held)
+- **Portugal 2-2 Hungary: Cristiano Ronaldo sets scoring record as Portugal held to draw**: [Link](https://www.bbc.com/sport/football/live/c4g2nmexvmzt)
+- **Ronaldo Becomes All-Time Top Scorer in World Cup Qualifiers**: [Link](https://www.moroccoworldnews.com/2025/10/263642/ronaldo-becomes-all-time-top-scorer-in-world-cup-qualifiers/)
+
+
 ### آيات أباظة (N/A, Wed, 15 Oct 2025 05:20:00 -0700)
 
 - **بعد سرطانها، ياسمين عبد العزيز ترسل رسالة لزوجة عمرو محمود ياسين**: [Link](https://mangish.net/%D8%A8%D8%B9%D8%AF-%D8%B3%D8%B1%D8%B7%D8%A7%D9%86%D9%87%D8%A7%D8%8C-%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%AA%D8%B1%D8%B3%D9%84-%D8%B1%D8%B3/)
