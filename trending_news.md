@@ -1,3 +1,10 @@
+### آيات أباظة (N/A, Wed, 15 Oct 2025 05:20:00 -0700)
+
+- **بعد سرطانها، ياسمين عبد العزيز ترسل رسالة لزوجة عمرو محمود ياسين**: [Link](https://mangish.net/%D8%A8%D8%B9%D8%AF-%D8%B3%D8%B1%D8%B7%D8%A7%D9%86%D9%87%D8%A7%D8%8C-%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%AA%D8%B1%D8%B3%D9%84-%D8%B1%D8%B3/)
+- **فنون / شهيرة تكشف تطورات الحالة الصحية لـ آيات أباظة: «خضعت لعملية مدتها 5 ساعات»**: [Link](https://www.khabarmasr.com/news/get_news/1006684/%D8%B4%D9%87%D9%8A%D8%B1%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%80-%D8%A2%D9%8A%D8%A7%D8%AA-%D8%A3%D8%A8%D8%A7%D8%B8%D8%A9:-%C2%AB%D8%AE%D8%B6%D8%B9%D8%AA-%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D9%85%D8%AF%D8%AA%D9%87%D8%A7-5-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA%C2%BB)
+- **آيات أباظة في العناية المركزة بعد جراحة دقيقة.. والفنانة شهيرة تطلب الدعاء**: [Link](https://al-ain.com/article/health-ayaat-abaza)
+
+
 ### russie sahara marocain (N/A, Wed, 15 Oct 2025 01:30:00 -0700)
 
 - **Sahara marocain : la Russie "ouverte à toute solution acceptable par toutes les parties"**: [Link](https://medias24.com/2025/10/13/sahara-marocain-la-russie-ouverte-a-toute-solution-acceptable-par-toutes-les-parties/)
