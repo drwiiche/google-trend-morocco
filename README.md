@@ -1,3 +1,10 @@
+### président malgache andry rajoelina (N/A, Wed, 15 Oct 2025 06:40:00 -0700)
+
+- **Military says it has seized power in Madagascar after president moves to 'safe place'**: [Link](https://www.bbc.com/news/articles/cn8xjjdgl8vo)
+- **‘We don’t want power, we want lights’: Madagascar awaits post-Rajoelina era**: [Link](https://www.aljazeera.com/features/2025/10/15/we-dont-want-power-we-want-lights-madagascar-awaits-post-rajoelina-era)
+- **Gen Z Revolt Fells Another Government**: [Link](https://www.wsj.com/world/madagascar-becomes-latest-country-to-see-a-youth-revolt-766255bf?gaa_at=eafs&gaa_n=AWEtsqd9-2g-zK2UF-GCkRuM3tSswztidlmS6MufLxgh64hbNChXUYzVrU7w&gaa_ts=68efb7ef&gaa_sig=8fd1H1nvsICxlFcurMnMS9aQa0rKANeMpwEyZAw6igvFufJuObS74j6335N1FlCHG-JTDrTi7IJ8Qt7Me_BMAQ%3D%3D)
+
+
 ### cristiano ronaldo (N/A, Wed, 15 Oct 2025 06:40:00 -0700)
 
 - **England qualify for 2026 World Cup, Ronaldo sets record as Portugal held**: [Link](https://www.aljazeera.com/sports/2025/10/15/england-qualify-for-2026-world-cup-ronaldo-sets-record-as-portugal-held)
