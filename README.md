@@ -1,3 +1,17 @@
+### بورتو ريكو ضد الأرجنتين (N/A, Tue, 14 Oct 2025 17:30:00 -0700)
+
+- **"خطط ترامب" في شيكاغو تربك ميسي وزملاءه**: [Link](https://www.skynewsarabia.com/sport/1825873-%D8%AE%D8%B7%D8%B7-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%B4%D9%8A%D9%83%D8%A7%D8%BA%D9%88-%D8%AA%D8%B1%D8%A8%D9%83-%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D8%B2%D9%85%D9%84%D8%A7%D8%A1%D9%87)
+- **أزمة أرجنتينية تضع إنتر في ورطة قبل موقعة روما**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%81%D9%8A-%D9%88%D8%B1%D8%B7%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%B1%D9%88%D9%85%D8%A7/blte6aa599317274219)
+- **بث مباشر بجودة عالية..مشاهدة مباراة الأرجنتين ضد بورتوريكو وديًا ميسي يقود التانغو**: [Link](https://www.almashhad.news/347761)
+
+
+### puerto rico vs argentina (N/A, Tue, 14 Oct 2025 16:50:00 -0700)
+
+- **How To Watch: Puerto Rico vs Argentina on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/friendlies/articles/how-to-watch-puerto-rico-vs-argentina-on-bein-sports-2025-10-13)
+- **How to watch Puerto Rico vs Argentina live: Stream link, TV channel, team news, prediction**: [Link](https://www.nbcsports.com/soccer/news/puerto-rico-vs-argentina-live-updates-watch-live-score-news-highlights)
+- **Puerto Rico vs Argentina LIVE score, FIFA International Friendly: Where to watch Messi play? Kick-off at 5:30 AM IST**: [Link](https://sportstar.thehindu.com/football/argentina-vs-puerto-rico-live-score-updates-lionel-messi-highlights-friendly-where-to-watch-predictions-streaming-news/article70164674.ece)
+
+
 ### الرياضية (N/A, Tue, 14 Oct 2025 13:20:00 -0700)
 
 - **كوت ديفوار تعود إلى كأس العالم بعد غياب 12 عاما**: [Link](https://www.youm7.com/story/2025/10/15/%D9%83%D9%88%D8%AA-%D8%AF%D9%8A%D9%81%D9%88%D8%A7%D8%B1-%D8%AA%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A8%D8%B9%D8%AF-%D8%BA%D9%8A%D8%A7%D8%A8-12-%D8%B9%D8%A7%D9%85%D8%A7/7157435)
