@@ -1,3 +1,10 @@
+### lionel messi (N/A, Wed, 15 Oct 2025 12:30:00 -0700)
+
+- **'Fearless' - Lionel Messi says Brighton's attacking star is a top 10 world talent**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/fearless-lionel-messi-says-brightons-21-year-old-attacking-star-is-a-top-10-world-talent-5361092)
+- **Lionel Messi Chooses 10 of World's Best Young Footballers to Wear New Adidas Boots**: [Link](https://www.givemesport.com/lionel-messi-chooses-worlds-best-young-footballers-wear-new-boots/)
+- **Lionel Messi names Chelsea, Liverpool and Brighton players in football's top prospects**: [Link](https://metro.co.uk/2025/10/15/lionel-messi-names-chelsea-liverpool-brighton-players-footballs-top-prospects-24432770/)
+
+
 ### radio mars (N/A, Wed, 15 Oct 2025 00:30:00 -0700)
 
 - **نتيجة وملخص مباراة المغرب ضد الكونغو في تصفيات كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/14/morocco-vs-dr-congo)
