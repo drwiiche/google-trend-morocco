@@ -1,3 +1,45 @@
+### maroc (N/A, Wed, 15 Oct 2025 13:40:00 -0700)
+
+- **Nasser Bourita attendu ce jeudi 16 octobre en Russie**: [Link](https://medias24.com/2025/10/15/nasser-bourita-attendu-ce-jeudi-16-octobre-en-russie/)
+- **Sahara occidental : la Russie entrouvre la voie à une résolution du conflit**: [Link](https://www.jeuneafrique.com/1730808/politique/sahara-occidental-la-russie-entrouvre-la-voie-a-une-resolution-du-conflit/)
+- **Riyad réitère son soutien à la souveraineté du Maroc sur le Sahara à l’ONU**: [Link](https://www.leconomiste.com/flash-infos/riyad-reitere-son-soutien-a-la-souverainete-du-maroc-sur-le-sahara-a-lonu-2/)
+
+
+### angelo chanteur (N/A, Wed, 15 Oct 2025 13:40:00 -0700)
+
+- **Le chanteur américain D’Angelo, figure de la soul, est mort à l’âge de 51 ans**: [Link](https://www.lemonde.fr/disparitions/article/2025/10/14/le-chanteur-americain-d-angelo-figure-de-la-soul-est-mort-a-l-age-de-51-ans_6646640_3382.html)
+- **Beyoncé rend hommage à D'Angelo, icône du R&B**: [Link](https://fr.style.yahoo.com/beyonc%C3%A9-rend-hommage-%C3%A0-dangelo-071843899.html)
+- **Une pluie d'hommages pour D'Angelo**: [Link](https://qc.rollingstone.com/une-pluie-d-hommages-pour-d-angelo/)
+
+
+### yallakora (N/A, Wed, 15 Oct 2025 13:40:00 -0700)
+
+- **لأول مرة في التاريخ.. 7 منتخبات عربية في نهائيات كأس العالم**: [Link](https://www.skynewsarabia.com/sport/1827193-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-7-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **القارة السمراء تغيّر قواعد اللعبة.. ما الذي فعله أبناء الوطن؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%85%D8%B1%D8%A7%D8%A1-%D8%AA%D8%BA%D9%8A%D9%91%D8%B1-%D9%82%D9%88%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D9%84%D8%B9%D8%A8%D8%A9--%D9%85%D8%A7-%D8%A7%D9%84%D8%B0%D9%8A-%D9%81%D8%B9%D9%84%D9%87-%D8%A7%D9%94%D8%A8%D9%86%D8%A7%D8%A1-%D8%A7%D9%84%D9%88%D8%B7%D9%86/bltce2cc7544899a7f0)
+- **المغرب يستضيف الملحق المؤهل لكأس العالم 2026**: [Link](https://www.aljazeera.net/sport/2025/10/12/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D9%85%D8%A4%D9%87%D9%84-%D9%84%D9%83%D8%A3%D8%B3)
+
+
+### chile (N/A, Wed, 15 Oct 2025 13:40:00 -0700)
+
+- **Los desafíos ¿invisibles? de la descentralización en Chile**: [Link](https://www.ciperchile.cl/2025/10/15/los-desafios-invisibles-de-la-descentralizacion-en-chile/)
+- **América Móvil crece 8.1% en postpago en el 3T25**: [Link](https://mobiletime.la/noticias/15/10/2025/america-movil-3t25/)
+- **Crecimiento pospago impulsa ingresos de América Móvil en tercer trimestre**: [Link](https://dplnews.com/crecimiento-pospago-impulsa-ingresos-de-america-movil/)
+
+
+### match today (N/A, Wed, 15 Oct 2025 13:40:00 -0700)
+
+- **Rain saves England at Women’s World Cup and ruins Pakistan hopes of historic win**: [Link](https://www.theguardian.com/sport/2025/oct/15/england-pakistan-womens-world-cup-match-report-cricket)
+- **England's lucky break masks deeper batting issues**: [Link](http://kwese.espn.com/cricket/story/_/id/46607034/england-lucky-break-masks-deeper-batting-issues)
+- **Women’s World Cup 2025 points table: Updated team rankings and net run rate after Pakistan-England washout**: [Link](https://www.wisden.com/series/icc-womens-cricket-world-cup-2025/cricket-news/womens-world-cup-2025-points-table-updated-team-rankings-and-net-run-rate-after-pakistan-england-washout)
+
+
+### يلا شوت (N/A, Wed, 15 Oct 2025 13:10:00 -0700)
+
+- **إسبانيا تسحق بلغاريا في تصفيات المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AD%D9%82-%D8%A8%D9%84%D8%BA%D8%A7%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt10a1fa1d4b2bfa65)
+- **تصفيات مونديال 2026: إسبانيا تواصل العلامة الكاملة وإيطاليا تُبقي على آمالها**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251014-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%88%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%AA%D9%8F%D8%A8%D9%82%D9%8A-%D8%B9%D9%84%D9%89-%D8%A2%D9%85%D8%A7%D9%84%D9%87%D8%A7)
+- **إسبانيا تفترس بلغاريا وتركيا تنهي آمال جورجيا في التأهل لكأس العالم 2026**: [Link](https://www.alquds.co.uk/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%81%D8%AA%D8%B1%D8%B3-%D8%A8%D9%84%D8%BA%D8%A7%D8%B1%D9%8A%D8%A7-%D9%88%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%AA%D9%86%D9%87%D9%8A-%D8%A2%D9%85%D8%A7/)
+
+
 ### bet 365 (N/A, Wed, 15 Oct 2025 13:30:00 -0700)
 
 - **bet365 Bonus Code HANDLE: $200 Bet-and-Get for Thursday Night Football, Best Steelers vs. Bengals Betting Promo Today**: [Link](https://sportshandle.com/bet365-bonus-code-handle-200-bet-and-get-thursday-night-football-best-steelers-bengals-betting-promo-today/)
