@@ -1,3 +1,10 @@
+### zidane (N/A, Wed, 15 Oct 2025 14:10:00 -0700)
+
+- **Cranes World Cup dream ends in late Algerian drama**: [Link](https://www.monitor.co.ug/uganda/sports/soccer/cranes-world-cup-dream-ends-in-late-algerian-drama-5230536)
+- **World Cup 2026 qualifiers / Algeria 2 - Uganda 1: Zidane reacts!**: [Link](https://foot-africa.com/en/news/world-cup-2026-qualifiers-algeria-2-uganda-1-zidane-reacts-919434/)
+- **Algeria-Uganda, on which channel to watch the match?**: [Link](https://frenchfootballweekly.com/2025/10/14/algeria-uganda-on-which-channel-to-watch-the-match/)
+
+
 ### gessime yassine (N/A, Wed, 15 Oct 2025 14:00:00 -0700)
 
 - **Mercato : ça s’agite déjà autour de la pépite du Maroc Gessime Yassine**: [Link](https://www.footmercato.net/a5957717274467964372-mercato-ca-sagite-deja-autour-de-la-pepite-du-maroc-gessime-yassine)
