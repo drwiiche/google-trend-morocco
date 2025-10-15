@@ -1,3 +1,10 @@
+### argentine foot (N/A, Tue, 14 Oct 2025 18:40:00 -0700)
+
+- **L’Argentine étrille Porto Rico, Messi double passeur**: [Link](https://sport.le360.ma/football/largentine-etrille-porto-rico-messi-double-passeur_Z26TX6DCMVGCHJ53QCA6TBO2YY/)
+- **Argentine - Nicolas Tagliafico sur le banc, l'Argentine écrase Porto Rico**: [Link](https://madeingones.ouest-france.fr/infos/article-argentine-nicolas-tagliafico-sur-le-banc-l-argentine-ecrase-porto-rico-499268.html)
+- **"Une zone de guerre" : un match de Lionel Messi déplacé en raison d’opérations anti-migrants demandées par Donald Trump**: [Link](https://www.ladepeche.fr/2025/10/10/une-zone-de-guerre-un-match-de-lionel-messi-deplace-en-raison-doperations-anti-migrants-demandees-par-donald-trump-12983803.php)
+
+
 ### andry rajoelina (N/A, Tue, 14 Oct 2025 23:00:00 -0700)
 
 - **A Madagascar, ces heures qui ont mené les militaires à renverser Andry Rajoelina**: [Link](https://www.lemonde.fr/afrique/article/2025/10/14/a-madagascar-ces-heures-qui-ont-mene-les-militaires-a-renverser-andry-rajoelina_6646650_3212.html)
