@@ -1,3 +1,17 @@
+### stake (N/A, Tue, 14 Oct 2025 18:50:00 -0700)
+
+- **MacKenzie Scott Shrinks Her Amazon Stake by $12.6 Billion**: [Link](https://www.bloomberg.com/news/articles/2025-10-14/mackenzie-scott-shrinks-her-amazon-stake-by-12-6-billion)
+- **MacKenzie Scott cuts Amazon stake by 42%, Bloomberg News reports**: [Link](https://www.reuters.com/business/retail-consumer/mackenzie-scott-cuts-amazon-stake-by-42-bloomberg-news-reports-2025-10-14/)
+- **Selling Frenzy of $12.6 Billion! Jeff Bezos’ Ex-Wife Sold Nearly Half of Her Amazon Shares in the Past Year**: [Link](https://news.futunn.com/en/post/63284506/selling-frenzy-of-12-6-billion-jeff-bezos-ex-wife)
+
+
+### qualification coupe du monde 2026 afrique (N/A, Tue, 14 Oct 2025 14:30:00 -0700)
+
+- **Coupe du monde 2026. Comment sont départagés les meilleurs deuxièmes en cas d’égalité en Afrique ?**: [Link](https://www.ouest-france.fr/sport/coupe-du-monde/coupe-du-monde-2026-comment-sont-departages-les-meilleurs-deuxiemes-en-cas-degalite-en-afrique-169e051c-a777-11f0-a399-70ff1c676380)
+- **Les qualifiés, les barragistes et les grands perdants: le bilan complet des éliminatoires de la zone Afrique pour la Coupe du monde 2026**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/les-qualifies-les-barragistes-et-les-grands-perdants-le-bilan-complet-des-eliminatoires-de-la-zone-afrique-pour-la-coupe-du-monde-2026_AV-202510140972.html)
+- **Mondial 2026 : qui sont les neuf qualifiés et les quatre barragistes de la zone Afrique ?**: [Link](https://www.france24.com/fr/sports/20251014-mondial-2026-9-qualifies-4-barragistes-zone-afrique)
+
+
 ### بورتو ريكو ضد الأرجنتين (N/A, Tue, 14 Oct 2025 17:30:00 -0700)
 
 - **"خطط ترامب" في شيكاغو تربك ميسي وزملاءه**: [Link](https://www.skynewsarabia.com/sport/1825873-%D8%AE%D8%B7%D8%B7-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%B4%D9%8A%D9%83%D8%A7%D8%BA%D9%88-%D8%AA%D8%B1%D8%A8%D9%83-%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D8%B2%D9%85%D9%84%D8%A7%D8%A1%D9%87)
