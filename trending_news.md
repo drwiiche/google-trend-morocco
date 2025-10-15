@@ -1,3 +1,9 @@
+### mexique – équateur (N/A, Tue, 14 Oct 2025 21:00:00 -0700)
+
+- **Streaming Mexique/Equateur : Où et comment voir le match?**: [Link](https://www.parisfans.fr/autour-du-psg/streaming-mexique-equateur-ou-et-comment-voir-le-match-875360.html)
+- **Pronostic Mexique - Équateur, Matchs Amicaux**: [Link](https://www.sportytrader.com/pronostics/mexique-equateur-297027/)
+
+
 ### stake (N/A, Tue, 14 Oct 2025 18:50:00 -0700)
 
 - **MacKenzie Scott Shrinks Her Amazon Stake by $12.6 Billion**: [Link](https://www.bloomberg.com/news/articles/2025-10-14/mackenzie-scott-shrinks-her-amazon-stake-by-12-6-billion)
