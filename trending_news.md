@@ -1,3 +1,10 @@
+### radio mars (N/A, Wed, 15 Oct 2025 00:30:00 -0700)
+
+- **نتيجة وملخص مباراة المغرب ضد الكونغو في تصفيات كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/14/morocco-vs-dr-congo)
+- **الركراكي: العالم يشيد بالكرة المغربية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-1640210.html)
+- **16 فوزا متتاليا.. رقم قياسي عالمي جديد من توقيع أسود الأطلس**: [Link](https://2m.ma/ar/news/16-%D9%81%D9%88%D8%B2%D8%A7-%D9%85%D8%AA%D8%AA%D8%A7%D9%84%D9%8A%D8%A7-%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D8%AA%D9%88%D9%82%D9%8A%D8%B9-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-20251015)
+
+
 ### match maroc france u20 (N/A, Wed, 15 Oct 2025 08:20:00 -0700)
 
 - **France-Maroc: à quelle heure et sur quelle chaîne TV voir le match des Bleuets en Coupe du monde U20?**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/france-maroc-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-des-bleuets-en-coupe-du-monde-u20_AV-202510150641.html)
