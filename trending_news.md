@@ -1,3 +1,10 @@
+### saint cloud prix des landes (N/A, Thu, 16 Oct 2025 06:00:00 -0700)
+
+- **Les pronos hippiques du jeudi 16 octobre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-16-octobre-2025_AN-202510140847.html)
+- **Quinté du jeudi 16 octobre 2025 à Saint-Cloud : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-jeudi-16-octobre-2025-a-saint-cloud-les-pronostics-7900553301)
+- **Dapango, la base solide du Quinté+ de ce jeudi 16 octobre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/dapango-la-base-solide-du-quinte-de-ce-jeudi-16-octobre)
+
+
 ### budget 2026 impôts revenus (N/A, Wed, 15 Oct 2025 22:40:00 -0700)
 
 - **"Mesure très pénalisante": le projet de budget prévoit de geler les APL et de les supprimer pour les étudiants étrangers non boursiers**: [Link](https://www.bfmtv.com/economie/economie-social/finances-publiques/mesure-tres-penalisante-le-projet-de-budget-prevoit-de-geler-les-apl-et-de-les-supprimer-pour-les-etudiants-etrangers-non-boursiers_AD-202510140874.html)
