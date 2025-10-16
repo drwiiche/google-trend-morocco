@@ -1,3 +1,10 @@
+### paypal (N/A, Thu, 16 Oct 2025 08:50:00 -0700)
+
+- **PayPal's crypto partner mints a whopping $300 trillion worth of stablecoins in 'technical error'**: [Link](https://www.cnbc.com/2025/10/16/paypals-crypto-partner-mints-300-trillion-stablecoins-in-technical-error.html)
+- **PayPal partner accidentally mints $300 trillion in stablecoins in huge ‘technical error’**: [Link](https://nypost.com/2025/10/16/business/paypal-partner-accidentally-mints-300t-in-stablecoins-in-huge-technical-error/)
+- **Paxos mistakenly mints $300 trillion PYUSD on Ethereum, citing tech error**: [Link](https://www.theblock.co/post/374870/paxos-mistakenly-mints-300-trillion)
+
+
 ### raphinha (N/A, Thu, 16 Oct 2025 10:10:00 -0700)
 
 - **Barcelona star confirms he considered Saudi Arabia move – “It made me doubt”**: [Link](https://sports.yahoo.com/article/barcelona-star-confirms-considered-saudi-072000532.html)
