@@ -1,3 +1,38 @@
+### youtube down (N/A, Wed, 15 Oct 2025 17:00:00 -0700)
+
+- **It’s not just you: YouTube is down in widespread outage**: [Link](https://9to5google.com/2025/10/15/youtube-down-outage-october-2025/)
+- **If YouTube’s acting up for you, you’re not alone**: [Link](https://www.androidpolice.com/if-youtubes-acting-up-for-you-youre-not-alone/)
+- **Is YouTube down? Hundreds of thousands report issues with online video-sharing platform**: [Link](https://www.livenowfox.com/news/is-youtube-down-hundreds-thousands-report-issues-online-video-sharing-platform)
+
+
+### يوتيوب (N/A, Wed, 15 Oct 2025 16:50:00 -0700)
+
+- **عطل فني أم سوء إنترنت؟.. رسالة «حدث خطأ ما؟» تٌربك مستخدمي «يوتيوب» فجر الخميس**: [Link](https://www.elwatannews.com/news/details/8155368)
+- **يوتيوب عطل وخلّى الكل في حالة استغراب”.. حقيقة توقف الموقع وأبرز ما حدث صباح اليوم**: [Link](https://alkhabarkw.com/23754/%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8-%D8%B9%D8%B7%D9%84-%D9%88%D8%AE%D9%84%D9%91%D9%89-%D8%A7%D9%84%D9%83%D9%84-%D9%81%D9%8A-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%BA%D8%B1%D8%A7%D8%A8/)
+- **عطل عالمي يثير ذعر مستخدمي يوتيوب: ما حقيقتُه وأسبابه؟**: [Link](https://media24.ps/12272/%D8%B9%D8%B7%D9%84-%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%B0%D8%B9%D8%B1-%D9%85%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%D9%8A-%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8-%D9%85%D8%A7-%D8%AD%D9%82/)
+
+
+### l'équipe (N/A, Wed, 15 Oct 2025 16:40:00 -0700)
+
+- **Roland-Garros, la FFR, l'AS Monaco et le Paris FC : Renault resserre ses partenariats dans le sport**: [Link](https://www.lequipe.fr/Tous-sports/Article/La-federation-francaise-de-rugby-l-as-monaco-et-le-paris-fc-roland-garros-renault-resserre-ses-partenariats-dans-le-sport/1601770)
+- **Maroc - France U20 : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/10/15/maroc-france-u20-quelle-heure-quelles-chaines/)
+- **France - Maroc : scénario cruel pour les Bleuets qui échouent aux portes de la finale, le résumé du match**: [Link](https://www.linternaute.com/sport/foot/9018303-direct-france-maroc-suivez-le-match/)
+
+
+### argentina u20 (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
+
+- **Argentina vs. Colombia: How to Watch, Odds, U-20 Preview**: [Link](https://www.foxsports.com/stories/soccer/argentina-vs-colombia-how-watch-odds-u-20-preview)
+- **How to watch Argentina vs Colombia on FIFA+ for *FREE* — Stream U-20 World Cup semi-final**: [Link](https://www.tomsguide.com/entertainment/sports/watch-argentina-vs-colombia-free-u20-world-cup)
+- **Argentina U20 starting eleven vs. Colombia at U20 World Cup**: [Link](https://mundoalbiceleste.com/2025/10/15/argentina-u20-starting-eleven-vs-colombia-at-u20-world-cup/)
+
+
+### wc u20 (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
+
+- **Đánh bại Mỹ, Morocco lọt vào bán kết U20 World Cup sau 20 năm**: [Link](https://muctim.tuoitre.vn/danh-bai-my-morocco-lot-vao-ban-ket-u20-world-cup-sau-20-nam-101251013083844537.htm)
+- **Kết quả giải bóng đá U20 thế giới: Marốc tiếp tục chiến dịch kỳ diệu**: [Link](https://webthethao.vn/bong-da-quoc-te/ket-qua-giai-bong-da-u20-the-gioi-maroc-tiep-tuc-chien-dich-ky-dieu-HUVTZ06NR.htm)
+- **Mỹ - Morocco: Cuộc đấu cân sức ở tứ kết U20 World Cup 2025**: [Link](https://muctim.tuoitre.vn/my-morocco-cuoc-dau-can-suc-o-tu-ket-u20-world-cup-2025-101251012151504838.htm)
+
+
 ### argentina vs colombia u20 (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
 
 - **How to watch Morocco vs France on FIFA+ for *FREE* — Stream U-20 World Cup semi-final**: [Link](https://www.tomsguide.com/entertainment/sports/watch-morocco-vs-france-u20-world-cup-semi-final-free)
