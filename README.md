@@ -1,3 +1,10 @@
+### colonel michael randrianirina (N/A, Thu, 16 Oct 2025 15:20:00 -0700)
+
+- **Madagascar’s president is ousted in a military coup after weeks of youth-led protests**: [Link](https://apnews.com/article/madagascar-protests-rajoelina-ab1e1eb1aca45fe7e80e81314ebdb0c6)
+- **COMMUNIQUÉ OF THE EXTRAORDINARY SUMMIT OF SOUTHERN AFRICAN DEVELOPMENT COMMUNITY (SADC) ORGAN TROIKA 16th OCTOBER 2025**: [Link](https://www.sadc.int/latest-news/communique-extraordinary-summit-southern-african-development-community-sadc-organ)
+- **AFRICA/MADAGASCAR - "A civil war was imminent" in Madagascar**: [Link](https://www.fides.org/en/news/76921-AFRICA_MADAGASCAR_A_civil_war_was_imminent_in_Madagascar)
+
+
 ### bouygues telecom sfr (N/A, Thu, 16 Oct 2025 14:40:00 -0700)
 
 - **Comment Patrick Drahi a rétréci SFR, devenu, en dix ans, la proie de ses concurrents**: [Link](https://www.lemonde.fr/economie/article/2025/10/16/comment-patrick-drahi-a-retreci-sfr-devenu-en-dix-ans-la-proie-de-ses-concurrents_6647090_3234.html)
