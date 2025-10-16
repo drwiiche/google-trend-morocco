@@ -1,3 +1,14 @@
+### youtube.com (N/A, Wed, 15 Oct 2025 16:40:00 -0700)
+
+
+
+
+### marca (N/A, Wed, 15 Oct 2025 16:30:00 -0700)
+
+- **Marca.com and Gigsberg.com Announce Brand New Platform to Enhance Fan Access to Live Events Globally, Bringing Fans Closer to the Action**: [Link](https://www.morningstar.com/news/pr-newswire/20251014ln96649/marcacom-and-gigsbergcom-announce-brand-new-platform-to-enhance-fan-access-to-live-events-globally-bringing-fans-closer-to-the-action)
+- **Marca and Gigsberg partner to launch new platform**: [Link](https://www.theticketingbusiness.com/2025/10/marca-and-gigsberg-partner-to-launch-new-platform/)
+
+
 ### coupe du monde u20 2025 (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
 
 - **Pogba, Kondogbia, Bosetti… Que sont devenus les Français champions du monde des moins de 20 ans en 2013**: [Link](https://www.leparisien.fr/sports/football/equipe-de-france/pogba-kondogbia-bosetti-que-sont-devenus-les-francais-champions-du-monde-des-moins-de-20-ans-en-2013-15-10-2025-WG4ZIMSOLBDHHFD5XIUQELQ2RA.php)
