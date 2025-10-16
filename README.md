@@ -1,3 +1,17 @@
+### lionel messi (N/A, Thu, 16 Oct 2025 06:40:00 -0700)
+
+- **Lionel Messi surpasses Neymar Jr and Landon Donovan to set a new record**: [Link](https://onefootball.com/pt-br/noticias/lionel-messi-surpasses-neymar-jr-and-landon-donovan-to-set-a-new-record-41811119)
+- **Argentina just thrashed a new footballing opponent — but are these games helpful?**: [Link](https://buenosairesherald.com/sports/argentina-just-thrashed-a-new-footballing-opponent-but-are-these-games-helpful)
+- **Lionel Messi and Cristiano Ronaldo prove they are still the best footballers on the planet: They set records on the same day**: [Link](https://www.marca.com/en/world-cup/2025/10/15/68ef64ccca4741fd798b45bc.html)
+
+
+### clio 6 (N/A, Thu, 16 Oct 2025 06:30:00 -0700)
+
+- **Cette nouvelle Renault Clio verte et pas chère que vous allez croiser partout**: [Link](https://www.caradisiac.com/cette-nouvelle-renault-clio-verte-et-pas-chere-que-vous-allez-croiser-partout-218392.htm)
+- **La nouvelle Renault Clio 2026 : double offensive essence et hybride 145 ch pour voler la couronne à Toyota Yaris**: [Link](https://www.passionandcar.fr/2025/10/15/la-nouvelle-renault-clio-2026-double-offensive-essence-et-hybride-145-ch-pour-voler-la-couronne-a-toyota-yaris/)
+- **Nouvelle Renault Clio : à quoi ressemble la finition d’entrée de gamme ?**: [Link](https://www.auto-moto.com/citadine/nouvelle-renault-clio-a-quoi-ressemble-la-finition-dentree-de-gamme-65030)
+
+
 ### saint cloud prix des landes (N/A, Thu, 16 Oct 2025 06:00:00 -0700)
 
 - **Les pronos hippiques du jeudi 16 octobre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-16-octobre-2025_AN-202510140847.html)
