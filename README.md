@@ -1,3 +1,10 @@
+### morocco vs argentina u20 (N/A, Thu, 16 Oct 2025 06:00:00 -0700)
+
+- **FIFA U-20 World Cup: The Young Atlas Lions Roar All the Way to the Final**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/fifa-u-20-world-cup-the-young-atlas-lions-roar-all-the-way-to-the-final/)
+- **Morocco Charts Exemplary Path to U-20 World Cup Final, Fueled by Patriotism & Commitment**: [Link](https://www.maroc.ma/en/news/morocco-charts-exemplary-path-u-20-world-cup-final-fueled-patriotism-commitment)
+- **Under-20 World Cup: Maamma Prepares For Semi-Final Showdown**: [Link](https://www.watfordfc.com/news/2025/october/15/under-20-world-cup-2025/)
+
+
 ### psg – real madrid club de fútbol (N/A, Thu, 16 Oct 2025 11:50:00 -0700)
 
 - **El PSG mide la madurez del Real Madrid**: [Link](https://www.marca.com/futbol/futbol-femenino/champions-league/2025/10/15/psg-mide-madurez-real-madrid.html)
