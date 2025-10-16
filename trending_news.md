@@ -1,3 +1,10 @@
+### almountakhab (N/A, Wed, 15 Oct 2025 22:50:00 -0700)
+
+- **مدرب إيفرطون لأقل من 21 عاما: أزنو أظهر بعض اللمحات لكنه يحتاج بعض الوقت**: [Link](https://www.almountakhab.com/node/16218575)
+- **مدرب إيفرتون تحت 21 سنة: أدم أزنو يحتاج للوقت قبل الانضمام للفريق الأول**: [Link](https://www.hibasport.com/details-305887.html)
+- **مخاوف في إنجلترا من فشل أزنو مع إيفرطون**: [Link](https://www.almountakhab.com/node/16218498)
+
+
 ### amine gouiri (N/A, Thu, 16 Oct 2025 02:50:00 -0700)
 
 - **Marseille’s Amine Gouiri suffers dislocated shoulder**: [Link](https://ca.sports.yahoo.com/news/marseille-amine-gouiri-suffers-dislocated-074600181.html)
