@@ -1,3 +1,10 @@
+### الارجنتين كولومبيا (N/A, Wed, 15 Oct 2025 17:00:00 -0700)
+
+- **مونديال الشباب/ نهائي "حارق" بين المنتخب المغربي ونظيره الأرجنتيني (يوم الإثنين 00:00 غرينيتش +1)**: [Link](https://m.elbotola.com/article/2025-10-16-01-00-219.html)
+- **موعد مباراة الأرجنتين وكولومبيا في نصف نهائي كأس العالم لأقل من 20 سنة 2025 والقنوات الناقلة**: [Link](https://chamaly.ma/2025/10/15/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D9%86%D8%B5/)
+- **يواجه المنتخب الوطني لأقل من 20 سنة منتخب الأرجنتين في نهائي كأس العالم بالشيلي**: [Link](https://frmf.ma/%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%85%D9%86%D8%AA%D8%AE/)
+
+
 ### stake (N/A, Wed, 15 Oct 2025 18:30:00 -0700)
 
 - **Kaiser workers launch historic five-day, multi-state strike**: [Link](https://www.sfchronicle.com/health/article/kaiser-permanente-five-day-strike-21098942.php)
