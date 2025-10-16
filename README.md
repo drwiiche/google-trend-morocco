@@ -1,3 +1,10 @@
+### maroc vs argentine (N/A, Thu, 16 Oct 2025 00:00:00 -0700)
+
+- **Un match amical Maroc-Argentine en préparation pour l’inauguration du Grand Stade de Tanger ?**: [Link](https://lematin.ma/sports/un-match-amical-maroc-argentine-en-preparation/307305)
+- **Achraf Hakimi avec Lionel Messi : C'est confirmé !**: [Link](https://le10sport.com/football/achraf-hakimi-avec-lionel-messi-cest-confirme-761307)
+- **Grand stade de Tanger : 76 MDH pour les vestiaires et les pelouses**: [Link](https://www.lavieeco.com/sport/grand-stade-de-tanger-76-mdh-pour-les-vestiaires-et-les-pelouses/)
+
+
 ### argentine colombie (N/A, Wed, 15 Oct 2025 17:00:00 -0700)
 
 - **Résultat Argentine U20 - Colombie U20 (1-0) Demi-finales de Coupe du Monde U-20 2025 Chile 16/10**: [Link](https://www.footmercato.net/live/7480341403908640871-argentine-u-20-vs-colombie-u-20)
