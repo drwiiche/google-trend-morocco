@@ -1,3 +1,10 @@
+### argentine colombie u20 (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
+
+- **Résultat Argentine U20 - Colombie U20 (1-0) Demi-finales de Coupe du Monde U-20 2025 Chile 16/10**: [Link](https://www.footmercato.net/live/7480341403908640871-argentine-u-20-vs-colombie-u-20)
+- **Coupe du monde 2025 U20 : le calendrier et les résultats complets**: [Link](https://www.cnews.fr/sport/2025-10-13/coupe-du-monde-2025-u20-le-calendrier-et-les-resultats-complets-1746757)
+- **Qui est en demi-finale de la Coupe du Monde U-20 de la FIFA ?**: [Link](https://www.gamereactor.fr/qui-est-en-demi-finale-de-la-coupe-du-monde-u-20-de-la-fifa-1947033/)
+
+
 ### الارجنتين كولومبيا (N/A, Wed, 15 Oct 2025 17:00:00 -0700)
 
 - **مونديال الشباب/ نهائي "حارق" بين المنتخب المغربي ونظيره الأرجنتيني (يوم الإثنين 00:00 غرينيتش +1)**: [Link](https://m.elbotola.com/article/2025-10-16-01-00-219.html)
