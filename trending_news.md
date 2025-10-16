@@ -1,3 +1,10 @@
+### psg – real madrid club de fútbol (N/A, Thu, 16 Oct 2025 11:50:00 -0700)
+
+- **El PSG mide la madurez del Real Madrid**: [Link](https://www.marca.com/futbol/futbol-femenino/champions-league/2025/10/15/psg-mide-madurez-real-madrid.html)
+- **Olga Carmona se cita con su pasado**: [Link](https://okdiario.com/diariomadridista/femenino/olga-carmona-cita-pasado-571350)
+- **Quesada: “Estamos construyendo un Madrid intenso, agresivo y vertical”**: [Link](https://as.com/futbol/femenino/quesada-estamos-construyendo-un-madrid-intenso-agresivo-y-vertical-f202510-n/)
+
+
 ### paypal (N/A, Thu, 16 Oct 2025 08:50:00 -0700)
 
 - **PayPal's crypto partner mints a whopping $300 trillion worth of stablecoins in 'technical error'**: [Link](https://www.cnbc.com/2025/10/16/paypals-crypto-partner-mints-300-trillion-stablecoins-in-technical-error.html)
