@@ -1,3 +1,10 @@
+### bouygues telecom sfr (N/A, Thu, 16 Oct 2025 14:40:00 -0700)
+
+- **Comment Patrick Drahi a rétréci SFR, devenu, en dix ans, la proie de ses concurrents**: [Link](https://www.lemonde.fr/economie/article/2025/10/16/comment-patrick-drahi-a-retreci-sfr-devenu-en-dix-ans-la-proie-de-ses-concurrents_6647090_3234.html)
+- **SFR : Patrick Drahi, l’homme qui valait 15,5 milliards de dette et qui voit son empire s’effondrer**: [Link](https://www.20minutes.fr/economie/4179485-20251015-sfr-patrick-drahi-homme-valait-15-5-milliards-dette-voyait-empire-effondrer)
+- **Rachat de SFR: Altice France rejette l'offre de ses trois concurrents**: [Link](https://medias24.com/agence-presse/rachat-de-sfr-altice-france-rejette-loffre-de-ses-trois-concurrents/)
+
+
 ### morocco vs argentina u20 (N/A, Thu, 16 Oct 2025 06:00:00 -0700)
 
 - **FIFA U-20 World Cup: The Young Atlas Lions Roar All the Way to the Final**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/fifa-u-20-world-cup-the-young-atlas-lions-roar-all-the-way-to-the-final/)
