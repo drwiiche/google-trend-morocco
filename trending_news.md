@@ -1,3 +1,10 @@
+### budget 2026 impôts revenus (N/A, Wed, 15 Oct 2025 22:40:00 -0700)
+
+- **"Mesure très pénalisante": le projet de budget prévoit de geler les APL et de les supprimer pour les étudiants étrangers non boursiers**: [Link](https://www.bfmtv.com/economie/economie-social/finances-publiques/mesure-tres-penalisante-le-projet-de-budget-prevoit-de-geler-les-apl-et-de-les-supprimer-pour-les-etudiants-etrangers-non-boursiers_AD-202510140874.html)
+- **Budget 2026 : le plan Lecornu, ambitieux mais très fragile**: [Link](https://www.lemonde.fr/politique/article/2025/10/15/budget-2026-le-plan-lecornu-ambitieux-mais-tres-fragile_6646769_823448.html)
+- **France : des économies prévues dans le domaine de la santé**: [Link](https://www.france24.com/fr/vid%C3%A9o/20251015-france-des-%C3%A9conomies-pr%C3%A9vues-dans-le-domaine-de-la-sant%C3%A9)
+
+
 ### match argentine colombie u20 (N/A, Wed, 15 Oct 2025 17:00:00 -0700)
 
 - **منتخب الأرجنتين يهزم كولومبيا ويواجه المغرب فى نهائى مونديال الشباب**: [Link](https://www.youm7.com/story/2025/10/16/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%8A%D9%87%D8%B2%D9%85-%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D9%88%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%89-%D9%86%D9%87%D8%A7%D8%A6%D9%89-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/7158702)
