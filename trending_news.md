@@ -1,3 +1,10 @@
+### coupe du monde u20 2025 (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
+
+- **Pogba, Kondogbia, Bosetti… Que sont devenus les Français champions du monde des moins de 20 ans en 2013**: [Link](https://www.leparisien.fr/sports/football/equipe-de-france/pogba-kondogbia-bosetti-que-sont-devenus-les-francais-champions-du-monde-des-moins-de-20-ans-en-2013-15-10-2025-WG4ZIMSOLBDHHFD5XIUQELQ2RA.php)
+- **Coupe du Monde U20 2025 : La France vise le bronze, 12 ans après l’or de 2013**: [Link](https://africafootunited.com/coupe-du-monde-u20-2025-la-france-vise-le-bronze-12-ans-apres-lor-de-2013/)
+- **Qui étaient les champions du monde U20 en 2013 ?**: [Link](https://www.20minutes.fr/tv/20-arena/4178007-20251010-champions-monde-u20-2013)
+
+
 ### argentine colombie u20 (N/A, Wed, 15 Oct 2025 16:00:00 -0700)
 
 - **Résultat Argentine U20 - Colombie U20 (1-0) Demi-finales de Coupe du Monde U-20 2025 Chile 16/10**: [Link](https://www.footmercato.net/live/7480341403908640871-argentine-u-20-vs-colombie-u-20)
