@@ -1,3 +1,17 @@
+### raphinha (N/A, Thu, 16 Oct 2025 10:10:00 -0700)
+
+- **Barcelona star confirms he considered Saudi Arabia move – “It made me doubt”**: [Link](https://sports.yahoo.com/article/barcelona-star-confirms-considered-saudi-072000532.html)
+- **Goodbye Barça, he'll end up in Saudi Arabia like Iñigo Martínez, it's an open secret: 'The offer...'**: [Link](https://madrid-barcelona.com/en/fc-barcelona/goodbye-barca-will-end-up-in-saudi-arabia-like-inigo-martinez-secret-rumors-offer)
+- **Raphinha Reveals the Secret Behind His Refusal to Move to Al-Hilal: "The Offer Would Have Changed My Life Completely"**: [Link](https://www.tesaaworld.com/en/news/rafinha-reveals-the-secret-behind-his-refusal-to-move-to-al-hilal-the-offer-would-have-changed-my-life-completely)
+
+
+### adriana lima (N/A, Wed, 15 Oct 2025 17:10:00 -0700)
+
+- **Victoria’s Secret Fashion Show stuns as Gigi Hadid, Emily Ratajkowski and Behati Prinsloo turn heads on runway**: [Link](https://www.foxnews.com/entertainment/victorias-secret-fashion-show-stuns-gigi-hadid-emily-ratajkowski-behati-prinsloo-turn-heads-runway)
+- **From Angel Reese’s Debut to Bella Hadid’s Return, the Victoria’s Secret Show Gets a Fresh Look**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/angel-reese-debut-bella-hadid-154500676.html)
+- **At the Victoria’s Secret Fashion Show, Angel Reese and Suni Lee Make Their Debut**: [Link](https://www.nytimes.com/2025/10/16/style/victorias-secret-vs-show.html)
+
+
 ### lionel messi (N/A, Thu, 16 Oct 2025 06:40:00 -0700)
 
 - **Lionel Messi surpasses Neymar Jr and Landon Donovan to set a new record**: [Link](https://onefootball.com/pt-br/noticias/lionel-messi-surpasses-neymar-jr-and-landon-donovan-to-set-a-new-record-41811119)
