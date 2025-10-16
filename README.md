@@ -1,3 +1,10 @@
+### amine gouiri (N/A, Thu, 16 Oct 2025 02:50:00 -0700)
+
+- **Marseille’s Amine Gouiri suffers dislocated shoulder**: [Link](https://ca.sports.yahoo.com/news/marseille-amine-gouiri-suffers-dislocated-074600181.html)
+- **OM: Amine Gouiri’s shoulder put back in place, return expected!**: [Link](https://onefootball.com/en/news/om-amine-gouiris-shoulder-put-back-in-place-return-expected-41811803)
+- **Disaster scenario for Gouiri?**: [Link](https://frenchfootballweekly.com/2025/10/16/disaster-scenario-for-gouiri/)
+
+
 ### الأرجنتين ضد كولومبيا (N/A, Wed, 15 Oct 2025 17:00:00 -0700)
 
 - **منتخب الأرجنتين يهزم كولومبيا ويواجه المغرب فى نهائى مونديال الشباب**: [Link](https://www.youm7.com/story/2025/10/16/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%8A%D9%87%D8%B2%D9%85-%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D9%88%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%89-%D9%86%D9%87%D8%A7%D8%A6%D9%89-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/7158702)
