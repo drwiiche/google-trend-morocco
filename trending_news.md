@@ -1,3 +1,17 @@
+### حالة الطقس (N/A, Thu, 16 Oct 2025 00:00:00 -0700)
+
+- **حالة الطقس اليوم الخميس 16-10-2025**: [Link](https://www.gomhuriaonline.com/Gomhuria/1712707.html)
+- **رياح وأمطار خفيفة.. الأرصاد تكشف تفاصيل طقس الخميس في جميع المحافظات**: [Link](https://www.altreeq.com/519710)
+- **بداية من الأسبوع المقبل.. الأرصاد تكشف حقيقة عودة ارتفاع درجات الحرارة**: [Link](https://www.newsroom.info/182767)
+
+
+### fast (N/A, Wed, 15 Oct 2025 16:50:00 -0700)
+
+- **Enterome receives FDA Fast Track designation in follicular lymphoma for lead OncoMimics™ immunotherapy EO2463**: [Link](https://uk.finance.yahoo.com/news/enterome-receives-fda-fast-track-063000701.html)
+- **FDA Grants Fast Track Designation to NG-350A For pMMR Rectal Cancer**: [Link](https://www.cancernetwork.com/view/fda-grants-fast-track-designation-to-ng-350a-for-pmmr-rectal-cancer)
+- **Akamis Bio Receives FDA Fast Track Designation for NG-350A for the Treatment of Mismatch Repair-Proficient Locally Advanced Rectal Cancer**: [Link](https://www.biospace.com/press-releases/akamis-bio-receives-fda-fast-track-designation-for-ng-350a-for-the-treatment-of-mismatch-repair-proficient-locally-advanced-rectal-cancer)
+
+
 ### elbotola (N/A, Wed, 15 Oct 2025 23:10:00 -0700)
 
 
