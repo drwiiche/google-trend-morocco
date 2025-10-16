@@ -1,3 +1,10 @@
+### الأرجنتين تحت 20 ضد كولومبيا تحت 20 (N/A, Wed, 15 Oct 2025 17:20:00 -0700)
+
+- **مونديال الشباب/ نهائي "حارق" بين المنتخب المغربي ونظيره الأرجنتيني (يوم الإثنين 00:00 غرينيتش +1)**: [Link](https://m.elbotola.com/article/2025-10-16-01-00-219.html)
+- **"الأشبال" أمام الأرجنتين بنهائي المونديال**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%A8%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF-1640715.html)
+- **موعد مباراة الأرجنتين وكولومبيا في نصف نهائي كأس العالم لأقل من 20 سنة 2025 والقنوات الناقلة**: [Link](https://chamaly.ma/2025/10/15/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D9%86%D8%B5/)
+
+
 ### maroc vs argentine (N/A, Thu, 16 Oct 2025 00:00:00 -0700)
 
 - **Un match amical Maroc-Argentine en préparation pour l’inauguration du Grand Stade de Tanger ?**: [Link](https://lematin.ma/sports/un-match-amical-maroc-argentine-en-preparation/307305)
