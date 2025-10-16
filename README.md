@@ -1,3 +1,24 @@
+### stake (N/A, Wed, 15 Oct 2025 18:30:00 -0700)
+
+- **Kaiser workers launch historic five-day, multi-state strike**: [Link](https://www.sfchronicle.com/health/article/kaiser-permanente-five-day-strike-21098942.php)
+- **Northwest Kaiser nurses seek double-digit wage increase over 4-year contract**: [Link](https://www.opb.org/article/2025/10/14/northwest-kaiser-nurses-wage-increase-four-year-contract/)
+- **Our statement on the Alliance of Health Care Unions’ strike**: [Link](https://about.kaiserpermanente.org/who-we-are/labor-relations/alliance-national-bargaining/media-statements/our-statement-on-the-alliance-of-health-care-unions-strike)
+
+
+### argentine vs colombie (N/A, Wed, 15 Oct 2025 16:20:00 -0700)
+
+- **موعد مباراة الأرجنتين وكولومبيا في نصف نهائي كأس العالم لأقل من 20 سنة 2025 والقنوات الناقلة**: [Link](https://chamaly.ma/2025/10/15/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D9%86%D8%B5/)
+- **يواجه المنتخب الوطني لأقل من 20 سنة منتخب الأرجنتين في نهائي كأس العالم بالشيلي**: [Link](https://frmf.ma/%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%85%D9%86%D8%AA%D8%AE/)
+- **مونديال الشباب/ المنتخب الأرجنتيني يتخطى عقبة كولومبيا (1-0) ويضرب موعدا "ناريا" مع المغرب في النهائي**: [Link](https://m.elbotola.com/article/2025-10-16-00-44-639.html)
+
+
+### match now (N/A, Wed, 15 Oct 2025 16:20:00 -0700)
+
+- **Noman and Afridi star in convincing first Test win over South Africa**: [Link](https://sporty.com/news/noman-and-afridi-star-in-convincing-first-test-win-over-south-africa/175xbqq8gwv3j1fo7jx2kiz570)
+- **Did the toss end South Africa's record run?**: [Link](https://www.cricbuzz.com/cricket-news/135957/did-the-toss-end-south-africas-record-run-cricbuzzcom)
+- **Pakistan surge in WTC standings after big win over Proteas | ICC World Test Championship | ICC**: [Link](https://www.icc-cricket.com/news/pakistan-surge-in-wtc-standings-after-big-win-over-proteas)
+
+
 ### youtube down (N/A, Wed, 15 Oct 2025 17:00:00 -0700)
 
 - **It’s not just you: YouTube is down in widespread outage**: [Link](https://9to5google.com/2025/10/15/youtube-down-outage-october-2025/)
