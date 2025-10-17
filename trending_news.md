@@ -1,3 +1,10 @@
+### u17 women world cup (N/A, Fri, 17 Oct 2025 12:40:00 -0700)
+
+- **Boniface Eyes Golden Glove as Flamingos Depart for U-17 WWC**: [Link](https://brila.net/boniface-eyes-golden-glove-as-flamingos-depart-for-u-17-wwc/)
+- **Flamingos Touch Down in Rabat, Poised for Canada Opener**: [Link](https://www.footballinnigeria.com.ng/womens-football/flamingos-touch-down-in-rabat-poised-for-canada-opener/)
+- **2025 FIFA U-17 Women’s World Cup: Flamingos edge Paraguay in five-goal thriller**: [Link](https://www.westernpost.ng/2025-fifa-u-17-womens-world-cup-flamingos-edge-paraguay-in-five-goal-thriller/)
+
+
 ### ريال أوفييدو ضد إسبانيول (N/A, Fri, 17 Oct 2025 12:20:00 -0700)
 
 - **أفييدو-الإسبانيول...اشعيرة والهيلالي حاضران في قائمة الفريقين**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84%D8%A7%D8%B4%D8%B9%D9%8A%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D9%87%D9%8A%D9%84%D8%A7%D9%84%D9%8A-%D8%AD%D8%A7%D8%B6%D8%B1%D8%A7%D9%86-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D9%86/10334)
