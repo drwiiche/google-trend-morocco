@@ -1,3 +1,10 @@
+### حالة الطقس (N/A, Thu, 16 Oct 2025 23:40:00 -0700)
+
+- **هل تشهد البلاد عواصف خلال الأيام المقبلة؟.. «الأرصاد» توضح**: [Link](https://zahraa.mr/5979009/%D9%87%D9%84-%D8%AA%D8%B4%D9%87%D8%AF-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D8%A7/)
+- **الطقس اليوم.. خريفى ونشاط رياح وأمطار ببعض المناطق والعظمى بالقاهرة 29 درجة**: [Link](https://www.youm7.com/story/2025/10/17/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AE%D8%B1%D9%8A%D9%81%D9%89-%D9%88%D9%86%D8%B4%D8%A7%D8%B7-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D8%A8%D8%B9%D8%B6-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%88%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D9%89-%D8%A8%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9/7159452)
+- **تقلبات جوية بين ليالي باردة وأيام حارة في مدينة نصر اليوم الخميس**: [Link](https://twaslnews.com/%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1/2098882/)
+
+
 ### quinte (N/A, Thu, 16 Oct 2025 22:30:00 -0700)
 
 - **Les pronos hippiques du jeudi 16 octobre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-16-octobre-2025_AN-202510140847.html)
