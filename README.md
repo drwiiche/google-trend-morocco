@@ -1,3 +1,10 @@
+### nicolas sarkozy (N/A, Fri, 17 Oct 2025 15:20:00 -0700)
+
+- **INFO BFM BUSINESS. Malgré son incarcération, Nicolas Sarkozy va rester administrateur d’Accor et Lagardère**: [Link](https://www.bfmtv.com/economie/entreprises/info-bfm-business-malgre-son-incarceration-nicolas-sarkozy-va-rester-administrateur-d-accor-et-lagardere_AN-202510170078.html)
+- **Nicolas Sarkozy en prison : « Une lente “descente aux enfers” pour lui-même et pour la France »**: [Link](https://www.ouest-france.fr/politique/nicolas-sarkozy/nicolas-sarkozy-en-prison-une-lente-descente-aux-enfers-pour-lui-meme-et-pour-la-france-4091a1e2-a9a9-11f0-bf9e-dc0be67a8d9b)
+- **"La Santé, c’est plus familial et plus propre que Fleury" : les petits conseils de Balkany à Sarkozy avant son incarcération**: [Link](https://www.marianne.net/societe/police-et-justice/patrick-balkany-a-fleury-merogis-un-amateur-de-foot-comme-sarkozy-pourra-assister-a-des-matchs-depuis-sa-cellule)
+
+
 ### u17 world cup (N/A, Fri, 17 Oct 2025 12:10:00 -0700)
 
 - **Boniface Eyes Golden Glove as Flamingos Depart for U-17 WWC**: [Link](https://brila.net/boniface-eyes-golden-glove-as-flamingos-depart-for-u-17-wwc/)
