@@ -1,3 +1,10 @@
+### mélenchon (N/A, Fri, 17 Oct 2025 03:40:00 -0700)
+
+- **« Il hurlait dans les couloirs » : la grosse colère de Jean-Luc Mélenchon à France-Inter**: [Link](https://www.nouvelobs.com/politique/20251016.OBS108825/il-hurlait-dans-les-couloirs-la-grosse-colere-de-jean-luc-melenchon-a-france-inter.html)
+- **Bruce Toussaint demande à Manuel Bompard s’il va lui faire « un doigt d’honneur »**: [Link](https://www.20minutes.fr/arts-stars/television/4179671-20251016-allez-faire-doigt-honneur-comment-manuel-bompard-bruce-toussaint-asticotes-tf1)
+- **«C’est inadmissible» : Bruce Toussaint réagit au geste de Jean-Luc Mélenchon envers Benjamin Duhamel**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/c-est-inadmissible-bruce-toussaint-reagit-au-geste-de-jean-luc-melenchon-envers-benjamin-duhamel-20251016)
+
+
 ### john bolton (N/A, Fri, 17 Oct 2025 02:30:00 -0700)
 
 - **John Bolton: Former Trump national security adviser indicted**: [Link](https://www.bbc.com/news/articles/cgql2qzkz5zo)
