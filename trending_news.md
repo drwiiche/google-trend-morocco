@@ -1,3 +1,24 @@
+### خطبة الجمعة اليوم (N/A, Fri, 17 Oct 2025 05:40:00 -0700)
+
+- **إعلان هام لوزارة الأوقاف بشأن موضوع خطبة الجمعة**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%87%D8%A7%D9%85-%D9%84%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D9%88%D8%B6%D9%88%D8%B9-%D8%AE%D8%B7-963036.html)
+- **خطبة الجمعة اليوم: بالتي هي أحسن.. قيم الحوار والتسامح**: [Link](https://daralmaref.com/News/2351624.aspx)
+- **بالتى هى أحسن.. موضوع خطبة الجمعة اليوم بمساجد الجمهورية**: [Link](https://www.youm7.com/story/2025/10/17/%D8%A8%D8%A7%D9%84%D8%AA%D9%89-%D9%87%D9%89-%D8%A3%D8%AD%D8%B3%D9%86-%D9%85%D9%88%D8%B6%D9%88%D8%B9-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A8%D9%85%D8%B3%D8%A7%D8%AC%D8%AF-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9/7159072)
+
+
+### caf tickets (N/A, Fri, 17 Oct 2025 04:20:00 -0700)
+
+- **African play-offs | World Cup qualifying**: [Link](https://www.fifa.com/en/tournaments/mens/worldcup/canadamexicousa2026/articles/african-play-offs-date-teams-fixtures)
+- **Bafana Bafana return to World Cup after 16 years; Senegal and Côte d’Ivoire also qualify**: [Link](https://www.cafonline.com/fifa-world-cup/news/bafana-bafana-return-to-world-cup-after-16-years-senegal-and-cote-d-ivoire-also-qualify/)
+- **Idrissa Gueye hails ex-Liverpool star after international development – ‘Legend’**: [Link](https://www.goodisonnews.com/2025/10/15/idrissa-gueye-hails-ex-liverpool-star-after-international-development-legend/)
+
+
+### classroom (N/A, Fri, 17 Oct 2025 01:10:00 -0700)
+
+- **Oklahoma’s new schools chief reverses course on Ryan Walters’ Bible curriculum**: [Link](https://www.msnbc.com/top-stories/latest/oklahoma-bible-schools-ryan-walters-lindel-fields-rcna237994)
+- **Oklahoma abandons requirement for Bibles in every classroom**: [Link](https://www.reuters.com/legal/litigation/oklahoma-abandons-requirement-bibles-every-classroom-2025-10-16/)
+- **OSDE says goodbye to Bible mandate, eyes Social Studies Standards next**: [Link](https://kfor.com/news/oklahoma-education/osde-says-goodbye-to-bible-mandate-eyes-social-studies-standards-next/)
+
+
 ### billet can 2025 (N/A, Fri, 17 Oct 2025 04:30:00 -0700)
 
 - **La billetterie de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 ouvre le lundi 13 octobre, l’application YALLA désormais disponible**: [Link](https://www.cafonline.com/fr/can2025/infos/la-billetterie-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-ouvre-le-lundi-13-octobre-l-application-yalla-desormais-disponible/)
