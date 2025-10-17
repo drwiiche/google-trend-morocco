@@ -1,3 +1,10 @@
+### psg vs (N/A, Fri, 17 Oct 2025 13:10:00 -0700)
+
+- **LIVE! PSG vs Strasbourg in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-psg-vs-strasbourg-in-ligue-1-on-bein-sports-2025-10-17)
+- **France Soccer League One**: [Link](https://www.couriernews.com/sports/france-soccer-league-one/image_d1548583-3096-59f8-8cc7-d1c409d938d9.html)
+- **Luis Enrique Predicts a Tight Contest in Ligue 1 McDonald’s Clash Against Strasbourg**: [Link](https://emegypt.net/1013077)
+
+
 ### fifa+ (N/A, Fri, 17 Oct 2025 12:50:00 -0700)
 
 - **How to watch Morocco vs France on FIFA+ for *FREE* — Stream U-20 World Cup semi-final**: [Link](https://www.tomsguide.com/entertainment/sports/watch-morocco-vs-france-u20-world-cup-semi-final-free)
