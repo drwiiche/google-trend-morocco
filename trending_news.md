@@ -1,3 +1,10 @@
+### bourita (N/A, Fri, 17 Oct 2025 04:20:00 -0700)
+
+- **Nasser Bourita : "Le Maroc et la Russie d’accord sur le fait que le droit international ne peut être interprété pour entraver le règlement de la question du Sahara marocain"**: [Link](https://telquel.ma/instant-t/2025/10/17/nasser-bourita-le-maroc-et-la-russie-daccord-sur-le-fait-que-le-droit-international-ne-peut-etre-interprete-pour-entraver-le-reglement-de-la-question-du-sahara-marocain_1956243/)
+- **Bientôt de nouveaux vols directs Casablanca-Saint-Pétersbourg**: [Link](https://medias24.com/2025/10/16/bientot-de-nouveaux-vols-directs-casablanca-saint-petersbourg/)
+- **À l’ONU, Hilale salue le Sahara marocain, terre de paix et de développement**: [Link](https://www.leconomiste.com/flash-infos/432523/)
+
+
 ### cafonline (N/A, Fri, 17 Oct 2025 04:10:00 -0700)
 
 - **“We’ll keep our identity” — Tanzania coach Hemed Suleiman on facing Nigeria, Tunisia and Uganda**: [Link](https://www.cafonline.com/afcon2025/news/we-ll-keep-our-identity-tanzania-coach-hemed-suleiman-on-facing-nigeria-tunisia-and-uganda/)
