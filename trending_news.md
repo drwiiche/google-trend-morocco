@@ -1,3 +1,10 @@
+### royal air maroc (N/A, Fri, 17 Oct 2025 08:30:00 -0700)
+
+- **Coupe du monde U20 au Chili : deux vols spéciaux pour le transport des supporters du Maroc en finale**: [Link](https://medias24.com/2025/10/17/coupe-du-monde-u20-au-chili-deux-vols-speciaux-pour-le-transport-des-supporters-du-maroc-en-finale/)
+- **Match Maroc-Argentine : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-argentine-a-quelle-heure-et-sur-quelles-chaines/308019)
+- **Football : miracle au Chili, les Lionceaux en finale de Coupe du Monde !**: [Link](https://mobile.telquel.ma/2025/10/16/football-miracle-au-chili-les-lionceaux-en-finale-de-coupe-du-monde_1956175)
+
+
 ### محمد بودريقة (N/A, Fri, 17 Oct 2025 01:40:00 -0700)
 
 - **بودريقة يطالب باستدعاء موثقة اتهمته بـ "أكل شيك" بمبلغ 600 مليون**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%AF%D8%B1%D9%8A%D9%82%D8%A9-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%A7%D8%B3%D8%AA%D8%AF%D8%B9%D8%A7%D8%A1-%D9%85%D9%88%D8%AB%D9%82%D8%A9-%D8%A7%D8%AA%D9%87%D9%85%D8%AA%D9%87-%D8%A8-1640565.html)
