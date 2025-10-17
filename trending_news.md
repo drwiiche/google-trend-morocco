@@ -1,3 +1,17 @@
+### fifa+ (N/A, Fri, 17 Oct 2025 12:50:00 -0700)
+
+- **How to watch Morocco vs France on FIFA+ for *FREE* — Stream U-20 World Cup semi-final**: [Link](https://www.tomsguide.com/entertainment/sports/watch-morocco-vs-france-u20-world-cup-semi-final-free)
+- **Under-20 World Cup: Maamma Prepares For Semi-Final Showdown**: [Link](https://www.watfordfc.com/news/2025/october/15/under-20-world-cup-2025/)
+- **Morocco vs Argentina: FIFA U20 World Cup final preview**: [Link](https://gulfnews.com/sport/football/morocco-vs-argentina-fifa-u20-world-cup-final-preview-1.500309775)
+
+
+### maroc russie (N/A, Fri, 17 Oct 2025 12:50:00 -0700)
+
+- **Le Maroc et la Russie d’accord sur le fait que le droit international ne peut être interprété pour entraver le règlement de la question du Sahara marocain (Bourita)**: [Link](https://lematin.ma/nation/maroc-russie-le-droit-international-ne-peut-bloquer-une-solution-au-sahara/308052)
+- **Pêche, énergie et douanes : trois nouveaux accords entre Rabat et Moscou**: [Link](https://mobile.telquel.ma/instant-t/2025/10/17/peche-energie-et-douanes-trois-nouveaux-accords-entre-rabat-et-moscou_1956373/)
+- **Le Malawi réaffirme son soutien à la souveraineté du Maroc sur le Sahara**: [Link](https://medias24.com/2025/10/17/le-malawi-reaffirme-son-soutien-a-la-souverainete-du-maroc-sur-le-sahara/)
+
+
 ### u17 women world cup (N/A, Fri, 17 Oct 2025 12:40:00 -0700)
 
 - **Boniface Eyes Golden Glove as Flamingos Depart for U-17 WWC**: [Link](https://brila.net/boniface-eyes-golden-glove-as-flamingos-depart-for-u-17-wwc/)
