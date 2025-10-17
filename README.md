@@ -1,3 +1,17 @@
+### paris-sg – strasbourg (N/A, Fri, 17 Oct 2025 11:00:00 -0700)
+
+- **Le groupe restreint du PSG pour affronter Strasbourg**: [Link](https://www.footmercato.net/a3523082947664226199-le-groupe-restreint-du-psg-pour-affronter-strasbourg)
+- **Ligue 1+ sur OneFootball : le programme du week-end 🇫🇷📱**: [Link](https://onefootball.com/fr/news/ligue-1-sur-onefootball-le-programme-du-week-end-41817985)
+- **PSG : le sérieux de Doué souligné**: [Link](https://news.maxifoot.fr/psg/le-serieux-de-doue-souligne-foot-442836.htm)
+
+
+### بي اس جي ضد ستراسبورغ (N/A, Fri, 17 Oct 2025 11:00:00 -0700)
+
+- **دفعة رباعية لباريس قبل موقعة ستراسبورج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%81%D8%B9%D8%A9-%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D9%84%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%B3%D8%AA%D8%B1%D8%A7%D8%B3%D8%A8%D9%88%D8%B1%D8%AC/blt5428f1efbf7e5c49)
+- **حكيمي حاضر في قائمة سان جيرمان أمام ستراسبورغ**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%AD%D8%A7%D8%B6%D8%B1-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%AA%D8%B1%D8%A7%D8%B3%D8%A8%D9%88%D8%B1%D8%BA/10335)
+- **إنريكي يرفض الحديث عن جدل باريس مع المنتخب الفرنسي**: [Link](https://hihi2.com/2025/10/16/p3429552.html)
+
+
 ### al-ahli saudi – al shabab (N/A, Fri, 17 Oct 2025 10:30:00 -0700)
 
 - **Al-Ahli vs Al-Shabab Prediction: Al-Ahli favored to extend strong start**: [Link](https://www.telecomasia.net/sports-betting/tips/football/saudi-pro-league/al-ahli-vs-al-shabab-prediction-for-the-match-on-october-17-2025/)
