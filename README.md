@@ -1,3 +1,10 @@
+### maroc vs brazil (N/A, Fri, 17 Oct 2025 13:40:00 -0700)
+
+- **Brazil Defeats Morocco 3-0 in U17 Women’s World Cup Group Stage Match**: [Link](https://www.moroccoworldnews.com/2025/10/264059/brazil-defeats-morocco-3-0-in-u17-womens-world-cup-group-stage-match/)
+- **Wild cat Tila unveiled as official mascot of FIFA U-17 Women’s World Cup**: [Link](https://www.friendsoffootballnz.com/2025/10/17/wild-cat-tila-unveiled-as-official-mascot-of-fifa-u-17-womens-world-cup/)
+- **Morocco’s U-17 Women’s Coach Unveils World Cup Squad List**: [Link](https://barlamantoday.com/2025/10/11/moroccos-u-17-womens-coach-unveils-world-cup-squad-list/)
+
+
 ### psg vs (N/A, Fri, 17 Oct 2025 13:10:00 -0700)
 
 - **LIVE! PSG vs Strasbourg in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-psg-vs-strasbourg-in-ligue-1-on-bein-sports-2025-10-17)
