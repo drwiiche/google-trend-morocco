@@ -1,3 +1,10 @@
+### محمد بودريقة (N/A, Fri, 17 Oct 2025 01:40:00 -0700)
+
+- **بودريقة يطالب باستدعاء موثقة اتهمته بـ "أكل شيك" بمبلغ 600 مليون**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%AF%D8%B1%D9%8A%D9%82%D8%A9-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%A7%D8%B3%D8%AA%D8%AF%D8%B9%D8%A7%D8%A1-%D9%85%D9%88%D8%AB%D9%82%D8%A9-%D8%A7%D8%AA%D9%87%D9%85%D8%AA%D9%87-%D8%A8-1640565.html)
+- **ملف "شيك 600 مليون".. دفاع بودريقة يطالب باستدعاء الموثقة المتغيبة عبر مفوض قضائي**: [Link](https://al3omk.com/1108443.html)
+- **تطورات مثيرة في قضية بودريقة**: [Link](https://badil.info/187988)
+
+
 ### classement fifa (N/A, Fri, 17 Oct 2025 06:00:00 -0700)
 
 - **Classement FIFA : l’Argentine repasse devant la France, le Brésil recule encore**: [Link](https://www.footmercato.net/a8756286508483859734-classement-fifa-largentine-repasse-devant-la-france-le-bresil-recule-encore)
