@@ -1,3 +1,10 @@
+### chaves – benfica (N/A, Fri, 17 Oct 2025 11:40:00 -0700)
+
+- **Chaves x Benfica – Palpites e onde assistir – (17/10)**: [Link](https://olhardigital.com.br/apostas/chaves-x-benfica-palpites-e-onde-assistir-17-10/)
+- **«Não acredito que Mourinho vá promover grandes rotações no onze»**: [Link](https://www.abola.pt/video/nao-acredito-que-mourinho-va-promover-grandes-rotacoes-no-onze-2025101714224366929)
+- **AO VIVO: Golaço de Pavlidis (8')**: [Link](https://www.flashscore.pt/noticias/futebol-taca-de-portugal-ao-vivo-golaco-de-pavlidis-8/0UNSlbX7/)
+
+
 ### real oviedo – espanyol (N/A, Fri, 17 Oct 2025 11:20:00 -0700)
 
 - **Previa del Real Oviedo-Espanyol: llegó el turno del Tartiere**: [Link](https://www.lavozdeasturias.es/noticia/azulcarbayon/2025/10/17/previa-real-oviedo-espanyol-llego-turno-tartiere/00031760684698279491666.htm)
