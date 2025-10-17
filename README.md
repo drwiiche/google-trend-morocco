@@ -1,3 +1,10 @@
+### billet can 2025 (N/A, Fri, 17 Oct 2025 04:30:00 -0700)
+
+- **La billetterie de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 ouvre le lundi 13 octobre, l’application YALLA désormais disponible**: [Link](https://www.cafonline.com/fr/can2025/infos/la-billetterie-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-ouvre-le-lundi-13-octobre-l-application-yalla-desormais-disponible/)
+- **CAN 2025 : déjà 150 000 billets vendus en trois jours**: [Link](https://ledesk.ma/encontinu/can-2025-deja-150-000-billets-vendus-en-trois-jours/)
+- **CAN 2025 : Acheter un ticket, risquer sa santé mentale**: [Link](https://mobile.telquel.ma/2025/10/15/can-2025-acheter-un-ticket-risquer-sa-sante-mentale_1955966)
+
+
 ### bourita (N/A, Fri, 17 Oct 2025 04:20:00 -0700)
 
 - **Nasser Bourita : "Le Maroc et la Russie d’accord sur le fait que le droit international ne peut être interprété pour entraver le règlement de la question du Sahara marocain"**: [Link](https://telquel.ma/instant-t/2025/10/17/nasser-bourita-le-maroc-et-la-russie-daccord-sur-le-fait-que-le-droit-international-ne-peut-etre-interprete-pour-entraver-le-reglement-de-la-question-du-sahara-marocain_1956243/)
