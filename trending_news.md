@@ -1,3 +1,10 @@
+### football maroc u20 (N/A, Thu, 16 Oct 2025 06:40:00 -0700)
+
+- **La France cruellement battue aux tirs au but par le Maroc en demi-finales de Coupe du monde U20**: [Link](https://www.lequipe.fr/Football/Actualites/La-france-cruellement-battue-aux-tirs-au-but-par-le-maroc-en-demi-finales-de-coupe-du-monde-u20/1601961)
+- **Mondial U20 : les villes marocaines en fête après la qualification historique des Lionceaux pour la finale**: [Link](https://lematin.ma/sports/finale-mondial-u20-le-maroc-en-fete-apres-la-qualification-des-lionceaux/307866)
+- **Coupe du Monde U20 de la FIFA: Maroc-Argentine en finale**: [Link](https://frmf.ma/fr/%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%85%D9%86%D8%AA%D8%AE/)
+
+
 ### nestlé (N/A, Thu, 16 Oct 2025 16:50:00 -0700)
 
 - **World’s largest food company is cutting 16,000 jobs due partly to automation**: [Link](https://www.cnn.com/2025/10/16/business/nestle-layoffs-automation-intl)
