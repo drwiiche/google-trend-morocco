@@ -1,3 +1,17 @@
+### cnss (N/A, Fri, 17 Oct 2025 08:50:00 -0700)
+
+- **Indemnités et frais professionnels : un arrêté clarifie l’exonération CNSS et met fin au flou**: [Link](https://medias24.com/2025/10/14/indemnites-et-frais-professionnels-un-arrete-clarifie-lexoneration-cnss-et-met-fin-au-flou/)
+- **Assiette de cotisations sociales: la CNSS applique les nouvelles règles à partir du 1er octobre 2025**: [Link](https://fr.le360.ma/economie/assiette-de-cotisations-sociales-la-cnss-applique-les-nouvelles-regles-a-partir-du-1er-octobre-2025_U6SVHHJKARELHC57NJFKOUCHEQ/)
+- **Exonérations sociales: Pour la 1re fois, un cadre réglementaire**: [Link](https://www.leconomiste.com/exonerations-sociales-pour-la-1re-fois-un-cadre-reglementaire/)
+
+
+### ram (N/A, Fri, 17 Oct 2025 08:50:00 -0700)
+
+- **Ram Midsize Truck: Could It Be a V8-Powered Reskinned Jeep Gladiator?**: [Link](https://www.thedrive.com/news/ram-midsize-truck-could-it-be-a-v8-powered-reskinned-jeep-gladiator)
+- **Ram’s New Dakota Warlock Is Coming For The Hilux With Chinese DNA**: [Link](https://www.carscoops.com/2025/10/2025-ram-dakota-global-roots-american-pickup/)
+- **The Midsize Pickup Game Is Finally Getting the Mopar Competitor It’s Been Sorely Lacking**: [Link](https://www.gearpatrol.com/cars/dodge-midsize-pickup-coming-in-2028/)
+
+
 ### royal air maroc (N/A, Fri, 17 Oct 2025 08:30:00 -0700)
 
 - **Coupe du monde U20 au Chili : deux vols spéciaux pour le transport des supporters du Maroc en finale**: [Link](https://medias24.com/2025/10/17/coupe-du-monde-u20-au-chili-deux-vols-speciaux-pour-le-transport-des-supporters-du-maroc-en-finale/)
