@@ -1,3 +1,10 @@
+### ticket cafonline (N/A, Fri, 17 Oct 2025 03:50:00 -0700)
+
+- **La billetterie de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 ouvre le lundi 13 octobre, l’application YALLA désormais disponible**: [Link](https://www.cafonline.com/fr/can2025/infos/la-billetterie-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-ouvre-le-lundi-13-octobre-l-application-yalla-desormais-disponible/)
+- **CAN 2025 : de nouveaux billets disponibles pour tous les matchs**: [Link](https://medias24.com/2025/10/17/can-2025-de-nouveaux-billets-disponibles-pour-tous-les-matchs/)
+- **CAN 2025 : Acheter un ticket, risquer sa santé mentale**: [Link](https://mobile.telquel.ma/2025/10/15/can-2025-acheter-un-ticket-risquer-sa-sante-mentale_1955966)
+
+
 ### cnss (N/A, Fri, 17 Oct 2025 08:50:00 -0700)
 
 - **Indemnités et frais professionnels : un arrêté clarifie l’exonération CNSS et met fin au flou**: [Link](https://medias24.com/2025/10/14/indemnites-et-frais-professionnels-un-arrete-clarifie-lexoneration-cnss-et-met-fin-au-flou/)
