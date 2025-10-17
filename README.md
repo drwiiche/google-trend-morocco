@@ -1,3 +1,10 @@
+### cafonline (N/A, Fri, 17 Oct 2025 04:10:00 -0700)
+
+- **“We’ll keep our identity” — Tanzania coach Hemed Suleiman on facing Nigeria, Tunisia and Uganda**: [Link](https://www.cafonline.com/afcon2025/news/we-ll-keep-our-identity-tanzania-coach-hemed-suleiman-on-facing-nigeria-tunisia-and-uganda/)
+- **Tanzania Nears Completion of Uhuru Stadium Renovation as Government Pushes Sports Infrastructure**: [Link](https://www.sports247.ng/tanzania-nears-completion-of-uhuru-stadium-renovation-as-government-pushes-sports-infrastructure/)
+- **TotalEnergies CAF Super Cup: “Our Ambition Knows No Limits” - Ali Gabr**: [Link](https://www.cafonline.com/caf-super-cup/news/totalenergies-caf-super-cup-our-ambition-knows-no-limits-ali-gabr/)
+
+
 ### mélenchon (N/A, Fri, 17 Oct 2025 03:40:00 -0700)
 
 - **« Il hurlait dans les couloirs » : la grosse colère de Jean-Luc Mélenchon à France-Inter**: [Link](https://www.nouvelobs.com/politique/20251016.OBS108825/il-hurlait-dans-les-couloirs-la-grosse-colere-de-jean-luc-melenchon-a-france-inter.html)
