@@ -1,3 +1,10 @@
+### john bolton (N/A, Fri, 17 Oct 2025 02:30:00 -0700)
+
+- **John Bolton: Former Trump national security adviser indicted**: [Link](https://www.bbc.com/news/articles/cgql2qzkz5zo)
+- **Ex-Trump adviser John Bolton indicted on charges of mishandling classified information**: [Link](https://www.theguardian.com/us-news/2025/oct/16/john-bolton-indictment-trump)
+- **Criminal charges against Bolton expected as early as next week**: [Link](https://www.msnbc.com/msnbc/news/criminal-charges-bolton-expected-early-week-rcna236926)
+
+
 ### حالة الطقس (N/A, Thu, 16 Oct 2025 23:40:00 -0700)
 
 - **هل تشهد البلاد عواصف خلال الأيام المقبلة؟.. «الأرصاد» توضح**: [Link](https://zahraa.mr/5979009/%D9%87%D9%84-%D8%AA%D8%B4%D9%87%D8%AF-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D8%A7/)
