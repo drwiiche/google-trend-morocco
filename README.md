@@ -1,3 +1,10 @@
+### real oviedo – espanyol (N/A, Fri, 17 Oct 2025 11:20:00 -0700)
+
+- **Previa del Real Oviedo-Espanyol: llegó el turno del Tartiere**: [Link](https://www.lavozdeasturias.es/noticia/azulcarbayon/2025/10/17/previa-real-oviedo-espanyol-llego-turno-tartiere/00031760684698279491666.htm)
+- **Oviedo - Espanyol en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-ea-sports/oviedo-espanyol/2025/10/17/01_0101_20251017_187_177-directo.html)
+- **El Oviedo abre la novena jornada de Primera División con el reestreno de Carrión en el banquillo azul**: [Link](https://www.rtpa.es/noticias-deportes/2025-10-17/El-Oviedo-abre-la-novena-jornada-de-Primera-Division-con-el-reestreno-de-Carrion-en-el-banquillo-azul_111760713000.html)
+
+
 ### paris-sg – strasbourg (N/A, Fri, 17 Oct 2025 11:00:00 -0700)
 
 - **Le groupe restreint du PSG pour affronter Strasbourg**: [Link](https://www.footmercato.net/a3523082947664226199-le-groupe-restreint-du-psg-pour-affronter-strasbourg)
