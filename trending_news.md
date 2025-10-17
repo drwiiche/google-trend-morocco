@@ -1,3 +1,10 @@
+### sfr patrick drahi (N/A, Fri, 17 Oct 2025 06:20:00 -0700)
+
+- **SFR : Patrick Drahi, l’homme qui valait 15,5 milliards de dette et qui voit son empire s’effondrer**: [Link](https://www.20minutes.fr/economie/4179485-20251015-sfr-patrick-drahi-homme-valait-15-5-milliards-dette-voyait-empire-effondrer)
+- **Le dépeçage annoncé de SFR entre Orange, Bouygues Telecom et Free, un casse-tête qui va durer quatre ans**: [Link](https://www.lefigaro.fr/secteur/high-tech/le-depecage-annonce-de-sfr-entre-orange-bouygues-telecom-et-free-un-casse-tete-qui-va-durer-quatre-ans-20251015)
+- **"Le délai pourrait grimper jusqu'à plus de quatre ans" : voici pourquoi le feuilleton de la vente de SFR va durer jusqu'à au moins 2030**: [Link](https://www.frandroid.com/marques/sfr/2835745_le-delai-pourrait-grimper-jusqua-plus-de-quatre-ans-voici-pourquoi-le-feuilleton-de-la-vente-de-sfr-va-durer-jusqua-au-moins-2030)
+
+
 ### خطبة الجمعة اليوم (N/A, Fri, 17 Oct 2025 05:40:00 -0700)
 
 - **إعلان هام لوزارة الأوقاف بشأن موضوع خطبة الجمعة**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%87%D8%A7%D9%85-%D9%84%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D9%88%D8%B6%D9%88%D8%B9-%D8%AE%D8%B7-963036.html)
