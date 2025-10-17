@@ -1,3 +1,10 @@
+### classement fifa (N/A, Fri, 17 Oct 2025 06:00:00 -0700)
+
+- **Classement FIFA : l’Argentine repasse devant la France, le Brésil recule encore**: [Link](https://www.footmercato.net/a8756286508483859734-classement-fifa-largentine-repasse-devant-la-france-le-bresil-recule-encore)
+- **Classement FIFA: les Lions de l’Atlas reculent d’une place**: [Link](https://sport.le360.ma/football/lions-atlas/classement-fifa-les-lions-de-latlas-reculent-dune-place_EPSWQHERRJHR7ESP4UMX3XTO6E/)
+- **Classement FIFA : pourquoi le Maroc recule à la 12ᵉ place malgré un bon parcours**: [Link](https://medias24.com/2025/10/17/classement-fifa-pourquoi-le-maroc-recule-a-la-12%E1%B5%89-place-malgre-un-bon-parcours/)
+
+
 ### match maroc u20 finale (N/A, Fri, 17 Oct 2025 03:10:00 -0700)
 
 - **France-Maroc: scénario cruel pour les Bleuets, éliminés aux tirs au but en demi-finale de la Coupe du monde U20**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/direct-maroc-france-suivez-la-demi-finale-de-la-coupe-du-monde-u20-en-live_LS-202510150840.html)
