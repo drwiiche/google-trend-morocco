@@ -1,3 +1,10 @@
+### ريال أوفييدو ضد إسبانيول (N/A, Fri, 17 Oct 2025 12:20:00 -0700)
+
+- **أفييدو-الإسبانيول...اشعيرة والهيلالي حاضران في قائمة الفريقين**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84%D8%A7%D8%B4%D8%B9%D9%8A%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D9%87%D9%8A%D9%84%D8%A7%D9%84%D9%8A-%D8%AD%D8%A7%D8%B6%D8%B1%D8%A7%D9%86-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D9%86/10334)
+- **"Real Oviedo vs Espanyol".. الآن مباراة ريال أوفييدو وإسبانيول في الدوري الإسباني والقنوات الناقلة لها**: [Link](https://zahraa.mr/5983221/real-oviedo-vs-espanyol-%D8%A7%D9%84%D8%A2%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A3%D9%88%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86/)
+- **بث مباشر بجودة عالية..مشاهدة مباراة ريال أوفييدو ضد إسبانيول على ملعب كارلوس تارتيير في الدوري الإسباني**: [Link](https://www.almashhad.news/348185)
+
+
 ### coupe du monde u17 féminine (N/A, Fri, 17 Oct 2025 11:50:00 -0700)
 
 - **CM Féminine U17: dernière séance d’entraînement avant le match contre le Brésil**: [Link](https://frmf.ma/fr/%D9%B1%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A/)
