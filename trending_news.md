@@ -1,3 +1,10 @@
+### match maroc u20 finale (N/A, Fri, 17 Oct 2025 03:10:00 -0700)
+
+- **France-Maroc: scénario cruel pour les Bleuets, éliminés aux tirs au but en demi-finale de la Coupe du monde U20**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/direct-maroc-france-suivez-la-demi-finale-de-la-coupe-du-monde-u20-en-live_LS-202510150840.html)
+- **« Il y a des talents partout » : comment le Maroc est devenu l’un des meilleurs pays de la planète football**: [Link](https://www.leparisien.fr/sports/football/il-y-a-des-talents-partout-comment-le-maroc-est-devenu-lun-des-meilleurs-pays-de-la-planete-football-17-10-2025-QDH4XK6O2REPDLN5P4SGRSZVSI.php)
+- **L’organisation de vols spéciaux pour la finale U20 au Chili se heurte au problème des visas**: [Link](https://medias24.com/2025/10/17/lorganisation-de-vols-speciaux-pour-la-finale-u20-au-chili-se-heurte-au-probleme-des-visas/)
+
+
 ### sfr patrick drahi (N/A, Fri, 17 Oct 2025 06:20:00 -0700)
 
 - **SFR : Patrick Drahi, l’homme qui valait 15,5 milliards de dette et qui voit son empire s’effondrer**: [Link](https://www.20minutes.fr/economie/4179485-20251015-sfr-patrick-drahi-homme-valait-15-5-milliards-dette-voyait-empire-effondrer)
