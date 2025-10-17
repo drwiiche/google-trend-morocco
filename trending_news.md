@@ -1,3 +1,9 @@
+### al-ahli saudi – al shabab (N/A, Fri, 17 Oct 2025 10:30:00 -0700)
+
+- **Al-Ahli vs Al-Shabab Prediction: Al-Ahli favored to extend strong start**: [Link](https://www.telecomasia.net/sports-betting/tips/football/saudi-pro-league/al-ahli-vs-al-shabab-prediction-for-the-match-on-october-17-2025/)
+- **Al Ahli vs Al Shabab Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-al-shabab-preview-202510)
+
+
 ### ticket cafonline (N/A, Fri, 17 Oct 2025 03:50:00 -0700)
 
 - **La billetterie de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 ouvre le lundi 13 octobre, l’application YALLA désormais disponible**: [Link](https://www.cafonline.com/fr/can2025/infos/la-billetterie-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-ouvre-le-lundi-13-octobre-l-application-yalla-desormais-disponible/)
