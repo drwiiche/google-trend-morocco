@@ -1,3 +1,15 @@
+### nestlé (N/A, Thu, 16 Oct 2025 16:50:00 -0700)
+
+- **World’s largest food company is cutting 16,000 jobs due partly to automation**: [Link](https://www.cnn.com/2025/10/16/business/nestle-layoffs-automation-intl)
+- **Nestlé Plan to Slash 16,000 Jobs Sparks Share Jump**: [Link](https://www.wsj.com/business/nestle-layoffs-restructure-nesn-stock-369e6a91?gaa_at=eafs&gaa_n=AWEtsqcjvoDadH72yYeJ9wXhAiaYyiuZcWSFyzwhjC_b1Vbi9rBxJw3HCF2n&gaa_ts=68f1aa4d&gaa_sig=s8LJqfXP9eIennEJTmJ3fUHezclx3iU_kgiysmlFLNLv2HX9tJ_JFq4P66uW2CCtx40DYUwrvsBJ70uUPFnyfw%3D%3D)
+- **Nestle announces plans to slash 16,000 jobs, stock jumps 9%**: [Link](https://www.cnbc.com/2025/10/16/nestle-3q-earnings-announces-16000-job-cuts.html)
+
+
+### michel fournier (N/A, Thu, 16 Oct 2025 09:50:00 -0700)
+
+
+
+
 ### stake (N/A, Thu, 16 Oct 2025 16:50:00 -0700)
 
 - **Blue Trust Boosts VGIT Stake as Investors Seek Stability in Treasuries**: [Link](https://www.fool.com/coverage/filings/2025/10/16/blue-trust-boosts-vgit-stake-as-investors-seek-stability-in-treasuries/)
