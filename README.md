@@ -1,3 +1,10 @@
+### quinte (N/A, Thu, 16 Oct 2025 22:30:00 -0700)
+
+- **Les pronos hippiques du jeudi 16 octobre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-16-octobre-2025_AN-202510140847.html)
+- **Quinté du jeudi 16 octobre 2025 à Saint-Cloud : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-jeudi-16-octobre-2025-a-saint-cloud-les-pronostics-7900553301)
+- **Arrivée et rapports du Quinté+ de ce jeudi à Saint-Cloud : Narkez en marquant les esprits**: [Link](https://www.equidia.fr/articles/retour-sur-les-courses/arrivee-et-rapports-du-quinte-de-ce-jeudi-a-saint-cloud-narkez-en-marquant-les-esprits)
+
+
 ### football maroc u20 (N/A, Thu, 16 Oct 2025 06:40:00 -0700)
 
 - **La France cruellement battue aux tirs au but par le Maroc en demi-finales de Coupe du monde U20**: [Link](https://www.lequipe.fr/Football/Actualites/La-france-cruellement-battue-aux-tirs-au-but-par-le-maroc-en-demi-finales-de-coupe-du-monde-u20/1601961)
