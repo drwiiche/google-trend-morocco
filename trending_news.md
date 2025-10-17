@@ -1,3 +1,15 @@
+### stake (N/A, Thu, 16 Oct 2025 16:50:00 -0700)
+
+- **Blue Trust Boosts VGIT Stake as Investors Seek Stability in Treasuries**: [Link](https://www.fool.com/coverage/filings/2025/10/16/blue-trust-boosts-vgit-stake-as-investors-seek-stability-in-treasuries/)
+- **Blue Trust Boosts VGIT Stake as Investors Seek Stability in Treasuries**: [Link](https://www.aol.com/articles/blue-trust-boosts-vgit-stake-230946136.html)
+- **MacKenzie Scott Shrinks Her Amazon Stake by $12.6 Billion**: [Link](https://www.bloomberg.com/news/articles/2025-10-14/mackenzie-scott-shrinks-her-amazon-stake-by-12-6-billion)
+
+
+### 5g maroc (N/A, Thu, 16 Oct 2025 16:40:00 -0700)
+
+
+
+
 ### colonel michael randrianirina (N/A, Thu, 16 Oct 2025 15:20:00 -0700)
 
 - **Madagascar’s president is ousted in a military coup after weeks of youth-led protests**: [Link](https://apnews.com/article/madagascar-protests-rajoelina-ab1e1eb1aca45fe7e80e81314ebdb0c6)
