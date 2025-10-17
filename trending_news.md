@@ -1,3 +1,17 @@
+### coupe du monde u17 féminine (N/A, Fri, 17 Oct 2025 11:50:00 -0700)
+
+- **CM Féminine U17: dernière séance d’entraînement avant le match contre le Brésil**: [Link](https://frmf.ma/fr/%D9%B1%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A/)
+- **Coupe du Monde U17 féminine. Maroc-Brésil : une histoire à écrire**: [Link](https://medias24.com/2025/10/17/coupe-du-monde-u17-feminine-maroc-bresil-une-histoire-a-ecrire/)
+- **Mondial U17 : Nabil Baha dévoilera sa liste de joueurs convoqués lundi**: [Link](https://fr.hespress.com/445838-mondial-u17-nabil-baha-devoilera-sa-liste-de-joueurs-convoques-lundi.html)
+
+
+### كأس العالم للسيدات 2025 (N/A, Fri, 17 Oct 2025 11:30:00 -0700)
+
+- **ٱخر حصة تدريبية للمنتخب الوطني النسوي لأقل من 17 سنة**: [Link](https://frmf.ma/%D9%B1%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A/)
+- **باها يكشف لائحة "U17" لكأس العالم**: [Link](https://www.hespress.com/%D8%A8%D8%A7%D9%87%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-u17-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-1641351.html)
+- **تحضيرا للمونديال.. المنتخب المغربي لأقل من 17 سنة يشارك في دوري دولي بالإمارات بحضور فنزويلا وسويسرا**: [Link](https://m.elbotola.com/article/2025-10-15-18-14-563.html)
+
+
 ### chaves – benfica (N/A, Fri, 17 Oct 2025 11:40:00 -0700)
 
 - **Chaves x Benfica – Palpites e onde assistir – (17/10)**: [Link](https://olhardigital.com.br/apostas/chaves-x-benfica-palpites-e-onde-assistir-17-10/)
