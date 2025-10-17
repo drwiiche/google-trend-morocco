@@ -1,3 +1,10 @@
+### u17 world cup (N/A, Fri, 17 Oct 2025 12:10:00 -0700)
+
+- **Boniface Eyes Golden Glove as Flamingos Depart for U-17 WWC**: [Link](https://brila.net/boniface-eyes-golden-glove-as-flamingos-depart-for-u-17-wwc/)
+- **Flamingos Touch Down in Rabat, Poised for Canada Opener**: [Link](https://www.footballinnigeria.com.ng/womens-football/flamingos-touch-down-in-rabat-poised-for-canada-opener/)
+- **2025 FIFA U-17 Women’s World Cup: Flamingos edge Paraguay in five-goal thriller**: [Link](https://www.westernpost.ng/2025-fifa-u-17-womens-world-cup-flamingos-edge-paraguay-in-five-goal-thriller/)
+
+
 ### maroc vs brazil (N/A, Fri, 17 Oct 2025 13:40:00 -0700)
 
 - **Brazil Defeats Morocco 3-0 in U17 Women’s World Cup Group Stage Match**: [Link](https://www.moroccoworldnews.com/2025/10/264059/brazil-defeats-morocco-3-0-in-u17-womens-world-cup-group-stage-match/)
