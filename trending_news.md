@@ -1,3 +1,10 @@
+### om (N/A, Sat, 18 Oct 2025 12:40:00 -0700)
+
+- **Piastri en Norris hebben vrede met pole Verstappen: 'Niet einde van de wereld'**: [Link](https://www.nu.nl/formule-1/6372823/piastri-en-norris-hebben-vrede-met-pole-verstappen-niet-einde-van-de-wereld.html)
+- **McLaren-coureurs reageren op rampzalige startcrash**: [Link](https://racingnews365.nl/mclaren-coureurs-reageren-op-rampzalige-startcrash)
+- **UITSLAG Sprintrace Grand Prix van de Verenigde Staten**: [Link](https://www.racexpress.nl/formule-1/uitslag-sprintrace-grand-prix-van-de-verenigde-staten/n/148475)
+
+
 ### al-nassr vs al fateh (N/A, Sat, 18 Oct 2025 11:30:00 -0700)
 
 - **IShowSpeed begins live stream from Al-Nassr stadium after travelling to watch Cristiano Ronaldo play against Al Fateh**: [Link](https://www.sportskeeda.com/football/news-ishowspeed-begins-live-stream-al-nassr-stadium-travelling-watch-cristiano-ronaldo-play-al-fateh)
