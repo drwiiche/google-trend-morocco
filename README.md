@@ -1,3 +1,10 @@
+### نوتينغهام فورست ضد تشيلسي (N/A, Sat, 18 Oct 2025 04:30:00 -0700)
+
+- **هدافو تشيلسي في البريميرليج هذا الموسم**: [Link](https://hihi2.com/2025/10/18/p3431741.html)
+- **يلا شووت - متابعة لحظية للمباريات**: [Link](https://www.ysscores.com/ar/news/13840024/%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D9%83%D8%A7%D9%8A%D8%B3%D9%8A%D8%AF%D9%88-%D8%A7%D9%84%D9%85%D8%B0%D9%87%D9%84%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D9%81-%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D9%88%D8%AA%D9%86%D8%AC%D9%87%D8%A7%D9%85)
+- **Chelsea vs Nottingham.. القنوات الناقلة لمباراة تشيلسي ضد نوتنجهام اليوم والتشكيل في الدوري الإنجليزي 2025**: [Link](https://zahraa.mr/5985808/chelsea-vs-nottingham-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B6/)
+
+
 ### séville – majorque (N/A, Sat, 18 Oct 2025 04:10:00 -0700)
 
 - **DIRECT. Séville FC-Majorque (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/seville-fc-majorque-live/676801)
