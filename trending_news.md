@@ -1,3 +1,10 @@
+### kick (N/A, Sat, 18 Oct 2025 14:40:00 -0700)
+
+- **Hibernian 4-0 Livingston: What the Gray said**: [Link](https://www.bbc.com/sport/articles/cj0er7m9pm1o)
+- **How Hibs made controlled ascent to third in table - with momentum now on their side**: [Link](https://www.edinburghnews.scotsman.com/sport/football/hibs/hibs-talking-points-scottish-premiership-livingston-third-place-5365445)
+- **David Gray thrilled Thibault Klidje ‘took his opportunity’ in Hibernian rout**: [Link](https://www.corklive.ie/news/sport/1922350/david-gray-thrilled-thibault-klidje-took-his-opportunity-in-hibernian-rout.html)
+
+
 ### guy roux (N/A, Sat, 18 Oct 2025 14:30:00 -0700)
 
 - **Guy Roux, hommages unanimes**: [Link](https://www.sports.fr/football/ligue-1/guy-roux-hommages-unanimes-959489.html)
