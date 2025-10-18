@@ -1,3 +1,10 @@
+### hespress (N/A, Fri, 17 Oct 2025 23:10:00 -0700)
+
+- **شرطي يرتكب جريمة قتل بالبيضاء**: [Link](https://www.hespress.com/%D8%B4%D8%B1%D8%B7%D9%8A-%D9%8A%D8%B1%D8%AA%D9%83%D8%A8-%D8%AC%D8%B1%D9%8A%D9%85%D8%A9-%D9%82%D8%AA%D9%84-%D8%A8%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1641704.html)
+- **الدار البيضاء.. رجل أمن يُنهي حياة سيدة قبل أن ينتحر(صور)**: [Link](https://ar.hibapress.com/details-667022.html)
+- **عاجل. انتحار بوليسي من الدراجين حدا ولاية الامن فكازا. بدا بصاحبتو**: [Link](https://www.goud.ma/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%86%D8%AA%D8%AD%D8%A7%D8%B1-%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%AC%D9%8A%D9%86-%D8%AD%D8%AF%D8%A7-%D9%88%D9%84%D8%A7-980618/)
+
+
 ### moncef belkhayat (N/A, Fri, 17 Oct 2025 20:30:00 -0700)
 
 - **Moncef Belkhayat annonce la finalisation du rachat du transporteur Transload**: [Link](https://ledesk.ma/encontinu/moncef-belkhayat-annonce-la-finalisation-du-rachat-du-transporteur-transload/)
