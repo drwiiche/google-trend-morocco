@@ -1,3 +1,31 @@
+### mtv (N/A, Sat, 18 Oct 2025 11:00:00 -0700)
+
+- **‘No one makes money from them’: with MTV channels switching off, is the music video under threat?**: [Link](https://www.theguardian.com/music/2025/oct/18/no-one-makes-money-from-them-with-mtv-channels-switching-off-is-the-music-video-under-threat)
+- **MTV to axe its music TV channels in the UK**: [Link](https://www.bbc.com/news/articles/cdr612yz8p0o)
+- **The truth behind the MTV rumors — as corporate bosses look to slash costs**: [Link](https://nypost.com/2025/10/17/media/the-truth-behind-the-mtv-rumors-as-corporate-bosses-look-to-slash-costs/)
+
+
+### napoli (N/A, Sat, 18 Oct 2025 10:50:00 -0700)
+
+- **Il Napoli perde pure col Torino: due sconfitte in sette partite, non è così che si vincono gli scudetti Castel Volturno, abbiamo un problema. Non solo di infortuni ma anche di gioco. Il Napoli aspetta la fiammata che non arriva. È stato un pianto greco. Gol dell'ex S**: [Link](https://www.facebook.com/ilnapolista/photos/il-napoli-perde-pure-col-torino-due-sconfitte-in-sette-partite-non-%C3%A8-cos%C3%AC-che-si/1329004895904829/)
+- **Simeone fa gol e non esulta: il gesto verso i tifosi del Napoli**: [Link](https://www.corrieredellosport.it/foto/calcio/serie-a/2025/10/18-143886152/simeone_fa_gol_e_non_esulta_il_gesto_verso_i_tifosi_del_napoli)
+- **Tutti gli aggiornamenti sul calcio di oggi**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-torino-napoli-0-0-pari-senza-reti-a-pisa-e-lecce/rqzEUnb6/)
+
+
+### f1 (N/A, Sat, 18 Oct 2025 10:50:00 -0700)
+
+- **Verstappen beats Norris to Sprint pole in Austin**: [Link](https://www.formula1.com/en/latest/article/verstappen-beats-norris-and-piastri-to-pole-during-thrilling-sprint.2k4RbPhpuYVB21GcJx7Eb5)
+- **US Grand Prix: Max Verstappen beats Lando Norris to pole for sprint race in Austin**: [Link](https://www.bbc.com/sport/formula1/articles/ce3k13ne1zlo)
+- **McLaren double disaster in first lap crash chaos**: [Link](https://racingnews365.com/mclaren-double-disaster-in-first-lap-crash-chaos)
+
+
+### match maroc argentine (N/A, Sat, 18 Oct 2025 10:10:00 -0700)
+
+- **Othmane Maamma avant la finale de la Coupe du monde U20 face à l'Argentine : «On se bat pour le Maroc, pour rendre fier tout le peuple»**: [Link](https://www.lequipe.fr/Football/Actualites/Othmane-maamma-avant-la-finale-de-la-coupe-du-monde-u20-face-a-l-argentine-on-se-bat-pour-le-maroc-pour-rendre-fier-tout-le-peuple/1602656)
+- **Mondial U20: deux vols spéciaux pour le transport des supporters du Maroc en finale**: [Link](https://mobile.telquel.ma/instant-t/2025/10/17/mondial-u20-deux-vols-speciaux-pour-le-transport-des-supporters-du-maroc-en-finale_1956420/)
+- **Finale Maroc-Argentine : le Chili exempte de visa les supporters marocains des vols spéciaux de la RAM**: [Link](https://medias24.com/2025/10/18/finale-maroc-argentine-le-chili-exempte-de-visa-les-supporters-marocains-des-vols-speciaux-de-la-ram/)
+
+
 ### al-nassr fc – al-fateh (N/A, Sat, 18 Oct 2025 10:20:00 -0700)
 
 - **Al-Nassr FC vs. Al-Fateh SC - Boxscore - October 18, 2025**: [Link](https://www.foxsports.com/soccer/saudi-pro-league-al-nassr-fc-vs-al-fateh-sc-oct-18-2025-game-boxscore-643282?tab=boxscore)
