@@ -1,3 +1,17 @@
+### oncf (N/A, Sat, 18 Oct 2025 03:20:00 -0700)
+
+- **​Marrakech – ONCF : Une heure de retard, 10 000 dirhams de justice !**: [Link](https://www.lopinion.ma/%E2%80%8BMarrakech-ONCF-Une-heure-de-retard-10-000-dirhams-de-justice-_a72872.html)
+- **Maroc : une cliente fait condamner (lourdement) l’ONCF**: [Link](https://www.bladi.net/maroc-cliente-fait-condamner-lourdement-oncf,117430.html)
+- **حريق يُربك حركة القطارات .. ONCF يوضح**: [Link](https://snrtnews.com/article/139515)
+
+
+### incarcération nicolas sarkozy (N/A, Sat, 18 Oct 2025 03:10:00 -0700)
+
+- **INFO BFM BUSINESS. Malgré son incarcération, Nicolas Sarkozy va rester administrateur d’Accor et Lagardère**: [Link](https://www.bfmtv.com/economie/entreprises/info-bfm-business-malgre-son-incarceration-nicolas-sarkozy-va-rester-administrateur-d-accor-et-lagardere_AN-202510170078.html)
+- **"La Santé, c’est plus familial et plus propre que Fleury" : les petits conseils de Balkany à Sarkozy avant son incarcération**: [Link](https://www.marianne.net/societe/police-et-justice/patrick-balkany-a-fleury-merogis-un-amateur-de-foot-comme-sarkozy-pourra-assister-a-des-matchs-depuis-sa-cellule)
+- **INFO RTL - Nicolas Sarkozy sera incarcéré le 21 octobre à la prison de la Santé**: [Link](https://www.rtl.fr/actu/justice-faits-divers/incarceration-de-nicolas-sarkozy-l-ancien-president-est-arrive-au-parquet-national-financier-7900552180)
+
+
 ### saint lucia (N/A, Sat, 18 Oct 2025 00:30:00 -0700)
 
 - **Saint Lucia Cricket HPC to be revamped to match West Indies standards**: [Link](https://stluciatimes.com/174036/2025/10/saint-lucia-cricket-hpc-to-be-revamped-to-match-west-indies-standards/)
