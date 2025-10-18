@@ -1,3 +1,10 @@
+### guy roux (N/A, Sat, 18 Oct 2025 14:30:00 -0700)
+
+- **Guy Roux, hommages unanimes**: [Link](https://www.sports.fr/football/ligue-1/guy-roux-hommages-unanimes-959489.html)
+- **“On va jouer contre le Brésil 1970 là ou quoi ?” Des anciens joueurs de l’AJ Auxerre racontent Guy Roux pour son 87e anniversaire**: [Link](https://www.topmercato.com/1937453-anciens-joueurs-aj-auxerre-racontent-guy-roux-anniversaire/)
+- **Guy Roux, figure éternelle de l’AJ Auxerre honorée par ses joueurs**: [Link](https://www.footix.fr/guy-roux-figure-eternelle-de-laj-auxerre-honoree-par-ses-joueurs/)
+
+
 ### nashville – inter miami (N/A, Sat, 18 Oct 2025 14:20:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Visits Nashville FC for Decision Day 2025**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-visits-nashville-fc-for-decision-day-2025)
