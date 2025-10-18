@@ -1,3 +1,30 @@
+### al-ettifaq – al-hilal (N/A, Sat, 18 Oct 2025 07:30:00 -0700)
+
+- **Al-Ettifaq vs Al-Hilal Prediction: Not the best start for Hilal**: [Link](https://www.telecomasia.net/sports-betting/tips/football/saudi-pro-league/al-ettifaq-vs-al-hilal-prediction-for-the-match-on-october-18-2025/)
+- **Al Ettifaq vs Al Hilal Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ettifaq-vs-al-hilal-preview-202510)
+
+
+### barcelona (N/A, Sat, 18 Oct 2025 07:30:00 -0700)
+
+- **Posible alineación del Barça ante el Girona: Flick ‘reinventará’ el ataque**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-girona-flick-reinventara-el-ataque-f202510-n/)
+- **FC Barcelona - Girona: Un derbi bajo mínimos para resurgir y crecer**: [Link](https://www.sport.es/es/noticias/barca/derbi-minimos-resurgir-crecer-122737949)
+- **Los elegidos por Míchel para jugar contra el Barça**: [Link](https://www.mundodeportivo.com/videos/futbol/20251018/1002552810/elegidos-michel-jugar-barca.html)
+
+
+### fc barcelone (N/A, Sat, 18 Oct 2025 07:30:00 -0700)
+
+- **FC Barcelone : Lamine Yamal et Fermin Lopez dans le groupe face à Girona**: [Link](https://www.footmercato.net/a5043429084930045846-fc-barcelone-lamine-yamal-et-fermin-lopez-dans-le-groupe-face-a-girona)
+- **Gérone : Un derby pour repartir de l'avant**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4384136/fc-barcelone-gerone-un-derby-pour-repartir-de-lavant)
+- **Barcelone - Gérone : à quelle heure et sur quelle chaîne regarder le match de La Liga en direct ?**: [Link](https://rmcsport.bfmtv.com/football/liga/barcelone-gerone-a-quelle-heure-et-sur-quelle-chaine-regarder-le-match-de-la-liga-en-direct_AN-202510180033.html)
+
+
+### morocco vs argentina (N/A, Sat, 18 Oct 2025 07:30:00 -0700)
+
+- **Reports: $10 Million Requested for Morocco vs Argentina Friendly**: [Link](https://www.moroccoworldnews.com/2025/10/264013/reports-10-million-requested-for-morocco-vs-argentina-friendly/)
+- **After Brazil, Argentina 'Keen' On African Opponents**: [Link](https://www.soccerladuma.co.za/international/around-the-world/argentina-keen-to-play-angola-morocco-after-brazil-confirm-african-opponents)
+- **The world champion will face the Lions in a friendly in November**: [Link](https://foot-africa.com/en/news/the-world-champion-will-face-the-lions-in-a-friendly-in-november-917328/)
+
+
 ### sunderland – wolves (N/A, Sat, 18 Oct 2025 07:20:00 -0700)
 
 - **Score Predictions: Can The Black Cats Wound the Wolves?**: [Link](https://rokerreport.sbnation.com/match-previews/111017/score-predictions-can-the-black-cats-wound-the-wolves)
