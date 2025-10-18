@@ -1,3 +1,10 @@
+### moncef belkhayat (N/A, Fri, 17 Oct 2025 20:30:00 -0700)
+
+- **Moncef Belkhayat annonce la finalisation du rachat du transporteur Transload**: [Link](https://ledesk.ma/encontinu/moncef-belkhayat-annonce-la-finalisation-du-rachat-du-transporteur-transload/)
+- **BLS crée le premier opérateur logistique intégré au Maroc après le rachat de La Voie Express**: [Link](https://medias24.com/2025/10/17/bls-cree-le-premier-operateur-logistique-integre-au-maroc-apres-le-rachat-de-la-voie-express/)
+- **Maroc : Moncef Belkhayat signe le deal logistique de l’année**: [Link](https://www.financialafrik.com/2025/10/17/maroc-moncef-belkhayat-signe-le-deal-logistique-de-lannee/)
+
+
 ### ligue 1 (N/A, Fri, 17 Oct 2025 12:30:00 -0700)
 
 - **Ligue 1 : Lyon vise le quatre à la suite à Nice**: [Link](https://www.beinsports.com/fr-fr/football/ligue-1/articles/ligue-1-lyon-vise-le-quatre-%C3%A0-la-suite-%C3%A0-nice-2025-10-17)
