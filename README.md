@@ -1,3 +1,10 @@
+### mainz 05 – leverkusen (N/A, Sat, 18 Oct 2025 06:00:00 -0700)
+
+- **Bundesliga heute: Mainz - Leverkusen LIVE im TV, Liveticker & Livestream - Überraschung um Hofmann**: [Link](https://www.sport1.de/news/fussball/bundesliga/2025/10/bundesliga-heute-mainz-leverkusen-live-im-tv-liveticker-livestream)
+- **"Hjulmand ist nicht unschlagbar" - Mainz-Coach Henriksen vor Dänen-Duell gegen Leverkusen**: [Link](https://www.tagesschau.de/inland/regional/rheinlandpfalz/swr-hjulmand-ist-nicht-unschlagbar-mainz-coach-henriksen-vor-daenen-duell-gegen-leverkusen-102.html)
+- **"Brauchen Energie und Vertrauen ineinander"**: [Link](https://www.mainz05.de/news/m05b04-2526-henriksen-energie-und-vertrauen)
+
+
 ### morocco vs argentina u20 (N/A, Sat, 18 Oct 2025 05:40:00 -0700)
 
 - **Morocco Charts Exemplary Path to U-20 World Cup Final, Fueled by Patriotism & Commitment**: [Link](https://www.maroc.ma/en/news/morocco-charts-exemplary-path-u-20-world-cup-final-fueled-patriotism-commitment)
