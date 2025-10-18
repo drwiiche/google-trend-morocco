@@ -1,3 +1,10 @@
+### sunderland – wolves (N/A, Sat, 18 Oct 2025 07:20:00 -0700)
+
+- **Score Predictions: Can The Black Cats Wound the Wolves?**: [Link](https://rokerreport.sbnation.com/match-previews/111017/score-predictions-can-the-black-cats-wound-the-wolves)
+- **Chris Sutton issues apology to Sunderland fans in latest Premier League prediction**: [Link](https://tbrfootball.com/chris-sutton-issues-apology-to-sunderland-fans-in-latest-premier-league-prediction/)
+- **Final One Standing: Gameweek 8 Predictions**: [Link](https://news.williamhill.com/football/final-one-standing-gameweek-8-predictions/)
+
+
 ### toni fernández (N/A, Sat, 18 Oct 2025 06:40:00 -0700)
 
 - **Posible alineación del Barça ante el Girona: Flick ‘reinventará’ el ataque**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-girona-flick-reinventara-el-ataque-f202510-n/)
