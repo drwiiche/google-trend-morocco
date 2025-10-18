@@ -1,3 +1,10 @@
+### nottm forest – chelsea (N/A, Sat, 18 Oct 2025 03:40:00 -0700)
+
+- **Enzo Maresca confirms team news for Nottingham Forest | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-confirms-team-news-for-nottingham-forest)
+- **Chelsea news: Fernandez set to be fit for Premier League return**: [Link](https://www.bbc.co.uk/sport/football/articles/ckgkvne484ko)
+- **Forest Preview | Premier League action returns with visit from Chelsea**: [Link](https://www.nottinghamforest.co.uk/news/2025/october/17/forest-preview---premier-league-action-returns-with-visit-from-chelsea/)
+
+
 ### oncf (N/A, Sat, 18 Oct 2025 03:20:00 -0700)
 
 - **​Marrakech – ONCF : Une heure de retard, 10 000 dirhams de justice !**: [Link](https://www.lopinion.ma/%E2%80%8BMarrakech-ONCF-Une-heure-de-retard-10-000-dirhams-de-justice-_a72872.html)
