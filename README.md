@@ -1,3 +1,17 @@
+### أتلتيكو مدريد ضد أوساسونا (N/A, Sat, 18 Oct 2025 11:40:00 -0700)
+
+- **سيميوني في ورطة!**: [Link](https://hihi2.com/2025/10/14/p3426856.html)
+- **عودة الدوليين إلى صفوف أتلتيكو لمواجهة أوساسونا**: [Link](https://24.ae/article/924366/%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A%D9%8A%D9%86-%D8%A5%D9%84%D9%89-%D8%B5%D9%81%D9%88%D9%81-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7)
+- **بث مباشر.. شاهد مباراة أتلتيكو مدريد وأوساسونا اليوم في الدورس الإسباني بجودة عالية**: [Link](https://www.almashhad.news/348420)
+
+
+### france vs colombie u20 (N/A, Sat, 18 Oct 2025 11:40:00 -0700)
+
+- **Colombia vs. France: How to Watch, Odds, U-20 Preview**: [Link](https://www.foxnews.com/sports/colombia-vs-france-how-watch-odds-u-20-preview)
+- **U20 World Cup: What time and on which channel to watch the third-place playoff between France and Colombia**: [Link](https://foot-africa.com/en/news/u20-world-cup-what-time-and-on-which-channel-to-watch-the-third-place-playoff-between-france-and-colombia-923877/)
+- **Is there a third-place game at the FIFA U-20 World Cup 2025?**: [Link](https://bolavip.com/en/soccer/fifa-u20-world-cup-third-place-game)
+
+
 ### colombie u-20 – france u-20 (N/A, Sat, 18 Oct 2025 11:30:00 -0700)
 
 - **Colombie-France : à quelle heure et sur quelle chaîne TV voir la petite finale de la Coupe du monde U20**: [Link](https://www.leparisien.fr/sports/football/colombie-france-a-quelle-heure-et-sur-quelle-chaine-tv-voir-la-petite-finale-de-la-coupe-du-monde-u20-18-10-2025-ZYQ3XQYSGRHD3APOA5DECZK7SU.php)
