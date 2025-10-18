@@ -1,3 +1,38 @@
+### نهضة بركان (N/A, Sat, 18 Oct 2025 09:20:00 -0700)
+
+- **نهضة بركان يحشد أسلحته للعودة بالسوبر الأفريقي من مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%AD%D8%B4%D8%AF-%D8%A7%D9%94%D8%B3%D9%84%D8%AD%D8%AA%D9%87-%D9%84%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A8%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%85%D9%86-%D9%85%D8%B5%D8%B1/bltb12ebe05a6e0089c)
+- **الشعباني: "سنقاتل من أجل تحقيق كأس السوبر الأفريقي وإسعاد جماهيرنا"**: [Link](https://m.elbotola.com/article/2025-10-17-22-22-809.html)
+- **موعد مباراة بيراميدز ضد نهضة بركان في السوبر الأفريقي والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/10/16/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%B6%D8%AF-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%81%D9%8A)
+
+
+### فياريال ضد ريال بتيس (N/A, Sat, 18 Oct 2025 09:10:00 -0700)
+
+- **بيليغريني: "أمرابط تعافى تقريبا من الإصابة وهو في المراحل الأخيرة من التأهيل"**: [Link](https://m.elbotola.com/article/2025-10-18-13-05-337.html)
+- **أمرابط يعود لتدريبات ريال بيتيس**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-1640526.html)
+- **أمرابط حاضر في لائحة بيتيس لمواجهة أخوماش**: [Link](https://www.almountakhab.com/node/16218622)
+
+
+### torino – naples (N/A, Sat, 18 Oct 2025 09:10:00 -0700)
+
+- **Preview: Torino vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/torino/preview/torino-vs-napoli-prediction-team-news-lineups_583678.html)
+- **David Neres: A Chance to Shine**: [Link](https://www.ilmattino.it/en/david_neres_a_chance_to_shine-9130629.html)
+- **Football, Conte ahead of Torino-Napoli: “Buongiorno and Politano recovered”**: [Link](https://lapresse.us/sports/2025/10/17/football-conte-ahead-of-torino-napoli-buongiorno-and-politano-recovered/)
+
+
+### match barca (N/A, Sat, 18 Oct 2025 09:10:00 -0700)
+
+- **Barcelona in Miami: Oviedo and Espanyol players stage 15-second protest against La Liga**: [Link](https://www.bbc.com/sport/football/articles/cly2n8lplgno)
+- **Alonso talks Mbappe, Rodrygo, Bellingham, Ceballos, Mendy, Endrick ahead of Getafe vs Real Madrid**: [Link](https://madriduniversal.com/alonso-talks-mbappe-rodrygo-bellingham-ceballos-mendy-endrick-ahead-of-getafe-vs-real-madrid/)
+- **Why Real Madrid, La Liga Players Are Protesting This Weekend**: [Link](https://www.fotmob.com/embed/news/01k7t0y2azyd/why-real-madrid-la-liga-players-are-protesting-this-weekend)
+
+
+### berkane vs pyramids (N/A, Sat, 18 Oct 2025 08:10:00 -0700)
+
+- **WHERE TO WATCH: TotalEnergies CAF Super Cup Final on Saturday**: [Link](https://www.cafonline.com/caf-super-cup/news/where-to-watch-totalenergies-caf-super-cup-final-on-saturday/)
+- **Pyramids FC vs RS Berkane – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264101/pyramids-fc-vs-rs-berkane-match-preview-prediction/)
+- **African Super Cup final: Moroccans who have lifted the trophy in the past**: [Link](https://ca.sports.yahoo.com/news/african-super-cup-final-moroccans-153500424.html)
+
+
 ### villarreal – betis (N/A, Sat, 18 Oct 2025 08:50:00 -0700)
 
 - **La Champions de los ‘mortales’**: [Link](https://as.com/futbol/primera/la-champions-de-los-mortales-f202510-n/)
