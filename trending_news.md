@@ -1,3 +1,24 @@
+### brighton – newcastle (N/A, Sat, 18 Oct 2025 06:20:00 -0700)
+
+- **Eddie Howe makes two changes in Newcastle United v Brighton - predicted XI**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/newcastle-united-brighton-predicted-team-news-5364775)
+- **Brighton (A) – Pre-match thoughts, team news, possible XI and prediction**: [Link](https://www.nufcblog.co.uk/2025/10/17/brighton-a-pre-match-thoughts-team-news-possible-xi-and-prediction/)
+- **Brighton v Newcastle predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.co.uk/sport/football/articles/c5ypmrn71dvo)
+
+
+### manchester city – everton (N/A, Sat, 18 Oct 2025 06:10:00 -0700)
+
+- **Carlos Alcaraz to benefit most as David Moyes confirms Everton ‘rejig’ vs Manchester City**: [Link](https://www.goodisonnews.com/2025/10/18/carlos-alcaraz-to-benefit-most-as-david-moyes-confirms-everton-rejig-vs-manchester-city/)
+- **Premier League: time, channels, and head-to-head history for Manchester City v Everton**: [Link](https://foot-africa.com/en/news/premier-league-time-channels-and-head-to-head-history-for-manchester-city-v-everton-923895/)
+- **SKY BLUES VS TOFFEES: POSSIBLE LINEUPS!**: [Link](https://www.besoccer.com/new/live-manchester-city-vs-everton-1377679)
+
+
+### sevilla vs mallorca (N/A, Sat, 18 Oct 2025 06:10:00 -0700)
+
+- **Sevilla - Mallorca, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/sevilla-mallorca-en-directo-laliga-ea-sports-hoy-en-vivo-f202510-d/)
+- **Vídeo | Gol de Rubén Vargas al Mallorca (1-0)**: [Link](https://onefootball.com/es/noticias/video-gol-de-ruben-vargas-al-mallorca-1-0-41822248)
+- **El Sevilla-Mallorca, en directo: Juanlu, novedad en el once de Almeyda**: [Link](https://www.diariodesevilla.es/sevillafc/sevilla-mallorca-novena-jornada-liga_10_2005033102.html)
+
+
 ### mainz 05 – leverkusen (N/A, Sat, 18 Oct 2025 06:00:00 -0700)
 
 - **Bundesliga heute: Mainz - Leverkusen LIVE im TV, Liveticker & Livestream - Überraschung um Hofmann**: [Link](https://www.sport1.de/news/fussball/bundesliga/2025/10/bundesliga-heute-mainz-leverkusen-live-im-tv-liveticker-livestream)
