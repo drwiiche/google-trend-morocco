@@ -1,3 +1,17 @@
+### al-nassr fc – al-fateh (N/A, Sat, 18 Oct 2025 10:20:00 -0700)
+
+- **Al-Nassr FC vs. Al-Fateh SC - Boxscore - October 18, 2025**: [Link](https://www.foxsports.com/soccer/saudi-pro-league-al-nassr-fc-vs-al-fateh-sc-oct-18-2025-game-boxscore-643282?tab=boxscore)
+- **Club Football is Back: Accumulator Tips for October 18, 2025**: [Link](https://www.telecomasia.net/sports-betting/tips/accumulator/accumulator-tips-for-today-prediction-betting-tips-odds-18-october-2025/)
+- **Al Nassr vs Al Fateh LIVE score, Saudi Pro League: Cristiano Ronaldo starts, Lineups, Match updates, 11:30 PM IST kick-off**: [Link](https://sportstar.thehindu.com/football/al-nassr-vs-al-fateh-live-score-saudi-pro-league-updates-cristiano-ronaldo-goals-highlights-nas-v-fat/article70179865.ece)
+
+
+### psv eindhoven – go ahead eagles (N/A, Sat, 18 Oct 2025 10:20:00 -0700)
+
+- **LIVE eredivisie | PSV met Guus Til in de spits tegen Go Ahead, Ricardo Pepi en Myron Boadu keren terug in selectie**: [Link](https://www.ad.nl/voetbal/live-eredivisie-psv-met-guus-til-in-de-spits-tegen-go-ahead-luuk-de-jong-neemt-voor-duel-afscheid-van-publiek-in-eindhoven~a53271b9/)
+- **LIVE | Na afscheid Luuk de Jong is Go Ahead Eagles begonnen aan duel met PSV, volg het hier**: [Link](https://www.tubantia.nl/deventer/live-na-afscheid-luuk-de-jong-is-go-ahead-eagles-begonnen-aan-duel-met-psv-volg-het-hier~a7fc99b5/)
+- **LIVE | PSV hervat competitie met vierde wedstrijd tegen Go Ahead Eagles van dit jaar**: [Link](https://www.bd.nl/eindhoven/live-psv-hervat-competitie-met-vierde-wedstrijd-tegen-go-ahead-eagles-van-dit-jaar~a47c0f3c/)
+
+
 ### angers – monaco (N/A, Sat, 18 Oct 2025 10:10:00 -0700)
 
 - **DIRECT. Angers-Monaco (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/angers-monaco-live/675863)
