@@ -1,3 +1,10 @@
+### ligue 1 (N/A, Fri, 17 Oct 2025 12:30:00 -0700)
+
+- **Ligue 1 : Lyon vise le quatre à la suite à Nice**: [Link](https://www.beinsports.com/fr-fr/football/ligue-1/articles/ligue-1-lyon-vise-le-quatre-%C3%A0-la-suite-%C3%A0-nice-2025-10-17)
+- **Ligue 1 (J8) : le coach niçois Franck Haise aborde la réception de l’OL**: [Link](https://africafootunited.com/ligue-1-j8-le-coach-nicois-franck-haise-aborde-la-reception-de-lol/)
+- **Les supporters de l'OL encadrés à Nice**: [Link](https://www.olympique-et-lyonnais.com/les-supporters-de-lol-encadres-a-nice,382747.html)
+
+
 ### nicolas sarkozy (N/A, Fri, 17 Oct 2025 15:20:00 -0700)
 
 - **INFO BFM BUSINESS. Malgré son incarcération, Nicolas Sarkozy va rester administrateur d’Accor et Lagardère**: [Link](https://www.bfmtv.com/economie/entreprises/info-bfm-business-malgre-son-incarceration-nicolas-sarkozy-va-rester-administrateur-d-accor-et-lagardere_AN-202510170078.html)
