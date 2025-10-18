@@ -1,3 +1,17 @@
+### france vs colombia (N/A, Sat, 18 Oct 2025 14:00:00 -0700)
+
+- **Colombia y Francia juegan por el tercer puesto en el Mundial Sub-20**: [Link](https://onefootball.com/es/noticias/colombia-y-francia-juegan-por-el-tercer-puesto-en-el-mundial-sub-20-41822625)
+- **Simón García cuestionó las críticas a la Sub-20 antes del partido por el tercer puesto. #Deportes**: [Link](https://www.facebook.com/story.php?story_fbid=1254641156678644&id=100063983144594)
+- **“Esperaban que perdiéramos para caernos encima”: futbolista de la selección Colombia estalló ante las críticas por la derrota en la semifinal del Mundial Sub-20**: [Link](https://www.ntn24.com/noticias-deportes/esperaban-que-perdieramos-para-caernos-encima-futbolista-de-la-seleccion-colombia-estallo-ante-las-criticas-por-la-derrota-en-la-semifinal-del-mundial-sub-20-585820)
+
+
+### mango (N/A, Sat, 18 Oct 2025 13:50:00 -0700)
+
+- **A Billionaire Fashion CEO Fell 320 Feet to His Death During a Hike. His Son Is Now Reportedly Being Investigated by Police**: [Link](https://www.yahoo.com/entertainment/videos/billionaire-fashion-ceo-fell-320-155804617.html)
+- **Son of Billionaire Fashion CEO Being Investigated After Dad Fell to His Death: Reports**: [Link](https://people.com/son-of-billionaire-mango-founder-isak-andic-reportedly-under-police-investigation-after-dad-fell-to-death-hike-spain-11831704)
+- **Mango fashion tycoon's family says it is confident of son's innocence in homicide probe**: [Link](https://www.reuters.com/business/retail-consumer/mango-fashion-tycoons-family-says-it-is-confident-sons-innocence-homicide-probe-2025-10-17/)
+
+
 ### فرنسا ضد كولومبيا (N/A, Sat, 18 Oct 2025 13:40:00 -0700)
 
 - **الموعد والقنوات الناقلة لمباراة كولومبيا و فرنسا برسم كأس العالم تحت 20 سنة**: [Link](https://alamriyadi.com/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D9%88%D9%84%D9%88-5/)
