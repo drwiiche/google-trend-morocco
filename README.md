@@ -1,3 +1,10 @@
+### morocco vs argentina u20 (N/A, Sat, 18 Oct 2025 05:40:00 -0700)
+
+- **Morocco Charts Exemplary Path to U-20 World Cup Final, Fueled by Patriotism & Commitment**: [Link](https://www.maroc.ma/en/news/morocco-charts-exemplary-path-u-20-world-cup-final-fueled-patriotism-commitment)
+- **FIFA U-20 World Cup: The Young Atlas Lions Roar All the Way to the Final**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/fifa-u-20-world-cup-the-young-atlas-lions-roar-all-the-way-to-the-final/)
+- **Special Royal Air Maroc Flights to Take Moroccan Fans to U-20 World Cup Final in Chile**: [Link](https://www.moroccoworldnews.com/2025/10/264018/special-royal-air-maroc-flights-to-take-moroccan-fans-to-u-20-world-cup-final-in-chile/)
+
+
 ### إشبيلية ضد مايوركا (N/A, Sat, 18 Oct 2025 05:10:00 -0700)
 
 - **فياريال وريال بيتيس في الدوري الإسباني.. الموعد والقنوات الناقلة**: [Link](https://almashhadalaraby.com/news/533010)
