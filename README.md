@@ -1,3 +1,17 @@
+### الاتفاق ضد الهلال (N/A, Sat, 18 Oct 2025 08:40:00 -0700)
+
+- **هل ينهي الاتفاق عقدة الـ7 أعوام أمام الهلال؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%B9%D9%82%D8%AF%D8%A9-%D8%A7%D9%84%D9%807-%D8%A7%D9%94%D8%B9%D9%88%D8%A7%D9%85-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/blt4ea84f1275e0bb6a)
+- **الإصابة تهدد ظهور الدوسري في دوري الأبطال**: [Link](https://hihi2.com/2025/10/18/p3431290.html)
+- **مباشر مباراة الهلال اليوم ضد الاتفاق في الدوري السعودي 2025/2026**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%81/)
+
+
+### city (N/A, Sat, 18 Oct 2025 08:40:00 -0700)
+
+- **What to know about Oct. 18 "No Kings" protests**: [Link](https://www.axios.com/2025/10/15/no-kings-rally-protest-october-18-trump)
+- **Statement re: Speaker Johnson Comments on No Kings**: [Link](https://www.nokings.org/news/statement-re-speaker-johnson-comments-on-no-kings)
+- **Trump Cabinet members blame upcoming 'No Kings' protests for prolonging shutdown**: [Link](https://www.usatoday.com/story/news/politics/2025/10/14/republicans-blame-no-kings-protests-shutdown/86679080007/)
+
+
 ### nice – lyon (N/A, Sat, 18 Oct 2025 08:30:00 -0700)
 
 - **OGC Nice : 3 retours et 5 absents dans le groupe niçois pour affronter l'OL**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ogc-nice-3-retours-et-5-absents-dans-le-groupe-nicois-pour-affronter-l-ol-499615.html)
