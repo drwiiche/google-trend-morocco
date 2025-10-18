@@ -1,3 +1,17 @@
+### séville – majorque (N/A, Sat, 18 Oct 2025 04:10:00 -0700)
+
+- **DIRECT. Séville FC-Majorque (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/seville-fc-majorque-live/676801)
+- **Séville vs Majorque – Pronos, Analyse et Cotes le 18/10/2025**: [Link](https://paris-sportifs.lefigaro.fr/pronostics/seville-majorque-18-10-2025/)
+- **Liga : FC Seville - Real Majorque - Sur quelle chaîne de TV et à quelle heure ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-liga-fc-seville-real-majorque-sur-quelle-chaine-de-tv-et-a-quelle-heure-ij-498993.html)
+
+
+### donald trump (N/A, Sat, 18 Oct 2025 04:10:00 -0700)
+
+- **Zelensky fails to secure Tomahawk missiles at talks with Trump**: [Link](https://www.bbc.com/news/articles/c93dqew8l3xo)
+- **A look at the Tomahawk, a US cruise missile that could come into play in the Ukraine war**: [Link](https://apnews.com/article/tomahawk-cruise-missile-ukraine-united-states-trump-a0b292b0a0a51486305346550f30f6c0)
+- **Trump hesitant about giving Tomahawks to Ukraine, saying ‘hopefully they won’t need it’ – as it happened**: [Link](https://www.theguardian.com/world/live/2025/oct/17/viktor-orban-vladimir-putin-volodymyr-zelenskyy-donald-trump-europe-latest-news-updates-russia-ukraine-war)
+
+
 ### nottm forest – chelsea (N/A, Sat, 18 Oct 2025 03:40:00 -0700)
 
 - **Enzo Maresca confirms team news for Nottingham Forest | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-confirms-team-news-for-nottingham-forest)
