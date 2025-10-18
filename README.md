@@ -1,3 +1,24 @@
+### villarreal vs real betis (N/A, Sat, 18 Oct 2025 10:00:00 -0700)
+
+- **The Weekly Clásico: “Top Four” matches highlight upcoming matchweek**: [Link](https://www.uscannenbergmedia.com/2025/10/15/the-weekly-clasico-top-four-matches-highlight-upcoming-matchweek/)
+- **Villarreal - Betis live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/villarreal-betis/2025/10/18/01_0101_20251018_449_185-live.html)
+- **Real Betis star ruled out of Villarreal meeting**: [Link](https://getfootballnewsspain.com/real-betis-star-ruled-out-of-villarreal-meeting/)
+
+
+### فولهام ضد آرسنال (N/A, Sat, 18 Oct 2025 09:50:00 -0700)
+
+- **تغيير وحيد في تشكيل آرسنال أمام فولهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%88%D8%AD%D9%8A%D8%AF-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85/blteb0acc4b17c1d240)
+- **كيفية مشاهدة ديربي لندن بين أرسنال وفولهام في الدوري الإنجليزي | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-10-18/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%84%D9%86%D8%AF%D9%86-%D8%A8%D9%8A%D9%86-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-6134321/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+- **يلعب اتحاد كرة القدم الأميركي في ويمبلي، ويقابل أرتيتا صديقه قبل زيارة فولهام**: [Link](https://voi.id/ar/sports/525129)
+
+
+### al-ettifaq vs al-hilal (N/A, Sat, 18 Oct 2025 09:40:00 -0700)
+
+- **Rangers vs Dundee United: Scottish Premiership stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6294dp4d6et)
+- **IBROX MISERY OVERLOAD IN STALEMATE:**: [Link](https://www.celticquicknews.co.uk/ibrox-misery-overload-in-stalemate/)
+- **Familiar failings and messages for Ibrox chiefs as Rangers are held by Dundee United**: [Link](https://www.rangersreview.co.uk/opinion/25553637.ibrox-chiefs-rangers-stars-fire-dundee-united-draw/)
+
+
 ### البايرن ضد دورتموند (N/A, Sat, 18 Oct 2025 09:40:00 -0700)
 
 - **معركة العقول.. كومباني وكوفاتش من الإنقاذ إلى الصدارة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B9%D9%82%D9%88%D9%84--%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%88%D9%83%D9%88%D9%81%D8%A7%D8%AA%D8%B4-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D9%82%D8%A7%D8%B0-%D8%A7%D9%95%D9%84%D9%89-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A8%D9%88%D9%86%D8%AF%D8%B3%D9%84%D9%8A%D8%AC%D8%A7/blt44239fa20bfabc36)
