@@ -1,3 +1,46 @@
+### colombie u-20 – france u-20 (N/A, Sat, 18 Oct 2025 11:30:00 -0700)
+
+- **Colombie-France : à quelle heure et sur quelle chaîne TV voir la petite finale de la Coupe du monde U20**: [Link](https://www.leparisien.fr/sports/football/colombie-france-a-quelle-heure-et-sur-quelle-chaine-tv-voir-la-petite-finale-de-la-coupe-du-monde-u20-18-10-2025-ZYQ3XQYSGRHD3APOA5DECZK7SU.php)
+- **RC Lens : Adrien Thomasson et Mamadou Sangaré peuvent être tranquilles, Pierre Sage pas totalement convaincu**: [Link](https://www.footenfrance.fr/RC-Lens-Adrien-Thomasson-et-Mamadou-Sangare-peuvent-etre-tranquilles-Pierre-Sage-pas-totalement-convaincu_a1662.html)
+- **L’épopée tumultueuse des Bleuets U20**: [Link](https://lesinguliersete.fr/lepopee-tumultueuse-des-bleuets-u20/)
+
+
+### marseille – le havre (N/A, Sat, 18 Oct 2025 11:20:00 -0700)
+
+- **Le groupe de l’OM contre Le Havre avec 4 absents**: [Link](https://www.footmercato.net/a5339633391765013002-le-groupe-de-lom-contre-le-havre-avec-4-absents)
+- **Classement Ligue 1 : Paris garde la tête, Marseille et Lyon à l’affût**: [Link](https://www.webmanagercenter.com/2025/10/18/553948/classement-ligue-1-paris-garde-la-tete-marseille-et-lyon-a-laffut/)
+- **OM - Digard avertit ses troupes avant l'OM**: [Link](https://www.footmarseille.com/132171-digard-avertit-ses-troupes-avant-lom)
+
+
+### atlético madrid – osasuna (N/A, Sat, 18 Oct 2025 11:10:00 -0700)
+
+- **Previa Atlético de Madrid-Osasuna: El Metropolitano no quiere sustos (21:00)**: [Link](https://espanol.eurosport.com/futbol/la-liga/2025-2026/en-directo-previa-estadisticas-alineaciones-atleti-osasuna-hoy_sto23232054/story.shtml)
+- **Lisci sabe ganar a Simeone**: [Link](https://as.com/opinion/lisci-sabe-ganar-a-simeone-f202510-n/)
+- **Otro rival ideal más para que Oblak deje la puerta a cero**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20251018/1002552630/rival-ideal-mas-oblak-deje-puerta-cero.html)
+
+
+### roma – inter (N/A, Sat, 18 Oct 2025 11:10:00 -0700)
+
+- **LIVE Alle 20.45 Roma-Inter, le ufficiali: Gasp lancia Dybala dal 1'. Chivu con Bonny-Lautaro**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/18-10-2025/roma-inter-live-risultato-e-gol-in-diretta-competizione-xyz.shtml)
+- **The official line-ups for Roma vs. Inter**: [Link](https://www.inter.it/en/news/official-lineups-roma-inter-serie-a-25-26)
+- **Roma-Inter chiude la 7^ giornata: le scelte di Gasperini e Chivu**: [Link](https://www.latestatamagazine.it/2025/10/roma-inter-scelte-allenatori/)
+
+
+### النصر ضد الفتح (N/A, Sat, 18 Oct 2025 11:10:00 -0700)
+
+- **بين الثقة والانضباط.. جيسوس يُقصي ثنائي النصر الأجنبي قبل موقعة الفتح**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AB%D9%82%D8%A9-%D9%88%D8%A7%D9%84%D8%A7%D9%86%D8%B6%D8%A8%D8%A7%D8%B7--%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D9%8F%D9%82%D8%B5%D9%8A-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D8%AC%D9%86%D8%A8%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%81%D8%AA%D8%AD/blt3fed7e8d30fa36e7)
+- **عدد التذاكر المُباعة للقاء النصر والفتح حتى الآن**: [Link](https://hihi2.com/2025/10/18/p3431819.html)
+- **ماتش ناري.. تابع الآن الهلال ضد الفتح في سهرة كروية ممتعة على هذا التردد**: [Link](https://zahraa.mr/5988291/%D9%85%D8%A7%D8%AA%D8%B4-%D9%86%D8%A7%D8%B1%D9%8A-%D8%AA%D8%A7%D8%A8%D8%B9-%D8%A7%D9%84%D8%A2%D9%86-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%81%D9%8A/)
+
+
+### arsenal (N/A, Sat, 18 Oct 2025 10:50:00 -0700)
+
+- **Arteta's update on Zubimendi and Odegaard fitness | Press conference | News**: [Link](https://www.arsenal.com/news/artetas-update-zubimendi-and-odegaard-fitness)
+- **Martin Odegaard injury: Arsenal midfielder out until mid-November with knee problem**: [Link](https://www.bbc.com/sport/football/articles/cr7mr47gzxyo)
+- **Mikel Arteta reveals his thoughts on
+injured club captain**: [Link](https://www.vavel.com/en/football/2025/10/17/arsenal/1237912-mikel-arteta-reveals-his-thoughts-oninjured-club-captain.html)
+
+
 ### mtv (N/A, Sat, 18 Oct 2025 11:00:00 -0700)
 
 - **‘No one makes money from them’: with MTV channels switching off, is the music video under threat?**: [Link](https://www.theguardian.com/music/2025/oct/18/no-one-makes-money-from-them-with-mtv-channels-switching-off-is-the-music-video-under-threat)
