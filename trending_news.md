@@ -1,3 +1,10 @@
+### saint lucia (N/A, Sat, 18 Oct 2025 00:30:00 -0700)
+
+- **Saint Lucia Cricket HPC to be revamped to match West Indies standards**: [Link](https://stluciatimes.com/174036/2025/10/saint-lucia-cricket-hpc-to-be-revamped-to-match-west-indies-standards/)
+- **Severe Caribbean Travel Upset as InterCaribbean Airways Cancels 11 New Flights and Delays 22 Across Barbados, St. Lucia, Dominica, Puerto Rico, Turks and Caicos and Bahamas**: [Link](https://www.travelandtourworld.com/news/article/severe-caribbean-travel-upset-as-intercaribbean-airways-cancels-11-new-flights-and-delays-22-across-barbados-st-lucia-dominica-puerto-rico-turks-and-caicos-and-bahamas/)
+- **Travelers Affected in the Caribbean as LATAM, interCaribbean, Avianca, and Others Cancel 29 Flights Across Barbados, Saint Lucia, Colombia, Puerto Rico, and More at Bridgetown, Providenciales, Charlestown, San Juan, Scarborough**: [Link](https://www.travelandtourworld.com/news/article/travelers-affected-in-the-caribbean-as-latam-intercaribbean-avianca-and-others-cancel-29-flights-across-barbados-saint-lucia-colombia-puerto-rico-and-more-at-bridgetown-providenciales-charles/)
+
+
 ### isak andic (N/A, Fri, 17 Oct 2025 23:10:00 -0700)
 
 - **Mango founder’s son becomes alleged suspect in fashion tycoon’s death**: [Link](https://www.theguardian.com/world/2025/oct/17/fashion-tycoons-son-allegedly-a-suspect-over-his-death-on-hiking-trip)
