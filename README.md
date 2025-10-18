@@ -1,3 +1,17 @@
+### بث مباشر (N/A, Sat, 18 Oct 2025 07:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إيجل نوار والأهلي في دوري أبطال إفريقيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%8A%D8%AC%D9%84-%D9%86%D9%88%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt98668b5b9e4af208)
+- **لمواجهة إيغلز نوار البوروندي...بنشرقي حاضر في قائمة الأهلي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A5%D9%8A%D8%BA%D9%84%D8%B2-%D9%86%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%88%D8%B1%D9%88%D9%86%D8%AF%D9%8A%D8%A8%D9%86%D8%B4%D8%B1%D9%82%D9%8A-%D8%AD%D8%A7%D8%B6%D8%B1-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A/10289)
+- **أجواء نارية تبدأ من المارد الأحمر.. القنوات الناقلة وموعد مباراة الأهلي وإيجل نوار ماكامبا اليو**: [Link](https://zahraa.mr/5986241/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%A8%D8%AF%D8%A3-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%A7%D8%B1%D8%AF-%D8%A7%D9%84%D8%A3%D8%AD%D9%85%D8%B1-%D8%A7%D9%84%D9%82%D9%86/)
+
+
+### bet 365 (N/A, Sat, 18 Oct 2025 07:40:00 -0700)
+
+- **bet365 Bonus Code SBKWIRE Delivers $200 in Bonus Bets for College Football Odds | Oct. 18**: [Link](https://ftw.usatoday.com/story/sports/ncaaf/2025/10/18/bet365-bonus-code-college-football-odds-oct-18/86706052007/)
+- **Best CFB Betting Promos for Week 8, including Louisville vs. Miami Odds**: [Link](https://sportshandle.com/cfb-betting-promos-for-week-8-including-louisville-vs-miami-odds/)
+- **BetMGM Bonus Code: Bet $10, Get $150 in MI, NJ, PA or WV on Thursday Night Football**: [Link](https://www.foxsports.com/stories/betting/betmgm-bonus-code-bet-10-get-150-mi-nj-pa-wv-thursday-night-football)
+
+
 ### al-ettifaq – al-hilal (N/A, Sat, 18 Oct 2025 07:30:00 -0700)
 
 - **Al-Ettifaq vs Al-Hilal Prediction: Not the best start for Hilal**: [Link](https://www.telecomasia.net/sports-betting/tips/football/saudi-pro-league/al-ettifaq-vs-al-hilal-prediction-for-the-match-on-october-18-2025/)
