@@ -1,3 +1,31 @@
+### nashville – inter miami (N/A, Sat, 18 Oct 2025 14:20:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Visits Nashville FC for Decision Day 2025**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-visits-nashville-fc-for-decision-day-2025)
+- **‘There’s absolutely no doubt’ - Inter Miami's Javier Mascherano says Lionel Messi deserves MLS's MVP award**: [Link](https://www.goal.com/en/lists/there-s-absolutely-no-doubt-inter-miami-s-javier-mascherano-says-lionel-messi-deserves-mls-s-mvp-award/blt3c9810022b18581f)
+- **Decision Day 2025: Nashville SC faces Inter Miami CF at GEODIS Park**: [Link](https://www.nashvillesc.com/news/decision-day-2025-at-geodis-park)
+
+
+### rsb berkane pyramids (N/A, Sat, 18 Oct 2025 14:20:00 -0700)
+
+- **WHERE TO WATCH: TotalEnergies CAF Super Cup Final on Saturday**: [Link](https://www.cafonline.com/caf-super-cup/news/where-to-watch-totalenergies-caf-super-cup-final-on-saturday/)
+- **Pyramids edge RS Berkane to lift maiden CAF Super Cup**: [Link](https://www.moroccoworldnews.com/2025/10/264140/pyramids-edge-rs-berkane-to-lift-maiden-caf-super-cup/)
+- **Super Cup of Africa final: Is it time for Pyramids to take their revenge?**: [Link](https://foot-africa.com/en/news/super-cup-of-africa-final-is-it-time-for-pyramids-to-take-their-revenge-924072/)
+
+
+### colombia vs france u20 (N/A, Sat, 18 Oct 2025 13:40:00 -0700)
+
+- **France vs Colombia – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264095/france-vs-colombia-match-preview-prediction/)
+- **APTOPIX Italy Soccer Serie A**: [Link](https://www.couriernews.com/sports/aptopix-italy-soccer-serie-a/image_60d13950-9401-54af-9b9d-f89f6492e8ac.html)
+- **Colombia France U20 WCup Soccer**: [Link](https://lufkindailynews.com/anpa/sports/colombia-france-u20-wcup-soccer/image_ba69b6fc-1678-5738-b8cd-e729c4028ad6.html)
+
+
+### أولمبيك مارسيليا ضد لوهافر (N/A, Sat, 18 Oct 2025 12:40:00 -0700)
+
+- **كيشطا افتتح عداد الأهداف بالفيليدروم وندير منح "أسيست" الهدف السادس لمارسيليا**: [Link](https://www.almountakhab.com/node/16218683)
+- **حصري: لوهافر يحلم بكسر لعنة الـ 10 سنوات أمام مارسيليا... هل تحدث المعجزة غداً؟**: [Link](https://yemen-press.net/news146169.html)
+- **"سوبر هاتريك" غرينوود يقود مارسيليا لصدارة الدوري الفرنسي**: [Link](https://sports.asharq.com/football/90298/%D8%B3%D9%88%D8%A8%D8%B1-%D9%87%D8%A7%D8%AA%D8%B1%D9%8A%D9%83-%D8%BA%D8%B1%D9%8A%D9%86%D9%88%D9%88%D8%AF-%D9%8A%D9%82%D9%88%D8%AF-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/)
+
+
 ### france vs colombia (N/A, Sat, 18 Oct 2025 14:00:00 -0700)
 
 - **Colombia y Francia juegan por el tercer puesto en el Mundial Sub-20**: [Link](https://onefootball.com/es/noticias/colombia-y-francia-juegan-por-el-tercer-puesto-en-el-mundial-sub-20-41822625)
