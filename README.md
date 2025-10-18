@@ -1,3 +1,31 @@
+### برشلونة ضد غيرونا (N/A, Sat, 18 Oct 2025 06:30:00 -0700)
+
+- **بابلو ماشين لكووورة: نعرف كيف نحقق نتائج إيجابية على ملعب برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D8%A8%D9%84%D9%88-%D9%85%D8%A7%D8%B4%D9%8A%D9%86-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D9%86%D8%B9%D8%B1%D9%81-%D9%83%D9%8A%D9%81-%D9%86%D8%AD%D9%82%D9%82-%D9%86%D8%AA%D8%A7%D9%8A%D9%94%D8%AC-%D8%A7%D9%95%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt60f3529219ad8b4c)
+- **مباشر برشلونة ضد جيرونا (0-0) في الدوري الإسباني لكرة القدم 2025-2026**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/18/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7)
+- **فليك مدرب برشلونة يأمل في تعويض هزيمة فريقه الثقيلة أمام إشبيلية**: [Link](https://www.hesport.com/%D9%81%D9%84%D9%8A%D9%83-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%A3%D9%85%D9%84-%D9%81%D9%8A-%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D9%81-408881.html)
+
+
+### barcelona vs girona (N/A, Sat, 18 Oct 2025 06:30:00 -0700)
+
+- **Barcelona Predicted Lineup vs. Girona: Rashford Leads Injury-Hit Forward Line**: [Link](https://www.si.com/soccer/barcelona-predicted-lineup-vs-girona-10-18-25)
+- **Barcelona vs Girona, La Liga: Team News, Preview, Lineups, Score Prediction**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/103897/barcelona-girona-la-liga-team-news-match-preview-lineups-score-prediction)
+- **La Liga Soccer: Stream Barcelona vs. Girona Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-barcelona-vs-girona-live-from-anywhere/)
+
+
+### crystal palace – bournemouth (N/A, Sat, 18 Oct 2025 06:30:00 -0700)
+
+- **Brooks to miss trip to Palace**: [Link](https://www.afcb.co.uk/news/2025/october/17/brooks-to-miss-trip-to-palace-/)
+- **View from the Opposition: Bournemouth boss Iraola on where the difference could lie**: [Link](https://www.cpfc.co.uk/news/match-previews/view-from-the-opposition-bournemouth-october-2025/)
+- **Semenyo's flying form, impressive Palace and internationals: Every word**: [Link](https://www.bournemouthecho.co.uk/sport/25550257.every-word-andoni-iraolas-pre-crystal-palace-press-conference/)
+
+
+### المغرب ضد الارجنتين (N/A, Sat, 18 Oct 2025 06:10:00 -0700)
+
+- **"الأشبال" يستعدون لنهائي المونديال**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF%D9%88%D9%86-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-1641745.html)
+- **وهبي يصنع المعجزة.. وأندية أوروبا تتسابق لضم أسود المستقبل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B5%D9%86%D8%B9-%D8%A7%D9%84%D9%85%D8%B9%D8%AC%D8%B2%D8%A9--%D9%88%D8%A7%D9%94%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%AA%D8%AA%D8%B3%D8%A7%D8%A8%D9%82-%D9%84%D8%B6%D9%85-%D8%A7%D9%94%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84/blt519bddaaa22d933f)
+- **موعد نهائي كأس العالم للشباب بين المغرب والأرجنتين والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/10/16/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86)
+
+
 ### brighton – newcastle (N/A, Sat, 18 Oct 2025 06:20:00 -0700)
 
 - **Eddie Howe makes two changes in Newcastle United v Brighton - predicted XI**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/newcastle-united-brighton-predicted-team-news-5364775)
