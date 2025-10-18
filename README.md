@@ -1,3 +1,17 @@
+### toni fernández (N/A, Sat, 18 Oct 2025 06:40:00 -0700)
+
+- **Posible alineación del Barça ante el Girona: Flick ‘reinventará’ el ataque**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-girona-flick-reinventara-el-ataque-f202510-n/)
+- **FC Barcelona - Girona: Un derbi bajo mínimos para resurgir y crecer**: [Link](https://www.sport.es/es/noticias/barca/derbi-minimos-resurgir-crecer-122737949)
+- **Lista del Barcelona contra el Girona: Vuelven Lamine y Fermín**: [Link](https://www.marca.com/futbol/barcelona/2025/10/18/lista-barcelona-girona-vuelven-lamine-fermin.html)
+
+
+### مان سيتي ضد إيفرتون (N/A, Sat, 18 Oct 2025 06:40:00 -0700)
+
+- **جوارديولا: جريليش حقق ما أراد.. وسأرحل في هذه الحالة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%AC%D8%B1%D9%8A%D9%84%D9%8A%D8%B4-%D8%AD%D8%B5%D9%84-%D8%B9%D9%84%D9%89-%D9%85%D8%B1%D8%A7%D8%AF%D9%87--%D9%88%D8%A7%D9%94%D9%81%D9%83%D8%B1-%D8%A8%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D9%81%D9%8A-2035/blt9aa4a0e5905c2908)
+- **"رودري غير مستعد للعودة".. نجم مانشستر سيتي يتعرض لانتكاسة جديدة**: [Link](https://m.elbotola.com/article/2025-10-17-17-15-434.html)
+- **غوارديولا يتفادى "ثأر" غريليش.. قوانين تمنع نجوماً من الظهور**: [Link](https://www.alaraby.co.uk/sport/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%AA%D9%81%D8%A7%D8%AF%D9%89-%D8%AB%D8%A3%D8%B1-%D8%BA%D8%B1%D9%8A%D9%84%D9%8A%D8%B4-%D9%82%D9%88%D8%A7%D9%86%D9%8A%D9%86-%D8%AA%D9%85%D9%86%D8%B9-%D9%86%D8%AC%D9%88%D9%85%D8%A7%D9%8B-%D9%85%D9%86-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1)
+
+
 ### برشلونة ضد غيرونا (N/A, Sat, 18 Oct 2025 06:30:00 -0700)
 
 - **بابلو ماشين لكووورة: نعرف كيف نحقق نتائج إيجابية على ملعب برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D8%A8%D9%84%D9%88-%D9%85%D8%A7%D8%B4%D9%8A%D9%86-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D9%86%D8%B9%D8%B1%D9%81-%D9%83%D9%8A%D9%81-%D9%86%D8%AD%D9%82%D9%82-%D9%86%D8%AA%D8%A7%D9%8A%D9%94%D8%AC-%D8%A7%D9%95%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt60f3529219ad8b4c)
