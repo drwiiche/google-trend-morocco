@@ -1,3 +1,24 @@
+### villarreal – betis (N/A, Sat, 18 Oct 2025 08:50:00 -0700)
+
+- **La Champions de los ‘mortales’**: [Link](https://as.com/futbol/primera/la-champions-de-los-mortales-f202510-n/)
+- **Villarreal - Betis: Dos enemigos cada vez más íntimos**: [Link](https://www.diariodesevilla.es/realbetis/villarreal-betis-previa-enemigos-vez-intimos_0_2005030933.html)
+- **Marcelino: "No es un partido determinante, pero sí es importante"**: [Link](https://es-us.noticias.yahoo.com/deportes/marcelino-partido-determinante-importante-151054680.html)
+
+
+### bayern – dortmund (N/A, Sat, 18 Oct 2025 08:50:00 -0700)
+
+- **Wie die DFL weltweit für FC Bayern gegen Borussia Dortmund wirbt**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/topspiel-im-fokus-wie-die-dfl-weltweit-fuer-bayern-gegen-dortmund-wirbt-93993277.html)
+- **Der Sport-Tag: Fußball-Fieber im Bundestag: "Wird glaube ich kein 11:1"**: [Link](https://www.n-tv.de/sport/der_sport_tag/Fussball-Fieber-im-Bundestag-Wird-glaube-ich-kein-11-1-article26105261.html)
+- **Fußball-Bundesliga: Bayern ohne Gnabry in den Bundesliga-Gipfel**: [Link](https://www.zeit.de/news/2025-10/18/bayern-ohne-gnabry-in-den-bundesliga-gipfel)
+
+
+### fulham – arsenal (N/A, Sat, 18 Oct 2025 08:50:00 -0700)
+
+- **Pre-Arsenal Press Conference**: [Link](https://www.fulhamfc.com/news/2025/october/17/pre-arsenal-press-conference/)
+- **“No-one is stopping Arsenal” Chris Sutton predicts the Fulham v Arsenal game**: [Link](https://www.justarsenal.com/no-one-is-stopping-arsenal-chris-sutton-predicts-the-fulham-v-arsenal-game/402157)
+- **Arsenal’s Injury Issues Laughed Off by Fulham Manager Marco Silva**: [Link](https://www.fotmob.com/embed/news/01k7ve6h6f4h/arsenals-injury-issues-laughed-off-fulham-manager-marco-silva)
+
+
 ### الاتفاق ضد الهلال (N/A, Sat, 18 Oct 2025 08:40:00 -0700)
 
 - **هل ينهي الاتفاق عقدة الـ7 أعوام أمام الهلال؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%B9%D9%82%D8%AF%D8%A9-%D8%A7%D9%84%D9%807-%D8%A7%D9%94%D8%B9%D9%88%D8%A7%D9%85-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/blt4ea84f1275e0bb6a)
