@@ -1,3 +1,10 @@
+### al-nassr vs al fateh (N/A, Sat, 18 Oct 2025 11:30:00 -0700)
+
+- **IShowSpeed begins live stream from Al-Nassr stadium after travelling to watch Cristiano Ronaldo play against Al Fateh**: [Link](https://www.sportskeeda.com/football/news-ishowspeed-begins-live-stream-al-nassr-stadium-travelling-watch-cristiano-ronaldo-play-al-fateh)
+- **Is Cristiano Ronaldo Playing Tonight for Al Nassr vs Al Fateh?**: [Link](https://athlonsports.com/soccer/is-cristiano-ronaldo-playing-tonight-for-al-nassr-vs-al-fateh)
+- **How to watch today's Al Nassr vs Al Fateh Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/where-to-watch-al-nassr-v-al-fateh-live-stream-online-tv/blt42fdf2cf1c7aeaa3)
+
+
 ### روما ضد الإنتر (N/A, Sat, 18 Oct 2025 12:20:00 -0700)
 
 - **بوني وإسبوزيتو.. ثنائية تُعيد الأمل لإنتر بعد خيبة طارمي وأرناوتوفيتش**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%88%D9%86%D9%8A-%D9%88%D8%A7%D9%95%D8%B3%D8%A8%D9%88%D8%B2%D9%8A%D8%AA%D9%88--%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D8%AA%D9%8F%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%84-%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%AE%D9%8A%D8%A8%D8%A9-%D8%B7%D8%A7%D8%B1%D9%85%D9%8A-%D9%88%D8%A7%D9%94%D8%B1%D9%86%D8%A7%D9%88%D8%AA%D9%88%D9%81%D9%8A%D8%AA%D8%B4/blt032da3c4edf2df61)
