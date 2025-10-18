@@ -1,3 +1,10 @@
+### angers – monaco (N/A, Sat, 18 Oct 2025 10:10:00 -0700)
+
+- **DIRECT. Angers-Monaco (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/angers-monaco-live/675863)
+- **SCO – ASM : les compositions**: [Link](https://asm-supporters.fr/actualites/63961-sco-asm-les-compositions-5)
+- **Découvrez le premier onze de départ de Sébastien Pocognoli sur le banc de Monaco**: [Link](https://www.nicematin.com/sports/football/decouvrez-le-premier-onze-de-depart-de-sebastien-pocognoli-sur-le-banc-de-monaco-10653071)
+
+
 ### villarreal vs real betis (N/A, Sat, 18 Oct 2025 10:00:00 -0700)
 
 - **The Weekly Clásico: “Top Four” matches highlight upcoming matchweek**: [Link](https://www.uscannenbergmedia.com/2025/10/15/the-weekly-clasico-top-four-matches-highlight-upcoming-matchweek/)
