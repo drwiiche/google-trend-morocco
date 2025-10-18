@@ -1,3 +1,10 @@
+### isak andic (N/A, Fri, 17 Oct 2025 23:10:00 -0700)
+
+- **Mango founder’s son becomes alleged suspect in fashion tycoon’s death**: [Link](https://www.theguardian.com/world/2025/oct/17/fashion-tycoons-son-allegedly-a-suspect-over-his-death-on-hiking-trip)
+- **A Billionaire Fashion CEO Fell 320 Feet to His Death During a Hike. His Son Is Now Reportedly Being Investigated by Police**: [Link](https://www.yahoo.com/entertainment/videos/billionaire-fashion-ceo-fell-320-155804617.html)
+- **Son of Mango fashion tycoon being probed as suspect in Isak Andic’s sudden cliff fall death: report**: [Link](https://nypost.com/2025/10/17/world-news/mango-fashion-tycoons-son-probed-in-isak-andics-death/)
+
+
 ### kech24 (N/A, Fri, 17 Oct 2025 23:50:00 -0700)
 
 - **10 أشهر حبسا نافذا للشاب الذي هدد بتنفيذ اغتيالات خلال احتجاجات "جيل z"**: [Link](https://al3omk.com/1109144.html)
