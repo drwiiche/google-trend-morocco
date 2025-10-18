@@ -1,3 +1,24 @@
+### روما ضد الإنتر (N/A, Sat, 18 Oct 2025 12:20:00 -0700)
+
+- **بوني وإسبوزيتو.. ثنائية تُعيد الأمل لإنتر بعد خيبة طارمي وأرناوتوفيتش**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%88%D9%86%D9%8A-%D9%88%D8%A7%D9%95%D8%B3%D8%A8%D9%88%D8%B2%D9%8A%D8%AA%D9%88--%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D8%AA%D9%8F%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%84-%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%AE%D9%8A%D8%A8%D8%A9-%D8%B7%D8%A7%D8%B1%D9%85%D9%8A-%D9%88%D8%A7%D9%94%D8%B1%D9%86%D8%A7%D9%88%D8%AA%D9%88%D9%81%D9%8A%D8%AA%D8%B4/blt032da3c4edf2df61)
+- **بطولة إيطاليا: إنتر في امتحان صعب أمام روما قبل موقعة نابولي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251017-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A5%D9%86%D8%AA%D8%B1-%D9%81%D9%8A-%D8%A7%D9%85%D8%AA%D8%AD%D8%A7%D9%86-%D8%B5%D8%B9%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%B1%D9%88%D9%85%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A)
+- **العيناوي: حكيمي حدثني عن إنتر ونحن جاهزون للمباراة**: [Link](https://www.almountakhab.com/node/16218611)
+
+
+### roma vs inter (N/A, Sat, 18 Oct 2025 12:20:00 -0700)
+
+- **Official Starting Lineups – Roma Vs Inter Milan: Bonny Retains His Place Alongside Lautaro In Attack**: [Link](https://sempreinter.com/2025/10/18/official-roma-inter-milan-lineups-bonny-lautaro/)
+- **Can Roma dream of the Scudetto? Gasperini responds firmly before the clash with Inter**: [Link](https://telegrafi.com/en/Can-Roma-dream-of-the-Scudetto-Gasperini-answers-bluntly-before-the-match-with-Inter/)
+- **Massara before Inter match: "Many teams dream of the duo of Dybala-Soule."**: [Link](https://romapress.net/massara-before-inter-match-many-teams-dream-of-the-duo-of-dybala-soule/)
+
+
+### atletico madrid (N/A, Sat, 18 Oct 2025 12:20:00 -0700)
+
+- **‘Everyone must be ready’ – Simeone hints towards Atletico rotation**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/everyone-must-be-ready--simeone-hints-towards-atletico-rotation-2025-10-17)
+- **Pablo Barrios Rivas vs. CA Osasuna – Player props & odds to score a goal on October 18**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/18/pablo-barrios-rivas-soccer-player-props-10-18-2025/86763686007/)
+- **Atlético Madrid vs Osasuna: How to watch live on Disney+**: [Link](https://www.espn.com/soccer/story/_/id/46612703/atletico-madrid-vs-osasuna-how-watch-stats-team-news-la-liga-2025-26)
+
+
 ### أتلتيكو مدريد ضد أوساسونا (N/A, Sat, 18 Oct 2025 11:40:00 -0700)
 
 - **سيميوني في ورطة!**: [Link](https://hihi2.com/2025/10/14/p3426856.html)
