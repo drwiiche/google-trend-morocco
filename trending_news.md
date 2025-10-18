@@ -1,3 +1,10 @@
+### nice – lyon (N/A, Sat, 18 Oct 2025 08:30:00 -0700)
+
+- **OGC Nice : 3 retours et 5 absents dans le groupe niçois pour affronter l'OL**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ogc-nice-3-retours-et-5-absents-dans-le-groupe-nicois-pour-affronter-l-ol-499615.html)
+- **EN DIRECT Nice - OL : Lyon revient dans le match grâce à Pavel Sulc... Il y a du spectacle à Nice...**: [Link](https://www.20minutes.fr/sport/football/ligue-1/4180077-20251018-direct-nice-ol-lyon-risque-etre-marque-couac-face-toulouse-suivez-match-ligue-1-16h30)
+- **Ligue 1 : «On est tous dans le même panier», Nice et Franck Haise veulent enfin lancer leur saison face à Lyon**: [Link](https://www.lefigaro.fr/sports/football/ligue-1/ligue-1-on-est-tous-dans-le-meme-papier-nice-et-franck-haise-veulent-enfin-lancer-leur-saison-face-a-lyon-20251018)
+
+
 ### yalla kora (N/A, Sat, 18 Oct 2025 08:10:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إيجل نوار والأهلي في دوري أبطال إفريقيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%8A%D8%AC%D9%84-%D9%86%D9%88%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt98668b5b9e4af208)
