@@ -1,3 +1,10 @@
+### rennes – auxerre (N/A, Sun, 19 Oct 2025 09:50:00 -0700)
+
+- **DIRECT. Rennes-Auxerre (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/rennes-auxerre-live/675865)
+- **Stade Rennais. Courir moins mais courir mieux, la clé de la constance pour les Rouge et Noir ?**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/stade-rennais-courir-moins-mais-courir-mieux-la-cle-de-la-constance-pour-les-rouge-et-noir-eef26e68-ac3a-11f0-b75e-b80ca3a1c619)
+- **PRONOS PARIS RMC Le pari sûr du 19 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-19-octobre-ligue-1_AN-202510180295.html)
+
+
 ### mbeumo (N/A, Sun, 19 Oct 2025 09:40:00 -0700)
 
 - **DIRECT. Liverpool-Manchester United (Premier League 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/liverpool-manchester-united-live/673577)
