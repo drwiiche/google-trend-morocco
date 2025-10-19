@@ -1,3 +1,10 @@
+### tottenham (N/A, Sun, 19 Oct 2025 06:10:00 -0700)
+
+- **Premier League highlights: Watch goals as Arsenal Chelsea, Man City, Brighton, Burnley & Sunderland all win**: [Link](https://www.bbc.com/sport/football/live/c5yq2nd7z05t)
+- **Premier League best bets: Why Liverpool vs. Manchester United will be a goal-fest, and Arsenal will dominate**: [Link](https://www.cbssports.com/soccer/news/premier-league-best-bets-why-liverpool-vs-manchester-united-will-be-a-goal-fest-and-arsenal-will-dominate/)
+- **Premier League Matchweek 8 schedule, how to watch: Liverpool hosts Man United**: [Link](https://www.nbcconnecticut.com/news/sports/soccer/premier-league-matchweek-8-schedule-how-to-watch-liverpool-man-united/3652227/)
+
+
 ### tottenham vs aston villa (N/A, Sun, 19 Oct 2025 06:00:00 -0700)
 
 - **'In contention' - Thomas Frank offers most optimistic Tottenham striker injury update yet**: [Link](https://hotspurhq.com/in-contention-thomas-frank-offers-most-optimistic-tottenham-striker-injury-update-yet-01k7ta624zpq)
