@@ -1,3 +1,17 @@
+### formula 1 (N/A, Sun, 19 Oct 2025 13:30:00 -0700)
+
+- **Verstappen wins Austin Sprint as both McLarens retire**: [Link](https://www.formula1.com/en/latest/article/verstappen-wins-dramatic-austin-sprint-as-both-mclarens-retire-in-lap-1.2cOAGwv5tyMmpmiGlzZiUW)
+- **Max Verstappen wins United States Grand Prix to close gap on McLaren duo: Live updates and reaction**: [Link](https://www.nytimes.com/athletic/live-blogs/f1-united-states-live-updates-race-times-results/e2TLXn5B9i9b/)
+- **Breaking: F1 announces huge contract extension with popular grand prix**: [Link](https://racingnews365.com/breaking-f1-announces-huge-contract-extension-with-popular-grand-prix)
+
+
+### milan vs fiorentina (N/A, Sun, 19 Oct 2025 13:10:00 -0700)
+
+- **CM: Summit in sight – Napoli and Roma hand injury-hit Milan a big opportunity**: [Link](https://sempremilan.com/napoli-milan-hand-milan-opportunity)
+- **Tare: "The absences must not be an excuse"**: [Link](https://milanreports.com/2025/10/19/tare-absences-must-not-be-an-excuse/)
+- **Pioli: “It’s a match that requires attention, sacrifice and determination” -**: [Link](https://www.acffiorentina.com/en/news/pioli-serve-gara-attenta,-di-sacrificio-e-personalita)
+
+
 ### خالد ايت الطالب (N/A, Sun, 19 Oct 2025 12:50:00 -0700)
 
 - **المجلس الوزاري يصادق على إحداث مناطق صناعية لأنظمة الأسلحة والذخيرة**: [Link](https://ar.telquel.ma/%D8%A5%D8%B5%D9%84%D8%A7%D8%AD-%D9%82%D8%B7%D8%A7%D8%B9%D9%8A-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88/)
