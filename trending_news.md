@@ -1,3 +1,24 @@
+### هانيبال القذافي (N/A, Sat, 18 Oct 2025 17:50:00 -0700)
+
+- **هنيبعل القذافي: لماذا أفرج القضاء اللبناني عنه بعد عشر سنوات؟**: [Link](https://www.bbc.com/arabic/articles/c4gwp9jqy4zo)
+- **قضاء لبنان يوافق على الإفراج عن هانيبال القذافي بكفالة 11 مليون دولار**: [Link](https://www.aljazeera.net/news/2025/10/17/%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D9%84%D8%A8%D9%86%D8%A7%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D9%81%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D8%A7%D8%AC-%D8%B9%D9%86)
+- **رغد صدام حسين تعلق على إخلاء سبيل هنيبال القذافي في لبنان**: [Link](https://arabic.cnn.com/middle-east/article/2025/10/18/raghad-saddam-comments-release-hannibal-gaddafi-lebanon)
+
+
+### inter miami (N/A, Sat, 18 Oct 2025 16:20:00 -0700)
+
+- **MLS Decision Day: Playoff scenarios, seeding possibilities and all eyes on Messi - The Athletic**: [Link](https://www.nytimes.com/athletic/6725203/2025/10/17/mls-decision-day-2025-playoff-scenarios-messi/)
+- **Lionel Messi Powers Inter Miami to Record-Breaking Season With Hat Trick**: [Link](https://www.si.com/soccer/lionel-messi-powers-inter-miami-record-breaking-season-hat-trick)
+- **‘He will surely be awarded the MVP’ - Inter Miami’s Javier Mascherano hails Lionel Messi after hat-trick heroics against Nashville SC**: [Link](https://www.goal.com/en-gh/lists/mvp-inter-miami-javier-mascherano-lionel-messi-nashville-sc/bltbe3d4017490c5c82)
+
+
+### lyad smain (N/A, Sat, 18 Oct 2025 15:40:00 -0700)
+
+- **NÎMES Mort de l'acteur Lyad Smain : les confidences de son père Sabri**: [Link](https://www.objectifgard.com/actualites/nimes-mort-de-lacteur-lyad-smain-les-confidences-de-son-pere-sabri-154320.php)
+- **Mort brutale à 27 ans de l’acteur d’« Un si grand soleil » Lyad Smain, la série lui rend hommage**: [Link](https://www.leparisien.fr/culture-loisirs/tv/mort-brutale-a-27-ans-de-lacteur-d-un-si-grand-soleil-lyad-smain-la-serie-lui-rend-hommage-18-10-2025-JMVJ2YQMKRF35HBFH4BUECIYPQ.php)
+- **Mort de Lyad Smain d' « Un si grand soleil » à 27 ans**: [Link](https://www.20minutes.fr/arts-stars/television/4180162-20251018-acteur-lyad-smain-vu-si-grand-soleil-mort-27-ans-lors-voyage-japon)
+
+
 ### ناشفيل ضد إنتر ميامي (N/A, Sat, 18 Oct 2025 15:40:00 -0700)
 
 - **ما القنوات الناقلة لمباراة ناشفيل وإنتر ميامي في الدوري الأمريكي 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D8%A7%D8%B4%D9%81%D9%8A%D9%84-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2025/blt2087103050fcbb34)
