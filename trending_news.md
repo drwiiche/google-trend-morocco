@@ -1,3 +1,24 @@
+### ميزانية الصحة في المغرب 2025 (N/A, Sun, 19 Oct 2025 14:10:00 -0700)
+
+- **المغرب يزيد الإنفاق على الصحة والتعليم إلى 15 مليار دولار في 2026**: [Link](https://www.aljazeera.net/news/2025/10/19/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%B1%D8%B1-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A5%D9%86%D9%81%D8%A7%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9)
+- **المغرب يرفع ميزانية الانفاق على الصحة والتعليم إلى 15 مليار دولار بحلول 2026**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A%D8%A9/20251019-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B1%D9%81%D8%B9-%D9%85%D9%8A%D8%B2%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D9%81%D8%A7%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A5%D9%84%D9%89-15-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D8%A8%D8%AD%D9%84%D9%88%D9%84-2026)
+- **الفوارق المجالية.. برلماني يسائل لفتيت بشأن مآل برامج التنمية المحلية**: [Link](https://ar.telquel.ma/%D9%84%D8%AA%D9%82%D9%84%D9%8A%D8%B5-%D8%A7%D9%84%D9%81%D9%88%D8%A7%D8%B1%D9%82-%D8%A7%D9%84%D9%85%D8%AC%D8%A7%D9%84%D9%8A%D8%A9-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%AC%D9%8A%D9%84-%D8%AC%D8%AF%D9%8A/)
+
+
+### madrid vs (N/A, Sun, 19 Oct 2025 12:40:00 -0700)
+
+- **Susto para Xabi Alonso de cara al clásico**: [Link](https://www.sport.es/es/noticias/real-madrid/susto-xabi-alonso-cara-clasico-alaba-122792434)
+- **¿Por qué salió de cambio David Alaba en el Real Madrid vs Getafe?**: [Link](https://www.si.com/es-us/futbol/por-que-salio-de-cambio-david-alaba-en-el-real-madrid-vs-getafe)
+- **Alaba, sustituido al descanso por una sobrecarga muscular**: [Link](https://es-us.noticias.yahoo.com/deportes/alaba-sustituido-descanso-sobrecarga-muscular-202443936.html)
+
+
+### مباراة ريال مدريد (N/A, Sun, 19 Oct 2025 12:30:00 -0700)
+
+- **بالأرقام.. كيف تحول مبابي لأخطر لاعب في أوروبا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85--%D9%83%D9%8A%D9%81-%D8%AA%D8%AD%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%84%D8%A7%D9%94%D8%AE%D8%B7%D8%B1-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/bltad9c0b48020287ef)
+- **صورة: هدافو ريال مدريد في الليغا حتى الآن**: [Link](https://hihi2.com/2025/10/19/p3433538.html)
+- **مبابى يواصل الانطلاقة الاستثنائية مع ريال مدريد لهذا السبب**: [Link](https://www.alwafd.news/5711163)
+
+
 ### classement la liga (N/A, Sun, 19 Oct 2025 14:00:00 -0700)
 
 - **FC Barcelone : les lourdes accusations de Joan Laporta contre l’arbitrage espagnol**: [Link](https://www.footmercato.net/a8280124571353679749-fc-barcelone-les-lourdes-accusations-de-joan-laporta-contre-larbitrage-espagnol)
