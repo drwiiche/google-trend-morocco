@@ -1,3 +1,24 @@
+### getafe – real madrid (N/A, Sun, 19 Oct 2025 11:10:00 -0700)
+
+- **Getafe - Real Madrid hoy, en directo: previa y última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/getafe-real-madrid-hoy-en-directo-laliga-ea-sports-ultima-hora-en-vivo-f202510-n/)
+- **El Real Madrid pierde el miedo al Coliseum**: [Link](https://onefootball.com/es/noticias/el-real-madrid-pierde-el-miedo-al-coliseum-41828305)
+- **SKY Sports EN VIVO GRATIS - dónde mirar partido Real Madrid vs. Getafe por TV y Online en México**: [Link](https://gestion.pe/mix/sports/sky-sports-en-vivo-gratis-donde-mirar-partido-real-madrid-vs-getafe-por-futbol-tv-y-online-en-mexico-nnda-nnse-noticia/)
+
+
+### خيتافي ضد الريال (N/A, Sun, 19 Oct 2025 11:10:00 -0700)
+
+- **التشكيل المتوقع: المداورة سلاح الريال.. وبيلينجهام يربك الحسابات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%88%D8%B1%D8%A9-%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84--%D9%88%D8%A8%D9%8A%D9%84%D9%8A%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D9%8A%D8%B1%D8%A8%D9%83-%D8%A7%D9%84%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA/blt13d11d221b0b0ee3)
+- **ريال مدريد ضد خيتافي.. الموعد والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/10/18/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA)
+- **ريال مدريد يرغب في استعادة صدارة الليغا من بوابة خيتافي**: [Link](https://2m.ma/ar/news/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B1%D8%BA%D8%A8-%D9%81%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D9%85%D9%86-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-20251019)
+
+
+### nantes – lille (N/A, Sun, 19 Oct 2025 11:10:00 -0700)
+
+- **Ligue 1. Le clash du dimanche soir : Tylel Tati x Ayyoub Bouaddi**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-le-clash-du-dimanche-soir-tylel-tati-x-ayyoub-bouaddi/KEtb8VLa/)
+- **Nantes - Lille : Chancel Mbemba préféré à Nathan N’Goy dans l’axe**: [Link](https://www.lavoixdunord.fr/1637540/article/2025-10-19/nantes-lille-chancel-mbemba-prefere-nathan-n-goy-dans-l-axe)
+- **Lepenant et la recherche de son pendant**: [Link](https://maisonjaune.org/lepenant-et-la-recherche-de-son-pendant/)
+
+
 ### premier league table (N/A, Sun, 19 Oct 2025 10:40:00 -0700)
 
 - **Mo Salah tipped to hit landmark goal tally this season despite early struggles**: [Link](https://onefootball.com/pt-br/noticias/mo-salah-tipped-to-hit-landmark-goal-tally-this-season-despite-early-struggles-41823488)
