@@ -1,3 +1,10 @@
+### acteur lyad smain (N/A, Sun, 19 Oct 2025 03:10:00 -0700)
+
+- **NÎMES Mort de l'acteur Lyad Smain : les confidences de son père Sabri**: [Link](https://www.objectifgard.com/actualites/nimes-mort-de-lacteur-lyad-smain-les-confidences-de-son-pere-sabri-154320.php)
+- **Lyad Smain, acteur d’« Un si grand soleil », est mort brutalement à 27 ans, la série lui rend hommage**: [Link](https://www.leparisien.fr/culture-loisirs/tv/mort-brutale-a-27-ans-de-lacteur-d-un-si-grand-soleil-lyad-smain-la-serie-lui-rend-hommage-18-10-2025-JMVJ2YQMKRF35HBFH4BUECIYPQ.php)
+- **Mort de Lyad Smain d' « Un si grand soleil » à 27 ans**: [Link](https://www.20minutes.fr/arts-stars/television/4180162-20251018-acteur-lyad-smain-vu-si-grand-soleil-mort-27-ans-lors-voyage-japon)
+
+
 ### quinte du jour (N/A, Sat, 18 Oct 2025 23:40:00 -0700)
 
 - **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 9 Super Alex**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-9-super-alex-128300.html)
