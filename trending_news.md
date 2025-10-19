@@ -1,3 +1,17 @@
+### chile (N/A, Sun, 19 Oct 2025 15:40:00 -0700)
+
+- **Infantino asistirá a la final del Mundial Sub-20 Marruecos-Argentina**: [Link](https://es.rue20.com/2025/10/18/infantino-asistira-a-la-final-del-mundial-sub-20-marruecos-argentina/)
+- **Presidente de la FIFA inaugurará este domingo nuevo Centro de Formación «José Sulantay» en dependencias de la ANFP**: [Link](https://g5noticias.cl/2025/10/15/presidente-de-la-fifa-inaugurara-este-domingo-nuevo-centro-de-formacion-jose-sulantay-en-dependencias-de-la-anfp/)
+- **Con Pablo Milad para todos lados: el cargado itinerario de Gianni Infantino en su paso por Chile**: [Link](https://www.encancha.cl/todo-cancha/2025/10/19/con-pablo-milad-para-todos-lados-el-cargado-itinerario-de-gianni-infantino-en-su-paso-por-chile/)
+
+
+### kooora مباريات اليوم (N/A, Sun, 19 Oct 2025 15:40:00 -0700)
+
+- **جدول مباريات اليوم الإثنين 20 أكتوبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-20-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltb1d2bcbf86a10725)
+- **ديربي إنجلترا وإثارة سعودية.. تعرف مواعيد مباريات اليوم الأحد**: [Link](https://www.arrajol.com/content/385814/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%88%D8%A5%D8%AB%D8%A7%D8%B1%D8%A9-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B1%D9%81-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF)
+- **المشهد سبورتس: ريال مدريد يعود للصدارة.. وسقوط تاريخي لليفربول أمام اليونايتد**: [Link](https://almashhad.com/article/218257510540304-sports/313307080418981-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%88%D8%B3%D9%82%D9%88%D8%B7-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/)
+
+
 ### argentina u-20 vs morocco u-20 (N/A, Sun, 19 Oct 2025 15:30:00 -0700)
 
 - **Argentina v Morocco preview | FIFA U-20 World Cup Chile 2025**: [Link](https://www.fifa.com/en/articles/morocco-argentina-preview)
