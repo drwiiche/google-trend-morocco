@@ -1,3 +1,17 @@
+### celta vigo – real sociedad (N/A, Sun, 19 Oct 2025 06:30:00 -0700)
+
+- **Preview: Celta Vigo vs Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/preview/celta-vigo-vs-real-sociedad-prediction-team-news-lineups_583776.html)
+- **Celta de Vigo vs Real Sociedad: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.bwin.com/en/news/match-preview-celta-de-vigo-real-sociedad-la-liga-gameweek-9/)
+- **How to Watch RC Celta de Vigo vs. Real Sociedad: Live Stream, TV Channel, Start Time | 10/19/2025**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/15/how-to-watch-rc-celta-de-vigo-vs-real-sociedad-live-stream-tv-10-19-2025/86708358007/)
+
+
+### wydad (N/A, Sun, 19 Oct 2025 06:20:00 -0700)
+
+- **Coupe de la Confédération : le WAC débarque à Accra pour défier Asante Kotoko**: [Link](https://lematin.ma/sports/coupe-de-la-confederation-le-wac-a-accra-pour-defier-asante-kotoko/308023)
+- **Wydad: Amine Benhachem affiche son inquiétude avant le match face à Asante**: [Link](https://www.lesiteinfo.com/sport/657636-wydad-amine-benhachem-affiche-son-inquietude-avant-le-match-face-a-asante.html)
+- **CCAF : Le Wydad de retour aux compétitions africaines ce dimanche (vidéos)**: [Link](https://www.lopinion.ma/CCAF-Le-Wydad-de-retour-aux-competitions-africaines-ce-dimanche-videos_a72911.html)
+
+
 ### tottenham (N/A, Sun, 19 Oct 2025 06:10:00 -0700)
 
 - **Premier League highlights: Watch goals as Arsenal Chelsea, Man City, Brighton, Burnley & Sunderland all win**: [Link](https://www.bbc.com/sport/football/live/c5yq2nd7z05t)
