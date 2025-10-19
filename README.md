@@ -1,3 +1,10 @@
+### mbeumo (N/A, Sun, 19 Oct 2025 09:40:00 -0700)
+
+- **DIRECT. Liverpool-Manchester United (Premier League 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/liverpool-manchester-united-live/673577)
+- **Liverpool - Manchester United en direct - Premier League : Football Scores & Résultats - 19/10/2025**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-liverpool-manchester-united_mtc1602386/live-commentary.shtml)
+- **Liverpool - Manchester United : les compositions officielles**: [Link](https://www.footmercato.net/a1397974446293454121-liverpool-manchester-united-les-compositions-officielles)
+
+
 ### fenerbahçe – karagümrük (N/A, Sun, 19 Oct 2025 09:30:00 -0700)
 
 - **Fenerbahçe Fatih Karagümrük maç kadrosu: FB muhtemel ilk 11'leri belli oldu**: [Link](https://oxu.az/tr/spor/fenerbahce-fatih-karagumruk-mac-kadrosu-fb-muhtemel-ilk-11-leri-belli-oldu)
