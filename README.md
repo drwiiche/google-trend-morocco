@@ -1,3 +1,10 @@
+### real vs (N/A, Sun, 19 Oct 2025 12:40:00 -0700)
+
+- **Real Madrid vs Getafe: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264226/real-madrid-vs-getafe-match-preview-prediction/)
+- **Mauro Arambarri vs. Real Madrid – Player props & odds to score a goal on October 19**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/19/mauro-arambarri-soccer-player-props-10-19-2025/86785011007/)
+- **Getafe vs Real Madrid: Starting Lineup Announced for Madrid Derby in La Liga**: [Link](https://www.si.com/onsi/soccer/real-madrid/matchday/getafe-vs-real-madrid-starting-lineup-announced-for-madrid-derby-in-la-liga)
+
+
 ### الجيش الملكي (N/A, Sun, 19 Oct 2025 11:20:00 -0700)
 
 - **الجيش يتعادل مع "حوريا كوناكري"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%AD%D9%88%D8%B1%D9%8A%D8%A7-%D9%83%D9%88%D9%86%D8%A7%D9%83%D8%B1%D9%8A-1642510.html)
