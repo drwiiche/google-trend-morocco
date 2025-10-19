@@ -1,3 +1,15 @@
+### turf fr (N/A, Sun, 19 Oct 2025 00:50:00 -0700)
+
+- **le n° 9 Super Alex - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-9-super-alex-128300.html)
+- **Tiercé Quarté Quinté d'hier > arrivée, résultats et rapports**: [Link](https://www.paris-turf.com/course/paris-vincennes-prix-gudrun-idc-d0df80ba034cdcdae901812279ccd0c6)
+- **Quinté+: Le Pro du jour - Gérald Mossé : “Harper devrait pouvoir se racheter”**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/le-pro-du-jour-gerald-mosse-harper-devrait-pouvoir-se-racheter)
+
+
+### isak andic mort (N/A, Sat, 18 Oct 2025 23:10:00 -0700)
+
+
+
+
 ### nashville vs inter miami (N/A, Sat, 18 Oct 2025 15:50:00 -0700)
 
 - **Nashville 2-5 Miami (Oct 18, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/727296)
