@@ -1,3 +1,10 @@
+### liverpool (N/A, Sun, 19 Oct 2025 08:30:00 -0700)
+
+- **'The tragic loss of life is not a subject for tribal point scoring, and this behaviour has absolutely no place in football', the police have warned**: [Link](https://www.facebook.com/ManchesterEveningNews/posts/the-tragic-loss-of-life-is-not-a-subject-for-tribal-point-scoring-and-this-behav/1270038388491857/)
+- **Liverpool and Man Utd fans receive police warning ahead of Premier League game**: [Link](https://www.liverpool.com/liverpool-fc-news/features/liverpool-man-utd-fans-receive-32703234)
+- **Police issue warning ahead of Liverpool v Man United match**: [Link](https://www.liverpoolecho.co.uk/news/liverpool-news/police-issue-warning-ahead-liverpool-32700250)
+
+
 ### manchester united (N/A, Sun, 19 Oct 2025 08:30:00 -0700)
 
 - **'The tragic loss of life is not a subject for tribal point scoring, and this behaviour has absolutely no place in football', the police have warned**: [Link](https://www.facebook.com/ManchesterEveningNews/posts/the-tragic-loss-of-life-is-not-a-subject-for-tribal-point-scoring-and-this-behav/1270038388491857/)
