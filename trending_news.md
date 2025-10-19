@@ -1,3 +1,10 @@
+### nicolas sarkozy (N/A, Sat, 18 Oct 2025 22:30:00 -0700)
+
+- **INFO BFM BUSINESS. Malgré son incarcération, Nicolas Sarkozy va rester administrateur d’Accor et Lagardère**: [Link](https://www.bfmtv.com/economie/entreprises/info-bfm-business-malgre-son-incarceration-nicolas-sarkozy-va-rester-administrateur-d-accor-et-lagardere_AN-202510170078.html)
+- **INFO RTL - Nicolas Sarkozy sera incarcéré le 21 octobre à la prison de la Santé**: [Link](https://www.rtl.fr/actu/justice-faits-divers/incarceration-de-nicolas-sarkozy-l-ancien-president-est-arrive-au-parquet-national-financier-7900552180)
+- **"La Santé, c’est plus familial et plus propre que Fleury" : les petits conseils de Balkany à Sarkozy avant son incarcération**: [Link](https://www.marianne.net/societe/police-et-justice/patrick-balkany-a-fleury-merogis-un-amateur-de-foot-comme-sarkozy-pourra-assister-a-des-matchs-depuis-sa-cellule)
+
+
 ### ligue 1 (N/A, Sat, 18 Oct 2025 14:10:00 -0700)
 
 - **Ligue 1 – J8 : Une absence surprise, le groupe convoqué par Bruno Genesio pour FC Nantes - LOSC**: [Link](https://lepetitlillois.com/2025/10/18/ligue-1-j8-une-absence-surprise-le-groupe-convoque-par-bruno-genesio-pour-fc-nantes-losc/)
