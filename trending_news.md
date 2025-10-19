@@ -1,3 +1,38 @@
+### flashscore (N/A, Sun, 19 Oct 2025 16:40:00 -0700)
+
+- **Morocco vs. Argentina: How to Watch, Odds, U-20 World Cup Final Preview**: [Link](https://www.foxsports.com/stories/soccer/morocco-vs-argentina-how-watch-odds-u-20-preview)
+- **Argentina vs. Morocco—U20 World Cup Final: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/argentina-vs-morocco-u20-world-cup-final-preview-predictions-lineups-10-19-25)
+- **At Least 590 Moroccans Travel to Chile to Attend U20 World Cup Final**: [Link](https://www.moroccoworldnews.com/2025/10/264202/at-least-590-moroccans-travel-to-chile-to-attend-u20-world-cup-final/)
+
+
+### kick (N/A, Sun, 19 Oct 2025 16:40:00 -0700)
+
+- **Adin Ross Net Worth 2025: Kick Deal, Mansion, and Monthly Income Breakdown**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/adin-ross-net-worth-2025-kick-deal-mansion-and-monthly-income-breakdown/articleshow/124694159.cms)
+- **Who is Adin Ross? Net Worth & Crypto Holdings**: [Link](https://99bitcoins.com/people/who-is-adin-ross/)
+- **CAF CL / Colombe Sportive – MC Alger: kick-off time and where to watch the match live**: [Link](https://foot-africa.com/en/news/caf-cl-colombe-sportive-mc-alger-kick-off-time-and-where-to-watch-the-match-live-925061/)
+
+
+### ياسر زبيري (N/A, Sun, 19 Oct 2025 16:40:00 -0700)
+
+- **بالڤيديو: بعد تألقه المونديالي.. كشـ24 ترصد مسار النجم الزاب...**: [Link](https://kech24.com/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%A3%D9%84%D9%82%D9%87-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A-%D9%83%D8%B4%D9%8024-%D8%AA%D8%B1%D8%B5%D8%AF-%D9%85%D8%B3%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-%D9%81%D9%8A-%D8%AD%D9%88%D8%A7%D8%B1-%D8%AE%D8%A7%D8%B5-%D9%85%D8%B9-%D9%88%D8%A7%D9%84%D8%AF%D9%87.html)
+- **نهائي كأس العالم للشباب: ياسر زبيري يسجل الهدف الأول لمنتخب المغرب في مرمى الأرجنتين في الدقيقة 12**: [Link](https://www.alshbaka.net/egypt/278197.html)
+- **ترتيب هدافي كأس العالم للشباب.. لماذا لم تحتسب ضربة الجزاء لياسر الزبيري؟**: [Link](https://www.eremnews.com/sports/098srxc)
+
+
+### bein sports live match (N/A, Sun, 19 Oct 2025 16:40:00 -0700)
+
+- **Pavlidis’ Brace Sends Benfica Through in the Taça de Portugal Against Chaves**: [Link](https://www.beinsports.com/en-us/soccer/articles/pavlidis-brace-sends-benfica-through-in-the-ta%C3%A7a-de-portugal-against-chaves-2025-10-17)
+- **José Mourinho: 'Today Soares will play in goal, not Trubin' (Oct. 17, 2025)**: [Link](https://dynamo.kiev.ua/en/news/700870-jos-mourinho-today-soares-will-play-ingoal-not-trubin)
+- **Sudakov Injury Update: Benfica Midfielder Doubtful for Chaves Clash**: [Link](https://terrikon.com/en/posts/541026)
+
+
+### argentina (N/A, Sun, 19 Oct 2025 16:30:00 -0700)
+
+- **Bessent Stakes Credibility and Taxpayer Money on Argentina Bet**: [Link](https://www.nytimes.com/2025/10/17/us/politics/trump-argentina-bailout-bessent.html)
+- **Bessent says US bought pesos again, currency slips**: [Link](https://www.reuters.com/world/americas/bessent-says-us-bought-pesos-again-currency-dips-2025-10-17/)
+- **What to know about the Trump administration's $20B bailout for Argentina**: [Link](https://abcnews.go.com/Politics/trump-administrations-20b-bailout-argentina/story?id=126513232)
+
+
 ### friendlies (N/A, Sun, 19 Oct 2025 16:30:00 -0700)
 
 - **Ticket info: Brazil v Senegal at Emirates Stadium | Ticket Information | News**: [Link](https://www.arsenal.com/news/ticket-info-brazil-v-senegal-emirates-stadium)
