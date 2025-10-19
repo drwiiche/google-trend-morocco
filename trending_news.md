@@ -1,3 +1,17 @@
+### samoa (N/A, Sun, 19 Oct 2025 10:10:00 -0700)
+
+- **Kiwi lives up to $13m hype in Pac Champs thriller; ‘unbelievable’ Haas stuns on debut — Big Hits**: [Link](https://www.foxsports.com.au/nrl/nrl-premiership/pacific-championships-2025-samoa-v-new-zealand-teams-ins-and-outs-live-blog-where-to-watch-start-time-terrell-may-injury-news/news-story/bf9febdffe3560f2105a0dfd6ea7ccc9)
+- **‘It’s very spiritual to me’: Why Kieran Foran put off retirement for last hurrah with Kiwis**: [Link](https://www.smh.com.au/sport/nrl/it-s-very-spiritual-to-me-why-kieran-foran-put-off-retirement-for-last-hurrah-with-kiwis-20251017-p5n3a3.html)
+- **League: Booed on home turf, Kiwis channel hostile reception**: [Link](https://www.rnz.co.nz/news/sport/576373/league-booed-on-home-turf-kiwis-channel-hostile-reception)
+
+
+### widad (N/A, Sun, 19 Oct 2025 09:00:00 -0700)
+
+- **بين مطرقة كوتوكو وسندان الديربي.. بنهاشم يسعى لإكمال التحدي مع الوداد المتجدد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D9%86-%D9%85%D8%B7%D8%B1%D9%82%D8%A9-%D9%83%D9%88%D8%AA%D9%88%D9%83%D9%88-%D9%88%D8%B3%D9%86%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A--%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%A7%D9%95%D9%83%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%AD%D8%AF%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%AA%D8%AC%D8%AF%D8%AF/bltbdb53701e929a8d5)
+- **كأس الكاف: الوداد الرياضي يعود بانتصار ثمين من غانا**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%AB%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%BA%D8%A7%D9%86%D8%A7-20251019)
+- **أرضية الميدان تقلق بنهاشم قبل افتتاح المشوار القاري - فبراير.كوم | موقع مغربي إخباري شامل يتجدد على مدار الساعة**: [Link](https://febrayer.com/1121500.html)
+
+
 ### rennes – auxerre (N/A, Sun, 19 Oct 2025 09:50:00 -0700)
 
 - **DIRECT. Rennes-Auxerre (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/rennes-auxerre-live/675865)
