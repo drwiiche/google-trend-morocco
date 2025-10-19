@@ -1,3 +1,24 @@
+### morocco (N/A, Sun, 19 Oct 2025 16:10:00 -0700)
+
+- **Morocco to boost health, education spending to $15 billion in 2026**: [Link](https://www.reuters.com/world/africa/morocco-boost-health-education-spending-15-bln-2026-2025-10-19/)
+- **His Majesty the King Chairs Council of Ministers**: [Link](https://2m.ma/fr/news/His-Majesty-the-King-Chairs-Council-of-Ministers-20251019)
+- **Gen Z protests against corruption and inequality are shaking Morocco. Here’s what to know**: [Link](https://apnews.com/article/morocco-gen-z-protests-king-explainer-b6bc8c7bbee375e0896d75f5c5a085fb)
+
+
+### match today (N/A, Sun, 19 Oct 2025 16:10:00 -0700)
+
+- **Tottenham 1-2 Aston Villa: Emi Buendia scores winner in comeback win**: [Link](https://www.bbc.com/sport/football/live/czdr1yyernmt)
+- **Frank unable to explain Spurs' miserable home record**: [Link](https://www.france24.com/en/live-news/20251019-frank-unable-to-explain-spurs-miserable-home-record)
+- **'I don't think we did enough' - Van de Ven rues Spurs slip-up**: [Link](https://sporty.com/news/i-dont-think-we-did-enough-van-de-ven-rues-spurs-slip-up/i16ib7xlm3gg1o9h6qx4n7vpw)
+
+
+### bet 365 (N/A, Sun, 19 Oct 2025 16:10:00 -0700)
+
+- **bet365 Bonua Code "LSBONUS" $200 Bonus for Sunday Night NFL**: [Link](https://www.livescore.com/en/news/nfl/promos/bet365-nfl-promo-october-19-2025/)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Eagles vs. Vikings**: [Link](https://nypost.com/2025/10/19/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-eagles-vs-vikings/)
+- **bet365 Bonus Code TOPACTION: Get $200 or $1,000 NFL Betting Promo**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-topaction-scores-200-or-1000-nfl-betting-promo-for-any-game-today)
+
+
 ### kooora (N/A, Sun, 19 Oct 2025 16:00:00 -0700)
 
 - **جدول مباريات اليوم الإثنين 20 أكتوبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-20-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltb1d2bcbf86a10725)
