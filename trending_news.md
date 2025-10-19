@@ -1,3 +1,17 @@
+### argentina u-20 vs morocco u-20 (N/A, Sun, 19 Oct 2025 15:30:00 -0700)
+
+- **Argentina v Morocco preview | FIFA U-20 World Cup Chile 2025**: [Link](https://www.fifa.com/en/articles/morocco-argentina-preview)
+- **Morocco vs. Argentina: How to Watch, Odds, U-20 World Cup Final Preview**: [Link](https://www.foxsports.com/stories/soccer/morocco-vs-argentina-how-watch-odds-u-20-preview)
+- **Special Royal Air Maroc Flights to Take Moroccan Fans to U-20 World Cup Final in Chile**: [Link](https://www.moroccoworldnews.com/2025/10/264018/special-royal-air-maroc-flights-to-take-moroccan-fans-to-u-20-world-cup-final-in-chile/)
+
+
+### argentine u-20 – équipe du maroc des moins de 20 ans de football (N/A, Sun, 19 Oct 2025 15:00:00 -0700)
+
+- **Finale Coupe du monde U20. Maroc-Argentine. Quelle heure, quelles chaînes**: [Link](https://medias24.com/2025/10/19/maroc-argentine-quelle-heure-quelles-chaines/)
+- **Le Maroc en finale du Mondial U20 face à l’Argentine : « Il n’y a pas d’équipe invincible »**: [Link](https://ledesk.ma/2025/10/18/le-maroc-en-finale-du-mondial-u20-face-a-largentine-il-ny-a-pas-dequipe-invincible/)
+- **Achraf Hakimi adresse un message inspirant aux Lionceaux avant la finale face à l’Argentine**: [Link](https://fr.hespress.com/446005-achraf-hakimi-adresse-un-message-inspirant-aux-lionceaux-avant-la-finale-face-a-largentine.html)
+
+
 ### khalid ait taleb (N/A, Sun, 19 Oct 2025 13:00:00 -0700)
 
 - **Conseil des ministres: Khalid Aït Taleb nommé nouveau wali de Fès-Meknès**: [Link](https://fr.le360.ma/politique/conseil-des-ministres-khalid-ait-taleb-nomme-nouveau-wali-de-fes-meknes_AZK634OII5EXDPI45DVQQRITXM/)
