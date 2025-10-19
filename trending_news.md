@@ -1,3 +1,73 @@
+### kooora (N/A, Sun, 19 Oct 2025 16:00:00 -0700)
+
+- **جدول مباريات اليوم الإثنين 20 أكتوبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-20-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltb1d2bcbf86a10725)
+- **ديربي إنجلترا وإثارة سعودية.. تعرف مواعيد مباريات اليوم الأحد**: [Link](https://www.arrajol.com/content/385814/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%88%D8%A5%D8%AB%D8%A7%D8%B1%D8%A9-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B1%D9%81-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF)
+- **المشهد سبورتس: ريال مدريد يعود للصدارة.. وسقوط تاريخي لليفربول أمام اليونايتد**: [Link](https://almashhad.com/article/218257510540304-sports/313307080418981-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%88%D8%B3%D9%82%D9%88%D8%B7-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/)
+
+
+### yalla kora (N/A, Sun, 19 Oct 2025 16:00:00 -0700)
+
+- **فضيحة في تونس.. لاعب مصري لتنس الطاولة يتشاجر مع زميله**: [Link](https://www.kooora.com/%D8%AA%D9%86%D8%B3-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%81%D9%8A-%D8%AA%D9%88%D9%86%D8%B3--%D8%B9%D9%85%D8%B1-%D8%B9%D8%B5%D8%B1-%D9%8A%D8%AA%D8%B4%D8%A7%D8%AC%D8%B1-%D9%85%D8%B9-%D9%86%D8%AC%D9%84-%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%84%D8%AA%D9%86%D8%B3-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9/blt8134b8e391c44376)
+- **بطولة إفريقيا لتنس الطاولة 2025 : منتخب مصر يحرز ذهبية الفرق بالفوز على الجزائر 3-1**: [Link](https://ar.africatopsports.com/2025/10/19/%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D8%AA%D9%86%D8%B3-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-2025-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-2/)
+- **تنس طاولة – تحويل عمر عصر ومحمود أشرف للتحقيق لما بدر منهما في بطولة إفريقيا**: [Link](https://www.filgoal.com/articles/515534/%D8%AA%D9%86%D8%B3-%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%AA%D8%AD%D9%88%D9%8A%D9%84-%D8%B9%D9%85%D8%B1-%D8%B9%D8%B5%D8%B1-%D9%88%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D8%A3%D8%B4%D8%B1%D9%81-%D9%84%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%84%D9%85%D8%A7-%D8%A8%D8%AF%D8%B1-%D9%85%D9%86%D9%87%D9%85%D8%A7-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+
+
+### يلا شوت (N/A, Sun, 19 Oct 2025 16:00:00 -0700)
+
+- **تحليل: واقعية الشياطين تنتصر أمام خيارات ليفربول المحدودة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D9%84%D9%8A%D9%84-%D9%88%D8%A7%D9%82%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D9%8A%D8%A7%D8%B7%D9%8A%D9%86-%D8%AA%D9%86%D8%AA%D8%B5%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B9%D9%82%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt41030eda83e19a1a)
+- **مباشر.. مباراة ليفربول ضد مانشستر يونايتد (1-2) في الدوري الإنجليزي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/19/liverpool-vs-manchester-united-live?update=8156727&utm_source=google&utm_medium=live-blog-schema)
+- **نصير مزراوي احتياطي في الأنفيلد**: [Link](https://www.almountakhab.com/node/16218701)
+
+
+### live (N/A, Sun, 19 Oct 2025 16:00:00 -0700)
+
+- **Verstappen wins Austin Sprint as both McLarens retire**: [Link](https://www.formula1.com/en/latest/article/verstappen-wins-dramatic-austin-sprint-as-both-mclarens-retire-in-lap-1.2cOAGwv5tyMmpmiGlzZiUW)
+- **United States GP dates, UK start time and Sky Sports F1's live schedule - practice, qualifying, Sprint and race**: [Link](https://www.skysports.com/f1/news/12433/13446909/united-states-gp-2025-dates-schedule-weather-uk-start-time-and-how-to-watch-sprint-weekend-or-stream-f1-austin-race-on-sky-sports)
+- **F1 - What are the possible strategies for the 2025 United States Grand Prix?**: [Link](https://www.autohebdof1.com/news/f1/Pirelli-Strategies-for-the-2025-United-States-Grand-Prix.html)
+
+
+### yallakora (N/A, Sun, 19 Oct 2025 16:00:00 -0700)
+
+- **جوهرة ريال مدريد إلى مارسيليا..بين الحقيقة والخيال!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/endrick-a-l-om-5-raisons-pour-lesquelles-ce-transfert-est-un-fantasme/blt60a53b10e4c0e014)
+- **تشابي ألونسو يوضح موقفه بشأن مستقبل أندرِك مع ريال مدريد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%AA%D8%B4%D8%A7%D8%A8%D9%8A-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%B7%D9%85%D8%A6%D9%86-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A3%D9%86%D8%AF%D8%B1%D9%83-%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/10366)
+- **خاص لـ365Scores.. رد حاسم من وكيل إندريك على أخبار رحيله عن ريال مدريد**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AE%D8%A7%D8%B5-%D9%84%D9%80365scores-%D8%B1%D8%AF-%D8%AD%D8%A7%D8%B3%D9%85-%D9%85%D9%86-%D9%88%D9%83%D9%8A%D9%84-%D8%A5%D9%86%D8%AF%D8%B1%D9%8A%D9%83-%D8%B9%D9%84%D9%89-%D8%A3%D8%AE%D8%A8%D8%A7/)
+
+
+### fifa (N/A, Sun, 19 Oct 2025 16:00:00 -0700)
+
+- **Morocco Ranks 12th in the World, Still Africa’s Best in FIFA Rankings**: [Link](https://www.moroccoworldnews.com/2025/10/264006/morocco-ranks-12th-in-the-world-still-africas-best-in-fifa-rankings/)
+- **New FIFA ranking: Algeria is climbing at full speed!**: [Link](https://foot-africa.com/en/news/new-fifa-ranking-algeria-is-climbing-at-full-speed-922701/)
+- **Nigeria Moves Up Four Spots To 41st In New FIFA Rankings**: [Link](https://von.gov.ng/nigeria-moves-up-four-spots-to-41st-in-new-fifa-rankings/)
+
+
+### hakimi (N/A, Sun, 19 Oct 2025 16:00:00 -0700)
+
+- **Argentina - Marruecos en directo | Final del Mundial Sub 20 hoy en vivo**: [Link](https://www.marca.com/futbol/mundial-sub-20/argentina-marruecos/2025/10/20/01_01134_20251019_3938_10920-directo.html)
+- **Por la séptima**: [Link](https://onefootball.com/es/noticias/por-la-septima-41827567)
+- **Convocados de la selección argentina Sub 20 para el Mundial Chile 2025**: [Link](https://es-us.noticias.yahoo.com/deportes/convocados-selecci%C3%B3n-argentina-sub-20-200000607.html)
+
+
+### santiago (N/A, Sun, 19 Oct 2025 16:00:00 -0700)
+
+- **2-1. Leao condena a su maestro Pioli y el Milan asalta el liderato**: [Link](https://es-us.noticias.yahoo.com/deportes/2-1-leao-condena-maestro-211313247.html)
+- **Gana el Milán y toman la cima de la Serie A de Italia**: [Link](https://elporvenir.mx/deportes/gana-el-milan-y-toman-la-cima-de-la-serie-a-de-italia/914575)
+- **Santiago Giménez con la imperiosa necesidad de romper su sequía goleadora**: [Link](https://889noticias.mx/espacio-deportivo/santiago-gimenez-con-la-imperiosa-necesidad-de-romper-su-sequia-goleadora/)
+
+
+### match maroc aujourd'hui (N/A, Sun, 19 Oct 2025 15:50:00 -0700)
+
+- **Couleurs, musique et ferveur : Rabat célèbre le coup d’envoi du Mondial U17 féminin**: [Link](https://lematin.ma/sports/rabat-celebre-louverture-du-mondial-feminin-u17/308293)
+- **Le Maroc s’incline face au Brésil en ouverture du Mondial U17 féminin (0-3)**: [Link](https://medias24.com/2025/10/18/le-maroc-sincline-face-au-bresil-en-ouverture-du-mondial-u17-feminin-0-3/)
+- **Mondial féminin U‑17 Maroc 2025 : La chanson officielle "Marhba Bik" dévoilée**: [Link](https://www.leconomiste.com/flash-infos/mondial-feminin-u%E2%80%9117-maroc-2025-la-chanson-officielle-marhba-bik-devoilee/)
+
+
+### match live (N/A, Sun, 19 Oct 2025 15:50:00 -0700)
+
+- **Premier League recap: Man United stun Liverpool at Anfield**: [Link](https://www.espn.com/soccer/story/_/id/46607513/premier-league-updates-tottenham-hotspur-aston-villa-liverpool-manchester-united)
+- **Manchester United: Ruben Amorim's big moment - are Man Utd finally ready for lift off?**: [Link](https://www.bbc.com/sport/football/articles/ce9dng1l4g9o)
+- **Man Utd Predicted Lineup vs. Liverpool: Cunha Returns to Form Fabulous Front Three**: [Link](https://www.si.com/soccer/man-utd-predicted-lineup-vs-liverpool-premier-league-10-19-25)
+
+
 ### chile (N/A, Sun, 19 Oct 2025 15:40:00 -0700)
 
 - **Infantino asistirá a la final del Mundial Sub-20 Marruecos-Argentina**: [Link](https://es.rue20.com/2025/10/18/infantino-asistira-a-la-final-del-mundial-sub-20-marruecos-argentina/)
