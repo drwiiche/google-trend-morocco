@@ -1,3 +1,10 @@
+### como vs juventus (N/A, Sun, 19 Oct 2025 04:00:00 -0700)
+
+- **Duras críticas al Como de Cesc Fàbregas: "Es un falso equipo pequeño"**: [Link](https://www.sport.es/es/noticias/futbol-internacional/duras-criticas-cesc-fabregas-falso-122775851)
+- **Yildiz desafía a Nico Paz**: [Link](https://as.com/futbol/internacional/yildiz-desafia-a-nico-paz-f202510-n/)
+- **Blog en vivo de la Serie A que incluye Como-Juventus, Milán-Fiorentina, Atalanta-Lazio**: [Link](https://masmma.com.mx/futbol/blog-en-vivo-de-la-serie-a-que-incluye-como-juventus-milan-fiorentina-atalanta-lazio/109395/)
+
+
 ### acteur lyad smain (N/A, Sun, 19 Oct 2025 03:10:00 -0700)
 
 - **NÎMES Mort de l'acteur Lyad Smain : les confidences de son père Sabri**: [Link](https://www.objectifgard.com/actualites/nimes-mort-de-lacteur-lyad-smain-les-confidences-de-son-pere-sabri-154320.php)
