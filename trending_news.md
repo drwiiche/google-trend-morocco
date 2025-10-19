@@ -1,3 +1,24 @@
+### classement la liga (N/A, Sun, 19 Oct 2025 14:00:00 -0700)
+
+- **FC Barcelone : les lourdes accusations de Joan Laporta contre l’arbitrage espagnol**: [Link](https://www.footmercato.net/a8280124571353679749-fc-barcelone-les-lourdes-accusations-de-joan-laporta-contre-larbitrage-espagnol)
+- **Un carton rouge puis un bras d'honneur : Hansi Flick pète les plombs lors de Barça-Gérone**: [Link](https://www.lequipe.fr/Football/Actualites/Un-carton-rouge-puis-un-bras-d-honneur-hansi-flick-pete-les-plombs-lors-de-barca-gerone/1602728)
+- **Séance de récupération post-victoire**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4385093/seance-de-recuperation-post-victoire)
+
+
+### milan ac (N/A, Sun, 19 Oct 2025 14:00:00 -0700)
+
+- **DIRECT. AC Milan-Fiorentina (Serie A 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/ac-milan-fiorentina-live/672654)
+- **Ita. : doublé de Leão, Milan prend la tête**: [Link](https://www.maxifoot.fr/italie/double-de-leao-milan-prend-la-tete-foot-443022.htm)
+- **Serie A : Leao installe le Milan AC sur le fauteuil de leader**: [Link](https://www.foot01.com/italie/serie-a-leao-installe-le-milan-ac-sur-le-fauteuil-de-leader)
+
+
+### ميلان ضد فيورنتينا (N/A, Sun, 19 Oct 2025 13:50:00 -0700)
+
+- **نجم ميلان يربك خطط أليجري أمام فيورنتينا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D8%B1%D8%A8%D9%83-%D8%AE%D8%B7%D8%B7-%D8%A7%D9%94%D9%84%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D9%88%D8%B1%D9%86%D8%AA%D9%8A%D9%86%D8%A7/bltd36ecf8d44b0fd22)
+- **لياو يقود ميلان لصدارة الدوري بعد الفوز على فيورنتينا بثنائية**: [Link](https://arabic.sport360.com/article/italianfootball/%D9%85%D9%8A%D9%84%D8%A7%D9%86/1348070/%D9%84%D9%8A%D8%A7%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88)
+- **ما تشكيلة ميلان المتوقعة أمام فيورنتينا في الدوري الإيطالي اليوم؟**: [Link](https://www.arrajol.com/content/385831/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D8%A7-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D9%88%D8%B1%D9%86%D8%AA%D9%8A%D9%86%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85%D8%9F)
+
+
 ### formula 1 (N/A, Sun, 19 Oct 2025 13:30:00 -0700)
 
 - **Verstappen wins Austin Sprint as both McLarens retire**: [Link](https://www.formula1.com/en/latest/article/verstappen-wins-dramatic-austin-sprint-as-both-mclarens-retire-in-lap-1.2cOAGwv5tyMmpmiGlzZiUW)
