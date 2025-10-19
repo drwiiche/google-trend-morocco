@@ -1,3 +1,17 @@
+### خالد ايت طالب (N/A, Sun, 19 Oct 2025 11:40:00 -0700)
+
+- **تعيينات في المناصب العليا والتوجهات الاستراتيجية للدولة.. الملك يترأس مجلسا وزاريا**: [Link](https://ar.telquel.ma/%D9%85%D8%AC%D9%84%D8%B3-%D9%88%D8%B2%D8%A7%D8%B1%D9%8A-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D9%84%D9%84%D8%AA%D8%AF%D8%A7%D9%88%D9%84-%D9%81%D9%8A-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D9%85%D8%A7%D9%84%D9%8A/)
+- **الملك يترأس مجلسا وزاريا للتداول في "مالية 2026" وتعيين ولاة وعمال**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%AA%D8%B1%D8%A3%D8%B3-%D9%85%D8%AC%D9%84%D8%B3%D8%A7-%D9%88%D8%B2%D8%A7%D8%B1%D9%8A%D8%A7-%D9%84%D9%84%D8%AA%D8%AF%D8%A7%D9%88%D9%84-%D9%81%D9%8A-%D9%85%D8%A7-1642343.html)
+- **المجلس الوزاري يصادق على 14 اتفاقية دولية**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B5%D8%A7%D8%AF%D9%82-%D8%B9%D9%84%D9%89-14-%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A9-%D8%AF%D9%88%D9%84%D9%8A%D8%A9-20251019)
+
+
+### conseil des ministres maroc (N/A, Sun, 19 Oct 2025 11:30:00 -0700)
+
+- **Conseil des ministres. Tarik Senhaji nommé à la tête de l'AMMC**: [Link](https://medias24.com/2025/10/19/conseil-des-ministres-tarik-senhaji-nomme-a-la-tete-de-lammc/)
+- **Tarik Senhaji placé à la tête de l’Autorité marocaine du marché des capitaux**: [Link](http://ledesk.ma/enoff/tarik-senhaji-place-a-la-tete-de-lautorite-marocaine-du-marche-des-capitaux/)
+- **AMMC : Tarik Senhaji nommé président**: [Link](https://ecoactu.ma/ammc-tarik-senhaji-nomme-president/)
+
+
 ### getafe – real madrid (N/A, Sun, 19 Oct 2025 11:10:00 -0700)
 
 - **Getafe - Real Madrid hoy, en directo: previa y última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/getafe-real-madrid-hoy-en-directo-laliga-ea-sports-ultima-hora-en-vivo-f202510-n/)
