@@ -1,3 +1,10 @@
+### tottenham – aston villa (N/A, Sun, 19 Oct 2025 05:20:00 -0700)
+
+- **Udogie injury latest as Spurs defender misses Aston Villa clash**: [Link](https://www.standard.co.uk/sport/football/destiny-udogie-injury-latest-tottenham-aston-villa-b1253700.html)
+- **Destiny Udogie injury latest as Tottenham defender misses Aston Villa clash**: [Link](https://www.inkl.com/news/destiny-udogie-injury-latest-as-tottenham-defender-misses-aston-villa-clash)
+- **Jamie O’Hara and Gabby Agbonlahor row over combined Tottenham and Aston Villa XI**: [Link](https://talksport.com/football/3654167/jamie-ohara-gabby-agbonlahor-row-combined-tottenham-aston-villa-xi/)
+
+
 ### juventus (N/A, Sun, 19 Oct 2025 05:00:00 -0700)
 
 - **Serie A: in campo Como-Juventus 1-0 LIVE**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/10/19/serie-a-in-campo-como-juventus-0-0-live_de4ba846-9ad7-4cb0-9e8c-0d9a253d096b.html)
