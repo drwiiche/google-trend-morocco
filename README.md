@@ -1,3 +1,24 @@
+### ac milan – fiorentina (N/A, Sun, 19 Oct 2025 12:00:00 -0700)
+
+- **Sky: Milan’s injury crisis deepens as Loftus-Cheek has muscle issue – the latest**: [Link](https://sempremilan.com/milan-injury-crisis-deepens-loftus-cheek)
+- **Serie A official line-ups: AC Milan vs. Fiorentina**: [Link](https://football-italia.net/serie-a-official-line-ups-ac-milan-fiorentina/)
+- **Tare: "The absences must not be an excuse"**: [Link](https://milanreports.com/2025/10/19/tare-absences-must-not-be-an-excuse/)
+
+
+### totalsportek (N/A, Sun, 19 Oct 2025 12:00:00 -0700)
+
+- **Liverpool 1-2 Man Utd: Harry Maguire scores winner as visitors get first Anfield win since 2016**: [Link](https://www.bbc.com/sport/football/live/c8drj112r1et)
+- **Liverpool vs Manchester United: Match Preview & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264205/liverpool-vs-manchester-united-match-preview-score-prediction/)
+- **Slot Faces Amorim in a Tactical Duel That Could Shape Liverpool’s Season**: [Link](https://onefootball.com/pt-br/noticias/slot-faces-amorim-in-a-tactical-duel-that-could-shape-liverpools-season-41826828)
+
+
+### tarik senhaji (N/A, Sun, 19 Oct 2025 11:50:00 -0700)
+
+- **Conseil des ministres. Tarik Senhaji nommé à la tête de l'AMMC**: [Link](https://medias24.com/2025/10/19/conseil-des-ministres-tarik-senhaji-nomme-a-la-tete-de-lammc/)
+- **Tarik Senhaji placé à la tête de l’Autorité marocaine du marché des capitaux**: [Link](http://ledesk.ma/enoff/tarik-senhaji-place-a-la-tete-de-lautorite-marocaine-du-marche-des-capitaux/)
+- **AMMC : Tarik Senhaji nommé président**: [Link](https://ecoactu.ma/ammc-tarik-senhaji-nomme-president/)
+
+
 ### خالد ايت طالب (N/A, Sun, 19 Oct 2025 11:40:00 -0700)
 
 - **تعيينات في المناصب العليا والتوجهات الاستراتيجية للدولة.. الملك يترأس مجلسا وزاريا**: [Link](https://ar.telquel.ma/%D9%85%D8%AC%D9%84%D8%B3-%D9%88%D8%B2%D8%A7%D8%B1%D9%8A-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D9%84%D9%84%D8%AA%D8%AF%D8%A7%D9%88%D9%84-%D9%81%D9%8A-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D9%85%D8%A7%D9%84%D9%8A/)
