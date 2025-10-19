@@ -1,3 +1,10 @@
+### musée du louvre (N/A, Sun, 19 Oct 2025 07:10:00 -0700)
+
+- **Le Louvre victime d’un « braquage » et fermé pour la journée ; des bijoux d’une « valeur inestimable » dérobés**: [Link](https://www.lemonde.fr/societe/article/2025/10/19/le-louvre-victime-d-un-braquage-et-ferme-pour-la-journee-des-bijoux-d-une-valeur-inestimable-derobes_6648121_3225.html)
+- **Le musée du Louvre cible d’un braquage ce dimanche, des bijoux dérobés**: [Link](https://www.leparisien.fr/paris-75/le-musee-du-louvre-cible-dun-braquage-ce-dimanche-le-site-ferme-au-public-19-10-2025-DQII6PEIVVEDBM5KQMHDSCF6IM.php)
+- **DIRECT. Cambriolage au Louvre: un des bijoux volés retrouvé, "trois ou quatre auteurs" recherchés**: [Link](https://www.bfmtv.com/paris/direct-cambriolage-au-louvre-des-bijoux-d-une-valeur-inestimable-voles-le-musee-ferme-pour-la-journee_LN-202510190193.html)
+
+
 ### توتنهام ضد أستون فيلا (N/A, Sun, 19 Oct 2025 07:00:00 -0700)
 
 - **خطة "مايسترو" توتنهام لإعادة "السبيرز" للمجد الكروي**: [Link](https://24.ae/article/924697/%D8%AE%D8%B7%D8%A9-%D9%85%D8%A7%D9%8A%D8%B3%D8%AA%D8%B1%D9%88-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%84%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B3%D8%A8%D9%8A%D8%B1%D8%B2-%D9%84%D9%84%D9%85%D8%AC%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%88%D9%8A)
