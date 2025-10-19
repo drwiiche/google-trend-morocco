@@ -1,3 +1,10 @@
+### lens – paris fc (N/A, Sun, 19 Oct 2025 06:40:00 -0700)
+
+- **Lens - Paris FC : sur quelle chaîne et à quelle heure voir le match de Ligue 1 en direct ?**: [Link](https://www.ouest-france.fr/sport/football/rc-lens/lens-paris-fc-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-1-en-direct-33723e9c-a9d9-11f0-a84e-0a4f72002724)
+- **PRONOS PARIS RMC Le pari du jour du 19 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-19-octobre-ligue-1_AN-202510180297.html)
+- **Florian Thauvin manque un penalty contre le Paris FC**: [Link](https://www.lequipe.fr/Football/Actualites/Florian-thauvin-manque-un-penalty-contre-le-paris-fc/1602883)
+
+
 ### celta vigo – real sociedad (N/A, Sun, 19 Oct 2025 06:30:00 -0700)
 
 - **Preview: Celta Vigo vs Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/preview/celta-vigo-vs-real-sociedad-prediction-team-news-lineups_583776.html)
