@@ -1,3 +1,17 @@
+### premier league table (N/A, Sun, 19 Oct 2025 10:40:00 -0700)
+
+- **Mo Salah tipped to hit landmark goal tally this season despite early struggles**: [Link](https://onefootball.com/pt-br/noticias/mo-salah-tipped-to-hit-landmark-goal-tally-this-season-despite-early-struggles-41823488)
+- **Salah's status as Liverpool legend underlined by incredible PL table**: [Link](https://www.planetfootball.com/liverpool/mohamed-salah-liverpool-premier-league-table)
+- **Darren Bent makes bold prediction about Mohamed Salah's goal tally after slow start for Liverpool**: [Link](https://www.rousingthekop.com/2025/10/18/darren-bent-makes-bold-prediction-about-mohamed-salahs-goal-tally-after-slow-start-for-liverpool/)
+
+
+### premier league (N/A, Sun, 19 Oct 2025 10:30:00 -0700)
+
+- **Man United get VAR explanation after Liverpool denied penalty over Amad incident**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-united-var-explanation-after-32707556)
+- **'Literally got the ball': Man United fans shocked at how Amad Diallo received booking vs Liverpool**: [Link](https://tribuna.com/en/blogs/literally-got-the-ball-man-united-fans-shocked-at-how-amad-d/)
+- **Premier League Match Centre confirm why Liverpool weren't awarded a penalty against Man Utd**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/breaking-liverpool-man-united-var-32707099)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Sun, 19 Oct 2025 10:30:00 -0700)
 
 - **أرتيتا: تطورنا في هذا الجانب.. ونجم آرسنال متكامل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D8%AA%D8%B7%D9%88%D8%B1%D9%86%D8%A7-%D9%81%D9%8A-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%AC%D8%A7%D9%86%D8%A8--%D9%88%D9%86%D8%AC%D9%85-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%85%D8%AA%D9%83%D8%A7%D9%85%D9%84/bltb8c44756fb937740)
