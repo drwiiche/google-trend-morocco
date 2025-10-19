@@ -1,3 +1,10 @@
+### real madrid vs getafe (N/A, Sun, 19 Oct 2025 12:50:00 -0700)
+
+- **Real Madrid go top of La Liga as protests continue**: [Link](https://www.bbc.com/sport/football/live/cqjwr771p71t)
+- **Real Madrid vs Getafe: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264226/real-madrid-vs-getafe-match-preview-prediction/)
+- **Real Madrid’s deadly duo combine again to lead Los Blancos back to the top of the table**: [Link](https://getfootballnewsspain.com/real-madrids-deadly-duo-combine-again-to-lead-los-blancos-back-to-the-top-of-the-table/)
+
+
 ### ميزانية الصحة في المغرب 2025 (N/A, Sun, 19 Oct 2025 14:10:00 -0700)
 
 - **المغرب يزيد الإنفاق على الصحة والتعليم إلى 15 مليار دولار في 2026**: [Link](https://www.aljazeera.net/news/2025/10/19/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%B1%D8%B1-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A5%D9%86%D9%81%D8%A7%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9)
