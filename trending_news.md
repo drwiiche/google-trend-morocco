@@ -1,3 +1,17 @@
+### ترتيب الدوري الانجليزي (N/A, Sun, 19 Oct 2025 10:30:00 -0700)
+
+- **أرتيتا: تطورنا في هذا الجانب.. ونجم آرسنال متكامل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D8%AA%D8%B7%D9%88%D8%B1%D9%86%D8%A7-%D9%81%D9%8A-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%AC%D8%A7%D9%86%D8%A8--%D9%88%D9%86%D8%AC%D9%85-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%85%D8%AA%D9%83%D8%A7%D9%85%D9%84/bltb8c44756fb937740)
+- **أرسنال يتغلب على فولهام ويعتلي صدارة الدوري الإنجليزي**: [Link](https://m.elbotola.com/article/2025-10-19-14-52-678.html)
+- **الدوري الإنجليزي.. أرسنال متمسك بالصدارة وهالاند يواصل تألقه**: [Link](https://www.skynewsarabia.com/sport/1828037-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%94%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%85%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%88%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%AA%D8%A7%D9%94%D9%84%D9%82%D9%87)
+
+
+### classement premier league (N/A, Sun, 19 Oct 2025 10:30:00 -0700)
+
+- **Tottenham 1-2 Aston Villa, Premier League : résumé du match (19/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/tottenham-aston-villa-live/673581)
+- **Aston Villa renverse Tottenham**: [Link](https://www.sofoot.com/breves/premier-league-aston-villa-renverse-tottenham)
+- **Premier League. Tottenham perd en championnat avant de défier Monaco en Ligue des champions**: [Link](https://www.ouest-france.fr/sport/football/premier-league/premier-league-tottenham-perd-en-championnat-avant-de-defier-monaco-en-ligue-des-champions-56bb2a04-acfd-11f0-b75e-b80ca3a1c619)
+
+
 ### samoa (N/A, Sun, 19 Oct 2025 10:10:00 -0700)
 
 - **Kiwi lives up to $13m hype in Pac Champs thriller; ‘unbelievable’ Haas stuns on debut — Big Hits**: [Link](https://www.foxsports.com.au/nrl/nrl-premiership/pacific-championships-2025-samoa-v-new-zealand-teams-ins-and-outs-live-blog-where-to-watch-start-time-terrell-may-injury-news/news-story/bf9febdffe3560f2105a0dfd6ea7ccc9)
