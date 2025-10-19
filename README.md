@@ -1,3 +1,10 @@
+### tottenham vs aston villa (N/A, Sun, 19 Oct 2025 06:00:00 -0700)
+
+- **'In contention' - Thomas Frank offers most optimistic Tottenham striker injury update yet**: [Link](https://hotspurhq.com/in-contention-thomas-frank-offers-most-optimistic-tottenham-striker-injury-update-yet-01k7ta624zpq)
+- **Preview: Frank’s Spurs meet Emery’s Villa**: [Link](https://www.fotmob.com/topnews/23458-preview-franks-spurs-meet-emerys-villa?utm_source=fotmob)
+- **Tottenham Hotspur vs Aston Villa prediction and odds ahead of Premier League clash**: [Link](https://www.football.london/tottenham-hotspur-fc/news/tottenham-aston-villa-prediction-odds-32705497)
+
+
 ### tottenham – aston villa (N/A, Sun, 19 Oct 2025 05:20:00 -0700)
 
 - **Udogie injury latest as Spurs defender misses Aston Villa clash**: [Link](https://www.standard.co.uk/sport/football/destiny-udogie-injury-latest-tottenham-aston-villa-b1253700.html)
