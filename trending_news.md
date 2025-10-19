@@ -1,3 +1,17 @@
+### خالد ايت الطالب (N/A, Sun, 19 Oct 2025 12:50:00 -0700)
+
+- **المجلس الوزاري يصادق على إحداث مناطق صناعية لأنظمة الأسلحة والذخيرة**: [Link](https://ar.telquel.ma/%D8%A5%D8%B5%D9%84%D8%A7%D8%AD-%D9%82%D8%B7%D8%A7%D8%B9%D9%8A-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88/)
+- **المجلس الوزاري يصادق على 14 اتفاقية دولية**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B5%D8%A7%D8%AF%D9%82-%D8%B9%D9%84%D9%89-14-%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A9-%D8%AF%D9%88%D9%84%D9%8A%D8%A9-20251019)
+- **الرفع من إعانات الأطفال ب 50 و100 درهم ويقر إعانة خاصة للأطفال اليتامى والمهملين – اليوم 24**: [Link](https://alyaoum24.com/1989981.html)
+
+
+### match real (N/A, Sun, 19 Oct 2025 12:50:00 -0700)
+
+- **Getafe - Real Madrid : les compos sont tombées !**: [Link](https://www.footmercato.net/a6259028394083250268-getafe-real-madrid-les-compos-sont-tombees)
+- **Real Madrid : Kylian Mbappé prêt pour le retour contre Getafe après sa blessure à la cheville**: [Link](https://fr.hespress.com/445936-real-madrid-kylian-mbappe-pret-pour-le-retour-contre-getafe-apres-sa-blessure-a-la-cheville.html)
+- **Real Madrid : Vinicius, Bellingham et Mbappé, un trio prêt à tout dévorer !**: [Link](https://www.butfootballclub.fr/623856-un-trio-de-reve-au-real-madrid-le-fc-barcelone-en-furie/)
+
+
 ### real vs (N/A, Sun, 19 Oct 2025 12:40:00 -0700)
 
 - **Real Madrid vs Getafe: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264226/real-madrid-vs-getafe-match-preview-prediction/)
