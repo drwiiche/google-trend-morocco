@@ -1,3 +1,10 @@
+### nashville vs inter miami (N/A, Sat, 18 Oct 2025 15:50:00 -0700)
+
+- **Nashville 2-5 Miami (Oct 18, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/727296)
+- **Who Inter Miami Play in the MLS Cup Playoffs First Round**: [Link](https://www.si.com/soccer/who-inter-miami-play-mls-cup-playoffs-first-round)
+- **Javier Mascherano backs Messi for MLS MVP ahead of Nashville clash**: [Link](https://tribuna.com/en/news/2025-10-18-javier-mascherano-backs-messi-for-mls-mvp-ahead-of-nashville-clash/)
+
+
 ### nicolas sarkozy (N/A, Sat, 18 Oct 2025 22:30:00 -0700)
 
 - **INFO BFM BUSINESS. Malgré son incarcération, Nicolas Sarkozy va rester administrateur d’Accor et Lagardère**: [Link](https://www.bfmtv.com/economie/entreprises/info-bfm-business-malgre-son-incarceration-nicolas-sarkozy-va-rester-administrateur-d-accor-et-lagardere_AN-202510170078.html)
