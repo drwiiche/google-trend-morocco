@@ -1,3 +1,10 @@
+### ligue 1 (N/A, Sat, 18 Oct 2025 14:10:00 -0700)
+
+- **Ligue 1 – J8 : Une absence surprise, le groupe convoqué par Bruno Genesio pour FC Nantes - LOSC**: [Link](https://lepetitlillois.com/2025/10/18/ligue-1-j8-une-absence-surprise-le-groupe-convoque-par-bruno-genesio-pour-fc-nantes-losc/)
+- **FC Nantes - Lille. Les Canaris sans Lahdo et Coquelin mais avec Ziani et Deuff**: [Link](https://www.ouest-france.fr/sport/football/fc-nantes/fc-nantes-lille-les-canaris-sans-lahdo-et-coquelin-mais-avec-ziani-et-deuff-593dee60-ab59-11f0-a829-eb0d2e70677d)
+- **Lepenant et la recherche de son pendant**: [Link](https://maisonjaune.org/lepenant-et-la-recherche-de-son-pendant/)
+
+
 ### هانيبال القذافي (N/A, Sat, 18 Oct 2025 17:50:00 -0700)
 
 - **هنيبعل القذافي: لماذا أفرج القضاء اللبناني عنه بعد عشر سنوات؟**: [Link](https://www.bbc.com/arabic/articles/c4gwp9jqy4zo)
