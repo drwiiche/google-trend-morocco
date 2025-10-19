@@ -1,3 +1,17 @@
+### liverpool – manchester united (N/A, Sun, 19 Oct 2025 07:40:00 -0700)
+
+- **Liverpool vs Manchester United: Match Preview & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264205/liverpool-vs-manchester-united-match-preview-score-prediction/)
+- **'Together, let's get to work' - Virgil van Dijk's programme notes for Man Utd clash**: [Link](https://www.liverpoolfc.com/news/together-lets-get-work-virgil-van-dijks-programme-notes-man-utd-clash)
+- **Slot Faces Amorim in a Tactical Duel That Could Shape Liverpool’s Season**: [Link](https://onefootball.com/pt-br/noticias/slot-faces-amorim-in-a-tactical-duel-that-could-shape-liverpools-season-41826828)
+
+
+### hammam (N/A, Sun, 19 Oct 2025 07:40:00 -0700)
+
+- **Maroc : il se blesse dans un hammam, il reçoit 250 000 dirhams**: [Link](https://www.bladi.net/maroc-blesse-hammam-250-000-dirhams,117424.html)
+- **Casablanca : Indemnisation de 25 millions de centimes pour un client d’un bain maure blessé par une porte**: [Link](https://fr.hibapress.com/news-212788.html)
+- **Insolite : la justice oblige le propriétaire d'un hammam à verser 250 000 DH pour une simple blessure**: [Link](https://www.lesinfos.ma/article/149639874-Insolite%20:%20la%20justice%20oblige%20le%20propri%C3%A9taire%20d'un%20hammam%20%C3%A0%20verser%20250%20000%20DH%20pour%20une%20simple%20blessure)
+
+
 ### musée du louvre (N/A, Sun, 19 Oct 2025 07:10:00 -0700)
 
 - **Le Louvre victime d’un « braquage » et fermé pour la journée ; des bijoux d’une « valeur inestimable » dérobés**: [Link](https://www.lemonde.fr/societe/article/2025/10/19/le-louvre-victime-d-un-braquage-et-ferme-pour-la-journee-des-bijoux-d-une-valeur-inestimable-derobes_6648121_3225.html)
