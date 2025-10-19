@@ -1,3 +1,10 @@
+### khalid ait taleb (N/A, Sun, 19 Oct 2025 13:00:00 -0700)
+
+- **Conseil des ministres: Khalid Aït Taleb nommé nouveau wali de Fès-Meknès**: [Link](https://fr.le360.ma/politique/conseil-des-ministres-khalid-ait-taleb-nomme-nouveau-wali-de-fes-meknes_AZK634OII5EXDPI45DVQQRITXM/)
+- **Conseil des ministres : la liste complète des 15 nouveaux walis et gouverneurs**: [Link](https://ledesk.ma/enoff/conseil-des-ministres-la-liste-complete-des-15-nouveaux-walis-et-gouverneurs/)
+- **Khalid Ait Taleb, l'ex-ministre de la Santé, nommé Wali de Fès**: [Link](https://www.lopinion.ma/Khalid-Ait-Taleb-l-ex-ministre-de-la-Sante-nomme-Wali-de-Fes_a72990.html)
+
+
 ### real madrid vs getafe (N/A, Sun, 19 Oct 2025 12:50:00 -0700)
 
 - **Real Madrid go top of La Liga as protests continue**: [Link](https://www.bbc.com/sport/football/live/cqjwr771p71t)
