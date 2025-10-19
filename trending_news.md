@@ -1,3 +1,17 @@
+### juventus (N/A, Sun, 19 Oct 2025 05:00:00 -0700)
+
+- **Serie A: in campo Como-Juventus 1-0 LIVE**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/10/19/serie-a-in-campo-como-juventus-0-0-live_de4ba846-9ad7-4cb0-9e8c-0d9a253d096b.html)
+- **Da Gattuso a Henry e Wenger: tutti i campioni in tribuna per Como-Juve**: [Link](https://www.corrieredellosport.it/foto/calcio/serie-a/como/2025/10/19-143902719/da_gattuso_a_henry_e_wenger_tutti_i_campioni_in_tribuna_per_como-juve)
+- **Como-Juventus, moviola: annullato un gol a David, c'è rigore sul tiro di Koopmeiners? Tutti gli episodi più controversi**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/como-juventus-moviola-annullato-un-gol-a-david-ce-rigore-sul-tiro-di-koopmeiners-tutti-gli-episodi-piu-controversi_sto23232553/story.shtml)
+
+
+### côme – juventus (N/A, Sun, 19 Oct 2025 03:00:00 -0700)
+
+- **Expected Juventus starting lineup vs Como: Tudor changes his formation**: [Link](https://www.juvefc.com/expected-juventus-starting-lineup-vs-como-tudor-changes-his-formation/)
+- **Maximo Perrone vs. Juventus – Player props & odds to score a goal on October 19**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/18/maximo-perrone-soccer-player-props-10-19-2025/86770208007/)
+- **Match Preview Como Vs Juventus**: [Link](https://comofootball.com/en/match-preview-como-vs-juventus-en/)
+
+
 ### elche – ath. bilbao (N/A, Sun, 19 Oct 2025 04:20:00 -0700)
 
 - **Sarabia presenta candidatura**: [Link](https://as.com/futbol/primera/sarabia-presenta-candidatura-f202510-n/)
