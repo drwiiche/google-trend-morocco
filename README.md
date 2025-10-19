@@ -1,3 +1,31 @@
+### bet365 (N/A, Sun, 19 Oct 2025 16:20:00 -0700)
+
+- **bet365 Bonua Code "LSBONUS" $200 Bonus for Sunday Night NFL**: [Link](https://www.livescore.com/en/news/nfl/promos/bet365-nfl-promo-october-19-2025/)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Eagles vs. Vikings**: [Link](https://nypost.com/2025/10/19/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-eagles-vs-vikings/)
+- **bet365 Bonus Code TOPACTION: Get $200 or $1,000 NFL Betting Promo**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-topaction-scores-200-or-1000-nfl-betting-promo-for-any-game-today)
+
+
+### match aujourd'hui (N/A, Sun, 19 Oct 2025 16:20:00 -0700)
+
+- **Lens 2-1 Paris FC, Ligue 1 : Baidoo et les Lensois ont la tête dure**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/lens-paris-fc-live/675861)
+- **Pierre Sage : « C’est un pas en avant »**: [Link](https://onefootball.com/pt-br/noticias/pierre-sage-cest-un-pas-en-avant-41828089)
+- **RC Lens - La compo officielle du RCL face au Paris FC**: [Link](https://madeinlensois.ouest-france.fr/infos/article-rc-lens-la-compo-officielle-du-rcl-face-au-paris-fc-499728.html)
+
+
+### ودية (N/A, Sun, 19 Oct 2025 16:20:00 -0700)
+
+- **الصحافي الرياضي محمد مفتاح يسلط الضوء على قمة المغرب والأرجنتين**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D9%85%D9%81%D8%AA%D8%A7%D8%AD-%D9%8A%D8%B3%D9%84%D8%B7-%D8%A7%D9%84%D8%B6%D9%88%D8%A1-%D8%B9%D9%84%D9%89-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-20251019)
+- **الركراكي يقترح منتخبا بديلا لـفشل ودية الأرجنتين في طنجة**: [Link](https://m.alayam24.com/articles-594548.html)
+- **فيديو: المنتخب الأرجنتيني.. أين تكمن نقط قوته و أبرز لاعبيه / تشكيلة المنتخب المغربي المتوقعة**: [Link](https://www.almountakhab.com/node/16218690)
+
+
+### live score (N/A, Sun, 19 Oct 2025 16:20:00 -0700)
+
+- **Atlanta Falcons inactives for Week 7 vs. San Francisco 49ers**: [Link](https://www.atlantafalcons.com/news/atlanta-falcons-inactives-week-7-vs-san-francisco-49ers)
+- **Brock Purdy, Ricky Pearsall OUT vs. Falcons; Inactives for Week 7 'SNF' #ATLvsSF**: [Link](https://www.49ers.com/news/brock-purdy-ricky-pearsall-out-vs-falcons-inactives-for-week-7-snf-atlvssf)
+- **Falcons vs. 49ers on Sunday Night Football: Inactives, news, live updates as Bijan Robinson, Christian McCaffrey show off in a battle of the run**: [Link](https://sg.news.yahoo.com/live/falcons-vs-49ers-on-sunday-night-football-inactives-news-live-updates-as-bijan-robinson-christian-mccaffrey-show-off-in-a-battle-of-the-run-225011547.html)
+
+
 ### morocco (N/A, Sun, 19 Oct 2025 16:10:00 -0700)
 
 - **Morocco to boost health, education spending to $15 billion in 2026**: [Link](https://www.reuters.com/world/africa/morocco-boost-health-education-spending-15-bln-2026-2025-10-19/)
