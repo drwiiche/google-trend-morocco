@@ -1,3 +1,24 @@
+### elche – ath. bilbao (N/A, Sun, 19 Oct 2025 04:20:00 -0700)
+
+- **Sarabia presenta candidatura**: [Link](https://as.com/futbol/primera/sarabia-presenta-candidatura-f202510-n/)
+- **EN DIRECTO | Elche-Athletic, J9 LaLiga: los Williams empiezan en el banquillo, pero vuelven Berenguer y Sancet**: [Link](https://cadenaser.com/euskadi/2025/10/19/en-directo-elche-athletic-j9-laliga-los-williams-empiezan-en-el-banquillo-pero-vuelven-berenguer-y-sancet-radio-bilbao/)
+- **Entradas agotadas para el Elche CF – Athletic Club**: [Link](https://www.elchecf.es/noticias/entradas-agotadas-para-el-elche-cf-athletic-club)
+
+
+### كومو ضد يوفنتوس (N/A, Sun, 19 Oct 2025 04:20:00 -0700)
+
+- **تودور: لن أريح يلدز أمام كومو.. وأرتكب أخطاء أحيانا لكنني أفكر في حلها**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF--%D8%AA%D9%88%D8%AF%D9%88%D8%B1-%D9%84%D9%86-%D8%A7%D9%94%D8%B1%D9%8A%D8%AD-%D9%86%D8%AC%D9%85-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3/blt843f32d3f3b903ab)
+- **بث مباشر.. شاهد مباراة يوفنتوس وكومو بالدوري الإيطالي اليوم بجودة عالية**: [Link](https://www.almashhad.news/348509)
+- **Como vs Juventus.. موعد مباراة يوفنتوس ضد كومو اليوم في الدوري الإيطالي مع القنوات الناقلة وحكم اللقاء**: [Link](https://zahraa.mr/5990717/como-vs-juventus-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%B6%D8%AF-%D9%83%D9%88%D9%85%D9%88-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81/)
+
+
+### maroc vs argentine u20 date maroc (N/A, Sun, 19 Oct 2025 04:20:00 -0700)
+
+- **Le Maroc en finale du Mondial U20 face à l’Argentine : « Il n’y a pas d’équipe invincible »**: [Link](https://ledesk.ma/2025/10/18/le-maroc-en-finale-du-mondial-u20-face-a-largentine-il-ny-a-pas-dequipe-invincible/)
+- **Finale Maroc-Argentine : le Chili exempte de visa les supporters marocains des vols spéciaux de la RAM**: [Link](https://medias24.com/2025/10/18/finale-maroc-argentine-le-chili-exempte-de-visa-les-supporters-marocains-des-vols-speciaux-de-la-ram/)
+- **Mondial U20 : les Lionceaux de l’Atlas prêts à gravir la montagne Argentine et atteindre la gloire**: [Link](https://lematin.ma/sports/mondial-u20-les-lionceaux-prets-a-gravir-la-montagne-argentine/308239)
+
+
 ### como vs juventus (N/A, Sun, 19 Oct 2025 04:00:00 -0700)
 
 - **Duras críticas al Como de Cesc Fàbregas: "Es un falso equipo pequeño"**: [Link](https://www.sport.es/es/noticias/futbol-internacional/duras-criticas-cesc-fabregas-falso-122775851)
