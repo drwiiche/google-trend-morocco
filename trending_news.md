@@ -1,3 +1,24 @@
+### fenerbahçe – karagümrük (N/A, Sun, 19 Oct 2025 09:30:00 -0700)
+
+- **Fenerbahçe Fatih Karagümrük maç kadrosu: FB muhtemel ilk 11'leri belli oldu**: [Link](https://oxu.az/tr/spor/fenerbahce-fatih-karagumruk-mac-kadrosu-fb-muhtemel-ilk-11-leri-belli-oldu)
+- **Fenerbahçe – Karagümrük: Saat, Kanal ve Muhtemel 11’ler**: [Link](https://tr.irna.ir/news/85971946/Fenerbah%C3%A7e-Karag%C3%BCmr%C3%BCk-Saat-Kanal-ve-Muhtemel-11-ler)
+- **Tedesco kadro dışı kalan oyuncular için ilk kez konuştu**: [Link](https://www.ntvspor.net/foto-galeri/tedesco-kadro-disi-kalan-oyuncular-icin-ilk-kez-konustu-411415)
+
+
+### vol musée du louvre (N/A, Sun, 19 Oct 2025 09:30:00 -0700)
+
+- **Le Louvre victime d’un vol avec effraction et fermé pour la journée ; des bijoux d’une « valeur inestimable » dérobés**: [Link](https://www.lemonde.fr/societe/article/2025/10/19/le-louvre-victime-d-un-braquage-et-ferme-pour-la-journee-des-bijoux-d-une-valeur-inestimable-derobes_6648121_3225.html)
+- **Bijoux d'une valeur "inestimable" dérobés, auteurs en fuite... Ce que l'on sait du cambriolage au musée du Louvre**: [Link](https://www.bfmtv.com/police-justice/bijoux-d-une-valeur-inestimable-derobes-auteurs-en-fuite-ce-que-l-on-sait-du-cambriolage-au-musee-du-louvre_AV-202510190199.html)
+- **«Un terrible échec » : pour Stéphane Bern, le braquage du Louvre « va donner un coup au moral des Français »**: [Link](https://www.leparisien.fr/culture-loisirs/un-terrible-echec-pour-stephane-bern-le-braquage-du-louvre-va-donner-un-coup-au-moral-des-francais-19-10-2025-X6QGTADUPRBHXOUHJX5TQUUIUE.php)
+
+
+### atalanta – lazio (N/A, Sun, 19 Oct 2025 09:30:00 -0700)
+
+- **LIVE Alle 18 Atalanta-Lazio: Juric con Lookman titolare, Sarri con Zaccagni**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Atalanta/19-10-2025/atalanta-lazio-live-diretta-serie-a.shtml)
+- **Live Atalanta - Lazio - Serie A: Punteggi & Highlights Calcio - 19/10/2025**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-atalanta-lazio_mtc1598794/live-commentary.shtml)
+- **Lazio, Marusic: "Abbiamo preparato la partita, è importante per noi"**: [Link](https://www.lazialita.com/2025/10/19/lazio-marusic-abbiamo-preparato-la-partita-e-importante-per-noi/)
+
+
 ### liverpool vs man united (N/A, Sun, 19 Oct 2025 07:50:00 -0700)
 
 - **Why is Alexis Mac Allister wearing a hat during Liverpool vs Man Utd?**: [Link](https://www.thesun.co.uk/sport/37059508/why-alexis-mac-allister-wearing-hat-liverpool-man-utd/)
