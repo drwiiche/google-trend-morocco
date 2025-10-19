@@ -1,3 +1,17 @@
+### ليفربول ضد مان يونايتد (N/A, Sun, 19 Oct 2025 07:50:00 -0700)
+
+- **الذكاء الاصطناعي يتوقع نتيجة ديربي إنجلترا بين ليفربول ومانشستر يونايتد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%95%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D8%A8%D9%8A%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/blt667012995ba02ed0)
+- **مباشر.. مباراة ليفربول ضد مانشستر يونايتد في الدوري الإنجليزي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/19/liverpool-vs-manchester-united-live)
+- **كلاسيكو إنجلترا.. قمة مرتقبة بين ليفربول ومانشستر يونايتد في الدوري الإنجليزي**: [Link](https://m.elbotola.com/article/2025-10-19-10-40-157.html)
+
+
+### القنوات الناقلة لمباراة الوداد اليوم (N/A, Sun, 19 Oct 2025 07:50:00 -0700)
+
+- **بين مطرقة كوتوكو وسندان الديربي.. بنهاشم يسعى لإكمال التحدي مع الوداد المتجدد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D9%86-%D9%85%D8%B7%D8%B1%D9%82%D8%A9-%D9%83%D9%88%D8%AA%D9%88%D9%83%D9%88-%D9%88%D8%B3%D9%86%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A--%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%A7%D9%95%D9%83%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%AD%D8%AF%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%AA%D8%AC%D8%AF%D8%AF/bltbdb53701e929a8d5)
+- **الوداد يكمل الاستعداد للتنافس بأكرا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%83%D9%85%D9%84-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF-%D9%84%D9%84%D8%AA%D9%86%D8%A7%D9%81%D8%B3-%D8%A8%D8%A3%D9%83%D8%B1%D8%A7-1641915.html)
+- **الوداد يشكر سفيرة المغرب في غانا**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B4%D9%83%D8%B1-%D8%B3%D9%81%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%BA%D8%A7%D9%86%D8%A7-408924.html)
+
+
 ### liverpool – manchester united (N/A, Sun, 19 Oct 2025 07:40:00 -0700)
 
 - **Liverpool vs Manchester United: Match Preview & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264205/liverpool-vs-manchester-united-match-preview-score-prediction/)
