@@ -1,3 +1,17 @@
+### توتنهام ضد أستون فيلا (N/A, Sun, 19 Oct 2025 07:00:00 -0700)
+
+- **خطة "مايسترو" توتنهام لإعادة "السبيرز" للمجد الكروي**: [Link](https://24.ae/article/924697/%D8%AE%D8%B7%D8%A9-%D9%85%D8%A7%D9%8A%D8%B3%D8%AA%D8%B1%D9%88-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%84%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B3%D8%A8%D9%8A%D8%B1%D8%B2-%D9%84%D9%84%D9%85%D8%AC%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%88%D9%8A)
+- **فرانك جاهز لإشراك كولو مواني ضد استون فيلا**: [Link](https://elsport.com/news/show/796722/%7B%7Burl%7D%7D)
+- **اهداف مباراة توتنهام واستون فيلا في الدوري الانجليزي**: [Link](https://www.btolat.com/video/88451)
+
+
+### louvre (N/A, Sun, 19 Oct 2025 06:40:00 -0700)
+
+- **Hunt continues for thieves after priceless jewels stolen in heist at Louvre museum in Paris**: [Link](https://www.bbc.com/news/live/c62lnennzgdt)
+- **‘Priceless’ jewellery stolen from Louvre in raid by ‘experienced’ thieves**: [Link](https://www.theguardian.com/world/2025/oct/19/louvre-closed-after-robbery-french-culture-minister-says)
+- **'Chaos' as world famous attraction evacuated with Adver reporter at the scene**: [Link](https://uk.news.yahoo.com/chaos-world-famous-attraction-evacuated-092132026.html)
+
+
 ### lens – paris fc (N/A, Sun, 19 Oct 2025 06:40:00 -0700)
 
 - **Lens - Paris FC : sur quelle chaîne et à quelle heure voir le match de Ligue 1 en direct ?**: [Link](https://www.ouest-france.fr/sport/football/rc-lens/lens-paris-fc-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-1-en-direct-33723e9c-a9d9-11f0-a84e-0a4f72002724)
