@@ -1,3 +1,45 @@
+### friendlies (N/A, Sun, 19 Oct 2025 16:30:00 -0700)
+
+- **Ticket info: Brazil v Senegal at Emirates Stadium | Ticket Information | News**: [Link](https://www.arsenal.com/news/ticket-info-brazil-v-senegal-emirates-stadium)
+- **Before the major tournaments, Tunisia lines up three friendly matches**: [Link](https://foot-africa.com/en/news/before-the-major-tournaments-tunisia-lines-up-three-friendly-matches-920994/)
+- **​​Tunisia to Face Brazil in a November Friendly Match**: [Link](https://www.moroccoworldnews.com/2025/10/263849/tunisia-to-face-brazil-in-a-november-friendly-match/)
+
+
+### match en direct aujourd'hui (N/A, Sun, 19 Oct 2025 16:30:00 -0700)
+
+- **Getafe 0-1 Real Madrid, La Liga : le Real leader avant le Clasico**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/getafe-real-madrid-live/676796)
+- **Liga : avant de défier la Juventus et le Barça, le Real Madrid bat Getafe et reprend la tête**: [Link](https://www.footmercato.net/a8686319705662995218-liga-avant-de-defier-la-juventus-et-le-barca-le-real-madrid-bat-getafe-et-reprend-la-tete)
+- **Real Madrid : Kylian Mbappé prêt pour le retour contre Getafe après sa blessure à la cheville**: [Link](https://fr.hespress.com/445936-real-madrid-kylian-mbappe-pret-pour-le-retour-contre-getafe-apres-sa-blessure-a-la-cheville.html)
+
+
+### ben match (N/A, Sun, 19 Oct 2025 16:30:00 -0700)
+
+- **Nitin (Jaipur Pink Panthers) | Raider of the Day: October 18 | PKL Season 12**: [Link](https://www.prokabaddi.com/videos/nitin-jaipur-pink-panthers-raider-of-the-day-october-18-pkl-season-12)
+- **"From where will you get the money for a good defense?" - Bengal Warriorz' head coach reflects on defeat over Jaipur Pink Panthers in Pro Kabaddi 2025**: [Link](https://www.sportskeeda.com/kabaddi/news-from-will-get-money-good-defense-bengal-warriorz-head-coach-reflects-defeat-jaipur-pink-panthers-pro-kabaddi-2025)
+- **BEN vs JAI Dream11 Prediction, Dream11 Starting 7, Today Match 96, PKL 12**: [Link](https://khelnow.com/kabaddi/ben-vs-jai-dream11-prediction-pkl-12-202510)
+
+
+### live tv (N/A, Sun, 19 Oct 2025 16:30:00 -0700)
+
+- **Jaxson Dart, Cam Skattebo run Statue of Liberty play in NY Giants vs Broncos game**: [Link](https://www.northjersey.com/story/sports/nfl/giants/2025/10/19/ny-giants-statue-of-liberty-play-jaxson-dart-cam-skattebo-broncos-game/86792123007/)
+- **LIVE/NFL: NY GIANTS vs DENVER BRONCOS LIVE STREA.Ms FOOTBALL GAME TODAY (19.10.2025)**: [Link](https://www.rmoutlook.com/classifieds/homes-rentals-and-real-estate/open-houses/2036201)
+- **Get tickets to see Adam Trautman vs. the Giants**: [Link](https://broncoswire.usatoday.com/story/sports/nfl/broncos/2025/10/19/adam-trautman-nfl-week-7-tickets/86789949007/)
+
+
+### football (N/A, Sun, 19 Oct 2025 16:30:00 -0700)
+
+- **Is the Maalik Murphy experiment over at Oregon State?**: [Link](https://www.oregonlive.com/beavers/2025/10/is-the-maalik-murphy-experiment-over-at-oregon-state.html)
+- **WATCH: Interim HC Robb Akey and Players Speak on Lafayette Win**: [Link](https://247sports.com/college/oregon-state/article/oregon-state-beavers-football-robb-akey-gabarri-johnson-anthony-hankerson-skyler-thomas-lafayette-257624836/)
+- **Oregon State football finds the fun again in first win of the season**: [Link](https://www.statesmanjournal.com/story/sports/college/oregon-state/2025/10/19/oregon-state-beavers-football-lafayette-leopards-robb-akey/86785973007/)
+
+
+### tv (N/A, Sun, 19 Oct 2025 16:30:00 -0700)
+
+- **Fran Drescher Warned TV Execs Not to Pull This Show, but They Did Anyways — and Still 'Regret' It (Exclusive)**: [Link](https://people.com/fran-drescher-says-network-regrets-canceling-happily-divorced-exclusive-11819636)
+- **Fran Drescher Reflects On “Poor Business Model” That Led To Early Cancellation Of ‘Happily Divorced’: “I Was Proved Correct”**: [Link](https://deadline.com/2025/10/fran-drescher-happily-divorced-cancellation-tv-land-1236591774/)
+- **Fran Drescher Warned TV Execs not to Cancel Popular Series**: [Link](https://www.yahoo.com/entertainment/tv/articles/fran-drescher-warned-tv-execs-142246747.html)
+
+
 ### bet365 (N/A, Sun, 19 Oct 2025 16:20:00 -0700)
 
 - **bet365 Bonua Code "LSBONUS" $200 Bonus for Sunday Night NFL**: [Link](https://www.livescore.com/en/news/nfl/promos/bet365-nfl-promo-october-19-2025/)
