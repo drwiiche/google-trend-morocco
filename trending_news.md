@@ -1,3 +1,10 @@
+### الجيش الملكي (N/A, Sun, 19 Oct 2025 11:20:00 -0700)
+
+- **الجيش يتعادل مع "حوريا كوناكري"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%AD%D9%88%D8%B1%D9%8A%D8%A7-%D9%83%D9%88%D9%86%D8%A7%D9%83%D8%B1%D9%8A-1642510.html)
+- **كأس العرش.. نهضة بركان يقصي الجيش الملكي ويكمل أضلاع المربع الذهبي**: [Link](https://ar.telquel.ma/%D8%B9%D8%B5%D8%A8%D8%A9-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A-2/)
+- **الجيش الملكي ينهي تحضيراته في باماكو استعدادا لمواجهة حوريا كوناكري الغيني في عصبة الأبطال**: [Link](https://m.elbotola.com/article/2025-10-18-19-33-300.html)
+
+
 ### ac milan – fiorentina (N/A, Sun, 19 Oct 2025 12:00:00 -0700)
 
 - **Sky: Milan’s injury crisis deepens as Loftus-Cheek has muscle issue – the latest**: [Link](https://sempremilan.com/milan-injury-crisis-deepens-loftus-cheek)
