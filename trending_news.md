@@ -1,3 +1,10 @@
+### manchester united (N/A, Sun, 19 Oct 2025 08:30:00 -0700)
+
+- **'The tragic loss of life is not a subject for tribal point scoring, and this behaviour has absolutely no place in football', the police have warned**: [Link](https://www.facebook.com/ManchesterEveningNews/posts/the-tragic-loss-of-life-is-not-a-subject-for-tribal-point-scoring-and-this-behav/1270038388491857/)
+- **Liverpool and Man Utd fans receive police warning ahead of Premier League game**: [Link](https://www.liverpool.com/liverpool-fc-news/features/liverpool-man-utd-fans-receive-32703234)
+- **Police issue warning ahead of Liverpool v Man United match**: [Link](https://www.liverpoolecho.co.uk/news/liverpool-news/police-issue-warning-ahead-liverpool-32700250)
+
+
 ### مباريات اليوم المغرب (N/A, Sun, 19 Oct 2025 08:10:00 -0700)
 
 - **موتسيبي يساند "الأشبال" في الشيلي**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%8A%D8%B3%D8%A7%D9%86%D8%AF-%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D9%8A%D9%84%D9%8A-1642356.html)
