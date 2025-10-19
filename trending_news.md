@@ -1,3 +1,10 @@
+### liverpool vs man united (N/A, Sun, 19 Oct 2025 07:50:00 -0700)
+
+- **Why is Alexis Mac Allister wearing a hat during Liverpool vs Man Utd?**: [Link](https://www.thesun.co.uk/sport/37059508/why-alexis-mac-allister-wearing-hat-liverpool-man-utd/)
+- **Liverpool vs Man Utd LIVE: Premier League score, team news, radio & updates**: [Link](https://www.bbc.com/sport/football/live/c8drj112r1et)
+- **Liverpool vs Manchester United: Match Preview & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264205/liverpool-vs-manchester-united-match-preview-score-prediction/)
+
+
 ### wydad vs asante kotoko (N/A, Sun, 19 Oct 2025 09:00:00 -0700)
 
 - **CAFCC: Kotoko coach Karim Zito reflects on tough WAC clash**: [Link](https://www.panafricafootball.com/post/cafcc-kotoko-karim-zito-wac-clash/)
