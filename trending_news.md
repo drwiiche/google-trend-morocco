@@ -1,3 +1,17 @@
+### wydad vs asante kotoko (N/A, Sun, 19 Oct 2025 09:00:00 -0700)
+
+- **CAFCC: Kotoko coach Karim Zito reflects on tough WAC clash**: [Link](https://www.panafricafootball.com/post/cafcc-kotoko-karim-zito-wac-clash/)
+- **Baba Yara Stadium will get CAF and FIFA clearance soon - Sports minister assures**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/Baba-Yara-Stadium-will-get-CAF-and-FIFA-clearance-soon-Sports-minister-assures-2005535)
+- **‘You will not see Africa until you are in Africa’ – Zito fires up Kotoko before Wydad showdown**: [Link](https://www.myjoyonline.com/you-will-not-see-africa-until-you-are-in-africa-zito-fires-up-kotoko-before-wydad-showdown/)
+
+
+### levante – rayo (N/A, Sun, 19 Oct 2025 08:50:00 -0700)
+
+- **Levante - Rayo Vallecano, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/levante-rayo-vallecano-en-directo-laliga-ea-sports-en-vivo-f202510-d/)
+- **Levante y Rayo, dos clones en el Ciutat de Valencia**: [Link](https://www.epe.es/es/madrid/20251019/levante-rayo-clones-ciutat-valencia-122764561)
+- **Levante - Rayo en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-ea-sports/levante-rayo/2025/10/19/01_0101_20251019_855_184-directo.html)
+
+
 ### liverpool (N/A, Sun, 19 Oct 2025 08:30:00 -0700)
 
 - **'The tragic loss of life is not a subject for tribal point scoring, and this behaviour has absolutely no place in football', the police have warned**: [Link](https://www.facebook.com/ManchesterEveningNews/posts/the-tragic-loss-of-life-is-not-a-subject-for-tribal-point-scoring-and-this-behav/1270038388491857/)
