@@ -1,3 +1,10 @@
+### passeport (N/A, Mon, 20 Oct 2025 05:30:00 -0700)
+
+- **Quel est le passeport le plus puissant du monde en 2025 ? Découvrez le classement**: [Link](https://www.capital.fr/economie-politique/quel-est-le-passeport-le-plus-puissant-du-monde-en-2025-decouvrez-le-classement-1519753)
+- **Les passeports les plus « puissants » du monde en 2025**: [Link](https://visasnews.com/les-passeports-les-plus-puissants-du-monde-en-2025/)
+- **Voyages: voici les 10 passeports les plus puissants d’Afrique au second semestre 2025, selon Henley & Partners**: [Link](https://afrique.le360.ma/societe/voyages-voici-les-10-passeports-les-plus-puissants-dafrique-au-second-semestre-2025-selon-henley_K4CUWNIQS5CM5ELV2LWRYGUZ44/)
+
+
 ### achraf hakimi (N/A, Mon, 20 Oct 2025 05:10:00 -0700)
 
 - **Histórico Mundial de Marruecos**: [Link](https://as.com/futbol/internacional/marruecos-futuro-brillante-f202510-n/)
