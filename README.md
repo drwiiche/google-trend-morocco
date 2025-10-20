@@ -1,3 +1,10 @@
+### عثمان معما (N/A, Sun, 19 Oct 2025 18:50:00 -0700)
+
+- **معما (أفضل لاعب في مونديال الشباب): "نهدي اللقب إلى شعب لم ينم من أجل مساندتنا"**: [Link](https://m.elbotola.com/article/2025-10-20-03-37-28.html)
+- **أداء معما يحقق إنجاز مارادونا وميسي**: [Link](https://www.hespress.com/%D8%A3%D8%AF%D8%A7%D8%A1-%D9%85%D8%B9%D9%85%D8%A7-%D9%8A%D8%AD%D9%82%D9%82-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2-%D9%85%D8%A7%D8%B1%D8%A7%D8%AF%D9%88%D9%86%D8%A7-%D9%88%D9%85%D9%8A%D8%B3%D9%8A-1642732.html)
+- **الفيفا تختار المغربي عثمان معما حسن أحسن لاعب في كأس العالم لأقل من 20 سنة**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D8%AB%D9%85%D8%A7%D9%86-%D9%85%D8%B9%D9%85%D8%A7-%D8%AD%D8%B3%D9%86-%D8%A3%D8%AD/)
+
+
 ### l'équipe (N/A, Sun, 19 Oct 2025 18:20:00 -0700)
 
 - **Getafe 0-1 Real Madrid, La Liga : le Real leader avant le Clasico**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/getafe-real-madrid-live/676796)
