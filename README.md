@@ -1,3 +1,17 @@
+### ici tout commence (N/A, Mon, 20 Oct 2025 15:00:00 -0700)
+
+- **Ici tout commence, le résumé en avance du mardi 21 octobre : Carla dans la tourmente, Bérénice ne veut plus l’épouser**: [Link](https://www.diverto.tv/actualites/series/ici-tout-commence-le-resume-en-avance-du-mardi-21-octobre-carla-dans-la-tourmente-berenice-ne-veut-plus-l-epouser)
+- **Ici tout commence : "Il n’y aura pas de mariage tant que…" Le résumé du 21 octobre (SPOILERS)**: [Link](https://www.programme-television.org/news/series/series-quotidiennes/ici-tout-commence-il-n-y-aura-pas-de-mariage-tant-que-le-resume-du-21-octobre-spoilers-4746577)
+- **Ici tout commence : ce qui vous attend dans l'épisode 1289 du mardi 21 octobre 2025 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000170359.html)
+
+
+### tarik senhaji ammc (N/A, Mon, 20 Oct 2025 14:30:00 -0700)
+
+- **Tarik Senhaji à la tête de l’AMMC : les grands chantiers qui l’attendent**: [Link](https://medias24.com/2025/10/20/tarik-senhaji-a-la-tete-de-lammc-les-grands-chantiers-qui-lattendent/)
+- **Nomination. Tarik Senhaji, nouveau patron du gendarme du marché des capitaux**: [Link](https://fr.le360.ma/economie/nomination-tarik-senhaji-nouveau-patron-du-gendarme-du-marche-des-capitaux_OMBLVJMOOVFFFNQJXB76BKSW4Y/)
+- **Voici les nouveaux walis et gouverneurs nommés par S.M. le Roi**: [Link](https://lematin.ma/activites-royales/voici-les-nouveaux-walis-et-gouverneurs-nommes-par-sm-le-roi/308511)
+
+
 ### nabil baha (N/A, Mon, 20 Oct 2025 13:40:00 -0700)
 
 - **From U20 to U17 World Cup: Morocco Can Do it Again**: [Link](https://www.moroccoworldnews.com/2025/10/264363/from-u20-to-u17-world-cup-morocco-can-do-it-again/)
