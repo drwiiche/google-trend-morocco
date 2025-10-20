@@ -1,3 +1,10 @@
+### nabil baha (N/A, Mon, 20 Oct 2025 13:40:00 -0700)
+
+- **From U20 to U17 World Cup: Morocco Can Do it Again**: [Link](https://www.moroccoworldnews.com/2025/10/264363/from-u20-to-u17-world-cup-morocco-can-do-it-again/)
+- **Coach Baha Unveils Morocco U17 Squad for 2025 FIFA World Cup in Qatar**: [Link](https://barlamantoday.com/2025/10/20/coach-baha-unveils-morocco-u17-squad-for-2025-fifa-world-cup-in-qatar/)
+- **Football: Nabil Bahah Reveals 21-Player Squad for Atlas Lions Under-17 World Cup Team**: [Link](https://fesnews.media/312617/2025/10/20/)
+
+
 ### flight radar (N/A, Mon, 20 Oct 2025 13:30:00 -0700)
 
 - **Cargo plane skids off Hong Kong airport runway into sea, leaving two dead**: [Link](https://www.bbc.com/news/live/c5y0e4e5ddxt)
