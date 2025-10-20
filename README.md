@@ -1,3 +1,17 @@
+### gen z maroc (N/A, Mon, 20 Oct 2025 09:30:00 -0700)
+
+- **Le Maroc serre la vis face à la génération Z**: [Link](https://www.lemonde.fr/afrique/article/2025/10/17/le-maroc-serre-la-vis-face-a-la-generation-z_6647524_3212.html)
+- **«La jeunesse marocaine à l’épreuve du temps long»**: [Link](https://www.lefigaro.fr/vox/monde/la-jeunesse-marocaine-a-l-epreuve-du-temps-long-20251017)
+- **Maroc : la GenZ212 à la recherche d’un second souffle**: [Link](https://www.jeuneafrique.com/1731743/politique/maroc-la-genz212-a-la-recherche-dun-second-souffle/)
+
+
+### طقس طنجة (N/A, Mon, 20 Oct 2025 09:10:00 -0700)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-42-1642423.html)
+- **طقس الأحد: توقع جو حار مع غيوم ورياح قوية بهذه المناطق**: [Link](https://ar.le360.ma/societe/ZDPSWFZMMBFVBIOCO7XCO5PHPI/)
+- **توقعات أحوال الطقس ليوم غد الثلاثاء**: [Link](https://febrayer.com/1121890.html)
+
+
 ### al shorta – al ittihad (N/A, Mon, 20 Oct 2025 08:30:00 -0700)
 
 - **AFC Champions League: Al-Shorta faces Saudi Al-Ittihad in crucial Baghdad clash**: [Link](https://www.iraqinews.com/iraq/al-shorta-al-ittihad-baghdad-clash-afc-champions-league/)
