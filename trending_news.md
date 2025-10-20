@@ -1,3 +1,10 @@
+### cambriolage musée du louvre (N/A, Mon, 20 Oct 2025 06:50:00 -0700)
+
+- **Cambriolage au musée du Louvre : un rapport de la Cour des comptes révèle d’importantes failles de sécurité**: [Link](https://www.franceinfo.fr/faits-divers/cambriolage-au-musee-du-louvre/cambriolage-au-musee-du-louvre-un-rapport-de-la-cour-des-comptes-revele-d-importantes-failles-de-securite_7563832.html)
+- **Le musée du Louvre cible d’un braquage ce dimanche, des bijoux dérobés**: [Link](https://www.leparisien.fr/paris-75/le-musee-du-louvre-cible-dun-braquage-ce-dimanche-le-site-ferme-au-public-19-10-2025-DQII6PEIVVEDBM5KQMHDSCF6IM.php)
+- **L’incroyable histoire de la couronne d’Eugénie, retrouvée après le braquage du Louvre**: [Link](https://www.lepoint.fr/histoire/l-incroyable-histoire-de-la-couronne-d-eugenie-19-10-2025-2601267_1615.php)
+
+
 ### coupe du monde u17 (N/A, Mon, 20 Oct 2025 05:40:00 -0700)
 
 - **Marhba Bik, la chanson officielle du Mondial féminin U17 Maroc 2025 dévoilée**: [Link](https://lematin.ma/sports/marhba-bik-la-chanson-officielle-du-mondial-feminin-u17-devoilee/308236)
