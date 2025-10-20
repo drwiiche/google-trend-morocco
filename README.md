@@ -1,3 +1,10 @@
+### al-ahli saudi – al gharafa (N/A, Mon, 20 Oct 2025 10:50:00 -0700)
+
+- **Al Ahli vs Al Gharafa Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-al-gharafa-preview-202510)
+- **Belmadi backs Al Duhail ahead of Al Wahda clash**: [Link](https://thepeninsulaqatar.com/article/20/10/2025/belmadi-backs-al-duhail-ahead-of-al-wahda-clash)
+- **Al Wahda beat Al Duhail in Abu Dhabi| Gulf Times**: [Link](https://www.gulf-times.com/article/713241/sports/al-wahda-beat-al-duhail-in-abu-dhabi)
+
+
 ### gen z maroc (N/A, Mon, 20 Oct 2025 09:30:00 -0700)
 
 - **Le Maroc serre la vis face à la génération Z**: [Link](https://www.lemonde.fr/afrique/article/2025/10/17/le-maroc-serre-la-vis-face-a-la-generation-z_6647524_3212.html)
