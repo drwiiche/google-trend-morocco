@@ -1,3 +1,10 @@
+### zeturf (N/A, Mon, 20 Oct 2025 11:40:00 -0700)
+
+- **Quinté du lundi 20 octobre 2025 à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-lundi-20-octobre-2025-a-deauville-les-pronostics-7900555110)
+- **Les pronos hippiques du lundi 20 octobre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-lundi-20-octobre-2025_AN-202510180245.html)
+- **Siyouking, la base solide du Quinté+ de ce lundi 20 octobre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/siyouking-la-base-solide-du-quinte-de-ce-lundi-20-octobre)
+
+
 ### deportivo alavés – valence (N/A, Mon, 20 Oct 2025 12:10:00 -0700)
 
 - **Deportivo Alaves vs Valencia Prediction and Betting Tips | 20th October 2025**: [Link](https://www.sportskeeda.com/football/deportivo-alaves-vs-valencia-prediction-betting-tips-20th-october-2025)
