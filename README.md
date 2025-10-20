@@ -1,3 +1,10 @@
+### champions league (N/A, Mon, 20 Oct 2025 11:50:00 -0700)
+
+- **Bayer Leverkusen vs PSG: Dembélé in the starting lineup? Luis Enrique explains**: [Link](https://foot-africa.com/en/news/bayer-leverkusen-vs-psg-dembele-in-the-starting-lineup-luis-enrique-explains-926888/)
+- **Champions League Tips: Six midweek player prop bets including Mbappe and Fati shouts**: [Link](https://onefootball.com/pt-br/noticias/champions-league-tips-six-midweek-player-prop-bets-including-mbappe-and-fati-shouts-41831679)
+- **PSG have more 'options' with return of Dembélé**: [Link](https://www.espn.com/soccer/story/_/id/46660767/ousmane-dembele-makes-psg-return-champions-league)
+
+
 ### west ham – brentford (N/A, Mon, 20 Oct 2025 11:40:00 -0700)
 
 - **West Ham v Brentford: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/oct/20/west-ham-v-brentford-premier-league-live)
