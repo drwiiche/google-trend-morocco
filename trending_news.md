@@ -1,3 +1,10 @@
+### al shorta – al ittihad (N/A, Mon, 20 Oct 2025 08:30:00 -0700)
+
+- **AFC Champions League: Al-Shorta faces Saudi Al-Ittihad in crucial Baghdad clash**: [Link](https://www.iraqinews.com/iraq/al-shorta-al-ittihad-baghdad-clash-afc-champions-league/)
+- **Al-Shorta vs Al-Ittihad: Live streaming, TV channel, kick-off time & where to watch AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-shorta-vs-al-ittihad-where-to-watch-acl-elite-202510)
+- **Al Shorta vs Al Ittihad Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-shorta-vs-al-ittihad-preview-202510)
+
+
 ### cambriolage musée du louvre (N/A, Mon, 20 Oct 2025 06:50:00 -0700)
 
 - **Cambriolage au musée du Louvre : un rapport de la Cour des comptes révèle d’importantes failles de sécurité**: [Link](https://www.franceinfo.fr/faits-divers/cambriolage-au-musee-du-louvre/cambriolage-au-musee-du-louvre-un-rapport-de-la-cour-des-comptes-revele-d-importantes-failles-de-securite_7563832.html)
