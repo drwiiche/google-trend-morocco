@@ -1,3 +1,10 @@
+### canva (N/A, Mon, 20 Oct 2025 00:40:00 -0700)
+
+- **Canva Down For Indian Users Amid Diwali Fervor Triggering Memefest On X; Here's What Happened**: [Link](https://in.mashable.com/tech/101296/canva-down-for-indian-users-amid-diwali-fervor-triggering-memefest-on-x-heres-what-happened)
+- **Canva Suffers Major Outage, Users Unable to Access Platform**: [Link](https://punchng.com/canva-suffers-major-outage-users-unable-to-access-platform/)
+- **Canva Down In India: Users Report Technical Glitch In Photo Editing App**: [Link](https://www.news18.com/tech/canva-down-in-india-users-report-technical-glitch-in-photo-editing-app-ws-e-9647902.html)
+
+
 ### live football (N/A, Sun, 19 Oct 2025 16:50:00 -0700)
 
 - **Head Coach Mike Vrabel 10/19: "I'm happy for these guys, they're figuring out how to win"**: [Link](https://www.patriots.com/video/head-coach-mike-vrabel-10-19-i-m-happy-for-these-guys-they-re-figuring-out-how-to-win)
