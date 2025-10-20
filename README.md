@@ -1,3 +1,10 @@
+### west ham – brentford (N/A, Mon, 20 Oct 2025 11:40:00 -0700)
+
+- **West Ham v Brentford: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/oct/20/west-ham-v-brentford-premier-league-live)
+- **Nuno urges fans to back West Ham amid planned protests**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/nuno-urges-fans-to-back-west-ham-amid-planned-protests-2025-10-19)
+- **Bowen | We want to create a winning culture**: [Link](https://www.whufc.com/news/bowen-we-want-create-winning-culture)
+
+
 ### al-ahli saudi – al gharafa (N/A, Mon, 20 Oct 2025 10:50:00 -0700)
 
 - **Al Ahli vs Al Gharafa Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-al-gharafa-preview-202510)
