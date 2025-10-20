@@ -1,3 +1,10 @@
+### infantino (N/A, Sun, 19 Oct 2025 18:20:00 -0700)
+
+- **Trump threatens World Cup host cities over crime. Some respond with a shrug.**: [Link](https://www.politico.com/news/2025/10/14/trump-threatens-world-cup-host-cities-00608688)
+- **FIFA: U.S. govt determines World Cup city safety**: [Link](https://www.espn.com/soccer/story/_/id/46612518/fifa-us-government-host-city-safety-2026-world-cup-donald-trump)
+- **President Trump once again suggests relocating World Cup matches**: [Link](https://www.nytimes.com/athletic/6717958/2025/10/14/president-trump-relocate-world-cup-matches/)
+
+
 ### almountakhab (N/A, Sun, 19 Oct 2025 18:50:00 -0700)
 
 - **رباعية "أسود الفوتسال" تهزم إسبانيا**: [Link](https://www.hespress.com/%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D8%AA%D9%87%D8%B2%D9%85-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-1642580.html)
