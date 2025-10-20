@@ -1,3 +1,10 @@
+### deportivo alavés – valence (N/A, Mon, 20 Oct 2025 12:10:00 -0700)
+
+- **Deportivo Alaves vs Valencia Prediction and Betting Tips | 20th October 2025**: [Link](https://www.sportskeeda.com/football/deportivo-alaves-vs-valencia-prediction-betting-tips-20th-october-2025)
+- **Baptiste Santamaria vs. Deportivo Alaves – Player props & odds to score a goal on October 20**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/20/baptiste-santamaria-soccer-player-props-10-20-2025/86796138007/)
+- **Four out, Valencia’s treatment room packed ahead of Alavés clash 🚑**: [Link](https://ca.sports.yahoo.com/news/four-valencia-treatment-room-packed-080000208.html)
+
+
 ### champions league (N/A, Mon, 20 Oct 2025 11:50:00 -0700)
 
 - **Bayer Leverkusen vs PSG: Dembélé in the starting lineup? Luis Enrique explains**: [Link](https://foot-africa.com/en/news/bayer-leverkusen-vs-psg-dembele-in-the-starting-lineup-luis-enrique-explains-926888/)
