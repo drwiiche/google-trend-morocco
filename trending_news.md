@@ -1,3 +1,10 @@
+### l'équipe (N/A, Sun, 19 Oct 2025 18:20:00 -0700)
+
+- **Getafe 0-1 Real Madrid, La Liga : le Real leader avant le Clasico**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/getafe-real-madrid-live/676796)
+- **Liga - Kylian Mbappé sauve encore le Real Madrid à Getafe**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/liga-kylian-mbappe-sauve-encore-le-real-madrid-a-getafe_sto23232786/story.shtml)
+- **Liga : avant de défier la Juventus et le Barça, le Real Madrid bat Getafe et reprend la tête**: [Link](https://www.footmercato.net/a8686319705662995218-liga-avant-de-defier-la-juventus-et-le-barca-le-real-madrid-bat-getafe-et-reprend-la-tete)
+
+
 ### ياسر الزابيري (N/A, Sun, 19 Oct 2025 18:20:00 -0700)
 
 - **زبيري.. القناص الذي قاد المغرب إلى المجد العالمي**: [Link](https://www.skynewsarabia.com/sport/1828199-%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%B5-%D9%82%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%AC%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A)
