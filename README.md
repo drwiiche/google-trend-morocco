@@ -1,3 +1,31 @@
+### flight radar (N/A, Mon, 20 Oct 2025 13:30:00 -0700)
+
+- **Cargo plane skids off Hong Kong airport runway into sea, leaving two dead**: [Link](https://www.bbc.com/news/live/c5y0e4e5ddxt)
+- **2 dead at Hong Kong International Airport after cargo plane skids off runway into the sea**: [Link](https://abcnews.go.com/International/cargo-plane-skids-off-runway-sea-hong-kong/story?id=126667486)
+- **AirACT 747 veers off runway in Hong Kong, strikes ground vehicle**: [Link](https://www.flightradar24.com/blog/flight-tracking-news/major-incident/airact-747-veers-off-runway-in-hong-kong-strikes-ground-vehicle/)
+
+
+### u17 world cup (N/A, Mon, 20 Oct 2025 13:20:00 -0700)
+
+- **From U20 to U17 World Cup: Morocco Can Do it Again**: [Link](https://www.moroccoworldnews.com/2025/10/264363/from-u20-to-u17-world-cup-morocco-can-do-it-again/)
+- **Coach Baha Unveils Morocco U17 Squad for 2025 FIFA World Cup in Qatar**: [Link](https://barlamantoday.com/2025/10/20/coach-baha-unveils-morocco-u17-squad-for-2025-fifa-world-cup-in-qatar/)
+- **Football: Nabil Bahah Reveals 21-Player Squad for Atlas Lions Under-17 World Cup Team**: [Link](https://fesnews.media/312617/2025/10/20/)
+
+
+### daniel naroditsky (N/A, Mon, 20 Oct 2025 13:10:00 -0700)
+
+- **Grandmaster, Popular Commentator Daniel Naroditsky Tragically Passes Away At 29**: [Link](https://www.chess.com/news/view/grandmaster-daniel-naroditsky-dies-at-29)
+- **Charlotte chess phenomenon dies unexpectedly at 29**: [Link](https://www.wbtv.com/2025/10/20/charlotte-chess-phenomenon-dies-unexpectedly-29/)
+- **Bay Area Chess Grandmaster, Streamer Daniel Naroditsky Dead at 29**: [Link](https://hoodline.com/2025/10/bay-area-chess-grandmaster-streamer-daniel-naroditsky-dead-at-29/)
+
+
+### أيوب بوعدي (N/A, Mon, 20 Oct 2025 12:10:00 -0700)
+
+- **بعد مونديال الشباب.. المغرب يخطف جوهرة ليل من أنياب فرنسا**: [Link](https://www.alquds.co.uk/%D8%A8%D8%B9%D8%AF-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%B7%D9%81-%D8%AC%D9%88%D9%87%D8%B1%D8%A9-%D9%84/)
+- **بوعدي يلتحق بمنتخب الأسود بعد كأس إفريقيا للأمم**: [Link](https://www.almountakhab.com/node/16218703)
+- **أيوب بوعدي يختار المغرب على فرنسا.. موهبة ليل تُشعل مشروع الركراكي نحو مونديال 2026**: [Link](https://www.analkhabar.com/%D8%A3%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D9%81%D8%B1%D9%86%D8%B3%D8%A7.html)
+
+
 ### panne snapchat (N/A, Mon, 20 Oct 2025 13:00:00 -0700)
 
 
