@@ -1,3 +1,43 @@
+### akhbarona (N/A, Sun, 19 Oct 2025 18:40:00 -0700)
+
+
+
+
+### as (N/A, Sun, 19 Oct 2025 18:20:00 -0700)
+
+- **'Task' Star Fabien Frankel Doesn't See Grasso's Finale Move as a Redemption Arc: 'It Doesn't Exonerate Him'**: [Link](https://www.thewrap.com/task-finale-episode-7-fabien-frankel-interview/)
+- **‘Task’ Fabien Frankel on Earning the Right to Play Grasso**: [Link](https://www.vulture.com/article/task-fabien-frankel-finale-grasso-interview.html)
+- **Fabien Frankel on His ‘Task’ Twist, Downing Yuenglings, and ‘House of the Dragon’ Season 3**: [Link](https://www.esquire.com/entertainment/tv/a69000553/fabien-frankel-task-interview/)
+
+
+### ياسر الزبيري (N/A, Sun, 19 Oct 2025 17:50:00 -0700)
+
+- **"صاحب ثنائية المونديال".. أبرز المعلومات عن ياسر الزبيري لاعب منتخب المغرب للشباب**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2025/10/20/2875655/-%D8%B5%D8%A7%D8%AD%D8%A8-%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%B9%D9%86-%D9%8A%D8%A7%D8%B3%D8%B1-%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%84%D8%B4%D8%A8%D8%A7%D8%A8)
+- **الزبيري هداف كأس العالم للشباب .. وماعما الأفضل في "مونديال 2025"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%87%D8%AF%D8%A7%D9%81-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D9%88%D9%85%D8%A7%D8%B9%D9%85%D8%A7-1642674.html)
+- **الزابيري ردا على الأرجنتين: "فِيهُم الهدرة بزّاف.. قْلنا لِيكم مَتنخافُو منْ حدّ وملّي جِينا للْمَاتش كْلِينَاهُم"**: [Link](https://m.elbotola.com/article/2025-10-20-01-20-870.html)
+
+
+### الزابيري (N/A, Sun, 19 Oct 2025 17:10:00 -0700)
+
+- **الزبيري هداف كأس العالم للشباب .. وماعما الأفضل في "مونديال 2025"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%87%D8%AF%D8%A7%D9%81-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D9%88%D9%85%D8%A7%D8%B9%D9%85%D8%A7-1642674.html)
+- **الزابيري ردا على الأرجنتين: "فِيهُم الهدرة بزّاف.. قْلنا لِيكم مَتنخافُو منْ حدّ وملّي جِينا للْمَاتش كْلِينَاهُم"**: [Link](https://m.elbotola.com/article/2025-10-20-01-20-870.html)
+- **كأس العالم للفتيان.. أشبال المغرب يعبرون للدور ربع النهائي بعد إقصاء إيران**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%8A%D8%AA%D9%81%D8%A7%D8%B9%D9%84-%D9%85%D8%B9-%D8%AA%D8%AA/)
+
+
+### radio mars (N/A, Sun, 19 Oct 2025 17:00:00 -0700)
+
+- **"يستحقها بجدارة".. معما يفوز بجائزة أفضل لاعب في كأس العالم للشباب**: [Link](https://m.elbotola.com/article/2025-10-20-01-48-538.html)
+- **في بادرة جميلة.. رسالة تحفيزية لعثمان معما من لاعبي واتفورد قبل نهائي مونديال الشباب**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A-%D8%A8%D8%A7%D8%AF%D8%B1%D8%A9-%D8%AC%D9%85%D9%8A%D9%84%D8%A9-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%AA%D8%AD%D9%81%D9%8A%D8%B2%D9%8A%D8%A9-%D9%84%D8%B9%D8%AB%D9%85%D8%A7%D9%86-%D9%85%D8%B9%D9%85%D8%A7-%D9%85%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D9%88%D8%A7%D8%AA%D9%81%D9%88%D8%B1%D8%AF-%D9%82%D8%A8%D9%84-20251019)
+- **صحيفة أرجنتينية: عثمان معمّا الخطر الأكبر على منتخبنا في نهائي مونديال الشباب**: [Link](https://www.barlamane.com/%D8%B5%D8%AD%D9%8A%D9%81%D8%A9-%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A%D8%A9-%D8%B9%D8%AB%D9%85%D8%A7%D9%86-%D9%85%D8%B9%D9%85%D9%91%D8%A7-%D8%A7%D9%84%D8%AE%D8%B7%D8%B1-%D8%A7%D9%84%D8%A3/)
+
+
+### score live (N/A, Sun, 19 Oct 2025 16:50:00 -0700)
+
+- **Brock Purdy, Ricky Pearsall OUT vs. Falcons; Inactives for Week 7 'SNF' #ATLvsSF**: [Link](https://www.49ers.com/news/brock-purdy-ricky-pearsall-out-vs-falcons-inactives-for-week-7-snf-atlvssf)
+- **Atlanta Falcons inactives for Week 7 vs. San Francisco 49ers**: [Link](https://www.atlantafalcons.com/news/atlanta-falcons-inactives-week-7-vs-san-francisco-49ers)
+- **[SUNDAY-NFL]** 49ERS VS FALCONS LIVE 𝐅𝐫𝐞𝐞 NFL Football Game 2025**: [Link](https://www.thealbertan.com/classifieds/homes-rentals-and-real-estate/open-houses/2036525)
+
+
 ### famalicao (N/A, Sun, 19 Oct 2025 17:30:00 -0700)
 
 - **Conheça a chave do Totobola**: [Link](https://sapo.pt/artigo/conheca-a-chave-do-totobola-68f53e0d627097c8e93f5887)
