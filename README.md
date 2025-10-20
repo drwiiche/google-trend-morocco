@@ -1,3 +1,10 @@
+### coupe du monde u17 (N/A, Mon, 20 Oct 2025 05:40:00 -0700)
+
+- **Marhba Bik, la chanson officielle du Mondial féminin U17 Maroc 2025 dévoilée**: [Link](https://lematin.ma/sports/marhba-bik-la-chanson-officielle-du-mondial-feminin-u17-devoilee/308236)
+- **Conférence de presse du coach Nabil Baha lundi prochain**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%86%D8%A8%D9%8A%D9%84-%D8%A8%D8%A7%D9%87%D8%A7-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D8%A8%D9%85%D8%B1%D9%83%D8%A8/)
+- **Mondial U17, CAN, FUS… Maryame Atiq croit en l’avenir du football féminin marocain**: [Link](https://sport.le360.ma/football/lions-atlas/mondial-u17-can-fus-maryame-atiq-croit-en-lavenir-du-football-feminin-marocain_P32UPH7EERANLLYXMMK6KQFS2Q/)
+
+
 ### passeport (N/A, Mon, 20 Oct 2025 05:30:00 -0700)
 
 - **Quel est le passeport le plus puissant du monde en 2025 ? Découvrez le classement**: [Link](https://www.capital.fr/economie-politique/quel-est-le-passeport-le-plus-puissant-du-monde-en-2025-decouvrez-le-classement-1519753)
