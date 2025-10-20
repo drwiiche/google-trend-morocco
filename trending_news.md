@@ -1,3 +1,17 @@
+### roblox (N/A, Mon, 20 Oct 2025 00:40:00 -0700)
+
+- **A lot of the internet just stopped working**: [Link](https://www.the-independent.com/tech/snapchat-roblox-duolingo-fortnite-down-not-working-b2848289.html)
+- **Amazon Down: Widespread AWS Outage Takes Down Internet**: [Link](https://dataconomy.com/2025/10/20/amazon-down-widespread-aws-outage-takes-down-internet/)
+- **Multiple websites including Amazon’s cloud unit down for thousands of users**: [Link](https://www.timesofisrael.com/liveblog_entry/multiple-websites-including-amazons-cloud-unit-down-for-thousands-of-users/)
+
+
+### star academy (N/A, Sun, 19 Oct 2025 21:50:00 -0700)
+
+- **C'est show : Star Academy, les moments forts**: [Link](https://www.tf1info.fr/culture/videos/video-c-est-show-star-academy-les-moments-forts-10868-2401567.html)
+- **« Je serai un prof de danse exigeant et bienveillant » : Jonathan Jenvrin, le petit nouveau de la « Star Academy », se confie avant son premier cours**: [Link](https://www.sudinfo.be/id1055286/article/2025-10-20/je-serai-un-prof-de-danse-exigeant-et-bienveillant-jonathan-jenvrin-le-petit)
+- **ABBA en hymne de la saison, un élève déjà immunisé… Tout ce qu'il faut retenir du premier prime de la "Star Academy" 2025**: [Link](https://www.ozap.com/actu/abba-en-hymne-de-la-saison-un-eleve-deja-immunise-tout-ce-qu-il-faut-retenir-du-premier-prime-de-la-star-academy-2025/652098)
+
+
 ### عثمان معما (N/A, Sun, 19 Oct 2025 18:50:00 -0700)
 
 - **معما (أفضل لاعب في مونديال الشباب): "نهدي اللقب إلى شعب لم ينم من أجل مساندتنا"**: [Link](https://m.elbotola.com/article/2025-10-20-03-37-28.html)
