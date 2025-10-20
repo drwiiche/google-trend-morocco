@@ -1,3 +1,17 @@
+### achraf hakimi (N/A, Mon, 20 Oct 2025 05:10:00 -0700)
+
+- **Histórico Mundial de Marruecos**: [Link](https://as.com/futbol/internacional/marruecos-futuro-brillante-f202510-n/)
+- **Dos zarpazos de Zabiri coronan a Marruecos**: [Link](https://www.marca.com/futbol/mundial-sub-20/cronica/2025/10/20/dos-zarpazos-zabiri-coronan-marruecos.html)
+- **Mundial Sub 20: Argentina perdió con Marruecos en la final, pero dejó señales positivas para el futuro**: [Link](https://www.lanacion.com.ar/deportes/futbol/mundial-sub-20-argentina-perdio-con-marruecos-en-la-final-pero-dejo-senales-positivas-para-el-futuro-nid19102025/)
+
+
+### hespress (N/A, Sun, 19 Oct 2025 18:30:00 -0700)
+
+- **الحسين بكار السباعي: المنعطف الحاسم في قضية الصحراء المغربية وسقوط الأطروحة الانفصالية**: [Link](https://anfaspress.com/news/voir/158870-2025-10-14-01-56-31)
+- **الإدارة الأمريكية تؤكد التحرك من أجل "اتفاق سلام" بين الجزائر والمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%A4%D9%83%D8%AF-%D8%A7%D9%84%D8%AA%D8%AD%D8%B1%D9%83-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%A7-1642817.html)
+- **كبير لهبة بريس: "الموقف الأمريكي من قضية الصحراء نقطة تحول تاريخية.. والنظام الجزائري لم يستوعب الصدمة إلى اليوم"**: [Link](https://ar.hibapress.com/details-667083.html)
+
+
 ### كنزة الغالي (N/A, Mon, 20 Oct 2025 02:40:00 -0700)
 
 - **الجمهور المغربي يساند منتخبي الكبار والشباب برسالة قوية: "أسود ولا أشبال.. المغاربة شداد ورجال!" 🇲🇦**: [Link](https://m.elbotola.com/video/details/68eec95845db9e6f42072ee6/)
