@@ -1,3 +1,17 @@
+### test (N/A, Mon, 20 Oct 2025 01:40:00 -0700)
+
+- **Israel Strikes Gaza and Temporarily Halts Aid, Saying Hamas Broke Truce**: [Link](https://www.nytimes.com/2025/10/19/world/middleeast/israel-gaza-ceasefire.html)
+- **Truce resumes after Israeli airstrikes on Gaza amid scramble to shore up ceasefire – Middle East crisis live**: [Link](https://www.theguardian.com/world/live/2025/oct/20/gaza-ceasefire-israel-hamas-palestine-hostages-middle-east-crisis-live-news-updates)
+- **Israel resumes ceasefire in Gaza and says aid deliveries will restart Monday**: [Link](https://apnews.com/article/israel-palestinians-hamas-war-news-10-19-2025-f3d95cf76018541ff824853d1bcd3356)
+
+
+### snapchat (N/A, Mon, 20 Oct 2025 00:40:00 -0700)
+
+- **Snapchat and Duolingo among major apps down in Amazon Web Services outage - live updates**: [Link](https://www.bbc.com/news/live/c5y8k7k6v1rt)
+- **Amazon internet outage breaks dozens of major apps, websites and banks: Latest**: [Link](https://www.the-independent.com/tech/aws-amazon-internet-outage-latest-updates-b2848345.html)
+- **Websites Including Amazon, Coinbase and Roblox Report Outages After AWS Disruption**: [Link](https://www.nytimes.com/2025/10/20/business/aws-down-internet-outage.html)
+
+
 ### canva (N/A, Mon, 20 Oct 2025 00:40:00 -0700)
 
 - **Canva Down For Indian Users Amid Diwali Fervor Triggering Memefest On X; Here's What Happened**: [Link](https://in.mashable.com/tech/101296/canva-down-for-indian-users-amid-diwali-fervor-triggering-memefest-on-x-heres-what-happened)
