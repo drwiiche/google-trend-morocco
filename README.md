@@ -1,3 +1,10 @@
+### live football (N/A, Sun, 19 Oct 2025 16:50:00 -0700)
+
+- **Head Coach Mike Vrabel 10/19: "I'm happy for these guys, they're figuring out how to win"**: [Link](https://www.patriots.com/video/head-coach-mike-vrabel-10-19-i-m-happy-for-these-guys-they-re-figuring-out-how-to-win)
+- **NFL stats and records, Week 7: Drake Maye breaks Patriots franchise record; Broncos' Bo Nix proves no lead is safe**: [Link](https://www.nfl.com/news/nfl-stats-and-records-week-7-drake-maye-breaks-patriots-franchise-record-broncos-bo-nix-proves-no-lead-is-safe)
+- **The Pats Keep Rolling, With James White**: [Link](https://www.theringer.com/podcasts/off-the-pike-with-brian-barrett/2025/10/19/the-pats-keep-rolling-with-james-white)
+
+
 ### roblox (N/A, Mon, 20 Oct 2025 00:40:00 -0700)
 
 - **A lot of the internet just stopped working**: [Link](https://www.the-independent.com/tech/snapchat-roblox-duolingo-fortnite-down-not-working-b2848289.html)
