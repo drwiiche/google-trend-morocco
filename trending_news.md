@@ -1,3 +1,31 @@
+### famalicao (N/A, Sun, 19 Oct 2025 17:30:00 -0700)
+
+- **Conheça a chave do Totobola**: [Link](https://sapo.pt/artigo/conheca-a-chave-do-totobola-68f53e0d627097c8e93f5887)
+- **Vanessa Carvalho conquista 2.º lugar na Meia Maratona de Famalicão**: [Link](https://scbraga.pt/vanessa-carvalho-conquista-2-o-lugar-na-meia-maratona-de-famalicao/)
+- **«Quis aproveitar as ruas da minha cidade»**: [Link](https://www.diariodominho.pt/noticias/desporto/2025-10-19-quis-aproveitar-as-ruas-da-minha-cidade-68f4d8cc65ba5)
+
+
+### messi (N/A, Sun, 19 Oct 2025 17:20:00 -0700)
+
+- **Mascherano sends message to Cristiano after Messi's new exhibition: "He is the best that has played this sport"**: [Link](https://www.marca.com/en/football/mls/2025/10/19/68f4d4c422601dda4b8b45a0.html)
+- **Lionel Messi reduces distance with Cristiano Ronaldo after hat-trick: How many career goals separate them?**: [Link](https://bolavip.com/en/soccer/lionel-messi-reduces-distance-with-cristiano-ronaldo-after-hat-trick-how-many-career-goals-separate-them)
+- **Mascherano backs Messi to win MLS MVP after record-breaking season**: [Link](https://www.beinsports.com/en-us/soccer/mls/articles/mascherano-backs-messi-to-win-mls-mvp-after-record-breaking-season-2025-10-19)
+
+
+### gessime yassine (N/A, Sun, 19 Oct 2025 17:00:00 -0700)
+
+- **«Je jouerai pour le Maroc»: le rêve devenu réalité de Gessime Yassine raconté par sa mère**: [Link](https://sport.le360.ma/football/lions-atlas/je-jouerai-pour-le-maroc-le-reve-devenu-realite-de-gessime-yassine-raconte-par-sa-mere_WQ33AAJZZZD5FE7B2XKZHCGNWM/)
+- **Mondial U20 : la presse espagnole salue le génie de Yassine Gessime**: [Link](https://fr.hespress.com/445844-mondial-u20-la-presse-espagnole-salue-le-genie-de-yassine-gessime.html)
+- **Après Yassine Gessime, l’Olympique de Marseille vise un autre Marocain**: [Link](https://www.bladi.net/yassine-gessime-visl-olympique-marseille-vise-autre-marocain,117426.html)
+
+
+### يلا كورة (N/A, Sun, 19 Oct 2025 16:50:00 -0700)
+
+- **بالڤيديو: بعد تألقه المونديالي.. كشـ24 ترصد مسار النجم الزاب...**: [Link](https://kech24.com/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%A3%D9%84%D9%82%D9%87-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A-%D9%83%D8%B4%D9%8024-%D8%AA%D8%B1%D8%B5%D8%AF-%D9%85%D8%B3%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-%D9%81%D9%8A-%D8%AD%D9%88%D8%A7%D8%B1-%D8%AE%D8%A7%D8%B5-%D9%85%D8%B9-%D9%88%D8%A7%D9%84%D8%AF%D9%87.html)
+- **ياسين الزبيري.. نجم مونديال الشيلي وتجسيد نجاح أكاديمية محمد السادس لكرة القدم**: [Link](https://chamaly.ma/2025/10/20/%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%86%D8%AC%D9%85-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D9%8A%D9%84%D9%8A-%D9%88%D8%AA%D8%AC%D8%B3/)
+- **للتاريخ.. ياسر زبيري أول لاعب عربي أفريقي يسجل ثنائية في كأس العالم للشباب**: [Link](https://www.elbalad.news/6737284)
+
+
 ### flashscore (N/A, Sun, 19 Oct 2025 16:40:00 -0700)
 
 - **Morocco vs. Argentina: How to Watch, Odds, U-20 World Cup Final Preview**: [Link](https://www.foxsports.com/stories/soccer/morocco-vs-argentina-how-watch-odds-u-20-preview)
