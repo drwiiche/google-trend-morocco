@@ -1,3 +1,10 @@
+### kick (N/A, Mon, 20 Oct 2025 16:40:00 -0700)
+
+- **Tension at Real Madrid: Franco Mastantuono Frustrated After Free-Kick Dispute With David Alaba**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/tension-at-real-madrid-franco-mastantuono-frustrated-after-free-kick-dispute-with-david-alaba-2025-10-20)
+- **Real Madrid chaos: Mastantuono loses his temper with teammate Alaba**: [Link](https://www.mundodeportivo.com/us/en/20251020/732753/real-madrid-chaos-mastantuono-loses-his-temper-with-teammate-alaba.html)
+- **Al-Shorta vs Al-Ittihad Prediction for the Match on October 20, 2025**: [Link](https://www.telecomasia.net/sports-betting/tips/football/afc-champions-league/al-shorta-vs-al-ittihad-prediction-for-the-match-on-october-20-2025/)
+
+
 ### ici tout commence (N/A, Mon, 20 Oct 2025 15:00:00 -0700)
 
 - **Ici tout commence, le résumé en avance du mardi 21 octobre : Carla dans la tourmente, Bérénice ne veut plus l’épouser**: [Link](https://www.diverto.tv/actualites/series/ici-tout-commence-le-resume-en-avance-du-mardi-21-octobre-carla-dans-la-tourmente-berenice-ne-veut-plus-l-epouser)
