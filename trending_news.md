@@ -1,3 +1,17 @@
+### maroc algérie (N/A, Tue, 21 Oct 2025 09:50:00 -0700)
+
+- **Comment Washington veut imposer un « accord de paix » entre Alger et Rabat**: [Link](https://www.lepoint.fr/monde/comment-washington-veut-imposer-un-accord-de-paix-entre-alger-et-rabat-20-10-2025-2601381_24.php)
+- **Les États-Unis évoquent un possible “accord de paix” entre le Maroc et l’Algérie d’ici 60 jours**: [Link](https://medias24.com/2025/10/20/les-etats-unis-evoquent-un-possible-accord-de-paix-entre-le-maroc-et-lalgerie-dici-60-jours/)
+- **Sahara: entre pirouettes et panique, Alger et le Polisario bidouillent une «proposition élargie**: [Link](https://fr.le360.ma/politique/sahara-entre-pirouettes-et-panique-alger-et-le-polisario-bidouillent-une-proposition-elargie_TD6OGKVX3FHTNFQHQTZSW46HU4/)
+
+
+### match barca (N/A, Tue, 21 Oct 2025 09:50:00 -0700)
+
+- **Thibaut Courtois says La Liga plan for match in Miami ‘distorts the competition’**: [Link](https://www.theguardian.com/football/2025/oct/21/thibaut-courtois-says-la-liga-plan-for-match-in-miami-distorts-the-competition)
+- **Carvajal hits out at Tebas as Villarreal-Barça issue heats up - 'Will be a stain on your competition'**: [Link](https://madriduniversal.com/carvajal-hits-out-at-tebas-as-villarreal-barca-issue-heats-up-will-be-a-stain-on-your-competition/)
+- **‘Impossible to keep these games out’ - Even as Europe protests the scheduled Barcelona-Villarreal match in Miami, Americans cautiously welcome La Liga to the U.S.**: [Link](https://www.goal.com/en-za/lists/impossible-to-keep-these-games-out-even-as-europe-protests-barcelona-villarreal-scheduled-match-in-miami-americans-cautiously-welcome-la-liga-to-the-u-s/blt48cb890cade76fa6)
+
+
 ### dro fernández (N/A, Tue, 21 Oct 2025 09:40:00 -0700)
 
 - **Apuestas y pronósticos Barcelona vs Olympiacos: la 'china' de Mendilibar previa al Clásico**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/10/20/apuestas-pronosticos-barcelona-vs-olympiacos-china-mendilibar-previa-clasico.html)
