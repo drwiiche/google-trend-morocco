@@ -1,3 +1,16 @@
+### al-hilal – al sadd (N/A, Tue, 21 Oct 2025 10:30:00 -0700)
+
+- **Al-Hilal vs Al-Sadd Prediction for the Match on October 21, 2025**: [Link](https://www.telecomasia.net/sports-betting/tips/football/afc-champions-league/al-hilal-vs-al-sadd-prediction-for-the-match-on-october-21-2025/)
+- **Al Hilal vs Al Sadd Prediction and Betting Tips | October 21st 2025**: [Link](https://www.sportskeeda.com/football/al-hilal-vs-al-saad-prediction-betting-tips-october-21st-2025)
+
+
+### ayoub el kaabi (N/A, Tue, 21 Oct 2025 10:30:00 -0700)
+
+- **أيوب الكعبي يقود التشكيلة المثالية للجولة السابعة من الدوري اليوناني**: [Link](https://m.elbotola.com/article/2025-10-21-10-21-762.html)
+- **محترفو الأسبوع: إكامان يواصل الإبهار والكعبي يسجل ثنائية**: [Link](https://2m.ma/ar/news/%D9%85%D8%AD%D8%AA%D8%B1%D9%81%D9%88-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D8%A5%D9%83%D8%A7%D9%85%D8%A7%D9%86-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%A5%D8%A8%D9%87%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D9%8A%D8%B3%D8%AC%D9%84-%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-20251020)
+- **الكعبي يواصل هز الشباك باليونان**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D9%87%D8%B2-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D9%83-%D8%A8%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86-1642025.html)
+
+
 ### barcelona (N/A, Tue, 21 Oct 2025 10:20:00 -0700)
 
 - **Barcelona - Olympiacos hoy, en directo: Champions League, última hora en vivo**: [Link](https://as.com/futbol/champions/barcelona-olympiacos-hoy-en-directo-champions-league-ultima-hora-en-vivo-f202510-d/)
