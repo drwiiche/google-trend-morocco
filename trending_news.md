@@ -1,3 +1,10 @@
+### nba (N/A, Tue, 21 Oct 2025 16:40:00 -0700)
+
+- **Top Memes and Reaction to Kevin Durant, Rockets' 'All-Tall' Starting 5 After Trade**: [Link](https://bleacherreport.com/articles/25262939-top-memes-and-reaction-kevin-durant-rockets-all-tall-starting-5-after-trade)
+- **NBA Predictions, Odds, Picks, Expert Bets for Tuesday, October 21**: [Link](https://www.actionnetwork.com/nba/nba-predictions-odds-picks-expert-bets-for-tuesday-october-21)
+- **The Rundown 10.21.25 – Setting and Raising the Bar in OKC from the Outset**: [Link](https://www.backsportspage.com/the-rundown-10-21-25-setting-and-raising-the-bar-in-okc-from-the-outset/)
+
+
 ### manchester city (N/A, Tue, 21 Oct 2025 12:50:00 -0700)
 
 - **Haaland scores again as Man City end winless away run**: [Link](https://www.bbc.com/sport/football/live/clykvkez43yt)
