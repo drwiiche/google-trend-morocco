@@ -1,3 +1,10 @@
+### arsenal (N/A, Tue, 21 Oct 2025 11:40:00 -0700)
+
+- **Champions League LIVE: Scores & updates including Arsenal v Atletico Madrid & Villarreal v Manchester City**: [Link](https://www.bbc.com/sport/football/live/cn5q6rry9lpt)
+- **UCL 25/26 Matchday 3 Betting Picks | The Champions League Show (EP. 100)**: [Link](https://www.sportsgamblingpodcast.com/2025/10/21/ucl-25-26-matchday-3-betting-picks-the-champions-league-show-ep-100/)
+- **PSG, Barcelona, Man City and Arsenal all in action in the Champions League**: [Link](https://www.fox16.com/sports/ap-psg-barcelona-man-city-and-arsenal-all-in-action-in-the-champions-league/)
+
+
 ### flashscore (N/A, Tue, 21 Oct 2025 12:20:00 -0700)
 
 - **Champions League LIVE: Scores & updates including Arsenal v Atletico Madrid & Villarreal v Manchester City**: [Link](https://www.bbc.com/sport/football/live/cn5q6rry9lpt)
