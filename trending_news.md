@@ -1,3 +1,17 @@
+### psv (N/A, Tue, 21 Oct 2025 13:40:00 -0700)
+
+- **De Bruyne op bezoek bij PSV, volgens trainer Bosz 'een van de grootste voetballers ooit'**: [Link](https://nos.nl/artikel/2587224-de-bruyne-op-bezoek-bij-psv-volgens-trainer-bosz-een-van-de-grootste-voetballers-ooit)
+- **Stilaan Misson Impossible voor De Bruyne en Noa Lang: Lucca krijgt strenge rode kaart**: [Link](https://www.hln.be/champions-league/stilaan-misson-impossible-voor-de-bruyne-en-noa-lang-lucca-krijgt-strenge-rode-kaart~a26df313/)
+- **Bosz straft Dest met plek op de bank omdat hij te laat was**: [Link](https://www.rtl.nl/nieuws/sport/artikel/5534740/bosz-straft-dest-met-plek-op-de-bank-omdat-hij-te-laat-was)
+
+
+### بي اس في ضد نابولي (N/A, Tue, 21 Oct 2025 13:40:00 -0700)
+
+- **اعتقال 180 مشجعاً من جماهير نابولي في إيندهوفن**: [Link](https://24.ae/article/925183/%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-180-%D9%85%D8%B4%D8%AC%D8%B9%D8%A7%D9%8B-%D9%85%D9%86-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D9%81%D9%8A-%D8%A5%D9%8A%D9%86%D8%AF%D9%87%D9%88%D9%81%D9%86)
+- **دوري أبطال أوروبا، مباراتان خارج أرضنا لإنتر في بلجيكا ونابولي في هولندا، اختبار للمواجهة المباشرة يوم السبت.**: [Link](https://www.firstonline.info/ar/champions-per-linter-in-belgio-e-per-il-napoli-in-olanda-due-trasferte-che-sono-un-test-per-lo-scontro-diretto-di-sabato/)
+- **أهم تصريحات كونتي قبل مواجهة نابولي وأيندهوفن**: [Link](https://hihi2.com/2025/10/21/p3436129.html)
+
+
 ### city (N/A, Tue, 21 Oct 2025 13:30:00 -0700)
 
 - **City News**: [Link](https://www.wilmingtonde.gov/Home/Components/News/News/7379/225)
