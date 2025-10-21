@@ -1,3 +1,24 @@
+### barcelone – olympiakos (N/A, Tue, 21 Oct 2025 09:00:00 -0700)
+
+- **Barça : le groupe contre l’Olympiacos, avec un grand absent**: [Link](https://www.footmercato.net/a8766905968503231143-barca-le-groupe-contre-lolympiacos-avec-un-grand-absent)
+- **Fermín Lopez : "Une belle semaine à venir"**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4385839/fermin-lopez-une-belle-semaine-a-venir)
+- **Barcelone - Olympiakos : à quelle heure et sur quelle chaîne regarder le match de Ligue des Champions en direct ?**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/barcelone-olympiakos-a-quelle-heure-et-sur-quelle-chaine-regarder-le-match-de-ligue-des-champions-en-direct_AN-202510210022.html)
+
+
+### برشلونة ضد أوليمبياكوس (N/A, Tue, 21 Oct 2025 09:00:00 -0700)
+
+- **مفاجأة غير متوقعة في قائمة برشلونة لمواجهة أولمبياكوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%81%D9%8A-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%94%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D9%83%D9%88%D8%B3/bltb64082eb89e5fd3f)
+- **مباشر.. مباراة برشلونة ضد أولمبياكوس في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/21/barcelona-vs-olympiakos-piraeus)
+- **برشلونة يسعى إلى استعادة توازنه أوروبيا خلال مواجهته لأولمبياكوس مساء اليوم**: [Link](https://2m.ma/ar/news/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%AA%D9%88%D8%A7%D8%B2%D9%86%D9%87-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A7-%D8%AE%D9%84%D8%A7%D9%84-20251021)
+
+
+### نيكولا ساركوزي (N/A, Tue, 21 Oct 2025 06:00:00 -0700)
+
+- **ساركوزي وإرث القذافي.. روابط خطرة ثمنها موت وسجن**: [Link](https://www.aljazeera.net/politics/2025/10/20/%D8%B3%D8%A7%D8%B1%D9%83%D9%88%D8%B2%D9%8A-%D9%88%D8%A5%D8%B1%D8%AB-%D8%A7%D9%84%D9%82%D8%B0%D8%A7%D9%81%D9%8A-%D8%B1%D9%88%D8%A7%D8%A8%D8%B7-%D8%AE%D8%B7%D8%B1%D8%A9-%D8%AB%D9%85%D9%86%D9%87%D8%A7)
+- **زنزانة انفرادية وكتابان.. كيف سيقضي ساركوزي أيامه في السجن؟**: [Link](https://www.skynewsarabia.com/world/1828553-%D8%B2%D9%86%D8%B2%D8%A7%D9%86%D8%A9-%D8%A7%D9%86%D9%81%D8%B1%D8%A7%D8%AF%D9%8A%D8%A9-%D9%88%D9%83%D8%AA%D8%A7%D8%A8%D8%A7%D9%86-%D8%B3%D9%8A%D9%82%D8%B6%D9%8A-%D8%B3%D8%A7%D8%B1%D9%83%D9%88%D8%B2%D9%8A-%D8%A7%D9%94%D9%8A%D8%A7%D9%85%D9%87-%D8%A7%D9%84%D8%B3%D8%AC%D9%86%D8%9F)
+- **فرنسا: ساركوزي يدخل السجن ويدفع ببراءته في قضية التمويل الليبي**: [Link](https://www.france24.com/ar/%D9%81%D8%B1%D9%86%D8%B3%D8%A7/20251021-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B3%D8%A7%D8%B1%D9%83%D9%88%D8%B2%D9%8A-%D8%A3%D9%88%D9%84-%D8%B1%D8%A6%D9%8A%D8%B3-%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3%D8%A9)
+
+
 ### barça (N/A, Tue, 21 Oct 2025 06:20:00 -0700)
 
 - **Apuestas y pronósticos Barcelona vs Olympiacos: la 'china' de Mendilibar previa al Clásico**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/10/20/apuestas-pronosticos-barcelona-vs-olympiacos-china-mendilibar-previa-clasico.html)
