@@ -1,3 +1,10 @@
+### sarkozy (N/A, Tue, 21 Oct 2025 00:10:00 -0700)
+
+- **Nicolas Sarkozy a rejoint la prison de la Santé pour y être incarcéré après sa condamnation dans l’affaire des financements libyens**: [Link](https://www.lemonde.fr/societe/article/2025/10/21/nicolas-sarkozy-a-rejoint-la-prison-de-la-sante-pour-y-etre-incarcere-apres-sa-condamnation-dans-l-affaire-des-financements-libyens_6648324_3225.html)
+- **Emmanuel Macron a reçu Nicolas Sarkozy avant son incarcération**: [Link](https://www.lefigaro.fr/politique/emmanuel-macron-a-recu-nicolas-sarkozy-avant-son-incarceration-20251020)
+- **Incarcération de Nicolas Sarkozy : le procureur général près la Cour de cassation pointe le "risque d'atteinte à l'indépendance des magistrats", après les propos du ministre de la Justice**: [Link](https://www.franceinfo.fr/politique/nicolas-sarkozy/incarceration-de-nicolas-sarkozy-le-procureur-general-pres-la-cour-de-cassation-pointe-le-risque-d-atteinte-a-l-independance-des-magistrats-apres-les-propos-du-ministre-de-la-justice_7565911.html)
+
+
 ### kech24 (N/A, Tue, 21 Oct 2025 00:00:00 -0700)
 
 
