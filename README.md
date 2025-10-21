@@ -1,3 +1,10 @@
+### plf 2026 maroc (N/A, Tue, 21 Oct 2025 02:10:00 -0700)
+
+- **PLF 2026. Voici les mesures fiscales proposées**: [Link](https://medias24.com/2025/10/20/plf2026-voici-les-mesures-fiscales-proposees/)
+- **PLF 2026 : Voici les principales mesures fiscales et douanières**: [Link](https://lematin.ma/economie/plf-2026-les-principales-mesures-fiscales-et-douanieres/308677)
+- **PLF 2026 : Ce qu’il faut retenir de la présentation de Nadia Fettah au Parlement**: [Link](https://mobile.telquel.ma/instant-t/2025/10/21/plf-2026-ce-quil-faut-retenir-de-la-presentation-de-nadia-fettah-au-parlement_1956645/)
+
+
 ### هسبريس (N/A, Mon, 20 Oct 2025 23:10:00 -0700)
 
 - **خبراء: مجلس الأمن يقترب من تكريس الشرعية في قضية الصحراء المغربية**: [Link](https://www.hespress.com/%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA%D9%83%D8%B1%D9%8A%D8%B3-%D8%A7%D9%84%D8%B4%D8%B1%D8%B9%D9%8A-1642848.html)
