@@ -1,3 +1,10 @@
+### u17 maroc (N/A, Tue, 21 Oct 2025 05:00:00 -0700)
+
+- **Nabil Baha dévoile la liste du Maroc pour la Coupe du monde U17 au Qatar**: [Link](https://medias24.com/2025/10/20/nabil-baha-devoile-la-liste-du-maroc-pour-la-coupe-du-monde-u17-au-qatar/)
+- **Ahmed Mouhoub forfait pour le Mondial U17**: [Link](https://fr.hespress.com/446198-ahmed-mouhoub-forfait-pour-le-mondial-u17.html)
+- **Coupe du Monde U-17 (Qatar 2025): Le Maroc, une grande nation footballistique capable de vaincre n'importe quelle équipe (Nabil Baha)**: [Link](https://www.mapexpress.ma/actualite/sports/coupe-du-monde-u-17-qatar-2025-maroc-grande-nation-footballistique-capable-vaincre-nimporte-quelle-equipe-nabil-baha/)
+
+
 ### plf 2026 maroc (N/A, Tue, 21 Oct 2025 02:10:00 -0700)
 
 - **PLF 2026. Voici les mesures fiscales proposées**: [Link](https://medias24.com/2025/10/20/plf2026-voici-les-mesures-fiscales-proposees/)
