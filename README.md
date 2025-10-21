@@ -1,3 +1,10 @@
+### genybet (N/A, Tue, 21 Oct 2025 12:10:00 -0700)
+
+- **Les pronos hippiques du mardi 21 octobre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-21-octobre-2025_AN-202510200362.html)
+- **Quinté du mardi 21 octobre 2025 à Clairefontaine-Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-mardi-21-octobre-2025-a-clairefontaine-deauville-les-pronostics-7900555221)
+- **Equidia met le feu au Quinté+ du mardi 21 octobre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-mardi-21-octobre)
+
+
 ### villarreal vs man city (N/A, Tue, 21 Oct 2025 11:50:00 -0700)
 
 - **Four changes for Villarreal clash**: [Link](https://onefootball.com/pt-br/noticias/four-changes-for-villarreal-clash-41837852)
