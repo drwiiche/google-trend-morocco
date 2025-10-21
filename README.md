@@ -1,3 +1,24 @@
+### barcelona (N/A, Tue, 21 Oct 2025 10:20:00 -0700)
+
+- **Barcelona - Olympiacos hoy, en directo: Champions League, última hora en vivo**: [Link](https://as.com/futbol/champions/barcelona-olympiacos-hoy-en-directo-champions-league-ultima-hora-en-vivo-f202510-d/)
+- **Dro, en el once y un titular, en el banquillo ante el Olympiacos**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251021/1002554848/dro-aparece-once-barca-olympiacos.html)
+- **Apuestas y pronósticos Barcelona vs Olympiacos: la 'china' de Mendilibar previa al Clásico**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/10/20/apuestas-pronosticos-barcelona-vs-olympiacos-china-mendilibar-previa-clasico.html)
+
+
+### fcb (N/A, Tue, 21 Oct 2025 10:00:00 -0700)
+
+- **Why Marcus Rashford update from Barcelona is good news for Man United**: [Link](https://www.manchestereveningnews.co.uk/sport/football/barcelona-told-man-united-what-32721612)
+- **'Things can change' - Marcus Rashford could still return to Man Utd if Ruben Amorim leaves claims former Red Devils coach**: [Link](https://www.goal.com/en-qa/lists/marcus-rashford-could-return-man-utd-ruben-amorim-leaves-former-red-devils-coach/blte0d7dde45373b7e1)
+- **Rashford to 'quit' Man Utd as new Romano update reveals Barcelona transfer hinges on one key condition**: [Link](https://www.football365.com/news/rashford-quit-man-utd-new-romano-update-reveals-key-factor-facilitate-barcelona-transfer)
+
+
+### u20 football (N/A, Tue, 21 Oct 2025 10:00:00 -0700)
+
+- **Morocco crowned world champions at the FIFA U-20 World Cup**: [Link](https://www.cafonline.com/caf-u-20-africa-cup-of-nations/news/morocco-crowned-world-champions-at-the-fifa-u-20-world-cup/)
+- **U20 World Cup final: Morocco look to build after victory over Argentina**: [Link](https://www.bbc.com/sport/football/articles/cvgkmr1pp1lo)
+- **U-20 Cubs’ World Cup Title Crowns Visionary Sports Policy Driven by HM the King**: [Link](https://www.maroc.ma/en/news/u-20-cubs-world-cup-title-crowns-visionary-sports-policy-driven-hm-king)
+
+
 ### abdelkader moutaa (N/A, Tue, 21 Oct 2025 10:00:00 -0700)
 
 - **Le comédien Abdelkader Moutaa s’est éteint**: [Link](https://www.leconomiste.com/flash-infos/le-comedien-abdelkader-moutaa-sest-eteint/)
