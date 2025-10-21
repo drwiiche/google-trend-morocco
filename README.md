@@ -1,3 +1,31 @@
+### napoli (N/A, Tue, 21 Oct 2025 13:00:00 -0700)
+
+- **Moviola PSV-Napoli: contatto Schouten-Lucca in area poco prima del 2-1, niente rigore**: [Link](https://www.goal.com/it/liste/moviola-psv-napoli-contatto-schouten-lucca-in-area-poco-prima-del-2-1-niente-rigore/blt86aba5e1fcd83d56)
+- **Idea De Bruyne falso nueve? Conte ci pensa ma dipende anche da un altro calciatore.**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/idea_de_bruyne_falso_nueve_conte_ci_pensa_ma_dipende_anche_da_un_altro_calciatore_-75905897.html)
+- **PSV-Napoli, Conte a Sky: ''Per Lucca è una grande opportunità, sta cercando di alzare il livello!''**: [Link](https://www.napolicalcionews.it/news-calcio-napoli/PSV-Napoli--Conte-a-Sky---Per-Lucca-e-una-grande-opportunita--sta-cercando-di-alzare-il-livello---143501.aspx)
+
+
+### باريس سان جيرمان (N/A, Tue, 21 Oct 2025 12:50:00 -0700)
+
+- **حكيمي يحمل شارة قيادة سان جيرمان أمام ليفركوزن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%AD%D9%85%D9%84-%D8%B4%D8%A7%D8%B1%D8%A9-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86/blt31f1b05f51905d8f)
+- **ديمبلي يتعافى من الإصابة ويعود لباريس**: [Link](https://www.hesport.com/%D8%AF%D9%8A%D9%85%D8%A8%D9%84%D9%8A-%D9%8A%D8%AA%D8%B9%D8%A7%D9%81%D9%89-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%88%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-409179.html)
+- **سان جيرمان يهدد استقرار باير ليفركوزن في "ليالي الأبطال"**: [Link](https://24.ae/article/925059/)
+
+
+### bet365 (N/A, Tue, 21 Oct 2025 12:50:00 -0700)
+
+- **Fanatics Sportsbook Promo Code Awards $2k FanCash for NBA Opening Game Tonight**: [Link](https://www.livescore.com/en/news/nba/promos/fanatics-sportsbook-promo-for-rockets-at-thunder/)
+- **FanDuel promo code: Wager $5, get $300 in bonus bets if your bet wins for Rockets vs. Thunder**: [Link](https://nypost.com/2025/10/21/betting/fanduel-promo-code-wager-5-get-300-in-bonus-bets-if-your-bet-wins-for-rockets-vs-thunder/)
+- **Exclusive BetMGM Bonus Code LABSNEWS1600: Snag $1,600 NBA Betting Bonus for Opening Night Today**: [Link](https://www.fantasylabs.com/articles/betmgm-bonus-code-labsnews1600-snag-1600-nba-betting-bonus-for-opening-night-today/)
+
+
+### paris (N/A, Tue, 21 Oct 2025 12:40:00 -0700)
+
+- **"Ça aurait été une catastrophe" : comment Paris aurait pu perdre son Masters 1000**: [Link](https://www.eurosport.fr/tennis/atp-rolex-paris-masters/2025/paris-rolex-masters-ca-aurait-ete-une-catastrophe-comment-paris-aurait-pu-perdre-son-masters-1000_sto23233300/story.shtml)
+- **Tennis : «On arrive dans une salle où il faut tout faire», les équipes du Masters 1000 de Paris en plein contre-la-montre**: [Link](https://www.lefigaro.fr/sports/tennis/tennis-on-arrive-dans-une-salle-ou-il-faut-tout-faire-les-equipes-du-masters-1000-de-paris-en-plein-contre-la-montre-20251021)
+- **Fenêtres sur courts**: [Link](https://www.francetelevisions.fr/et-vous/notre-tele/les-programmes-a-ne-pas-rater/rolex-paris-masters-2025-48190)
+
+
 ### dortmund (N/A, Tue, 21 Oct 2025 12:40:00 -0700)
 
 - **Die Fakten zum Spiel in Kopenhagen**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2025/10/19/Die-Fakten-zum-Spiel-in-Kopenhagen.html)
