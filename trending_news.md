@@ -1,3 +1,31 @@
+### copenhague – dortmund (N/A, Tue, 21 Oct 2025 11:40:00 -0700)
+
+- **DIRECT. FC Copenhague-Borussia Dortmund (Ligue des champions 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/fc-copenhague-borussia-dortmund-live/685529)
+- **Kovac pourrait effectuer des changements à Dortmund en raison de l'emploi du temps chargé à l'extérieur**: [Link](https://www.fotmob.com/fr/news/1lih86mi157um1plw02o80gtv9_fr-kovac-pourrait-effectuer-des-changements-dortmund-en-raison-de-lemploi-du-temps-charge-lexterieur)
+- **Kovac avant Copenhague : « Je rayonne comme un réacteur »**: [Link](https://www.zonebourse.com/actualite-bourse/kovac-avant-copenhague-je-rayonne-comme-un-reacteur--ce7d5ad2d18bff22)
+
+
+### psv eindhoven – naples (N/A, Tue, 21 Oct 2025 11:40:00 -0700)
+
+- **Champions League: PSV vs. Napoli – Probable line-ups and where to watch on TV**: [Link](https://football-italia.net/ucl-psv-vs-napoli-probable-line-ups/)
+- **Napoli's Quest in Eindhoven**: [Link](https://www.ilmessaggero.it/en/napoli_s_quest_in_eindhoven-9138244.html)
+- **Navigating the European Arena**: [Link](https://www.ilmattino.it/en/navigating_the_european_arena-9138854.html)
+
+
+### الهلال ضد السد (N/A, Tue, 21 Oct 2025 11:40:00 -0700)
+
+- **مباشر مباراة الهلال ضد السد بأبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B3%D8%AF-%D8%A8%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **قمّة مرتقبة بين الهلال والسد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/afc-champions-league/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85-%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B3%D8%AF-2025-10-21)
+- **مدرب الهلال يشكو ضغط المباريات**: [Link](https://24.ae/article/925112/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%8A%D8%B4%D9%83%D9%88-%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA)
+
+
+### psg (N/A, Tue, 21 Oct 2025 11:20:00 -0700)
+
+- **Enclencher une nouvelle dynamique, tourner la page des blessures et du bricolage : le PSG à la relance sur la pelouse de Leverkusen**: [Link](https://www.lequipe.fr/Football/Article/Enclencher-une-nouvelle-dynamique-tourner-la-page-des-blessures-et-du-bricolage-le-psg-a-la-relance-sur-la-pelouse-de-leverkusen/1603319)
+- **Bayer Leverkusen - PSG : les compos sont là !**: [Link](https://www.footmercato.net/a9047637905998301300-bayer-leverkusen-psg-les-compos-sont-la)
+- **C’était mission impossible : comment le Bayer Leverkusen s’est remis en route**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-i-bayer-leverkusen-psg-3e-journee-cetait-mission-impossible-comme-le-werkself-sest-remis-en-route_sto23232965/story.shtml)
+
+
 ### فياريال ضد مان سيتي (N/A, Tue, 21 Oct 2025 11:30:00 -0700)
 
 - **بعد عام كامل.. فياريال يكرم رودري بسبب الكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%B9%D8%A7%D9%85-%D9%83%D8%A7%D9%85%D9%84--%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D9%83%D8%B1%D9%85-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blt9d4bc2f6793965d3)
