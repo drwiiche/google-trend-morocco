@@ -1,3 +1,10 @@
+### المديرية العامة للأرصاد الجوية (N/A, Mon, 20 Oct 2025 18:40:00 -0700)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-42-1642423.html)
+- **الطقس غدا الثلاثاء.. جو حار نسبياً بالجنوب الشرقي واستقرار في درجات الحرارة**: [Link](https://ar.hibapress.com/details-667975.html)
+- **طقس الأحد: توقع جو حار مع غيوم ورياح قوية بهذه المناطق**: [Link](https://ar.le360.ma/societe/ZDPSWFZMMBFVBIOCO7XCO5PHPI/)
+
+
 ### cambriolage musee du louvre bijoux (N/A, Mon, 20 Oct 2025 17:10:00 -0700)
 
 - **Au lendemain du cambriolage éclair du Louvre, la direction du musée et le ministère de la culture sous pression**: [Link](https://www.lemonde.fr/culture/article/2025/10/20/au-lendemain-du-cambriolage-eclair-du-louvre-la-direction-du-musee-et-le-ministere-de-la-culture-sous-pression_6648301_3246.html)
