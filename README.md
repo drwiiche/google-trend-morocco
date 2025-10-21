@@ -1,3 +1,45 @@
+### فياريال ضد مان سيتي (N/A, Tue, 21 Oct 2025 11:30:00 -0700)
+
+- **بعد عام كامل.. فياريال يكرم رودري بسبب الكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%B9%D8%A7%D9%85-%D9%83%D8%A7%D9%85%D9%84--%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D9%83%D8%B1%D9%85-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blt9d4bc2f6793965d3)
+- **فودين ينفرد برقم قياسي في دوري الابطال**: [Link](https://hihi2.com/2025/10/21/p3437375.html)
+- **جوارديولا: شرقي من أعظم المواهب التي رأيتها في حياتي.. إنه يلعب كأنه في الشارع**: [Link](https://www.msn.com/ar-eg/sports/other/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B4%D8%B1%D9%82%D9%8A-%D9%85%D9%86-%D8%A3%D8%B9%D8%B8%D9%85-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D9%87%D8%A8-%D8%A7%D9%84%D8%AA%D9%8A-%D8%B1%D8%A3%D9%8A%D8%AA%D9%87%D8%A7-%D9%81%D9%8A-%D8%AD%D9%8A%D8%A7%D8%AA%D9%8A-%D8%A5%D9%86%D9%87-%D9%8A%D9%84%D8%B9%D8%A8-%D9%83%D8%A3%D9%86%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D8%A7%D8%B1%D8%B9/ar-AA1OPNhs)
+
+
+### newcastle – benfica (N/A, Tue, 21 Oct 2025 11:30:00 -0700)
+
+- **Newcastle handed fitness boost as star could face Benfica in the Champions League**: [Link](https://www.givemesport.com/newcastle-handed-fitness-update-on-foreceable-sandro-tonali/)
+- **Jose Mourinho expects Newcastle to win more silverware after League Cup triumph**: [Link](https://www.flashscore.com/news/soccer-champions-league-jose-mourinho-expects-newcastle-to-win-more-silverware-after-league-cup-triumph/OzH3G7yI/)
+- **Eddie Howe assessed Newcastle’s match against Benfica**: [Link](https://zamin.uz/en/sport/164327-eddie-howe-assessed-newcastle-s-match-against-benfica.html)
+
+
+### lamine yamal (N/A, Tue, 21 Oct 2025 11:30:00 -0700)
+
+- **Spain: Lamine Yamal's private life, Luis de la Fuente impressed**: [Link](https://ca.sports.yahoo.com/news/spain-lamine-yamals-private-life-164500745.html)
+- **Luis de la Fuente ‘didn’t understand’ Hansi Flick’s complaints about Barcelona star Lamine Yamal**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/104122/luis-de-la-fuente-didnt-understand-hansi-flicks-complaints-about-barcelona-star-lamine-yamal)
+- **Barcelona and RFEF settle differences after weeks of tension – report**: [Link](https://barcauniversal.com/barcelona-and-rfef-settle-differences-after-weeks-of-tension-report/)
+
+
+### آرسنال ضد أتلتيكو مدريد (N/A, Tue, 21 Oct 2025 11:20:00 -0700)
+
+- **"المياه الساخنة" تفجّر أزمة بين أرسنال وأتلتيكو مدريد**: [Link](https://www.aljazeera.net/sport/2025/10/21/%D8%A7%D9%84%D9%85%D9%8A%D8%A7%D9%87-%D8%A7%D9%84%D8%B3%D8%A7%D8%AE%D9%86%D8%A9-%D8%AA%D9%81%D8%AC%D8%B1-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84)
+- **إعلان التشكيل الرسمي لموقعة آرسنال وأتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt1589a38f65fa8c46)
+- **أتلتيكو مدريد يقدم شكوى لـ"اليويفا" بسبب غياب الماء الساخن في ملعب أرسنال!**: [Link](https://m.elbotola.com/article/2025-10-21-11-08-936.html)
+
+
+### leverkusen – paris-sg (N/A, Tue, 21 Oct 2025 11:10:00 -0700)
+
+- **Bayer Leverkusen vs PSG: How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264451/bayer-leverkusen-vs-psg-how-to-watch-score-prediction/)
+- **Luis Enrique brutally claims Ousmane Dembele's Ballon d'Or 'means nothing' as PSG boss delivers update on injured forward ahead of Champions League clash with Bayer Leverkusen**: [Link](https://www.goal.com/en-om/lists/luis-enrique-ousmane-dembele-s-ballon-d-or-means-nothing/bltab6d91bb39121c3b)
+- **Sports - Marquinhos and Dembélé return as PSG face Leverkusen in Champions League**: [Link](https://www.france24.com/en/tv-shows/sports/20251021-marquinhos-and-demb%C3%A9l%C3%A9-return-as-psg-face-leverkusen-in-champions-league)
+
+
+### arsenal – atlético madrid (N/A, Tue, 21 Oct 2025 11:10:00 -0700)
+
+- **Every word from Arteta's pre-Atletico presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-atletico-presser)
+- **Champions League: Can Arsenal compete in all competitions? Plus latest team news**: [Link](https://www.bbc.com/sport/football/live/cgql0z9d9v3t)
+- **Arsenal vs Atlético Madrid: How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264440/arsenal-vs-atletico-madrid-how-to-watch-score-prediction/)
+
+
 ### olympiakos (N/A, Tue, 21 Oct 2025 10:20:00 -0700)
 
 - **Barcelona vs Olympiacos: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264505/barcelona-vs-olympiacos-match-preview-prediction/)
