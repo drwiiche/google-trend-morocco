@@ -1,3 +1,17 @@
+### سانت خيلويزي ضد الإنتر (N/A, Tue, 21 Oct 2025 13:20:00 -0700)
+
+- **مُدرب إنتر ميلان: طموحنا كبير في دوري أبطال أوروبا**: [Link](https://arabic.sport360.com/article/football/uefa/1348188/%D9%85%D9%8F%D8%AF%D8%B1%D8%A8-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B7%D9%85%D9%88%D8%AD%D9%86%D8%A7-%D9%83%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8)
+- **مؤتمر كيفو: هناك فرق لم تصل لنهائي أبطال أوروبا منذ 30 عاما**: [Link](https://www.akhbarak.net/news/details/48050892/3/%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D9%83%D9%8A%D9%81%D9%88-%D9%87%D9%86%D8%A7%D9%83-%D9%81%D8%B1%D9%82-%D9%84%D9%85-%D8%AA%D8%B5%D9%84-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D9%86%D8%B0-30-%D8%B9%D8%A7%D9%85%D8%A7)
+- **مدرب إنتر ميلان يكشف تفاصيل إصابة تورام ومدة غيابه عن الفريق**: [Link](https://www.elbalad.news/6738359)
+
+
+### استقبال المنتخب المغربي (N/A, Tue, 21 Oct 2025 13:10:00 -0700)
+
+- **تتويج الشبان في "مونديال الشيلي" يعد بدينامية جديدة للاقتصاد المغربي**: [Link](https://www.hespress.com/%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D9%86-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D9%8A%D9%84%D9%8A-%D9%8A%D8%B9%D8%AF-%D8%A8%D8%AF-1643102.html)
+- **رونالدو البرازيلي عن "الأشبال": "من الصعب الخسارة كبرازيلي لكن كرة القدم تمنحنا قصصا جميلة مثل قصة المغرب"**: [Link](https://m.elbotola.com/article/2025-10-21-16-44-874.html)
+- **ملك المغرب يحتفي بالإنجاز المونديالي.. واحتفالات ضخمة في الشوارع**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%84%D9%83-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A--%D9%88%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D8%A7%D8%AA-%D8%B6%D8%AE%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D8%B1%D8%B9/blt4d7e8928baaff22b)
+
+
 ### napoli (N/A, Tue, 21 Oct 2025 13:00:00 -0700)
 
 - **Moviola PSV-Napoli: contatto Schouten-Lucca in area poco prima del 2-1, niente rigore**: [Link](https://www.goal.com/it/liste/moviola-psv-napoli-contatto-schouten-lucca-in-area-poco-prima-del-2-1-niente-rigore/blt86aba5e1fcd83d56)
