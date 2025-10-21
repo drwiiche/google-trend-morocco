@@ -1,3 +1,10 @@
+### barça (N/A, Tue, 21 Oct 2025 06:20:00 -0700)
+
+- **Apuestas y pronósticos Barcelona vs Olympiacos: la 'china' de Mendilibar previa al Clásico**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/10/20/apuestas-pronosticos-barcelona-vs-olympiacos-china-mendilibar-previa-clasico.html)
+- **El Barça afronta un test ante el Olympiacos con un doble objetivo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251021/1002554340/barca-afronta-test-olympiacos-doble-objetivo.html)
+- **Del Camp Nou al Pireo: 10 jugadores que vistieron las camisetas del Barcelona y del Olympiacos**: [Link](https://tribuna.com/es/blogs/del-camp-nou-al-pireo-10-jugadores-que-vistieron-las-camiset/)
+
+
 ### u17 maroc (N/A, Tue, 21 Oct 2025 05:00:00 -0700)
 
 - **Nabil Baha dévoile la liste du Maroc pour la Coupe du monde U17 au Qatar**: [Link](https://medias24.com/2025/10/20/nabil-baha-devoile-la-liste-du-maroc-pour-la-coupe-du-monde-u17-au-qatar/)
