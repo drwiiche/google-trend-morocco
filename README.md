@@ -1,3 +1,10 @@
+### villarreal vs man city (N/A, Tue, 21 Oct 2025 11:50:00 -0700)
+
+- **Four changes for Villarreal clash**: [Link](https://onefootball.com/pt-br/noticias/four-changes-for-villarreal-clash-41837852)
+- **Marcelino Garcia Toral demanded character before Manchester City**: [Link](https://zamin.uz/en/sport/164329-marcelino-garcia-toral-demanded-character-before-manchester-city.html)
+- **Guardiola’s group are gaining confidence from consistent results**: [Link](https://www.vavel.com/en/football/2025/10/21/manchester-city/1238474-guardiolas-group-are-gaining-confidence-from-consistent-results.html)
+
+
 ### copenhague – dortmund (N/A, Tue, 21 Oct 2025 11:40:00 -0700)
 
 - **DIRECT. FC Copenhague-Borussia Dortmund (Ligue des champions 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/fc-copenhague-borussia-dortmund-live/685529)
