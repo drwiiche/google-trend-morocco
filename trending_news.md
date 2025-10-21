@@ -1,3 +1,10 @@
+### manchester city (N/A, Tue, 21 Oct 2025 12:50:00 -0700)
+
+- **Haaland scores again as Man City end winless away run**: [Link](https://www.bbc.com/sport/football/live/clykvkez43yt)
+- **Manchester City confirm 22-man travelling squad to face Villarreal in UEFA Champions League League Phase**: [Link](https://cityxtra.co.uk/36013/manchester-city-confirm-22-man-travelling-squad-to-face-villarreal-in-uefa-champions-league-league-phase/)
+- **Can't even stop the monster Holan, who has scored in 12 consecutive of**: [Link](https://en.sportschosun.com/sports/2025/10/cant-even-stop-monster-holan-who-has-118452)
+
+
 ### chatgpt atlas (N/A, Tue, 21 Oct 2025 14:10:00 -0700)
 
 - **Introducing ChatGPT Atlas**: [Link](https://openai.com/index/introducing-chatgpt-atlas/)
