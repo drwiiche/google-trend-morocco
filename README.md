@@ -1,3 +1,10 @@
+### dortmund (N/A, Tue, 21 Oct 2025 12:40:00 -0700)
+
+- **Die Fakten zum Spiel in Kopenhagen**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2025/10/19/Die-Fakten-zum-Spiel-in-Kopenhagen.html)
+- **Blick in BVB-Block verwundert: Warum die Fahnen verkehrt herum hängen**: [Link](https://www.waz.de/sport/borussia-dortmund/article410277394/blick-in-bvb-block-verwundert-warum-die-fahnen-verkehrt-herum-haengen.html)
+- **Hammer unter die Latte: Nmecha eröffnet sehenswert | Match-Clip Champions League | Video**: [Link](https://www.kicker.de/hammer-unter-die-latte-nmecha-eroeffnet-sehenswert-1157783/video)
+
+
 ### arsenal (N/A, Tue, 21 Oct 2025 11:40:00 -0700)
 
 - **Champions League LIVE: Scores & updates including Arsenal v Atletico Madrid & Villarreal v Manchester City**: [Link](https://www.bbc.com/sport/football/live/cn5q6rry9lpt)
