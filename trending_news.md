@@ -1,3 +1,17 @@
+### olympiakos (N/A, Tue, 21 Oct 2025 10:20:00 -0700)
+
+- **Barcelona vs Olympiacos: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264505/barcelona-vs-olympiacos-match-preview-prediction/)
+- **POTENTIAL PENALTY CHECK!**: [Link](https://www.besoccer.com/new/live-barcelona-v-olympiacos-1378116)
+- **From Camp Nou to Piraeus: 10 players who wore both Barcelona and Olympiacos shirts**: [Link](https://tribuna.com/en/blogs/from-camp-nou-to-piraeus-10-players-who-wore-both-barcelona/)
+
+
+### barca vs (N/A, Tue, 21 Oct 2025 10:00:00 -0700)
+
+- **Barcelona - Olympiacos hoy, en directo: Champions League, última hora en vivo**: [Link](https://as.com/futbol/champions/barcelona-olympiacos-hoy-en-directo-champions-league-ultima-hora-en-vivo-f202510-d/)
+- **Dro, en el once y un titular, en el banquillo ante el Olympiacos**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251021/1002554848/dro-aparece-once-barca-olympiacos.html)
+- **EN VIVO: Szczesny SALVA al Barça al segundo de juego**: [Link](https://onefootball.com/es/noticias/en-vivo-szczesny-salva-al-barca-al-segundo-de-juego-41836259)
+
+
 ### al-hilal – al sadd (N/A, Tue, 21 Oct 2025 10:30:00 -0700)
 
 - **Al-Hilal vs Al-Sadd Prediction for the Match on October 21, 2025**: [Link](https://www.telecomasia.net/sports-betting/tips/football/afc-champions-league/al-hilal-vs-al-sadd-prediction-for-the-match-on-october-21-2025/)
