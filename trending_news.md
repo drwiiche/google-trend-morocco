@@ -1,3 +1,10 @@
+### city (N/A, Tue, 21 Oct 2025 13:30:00 -0700)
+
+- **City News**: [Link](https://www.wilmingtonde.gov/Home/Components/News/News/7379/225)
+- **City of Negaunee issues conserve water notice**: [Link](https://www.uppermichiganssource.com/2025/10/21/city-negaunee-issues-conserve-water-notice/)
+- **Negaunee city residents told to conserve, boil water after leak was discovered**: [Link](https://www.myupnow.com/news/negaunee-city-residents-told-to-conserve-boil-water-after-leak-was-discovered/article_f904540d-c4b0-4811-85ac-cead99ba54bb.html)
+
+
 ### سانت خيلويزي ضد الإنتر (N/A, Tue, 21 Oct 2025 13:20:00 -0700)
 
 - **مُدرب إنتر ميلان: طموحنا كبير في دوري أبطال أوروبا**: [Link](https://arabic.sport360.com/article/football/uefa/1348188/%D9%85%D9%8F%D8%AF%D8%B1%D8%A8-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B7%D9%85%D9%88%D8%AD%D9%86%D8%A7-%D9%83%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8)
