@@ -1,3 +1,10 @@
+### classroom (N/A, Tue, 21 Oct 2025 01:10:00 -0700)
+
+- **‘Six-seven’: what does the latest slang mean (and should parents be worried)?**: [Link](https://www.theguardian.com/society/2025/oct/20/six-seven-latest-slang-should-parents-be-worried)
+- **What is ‘6-7’? Nothing. Literally, nothing.**: [Link](https://www.washingtonpost.com/style/trends/2025/10/21/six-seven-meme-gen-alpha/)
+- **The ‘6-7’ meme can be annoying. But kids are shouting it for good reason**: [Link](https://www.cnn.com/2025/10/18/us/6-7-meme-slang-explained-cec)
+
+
 ### sarkozy (N/A, Tue, 21 Oct 2025 00:10:00 -0700)
 
 - **Nicolas Sarkozy a rejoint la prison de la Santé pour y être incarcéré après sa condamnation dans l’affaire des financements libyens**: [Link](https://www.lemonde.fr/societe/article/2025/10/21/nicolas-sarkozy-a-rejoint-la-prison-de-la-sante-pour-y-etre-incarcere-apres-sa-condamnation-dans-l-affaire-des-financements-libyens_6648324_3225.html)
