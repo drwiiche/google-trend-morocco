@@ -1,3 +1,24 @@
+### عبد القادر مطاع (N/A, Tue, 21 Oct 2025 09:20:00 -0700)
+
+- **الموت يغيب الفنان عبد القادر مطاع**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D8%B1-%D9%85%D8%B7%D8%A7%D8%B9-1643608.html)
+- **وفاة الفنان عبد القادر مطاع عن عمر ناهز 85 عاما**: [Link](https://al3omk.com/1110113.html)
+- **رحيل الفنان عبد القادر مطاع بعد صراع مع المرض عن عمر يناهز 86 سنة**: [Link](https://24saa.com/%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D8%B1-%D9%85%D8%B7%D8%A7%D8%B9-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%B9/)
+
+
+### barcelona vs olympiacos (N/A, Tue, 21 Oct 2025 09:00:00 -0700)
+
+- **Barcelona vs Olympiacos: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264505/barcelona-vs-olympiacos-match-preview-prediction/)
+- **FC Barcelona implements the 'Security and Control Protocol for away fans' for the high-risk match against Olympiacos**: [Link](https://www.fcbarcelona.com/en/club/news/4386087/fc-barcelona-implements-the-security-and-control-protocol-for-away-fans-for-the-high-risk-match-against-olympiacos)
+- **From Camp Nou to Piraeus: 10 players who wore both Barcelona and Olympiacos shirts**: [Link](https://tribuna.com/en/blogs/from-camp-nou-to-piraeus-10-players-who-wore-both-barcelona/)
+
+
+### ligue des champions (N/A, Tue, 21 Oct 2025 09:00:00 -0700)
+
+- **LdC : la malédiction du Sporting CP face à l’OM se poursuit !**: [Link](https://www.footmercato.net/a4520343973928976941-ldc-la-malediction-du-sporting-cp-face-a-lom-se-poursuit)
+- **L’OM fait mentir les chiffres, vers un retour en grâce en Ligue des champions ?**: [Link](https://www.onzemondial.com/ligue-des-champions/lom-fait-mentir-les-chiffres-vers-un-retour-en-grace-en-ligue-des-champions-969827)
+- **"Le plus important est de rester concentré", prévient le jeune Quenda avant d'affronter l'OM**: [Link](https://www.flashscore.fr/actualites/football-ligue-des-champions-le-plus-important-est-de-rester-concentre-previent-le-jeune-quenda-avant-d-affronter-l-om/K8qW8Ow0/)
+
+
 ### barcelone – olympiakos (N/A, Tue, 21 Oct 2025 09:00:00 -0700)
 
 - **Barça : le groupe contre l’Olympiacos, avec un grand absent**: [Link](https://www.footmercato.net/a8766905968503231143-barca-le-groupe-contre-lolympiacos-avec-un-grand-absent)
