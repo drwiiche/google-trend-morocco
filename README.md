@@ -1,3 +1,10 @@
+### dro fernández (N/A, Tue, 21 Oct 2025 09:40:00 -0700)
+
+- **Apuestas y pronósticos Barcelona vs Olympiacos: la 'china' de Mendilibar previa al Clásico**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/10/20/apuestas-pronosticos-barcelona-vs-olympiacos-china-mendilibar-previa-clasico.html)
+- **Posible alineación del Barcelona hoy ante el Olympiacos en Champions League**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-olympiakos-fermin-y-araujo-piden-paso-f202510-n/)
+- **Llegada de los jugadores del Barça a Montjuïc**: [Link](https://www.mundodeportivo.com/videos/fc-barcelona/20251021/1002554868/llegada-jugadores-barca-montjuic.html)
+
+
 ### عبد القادر مطاع (N/A, Tue, 21 Oct 2025 09:20:00 -0700)
 
 - **الموت يغيب الفنان عبد القادر مطاع**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D8%B1-%D9%85%D8%B7%D8%A7%D8%B9-1643608.html)
