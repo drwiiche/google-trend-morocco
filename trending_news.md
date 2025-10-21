@@ -1,3 +1,10 @@
+### stake (N/A, Mon, 20 Oct 2025 19:30:00 -0700)
+
+- **New Stake.us Originals Game: Tarot Now Live**: [Link](https://www.dimers.com/sweepstakes-casinos/loot/new-stakeus-originals-game-tarot-now-live)
+- **KKR, Quadrantis to Acquire Minority Stake in Hong Kong’s Peak Re**: [Link](https://www.bloomberg.com/news/articles/2025-10-21/kkr-quadrantis-to-acquire-minority-stake-in-hong-kong-s-peak-re)
+- **Peak Re Welcomes KKR and Quadrantis Capital as Minority Investors**: [Link](https://finance.yahoo.com/news/peak-welcomes-kkr-quadrantis-capital-010500402.html)
+
+
 ### المديرية العامة للأرصاد الجوية (N/A, Mon, 20 Oct 2025 18:40:00 -0700)
 
 - **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-42-1642423.html)
