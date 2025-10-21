@@ -1,3 +1,10 @@
+### abdelkader moutaa (N/A, Tue, 21 Oct 2025 10:00:00 -0700)
+
+- **Le comédien Abdelkader Moutaa s’est éteint**: [Link](https://www.leconomiste.com/flash-infos/le-comedien-abdelkader-moutaa-sest-eteint/)
+- **Le comédien Abdelkader Moutaa est décédé**: [Link](https://fr.le360.ma/culture/le-comedien-abdelkader-moutaa-est-decede_XLNEIE6BORGPFGUQB66HYHQ2IM/)
+- **Décès du comédien Abdelkader Moutaa, pilier du théâtre et de la télévision marocains**: [Link](https://fr.hespress.com/446330-deces-du-comedien-abdelkader-moutaa-pilier-du-theatre-et-de-la-television-marocains.html)
+
+
 ### maroc algérie (N/A, Tue, 21 Oct 2025 09:50:00 -0700)
 
 - **Comment Washington veut imposer un « accord de paix » entre Alger et Rabat**: [Link](https://www.lepoint.fr/monde/comment-washington-veut-imposer-un-accord-de-paix-entre-alger-et-rabat-20-10-2025-2601381_24.php)
