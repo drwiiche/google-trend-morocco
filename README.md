@@ -1,3 +1,17 @@
+### flashscore (N/A, Tue, 21 Oct 2025 12:20:00 -0700)
+
+- **Champions League LIVE: Scores & updates including Arsenal v Atletico Madrid & Villarreal v Manchester City**: [Link](https://www.bbc.com/sport/football/live/cn5q6rry9lpt)
+- **And what about tomorrow?**: [Link](https://www.nytimes.com/athletic/live-blogs/arsenal-vs-atletico-madrid-live-updates-champions-league-score-result/U6lIf2KeoLcv/SdN3tKss6PMv/)
+- **PSG, Barcelona, Man City and Arsenal all in action in the Champions League**: [Link](https://www.yourbasin.com/sports/ap-psg-barcelona-man-city-and-arsenal-all-in-action-in-the-champions-league/)
+
+
+### inter milan (N/A, Tue, 21 Oct 2025 12:20:00 -0700)
+
+- **Union St.Gilloise vs Inter Milan – Match preview and team news**: [Link](https://thefootballfaithful.com/union-st-gilloise-vs-inter-milan-match-preview-and-team-news/)
+- **Belgium Soccer Champions League**: [Link](https://lufkindailynews.com/anpa/sports/belgium-soccer-champions-league/image_1e25e265-f887-5633-b329-72a51c28df18.html)
+- **Sommer: ‘A great team gets up after a difficult moment’**: [Link](https://football-italia.net/inter-sommer-a-great-team-gets-up/)
+
+
 ### genybet (N/A, Tue, 21 Oct 2025 12:10:00 -0700)
 
 - **Les pronos hippiques du mardi 21 octobre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-21-octobre-2025_AN-202510200362.html)
