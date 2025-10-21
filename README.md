@@ -1,3 +1,10 @@
+### cambriolage musee du louvre bijoux (N/A, Mon, 20 Oct 2025 17:10:00 -0700)
+
+- **Au lendemain du cambriolage éclair du Louvre, la direction du musée et le ministère de la culture sous pression**: [Link](https://www.lemonde.fr/culture/article/2025/10/20/au-lendemain-du-cambriolage-eclair-du-louvre-la-direction-du-musee-et-le-ministere-de-la-culture-sous-pression_6648301_3246.html)
+- **Vol des bijoux du Louvre à Paris : la traque est lancée, le musée reste fermé lundi**: [Link](https://mobile.telquel.ma/instant-t/2025/10/20/vol-des-bijoux-du-louvre-a-paris-la-traque-est-lancee-le-musee-reste-ferme-lundi_1956522/)
+- **Le musée du Louvre cible d’un braquage ce dimanche, des bijoux dérobés**: [Link](https://www.leparisien.fr/paris-75/le-musee-du-louvre-cible-dun-braquage-ce-dimanche-le-site-ferme-au-public-19-10-2025-DQII6PEIVVEDBM5KQMHDSCF6IM.php)
+
+
 ### kick (N/A, Mon, 20 Oct 2025 16:40:00 -0700)
 
 - **Tension at Real Madrid: Franco Mastantuono Frustrated After Free-Kick Dispute With David Alaba**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/tension-at-real-madrid-franco-mastantuono-frustrated-after-free-kick-dispute-with-david-alaba-2025-10-20)
