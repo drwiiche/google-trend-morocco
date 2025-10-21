@@ -1,3 +1,10 @@
+### chatgpt atlas (N/A, Tue, 21 Oct 2025 14:10:00 -0700)
+
+- **Introducing ChatGPT Atlas**: [Link](https://openai.com/index/introducing-chatgpt-atlas/)
+- **OpenAI’s new browser puts Google in the hot seat, and Alphabet’s stock drops**: [Link](https://www.marketwatch.com/story/openais-new-browser-puts-google-in-the-hot-seat-and-alphabets-stock-drops-b3357f53?gaa_at=eafs&gaa_n=AWEtsqfEsTIRiuL6tWHzNfwwCby17C5PhOa-Szd5uIAz24AI_BjY6bqi9xHJ&gaa_ts=68f7ff63&gaa_sig=3FwuHinnctsTmNmiEdxmpavyqFJ5h1W5N_1pNmcaBtKnClOYsLYDr6I9862Tbl_EcdcFzXU-3dJ__TYpoGphWQ%3D%3D)
+- **OpenAI’s AI-powered browser, ChatGPT Atlas, is here**: [Link](https://www.theverge.com/ai-artificial-intelligence/803475/openais-ai-powered-browser-chatgpt-atlas-google-chrome-competition-agent)
+
+
 ### psv (N/A, Tue, 21 Oct 2025 13:40:00 -0700)
 
 - **De Bruyne op bezoek bij PSV, volgens trainer Bosz 'een van de grootste voetballers ooit'**: [Link](https://nos.nl/artikel/2587224-de-bruyne-op-bezoek-bij-psv-volgens-trainer-bosz-een-van-de-grootste-voetballers-ooit)
