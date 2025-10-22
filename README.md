@@ -1,3 +1,10 @@
+### موناكو ضد توتنهام (N/A, Wed, 22 Oct 2025 13:30:00 -0700)
+
+- **توتنهام في اختبار الشخصية الأوروبية.. وموناكو يتسلح بداير وذكريات 2016**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9--%D9%88%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%8A%D8%AA%D8%B3%D9%84%D8%AD-%D8%A8%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-2016/blt9f2ef2350d1e5c45)
+- **موناكو وتوتنهام في دوري أبطال أوروبا 2025.. الموعد والقنوات الناقلة**: [Link](https://almashhadalaraby.com/news/533887)
+- **ريتشارليسون أساسيا في تشكيل توتنهام أمام موناكو**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=22102025&id=4fe2805d-8c9e-484a-bc95-ce743d1a82bc)
+
+
 ### monaco fc (N/A, Wed, 22 Oct 2025 13:30:00 -0700)
 
 - **Why Paul Pogba is not playing for Monaco vs Tottenham in Champions League as major update emerges**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/paul-pogba-not-playing-monaco-32723403)
