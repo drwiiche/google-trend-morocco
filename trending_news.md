@@ -1,3 +1,31 @@
+### ldc (N/A, Wed, 22 Oct 2025 13:00:00 -0700)
+
+- **DIRECT. Galatasaray-Bodo/Glimt (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/galatasaray-bodo-glimt-live/685535)
+- **PRONOS PARIS RMC Le pari à domicile du 22 octobre – Ligue des Champions**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-22-octobre-ligue-des-champions_AN-202510210647.html)
+- **LdC : Galatasaray domine Bodø/Glimt grâce à Osimhen, Bilbao brise les rêves de Qarabag**: [Link](https://www.footmercato.net/a8360224666011964883-ldc-galatasaray-domine-bodo-glimt-grace-a-osimhen-bilbao-brise-les-reves-de-qarabag)
+
+
+### liverpool (N/A, Wed, 22 Oct 2025 12:50:00 -0700)
+
+- **Jeremie Frimpong left gutted after suffering early injury in latest Arne Slot problem**: [Link](https://www.dailystar.co.uk/sport/football/breaking-jeremie-frimpong-liverpool-injury-36117066)
+- **Liverpool suffer new injury blow as Crystal Palace and Aston Villa games loom**: [Link](https://www.liverpoolworld.uk/sport/football/liverpool/liverpool-suffer-new-injury-blow-as-crystal-palace-and-aston-villa-games-loom-5371386)
+- **Liverpool FC handed major blow as Jeremie Frimpong suffers fresh injury**: [Link](https://www.standard.co.uk/sport/football/liverpool-fc-frimpong-injury-latest-b1254399.html)
+
+
+### ترتيب دوري أبطال أوروبا (N/A, Wed, 22 Oct 2025 12:50:00 -0700)
+
+- **سباعية ضمن 43 طلقة.. هل سجل دوري الأبطال ليلة تهديفية قياسية؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%B6%D9%85%D9%86-43-%D8%B7%D9%84%D9%82%D8%A9--%D9%87%D9%84-%D8%B3%D8%AC%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D9%84%D9%8A%D9%84%D8%A9-%D8%AA%D9%87%D8%AF%D9%8A%D9%81%D9%8A%D8%A9-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9/blta263a296815a3414)
+- **رقم قياسي بعدد الأهداف في ليلة واحدة بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2025/10/22/%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%A8%D8%B9%D8%AF%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D8%A8%D9%84%D9%8A%D9%84%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-%D9%81%D9%8A)
+- **8 انتصارات و43 هدفاً في ليلة "الأبطال"**: [Link](https://24.ae/article/925507/8-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D9%8843-%D9%87%D8%AF%D9%81%D8%A7%D9%8B-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-)
+
+
+### chelsea (N/A, Wed, 22 Oct 2025 12:40:00 -0700)
+
+- **Champions League LIVE: Chelsea vs Ajax, Frankfurt vs Liverpool, Monaco vs Tottenham - scores & radio**: [Link](https://www.bbc.com/sport/football/live/c1kwp92z2l3t)
+- **Real Madrid vs Juventus: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264666/real-madrid-vs-juventus-match-preview-prediction/)
+- **Preview: Los Blancos take on the Old Lady in clash of European royalty**: [Link](https://www.fotmob.com/sv/topnews/23502-preview-los-blancos-take-old-lady-clash-european-royalty?utm_source=fotmob)
+
+
 ### bet365 (N/A, Wed, 22 Oct 2025 12:40:00 -0700)
 
 - **Miami Heat vs Orlando Magic: bet365 Bonus Code "LSBONUS" $200 Welcome Offer**: [Link](https://www.livescore.com/en/news/nba/promos/miami-heat-at-orlando-magic-bet365-bonus-code/)
