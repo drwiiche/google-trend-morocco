@@ -1,3 +1,10 @@
+### ترتيب دوري ابطال اوروبا (N/A, Wed, 22 Oct 2025 14:00:00 -0700)
+
+- **رقم قياسي بعدد الأهداف في ليلة واحدة بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2025/10/22/%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%A8%D8%B9%D8%AF%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D8%A8%D9%84%D9%8A%D9%84%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-%D9%81%D9%8A)
+- **سباعية ضمن 43 طلقة.. هل سجل دوري الأبطال ليلة تهديفية قياسية؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%B6%D9%85%D9%86-43-%D8%B7%D9%84%D9%82%D8%A9--%D9%87%D9%84-%D8%B3%D8%AC%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D9%84%D9%8A%D9%84%D8%A9-%D8%AA%D9%87%D8%AF%D9%8A%D9%81%D9%8A%D8%A9-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9/blta263a296815a3414)
+- **مواعيد مباريات اليوم الأربعاء 22-10-2025 والقنوات الناقلة.. مواجهات قوية في دوري أبطال أوروبا**: [Link](https://www.almasryalyoum.com/news/details/3581563)
+
+
 ### marseille fc (N/A, Wed, 22 Oct 2025 13:40:00 -0700)
 
 - **LdC : Paris, l'Inter et Arsenal au sommet d'une soirée record**: [Link](https://fr.hespress.com/446395-ldc-paris-linter-et-arsenal-au-sommet-dune-soiree-record.html)
