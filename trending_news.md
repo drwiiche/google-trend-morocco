@@ -1,3 +1,17 @@
+### loi de finances 2026 (N/A, Tue, 21 Oct 2025 17:40:00 -0700)
+
+- **PLF2026. Un budget record de 42,4 MMDH pour le ministère de la Santé**: [Link](https://medias24.com/2025/10/20/plf2026-un-budget-record-de-424-mmdh-pour-le-ministere-de-la-sante/)
+- **PLF 2026 : Ce que prévoit l'Etat pour le monde rural, l'éducation, la santé et l'emploi**: [Link](https://lematin.ma/economie/plf-2026-ce-qui-est-prevu-pour-le-rural-leducation-la-sante-et-lemploi/308743)
+- **PLF 2026 : le gouvernement relève les droits de douane sur l’électroménager et le textile**: [Link](https://mobile.telquel.ma/instant-t/2025/10/21/plf-2026-le-gouvernement-releve-les-droits-de-douane-sur-lelectromenager-et-le-textile_1956741/)
+
+
+### stake (N/A, Tue, 21 Oct 2025 17:10:00 -0700)
+
+- **Six Flags stock soars 17% after Travis Kelce joins activist campaign with hedge fund Jana Partners**: [Link](https://finance.yahoo.com/news/six-flags-stock-soars-17-after-travis-kelce-joins-activist-campaign-with-hedge-fund-jana-partners-200158514.html)
+- **Chiefs star Travis Kelce’s latest venture is literal roller coaster**: [Link](https://www.nytimes.com/athletic/6738088/2025/10/21/travis-kelce-jana-partners-six-flags-investment/)
+- **Travis Kelce joins activist investor Jana Partners in push to revive Six Flags**: [Link](https://www.cnbc.com/2025/10/21/travis-kelce-joins-activist-investor-jana-partners-in-push-to-revive-six-flags.html)
+
+
 ### nba (N/A, Tue, 21 Oct 2025 16:40:00 -0700)
 
 - **Top Memes and Reaction to Kevin Durant, Rockets' 'All-Tall' Starting 5 After Trade**: [Link](https://bleacherreport.com/articles/25262939-top-memes-and-reaction-kevin-durant-rockets-all-tall-starting-5-after-trade)
