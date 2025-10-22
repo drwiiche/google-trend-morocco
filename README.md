@@ -1,3 +1,10 @@
+### galatasaray – bodø/glimt (N/A, Wed, 22 Oct 2025 09:30:00 -0700)
+
+- **Galatasaray vs Bodo/Glimt – How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264623/galatasaray-vs-bodo-glimt-how-to-watch-score-prediction/)
+- **Discover the Fascinating World of Kök Söktürdü**: [Link](https://emegypt.net/1018599)
+- **Osimhen Poised to Shatter Galatasaray’s European Scoring Record**: [Link](https://www.footballinnigeria.com.ng/football-events-and-tournaments/osimhen-poised-to-shatter-galatasarays-european-scoring-record/)
+
+
 ### ath. bilbao – fk qarabag (N/A, Wed, 22 Oct 2025 09:00:00 -0700)
 
 - **Athletic Club seek first Champions League points against in-form Qarabağ**: [Link](https://anewz.tv/world/world-news/14522/athletic-club-seek-first-champions-league-points-against-in/news)
