@@ -1,3 +1,24 @@
+### real madrid (N/A, Wed, 22 Oct 2025 12:00:00 -0700)
+
+- **Real Madrid - Juventus, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/real-madrid-juventus-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202510-d/)
+- **El equipo se está entrenando**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-21-10-2025)
+- **Brahim por Mastantuono, novedad en el once de Xabi; Vlahovic, en punta en el Juventus**: [Link](https://es-us.noticias.yahoo.com/deportes/brahim-mastantuono-novedad-once-xabi-182317220.html)
+
+
+### match real (N/A, Wed, 22 Oct 2025 12:00:00 -0700)
+
+- **DIRECT. Real Madrid-Juventus Turin (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/real-madrid-juventus-turin-live/685541)
+- **Real Madrid - Juventus : les compositions officielles**: [Link](https://www.footmercato.net/a1063512211277616418-real-madrid-juventus-les-compositions-officielles)
+- **Xabi Alonso : "Nous sommes prêts, avec l'envie de décrocher une troisième victoire en Ligue des Champions"**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/conference-de-presse/xabi-alonso-21-10-2025)
+
+
+### juventus (N/A, Wed, 22 Oct 2025 11:30:00 -0700)
+
+- **Tudor: "Ma quale crisi Juve, è un calendario folle. E se l'arbitro di Verona... Ora facciamo male al Real"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/21-10-2025/champions-tudor-conferenza-stampa-pre-real.shtml)
+- **Real Madrid-Juventus: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/champions/22-10-2025/real-madrid-juventus/2601841/)
+- **Tudor: “La mia richiesta alla Juve. Locatelli fuori? Come dico sempre…”**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/10/22-143982026/tudor_la_mia_richiesta_alla_juve_locatelli_fuori_come_dico_sempre)
+
+
 ### آينتراخت ضد ليفربول (N/A, Wed, 22 Oct 2025 11:40:00 -0700)
 
 - **سلوت يعلن إصابة نجم ليفربول: غيابه سيؤثر علينا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%86%D8%AC%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%BA%D9%8A%D8%A7%D8%A8%D9%87-%D8%B3%D9%8A%D9%88%D9%94%D8%AB%D8%B1-%D8%B9%D9%84%D9%8A%D9%86%D8%A7/blt840ea3199838ab3c)
