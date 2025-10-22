@@ -1,3 +1,24 @@
+### brigitte bardot (N/A, Wed, 22 Oct 2025 13:20:00 -0700)
+
+- **«Mon BBcédaire» : le testament de littéraire de Brigitte Bardot**: [Link](https://www.lejdd.fr/culture/mon-bbcedaire-le-testament-de-litteraire-de-brigitte-bardot-163245)
+- **État préoccupant, « intervention dans le cadre d’une maladie grave » : Brigitte Bardot hospitalisée à Toulon**: [Link](https://www.nicematin.com/culture/brigitte-bardot-hospitalisee-a-toulon-10652805)
+- **Brigitte Bardot hospitalisée à Toulon**: [Link](https://www.francebleu.fr/infos/medias-people/brigitte-bardot-hospitalisee-a-toulon-6646368)
+
+
+### atalanta (N/A, Wed, 22 Oct 2025 13:20:00 -0700)
+
+- **Preview:Atalanta BC vs. Slavia Prague - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/champions-league/preview/atalanta-vs-slavia-prague-prediction-team-news-lineups_583975.html)
+- **Atalanta vs Slavia Praha: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.ladbrokes.com/en/news/match-preview-atalanta-slavia-praha-champions-league-gameweek-3/)
+- **Juric: ‘Hope Atalanta can be more clinical in final third’**: [Link](https://football-italia.net/juric-hope-atalanta-can-be-more-clinical-final/)
+
+
+### أنس صلاح الدين (N/A, Wed, 22 Oct 2025 13:10:00 -0700)
+
+- **المغرب يوجه صفعة لهولندا ويربح معركة أنس صلاح الدين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D8%AC%D9%87-%D8%B5%D9%81%D8%B9%D8%A9-%D9%84%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D9%88%D9%8A%D8%B1%D8%A8%D8%AD-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%94%D9%86%D8%B3-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AF%D9%8A%D9%86/blt2b167d7db5363909)
+- **أنس صلاح الدين يحصل على الضوء الأخضر من « فيفا » لتمثيل المنتخب المغربي – اليوم 24**: [Link](https://alyaoum24.com/1990380.html)
+- **تحقَّق وعد الركراكي.. لاعب هولندي من أصول مغربية يغير جنسيته الرياضية للالتحاق بأسود الأطلس**: [Link](https://www.akhbarona.com/sport/lionatlas/415034.html)
+
+
 ### ldc (N/A, Wed, 22 Oct 2025 13:00:00 -0700)
 
 - **DIRECT. Galatasaray-Bodo/Glimt (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/galatasaray-bodo-glimt-live/685535)
