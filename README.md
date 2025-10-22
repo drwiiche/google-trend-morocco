@@ -1,3 +1,17 @@
+### eintracht frankfurt vs liverpool (N/A, Wed, 22 Oct 2025 12:10:00 -0700)
+
+- **Champions League LIVE: Chelsea vs Ajax, Frankfurt vs Liverpool, Monaco vs Tottenham - scores & radio**: [Link](https://www.bbc.com/sport/football/live/c1kwp92z2l3t)
+- **Eintracht Frankfurt boss makes Hugo Ekitike admission: “I expect him…”**: [Link](https://www.daveockop.com/latest-news/eintracht-frankfurt-boss-makes-hugo-ekitike-admission/)
+- **How to watch Eintracht Frankfurt vs. Liverpool on TV & online**: [Link](https://www.thisisanfield.com/2025/10/watch-eintracht-frankfurt-vs-liverpool-live-online-streams-and-tv-info/)
+
+
+### مباراة ريال مدريد (N/A, Wed, 22 Oct 2025 12:00:00 -0700)
+
+- **المغامرة مرفوضة.. ثنائي برشلونة يقترب من الغياب عن الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/bltd3b7b4530f33b4f3)
+- **موقف خوان غارسيا و اولمو من اللحاق بالكلاسيكو**: [Link](https://hihi2.com/2025/10/22/p3438771.html)
+- **بشرى سارة في تدريبات برشلونة قبل مواجهة ريال مدريد**: [Link](https://www.btolat.com/news/382971)
+
+
 ### real madrid (N/A, Wed, 22 Oct 2025 12:00:00 -0700)
 
 - **Real Madrid - Juventus, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/real-madrid-juventus-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202510-d/)
