@@ -1,3 +1,24 @@
+### سبورتينغ ضد أولمبيك مارسيليا (N/A, Wed, 22 Oct 2025 12:30:00 -0700)
+
+- **سواريز يتحدث عن تجربته الصعبة في مارسيليا**: [Link](https://alamriyadi.com/%D8%B3%D9%88%D8%A7%D8%B1%D9%8A%D8%B2-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D8%AA%D8%AC%D8%B1%D8%A8%D8%AA%D9%87-%D8%A7%D9%84%D8%B5%D8%B9%D8%A8%D8%A9-%D9%81%D9%8A-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A/)
+- **تعرف على موعد مباراة سبورتينغ لشبونة ومارسيليا بدوري أبطال أوروبا**: [Link](https://www.almashhad.news/349088)
+- **الآن.. مباشر مباراة سبورتنج لشبونة ومارسيليا (0-0) في دوري أبطال أوروبا**: [Link](https://www.masrtimes.com/608662)
+
+
+### البايرن ضد كلوب بروج (N/A, Wed, 22 Oct 2025 12:30:00 -0700)
+
+- **رحلات الشؤم.. بروج في اختبار جديد أمام الحصن البافاري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%AD%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D9%88%D9%94%D9%85--%D8%A8%D8%B1%D9%88%D8%AC-%D9%81%D9%8A-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AD%D8%B5%D9%86-%D8%A7%D9%84%D8%A8%D8%A7%D9%81%D8%A7%D8%B1%D9%8A/blt7217fb026a6fa5f8)
+- **فينسنت كومباني يتذكر تعرضه للعنصرية**: [Link](https://www.hesport.com/%D9%81%D9%8A%D9%86%D8%B3%D9%86%D8%AA-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AA%D8%B0%D9%83%D8%B1-%D8%AA%D8%B9%D8%B1%D8%B6%D9%87-%D9%84%D9%84%D8%B9%D9%86%D8%B5%D8%B1%D9%8A%D8%A9-409349.html)
+- **ماذا قدم لويس دياز في دوري أبطال أوروبا هذا الموسم ؟**: [Link](https://hihi2.com/2025/10/22/p3438750.html)
+
+
+### om (N/A, Wed, 22 Oct 2025 12:30:00 -0700)
+
+- **Windsor wordt gevraagd om de perfecte rijder samen te stellen: 'Dan zeg je toch gewoon Verstappen?'**: [Link](https://www.f1maximaal.nl/formule-1/windsor-wordt-gevraagd-om-de-perfecte-rijder-samen-te-stellen-dan-zeg-je-toch-gewoon-verstappen)
+- **Windsor ziet Verstappen 'verwarring zaaien' bij McLaren**: [Link](https://www.gpblog.com/nl/nieuws/windsor-ziet-verstappen-verwarring-zaaien-bij-mclaren)
+- **Windsor zet in op 'het grootste moment' ooit voor Verstappen: 'Een soort laserstraal'**: [Link](https://www.msn.com/nl-nl/nieuws/overig/windsor-zet-in-op-het-grootste-moment-ooit-voor-verstappen-een-soort-laserstraal/ar-AA1OTUpC)
+
+
 ### تشيلسي ضد أياكس (N/A, Wed, 22 Oct 2025 12:20:00 -0700)
 
 - **تشيلسي يتسلح بلغة الأرقام.. وأياكس لتجنب بداية كارثية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D8%AA%D8%B3%D9%84%D8%AD-%D8%A8%D9%84%D8%BA%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85--%D9%88%D8%A7%D9%94%D9%8A%D8%A7%D9%83%D8%B3-%D9%84%D8%AA%D8%AC%D9%86%D8%A8-%D8%B1%D9%82%D9%85-%D9%83%D8%A7%D8%B1%D8%AB%D9%8A/blt132821b54c4059ac)
