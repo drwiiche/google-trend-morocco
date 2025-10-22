@@ -1,3 +1,38 @@
+### ucl (N/A, Wed, 22 Oct 2025 14:00:00 -0700)
+
+- **Galatasaray vs Bodø / Glimt: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cpd2nqydpl1t)
+- **Galatasaray vs Bodo/Glimt – How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264623/galatasaray-vs-bodo-glimt-how-to-watch-score-prediction/)
+- **APTOPIX Turkey Soccer Champions League**: [Link](https://www.couriernews.com/sports/aptopix-turkey-soccer-champions-league/image_b0ebeb77-e7b6-5dd7-90a6-f2fb5e154d12.html)
+
+
+### classement champions league (N/A, Wed, 22 Oct 2025 14:00:00 -0700)
+
+- **Bayer Leverkusen 2-7 PSG, Ligue des champions : résumé du match (21/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/bayer-leverkusen-psg-live/685528)
+- **«Sans pitié», «leçon de football», «bêtes sauvages» : l’Europe estomaquée par le PSG contre Leverkusen**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-champions/sans-pitie-lecon-de-football-betes-sauvages-l-europe-estomaquee-par-le-psg-contre-leverkusen-20251022)
+- **"Je ne suis pas loin de signer le back-to-back" : Riolo imagine déjà ce PSG capable du doublé en Ligue des champions**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/je-ne-suis-pas-loin-de-signer-le-back-to-back-riolo-imagine-deja-ce-psg-capable-du-double-en-ligue-des-champions_AV-202510220116.html)
+
+
+### clasico real vs barça (N/A, Wed, 22 Oct 2025 14:00:00 -0700)
+
+- **¿Cuáles son los precios de las entradas para el Clásico entre el Real Madrid y el FC Barcelona?**: [Link](https://www.si.com/es-us/futbol/cuales-son-los-precios-de-las-entradas-para-el-clasico-entre-el-real-madrid-y-el-fc-barcelona)
+- **Real Madrid vs Barcelona: Horario y como ver el Clásico por TV en Estados Unidos**: [Link](https://www.dallasnews.com/espanol/al-dia/2025/10/22/real-madrid-barcelona-horario-en-estados-unidos-tv-como-ver-futbol/)
+- **El Clásico 2025/26: "La batalla por el trono" en el Santiago Bernabéu**: [Link](https://www.vietnam.vn/es/el-clasico-2025-26-cuoc-chien-vuong-quyen-tai-santiago-bernabeu)
+
+
+### ajax (N/A, Wed, 22 Oct 2025 14:00:00 -0700)
+
+- **Uitvak ontploft na wissel: ‘Johnny rot op’ klinkt massaal in Londen**: [Link](https://www.voetbalprimeur.nl/nieuws/1704415/ajax-fans-woedend-na-wissel-gloukh-tegen-chelsea-johnny-rot-op-klinkt-luid.html)
+- **Live Champions League | Recordnederlaag dreigt voor tiental Ajax tegen Chelsea**: [Link](https://www.nu.nl/voetbal/6373326/live-champions-league-ploeterend-ajax-begonnen-aan-uitduel-met-chelsea.html)
+- **Gakpo en Van Dijk wijzen Liverpool de weg in Duitsland • Real wint topper van Juventus**: [Link](https://nos.nl/liveblog/2587412-gakpo-en-van-dijk-wijzen-liverpool-de-weg-in-duitsland-real-wint-topper-van-juventus)
+
+
+### marseille (N/A, Wed, 22 Oct 2025 14:00:00 -0700)
+
+- **La femme filmée en train d’être violentée par des policiers à Marseille, en marge de la mobilisation du 18 septembre, a porté plainte**: [Link](https://www.lemonde.fr/societe/article/2025/10/22/la-femme-filmee-en-train-d-etre-violentee-par-des-policiers-en-marge-de-la-mobilisation-du-18-septembre-a-marseille-a-porte-plainte_6648879_3224.html)
+- **Clémence, victime de violences policières à Marseille, porte plainte**: [Link](https://www.mediapart.fr/journal/france/221025/clemence-victime-de-violences-policieres-marseille-porte-plainte)
+- **Frappée par des policiers en marge d'une manifestation à Marseille, une jeune femme dépose plainte**: [Link](https://www.laprovence.com/article/faits-divers-justice/1423197346312314/frappee-par-des-policiers-en-marge-dune-manifestation-a-marseille-une-jeune-femme-depose-plainte)
+
+
 ### موناكو ضد توتنهام (N/A, Wed, 22 Oct 2025 13:30:00 -0700)
 
 - **توتنهام في اختبار الشخصية الأوروبية.. وموناكو يتسلح بداير وذكريات 2016**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9--%D9%88%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%8A%D8%AA%D8%B3%D9%84%D8%AD-%D8%A8%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-2016/blt9f2ef2350d1e5c45)
