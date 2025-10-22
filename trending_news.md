@@ -1,3 +1,17 @@
+### ath. bilbao – fk qarabag (N/A, Wed, 22 Oct 2025 09:00:00 -0700)
+
+- **Athletic Club seek first Champions League points against in-form Qarabağ**: [Link](https://anewz.tv/world/world-news/14522/athletic-club-seek-first-champions-league-points-against-in/news)
+- **Former player of "Qarabağ" who played against "Atletik": I am also among those who think so.**: [Link](https://medianews.az/en/qarabagin-atletike-qarsi-oynamis-sabiq-futbolcusu)
+- **“Qarabağ”'s match today will be equivalent to a final - Football commentator**: [Link](https://modern.az/en/idman/540031/qarabags-match-today-will-be-equivalent-to-a-final-football-commentator/)
+
+
+### sahara marocain (N/A, Wed, 22 Oct 2025 08:50:00 -0700)
+
+- **Comment Washington veut imposer un « accord de paix » entre Alger et Rabat**: [Link](https://www.lepoint.fr/monde/comment-washington-veut-imposer-un-accord-de-paix-entre-alger-et-rabat-20-10-2025-2601381_24.php)
+- **Sahara : les planètes s’alignent pour le Maroc ?**: [Link](https://mobile.telquel.ma/2025/10/21/sahara-lalignement-des-etoiles-pour-le-maroc_1956757)
+- **Trump et ses proches peuvent-ils vraiment régler le conflit du Sahara occidental ?**: [Link](https://www.courrierinternational.com/article/geopolitique-trump-et-ses-proches-peuvent-ils-vraiment-regler-le-conflit-du-sahara-occidental_236553)
+
+
 ### jannik sinner (N/A, Wed, 22 Oct 2025 06:30:00 -0700)
 
 - **Jannik Sinner scosso a Vienna: il mistero Laila Hasanovic e il blitz a sorpresa di mamma Siglinde**: [Link](https://www.libero.it/magazine/news/jannik-sinner-debutto-vienna-mistero-laila-hasanovic-blitz-a-sorpresa-mamma-siglinde-177607)
