@@ -1,3 +1,24 @@
+### تشيلسي ضد أياكس (N/A, Wed, 22 Oct 2025 12:20:00 -0700)
+
+- **تشيلسي يتسلح بلغة الأرقام.. وأياكس لتجنب بداية كارثية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D8%AA%D8%B3%D9%84%D8%AD-%D8%A8%D9%84%D8%BA%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85--%D9%88%D8%A7%D9%94%D9%8A%D8%A7%D9%83%D8%B3-%D9%84%D8%AA%D8%AC%D9%86%D8%A8-%D8%B1%D9%82%D9%85-%D9%83%D8%A7%D8%B1%D8%AB%D9%8A/blt132821b54c4059ac)
+- **تشلسي ينشد الفوز من بوابة آياكس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%8A%D9%86%D8%B4%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D9%85%D9%86-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D8%A2%D9%8A%D8%A7%D9%83%D8%B3-2025-10-22)
+- **ماريسكا يعلن جهوزية انزو بعد تعافيه من الاصابة**: [Link](https://www.elsport.com/news/show/797203/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%8A%D8%B9%D9%84%D9%86-%D8%AC%D9%87%D9%88%D8%B2%D9%8A%D8%A9-%D8%A7%D9%86%D8%B2%D9%88-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B9%D8%A7%D9%81%D9%8A%D9%87-%D8%A7%D9%84%D8%A7%D8%B5%D8%A7%D8%A8%D8%A9)
+
+
+### bayern munich (N/A, Wed, 22 Oct 2025 12:20:00 -0700)
+
+- **Christos Tzolis expecting ‘tough battle’ from Bayern Munich, but says Club Brugge has ‘nothing to lose’**: [Link](https://www.bavarianfootballworks.com/bayern-munich-champions-league/144022/christos-tzolis-expecting-tough-battle-from-bayern-munich-but-says-club-brugge-has-nothing-to-lose)
+- **Best bets: Champions League tips for 22 October 2025**: [Link](https://www.sportinglife.com/football/news/best-bets-champions-league-tips-for-22-october-2025/228258)
+- **Bayern Munich vs. Club Brugge: Champions League betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/champions-league/2025/10/22/bayern-munich-vs-club-brugge-ucl-betting-odds-prediction-pick/86818141007/)
+
+
+### بث مباشر (N/A, Wed, 22 Oct 2025 12:10:00 -0700)
+
+- **سلوت يعلن إصابة نجم ليفربول: غيابه سيؤثر علينا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%86%D8%AC%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%BA%D9%8A%D8%A7%D8%A8%D9%87-%D8%B3%D9%8A%D9%88%D9%94%D8%AB%D8%B1-%D8%B9%D9%84%D9%8A%D9%86%D8%A7/blt840ea3199838ab3c)
+- **دوري أبطال أوروبا: إيكيتيكيه يعود إلى فرانكفورت لمواجهة فريق مختلف**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251021-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A5%D9%8A%D9%83%D9%8A%D8%AA%D9%8A%D9%83%D9%8A%D9%87-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%81%D8%B1%D9%8A%D9%82-%D9%85%D8%AE%D8%AA%D9%84%D9%81)
+- **مدرب ليفربول: مشكلة الطائرة ليست عذرا قبل مواجهة فرانكفورت**: [Link](https://www.hesport.com/%D8%B3%D9%84%D9%88%D8%AA-%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D9%82%D9%88%D9%84-%D8%A5%D9%86-%D9%85%D8%B4%D9%83%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1-409334.html)
+
+
 ### eintracht frankfurt vs liverpool (N/A, Wed, 22 Oct 2025 12:10:00 -0700)
 
 - **Champions League LIVE: Chelsea vs Ajax, Frankfurt vs Liverpool, Monaco vs Tottenham - scores & radio**: [Link](https://www.bbc.com/sport/football/live/c1kwp92z2l3t)
