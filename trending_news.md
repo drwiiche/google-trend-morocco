@@ -1,3 +1,50 @@
+### genybet (N/A, Wed, 22 Oct 2025 11:30:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour mardi 21 octobre - Prix des Equidays**: [Link](https://www.lalsace.fr/actualite/2025/10/20/les-pronostics-de-l-alsace-pour-mardi-21-octobre-prix-des-equidays)
+- **Les pronos hippiques du mardi 21 octobre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-21-octobre-2025_AN-202510200362.html)
+- **Britania, l'outsider séduisant du Quinté du mardi 21 octobre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/britania-loutsider-seduisant-du-quinte-du-mardi-21-octobre)
+
+
+### eintracht francfort – liverpool (N/A, Wed, 22 Oct 2025 11:20:00 -0700)
+
+- **Francfort-Liverpool : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/francfort-liverpool-streaming-chaine-tv-et-compos-10260458.html)
+- **[Podcasts] Polo Breitner n'est pas certain que l'Eintracht soit en capacité d'enfoncer Liverpool – 20/10**: [Link](https://rmcsport.bfmtv.com/replay-emissions/after-foot/polo-breitner-n-est-pas-certain-que-l-eintracht-soit-en-capacite-d-enfoncer-liverpool-20-10_EN-202510200811.html)
+- **raba, une formation d'Eintracht Liverpool vs Liverpool prédit : un record sûr pour revenir à la victoire**: [Link](https://voi.id/fr/de-sports/526471)
+
+
+### sporting – marseille (N/A, Wed, 22 Oct 2025 11:20:00 -0700)
+
+
+
+
+### chelsea – ajax (N/A, Wed, 22 Oct 2025 11:20:00 -0700)
+
+- **Chelsea v Ajax, Real Madrid v Juventus, Monaco v Spurs and more: Champions League – live**: [Link](https://www.theguardian.com/football/live/2025/oct/22/chelsea-v-ajax-real-madrid-v-juventus-monaco-v-spurs-and-more-champions-league-live)
+- **Enzo Maresca refuses to confirm if “clever” player will start vs Ajax, insists he trusts him**: [Link](https://chelsea.news/2025/10/enzo-maresca-marc-guiu-chelsea-ajax/)
+- **Ajax manager Heitinga purrs over Chelsea’s squad ahead of Champions League clash**: [Link](https://www.flashscore.com/news/soccer-champions-league-ajax-manager-heitinga-purrs-over-chelsea-s-squad-ahead-of-champions-league-clash/Im3EHtJb/)
+
+
+### bayern – club brugge (N/A, Wed, 22 Oct 2025 11:20:00 -0700)
+
+- **Bayern München vs. Club Brügge Vorhersage, 23. Oktober, 02:00 Uhr: Die Grauen Tiger sind schwer zu stoppen**: [Link](https://www.vietnam.vn/de/nhan-dinh-bayern-munich-vs-club-brugge-02h00-ngay-23-10-kho-can-buoc-hum-xam)
+- **Wie schwer ist Gnabry verletzt? Kompany gibt Diagnose bekannt**: [Link](https://www.merkur.de/sport/fc-bayern/ist-gnabry-verletzt-kompany-gibt-diagnose-bekannt-wie-schwer-zr-93993492.html)
+- **Champions League LIVE: Bayern startet mit Karl - Osimhen lässt Gala jubeln**: [Link](https://www.flashscore.de/news/fu-ball-champions-league-champions-league-live-bayern-startet-mit-karl-osimhen-lasst-gala-jubeln/O4d3RRXP/)
+
+
+### monaco – tottenham (N/A, Wed, 22 Oct 2025 11:20:00 -0700)
+
+- **Confirmed line-ups | AS Monaco vs Spurs**: [Link](https://www.tottenhamhotspur.com/news/2025/october/confirmed-line-ups-as-monaco-vs-spurs/)
+- **How Eric Dier reacted to missing his Tottenham reunion in the Champions League**: [Link](https://www.spurs-web.com/spurs-news/how-eric-dier-reacted-to-missing-his-tottenham-reunion-in-the-champions-league/)
+- **What channel is Monaco v Tottenham Champions League match on? TV coverage, live stream and kick-off time**: [Link](https://www.radiotimes.com/tv/monaco-tottenham-champions-league-2025-26-preview/)
+
+
+### الريال ضد يوفنتوس (N/A, Wed, 22 Oct 2025 11:10:00 -0700)
+
+- **عودة ميندي تزين قائمة ريال مدريد لموقعة يوفنتوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%8A%D9%86%D8%AF%D9%8A-%D8%AA%D8%B2%D9%8A%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3/blt531610fff5977a40)
+- **دوري أبطال أوروبا في جولة جديدة**: [Link](https://www.hespress.com/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%81%D9%8A-%D8%AC%D9%88%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-1643304.html)
+- **ألونسو متحمس للقاء الريال ويوفنتوس**: [Link](https://www.hesport.com/%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%85%D8%AA%D8%AD%D9%85%D8%B3-%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-409343.html)
+
+
 ### فؤاد الزهواني (N/A, Wed, 22 Oct 2025 11:00:00 -0700)
 
 - **فؤاد الزهواني أبعد أدم أزنو كثيرا**: [Link](https://www.almountakhab.com/node/16218770)
