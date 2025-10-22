@@ -1,3 +1,10 @@
+### monaco fc (N/A, Wed, 22 Oct 2025 13:30:00 -0700)
+
+- **Why Paul Pogba is not playing for Monaco vs Tottenham in Champions League as major update emerges**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/paul-pogba-not-playing-monaco-32723403)
+- **Jesse Lingard shows true colours with demand to ex-Man Utd team-mate Paul Pogba**: [Link](https://www.mirror.co.uk/sport/football/news/pogba-lingard-manchester-united-monaco-36060237)
+- **Paul Pogba suffers heartbreaking injury blow ahead of football return but loving new Eric Dier role**: [Link](https://talksport.com/football/3645639/paul-pogba-injury-eric-dier-role-monaco-postponement/)
+
+
 ### brigitte bardot (N/A, Wed, 22 Oct 2025 13:20:00 -0700)
 
 - **«Mon BBcédaire» : le testament de littéraire de Brigitte Bardot**: [Link](https://www.lejdd.fr/culture/mon-bbcedaire-le-testament-de-litteraire-de-brigitte-bardot-163245)
