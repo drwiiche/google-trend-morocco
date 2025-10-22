@@ -1,3 +1,24 @@
+### فؤاد الزهواني (N/A, Wed, 22 Oct 2025 11:00:00 -0700)
+
+- **فؤاد الزهواني أبعد أدم أزنو كثيرا**: [Link](https://www.almountakhab.com/node/16218770)
+- **آدم أزنو يتراجع في حسابات الركراكي.. والزهواني يحل مكانه**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A2%D8%AF%D9%85-%D8%A3%D8%B2%D9%86%D9%88-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%81%D9%8A-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%88%D8%A7%D9%84/)
+- **الملك يستقبل غدا "منتخب الأشبال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%BA%D8%AF%D8%A7-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-1643749.html)
+
+
+### snrt (N/A, Wed, 22 Oct 2025 10:50:00 -0700)
+
+- **Accueil royal ce mercredi 22 octobre pour l'équipe nationale U20**: [Link](https://medias24.com/2025/10/21/accueil-royal-ce-mercredi-22-octobre-pour-lequipe-nationale-u20/)
+- **«Je salue l’exploit du Maroc»: la directrice de l’UNESCO félicite les Lionceaux de l’Atlas après leur triomphe au Mondial U20**: [Link](https://fr.le360.ma/sports/je-salue-lexploit-du-maroc-la-directrice-de-lunesco-felicite-les-lionceaux-de-latlas-apres-leur_O6R5EJKBXVHNBKRFRES5EZGJI4/)
+- **Sacre mondial au Chili : les Lionceaux de l’Atlas reçus par Mohammed VI ce mercredi**: [Link](https://ledesk.ma/encontinu/sacre-mondial-au-chili-les-lionceaux-de-latlas-recus-par-mohammed-vi-ce-mercredi/)
+
+
+### real madrid – juventus (N/A, Wed, 22 Oct 2025 10:50:00 -0700)
+
+- **Real Madrid vs Juventus: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264666/real-madrid-vs-juventus-match-preview-prediction/)
+- **Preview: Los Blancos take on the Old Lady in clash of European royalty**: [Link](https://www.fotmob.com/sv/topnews/23502-preview-los-blancos-take-old-lady-clash-european-royalty?utm_source=fotmob)
+- **UEFA Champions League predictions, picks: Can Chelsea, Liverpool dodge upsets? Real Madrid host Juventus**: [Link](https://bvmsports.com/2025/10/22/uefa-champions-league-predictions-picks-can-chelsea-liverpool-dodge-upsets-real-madrid-host-juventus/)
+
+
 ### galatasaray (N/A, Wed, 22 Oct 2025 10:10:00 -0700)
 
 - **Galatasaray evinde Bodo/Glimt ile karşılaşacak**: [Link](https://www.vanpostasigazetesi.com/haber/galatasaray_evinde_bodoglimt_ile_karsilasacak-371331.html)
