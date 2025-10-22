@@ -1,3 +1,10 @@
+### mohamed bouhafsi (N/A, Wed, 22 Oct 2025 16:00:00 -0700)
+
+- **"J'ai démissionné spontanément" : Mohamed Bouhafsi ("C à vous") a quitté son poste à France Télévisions pour devenir directeur général de 3e Œil Productions - Puremédias**: [Link](https://www.ozap.com/actu/jai-demissionne-spontanement-mohamed-bouhafsi-c-a-vous-a-quitte-son-poste-a-france-televisions-pour-devenir-directeur-general-de-3e-oeil-productions/652132)
+- **Cette salle de sport bretonne ne fera pas son beurre sur Fitness+**: [Link](https://www.watchgeneration.fr/sport/2025/10/cette-salle-de-sport-bretonne-ne-fera-pas-son-beurre-sur-fitness-18887)
+- **"J'ai moins de temps pour ma famille et mes amis mais..." : Mohamed Bouhafsi dans C à vous a trouvé un avantage à son rythme particulier**: [Link](https://www.purepeople.com/article/j-ai-moins-de-temps-pour-ma-famille-et-mes-amis-mais-mohamed-bouhafsi-dans-c-a-vous-a-trouve-un-avantage-a-son-rythme-particulier_a543740/1)
+
+
 ### real madrid – juventus composition (N/A, Wed, 22 Oct 2025 12:40:00 -0700)
 
 - **Real Madrid 1-0 Juventus Turin, Ligue des champions : résumé du match (22/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/real-madrid-juventus-turin-live/685541)
