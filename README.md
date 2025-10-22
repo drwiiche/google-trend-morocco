@@ -1,3 +1,10 @@
+### free tv (N/A, Tue, 21 Oct 2025 19:40:00 -0700)
+
+- **Iliad's Free launches TV streaming service for non-subscribers, revamps existing TV app**: [Link](https://www.telecompaper.com/news/iliads-free-launches-tv-streaming-service-for-non-subscribers-revamps-existing-tv-app--1551604)
+- **The Economics of Free TV: How Ad-Supported Models Drive Discovery**: [Link](https://thedigestonline.com/branded-content/the-economics-of-free-tv-how-ad-supported-models-drive-discovery/)
+- **Wurl’s CTV Trends Report: Advertiser Edition**: [Link](https://www.tvrev.com/news/wurls-ctv-trends-report-advertiser-edition)
+
+
 ### lakers – warriors (N/A, Wed, 22 Oct 2025 00:10:00 -0700)
 
 - **Mark Medina: Warriors coach Steve Kerr declined to …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/21/mark-medina-warriors-coach-steve-kerr-declined-to/86826014007/)
