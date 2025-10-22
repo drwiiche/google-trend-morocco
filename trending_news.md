@@ -1,3 +1,10 @@
+### front polisario (N/A, Wed, 22 Oct 2025 05:00:00 -0700)
+
+- **Comment Washington veut imposer un « accord de paix » entre Alger et Rabat**: [Link](https://www.lepoint.fr/monde/comment-washington-veut-imposer-un-accord-de-paix-entre-alger-et-rabat-20-10-2025-2601381_24.php)
+- **Sahara : l’alignement des étoiles pour le Maroc?**: [Link](https://mobile.telquel.ma/2025/10/21/sahara-lalignement-des-etoiles-pour-le-maroc_1956757)
+- **Trump et ses proches peuvent-ils vraiment régler le conflit du Sahara occidental ?**: [Link](https://www.courrierinternational.com/article/geopolitique-trump-et-ses-proches-peuvent-ils-vraiment-regler-le-conflit-du-sahara-occidental_236553)
+
+
 ### union saint-gilloise vs inter (N/A, Tue, 21 Oct 2025 14:00:00 -0700)
 
 - **Zielinski: "Abbiamo dimostrato forza e qualità"**: [Link](https://onefootball.com/fr/news/zielinski-abbiamo-dimostrato-forza-e-qualita-41838737)
