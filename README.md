@@ -1,3 +1,10 @@
+### marseille fc (N/A, Wed, 22 Oct 2025 13:40:00 -0700)
+
+- **LdC : Paris, l'Inter et Arsenal au sommet d'une soirée record**: [Link](https://fr.hespress.com/446395-ldc-paris-linter-et-arsenal-au-sommet-dune-soiree-record.html)
+- **Record de buts battu en une soirée de Ligue des Champions !**: [Link](https://www.footmercato.net/a7711597942445983604-soiree-record-en-ligue-des-champions)
+- **Foot: les Lions de l’Atlas à suivre cette semaine en Ligue des champions de l’UEFA**: [Link](https://h24info.ma/sport/foot-les-lions-de-latlas-a-suivre-cette-semaine-en-ligue-des-champions-de-luefa/)
+
+
 ### ucl (N/A, Wed, 22 Oct 2025 14:00:00 -0700)
 
 - **Galatasaray vs Bodø / Glimt: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cpd2nqydpl1t)
