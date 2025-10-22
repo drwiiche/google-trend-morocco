@@ -1,3 +1,17 @@
+### six (N/A, Tue, 21 Oct 2025 18:40:00 -0700)
+
+- **Chiefs star Travis Kelce’s latest venture is literal roller coaster**: [Link](https://www.nytimes.com/athletic/6738088/2025/10/21/travis-kelce-jana-partners-six-flags-investment/)
+- **Six Flags stock soars 17% after Travis Kelce joins activist campaign with hedge fund Jana Partners**: [Link](https://finance.yahoo.com/news/six-flags-stock-soars-17-after-travis-kelce-joins-activist-campaign-with-hedge-fund-jana-partners-200158514.html)
+- **Travis Kelce joins investor group with stake in Six Flags**: [Link](https://ktla.com/news/theme-parks/travis-kelce-joins-investor-group-with-stake-in-six-flags/)
+
+
+### borno (N/A, Tue, 21 Oct 2025 18:20:00 -0700)
+
+- **Borno maintains lead as voter pre-registration hits 8m**: [Link](https://punchng.com/borno-maintains-lead-as-voter-pre-registration-hits-8m/?utm_source=auto-read-also&utm_medium=web)
+- **Abia, Edo, Ebonyi, Ondo lag behind in CVR as Borno maintains lead**: [Link](https://thenationonlineng.net/abia-edo-ebonyi-ondo-lag-behind-in-cvr-as-borno-maintains-lead/)
+- **Osun leads as INEC registers 1.7 million new voters nationwide**: [Link](https://businessday.ng/news/article/osun-leads-as-inec-registers-1-7-million-new-voters-nationwide/)
+
+
 ### loi de finances 2026 (N/A, Tue, 21 Oct 2025 17:40:00 -0700)
 
 - **PLF2026. Un budget record de 42,4 MMDH pour le ministère de la Santé**: [Link](https://medias24.com/2025/10/20/plf2026-un-budget-record-de-424-mmdh-pour-le-ministere-de-la-sante/)
