@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Wed, 22 Oct 2025 06:30:00 -0700)
+
+- **Jannik Sinner scosso a Vienna: il mistero Laila Hasanovic e il blitz a sorpresa di mamma Siglinde**: [Link](https://www.libero.it/magazine/news/jannik-sinner-debutto-vienna-mistero-laila-hasanovic-blitz-a-sorpresa-mamma-siglinde-177607)
+- **Sinner-Altmaier: orario, dove vedere il match in tv e streaming, i possibili incroci e il ranking**: [Link](https://www.corriereadriatico.it/schede/tennis_jannik_sinner_atp_vienna_dove_vederlo_orario_avversario_prossimi_impegni_ultime_notizie-ranking-5-9142569.html)
+- **Sinner-Altmaier all'Atp 500 di Vienna, la diretta: chi passa agli ottavi trova Cobolli**: [Link](https://www.corriere.it/sport/tennis/diretta-live/25_ottobre_22/sinner-altmaier-diretta-atp-500-vienna-oggi.shtml)
+
+
 ### ziyech (N/A, Wed, 22 Oct 2025 06:00:00 -0700)
 
 - **Hakim Ziyech set for switch to Morocco with Wydad Casablanca move ahead of Kotoko clash**: [Link](https://ghanasoccernet.com/hakim-ziyech-set-for-switch-to-morocco-with-wydad-casablanca-move-ahead-of-kotoko-clash)
