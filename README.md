@@ -1,3 +1,17 @@
+### bet365 (N/A, Wed, 22 Oct 2025 12:40:00 -0700)
+
+- **Miami Heat vs Orlando Magic: bet365 Bonus Code "LSBONUS" $200 Welcome Offer**: [Link](https://www.livescore.com/en/news/nba/promos/miami-heat-at-orlando-magic-bet365-bonus-code/)
+- **DraftKings NBA Promo: 25% Profit Boost on Team Futures & Specials**: [Link](https://next.io/win/us/draftkings-nba-promo-25-percent-profit-boost-on-team-futures-and-specials/)
+- **FanDuel promo code: Get $300 bonus bets for Lakers vs. Warriors on NBA Opening Night**: [Link](https://www.cbssports.com/nba/news/fanduel-promo-code-get-300-bonus-bets-lakers-warriors-nba-opening-night/)
+
+
+### bayern (N/A, Wed, 22 Oct 2025 12:20:00 -0700)
+
+- **Marktwerte Bundesliga: Olise nähert sich Musiala – Plus für 10 BVB-Profis**: [Link](https://www.transfermarkt.de/marktwerte-bundesliga-olise-nahert-sich-musiala-plus-fur-10-bvb-profis/view/news/461477)
+- **FC Bayern: Steht Lennart Karl in München kurz vor seinem Durchbruch? U15-Trainer schwärmt**: [Link](https://www.ran.de/sports/fussball/bundesliga/news/fc-bayern-steht-lennart-karl-in-muenchen-kurz-vor-seinem-durchbruch-u15-trainer-schwaermt-574096)
+- **BVB: ER ist plötzlich der wertvollste Dortmund-Star**: [Link](https://www.bild.de/sport/fussball/bvb-er-ist-ploetzlich-der-wertvollste-dortmund-star-68ee5c9fdbad4b72062ad3db)
+
+
 ### سبورتينغ ضد أولمبيك مارسيليا (N/A, Wed, 22 Oct 2025 12:30:00 -0700)
 
 - **سواريز يتحدث عن تجربته الصعبة في مارسيليا**: [Link](https://alamriyadi.com/%D8%B3%D9%88%D8%A7%D8%B1%D9%8A%D8%B2-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D8%AA%D8%AC%D8%B1%D8%A8%D8%AA%D9%87-%D8%A7%D9%84%D8%B5%D8%B9%D8%A8%D8%A9-%D9%81%D9%8A-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A/)
