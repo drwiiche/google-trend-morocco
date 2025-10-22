@@ -1,3 +1,10 @@
+### real madrid – juventus composition (N/A, Wed, 22 Oct 2025 12:40:00 -0700)
+
+- **Real Madrid 1-0 Juventus Turin, Ligue des champions : résumé du match (22/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/real-madrid-juventus-turin-live/685541)
+- **Real Madrid : le constat lucide de Xabi Alonso malgré la victoire face à la Juventus**: [Link](https://www.footmercato.net/a8797602869140885602-real-madrid-le-constat-lucide-de-xabi-alonso-malgre-la-victoire-face-a-la-juventus)
+- **DIRECT. Real Madrid-Juventus: Bellingham fait sauter le cadenas turinois**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-real-madrid-juventus-suivez-en-live-la-rencontre-de-la-3e-journee-de-ligue-des-champions_LS-202510220832.html)
+
+
 ### ترتيب دوري ابطال اوروبا (N/A, Wed, 22 Oct 2025 14:00:00 -0700)
 
 - **رقم قياسي بعدد الأهداف في ليلة واحدة بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2025/10/22/%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%A8%D8%B9%D8%AF%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D8%A8%D9%84%D9%8A%D9%84%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-%D9%81%D9%8A)
