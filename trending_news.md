@@ -1,3 +1,10 @@
+### lakers – warriors (N/A, Wed, 22 Oct 2025 00:10:00 -0700)
+
+- **Mark Medina: Warriors coach Steve Kerr declined to …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/10/21/mark-medina-warriors-coach-steve-kerr-declined-to/86826014007/)
+- **Jonathan Kuminga to start Tuesday**: [Link](https://www.fantasypros.com/nba/news/546690/jonathan-kuminga-to-start-tuesday.php)
+- **Warriors reveal fifth starter for opening night contest vs. Lakers**: [Link](https://sports.yahoo.com/article/warriors-reveal-fifth-starter-opening-235015453.html)
+
+
 ### six (N/A, Tue, 21 Oct 2025 18:40:00 -0700)
 
 - **Chiefs star Travis Kelce’s latest venture is literal roller coaster**: [Link](https://www.nytimes.com/athletic/6738088/2025/10/21/travis-kelce-jana-partners-six-flags-investment/)
