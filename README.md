@@ -1,3 +1,10 @@
+### union saint-gilloise vs inter (N/A, Tue, 21 Oct 2025 14:00:00 -0700)
+
+- **Zielinski: "Abbiamo dimostrato forza e qualità"**: [Link](https://onefootball.com/fr/news/zielinski-abbiamo-dimostrato-forza-e-qualita-41838737)
+- **Chivu: "A win we wanted and earned"**: [Link](https://sports.yahoo.com/article/chivu-win-wanted-earned-213500041.html)
+- **Belgium Soccer Champions League**: [Link](https://www.couriernews.com/sports/belgium-soccer-champions-league/image_f4f648ef-805a-5002-bad5-dca74230eade.html)
+
+
 ### free tv (N/A, Tue, 21 Oct 2025 19:40:00 -0700)
 
 - **Iliad's Free launches TV streaming service for non-subscribers, revamps existing TV app**: [Link](https://www.telecompaper.com/news/iliads-free-launches-tv-streaming-service-for-non-subscribers-revamps-existing-tv-app--1551604)
