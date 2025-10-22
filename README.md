@@ -1,3 +1,10 @@
+### galatasaray (N/A, Wed, 22 Oct 2025 10:10:00 -0700)
+
+- **Galatasaray evinde Bodo/Glimt ile karşılaşacak**: [Link](https://www.vanpostasigazetesi.com/haber/galatasaray_evinde_bodoglimt_ile_karsilasacak-371331.html)
+- **Okan Buruk'tan İlkay Gündoğan için açıklama!**: [Link](https://www.sporx.com/okan-buruk-tan-ilkay-gundogan-icin-aciklama-SXHBQ1137045SXQ)
+- **TRT 1 CANLI İZLE 22 Ekim: Galatasaray (GS) - Bodo/Glimt maçı Trt 1 canlı yayın izle | Özgün Haberler**: [Link](https://www.yenisafak.com/foto-galeri/ozgun/trt-1-canli-izle-22-ekim-galatasaray-gs-bodoglimt-maci-trt-1-canli-yayin-izle-4761140)
+
+
 ### galatasaray – bodø/glimt (N/A, Wed, 22 Oct 2025 09:30:00 -0700)
 
 - **Galatasaray vs Bodo/Glimt – How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264623/galatasaray-vs-bodo-glimt-how-to-watch-score-prediction/)
