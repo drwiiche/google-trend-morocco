@@ -1,3 +1,38 @@
+### غوا ضد النصر (N/A, Wed, 22 Oct 2025 06:30:00 -0700)
+
+- **كريستيانو رونالدو يتسبب في خسائر مالية لنادٍ هندي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AA%D8%B3%D8%A8%D8%A8-%D9%81%D9%8A-%D8%AE%D8%B3%D8%A7%D9%8A%D9%94%D8%B1-%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D9%86%D8%A7%D8%AF%D9%8D-%D9%87%D9%86%D8%AF%D9%8A/blt9be312e375641775)
+- **مباشر.. مباراة النصر ضد جوا في دوري أبطال آسيا 2**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/22/goa-vs-al-nassr)
+- **منع السجائر والكحول.. النصر يربك سكان غوا بـ "ألف رجل أمن"**: [Link](https://www.alarabiya.net/sport/2025/10/21/%D9%85%D9%86%D8%B9-%D8%A7%D9%84%D8%B3%D8%AC%D8%A7%D8%A6%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%8A%D8%B1%D8%A8%D9%83-%D8%B3%D9%83%D8%A7%D9%86-%D8%BA%D9%88%D8%A7-%D8%A8%D9%80-%D8%A7%D9%84%D9%81-%D8%B1%D8%AC%D9%84-%D8%A7%D9%85%D9%86-)
+
+
+### fc goa – al-nassr fc (N/A, Wed, 22 Oct 2025 06:20:00 -0700)
+
+- **Is Cristiano Ronaldo playing for Al Nassr vs Goa at AFC Champions League Two today, October 22?**: [Link](https://bolavip.com/en/soccer/is-cristiano-ronaldo-playing-for-al-nassr-vs-goa-at-afc-champions-league-two-today-october-22)
+- **FC Goa vs Al Nassr in ACL 2; Ayush Shetty in French Open action: Indian Sports LIVE, October 22**: [Link](https://africa.espn.com/espn/story/_/id/46673568/fc-goa-vs-al-nassr-afc-champions-league-2-ayush-shetty-french-open-indian-sports-live-october-22)
+- **Will Cristiano Ronaldo Play Against FC Goa In The Saudi Arabia Leg Of AFC Champions League 2?**: [Link](https://www.mykhel.com/football/will-cristiano-ronaldo-play-against-fc-goa-in-saudi-arabia-afc-champions-league-2-391673.html)
+
+
+### حكيم زياش (N/A, Wed, 22 Oct 2025 06:20:00 -0700)
+
+- **الوداد تحضر حكيم زياش للكان**: [Link](https://www.almountakhab.com/node/13218801)
+- **تقديم مرتقب لزياش في الديربي.. التفاصيل**: [Link](https://www.radiomars.ma/%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D9%84%D8%B2%D9%8A%D8%A7%D8%B4-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84/)
+- **ضربة معلم.. أيت مانة يفجر قنبلة الموسم ويحسم صفقة من العيار الثقيل**: [Link](https://ar.sport.le360.ma/football/lions-atlas/AEOCJYUSONGNFL6R425MYA7GWI/)
+
+
+### concours (N/A, Wed, 22 Oct 2025 06:20:00 -0700)
+
+- **Concours de Recrutement Chef du Gouvernement 2025 (2 Postes)**: [Link](https://www.dreamjob.ma/emploi-public/concours-de-recrutement-chef-du-gouvernement-2025-2-postes/)
+- **« Un vrai challenge » : un prestigieux concours de bijouterie-joaillerie dans le Maine-et-Loire**: [Link](https://www.ouest-france.fr/economie/artisanat/un-vrai-challenge-un-prestigieux-concours-de-bijouterie-joaillerie-dans-le-maine-et-loire-603714d6-af22-11f0-ad64-c51ff7d9b96e)
+- **Le prix « le plus reconnu dans le milieu » : ils s’affrontent lors d’un grand concours de joaillerie**: [Link](https://cholet.maville.com/actu/actudet_-le-prix-le-plus-reconnu-dans-le-milieu-ils-s-affrontent-lors-d-un-grand-concours-de-joaillerie-_loc-7030463_actu.Htm)
+
+
+### endrick (N/A, Tue, 21 Oct 2025 23:40:00 -0700)
+
+- **Football gossip: Semenyo, Anderson, Endrick, Rogers, McGinn, Toney, Lewandowski**: [Link](https://www.bbc.com/sport/football/articles/c1k0jenxrelo)
+- **Liverpool join battle for £75m Spurs and Man Utd target Antoine Semenyo**: [Link](https://inews.co.uk/sport/football/antoine-semenyo-liverpool-spurs-man-utd-target-3992289)
+- **Man United given £80m valuation on 'full package' transfer 'target' as three rivals emerge**: [Link](https://www.manchestereveningnews.co.uk/sport/football/transfer-news/man-united-transfers-premier-league-32722011)
+
+
 ### front polisario (N/A, Wed, 22 Oct 2025 05:00:00 -0700)
 
 - **Comment Washington veut imposer un « accord de paix » entre Alger et Rabat**: [Link](https://www.lepoint.fr/monde/comment-washington-veut-imposer-un-accord-de-paix-entre-alger-et-rabat-20-10-2025-2601381_24.php)
