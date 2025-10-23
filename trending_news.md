@@ -1,3 +1,10 @@
+### rapid vienne – fiorentina (N/A, Thu, 23 Oct 2025 10:30:00 -0700)
+
+- **Preview:Rapid Vienna vs. Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rapid-vienna/europa-conference-league/preview/rapid-vienna-vs-fiorentina-prediction-team-news-lineups_584039.html)
+- **A night of rotation. Piccoli is there, but Gud isn't yet. Fortini and Parisi are on the wings. And Viti (re)emerges in defense.**: [Link](https://sport.quotidiano.net/en/calcio/fiorentina/una-notte-a-tutto-turnover-28275a64)
+- **Fiorentina's European Hope**: [Link](https://www.ilmessaggero.it/en/fiorentina_s_european_hope-9142995.html)
+
+
 ### lyon – bâle (N/A, Thu, 23 Oct 2025 10:20:00 -0700)
 
 - **FC Bâle : Xherdan Shaqiri écrase tout sur son passage en Suisse**: [Link](https://www.footmercato.net/a4700787034166039540-fc-bale-xherdan-shaqiri-ecrase-tout-sur-son-passage-en-suisse)
