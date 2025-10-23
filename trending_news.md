@@ -1,3 +1,10 @@
+### acteur abdelkader moutaa (N/A, Wed, 22 Oct 2025 22:20:00 -0700)
+
+- **Décès de l’acteur Abdelkader Moutaâ à l’âge de 85 ans**: [Link](https://mobile.telquel.ma/instant-t/2025/10/22/deces-de-lacteur-abdelkader-moutaa-a-lage-de-85-ans_1956795/)
+- **Décès du comédien Abdelkader Moutaa, pilier du théâtre et de la télévision marocains**: [Link](https://fr.hespress.com/446330-deces-du-comedien-abdelkader-moutaa-pilier-du-theatre-et-de-la-television-marocains.html)
+- **Décès de l’acteur Abdelkader Moutaâ: les condoléances du Roi à la famille du défunt**: [Link](https://fr.le360.ma/culture/deces-de-lacteur-abdelkader-moutaa-les-condoleances-du-roi-a-la-famille-du-defunt_MCWM5KBQQ5ARRBAV2QPE7BOMTQ/)
+
+
 ### stake (N/A, Wed, 22 Oct 2025 18:30:00 -0700)
 
 - **Stake.us Texas Poker Bad Beat Jackpot: 1 MILLION Stake Cash Pool**: [Link](https://www.actionnetwork.com/news/stake-us-texas-poker-bad-beat-jackpot-1-million-stake-cash-pool)
