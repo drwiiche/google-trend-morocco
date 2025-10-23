@@ -1,3 +1,17 @@
+### lyon – bâle (N/A, Thu, 23 Oct 2025 10:20:00 -0700)
+
+- **FC Bâle : Xherdan Shaqiri écrase tout sur son passage en Suisse**: [Link](https://www.footmercato.net/a4700787034166039540-fc-bale-xherdan-shaqiri-ecrase-tout-sur-son-passage-en-suisse)
+- **OL : Les supporters de Bâle narguent le préfet**: [Link](https://www.foot01.com/ol/ol-les-supporters-de-bale-narguent-le-prefet)
+- **Ligue Europa : en vidéo, l’ouverture du score express de Tolisso pour lancer parfaitement l’OL à Bâle**: [Link](https://www.lefigaro.fr/sports/football/ligue-europa/ligue-europa-en-video-l-ouverture-du-but-express-de-tolisso-pour-lancer-parfaitement-l-ol-a-bale-20251023)
+
+
+### جينك ضد ريال بتيس (N/A, Thu, 23 Oct 2025 10:10:00 -0700)
+
+- **Genk vs Real Betis.. الان في ماتش ناري تايع جينك ضد ريال بيتيس على هذا التردد**: [Link](https://zahraa.mr/6011343/genk-vs-real-betis-%D8%A7%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D9%85%D8%A7%D8%AA%D8%B4-%D9%86%D8%A7%D8%B1%D9%8A-%D8%AA%D8%A7%D9%8A%D8%B9-%D8%AC%D9%8A%D9%86%D9%83-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84/)
+- **الموعد والقنوات الناقلة لمباراة كي آر سي جينك و ريال بيتيس برسم الدوري الأوروبي**: [Link](https://alamriyadi.com/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D9%8A-%D8%A2%D8%B1/)
+- **بيليغريني يستبعد أمرابط من قائمة بيتيس لمواجهة جينك في الدوري الأوروبي كإجراء احترازي**: [Link](https://m.elbotola.com/article/2025-10-21-17-22-316.html)
+
+
 ### europa league (N/A, Thu, 23 Oct 2025 10:00:00 -0700)
 
 - **Exclusive: Sturm Graz "Weak Spot" Identified**: [Link](https://celtsarehere.com/sturm-graz-weak-spot-identified/)
