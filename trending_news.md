@@ -1,3 +1,10 @@
+### ligue europa (N/A, Thu, 23 Oct 2025 10:30:00 -0700)
+
+- **La Ligue 1 encensée à l’étranger - C3 - J3 - Celta de Vigo-Nice**: [Link](https://www.sofoot.com/breves/claudio-giraldez-celta-vigo-encense-la-ligue-1-je-ne-voulais-absolument-pas-tomber-sur-un-club-francais)
+- **"On n'a pas été suffisamment à la hauteur": Nice veut stopper sa terrible série en Europe contre le Celta Vigo**: [Link](https://rmcsport.bfmtv.com/football/europa-league/on-n-a-pas-ete-suffisamment-a-la-hauteur-nice-veut-stopper-sa-terrible-serie-en-europe-contre-le-celta-vigo_AV-202510220861.html)
+- **Franck Haise face au défi de l'enchaînement des matches avant d'affronter le Celta Vigo en Ligue Europa : « je crois en ceux qui joueront »**: [Link](https://www.lequipe.fr/Football/Actualites/Franck-haise-face-au-defi-de-l-enchainement-des-matches-avant-d-affronter-le-celta-vigo-en-ligue-europa-je-crois-en-ceux-qui-joueront/1603863)
+
+
 ### rapid vienne – fiorentina (N/A, Thu, 23 Oct 2025 10:30:00 -0700)
 
 - **Preview:Rapid Vienna vs. Fiorentina - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rapid-vienna/europa-conference-league/preview/rapid-vienna-vs-fiorentina-prediction-team-news-lineups_584039.html)
