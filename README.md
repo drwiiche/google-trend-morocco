@@ -1,3 +1,17 @@
+### gemini (N/A, Thu, 23 Oct 2025 08:20:00 -0700)
+
+- **GM will introduce ‘eyes-off’ driving in 2028**: [Link](https://www.cnn.com/2025/10/22/cars/gm-self-driving-tech)
+- **Why GM will give you Gemini — but not CarPlay**: [Link](https://www.theverge.com/podcast/803379/gm-ceo-mary-barra-sterling-anderson-cadillac-iq-ev-autonomy-interview)
+- **GM plans to launch eyes-off driving, Google AI and other new in-vehicle tech by 2028**: [Link](https://www.cnbc.com/2025/10/22/gm-tech-google-ai.html)
+
+
+### trump maroc algérie (N/A, Thu, 23 Oct 2025 08:20:00 -0700)
+
+- **Donald Trump s'immisce dans le dossier du Sahara Occidental**: [Link](https://www.france24.com/fr/vid%C3%A9o/20251022-donald-trump-s-immisce-dans-le-dossier-du-sahara-occidental)
+- **Panique à Alger: «l’intégration au Maroc» devient, soudain, une option pour le Polisario**: [Link](https://fr.le360.ma/politique/panique-a-alger-lintegration-au-maroc-devient-soudain-une-option-pour-le-polisario_NGSHJZOAPZBBVLYVGB4XHLZ2GQ/)
+- **Sahara marocain : le SG de l'ONU recommande la prorogation du mandat de la MINURSO**: [Link](https://lematin.ma/nation/sahara-guterres-recommande-la-prorogation-du-mandat-de-la-minurso/309240)
+
+
 ### mbappe (N/A, Thu, 23 Oct 2025 06:10:00 -0700)
 
 - **Set the goal to defeat Real in El Clasico with the Cubarsi team**: [Link](https://zamin.uz/en/sport/164561-set-the-goal-to-defeat-real-in-el-clasico-with-the-cubarsi-team.html)
