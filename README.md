@@ -1,3 +1,10 @@
+### مولاي الحسن (N/A, Thu, 23 Oct 2025 01:00:00 -0700)
+
+- **بعد استقبال أسطوري لمنتخب الشباب: لقجع يطلب كأس العالم من قطر و المدربون المغاربة يلمعون مثل الذهب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D9%8A-%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8--%D9%88%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%B7%D9%84%D8%A8-%D9%84%D9%82%D8%A8-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A8%D9%82%D8%B7%D8%B1/bltfadc9fc8090079e2)
+- **استقبال شعبي حاشد لـ"أشبال الأطلس" أبطال كأس العالم للشباب**: [Link](https://www.aljazeera.net/sport/2025/10/23/%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-%D8%B4%D8%B9%D8%A8%D9%8A-%D8%AD%D8%A7%D8%B4%D8%AF-%D9%84%D9%80%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3)
+- **تتويج منتخب "الأشبال" بالمونديال .. حين يلتقي اللعب بالجد والوطن بالحلم**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%AD%D9%8A%D9%86-%D9%8A%D9%84%D8%AA%D9%82%D9%8A-%D8%A7%D9%84%D9%84-1644295.html)
+
+
 ### anass salah eddine (N/A, Wed, 22 Oct 2025 23:50:00 -0700)
 
 - **Salah-Eddine kiest voor Marokkaans elftal, PSV'er heeft goedkeuring FIFA binnen**: [Link](https://nos.nl/artikel/2587361-salah-eddine-kiest-voor-marokkaans-elftal-psv-er-heeft-goedkeuring-fifa-binnen)
