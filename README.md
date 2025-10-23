@@ -1,3 +1,10 @@
+### nba (N/A, Wed, 22 Oct 2025 21:00:00 -0700)
+
+- **Victor Wembanyama scores 40 in dazzling return from injury**: [Link](https://www.lemonde.fr/en/sports/article/2025/10/23/victor-wembanyama-scores-40-in-dazzling-return-from-injury_6746700_9.html)
+- **Player Grades: Mavericks vs. Spurs**: [Link](https://www.mavsmoneyball.com/dallas-mavericks-game-coverage/51312/player-grades-mavericks-vs-spurs)
+- **Luka Doncic, Victor Wembanyama, Tyrese Maxey, Anthony Edwards set NBA history in season debuts**: [Link](https://sports.yahoo.com/article/luka-doncic-victor-wembanyama-tyrese-065748782.html)
+
+
 ### acteur abdelkader moutaa (N/A, Wed, 22 Oct 2025 22:20:00 -0700)
 
 - **Décès de l’acteur Abdelkader Moutaâ à l’âge de 85 ans**: [Link](https://mobile.telquel.ma/instant-t/2025/10/22/deces-de-lacteur-abdelkader-moutaa-a-lage-de-85-ans_1956795/)
