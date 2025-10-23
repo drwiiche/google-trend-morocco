@@ -1,3 +1,10 @@
+### sanae takaichi (N/A, Thu, 23 Oct 2025 03:10:00 -0700)
+
+- **5 things to know about Sanae Takaichi, Japan's first female prime minister**: [Link](https://www.npr.org/2025/10/21/nx-s1-5581255/sanae-takaichi-japan-prime-minister)
+- **First Japanese female PM Sanae Takaichi rejects work-life balance in her first speech: From Shah Rukh Khan to Elon Musk, 5 successful people who think like her**: [Link](https://timesofindia.indiatimes.com/life-style/relationships/work/first-japanese-female-pm-sanae-takaichi-rejects-work-life-balance-in-her-first-speech-from-shah-rukh-khan-to-elon-musk-5-successful-people-who-think-like-her/photostory/124758076.cms)
+- **Nuclear power at heart of new Japan prime minister's energy policy**: [Link](https://www.reuters.com/sustainability/boards-policy-regulation/nuclear-power-heart-new-japan-pms-energy-policy-2025-10-22/)
+
+
 ### hakim ziyech wydad casablanca (N/A, Thu, 23 Oct 2025 01:20:00 -0700)
 
 
