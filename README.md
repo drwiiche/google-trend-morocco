@@ -1,3 +1,10 @@
+### محمد الرزين (N/A, Thu, 23 Oct 2025 05:50:00 -0700)
+
+- **وفاة الممثل القدير محمد الرزين**: [Link](https://kech24.com/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D9%82%D8%AF%D9%8A%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B1%D8%B2%D9%8A%D9%86.html)
+- **الفنان المغربي الكبير "محمد الرزين" في ذمة الله**: [Link](https://www.akhbarona.com/culture/415072.html)
+- **وفاة الفنان محمد الرزين**: [Link](https://madar21.com/381441.html)
+
+
 ### meteo tempete benjamin (N/A, Thu, 23 Oct 2025 05:00:00 -0700)
 
 - **Tempête Benjamin : 18 départements toujours en vigilance orange pour vents violents, plus de 140 000 foyers privés d’électricité**: [Link](https://www.lemonde.fr/planete/article/2025/10/23/tempete-benjamin-dix-neuf-departements-en-vigilance-orange-de-fortes-rafales-touchent-deja-une-bonne-partie-de-la-france_6648964_3244.html)
