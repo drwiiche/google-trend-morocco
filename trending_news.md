@@ -1,3 +1,10 @@
+### anass salah eddine (N/A, Wed, 22 Oct 2025 23:50:00 -0700)
+
+- **Salah-Eddine kiest voor Marokkaans elftal, PSV'er heeft goedkeuring FIFA binnen**: [Link](https://nos.nl/artikel/2587361-salah-eddine-kiest-voor-marokkaans-elftal-psv-er-heeft-goedkeuring-fifa-binnen)
+- **Oranje grijpt definitief naast PSV-uitblinker: oproep voor Marokko nu mogelijk**: [Link](https://www.voetbalprimeur.nl/nieuws/1704194/anass-salah-eddine-mag-officieel-opgeroepen-worden-voor-marokko.html)
+- **Anass Salah-Eddine maakt na 49 jeugdinterlands overstap van Nederland naar Marokko**: [Link](https://www.telegraaf.nl/sport/voetbal/anass-salah-eddine-maakt-na-49-jeugdinterlands-overstap-van-nederland-naar-marokko/99285338.html)
+
+
 ### le360 (N/A, Wed, 22 Oct 2025 23:30:00 -0700)
 
 - **Mondial U20: Ouahbi satisfait des Lionceaux, objectif ramener la Coupe au Maroc**: [Link](https://h24info.ma/sport/football/mondial-u20-ouahbi-satisfait-des-lionceaux-objectif-ramener-la-coupe-au-maroc/)
