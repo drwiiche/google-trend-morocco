@@ -1,3 +1,10 @@
+### celta vigo – nice (N/A, Thu, 23 Oct 2025 11:30:00 -0700)
+
+- **Celta Vigo vs. Nice: Europa League betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/23/celta-vigo-vs-nice-europa-league-betting-odds-prediction-pick/86847024007/)
+- **Celta Vigo-Nice: streaming, TV channel and compositions**: [Link](https://frenchfootballweekly.com/2025/10/23/celta-vigo-nice-streaming-tv-channel-and-compositions/)
+- **Preview:Celta Vigo vs Nice - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/celta-vigo/europa-league/preview/celta-vigo-vs-nice-prediction-team-news-lineups_584065.html)
+
+
 ### ligue europa (N/A, Thu, 23 Oct 2025 10:30:00 -0700)
 
 - **La Ligue 1 encensée à l’étranger - C3 - J3 - Celta de Vigo-Nice**: [Link](https://www.sofoot.com/breves/claudio-giraldez-celta-vigo-encense-la-ligue-1-je-ne-voulais-absolument-pas-tomber-sur-un-club-francais)
