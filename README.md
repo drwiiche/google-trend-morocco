@@ -1,3 +1,10 @@
+### europa league (N/A, Thu, 23 Oct 2025 10:00:00 -0700)
+
+- **Exclusive: Sturm Graz "Weak Spot" Identified**: [Link](https://celtsarehere.com/sturm-graz-weak-spot-identified/)
+- **Celtic: Graz's Emir Karic to fulfil dream at Celtic Park - gossip**: [Link](https://www.bbc.com/sport/articles/c07m8gp1n2zo)
+- **Manager looks ahead to latest Europa League challenge**: [Link](https://onefootball.com/en/news/manager-looks-ahead-to-latest-europa-league-challenge-41841892)
+
+
 ### häcken – rayo (N/A, Thu, 23 Oct 2025 09:20:00 -0700)
 
 - **Häcken inspireras av Djurgården i Europa-spelet: "Var helt fantastiskt"**: [Link](https://www.fotbollskanalen.se/europa-conference-league-kval/hacken-inspireras-av-djurgarden-i-europa-spelet-var-helt-fantastiskt/)
