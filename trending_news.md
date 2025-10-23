@@ -1,3 +1,17 @@
+### crystal palace – aek larnaca (N/A, Thu, 23 Oct 2025 11:40:00 -0700)
+
+- **Crystal Palace vs AEK Larnaca: Oliver Glasner Sends Devenny and Nketiah Message**: [Link](https://www.givemesport.com/crystal-palace-oliver-glasner-nketiah-devenny-aek-larnaca-conferece-league/)
+- **Eagles set for first home Conference League game**: [Link](https://www.cpfc.co.uk/news/video/eagles-set-for-first-home-conference-league-game/)
+- **Glasner confirms Esse and Uche will be in Conference League squad after U21 run-out**: [Link](https://www.thisislocallondon.co.uk/sport/crystalpalace/25564542.its-responsibility---glasner-esse-uche/)
+
+
+### jannik sinner (N/A, Thu, 23 Oct 2025 11:40:00 -0700)
+
+- **Vespa contro Sinner: "Perché un italiano dovrebbe tifare un tedesco che dice no alla Nazionale?"**: [Link](https://www.gazzetta.it/Tennis/Coppa-Davis/22-10-2025/vespa-sinner-perche-un-italiano-deve-tifare-un-tedesco-che-non-gioca-in-nazionale.shtml)
+- **Da Federer a Nadal, chi ha rifiutato la Coppa Davis prima di Sinner**: [Link](https://www.open.online/2025/10/23/federer-nadal-rifiuto-coppa-davis-sinner/)
+- **Tennis: Antoniozzi (FdI), ‘Sinner italiano vero, lasciamolo in pace e godiamocelo’**: [Link](https://www.ecodelsannio.it/2025/10/23/tennis-antoniozzi-fdi-sinner-italiano-vero-lasciamolo-in-pace-e-godiamocelo/)
+
+
 ### celta vigo – nice (N/A, Thu, 23 Oct 2025 11:30:00 -0700)
 
 - **Celta Vigo vs. Nice: Europa League betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/23/celta-vigo-vs-nice-europa-league-betting-odds-prediction-pick/86847024007/)
