@@ -1,3 +1,17 @@
+### messi (N/A, Thu, 23 Oct 2025 08:30:00 -0700)
+
+- **⚠ Lionel Messi clarifies his future at Inter Miami**: [Link](https://onefootball.com/en/news/lionel-messi-clarifies-his-future-at-inter-miami-41846618)
+- **🚨 Future settled: This is what’s next for Messi’s career**: [Link](https://ca.sports.yahoo.com/news/future-settled-next-messi-career-151600595.html)
+- **Messi Commits To Miami! Argentine Superstar Extends MLS Contract To 2028**: [Link](https://www.news18.com/sports/lionel-messi-signs-contract-extension-with-inter-miami-through-2028-ws-l-9654836.html)
+
+
+### perplexity (N/A, Thu, 23 Oct 2025 08:30:00 -0700)
+
+- **Reddit Accuses ‘Data Scraper’ Companies of Theft**: [Link](https://www.nytimes.com/2025/10/22/technology/reddit-data-scrapers-perplexity-theft.html)
+- **Reddit Sues Perplexity, Others Over Alleged Data Scraping**: [Link](https://www.bloomberg.com/news/articles/2025-10-22/reddit-sues-perplexity-others-over-alleged-data-scraping)
+- **Reddit sues AI search engine Perplexity for scraping its data**: [Link](https://www.ft.com/content/8a3da2aa-bfc1-4847-862d-978ff1ba24c9)
+
+
 ### gemini (N/A, Thu, 23 Oct 2025 08:20:00 -0700)
 
 - **GM will introduce ‘eyes-off’ driving in 2028**: [Link](https://www.cnn.com/2025/10/22/cars/gm-self-driving-tech)
