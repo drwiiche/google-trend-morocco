@@ -1,3 +1,31 @@
+### häcken – rayo (N/A, Thu, 23 Oct 2025 09:20:00 -0700)
+
+- **Häcken inspireras av Djurgården i Europa-spelet: "Var helt fantastiskt"**: [Link](https://www.fotbollskanalen.se/europa-conference-league-kval/hacken-inspireras-av-djurgarden-i-europa-spelet-var-helt-fantastiskt/)
+- **Hoten: ”Vi måste vara aggressiva”**: [Link](https://www.expressen.se/sport/fotboll/allsvenskan/spanska-hoten-for-hacken-maste-vara-aggressiva/)
+- **Häckens dröm: ”Regna i sidled och svinkallt”**: [Link](https://www.gp.se/sport/fotboll/bk-hacken/hackens-drom-infor-motet-med-rayo-vallecano-regna-i-sidled.e84b13e0-ae39-4d21-aba1-84722d690126)
+
+
+### strasbourg – jagiellonia białystok (N/A, Thu, 23 Oct 2025 09:10:00 -0700)
+
+- **To nie żart. Tak Francuzi zakpili sobie z Polaków**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/liga-konferencji-europy/to-nie-zart-tak-francuzi-zakpili-sobie-z-polakow/5gtg1ff)
+- **Strasbourg – Jagiellonia Białystok: składy na mecz, sędzia, kto zagra?**: [Link](https://sport.betfan.pl/strasbourg-jagiellonia-sklady-na-mecz-sedzia-kto-zagra/)
+- **Ogromny konflikt u rywala Jagiellonii. Trwają protesty i przepychanki**: [Link](https://pilkanozna.pl/ogromny-konflikt-u-rywala-jagiellonii-trwaja-protesty-i-przepychanki/)
+
+
+### fenerbahçe – stuttgart (N/A, Thu, 23 Oct 2025 09:10:00 -0700)
+
+- **Jakob Kehlet kimdir? Jakob Kehlet nereli? Fenerbahçe maçının hakemi daha önce kimin maçlarını yönetti?**: [Link](https://www.nobetcigazete.com/jakob-kehlet-kimdir-nereli-daha-once-hangi-maclari-yonetti)
+- **Domenico Tedesco: "Kazanmak için istekliyiz ve açız"**: [Link](https://www.ntvspor.net/foto-galeri/domenico-tedesco-kazanmak-icin-istekliyiz-ve-aciz-411598)
+- **Fenerbahçe ve Stuttgard 11'leri Açıkladı Hangi İsim Sahada Yer Alamadı !**: [Link](https://www.ajans344.com/fenerbahce-ve-stuttgard-11leri-acikladi-hangi-isim-sahada-yer-alamadi)
+
+
+### go ahead eagles – aston villa (N/A, Thu, 23 Oct 2025 09:10:00 -0700)
+
+- **Liverpool accept request as manager reveals helping hand for Aston Villa Europa League clash**: [Link](https://www.mirror.co.uk/sport/football/news/liverpool-villa-go-ahead-eagles-36117346)
+- **Unai Emery sets out his priorities ahead of Europa League clash at Go Ahead Eagles**: [Link](https://www.expressandstar.com/sport/2025/10/22/unai-emery-sets-out-his-priorities-ahead-of-europa-league-clash-at-go-ahead-eagles/)
+- **Villa to debut third kit on Thursday**: [Link](https://www.avfc.co.uk/news/2025/october/23/villa-debut-third-kit-thursday-prematch/)
+
+
 ### genk – betis (N/A, Thu, 23 Oct 2025 09:00:00 -0700)
 
 - **Real Betis vs Genk: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264821/real-betis-vs-genk-match-preview-prediction/)
