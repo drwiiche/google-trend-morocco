@@ -1,3 +1,17 @@
+### real betis (N/A, Thu, 23 Oct 2025 11:50:00 -0700)
+
+- **Genk 0-0 Betis: resumen y resultado**: [Link](https://as.com/futbol/uefa/genk-betis-en-directo-europa-league-en-vivo-hoy-f202510-d/)
+- **Pellegrini hace nueve cambios en un once en el que sólo repiten Valentín Gómez y Antony**: [Link](https://es-us.noticias.yahoo.com/deportes/pellegrini-nueve-cambios-once-repiten-171432712.html)
+- **Ánalisis del rival de UEFA Europa League: K.R.C Genk**: [Link](https://onefootball.com/es/noticias/analisis-del-rival-de-uefa-europa-league-krc-genk-41846047)
+
+
+### feyenoord (N/A, Thu, 23 Oct 2025 10:30:00 -0700)
+
+- **Opnieuw koortsachtig overleg over duel van Feyenoord: ‘Belangrijkste dat bezoekers veilig zijn’**: [Link](https://www.ad.nl/sport/opnieuw-koortsachtig-overleg-over-duel-van-feyenoord-belangrijkste-dat-bezoekers-veilig-zijn~ad36eb20/)
+- **Van Persie: 'Een beter scenario was denk ik wel geweest als we op een ander moment hadden gepeeld'**: [Link](https://www.fr-fans.nl/nieuws/74563/van-persie-een-beter-scenario-was-denk-ik-wel-geweest-als-we-op-een-ander-moment-hadden-gepeeld)
+- **Ahmedhodzic: "Ik spreek voor iedereen als ik zeg dat dit een gekke dag is"**: [Link](https://1908.nl/artikelen/ahmedhodzic-ik-spreek-voor-iedereen-als-ik-zeg-dat-dit-een-gekke-dag-is)
+
+
 ### crystal palace – aek larnaca (N/A, Thu, 23 Oct 2025 11:40:00 -0700)
 
 - **Crystal Palace vs AEK Larnaca: Oliver Glasner Sends Devenny and Nketiah Message**: [Link](https://www.givemesport.com/crystal-palace-oliver-glasner-nketiah-devenny-aek-larnaca-conferece-league/)
