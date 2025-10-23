@@ -1,3 +1,10 @@
+### le360 (N/A, Wed, 22 Oct 2025 23:30:00 -0700)
+
+- **Mondial U20: Ouahbi satisfait des Lionceaux, objectif ramener la Coupe au Maroc**: [Link](https://h24info.ma/sport/football/mondial-u20-ouahbi-satisfait-des-lionceaux-objectif-ramener-la-coupe-au-maroc/)
+- **Moulay El Hassan préside une cérémonie offerte par Mohammed VI en l'honneur des Lionceaux de l'Atlas**: [Link](https://ledesk.ma/encontinu/moulay-el-hassan-preside-une-ceremonie-offerte-par-mohammed-vi-en-lhonneur-des-lionceaux-de-latlas/)
+- **Hommage royal aux Lionceaux de l’Atlas: un geste à forte portée symbolique**: [Link](https://fr.le360.ma/politique/hommage-royal-aux-lionceaux-de-latlas-un-geste-a-forte-portee-symbolique_VIGCUGVWEBD5PGPSI27FRPWCGE/)
+
+
 ### nba (N/A, Wed, 22 Oct 2025 21:00:00 -0700)
 
 - **Victor Wembanyama scores 40 in dazzling return from injury**: [Link](https://www.lemonde.fr/en/sports/article/2025/10/23/victor-wembanyama-scores-40-in-dazzling-return-from-injury_6746700_9.html)
