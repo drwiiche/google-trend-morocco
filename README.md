@@ -1,3 +1,10 @@
+### mbappe (N/A, Thu, 23 Oct 2025 06:10:00 -0700)
+
+- **Set the goal to defeat Real in El Clasico with the Cubarsi team**: [Link](https://zamin.uz/en/sport/164561-set-the-goal-to-defeat-real-in-el-clasico-with-the-cubarsi-team.html)
+- **‘I hope we can thrash Madrid again’ - Barcelona’s Alejandro Balde excited for El Clasico**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/104268/i-hope-we-can-thrash-madrid-again-barcelonas-alejandro-balde-excited-for-el-clasico)
+- **Clasico: Pau Cubarsi knows how to stop Kylian Mbappé**: [Link](https://foot-africa.com/en/news/clasico-pau-cubarsi-knows-how-to-stop-kylian-mbappe-931178/)
+
+
 ### محمد الرزين (N/A, Thu, 23 Oct 2025 05:50:00 -0700)
 
 - **وفاة الممثل القدير محمد الرزين**: [Link](https://kech24.com/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D9%82%D8%AF%D9%8A%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B1%D8%B2%D9%8A%D9%86.html)
