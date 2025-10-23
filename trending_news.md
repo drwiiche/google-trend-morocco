@@ -1,3 +1,10 @@
+### stake (N/A, Wed, 22 Oct 2025 18:30:00 -0700)
+
+- **Stake.us Texas Poker Bad Beat Jackpot: 1 MILLION Stake Cash Pool**: [Link](https://www.actionnetwork.com/news/stake-us-texas-poker-bad-beat-jackpot-1-million-stake-cash-pool)
+- **Forget Caesars & Roobet: Why Spartans Is the #1 US Crypto Casino in 2025 With CASHRAKE™ & Instant Payouts**: [Link](https://coindoo.com/forget-caesars-roobet-why-spartans-is-the-1-us-casino-in-2025-with-cashrake-instant-payouts/)
+- **Best Betting App 2025: Why Spartans Beats FanDuel and Bet365 Hands-Down**: [Link](https://www.livebitcoinnews.com/best-betting-app-2025-why-spartans-beats-fanduel-and-bet365-hands-down/)
+
+
 ### adn (N/A, Wed, 22 Oct 2025 16:10:00 -0700)
 
 - **Letter: Action needed in Muldoon**: [Link](https://www.adn.com/opinions/letters/2025/10/22/letter-action-needed-in-muldoon/)
