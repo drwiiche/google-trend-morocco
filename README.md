@@ -1,3 +1,10 @@
+### genk – betis (N/A, Thu, 23 Oct 2025 09:00:00 -0700)
+
+- **Real Betis vs Genk: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264821/real-betis-vs-genk-match-preview-prediction/)
+- **Bartra returns for Real Betis ahead of Genk Europa League tie**: [Link](https://www.besoccer.com/new/bartra-returns-for-real-betis-ahead-of-genk-europa-league-tie-1378361)
+- **Preview:Genk vs Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/genk/europa-league/preview/genk-vs-betis-prediction-team-news-lineups_584012.html)
+
+
 ### messi (N/A, Thu, 23 Oct 2025 08:30:00 -0700)
 
 - **⚠ Lionel Messi clarifies his future at Inter Miami**: [Link](https://onefootball.com/en/news/lionel-messi-clarifies-his-future-at-inter-miami-41846618)
