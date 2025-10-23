@@ -1,3 +1,10 @@
+### teams (N/A, Thu, 23 Oct 2025 01:10:00 -0700)
+
+- **NBA Hope-O-Meter 2025-26: Ranking fans’ optimism for all 30 teams - The Athletic**: [Link](https://www.nytimes.com/athletic/6733611/2025/10/22/nba-hope-o-meter-thunder-warriors-lakers-knicks/)
+- **The Most Valuable NBA Teams 2025**: [Link](https://www.forbes.com/sites/justinteitelbaum/2025/10/23/the-most-valuable-nba-teams-2025/)
+- **Lakers Lap Knicks in New NBA Franchise Valuations After Team Sale**: [Link](https://www.newsweek.com/sports/nba/lakers-lap-knicks-in-new-nba-franchise-valuations-after-team-sale-10903549)
+
+
 ### sanae takaichi (N/A, Thu, 23 Oct 2025 03:10:00 -0700)
 
 - **5 things to know about Sanae Takaichi, Japan's first female prime minister**: [Link](https://www.npr.org/2025/10/21/nx-s1-5581255/sanae-takaichi-japan-prime-minister)
