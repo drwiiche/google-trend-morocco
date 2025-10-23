@@ -1,3 +1,10 @@
+### meteo tempete benjamin (N/A, Thu, 23 Oct 2025 05:00:00 -0700)
+
+- **Tempête Benjamin : 18 départements toujours en vigilance orange pour vents violents, plus de 140 000 foyers privés d’électricité**: [Link](https://www.lemonde.fr/planete/article/2025/10/23/tempete-benjamin-dix-neuf-departements-en-vigilance-orange-de-fortes-rafales-touchent-deja-une-bonne-partie-de-la-france_6648964_3244.html)
+- **Une « bombe météorologique » : à quoi s’attendre pour la tempête qui va toucher la France à partir de jeudi**: [Link](https://www.leparisien.fr/meteo/une-bombe-meteorologique-a-quoi-sattendre-pour-la-tempete-qui-va-toucher-la-france-a-partir-de-jeudi-21-10-2025-ZPXQWJGV6ZHU5NFCQP7RDTBJY4.php)
+- **La tempête Benjamin traverse la France**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/fort-coup-de-vent-attendu-sur-le-pays)
+
+
 ### teams (N/A, Thu, 23 Oct 2025 01:10:00 -0700)
 
 - **NBA Hope-O-Meter 2025-26: Ranking fans’ optimism for all 30 teams - The Athletic**: [Link](https://www.nytimes.com/athletic/6733611/2025/10/22/nba-hope-o-meter-thunder-warriors-lakers-knicks/)
