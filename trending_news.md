@@ -1,3 +1,17 @@
+### roma (N/A, Thu, 23 Oct 2025 14:00:00 -0700)
+
+- **Tartufo, castagna, polenta: le sagre nei dintorni di Roma sabato 18 e domenica 19 ottobre: ecco dove andare**: [Link](https://www.ilmessaggero.it/roma/metropoli/sagre_vicino_roma_18_e_19_ottobre-9132759.html)
+- **Eventi a Roma nel weekend dal 24 al 26 ottobre 2025**: [Link](https://www.romaweekend.it/articoli/eventi-roma-weekend-266/)
+- **Dalla Festa del Cinema alla Maker Faire: a Roma un fine settimana ricco di eventi**: [Link](https://www.agenzianova.com/news/dalla-festa-del-cinema-alla-maker-faire-a-roma-un-fine-settimana-ricco-di-eventi/)
+
+
+### lille fc (N/A, Thu, 23 Oct 2025 13:50:00 -0700)
+
+- **Guidance for fans travelling to Lille**: [Link](https://www.paokfc.gr/en/news/20251021-odigie-gia-tous-ekdromeis-sto-lille/)
+- **Lille predicted XI v PAOK Salonique: Hamza Igamane to start ahead of Olivier Giroud**: [Link](https://www.getfootballnewsfrance.com/2025/lille-predicted-xi-v-paok-salonique-hamza-igamane-to-start-ahead-of-olivier-giroud/)
+- **Lille-PAOK Salonika live commentary**: [Link](https://frenchfootballweekly.com/2025/10/23/lille-paok-salonika-live-commentary/)
+
+
 ### real betis (N/A, Thu, 23 Oct 2025 11:50:00 -0700)
 
 - **Genk 0-0 Betis: resumen y resultado**: [Link](https://as.com/futbol/uefa/genk-betis-en-directo-europa-league-en-vivo-hoy-f202510-d/)
