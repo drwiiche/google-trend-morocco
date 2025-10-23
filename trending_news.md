@@ -1,3 +1,10 @@
+### adn (N/A, Wed, 22 Oct 2025 16:10:00 -0700)
+
+- **Letter: Action needed in Muldoon**: [Link](https://www.adn.com/opinions/letters/2025/10/22/letter-action-needed-in-muldoon/)
+- **Soaring after a national title, Alaska Nordic combined skier Carter Brubaker is on the ascent**: [Link](https://www.adn.com/sports/skiing/2025/10/22/soaring-after-a-national-title-alaska-nordic-combined-skier-carter-brubaker-is-on-the-ascent/)
+- **As red states target abortion pills, this group aims to boost protections**: [Link](https://www.washingtonpost.com/nation/2025/10/22/abortion-pills-access-reproductive-futures/)
+
+
 ### mohamed bouhafsi (N/A, Wed, 22 Oct 2025 16:00:00 -0700)
 
 - **"J'ai démissionné spontanément" : Mohamed Bouhafsi ("C à vous") a quitté son poste à France Télévisions pour devenir directeur général de 3e Œil Productions - Puremédias**: [Link](https://www.ozap.com/actu/jai-demissionne-spontanement-mohamed-bouhafsi-c-a-vous-a-quitte-son-poste-a-france-televisions-pour-devenir-directeur-general-de-3e-oeil-productions/652132)
