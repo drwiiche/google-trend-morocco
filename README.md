@@ -1,3 +1,17 @@
+### nba (N/A, Thu, 23 Oct 2025 21:00:00 -0700)
+
+- **Chauncey Billups, Terry Rozier arrests escalate sprawling NBA betting scandal - The Athletic**: [Link](https://www.nytimes.com/athletic/6743095/2025/10/23/nba-federal-gambling-investigation-arrests-investigation/)
+- **Billups, Rozier arrested in gambling investigations**: [Link](https://www.espn.com/nba/story/_/id/46695228/sources-terry-rozier-arrested-part-gambling-inquiry)
+- **Portland Trail Blazers coach Chauncey Billups charged in illegal poker operation tied to Mafia**: [Link](https://abcnews.go.com/US/miami-heat-terry-rozier-charged-nba-betting/story?id=126789368)
+
+
+### ai (N/A, Thu, 23 Oct 2025 19:10:00 -0700)
+
+- **Expanding our use of Google Cloud TPUs and Services**: [Link](https://www.anthropic.com/news/expanding-our-use-of-google-cloud-tpus-and-services)
+- **Google TPUs Find Sweet Spot of AI Demand, a Decade After Chip’s Debut**: [Link](https://www.bloomberg.com/news/articles/2025-10-23/google-tpus-find-sweet-spot-of-ai-demand-a-decade-after-chip-s-debut)
+- **Google and Anthropic announce cloud deal worth tens of billions of dollars**: [Link](https://www.cnbc.com/2025/10/23/anthropic-google-cloud-deal-tpu.html)
+
+
 ### aston villa (N/A, Thu, 23 Oct 2025 11:10:00 -0700)
 
 - **Man City XI vs Aston Villa: Confirmed team news, predicted lineup and injury latest for Premier League**: [Link](https://www.standard.co.uk/sport/football/man-city-xi-vs-aston-villa-confirmed-team-news-predicted-lineup-injury-latest-premier-league-b1254642.html)
