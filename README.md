@@ -1,3 +1,31 @@
+### asante kotoko (N/A, Fri, 24 Oct 2025 12:20:00 -0700)
+
+- **CAFCC: “Kotoko’s Trip to Morocco Is Just a Travelling Experience, Not to Beat WAC” – Charles Taylor**: [Link](https://en.africatopsports.com/2025/10/24/cafcc-kotokos-trip-to-morocco-is-just-a-travelling-experience-not-to-beat-wac-charles-taylor/)
+- **Kotoko face tough test in Casablanca after first-leg defeat to Wydad**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/Kotoko-face-tough-test-in-Casablanca-after-first-leg-defeat-to-Wydad-2006395)
+- **CAF Confederation Cup: Karim Zito names 20-man squad for Wydad Athletic Club on Friday**: [Link](https://www.modernghana.com/sports/1442584/caf-confederation-cup-karim-zito-names-20-man.html)
+
+
+### paris fc – nantes (N/A, Fri, 24 Oct 2025 12:20:00 -0700)
+
+- **DIRECT. Paris FC-Nantes (Ligue 1 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/paris-fc-nantes-live/675872)
+- **« J’étais triste de partir » Moses Simon se confie sur son départ du FC Nantes**: [Link](https://tribunenantaise.fr/actus-fcnantes/jetais-triste-de-partir-moses-simon-se-confie-sur-son-depart-du-fc-nantes/)
+- **PRONOS PARIS RMC Le pari foot de Jérôme Rothen et Lionel Charbonnier du 24 octobre – L1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-jerome-rothen-et-lionel-charbonnier-du-24-octobre-l1_AN-202510240672.html)
+
+
+### coupe de la caf (N/A, Fri, 24 Oct 2025 11:40:00 -0700)
+
+- **Sports - Le Chabab doit finir le job à la maison**: [Link](https://www.lexpressiondz.com/sports/le-chabab-doit-finir-le-job-a-la-maison-399124)
+- **Coupe CAF : Le CR Belouizdad et le Hafia FC dos à dos à la pause**: [Link](https://www.africatopsports.com/2025/10/24/coupe-caf-le-cr-belouizdad-et-le-hafia-fc-dos-a-dos-a-la-pause/)
+- **L'USMA et le CRB pour réussir leur entrée en lice**: [Link](https://www.aps.dz/fr/sports/sport-collectif/mgw8zsge-l-usma-et-le-crb-pour-reussir-leur-entree-en-lice)
+
+
+### wydad match (N/A, Fri, 24 Oct 2025 11:30:00 -0700)
+
+- **Wydad Casablanca-Asante Kotoko: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/coupe-caf/wydad-casablanca-asante-kotoko-a-quelle-heure-et-sur-quelle-chaine_EMKQUFRLP5ERJKBKO5WLQIIOEU/)
+- **Benhachem peaufine les derniers réglages avant le match retour contre Asante Kotoko**: [Link](https://m.elbotola.com/fr/article/2025-10-23-18-16-982.html)
+- **Wydad-Asante: où et quand voir le match ? (Coupe de la CAF)**: [Link](https://www.lesiteinfo.com/sport/658207-wydad-asante-ou-et-quand-voir-le-match-coupe-de-la-caf.html)
+
+
 ### wydad ac (N/A, Fri, 24 Oct 2025 12:10:00 -0700)
 
 - **Hakim Ziyech à la Botola ? Un accord conclu avec le Wydad (médias)**: [Link](https://medias24.com/2025/10/22/hakim-ziyech-a-la-botola-un-accord-conclu-avec-le-wydad-medias/)
