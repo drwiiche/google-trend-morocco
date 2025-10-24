@@ -1,3 +1,10 @@
+### real sociedad vs sevilla (N/A, Fri, 24 Oct 2025 12:40:00 -0700)
+
+- **Preview:Real Sociedad vs Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/real-sociedad-vs-sevilla-prediction-team-news-lineups_584100.html)
+- **Ander Barrenetxea vs. Sevilla FC – Player props & odds to score a goal on October 24**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/24/ander-barrenetxea-soccer-player-props-10-24-2025/86869443007/)
+- **Sevilla Faces Real Sociedad in LaLiga Matchday 10 Clash**: [Link](https://www.el-balad.com/6743579)
+
+
 ### al hilal (N/A, Fri, 24 Oct 2025 12:30:00 -0700)
 
 - **Al Hilal SC advance to CAF Champions League group stage**: [Link](https://cecafaonline.com/al-hilal-sc-advance-to-caf-champions-league-group-stage/)
