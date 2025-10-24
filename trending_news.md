@@ -1,3 +1,17 @@
+### widad (N/A, Fri, 24 Oct 2025 09:20:00 -0700)
+
+- **الوداد ينهي معاناة زياش في صفقة تاريخية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%86%D9%87%D9%8A-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%81%D9%8A-%D8%B5%D9%81%D9%82%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9/blt52a54f74f5635326)
+- **رسميا.. الوداد يعلن ضم حكيم زياش**: [Link](https://www.hespress.com/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%B6%D9%85-%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4-1644826.html)
+- **الوداد يُريد التعاقد مع بوفال.. مصدر يوضح**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%8F%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A8%D9%88%D9%81%D8%A7%D9%84-%D9%85%D8%B5%D8%AF%D8%B1-%D9%8A%D9%88%D8%B6/)
+
+
+### match wydad (N/A, Fri, 24 Oct 2025 09:00:00 -0700)
+
+- **Benhachem peaufine les derniers réglages avant le match retour contre Asante Kotoko**: [Link](https://m.elbotola.com/fr/article/2025-10-23-18-16-982.html)
+- **Wydad Casablanca-Asante Kotoko: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/coupe-caf/wydad-casablanca-asante-kotoko-a-quelle-heure-et-sur-quelle-chaine_EMKQUFRLP5ERJKBKO5WLQIIOEU/)
+- **Coupe de la CAF (2e tour préliminaire-aller): Le WAC s'impose en déplacement face à Asante Kotoko (1-0)**: [Link](https://snrtnews.com/fr/article/coupe-de-la-caf-2e-tour-preliminaire-aller-le-wac-simpose-en-deplacement-face-a-asante)
+
+
 ### kings league (N/A, Fri, 24 Oct 2025 09:00:00 -0700)
 
 - **Kings League Agrees Media Rights Partnership With MBC GROUP - UK Broadcast News | 23/10/2025**: [Link](https://www.4rfv.co.uk/industrynews/323970/kings_league_agrees_media_rights_partnership_with_mbc_group)
