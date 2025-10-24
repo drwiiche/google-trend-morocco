@@ -1,3 +1,10 @@
+### مباراة الوداد اليوم (N/A, Fri, 24 Oct 2025 11:00:00 -0700)
+
+- **تشكيلة الوداد.. بنهاشم يدفع بمفيد وبوشتة في الدفاع وناسي يقود الهجوم رفقة لورش والهنوري**: [Link](https://m.elbotola.com/article/2025-10-24-18-10-587.html)
+- **الوداد يعود بانتصار تاريخي من غانا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%85%D9%86-%D8%BA%D8%A7%D9%86%D8%A7/blt1b5b5b3c30eeb7b7)
+- **كوتوكو الغاني: سنقاتل أمام الوداد**: [Link](https://www.hespress.com/%D9%83%D9%88%D8%AA%D9%88%D9%83%D9%88-%D8%A7%D9%84%D8%BA%D8%A7%D9%86%D9%8A-%D8%B3%D9%86%D9%82%D8%A7%D8%AA%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1644778.html)
+
+
 ### leeds united – west ham (N/A, Fri, 24 Oct 2025 11:30:00 -0700)
 
 - **Starting XI | Diouf and Wan-Bissaka return at Leeds**: [Link](https://www.whufc.com/news/starting-xi-diouf-and-wan-bissaka-return-leeds)
