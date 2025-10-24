@@ -1,3 +1,16 @@
+### الاتحاد ضد الهلال (N/A, Fri, 24 Oct 2025 10:30:00 -0700)
+
+- **سلام مرفوض ووصال مفقود.. إنزاجي وكونسيساو من صداقة روما إلى عداوة ميلانو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D8%A7%D9%85-%D9%85%D8%B1%D9%81%D9%88%D8%B6-%D9%88%D9%88%D8%B5%D8%A7%D9%84-%D9%85%D9%81%D9%82%D9%88%D8%AF--%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%88%D9%83%D9%88%D9%86%D8%B3%D9%8A%D8%B3%D8%A7%D9%88-%D9%85%D9%86-%D8%B5%D8%AF%D8%A7%D9%82%D8%A9-%D8%B1%D9%88%D9%85%D8%A7-%D8%A7%D9%95%D9%84%D9%89-%D8%B9%D8%AF%D8%A7%D9%88%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86%D9%88/blt09dde1c76d94b955)
+- **مباشر.. مباراة الاتحاد ضد الهلال في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/24/al-ittihad-vs-al-hilal-2)
+- **كلاسيكو السعودية.. صراع النقاط والأرقام في قمة الاتحاد والهلال**: [Link](https://www.alaraby.co.uk/sport/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D9%88%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84)
+
+
+### kings league mena (N/A, Fri, 24 Oct 2025 10:20:00 -0700)
+
+- **Kings League Agrees Media Rights Partnership With MBC GROUP - UK Broadcast News | 23/10/2025**: [Link](https://www.4rfv.co.uk/industrynews/323970/kings_league_agrees_media_rights_partnership_with_mbc_group)
+- **MBC Action to Offer Free Live Coverage of Kings Cup MENA**: [Link](https://worldscreen.com/mbc-action-to-offer-free-live-coverage-of-kings-cup-mena/)
+
+
 ### al ittihad – al-hilal (N/A, Fri, 24 Oct 2025 10:20:00 -0700)
 
 - **Al Ittihad vs Al Hilal – How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264990/al-ittihad-vs-al-hilal-how-to-watch-score-prediction/)
