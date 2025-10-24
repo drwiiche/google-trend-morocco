@@ -1,3 +1,10 @@
+### wydad (N/A, Fri, 24 Oct 2025 08:40:00 -0700)
+
+- **Hakim Ziyech à la Botola ? Un accord conclu avec le Wydad (médias)**: [Link](https://medias24.com/2025/10/22/hakim-ziyech-a-la-botola-un-accord-conclu-avec-le-wydad-medias/)
+- **Wydad de Casablanca : Hicham Aït Menna confirme l’arrivée de Ziyech**: [Link](https://lematin.ma/sports/wydad-de-casablanca-hicham-ait-menna-confirme-larrivee-de-ziyech/309408)
+- **Hakim Ziyech retrouve un club**: [Link](https://www.footmercato.net/a8289007143185754972-hakim-ziyech-retrouve-un-club)
+
+
 ### changement heure hiver (N/A, Fri, 24 Oct 2025 06:20:00 -0700)
 
 - **Changement d’heure ce week-end : ce qu’il faut savoir sur le passage à l’heure d’hiver**: [Link](https://www.sudouest.fr/sante/changement-d-heure/changement-d-heure-ce-week-end-ce-qu-il-faut-savoir-sur-le-passage-a-l-heure-d-hiver-26431252.php)
