@@ -1,3 +1,10 @@
+### changement heure hiver (N/A, Fri, 24 Oct 2025 06:20:00 -0700)
+
+- **Changement d’heure ce week-end : ce qu’il faut savoir sur le passage à l’heure d’hiver**: [Link](https://www.sudouest.fr/sante/changement-d-heure/changement-d-heure-ce-week-end-ce-qu-il-faut-savoir-sur-le-passage-a-l-heure-d-hiver-26431252.php)
+- **Dimanche, changera-t-on d’heure pour la dernière fois ?**: [Link](https://www.20minutes.fr/societe/4181275-20251023-heure-hiver-si-derniere-fois-dimanche-commission-europeenne-travaille)
+- **Le changement d'heure en octobre affecte-t-il vraiment votre santé ?**: [Link](https://fr.euronews.com/sante/2025/10/24/changement-dheure-ce-week-end-le-recul-de-lhorloge-affecte-t-il-reellement-votre-sante)
+
+
 ### coupe du monde de football des moins de 20 ans (N/A, Thu, 23 Oct 2025 17:20:00 -0700)
 
 - **Moulay El Hassan préside une cérémonie offerte par Mohammed VI en l'honneur des Lionceaux de l'Atlas**: [Link](https://ledesk.ma/encontinu/moulay-el-hassan-preside-une-ceremonie-offerte-par-mohammed-vi-en-lhonneur-des-lionceaux-de-latlas/)
