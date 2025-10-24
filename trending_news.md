@@ -1,3 +1,10 @@
+### serie a (N/A, Fri, 24 Oct 2025 14:00:00 -0700)
+
+- **LIVE Milan-Pisa 1-1: Cuadrado fa pari su rigore, Leao spreca e prende la traversa**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/24-10-2025/milan-pisa-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Mezzi Atm deviati e fermate metro chiuse in anticipo: le modifiche per la partita del Milan**: [Link](https://www.virgilio.it/italia/milano/notizielocali/mezzi_atm_deviati_e_fermate_metro_chiuse_in_anticipo_le_modifiche_per_la_partita_del_milan-75920862.html)
+- **Gol di Leao con Pavlovic in fuorigioco: ecco perché la rete in Milan-Pisa non è stata annullata**: [Link](https://www.repubblica.it/sport/calcio/serie-a/2025/10/24/news/leao_gol_milan_pisa_fuorigioco_cosa_e_successo-424936201/)
+
+
 ### équipe du costa rica féminine de football des moins de 17 ans – équipe du maroc féminine de football des moins de 17 ans (N/A, Fri, 24 Oct 2025 13:30:00 -0700)
 
 - **CM Féminine U17: la sélection nationale s’incline 3-1 face à l’Italie**: [Link](https://frmf.ma/fr/cm-feminine-u17-la-selection-nationale-sincline-3-1-face-a-litalie/)
