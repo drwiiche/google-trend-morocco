@@ -1,3 +1,24 @@
+### al hilal (N/A, Fri, 24 Oct 2025 12:30:00 -0700)
+
+- **Al Hilal SC advance to CAF Champions League group stage**: [Link](https://cecafaonline.com/al-hilal-sc-advance-to-caf-champions-league-group-stage/)
+- **Poor record in North Africa looms large as Nairobi United, Police chase Africa glory**: [Link](https://nation.africa/kenya/sports/football/-poor-record-in-north-africa-looms-large-as-nairobi-united-police-chase-africa-glory--5240668)
+- **Kenya Police limp out of Champions League after losing to Sudan’s Al Hilal**: [Link](https://www.capitalfm.co.ke/sports/2025/10/24/kenya-police-limp-out-of-champions-league-after-losing-to-sudans-al-hilal/)
+
+
+### ac milan (N/A, Fri, 24 Oct 2025 12:30:00 -0700)
+
+- **Serie A Preview: Milan vs Pisa – Team News, Line-ups & Prediction**: [Link](https://cultofcalcio.com/serie-a-preview-milan-vs-pisa-team-news-line-ups-prediction/)
+- **CM: Meeting history – De Winter set to show progression against former coach**: [Link](https://sempremilan.com/de-winter-show-progression-former-coach)
+- **Allegri sets minimum points target for Milan’s Champions League qualification**: [Link](https://football-italia.net/allegri-minimum-milan-points-target-ucl/)
+
+
+### كأس الاتحاد الأفريقي (N/A, Fri, 24 Oct 2025 12:30:00 -0700)
+
+- **كاف يعلن رسميًا موعد قرعتي أبطال أفريقيا والكونفدرالية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D9%81-%D9%8A%D8%B9%D9%84%D9%86-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D9%82%D8%B1%D8%B9%D8%AA%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9/blte7a6587f6d819b40)
+- **عملية سحب قرعة دور المجموعات لمسابقات الأندية لـ"الكاف" ستُجرى في مدينة جوهانسبورغ يوم 03 نوفمبر**: [Link](https://www.cafonline.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%B3%D8%AD%D8%A8-%D9%82%D8%B1%D8%B9%D8%A9-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D9%84%D9%85%D8%B3%D8%A7%D8%A8%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D9%84%D9%80%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%B3%D8%AA-%D8%AC%D8%B1%D9%89-%D9%81%D9%8A-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%AC%D9%88%D9%87%D8%A7%D9%86%D8%B3%D8%A8%D9%88%D8%B1%D8%BA-%D9%8A%D9%88%D9%85-03-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1/)
+- **قدم.. جوهانسبرغ تستضيف قرعة دور المجموعات للكونفدرالية ودوري الإبطال**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%AC%D9%88%D9%87%D8%A7%D9%86%D8%B3%D8%A8%D8%B1%D8%BA-%D8%AA%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D9%82%D8%B1%D8%B9%D8%A9-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D9%84%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%A8%D8%B7%D8%A7%D9%84/3725102)
+
+
 ### asante kotoko (N/A, Fri, 24 Oct 2025 12:20:00 -0700)
 
 - **CAFCC: “Kotoko’s Trip to Morocco Is Just a Travelling Experience, Not to Beat WAC” – Charles Taylor**: [Link](https://en.africatopsports.com/2025/10/24/cafcc-kotokos-trip-to-morocco-is-just-a-travelling-experience-not-to-beat-wac-charles-taylor/)
