@@ -1,3 +1,17 @@
+### كأس العرب 2025 (N/A, Thu, 23 Oct 2025 17:40:00 -0700)
+
+- **رسميا/ "الفيفا" توافق على استضافة قطر لكأس العرب لـ3 نسخ متتالية (2025 و2029 و2033)**: [Link](https://m.elbotola.com/article/2025-10-23-13-58-41.html)
+- **نجم المنتخب الأردني: النشامى جاهزون لاستعادة المجد العربي في "قطر2025"**: [Link](https://arabi21.com/story/1714997/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B4%D8%A7%D9%85%D9%89-%D8%AC%D8%A7%D9%87%D8%B2%D9%88%D9%86-%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%AC%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D9%82%D8%B7%D8%B12025)
+- **مائدة مستديرة حول بطولة كأس العرب FIFA قطر 2025 غدا في نادي الصحفيين**: [Link](https://www.youm7.com/story/2025/10/23/%D9%85%D8%A7%D8%A6%D8%AF%D8%A9-%D9%85%D8%B3%D8%AA%D8%AF%D9%8A%D8%B1%D8%A9-%D8%AD%D9%88%D9%84-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-FIFA-%D9%82%D8%B7%D8%B1-2025-%D8%BA%D8%AF%D8%A7/7168659)
+
+
+### weather tomorrow (N/A, Thu, 23 Oct 2025 13:00:00 -0700)
+
+- **Chicago weather: Widespread freeze expected tonight before a dry weekend**: [Link](https://www.fox32chicago.com/weather/chicago-weather-widespread-freeze-expected-tonight-before-dry-weekend)
+- **Forecast: Cold with clearing skies; widespread frost/freezing temperatures**: [Link](https://www.yahoo.com/news/articles/forecast-cold-clearing-skies-widespread-005320068.html)
+- **Frost advisory, freeze warning set for Friday morning across multiple counties**: [Link](https://wsbt.com/news/local/frost-advisory-freeze-warning-set-for-friday-morning-across-multiple-counties)
+
+
 ### roma (N/A, Thu, 23 Oct 2025 14:00:00 -0700)
 
 - **Tartufo, castagna, polenta: le sagre nei dintorni di Roma sabato 18 e domenica 19 ottobre: ecco dove andare**: [Link](https://www.ilmessaggero.it/roma/metropoli/sagre_vicino_roma_18_e_19_ottobre-9132759.html)
