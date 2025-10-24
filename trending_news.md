@@ -1,3 +1,24 @@
+### équipe du costa rica féminine de football des moins de 17 ans – équipe du maroc féminine de football des moins de 17 ans (N/A, Fri, 24 Oct 2025 13:30:00 -0700)
+
+- **CM Féminine U17: la sélection nationale s’incline 3-1 face à l’Italie**: [Link](https://frmf.ma/fr/cm-feminine-u17-la-selection-nationale-sincline-3-1-face-a-litalie/)
+- **Match Maroc-Costa Rica : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-costa-rica-a-quelle-heure-et-sur-quelles-chaines/309473)
+- **Mondial U17 féminin: Maroc-Costa Rica, où et quand suivre le match de la dernière chance des Lioncelles?**: [Link](https://h24info.ma/sport/mondial-u17-feminin-maroc-costa-rica-ou-et-quand-suivre-le-match-de-la-derniere-chance-des-lioncelles/)
+
+
+### wac vs kotoko (N/A, Fri, 24 Oct 2025 12:20:00 -0700)
+
+- **Kotoko suffer defeat to Morocco’s Wydad AC in CAF Confederation Cup**: [Link](https://www.ghanabusinessnews.com/2025/10/20/kotoko-suffer-defeat-to-moroccos-wydad-ac-in-caf-confederation-cup/)
+- **CAF CONFEDERATION CUP CAFCC: WAC and Asante Kotoko: confirmed Lineups**: [Link](https://en.africatopsports.com/2025/10/24/cafcc-wac-and-asante-kotoko-confirmed-lineups/)
+- **Karim Zito can guide Asante Kotoko to beat Wydad AC in Morocco - GFA boss Kurt Okraku**: [Link](https://ghanasoccernet.com/karim-zito-can-guide-asante-kotoko-to-beat-wydad-ac-in-morocco-gfa-boss-kurt-okraku)
+
+
+### al-ittihad vs al-hilal (N/A, Fri, 24 Oct 2025 11:20:00 -0700)
+
+- **Al Ittihad vs Al Hilal – How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264990/al-ittihad-vs-al-hilal-how-to-watch-score-prediction/)
+- **Leonardo helps fire Inzaghi's Al Hilal to Clasico win at champions Al Ittihad**: [Link](https://onefootball.com/es/noticias/leonardo-helps-fire-inzaghis-al-hilal-to-clasico-win-at-champions-al-ittihad-41852651)
+- **Al-Hilal Secures 2-0 Victory Over Al-Ittihad To Extend Winning Streak To Six Matches**: [Link](https://www.mykhel.com/football/al-hilal-extends-winning-run-against-al-ittihad-011-392371.html)
+
+
 ### real sociedad vs sevilla (N/A, Fri, 24 Oct 2025 12:40:00 -0700)
 
 - **Preview:Real Sociedad vs Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/real-sociedad-vs-sevilla-prediction-team-news-lineups_584100.html)
