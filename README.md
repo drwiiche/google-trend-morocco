@@ -1,3 +1,10 @@
+### lionel messi (N/A, Fri, 24 Oct 2025 04:00:00 -0700)
+
+- **Inter Miami CF Signs Leo Messi to Contract Extension**: [Link](https://www.intermiamicf.com/news/inter-miami-cf-signs-leo-messi-to-contract-extension)
+- **The Sound of Silence: Lionel Messi’s media avoidance is impacting his MLS era**: [Link](https://www.fourfourtwo.com/person/player/the-sound-of-silence-lionel-messis-media-avoidance-is-impacting-his-mls-era)
+- **👑 Messi eternal: which Champions League records can he break? 🧐**: [Link](https://onefootball.com/en/news/messi-eternal-which-champions-league-records-can-he-break-41848285)
+
+
 ### nba (N/A, Thu, 23 Oct 2025 21:00:00 -0700)
 
 - **Chauncey Billups, Terry Rozier arrests escalate sprawling NBA betting scandal - The Athletic**: [Link](https://www.nytimes.com/athletic/6743095/2025/10/23/nba-federal-gambling-investigation-arrests-investigation/)
