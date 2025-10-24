@@ -1,3 +1,17 @@
+### sahara marocain onu (N/A, Fri, 24 Oct 2025 05:20:00 -0700)
+
+- **Sahara : le SG de l’ONU renouvelle son appel au dialogue entre le Maroc et l’Algérie**: [Link](https://mobile.telquel.ma/instant-t/2025/10/23/sahara-le-sg-de-lonu-renouvelle-son-appel-au-dialogue-entre-le-maroc-et-lalgerie_1957231/)
+- **Panique à Alger: «l’intégration au Maroc» devient, soudain, une option pour le Polisario**: [Link](https://fr.le360.ma/politique/panique-a-alger-lintegration-au-maroc-devient-soudain-une-option-pour-le-polisario_NGSHJZOAPZBBVLYVGB4XHLZ2GQ/)
+- **Sahara : l’ONU confirme la pertinence de l’approche marocaine fondée sur le réalisme et le compromis**: [Link](https://lematin.ma/nation/onu-le-realisme-et-le-compromis-reaffirmes-sur-le-sahara-marocain/309472)
+
+
+### الممثل المغربي محمد الرزين (N/A, Thu, 23 Oct 2025 14:00:00 -0700)
+
+- **الفنان الراحل محمد الرزين.. "القنفودي" يركب "عود الريح" في "يوم طويل"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%B1%D8%A7%D8%AD%D9%84-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B1%D8%B2%D9%8A%D9%86-%D8%B9%D9%84%D9%8A-%D8%B2%D8%A7%D9%88%D8%A7-%D9%8A%D8%B1-1644721.html)
+- **رحل كما عاش بصمت.. جنازة هادئة للممثل محمد الرزين أحد أعمدة المسرح المغربي (فيديو)**: [Link](https://al3omk.com/1110899.html)
+- **الممثل محمد الرزين في ذمة الله**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B1%D8%B2%D9%8A%D9%86-%D9%81%D9%8A-%D8%B0%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D9%87-20251023)
+
+
 ### lionel messi (N/A, Fri, 24 Oct 2025 04:00:00 -0700)
 
 - **Inter Miami CF Signs Leo Messi to Contract Extension**: [Link](https://www.intermiamicf.com/news/inter-miami-cf-signs-leo-messi-to-contract-extension)
