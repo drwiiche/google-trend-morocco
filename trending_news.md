@@ -1,3 +1,17 @@
+### inter miami – nashville (N/A, Fri, 24 Oct 2025 16:30:00 -0700)
+
+- **Lionel Messi just had the best season in MLS history. Does anyone care?**: [Link](https://www.theguardian.com/football/2025/oct/24/lionel-messi-mls-viewership-attendance-apple-tv)
+- **How to watch today's Inter Miami vs Nashville MLS Playoffs game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-inter-miami-vs-nashville-mls-playoffs-game-live-stream-tv-channel-start-time/bltc16d9f16e05ff434)
+- **Join Us in Celebrating Leo Messi on Friday with a Special Prematch Presentation of the 2025 MLS Golden Boot presented by Audi**: [Link](https://www.intermiamicf.com/news/join-us-in-celebrating-leo-messi-on-friday-with-a-special-prematch-presentation-of-the-2025-mls-golden-boot-presented-by-audi)
+
+
+### coupe du monde de football des moins de 20 ans (N/A, Fri, 24 Oct 2025 16:30:00 -0700)
+
+- **Moulay El Hassan préside une cérémonie offerte par Mohammed VI en l'honneur des Lionceaux de l'Atlas**: [Link](https://ledesk.ma/encontinu/moulay-el-hassan-preside-une-ceremonie-offerte-par-mohammed-vi-en-lhonneur-des-lionceaux-de-latlas/)
+- **Génération dorée : le top 7 des Lionceaux de l’Atlas**: [Link](https://mobile.telquel.ma/2025/10/24/generation-doree-le-top-7-des-lionceaux-de-latlas_1957491)
+- **La FRMF honore la Sélection Nationale U20, championne du monde**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA-21/)
+
+
 ### coupe du monde u17 féminine (N/A, Fri, 24 Oct 2025 14:00:00 -0700)
 
 - **CM féminine U17: dernier entraînement de la sélection nationale avant le dernier match des groupes**: [Link](https://frmf.ma/fr/cm-feminine-u17-dernier-entrainement-de-la-selection-nationale-avant-le-dernier-match-des-groupes/)
