@@ -1,3 +1,17 @@
+### kings league (N/A, Fri, 24 Oct 2025 09:00:00 -0700)
+
+- **Kings League Agrees Media Rights Partnership With MBC GROUP - UK Broadcast News | 23/10/2025**: [Link](https://www.4rfv.co.uk/industrynews/323970/kings_league_agrees_media_rights_partnership_with_mbc_group)
+- **MBC Action to Offer Free Live Coverage of Kings Cup MENA**: [Link](https://worldscreen.com/mbc-action-to-offer-free-live-coverage-of-kings-cup-mena/)
+- **Hellas Verona joins forces with Circus FC in the Kings League Lottomatica.sport**: [Link](https://www.hellasverona.it/en/news/hellas-verona-joins-forces-with-circus-fc-in-the-kings-league-lottomatica-sport)
+
+
+### dahbia benkired (N/A, Fri, 24 Oct 2025 08:50:00 -0700)
+
+- **Meurtre de Lola : Dahbia Benkired condamnée à la réclusion à perpétuité incompressible, une première pour une femme**: [Link](https://www.lemonde.fr/societe/article/2025/10/24/meurtre-de-lola-dahbia-benkired-condamnee-a-la-reclusion-a-perpetuite-incompressible-une-premiere-pour-une-femme_6649156_3225.html)
+- **EN DIRECT - «Je demande le pardon, c’est horrible ce que j’ai fait»: les derniers mots de Dahbia Benkired avant le délibéré au procès du meurtre de Lola**: [Link](https://www.lefigaro.fr/faits-divers/en-direct-proces-du-meurtre-de-lola-les-requisitions-de-l-avocat-general-vont-debuter-20251024)
+- **«Quelque chose de néfaste qui prend à la gorge» : au terme du procès du meurtre de Lola, les experts alertent sur la dangerosité de Dahbia B.**: [Link](https://www.liberation.fr/societe/police-justice/quelque-chose-de-nefaste-qui-prend-a-la-gorge-au-terme-du-proces-du-meurtre-de-lola-les-experts-alertent-sur-la-dangerosite-de-dahbia-b-20251023_K2BHUZDDAJGJJNOPRRREVAOQSM/)
+
+
 ### wydad (N/A, Fri, 24 Oct 2025 08:40:00 -0700)
 
 - **Hakim Ziyech à la Botola ? Un accord conclu avec le Wydad (médias)**: [Link](https://medias24.com/2025/10/22/hakim-ziyech-a-la-botola-un-accord-conclu-avec-le-wydad-medias/)
