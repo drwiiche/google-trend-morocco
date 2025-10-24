@@ -1,3 +1,31 @@
+### leeds united – west ham (N/A, Fri, 24 Oct 2025 11:30:00 -0700)
+
+- **Starting XI | Diouf and Wan-Bissaka return at Leeds**: [Link](https://www.whufc.com/news/starting-xi-diouf-and-wan-bissaka-return-leeds)
+- **West Ham look to avoid a repeat of 2010/11 nightmare**: [Link](https://www.besoccer.com/new/west-ham-look-to-avoid-a-repeat-of-2010-11-nightmare-1378509)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for West Ham vs. Leeds United**: [Link](https://nypost.com/2025/10/24/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-west-ham-vs-leeds-united/)
+
+
+### real sociedad – séville (N/A, Fri, 24 Oct 2025 11:10:00 -0700)
+
+- **Liga : Sur quelle chaîne TV suivre Real Sociedad – FC Séville ?**: [Link](https://africafootunited.com/liga-sur-quelle-chaine-tv-suivre-real-sociedad-fc-seville/)
+- **Billets pour Real Sociedad – Sevilla FC à l’Anoeta | Achat et vente pour la 10e journée de LaLiga**: [Link](https://karlobag.eu/fr/billets/football/billets-pour-real-sociedad---sevilla-fc-a-l-anoeta-a-saint-sebastian-laliga-20252026-10e-journee-achat-et-vente-dfq0c)
+- **Programme TV Foot : Midi Dix, et un intéressant Real Sociedad-Séville en Liga**: [Link](https://www.webgirondins.com/actualite-girondins-programme-tv-foot-midi-dix-et-un-interessant-real-sociedad-seville-en-liga-130900)
+
+
+### maroc sahara occidental (N/A, Fri, 24 Oct 2025 11:10:00 -0700)
+
+- **Sahara : l’ONU confirme la pertinence de l’approche marocaine fondée sur le réalisme et le compromis**: [Link](https://lematin.ma/nation/onu-le-realisme-et-le-compromis-reaffirmes-sur-le-sahara-marocain/309472)
+- **Panique à Alger: «l’intégration au Maroc» devient, soudain, une option pour le Polisario**: [Link](https://fr.le360.ma/politique/panique-a-alger-lintegration-au-maroc-devient-soudain-une-option-pour-le-polisario_NGSHJZOAPZBBVLYVGB4XHLZ2GQ/)
+- **n°1117. Comment Washington pousse au rapprochement entre Rabat et Alger « en 60 jours »**: [Link](https://ledesk.ma/enclair/comment-washington-pousse-au-rapprochement-entre-rabat-et-alger-en-60-jours/)
+
+
+### real madrid fc (N/A, Fri, 24 Oct 2025 09:10:00 -0700)
+
+- **Lamine Yamal riles Dani Carvajal and Real Madrid with ‘stupid’ and ‘disrespectful’ Clasico comments**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/104423/lamine-yamal-riles-dani-carvajal-and-real-madrid-with-stupid-and-disrespectful-clasico-comments)
+- **‘They steal and complain’ – Barcelona star aims major dig at Real Madrid before El Clásico**: [Link](https://sports.yahoo.com/article/steal-complain-barcelona-star-aims-143100348.html)
+- **Move over Ronaldo and Messi, Spain's Clasico has a new star battle: Mbappé vs. Yamal**: [Link](https://www.espn.com/soccer/story/_/id/46690563/mbappe-yamal-el-clasico-ronaldo-messi-real-madrid-barcelona-analysis)
+
+
 ### الاتحاد ضد الهلال (N/A, Fri, 24 Oct 2025 10:30:00 -0700)
 
 - **سلام مرفوض ووصال مفقود.. إنزاجي وكونسيساو من صداقة روما إلى عداوة ميلانو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D8%A7%D9%85-%D9%85%D8%B1%D9%81%D9%88%D8%B6-%D9%88%D9%88%D8%B5%D8%A7%D9%84-%D9%85%D9%81%D9%82%D9%88%D8%AF--%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%88%D9%83%D9%88%D9%86%D8%B3%D9%8A%D8%B3%D8%A7%D9%88-%D9%85%D9%86-%D8%B5%D8%AF%D8%A7%D9%82%D8%A9-%D8%B1%D9%88%D9%85%D8%A7-%D8%A7%D9%95%D9%84%D9%89-%D8%B9%D8%AF%D8%A7%D9%88%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86%D9%88/blt09dde1c76d94b955)
