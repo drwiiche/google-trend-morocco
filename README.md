@@ -1,3 +1,17 @@
+### al ittihad – al-hilal (N/A, Fri, 24 Oct 2025 10:20:00 -0700)
+
+- **Al Ittihad vs Al Hilal – How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/264990/al-ittihad-vs-al-hilal-how-to-watch-score-prediction/)
+- **Tables turned at Clasico rivals - so who steps into spotlight in marquee clash?**: [Link](https://onefootball.com/pt-br/noticias/tables-turned-at-clasico-rivals-so-who-steps-into-spotlight-in-marquee-clash-41849073)
+- **Al Ittihad vs Al Hilal: How to watch Benzema and co. in the Saudi 'Al Clasico'**: [Link](https://africa.espn.com/football/story/_/id/46681146/al-ittihad-vs-al-hilal-kick-how-watch-stats-team-news-saudi-pro-league-2025-26-benzema-al-clasico)
+
+
+### kick (N/A, Fri, 24 Oct 2025 10:10:00 -0700)
+
+- **Candy Cruise returns to MCC track**: [Link](https://www.wtok.com/2025/10/24/candy-cruise-returns-mcc-track/)
+- **Children kick of trick-or-treat at MCC’s Candy Cruise**: [Link](https://meridianstar.com/2025/10/24/children-kick-of-trick-or-treat-at-mccs-candy-cruise/)
+- **Sweet tradition rolls on: Candy Cruise Around the Track returns to MCC Oct. 23**: [Link](https://meridianstar.com/2025/10/17/sweet-tradition-rolls-on-candy-cruise-around-the-track-returns-to-mcc-oct-23/)
+
+
 ### widad (N/A, Fri, 24 Oct 2025 09:20:00 -0700)
 
 - **الوداد ينهي معاناة زياش في صفقة تاريخية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%86%D9%87%D9%8A-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%81%D9%8A-%D8%B5%D9%81%D9%82%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9/blt52a54f74f5635326)
