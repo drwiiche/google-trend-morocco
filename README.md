@@ -1,3 +1,10 @@
+### aston villa (N/A, Thu, 23 Oct 2025 11:10:00 -0700)
+
+- **Man City XI vs Aston Villa: Confirmed team news, predicted lineup and injury latest for Premier League**: [Link](https://www.standard.co.uk/sport/football/man-city-xi-vs-aston-villa-confirmed-team-news-predicted-lineup-injury-latest-premier-league-b1254642.html)
+- **Aston Villa vs Manchester City Preview: Team News, H2H, early injury news, probable lineups, tickets and more**: [Link](https://www.goal.com/en/news/aston-villa-vs-manchester-city-preview-team-news-h2h-early-injury-news-probable-lineups-tickets/blt076b9d872b765d81)
+- **Aston Villa v City: FPL Gameweek 9 Scout Report**: [Link](https://sports.yahoo.com/article/aston-villa-v-city-fpl-150000168.html)
+
+
 ### كأس العرب 2025 (N/A, Thu, 23 Oct 2025 17:40:00 -0700)
 
 - **رسميا/ "الفيفا" توافق على استضافة قطر لكأس العرب لـ3 نسخ متتالية (2025 و2029 و2033)**: [Link](https://m.elbotola.com/article/2025-10-23-13-58-41.html)
