@@ -1,3 +1,10 @@
+### coupe du monde de football des moins de 20 ans (N/A, Thu, 23 Oct 2025 17:20:00 -0700)
+
+- **Moulay El Hassan préside une cérémonie offerte par Mohammed VI en l'honneur des Lionceaux de l'Atlas**: [Link](https://ledesk.ma/encontinu/moulay-el-hassan-preside-une-ceremonie-offerte-par-mohammed-vi-en-lhonneur-des-lionceaux-de-latlas/)
+- **Génération dorée : le top 7 des Lionceaux de l’Atlas**: [Link](https://telquel.ma/2025/10/24/generation-doree-le-top-7-des-lionceaux-de-latlas_1957491)
+- **Rabat aux couleurs de l’or : les héros du Mondial U20 reçus par le Prince Héritier Moulay El Hassan**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-u-20/news/rabat-aux-couleurs-de-l-or-les-heros-du-mondial-u20-recus-par-le-prince-heritier-moulay-el-hassan/)
+
+
 ### sahara marocain onu (N/A, Fri, 24 Oct 2025 05:20:00 -0700)
 
 - **Sahara : le SG de l’ONU renouvelle son appel au dialogue entre le Maroc et l’Algérie**: [Link](https://mobile.telquel.ma/instant-t/2025/10/23/sahara-le-sg-de-lonu-renouvelle-son-appel-au-dialogue-entre-le-maroc-et-lalgerie_1957231/)
