@@ -1,3 +1,24 @@
+### wydad ac (N/A, Fri, 24 Oct 2025 12:10:00 -0700)
+
+- **Hakim Ziyech à la Botola ? Un accord conclu avec le Wydad (médias)**: [Link](https://medias24.com/2025/10/22/hakim-ziyech-a-la-botola-un-accord-conclu-avec-le-wydad-medias/)
+- **La CAF salue le transfert de Hakim Ziyech au Wydad de Casablanca**: [Link](https://fr.hespress.com/446812-la-caf-salue-le-transfert-de-hakim-ziyech-au-wydad-de-casablanca.html)
+- **Hakim Ziyech retrouve un club**: [Link](https://www.footmercato.net/a8289007143185754972-hakim-ziyech-retrouve-un-club)
+
+
+### louis sarkozy (N/A, Fri, 24 Oct 2025 11:50:00 -0700)
+
+- **Louis Sarkozy annonce la naissance de son fils au prénom très symbolique**: [Link](https://www.20minutes.fr/arts-stars/people/4181367-20251024-louis-sarkozy-annonce-naissance-fils-donne-prenom-symbolique)
+- **Incarcéré, Nicolas Sarkozy a raté la naissance de son petit-fils : ce dernier porte un nom très symbolique**: [Link](https://www.rtl.be/people/news/incarcere-nicolas-sarkozy-rate-la-naissance-de-son-petit-fils-ce-dernier-porte/2025-10-24/article/768111)
+- **Louis Sarkozy et sa femme Natali parents : ils présentent leur fils aux prénoms hautement symboliques**: [Link](https://www.gala.fr/l_actu/news_de_stars/louis-sarkozy-et-sa-femme-natali-parents-ils-presentent-leur-fils-aux-prenoms-hautement-symboliques-20251024)
+
+
+### wydad vs (N/A, Fri, 24 Oct 2025 11:30:00 -0700)
+
+- **LIVESTREAMING: Wydad AC vs Asante Kotoko (CAF Confederation Cup)**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/LIVESTREAMING-Wydad-AC-vs-Asante-Kotoko-CAF-Confederation-Cup-2006566)
+- **CAFCC: “Kotoko’s Trip to Morocco Is Just a Travelling Experience, Not to Beat WAC” – Charles Taylor**: [Link](https://en.africatopsports.com/2025/10/24/cafcc-kotokos-trip-to-morocco-is-just-a-travelling-experience-not-to-beat-wac-charles-taylor/)
+- **His behavior was unsportsmanlike – Sarfo Duku condemns Mohammed Camara for red card**: [Link](https://cedirates.com/news/his-behavior-was-unsportsmanlike--sarfo-duku-condemns-mohammed-camara-for-red-card/)
+
+
 ### مباراة الوداد اليوم (N/A, Fri, 24 Oct 2025 11:00:00 -0700)
 
 - **تشكيلة الوداد.. بنهاشم يدفع بمفيد وبوشتة في الدفاع وناسي يقود الهجوم رفقة لورش والهنوري**: [Link](https://m.elbotola.com/article/2025-10-24-18-10-587.html)
