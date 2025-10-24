@@ -1,3 +1,10 @@
+### coupe du monde u17 féminine (N/A, Fri, 24 Oct 2025 14:00:00 -0700)
+
+- **CM féminine U17: dernier entraînement de la sélection nationale avant le dernier match des groupes**: [Link](https://frmf.ma/fr/cm-feminine-u17-dernier-entrainement-de-la-selection-nationale-avant-le-dernier-match-des-groupes/)
+- **Match Maroc-Costa Rica : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-costa-rica-a-quelle-heure-et-sur-quelles-chaines/309473)
+- **Mondial U17 féminin: Maroc-Costa Rica, où et quand suivre le match de la dernière chance des Lioncelles?**: [Link](https://h24info.ma/sport/mondial-u17-feminin-maroc-costa-rica-ou-et-quand-suivre-le-match-de-la-derniere-chance-des-lioncelles/)
+
+
 ### serie a (N/A, Fri, 24 Oct 2025 14:00:00 -0700)
 
 - **LIVE Milan-Pisa 1-1: Cuadrado fa pari su rigore, Leao spreca e prende la traversa**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/24-10-2025/milan-pisa-live-risultato-e-gol-in-diretta-serie-a.shtml)
