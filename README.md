@@ -1,3 +1,10 @@
+### marathon casablanca (N/A, Sat, 25 Oct 2025 15:10:00 -0700)
+
+- **Marathon de Casablanca: circulation bloquée sur plusieurs boulevards ce dimanche**: [Link](https://fr.le360.ma/societe/marathon-de-casablanca-circulation-bloquee-sur-plusieurs-boulevards-ce-dimanche_GNW66IOEBREQ3KUBXYVNWPVX34/)
+- **Casablanca : Fermeture de plusieurs boulevards pour le Marathon ce dimanche**: [Link](https://lematin.ma/regions/casablanca-fermeture-de-plusieurs-boulevards-pour-le-marathon-ce-dimanche/309483)
+- **Vidéo : Sport Matin : le 16ème édition du Marathon international de Casablanca avec Samia Terhzaz**: [Link](https://www.medi1tv.com/fr/reportage/369681/Sport-Matin--le-16%C3%A8me-%C3%A9dition-du-Marathon-international-de-Casablanca-avec-Samia-Terhzaz)
+
+
 ### changement heure hiver (N/A, Sat, 25 Oct 2025 14:50:00 -0700)
 
 - **Changement d’heure : pourquoi le passage à l’heure d’hiver est programmé à 3 heures du matin**: [Link](https://www.larepubliquedespyrenees.fr/societe/vie-quotidienne/heure/changement-d-heure-pourquoi-le-passage-a-l-heure-d-hiver-est-programme-a-3-heures-du-matin-26460368.php)
