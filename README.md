@@ -1,3 +1,31 @@
+### bayern munich (N/A, Sat, 25 Oct 2025 07:00:00 -0700)
+
+- **Lennart Karl wins silver Fritz Walter Medal**: [Link](https://fcbayern.com/en/news/2025/10/lennart-karl-wins-silver-fritz-walter-medal)
+- **Various Bayern Munich youngsters receive Fritz Walter medals**: [Link](https://www.bavarianfootballworks.com/bayern-munich-youth/144070/various-bayern-munich-youngsters-receive-fritz-walter-medals-alara-gmeineder-zahringer-karl)
+- **Stuttgart starlet wins Fritz Walter gold**: [Link](https://www.bundesliga.com/en/bundesliga/news/vfb-stuttgart-finn-jeltsch-fritz-walter-gold-medal-winner-34424)
+
+
+### mönchengladbach vs bayern (N/A, Sat, 25 Oct 2025 07:00:00 -0700)
+
+- **Bayern duo set to return against Gladbach**: [Link](https://bulinews.com/bayern-duo-set-return-against-gladbach)
+- **German Bundesliga Predictions Today: Best Bets for October 25**: [Link](https://www.thesportsgeek.com/blog/german-bundesliga-predictions-betting-picks-2025-10-25/)
+- **Borussia Monchengladbach vs Bayern Munich – Match preview and team news**: [Link](https://thefootballfaithful.com/borussia-monchengladbach-vs-bayern-munich-match-preview-and-team-news/)
+
+
+### raja casablanca (N/A, Sat, 25 Oct 2025 07:00:00 -0700)
+
+- **Marouane Zila, ancien joueur du Raja Casablanca, rebondit en Libye**: [Link](https://africafoot.com/marouane-zila-ancien-joueur-du-raja-casablanca-rebondit-en-libye/)
+- **Botola D1, 6e journée : le Raja veut repartir de l’avant, le MAS défend sa place de leader face à l’IRT**: [Link](https://lematin.ma/sports/botola-d1-6e-journee-le-raja-veut-repartir-de-lavant/309654)
+- **Désignations arbitrales pour la 6ème journée du championnat : Loudini pour Ittihad Tanger-MAS, El Maâtaoui pour CODM-Kawkab Marrakech**: [Link](https://m.elbotola.com/fr/article/2025-10-23-10-37-615.html)
+
+
+### jannik sinner (N/A, Sat, 25 Oct 2025 06:50:00 -0700)
+
+- **LIVE Sinner-De Minaur 6-3 1-2: Jannik avanti di un set, nessun break nel secondo**: [Link](https://www.gazzetta.it/Tennis/ATP/25-10-2025/sinner-de-minaur-live-risultato-in-diretta-atp-vienna.shtml)
+- **Tutto il tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-vienna-atp-singolare-tennis-tracker-atp-vienna-sinner-affronta-de-minaur-nella-semifinale-5-3/MFCicCfB/)
+- **Tennis: semifinali Open Vienna, in campo Sinner-De Minaur DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/tennis/2025/10/24/tennis-semifinali-open-vienna-in-campo-sinner-de-minaur-diretta_d75f8014-b9fc-459d-8cf7-dc865df6f958.html)
+
+
 ### espanyol – elche (N/A, Sat, 25 Oct 2025 06:40:00 -0700)
 
 - **Las amenazas del Espanyol frente al Elche: la pizarra de Manolo, el muro de Dmitrovic y el acierto de Milla**: [Link](https://www.informacion.es/elche-cf/2025/10/25/amenazas-espanyol-frente-elche-pizarra-122995179.html)
