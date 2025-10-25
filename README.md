@@ -1,3 +1,10 @@
+### classement premier league (N/A, Sat, 25 Oct 2025 13:40:00 -0700)
+
+- **PL : Manchester United se régale face à Brighton**: [Link](https://www.footmercato.net/a9210257175345608396-pl-manchester-united-se-regale-face-a-brighton)
+- **MU déterminé à briser la malédiction des 49 matchs pour remporter 3 victoires consécutives**: [Link](https://baonghean.vn/fr/mu-quyet-pha-dop-49-tran-de-co-3-chien-thang-lien-tiep-10309014.html)
+- **Ang. : et de trois pour Manchester United !**: [Link](https://www.maxifoot.fr/angleterre/et-de-trois-pour-manchester-united-foot-443396.htm)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Sat, 25 Oct 2025 13:30:00 -0700)
 
 - **رصاصة مغربية تقتل تشيلسي أمام سندرلاند**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B5%D8%A7%D8%B5%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D9%84-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF/blteb97f56cad828ffa)
