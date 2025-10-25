@@ -1,3 +1,17 @@
+### liverpool (N/A, Sat, 25 Oct 2025 12:20:00 -0700)
+
+- **‘I don’t care what Slot is saying’: Ruben Amorim hits back at Liverpool manager**: [Link](https://www.theguardian.com/football/2025/oct/24/i-dont-care-what-slot-is-saying-ruben-amorim-hits-back-at-liverpool-manager)
+- **Manchester United Vs Brighton And Hove Albion: Amorious To Ignore Slots, Focus On Winning Again**: [Link](https://voi.id/en/sports/527310)
+- **'Very difficult game today': Rúben Amorim on building on the Liverpool win against Brighton**: [Link](https://tribuna.com/en/news/2025-10-25-very-difficult-game-today-ruben-amorim-on-building-on-the-liverpool-win-against-brighton/)
+
+
+### strikeout (N/A, Sat, 25 Oct 2025 12:10:00 -0700)
+
+- **Ohtani puts on 2-way show for the ages with 3 homers and 10 Ks to lead Dodgers back to World Series**: [Link](https://apnews.com/article/dodgers-shohei-ohtani-1622bc3201e482ae505a8c1233f2ca1a)
+- **Ohtani, the Greatest Shoh on Earth, just had the greatest game in baseball history - The Athletic**: [Link](https://www.nytimes.com/athletic/6728157/2025/10/18/shohei-ohtani-world-series-greatest-postseason-game/)
+- **'Don't Poke the Bear': Bassitt Warns Blue Jays Fans Chanting 'We Don't Need You' At Ohtani**: [Link](https://www.foxsports.com/stories/mlb/shohei-ohtani-follows-historic-2way-show-with-world-series-homer-but-dodgers-routed-by-jays)
+
+
 ### match far (N/A, Sat, 25 Oct 2025 11:50:00 -0700)
 
 - **Les « Ultras Askary » annulent le tifo pour le match AS FAR - Horoya Conakry**: [Link](https://m.elbotola.com/fr/article/2025-10-25-14-34-951.html)
