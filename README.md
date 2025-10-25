@@ -1,3 +1,10 @@
+### benfica – arouca (N/A, Sat, 25 Oct 2025 12:30:00 -0700)
+
+- **Benfica x Arouca Palpites – Onde Assistir, Hora e Escalações 25-10**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/benfica-x-arouca-25-10)
+- **Mourinho revoluciona e aposta em Prestianni de início**: [Link](https://www.jn.pt/desporto/artigo/mourinho-revoluciona-e-aposta-em-prestianni-de-inicio/18012711)
+- **Benfica tenta ultrapassar Sporting no segundo lugar da I Liga em dia de eleições**: [Link](https://sapo.pt/artigo/benfica-tenta-ultrapassar-sporting-no-segundo-lugar-da-i-liga-em-dia-de-eleicoes-68fc88d5fc32ddef58f28b3b)
+
+
 ### liverpool (N/A, Sat, 25 Oct 2025 12:20:00 -0700)
 
 - **‘I don’t care what Slot is saying’: Ruben Amorim hits back at Liverpool manager**: [Link](https://www.theguardian.com/football/2025/oct/24/i-dont-care-what-slot-is-saying-ruben-amorim-hits-back-at-liverpool-manager)
