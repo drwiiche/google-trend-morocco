@@ -1,3 +1,17 @@
+### brest – paris-sg (N/A, Sat, 25 Oct 2025 07:30:00 -0700)
+
+- **Le groupe du PSG contre Brest**: [Link](https://www.footmercato.net/a1806351750156110445-le-groupe-du-psg-contre-brest)
+- **« On ne va pas se prendre la tête pour savoir qui va jouer à quel poste », assure Roy avant Brest/PSG**: [Link](https://www.culturepsg.com/news/match/on-ne-va-pas-se-prendre-la-tete-pour-savoir-qui-va-jouer-a-quel-poste-assure-roy-avant-brest-psg/57442)
+- **"La Ligue des champions c'est comme une drogue": le début de saison de Brest, la parenthèse LDC... les confidences d'Hugo Magnetti**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/la-ligue-des-champions-c-est-comme-une-drogue-le-debut-de-saison-de-brest-la-parenthese-ldc-les-confidences-d-hugo-magnetti_AV-202510250038.html)
+
+
+### بريست ضد بي اس جي (N/A, Sat, 25 Oct 2025 07:30:00 -0700)
+
+- **حكيمي وديمبلي ضمن قائمة تصحيح مسار باريس في الدوري الفرنسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%AF%D9%8A%D9%85%D8%A8%D9%84%D9%8A-%D8%B6%D9%85%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%AA%D8%B5%D8%AD%D9%8A%D8%AD-%D9%85%D8%B3%D8%A7%D8%B1-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/blt150724692bb42602)
+- **اختبارات صعبة لباريس سان جيرمان ومارسيليا وليون في "الليغ 1"**: [Link](https://www.hesport.com/%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B5%D8%B9%D8%A8%D8%A9-%D9%84%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D9%85%D8%A7%D8%B1%D8%B3-409462.html)
+- **باريس سان جيرمان يحل ضيفاً على بريست**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AD%D9%84-%D8%B6%D9%8A%D9%81%D8%A7-%D8%B9%D9%84%D9%89-%D8%A8%D8%B1%D9%8A%D8%B3%D8%AA-2025-10-24)
+
+
 ### chelsea (N/A, Sat, 25 Oct 2025 07:20:00 -0700)
 
 - **Enzo Maresca confirms Chelsea team news ahead of Sunderland | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-confirms-chelsea-team-news-ahead-of-sunderland)
