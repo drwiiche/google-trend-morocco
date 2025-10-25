@@ -1,3 +1,17 @@
+### brest vs psg (N/A, Sat, 25 Oct 2025 07:40:00 -0700)
+
+- **Preview:Brest vs PSG - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/brest/preview/brest-vs-psg-prediction-team-news-lineups_584138.html)
+- **Brest – PSG: the official line-ups**: [Link](https://frenchfootballweekly.com/2025/10/25/brest-psg-the-official-line-ups-2/)
+- **Brest vs PSG Prediction, 10/25/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/brest-vs-psg-prediction-10-25-2025-soccer-pick-tips-and-odds.html)
+
+
+### ufc 321 (N/A, Sat, 25 Oct 2025 07:40:00 -0700)
+
+- **UFC 321 predictions**: [Link](https://www.mmafighting.com/ufc-events-ppv/451676/ufc-321-predictions)
+- **Tom Aspinall defends UFC title against Ciryl Gane: all fight details**: [Link](https://112.ua/en/tom-aspinall-vs-ciryl-gane-exact-fight-time-when-will-the-huge-ufc-321-main-event-start-107546)
+- **Jiri Prochazka offers expert breakdown and prediction of the UFC 321 main event**: [Link](https://bloodyelbow.com/2025/10/25/jiri-prochazka-offers-expert-breakdown-and-prediction-of-the-ufc-321-main-event/)
+
+
 ### brest – paris-sg (N/A, Sat, 25 Oct 2025 07:30:00 -0700)
 
 - **Le groupe du PSG contre Brest**: [Link](https://www.footmercato.net/a1806351750156110445-le-groupe-du-psg-contre-brest)
