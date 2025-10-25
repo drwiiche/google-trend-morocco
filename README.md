@@ -1,3 +1,10 @@
+### hakim ziyech wydad casablanca (N/A, Fri, 24 Oct 2025 23:50:00 -0700)
+
+- **Morocco playmaker Hakim Ziyech seals move to Wydad Casablanca**: [Link](https://www.cafonline.com/news/morocco-playmaker-hakim-ziyech-seals-move-to-wydad-casablanca/)
+- **«The wizard is here» : Wydad announces Hakim Ziyech’s homecoming**: [Link](https://en.yabiladi.com/articles/details/179569/wizard-here-wydad-announces-hakim.html)
+- **7 stars who moved back home in 2025**: [Link](https://www.kickoff.com/world-news/international/7-players-who-moved-back-to-their-home-countries-in-2025)
+
+
 ### hibapress (N/A, Fri, 24 Oct 2025 23:40:00 -0700)
 
 
