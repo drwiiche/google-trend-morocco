@@ -1,3 +1,10 @@
+### espanyol – elche (N/A, Sat, 25 Oct 2025 06:40:00 -0700)
+
+- **Las amenazas del Espanyol frente al Elche: la pizarra de Manolo, el muro de Dmitrovic y el acierto de Milla**: [Link](https://www.informacion.es/elche-cf/2025/10/25/amenazas-espanyol-frente-elche-pizarra-122995179.html)
+- **El Elche busca en el RCDE Stadium la primera victoria del curso a domicilio**: [Link](https://teleelx.es/2025/10/25/el-elche-busca-en-el-rcde-stadium-la-primera-victoria-del-curso-a-domicilio/)
+- **Espanyol vs Elche | LaLiga EA Sports 25-26**: [Link](https://rtvc.es/espanyol-vs-elche-j10-laliga-ea-sports-25-26/)
+
+
 ### can tickets (N/A, Sat, 25 Oct 2025 06:00:00 -0700)
 
 - **HAIM at Co-op Live, Manchester – tickets, times, setlist, and more for UK tour**: [Link](https://themanc.com/affiliate/haim-co-op-live-manchester-tickets-uk-tour/)
