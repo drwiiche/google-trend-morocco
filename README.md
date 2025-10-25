@@ -1,3 +1,17 @@
+### برينتفورد ضد ليفربول (N/A, Sat, 25 Oct 2025 12:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة برينتفورد وليفربول في الدوري الإنجليزي 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt72f78166dd3d3025)
+- **هدافو ليفربول في الدوري قبل مواجهة برينتفورد**: [Link](https://hihi2.com/2025/10/25/p3442783.html)
+- **التشكيل المتوقع لمبارة ليفربول وبرينتفورد**: [Link](https://www.arrajol.com/content/386611/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF)
+
+
+### house of dynamite (N/A, Sat, 25 Oct 2025 12:00:00 -0700)
+
+- **Pentagon Frets Over ‘A House of Dynamite’ Nuclear Doomsday Film**: [Link](https://www.bloomberg.com/news/articles/2025-10-25/-house-of-dynamite-nuclear-missile-defense-fail-has-pentagon-worried)
+- **Kathryn Bigelow Returns to the Intersection of Facts and Thrills**: [Link](https://www.nytimes.com/2025/10/22/movies/kathryn-bigelow-a-house-of-dynamite.html)
+- **'A House of Dynamite' isn't an easy watch but an important one – Review**: [Link](https://www.usatoday.com/story/entertainment/movies/2025/10/23/a-house-of-dynamite-netflix-movie-review/86728282007/)
+
+
 ### ufc (N/A, Sat, 25 Oct 2025 11:00:00 -0700)
 
 - **‘You’re putting your life on the line’: UFC heavyweight champion Tom Aspinall on death, success, and Trump’s White House bout**: [Link](https://www.cnn.com/2025/10/25/sport/ufc-tom-aspinall-ciryl-gane-intl)
