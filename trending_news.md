@@ -1,3 +1,10 @@
+### newcastle (N/A, Sat, 25 Oct 2025 08:40:00 -0700)
+
+- **Premier League LIVE: Chelsea vs Sunderland & Newcastle v Fulham - scores & updates**: [Link](https://www.bbc.com/sport/football/live/c5ykwrp7jk3t)
+- **Premier League live: scores and updates from Chelsea-Sunderland and Newcastle-Fulham**: [Link](https://www.telegraph.co.uk/football/2025/10/25/premier-league-live-chelsea-sunderland-newcastle-fulham/)
+- **Chelsea fans fume after Sunderland equaliser from long throw routine: 'This defence will be the downfall of this team'**: [Link](https://tribuna.com/en/blogs/chelsea-fans-fume-after-sunderland-equaliser-from-long-throw/)
+
+
 ### naples – inter (N/A, Sat, 25 Oct 2025 08:20:00 -0700)
 
 - **Stadium Not Sold Out For Napoli Vs Inter Milan Clash & Nerazzurri Fans Face Partial Ban**: [Link](https://sempreinter.com/2025/10/25/napoli-inter-maradona-ticket-prices-scudetto-test/)
