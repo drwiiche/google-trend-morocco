@@ -1,3 +1,17 @@
+### ocs vs stade tunisien (N/A, Sat, 25 Oct 2025 09:30:00 -0700)
+
+- **Calendrier et Résultats de la phase préliminaire de la TotalEnergies CAF Ligue des Champions 2025/26**: [Link](https://www.cafonline.com/fr/ligue-des-champions/news/calendrier-et-resultats-de-la-phase-preliminaire-de-la-totalenergies-caf-ligue-des-champions-202526/)
+- **Confédération africaine : L'Olympique de Safi effectue sa première séance d'entraînement en Tunisie avant le match retour contre le Stade Tunisien**: [Link](https://m.elbotola.com/fr/article/2025-10-23-13-38-672.html)
+- **CCAF / Aujourd’hui, Stade Tunisien vs OCS : Horaire ? Chaînes ?**: [Link](https://www.lopinion.ma/CCAF-Aujourd-hui-Stade-Tunisien-vs-OCS-Horaire-Chaines_a73203.html)
+
+
+### نابولي ضد الإنتر (N/A, Sat, 25 Oct 2025 09:30:00 -0700)
+
+- **نابولي يسعى لمداواة جراحه بإيقاف سلسلة انتصارات إنتر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%85%D8%AF%D8%A7%D9%88%D8%A7%D8%A9-%D8%AC%D8%B1%D8%A7%D8%AD%D9%87-%D9%85%D9%86-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%87%D8%AC/blta38cac86c6debaa2)
+- **التشكيلان المتوقعان لقمة نابولي وإنتر ميلان في الدوري الإيطالي**: [Link](https://www.arrajol.com/content/386608/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D9%86-%D9%84%D9%82%D9%85%D8%A9-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D9%88%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A)
+- **كيفو يتحدث عن أهمية الفوز على نابولي**: [Link](https://hihi2.com/2025/10/25/p3442056.html)
+
+
 ### مان يونايتد ضد برايتون (N/A, Sat, 25 Oct 2025 09:10:00 -0700)
 
 - **سيسكو يقود هجوم مانشستر يونايتد أمام برايتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%8A%D8%B3%D9%83%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86/blt1103a1af65c64c8e)
