@@ -1,3 +1,17 @@
+### barca vs real madrid (N/A, Sat, 25 Oct 2025 05:20:00 -0700)
+
+- **Kylian Mbappe key for Real Madrid as they host rampant Barcelona in El Clasico**: [Link](https://www.flashscore.com/news/soccer-laliga-kylian-mbappe-key-for-real-madrid-as-they-host-rampant-barcelona-in-el-clasico/Srtp5Ixq/)
+- **10 things ahead of the Clásico**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4388332/10-things-ahead-of-the-clasico)
+- **Real Madrid can show growth in Clasico after Atletico thrashing: Alonso**: [Link](https://www.france24.com/en/live-news/20251025-real-madrid-can-show-growth-in-clasico-after-atletico-thrashing-alonso)
+
+
+### heure france (N/A, Sat, 25 Oct 2025 00:10:00 -0700)
+
+- **Changement d’heure ce week-end : pourquoi ce passage à l’heure d’hiver pourrait bien être le dernier**: [Link](https://www.capital.fr/economie-politique/changement-dheure-ce-week-end-pourquoi-ce-passage-a-lheure-dhiver-pourrait-bien-etre-le-dernier-1520015)
+- **Heure d’été, heure d’hiver, remettre les pendules à l’heure**: [Link](https://fr.le360.ma/societe/heure-dete-heure-dhiver-remettre-les-pendules-a-lheure_G7FD6D6JQFEODAWQC6BGOJCKWE/)
+- **Dimanche, changera-t-on d’heure pour la dernière fois ?**: [Link](https://www.20minutes.fr/societe/4181275-20251023-heure-hiver-si-derniere-fois-dimanche-commission-europeenne-travaille)
+
+
 ### rca (N/A, Sat, 25 Oct 2025 05:00:00 -0700)
 
 - **RCA-ul pentru trotinete și biciclete electrice stârnește dezbateri aprinse: „Hai să mai punem niște bețe în...**: [Link](https://adevarul.ro/stiri-interne/societate/rca-ul-pentru-trotinete-si-biciclete-electrice-2481646.html)
