@@ -1,3 +1,17 @@
+### muslim (N/A, Fri, 24 Oct 2025 15:50:00 -0700)
+
+- **Mamdani defends his Islamic faith and slams Cuomo in a tearful speech**: [Link](https://www.cnn.com/2025/10/24/politics/zohran-mamdani-islam-cuomo)
+- **Zohran Mamdani defends his Muslim faith amid ‘racist, baseless attacks’**: [Link](https://www.aljazeera.com/news/2025/10/25/zohran-mamdani-defends-his-muslim-faith-against-racist-baseless-attacks)
+- **Mamdani denounces Cuomo’s ‘racist’ attacks in New York mayoral race**: [Link](https://www.washingtonpost.com/politics/2025/10/23/cuomo-mamdani-attacks-new-york/)
+
+
+### caf confederation cup (N/A, Fri, 24 Oct 2025 14:00:00 -0700)
+
+- **Historic Night as Azam FC Storm CAF Confederation Cup Group Stage After 21 Years!**: [Link](https://www.sports247.ng/historic-night-as-azam-fc-storm-caf-confederation-cup-group-stage-after-21-years/)
+- **CAFCC: Ibengé credits Azam FC’s huge win to sticking with philosophy**: [Link](https://www.panafricafootball.com/post/caf-cc-ibeng%C3%A9-azam-fc/)
+- **CAF CONFEDERATION CUP CAFCC: Azam FC take huge step after KMKM win**: [Link](https://en.africatopsports.com/2025/10/19/cafcc-azam-fc-take-huge-step-after-kmkm-win/)
+
+
 ### julia simon (N/A, Fri, 24 Oct 2025 14:40:00 -0700)
 
 - **Des aveux et « un déni » : l'épilogue inattendu de l'affaire Julia Simon, reconnue coupable de vol et fraudeà la carte bancaire**: [Link](https://www.lequipe.fr/Biathlon/Article/Des-aveux-sans-explication-rationnelle-l-epilogue-inattendu-de-l-affaire-julia-simon-reconnue-coupable-de-vol-et-fraude-a-la-carte-bancaire/1604366)
