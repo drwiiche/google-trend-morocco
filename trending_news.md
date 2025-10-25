@@ -1,3 +1,24 @@
+### chelsea – sunderland (N/A, Sat, 25 Oct 2025 06:20:00 -0700)
+
+- **Chelsea fans’ preferred lineup against Sunderland: João Pedro and Marc Guiu together**: [Link](https://weaintgotnohistory.sbnation.com/premier-league/163122/chelsea-fans-preferred-lineup-against-sunderland-joao-pedro-and-marc-guiu-together)
+- **Predicted XI: Enzo Maresca has big Romeo Lavia decision to make as Blues prepare for Sunderland**: [Link](https://chelsea.news/2025/10/maresca-lavia-decision-make-sunderland/)
+- **Chelsea vs Sunderland LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/25/1238847-chelsea-vs-sunderland-live-score-premier-league.html)
+
+
+### newcastle – fulham (N/A, Sat, 25 Oct 2025 06:20:00 -0700)
+
+- **Latest. Team news: Joelinton returns for Cottagers clash**: [Link](https://www.newcastleunited.com/en/news/team-news-joelinton-returns-for-cottagers-clash)
+- **TF Preview - Fulham (h), 25 Oct 2025**: [Link](https://tf1892.substack.com/p/tf-preview-fulham-h-25-oct-2025)
+- **Tonali decision made as NUFC trio miss Fulham due to injury - starting XI confirmed**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/sandro-tonali-newcastle-united-line-up-benfica-5375085)
+
+
+### caf (N/A, Sat, 25 Oct 2025 06:10:00 -0700)
+
+- **CAF confirms Egypt as Hosts of CAF Women’s Champions League 2025 with the Final Draw Scheduled for Monday, 27 October in Cairo**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/caf-confirms-egypt-as-hosts-of-caf-women-s-champions-league-2025-with-the-final-draw-scheduled-for-monday-27-october-in-cairo/)
+- **CAFWCL: Egypt To Host 2025 Playoffs**: [Link](https://bsnsports.com.ng/post/CAFWCL--Egypt-To-Host-2025-Playoffs)
+- **CAF Confirms Egypt as Host of 2025 Women’s Champions League**: [Link](https://www.moroccoworldnews.com/2025/10/265064/caf-confirms-egypt-as-host-of-2025-womens-champions-league/)
+
+
 ### mönchengladbach – bayern (N/A, Sat, 25 Oct 2025 05:50:00 -0700)
 
 - **Fußball-Bundesliga: FC Bayern im Stau: Anpfiff in Gladbach verschoben**: [Link](https://www.stern.de/gesellschaft/regional/bayern/fussball-bundesliga--fc-bayern-im-stau--anpfiff-in-gladbach-verschoben-36161660.html)
