@@ -1,3 +1,10 @@
+### مان يونايتد ضد برايتون (N/A, Sat, 25 Oct 2025 09:10:00 -0700)
+
+- **سيسكو يقود هجوم مانشستر يونايتد أمام برايتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%8A%D8%B3%D9%83%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86/blt1103a1af65c64c8e)
+- **اليونايتد ينتظر عودة ماونت وماغواير**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D8%A7%D9%88%D9%86%D8%AA-%D9%88%D9%85%D8%A7%D8%BA%D9%88%D8%A7%D9%8A%D8%B1-409682.html)
+- **أفضل الهدافين في تاريخ مواجهات مانشستر يونايتد وبرايتون**: [Link](https://hihi2.com/2025/10/24/p3441008.html)
+
+
 ### dortmund – cologne (N/A, Sat, 25 Oct 2025 09:00:00 -0700)
 
 - **Match Preview: Borussia Dortmund Prepare to Host High-Flying FC Köln**: [Link](https://www.fearthewall.com/bvb-league/22122/match-preview-borussia-dortmund-prepare-to-host-high-flying-fc-koln)
