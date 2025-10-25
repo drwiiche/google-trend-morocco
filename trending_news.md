@@ -1,3 +1,10 @@
+### naples – inter (N/A, Sat, 25 Oct 2025 08:20:00 -0700)
+
+- **Stadium Not Sold Out For Napoli Vs Inter Milan Clash & Nerazzurri Fans Face Partial Ban**: [Link](https://sempreinter.com/2025/10/25/napoli-inter-maradona-ticket-prices-scudetto-test/)
+- **Lucca and Bonny take diverging paths after summer transfers**: [Link](https://football-italia.net/lucca-bonny-diverging-paths-summer-transfers/)
+- **🧨Conte v Chivu: Scudetto clash after last time’s madness😡**: [Link](https://onefootball.com/pt-br/noticias/conte-v-chivu-scudetto-clash-after-last-times-madness-41854690)
+
+
 ### match raja (N/A, Sat, 25 Oct 2025 07:00:00 -0700)
 
 
