@@ -1,3 +1,64 @@
+### valence – villarreal (N/A, Sat, 25 Oct 2025 11:30:00 -0700)
+
+- **DIRECT. Valence CF-Villarreal (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/valence-cf-villarreal-live/676805)
+- **Commentaires et pronostics pour Valence vs Villarreal : Les chauves-souris tombent dans le filet**: [Link](https://baonghean.vn/fr/nhan-dinh-du-doan-valencia-vs-villarreal-bay-doi-sa-luoi-10308944.html)
+- **Liga : Sur quelle chaîne TV suivre Valence – Villarreal ?**: [Link](https://africafootunited.com/liga-sur-quelle-chaine-tv-suivre-valence-villarreal/)
+
+
+### lens – marseille (N/A, Sat, 25 Oct 2025 11:30:00 -0700)
+
+
+
+
+### الدوري الانجليزي (N/A, Sat, 25 Oct 2025 11:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة برينتفورد وليفربول في الدوري الإنجليزي 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt72f78166dd3d3025)
+- **اختبار هام لفريق ليفربول أمام برينتفورد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8-%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF-2025-10-25)
+- **هل يبدأ صلاح أم يجلس على الدكة؟ حالة عدم اليقين تحيط بمشاركة محمد صلاح قبل مواجهة برينتفورد الحاسمة**: [Link](https://foot-africa.com/ar/news/%D9%87%D9%84-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A3%D9%85-%D9%8A%D8%AC%D9%84%D8%B3-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D9%83%D8%A9-%D8%AD%D8%A7%D9%84%D8%A9-%D8%B9%D8%AF%D9%85-%D8%A7%D9%84%D9%8A%D9%82%D9%8A%D9%86-%D8%AA%D8%AD%D9%8A%D8%B7-%D8%A8%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF-%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-933875/)
+
+
+### streameast (N/A, Sat, 25 Oct 2025 11:30:00 -0700)
+
+- **StreamEast alternatives for NFL free streams today**: [Link](https://www.syracuse.com/tv/2025/10/streameast-alternatives-for-nfl-free-streams-today.html-2)
+- **How to watch NCAA football games for free today without Streameast**: [Link](https://www.al.com/tv/2025/10/how-to-watch-ncaa-football-games-for-free-today-without-streameast.html)
+- **Where to watch NFL and College Football for free this week**: [Link](https://www.masslive.com/tv/2025/10/where-to-watch-nfl-and-college-football-for-free-this-week.html)
+
+
+### al-hazm vs al-nassr (N/A, Sat, 25 Oct 2025 11:20:00 -0700)
+
+- **Al Hazm vs Al-Nassr LIVE Score Updates: match begins (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2025/10/25/1238963-al-hazm-vs-al-nassr-live-score-saudi-pro-league.html)
+- **Is Cristiano Ronaldo playing today, Oct. 25, for Al Nassr vs Al-Hazm in the 2025-26 Saudi Pro League?**: [Link](https://bolavip.com/en/soccer/is-cristiano-ronaldo-playing-today-oct-25-for-al-nassr-vs-al-hazm-in-the-2025-26-saudi-pro-league)
+- **Al Hazem vs Al Nassr Lineups, Live Score & Results**: [Link](https://www.yardbarker.com/soccer/articles/al_hazem_vs_al_nassr_lineups_live_score_results/s1_17615_42956841)
+
+
+### brentford – liverpool (N/A, Sat, 25 Oct 2025 11:10:00 -0700)
+
+- **Brentford vs Liverpool: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cgkzj4vg702t)
+- **LIVE: Brentford vs Liverpool – English Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2025/10/25/live-brentford-vs-liverpool-premier-league)
+- **Brentford vs Liverpool LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/10/25/1238851-brentford-vs-liverpool-live-score-premier-league-match.html)
+
+
+### الحزم ضد النصر (N/A, Sat, 25 Oct 2025 11:10:00 -0700)
+
+- **مباشر.. مباراة النصر ضد الحزم في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/25/al-hazem-vs-al-nassr)
+- **ما القنوات الناقلة لمباراة الحزم والنصر في دوري روشن السعودي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AD%D8%B2%D9%85-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt476fb665b702c8f4)
+- **جيسوس يفاجئ لاعبي النصر بقرار غير متوقّع قبل مواجهة الحزم**: [Link](https://www.arrajol.com/content/386490/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D9%81%D8%A7%D8%AC%D8%A6-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D9%91%D8%B9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AD%D8%B2%D9%85)
+
+
+### الجيش الملكي (N/A, Sat, 25 Oct 2025 11:10:00 -0700)
+
+- **3 عوامل ترجح كفة الجيش لعبور هورويا الغيني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/3-%D8%B9%D9%88%D8%A7%D9%85%D9%84-%D8%AA%D8%B1%D8%AC%D8%AD-%D9%83%D9%81%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%84%D8%B9%D8%A8%D9%88%D8%B1-%D8%AD%D9%88%D8%B1%D9%8A%D8%A7-%D9%83%D9%88%D9%86%D8%A7%D9%83%D8%B1%D9%8A-%D8%A7%D9%84%D8%BA%D9%8A%D9%86%D9%8A/blt065df2f7dc2825bc)
+- **أندية المغرب تعود إلى المنافسة القارية**: [Link](https://www.hespress.com/%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A-1644639.html)
+- **"أولترا عسكري" تعلن إلغاء "التيفو" في مباراة الجيش الملكي وحوريا كوناكري**: [Link](https://m.elbotola.com/article/2025-10-25-14-34-133.html)
+
+
+### napoli (N/A, Sat, 25 Oct 2025 11:10:00 -0700)
+
+- **Liti, rigori e legni. Succede di tutto: il Napoli ne fa 3 all'Inter e vola in testa**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Napoli/25-10-2025/napoli-inter-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Si è fatto male tirando il rigore. Dazn: è stato Conte a dire a De Bruyne di tirare, doveva calciarlo Neres inizialmente. Al posto del belga è entrato Olivera.**: [Link](https://www.facebook.com/story.php?story_fbid=1335588535246465&id=100063859936263)
+- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-napoli-inter-1-0-fine-primo-tempo/GnaKoxDt/)
+
+
 ### dortmund (N/A, Sat, 25 Oct 2025 11:00:00 -0700)
 
 - **Vorschau European Championship am Samstagabend: Ricardo Pietreczko trifft im Kampf ums Viertelfinale auf Jermaine Wattimena**: [Link](https://dartsnews.de/pdc/vorschau-european-championship-am-samstagabend-ricardo-pietreczko-trifft-im-kampf-ums-viertelfinale-auf-jermaine-wattimena)
