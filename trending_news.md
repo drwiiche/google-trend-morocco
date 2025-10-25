@@ -1,3 +1,10 @@
+### mls (N/A, Fri, 24 Oct 2025 18:10:00 -0700)
+
+- **History of MLS championship dynasties since league's inception**: [Link](https://www.usatoday.com/story/sports/soccer/2025/10/25/mls-championship-dynasties/84037338007/)
+- **Will the USMNT Ever Become a Powerhouse in Football?**: [Link](https://extratimetalk.com/will-the-usmnt-ever-become-a-powerhouse-in-football/)
+- **Timeline covering key milestones of first 30 years of MLS: From Beckham to Messi**: [Link](https://www.usatoday.com/story/sports/soccer/2025/10/18/mls-30-anniversary-season-milestones/84019958007/)
+
+
 ### caf online (N/A, Sat, 25 Oct 2025 00:40:00 -0700)
 
 - **Rampant Wydad defeat Kotoko 5–1 as Moroccans march into group phase**: [Link](https://www.cafonline.com/caf-confederation-cup/news/rampant-wydad-defeat-kotoko-5-1-as-moroccans-march-into-group-phase/)
