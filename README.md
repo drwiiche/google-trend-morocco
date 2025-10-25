@@ -1,3 +1,10 @@
+### manchester united (N/A, Sat, 25 Oct 2025 09:40:00 -0700)
+
+- **Man Utd fans all make the same joke as Ruben Amorim names forgotten star in squad**: [Link](https://www.dailystar.co.uk/sport/football/man-utd-team-tyrell-malacia-36132800)
+- **Shock Player Spotted With Man Utd Squad Ahead of Brighton Clash**: [Link](https://www.sportbible.com/football/football-news/man-utd/man-united-brighton-premier-league-squad-065210-20251025)
+- **'No favourites' - What Tyrell Malacia did to win back role in Manchester United first-team squad**: [Link](https://www.manchesterworld.uk/sport/football/manchester-united/what-tyrell-malacia-did-to-win-back-role-in-manchester-united-first-team-squad-5375181)
+
+
 ### monaco – toulouse (N/A, Sat, 25 Oct 2025 10:00:00 -0700)
 
 - **"On va passer d'un stade plein mercredi à 5 000 personnes ce samedi, vive les footix !"**: [Link](https://www.lesviolets.com/actu/on-va-passer-dun-stade-plein-mercredi-a-5-000-personnes-ce-samedi-vive-les-footix,79522.html)
