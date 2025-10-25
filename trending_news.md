@@ -1,3 +1,10 @@
+### clasico real vs barça (N/A, Sat, 25 Oct 2025 04:20:00 -0700)
+
+- **Rueda de prensa de Marcus Sorg, en directo | Última hora del Real Madrid - Barcelona de LaLiga**: [Link](https://www.marca.com/futbol/barcelona/2025/10/25/68fbbb077aeb1c2f75a4d894-directo.html)
+- **Los argumentos del TAD para denegar la cautelar a Hansi Flick**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251025/1002557191/argumentos-tad-denegar-cautelar-hansi-flick.html)
+- **Así es Marcus Sorg, el asistente que suplirá a Flick en el Bernabéu**: [Link](https://www.sport.es/es/noticias/barca/marcus-sorg-asistente-suplira-flick-122923506)
+
+
 ### girona – real oviedo (N/A, Sat, 25 Oct 2025 04:10:00 -0700)
 
 - **🔴 EN VIVO J10 de La Liga: ¡Ya están los XI's del Girona-Oviedo!**: [Link](https://onefootball.com/es/noticias/en-vivo-j10-de-la-liga-ya-estan-los-xis-del-girona-oviedo-41854655)
