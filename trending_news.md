@@ -1,3 +1,10 @@
+### f1 (N/A, Sat, 25 Oct 2025 15:30:00 -0700)
+
+- **F1 Qualifying LIVE: Mexico City Grand Prix 2025 times, results, radio & updates**: [Link](https://www.bbc.com/sport/formula1/live/c79vx23l249t)
+- **Norris leads Hamilton in FP3 ahead of Mexico City GP**: [Link](https://www.formula1.com/en/latest/article/fp3-norris-leads-hamilton-and-russell-in-final-practice-ahead-of-mexico-city.zQqKaWJQ8Z5aShSaz5Stl)
+- **‘Messy since Baku’: Villeneuve points to confidence crisis for Piastri**: [Link](https://bvmsports.com/2025/10/25/messy-since-baku-villeneuve-points-to-confidence-crisis-for-piastri/)
+
+
 ### marathon casablanca (N/A, Sat, 25 Oct 2025 15:10:00 -0700)
 
 - **Marathon de Casablanca: circulation bloquée sur plusieurs boulevards ce dimanche**: [Link](https://fr.le360.ma/societe/marathon-de-casablanca-circulation-bloquee-sur-plusieurs-boulevards-ce-dimanche_GNW66IOEBREQ3KUBXYVNWPVX34/)
