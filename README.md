@@ -1,3 +1,10 @@
+### fatwa zakat maroc (N/A, Sat, 25 Oct 2025 02:50:00 -0700)
+
+- **Voici la Fatwa du Conseil Supérieur des Oulémas sur la Zakat**: [Link](https://lematin.ma/nation/voici-la-fatwa-du-conseil-superieur-des-oulemas-sur-la-zakat/309651)
+- **Fatwa sur la zakat: tout ce qu’il faut savoir avec Lahcen Sguenfle, président du Conseil des oulémas de Skhirate-Témara**: [Link](https://fr.le360.ma/societe/fatwa-sur-la-zakat-tout-ce-quil-faut-savoir-avec-lahcen-sguenfle-president-du-conseil-des-oulemas-de_FZ3TN3C77JEYFB6WNU4L3IFLI4/)
+- **Le roi approuve la fatwa du Conseil des oulémas sur la zakat**: [Link](https://mobile.telquel.ma/instant-t/2025/10/22/le-roi-approuve-la-fatwa-du-conseil-des-oulemas-sur-la-zakat_1957034/)
+
+
 ### mls (N/A, Fri, 24 Oct 2025 18:10:00 -0700)
 
 - **History of MLS championship dynasties since league's inception**: [Link](https://www.usatoday.com/story/sports/soccer/2025/10/25/mls-championship-dynasties/84037338007/)
