@@ -1,3 +1,10 @@
+### mönchengladbach – bayern (N/A, Sat, 25 Oct 2025 05:50:00 -0700)
+
+- **Fußball-Bundesliga: FC Bayern im Stau: Anpfiff in Gladbach verschoben**: [Link](https://www.stern.de/gesellschaft/regional/bayern/fussball-bundesliga--fc-bayern-im-stau--anpfiff-in-gladbach-verschoben-36161660.html)
+- **Netz, Stöger und Honorat rücken in die Startelf**: [Link](https://www.borussia.de/news/netz-stoeger-und-honorat-ruecken-in-die-startelf)
+- **Aufstellung von Borussia Mönchengladbach**: [Link](https://www.ligainsider.de/borussia-moenchengladbach/5/aufstellung-von-borussia-moenchengladbach-403872/)
+
+
 ### barca vs real madrid (N/A, Sat, 25 Oct 2025 05:20:00 -0700)
 
 - **Kylian Mbappe key for Real Madrid as they host rampant Barcelona in El Clasico**: [Link](https://www.flashscore.com/news/soccer-laliga-kylian-mbappe-key-for-real-madrid-as-they-host-rampant-barcelona-in-el-clasico/Srtp5Ixq/)
