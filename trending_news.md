@@ -1,3 +1,10 @@
+### julia simon (N/A, Fri, 24 Oct 2025 14:40:00 -0700)
+
+- **Des aveux et « un déni » : l'épilogue inattendu de l'affaire Julia Simon, reconnue coupable de vol et fraudeà la carte bancaire**: [Link](https://www.lequipe.fr/Biathlon/Article/Des-aveux-sans-explication-rationnelle-l-epilogue-inattendu-de-l-affaire-julia-simon-reconnue-coupable-de-vol-et-fraude-a-la-carte-bancaire/1604366)
+- **Trois mois de prison avec sursis pour la biathlète Julia Simon, reconnue coupable d’avoir volé une partenaire en équipe de France**: [Link](https://www.lemonde.fr/sport/article/2025/10/24/trois-mois-de-prison-avec-sursis-pour-la-biathlete-julia-simon-reconnue-coupable-d-avoir-vole-une-partenaire-en-equipe-de-france_6649224_3242.html)
+- **Biathlon : on vous explique l'affaire Julia Simon, condamnée pour fraude à la carte bancaire et vol envers sa coéquipière Justine Braisaz-Bouchet**: [Link](https://www.franceinfo.fr/sports/sports-d-hiver/biathlon/biathlon-on-vous-explique-l-affaire-julia-simon-condamnee-pour-fraude-a-la-carte-bancaire-et-vol-envers-sa-coequipiere-justine-braisaz-bouchet_7572925.html)
+
+
 ### maroc u17 féminine (N/A, Fri, 24 Oct 2025 20:40:00 -0700)
 
 - **CM féminine U17: le Maroc se qualifie aux huitièmes de finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17%D8%B3%D9%86%D8%A9-%D9%8A%D9%81%D9%88%D8%B2/)
