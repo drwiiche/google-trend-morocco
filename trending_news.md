@@ -1,3 +1,17 @@
+### maroc u17 féminine (N/A, Fri, 24 Oct 2025 20:40:00 -0700)
+
+- **CM féminine U17: le Maroc se qualifie aux huitièmes de finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17%D8%B3%D9%86%D8%A9-%D9%8A%D9%81%D9%88%D8%B2/)
+- **Match Maroc-Costa Rica : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-costa-rica-a-quelle-heure-et-sur-quelles-chaines/309473)
+- **Mondial U17 féminin Maroc 2025 : La sélection nationale bat son homologue du Costa Rica (3-1)**: [Link](https://www.mapexpress.ma/actualite/sports/mondial-u17-feminin-maroc-2025-selection-nationale-bat-homologue-du-costa-rica-3-1/)
+
+
+### nba (N/A, Fri, 24 Oct 2025 20:40:00 -0700)
+
+- **Indictment Alleging Participation in Sports Betting Scheme**: [Link](https://www.nytimes.com/interactive/2025/10/23/nyregion/nba-betting-scheme-indictment.html)
+- **Portland Trail Blazers coach Chauncey Billups charged in illegal poker operation tied to Mafia**: [Link](https://abcnews.go.com/US/miami-heat-terry-rozier-charged-nba-betting/story?id=126789368)
+- **Billups, Rozier arrested in gambling investigations**: [Link](https://www.espn.com/nba/story/_/id/46695228/sources-terry-rozier-arrested-part-gambling-inquiry)
+
+
 ### إنتر ميامي ضد ناشفيل (N/A, Fri, 24 Oct 2025 18:00:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إنتر ميامي وناشفيل في الدوري الأمريكي 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%86%D8%A7%D8%B4%D9%81%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2025/blt9f6299f61fd49d0d)
