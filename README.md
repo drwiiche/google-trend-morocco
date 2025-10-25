@@ -1,3 +1,10 @@
+### real madrid vs barcelona (N/A, Sat, 25 Oct 2025 04:30:00 -0700)
+
+- **Real Madrid - Barcelona, en directo: previa y ruedas de prensa de Xabi Alonso y Flick, última hora en vivo**: [Link](https://as.com/futbol/primera/real-madrid-barcelona-en-directo-previa-y-ruedas-de-prensa-de-xabi-alonso-y-flick-ultima-hora-en-vivo-f202510-d/)
+- **El favorito del Clásico**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251025/1002556807/favorito-clasico.html)
+- **¡Resultados de los últimos 8 clásicos Madrid vs Barca!**: [Link](https://onefootball.com/id/berita/resultados-de-los-ultimos-8-clasicos-madrid-vs-barca-41852314)
+
+
 ### clasico real vs barça (N/A, Sat, 25 Oct 2025 04:20:00 -0700)
 
 - **Rueda de prensa de Marcus Sorg, en directo | Última hora del Real Madrid - Barcelona de LaLiga**: [Link](https://www.marca.com/futbol/barcelona/2025/10/25/68fbbb077aeb1c2f75a4d894-directo.html)
