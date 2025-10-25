@@ -1,3 +1,23 @@
+### monaco – toulouse (N/A, Sat, 25 Oct 2025 10:00:00 -0700)
+
+- **"On va passer d'un stade plein mercredi à 5 000 personnes ce samedi, vive les footix !"**: [Link](https://www.lesviolets.com/actu/on-va-passer-dun-stade-plein-mercredi-a-5-000-personnes-ce-samedi-vive-les-footix,79522.html)
+- **Dynamique, Martínez Novell, dangers... Tout savoir sur le Toulouse FC**: [Link](https://www.asmonaco.com/dynamique-martinez-novell-dangers-tout-savoir-sur-le-toulouse-fc/)
+- **Monaco – TFC : Mark McKenzie retrouve le onze de départ, découvrez la composition toulousaine**: [Link](https://www.ladepeche.fr/2025/10/25/monaco-tfc-mark-mckenzie-retrouve-le-onze-de-depart-decouvrez-la-composition-toulousaine-13014697.php)
+
+
+### أتلتيك بيلباو ضد خيتافي (N/A, Sat, 25 Oct 2025 09:50:00 -0700)
+
+- **"Athletic Bilbao vs Getafe".. الآن مباراة أتلتيك بلباو وخيتافي في الدوري الإسباني**: [Link](https://zahraa.mr/6018936/athletic-bilbao-vs-getafe-%D8%A7%D9%84%D8%A2%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%AE%D9%8A%D8%AA%D8%A7%D9%81/)
+- **اكتشف موعد ومعلق مباراة أتلتيك بلباو أمام خيتافي في الدوري الإسباني**: [Link](https://www.almashhad.news/349581)
+
+
+### chemsdine talbi (N/A, Sat, 25 Oct 2025 09:50:00 -0700)
+
+- **Chelsea 1-2 Sunderland, Premier League : Sunderland s'installe sur le podium !**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/chelsea-sunderland-live/673587)
+- **Premier League : le multiplex à suivre en direct avec les matchs de Chelsea – Sunderland et Newcastle – Fulham**: [Link](https://www.sport.fr/football/premier-league-le-multiplex-a-suivre-en-direct-avec-les-matchs-de-chelsea-sunderland-et-newcastle-fulham-1371508.shtm)
+- **Chelsea piégé par le Sunderland de Régis le Bris, Newcastle s'en sort contre Fulham**: [Link](https://www.onzemondial.com/premier-league/chelsea-piege-par-le-sunderland-de-regis-le-bris-newcastle-sen-sort-contre-fulham-970172)
+
+
 ### ocs vs stade tunisien (N/A, Sat, 25 Oct 2025 09:30:00 -0700)
 
 - **Calendrier et Résultats de la phase préliminaire de la TotalEnergies CAF Ligue des Champions 2025/26**: [Link](https://www.cafonline.com/fr/ligue-des-champions/news/calendrier-et-resultats-de-la-phase-preliminaire-de-la-totalenergies-caf-ligue-des-champions-202526/)
