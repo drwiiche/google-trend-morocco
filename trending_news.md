@@ -1,3 +1,10 @@
+### om (N/A, Sat, 25 Oct 2025 14:00:00 -0700)
+
+- **Live Eredivisie | Heracles in de problemen, Makkelie trapt niet in fopduik**: [Link](https://www.nu.nl/voetbal/6373682/live-eredivisie-fc-volendam-vergroot-zorgen-heracles-nec-snel-op-voorsprong.html)
+- **Volendam boekt belangrijke zege tegen concurrent**: [Link](https://www.nieuw-volendam.nl/volendam-boekt-belangrijke-zege-tegen-concurrent/)
+- **Heracles-trainer Sibum woedend op aanvaller Engels na rode kaart**: [Link](https://www.zeelandnet.nl/nieuws/heracles-trainer-sibum-woedend-op-aanvaller-engels-na-rode-kaart)
+
+
 ### classement premier league (N/A, Sat, 25 Oct 2025 13:40:00 -0700)
 
 - **PL : Manchester United se régale face à Brighton**: [Link](https://www.footmercato.net/a9210257175345608396-pl-manchester-united-se-regale-face-a-brighton)
