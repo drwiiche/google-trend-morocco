@@ -1,3 +1,32 @@
+### dortmund – cologne (N/A, Sat, 25 Oct 2025 09:00:00 -0700)
+
+- **Match Preview: Borussia Dortmund Prepare to Host High-Flying FC Köln**: [Link](https://www.fearthewall.com/bvb-league/22122/match-preview-borussia-dortmund-prepare-to-host-high-flying-fc-koln)
+- **‘The youngster has already shown some great things’: Niko Kovac warns his players about Cologne's rising star Said El Mala**: [Link](https://tribuna.com/en/news/2025-10-24-the-youngster-has-already-shown-some-great-things-niko-kovac-warns-his-players-about-colo/)
+- **BVB players shine with goals in training ahead of Köln match**: [Link](https://sports.yahoo.com/video/bvb-players-shine-goals-training-151719286.html)
+
+
+### manchester united – brighton (N/A, Sat, 25 Oct 2025 08:50:00 -0700)
+
+- **Team news from Ruben Amorim for Man Utd v Brighton 25 Oct**: [Link](https://www.manutd.com/en/news/detail/team-news-from-ruben-amorim-for-man-utd-v-brighton-25-oct)
+- **Premier League side with most consecutive wins at Old Trafford threaten again**: [Link](https://www.besoccer.com/new/premier-league-side-with-most-consecutive-wins-at-old-trafford-threaten-again-1378279)
+- **Fabian Hurzeler demands his players to ‘be alert’ against Man
+United**: [Link](https://www.vavel.com/en/football/2025/10/24/brighton-hove-albion/1238972-fabian-hurzeler-demands-his-players-to-be-alert-against-manunited.html)
+
+
+### ath. bilbao – getafe (N/A, Sat, 25 Oct 2025 08:50:00 -0700)
+
+- **Valverde: “Intentaremos poner un equipo con energía suficiente"**: [Link](https://www.marca.com/futbol/athletic/2025/10/24/valverde-intentaremos-poner-equipo-energia-suficiente.html)
+- **Athletic Club – Getafe: En busca de activar la racha**: [Link](https://onefootball.com/es/noticias/athletic-club-getafe-en-busca-de-activar-la-racha-41853755)
+- **Negro sobre el rojiblanco**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20251025/1002556836/negro-sobre-rojiblanco.html)
+
+
+### changement heure hiver 2025 (N/A, Sat, 25 Oct 2025 07:50:00 -0700)
+
+- **Changement d’heure ce week-end : pourquoi ce passage à l’heure d’hiver pourrait bien être le dernier**: [Link](https://www.capital.fr/economie-politique/changement-dheure-ce-week-end-pourquoi-ce-passage-a-lheure-dhiver-pourrait-bien-etre-le-dernier-1520015)
+- **Ni utile ni bon pour la santé: pourquoi est-il si compliqué de se débarrasser du changement d'heure?**: [Link](https://www.bfmtv.com/societe/ni-utile-ni-bon-pour-la-sante-pourquoi-est-il-si-complique-de-se-debarrasser-du-changement-d-heure_AV-202510250035.html)
+- **Changement d’heure : pourquoi le passage à l’heure d’hiver est programmé à 3 heures du matin**: [Link](https://www.larepubliquedespyrenees.fr/societe/vie-quotidienne/heure/changement-d-heure-pourquoi-le-passage-a-l-heure-d-hiver-est-programme-a-3-heures-du-matin-26460368.php)
+
+
 ### newcastle (N/A, Sat, 25 Oct 2025 08:40:00 -0700)
 
 - **Premier League LIVE: Chelsea vs Sunderland & Newcastle v Fulham - scores & updates**: [Link](https://www.bbc.com/sport/football/live/c5ykwrp7jk3t)
