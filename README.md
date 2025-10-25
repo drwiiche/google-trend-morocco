@@ -1,3 +1,17 @@
+### lens vs marseille (N/A, Sat, 25 Oct 2025 13:10:00 -0700)
+
+- **LIVE! Lens vs. Marseille in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-lens-vs-marseille-in-ligue-1-on-bein-sports-2025-10-25)
+- **Florian Thauvin vs. Olympique Marseille – Player props & odds to score a goal on October 25**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/25/florian-thauvin-soccer-player-props-10-25-2025/86893024007/)
+- **Lens – OM: De Zerbi dares two strong bets in his starting lineup**: [Link](https://frenchfootballweekly.com/2025/10/25/lens-om-de-zerbi-dares-two-strong-bets-in-his-starting-lineup/)
+
+
+### weather tomorrow (N/A, Sat, 25 Oct 2025 12:40:00 -0700)
+
+- **Warning Issued as 6 States Brace for Subfreezing Temperatures**: [Link](https://www.newsweek.com/warning-issued-6-states-subfreezing-temperatures-10936702)
+- **Minnesota weather: Brighter Thursday with widespread frost tonight**: [Link](https://www.mprnews.org/story/2025/10/23/brighter-thursday-with-widespread-frost-tonight)
+- **Frost and freeze alerts in place tonight**: [Link](https://www.wdbj7.com/2025/10/23/frost-freeze-alerts-tonight/)
+
+
 ### فالنسيا ضد فياريال (N/A, Sat, 25 Oct 2025 13:00:00 -0700)
 
 - **تعرف على تشكيل مواجهة فالينسيا وفياريال في الدوري الإسباني**: [Link](https://www.albawabhnews.com/5283763)
