@@ -1,3 +1,10 @@
+### girona – real oviedo (N/A, Sat, 25 Oct 2025 04:10:00 -0700)
+
+- **🔴 EN VIVO J10 de La Liga: ¡Ya están los XI's del Girona-Oviedo!**: [Link](https://onefootball.com/es/noticias/en-vivo-j10-de-la-liga-ya-estan-los-xis-del-girona-oviedo-41854655)
+- **Girona y Real Oviedo en un duelo clave por el descenso en España**: [Link](https://www.eldia.com/nota/2025-10-25-4-25-49-girona-y-real-oviedo-en-un-duelo-clave-por-el-descenso-en-espana-deportes)
+- **Final anticipada por salir de la zona roja**: [Link](https://www.mundodeportivo.com/futbol/girona-fc/20251025/1002557086/final-anticipada-salir-zona-roja.html)
+
+
 ### طقس (N/A, Sat, 25 Oct 2025 03:20:00 -0700)
 
 - **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-33-1645227.html)
