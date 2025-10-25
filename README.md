@@ -1,3 +1,17 @@
+### إنتر ميامي ضد ناشفيل (N/A, Fri, 24 Oct 2025 18:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي وناشفيل في الدوري الأمريكي 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%86%D8%A7%D8%B4%D9%81%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2025/blt9f6299f61fd49d0d)
+- **عاجل: ميسي يقود إنتر ميامي لمباراة النار أمام ناشفيل… هكذا تشاهدها مجاناً!**: [Link](https://yemen-press.net/news146664.html)
+- **طريقة مشاهدة مباراة انتر ميامي ضد ناشفيل Inter Miami vs Nashville اليوم في كأس الدوري الأمريكي 2025**: [Link](https://zahraa.mr/6016218/%D8%B7%D8%B1%D9%8A%D9%82%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D8%B6%D8%AF-%D9%86%D8%A7%D8%B4%D9%81/)
+
+
+### inter miami (N/A, Fri, 24 Oct 2025 17:20:00 -0700)
+
+- **Inter Miami CF Signs Leo Messi to Contract Extension**: [Link](https://www.intermiamicf.com/news/inter-miami-cf-signs-leo-messi-to-contract-extension)
+- **The Sound of Silence: Lionel Messi’s media avoidance is impacting his MLS era**: [Link](https://www.fourfourtwo.com/person/player/the-sound-of-silence-lionel-messis-media-avoidance-is-impacting-his-mls-era)
+- **David Beckham boasts about Lionel Messi, hitting Cristiano Ronaldo where it hurts**: [Link](https://www.marca.com/en/football/mls/2025/10/24/68fbd0e2ca47410b698b45d0.html)
+
+
 ### inter miami – nashville (N/A, Fri, 24 Oct 2025 16:30:00 -0700)
 
 - **Lionel Messi just had the best season in MLS history. Does anyone care?**: [Link](https://www.theguardian.com/football/2025/oct/24/lionel-messi-mls-viewership-attendance-apple-tv)
