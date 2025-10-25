@@ -1,3 +1,10 @@
+### can tickets (N/A, Sat, 25 Oct 2025 06:00:00 -0700)
+
+- **HAIM at Co-op Live, Manchester – tickets, times, setlist, and more for UK tour**: [Link](https://themanc.com/affiliate/haim-co-op-live-manchester-tickets-uk-tour/)
+- **Haim tickets for O2 Arena concert are still available for £40**: [Link](https://www.mylondon.news/whats-on/music-nightlife-news/haim-tickets-o2-arena-resale-32749159)
+- **Full set times for Haim's 'I Quit' tour show at the O2 Arena**: [Link](https://www.londonworld.com/whats-on/haim-o2-arena-set-times-london-5366845)
+
+
 ### chelsea – sunderland (N/A, Sat, 25 Oct 2025 06:20:00 -0700)
 
 - **Chelsea fans’ preferred lineup against Sunderland: João Pedro and Marc Guiu together**: [Link](https://weaintgotnohistory.sbnation.com/premier-league/163122/chelsea-fans-preferred-lineup-against-sunderland-joao-pedro-and-marc-guiu-together)
