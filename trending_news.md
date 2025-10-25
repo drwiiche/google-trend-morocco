@@ -1,3 +1,10 @@
+### ترتيب الدوري الانجليزي (N/A, Sat, 25 Oct 2025 13:30:00 -0700)
+
+- **رصاصة مغربية تقتل تشيلسي أمام سندرلاند**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B5%D8%A7%D8%B5%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D9%84-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF/blteb97f56cad828ffa)
+- **شاهد.. سنردلاند يُسقط تشلسي بهدف المغربي الطالبي**: [Link](https://www.aljazeera.net/sport/2025/10/25/%D8%B4%D8%A7%D9%87%D8%AF-%D8%B3%D9%86%D8%B1%D8%AF%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D8%B3%D9%82%D8%B7-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%A8%D9%87%D8%AF%D9%81)
+- **هدف الطالبي أيقظ أفراح سندرلاند بتشيلسي**: [Link](https://www.almountakhab.com/node/13218903)
+
+
 ### lens vs marseille (N/A, Sat, 25 Oct 2025 13:10:00 -0700)
 
 - **LIVE! Lens vs. Marseille in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-lens-vs-marseille-in-ligue-1-on-bein-sports-2025-10-25)
