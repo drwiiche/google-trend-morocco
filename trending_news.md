@@ -1,3 +1,17 @@
+### cafonline (N/A, Sat, 25 Oct 2025 00:20:00 -0700)
+
+- **CAF strengthens collaboration with Member Association Presidents through onboarding of newly elected and re-elected MA Presidents meetings in Cairo**: [Link](https://www.cafonline.com/inside-caf/news/caf-strengthens-collaboration-with-member-association-presidents-through-onboarding-of-newly-elected-and-re-elected-ma-presidents-meetings-in-cairo/)
+- **CAF Concludes onboarding programme for new and re-elected Member Association Presidents in Cairo**: [Link](https://ghanasoccernet.com/caf-concludes-onboarding-programme-for-new-and-re-elected-member-association-presidents-in-cairo)
+- **CAF Interclub Group Stages Draw to be held in Johannesburg on 03 November**: [Link](https://www.cafonline.com/news/caf-interclub-group-stages-draw-to-be-held-in-johannesburg-on-03-november/)
+
+
+### billetterie can 2025 (N/A, Sat, 25 Oct 2025 00:10:00 -0700)
+
+- **CAN 2025. Acheter ses billets pour les matchs du Maroc, le guide complet !**: [Link](https://medias24.com/2025/10/21/can-2025-acheter-ses-billets-matchs-maroc-guide-complet/)
+- **CAN 2025 : le calendrier complet de la compétition au Maroc avec les dates et horaires des matchs**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-calendrier-complet-de-la-competition-au-maroc-avec-les-dates-et-horaires-des-matchs-24-10-2025-5QBKVKEUUNAGDMXD3MPL5RSH7M.php)
+- **CAN 2025: la CAF ouvre ce samedi la 2e phase de la billetterie**: [Link](https://h24info.ma/sport/can-2025-la-caf-2-phase-de-la-billetterie/)
+
+
 ### hakim ziyech wydad casablanca (N/A, Fri, 24 Oct 2025 23:50:00 -0700)
 
 - **Morocco playmaker Hakim Ziyech seals move to Wydad Casablanca**: [Link](https://www.cafonline.com/news/morocco-playmaker-hakim-ziyech-seals-move-to-wydad-casablanca/)
