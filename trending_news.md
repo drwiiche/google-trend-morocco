@@ -1,3 +1,17 @@
+### liverpool fc (N/A, Sat, 25 Oct 2025 14:10:00 -0700)
+
+- **Red Week Sale: Save 20% across all LFC Label items now**: [Link](https://www.liverpoolfc.com/news/red-week-sale-save-20-across-all-lfc-label-items-now)
+- **Liverpool launch 20% off sale including kits and signed merch**: [Link](https://www.devonlive.com/whats-on/shopping/liverpool-sale-christmas-presents-kit-10596356?int_source=nba)
+- **Best Liverpool Christmas gifts as fans race to 20% off kits, tours and more in rare sale**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/best-liverpool-christmas-gifts-kit-32700329)
+
+
+### ligue des champions de la caf (N/A, Sat, 25 Oct 2025 14:10:00 -0700)
+
+- **Ligue des champions CAF : Petro Luanda obtient son ticket pour les phases de poule**: [Link](https://www.africatopsports.com/2025/10/25/ligue-des-champions-caf-petro-luanda-obtient-son-ticket-pour-les-phases-de-poule/)
+- **Coupes africaines de clubs : le FC San Pedro sauve le football ivoirien**: [Link](https://africasport.org/coupes-africaines-de-clubs-le-fc-san-pedro-sauve-le-football-ivoirien/)
+- **CAF LDC (préliminaires) : le Stade d’Abidjan à l’épreuve du Petro de Luanda**: [Link](https://mondialsport.ci/caf-ldc-preliminaires-le-stade-d-abidjan-a-l-epreuve-du-petro-de-luanda-30077.sport)
+
+
 ### om (N/A, Sat, 25 Oct 2025 14:00:00 -0700)
 
 - **Live Eredivisie | Heracles in de problemen, Makkelie trapt niet in fopduik**: [Link](https://www.nu.nl/voetbal/6373682/live-eredivisie-fc-volendam-vergroot-zorgen-heracles-nec-snel-op-voorsprong.html)
