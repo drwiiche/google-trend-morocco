@@ -1,3 +1,17 @@
+### caf online (N/A, Sat, 25 Oct 2025 00:40:00 -0700)
+
+- **Rampant Wydad defeat Kotoko 5–1 as Moroccans march into group phase**: [Link](https://www.cafonline.com/caf-confederation-cup/news/rampant-wydad-defeat-kotoko-5-1-as-moroccans-march-into-group-phase/)
+- **CAF CONFEDERATION CUP CAFCC: WAC and Asante Kotoko: confirmed Lineups**: [Link](https://en.africatopsports.com/2025/10/24/cafcc-wac-and-asante-kotoko-confirmed-lineups/)
+- **Kotoko crashed out of CAF Confederation Cup after 5–1 defeat to Wydad**: [Link](https://www.myjoyonline.com/kotoko-crashed-out-of-caf-confederation-cup-after-5-1-defeat-to-wydad/)
+
+
+### dahbia benkired origine (N/A, Sat, 25 Oct 2025 00:40:00 -0700)
+
+- **Au procès du meurtre de Lola, le tribunal condamne l’accusée, à la « dangerosité très élevée », à la perpétuité réelle**: [Link](https://www.lemonde.fr/societe/article/2025/10/24/proces-du-meurtre-de-lola-le-tribunal-condamne-a-la-perpetuite-reelle-l-accusee-a-la-dangerosite-tres-elevee_6649223_3224.html)
+- **Peine maximale pour Dahbia Benkired: "On voulait une justice et on l'a eue", salue la mère de Lola**: [Link](https://www.tf1info.fr/justice-faits-divers/meurtre-de-lola-daviet-peine-maximale-pour-dahbia-benkired-on-voulait-une-justice-et-on-l-a-eue-reagit-la-mere-de-lola-violee-tuee-et-torturee-2402622.html)
+- **« Vu que je l’avais violée, autant la tuer » : au procès du meurtre de Lola, les insondables ténèbres de l’accusée**: [Link](https://www.leparisien.fr/faits-divers/vu-que-je-lavais-violee-autant-la-tuer-au-proces-du-meurtre-de-lola-les-insondables-tenebres-de-laccusee-22-10-2025-YD2BSJGCSVF7LJXFA7CZ4OGGWI.php)
+
+
 ### cafonline (N/A, Sat, 25 Oct 2025 00:20:00 -0700)
 
 - **CAF strengthens collaboration with Member Association Presidents through onboarding of newly elected and re-elected MA Presidents meetings in Cairo**: [Link](https://www.cafonline.com/inside-caf/news/caf-strengthens-collaboration-with-member-association-presidents-through-onboarding-of-newly-elected-and-re-elected-ma-presidents-meetings-in-cairo/)
