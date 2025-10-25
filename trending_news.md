@@ -1,3 +1,31 @@
+### فالنسيا ضد فياريال (N/A, Sat, 25 Oct 2025 13:00:00 -0700)
+
+- **تعرف على تشكيل مواجهة فالينسيا وفياريال في الدوري الإسباني**: [Link](https://www.albawabhnews.com/5283763)
+- **تفاصيل مباراة فالنسيا ضد فياريال اليوم 25 اكتوبر 2025 في الدوري الإسباني والقنوات الناقلة**: [Link](https://arabic.pressbee.net/show10086132.html?title=%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%B6%D8%AF-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85-25-%D8%A7%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7)
+- **موعد مباراة فالنسيا ضد فياريال في الجولة العاشرة من الدوري الإسباني**: [Link](https://www.almashhad.news/349587)
+
+
+### météo demain (N/A, Sat, 25 Oct 2025 12:50:00 -0700)
+
+- **Vers une semaine très pluvieuse et venteuse en France ? Découvrez les tendances !**: [Link](https://www.tameteo.com/actualites/previsions/vers-une-semaine-tres-pluvieuse-et-venteuse-en-france-decouvrez-les-tendances-risque-intemperie-automne.html)
+- **Météo dimanche 26 octobre : ressenti hivernal sous les giboulées, le vent et la neige en montagne**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-10-24/meteo-dimanche-26-octobre-ressenti-hivernal-sous-les-giboulees-le-vent-et-la-neige-en-montagne-82519)
+- **Météo : des éclaircies avant le retour d'un ciel couvert, hausse des températures, quel temps pour cette semaine ?**: [Link](https://www.francebleu.fr/infos/meteo/meteo-des-eclaircies-avant-le-retour-d-un-ciel-couvert-hausse-des-temperatures-quel-temps-pour-cette-semaine-8264522)
+
+
+### الطقس غدًا (N/A, Sat, 25 Oct 2025 12:50:00 -0700)
+
+- **«أجلوا سفركم».. بيان عاجل بشأن حالة الطقس وتحذير من رؤية «ضبابية»**: [Link](https://www.almasryalyoum.com/news/details/3583204)
+- **الأرصاد: غدًا طقس خريفي مائل للبرودة في الصباح الباكر حار نهارًا على أغلب الأنحاء**: [Link](https://darelhilal.com/News/3091857.aspx)
+- **الأرصاد: توقعات يومية للطقس معتدل في الخريف.. ودرجات الحرارة العظمى في القاهرة 31 درجة**: [Link](https://twaslnews.com/%D9%85%D8%A7%D8%B3%D8%A8%D9%8A%D8%B1%D9%88/2139134/)
+
+
+### mackenzie dern (N/A, Sat, 25 Oct 2025 12:50:00 -0700)
+
+- **Virna Jandiroba: Mackenzie Dern rematch ‘a crowning moment’ for jiu-jitsu at UFC 321**: [Link](https://www.mmafighting.com/ufc-events-ppv/451540/virna-jandiroba-mackenzie-dern-rematch-a-crowning-moment-for-jiu-jitsu-at-ufc-321)
+- **“Has there ever been a more insignificant title fight in the history?” Din Thomas on the UFC 321 Co-Main Event**: [Link](https://mmasucka.com/din-thomas-discusses-the-ufc-321-co-main-event/)
+- **Who is Mackenzie Dern’s Daughter? Inside UFC Star’s Life as a Fighter and Mother to Moa, Becoming Her Strongest Motivation**: [Link](https://theplayoffs.news/en/mackenzie-dern-daughter-inside-ufc-star-life-fighter-and-mother-to-moa/)
+
+
 ### benfica – arouca (N/A, Sat, 25 Oct 2025 12:30:00 -0700)
 
 - **Benfica x Arouca Palpites – Onde Assistir, Hora e Escalações 25-10**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/benfica-x-arouca-25-10)
