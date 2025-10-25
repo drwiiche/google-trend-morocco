@@ -1,3 +1,10 @@
+### match far (N/A, Sat, 25 Oct 2025 11:50:00 -0700)
+
+- **Les « Ultras Askary » annulent le tifo pour le match AS FAR - Horoya Conakry**: [Link](https://m.elbotola.com/fr/article/2025-10-25-14-34-951.html)
+- **Ligue des champions : l'AS FAR reçoit Horoya au Complexe Moulay Abdellah, la RSB en lice face à Al Ahly Tripoli**: [Link](https://lematin.ma/sports/ligue-des-champions-las-far-recoit-horoya-la-rsb-face-a-al-ahly-tripoli/309631)
+- **LdC et Coupe de la CAF: AS FAR, RSB, WAC et OCS, vers un carton plein pour le Maroc?**: [Link](https://h24info.ma/sport/ldc-et-coupe-de-la-caf-as-far-rsb-wac-et-ocs-vers-un-carton-plein-pour-le-maroc/)
+
+
 ### برينتفورد ضد ليفربول (N/A, Sat, 25 Oct 2025 12:00:00 -0700)
 
 - **ما القنوات الناقلة لمباراة برينتفورد وليفربول في الدوري الإنجليزي 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt72f78166dd3d3025)
