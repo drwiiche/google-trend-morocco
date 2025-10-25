@@ -1,3 +1,10 @@
+### rca (N/A, Sat, 25 Oct 2025 05:00:00 -0700)
+
+- **RCA-ul pentru trotinete și biciclete electrice stârnește dezbateri aprinse: „Hai să mai punem niște bețe în...**: [Link](https://adevarul.ro/stiri-interne/societate/rca-ul-pentru-trotinete-si-biciclete-electrice-2481646.html)
+- **ANALIZĂ Cum funcționează sistemul de asigurări italian: cu o poliță pentru toată familia te protejezi inclusiv de daunele făcute de câine ori de copil, cu trotineta, la joacă / Asigurare specială pentru cei care se urcă băuți la volan sau pentru deținătorii de dr**: [Link](https://economedia.ro/analiza-cum-functioneaza-sistemul-de-asigurari-italian-cu-o-polita-pentru-toata-familia-te-protejezi-inclusiv-de-daunele-facute-caine-ori-de-copil-cu-trotineta-la-joaca-asigurare-speciala-pentru.html)
+- **Deputaţii au adoptat proiectul de lege privind asigurarea RCA obligatorie**: [Link](https://www.rador.ro/2025/10/22/deputatii-au-adoptat-proiectul-de-lege-privind-asigurarea-rca-obligatorie/)
+
+
 ### real madrid vs barcelona (N/A, Sat, 25 Oct 2025 04:30:00 -0700)
 
 - **Real Madrid - Barcelona, en directo: previa y ruedas de prensa de Xabi Alonso y Flick, última hora en vivo**: [Link](https://as.com/futbol/primera/real-madrid-barcelona-en-directo-previa-y-ruedas-de-prensa-de-xabi-alonso-y-flick-ultima-hora-en-vivo-f202510-d/)
