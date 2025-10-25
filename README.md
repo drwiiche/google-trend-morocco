@@ -1,3 +1,10 @@
+### ufc (N/A, Sat, 25 Oct 2025 11:00:00 -0700)
+
+- **‘You’re putting your life on the line’: UFC heavyweight champion Tom Aspinall on death, success, and Trump’s White House bout**: [Link](https://www.cnn.com/2025/10/25/sport/ufc-tom-aspinall-ciryl-gane-intl)
+- **Tom Aspinall defends UFC title against Ciryl Gane: all fight details**: [Link](https://112.ua/en/tom-aspinall-vs-ciryl-gane-exact-fight-time-when-will-the-huge-ufc-321-main-event-start-107546)
+- **Jiri Prochazka offers expert breakdown and prediction of the UFC 321 main event**: [Link](https://bloodyelbow.com/2025/10/25/jiri-prochazka-offers-expert-breakdown-and-prediction-of-the-ufc-321-main-event/)
+
+
 ### valence – villarreal (N/A, Sat, 25 Oct 2025 11:30:00 -0700)
 
 - **DIRECT. Valence CF-Villarreal (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/valence-cf-villarreal-live/676805)
