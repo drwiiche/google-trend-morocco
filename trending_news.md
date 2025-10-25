@@ -1,3 +1,17 @@
+### chelsea (N/A, Sat, 25 Oct 2025 07:20:00 -0700)
+
+- **Enzo Maresca confirms Chelsea team news ahead of Sunderland | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-confirms-chelsea-team-news-ahead-of-sunderland)
+- **Chelsea receive major injury boost ahead of Wolves clash**: [Link](https://onefootball.com/pt-br/noticias/chelsea-receive-major-injury-boost-ahead-of-wolves-clash-41852148)
+- **Chelsea coach issues Liam Delap fitness update ahead of Sunderland game**: [Link](https://www.independent.co.uk/bulletin/sport/liam-delap-fitness-update-chelsea-maresca-b2851603.html)
+
+
+### تشيلسي ضد سندرلاند (N/A, Sat, 25 Oct 2025 07:20:00 -0700)
+
+- **ماريسكا: جويو تطور بعد نصيحتي.. وأعجبني تصرف إنزو مع إستيفاو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D8%AC%D9%88%D9%8A%D9%88-%D8%AA%D8%B7%D9%88%D8%B1-%D8%A8%D8%B9%D8%AF-%D9%86%D8%B5%D9%8A%D8%AD%D8%AA%D9%8A--%D9%88%D8%A7%D9%94%D8%B9%D8%AC%D8%A8%D9%86%D9%8A-%D8%AA%D8%B5%D8%B1%D9%81-%D8%A7%D9%95%D9%86%D8%B2%D9%88-%D9%85%D8%B9-%D8%A7%D9%95%D8%B3%D8%AA%D9%8A%D9%81%D8%A7%D9%88/blt63a1d841631a4b85)
+- **ماريسكا يكشف موعد عودة ديلاب**: [Link](https://hihi2.com/2025/10/25/p3442021.html)
+- **تعرف على التشكيل المتوقع لمباراة تشيلسي وسندرلاند بالدوري الإنجليزي**: [Link](https://www.arrajol.com/content/386617/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+
+
 ### bayern munich (N/A, Sat, 25 Oct 2025 07:00:00 -0700)
 
 - **Lennart Karl wins silver Fritz Walter Medal**: [Link](https://fcbayern.com/en/news/2025/10/lennart-karl-wins-silver-fritz-walter-medal)
