@@ -1,3 +1,17 @@
+### justin trudeau (N/A, Sun, 26 Oct 2025 09:30:00 -0700)
+
+- **Justin Trudeau and Katy Perry make first public appearance as a couple**: [Link](https://www.thestar.com/news/canada/justin-trudeau-and-katy-perry-make-first-public-appearance-as-a-couple/article_ca0faa5f-44df-40bb-a97a-73af5210b132.html)
+- **Katy Perry and Justin Trudeau finally confirm their relationship as they hold hands in Paris**: [Link](https://nypost.com/2025/10/26/entertainment/katy-perry-justin-trudeau-confirm-relationship-hold-hands-in-paris/)
+- **Katy Perry Is 'Very Happy' Amid 'Low-Key' Romance With Justin Trudeau**: [Link](https://www.usmagazine.com/celebrity-news/news/katy-perry-is-very-happy-amid-low-key-romance-with-justin-trudeau/)
+
+
+### rma (N/A, Sun, 26 Oct 2025 09:20:00 -0700)
+
+- **New Product Highlight: RMA Launches Gen 2 Body Armor**: [Link](https://www.pewpewtactical.com/new-product-highlight-rma-gen-2-body-armor/)
+- **Real Madrid v Barcelona: La Liga – live updates**: [Link](https://www.theguardian.com/football/live/2025/oct/26/real-madrid-v-barcelona-la-liga-live-updates)
+- **LIVE: Real Madrid vs Barcelona – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2025/10/26/live-real-madrid-vs-barcelona-la-liga)
+
+
 ### jude bellingham (N/A, Sun, 26 Oct 2025 09:20:00 -0700)
 
 - **Real Madrid vs Barcelona: Can Jude Bellingham make statement in El Clasico with English sub-plot**: [Link](https://www.bbc.com/sport/football/articles/cd9kl7np3dvo)
