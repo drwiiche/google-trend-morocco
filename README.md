@@ -1,3 +1,17 @@
+### f1 (N/A, Sun, 26 Oct 2025 11:30:00 -0700)
+
+- **What are the tactical options for the Mexico City GP?**: [Link](https://www.formula1.com/en/latest/article/strategy-guide-what-are-the-tactical-options-for-the-mexico-city-grand-prix.NsABv5XP1EqmfSxJZu8BV)
+- **adidas para Bad Bunny x Mercedes-AMG F1 Mexico 2025**: [Link](https://www.mercedesamgf1.com/stories/explore-the-adidas-para-bad-bunny-x-mercedes-amg-petronas-f1-collection)
+- **Strategy corner: How can Piastri recover, and is Norris at threat?**: [Link](https://www.autosport.com/f1/news/strategy-corner-f1-mexico-gp/10771609/)
+
+
+### هيفاء وهبي (N/A, Sun, 26 Oct 2025 11:10:00 -0700)
+
+- **رقص هيفاء وهبي في حفل صديقها بسام فتوح يشعل الترند**: [Link](https://www.aljadeed.tv/entertainment/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%81%D9%86%D9%8A%D8%A9/547574/%D8%B1%D9%82%D8%B5-%D9%87%D9%8A%D9%81%D8%A7%D8%A1-%D9%88%D9%87%D8%A8%D9%8A-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D8%B5%D8%AF%D9%8A%D9%82%D9%87%D8%A7-%D8%A8%D8%B3%D8%A7%D9%85-%D9%81%D8%AA%D9%88%D8%AD-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D9%86%D8%AF)
+- **بعد ظهورها اللافت في أمسية بيروتية خاصة.. هيفاء وهبي حديث السوشيال ميديا (فيديو)**: [Link](https://jo24.net/article/547771)
+- **تمايلت بدلع.. رقص هيفا وهبي في سهرة خاصة في بيروت حديث الجمهور (فيديو)**: [Link](https://www.lebanon24.com/news/arts-celebrities/1433788/%D8%B1%D9%82%D8%B5%D8%AA-%D9%88%D8%AA%D9%85%D8%A7%D9%8A%D9%84%D8%AA-%D8%A8%D8%AF%D9%84%D8%B9-%D9%87%D9%8A%D9%81%D8%A7-%D9%88%D9%87%D8%A8%D9%8A-%D9%81%D9%8A-%D8%B3%D9%87%D8%B1%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D9%81%D9%8A-%D8%A8%D9%8A%D8%B1%D9%88%D8%AA-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+
+
 ### fiorentina – bologne (N/A, Sun, 26 Oct 2025 10:40:00 -0700)
 
 - **DIRECT. Fiorentina-Bologne (Serie A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/fiorentina-bologne-live/673044)
