@@ -1,3 +1,10 @@
+### clasico (N/A, Sun, 26 Oct 2025 04:40:00 -0700)
+
+- **Real Madrid - Barcelona, en directo: última hora del Clásico de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-barcelona-en-directo-ultima-hora-del-clasico-de-laliga-ea-sports-hoy-en-vivo-f202510-n/)
+- **El Barça, a por el asalto del liderato en el Clásico ante el Madrid en el Bernabéu**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251026/1002557578/barca-asalto-liderato-clasico-madrid-bernabeu.html)
+- **XI combinado del Clásico – seleccionando a los mejores jugadores según su estado de forma actual**: [Link](https://tribuna.com/es/blogs/xi-combinado-del-clasico-seleccionando-a-los-mejores-jugador/)
+
+
 ### twente – ajax (N/A, Sun, 26 Oct 2025 04:30:00 -0700)
 
 - **Live Eredivisie | Ajax ook tegen FC Twente met Pasveer, later Feyenoord-PSV**: [Link](https://www.nu.nl/voetbal/6373736/live-eredivisie-ajax-ook-tegen-fc-twente-met-pasveer-later-feyenoord-psv.html)
