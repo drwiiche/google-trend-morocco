@@ -1,3 +1,17 @@
+### heure france (N/A, Sat, 25 Oct 2025 18:10:00 -0700)
+
+- **Changement d’heure : pourquoi le passage à l’heure d’hiver est programmé à 3 heures du matin**: [Link](https://www.larepubliquedespyrenees.fr/societe/vie-quotidienne/heure/changement-d-heure-pourquoi-le-passage-a-l-heure-d-hiver-est-programme-a-3-heures-du-matin-26460368.php)
+- **Ni utile ni bon pour la santé: pourquoi est-il si compliqué de se débarrasser du changement d'heure?**: [Link](https://www.bfmtv.com/societe/ni-utile-ni-bon-pour-la-sante-pourquoi-est-il-si-complique-de-se-debarrasser-du-changement-d-heure_AV-202510250035.html)
+- **Heure d’été, heure d’hiver, remettre les pendules à l’heure**: [Link](https://fr.le360.ma/societe/heure-dete-heure-dhiver-remettre-les-pendules-a-lheure_G7FD6D6JQFEODAWQC6BGOJCKWE/)
+
+
+### premier league (N/A, Sat, 25 Oct 2025 14:10:00 -0700)
+
+- **Sunderland: An 'unbelievable start' - but how have the Black Cats done it?**: [Link](https://www.bbc.com/sport/football/articles/cx2pxy797ndo)
+- **At last a promoted club to shake up the Premier League – thank you Sunderland**: [Link](https://www.telegraph.co.uk/football/2025/10/25/premier-league-live-chelsea-sunderland-newcastle-fulham/)
+- **When The Going Gets Tough…**: [Link](https://rokerreport.sbnation.com/opinion/111348/when-the-going-gets-tough)
+
+
 ### f1 (N/A, Sat, 25 Oct 2025 15:30:00 -0700)
 
 - **F1 Qualifying LIVE: Mexico City Grand Prix 2025 times, results, radio & updates**: [Link](https://www.bbc.com/sport/formula1/live/c79vx23l249t)
