@@ -1,3 +1,66 @@
+### kooora (N/A, Sun, 26 Oct 2025 09:00:00 -0700)
+
+- **باريس يعلن عن قرار استثنائي بشأن حكيمي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%AD%D9%83%D9%8A%D9%85%D9%8A/blt0a64781f1fffa07b)
+- **حكيمي: فلسفة المدرب إنريكي تناسبني**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%81%D9%84%D8%B3%D9%81%D8%A9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%AA%D9%86%D8%A7%D8%B3%D8%A8%D9%86%D9%8A-1645704.html)
+- **حكيمي: إذا حصلت على الكرة الذهبية لأفضل لاعب إفريقي فسيكون ذلك رائعاً – اليوم 24**: [Link](https://alyaoum24.com/1990959.html)
+
+
+### sports (N/A, Sun, 26 Oct 2025 09:00:00 -0700)
+
+- **Indiana, Vanderbilt and Virginia have inherited the college football world**: [Link](https://www.espn.com/college-football/story/_/page/gamedayfinal102525/college-football-week-9-highlights-top-plays-games-takeaways-2025)
+- **College Football Week 9 Winners and Losers: A Little Bit of Memphis and Nashville**: [Link](https://www.si.com/college-football/college-football-week-9-winners-losers-vanderbilt-memphis-tennessee)
+- **College football grades: Texas A&M earns 'A+' for crushing LSU, Oregon gets 'C-' on Week 9 report card**: [Link](https://www.cbssports.com/college-football/news/college-football-grades-texas-a-m-earns-a-for-crushing-lsu-oregon-gets-c-on-week-9-report-card/)
+
+
+### live score (N/A, Sun, 26 Oct 2025 09:00:00 -0700)
+
+- **Pro Kabaddi Play-in 1 Highlights: Haryana Steelers vs Jaipur Pink Panthers | October 25 | PKL Season 12**: [Link](https://www.prokabaddi.com/videos/pro-kabaddi-play-in-1-highlights-haryana-steelers-vs-jaipur-pink-panthers-october-25-pkl-season-12)
+- **PKL 2025 Play-offs LIVE SCORE UPDATES: Bengaluru vs Telugu underway; Patna beat Jaipur in Eliminator**: [Link](https://www.business-standard.com/sports/pro-kabaddi-league/pro-kabaddi-league-2025-play-offs-live-score-updates-kabaddi-online-score-jaipur-vs-patna-bengaluru-vs-telugu-125102600346_1.html)
+- **Rishank Devadiga Lauds Patna’s Defensive Brilliance, and Jaipur’s Complete Team Display**: [Link](https://www.deccanchronicle.com/sports/rishank-devadiga-lauds-patnas-defensive-brilliance-ayan-lohchabs-remarkable-form-and-jaipurs-complete-team-display-1912634)
+
+
+### bet365 (N/A, Sun, 26 Oct 2025 08:50:00 -0700)
+
+- **bet365 Bonus Code MLB "LSBonus" $200 for Game 2**: [Link](https://www.livescore.com/en/news/mlb/promos/bet365-bonus-code-mlb-lsbonus-usd200-for-game-2/)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Giants vs. Eagles**: [Link](https://nypost.com/2025/10/26/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-giants-vs-eagles/)
+- **BetMGM Bonus Code SI1500 Gets You up to $1,500 for NFL Week 8**: [Link](https://www.si.com/betting-promo/betmgm-bonus-code-si1500-gets-you-up-to-1-500-for-nfl-week-8-01k8bp71w7jh)
+
+
+### match (N/A, Sun, 26 Oct 2025 08:50:00 -0700)
+
+- **Sleeper Fantasy promo code CBSSPORTS: 100% deposit match up to $100 for NFL, NBA, NHL more**: [Link](https://www.cbssports.com/betting/news/sleeper-fantasy-promo-code-october-26-2025/)
+- **Sleeper Promo Code WTOP: Get $100 NFL Bonus for Week 8 Sunday Picks - WTOP News**: [Link](https://wtop.com/sports/2025/10/sleeper-promo-code-wtop-get-100-nfl-bonus-for-week-8-sunday-picks/)
+- **Underdog Promo Code FOXSPORTS: Play $5, Get $100**: [Link](https://www.foxsports.com/stories/betting/underdog-promo-code)
+
+
+### everton – tottenham (N/A, Sun, 26 Oct 2025 08:50:00 -0700)
+
+- **Everton set for drastic defensive change vs Tottenham as Merlin Rohl provides solution**: [Link](https://www.goodisonnews.com/2025/10/25/everton-set-for-drastic-defensive-change-vs-tottenham-as-merlin-rohl-provides-solution/)
+- **Preview: Everton host Thomas Frank’s Spurs**: [Link](https://www.fotmob.com/topnews/23609-preview-everton-host-thomas-franks-spurs?utm_source=fotmob)
+- **Sarr, Spence And Tel To Start | 4-2-3-1 Tottenham Hotspur Predicted Lineup Vs Everton**: [Link](https://onefootball.com/en/news/sarr-spence-and-tel-to-start-4-2-3-1-tottenham-hotspur-predicted-lineup-vs-everton-41856894)
+
+
+### kylian mbappé (N/A, Sun, 26 Oct 2025 08:50:00 -0700)
+
+- **Stats: Real Madrid talisman enjoys stellar goalscoring record against Barcelona**: [Link](https://madriduniversal.com/stats-real-madrid-talisman-enjoys-stellar-goalscoring-record-against-barcelona/)
+- **‘No Bigger Game’—Kylian Mbappe Fires El Clasico Rallying Cry for Real Madrid**: [Link](https://www.si.com/soccer/mbappe-fires-clasico-rallying-cry-for-real-madrid)
+- **'I'll motivate him' - Sergio Ramos sends message to red-hot Kylian Mbappe ahead of Real Madrid's crucial Clasico clash with Barcelona**: [Link](https://www.goal.com/en-gb/lists/sergio-ramos-message-kylian-mbappe-real-madrid-clasico-barcelona/blte762553de8e7de4f)
+
+
+### mbappe (N/A, Sun, 26 Oct 2025 08:50:00 -0700)
+
+- **Kylian Mbappe gets clear Ballon d'Or verdict from star who beat him to award**: [Link](https://www.mirror.co.uk/sport/football/news/kylian-mbappe-ballon-dor-madrid-36133035)
+- **Kylian Mbappe’s Real Madrid Move Assessed in Pursuit of Ballon d’Or**: [Link](https://www.el-balad.com/6745520)
+- **After his victory, Dembélé backs the 'Merengue' player for the Ballon d'Or**: [Link](https://sports.yahoo.com/article/victory-demb-l-backs-merengue-122500400.html)
+
+
+### match today (N/A, Sun, 26 Oct 2025 08:40:00 -0700)
+
+- **Real Madrid vs Barcelona LIVE: El Clasico score, stats & latest updates**: [Link](https://www.bbc.com/sport/football/live/cn7ev2x750jt)
+- **Why Was Real Madrid’s Penalty Overturned vs. Barcelona?**: [Link](https://www.si.com/soccer/why-real-madrid-penalty-overturned-barcelona-10-26-25)
+- **WATCH: Kylian Mbappe strikes first El Clasico blow as Real Madrid lead against Barcelona**: [Link](https://sports.yahoo.com/article/watch-kylian-mbappe-strikes-first-154200641.html)
+
+
 ### fcb (N/A, Sun, 26 Oct 2025 08:40:00 -0700)
 
 - **Why Was Real Madrid’s Penalty Overturned vs. Barcelona?**: [Link](https://www.si.com/soccer/why-real-madrid-penalty-overturned-barcelona-10-26-25)
