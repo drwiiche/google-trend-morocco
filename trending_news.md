@@ -1,3 +1,17 @@
+### lazio – juventus (N/A, Sun, 26 Oct 2025 12:20:00 -0700)
+
+- **LIVE Alle 20.45 Lazio-Juve: Sarri in emergenza, Tudor sceglie David davanti**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/26-10-2025/lazio-juve-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Serie A | Le formazioni ufficiali di Lazio-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-lazio-juventus-formazioni-ufficiali)
+- **Lazio-Juve, ufficiali: Yildiz in panchina, Tudor lancia la coppia David-Vlahovic**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/lazio-juventus-formazioni-ufficiali-yildiz-e-thuram-in-panchina-tudor-rivoluziona-la-squadra-e-si-affida-alla-coppia-david-vlahovic_sto23234989/story.shtml)
+
+
+### lyon – strasbourg (N/A, Sun, 26 Oct 2025 12:20:00 -0700)
+
+- **OL : pour Merah, Fonseca fait ses choix "en fonction de l’adversaire"**: [Link](https://www.olympique-et-lyonnais.com/ol-pour-merah-fonseca-fait-ses-choix-en-fonction-de-ladversaire,383428.html)
+- **PRONOS PARIS RMC Le pari du jour du 26 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-26-octobre-ligue-1_AN-202510250289.html)
+- **DIRECT - Ligue 1 : le Racing Club de Strasbourg en déplacement à Lyon, suivez le match sur ICI Alsace**: [Link](https://www.francebleu.fr/sports/football/direct-ligue-1-le-racing-club-de-strasbourg-en-deplacement-a-lyon-suivez-le-match-sur-ici-alsace-1731597)
+
+
 ### formula 1 (N/A, Sun, 26 Oct 2025 11:20:00 -0700)
 
 - **What are the tactical options for the Mexico City GP?**: [Link](https://www.formula1.com/en/latest/article/strategy-guide-what-are-the-tactical-options-for-the-mexico-city-grand-prix.NsABv5XP1EqmfSxJZu8BV)
