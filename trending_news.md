@@ -1,3 +1,45 @@
+### match aujourd'hui (N/A, Sun, 26 Oct 2025 08:20:00 -0700)
+
+- **Brest 0-3 PSG, Ligue 1 : résumé du match (25/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/brest-psg-live/675874)
+- **Ligue 1 : Vitinha sert le caviar pour Hakimi !**: [Link](https://www.beinsports.com/fr-fr/football/ligue-1/articles-video/ligue-1-vitinha-sert-le-caviar-pour-hakimi-2025-10-25)
+- **Stade Brestois - PSG : les notes du match**: [Link](https://www.footmercato.net/a2251343575709145224-stade-brestois-psg-les-notes-du-match)
+
+
+### yallakora (N/A, Sun, 26 Oct 2025 08:20:00 -0700)
+
+- **تعليق حماسي لكريستيانو رونالدو بعد الهدف الـ950**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%AD%D9%85%D8%A7%D8%B3%D9%8A-%D9%84%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D9%80950/bltd5b717f1f1b80016)
+- **رونالدو قاب قوسين من تحطيم رقم قياسي صمد أكثر من 60 عاما**: [Link](https://www.aljazeera.net/sport/2025/10/19/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%84%D8%A7%D8%B9%D8%A8%D9%88%D9%86-%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D8%B3%D9%86-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D9%86)
+- **رقم تاريخي.. رونالدو يقترب من الألفية**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D8%B1%D9%82%D9%85-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D9%84%D9%81%D9%8A%D8%A9-98542)
+
+
+### ألفارو كاريراس (N/A, Sun, 26 Oct 2025 08:20:00 -0700)
+
+- **53 ضربة.. برشلونة كابوس كورتوا الأزلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/53-%D8%B6%D8%B1%D8%A8%D8%A9--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%83%D8%A7%D8%A8%D9%88%D8%B3-%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D8%B2%D9%84%D9%8A/blt46bd52d0017fc534)
+- **مدرب برشلونة في الكلاسيكو : لامين سيتفوق على كاريراس**: [Link](https://hihi2.com/2025/10/25/p3442539.html)
+- **فشل في اختراقه.. ريال مدريد يمتلك "درعاً مضادة" للامين يامال**: [Link](https://www.eremnews.com/sports/dyi8pnp)
+
+
+### bet 365 (N/A, Sun, 26 Oct 2025 08:20:00 -0700)
+
+- **bet365 Bonus Code MLB "LSBonus" $200 for Game 2**: [Link](https://www.livescore.com/en/news/mlb/promos/bet365-bonus-code-mlb-lsbonus-usd200-for-game-2/)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Giants vs. Eagles**: [Link](https://nypost.com/2025/10/26/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-giants-vs-eagles/)
+- **BetMGM Bonus Code SI1500 Gets You up to $1,500 for NFL Week 8**: [Link](https://www.si.com/betting-promo/betmgm-bonus-code-si1500-gets-you-up-to-1-500-for-nfl-week-8-01k8bp71w7jh)
+
+
+### live (N/A, Sun, 26 Oct 2025 08:20:00 -0700)
+
+- **Wildcats Travel to Iowa State for Exhibition Tilt**: [Link](https://nusports.com/news/2025/10/25/mens-basketball-wildcats-travel-to-iowa-state-for-exhibition-tilt)
+- **‘We played awful’: Cyclones look to redeem themselves against Northwestern**: [Link](https://iowastatedaily.com/325182/sports/we-played-awful-cyclones-look-to-redeem-themselves-against-northwestern/)
+- **Where to watch Iowa State vs Northwestern basketball today, time, TV for exhibition game**: [Link](https://www.desmoinesregister.com/story/sports/college/iowa-state/basketball-mens/2025/10/26/iowa-state-northwestern-channel-time-tv-live-stream-info/86905119007/)
+
+
+### lille fc (N/A, Sun, 26 Oct 2025 08:20:00 -0700)
+
+- **Ayyoub Bouaddi Scout Report At LOSC Lille 2025/2026: The Next Great French Midfield Star? – Player Analysis**: [Link](https://totalfootballanalysis.com/player-analysis/ayyoub-bouaddi-scout-report-lille-2025-2026-analysis-tactics)
+- **How to Watch Lille OSC vs. FC Metz: Live Stream, TV Channel, Start Time | 10/26/2025**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/22/how-to-watch-lille-osc-vs-fc-metz-live-stream-tv-10-26-2025/86835535007/)
+- **Lille OSC vs. FC Metz Prediction, Picks, Live Odds - October 26**: [Link](https://www.bleachernation.com/picks/2025/10/25/lille-osc-vs-fc-metz-prediction-picks-live-odds-october-26/)
+
+
 ### yalla kora (N/A, Sun, 26 Oct 2025 08:10:00 -0700)
 
 - **كيفو يرد على انتقادات كونتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%8A%D9%81%D9%88-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D9%83%D9%88%D9%86%D8%AA%D9%8A/blt5ded2973ade3c8f8)
