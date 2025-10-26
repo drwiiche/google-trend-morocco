@@ -1,3 +1,31 @@
+### lamine yamal (N/A, Sun, 26 Oct 2025 08:00:00 -0700)
+
+- **Lamine Yamal Provokes Madrid Fans Ahead of El Clásico**: [Link](https://www.moroccoworldnews.com/2025/10/265151/lamine-yamal-provokes-madrid-fans-ahead-of-el-clasico/)
+- **Xabi Alonso Responds to Lamine Yamal’s El Clasico Barbs**: [Link](https://www.fotmob.com/embed/news/01k8g43hs8ma/xabi-alonso-responds-lamine-yamals-el-clasico-barbs)
+- **Vinicius vs Yamal — The duel stealing the spotlight in El Classico**: [Link](https://foot-africa.com/en/news/vinicius-vs-yamal-the-duel-stealing-the-spotlight-in-el-classico-934577/)
+
+
+### wolves – burnley (N/A, Sun, 26 Oct 2025 08:00:00 -0700)
+
+- **Wolverhampton Wanderers vs Burnley: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cew4kygwz22t)
+- **Maxime Esteve on Burnley’s start, changing systems, away troubles and Wolves game**: [Link](https://www.burnleyexpress.net/sport/football/maxime-esteve-on-burnleys-start-changing-systems-away-troubles-and-wolves-game-5374844)
+- **Arsenal and Man City level; Burnley take the lead at Wolves**: [Link](https://onefootball.com/en/news/arsenal-and-man-city-level-burnley-take-the-lead-at-wolves-41859809)
+
+
+### galatasaray – göztepe (N/A, Sun, 26 Oct 2025 07:50:00 -0700)
+
+- **CANLI | Galatasaray - Göztepe maçı Canlı Anlatım - GS Göztepe maçı kadroları, skoru ve istatistikleri (Süper Lig)**: [Link](https://www.fanatik.com.tr/galatasaray/live-galatasaray-goztepe-maci-canli-anlatim-gs-goztepe-maci-kadrolari-skoru-ve-istatistikleri-super-lig-2598771)
+- **Okan Buruk'tan sakatlık açıklaması! "İlkay ve Singo…"**: [Link](https://beinsports.com.tr/haber/okan-buruktan-sakatlik-aciklamasi-ilkay-ve-singo)
+- **Süper Lig'de günün VAR hakemleri açıklandı!**: [Link](https://www.sabah.com.tr/spor/futbol/2025/10/26/super-ligde-gunun-var-hakemleri-aciklandi)
+
+
+### مباراة ريال مدريد (N/A, Sun, 26 Oct 2025 07:30:00 -0700)
+
+- **فليك يخسر 50% من حلوله أمام ألونسو في الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AE%D8%B3%D8%B1-50-%D9%85%D9%86-%D8%AD%D9%84%D9%88%D9%84%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt696116a031e5cdea)
+- **رافينيا يغيب عن الكلاسيكو بين برشلونة وريال مدريد**: [Link](https://www.aljazeera.net/sport/2025/10/25/%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A8%D9%8A%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **تشكيلة برشلونة في مباراة اليوم ضد ريال مدريد**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1348943/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7-36)
+
+
 ### tod (N/A, Sun, 26 Oct 2025 07:40:00 -0700)
 
 - **Tabuthema Tod: So denken Vorarlberger über den letzten Weg**: [Link](https://www.vol.at/tabuthema-tod-so-denken-vorarlberger-ueber-den-letzten-weg/9763025)
