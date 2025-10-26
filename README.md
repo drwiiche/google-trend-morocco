@@ -1,3 +1,10 @@
+### score live (N/A, Sun, 26 Oct 2025 10:20:00 -0700)
+
+- **Eagles fans’ worst awaits Jaxson Dart — and he can’t wait for every second of it**: [Link](https://nypost.com/2025/10/22/sports/eagles-fans-worst-awaits-jaxson-dart-and-he-cant-wait-for-every-second-of-it/)
+- **San Francisco 49ers vs. Houston Texans Preview, Predictions, and How to Watch**: [Link](https://www.livescore.com/en/news/nfl/san-francisco-49ers-vs-houston-texans-preview-predictions-and-how-to-watch/)
+- **Where to watch Giants vs. Eagles free stream today**: [Link](https://www.masslive.com/tv/2025/10/where-to-watch-giants-vs-eagles-free-stream-today.html)
+
+
 ### roony bardghji (N/A, Sun, 26 Oct 2025 10:10:00 -0700)
 
 - **Marcus Rashford forming 'very close' bond with Barcelona youngster Roony Bardghji**: [Link](https://uk.sports.yahoo.com/news/marcus-rashford-forming-very-close-060741000.html)
