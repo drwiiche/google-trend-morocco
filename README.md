@@ -1,3 +1,17 @@
+### tod (N/A, Sun, 26 Oct 2025 07:40:00 -0700)
+
+- **Tabuthema Tod: So denken Vorarlberger über den letzten Weg**: [Link](https://www.vol.at/tabuthema-tod-so-denken-vorarlberger-ueber-den-letzten-weg/9763025)
+- **"Der Tod gehört zum Leben dazu"**: [Link](https://www.meinbezirk.at/mattersburg/c-lokales/der-tod-gehoert-zum-leben-dazu_a7758950)
+- **Helvetia-Studie: Tod bleibt Tabuthema – Vorsorgelücke bei Begräbniskosten groß**: [Link](https://www.asscompact.at/nachrichten/helvetia-studie-tod-bleibt-tabuthema-vorsorgeluecke-bei-begraebniskosten-gross)
+
+
+### classico today (N/A, Sun, 26 Oct 2025 07:40:00 -0700)
+
+- **Barcelona’s Raphinha expected to be sidelined for a further month after injury setback - The Athletic**: [Link](https://www.nytimes.com/athletic/6742880/2025/10/24/raphinha-injury-latest-barcelona-clasico/)
+- **Clásico approaching**: [Link](https://www.fcbarcelona.com/en/news/4389144/clasico-approaching)
+- **Barcelona key defender to start against Real Madrid despite missing two training sessions this week**: [Link](https://barcauniversal.com/barcelona-key-defender-to-start-against-real-madrid-despite-missing-two-training-sessions-this-week/)
+
+
 ### الريال ضد برشلونة (N/A, Sun, 26 Oct 2025 07:20:00 -0700)
 
 - **إعلان تشكيل الكلاسيكو بين ريال مدريد وبرشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blte37f6a6c38211e5b)
