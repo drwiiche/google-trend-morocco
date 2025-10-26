@@ -1,3 +1,10 @@
+### منة شلبي (N/A, Sun, 26 Oct 2025 03:40:00 -0700)
+
+- **منة شلبي تنشر صورتها مع زوجها.. وتعلق للمرة الأولى**: [Link](https://www.alarabiya.net/social-media/2025/10/26/%D9%85%D9%86%D8%A9-%D8%B4%D9%84%D8%A8%D9%8A-%D8%AA%D9%86%D8%B4%D8%B1-%D8%B5%D9%88%D8%B1%D8%AA%D9%87%D8%A7-%D9%85%D8%B9-%D8%B2%D9%88%D8%AC%D9%87%D8%A7-%D9%88%D8%AA%D8%B9%D9%84%D9%82-%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D9%88%D9%84%D9%89)
+- **هل تستعد منة شلبي للاحتفال بزفافها الشهر المقبل؟ أحمد الجنايني يكشف التفاصيل**: [Link](https://24.ae/article/925991/%D9%87%D9%84-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%85%D9%86%D8%A9-%D8%B4%D9%84%D8%A8%D9%8A-%D9%84%D9%84%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84-%D8%A8%D8%B2%D9%81%D8%A7%D9%81%D9%87%D8%A7-%D8%A7%D9%84%D8%B4%D9%87%D8%B1-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84-%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%AC%D9%86%D8%A7%D9%8A%D9%86%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84)
+- **بعد زواج منة شلبي.. تعرفوا إلى أبرز عزاب الوسط الفني**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1822693-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%B9%D8%B2%D8%A7%D8%A8-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%81%D9%86%D9%8A)
+
+
 ### liverpool vs (N/A, Sat, 25 Oct 2025 13:30:00 -0700)
 
 - **Brentford 3-2 Liverpool: Arne Slot must look close to home to solve Liverpool slump**: [Link](https://www.bbc.com/sport/football/articles/cwy7wk9p2x0o)
