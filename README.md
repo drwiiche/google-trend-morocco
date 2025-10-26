@@ -1,3 +1,15 @@
+### pedri (N/A, Sun, 26 Oct 2025 09:40:00 -0700)
+
+- **Laudrup: “Lamine es un fenómeno, pero Pedri es quien decide partidos en el Barça”**: [Link](https://as.com/futbol/primera/laudrup-lamine-es-un-fenomeno-pero-pedri-es-quien-decide-partidos-en-el-barca-f202510-n/)
+- **Mijatovic señala la lección aprendida del Real Madrid para el primer 'Clásico' del curso: "Sin duda que lo tienes en mente"**: [Link](https://cadenaser.com/nacional/2025/10/25/mijatovic-senala-la-leccion-aprendida-del-real-madrid-para-el-primer-clasico-del-curso-sin-duda-que-lo-tienes-en-mente-cadena-ser/)
+- **Una leyenda de LaLiga analiza el Clásico y da ventaja al Madrid**: [Link](https://www.mundiario.com/articulo/deportes/leyenda-laliga/20251025151119360542.html)
+
+
+### مبارة اليوم (N/A, Sun, 26 Oct 2025 09:00:00 -0700)
+
+
+
+
 ### justin trudeau (N/A, Sun, 26 Oct 2025 09:30:00 -0700)
 
 - **Justin Trudeau and Katy Perry make first public appearance as a couple**: [Link](https://www.thestar.com/news/canada/justin-trudeau-and-katy-perry-make-first-public-appearance-as-a-couple/article_ca0faa5f-44df-40bb-a97a-73af5210b132.html)
