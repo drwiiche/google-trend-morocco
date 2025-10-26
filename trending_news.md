@@ -1,3 +1,31 @@
+### lille – metz (N/A, Sun, 26 Oct 2025 06:30:00 -0700)
+
+- **PRONOS PARIS RMC Le pari sûr du 26 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-26-octobre-ligue-1_AN-202510250283.html)
+- **Victoire prédite par les supporters lillois, l’I.A plus prudente pour LOSC – FC Metz**: [Link](https://lepetitlillois.com/2025/10/26/victoire-predite-par-les-supporters-lillois-li-a-plus-prudente-pour-losc-fc-metz/)
+- **Olivier Giroud, le verdict tombe**: [Link](https://www.sports.fr/football/ligue-1/olivier-giroud-le-verdict-tombe-3-961749.html)
+
+
+### آرسنال ضد كريستال بالاس (N/A, Sun, 26 Oct 2025 06:30:00 -0700)
+
+- **آرسنال يحدد الطريقة المثالية لتحقيق حلم البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D9%88%D8%B3%D9%8A%D9%84%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%AD%D9%84%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/blt2435ee6c16499b52)
+- **«حصن منيع» و سلاح سري .. ذخيرة «المدافع» لإنهاء «سنوات الحرمان»**: [Link](https://www.albayan.ae/sports/international-stadiums/english-premier-league/754662)
+- **تشكيلة أرسنال اليوم أمام كريستال بالاس مع غيابات القائمة.. 5 إصابات تؤرق أرتيتا**: [Link](https://almashhad.com/article/218257510540304-sports/442022546582071-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D9%85%D8%B9-%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D9%85%D8%A9-5-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%A4%D8%B1%D9%82-%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7/)
+
+
+### bournemouth – nottm forest (N/A, Sun, 26 Oct 2025 06:30:00 -0700)
+
+- **Savona, Sangare, Jesus - Nottingham Forest predicted XI as Sean Dyche faces Bournemouth dilemma**: [Link](https://www.nottinghampost.com/sport/football/football-news/nottingham-forest-predicted-team-bournemouth-10597262)
+- **Iraola has 'no idea' how Dyche's Forest will approach trip to Cherries**: [Link](https://uk.news.yahoo.com/iraola-no-idea-dyches-forest-230000031.html)
+- **Fress-tration for CBS: Bournemouth fighter on boxing politics**: [Link](https://www.bournemouthecho.co.uk/sport/25567417.chris-billam-smith-will-not-fighting-roman-fress/)
+
+
+### jannik sinner (N/A, Sun, 26 Oct 2025 06:30:00 -0700)
+
+- **LIVE Sinner-Zverev 1-4 a Vienna. Il tedesco salva due palle break a Jannik**: [Link](https://www.gazzetta.it/Tennis/26-10-2025/sinner-zverev-live-finale-diretta-vienna.shtml)
+- **Tutto il tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-tracker-sinner-sfida-zverev-nella-finale-di-vienna-a-basilea-fokina-affronta-fonseca/4x15mrhD/)
+- **Rassegna stampa – Sinner ancora in finale, niente derby con Musetti**: [Link](https://www.ubitennis.com/blog/2025/10/26/rassegna-stampa-sinner-ancora-in-finale-niente-derby-con-musetti/)
+
+
 ### أستون فيلا ضد مان سيتي (N/A, Sun, 26 Oct 2025 06:20:00 -0700)
 
 - **ما القنوات الناقلة لمباراة أستون فيلا ومانشستر سيتي في الدوري الإنجليزي 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc018c70e5c9201c3)
