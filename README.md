@@ -1,3 +1,10 @@
+### yalla kora (N/A, Sun, 26 Oct 2025 08:10:00 -0700)
+
+- **كيفو يرد على انتقادات كونتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%8A%D9%81%D9%88-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D9%83%D9%88%D9%86%D8%AA%D9%8A/blt5ded2973ade3c8f8)
+- **نابولي يهزم إنتر ميلان ويستعيد صدارة الدوري الإيطالي**: [Link](https://www.aljazeera.net/sport/2025/10/25/%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9)
+- **مشادة بين لاوتارو مارتينيز وكونتي خلال مباراة إنتر ونابولي**: [Link](https://arabic.cnn.com/sport/article/2025/10/26/martinez-conte-napoli-inter-match)
+
+
 ### lamine yamal (N/A, Sun, 26 Oct 2025 08:00:00 -0700)
 
 - **Lamine Yamal Provokes Madrid Fans Ahead of El Clásico**: [Link](https://www.moroccoworldnews.com/2025/10/265151/lamine-yamal-provokes-madrid-fans-ahead-of-el-clasico/)
