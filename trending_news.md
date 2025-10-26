@@ -1,3 +1,29 @@
+### real madrid (N/A, Sun, 26 Oct 2025 07:20:00 -0700)
+
+- **Real Madrid - Barcelona, en directo: última hora del Clásico de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-barcelona-en-directo-ultima-hora-del-clasico-de-laliga-ea-sports-hoy-en-vivo-f202510-n/)
+- **La ventaja del Barça en el Bernabéu**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251026/1002557823/ventaja-barca-bernabeu.html)
+- **El Clásico y la línea roja de Mbappé**: [Link](https://www.marca.com/futbol/real-madrid/2025/10/25/clasico-linea-roja-mbappe.html)
+
+
+### مباريات اليوم (N/A, Sun, 26 Oct 2025 07:10:00 -0700)
+
+- **جدول مباريات اليوم الأحد 26 أكتوبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-26-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt31db77c8bde1433d)
+- **أبرز المباريات العربية والعالمية اليوم الأحد**: [Link](https://24.ae/article/926088/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF)
+- **مواعيد مباريات اليوم الأحد 26-11-2025 والقنوات الناقلة.. كلاسيكو ريال مدريد وبرشلونة ومهمة إفريقية لـ بيراميدز والمصري**: [Link](https://www.btolat.com/news/383351)
+
+
+### sassuolo – roma (N/A, Sun, 26 Oct 2025 07:10:00 -0700)
+
+
+
+
+### تشكيلة برشلونة اليوم (N/A, Sun, 26 Oct 2025 07:10:00 -0700)
+
+- **فليك يخسر 50% من حلوله أمام ألونسو في الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AE%D8%B3%D8%B1-50-%D9%85%D9%86-%D8%AD%D9%84%D9%88%D9%84%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt696116a031e5cdea)
+- **رافينيا يغيب عن الكلاسيكو بين برشلونة وريال مدريد**: [Link](https://www.aljazeera.net/sport/2025/10/25/%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A8%D9%8A%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **برشلونة وريال مدريد في تحدّي العقل والأرقام بين ألونسو وفليك**: [Link](https://www.alaraby.co.uk/sport/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%AA%D8%AD%D8%AF%D9%91%D9%8A-%D8%A7%D9%84%D8%B9%D9%82%D9%84-%D9%88%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D8%A8%D9%8A%D9%86-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%88%D9%81%D9%84%D9%8A%D9%83)
+
+
 ### cambriolage musée du louvre (N/A, Sun, 26 Oct 2025 07:00:00 -0700)
 
 - **EXCLUSIF PARIS MATCH - Cambriolage du Louvre : deux suspects interpellés, l'un tentait de fuir vers l'Algérie, l'autre au Mali**: [Link](https://www.parismatch.com/actu/faits-divers/exclusif-paris-match-cambriolage-du-louvre-un-suspect-interpelle-alors-quil-prenait-la-fuite-vers-lalgerie-259165)
