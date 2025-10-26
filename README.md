@@ -1,3 +1,10 @@
+### cambriolage musée du louvre (N/A, Sun, 26 Oct 2025 07:00:00 -0700)
+
+- **EXCLUSIF PARIS MATCH - Cambriolage du Louvre : deux suspects interpellés, l'un tentait de fuir vers l'Algérie, l'autre au Mali**: [Link](https://www.parismatch.com/actu/faits-divers/exclusif-paris-match-cambriolage-du-louvre-un-suspect-interpelle-alors-quil-prenait-la-fuite-vers-lalgerie-259165)
+- **INFO RTL - Cambriolage au Louvre : les bijoux de la galerie d'Apollon transférés à la Banque de France**: [Link](https://www.rtl.fr/actu/justice-faits-divers/info-rtl-cambriolage-au-louvre-les-bijoux-de-la-galerie-d-apollon-transferes-a-la-banque-de-france-7900558219)
+- **Cambriolage au Louvre : « Plusieurs interpellations » ont eu lieu samedi soir, l’un des suspects s’apprêtait à quitter le pays**: [Link](https://www.lemonde.fr/societe/article/2025/10/26/cambriolage-au-louvre-plusieurs-interpellations-ont-eu-lieu-samedi-soir-l-un-des-suspects-s-appretait-a-quitter-le-territoire-annonce-le-parquet_6649676_3224.html)
+
+
 ### lille – metz (N/A, Sun, 26 Oct 2025 06:30:00 -0700)
 
 - **PRONOS PARIS RMC Le pari sûr du 26 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-26-octobre-ligue-1_AN-202510250283.html)
