@@ -1,3 +1,10 @@
+### madrid vs barcelona (N/A, Sun, 26 Oct 2025 03:10:00 -0700)
+
+- **Real Madrid - Barcelona, en directo: última hora del Clásico de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-barcelona-en-directo-ultima-hora-del-clasico-de-laliga-ea-sports-hoy-en-vivo-f202510-n/)
+- **El Barça, a por el asalto del liderato en el Clásico ante el Madrid en el Bernabéu**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251026/1002557578/barca-asalto-liderato-clasico-madrid-bernabeu.html)
+- **XI combinado del Clásico – seleccionando a los mejores jugadores según su estado de forma actual**: [Link](https://tribuna.com/es/blogs/xi-combinado-del-clasico-seleccionando-a-los-mejores-jugador/)
+
+
 ### منة شلبي (N/A, Sun, 26 Oct 2025 03:40:00 -0700)
 
 - **منة شلبي تنشر صورتها مع زوجها.. وتعلق للمرة الأولى**: [Link](https://www.alarabiya.net/social-media/2025/10/26/%D9%85%D9%86%D8%A9-%D8%B4%D9%84%D8%A8%D9%8A-%D8%AA%D9%86%D8%B4%D8%B1-%D8%B5%D9%88%D8%B1%D8%AA%D9%87%D8%A7-%D9%85%D8%B9-%D8%B2%D9%88%D8%AC%D9%87%D8%A7-%D9%88%D8%AA%D8%B9%D9%84%D9%82-%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D9%88%D9%84%D9%89)
