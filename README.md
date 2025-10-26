@@ -1,3 +1,31 @@
+### لاتسيو ضد يوفنتوس (N/A, Sun, 26 Oct 2025 13:20:00 -0700)
+
+- **لاتسيو يسجل هدف التقدم مبكرا في يوفنتوس**: [Link](https://hihi2.com/2025/10/26/p3445504.html)
+- **التشكيلات المتوقعة لمباراة لاتسيو ويوفنتوس في الدوري الإيطالي**: [Link](https://blinksport.net/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D8%A7%D8%AA%D8%B3%D9%8A%D9%88-%D9%88%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A)
+- **لاتسيو ضد يوفنتوس: سارري ضد تيودور: المبارزة الساخنة السابقة والبديل في أولمبيكو**: [Link](https://voi.id/ar/sports/527308)
+
+
+### lazio vs juventus (N/A, Sun, 26 Oct 2025 13:20:00 -0700)
+
+- **Football Tracker: Lazio facing Juventus in big Serie A clash, Lyon hosting Strasbourg**: [Link](https://www.flashscore.com/news/football-tracker-lazio-facing-juventus-in-big-serie-a-clash-lyon-hosting-strasbourg/8QLdZZs9/)
+- **Danilo Cataldi vs. Juventus – Player props & odds to score a goal on October 26**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/26/danilo-cataldi-soccer-player-props-10-26-2025/86912302007/)
+- **Shot-stopping maestro Ivan Provedel faces Juventus challenge**: [Link](https://www.besoccer.com/new/shot-stopping-maestro-ivan-provedel-faces-juventus-challenge-1378506)
+
+
+### programme tv (N/A, Sun, 26 Oct 2025 13:10:00 -0700)
+
+- **GP du Mexique de F1 : la grille de départ, Leclerc et Hamilton en force, Oscar Piastri à la rue**: [Link](https://www.turbo.fr/actualite-automobile/gp-du-mexique-de-f1-la-grille-de-depart-leclerc-et-hamilton-en-force-oscar-piastri-la-rue-200920)
+- **Verstappen déjà résigné : "Peu importe ce que je fais au premier virage"**: [Link](https://fr.motorsport.com/f1/news/verstappen-resigne-mexico-premier-virage/10771319/)
+- **Helmut Marko tire à boulets rouges : "Piastri craque sous la pression"**: [Link](https://f1i.autojournal.fr/infos/red-bull/helmut-marko-tire-a-boulets-rouges-piastri-craque-sous-la-pression/)
+
+
+### أشرف حكيمي (N/A, Sun, 26 Oct 2025 13:10:00 -0700)
+
+- **باريس يعلن عن قرار استثنائي بشأن حكيمي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%AD%D9%83%D9%8A%D9%85%D9%8A/blt0a64781f1fffa07b)
+- **حكيمي: فلسفة المدرب إنريكي تناسبني**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%81%D9%84%D8%B3%D9%81%D8%A9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%AA%D9%86%D8%A7%D8%B3%D8%A8%D9%86%D9%8A-1645704.html)
+- **حكيمي: إذا حصلت على الكرة الذهبية لأفضل لاعب إفريقي فسيكون ذلك رائعاً – اليوم 24**: [Link](https://alyaoum24.com/1990959.html)
+
+
 ### rayo – deportivo alavés (N/A, Sun, 26 Oct 2025 12:30:00 -0700)
 
 - **Rayo Vallecano vs Alavés | LaLiga EA Sports 25-26**: [Link](https://rtvc.es/rayo-vallecano-vs-alaves-j10-laliga-ea-sports-25-26/)
