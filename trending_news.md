@@ -1,3 +1,10 @@
+### twente – ajax (N/A, Sun, 26 Oct 2025 04:30:00 -0700)
+
+- **Live Eredivisie | Ajax ook tegen FC Twente met Pasveer, later Feyenoord-PSV**: [Link](https://www.nu.nl/voetbal/6373736/live-eredivisie-ajax-ook-tegen-fc-twente-met-pasveer-later-feyenoord-psv.html)
+- **🔴 Ajax incasseert hele snelle tegengoal • AZ ontvangt FC Utrecht**: [Link](https://www.nhnieuws.nl/nieuws/353691/ajax-incasseert-hele-snelle-tegengoal-az-ontvangt-fc-utrecht)
+- **LIVE Eredivisie Herpakt Ajax zich in Eredivisie op bezoek bij FC Twente?**: [Link](https://www.telegraaf.nl/sport/voetbal/live-eredivisie-john-heitinga-houdt-tegen-twente-vast-aan-chelsea-basiself-pasveer-en-mcconnell-mogen-wederom-beginnen/100173940.html)
+
+
 ### madrid vs barcelona (N/A, Sun, 26 Oct 2025 03:10:00 -0700)
 
 - **Real Madrid - Barcelona, en directo: última hora del Clásico de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-barcelona-en-directo-ultima-hora-del-clasico-de-laliga-ea-sports-hoy-en-vivo-f202510-n/)
