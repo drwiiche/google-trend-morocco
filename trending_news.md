@@ -1,3 +1,10 @@
+### liverpool vs (N/A, Sat, 25 Oct 2025 13:30:00 -0700)
+
+- **Brentford 3-2 Liverpool: Arne Slot must look close to home to solve Liverpool slump**: [Link](https://www.bbc.com/sport/football/articles/cwy7wk9p2x0o)
+- **Liverpool player ratings as two 4/10 and seven 5/10 in Brentford defeat**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/liverpool-player-ratings-brentford-breaking-32750578)
+- **Brentford 3-2 Liverpool: Reds suffer fourth consecutive Premier League defeat as defence exposed again**: [Link](https://www.skysports.com/football/news/11669/13454966/brentford-3-2-liverpool-reds-suffer-fourth-consecutive-premier-league-defeat-as-defence-exposed-again)
+
+
 ### météo (N/A, Sat, 25 Oct 2025 22:50:00 -0700)
 
 - **Vers une semaine très pluvieuse et venteuse en France ? Découvrez les tendances !**: [Link](https://www.tameteo.com/actualites/previsions/vers-une-semaine-tres-pluvieuse-et-venteuse-en-france-decouvrez-les-tendances-risque-intemperie-automne.html)
