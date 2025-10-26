@@ -1,3 +1,17 @@
+### الريال ضد برشلونة (N/A, Sun, 26 Oct 2025 07:20:00 -0700)
+
+- **إعلان تشكيل الكلاسيكو بين ريال مدريد وبرشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blte37f6a6c38211e5b)
+- **اللاعبون الأعلى أجرا في كلاسيكو ريال مدريد وبرشلونة**: [Link](https://www.aljazeera.net/sport/2025/10/26/%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%88%D9%86-%D8%A7%D9%84%D8%A3%D8%B9%D9%84%D9%89-%D8%A3%D8%AC%D8%B1%D8%A7-%D9%81%D9%8A-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B1%D9%8A%D8%A7%D9%84)
+- **تشابي ألونسو: لن أرد على يامال**: [Link](https://www.hesport.com/%D8%AA%D8%B4%D8%A7%D8%A8%D9%8A-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%84%D9%86-%D8%A3%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-409803.html)
+
+
+### كلاسيكو ريال مدريد وبرشلونة 2025 (N/A, Sun, 26 Oct 2025 07:10:00 -0700)
+
+- **من التصفيق إلى الاستهجان.. يامال يلعب بالنار مع جماهير ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D9%82-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%87%D8%AC%D8%A7%D9%86--%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D9%84%D8%B9%D8%A8-%D8%A8%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D9%85%D8%B9-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/bltd5a680e7b8dfc295)
+- **لامين جمال نجم برشلونة يرفع سقف تحدي ريال مدريد قبل الكلاسيكو**: [Link](https://www.aljazeera.net/sport/2025/10/26/%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B1%D9%81%D8%B9-%D8%B3%D9%82%D9%81-%D8%AA%D8%AD%D8%AF%D9%8A)
+- **بعد تصريحاته "المسيئة".. بيكيه يلمح إلى رحيل يامال عن برشلونة**: [Link](https://www.alarabiya.net/sport/2025/10/25/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%A6%D8%A9-%D8%A8%D9%8A%D9%83%D9%8A%D9%87-%D9%8A%D9%84%D9%85%D8%AD-%D8%A7%D9%84%D9%89-%D8%B1%D8%AD%D9%8A%D9%84-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%B9%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
 ### real madrid (N/A, Sun, 26 Oct 2025 07:20:00 -0700)
 
 - **Real Madrid - Barcelona, en directo: última hora del Clásico de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-barcelona-en-directo-ultima-hora-del-clasico-de-laliga-ea-sports-hoy-en-vivo-f202510-n/)
