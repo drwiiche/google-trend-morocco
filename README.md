@@ -1,3 +1,24 @@
+### brahim diaz (N/A, Sun, 26 Oct 2025 10:30:00 -0700)
+
+- **Real Madrid: Is Brahim Diaz ready to overtake Franco Mastantuono?**: [Link](https://ca.sports.yahoo.com/news/real-madrid-brahim-diaz-ready-163000810.html)
+- **Brahim Diaz just worsened Real Madrid's El Clásico selection headache**: [Link](https://therealchamps.com/brahim-diaz-just-worsened-real-madrid-el-clasico-selection-headache)
+- **Real Madrid fringe star sends a message to Xabi Alonso ahead of El Clasico**: [Link](https://madriduniversal.com/real-madrid-fringe-star-sends-a-message-to-xabi-alonso-ahead-of-el-clasico/)
+
+
+### flash score (N/A, Sun, 26 Oct 2025 10:30:00 -0700)
+
+- **Bencic wins Pan Pacifiic Open for 10th career title**: [Link](https://www.espn.com/tennis/story/_/id/46728889/belinda-bencic-beats-linda-noskova-tokyo-win-10th-career-title)
+- **Belinda Bencic wins second WTA title since becoming a mother**: [Link](https://www.bbc.com/sport/tennis/articles/cddr28rddq9o)
+- **Bencic withstands Kenin; to face Noskova in Tokyo final after Rybakina withdraws**: [Link](https://www.wtatennis.com/news/4389504/bencic-withstands-kenin-to-face-noskova-in-tokyo-final-after-rybakina-withdraws)
+
+
+### auxerre – le havre (N/A, Sun, 26 Oct 2025 10:30:00 -0700)
+
+- **Kévin Danois blessé à une cuisse à l'échauffement avec Auxerre et remplacé par Elisha Owusu contre Le Havre**: [Link](https://www.lequipe.fr/Football/Actualites/Kevin-danois-blesse-a-l-echauffement-avec-auxerre-et-remplace-par-elisha-owusu-contre-le-havre/1604865)
+- **Football – Ligue 1. Alors, qui pour pallier l’absence de Lloris ? Le « onze » du HAC dévoilé**: [Link](https://www.paris-normandie.fr/id669471/article/2025-10-26/football-ligue-1-alors-qui-pour-pallier-labsence-de-lloris-le-onze-du-hac)
+- **Première pour Diomandé avec l'AJA face au Havre**: [Link](https://www.lyonne.fr/auxerre-89000/sports/premiere-pour-diomande-avec-l-aja-face-au-havre_14771834/)
+
+
 ### score live (N/A, Sun, 26 Oct 2025 10:20:00 -0700)
 
 - **Eagles fans’ worst awaits Jaxson Dart — and he can’t wait for every second of it**: [Link](https://nypost.com/2025/10/22/sports/eagles-fans-worst-awaits-jaxson-dart-and-he-cant-wait-for-every-second-of-it/)
