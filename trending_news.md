@@ -1,3 +1,10 @@
+### formula 1 (N/A, Sun, 26 Oct 2025 11:20:00 -0700)
+
+- **What are the tactical options for the Mexico City GP?**: [Link](https://www.formula1.com/en/latest/article/strategy-guide-what-are-the-tactical-options-for-the-mexico-city-grand-prix.NsABv5XP1EqmfSxJZu8BV)
+- **adidas para Bad Bunny x Mercedes-AMG F1 Mexico 2025**: [Link](https://www.mercedesamgf1.com/stories/explore-the-adidas-para-bad-bunny-x-mercedes-amg-petronas-f1-collection)
+- **Strategy corner: How can Piastri recover, and is Norris at threat?**: [Link](https://www.autosport.com/f1/news/strategy-corner-f1-mexico-gp/10771609/)
+
+
 ### f1 (N/A, Sun, 26 Oct 2025 11:30:00 -0700)
 
 - **What are the tactical options for the Mexico City GP?**: [Link](https://www.formula1.com/en/latest/article/strategy-guide-what-are-the-tactical-options-for-the-mexico-city-grand-prix.NsABv5XP1EqmfSxJZu8BV)
