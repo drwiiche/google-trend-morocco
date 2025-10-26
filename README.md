@@ -1,3 +1,24 @@
+### bein sport (N/A, Sun, 26 Oct 2025 08:30:00 -0700)
+
+- **Morocco’s Football Success Built on Two Decades of Royal Vision, Says Lekjaa**: [Link](https://www.moroccoworldnews.com/2025/10/265252/moroccos-football-success-built-on-two-decades-of-royal-vision-says-lekjaa/)
+- **Can Morocco turn its sporting achievements into an economic model? [Opinion]**: [Link](https://en.yabiladi.com/articles/details/179466/morocco-turn-sporting-achievements-into.html)
+- **Morocco is Football’s Next Global Powerhouse Says BeIN SPORTS**: [Link](https://www.moroccoworldnews.com/2025/10/265244/morocco-is-football-next-global-powerhouse-bein-sports/)
+
+
+### dazn (N/A, Sun, 26 Oct 2025 08:30:00 -0700)
+
+- **Parker 'felt fine' at time of stoppage vs. Wardley**: [Link](https://www.espn.com/boxing/story/_/id/46730784/joseph-parker-insists-was-fine-continue-boxing-vs-fabio-wardley)
+- **Fabio Wardley: What next for heavyweights Oleksandr Usyk, Anthony Joshua, Moses Itauma and Tyson Fury**: [Link](https://www.bbc.com/sport/boxing/articles/c9869mdl2gmo)
+- **Joseph Parker vs. Fabio Wardley fight predictions, odds, undercard, start time, where to watch, expert picks**: [Link](https://www.cbssports.com/boxing/news/joseph-parker-vs-fabio-wardley-fight-predictions-odds-undercard-start-time-where-to-watch-expert-picks/)
+
+
+### لا ليغا (N/A, Sun, 26 Oct 2025 08:00:00 -0700)
+
+- **إسبانيول يحتفل بالذكرى 125 لتأسيسه بتجاوز ليتشي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%A7%D9%84%D8%B0%D9%83%D8%B1%D9%89-125-%D9%84%D8%AA%D8%A7%D9%94%D8%B3%D9%8A%D8%B3%D9%87-%D8%A8%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D9%84%D9%8A%D8%AA%D8%B4%D9%8A/blt3e3bd8f673584089)
+- **فوز ثاني على التوالي لإسبانيول بحضور الهلالي**: [Link](https://www.almountakhab.com/node/13218904)
+- **الدوري الاسباني: اسبانيول يتقدم الى المركز الثالث بفوز صعب على التشي**: [Link](https://www.elsport.com/news/show/797753/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%8A%D8%AA%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D8%A8)
+
+
 ### match aujourd'hui (N/A, Sun, 26 Oct 2025 08:20:00 -0700)
 
 - **Brest 0-3 PSG, Ligue 1 : résumé du match (25/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/brest-psg-live/675874)
