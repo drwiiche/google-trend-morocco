@@ -1,3 +1,24 @@
+### roony bardghji (N/A, Sun, 26 Oct 2025 10:10:00 -0700)
+
+- **Marcus Rashford forming 'very close' bond with Barcelona youngster Roony Bardghji**: [Link](https://uk.sports.yahoo.com/news/marcus-rashford-forming-very-close-060741000.html)
+- **Rashford reveals his three closest friends at Barcelona**: [Link](https://www.pulsesports.ng/football/story/rashford-reveals-his-three-closest-friends-at-barcelona-2025102408254869539)
+- **Marcus Rashford forming 'very close' bond with Barcelona youngster behind the scenes**: [Link](https://www.express.co.uk/sport/football/2125616/Marcus-Rashford-Barcelona-Roony-Bardghji-friendship)
+
+
+### carvajal (N/A, Sun, 26 Oct 2025 10:10:00 -0700)
+
+- **Alineación confirmada del Real Madrid contra el Barcelona en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-confirmada-del-real-madrid-contra-el-barcelona-en-laliga-ea-sports-f202510-n/)
+- **Alineación del Real Madrid para el partido contra el Barça, Clásico de LALIGA EA Sports**: [Link](https://www.marca.com/futbol/real-madrid/2025/10/25/alineacion-probable-real-madrid-partido-barca-clasico-laliga-ea-sports.html)
+- **La última hora de la enfermería del Real Madrid: jugadores lesionados y dudas para el Clásico ante el Barça**: [Link](https://www.mundodeportivo.com/futbol/el-clasico-barca-real-madrid/20251026/1002557487/ultima-hora-enfermeria-real-madrid-jugadores-lesionados-dudas-clasico-barca.html)
+
+
+### مباريات ريال مدريد (N/A, Sun, 26 Oct 2025 10:10:00 -0700)
+
+- **سخرية لاعب برشلونة ما زالت "تؤلم" قلب فينيسيوس**: [Link](https://www.alarabiya.net/sport/2025/10/25/%D8%B3%D8%AE%D8%B1%D9%8A%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D8%A7-%D8%B2%D8%A7%D9%84%D8%AA-%D8%AA%D8%A4%D9%84%D9%85-%D9%82%D9%84%D8%A8-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-)
+- **لاعب ريال مدريد السابق قبل الكلاسيكو: نحتاج هالاند.. وأفضل رودريجو على فينيسيوس**: [Link](https://www.btolat.com/news/383373)
+- **البرازيليون في الكلاسيكو.. فينيسيوس يهدد نيمار ويتراجع أمام رافينيا**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%8A%D9%87/)
+
+
 ### osasuna – celta vigo (N/A, Sun, 26 Oct 2025 09:50:00 -0700)
 
 - **Previa | El Celta desafía el fortín de El Sadar**: [Link](https://onefootball.com/es/noticias/previa-el-celta-desafia-el-fortin-de-el-sadar-41859157)
