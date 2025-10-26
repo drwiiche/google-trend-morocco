@@ -1,3 +1,31 @@
+### fcb (N/A, Sun, 26 Oct 2025 08:40:00 -0700)
+
+- **Why Was Real Madrid’s Penalty Overturned vs. Barcelona?**: [Link](https://www.si.com/soccer/why-real-madrid-penalty-overturned-barcelona-10-26-25)
+- **Football Tracker: Mbappe opens the scoring in El Clasico, Arsenal leading & Man City behind**: [Link](https://www.flashscore.com/news/football-tracker-mbappe-opens-the-scoring-in-el-clasico-arsenal-leading-man-city-behind/8QLdZZs9/)
+- **Why did Real Madrid get penalty call ruled out after Vinicius Jr & Lamine Yamal moment - explained**: [Link](https://tribuna.com/en/blogs/why-did-real-madrid-get-penalty-call-ruled-out-after-viniciu/)
+
+
+### bein sports (N/A, Sun, 26 Oct 2025 08:40:00 -0700)
+
+- **تردد قناة beIN Sports HD 1 المحدث عبر قمر نايل سات مع بداية الموسم الرياضي الجديد لعام 2025**: [Link](https://harammissr.com/29441/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-hd-1-%D8%A7%D9%84%D9%85%D8%AD%D8%AF%D8%AB-%D8%B9%D8%A8%D8%B1-%D9%82%D9%85%D8%B1-%D9%86%D8%A7%D9%8A%D9%84-%D8%B3%D8%A7%D8%AA-%D9%85%D8%B9/)
+- **تردد قناة بين سبورت الرياضية الجديد.. تابع كل البطولات على شاشة واحدة بجودة عالية HD**: [Link](https://sa.tqwem.com/mix/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-2025/)
+- **جديد ترددات بي إن سبورت وأون تايم سبورت 2025 عشان تتابع أقوى البطولات العالمية والمحلية من غير تقطيع ولا تشويش**: [Link](https://gaya-sa.org/59775/%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AA%D8%B1%D8%AF%D8%AF%D8%A7%D8%AA-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D9%88%D8%A3%D9%88%D9%86-%D8%AA%D8%A7%D9%8A%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA/)
+
+
+### ko (N/A, Sun, 26 Oct 2025 08:40:00 -0700)
+
+- **KO of the Year?! Quillan Salkilld delivers scary head kick knockout, leaves Nasrat Haqparast unconscious and twitching | UFC 321 video**: [Link](https://sports.yahoo.com/article/ko-quillan-salkilld-delivers-scary-175938904.html)
+- **UFC 321 reportedly adds surprise "Fight of the Night" contender on very short notice**: [Link](https://www.si.com/fannation/mma/news/ufc-321-adds-surprise-fight-of-the-night-contender-haqparast-salkilld)
+- **‘That felt like watching a murder’: Pros react to Quillan Salkilld’s scary UFC 321 knockout**: [Link](https://www.mmafighting.com/ufc/451792/that-felt-like-watching-a-murder-pros-react-to-quillan-salkillds-scary-ufc-321-knockout)
+
+
+### strikeout (N/A, Sun, 26 Oct 2025 08:40:00 -0700)
+
+- **Steve Makinen’s MLB Betting Trends and Best Bets for Saturday, October 25**: [Link](https://vsin.com/mlb/steve-makinens-mlb-betting-trends-and-best-bets-for-saturday-october-25/)
+- **Best NRFI Bets Today: NRFI Picks for Saturday, October 25**: [Link](https://www.wsn.com/betting/best-nrfi-bets-today-blue-jays-roll-dodgers-in-game-1/)
+- **Yoshinobu Yamamoto Underdog MLB Picks Today, 10/25: Player Projections & Fantasy Picks**: [Link](https://www.fantasyalarm.com/articles/mlb/underdog-fantasy/yoshinobu-yamamoto-underdog-mlb-picks-today-1025-player-projections-fantasy-picks/181667)
+
+
 ### bein sport (N/A, Sun, 26 Oct 2025 08:30:00 -0700)
 
 - **Morocco’s Football Success Built on Two Decades of Royal Vision, Says Lekjaa**: [Link](https://www.moroccoworldnews.com/2025/10/265252/moroccos-football-success-built-on-two-decades-of-royal-vision-says-lekjaa/)
