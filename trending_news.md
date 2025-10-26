@@ -1,3 +1,17 @@
+### real madrid – fc barcelone composition (N/A, Sun, 26 Oct 2025 05:20:00 -0700)
+
+- **Deux absents dans le groupe du Real Madrid pour le Clasico**: [Link](https://www.footmercato.net/a6650697944445097121-deux-absents-dans-le-groupe-du-real-madrid-pour-le-clasico)
+- **Real Madrid récupère Carvajal et Alexander-Arnold avant le Clasico, Rüdiger toujours absent**: [Link](https://m.elbotola.com/fr/article/2025-10-24-20-15-858.html)
+- **Xabi Alonso : "Le Clásico est unique, nous voulions que le stade ait l'énergie des grands matchs"**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/conference-de-presse/xabi-alonso-rueda-de-prensa-25-10-2025)
+
+
+### kawasaki kle 500 (N/A, Sun, 26 Oct 2025 04:40:00 -0700)
+
+- **2026 Kawasaki KLE500 ABS First Look**: [Link](https://www.cycleworld.com/bikes/kawasaki-kle500-abs-first-look/)
+- **Kawasaki's New Affordable Adventure Bike Brings a Highly Versatile Moto Stateside for the First Time**: [Link](https://www.gearpatrol.com/motorcycles/2026-kawasaki-kle500-adventure-bike/)
+- **2026 Kawasaki KLE500 First Look Gallery**: [Link](https://www.motorcycle.com/bikes/new-model-preview/s-2026-kawasaki-kle500-first-look-gallery-44652778)
+
+
 ### موعد الكلاسيكو (N/A, Sun, 26 Oct 2025 04:10:00 -0700)
 
 - **إنجاز جوارديولا أم أنشيلوتي.. ماذا ينتظر برشلونة وريال مدريد في الكلاسيكو؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A7%D9%94%D9%85-%D8%A7%D9%94%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A--%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/bltfa722edca9db5019)
