@@ -1,3 +1,31 @@
+### arsenal – crystal palace (N/A, Sun, 26 Oct 2025 06:10:00 -0700)
+
+- **Arteta delivers Gabriel update ahead of Palace | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-delivers-gabriel-update-ahead-palace)
+- **Premier League's giant-killers head to the Emirates**: [Link](https://www.besoccer.com/new/premier-league-s-giant-killers-head-to-the-emirates-1378162)
+- **Gabriel Magalhaes present in Arsenal's pre-match walk ahead of Crystal Palace clash - reports**: [Link](https://tribuna.com/en/news/2025-10-26-gabriel-magalhaes-present-in-arsenals-prematch-walk-ahead-of-crystal-palace-clash-reports/)
+
+
+### aston villa – manchester city (N/A, Sun, 26 Oct 2025 06:10:00 -0700)
+
+- **We’re a different team to last Villa trip, says Pep**: [Link](https://www.mancity.com/news/mens/pep-pre-aston-villa-october-2025-embargo-written-63896914)
+- **Aston Villa vs Manchester City LIVE score, Premier League 2025-26: Match updates, streaming info, confirmed XIs**: [Link](https://sportstar.thehindu.com/football/epl/aston-villa-vs-manchester-city-live-score-premier-league-updates-goals-highlights-avl-v-mci/article70205019.ece)
+- **Preview: Manchester City visit unhappy hunting ground Villa Park**: [Link](https://www.fotmob.com/topnews/23597-preview-manchester-city-visit-unhappy-hunting-ground-villa-park)
+
+
+### feyenoord – psv eindhoven (N/A, Sun, 26 Oct 2025 06:10:00 -0700)
+
+- **Opstelling PSV: Dest keert terug in de basis, Bosz houdt vertrouwen in Til**: [Link](https://www.vi.nl/nieuws/opstelling-psv-dest-keert-terug-in-de-basis-bosz-houdt-vertrouwen-in-til)
+- **Bosz ziet voordeel richting topper: 'Was blij dat Feyenoord zo dik won'**: [Link](https://www.voetbalprimeur.nl/videos/1705130/bosz-blikt-vooruit-op-feyenoord-duel-en-ziet-kansen-na-overwinning.html)
+- **Persconferentie | ‘Ze moeten dat leuke voetbal zondag zo min mogelijk kunnen spelen’**: [Link](https://www.psv.nl/media/artikel/persconferentie-ze-moeten-dat-leuke-voetbal-zondag-zo-min-mogelijk-kunnen-spelen)
+
+
+### real madrid – barcelone (N/A, Sun, 26 Oct 2025 04:40:00 -0700)
+
+- **À quelle heure et sur quelle chaîne voir le Clasico entre le Real Madrid et le FC Barcelone en Liga ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-le-clasico-entre-le-real-madrid-et-le-fc-barcelone-en-liga/1604758)
+- **Real Madrid - FC Barcelone : les compositions probables**: [Link](https://www.footmercato.net/a2298509028995886789-real-madrid-fc-barcelone-les-compositions-probables)
+- **Real Madrid-FC Barcelone : entre Mbappé et Lamine Yamal, un match dans le match... qui bascule toujours dans le même sens**: [Link](https://www.lefigaro.fr/sports/football/espagne/real-madrid-fc-barcelone-entre-mbappe-et-yamal-un-match-dans-le-match-qui-bascule-toujours-dans-le-meme-sens-20251026)
+
+
 ### real madrid – fc barcelone composition (N/A, Sun, 26 Oct 2025 05:20:00 -0700)
 
 - **Deux absents dans le groupe du Real Madrid pour le Clasico**: [Link](https://www.footmercato.net/a6650697944445097121-deux-absents-dans-le-groupe-du-real-madrid-pour-le-clasico)
