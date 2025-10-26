@@ -1,3 +1,10 @@
+### fiorentina – bologne (N/A, Sun, 26 Oct 2025 10:40:00 -0700)
+
+- **DIRECT. Fiorentina-Bologne (Serie A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/fiorentina-bologne-live/673044)
+- **Fiorentina – Bologne billets | Achat pour le Derby dell’Appennino à Florence**: [Link](https://karlobag.eu/fr/billets/football/fiorentina---bologna-ulaznice-billets-achat-pour-le-derby-dell-appennino-au-stadio-artemio-franchi-florence-d48bv)
+- **Serie A : Fiorentina - Bologne en direct, à quelle heure et sur quelle chaîne ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-serie-a-fiorentina-bologne-en-direct-a-quelle-heure-et-sur-quelle-chaine-ij-499861.html)
+
+
 ### brahim diaz (N/A, Sun, 26 Oct 2025 10:30:00 -0700)
 
 - **Real Madrid: Is Brahim Diaz ready to overtake Franco Mastantuono?**: [Link](https://ca.sports.yahoo.com/news/real-madrid-brahim-diaz-ready-163000810.html)
