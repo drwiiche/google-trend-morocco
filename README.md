@@ -1,3 +1,24 @@
+### jude bellingham (N/A, Sun, 26 Oct 2025 09:20:00 -0700)
+
+- **Real Madrid vs Barcelona: Can Jude Bellingham make statement in El Clasico with English sub-plot**: [Link](https://www.bbc.com/sport/football/articles/cd9kl7np3dvo)
+- **Football Daily | El clásico is back with an English twist to a game thankfully on Spanish soil**: [Link](https://www.theguardian.com/football/2025/oct/24/el-clasico-real-madrid-barcelona-english-twist-spanish-soil-football-daily-newsletter)
+- **Jude Bellingham fires out warning to Marcus Rashford and Barcelona ahead of El Clasico**: [Link](https://www.goal.com/en-gb/lists/jude-bellingham-warning-marcus-rashford-real-madrid-barcelona-el-clasico/blt8bab48f19924f856)
+
+
+### bein sport live (N/A, Sun, 26 Oct 2025 09:00:00 -0700)
+
+- **'This defeat is on me': Benjamin Pavard apologizes to Marseille fans after disasterclass against Lens**: [Link](https://tribuna.com/en/blogs/this-defeat-is-on-me-benjamin-pavard-apologizes-to-marseille/)
+- **Lens claim victory to deal a blow to Marseille's title challenge**: [Link](https://www.flashscore.com/news/soccer-ligue-1-lens-claim-victory-to-deal-a-blow-to-marseille-s-title-challenge/p8rhOUj5/)
+- **Adrien Thomasson vs. Olympique Marseille – Player props & odds to score a goal on October 25**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/25/adrien-thomasson-soccer-player-props-10-25-2025/86892999007/)
+
+
+### رياضة (N/A, Sun, 26 Oct 2025 08:40:00 -0700)
+
+- **Fantasy basketball picks and betting tips: Four streamers to add, over bet for Wemby**: [Link](https://www.espn.com/fantasy/basketball/story/_/id/46702098/fantasy-basketball-tips-nba-betting-odds-picks-bets-friday-october-24)
+- **3 Best NBA Player Prop Bets for Friday 10/24/25**: [Link](https://www.fanduel.com/research/3-best-nba-player-prop-bets-for-friday-10-24-25)
+- **NBA odds, picks, predictions: This basketball parlay returns nearly +600 on Friday**: [Link](https://www.cbssports.com/nba/news/nba-odds-picks-parlay-best-bets-for-friday-oct-24/)
+
+
 ### kooora (N/A, Sun, 26 Oct 2025 09:00:00 -0700)
 
 - **باريس يعلن عن قرار استثنائي بشأن حكيمي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%AD%D9%83%D9%8A%D9%85%D9%8A/blt0a64781f1fffa07b)
