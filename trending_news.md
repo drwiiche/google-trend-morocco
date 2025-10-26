@@ -1,3 +1,10 @@
+### météo (N/A, Sat, 25 Oct 2025 22:50:00 -0700)
+
+- **Vers une semaine très pluvieuse et venteuse en France ? Découvrez les tendances !**: [Link](https://www.tameteo.com/actualites/previsions/vers-une-semaine-tres-pluvieuse-et-venteuse-en-france-decouvrez-les-tendances-risque-intemperie-automne.html)
+- **Météo dimanche 26 octobre : ressenti hivernal sous les giboulées, le vent et la neige en montagne**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-10-25/meteo-dimanche-26-octobre-ressenti-hivernal-sous-les-giboulees-le-vent-et-la-neige-en-montagne-82529)
+- **Météo semaine : embellie temporaire mardi avant le retour d'un temps radouci mais agité**: [Link](https://www.meteoconsult.fr/actualites-meteo/2025-10-21/82318-meteo-semaine-embellie-temporaire-mardi-avant-le-retour-d-un-temps-radouci-mais-agite)
+
+
 ### الطقس (N/A, Sat, 25 Oct 2025 22:50:00 -0700)
 
 - **توقعات أحوال الطقس.. نزول زخات رعدية بالأطلسين الكبير والمتوسط**: [Link](https://ar.telquel.ma/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%AA%D8%B4%D9%83%D9%84-%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D8%AC%D8%AF/)
