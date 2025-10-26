@@ -1,3 +1,10 @@
+### rayo – deportivo alavés (N/A, Sun, 26 Oct 2025 12:30:00 -0700)
+
+- **Rayo Vallecano vs Alavés | LaLiga EA Sports 25-26**: [Link](https://rtvc.es/rayo-vallecano-vs-alaves-j10-laliga-ea-sports-25-26/)
+- **Iñigo Pérez: "Soy feliz en Vallecas, lo que tengo aquí no lo encontraré en otro sitio"**: [Link](https://www.marca.com/futbol/rayo/2025/10/25/inigo-perez-feliz-vallecas-aqui-encontrare-sitio.html)
+- **Coudet: «Estamos listos» para el partido de Vallecas**: [Link](https://nortexpres.com/coudet-estamos-listos-para-el-partido-de-vallecas/)
+
+
 ### lazio – juventus (N/A, Sun, 26 Oct 2025 12:20:00 -0700)
 
 - **LIVE Alle 20.45 Lazio-Juve: Sarri in emergenza, Tudor sceglie David davanti**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/26-10-2025/lazio-juve-live-risultato-e-gol-in-diretta-serie-a.shtml)
