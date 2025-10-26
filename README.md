@@ -1,3 +1,10 @@
+### olympiacos vs aek athens (N/A, Sun, 26 Oct 2025 13:30:00 -0700)
+
+- **Olympiacos and AEK striving to impress in huge derby**: [Link](https://neoskosmos.com/en/2025/10/25/sport/football/olympiacos-and-aek-striving-to-impress-in-huge-derby/)
+- **Olympiacos, AEK Battle for Supremacy in Crucial Derby Showdown**: [Link](https://www.el-balad.com/6745709)
+- **IFFHS News**: [Link](https://www.iffhs.com/posts/4701)
+
+
 ### لاتسيو ضد يوفنتوس (N/A, Sun, 26 Oct 2025 13:20:00 -0700)
 
 - **لاتسيو يسجل هدف التقدم مبكرا في يوفنتوس**: [Link](https://hihi2.com/2025/10/26/p3445504.html)
