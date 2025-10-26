@@ -1,3 +1,10 @@
+### heure maroc (N/A, Sat, 25 Oct 2025 18:40:00 -0700)
+
+- **Changement d’heure : pourquoi le passage à l’heure d’hiver est programmé à 3 heures du matin**: [Link](https://www.larepubliquedespyrenees.fr/societe/vie-quotidienne/heure/changement-d-heure-pourquoi-le-passage-a-l-heure-d-hiver-est-programme-a-3-heures-du-matin-26460368.php)
+- **Ni utile ni bon pour la santé: pourquoi est-il si compliqué de se débarrasser du changement d'heure?**: [Link](https://www.bfmtv.com/societe/ni-utile-ni-bon-pour-la-sante-pourquoi-est-il-si-complique-de-se-debarrasser-du-changement-d-heure_AV-202510250035.html)
+- **Heure d’été, heure d’hiver, remettre les pendules à l’heure**: [Link](https://fr.le360.ma/societe/heure-dete-heure-dhiver-remettre-les-pendules-a-lheure_G7FD6D6JQFEODAWQC6BGOJCKWE/)
+
+
 ### heure france (N/A, Sat, 25 Oct 2025 18:10:00 -0700)
 
 - **Changement d’heure : pourquoi le passage à l’heure d’hiver est programmé à 3 heures du matin**: [Link](https://www.larepubliquedespyrenees.fr/societe/vie-quotidienne/heure/changement-d-heure-pourquoi-le-passage-a-l-heure-d-hiver-est-programme-a-3-heures-du-matin-26460368.php)
