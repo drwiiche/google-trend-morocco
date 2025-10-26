@@ -1,3 +1,17 @@
+### osasuna – celta vigo (N/A, Sun, 26 Oct 2025 09:50:00 -0700)
+
+- **Previa | El Celta desafía el fortín de El Sadar**: [Link](https://onefootball.com/es/noticias/previa-el-celta-desafia-el-fortin-de-el-sadar-41859157)
+- **Osasuna - Celta en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-ea-sports/osasuna-celta/2025/10/26/01_0101_20251026_450_176-directo.html)
+- **Lisci: “El Celta tiene un talento tremendo arriba, de primer nivel”**: [Link](https://www.atlantico.net/celtismo/lisci-celta-talento-tremendo-primer_1_20251026-4031687.html)
+
+
+### nicki nicole (N/A, Sun, 26 Oct 2025 09:50:00 -0700)
+
+- **Nicki Nicole: I want to be a mother — Lamine Yamal's girlfriend addresses pregnancy rumours**: [Link](https://www.pulsesports.ng/football/story/nicki-nicole-i-want-to-be-a-mother-lamine-yamals-girlfriend-addresses-pregnancy-rumours-2025102600180321433)
+- **Nicki Nicole Pregnancy Rumors Debunked Amid Lamine Yamal Speculations**: [Link](https://emegypt.net/1022842)
+- **Is Nicki Nicole pregnant? Lamine Yamal baby claim debunked as rumors erupt online**: [Link](https://www.primetimer.com/news/is-nicki-nicole-pregnant-lamine-yamal-baby-claim-debunked-as-rumors-erupt-online)
+
+
 ### pedri (N/A, Sun, 26 Oct 2025 09:40:00 -0700)
 
 - **Laudrup: “Lamine es un fenómeno, pero Pedri es quien decide partidos en el Barça”**: [Link](https://as.com/futbol/primera/laudrup-lamine-es-un-fenomeno-pero-pedri-es-quien-decide-partidos-en-el-barca-f202510-n/)
