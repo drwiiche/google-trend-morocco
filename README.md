@@ -1,3 +1,24 @@
+### موعد الكلاسيكو (N/A, Sun, 26 Oct 2025 04:10:00 -0700)
+
+- **إنجاز جوارديولا أم أنشيلوتي.. ماذا ينتظر برشلونة وريال مدريد في الكلاسيكو؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A7%D9%94%D9%85-%D8%A7%D9%94%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A--%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/bltfa722edca9db5019)
+- **اللاعبون الأعلى أجرا في كلاسيكو ريال مدريد وبرشلونة**: [Link](https://www.aljazeera.net/sport/2025/10/26/%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%88%D9%86-%D8%A7%D9%84%D8%A3%D8%B9%D9%84%D9%89-%D8%A3%D8%AC%D8%B1%D8%A7-%D9%81%D9%8A-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B1%D9%8A%D8%A7%D9%84)
+- **برشلونة وريال مدريد... تشكيلة الكلاسيكو الأغلى تاريخياً**: [Link](https://www.alaraby.co.uk/sport/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%A3%D8%BA%D9%84%D9%89-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A7%D9%8B)
+
+
+### real vs barca (N/A, Sun, 26 Oct 2025 02:50:00 -0700)
+
+- **El Clasico: When and How to Watch FC Barcelona Vs Real Madrid**: [Link](https://www.moroccoworldnews.com/2025/10/265230/el-clasico-when-and-how-to-watch-fc-barcelona-vs-real-madrid/)
+- **Three key battles that could swing El Clasico in Barcelona’s favour**: [Link](https://barcauniversal.com/three-key-battles-that-could-swing-el-clasico-in-barcelonas-favour/)
+- **The 10 top scorers in the history of the Clásico Real Madrid – FC Barcelona**: [Link](https://foot-africa.com/en/news/the-10-top-scorers-in-the-history-of-the-clasico-real-madrid-fc-barcelona-935105/)
+
+
+### طقس طنجة (N/A, Sat, 25 Oct 2025 23:10:00 -0700)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-33-1645641.html)
+- **توقعات أحوال الطقس.. نزول زخات رعدية بالأطلسين الكبير والمتوسط**: [Link](https://ar.telquel.ma/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%AA%D8%B4%D9%83%D9%84-%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D8%AC%D8%AF/)
+- **هام للمغاربة: تقلبات جوية وانخفاض تدريجي في درجات الحرارة ابتداء من الأسبوع المقبل**: [Link](https://ar.le360.ma/societe/YQQ6J6RLVVHWRNBH6EIAXWS6QI/)
+
+
 ### clasico (N/A, Sun, 26 Oct 2025 04:40:00 -0700)
 
 - **Real Madrid - Barcelona, en directo: última hora del Clásico de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-barcelona-en-directo-ultima-hora-del-clasico-de-laliga-ea-sports-hoy-en-vivo-f202510-n/)
