@@ -1,3 +1,10 @@
+### f (N/A, Sun, 26 Oct 2025 18:50:00 -0700)
+
+- **Navy loses two aircraft from USS Nimitz aircraft carrier within 30 minutes**: [Link](https://www.politico.com/news/2025/10/26/navy-loses-two-aircraft-from-uss-nimitz-aircraft-carrier-within-30-minutes-00623503)
+- **Navy helicopter, fighter jet both go down in South China Sea: Navy**: [Link](https://abcnews.go.com/International/navy-helicopter-fighter-jet-south-china-sea-navy/story?id=126884335)
+- **US Navy helicopter and fighter jet crash in separate incidents in the South China Sea**: [Link](https://www.cnn.com/2025/10/26/politics/navy-aircraft-crash-south-china-sea)
+
+
 ### marca (N/A, Sun, 26 Oct 2025 11:00:00 -0700)
 
 - **A report has been released confirming that referees helped Mahomes' Chiefs win games**: [Link](https://www.marca.com/en/nfl/kansas-city-chiefs/2025/10/26/68fe305222601d76378b4583.html)
