@@ -1,3 +1,10 @@
+### gaziantep – fenerbahçe (N/A, Mon, 27 Oct 2025 09:20:00 -0700)
+
+- **GAZİANTEP FK'NİN 11'İ BELLİ OLDU**: [Link](https://www.cnnturk.com/spor/futbol/live-gaziantep-fk-fenerbahce-maci-bein-sports-1-canli-izle-gaziantep-fk-fenerbahce-maci-bein-sports-1-bedava-izle-gaziantep-fk-2352451)
+- **Süper Ligin 10. haftasında VAR hakemleri belli oldu**: [Link](https://www.saraymedya.com/haber/super-ligin-10-haftasinda-var-hakemleri-belli-oldu_209723/)
+- **Domenico Tedesco'dan kadro tercihi açıklaması! "Geride kaldı"**: [Link](https://beinsports.com.tr/haber/domenico-tedescodan-kadro-tercihi-aciklamasi-geride-kaldi)
+
+
 ### real madrid fc barcelone clasico (N/A, Sun, 26 Oct 2025 14:00:00 -0700)
 
 - **La afición sentencia: el culpable del jaleo del Clásico y la lección de Xabi Alonso para destrozar a Flick**: [Link](https://www.marca.com/futbol/primera-division/2025/10/27/aficion-sentencia-culpable-jaleo-clasico-leccion-xabi-alonso-destrozar-flick.html)
