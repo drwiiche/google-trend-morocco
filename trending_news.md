@@ -1,3 +1,10 @@
+### iam (N/A, Mon, 27 Oct 2025 06:50:00 -0700)
+
+- **IAM Union Mourns Passing of Retired Midwest Territory General Vice President Steve Galloway**: [Link](https://www.goiam.org/news/iam-union-mourns-passing-of-retired-midwest-territory-general-vice-president-steve-galloway/)
+- **IAM District 11 at the National Education Fair IAMAW**: [Link](https://iamaw.ca/iam-district-11-at-the-national-education-fair/)
+- **US Boeing workers continue midwest strike after rejecting latest contract offer**: [Link](https://www.theguardian.com/us-news/2025/oct/26/boeing-workers-strike-midwest-reject-contract)
+
+
 ### manchester city (N/A, Mon, 27 Oct 2025 03:40:00 -0700)
 
 - **Manchester City and Spurs amongst five after Villa star**: [Link](https://ca.sports.yahoo.com/news/manchester-city-spurs-amongst-five-075000933.html)
