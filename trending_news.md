@@ -1,3 +1,17 @@
+### goud (N/A, Mon, 27 Oct 2025 01:00:00 -0700)
+
+- **Waarom volgende week cruciaal wordt voor Bitcoin – ‘zet je schrap’**: [Link](https://newsbit.nl/?p=719716)
+- **Het ergste lijkt voorbij, koersen kunnen weer stijgen**: [Link](https://nieuws.btcdirect.eu/ergste-voorbij-koersen-stijgen/)
+- **Bitcoins koersdoel van $150 zorgt voor opwinding, maar Ozak AI-voorspelling voedt FOMO**: [Link](https://financefeeds.com/nl/bitcoins-150k-target-creates-buzz-but-ozak-ai-prediction-fuels-fomo/)
+
+
+### حالة الطقس (N/A, Sun, 26 Oct 2025 23:50:00 -0700)
+
+- **«أحكموا غلق النوافذ ليلا».. بيان مهم بشأن حالة الطقس اليوم: الصغرى تُسجل 10 مئوية**: [Link](https://www.almasryalyoum.com/news/details/3585476)
+- **تغيرات مفاجئة وبرودة خلال الساعات المقبلة .. الأصاد تكشف توقعات حالة الطقس اليوم الاثنين ومناطق هطول الأمطار**: [Link](https://www.elzmannews.com/514516)
+- **أجواء خريفية وتقلبات جوية .. الأرصاد تكشف عن طقس الـ5 أيام المقبلة حتى نهاية أكتوبر 2025**: [Link](https://zahraa.mr/6024879/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%AE%D8%B1%D9%8A%D9%81%D9%8A%D8%A9-%D9%88%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D9%83%D8%B4/)
+
+
 ### طقس (N/A, Sun, 26 Oct 2025 23:50:00 -0700)
 
 - **"الأرصاد": طقس معتدل على الساحل وصحو في البحر الليلة**: [Link](https://marsalqatar.qa/post/77798/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B7%D9%82%D8%B3-%D9%85%D8%B9%D8%AA%D8%AF%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D9%88)
