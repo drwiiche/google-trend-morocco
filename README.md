@@ -1,3 +1,10 @@
+### atletico madrid (N/A, Mon, 27 Oct 2025 13:30:00 -0700)
+
+- **'I have no doubt that Baena is a game-changer'**: [Link](https://www.besoccer.com/new/i-have-no-doubt-that-baena-is-a-game-changer-1378940)
+- **Simeone urges Atleti to improve ahead of Betis clash**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles-video/simeone-urges-atleti-to-improve-ahead-of-betis-clash-2025-10-26)
+- **Pablo Barrios Rivas vs. Real Betis – Player props & odds to score a goal on October 27**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/27/pablo-barrios-rivas-soccer-player-props-10-27-2025/86924124007/)
+
+
 ### noah dettwiler (N/A, Mon, 27 Oct 2025 13:10:00 -0700)
 
 - **«Ich werde das nie verstehen»: Jetzt wird Kritik an der Sicherheit im Töff-Zirkus laut**: [Link](https://www.tagesanzeiger.ch/unfall-von-noah-dettwiler-motogp-fahrer-fordern-regel-zurueck-510877575790)
