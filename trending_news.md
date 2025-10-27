@@ -1,3 +1,10 @@
+### توكل كرمان (N/A, Mon, 27 Oct 2025 06:00:00 -0700)
+
+- **شكاية ضد توكل كرمان بتهمة التحريض**: [Link](https://www.hespress.com/%D8%B4%D9%83%D8%A7%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%AA%D9%88%D9%83%D9%84-%D9%83%D8%B1%D9%85%D8%A7%D9%86-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B1%D9%8A%D8%B6-1646140.html)
+- **بتهمة التحريض على الإرهاب.. نادي المحامين بالمغرب يقاضي توكل كرمان بتركيا**: [Link](https://ar.hibapress.com/details-669590.html)
+- **وصفها بـ"حمالة الحطب".. "تشيكيطو" يفضح حقيقة "توكل كرمان" التي جندتها الجزائر ضد المغرب مقابل ملايين الدولارات**: [Link](https://www.akhbarona.com/world/415201.html)
+
+
 ### iam (N/A, Mon, 27 Oct 2025 06:50:00 -0700)
 
 - **IAM Union Mourns Passing of Retired Midwest Territory General Vice President Steve Galloway**: [Link](https://www.goiam.org/news/iam-union-mourns-passing-of-retired-midwest-territory-general-vice-president-steve-galloway/)
