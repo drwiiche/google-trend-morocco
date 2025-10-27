@@ -1,3 +1,10 @@
+### nexperia (N/A, Mon, 27 Oct 2025 09:00:00 -0700)
+
+- **VW's Lies urges quick diplomatic solution to Nexperia dispute**: [Link](https://www.reuters.com/world/asia-pacific/vws-lies-urges-quick-diplomatic-solution-nexperia-dispute-2025-10-27/)
+- **Volkswagen Says Loss of Chip Supply Could Hit Production**: [Link](https://www.nytimes.com/2025/10/23/business/volkswagen-chips-china-nexperia.html)
+- **Nexperia's China parent Wingtech declares cash-flow risk despite massive 280% profit surge - car production shutdowns loom as Dutch state tightens grip**: [Link](https://www.tomshardware.com/tech-industry/semiconductors/wingtech-flags-nexperia-cash-flow-risk-despite-q3-profit-surge)
+
+
 ### porto fc (N/A, Mon, 27 Oct 2025 15:00:00 -0700)
 
 - **AZ Alkmaar 1-0 S Bratislava (23 Oct, 2025) Final Score**: [Link](https://www.espn.in/football/match/_/gameId/757997)
