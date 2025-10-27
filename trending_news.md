@@ -1,3 +1,10 @@
+### طقس (N/A, Sun, 26 Oct 2025 23:50:00 -0700)
+
+- **"الأرصاد": طقس معتدل على الساحل وصحو في البحر الليلة**: [Link](https://marsalqatar.qa/post/77798/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B7%D9%82%D8%B3-%D9%85%D8%B9%D8%AA%D8%AF%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D9%88)
+- **رئيس مجلس الوزراء يهنئ المستشار النمساوي**: [Link](https://al-sharq.com/article/26/10/2025/%D8%B1%D8%A6%D9%8A%D8%B3-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D9%8A%D9%87%D9%86%D8%A6-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D9%85%D8%B3%D8%A7%D9%88%D9%8A-1)
+- **الأرصاد الجوية تحذر من رؤية أفقية متدنية**: [Link](https://www.raya.com/2025/10/23/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B1%D8%A4%D9%8A%D8%A9-%D8%A3%D9%81%D9%82%D9%8A%D8%A9-%D9%85%D8%AA%D8%AF%D9%86%D9%8A%D8%A9)
+
+
 ### f (N/A, Sun, 26 Oct 2025 18:50:00 -0700)
 
 - **Navy loses two aircraft from USS Nimitz aircraft carrier within 30 minutes**: [Link](https://www.politico.com/news/2025/10/26/navy-loses-two-aircraft-from-uss-nimitz-aircraft-carrier-within-30-minutes-00623503)
