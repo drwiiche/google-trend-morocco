@@ -1,3 +1,8 @@
+### deces reine thailande (N/A, Mon, 27 Oct 2025 08:40:00 -0700)
+
+
+
+
 ### gaziantep – fenerbahçe (N/A, Mon, 27 Oct 2025 09:20:00 -0700)
 
 - **GAZİANTEP FK'NİN 11'İ BELLİ OLDU**: [Link](https://www.cnnturk.com/spor/futbol/live-gaziantep-fk-fenerbahce-maci-bein-sports-1-canli-izle-gaziantep-fk-fenerbahce-maci-bein-sports-1-bedava-izle-gaziantep-fk-2352451)
