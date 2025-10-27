@@ -1,3 +1,10 @@
+### marca (N/A, Sun, 26 Oct 2025 11:00:00 -0700)
+
+- **A report has been released confirming that referees helped Mahomes' Chiefs win games**: [Link](https://www.marca.com/en/nfl/kansas-city-chiefs/2025/10/26/68fe305222601d76378b4583.html)
+- **Yes, the Kansas City Chiefs Have an Unfair Advantage—This Texas Professor Has Proof**: [Link](https://www.texasmonthly.com/arts-entertainment/kansas-city-chiefs-penalty-calls-study-implications/)
+- **Study Suggests Kansas City Chiefs Have Received Favorable NFL Officiating**: [Link](https://sports.yahoo.com/article/study-suggests-kansas-city-chiefs-163849783.html)
+
+
 ### hihi2 (N/A, Sun, 26 Oct 2025 11:10:00 -0700)
 
 
