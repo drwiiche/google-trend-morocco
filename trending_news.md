@@ -1,3 +1,17 @@
+### noah dettwiler (N/A, Mon, 27 Oct 2025 13:10:00 -0700)
+
+- **«Ich werde das nie verstehen»: Jetzt wird Kritik an der Sicherheit im Töff-Zirkus laut**: [Link](https://www.tagesanzeiger.ch/unfall-von-noah-dettwiler-motogp-fahrer-fordern-regel-zurueck-510877575790)
+- **Formel‑1 in Mexiko: Wer zeigt das Rennen heute live im TV und Stream?**: [Link](https://www.msn.com/de-at/nachrichten/other/norris-trotzt-buhrufen-mexiko-sieg-katapultiert-ihn-an-die-wm-spitze/ar-AA1Pbhg5?apiversion=v2&domshim=1&noservercache=1&noservertelemetry=1&batchservertelemetry=1&renderwebcomponents=1&wcseo=1)
+- **Nach der Sepang-Tragödie protestieren Fahrer gegen die Fortsetzung des Moto3-Rennens**: [Link](https://www.autohebdo.de/Nachrichten/MotoGP/Nach-der-Trag%C3%B6die-von-Sepang-protestieren-Fahrer-gegen-die-Fortsetzung-des-Moto3-Rennens.html)
+
+
+### الطقس غدًا (N/A, Mon, 27 Oct 2025 13:00:00 -0700)
+
+- **أمطار على هذه الأماكن.. بيان مهم من الأرصاد يكشف حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/3584536)
+- **تحذير عاجل من الأرصاد الجوية بشأن طقس غدا الثلاثاء**: [Link](https://mwq3masr.com/archives/1031075)
+- **هل ستتعرض القاهرة الكبري لأمطار خلال الساعات المقبلة ؟ الأرصاد تجيب - صوت الأمة**: [Link](https://akhbarak.net/news/details/48079831/1/%D9%87%D9%84-%D8%B3%D8%AA%D8%AA%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%8A-%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AC%D9%8A%D8%A8-%D8%B5%D9%88%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%A9)
+
+
 ### betis – atlético madrid (N/A, Mon, 27 Oct 2025 12:20:00 -0700)
 
 - **Alineaciones confirmadas del Betis - Atlético de Madrid: sorpresas y bajas de última hora**: [Link](https://www.eldesmarque.com/futbol/real-betis/20251027/alineaciones-confirmadas-betis-atletico-madrid-jornada-10-laliga_300793811.html)
