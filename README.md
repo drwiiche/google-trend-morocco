@@ -1,3 +1,10 @@
+### ribery (N/A, Sun, 26 Oct 2025 15:10:00 -0700)
+
+- **🤯 Transfer bombshell in the Icon League: Ribéry leaves the Bavarian Clique**: [Link](https://ca.sports.yahoo.com/news/transfer-bombshell-icon-league-rib-183500728.html)
+- **Gallery: The best images of the launch event in Bangkok**: [Link](https://fcbayern.com/en/photos/2025/10/crc-sports)
+- **Kompany urges Karl to "enjoy these moments without any pressure"**: [Link](https://bulinews.com/kompany-urges-karl-enjoy-these-moments-any-pressure)
+
+
 ### ouattara (N/A, Mon, 27 Oct 2025 01:30:00 -0700)
 
 - **Présidentielle en Côte d’Ivoire : les premiers résultats donnent une victoire écrasante pour Alassane Ouattara**: [Link](https://www.lefigaro.fr/flash-actu/presidentielle-en-cote-d-ivoire-les-premiers-resultats-donnent-une-victoire-ecrasante-pour-alassane-ouattara-20251026)
