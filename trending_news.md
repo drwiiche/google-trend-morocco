@@ -1,3 +1,17 @@
+### betis – atlético madrid (N/A, Mon, 27 Oct 2025 12:20:00 -0700)
+
+- **Alineaciones confirmadas del Betis - Atlético de Madrid: sorpresas y bajas de última hora**: [Link](https://www.eldesmarque.com/futbol/real-betis/20251027/alineaciones-confirmadas-betis-atletico-madrid-jornada-10-laliga_300793811.html)
+- **Dónde ver online y en televisión al Atlético de Madrid hoy de LaLiga y a qué hora juega el partido contra el Betis**: [Link](https://www.abc.es/deportes/atletico-madrid/betis-atletico-madrid-horario-canal-television-ver-20251027195512-nt.html)
+- **Real Betis y Atlético son los equipos más en forma de LaLiga**: [Link](https://mundobetis.com/2025/10/27/real-betis-y-atletico-son-los-equipos-mas-en-forma-de-laliga/)
+
+
+### ريال بتيس ضد أتلتيكو مدريد (N/A, Mon, 27 Oct 2025 12:20:00 -0700)
+
+- **جدول مباريات اليوم الإثنين 27 أكتوبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-27-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt6790346fbaaac7fb)
+- **أبرز المباريات العربية والعالمية اليوم الإثنين**: [Link](https://24.ae/article/926246/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86)
+- **لمواجهة أتلتيكو مدريد...أمرابط والزلزولي في قائمة ريال بتيس**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D9%88%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D8%AA%D9%8A%D8%B3/10823)
+
+
 ### غازي عنتاب ضد فنربخشة (N/A, Mon, 27 Oct 2025 11:30:00 -0700)
 
 - **لمواجهة غازيانتيب...النصيري حاضر في قائمة فنربخشه**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%BA%D8%A7%D8%B2%D9%8A%D8%A7%D9%86%D8%AA%D9%8A%D8%A8%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D8%AD%D8%A7%D8%B6%D8%B1-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D9%81%D9%86%D8%B1%D8%A8%D8%AE%D8%B4%D9%87/10826)
