@@ -1,3 +1,17 @@
+### ouattara (N/A, Mon, 27 Oct 2025 01:30:00 -0700)
+
+- **Présidentielle en Côte d’Ivoire : les premiers résultats donnent une victoire écrasante pour Alassane Ouattara**: [Link](https://www.lefigaro.fr/flash-actu/presidentielle-en-cote-d-ivoire-les-premiers-resultats-donnent-une-victoire-ecrasante-pour-alassane-ouattara-20251026)
+- **Présidentielle en Côte d'Ivoire : Alassane Ouattara brigue un 4ème mandat**: [Link](https://afrique.tv5monde.com/information/presidentielle-en-cote-divoire-alassane-ouattara-brigue-un-4eme-mandat)
+- **Élection présidentielle en Côte d’Ivoire: affluence contrastée le 25 octobre**: [Link](https://afrique.le360.ma/politique/election-presidentielle-en-cote-divoire-affluence-contrastee-le-25-octobre_WBHDYPDUYJFM7P5LRCI2PZNKEA/)
+
+
+### office 365 (N/A, Mon, 27 Oct 2025 01:10:00 -0700)
+
+- **Australia sues Microsoft over AI-linked subscription price hikes**: [Link](https://www.reuters.com/world/asia-pacific/australia-takes-microsoft-court-says-it-misled-27-million-customers-2025-10-26/)
+- **Microsoft Sued in Australia Over 365 Price Hikes Tied to AI Copilot Rollout**: [Link](https://www.yahoo.com/news/articles/microsoft-sued-australia-over-365-065300334.html)
+- **ACCC alleges Microsoft 'deliberately hid' cheaper Microsoft 365 subscription**: [Link](https://www.abc.net.au/news/2025-10-27/accc-sues-microsoft-allegedly-misleading-365-subscriptions/105937436)
+
+
 ### goud (N/A, Mon, 27 Oct 2025 01:00:00 -0700)
 
 - **Waarom volgende week cruciaal wordt voor Bitcoin – ‘zet je schrap’**: [Link](https://newsbit.nl/?p=719716)
