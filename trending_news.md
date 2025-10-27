@@ -1,3 +1,10 @@
+### manchester city (N/A, Mon, 27 Oct 2025 03:40:00 -0700)
+
+- **Manchester City and Spurs amongst five after Villa star**: [Link](https://ca.sports.yahoo.com/news/manchester-city-spurs-amongst-five-075000933.html)
+- **Kevin Danso suddenly puts talk of Spurs stalking Aston Villa ace in the shade**: [Link](https://theboyhotspur.com/kevin-danso-suddenly-puts-talk-of-spurs-stalking-aston-villa-ace-in-the-shade/)
+- **Chelsea, Liverpool, Manchester United and Tottenham Hotspur keen on Ezri Konsa**: [Link](https://football-talk.co.uk/223627/chelsea-liverpool-manchester-united-and-tottenham-hotspur-keen-on-ezri-konsa/)
+
+
 ### juventus (N/A, Sun, 26 Oct 2025 14:50:00 -0700)
 
 - **Aperta la prevendita per la trasferta dell'Allianz Stadium**: [Link](https://www.udinese.it/news/biglietti/aperta-la-prevendita-per-la-trasferta-dell-allianz-stadium)
