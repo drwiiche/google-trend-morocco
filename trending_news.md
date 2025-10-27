@@ -1,3 +1,10 @@
+### porto fc (N/A, Mon, 27 Oct 2025 15:00:00 -0700)
+
+- **AZ Alkmaar 1-0 S Bratislava (23 Oct, 2025) Final Score**: [Link](https://www.espn.in/football/match/_/gameId/757997)
+- **FC Porto’s Europa League rivals: Utrecht thrashed in the Netherlands**: [Link](https://onefootball.com/en/news/fc-portos-europa-league-rivals-utrecht-thrashed-in-the-netherlands-41863139)
+- **Eredivisie roundup: AZ thrash FC Utrecht, Go Ahead Eagles continue hot streak**: [Link](https://www.flashscore.com/news/soccer-eredivisie-eredivisie-roundup-az-thrash-fc-utrecht-go-ahead-eagles-continue-hot-streak/0v1OiBOO/)
+
+
 ### atletico madrid (N/A, Mon, 27 Oct 2025 13:30:00 -0700)
 
 - **'I have no doubt that Baena is a game-changer'**: [Link](https://www.besoccer.com/new/i-have-no-doubt-that-baena-is-a-game-changer-1378940)
