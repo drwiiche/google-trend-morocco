@@ -1,3 +1,10 @@
+### real madrid fc barcelone clasico (N/A, Sun, 26 Oct 2025 14:00:00 -0700)
+
+- **La afición sentencia: el culpable del jaleo del Clásico y la lección de Xabi Alonso para destrozar a Flick**: [Link](https://www.marca.com/futbol/primera-division/2025/10/27/aficion-sentencia-culpable-jaleo-clasico-leccion-xabi-alonso-destrozar-flick.html)
+- **Xabi, el atormentado y el gracioso**: [Link](https://as.com/opinion/xabi-el-atormentado-y-el-gracioso-f202510-n/)
+- **Real Madrid - FC Barcelona | El Madrid se impone al Barça gracias a los goles de Mbappé y Bellingham**: [Link](https://elpais.com/deportes/futbol/2025-10-26/real-madrid-fc-barcelona-en-directo-el-clasico-de-la-liga-en-vivo.html)
+
+
 ### توكل كرمان (N/A, Mon, 27 Oct 2025 06:00:00 -0700)
 
 - **شكاية ضد توكل كرمان بتهمة التحريض**: [Link](https://www.hespress.com/%D8%B4%D9%83%D8%A7%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%AA%D9%88%D9%83%D9%84-%D9%83%D8%B1%D9%85%D8%A7%D9%86-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B1%D9%8A%D8%B6-1646140.html)
