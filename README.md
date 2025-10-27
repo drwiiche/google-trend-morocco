@@ -1,3 +1,10 @@
+### juventus (N/A, Sun, 26 Oct 2025 14:50:00 -0700)
+
+- **Aperta la prevendita per la trasferta dell'Allianz Stadium**: [Link](https://www.udinese.it/news/biglietti/aperta-la-prevendita-per-la-trasferta-dell-allianz-stadium)
+- **Runjaic martedì in conferenza stampa**: [Link](https://www.udineseblog.it/udinese/mondo-udinese/runjaic-martedi-in-conferenza-stampa/)
+- **Recupero lampo: già in campo per Juventus-Udinese | Tudor cambia la formazione**: [Link](https://www.ilposticipo.it/2025/10/24/recupero-lampo-gia-in-campo-per-juventus-udinese-tudor-cambia-la-formazione/)
+
+
 ### ribery (N/A, Sun, 26 Oct 2025 15:10:00 -0700)
 
 - **🤯 Transfer bombshell in the Icon League: Ribéry leaves the Bavarian Clique**: [Link](https://ca.sports.yahoo.com/news/transfer-bombshell-icon-league-rib-183500728.html)
