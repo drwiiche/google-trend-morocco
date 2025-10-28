@@ -1,3 +1,10 @@
+### lecce – naples (N/A, Tue, 28 Oct 2025 10:00:00 -0700)
+
+- **Preview:Lecce vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lecce/preview/lecce-vs-napoli-prediction-team-news-lineups_584406.html)
+- **Andre Zambo Anguissa vs. US Lecce – Player props & odds to score a goal on October 28**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/28/andre-zambo-anguissa-soccer-player-props-10-28-2025/86940228007/)
+- **Lecce-Naples: streaming, TV channel and compositions**: [Link](https://frenchfootballweekly.com/2025/10/28/lecce-naples-streaming-tv-channel-and-compositions/)
+
+
 ### eintracht francfort – dortmund (N/A, Tue, 28 Oct 2025 09:50:00 -0700)
 
 - **#SGEBVB – Wild ?**: [Link](https://onefootball.com/de/news/sgebvb-wild-41867289)
