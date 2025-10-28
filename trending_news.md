@@ -1,3 +1,10 @@
+### rca vs wac (N/A, Tue, 28 Oct 2025 10:10:00 -0700)
+
+- **Derby de Casablanca : un dispositif spécial pour la gestion des flux de supporters**: [Link](https://medias24.com/2025/10/28/derby-de-casablanca-un-dispositif-special-pour-la-gestion-des-flux-de-supporters/)
+- **Botola : le derby Raja-WAC en vedette, l’AS FAR et l’OC Safi à la relance**: [Link](https://lematin.ma/sports/botola-le-derby-raja-wac-en-vedette-las-far-et-loc-safi-a-la-relance/310334)
+- **WAC-RCA: Mohamed Baroudi nommé arbitre du derby**: [Link](https://sport.le360.ma/football/botola/wac-rca-mohamed-baroudi-nomme-arbitre-du-derby_APMS4SZ4I5D6NKB2QLDG5AGUKI/)
+
+
 ### lecce – naples (N/A, Tue, 28 Oct 2025 10:00:00 -0700)
 
 - **Preview:Lecce vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lecce/preview/lecce-vs-napoli-prediction-team-news-lineups_584406.html)
