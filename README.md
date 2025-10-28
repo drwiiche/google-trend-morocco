@@ -1,3 +1,10 @@
+### eintracht francfort – dortmund (N/A, Tue, 28 Oct 2025 09:50:00 -0700)
+
+- **#SGEBVB – Wild ?**: [Link](https://onefootball.com/de/news/sgebvb-wild-41867289)
+- **Pokalfight gegen Dortmund: Götze für Uzun!**: [Link](https://www.sge4ever.de/pokalfight-gegen-dortmund-goetze-fuer-uzun/)
+- **Als sich die Dortmunder und Frankfurter Fans verbündeten | Wisst ihr noch ...? | Video**: [Link](https://www.kicker.at/als-sich-die-dortmunder-und-frankfurter-fans-verbuendeten-1159843/video)
+
+
 ### الأخدود ضد الهلال (N/A, Tue, 28 Oct 2025 09:00:00 -0700)
 
 - **مباشر الهلال ضد الأخدود (0-0) في ثمن نهائي كأس ملك السعودية**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/28/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D8%AE%D8%AF%D9%88%D8%AF-0-0-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
