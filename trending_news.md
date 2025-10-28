@@ -1,3 +1,10 @@
+### زلزال تركيا اليوم (N/A, Mon, 27 Oct 2025 23:50:00 -0700)
+
+- **زلزال بقوة 6.1 درجات يضرب ولاية باليكسير التركية**: [Link](https://www.aljazeera.net/news/2025/10/27/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D8%A7%D8%B1%D8%AB-%D9%88%D8%A7%D9%84%D8%B7%D9%88%D8%A7%D8%B1%D8%A6-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-3)
+- **زلزال قوي يضرب غرب تركيا بقوة 6.1 درجات**: [Link](https://www.alarabiya.net/arab-and-world/2025/10/28/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%A8%D9%82%D9%88%D8%A9-61-%D8%AF%D8%B1%D8%AC%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D9%8A%D8%A7%D8%B3-%D8%B1%D9%8A%D8%AE%D8%AA%D8%B1-)
+- **فيديو.. زلزال قوي يضرب غربي تركيا**: [Link](https://www.skynewsarabia.com/varieties/1829939-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%82%D9%88%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%BA%D8%B1%D8%A8%D9%8A-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7)
+
+
 ### akdital (N/A, Mon, 27 Oct 2025 23:10:00 -0700)
 
 - **Akdital rassure les investisseurs et annonce se lancer à l’international dès 2026 (Saham Capital)**: [Link](https://lematin.ma/economie/bourse-de-casablanca-akdital-rassure-les-investisseurs/310119)
