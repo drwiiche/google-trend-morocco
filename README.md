@@ -1,3 +1,24 @@
+### grimsby – brentford (N/A, Tue, 28 Oct 2025 12:10:00 -0700)
+
+- **Andrews: Squad to be utilised for Grimsby tie**: [Link](https://www.brentfordfc.com/en/news/article/first-team-grimsby-town-v-brentford-carabao-cup-keith-andrews)
+- **My day with Grimsby's cup heroes - and what makes the Mariners special**: [Link](https://www.dailymail.co.uk/sport/football/article-15232187/Grimsby-cup-heroes-Brentford-Man-Utd.html)
+- **Tuesday's EFL Cup and League One predictions, betting odds and tips: No sting in the tail for the Premier League Bees**: [Link](https://www.racingpost.com/sport/football-tips/efl-cup/tuesday-football-tips-efl-cup-league-one-ayARb8X7whbK/)
+
+
+### coupe du monde féminine des moins de 17 ans (N/A, Tue, 28 Oct 2025 12:10:00 -0700)
+
+- **CM féminine U17: le huitième de finale RDP Corée- Maroc se jouera au Stade Olympique**: [Link](https://frmf.ma/fr/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17/)
+- **Mondial U17 féminin/ Maroc-Corée du Nord : Quelle heure, quelles chaînes**: [Link](https://medias24.com/2025/10/28/mondial-u17-feminin-maroc-coree-du-nord-quelle-heure-quelles-chaines/)
+- **Maroc-Corée du Nord: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-coree-du-nord-a-quelle-heure-et-sur-quelle-chaine_H2ZXVRINIRBVNPBF5EP6NOQR4A/)
+
+
+### walid regragui (N/A, Tue, 28 Oct 2025 12:10:00 -0700)
+
+- **Vers un retour de Sofiane Boufal en équipe nationale?**: [Link](https://fr.hespress.com/447226-vers-un-retour-de-sofiane-boufal-en-equipe-nationale.html)
+- **Lions de l'Atlas : Sofiane Boufal pré-convoqué, quatre champions du monde U20 dans le viseur**: [Link](https://lematin.ma/sports/sofiane-boufal-pre-convoque-quatre-champions-du-monde-u20-dans-le-viseur/310352)
+- **Ismaël Baouf, défenseur des "Lionceaux", dans la liste préliminaire de l'équipe nationale marocaine senior pour la première fois**: [Link](https://m.elbotola.com/fr/article/2025-10-26-20-09-870.html)
+
+
 ### atalanta – ac milan (N/A, Tue, 28 Oct 2025 12:00:00 -0700)
 
 - **Gallery: ‘Lookman-Leao at full speed’, ‘Max pushes Milan’ – Today’s front pages in Italy**: [Link](https://sempremilan.com/front-pages-28-october-atalanta-milan)
