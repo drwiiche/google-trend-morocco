@@ -1,3 +1,10 @@
+### équipe de corée du nord féminine de football des moins de 17 ans – équipe du maroc féminine de football des moins de 17 ans (N/A, Tue, 28 Oct 2025 12:20:00 -0700)
+
+- **CM féminine U17: le huitième de finale RDP Corée- Maroc se jouera au Stade Olympique**: [Link](https://frmf.ma/fr/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17/)
+- **Mondial U17 féminin/ Maroc-Corée du Nord : Quelle heure, quelles chaînes**: [Link](https://medias24.com/2025/10/28/mondial-u17-feminin-maroc-coree-du-nord-quelle-heure-quelles-chaines/)
+- **Maroc-Corée du Nord: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-coree-du-nord-a-quelle-heure-et-sur-quelle-chaine_H2ZXVRINIRBVNPBF5EP6NOQR4A/)
+
+
 ### grimsby – brentford (N/A, Tue, 28 Oct 2025 12:10:00 -0700)
 
 - **Andrews: Squad to be utilised for Grimsby tie**: [Link](https://www.brentfordfc.com/en/news/article/first-team-grimsby-town-v-brentford-carabao-cup-keith-andrews)
