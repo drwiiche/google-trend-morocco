@@ -1,3 +1,10 @@
+### betis (N/A, Mon, 27 Oct 2025 13:40:00 -0700)
+
+- **La historia de un recién casado con su boda y el Betis**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/historia-recien-casado-boda-betis-20251027150117-nts.html)
+- **El parte del hombre que terminó su boda en Urgencias: «Narra la alineación del Betis durante la exploración»**: [Link](https://www.eldebate.com/espana/andalucia/sevilla/20251028/aficionado-termino-boda-urgencias-narraba-alineacion-betis-durante-exploracion_349079.html)
+- **De su boda al hospital debido al alcohol, narrando la alineación del Betis: "Mi mujer es sevillista"**: [Link](https://www.diariodesevilla.es/realbetis/boda-hospital-debido-alcohol-narrando-alineacion-betis-mujer-sevillista_0_2005107971.html)
+
+
 ### زلزال تركيا (N/A, Tue, 28 Oct 2025 03:40:00 -0700)
 
 - **زلزال بقوة 6.1 درجات يضرب ولاية باليكسير التركية**: [Link](https://www.aljazeera.net/news/2025/10/27/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D8%A7%D8%B1%D8%AB-%D9%88%D8%A7%D9%84%D8%B7%D9%88%D8%A7%D8%B1%D8%A6-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-3)
