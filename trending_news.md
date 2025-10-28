@@ -1,3 +1,10 @@
+### elon musk (N/A, Tue, 28 Oct 2025 04:50:00 -0700)
+
+- **Elon Musk’s Grokipedia contains copied Wikipedia pages**: [Link](https://www.theverge.com/news/807686/elon-musk-grokipedia-launch-wikipedia-xai-copied)
+- **Grokipedia’s “AI-verified” Pages Show Little Change From Wikipedia**: [Link](https://dataconomy.com/2025/10/28/grokipedias-ai-verified-pages-show-little-change-from-wikipedia/)
+- **Grokipedia vs Wikipedia: Is Elon Musk’s Free Encyclopedia Better?**: [Link](https://www.digit.in/features/general/grokipedia-vs-wikipedia-is-elon-musks-free-encyclopedia-better.html)
+
+
 ### betis (N/A, Mon, 27 Oct 2025 13:40:00 -0700)
 
 - **La historia de un recién casado con su boda y el Betis**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/historia-recien-casado-boda-betis-20251027150117-nts.html)
