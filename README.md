@@ -1,3 +1,10 @@
+### wycombe – fulham (N/A, Tue, 28 Oct 2025 12:20:00 -0700)
+
+- **Fulham beat Wycombe on penalties to reach last eight**: [Link](https://www.bbc.com/sport/football/live/czxk41dkll9t)
+- **'They did everything I asked them to' - Michael Duff on Wycombe's League Cup exit**: [Link](https://www.bucksfreepress.co.uk/sport/25579296.michael-duff-pleased-despite-wycombes-carabao-cup-exit/)
+- **Preview:Wycombe vs Fulham - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/wycombe-wanderers/league-cup/preview/wycombe-vs-fulham-prediction-team-news-lineups_584445.html)
+
+
 ### jamaica (N/A, Tue, 28 Oct 2025 14:00:00 -0700)
 
 - **Hurricane Melissa live updates: Violent storm hits Jamaica as authorities warn of 'catastrophic' flooding**: [Link](https://www.bbc.com/news/live/cvgvexdjp1xt)
