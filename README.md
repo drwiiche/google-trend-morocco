@@ -1,3 +1,10 @@
+### séisme guadeloupe (N/A, Tue, 28 Oct 2025 07:40:00 -0700)
+
+- **Un séisme de magnitude 6,5 secoue les Antilles, en particulier la Guadeloupe**: [Link](https://www.20minutes.fr/planete/4181808-20251027-antilles-seisme-magnitude-6-5-secoue-archipel)
+- **La terre tremble en Martinique et en Guadeloupe, une secousse largement ressentie**: [Link](https://rci.fm/deuxiles/infos/Risques-naturels/La-terre-tremble-en-Martinique-et-en-Guadeloupe-une-secousse-largement)
+- **Un tremblement de terre de magnitude 6,7 ressenti en Guadeloupe**: [Link](https://la1ere.franceinfo.fr/guadeloupe/un-tremblement-de-terre-de-magnitude-6-7-ressenti-en-guadeloupe-1637296.html)
+
+
 ### elon musk (N/A, Tue, 28 Oct 2025 04:50:00 -0700)
 
 - **Elon Musk’s Grokipedia contains copied Wikipedia pages**: [Link](https://www.theverge.com/news/807686/elon-musk-grokipedia-launch-wikipedia-xai-copied)
