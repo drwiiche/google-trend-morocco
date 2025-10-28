@@ -1,3 +1,17 @@
+### al-nassr fc – al ittihad (N/A, Tue, 28 Oct 2025 11:00:00 -0700)
+
+- **Saudi King Cup: Where to watch Al-Nassr vs Al-Ittihad?**: [Link](https://foot-africa.com/en/news/saudi-king-cup-where-to-watch-al-nassr-vs-al-ittihad-937547/)
+- **Saudi King's Cup 2025-2026: Round of 16 matches schedule and channels**: [Link](https://news.sbisiali.com/en/news/article/saudi-kings-cup-2025-2026-round-of-16-matches-schedule-and-channels)
+- **Al Nassr vs Al Ittihad Live: Is Cristiano Ronaldo Playing Tonight?**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-al-nassr-vs-al-ittihad-live-28th-october-2025)
+
+
+### coupe du roi des champions (N/A, Tue, 28 Oct 2025 10:50:00 -0700)
+
+- **King Cup Arabie Saoudite : Sur quelle chaîne TV suivre Al Nassr – Al Ittihad?**: [Link](https://africafootunited.com/king-cup-arabie-saoudite-sur-quelle-chaine-tv-suivre-al-nassr-al-ittihad/)
+- **Coupe du Roi d’Arabie Saoudite : Où voir le match Al-Nassr vs Al-Ittihad ?**: [Link](https://foot-africa.com/actualites/coupe-du-roi-darabie-saoudite-ou-voir-le-match-al-nassr-vs-al-ittihad-937547/)
+- **Coupe du Roi d’Arabie Saoudite : Al-Nassr défie Al-Ittihad pour une place en quart de finale**: [Link](https://africafootunited.com/coupe-du-roi-darabie-saoudite-al-nassr-defie-al-ittihad-pour-une-place-en-quart-de-finale/)
+
+
 ### rca vs wac (N/A, Tue, 28 Oct 2025 10:10:00 -0700)
 
 - **Derby de Casablanca : un dispositif spécial pour la gestion des flux de supporters**: [Link](https://medias24.com/2025/10/28/derby-de-casablanca-un-dispositif-special-pour-la-gestion-des-flux-de-supporters/)
