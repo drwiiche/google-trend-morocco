@@ -1,3 +1,10 @@
+### nba (N/A, Mon, 27 Oct 2025 18:10:00 -0700)
+
+- **Wemby's Player of the Week win and more undeniable proof Spurs scratching surface**: [Link](https://airalamo.com/wemby-player-week-win-more-undeniable-proof-spurs-scratching-surface)
+- **NBA Analyst Makes Bold Claim About Victor Wembanyama’s MVP Chances**: [Link](https://www.profootballnetwork.com/nba/nba-analyst-makes-bold-claim-about-victor-wembanyamas-mvp-chances/)
+- **Victor Wembanyama Cleared To Play Against Toronto**: [Link](https://woai.iheart.com/featured/houston-texas-news/content/2025-10-27-victor-wembanyama-cleared-to-play-against-toronto/)
+
+
 ### nexperia (N/A, Mon, 27 Oct 2025 09:00:00 -0700)
 
 - **VW's Lies urges quick diplomatic solution to Nexperia dispute**: [Link](https://www.reuters.com/world/asia-pacific/vws-lies-urges-quick-diplomatic-solution-nexperia-dispute-2025-10-27/)
