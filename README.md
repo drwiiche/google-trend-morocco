@@ -1,3 +1,10 @@
+### النصر ضد الاتحاد (N/A, Tue, 28 Oct 2025 11:10:00 -0700)
+
+- **تشكيل الكلاسيكو: رونالدو يقود كتيبة النصر.. وبنزيما يتزعم هجوم الاتحاد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D9%83%D8%AA%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1--%D9%88%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7-%D9%8A%D8%AA%D8%B2%D8%B9%D9%85-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/blteefefdf329a8b6de)
+- **القنوات الناقلة لمباراة النصر ضد الاتحاد في كأس خادم الحرمين الشريفين.. والموعد**: [Link](https://www.almasryalyoum.com/news/details/3586373)
+- **تردد قناة ثمانية 1 بجودة HD لـ مشاهدة مباراة النصر والاتحاد في كأس خادم الحرمين**: [Link](https://aboutmsr.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%AB%D9%85%D8%A7%D9%86%D9%8A%D8%A9-1-%D8%A8%D8%AC%D9%88%D8%AF%D8%A9-hd-%D9%84%D9%80-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1/)
+
+
 ### al-nassr fc – al ittihad (N/A, Tue, 28 Oct 2025 11:00:00 -0700)
 
 - **Saudi King Cup: Where to watch Al-Nassr vs Al-Ittihad?**: [Link](https://foot-africa.com/en/news/saudi-king-cup-where-to-watch-al-nassr-vs-al-ittihad-937547/)
