@@ -1,3 +1,17 @@
+### الأخدود ضد الهلال (N/A, Tue, 28 Oct 2025 09:00:00 -0700)
+
+- **مباشر الهلال ضد الأخدود (0-0) في ثمن نهائي كأس ملك السعودية**: [Link](https://www.aljazeera.net/sport/liveblog/2025/10/28/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D8%AE%D8%AF%D9%88%D8%AF-0-0-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **Copy of ما القنوات الناقلة لمباراة الأخدود والهلال في كأس الملك السعودي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D8%AF%D9%88%D8%AF-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1e3fbe7c0371e2c2)
+- **القنوات الناقلة لمباراة Al-Hilal vs Al-Okhdood اليوم في كأس خادم الحرمين الشريفين على نايل سات**: [Link](https://zahraa.mr/6030601/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-al-hilal-vs-al-okhdood-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A/)
+
+
+### arjen robben (N/A, Tue, 28 Oct 2025 05:00:00 -0700)
+
+- **Interview with Arjen Robben on Bayern's impressive form: 'Virtually unbeatable'**: [Link](https://fcbayern.com/en/news/2025/10/interview-with-arjen-robben-on-bayerns-impressive-form)
+- **Arjen Robben's views on Bayern**: [Link](https://zamin.uz/en/sport/165425-arjen-robben-s-views-on-bayern.html)
+- **‘It's impressive what they have there’: Arjen Robben talks about the development of the Bayern Campus**: [Link](https://tribuna.com/en/news/2025-10-26-its-impressive-what-they-have-there-arjen-robben-talks-about-the-development-of-the-bayer/)
+
+
 ### séisme guadeloupe (N/A, Tue, 28 Oct 2025 07:40:00 -0700)
 
 - **Un séisme de magnitude 6,5 secoue les Antilles, en particulier la Guadeloupe**: [Link](https://www.20minutes.fr/planete/4181808-20251027-antilles-seisme-magnitude-6-5-secoue-archipel)
