@@ -1,3 +1,10 @@
+### jamaica (N/A, Tue, 28 Oct 2025 14:00:00 -0700)
+
+- **Hurricane Melissa live updates: Violent storm hits Jamaica as authorities warn of 'catastrophic' flooding**: [Link](https://www.bbc.com/news/live/cvgvexdjp1xt)
+- **Category 5 Hurricane Melissa on final approach to Jamaica with life-threatening, catastrophic impacts**: [Link](https://www.foxweather.com/weather-news/hurricane-melissa-jamaica-haiti-cuba-dominican-republic-caribbean-atlantic)
+- **Hurricane Melissa latest updates: flooding, blocked roads and destroyed buildings after category 5 storm makes landfall in Jamaica**: [Link](https://www.theguardian.com/world/live/2025/oct/28/hurricane-melissa-live-updates-category-5-storm-jamaica-landfall-latest-news)
+
+
 ### wac vs rca (N/A, Tue, 28 Oct 2025 13:40:00 -0700)
 
 - **Derby de Casablanca : un dispositif spécial pour la gestion des flux de supporters**: [Link](https://medias24.com/2025/10/28/derby-de-casablanca-un-dispositif-special-pour-la-gestion-des-flux-de-supporters/)
