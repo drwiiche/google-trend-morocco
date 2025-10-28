@@ -1,3 +1,24 @@
+### كأس العالم للسيدات تحت 17 سنة 2025 (N/A, Tue, 28 Oct 2025 11:50:00 -0700)
+
+- **المنتخب الوطني النسوي لأقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء كوريا الشمالية**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1-6/)
+- **"اللبؤات" يواجهن كوريا في الأولمبي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D9%8A%D9%88%D8%A7%D8%AC%D9%87%D9%86-%D9%83%D9%88%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A-1646498.html)
+- **كأس العالم للناشئات/ المنتخب المغربي يصطدم بكوريا الشمالية حاملة اللقب (اليوم 20:00) وعينه على إنجاز تاريخي يقوده لبلوغ ربع نهائي المسابقة**: [Link](https://m.elbotola.com/article/2025-10-28-09-38-515.html)
+
+
+### carlos alcaraz (N/A, Tue, 28 Oct 2025 11:40:00 -0700)
+
+- **Orden de juego (Día 3): Sinner se estrena en La Défense en el desembarco del vigente campeón**: [Link](https://www.eurosport.es/tenis/atp-paris/2025/orden-juego-dia-3-miercoles-29-octubre-horarios-donde-ver-jannik-sinner-alexander-zverev-joao-fonseca-daniil-medvedev_sto23235640/story.shtml)
+- **Directo | Alcaraz - Norrie**: [Link](https://www.diariovasco.com/deportes/tenis/masters/directo-alcaraz-norrie-paris-20251028131729-dirc.html)
+- **Alcaraz prepara las grandes citas indoor en una pista 'secreta'**: [Link](https://www.mundodeportivo.com/tenis/20251028/1002558937/alcaraz-prepara-grandes-citas-indoor-pista-secreta-palmar.html)
+
+
+### napoli (N/A, Tue, 28 Oct 2025 11:40:00 -0700)
+
+- **📸Napoli, maglia da BRIVIDI! 😱 Kit Halloween per le "anime pezzentelle" 🎃**: [Link](https://onefootball.com/it/notizie/napoli-maglia-da-brividi-kit-halloween-per-le-anime-pezzentelle-41869785)
+- **Milinkovic-Savic para il rigore di Camarda! Penalty assegnato per un tocco di Juan Jesus | FOTO**: [Link](https://www.calcionapoli24.it/notizie/milinkovic-savic-para-il-rigore-di-camarda-penalty-assegnato-per-un-tocco-di-n667330.html)
+- **McTominay e non Elmas, chance per Lucca e Lang: le probabili di Lecce-Napoli (Sky Sport)**: [Link](https://www.ilnapolista.it/2025/10/mctominay-e-non-elmas-chance-per-lucca-e-lang-le-probabili-di-lecce-napoli-sky-sport/)
+
+
 ### النصر ضد الاتحاد (N/A, Tue, 28 Oct 2025 11:10:00 -0700)
 
 - **تشكيل الكلاسيكو: رونالدو يقود كتيبة النصر.. وبنزيما يتزعم هجوم الاتحاد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D9%83%D8%AA%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1--%D9%88%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7-%D9%8A%D8%AA%D8%B2%D8%B9%D9%85-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/blteefefdf329a8b6de)
