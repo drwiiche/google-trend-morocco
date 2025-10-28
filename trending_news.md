@@ -1,3 +1,9 @@
+### akdital (N/A, Mon, 27 Oct 2025 23:10:00 -0700)
+
+- **Akdital rassure les investisseurs et annonce se lancer à l’international dès 2026 (Saham Capital)**: [Link](https://lematin.ma/economie/bourse-de-casablanca-akdital-rassure-les-investisseurs/310119)
+- **Akdital : Saham Bank reste à l’achat et vise 1 700 DH, soit un potentiel de +23 %**: [Link](https://boursenews.ma/article/marches/akdital-saham-bank-recommandation)
+
+
 ### حالة الطقس (N/A, Mon, 27 Oct 2025 23:10:00 -0700)
 
 - **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-57-1646607.html)
