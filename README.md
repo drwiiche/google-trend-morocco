@@ -1,3 +1,10 @@
+### الطقس غدًا (N/A, Tue, 28 Oct 2025 12:40:00 -0700)
+
+- **4 ساعات حَرِجة.. تحذير من حالة الطقس اليوم: «ترقبوا الطرق»**: [Link](https://www.almasryalyoum.com/news/details/3586255)
+- **تحذيرات من هبوب رياح قوية وضباب كثيف يهدد سلامة السائقين على الطرق الرئيسية والمناطق المحيطة**: [Link](https://harammissr.com/32296/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D9%87%D8%A8%D9%88%D8%A8-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D8%B6%D8%A8%D8%A7%D8%A8-%D9%83%D8%AB%D9%8A%D9%81-%D9%8A%D9%87/)
+- **انخفاض تدريجي في درجات الحرارة مع توقعات لهطول أمطار غزيرة حسب تقارير الأرصاد الجوية الجديدة**: [Link](https://tawusal.com/10304/%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%AA%D8%AF%D8%B1%D9%8A%D8%AC%D9%8A-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%B9-%D8%AA%D9%88%D9%82%D8%B9/)
+
+
 ### équipe de corée du nord féminine de football des moins de 17 ans – équipe du maroc féminine de football des moins de 17 ans (N/A, Tue, 28 Oct 2025 12:20:00 -0700)
 
 - **CM féminine U17: le huitième de finale RDP Corée- Maroc se jouera au Stade Olympique**: [Link](https://frmf.ma/fr/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17/)
