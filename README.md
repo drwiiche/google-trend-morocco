@@ -1,3 +1,10 @@
+### séisme turquie (N/A, Tue, 28 Oct 2025 01:00:00 -0700)
+
+- **L'ouest de la Turquie secoué par un séisme de magnitude 6,1**: [Link](https://www.rts.ch/info/monde/2025/article/seisme-de-magnitude-6-1-frappe-l-ouest-de-la-turquie-pas-de-victime-29041419.html)
+- **Turquie : un séisme de magnitude 6,1 secoue l'ouest de la Turquie**: [Link](https://www.lefigaro.fr/flash-actu/turquie-un-seisme-de-magnitude-6-1-secoue-l-ouest-de-la-turquie-20251027)
+- **En Turquie, un séisme de magnitude 6,1 a secoué l’ouest du pays**: [Link](https://www.lemonde.fr/planete/article/2025/10/27/en-turquie-un-seisme-de-magnitude-6-1-a-secoue-l-ouest-du-pays_6649878_3244.html)
+
+
 ### زلزال تركيا اليوم (N/A, Mon, 27 Oct 2025 23:50:00 -0700)
 
 - **زلزال بقوة 6.1 درجات يضرب ولاية باليكسير التركية**: [Link](https://www.aljazeera.net/news/2025/10/27/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D8%A7%D8%B1%D8%AB-%D9%88%D8%A7%D9%84%D8%B7%D9%88%D8%A7%D8%B1%D8%A6-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-3)
