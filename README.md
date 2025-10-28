@@ -1,3 +1,10 @@
+### wac vs rca (N/A, Tue, 28 Oct 2025 13:40:00 -0700)
+
+- **Derby de Casablanca : un dispositif spécial pour la gestion des flux de supporters**: [Link](https://medias24.com/2025/10/28/derby-de-casablanca-un-dispositif-special-pour-la-gestion-des-flux-de-supporters/)
+- **Botola : le derby Raja-WAC en vedette, l’AS FAR et l’OC Safi à la relance**: [Link](https://lematin.ma/sports/botola-le-derby-raja-wac-en-vedette-las-far-et-loc-safi-a-la-relance/310334)
+- **WAC-RCA: Mohamed Baroudi nommé arbitre du derby**: [Link](https://sport.le360.ma/football/botola/wac-rca-mohamed-baroudi-nomme-arbitre-du-derby_APMS4SZ4I5D6NKB2QLDG5AGUKI/)
+
+
 ### أتالانتا ضد ميلان (N/A, Tue, 28 Oct 2025 13:10:00 -0700)
 
 - **ميلان يبحث عن التعويض أمام أتالانتا.. ونابولي يواجه ليتشي بـ"الكالتشيو"**: [Link](https://www.hesport.com/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%88%D9%86-409990.html)
