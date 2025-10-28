@@ -1,3 +1,17 @@
+### أتالانتا ضد ميلان (N/A, Tue, 28 Oct 2025 13:10:00 -0700)
+
+- **ميلان يبحث عن التعويض أمام أتالانتا.. ونابولي يواجه ليتشي بـ"الكالتشيو"**: [Link](https://www.hesport.com/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%88%D9%86-409990.html)
+- **رحلة صعبة لميلان إلى برغامو ويوفنتوس من دون تودور**: [Link](https://www.elsport.com/news/show/797997/%D8%B1%D8%AD%D9%84%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9-%D9%84%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A5%D9%84%D9%89-%D8%A8%D8%B1%D8%BA%D8%A7%D9%85%D9%88-%D9%88%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%AF%D9%88%D9%86-%D8%AA%D9%88%D8%AF%D9%88%D8%B1)
+- **موعد مباراة أتالانتا وميلان في الدوري الإيطالي**: [Link](https://akhbarelyom.com/news/newdetails/4714933/1/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%88%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84)
+
+
+### haiti (N/A, Tue, 28 Oct 2025 13:10:00 -0700)
+
+- **Hurricane Melissa live updates: Violent storm hits Jamaica as authorities warn of 'catastrophic' flooding**: [Link](https://www.bbc.com/news/live/cvgvexdjp1xt)
+- **Category 5 Hurricane Melissa on final approach to Jamaica with life-threatening, catastrophic impacts**: [Link](https://www.foxweather.com/weather-news/hurricane-melissa-jamaica-haiti-cuba-dominican-republic-caribbean-atlantic)
+- **Hurricane Melissa latest updates: flooding, blocked roads and destroyed buildings after category 5 storm makes landfall in Jamaica**: [Link](https://www.theguardian.com/world/live/2025/oct/28/hurricane-melissa-live-updates-category-5-storm-jamaica-landfall-latest-news)
+
+
 ### الطقس غدًا (N/A, Tue, 28 Oct 2025 12:40:00 -0700)
 
 - **4 ساعات حَرِجة.. تحذير من حالة الطقس اليوم: «ترقبوا الطرق»**: [Link](https://www.almasryalyoum.com/news/details/3586255)
