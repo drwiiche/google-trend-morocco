@@ -1,3 +1,17 @@
+### atalanta – ac milan (N/A, Tue, 28 Oct 2025 12:00:00 -0700)
+
+- **Gallery: ‘Lookman-Leao at full speed’, ‘Max pushes Milan’ – Today’s front pages in Italy**: [Link](https://sempremilan.com/front-pages-28-october-atalanta-milan)
+- **Juric: ‘Sorry for Tudor; Atalanta must improve in every area’**: [Link](https://football-italia.net/juric-sorry-for-tudor-atalanta-must-improve/)
+- **Ruben Loftus-Cheek vs. Atalanta – Player props & odds to score a goal on October 28**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/28/ruben-loftus-cheek-soccer-player-props-10-28-2025/86940144007/)
+
+
+### raja vs wydad (N/A, Tue, 28 Oct 2025 10:00:00 -0700)
+
+- **Derby de Casablanca : un dispositif spécial pour la gestion des flux de supporters**: [Link](https://medias24.com/2025/10/28/derby-de-casablanca-un-dispositif-special-pour-la-gestion-des-flux-de-supporters/)
+- **Botola : le derby Raja-WAC en vedette, l’AS FAR et l’OC Safi à la relance**: [Link](https://lematin.ma/sports/botola-le-derby-raja-wac-en-vedette-las-far-et-loc-safi-a-la-relance/310334)
+- **WAC-RCA: Mohamed Baroudi nommé arbitre du derby**: [Link](https://sport.le360.ma/football/botola/wac-rca-mohamed-baroudi-nomme-arbitre-du-derby_APMS4SZ4I5D6NKB2QLDG5AGUKI/)
+
+
 ### كأس العالم للسيدات تحت 17 سنة 2025 (N/A, Tue, 28 Oct 2025 11:50:00 -0700)
 
 - **المنتخب الوطني النسوي لأقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء كوريا الشمالية**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1-6/)
