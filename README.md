@@ -1,3 +1,17 @@
+### weather (N/A, Mon, 27 Oct 2025 23:00:00 -0700)
+
+- **Cloudy today: Patchy rain then sunny tomorrow**: [Link](https://www.rossgazette.com/weather-forecasts/patchy-rain-today-moderate-rain-tomorrow-845880)
+- **Weather & Traffic: Tuesday 28 October: rain, rain go away**: [Link](https://today.rtl.lu/news/luxembourg/a/2349722.html)
+- **Patchy rain today, drizzle tomorrow: Cloudy skies ahead**: [Link](https://www.farnhamherald.com/weather-forecasts/rainy-spells-and-some-drizzle-with-clearing-tomorrow-845870)
+
+
+### الطقس (N/A, Mon, 27 Oct 2025 22:50:00 -0700)
+
+- **يوعابد: تغيرات جوية مرتقبة بالمغرب**: [Link](https://www.hespress.com/%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D8%AA%D8%BA%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1646190.html)
+- **توقعات أحوال الطقس.. تشكل كتل ضبابية خلال الليل والصباح**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84/)
+- **أمطار متفرقة بالشمال وحرارة مرتفعة بأقصى الجنوب هذا الأحد بالمغرب**: [Link](https://febrayer.com/1122534.html)
+
+
 ### طقس طنجة (N/A, Mon, 27 Oct 2025 22:10:00 -0700)
 
 - **يوعابد: تغيرات جوية مرتقبة بالمغرب**: [Link](https://www.hespress.com/%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D8%AA%D8%BA%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1646190.html)
