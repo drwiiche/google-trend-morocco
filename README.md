@@ -1,3 +1,10 @@
+### حالة الطقس (N/A, Mon, 27 Oct 2025 23:10:00 -0700)
+
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-57-1646607.html)
+- **توقعات أحوال الطقس.. تشكل كتل ضبابية خلال الليل والصباح**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84/)
+- **"الأرصاد الجوية" تتوقع نزول زخات رعدية ورياح قوية بعدد من المناطق المغربية**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D9%86%D8%B2%D9%88%D9%84-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-965193.html)
+
+
 ### météo (N/A, Mon, 27 Oct 2025 22:50:00 -0700)
 
 - **Météo. Léger retour des pluies sur le Nord, temps stable dans la majorité des régions**: [Link](https://medias24.com/2025/10/27/meteo-leger-retour-des-pluies-sur-le-nord-temps-stable-sur-la-majorite-des-regions/)
