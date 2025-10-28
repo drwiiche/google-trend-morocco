@@ -1,3 +1,10 @@
+### météo (N/A, Mon, 27 Oct 2025 22:50:00 -0700)
+
+- **Météo. Léger retour des pluies sur le Nord, temps stable dans la majorité des régions**: [Link](https://medias24.com/2025/10/27/meteo-leger-retour-des-pluies-sur-le-nord-temps-stable-sur-la-majorite-des-regions/)
+- **Météo. Températures en baisse sur les côtes nord, sud et l’ouest de la Méditerranée ce mardi 28 octobre, et stables partout ailleurs**: [Link](https://fr.le360.ma/societe/meteo-temperatures-en-baisse-sur-les-cotes-nord-sud-et-louest-de-la-mediterranee-ce-mardi-28-octobre_R66LMNOXRFEKBCNWT4VZ4SXTCI/)
+- **Le temps qu'il fera ce lundi 27 octobre 2025**: [Link](https://fr.hespress.com/446994-le-temps-quil-fera-ce-lundi-27-octobre-2025.html)
+
+
 ### weather (N/A, Mon, 27 Oct 2025 23:00:00 -0700)
 
 - **Cloudy today: Patchy rain then sunny tomorrow**: [Link](https://www.rossgazette.com/weather-forecasts/patchy-rain-today-moderate-rain-tomorrow-845880)
