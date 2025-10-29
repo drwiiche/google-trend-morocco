@@ -1,3 +1,17 @@
+### paypal (N/A, Tue, 28 Oct 2025 18:50:00 -0700)
+
+- **PayPal signs deal with OpenAI to become the first payments wallet in ChatGPT**: [Link](https://www.cnbc.com/2025/10/28/paypal-openai-chatgpt-payments-deal.html)
+- **PayPal stock rises on OpenAI deal, earnings: 3 top drivers**: [Link](https://finance.yahoo.com/video/paypal-stock-rises-openai-deal-164000869.html)
+- **A ChatGPT Partnership Is Lifting PayPal as AI and Shopping Continue to Pair Up**: [Link](https://www.investopedia.com/a-chatgpt-partnership-is-lifting-paypal-as-ai-and-shopping-continue-to-pair-up-stock-11838326)
+
+
+### الزلزال تركيا (N/A, Tue, 28 Oct 2025 18:40:00 -0700)
+
+- **زلزال بقوة 6.1 درجات يضرب ولاية باليكسير التركية**: [Link](https://www.aljazeera.net/news/2025/10/27/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D8%A7%D8%B1%D8%AB-%D9%88%D8%A7%D9%84%D8%B7%D9%88%D8%A7%D8%B1%D8%A6-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-3)
+- **فيديو.. زلزال قوي يضرب غربي تركيا**: [Link](https://www.skynewsarabia.com/varieties/1829939-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%82%D9%88%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%BA%D8%B1%D8%A8%D9%8A-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7)
+- **زلزال قوي يضرب غرب تركيا بقوة 6.1 درجات**: [Link](https://www.alarabiya.net/arab-and-world/2025/10/28/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%A8%D9%82%D9%88%D8%A9-61-%D8%AF%D8%B1%D8%AC%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D9%8A%D8%A7%D8%B3-%D8%B1%D9%8A%D8%AE%D8%AA%D8%B1-)
+
+
 ### ouragan mélissa (N/A, Tue, 28 Oct 2025 17:20:00 -0700)
 
 - **L’œil de l’ouragan Melissa, un des plus puissants jamais enregistrés dans l’Atlantique, quitte la Jamaïque et se dirige vers Cuba**: [Link](https://www.lemonde.fr/climat/article/2025/10/28/ouragan-melissa-plus-de-1-5-million-de-personnes-pourraient-etre-touchees-en-jamaique-craint-la-croix-rouge_6649880_1652613.html)
