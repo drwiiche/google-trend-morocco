@@ -1,3 +1,10 @@
+### compte gmail (N/A, Wed, 29 Oct 2025 03:50:00 -0700)
+
+- **Votre compte Gmail a-t-il été piraté ? Un site permet de le savoir gratuitement**: [Link](https://www.lefigaro.fr/secteur/high-tech/votre-compte-gmail-a-t-il-ete-pirate-un-site-permet-de-le-savoir-gratuitement-20251028)
+- **Fuite massive de 183 millions de mots de passe : Google dément toute faille de sécurité**: [Link](https://fr.hespress.com/447408-fuite-massive-de-183-millions-de-mots-de-passe-google-dement-toute-faille-de-securite.html)
+- **Cybersécurité : comment savoir si votre compte fait partie des millions d’adresses mail et de mots de passe piratés**: [Link](https://www.franceinfo.fr/internet/securite-sur-internet/cyberattaques/cybersecurite-comment-savoir-si-votre-gmail-fait-partie-des-plus-de-183-millions-de-comptes-pirates_7578514.html)
+
+
 ### مسار (N/A, Wed, 29 Oct 2025 03:50:00 -0700)
 
 - **"أفضل يوم في حياتي أحبكِ M"... نجم Game of Thrones يحتفل بزواجه في حفل صغير بلندن (صور)**: [Link](https://www.lbcgroup.tv/news/fann/886964/%D8%A3%D9%81%D8%B6%D9%84-%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AD%D9%8A%D8%A7%D8%AA%D9%8A-%D8%A3%D8%AD%D8%A8%D9%83%D9%90-m-%D9%86%D8%AC%D9%85-game-of-thrones-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%B2%D9%88%D8%A7%D8%AC%D9%87-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D8%B5%D8%BA%D9%8A%D8%B1/ar)
