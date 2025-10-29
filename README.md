@@ -1,3 +1,17 @@
+### u17 maroc coree (N/A, Tue, 28 Oct 2025 23:10:00 -0700)
+
+- **CM féminine U17: le huitième de finale RDP Corée- Maroc se jouera au Stade Olympique**: [Link](https://frmf.ma/fr/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17/)
+- **Mondial U17 féminin/ Maroc-Corée du Nord : Quelle heure, quelles chaînes**: [Link](https://medias24.com/2025/10/28/mondial-u17-feminin-maroc-coree-du-nord-quelle-heure-quelles-chaines/)
+- **Mondial féminin U17 : fin de l’aventure des Lioncelles de l’Atlas**: [Link](https://lematin.ma/sports/mondial-feminin-u17-fin-de-laventure-des-lioncelles-de-latlas/310395)
+
+
+### حالة الطقس (N/A, Tue, 28 Oct 2025 22:10:00 -0700)
+
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-57-1646607.html)
+- **توقعات أحوال الطقس.. تشكل كتل ضبابية خلال الليل والصباح**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84/)
+- **توقعات بنزول أمطار ورياح قوية بهذه المناطق المغربية**: [Link](https://ar.lesiteinfo.com/maroc/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D9%86%D8%B2%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85-965481.html)
+
+
 ### météo (N/A, Tue, 28 Oct 2025 22:30:00 -0700)
 
 - **Météo. La météo du mercredi 29 octobre 2025 à Thionville et ses environs**: [Link](https://www.ouest-france.fr/meteo/grand-est/thionville-57100/la-meteo-du-jour-a-thionville-1f633699-6ce4-40a7-8baf-81b6dd5ac8cd)
