@@ -1,3 +1,10 @@
+### vote onu sahara occidental (N/A, Wed, 29 Oct 2025 07:30:00 -0700)
+
+- **Sahara marocain : Washington confirme son appui «irréversible» au plan d’autonomie**: [Link](https://lematin.ma/nation/sahara-washington-confirme-son-appui-irreversible-au-plan-dautonomie/310381)
+- **Sahara : le Paraguay ouvrira un consulat général dans les provinces du Sud**: [Link](https://mobile.telquel.ma/instant-t/2025/10/29/sahara-le-paraguay-ouvrira-un-consulat-general-dans-les-provinces-du-sud_1958186/)
+- **Mustafa Salma Ould Sidi Mouloud : la diplomatie américaine du bras tordu devrait porter ses fruits au Sahara**: [Link](https://medias24.com/2025/10/27/mustafa-salma-ould-sidi-mouloud-la-diplomatie-americaine-du-bras-tordu-devrait-porter-ses-fruits-au-sahara/)
+
+
 ### ميليسا (N/A, Wed, 29 Oct 2025 06:40:00 -0700)
 
 - **إعصار ميليسا يضرب سواحل كوبا بعد أضرار جسيمة خلفها في جامايكا**: [Link](https://www.aljazeera.net/climate/2025/10/29/%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D9%8A%D8%B3%D8%A7-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D9%83%D9%88%D8%A8%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B3%D8%A8%D8%A8%D9%87)
