@@ -1,3 +1,31 @@
+### météo (N/A, Tue, 28 Oct 2025 22:30:00 -0700)
+
+- **Météo. La météo du mercredi 29 octobre 2025 à Thionville et ses environs**: [Link](https://www.ouest-france.fr/meteo/grand-est/thionville-57100/la-meteo-du-jour-a-thionville-1f633699-6ce4-40a7-8baf-81b6dd5ac8cd)
+- **Les prévisions météo pour ce mercredi 29 octobre**: [Link](https://medias24.com/2025/10/28/les-previsions-meteo-pour-ce-mercredi-29-octobre/)
+- **Météo. Températures en baisse sur les côtes nord, sud et l’ouest de la Méditerranée ce mardi 28 octobre, et stables partout ailleurs**: [Link](https://fr.le360.ma/societe/meteo-temperatures-en-baisse-sur-les-cotes-nord-sud-et-louest-de-la-mediterranee-ce-mardi-28-octobre_R66LMNOXRFEKBCNWT4VZ4SXTCI/)
+
+
+### الطقس (N/A, Tue, 28 Oct 2025 22:30:00 -0700)
+
+- **4 ساعات حَرِجة.. تحذير من حالة الطقس اليوم: «ترقبوا الطرق»**: [Link](https://www.almasryalyoum.com/news/details/3586255)
+- **درجات الحرارة المتوقعة اليوم الأربعاء 29 أكتوبر.. تقترب من 10 درجات بهذه المناطق**: [Link](https://www.youm7.com/story/2025/10/29/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-29-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-10/7175762)
+- **الأرصاد: انخفاض على درجات الحرارة الأربعاء**: [Link](https://menafn.com/arabic/1110262801/%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%B9%D9%84%D9%89-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1)
+
+
+### weather (N/A, Tue, 28 Oct 2025 22:30:00 -0700)
+
+- **Today's weather: Patchy rain, tomorrow: Overcast**: [Link](https://www.middevonadvertiser.co.uk/weather-forecasts/patchy-rain-likely-today-and-moderate-showers-tomorrow-846268)
+- **Drizzle and patchy rain: Partly cloudy tomorrow**: [Link](https://www.mnrjournal.co.uk/weather-forecasts/wet-day-with-moderate-rain-patchy-rain-expected-tomorrow-846265)
+- **Drizzle today: Patchy rain tomorrow**: [Link](https://www.bordonherald.com/weather-forecasts/showery-day-with-patchy-rain-continuing-into-thursday-846260)
+
+
+### طقس طنجة (N/A, Tue, 28 Oct 2025 22:30:00 -0700)
+
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-57-1646607.html)
+- **توقعات أحوال الطقس.. تشكل كتل ضبابية خلال الليل والصباح**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84/)
+- **توقعات بنزول أمطار ورياح قوية بهذه المناطق المغربية**: [Link](https://ar.lesiteinfo.com/maroc/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D9%86%D8%B2%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85-965481.html)
+
+
 ### derby raja wydad (N/A, Tue, 28 Oct 2025 22:00:00 -0700)
 
 - **Derby de Casablanca : un dispositif spécial pour la gestion des flux de supporters**: [Link](https://medias24.com/2025/10/28/derby-de-casablanca-un-dispositif-special-pour-la-gestion-des-flux-de-supporters/)
