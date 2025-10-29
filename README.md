@@ -1,3 +1,10 @@
+### ouragan melissa cuba (N/A, Wed, 29 Oct 2025 03:40:00 -0700)
+
+- **L’ouragan Melissa se dirige vers Cuba et laisse derrière lui une « zone sinistrée » en Jamaïque**: [Link](https://www.lemonde.fr/climat/article/2025/10/29/l-ouragan-melissa-se-dirige-vers-cuba-et-laisse-derriere-lui-une-zone-sinistree-en-jamaique_6649880_1652613.html)
+- **Ça y est, l’ouragan Melissa frappe la Jamaïque avec des vents proches de 300 km/h**: [Link](https://www.20minutes.fr/planete/4182152-20251028-ca-ouragan-melissa-frappe-jamaique-vents-proches-300-km-h)
+- **VIDEO. Ouragan Melissa : l'œil de la tempête filmé par l'armée de l'air américaine**: [Link](https://www.franceinfo.fr/environnement/evenements-meteorologiques-extremes/video-ouragan-melissa-l-il-de-la-tempete-filme-par-l-armee-de-l-air-americaine_7580603.html)
+
+
 ### كأس الملك (N/A, Tue, 28 Oct 2025 12:30:00 -0700)
 
 - **موعد قرعة ربع نهائي كأس الملك السعودي 2025-2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B9%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2025-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt12b58ad4d699e118)
