@@ -1,3 +1,8 @@
+### paris fc – lyon (N/A, Wed, 29 Oct 2025 14:10:00 -0700)
+
+
+
+
 ### köln vs bayern (N/A, Wed, 29 Oct 2025 14:00:00 -0700)
 
 - **DFB-Pokal gegen Bayern: FC-Fans mit Gänsehaut-Choreo**: [Link](https://www.express.de/sport/fussball/1-fc-koeln/dfb-pokal-gegen-bayern-fc-fans-mit-gaensehaut-choreo-1139430)
