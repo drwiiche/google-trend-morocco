@@ -1,3 +1,10 @@
+### ac milan (N/A, Tue, 28 Oct 2025 14:10:00 -0700)
+
+- **The Intersection of Football and Online Gaming: AC Milan's Role in the Digital Entertainment Landscape**: [Link](https://milanreports.com/2025/10/29/football-online-gaming-milan-role/)
+- **5 Matches That Could Decide Milan’s 2025/26 Season**: [Link](https://milanreports.com/2025/10/29/5-matches-milan-2025-26-season/)
+- **Serie A: Lecce vs. Napoli**: [Link](https://english.news.cn/20251029/082b7944f87041bd9eda9cfceced552e/c.html)
+
+
 ### u17 maroc coree (N/A, Tue, 28 Oct 2025 23:10:00 -0700)
 
 - **CM féminine U17: le huitième de finale RDP Corée- Maroc se jouera au Stade Olympique**: [Link](https://frmf.ma/fr/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17/)
