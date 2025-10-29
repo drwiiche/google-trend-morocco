@@ -1,3 +1,10 @@
+### derby raja wydad (N/A, Tue, 28 Oct 2025 22:00:00 -0700)
+
+- **Derby de Casablanca : un dispositif spécial pour la gestion des flux de supporters**: [Link](https://medias24.com/2025/10/28/derby-de-casablanca-un-dispositif-special-pour-la-gestion-des-flux-de-supporters/)
+- **Botola : le derby Raja-WAC en vedette, l’AS FAR et l’OC Safi à la relance**: [Link](https://lematin.ma/sports/botola-le-derby-raja-wac-en-vedette-las-far-et-loc-safi-a-la-relance/310334)
+- **Le Wydad achève ses préparatifs pour le "Derby de Casablanca" face au Raja**: [Link](https://m.elbotola.com/fr/article/2025-10-28-20-10-711.html)
+
+
 ### paypal (N/A, Tue, 28 Oct 2025 18:50:00 -0700)
 
 - **PayPal signs deal with OpenAI to become the first payments wallet in ChatGPT**: [Link](https://www.cnbc.com/2025/10/28/paypal-openai-chatgpt-payments-deal.html)
