@@ -1,3 +1,24 @@
+### snrt (N/A, Wed, 29 Oct 2025 11:40:00 -0700)
+
+- **ليلى علوي في الرباط**: [Link](https://snrtnews.com/article/140189)
+- **جلسة الأسئلة الشفوية الأسبوعية بمجلس المستشارين**: [Link](https://snrtnews.com/live/jlst-alasylt-alshfwyt-alasbwyt-bmjls-almstsharyn-140132)
+- **الكتب المدرسية تقلق أسر التلاميذ بمدارس الريادة**: [Link](https://snrtnews.com/article/140069)
+
+
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Wed, 29 Oct 2025 11:40:00 -0700)
+
+- **وزارة التربية تستعد للإعلان عن "قرار حاسم" في ملف تسقيف سن المباريات**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%B9%D9%86-%D9%82%D8%B1%D8%A7%D8%B1-%D8%AD%D8%A7-1646752.html)
+- **عاجل ورسمي.. وزارة برادة ترفع سن تسقيف الولوج لمهن التدريس**: [Link](https://www.achkayen.com/650149/.html)
+- **بعد “المؤشر” و”مغرب السرعتين”.. “الاستقلالR...**: [Link](https://kech24.com/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%A4%D8%B4%D8%B1-%D9%88%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B3%D8%B1%D8%B9%D8%AA%D9%8A%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D9%8A%D8%B4%D9%87%D8%B1-%D8%AA%D8%B3%D9%82%D9%8A%D9%81-%D8%A7%D9%84%D8%B3%D9%86-%D9%84%D9%88%D9%84%D9%88%D8%AC-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9.html)
+
+
+### ترتيب الدوري المغربي (N/A, Wed, 29 Oct 2025 11:40:00 -0700)
+
+- **قبل 4 أيام على تجمع المنتخب المغربي.. هل حكيم زياش فعلا مصاب؟**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%AA%D8%B9%D8%AF%D9%84-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/)
+- **العصبة تحدد موعد جديد لقمة الوداد واتحاد طنجة**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D8%AA%D8%AD/)
+- **تنطلق يوم الجمعة المقبل.. العصبة تكشف برنامج الجولة السابعة من البطولة الاحترافية**: [Link](https://m.elbotola.com/article/2025-10-27-19-51-282.html)
+
+
 ### wac (N/A, Wed, 29 Oct 2025 11:10:00 -0700)
 
 - **Lady Mavs Picked to Finish Third in WAC Preseason Coaches’ Poll**: [Link](https://utamavs.com/news/2025/10/29/womens-basketball-lady-mavs-picked-to-finish-third-in-wac-preseason-coaches-poll.aspx)
