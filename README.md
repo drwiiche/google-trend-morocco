@@ -1,3 +1,24 @@
+### آرسنال ضد برايتون (N/A, Wed, 29 Oct 2025 13:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة آرسنال وبرايتون في كأس الرابطة الإنجليزية 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt504e1d00dec0f323)
+- **ساليبا ومارتينيلي يغيبان في الرابطة**: [Link](https://www.hesport.com/%D8%B3%D8%A7%D9%84%D9%8A%D8%A8%D8%A7-%D9%88%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D9%8A%D9%84%D9%8A-%D9%8A%D8%BA%D9%8A%D8%A8%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-410103.html)
+- **ما هو التشكيل المتوقع لأرسنال و برايتون في كأس كاراباو؟**: [Link](https://www.arrajol.com/content/387197/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D8%A7-%D9%87%D9%88-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D9%83%D8%A7%D8%B1%D8%A7%D8%A8%D8%A7%D9%88%D8%9F)
+
+
+### haïti (N/A, Wed, 29 Oct 2025 13:00:00 -0700)
+
+- **L’ouragan Melissa a quitté Cuba et a pris la direction des Bahamas**: [Link](https://www.lemonde.fr/planete/article/2025/10/29/ouragan-melissa-retrograde-en-categorie-3-cuba-declare-l-etat-d-alerte-la-jamaique-qualifiee-de-zone-sinistree_6650130_3244.html)
+- **Toits effondrés, rues inondées, arbres déracinés… Les images des dégâts causés par l’ouragan Melissa en Jamaïque**: [Link](https://www.lefigaro.fr/meteo/toits-effondres-rues-inondees-arbres-deracines-les-images-des-degats-causes-par-l-ouragan-melissa-en-jamaique-20251029)
+- **DIRECT. Ouragan Melissa : au moins 20 morts dans des inondations en Haïti, annoncent les autorités locales**: [Link](https://www.franceinfo.fr/environnement/evenements-meteorologiques-extremes/cyclones-et-ouragans/direct-l-ouragan-melissa-retrograde-en-categorie-3-touche-cuba-avec-des-vents-de-195-km-h-apres-avoir-transforme-la-jamaique-en-zone-sinistree_7582307.html)
+
+
+### arsenal vs brighton (N/A, Wed, 29 Oct 2025 12:20:00 -0700)
+
+- **Team news: Dowman one of 10 changes for Brighton**: [Link](https://www.arsenal.com/news/team-news-dowman-one-10-changes-brighton)
+- **Saliba And Martinelli Will Be Absent From Defending Arsenal In The Carabao Cup**: [Link](https://voi.id/en/sports/528444)
+- **Fabian Hurzeler discusses how to stop Arsenal’s setpiece threat**: [Link](https://onefootball.com/pt-br/noticias/fabian-hurzeler-discusses-how-to-stop-arsenals-setpiece-threat-41872873)
+
+
 ### ليفربول ضد كريستال بالاس (N/A, Wed, 29 Oct 2025 12:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة ليفربول وكريستال بالاس في كأس الرابطة الإنجليزية 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt80d32cc63ad28246)
