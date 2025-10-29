@@ -1,3 +1,10 @@
+### derby (N/A, Wed, 29 Oct 2025 04:20:00 -0700)
+
+- **Bondholders back new awards celebrating those who make an impact**: [Link](https://www.marketingderby.co.uk/news/bondholders-back-new-awards-celebrating-those-who-make-an-impact/)
+- **When the Lionesses came to Derby**: [Link](https://www.bbc.co.uk/sounds/play/p0mcf5lj)
+- **EVENT: Tickets Sold Out To See England Women At Pride Park**: [Link](https://www.dcfc.co.uk/news/2025/10/event-tickets-sold-out-to-see-england-women-at-pride-park)
+
+
 ### compte gmail (N/A, Wed, 29 Oct 2025 03:50:00 -0700)
 
 - **Votre compte Gmail a-t-il été piraté ? Un site permet de le savoir gratuitement**: [Link](https://www.lefigaro.fr/secteur/high-tech/votre-compte-gmail-a-t-il-ete-pirate-un-site-permet-de-le-savoir-gratuitement-20251028)
