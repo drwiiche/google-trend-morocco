@@ -1,3 +1,17 @@
+### swansea – manchester city (N/A, Wed, 29 Oct 2025 12:10:00 -0700)
+
+- **How to Watch Swansea vs. Man City on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-swansea-vs-man-city-tv-live-stream-10-29-25)
+- **A host of Manchester City players have an opportunity to impress against Swansea**: [Link](https://esteemedkompany.com/2025/10/29/a-host-of-manchester-city-players-have-an-opportunity-to-impress-against-swansea/)
+- **10 changes for City against Swans**: [Link](https://onefootball.com/en/news/10-changes-for-city-against-swans-41875311)
+
+
+### onu sahara marocain (N/A, Wed, 29 Oct 2025 12:10:00 -0700)
+
+- **Pourquoi la Russie détient peut-être la clé de l’avenir du Sahara occidental**: [Link](https://www.lepoint.fr/monde/pourquoi-la-russie-detient-peut-etre-la-cle-de-l-avenir-du-sahara-occidental-28-10-2025-2601990_24.php)
+- **Sahara occidental : pourquoi l'avenir du territoire est suspendu au vote de la Russie à l'ONU**: [Link](https://www.lexpress.fr/monde/afrique/sahara-occidental-pourquoi-lavenir-du-territoire-est-suspendu-au-vote-de-la-russie-a-lonu-OBOX6WXVSBHKBIQ77OK772VEPU/)
+- **Sur le dossier du Sahara occidental, la clé se trouve à Moscou**: [Link](https://www.courrierinternational.com/article/diplomatie-sur-le-dossier-du-sahara-occidental-la-cle-se-trouve-a-moscou_236776)
+
+
 ### liverpool – crystal palace (N/A, Wed, 29 Oct 2025 12:00:00 -0700)
 
 - **Liverpool v Crystal Palace: Carabao Cup team news**: [Link](https://www.liverpoolfc.com/news/liverpool-v-crystal-palace-carabao-cup-team-news)
