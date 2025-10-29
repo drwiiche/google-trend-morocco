@@ -1,3 +1,10 @@
+### ouragan mélissa (N/A, Tue, 28 Oct 2025 17:20:00 -0700)
+
+- **L’œil de l’ouragan Melissa, un des plus puissants jamais enregistrés dans l’Atlantique, quitte la Jamaïque et se dirige vers Cuba**: [Link](https://www.lemonde.fr/climat/article/2025/10/28/ouragan-melissa-plus-de-1-5-million-de-personnes-pourraient-etre-touchees-en-jamaique-craint-la-croix-rouge_6649880_1652613.html)
+- **Ça y est, l’ouragan Melissa frappe la Jamaïque avec des vents proches de 300 km/h**: [Link](https://www.20minutes.fr/planete/4182152-20251028-ca-ouragan-melissa-frappe-jamaique-vents-proches-300-km-h)
+- **Visualisez la trajectoire de l'ouragan Melissa, alors que les habitants de la Jamaïque se préparent à d'importants dégâts**: [Link](https://www.franceinfo.fr/environnement/evenements-meteorologiques-extremes/cyclones-et-ouragans/carte-visualisez-la-trajectoire-de-l-ouragan-melissa-alors-que-les-habitants-de-la-jamaique-se-preparent-a-d-importants-degats_7580336.html)
+
+
 ### wycombe – fulham (N/A, Tue, 28 Oct 2025 12:20:00 -0700)
 
 - **Fulham beat Wycombe on penalties to reach last eight**: [Link](https://www.bbc.com/sport/football/live/czxk41dkll9t)
