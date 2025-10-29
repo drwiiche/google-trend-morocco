@@ -1,3 +1,17 @@
+### wac (N/A, Wed, 29 Oct 2025 11:10:00 -0700)
+
+- **Lady Mavs Picked to Finish Third in WAC Preseason Coaches’ Poll**: [Link](https://utamavs.com/news/2025/10/29/womens-basketball-lady-mavs-picked-to-finish-third-in-wac-preseason-coaches-poll.aspx)
+- **ACU Tops WAC Preseason Coaches’ Poll, Hull Named Preseason Player of the Year**: [Link](https://acusports.com/news/2025/10/29/womens-basketball-acu-tops-wac-preseason-coaches-poll-hull-named-preseason-player-of-the-year.aspx)
+- **Hull Named WAC Preseason Player of the Year by ESPN**: [Link](https://acusports.com/news/2025/10/22/womens-basketball-hull-named-wac-preseason-player-of-the-year-by-espn.aspx)
+
+
+### nice – lille (N/A, Wed, 29 Oct 2025 10:30:00 -0700)
+
+- **Preview:Nice vs Lille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/nice/preview/nice-vs-lille-prediction-team-news-lineups_584531.html)
+- **Hakon Arnar Haraldsson vs. OGC Nice – Player props & odds to score a goal on October 29**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/29/hakon-arnar-haraldsson-soccer-player-props-10-29-2025/86958288007/)
+- **Ligue 1 Predictions | Round 10: Nice host Lille and Strasbourg look to bounce back**: [Link](https://ca.sports.yahoo.com/news/ligue-1-predictions-round-10-123900556.html)
+
+
 ### raja (N/A, Wed, 29 Oct 2025 10:50:00 -0700)
 
 - **Raja vs Wydad: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/265733/raja-vs-wydad-match-preview-prediction/)
