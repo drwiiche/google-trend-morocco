@@ -1,3 +1,17 @@
+### raja (N/A, Wed, 29 Oct 2025 10:50:00 -0700)
+
+- **Raja vs Wydad: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/265733/raja-vs-wydad-match-preview-prediction/)
+- **Full House: Tickets 'Sold Out' For Lorch v Fadlu**: [Link](https://www.soccerladuma.co.za/international/african-football/wydad-casablanca-to-battle-fadlu-s-raja-in-sold-out-affair)
+- **Wydad to Clash with Raja in Casablanca Derby for Moroccan League**: [Link](https://see.news/wydad-to-clash-with-raja-in-casablanca-derby-for-moroccan-league)
+
+
+### الجيش الملكي ضد حسنية أكادير (N/A, Wed, 29 Oct 2025 10:50:00 -0700)
+
+- **تشكيلة الجيش أمام الحسنية.. سانتوس يعتمد على الشماخ منذ البداية وحمودان يقود الهجوم رفقة خابا والفحلي**: [Link](https://m.elbotola.com/article/2025-10-29-16-28-262.html)
+- **الدوري الاحترافي...حسنية أكادير في رحلة صعبة إلى الرباط**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D9%81%D9%8A-%D8%B1%D8%AD%D9%84%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7/10913)
+- **بعد تأمينه التأهل لدور مجموعات دوري أبطال إفريقيا.. الجيش الملكي في مواجهة الحسنية مساء اليوم**: [Link](https://2m.ma/ar/news/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%A3%D9%85%D9%8A%D9%86%D9%87-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D8%AF%D9%88%D8%B1-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-20251029)
+
+
 ### lorient vs psg (N/A, Wed, 29 Oct 2025 10:40:00 -0700)
 
 - **Ligue 1 predictions, odds & best tips: PSG expected to maintain grip on top spot**: [Link](https://www.racingpost.com/sport/football-tips/european-football/ligue-1-midweek-predictions-tips-azOnK7J4gmDW/)
