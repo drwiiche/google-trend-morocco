@@ -1,3 +1,10 @@
+### ميليسا (N/A, Wed, 29 Oct 2025 06:40:00 -0700)
+
+- **إعصار ميليسا يضرب سواحل كوبا بعد أضرار جسيمة خلفها في جامايكا**: [Link](https://www.aljazeera.net/climate/2025/10/29/%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D9%8A%D8%B3%D8%A7-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D9%83%D9%88%D8%A8%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B3%D8%A8%D8%A8%D9%87)
+- **الإعصار "ميليسا" يهدد حياة 1.6 مليون طفل في منطقة البحر الكاريبي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D9%8A%D8%B3%D8%A7-%D9%8A%D9%87%D8%AF%D8%AF-%D8%AD%D9%8A%D8%A7%D8%A9-1-6-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%B7%D9%81%D9%84-%D9%81%D9%8A-1646764.html)
+- **الإعصار "ميليسا" العنيف يضرب جامايكا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251028-%D8%A7%D9%84%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D9%8A%D8%B3%D8%A7-%D8%A7%D9%84%D8%B9%D9%86%D9%8A%D9%81-%D9%8A%D9%88%D8%AF%D9%8A-%D8%A8%D8%AD%D9%8A%D8%A7%D8%A9-%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%81%D9%8A-%D8%AC%D8%A7%D9%85%D8%A7%D9%8A%D9%83%D8%A7)
+
+
 ### examen (N/A, Wed, 29 Oct 2025 06:40:00 -0700)
 
 - **Permis de conduire: présentation du modèle de la voiture intelligente «Smart Drive Test»**: [Link](https://fr.le360.ma/societe/permis-de-conduire-presentation-du-modele-de-la-voiture-intelligente-smart-drive-test_C4AHSL7XKJDFPK5HL5E75PIQI4/)
