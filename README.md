@@ -1,3 +1,10 @@
+### le havre – brest (N/A, Wed, 29 Oct 2025 10:30:00 -0700)
+
+- **Le groupe brestois sans deux joueurs importants pour défier le Havre AC**: [Link](https://madeinfoot.ouest-france.fr/infos/article-stade-brestois-le-groupe-brestois-sans-deux-joueurs-importants-pour-defier-le-havre-ac-501006.html)
+- **Stade Brestois. Ajorque roi des airs, penaltys… L’avant-match en chiffres . Sport**: [Link](https://angers.maville.com/sport/detail_-stade-brestois.-ajorque-roi-des-airs-penaltys...-l-avant-match-en-chiffres-_-7041849_actu.Htm)
+- **L1 : Le Havre-Brest, les compos probables**: [Link](https://www.maxifoot.fr/ligue-1/le-havre-brest-les-compos-probables-foot-443611.htm)
+
+
 ### lorient – paris-sg (N/A, Wed, 29 Oct 2025 10:20:00 -0700)
 
 - **Ligue 1 I Lorient - PSG (10e journée) : 13 matches, 16 buteurs différents : Paris, ça marque de partout**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-i-lorient-psg-10e-journee-13-matches-16-buteurs-differents-paris-ca-marque-de-partout_sto23235470/story.shtml)
