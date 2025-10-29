@@ -1,3 +1,10 @@
+### المؤسس اورهان الحلقة 1 (N/A, Wed, 29 Oct 2025 16:00:00 -0700)
+
+- **من "عثمان" إلى "أورهان".. فصل درامي جديد من المجد العثماني**: [Link](https://www.turkpress.co/node/107567)
+- **مسلسل المؤسس أورهان الحلقة 1.. معارك ملحمية وقرارات مصيرية**: [Link](https://aboutmsr.com/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D9%85%D8%A4%D8%B3%D8%B3-%D8%A3%D9%88%D8%B1%D9%87%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-1-%D9%85%D8%B9%D8%A7%D8%B1%D9%83-%D9%85%D9%84%D8%AD/)
+- **عودة الأسطورة.. موعد الحلقة الأولى من قيامة أورهان كاملة ومترجمة**: [Link](https://www.elqannas.net/%D9%82%D9%8A%D8%A7%D9%85%D8%A9-%D8%A3%D9%88%D8%B1%D9%87%D8%A7%D9%86-2/6757/)
+
+
 ### liverpool (N/A, Wed, 29 Oct 2025 14:20:00 -0700)
 
 - **How to Watch every Carabao Cup game this week**: [Link](https://www.efl.com/news/2025/october/28/how-to-watch-every-carabao-cup-game-this-week/)
