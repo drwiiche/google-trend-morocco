@@ -1,3 +1,10 @@
+### have i been pwned (N/A, Wed, 29 Oct 2025 02:20:00 -0700)
+
+- **Urgent alert issued to anyone who uses Gmail after 183 million passwords are leaked**: [Link](https://www.the-independent.com/tech/gmail-passwords-leaked-data-breach-login-security-b2854234.html)
+- **183M email passwords exposed in data leak -- including millions of Gmail accounts -- here's how to check if yours is safe**: [Link](https://nypost.com/2025/10/27/business/183m-email-passwords-exposed-in-data-leak-including-millions-of-gmail-accounts-heres-how-to-check-if-yours-is-safe/)
+- **Google responds to claim of millions of Gmail passwords leaked; calls in 'entirely inaccurate and ...'**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/google-responds-to-claim-of-millions-of-gmail-passwords-leaked-calls-in-entirely-inaccurate-and-/articleshow/124866989.cms)
+
+
 ### ac milan (N/A, Tue, 28 Oct 2025 14:10:00 -0700)
 
 - **The Intersection of Football and Online Gaming: AC Milan's Role in the Digital Entertainment Landscape**: [Link](https://milanreports.com/2025/10/29/football-online-gaming-milan-role/)
