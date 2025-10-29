@@ -1,3 +1,24 @@
+### köln vs bayern (N/A, Wed, 29 Oct 2025 14:00:00 -0700)
+
+- **DFB-Pokal gegen Bayern: FC-Fans mit Gänsehaut-Choreo**: [Link](https://www.express.de/sport/fussball/1-fc-koeln/dfb-pokal-gegen-bayern-fc-fans-mit-gaensehaut-choreo-1139430)
+- **Das fehlt Malek noch im Vergleich zu Said**: [Link](https://www.absolutfussball.com/deutschland/1-fc-koeln/das-fehlt-malek-noch-im-vergleich-zu-said-zr-94012383.html)
+- **1. FC Köln – FC Bayern München im TV und Livestream: Hier siehst du das Spiel live**: [Link](https://www.derwesten.de/sport/fussball/bayern-muenchen-fcb-tv-livestream-fc-koeln-dfb-pokal-id300586267.html)
+
+
+### changan (N/A, Wed, 29 Oct 2025 14:00:00 -0700)
+
+- **Mazda forms EU carbon emissions pool with Changan joint venture**: [Link](https://www.reuters.com/sustainability/climate-energy/mazda-forms-eu-carbon-emissions-pool-with-changan-joint-venture-2025-10-27/)
+- **Mazda is latest Japanese automaker to form CO2 pool in Europe with Chinese rival**: [Link](https://www.autonews.com/mazda/ane-mazda-changan-eu-co2-pooling-1027/)
+- **CO₂ fleet balance 2025: Which car manufacturer needs to step up**: [Link](https://www.heise.de/en/background/CO-fleet-balance-2025-Which-car-manufacturer-needs-to-step-up-10962473.html)
+
+
+### carabao cup (N/A, Wed, 29 Oct 2025 13:40:00 -0700)
+
+- **Carabao Cup quarter-final draw details**: [Link](https://www.brentfordfc.com/en/news/article/first-team-carabao-cup-quarter-final-draw-details)
+- **Arsenal, Man City, Liverpool and Newcastle all in EFL action shortly**: [Link](https://onefootball.com/en/news/arsenal-man-city-liverpool-and-newcastle-all-in-efl-action-shortly-41874135)
+- **Football accumulator tips for Tuesday October 28: Back our acca at 12-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-tuesday-october-28-back-our-acca-at-12-1-with-bet365-aHmua4g4OdvF/)
+
+
 ### league cup (N/A, Wed, 29 Oct 2025 12:30:00 -0700)
 
 - **2025–26 Carabao Cup Quarterfinal Draw: Date, Time, Qualified Teams**: [Link](https://www.si.com/soccer/2025-26-carabao-cup-quarterfinal-draw-date-time-qualified-teams)
