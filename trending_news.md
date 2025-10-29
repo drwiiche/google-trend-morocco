@@ -1,3 +1,17 @@
+### lorient vs psg (N/A, Wed, 29 Oct 2025 10:40:00 -0700)
+
+- **Ligue 1 predictions, odds & best tips: PSG expected to maintain grip on top spot**: [Link](https://www.racingpost.com/sport/football-tips/european-football/ligue-1-midweek-predictions-tips-azOnK7J4gmDW/)
+- **PSG XI vs Lorient unveiled**: [Link](https://tribuna.com/en/news/2025-10-29-psg-xi-vs-lorient-unveiled/)
+- **Sambou Soumano vs. Paris Saint-Germain – Player props & odds to score a goal on October 29**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/29/sambou-soumano-soccer-player-props-10-29-2025/86958377007/)
+
+
+### juventus vs udinese (N/A, Wed, 29 Oct 2025 10:40:00 -0700)
+
+- **Preview:Juventus vs Udinese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/juventus/preview/juventus-vs-udinese-prediction-team-news-lineups_584484.html)
+- **Arthur Atta vs. Juventus – Player props & odds to score a goal on October 29**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/29/arthur-atta-soccer-player-props-10-29-2025/86958447007/)
+- **Juventus sink into their worst scoring drought since 1991**: [Link](https://tembah.net/news?nid=78650)
+
+
 ### le havre – brest (N/A, Wed, 29 Oct 2025 10:30:00 -0700)
 
 - **Le groupe brestois sans deux joueurs importants pour défier le Havre AC**: [Link](https://madeinfoot.ouest-france.fr/infos/article-stade-brestois-le-groupe-brestois-sans-deux-joueurs-importants-pour-defier-le-havre-ac-501006.html)
