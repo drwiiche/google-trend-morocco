@@ -1,3 +1,17 @@
+### juventus – udinese (N/A, Wed, 29 Oct 2025 09:50:00 -0700)
+
+- **LIVE Alle 18.30 Juve-Udinese: Brambilla rilancia Openda, Runjaic conferma Zaniolo**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/29-10-2025/juve-udinese-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Serie A | Le formazioni ufficiali di Juventus-Udinese**: [Link](https://www.juventus.com/it/news/articoli/serie-a-le-formazioni-ufficiali-di-juventus-udinese-25-26)
+- **Juve-Udinese, diretta Serie A: formazioni e risultato in tempo reale, in campo aspettando Spalletti**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/10/29-144155120/juve-udinese_diretta_serie_a_formazioni_e_risultato_in_tempo_reale_in_campo_aspettando_spalletti)
+
+
+### microsoft (N/A, Wed, 29 Oct 2025 09:40:00 -0700)
+
+- **Microsoft down? Major outage hits Azure, 365 and more - even Minecraft affected**: [Link](https://www.techradar.com/pro/live/microsoft-down-major-outage-hits-azure-365-and-more-even-minecraft-affected)
+- **Microsoft outage LIVE — latest updates as Azure, Xbox, and Office 365 all go down simultaneously**: [Link](https://www.tomsguide.com/news/live/microsoft-down-outage-live-updates-10-29-25)
+- **Microsoft Azure down for thousands of users, Downdetector shows**: [Link](https://www.thestar.com.my/tech/tech-news/2025/10/30/microsoft-azure-down-for-thousands-of-users-downdetector-shows)
+
+
 ### vote onu sahara occidental (N/A, Wed, 29 Oct 2025 07:30:00 -0700)
 
 - **Sahara marocain : Washington confirme son appui «irréversible» au plan d’autonomie**: [Link](https://lematin.ma/nation/sahara-washington-confirme-son-appui-irreversible-au-plan-dautonomie/310381)
