@@ -1,3 +1,45 @@
+### lorient – paris-sg (N/A, Wed, 29 Oct 2025 10:20:00 -0700)
+
+- **Ligue 1 I Lorient - PSG (10e journée) : 13 matches, 16 buteurs différents : Paris, ça marque de partout**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-i-lorient-psg-10e-journee-13-matches-16-buteurs-differents-paris-ca-marque-de-partout_sto23235470/story.shtml)
+- **Lorient - PSG : les compositions probables**: [Link](https://www.footmercato.net/a3028059915512465804-lorient-psg-les-compositions-probables)
+- **PSG : Fabian Ruiz devrait être de retour la semaine prochaine**: [Link](https://www.leparisien.fr/sports/football/psg/psg-fabian-ruiz-devrait-etre-de-retour-la-semaine-prochaine-25-10-2025-RI64C6AJIBESNJ4H3ERI7L3A5Q.php)
+
+
+### botola (N/A, Wed, 29 Oct 2025 10:20:00 -0700)
+
+- **Raja vs Wydad: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/10/265733/raja-vs-wydad-match-preview-prediction/)
+- **Full House: Tickets 'Sold Out' For Lorch v Fadlu**: [Link](https://www.soccerladuma.co.za/international/african-football/wydad-casablanca-to-battle-fadlu-s-raja-in-sold-out-affair)
+- **Wydad to Clash with Raja in Casablanca Derby for Moroccan League**: [Link](https://see.news/wydad-to-clash-with-raja-in-casablanca-derby-for-moroccan-league)
+
+
+### mainz 05 – stuttgart (N/A, Wed, 29 Oct 2025 10:10:00 -0700)
+
+- **Preview:Mainz vs Stuttgart - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mainz-05/dfb-pokal/preview/mainz-vs-stuttgart-prediction-team-news-lineups_584506.html)
+- **Nadiem Amiri vs. VfB Stuttgart – Player props & odds to score a goal on October 26**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/25/nadiem-amiri-soccer-player-props-10-26-2025/86906620007/)
+- **Stuttgart Vs Mainz Player Ratings: Bundesliga, 26th October 2025**: [Link](https://www.sportsdunia.com/football-ratings/stuttgart-vs-mainz-player-ratings-bundesliga-26th-october-2025)
+
+
+### يوفنتوس ضد أودينيزي (N/A, Wed, 29 Oct 2025 10:10:00 -0700)
+
+- **يوفنتوس يواجه أودينيزي لإيقاف أسوأ سلسلة تهديفية منذ 1991**: [Link](https://24.ae/article/926722/%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A3%D9%88%D8%AF%D9%8A%D9%86%D9%8A%D8%B2%D9%8A-%D9%84%D8%A5%D9%8A%D9%82%D8%A7%D9%81-%D8%A3%D8%B3%D9%88%D8%A3-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%AA%D9%87%D8%AF%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D9%86%D8%B0-1991)
+- **تورام يغيب عن يوفنتوس للإصابة**: [Link](https://www.elsport.com/news/show/798238/%D8%AA%D9%88%D8%B1%D8%A7%D9%85-%D9%8A%D8%BA%D9%8A%D8%A8-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%84%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9)
+- **القنوات الناقلة لمباراة يوفنتوس ضد أودينيزي اليوم في الدوري الإيطالي مع الموعد والتشكيلة**: [Link](https://almashhad.com/article/218257510540304-sports/334625296047284-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%B6%D8%AF-%D8%A3%D9%88%D8%AF%D9%8A%D9%86%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### ديربي الرجاء والوداد (N/A, Wed, 29 Oct 2025 10:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الوداد والرجاء في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA-/blt44ec84978b9c3293)
+- **25 لاعباً في قائمة الوداد لمواجهة الرجاء في "الديربي البيضاوي"**: [Link](https://m.elbotola.com/article/2025-10-29-15-55-697.html)
+- **16 وجها جديدا على موعد مع أول ديربي**: [Link](https://www.almountakhab.com/node/13219038)
+
+
+### grokipedia wikipedia (N/A, Wed, 29 Oct 2025 09:10:00 -0700)
+
+- **What Elon Musk’s Version of Wikipedia Thinks About Hitler, Putin, and Apartheid**: [Link](https://www.theatlantic.com/technology/2025/10/grokipedia-elon-musk/684730/)
+- **Elon Musk launches Grokipedia to compete with online encyclopedia Wikipedia**: [Link](https://apnews.com/article/elon-musk-wikipedia-grok-grokipedia-4dab7c6ebb16cc7718b231adae4aac95)
+- **Elon Musk Challenges Wikipedia With His Own A.I. Encyclopedia**: [Link](https://www.nytimes.com/2025/10/27/technology/grokipedia-launch-elon-musk.html)
+
+
 ### juventus – udinese (N/A, Wed, 29 Oct 2025 09:50:00 -0700)
 
 - **LIVE Alle 18.30 Juve-Udinese: Brambilla rilancia Openda, Runjaic conferma Zaniolo**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/29-10-2025/juve-udinese-live-risultato-e-gol-in-diretta-serie-a.shtml)
