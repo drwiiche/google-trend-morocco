@@ -1,3 +1,36 @@
+### liverpool – crystal palace (N/A, Wed, 29 Oct 2025 12:00:00 -0700)
+
+- **Liverpool v Crystal Palace: Carabao Cup team news**: [Link](https://www.liverpoolfc.com/news/liverpool-v-crystal-palace-carabao-cup-team-news)
+- **Arne Slot to hand new Liverpool debut as wild card option weighed up**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/arne-slot-hand-new-liverpool-32748464)
+- **How training ground reminders of Caoimhin Kelleher are inspiring Liverpool’s new signing**: [Link](https://www.thisisanfield.com/2025/10/how-training-ground-reminders-of-caoimhin-kelleher-are-inspiring-liverpools-new-signing/)
+
+
+### arsenal – brighton (N/A, Wed, 29 Oct 2025 12:00:00 -0700)
+
+- **Every word from Arteta's pre-Brighton presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-brighton-presser-0)
+- **Fabian Hurzeler discusses how to stop Arsenal’s setpiece threat**: [Link](https://onefootball.com/pt-br/noticias/fabian-hurzeler-discusses-how-to-stop-arsenals-setpiece-threat-41872873)
+- **Saliba and Martinelli add to Arsenal's injury issues**: [Link](https://www.rfi.fr/en/sports/20251028-saliba-and-martinelli-add-to-arsenal-s-injury-issues)
+
+
+### wolves – chelsea (N/A, Wed, 29 Oct 2025 12:00:00 -0700)
+
+- **Predicted XI: World class defender to make first team return for Chelsea against Wolves**: [Link](https://chelsea.news/2025/10/chelsea-defender-world-class-fofana/)
+- **Chelsea looking to put an end to nightmare League Cup Fourth Round record against Wolves**: [Link](https://www.thechelseachronicle.com/news/chelsea-looking-to-put-an-end-to-nightmare-league-cup-fourth-round-record-against-wolves/)
+- **"We're fighting as one" - Wolves summer signing hoping for more cup joy**: [Link](https://www.expressandstar.com/sport/2025/10/29/were-fighting-as-one-wolves-summer-signing-hoping-for-more-cup-joy/)
+
+
+### un si grand soleil (N/A, Wed, 29 Oct 2025 11:50:00 -0700)
+
+
+
+
+### arryadia (N/A, Wed, 29 Oct 2025 11:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الوداد والرجاء في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA-/blt44ec84978b9c3293)
+- **حموشي يتفقد الترتيبات الأمنية للديربي**: [Link](https://www.hespress.com/%D8%AD%D9%85%D9%88%D8%B4%D9%8A-%D9%8A%D8%AA%D9%81%D9%82%D8%AF-%D8%A7%D9%84%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%86%D9%8A%D8%A9-%D9%84%D9%84%D8%AF%D9%8A%D8%B1%D8%A8-1647643.html)
+- **تشكيلة الرجاء أمام الوداد.. فادلو يعتمد على خفيفي وبانون في الدفاع والنفاتي وخافي في الهجوم**: [Link](https://m.elbotola.com/article/2025-10-29-18-27-926.html)
+
+
 ### snrt (N/A, Wed, 29 Oct 2025 11:40:00 -0700)
 
 - **ليلى علوي في الرباط**: [Link](https://snrtnews.com/article/140189)
