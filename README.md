@@ -1,3 +1,10 @@
+### مسار (N/A, Wed, 29 Oct 2025 03:50:00 -0700)
+
+- **"أفضل يوم في حياتي أحبكِ M"... نجم Game of Thrones يحتفل بزواجه في حفل صغير بلندن (صور)**: [Link](https://www.lbcgroup.tv/news/fann/886964/%D8%A3%D9%81%D8%B6%D9%84-%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AD%D9%8A%D8%A7%D8%AA%D9%8A-%D8%A3%D8%AD%D8%A8%D9%83%D9%90-m-%D9%86%D8%AC%D9%85-game-of-thrones-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%B2%D9%88%D8%A7%D8%AC%D9%87-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D8%B5%D8%BA%D9%8A%D8%B1/ar)
+- **من التمثيل إلى علم الأعصاب.. كيف غيّر "صراع العروش" مسار حياة بطله؟**: [Link](https://www.arrajol.com/content/387235/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D9%85%D8%AB%D9%8A%D9%84-%D8%A5%D9%84%D9%89-%D8%B9%D9%84%D9%85-%D8%A7%D9%84%D8%A3%D8%B9%D8%B5%D8%A7%D8%A8-%D9%83%D9%8A%D9%81-%D8%BA%D9%8A%D9%91%D8%B1-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B4-%D9%85%D8%B3%D8%A7%D8%B1-%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A8%D8%B7%D9%84%D9%87%D8%9F)
+- **زفاف نجم صراع العروش إسحاق هيمبستيد رايت في لندن (صور)**: [Link](https://www.albiladpress.com/news/2025/6224/spaces/951329.html)
+
+
 ### ouragan melissa cuba (N/A, Wed, 29 Oct 2025 03:40:00 -0700)
 
 - **L’ouragan Melissa se dirige vers Cuba et laisse derrière lui une « zone sinistrée » en Jamaïque**: [Link](https://www.lemonde.fr/climat/article/2025/10/29/l-ouragan-melissa-se-dirige-vers-cuba-et-laisse-derriere-lui-une-zone-sinistree-en-jamaique_6649880_1652613.html)
