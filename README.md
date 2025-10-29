@@ -1,3 +1,10 @@
+### liverpool (N/A, Wed, 29 Oct 2025 14:20:00 -0700)
+
+- **How to Watch every Carabao Cup game this week**: [Link](https://www.efl.com/news/2025/october/28/how-to-watch-every-carabao-cup-game-this-week/)
+- **Holders Newcastle ease into Carabao Cup quarter-finals with win over Tottenham**: [Link](https://www.telegraph.co.uk/football/2025/10/29/newcastle-v-tottenham-live-score-latest-carabao-cup-last-16/)
+- **Arsenal, Man City and Newcastle all in EFL Cup action**: [Link](https://onefootball.com/fr/news/arsenal-man-city-and-newcastle-all-in-efl-cup-action-41874135)
+
+
 ### أولمبيك مارسيليا ضد أنجيه (N/A, Wed, 29 Oct 2025 14:30:00 -0700)
 
 - **الليغ 1: مارسيليا يُفلت الصدارة وليون ينهار أمام باريس، وموناكو تنتزع فوزًا ملحميًا بنانت**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A7%D9%84%D9%84%D9%8A%D8%BA-1-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D9%81%D9%84%D8%AA-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%88%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%86%D9%87%D8%A7%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%88%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D8%AA%D9%86%D8%AA%D8%B2%D8%B9-%D9%81%D9%88%D8%B2%D8%A7-%D9%85%D9%84%D8%AD%D9%85%D9%8A%D8%A7-%D8%A8%D9%86%D8%A7%D9%86%D8%AA/10933)
