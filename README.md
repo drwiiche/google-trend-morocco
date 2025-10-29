@@ -1,3 +1,17 @@
+### nantes – monaco (N/A, Wed, 29 Oct 2025 13:30:00 -0700)
+
+- **À quelle heure et sur quelle chaîne voir le match Nantes-Monaco ?**: [Link](https://www.lequipe.fr/Football/Actualites/Nantes-monaco-a-quelle-heure-et-sur-quelle-chaine-voir-le-match/1605619)
+- **FCN-ASM : les compos probables**: [Link](https://asm-supporters.fr/actualites/64069-fcn-asm-les-compos-probables)
+- **L’AS Monaco avec Balogun à la pointe de l’attaque pour le match à Nantes ce mercredi soir**: [Link](https://www.nicematin.com/sports/football/l-as-monaco-avec-balogun-a-la-pointe-de-l-attaque-pour-le-match-a-nantes-ce-mercredi-soir-10654568)
+
+
+### strasbourg – auxerre (N/A, Wed, 29 Oct 2025 13:30:00 -0700)
+
+- **PRONOS PARIS RMC Le pari à domicile du 29 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-29-octobre-ligue-1_AN-202510280419.html)
+- **Sékou Mara ne jouera pas contre Strasbourg**: [Link](https://www.alsasports.fr/football/rc-strasbourg/sekou-mara-ne-jouera-pas-contre-strasbourg/77196/)
+- **Des nuages, augmentation des attaques de loup, l'AJA se déplace à Strasbourg... Les infos pratiques de ce mercredi 29 octobre**: [Link](https://www.lyonne.fr/auxerre-89000/actualites/des-nuages-augmentation-des-attaques-de-loup-l-aja-se-deplace-a-strasbourg-les-infos-pratiques-de-ce-mercredi-29-octobre_14772985/)
+
+
 ### وولفرهامبتون ضد تشيلسي (N/A, Wed, 29 Oct 2025 13:20:00 -0700)
 
 - **أزمات تشيلسي.. 7 قنابل موقوتة على ماريسكا تفكيكها قبل الانهيار الكبير**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D8%B2%D9%85%D8%A7%D8%AA-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A--7-%D9%82%D9%86%D8%A7%D8%A8%D9%84-%D9%85%D9%88%D9%82%D9%88%D8%AA%D8%A9-%D9%8A%D8%AC%D8%A8-%D8%B9%D9%84%D9%89-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D8%AA%D9%81%D9%83%D9%8A%D9%83%D9%87%D8%A7-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1/blteb42e3ea200239b6)
