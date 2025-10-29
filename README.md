@@ -1,3 +1,31 @@
+### marseille – angers (N/A, Wed, 29 Oct 2025 12:20:00 -0700)
+
+- **Le groupe de l’OM pour la réception d’Angers sans Balerdi et Weah**: [Link](https://www.footmercato.net/a365311760696800986-le-groupe-de-lom-pour-la-reception-dangers-sans-balerdi-et-weah)
+- **OM : Seul le Real Madrid devance Marseille dans un classement flatteur !**: [Link](https://www.sport.fr/football/om-seul-le-real-madrid-devance-marseille-dans-un-classement-flatteur-1373369.shtm)
+- **Angers SCO : Alexandre Dujeux prévient ses joueurs avant de se déplacer au Vélodrome**: [Link](https://madeinfoot.ouest-france.fr/infos/article-angers-sco-alexandre-dujeux-previent-ses-joueurs-avant-de-se-deplacer-au-velodrome-500976.html)
+
+
+### cologne – bayern (N/A, Wed, 29 Oct 2025 12:20:00 -0700)
+
+- **Bayern Munich XI vs FC Koln – Predicted lineup and team news**: [Link](https://thefootballfaithful.com/bayern-munich-xi-vs-fc-koln-predicted-lineup-and-team-news/)
+- **Cologne boss Kessler: ‘Wehen Wiesbaden didn't make it easy for Bayern in the first round, and we want to build on that’**: [Link](https://tribuna.com/en/news/2025-10-29-cologne-boss-kessler-wehen-wiesbaden-didnt-make-it-easy-for-bayern-in-the-first-round-and/)
+- **‘The hunger is great’ — Bayern Munich exec talks DFB-Pokal energy ahead of FC Köln tilt**: [Link](https://www.bavarianfootballworks.com/bayern-munich-dfb-pokal/145302/the-hunger-is-great-bayern-munich-exec-talks-dfb-pokal-energy-ahead-of-fc-koln-tilt)
+
+
+### newcastle – tottenham (N/A, Wed, 29 Oct 2025 12:20:00 -0700)
+
+- **Live coverage: Newcastle vs Spurs - Carabao Cup - October 2025**: [Link](https://www.tottenhamhotspur.com/news/2025/october/live-coverage-newcastle-vs-spurs-carabao-cup-october-2025/)
+- **Latest. Eddie Howe's programme notes ahead of Tottenham Hotspur**: [Link](https://www.newcastleunited.com/en/news/eddie-howes-programme-notes-ahead-of-tottenham-hotspur)
+- **Joe Cole with some interesting Newcastle United predictions**: [Link](https://onefootball.com/en/news/joe-cole-with-some-interesting-newcastle-united-predictions-41873969)
+
+
+### inter – fiorentina (N/A, Wed, 29 Oct 2025 12:20:00 -0700)
+
+- **LIVE Alle 20.45 Inter-Fiorentina, le ultime: Sucic e Pio titolari, Kean dal 1'**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/29-10-2025/inter-fiorentina-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **✅ UFFICIALI delle 20:45 | Fuori Orsolini, la scelta su Pio Esposito e Dzeko**: [Link](https://onefootball.com/it/notizie/ufficiali-delle-2045-fuori-orsolini-la-scelta-su-pio-esposito-e-dzeko-41875356)
+- **Gazzetta sulla formazione: “Ndour, Sohm e Fortini. Chi troverà spazio a Milano?”**: [Link](https://www.violanews.com/news-viola/stampa/gazzetta-sulla-formazione-ndour-sohm-e-fortini-chi-trovera-spazio-a-milano/)
+
+
 ### swansea – manchester city (N/A, Wed, 29 Oct 2025 12:10:00 -0700)
 
 - **How to Watch Swansea vs. Man City on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-swansea-vs-man-city-tv-live-stream-10-29-25)
