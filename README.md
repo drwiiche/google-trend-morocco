@@ -1,3 +1,17 @@
+### om (N/A, Wed, 29 Oct 2025 15:00:00 -0700)
+
+- **SP verliest ook met Jimmy Dijk voor tiende keer in tien jaar**: [Link](https://www.nrc.nl/nieuws/2025/10/29/sp-verliest-ook-met-jimmy-dijk-voor-tiende-keer-in-tien-jaar-a4911288)
+- **SP onderuit van vijf naar drie: 'Een ramp'**: [Link](https://www.rtl.nl/nieuws/politiek/video/500be37c-e2a7-4e11-84a2-da9e37ddd792/sp-onderuit-van-vijf-naar-drie-een-ramp)
+- **Ontzetting bij aanhang SP na zetelverlies SP in exitpoll**: [Link](https://nieuws.nl/politiek/ontzetting-bij-aanhang-sp-na-zetelverlies-sp-in-exitpoll-vwJTmO)
+
+
+### marseille vs angers (N/A, Wed, 29 Oct 2025 15:00:00 -0700)
+
+- **Preview:Marseille vs Angers - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/marseille/preview/marseille-vs-angers-prediction-team-news-lineups_584441.html)
+- **Pierre Hojbjerg vs. Angers SCO – Player props & odds to score a goal on October 29**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/29/pierre-hojbjerg-soccer-player-props-10-29-2025/86958564007/)
+- **Roberto De Zerbi rules out Leonardo Balerdi for Marseille’s clash against Angers**: [Link](https://sports.yahoo.com/article/roberto-zerbi-rules-leonardo-balerdi-131500757.html)
+
+
 ### كولن ضد البايرن (N/A, Wed, 29 Oct 2025 14:30:00 -0700)
 
 - **بعد 22 عاماً من الثمانية التاريخية.. بايرن يجدد الموعد مع كولن في كأس ألمانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-22-%D8%B9%D8%A7%D9%85%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%AB%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9--%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%B9-%D9%83%D9%88%D9%84%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7/blt45d0cc478c621748)
