@@ -1,3 +1,10 @@
+### benfica – tondela (N/A, Wed, 29 Oct 2025 15:10:00 -0700)
+
+- **Benfica 1–0 Tondela | Otamendi inaugura o marcador de penálti**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/veja-o-onze-do-benfica-para-o-jogo-com-o-tondela)
+- **Benfica com cinco mudanças no onze na Taça da Liga**: [Link](https://www.jn.pt/desporto/artigo/benfica-com-cinco-mudancas-no-onze-na-taca-da-liga/18014094)
+- **VAR alertou árbitro para este penálti (polémico?) para o Benfica**: [Link](https://www.noticiasaominuto.com/desporto/2879400/var-alertou-arbitro-para-este-penalti-polemico-para-o-benfica)
+
+
 ### om (N/A, Wed, 29 Oct 2025 15:00:00 -0700)
 
 - **SP verliest ook met Jimmy Dijk voor tiende keer in tien jaar**: [Link](https://www.nrc.nl/nieuws/2025/10/29/sp-verliest-ook-met-jimmy-dijk-voor-tiende-keer-in-tien-jaar-a4911288)
