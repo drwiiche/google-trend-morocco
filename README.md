@@ -1,3 +1,10 @@
+### examen (N/A, Wed, 29 Oct 2025 06:40:00 -0700)
+
+- **Permis de conduire: présentation du modèle de la voiture intelligente «Smart Drive Test»**: [Link](https://fr.le360.ma/societe/permis-de-conduire-presentation-du-modele-de-la-voiture-intelligente-smart-drive-test_C4AHSL7XKJDFPK5HL5E75PIQI4/)
+- **"Smart Drive Test", une voiture intelligente pour l’examen du permis de conduire**: [Link](https://medias24.com/2025/10/29/smart-drive-test-une-voiture-intelligente-pour-lexamen-du-permis-de-conduire/)
+- **Permis de conduire : voici la voiture intelligente destinée aux examens**: [Link](https://lematin.ma/societe/permis-de-conduire-voici-la-voiture-intelligente-destinee-aux-examens/310387)
+
+
 ### derby (N/A, Wed, 29 Oct 2025 04:20:00 -0700)
 
 - **Bondholders back new awards celebrating those who make an impact**: [Link](https://www.marketingderby.co.uk/news/bondholders-back-new-awards-celebrating-those-who-make-an-impact/)
