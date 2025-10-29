@@ -1,3 +1,10 @@
+### league cup (N/A, Wed, 29 Oct 2025 12:30:00 -0700)
+
+- **2025–26 Carabao Cup Quarterfinal Draw: Date, Time, Qualified Teams**: [Link](https://www.si.com/soccer/2025-26-carabao-cup-quarterfinal-draw-date-time-qualified-teams)
+- **Arsenal, Man City, Liverpool and Newcastle all in EFL action shortly**: [Link](https://onefootball.com/en/news/arsenal-man-city-liverpool-and-newcastle-all-in-efl-action-shortly-41874135)
+- **ALEX CROOK PREVIEW: EFL Cup Midweek – Football & Racing News**: [Link](https://www.starsportsbet.co.uk/alex-crook-preview-efl-cup-midweek/)
+
+
 ### nantes – monaco (N/A, Wed, 29 Oct 2025 13:30:00 -0700)
 
 - **À quelle heure et sur quelle chaîne voir le match Nantes-Monaco ?**: [Link](https://www.lequipe.fr/Football/Actualites/Nantes-monaco-a-quelle-heure-et-sur-quelle-chaine-voir-le-match/1605619)
