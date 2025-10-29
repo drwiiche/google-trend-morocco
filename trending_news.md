@@ -1,3 +1,10 @@
+### كأس الملك (N/A, Tue, 28 Oct 2025 12:30:00 -0700)
+
+- **موعد قرعة ربع نهائي كأس الملك السعودي 2025-2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B9%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2025-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt12b58ad4d699e118)
+- **النصر ضد الاتحاد.. تعرف على قائمة المتأهلين لربع نهائى كأس خادم الحرمين**: [Link](https://www.youm7.com/story/2025/10/29/%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%87%D9%84%D9%8A%D9%86-%D9%84%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%89-%D9%83%D8%A3%D8%B3/7176326)
+- **جدول مباريات اليوم في دور الـ 16 من كأس الملك**: [Link](https://hihi2.com/2025/10/28/p3447963.html)
+
+
 ### have i been pwned (N/A, Wed, 29 Oct 2025 02:20:00 -0700)
 
 - **Urgent alert issued to anyone who uses Gmail after 183 million passwords are leaked**: [Link](https://www.the-independent.com/tech/gmail-passwords-leaked-data-breach-login-security-b2854234.html)
