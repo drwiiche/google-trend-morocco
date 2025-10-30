@@ -1,3 +1,10 @@
+### outlook (N/A, Thu, 30 Oct 2025 09:10:00 -0700)
+
+- **Chipotle stock craters as company says young people without jobs can't afford their food anymore**: [Link](https://finance.yahoo.com/news/chipotle-stock-craters-as-company-says-young-people-without-jobs-cant-afford-their-food-anymore-155415667.html)
+- **Chipotle stock craters as Wall Street grows concerned after company cuts forecast**: [Link](https://www.cnbc.com/2025/10/30/chipotle-stock-falls-after-q3-earnings-report.html)
+- **Chipotle CEO Scott Boatwright: Gen Z, millennials are cutting back on dining out due to student loans, unemployment**: [Link](https://fortune.com/2025/10/30/chipotle-ceo-american-economy-gen-z-millennials-pulling-back/)
+
+
 ### wole soyinka (N/A, Thu, 30 Oct 2025 09:30:00 -0700)
 
 - **Nigerian Nobel laureate Wole Soyinka says US revokes his visa**: [Link](https://www.reuters.com/world/us/nigerian-nobel-laureate-wole-soyinka-says-us-revokes-his-visa-2025-10-28/)
