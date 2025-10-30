@@ -1,3 +1,9 @@
+### bilal nadir (N/A, Thu, 30 Oct 2025 00:00:00 -0700)
+
+- **Reassuring News for Bilal Nadir After Frightening On-Field Collapse Scare**: [Link](https://www.moroccoworldnews.com/2025/10/265873/reassuring-news-for-bilal-nadir-after-frightening-on-field-collapse-scare/)
+- **Marseille provide update on Bilal Nadir after ‘health scare’ during Angers draw**: [Link](https://www.getfootballnewsfrance.com/2025/marseille-provide-update-on-bilal-nadir-after-health-scare-during-angers-draw/)
+
+
 ### mohamed tozy (N/A, Thu, 30 Oct 2025 00:50:00 -0700)
 
 - **Mohamed Tozy nommé doyen du Collège des Sciences sociales de l’UIR**: [Link](https://lematin.ma/enseignement/mohamed-tozy-nomme-doyen-du-college-des-sciences-sociales-de-luir/310480)
