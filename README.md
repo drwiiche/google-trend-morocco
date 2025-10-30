@@ -1,3 +1,17 @@
+### pise – lazio (N/A, Thu, 30 Oct 2025 13:00:00 -0700)
+
+- **LIVE Alle 20.45 Pisa-Lazio: Moreo e Nzola per Gila, Sarri con Dia e Zaccagni**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Pisa/30-10-2025/pisa-lazio-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Pisa-Lazio, Gilardino: "Conosciamo la Lazio e le sue qualità ma siamo positivi"**: [Link](https://onefootball.com/pt-br/noticias/pisa-lazio-gilardino-conosciamo-la-lazio-e-le-sue-qualita-ma-siamo-positivi-41880826)
+- **Pisa-Lazio, nerazzurri a caccia del primo squillo in campionato. Segui la diretta del match**: [Link](https://sport.quotidiano.net/calcio/pisa/pisa-lazio-diretta-t10xqmpa)
+
+
+### cameroun (N/A, Thu, 30 Oct 2025 13:00:00 -0700)
+
+- **S.M. le Roi félicite M. Paul Biya à l'occasion de sa réélection à la présidence de la République du Cameroun**: [Link](https://lematin.ma/activites-royales/sm-le-roi-felicite-m-paul-biya-a-loccasion-de-sa-reelection/310424)
+- **Présidentielle au Cameroun: le gouvernement admet des morts, l'UE déplore la "répression violente"**: [Link](https://medias24.com/agence-presse/presidentielle-au-cameroun-le-gouvernement-admet-des-morts-lue-deplore-la-repression-violente/)
+- **Paul Biya réélu au Cameroun : pourquoi une partie de l'opposition, les syndicats et l'Église restent silencieux**: [Link](https://afrique.tv5monde.com/information/paul-biya-reelu-au-cameroun-pourquoi-une-partie-de-lopposition-les-syndicats-et-leglise)
+
+
 ### hakim benotmane (N/A, Thu, 30 Oct 2025 12:00:00 -0700)
 
 - **« Mythomane », « imposteur » : pourquoi Anthony Bourbon et Hakim Benotmane s’accusent mutuellement d’arnaques**: [Link](https://www.leparisien.fr/economie/business/mythomane-imposteur-pourquoi-anthony-bourbon-et-hakim-benotmane-saccusent-mutuellement-darnaques-29-10-2025-N22TC5PKLJFH5EE75RQY5YJMSE.php)
