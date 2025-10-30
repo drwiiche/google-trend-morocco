@@ -1,3 +1,10 @@
+### wole soyinka (N/A, Thu, 30 Oct 2025 09:30:00 -0700)
+
+- **Nigerian Nobel laureate Wole Soyinka says US revokes his visa**: [Link](https://www.reuters.com/world/us/nigerian-nobel-laureate-wole-soyinka-says-us-revokes-his-visa-2025-10-28/)
+- **Wole Soyinka Banned From U S After Trump Criticism**: [Link](https://evrimagaci.org/gpt/wole-soyinka-banned-from-u-s-after-trump-criticism-514335)
+- **Wole Soyinka found his visa revoked after saying Trump resembled a “white Idi Amin.”**: [Link](https://ca.news.yahoo.com/wole-soyinka-found-visa-revoked-153458226.html)
+
+
 ### bilal nadir (N/A, Thu, 30 Oct 2025 00:00:00 -0700)
 
 - **Reassuring News for Bilal Nadir After Frightening On-Field Collapse Scare**: [Link](https://www.moroccoworldnews.com/2025/10/265873/reassuring-news-for-bilal-nadir-after-frightening-on-field-collapse-scare/)
