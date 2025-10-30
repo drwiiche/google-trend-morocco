@@ -1,3 +1,10 @@
+### hakim benotmane (N/A, Thu, 30 Oct 2025 12:00:00 -0700)
+
+- **« Mythomane », « imposteur » : pourquoi Anthony Bourbon et Hakim Benotmane s’accusent mutuellement d’arnaques**: [Link](https://www.leparisien.fr/economie/business/mythomane-imposteur-pourquoi-anthony-bourbon-et-hakim-benotmane-saccusent-mutuellement-darnaques-29-10-2025-N22TC5PKLJFH5EE75RQY5YJMSE.php)
+- **"Il se fait défoncer" : Anthony Bourbon monte au créneau à cause d'un deal annulé, Tony Parker mêlé à la polémique**: [Link](https://www.melty.fr/people/il-se-fait-defoncer-anthony-bourbon-monte-au-creneau-a-cause-dun-deal-annule-tony-parker-mele-a-la-polemique-2272311.html)
+- **« Arnaqueur », « mytho »… Le clash d’Anthony Bourbon et Hakim Benotmane secoue la French Tech**: [Link](https://entrevue.fr/societe/arnaqueur-mytho-le-clash-danthony-bourbon-et-hakim-benotmane-secoue-la-french-tech/)
+
+
 ### outlook (N/A, Thu, 30 Oct 2025 09:10:00 -0700)
 
 - **Chipotle stock craters as company says young people without jobs can't afford their food anymore**: [Link](https://finance.yahoo.com/news/chipotle-stock-craters-as-company-says-young-people-without-jobs-cant-afford-their-food-anymore-155415667.html)
