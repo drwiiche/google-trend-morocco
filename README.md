@@ -1,3 +1,17 @@
+### weather (N/A, Wed, 29 Oct 2025 23:30:00 -0700)
+
+- **Today’s weather forecast – Thursday, October 30**: [Link](https://fermanaghherald.com/2025/10/todays-weather-forecast-thursday-october-30/)
+- **Overcast morning, drizzle afternoon: Patchy rain tomorrow**: [Link](https://www.abergavennychronicle.com/weather-forecasts/moderate-rain-and-drizzle-persist-into-the-evening-846600)
+- **Oct. 29 weather: Gusty winds and high around 12 C in southern Ontario**: [Link](https://www.insauga.com/oct-29-weather-gusty-winds-and-high-around-12-c-in-southern-ontario/)
+
+
+### طقس اليوم (N/A, Wed, 29 Oct 2025 22:50:00 -0700)
+
+- **"منخفض جوي أطلسي" يجلب أمطارا وزخات متفرقة نحو الشمال المغربي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%A3%D8%B7%D9%84%D8%B3%D9%8A-%D9%8A%D8%AC%D9%84%D8%A8-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1%D8%A7-%D9%88%D8%B2%D8%AE%D8%A7-1647506.html)
+- **طقس الجمعة.. كتل ضبابية مع انخفاض متوقع في درجة الحرارة**: [Link](https://ar.telquel.ma/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D8%A7%D8%A6%D9%85%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1/)
+- **منخفض جوي يعيد الأمطار إلى المغرب ابتداء من اليوم الأربعاء**: [Link](https://m.alayam24.com/articles-596180.html)
+
+
 ### حالة الطقس (N/A, Wed, 29 Oct 2025 22:50:00 -0700)
 
 - **تحذيرات من طقس غير مستقر وأمطار متفرقة اليوم**: [Link](https://elkanananews.com/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D8%B7%D9%82%D8%B3-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%AA%D9%82%D8%B1-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%B1%D9%82%D8%A9/)
