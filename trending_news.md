@@ -1,3 +1,10 @@
+### mohamed tozy (N/A, Thu, 30 Oct 2025 00:50:00 -0700)
+
+- **Mohamed Tozy nommé doyen du Collège des Sciences sociales de l’UIR**: [Link](https://lematin.ma/enseignement/mohamed-tozy-nomme-doyen-du-college-des-sciences-sociales-de-luir/310480)
+- **L’Université Internationale de Rabat nomme le Professeur Mohamed TOZY Doyen du Collège des Sciences Sociales**: [Link](https://telquel.ma/sponsors/luniversite-internationale-de-rabat-nomme-le-professeur-mohamed-tozy-doyen-du-college-des-sciences-sociales_1958144)
+- **Mohamed Tozy nommé Doyen des Sciences Sociales à l'Université Internationale de Rabat**: [Link](https://www.yabiladi.com/articles/details/179965/mohamed-tozy-nomme-doyen-sciences.html)
+
+
 ### weather (N/A, Wed, 29 Oct 2025 23:30:00 -0700)
 
 - **Today’s weather forecast – Thursday, October 30**: [Link](https://fermanaghherald.com/2025/10/todays-weather-forecast-thursday-october-30/)
