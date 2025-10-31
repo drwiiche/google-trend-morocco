@@ -1,3 +1,10 @@
+### vote onu sahara marocain (N/A, Fri, 31 Oct 2025 07:30:00 -0700)
+
+- **Sahara occidental : dans les coulisses des dernières heures avant le vote à l’ONU**: [Link](https://www.jeuneafrique.com/1736346/politique/sahara-dans-les-coulisses-des-dernieres-heures-avant-le-vote-a-lonu/)
+- **Sahara. Ce que dit le projet de résolution de l'ONU dans sa dernière version**: [Link](https://medias24.com/2025/10/30/sahara-ce-que-dit-le-projet-de-resolution-de-lonu-dans-sa-derniere-version/)
+- **n°1120. Sahara : au Conseil de sécurité, le dernier mile entre le Maroc et l’Algérie**: [Link](https://ledesk.ma/enclair/sahara-au-conseil-de-securite-le-dernier-mile-entre-le-maroc-et-lalgerie/)
+
+
 ### claude (N/A, Fri, 31 Oct 2025 02:20:00 -0700)
 
 - **EN IMAGES. « Il innove tout le temps » : Jean Dujardin conquis par le Ciné-bistrot de Claude**: [Link](https://lemans.maville.com/actu/actudet_-en-images.-il-innove-tout-le-temps-jean-dujardin-conquis-par-le-cine-bistrot-de-claude-lelouch-_-7043747_actu.Htm)
