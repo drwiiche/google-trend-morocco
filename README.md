@@ -1,3 +1,10 @@
+### al-hilal – al shabab (N/A, Fri, 31 Oct 2025 07:20:00 -0700)
+
+- **Al Hilal - Al Shabab: What time and on which channel to watch the match live?**: [Link](https://foot-africa.com/en/news/al-hilal-al-shabab-what-time-and-on-which-channel-to-watch-the-match-live-940103/)
+- **Al-Hilal Set to Host Al Shabab in Saudi Pro League Clash on October 31, 2025**: [Link](https://news.ssbcrack.com/al-hilal-set-to-host-al-shabab-in-saudi-pro-league-clash-on-october-31-2025/)
+- **Al-Hilal vs Al-Shabab: Live streaming, TV channel, kick-off time & where to watch Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-hilal-vs-al-shabab-where-to-watch-saudi-pro-league-202510)
+
+
 ### hanane mansouri (N/A, Fri, 31 Oct 2025 05:40:00 -0700)
 
 - **Dénonciation des accords de 1968 avec l’Algérie : la députée UDR Hanane Mansouri qualifiée de «caution» par un élu LFI**: [Link](https://www.lefigaro.fr/politique/denonciation-des-accords-de-1968-avec-l-algerie-la-deputee-udr-hanane-mansouri-qualifiee-de-caution-par-un-elu-lfi-20251030)
