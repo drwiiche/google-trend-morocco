@@ -1,3 +1,38 @@
+### خطاب الملك محمد السادس اليوم مباشر (N/A, Fri, 31 Oct 2025 13:10:00 -0700)
+
+- **التنمية الترابية..**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-1646486.html)
+- **ما بعد الخطاب السامي**: [Link](https://www.alayam.com/Article/courts-article/424835/index.html)
+- **الحكامة، والعدالة المجالية…حديث في العمق**: [Link](https://al3omk.com/1112068.html)
+
+
+### discours roi maroc (N/A, Fri, 31 Oct 2025 13:10:00 -0700)
+
+- **Sahara : le texte intégral du discours royal**: [Link](https://telquel.ma/instant-t/2025/10/31/sahara-le-texte-integral-du-discours-royal_1958855/)
+- **URGENT. Sahara: Le Roi Mohammed VI s'adresse à la Nation**: [Link](https://medias24.com/2025/10/31/urgent-sahara-le-roi-mohammed-vi-sadresse-a-la-nation/)
+- **Sahara: le Conseil de sécurité de l’ONU adopte une résolution historique qui consacre l’autonomie sous souveraineté marocaine**: [Link](https://fr.le360.ma/politique/sahara-le-conseil-de-securite-de-lonu-adopte-une-resolution-historique-qui-consacre-lautonomie-sous_NLN7W4NPXRBCDHB5JALWIDLXVI/)
+
+
+### getafe vs girona (N/A, Fri, 31 Oct 2025 13:10:00 -0700)
+
+- **Arnau Martinez vs. Getafe CF – Player props & odds to score a goal on October 31**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/arnau-martinez-soccer-player-props-10-31-2025/87001578007/)
+- **Where to Watch Getafe CF vs. Girona FC: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/10/30/where-to-watch-getafe-cf-vs-girona-fc-tv-channel-start-time-and-live-stream/)
+- **Getafe Hosts Struggling Girona in Coliseum Showdown**: [Link](https://www.el-balad.com/6750968)
+
+
+### map (N/A, Fri, 31 Oct 2025 13:10:00 -0700)
+
+- **Ohio Republicans Push Through New Districts in Bid for More Seats in Congress**: [Link](https://www.nytimes.com/2025/10/30/us/politics/ohio-redistricting-deal.html)
+- **Ohio lawmakers pass new congressional map after reaching an unexpected deal**: [Link](https://www.nbcnews.com/politics/elections/ohio-lawmakers-unexpected-deal-new-congressional-map-rcna240741)
+- **Ohio approves new House map giving Republicans a leg up in two more seats**: [Link](https://www.washingtonpost.com/politics/2025/10/31/ohio-redistricting-trump-elections/)
+
+
+### الأمم المتحدة (N/A, Fri, 31 Oct 2025 12:30:00 -0700)
+
+- **الأمم المتحدة تدعو لتحقيق مستقل وسريع في مجازر الفاشر**: [Link](https://www.aljazeera.net/news/2025/10/31/%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%AA%D8%AF%D8%B9%D9%88-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%85%D8%B3%D8%AA%D9%82%D9%84-%D9%88%D8%B3%D8%B1%D9%8A%D8%B9)
+- **أبو لولو: ماذا نعرف عن "جزّار الفاشر"، وكيف رأى سودانيون خبر اعتقاله؟**: [Link](https://www.bbc.com/arabic/articles/cnverv4l13vo)
+- **مندوب الإمارات: الجيش والدعم السريع خارج مستقبل السودان**: [Link](https://www.skynewsarabia.com/middle-east/1830656-%D9%85%D9%86%D8%AF%D9%88%D8%A8-%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%88%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%B3%D8%B1%D9%8A%D8%B9-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86)
+
+
 ### alyaoum24 (N/A, Fri, 31 Oct 2025 13:00:00 -0700)
 
 
