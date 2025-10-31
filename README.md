@@ -1,3 +1,17 @@
+### 5g maroc (N/A, Fri, 31 Oct 2025 11:10:00 -0700)
+
+- **Morocco Set to Launch 5G in November as Final Decree Nears Approval**: [Link](https://www.moroccoworldnews.com/2025/10/265839/morocco-set-to-launch-5g-in-november-as-final-decree-nears-approval/)
+- **Morocco grants 5G network licenses to Maroc Telecom, Médi Telecom, and Wana Corporate**: [Link](https://en.yabiladi.com/articles/details/180107/morocco-grants-network-licenses-maroc.html)
+- **Morocco Awards 5G Licenses to Maroc Telecom, Orange Maroc, and inwi**: [Link](https://barlamantoday.com/2025/10/31/morocco-awards-5g-licenses-to-maroc-telecom-orange-maroc-and-inwi/)
+
+
+### sahara (N/A, Fri, 31 Oct 2025 10:50:00 -0700)
+
+- **UN set to vote on a resolution backing Morocco’s plan for Western Sahara, in a major shift**: [Link](https://apnews.com/article/un-western-sahara-morocco-peacekeeping-force-0a07d389db0e88c35beeb5f0462ea221)
+- **Western Sahara: US goes on offensive at UN to defend autonomy under Moroccan sovereignty**: [Link](https://www.lemonde.fr/en/le-monde-africa/article/2025/10/29/western-sahara-us-goes-on-offensive-at-un-to-defend-autonomy-under-moroccan-sovereignty_6746884_124.html)
+- **What’s in Blue: Autonomy Plan Under Morocco’s Sovereignty is Genuine Political Solution**: [Link](https://www.moroccoworldnews.com/2025/10/265995/whats-in-blue-autonomy-plan-under-moroccos-sovereignty-is-genuine-political-solution/)
+
+
 ### kings league (N/A, Fri, 31 Oct 2025 10:40:00 -0700)
 
 - **Marcelo goes viral after an incredible nutmeg in Gerard Piqué’s Kings League**: [Link](https://www.mundodeportivo.com/us/en/20251031/733679/marcelo-goes-viral-after-an-incredible-nutmeg-in-gerard-pique-s-kings-league.html)
