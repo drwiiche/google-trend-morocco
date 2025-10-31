@@ -1,3 +1,10 @@
+### medias24 (N/A, Fri, 31 Oct 2025 13:20:00 -0700)
+
+- **Cash Plus annonce son entrée à la Bourse de Casablanca**: [Link](https://ledesk.ma/encontinu/cash-plus-annonce-son-entree-a-la-bourse-de-casablanca/)
+- **Cash Plus obtient le feu vert de l'AMMC pour son introduction en bourse**: [Link](https://medias24.com/2025/10/31/cash-plus-obtient-le-feu-vert-de-lammc-pour-son-introduction-en-bourse/)
+- **IPO : L’AMMC donne son feu vert à Cash Plus**: [Link](https://www.lavieeco.com/argent/ipo-lammc-donne-son-feu-vert-a-cash-plus/)
+
+
 ### maroc (N/A, Fri, 31 Oct 2025 13:10:00 -0700)
 
 - **Sahara occidental : les Etats-Unis à l’offensive à l’ONU pour défendre une autonomie sous souveraineté du Maroc**: [Link](https://www.lemonde.fr/afrique/article/2025/10/29/sahara-occidental-un-vote-decisif-a-l-onu-pour-l-avenir-du-territoire-conteste_6650123_3212.html)
