@@ -1,3 +1,10 @@
+### هذا البحر سوف يفيض (N/A, Fri, 31 Oct 2025 16:30:00 -0700)
+
+- **4 Taşacak Bu Deniz الان مسلسل هذا البحر سوف يفيض الحلقة 4 على تردد كل القنوات**: [Link](https://zahraa.mr/6042078/4-tasacak-bu-deniz-%D8%A7%D9%84%D8%A7%D9%86-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%B3%D9%88%D9%81-%D9%8A%D9%81%D9%8A%D8%B6-%D8%A7%D9%84%D8%AD%D9%84%D9%82/)
+- **مسلسل Taşacak Bu Deniz الجديد على TRT 1 يتصدر الترتيب في AB**: [Link](https://newturkpost.com/news/112193-%D9%85%D8%B3%D9%84%D8%B3%D9%84-ta%C5%9Facak-bu-deniz-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%84%D9%89-trt-1-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%81%D9%8A-ab-)
+- **مسلسل هذا البحر سوف يفيض – دراما تركية جديدة تبهر المشاهدين على موقع قصة عشق الأصلي**: [Link](https://www.sba7egypt.com/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%B3%D9%88%D9%81-%D9%8A%D9%81%D9%8A%D8%B6-%D8%AF%D8%B1%D8%A7%D9%85%D8%A7-%D8%AA%D8%B1%D9%83%D9%8A%D8%A9/)
+
+
 ### morocco (N/A, Fri, 31 Oct 2025 13:20:00 -0700)
 
 - **UN approves resolution supporting Morocco’s claim to Western Sahara**: [Link](https://www.theguardian.com/world/2025/oct/31/un-approves-resolution-supporting-moroccos-claim-to-western-sahara)
