@@ -1,3 +1,10 @@
+### comète 3i atlas (N/A, Thu, 30 Oct 2025 10:20:00 -0700)
+
+- **Astronomer Suspects Mysterious Object Is Up to No Good While It's Hidden Behind the Sun: "If You Want to Take a Vacation, Take It Before Then"**: [Link](https://futurism.com/space/avi-loeb-3i-atlas-object-hidden-behind-sun)
+- **Awakening an interstellar wanderer: Surprising nickel detection in Comet 3I/ATLAS**: [Link](https://www.space.com/astronomy/comets/awakening-an-interstellar-wanderer-surprising-nickel-detection-in-comet-3i-atlas)
+- **The Acid Test of 3I/ATLAS at Perihelion**: [Link](https://avi-loeb.medium.com/the-acid-test-of-3i-atlas-at-perihelion-ce131eca8485)
+
+
 ### pise – lazio (N/A, Thu, 30 Oct 2025 13:00:00 -0700)
 
 - **LIVE Alle 20.45 Pisa-Lazio: Moreo e Nzola per Gila, Sarri con Dia e Zaccagni**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Pisa/30-10-2025/pisa-lazio-live-risultato-e-gol-in-diretta-serie-a.shtml)
