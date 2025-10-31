@@ -1,3 +1,16 @@
+### kings league (N/A, Fri, 31 Oct 2025 10:40:00 -0700)
+
+- **Marcelo goes viral after an incredible nutmeg in Gerard Piqué’s Kings League**: [Link](https://www.mundodeportivo.com/us/en/20251031/733679/marcelo-goes-viral-after-an-incredible-nutmeg-in-gerard-pique-s-kings-league.html)
+- **Marcello starts a new chapter with football.. a big return throuth the Kings League!**: [Link](https://foot-africa.com/en/news/marcello-starts-a-new-chapter-with-football-a-big-return-throuth-the-kings-league-941705/)
+
+
+### accords franco algériens (N/A, Fri, 31 Oct 2025 10:40:00 -0700)
+
+- **Dans la Casbah d’Alger, colère et lassitude après la remise en cause de l’accord de 1968**: [Link](https://www.liberation.fr/international/afrique/dans-la-casbah-dalger-colere-et-lassitude-apres-la-denonciation-de-laccord-de-1968-20251030_4ODP7PTOLNA5DBA2ZVPSC6UPGE/)
+- **Accord France-Algérie: et maintenant, que va-t-il se passer après la victoire du RN à l'Assemblée?**: [Link](https://www.bfmtv.com/international/afrique/algerie/video-accord-france-algerie-et-maintenant-que-va-t-il-se-passer-apres-la-victoire-du-rn-a-l-assemblee_VN-202510310599.html)
+- **Le vote de l’Assemblée pour « dénoncer » l’accord migratoire de 1968, un nouvel obstacle à l’apaisement entre la France et l’Algérie**: [Link](https://www.lemonde.fr/international/article/2025/10/31/accord-franco-algerien-de-1968-le-vote-de-l-assemblee-nationale-francaise-un-nouvel-obstacle-a-l-apaisement-entre-paris-et-alger_6650591_3210.html)
+
+
 ### onu (N/A, Fri, 31 Oct 2025 09:30:00 -0700)
 
 - **Reuters: El Consejo de Seguridad de la ONU fija la fecha para votar la resolución que respalda el plan de autonomía marroquí para el Sáhara**: [Link](https://chamaly.ma/2025/10/30/reuters-el-consejo-de-seguridad-de-la-onu-fija-la-fecha-para-votar-la-resolucion-que-respalda-el-plan-de-autonomia-marroqui-para-el-sahara/)
