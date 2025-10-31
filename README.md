@@ -1,3 +1,17 @@
+### goud (N/A, Fri, 31 Oct 2025 12:40:00 -0700)
+
+- **"Full Circle": Mohammad Azharuddin To NDTV After Taking Ministerial Oath**: [Link](https://www.ndtv.com/india-news/full-circle-mohammad-azharuddin-to-ndtv-after-taking-ministerial-oath-9551100)
+- **Mohammed Azharuddin sworn in as a cabinet minister in Telangana**: [Link](https://timesofindia.indiatimes.com/city/hyderabad/mohammed-azharuddin-sworn-in-as-a-cabinet-minister-in-telangana/articleshow/124988217.cms)
+- **Former cricketer Azharuddin sworn in as Telangana Minister**: [Link](https://www.thehindu.com/news/national/telangana/azharuddin-sworn-in-as-minister-in-telangana-cabinet/article70224523.ece)
+
+
+### مسيرة الخضراء (N/A, Fri, 31 Oct 2025 12:30:00 -0700)
+
+- **احتفالات المسيرة تنطلق بمدينة العيون**: [Link](https://www.hespress.com/%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%AA%D9%86%D8%B7%D9%84%D9%82-%D8%A8%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D9%88%D9%86-1648520.html)
+- **ورزازات... ذاكرة 20 ألف متطوع لبّوا نداء المسيرة الخضراء**: [Link](https://2m.ma/ar/news/%D9%88%D8%B1%D8%B2%D8%A7%D8%B2%D8%A7%D8%AA-%D8%B0%D8%A7%D9%83%D8%B1%D8%A9-20-%D8%A3%D9%84%D9%81-%D9%85%D8%AA%D8%B7%D9%88%D8%B9-%D9%84%D8%A8-%D9%88%D8%A7-%D9%86%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D8%A7%D8%A1-20251027)
+- **بحضور العداءة كردادي.. انطلاق المرحلة السادسة من سباق التناوب الرمزي المسيرة الخضراء**: [Link](https://ar.telquel.ma/%D8%A8%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D8%A7%D8%A1%D8%A9-%D9%88%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9/)
+
+
 ### getafe – girona (N/A, Fri, 31 Oct 2025 12:20:00 -0700)
 
 - **Para pasarlo de miedo**: [Link](https://as.com/futbol/primera/para-pasarlo-de-miedo-f202510-n/)
