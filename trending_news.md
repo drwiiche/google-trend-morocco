@@ -1,3 +1,17 @@
+### المغرب (N/A, Fri, 31 Oct 2025 15:40:00 -0700)
+
+- **10 ملايين يورو سبب استبعاد ميسي والأرجنتين عن مواجهة "الأسود" بالمغرب**: [Link](https://m.elbotola.com/article/2025-10-31-12-01-354.html)
+- **المغرب يقول "لا" للأرجنتين**: [Link](https://www.almountakhab.com/node/13219124)
+- **كواليس فشل مفاوضات الجامعة الملكية مع الاتحاد الأرجنتيني لإقامة ودية افتتاح ملعب ابن بطوطة**: [Link](https://tanjaoua.ma/264061/%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D9%81%D8%B4%D9%84-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D9%85%D8%B9/)
+
+
+### maps (N/A, Fri, 31 Oct 2025 15:40:00 -0700)
+
+- **Ohio Republicans Push Through New Districts in Bid for More Seats in Congress**: [Link](https://www.nytimes.com/2025/10/30/us/politics/ohio-redistricting-deal.html)
+- **Ohio lawmakers pass new congressional map after reaching an unexpected deal**: [Link](https://www.nbcnews.com/politics/elections/ohio-lawmakers-unexpected-deal-new-congressional-map-rcna240741)
+- **Ohio approves new House map giving Republicans a leg up in two more seats**: [Link](https://www.washingtonpost.com/politics/2025/10/31/ohio-redistricting-trump-elections/)
+
+
 ### medias24 (N/A, Fri, 31 Oct 2025 13:20:00 -0700)
 
 - **Cash Plus annonce son entrée à la Bourse de Casablanca**: [Link](https://ledesk.ma/encontinu/cash-plus-annonce-son-entree-a-la-bourse-de-casablanca/)
