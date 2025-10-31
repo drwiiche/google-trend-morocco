@@ -1,3 +1,24 @@
+### hibapress (N/A, Fri, 31 Oct 2025 12:10:00 -0700)
+
+- **نجاح لطيفة أحرار في مباراة يثير جدلا**: [Link](https://www.hespress.com/%D9%86%D8%AC%D8%A7%D8%AD-%D9%84%D8%B7%D9%8A%D9%81%D8%A9-%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%AC%D8%AF%D9%84%D8%A7-1648473.html)
+- **فضيحة بوزارة الثقافة بطلاها بنسعيد وأحرار**: [Link](https://www.achkayen.com/650534/.html)
+- **"أحرار" تواجه انتقادات بعد نجاحها في مباراة التدريس بمعهد ISADAC الذي تديره**: [Link](https://al3omk.com/1112798.html)
+
+
+### united nations (N/A, Fri, 31 Oct 2025 12:10:00 -0700)
+
+- **U.N. Says Strikes on Boats Trump Claims Are Smuggling Drugs Are Illegal**: [Link](https://www.nytimes.com/2025/10/31/world/americas/un-us-military-boat-strikes.html)
+- **Maddow Blog | Pentagon concedes Trump admin. doesn’t know who it’s killed in boat strikes**: [Link](https://www.yahoo.com/news/articles/maddow-blog-pentagon-concedes-trump-183611825.html)
+- **U.S. boat strikes spread fear across the Caribbean**: [Link](https://www.washingtonpost.com/world/2025/10/31/united-states-boat-strikes-caribbean-trinidad/)
+
+
+### conseil de sécurité des nations unies (N/A, Fri, 31 Oct 2025 12:10:00 -0700)
+
+- **Soudan : les preuves en images des exécutions massives lors de la prise d’El-Fasher par les paramilitaires des FSR**: [Link](https://www.lemonde.fr/afrique/article/2025/10/30/soudan-a-el-fasher-les-preuves-en-images-des-exactions-des-fsr-qui-ont-pris-le-controle-de-la-ville_6650317_3212.html)
+- **À El Fasher, la tragédie soudanaise resurgit dans l’horreur**: [Link](https://telquel.ma/2025/10/31/a-el-fasher-la-tragedie-soudanaise-resurgit-dans-lhorreur_1958794)
+- **Soudan: les paramilitaires disent avoir arrêté des combattants soupçonnés d'exactions**: [Link](https://medias24.com/agence-presse/soudan-les-paramilitaires-disent-avoir-arrete-des-combattants-soupconnes-dexactions/)
+
+
 ### aljazeera (N/A, Fri, 31 Oct 2025 12:00:00 -0700)
 
 - **LIVE: Israel returns 30 bodies of prisoners to Gaza, per terms of ceasefire**: [Link](https://www.aljazeera.com/news/liveblog/2025/10/31/live-israel-bombs-south-gaza-as-palestinians-live-ceasefire-without-peace)
