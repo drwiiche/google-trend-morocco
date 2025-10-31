@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Fri, 31 Oct 2025 11:40:00 -0700)
+
+- **Sinner soffre, ma batte Cerundolo e va ai quarti a Parigi. Jannik: "Non al top, Shelton avversario difficile"**: [Link](https://www.gazzetta.it/Tennis/ATP/30-10-2025/sinner-cerundolo-live-a-parigi-risultato-in-diretta.shtml)
+- **Tennis Tracker: Sinner in campo contro Shelton a Parigi (0-0), avanzano Auger-Aliassime e Bublik**: [Link](https://www.diretta.it/news/tennis-parigi-atp-singolare-tennis-tracker-sinner-in-campo-contro-shelton-a-parigi-0-0-avanzano-auger-aliassime-e-bublik/h8jlhqfE/)
+- **Sinner-Shelton all'Atp Parigi, il risultato in diretta live della partita**: [Link](https://sport.sky.it/tennis/2025/10/31/sinner-shelton-atp-parigi-risultato)
+
+
 ### 5g maroc (N/A, Fri, 31 Oct 2025 11:10:00 -0700)
 
 - **Morocco Set to Launch 5G in November as Final Decree Nears Approval**: [Link](https://www.moroccoworldnews.com/2025/10/265839/morocco-set-to-launch-5g-in-november-as-final-decree-nears-approval/)
