@@ -1,3 +1,10 @@
+### accord franco algérien 1968 (N/A, Thu, 30 Oct 2025 16:50:00 -0700)
+
+- **Pour la première fois, un texte porté par le RN a été approuvé par l’Assemblée nationale**: [Link](https://www.lemonde.fr/politique/article/2025/10/30/pour-la-premiere-fois-un-texte-porte-par-le-rn-a-ete-approuve-par-l-assemblee-nationale_6650281_823449.html)
+- **France-Algérie : Emmanuel Macron et le gouvernement dans l’embarras après le vote de l’Assemblée contre l’accord**: [Link](https://www.lefigaro.fr/politique/france-algerie-emmanuel-macron-et-le-gouvernement-dans-l-embarras-apres-le-vote-de-l-assemblee-contre-l-accord-20251030)
+- **Dans la Casbah d’Alger, colère et lassitude après la dénonciation de l’accord de 1968**: [Link](https://www.liberation.fr/international/afrique/dans-la-casbah-dalger-colere-et-lassitude-apres-la-denonciation-de-laccord-de-1968-20251030_4ODP7PTOLNA5DBA2ZVPSC6UPGE/)
+
+
 ### comète 3i atlas (N/A, Thu, 30 Oct 2025 10:20:00 -0700)
 
 - **Astronomer Suspects Mysterious Object Is Up to No Good While It's Hidden Behind the Sun: "If You Want to Take a Vacation, Take It Before Then"**: [Link](https://futurism.com/space/avi-loeb-3i-atlas-object-hidden-behind-sun)
