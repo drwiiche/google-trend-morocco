@@ -1,3 +1,29 @@
+### aljazeera (N/A, Fri, 31 Oct 2025 12:00:00 -0700)
+
+- **LIVE: Israel returns 30 bodies of prisoners to Gaza, per terms of ceasefire**: [Link](https://www.aljazeera.com/news/liveblog/2025/10/31/live-israel-bombs-south-gaza-as-palestinians-live-ceasefire-without-peace)
+- **Hamas hands over more Israeli hostage remains as U.S. officials tour Gaza Strip**: [Link](https://www.cbsnews.com/video/hamas-hands-over-more-israeli-hostage-remains-as-us-officials-tour-gaza-strip/)
+- **Palestinian militants hand over remains of two more hostages to Red Cross in Gaza**: [Link](https://www.politico.com/news/2025/10/31/palestinian-militants-hand-over-remains-of-two-more-hostages-to-red-cross-in-gaza-00631217)
+
+
+### augsbourg – dortmund (N/A, Fri, 31 Oct 2025 11:50:00 -0700)
+
+- **Wiedersehen zwischen Niko Kovač und Sandro Wagner birgt Brisanz aus alten FC-Bayern-Tagen**: [Link](https://www.absolutfussball.com/deutschland/borussia-dortmund/wiedersehen-zwischen-niko-kovac-und-sandro-wagner-birgt-brisanz-aus-alten-fc-bayern-tagen-94015436.html)
+- **Bundesliga live: Geht Wagner-Krise weiter? FCA empfängt BVB**: [Link](https://www.express.de/sport/fussball/bundesliga-alle-spiele-des-9-spieltags-im-ticker-1091029)
+- **Mit Banks und Kömür: Das ist die FCA-Startelf gegen Borussia Dortmund**: [Link](https://www.augsburger-allgemeine.de/sport/fc-augsburg/fc-augsburg-startet-mit-banks-und-koemuer-gegen-borussia-dortmund-112691265)
+
+
+### hespress (N/A, Fri, 31 Oct 2025 11:30:00 -0700)
+
+
+
+
+### ilies belmokhtar (N/A, Fri, 31 Oct 2025 10:00:00 -0700)
+
+- **Coupe du monde U17 de la FIFA Qatar-2025: Arrivée à Doha de la Sélection Nationale**: [Link](https://frmf.ma/fr/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D8%AA%D8%AD%D9%84-%D8%A8%D8%A7/)
+- **Mondial U17 : Le Maroc privé d'Ilies Belmokhtar?**: [Link](https://fr.hespress.com/447782-mondial-u17-le-maroc-prive-dilies-belmokhtar.html)
+- **Préparatifs Mondial U17 : les Lionceaux de l’Atlas s’imposent face à la Suisse**: [Link](https://lematin.ma/sports/preparatifs-mondial-u17-le-maroc-simpose-face-a-la-suisse/310835)
+
+
 ### jannik sinner (N/A, Fri, 31 Oct 2025 11:40:00 -0700)
 
 - **Sinner soffre, ma batte Cerundolo e va ai quarti a Parigi. Jannik: "Non al top, Shelton avversario difficile"**: [Link](https://www.gazzetta.it/Tennis/ATP/30-10-2025/sinner-cerundolo-live-a-parigi-risultato-in-diretta.shtml)
