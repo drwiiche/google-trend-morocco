@@ -1,3 +1,10 @@
+### maroc (N/A, Fri, 31 Oct 2025 13:10:00 -0700)
+
+- **Sahara occidental : les Etats-Unis à l’offensive à l’ONU pour défendre une autonomie sous souveraineté du Maroc**: [Link](https://www.lemonde.fr/afrique/article/2025/10/29/sahara-occidental-un-vote-decisif-a-l-onu-pour-l-avenir-du-territoire-conteste_6650123_3212.html)
+- **En direct. Le vote de la résolution sur le Sahara marocain au Conseil de sécurité**: [Link](https://medias24.com/2025/10/31/en-direct-le-vote-de-la-resolution-sur-le-sahara-marocain-au-conseil-de-securite/)
+- **Parce qu’on vient de loin**: [Link](https://mobile.telquel.ma/2025/10/31/parce-quon-vient-de-loin_1958875)
+
+
 ### algerie (N/A, Fri, 31 Oct 2025 14:20:00 -0700)
 
 - **Le vote de l’Assemblée pour « dénoncer » l’accord migratoire de 1968, un nouvel obstacle à l’apaisement entre la France et l’Algérie**: [Link](https://www.lemonde.fr/international/article/2025/10/31/accord-franco-algerien-de-1968-le-vote-de-l-assemblee-nationale-francaise-un-nouvel-obstacle-a-l-apaisement-entre-paris-et-alger_6650591_3210.html)
