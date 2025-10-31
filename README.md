@@ -1,3 +1,10 @@
+### claude (N/A, Fri, 31 Oct 2025 02:20:00 -0700)
+
+- **EN IMAGES. « Il innove tout le temps » : Jean Dujardin conquis par le Ciné-bistrot de Claude**: [Link](https://lemans.maville.com/actu/actudet_-en-images.-il-innove-tout-le-temps-jean-dujardin-conquis-par-le-cine-bistrot-de-claude-lelouch-_-7043747_actu.Htm)
+- **EXCLUSIF On a vu les sept premières minutes du prochain (et dernier) film de Claude Lelouch**: [Link](https://www.parismatch.com/culture/cinema/exclusif-on-a-vu-les-sept-premieres-minutes-du-prochain-et-dernier-film-de-claude-lelouch-259412)
+- **"Une salle pour moi et mes potes, et le public est bienvenu" : Claude Lelouch lance son ciné-bistrot à Trouville**: [Link](https://www.francebleu.fr/emissions/l-info-d-ici-ici-normandie-calvados-orne/une-salle-pour-moi-et-mes-potes-et-le-public-est-bienvenu-claude-lelouch-lance-son-cine-bistrot-a-trouville-8711480)
+
+
 ### al-hilal – al shabab (N/A, Fri, 31 Oct 2025 07:20:00 -0700)
 
 - **Al Hilal - Al Shabab: What time and on which channel to watch the match live?**: [Link](https://foot-africa.com/en/news/al-hilal-al-shabab-what-time-and-on-which-channel-to-watch-the-match-live-940103/)
