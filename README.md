@@ -1,3 +1,10 @@
+### melissa cuba (N/A, Thu, 30 Oct 2025 19:30:00 -0700)
+
+- **After Hurricane Melissa, Jamaica Faces Destruction as Far as the Eye Could See**: [Link](https://www.nytimes.com/live/2025/10/30/weather/hurricane-melissa-bermuda-jamaica)
+- **Hurricane Melissa live updates: At least 49 dead as storm thrashes Bermuda and Caribbean nations assess damage**: [Link](https://www.independent.co.uk/news/world/americas/hurricane-melissa-live-jamaica-bahamas-bermuda-satellite-images-b2855844.html)
+- **Melissa's Impact: See Jamaica's Dramatic Before And After**: [Link](https://weather.com/storms/hurricane/video/before-after-satellite-views-melissa-jamaica-destruction)
+
+
 ### accord franco algérien 1968 (N/A, Thu, 30 Oct 2025 16:50:00 -0700)
 
 - **Pour la première fois, un texte porté par le RN a été approuvé par l’Assemblée nationale**: [Link](https://www.lemonde.fr/politique/article/2025/10/30/pour-la-premiere-fois-un-texte-porte-par-le-rn-a-ete-approuve-par-l-assemblee-nationale_6650281_823449.html)
