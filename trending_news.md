@@ -1,3 +1,17 @@
+### getafe – girona (N/A, Fri, 31 Oct 2025 12:20:00 -0700)
+
+- **Para pasarlo de miedo**: [Link](https://as.com/futbol/primera/para-pasarlo-de-miedo-f202510-n/)
+- **¡Duelo de Contrastes en el Coliseo! Getafe Recibe a un Urgido Girona**: [Link](https://canal6hn.com/2025/10/31/duelo-de-contrastes-en-el-coliseo-getafe-recibe-a-un-urgido-girona/)
+- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20251031/1002560406/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
+
+
+### al jazeera (N/A, Fri, 31 Oct 2025 12:00:00 -0700)
+
+- **About 700 killed in Tanzania election protests, opposition says**: [Link](https://www.theguardian.com/world/2025/oct/31/tanzania-election-protests-opposition)
+- **Tanzania Racked by Deadly Protests After Election**: [Link](https://www.nytimes.com/2025/10/31/world/africa/tanzania-deadly-protests-election.html)
+- **Opposition says ‘hundreds’ killed in Tanzania post-election protests**: [Link](https://www.aljazeera.com/news/2025/10/31/protests-over-disputed-tanzania-election-enter-3rd-day-military-deployed)
+
+
 ### hibapress (N/A, Fri, 31 Oct 2025 12:10:00 -0700)
 
 - **نجاح لطيفة أحرار في مباراة يثير جدلا**: [Link](https://www.hespress.com/%D9%86%D8%AC%D8%A7%D8%AD-%D9%84%D8%B7%D9%8A%D9%81%D8%A9-%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%AC%D8%AF%D9%84%D8%A7-1648473.html)
