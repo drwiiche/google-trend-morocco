@@ -1,3 +1,10 @@
+### تندوف (N/A, Fri, 31 Oct 2025 14:10:00 -0700)
+
+- **قُبَيلَ قرار مجلس الأمن.. الجزائر و"البوليساريو" تُطوّقان مخيمات تندوف**: [Link](https://ar.hibapress.com/details-670226.html)
+- **غرق في بحر الوهم**: [Link](https://www.hespress.com/%D8%BA%D8%B1%D9%82-%D9%81%D9%8A-%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D9%88%D9%87%D9%85-1647235.html)
+- **تعديلات مسودة القرار الأممي: ولد سلمى يفكك مخطط الجزائر لكبح الحكم الذاتي وكواليس “سقف الحل” (فيديو)**: [Link](https://www.achkayen.com/?p=650323)
+
+
 ### polisario (N/A, Fri, 31 Oct 2025 13:50:00 -0700)
 
 - **Mauritanian gold prospectors seize weapons from Polisario in surprise attack**: [Link](https://en.yabiladi.com/articles/details/180127/mauritanian-gold-prospectors-seize-weapons.html)
