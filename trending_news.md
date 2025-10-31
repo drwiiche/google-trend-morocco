@@ -1,3 +1,17 @@
+### قرار مجلس الأمن حول الصحراء الغربية 2025 (N/A, Fri, 31 Oct 2025 05:50:00 -0700)
+
+- **القضية الوطنية الأولى توحد المغاربة في لحظة تاريخية حاسمة بمجلس الأمن**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D8%AA%D9%88%D8%AD%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%81-1648411.html)
+- **المسودة النهائية لقرار مجلس الأمن تُرسخ واقعية مبادرة الحكم الذاتي المغربية**: [Link](https://ar.hibapress.com/details-670676.html)
+- **من المسيرة الخضراء إلى مسيرة الشرعية.. محمد السادس "المهندس الصامت" لحسم معركة الصحراء**: [Link](https://al3omk.com/1112847.html)
+
+
+### halloween (N/A, Thu, 30 Oct 2025 20:50:00 -0700)
+
+- **Trump strikes again with viral candy move during first Halloween back at White House**: [Link](https://www.foxnews.com/politics/trump-strikes-again-viral-candy-move-during-first-halloween-back-white-house)
+- **Donald and Melania Trump Dress Up for Halloween — as Themselves**: [Link](https://www.nytimes.com/2025/10/31/style/donald-trupmp-melania-trump-halloween.html)
+- **President Trump and the First Lady Host Halloween**: [Link](https://www.c-span.org/program/public-affairs-event/president-trump-and-the-first-lady-host-halloween/668050)
+
+
 ### lazio (N/A, Thu, 30 Oct 2025 14:20:00 -0700)
 
 - **#Pedro al termine di Pisa-#Lazio: «Per questioni anagrafiche sarà la mia ultima stagione coi biancocelesti» Il campione spagnolo aggiunge: «Fino alla fine aiuterò la Lazio a stare più in alto possibile». https://www.ilnapolista.it/2025/10/pedro-al-termine-di-pisa**: [Link](https://www.facebook.com/story.php?story_fbid=1340759191396066&id=100063859936263)
