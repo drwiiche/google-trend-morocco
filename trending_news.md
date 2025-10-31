@@ -1,3 +1,10 @@
+### onu (N/A, Fri, 31 Oct 2025 09:30:00 -0700)
+
+- **Reuters: El Consejo de Seguridad de la ONU fija la fecha para votar la resolución que respalda el plan de autonomía marroquí para el Sáhara**: [Link](https://chamaly.ma/2025/10/30/reuters-el-consejo-de-seguridad-de-la-onu-fija-la-fecha-para-votar-la-resolucion-que-respalda-el-plan-de-autonomia-marroqui-para-el-sahara/)
+- **Fenerbahçe'nin yıldızına daha imzası kurumadan talip çıktı: "Özellikle onu alalım"**: [Link](https://www.ntv.com.tr/sporskor/fenerbahcenin-yildizina-daha-imzasi-kurumadan-talip-ciktiozellikle-onu-alalim,nKFv3uWuQEqy_ayo8RKu9w)
+- **İspanya'dan flaş iddia: Ünlü teknik adam Asensio'nun transfer edilmesini istedi!**: [Link](https://www.hurriyet.com.tr/sporarena/ispanyadan-flas-iddia-unlu-teknik-adam-asensionun-transfer-edilmesini-istedi-43002912)
+
+
 ### kick (N/A, Fri, 31 Oct 2025 10:00:00 -0700)
 
 - **Fifty runners announced for National Games torch relay**: [Link](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/en/component/k2/1829586-20251031.htm)
