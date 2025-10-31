@@ -1,3 +1,17 @@
+### حالة الطقس (N/A, Thu, 30 Oct 2025 23:30:00 -0700)
+
+- **الرأي الشرعي في نشرات الطقس.. هل تنبؤات الأرصاد تنجيم محرم أم رأي علمي؟**: [Link](https://www.elwatannews.com/news/details/8161603)
+- **توقعات الطقس اليوم تتضمن تغييرات ملحوظة في درجات الحرارة والظروف الجوية عبر مختلف المناطق**: [Link](https://harammissr.com/34651/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%AA%D8%B6%D9%85%D9%86-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%84%D8%AD%D9%88/)
+- **لا علاقة لها بالتنجيم.. دار الإفتاء: متابعة توقعات الأرصاد الجوية جائزة شرعًا**: [Link](https://newsroom.info/195200)
+
+
+### hakim benotmane anthony bourbon (N/A, Thu, 30 Oct 2025 23:10:00 -0700)
+
+- **« Mythomane », « imposteur » : pourquoi Anthony Bourbon et Hakim Benotmane s’accusent mutuellement d’arnaques**: [Link](https://www.leparisien.fr/economie/business/mythomane-imposteur-pourquoi-anthony-bourbon-et-hakim-benotmane-saccusent-mutuellement-darnaques-29-10-2025-N22TC5PKLJFH5EE75RQY5YJMSE.php)
+- **"Il se fait défoncer" : Anthony Bourbon monte au créneau à cause d'un deal annulé, Tony Parker mêlé à la polémique**: [Link](https://www.melty.fr/people/il-se-fait-defoncer-anthony-bourbon-monte-au-creneau-a-cause-dun-deal-annule-tony-parker-mele-a-la-polemique-2272311.html)
+- **Clash entre Anthony Bourbon et Hakim Benotmane : de quoi s'accusent-ils exactement ?**: [Link](https://www.capital.fr/entreprises-marches/clash-entre-anthony-bourbon-et-hakim-benotmane-de-quoi-s-accusent-ils-exactement-1520236)
+
+
 ### melissa cuba (N/A, Thu, 30 Oct 2025 19:30:00 -0700)
 
 - **After Hurricane Melissa, Jamaica Faces Destruction as Far as the Eye Could See**: [Link](https://www.nytimes.com/live/2025/10/30/weather/hurricane-melissa-bermuda-jamaica)
