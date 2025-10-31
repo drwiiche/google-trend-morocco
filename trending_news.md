@@ -1,3 +1,10 @@
+### hanane mansouri (N/A, Fri, 31 Oct 2025 05:40:00 -0700)
+
+- **Dénonciation des accords de 1968 avec l’Algérie : la députée UDR Hanane Mansouri qualifiée de «caution» par un élu LFI**: [Link](https://www.lefigaro.fr/politique/denonciation-des-accords-de-1968-avec-l-algerie-la-deputee-udr-hanane-mansouri-qualifiee-de-caution-par-un-elu-lfi-20251030)
+- **Le député du Rhône Abdelkader Lahmar accusé de propos raciste à l’Assemblée**: [Link](https://www.lyoncapitale.fr/actualite/le-depute-du-rhone-abdelkader-lahmar-accuse-de-propos-raciste-a-lassemblee)
+- **À l’Assemblée, la députée UDR Hanane Mansouri visée par une insulte raciste d’un élu LFI**: [Link](https://www.lejdd.fr/politique/a-lassemblee-la-deputee-udr-hanane-mansouri-visee-par-une-insulte-raciste-dun-elu-lfi-163530)
+
+
 ### قرار مجلس الأمن حول الصحراء الغربية 2025 (N/A, Fri, 31 Oct 2025 05:50:00 -0700)
 
 - **القضية الوطنية الأولى توحد المغاربة في لحظة تاريخية حاسمة بمجلس الأمن**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D8%AA%D9%88%D8%AD%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%81-1648411.html)
