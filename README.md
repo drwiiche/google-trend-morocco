@@ -1,3 +1,10 @@
+### algerie (N/A, Fri, 31 Oct 2025 14:20:00 -0700)
+
+- **Le vote de l’Assemblée pour « dénoncer » l’accord migratoire de 1968, un nouvel obstacle à l’apaisement entre la France et l’Algérie**: [Link](https://www.lemonde.fr/international/article/2025/10/31/accord-franco-algerien-de-1968-le-vote-de-l-assemblee-nationale-francaise-un-nouvel-obstacle-a-l-apaisement-entre-paris-et-alger_6650591_3210.html)
+- **Dans la Casbah d’Alger, colère et lassitude après la remise en cause de l’accord de 1968**: [Link](https://www.liberation.fr/international/afrique/dans-la-casbah-dalger-colere-et-lassitude-apres-la-denonciation-de-laccord-de-1968-20251030_4ODP7PTOLNA5DBA2ZVPSC6UPGE/)
+- **France-Algérie : Emmanuel Macron et le gouvernement dans l’embarras après le vote de l’Assemblée contre l’accord**: [Link](https://www.lefigaro.fr/politique/france-algerie-emmanuel-macron-et-le-gouvernement-dans-l-embarras-apres-le-vote-de-l-assemblee-contre-l-accord-20251030)
+
+
 ### تندوف (N/A, Fri, 31 Oct 2025 14:10:00 -0700)
 
 - **قُبَيلَ قرار مجلس الأمن.. الجزائر و"البوليساريو" تُطوّقان مخيمات تندوف**: [Link](https://ar.hibapress.com/details-670226.html)
