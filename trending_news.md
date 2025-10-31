@@ -1,3 +1,10 @@
+### lazio (N/A, Thu, 30 Oct 2025 14:20:00 -0700)
+
+- **#Pedro al termine di Pisa-#Lazio: «Per questioni anagrafiche sarà la mia ultima stagione coi biancocelesti» Il campione spagnolo aggiunge: «Fino alla fine aiuterò la Lazio a stare più in alto possibile». https://www.ilnapolista.it/2025/10/pedro-al-termine-di-pisa**: [Link](https://www.facebook.com/story.php?story_fbid=1340759191396066&id=100063859936263)
+- **Pedro annuncia l’addio alla Lazio, è l'ultima stagione**: [Link](https://www.repubblica.it/sport/calcio/2025/10/31/news/pedro_addio_lazio_ultima_stagione-424949806/)
+- **Provstgaard: “Bene la difesa, ma non felice del pari. Alla Lazio sono felice…” (AUDIO)**: [Link](https://radiosei.it/dichiarazioni/provstgaard-bene-la-difesa-ma-non-felice-del-pari-alla-lazio-sono-felice-audio)
+
+
 ### resolution onu sahara marocain (N/A, Fri, 31 Oct 2025 01:00:00 -0700)
 
 - **Vidéo. VIDÉO La stratégie du Maroc pour mettre la main sur le Sahara occidental**: [Link](https://www.lemonde.fr/afrique/video/2025/10/29/la-strategie-du-maroc-pour-mettre-la-main-sur-le-sahara-occidental_6650186_3212.html)
