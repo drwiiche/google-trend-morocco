@@ -1,3 +1,17 @@
+### resolution onu sahara marocain (N/A, Fri, 31 Oct 2025 01:00:00 -0700)
+
+- **Vidéo. VIDÉO La stratégie du Maroc pour mettre la main sur le Sahara occidental**: [Link](https://www.lemonde.fr/afrique/video/2025/10/29/la-strategie-du-maroc-pour-mettre-la-main-sur-le-sahara-occidental_6650186_3212.html)
+- **Sahara. Ce que dit le projet de résolution de l'ONU dans sa dernière version**: [Link](https://medias24.com/2025/10/30/sahara-ce-que-dit-le-projet-de-resolution-de-lonu-dans-sa-derniere-version/)
+- **Sahara : la résolution soumise au vote du Conseil de sécurité consacre l’autonomie sous souveraineté marocaine**: [Link](https://ledesk.ma/2025/10/30/sahara-la-resolution-soumise-au-vote-du-conseil-de-securite-consacre-lautonomie-sous-souverainete-marocaine/)
+
+
+### prince andrew (N/A, Thu, 30 Oct 2025 21:40:00 -0700)
+
+- **Andrew stripped of 'prince' title and will move out of Royal Lodge**: [Link](https://www.bbc.com/news/live/cnveqgj957dt)
+- **Not in this together: King Charles cuts Andrew loose to save royal family’s repute**: [Link](https://www.theguardian.com/uk-news/2025/oct/30/not-in-this-together-king-charles-cuts-andrew-loose-to-save-royal-familys-repute)
+- **Prince Andrew & ex Sarah Ferguson demand TWO homes for leaving Royal Lodge**: [Link](https://www.thesun.co.uk/royals/37131344/prince-andrew-leave-royal-lodge-sarah-ferguson-frogmore-adelaide/)
+
+
 ### الطقس اليوم (N/A, Thu, 30 Oct 2025 23:20:00 -0700)
 
 - **"منخفض جوي أطلسي" يجلب أمطارا وزخات متفرقة نحو الشمال المغربي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%A3%D8%B7%D9%84%D8%B3%D9%8A-%D9%8A%D8%AC%D9%84%D8%A8-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1%D8%A7-%D9%88%D8%B2%D8%AE%D8%A7-1647506.html)
