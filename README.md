@@ -1,3 +1,17 @@
+### أوغسبورغ ضد دورتموند (N/A, Fri, 31 Oct 2025 13:30:00 -0700)
+
+- **تقييم لاعبي بروسيا دورتموند امام اوغسبورغ في الشوط الاول**: [Link](https://hihi2.com/2025/10/31/p3452762.html)
+- **سيرهو جيراسي يتقدم لـ درتموند أمام أوجسبورج في الشوط الأول**: [Link](https://www.mobtada.com/sports/1557039/%D8%B3%D9%8A%D8%B1%D9%87%D9%88-%D8%AC%D9%8A%D8%B1%D8%A7%D8%B3%D9%8A-%D9%8A%D8%AA%D9%82%D8%AF%D9%85-%D9%84%D9%80-%D8%AF%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%88%D8%AC%D8%B3%D8%A8%D9%88%D8%B1%D8%AC-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%88%D9%84)
+- **موعد مباراة أوجسبورج ودورتموند في الدوري الألماني**: [Link](https://www.elfagr.org/5244307)
+
+
+### marche verte (N/A, Fri, 31 Oct 2025 13:30:00 -0700)
+
+- **Marche Verte : un héritage patriotique vivace à pérenniser**: [Link](https://lematin.ma/nation/marche-verte-un-heritage-patriotique-vivace-a-perenniser/310893)
+- **Le Jeep Owners Group Morocco célèbre les 50 ans de la Marche Verte**: [Link](https://www.leconomiste.com/flash-infos/le-jeep-owners-group-morocco-celebre-les-50-ans-de-la-marche-verte/)
+- **50e anniversaire de la Marche Verte: Saïd Pipo anime «la grande Fête de la Victoire» dans les Provinces du Sud**: [Link](https://h24info.ma/h24/50e-anniversaire-de-la-marche-verte-said-pipo-anime-la-grande-fete-de-la-victoire-dans-les-provinces-du-sud/)
+
+
 ### خطاب الملك محمد السادس اليوم مباشر (N/A, Fri, 31 Oct 2025 13:10:00 -0700)
 
 - **التنمية الترابية..**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-1646486.html)
