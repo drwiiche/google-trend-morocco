@@ -1,3 +1,10 @@
+### morocco (N/A, Fri, 31 Oct 2025 13:20:00 -0700)
+
+- **UN approves resolution supporting Morocco’s claim to Western Sahara**: [Link](https://www.theguardian.com/world/2025/oct/31/un-approves-resolution-supporting-moroccos-claim-to-western-sahara)
+- **Explanation of Vote Following the Adoption of a UN Security Council Resolution on Western Sahara**: [Link](https://usun.usmission.gov/explanation-of-vote-following-the-adoption-of-a-un-security-council-resolution-on-western-sahara/)
+- **UN calls for Western Sahara talks based on Morocco's autonomy plan**: [Link](https://www.reuters.com/world/europe/un-calls-western-sahara-talks-based-moroccos-autonomy-plan-2025-10-31/)
+
+
 ### المغرب (N/A, Fri, 31 Oct 2025 15:40:00 -0700)
 
 - **10 ملايين يورو سبب استبعاد ميسي والأرجنتين عن مواجهة "الأسود" بالمغرب**: [Link](https://m.elbotola.com/article/2025-10-31-12-01-354.html)
