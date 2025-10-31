@@ -1,3 +1,24 @@
+### polisario (N/A, Fri, 31 Oct 2025 13:50:00 -0700)
+
+- **Mauritanian gold prospectors seize weapons from Polisario in surprise attack**: [Link](https://en.yabiladi.com/articles/details/180127/mauritanian-gold-prospectors-seize-weapons.html)
+- **UN set to vote on a resolution backing Morocco’s plan for Western Sahara, in a major shift**: [Link](https://apnews.com/article/un-western-sahara-morocco-peacekeeping-force-0a07d389db0e88c35beeb5f0462ea221)
+- **UNSC Vote on Sahara: King Mohammed VI to Deliver Royal Speech Tonight**: [Link](https://www.moroccoworldnews.com/2025/10/266119/unsc-vote-on-sahara-king-mohammed-vi-to-deliver-royal-speech-tonight/)
+
+
+### الجزيرة نت (N/A, Fri, 31 Oct 2025 13:50:00 -0700)
+
+- **وثائق أميركية: فنزويلا تستنجد بـ3 دول لصد هجوم محتمل**: [Link](https://www.aljazeera.net/news/2025/10/31/%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-%D9%85%D8%A7%D8%AF%D9%88%D8%B1%D9%88-%D8%A3%D8%B3%D9%84%D8%AD%D8%A9-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF%D8%A7%D8%AA)
+- **ترامب يرد على سؤال إن كان قرر توجيه ضربة داخل فنزويلا**: [Link](https://arabic.cnn.com/world/article/2025/10/31/trump-says-its-not-true-that-he-has-decided-to-strike-within-venezuela)
+- **مادورو طلب دعماً عسكرياً من روسيا والصين وإيران وسط التوتر مع أميركا**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D8%A7-%D8%A7%D9%84%D9%84%D8%A7%D8%AA%D9%8A%D9%86%D9%8A%D8%A9/5203659-%D9%85%D8%A7%D8%AF%D9%88%D8%B1%D9%88-%D8%B7%D9%84%D8%A8-%D8%AF%D8%B9%D9%85%D8%A7%D9%8B-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A7%D9%8B-%D9%85%D9%86-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D8%B5%D9%8A%D9%86-%D9%88%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D8%AA%D9%88%D8%AA%D8%B1-%D9%85%D8%B9)
+
+
+### snrt (N/A, Fri, 31 Oct 2025 12:50:00 -0700)
+
+- **CAN 2025 : Voici les 9 stades de la Coupe d'Afrique des nations au Maroc**: [Link](https://www.bbc.com/afrique/articles/cp3d7jn9l73o)
+- **Aéroport de Rabat : coup d'accélérateur sur les travaux du nouveau terminal**: [Link](https://medias24.com/2025/10/31/aeroport-de-rabat-coup-daccelerateur-sur-les-travaux-du-nouveau-terminal-en-vue-de-la-can-2025/)
+- **Forte demande mondiale de billets pour la TotalEnergies CAF Coupe d’Afrique des Nations, Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/forte-demande-mondiale-de-billets-pour-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025/)
+
+
 ### الشروق (N/A, Fri, 31 Oct 2025 13:40:00 -0700)
 
 
