@@ -1,3 +1,17 @@
+### kick (N/A, Fri, 31 Oct 2025 10:00:00 -0700)
+
+- **Fifty runners announced for National Games torch relay**: [Link](https://gbcode.rthk.hk/TuniS/news.rthk.hk/rthk/en/component/k2/1829586-20251031.htm)
+- **Police Announce Traffic Changes for National Games Torch Relay in Hong Kong on November 1-2.**: [Link](https://www.bastillepost.com/global/article/5326846-police-announce-traffic-changes-for-national-games-torch-relay-in-hong-kong-on-november-1-2)
+- **Macau’s 50 torchbearers to relay in anticipation of National Games**: [Link](https://www.macaubusiness.com/macaus-50-torchbearers-to-relay-in-anticipation-of-national-games/)
+
+
+### الكوكب ضد الاتحاد التوركي (N/A, Fri, 31 Oct 2025 10:00:00 -0700)
+
+- **البطولة الاحترافية/ الكوكب المراكشي يحقق فوزه الثاني هذا الموسم بعد تغلبه على اتحاد تواركة (3-0)**: [Link](https://m.elbotola.com/article/2025-10-31-17-00-908.html)
+- **الكوكب المراكشي – إتحاد تواركة: لتصحيح الأزمة**: [Link](https://www.almountakhab.com/node/13219118)
+- **بث مباشر.. شاهد مباراة الكوكب المراكشي واتحاد تواركة في الدوري المغربي**: [Link](https://www.khaligyoun.com/594870/)
+
+
 ### vote onu sahara marocain (N/A, Fri, 31 Oct 2025 07:30:00 -0700)
 
 - **Sahara occidental : dans les coulisses des dernières heures avant le vote à l’ONU**: [Link](https://www.jeuneafrique.com/1736346/politique/sahara-dans-les-coulisses-des-dernieres-heures-avant-le-vote-a-lonu/)
