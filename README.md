@@ -1,3 +1,10 @@
+### كريمونيسي ضد يوفنتوس (N/A, Sat, 1 Nov 2025 13:00:00 -0700)
+
+- **يلا شوت.. بث مباشر مباراة يوفنتوس ضد كريمونيزي في الدوري الإيطالي اليوم بجودة عالية**: [Link](https://www.almashhad.news/350712)
+- **التشكيلة الرسمية ليوفنتوس في مواجهة أودينيزي بالدوري الإيطالي**: [Link](https://mangish.net/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3/)
+- **يوفنتوس يستعيد «روحه القتالية» ويمنح سباليتي مؤشرات إيجابية لبداية جديدة**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5203166-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B1%D9%88%D8%AD%D9%87-%D8%A7%D9%84%D9%82%D8%AA%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D9%8A%D9%85%D9%86%D8%AD-%D8%B3%D8%A8%D8%A7%D9%84%D9%8A%D8%AA%D9%8A-%D9%85%D8%A4%D8%B4%D8%B1%D8%A7%D8%AA-%D8%A5%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A%D8%A9-%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+
+
 ### suspension réforme retraites (N/A, Sat, 1 Nov 2025 11:20:00 -0700)
 
 - **Budget de la « Sécu » : la suspension de la réforme des retraites votée en commission, une première clarification des positions de groupe**: [Link](https://www.lemonde.fr/politique/article/2025/11/01/budget-de-la-secu-la-suspension-de-la-reforme-des-retraites-votee-en-commission-une-premiere-clarification-des-positions-de-groupe_6650804_823448.html)
