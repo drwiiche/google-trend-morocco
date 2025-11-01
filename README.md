@@ -1,3 +1,24 @@
+### chelsea (N/A, Sat, 1 Nov 2025 11:30:00 -0700)
+
+- **Enzo Maresca confirms Chelsea team news for Tottenham | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-chelsea-team-news-for-tottenham)
+- **Maresca’s fascinating answer on tactical question involving Lavia and Caicedo in build-up**: [Link](https://sports.yahoo.com/article/maresca-fascinating-answer-tactical-involving-130000731.html)
+- **Chelsea's Cole Palmer 'crying' over his Tottenham taunt as 'difficult' message sent**: [Link](https://www.mirror.co.uk/sport/football/news/chelsea-tottenham-cole-palmer-maresca-36172804)
+
+
+### monaco – paris fc (N/A, Sat, 1 Nov 2025 11:10:00 -0700)
+
+- **DIRECT. Monaco-Paris FC (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/monaco-paris-fc-live/675891)
+- **Festival, promu, 83.3%... Les stats by VBET avant la réception du PFC**: [Link](https://onefootball.com/pt-br/noticias/festival-promu-833-les-stats-by-vbet-avant-la-reception-du-pfc-41888548)
+- **Stéphane Gilli (Paris FC) : "Ça risque d'être un match ouvert contre Monaco"**: [Link](https://www.foot-national.com/actus/stephane-gilli-paris-fc-ca-risque-detre-un-match-ouvert-929012)
+
+
+### man utd (N/A, Sat, 1 Nov 2025 10:20:00 -0700)
+
+- **Life after Manchester Utd: Ruben Amorim says he is 'happy' for Marcus Rashford, Antony and Rasmus Hojlund**: [Link](https://www.skysports.com/football/video/30998/13456644/life-after-manchester-utd-ruben-amorim-says-he-is-happy-for-marcus-rashford-antony-and-rasmus-hojlund)
+- **Nani makes 'happy' Marcus Rashford claim that will raise eyebrows at Man Utd**: [Link](https://www.mirror.co.uk/sport/football/news/barcelona-marcus-rashford-man-utd-36173884)
+- **Man Utd news: Ruben Amorim told 'everything can change' as 'magical' star wants transfer**: [Link](https://www.dailystar.co.uk/sport/football/man-utd-news-ruben-amorim-36173495)
+
+
 ### توتنهام ضد تشيلسي (N/A, Sat, 1 Nov 2025 11:00:00 -0700)
 
 - **أسطورة تشيلسي يرسم خطة إسقاط توتنهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D8%B1%D8%B3%D9%85-%D8%AE%D8%B7%D8%A9-%D8%A7%D9%95%D8%B3%D9%82%D8%A7%D8%B7-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85/blt072a750c8a4a37cc)
