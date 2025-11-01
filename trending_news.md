@@ -1,3 +1,31 @@
+### paris-sg – nice (N/A, Sat, 1 Nov 2025 08:30:00 -0700)
+
+- **PSG-Nice : Luis Enrique se prive d’Ibrahim Mbaye… attendu avec les U 19**: [Link](https://www.leparisien.fr/sports/football/psg/psg-nice-luis-enrique-se-prive-dibrahim-mbaye-attendu-avec-les-u-19-31-10-2025-DHGIQ5XU7ZACLMQ2PJ5SIS76M4.php)
+- **Luis Enrique réagit à la blessure de Doué… et surprend tout le monde**: [Link](https://www.goal.com/fr/listes/luis-enrique-reagit-a-la-blessure-de-doue-et-surprend-tout-le-monde/blt71d5592eeee30eb7)
+- **Paris SG - OGC Nice : le Big Match de Ligue 1 McDonald’s à voir avec l’offre beIN SPORTS CONNECT***: [Link](https://www.ouest-france.fr/shopping/streaming/paris-sg-ogc-nice-le-big-match-de-ligue-1-mcdonalds-a-voir-avec-loffre-bein-sports-connect-985ee8f2-b670-11f0-9097-68e77b575996)
+
+
+### atlético madrid vs sevilla (N/A, Sat, 1 Nov 2025 08:30:00 -0700)
+
+- **Sevilla y Atlético de Madrid se enfrentan en el duelo de los entrenadores argentinos**: [Link](https://www.ole.com.ar/futbol-internacional/espana/sevilla-atletico-madrid-matias-almeydacholo-simeone-liga-argentinos-duelo-julian-alvarez-giuliano-nico-gonzalez_0_uN1eH2t0Lx.html)
+- **🔴La Liga EN VIVO: el Sevilla arranca mandando en el Metropolitano**: [Link](https://onefootball.com/es/noticias/la-liga-en-vivo-el-sevilla-arranca-mandando-en-el-metropolitano-41887654)
+- **En vivo: el Sevilla de Gabriel Suazo visita al Atlético de Madrid en la liga española**: [Link](https://www.latercera.com/el-deportivo/noticia/en-vivo-el-sevilla-de-gabriel-suazo-visita-al-atletico-de-madrid-en-la-liga-espanola/)
+
+
+### fulham – wolves (N/A, Sat, 1 Nov 2025 08:30:00 -0700)
+
+- **Fulham vs Wolves LIVE! Premier League match updates, news, score and highlights**: [Link](https://www.skysports.com/football/live-blog/11699/13460108/fulham-vs-wolves-live-premier-league-match-updates-news-score-and-highlights)
+- **Wolves bidding to avoid making English football history**: [Link](https://www.sportsmole.co.uk/football/wolves/relegation-battle/news/wolves-bidding-to-avoid-making-english-football-history-extend-117-year-streak-against-fulham_584804.html)
+- **Fulham v Wolves prediction, betting tips and bet builder – Can visitors claim first win?**: [Link](https://talksport.com/betting/3692094/fulham-wolves-prediction-betting-tips-bet-builder-free-bets/)
+
+
+### cash plus bourse casablanca (N/A, Sat, 1 Nov 2025 08:20:00 -0700)
+
+- **Cash Plus : tout ce qu’il faut savoir sur l’IPO, chiffres, objectifs et stratégie**: [Link](https://medias24.com/2025/11/01/cash-plus-tout-ce-quil-faut-savoir-sur-lipo-chiffres-objectifs-et-strategie/)
+- **Cash Plus annonce son entrée à la Bourse de Casablanca**: [Link](https://ledesk.ma/encontinu/cash-plus-annonce-son-entree-a-la-bourse-de-casablanca/)
+- **Cash Plus obtient le visa de l'AMMC pour son introduction en bourse**: [Link](https://fr.hespress.com/448063-cash-plus-obtient-le-visa-de-lammc-pour-son-introduction-en-bourse.html)
+
+
 ### بيرنلي ضد آرسنال (N/A, Sat, 1 Nov 2025 08:20:00 -0700)
 
 - **تشكيل آرسنال ضد بيرنلي.. أرتيتا يدفع بقوته الضاربة رغم الغيابات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A8%D9%8A%D8%B1%D9%86%D9%84%D9%8A--%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A8%D9%82%D9%88%D8%AA%D9%87-%D8%A7%D9%84%D8%B6%D8%A7%D8%B1%D8%A8%D8%A9-%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA/bltc4603565091f5c78)
