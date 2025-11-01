@@ -1,3 +1,10 @@
+### real madrid - valencia c. f. (N/A, Sat, 1 Nov 2025 12:30:00 -0700)
+
+- **Real Madrid - Valencia hoy, en directo: jornada 11 de LaLiga EA Sports, última hora en vivo**: [Link](https://as.com/futbol/primera/real-madrid-valencia-hoy-en-directo-jornada-11-de-laliga-ea-sports-ultima-hora-en-vivo-f202511-d/)
+- **Convocatoria del Real Madrid contra el Valencia**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-valencia-31-10-2025)
+- **Real Madrid vs Valencia EN VIVO Online. Kylian Mbappé y Vinicius Hoy en LaLiga 2025**: [Link](https://www.marca.com/mx/futbol/r-madrid-valencia/2025/11/01/01_0101_20251101_186_191-directo.html)
+
+
 ### liverpool – aston villa (N/A, Sat, 1 Nov 2025 12:20:00 -0700)
 
 - **Ryan Gravenberch on fitness, Villa challenge and a 'huge week' for Liverpool**: [Link](https://www.liverpoolfc.com/news/ryan-gravenberch-fitness-villa-challenge-and-huge-week-liverpool)
