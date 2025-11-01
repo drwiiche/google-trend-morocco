@@ -1,3 +1,17 @@
+### atlético madrid – séville (N/A, Sat, 1 Nov 2025 07:30:00 -0700)
+
+- **Pronostic Atlético Madrid - Séville, Liga**: [Link](https://www.sportytrader.com/pronostics/atletico-madrid-seville-301720/)
+- **L’Atlético teste sa série face à un Séville en quête de rebond**: [Link](https://www.footix.fr/latletico-teste-sa-serie-face-a-un-seville-en-quete-de-rebond/)
+- **Billets Atlético Madrid – Sevilla FC : Vente et achat pour LaLiga au Metropolitano, 11e journée 2025/2026**: [Link](https://karlobag.eu/fr/billets/football/billets-atletico-madrid---sevilla-fc--vente-et-achat-pour-laliga-au-metropolitano-11e-journee-20252026-822lr)
+
+
+### نوتينغهام فورست ضد مان يونايتد (N/A, Sat, 1 Nov 2025 07:30:00 -0700)
+
+- **أسباب عودة مانشستر يونايتد إلى السكة الصحيحة**: [Link](https://www.aljazeera.net/sport/2025/10/31/%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D9%83%D8%A9)
+- **أموريم: لن أغير قناعاتي.. وسنعاني أثناء أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%85%D9%88%D8%B1%D9%8A%D9%85-%D9%84%D9%86-%D8%A7%D9%94%D8%BA%D9%8A%D8%B1-%D9%82%D9%86%D8%A7%D8%B9%D8%A7%D8%AA%D9%8A--%D9%88%D8%B3%D9%86%D8%B9%D8%A7%D9%86%D9%8A-%D8%A7%D9%94%D8%AB%D9%86%D8%A7%D8%A1-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt827d8f80af0a4d64)
+- **أموريم: اليونايتد يحتاج لتحسين أدائه**: [Link](https://www.hesport.com/%D8%A3%D9%85%D9%88%D8%B1%D9%8A%D9%85-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC-%D9%84%D8%AA%D8%AD%D8%B3%D9%8A%D9%86-%D8%A3%D8%AF%D8%A7%D8%A6%D9%87-410466.html)
+
+
 ### burnley – arsenal (N/A, Sat, 1 Nov 2025 07:20:00 -0700)
 
 - **Arteta gives injury updates on Martinelli, Saliba | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-gives-injury-updates-martinelli-saliba)
