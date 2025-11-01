@@ -1,3 +1,17 @@
+### الخليج ضد الاتحاد (N/A, Sat, 1 Nov 2025 08:50:00 -0700)
+
+- **مباشر مباراة الاتحاد ضد الخليج في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF)
+- **ديربي جدة وعقدة إماراتية.. ماذا ينتظر الاتحاد في نوفمبر؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%AC%D8%AF%D8%A9-%D9%88%D8%B9%D9%82%D8%AF%D8%A9-%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A%D8%A9--%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%81%D9%8A-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1/blte63d4f393dfd73b8)
+- **Al-Ittihad vs Al-Khaleej: القنوات الناقلة لمباراة الاتحاد والخليج في الدوري السعودي والمعلق الصوتي للمواجهة**: [Link](https://zahraa.mr/6043939/al-ittihad-vs-al-khaleej-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-2/)
+
+
+### manchester united (N/A, Sat, 1 Nov 2025 08:40:00 -0700)
+
+- **Man Utd goal controversy from corner after ball 'nowhere near out' vs Forest**: [Link](https://www.dailystar.co.uk/sport/football/breaking-manchester-united-nottingham-forest-36174235)
+- **Man Utd in major controversy with Nottingham Forest fuming over goal that referee 'guessed' should stand**: [Link](https://www.thesun.co.uk/sport/37189562/man-utd-controversy-nottingham-forest-casemiro-goal-referee/)
+- **Man United handed instant new referee verdict after Nottingham Forest flashpoint**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-united-casemiro-nottingham-forest-32794956)
+
+
 ### بي اس جي ضد نيس (N/A, Sat, 1 Nov 2025 08:40:00 -0700)
 
 - **حكيمي ضمن 3 أسلحة تعزز قوة باريس أمام نيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%B6%D9%85%D9%86-3-%D8%A7%D9%94%D8%B3%D9%84%D8%AD%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%82%D9%88%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%86%D9%8A%D8%B3/bltcfdf74c710f5e646)
