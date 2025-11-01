@@ -1,3 +1,24 @@
+### liverpool – aston villa (N/A, Sat, 1 Nov 2025 12:20:00 -0700)
+
+- **Ryan Gravenberch on fitness, Villa challenge and a 'huge week' for Liverpool**: [Link](https://www.liverpoolfc.com/news/ryan-gravenberch-fitness-villa-challenge-and-huge-week-liverpool)
+- **Arne Slot under pressure – McCoist explains what must happen**: [Link](https://onefootball.com/en/news/arne-slot-under-pressure-mccoist-explains-what-must-happen-41887356)
+- **Gravenberx: The match against Aston Villa will be tough**: [Link](https://zamin.uz/en/sport/166261-gravenberx-the-match-against-aston-villa-will-be-tough.html)
+
+
+### cremonese – juventus (N/A, Sat, 1 Nov 2025 12:20:00 -0700)
+
+- **La prima Juve di Spalletti è zoppa: Yildiz e Kelly non convocati per la Cremonese**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/31-10-2025/sorpresa-juve-yildiz-e-kelly-non-convocati-per-la-cremo-i-motivi-della-scelta.shtml)
+- **Serie A | Cremonese-Juventus | LIVE**: [Link](https://www.juventus.com/it/news/articoli/serie-a-cremonese-juventus-la-partita-2526)
+- **La prima Juve di Spalletti: Openda e Vlahovic in attacco a Cremona**: [Link](https://www.repubblica.it/sport/calcio/serie-a/juventus/2025/11/01/news/juventus_spalletti_esordio_openda_vlahovic-424953465/)
+
+
+### berkane foot (N/A, Sat, 1 Nov 2025 12:20:00 -0700)
+
+- **LdC de la CAF: La RSB bat Al Ahli Tripoli et accède à la phase de poules**: [Link](https://fr.hespress.com/448098-ldc-de-la-caf-la-rsb-bat-al-ahli-tripoli-et-accede-a-la-phase-de-poules.html)
+- **Ligue des champions: la RS Berkane en phase de groupes après avoir écarté Al Ahli SC**: [Link](https://sport.le360.ma/football/ligue-des-champions-caf/ligue-des-champions-la-rs-berkane-en-phase-de-groupes-apres-avoir-ecarte-al-ahli-sc_GDVUUBT6HJBOFKEDTW4KTCCUUA/)
+- **Le Renaissance de Berkane bat Al Ahly Tripoli et atteint les groupes de la Ligue des Champions pour la première fois de son histoire |**: [Link](https://fr.hibapress.com/news-215726.html)
+
+
 ### real madrid – valence (N/A, Sat, 1 Nov 2025 12:10:00 -0700)
 
 
