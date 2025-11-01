@@ -1,3 +1,10 @@
+### atletico madrid (N/A, Sat, 1 Nov 2025 09:30:00 -0700)
+
+- **Diego Simeone talks systems, Barrios replacements and substitutions before Sevilla**: [Link](https://www.intothecalderon.com/atletico-madrid-quotes/18770/diego-simeone-matias-almeyda-atletico-madrid-sevilla-la-liga-press-conference-alvarez-barrios-johnny-cardoso-conor-gallagher)
+- **Conor Gallagher vs. Sevilla FC – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/conor-gallagher-soccer-player-props-11-1-2025/87018190007/)
+- **Atletico Madrid vs Sevilla Prediction, 11/1/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/atletico-madrid-vs-sevilla-prediction-11-1-2025-soccer-pick-tips-and-odds.html)
+
+
 ### man united (N/A, Sat, 1 Nov 2025 08:40:00 -0700)
 
 - **Life after Manchester Utd: Ruben Amorim says he is 'happy' for Marcus Rashford, Antony and Rasmus Hojlund**: [Link](https://www.skysports.com/football/video/30998/13456644/life-after-manchester-utd-ruben-amorim-says-he-is-happy-for-marcus-rashford-antony-and-rasmus-hojlund)
