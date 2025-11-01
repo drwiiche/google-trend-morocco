@@ -1,3 +1,10 @@
+### tcheky karyo (N/A, Sat, 1 Nov 2025 02:20:00 -0700)
+
+- **Tchéky Karyo, star of Nikita and The Missing, dies at 72**: [Link](https://www.bbc.com/news/articles/cx2dd7yyly9o)
+- **Tchéky Karyo Dies: ‘La Femme Nikita’ Co-Star Who Appeared In Dozens Of Films & TV Shows Was 72**: [Link](https://deadline.com/2025/10/tcheky-karyo-dead-la-femme-nikita-the-missing-1236604547/)
+- **French-Turkish 'Nikita,' 'Amelie' actor Tchéky Karyo dies at 72**: [Link](https://www.lemonde.fr/en/obituaries/article/2025/11/01/french-turkish-nikita-amelie-actor-tcheky-karyo-dies-at-72_6746979_15.html)
+
+
 ### accident autoroute el jadida (N/A, Sat, 1 Nov 2025 02:10:00 -0700)
 
 - **Carambolage sur l’autoroute Casablanca-El Jadida: plus de vingt véhicules impliqués et plusieurs blessés**: [Link](https://fr.le360.ma/societe/carambolage-sur-lautoroute-casablanca-el-jadida-plus-de-vingt-vehicules-impliques-et-plusieurs_DC3TCMVYKVECJGN27HSPCFVLQ4/)
