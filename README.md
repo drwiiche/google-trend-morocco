@@ -1,3 +1,10 @@
+### nashville – inter miami (N/A, Sat, 1 Nov 2025 16:10:00 -0700)
+
+- **Mascherano delivers a serious warning to his players**: [Link](https://www.mundodeportivo.com/us/en/20251101/733730/mascherano-delivers-serious-warning-to-his-players.html)
+- **Miami have the experience to fight for MLS Cup, says Messi**: [Link](https://www.beinsports.com/en-nz/football/mls/articles/miami-have-the-experience-to-fight-for-mls-cup-says-messi-2025-11-01)
+- **'Nashville have put us in tough situations' - Manager Javier Mascherano wary as Lionel Messi and Inter Miami hit the road for second playoff matchup**: [Link](https://uk.sports.yahoo.com/news/nashville-put-us-tough-situations-133802160.html)
+
+
 ### liverpool (N/A, Sat, 1 Nov 2025 13:40:00 -0700)
 
 - **Premier League LIVE: Liverpool vs Aston Villa - scores & updates**: [Link](https://www.bbc.com/sport/football/live/cevzwrp9we9t?page=2)
