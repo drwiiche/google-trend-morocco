@@ -1,3 +1,17 @@
+### udinese – atalanta (N/A, Sat, 1 Nov 2025 06:50:00 -0700)
+
+- **Calcio Live News: alle 15 in campo Udinese-Atalanta, Balotelli contro Vieira sui social**: [Link](https://www.diretta.it/news/calcio-live-news-alle-15-in-campo-udinese-atalanta-balotelli-contro-vieira-sui-social/vyuWTcmT/)
+- **Le formazioni di Udinese-Atalanta | Serie A Enilive 2025/26**: [Link](https://www.atalanta.it/news/le-formazioni-di-udinese-atalanta-serie-a-enilive-2025-26)
+- **Settore ospiti: 881 bergamaschi a Udine, 453 quelli attesi a Marsiglia mercoledì 5 novembre**: [Link](https://primabergamo.it/atalanta/settore-ospiti-881-bergamaschi-a-udine-453-quelli-attesi-a-marsiglia-mercoledi-5-novembre/)
+
+
+### villarreal vs rayo vallecano (N/A, Sat, 1 Nov 2025 06:50:00 -0700)
+
+- **Preview:Villarreal vs Rayo Vallecano - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/preview/villarreal-vs-rayo-vallecano-prediction-team-news-lineups_584755.html)
+- **Álvaro Threatens a Solid Submarino at La Cerámica Stadium**: [Link](https://www.el-balad.com/6751737)
+- **Georges Mikautadze vs. Rayo Vallecano – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/georges-mikautadze-soccer-player-props-11-1-2025/87018505007/)
+
+
 ### فياريال ضد رايو فاليكانو (N/A, Sat, 1 Nov 2025 06:20:00 -0700)
 
 - **موعد مباراة فياريال ورايو فاييكانو في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/535269)
