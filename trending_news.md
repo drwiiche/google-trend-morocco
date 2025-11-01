@@ -1,3 +1,10 @@
+### le maroc (N/A, Fri, 31 Oct 2025 17:20:00 -0700)
+
+- **Conférence de presse du sélectionneur Hoalid Regragui**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-4/)
+- **Lions de l'Atlas : Mozambique et Ouganda, pourquoi ces choix avant la CAN 2025 ?**: [Link](https://lematin.ma/sports/lions-de-latlas-mozambique-et-ouganda-pourquoi-ces-choix-avant-la-can/311056)
+- **Le Grand Stade de Tanger rouvre ses portes le 14 novembre pour le match Maroc-Mozambique**: [Link](https://medias24.com/2025/10/31/le-grand-stade-de-tanger-rouvre-ses-portes-le-14-novembre-pour-le-match-maroc-mozambique/)
+
+
 ### لطيفة احرار (N/A, Fri, 31 Oct 2025 23:10:00 -0700)
 
 - **نجاح لطيفة أحرار في مباراة يثير جدلا**: [Link](https://www.hespress.com/%D9%86%D8%AC%D8%A7%D8%AD-%D9%84%D8%B7%D9%8A%D9%81%D8%A9-%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%AC%D8%AF%D9%84%D8%A7-1648473.html)
