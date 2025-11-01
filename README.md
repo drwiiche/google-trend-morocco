@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Sat, 1 Nov 2025 09:40:00 -0700)
+
+- **Sinner-Zverev, semifinale del Masters-1000 di Parigi in diretta: 6-0, Jannik domina il primo set**: [Link](https://www.corriere.it/sport/tennis/diretta-live/25_novembre_01/sinner-zverev-semifinale-parigi-diretta-risultato.shtml)
+- **Tennis Tracker: Sinner in campo contro Zverev a Parigi (0-0), esordio ok per Errani/Paolini alle Finals**: [Link](https://www.diretta.it/news/tennis-parigi-atp-singolare-tennis-tracker-sinner-in-campo-contro-zverev-a-parigi-0-0-esordio-ok-per-errani-paolini-alle-finals/GIDu7hV9/)
+- **Atp Parigi, il riscaldamento di Sinner pre semifinale**: [Link](https://sport.sky.it/tennis/video/2025/11/01/sinner-atp-parigi-riscaldamento-semifinale-1048001)
+
+
 ### atletico madrid (N/A, Sat, 1 Nov 2025 09:30:00 -0700)
 
 - **Diego Simeone talks systems, Barrios replacements and substitutions before Sevilla**: [Link](https://www.intothecalderon.com/atletico-madrid-quotes/18770/diego-simeone-matias-almeyda-atletico-madrid-sevilla-la-liga-press-conference-alvarez-barrios-johnny-cardoso-conor-gallagher)
