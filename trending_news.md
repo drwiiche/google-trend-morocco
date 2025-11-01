@@ -1,3 +1,10 @@
+### auxerre – marseille (N/A, Sat, 1 Nov 2025 13:20:00 -0700)
+
+- **AJ Auxerre - Olympique de Marseille en direct - Ligue 1 : Football Scores & Résultats - 01/11/2025**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-aj-auxerre-olympique-de-marseille_mtc1609241/live-commentary.shtml)
+- **Conflits internes, fissures dans le vestiaire, Boumsong contesté… ça brûle à tous les étages à Auxerre**: [Link](https://www.footmercato.net/a6672951395790900460-conflits-internes-fissures-dans-le-vestiaire-boumsong-conteste-ca-brule-a-tous-les-etages-a-auxerre)
+- **Ligue 1: le milieu d’Auxerre Oussama El Azzouzi forfait contre Marseille**: [Link](https://sport.le360.ma/football/ligue-1/ligue-1-le-milieu-dauxerre-oussama-el-azzouzi-forfait-contre-marseille_GJ3JTBDSOJBWTIDQXIARNPXRR4/)
+
+
 ### liverpool vs aston villa (N/A, Sat, 1 Nov 2025 12:30:00 -0700)
 
 - **Ryan Gravenberch on fitness, Villa challenge and a 'huge week' for Liverpool**: [Link](https://www.liverpoolfc.com/news/ryan-gravenberch-fitness-villa-challenge-and-huge-week-liverpool)
