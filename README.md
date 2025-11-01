@@ -1,3 +1,10 @@
+### al-nassr fc – al feiha (N/A, Sat, 1 Nov 2025 10:10:00 -0700)
+
+- **Al-Omari and Al-Ghannam Replace the Absent Al-Nassr Duo Against Al-Faihah**: [Link](https://www.ysscores.com/en/news/13848008/Al-Omari-and-Al-Ghannam-Replace-the-Absent-Al-Nassr-Duo-Against-Al-Faihah)
+- **Knights of Najd Remain Undefeated in Saudi Pro League**: [Link](https://news.ssbcrack.com/knights-of-najd-remain-undefeated-in-saudi-pro-league/)
+- **Is Cristiano Ronaldo Playing Tonight for Al Nassr vs Al Fayha?**: [Link](https://www.yardbarker.com/soccer/articles/is_cristiano_ronaldo_playing_tonight_for_al_nassr_vs_al_fayha/s1_17615_42998147)
+
+
 ### tottenham – chelsea (N/A, Sat, 1 Nov 2025 09:50:00 -0700)
 
 - **Alan Shearer and Harry Redknapp disagree on Tottenham vs Chelsea score prediction**: [Link](https://www.football.london/chelsea-fc/news/alan-shearer-harry-redknapp-disagree-32793968)
