@@ -1,3 +1,24 @@
+### tottenham – chelsea (N/A, Sat, 1 Nov 2025 09:50:00 -0700)
+
+- **Alan Shearer and Harry Redknapp disagree on Tottenham vs Chelsea score prediction**: [Link](https://www.football.london/chelsea-fc/news/alan-shearer-harry-redknapp-disagree-32793968)
+- **Frank trusts the fans in the derby against Chelsea**: [Link](https://zamin.uz/en/sport/166167-frank-trusts-the-fans-in-the-derby-against-chelsea.html)
+- **“Chelsea must start” – Paul Merson names player Enzo Maresca has to play against Tottenham**: [Link](https://chelsea.news/2025/10/paul-merson-chelsea-tottenham-pedro-neto/)
+
+
+### bayern – leverkusen (N/A, Sat, 1 Nov 2025 09:50:00 -0700)
+
+- **FC Bayern: Aufstellung da! Kompany sorgt für XXL-Überraschung**: [Link](https://www.bild.de/sport/fussball/fc-bayern-aufstellung-da-kompany-sorgt-fuer-xxl-ueberraschung-69061bf6df9fa029228f01cc)
+- **Meister vs. Vizemeister: Welche Super-Serie reißt heute im Tipico-Topspiel?**: [Link](https://www.tipico.de/wett-tipps/sport-news/meister-vs-vizemeister-welche-super-serie-reisst-heute-im-tipico-topspiel)
+- **FC Bayern vs. Bayer Leverkusen heute live: Bundesliga im Free-TV, Livestream und Liveticker**: [Link](https://www.ran.de/sports/fussball/bundesliga/news/fc-bayern-muenchen-vs-bayer-leverkusen-heute-live-bundesliga-im-free-tv-livestream-und-liveticker-597668)
+
+
+### real sociedad – ath. bilbao (N/A, Sat, 1 Nov 2025 09:50:00 -0700)
+
+- **"El derbi vasco de Anoeta va a pasar muchas facturas"**: [Link](https://www.marca.com/futbol/opinion/2025/11/01/derbi-vasco-anoeta-pasar-muchas-facturas.html)
+- **El Día D**: [Link](https://www.realsociedad.eus/es/noticias/detalle/el-dia-d)
+- **Cómo ver Real Sociedad vs Atlético de Madrid gratis y en vivo (LaLiga 2025)**: [Link](https://cybernews.com/es/ver-online/ver-real-sociedad-vs-athletic-club-la-liga-01-11-2025/)
+
+
 ### jannik sinner (N/A, Sat, 1 Nov 2025 09:40:00 -0700)
 
 - **Sinner-Zverev, semifinale del Masters-1000 di Parigi in diretta: 6-0, Jannik domina il primo set**: [Link](https://www.corriere.it/sport/tennis/diretta-live/25_novembre_01/sinner-zverev-semifinale-parigi-diretta-risultato.shtml)
