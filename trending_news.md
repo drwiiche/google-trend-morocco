@@ -1,3 +1,10 @@
+### villarreal – rayo (N/A, Sat, 1 Nov 2025 05:20:00 -0700)
+
+- **Álvaro amenaza a un Submarino muy sólido en La Cerámica**: [Link](https://as.com/futbol/primera/alvaro-amenaza-a-un-submarino-muy-solido-en-la-ceramica-f202511-n/)
+- **Villarreal – Rayo Vallecano el partido de fútbol de Jornada 11 de LaLiga EA Sports, en directo**: [Link](https://www.lavanguardia.com/deportes/futbol/20251101/21934/villarreal-rayo-vallecano-laliga-primera-division-ca-en-directo-ctx.html)
+- **“Si imponemos nuestro juego con pausa y precisión estaremos cerca de ganar”**: [Link](https://villarrealcf.es/si-imponemos-nuestro-juego-con-pausa-y-precision-estaremos-cerca-de-ganar/)
+
+
 ### tindouf (N/A, Fri, 31 Oct 2025 14:10:00 -0700)
 
 - **Station terminus pour les séparatistes d’Alger**: [Link](https://fr.le360.ma/monde/station-terminus-pour-les-separatistes-dalger_56GFZI7345CZJMCHQVEPAM2AEE/)
