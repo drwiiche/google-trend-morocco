@@ -1,3 +1,10 @@
+### lynx ibérique blanc (N/A, Sat, 1 Nov 2025 02:10:00 -0700)
+
+- **Un lynx ibérique blanc capturé pour la première fois en photo**: [Link](https://fr.euronews.com/green/2025/11/01/un-lynx-iberique-blanc-capture-pour-la-premiere-fois-en-photo)
+- **Un félin extrêmement rare filmé pour la première fois, il a une particularité unique**: [Link](https://www.linternaute.com/actualite/societe/9129360-article/)
+- **« C’est impossible à croire ! » : Ángel Hidalgo Garrido nous raconte comment il a fait son incroyable photo d’un lynx blanc**: [Link](https://fr.news.yahoo.com/c-impossible-%C3%A0-croire-%C3%A1ngel-155208265.html)
+
+
 ### tcheky karyo (N/A, Sat, 1 Nov 2025 02:20:00 -0700)
 
 - **Tchéky Karyo, star of Nikita and The Missing, dies at 72**: [Link](https://www.bbc.com/news/articles/cx2dd7yyly9o)
