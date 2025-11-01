@@ -1,3 +1,10 @@
+### man united (N/A, Sat, 1 Nov 2025 08:40:00 -0700)
+
+- **Life after Manchester Utd: Ruben Amorim says he is 'happy' for Marcus Rashford, Antony and Rasmus Hojlund**: [Link](https://www.skysports.com/football/video/30998/13456644/life-after-manchester-utd-ruben-amorim-says-he-is-happy-for-marcus-rashford-antony-and-rasmus-hojlund)
+- **Nani makes 'happy' Marcus Rashford claim that will raise eyebrows at Man Utd**: [Link](https://www.mirror.co.uk/sport/football/news/barcelona-marcus-rashford-man-utd-36173884)
+- **Man Utd news: Ruben Amorim told 'everything can change' as 'magical' star wants transfer**: [Link](https://www.dailystar.co.uk/sport/football/man-utd-news-ruben-amorim-36173495)
+
+
 ### الخليج ضد الاتحاد (N/A, Sat, 1 Nov 2025 08:50:00 -0700)
 
 - **مباشر مباراة الاتحاد ضد الخليج في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF)
