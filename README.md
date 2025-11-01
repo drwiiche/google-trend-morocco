@@ -1,3 +1,10 @@
+### brighton – leeds united (N/A, Sat, 1 Nov 2025 07:40:00 -0700)
+
+- **Daniel Farke provides fitness update ahead of Brighton clash**: [Link](https://www.leedsunited.com/en/news/daniel-farke-provides-fitness-update-ahead-of-brighton-clash)
+- **Burnley vs Arsenal LIVE: Premier League team news, line-ups and more**: [Link](https://www.inkl.com/news/burnley-vs-arsenal-live-premier-league-team-news-line-ups-and-more)
+- **Mitoma, Gruda, Hinshelwood - Every Brighton injury and expected return dates ahead of Leeds United**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/mitoma-gruda-hinshelwood-every-brighton-injury-and-expected-return-dates-ahead-of-leeds-united-5383266)
+
+
 ### atlético madrid – séville (N/A, Sat, 1 Nov 2025 07:30:00 -0700)
 
 - **Pronostic Atlético Madrid - Séville, Liga**: [Link](https://www.sportytrader.com/pronostics/atletico-madrid-seville-301720/)
