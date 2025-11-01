@@ -1,3 +1,17 @@
+### epic games (N/A, Sat, 1 Nov 2025 14:30:00 -0700)
+
+- **Fortnite's The Simpsons event is both bigger and smaller than you think**: [Link](https://www.polygon.com/fortnite-the-simpsons-springfield-map-changes-player-count-size/)
+- **Fortnite Servers Down: When Will The Simpsons Crossover Go Live?**: [Link](https://azat.tv/en/fortnite-servers-down-the-simpsons-crossover-update/)
+- **Fortnite The Simpsons start time: our live coverage of today's The Simpsons update now that Fortnite is in downtime**: [Link](https://www.techradar.com/news/live/fortnite-the-simpsons-live-event-start-time-and-impressions)
+
+
+### nasser bourita (N/A, Sat, 1 Nov 2025 14:10:00 -0700)
+
+- **Sahara occidental : les Etats-Unis à l’offensive à l’ONU pour défendre une autonomie sous souveraineté du Maroc**: [Link](https://www.lemonde.fr/afrique/article/2025/10/29/sahara-occidental-un-vote-decisif-a-l-onu-pour-l-avenir-du-territoire-conteste_6650123_3212.html)
+- **Sur Google Maps au Maroc, la ligne séparant le Sahara occidental du pays a déjà disparu**: [Link](https://www.liberation.fr/international/afrique/sur-google-maps-au-maroc-la-ligne-separant-le-sahara-occidental-du-pays-a-deja-disparu-20251101_WY63XXB5ENGJ5IYGH3SKM7T6DE/)
+- **Résolution onusienne sur le Sahara : l'analyse juridique de Mohamed Dinia Mekouar**: [Link](https://medias24.com/2025/11/01/resolution-onusienne-sur-le-sahara-lanalyse-juridique-de-mohamed-dinia-mekouar/)
+
+
 ### ريال مدريد (N/A, Sat, 1 Nov 2025 13:50:00 -0700)
 
 - **مبابي يحتفل بالحذاء الذهبي وسط جماهير البرنابيو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%A7%D9%84%D8%AD%D8%B0%D8%A7%D8%A1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A-%D9%88%D8%B3%D8%B7-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88/blt213fc6dd5beed0da)
