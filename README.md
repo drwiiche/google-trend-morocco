@@ -1,3 +1,10 @@
+### classement la liga (N/A, Sat, 1 Nov 2025 15:40:00 -0700)
+
+- **DIRECT. Real Madrid-Valence CF (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-madrid-valence-cf-live/676817)
+- **Real Madrid - Valence en direct - La Liga : Football Scores & Résultats - 01/11/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-real-madrid-valence_mtc1610532/live-commentary.shtml)
+- **Liga : le Real Madrid domine Valence avec un Kylian Mbappé double buteur**: [Link](https://www.footmercato.net/a2317025600219762537-liga-le-real-madrid-domine-valence-avec-un-kylian-mbappe-double-buteur)
+
+
 ### epic games (N/A, Sat, 1 Nov 2025 14:30:00 -0700)
 
 - **Fortnite's The Simpsons event is both bigger and smaller than you think**: [Link](https://www.polygon.com/fortnite-the-simpsons-springfield-map-changes-player-count-size/)
