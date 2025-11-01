@@ -1,3 +1,17 @@
+### burnley – arsenal (N/A, Sat, 1 Nov 2025 07:20:00 -0700)
+
+- **Arteta gives injury updates on Martinelli, Saliba | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-gives-injury-updates-martinelli-saliba)
+- **Premier League: Build-up to five games at 15:00 GMT, including Burnley v Arsenal**: [Link](https://www.aol.com/articles/premier-league-build-five-games-131534074.html)
+- **Arteta on his matchday diet, throw-in towels, superstitions and actual football stuff**: [Link](https://arseblog.news/2025/11/arteta-on-his-matchday-diet-throw-in-towels-superstitions-and-actual-football-stuff/)
+
+
+### crystal palace – brentford (N/A, Sat, 1 Nov 2025 07:20:00 -0700)
+
+- **Team News: Crystal Palace vs. Brentford injury, suspension list, predicted XIs**: [Link](https://www.sportsmole.co.uk/football/crystal-palace/team-news/crystal-palace-vs-brentford-injury-suspension-list-predicted-xis_584677.html)
+- **Kevin Schade vs. Crystal Palace – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/kevin-schade-soccer-player-props-11-1-2025/87017992007/)
+- **Crystal Palace manager Oliver Glasner ‘disappointed’ by USMNT’s handling of Chris Richards - The Athletic**: [Link](https://www.nytimes.com/athletic/6766519/2025/10/31/chris-richards-injury-usmnt-palace/)
+
+
 ### nottm forest – manchester united (N/A, Sat, 1 Nov 2025 07:10:00 -0700)
 
 - **Premier League predictions and best bets: Don't be fooled by Manchester United - they haven't changed**: [Link](https://www.skysports.com/football/news/11095/13460798/premier-league-predictions-and-best-bets-dont-be-fooled-by-manchester-united-they-havent-changed)
