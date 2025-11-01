@@ -1,3 +1,10 @@
+### liverpool (N/A, Sat, 1 Nov 2025 13:40:00 -0700)
+
+- **Premier League LIVE: Liverpool vs Aston Villa - scores & updates**: [Link](https://www.bbc.com/sport/football/live/cevzwrp9we9t?page=2)
+- **Mohamed Salah becomes 11th player to hit 250 goals for a top-five league club this century**: [Link](https://www.transfermarkt.com/mohamed-salah-becomes-11th-player-to-hit-250-goals-for-a-top-five-league-club-this-century/view/news/462230)
+- **Salah scores landmark goal as he matches Rooney record**: [Link](https://www.premierleague.com/en/news/4453256/mohamed-salah-scores-250th-goal-for-liverpool-and-equals-wayne-rooney-goal-involvements-one-club-record)
+
+
 ### classement la liga (N/A, Sat, 1 Nov 2025 15:40:00 -0700)
 
 - **DIRECT. Real Madrid-Valence CF (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-madrid-valence-cf-live/676817)
