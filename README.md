@@ -1,3 +1,10 @@
+### فياريال ضد رايو فاليكانو (N/A, Sat, 1 Nov 2025 06:20:00 -0700)
+
+- **موعد مباراة فياريال ورايو فاييكانو في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/535269)
+- **بث مباشر.. شاهد مباراة فياريال ورايو فاليكانو في الدوري الإسباني**: [Link](https://www.khaligyoun.com/595263/)
+- **إلياس اخوماش يدون أول أهدافه في الموسم**: [Link](https://www.almountakhab.com/node/13219073)
+
+
 ### leicester – blackburn (N/A, Sat, 1 Nov 2025 06:00:00 -0700)
 
 - **Blackburn Rovers predicted team as injury blow sparks dilemma**: [Link](https://www.lancashiretelegraph.co.uk/sport/25585551.blackburn-rovers-predicted-team-face-leicester-city/)
