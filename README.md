@@ -1,3 +1,10 @@
+### suspension réforme retraites (N/A, Sat, 1 Nov 2025 11:20:00 -0700)
+
+- **Budget de la « Sécu » : la suspension de la réforme des retraites votée en commission, une première clarification des positions de groupe**: [Link](https://www.lemonde.fr/politique/article/2025/11/01/budget-de-la-secu-la-suspension-de-la-reforme-des-retraites-votee-en-commission-une-premiere-clarification-des-positions-de-groupe_6650804_823448.html)
+- **Retraite à 60 ans: «Les “escarpins” socialistes n’ont pas fait mieux que les “godillots” gaullistes»**: [Link](https://www.ouest-france.fr/economie/retraites/retraite-a-60-ans-les-escarpins-socialistes-nont-pas-fait-mieux-que-les-godillots-gaullistes-beb549fa-b649-11f0-82c7-21cf9bb02d71)
+- **Budget de la sécurité sociale : audition du ministre du Travail**: [Link](https://www.publicsenat.fr/emission/100-senat/budget-de-la-securite-sociale-audition-du-ministre-du-travail-e38)
+
+
 ### real madrid - valencia c. f. (N/A, Sat, 1 Nov 2025 12:30:00 -0700)
 
 - **Real Madrid - Valencia hoy, en directo: jornada 11 de LaLiga EA Sports, última hora en vivo**: [Link](https://as.com/futbol/primera/real-madrid-valencia-hoy-en-directo-jornada-11-de-laliga-ea-sports-ultima-hora-en-vivo-f202511-d/)
