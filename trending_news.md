@@ -1,3 +1,24 @@
+### توتنهام ضد تشيلسي (N/A, Sat, 1 Nov 2025 11:00:00 -0700)
+
+- **أسطورة تشيلسي يرسم خطة إسقاط توتنهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D8%B1%D8%B3%D9%85-%D8%AE%D8%B7%D8%A9-%D8%A7%D9%95%D8%B3%D9%82%D8%A7%D8%B7-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85/blt072a750c8a4a37cc)
+- **فرانك يشيد بأداء تشيلسي مع ماريسكا**: [Link](https://hihi2.com/2025/11/01/p3452832.html)
+- **عودة روميرو وأودوجي تشعل حماس توتنهام قبل موقعة تشيلسي في البريميرليغ**: [Link](https://www.arrajol.com/content/387496/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B9%D9%88%D8%AF%D8%A9-%D8%B1%D9%88%D9%85%D9%8A%D8%B1%D9%88-%D9%88%D8%A3%D9%88%D8%AF%D9%88%D8%AC%D9%8A-%D8%AA%D8%B4%D8%B9%D9%84-%D8%AD%D9%85%D8%A7%D8%B3-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA)
+
+
+### البايرن ضد ليفركوزن (N/A, Sat, 1 Nov 2025 11:00:00 -0700)
+
+- **موعد مباراة بايرن ميونيخ وباير ليفركوزن في الدوري الألماني**: [Link](https://www.almasryalyoum.com/news/details/3589983)
+- **كين على مقاعد البدلاء في صدام بايرن وليفركوزن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D9%81%D9%8A-%D8%B5%D8%AF%D8%A7%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86/bltd74e41819130b1f7)
+- **بطولة ألمانيا: بايرن يصطدم بليفركوزن في مسعاه لمواصلة سجله المثالي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251030-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86-%D9%81%D9%8A-%D9%85%D8%B3%D8%B9%D8%A7%D9%87-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%B3%D8%AC%D9%84%D9%87-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A)
+
+
+### النصر ضد ألفيحاء (N/A, Sat, 1 Nov 2025 10:50:00 -0700)
+
+- **مباشر.. مباراة النصر ضد الفيحاء في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/1/al-nassr-vs-al-fayha-2)
+- **غياب سيماكان يُربك جيسوس.. تعديلات اضطرارية في دفاع النصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B3%D9%8A%D9%85%D8%A7%D9%83%D8%A7%D9%86-%D9%8A%D9%8F%D8%B1%D8%A8%D9%83-%D8%AC%D9%8A%D8%B3%D9%88%D8%B3--%D8%AA%D8%B9%D8%AF%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1/blt4e4b33429999300c)
+- **5 مباريات قوية تنتظر النصر في نوفمبر 2025**: [Link](https://hihi2.com/2025/11/01/p3453392.html)
+
+
 ### al-nassr fc – al feiha (N/A, Sat, 1 Nov 2025 10:10:00 -0700)
 
 - **Al-Omari and Al-Ghannam Replace the Absent Al-Nassr Duo Against Al-Faihah**: [Link](https://www.ysscores.com/en/news/13848008/Al-Omari-and-Al-Ghannam-Replace-the-Absent-Al-Nassr-Duo-Against-Al-Faihah)
