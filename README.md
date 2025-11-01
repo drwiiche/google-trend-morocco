@@ -1,3 +1,10 @@
+### leicester – blackburn (N/A, Sat, 1 Nov 2025 06:00:00 -0700)
+
+- **Blackburn Rovers predicted team as injury blow sparks dilemma**: [Link](https://www.lancashiretelegraph.co.uk/sport/25585551.blackburn-rovers-predicted-team-face-leicester-city/)
+- **Show We’re Capable, Says James**: [Link](https://www.lcfc.com/pages/en/media-article/leicester-city-lcfc-foxes-blackburn-rovers-brfc-jordan-james-preview)
+- **Team news: Leicester City v Rovers**: [Link](https://www.rovers.co.uk/news/2025/november/01/team-news--leicester-city-v-rovers/)
+
+
 ### villarreal – rayo (N/A, Sat, 1 Nov 2025 05:20:00 -0700)
 
 - **Álvaro amenaza a un Submarino muy sólido en La Cerámica**: [Link](https://as.com/futbol/primera/alvaro-amenaza-a-un-submarino-muy-solido-en-la-ceramica-f202511-n/)
