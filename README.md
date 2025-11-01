@@ -1,3 +1,10 @@
+### بي اس جي ضد نيس (N/A, Sat, 1 Nov 2025 08:40:00 -0700)
+
+- **حكيمي ضمن 3 أسلحة تعزز قوة باريس أمام نيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%B6%D9%85%D9%86-3-%D8%A7%D9%94%D8%B3%D9%84%D8%AD%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%82%D9%88%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%86%D9%8A%D8%B3/bltcfdf74c710f5e646)
+- **إنريكي يحث سان جيرمان على استلهام التحفيز من سجله المتواضع على أرضه**: [Link](https://www.hesport.com/%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%AD%D8%AB-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D8%B3%D8%AA%D9%84%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D8%AD-410457.html)
+- **باريس سان جيرمان يفتقد نجمه دوي "لعدة أسابيع" بسبب الإصابة**: [Link](https://m.elbotola.com/article/2025-10-30-17-43-21.html)
+
+
 ### paris-sg – nice (N/A, Sat, 1 Nov 2025 08:30:00 -0700)
 
 - **PSG-Nice : Luis Enrique se prive d’Ibrahim Mbaye… attendu avec les U 19**: [Link](https://www.leparisien.fr/sports/football/psg/psg-nice-luis-enrique-se-prive-dibrahim-mbaye-attendu-avec-les-u-19-31-10-2025-DHGIQ5XU7ZACLMQ2PJ5SIS76M4.php)
