@@ -1,3 +1,10 @@
+### accident autoroute el jadida (N/A, Sat, 1 Nov 2025 02:10:00 -0700)
+
+- **Carambolage sur l’autoroute Casablanca-El Jadida: plus de vingt véhicules impliqués et plusieurs blessés**: [Link](https://fr.le360.ma/societe/carambolage-sur-lautoroute-casablanca-el-jadida-plus-de-vingt-vehicules-impliques-et-plusieurs_DC3TCMVYKVECJGN27HSPCFVLQ4/)
+- **Un mort et plusieurs blessés dans un grave accident sur l’autoroute d’El Jadida**: [Link](https://fr.hespress.com/447808-un-mort-et-plusieurs-blesses-dans-un-grave-accident-sur-lautoroute-del-jadida.html)
+- **Un épais brouillard provoque des collisions en série sur l’autoroute entre El Jadida et Azemmour**: [Link](https://fr.hibapress.com/news-215326.html)
+
+
 ### le maroc (N/A, Fri, 31 Oct 2025 17:20:00 -0700)
 
 - **Conférence de presse du sélectionneur Hoalid Regragui**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-4/)
