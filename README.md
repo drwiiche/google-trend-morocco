@@ -1,3 +1,10 @@
+### nottm forest – manchester united (N/A, Sat, 1 Nov 2025 07:10:00 -0700)
+
+- **Premier League predictions and best bets: Don't be fooled by Manchester United - they haven't changed**: [Link](https://www.skysports.com/football/news/11095/13460798/premier-league-predictions-and-best-bets-dont-be-fooled-by-manchester-united-they-havent-changed)
+- **Every word of the embargoed section of Ruben Amorim’s Nottingham Forest pre-match press conference**: [Link](https://thepeoplesperson.com/2025/10/31/every-word-of-the-embargoed-section-of-ruben-amorims-nottingham-forest-pre-match-press-conference-300573/)
+- **Alan Shearer on Man United upturn: 'It’s too early to say they’re the real deal'**: [Link](https://tribuna.com/en/news/2025-10-31-alan-shearer-on-man-united-upturn-its-too-early-to-say-theyre-the-real-deal/)
+
+
 ### udinese – atalanta (N/A, Sat, 1 Nov 2025 06:50:00 -0700)
 
 - **Calcio Live News: alle 15 in campo Udinese-Atalanta, Balotelli contro Vieira sui social**: [Link](https://www.diretta.it/news/calcio-live-news-alle-15-in-campo-udinese-atalanta-balotelli-contro-vieira-sui-social/vyuWTcmT/)
