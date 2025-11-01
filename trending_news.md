@@ -1,3 +1,10 @@
+### kylian mbappé (N/A, Sat, 1 Nov 2025 14:20:00 -0700)
+
+- **Real Madrid star Kylian Mbappe awarded Golden Boot ahead of Liverpool, Arsenal and Barcelona stars**: [Link](https://www.football-espana.net/2025/10/31/kylian-mbappe-awarded-golden-boot-for-2024-25)
+- **Mbappé wins the European Golden Shoe**: [Link](https://reporteri.net/en/sport/Mbappe-wins-the-European-Golden-Shoe/)
+- **Mbappe wins 2025 Golden Boot; how many goals he scored, minutes, points and full coefficient**: [Link](https://www.marca.com/en/football/real-madrid/2025/10/31/6904b55d268e3ef2588b456e.html)
+
+
 ### ليفربول (N/A, Sat, 1 Nov 2025 14:00:00 -0700)
 
 - **صلاح يقود ليفربول أمام أستون فيلا.. وفيرتز بديل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%82%D9%88%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7--%D9%88%D9%81%D9%8A%D8%B1%D8%AA%D8%B2-%D8%A8%D8%AF%D9%8A%D9%84%D8%A7/blt21338e8f89a047e7)
