@@ -1,3 +1,17 @@
+### أتلتيكو مدريد ضد إشبيلية (N/A, Sat, 1 Nov 2025 07:50:00 -0700)
+
+- **إحصائيات مميزة لـ أتلتيكو مدريد قبل مواجهة إشبيلية**: [Link](https://hihi2.com/2025/11/01/p3453536.html)
+- **مباراة أتليتكو مدريد و إشبيلية في الدوري الإسباني**: [Link](https://www.hibasport.com/kora/match/10019594/%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-vs-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9/)
+- **بث مباشر.. تابع مباراة أتلتيكو مدريد ضد إشبيلية اليوم في الدوري الإسباني بجودة عالية**: [Link](https://www.almashhad.news/350657)
+
+
+### rb leipzig – stuttgart (N/A, Sat, 1 Nov 2025 07:50:00 -0700)
+
+- **Preview:RB Leipzig vs Stuttgart - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rb-leipzig/preview/rb-leipzig-vs-stuttgart-prediction-team-news-lineups_584776.html)
+- **Yan Diomande vs. VfB Stuttgart – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/10/31/yan-diomande-soccer-player-props-11-1-2025/87018305007/)
+- **Werner: 'It’s always about the next challenge'**: [Link](https://sports.yahoo.com/video/werner-always-next-challenge-153010588.html)
+
+
 ### brighton – leeds united (N/A, Sat, 1 Nov 2025 07:40:00 -0700)
 
 - **Daniel Farke provides fitness update ahead of Brighton clash**: [Link](https://www.leedsunited.com/en/news/daniel-farke-provides-fitness-update-ahead-of-brighton-clash)
