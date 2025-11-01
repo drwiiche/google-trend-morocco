@@ -1,3 +1,17 @@
+### guimarães – benfica (N/A, Sat, 1 Nov 2025 13:40:00 -0700)
+
+- **Já são conhecidos os onzes iniciais de Vitória SC e Benfica: Mourinho aposta em Aursnes na lateral direita**: [Link](https://sapo.pt/artigo/ja-sao-conhecidos-os-onzes-iniciais-de-vitoria-sc-e-benfica-mourinho-aposta-em-aursnes-na-lateral-direita-690660ae83bf480a24b4d44b)
+- **BNews - Ganhar em Guimarães**: [Link](https://www.slbenfica.pt/pt-pt/agora/bnews/2025/11/01)
+- **Vitória x Benfica: onde assistir, horário e escalações**: [Link](https://veja.abril.com.br/esporte/vitoria-x-benfica-onde-assistir-horario-e-escalacoes/)
+
+
+### mbappe (N/A, Sat, 1 Nov 2025 13:40:00 -0700)
+
+- **Real Madrid star Kylian Mbappe awarded Golden Boot ahead of Liverpool, Arsenal and Barcelona stars**: [Link](https://www.football-espana.net/2025/10/31/kylian-mbappe-awarded-golden-boot-for-2024-25)
+- **Mbappe wins 2025 Golden Boot; how many goals he scored, minutes, points and full coefficient**: [Link](https://www.marca.com/en/football/real-madrid/2025/10/31/6904b55d268e3ef2588b456e.html)
+- **Kylian Mbappe will be awarded the "Golden Boot" tomorrow**: [Link](https://indeksonline.net/en/Kylian-Mbappe-will-be-awarded-the-Golden-Boot-tomorrow/)
+
+
 ### auxerre – marseille (N/A, Sat, 1 Nov 2025 13:20:00 -0700)
 
 - **AJ Auxerre - Olympique de Marseille en direct - Ligue 1 : Football Scores & Résultats - 01/11/2025**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-aj-auxerre-olympique-de-marseille_mtc1609241/live-commentary.shtml)
