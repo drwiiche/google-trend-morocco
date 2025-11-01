@@ -1,3 +1,31 @@
+### ليفربول (N/A, Sat, 1 Nov 2025 14:00:00 -0700)
+
+- **صلاح يقود ليفربول أمام أستون فيلا.. وفيرتز بديل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%82%D9%88%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7--%D9%88%D9%81%D9%8A%D8%B1%D8%AA%D8%B2-%D8%A8%D8%AF%D9%8A%D9%84%D8%A7/blt21338e8f89a047e7)
+- **ليفربول في أزمة.. سلوت يطالب لاعبيه بفعالية هجومية أكبر**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%A3%D8%B2%D9%85%D8%A9-%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87-%D8%A8%D9%81%D8%B9%D8%A7%D9%84%D9%8A%D8%A9-%D9%87%D8%AC%D9%88%D9%85%D9%8A%D8%A9-%D8%A3%D9%83%D8%A8%D8%B1/11034)
+- **ليفربول يفتقد جهود إيساك وأليسون أمام أستون فيلا**: [Link](https://www.alquds.co.uk/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D9%81%D8%AA%D9%82%D8%AF-%D8%AC%D9%87%D9%88%D8%AF-%D8%A5%D9%8A%D8%B3%D8%A7%D9%83-%D9%88%D8%A3%D9%84%D9%8A%D8%B3%D9%88%D9%86-%D8%A3%D9%85%D8%A7%D9%85/)
+
+
+### real madrid (N/A, Sat, 1 Nov 2025 13:50:00 -0700)
+
+- **Real Madrid - Valencia hoy, en directo: jornada 11 de LaLiga EA Sports, última hora en vivo**: [Link](https://as.com/futbol/primera/real-madrid-valencia-hoy-en-directo-jornada-11-de-laliga-ea-sports-ultima-hora-en-vivo-f202511-d/)
+- **¡Ay! Arda Guler sufre un susto por lesión en el partido contra el Valencia**: [Link](https://tribuna.com/es/blogs/ay-arda-guler-sufre-un-susto-por-lesion-en-el-partido-contra/)
+- **🔴 Golazo de Bellingham para el 3-0 justo antes del descanso**: [Link](https://onefootball.com/es/noticias/golazo-de-bellingham-para-el-3-0-justo-antes-del-descanso-41887654)
+
+
+### ناصر بوريطة (N/A, Sat, 1 Nov 2025 13:50:00 -0700)
+
+- **سفارة أمريكا: التصويت الأممي حاسم**: [Link](https://www.hespress.com/%D8%B3%D9%81%D8%A7%D8%B1%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%A7%D9%84%D8%AA%D8%B5%D9%88%D9%8A%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%85%D9%8A-%D8%AD%D8%A7%D8%B3%D9%85-1649302.html)
+- **ربع قرن من القيادة الملكية… الصحراء المغربية بين الشرعية التاريخية والاعتراف الدولي**: [Link](https://ar.hibapress.com/details-671404.html)
+- **محطات من الخطاب الملكي**: [Link](https://al3omk.com/1113358.html)
+
+
+### cremonese vs juventus (N/A, Sat, 1 Nov 2025 13:50:00 -0700)
+
+- **Round 10: Juventus vs. Cremonese match preview**: [Link](https://www.blackwhitereadallover.com/previews-reviews/33304/cremonese-juventus-luciano-spalletti-2025-serie-a-matchday-10-preview-team-news-schedule-how-to-watch)
+- **Filippo Terracciano vs. Juventus – Player props & odds to score a goal on November 1**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/filippo-terracciano-soccer-player-props-11-1-2025/87028418007/)
+- **Game Time Thread: Juventus vs. Cremonese**: [Link](https://sports.yahoo.com/article/game-time-thread-juventus-vs-183000033.html)
+
+
 ### guimarães – benfica (N/A, Sat, 1 Nov 2025 13:40:00 -0700)
 
 - **Já são conhecidos os onzes iniciais de Vitória SC e Benfica: Mourinho aposta em Aursnes na lateral direita**: [Link](https://sapo.pt/artigo/ja-sao-conhecidos-os-onzes-iniciais-de-vitoria-sc-e-benfica-mourinho-aposta-em-aursnes-na-lateral-direita-690660ae83bf480a24b4d44b)
