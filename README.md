@@ -1,3 +1,10 @@
+### barca (N/A, Sun, 2 Nov 2025 09:40:00 -0800)
+
+- **Barcelona vs Elche: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c78zmz795jjt)
+- **How to Watch Barcelona vs. Elche on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-barcelona-vs-elche-on-tv-live-stream-11-2-25)
+- **LIVE: Barcelona vs Elche – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2025/11/2/live-barcelona-vs-elche-la-liga)
+
+
 ### city (N/A, Sun, 2 Nov 2025 09:20:00 -0800)
 
 - **NYC Marathon: Live Updates**: [Link](https://www.nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates)
