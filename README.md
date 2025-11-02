@@ -1,3 +1,10 @@
+### bourita (N/A, Sat, 1 Nov 2025 14:20:00 -0700)
+
+- **Sahara occidental : les Etats-Unis à l’offensive à l’ONU pour défendre une autonomie sous souveraineté du Maroc**: [Link](https://www.lemonde.fr/afrique/article/2025/10/29/sahara-occidental-un-vote-decisif-a-l-onu-pour-l-avenir-du-territoire-conteste_6650123_3212.html)
+- **Résolution onusienne sur le Sahara : l'analyse juridique de Mohamed Dinia Mekouar**: [Link](https://medias24.com/2025/11/01/resolution-onusienne-sur-le-sahara-lanalyse-juridique-de-mohamed-dinia-mekouar/)
+- **Conseil de Sécurité : battue, l'Algérie déplore un “cadre étriqué” de négociation pour le Sahara**: [Link](https://mobile.telquel.ma/instant-t/2025/10/31/conseil-de-securite-battue-lalgerie-deplore-un-cadre-etrique-de-negociation-pour-le-sahara_1958831/)
+
+
 ### iphone 16 (N/A, Sat, 1 Nov 2025 23:30:00 -0700)
 
 - **If the iPhone 17 Pro Max goes on sale this Black Friday, I'll eat my hat – here's why**: [Link](https://www.techradar.com/phones/iphone/theres-still-a-two-week-wait-for-the-iphone-17-pro-max-so-dont-expect-to-see-it-discounted-for-black-friday)
