@@ -1,3 +1,10 @@
+### مان سيتي ضد بورنموث (N/A, Sun, 2 Nov 2025 08:00:00 -0800)
+
+- **جوارديولا: الدوري الإنجليزي استعاد تنافسيته**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D9%85%D8%AB%D9%84-nba--%D9%88%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%AC%D8%A7%D9%87%D8%B2-%D9%84%D9%84%D9%85%D8%B3%D8%A7%D8%B9%D8%AF%D8%A9/blt5a499158d86c4627)
+- **غوارديولا: هالاند جاهز لمباراة بورنموث**: [Link](https://www.hesport.com/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%AC%D8%A7%D9%87%D8%B2-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88-410472.html)
+- **فيل فودين على موعد مع رقم تاريخي رفقة مانشستر سيتي**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/1349972/%D9%81%D9%8A%D9%84-%D9%81%D9%88%D8%AF%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%B9-%D8%B1%D9%82%D9%85-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%B1%D9%81%D9%82%D8%A9-%D9%85%D8%A7)
+
+
 ### manchester city – bournemouth (N/A, Sun, 2 Nov 2025 07:40:00 -0800)
 
 - **How to Watch Man City vs. Bournemouth on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-man-city-vs-bournemouth-on-tv-live-stream-premier-league-11-2-25)
