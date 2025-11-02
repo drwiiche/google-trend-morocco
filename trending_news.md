@@ -1,3 +1,24 @@
+### rennes – strasbourg (N/A, Sun, 2 Nov 2025 05:40:00 -0800)
+
+- **Stade Rennais - Strasbourg. Un déclic ou des claques**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/stade-rennais-strasbourg-un-declic-ou-des-claques-0b682556-b6a9-11f0-82c7-21cf9bb02d71)
+- **Ligue 1. Suivez en direct la rencontre entre Rennes et le Racing Club de Strasbourg, coup d'envoi à 15h**: [Link](https://www.dna.fr/sport/2025/11/01/suivez-en-direct-la-rencontre-entre-rennes-et-le-racing-coup-d-envoi-a-15h)
+- **Ligue 1 : où voir les derniers matchs de la onzième journée, à quelle heure ?**: [Link](https://www.foot-national.com/actus/ligue-1-srfc-rcsa-sb29-ol-tfc-hac-rcl-fcl-losc-sco-fcn-fcm-ou-voir-les-derniers-matchs-de-la-onzieme-journee-a-quelle-heure-929102)
+
+
+### algerie (N/A, Sun, 2 Nov 2025 05:40:00 -0800)
+
+- **Nationale - La halte mémorielle du président Tebboune**: [Link](https://www.lexpressiondz.com/nationale/la-halte-memorielle-du-president-tebboune-399480)
+- **Algérie : jeunesse et 1er Novembre, un sens à redéfinir**: [Link](https://fr.apanews.net/news/algerie-jeunesse-et-1er-novembre-un-sens-a-redefinir/)
+- **71e anniversaire du déclenchement de la Révolution de libération : le président de la République reçoit les vœux de son homologue turc**: [Link](http://news.radioalgerie.dz/fr/node/73359)
+
+
+### hellas vérone – inter (N/A, Sun, 2 Nov 2025 03:00:00 -0800)
+
+- **Hellas Verona vs Inter Milan – Match preview and team news**: [Link](https://thefootballfaithful.com/hellas-verona-vs-inter-milan-match-preview-and-team-news/)
+- **Gift Emmanuel Orban vs. Inter Milan – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/gift-emmanuel-orban-soccer-player-props-11-2-2025/87042975007/)
+- **Inter Milan Coach ‘They Saved My Life Here In Verona’ – Adds ‘We Must Rally Around Josep Martinez’ After Tragic Car Accident**: [Link](https://sempreinter.com/2025/11/02/verona-inter-chivu-martinez-support/)
+
+
 ### خريطة المغرب الصحراء المغربية (N/A, Sun, 2 Nov 2025 05:30:00 -0800)
 
 - **كيف استقبل المغاربة قرار مجلس الأمن بخصوص إقليم الصحراء؟**: [Link](https://www.aljazeera.net/politics/2025/11/1/%D9%83%D9%8A%D9%81-%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%86)
