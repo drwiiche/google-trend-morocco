@@ -1,3 +1,35 @@
+### الوداد الرياضي ضد اتحاد طنجة (N/A, Sun, 2 Nov 2025 11:10:00 -0800)
+
+- **ترتيب الدورة السادسة من البطولة الوطنية الاحترافية "إنوي" للقسم الأول**: [Link](https://www.medi1news.com/ar/article/369943.html)
+- **Morocco's Botola Pro Inwi league sees unbelievable missed chance in USYM vs Rennaisance Zemamra clash - USYM player cleared goalbound shot**: [Link](https://tribuna.com/en/blogs/moroccos-botola-pro-inwi-league-sees-unbelievable-missed-cha/)
+
+
+### wac (N/A, Sun, 2 Nov 2025 11:10:00 -0800)
+
+- **ACU Finishes the Final WAC Cross Country Championship**: [Link](https://acusports.com/news/2025/11/1/acu-finishes-the-final-wac-cross-country-championship.aspx)
+- **UTA cross-country competes in Western Athletic Conference championships in Arlington**: [Link](https://www.theshorthorn.com/sports/uta-cross-country-competes-in-western-athletic-conference-championships-in-arlington/article_3bcc531c-7516-45fa-9347-346840a49018.html)
+- **Nokes claims 2025 WAC individual title with team-record 5th race win of season**: [Link](https://gouvu.com/news/2025/10/31/cross-country-nokes-claims-2025-wac-individual-title-with-team-record-5th-race-win-of-season.aspx)
+
+
+### ترتيب الدوري المغربي (N/A, Sun, 2 Nov 2025 11:10:00 -0800)
+
+- **البطولة الاحترافية/ الجيش الملكي يرتقي إلى وصافة الترتيب بعد الفوز على الدفاع الجديدي (0-4)**: [Link](https://m.elbotola.com/article/2025-11-02-18-58-555.html)
+- **المقتريض: ألميدا مستمر في الدفاع الجديدي حتى نهاية الموسم**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%85%D9%82%D8%AA%D8%B1%D9%8A%D8%B6-%D8%A3%D9%84%D9%85%D9%8A%D8%AF%D8%A7-%D9%85%D8%B3%D8%AA%D9%85%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A/)
+- **البطولة: الجيش الملكي يرتقي إلى الوصافة بانتصاره على الدفاع الجديدي – اليوم 24**: [Link](https://alyaoum24.com/1992078.html)
+
+
+### ac milan – roma (N/A, Sun, 2 Nov 2025 11:00:00 -0800)
+
+- **Allegri ‘curious’ about Leao and Nkunku starting together: “Unexpected solutions”**: [Link](https://sempremilan.com/allegri-curious-leao-nkunku-together-solutions)
+- **Serie A Liveblog including Milan-Roma, Verona-Inter, Fiorentina-Lecce**: [Link](https://football-italia.net/serie-a-liveblog-inc-milan-roma-verona-inter/)
+- **The Ultimate Test at Meazza**: [Link](https://www.ilmessaggero.it/en/the_ultimate_test_at_meazza-9163149.html)
+
+
+### botola pro (N/A, Sun, 2 Nov 2025 10:50:00 -0800)
+
+
+
+
 ### barça (N/A, Sun, 2 Nov 2025 10:10:00 -0800)
 
 - **Real Sociedad-Barcelona, en directo**: [Link](https://as.com/futbol/femenino/real-sociedad-barcelona-en-directo-f202511-n/)
