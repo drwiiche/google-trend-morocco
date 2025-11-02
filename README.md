@@ -1,3 +1,24 @@
+### match wydad (N/A, Sun, 2 Nov 2025 11:30:00 -0800)
+
+- **Hakim Ziyech, le phénix prêt pour une dernière flamme au Wydad**: [Link](https://sport.le360.ma/football/botola/hakim-ziyech-le-phenix-pret-pour-une-derniere-flamme-au-wydad_TSRYFOC2TNDE7IOHEB4Q6DCGBE/)
+- **Hakim Ziyech sera présenté aux supporters du Wydad ce dimanche 2 novembre**: [Link](https://medias24.com/2025/10/31/hakim-ziyech-sera-presente-aux-supporters-du-wydad-ce-dimanche-2-novembre/)
+- **Le Wydad Casablanca s’offre Hakim Ziyech**: [Link](https://www.footmercato.net/a1549460363469274540-le-wydad-casablanca-soffre-hakim-ziyech)
+
+
+### برشلونة اليوم (N/A, Sun, 2 Nov 2025 11:30:00 -0800)
+
+- **نجم ريال مدريد السابق على رادار برشلونة**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1349902/%D9%86%D8%AC%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D8%AF%D8%A7%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86)
+- **لاعب ريال مدريد السابق جاهز للانتقال إلى برشلونة**: [Link](https://www.btolat.com/news/383920)
+- **برشلونة يخطط لخطف نجم أرسنال في الصيف**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AE%D8%B7%D8%B7-%D9%84%D8%AE%D8%B7%D9%81-%D9%86%D8%AC%D9%85-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D9%8A%D9%81/)
+
+
+### الدوري المغربي (N/A, Sun, 2 Nov 2025 11:10:00 -0800)
+
+- **رباعية الجيش تهزم الدفاع الجديدي**: [Link](https://www.hespress.com/%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%AA%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A-1649779.html)
+- **المقتريض: ألميدا مستمر في الدفاع الجديدي حتى نهاية الموسم**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%85%D9%82%D8%AA%D8%B1%D9%8A%D8%B6-%D8%A3%D9%84%D9%85%D9%8A%D8%AF%D8%A7-%D9%85%D8%B3%D8%AA%D9%85%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A/)
+- **50 درهما لمتابعة مباراة الدفاع الجديدي والجيش الملكي في ملعب «البشير» بالمحمدية**: [Link](https://casa24.ma/sport/62393.html)
+
+
 ### brest – lyon (N/A, Sun, 2 Nov 2025 11:20:00 -0800)
 
 - **Les limites du coaching frileux de Paulo Fonseca avec l'OL : « Quand tu fais entrer des joueurs défensifs, il faut de la maturité, de l'expérience et des tauliers »**: [Link](https://www.lequipe.fr/Football/Article/Les-limites-du-coaching-de-paulo-fonseca-avec-lyon-quand-tu-fais-entrer-des-joueurs-defensifs-il-faut-de-la-maturite-de-l-experience-et-des-tauliers/1606466)
