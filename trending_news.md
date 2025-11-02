@@ -1,3 +1,10 @@
+### barca vs (N/A, Sun, 2 Nov 2025 09:40:00 -0800)
+
+- **Barcelona - UCAM Murcia, en directo: Liga Endesa 2025-26 en vivo hoy**: [Link](https://as.com/baloncesto/acb/barcelona-murcia-en-directo-liga-endesa-2025-26-en-vivo-hoy-f202511-d/)
+- **La gesta del Palau Blaugrana solo es posible para el UCAM con la lección aprendida**: [Link](https://www.laverdad.es/deportes/ucamcb/gesta-palau-blaugrana-solo-posible-ucam-leccion-20251101074449-nt.html)
+- **Barça - UCAM Murcia hoy en directo resultado y resumen | Liga Endesa de baloncesto, en vivo**: [Link](https://www.mundodeportivo.com/baloncesto/acb/20251102/1002561819/barca-ucam-murcia-directo-liga-endesa-baloncesto-vivo-hoy.html)
+
+
 ### barca (N/A, Sun, 2 Nov 2025 09:40:00 -0800)
 
 - **Barcelona vs Elche: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c78zmz795jjt)
