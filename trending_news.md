@@ -1,3 +1,10 @@
+### iphone 16 (N/A, Sat, 1 Nov 2025 23:30:00 -0700)
+
+- **If the iPhone 17 Pro Max goes on sale this Black Friday, I'll eat my hat – here's why**: [Link](https://www.techradar.com/phones/iphone/theres-still-a-two-week-wait-for-the-iphone-17-pro-max-so-dont-expect-to-see-it-discounted-for-black-friday)
+- **iPhone 15 Deal Alert: iPhone 15 now hits all-time low price on JioMart| iPhone price drop| iPhone 15 sale India| iOS|**: [Link](https://www.deccanherald.com/technology/gadgets/iphone-15-now-hits-all-time-low-price-on-jiomart-3781460)
+- **Apple is offering iPhone 17 Pro at a massive discount — Here’s how you can grab the deal**: [Link](https://www.livemint.com/technology/apple-is-offering-iphone-17-pro-at-a-massive-discount-here-s-how-you-can-grab-the-deal-11761683147408.html)
+
+
 ### real madrid vs (N/A, Sat, 1 Nov 2025 13:50:00 -0700)
 
 - **Uno a uno del Real Madrid vs Valencia: Mastantuono, la única pieza que no encaja**: [Link](https://www.marca.com/futbol/real-madrid/2025/11/01/real-madrid-vs-valencia-valoracion-comentarios.html)
