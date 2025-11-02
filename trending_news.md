@@ -1,3 +1,10 @@
+### ميلان ضد روما (N/A, Sun, 2 Nov 2025 12:30:00 -0800)
+
+- **أليجري يحدد موعد عودة بوليسيتش.. ويكشف عن هجوم ميلان أمام روما**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%84%D9%8A%D8%AC%D8%B1%D9%8A-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D9%8A%D8%AA%D8%B4--%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%87%D8%AC%D9%88%D9%85-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B1%D9%88%D9%85%D8%A7/bltdc97f610d65b2437)
+- **القنوات الناقلة لمباراة ميلان وروما في الدوري الإيطالي**: [Link](https://www.eremnews.com/sports/d98dvdr)
+- **ميلان وروما في مواجهة قمة.. وسباليتي يقود يوفنتوس للمرة الأولى**: [Link](https://www.hesport.com/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D8%B1%D9%88%D9%85%D8%A7-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%82%D9%85%D8%A9-%D9%88%D8%B3%D8%A8%D8%A7%D9%84%D9%8A%D8%AA%D9%8A-%D9%8A%D9%82%D9%88-410330.html)
+
+
 ### real betis vs mallorca (N/A, Sun, 2 Nov 2025 12:20:00 -0800)
 
 - **Preview:Betis vs Mallorca - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/betis-vs-mallorca-prediction-team-news-lineups_584848.html)
