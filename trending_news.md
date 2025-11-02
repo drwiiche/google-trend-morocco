@@ -1,3 +1,10 @@
+### real madrid vs (N/A, Sat, 1 Nov 2025 13:50:00 -0700)
+
+- **Uno a uno del Real Madrid vs Valencia: Mastantuono, la única pieza que no encaja**: [Link](https://www.marca.com/futbol/real-madrid/2025/11/01/real-madrid-vs-valencia-valoracion-comentarios.html)
+- **Pese a la goleada de Real Madrid ante Valencia, los hinchas apuntaron contra Franco Mastantuono: “Es jugar ...**: [Link](https://bolavip.com/ar/futbol-internacional/pese-a-la-goleada-de-real-madrid-ante-valencia-los-hinchas-apuntaron-contra-franco-mastantuono-es-jugar-con-uno-menos)
+- **Fue el jugador más flojo del Real Madrid ante el Valencia: apunta a suplente en Liverpool**: [Link](https://defensacentral.com/la_liga/fue-jugador-mas-flojo-real-madrid-valencia-apunta-suplente-en-liverpool_323602_102.html)
+
+
 ### مجلس الأمن الدولي الصحراء المغربية (N/A, Sat, 1 Nov 2025 23:20:00 -0700)
 
 - **بوريطة: حل ملف الصحراء المغربية بات قريبا أكثر من أي وقت مضى**: [Link](https://www.skynewsarabia.com/middle-east/1831110-%D8%A8%D9%88%D8%B1%D9%8A%D8%B7%D8%A9-%D8%AD%D9%84-%D9%85%D9%84%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%82%D8%B1%D9%8A%D8%A8%D8%A7-%D8%A7%D9%94%D9%83%D8%AB%D8%B1-%D8%A7%D9%94%D9%8A-%D9%88%D9%82%D8%AA-%D9%85%D8%B6%D9%89)
