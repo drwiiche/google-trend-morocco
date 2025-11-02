@@ -1,3 +1,16 @@
+### onu sahara marocain algerie (N/A, Sun, 2 Nov 2025 06:40:00 -0800)
+
+- **Sahara : Nasser Bourita dévoile les coulisses de la résolution historique du 31 octobre**: [Link](https://medias24.com/2025/11/02/sahara-nasser-bourita-devoile-les-coulisses-de-la-resolution-historique-du-31-octobre/)
+- **Mohammed VI : “Nous ouvrons un nouveau chapitre victorieux dans le processus de consécration de la marocanité du Sahara”**: [Link](https://mobile.telquel.ma/instant-t/2025/10/31/sahara-le-texte-integral-du-discours-royal_1958855/)
+- **Résolution 2797 du Conseil de sécurité : Le Conseil des Communautés Israélites du Maroc salue la sagesse et la clairvoyance de Sa Majesté le Roi**: [Link](https://lematin.ma/nation/le-conseil-de-communautes-israelites-du-maroc-salue-la-sagesse-de-sm-le-roi/311277)
+
+
+### u17 (N/A, Sun, 2 Nov 2025 06:40:00 -0800)
+
+- **مونديال قطر 2025 .. برنامج مباريات المنتخب المغربي لأقل من 17 سنة في دور المجموعات**: [Link](https://www.akhbarona.com/sport/lionatlas/415751.html)
+- **مونديال الناشئات.. المنتخب الوطني ينهزم بسداسية أمام كوريا الشمالية ويودع المنافسة**: [Link](https://al3omk.com/1112159.html)
+
+
 ### rennes – strasbourg (N/A, Sun, 2 Nov 2025 05:40:00 -0800)
 
 - **Stade Rennais - Strasbourg. Un déclic ou des claques**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/stade-rennais-strasbourg-un-declic-ou-des-claques-0b682556-b6a9-11f0-82c7-21cf9bb02d71)
