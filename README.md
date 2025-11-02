@@ -1,3 +1,10 @@
+### newcastle (N/A, Sun, 2 Nov 2025 07:10:00 -0800)
+
+- **Wolves part company with Vitor Pereira | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20251102-wolves-part-company-with-vitor-pereira/)
+- **Vitor Pereira: Wolves sack head coach after winless start to Premier League season**: [Link](https://www.bbc.com/sport/football/articles/cwypvl4xx9zo)
+- **Son Heung-min is leaving, so it's a big crisis! Premier Leaguers go e**: [Link](https://en.sportschosun.com/sports/2025/11/son-heung-min-is-leaving-so-its-big-122955)
+
+
 ### deportivo alavés – espanyol (N/A, Sun, 2 Nov 2025 06:40:00 -0800)
 
 - **Las sorpresas de la temporada se citan en Mendizorroza**: [Link](https://es-us.noticias.yahoo.com/deportes/sorpresas-temporada-citan-mendizorroza-155059469.html)
