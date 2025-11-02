@@ -1,3 +1,24 @@
+### ناشفيل ضد إنتر ميامي (N/A, Sat, 1 Nov 2025 17:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ناشفيل وإنتر ميامي في الدوري الأمريكي 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%86%D8%A7%D8%B4%D9%81%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2025/blt7178bddf3a8ee1fc)
+- **سرّ ميسي وليبرون جيمس وديوكوفيتش في تحدي عامل الزمن**: [Link](https://www.aljazeera.net/sport/2025/10/31/%D8%B3%D8%B1-%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D9%84%D9%8A%D8%A8%D8%B1%D9%88%D9%86-%D8%AC%D9%8A%D9%85%D8%B3-%D9%88%D8%AF%D9%8A%D9%88%D9%83%D9%88%D9%81%D9%8A%D8%AA%D8%B4)
+- **ميسي لا يفكر في الاعتزال**: [Link](https://assabah.ma/880093.html)
+
+
+### الحكم الذاتي الصحراء المغربية (N/A, Sat, 1 Nov 2025 16:40:00 -0700)
+
+- **كيف استقبل المغاربة قرار مجلس الأمن بخصوص إقليم الصحراء؟**: [Link](https://www.aljazeera.net/politics/2025/11/1/%D9%83%D9%8A%D9%81-%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%86)
+- **قرار مجلس الأمن التاريخي يستدعي طرد "الكيان الوهمي" من الاتحاد الإفريقي**: [Link](https://www.hespress.com/%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D8%B7%D8%B1%D8%AF-%D8%A7%D9%84-1649321.html)
+- **كواليس سرية.. الملك هاتف عددا من القادة ساعات قبل التصويت على القرار الأممي حول الصحراء**: [Link](https://m.alayam24.com/articles-596659.html)
+
+
+### liverpool vs (N/A, Sat, 1 Nov 2025 14:10:00 -0700)
+
+- **Premier League LIVE: Liverpool vs Aston Villa - scores & updates**: [Link](https://www.bbc.com/sport/football/live/cevzwrp9we9t)
+- **'The goals will come' – Emery remains confident in misfiring Villa frontline**: [Link](https://sporty.com/news/the-goals-will-come-emery-remains-confident-in-misfiring-villa-frontline/behpgvbqu0sf113i8s5p79wii)
+- **Emi Buendia and Youri Tielemans updates as Unai Emery delivers Aston Villa injury news**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/emi-buendia-youri-tielemans-injury-32789591)
+
+
 ### nashville – inter miami (N/A, Sat, 1 Nov 2025 16:10:00 -0700)
 
 - **Mascherano delivers a serious warning to his players**: [Link](https://www.mundodeportivo.com/us/en/20251101/733730/mascherano-delivers-serious-warning-to-his-players.html)
