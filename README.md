@@ -1,3 +1,10 @@
+### خريطة المغرب الصحراء المغربية (N/A, Sun, 2 Nov 2025 05:30:00 -0800)
+
+- **كيف استقبل المغاربة قرار مجلس الأمن بخصوص إقليم الصحراء؟**: [Link](https://www.aljazeera.net/politics/2025/11/1/%D9%83%D9%8A%D9%81-%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%86)
+- **بوريطة: محاولات جرت لكسب "عضو دائم".. المغرب والجزائر لا يحتاجان وساطات**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%B1%D9%8A%D8%B7%D8%A9-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%AC%D8%B1%D8%AA-%D9%84%D9%83%D8%B3%D8%A8-%D8%B9%D8%B6%D9%88-%D8%AF%D8%A7%D8%A6%D9%85-%D8%A7%D9%84%D9%85%D8%BA-1649451.html)
+- **الشيخ حمد بن جاسم يشيد بقرار دعم الحكم الذاتي وحكمة الملك محمد السادس**: [Link](https://ar.hibapress.com/details-671608.html)
+
+
 ### west ham – newcastle (N/A, Sun, 2 Nov 2025 05:20:00 -0800)
 
 - **Starting XI | Potts, Fernandes and Wilson return for Newcastle match**: [Link](https://www.whufc.com/news/starting-xi-potts-fernandes-and-wilson-return-newcastle-match)
