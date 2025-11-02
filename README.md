@@ -1,3 +1,10 @@
+### real betis vs mallorca (N/A, Sun, 2 Nov 2025 12:20:00 -0800)
+
+- **Preview:Betis vs Mallorca - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/betis-vs-mallorca-prediction-team-news-lineups_584848.html)
+- **Takuma Asano vs. Real Betis – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/02/takuma-asano-soccer-player-props-11-2-2025/87047775007/)
+- **Manuel Pellegrini to Rotate Line-Up for Upcoming Match Against RCD Mallorca**: [Link](https://news.ssbcrack.com/manuel-pellegrini-to-rotate-line-up-for-upcoming-match-against-rcd-mallorca/)
+
+
 ### botola pro 1 (N/A, Sun, 2 Nov 2025 12:00:00 -0800)
 
 
