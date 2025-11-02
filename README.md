@@ -1,3 +1,10 @@
+### la liga (N/A, Sat, 1 Nov 2025 14:10:00 -0700)
+
+- **Barcelona heavyweight could replace teenage prodigy in starting XI vs Elche**: [Link](https://barcauniversal.com/barcelona-heavyweight-could-replace-teenage-prodigy-in-starting-xi-vs-elche/)
+- **Three familiar faces on Sunday at Montjuïc**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4391481/three-familiar-faces-on-sunday-at-montjuic)
+- **Raphinha, Lewandowski, Pedri, Olmo updates: Barca injury**: [Link](https://www.sportsmole.co.uk/football/barcelona/race-for-the-la-liga-title/injuries-and-suspensions/raphinha-lewandowski-pedri-olmo-updates-barca-injury-suspension-list-vs-elche_584732.html)
+
+
 ### ناشفيل ضد إنتر ميامي (N/A, Sat, 1 Nov 2025 17:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة ناشفيل وإنتر ميامي في الدوري الأمريكي 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%86%D8%A7%D8%B4%D9%81%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2025/blt7178bddf3a8ee1fc)
