@@ -1,3 +1,24 @@
+### levante – celta vigo (N/A, Sun, 2 Nov 2025 04:20:00 -0800)
+
+- **Levante - Celta | El triunfo en casa no puede esperar: previa, posibles onces y pronóstico**: [Link](https://www.marca.com/futbol/primera-division/2025/11/01/levante-celta-triunfo-casa-esperar-previa-posibles-onces-pronostico.html)
+- **Levante - Celta en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-ea-sports/levante-celta/2025/11/02/01_0101_20251102_855_176-directo.html)
+- **Los once elegidos por Julián Calero para enfrentarse al Celta de Vigo**: [Link](https://www.superdeporte.es/levante-ud/2025/11/02/once-elegidos-julian-calero-enfrentarse-123278114.html)
+
+
+### هيلاس فيرونا ضد الإنتر (N/A, Sun, 2 Nov 2025 04:20:00 -0800)
+
+- **قائمة هدافي الإنتر في الدوري الإيطالي قبل مواجهة فيرونا**: [Link](https://hihi2.com/2025/11/02/p3455188.html)
+- **الإنتر يستعيد خدمات تورام**: [Link](https://gate.ahram.org.eg/News/5315182.aspx)
+- **التعادل 1ــ1 فى الشوط الأول لمباراة هيلاس فيرونا ضد إنتر ميلان.. فيديو**: [Link](https://www.youm7.com/story/2025/11/2/%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-1%D9%80%D9%801-%D9%81%D9%89-%D8%A7%D9%84%D8%B4%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%87%D9%8A%D9%84%D8%A7%D8%B3-%D9%81%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D8%B6%D8%AF-%D8%A5%D9%86%D8%AA%D8%B1/7182084)
+
+
+### real vs valencia (N/A, Sat, 1 Nov 2025 14:20:00 -0700)
+
+- **Uno a uno del Real Madrid vs Valencia: Mastantuono, la única pieza que no encaja**: [Link](https://www.marca.com/futbol/real-madrid/2025/11/01/real-madrid-vs-valencia-valoracion-comentarios.html)
+- **Fue el jugador más flojo del Real Madrid ante el Valencia: apunta a suplente en Liverpool**: [Link](https://defensacentral.com/la_liga/fue-jugador-mas-flojo-real-madrid-valencia-apunta-suplente-en-liverpool_323602_102.html)
+- **Franco Mastantuono encendió las alarmas. ¿Qué le pasa? ¿Llega a la Jornada 11?**: [Link](https://www.jornadaperfecta.com/blog/mastantuono-estado-j11-25-26/)
+
+
 ### carreras (N/A, Sat, 1 Nov 2025 15:50:00 -0700)
 
 - **Carreras: “My first goal in this jersey has arrived and I'm delighted”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/declaraciones-jugador-2-post-real-madrid-valencia-j11-liga-01-11-2025)
