@@ -1,3 +1,10 @@
+### deportivo alavés – espanyol (N/A, Sun, 2 Nov 2025 06:40:00 -0800)
+
+- **Las sorpresas de la temporada se citan en Mendizorroza**: [Link](https://es-us.noticias.yahoo.com/deportes/sorpresas-temporada-citan-mendizorroza-155059469.html)
+- **Deportivo Alavés vs RCD Espanyol | LaLiga EA Sports 25-26**: [Link](https://rtvc.es/deportivo-alaves-vs-rcd-espanyol-j12-laliga-ea-sports-25-26/)
+- **Lista de convocados**: [Link](https://www.rcdespanyol.com/es/noticia/llista-de-convocats/19330)
+
+
 ### fiorentina – lecce (N/A, Sun, 2 Nov 2025 06:50:00 -0800)
 
 - **LIVE Al 45' Fiorentina-Lecce 0-1: Ranieri di testa manda alto da due passi, sull'uscita di Falcone**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Fiorentina/02-11-2025/fiorentina-lecce-live-risultato-e-gol-in-diretta-serie-a.shtml)
