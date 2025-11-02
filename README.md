@@ -1,3 +1,17 @@
+### manchester city – bournemouth (N/A, Sun, 2 Nov 2025 07:40:00 -0800)
+
+- **How to Watch Man City vs. Bournemouth on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-man-city-vs-bournemouth-on-tv-live-stream-premier-league-11-2-25)
+- **LINEUPS HAVE LANDED AT THE ETIHAD STADIUM!!**: [Link](https://www.besoccer.com/new/live-man-city-v-bournemouth-1379515)
+- **Preview: High-flying Cherries head to Man City**: [Link](https://www.fotmob.com/sw/topnews/23730-preview-high-flying-cherries-head-man-city?utm_source=fotmob)
+
+
+### lille – angers (N/A, Sun, 2 Nov 2025 07:40:00 -0800)
+
+- **Les compositions probables pour LOSC – Angers SCO**: [Link](https://lepetitlillois.com/2025/11/02/les-compositions-probables-pour-losc-angers-sco/)
+- **PRONOS PARIS RMC Le pari à l’extérieur du 2 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-2-novembre-ligue-1_AN-202511010290.html)
+- **« Il fait gagner des années de carrière », Bruno Genesio encense Olivier Giroud, à nouveau d’attaque**: [Link](https://www.lavoixdunord.fr/1641980/article/2025-11-01/il-fait-gagner-des-annees-de-carriere-bruno-genesio-encense-olivier-giroud)
+
+
 ### newcastle (N/A, Sun, 2 Nov 2025 07:10:00 -0800)
 
 - **Wolves part company with Vitor Pereira | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20251102-wolves-part-company-with-vitor-pereira/)
