@@ -1,3 +1,17 @@
+### barça (N/A, Sun, 2 Nov 2025 10:10:00 -0800)
+
+- **Real Sociedad-Barcelona, en directo**: [Link](https://as.com/futbol/femenino/real-sociedad-barcelona-en-directo-f202511-n/)
+- **Las bajas en el Barça marcan la vuelta a la Liga**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251102/1002561629/bajas-barca-marcan-vuelta-liga.html)
+- **La joya del Bayern de Múnich que le quita la corona a una estrella de Pere Romeu: saltan las alarmas en el Barça Femenino**: [Link](https://cronicaglobal.elespanol.com/culemania/secciones/20251102/bayern-munich-estrella-pere-romeu-barca-femenino/1003742703599_0.html)
+
+
+### fcb (N/A, Sun, 2 Nov 2025 09:40:00 -0800)
+
+- **Barcelona star Ronald Araujo reveals the best advice he’s been given in his career**: [Link](https://sports.yahoo.com/article/barcelona-star-ronald-araujo-reveals-010000416.html)
+- **Ronald Araujo: the captain returns to the starting XI after three consecutive games on the bench**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/ronald-araujo-captain-returns-to-starting-xi-in-barca-elche-match_315169_102.html)
+- **Barcelona heavyweight not satisfied with current role, wants to play more – report**: [Link](https://barcauniversal.com/barcelona-heavyweight-not-satisfied-with-current-role-wants-to-play-more-report/)
+
+
 ### barca vs (N/A, Sun, 2 Nov 2025 09:40:00 -0800)
 
 - **Barcelona - UCAM Murcia, en directo: Liga Endesa 2025-26 en vivo hoy**: [Link](https://as.com/baloncesto/acb/barcelona-murcia-en-directo-liga-endesa-2025-26-en-vivo-hoy-f202511-d/)
