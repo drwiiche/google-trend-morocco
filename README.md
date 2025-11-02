@@ -1,3 +1,10 @@
+### city (N/A, Sun, 2 Nov 2025 09:20:00 -0800)
+
+- **NYC Marathon: Live Updates**: [Link](https://www.nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates)
+- **New York City Marathon 2025 results: Who were the winners?**: [Link](https://nypost.com/2025/11/02/us-news/new-york-city-marathon-2025-results-who-were-the-winners/)
+- **Runners carb-load before hitting the streets in TCS NYC Marathon**: [Link](https://abc7ny.com/post/runners-carb-load-before-hitting-streets-tcs-nyc-marathon/18101642/)
+
+
 ### lens – lorient (N/A, Sun, 2 Nov 2025 08:50:00 -0800)
 
 - **Pantaloni (Lorient) compare le PSG et Lens, Martinez Novell (Toulouse) encense ses joueurs, Digard (Le Havre) a adopté une nouvelle méthode**: [Link](https://www.onzemondial.com/ligue-1/pantaloni-lorient-compare-le-psg-et-lens-martinez-novell-toulouse-encense-ses-joueurs-digard-le-havre-a-adopte-une-nouvelle-methode-970735)
