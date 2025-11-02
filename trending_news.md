@@ -1,3 +1,10 @@
+### milan ac (N/A, Sun, 2 Nov 2025 13:40:00 -0800)
+
+- **DIRECT. AC Milan-AS Rome (Serie A 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/ac-milan-as-rome-live/673065)
+- **AS Roma : « L’Inter et Naples sont les favoris pour le Scudetto, mais nous voulons rivaliser avec les grandes équipes », Gian Piero Gasperini**: [Link](https://africafootunited.com/as-roma-linter-et-naples-sont-les-favoris-pour-le-scudetto-mais-nous-voulons-rivaliser-avec-les-grandes-equipes-gian-piero-gasperini/)
+- **AC Milan-AS Rome : quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/italie/ac-milan-as-rome-quelle-chaine-diffuse-le-match-964078.html)
+
+
 ### betis (N/A, Sun, 2 Nov 2025 12:50:00 -0800)
 
 - **Betis - Mallorca, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/betis-mallorca-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
