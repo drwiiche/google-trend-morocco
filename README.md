@@ -1,3 +1,10 @@
+### lens – lorient (N/A, Sun, 2 Nov 2025 08:50:00 -0800)
+
+- **Pantaloni (Lorient) compare le PSG et Lens, Martinez Novell (Toulouse) encense ses joueurs, Digard (Le Havre) a adopté une nouvelle méthode**: [Link](https://www.onzemondial.com/ligue-1/pantaloni-lorient-compare-le-psg-et-lens-martinez-novell-toulouse-encense-ses-joueurs-digard-le-havre-a-adopte-une-nouvelle-methode-970735)
+- **Une famille unie, un départ de bâton, une fierté mal placée… Notre séance de rattrapage avant Lens-Lorient**: [Link](https://www.lavoixdunord.fr/1642122/article/2025-11-02/une-famille-unie-un-depart-de-baton-une-fierte-mal-placee-notre-seance-de)
+- **De retour sur terre après sa gifle à Metz, Lens doit se rattraper contre Lorient : « Si on s'est enflammés ? Oui, peut-être »**: [Link](https://www.lequipe.fr/Football/Actualites/De-retour-sur-terre-apres-sa-gifle-a-metz-lens-doit-se-rattraper-contre-lorient-si-on-s-est-enflammes-oui-peut-etre/1606408)
+
+
 ### barcelone – elche (N/A, Sun, 2 Nov 2025 08:40:00 -0800)
 
 - **Barça : le groupe contre Elche avec le retour de deux cadres**: [Link](https://www.footmercato.net/a2693169060837255139-barca-le-groupe-contre-elche-avec-le-retour-de-deux-cadres)
