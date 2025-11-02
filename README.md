@@ -1,3 +1,24 @@
+### barcelone – elche (N/A, Sun, 2 Nov 2025 08:40:00 -0800)
+
+- **Barça : le groupe contre Elche avec le retour de deux cadres**: [Link](https://www.footmercato.net/a2693169060837255139-barca-le-groupe-contre-elche-avec-le-retour-de-deux-cadres)
+- **Sur quelle chaîne et à quelle heure voir FC Barcelone - Elche ?**: [Link](https://www.fcbarcelona.fr/fr/actualites/4392127/sur-quelle-chaine-et-a-quelle-heure-voir-fc-barcelone-elche-x)
+- **FC Barcelone : Hansi Flick accueille des nouvelles qui changent la donne !**: [Link](https://www.butfootballclub.fr/625765-revue-de-presse-espagnole-flick-croule-enfin-sous-les-bonnes-nouvelles-au-fc-barcelone/)
+
+
+### برشلونة ضد إلتشيه (N/A, Sun, 2 Nov 2025 08:40:00 -0800)
+
+- **عودة ليفاندوفسكي وأولمو لقائمة برشلونة أمام إلتشي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A-%D9%88%D8%A7%D9%94%D9%88%D9%84%D9%85%D9%88-%D9%84%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%84%D8%AA%D8%B4%D9%8A/blt84150c43c0f1b84b)
+- **مباشر.. مباراة برشلونة ضد إلتشي في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/2/barcelona-vs-elche)
+- **فليك يستعيد لاعبيْن بارزين قبل مباراة برشلونة ضد إلتشي**: [Link](https://m.elbotola.com/article/2025-11-02-12-30-630.html)
+
+
+### barcelona vs elche (N/A, Sun, 2 Nov 2025 08:40:00 -0800)
+
+- **Barcelona - Elche, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/barcelona-elche-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
+- **Confirmado el once del Barça ante el Elche con Araujo y otra novedad cantada**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251102/1002562064/confirmado-once-barca-elche-araujo-novedad-cantada.html)
+- **Barcelona - Elche en directo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/barcelona-elche/2025/11/02/01_0101_20251102_178_954-directo.html)
+
+
 ### besiktas – fenerbahçe (N/A, Sun, 2 Nov 2025 08:30:00 -0800)
 
 - **Süper Lig'de dev derbi: Beşiktaş - Fenerbahçe maçında ilk 11'ler belli oldu**: [Link](https://oxu.az/tr/spor/besiktas-fenerbahce-maci-ilk-11-ler-belli-oldu)
