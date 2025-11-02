@@ -1,3 +1,17 @@
+### مجلس الأمن الدولي الصحراء المغربية (N/A, Sat, 1 Nov 2025 23:20:00 -0700)
+
+- **بوريطة: حل ملف الصحراء المغربية بات قريبا أكثر من أي وقت مضى**: [Link](https://www.skynewsarabia.com/middle-east/1831110-%D8%A8%D9%88%D8%B1%D9%8A%D8%B7%D8%A9-%D8%AD%D9%84-%D9%85%D9%84%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%82%D8%B1%D9%8A%D8%A8%D8%A7-%D8%A7%D9%94%D9%83%D8%AB%D8%B1-%D8%A7%D9%94%D9%8A-%D9%88%D9%82%D8%AA-%D9%85%D8%B6%D9%89)
+- **بوريطة: الملك أجرى اتصالات مباشرة لحسم قرار مجلس الأمن بشأن الصحراء**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A3%D8%AC%D8%B1%D9%89-%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9-%D9%84%D8%AD%D8%B3%D9%85-1649412.html)
+- **الحفاظ على الاعتراف الأمريكي: استراتيجية الملك محمد السادس مع إدارة بايدن**: [Link](https://ar.hibapress.com/details-671569.html)
+
+
+### madrid (N/A, Sat, 1 Nov 2025 13:50:00 -0700)
+
+- **Los refuerzos del Barça y la nueva victoria del Madrid, protagonistas de las portadas de hoy**: [Link](https://www.mundodeportivo.com/vaya-mundo/20251102/1002561840/refuerzos-barca-nueva-victoria-madrid-protagonistas-portadas-hoy-dct.html)
+- **Las portadas del día**: [Link](https://www.marca.com/futbol/album/2025/11/02/portadas-dia.html)
+- **Real Madrid 4-0 Valencia: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/real-madrid-valencia-hoy-en-directo-jornada-11-de-laliga-ea-sports-ultima-hora-en-vivo-f202511-d/)
+
+
 ### la liga (N/A, Sat, 1 Nov 2025 14:10:00 -0700)
 
 - **Barcelona heavyweight could replace teenage prodigy in starting XI vs Elche**: [Link](https://barcauniversal.com/barcelona-heavyweight-could-replace-teenage-prodigy-in-starting-xi-vs-elche/)
