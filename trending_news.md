@@ -1,3 +1,10 @@
+### real betis (N/A, Sun, 2 Nov 2025 12:40:00 -0800)
+
+- **Betis - Mallorca, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/betis-mallorca-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
+- **Betis-Mallorca: prueba de fuego para Bergstrom**: [Link](https://www.futboldesdemallorca.com/blog/2025/11/02/betis-mallorca-prueba-de-fuego-para-bergstrom/)
+- **Sigue el minuto a minuto del Real Betis – RCD Mallorca: Gol del Betis (3-0)**: [Link](https://www.101tv.es/sigue-el-minuto-a-minuto-del-real-betis-rcd-mallorca-onces-confirmados/)
+
+
 ### ميلان ضد روما (N/A, Sun, 2 Nov 2025 12:30:00 -0800)
 
 - **أليجري يحدد موعد عودة بوليسيتش.. ويكشف عن هجوم ميلان أمام روما**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%84%D9%8A%D8%AC%D8%B1%D9%8A-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D9%8A%D8%AA%D8%B4--%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%87%D8%AC%D9%88%D9%85-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B1%D9%88%D9%85%D8%A7/bltdc97f610d65b2437)
