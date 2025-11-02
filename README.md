@@ -1,3 +1,17 @@
+### west ham – newcastle (N/A, Sun, 2 Nov 2025 05:20:00 -0800)
+
+- **Starting XI | Potts, Fernandes and Wilson return for Newcastle match**: [Link](https://www.whufc.com/news/starting-xi-potts-fernandes-and-wilson-return-newcastle-match)
+- **THE SPECIAL - West Ham Away.**: [Link](https://tf1892.substack.com/p/the-special-west-ham-away-cd5)
+- **West Ham vs Newcastle predictions, betting tips plus a 6/1 bet builder**: [Link](https://talksport.com/betting/3695182/west-ham-vs-newcastle-predictions-betting-tips-bet-builder/)
+
+
+### inter (N/A, Sun, 2 Nov 2025 05:10:00 -0800)
+
+- **Hellas Verona vs Inter Milan – Match preview and team news**: [Link](https://thefootballfaithful.com/hellas-verona-vs-inter-milan-match-preview-and-team-news/)
+- **Gift Emmanuel Orban vs. Inter Milan – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/01/gift-emmanuel-orban-soccer-player-props-11-2-2025/87042975007/)
+- **Inter Milan Coach ‘They Saved My Life Here In Verona’ – Adds ‘We Must Rally Around Josep Martinez’ After Tragic Car Accident**: [Link](https://sempreinter.com/2025/11/02/verona-inter-chivu-martinez-support/)
+
+
 ### levante – celta vigo (N/A, Sun, 2 Nov 2025 04:20:00 -0800)
 
 - **Levante - Celta | El triunfo en casa no puede esperar: previa, posibles onces y pronóstico**: [Link](https://www.marca.com/futbol/primera-division/2025/11/01/levante-celta-triunfo-casa-esperar-previa-posibles-onces-pronostico.html)
