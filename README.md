@@ -1,3 +1,10 @@
+### betis (N/A, Sun, 2 Nov 2025 12:50:00 -0800)
+
+- **Betis - Mallorca, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/betis-mallorca-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
+- **Betis-Mallorca: prueba de fuego para Bergstrom**: [Link](https://www.futboldesdemallorca.com/blog/2025/11/02/betis-mallorca-prueba-de-fuego-para-bergstrom/)
+- **Betis - Mallorca: Al reencuentro de la calma en la victoria**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/betis-mallorca-reencuentro-calma-victoria-20251102122503-nts.html)
+
+
 ### real betis (N/A, Sun, 2 Nov 2025 12:40:00 -0800)
 
 - **Betis - Mallorca, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/betis-mallorca-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
