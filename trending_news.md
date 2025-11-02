@@ -1,3 +1,10 @@
+### carreras (N/A, Sat, 1 Nov 2025 15:50:00 -0700)
+
+- **Carreras: “My first goal in this jersey has arrived and I'm delighted”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/declaraciones-jugador-2-post-real-madrid-valencia-j11-liga-01-11-2025)
+- **Real's Best Player: Alvaro Carreras**: [Link](https://zamin.uz/en/sport/166471-real-s-best-player-alvaro-carreras.html)
+- **Ex-Manchester United defender scores his first goal for new club**: [Link](https://centredevils.co.uk/news/ex-manchester-united-defender-scores-his-first-goal-for-new-club/)
+
+
 ### bourita (N/A, Sat, 1 Nov 2025 14:20:00 -0700)
 
 - **Sahara occidental : les Etats-Unis à l’offensive à l’ONU pour défendre une autonomie sous souveraineté du Maroc**: [Link](https://www.lemonde.fr/afrique/article/2025/10/29/sahara-occidental-un-vote-decisif-a-l-onu-pour-l-avenir-du-territoire-conteste_6650123_3212.html)
