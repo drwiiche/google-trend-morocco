@@ -1,3 +1,17 @@
+### brest – lyon (N/A, Sun, 2 Nov 2025 11:20:00 -0800)
+
+- **Les limites du coaching frileux de Paulo Fonseca avec l'OL : « Quand tu fais entrer des joueurs défensifs, il faut de la maturité, de l'expérience et des tauliers »**: [Link](https://www.lequipe.fr/Football/Article/Les-limites-du-coaching-de-paulo-fonseca-avec-lyon-quand-tu-fais-entrer-des-joueurs-defensifs-il-faut-de-la-maturite-de-l-experience-et-des-tauliers/1606466)
+- **Brest-Lyon : Les compositions probables**: [Link](https://dicodusport.fr/blog/brest-lyon-les-compositions-probables/)
+- **Martin Satriano devrait bien refouler la pelouse de Francis-Le Blé ce dimanche soir lors de Brest-Lyon**: [Link](https://www.letelegramme.fr/sports/football/stade-brestois/martin-satriano-devrait-bien-refouler-la-pelouse-de-francis-le-ble-ce-dimanche-soir-lors-de-brest-lyon-6920762.php)
+
+
+### wydad ac (N/A, Sun, 2 Nov 2025 11:20:00 -0800)
+
+- **HAkim Ziyech**: [Link](https://sport.le360.ma/internal-gallery/hakim-ziyech_R64LTFLWBRG7PLB2QZLHBAD2Q4/)
+- **Hakim Ziyech sera présenté aux supporters du Wydad ce dimanche 2 novembre**: [Link](https://medias24.com/2025/10/31/hakim-ziyech-sera-presente-aux-supporters-du-wydad-ce-dimanche-2-novembre/)
+- **Le Wydad Casablanca s’offre Hakim Ziyech**: [Link](https://www.footmercato.net/a1549460363469274540-le-wydad-casablanca-soffre-hakim-ziyech)
+
+
 ### الوداد الرياضي ضد اتحاد طنجة (N/A, Sun, 2 Nov 2025 11:10:00 -0800)
 
 - **ترتيب الدورة السادسة من البطولة الوطنية الاحترافية "إنوي" للقسم الأول**: [Link](https://www.medi1news.com/ar/article/369943.html)
