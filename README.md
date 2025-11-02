@@ -1,3 +1,10 @@
+### besiktas – fenerbahçe (N/A, Sun, 2 Nov 2025 08:30:00 -0800)
+
+- **Süper Lig'de dev derbi: Beşiktaş - Fenerbahçe maçında ilk 11'ler belli oldu**: [Link](https://oxu.az/tr/spor/besiktas-fenerbahce-maci-ilk-11-ler-belli-oldu)
+- **Dev karşılaşmaya saatler kaldı | İşte Beşiktaş-Fenerbahçe rekabetinden ilginç notlar**: [Link](https://t24.com.tr/haber/dev-karsilasmaya-saatler-kaldi-iste-besiktas-fenerbahce-rekabetinden-ilginc-notlar,1272863)
+- **Beşiktaş-Fenerbahçe Maç Skoru Ne Olur? Yapay Zeka Yanıtladı**: [Link](https://onedio.com/haber/besiktas-fenerbahce-mac-skoru-ne-olur-yapay-zeka-yanitladi-1323279)
+
+
 ### wydad tv (N/A, Sun, 2 Nov 2025 08:20:00 -0800)
 
 - **"WYDAD TV" 🔴 الوداد الرياضي يضع "بلاطو" قناته في ملعب محمد الخامس يوم الديربي**: [Link](https://m.elbotola.com/video/details/690246818a420ddb21e8009b/)
