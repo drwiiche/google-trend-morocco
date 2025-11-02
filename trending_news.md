@@ -1,3 +1,14 @@
+### botola pro 1 (N/A, Sun, 2 Nov 2025 12:00:00 -0800)
+
+
+
+
+### botola (N/A, Sun, 2 Nov 2025 11:10:00 -0800)
+
+- **ترتيب الدورة السادسة من البطولة الوطنية الاحترافية "إنوي" للقسم الأول**: [Link](https://www.medi1news.com/ar/article/369943.html)
+- **Morocco's Botola Pro Inwi league sees unbelievable missed chance in USYM vs Rennaisance Zemamra clash - USYM player cleared goalbound shot**: [Link](https://tribuna.com/en/blogs/moroccos-botola-pro-inwi-league-sees-unbelievable-missed-cha/)
+
+
 ### match wydad (N/A, Sun, 2 Nov 2025 11:30:00 -0800)
 
 - **Hakim Ziyech, le phénix prêt pour une dernière flamme au Wydad**: [Link](https://sport.le360.ma/football/botola/hakim-ziyech-le-phenix-pret-pour-une-derniere-flamme-au-wydad_TSRYFOC2TNDE7IOHEB4Q6DCGBE/)
