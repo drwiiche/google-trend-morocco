@@ -1,3 +1,10 @@
+### fiorentina – lecce (N/A, Sun, 2 Nov 2025 06:50:00 -0800)
+
+- **LIVE Al 45' Fiorentina-Lecce 0-1: Ranieri di testa manda alto da due passi, sull'uscita di Falcone**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Fiorentina/02-11-2025/fiorentina-lecce-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **La diretta testuale di Fiorentina - Lecce -**: [Link](https://www.acffiorentina.com/news/la-diretta-testuale-di-fiorentina-lecce)
+- **Serie A, Fiorentina-Lecce in diretta su TeleRama con Lecce Channel in Campo**: [Link](https://www.trnews.it/2025/11/02/serie-a-fiorentina-lecce-in-diretta-su-telerama-con-lecce-channel-in-campo/)
+
+
 ### onu sahara marocain algerie (N/A, Sun, 2 Nov 2025 06:40:00 -0800)
 
 - **Sahara : Nasser Bourita dévoile les coulisses de la résolution historique du 31 octobre**: [Link](https://medias24.com/2025/11/02/sahara-nasser-bourita-devoile-les-coulisses-de-la-resolution-historique-du-31-octobre/)
