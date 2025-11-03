@@ -1,3 +1,17 @@
+### cdiscount (N/A, Sun, 2 Nov 2025 13:50:00 -0800)
+
+- **Cdiscount prépare le Black Friday avec cette superbe réduction sur le nouvel airfryer portable Ninja**: [Link](https://www.telestar.fr/shopping/cdiscount-prepare-le-black-friday-avec-cette-superbe-reduction-sur-le-nouvel-airfryer-portable-ninja-1743424)
+- **Toujours pas d’airfryer ? 3 pépites sous les 100 euros qu'il faut découvrir avant la rupture**: [Link](https://www.bfmtv.com/tech/bons-plans/toujours-pas-d-airfryer-3-pepites-sous-les-100-euros-qu-il-faut-decouvrir-avant-la-rupture_AB-202511020003.html)
+- **Préparez des repas sains et croustillants grâce à cet Air Fryer de Moulinex à prix cassé !**: [Link](https://dailygeekshow.com/moulinex-easy-fry-2/)
+
+
+### milan vs roma (N/A, Sun, 2 Nov 2025 12:00:00 -0800)
+
+- **Football Tracker: Scores and results from Europe's top leagues**: [Link](https://www.flashscore.com/news/scores-and-results-from-europe-s-top-leagues-november-1-2-25/hvZ4Viug/)
+- **Milan Player Ratings vs Roma: Pavlovic Emerges as Rossoneri Hero**: [Link](https://cultofcalcio.com/milan-player-ratings-vs-roma-pavlovic-emerges-as-rossoneri-hero/)
+- **Maignan keeps his feet on ground: 'It’s too early to dream about Scudetto'**: [Link](https://tribuna.com/en/news/2025-11-03-maignan-keeps-his-feet-on-ground-its-too-early-to-dream-about-scudetto/)
+
+
 ### gm (N/A, Mon, 3 Nov 2025 01:10:00 -0800)
 
 - **Grier out as Fins GM; McDaniel to finish season**: [Link](https://www.espn.com/nfl/story/_/id/46792843/chris-grier-dolphins-gm-mike-mcdaniel-finish-season)
