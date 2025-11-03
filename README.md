@@ -1,3 +1,10 @@
+### renaud revel (N/A, Mon, 3 Nov 2025 09:00:00 -0800)
+
+- **Le journaliste Renaud Revel est décédé**: [Link](https://www.lefigaro.fr/medias/le-journaliste-renaud-revel-est-decede-20251103)
+- **Mort d’un ancien chroniqueur de Cyril Hanouna et figure médiatique qui venait d’achever son livre sur l’homosexualité**: [Link](https://www.closermag.fr/people/mort-dun-ancien-chroniqueur-de-cyril-hanouna-et-figure-mediatique-qui-venait-dachever-son-livre-sur-lhomosexualite-3591143)
+- **Décès du journaliste Renaud Revel, passé par Stratégies, L'Express et TPMP**: [Link](https://www.strategies.fr/actualites/medias/LQ5348575C/deces-du-journaliste-renaud-revel-passe-par-strategies-lexpress-et-tpmp.html)
+
+
 ### maroc vs japan u17 (N/A, Mon, 3 Nov 2025 07:00:00 -0800)
 
 - **🔴 Diffusion en direct.. Maroc vs Japon en Coupe du Monde U17**: [Link](https://chamaly.ma/2025/11/03/%F0%9F%94%B4-diffusion-en-direct-maroc-vs-japon-en-coupe-du-monde-u17/)
