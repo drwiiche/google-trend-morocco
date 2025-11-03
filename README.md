@@ -1,3 +1,15 @@
+### nasser bourita (N/A, Sun, 2 Nov 2025 17:50:00 -0800)
+
+- **Sahara : Nasser Bourita dévoile les coulisses de la résolution historique du 31 octobre**: [Link](https://medias24.com/2025/11/02/sahara-nasser-bourita-devoile-les-coulisses-de-la-resolution-historique-du-31-octobre/)
+- **Pourquoi le Pakistan s’est abstenu sur la résolution de l’ONU concernant le Sahara marocain : l’analyse d’Ahmed Nour Eddine**: [Link](https://industries.ma/pourquoi-le-pakistan-sest-abstenu-sur-la-resolution-de-lonu-concernant-le-sahara-marocain-lanalyse-dahmed-nour-eddine/)
+- **Sahara : Bourita détaille les rouages d’une victoire diplomatique conduite et supervisée par S.M. le Roi Mohammed VI**: [Link](https://lematin.ma/nation/sahara-bourita-detaille-les-rouages-dune-victoire-diplomatique/311374)
+
+
+### wydad vs tanger (N/A, Sun, 2 Nov 2025 11:30:00 -0800)
+
+
+
+
 ### betis – majorque (N/A, Sun, 2 Nov 2025 11:20:00 -0800)
 
 - **Preview:Betis vs Mallorca - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/betis-vs-mallorca-prediction-team-news-lineups_584848.html)
