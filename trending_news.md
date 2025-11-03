@@ -1,3 +1,31 @@
+### bein sport (N/A, Mon, 3 Nov 2025 05:50:00 -0800)
+
+- **Leverkusen’s capitulation at Bayern confirms demise of an engaging rivalry | Andy Brassell**: [Link](https://www.theguardian.com/football/2025/nov/03/leverkusen-capitulation-at-bayern-confirms-demise-of-an-engaging-bundesliga-rivalry)
+- **Bayern 3-0 Leverkusen (Nov 1, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/746792)
+- **Bayern Munich 3-0 Bayer Leverkusen: Hosts continue perfect start to season**: [Link](https://www.bbc.com/sport/football/live/c3epnlqpjept)
+
+
+### snrt (N/A, Mon, 3 Nov 2025 05:50:00 -0800)
+
+- **بوريطة: محاولات جرت لكسب "عضو دائم".. المغرب والجزائر لا يحتاجان وساطات**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%B1%D9%8A%D8%B7%D8%A9-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%AC%D8%B1%D8%AA-%D9%84%D9%83%D8%B3%D8%A8-%D8%B9%D8%B6%D9%88-%D8%AF%D8%A7%D8%A6%D9%85-%D8%A7%D9%84%D9%85%D8%BA-1649451.html)
+- **حزب العدالة والتنمية يصدر بيانا يهنئ بحرارة جلالة الملك وعموم الشعب المغربي بقرار مجلس الأمن التاريخي الداعم للمقترح المغربي للحكم الذاتي تحت السيادة المغربية**: [Link](https://www.pjd.ma/221407-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%B9%D8%AF%D8%A7%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D8%A7-%D9%8A%D9%87%D9%86%D8%A6-%D8%A8.html)
+- **مباركة بوعيدة: دعوة جلالة الملك لساكنة تندوف رسالة نبيلة ومهمة**: [Link](https://2m.ma/ar/news/%D9%85%D8%A8%D8%A7%D8%B1%D9%83%D8%A9-%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D8%AF%D8%B9%D9%88%D8%A9-%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%84%D8%B3%D8%A7%D9%83%D9%86%D8%A9-%D8%AA%D9%86%D8%AF%D9%88%D9%81-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%86%D8%A8%D9%8A%D9%84%D8%A9-%D9%88%D9%85%D9%87%D9%85%D8%A9-20251101)
+
+
+### الرياضية (N/A, Mon, 3 Nov 2025 05:50:00 -0800)
+
+- **مباشر بعد قليل.. قرعة دوري أبطال أفريقيا لحظة بلحظة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B9%D8%AF-%D9%82%D9%84%D9%8A%D9%84--%D9%82%D8%B1%D8%B9%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D8%AD%D8%B8%D8%A9-%D8%A8%D9%84%D8%AD%D8%B8%D8%A9/blt860f20328fd36776)
+- **صدامات إفريقية تنتظر الجيش وبركان**: [Link](https://www.hespress.com/%D8%B5%D8%AF%D8%A7%D9%85%D8%A7%D8%AA-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%AA%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%88%D8%A8%D8%B1%D9%83%D8%A7%D9%86-1649977.html)
+- **قرعة دوري أبطال أفريقيا تضع الجيش الملكي في مجموعة "الموت" رفقة شبيبة القبائل ويونغ أفريكانز والأهلي المصري**: [Link](https://m.elbotola.com/article/2025-11-03-12-25-770.html)
+
+
+### القنوات الناقلة لمباراة المغرب (N/A, Mon, 3 Nov 2025 05:30:00 -0800)
+
+- **الان.. تردد قناة الرياضية المغربية الناقلة لمباراة المغرب واليابان في كأس العالم للناشئين.. جودة عالية**: [Link](https://zahraa.mr/6051377/%D8%A7%D9%84%D8%A7%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%86%D8%A7/)
+- **استقبل تردد قناة المغربية الرياضية الجديد 2026 على النايل سات وعربسات**: [Link](https://iqraa24.com/11577/%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84/)
+- **تردد الرياضية المغربية Arryadia الجديد 2025 على نايل سات وعرب سات بدقة HD**: [Link](https://khabars7.com/43113/%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-arr/)
+
+
 ### japon u-17 – maroc u-17 (N/A, Mon, 3 Nov 2025 05:00:00 -0800)
 
 - **Match Maroc-Japon : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-japon-a-quelle-heure-et-sur-quelles-chaines/311345)
