@@ -1,3 +1,17 @@
+### samsung galaxy s26 ultra (N/A, Mon, 3 Nov 2025 08:10:00 -0800)
+
+- **Samsung Galaxy S26 Ultra Release Date: New Leaks Brings Disappointment**: [Link](https://www.forbes.com/sites/ewanspence/2025/11/02/samsung-galaxy-s26-ultra-release-date-galaxy-unpacked-galaxy-ai-mwc-dates-new-galaxy-s26/)
+- **Samsung Galaxy S26 series full Specs leaked: 200MP camera, Snapdragon 8 Gen 5 Power SoC and 5400mAh battery tipped**: [Link](https://www.livemint.com/technology/tech-news/samsung-galaxy-s26-series-full-specs-leaked-200mp-camera-snapdragon-8-gen-5-power-soc-and-5400mah-battery-tipped-11762056842171.html)
+- **Samsung reveals key features of upcoming Galaxy S26 smartphones**: [Link](https://mashable.com/article/samsung-galaxy-s26-teaser)
+
+
+### maroc u17 vs japon u17 (N/A, Mon, 3 Nov 2025 05:40:00 -0800)
+
+- **🔴 Diffusion en direct.. Maroc vs Japon en Coupe du Monde U17**: [Link](https://chamaly.ma/2025/11/03/%F0%9F%94%B4-diffusion-en-direct-maroc-vs-japon-en-coupe-du-monde-u17/)
+- **Résultat et résumé du match Maroc – Japon à la Coupe du Monde U17**: [Link](https://chamaly.ma/2025/11/03/resultat-et-resume-du-match-maroc-japon-a-la-coupe-du-monde-u17/)
+- **Coupe du Monde U17 de la FIFA Qatar 2025: dernier entraînement des Lionceaux de l’Atlas avant l’entrée en lice**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5-4/)
+
+
 ### renaud revel (N/A, Mon, 3 Nov 2025 09:00:00 -0800)
 
 - **Le journaliste Renaud Revel est décédé**: [Link](https://www.lefigaro.fr/medias/le-journaliste-renaud-revel-est-decede-20251103)
