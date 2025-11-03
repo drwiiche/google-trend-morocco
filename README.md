@@ -1,3 +1,10 @@
+### maroc vs japan u17 (N/A, Mon, 3 Nov 2025 07:00:00 -0800)
+
+- **🔴 Diffusion en direct.. Maroc vs Japon en Coupe du Monde U17**: [Link](https://chamaly.ma/2025/11/03/%F0%9F%94%B4-diffusion-en-direct-maroc-vs-japon-en-coupe-du-monde-u17/)
+- **Résultat et résumé du match Maroc – Japon à la Coupe du Monde U17**: [Link](https://chamaly.ma/2025/11/03/resultat-et-resume-du-match-maroc-japon-a-la-coupe-du-monde-u17/)
+- **Coupe du Monde U17 de la FIFA Qatar 2025: dernier entraînement des Lionceaux de l’Atlas avant l’entrée en lice**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5-4/)
+
+
 ### المغرب اليابان (N/A, Mon, 3 Nov 2025 06:00:00 -0800)
 
 - **المنتخب المغربي للفتيان ينهي استعدادات أول مباراة في "مونديال U17"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D9%84%D9%81%D8%AA%D9%8A%D8%A7%D9%86-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF-1649683.html)
