@@ -1,3 +1,9 @@
+### fc barcelone lamine yamal (N/A, Mon, 3 Nov 2025 04:10:00 -0800)
+
+- **Who Has Barcelona Wonderkid Dated Till Now? Lamine Yamal Girlfriend List Revealed**: [Link](https://www.sportsdunia.com/football-entertainment/lamine-yamal-girlfriend-list-revealed)
+- **Le Barça s’accroche**: [Link](https://www.football.fr/espagne/le-barca-saccroche-3-782367.html)
+
+
 ### zohran mamdani (N/A, Sun, 2 Nov 2025 14:40:00 -0800)
 
 - **New York City’s mayoral race and its message to Trump — and the world**: [Link](https://www.cnn.com/2025/11/02/politics/new-york-city-mayor-election-aotm)
