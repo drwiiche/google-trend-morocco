@@ -1,3 +1,45 @@
+### japon u-17 – maroc u-17 (N/A, Mon, 3 Nov 2025 05:00:00 -0800)
+
+- **Match Maroc-Japon : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-japon-a-quelle-heure-et-sur-quelles-chaines/311345)
+- **Coupe du Monde U-17 de la FIFA: le coach Nabil Baha convoque Soukrat Bilal et Mouhoub Ahmed**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%86%D8%A8%D9%8A%D9%84-%D8%A8%D8%A7%D9%87%D8%A7-%D9%8A%D9%88%D8%AC%D9%91%D9%87-%D8%A7%D9%84%D8%AF%D8%B9%D9%88%D8%A9-%D9%84%D8%B3%D9%82%D8%B1%D8%A7%D8%B7-%D9%88%D9%85/)
+- **Mondial U17 au Qatar : le Maroc face à un nouveau défi mondial**: [Link](https://telquel.ma/instant-t/2025/11/03/mondial-u17-au-qatar-le-maroc-face-a-un-nouveau-defi-mondial_1958959/)
+
+
+### القنوات الناقلة لمباراة المغرب اليوم (N/A, Mon, 3 Nov 2025 05:00:00 -0800)
+
+- **مونديال قطر 2025 .. برنامج مباريات المنتخب المغربي لأقل من 17 سنة في دور المجموعات**: [Link](https://www.akhbarona.com/sport/lionatlas/415751.html)
+- **هلال طير: "الجمهور صابر علينا وكنعتذروا منهم"**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/455380.html)
+- **غيابات مؤثرة لليابان أمام المنتخب المغربي في مونديال أقل من 17 سنة**: [Link](https://sport.lesiteinfo.com/elbotola/479990.html)
+
+
+### منعم سجورة (N/A, Mon, 3 Nov 2025 05:00:00 -0800)
+
+- **حادث سير ينهي حياة قاض في برشيد**: [Link](https://www.hespress.com/%D8%AD%D8%A7%D8%AF%D8%AB-%D8%B3%D9%8A%D8%B1-%D9%8A%D9%86%D9%87%D9%8A-%D8%AD%D9%8A%D8%A7%D8%A9-%D9%82%D8%A7%D8%B6-%D9%81%D9%8A-%D8%A8%D8%B1%D8%B4%D9%8A%D8%AF-1649924.html)
+- **حادثة سير مميتة تودي بحياة قاضي ونائب وكيل سابق بالجديدة**: [Link](https://rue20.com/949733.html)
+- **وفاة القاضي منعم سجورة في حادثة سير أثناء توجهه إلى محكمة برشيد**: [Link](https://www.akhbarona.com/society/415802.html)
+
+
+### كأس العالم تحت 17 سنة 2025 (N/A, Mon, 3 Nov 2025 04:40:00 -0800)
+
+- **منطقة واحدة ومهرجانات كروية.. قطر جاهزة لانطلاق مونديال الناشئين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%8A%D8%AF/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-%D9%88%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86%D8%A7%D8%AA-%D9%83%D8%B1%D9%88%D9%8A%D8%A9--%D9%82%D8%B7%D8%B1-%D8%AC%D8%A7%D9%87%D8%B2%D8%A9-%D9%84%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D9%8A%D9%94%D9%8A%D9%86/blt06a15d430144e810)
+- **كأس العالم لكرة القدم لأقل 17 سنة.. الدول المتوجة باللقب العالمي منذ أول نسخة في الصين سنة 1985**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%84%D8%A3%D9%82%D9%84-17-%D8%B3%D9%86%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D8%AC%D8%A9-%D8%A8%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-20251102)
+- **منتخب قطر في مونديال الناشئين... توليفة حالمة تحت قيادة ميخيا**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%82%D8%B7%D8%B1-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86-%D8%AA%D9%88%D9%84%D9%8A%D9%81%D8%A9-%D8%AD%D8%A7%D9%84%D9%85%D8%A9-%D8%AA%D8%AD%D8%AA-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%85%D9%8A%D8%AE%D9%8A%D8%A7)
+
+
+### u17 world cup 2025 (N/A, Mon, 3 Nov 2025 04:30:00 -0800)
+
+- **U17 World Cup: When, How to Watch Japan vs Morocco**: [Link](https://www.moroccoworldnews.com/2025/11/266333/u17-world-cup-when-how-to-watch-japan-vs-morocco/)
+- **Morocco U17 ready for World Cup challenge in Qatar after Africa Cup triumph**: [Link](https://en.yabiladi.com/articles/details/180296/morocco-ready-world-challenge-qatar.html)
+- **How to Watch | FIFA U-17 World Cup 2025™**: [Link](https://www.oceaniafootball.com/how-to-watch-fifa-u-17-world-cup-2025/)
+
+
+### harry kane (N/A, Mon, 3 Nov 2025 03:00:00 -0800)
+
+- **Football gossip: Kane, Branthwaite, Aghehowa, Iraola, Kevin, Upamecano, De Rossi**: [Link](https://www.bbc.com/sport/football/articles/c620vg663l7o)
+- **Kane stance 'revealed' as Bayern brace for Barca**: [Link](https://www.sportsmole.co.uk/football/barcelona/transfer-talk/news/kane-stance-revealed-as-bayern-brace-for-barca-gamble-in-summer-window_584978.html)
+- **Harry Kane set to leave Bayern? The English striker becomes a target for a top-tier team for a surprising r...**: [Link](https://worldsoccertalk.com/news/harry-kane-set-to-leave-bayern-the-english-striker-becomes-a-target-for-a-top-tier-team-for-a-surprising-reason/)
+
+
 ### u17 world cup (N/A, Mon, 3 Nov 2025 04:50:00 -0800)
 
 - **U17 World Cup: When, How to Watch Japan vs Morocco**: [Link](https://www.moroccoworldnews.com/2025/11/266333/u17-world-cup-when-how-to-watch-japan-vs-morocco/)
