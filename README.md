@@ -1,3 +1,10 @@
+### fiji (N/A, Mon, 3 Nov 2025 09:30:00 -0800)
+
+- **Telecom Fiji and Solomon Telekom in skills-sharing tie-up**: [Link](https://developingtelecoms.com/telecom-business/operator-news/19281-telecom-fiji-and-solomon-telekom-in-skills-sharing-tie-up.html)
+- **Telecom Fiji and Solomon Telekom sign MoU to boost collaboration**: [Link](https://www.telecompaper.com/news/telecom-fiji-and-solomon-telekom-sign-mou-to-boost-collaboration--1552807)
+- **Israel deepens Pacific ties, hints at Fiji's role in Gaza**: [Link](https://www.jpost.com/israel-news/politics-and-diplomacy/article-872253)
+
+
 ### samsung galaxy s26 ultra (N/A, Mon, 3 Nov 2025 08:10:00 -0800)
 
 - **Samsung Galaxy S26 Ultra Release Date: New Leaks Brings Disappointment**: [Link](https://www.forbes.com/sites/ewanspence/2025/11/02/samsung-galaxy-s26-ultra-release-date-galaxy-unpacked-galaxy-ai-mwc-dates-new-galaxy-s26/)
