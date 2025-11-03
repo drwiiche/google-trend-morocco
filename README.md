@@ -1,3 +1,24 @@
+### الغرافة ضد الهلال (N/A, Mon, 3 Nov 2025 10:30:00 -0800)
+
+- **مباشر مباراة الهلال ضد الغرافة (1-0) في دوري أبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/3/al-gharafa-vs-al-hilal)
+- **إنزاجي: سنقاتل ضد الغرافة رغم ضغط المباريات.. ومارتينز يتحدّى: جاهزون لإسقاط المتصدر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%8A%D8%B9%D8%AF%D8%AF-%D9%85%D9%85%D9%8A%D8%B2%D8%A7%D8%AA-%D8%A7%D9%84%D8%BA%D8%B1%D8%A7%D9%81%D8%A9--%D9%88%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D8%B2-%D9%8A%D8%AA%D8%AD%D8%AF%D9%91%D9%89/blta62a49c57cd90eaa)
+- **دوري أبطال آسيا للنخبة: مواجهات عربية صعبة وديربي خليجي بين الغرافة والهلال**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9-%D9%88%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A)
+
+
+### caf champions league (N/A, Mon, 3 Nov 2025 10:00:00 -0800)
+
+- **Pyramids and Berkane set for blockbuster reunion following TotalEnergies CAF Champions League Group Stage draw**: [Link](https://www.cafonline.com/caf-champions-league/news/pyramids-and-berkane-set-for-blockbuster-reunion-following-totalenergies-caf-champions-league-group-stage-draw/)
+- **Rulani to face old employer Sundowns in Champions League**: [Link](https://supersport.com/hereforher/news/84f117eb-db59-4cae-9388-acf42bd57e76/rulani-to-face-old-employer-sundowns-in-champions-league)
+- **Three SA teams drawn in tough groups in CAF Interclub Competitions**: [Link](https://www.sabcnews.com/sabcnews/three-sa-teams-drawn-in-tough-groups-in-caf-interclub-competitions/)
+
+
+### super lune (N/A, Mon, 3 Nov 2025 08:30:00 -0800)
+
+- **Super Lune de novembre : ce que réserve cette pleine Lune à observer très bientôt**: [Link](https://actu.fr/sciences-technologie/super-lune-de-novembre-ce-que-reserve-cette-pleine-lune-a-observer-tres-bientot_63374189.html)
+- **Tout savoir sur la super Lune de novembre**: [Link](https://fr.euronews.com/next/2025/11/03/super-lune-de-novembre-la-plus-brillante-de-lannee-et-comment-lobserver)
+- **La vérité sur la Super Lune : est-ce vraiment un phénomène si rare et si spectaculaire ?**: [Link](https://www.lamontagne.fr/paris-75000/actualites/la-verite-sur-la-super-lune-est-ce-vraiment-un-phenomene-si-rare-et-si-spectaculaire_14775380/)
+
+
 ### fiji (N/A, Mon, 3 Nov 2025 09:30:00 -0800)
 
 - **Telecom Fiji and Solomon Telekom in skills-sharing tie-up**: [Link](https://developingtelecoms.com/telecom-business/operator-news/19281-telecom-fiji-and-solomon-telekom-in-skills-sharing-tie-up.html)
