@@ -1,3 +1,10 @@
+### betis – majorque (N/A, Sun, 2 Nov 2025 11:20:00 -0800)
+
+- **Preview:Betis vs Mallorca - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/betis-vs-mallorca-prediction-team-news-lineups_584848.html)
+- **Takuma Asano vs. Real Betis – Player props & odds to score a goal on November 2**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/02/takuma-asano-soccer-player-props-11-2-2025/87047775007/)
+- **Liga: Real Betis crushes Mallorca thanks to an immense Antony**: [Link](https://frenchfootballweekly.com/2025/11/02/liga-real-betis-crushes-mallorca-thanks-to-an-immense-antony/)
+
+
 ### حفيظ دراجي (N/A, Sun, 2 Nov 2025 15:00:00 -0800)
 
 - **حفيظ الدراجي: من صراخ الملاعب إلى التحليل السياسي المغلوط وتضليل الشعب الجزائري**: [Link](https://ar.hibapress.com/details-671598.html)
