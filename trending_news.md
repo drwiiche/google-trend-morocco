@@ -1,3 +1,8 @@
+### maroc vs japan (N/A, Mon, 3 Nov 2025 06:50:00 -0800)
+
+- **🔴 Diffusion en direct.. Maroc vs Japon en Coupe du Monde U17**: [Link](https://chamaly.ma/2025/11/03/%F0%9F%94%B4-diffusion-en-direct-maroc-vs-japon-en-coupe-du-monde-u17/)
+
+
 ### sunderland – everton (N/A, Mon, 3 Nov 2025 11:20:00 -0800)
 
 - **‘Football can sicken you’: Moyes knows game’s pain from his Sunderland exit**: [Link](https://www.theguardian.com/sport/2025/nov/02/football-can-sicken-you-moyes-knows-games-pain-from-his-sunderland-exit)
