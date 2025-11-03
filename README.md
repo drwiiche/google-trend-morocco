@@ -1,3 +1,17 @@
+### casablanca (N/A, Mon, 3 Nov 2025 07:00:00 -0800)
+
+- **Intégration financière: à Casablanca, l’Afrique en quête d’outils pour passer du slogan à l’action**: [Link](https://afrique.le360.ma/economie/integration-financiere-a-casablanca-lafrique-en-quete-doutils-pour-passer-du-slogan-a-laction_P6QUUHSVOJFBNGW7CNNWDTRCHQ/)
+- **AFIS 2025 : comment l’Afrique cherche à mobiliser ses capitaux pour construire sa souveraineté financière**: [Link](https://www.jeuneafrique.com/1736387/economie-entreprises/en-direct-afis-2025-construire-la-souverainete-financiere-de-lafrique/)
+- **En direct : Top départ de l'Africa Financial Summit 2025 à Casablanca**: [Link](https://lematin.ma/videos/en-direct-top-depart-de-lafrica-financial-summit-2025-a-casablanca/311423)
+
+
+### world cup u17 (N/A, Mon, 3 Nov 2025 05:00:00 -0800)
+
+- **Argentina U17 vs Belgium U17 live in the USA: 2025 U17 World Cup**: [Link](https://www.rmoutlook.com/classifieds/homes-rentals-and-real-estate/open-houses/2045425)
+- **Argentina U17 squad for the World Cup in Qatar: player by player**: [Link](https://onefootball.com/en/news/argentina-u17-squad-for-the-world-cup-in-qatar-player-by-player-41894241)
+- **U17 World Cup: Official squads of the four Group D teams**: [Link](https://foot-africa.com/en/news/u17-world-cup-official-squads-of-the-four-group-d-teams-938699/)
+
+
 ### fifa+ (N/A, Mon, 3 Nov 2025 06:30:00 -0800)
 
 - **FIFA and DAZN announce the ultimate global football platform – FIFA+**: [Link](https://dazngroup.com/press-room/fifa-and-dazn-announce-the-ultimate-global-football-platform-fifa/)
