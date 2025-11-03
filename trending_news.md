@@ -1,3 +1,10 @@
+### lazio (N/A, Mon, 3 Nov 2025 13:40:00 -0800)
+
+- **🔥 Isaksen+Zac, 2 MAGIE e 2-0 Lazio 🦅 Olimpico 🔙 FORTINO, Europa a -3!**: [Link](https://onefootball.com/it/notizie/isaksenzac-2-magie-e-2-0-lazio-olimpico-fortino-europa-a-3-41898755)
+- **Zaccagni: "Il mio obiettivo è la doppia cifra, dalla compattezza rinascerà la Lazio"**: [Link](https://www.tuttomercatoweb.com/serie-a/zaccagni-il-mio-obiettivo-e-la-doppia-cifra-dalla-compattezza-rinascera-la-lazio-2164507)
+- **Hernanes e il "dribbling della mucca": cos'è e perché ha fatto impazzire i tifosi in Lazio-Cagliari**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2025/11/03-144296322/hernanes_e_il_dribbling_della_mucca_cos_e_perch_ha_fatto_impazzire_i_tifosi_in_lazio-cagliari)
+
+
 ### lazio – cagliari (N/A, Mon, 3 Nov 2025 12:10:00 -0800)
 
 - **LIVE Alle 20.45 Lazio-Cagliari: Sarri chiede gol a Dia, Pisacane recupera Mina**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Lazio/03-11-2025/lazio-cagliari-live-risultato-e-gol-in-diretta-serie-a.shtml)
