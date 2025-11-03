@@ -1,3 +1,17 @@
+### المغرب اليابان (N/A, Mon, 3 Nov 2025 06:00:00 -0800)
+
+- **المنتخب المغربي للفتيان ينهي استعدادات أول مباراة في "مونديال U17"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D9%84%D9%81%D8%AA%D9%8A%D8%A7%D9%86-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF-1649683.html)
+- **خاص لـ"البطولة" : ضربة موجعة لليابان قبل مواجهة المغرب**: [Link](https://m.elbotola.com/article/2025-11-03-05-06-801.html)
+- **تشكيلة المنتخب الوطني لاقل من 17سنة امام اليابان**: [Link](https://frmf.ma/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17%D8%B3%D9%86%D8%A9-%D8%A7%D9%85%D8%A7-3/)
+
+
+### morocco u17 (N/A, Mon, 3 Nov 2025 05:30:00 -0800)
+
+- **Fünf BVB-Talente bei der U17-WM Große Träume und ein Privat-Duell zwischen Albert und Inacio**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-talente-bei-u17-wm-traeume-und-privat-duell-albert-und-inacio-w1097516-2001861478/)
+- **Marokko vs. Japan im Live Stream und live im TV: Wer zeigt / überträgt die U17 WM heute?**: [Link](https://www.goal.com/de/listen/marokko-vs-japan-im-live-stream-und-live-im-tv-wer-zeigt-uebertraegt-die-u17-wm-heute/blt5cec797432e6b346)
+- **Mike, Kaba, Staff und Co.: Das sind die Talente der U17-WM**: [Link](https://www.sport1.de/news/fussball/2025/11/mike-kaba-staff-und-co-das-sind-die-talente-der-u17-wm)
+
+
 ### casablanca (N/A, Mon, 3 Nov 2025 07:00:00 -0800)
 
 - **Intégration financière: à Casablanca, l’Afrique en quête d’outils pour passer du slogan à l’action**: [Link](https://afrique.le360.ma/economie/integration-financiere-a-casablanca-lafrique-en-quete-doutils-pour-passer-du-slogan-a-laction_P6QUUHSVOJFBNGW7CNNWDTRCHQ/)
