@@ -1,3 +1,10 @@
+### lazio – cagliari (N/A, Mon, 3 Nov 2025 12:10:00 -0800)
+
+- **LIVE Alle 20.45 Lazio-Cagliari: Sarri chiede gol a Dia, Pisacane recupera Mina**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Lazio/03-11-2025/lazio-cagliari-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Certe serate devi provarci: l’analisi di lunedì 3 novembre 2025 - L'Unione Sarda.it**: [Link](https://www.unionesarda.it/certe-serate-devi-provarci-lanalisi-di-lunedi-3-novembre-2025-cxbsl60t)
+- **Live Lazio - Cagliari - Serie A: Punteggi & Highlights Calcio - 03/11/2025**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-lazio-cagliari_mtc1598777/live-commentary.shtml)
+
+
 ### maroc vs japan (N/A, Mon, 3 Nov 2025 06:50:00 -0800)
 
 - **🔴 Diffusion en direct.. Maroc vs Japon en Coupe du Monde U17**: [Link](https://chamaly.ma/2025/11/03/%F0%9F%94%B4-diffusion-en-direct-maroc-vs-japon-en-coupe-du-monde-u17/)
