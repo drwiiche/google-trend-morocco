@@ -1,3 +1,10 @@
+### zohran mamdani (N/A, Sun, 2 Nov 2025 14:40:00 -0800)
+
+- **New York City’s mayoral race and its message to Trump — and the world**: [Link](https://www.cnn.com/2025/11/02/politics/new-york-city-mayor-election-aotm)
+- **Cover Story newsletter: The battle for New York**: [Link](https://www.economist.com/the-world-this-week/2025/11/01/cover-story-newsletter-the-battle-for-new-york)
+- **"I'm A Much Better Looking Person": Trump On Comparison With Zohran Mamdani**: [Link](https://www.ndtv.com/world-news/im-a-much-better-looking-person-us-president-donald-trump-on-comparison-with-zohran-mamdani-9564884)
+
+
 ### cdiscount (N/A, Sun, 2 Nov 2025 13:50:00 -0800)
 
 - **Cdiscount prépare le Black Friday avec cette superbe réduction sur le nouvel airfryer portable Ninja**: [Link](https://www.telestar.fr/shopping/cdiscount-prepare-le-black-friday-avec-cette-superbe-reduction-sur-le-nouvel-airfryer-portable-ninja-1743424)
