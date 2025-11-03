@@ -1,3 +1,10 @@
+### onu sahara marocain algerie (N/A, Mon, 3 Nov 2025 14:40:00 -0800)
+
+- **Sahara occidental : le Maroc obtient une victoire diplomatique à l’ONU**: [Link](https://www.lemonde.fr/afrique/article/2025/10/31/sahara-occidental-le-maroc-obtient-une-victoire-diplomatique-a-l-onu_6650659_3212.html)
+- **ONU : le renouvellement des membres non permanents en 2026 changera-t-il quelque chose pour le Sahara**: [Link](https://mobile.telquel.ma/2025/11/03/onu-le-renouvellement-des-membres-non-permanents-en-2026-changera-t-il-quelque-chose-pour-le-sahara_1959113)
+- **Sahara : L’option du référendum est définitivement enterrée (Cheikh Biadillah)**: [Link](https://medias24.com/2025/11/03/sahara-loption-du-referendum-est-definitivement-enterree-cheikh-biadillah/)
+
+
 ### lazio (N/A, Mon, 3 Nov 2025 13:40:00 -0800)
 
 - **🔥 Isaksen+Zac, 2 MAGIE e 2-0 Lazio 🦅 Olimpico 🔙 FORTINO, Europa a -3!**: [Link](https://onefootball.com/it/notizie/isaksenzac-2-magie-e-2-0-lazio-olimpico-fortino-europa-a-3-41898755)
