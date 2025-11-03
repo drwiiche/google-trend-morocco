@@ -1,3 +1,10 @@
+### fifa+ (N/A, Mon, 3 Nov 2025 06:30:00 -0800)
+
+- **FIFA and DAZN announce the ultimate global football platform – FIFA+**: [Link](https://dazngroup.com/press-room/fifa-and-dazn-announce-the-ultimate-global-football-platform-fifa/)
+- **DAZN to relaunch FIFA Plus streaming hub in 2026**: [Link](https://thedesk.net/2025/11/dazn-fifa-plus-relaunch-2026/)
+- **FIFA & DAZN Team To Relaunch Global Soccer Streamer**: [Link](https://deadline.com/2025/10/fifa-dazn-global-soccer-streamer-world-cup-2026-1236601242/)
+
+
 ### bein sport (N/A, Mon, 3 Nov 2025 05:50:00 -0800)
 
 - **Leverkusen’s capitulation at Bayern confirms demise of an engaging rivalry | Andy Brassell**: [Link](https://www.theguardian.com/football/2025/nov/03/leverkusen-capitulation-at-bayern-confirms-demise-of-an-engaging-bundesliga-rivalry)
