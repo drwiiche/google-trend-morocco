@@ -1,3 +1,10 @@
+### حفيظ دراجي (N/A, Sun, 2 Nov 2025 15:00:00 -0800)
+
+- **حفيظ الدراجي: من صراخ الملاعب إلى التحليل السياسي المغلوط وتضليل الشعب الجزائري**: [Link](https://ar.hibapress.com/details-671598.html)
+- **المعلق الجزائري دراجي غاضب من قرار مجلس الأمن**: [Link](https://m.alayam24.com/articles-596586.html)
+- **"حفيظ الدراجي" يستفيق من هذيانه ويهاجم إعلام بلاده بعد نكسة مجلس الأمن: كفى من التطبيل.. قولوا الحقيقة ولا تبيعوا الوهم**: [Link](https://www.akhbarona.com/politic/415752.html)
+
+
 ### milan ac (N/A, Sun, 2 Nov 2025 13:40:00 -0800)
 
 - **DIRECT. AC Milan-AS Rome (Serie A 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/ac-milan-as-rome-live/673065)
