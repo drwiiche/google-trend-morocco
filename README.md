@@ -1,3 +1,17 @@
+### sunderland – everton (N/A, Mon, 3 Nov 2025 11:20:00 -0800)
+
+- **‘Football can sicken you’: Moyes knows game’s pain from his Sunderland exit**: [Link](https://www.theguardian.com/sport/2025/nov/02/football-can-sicken-you-moyes-knows-games-pain-from-his-sunderland-exit)
+- **Haway The Podcast | MATCHDAY PREVIEW | SAFC v Everton | Will We Extend Our Unbeaten Home Run?**: [Link](https://rokerreport.sbnation.com/haway-the-podcast/112804/haway-the-podcast-matchday-preview-safc-v-everton-will-we-extend-our-unbeaten-home-run)
+- **Le Bris: We still need to grow**: [Link](https://zamin.uz/en/sport/166821-le-bris-we-still-need-to-grow.html)
+
+
+### real oviedo – osasuna (N/A, Mon, 3 Nov 2025 11:20:00 -0800)
+
+- **Osasuna no es un amigo en Oviedo**: [Link](https://www.diariodenavarra.es/noticias/deportes/futbol/osasuna/2025/11/03/osasuna-amigo-oviedo-705280-32.html)
+- **Rondón, Budimir, Fede Viñas... Un Oviedo-Osasuna a la espera de los grandes artilleros**: [Link](https://www.lne.es/real-oviedo/2025/11/03/rondon-budimir-fede-vinas-oviedo-123288534.html)
+- **Oviedo - Osasuna, en directo hoy: sigue el partido de LaLiga EA Sports minuto a minuto**: [Link](https://www.europapress.es/deportes/partidos-en-directo/noticia-oviedo-osasuna-directo-hoy-sigue-partido-laliga-ea-sports-minuto-minuto-20251103201744.html)
+
+
 ### الغرافة ضد الهلال (N/A, Mon, 3 Nov 2025 10:30:00 -0800)
 
 - **مباشر مباراة الهلال ضد الغرافة (1-0) في دوري أبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/3/al-gharafa-vs-al-hilal)
