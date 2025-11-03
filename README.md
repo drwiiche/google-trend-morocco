@@ -1,3 +1,10 @@
+### widad (N/A, Sun, 2 Nov 2025 11:20:00 -0800)
+
+- **حكيم زياش يخوض أول حصة تدريبية بقميص الوداد الرياضي**: [Link](https://2m.ma/ar/news/%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%AE%D9%88%D8%B6-%D8%A3%D9%88%D9%84-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D8%A8%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-20251101)
+- **بنهاشم يكشف عما دار بينه وبين حكيم زياش**: [Link](https://sport.lesiteinfo.com/elbotola/479975.html)
+- **ناسي: الفوز يجب أن يصبح أمرًا عاديًا بالنسبة لنا وأنا سعيد بقدوم زياش 🔴🎙**: [Link](https://m.elbotola.com/video/details/6907e826d4cc4f35cc0efd65/)
+
+
 ### nasser bourita (N/A, Sun, 2 Nov 2025 17:50:00 -0800)
 
 - **Sahara : Nasser Bourita dévoile les coulisses de la résolution historique du 31 octobre**: [Link](https://medias24.com/2025/11/02/sahara-nasser-bourita-devoile-les-coulisses-de-la-resolution-historique-du-31-octobre/)
