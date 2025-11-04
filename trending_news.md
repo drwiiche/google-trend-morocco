@@ -1,3 +1,10 @@
+### nicolas sarkozy (N/A, Mon, 3 Nov 2025 23:30:00 -0800)
+
+- **Nicolas Sarkozy incarcéré : pour Dominique de Villepin, l’ex-président reste « un justiciable qui a à répondre devant la justice**: [Link](https://www.leparisien.fr/politique/nicolas-sarkozy-incarcere-pour-dominique-de-villepin-lex-president-reste-un-justiciable-qui-a-a-repondre-devant-la-justice-02-11-2025-HOBC3AQSBBEVJLTE4ZKTXTYFTU.php)
+- **L’ensemble de son œuvre**: [Link](https://www.infolibertaire.net/lensemble-de-son-oeuvre)
+- **Nicolas Sarkozy en prison, son fils Louis inquiet pour sa sécurité : “La photo de mon père vaudrait son poids d’or”**: [Link](https://www.gala.fr/l_actu/news_de_stars/nicolas-sarkozy-en-prison-son-fils-louis-inquiet-pour-sa-securite-la-photo-de-mon-pere-vaudrait-son-poids-d-or-20251101)
+
+
 ### onu sahara marocain algerie (N/A, Mon, 3 Nov 2025 14:40:00 -0800)
 
 - **Sahara occidental : le Maroc obtient une victoire diplomatique à l’ONU**: [Link](https://www.lemonde.fr/afrique/article/2025/10/31/sahara-occidental-le-maroc-obtient-une-victoire-diplomatique-a-l-onu_6650659_3212.html)
