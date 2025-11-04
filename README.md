@@ -1,3 +1,38 @@
+### real madrid (N/A, Tue, 4 Nov 2025 12:30:00 -0800)
+
+- **Liverpool - Real Madrid hoy, en directo: fase liga de Champions League, última hora en vivo**: [Link](https://as.com/futbol/champions/liverpool-real-madrid-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202511-d/)
+- **🔴EN VIVO: ¿Era penal de Tchouaméni en Anfield?**: [Link](https://onefootball.com/es/noticias/en-vivo-era-penal-de-tchouameni-en-anfield-41903330)
+- **Liverpool - Real Madrid en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/liverpool-r-madrid/2025/11/04/01_0103_20251104_14_186-directo.html)
+
+
+### ريال مدريد (N/A, Tue, 4 Nov 2025 12:30:00 -0800)
+
+- **إصابة عضلية تربك ريال مدريد قبل مواجهة ليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D8%A7%D8%B9-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D8%B1%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt2a39b1a4782e1710)
+- **الريال يفقد ماستانتونو لأجل غير مسمى**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D9%81%D9%82%D8%AF-%D9%85%D8%A7%D8%B3%D8%AA%D8%A7%D9%86%D8%AA%D9%88%D9%86%D9%88-%D9%84%D8%A3%D8%AC%D9%84-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D9%85%D9%89-410956.html)
+- **عصبة أبطال أوروبا: ماسطانتوونو يغيب عن ريال في مواجهة ليفربول للاصابة**: [Link](https://www.almountakhab.com/node/13219258)
+
+
+### livescore (N/A, Tue, 4 Nov 2025 12:30:00 -0800)
+
+- **Spirit of ‘Tommy’ lives on in Sunderland tribute**: [Link](https://www.safc.com/news/2025/november/04/spirit-of--tommy--lives-on-in-sunderland-tribute/)
+- **LiveScore pledge to support Heroes' Week**: [Link](https://www.safc.com/news/2025/november/04/livescore-pledge-to-support-heroes--week/)
+- **Sunderland AFC’s Remembrance Shirt on sale**: [Link](https://www.safc.com/news/2025/november/03/sunderland-afc-s-remembrance-shirt-on-sale/)
+
+
+### يلا كورة (N/A, Tue, 4 Nov 2025 12:30:00 -0800)
+
+- **الكاف يقرر توسيع كأس أمم أفريقيا للسيدات 2026 بالمغرب إلى 16 منتخباً**: [Link](https://www.matchpresse.com/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D9%82%D8%B1%D8%B1-%D8%AA%D9%88%D8%B3%D9%8A%D8%B9-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF/)
+- **بموجب قرار من كاف.. منتخب السيدات المصري يتأهل إلى بطولة الأمم الأفريقية**: [Link](https://twaslnews.com/%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84/2184568/)
+- **اتحاد الكرة يستقر على رحيل أحمد رمضان عن تدريب منتخب السيدات**: [Link](https://www.youm7.com/story/2025/11/3/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D8%B1-%D8%B9%D9%84%D9%89-%D8%B1%D8%AD%D9%8A%D9%84-%D8%A3%D8%AD%D9%85%D8%AF-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%B9%D9%86-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8/6848512)
+
+
+### live (N/A, Tue, 4 Nov 2025 12:30:00 -0800)
+
+- **New Omaha food drive locations announced, Cub Scout pack holds drive**: [Link](https://www.ketv.com/article/new-omaha-food-drive-locations-announced-cub-scout-pack-holds-drive/69230773)
+- **LIVE AT 2:30PM: Lincoln officials to discuss support for those impacted by pause in federal food assistance**: [Link](https://www.1011now.com/2025/11/04/live-230pm-lincoln-officials-discuss-support-those-impacted-by-pause-federal-food-assistance/)
+- **Noli's Pizzeria gives away $20,000 in free meals**: [Link](https://www.3newsnow.com/central-omaha/nolis-pizzeria-gives-away-20-000-in-free-meals)
+
+
 ### bodø/glimt – monaco (N/A, Tue, 4 Nov 2025 12:20:00 -0800)
 
 - **Honours, Aspmyra Stadium, playing style… All you need to know about Bodø/Glimt**: [Link](https://onefootball.com/pt-br/noticias/honours-aspmyra-stadium-playing-style-all-you-need-to-know-about-bodoglimt-41902811)
