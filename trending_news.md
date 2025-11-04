@@ -1,3 +1,15 @@
+### al ittihad – al sharjah (N/A, Tue, 4 Nov 2025 09:40:00 -0800)
+
+
+
+
+### ucl (N/A, Tue, 4 Nov 2025 09:40:00 -0800)
+
+- **Champions League Preview: PSG-Bayern, Bødo/Glimt-AS Monaco**: [Link](https://ligue1.com/en/articles/l1_article_3572-champions-league-preview-psg-bayern-bodo-glimt-as-monaco)
+- **What Champions League games are today? Schedule, odds, how to watch**: [Link](https://www.usatoday.com/story/sports/soccer/2025/11/04/uefa-champions-league-schedule-matchday-4/87076285007/)
+- **Champions League Best Bets, Predictions, Picks for Tuesday (November 4)**: [Link](https://www.actionnetwork.com/soccer/champions-league-best-bets-predictions-picks-tuesday-november-4)
+
+
 ### slavia praha vs arsenal (N/A, Tue, 4 Nov 2025 09:20:00 -0800)
 
 - **Přijela pouť. A taky nejlepší fotbalový tým planety. Arsenal je obojí**: [Link](https://www.seznamzpravy.cz/clanek/audio-podcast-mvp-prijela-pout-a-taky-nejlepsi-fotbalovy-tym-planety-arsenal-je-oboji-290738)
