@@ -1,3 +1,10 @@
+### caf afrique (N/A, Tue, 4 Nov 2025 01:00:00 -0800)
+
+- **Pyramids et Berkane se retrouvent pour un choc XXL après le tirage de la phase de groupes de la TotalEnergies CAF Ligue des Champions**: [Link](https://www.cafonline.com/fr/ligue-des-champions/news/pyramids-et-berkane-se-retrouvent-pour-un-choc-xxl-apres-le-tirage-de-la-phase-de-groupes-de-la-totalenergies-caf-ligue-des-champions/)
+- **Ligue des champions d’Afrique : voici les adversaires de la RS Berkane et de l’AS FAR**: [Link](https://mobile.telquel.ma/instant-t/2025/11/03/ligue-des-champions-dafrique-voici-les-adversaires-de-la-rs-berkane-et-de-las-far_1959154/)
+- **Coupe de la CAF: le tirage complet des groupes**: [Link](https://www.rfi.fr/fr/afrique-foot/20251103-coupe-de-la-caf-le-tirage-complet-des-groupes)
+
+
 ### nicolas sarkozy (N/A, Mon, 3 Nov 2025 23:30:00 -0800)
 
 - **Nicolas Sarkozy incarcéré : pour Dominique de Villepin, l’ex-président reste « un justiciable qui a à répondre devant la justice**: [Link](https://www.leparisien.fr/politique/nicolas-sarkozy-incarcere-pour-dominique-de-villepin-lex-president-reste-un-justiciable-qui-a-a-repondre-devant-la-justice-02-11-2025-HOBC3AQSBBEVJLTE4ZKTXTYFTU.php)
