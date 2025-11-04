@@ -1,3 +1,9 @@
+### al sadd – al-ahli saudi (N/A, Tue, 4 Nov 2025 07:50:00 -0800)
+
+- **Al Sadd vs Al Ahli Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-sadd-vs-al-ahli-preview-202511)
+- **AFCCLE: Franck Kessié is Al-Ahli Saudi’s pillar—Jaissle**: [Link](https://www.panafricafootball.com/post/afccle-franck-kessi%C3%A9-al-ahli-saudi/)
+
+
 ### dick cheney (N/A, Tue, 4 Nov 2025 06:20:00 -0800)
 
 - **Dick Cheney, the controversial power behind the Bush throne, dead at 84**: [Link](https://www.aljazeera.com/news/2025/11/4/dick-cheney-the-controversial-power-behind-the-bush-throne-dead-at-84)
