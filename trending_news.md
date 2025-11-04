@@ -1,3 +1,29 @@
+### botola pro (N/A, Tue, 4 Nov 2025 13:20:00 -0800)
+
+
+
+
+### ترتيب الدوري المغربي (N/A, Tue, 4 Nov 2025 13:10:00 -0800)
+
+- **مواجهات نارية للأندية المغربية ⚽📋🔥**: [Link](https://m.elbotola.com/video/details/6908e06b31af5e3093bb9938/)
+- **المغرب الفاسي والجيش سجلا 8 أهداف من أصل 20 هدفا ويعقوب المنصور تذوق حلاوة الفوز الأول**: [Link](https://www.almountakhab.com/node/16219225)
+- **ترتيب البطولة الاحترافية “إنوي” (القسم الأول) بعد ختام مباريات الأحد – الدورة 7**: [Link](https://agadir24.info/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A5%D9%86%D9%88%D9%8A-%D8%A7%D9%84%D9%82-3.html)
+
+
+### match real madrid (N/A, Tue, 4 Nov 2025 13:10:00 -0800)
+
+- **DIRECT. Liverpool-Real Madrid (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/liverpool-real-madrid-live/685548)
+- **DIRECT. Liverpool - Real Madrid : suivez le match**: [Link](https://www.linternaute.com/sport/foot/9153976-direct-liverpool-real-madrid-suivez-le-match/)
+- **DIRECT. Liverpool-Real Madrid: Courtois maintient le Real à flot, pas de but à Anfield**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-liverpool-real-madrid-suivez-le-match-de-la-4e-journee-de-ligue-des-champions-avec-kylian-mbappe-en-live_LS-202511040708.html)
+
+
+### ترتيب البطولة المغربية (N/A, Tue, 4 Nov 2025 13:10:00 -0800)
+
+- **رباعية الجيش تهزم الدفاع الجديدي**: [Link](https://www.hespress.com/%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%AA%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A-1649779.html)
+- **سانتوس: "البطولة ما زالت طويلة.. علينا أن نواصل بنفس الإيقاع لتحقيق الفوز الرابع على التوالي"**: [Link](https://m.elbotola.com/article/2025-11-03-14-56-544.html)
+- **الجيش يكشف سبب غياب رضا سليم عن مواجهة الدفاع الجديدي**: [Link](https://www.almountakhab.com/node/13219220)
+
+
 ### rca (N/A, Tue, 4 Nov 2025 13:00:00 -0800)
 
 - **Planeta Verde - RCA pentru trotinetele electrice? ”Este o incoerență legislativă” (Mihai Deneș, Go4Fun)**: [Link](https://www.rfi.fr/ro/podcasturi/planeta-verde/20251103-rca-pentru-trotinetele-electrice-este-o-incoeren%C8%9B%C4%83-legislativ%C4%83-mihai-dene%C8%99-go4fun)
