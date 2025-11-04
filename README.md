@@ -1,3 +1,52 @@
+### bodø/glimt – monaco (N/A, Tue, 4 Nov 2025 12:20:00 -0800)
+
+- **Honours, Aspmyra Stadium, playing style… All you need to know about Bodø/Glimt**: [Link](https://onefootball.com/pt-br/noticias/honours-aspmyra-stadium-playing-style-all-you-need-to-know-about-bodoglimt-41902811)
+- **Bodo/Glimt-Monaco: streaming, TV channel and compositions**: [Link](https://frenchfootballweekly.com/2025/11/04/bodo-glimt-monaco-streaming-tv-channel-and-compositions/)
+- **Preview:Bodo/Glimt vs Monaco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bodo-glimt/champions-league/preview/bodoglimt-vs-monaco-prediction-team-news-lineups_584926.html)
+
+
+### yalla kora (N/A, Tue, 4 Nov 2025 12:10:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 4 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-4-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blteb5b4f6b19d86b36)
+- **ريال مدريد في أنفيلد لمواجهة ليفربول... وقمة بين بايرن وسان جيرمان**: [Link](https://www.alaraby.co.uk/sport/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A3%D9%86%D9%81%D9%8A%D9%84%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%82%D9%85%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+- **مواعيد مباريات الجولة الرابعة من دورى أبطال أوروبا.. قمم نارية**: [Link](https://www.youm7.com/story/2025/11/4/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%89-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%82%D9%85%D9%85-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9/7183111)
+
+
+### bet365 (N/A, Tue, 4 Nov 2025 12:10:00 -0800)
+
+- **Bet365 Promo Code RSR365: Claim $200 NBA, NHL, NCAAB Bonus**: [Link](https://russellstreetreport.com/2025/11/04/sports-betting/bet365-promo-code-rsr365-claim-200-nba-nhl-ncaab-bonus/)
+- **Best Betting Promos for NFL Week 9 From DraftKings, FanDuel and More**: [Link](https://www.foxsports.com/stories/betting/best-sportsbook-promos-week-9-nfl-bonuses-you-can-claim-today)
+- **bet365 Bonus Code GOALBET: Get $1000 in Bonus Bets for NFL Sunday Night Football & NBA**: [Link](https://www.goal.com/en-us/betting/bet365-bonus-code-goalbet-get-1000-bonus-bets-nfl-sunday-night-football-nba-11-2/bltf0cbe840eb70af8d)
+
+
+### bayern (N/A, Tue, 4 Nov 2025 12:10:00 -0800)
+
+- **FC Bayern legt Protest bei UEFA ein | Champions League-Spiel in Paris**: [Link](https://fcbayern.com/de/news/2025/11/fc-bayern-legt-protest-bei-uefa-ein)
+- **Leckerbissen am Dienstagabend: Liverpool empfängt Real ++ PSG trifft auf die Bayern**: [Link](https://www.bluewin.ch/de/sport/champions-league/leckerbissen-am-dienstagabend-liverpool-empfaengt-real-psg-trifft-auf-die-bayern-2948926.html)
+- **Der Sport-Tag: PSG-Trainer: Bayern-Serie "ist unglaublich"**: [Link](https://www.n-tv.de/sport/der_sport_tag/PSG-Trainer-Bayern-Serie-ist-unglaublich-article26140655.html)
+
+
+### yallakora (N/A, Tue, 4 Nov 2025 12:10:00 -0800)
+
+- **موعد مباراة إنجلترا ضد فنزويلا اليوم في كأس العالم للناشئين.. انطلاقة حاسمة للأسود الشابة**: [Link](https://www.almashhad.news/351092)
+- **مباشر مباراة إنجلترا وفنزويلا (0-0) في كأس العالم تحت 17 عاما**: [Link](https://www.masrtimes.com/615002)
+- **مجموعة مصر.. نجم منتخب إنجلترا يستهدف نهائى كأس العالم تحت 17 سنة**: [Link](https://www.youm7.com/story/2025/11/4/%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D9%85%D8%B5%D8%B1-%D9%86%D8%AC%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%89-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AD%D8%AA/7183847)
+
+
+### يوفنتوس ضد سبورتينغ (N/A, Tue, 4 Nov 2025 12:10:00 -0800)
+
+- **نجم يوفنتوس يقترب من اللحاق بمواجهة سبورتنج لشبونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%84%D8%AD%D8%A7%D9%82-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%86%D8%AC-%D9%84%D8%B4%D8%A8%D9%88%D9%86%D8%A9/blt101a7fb3fe0312c8)
+- **التشكيلة المتوقعة ليوفنتوس وسبورتينغ قبل المواجهة المرتقبة**: [Link](https://www.arrajol.com/content/387882/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%88%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9)
+- **شكوك حول مشاركة تورام في مباراة يوفنتوس ضد سبورتينغ بسبب إصابة في الساق**: [Link](https://blinksport.net/%D8%B4%D9%83%D9%88%D9%83-%D8%AD%D9%88%D9%84-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%AA%D9%88%D8%B1%D8%A7%D9%85-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%B6%D8%AF-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D9%82)
+
+
+### ligue des champions (N/A, Tue, 4 Nov 2025 12:00:00 -0800)
+
+- **DIRECT. Slavia Prague-Arsenal (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/slavia-prague-arsenal-live/685544)
+- **Ligue des champions I Arsenal I Mikel Arteta "inquiet" après la blessure de Viktor Gyökeres**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-i-arsenal-i-mikel-arteta-inquiet-apres-la-blessure-de-viktor-gyokeres_sto23237619/story.shtml)
+- **Ligue des Champions. Deux nuls et deux cartons : les matches entre le Slavia Prague et Arsenal n'ont pas d'alternative**: [Link](https://www.flashscore.fr/actualites/deux-nuls-et-deux-cartons-les-matches-entre-le-slavia-prague-et-arsenal-n-ont-pas-d-alternative/naZBP5ec/)
+
+
 ### أتلتيكو مدريد ضد سانت خيلويزي (N/A, Tue, 4 Nov 2025 11:40:00 -0800)
 
 - **سيميوني يطالب بهزم سانت جيلواز**: [Link](https://www.hesport.com/%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D9%87%D8%B2%D9%85-%D8%B3%D8%A7%D9%86%D8%AA-%D8%AC%D9%8A%D9%84%D9%88%D8%A7%D8%B2-411027.html)
