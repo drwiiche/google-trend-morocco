@@ -1,3 +1,66 @@
+### rca (N/A, Tue, 4 Nov 2025 13:00:00 -0800)
+
+- **Planeta Verde - RCA pentru trotinetele electrice? ”Este o incoerență legislativă” (Mihai Deneș, Go4Fun)**: [Link](https://www.rfi.fr/ro/podcasturi/planeta-verde/20251103-rca-pentru-trotinetele-electrice-este-o-incoeren%C8%9B%C4%83-legislativ%C4%83-mihai-dene%C8%99-go4fun)
+- **Poliţele RCA vor fi obligatorii şi pentru anumite tipuri de trotinete electrice şi biciclete**: [Link](https://www.radiomures.ro/stiri/politele-rca-vor-fi-obligatorii-si-pentru-anumite-tipuri-de-trotinete-electrice-si-biciclete.html)
+- **RCA obligatoriu pentru trotinete electrice. Ce spune legea și ce ne arată statisticile din trafic**: [Link](https://www.bucurestifm.ro/2025/10/30/rca-obligatoriu-pentru-trotinete-electrice-ce-spune-legea-si-ce-ne-arata-statisticile-din-trafic/)
+
+
+### achraf hakimi (N/A, Tue, 4 Nov 2025 13:00:00 -0800)
+
+- **Inicio de temporada, Champions League, el Bayern... ¡Achraf Hakimi se confiesa!**: [Link](https://www.psg.fr/es/content/inicio-de-temporada-champions-league-el-bayern-achraf-hakimi-se-sincera)
+- **Final anticipada en París**: [Link](https://as.com/futbol/champions/final-anticipada-en-paris-f202511-n/)
+- **📸 Primero tifo gigante y luego gol relámpago: Bayern vs. PSG lo tuvo todo**: [Link](https://onefootball.com/en/news/primero-tifo-gigante-y-luego-gol-relampago-bayern-vs-psg-lo-tuvo-todo-41904181)
+
+
+### luis díaz (N/A, Tue, 4 Nov 2025 13:00:00 -0800)
+
+- **'A wasteful finisher?!' - Luis Diaz criticism labelled 'sensational' as ex-Bayern Munich star praises attacker's 'fantastic' work rate**: [Link](https://www.goal.com/en-qa/lists/a-wasteful-finisher-luis-diaz-criticism-labelled-sensational-as-ex-bayern-munich-star-praises-attacker-s-fantastic-work-rate/bltf0dcdd9affad42d1)
+- **Max Eberl defends Luis Diaz after missed chances in Bayern Munich's cup win**: [Link](https://www.sabcsport.com/soccer/news/max-eberl-defends-luis-diaz-after-missed-chances-in-bayern-munich-s-cup-win)
+- **Paris Saint-Germain vs Bayern Munich: Preview & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/266469/paris-saint-germain-vs-bayern-munich-preview-how-to-watch/)
+
+
+### courtois (N/A, Tue, 4 Nov 2025 13:00:00 -0800)
+
+- **Champions League LIVE: Liverpool vs Real Madrid & Tottenham vs Copenhagen, Slavia Prague 0-3 Arsenal - scores**: [Link](https://www.bbc.com/sport/football/live/c20z70vkwr1t)
+- **Clinton Morrison reacts to Liverpool penalty call against Real Madrid**: [Link](https://www.skysports.com/football/video/30998/13463979/clinton-morrison-reacts-to-liverpool-penalty-call-against-real-madrid)
+- **BREAKING: Liverpool get instant new referee penalty verdict after VAR flashpoint vs Real Madrid**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/liverpool-real-madrid-var-penalty-32812982)
+
+
+### match real (N/A, Tue, 4 Nov 2025 13:00:00 -0800)
+
+- **DIRECT. Liverpool-Real Madrid (Ligue des champions 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/liverpool-real-madrid-live/685548)
+- **DIRECT. Liverpool - Real Madrid : suivez le match**: [Link](https://www.linternaute.com/sport/foot/9153976-direct-liverpool-real-madrid-suivez-le-match/)
+- **DIRECT. Liverpool-Real Madrid: Courtois maintient le Real à flot, pas de but à Anfield**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-liverpool-real-madrid-suivez-le-match-de-la-4e-journee-de-ligue-des-champions-avec-kylian-mbappe-en-live_LS-202511040708.html)
+
+
+### psv (N/A, Tue, 4 Nov 2025 13:00:00 -0800)
+
+- **LIVE Champions League: PSV kijkt tegen achterstand aan in Piraeus**: [Link](https://www.telegraaf.nl/sport/voetbal/live-champions-league-psv-kijkt-tegen-achterstand-aan-in-piraeus/102225928.html)
+- **Bosz zet zijn ploeg op scherp: 'Zullen vanaf het begin messcherp moeten zijn'**: [Link](https://www.voetbalprimeur.nl/nieuws/1708788/bosz-voorafgaand-aan-de-wedstrijd.html)
+- **Martins schiet de bal kiezelhard achter PSV-doelman Kovar**: [Link](https://www.ad.nl/videos/productie/martins-schiet-de-bal-kiezelhard-achter-psv-doelman-kovar-1925613)
+
+
+### madrid vs (N/A, Tue, 4 Nov 2025 13:00:00 -0800)
+
+- **Atlético de Madrid - Union Saint-Gilloise hoy, en directo: fase liga de Champions League, en vivo**: [Link](https://as.com/futbol/champions/atletico-union-saint-gilloise-en-directo-champions-league-hoy-en-vivo-f202511-d/)
+- **Atlético - Union Saint-Gilloise en directo: ¡Gol anulado! | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/atletico-union-sg/2025/11/04/01_0103_20251104_175_3235-directo.html)
+- **📈 Delantero del Atleti alcanza hito impresionante con definición experta**: [Link](https://onefootball.com/es/noticias/delantero-del-atleti-alcanza-hito-impresionante-con-definicion-experta-41904353)
+
+
+### hakimi (N/A, Tue, 4 Nov 2025 12:50:00 -0800)
+
+- **Final anticipada en París**: [Link](https://as.com/futbol/champions/final-anticipada-en-paris-f202511-n/)
+- **📸 Primero tifo gigante y luego gol relámpago: Bayern vs. PSG lo tuvo todo**: [Link](https://onefootball.com/en/news/primero-tifo-gigante-y-luego-gol-relampago-bayern-vs-psg-lo-tuvo-todo-41904181)
+- **La defensa de Bayern Munich es un reto para el ataque de PSG**: [Link](https://www.foxdeportes.com/champions-league/nota/la-defensa-de-bayern-munich-es-un-reto-para-el-ataque-de-psg)
+
+
+### liverpool (N/A, Tue, 4 Nov 2025 12:50:00 -0800)
+
+- **Alexander-Arnold mural defaced before Anfield return**: [Link](https://www.bbc.com/sport/football/articles/c5ylv513lgjo)
+- **Trent Alexander-Arnold's Anfield return: Real Madrid right back facing Liverpool only highlights what Reds are missing**: [Link](https://www.skysports.com/football/news/11095/13463228/trent-alexander-arnolds-anfield-return-real-madrid-right-back-facing-liverpool-only-highlights-what-reds-are-missing)
+- **“That’s their right…” – Ex-Chelsea midfielder on likely Anfield reception for Alexander-Arnold**: [Link](https://onefootball.com/pt-br/noticias/thats-their-right-ex-chelsea-midfielder-on-likely-anfield-reception-for-alexander-arnold-41902668)
+
+
 ### bein sport (N/A, Tue, 4 Nov 2025 12:40:00 -0800)
 
 - **Man City's Haaland: I'm 'far off' Messi, Ronaldo levels**: [Link](https://www.espn.com/soccer/story/_/id/46845707/erling-haaland-far-lionel-messi-cristiano-ronaldo)
