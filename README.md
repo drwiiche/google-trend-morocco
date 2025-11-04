@@ -1,3 +1,22 @@
+### slavia praha vs arsenal (N/A, Tue, 4 Nov 2025 09:20:00 -0800)
+
+- **Přijela pouť. A taky nejlepší fotbalový tým planety. Arsenal je obojí**: [Link](https://www.seznamzpravy.cz/clanek/audio-podcast-mvp-prijela-pout-a-taky-nejlepsi-fotbalovy-tym-planety-arsenal-je-oboji-290738)
+- **Pamětník debaklu s Arsenalem Vlček: Ostuda a ponižující zápis do historie**: [Link](https://sport.ceskatelevize.cz/clanek/fotbal/liga-mistru/pametnik-debaklu-s-arsenalem-vlcek-ostuda-a-ponizujici-zapis-do-historie/6908f46f04cd4bad85678286)
+- **Silná zbraň Arsenalu? Londýnský obr umí skvěle rohy a vykazuje z nich obrovskou produktivitu**: [Link](https://www.efotbal.cz/article/fotbal-liga-mistru-silna-zbran-arsenalu-londynsky-obr-umi-skvele-rohy-a-vykazuje-z-nich-obrovskou-produktivitu-d0a953b8-cd1e-4fcc-8562-4cecb97287a6)
+
+
+### سلافيا براغ ضد آرسنال (N/A, Tue, 4 Nov 2025 09:20:00 -0800)
+
+- **أرتيتا عن إصابة نجم آرسنال: أشعر بالقلق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D8%B9%D9%86-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%86%D8%AC%D9%85-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84--%D8%A7%D9%94%D8%B4%D8%B9%D8%B1-%D8%A8%D8%A7%D9%84%D9%82%D9%84%D9%82/blt88bab3dffad8806d)
+- **دوري أبطال أوروبا: أرسنال يخسر يوكيريس وأرتيتا متخوف من حجم الإصابة**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251103-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%AE%D8%B3%D8%B1-%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3-%D9%88%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%85%D8%AA%D8%AE%D9%88%D9%81-%D9%85%D9%86-%D8%AD%D8%AC%D9%85-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9)
+- **التشكيل المتوقع لفريقي أرسنال وسلافيا براغ في دوري الأبطال**: [Link](https://www.arrajol.com/content/387887/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%B3%D9%84%D8%A7%D9%81%D9%8A%D8%A7-%D8%A8%D8%B1%D8%A7%D8%BA-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+
+
+### naples – eintracht francfort (N/A, Tue, 4 Nov 2025 09:10:00 -0800)
+
+
+
+
 ### slavia prague – arsenal (N/A, Tue, 4 Nov 2025 09:00:00 -0800)
 
 - **Possible lineups for Slavia Prague v Arsenal!**: [Link](https://www.besoccer.com/new/live-slavia-prague-v-arsenal-1379903)
