@@ -1,3 +1,17 @@
+### champions league 2025 (N/A, Tue, 4 Nov 2025 14:00:00 -0800)
+
+- **Alexander-Arnold mural defaced before Anfield return**: [Link](https://www.bbc.com/sport/football/articles/c5ylv513lgjo)
+- **Trent Alexander-Arnold's Anfield return: Real Madrid right back facing Liverpool only highlights what Reds are missing**: [Link](https://www.skysports.com/football/news/11095/13463228/trent-alexander-arnolds-anfield-return-real-madrid-right-back-facing-liverpool-only-highlights-what-reds-are-missing)
+- **“That’s their right…” – Ex-Chelsea midfielder on likely Anfield reception for Alexander-Arnold**: [Link](https://onefootball.com/pt-br/noticias/thats-their-right-ex-chelsea-midfielder-on-likely-anfield-reception-for-alexander-arnold-41902668)
+
+
+### كووورة (N/A, Tue, 4 Nov 2025 13:50:00 -0800)
+
+- **أشرف حكيمي يتعرض لإصابة "خطيرة"**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AE%D8%B7%D9%8A%D8%B1%D8%A9-1650873.html)
+- **بكاء بحرقة.. أشرف حكيمي يغادر مباراة بايرن بإصابة مأساوية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%83%D8%A7%D8%A1-%D8%A8%D8%AD%D8%B1%D9%82%D8%A9--%D8%A7%D9%94%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A8%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A7%D9%94%D8%B3%D8%A7%D9%88%D9%8A%D8%A9/blte5aaff0dce760314)
+- **حكيمي يتعرض لإصابة "خطيرة" في الكاحل ويغادر مباراة باريس سان جيرمان أمام بايرن ميونخ باكيًا**: [Link](https://m.elbotola.com/article/2025-11-04-21-12-753.html)
+
+
 ### botola (N/A, Tue, 4 Nov 2025 13:10:00 -0800)
 
 - **Botola Pro: Raja find late goal in victory**: [Link](https://www.panafricafootball.com/post/botola-pro-raja-find-late-goal/)
