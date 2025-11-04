@@ -1,3 +1,10 @@
+### classement ligue des champions (N/A, Tue, 4 Nov 2025 14:10:00 -0800)
+
+- **Ligue des champions: la Juventus patine, Tottenham et l'Atlético de Madrid assument leur statut de favori**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-ligue-des-champions-slavia-prague-arsenal-naples-francfort-juventus-sporting-suivez-en-live-le-multiplex-du-4-novembre_LS-202511040697.html)
+- **C1 : le PSG et la Juve douchés d'entrée**: [Link](https://onefootball.com/fr/news/c1-le-psg-et-la-juve-douches-dentree-41903050)
+- **LdC : les résultats de la soirée**: [Link](https://m.maxifoot.fr/ligue-champions/les-resultats-de-la-soiree-foot-444048.htm)
+
+
 ### classement champions league (N/A, Tue, 4 Nov 2025 14:00:00 -0800)
 
 - **Meilleurs buteurs de la Champions League : Harry Kane et Kylian Mbappé**: [Link](https://fr.uefa.com/uefachampionsleague/news/029d-1ec16c7a3c1e-1177ca046900-1000--meilleurs-buteurs-de-la-champions-league-harry-kane-et-kyl/)
