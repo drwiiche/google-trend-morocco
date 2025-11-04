@@ -1,3 +1,24 @@
+### tottenham – copenhague (N/A, Tue, 4 Nov 2025 11:30:00 -0800)
+
+- **Thomas Frank offers major injury news on Tottenham's most important player vs. Copenhagen**: [Link](https://hotspurhq.com/thomas-frank-offers-major-injury-news-on-tottenham-s-most-important-player-vs-copenhagen-01k9615f3wmg)
+- **Three key missing stars from Tottenham training, Mohammed Kudus mystery and happy Maddison moment**: [Link](https://www.football.london/tottenham-hotspur-fc/news/three-key-missing-stars-tottenham-32802399)
+- **Confirmed line-ups for Spurs vs Copenhagen in the Champions League on Tuesday 4 November**: [Link](https://www.tottenhamhotspur.com/news/2025/november/confirmed-line-ups-spurs-vs-copenhagen-uefa-champions-league/)
+
+
+### olympiakos – psv eindhoven (N/A, Tue, 4 Nov 2025 11:30:00 -0800)
+
+- **Olympiacos v PSV Eindhoven – How to Watch & Score Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266453/olympiacos-v-psv-eindhoven-how-to-watch-score-prediction/)
+- **Olympiacos vs PSV LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/04/1240116-olympiacos-vs-psv-live-score-champions-league.html)
+- **How to watch today's Olympiacos vs PSV Eindhoven UEFA Champions League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/live-stream-online-tv-where-to-watch-olympiacos-v-psv-eindhoven/blt385d00da76cc0c0b)
+
+
+### napoli vs eintracht frankfurt (N/A, Tue, 4 Nov 2025 11:30:00 -0800)
+
+- **Champions League line-ups: Napoli vs. Eintracht Frankfurt**: [Link](https://football-italia.net/champions-league-napoli-eintracht-frankfurt-2/)
+- **´All we hear is criticism´ – Conte slams scrutiny on Napoli**: [Link](https://www.soccernews.com/all-we-hear-is-criticism-conte-slams-scrutiny-on-napoli/391765/)
+- **(LIVE~UpDaTeS) Napoli vs Frankfurt LIVE STREA.Ms FREE UEFA Champions League**: [Link](https://www.timminstoday.com/classifieds/announcements-and-events/congratulations-and-thank-yous/2045922)
+
+
 ### بي اس جي ضد البايرن (N/A, Tue, 4 Nov 2025 11:20:00 -0800)
 
 - **موعد مباراة سان جيرمان ضد بايرن ميونخ بدوري الأبطال والتشكيلتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/3/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B6%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE)
