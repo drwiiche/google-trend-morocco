@@ -1,3 +1,10 @@
+### real madrid cf (N/A, Tue, 4 Nov 2025 13:50:00 -0800)
+
+- **Real Madrid player ratings vs Liverpool: Kylian Mbappe and Jude Bellingham have rare off-days while Thibaut Courtois' heroics go to waste as Blancos lose perfect Champions League record**: [Link](https://au.sports.yahoo.com/real-madrid-player-ratings-vs-200119872.html)
+- **Virgil van Dijk hails ‘outstanding’ Real Madrid star after UCL clash**: [Link](https://getfootballnewsspain.com/virgil-van-dijk-hails-outstanding-real-madrid-star-after-ucl-clash/)
+- **Photo: Virgil van Dijk left shocked by Real Madrid star’s brilliance**: [Link](https://getfootballnewsspain.com/photo-virgil-van-dijk-left-shocked-by-real-madrid-stars-brilliance/)
+
+
 ### classement ligue des champions (N/A, Tue, 4 Nov 2025 14:10:00 -0800)
 
 - **Ligue des champions: la Juventus patine, Tottenham et l'Atlético de Madrid assument leur statut de favori**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-ligue-des-champions-slavia-prague-arsenal-naples-francfort-juventus-sporting-suivez-en-live-le-multiplex-du-4-novembre_LS-202511040697.html)
