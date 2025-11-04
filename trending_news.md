@@ -1,3 +1,10 @@
+### almountakhab (N/A, Tue, 4 Nov 2025 14:40:00 -0800)
+
+- **لوزا يواصل التألق مع واتفورد ويهز الشباك في المباراة الرابعة على التوالي بهدف في مرمى إبسويتش تاون**: [Link](https://m.elbotola.com/article/2025-11-04-20-54-89.html)
+- **لوزا في " الطوب" ومعما شارك تعادل واتفورد في تشامبيون تشيب**: [Link](https://www.almountakhab.com/node/16219282)
+- **عمران لوزا لا يتوقف عن الإبهار... هدف رابع توالياً يقرّبه من "الكان"**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%85%D8%B1%D8%A7%D9%86-%D9%84%D9%88%D8%B2%D8%A7-%D9%84%D8%A7-%D9%8A%D8%AA%D9%88%D9%82%D9%81-%D8%B9%D9%86-%D8%A7%D9%84%D8%A5%D8%A8%D9%87%D8%A7%D8%B1-%D9%87%D8%AF%D9%81-%D8%B1%D8%A7%D8%A8%D8%B9-%D8%AA%D9%88%D8%A7%D9%84%D9%8A%D8%A7-%D9%8A%D9%82%D8%B1%D8%A8%D9%87-%D9%85%D9%86-%D8%A7%D9%84%D9%83%D8%A7%D9%86/11227)
+
+
 ### real madrid cf (N/A, Tue, 4 Nov 2025 13:50:00 -0800)
 
 - **Real Madrid player ratings vs Liverpool: Kylian Mbappe and Jude Bellingham have rare off-days while Thibaut Courtois' heroics go to waste as Blancos lose perfect Champions League record**: [Link](https://au.sports.yahoo.com/real-madrid-player-ratings-vs-200119872.html)
