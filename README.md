@@ -1,3 +1,10 @@
+### أتلتيكو مدريد ضد سانت خيلويزي (N/A, Tue, 4 Nov 2025 11:40:00 -0800)
+
+- **سيميوني يطالب بهزم سانت جيلواز**: [Link](https://www.hesport.com/%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D9%87%D8%B2%D9%85-%D8%B3%D8%A7%D9%86%D8%AA-%D8%AC%D9%8A%D9%84%D9%88%D8%A7%D8%B2-411027.html)
+- **بث مباشر بجودة عالية 4k..مشاهدة مباراة أتلتيكو مدريد ضد يونيون سانت جيلواز على ملعب الروخي بلانكوس**: [Link](https://www.almashhad.news/351164)
+- **بث مباشر.. مشاهدة مباراة أتلتيكو مدريد وسانت خيلويزي في دوري أبطال أوروبا**: [Link](https://www.khaligyoun.com/597003/)
+
+
 ### tottenham – copenhague (N/A, Tue, 4 Nov 2025 11:30:00 -0800)
 
 - **Thomas Frank offers major injury news on Tottenham's most important player vs. Copenhagen**: [Link](https://hotspurhq.com/thomas-frank-offers-major-injury-news-on-tottenham-s-most-important-player-vs-copenhagen-01k9615f3wmg)
