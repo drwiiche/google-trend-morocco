@@ -1,3 +1,10 @@
+### classement champions league (N/A, Tue, 4 Nov 2025 14:00:00 -0800)
+
+- **Meilleurs buteurs de la Champions League : Harry Kane et Kylian Mbappé**: [Link](https://fr.uefa.com/uefachampionsleague/news/029d-1ec16c7a3c1e-1177ca046900-1000--meilleurs-buteurs-de-la-champions-league-harry-kane-et-kyl/)
+- **Touché à la cheville gauche, Achraf Hakimi sort en pleurs lors de PSG - Bayern Munich**: [Link](https://www.lequipe.fr/Football/Actualites/Touche-a-la-cheville-gauche-achraf-hakimi-sort-en-pleurs-lors-de-psg-bayern-munich/1607305)
+- **Va-t-il manquer la CAN? Le Maroc "retient son souffle" après la sortie sur blessure d'Hakimi avec le PSG**: [Link](https://rmcsport.bfmtv.com/football/clubs/paris-saint-germain/va-t-il-manquer-la-can-le-maroc-retient-son-souffle-apres-la-sortie-sur-blessure-d-hakimi-avec-le-psg_AV-202511041001.html)
+
+
 ### champions league 2025 (N/A, Tue, 4 Nov 2025 14:00:00 -0800)
 
 - **Alexander-Arnold mural defaced before Anfield return**: [Link](https://www.bbc.com/sport/football/articles/c5ylv513lgjo)
