@@ -1,3 +1,10 @@
+### madrid vs liverpool (N/A, Tue, 4 Nov 2025 09:00:00 -0800)
+
+- **Liverpool - Real Madrid, en directo: última hora de la Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/liverpool-real-madrid-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202511-d/)
+- **Huijsen se enciende: "Habéis hecho mucho lío de algo que no era para tanto"**: [Link](https://www.sport.es/es/noticias/real-madrid/sigue-directo-rueda-prensa-xabi-123319847)
+- **Virgil van Dijk: Estas son las noches por las que vives como jugador**: [Link](https://www.liverpoolfc.com/es/news/virgil-van-dijk-these-are-nights-you-live-player)
+
+
 ### al ittihad – al sharjah (N/A, Tue, 4 Nov 2025 09:40:00 -0800)
 
 
