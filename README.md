@@ -1,3 +1,17 @@
+### slavia prague – arsenal (N/A, Tue, 4 Nov 2025 09:00:00 -0800)
+
+- **Possible lineups for Slavia Prague v Arsenal!**: [Link](https://www.besoccer.com/new/live-slavia-prague-v-arsenal-1379903)
+- **Arsenal braced for Bayern Munich suspension blow as huge Mikel Arteta worry clear**: [Link](https://www.football.london/arsenal-fc/news/arsenal-champions-league-bayern-munich-32803972)
+- **UEFA Rule Leaves Arsenal Star at Risk of Champions League Ban**: [Link](https://www.sportbible.com/football/football-news/arsenal/champions-league-slavia-prague-uefa-rule-ban-suspended-382427-20251103)
+
+
+### france visa (N/A, Tue, 4 Nov 2025 00:40:00 -0800)
+
+- **La Chine prolonge jusqu’au 31 décembre 2026 sa politique d’exemption de visa pour la France et d’autres pays**: [Link](https://visasnews.com/la-chine-prolonge-jusquau-31-decembre-2026-sa-politique-dexemption-de-visa-pour-la-france-et-dautres-pays/)
+- **Le visa Chinois s’ouvre sur le monde : Pékin affine sa diplomatie des passeports**: [Link](https://www.linfodrome.com/international/115182-le-visa-chinois-s-ouvre-sur-le-monde-pekin-affine-sa-diplomatie-des-passeports)
+- **La France rejoint le Danemark, l'Australie, la Hongrie, le Brésil, l'Arabie saoudite, le Japon et trente-huit autres pays ayant prolongé le programme d'entrée sans visa en Chine, ouvrant ainsi de nouvelles perspectives aux visiteurs.**: [Link](https://www.travelandtourworld.fr/news/article/france-joins-denmark-australia-hungary-brazil-saudi-arabia-japan-and-other-thirty-eight-countries-in-china-extended-visa-free-entry-program-opening-new-pathways-for-visitors/)
+
+
 ### al sadd – al-ahli saudi (N/A, Tue, 4 Nov 2025 07:50:00 -0800)
 
 - **Al Sadd vs Al Ahli Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-sadd-vs-al-ahli-preview-202511)
