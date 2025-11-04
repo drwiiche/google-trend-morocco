@@ -1,3 +1,17 @@
+### caf champions league (N/A, Tue, 4 Nov 2025 05:20:00 -0800)
+
+- **Pyramids and Berkane set for blockbuster reunion following TotalEnergies CAF Champions League Group Stage draw**: [Link](https://www.cafonline.com/caf-champions-league/news/pyramids-and-berkane-set-for-blockbuster-reunion-following-totalenergies-caf-champions-league-group-stage-draw/)
+- **CAF Champions League & Confederation Cup Draw: Who are the Major Group Stage Rivals?**: [Link](https://www.moroccoworldnews.com/2025/11/266361/caf-champions-league-confederation-cup-draw-who-are-the-major-group-stage-rivals/)
+- **Sundowns set to face Rulani Mokwena's MC Alger In CAFCL**: [Link](https://foot-africa.com/en/news/sundowns-set-to-face-rulani-mokwenas-mc-alger-in-cafcl-945440/)
+
+
+### cnss (N/A, Tue, 4 Nov 2025 01:40:00 -0800)
+
+- **مواطنون بالناظور يحتجون على ضعف تعويضات المرض ويطالبون بمراجعة طريقة احتساب المستحقات**: [Link](https://amnous.net/?p=189029)
+- **تحت إشراف CNSS.. المغرب يحقق خطوة حاسمة نحو التغطية الصحية للجميع**: [Link](https://www.mcg24.com/196392-%D8%AA%D8%AD%D8%AA-%D8%A5%D8%B4%D8%B1%D8%A7%D9%81-cnss-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AD%D9%82%D9%82-%D8%AE%D8%B7%D9%88%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%86%D8%AD%D9%88-%D8%A7%D9%84%D8%AA%D8%BA%D8%B7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%84%D8%AC%D9%85%D9%8A%D8%B9)
+- **اقتصاد | CNSS يصرف 8.33 ملايير درهم على تعويضات المرض**: [Link](https://www.alousboue.ma/126034/)
+
+
 ### real madrid vs liverpool (N/A, Tue, 4 Nov 2025 04:20:00 -0800)
 
 - **Liverpool vs Real Madrid – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266482/liverpool-vs-real-madrid-match-preview-prediction/)
