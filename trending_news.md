@@ -1,3 +1,38 @@
+### ليفربول ضد الريال (N/A, Tue, 4 Nov 2025 11:10:00 -0800)
+
+- **الذكاء الاصطناعي يتوقع نتيجة قمة ليفربول وريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%82%D9%85%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/bltd0fde2db06e240df)
+- **ليفربول يستضيف ريال مدريد في مواجهة شيقة ومرتقبة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B4%D9%8A%D9%82%D8%A9-%D9%88%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-2025-11-04)
+- **التشكيلة المتوقعة.. ألونسو يفضل إشراك كامافينغا أساسيا ضد ليفربول بدلًا من دياز رغم غياب ماستانتونو**: [Link](https://m.elbotola.com/article/2025-11-04-10-26-853.html)
+
+
+### paris-sg – bayern (N/A, Tue, 4 Nov 2025 11:10:00 -0800)
+
+- **PSG-Bayern Munich, ça chauffe avant le match !**: [Link](https://www.football.fr/psg/psg-bayern-munich-ca-chauffe-avant-le-match-782673.html)
+- **Paris Saint-Germain vs Bayern Munich: Preview & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/266469/paris-saint-germain-vs-bayern-munich-preview-how-to-watch/)
+- **PSG Star Vitinha Fires Indirect Message to Barcelona, Real Madrid**: [Link](https://onefootball.com/fr/news/psg-star-vitinha-fires-indirect-message-to-barcelona-real-madrid-41900040)
+
+
+### atlético madrid – union saint-gilloise (N/A, Tue, 4 Nov 2025 11:10:00 -0800)
+
+- **Diego Simeone on Griezmann, Barrios and squad management**: [Link](https://www.intothecalderon.com/atletico-madrid-quotes/18866/diego-simeone-champions-league-press-conference-atletico-madrid-union-saint-gilloise-griezmann-baena-barrios)
+- **🚨Starting XI announced: Barrios returns to Atlético’s line-up**: [Link](https://ca.sports.yahoo.com/news/starting-xi-announced-barrios-returns-185900176.html)
+- **Simeone: Atletico motivated for Champions League battle**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/simeone-atletico-motivated-for-champions-league-battle-2025-11-03)
+
+
+### الرجاء ضد الكوكب (N/A, Tue, 4 Nov 2025 11:10:00 -0800)
+
+- **تشكيلة الرجاء ضد ك. المراكشي.. حضور أساسي لمقدم وضحاك يقود الهجوم رفقة خافي وولد الشيخ**: [Link](https://m.elbotola.com/article/2025-11-04-18-26-839.html)
+- **الرجاء يستقبل الكوكب بشبابيك مغلقة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A8%D8%B4%D8%A8%D8%A7%D8%A8%D9%8A%D9%83-%D9%85%D8%BA%D9%84%D9%82%D8%A9-1650498.html)
+- **ما القنوات الناقلة لمباراة الرجاء والكوكب المراكشي في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt32e8fd7d37c3b8a0)
+
+
+### liverpool – real madrid (N/A, Tue, 4 Nov 2025 09:50:00 -0800)
+
+- **Liverpool vs Real Madrid: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cg7nd3gpj8yt)
+- **Liverpool vs Real Madrid – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266482/liverpool-vs-real-madrid-match-preview-prediction/)
+- **Real Madrid’s English struggles: Only one win in last five visits to England**: [Link](https://www.besoccer.com/new/real-madrid-rsquo-s-english-struggles-only-one-win-in-last-five-visits-to-england-1379882)
+
+
 ### napoli (N/A, Tue, 4 Nov 2025 10:50:00 -0800)
 
 - **Champions League, oggi Napoli-Eintracht Francoforte - La partita in diretta**: [Link](https://www.adnkronos.com/sport/diretta-napoli-eintracht-francoforte-oggi-champions-league-live-risultato-aggiornamenti_6GLsM8ZbuxGD1VD0nTEns0)
