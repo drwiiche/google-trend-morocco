@@ -1,3 +1,10 @@
+### dick cheney (N/A, Tue, 4 Nov 2025 06:20:00 -0800)
+
+- **Dick Cheney, the controversial power behind the Bush throne, dead at 84**: [Link](https://www.aljazeera.com/news/2025/11/4/dick-cheney-the-controversial-power-behind-the-bush-throne-dead-at-84)
+- **Ex-Bush aide praises torture as 'the right thing' in glowing account of Dick Cheney**: [Link](https://www.rawstory.com/dick-cheney-2674263060/)
+- **‘Country over party’: How Dick Cheney helped Liz Cheney stand up to Donald Trump**: [Link](https://www.cnn.com/2025/11/04/politics/liz-cheney-trump-dick-cheney)
+
+
 ### caf champions league (N/A, Tue, 4 Nov 2025 05:20:00 -0800)
 
 - **Pyramids and Berkane set for blockbuster reunion following TotalEnergies CAF Champions League Group Stage draw**: [Link](https://www.cafonline.com/caf-champions-league/news/pyramids-and-berkane-set-for-blockbuster-reunion-following-totalenergies-caf-champions-league-group-stage-draw/)
