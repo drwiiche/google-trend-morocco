@@ -1,3 +1,31 @@
+### arsenal (N/A, Tue, 4 Nov 2025 10:20:00 -0800)
+
+- **Arsenal hopeful of Viktor Gyokeres, Gabriel Martinelli returns for north London derby - The Athletic**: [Link](https://www.nytimes.com/athletic/6776172/2025/11/04/arsenal-gyokeres-martinelli-injury-update/)
+- **Arsenal press conference: Mikel Arteta on Slavia Prague, Gyokeres, Zubimendi and team news**: [Link](https://www.football.london/arsenal-fc/news/arsenal-press-conference-live-mikel-32802407)
+- **Arsenal's Injury Crisis Hits Forwards Ahead of Champions League Tie with Slavia Prague**: [Link](https://x.com/i/trending/1985685830531211694)
+
+
+### novak djokovic (N/A, Tue, 4 Nov 2025 10:20:00 -0800)
+
+- **Why is Novak Djokovic playing a lower ranking tournament in Greece?**: [Link](https://www.tennis365.com/tennis-news/novak-djokovic-atpfinals-decision-playing-greece)
+- **Novak Djokovic's ATP Finals Plans Leaked and Retirement Issue Reopened**: [Link](https://www.si.com/onsi/serve/news/novak-djokovic-atp-finals-plans-leaked-retirement-issue-reopened)
+- **“I don’t think Novak’s playing”: John Isner predicts Djokovic will skip ATP Finals – Querrey disagrees**: [Link](https://tennisuptodate.com/atp/i-dont-think-novaks-playing-john-isner-predicts-djokovic-will-skip-atp-finals-querrey-disagrees)
+
+
+### عيد الوحدة (N/A, Tue, 4 Nov 2025 09:40:00 -0800)
+
+- **الملك يقرر جعل 31 أكتوبر من كل سنة عيدا وطنيا تحت إسم "عيد الوحدة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D9%82%D8%B1%D8%B1-%D8%AC%D8%B9%D9%84-31-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D9%85%D9%86-%D9%83%D9%84-%D8%B3%D9%86%D8%A9-%D8%B9%D9%8A%D8%AF%D8%A7-%D9%88%D8%B7-1650571.html)
+- **العاهل المغربي يعلن يوم مصادقة مجلس الأمن على قرار الصحراء عيدا وطنيا باسم "عيد الوحدة"**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%B9%D8%A7%D9%87%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%8A%D9%88%D9%85-%D9%85%D8%B5%D8%A7%D8%AF%D9%82%D8%A9-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84/)
+- **جلالة الملك يجعل من 31 أكتوبر مناسبة لإصدار العفو الملكي - تليكسبريس**: [Link](https://telexpresse.com/434308.html)
+
+
+### psg vs bayern (N/A, Tue, 4 Nov 2025 09:30:00 -0800)
+
+- **Paris Saint-Germain vs Bayern Munich: Preview & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/266469/paris-saint-germain-vs-bayern-munich-preview-how-to-watch/)
+- **PSG Star Vitinha Fires Indirect Message to Barcelona, Real Madrid**: [Link](https://onefootball.com/fr/news/psg-star-vitinha-fires-indirect-message-to-barcelona-real-madrid-41900040)
+- **Joshua Kimmich hails Bayern Munich’s team spirit**: [Link](https://www.bavarianfootballworks.com/general/146512/joshua-kimmich-hails-bayern-munich-s-team-spirit)
+
+
 ### madrid vs liverpool (N/A, Tue, 4 Nov 2025 09:00:00 -0800)
 
 - **Liverpool - Real Madrid, en directo: última hora de la Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/liverpool-real-madrid-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202511-d/)
