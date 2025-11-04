@@ -1,3 +1,45 @@
+### bein sport (N/A, Tue, 4 Nov 2025 12:40:00 -0800)
+
+- **Man City's Haaland: I'm 'far off' Messi, Ronaldo levels**: [Link](https://www.espn.com/soccer/story/_/id/46845707/erling-haaland-far-lionel-messi-cristiano-ronaldo)
+- **Erling Haaland: Pep Guardiola Makes Bold Messi, Ronaldo Comparison After Bournemouth Win**: [Link](https://www.si.com/soccer/erling-haaland-pep-guardiola-bold-messi-ronaldo-comparison-bournemouth)
+- **Erling Haaland says he is ‘not at all’ close to Lionel Messi-Cristiano Ronaldo level - The Athletic**: [Link](https://www.nytimes.com/athletic/6776646/2025/11/04/erling-haaland-messi-ronaldo/)
+
+
+### flashscore (N/A, Tue, 4 Nov 2025 12:40:00 -0800)
+
+- **ACLE REPORT: Machida Zelvia 1-2 City**: [Link](https://melbournecityfc.com.au/news/20251104-acle-report/)
+- **Melbourne City to face Socceroos striker in crucial ACL Elite clash TONIGHT**: [Link](https://aleagues.com.au/news/melbourne-city-to-face-socceroos-striker-in-crucial-acl-elite-clash-tonight/)
+- **Melbourne City move into Champions League top-eight with another last-gasp winner**: [Link](https://www.flashscore.com/news/soccer-afc-champions-league-melbourne-city-move-into-champions-league-top-eight-with-another-last-gasp-winner/6yUiO4Th/)
+
+
+### juventus (N/A, Tue, 4 Nov 2025 12:40:00 -0800)
+
+- **Juve, la formazione ufficiale di Spalletti con lo Sporting Lisbona**: [Link](https://www.tuttosport.com/foto/calcio/serie-a/juventus/2025/11/04-144297303/juve_la_formazione_ufficiale_di_spalletti_con_lo_sporting_lisbona)
+- **UCL | Le formazioni ufficiali di Juventus-Sporting CP**: [Link](https://www.juventus.com/it/news/articoli/ucl-2025-2026-league-phase-juventus-sporting-cp-formazioni)
+- **Champions, oggi Juventus-Sporting Lisbona 0-1 – La partita in diretta**: [Link](https://www.sulpanaro.net/2025/11/champions-oggi-juventus-sporting-lisbona-0-1-la-partita-in-diretta/)
+
+
+### sir live (N/A, Tue, 4 Nov 2025 12:40:00 -0800)
+
+- **Why India’s Trishul Hurt Pakistan: Decoding DG ISPR’s ‘Stronger Response’ Remark | Exclusive**: [Link](https://www.news18.com/india/hurt-by-indias-trishul-pakistan-vows-stronger-response-decoding-dg-isprs-remarks-exclusive-ws-kl-9677878.html)
+- **Drones track 'enemy hideouts' near Rajasthan border: T-90 tanks, Rafales, UAVs in action as India’s largest...**: [Link](https://www.bhaskarenglish.in/local/rajasthan/news/t-90-tanks-rafales-uavs-in-action-as-indias-largest-military-drill-trishul-unfolds-in-thar-desert-136332751.html)
+- **War Deployment Drill**: [Link](https://dailytimes.com.pk/1395183/war-deployment-drill/)
+
+
+### paris (N/A, Tue, 4 Nov 2025 12:40:00 -0800)
+
+- **TikTok : le parquet de Paris ouvre une enquête sur l’algorithme de l’application, accusé de pousser les jeunes les plus « vulnérables vers le suicide »**: [Link](https://www.lemonde.fr/pixels/article/2025/11/04/tiktok-le-parquet-de-paris-ouvre-une-enquete-sur-l-algorithme-de-l-application-accuse-de-pousser-les-jeunes-les-plus-vulnerables-vers-le-suicide_6651945_4408996.html)
+- **TikTok fait-il la promotion du suicide ?**: [Link](https://www.lalibre.be/international/europe/2025/11/04/tiktok-fait-il-la-promotion-du-suicide-MQEWPPQB25FGDJ5TBI5NRKCMO4/)
+- **TikTok sous le feu des investigations judiciaires pour mise en danger des utilisateurs**: [Link](https://lesinguliersete.fr/tiktok-sous-le-feu-des-investigations-judiciaires-pour-mise-en-danger-des-utilisateurs/)
+
+
+### real madrid vs liverpool live (N/A, Tue, 4 Nov 2025 12:20:00 -0800)
+
+- **Champions League LIVE: Liverpool vs Real Madrid & Tottenham vs Copenhagen, Slavia Prague 0-3 Arsenal - scores**: [Link](https://www.bbc.com/sport/football/live/c20z70vkwr1t)
+- **Liverpool vs Real Madrid: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cg7nd3gpj8yt)
+- **Liverpool vs Real Madrid – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266482/liverpool-vs-real-madrid-match-preview-prediction/)
+
+
 ### real madrid (N/A, Tue, 4 Nov 2025 12:30:00 -0800)
 
 - **Liverpool - Real Madrid hoy, en directo: fase liga de Champions League, última hora en vivo**: [Link](https://as.com/futbol/champions/liverpool-real-madrid-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202511-d/)
