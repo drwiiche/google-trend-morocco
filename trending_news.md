@@ -1,3 +1,10 @@
+### real madrid vs liverpool (N/A, Tue, 4 Nov 2025 04:20:00 -0800)
+
+- **Liverpool vs Real Madrid – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266482/liverpool-vs-real-madrid-match-preview-prediction/)
+- **Real Madrid’s English struggles: Only one win in last five visits to England**: [Link](https://www.besoccer.com/new/real-madrid-rsquo-s-english-struggles-only-one-win-in-last-five-visits-to-england-1379882)
+- **Liverpool’s greatest individual midfield performances vs Real Madrid**: [Link](https://rushthekop.com/liverpool-s-greatest-individual-midfield-performances-vs-real-madrid)
+
+
 ### black friday (N/A, Tue, 4 Nov 2025 04:00:00 -0800)
 
 - **Black Friday 2025: Epic early deals from Amazon, Walmart and Target, plus everything we know about the biggest sale of the season**: [Link](https://www.yahoo.com/lifestyle/deals/article/black-friday-2025-epic-early-deals-from-amazon-walmart-and-target-plus-everything-we-know-about-the-biggest-sale-of-the-season-161537110.html)
