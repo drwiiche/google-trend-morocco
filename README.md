@@ -1,3 +1,10 @@
+### black friday (N/A, Tue, 4 Nov 2025 04:00:00 -0800)
+
+- **Black Friday 2025: Epic early deals from Amazon, Walmart and Target, plus everything we know about the biggest sale of the season**: [Link](https://www.yahoo.com/lifestyle/deals/article/black-friday-2025-epic-early-deals-from-amazon-walmart-and-target-plus-everything-we-know-about-the-biggest-sale-of-the-season-161537110.html)
+- **Black Friday 2025: The best early tech deals on Apple, Shark, Lego and other gear, plus what to expect during the sale**: [Link](https://www.engadget.com/deals/black-friday-2025-the-best-early-tech-deals-on-apple-shark-lego-and-other-gear-plus-what-to-expect-during-the-sale-100052983.html)
+- **Amazon's 2025 holiday sale is live – 33 pre-Black Friday deals from Apple, Ninja, Dyson, LG, Keurig, and Shark**: [Link](https://www.techradar.com/seasonal-sales/amazons-2025-holiday-sale-is-live-33-pre-black-friday-deals-from-apple-ninja-dyson-lg-keurig-and-shark)
+
+
 ### caf afrique (N/A, Tue, 4 Nov 2025 01:00:00 -0800)
 
 - **Pyramids et Berkane se retrouvent pour un choc XXL après le tirage de la phase de groupes de la TotalEnergies CAF Ligue des Champions**: [Link](https://www.cafonline.com/fr/ligue-des-champions/news/pyramids-et-berkane-se-retrouvent-pour-un-choc-xxl-apres-le-tirage-de-la-phase-de-groupes-de-la-totalenergies-caf-ligue-des-champions/)
