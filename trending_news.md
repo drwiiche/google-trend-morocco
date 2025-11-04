@@ -1,3 +1,17 @@
+### napoli (N/A, Tue, 4 Nov 2025 10:50:00 -0800)
+
+- **Champions League, oggi Napoli-Eintracht Francoforte - La partita in diretta**: [Link](https://www.adnkronos.com/sport/diretta-napoli-eintracht-francoforte-oggi-champions-league-live-risultato-aggiornamenti_6GLsM8ZbuxGD1VD0nTEns0)
+- **Il pullman del Napoli entra al Maradona, i tifosi cantano: “Devi vincere!”**: [Link](https://www.corrieredellosport.it/video/calcio/champions-league/2025/11/04-144310888/il_pullman_del_napoli_entra_al_maradona_i_tifosi_cantano_devi_vincere_)
+- **Calcio Live News: in campo Napoli-Eintracht (0-0) e Slavia-Arsenal (0-1)**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-napoli-eintracht-0-0-e-slavia-arsenal-0-1/2o8mLIZ7/)
+
+
+### raja casablanca – kawkab marrakech (N/A, Tue, 4 Nov 2025 10:20:00 -0800)
+
+- **Le Raja reçoit le Kawkab Marrakech en quête d'une place de leader provisoire avant la fermeture du complexe Mohammed V**: [Link](https://m.elbotola.com/fr/article/2025-11-04-10-35-110.html)
+- **Raja-KACM: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/botola/raja-kacm-a-quelle-heure-et-sur-quelle-chaine_PQBCKH7BNRAATCEUSWREMGXNBE/)
+- **CAN 2025 : le Complexe Mohammed V fermera ses portes à partir du 5 novembre pour travaux préparatoires**: [Link](https://industries.ma/can-2025-le-complexe-mohammed-v-fermera-ses-portes-a-partir-du-5-novembre-pour-travaux-preparatoires/)
+
+
 ### arsenal (N/A, Tue, 4 Nov 2025 10:20:00 -0800)
 
 - **Arsenal hopeful of Viktor Gyokeres, Gabriel Martinelli returns for north London derby - The Athletic**: [Link](https://www.nytimes.com/athletic/6776172/2025/11/04/arsenal-gyokeres-martinelli-injury-update/)
