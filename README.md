@@ -1,3 +1,10 @@
+### mac allister (N/A, Tue, 4 Nov 2025 14:30:00 -0800)
+
+- **Le Real Madrid veut signer ces deux champions du monde argentins**: [Link](https://www.sport.fr/football/le-real-madrid-veut-signer-ces-deux-champions-du-monde-argentins-1367469.shtm)
+- **Liverpool : Mac Allister au Real Madrid ? Son père déballe tout**: [Link](https://foot11.com/news/liverpool-mac-allister-au-real-madrid-son-pere-deballe-tout-915014)
+- **Liverpool 1-0 Real Madrid, Ligue des champions : résumé du match (04/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/liverpool-real-madrid-live/685548)
+
+
 ### hihi2 (N/A, Tue, 4 Nov 2025 14:20:00 -0800)
 
 
