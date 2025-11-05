@@ -1,3 +1,24 @@
+### man city vs dortmund (N/A, Wed, 5 Nov 2025 11:40:00 -0800)
+
+- **Manchester City vs Borussia Dortmund – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266627/manchester-city-vs-borussia-dortmund-match-preview-prediction/)
+- **Erling Haaland: Premier League's runaway top scorer returns to face old club as true master**: [Link](https://www.thenationalnews.com/sport/football/2025/11/05/erling-haaland-premier-league-goals-borussia-dortmund/)
+- **UEFA Champions League – the ticker for the trip to Manchester**: [Link](https://onefootball.com/pt-br/noticias/uefa-champions-league-the-ticker-for-the-trip-to-manchester-41906451)
+
+
+### pafos fc (N/A, Wed, 5 Nov 2025 11:40:00 -0800)
+
+- **Pafos 1-0 Villarreal: Hosts claim historic first Champions League win**: [Link](https://www.bbc.com/sport/football/live/c2kppg4n95wt)
+- **Cyprus Soccer Champions League**: [Link](https://www.wvnews.com/sports/pro/cyprus-soccer-champions-league/image_382ed9ee-d1bd-549d-b987-aa0a6d875a41.html)
+- **Where to stream Pafos vs. Villarreal Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-pafos-vs-villarreal-champions-league-match-free-today.html)
+
+
+### club brugge (N/A, Wed, 5 Nov 2025 11:30:00 -0800)
+
+- **Barcelona doet het met Yamal maar zonder Lewandowski, bij Club Brugge staan Onyedika en Tresoldi in de basis**: [Link](https://www.hln.be/champions-league/barcelona-doet-het-met-yamal-maar-zonder-lewandowski-bij-club-brugge-staan-onyedika-en-tresoldi-in-de-basis~a3581fb9/)
+- **Met Tresoldi in de spits en Onyedika op het middenveld: dit is de basiself van Club Brugge tegen FC Barcelona**: [Link](https://www.nieuwsblad.be/sport/voetbal/met-tresoldi-in-de-spits-en-onyedika-op-het-middenveld-dit-is-de-basiself-van-club-brugge-tegen-fc-barcelona/102250607.html)
+- **"Minder sterk dan vorig seizoen": Gert Verheyen kan voor één keer met iets leven bij Club Brugge**: [Link](https://www.msn.com/nl-be/sport/voetbal/minder-sterk-dan-vorig-seizoen-gert-verheyen-kan-voor-%C3%A9%C3%A9n-keer-met-iets-leven-bij-club-brugge/ar-AA1PO91D)
+
+
 ### club brujas - barcelona (N/A, Wed, 5 Nov 2025 11:30:00 -0800)
 
 - **El posible once del Barça ante el Brujas incluye dos alternativas**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251105/1002563667/posible-once-barca-brujas-incluye-dos-alternativas.html)
