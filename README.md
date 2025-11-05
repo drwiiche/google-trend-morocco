@@ -1,3 +1,52 @@
+### marseille – atalanta (N/A, Wed, 5 Nov 2025 11:20:00 -0800)
+
+- **C’est terrible pour l’OM**: [Link](https://www.football.fr/ligue-des-champions/cest-terrible-pour-lom-2-782656.html)
+- **OM-Atalanta : Højbjerg confiant pour ce match**: [Link](https://www.coeurmarseillais.fr/om-atalanta-hojbjerg-confiant-pour-ce-match/)
+- **Marseille vs Atalanta – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266645/marseille-vs-atalanta-match-preview-prediction/)
+
+
+### club brugge – barcelone (N/A, Wed, 5 Nov 2025 11:10:00 -0800)
+
+- **Club Bruges - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a6691235243545345699-club-bruges-fc-barcelone-les-compositions-officielles)
+- **"Ferminator", l’atout létal**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-i-fc-bruges-fc-barcelone-4e-journee-i-fermin-lopez-latout-letal-du-barca-dhansi-flick_sto23237531/story.shtml)
+- **Bruges - FC Barcelone : Un nouveau chapitre européen s'écrit en Belgique**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4395526/bruges-fc-barcelone-un-nouveau-chapitre-europeen-secrit-en-belgique)
+
+
+### كلوب بروج ضد برشلونة (N/A, Wed, 5 Nov 2025 11:10:00 -0800)
+
+- **تغيير واحد في تشكيل برشلونة المتوقع أمام كلوب بروج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%88%D8%A7%D8%AD%D8%AF-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%83%D9%84%D9%88%D8%A8-%D8%A8%D8%B1%D9%88%D8%AC/blt50f5e9822e1870bf)
+- **فليك يقلد ألونسو مدرب ريال مدريد قبل مباراة برشلونة وكلوب بروج**: [Link](https://www.aljazeera.net/sport/2025/11/5/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%82%D9%84%D8%AF-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%85%D8%AF%D8%B1%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **المدير الرياضي لكلوب بروج ينصح برشلونة: "عليهم جعل يامال يركز على لعب كرة القدم فقط"**: [Link](https://m.elbotola.com/article/2025-11-04-09-33-630.html)
+
+
+### club brugge vs barcelona (N/A, Wed, 5 Nov 2025 11:10:00 -0800)
+
+- **Barcelona vs Club Brugge: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266666/barcelona-vs-club-brugge-match-preview-prediction/)
+- **‘When he’s able to play, he will play’ – Hansi Flick gives update on Lamine Yamal amid surgery talk**: [Link](https://www.football-espana.net/2025/11/05/when-hes-able-to-play-he-will-play-hansi-flick-gives-update-on-lamine-yamal-amid-surgery-talk)
+- **Squad for the trip to Bruges**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4395957/squad-for-the-trip-to-bruges)
+
+
+### manchester city – dortmund (N/A, Wed, 5 Nov 2025 11:10:00 -0800)
+
+- **Kommentare und Prognosen zu den Ergebnissen von Man City und Dortmund, Champions League 2025-2026**: [Link](https://www.vietnam.vn/de/nhan-dinh-du-doan-ket-qua-man-city-va-dortmund-champions-league-2025-2026)
+- **Champions League: Wie der BVB auch bei ManCity bestehen will**: [Link](https://www.zdfheute.de/sport/fussball-champions-league-manchester-city-borussia-dortmund-kader-kovac-100.html)
+- **Dortmunds Tormaschine zu Gast bei Erling Haaland**: [Link](https://www.stol.it/artikel/sport/dortmunds-tormaschine-zu-gast-bei-erling-haaland)
+
+
+### pafos vs villarreal (N/A, Wed, 5 Nov 2025 11:10:00 -0800)
+
+- **Pafos FC vs Villarreal Prediction and Betting Tips | November 5th 2025**: [Link](https://www.sportskeeda.com/football/pafos-fc-vs-villarreal-prediction-betting-tips-november-5th-2025)
+- **Where to stream Pafos vs. Villarreal Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-pafos-vs-villarreal-champions-league-match-free-today.html)
+- **Marcelino García Toral: “Our Duty is to Compete at Our Best”**: [Link](https://emegypt.net/1032090)
+
+
+### yacine faqir (N/A, Wed, 5 Nov 2025 11:00:00 -0800)
+
+- **Revolut names former Mastercard executive Yacine Faqir as CEO for Morocco**: [Link](https://en.yabiladi.com/articles/details/180535/revolut-names-former-mastercard-executive.html)
+- **Revolut appoints Yacine Faqir as CEO to lead Moroccan expansion**: [Link](https://techpoint.africa/news/yacine-faqir-revolut-morocco-ceo/)
+- **Revolut Expands North African Presence with Appointment of Yacine Faqir as Morocco CEO**: [Link](https://techafricanews.com/2025/11/05/revolut-expands-north-african-presence-with-appointment-of-yacine-faqir-as-morocco-ceo/)
+
+
 ### نهضة بركان ضد النادي المكناسي (N/A, Wed, 5 Nov 2025 10:30:00 -0800)
 
 - **ما القنوات الناقلة لمباراة نهضة بركان والمكناسي في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1097d74519b0c361)
