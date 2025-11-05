@@ -1,3 +1,10 @@
+### hakimi blessure (N/A, Tue, 4 Nov 2025 13:20:00 -0800)
+
+- **« C'est tout un pays qui retient son souffle » : la presse marocaine inquiète après la blessure d'Achraf Hakimi, un mois et demi avant le début de la CAN 2025**: [Link](https://www.lequipe.fr/Football/Actualites/-c-est-tout-un-pays-qui-retient-son-souffle-la-presse-marocaine-inquiete-apres-la-blessure-d-achraf-hakimi-un-mois-et-demi-avant-le-debut-de-la-can-2025/1607407)
+- **CAN 2025 / Le Maroc retient son souffle: Achraf Hakimi , gravement blessé, manquerait-il l'évènement tant attendu ?**: [Link](https://www.lopinion.ma/CAN-2025-Le-Maroc-retient-son-souffle-Achraf-Hakimi--gravement-blesse-manquerait-il-l-evenement-tant-attendu_a73561.html)
+- **Vers une absence d'un mois et demi pour Hakimi ?**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/achraf-hakimi-blesse-lors-de-psg-bayern-munich-ligue-des-champions-pourrait-manquer-entre-4-et-6-semaines_sto23238027/story.shtml)
+
+
 ### champions (N/A, Tue, 4 Nov 2025 14:10:00 -0800)
 
 - **Who is Max Dowman, the Arsenal teenager who became Champions League’s youngest player? - The Athletic**: [Link](https://www.nytimes.com/athletic/6776326/2025/11/04/max-dowman-arsenal-champions-league-record/)
