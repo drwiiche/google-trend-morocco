@@ -1,3 +1,10 @@
+### rma (N/A, Tue, 4 Nov 2025 13:10:00 -0800)
+
+- **Eden Park Restrictions: Next Steps Unveiled**: [Link](https://www.miragenews.com/eden-park-restrictions-next-steps-unveiled-1563882/)
+- **Nine To Noon for Wednesday 5 November 2025**: [Link](https://www.rnz.co.nz/national/programmes/ninetonoon/20251105)
+- **Will the Government override Auckland Council on concerts at Eden Park?**: [Link](https://www.thepost.co.nz/nz-news/360876057/will-government-override-auckland-council-concerts-eden-park)
+
+
 ### nyc mayoral election (N/A, Tue, 4 Nov 2025 18:10:00 -0800)
 
 - **New York City Mayoral Election Live Results 2025: Mamdani, Cuomo, Sliwa**: [Link](https://www.nytimes.com/interactive/2025/11/04/us/elections/results-new-york-city-mayor.html)
