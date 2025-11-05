@@ -1,3 +1,17 @@
+### bet365 (N/A, Wed, 5 Nov 2025 12:30:00 -0800)
+
+- **bet365 Bonus Code "LSBONUS" $200 for Wednesday NBA and NHL Betting**: [Link](https://www.livescore.com/en/news/nhl/promos/bet365-bonus-code-lsbonus-usd200-for-wednesday-nba-and-nhl-betting/)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Florida vs. Arizona**: [Link](https://nypost.com/2025/11/03/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-florida-vs-arizona/)
+- **bet365 Bonus Code TOPACTION: $200 Raiders vs. Broncos Offer**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-scores-200-bet-and-get-bonus-for-raiders-vs-broncos-thursday-night-football)
+
+
+### مباراة برشلونة (N/A, Wed, 5 Nov 2025 12:30:00 -0800)
+
+- **لابورتا يسخر من هزيمة ريال مدريد أمام ليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt99dc686a515d5f5e)
+- **برشلونة يحفظ ماء وجه الإسبان في الصراع الأزلي على الأفضلية أمام الإنجليز**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D9%81%D8%B8-%D9%85%D8%A7%D8%A1-%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%B1%D8%A7%D8%B9/)
+- **"لا احتفال دون ركلة جزاء".. مرشح سابق لرئاسة برشلونة يسخر من خسارة ريال مدريد أمام ليفربول!**: [Link](https://www.msn.com/ar-eg/news/other/%D9%84%D8%A7-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84-%D8%AF%D9%88%D9%86-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D9%85%D8%B1%D8%B4%D8%AD-%D8%B3%D8%A7%D8%A8%D9%82-%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/ar-AA1PQudk)
+
+
 ### ajax – galatasaray (N/A, Wed, 5 Nov 2025 12:20:00 -0800)
 
 - **Security risk zone declared in Amsterdam ahead of Ajax vs. Galatasaray match**: [Link](https://nltimes.nl/2025/11/05/security-risk-zone-declared-amsterdam-ahead-ajax-vs-galatasaray-match)
