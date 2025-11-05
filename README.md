@@ -1,3 +1,24 @@
+### bruges (N/A, Wed, 5 Nov 2025 14:00:00 -0800)
+
+- **Barcelona fan bus bursts into flames ahead of Champions League clash**: [Link](https://talksport.com/football/3710027/barcelona-fan-bus-fire-champions-league-club-brugge/)
+- **Excitement in Bruges: Barcelona Team Bus Breaks Down and Another Bus Catches Fire with Video Coverage**: [Link](https://emegypt.net/1032251)
+- **Barcelona fans terrified as bus catches fire ahead of Champions League clash**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-brugge-barcelona-champions-league-36198034)
+
+
+### classement champions league (N/A, Wed, 5 Nov 2025 14:00:00 -0800)
+
+- **Ligue des champions: le PSG perd sa place de leader, l'OM sort du top 24... Le classement complet après la 4e journée**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/ligue-des-champions-le-psg-perd-sa-place-de-leader-l-om-et-monaco-toujours-dans-la-course-le-classement-complet-apres-la-4e-journee_AV-202511040995.html)
+- **LdC : le classement de la phase de ligue**: [Link](https://www.footmercato.net/a6644075135159396235-ldc-le-classement-de-la-phase-de-ligue)
+- **Ligue des Champions : Liverpool face au défi Real Madrid, PSG-Bayern à l’affiche**: [Link](https://fr.hespress.com/448397-ligue-des-champions-liverpool-face-au-defi-real-madrid-psg-bayern-a-laffiche.html)
+
+
+### benfica (N/A, Wed, 5 Nov 2025 13:50:00 -0800)
+
+- **Benfica x Bayer Leverkusen Palpite – Confira Onde Assistir, Hora e Escalações 05-11**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/benfica-x-bayer-leverkusen-05-11-2025)
+- **Adeptos do Benfica aplaudem Grimaldo no regresso do espanhol à Luz**: [Link](https://cnnportugal.iol.pt/videos/adeptos-do-benfica-aplaudem-grimaldo-no-regresso-do-espanhol-a-luz/690ba7b70cf2c7eb24444294)
+- **VÍDEO: Dahl assistiu e o Leverkusen gelou o Estádio da Luz**: [Link](https://sapo.pt/artigo/video-dahl-assistiu-e-o-leverkusen-gelou-o-estadio-da-luz-690bc2c14ec4389b2c0eacb6)
+
+
 ### ترتيب دوري ابطال اوروبا (N/A, Wed, 5 Nov 2025 13:40:00 -0800)
 
 - **جدول مباريات اليوم الأربعاء 5 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-5-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt4d89a77868b9e794)
