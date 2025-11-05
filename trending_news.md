@@ -1,3 +1,17 @@
+### zohran mamdani new york (N/A, Tue, 4 Nov 2025 15:40:00 -0800)
+
+- **New York City Mayoral Election Results 2025**: [Link](https://www.nytimes.com/interactive/2025/11/04/us/elections/results-new-york-city-mayor.html)
+- **NYC Mayor Election 2025 Live Results: Mamdani, Cuomo, Sliwa**: [Link](https://www.nbcnews.com/politics/2025-elections/new-york-city-mayor-results)
+- **Live updates: Election Day news | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/election-news-11-04-25)
+
+
+### أشرف حكيمي (N/A, Tue, 4 Nov 2025 14:00:00 -0800)
+
+- **بكاء بحرقة.. أشرف حكيمي يغادر مباراة بايرن بإصابة مأساوية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%83%D8%A7%D8%A1-%D8%A8%D8%AD%D8%B1%D9%82%D8%A9--%D8%A7%D9%94%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A8%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A7%D9%94%D8%B3%D8%A7%D9%88%D9%8A%D8%A9/blte5aaff0dce760314)
+- **إنريكي: "أمر مؤسف ما حدث لحكيمي لكن هذه هي كرة القدم وغدا سنعرف نتائج الفحوصات" - Elbotola**: [Link](https://m.elbotola.com/article/2025-11-04-22-58-17.html)
+- **إصابة كاحل حكيمي بالتواء، كم يتطلب علاجها؟**: [Link](https://www.almountakhab.com/node/16219285)
+
+
 ### almountakhab (N/A, Tue, 4 Nov 2025 14:40:00 -0800)
 
 - **لوزا يواصل التألق مع واتفورد ويهز الشباك في المباراة الرابعة على التوالي بهدف في مرمى إبسويتش تاون**: [Link](https://m.elbotola.com/article/2025-11-04-20-54-89.html)
