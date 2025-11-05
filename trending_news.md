@@ -1,3 +1,10 @@
+### champions league 2025 (N/A, Wed, 5 Nov 2025 14:00:00 -0800)
+
+- **UEFA Champions League updates: Man City-Dortmund, Brugge-Barcelona**: [Link](https://www.espn.com/soccer/story/_/id/46836264/uefa-champions-league-updates-manchester-city-borussia-dortmund-club-brugge-fc-barcelona)
+- **talkSPORT tips – Best football bets and expert advice for Wednesday 5 November**: [Link](https://talksport.com/football/3701837/betting-tips-best-football-bets-wednesday-5-november/)
+- **Tottenham 4-0 Copenhagen, PSG 1-2 Bayern Munich, and more: Champions League – as it happened**: [Link](https://www.theguardian.com/football/live/2025/nov/04/tottenham-v-copenhagen-psg-v-bayern-munich-and-more-champions-league-live?filterKeyEvents=false&page=with%3Ablock-690a5fc88f089a14963155e6)
+
+
 ### ldc (N/A, Wed, 5 Nov 2025 14:00:00 -0800)
 
 - **DIRECT. Manchester City-Borussia Dortmund (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/manchester-city-borussia-dortmund-live/685558)
