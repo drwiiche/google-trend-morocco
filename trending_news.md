@@ -1,3 +1,22 @@
+### botola pro (N/A, Wed, 5 Nov 2025 09:20:00 -0800)
+
+- **Fadlu 'Reveals' Championship-Winning Strategy**: [Link](https://www.soccerladuma.co.za/international/african-football/fadlu-davids-raja-casablanca-1)
+- **Botola Pro: Raja find late goal in victory**: [Link](https://www.panafricafootball.com/post/botola-pro-raja-find-late-goal/)
+- **Thembinkosi Lorch continues to shine with Wydad, proving he is worthy of playing for Bafana Bafana again!**: [Link](https://ca.sports.yahoo.com/news/thembinkosi-lorch-continues-shine-wydad-092500905.html)
+
+
+### ترتيب الدوري المغربي (N/A, Wed, 5 Nov 2025 09:10:00 -0800)
+
+- **فوز مثير للرجاء أمام الكوكب المراكشي**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%B2-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-1650719.html)
+- **فادلو: "إذا أردنا المنافسة على البطولة علينا تطوير الأداء ولدينا وقت كافٍ لذلك" 🎙**: [Link](https://m.elbotola.com/video/details/690a89b4f09c9c51cea89de4/)
+- **ما القنوات الناقلة لمباراة الرجاء والكوكب المراكشي في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt32e8fd7d37c3b8a0)
+
+
+### wydad vs husa (N/A, Wed, 5 Nov 2025 07:20:00 -0800)
+
+
+
+
 ### fk qarabag – chelsea (N/A, Wed, 5 Nov 2025 09:00:00 -0800)
 
 - **Qarabag defender thinks he’s found a way to ‘exploit’ Chelsea in the Champions League**: [Link](https://www.thechelseachronicle.com/match-coverage/qarabag-defender-thinks-hes-found-a-way-to-exploit-chelsea-in-the-champions-league/)
