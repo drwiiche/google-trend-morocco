@@ -1,3 +1,10 @@
+### ldc (N/A, Wed, 5 Nov 2025 14:00:00 -0800)
+
+- **DIRECT. Manchester City-Borussia Dortmund (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/manchester-city-borussia-dortmund-live/685558)
+- **Manchester City - Dortmund en direct - Ligue des champions : Football Scores & Résultats - 05/11/2025**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/live-manchester-city-dortmund_mtc1601066/live-commentary.shtml)
+- **PRONOS PARIS RMC Le pari sûr du 5 novembre - Ligue des Champions**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-5-novembre-ligue-des-champions_AN-202511040628.html)
+
+
 ### ترتيبات دوري أبطال أوروبا (N/A, Wed, 5 Nov 2025 14:00:00 -0800)
 
 - **جدول مباريات اليوم الأربعاء 5 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-5-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt4d89a77868b9e794)
