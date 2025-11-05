@@ -1,3 +1,10 @@
+### al-nassr fc – fc goa (N/A, Wed, 5 Nov 2025 09:30:00 -0800)
+
+- **Al-Nassr vs Goa LIVE Score Updates in AFC Champions League Two Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/05/1240181-al-nassr-vs-goa-live-score-afc-champions-league-two.html)
+- **FC Goa hope to make it count at Ronaldo's home**: [Link](https://www.msn.com/en-in/sports/football/fc-goa-hope-to-make-it-count-at-ronaldos-home/ar-AA1PO0X5)
+- **Cristiano Ronaldo Named in Al-Nassr Squad for Return Leg Against FC Goa in Riyadh**: [Link](https://revsportz.in/cristiano-ronaldo-named-in-al-nassr-squad-for-return-leg-against-fc-goa-in-riyadh/)
+
+
 ### botola pro (N/A, Wed, 5 Nov 2025 09:20:00 -0800)
 
 - **Fadlu 'Reveals' Championship-Winning Strategy**: [Link](https://www.soccerladuma.co.za/international/african-football/fadlu-davids-raja-casablanca-1)
