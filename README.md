@@ -1,3 +1,24 @@
+### نهضة بركان ضد النادي المكناسي (N/A, Wed, 5 Nov 2025 10:30:00 -0800)
+
+- **ما القنوات الناقلة لمباراة نهضة بركان والمكناسي في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1097d74519b0c361)
+- **نهضة بركان يعلن تقديم موعد مباراته أمام الكوديم من الثامنة إلى السادسة مساء**: [Link](https://m.elbotola.com/article/2025-11-04-18-29-256.html)
+- **مؤجل الدورة 5.. نهضة بركان في فوهة بركان أمام الكوديم**: [Link](https://www.almountakhab.com/node/13219294)
+
+
+### chelsea (N/A, Wed, 5 Nov 2025 10:20:00 -0800)
+
+- **UEFA Youth League report: Qarabag 0-5 Chelsea | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/uefa-youth-league-report-qarabag-0-5-chelsea)
+- **Chelsea stars targeted by racist abuse and 'monkey noises' in Champions League clash**: [Link](https://www.dailystar.co.uk/sport/football/chelsea-qarabag-racist-abuse-europa-36197693)
+- **Chelsea youth fixture stopped after players racially abused in Baku**: [Link](https://www.thetimes.com/sport/football/article/chelsea-racist-abuse-youth-fixture-stopped-after-players-racially-baku-g8vpr7f0k)
+
+
+### النصر ضد غوا (N/A, Wed, 5 Nov 2025 10:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة النصر وجوا في دوري أبطال آسيا "2" 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%AC%D9%88%D8%A7-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-2-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltb34f57fd86510012)
+- **مباشر مباراة النصر ضد جوا (0-0) بدوري أبطال آسيا 2**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/5/al-nassr-v-goa?update=8222845)
+- **قرار مفاجئ من جيسوس بشأن رونالدو قبل مواجهة غوا في دوري أبطال آسيا**: [Link](https://www.arrajol.com/content/388028/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%85%D9%86-%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D8%A8%D8%B4%D8%A3%D9%86-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%BA%D9%88%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7)
+
+
 ### قره باغ ضد تشيلسي (N/A, Wed, 5 Nov 2025 09:40:00 -0800)
 
 - **ماريسكا عن غياب نجم تشيلسي: نحاول حمايته**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D8%B9%D9%86-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%86%D8%AC%D9%85-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%86%D8%AD%D8%A7%D9%88%D9%84-%D8%AD%D9%85%D8%A7%D9%8A%D8%AA%D9%87/bltaa6ef93421def38b)
