@@ -1,3 +1,10 @@
+### yalla shoot (N/A, Wed, 5 Nov 2025 12:40:00 -0800)
+
+- **سلوت: ريال مدريد يشبه أستون فيلا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D9%88%D8%AA-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B4%D8%A8%D9%87-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7/blt848ffc9def901054)
+- **شاهد نتيجة وملخص مباراة ريال مدريد ضد ليفربول في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/4/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **دوري أبطال أوروبا: أرنولد وتشابي ألونسو في مواجهة خاصة أمام ليفربول مساء اليوم**: [Link](https://2m.ma/ar/news/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A3%D8%B1%D9%86%D9%88%D9%84%D8%AF-%D9%88%D8%AA%D8%B4%D8%A7%D8%A8%D9%8A-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-20251104)
+
+
 ### bet365 (N/A, Wed, 5 Nov 2025 12:30:00 -0800)
 
 - **bet365 Bonus Code "LSBONUS" $200 for Wednesday NBA and NHL Betting**: [Link](https://www.livescore.com/en/news/nhl/promos/bet365-bonus-code-lsbonus-usd200-for-wednesday-nba-and-nhl-betting/)
