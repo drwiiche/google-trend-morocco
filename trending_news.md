@@ -1,3 +1,9 @@
+### can 2025 (N/A, Wed, 5 Nov 2025 08:10:00 -0800)
+
+- **CAN 2025: Aymen Balbouli strengthens the Carthage Eagles’ staff**: [Link](https://ca.sports.yahoo.com/news/2025-aymen-balbouli-strengthens-carthage-131500794.html)
+- **Tunisia FA Reshuffles Technical Staff of Senior and Olympic Teams**: [Link](https://en.africatopsports.com/2025/11/05/tunisia-fa-reshuffles-technical-staff-of-senior-and-olympic-teams/)
+
+
 ### botola (N/A, Wed, 5 Nov 2025 07:30:00 -0800)
 
 - **رسميا.. تحديد موعد إغلاق ملعب محمد الخامس بالدار البيضاء من أجل الصيانة**: [Link](https://casa24.ma/Casablanca/62370.html)
