@@ -1,3 +1,10 @@
+### قره باغ ضد تشيلسي (N/A, Wed, 5 Nov 2025 09:40:00 -0800)
+
+- **ماريسكا عن غياب نجم تشيلسي: نحاول حمايته**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D8%B9%D9%86-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%86%D8%AC%D9%85-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%86%D8%AD%D8%A7%D9%88%D9%84-%D8%AD%D9%85%D8%A7%D9%8A%D8%AA%D9%87/bltaa6ef93421def38b)
+- **ماريسكا يحسم موقف بيدرو نيتو من مباراة تشيلسي وكاراباج**: [Link](https://www.gomhuriaonline.com/Gomhuria/1720612.html)
+- **إصابة جديدة لنجم تشيلسي قبل مواجهة قاراباغ**: [Link](https://www.arrajol.com/content/387934/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%86%D8%AC%D9%85-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%82%D8%A7%D8%B1%D8%A7%D8%A8%D8%A7%D8%BA)
+
+
 ### al-nassr fc – fc goa (N/A, Wed, 5 Nov 2025 09:30:00 -0800)
 
 - **Al-Nassr vs Goa LIVE Score Updates in AFC Champions League Two Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/05/1240181-al-nassr-vs-goa-live-score-afc-champions-league-two.html)
