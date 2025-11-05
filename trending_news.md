@@ -1,3 +1,17 @@
+### الإنتر ضد كيرات (N/A, Wed, 5 Nov 2025 13:20:00 -0800)
+
+- **القنوات الناقلة لمباراة إنتر ميلان ضد كايرات اليوم في دوري أبطال أوروبا مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/978398254687939-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B6%D8%AF-%D9%83%D8%A7%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **تشيفو على غير هدى من توقعات إنتر ميلان لحسن الحظ في دوري أبطال أوروبا**: [Link](https://voi.id/ar/sports/530630)
+- **كيفو: ننتظرنا مباراة مهمة وصعبة في الوقت نفسه ضد كايرات**: [Link](https://www.elsport.com/news/show/799029/%D9%83%D9%8A%D9%81%D9%88-%D9%86%D9%86%D8%AA%D8%B8%D8%B1%D9%86%D8%A7-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%87%D9%85%D8%A9-%D9%88%D8%B5%D8%B9%D8%A8%D8%A9-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D9%86%D9%81%D8%B3%D9%87-%D9%83%D8%A7%D9%8A%D8%B1%D8%A7%D8%AA)
+
+
+### barcelona (N/A, Wed, 5 Nov 2025 12:10:00 -0800)
+
+- **Brujas - Barcelona, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/brujas-barcelona-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202511-n/)
+- **Club Brugge vs FC Barcelona: cómo ver el partido por TV y streaming, últimas noticias y pronóstico**: [Link](https://www.si.com/es-us/futbol/club-brugge-vs-fc-barcelona-tv-streaming-5-11-2025)
+- **Recepción en Bruges con las peñas de Gante y París**: [Link](https://www.fcbarcelona.es/es/noticias/4396686/recepcion-en-bruges-con-las-penas-de-gante-y-paris)
+
+
 ### ajax (N/A, Wed, 5 Nov 2025 13:00:00 -0800)
 
 - **Gemeente wijst vanwege Ajax-Galatasaray deel Amsterdamse binnenstad en omgeving Johan Cruijff Arena aan als veiligheidsrisicogebied**: [Link](https://www.parool.nl/nederland/gemeente-wijst-vanwege-ajax-galatasaray-deel-amsterdamse-binnenstad-en-omgeving-johan-cruijff-arena-aan-als-veiligheidsrisicogebied~b941d226/)
