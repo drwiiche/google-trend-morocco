@@ -1,3 +1,10 @@
+### marche verte (N/A, Wed, 5 Nov 2025 01:00:00 -0800)
+
+- **Barid Al-Maghrib émet un timbre spécial pour les 50 ans de la Marche Verte**: [Link](https://fr.hespress.com/448460-barid-al-maghrib-emet-un-timbre-special-pour-les-50-ans-de-la-marche-verte.html)
+- **Cinquante ans après la Glorieuse Marche Verte : de l’épopée de la libération à la dynamique du développement global**: [Link](https://www.maroc.ma/fr/actualites/cinquante-ans-apres-la-glorieuse-marche-verte-de-lepopee-de-la-liberation-la-dynamique-du)
+- **Mohamed Jbara célèbre la Marche verte avec «Hdyat Moulana», un hymne à l’unité africaine**: [Link](https://fr.le360.ma/culture/mohamed-jbara-celebre-la-marche-verte-avec-hdyat-moulana-un-hymne-a-lunite-africaine_AKGGTX5TZZGCTFMLTOUCUTVOVA/)
+
+
 ### mac allister (N/A, Tue, 4 Nov 2025 14:30:00 -0800)
 
 - **Le Real Madrid veut signer ces deux champions du monde argentins**: [Link](https://www.sport.fr/football/le-real-madrid-veut-signer-ces-deux-champions-du-monde-argentins-1367469.shtm)
