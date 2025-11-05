@@ -1,3 +1,24 @@
+### nyc mayoral election (N/A, Tue, 4 Nov 2025 18:10:00 -0800)
+
+- **New York City Mayoral Election Live Results 2025: Mamdani, Cuomo, Sliwa**: [Link](https://www.nytimes.com/interactive/2025/11/04/us/elections/results-new-york-city-mayor.html)
+- **Election day live updates: Millions vote in NYC mayoral race and California's Prop 50**: [Link](https://www.bbc.com/news/live/cg51m5emnmvt)
+- **NYC Mayor Election 2025 Live Results: Mamdani, Cuomo, Sliwa**: [Link](https://www.nbcnews.com/politics/2025-elections/new-york-city-mayor-results)
+
+
+### اصابة حكيمي (N/A, Tue, 4 Nov 2025 13:40:00 -0800)
+
+- **بكاء بحرقة.. أشرف حكيمي يغادر مباراة بايرن بإصابة مأساوية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%83%D8%A7%D8%A1-%D8%A8%D8%AD%D8%B1%D9%82%D8%A9--%D8%A7%D9%94%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A8%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A7%D9%94%D8%B3%D8%A7%D9%88%D9%8A%D8%A9/blte5aaff0dce760314)
+- **إنريكي: "أمر مؤسف ما حدث لحكيمي لكن هذه هي كرة القدم وغدا سنعرف نتائج الفحوصات" - Elbotola**: [Link](https://m.elbotola.com/article/2025-11-04-22-58-17.html)
+- **"ليكيب": حكيمي سيغيب ما بين ثلاثة وخمسة أسابيع عن الملاعب**: [Link](https://www.hesport.com/%D9%84%D9%8A%D9%83%D9%8A%D8%A8-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%B3%D9%8A%D8%BA%D9%8A%D8%A8-%D9%85%D8%A7-%D8%A8%D9%8A%D9%86-%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D9%88%D8%AE%D9%85%D8%B3%D8%A9-%D8%A3-411172.html)
+
+
+### دوري ابطال اوروبا (N/A, Tue, 4 Nov 2025 13:10:00 -0800)
+
+- **فليك يعلن قائمة برشلونة لمواجهة كلوب بروج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%85%D9%87%D9%85%D8%A9--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B6%D9%85-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A-%D9%84%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%83%D9%84%D9%88%D8%A8-%D8%A8%D8%B1%D9%88%D8%AC/blt89f4cb5bb82e532e)
+- **المدير الرياضي لكلوب بروج ينصح برشلونة: "عليهم جعل يامال يركز على لعب كرة القدم فقط"**: [Link](https://m.elbotola.com/article/2025-11-04-09-33-630.html)
+- **خطر يهدد برشلونة بسبب بيدري**: [Link](https://sport.lesiteinfo.com/monde/480087.html)
+
+
 ### zohran mamdani new york (N/A, Tue, 4 Nov 2025 15:40:00 -0800)
 
 - **New York City Mayoral Election Results 2025**: [Link](https://www.nytimes.com/interactive/2025/11/04/us/elections/results-new-york-city-mayor.html)
