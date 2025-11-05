@@ -1,3 +1,31 @@
+### ajax (N/A, Wed, 5 Nov 2025 13:00:00 -0800)
+
+- **Gemeente wijst vanwege Ajax-Galatasaray deel Amsterdamse binnenstad en omgeving Johan Cruijff Arena aan als veiligheidsrisicogebied**: [Link](https://www.parool.nl/nederland/gemeente-wijst-vanwege-ajax-galatasaray-deel-amsterdamse-binnenstad-en-omgeving-johan-cruijff-arena-aan-als-veiligheidsrisicogebied~b941d226/)
+- **Lege stoeltjes bij Ajax-Galatasaray: duizend kaarten geblokkeerd wegens zwarthandel**: [Link](https://www.ad.nl/voetbal/lege-stoeltjes-bij-ajax-galatasaray-duizend-kaarten-geblokkeerd-wegens-zwarthandel~a86220e8/)
+- **Wesley Sneijder waarschuwt Ajax voor ’atoommier’ van Galatasaray**: [Link](https://www.telegraaf.nl/sport/voetbal/wesley-sneijder-waarschuwt-ajax-voor-atoommier-van-galatasaray/102035680.html)
+
+
+### uefa champions league (N/A, Wed, 5 Nov 2025 12:50:00 -0800)
+
+- **Champions League LIVE: Man City vs Dortmund & Newcastle vs Athletic Club after Chelsea held by Qarabag**: [Link](https://www.bbc.com/sport/football/live/cn83w77j675t)
+- **Security risk zone declared in Amsterdam ahead of Ajax vs. Galatasaray match**: [Link](https://nltimes.nl/2025/11/05/security-risk-zone-declared-amsterdam-ahead-ajax-vs-galatasaray-match)
+- **Where to stream Ajax vs. Galatasaray Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-ajax-vs-galatasaray-champions-league-match-free-today.html)
+
+
+### inter milan (N/A, Wed, 5 Nov 2025 12:50:00 -0800)
+
+- **Inter Milan boss cites Celtic in claim that Champions League opponents Kairat Almaty aren't 'simple'**: [Link](https://www.67hailhail.com/news/inter-milan-boss-cites-celtic-in-claim-that-champions-league-opponents-kairat-almaty-arent-simple/)
+- **Inter Milan Vs Kairat Almaty – French Starlet & Italy Teenage Sensation Start Together For The First Time**: [Link](https://sempreinter.com/2025/11/05/inter-milan-kairat-almaty-bonny-esposito-start-first-time/)
+- **✅ Inter-Kairat and Marseille-Atalanta line-ups: Lautaro, Lookman 👀**: [Link](https://ca.sports.yahoo.com/news/inter-kairat-om-atalanta-line-185100519.html)
+
+
+### match barca (N/A, Wed, 5 Nov 2025 12:30:00 -0800)
+
+- **Barcelona defender leaves training early with muscle problem**: [Link](https://www.football-espana.net/2025/11/04/barcelona-defender-leaves-training-early-with-muscle-problem)
+- **Barcelona welcome back Christensen after injury**: [Link](https://lentedesportiva.com/barcelona-welcome-back-christensen-after-injury/)
+- **75 matches missed - Barcelona unlikely to renew defender's contract amid growing fitness concerns**: [Link](https://barcauniversal.com/75-matches-missed-barcelona-unlikely-to-renew-defenders-contract-amid-growing-fitness-concerns/)
+
+
 ### yalla shoot (N/A, Wed, 5 Nov 2025 12:40:00 -0800)
 
 - **سلوت: ريال مدريد يشبه أستون فيلا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D9%88%D8%AA-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B4%D8%A8%D9%87-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7/blt848ffc9def901054)
