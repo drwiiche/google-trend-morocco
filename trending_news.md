@@ -1,3 +1,24 @@
+### club brujas - barcelona (N/A, Wed, 5 Nov 2025 11:30:00 -0800)
+
+- **El posible once del Barça ante el Brujas incluye dos alternativas**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251105/1002563667/posible-once-barca-brujas-incluye-dos-alternativas.html)
+- **Cubarsí vuelve a tope frente al Brujas**: [Link](https://www.sport.es/es/noticias/barca/cubarsi-vuelve-tope-frente-brujas-123348542)
+- **Club Brugge vs FC Barcelona: cómo ver el partido por TV y streaming, últimas noticias y pronóstico**: [Link](https://www.si.com/es-us/futbol/club-brugge-vs-fc-barcelona-tv-streaming-5-11-2025)
+
+
+### مان سيتي ضد دورتموند (N/A, Wed, 5 Nov 2025 11:30:00 -0800)
+
+- **"يويفا" يعفو عن مانشستر سيتي بعد قرار جوارديولا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D9%88%D9%8A%D9%81%D8%A7-%D9%8A%D8%B9%D9%81%D9%88-%D8%B9%D9%86-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A8%D8%B9%D8%AF-%D9%82%D8%B1%D8%A7%D8%B1-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7/blt192632efd2a6ba63)
+- **دوري أبطال أوروبا: جوب بيلينغهام يعود إلى إنكلترا لمواجهة سيتي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251104-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%AC%D9%88%D8%A8-%D8%A8%D9%8A%D9%84%D9%8A%D9%86%D8%BA%D9%87%D8%A7%D9%85-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D9%8A%D8%AA%D9%8A)
+- **دوري أبطال أوروبا: قمة نارية بين سيتي ودورتموند.. وبرشلونة لفوز مهم**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%82%D9%85%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%81%D9%88%D8%B2-%D9%85%D9%87%D9%85)
+
+
+### villarreal (N/A, Wed, 5 Nov 2025 11:30:00 -0800)
+
+- **Pafos - Villarreal, en directo: Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/pafos-villarreal-en-directo-champions-league-hoy-en-vivo-f202511-d/)
+- **Real Sociedad B - Huesca en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-hypermotion/real-sociedad-b-huesca/2025/11/05/01_0102_20251105_3567_2894-directo.html)
+- **Cardona, Parejo y Ayoze vuelven al once ante un Pafos con David Luiz en el eje de la zaga**: [Link](https://www.msn.com/es-us/noticias/mundo/cardona-parejo-y-ayoze-vuelven-al-once-ante-un-pafos-con-david-luiz-en-el-eje-de-la-zaga/ar-AA1PRXIM)
+
+
 ### marseille – atalanta (N/A, Wed, 5 Nov 2025 11:20:00 -0800)
 
 - **C’est terrible pour l’OM**: [Link](https://www.football.fr/ligue-des-champions/cest-terrible-pour-lom-2-782656.html)
