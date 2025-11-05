@@ -1,3 +1,17 @@
+### ajax – galatasaray (N/A, Wed, 5 Nov 2025 12:20:00 -0800)
+
+- **Security risk zone declared in Amsterdam ahead of Ajax vs. Galatasaray match**: [Link](https://nltimes.nl/2025/11/05/security-risk-zone-declared-amsterdam-ahead-ajax-vs-galatasaray-match)
+- **Where to stream Ajax vs. Galatasaray Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-ajax-vs-galatasaray-champions-league-match-free-today.html)
+- **Ajax boss John Heitinga needs team to 'stay in the game' against Galatasaray**: [Link](https://www.flashscore.com/news/soccer-champions-league-ajax-boss-john-heitinga-needs-team-to-stay-in-the-game-against-galatasaray/pKQAz3gd/)
+
+
+### barca match (N/A, Wed, 5 Nov 2025 12:10:00 -0800)
+
+- **Barcelona defender leaves training early with muscle problem**: [Link](https://www.football-espana.net/2025/11/04/barcelona-defender-leaves-training-early-with-muscle-problem)
+- **Barcelona’s Injury Issues Worsen After El Clasico Defeat**: [Link](https://www.msn.com/en-us/health/other/barcelona-s-injury-issues-worsen-after-el-clasico-defeat/ar-AA1Pn3Iu)
+- **Andreas Christensen returns to Barcelona training ahead of Club Brugge clash**: [Link](https://sports.yahoo.com/article/andreas-christensen-returns-barcelona-training-000000621.html)
+
+
 ### man city vs dortmund (N/A, Wed, 5 Nov 2025 11:40:00 -0800)
 
 - **Manchester City vs Borussia Dortmund – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266627/manchester-city-vs-borussia-dortmund-match-preview-prediction/)
