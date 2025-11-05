@@ -1,3 +1,17 @@
+### mamdani (N/A, Tue, 4 Nov 2025 19:00:00 -0800)
+
+- **Election day live updates: Zohran Mamdani wins New York mayoral race**: [Link](https://www.bbc.com/news/live/cg51m5emnmvt)
+- **NYC Mayoral Election Live Updates: Mamdani, Cuomo and Sliwa Put Their Fates in Voters' Hands**: [Link](https://www.nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election)
+- **NYC Mayor Election 2025 Live Results: Mamdani, Cuomo, Sliwa**: [Link](https://www.nbcnews.com/politics/2025-elections/new-york-city-mayor-results)
+
+
+### زهران ممداني (N/A, Tue, 4 Nov 2025 18:40:00 -0800)
+
+- **ممداني أول مسلم يفوز بمنصب عمدة نيويورك**: [Link](https://www.aljazeera.net/news/2025/11/5/%D8%B9%D8%A7%D8%AC%D9%84-%D9%88%D8%B3%D8%A7%D8%A6%D9%84-%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D9%88%D9%82%D8%B9-%D9%81%D9%88%D8%B2)
+- **أول تعليق من ترامب على نتائج الانتخابات وتوقع فوز ممداني**: [Link](https://arabic.cnn.com/world/article/2025/11/05/trump-blames-gop-losses-on-government-shutdown-and-his-absence-from-the-ballot)
+- **زهران ممداني: ترامب يقول إنه "قد يمانع" في تمويل مدينة نيويورك إذا فازعمدة "شيوعي"**: [Link](https://www.bbc.com/arabic/articles/c397p9v1mnwo)
+
+
 ### rma (N/A, Tue, 4 Nov 2025 13:10:00 -0800)
 
 - **Eden Park Restrictions: Next Steps Unveiled**: [Link](https://www.miragenews.com/eden-park-restrictions-next-steps-unveiled-1563882/)
