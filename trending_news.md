@@ -1,3 +1,34 @@
+### radio mars (N/A, Wed, 5 Nov 2025 07:10:00 -0800)
+
+
+
+
+### arryadia (N/A, Wed, 5 Nov 2025 07:10:00 -0800)
+
+
+
+
+### snrt (N/A, Wed, 5 Nov 2025 07:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة حسنية أكادير والوداد في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A7%D9%94%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltca87dcd8aeb238d3)
+- **تشكيلة الوداد ضد الحسنية.. حضور أساسي لمايرز والصبار ولورش يقود الهجوم رفقة هنوري وناسي**: [Link](https://m.elbotola.com/article/2025-11-05-14-21-762.html)
+- **البطولة الاحترافية 1.. مؤجلا الدورة السادسة**: [Link](https://www.almountakhab.com/node/13219290)
+
+
+### wac (N/A, Wed, 5 Nov 2025 07:10:00 -0800)
+
+- **Top-Seeded Utah Valley Opens WAC Tournament Wednesday vs. Abilene Christian**: [Link](https://gouvu.com/news/2025/11/4/womens-soccer-op-seeded-utah-valley-opens-wac-tournament-wednesday-vs-abilene-christian.aspx)
+- **Soccer makes history, secures WAC tournament berth**: [Link](https://acuoptimist.com/2025/11/soccer-makes-history-secures-wac-tournament-berth/)
+- **ACU Wildcats clinch WAC Tournament spot with victory over California Baptist**: [Link](https://ktxs.com/sports/college-sports/acu-wildcats-clinch-wac-tournament-spot-with-victory-over-california-baptist)
+
+
+### wydad (N/A, Wed, 5 Nov 2025 07:10:00 -0800)
+
+- **Botola : le MAS leader de la 7e journée, le WAC et l’AS FAR à l’affût**: [Link](https://lematin.ma/sports/botola-le-mas-leader-de-la-7e-journee-le-wac-et-las-far-a-laffut/311580)
+- **HUSA-WAC, OCS-DHJ et RSB-CODM: à quelles heures et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/botola/husa-wac-ocs-dhj-et-rsb-codm-a-quelles-heures-et-sur-quelle-chaine_EB56BLXVAZARHM3NTDAEC3ZW6M/)
+- **FUS Rabat 2-1 OC Safi, Championnat du Maroc : résumé du match (30/10/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-du-maroc/2025-2026/fus-rabat-oc-safi-live/681358)
+
+
 ### hakimi blessure (N/A, Tue, 4 Nov 2025 13:20:00 -0800)
 
 - **« C'est tout un pays qui retient son souffle » : la presse marocaine inquiète après la blessure d'Achraf Hakimi, un mois et demi avant le début de la CAN 2025**: [Link](https://www.lequipe.fr/Football/Actualites/-c-est-tout-un-pays-qui-retient-son-souffle-la-presse-marocaine-inquiete-apres-la-blessure-d-achraf-hakimi-un-mois-et-demi-avant-le-debut-de-la-can-2025/1607407)
