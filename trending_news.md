@@ -1,3 +1,10 @@
+### hibapress (N/A, Wed, 5 Nov 2025 01:00:00 -0800)
+
+- **الملك محمد السادس يستقبل الولاة والعمال الجدد المعينين بالإدارة الترابية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D9%85-2-1650670.html)
+- **خالد آيت الطالب.. من قيادة المنظومة الصحية إلى تدبير جهة فاس مكناس.. مسار رجل دولة بثقة ملكية**: [Link](https://www.barlamane.com/%D8%AE%D8%A7%D9%84%D8%AF-%D8%A2%D9%8A%D8%AA-%D8%A7%D9%84%D8%B7%D8%A7%D9%84%D8%A8-%D9%85%D9%86-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD/)
+- **تحليل إخباري: تعيينات جديدة للولاة والعمال.. تدوير للنخب الإدارية أكثر منه تغييرٌ في النهج**: [Link](https://lakome2.com/decryptage/398257/)
+
+
 ### marche verte (N/A, Wed, 5 Nov 2025 01:00:00 -0800)
 
 - **Barid Al-Maghrib émet un timbre spécial pour les 50 ans de la Marche Verte**: [Link](https://fr.hespress.com/448460-barid-al-maghrib-emet-un-timbre-special-pour-les-50-ans-de-la-marche-verte.html)
