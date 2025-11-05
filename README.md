@@ -1,3 +1,24 @@
+### newcastle (N/A, Wed, 5 Nov 2025 13:30:00 -0800)
+
+- **Newcastle United vs Athletic Club: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx2008e3jn7t)
+- **'This game means a lot to me' - Athletic Bilbao fans mark friendship with NUFC**: [Link](https://uk.news.yahoo.com/game-means-lot-athletic-bilbao-155711140.html)
+- **Bruno Guimaraes drops social media tease after missing Newcastle United training**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/bruno-guimaraes-newcastle-united-champions-league-5389636)
+
+
+### carlos forbs (N/A, Wed, 5 Nov 2025 13:20:00 -0800)
+
+- **Pasveer Blocks Two Turkish Goals; Forbs Puts Barcelona Behind**: [Link](https://emegypt.net/1032218)
+- **Club Brugge vs Barcelona: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cd7rre42zglt)
+- **Barcelona vs Club Brugge: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266666/barcelona-vs-club-brugge-match-preview-prediction/)
+
+
+### دوري الأبطال (N/A, Wed, 5 Nov 2025 12:40:00 -0800)
+
+- **كاراباج يجبر تشيلسي على التعادل بأبطال أوروبا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AC-%D9%8A%D8%AC%D8%A8%D8%B1-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84/bltd83eed987a911b2f)
+- **ماريسكا يعلق على التعادل ضد كاراباج وإصابة لافيا**: [Link](https://arabic.sport360.com/article/football/%D9%83%D8%B1%D8%A9-%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9/1350488/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B6%D8%AF-%D9%83%D8%A7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AC-%D9%88%D8%A5)
+- **إصابة جديدة لنجم تشيلسي قبل مواجهة قاراباغ**: [Link](https://www.arrajol.com/content/387934/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%86%D8%AC%D9%85-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%82%D8%A7%D8%B1%D8%A7%D8%A8%D8%A7%D8%BA)
+
+
 ### الإنتر ضد كيرات (N/A, Wed, 5 Nov 2025 13:20:00 -0800)
 
 - **القنوات الناقلة لمباراة إنتر ميلان ضد كايرات اليوم في دوري أبطال أوروبا مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/978398254687939-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B6%D8%AF-%D9%83%D8%A7%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
