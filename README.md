@@ -1,3 +1,24 @@
+### ترتيب دوري ابطال اوروبا (N/A, Wed, 5 Nov 2025 13:40:00 -0800)
+
+- **جدول مباريات اليوم الأربعاء 5 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-5-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt4d89a77868b9e794)
+- **ريال مدريد في أنفيلد لمواجهة ليفربول... وقمة بين بايرن وسان جيرمان**: [Link](https://www.alaraby.co.uk/sport/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A3%D9%86%D9%81%D9%8A%D9%84%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%82%D9%85%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+- **ترتيب دوري أبطال أوروبا بعد سقوط باريس سان جيرمان من القمة**: [Link](https://al-ain.com/article/psg-summit-ucl-table-2025-2026)
+
+
+### marseille vs atalanta (N/A, Wed, 5 Nov 2025 13:30:00 -0800)
+
+- **Marseille vs Atalanta – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266645/marseille-vs-atalanta-match-preview-prediction/)
+- **Champions League - OM: Good news, Nayef Aguerd finally in the squad**: [Link](https://foot-africa.com/en/news/champions-league-om-good-news-nayef-aguerd-finally-in-the-squad-948140/)
+- **'The sun will shine again' - Roberto De Zerbi 'not happy at all' as Marseille battle massive injury crisis ahead of Champions League clash**: [Link](https://au.sports.yahoo.com/sun-shine-again-roberto-zerbi-074126085.html)
+
+
+### برشلونة اليوم (N/A, Wed, 5 Nov 2025 13:10:00 -0800)
+
+- **"لقد كان سيئًا".. لابورتا يسخر من هزيمة ريال مدريد أمام ليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt99dc686a515d5f5e)
+- **برشلونة يحفظ ماء وجه الإسبان في الصراع الأزلي على الأفضلية أمام الإنجليز**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D9%81%D8%B8-%D9%85%D8%A7%D8%A1-%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%B1%D8%A7%D8%B9/)
+- **"لا احتفال دون ركلة جزاء".. مرشح سابق لرئاسة برشلونة يسخر من خسارة ريال مدريد أمام ليفربول!**: [Link](https://www.msn.com/ar-eg/news/other/%D9%84%D8%A7-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84-%D8%AF%D9%88%D9%86-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D9%85%D8%B1%D8%B4%D8%AD-%D8%B3%D8%A7%D8%A8%D9%82-%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/ar-AA1PQudk)
+
+
 ### newcastle (N/A, Wed, 5 Nov 2025 13:30:00 -0800)
 
 - **Newcastle United vs Athletic Club: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx2008e3jn7t)
