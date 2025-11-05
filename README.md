@@ -1,3 +1,10 @@
+### maroc telecom (N/A, Wed, 5 Nov 2025 15:40:00 -0800)
+
+- **Maroc Telecom abandonne son bleu historique pour le rouge**: [Link](https://medias24.com/2025/11/05/maroc-telecom-abandonne-son-bleu-historique-pour-le-rouge/)
+- **Maroc Telecom : un nouveau logo aperçu après une campagne de teasing nationale**: [Link](https://lnt.ma/maroc-telecom-un-nouveau-logo-apercu-apres-une-campagne-de-teasing-nationale/)
+- **Télécoms : une nouvelle identité visuelle pour l’opérateur historique**: [Link](https://leseco.ma/maroc/telecoms-une-nouvelle-identite-visuelle-pour-loperateur-historique.html)
+
+
 ### champions league 2025 (N/A, Wed, 5 Nov 2025 14:00:00 -0800)
 
 - **UEFA Champions League updates: Man City-Dortmund, Brugge-Barcelona**: [Link](https://www.espn.com/soccer/story/_/id/46836264/uefa-champions-league-updates-manchester-city-borussia-dortmund-club-brugge-fc-barcelona)
