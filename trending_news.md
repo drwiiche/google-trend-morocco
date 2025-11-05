@@ -1,3 +1,10 @@
+### champions (N/A, Tue, 4 Nov 2025 14:10:00 -0800)
+
+- **Who is Max Dowman, the Arsenal teenager who became Champions League’s youngest player? - The Athletic**: [Link](https://www.nytimes.com/athletic/6776326/2025/11/04/max-dowman-arsenal-champions-league-record/)
+- **Arsenal: Max Dowman becomes youngest player in Champions League**: [Link](https://www.bbc.com/sport/football/articles/c1d0k16n119o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D)
+- **Max Dowman: Arsenal boss Mikel Arteta hails personality and courage of 15-year-old as he becomes Champions League's youngest player**: [Link](https://www.skysports.com/football/news/11670/13463993/max-dowman-arsenal-boss-mikel-arteta-hails-personality-and-courage-of-15-year-old-as-he-becomes-champions-leagues-youngest-player)
+
+
 ### hibapress (N/A, Wed, 5 Nov 2025 01:00:00 -0800)
 
 - **الملك محمد السادس يستقبل الولاة والعمال الجدد المعينين بالإدارة الترابية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D9%85-2-1650670.html)
