@@ -1,3 +1,17 @@
+### fk qarabag – chelsea (N/A, Wed, 5 Nov 2025 09:00:00 -0800)
+
+- **Qarabag defender thinks he’s found a way to ‘exploit’ Chelsea in the Champions League**: [Link](https://www.thechelseachronicle.com/match-coverage/qarabag-defender-thinks-hes-found-a-way-to-exploit-chelsea-in-the-champions-league/)
+- **Chelsea’s Striker Dilemma: Can Young Talents Shine in Baku?**: [Link](https://bvmsports.com/2025/11/04/chelseas-striker-dilemma-can-young-talents-shine-in-baku/)
+- **Enzo Maresca expects a ‘tough game’ against Qarabag**: [Link](https://www.vavel.com/en/football/2025/11/05/chelsea-fc/1240271-enzo-maresca-expects-a-tough-game-against-qarabag.html)
+
+
+### حسنية أكادير ضد الوداد الرياضي (N/A, Wed, 5 Nov 2025 09:00:00 -0800)
+
+- **ما القنوات الناقلة لمباراة حسنية أكادير والوداد في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A7%D9%94%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltca87dcd8aeb238d3)
+- **بث مباشر .. الوداد الرياضي ضد حسنية أكادير**: [Link](https://snrtnews.com/live/bth-mbashr-alwdad-alryady-dd-hsnyt-akadyr-140759)
+- **زياش حاضر في ملعب البشير لمتابعة مباراة الوداد والحسنية 🔴🏟**: [Link](https://m.elbotola.com/video/details/690b63b2ab55023d59a90b31/)
+
+
 ### can 2025 (N/A, Wed, 5 Nov 2025 08:10:00 -0800)
 
 - **CAN 2025: Aymen Balbouli strengthens the Carthage Eagles’ staff**: [Link](https://ca.sports.yahoo.com/news/2025-aymen-balbouli-strengthens-carthage-131500794.html)
