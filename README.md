@@ -1,3 +1,30 @@
+### coupe du monde fifa u-17 (N/A, Thu, 6 Nov 2025 04:50:00 -0800)
+
+- **Coupe du Monde U17 Qatar 2025 : Le Mali brille, le Burkina Faso et l’Ouganda déçoivent**: [Link](https://www.afrik.com/coupe-du-monde-u17-qatar-2025-le-mali-brille-le-burkina-faso-et-l-ouganda-decoivent)
+- **DIRECT. Mali (u17)-Nouvelle-Zélande (u17) (Coupe du monde (-17) 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-monde-17/2025/mali-u17-nouvelle-zelande-u17-live/686402)
+- **Mondial U17 : Talla Ndiaye, la muraille sénégalaise de la première journée**: [Link](https://foot-africa.com/actualites/mondial-u17-talla-ndiaye-la-muraille-senegalaise-de-la-premiere-journee-949406/)
+
+
+### u17 world cup 2025 (N/A, Thu, 6 Nov 2025 04:30:00 -0800)
+
+- **The stars of tomorrow: Future players to keep an eye on at the U17 World Cup**: [Link](https://www.transfermarkt.com/the-stars-of-tomorrow-future-players-to-keep-an-eye-on-at-the-u17-world-cup/view/news/462525)
+- **Inacio on Italy belief and vibrant Qatar atmosphere at U-17 World Cup| Gulf Times**: [Link](https://www.gulf-times.com/article/714334/sports/inacio-on-italy-belief-and-vibrant-qatar-atmosphere-at-u-17-world-cup)
+- **The second round of matches at the U-17 World Cup is starting in Qatar**: [Link](https://zamin.uz/en/sport/167403-the-second-round-of-matches-at-the-u-17-world-cup-is-starting-in-qatar.html)
+
+
+### jackie chan (N/A, Thu, 6 Nov 2025 04:30:00 -0800)
+
+- **Kazakh actor Rustem Omarov joins Jackie Chan’s “Armour of God: Ultimatum”**: [Link](https://qazinform.com/news/kazakh-actor-rustem-omarov-joins-jackie-chans-armour-of-god-ultimatum-0b2123)
+- **Omarov to Star alongside Jackie Chan in "Armour of God: Ultimatum"**: [Link](https://news.ssbcrack.com/omarov-to-star-alongside-jackie-chan-in-armour-of-god-ultimatum/)
+
+
+### portugal u-17 vs morocco u-17 (N/A, Thu, 6 Nov 2025 04:20:00 -0800)
+
+- **Morocco U17 vs Portugal U17- When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/266732/morocco-u17-vs-portugal-u17-when-how-to-watch/)
+- **Portugal vs Morocco: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/portugal-vs-morocco-how-watch-u-17-world-cup-preview)
+- **How to watch Portugal U17 vs Morocco U17 Live Stream for free?**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-portugal-u17-vs-morocco-u17-live-stream-6th-november-2025)
+
+
 ### البرتغال تحت 17 ضد المغرب تحت 17 سنة (N/A, Thu, 6 Nov 2025 04:00:00 -0800)
 
 - **"أشبال U17" أمام تحدي البرتغال**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-u17-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D8%AD%D8%AF%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-1651070.html)
