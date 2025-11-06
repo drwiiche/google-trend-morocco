@@ -1,3 +1,17 @@
+### stuttgart – feyenoord (N/A, Thu, 6 Nov 2025 12:10:00 -0800)
+
+- **“Make the most of our good home form”**: [Link](https://www.vfb.de/en/vfb/latest/news/professionals/2526/pressekonferenz-vor-vfb-stuttgart---rotterdam-/)
+- **Confirmed lineups: VfB Stuttgart vs. Feyenoord**: [Link](https://bulinews.com/confirmed-lineups-vfb-stuttgart-feyenoord)
+- **Stuttgart back on continental trail**: [Link](https://www.bundesliga.com/en/bundesliga/news/stuttgart-feyenoord-live-europa-league-preview-van-persie-ueda-timber-34592)
+
+
+### betis – lyon (N/A, Thu, 6 Nov 2025 11:10:00 -0800)
+
+- **Real Betis vs Lyon: Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/266830/real-betis-vs-lyon-match-preview-prediction/)
+- **Betis Sevilla-Lyon live commentary**: [Link](https://frenchfootballweekly.com/2025/11/06/betis-sevilla-lyon-live-commentary/)
+- **💚 Nabil Fekir, the face of Betis ahead of the Lyon clash**: [Link](https://onefootball.com/fr/news/nabil-fekir-the-face-of-betis-ahead-of-the-lyon-clash-41911392)
+
+
 ### ريال بتيس ضد أولمبيك ليون (N/A, Thu, 6 Nov 2025 12:00:00 -0800)
 
 - **موعد مباراة ريال بيتيس ضد ليون في الدوري الأوروبي والقنوات الناقلة**: [Link](https://www.elfagr.org/5247140)
