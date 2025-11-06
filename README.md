@@ -1,3 +1,24 @@
+### ريال بتيس ضد أولمبيك ليون (N/A, Thu, 6 Nov 2025 12:00:00 -0800)
+
+- **موعد مباراة ريال بيتيس ضد ليون في الدوري الأوروبي والقنوات الناقلة**: [Link](https://www.elfagr.org/5247140)
+- **مباريات اليوم في الدوري الأوروبي وتفاصيل القنوات الناقلة**: [Link](https://ar.alaann.press/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%88%D8%AA%D9%81%D8%A7/)
+- **بث مباشر بجودة عالية..مباراة ريال بيتيس ضد ليون اليوم في بطولة الدوري الأوروبي**: [Link](https://www.almashhad.news/351506)
+
+
+### glasgow rangers – roma (N/A, Thu, 6 Nov 2025 11:50:00 -0800)
+
+- **Europa League: Rangers host Serie A side Roma at Ibrox**: [Link](https://www.bbc.com/sport/football/live/c78ze02g8ekt)
+- **Mancini: “I like Gasperini’s football.”**: [Link](https://romapress.net/mancini-i-like-gasperinis-football/)
+- **Pundits left debating over Jekyll and Hyde Rangers summer signing as Wolves loanee faces possible drop vs Roma**: [Link](https://www.glasgowworld.com/sport/football/rangers/pundits-debating-rangers-summer-signing-wolves-loanee-5390484)
+
+
+### dinamo zagreb – celta vigo (N/A, Thu, 6 Nov 2025 09:10:00 -0800)
+
+- **LIVE/FREE: Dinamo Zagreb vs Celta LIVE STREA.MS On UEFA EUROPA LEAGUE 06.11.2025**: [Link](https://www.sooleader.com/classifieds/announcements-and-events/congratulations-and-thank-yous/2046447)
+- **Football Bet of the Day: Go for goals in Zagreb on Thursday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-go-for-goals-in-zagreb-on-thursday/)
+- **Dinamo Zagreb vs Celta LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/06/1240278-dinamo-zagreb-vs-celta-live-score-europa-league.html)
+
+
 ### aston villa – m. tel-aviv (N/A, Thu, 6 Nov 2025 11:30:00 -0800)
 
 - **Schools around Villa Park will close early before powder-keg Maccabi Tel Aviv match**: [Link](https://www.telegraph.co.uk/football/2025/11/05/schools-around-villa-park-close-early-maccabi-tel-aviv/)
