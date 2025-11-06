@@ -1,3 +1,15 @@
+### البرتغال تحت 17 ضد المغرب تحت 17 سنة (N/A, Thu, 6 Nov 2025 04:00:00 -0800)
+
+- **"أشبال U17" أمام تحدي البرتغال**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-u17-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D8%AD%D8%AF%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-1651070.html)
+- **باها يغير في التشكيل الرسمي لمواجهة البرتغال**: [Link](https://www.almountakhab.com/node/16219335)
+- **الموعد والقنوات الناقلة لمباراة المغرب والبرتغال في كأس العالم لأقل من 17 سنة**: [Link](https://ar.lesiteinfo.com/sport/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA-65-967395.html)
+
+
+### portugal u-17 – maroc u-17 (N/A, Thu, 6 Nov 2025 03:50:00 -0800)
+
+
+
+
 ### maroc vs portugal u17 (N/A, Thu, 6 Nov 2025 02:40:00 -0800)
 
 - **Morocco U17 vs Portugal U17- When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/266732/morocco-u17-vs-portugal-u17-when-how-to-watch/)
