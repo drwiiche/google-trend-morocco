@@ -1,3 +1,10 @@
+### marche verte maroc (N/A, Thu, 6 Nov 2025 00:00:00 -0800)
+
+- **La Marche verte, symbole d’un Royaume aspirant à la liberté et au progrès**: [Link](https://lematin.ma/nation/la-marche-verte-symbole-dun-royaume-aspirant-a-la-liberte-et-au-progres/312090)
+- **Les FAR organisent une journée commémorative à l’occasion du 50ème anniversaire de la Marche verte**: [Link](https://fr.le360.ma/politique/les-far-organisent-une-journee-commemorative-a-loccasion-du-50eme-anniversaire-de-la-marche-verte_JJUZLTIVURBMXHTGI6AY3SQBKU/)
+- **La Marche Verte, 50 ans après : le pari économique du Maroc dans ses Provinces du Sud**: [Link](https://fr.hespress.com/448578-la-marche-verte-50-ans-apres-le-pari-economique-du-maroc-dans-ses-provinces-du-sud.html)
+
+
 ### الطقس اليوم (N/A, Wed, 5 Nov 2025 22:30:00 -0800)
 
 - **أمطار على هذه الأماكن.. الأرصاد تكشف حالة الطقس المتوقعة غدًا**: [Link](https://www.almasryalyoum.com/news/details/3593279)
