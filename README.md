@@ -1,3 +1,10 @@
+### as far – fus rabat (N/A, Thu, 6 Nov 2025 12:30:00 -0800)
+
+- **Ajax Amsterdam 0-3 Galatasaray, Ligue des champions : résumé du match (05/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/ajax-amsterdam-galatasaray-live/685554)
+- **Despina Papamichail - Tina Smith, WTA 125, Tucuman, Deuxième tour, Jeudi 06 novembre 2025**: [Link](https://www.lequipe.fr/Tennis/tucuman/epreuve-simple-dames/annee-2025/match-direct/despina-papamichail-tina-smith-live/405193)
+- **Rayo Vallecano 3-2 Lech Poznan, Ligue Conference : résumé du match (06/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-conference/2025-2026/rayo-vallecano-lech-poznan-live/685828)
+
+
 ### 5g maroc (N/A, Thu, 6 Nov 2025 15:20:00 -0800)
 
 
