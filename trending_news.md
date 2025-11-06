@@ -1,3 +1,32 @@
+### aston villa – m. tel-aviv (N/A, Thu, 6 Nov 2025 11:30:00 -0800)
+
+- **Schools around Villa Park will close early before powder-keg Maccabi Tel Aviv match**: [Link](https://www.telegraph.co.uk/football/2025/11/05/schools-around-villa-park-close-early-maccabi-tel-aviv/)
+- **Unai Emery makes clear Aston Villa’s European
+objectives**: [Link](https://www.vavel.com/en/football/2025/11/06/aston-villa/1240419-unai-emery-makes-clear-aston-villas-europeanobjectives.html)
+- **Maccabi Tel Aviv fans banned in Birmingham – Jewish lawyer calls it shameful**: [Link](https://www.israelhayom.com/2025/11/06/maccabi-tel-aviv-birmingham-ban-selwyn-tash-aston-villa/)
+
+
+### rayo – lech poznań (N/A, Thu, 6 Nov 2025 11:30:00 -0800)
+
+- **Lech stracił więcej, niż tylko dobrą twarz. Nadzwyczajna stawka meczu z Rayo**: [Link](https://sport.interia.pl/pilka-nozna/liga-konferencji/news-lech-stracil-wiecej-niz-tylko-dobra-twarz-nadzwyczajna-stawk,nId,22451686)
+- **Podoliński szczerze o polskiej piłce: mamy piękne sceny dla kiepskich aktorów [WIDEO]**: [Link](https://sport.tvp.pl/89887129/podolinski-szczerze-o-polskiej-pilce-mamy-piekne-sceny-dla-kiepskich-aktorow-wideo)
+- **Skład Lecha Poznań na mecz w Madrycie**: [Link](https://www.lechpoznan.pl/news,2,sklad-lecha-poznan-na-mecz-w-madrycie,46707.html)
+
+
+### viktoria plzen – fenerbahçe (N/A, Thu, 6 Nov 2025 11:30:00 -0800)
+
+- **Fenerbahçe, Avrupa’da 294. sınavında**: [Link](https://dogus.nl/fenerbahce-avrupada-294-sinavinda/)
+- **TRT 1 Canlı İzle 6 Kasım: Viktoria Plzen - Fenerbahçe FB maçı tabii spor canlı yayın izle! Fenerbahçe Avrupa'da galibiyet arıyor**: [Link](https://www.yenisafak.com/foto-galeri/ozgun/trt-1-canli-izle-6-kasim-viktoria-plzen-fenerbahce-fb-maci-tabii-spor-canli-yayin-izle-fenerbahce-avrupada-galibiyet-ariyor-4766213)
+- **Spor Bülteni - 6 Kasım 2025 (Fenerbahçe EuroLeague'de Seri Peşinde)**: [Link](https://www.haberturk.com/video/tv/izle/spor-bulteni-6-kasim-2025-fenerbahce-euroleaguede-seri-pesinde/894215)
+
+
+### lille fc (N/A, Thu, 6 Nov 2025 11:30:00 -0800)
+
+- **Is FK Crvena Zvezda VS Lille Live on TV Tonight?**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-fk-crvena-zvezda-vs-lille-6th-november-2025)
+- **Serbia Soccer Europa League**: [Link](https://www.hjnews.com/sports/nation/serbia-soccer-europa-league/image_1e2ba266-eaf4-5b9d-bfaf-61fbf1e62c50.html)
+- **LIVE/FREE: Lille vs Red Star Belgrade LIVE STREA.MS On UEFA EUROPA LEAGUE 06.11.2025**: [Link](https://www.sooleader.com/classifieds/announcements-and-events/congratulations-and-thank-yous/2046446)
+
+
 ### plus belle la vie encore plus belle (N/A, Thu, 6 Nov 2025 11:20:00 -0800)
 
 - **Plus Belle la Vie en avance : mensonges, chantages et mauvaises nouvelles secouent le Mistral dans l'épisode du 7 novembre**: [Link](https://www.pleinevie.fr/loisirs/tele-radio/plus-belle-la-vie-en-avance-mensonges-chantages-et-mauvaises-nouvelles-secouent-le-mistral-dans-lepisode-du-7-novembre-176965.html)
