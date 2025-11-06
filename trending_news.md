@@ -1,3 +1,10 @@
+### gta 6 (N/A, Thu, 6 Nov 2025 13:50:00 -0800)
+
+- **Grand Theft Auto 6 has been delayed again to the end of 2026**: [Link](https://www.videogameschronicle.com/news/grand-theft-auto-6-has-been-delayed-again-to-the-end-of-2026/)
+- **After sending fans into a frenzy with a GTA 6 PlayStation Store update, Rockstar has removed the GTA+ ad that had hopefuls convinced trailer 3 was imminent**: [Link](https://www.gamesradar.com/games/grand-theft-auto/after-sending-fans-into-a-frenzy-with-a-gta-6-playstation-store-update-rockstar-has-removed-the-gta-ad-that-had-hopefuls-convinced-trailer-3-was-imminent/)
+- **Take-Two Interactive shares plummet more than 10% on news of another Grand Theft Auto 6 delay**: [Link](https://www.cnbc.com/video/2025/11/06/take-two-interactive-shares-plummet-more-than-10-percent-on-news-of-another-grand-theft-auto-6-delay.html)
+
+
 ### betis (N/A, Thu, 6 Nov 2025 13:00:00 -0800)
 
 - **Real Betis - Lyon, en directo: Europa League hoy, en vivo**: [Link](https://as.com/futbol/uefa/real-betis-lyon-en-directo-europa-league-hoy-en-vivo-f202511-d/)
