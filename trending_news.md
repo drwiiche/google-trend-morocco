@@ -1,3 +1,38 @@
+### sturm graz – nottm forest (N/A, Thu, 6 Nov 2025 09:10:00 -0800)
+
+- **Team news - Sturm Graz v Nottingham Forest - Europa League**: [Link](https://www.nottinghamforest.co.uk/news/2025/november/06/team-news---kalimeundo-makes-first-forest-start/)
+- **Nottingham Forest: Colin Fray on injuries facing Sean Dyche**: [Link](https://www.bbc.com/sport/football/articles/c4gw5qyedy8o)
+- **Sturm vs Nottingham LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/06/1240373-sturm-vs-nottingham-live-score-europa-league.html)
+
+
+### novak djokovic (N/A, Thu, 6 Nov 2025 09:10:00 -0800)
+
+- **Sinner, Alcaraz learn Nitto ATP Finals draw fate**: [Link](https://www.atptour.com/en/news/nitto-atp-finals-2025-draw)
+- **How to Stream the 2025 ATP Finals from Turin**: [Link](https://tennisconnected.com/how-to-stream-the-2025-atp-finals-from-turin/)
+- **Here are the doubles tournament groups for the ATP Finals 2025**: [Link](https://www.puntodebreak.com/en/2025/11/06/here-are-the-doubles-tournament-groups-for-the-atp-finals-2025)
+
+
+### étoile rouge – lille (N/A, Thu, 6 Nov 2025 09:00:00 -0800)
+
+- **Bruno Genesio reçoit une très mauvaise nouvelle, le LOSC obligé de recruter ?**: [Link](https://www.jeunesfooteux.com/Bruno-Genesio-recoit-une-tres-mauvaise-nouvelle-le-LOSC-oblige-de-recruter_a77946.html)
+- **Etoile Rouge Belgrade - Lille : sur quelle chaîne et à quelle heure voir le match d’Europa League en direct ?**: [Link](https://www.ouest-france.fr/sport/football/lille-osc/etoile-rouge-belgrade-lille-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-deuropa-league-en-direct-f6b0a3e4-ba55-11f0-b227-510f72443e00)
+- **Ligue Europa : peu de supporters lillois font le déplacement pour le match Etoile Rouge de Belgrade-Lille**: [Link](https://www.francebleu.fr/emissions/l-info-d-ici-ici-nord/le-tailleur-lillois-jean-laumet-a-la-rescousse-du-comedien-vincent-dedienne-9112339)
+
+
+### sahara marocaine (N/A, Thu, 6 Nov 2025 09:00:00 -0800)
+
+- **La Marche verte, symbole d’un Royaume aspirant à la liberté et au progrès**: [Link](https://lematin.ma/nation/la-marche-verte-symbole-dun-royaume-aspirant-a-la-liberte-et-au-progres/312090)
+- **Cinquante ans après…**: [Link](https://telquel.ma/2025/11/06/cinquante-ans-apres_1959824)
+- **Les FAR organisent une journée commémorative à l’occasion du 50ème anniversaire de la Marche verte**: [Link](https://fr.le360.ma/politique/les-far-organisent-une-journee-commemorative-a-loccasion-du-50eme-anniversaire-de-la-marche-verte_JJUZLTIVURBMXHTGI6AY3SQBKU/)
+
+
+### world cup u17 (N/A, Thu, 6 Nov 2025 05:30:00 -0800)
+
+- **United Arab Emirates vs Croatia: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/united-arab-emirates-vs-croatia-how-watch-u-17-world-cup-preview)
+- **FIFA U-17 World Cup: Croatia gets first victory**: [Link](https://www.croatiaweek.com/fifa-u-17-world-cup-croatia-gets-first-victory/)
+- **WATCH: Highlights from New Zealand’s loss to Mali at FIFA U-17 World Cup**: [Link](https://www.friendsoffootballnz.com/2025/11/06/watch-highlights-from-new-zealands-loss-to-mali-at-fifa-u-17-world-cup/)
+
+
 ### morocco vs portugal u17 (N/A, Thu, 6 Nov 2025 05:10:00 -0800)
 
 - **Morocco U17 Fall to Portugal U17, Losing 6–0 in Group Match**: [Link](https://www.moroccoworldnews.com/2025/11/266772/morocco-u17-fall-to-portugal-u17-losing-6-0-in-group-match/)
