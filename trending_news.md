@@ -1,3 +1,10 @@
+### iam (N/A, Wed, 5 Nov 2025 16:10:00 -0800)
+
+- **Can’t Stop, Won’t Stop: IAM Transportation Moves North America**: [Link](https://www.goiam.org/news/imail/cant-stop-wont-stop-iam-transportation-moves-north-america/)
+- **Union leaders pan new Quebec bill that makes some union dues optional**: [Link](https://www.cbc.ca/news/canada/montreal/quebec-labour-minister-bill-3-9.6960738)
+- **Leading the Way: We Are Under Attack Like Never Before**: [Link](https://teamsters.ca/blog/2025/11/01/leading-the-way-we-are-under-attack-like-never-before/)
+
+
 ### maroc telecom (N/A, Wed, 5 Nov 2025 15:40:00 -0800)
 
 - **Maroc Telecom abandonne son bleu historique pour le rouge**: [Link](https://medias24.com/2025/11/05/maroc-telecom-abandonne-son-bleu-historique-pour-le-rouge/)
