@@ -1,3 +1,10 @@
+### كاس العالم تحت 17 (N/A, Thu, 6 Nov 2025 05:50:00 -0800)
+
+- **شاهد.. فوز تونس وهزيمة المغرب وقطر في كأس العالم للناشئين**: [Link](https://www.aljazeera.net/sport/2025/11/3/%D8%B4%D8%A7%D9%87%D8%AF-%D9%81%D9%88%D8%B2-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%82%D8%B7%D8%B1-%D9%81%D9%8A)
+- **أفضلهم مصر وتونس.. ماذا قدمت المنتخبات العربية في افتتاح مباريات كأس العالم للناشئين 2025؟**: [Link](https://www.almasryalyoum.com/news/details/3592640)
+- **المساكني يلهم لاعبي تونس بمونديال الناشئين في قطر**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D9%83%D9%86%D9%8A-%D9%8A%D9%84%D9%87%D9%85-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%AA%D9%88%D9%86%D8%B3-%D8%A8%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86-%D9%81%D9%8A-%D9%82%D8%B7%D8%B1)
+
+
 ### u17 world cup (N/A, Thu, 6 Nov 2025 05:20:00 -0800)
 
 - **WATCH: Highlights from New Zealand’s loss to Mali at FIFA U-17 World Cup**: [Link](https://www.friendsoffootballnz.com/2025/11/06/watch-highlights-from-new-zealands-loss-to-mali-at-fifa-u-17-world-cup/)
