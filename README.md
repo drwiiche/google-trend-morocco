@@ -1,3 +1,10 @@
+### crystal palace – az (N/A, Thu, 6 Nov 2025 11:40:00 -0800)
+
+- **Crystal Palace vs AZ: Confirmed team news**: [Link](https://www.bbc.com/sport/football/articles/c5y09940e4do)
+- **Europa League Soccer: Livestream Crystal Palace vs. AZ Alkmaar Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/europa-league-soccer-livestream-crystal-palace-vs-az-alkmaar-live-from-anywhere/)
+- **Glasner explains Crystal Palace team selection for Conference League**: [Link](https://www.standard.co.uk/sport/football/crystal-palace-glasner-explains-conference-league-selection-b1256863.html)
+
+
 ### stuttgart – feyenoord (N/A, Thu, 6 Nov 2025 12:10:00 -0800)
 
 - **“Make the most of our good home form”**: [Link](https://www.vfb.de/en/vfb/latest/news/professionals/2526/pressekonferenz-vor-vfb-stuttgart---rotterdam-/)
