@@ -1,3 +1,17 @@
+### u17 world cup (N/A, Thu, 6 Nov 2025 05:20:00 -0800)
+
+- **WATCH: Highlights from New Zealand’s loss to Mali at FIFA U-17 World Cup**: [Link](https://www.friendsoffootballnz.com/2025/11/06/watch-highlights-from-new-zealands-loss-to-mali-at-fifa-u-17-world-cup/)
+- **U17 World Cup: Mali stuns as Morocco, Senegal to feature Thursday**: [Link](https://apanews.net/u17-world-cup-mali-stuns-as-morocco-senegal-to-feature-thursday/)
+- **FIFA U17 WORLD CUP FIFAU17WC: Mali off to a flying start**: [Link](https://en.africatopsports.com/2025/11/05/fifau17wc-mali-off-to-a-flying-start/)
+
+
+### coupe du monde u17 2025 (N/A, Thu, 6 Nov 2025 05:10:00 -0800)
+
+- **Autriche (u17) 1-0 Arabie Saoudite (u17), Coupe du monde (-17) : résumé du match (05/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-monde-17/2025/autriche-u17-arabie-saoudite-u17-live/686401)
+- **René Mitongo aurait pu devenir le futur Kompany mais il rêve maintenant de devenir le prochain Romelu Lukaku : "Je vise 5-6 buts au Qatar avec les U17"**: [Link](https://www.dhnet.be/sports/football/diablesrouges/2025/11/06/rene-mitongo-aurait-pu-devenir-le-futur-kompany-mais-il-reve-maintenant-de-devenir-le-prochain-romelu-lukaku-je-vise-5-6-buts-au-qatar-avec-les-u17-RATRP5BHPVEDXCTYX6IDOPB4ZA/)
+- **"Un pied gauche extraordinaire", "un magicien" ou "un buteur qui pèse": qui sont les 21 joueurs belges qui disputent la Coupe du monde U17**: [Link](https://www.lavenir.net/sports/football/2025/11/03/un-pied-gauche-extraordinaire-un-magicien-ou-un-buteur-qui-pese-qui-sont-les-21-joueurs-belges-qui-disputent-la-coupe-du-monde-u17-HY4A7O2P3VCHTLOBTDEY4D5BNA/)
+
+
 ### coupe du monde fifa u-17 (N/A, Thu, 6 Nov 2025 04:50:00 -0800)
 
 - **Coupe du Monde U17 Qatar 2025 : Le Mali brille, le Burkina Faso et l’Ouganda déçoivent**: [Link](https://www.afrik.com/coupe-du-monde-u17-qatar-2025-le-mali-brille-le-burkina-faso-et-l-ouganda-decoivent)
