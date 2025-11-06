@@ -1,3 +1,10 @@
+### plus belle la vie encore plus belle (N/A, Thu, 6 Nov 2025 11:20:00 -0800)
+
+- **Plus Belle la Vie en avance : mensonges, chantages et mauvaises nouvelles secouent le Mistral dans l'épisode du 7 novembre**: [Link](https://www.pleinevie.fr/loisirs/tele-radio/plus-belle-la-vie-en-avance-mensonges-chantages-et-mauvaises-nouvelles-secouent-le-mistral-dans-lepisode-du-7-novembre-176965.html)
+- **Plus Belle La Vie, Encore Plus Belle : "Je suis enceinte…" Le résumé du 06 novembre (SPOILERS)**: [Link](https://www.programme-television.org/news/series/series-quotidiennes/plus-belle-la-vie-encore-plus-belle-je-suis-enceinte-le-resume-du-06-novembre-spoilers-4747113)
+- **Plus belle la vie en avance : résumé de l'épisode 459 du vendredi 7 nomvembre**: [Link](https://www.melty.fr/series/plus-belle-la-vie-en-avance-resume-de-lepisode-459-du-vendredi-7-nomvembre-2273534.html)
+
+
 ### europa league (N/A, Thu, 6 Nov 2025 10:40:00 -0800)
 
 - **Maccabi Tel Aviv chief wants to keep football and politics apart**: [Link](https://www.bbc.com/sport/football/articles/c781xdjn0qwo)
