@@ -1,3 +1,10 @@
+### maroc vs portugal u17 (N/A, Thu, 6 Nov 2025 02:40:00 -0800)
+
+- **Morocco U17 vs Portugal U17- When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/266732/morocco-u17-vs-portugal-u17-when-how-to-watch/)
+- **Portugal vs Morocco: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/portugal-vs-morocco-how-watch-u-17-world-cup-preview)
+- **How to watch Portugal U17 vs Morocco U17 Live Stream for free?**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-portugal-u17-vs-morocco-u17-live-stream-6th-november-2025)
+
+
 ### الملك محمد السادس (N/A, Thu, 6 Nov 2025 02:30:00 -0800)
 
 - **الأمم المتحدة تترقب نسخة جديدة من خطة المغرب للصحراء**: [Link](https://www.alarabiya.net/north-africa/morocco/2025/11/06/%D8%A7%D9%84%D8%A7%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%AA%D8%AA%D8%B1%D9%82%D8%A8-%D9%86%D8%B3%D8%AE%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D8%AE%D8%B7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-)
