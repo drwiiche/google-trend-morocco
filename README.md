@@ -1,3 +1,10 @@
+### عاصفة جيومغناطيسية (N/A, Thu, 6 Nov 2025 14:50:00 -0800)
+
+- **عاصفة جيومغناطيسية تضرب الأرض خلال ساعات.. وتأهب عالمي**: [Link](https://www.alarabiya.net/science/2025/11/06/%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%AC%D9%8A%D9%88%D9%85%D8%BA%D9%86%D8%A7%D8%B7%D9%8A%D8%B3%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AC%D9%87-%D9%84%D9%84%D8%A7%D8%B1%D8%B6-%D8%AE%D9%84%D8%A7%D9%84-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D9%88%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%88%D8%AA%D8%A7%D9%87%D8%A8-%D8%B9%D8%A7%D9%84%D9%85%D9%8A)
+- **علماء الفضاء يحذرون من عاصفة مغناطيسية تصل إلى الأرض مساء اليوم**: [Link](https://www.aljazeera.net/science/2025/11/6/%D8%B9%D9%84%D9%85%D8%A7%D8%A1-%D9%8A%D8%AD%D8%B0%D8%B1%D9%88%D9%86-%D9%85%D9%86-%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D9%85%D8%BA%D9%86%D8%A7%D8%B7%D9%8A%D8%B3%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84)
+- **من 24 لـ 48 ساعة.. تحذير من عاصفة جيومغناطيسية قوية تتجه نحو الأرض (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/3593840)
+
+
 ### real betis (N/A, Thu, 6 Nov 2025 12:50:00 -0800)
 
 - **Cucho Hernández hoy: Por qué no juega en el Betis vs Lyon por Europa League**: [Link](https://www.365scores.com/es/news/cucho-hernandez-no-juega-vs-lyon-europa/)
