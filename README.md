@@ -1,3 +1,22 @@
+### marche verte (N/A, Thu, 6 Nov 2025 00:30:00 -0800)
+
+- **La Marche verte, symbole d’un Royaume aspirant à la liberté et au progrès**: [Link](https://lematin.ma/nation/la-marche-verte-symbole-dun-royaume-aspirant-a-la-liberte-et-au-progres/312090)
+- **Les FAR organisent une journée commémorative à l’occasion du 50ème anniversaire de la Marche verte**: [Link](https://fr.le360.ma/politique/les-far-organisent-une-journee-commemorative-a-loccasion-du-50eme-anniversaire-de-la-marche-verte_JJUZLTIVURBMXHTGI6AY3SQBKU/)
+- **La Marche Verte, 50 ans après : le pari économique du Maroc dans ses Provinces du Sud**: [Link](https://fr.hespress.com/448578-la-marche-verte-50-ans-apres-le-pari-economique-du-maroc-dans-ses-provinces-du-sud.html)
+
+
+### revolut maroc (N/A, Wed, 5 Nov 2025 23:20:00 -0800)
+
+
+
+
+### inter vs kairat (N/A, Wed, 5 Nov 2025 14:00:00 -0800)
+
+- **Inter Milan survive scare against Kairat to win**: [Link](https://www.bbc.com/sport/football/live/c70jje91lx1t)
+- **Where to stream Inter vs. Kairat Almaty Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-inter-vs-kairat-almaty-champions-league-match-free-today.html)
+- **'We need to prove ourselves every time' – Carlos Augusto urges Inter to stay ruthless**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/we-need-to-prove-ourselves-every-time--carlos-augusto-urges-inter-to-stay-ruthless-2025-11-05)
+
+
 ### marche verte maroc (N/A, Thu, 6 Nov 2025 00:00:00 -0800)
 
 - **La Marche verte, symbole d’un Royaume aspirant à la liberté et au progrès**: [Link](https://lematin.ma/nation/la-marche-verte-symbole-dun-royaume-aspirant-a-la-liberte-et-au-progres/312090)
