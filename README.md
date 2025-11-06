@@ -1,3 +1,10 @@
+### mainz 05 – fiorentina (N/A, Thu, 6 Nov 2025 10:10:00 -0800)
+
+- **UEFA Conference League Matchday 3: What to look out for**: [Link](https://www.uefa.com/uefaconferenceleague/news/029e-1f14e7f49295-47e570e9d2d9-1000--uefa-conference-league-matchday-3-what-to-look-out-for/)
+- **Conference League: Mainz vs. Fiorentina – Probable line-ups and where to watch**: [Link](https://football-italia.net/uecl-mainz-vs-fiorentina-probable-line-ups/)
+- **Mandragora: "It's up to us to get out of this situation. Our relationship with Pioli? Good."**: [Link](https://sport.quotidiano.net/en/calcio/fiorentina/mandragora-sta-a-noi-uscire-da-questa-situazione-il-rapporto-con-pioli-buono-508d3f08)
+
+
 ### sturm graz – nottm forest (N/A, Thu, 6 Nov 2025 09:10:00 -0800)
 
 - **Team news - Sturm Graz v Nottingham Forest - Europa League**: [Link](https://www.nottinghamforest.co.uk/news/2025/november/06/team-news---kalimeundo-makes-first-forest-start/)
