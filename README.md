@@ -1,3 +1,10 @@
+### morocco vs portugal u17 (N/A, Thu, 6 Nov 2025 05:10:00 -0800)
+
+- **Morocco U17 Fall to Portugal U17, Losing 6–0 in Group Match**: [Link](https://www.moroccoworldnews.com/2025/11/266772/morocco-u17-fall-to-portugal-u17-losing-6-0-in-group-match/)
+- **How to watch Portugal U17 vs Morocco U17 in the USA: Live Stream and TV for 2025 U17 World Cup**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-portugal-u17-vs-morocco-u17-in-the-usa-live-stream-and-tv-for-2025-u17-world-cup/)
+- **Portugal 6-0 Morocco - Bino Maçães’ side cruise to a comfortable victory at the 2025 FIFA U17 World Cup**: [Link](https://onefootball.com/en/news/portugal-6-0-morocco-bino-macaes-side-cruise-to-a-comfortable-victory-at-the-2025-fifa-u17-world-cup-41913133)
+
+
 ### كاس العالم تحت 17 (N/A, Thu, 6 Nov 2025 05:50:00 -0800)
 
 - **شاهد.. فوز تونس وهزيمة المغرب وقطر في كأس العالم للناشئين**: [Link](https://www.aljazeera.net/sport/2025/11/3/%D8%B4%D8%A7%D9%87%D8%AF-%D9%81%D9%88%D8%B2-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%82%D8%B7%D8%B1-%D9%81%D9%8A)
