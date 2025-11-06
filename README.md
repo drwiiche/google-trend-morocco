@@ -1,3 +1,16 @@
+### طقس (N/A, Wed, 5 Nov 2025 23:20:00 -0800)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-54-1651468.html)
+- **الأرصاد الجوية لـ”كود”: الطقس ف بلادنا غادي يكون مرة مستقر ومرة مشتوي شوية وها تفاصيل الحالة الجوية هاد السيمانة**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%84%D9%80%D9%83%D9%88%D8%AF-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%81-%D8%A8%D9%84%D8%A7%D8%AF%D9%86%D8%A7-%D8%BA-984254/)
+- **طقس الخميس.. توقع نزول أمطار ضعيفة**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%BA%D8%A7%D8%A6%D9%85-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3/)
+
+
+### حالة الطقس (N/A, Wed, 5 Nov 2025 23:10:00 -0800)
+
+- **درجات الحرارة المتوقعة اليوم الأحد 2 نوفمبر.. انخفاض بحرارة الجو ليلا**: [Link](https://m2.youm7.com/story/2025/11/2/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-2-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%A8%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D9%88/7180699)
+- **تغيرات مفاجئة في طقس الأحد.. شبورة كثيفة وأمطار متفرقة وتحذيرات من الأرصاد**: [Link](https://www.altreeq.com/521494)
+
+
 ### dortmund (N/A, Wed, 5 Nov 2025 13:50:00 -0800)
 
 - **Kein Abgang im Winter: BVB-Boss mit Machtwort bei DFB-Stars**: [Link](https://www.t-online.de/sport/fussball/bundesliga/id_100987568/bvb-kehl-spricht-machtwort-bei-adeyemi-schlotterbeck-und-nmecha.html)
