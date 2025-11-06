@@ -1,3 +1,10 @@
+### olivier rousteing (N/A, Wed, 5 Nov 2025 23:20:00 -0800)
+
+- **Les créations les plus mémorables d'Olivier Rousteing pour Balmain**: [Link](https://www.elle.fr/Mode/La-mode-des-stars/Les-creations-les-plus-memorables-d-Olivier-Rousteing-pour-Balmain)
+- **Un nom emblématique du monde de la mode quitte la maison qui l'a recruté il y a seize ans, Brigitte Macron a porté ses créations**: [Link](https://www.purepeople.com/article/un-nom-emblematique-du-monde-de-la-mode-quitte-la-maison-qui-la-recrute-il-y-a-seize-ans-brigitte-macron-a-porte-ses-creations_a544345/1)
+- **Olivier Rousteing quitte Balmain : de Brigitte Macron à Jenna Ortega... ces célébrités lui ont fait confiance**: [Link](https://www.gala.fr/mode/les_stars_et_la_mode/olivier-rousteing-quitte-balmain-de-brigitte-macron-a-jenna-ortega-ces-celebrites-lui-ont-fait-confiance-20251105)
+
+
 ### marche verte (N/A, Thu, 6 Nov 2025 00:30:00 -0800)
 
 - **La Marche verte, symbole d’un Royaume aspirant à la liberté et au progrès**: [Link](https://lematin.ma/nation/la-marche-verte-symbole-dun-royaume-aspirant-a-la-liberte-et-au-progres/312090)
