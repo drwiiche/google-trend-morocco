@@ -1,3 +1,10 @@
+### betis (N/A, Thu, 6 Nov 2025 13:00:00 -0800)
+
+- **Real Betis - Lyon, en directo: Europa League hoy, en vivo**: [Link](https://as.com/futbol/uefa/real-betis-lyon-en-directo-europa-league-hoy-en-vivo-f202511-d/)
+- **Betis - Olympique de Lyon, en directo | Europa League hoy en vivo**: [Link](https://www.marca.com/futbol/europa-league/betis-o-lyon/2025/11/06/01_0104_20251106_185_143-directo.html)
+- **La profundidad del plantel bético, a prueba ante el Olympique**: [Link](https://mundobetis.com/2025/11/06/la-profundidad-del-plantel-betico-a-prueba-ante-el-olympique/)
+
+
 ### crystal palace – az (N/A, Thu, 6 Nov 2025 11:40:00 -0800)
 
 - **Crystal Palace vs AZ: Confirmed team news**: [Link](https://www.bbc.com/sport/football/articles/c5y09940e4do)
