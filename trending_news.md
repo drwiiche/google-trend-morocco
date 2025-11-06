@@ -1,3 +1,10 @@
+### real betis (N/A, Thu, 6 Nov 2025 12:50:00 -0800)
+
+- **Cucho Hernández hoy: Por qué no juega en el Betis vs Lyon por Europa League**: [Link](https://www.365scores.com/es/news/cucho-hernandez-no-juega-vs-lyon-europa/)
+- **La doble A se divierte en La Cartuja**: [Link](https://www.andaluciainformacion.es/articulo/sevilla-deportes/doble-divierte-cartuja/202511062300543164060.html)
+- **Betis vs Lyon Hoy: Así Va el Partido de la Jornada 4 de la Europa League 2025**: [Link](https://www.nmas.com.mx/deportes/resultados-europa-league-hoy-6-de-noviembre-2025-como-quedo-betis-vs-lyon-marcadores-partidos/)
+
+
 ### gta 6 (N/A, Thu, 6 Nov 2025 13:50:00 -0800)
 
 - **Grand Theft Auto 6 has been delayed again to the end of 2026**: [Link](https://www.videogameschronicle.com/news/grand-theft-auto-6-has-been-delayed-again-to-the-end-of-2026/)
