@@ -1,3 +1,10 @@
+### dortmund (N/A, Wed, 5 Nov 2025 13:50:00 -0800)
+
+- **Kein Abgang im Winter: BVB-Boss mit Machtwort bei DFB-Stars**: [Link](https://www.t-online.de/sport/fussball/bundesliga/id_100987568/bvb-kehl-spricht-machtwort-bei-adeyemi-schlotterbeck-und-nmecha.html)
+- **BVB: Topklub plötzlich heiß auf Dortmund-Star**: [Link](https://www.bild.de/sport/fussball/was-er-kosten-soll-juve-ploetzlich-heiss-auf-bvb-star-69046640b9e7d6b545d0fd90)
+- **Die Fußstapfen von Jude Bellingham sind kleiner geworden! Felix Nmecha hat sich zum besten Mittelfeldspieler des BVB entwickelt**: [Link](https://www.spox.com/fussball/listen/die-fussstapfen-von-jude-bellingham-sind-kleiner-geworden-felix-nmecha-hat-sich-zum-besten-mittelfeldspieler-des-bvb-entwickelt/bltba547993f7e4e47f)
+
+
 ### iam (N/A, Wed, 5 Nov 2025 16:10:00 -0800)
 
 - **Can’t Stop, Won’t Stop: IAM Transportation Moves North America**: [Link](https://www.goiam.org/news/imail/cant-stop-wont-stop-iam-transportation-moves-north-america/)
