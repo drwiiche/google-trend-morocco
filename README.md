@@ -1,3 +1,17 @@
+### europa league (N/A, Thu, 6 Nov 2025 10:40:00 -0800)
+
+- **Maccabi Tel Aviv chief wants to keep football and politics apart**: [Link](https://www.bbc.com/sport/football/articles/c781xdjn0qwo)
+- **Section 60 in place ahead of Aston Villa vs Tel Aviv match tomorrow**: [Link](https://www.westmidlands.police.uk/news/west-midlands/news/news/2025/november/section-60-in-place-ahead-of-aston-villa-vs-tel-aviv-match-tomorrow/)
+- **Tight UK security ahead of match against Israeli club**: [Link](https://www.france24.com/en/live-news/20251106-tight-uk-security-ahead-of-match-against-israeli-club)
+
+
+### ligue europa (N/A, Thu, 6 Nov 2025 10:40:00 -0800)
+
+- **L'OL sort son équipe B, Paulo Fonseca s'explique**: [Link](https://www.foot01.com/ol/lol-sort-son-equipe-b-paulo-fonseca-sexplique)
+- **Betis Séville - Lyon : à quelle heure et sur quelle chaîne voir le match ?**: [Link](https://www.lequipe.fr/Football/Actualites/Real-betis-lyon-a-quelle-heure-et-sur-quelle-chaine-voir-le-match/1607510)
+- **PRONOS PARIS RMC Le pari football de Rolland Courbis du 6 novembre - Ligue Europa**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-rolland-courbis-du-6-novembre-ligue-europa_AN-202511060623.html)
+
+
 ### mainz 05 – fiorentina (N/A, Thu, 6 Nov 2025 10:10:00 -0800)
 
 - **UEFA Conference League Matchday 3: What to look out for**: [Link](https://www.uefa.com/uefaconferenceleague/news/029e-1f14e7f49295-47e570e9d2d9-1000--uefa-conference-league-matchday-3-what-to-look-out-for/)
