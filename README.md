@@ -1,3 +1,10 @@
+### frmf (N/A, Fri, 7 Nov 2025 02:30:00 -0800)
+
+- **Conférence de presse du sélectionneur Hoalid Regragui**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-4/)
+- **Lions de l’Atlas: Regragui dévoile sa liste pour les deux derniers tests avant la CAN 2025, avec Saiss, Salah-Eddine et Diop**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-regragui-devoile-sa-liste-pour-les-deux-derniers-tests-avant-la-can-2025-avec-saiss_OGIPAW53IJBXPKZKBSUTPDXUZU/)
+- **Foot : la vente des billets du match amical Maroc-Mozambique sera lancée vendredi**: [Link](https://mobile.telquel.ma/instant-t/2025/11/06/foot-la-vente-des-billets-du-match-amical-maroc-mozambique-sera-lancee-vendredi_1959630/)
+
+
 ### test (N/A, Fri, 7 Nov 2025 00:50:00 -0800)
 
 - **Russian Offensive Campaign Assessment, November 5, 2025**: [Link](https://understandingwar.org/research/russia-ukraine/russian-offensive-campaign-assessment-november-5-2025/)
