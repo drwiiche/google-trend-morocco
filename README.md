@@ -1,3 +1,10 @@
+### orange (N/A, Thu, 6 Nov 2025 16:50:00 -0800)
+
+- **Bicyclists come face-to-face with mountain lion in frightening Orange County trail encounter**: [Link](https://abc7.com/post/bicyclists-come-face-mountain-lion-frightening-orange-county-trail-encounter/18115150/)
+- **Bicyclist detail scary encounter with mountain lion in Orange County**: [Link](https://www.cbsnews.com/losangeles/news/bicyclist-mountain-lion-encounter-orange-county/)
+- **2 Cyclists Encounter Mountain Lion on California Trail in Frightening Video: 'Go Away, Kitty!'**: [Link](https://people.com/cyclists-encounter-mountain-lion-on-california-trail-11844173)
+
+
 ### fast (N/A, Thu, 6 Nov 2025 15:30:00 -0800)
 
 - **France moves to suspend Shein over sex dolls and weapons on day Paris store opens**: [Link](https://www.reuters.com/business/retail-consumer/shein-store-opening-paris-draws-protesters-bargain-hunters-2025-11-05/)
