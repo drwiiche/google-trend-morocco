@@ -1,3 +1,10 @@
+### salah abdeslam (N/A, Thu, 6 Nov 2025 22:20:00 -0800)
+
+- **INFO RTL - La femme de Salah Abdeslam placée en garde à vue**: [Link](https://www.rtl.fr/actu/justice-faits-divers/info-rtl-la-femme-de-salah-abdeslam-placee-en-garde-a-vue-7900563320)
+- **« Qu’Allah nous éloigne de l’enfer » : l’intrigante Maëva B., compagne de Salah Abdeslam, placée en garde à vue**: [Link](https://www.leparisien.fr/faits-divers/quallah-nous-eloigne-de-lenfer-lintrigante-maeva-b-compagne-de-salah-abdeslam-placee-en-garde-a-vue-06-11-2025-UR47MPQPC5D27EPR6D2SAIFX3Q.php)
+- **Salah Abdeslam consultait en détention de la propagande islamiste**: [Link](https://www.lefigaro.fr/actualite-france/salah-abdeslam-en-garde-a-vue-puis-remis-en-cellule-pour-detention-d-un-objet-illicite-20251106)
+
+
 ### orange (N/A, Thu, 6 Nov 2025 16:50:00 -0800)
 
 - **Bicyclists come face-to-face with mountain lion in frightening Orange County trail encounter**: [Link](https://abc7.com/post/bicyclists-come-face-mountain-lion-frightening-orange-county-trail-encounter/18115150/)
