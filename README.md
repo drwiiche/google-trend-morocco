@@ -1,3 +1,10 @@
+### sofiane diop (N/A, Fri, 7 Nov 2025 04:20:00 -0800)
+
+- **Nice : le constat lucide de Sofiane Diop**: [Link](https://www.footmercato.net/a8534200662385741650-nice-le-constat-lucide-de-sofiane-diop)
+- **Plombé par des erreurs de Melvin Bard, Nice perd contre Fribourg en Ligue Europa et poursuit sa terrible série**: [Link](https://www.lequipe.fr/Football/Actualites/Plombe-par-des-erreurs-de-melvin-bard-nice-perd-contre-fribourg-en-ligue-europa-et-poursuit-sa-terrible-serie/1607893)
+- **«En coupe d’Europe, on n’est pas au niveau» : dépité, le coach de Nice Franck Haise en a «ras le bol de perdre»**: [Link](https://www.lefigaro.fr/sports/football/ligue-europa/en-coupe-d-europe-on-n-est-pas-au-niveau-depite-le-coach-de-nice-franck-haise-en-a-ras-le-bol-de-perdre-20251106)
+
+
 ### أنس صلاح الدين (N/A, Fri, 7 Nov 2025 04:30:00 -0800)
 
 - **قائمة "الأسود" أمام موزمبيق وأوغندا**: [Link](https://www.hespress.com/%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82-%D9%88%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-1652078.html)
