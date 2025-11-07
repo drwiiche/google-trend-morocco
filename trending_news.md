@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Fri, 7 Nov 2025 07:40:00 -0800)
+
+- **Schedule and where to watch Novak Djokovic in the ATP Athens 2025 semifinals against Yannick Hanfmann**: [Link](https://www.puntodebreak.com/en/2025/11/06/schedule-and-where-to-watch-novak-djokovic-in-the-atp-athens-2025-semifinals-against-yannick)
+- **ATP Athens Sebastian Korda vs Lorenzo Musetti 🧠 Form & Context Sebastian Korda (USA, #52, 193 cm, righty) 2025: 24–17 | Indoors 7–4, Hard 12–8, Clay 5–5 Athens: R16 d. Dzumhur (4–6, 6–3, 6–3), QF d. Kecmanovic (6–3, 6–2) after 1R d. Popyrin. Notes:**: [Link](https://x.com/Probahis/status/1986586881945903447)
+- **Lorenzo Musetti vs Sebastian Korda Preview: Head-to-Head, Prediction for Hellenic Championships 2025, Athens**: [Link](https://www.profootballnetwork.com/tennis/lorenzo-musetti-sebastian-korda-preview-prediction-hellenic-championships/)
+
+
 ### sofiane diop (N/A, Fri, 7 Nov 2025 04:20:00 -0800)
 
 - **Nice : le constat lucide de Sofiane Diop**: [Link](https://www.footmercato.net/a8534200662385741650-nice-le-constat-lucide-de-sofiane-diop)
