@@ -1,3 +1,17 @@
+### أنس صلاح الدين (N/A, Fri, 7 Nov 2025 04:30:00 -0800)
+
+- **قائمة "الأسود" أمام موزمبيق وأوغندا**: [Link](https://www.hespress.com/%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82-%D9%88%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-1652078.html)
+- **الركراكي يُعيد سايس ورحيمي لقائمة المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D9%8F%D8%B9%D9%8A%D8%AF-%D8%B3%D8%A7%D9%8A%D8%B3-%D9%88%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%84%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt6519e96d0be5e2a6)
+- **المنتخب المغربي يواصل التحضير لمواجهة البرتغال بكأس العالم لأقل من 17 سنة**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D9%83%D8%A7%D8%B2%D8%A7-%D9%84%D8%A7-%D9%85%D8%AB%D9%8A%D9%84-%D9%84%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7/)
+
+
+### nouveau logo maroc telecom (N/A, Fri, 7 Nov 2025 00:30:00 -0800)
+
+- **Maroc Telecom dévoile sa nouvelle identité visuelle**: [Link](https://ledesk.ma/encontinu/maroc-telecom-devoile-sa-nouvelle-identite-visuelle/)
+- **Exit le logo bleu et orange, Maroc Telecom dévoile sa nouvelle identité visuelle**: [Link](https://mobile.telquel.ma/instant-t/2025/11/06/exit-le-logo-bleu-et-orange-maroc-telecom-devoile-sa-nouvelle-identite-visuelle_1959739/)
+- **Maroc Telecom dévoile une nouvelle identité visuelle tournée vers l’ère numérique**: [Link](https://lematin.ma/economie/maroc-telecom-devoile-une-nouvelle-identite-visuelle/312131)
+
+
 ### ticket match maroc (N/A, Fri, 7 Nov 2025 04:10:00 -0800)
 
 - **Conférence de presse du sélectionneur Hoalid Regragui**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-4/)
