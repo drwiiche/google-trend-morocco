@@ -1,3 +1,10 @@
+### watford – bristol city (N/A, Fri, 7 Nov 2025 13:00:00 -0800)
+
+- **EFL Championship LIVE: Watford v Bristol City - live commentary, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvgm83626ejt)
+- **talkSPORT tips – Best football bets and expert advice for Friday 7 November**: [Link](https://talksport.com/football/3709306/talksport-tips-best-football-bets-friday-7-november/)
+- **Championship Tips: Watford to take advantage of the Robins' injury woes on Friday night**: [Link](https://betting.betfair.com/football/championship/championship-tips-watford-to-take-full-advantage-of-the-robins-injury-woes-061125-904.html)
+
+
 ### paris fc – rennes (N/A, Fri, 7 Nov 2025 12:20:00 -0800)
 
 - **Arnault-Pinault, un duel de luxe entre milliardaires à l'occasion de Paris FC - Rennes**: [Link](https://www.lequipe.fr/Football/Article/Arnault-pinault-un-duel-de-luxe-entre-milliardaires-a-l-occasion-de-paris-fc-rennes/1607935)
