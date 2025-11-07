@@ -1,3 +1,10 @@
+### watford (N/A, Fri, 7 Nov 2025 13:30:00 -0800)
+
+- **Watford v Bristol City LIVE: Championship score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cvgm83626ejt)
+- **Five talking points as Watford held to Bristol City draw**: [Link](https://www.watfordobserver.co.uk/sport/25606466.five-talking-points-watford-draw-1-1-bristol-city/)
+- **Watford 1-1 Bristol City: Twine cancels out early Marc Bola goal to ensure points are shared**: [Link](https://www.vavel.com/en/football/2025/11/07/championship/1240573-watford-1-1-bristol-city-twine-cancels-out-early-marc-bola-goal-to-ensure-points-are-shared.html)
+
+
 ### pluribus (N/A, Fri, 7 Nov 2025 13:20:00 -0800)
 
 - **‘Pluribus’ Review: From Many, What?**: [Link](https://www.nytimes.com/2025/11/07/arts/television/pluribus-review.html)
