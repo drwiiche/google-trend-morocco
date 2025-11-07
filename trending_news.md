@@ -1,3 +1,10 @@
+### test (N/A, Fri, 7 Nov 2025 00:50:00 -0800)
+
+- **Russian Offensive Campaign Assessment, November 5, 2025**: [Link](https://understandingwar.org/research/russia-ukraine/russian-offensive-campaign-assessment-november-5-2025/)
+- **Putin orders proposals for possibly resuming nuclear weapons testing in response to Trump**: [Link](https://www.cbsnews.com/video/putin-orders-proposals-for-possibly-resuming-nuclear-weapons-testing/)
+- **Russia drawing up plans to conduct nuclear tests after Trump announcement**: [Link](https://www.foxnews.com/politics/russia-drawing-up-plans-conduct-nuclear-tests-after-trump-announcement)
+
+
 ### 5g (N/A, Thu, 6 Nov 2025 23:20:00 -0800)
 
 - **5G Networks: Revolutionizing Edge Computing and IoT in 2025**: [Link](https://timestech.in/5g-networks-revolutionizing-edge-computing-and-iot-in-2025/)
