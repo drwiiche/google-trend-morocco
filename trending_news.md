@@ -1,3 +1,15 @@
+### paris fc – rennes (N/A, Fri, 7 Nov 2025 12:20:00 -0800)
+
+- **Arnault-Pinault, un duel de luxe entre milliardaires à l'occasion de Paris FC - Rennes**: [Link](https://www.lequipe.fr/Football/Article/Arnault-pinault-un-duel-de-luxe-entre-milliardaires-a-l-occasion-de-paris-fc-rennes/1607935)
+- **Paris FC - Stade Rennais : le match des milliardaires**: [Link](https://www.footmercato.net/a5013957074676080835-paris-fc-stade-rennais-le-match-des-milliardaires)
+- **Ligue 1 : Trapp retourne sur le banc, Beye mise encore sur Meïté... Les compos de Paris FC-Rennes**: [Link](https://www.lefigaro.fr/sports/football/ligue-1/ligue-1-trapp-retourne-sur-le-banc-beye-mise-encore-sur-meite-les-compos-de-paris-fc-rennes-20251107)
+
+
+### jacques paris cécile kohler (N/A, Fri, 7 Nov 2025 12:10:00 -0800)
+
+
+
+
 ### elche – real sociedad (N/A, Fri, 7 Nov 2025 11:30:00 -0800)
 
 - **Elche - Real Sociedad, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/elche-real-sociedad-en-directo-laliga-ea-sports-en-vivo-hoy-f202511-d/)
