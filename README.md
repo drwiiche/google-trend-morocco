@@ -1,3 +1,17 @@
+### attijariwafa bank (N/A, Fri, 7 Nov 2025 10:10:00 -0800)
+
+- **Attijariwafa bank dénonce une usurpation d’identité numérique**: [Link](https://lematin.ma/economie/attijariwafa-bank-denonce-une-usurpation-didentite-numerique/312289)
+- **Attijariwafa bank alerte sur l'usurpation du nom, de l'image et de la voix de son PDG**: [Link](https://medias24.com/2025/11/07/attijariwafa-bank-alerte-sur-une-arnaque-utilisant-limage-de-son-pdg-et-lia/)
+- **Usurpation d’identité: Attijariwafa Bank met en garde contre une fausse plateforme d’investissement**: [Link](https://fr.le360.ma/economie/usurpation-didentite-attijariwafa-bank-met-en-garde-contre-une-fausse-plateforme-dinvestissement_F7G6MPVMLRFI5N665M3BIPNBVI/)
+
+
+### mohammed vi emirats arabes unis (N/A, Fri, 7 Nov 2025 09:30:00 -0800)
+
+- **Mohammed VI à Abou Dhabi : Sahara et développement du monde arabe au cœur des échanges**: [Link](https://www.afrik.com/mohammed-vi-a-abou-dhabi-sahara-et-developpement-du-monde-arabe-au-coeur-des-echanges)
+- **Flash – Le roi Mohammed VI entame une visite privée à Abou Dhabi**: [Link](https://article19.ma/accueil/archives/187024)
+- **Axe Rabat-Abou Dhabi : Le souverain marocain consolide son alliance avec les EAU**: [Link](https://www.linfodrome.com/international/115268-axe-rabat-abou-dhabi-le-souverain-marocain-consolide-son-alliance-avec-les-eau)
+
+
 ### sion assidon (N/A, Fri, 7 Nov 2025 05:00:00 -0800)
 
 
