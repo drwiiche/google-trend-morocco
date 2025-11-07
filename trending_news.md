@@ -1,3 +1,17 @@
+### 5g (N/A, Thu, 6 Nov 2025 23:20:00 -0800)
+
+- **5G Networks: Revolutionizing Edge Computing and IoT in 2025**: [Link](https://timestech.in/5g-networks-revolutionizing-edge-computing-and-iot-in-2025/)
+- **How 5G and next-generation networks are enabling a new digital ecosystem**: [Link](https://news.az/news/how-5g-and-next-generation-networks-are-enabling-a-new-digital-ecosystem)
+- **5G Infrastructure Market: Quantifying Growth, Risk, and Opportunity Horizons**: [Link](https://www.openpr.com/news/4257512/5g-infrastructure-market-quantifying-growth-risk)
+
+
+### fibre optique (N/A, Thu, 6 Nov 2025 18:30:00 -0800)
+
+- **Fibre, petite enfance, aides et hommage au programme du conseil municipal de Cherbourg-en-Cotentin**: [Link](https://www.ouest-france.fr/normandie/cherbourg-en-cotentin-50100/fibre-petite-enfance-aides-et-hommage-au-programme-du-conseil-municipal-de-cherbourg-en-cotentin-065be92e-bb10-11f0-a456-5b350733c580)
+- **Accueil de la petite enfance : la Ville de Cherbourg va développer un dispositif innovant**: [Link](https://actu.fr/normandie/cherbourg-en-cotentin_50129/accueil-de-la-petite-enfance-la-ville-de-cherbourg-va-developper-un-dispositif-innovant_63406529.html)
+- **Cherbourg-en-Cotentin. Le budget 2026 se prépare dans l'incertitude**: [Link](https://www.lamanchelibre.fr/actualite-1198283-cherbourg-en-cotentin-le-budget-2026-se-prepare-dans-l-incertitude)
+
+
 ### 5g maroc telecom (N/A, Thu, 6 Nov 2025 22:40:00 -0800)
 
 
