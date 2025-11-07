@@ -1,3 +1,10 @@
+### keno (N/A, Fri, 7 Nov 2025 07:50:00 -0800)
+
+- **Winning numbers drawn in Thursday’s Washington Keno**: [Link](https://www.expressnews.com/lottery/article/winning-numbers-drawn-in-thursday-s-washington-21144841.php)
+- **Winning numbers drawn in Tuesday’s Washington Keno**: [Link](https://www.chron.com/lottery/article/winning-numbers-drawn-in-tuesday-s-washington-21139909.php)
+- **Winning numbers drawn in Wednesday’s Washington Keno**: [Link](https://www.nhregister.com/lottery/article/winning-numbers-drawn-in-wednesday-s-washington-21142307.php)
+
+
 ### novak djokovic (N/A, Fri, 7 Nov 2025 07:40:00 -0800)
 
 - **Schedule and where to watch Novak Djokovic in the ATP Athens 2025 semifinals against Yannick Hanfmann**: [Link](https://www.puntodebreak.com/en/2025/11/06/schedule-and-where-to-watch-novak-djokovic-in-the-atp-athens-2025-semifinals-against-yannick)
