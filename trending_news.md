@@ -1,3 +1,10 @@
+### inwi (N/A, Thu, 6 Nov 2025 16:20:00 -0800)
+
+- **Inwi, Maroc Telecom ou Orange, qui est le leader de la téléphonie mobile au T2?**: [Link](https://h24info.ma/economie/inwi-maroc-telecom-ou-orange-qui-est-le-leader-de-la-telephonie-mobile-au-t2/)
+- **En 3 mois, les Marocains totalisent plus de 10,7 milliards de minutes au téléphone**: [Link](https://ecoactu.ma/en-3-mois-les-marocains-totalisent-plus-de-107-milliards-de-minutes-au-telephone/)
+- **Marché fixe : Maroc Telecom recule légèrement, Orange et inwi grignotent des parts**: [Link](https://www.tic-maroc.com/2025/11/marche-fixe-maroc-telecom-recule.html)
+
+
 ### as far – fus rabat (N/A, Thu, 6 Nov 2025 12:30:00 -0800)
 
 - **Ajax Amsterdam 0-3 Galatasaray, Ligue des champions : résumé du match (05/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/ajax-amsterdam-galatasaray-live/685554)
