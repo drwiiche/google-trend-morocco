@@ -1,3 +1,10 @@
+### al-najma saudi vs al-hilal (N/A, Fri, 7 Nov 2025 11:00:00 -0800)
+
+- **Al-Najma vs Al-Hilal: Match Preview and Predictions for November 7, 2025**: [Link](https://news.ssbcrack.com/al-najma-vs-al-hilal-match-preview-and-predictions-for-november-7-2025/)
+- **Inzaghi Postpones Decision on Young Trio's Participation Against Al-Najma**: [Link](https://www.ysscores.com/en/news/13851345/Inzaghi-Postpones-Decision-on-Young-Trio's-Participation-Against-Al-Najma)
+- **Inzaghi Controls Tambakti's Participation Against Al-Najma**: [Link](https://www.ysscores.com/en/news/13851007/Inzaghi-Controls-Tambakti's-Participation-Against-Al-Najma)
+
+
 ### attijariwafa bank (N/A, Fri, 7 Nov 2025 10:10:00 -0800)
 
 - **Attijariwafa bank dénonce une usurpation d’identité numérique**: [Link](https://lematin.ma/economie/attijariwafa-bank-denonce-une-usurpation-didentite-numerique/312289)
