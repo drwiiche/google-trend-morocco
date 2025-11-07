@@ -1,3 +1,10 @@
+### elche – real sociedad (N/A, Fri, 7 Nov 2025 11:30:00 -0800)
+
+- **Elche - Real Sociedad, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/elche-real-sociedad-en-directo-laliga-ea-sports-en-vivo-hoy-f202511-d/)
+- **Lanzados**: [Link](https://www.realsociedad.eus/es/noticias/detalle/lanzados-4)
+- **El Elche quiere seguir con la racha en el Martínez Valero ante una Real Sociedad al alza**: [Link](https://www.ondacero.es/emisoras/comunidad-valenciana/elche/noticias/elche-quiere-seguir-racha-martinez-valero-real-sociedad-alza_20251107690dcf565d5dad37ab848559.html)
+
+
 ### al-najma saudi vs al-hilal (N/A, Fri, 7 Nov 2025 11:00:00 -0800)
 
 - **Al-Najma vs Al-Hilal: Match Preview and Predictions for November 7, 2025**: [Link](https://news.ssbcrack.com/al-najma-vs-al-hilal-match-preview-and-predictions-for-november-7-2025/)
