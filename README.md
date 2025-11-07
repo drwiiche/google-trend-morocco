@@ -1,3 +1,10 @@
+### la marche verte maroc (N/A, Thu, 6 Nov 2025 20:00:00 -0800)
+
+- **Marche Verte : Des préparatifs au franchissement des frontières factices, le témoignage vivant de Seddik Maaninou**: [Link](https://lematin.ma/nation/marche-verte-le-temoignage-vivant-de-seddik-maaninou/312179)
+- **Les FAR organisent une journée commémorative à l’occasion du 50ème anniversaire de la Marche verte**: [Link](https://fr.le360.ma/politique/les-far-organisent-une-journee-commemorative-a-loccasion-du-50eme-anniversaire-de-la-marche-verte_JJUZLTIVURBMXHTGI6AY3SQBKU/)
+- **La Marche verte, par la lorgnette de la CIA**: [Link](https://ledesk.ma/grandangle/la-marche-verte-par-la-lorgnette-de-la-cia/)
+
+
 ### inwi (N/A, Thu, 6 Nov 2025 16:20:00 -0800)
 
 - **Inwi, Maroc Telecom ou Orange, qui est le leader de la téléphonie mobile au T2?**: [Link](https://h24info.ma/economie/inwi-maroc-telecom-ou-orange-qui-est-le-leader-de-la-telephonie-mobile-au-t2/)
