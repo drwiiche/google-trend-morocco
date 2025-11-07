@@ -1,3 +1,17 @@
+### ticket match maroc (N/A, Fri, 7 Nov 2025 04:10:00 -0800)
+
+- **Conférence de presse du sélectionneur Hoalid Regragui**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-4/)
+- **Foot : la vente des billets du match amical Maroc-Mozambique sera lancée vendredi**: [Link](https://mobile.telquel.ma/instant-t/2025/11/06/foot-la-vente-des-billets-du-match-amical-maroc-mozambique-sera-lancee-vendredi_1959630/)
+- **Walid Regragui convoque 27 joueurs dont Romain Saïss**: [Link](https://medias24.com/2025/11/07/walid-regragui-convoque-27-joueurs-dont-romain-saiss/)
+
+
+### nancy pelosi (N/A, Fri, 7 Nov 2025 03:50:00 -0800)
+
+- **Democrats brace for Nancy Pelosi's possible retirement**: [Link](https://www.nbcnews.com/politics/congress/democrats-brace-nancy-pelosi-possible-retirement-rcna241336)
+- **For almost four decades, Nancy Pelosi has served the American people and worked to make our country better. No one was more skilled at bringing people together and getting legislation passed – and I will always be grateful for her support of the Affordable**: [Link](https://x.com/BarackObama/status/1986475370363687393)
+- **Nancy Pelosi announces retirement after decades in US Congress**: [Link](https://www.bbc.com/news/articles/ce3xw3dw0zxo)
+
+
 ### frmf (N/A, Fri, 7 Nov 2025 02:30:00 -0800)
 
 - **Conférence de presse du sélectionneur Hoalid Regragui**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-4/)
