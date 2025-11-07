@@ -1,3 +1,10 @@
+### la 5g (N/A, Fri, 7 Nov 2025 08:30:00 -0800)
+
+- **Morocco Officially Launches 5G Services Nationwide**: [Link](https://www.moroccoworldnews.com/2025/11/266890/morocco-officially-launches-5g-services-nationwide/)
+- **Morocco grants 5G network licenses to Maroc Telecom, Médi Telecom, and Wana Corporate**: [Link](https://en.yabiladi.com/articles/details/180107/morocco-grants-network-licenses-maroc.html)
+- **Moroccan telecom operators officially launch 5G network**: [Link](https://northafricapost.com/92132-moroccan-telecom-operators-officially-launch-5g-network.html)
+
+
 ### watford (N/A, Fri, 7 Nov 2025 13:30:00 -0800)
 
 - **Watford v Bristol City LIVE: Championship score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cvgm83626ejt)
