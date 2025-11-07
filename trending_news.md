@@ -1,3 +1,10 @@
+### fast (N/A, Thu, 6 Nov 2025 15:30:00 -0800)
+
+- **France moves to suspend Shein over sex dolls and weapons on day Paris store opens**: [Link](https://www.reuters.com/business/retail-consumer/shein-store-opening-paris-draws-protesters-bargain-hunters-2025-11-05/)
+- **Protests erupt as Shein opens in Paris**: [Link](https://www.cnn.com/2025/11/04/style/video/shein-paris-under-fire-digvid)
+- **EU Tech Commissioner meets French ministers over Shein 'sex doll' uproar**: [Link](https://www.euronews.com/my-europe/2025/11/06/eu-tech-commissioner-meets-french-ministers-over-shein-sex-doll-uproar)
+
+
 ### la marche verte maroc (N/A, Thu, 6 Nov 2025 20:00:00 -0800)
 
 - **Marche Verte : Des préparatifs au franchissement des frontières factices, le témoignage vivant de Seddik Maaninou**: [Link](https://lematin.ma/nation/marche-verte-le-temoignage-vivant-de-seddik-maaninou/312179)
