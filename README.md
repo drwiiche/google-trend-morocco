@@ -1,3 +1,10 @@
+### pluribus (N/A, Fri, 7 Nov 2025 13:20:00 -0800)
+
+- **‘Pluribus’ Review: From Many, What?**: [Link](https://www.nytimes.com/2025/11/07/arts/television/pluribus-review.html)
+- **Pluribus : Season 1 First Reviews: Wildly Inventive, One of the Best Shows of the Year**: [Link](https://editorial.rottentomatoes.com/article/pluribus-season-1-first-reviews/)
+- **'Pluribus' review: Vince Gilligan on the human right to be unhappy**: [Link](https://www.latimes.com/entertainment-arts/tv/story/2025-11-07/pluribus-review-vince-gilligan-rhea-seehorn)
+
+
 ### watford – bristol city (N/A, Fri, 7 Nov 2025 13:00:00 -0800)
 
 - **EFL Championship LIVE: Watford v Bristol City - live commentary, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvgm83626ejt)
