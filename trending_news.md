@@ -1,3 +1,10 @@
+### سيون أسيدون (N/A, Fri, 7 Nov 2025 04:10:00 -0800)
+
+- **رحيل سيون أسيدون أحد أبرز مناهضي الصهيونية بالمغرب**: [Link](https://www.aljazeera.net/news/2025/11/7/%D8%B1%D8%AD%D9%8A%D9%84-%D8%B3%D9%8A%D9%88%D9%86-%D8%A3%D8%B3%D9%8A%D8%AF%D9%88%D9%86-%D8%A3%D8%AD%D8%AF-%D8%A3%D8%A8%D8%B1%D8%B2-%D9%85%D9%86%D8%A7%D9%87%D8%B6%D9%8A)
+- **الناشط سيون أسيدون يفارق الحياة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%B7-%D8%B3%D9%8A%D9%88%D9%86-%D8%A3%D8%B3%D9%8A%D8%AF%D9%88%D9%86-%D9%8A%D9%81%D8%A7%D8%B1%D9%82-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A9-1652062.html)
+- **سيون أسيدون.. مغربي يهودي رحل وفي قلبه فلسطين**: [Link](https://www.alaraby.co.uk/politics/%D8%B3%D9%8A%D9%88%D9%86-%D8%A3%D8%B3%D9%8A%D8%AF%D9%88%D9%86-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%87%D9%88%D8%AF%D9%8A-%D8%B1%D8%AD%D9%84-%D9%88%D9%81%D9%8A-%D9%82%D9%84%D8%A8%D9%87-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86)
+
+
 ### keno (N/A, Fri, 7 Nov 2025 07:50:00 -0800)
 
 - **Winning numbers drawn in Thursday’s Washington Keno**: [Link](https://www.expressnews.com/lottery/article/winning-numbers-drawn-in-thursday-s-washington-21144841.php)
