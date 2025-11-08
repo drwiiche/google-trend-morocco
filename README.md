@@ -1,3 +1,10 @@
+### espanyol vs villarreal (N/A, Sat, 8 Nov 2025 13:40:00 -0800)
+
+- **Preview:Espanyol vs Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/espanyol-vs-villarreal-prediction-team-news-lineups_585267.html)
+- **Alberto Moleiro vs. Espanyol – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/08/alberto-moleiro-soccer-player-props-11-8-2025/87163287007/)
+- **Espanyol enfrenta a Villarreal en un crucial partido de LaLiga**: [Link](https://news.ssbcrack.com/espanyol-enfrenta-a-villarreal-en-un-crucial-partido-de-laliga/)
+
+
 ### chelsea (N/A, Sat, 8 Nov 2025 13:10:00 -0800)
 
 - **Arsenal 1-1 Chelsea: Alessia Russo scores late equaliser for Gunners**: [Link](https://www.bbc.com/sport/football/live/cly95yjpprxt)
