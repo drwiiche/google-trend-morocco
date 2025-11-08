@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Sat, 8 Nov 2025 07:30:00 -0800)
+
+- **Djokovic honours Nikola Pilic's memory: 'As long as I live, I will celebrate his name'**: [Link](https://www.atptour.com/en/news/djokovic-athens-2025-pilic-ceremony-reaction)
+- **Omni sports - Sports**: [Link](https://english.ahram.org.eg/Category/6/56/Sports/Tennis-Sabalenka-beats-Anisimova-in-puls.aspx)
+- **Novak Djokovic’s Athens Odyssey: A Love Letter to Greek Tennis –**: [Link](https://greekcitytimes.com/2025/11/09/novak-djokovic-athens-greek-tennis-love-letter/)
+
+
 ### marseille – brest (N/A, Sat, 8 Nov 2025 07:20:00 -0800)
 
 - **Surprise pour l’OM !**: [Link](https://www.sports.fr/football/ligue-1/surprise-pour-lom-965640.html)
