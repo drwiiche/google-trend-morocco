@@ -1,3 +1,10 @@
+### ac milan (N/A, Sat, 8 Nov 2025 13:40:00 -0800)
+
+- **Sacchi sees Allegri’s improvement but warns Milan about Parma**: [Link](https://football-italia.net/sacchi-allegri-improvement-warn-milan-parma/)
+- **Zachary Athekame vs. Parma – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/08/zachary-athekame-soccer-player-props-11-8-2025/87163393007/)
+- **Pulisic returns from injury as Milan squanders 2-0 lead to draw with Parma**: [Link](https://www.washingtonpost.com/sports/soccer/2025/11/08/pulisic-milan-parma-juventus-serie-a/20b7d7a4-bced-11f0-b389-38cf5ff33d6f_story.html)
+
+
 ### espanyol vs villarreal (N/A, Sat, 8 Nov 2025 13:40:00 -0800)
 
 - **Preview:Espanyol vs Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/espanyol-vs-villarreal-prediction-team-news-lineups_585267.html)
