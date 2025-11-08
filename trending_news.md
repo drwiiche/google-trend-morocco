@@ -1,3 +1,10 @@
+### dortmund (N/A, Sat, 8 Nov 2025 08:30:00 -0800)
+
+- **HSV vs. BVB: Hamburger SV gegen Borussia Dortmund JETZT im Liveticker**: [Link](https://www.spox.com/fussball/live/hsv-vs-bvb-hamburger-sv-gegen-borussia-dortmund-heute-im-liveticker/blt513d3f4af3992bc4)
+- **Bundesliga-Coach outet sich als Fan von BVB-Trainer Kovac**: [Link](https://www.absolutfussball.com/deutschland/borussia-dortmund/bundesliga-coach-outet-sich-als-fan-von-bvb-trainer-kovac-94028027.html)
+- **Alles sah nach perfektem Nachmittag aus: BVB-Schock in der Nachspielzeit**: [Link](https://www.bild.de/sport/fussball/alles-sah-nach-perfektem-nachmittag-aus-bvb-schock-in-der-nachspielzeit-690f485e0580923d0998b564)
+
+
 ### juventus – torino (N/A, Sat, 8 Nov 2025 08:20:00 -0800)
 
 - **Today’s Papers – Juventus and Torino want the derby, Milan for the top spot**: [Link](https://football-italia.net/today-papers-juventus-torino-derby-milan-top/)
