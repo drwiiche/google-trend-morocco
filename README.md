@@ -1,3 +1,17 @@
+### juventus (N/A, Sat, 8 Nov 2025 11:00:00 -0800)
+
+- **Serie A: in campo Juventus-Torino 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/11/08/serie-a-in-campo-juventus-torino-0-0-diretta-_688c706a-9b5d-47a2-b47a-2d9ec51606b4.html)
+- **Spalletti chiaro: "Juve, poi si fa confusione". E spiega il manuale per Yildiz-Conceicao**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2025/11/08-144406288/spalletti_chiaro_juve_poi_si_fa_confusione_e_spiega_il_manuale_per_yildiz-conceicao)
+- **Serie A | Juventus-Torino | LIVE**: [Link](https://www.juventus.com/it/news/articoli/serie-a-juventus-torino-la-partita-2526)
+
+
+### atletico madrid (N/A, Sat, 8 Nov 2025 11:00:00 -0800)
+
+- **Preview:Atletico Madrid vs Levante - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/preview/atletico-vs-levante-prediction-team-news-lineups_585263.html)
+- **Pablo Barrios Rivas vs. Levante UD – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/pablo-barrios-rivas-soccer-player-props-11-8-2025/87155737007/)
+- **Atlético de Madrid - Levante UD: A familiar frustrating foe**: [Link](https://www.intothecalderon.com/previews/18950/atletico-madrid-levante-la-liga-preview-possible-lineup-alvarez-griezmann-etta-eyong)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Sat, 8 Nov 2025 10:40:00 -0800)
 
 - **جدول ترتيب الدوري الإنجليزي 2025/2026 بعد الجولة 11**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AC-11/)
