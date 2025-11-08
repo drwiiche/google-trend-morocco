@@ -1,3 +1,10 @@
+### atlético madrid – levante (N/A, Sat, 8 Nov 2025 08:40:00 -0800)
+
+- **Atlético de Madrid - Levante UD: Los de Julián Calero buscan reencontrarse en Madrid**: [Link](https://onefootball.com/pt-br/noticias/atletico-de-madrid-levante-ud-los-de-julian-calero-buscan-reencontrarse-en-madrid-41920410)
+- **El Metropolitano, fortín amenazado**: [Link](https://as.com/futbol/primera/el-metropolitano-fortin-amenazado-f202511-n/)
+- **Celta-Barcelona: Alineaciones probables, estadísticas y cómo ver por TV y online (21:00)**: [Link](https://www.eurosport.es/futbol/la-liga/2025-2026/celta-barcelona-previa-alineaciones-probables-estadisticas-horario-donde-ver-por-tv-online-streaming_sto23239169/story.shtml)
+
+
 ### dortmund (N/A, Sat, 8 Nov 2025 08:30:00 -0800)
 
 - **HSV vs. BVB: Hamburger SV gegen Borussia Dortmund JETZT im Liveticker**: [Link](https://www.spox.com/fussball/live/hsv-vs-bvb-hamburger-sv-gegen-borussia-dortmund-heute-im-liveticker/blt513d3f4af3992bc4)
