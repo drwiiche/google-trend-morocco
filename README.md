@@ -1,3 +1,10 @@
+### manchester united (N/A, Sat, 8 Nov 2025 05:10:00 -0800)
+
+- **Premier League LIVE: Tottenham vs Man Utd - score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c0lkrlw1nr5t)
+- **Premier League Matchweek Predictor Game, Predict Scores & Results**: [Link](https://www.premierleague.com/en/games/premier-league-matchweek-predictor/matchweek-11)
+- **Alan Shearer’s Premier League predictions including Man City vs Liverpool**: [Link](https://metro.co.uk/2025/11/07/alan-shearers-premier-league-predictions-man-utd-arsenal-man-city-vs-liverpool-24645360/)
+
+
 ### tottenham vs man united (N/A, Sat, 8 Nov 2025 03:50:00 -0800)
 
 - **Ruben Amorim calls up Man Utd wonderkid to first-team squad after Kobbie Mainoo’s injury**: [Link](https://www.unitedinfocus.com/news/ruben-amorim-calls-up-man-utd-wonderkid-to-first-team-squad-after-kobbie-mainoos-injury/)
