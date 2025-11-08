@@ -1,3 +1,31 @@
+### leverkusen – heidenheim (N/A, Sat, 8 Nov 2025 06:10:00 -0800)
+
+- **Bundesliga: Wo läuft Bayer Leverkusen gegen 1. FC Heidenheim heute live?**: [Link](https://www.dazn.com/de-AT/news/fussball/bundesliga-wo-laeuft-bayer-leverkusen-gegen-1-fc-heidenheim-heute-live/1s6z9n4r2yrsk1ija8lq8gr4xs)
+- **Dritter Aktionstag zum Mitglieder-Spieltag: Exklusive Mitglieder-Artikel in der Club-Kollektion**: [Link](https://www.bayer04.de/de-de/news/club/dritter-aktionstag-zum-mitglieder-spieltag-exklusive-mitglieder-artikel-in-der-club-kollektion)
+- **Poku steht Leverkusen zur Verfügung**: [Link](https://www.ligainsider.de/ernest-poku_37740/poku-steht-leverkusen-zur-verfuegung-404353/)
+
+
+### نيوم ضد النصر (N/A, Sat, 8 Nov 2025 06:00:00 -0800)
+
+- **مباشر مباراة النصر ضد نيوم في دوري "روشن" السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/8/neom-vs-al-nassr)
+- **النصر يستعيد سيماكان قبل موقعة نيوم.. وغياب هذا الثنائي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B3%D9%8A%D9%85%D8%A7%D9%83%D8%A7%D9%86-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%86%D9%8A%D9%88%D9%85--%D9%88%D9%8A%D9%81%D9%82%D8%AF-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF/bltf97859988ba6e1ea)
+- **إنزاجي يعلن تشكيل الهلال لمواجهة النجمة في الدوري**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/1350719/%D8%A5%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%86%D8%AC)
+
+
+### neom vs al-nassr (N/A, Sat, 8 Nov 2025 06:00:00 -0800)
+
+- **Neom vs Al Nassr LIVE updates, Saudi Pro League: Cristiano Ronaldo starts, Lineups out, Kick-off at 7:20 PM IST**: [Link](https://sportstar.thehindu.com/football/neom-vs-al-nassr-live-score-updates-saudi-pro-league-cristiano-ronaldo-goals-highlights-news/article70256095.ece)
+- **“Who else if not the GOAT?” - Fans make prediction about Cristiano Ronaldo after he’s named in Al-Nassr starting line-up to face Neom**: [Link](https://www.sportskeeda.com/football/news-who-else-goat-fans-make-prediction-cristiano-ronaldo-he-s-named-al-nassr-starting-line-up-face-neom)
+- **Expected Formation of Al-Nassr in the Match Against Neom in the Roshan League**: [Link](https://www.ysscores.com/en/news/13851884/Expected-Formation-of-Al-Nassr-in-the-Match-Against-Neom-in-the-Roshan-League)
+
+
+### union berlin – bayern (N/A, Sat, 8 Nov 2025 05:50:00 -0800)
+
+- **Kann Union Berlin Tabellenführer Bayern ärgern?**: [Link](https://www.rbb24.de/sport/beitrag/2025/11/fussball-bundesliga-1-fc-union-berlin-fc-bayern-muenchen-audio-livestream-ticker-spielbericht.html)
+- **Bundesliga im Ticker: Gewinnen die Bayern auch ihr 17. Saisonspiel? | blue News**: [Link](https://www.bluewin.ch/de/sport/bundesliga/gewinnen-die-bayern-auch-ihr-17-saisonspiel-2953626.html)
+- **FC Bayern: Heute geht’s für Vincent Kompany um den Pep-Rekord!**: [Link](https://www.bild.de/sport/fussball/fc-bayern-heute-gehts-fuer-vincent-kompany-um-den-pep-rekord-690ef2dc0580923d0998b194)
+
+
 ### manchester united (N/A, Sat, 8 Nov 2025 05:10:00 -0800)
 
 - **Premier League LIVE: Tottenham vs Man Utd - score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c0lkrlw1nr5t)
