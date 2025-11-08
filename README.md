@@ -1,3 +1,17 @@
+### bayern munich (N/A, Sat, 8 Nov 2025 07:50:00 -0800)
+
+- **Report: Man United set to compete with Real Madrid for 27-year-old Bundesliga star**: [Link](https://www.caughtoffside.com/2025/11/08/man-united-compete-real-madrid-dayot-upamecano/)
+- **🚨🔴 Asked Christoph Freund today how confident FC Bayern are that Dayot #Upamecano will extend his contract? „It’s always difficult to say, but I am very confident. I’ve known Upa for a very long time. He joined Salzburg when he was 16, and I know how imp**: [Link](https://x.com/Plettigoal/status/1986820561217982774)
+- **Bundesliga club sporting director convinced Real Madrid target will renew his contract - 'Very confident'**: [Link](https://madriduniversal.com/bundesliga-club-sporting-director-convinced-real-madrid-target-will-renew-his-contract-very-confident/)
+
+
+### premier league (N/A, Sat, 8 Nov 2025 06:40:00 -0800)
+
+- **Every word from Arteta's pre-Sunderland presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-sunderland-presser)
+- **Le Bris provides Alderete update ahead of Arsenal clash**: [Link](https://www.safc.com/news/2025/november/07/le-bris-provides-alderete-update-ahead-of-arsenal-catch/)
+- **‘Arsenal can’t win every game’ Gunners tipped to slip up at Sunderland**: [Link](https://onefootball.com/en/news/arsenal-cant-win-every-game-gunners-tipped-to-slip-up-at-sunderland-41922642)
+
+
 ### novak djokovic (N/A, Sat, 8 Nov 2025 07:30:00 -0800)
 
 - **Djokovic honours Nikola Pilic's memory: 'As long as I live, I will celebrate his name'**: [Link](https://www.atptour.com/en/news/djokovic-athens-2025-pilic-ceremony-reaction)
