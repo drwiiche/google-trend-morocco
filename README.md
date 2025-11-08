@@ -1,3 +1,10 @@
+### ترتيب الدوري الانجليزي (N/A, Sat, 8 Nov 2025 10:40:00 -0800)
+
+- **جدول ترتيب الدوري الإنجليزي 2025/2026 بعد الجولة 11**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AC-11/)
+- **ترتيب الدوري الإنجليزي بعد تعادل مانشستر يونايتد مع توتنهام**: [Link](https://www.btolat.com/news/384590)
+- **المنطق لا يصمد أمام سحر البريميرليج “حرب الجيران”.. سبع مباريات تكتب قصة أغرب جولة !**: [Link](https://tatweeg.news/%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82-%D9%84%D8%A7-%D9%8A%D8%B5%D9%85%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%AD%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D8%AD%D8%B1/)
+
+
 ### le havre – nantes (N/A, Sat, 8 Nov 2025 10:30:00 -0800)
 
 - **DIRECT. Le Havre-Nantes (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/le-havre-nantes-live/675897)
