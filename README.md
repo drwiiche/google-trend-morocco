@@ -1,3 +1,17 @@
+### ياسمين عبد العزيز (N/A, Sat, 8 Nov 2025 14:50:00 -0800)
+
+- **ياسمين عبدالعزيز توجه رسالة مثيرة للجدل عن المرأة: «لا يشوه سمعتها إلا اثنان»**: [Link](https://www.almasryalyoum.com/news/details/3595208)
+- **من يريد تشويه سمعتها؟.. رسالة غامضة من ياسمين عبدالعزيز تربك الجمهور**: [Link](https://24.ae/article/928668/%D9%85%D9%86-%D9%8A%D8%B1%D9%8A%D8%AF-%D8%AA%D8%B4%D9%88%D9%8A%D9%87-%D8%B3%D9%85%D8%B9%D8%AA%D9%87%D8%A7-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%BA%D8%A7%D9%85%D8%B6%D8%A9-%D9%85%D9%86-%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%AA%D8%B1%D8%A8%D9%83-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1)
+- **ما الذى تقصده ياسمين عبد العزيز من منشورها الغامض؟**: [Link](https://www.youm7.com/story/2025/11/8/%D9%85%D8%A7-%D8%A7%D9%84%D8%B0%D9%89-%D8%AA%D9%82%D8%B5%D8%AF%D9%87-%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D9%85%D9%86-%D9%85%D9%86%D8%B4%D9%88%D8%B1%D9%87%D8%A7-%D8%A7%D9%84%D8%BA%D8%A7%D9%85%D8%B6/7189023)
+
+
+### nayef aguerd (N/A, Sat, 8 Nov 2025 14:50:00 -0800)
+
+- **OM, Maroc : Roberto De Zerbi fait une terrible annonce sur la blessure de Nayef Aguerd**: [Link](https://www.footmercato.net/a1713234580922919468-om-maroc-roberto-de-zerbi-fait-une-terrible-annonce-sur-la-blessure-de-nayef-aguerd)
+- **Inquiétude pour le défenseur de l'OM Nayef Aguerd, victime d'une pubalgie**: [Link](https://www.lequipe.fr/Football/Actualites/Inquietude-pour-le-defenseur-de-l-om-nayef-aguerd-victime-d-une-pubalgie-il-est-necessaire-qu-il-s-arrete-un-petit-peu/1608512)
+- **OM : une pubalgie pour Aguerd**: [Link](https://news.maxifoot.fr/om/une-pubalgie-pour-aguerd-foot-444330.htm)
+
+
 ### ac milan (N/A, Sat, 8 Nov 2025 13:40:00 -0800)
 
 - **Sacchi sees Allegri’s improvement but warns Milan about Parma**: [Link](https://football-italia.net/sacchi-allegri-improvement-warn-milan-parma/)
