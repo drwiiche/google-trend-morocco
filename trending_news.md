@@ -1,3 +1,10 @@
+### juventus – torino (N/A, Sat, 8 Nov 2025 08:20:00 -0800)
+
+- **Today’s Papers – Juventus and Torino want the derby, Milan for the top spot**: [Link](https://football-italia.net/today-papers-juventus-torino-derby-milan-top/)
+- **Vasilije Adzic vs. Torino FC – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/vasilije-adzic-soccer-player-props-11-8-2025/87155713007/)
+- **Vagnati wants ‘character and courage’ from Torino against rivals Juventus**: [Link](https://www.yardbarker.com/soccer/articles/vagnati_wants_character_and_courage_from_torino_against_rivals_juventus/s1_17344_43035984)
+
+
 ### bayern munich (N/A, Sat, 8 Nov 2025 07:50:00 -0800)
 
 - **Report: Man United set to compete with Real Madrid for 27-year-old Bundesliga star**: [Link](https://www.caughtoffside.com/2025/11/08/man-united-compete-real-madrid-dayot-upamecano/)
