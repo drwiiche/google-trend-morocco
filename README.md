@@ -1,3 +1,10 @@
+### tottenham – manchester united (N/A, Sat, 8 Nov 2025 03:40:00 -0800)
+
+- **Team news | Thomas Frank's latest on Mo Kudus**: [Link](https://www.tottenhamhotspur.com/news/2025/november/team-news-spurs-vs-manchester-united-premier-league-thomas-franks-latest-on-mo-kudus/)
+- **Team news for Tottenham Hotspur v Man Utd from Ruben Amorim**: [Link](https://www.manutd.com/en/news/detail/team-news-for-tottenham-hotspur-v-man-utd-from-ruben-amorim)
+- **Preview: Spurs looking to continue good run against Manchester United**: [Link](https://www.fotmob.com/topnews/23857-preview-spurs-looking-continue-good-run-against-manchester-united?utm_source=fotmob)
+
+
 ### طقس طنجة (N/A, Fri, 7 Nov 2025 22:00:00 -0800)
 
 - **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-35-1652439.html)
