@@ -1,3 +1,10 @@
+### chelsea (N/A, Sat, 8 Nov 2025 13:10:00 -0800)
+
+- **Arsenal 1-1 Chelsea: Alessia Russo scores late equaliser for Gunners**: [Link](https://www.bbc.com/sport/football/live/cly95yjpprxt)
+- **Renee Slegers reacts to 1-1 draw with Chelsea**: [Link](https://arseblog.news/2025/11/renee-slegers-reacts-to-1-1-draw-with-chelsea/)
+- **WSL LIVE: Arsenal vs Chelsea & Man Utd vs Aston Villa - scores & updates**: [Link](https://www.bbc.co.uk/sport/football/live/cp3vk381xwet?page=9)
+
+
 ### concentrix (N/A, Sat, 8 Nov 2025 13:20:00 -0800)
 
 - **Concentrix Corporation (NASDAQ:CNXC) Not Doing Enough For Some Investors As Its Shares Slump 28%**: [Link](https://simplywall.st/stocks/us/commercial-services/nasdaq-cnxc/concentrix/news/concentrix-corporation-nasdaqcnxc-not-doing-enough-for-some)
