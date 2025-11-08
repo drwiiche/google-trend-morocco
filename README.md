@@ -1,3 +1,10 @@
+### espanyol – villarreal (N/A, Sat, 8 Nov 2025 11:20:00 -0800)
+
+- **¿Creéis que Gerard Moreno volverá a jugar en el Espanyol?**: [Link](https://pericos.es/2025/11/08/creeis-que-gerard-moreno-volvera-a-jugar-en-el-espanyol/)
+- **Espanyol – Villarreal: horario y dónde ver hoy por TV el partido de fútbol de LaLiga EA Sports**: [Link](https://www.lavanguardia.com/deportes/futbol/20251108/21945/horario-partido-ca-espanyol-villarreal-ctx.html)
+- **Alineaciones confirmadas del Espanyol y el Villareal en la jornada 12 de LALIGA**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20251108/alineaciones-confirmadas-espanyol-villareal-jornada-12_300804947.html)
+
+
 ### parme – ac milan (N/A, Sat, 8 Nov 2025 11:10:00 -0800)
 
 
