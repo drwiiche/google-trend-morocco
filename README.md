@@ -1,3 +1,10 @@
+### tottenham vs man united (N/A, Sat, 8 Nov 2025 03:50:00 -0800)
+
+- **Ruben Amorim calls up Man Utd wonderkid to first-team squad after Kobbie Mainoo’s injury**: [Link](https://www.unitedinfocus.com/news/ruben-amorim-calls-up-man-utd-wonderkid-to-first-team-squad-after-kobbie-mainoos-injury/)
+- **Man Utd's historic 88-year tradition saved by Darren Fletcher's son after injury scare**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-man-utd-jack-fletcher-36212552)
+- **Huge Manchester United squad hint for Tottenham as Ruben Amorim makes Lisandro Martinez call**: [Link](https://www.football.london/tottenham-hotspur-fc/news/huge-manchester-united-squad-hint-32836416)
+
+
 ### girona – deportivo alavés (N/A, Sat, 8 Nov 2025 04:10:00 -0800)
 
 - **Preview:Girona vs Alaves - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/preview/girona-vs-alaves-prediction-team-news-lineups_585244.html)
