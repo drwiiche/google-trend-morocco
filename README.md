@@ -1,3 +1,10 @@
+### sunderland – arsenal (N/A, Sat, 8 Nov 2025 08:50:00 -0800)
+
+- **Sunderland vs Arsenal: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5ypjy3ednjt)
+- **Le Bris provides Alderete update ahead of Arsenal clash**: [Link](https://www.safc.com/news/2025/november/07/le-bris-provides-alderete-update-ahead-of-arsenal-catch/)
+- **Every word from Arteta's pre-Sunderland presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-sunderland-presser)
+
+
 ### atlético madrid – levante (N/A, Sat, 8 Nov 2025 08:40:00 -0800)
 
 - **Atlético de Madrid - Levante UD: Los de Julián Calero buscan reencontrarse en Madrid**: [Link](https://onefootball.com/pt-br/noticias/atletico-de-madrid-levante-ud-los-de-julian-calero-buscan-reencontrarse-en-madrid-41920410)
