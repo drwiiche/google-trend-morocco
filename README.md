@@ -1,3 +1,17 @@
+### west ham – burnley (N/A, Sat, 8 Nov 2025 07:10:00 -0800)
+
+- **Nuno Espirito Santo facing major dilemma with key West Ham star injured for Burnley**: [Link](https://www.hammers.news/news/nuno-espirito-santo-facing-dilemma-with-west-ham-star-callum-wilson-a-major-doubt-for-burnley/)
+- **Football Bet Of The Day: Joe Casey has a selection from the Premier League**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-joe-casey-has-a-selection-from-the-premier-league-acrl50t646SH/)
+- **West Ham United vs Burnley: Premier League tips and odds**: [Link](https://www.telegraph.co.uk/betting/football/west-ham-vs-burnley-prediction-tips-2025/)
+
+
+### al shabab – al-ettifaq (N/A, Sat, 8 Nov 2025 07:10:00 -0800)
+
+- **Al Najma vs. Al Hilal (7 Nov, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/755967)
+- **Al Shabab vs. Al Ettifaq (8 Nov, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/755974)
+- **Al Fayha vs. Al Okhdood (7 Nov, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/755969)
+
+
 ### union berlin vs bayern (N/A, Sat, 8 Nov 2025 06:50:00 -0800)
 
 - **Kompany discusses possible rotation ahead of Union Berlin clash**: [Link](https://bulinews.com/kompany-discusses-possible-rotation-ahead-union-berlin-clash)
