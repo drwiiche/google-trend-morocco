@@ -1,3 +1,10 @@
+### parma vs milan (N/A, Sat, 8 Nov 2025 12:30:00 -0800)
+
+- **Sacchi sees Allegri’s improvement but warns Milan about Parma**: [Link](https://football-italia.net/sacchi-allegri-improvement-warn-milan-parma/)
+- **Will Christian Pulisic start after injury return? Milan’s projected lineup for Serie A game vs. Parma, with...**: [Link](https://worldsoccertalk.com/news/will-christian-pulisic-start-after-injury-return-milans-projected-lineup-for-serie-a-game-vs-parma-with-santiago-gimenez-ruled-out-and-luka-modric-in-contention/)
+- **Samuele Ricci vs. Parma – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/08/samuele-ricci-soccer-player-props-11-8-2025/87163592007/)
+
+
 ### إسبانيول ضد فياريال (N/A, Sat, 8 Nov 2025 12:20:00 -0800)
 
 - **«لا ليغا»: ألافيس يخمد صحوة إسبانيول**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5204271-%D9%84%D8%A7-%D9%84%D9%8A%D8%BA%D8%A7-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%8A%D8%AE%D9%85%D8%AF-%D8%B5%D8%AD%D9%88%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84)
