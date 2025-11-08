@@ -1,3 +1,10 @@
+### marseille – brest (N/A, Sat, 8 Nov 2025 07:20:00 -0800)
+
+- **Surprise pour l’OM !**: [Link](https://www.sports.fr/football/ligue-1/surprise-pour-lom-965640.html)
+- **Les justifications de Roberto De Zerbi sur la mauvaise passe de l’OM**: [Link](https://www.footmercato.net/a6779488451649717864-les-justifications-de-roberto-de-zerbi-sur-la-mauvaise-passe-de-lom)
+- **Marseille - Brest. « Il ne faut pas que le management soit déceptif » : comment maintenir la confiance avant l’OM**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/marseille-brest-il-ne-faut-pas-que-le-management-soit-deceptif-comment-maintenir-la-confiance-avant-lom-448c5e80-bc7e-11f0-8cb4-6688b3edc317)
+
+
 ### west ham – burnley (N/A, Sat, 8 Nov 2025 07:10:00 -0800)
 
 - **Nuno Espirito Santo facing major dilemma with key West Ham star injured for Burnley**: [Link](https://www.hammers.news/news/nuno-espirito-santo-facing-dilemma-with-west-ham-star-callum-wilson-a-major-doubt-for-burnley/)
