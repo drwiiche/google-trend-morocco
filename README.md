@@ -1,3 +1,17 @@
+### monaco – lens (N/A, Sat, 8 Nov 2025 11:40:00 -0800)
+
+- **Monaco communique sur Pogba**: [Link](https://www.football365.fr/monaco-communique-sur-pogba-10263980.html)
+- **ASM-RCL : Les compo probables**: [Link](https://asm-supporters.fr/actualites/64169-asm-rcl-les-compo-probable)
+- **Le groupe monégasque : Zakaria et Dier sont là, pas Hradecky**: [Link](https://www.ladiagonale.net/index.php/2025/11/08/le-groupe-monegasque-zakaria-et-dier-sont-la-pas-hradecky/)
+
+
+### sion assidon (N/A, Sat, 8 Nov 2025 11:40:00 -0800)
+
+- **Prosecutor Says Sion Assidon’s Death Linked to Accidental Fall at Home**: [Link](https://www.moroccoworldnews.com/2025/11/267008/prosecutor-says-sion-assidons-death-linked-to-accidental-fall-at-home/)
+- **Sion Assidon, Jewish Moroccan Voice for Palestine, Opponent of Normalization, Dies**: [Link](https://www.palestinechronicle.com/sion-assidon-jewish-moroccan-voice-for-palestine-opponent-of-normalization-dies/)
+- **Sion Assidon’s death liked to head injury complications from suspected fall while gardening**: [Link](https://www.yabiladi.com/articles/details/180771/sion-assidon-s-death-liked-head.html)
+
+
 ### espanyol – villarreal (N/A, Sat, 8 Nov 2025 11:20:00 -0800)
 
 - **¿Creéis que Gerard Moreno volverá a jugar en el Espanyol?**: [Link](https://pericos.es/2025/11/08/creeis-que-gerard-moreno-volvera-a-jugar-en-el-espanyol/)
