@@ -1,3 +1,17 @@
+### إسبانيول ضد فياريال (N/A, Sat, 8 Nov 2025 12:20:00 -0800)
+
+- **«لا ليغا»: ألافيس يخمد صحوة إسبانيول**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5204271-%D9%84%D8%A7-%D9%84%D9%8A%D8%BA%D8%A7-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%8A%D8%AE%D9%85%D8%AF-%D8%B5%D8%AD%D9%88%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84)
+- **شاهد الأن.. بث مباشر لمباراة إسبانيول وفياريال في الدوري الإسباني**: [Link](https://www.khaligyoun.com/598763/)
+- **بث مباشر بجودة عالية 4k..مشاهدة مباراة إسبانيول ضد فياريال في الدوري الإسباني**: [Link](https://www.almashhad.news/351746)
+
+
+### تشيلسي ضد وولفرهامبتون (N/A, Sat, 8 Nov 2025 12:10:00 -0800)
+
+- **التشكيل المتوقع لمباراة تشيلسي ووولفرهامبتون**: [Link](https://www.arrajol.com/content/388295/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%88%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86)
+- **جواو بيدرو يقود هجوم تشيلسي أمام وولفرهامبتون في البريميرليج**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=08112025&id=a75df3ca-4f6b-4afe-a41d-1fa7831a6dce)
+- **ديلاب يقود هجوم تشيلسي في مواجهة وولفرهامبتون بالدوري الإنجليزي**: [Link](https://newsroom.info/202513)
+
+
 ### monaco – lens (N/A, Sat, 8 Nov 2025 11:40:00 -0800)
 
 - **Monaco communique sur Pogba**: [Link](https://www.football365.fr/monaco-communique-sur-pogba-10263980.html)
