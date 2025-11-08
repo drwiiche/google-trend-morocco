@@ -1,3 +1,10 @@
+### concentrix (N/A, Sat, 8 Nov 2025 13:20:00 -0800)
+
+- **Concentrix Corporation (NASDAQ:CNXC) Not Doing Enough For Some Investors As Its Shares Slump 28%**: [Link](https://simplywall.st/stocks/us/commercial-services/nasdaq-cnxc/concentrix/news/concentrix-corporation-nasdaqcnxc-not-doing-enough-for-some)
+- **Concentrix Corp stock hits 52-week low at 36.12 USD**: [Link](https://www.investing.com/news/company-news/concentrix-corp-stock-hits-52week-low-at-3612-usd-93CH-4343079)
+- **Concentrix (NASDAQ:CNXC) Sets New 1-Year Low - What's Next?**: [Link](https://www.marketbeat.com/instant-alerts/concentrix-nasdaqcnxc-sets-new-1-year-low-whats-next-2025-11-07/)
+
+
 ### بارما ضد ميلان (N/A, Sat, 8 Nov 2025 12:40:00 -0800)
 
 - **أليجري يوجه تحذيرًا مبطنًا لماينان.. ويعلن عودة نجم ميلان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%84%D9%8A%D8%AC%D8%B1%D9%8A-%D9%8A%D9%88%D8%AC%D9%87-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D9%8B%D8%A7-%D9%85%D8%A8%D8%B7%D9%86%D9%8B%D8%A7-%D9%84%D9%85%D8%A7%D9%8A%D9%86%D8%A7%D9%86--%D9%88%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%88%D8%AF%D8%A9-%D9%86%D8%AC%D9%85-%D9%85%D9%8A%D9%84%D8%A7%D9%86/blte856c513836fccb4)
