@@ -1,3 +1,17 @@
+### girona – deportivo alavés (N/A, Sat, 8 Nov 2025 04:10:00 -0800)
+
+- **Preview:Girona vs Alaves - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/preview/girona-vs-alaves-prediction-team-news-lineups_585244.html)
+- **Carlos Vicente vs. Girona FC – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/carlos-vicente-soccer-player-props-11-8-2025/87156224007/)
+- **PREVIEW | Girona vs Alavés - team news, lineups, predictions**: [Link](https://www.playmakerstats.com/news/preview-girona-vs-alaves-team-news-lineups-predictions/969632)
+
+
+### توتنهام ضد مان يونايتد (N/A, Sat, 8 Nov 2025 03:50:00 -0800)
+
+- **الذكاء الاصطناعي يتوقع نتيجة قمة توتنهام هوتسبير ومانشستر يونايتد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%82%D9%85%D8%A9-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%87%D9%88%D8%AA%D8%B3%D8%A8%D9%8A%D8%B1-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/blt93556811c62dd089)
+- **قبل المواجهة الأولى .. فرانك يستعيد ذكرياته مع مبيومو**: [Link](https://hihi2.com/2025/11/07/p3463956.html)
+- **إصابة مفاجئة تضرب مانشستر يونايتد قبل مواجهة توتنهام**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/1350812/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%82%D8%A8%D9%84)
+
+
 ### tottenham – manchester united (N/A, Sat, 8 Nov 2025 03:40:00 -0800)
 
 - **Team news | Thomas Frank's latest on Mo Kudus**: [Link](https://www.tottenhamhotspur.com/news/2025/november/team-news-spurs-vs-manchester-united-premier-league-thomas-franks-latest-on-mo-kudus/)
