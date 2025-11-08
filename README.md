@@ -1,3 +1,10 @@
+### طقس طنجة (N/A, Fri, 7 Nov 2025 22:00:00 -0800)
+
+- **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-35-1652439.html)
+- **طقس الأحد.. أمطار خفيفة وطقس غائم**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%83%D8%AA%D9%84-%D8%B6%D8%A8%D8%A7%D8%A8%D9%8A%D8%A9-%D9%85%D8%B9-%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A/)
+- **النماذج الجوية تثبت على سيناريو ممطر: المغرب مقبل على مرحلة رطبة بعد أسابيع من الانقطاع**: [Link](https://www.ariffino.net/%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9-%D9%88-%D9%85%D8%AC%D8%AA%D9%85%D8%B9/%D8%A7%D9%84%D9%86%D9%85%D8%A7%D8%B0%D8%AC-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AB%D8%A8%D8%AA-%D8%B9%D9%84%D9%89-%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D9%85%D9%85%D8%B7%D8%B1-%D8%A7)
+
+
 ### la 5g (N/A, Fri, 7 Nov 2025 08:30:00 -0800)
 
 - **Morocco Officially Launches 5G Services Nationwide**: [Link](https://www.moroccoworldnews.com/2025/11/266890/morocco-officially-launches-5g-services-nationwide/)
