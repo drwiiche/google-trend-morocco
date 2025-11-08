@@ -1,3 +1,24 @@
+### séville – osasuna (N/A, Sat, 8 Nov 2025 06:40:00 -0800)
+
+- **DIRECT. Séville FC-Osasuna (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/seville-fc-osasuna-live/676831)
+- **Séville vs Osasuna – Pronos, Analyse et Cotes le 08/11/2025**: [Link](https://paris-sportifs.lefigaro.fr/pronostics/seville-osasuna-08-11-2025/)
+- **Billets Sevilla FC – CA Osasuna | Acheter des billets LaLiga, 12e journée, Ramón Sánchez Pizjuán**: [Link](https://karlobag.eu/fr/billets/football/billets-sevilla-fc---ca-osasuna-acheter-des-billets-pour-laliga-a-seville-12e-journee-stade-ramon-sanchez-pizjuan-lvsfj)
+
+
+### يونيون برلين ضد البايرن (N/A, Sat, 8 Nov 2025 06:40:00 -0800)
+
+- **التلميذ كومباني يقترب من رقم الأستاذ غوارديولا القياسي ببايرن ميونخ**: [Link](https://www.aljazeera.net/sport/2025/11/7/%D8%A7%D9%84%D8%AA%D9%84%D9%85%D9%8A%D8%B0-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D9%82%D9%85-%D8%A7%D9%84%D8%A3%D8%B3%D8%AA%D8%A7%D8%B0)
+- **بايرن لا يرحم.. ويونيون يتشبث بحلمه في الغابة المحرَّمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%84%D8%A7-%D9%8A%D8%B1%D8%AD%D9%85--%D9%88%D9%8A%D9%88%D9%86%D9%8A%D9%88%D9%86-%D9%8A%D8%AA%D8%B4%D8%A8%D8%AB-%D8%A8%D8%AD%D9%84%D9%85%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%8E%D9%91%D9%85%D8%A9/blt0a8f94139c5224fc)
+- **الأعلى تقييمًا في البايرن بالدوري الألماني 2025/26**: [Link](https://hihi2.com/2025/11/08/p3464377.html)
+
+
+### everton – fulham (N/A, Sat, 8 Nov 2025 06:40:00 -0800)
+
+- **David Moyes has unpopular Beto dilemma as Everton need win vs Fulham**: [Link](https://www.goodisonnews.com/2025/11/08/david-moyes-has-unpopular-beto-dilemma-as-everton-need-win-vs-fulham/)
+- **What The Papers Say - 7 November**: [Link](https://www.evertonfc.com/news/2025/november/07/what-the-papers-say---7-november/)
+- **Everton’s unique team-building exercise exposed as David Moyes aims to keep spirits high**: [Link](https://www.everton.news/evertons-unique-team-building-exercise-exposed-as-david-moyes-aims-to-keep-spirits-high/)
+
+
 ### leverkusen – heidenheim (N/A, Sat, 8 Nov 2025 06:10:00 -0800)
 
 - **Bundesliga: Wo läuft Bayer Leverkusen gegen 1. FC Heidenheim heute live?**: [Link](https://www.dazn.com/de-AT/news/fussball/bundesliga-wo-laeuft-bayer-leverkusen-gegen-1-fc-heidenheim-heute-live/1s6z9n4r2yrsk1ija8lq8gr4xs)
