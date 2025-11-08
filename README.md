@@ -1,3 +1,17 @@
+### union berlin vs bayern (N/A, Sat, 8 Nov 2025 06:50:00 -0800)
+
+- **Kompany discusses possible rotation ahead of Union Berlin clash**: [Link](https://bulinews.com/kompany-discusses-possible-rotation-ahead-union-berlin-clash)
+- **Steffen Baumgart reveals his plan against FC Bayern: ‘With a high level of aggression, but...’**: [Link](https://tribuna.com/en/news/2025-11-08-steffen-baumgart-reveals-his-plan-against-fc-bayern-with-a-high-level-of-aggression-but/)
+- **Ilyas Ansah vs. Bayern Munich – Player props & odds to score a goal on November 8**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/07/ilyas-ansah-soccer-player-props-11-8-2025/87156047007/)
+
+
+### 5g اتصالات المغرب (N/A, Sat, 8 Nov 2025 05:50:00 -0800)
+
+- **إطلاق أنترنيت الجيل الخامس (5G) يدخل المغاربة إلى العصر الرقمي الجديد**: [Link](https://www.hespress.com/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A3%D9%86%D8%AA%D8%B1%D9%86%D9%8A%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-5g-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D9%85%D8%BA-1652175.html)
+- **إطلاق المرحلة الأولى لشبكة G5 باستثمارات 80 مليار درهم حتى 2035**: [Link](https://ar.telquel.ma/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D9%84%D8%B4%D8%A8%D9%83%D8%A9-g5-%D8%A8%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1%D8%A7/)
+- **المغرب يطلق "الجيل الخامس" للاتصالات عبر 3 شركات عاملة بالبلاد**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B7%D9%84%D9%82-%D8%A7%D9%84%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D9%84%D9%84%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-%D8%B9%D8%A8%D8%B1-3-%D8%B4%D8%B1%D9%83%D8%A7%D8%AA-%D8%B9%D8%A7%D9%85%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF/3737681)
+
+
 ### séville – osasuna (N/A, Sat, 8 Nov 2025 06:40:00 -0800)
 
 - **DIRECT. Séville FC-Osasuna (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/seville-fc-osasuna-live/676831)
