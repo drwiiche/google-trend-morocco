@@ -1,3 +1,24 @@
+### le havre – nantes (N/A, Sat, 8 Nov 2025 10:30:00 -0800)
+
+- **DIRECT. Le Havre-Nantes (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/le-havre-nantes-live/675897)
+- **Havre Athletic Club - FC Nantes en direct - Ligue 1 : Football Scores & Résultats - 08/11/2025**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-havre-athletic-club-fc-nantes_mtc1609232/live-commentary.shtml)
+- **DIRECT - Ligue 1 : écoutez Le Havre - Nantes, match à suivre en intégralité sur Ici Normandie**: [Link](https://www.francebleu.fr/sports/football/direct-ligue-1-ecoutez-le-havre-nantes-match-a-suivre-en-integralite-sur-ici-normandie-1781296)
+
+
+### wydad athletic club (N/A, Sat, 8 Nov 2025 10:20:00 -0800)
+
+- **Fumigènes, feux d’artifice... Qui sont les Ultras Winners 2005, ces supporters du Wydad qui ont enflammé Paris ?**: [Link](https://rmcsport.bfmtv.com/football/fumigenes-feux-d-artifice-qui-sont-les-ultras-winners-2005-ces-supporters-du-wydad-qui-ont-enflamme-paris_AV-202511080322.html)
+- **Des ultras marocains du Wydad Athletic Club ont embrasé Paris pour célébrer leurs 20 ans**: [Link](https://www.lequipe.fr/Football/Actualites/Des-ultras-marocains-du-wydad-athletic-club-ont-embrase-paris-pour-celebrer-leurs-20-ans/1608310)
+- **« Meilleur public du monde » : qui sont les ultras du Wydad Casablanca, qui ont enflammé Paris**: [Link](https://www.leparisien.fr/sports/football/meilleur-public-du-monde-qui-sont-les-ultras-du-wydad-casablanca-qui-ont-enflamme-paris-08-11-2025-3WBVZBMN7JC2JDC7H32EUGERBE.php)
+
+
+### أولمبيك مارسيليا ضد بريست (N/A, Sat, 8 Nov 2025 09:30:00 -0800)
+
+- **مارسيليا يعمق جراح بريست بثلاثية ويعتلي صدارة الدوري الفرنسي**: [Link](https://www.yallakora.com/ligue1/2979/news/529653/%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D8%B9%D9%85%D9%82-%D8%AC%D8%B1%D8%A7%D8%AD-%D8%A8%D8%B1%D9%8A%D8%B3%D8%AA-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D9%88%D9%8A%D8%B9%D8%AA%D9%84%D9%8A-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A)
+- **دي زيربي يشيد بمارسيليا بعد الفوز الصعب في اوكسير**: [Link](https://www.elsport.com/news/show/798731/%D8%B2%D9%8A%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%B5%D8%B9%D8%A8-%D8%A7%D9%88%D9%83%D8%B3%D9%8A%D8%B1)
+- **تغطية حية.. مباشر مباراة مارسيليا وبريست (0-0) في الدوري الفرنسي**: [Link](https://www.masrtimes.com/617019)
+
+
 ### djokovic (N/A, Sat, 8 Nov 2025 10:00:00 -0800)
 
 - **Djokovic honours Nikola Pilic's memory: 'As long as I live, I will celebrate his name'**: [Link](https://www.atptour.com/en/news/djokovic-athens-2025-pilic-ceremony-reaction)
