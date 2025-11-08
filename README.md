@@ -1,3 +1,17 @@
+### djokovic (N/A, Sat, 8 Nov 2025 10:00:00 -0800)
+
+- **Djokovic honours Nikola Pilic's memory: 'As long as I live, I will celebrate his name'**: [Link](https://www.atptour.com/en/news/djokovic-athens-2025-pilic-ceremony-reaction)
+- **Omni sports - Sports**: [Link](https://english.ahram.org.eg/Category/6/56/Sports/Tennis-Sabalenka-beats-Anisimova-in-puls.aspx)
+- **Novak Djokovic’s Athens Odyssey: A Love Letter to Greek Tennis –**: [Link](https://greekcitytimes.com/2025/11/09/novak-djokovic-athens-greek-tennis-love-letter/)
+
+
+### يوفنتوس ضد تورينو (N/A, Sat, 8 Nov 2025 09:50:00 -0800)
+
+- **التشكيل المتوقع لمباراة يوفنتوس وتورينو في الدوري الإيطالي**: [Link](https://www.arrajol.com/content/388297/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%88%D8%AA%D9%88%D8%B1%D9%8A%D9%86%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A)
+- **الحلم نيوز : الشوط الأول – يوفنتوس يتعادل سلبيا مع تورينو**: [Link](https://www.al7lmnews.com/18743/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D9%86%D9%8A%D9%88%D8%B2-%D8%A7%D9%84%D8%B4%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%8A%D8%AA%D8%B9%D8%A7-2/)
+- **كاسادي: جاهزون للديربي ضد يوفنتوس**: [Link](https://www.elsport.com/news/show/799492/%D9%83%D8%A7%D8%B3%D8%A7%D8%AF%D9%8A-%D8%AC%D8%A7%D9%87%D8%B2%D9%88%D9%86-%D9%84%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3)
+
+
 ### إشبيلية ضد أوساسونا (N/A, Sat, 8 Nov 2025 08:30:00 -0800)
 
 - **أنهى سلسلة سلبية.. إشبيلية يهزم أوساسونا في الدوري الإسباني**: [Link](https://www.yallakora.com/la-liga/2982/news/529649/%D8%A3%D9%86%D9%87%D9%89-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%B3%D9%84%D8%A8%D9%8A%D8%A9-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A)
