@@ -1,3 +1,15 @@
+### parme – ac milan (N/A, Sat, 8 Nov 2025 11:10:00 -0800)
+
+
+
+
+### chelsea – wolves (N/A, Sat, 8 Nov 2025 11:10:00 -0800)
+
+- **Enzo Maresca confirms Chelsea team news for Wolves | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-confirms-chelsea-team-news-for-wolves-pl)
+- **Predicted XI: Huge decision in one position will tell us a lot about Chelsea key player’s future**: [Link](https://sports.yahoo.com/article/predicted-xi-huge-decision-one-163000680.html)
+- **“I expect” – Paul Merson gives his prediction for Chelsea vs Wolves**: [Link](https://onefootball.com/en/news/i-expect-paul-merson-gives-his-prediction-for-chelsea-vs-wolves-41923080)
+
+
 ### juventus (N/A, Sat, 8 Nov 2025 11:00:00 -0800)
 
 - **Serie A: in campo Juventus-Torino 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/11/08/serie-a-in-campo-juventus-torino-0-0-diretta-_688c706a-9b5d-47a2-b47a-2d9ec51606b4.html)
