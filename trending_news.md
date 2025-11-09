@@ -1,3 +1,10 @@
+### frankenstein 2025 (N/A, Sat, 8 Nov 2025 13:50:00 -0800)
+
+- **‘Frankenstein’ Review: Guillermo del Toro Takes on the Monster**: [Link](https://www.wsj.com/arts-culture/television/frankenstein-review-guillermo-del-toro-takes-on-the-monster-d1bc4410?gaa_at=eafs&gaa_n=AWEtsqfULwXyYszbi3gcTkeKyWxbLEYuS5VMwX3ET8PdyvVTDYx68Ajv2fXp&gaa_ts=69100e3f&gaa_sig=1mENNkwRQw4unBx3-8X7RDbG4KWCz8zszogEdfMshg5-zh0mbVHYeLS7kvRWqx-FxlbJdyoBk8dpB_BrYyAdPQ%3D%3D)
+- **Frankenstein’s Many Adaptations Over the Years**: [Link](https://www.nytimes.com/interactive/2025/11/06/arts/frankenstein-adaptations.html)
+- **Dissect the Emotional Ending of Frankenstein**: [Link](https://www.netflix.com/tudum/articles/frankenstein-ending-explained)
+
+
 ### inter miami – nashville (N/A, Sat, 8 Nov 2025 16:20:00 -0800)
 
 - **Inter Miami vs. Nashville SC: Preview, Predictions and Lineups of Game Three Playoff Clash**: [Link](https://www.si.com/soccer/inter-miami-vs-nashville-sc-preview-predictions-lineups-11-8-25)
