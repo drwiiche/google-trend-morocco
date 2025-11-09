@@ -1,3 +1,10 @@
+### aston villa – bournemouth (N/A, Sun, 9 Nov 2025 05:20:00 -0800)
+
+- **Unai Emery has ‘very good news’ about a missing midfielder**: [Link](https://www.vavel.com/en/football/2025/11/07/aston-villa/1240569-unai-emery-has-very-good-news-about-a-missing-midfielder.html)
+- **Premier League 2pm matches: Scores and latest updates including Aston Villa vs Bournemouth**: [Link](https://www.telegraph.co.uk/football/2025/11/09/premier-league-2pm-matches-scores-updates-newcastle-villa/)
+- **Cherries visit Villa in final game before international break: Build up**: [Link](https://www.bournemouthecho.co.uk/sport/25607648.afc-bournemouth-visit-aston-villa-updates/)
+
+
 ### morocco u-17 vs new caledonia u-17 (N/A, Sun, 9 Nov 2025 05:10:00 -0800)
 
 - **Morocco U17 vs New Caledonia U17- When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/267104/morocco-u17-vs-new-caledonia-u17-when-how-to-watch/)
