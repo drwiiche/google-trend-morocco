@@ -1,3 +1,38 @@
+### morocco u-17 vs new caledonia u-17 (N/A, Sun, 9 Nov 2025 05:10:00 -0800)
+
+- **Morocco U17 vs New Caledonia U17- When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/267104/morocco-u17-vs-new-caledonia-u17-when-how-to-watch/)
+- **Morocco U17 – New Caledonia U17: What time and on which channel to watch the decisive World Cup clash live?**: [Link](https://foot-africa.com/en/news/morocco-u17-new-caledonia-u17-what-time-and-on-which-channel-to-watch-the-decisive-world-cup-clash-live-953066/)
+- **Morocco vs New Caledonia: What time and on which channel to watch the U17 World Cup match live?**: [Link](https://ca.sports.yahoo.com/news/morocco-vs-caledonia-time-channel-150500283.html)
+
+
+### زغلول النجار (N/A, Sun, 9 Nov 2025 05:00:00 -0800)
+
+- **وفاة العلامة والداعية المصري زغلول النجار عن 92 عاماً**: [Link](https://www.alarabiya.net/arab-and-world/2025/11/09/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%B2%D8%BA%D9%84%D9%88%D9%84-%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%B1-%D8%B9%D9%86-%D8%B9%D9%85%D8%B1-%D9%8A%D9%86%D8%A7%D9%87%D8%B2-92-%D8%B9%D8%A7%D9%85%D8%A7)
+- **زغلول النجار.. العالم الذي جعل من العلم جسرًا إلى الإيمان (بورتريه)**: [Link](https://albosala.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%B2%D8%BA%D9%84%D9%88%D9%84-%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%B1/)
+- **وفاة الدكتور زغلول النجار فى الأردن بعد صراع مع المرض**: [Link](https://www.youm7.com/story/2025/11/9/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D8%AF%D9%83%D8%AA%D9%88%D8%B1-%D8%B2%D8%BA%D9%84%D9%88%D9%84-%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%B1-%D9%81%D9%89-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%B1%D8%B6/7190764)
+
+
+### anderlecht – club brugge (N/A, Sun, 9 Nov 2025 05:00:00 -0800)
+
+- **LIVE - Anderlecht al op voorsprong: Mechele tikt voorzet Hazard in eigen doel**: [Link](https://sporza.be/nl/matches/voetbal/jupiler-pro-league/2025-2026/regulier/14/anderlecht-club-brugge-live-anderlecht-al-op-voorsprong-mechele-tikt-voorzet-hazard-in-eigen-doel~1750663331511/)
+- **Besnik Hasi behoudt vertrouwen in elftal, Romeo Vermant start bij Club Brugge**: [Link](https://www.gva.be/sport/besnik-hasi-behoudt-vertrouwen-in-elftal-romeo-vermant-start-bij-club-brugge/99691082.html)
+- **De selectie voor de topper: Kanaté komt erbij (09 nov 25)**: [Link](https://www.anderlecht-online.be/nl/article/246885)
+
+
+### maroc u-17 – nouvelle-calédonie u-17 (N/A, Sun, 9 Nov 2025 04:50:00 -0800)
+
+- **Match Maroc – Nouvelle-Calédonie : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/marocnouvelle-caledonie-dernier-match-au-mondial-u17/312469)
+- **Coupe du monde U17 de la FIFA : la Sélection Nationale reprend les entraînements en prévision du match face à la Nouvelle Calédonie – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%A3%D9%86%D9%81-%D8%AA%D8%AF%D8%A7/)
+- **Une victoire ne suffit pas... Les Marocains attendent un cadeau qatari et le destin pourrait être scellé aujourd'hui**: [Link](https://m.elbotola.com/fr/article/2025-11-09-08-28-887.html)
+
+
+### المغرب تحت 17 سنة ضد كاليدونيا الجديدة تحت 17 (N/A, Sun, 9 Nov 2025 04:50:00 -0800)
+
+- **المغرب في مونديال الناشئين.. كاليدونيا تحاكم باها قبل الرحيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D9%8A%D9%94%D9%8A%D9%86--%D9%83%D8%A7%D9%84%D9%8A%D8%AF%D9%88%D9%86%D9%8A%D8%A7-%D8%AA%D8%AD%D8%A7%D9%83%D9%85-%D8%A8%D8%A7%D9%87%D8%A7-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84/bltbd365e97853d7e96)
+- **آمال "الفتيان" في المونديال تتضاءل**: [Link](https://www.hespress.com/%D8%A2%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D8%AA%D9%8A%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%AA%D8%AA%D8%B6%D8%A7%D8%A1%D9%84-1652799.html)
+- **فوز لا يكفي .. المغاربة ينتظرون هدية قطرية و المصير قد يُحسم اليوم**: [Link](https://m.elbotola.com/article/2025-11-09-08-28-896.html)
+
+
 ### ath. bilbao – real oviedo (N/A, Sun, 9 Nov 2025 04:20:00 -0800)
 
 - **Athletic Club – Real Oviedo: Entre la urgencia y la esperanza**: [Link](https://onefootball.com/de/news/athletic-club-real-oviedo-entre-la-urgencia-y-la-esperanza-41926754)
