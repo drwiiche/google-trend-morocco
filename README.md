@@ -1,3 +1,10 @@
+### inter miami – nashville (N/A, Sat, 8 Nov 2025 16:20:00 -0800)
+
+- **Inter Miami vs. Nashville SC: Preview, Predictions and Lineups of Game Three Playoff Clash**: [Link](https://www.si.com/soccer/inter-miami-vs-nashville-sc-preview-predictions-lineups-11-8-25)
+- **Lions vs. Commanders: Where to watch NFL Week 10, score prediction, betting odds, sportsbook promos, SGP picks**: [Link](https://www.thepress.net/sports/national/lions-vs-commanders-where-to-watch-nfl-week-10-score-prediction-betting-odds-sportsbook-promos/article_a84d8bb4-b95f-59fb-9567-4a31cc88d951.html)
+- **Should Messi skip Argentina duty to focus on Inter Miami's MLS Cup run?**: [Link](https://www.espn.co.uk/video/clip?id=46880461)
+
+
 ### ياسمين عبد العزيز (N/A, Sat, 8 Nov 2025 14:50:00 -0800)
 
 - **ياسمين عبدالعزيز توجه رسالة مثيرة للجدل عن المرأة: «لا يشوه سمعتها إلا اثنان»**: [Link](https://www.almasryalyoum.com/news/details/3595208)
