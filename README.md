@@ -1,3 +1,24 @@
+### fifa u17 (N/A, Sun, 9 Nov 2025 07:00:00 -0800)
+
+- **Why the North Korean women's football team is so good**: [Link](https://www.dw.com/en/why-the-north-korean-womens-football-team-is-so-good/a-70313505)
+- **How to watch North-Korea U17 vs Netherlands U17 in the USA: Live Stream and TV for 2025 Women’s U17 World Cup**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-north-korea-u17-vs-netherlands-u17-in-the-usa-live-stream-and-tv-for-2025-womens-u17-world-cup/)
+- **North Korea defeats Netherlands to win Under-17 Women's World Cup**: [Link](https://www.koreatimes.co.kr/foreignaffairs/northkorea/20251109/n-korea-defeats-netherlands-to-win-under-17-womens-world-cup)
+
+
+### kocaelispor – galatasaray (N/A, Sun, 9 Nov 2025 06:50:00 -0800)
+
+- **CANLI | Kocaelispor - Galatasaray maçı ne zaman, saat kaçta, hangi kanalda?**: [Link](https://www.fanatik.com.tr/galatasaray/live-kocaelispor-galatasaray-maci-canli-anlatim-mac-kadrosu-skoru-ve-istatistikleri-super-lig-2600373)
+- **Okan Buruk'tan Icardi ve Osimhen açıklaması**: [Link](https://www.sporx.com/okan-buruk-tan-icardi-ve-osimhen-aciklamasi-SXHBQ1139359SXQ)
+- **“Selçuk İnan buraya!” Sloganı stadyumu inletti — Kocaeli taraftarından ıslıklı tepki**: [Link](https://mansethaber.com/selcuk-inan-buraya-slogani-stadyumu-inletti-kocaeli-taraftarindan-islikli-tepki)
+
+
+### زياش (N/A, Sun, 9 Nov 2025 06:50:00 -0800)
+
+- **العربي المرابط رئيسا جديدا لجماعة مارتيل بعد عزل سلفه أمنيول**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A3%D8%AA%D9%85%D9%86%D9%89-%D8%AD%D8%B8%D8%A7-%D8%B3%D8%B9%D9%8A%D8%AF%D8%A7-%D9%84%D8%B2%D9%8A%D8%A7%D8%B4-%D9%85%D8%B9-%D8%A7%D9%84%D9%88%D8%AF/)
+- **وليد الركراكي: أنا فرحان لحكيم زياش حنت جا للوداد وكنتمنا يرجع للمستوى ديالو 🎥🇲🇦**: [Link](https://m.elbotola.com/video/details/690dddc89214e329e0785443/)
+- **شاهد.. زياش يحتفل مع جماهير الوداد البيضاوي بهتافات داعمة لفلسطين**: [Link](https://www.aljazeera.net/sport/2025/11/3/%D8%B4%D8%A7%D9%87%D8%AF-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D9%85%D8%B9-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF)
+
+
 ### maroc foot (N/A, Sun, 9 Nov 2025 06:40:00 -0800)
 
 - **OM : le Maroc appelle Ait Boudlal avec la blessure d’Aguerd**: [Link](https://www.footmercato.net/a7908591517417003685-om-le-maroc-appelle-ait-boudlal-avec-la-blessure-daguerd)
