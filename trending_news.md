@@ -1,3 +1,31 @@
+### سلتا فيغو ضد برشلونة (N/A, Sun, 9 Nov 2025 11:10:00 -0800)
+
+- **برشلونة يستعيد نجمه.. وفليك يستعين بلاعب الرديف أمام سيلتا فيجو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D9%86%D8%AC%D9%85%D9%87--%D9%88%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D9%86-%D8%A8%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%AC%D9%88/blt21b618b28c0d0eea)
+- **مباشر.. مباراة برشلونة ضد سيلتا فيغو في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/9/celta-vigo-vs-barcelona)
+- **فليك يطالب لاعبي برشلونة بمزيد من "الروح القتالية"**: [Link](https://www.almountakhab.com/node/13219429)
+
+
+### lyon – paris-sg (N/A, Sun, 9 Nov 2025 11:10:00 -0800)
+
+- **L’OL fait très mal au PSG !**: [Link](https://www.footmercato.net/a3508221076560224920-lol-fait-tres-mal-au-psg)
+- **🎙️[12J-L1] Paulo Fonseca : « Un match qui motive davantage »**: [Link](https://www.lestitisdupsg.fr/a-la-une/%F0%9F%8E%99%EF%B8%8F12j-l1-paulo-fonseca-un-match-qui-motive-davantage/)
+- **Ligue 1 - Lyon - Paris - Tolisso, Sulc et Fofana blessés, l'OL tente Ghezzal en avant-centre face au PSG**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-lyon-paris-tolisso-sulc-et-fofana-blesses-lol-tente-ghezzal-en-avant-centre-face-au-psg_sto23239596/story.shtml)
+
+
+### celta vigo vs barcelona (N/A, Sun, 9 Nov 2025 11:10:00 -0800)
+
+- **Why Barcelona defence must be fearful of this Celta Vigo striker**: [Link](https://barcauniversal.com/why-barcelona-defence-must-be-fearful-of-this-celta-vigo-striker/)
+- **Hansi Flick: 'Club's confidence is important'**: [Link](https://www.fcbarcelona.com/en/news/4398384/hansi-flick-clubs-confidence-is-important)
+- **Óscar Mingueza vs. FC Barcelona – Player props & odds to score a goal on November 9**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/09/scar-mingueza-soccer-player-props-11-9-2025/87179313007/)
+
+
+### inter – lazio (N/A, Sun, 9 Nov 2025 11:10:00 -0800)
+
+- **LIVE Alle 20.45 Inter-Lazio: Acerbi favorito su Bisseck, su Romagnoli si decide all'ultimo**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/09-11-2025/inter-lazio-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Le formazioni ufficiali di Inter-Lazio**: [Link](https://www.inter.it/it/notizie/formazioni-ufficiali-inter-lazio-serie-a-25-26)
+- **Inter-Lazio | 🚨 UFFICIALI: fuori Thuram! La scelta su Sucic e Romagnoli**: [Link](https://onefootball.com/en/news/inter-lazio-ufficiali-fuori-thuram-la-scelta-su-sucic-e-romagnoli-41929039)
+
+
 ### classement premier league (N/A, Sun, 9 Nov 2025 10:30:00 -0800)
 
 - **DIRECT. Manchester City-Liverpool (Premier League 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/manchester-city-liverpool-live/673608)
