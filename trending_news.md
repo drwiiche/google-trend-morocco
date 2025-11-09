@@ -1,3 +1,24 @@
+### maroc foot (N/A, Sun, 9 Nov 2025 06:40:00 -0800)
+
+- **OM : le Maroc appelle Ait Boudlal avec la blessure d’Aguerd**: [Link](https://www.footmercato.net/a7908591517417003685-om-le-maroc-appelle-ait-boudlal-avec-la-blessure-daguerd)
+- **Inquiétude pour le défenseur de l'OM Nayef Aguerd, victime d'une pubalgie**: [Link](https://www.lequipe.fr/Football/Actualites/Inquietude-pour-le-defenseur-de-l-om-nayef-aguerd-victime-d-une-pubalgie-il-est-necessaire-qu-il-s-arrete-un-petit-peu/1608512)
+- **"Il pourrait rater la CAN": après Hakimi, le Maroc tremble pour Aguerd, blessé avec l’OM**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/il-pourrait-rater-la-can-apres-hakimi-le-maroc-tremble-pour-aguerd-blesse-avec-l-om_AV-202511090187.html)
+
+
+### fifa world cup u17 (N/A, Sun, 9 Nov 2025 06:20:00 -0800)
+
+- **Uganda Cubs squander lead, falls to Canada at FIFA U-17 World Cup 2025 | Group K**: [Link](https://kawowo.com/2025/11/05/uganda-cubs-squander-lead-falls-to-canada-at-fifa-u-17-world-cup-2025-group-k/)
+- **Beyond the celebrations, what Uganda’s U17 World Cup debut should teach us**: [Link](https://www.monitor.co.ug/uganda/sports/sports-columnists/beyond-the-celebrations-what-uganda-s-u17-world-cup-debut-should-teach-us-5256080)
+- **FIFA U17 WORLD CUP U-17 World Cup: Uganda fight back to draw against Chile**: [Link](https://en.africatopsports.com/2025/11/09/u-17-world-cup-uganda-fight-back-to-draw-against-chile/)
+
+
+### coupe du monde u17 2025 (N/A, Sun, 9 Nov 2025 06:00:00 -0800)
+
+- **Coupe du Monde U17 2025 : Composition Officielle du match Sénégal Emirates Arabes Unis**: [Link](https://www.africatopsports.com/2025/11/09/coupe-du-monde-u17-2025-composition-officielle-du-match-senegal-emirates-arabes-unis/)
+- **Mondial 2026 : Les scénarios de qualification du Sénégal pour les seizièmes de finale**: [Link](https://foot-africa.com/actualites/mondial-2026-les-scenarios-de-qualification-du-senegal-pour-les-seiziemes-de-finale-950660/)
+- **Mondial de football U17 : victoire des Lionceaux face au Costa Rica (1-0)**: [Link](https://africa24tv.com/mondial-de-football-u17-victoire-des-lionceaux-face-au-costa-rica-1-0)
+
+
 ### rayo – real madrid (N/A, Sun, 9 Nov 2025 06:30:00 -0800)
 
 - **Alineación posible del Real Madrid hoy contra el Rayo en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-contra-el-rayo-vallecano-en-laliga-ea-sports-f202511-n/)
