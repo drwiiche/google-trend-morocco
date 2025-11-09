@@ -1,3 +1,10 @@
+### real vs (N/A, Sun, 9 Nov 2025 08:10:00 -0800)
+
+- **Alexander-Arnold, Valverde start in a 4-3-3 – How Real Madrid can line up against Rayo Vallecano**: [Link](https://madriduniversal.com/alexander-arnold-valverde-start-start-in-a-4-3-3-how-real-madrid-can-line-up-against-rayo-vallecano/)
+- **Alonso has no issues with Madrid's attitude**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles/alonso-has-no-issues-with-madrid-s-attitude-2025-11-08)
+- **Rayo Vallecano – Real: Madrid Derby Lineups**: [Link](https://zamin.uz/en/sport/168146-rayo-vallecano-real-madrid-derby-lineups.html)
+
+
 ### galatasaray (N/A, Sun, 9 Nov 2025 08:00:00 -0800)
 
 - **Galatasaray, ligde bu sezon ilk kez yenildi**: [Link](https://www.memurlar.net/haber/1151248/galatasaray-ligde-bu-sezon-ilk-kez-yenildi.html?utm_source=forum&utm_medium=haber&utm_campaign=sagsutun)
