@@ -1,3 +1,24 @@
+### fc barcelone (N/A, Sun, 9 Nov 2025 12:50:00 -0800)
+
+- **DIRECT. Celta Vigo-FC Barcelone (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/celta-vigo-fc-barcelone-live/676828)
+- **Celta Vigo - FC Barcelone: les compositions officielles**: [Link](https://www.footmercato.net/a2765654300558934753-celta-vigo-fc-barcelone-les-compositions-officielles)
+- **Celta Vigo - FC Barcelone en direct - La Liga : Football Scores & Résultats - 09/11/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-celta-vigo-fc-barcelone_mtc1610544/live-commentary.shtml)
+
+
+### benfica – casa pia (N/A, Sun, 9 Nov 2025 12:50:00 -0800)
+
+- **Sudakov quebrou o jejum de golos e abriu assim a contagem com este golaço**: [Link](https://www.noticiasaominuto.com/desporto/2885570/sudakov-quebrou-o-jejum-de-golos-e-abriu-assim-a-contagem-com-este-golaco)
+- **AO VIVO: Remate de Richard Ríos ao lado (29')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-remate-de-richard-rios-ao-lado-29/l8RrEDJD/)
+- **O onze do Benfica para o jogo com o Casa Pia: duas alterações nas águias**: [Link](https://sapo.pt/artigo/o-onze-do-benfica-para-o-jogo-com-o-casa-pia-duas-alteracoes-nas-aguias-6910ec797fea09c0633d328f)
+
+
+### fcb (N/A, Sun, 9 Nov 2025 12:40:00 -0800)
+
+- **Lamine Yamal targeted by 60% of all racist attacks online in Spain as staggering stat reveals awful extent of abuse aimed at Barcelona star**: [Link](https://www.goal.com/en-sa/lists/lamine-yamal-targeted-racist-attacks-spain-staggering-stat-abuse-barcelona/blt0f075970978f24bc)
+- **Racism in Spain: Lamine Yamal targeted like never before**: [Link](https://foot-africa.com/en/news/racism-in-spain-lamine-yamal-targeted-like-never-before-954089/)
+- **Lamine Yamal faces racism twice as often as Vinicius Junior – we have results**: [Link](https://tribuna.com/en/blogs/lamine-yamal-faces-racism-twice-as-often-as-vinicius-junior/)
+
+
 ### barca vs (N/A, Sun, 9 Nov 2025 12:30:00 -0800)
 
 - **Pañuelos blancos en Barcelona**: [Link](https://as.com/opinion/panuelos-blancos-en-barcelona-f202511-n/)
