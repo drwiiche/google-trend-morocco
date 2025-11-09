@@ -1,3 +1,31 @@
+### real madrid match (N/A, Sun, 9 Nov 2025 09:00:00 -0800)
+
+- **DIRECT. Rayo Vallecano-Real Madrid (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/rayo-vallecano-real-madrid-live/676826)
+- **DIRECT. Rayo-Real Madrid: décevants, les Madrilènes toujours tenus en respect**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-rayo-vallecano-real-madrid-suivez-le-match-de-la-12e-journee-de-liga-en-live_LS-202511090083.html)
+- **Rayo Vallecano - Real Madrid en direct - La Liga : Football Scores & Résultats - 09/11/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-rayo-vallecano-real-madrid_mtc1610540/live-commentary.shtml)
+
+
+### qatar u17 (N/A, Sun, 9 Nov 2025 09:00:00 -0800)
+
+- **U-17 World Cup in Qatar: Injury risk and host's legacy**: [Link](https://www.dw.com/en/u-17-world-cup-in-qatar-injury-risk-and-hosts-legacy/a-74625292)
+- **Qatar target Round of 32 berth as USA, Austria and Ireland advance**: [Link](https://thepeninsulaqatar.com/article/09/11/2025/qatar-target-round-of-32-berth-as-usa-austria-and-ireland-advance)
+- **Qatar's U-17 World Cup is a win-win for everyone, says Silvestre| Gulf Times**: [Link](https://www.gulf-times.com/article/714630/sports/qatars-u-17-world-cup-is-a-win-win-for-everyone-says-silvestre)
+
+
+### kooora tv (N/A, Sun, 9 Nov 2025 08:50:00 -0800)
+
+- **جدول مباريات اليوم الأحد 9 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-9-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt8b4299cc39c72906)
+- **حصري: دليلك الكامل لمباريات 8 نوفمبر - من ديربي جدة للقمم الأوروبية... كل القنوات والمعلقين!**: [Link](https://yemen-press.net/news147766.html)
+- **يوم كروي مشتعل ينتظر الجماهير.. مواجهات نارية وقنوات ناقلة في ليلة لن تتكرر**: [Link](https://alsaudiweb.net/news2391483.html)
+
+
+### liverpool (N/A, Sun, 9 Nov 2025 08:40:00 -0800)
+
+- **'It's not perfect now, but at least when we go in the game, I can feel that the boys give 100 per cent of themselves': Hugo Ekitike**: [Link](https://tribuna.com/en/news/2025-11-09-its-not-perfect-now-but-at-least-when-we-go-in-the-game-i-can-feel-that-the-boys-give-100/)
+- **'A game you love to play' - Hugo Ekitike's excitement for Man City clash**: [Link](https://www.liverpoolfc.com/news/game-you-love-play-hugo-ekitikes-excitement-man-city-clash)
+- **Hugo Ekitike: Arne Slot is on my back, he wants me to keep my shirt on**: [Link](https://www.telegraph.co.uk/football/2025/11/08/hugo-ekitike-interview-arne-slot-on-my-back-keep-shirt-on/)
+
+
 ### real vs (N/A, Sun, 9 Nov 2025 08:10:00 -0800)
 
 - **Alexander-Arnold, Valverde start in a 4-3-3 – How Real Madrid can line up against Rayo Vallecano**: [Link](https://madriduniversal.com/alexander-arnold-valverde-start-start-in-a-4-3-3-how-real-madrid-can-line-up-against-rayo-vallecano/)
