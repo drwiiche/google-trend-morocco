@@ -1,3 +1,10 @@
+### ath. bilbao – real oviedo (N/A, Sun, 9 Nov 2025 04:20:00 -0800)
+
+- **Athletic Club – Real Oviedo: Entre la urgencia y la esperanza**: [Link](https://onefootball.com/de/news/athletic-club-real-oviedo-entre-la-urgencia-y-la-esperanza-41926754)
+- **Macro “poteo” azul en Bilbao: el oviedismo invade San Mamés en la previa contra en Athletic**: [Link](https://www.lne.es/real-oviedo/2025/11/09/macro-poteo-azul-bilbao-oviedismo-123526584.html)
+- **De obligado cumplimiento**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20251109/1002566083/obligado-cumplimiento.html)
+
+
 ### atalanta – sassuolo (N/A, Sun, 9 Nov 2025 03:20:00 -0800)
 
 - **Atalanta, i convocati per il Sassuolo: Juric ritrova Scalvini e Brescianini**: [Link](https://www.gazzetta.it/calcio/fantanews/08-11-2025/atalanta-i-convocati-per-il-sassuolo-juric-ritrova-scalvini-e-brescianini.shtml)
