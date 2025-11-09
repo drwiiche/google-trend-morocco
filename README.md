@@ -1,3 +1,24 @@
+### yalla shoot (N/A, Sun, 9 Nov 2025 07:20:00 -0800)
+
+- **اضبط تردد أبو ظبي الرياضية 2 لمتابعة بيراميدز وسيراميكا كليوباترا بجودة HD مجانًا**: [Link](https://gaya-sa.org/64899/%D8%A7%D8%B6%D8%A8%D8%B7-%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A3%D8%A8%D9%88-%D8%B8%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-2-%D9%84%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A8%D9%8A%D8%B1/)
+- **السوبر المصري.. سيراميكا يسجل الثاني في مرمى بيراميدز**: [Link](https://darelhilal.com/News/3120615.aspx)
+- **يورتشيتش مدرب بيراميدز مهدد بعقوبة جديدة بعد طرده في السوبر**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=09112025&id=8196e695-97e7-47a2-b879-e2dd4ec994a1)
+
+
+### bologne – naples (N/A, Sun, 9 Nov 2025 07:20:00 -0800)
+
+- **DIRECT. Bologne-Naples (Serie A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/bologne-naples-live/673078)
+- **Comment regarder Bologne - Naples ? Date, heure, streaming et comment regarder la Serie A sur DAZN**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-bologne-naples-date-heure-streaming-et-comment-regarder-la-serie-a-sur-dazn/1i8cjt4niqbez1d4765fxs3mnr)
+- **Bologne vs Naples – Pronos, Analyse et Cotes le 09/11/2025**: [Link](https://paris-sportifs.lefigaro.fr/pronostics/bologne-naples-09-11-2025/)
+
+
+### u 17 world cup (N/A, Sun, 9 Nov 2025 07:10:00 -0800)
+
+- **Fiji vs Argentina: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/fiji-vs-argentina-how-watch-u-17-world-cup-preview)
+- **Argentina cruise past Fiji, await U17 World Cup last 32 in Qatar**: [Link](https://onefootball.com/en/news/argentina-cruise-past-fiji-await-u17-world-cup-last-32-in-qatar-41927870)
+- **Morocco U17 vs New Caledonia U17- When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/267104/morocco-u17-vs-new-caledonia-u17-when-how-to-watch/)
+
+
 ### أولمبيك أسفي ضد الوداد الرياضي (N/A, Sun, 9 Nov 2025 07:10:00 -0800)
 
 - **ما القنوات الناقلة لمباراة أولمبيك آسفي والوداد في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A7%D9%93%D8%B3%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt385818689919ac73)
