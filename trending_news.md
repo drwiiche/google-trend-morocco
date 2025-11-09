@@ -1,3 +1,17 @@
+### barcelona (N/A, Sun, 9 Nov 2025 12:20:00 -0800)
+
+- **Celta - Barcelona, en directo: resultado y última hora del partido de LaLiga EA Sports**: [Link](https://www.sport.es/es/noticias/barca/celta-barcelona-previa-minuto-directo-hoy-partido-goles-resumen-laliga-vivo-123533095)
+- **Alineación posible del Barcelona hoy ante el Celta en LaLiga: la hora de Lewandowski**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-celta-la-hora-de-lewandowski-f202511-n/)
+- **Balaídos, un campo que se le atraganta al Barcelona**: [Link](https://onefootball.com/pt-br/noticias/balaidos-un-campo-que-se-le-atraganta-al-barcelona-41926383)
+
+
+### celta vigo (N/A, Sun, 9 Nov 2025 12:00:00 -0800)
+
+- **Lamine Yamal vs. RC Celta de Vigo – Player props & odds to score a goal on November 9**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/09/lamine-yamal-nasraqui-ebana-soccer-player-props-11-9-2025/87179369007/)
+- **LaLiga: Lamine Yamal targets a major feat against Celta Vigo**: [Link](https://foot-africa.com/en/news/laliga-lamine-yamal-targets-a-major-feat-against-celta-vigo-953399/)
+- **Why Barcelona defence must be fearful of this Celta Vigo striker**: [Link](https://barcauniversal.com/why-barcelona-defence-must-be-fearful-of-this-celta-vigo-striker/)
+
+
 ### tsunami (N/A, Sun, 9 Nov 2025 11:50:00 -0800)
 
 - **Dozens of Earthquakes Rattle Japan After Tsunami Warning Canceled**: [Link](https://www.newsweek.com/dozens-of-earthquakes-rattle-japan-after-tsunami-warning-canceled-11017892)
