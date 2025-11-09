@@ -1,3 +1,17 @@
+### atalanta – sassuolo (N/A, Sun, 9 Nov 2025 03:20:00 -0800)
+
+- **Atalanta, i convocati per il Sassuolo: Juric ritrova Scalvini e Brescianini**: [Link](https://www.gazzetta.it/calcio/fantanews/08-11-2025/atalanta-i-convocati-per-il-sassuolo-juric-ritrova-scalvini-e-brescianini.shtml)
+- **Calcio Live News: alle 12:30 in campo Atalanta-Sassuolo, più tardi tocca a Napoli, Roma e Inter**: [Link](https://www.diretta.it/news/calcio-live-news-alle-12-30-in-campo-atalanta-sassuolo-piu-tardi-tocca-a-napoli-roma-e-inter/nTrccDc3/)
+- **Grosso "Grande gara o sono guai"**: [Link](https://sport.quotidiano.net/calcio/sassuolo/grosso-grande-gara-o-sono-b9250205)
+
+
+### utrecht – ajax (N/A, Sun, 9 Nov 2025 03:20:00 -0800)
+
+- **KNVB maakt scheidsrechter voor duel FC Utrecht tegen Ajax bekend**: [Link](https://www.utrechtfans.nl/knvb-maakt-scheidsrechter-voor-duel-fc-utrecht-tegen-ajax-bekend/)
+- **Deze scheidsrechter fluit Eredivisie-kraker FC Utrecht - Ajax**: [Link](https://www.voetbalnieuws.nl/nieuws/1709858/danny-makkelie-fluit-eredivisie-kraker-fc-utrecht-ajax-vn.html)
+- **Rondom Ajax: Ajax kent scheidsrechter voor lastig uitduel met FC Utrecht**: [Link](https://www.msn.com/nl-nl/sport/voetbal/rondom-ajax-spaan-geeft-advies-koop-die-gast-dan-alex-kroes/ar-AA1PH88a)
+
+
 ### julia simon (N/A, Sun, 9 Nov 2025 01:40:00 -0800)
 
 - **Julia Simon, une coéquipière va profiter de ses malheurs**: [Link](https://www.sports.fr/ski/biathlon-ski/julia-simon-une-coequipiere-va-profiter-de-ses-malheurs-965625.html)
