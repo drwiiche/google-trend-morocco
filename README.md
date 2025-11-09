@@ -1,3 +1,31 @@
+### rayo vallecano (N/A, Sun, 9 Nov 2025 08:00:00 -0800)
+
+- **Alexander-Arnold, Valverde start in a 4-3-3 – How Real Madrid can line up against Rayo Vallecano**: [Link](https://madriduniversal.com/alexander-arnold-valverde-start-start-in-a-4-3-3-how-real-madrid-can-line-up-against-rayo-vallecano/)
+- **Rayo Vallecano – Real: Madrid Derby Lineups**: [Link](https://zamin.uz/en/sport/168146-rayo-vallecano-real-madrid-derby-lineups.html)
+- **Alaba back in squad as Real Madrid prepare for Vallecas clash**: [Link](https://www.besoccer.com/new/alaba-back-in-squad-as-real-madrid-prepare-for-vallecas-clash-1380448)
+
+
+### futsal maroc (N/A, Sun, 9 Nov 2025 08:00:00 -0800)
+
+- **Jeux de la solidarité islamique : Les Lions de Futsal se qualifient pour les demi-finales**: [Link](https://lematin.ma/sports/jeux-de-la-solidarite-islamique-les-lions-de-futsal-en-demi-finales/312439)
+- **Futsal. JSI Riyad 2025 / Futsal : Ce dimanche, demi-finale Maroc-Arabie Saoudite - : Horaire ? Chaînes ?**: [Link](https://www.lopinion.ma/Futsal-JSI-Riyad-2025-Futsal-Ce-dimanche-demi-finale-Maroc-Arabie-Saoudite-Horaire-Chaines_a73698.html)
+- **JSI 2025. Futsal: les Lions de l’Atlas dominent l’Afghanistan et filent en demi-finales**: [Link](https://sport.le360.ma/football/futsal/jsi-2025-futsal-les-lions-de-latlas-dominent-lafghanistan-et-filent-en-demi-finales_Q5V45FBW6RBEHGQ5URUMFQ7T7I/)
+
+
+### مان سيتي ضد ليفربول (N/A, Sun, 9 Nov 2025 07:50:00 -0800)
+
+- **أسوأ كوابيس السيتي.. صلاح شوكة في حلق جوارديولا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B3%D9%88%D8%A7%D9%94-%D9%83%D9%88%D8%A7%D8%A8%D9%8A%D8%B3-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A--%D8%B5%D9%84%D8%A7%D8%AD-%D8%B4%D9%88%D9%83%D8%A9-%D9%81%D9%8A-%D8%AD%D9%84%D9%82-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7/blte4dd5a60539132c7)
+- **مباراة مانشستر سيتي ضد ليفربول بالدوري الإنجليزي.. الموعد والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/8/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B6%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84)
+- **صلاح في مهمة أمام غوارديولا.. ومرموش يبحث عن بصمته مع السيتي**: [Link](https://www.alaraby.co.uk/sport/%D8%B5%D9%84%D8%A7%D8%AD-%D9%81%D9%8A-%D9%85%D9%87%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%88%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A8%D8%B5%D9%85%D8%AA%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A)
+
+
+### genoa – fiorentina (N/A, Sun, 9 Nov 2025 07:50:00 -0800)
+
+- **Squad for Genoa trip -**: [Link](https://www.acffiorentina.com/en/news/genoa-fiorentina-i-convocati-081125)
+- **Genoa v Fiorentina: pre-match stats -**: [Link](https://www.acffiorentina.com/en/news/genoa-vs-fiorentina-curiosita-verso-la-gara-107)
+- **Genoa v Fiorentina: a bit of history -**: [Link](https://www.acffiorentina.com/en/news/genoa-fiorentina-la-storia-del-match)
+
+
 ### manchester city – liverpool (N/A, Sun, 9 Nov 2025 07:40:00 -0800)
 
 - **Manchester City v Liverpool: How key is Etihad match to Premier League title hopes?**: [Link](https://www.bbc.com/sport/football/articles/cvg74rqy97vo)
