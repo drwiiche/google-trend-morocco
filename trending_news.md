@@ -1,3 +1,10 @@
+### sgtm bourse casablanca (N/A, Sun, 9 Nov 2025 02:00:00 -0800)
+
+- **SGTM soigne la mise en scène de son introduction en bourse**: [Link](https://ledesk.ma/2025/11/08/sgtm-soigne-la-mise-en-scene-de-son-introduction-en-bourse/)
+- **SGTM prépare son entrée en Bourse pour honorer un carnet de commandes record**: [Link](https://fr.hespress.com/448950-sgtm-prepare-son-entree-en-bourse-pour-honorer-un-carnet-de-commandes-record.html)
+- **Une introduction en bourse en préparation, confirme le directeur général de SGTM**: [Link](https://medias24.com/2025/11/07/une-introduction-en-bourse-en-preparation-confirme-le-dg-de-sgtm/)
+
+
 ### sergueï lavrov (N/A, Sat, 8 Nov 2025 23:00:00 -0800)
 
 
