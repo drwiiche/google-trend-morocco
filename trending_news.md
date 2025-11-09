@@ -1,3 +1,10 @@
+### classement liga (N/A, Sun, 9 Nov 2025 14:10:00 -0800)
+
+- **Rayo Vallecano 0-0 Real Madrid, La Liga : résumé du match (09/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/rayo-vallecano-real-madrid-live/676826)
+- **Rayo Vallecano - Real Madrid en direct - La Liga : Football Scores & Résultats - 09/11/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-rayo-vallecano-real-madrid_mtc1610540/live-commentary.shtml)
+- **Partage des points à Vallecas**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/article/cronica-rayo-real-madrid-j12-liga-09-11-2025)
+
+
 ### match barca (N/A, Sun, 9 Nov 2025 13:40:00 -0800)
 
 - **Barça Legends v Real Madrid Leyendas live on YouTube for Premium Members**: [Link](https://www.fcbarcelona.com/en/club/news/4397431/barca-legends-v-real-madrid-leyendas-live-on-youtube-for-premium-members)
