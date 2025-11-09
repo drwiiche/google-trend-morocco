@@ -1,3 +1,24 @@
+### rayo – real madrid (N/A, Sun, 9 Nov 2025 06:30:00 -0800)
+
+- **Alineación posible del Real Madrid hoy contra el Rayo en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-contra-el-rayo-vallecano-en-laliga-ea-sports-f202511-n/)
+- **Convocatoria del Real Madrid contra el Rayo**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-rayo-08-11-2025)
+- **Xabi Alonso se ‘olvida’ de Anfield y se centra en Vallecas: «Ya está analizado…»**: [Link](https://www.grada3.com/2025/11/08/xabi-alonso-se-olvida-de-anfield-y-se-centra-en-vallecas-ya-esta-analizado/)
+
+
+### رايو فاليكانو ضد الريال (N/A, Sun, 9 Nov 2025 06:30:00 -0800)
+
+- **غولر يتصدر قائمة مميزة مع ريال مدريد في الليغا**: [Link](https://hihi2.com/2025/11/09/p3466838.html)
+- **جولر: مباراة فاليكانو صعبة والأهم الحصول على ثقة تشابي**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/1350735/%D8%AC%D9%88%D9%84%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D8%B5%D8%B9%D8%A8%D8%A9-%D9%88%D8%A7%D9%84%D8%A3%D9%87%D9%85-%D8%A7%D9%84%D8%AD%D8%B5)
+- **الحلم نيوز : أردا غولير لا يستحق اللعب في ريال مدريد!**: [Link](https://www.al7lmnews.com/17564/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D9%86%D9%8A%D9%88%D8%B2-%D8%A3%D8%B1%D8%AF%D8%A7-%D8%BA%D9%88%D9%84%D9%8A%D8%B1-%D9%84%D8%A7-%D9%8A%D8%B3%D8%AA%D8%AD%D9%82-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D9%81/)
+
+
+### كأس العالم للشباب (N/A, Sun, 9 Nov 2025 06:30:00 -0800)
+
+- **بعد تألقه في مونديال تحت 20 سنة.. "بريستياني" حاضر في قائمة المنتخب الأرجنتيني الأول**: [Link](https://m.elbotola.com/article/2025-11-08-18-15-454.html)
+- **مدرب الأرجنتين يستدعي 4 لاعبين من منتخب الشبان الذي إنهزم أمام المغرب**: [Link](https://rue20.com/951125.html)
+- **عكس الركراكي..الأرجنتين تكافئ نجم مونديال الشباب بريستياني**: [Link](https://sport.lesiteinfo.com/elbotola/480418.html)
+
+
 ### fifa u-17 world cup (N/A, Sun, 9 Nov 2025 06:20:00 -0800)
 
 - **Italy vs South Africa: How to Watch, U-17 World Cup Preview**: [Link](https://www.msn.com/en-us/sports/soccer/italy-vs-south-africa-how-to-watch-u-17-world-cup-preview/ar-AA1Q5hcD)
