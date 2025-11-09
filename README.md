@@ -1,3 +1,17 @@
+### fifa u-17 world cup (N/A, Sun, 9 Nov 2025 06:20:00 -0800)
+
+- **Italy vs South Africa: How to Watch, U-17 World Cup Preview**: [Link](https://www.msn.com/en-us/sports/soccer/italy-vs-south-africa-how-to-watch-u-17-world-cup-preview/ar-AA1Q5hcD)
+- **Canada’s Unbeaten Streak Continues at FIFA U-17 World Cup with France Draw**: [Link](https://bvmsports.com/2025/11/08/canadas-unbeaten-streak-continues-at-fifa-u-17-world-cup-with-france-draw/)
+- **Canada remains unbeaten at FIFA U-17 World Cup after scoreless draw with France**: [Link](https://www.msn.com/en-ca/sports/soccer/canada-remains-unbeaten-at-fifa-u-17-world-cup-after-scoreless-draw-with-france/ar-AA1Q4299?cvid=690fd655a2994d4283364d80d7fc5f04&ocid=hpmsn)
+
+
+### maroc vs (N/A, Sun, 9 Nov 2025 06:20:00 -0800)
+
+- **Lancement de la vente des billets pour le match de l’équipe nationale contre le Mozambique**: [Link](https://frmf.ma/fr/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-4/)
+- **Romain Saïss. Des performances déclinantes et un retour en question**: [Link](https://medias24.com/2025/11/08/romain-saiss-des-performances-declinantes-et-un-retour-en-question/)
+- **Lions de l’Atlas: Maroc-Mozambique à guichets fermés**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-maroc-mozambique-a-guichets-fermes_X7SMYRYBKJDANLYSMLIW6UFV5E/)
+
+
 ### crystal palace – brighton (N/A, Sun, 9 Nov 2025 06:00:00 -0800)
 
 - **Crystal Palace vs Brighton LIVE! Premier League match updates, news, score, stream and highlights**: [Link](https://www.skysports.com/football/live-blog/11661/13465050/crystal-palace-vs-brighton-live-premier-league-match-updates-news-score-stream-and-highlights)
