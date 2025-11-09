@@ -1,3 +1,9 @@
+### match barca (N/A, Sun, 9 Nov 2025 13:40:00 -0800)
+
+- **Barça Legends v Real Madrid Leyendas live on YouTube for Premium Members**: [Link](https://www.fcbarcelona.com/en/club/news/4397431/barca-legends-v-real-madrid-leyendas-live-on-youtube-for-premium-members)
+- **Barcelona Legends Secure Victory Against Real Madrid Legends**: [Link](https://www.ysscores.com/en/news/13852486/Barcelona-Legends-Secure-Victory-Against-Real-Madrid-Legends)
+
+
 ### lewandowski (N/A, Sun, 9 Nov 2025 13:40:00 -0800)
 
 - **La Liga: Celta Vigo - FC Barcelona [RELACJA NA ŻYWO]**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/laliga/celta-vigo-fc-barcelona-relacja-na-zywo-co-pokaza-szczesny-i-lewandowski-live/lgmqdq5)
