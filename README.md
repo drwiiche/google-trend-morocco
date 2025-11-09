@@ -1,3 +1,17 @@
+### tsunami (N/A, Sun, 9 Nov 2025 11:50:00 -0800)
+
+- **Dozens of Earthquakes Rattle Japan After Tsunami Warning Canceled**: [Link](https://www.newsweek.com/dozens-of-earthquakes-rattle-japan-after-tsunami-warning-canceled-11017892)
+- **Significant Earthquake of Magnitude 6.0 Just Reported 117 km East of Miyako, Japan**: [Link](https://www.volcanodiscovery.com/earthquake/news/286612/Significant-earthquake-of-magnitude-60-just-reported-117-km-east-of-Miyako-Japan.html)
+- **Tsunami advisory issued for Japan's Iwate Prefecture following 6.7-magnitude quake**: [Link](https://www.newsgd.com/node_e75cadc545/d894552654.shtml)
+
+
+### as far (N/A, Sun, 9 Nov 2025 11:50:00 -0800)
+
+- **CAF Women’s Champions League: Sabry heroics earn FC Masar opening-day point against AS FAR**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/caf-women-s-champions-league-sabry-heroics-earn-fc-masar-opening-day-point-against-as-far/)
+- **North African Clash End Goalless As USFAS Bamako Claim Debut Win In CAF Women’s Champions League**: [Link](https://bsnsports.com.ng/post/North-African-Clash-End-Goalless-As-USFAS-Bamako-Claim-Debut-Win-In-CAF-Women-s-Champions-League)
+- **CAF Women’s Champions League kicks-off in Egypt**: [Link](https://von.gov.ng/caf-womens-champions-league-kicks-off-in-egypt/)
+
+
 ### celta de vigo - barcelona (N/A, Sun, 9 Nov 2025 11:30:00 -0800)
 
 - **Alineación posible del Barcelona hoy ante el Celta en LaLiga: la hora de Lewandowski**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-celta-la-hora-de-lewandowski-f202511-n/)
