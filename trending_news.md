@@ -1,3 +1,10 @@
+### galatasaray (N/A, Sun, 9 Nov 2025 08:00:00 -0800)
+
+- **Galatasaray, ligde bu sezon ilk kez yenildi**: [Link](https://www.memurlar.net/haber/1151248/galatasaray-ligde-bu-sezon-ilk-kez-yenildi.html?utm_source=forum&utm_medium=haber&utm_campaign=sagsutun)
+- **Kocaelispor 1-0 Galatasaray**: [Link](https://www.galatasaray.org/haber/futbol/kocaelispor-1-0-galatasaray/58803)
+- **Galatasaray'ın forvet ikilisi: Icardi ve Osimhen sahada buluşuyor!**: [Link](https://www.egealternatif.com/haber/galatasaray-in-forvet-ikilisi-icardi-ve-osimhen-sahada-bulusuyor_46669/)
+
+
 ### rayo vallecano (N/A, Sun, 9 Nov 2025 08:00:00 -0800)
 
 - **Alexander-Arnold, Valverde start in a 4-3-3 – How Real Madrid can line up against Rayo Vallecano**: [Link](https://madriduniversal.com/alexander-arnold-valverde-start-start-in-a-4-3-3-how-real-madrid-can-line-up-against-rayo-vallecano/)
