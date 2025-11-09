@@ -1,3 +1,17 @@
+### classement premier league (N/A, Sun, 9 Nov 2025 10:30:00 -0800)
+
+- **DIRECT. Manchester City-Liverpool (Premier League 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/manchester-city-liverpool-live/673608)
+- **Manchester City - Liverpool en direct - Premier League : Football Scores & Résultats - 09/11/2025**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-manchester-city-liverpool_mtc1602332/live-commentary.shtml)
+- **Le magnifique hommage des supporters de Manchester City à Pep Guardiola**: [Link](https://www.footmercato.net/a945597351499181983-le-magnifique-hommage-des-supporters-de-manchester-city-a-pep-guardiola)
+
+
+### اتحاد طنجة ضد نهضة بركان (N/A, Sun, 9 Nov 2025 10:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة اتحاد طنجة ونهضة بركان في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/copy-of-%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt8f44d8ae1ef7f167)
+- **جمهور اتحاد طنجة يشعل المدرجات في مواجهة نهضة بركان ويخلق أجواء حماسية استثنائية**: [Link](https://tanjanews.com/177272.html)
+- **نفاذ تذاكر مباراة اتحاد طنجة و نهضة بركان – الرياضة**: [Link](https://anbaetv.ma/1158451)
+
+
 ### f1 (N/A, Sun, 9 Nov 2025 10:00:00 -0800)
 
 - **What To Watch For in the Sao Paulo Grand Prix**: [Link](https://www.formula1.com/en/latest/article/norris-with-a-golden-chance-and-verstappen-in-unfamiliar-territory-what-to.3sKQw6wmrV705Wco1n9hdH)
