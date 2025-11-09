@@ -1,3 +1,17 @@
+### manchester city – liverpool (N/A, Sun, 9 Nov 2025 07:40:00 -0800)
+
+- **Manchester City v Liverpool: How key is Etihad match to Premier League title hopes?**: [Link](https://www.bbc.com/sport/football/articles/cvg74rqy97vo)
+- **LIVE: Manchester City vs Liverpool – Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2025/11/9/live-manchester-city-vs-liverpool-premier-league)
+- **How Manchester City line up in defence is worth keeping an eye on ahead of today’s match against Liverpool**: [Link](https://esteemedkompany.com/2025/11/09/how-manchester-city-line-up-in-defence-is-worth-keeping-an-eye-on-ahead-of-todays-match-against-liverpool/)
+
+
+### strasbourg – lille (N/A, Sun, 9 Nov 2025 07:40:00 -0800)
+
+- **Les supporters lillois défaitistes, l’I.A totalement perdue pour RC Strasbourg – LOSC**: [Link](https://lepetitlillois.com/2025/11/09/les-supporters-lillois-defaitistes-li-a-totalement-perdue-pour-rc-strasbourg-losc/)
+- **Ligue 1. Le Racing a une Meinau à enchanter contre Lille**: [Link](https://www.dna.fr/sport/2025/11/09/le-racing-club-de-strasbourg-a-une-meinau-a-enchanter-contre-lille)
+- **PRONOS PARIS RMC Le nul du jour du 9 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-9-novembre-ligue-1_AN-202511080320.html)
+
+
 ### sports (N/A, Sun, 9 Nov 2025 07:30:00 -0800)
 
 - **SEC teams grade well in Week 11 report card ahead of bigger tests, while Big Ten's best have startling day**: [Link](https://www.cbssports.com/college-football/news/college-football-week-11-grades-scores-analysis-georgia-alabama-pass-tests/)
