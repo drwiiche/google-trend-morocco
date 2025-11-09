@@ -1,3 +1,31 @@
+### laliga (N/A, Sun, 9 Nov 2025 09:30:00 -0800)
+
+- **Why Barcelona defence must be fearful of this Celta Vigo striker**: [Link](https://barcauniversal.com/why-barcelona-defence-must-be-fearful-of-this-celta-vigo-striker/)
+- **Hansi Flick: 'Club's confidence is important'**: [Link](https://www.fcbarcelona.com/en/news/4398384/hansi-flick-clubs-confidence-is-important)
+- **Robert Lewandowski vs. RC Celta de Vigo – Player props & odds to score a goal on November 9**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/09/robert-lewandowski-soccer-player-props-11-9-2025/87179307007/)
+
+
+### فالنسيا ضد ريال بتيس (N/A, Sun, 9 Nov 2025 09:30:00 -0800)
+
+- **بث مباشر.. مشاهدة مباراة فالنسيا وريال بيتيس في الدوري الإسباني**: [Link](https://www.khaligyoun.com/599182/)
+- **القناة الناقلة لمباراة فالنسيا وريال بيتيس في الدوري الإسباني**: [Link](https://www.almashhad.news/351811)
+- **الموعد والقنوات الناقلة لمباراة فالنسيا و ريال بيتيس برسم الدوري الإسباني**: [Link](https://alamriyadi.com/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%A7%D9%84%D9%86-30/)
+
+
+### ترتيب الدوري المغربي (N/A, Sun, 9 Nov 2025 09:30:00 -0800)
+
+- **البطولة الإحترافية: مهمة صعبة للقرش أمام الوداد وقمة مثيرة بين الجيش والمغرب الفاسي**: [Link](https://www.almountakhab.com/node/13219444)
+- **4 مواجهات عن الجولة الثامنة بين تنافس على الصدارة واستعادة التوازن – الرياضة**: [Link](https://anbaetv.ma/1158764)
+- **نتائج مباريات الجولة 8 من الدوري المغربي 2025/2026**: [Link](https://www.365scores.com/ar/news/magazine/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-8-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+
+
+### liga (N/A, Sun, 9 Nov 2025 09:20:00 -0800)
+
+- **Rayo Vallecano v Real Madrid: Kylian Mbappe and Jude Bellingham start**: [Link](https://www.bbc.com/sport/football/live/c0l7xx1kjwzt)
+- **Real Madrid player ratings vs Rayo Vallecano: Kylian Mbappe & Co. go missing as abject Blancos draw a blank in stalemate**: [Link](https://www.goal.com/en/lists/real-madrid-player-ratings-vs-rayo-vallecano-kylian-mbappe/blt46f4707a8ffd9c87)
+- **Rayo Vallecano – Real: Madrid Derby Lineups**: [Link](https://zamin.uz/en/sport/168146-rayo-vallecano-real-madrid-derby-lineups.html)
+
+
 ### coupe du monde féminine de football des moins de 17 ans (N/A, Sun, 9 Nov 2025 09:20:00 -0800)
 
 - **Mondial féminin U17: la Corée du Nord sacrée à Rabat**: [Link](https://fr.le360.ma/sports/mondial-feminin-u17-la-coree-du-nord-sacree-a-rabat_D2VIHCFTNRBZFDXNUSDVO3OM3E/)
