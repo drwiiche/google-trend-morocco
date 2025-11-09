@@ -1,3 +1,10 @@
+### lewandowski (N/A, Sun, 9 Nov 2025 13:40:00 -0800)
+
+- **La Liga: Celta Vigo - FC Barcelona [RELACJA NA ŻYWO]**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/laliga/celta-vigo-fc-barcelona-relacja-na-zywo-co-pokaza-szczesny-i-lewandowski-live/lgmqdq5)
+- **Ależ pech piłkarza Barcelony. Flick musiał reagować w ostatniej chwili**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1218976/alez-pech-pilkarza-barcelony-flick-musial-reagowac-w-ostatniej-chwili)
+- **Futbol Flash: Kontuzje Skorupskiego i Bednarka, Lewandowski z dubletem dla Barcelony!**: [Link](https://www.flashscore.pl/wiadomosci/futbol-flash-kontuzje-skorupskiego-i-bednarka-lewandowski-z-dubletem-dla-barcelony/KvULqTPQ/)
+
+
 ### الجيش الملكي ضد المغرب الفاسي (N/A, Sun, 9 Nov 2025 12:00:00 -0800)
 
 - **البطولة الاحترافية/ الجيش الملكي الوصيف يتعادل مع "الماص" (0-0) ويبتعد بنُقطتين عن الوداد المتصدر**: [Link](https://m.elbotola.com/article/2025-11-09-20-58-547.html)
