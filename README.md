@@ -1,3 +1,24 @@
+### nottm forest – leeds united (N/A, Sun, 9 Nov 2025 05:40:00 -0800)
+
+- **Team news: Daniel Farke names XI to face Nottingham Forest**: [Link](https://www.leedsunited.com/en/news/team-news-daniel-farke-names-xi-to-face-nottingham-forest)
+- **'We haven't got magic dust' – Dyche urges patience with Forest's misfiring attack**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/we-havent-got-magic-dust--dyche-urges-patience-with-forests-misfiring-attack-2025-11-08)
+- **Daniel Farke explains Dominic Calvert-Lewin decision & Anton Stach return for Nottingham Forest v Leeds United**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-team-news-dominic-calvert-lewin-anton-stach-5394425)
+
+
+### world cup u17 (N/A, Sun, 9 Nov 2025 05:40:00 -0800)
+
+- **Witbooi To The World: 'Everyone Is There To Watch Him'**: [Link](https://www.soccerladuma.co.za/local/premiership/update-on-witbooi-euro-interest-after-bright-start-at-u17-world-cup)
+- **South Africa's Witbooi out to cap dream 2025**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/South-Africa-s-Witbooi-out-to-cap-dream-2025-2007715)
+- **Witbooi: It’s a big gap to fill between me and Ralani**: [Link](https://www.kickoff.com/news/worldnews/emile-witbooi-it-s-a-big-gap-to-fill-between-me-and-ralani)
+
+
+### coupe du monde fifa u-17 (N/A, Sun, 9 Nov 2025 05:30:00 -0800)
+
+- **Mondial U17: La Tunisie s'incline face à l'Argentine**: [Link](https://www.mosaiquefm.net/fr/football/1477305/mondial-u17-la-tunisie-s-incline-face-a-l-argentine)
+- **VIDÉO. La page des sports**: [Link](https://information.tv5monde.com/sport/video/la-page-des-sports-2797584)
+- **in sommet de la Coupe du monde U-17 2025: Une concurrence étroite a été créée**: [Link](https://voi.id/fr/de-sports/531346)
+
+
 ### new caledonia (N/A, Sun, 9 Nov 2025 05:30:00 -0800)
 
 - **Morocco U17 vs New Caledonia U17- When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/267104/morocco-u17-vs-new-caledonia-u17-when-how-to-watch/)
