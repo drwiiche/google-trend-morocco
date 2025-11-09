@@ -1,3 +1,31 @@
+### sports (N/A, Sun, 9 Nov 2025 07:30:00 -0800)
+
+- **SEC teams grade well in Week 11 report card ahead of bigger tests, while Big Ten's best have startling day**: [Link](https://www.cbssports.com/college-football/news/college-football-week-11-grades-scores-analysis-georgia-alabama-pass-tests/)
+- **Projecting the CFP top 12: Who's No. 2?**: [Link](https://www.espn.com/college-football/story/_/id/46896073/projecting-college-football-playoff-top-12-week-11)
+- **College football scores, live updates: LSU vs. Alabama and more**: [Link](https://sports.yahoo.com/college-football/live/college-football-scores-live-updates-oregon-vs-iowa-lsu-vs-alabama-and-more-160449171.html)
+
+
+### المغرب اليوم (N/A, Sun, 9 Nov 2025 07:30:00 -0800)
+
+- **ملعب طنجة الكبير على وشك الانطلاق .. جاهزية شاملة وتجهيزات عالمية**: [Link](https://www.hespress.com/%D9%85%D9%84%D8%B9%D8%A8-%D8%B7%D9%86%D8%AC%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D9%88%D8%B4%D9%83-%D8%A7%D9%84%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%AC%D8%A7%D9%87-1653071.html)
+- **بلاغ اللجنة المنظمة لمباراة المنتخب الوطني أمام الموزمبيق**: [Link](https://frmf.ma/%D8%A8%D9%84%D8%A7%D8%BA-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7-6/)
+- **مباراة المنتخب المغربي والموزمبيق تجرى بشبابيك مغلقة بعد نفاد جميع التذاكر – اليوم 24**: [Link](https://alyaoum24.com/1993197.html)
+
+
+### wc u17 (N/A, Sun, 9 Nov 2025 07:30:00 -0800)
+
+- **Fiji vs Argentina: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/fiji-vs-argentina-how-watch-u-17-world-cup-preview)
+- **Argentina cruise past Fiji, await U17 World Cup last 32 in Qatar**: [Link](https://onefootball.com/en/news/argentina-cruise-past-fiji-await-u17-world-cup-last-32-in-qatar-41927870)
+- **Morocco U17 vs New Caledonia U17- When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/267104/morocco-u17-vs-new-caledonia-u17-when-how-to-watch/)
+
+
+### morocco vs (N/A, Sun, 9 Nov 2025 07:10:00 -0800)
+
+- **Morocco-Mozambique Friendly to Be Played to a Full House in Tangier**: [Link](https://www.moroccoworldnews.com/2025/11/267124/morocco-mozambique-friendly-to-be-played-to-a-full-house-in-tangier/)
+- **Hoalid Regragui calls up Sofiane Diop and Anass Salah-Eddine, Saïss signs his return**: [Link](https://mountakhab.net/en/hoalid-regragui-calls-up-sofiane-diop-and-anass-salah-eddine-saiss-signs-his-return/)
+- **PSG’s Hakimi out of Morocco squad to face Uganda due to injury**: [Link](https://kawowo.com/2025/11/08/psgs-hakimi-out-of-morocco-squad-to-face-uganda-due-to-injury/)
+
+
 ### yalla shoot (N/A, Sun, 9 Nov 2025 07:20:00 -0800)
 
 - **اضبط تردد أبو ظبي الرياضية 2 لمتابعة بيراميدز وسيراميكا كليوباترا بجودة HD مجانًا**: [Link](https://gaya-sa.org/64899/%D8%A7%D8%B6%D8%A8%D8%B7-%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A3%D8%A8%D9%88-%D8%B8%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-2-%D9%84%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A8%D9%8A%D8%B1/)
