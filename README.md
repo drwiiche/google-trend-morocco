@@ -1,3 +1,10 @@
+### أولمبيك أسفي ضد الوداد الرياضي (N/A, Sun, 9 Nov 2025 07:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة أولمبيك آسفي والوداد في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A7%D9%93%D8%B3%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt385818689919ac73)
+- **تشكيلة الوداد ضد أ. آسفي.. بنهاشم يعتمد على فيريرا أساسيا وأمرابط يقود الهجوم رفقة لورش وهنوري**: [Link](https://m.elbotola.com/article/2025-11-09-14-12-262.html)
+- **آسفي يستنجد بجماهيره لتجاوز الوداد**: [Link](https://www.hesport.com/%D8%A2%D8%B3%D9%81%D9%8A-%D9%8A%D8%B3%D8%AA%D9%86%D8%AC%D8%AF-%D8%A8%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%87-%D9%84%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-411696.html)
+
+
 ### fifa u17 (N/A, Sun, 9 Nov 2025 07:00:00 -0800)
 
 - **Why the North Korean women's football team is so good**: [Link](https://www.dw.com/en/why-the-north-korean-womens-football-team-is-so-good/a-70313505)
