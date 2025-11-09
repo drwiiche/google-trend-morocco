@@ -1,3 +1,45 @@
+### roma – udinese (N/A, Sun, 9 Nov 2025 09:10:00 -0800)
+
+- **Preview:Roma vs Udinese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/roma/preview/roma-vs-udinese-prediction-team-news-lineups_585341.html)
+- **Udinese’s Buksa Weighs in on Sunday’s Match and Zaniolo**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/38166/udineses-buksa-weighs-in-on-sundays-match-and-zaniolo)
+- **Pellegrini and Soule to start behind Dovbyk vs Udinese**: [Link](https://romapress.net/pellegrini-and-soule-to-start-behind-dovbyk-vs-udinese/)
+
+
+### classement la liga (N/A, Sun, 9 Nov 2025 09:10:00 -0800)
+
+- **Rayo Vallecano 0-0 Real Madrid, La Liga : résumé du match (09/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/rayo-vallecano-real-madrid-live/676826)
+- **DIRECT. Rayo-Real Madrid: les Merengue décevants et freinés, fin de série pour Mbappé**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-rayo-vallecano-real-madrid-suivez-le-match-de-la-12e-journee-de-liga-en-live_LS-202511090083.html)
+- **Rayo Vallecano - Real Madrid en direct - La Liga : Football Scores & Résultats - 09/11/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-rayo-vallecano-real-madrid_mtc1610540/live-commentary.shtml)
+
+
+### fenerbahçe – kayserispor (N/A, Sun, 9 Nov 2025 09:10:00 -0800)
+
+- **Fenerbahçe - Kayserispor**: [Link](https://www.cnnturk.com/spor/futbol/live-fenerbahce-kayserispor-maci-bein-sports-1-canli-izle-fenerbahce-kayserispor-maci-bein-sports-1-bedava-izle-fenerbahce-2357792)
+- **Galatasaray ve Fenerbahçe maçlarının VAR'ları açıklandı**: [Link](https://www.nefes.com.tr/galatasaray-ve-fenerbahce-maclarinin-varlari-aciklandi-78292)
+- **Fenerbahçe - Kayserispor maçının VAR’ı Ömer Faruk Turtay oldu**: [Link](https://www.mersinhabermerkezi.com/fenerbahce-kayserispor-macinin-vari-omer-faruk-turtay-oldu)
+
+
+### ريال مدريد (N/A, Sun, 9 Nov 2025 09:00:00 -0800)
+
+- **أتلتيكو مدريد يبدي اهتمامه بهذا اللاعب من ريال مدريد**: [Link](https://foot-africa.com/ar/news/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%A8%D8%AF%D9%8A-%D8%A7%D9%87%D8%AA%D9%85%D8%A7%D9%85%D9%87-%D8%A8%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D9%85%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-953783/)
+- **أتلتيكو مدريد يخطط لضم مدافع ريال مدريد لتعزيز خط الدفاع في موسم الانتقالات القادم بشكل مثير وجديد**: [Link](https://tawusal.com/23842/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AE%D8%B7%D8%B7-%D9%84%D8%B6%D9%85-%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A/)
+- **أتلتيكو مدريد يستهدف ضم لاعب ريال مدريد**: [Link](https://elclasicoo.com/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%B6%D9%85-%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A/)
+
+
+### city (N/A, Sun, 9 Nov 2025 08:50:00 -0800)
+
+- **4 dead, 13 injured after street racer slams into crowd at Tampa bar**: [Link](https://www.bbc.com/news/articles/clyl6jwx2v8o)
+- **Ybor City crash suspect accused of ramming into crowd, killing 4, makes first court appearance**: [Link](https://www.fox13news.com/news/ybor-city-crash-suspect-accused-ramming-crowd-killing-4-makes-first-court-appearance)
+- **At least 4 killed after driver slams into Tampa bar, 11 others injured**: [Link](https://www.cnn.com/2025/11/08/us/tampa-florida-police-chase-crash)
+
+
+### المنتخب (N/A, Sun, 9 Nov 2025 08:20:00 -0800)
+
+- **السكتيوي يعلن لائحة الرديف لكأس العرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1653037.html)
+- **السيد طارق السكتيوي يوجه الدعوة إلى 29 لاعبا للمشاركة في تجمع إعدادي بمركب محمد السادس لكرة القدم**: [Link](https://frmf.ma/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D8%B7%D8%A7%D8%B1%D9%82-%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%8A%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D8%AF%D8%B9%D9%88%D8%A9-%D8%A5%D9%84%D9%89-29-%D9%84/)
+- **السكتيوي يستدعي 29 لاعبًا لمعسكر المنتخب المغربي الرديف استعدادًا للمشاركة في كأس العرب**: [Link](https://m.elbotola.com/article/2025-11-09-11-57-482.html)
+
+
 ### real madrid match (N/A, Sun, 9 Nov 2025 09:00:00 -0800)
 
 - **DIRECT. Rayo Vallecano-Real Madrid (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/rayo-vallecano-real-madrid-live/676826)
