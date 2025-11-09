@@ -1,3 +1,10 @@
+### celta de vigo - barcelona (N/A, Sun, 9 Nov 2025 11:30:00 -0800)
+
+- **Alineación posible del Barcelona hoy ante el Celta en LaLiga: la hora de Lewandowski**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-celta-la-hora-de-lewandowski-f202511-n/)
+- **Ocasión de oro para el Barça en Vigo para recortar distancias con el Real Madrid**: [Link](https://www.sport.es/es/noticias/barca/ocasion-oro-barca-vigo-recortar-123537101)
+- **Balaídos, un campo que se le atraganta al Barcelona**: [Link](https://onefootball.com/pt-br/noticias/balaidos-un-campo-que-se-le-atraganta-al-barcelona-41926383)
+
+
 ### lyon vs psg (N/A, Sun, 9 Nov 2025 11:20:00 -0800)
 
 - **PSG predicted XI v Lyon: Achraf Hakimi and Ousmane Dembélé out, João Neves as right-back**: [Link](https://www.getfootballnewsfrance.com/2025/psg-predicted-xi-v-lyon-achraf-hakimi-and-ousmane-dembele-out-joao-neves-as-right-back/)
