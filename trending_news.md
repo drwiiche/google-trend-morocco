@@ -1,3 +1,24 @@
+### lyon vs psg (N/A, Sun, 9 Nov 2025 11:20:00 -0800)
+
+- **PSG predicted XI v Lyon: Achraf Hakimi and Ousmane Dembélé out, João Neves as right-back**: [Link](https://www.getfootballnewsfrance.com/2025/psg-predicted-xi-v-lyon-achraf-hakimi-and-ousmane-dembele-out-joao-neves-as-right-back/)
+- **Pavel Sulc vs. Paris Saint-Germain – Player props & odds to score a goal on November 9**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/09/pavel-sulc-soccer-player-props-11-9-2025/87179395007/)
+- **OL-PSG: Great first in the Parisian group**: [Link](https://frenchfootballweekly.com/2025/11/09/ol-psg-great-first-in-the-parisian-group/)
+
+
+### real betis (N/A, Sun, 9 Nov 2025 11:20:00 -0800)
+
+- **Valencia - Betis en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/valencia-betis-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
+- **Los béticos miran con optimismo al partido contra el Valencia**: [Link](https://www.elcorreoweb.es/betis/2025/11/09/optimismo-beticos-valencia-betis-mestalla-123525152.html)
+- **Valencia - Betis en directo | Última hora de LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/valencia-betis/2025/11/09/01_0101_20251109_191_185-directo.html)
+
+
+### premier league (N/A, Sun, 9 Nov 2025 10:00:00 -0800)
+
+- **Premier League explanation for VAR giving Man City penalty vs Liverpool**: [Link](https://www.liverpool.com/liverpool-fc-news/features/penalty-var-man-city-liverpool-32841986)
+- **‘Poor decision’ – Ex-refs chief slams Chris Kavanagh for major error in Man City vs Liverpool**: [Link](https://www.footballinsider247.com/poor-decision-ex-refs-chief-slams-chris-kavanagh-for-major-error-in-man-city-vs-liverpool/)
+- **Gary Neville takes aim at Liverpool's players live on Sky as damning Man City verdict delivered**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/gary-neville-liverpool-man-city-32842191)
+
+
 ### سلتا فيغو ضد برشلونة (N/A, Sun, 9 Nov 2025 11:10:00 -0800)
 
 - **برشلونة يستعيد نجمه.. وفليك يستعين بلاعب الرديف أمام سيلتا فيجو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D9%86%D8%AC%D9%85%D9%87--%D9%88%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D9%86-%D8%A8%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%AC%D9%88/blt21b618b28c0d0eea)
