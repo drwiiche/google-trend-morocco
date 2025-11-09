@@ -1,3 +1,10 @@
+### julia simon (N/A, Sun, 9 Nov 2025 01:40:00 -0800)
+
+- **Julia Simon, une coéquipière va profiter de ses malheurs**: [Link](https://www.sports.fr/ski/biathlon-ski/julia-simon-une-coequipiere-va-profiter-de-ses-malheurs-965625.html)
+- **Biathlon : Fortes tensions au sein du groupe féminin, Cyril Burdet sur le départ ?**: [Link](https://dicodusport.fr/blog/biathlon-fortes-tensions-au-sein-du-groupe-feminin-cyril-burdet-sur-le-depart/)
+- **Les questions qui se posent pour Julia Simon après sa suspension d'un mois ferme par la commission de discipline de la Fédération française de ski**: [Link](https://www.lequipe.fr/Biathlon/Article/Les-questions-qui-se-posent-pour-julia-simon-apres-sa-suspension-d-un-mois-ferme-par-la-commission-de-discipline-de-la-federation-francaise-de-ski/1608157)
+
+
 ### sgtm bourse casablanca (N/A, Sun, 9 Nov 2025 02:00:00 -0800)
 
 - **SGTM soigne la mise en scène de son introduction en bourse**: [Link](https://ledesk.ma/2025/11/08/sgtm-soigne-la-mise-en-scene-de-son-introduction-en-bourse/)
