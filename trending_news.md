@@ -1,3 +1,17 @@
+### new caledonia (N/A, Sun, 9 Nov 2025 05:30:00 -0800)
+
+- **Morocco U17 vs New Caledonia U17- When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/267104/morocco-u17-vs-new-caledonia-u17-when-how-to-watch/)
+- **Moroccan U-17 National Team Faces New Caledonia: World Cup Match Schedule**: [Link](https://tanja7.com/en/5653)
+- **Morocco U17 – New Caledonia U17: What time and on which channel to watch the decisive World Cup clash live?**: [Link](https://foot-africa.com/en/news/morocco-u17-new-caledonia-u17-what-time-and-on-which-channel-to-watch-the-decisive-world-cup-clash-live-953066/)
+
+
+### carlos alcaraz (N/A, Sun, 9 Nov 2025 05:30:00 -0800)
+
+- **Decisión vital en el duelo Alcaraz-Sinner: "Soy un hombre de palabra, hicimos un pacto en Wimbledon"**: [Link](https://www.mundodeportivo.com/tenis/20251108/1002565839/decision-vital-duelo-alcaraz-sinner-hombre-palabra-hicimos-pacto-wimbledon.html)
+- **Avance de las Finales ATP: quién juega, qué ver y más**: [Link](https://mascipolletti.com.ar/noticias/avance-de-las-finales-atp-quien-juega-que-ver-y-mas/276432/)
+- **Dónde se juegan las ATP Finals 2025: sede y calendario de todos los partidos**: [Link](https://okdiario.com/deportes/donde-juegan-atp-finals-2025-sede-calendario-todos-partidos-15730136)
+
+
 ### aston villa – bournemouth (N/A, Sun, 9 Nov 2025 05:20:00 -0800)
 
 - **Unai Emery has ‘very good news’ about a missing midfielder**: [Link](https://www.vavel.com/en/football/2025/11/07/aston-villa/1240569-unai-emery-has-very-good-news-about-a-missing-midfielder.html)
