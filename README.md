@@ -1,3 +1,10 @@
+### coupe du monde féminine de football des moins de 17 ans (N/A, Sun, 9 Nov 2025 09:20:00 -0800)
+
+- **Mondial féminin U17: la Corée du Nord sacrée à Rabat**: [Link](https://fr.le360.ma/sports/mondial-feminin-u17-la-coree-du-nord-sacree-a-rabat_D2VIHCFTNRBZFDXNUSDVO3OM3E/)
+- **Mondial U17 : une Marocaine envoie les Pays-Bas en finale**: [Link](https://www.bladi.net/mondial-u17-marocaine-envoie-pays-bas-finale,117759.html)
+- **castique : La Corée du Nord remporte le titre de la Coupe du monde des femmes U-17 2022**: [Link](https://voi.id/fr/de-sports/531861)
+
+
 ### roma – udinese (N/A, Sun, 9 Nov 2025 09:10:00 -0800)
 
 - **Preview:Roma vs Udinese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/roma/preview/roma-vs-udinese-prediction-team-news-lineups_585341.html)
