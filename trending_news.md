@@ -1,3 +1,17 @@
+### barca vs (N/A, Sun, 9 Nov 2025 12:30:00 -0800)
+
+- **Pañuelos blancos en Barcelona**: [Link](https://as.com/opinion/panuelos-blancos-en-barcelona-f202511-n/)
+- **Crisis abierta en el Barça de baloncesto**: [Link](https://www.lavanguardia.com/deportes/baloncesto/20251109/11244774/barca-palau-penarroya-cubells-navarro.html)
+- **El Real Madrid asalta el Palau y busca confirmar su buen momento en Badalona**: [Link](https://basketpasion.es/el-real-madrid-asalta-el-palau-y-busca-confirmar-su-buen-momento-en-badalona/)
+
+
+### boca vs river (N/A, Sun, 9 Nov 2025 12:30:00 -0800)
+
+- **Boca Juniors - River Plate hoy, en vivo: Superclásico argentino, torneo Clausura, en directo**: [Link](https://as.com/futbol/internacional/boca-juniors-river-plate-hoy-en-vivo-superclasico-argentino-torneo-clausura-en-directo-f202511-n/)
+- **Cuál será el resultado del Superclásico, según la inteligencia artificial**: [Link](https://es-us.noticias.yahoo.com/deportes/cu%C3%A1l-resultado-supercl%C3%A1sico-inteligencia-artificial-163125712.html)
+- **Historial de Marcelo Gallardo vs Boca en la Bombonera**: [Link](https://www.365scores.com/es/news/historial-de-marcelo-gallardo-bombonera/)
+
+
 ### barcelona (N/A, Sun, 9 Nov 2025 12:20:00 -0800)
 
 - **Celta - Barcelona, en directo: resultado y última hora del partido de LaLiga EA Sports**: [Link](https://www.sport.es/es/noticias/barca/celta-barcelona-previa-minuto-directo-hoy-partido-goles-resumen-laliga-vivo-123533095)
