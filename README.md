@@ -1,3 +1,24 @@
+### f1 (N/A, Sun, 9 Nov 2025 10:00:00 -0800)
+
+- **What To Watch For in the Sao Paulo Grand Prix**: [Link](https://www.formula1.com/en/latest/article/norris-with-a-golden-chance-and-verstappen-in-unfamiliar-territory-what-to.3sKQw6wmrV705Wco1n9hdH)
+- **Fresh twist in Brazilian GP weather saga as surprise rain rolls in**: [Link](https://racingnews365.com/fresh-twist-in-brazilian-gp-weather-saga-as-surprise-rain-rolls-in)
+- **Who starts where in Sao Paulo with Verstappen and Ocon in pit lane**: [Link](https://bvmsports.com/2025/11/09/who-starts-where-in-sao-paulo-with-verstappen-and-ocon-in-pit-lane/)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 9 Nov 2025 10:00:00 -0800)
+
+- **الحلم نيوز : ترتيب الدوري الإنجليزي بعد تعادل مانشستر يونايتد مع توتنهام**: [Link](https://www.al7lmnews.com/18578/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D9%86%D9%8A%D9%88%D8%B2-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A8%D8%B9%D8%AF-4/)
+- **عاجل: 10 أسرار مدمرة من الجولة العاشرة… غوارديولا يصدم الجميع وآرسنال يحطم رقماً تاريخياً!**: [Link](https://yemen-press.net/news147774.html)
+- **المنطق لا يصمد أمام سحر البريميرليج “حرب الجيران”.. سبع مباريات تكتب قصة أغرب جولة !**: [Link](https://tatweeg.news/%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82-%D9%84%D8%A7-%D9%8A%D8%B5%D9%85%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%AD%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D8%AD%D8%B1/)
+
+
+### valencia vs real betis (N/A, Sun, 9 Nov 2025 09:50:00 -0800)
+
+- **How to Watch Valencia CF vs. Real Betis: Live Stream, TV Channel, Start Time | 11/9/2025**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/05/how-to-watch-valencia-cf-vs-real-betis-live-stream-tv-11-9-2025/87113935007/)
+- **Real Betis to Face Valencia CF in LaLiga Showdown**: [Link](https://news.ssbcrack.com/real-betis-to-face-valencia-cf-in-laliga-showdown/)
+- **Valencia vs Real Betis: Where to Watch Live Stream & TV Channels**: [Link](https://www.sportsdunia.com/football-news/valencia-vs-real-betis-live-stream-tv-channels)
+
+
 ### laliga (N/A, Sun, 9 Nov 2025 09:30:00 -0800)
 
 - **Why Barcelona defence must be fearful of this Celta Vigo striker**: [Link](https://barcauniversal.com/why-barcelona-defence-must-be-fearful-of-this-celta-vigo-striker/)
