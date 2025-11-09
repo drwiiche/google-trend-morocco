@@ -1,3 +1,38 @@
+### crystal palace – brighton (N/A, Sun, 9 Nov 2025 06:00:00 -0800)
+
+- **Crystal Palace vs Brighton LIVE! Premier League match updates, news, score, stream and highlights**: [Link](https://www.skysports.com/football/live-blog/11661/13465050/crystal-palace-vs-brighton-live-premier-league-match-updates-news-score-stream-and-highlights)
+- **Glasner on Wharton fitness doubts and maintaining momentum**: [Link](https://www.aol.com/articles/glasner-wharton-fitness-doubts-maintaining-135412478.html)
+- **Hurzeler says Albion have quality, personality and togetherness to pass Palace test**: [Link](https://www.theargus.co.uk/sport/25607415.fabian-hurzeler-looks-palace-test-man-united/)
+
+
+### brentford – newcastle (N/A, Sun, 9 Nov 2025 05:50:00 -0800)
+
+- **Eddie Howe Must Axe £187,000-a-Week Joelinton for Newcastle vs Brentford**: [Link](https://www.givemesport.com/eddie-howe-axe-joelinton-newcastle-brentford-jacob-ramsey/)
+- **Paul Merson fears for “woeful” Newcastle**: [Link](https://www.nufcblog.co.uk/2025/11/09/paul-merson-fears-for-woeful-newcastle/)
+- **Latest. Team news: One change for Bees clash**: [Link](https://www.newcastleunited.com/en/news/team-news-one-change-for-bees-clash)
+
+
+### u17 world cup (N/A, Sun, 9 Nov 2025 05:50:00 -0800)
+
+- **Uganda – France: what time and on which channel to watch the U17 World Cup match live?**: [Link](https://foot-africa.com/en/news/uganda-france-what-time-and-on-which-channel-to-watch-the-u17-world-cup-match-live-952028/)
+- **Uganda Faces France in U17 World Cup Clash**: [Link](https://news.ssbcrack.com/uganda-faces-france-in-u17-world-cup-clash/)
+- **Uganda vs Chile: Kick-off time and where to watch the U17 World Cup match live**: [Link](https://ca.sports.yahoo.com/news/uganda-vs-chile-kick-off-074000625.html)
+
+
+### u17 world cup 2025 (N/A, Sun, 9 Nov 2025 05:50:00 -0800)
+
+- **Things to do this weekend in Qatar (November 6-8, 2025)**: [Link](https://thepeninsulaqatar.com/article/05/11/2025/things-to-do-this-weekend-in-qatar-november-6-8-2025)
+- **Qatar Tourism To Experience Tremendous Growth As FIFA U-17 World Cup, FIFA Arab Cup, And Formula 1 Grand Prix Take Center Stage In Doha**: [Link](https://www.travelandtourworld.com/news/article/qatar-tourism-to-experience-tremendous-growth-as-fifa-u-17-world-cup-fifa-arab-cup-and-formula-1-grand-prix-take-center-stage-in-doha/)
+- **Things to do in Doha: 9 - 15 November 2025**: [Link](https://www.iloveqatar.net/news/thingsToDo/9-15-november-2025-doha-qatar-events)
+
+
+### كاليدونيا الجديدة (N/A, Sun, 9 Nov 2025 05:20:00 -0800)
+
+- **تشكيلة "أشبال المغرب" أمام كاليدونيا**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D9%83%D8%A7%D9%84%D9%8A%D8%AF%D9%88%D9%86%D9%8A%D8%A7-1653068.html)
+- **فوز لا يكفي .. المغاربة ينتظرون هدية قطرية و المصير قد يُحسم اليوم**: [Link](https://m.elbotola.com/article/2025-11-09-08-28-896.html)
+- **المغرب في مونديال الناشئين.. كاليدونيا تحاكم باها قبل الرحيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D9%8A%D9%94%D9%8A%D9%86--%D9%83%D8%A7%D9%84%D9%8A%D8%AF%D9%88%D9%86%D9%8A%D8%A7-%D8%AA%D8%AD%D8%A7%D9%83%D9%85-%D8%A8%D8%A7%D9%87%D8%A7-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84/bltbd365e97853d7e96)
+
+
 ### nottm forest – leeds united (N/A, Sun, 9 Nov 2025 05:40:00 -0800)
 
 - **Team news: Daniel Farke names XI to face Nottingham Forest**: [Link](https://www.leedsunited.com/en/news/team-news-daniel-farke-names-xi-to-face-nottingham-forest)
