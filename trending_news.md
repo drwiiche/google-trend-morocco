@@ -1,3 +1,10 @@
+### دينا الشربيني (N/A, Sun, 9 Nov 2025 13:10:00 -0800)
+
+- **تضارب في أخبار انفصال كريم محمود عبد العزيز عن زوجته رغم الصلح**: [Link](https://www.lahamag.com/article/231828-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%86%D9%81%D8%B5%D8%A7%D9%84-%D9%83%D8%B1%D9%8A%D9%85-%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%B9%D9%86-%D8%B2%D9%88%D8%AC%D8%AA%D9%87-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7)
+- **تاليا تامر حسني تعتذر بعد تدخلها في أزمة ابنة كريم محمود عبدالعزيز.. ما القصة؟**: [Link](https://www.almasryalyoum.com/news/details/3594680)
+- **ابنة تامر حسني تتراجع عن إهانتها لدينا الشربيني**: [Link](https://www.alquds.co.uk/%D8%A7%D8%A8%D9%86%D8%A9-%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D8%AA%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B9%D9%86-%D8%A5%D9%87%D8%A7%D9%86%D8%AA%D9%87%D8%A7-%D9%84%D8%AF%D9%8A%D9%86%D8%A7/)
+
+
 ### fc barcelone (N/A, Sun, 9 Nov 2025 12:50:00 -0800)
 
 - **DIRECT. Celta Vigo-FC Barcelone (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/celta-vigo-fc-barcelone-live/676828)
