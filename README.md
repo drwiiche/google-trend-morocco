@@ -1,3 +1,10 @@
+### liga classement (N/A, Sun, 9 Nov 2025 14:10:00 -0800)
+
+- **Foot - Championnat dEspagne: Résultats de la 12e journée**: [Link](https://www.tap.info.tn/fr/Portail-Titres-de-l-actualit%C3%A9/19448309-foot-championnat)
+- **Liga : le Real Madrid conserve la tête avant la suite de la 12e journée**: [Link](https://www.webmanagercenter.com/2025/11/08/555466/liga-le-real-madrid-conserve-la-tete-avant-la-suite-de-la-12e-journee/)
+- **Real Madrid, FC Barcelona, Atlético : Le classement de Liga sans la VAR dévoilé après la 11ème journée**: [Link](https://www.90min.com/fr/real-madrid-fc-barcelona-atletico-le-classement-de-liga-sans-la-var-devoile-apres-la-11eme-journee-03-11-2025)
+
+
 ### برشلونة (N/A, Sun, 9 Nov 2025 12:40:00 -0800)
 
 - **بعد إغلاق طويل.. تحديد موعد أول مباراة لبرشلونة في "كامب نو" الجديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%95%D8%BA%D9%84%D8%A7%D9%82-%D8%B7%D9%88%D9%8A%D9%84--%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/blt4fa32527819cb320)
