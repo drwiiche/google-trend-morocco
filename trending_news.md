@@ -1,3 +1,10 @@
+### mondial u17 (N/A, Mon, 10 Nov 2025 09:20:00 -0800)
+
+- **Mondial U17 : le Maroc valide son billet pour les seizièmes de finale**: [Link](https://medias24.com/2025/11/10/mondial-u17-le-maroc-valide-son-billet-pour-les-seiziemes-de-finale/)
+- **Mondial U17 : le Maroc officiellement qualifié pour les 8es de finale au Qatar**: [Link](https://fr.hespress.com/449206-mondial-u17-le-maroc-officiellement-qualifie-pour-les-8es-de-finale-au-qatar.html)
+- **16-0 contre la Nouvelle-Calédonie, le Maroc signe la victoire la plus large de l’histoire du Mondial U17**: [Link](https://mobile.telquel.ma/instant-t/2025/11/10/16-0-contre-la-nouvelle-caledonie-le-maroc-signe-la-victoire-la-plus-large-de-lhistoire-du-mondial-u17_1960077/)
+
+
 ### اسماعيل الليثي (N/A, Mon, 10 Nov 2025 08:10:00 -0800)
 
 - **نقيب الموسيقيين بالمنيا يكشف حقيقة وفاة المطرب إسماعيل الليثى إكلينيكيا**: [Link](https://www.youm7.com/story/2025/11/8/%D9%86%D9%82%D9%8A%D8%A8-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%8A%D9%82%D9%8A%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D9%86%D9%8A%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%B7%D8%B1%D8%A8-%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%A7%D9%84%D9%84%D9%8A%D8%AB%D9%89-%D8%A5%D9%83%D9%84%D9%8A%D9%86%D9%8A%D9%83%D9%8A%D8%A7/7189026)
