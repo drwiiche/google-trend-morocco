@@ -1,3 +1,10 @@
+### bourse (N/A, Mon, 10 Nov 2025 10:20:00 -0800)
+
+- **Shutdown aux Etats-Unis : les démocrates se divisent au Sénat, ouvrant la voie à une sortie de la paralysie budgétaire**: [Link](https://www.lemonde.fr/international/article/2025/11/10/shutdown-aux-etats-unis-les-democrates-se-divisent-au-senat-ouvrant-la-voie-a-une-sortie-de-la-paralysie-budgetaire_6652861_3210.html)
+- **Espoir de déblocage budgétaire aux Etats-Unis: la Bourse de Paris en hausse**: [Link](https://medias24.com/agence-presse/espoir-de-deblocage-budgetaire-aux-etats-unis-la-bourse-de-paris-en-hausse/)
+- **Que faire si votre vol est annulé ou retardé par le shutdown américain**: [Link](https://fr.euronews.com/voyages/2025/11/10/vol-annule-pendant-le-shutdown-americain-reprogrammer-etre-rembourse-et-ajuster-vos-plans)
+
+
 ### nicolas sarkozy (N/A, Mon, 10 Nov 2025 08:30:00 -0800)
 
 - **DIRECT. Nicolas Sarkozy assure que "la vérité triomphera" après sa mise en liberté sous contrôle judiciaire**: [Link](https://www.bfmtv.com/politique/direct-nicolas-sarkozy-apres-vingt-jours-en-prison-la-sortie-la-justice-examine-ce-lundi-sa-demande-de-mise-en-liberte_LN-202511100256.html)
