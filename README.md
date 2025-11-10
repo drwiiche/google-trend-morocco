@@ -1,3 +1,17 @@
+### sion assidon maroc (N/A, Mon, 10 Nov 2025 10:50:00 -0800)
+
+- **Sion Assidon, figure de la contestation au Maroc, est mort**: [Link](https://www.lemonde.fr/afrique/article/2025/11/09/sion-assidon-figure-de-la-contestation-au-maroc-est-mort_6652798_3212.html)
+- **Décès de Sion Assidon : le parquet privilégie une chute d’échelle et un traumatisme crânien**: [Link](https://mobile.telquel.ma/instant-t/2025/11/10/deces-de-sion-assidon-le-parquet-privilegie-une-chute-dechelle-et-un-traumatisme-cranien_1960082/)
+- **Jaouad Mdidech - Sion Assidon, la Palestine chevillée au corps**: [Link](https://medias24.com/chronique/sion-assidon-la-palestine-chevillee-au-corps/)
+
+
+### ligue 1 (N/A, Sun, 9 Nov 2025 13:50:00 -0800)
+
+- **OL 2-3 PSG, Ligue 1 : résumé du match (09/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/lyon-psg-live/675894)
+- **Le meilleur buteur du PSG, c'est lui : Le joyau Neves a encore frappé**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/12-journee-joao-neves-meilleur-buteur-improbable-du-psg-apres-son-but-face-a-lol_sto23239683/story.shtml)
+- **OL-PSG : Sidney Govou n’aurait pas sifflé faute sur Tessmann**: [Link](https://www.footmercato.net/a1541218212139631873-ol-psg-sidney-govou-naurait-pas-siffle-faute-sur-tessmann)
+
+
 ### bourse (N/A, Mon, 10 Nov 2025 10:20:00 -0800)
 
 - **Shutdown aux Etats-Unis : les démocrates se divisent au Sénat, ouvrant la voie à une sortie de la paralysie budgétaire**: [Link](https://www.lemonde.fr/international/article/2025/11/10/shutdown-aux-etats-unis-les-democrates-se-divisent-au-senat-ouvrant-la-voie-a-une-sortie-de-la-paralysie-budgetaire_6652861_3210.html)
