@@ -1,3 +1,10 @@
+### barca vs celta vigo (N/A, Sun, 9 Nov 2025 12:30:00 -0800)
+
+- **Celta 2-4 Barcelona: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/celta-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
+- **El Barça es otro con Lewandowski**: [Link](https://www.marca.com/futbol/primera-division/cronica/2025/11/09/barca-lewandowski.html)
+- **El Barça de Flick recupera la fe en una noche memorable de fútbol**: [Link](https://www.sport.es/es/noticias/barca/barca-flick-recupera-fe-noche-123541911)
+
+
 ### classement liga (N/A, Sun, 9 Nov 2025 14:10:00 -0800)
 
 - **Rayo Vallecano 0-0 Real Madrid, La Liga : résumé du match (09/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/rayo-vallecano-real-madrid-live/676826)
