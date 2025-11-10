@@ -1,3 +1,10 @@
+### la liga (N/A, Sun, 9 Nov 2025 14:10:00 -0800)
+
+- **Real Madrid held by Rayo Vallecano in drab draw**: [Link](https://www.bbc.com/sport/football/live/c0l7xx1kjwzt)
+- **Xabi Alonso: "We are not in crisis"**: [Link](https://foot-africa.com/en/news/xabi-alonso-we-are-not-in-crisis-953960/)
+- **Alonso: Trent 'ready' for Real Madrid start vs. Rayo**: [Link](https://www.espn.co.uk/football/story/_/id/46891275/trent-alexander-arnold-ready-real-madrid-start-xabi-alonso)
+
+
 ### jour férié 2025 (N/A, Mon, 10 Nov 2025 01:40:00 -0800)
 
 
