@@ -1,3 +1,10 @@
+### bourse maroc (N/A, Mon, 10 Nov 2025 11:10:00 -0800)
+
+- **Bourse de Casablanca : Cosumar gagne en potentiel et devient un titre à acheter**: [Link](https://lematin.ma/economie/cosumar-bmce-capital-parie-sur-un-nouveau-cycle-de-croissance/312686)
+- **Cosumar : BKGR à l’achat en anticipation de nouveaux relais de croissance**: [Link](https://boursenews.ma/article/marches/cosumar-bkgr-achat)
+- **Semaine dans le rouge pour la Bourse de Casablanca**: [Link](https://fr.hespress.com/449106-semaine-dans-le-rouge-pour-la-bourse-de-casablanca-21.html)
+
+
 ### sion assidon maroc (N/A, Mon, 10 Nov 2025 10:50:00 -0800)
 
 - **Sion Assidon, figure de la contestation au Maroc, est mort**: [Link](https://www.lemonde.fr/afrique/article/2025/11/09/sion-assidon-figure-de-la-contestation-au-maroc-est-mort_6652798_3212.html)
