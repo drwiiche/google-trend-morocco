@@ -1,3 +1,10 @@
+### الدكتور زغلول النجار (N/A, Sun, 9 Nov 2025 12:00:00 -0800)
+
+- **وفاة العلامة المصري زغلول النجار عن 92 عاما**: [Link](https://www.aljazeera.net/news/2025/11/9/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%B2%D8%BA%D9%84%D9%88%D9%84-%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%B1-%D8%B9%D9%86-92)
+- **رحيل زغلول النجار أحد مؤسسي هيئة الإعجاز العلمي في القرآن والسنة**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86/%D8%B1%D8%AD%D9%8A%D9%84-%D8%B2%D8%BA%D9%84%D9%88%D9%84-%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%B1-%D8%A3%D8%AD%D8%AF-%D9%85%D8%A4%D8%B3%D8%B3%D9%8A-%D9%87%D9%8A%D8%A6%D8%A9-%D8%A7%D9%84%D8%A5%D8%B9%D8%AC%D8%A7%D8%B2-%D8%A7%D9%84%D8%B9%D9%84%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%B1%D8%A2%D9%86-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%A9/3739200)
+- **وفاة المفكر الإسلامي زغلول النجار**: [Link](https://www.hespress.com/%D8%B2%D8%BA%D9%84%D9%88%D9%84-%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%B1-%D9%8A%D9%88%D8%AF%D9%91%D8%B9-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A9-%D9%81%D9%8A-%D8%B9%D9%85%D9%91%D8%A7%D9%86-1653110.html)
+
+
 ### barca vs celta vigo (N/A, Sun, 9 Nov 2025 12:30:00 -0800)
 
 - **Celta 2-4 Barcelona: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/celta-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-f202511-d/)
