@@ -1,3 +1,10 @@
+### nicolas moumi ngamaleu (N/A, Mon, 10 Nov 2025 13:50:00 -0800)
+
+- **Who Is Nicolas Moumi Ngamaleu? Cameroon Footballer Caught Red-Handed In Cheating Scandal; Videos, WhatsApp**: [Link](https://www.freepressjournal.in/sports/who-is-nicolas-moumi-ngamaleu-cameroon-footballer-caught-red-handed-in-cheating-scandal-videos-whatsapp-chats-go-viral)
+- **World Cup Playoffs: Crisis Rocks Cameroon Camp, Star Player Involved In Adultery Scandal**: [Link](https://bsnsports.com.ng/post/World-Cup-Playoffs--Crisis-Rocks-Cameroon-Camp--Star-Player-Involved-In-Adultery-Scandal-)
+- **Cameroon's Ngamaleu allegedly caught cheating by his Russian partner**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/Cameroon-s-Ngamaleu-allegedly-caught-cheating-by-his-Russian-partner-2008836)
+
+
 ### tsunami japon (N/A, Mon, 10 Nov 2025 13:20:00 -0800)
 
 - **La terre a fortement tremblé : après un séisme de magnitude 6,7, l’alerte au tsunami déclenchée**: [Link](https://www.midilibre.fr/2025/11/09/la-terre-a-fortement-tremble-apres-un-seisme-de-magnitude-67-lalerte-au-tsunami-declenchee-13042474.php)
