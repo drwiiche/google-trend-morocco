@@ -1,3 +1,17 @@
+### tsunami japon (N/A, Mon, 10 Nov 2025 13:20:00 -0800)
+
+- **La terre a fortement tremblé : après un séisme de magnitude 6,7, l’alerte au tsunami déclenchée**: [Link](https://www.midilibre.fr/2025/11/09/la-terre-a-fortement-tremble-apres-un-seisme-de-magnitude-67-lalerte-au-tsunami-declenchee-13042474.php)
+- **Japon : Alerte au tsunami après un séisme de magnitude 6,7 au large de la côte est**: [Link](https://fr.hespress.com/449084-japon-alerte-au-tsunami-apres-un-seisme-de-magnitude-67-au-large-de-la-cote-est.html)
+- **Tremblement de terre très fort magnitude 6.0 - Océan Pacifique Nord, 189 km à l'est de Morioka, préfecture d'Iwate, Japon, lundi, 10 nov. 2025, à 17:23 (GMT +10)**: [Link](https://www.volcanodiscovery.com/fr/seismes/info-seisme/22375143/mag6quake-Nov-10-2025-Off-East-Coast-of-Honshu-Japan.html)
+
+
+### philippines (N/A, Mon, 10 Nov 2025 12:40:00 -0800)
+
+- **BBC on Luzon Island as super typhoon hits Philippines**: [Link](https://www.bbc.com/news/videos/c20p2m83p5go)
+- **‘Like It Was the End of the World’: A Million Flee From Typhoon in the Philippines**: [Link](https://www.nytimes.com/2025/11/10/world/asia/typhoon-fung-wong-philippines-evacuation.html)
+- **Super Typhoon Fung-wong makes landfall in Philippines, two killed**: [Link](https://www.aljazeera.com/news/2025/11/9/nearly-1-million-filipinos-evacuate-as-super-typhoon-fung-wong-approaches)
+
+
 ### jannik sinner (N/A, Mon, 10 Nov 2025 12:20:00 -0800)
 
 - **Montepremi Atp Finals 2025: i guadagni possibili. Quanto vale una vittoria nel round robin e il mega bonus zero-sconfitte**: [Link](https://sport.quotidiano.net/tennis/montepremi-atp-finals-2025-guadagni-5219d5d6)
