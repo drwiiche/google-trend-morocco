@@ -1,3 +1,24 @@
+### jannik sinner (N/A, Mon, 10 Nov 2025 12:20:00 -0800)
+
+- **Montepremi Atp Finals 2025: i guadagni possibili. Quanto vale una vittoria nel round robin e il mega bonus zero-sconfitte**: [Link](https://sport.quotidiano.net/tennis/montepremi-atp-finals-2025-guadagni-5219d5d6)
+- **È Sinner-mania, a Torino fan da tutta Italia: felpe “Jannik” e Inalpi Arena colorata d’arancio**: [Link](https://www.lastampa.it/torino/2025/11/10/news/sinner-mania_inalpi_arena-15390426/)
+- **Torino è azzurra, Musetti sfida lo yankee Fritz mentre per Sinner c'è Auger-Aliassime: vigilia e quote**: [Link](https://www.ilmattino.it/schede/torino_azzurra_musetti_sfida_yankee_fritz_mentre_sinner_c_auger_aliassime_vigilia_quote-musetti_in_campo_alle_14-2-9179962.html)
+
+
+### etats unis (N/A, Mon, 10 Nov 2025 12:00:00 -0800)
+
+- **Donald Trump menace les contrôleurs aériens qui ont cessé le travail en raison du shutdown**: [Link](https://www.lemonde.fr/international/article/2025/11/10/donald-trump-menace-les-controleurs-aeriens-qui-ont-cesse-le-travail-en-raison-du-shutdown_6652929_3210.html)
+- **Issue en vue à la paralysie budgétaire aux Etats-Unis**: [Link](https://medias24.com/agence-presse/issue-en-vue-a-la-paralysie-budgetaire-aux-etats-unis/)
+- **Les marchés s'envolent sur fond d'espoirs de fin du shutdown US**: [Link](https://fr.euronews.com/business/2025/11/10/les-marches-senvolent-portes-par-lespoir-dune-fin-de-la-paralysie-de-ladministration-ameri)
+
+
+### tarik sektioui (N/A, Mon, 10 Nov 2025 11:10:00 -0800)
+
+- **Tarik Sektioui convoque 29 joueurs pour préparer la Coupe Arabe 2025**: [Link](https://lematin.ma/sports/selection-a-29-joueurs-convoques-par-tarik-sektioui/312606)
+- **Lions de l’Atlas A’: Tarik Sektioui convoque 29 joueurs pour un stage à huis clos**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-a-tarik-sektioui-convoque-29-joueurs-pour-un-stage-a-huis-clos_ENNBKGJ7FZDT5LTTU3ZILWKA4I/)
+- **Tarek Sektioui prépare l'équipe réserve marocaine pour la Coupe Arabe au Qatar**: [Link](https://www.yabiladi.com/articles/details/180810/tarek-sektioui-prepare-l-equipe-reserve.html)
+
+
 ### bourse maroc (N/A, Mon, 10 Nov 2025 11:10:00 -0800)
 
 - **Bourse de Casablanca : Cosumar gagne en potentiel et devient un titre à acheter**: [Link](https://lematin.ma/economie/cosumar-bmce-capital-parie-sur-un-nouveau-cycle-de-croissance/312686)
