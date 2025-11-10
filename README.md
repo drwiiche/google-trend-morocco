@@ -1,3 +1,10 @@
+### برشلونة (N/A, Sun, 9 Nov 2025 12:40:00 -0800)
+
+- **بعد إغلاق طويل.. تحديد موعد أول مباراة لبرشلونة في "كامب نو" الجديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%95%D8%BA%D9%84%D8%A7%D9%82-%D8%B7%D9%88%D9%8A%D9%84--%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/blt4fa32527819cb320)
+- **الشركات المكلفة ببناء "كامب نو" تواجه 1.87 مليون يورو غرامات بسبب ساعات عمل مفرطة وتشغيل عمال غير قانونيين!**: [Link](https://m.elbotola.com/article/2025-11-08-19-11-697.html)
+- **ميسي يعود إلى كامب نو سرًا ويُشعل مشاعر جماهير برشلونة برسالة مؤثرة**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1351091/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%B3%D8%B1%D9%8B%D8%A7-%D9%88%D9%8A%D9%8F%D8%B4%D8%B9%D9%84-%D9%85%D8%B4%D8%A7%D8%B9%D8%B1)
+
+
 ### la liga (N/A, Sun, 9 Nov 2025 14:10:00 -0800)
 
 - **Real Madrid held by Rayo Vallecano in drab draw**: [Link](https://www.bbc.com/sport/football/live/c0l7xx1kjwzt)
