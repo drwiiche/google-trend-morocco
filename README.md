@@ -1,3 +1,10 @@
+### royal air maroc (N/A, Mon, 10 Nov 2025 01:30:00 -0800)
+
+- **Royal Air Maroc inaugure ce lundi la nouvelle ligne Casablanca-Es-Semara**: [Link](https://fr.le360.ma/economie/royal-air-maroc-inaugure-ce-lundi-la-nouvelle-ligne-casablanca-es-semara_QDAM5IGIKBC4DBKKIVA75KZTB4/)
+- **Royal Air Maroc : Nouvelle liaison Casablanca-Semara en novembre**: [Link](https://www.aeronautique.ma/Royal-Air-Maroc-Nouvelle-liaison-Casablanca-Semara-en-novembre_a5923.html)
+- **Royal Air Maroc lance un nouveau vol**: [Link](https://www.bladi.net/royal-air-maroc-lance-vol-casablanca-saint-petersbourg-500-attirer,117815.html)
+
+
 ### الدكتور زغلول النجار (N/A, Sun, 9 Nov 2025 12:00:00 -0800)
 
 - **وفاة العلامة المصري زغلول النجار عن 92 عاما**: [Link](https://www.aljazeera.net/news/2025/11/9/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%B2%D8%BA%D9%84%D9%88%D9%84-%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%B1-%D8%B9%D9%86-92)
