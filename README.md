@@ -1,3 +1,10 @@
+### sarkozy (N/A, Mon, 10 Nov 2025 04:40:00 -0800)
+
+- **Nicolas Sarkozy va sortir de prison, décide la cour d’appel de Paris au vingtième jour de détention de l’ancien président**: [Link](https://www.lemonde.fr/societe/article/2025/11/10/nicolas-sarkozy-va-sortir-de-prison-apres-vingt-jours-de-detention-ordonne-la-justice_6652851_3225.html)
+- **Le parquet général demande la mise en liberté sous contrôle judiciaire de Nicolas Sarkozy**: [Link](https://www.france24.com/fr/france/20251110-demande-liberte-nicolas-sarkozy-examinee-justice-prison-sante-cour-appel-paris-president)
+- **"Un cauchemar" : devant la cour d'appel, Nicolas Sarkozy s'exprime sur sa détention lors de sa demande de remise en liberté**: [Link](https://www.franceinfo.fr/politique/nicolas-sarkozy/j-ai-bien-conscience-de-la-gravite-des-faits-qui-me-sont-reproches-nicolas-sarkozy-s-est-exprime-en-visioconference-alors-que-la-cour-d-appel-de-paris-examine-sa-demande-de-remise-en-liberte_7607252.html)
+
+
 ### liga classement (N/A, Sun, 9 Nov 2025 14:10:00 -0800)
 
 - **Foot - Championnat dEspagne: Résultats de la 12e journée**: [Link](https://www.tap.info.tn/fr/Portail-Titres-de-l-actualit%C3%A9/19448309-foot-championnat)
