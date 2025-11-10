@@ -1,3 +1,10 @@
+### nicolas sarkozy (N/A, Mon, 10 Nov 2025 08:30:00 -0800)
+
+- **DIRECT. Nicolas Sarkozy assure que "la vérité triomphera" après sa mise en liberté sous contrôle judiciaire**: [Link](https://www.bfmtv.com/politique/direct-nicolas-sarkozy-apres-vingt-jours-en-prison-la-sortie-la-justice-examine-ce-lundi-sa-demande-de-mise-en-liberte_LN-202511100256.html)
+- **Procès libyen: la justice française ordonne la remise en liberté de l'ancien président Nicolas Sarkozy**: [Link](https://www.rfi.fr/fr/france/20251110-proc%C3%A8s-libyen-la-justice-fran%C3%A7aise-ordonne-la-remise-en-libert%C3%A9-de-l-ancien-pr%C3%A9sident-nicolas-sarkozy)
+- **Les indiscrets – Voici le seul aliment que Nicolas Sarkozy accepte de manger derrière les barreaux**: [Link](https://www.lepoint.fr/politique/les-indiscrets-voici-le-seul-aliment-que-nicolas-sarkozy-accepte-de-manger-derriere-les-barreaux-06-11-2025-2602537_20.php)
+
+
 ### mondial u17 (N/A, Mon, 10 Nov 2025 09:20:00 -0800)
 
 - **Mondial U17 : le Maroc valide son billet pour les seizièmes de finale**: [Link](https://medias24.com/2025/11/10/mondial-u17-le-maroc-valide-son-billet-pour-les-seiziemes-de-finale/)
