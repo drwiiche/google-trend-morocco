@@ -1,3 +1,8 @@
+### jour férié 2025 (N/A, Mon, 10 Nov 2025 01:40:00 -0800)
+
+
+
+
 ### royal air maroc (N/A, Mon, 10 Nov 2025 01:30:00 -0800)
 
 - **Royal Air Maroc inaugure ce lundi la nouvelle ligne Casablanca-Es-Semara**: [Link](https://fr.le360.ma/economie/royal-air-maroc-inaugure-ce-lundi-la-nouvelle-ligne-casablanca-es-semara_QDAM5IGIKBC4DBKKIVA75KZTB4/)
