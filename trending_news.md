@@ -1,3 +1,10 @@
+### hannibal kadhafi (N/A, Tue, 11 Nov 2025 12:10:00 -0800)
+
+- **Après dix années de détention sans jugement, Hannibal Kadhafi libéré au Liban**: [Link](https://www.lemonde.fr/international/article/2025/11/11/apres-dix-annees-de-detention-sans-jugement-hannibal-kadhafi-libere-au-liban_6653049_3210.html)
+- **Liban : le fils de l’ex-dictateur libyen Mouammar Kadhafi, Hannibal, libéré après dix ans de détention**: [Link](https://www.lefigaro.fr/international/le-liban-libere-le-fils-du-dirigeant-libyen-kadhafi-apres-pres-de-dix-ans-de-detention-20251110)
+- **Le fils de Mouammar Kadhafi libéré sous caution au Liban**: [Link](https://icibeyrouth.com/articles/1329211/le-fils-de-mouammar-kadhafi-libere-sous-caution-au-liban)
+
+
 ### real madrid club de fútbol – paris fc (N/A, Tue, 11 Nov 2025 13:00:00 -0800)
 
 - **Real Madrid - Paris FC en directo | Champions Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league-femenina/r-madrid-paris-fc/2025/11/11/01_0183_20251111_16928_13737-directo.html)
