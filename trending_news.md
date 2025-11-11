@@ -1,3 +1,10 @@
+### mondial u17 maroc (N/A, Mon, 10 Nov 2025 20:30:00 -0800)
+
+- **C’est officiel, le Maroc en huitièmes de finale de la Coupe du Monde U17**: [Link](https://ecoactu.ma/cest-officiel-maroc-en-huitiemes-de-finale-de-la-coupe-du-monde-u17/)
+- **Mondial U17 : le Maroc valide son billet pour les seizièmes de finale**: [Link](https://medias24.com/2025/11/10/mondial-u17-le-maroc-valide-son-billet-pour-les-seiziemes-de-finale/)
+- **16-0 contre la Nouvelle-Calédonie, le Maroc signe la victoire la plus large de l’histoire du Mondial U17**: [Link](https://mobile.telquel.ma/instant-t/2025/11/10/16-0-contre-la-nouvelle-caledonie-le-maroc-signe-la-victoire-la-plus-large-de-lhistoire-du-mondial-u17_1960077/)
+
+
 ### nicolas moumi ngamaleu (N/A, Mon, 10 Nov 2025 13:50:00 -0800)
 
 - **Who Is Nicolas Moumi Ngamaleu? Cameroon Footballer Caught Red-Handed In Cheating Scandal; Videos, WhatsApp**: [Link](https://www.freepressjournal.in/sports/who-is-nicolas-moumi-ngamaleu-cameroon-footballer-caught-red-handed-in-cheating-scandal-videos-whatsapp-chats-go-viral)
