@@ -1,3 +1,10 @@
+### carlos alcaraz (N/A, Tue, 11 Nov 2025 05:50:00 -0800)
+
+- **Partidos de las ATP Finals hoy, martes 11: horario y dónde ver en TV y online**: [Link](https://www.marca.com/tenis/2025/11/11/partidos-atp-finals-hoy-martes-11-horario-ver-tv-online.html)
+- **Carlos Alcaraz vs Taylor Fritz: Resultado EN VIVO del Torneo de Maestros**: [Link](https://www.365scores.com/es/news/carlos-alcaraz-vs-taylor-fritz-resultado/)
+- **Directo | Alcaraz - Fritz**: [Link](https://www.elcorreo.com/deportes/tenis/directo-alcaraz-fritz-finalesatp-20251111132932-dirc.html)
+
+
 ### boualem sansal (N/A, Tue, 11 Nov 2025 01:10:00 -0800)
 
 - **Le patron de la DGSE, Nicolas Lerner, évoque des « signaux » de la part de l’Algérie en faveur d’une reprise du dialogue avec la France**: [Link](https://www.lemonde.fr/afrique/article/2025/11/10/le-patron-de-la-dgse-evoque-des-signaux-d-alger-pour-reprendre-le-dialogue-avec-paris_6652884_3212.html)
