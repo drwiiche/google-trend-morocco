@@ -1,3 +1,10 @@
+### coupe du monde u17 2025 (N/A, Tue, 11 Nov 2025 10:30:00 -0800)
+
+- **Mondial U17 : le Sahel à la fête, le Burkina Faso et le Mali qualifiés**: [Link](https://www.afrik.com/mondial-u17-le-sahel-a-la-fete-le-burkina-faso-et-le-mali-qualifies)
+- **in, ce sont les 23 pays qui ont atteint le top 32 de la Coupe du monde U-17 2022**: [Link](https://voi.id/fr/de-sports/532466)
+- **Mondial U17 : Les scénarios de qualification du Mali pour les seizièmes de finale**: [Link](https://onefootball.com/en/news/mondial-u17-les-scenarios-de-qualification-du-mali-pour-les-seiziemes-de-finale-41937014)
+
+
 ### maroc sahara (N/A, Tue, 11 Nov 2025 12:00:00 -0800)
 
 - **L’Union africaine face à la résolution de l’ONU : la présence du polisario en question**: [Link](https://medias24.com/2025/11/10/lunion-africaine-face-a-la-resolution-de-lonu-la-presence-du-polisario-en-question/)
