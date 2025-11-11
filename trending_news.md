@@ -1,3 +1,10 @@
+### maroc vs iran futsal 2025 (N/A, Tue, 11 Nov 2025 08:00:00 -0800)
+
+- **Maroc-Iran (Futsal): à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/futsal/maroc-iran-futsal-a-quelle-heure-et-sur-quelle-chaine_QFQIG6OTFBGJZDHGYZQ7TN4FTQ/)
+- **JSI Riyad 2025. Finale . Futsal / Maroc-Iran ce mardi : Horaire ? Chaînes ?**: [Link](https://www.lopinion.ma/JSI-Riyad-2025-Finale-Futsal-Maroc-Iran-ce-mardi-Horaire-Chaines_a73771.html)
+- **Jeux de la solidarité islamique : Les Lions de futsal en finale aux dépens de l’Arabie Saoudite (6-3)**: [Link](https://lematin.ma/sports/jeux-de-la-solidarite-islamique-les-lions-de-futsal-en-finale/312678)
+
+
 ### lamine yamal (N/A, Tue, 11 Nov 2025 06:30:00 -0800)
 
 - **Barcelona Consults Belgian Doctor Over Lamine Yamal’s Pubalgia**: [Link](https://www.moroccoworldnews.com/2025/11/267376/barcelona-consults-belgian-doctor-over-lamine-yamals-pubalgia/)
