@@ -1,3 +1,10 @@
+### 11 novembre (N/A, Mon, 10 Nov 2025 23:30:00 -0800)
+
+- **Cérémonie du 11-Novembre : Yoan Mailho, ce jeune Landais qui porte la mémoire**: [Link](https://www.sudouest.fr/landes/mont-de-marsan/ceremonie-du-11-novembre-yoan-mailho-ce-jeune-landais-qui-porte-la-memoire-26593790.php)
+- **Deux jeunes portes-drapeaux picardes à Paris pour la grande cérémonie du 11 novembre**: [Link](https://www.francebleu.fr/emissions/l-info-d-ici-ici-picardie/deux-jeunes-portes-drapeaux-picardes-a-paris-pour-la-grande-ceremonie-du-11-novembre-6668826)
+- **De la terre du cimetière portugais et du mémorial indien sous l’Arc de triomphe ce 11 Novembre**: [Link](https://www.lavoixdunord.fr/1645007/article/2025-11-11/de-la-terre-du-cimetiere-portugais-et-du-memorial-indien-sous-l-arc-de-triomphe)
+
+
 ### mondial u17 maroc (N/A, Mon, 10 Nov 2025 20:30:00 -0800)
 
 - **C’est officiel, le Maroc en huitièmes de finale de la Coupe du Monde U17**: [Link](https://ecoactu.ma/cest-officiel-maroc-en-huitiemes-de-finale-de-la-coupe-du-monde-u17/)
