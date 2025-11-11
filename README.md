@@ -1,3 +1,10 @@
+### fifa world cup u17 (N/A, Tue, 11 Nov 2025 10:10:00 -0800)
+
+- **Goal and Highlights: Uganda 1–0 France in the 2025 U-17 World Cup**: [Link](https://www.vavel.com/en-us/soccer/2025/11/11/1240930-uganda-vs-france-live-score-u-17-world-cup.html)
+- **U17 World Cup: Uganda's qualification scenarios for the round of 32**: [Link](https://foot-africa.com/en/news/u17-world-cup-ugandas-qualification-scenarios-for-the-round-of-32-956138/)
+- **Uganda-France live: streaming and TV channel**: [Link](https://frenchfootballweekly.com/2025/11/11/uganda-france-live-streaming-and-tv-channel/)
+
+
 ### kick (N/A, Tue, 11 Nov 2025 10:00:00 -0800)
 
 - **SXSW announces initial 2026 music lineup**: [Link](https://www.brooklynvegan.com/sxsw-announces-initial-2026-music-lineup/)
