@@ -1,3 +1,10 @@
+### مي عز الدين (N/A, Tue, 11 Nov 2025 12:40:00 -0800)
+
+- **مي عز الدين تعلن زواجها: أتمنى من الله التوفيق ودعواتكم الصادقة لنا بالخير**: [Link](https://www.youm7.com/story/2025/11/11/%D9%85%D9%8A-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%AA%D8%B9%D9%84%D9%86-%D8%B2%D9%88%D8%A7%D8%AC%D9%87%D8%A7-%D8%A3%D8%AA%D9%85%D9%86%D9%89-%D9%85%D9%86-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%AA%D9%88%D9%81%D9%8A%D9%82-%D9%88%D8%AF%D8%B9%D9%88%D8%A7%D8%AA%D9%83%D9%85/7194336)
+- **زواج مي عز الدين من مدرب اللياقة البدنية أحمد تيمور| بث مباشر**: [Link](https://www.cairolive24.com/2210284)
+- **بالصور.. عقد قران النجمة مي عز الدين على الدكتور أحمد تيمور**: [Link](https://www.mobtada.com/culture/1560375/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D8%B9%D9%82%D8%AF-%D9%82%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D9%86%D8%AC%D9%85%D8%A9-%D9%85%D9%8A-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D9%83%D8%AA%D9%88%D8%B1-%D8%A3%D8%AD%D9%85%D8%AF-%D8%AA%D9%8A%D9%85%D9%88%D8%B1)
+
+
 ### coupe du monde u17 2025 (N/A, Tue, 11 Nov 2025 10:30:00 -0800)
 
 - **Mondial U17 : le Sahel à la fête, le Burkina Faso et le Mali qualifiés**: [Link](https://www.afrik.com/mondial-u17-le-sahel-a-la-fete-le-burkina-faso-et-le-mali-qualifies)
