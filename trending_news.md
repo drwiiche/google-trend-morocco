@@ -1,3 +1,10 @@
+### lucas chevalier (N/A, Tue, 11 Nov 2025 08:10:00 -0800)
+
+- **Knight, Deschamps would have made a big decision**: [Link](https://frenchfootballweekly.com/2025/11/11/knight-deschamps-would-have-made-a-big-decision/)
+- **The Lucas Chevalier affair shakes the press, Dayot Upamecano’s confidences on the PSG rumor**: [Link](https://frenchfootballweekly.com/2025/11/11/the-lucas-chevalier-affair-shakes-the-press-dayot-upamecanos-confidences-on-the-psg-rumor/)
+- **'They labelled me as a fascist over a like'**: [Link](https://www.besoccer.com/new/they-labelled-me-as-a-fascist-over-a-like-1380676)
+
+
 ### nayef aguerd (N/A, Tue, 11 Nov 2025 08:30:00 -0800)
 
 - **L’OM travaille avec le Maroc pour Nayef Aguerd**: [Link](https://www.footmercato.net/a784852976645440519-lom-travaille-avec-le-maroc-pour-nayef-aguerd)
