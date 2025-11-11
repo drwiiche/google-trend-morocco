@@ -1,3 +1,10 @@
+### maroc sahara (N/A, Tue, 11 Nov 2025 12:00:00 -0800)
+
+- **L’Union africaine face à la résolution de l’ONU : la présence du polisario en question**: [Link](https://medias24.com/2025/11/10/lunion-africaine-face-a-la-resolution-de-lonu-la-presence-du-polisario-en-question/)
+- **Tindouf: après la résolution de l’ONU, la fracture s’élargit au sein du Polisario**: [Link](https://fr.le360.ma/politique/tindouf-apres-la-resolution-de-lonu-la-fracture-selargit-au-sein-du-polisario_SPXGXS7J2VAUFF7PWRRFX4OCHI/)
+- **Akhannouch : la résolution de l'ONU sur le Sahara “renforce la reconnaissance du statut du Maroc en tant que puissance régionale et internationale”**: [Link](https://mobile.telquel.ma/instant-t/2025/11/10/akhannouch-la-resolution-de-lonu-sur-le-sahara-renforce-la-reconnaissance-du-statut-du-maroc-en-tant-que-puissance-regionale-et-internationale_1960331/)
+
+
 ### fifa world cup u17 (N/A, Tue, 11 Nov 2025 10:10:00 -0800)
 
 - **Goal and Highlights: Uganda 1–0 France in the 2025 U-17 World Cup**: [Link](https://www.vavel.com/en-us/soccer/2025/11/11/1240930-uganda-vs-france-live-score-u-17-world-cup.html)
