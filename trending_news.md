@@ -1,3 +1,10 @@
+### lamine yamal (N/A, Tue, 11 Nov 2025 06:30:00 -0800)
+
+- **Barcelona Consults Belgian Doctor Over Lamine Yamal’s Pubalgia**: [Link](https://www.moroccoworldnews.com/2025/11/267376/barcelona-consults-belgian-doctor-over-lamine-yamals-pubalgia/)
+- **Yamal released from World Cup qualifiers by 'upset' Spanish federation**: [Link](https://www.rfi.fr/en/sports/20251111-yamal-released-from-world-cup-qualifiers-by-upset-spanish-federation)
+- **Spain: Lamine Yamal's replacement announced (official)**: [Link](https://foot-africa.com/en/news/spain-lamine-yamals-replacement-announced-official-956192/)
+
+
 ### carlos alcaraz (N/A, Tue, 11 Nov 2025 05:50:00 -0800)
 
 - **Partidos de las ATP Finals hoy, martes 11: horario y dónde ver en TV y online**: [Link](https://www.marca.com/tenis/2025/11/11/partidos-atp-finals-hoy-martes-11-horario-ver-tv-online.html)
