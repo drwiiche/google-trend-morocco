@@ -1,3 +1,10 @@
+### boualem sansal (N/A, Tue, 11 Nov 2025 01:10:00 -0800)
+
+- **Le patron de la DGSE, Nicolas Lerner, évoque des « signaux » de la part de l’Algérie en faveur d’une reprise du dialogue avec la France**: [Link](https://www.lemonde.fr/afrique/article/2025/11/10/le-patron-de-la-dgse-evoque-des-signaux-d-alger-pour-reprendre-le-dialogue-avec-paris_6652884_3212.html)
+- **Vers une issue positive ? Alger réagit à la demande allemande de gracier Boualem Sansal**: [Link](https://www.lepoint.fr/monde/vers-une-issue-positive-alger-reagit-a-la-demande-allemande-de-gracier-boualem-sansal-10-11-2025-2602810_24.php)
+- **Le président allemand Frank-Walter Steinmeier appelle son homologue algérien à gracier Boualem Sansal**: [Link](https://www.lefigaro.fr/international/le-president-allemand-frank-walter-steinmeier-appelle-son-homologue-algerien-a-gracier-boualem-sansal-20251110)
+
+
 ### 11 novembre (N/A, Mon, 10 Nov 2025 23:30:00 -0800)
 
 - **Cérémonie du 11-Novembre : Yoan Mailho, ce jeune Landais qui porte la mémoire**: [Link](https://www.sudouest.fr/landes/mont-de-marsan/ceremonie-du-11-novembre-yoan-mailho-ce-jeune-landais-qui-porte-la-memoire-26593790.php)
