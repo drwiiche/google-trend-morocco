@@ -1,3 +1,10 @@
+### gta 6 (N/A, Tue, 11 Nov 2025 09:00:00 -0800)
+
+- **Take-Two CEO Is 'Highly Confident' on New GTA 6 Release Date, But Says When Games Are Released Too Early, 'Bad Things Happen'**: [Link](https://www.ign.com/articles/take-two-ceo-is-highly-confident-on-new-gta-6-release-date-but-says-when-games-are-released-too-early-bad-things-happen)
+- **PS Plus November, December 2025 Games Possibly Leaked**: [Link](https://www.playstationlifestyle.net/2025/11/10/ps-plus-november-december-2025-games-leak/)
+- **Gamer Flew From Scotland To Question Developers Why “Grand Theft Auto 6” Has Been Delayed So Long**: [Link](https://twistedsifter.com/2025/11/gamer-flew-from-scotland-to-question-developers-why-grand-theft-auto-6-has-been-delayed-so-long/)
+
+
 ### lucas chevalier (N/A, Tue, 11 Nov 2025 08:10:00 -0800)
 
 - **Knight, Deschamps would have made a big decision**: [Link](https://frenchfootballweekly.com/2025/11/11/knight-deschamps-would-have-made-a-big-decision/)
