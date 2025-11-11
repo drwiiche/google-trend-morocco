@@ -1,3 +1,17 @@
+### real madrid club de fútbol – paris fc (N/A, Tue, 11 Nov 2025 13:00:00 -0800)
+
+- **Real Madrid - Paris FC en directo | Champions Femenina hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league-femenina/r-madrid-paris-fc/2025/11/11/01_0183_20251111_16928_13737-directo.html)
+- **Pau Quesada: “Estamos encontrando la solidez que buscábamos"**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo-femenino/ruedas-de-prensa/rueda-de-prensa-de-pau-quesada-pre-real-madrid-paris-fc-wcl-10-11-2025)
+- **Nueva cita parisina para Feller**: [Link](https://as.com/futbol/femenino/nueva-cita-parisina-para-feller-f202511-n/)
+
+
+### zidane (N/A, Tue, 11 Nov 2025 13:00:00 -0800)
+
+- **Zinédine Zidane confirms his return to the dugout**: [Link](https://sports.yahoo.com/article/zin-dine-zidane-confirms-return-145000515.html)
+- **There is only one potential landing spot as Zinedine Zidane talks on his future**: [Link](https://therealchamps.com/only-one-potential-landing-spot-zinedine-zidane-talks-his-future)
+- **Zinedine Zidane Drops Bombshell On Return To Management In New Interview**: [Link](https://www.sportbible.com/football/football-news/zinedine-zidane-management-return-update-interview-448254-20251111)
+
+
 ### مي عز الدين (N/A, Tue, 11 Nov 2025 12:40:00 -0800)
 
 - **مي عز الدين تعلن زواجها: أتمنى من الله التوفيق ودعواتكم الصادقة لنا بالخير**: [Link](https://www.youm7.com/story/2025/11/11/%D9%85%D9%8A-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%AA%D8%B9%D9%84%D9%86-%D8%B2%D9%88%D8%A7%D8%AC%D9%87%D8%A7-%D8%A3%D8%AA%D9%85%D9%86%D9%89-%D9%85%D9%86-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%AA%D9%88%D9%81%D9%8A%D9%82-%D9%88%D8%AF%D8%B9%D9%88%D8%A7%D8%AA%D9%83%D9%85/7194336)
