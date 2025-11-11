@@ -1,3 +1,24 @@
+### kick (N/A, Tue, 11 Nov 2025 10:00:00 -0800)
+
+- **SXSW announces initial 2026 music lineup**: [Link](https://www.brooklynvegan.com/sxsw-announces-initial-2026-music-lineup/)
+- **SXSW Reveals First 100 Artists for 2026 Music Festival**: [Link](https://www.rollingstone.com/music/music-news/sxsw-2026-lineup-artists-performing-1235463192/)
+- **Call for startups: SXSW 2026 celebrates new edition with programming focused on innovation, film and music**: [Link](https://www.contxto.com/en/eventos/call-for-startups-sxsw-2026-celebrates-new-edition-with-programming-focused-on-innovation-film-and-music/)
+
+
+### nicolas sarkozy (N/A, Tue, 11 Nov 2025 10:00:00 -0800)
+
+- **EXCLUSIF - Libéré, Nicolas Sarkozy s'offre un déjeuner avec Carla Bruni**: [Link](https://www.parismatch.com/actu/politique/exclusif-libere-nicolas-sarkozy-soffre-un-dejeuner-avec-carla-bruni-259955)
+- **Nicolas Sarkozy est sorti de prison sous contrôle judiciaire et a l’interdiction d’entrer en contact avec Gérald Darmanin**: [Link](https://www.lemonde.fr/societe/article/2025/11/10/nicolas-sarkozy-va-sortir-de-prison-apres-vingt-jours-de-detention-ordonne-la-justice_6652851_3225.html)
+- **Nicolas Sarkozy et Carla Bruni applaudis à la sortie d'un restaurant du 16e arrondissement où ils ont déjeuné**: [Link](https://www.bfmtv.com/police-justice/video-nicolas-sarkozy-et-carla-bruni-applaudis-a-la-sortie-d-un-restaurant-du-16e-arrondissement-ou-ils-ont-dejeune_VN-202511110518.html)
+
+
+### youcef belaïli (N/A, Tue, 11 Nov 2025 09:30:00 -0800)
+
+- **CAN: Terrible nouvelle pour l'Algérie !**: [Link](https://www.sports.fr/football/can/terrible-nouvelle-pour-lalgerie-966316.html)
+- **EST: Youcef Belaïli blessé aux ligaments croisés**: [Link](https://www.mosaiquefm.net/fr/football/1478412/est-youcef-belaili-blesse-aux-ligaments-croises)
+- **Algérie : Belaïli forfait pour la CAN**: [Link](https://news.maxifoot.fr/algerie/belaili-forfait-pour-la-can-foot-444456.htm)
+
+
 ### gta 6 (N/A, Tue, 11 Nov 2025 09:00:00 -0800)
 
 - **Take-Two CEO Is 'Highly Confident' on New GTA 6 Release Date, But Says When Games Are Released Too Early, 'Bad Things Happen'**: [Link](https://www.ign.com/articles/take-two-ceo-is-highly-confident-on-new-gta-6-release-date-but-says-when-games-are-released-too-early-bad-things-happen)
