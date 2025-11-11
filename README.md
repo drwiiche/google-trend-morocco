@@ -1,3 +1,24 @@
+### nayef aguerd (N/A, Tue, 11 Nov 2025 08:30:00 -0800)
+
+- **L’OM travaille avec le Maroc pour Nayef Aguerd**: [Link](https://www.footmercato.net/a784852976645440519-lom-travaille-avec-le-maroc-pour-nayef-aguerd)
+- **Le Maroc peut-il faire sans Hakimi et Aguerd?**: [Link](https://sport.le360.ma/football/can/le-maroc-peut-il-faire-sans-hakimi-et-aguerd_3QTZLUROFRGANM2XH36K3ZGQXI/)
+- **Nayef Aguerd pourrait rater la CAN 2025**: [Link](https://lematin.ma/sports/nayef-aguerd-incertain-pour-la-can-2025/312586)
+
+
+### marie descoubes navigatrice (N/A, Tue, 11 Nov 2025 07:20:00 -0800)
+
+- **Une navigatrice rochelaise portée disparue au nord des Bermudes, sa mère demande l'aide des marins présents dans la zone**: [Link](https://france3-regions.franceinfo.fr/nouvelle-aquitaine/charente-maritime/la-rochelle/une-navigatrice-rochelaise-portee-disparue-au-nord-des-bermudes-sa-mere-demande-l-aide-des-marins-presents-dans-la-zone-3246799.html)
+- **Charente-Maritime : le bateau d’une Rochelaise disparu au large des Bermudes**: [Link](https://www.sudouest.fr/charente-maritime/charente-maritime-le-bateau-d-une-rochelaise-disparu-au-large-des-bermudes-26662101.php)
+- **Cette navigatrice française partie en tour du monde ne donne plus signe de vie**: [Link](https://www.huffingtonpost.fr/france/article/la-navigatrice-marie-descoubes-partie-en-tour-du-monde-ne-donne-plus-signe-de-vie_257004.html)
+
+
+### forces armées royales (N/A, Tue, 11 Nov 2025 07:20:00 -0800)
+
+- **L’Inspecteur Général des FAR s’entretient avec le Chef d’Etat-Major de l’Armée de Terre Rwandaise**: [Link](https://lematin.ma/nation/mohammed-berrid-sentretient-avec-le-general-vincent-nyakarundi-du-rwanda/313028)
+- **Rabat et Kigali approfondissent leur coopération militaire**: [Link](http://ledesk.ma/encontinu/rabat-et-kigali-approfondissent-leur-cooperation-militaire/)
+- **Maroc-Rwanda : un partenariat militaire en pleine consolidation**: [Link](https://www.quid.ma/a-la-une/maroc-rwanda-un-partenariat-militaire-en-pleine-consolidation)
+
+
 ### maroc vs iran futsal 2025 (N/A, Tue, 11 Nov 2025 08:00:00 -0800)
 
 - **Maroc-Iran (Futsal): à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/futsal/maroc-iran-futsal-a-quelle-heure-et-sur-quelle-chaine_QFQIG6OTFBGJZDHGYZQ7TN4FTQ/)
