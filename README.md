@@ -1,3 +1,10 @@
+### amir richardson (N/A, Wed, 12 Nov 2025 01:00:00 -0800)
+
+- **Décès du père du joueur marocain Amir Richardson**: [Link](https://m.elbotola.com/fr/article/2025-11-11-18-33-138.html)
+- **Michael Richardson, papa d’Amir, est décédé**: [Link](https://www.sofoot.com/breves/le-basketteur-michael-ray-richardson-papa-de-lancien-havrais-amir-richardson-meurt-dun-cancer)
+- **NBA : Michael Ray Richardson s’éteint à 70 ans**: [Link](https://www.rds.ca/basketball/nba/article/michael-ray-richardson-seteint-a-70-ans/)
+
+
 ### livret a (N/A, Tue, 11 Nov 2025 18:30:00 -0800)
 
 - **Livret A : si vous avez plus de 5 000 euros dessus, voici ce que vous devez savoir tout de suite**: [Link](https://www.modesettravaux.fr/actualites/livret-a-si-vous-avez-plus-de-5-000-euros-dessus-voici-ce-que-vous-devez-savoir-tout-de-suite-59530-157532.html)
