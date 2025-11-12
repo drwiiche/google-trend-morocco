@@ -1,3 +1,10 @@
+### المؤسس اورهان الحلقة 3 (N/A, Wed, 12 Nov 2025 15:20:00 -0800)
+
+- **موعد عرض مسلسل أورهان جميع الحلقات بجودة FHD| معركة نارية وأحداث مثيرة منتظرة**: [Link](https://aboutmsr.com/%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D8%B1%D8%B6-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A3%D9%88%D8%B1%D9%87%D8%A7%D9%86-%D8%AC%D9%85%D9%8A%D8%B9-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A7%D8%AA-%D8%A8%D8%AC%D9%88/)
+- **بجودة عالية HD.. استقبل تردد قناه الفجر الجزائرية 2025 وتابع كافة مسلسلات الدراما التركية**: [Link](https://sa.tqwem.com/mix/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D9%87-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-3/)
+- **الآن: عرض الحلقة الثالثة من "المؤسس أورهان" Kurucu Orhan على قناة ATV التركية**: [Link](https://zahraa.mr/6083064/%D8%A7%D9%84%D8%A2%D9%86-%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%A4%D8%B3%D8%B3-%D8%A3%D9%88%D8%B1/)
+
+
 ### khouribga (N/A, Wed, 12 Nov 2025 13:30:00 -0800)
 
 - **Revue du web. Khouribga sous le choc après la noyade mortelle d’une famille dans un bassin d’eau**: [Link](https://fr.le360.ma/societe/revue-du-web-khouribga-sous-le-choc-apres-la-noyade-mortelle-dune-famille-dans-un-bassin-deau_FKUTFENYH5C6FCYAY6N3O33K4M/)
