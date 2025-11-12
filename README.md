@@ -1,3 +1,10 @@
+### ai (N/A, Wed, 12 Nov 2025 05:10:00 -0800)
+
+- **AMD stock soars after company says its data center revenue will jump 60% over the next 3 to 5 years**: [Link](https://finance.yahoo.com/news/amd-stock-soars-after-company-says-its-data-center-revenue-will-jump-60-over-the-next-3-to-5-years-234017497.html)
+- **AMD's Lisa Su dismisses AI spending fears as stock rallies on growth projections: 'It's the right gamble'**: [Link](https://www.cnbc.com/2025/11/12/amd-lisa-su-ai-spending-stock.html)
+- **AMD shares rise as investors cheer AI-driven revenue growth targets**: [Link](https://www.reuters.com/business/amd-shares-climb-investors-cheer-long-term-growth-targets-2025-11-12/)
+
+
 ### crash avion militaire turc (N/A, Wed, 12 Nov 2025 05:30:00 -0800)
 
 - **Une vidéo montre un avion militaire turc s'écraser en Géorgie près de la frontière azerbaïdjanaise**: [Link](https://fr.euronews.com/video/2025/11/11/une-video-montre-un-avion-militaire-turc-secraser-en-georgie-pres-de-la-frontiere-azerbaid)
