@@ -1,3 +1,10 @@
+### محمد صبحي (N/A, Wed, 12 Nov 2025 12:40:00 -0800)
+
+- **السيسي يوجّه بمتابعة الحالة الصحية للفنان محمد صبحي**: [Link](https://www.skynewsarabia.com/varieties/1833269-%D8%A7%D9%84%D8%B3%D9%8A%D8%B3%D9%8A-%D9%8A%D9%88%D8%AC%D9%91%D9%87-%D8%A8%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D8%A8%D8%AD%D9%8A)
+- **للمرة الثانية خلال شهور.. تعرض الفنان محمد صبحي لأزمة صحية**: [Link](https://www.aljazeera.net/arts/2025/11/11/%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%B4%D9%87%D9%88%D8%B1-%D8%AA%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86)
+- **محمد صبحي يتعرض لوعكة صحية مفاجئة تدخله العناية المركزة**: [Link](https://www.alquds.co.uk/%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D8%A8%D8%AD%D9%8A-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D9%88%D8%B9%D9%83%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D8%AA%D8%AF%D8%AE%D9%84/)
+
+
 ### jannik sinner (N/A, Wed, 12 Nov 2025 12:20:00 -0800)
 
 - **Sinner-Zverev, Atp Finals 2025: risultato, commento in diretta**: [Link](https://www.ilfattoquotidiano.it/live-post/2025/11/12/sinner-zverev-atp-finals-2025-risultato-commento-diretta/8193885/)
