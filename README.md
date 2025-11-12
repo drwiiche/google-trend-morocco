@@ -1,3 +1,10 @@
+### livret a (N/A, Tue, 11 Nov 2025 18:30:00 -0800)
+
+- **Livret A : si vous avez plus de 5 000 euros dessus, voici ce que vous devez savoir tout de suite**: [Link](https://www.modesettravaux.fr/actualites/livret-a-si-vous-avez-plus-de-5-000-euros-dessus-voici-ce-que-vous-devez-savoir-tout-de-suite-59530-157532.html)
+- **Épargne sous pression : les choix que les Français font face à la chute des taux**: [Link](https://www.cesdefrance.fr/actualite/epargne-sous-pression-les-choix-que-les-francais-font-face-a-la-chute-des-taux/)
+- **Dernière chance pour doper vos intérêts en 2025 : l’erreur à éviter sur votre livret A avant le 1er décembre**: [Link](https://journaldesseniors.20minutes.fr/argent/derniere-chance-pour-doper-vos-interets-en-2025-lerreur-a-eviter-sur-votre-livret-a-avant-le-1er-decembre/)
+
+
 ### coupe du monde de football des moins de 17 ans (N/A, Tue, 11 Nov 2025 10:00:00 -0800)
 
 - **Coupe du monde U17 de la FIFA (seizièmes de finale): reprise des entraînements pour le Maroc**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%A3%D9%86%D9%81-%D8%AA%D8%AF%D8%A7/)
