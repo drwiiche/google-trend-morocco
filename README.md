@@ -1,3 +1,10 @@
+### match maroc u17 (N/A, Wed, 12 Nov 2025 02:50:00 -0800)
+
+- **Coupe du monde U17 de la FIFA (seizièmes de finale): reprise des entraînements pour le Maroc**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%A3%D9%86%D9%81-%D8%AA%D8%AF%D8%A7/)
+- **CDM U17 / 16es de finale : Maroc vs États-Unis, ce vendredi**: [Link](https://www.lopinion.ma/CDM-U17-16es-de-finale-Maroc-vs-Etats-Unis-ce-vendredi_a73803.html)
+- **Mondial U17 : Les Lionceaux officiellement qualifiés pour les 16es de finale**: [Link](https://lematin.ma/sports/mondial-u17-les-lionceaux-de-latlas-qualifies-pour-les-16es-de-finale/312789)
+
+
 ### amir richardson (N/A, Wed, 12 Nov 2025 01:00:00 -0800)
 
 - **Décès du père du joueur marocain Amir Richardson**: [Link](https://m.elbotola.com/fr/article/2025-11-11-18-33-138.html)
