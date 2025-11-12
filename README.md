@@ -1,3 +1,10 @@
+### alex iwobi (N/A, Tue, 11 Nov 2025 16:30:00 -0800)
+
+- **Alex Iwobi Stirs Controversy Over Morocco Hotel Stay Ahead of World Cup Qualifier**: [Link](https://www.moroccoworldnews.com/2025/11/267488/alex-iwobi-stirs-controversy-over-morocco-hotel-stay-ahead-of-world-cup-qualifier/)
+- **Nigeria players boycott training ahead of crunch World Cup qualifier**: [Link](https://www.standard.co.uk/sport/football/nigeria-super-eagles-boycott-training-b1257661.html)
+- **FIFA World Cup Super Eagles Camp Swells to 21 Players in Rabat Ahead of Gabon Clash**: [Link](https://en.africatopsports.com/2025/11/11/super-eagles-camp-swells-to-21-players-in-rabat-ahead-of-gabon-clash/)
+
+
 ### michael ray richardson (N/A, Tue, 11 Nov 2025 16:40:00 -0800)
 
 - **Richardson, NBA star before ban, dies at age 70**: [Link](https://www.espn.com/nba/story/_/id/46928693/former-nba-star-micheal-ray-richardson-dies-age-70)
