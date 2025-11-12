@@ -1,3 +1,38 @@
+### crash avion militaire turc (N/A, Wed, 12 Nov 2025 05:30:00 -0800)
+
+- **Une vidéo montre un avion militaire turc s'écraser en Géorgie près de la frontière azerbaïdjanaise**: [Link](https://fr.euronews.com/video/2025/11/11/une-video-montre-un-avion-militaire-turc-secraser-en-georgie-pres-de-la-frontiere-azerbaid)
+- **Vingt militaires turcs tués dans le crash d'un avion en Géorgie**: [Link](https://medias24.com/agence-presse/vingt-militaires-turcs-tues-dans-le-crash-dun-avion-en-georgie/)
+- **Un avion-cargo turc s’écrase avec vingt personnes à bord : lors de sa chute, l’appareil apparaît déjà en partie désintégré**: [Link](https://www.rtl.be/actu/monde/un-avion-cargo-turc-secrase-avec-vingt-personnes-bord-lors-de-sa-chute-lappareil/2025-11-11/article/770118)
+
+
+### game of thrones (N/A, Wed, 12 Nov 2025 05:30:00 -0800)
+
+- **Hollyoaks star gives birth to twins three months after getting engaged to fiancé**: [Link](https://www.thesun.co.uk/tv/37288900/hollyoaks-roxanne-mckee-gives-birth-twins-engagement-fiance/)
+- **Soap star Roxanne McKee surprises fans as she gives birth to twins**: [Link](https://evoke.ie/2025/11/12/entertainment/roxanne-mc-kee-double-celebration)
+- **Game of Thrones star Roxanne McKee announces birth of twins three months after getting engaged**: [Link](https://goss.ie/uk-showbiz/game-of-thrones-star-roxanne-mckee-announces-birth-of-twins-three-months-after-getting-engaged-442945)
+
+
+### flights (N/A, Wed, 12 Nov 2025 05:20:00 -0800)
+
+- **Government shutdown operations update**: [Link](https://news.aa.com/news/news-details/2025/An-update-on-the-FAA-directive/default.aspx)
+- **Flight issues could linger after shutdown. And, Google's lawsuit targeting scammers**: [Link](https://www.npr.org/2025/11/12/g-s1-97550/up-first-newsletter-house-shutdown-vote-air-traffic-control-uss-ford-google)
+- **US flight cancellations and delays to get worse even if shutdown ends**: [Link](https://www.theguardian.com/us-news/2025/nov/11/cancellations-delays-expected-us-cuts-flights)
+
+
+### bitcoin (N/A, Wed, 12 Nov 2025 05:10:00 -0800)
+
+- **China's National Computer Virus Emergency Response Center issues technical analysis over US govt bitcoins seizure, calling it a typical case of 'thieves falling out'**: [Link](https://www.globaltimes.cn/page/202511/1347745.shtml)
+- **China pins 2020 bitcoin heist on the USA**: [Link](https://www.theregister.com/2025/11/12/cverc_prince_grou_scam_bitcoin/)
+- **Prince Group refutes allegations against Oknha Chen Zhi, as Chinese report identifies him as victim of massive State-level Bitcoin theft**: [Link](https://www.khmertimeskh.com/501788281/prince-group-refutes-allegations-against-oknha-chen-zhi-as-chinese-report-identifies-him-as-victim-of-massive-state-level-bitcoin-theft/)
+
+
+### amazon (N/A, Wed, 12 Nov 2025 05:10:00 -0800)
+
+- **Amazon Business Unveils Next Generation AI Solutions to Help Organizations and Small Businesses Save Time and Money**: [Link](https://www.businesswire.com/news/home/20251112781484/en/Amazon-Business-Unveils-Next-Generation-AI-Solutions-to-Help-Organizations-and-Small-Businesses-Save-Time-and-Money)
+- **How Amazon Business is Redefining the Buying Experience**: [Link](https://procurementmag.com/news/amazon-business-making-spending-easier)
+- **Amazon launches AI-powered business assistant to help buyers save**: [Link](https://www.investing.com/news/company-news/amazon-launches-aipowered-business-assistant-to-help-buyers-save-93CH-4351149)
+
+
 ### effondrement pont chine (N/A, Wed, 12 Nov 2025 04:50:00 -0800)
 
 - **A peine inauguré, un pont reliant la Chine au Tibet s’effondre**: [Link](https://www.20minutes.fr/monde/chine/4185062-20251112-chine-pont-reliant-tibet-effondre-quelques-mois-seulement-apres-inauguration)
