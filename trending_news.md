@@ -1,3 +1,10 @@
+### meta (N/A, Wed, 12 Nov 2025 05:10:00 -0800)
+
+- **The rise of Yann LeCun, the 65-year-old NYU professor who is planning to leave Mark Zuckerberg's highly paid team at Meta to launch his own AI startup**: [Link](https://fortune.com/2025/11/11/who-is-yann-lecun-career-meta-ai-chief-scientist-nyu-turing/)
+- **Meta AI chief Yann LeCun reportedly leaving company**: [Link](https://mashable.com/article/meta-ai-chief-yann-lecun-reportedly-leaving-company)
+- **Meta's Chief AI Scientist Yann LeCun To Depart And Launch AI Start-Up Focused On 'World Models'**: [Link](https://www.nasdaq.com/articles/metas-chief-ai-scientist-yann-lecun-depart-and-launch-ai-start-focused-world-models)
+
+
 ### maroc iran futsal (N/A, Wed, 12 Nov 2025 09:40:00 -0800)
 
 - **Jeux de la Solidarité Islamique (futsal): composition du Maroc face à l’Iran**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-23/)
