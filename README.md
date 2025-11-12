@@ -1,3 +1,24 @@
+### jannik sinner (N/A, Wed, 12 Nov 2025 12:20:00 -0800)
+
+- **Sinner-Zverev, Atp Finals 2025: risultato, commento in diretta**: [Link](https://www.ilfattoquotidiano.it/live-post/2025/11/12/sinner-zverev-atp-finals-2025-risultato-commento-diretta/8193885/)
+- **Tennis, Jasmine Paolini diventa official brand ambassador Fulfil**: [Link](https://oblo.it/tennis-jasmine-paolini-diventa-official-brand-ambassador-fulfil/)
+- **Atp Finals, a Torino è tutto esaurito per le finali: cifre record per l'ultimo biglietto venduto**: [Link](https://www.ilmessaggero.it/sport/tennis/atp_finals_torino_tutto_esaurito_le_finali_cifre_record_ultimo_biglietto_venduto-9184401.html)
+
+
+### طقس (N/A, Wed, 12 Nov 2025 12:10:00 -0800)
+
+- **عاصفة أطلسية تقود أمطارا هامة إلى المغرب خلال الأيام القادمة**: [Link](https://ar.le360.ma/societe/U2SMBIRTQVAR5JX6HSK6M2BG5U/)
+- **أمطار وثلوج مرتقبة غدا الخميس في عدد من مناطق المملكة**: [Link](https://ar.hibapress.com/details-674925.html)
+- **عاصفة "كلوديا" تلوّح من عرض الأطلسي.. ما الذي ينتظر شمال المغرب خلال الساعات المقبلة؟**: [Link](https://tanja24.com/%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D9%83%D9%84%D9%88%D8%AF%D9%8A%D8%A7-%D8%AA%D9%84%D9%88%D9%91%D8%AD-%D9%85%D9%86-%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3%D9%8A-%D9%85%D8%A7-%D8%A7/)
+
+
+### قصر الضيافة بوسكورة (N/A, Wed, 12 Nov 2025 08:40:00 -0800)
+
+- **بوسكورة تودع قصر الضيافة الشهير بعد قرار هدمه والحفارات تحوله إلى أطلال وركام**: [Link](https://madar21.com/385872.html)
+- **بسبب "خروقات تعميرية جسيمة".. السلطات تهدم مبنى فاخر بجماعة بوسكورة**: [Link](https://al3omk.com/1116335.html)
+- **هدم قصر ب16 مليار سنتيم ببوسكورة**: [Link](https://hnews.ma/93222/)
+
+
 ### الطقس غدًا (N/A, Wed, 12 Nov 2025 11:30:00 -0800)
 
 - **عواصف رعدية وأمطار غزيرة.. بيان عاجل بشأن حالة الطقس المتوقعة بعد غد**: [Link](https://www.almasryalyoum.com/news/details/3598123)
