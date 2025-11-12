@@ -1,3 +1,10 @@
+### الطقس غدًا (N/A, Wed, 12 Nov 2025 11:30:00 -0800)
+
+- **عواصف رعدية وأمطار غزيرة.. بيان عاجل بشأن حالة الطقس المتوقعة بعد غد**: [Link](https://www.almasryalyoum.com/news/details/3598123)
+- **الأخدود العلوى..الأرصاد تحذر من حالة طقس تصيب البلاد خلال الساعات المقبلة**: [Link](https://www.newsroom.info/205854)
+- **الأرصاد: مصر على موعد مع حالة عدم استقرار جوية وأمطار متفاوتة في هذا التوقيت**: [Link](https://darelhilal.com/News/3122614.aspx)
+
+
 ### meta (N/A, Wed, 12 Nov 2025 05:10:00 -0800)
 
 - **The rise of Yann LeCun, the 65-year-old NYU professor who is planning to leave Mark Zuckerberg's highly paid team at Meta to launch his own AI startup**: [Link](https://fortune.com/2025/11/11/who-is-yann-lecun-career-meta-ai-chief-scientist-nyu-turing/)
