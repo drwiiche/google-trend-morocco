@@ -1,3 +1,10 @@
+### coupe du monde de football des moins de 17 ans (N/A, Tue, 11 Nov 2025 10:00:00 -0800)
+
+- **Coupe du monde U17 de la FIFA (seizièmes de finale): reprise des entraînements pour le Maroc**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%A3%D9%86%D9%81-%D8%AA%D8%AF%D8%A7/)
+- **Baha : « Le match contre les États-Unis sera bon et nous sommes confiants »**: [Link](https://m.elbotola.com/fr/article/2025-11-11-20-27-861.html)
+- **Mondial U17 : le Maroc valide son billet pour les seizièmes de finale**: [Link](https://medias24.com/2025/11/10/mondial-u17-le-maroc-valide-son-billet-pour-les-seiziemes-de-finale/)
+
+
 ### alex iwobi (N/A, Tue, 11 Nov 2025 16:30:00 -0800)
 
 - **Alex Iwobi Stirs Controversy Over Morocco Hotel Stay Ahead of World Cup Qualifier**: [Link](https://www.moroccoworldnews.com/2025/11/267488/alex-iwobi-stirs-controversy-over-morocco-hotel-stay-ahead-of-world-cup-qualifier/)
