@@ -1,3 +1,10 @@
+### maroc iran futsal (N/A, Wed, 12 Nov 2025 09:40:00 -0800)
+
+- **Jeux de la Solidarité Islamique (futsal): composition du Maroc face à l’Iran**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-23/)
+- **Le Maroc s'incline lourdement face à l'Iran (0-5) en finale du tournoi de futsal des Jeux de la Solidarité Islamique**: [Link](https://m.elbotola.com/fr/article/2025-11-11-17-38-581.html)
+- **Jeux de la solidarité islamique : Les Lions de futsal s'inclinent en finale face à l'Iran**: [Link](https://lematin.ma/sports/jeux-de-la-solidarite-islamique-les-lions-de-futsal-sinclinent-en-finale/313137)
+
+
 ### تونس ضد موريتانيا (N/A, Wed, 12 Nov 2025 09:20:00 -0800)
 
 - **موعد مباراة تونس وموريتانيا الودية 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/bltceec98e937b9693d)
