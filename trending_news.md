@@ -1,3 +1,10 @@
+### khouribga (N/A, Wed, 12 Nov 2025 13:30:00 -0800)
+
+- **Revue du web. Khouribga sous le choc après la noyade mortelle d’une famille dans un bassin d’eau**: [Link](https://fr.le360.ma/societe/revue-du-web-khouribga-sous-le-choc-apres-la-noyade-mortelle-dune-famille-dans-un-bassin-deau_FKUTFENYH5C6FCYAY6N3O33K4M/)
+- **Khouribga : cinq membres d’une même famille se noient dans une retenue d’eau**: [Link](https://ledesk.ma/encontinu/khouribga-cinq-membres-dune-meme-famille-se-noient-dans-une-retenue-deau/)
+- **Drame à Khouribga: une famille noyée dans un bassin d’irrigation**: [Link](https://lnt.ma/video/drame-a-khouribga-une-famille-noyee-dans-un-bassin-dirrigation/)
+
+
 ### محمد صبحي (N/A, Wed, 12 Nov 2025 12:40:00 -0800)
 
 - **السيسي يوجّه بمتابعة الحالة الصحية للفنان محمد صبحي**: [Link](https://www.skynewsarabia.com/varieties/1833269-%D8%A7%D9%84%D8%B3%D9%8A%D8%B3%D9%8A-%D9%8A%D9%88%D8%AC%D9%91%D9%87-%D8%A8%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D8%A8%D8%AD%D9%8A)
