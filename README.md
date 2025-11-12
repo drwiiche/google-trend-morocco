@@ -1,3 +1,10 @@
+### apple (N/A, Wed, 12 Nov 2025 05:10:00 -0800)
+
+- **Introducing iPhone Pocket: a beautiful way to wear and carry iPhone**: [Link](https://www.apple.com/newsroom/2025/11/introducing-iphone-pocket-a-beautiful-way-to-wear-and-carry-iphone/)
+- **Apple selling new 3D-knitted 'iPhone Pocket' for $230**: [Link](https://6abc.com/post/apple-selling-new-3d-knitted-iphone-pocket/18147393/)
+- **Apple is now selling a $150 sling for your iPhone made by the same designer who created Steve Jobs' iconic black turtleneck**: [Link](https://fortune.com/2025/11/11/apple-iphone-pocket-issey-miyake-steve-jobs-black-turtleneck-design/)
+
+
 ### ai (N/A, Wed, 12 Nov 2025 05:10:00 -0800)
 
 - **AMD stock soars after company says its data center revenue will jump 60% over the next 3 to 5 years**: [Link](https://finance.yahoo.com/news/amd-stock-soars-after-company-says-its-data-center-revenue-will-jump-60-over-the-next-3-to-5-years-234017497.html)
