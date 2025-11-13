@@ -1,3 +1,17 @@
+### match maroc usa u17 (N/A, Thu, 13 Nov 2025 13:40:00 -0800)
+
+- **Mondial U17 : Le Maroc affronte les Etats-Unis en 16es de finale**: [Link](https://lematin.ma/sports/mondial-u17-le-maroc-affronte-les-etats-unis-en-16es-de-finale/313136)
+- **Le Péruvien Kevin Ortega arbitrera le Maroc face aux États-Unis au Mondial U17**: [Link](https://m.elbotola.com/fr/article/2025-11-13-13-41-134.html)
+- **Coupe du monde U17 de la FIFA Qatar 2025 (16es de finale): la Sélection Nationale poursuit sa préparation**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D8%B3%D8%AA%D8%B9-9/)
+
+
+### météo demain (N/A, Thu, 13 Nov 2025 12:00:00 -0800)
+
+- **Fortes pluies attendues en France entre demain et ce week-end : près de 120 à 150 litres d’eau par mètre carré prévus**: [Link](https://www.tameteo.com/actualites/previsions/fortes-pluies-attendues-en-france-entre-demain-et-ce-week-end-pres-de-120-a-150-litres-d-eau-par-metre-carre-prevus-vigilance-jaune.html)
+- **Tendance météo à 4 semaines : vers une deuxième quinzaine de novembre toujours douce mais plus calme**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2024-06-29/tendance-meteo-a-4-semaines-vers-une-deuxieme-quinzaine-de-novembre-toujours-douce-mais-plus-calme-71369)
+- **Météo : dégradation par l'Ouest, éclaircies, douceur des températures, quel temps pour ce week-end ?**: [Link](https://www.francebleu.fr/infos/meteo/meteo-degradation-par-l-ouest-eclaircies-douceur-des-temperatures-quel-temps-pour-ce-week-end-1119825)
+
+
 ### england vs serbia (N/A, Thu, 13 Nov 2025 12:30:00 -0800)
 
 - **England v Serbia: Jude Bellingham set to start on bench, with Morgan Rogers in number 10 role**: [Link](https://www.bbc.com/sport/football/articles/c867n7yp4lxo)
