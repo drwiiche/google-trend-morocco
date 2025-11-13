@@ -1,3 +1,24 @@
+### france vs ukraine (N/A, Thu, 13 Nov 2025 11:20:00 -0800)
+
+- **France vs Ukraine: Match Preview and Team News**: [Link](https://www.livescore.com/en/news/football/world-cup/predictions/france-vs-ukraine-match-preview-and-team-news/)
+- **Dayot Upamecano: «Zabarnyi is a very good defender» (Nov. 12, 2025)**: [Link](https://dynamo.kiev.ua/en/news/705236-dayot-upamecano-zabarnyi-isavery-good-defender)
+- **Ukraine Squad Announced for France World Cup 2026 Qualifier**: [Link](https://mezha.net/eng/bukvy/ukraine-squad-announced-for-france-world-cup-2026-qualifier/)
+
+
+### donald trump (N/A, Thu, 13 Nov 2025 11:20:00 -0800)
+
+- **Calls to release all Epstein files grow as White House says messages about Trump 'prove nothing'**: [Link](https://www.bbc.com/news/live/c2dr3z9egljt)
+- **House Democrats release new Epstein emails referencing Trump**: [Link](https://abcnews.go.com/Politics/house-democrats-release-new-epstein-emails-referencing-trump/story?id=127435983)
+- **Jeffrey Epstein claimed he gave Russians insight into Trump**: [Link](https://www.politico.com/news/2025/11/12/jeffrey-epstein-donald-trump-russia-emails-00648919)
+
+
+### شاهد (N/A, Thu, 13 Nov 2025 11:10:00 -0800)
+
+- **طرح الإعلان التشويقي لـ"ميد ترم" بطولة ياسمينا العبد**: [Link](https://www.foochia.com/celebrities/whj789s)
+- **مشاهدة 4 بروموهات جديدة لمسلسل «ميد تيرم» قبل عرضه قريبًا على ON**: [Link](https://www.mobtada.com/culture/1560640/%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-4-%D8%A8%D8%B1%D9%88%D9%85%D9%88%D9%87%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D9%85%D9%8A%D8%AF-%D8%AA%D9%8A%D8%B1%D9%85-%D9%82%D8%A8%D9%84-%D8%B9%D8%B1%D8%B6%D9%87-%D9%82%D8%B1%D9%8A%D8%A8%D8%A7-%D8%B9%D9%84%D9%89-ON)
+- **جيل Z يدخل معركة الوعي الذاتي في مسلسل “ميد تيرم”**: [Link](https://lanatime.com/entertainment/tv-movies/%D8%AC%D9%8A%D9%84-z-%D9%8A%D8%AF%D8%AE%D9%84-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D9%88%D8%B9%D9%8A-%D8%A7%D9%84%D8%B0%D8%A7%D8%AA%D9%8A-%D9%81%D9%8A-%D9%85%D8%B3%D9%84%D8%B3%D9%84-2025-11-11/)
+
+
 ### france – ukraine (N/A, Thu, 13 Nov 2025 11:10:00 -0800)
 
 - **Président de la Fédération ukrainienne, Andreiy Chevtchenko se confie sur son rôle face à la guerre : « Le football est un outil très puissant »**: [Link](https://www.lequipe.fr/Football/Article/President-de-la-federation-ukrainienne-andrei-chevtchenko-se-confie-sur-son-role-face-a-la-guerre-le-football-est-un-outil-tres-puissant/1609173)
