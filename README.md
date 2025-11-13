@@ -1,3 +1,10 @@
+### حالة الطقس (N/A, Wed, 12 Nov 2025 20:40:00 -0800)
+
+- **أمطار وانخفاض درجات الحرارة.. بيان مهم من الأرصاد يكشف حالة الطقس اليوم وغدًا**: [Link](https://www.almasryalyoum.com/news/details/3598583)
+- **الطقس اليوم.. تحذير عاجل من حالة عدم استقرار واحتمالات تساقط الثلوج**: [Link](https://www.youm7.com/story/2025/11/13/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%B9%D8%AF%D9%85-%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D9%88%D8%A7%D8%AD%D8%AA%D9%85%D8%A7%D9%84%D8%A7%D8%AA-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7/7195122)
+- **الأخدود العلوى..الأرصاد تحذر من حالة طقس تصيب البلاد خلال الساعات المقبلة**: [Link](https://www.newsroom.info/205854)
+
+
 ### weather tomorrow (N/A, Wed, 12 Nov 2025 11:20:00 -0800)
 
 - **Warm and windy today with two storms on the 9 Day! Your Tuesday forecast here.**: [Link](https://www.news9.com/weather/oklahoma-city-weather-forecast)
