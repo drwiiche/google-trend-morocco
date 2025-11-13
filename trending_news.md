@@ -1,3 +1,24 @@
+### الطقس غدًا (N/A, Thu, 13 Nov 2025 12:00:00 -0800)
+
+- **أمطار تضرب بقوة هذه الأماكن.. الأرصاد تحذر من حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/3599382)
+- **أمطار ورياح.. موجة طقس سيئ تضرب مصر**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2025/11/13/%D8%A7%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%88%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%AD%D8%A9-%D9%85%D9%88%D8%AC%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D9%8A%D8%A1-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%85%D8%B5%D8%B1)
+- **خريطة الظواهر الجوية الساعات المقبلة.. الأمطار تمتد للقاهرة الكبرى وتحذير من السحب الرعدية ونشاط الرياح**: [Link](https://darelhilal.com/News/3123164.aspx)
+
+
+### carlos alcaraz (N/A, Thu, 13 Nov 2025 12:00:00 -0800)
+
+- **Alcaraz y su foto viral tras ganar a Fritz: "Fue una sensación de alivio tras un partido con mucho desgaste"**: [Link](https://www.marca.com/tenis/copa-masters/2025/11/13/alcaraz-foto-viral-ganar-fritz-sensacion-alivio-partido-desgaste.html)
+- **De Miñaur se estrena en Turín y abre una puerta a SF**: [Link](https://www.atptour.com/es/news/nitto-atp-finals-2025-jueves-fritz-de-minaur)
+- **De Miñaur no se esconde: "Hoy voy a ser el fan número uno de Alcaraz"**: [Link](https://www.puntodebreak.com/2025/11/13/minaur-no-esconde-hoy-fan-numero-alcaraz)
+
+
+### luca zidane (N/A, Thu, 13 Nov 2025 11:50:00 -0800)
+
+- **Algeria: Luca Zidane withdraws from the Fennecs camp due to injury**: [Link](https://ca.sports.yahoo.com/news/algeria-luca-zidane-withdraws-fennecs-131000132.html)
+- **Friendlies - Algeria: Vladimir Petkovic's list of absentees keeps growing (Official)**: [Link](https://foot-africa.com/en/news/friendlies-algeria-vladimir-petkovics-list-of-absentees-keeps-growing-official-956321/)
+- **Luca Zidane drops from Argelia squad with muscle injury**: [Link](https://www.besoccer.com/new/luca-zidane-drops-from-argelia-squad-with-muscle-injury-1381096)
+
+
 ### moldavie – italie (N/A, Thu, 13 Nov 2025 11:40:00 -0800)
 
 - **«Nous n’avons plus de joueur de classe mondiale» : peur sur l’Italie qui pourrait manquer une 3e Coupe du monde d’affilée**: [Link](https://www.lefigaro.fr/sports/football/coupe-du-monde/nous-n-avons-plus-de-joueur-de-classe-mondiale-peur-sur-l-italie-qui-pourrait-manquer-une-3e-coupe-du-monde-d-affilee-20251113)
