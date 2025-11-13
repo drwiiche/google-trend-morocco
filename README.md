@@ -1,3 +1,10 @@
+### weather tomorrow (N/A, Wed, 12 Nov 2025 11:20:00 -0800)
+
+- **Warm and windy today with two storms on the 9 Day! Your Tuesday forecast here.**: [Link](https://www.news9.com/weather/oklahoma-city-weather-forecast)
+- **Monday AM forecast: Early season freeze expected tonight as Arctic air grips the region**: [Link](https://www.wbrz.com/news/monday-am-forecast-early-season-freeze-expected-tonight-as-arctic-air-grips-the-region/)
+- **David's First Warning Forecast: A BIG temperature drop starts this week**: [Link](https://www.wtkr.com/weather/todays-forecast/davids-first-warning-forecast-the-big-temperature-drops-starts-this-week)
+
+
 ### météo (N/A, Wed, 12 Nov 2025 21:30:00 -0800)
 
 - **Météo. La météo du jeudi 13 novembre 2025 à Nantes et ses environs**: [Link](https://www.ouest-france.fr/meteo/pays-de-la-loire/nantes-44000/la-meteo-du-jour-a-nantes-c3ffb6cf-01b4-4789-93ba-349228a8a8b5)
