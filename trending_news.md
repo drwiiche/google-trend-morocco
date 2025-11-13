@@ -1,3 +1,10 @@
+### england vs serbia (N/A, Thu, 13 Nov 2025 12:30:00 -0800)
+
+- **England v Serbia: Jude Bellingham set to start on bench, with Morgan Rogers in number 10 role**: [Link](https://www.bbc.com/sport/football/articles/c867n7yp4lxo)
+- **Tuchel: Kane, Bellingham and Foden cannot play together in my England team**: [Link](https://talksport.com/football/3728830/thomas-tuchel-harry-kane-jude-bellingham-phil-foden-england/)
+- **Tuchel’s latest explanation fuels mystery around England’s most wanted front three**: [Link](https://playingfor90.com/tuchel-s-latest-explanation-fuels-mystery-around-england-s-most-wanted-front-three-01k9ysq5mk3v)
+
+
 ### portugal fc (N/A, Thu, 13 Nov 2025 12:20:00 -0800)
 
 - **“Irlanda vai defender, 'low block'”. Mickey Walsh brilhou e vive em Portugal, mas será sempre um “boy in green”**: [Link](https://rr.pt/bola-branca/noticia/clube-portugal/2025/11/13/irlanda-vai-defender-low-block-mickey-walsh-brilhou-e-vive-em-portugal-mas-sera-sempre-um-boy-in-green/447559/)
