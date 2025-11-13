@@ -1,3 +1,10 @@
+### portugal fc (N/A, Thu, 13 Nov 2025 12:20:00 -0800)
+
+- **“Irlanda vai defender, 'low block'”. Mickey Walsh brilhou e vive em Portugal, mas será sempre um “boy in green”**: [Link](https://rr.pt/bola-branca/noticia/clube-portugal/2025/11/13/irlanda-vai-defender-low-block-mickey-walsh-brilhou-e-vive-em-portugal-mas-sera-sempre-um-boy-in-green/447559/)
+- **Mike Walsh brilhou pelo FC Porto, mora em Portugal, mas continua a torcer pela Irlanda: "Será sempre o meu país"**: [Link](https://www.tsf.pt/desporto/artigo/mike-walsh-brilhou-pelo-fc-porto-mora-em-portugal-mas-continua-a-torcer-pela-irlanda-sera-sempre-o-meu-pais/18019556)
+- **Mickey Walsh espera boa figura da Irlanda no jogo contra Portugal**: [Link](https://news.ssbcrack.com/mickey-walsh-espera-boa-figura-da-irlanda-no-jogo-contra-portugal/)
+
+
 ### الطقس غدًا (N/A, Thu, 13 Nov 2025 12:00:00 -0800)
 
 - **أمطار تضرب بقوة هذه الأماكن.. الأرصاد تحذر من حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/3599382)
