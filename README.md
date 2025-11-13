@@ -1,3 +1,10 @@
+### nigeria – gabon (N/A, Thu, 13 Nov 2025 08:00:00 -0800)
+
+- **Barrages Mondial 2026: Nigeria, Gabon, Cameroun et RD Congo, à qui le dernier billet ?**: [Link](https://www.rfi.fr/fr/afrique-foot/20251112-barrages-mondial-2026-nigeria-gabon-cameroun-et-rd-congo-%C3%A0-qui-le-dernier-billet)
+- **Vive polémique au Maroc: Alex Iwobi se justifie après avoir ironisé sur la vue de l’hôtel de l’équipe du Nigeria à Rabat**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/vive-polemique-au-maroc-alex-iwobi-se-justifie-apres-avoir-ironise-sur-la-vue-de-l-hotel-de-l-equipe-du-nigeria-a-rabat_AV-202511100987.html)
+- **Rabat se prépare à accueillir le barrage africain qualificatif pour le Mondial 2026**: [Link](https://fr.hespress.com/449530-rabat-se-prepare-a-accueillir-le-barrage-africain-qualificatif-pour-le-mondial-2026.html)
+
+
 ### nigeria vs gabon (N/A, Wed, 12 Nov 2025 17:00:00 -0800)
 
 - **African Play-Offs for FIFA World Cup 2026 Qualifiers take centre stage**: [Link](https://www.cafonline.com/news/african-play-offs-for-fifa-world-cup-2026-qualifiers-take-centre-stage/)
