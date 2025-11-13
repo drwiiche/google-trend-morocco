@@ -1,3 +1,10 @@
+### lamine yamal fc barcelone espagne (N/A, Wed, 12 Nov 2025 16:30:00 -0800)
+
+- **L'Espagne annule la convocation de Lamine Yamal, grosse tension entre la sélection et le Barça au sujet de sa blessure**: [Link](https://www.lequipe.fr/Football/Actualites/L-espagne-annule-la-convocation-de-lamine-yamal-grosse-tension-entre-la-selection-et-le-barca-au-sujet-de-sa-blessure/1609086)
+- **Les clubs de Liga en ont marre de la sélection espagnole !**: [Link](https://www.footmercato.net/a6544296321893762558-les-clubs-de-liga-en-ont-marre-de-la-selection-espagnole)
+- **Rubiales : "Nous avons effectué 4 ou 5 déplacements pour communiquer avec la famille Yamal et j'ai toujours été proche de lui pour le convaincre de représenter l'Espagne"**: [Link](https://m.elbotola.com/fr/article/2025-11-12-21-29-794.html)
+
+
 ### tunisie – mauritanie (N/A, Wed, 12 Nov 2025 08:30:00 -0800)
 
 - **Le coup d'envoi des deux matchs amicaux de la Tunisie avancé**: [Link](https://www.mosaiquefm.net/fr/football/1478769/la-tunisie-face-a-la-mauritanie-et-a-la-jordanie-changement-d-horaire)
