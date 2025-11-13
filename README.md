@@ -1,3 +1,10 @@
+### nigeria (N/A, Thu, 13 Nov 2025 08:20:00 -0800)
+
+- **How Nigerians Are Responding to Trump's Threats**: [Link](https://foreignpolicy.com/2025/11/12/nigeria-trump-military-threats-response/)
+- **Nigerian Christian leader calls Trump's spotlight on violence in Nigeria an 'answered prayer'**: [Link](https://www.foxnews.com/world/nigerian-christian-leader-calls-trumps-spotlight-violence-nigeria-answered-prayer)
+- **Trump says Nigeria’s Christians are persecuted. The reality is more complex.**: [Link](https://www.csmonitor.com/World/Africa/2025/1110/trump-nigeria-christian-genocide-boko-haram-fulani-violence)
+
+
 ### cameroun – rd congo (N/A, Thu, 13 Nov 2025 10:30:00 -0800)
 
 - **Comment voir la demi-finale des barrages du Mondial Cameroun - RD Congo**: [Link](https://www.20minutes.fr/sport/football/4185284-20251113-cameroun-rd-congo-chaine-heure-voir-match-eliminatoires-coupe-monde-2026)
