@@ -1,3 +1,45 @@
+### cameroun – rd congo (N/A, Thu, 13 Nov 2025 10:30:00 -0800)
+
+- **Comment voir la demi-finale des barrages du Mondial Cameroun - RD Congo**: [Link](https://www.20minutes.fr/sport/football/4185284-20251113-cameroun-rd-congo-chaine-heure-voir-match-eliminatoires-coupe-monde-2026)
+- **Mondial 2026. Barrages zone Afrique: «Tous les pays peuvent battre le Cameroun sauf la RDC**: [Link](https://afrique.le360.ma/sports/mondial-2026-barrages-zone-afrique-tous-les-pays-peuvent-battre-le-cameroun-sauf-la-rdc_SEB5VCLMFJBEDMYX6EGT22LJV4/)
+- **La Fédération congolaise dément un bonus d'un million de dollars pour les joueurs avant le barrage africain**: [Link](https://m.elbotola.com/fr/article/2025-11-12-22-09-455.html)
+
+
+### 2m (N/A, Thu, 13 Nov 2025 10:00:00 -0800)
+
+- **Finnish location intelligence startup CHAOS lands €2 million to enhance AI tools for urban planning -**: [Link](https://arcticstartup.com/chaos-raises-e2-million/)
+- **Water bill support up by one-fifth in 2025**: [Link](https://utilityweek.co.uk/water-bill-support-up-by-one-fifth-in-2025/)
+- **Martin Lewis tip to save up to 90 per cent off your water bills with social tariffs**: [Link](https://www.ledburyreporter.co.uk/news/25614006.martin-lewis-tip-save-90-per-cent-off-water-bills/)
+
+
+### tempête claudia maroc (N/A, Thu, 13 Nov 2025 10:00:00 -0800)
+
+- **Tempête « Claudia » : vents forts, et averses orageuses attendus dans plusieurs provinces du Royaume**: [Link](https://ledesk.ma/encontinu/tempete-claudia-vents-forts-et-averses-orageuses-attendus-dans-plusieurs-provinces-du-royaume/)
+- **Les premières pluies redonnent espoir aux agriculteurs, en attendant un vrai démarrage de la saison**: [Link](https://medias24.com/2025/11/13/les-premieres-pluies-redonnent-espoir-aux-agriculteurs-en-attendant-un-vrai-demarrage-de-la-saison/)
+- **Rafales de vent et averses orageuses de mercredi à jeudi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/averses-orageuses-de-mercredi-a-jeudi-dans-plusieurs-regions-du-maroc/313266)
+
+
+### maroc match (N/A, Thu, 13 Nov 2025 09:40:00 -0800)
+
+- **Mondial U17 : Le Maroc affronte les Etats-Unis en 16es de finale**: [Link](https://lematin.ma/sports/mondial-u17-le-maroc-affronte-les-etats-unis-en-16es-de-finale/313136)
+- **Le Péruvien Kevin Ortega arbitrera le Maroc face aux États-Unis au Mondial U17**: [Link](https://m.elbotola.com/fr/article/2025-11-13-13-41-134.html)
+- **Coupe du monde U17 de la FIFA Qatar 2025 (16es de finale): la Sélection Nationale poursuit sa préparation**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D8%B3%D8%AA%D8%B9-9/)
+
+
+### émirats arabes unis – irak (N/A, Thu, 13 Nov 2025 09:40:00 -0800)
+
+- **Qualifs CdM 2026 : l’Irak accroché par les Émirats arabes unis**: [Link](https://www.footmercato.net/a3305459816237793700-qualifs-cdm-2026-lirak-accroche-par-les-emirats-arabes-unis)
+- **Direct Emirats Arabes Unis - Irak, Qualifications Coupe du Monde AFC, 5ème journée, match du jeudi 13 novembre 2025 : compo et résultat**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/live/112026/match-emirats-arabes-unis-irak-5eme-tour_FM-251014457202.html)
+- **Barrages CDM26 Asie : Ce jeudi, Irak vs Émirats Arabes Unis : Horaire. Chaînes ?**: [Link](https://www.lopinion.ma/Barrages-CDM26-Asie-Ce-jeudi-Irak-vs-Emirats-Arabes-Unis-Horaire-Chaines_a73858.html)
+
+
+### world cup qualifiers (N/A, Thu, 13 Nov 2025 09:30:00 -0800)
+
+- **Ronaldo stirs the pot: "I hope they boo me"**: [Link](https://foot-africa.com/en/news/ronaldo-stirs-the-pot-i-hope-they-boo-me-959060/)
+- **LIVE: Ireland vs Portugal – World Cup 2026 qualifier**: [Link](https://www.aljazeera.com/sports/liveblog/2025/11/13/live-ireland-vs-portugal-world-cup-2026-qualifier)
+- **Cristiano Ronaldo Makes Unexpected Request in Pursuit of World Cup History**: [Link](https://www.fotmob.com/embed/news/01k9ygmfz33r/cristiano-ronaldo-makes-unexpected-request-pursuit-world-cup-history)
+
+
 ### matches amicaux (N/A, Thu, 13 Nov 2025 09:00:00 -0800)
 
 - **Amical: La Tunisie et la Mauritanie se quittent en bons amis**: [Link](https://www.mosaiquefm.net/fr/football/1479441/amical-la-tunisie-et-la-mauritanie-se-quittent-en-bons-amis)
