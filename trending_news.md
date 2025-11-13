@@ -1,3 +1,24 @@
+### météo (N/A, Wed, 12 Nov 2025 21:30:00 -0800)
+
+- **Météo. La météo du jeudi 13 novembre 2025 à Nantes et ses environs**: [Link](https://www.ouest-france.fr/meteo/pays-de-la-loire/nantes-44000/la-meteo-du-jour-a-nantes-c3ffb6cf-01b4-4789-93ba-349228a8a8b5)
+- **Météo à Nantes : le record de chaleur en novembre sera-t-il battu ?**: [Link](https://actu.fr/pays-de-la-loire/nantes_44109/meteo-a-nantes-le-record-de-chaleur-en-novembre-sera-t-il-battu_63427573.html)
+- **Prévisions météo du mercredi 12 novembre 2025 à Nantes**: [Link](https://www.20minutes.fr/planete/previsions-meteo/4185029-20251112-meteo-nantes-previsions-mercredi-12-novembre-2025)
+
+
+### الطقس (N/A, Wed, 12 Nov 2025 21:30:00 -0800)
+
+- **أمطار وانخفاض درجات الحرارة.. بيان مهم من الأرصاد يكشف حالة الطقس اليوم وغدًا**: [Link](https://www.almasryalyoum.com/news/details/3598583)
+- **الأخدود العلوى..الأرصاد تحذر من حالة طقس تصيب البلاد خلال الساعات المقبلة**: [Link](https://www.newsroom.info/205854)
+- **انخفاض الحرارة.. تفاصيل حالة الطقس في مصر اليوم الخميس 13-11-2025**: [Link](https://darelhilal.com/News/3122743.aspx)
+
+
+### weather (N/A, Wed, 12 Nov 2025 21:30:00 -0800)
+
+- **Cancellation of severe weather warning**: [Link](https://newnorfolknews.com/2025/11/cancellation-of-severe-weather-warning/)
+- **Chennai Rain: Heavy Showers and Thunderstorms Expected This Weekend, Check Latest Weather Updates**: [Link](https://www.timesnownews.com/chennai/chennai-rain-heavy-showers-and-thunderstorms-expected-this-weekend-check-latest-weather-updates-article-153143138)
+- **Northeast Monsoon in Tamil Nadu: Below-Normal Rainfall Raises Climate Concerns**: [Link](https://www.indiaherald.com/Breaking/Read/994861319/Northeast-Monsoon-in-Tamil-Nadu-BelowNormal-Rainfall-Raises-Climate-Concerns)
+
+
 ### lamine yamal fc barcelone espagne (N/A, Wed, 12 Nov 2025 16:30:00 -0800)
 
 - **L'Espagne annule la convocation de Lamine Yamal, grosse tension entre la sélection et le Barça au sujet de sa blessure**: [Link](https://www.lequipe.fr/Football/Actualites/L-espagne-annule-la-convocation-de-lamine-yamal-grosse-tension-entre-la-selection-et-le-barca-au-sujet-de-sa-blessure/1609086)
