@@ -1,3 +1,10 @@
+### nicolas sarkozy (N/A, Thu, 13 Nov 2025 04:40:00 -0800)
+
+- **4,5 millions d'euros : les revenus de Nicolas Sarkozy révélés lors de son audience au tribunal**: [Link](https://www.laprovence.com/article/faits-divers-justice/2213400887862814/4-5-millions-deuros-les-revenus-de-nicolas-sarkozy-reveles-lors-de-son-audience-au-tribunal)
+- **Les indiscrets – Voici le seul aliment que Nicolas Sarkozy accepte de manger derrière les barreaux**: [Link](https://www.lepoint.fr/politique/les-indiscrets-voici-le-seul-aliment-que-nicolas-sarkozy-accepte-de-manger-derriere-les-barreaux-06-11-2025-2602537_20.php)
+- **EXCLUSIF - Libéré, Nicolas Sarkozy s'offre un déjeuner avec Carla Bruni**: [Link](https://www.parismatch.com/actu/politique/exclusif-libere-nicolas-sarkozy-soffre-un-dejeuner-avec-carla-bruni-259955)
+
+
 ### écrivain franco algérien boualem sansal (N/A, Thu, 13 Nov 2025 03:30:00 -0800)
 
 - **Boualem Sansal libéré : pourquoi l'Algérie l'envoie en Allemagne et non en France**: [Link](https://www.marianne.net/monde/afrique/boualem-sansal-libere-pourquoi-l-algerie-l-envoie-en-allemagne-et-non-en-france)
