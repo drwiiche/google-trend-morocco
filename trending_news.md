@@ -1,3 +1,10 @@
+### matches amicaux (N/A, Thu, 13 Nov 2025 09:00:00 -0800)
+
+- **Amical: La Tunisie et la Mauritanie se quittent en bons amis**: [Link](https://www.mosaiquefm.net/fr/football/1479441/amical-la-tunisie-et-la-mauritanie-se-quittent-en-bons-amis)
+- **Les Aigles de Carthage dominent mais ne parviennent pas à battre la Mauritanie**: [Link](https://realites.com.tn/fr/les-aigles-de-carthage-dominent-mais-ne-parviennent-pas-a-battre-la-mauritanie/)
+- **L’équipe nationale affronte le Brésil le 18 Novembre : C’est du sérieux !**: [Link](https://www.lapresse.tn/2025/11/12/lequipe-nationale-affronte-le-bresil-le-18-novembre-cest-du-serieux/)
+
+
 ### stade moulay hassan (N/A, Thu, 13 Nov 2025 08:20:00 -0800)
 
 - **Inauguration des Stades Moulay El Hassan et Al Barid: à quelles heures et sur quelles chaînes?**: [Link](https://sport.le360.ma/coupe-du-monde/inaugurations-des-stades-moulay-el-hassan-et-al-barid-a-quelles-heures-et-sur-quelles-chaines_7D5HWYSZ4FAOBL2KNPIEYQSEFI/)
