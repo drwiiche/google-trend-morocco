@@ -1,3 +1,17 @@
+### فرنسا ضد أوكرانيا (N/A, Thu, 13 Nov 2025 11:30:00 -0800)
+
+- **ديشامب مصدوم من نجوم منتخب فرنسا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%B4%D8%A7%D9%85%D8%A8-%D9%85%D8%B5%D8%AF%D9%88%D9%85-%D9%85%D9%86-%D9%86%D8%AC%D9%88%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/blt2f42432e95c32d89)
+- **مبابي يتغنى بعودة أحد النجوم إلى المنتخب الفرنسي**: [Link](https://sport.lesiteinfo.com/monde/480796.html)
+- **كامافينجا يثير قلق ريال مدريد في معسكر فرنسا**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/1351410/%D9%83%D8%A7%D9%85%D8%A7%D9%81%D9%8A%D9%86%D8%AC%D8%A7-%D9%8A%D8%AB%D9%8A%D8%B1-%D9%82%D9%84%D9%82-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D9%85%D8%B9%D8%B3%D9%83%D8%B1)
+
+
+### angleterre – serbie (N/A, Thu, 13 Nov 2025 11:30:00 -0800)
+
+- **Éliminatoires Coupe du Monde 2026 - Groupe K : les compositions officielles d’Angleterre - Serbie dévoilées**: [Link](https://africafootunited.com/eliminatoires-coupe-du-monde-2026-groupe-k-les-compositions-officielles-dangleterre-serbie-devoilees/)
+- **Résumé du match Angleterre-Serbie, 2h45, 14 novembre : Les Three Lions sont en pleine confiance, l’équipe visiteuse au bord de l’élimination**: [Link](https://www.vietnam.vn/fr/nhan-dinh-tran-dau-anh-vs-serbia-2h45-ngay-14-11-tam-su-thang-hoa-doi-khach-ben-bo-vuc-bi-loai)
+- **PRONOS PARIS RMC LE PARI SÛR DU 13 NOVEMBRE – QUALIFS CDM 2026**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-13-novembre-qualifs-cdm-2026_AN-202511120966.html)
+
+
 ### france vs ukraine (N/A, Thu, 13 Nov 2025 11:20:00 -0800)
 
 - **France vs Ukraine: Match Preview and Team News**: [Link](https://www.livescore.com/en/news/football/world-cup/predictions/france-vs-ukraine-match-preview-and-team-news/)
