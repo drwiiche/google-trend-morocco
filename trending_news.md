@@ -1,3 +1,10 @@
+### tunisie – mauritanie (N/A, Wed, 12 Nov 2025 08:30:00 -0800)
+
+- **Le coup d'envoi des deux matchs amicaux de la Tunisie avancé**: [Link](https://www.mosaiquefm.net/fr/football/1478769/la-tunisie-face-a-la-mauritanie-et-a-la-jordanie-changement-d-horaire)
+- **Trabelsi convoque Oussama Haddadi (RS Berkane) pour le match contre le Brésil**: [Link](https://m.elbotola.com/fr/article/2025-11-10-20-38-346.html)
+- **L’équipe nationale affronte le Brésil le 18 Novembre : C’est du sérieux !**: [Link](https://www.lapresse.tn/2025/11/12/lequipe-nationale-affronte-le-bresil-le-18-novembre-cest-du-serieux/)
+
+
 ### المؤسس اورهان الحلقة 3 (N/A, Wed, 12 Nov 2025 15:20:00 -0800)
 
 - **موعد عرض مسلسل أورهان جميع الحلقات بجودة FHD| معركة نارية وأحداث مثيرة منتظرة**: [Link](https://aboutmsr.com/%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D8%B1%D8%B6-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A3%D9%88%D8%B1%D9%87%D8%A7%D9%86-%D8%AC%D9%85%D9%8A%D8%B9-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A7%D8%AA-%D8%A8%D8%AC%D9%88/)
