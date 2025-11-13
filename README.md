@@ -1,3 +1,10 @@
+### nigeria vs gabon (N/A, Wed, 12 Nov 2025 17:00:00 -0800)
+
+- **African Play-Offs for FIFA World Cup 2026 Qualifiers take centre stage**: [Link](https://www.cafonline.com/news/african-play-offs-for-fifa-world-cup-2026-qualifiers-take-centre-stage/)
+- **Is Nigeria vs Gabon on TV? Channel, kick-off time and how to watch World Cup play-off**: [Link](https://www.independent.co.uk/sport/football/nigeria-gabon-tv-channel-live-stream-world-cup-qualifying-play-off-b2863172.html)
+- **Nigerian Man Aniekeme Finbarr Shares Light-Hearted Prediction Ahead of Super Eagles Clash with Gabon**: [Link](https://sportsration.com/nigerian-man-aniekeme-finbarr-shares-light-hearted-prediction-ahead-of-super-eagles-clash-with-gabon/)
+
+
 ### nicolas sarkozy (N/A, Thu, 13 Nov 2025 04:40:00 -0800)
 
 - **4,5 millions d'euros : les revenus de Nicolas Sarkozy révélés lors de son audience au tribunal**: [Link](https://www.laprovence.com/article/faits-divers-justice/2213400887862814/4-5-millions-deuros-les-revenus-de-nicolas-sarkozy-reveles-lors-de-son-audience-au-tribunal)
