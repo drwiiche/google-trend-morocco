@@ -1,3 +1,10 @@
+### moldavie – italie (N/A, Thu, 13 Nov 2025 11:40:00 -0800)
+
+- **«Nous n’avons plus de joueur de classe mondiale» : peur sur l’Italie qui pourrait manquer une 3e Coupe du monde d’affilée**: [Link](https://www.lefigaro.fr/sports/football/coupe-du-monde/nous-n-avons-plus-de-joueur-de-classe-mondiale-peur-sur-l-italie-qui-pourrait-manquer-une-3e-coupe-du-monde-d-affilee-20251113)
+- **Polémique autour de l’indisponibilité de Moise Kean : la Fiorentina et l’Italie se renvoient la balle**: [Link](https://www.calciomio.fr/polemique-autour-de-lindisponibilite-de-moise-kean-la-fiorentina-et-litalie-se-renvoient-la-balle-id-169955)
+- **« S’il refuse encore une convocation, la situation pourrait devenir intenable » : Federico Chiesa joue son avenir avec l’Equipe d’Italie**: [Link](https://onefootball.com/fr/news/sil-refuse-encore-une-convocation-la-situation-pourrait-devenir-intenable-federico-chiesa-joue-son-avenir-avec-lequipe-ditalie-41941881)
+
+
 ### فرنسا ضد أوكرانيا (N/A, Thu, 13 Nov 2025 11:30:00 -0800)
 
 - **ديشامب مصدوم من نجوم منتخب فرنسا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%B4%D8%A7%D9%85%D8%A8-%D9%85%D8%B5%D8%AF%D9%88%D9%85-%D9%85%D9%86-%D9%86%D8%AC%D9%88%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/blt2f42432e95c32d89)
