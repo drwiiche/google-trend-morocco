@@ -1,3 +1,10 @@
+### écrivain franco algérien boualem sansal (N/A, Thu, 13 Nov 2025 03:30:00 -0800)
+
+- **Boualem Sansal libéré : pourquoi l'Algérie l'envoie en Allemagne et non en France**: [Link](https://www.marianne.net/monde/afrique/boualem-sansal-libere-pourquoi-l-algerie-l-envoie-en-allemagne-et-non-en-france)
+- **Applaudissements et «grande joie»: la réaction des députés lorsqu’ils apprennent en direct la grâce de Boualem Sansal**: [Link](https://www.lefigaro.fr/politique/applaudissements-et-grande-joie-la-reaction-des-deputes-lorsqu-ils-apprennent-en-direct-la-grace-de-boualem-sansal-20251112)
+- **Libération de Boualem Sansal: Emmanuel Macron remercie le président algérien et se dit "disponible" pour poursuivre le dialogue**: [Link](https://www.bfmtv.com/politique/elysee/liberation-de-boualem-sansal-emmanuel-macron-remercie-le-president-algerien-et-se-dit-disponible-pour-poursuivre-le-dialogue_AD-202511120729.html)
+
+
 ### marrakech (N/A, Wed, 12 Nov 2025 23:00:00 -0800)
 
 - **Grand Marrakech : le schéma directeur d’aménagement urbain relancé après une série d’échecs**: [Link](https://ledesk.ma/enoff/grand-marrakech-le-schema-directeur-damenagement-urbain-relance-apres-une-serie-dechecs/)
