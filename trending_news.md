@@ -1,3 +1,38 @@
+### irlande – portugal (N/A, Thu, 13 Nov 2025 11:00:00 -0800)
+
+- **Cristiano Ronaldo : «Inscrire le 1000e but de ma carrière au Mondial ? Vous regardez trop de films»**: [Link](https://www.lequipe.fr/Football/Actualites/Cristiano-ronaldo-inscrire-le-1000e-but-de-ma-carriere-au-mondial-vous-regardez-trop-de-films/1609599)
+- **Commentaires sur le match entre la République d'Irlande et le Portugal, 2h45 le 14 novembre : Remise des billets à Ronaldo et ses coéquipiers**: [Link](https://www.vietnam.vn/fr/nhan-dinh-tran-dau-ch-ireland-vs-bo-dao-nha-2h45-ngay-14-11-ve-trao-tay-ronaldo-va-dong-doi)
+- **Un international portugais forfait pour Irlande – Portugal suite au décès d’un proche**: [Link](https://trivela.fr/international-portugais-forfait-irlande-portugal/)
+
+
+### أيرلندا ضد البرتغال (N/A, Thu, 13 Nov 2025 11:00:00 -0800)
+
+- **طلب غريب وغير متوقع لرونالدو قائد البرتغال من جماهير أيرلندا**: [Link](https://www.aljazeera.net/sport/2025/11/13/%D8%B7%D9%84%D8%A8-%D8%BA%D8%B1%D9%8A%D8%A8-%D9%88%D8%BA%D9%8A%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%82%D8%A7%D8%A6%D8%AF)
+- **ما القنوات الناقلة لمباراة أيرلندا والبرتغال في التصفيات المؤهلة إلى كأس العالم 2026 أوروبا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%A3%D9%8A%D8%B1%D9%84%D9%86%D8%AF%D8%A7-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt94bea1d19f7f5a52)
+- **رونالدو : لا أحد يضمن مكانه .. والأرقام تتحدث عني**: [Link](https://hihi2.com/2025/11/12/p3471951.html)
+
+
+### الكاميرون ضد الكونغو الديمقراطية (N/A, Thu, 13 Nov 2025 10:50:00 -0800)
+
+- **تصفيات مونديال 2026: أوسيمهين ومبوبو أمل نيجيريا والكاميرون في مواصلة حلم التأهل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%88%D8%B3%D9%8A%D9%85%D9%8A%D9%86-%D9%88%D9%85%D8%A8%D9%88%D8%A8%D9%88-%D8%A7%D9%94%D9%85%D9%84-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D9%81%D9%8A-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7/blt885678601a755846)
+- **موعد مباراة الكاميرون ضد الكونغو الديمقراطية بالملحق الأفريقي والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/12/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88)
+- **بعد إقصائه من مباراة الديربي.. الكاف يكافئ الحكم جلال جيد**: [Link](https://sport.lesiteinfo.com/elbotola/480736.html)
+
+
+### portugal (N/A, Thu, 13 Nov 2025 10:50:00 -0800)
+
+- **Cancelo, João Neves e mais três regressos no ‘onze’ de Portugal**: [Link](https://www.correiodamanhacanada.com/cancelo-joao-neves-e-mais-tres-regressos-no-onze-de-portugal/)
+- **Irlandeses começaram a assobiar Ronaldo... na chegada do autocarro**: [Link](https://www.abola.pt/video/irlandeses-comecaram-a-assobiar-ronaldo-na-chegada-do-autocarro-2025111318340402994)
+- **Mundial 2026: Martínez e Proença reunidos com adeptos em Dublin**: [Link](https://cnnportugal.iol.pt/fotos/mundial-2026-martinez-e-proenca-reunidos-com-adeptos-em-dublin/6915bfb2d34e3caad84b3ce9)
+
+
+### france foot (N/A, Thu, 13 Nov 2025 10:40:00 -0800)
+
+- **Président de la Fédération ukrainienne, Andreiy Chevtchenko se confie sur son rôle face à la guerre : « Le football est un outil très puissant »**: [Link](https://www.lequipe.fr/Football/Article/President-de-la-federation-ukrainienne-andrei-chevtchenko-se-confie-sur-son-role-face-a-la-guerre-le-football-est-un-outil-tres-puissant/1609173)
+- **L’Europe unie face à la tragédie du 13 novembre, Thomas Tuchel menace trois stars**: [Link](https://www.footmercato.net/a5922765785595166437-leurope-unie-face-a-la-tragedie-du-13-novembre-thomas-tuchel-menace-trois-stars)
+- **France-Ukraine, compos : 3 énormes surprises dans le 11 des Bleus**: [Link](https://www.football365.fr/france-ukraine-compos-3-enormes-surprises-dans-le-11-des-bleus-10264499.html)
+
+
 ### nigeria (N/A, Thu, 13 Nov 2025 08:20:00 -0800)
 
 - **How Nigerians Are Responding to Trump's Threats**: [Link](https://foreignpolicy.com/2025/11/12/nigeria-trump-military-threats-response/)
