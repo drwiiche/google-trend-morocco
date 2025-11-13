@@ -1,3 +1,10 @@
+### سامي مغاوري (N/A, Thu, 13 Nov 2025 14:30:00 -0800)
+
+- **مي كساب تكشف عن الصدفة التي غيرت مسار حياتها (فيديو)**: [Link](https://www.lahamag.com/article/231836-%D9%85%D9%8A-%D9%83%D8%B3%D8%A7%D8%A8-%D8%AA%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%A7%D9%84%D8%B5%D8%AF%D9%81%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D8%BA%D9%8A%D8%B1%D8%AA-%D9%85%D8%B3%D8%A7%D8%B1-%D8%AD%D9%8A%D8%A7%D8%AA%D9%87%D8%A7-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+- **سامي مغاوري ضيف «فضفضت أوي» بهذا الموعد**: [Link](https://www.elaosboa.com/2523678/)
+- **غدا.. سامي مغاوري ضيف برنامج فضفضت اوي مع معتز التوني**: [Link](https://www.tahiamasr.com/996551)
+
+
 ### match maroc usa u17 (N/A, Thu, 13 Nov 2025 13:40:00 -0800)
 
 - **Mondial U17 : Le Maroc affronte les Etats-Unis en 16es de finale**: [Link](https://lematin.ma/sports/mondial-u17-le-maroc-affronte-les-etats-unis-en-16es-de-finale/313136)
