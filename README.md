@@ -1,3 +1,24 @@
+### france – ukraine (N/A, Thu, 13 Nov 2025 11:10:00 -0800)
+
+- **Président de la Fédération ukrainienne, Andreiy Chevtchenko se confie sur son rôle face à la guerre : « Le football est un outil très puissant »**: [Link](https://www.lequipe.fr/Football/Article/President-de-la-federation-ukrainienne-andrei-chevtchenko-se-confie-sur-son-role-face-a-la-guerre-le-football-est-un-outil-tres-puissant/1609173)
+- **L’Europe unie face à la tragédie du 13 novembre, Thomas Tuchel menace trois stars**: [Link](https://www.footmercato.net/a5922765785595166437-leurope-unie-face-a-la-tragedie-du-13-novembre-thomas-tuchel-menace-trois-stars)
+- **Prono France-Ukraine : analyse, cotes et pronos du match**: [Link](https://www.sofoot.com/articles/pronostic-france-ukraine-analyse-cote-et-prono-du-match-de-qualification-a-la-coupe-du-monde-2026)
+
+
+### ireland vs portugal (N/A, Thu, 13 Nov 2025 11:10:00 -0800)
+
+- **Ronaldo stirs the pot: "I hope they boo me"**: [Link](https://foot-africa.com/en/news/ronaldo-stirs-the-pot-i-hope-they-boo-me-959060/)
+- **LIVE: Ireland vs Portugal – World Cup 2026 qualifier**: [Link](https://www.aljazeera.com/sports/liveblog/2025/11/13/live-ireland-vs-portugal-world-cup-2026-qualifier)
+- **Cristiano Ronaldo Makes Unexpected Request in Pursuit of World Cup History**: [Link](https://www.fotmob.com/embed/news/01k9ygmfz33r/cristiano-ronaldo-makes-unexpected-request-pursuit-world-cup-history)
+
+
+### cameroon vs dr congo (N/A, Thu, 13 Nov 2025 11:10:00 -0800)
+
+- **Is Cameroon vs DR Congo on TV? How to watch World Cup play-off**: [Link](https://www.independent.co.uk/sport/football/cameroon-dr-congo-tv-channel-how-to-watch-world-cup-qualifier-b2863192.html)
+- **W’Cup playoffs: Cameroon hit by injuries**: [Link](https://punchng.com/wcup-playoffs-cameroon-hit-by-injuries/)
+- **FIFA World Cup FIFAWCQ: Cameroon and DR Congo confirmed Lineups**: [Link](https://en.africatopsports.com/2025/11/13/fifawcq-cameroon-and-dr-congo-confirmed-lineups/)
+
+
 ### irlande – portugal (N/A, Thu, 13 Nov 2025 11:00:00 -0800)
 
 - **Cristiano Ronaldo : «Inscrire le 1000e but de ma carrière au Mondial ? Vous regardez trop de films»**: [Link](https://www.lequipe.fr/Football/Actualites/Cristiano-ronaldo-inscrire-le-1000e-but-de-ma-carriere-au-mondial-vous-regardez-trop-de-films/1609599)
