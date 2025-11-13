@@ -1,3 +1,10 @@
+### stade moulay hassan (N/A, Thu, 13 Nov 2025 08:20:00 -0800)
+
+- **Inauguration des Stades Moulay El Hassan et Al Barid: à quelles heures et sur quelles chaînes?**: [Link](https://sport.le360.ma/coupe-du-monde/inaugurations-des-stades-moulay-el-hassan-et-al-barid-a-quelles-heures-et-sur-quelles-chaines_7D5HWYSZ4FAOBL2KNPIEYQSEFI/)
+- **Première images du Stade Moulay El Hassan à Rabat**: [Link](https://medias24.com/2025/11/13/premiere-images-du-stade-moulay-el-hassan-a-rabat/)
+- **Programme du jour : entre inaugurations de stades et affiches décisives**: [Link](https://lionsdelatlas.ma/programme-du-jour-entre-inaugurations-de-stades-et-affiches-decisives/)
+
+
 ### نيجيريا ضد الغابون (N/A, Thu, 13 Nov 2025 08:30:00 -0800)
 
 - **الملحق الأفريقي المؤهل لكأس العالم 2026.. موعد المباراتين والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/10/%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D9%87%D9%84-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
