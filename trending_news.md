@@ -1,3 +1,38 @@
+### نيجيريا ضد الغابون (N/A, Thu, 13 Nov 2025 08:30:00 -0800)
+
+- **الملحق الأفريقي المؤهل لكأس العالم 2026.. موعد المباراتين والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/10/%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D9%87%D9%84-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
+- **تصفيات مونديال 2026: أوسيمهين ومبوبو أمل نيجيريا والكاميرون في مواصلة حلم التأهل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%88%D8%B3%D9%8A%D9%85%D9%8A%D9%86-%D9%88%D9%85%D8%A8%D9%88%D8%A8%D9%88-%D8%A7%D9%94%D9%85%D9%84-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D9%81%D9%8A-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7/blt885678601a755846)
+- **لاعبو المنتخب النيجيري يقاطعون التدريبات في المغرب بسبب عدم دفع مستحقاتهم المالية - Elbotola**: [Link](https://m.elbotola.com/article/2025-11-12-12-01-140.html)
+
+
+### kooora tv (N/A, Thu, 13 Nov 2025 08:30:00 -0800)
+
+- **موعد مباراة جورجيا وإسبانيا في التصفيات المؤهلة لكأس العالم 2026 أوروبا.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D8%A7-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%84%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/bltf9afd53a7a657f5e)
+- **بيع 90% من تذاكر "الماتادور" رغم غياب يامال**: [Link](https://24.ae/article/929772/%D8%A8%D9%8A%D8%B9-90-%D9%85%D9%86-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D9%85%D8%A7%D8%AA%D8%A7%D8%AF%D9%88%D8%B1-%D8%B1%D8%BA%D9%85-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%8A%D8%A7%D9%85%D8%A7%D9%84)
+- **صورة.. لاعب الريال الاكثر اشادة من الجماهير في تدريبات منتخب اسبانيا**: [Link](https://hihi2.com/2025/11/11/p3470933.html)
+
+
+### shahid (N/A, Thu, 13 Nov 2025 08:10:00 -0800)
+
+- **Delhi Red Fort blast: Dr Shaheen’s ex-husband recalls her quiet life before radical turn | India News**: [Link](https://www.hindustantimes.com/india-news/red-fort-blast-ex-husband-recalls-dr-shaheen-s-quiet-life-before-radical-turn-101762976300905.html)
+- **“Accusations against Ishityaq are absolutely wrong,” says Brother of arrested Imam in white-collar terror case links**: [Link](https://risingkashmir.com/accusations-against-ishityaq-are-absolutely-wrong-says-brother-of-arrested-imam-in-white-collar-terror-case-links/)
+- **At Faridabad institute under terror cloud, an uneasy calm**: [Link](https://www.newslaundry.com/2025/11/13/at-faridabad-institute-under-terror-cloud-an-uneasy-calm)
+
+
+### ملعب مولاي الحسن (N/A, Thu, 13 Nov 2025 08:00:00 -0800)
+
+- **ملعب البريد بالرباط قبل يوم من افتتاحه**: [Link](https://www.hesport.com/%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D9%82%D8%A8%D9%84-%D9%8A%D9%88%D9%85-%D9%85%D9%86-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%87-412406.html)
+- **جوهرة الرباط الرياضية… جولة حصرية مع كاميرا Le360 داخل ملعب مولاي الحسن بالرباط في حلته الجديدة**: [Link](https://ar.sport.le360.ma/football/JIKAR6EQ7RBJ3JPVZTYGECBLCM/)
+- **الجمهور المغربي يقبل على متابعة مباريات الملحق الإفريقي تزامنا مع افتتاح ملعب البريد ومولاي الحسن**: [Link](https://sport.rue20.com/%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%82%D8%A8%D9%84-%D8%B9%D9%84%D9%89-%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A.html)
+
+
+### gabon vs nigeria (N/A, Thu, 13 Nov 2025 07:10:00 -0800)
+
+- **Nigeria vs Gabon live updates: World Cup 2026 qualifier latest from CAF semifinal in Rabat**: [Link](https://www.nytimes.com/athletic/live-blogs/nigeria-vs-gabon-live-updates-world-cup-qualifying-score-result/f58ve3ZtTqjb/)
+- **Can Gabon and the DRC take advantage of off-field discord in World Cup playoffs?**: [Link](https://africa.espn.com/espn/story/_/id/46937964/africa-world-cup-playoffs-nigeria-cameroon-field-dramas-scupper-their-chances)
+- **Nigeria v Gabon LIVE: Latest score and updates from World Cup 2026 play-off**: [Link](https://www.independent.co.uk/sport/football/nigeria-gabon-live-score-updates-world-cup-2026-play-off-b2863785.html)
+
+
 ### nigeria – gabon (N/A, Thu, 13 Nov 2025 08:00:00 -0800)
 
 - **Barrages Mondial 2026: Nigeria, Gabon, Cameroun et RD Congo, à qui le dernier billet ?**: [Link](https://www.rfi.fr/fr/afrique-foot/20251112-barrages-mondial-2026-nigeria-gabon-cameroun-et-rd-congo-%C3%A0-qui-le-dernier-billet)
