@@ -1,3 +1,10 @@
+### marrakech (N/A, Wed, 12 Nov 2025 23:00:00 -0800)
+
+- **Grand Marrakech : le schéma directeur d’aménagement urbain relancé après une série d’échecs**: [Link](https://ledesk.ma/enoff/grand-marrakech-le-schema-directeur-damenagement-urbain-relance-apres-une-serie-dechecs/)
+- **L'agence urbaine de Marrakech relance l'étude de son schéma directeur d'aménagement urbain**: [Link](https://medias24.com/2025/11/11/lagence-urbaine-de-marrakech-relance-letude-de-son-schema-directeur-damenagement-urbain/)
+- **Marrakech: Samaa célèbre les médinas**: [Link](https://www.leconomiste.com/marrakech-samaa-celebre-les-medinas/)
+
+
 ### sergueï lavrov (N/A, Wed, 12 Nov 2025 23:00:00 -0800)
 
 
