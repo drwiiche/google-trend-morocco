@@ -1,3 +1,37 @@
+### arabie saoudite – côte d'ivoire (N/A, Fri, 14 Nov 2025 08:30:00 -0800)
+
+- **Amical: Arabie Saoudite – Côte d’Ivoire, les compositions officielles**: [Link](https://africafootunited.com/amical-arabie-saoudite-cote-divoire-les-compositions-officielles/)
+- **Eléphants : Oulaï Christ et Richard Koné ont eu droit au bizutage**: [Link](https://mondialsport.ci/elephants-oulai-christ-et-richard-kone-ont-eu-droit-au-bizutage-30299.sport)
+- **Prép.CAN 2025 : Ndicka absent, Diomandé en renfort**: [Link](https://www.sport-ivoire.ci/football/pr%C3%A9pcan-2025-ndicka-absent-diomand%C3%A9-en-renfort)
+
+
+### بوعلام صنصال الجزائر (N/A, Fri, 14 Nov 2025 08:30:00 -0800)
+
+- **بوعلام صنصال.. ما العوامل التي أدت إلى الإفراج عن الكاتب الجزائري الفرنسي؟**: [Link](https://www.bbc.com/arabic/articles/cj41kzqgv7xo)
+- **هل يمهد الإفراج عن بوعلام صنصال لحل الأزمة بين فرنسا والجزائر؟**: [Link](https://www.aljazeera.net/news/2025/11/13/%D9%87%D9%84-%D9%8A%D9%85%D9%87%D8%AF-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D8%A7%D8%AC-%D8%B9%D9%86-%D8%A8%D9%88%D8%B9%D9%84%D8%A7%D9%85-%D8%B5%D9%86%D8%B5%D8%A7%D9%84-%D9%84%D8%AD%D9%84)
+- **العفو عن صنصال يعرّي هشاشة النظام الجزائري أمام تصاعد ضغوط باريس**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D9%8A-%D8%B9%D9%86-%D8%B5%D9%86%D8%B5%D8%A7%D9%84-%D9%8A%D9%83%D8%B4%D9%81-%D9%87%D8%B4%D8%A7%D8%B4%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2-1655844.html)
+
+
+### أنغولا ضد الأرجنتين (N/A, Fri, 14 Nov 2025 08:10:00 -0800)
+
+- **موعد مباراة أنجولا والأرجنتين الودية 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D9%86%D8%AC%D9%88%D9%84%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/bltc84b06ef67273571)
+- **القنوات الناقلة لمباراة الأرجنتين وأنغولا الودية 2025**: [Link](https://al-ain.com/article/angola-argentina-friendly-match-channels-2025)
+- **ميسي يتلقى طلباً غريباً قبل مواجهة أنغولا المثيرة للجدل**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%B7%D9%84%D8%A8%D8%A7%D9%8B-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A7%D9%8B-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-%D8%A7%D9%84%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%84%D9%84%D8%AC%D8%AF%D9%84)
+
+
+### angola vs argentina (N/A, Fri, 14 Nov 2025 08:10:00 -0800)
+
+- **Argentina national team starting XI vs. Angola, Lionel Messi starts**: [Link](https://mundoalbiceleste.com/2025/11/14/argentina-national-team-starting-xi-vs-angola-lionel-messi-starts/)
+- **Angola criticised for spending US$25 million on football match amid poverty crisis**: [Link](https://macaonews.org/news/lusofonia/angola-25-million-argentina-football-match-backlash/)
+- **Lautaro Martinez to start for Argentina v Angola friendly, sparking Inter Milan concerns ahead of November 23 derby**: [Link](https://tribuna.com/en/news/2025-11-13-lautaro-martinez-to-start-for-argentina-v-angola-friendly-sparking-inter-milan-concerns-a/)
+
+
+### bein sport live (N/A, Fri, 14 Nov 2025 07:50:00 -0800)
+
+- **المنتخب المغربي يكتسح كاليدونيا بـ 16 هدفا دون رد ويقترب من التأهل كأفضل ثالث**: [Link](https://ar.lesiteinfo.com/sport/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D9%83%D8%A7%D9%84%D9%8A%D8%AF%D9%88%D9%86%D9%8A%D8%A7-%D8%A8%D9%80-16-%D9%87%D8%AF-968001.html)
+- **نبيل باها قبل مواجهة كاليدونيا: "لم نظهر بعد الوجه الحقيقي لهذا المنتخب"**: [Link](https://ar.lesiteinfo.com/sport/%D9%86%D8%A8%D9%8A%D9%84-%D8%A8%D8%A7%D9%87%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%83%D8%A7%D9%84%D9%8A%D8%AF%D9%88%D9%86%D9%8A%D8%A7-%D9%84%D9%85-%D9%86%D8%B8%D9%87-967933.html)
+
+
 ### yalla shoot (N/A, Fri, 14 Nov 2025 08:00:00 -0800)
 
 - **موعد مباراة مصر وأوزبكستان الودية 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%A7%D9%94%D9%88%D8%B2%D8%A8%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt7b800b8e4f7ef02d)
