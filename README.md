@@ -1,3 +1,10 @@
+### pologne – pays-bas (N/A, Fri, 14 Nov 2025 13:00:00 -0800)
+
+- **Pologne – Pays-Bas : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/pologne-pays-bas-streaming-chaine-tv-et-compos-2-10264727.html)
+- **« Une équipe solide » : Pour Ronald Koeman (Pays-Bas), la Pologne ne se résume pas à Robert Lewandowski**: [Link](https://www.lequipe.fr/Football/Video/Qualif-coupe-du-monde-pays-bas-koeman-lewandowski-est-clairement-une-star-en-pologne/20220711)
+- **PRONOS PARIS RMC Le pari du jour du 14 novembre – Qualif. Coupe du monde**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-14-novembre-qualif-coupe-du-monde_AN-202511130718.html)
+
+
 ### twitch (N/A, Fri, 14 Nov 2025 12:40:00 -0800)
 
 - **Top 10 most followed Twitch streamers in 2025**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/top-10-most-followed-twitch-streamers-in-2025/articleshow/125336539.cms)
