@@ -1,3 +1,17 @@
+### stake (N/A, Thu, 13 Nov 2025 16:50:00 -0800)
+
+- **Pfizer Looks to Sell Stake in Pandemic Vaccine Partner BioNTech**: [Link](https://www.bloomberg.com/news/articles/2025-11-13/pfizer-looks-to-sell-stake-in-pandemic-vaccine-partner-biontech)
+- **BioNTech says collaboration with Pfizer remains unchanged**: [Link](https://www.reuters.com/business/healthcare-pharmaceuticals/biontech-says-collaboration-with-pfizer-remains-unchanged-2025-11-13/)
+- **Pfizer slashes stake in COVID vaccine partner BioNTech**: [Link](https://uk.finance.yahoo.com/news/pfizer-slashes-stake-covid-vaccine-234330282.html)
+
+
+### portugal vs (N/A, Thu, 13 Nov 2025 11:40:00 -0800)
+
+- **Republic of Ireland beat Portugal to keep qualifying hopes alive as Ronaldo sent off**: [Link](https://www.bbc.com/sport/football/live/cvgv06230e7t)
+- **How Many Matches Could Cristiano Ronaldo Be Suspended for After Being Sent off Against Ireland?**: [Link](https://www.beinsports.com/en-us/soccer/uefa-world-cup-qualifiers/articles/how-many-matches-could-cristiano-ronaldo-be-suspended-for-after-being-sent-off-against-ireland-2025-11-14)
+- **Ireland stun Portugal; France eye WC qualification win**: [Link](https://onefootball.com/de/news/ireland-stun-portugal-france-eye-wc-qualification-win-41947903)
+
+
 ### pedri (N/A, Thu, 13 Nov 2025 11:40:00 -0800)
 
 - **Pedri: recuperación milagrosa**: [Link](https://as.com/futbol/pedri-recuperacion-milagrosa-f202511-n/)
