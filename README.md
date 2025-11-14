@@ -1,3 +1,9 @@
+### corée du sud – bolivie (N/A, Fri, 14 Nov 2025 03:40:00 -0800)
+
+- **Corée du Sud/Bolivie – Les équipes officielles : Lee titulaire**: [Link](https://www.parisfans.fr/autour-du-psg/coree-du-sud-bolivie-les-equipes-officielles-lee-titulaire-876059.html)
+- **Diffusion Corée du Sud/Bolivie – Heure et chaîne pour voir le match**: [Link](https://www.parisfans.fr/autour-du-psg/diffusion-coree-du-sud-bolivie-heure-et-chaine-pour-voir-le-match-875999.html)
+
+
 ### japan vs ghana (N/A, Fri, 14 Nov 2025 03:30:00 -0800)
 
 - **Ghana Addo Confident in Young Black Stars Squad Ahead of Next Challenge**: [Link](https://en.africatopsports.com/2025/11/14/addo-confident-in-young-black-stars-squad-ahead-of-next-challenge/)
