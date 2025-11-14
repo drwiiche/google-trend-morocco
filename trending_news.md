@@ -1,3 +1,24 @@
+### marruecos - mozambique (N/A, Fri, 14 Nov 2025 11:10:00 -0800)
+
+- **Marruecos mete en otro lío a los estadios españoles**: [Link](https://as.com/futbol/internacional/marruecos-desafia-a-espana-con-otro-megaestadio-f202511-n/)
+- **Marruecos finaliza en 69 días la cubierta gigante del estadio de Tánger para el Mundial**: [Link](https://theobjective.com/espana/andalucia/2025-11-12/marruecos-finaliza-69-dias-cubierta-gigante-estadio-tanger-mundial-2030/)
+- **Tarifa se Prepara para Inaugurar la Joyas Deportiva del Norte con Inéditas Medidas Técnicas y de Seguridad**: [Link](https://tanja24.com/es/2025/11/14/tarifa-se-prepara-para-inaugurar-la-joyas-deportiva-del-norte-con-ineditas-medidas-tecnicas-y-de-seguridad/)
+
+
+### snrt (N/A, Fri, 14 Nov 2025 11:10:00 -0800)
+
+- **Cybersécurité de la SNRT : le centre de Deloitte s’alligne aux côtés d’autres concurrents**: [Link](http://ledesk.ma/enoff/cybersecurite-de-la-snrt-le-centre-de-deloitte-salligne-aux-cotes-dautres-concurrents/)
+- **الشركة الوطنية للإذاعة والتلفزة تدخل عالم البث بجودة 4K**: [Link](https://snrtnews.com/article/141285)
+- **إطلاق المرحلة الثالثة والأخيرة لبيع تذاكر كأس أمم أفريقيا "المغرب 2025"**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%88%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D9%84%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/11672)
+
+
+### fifa u-17 world cup (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **Highlights and goals of Zambia 1-3 Mali in U-17 World Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/14/1241245-zambia-vs-mali-live-score-u-17-world-cup.html)
+- **Knockout Stage Opens Today With Eight Bumper Clashes**: [Link](https://menafn.com/1110343500/Knockout-Stage-Opens-Today-With-Eight-Bumper-Clashes)
+- **U17 World Cup: The full round of 32 schedule**: [Link](https://foot-africa.com/en/news/u17-world-cup-the-full-round-of-32-schedule-957200/)
+
+
 ### almountakhab (N/A, Fri, 14 Nov 2025 10:50:00 -0800)
 
 - **تشكيلة المنتخب المغربي لمواجهة موزمبيق**: [Link](https://www.almountakhab.com/node/16219616)
