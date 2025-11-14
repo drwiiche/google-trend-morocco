@@ -1,3 +1,10 @@
+### france (N/A, Thu, 13 Nov 2025 12:30:00 -0800)
+
+- **Météo. La météo du vendredi 14 novembre 2025 à Quimperlé et ses environs**: [Link](https://www.ouest-france.fr/meteo/bretagne/quimperle-29300/la-meteo-du-jour-a-quimperle-1d3808d2-3786-4032-b76d-f8d307705523)
+- **Météo en Hauts-de-France du vendredi 14 novembre : températures élevées sous les nuages**: [Link](https://france3-regions.franceinfo.fr/hauts-de-france/nord-0/lille/meteo-en-hauts-de-france-du-vendredi-14-novembre-temperatures-elevees-sous-les-nuages-3248887.html)
+- **La météo de votre vendredi 14 novembre 2025**: [Link](https://www.meteo.bzh/actualite/la-meteo-de-votre-vendredi-14-novembre-2025-2025-11-13)
+
+
 ### stake (N/A, Thu, 13 Nov 2025 16:50:00 -0800)
 
 - **Pfizer Looks to Sell Stake in Pandemic Vaccine Partner BioNTech**: [Link](https://www.bloomberg.com/news/articles/2025-11-13/pfizer-looks-to-sell-stake-in-pandemic-vaccine-partner-biontech)
