@@ -1,3 +1,42 @@
+### mozambique (N/A, Fri, 14 Nov 2025 10:30:00 -0800)
+
+- **First Capital Bank lidera patrocínio do Beach Polo 2025**: [Link](https://idolo.co.mz/first-capital-bank-lidera-patrocinio-do-beach-polo-2025/)
+- **Maputo acolhe a 2ª Edição do Beach Polo Mozambique**: [Link](https://integritymagazine.co.mz/arquivos/52313)
+
+
+### نتائج مباريات اليوم (N/A, Fri, 14 Nov 2025 10:20:00 -0800)
+
+
+
+
+### maroc – mozambique (N/A, Fri, 14 Nov 2025 10:10:00 -0800)
+
+- **Match Maroc-Mozambique : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-mozambique-a-quelle-heure-et-sur-quelles-chaines/312898)
+- **Maroc-Mozambique: le onze des Lions, avec Saiss et Salah-Eddine**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-mozambique-le-onze-des-lions-avec-saiss-et-salah-eddine_M5TPMQBIMZESJAGW7ADIGTOONM/)
+- **Pour le meilleur et (surtout pas) pour le pire**: [Link](https://mobile.telquel.ma/2025/11/13/pour-le-meilleur-et-surtout-pas-pour-le-pire_1960781)
+
+
+### kooora (N/A, Fri, 14 Nov 2025 10:10:00 -0800)
+
+- **أنشيلوتي: مودريتش لم يفاجئني.. وكونتي يحتاج إلى الابتعاد عن الواقع**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%85%D9%88%D8%AF%D8%B1%D9%8A%D8%AA%D8%B4-%D9%84%D9%85-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94%D9%86%D9%8A--%D9%88%D9%83%D9%88%D9%86%D8%AA%D9%8A-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF-%D8%B9%D9%86-%D8%A7%D9%84%D9%88%D8%A7%D9%82%D8%B9/bltc0cbe1749f21ba96)
+- **طلب مودريتش من ميلان بشأن مستقبله**: [Link](https://hihi2.com/2025/11/13/p3473038.html)
+- **مودريتش يتلقى عروضًا عربية للرحيل عن ميلان**: [Link](https://www.btolat.com/news/385025)
+
+
+### wc u17 (N/A, Fri, 14 Nov 2025 10:10:00 -0800)
+
+- **Canada Reaches Knockout Stage in FIFA U-17 World Cup**: [Link](https://www.el-balad.com/6766580)
+- **We want to create more history, says Vitulano**: [Link](https://www.qatar-tribune.com/article/204376/sports/we-want-to-create-more-history-says-vitulano)
+- **Ridgeon and Evans into World Cup knockouts**: [Link](https://www.fulhamfc.com/news/2025/november/13/ridgeon-and-evans-into-world-cup-knockouts/)
+
+
+### كأس العالم تحت 17 سنة 2025 (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **قنوات الكأس الرياضية - الأخبار - كأس العالم تحت 17 سنة FIFA قطر 2025 بالأرقام مع انتهاء دور المجموعات**: [Link](https://www.alkass.net/news_details?news_id=178347)
+- **كأس العالم لكرة القدم تحت 17 سنة 2025 في قطر .. المونديال صاحب الثورة الأكبر على الإطلاق؟!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA%D8%AD%D8%AA-17-%D8%B3%D9%86%D8%A9-2025-%D9%81%D9%8A-%D9%82%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt67eca48b7a168363)
+- **كأس العالم U17 قطر 2025… أرقام قياسية وتنظيم استثنائي في نسخة تاريخية**: [Link](https://m.elbotola.com/article/2025-11-13-09-30-116.html)
+
+
 ### coupe du monde u17 (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
 
 - **CdM U17 : bagarre générale après la victoire des Bleuets contre la Colombie**: [Link](https://www.footmercato.net/a2641082759856938745-cdm-u17-bagarre-generale-apres-la-victoire-des-bleuets-contre-la-colombie)
