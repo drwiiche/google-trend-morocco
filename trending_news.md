@@ -1,3 +1,17 @@
+### الطقس غدًا (N/A, Fri, 14 Nov 2025 12:00:00 -0800)
+
+- **المدن الأكثر استقبالا للأمطار بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AF%D9%86-%D8%A7%D9%84%D8%A3%D9%83%D8%AB%D8%B1-%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84%D8%A7-%D9%84%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1655793.html)
+- **بعد أسابيع من الإنتظار.. عودة الأمطار إلى عدد من المدن والأقاليم المغربية**: [Link](https://ar.hibapress.com/details-675353.html)
+- **هل تصل عاصفة ”كلوديا” التي خلفت قتلى في البرتغال إلى المغرب؟ (الأرصاد تجيب)**: [Link](https://www.achkayen.com/653208/.html)
+
+
+### croatie – îles féroé (N/A, Fri, 14 Nov 2025 12:00:00 -0800)
+
+- **Le travail dantesque des Îles Féroé pour croire en leur rêve historique**: [Link](https://www.footmercato.net/a472396722023109101-le-travail-dantesque-des-iles-feroe-pour-croire-en-leur-reve-historique)
+- **De joueurs amateurs à la Coupe du Monde 2026: Le formidable destin des joueurs des Iles Féroé**: [Link](https://www.lequipe.fr/Football/Actualites/Le-reve-fou-des-iles-feroe-encore-en-lice-pour-une-qualification-a-la-coupe-du-monde-2026-avec-des-joueurs-amateurs-il-y-a-toujours-quelques-electriciens-et-quelques-menuisiers/1609805)
+- **Éliminatoires CDM 2026 : Pays-Bas, Croatie, Allemagne… Le multiplex en direct**: [Link](https://www.sport.fr/football/eliminatoires-cdm-2026-pays-bas-croatie-allemagne-le-multiplex-en-direct-1381128.shtm)
+
+
 ### stade tanger (N/A, Fri, 14 Nov 2025 11:30:00 -0800)
 
 - **Exclu360. Dernière répétition au Grand Stade de Tanger avant son inauguration à l’occasion du match Maroc–Mozambique**: [Link](https://sport.le360.ma/football/can/exclu360-derniere-repetition-au-grand-stade-de-tanger-avant-son-inauguration-a-loccasion-du-match_JRTUH6E7UJB2DA2VTHU6PMBV4Q/)
