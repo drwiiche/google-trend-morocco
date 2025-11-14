@@ -1,3 +1,73 @@
+### coupe du monde u17 (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **CdM U17 : bagarre générale après la victoire des Bleuets contre la Colombie**: [Link](https://www.footmercato.net/a2641082759856938745-cdm-u17-bagarre-generale-apres-la-victoire-des-bleuets-contre-la-colombie)
+- **Coupe du Monde U17 Qatar 2025 : Records et organisation exceptionnelle pour une édition historique**: [Link](https://m.elbotola.com/fr/article/2025-11-13-09-30-811.html)
+- **Geoffrey Jourdren sur son fils Ilan : « La maturité, le leadership, c’est en lui »**: [Link](https://onefootball.com/fr/news/geoffrey-jourdren-sur-son-fils-ilan-la-maturite-le-leadership-cest-en-lui-41949909)
+
+
+### مباريات اليوم (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **أبرز المباريات العربية والعالمية اليوم الجمعة**: [Link](https://24.ae/article/929868/)
+- **ابرز الاحداث الرياضية ليوم الجمعة في 14-11-2025**: [Link](https://www.elsport.com/news/show/800297/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-14-11-2025)
+- **مواعيد مباريات الجمعة 14 نوفمبر - 3 مباريات لـ منتخبات مصر.. وسوبر اليد**: [Link](https://onefootball.com/es/noticias/14-3-41949588)
+
+
+### flashscore (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **A Palmer-type signing: Chelsea join bidding war to land £133m "monster"**: [Link](https://www.footballfancast.com/chelsea-join-bidding-war-for-palmer-type-signing-alvarez/)
+- **Atlético de Madrid Plans to Shield Julián Álvarez From Barcelona’s Interest**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/atl%C3%A9tico-de-madrid-plans-to-shield-juli%C3%A1n-%C3%A1lvarez-from-barcelona-s-interest-2025-11-11)
+- **Barcelona Face Battle With PSG for Chelsea Target Under Contract Until 2030**: [Link](https://sports.yahoo.com/article/barcelona-face-battle-psg-chelsea-101700949.html)
+
+
+### radio mars (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **انفصال جديد يلوح في الأفق داخل اتحاد طنجة**: [Link](https://www.radiomars.ma/%D8%A7%D9%86%D9%81%D8%B5%D8%A7%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D9%84%D9%88%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%81%D9%82/)
+- **اتحاد طنجة يستعد لثورة شتوية: رحيل متولي واقتراب مهاجمين مغربي وأوغندي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%AB%D9%88%D8%B1%D8%A9-%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D8%B1%D8%AD%D9%8A%D9%84-%D9%85%D8%AA%D9%88%D9%84%D9%8A-%D9%88%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%A8-%D9%85%D9%87%D8%A7%D8%AC%D9%85%D9%8A%D9%86-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%88%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D9%8A/11554)
+- **وضعية محسن متولي مع اتحاد طنجة**: [Link](https://infosports.ma/204409/)
+
+
+### u17 world cup 2025 (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **Kozlovskiy Secures Equalizer for Canada in U-17 World Cup Knockouts**: [Link](https://www.el-balad.com/6766562)
+- **Kozlovskiy Heroes for Canada in U-17 World Cup Knockout Match**: [Link](https://news.ssbcrack.com/kozlovskiy-heroes-for-canada-in-u-17-world-cup-knockout-match/)
+- **Samurai steel meets Amajimbos’ fire: Japan’s disciplined youth vs South Africa’s fearless dream in a historic FIFA U17 World Cup knockout clash**: [Link](https://www.goal.com/en-za/lists/samurai-steel-meets-amajimbos-fire-japan-s-disciplined-youth-vs-south-africa-s-fearless-dream-in-a-historic-fifa-u17-world-cup-knockout-clash/bltb1ef9f7a6c0fdf97)
+
+
+### coupe du monde u17 2025 (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **Coupe du monde U17 : pas assez dangereuse, la Belgique est logiquement éliminée par le Portugal**: [Link](https://www.dhnet.be/sports/football/diablesrouges/2025/11/14/coupe-du-monde-u17-les-diablotins-face-au-defi-portugais-direct-13h30-3ZQBBFDMINCBXIQCO3QTYA3JNE/)
+- **Mondial U17 : le Marocain Mohammed El Adfaoui pour booster l’équipe de Belgique**: [Link](https://www.bladi.net/mondial-u17-marocain-mohammed-adfaoui-booster-equipe-belgique,117860.html)
+- **Coupe du Monde U17, Portugal - Belgique : sur quelle chaîne et à quelle heure voir le match ?**: [Link](https://trivela.fr/coupe-du-monde-u17-portugal-belgique-chaine/)
+
+
+### morocco football (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **Third phase of TotalEnergies CAF AFCON Morocco 2025 ticket sales opens on 15 November amid unprecedented global demand**: [Link](https://www.cafonline.com/afcon2025/news/third-phase-of-totalenergies-caf-afcon-morocco-2025-ticket-sales-opens-on-15-november-amid-unprecedented-global-demand/)
+- **Free E-Visas for Football Fans: A Major Boost for Sports Travel to Africa**: [Link](https://www.travelandtourworld.com/news/article/free-e-visas-for-football-fans-a-major-boost-for-sports-travel-to-africa/)
+- **The best Africa Cup of Nations tickets 2025**: [Link](https://www.fanatix.com/africa-cup-of-nations-tickets)
+
+
+### match (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **No. 23 BYU visits Utah in Salt Lake City on Friday**: [Link](https://byucougars.com/news/2025/11/13/no-23-byu-visits-utah-in-salt-lake-city-on-friday)
+- **Utah Volleyball Gears Up for Round One of Rivalry**: [Link](https://utahutes.com/news/2025/11/13/utah-volleyball-gears-up-for-round-one-of-rivalry)
+- **No. 23 BYU women's volleyball set to play rivalry match at Utah**: [Link](https://universe.byu.edu/sports/no-23-byu-womens-volleyball-set-to-play-rivalry-match-at-utah)
+
+
+### u 17 world cup (N/A, Fri, 14 Nov 2025 10:00:00 -0800)
+
+- **Must See: Republic of Ireland beats Canada in 10-round SO thriller at FIFA U-17 World Cup**: [Link](https://www.tsn.ca/video/2025/11/14/must-see-republic-of-ireland-beats-canada-in-10-round-so-thriller-at-fifa-u-17-world-cup/)
+- **Strong Cavan links to high-flying U17 World Cup squad**: [Link](https://www.anglocelt.ie/2025/11/14/strong-cavan-links-to-high-flying-u17-world-cup-squad/)
+- **‘They’re growing up . . . a lot of these games, it’s adult stuff ’ – Colin O’Brien’s U-17s primed for knockout test**: [Link](https://www.independent.ie/sport/soccer/theyre-growing-up-a-lot-of-these-games-its-adult-stuff-colin-obriens-u-17s-primed-for-knockout-test/a967477951.html)
+
+
+### bet365 (N/A, Fri, 14 Nov 2025 09:50:00 -0800)
+
+- **bet365 Bonus Code LSBonus: New York Jets vs New England Patriots Get $200**: [Link](https://www.livescore.com/en/news/nfl/promos/bet365-bonus-code-lsbonus-new-york-jets-vs-new-england-patriots-get-usd200/)
+- **Underdog Promo Code GOALBONUS: Get $100 in Bonuses for NFL Thursday Night Football, NBA & WC2026 Qualifying**: [Link](https://www.goal.com/en-us/betting/underdog-promo-code-goalbonus-get-100-bonuses-nfl-thursday-night-football-nba-wc2026-qualifying-13-11/blt24a4839a2b3a63e9)
+- **bet365 bonus code NYPBET: Bet $5, get $200 in bonus bets for Week 11’s biggest games**: [Link](https://nypost.com/2025/11/14/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-week-11s-biggest-games/)
+
+
 ### morocco u17 (N/A, Fri, 14 Nov 2025 08:10:00 -0800)
 
 - **مباشر.. مباراة المغرب ضد الولايات المتحدة (0-1) في كأس العالم للناشئين**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/14/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF)
