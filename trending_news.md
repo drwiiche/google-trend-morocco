@@ -1,3 +1,10 @@
+### ticket cafonline (N/A, Fri, 14 Nov 2025 14:20:00 -0800)
+
+- **Ouverture le 15 novembre de la troisième phase de vente des billets de la TotalEnergies CAF AFCON Maroc 2025, dans un contexte de demande mondiale sans précédent**: [Link](https://www.cafonline.com/fr/can2025/infos/ouverture-le-15-novembre-de-la-troisieme-phase-de-vente-des-billets-de-la-totalenergies-caf-afcon-maroc-2025-dans-un-contexte-de-demande-mondiale-sans-precedent/)
+- **CAN 2025 : la 3e et dernière phase de la billetterie avancée au 15 novembre**: [Link](https://medias24.com/2025/11/13/can-2025-la-3e-et-derniere-phase-de-la-billetterie-avancee-au-15-novembre/)
+- **Dernière chance pour les supporters de la CAN, la CAF lance ce samedi la phase finale de vente des billets**: [Link](https://mobile.telquel.ma/instant-t/2025/11/14/derniere-chance-pour-les-supporters-de-la-can-la-caf-lance-ce-samedi-la-phase-finale-de-vente-des-billets_1961044/)
+
+
 ### caf ticket (N/A, Fri, 14 Nov 2025 15:00:00 -0800)
 
 - **Third phase of TotalEnergies CAF AFCON Morocco 2025 ticket sales opens on 15 November amid unprecedented global demand**: [Link](https://www.cafonline.com/afcon2025/news/third-phase-of-totalenergies-caf-afcon-morocco-2025-ticket-sales-opens-on-15-november-amid-unprecedented-global-demand/)
