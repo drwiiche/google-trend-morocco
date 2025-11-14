@@ -1,3 +1,31 @@
+### twitch (N/A, Fri, 14 Nov 2025 12:40:00 -0800)
+
+- **Top 10 most followed Twitch streamers in 2025**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/top-10-most-followed-twitch-streamers-in-2025/articleshow/125336539.cms)
+- **Adin Ross Reveals Why He Is Streaming on Twitch Instead of Kick**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/adin-ross-reveals-why-streaming-200112616.html)
+- **Adin Ross starts streaming on Twitch; Calls out Kick, critisizing its Partner Program**: [Link](https://esports.gg/news/streamers/adin-ross-starts-streaming-on-twitch-calls-out-kick-critisizing-its-partner-program/)
+
+
+### كأس العرب (N/A, Fri, 14 Nov 2025 12:40:00 -0800)
+
+- **موعد مباراة مصر ضد الجزائر الودية والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%AF%D9%8A%D8%A9)
+- **فوز قاتل ومثير.. "الفراعنة" يتخطون الجزائر (3-2) في ودية ساخنة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%88%D8%B2-%D9%82%D8%A7%D8%AA%D9%84-%D9%88%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%85%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D9%8B%D8%A7-%D9%84%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blt1aef875c303714ee)
+- **على لطفى: سعداء بالفوز على الجزائر ونسعى للظهور المشرف فى كأس العرب**: [Link](https://www.youm7.com/story/2025/11/14/%D8%B9%D9%84%D9%89-%D9%84%D8%B7%D9%81%D9%89-%D8%B3%D8%B9%D8%AF%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D9%86%D8%B3%D8%B9%D9%89-%D9%84%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%B4%D8%B1%D9%81-%D9%81%D9%89/7197591)
+
+
+### كاس افريقيا 2025 (N/A, Fri, 14 Nov 2025 12:40:00 -0800)
+
+- **إطلاق المرحلة الثالثة من تذاكر "الكان"**: [Link](https://www.hespress.com/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%85%D9%86-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D9%83%D8%A7%D9%86-1655834.html)
+- **نفاد تذاكر مباريات المغرب والجزائر في كأس أفريقيا خلال المرحلة الثانية**: [Link](https://m.elbotola.com/article/2025-11-14-17-47-54.html)
+- **تأشيرات مجانية للجماهير في "الكان"**: [Link](https://www.hesport.com/%D8%AA%D9%88%D9%81%D9%8A%D8%B1-%D8%AA%D8%A3%D8%B4%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D8%AC%D8%A7%D9%86%D9%8A%D8%A9-%D9%84%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%A7-412555.html)
+
+
+### météo demain (N/A, Fri, 14 Nov 2025 12:00:00 -0800)
+
+- **Alerte Météo : Fortes pluies sur les Cévennes jusqu'à samedi**: [Link](https://actualite.lachainemeteo.com/alerte-meteo/8851-fortes-pluies-sur-les-cevennes-jusqu-a-samedi)
+- **Sud-Est de la France - Risque d'intempéries ce week-end**: [Link](https://www.meteoetradar.com/actualites-meteo/sud-est-de-la-france-risque-dintemperies-ce-week-end--c229f5f8-4a4a-42e9-b089-c25b0fe3befa)
+- **Météo : entre douceur printanière et vigilance jaune, le week-end s'annonce contrasté**: [Link](https://france3-regions.franceinfo.fr/occitanie/pyrenees-orientales/perpignan/meteo-entre-douceur-printaniere-et-vigilance-jaune-le-week-end-s-annonce-contraste-3249328.html)
+
+
 ### الطقس غدًا (N/A, Fri, 14 Nov 2025 12:00:00 -0800)
 
 - **المدن الأكثر استقبالا للأمطار بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AF%D9%86-%D8%A7%D9%84%D8%A3%D9%83%D8%AB%D8%B1-%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84%D8%A7-%D9%84%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1655793.html)
