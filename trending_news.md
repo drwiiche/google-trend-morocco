@@ -1,3 +1,17 @@
+### kooora مباريات اليوم (N/A, Fri, 14 Nov 2025 09:10:00 -0800)
+
+- **موعد المغرب ضد موزمبيق والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82)
+- **اتحاد الكرة الموزمبيقية يشيد بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82%D9%8A%D8%A9-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1655477.html)
+- **طنجة ستسجل أكبر حضور في تاريخ مباريات الأسود**: [Link](https://www.almountakhab.com/node/13219593)
+
+
+### friendlies (N/A, Fri, 14 Nov 2025 09:10:00 -0800)
+
+- **How to watch upcoming international soccer friendlies on Prime Video**: [Link](https://www.aboutamazon.com/news/entertainment/prime-video-international-soccer-matches)
+- **Monaco CEO Thiago Scuro: ‘Where we are in Ligue 1 is below our expectations.’**: [Link](https://sports.yahoo.com/article/monaco-ceo-thiago-scuro-where-232100647.html)
+- **Qualifiers, friendlies… The schedule for AS Monaco's internationals**: [Link](https://onefootball.com/es/noticias/qualifiers-friendlies-the-schedule-for-as-monacos-internationals-41949140)
+
+
 ### morocco vs mozambique (N/A, Fri, 14 Nov 2025 09:00:00 -0800)
 
 - **Morocco establishes itself in Tangier**: [Link](https://mountakhab.net/en/morocco-establishes-itself-in-tangier/)
