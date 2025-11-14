@@ -1,3 +1,24 @@
+### morocco vs (N/A, Fri, 14 Nov 2025 05:30:00 -0800)
+
+- **Morocco establishes itself in Tangier**: [Link](https://mountakhab.net/en/morocco-establishes-itself-in-tangier/)
+- **27 Players Selected for Matches Against Mozambique and Uganda in Tangier**: [Link](https://tanja7.com/en/5730)
+- **Walid Regragui Announces Morocco Squad for Mozambique, Uganda November Friendlies**: [Link](https://www.moroccoworldnews.com/2025/11/266923/walid-regragui-announces-morocco-squad-for-mozambique-uganda-november-friendlies/)
+
+
+### موعد مباراة المغرب (N/A, Fri, 14 Nov 2025 05:30:00 -0800)
+
+- **موعد المغرب ضد موزمبيق والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82)
+- **اتحاد الكرة الموزمبيقية يشيد بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82%D9%8A%D8%A9-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1655477.html)
+- **الركراكي: هذا هو خبزنا الأفريقي الحقيقي**: [Link](https://www.almountakhab.com/node/13219588)
+
+
+### maroc vs (N/A, Fri, 14 Nov 2025 05:20:00 -0800)
+
+- **Pour le meilleur et (surtout pas) pour le pire**: [Link](https://mobile.telquel.ma/2025/11/13/pour-le-meilleur-et-surtout-pas-pour-le-pire_1960781)
+- **Maroc-Mozambique: la compo probable des Lions de l’Atlas**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-mozambique-la-compo-probable-des-lions-de-latlas_YDBWBRYTN5B7HFLXEHADUCFOIM/)
+- **L’Equipe Nationale « A » achève sa préparation au Complexe Mohammed VI avant de rejoindre Tanger**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D8%A8%D9%85-3/)
+
+
 ### مباراة المغرب اليوم مباشر أقل من 17 سنة (N/A, Fri, 14 Nov 2025 05:40:00 -0800)
 
 - **المغرب ضد أميركا بمونديال الناشئين.. الموعد والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/13/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D8%A7-%D8%A8%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86)
