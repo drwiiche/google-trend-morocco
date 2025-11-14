@@ -1,3 +1,17 @@
+### caf ticket (N/A, Fri, 14 Nov 2025 15:00:00 -0800)
+
+- **Third phase of TotalEnergies CAF AFCON Morocco 2025 ticket sales opens on 15 November amid unprecedented global demand**: [Link](https://www.cafonline.com/afcon2025/news/third-phase-of-totalenergies-caf-afcon-morocco-2025-ticket-sales-opens-on-15-november-amid-unprecedented-global-demand/)
+- **Free E-Visas for Football Fans: A Major Boost for Sports Travel to Africa**: [Link](https://www.travelandtourworld.com/news/article/free-e-visas-for-football-fans-a-major-boost-for-sports-travel-to-africa/)
+- **The best Africa Cup of Nations tickets 2025**: [Link](https://www.fanatix.com/africa-cup-of-nations-tickets)
+
+
+### cafonline (N/A, Fri, 14 Nov 2025 14:50:00 -0800)
+
+- **Third phase of TotalEnergies CAF AFCON Morocco 2025 ticket sales opens on 15 November amid unprecedented global demand**: [Link](https://www.cafonline.com/afcon2025/news/third-phase-of-totalenergies-caf-afcon-morocco-2025-ticket-sales-opens-on-15-november-amid-unprecedented-global-demand/)
+- **Free E-Visas for Football Fans: A Major Boost for Sports Travel to Africa**: [Link](https://www.travelandtourworld.com/news/article/free-e-visas-for-football-fans-a-major-boost-for-sports-travel-to-africa/)
+- **The best Africa Cup of Nations tickets 2025**: [Link](https://www.fanatix.com/africa-cup-of-nations-tickets)
+
+
 ### ufc 322 (N/A, Fri, 14 Nov 2025 14:40:00 -0800)
 
 - **Dustin Poirier breaks down UFC 322 main event between Jack Della Maddalena and Islam Makhachev**: [Link](https://www.mmafighting.com/ufc/454015/dustin-poirier-breaks-down-ufc-322-main-event-between-jack-della-maddalena-and-islam-makhachev)
