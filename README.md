@@ -1,3 +1,10 @@
+### حالة الطقس (N/A, Thu, 13 Nov 2025 22:00:00 -0800)
+
+- **أمطار تضرب بقوة هذه الأماكن.. الأرصاد تحذر من حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/3599382)
+- **أمطار رعدية تصل القاهرة.. توقعات طقس اليوم في مصر**: [Link](https://pulse.mubasher.info/news/variety/91456/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
+- **تحذيرات عاجلة من الأرصاد: لا تخرجوا أثناء العواصف الرعدية**: [Link](https://www.algomhor.com/312604)
+
+
 ### weather (N/A, Thu, 13 Nov 2025 22:10:00 -0800)
 
 - **Northallerton weather forecast: What will the weekend be like?**: [Link](https://www.darlingtonandstocktontimes.co.uk/news/25619686.met-office-weekend-weather-northallerton-area/)
