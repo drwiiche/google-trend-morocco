@@ -1,3 +1,10 @@
+### united states u-17 vs morocco u-17 (N/A, Fri, 14 Nov 2025 07:20:00 -0800)
+
+- **U17 World Cup: Nabil Baha Promises Intense Match Against US**: [Link](https://www.moroccoworldnews.com/2025/11/267827/u17-world-cup-nabil-baha-promises-intense-match-against-us/)
+- **Morocco U17 – United States U17: What time and on which channel to watch the World Cup clash live?**: [Link](https://ca.sports.yahoo.com/news/morocco-u17-united-states-u17-080500557.html)
+- **Morocco to Face USA in U17 World Cup’s Round of 32**: [Link](https://www.moroccoworldnews.com/2025/11/267491/morocco-to-face-usa-in-u17-world-cups-round-of-32/)
+
+
 ### windy (N/A, Thu, 13 Nov 2025 23:40:00 -0800)
 
 - **Wind, rain and storms this weekend**: [Link](https://fox8.com/weather/forecast-temps-climb-ahead-of-rain/)
