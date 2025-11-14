@@ -1,3 +1,31 @@
+### morocco vs mozambique (N/A, Fri, 14 Nov 2025 09:00:00 -0800)
+
+- **Morocco establishes itself in Tangier**: [Link](https://mountakhab.net/en/morocco-establishes-itself-in-tangier/)
+- **Tangier’s Grand Stadium Reopens as Premier Venue Ready for 2030 FIFA World Cup**: [Link](https://barlamantoday.com/2025/11/14/tangiers-grand-stadium-reopens-as-premier-venue-ready-for-2030-fifa-world-cup/)
+- **27 Players Selected for Matches Against Mozambique and Uganda in Tangier**: [Link](https://tanja7.com/en/5730)
+
+
+### أوزبكستان ضد مصر (N/A, Fri, 14 Nov 2025 08:50:00 -0800)
+
+- **ما القنوات الناقلة لمباراة مصر وأوزبكستان الودية 2025 وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%A7%D9%94%D9%88%D8%B2%D8%A8%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc2d71ed8d8bdc6ef)
+- **منتخب مصر يواجه 3 أزمات قبل كأس أمم أفريقيا 2025**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-3-%D8%A3%D8%B2%D9%85%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025)
+- **تعديل في نظام بطولة العين الودية.. إبراهيم حسن يكشف**: [Link](https://www.almasryalyoum.com/news/details/4128937)
+
+
+### u17 (N/A, Fri, 14 Nov 2025 08:10:00 -0800)
+
+- **Argentina U17 vs Mexico U17 - live score, predicted lineups and H2H stats**: [Link](https://www.fotmob.com/matches/mexico-u17-vs-argentina-u17/1neqdtd)
+- **Mexico vs Argentina, U-17 World Cup Qatar 2025: FIFA confirms kickoff time for Round of 32 clash**: [Link](https://www.mundodeportivo.com/us/en/20251112/734422/mexico-vs-argentina-u-17-world-cup-qatar-2025-fifa-confirms-kickoff-time-for-round-of-32-clash.html)
+- **Argentina U17 national team line-up vs. Mexico at U17 World Cup**: [Link](https://mundoalbiceleste.com/2025/11/14/argentina-u17-national-team-line-up-vs-mexico-at-u17-world-cup/)
+
+
+### bein sports live (N/A, Fri, 14 Nov 2025 08:10:00 -0800)
+
+- **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-au/tennis/articles/watch-live-this-week-on-bein-sports-2025-11-14)
+- **Angola – Argentina: the official lineups are in!**: [Link](https://foot-africa.com/en/news/angola-argentina-the-official-lineups-are-in-960941/)
+- **Lionel Scaloni confirms Messi to start, praises Angola's style of play**: [Link](https://onefootball.com/en/news/lionel-scaloni-confirms-messi-to-start-praises-angolas-style-of-play-41950523)
+
+
 ### argentine foot (N/A, Fri, 14 Nov 2025 08:40:00 -0800)
 
 - **Messi, l'improbable match en Angola : "Que l'un des plus grands ait envie de venir à Luanda..."**: [Link](https://www.eurosport.fr/football/matches-amicaux/2025/match-amical-le-selectionneur-francais-patrice-beaumelle-et-langola-face-a-largentine-de-messi-tous-gagnant-gagnant-a-faire-venir-des-stars-ici_sto23240800/story.shtml)
