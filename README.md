@@ -1,3 +1,10 @@
+### japan vs ghana (N/A, Fri, 14 Nov 2025 03:30:00 -0800)
+
+- **Ghana Addo Confident in Young Black Stars Squad Ahead of Next Challenge**: [Link](https://en.africatopsports.com/2025/11/14/addo-confident-in-young-black-stars-squad-ahead-of-next-challenge/)
+- **Derrick Kohn and Joseph Anang handed debuts as Antoine Semenyo captains Ghana against Japan**: [Link](https://ghanasoccernet.com/derrick-kohn-and-joseph-anang-handed-debuts-as-antoine-semenyo-captains-ghana-against-japan)
+- **FIFA matchdays: Probable lineups for Japan vs Ghana**: [Link](https://sports.yahoo.com/article/fifa-matchdays-probable-lineups-japan-140500514.html)
+
+
 ### اليابان ضد غانا (N/A, Fri, 14 Nov 2025 02:50:00 -0800)
 
 - **أيام الفيفا: التشكيلة المتوقعة لمباراة اليابان ضد غانا**: [Link](https://foot-africa.com/ar/news/%D8%A3%D9%8A%D8%A7%D9%85-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86-%D8%B6%D8%AF-%D8%BA%D8%A7%D9%86%D8%A7-959300/)
