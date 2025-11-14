@@ -1,3 +1,10 @@
+### الطقس اليوم (N/A, Thu, 13 Nov 2025 21:10:00 -0800)
+
+- **منخفض "كلوديا" يعيد التساقطات إلى المغرب بعد أسابيع من الانتظار**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D9%83%D9%84%D9%88%D8%AF%D9%8A%D8%A7-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA-1655142.html)
+- **توقعات الطقس في المملكة: أمطار وعواصف رملية ورياح قوية خلال اليومين القادمين**: [Link](https://2m.ma/ar/news/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D9%85%D9%84%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85%D9%8A%D9%86-20251112)
+- **أمطار الخير تهطل على أكادير بعد طول انتظار.. بداية مبشرة لفصل الشتاء وانتعاش الغطاء النباتي**: [Link](https://agadir24.info/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D9%8A%D8%B1-%D8%AA%D9%87%D8%B7%D9%84-%D8%B9%D9%84%D9%89-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%B7%D9%88%D9%84-%D8%A7%D9%86%D8%AA.html)
+
+
 ### france (N/A, Thu, 13 Nov 2025 12:30:00 -0800)
 
 - **Météo. La météo du vendredi 14 novembre 2025 à Quimperlé et ses environs**: [Link](https://www.ouest-france.fr/meteo/bretagne/quimperle-29300/la-meteo-du-jour-a-quimperle-1d3808d2-3786-4032-b76d-f8d307705523)
