@@ -1,3 +1,10 @@
+### maroc vs usa u17 (N/A, Fri, 14 Nov 2025 03:50:00 -0800)
+
+- **"الفتيان" يواجهون أمريكا بالمونديال**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D8%AA%D9%8A%D8%A7%D9%86-%D9%8A%D9%88%D8%A7%D8%AC%D9%87%D9%88%D9%86-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-1654311.html)
+- **المنتخب الوطني لاقل من 17 سنة يواصل استعداداته للقاء الولايات المتحدة الأمريكية**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D8%B3%D8%AA%D8%B9-9/)
+- **مونديال أقل من 17 سنة.. "الفوز على كاليدونيا الجديدة أعاد الثقة للاعبين" (نبيل باها)**: [Link](https://2m.ma/ar/news/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%83%D8%A7%D9%84%D9%8A%D8%AF%D9%88%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A3%D8%B9%D8%A7%D8%AF-%D8%A7%D9%84%D8%AB%D9%82%D8%A9-20251112)
+
+
 ### corée du sud – bolivie (N/A, Fri, 14 Nov 2025 03:40:00 -0800)
 
 - **Corée du Sud/Bolivie – Les équipes officielles : Lee titulaire**: [Link](https://www.parisfans.fr/autour-du-psg/coree-du-sud-bolivie-les-equipes-officielles-lee-titulaire-876059.html)
