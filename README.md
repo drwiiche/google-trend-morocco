@@ -1,3 +1,24 @@
+### stade tanger (N/A, Fri, 14 Nov 2025 11:30:00 -0800)
+
+- **Exclu360. Dernière répétition au Grand Stade de Tanger avant son inauguration à l’occasion du match Maroc–Mozambique**: [Link](https://sport.le360.ma/football/can/exclu360-derniere-repetition-au-grand-stade-de-tanger-avant-son-inauguration-a-loccasion-du-match_JRTUH6E7UJB2DA2VTHU6PMBV4Q/)
+- **Le Maroc inaugure son stade de Tanger (75 600 places) et « met l’embarras » aux stades espagnols**: [Link](https://www.bladi.net/maroc-inaugure-stade-tanger-600-places-met-embarras-stades-espagnols,117908.html)
+- **Tanger lance “Accès Stade”, une plateforme dédiée à l’orientation des supporters**: [Link](https://fr.hespress.com/449681-tanger-lance-acces-stade-une-plateforme-dediee-a-lorientation-des-supporters.html)
+
+
+### ملعب طنجة (N/A, Fri, 14 Nov 2025 11:30:00 -0800)
+
+- **لحظة وصول حافلة المنتخب المغربي إلى ملعب طنجة الكبير تحت حراسة أمنية مشددة 🇲🇦🏟**: [Link](https://m.elbotola.com/video/details/6917623c333c9f2b40f00074/)
+- **37 يوما عن إنطلاق كأس أمم إفريقيا من قلب ملعب طنجة**: [Link](https://www.almountakhab.com/node/16219610)
+- **إطلاق بوابة "ولوج الملعب" لتقديم معلومات آنية حول الوصول إلى الملعب الكبير لطنجة خلال الفعاليات الرياضية الكبرى**: [Link](https://2m.ma/ar/news/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D9%88%D9%84%D9%88%D8%AC-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8-%D9%84%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%A2%D9%86%D9%8A%D8%A9-%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D9%88%D8%B5%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8-20251113)
+
+
+### الرياضية (N/A, Fri, 14 Nov 2025 11:00:00 -0800)
+
+- **ألعاب التضامن الإسلامي.. المنتخب المغربي للفوتسال في نصف النهائي**: [Link](https://ar.telquel.ma/%D8%A3%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%BA%D8%B2%D9%84%D8%A7%D9%86-%D8%B9%D8%B3%D9%88-%D8%AA%D8%AD%D8%B1%D8%B2/)
+- **أخلوف تهدي المغرب ذهبية المواي تاي في ألعاب التضامن الإسلامي بالرياض**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D8%AE%D9%84%D9%88%D9%81-%D8%AA%D9%87%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D9%8A-%D8%AA%D8%A7%D9%8A-%D9%81%D9%8A-%D8%A3%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%A8%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6/11686)
+- **ألعاب التضامن الإسلامي.. السباح المغربي أحمد فليو يحرز برونزية سباق 50 متر صدر رجال**: [Link](https://ar.sport.le360.ma/autres-sports/NBHWW2ZPRBE3ZGWB24FDGHRPE4/)
+
+
 ### marruecos - mozambique (N/A, Fri, 14 Nov 2025 11:10:00 -0800)
 
 - **Marruecos mete en otro lío a los estadios españoles**: [Link](https://as.com/futbol/internacional/marruecos-desafia-a-espana-con-otro-megaestadio-f202511-n/)
