@@ -1,3 +1,17 @@
+### jannik sinner (N/A, Fri, 14 Nov 2025 06:20:00 -0800)
+
+- **Tutte le news sul tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-finals-turin-atp-singolare-tennis-tracker-sinner-in-campo-contro-shelton-2-0-alcaraz-premiato-come-numero-1/INqbTacn/)
+- **Pronostici Tennis oggi: Sinner - Shelton con lo statunitense in piena crisi**: [Link](https://www.goal.com/it/scommesse/pronostici-sinner-shelton/bltd8e5eaae3bb5b9cd)
+- **ATP Finals LIVE, Sinner-Shelton: Jannik per proseguire la striscia di imbattibilità alle Finals**: [Link](https://www.ubitennis.com/blog/2025/11/14/atp-finals-live-sinner-shelton-jannik-per-proseguire-la-striscia-di-imbattibilita-alle-finals/)
+
+
+### مباريات المنتخب المغربي لأقل من 17 سنة اليوم (N/A, Fri, 14 Nov 2025 06:20:00 -0800)
+
+- **المغرب ضد أميركا بمونديال الناشئين.. الموعد والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/13/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D8%A7-%D8%A8%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86)
+- **"الأشبال" يرغبون في الزئير أمام أمريكا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D9%8A%D8%B1%D8%BA%D8%A8%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B2%D8%A6%D9%8A%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-1655268.html)
+- **الجماهير المغربية تفاجئ اللاعبين في الدوحة و نبيل باها يشكرهم عبر "البطولة"**: [Link](https://m.elbotola.com/article/2025-11-14-01-46-191.html)
+
+
 ### morocco vs (N/A, Fri, 14 Nov 2025 05:30:00 -0800)
 
 - **Morocco establishes itself in Tangier**: [Link](https://mountakhab.net/en/morocco-establishes-itself-in-tangier/)
