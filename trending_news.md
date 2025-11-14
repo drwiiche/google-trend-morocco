@@ -1,3 +1,24 @@
+### مباراة المغرب اليوم مباشر أقل من 17 سنة (N/A, Fri, 14 Nov 2025 05:40:00 -0800)
+
+- **المغرب ضد أميركا بمونديال الناشئين.. الموعد والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/13/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D8%A7-%D8%A8%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86)
+- **"الأشبال" يرغبون في الزئير أمام أمريكا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D9%8A%D8%B1%D8%BA%D8%A8%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B2%D8%A6%D9%8A%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-1655268.html)
+- **الجماهير المغربية تفاجئ اللاعبين في الدوحة و نبيل باها يشكرهم عبر "البطولة"**: [Link](https://m.elbotola.com/article/2025-11-14-01-46-191.html)
+
+
+### المنتخب المغربي (N/A, Fri, 14 Nov 2025 05:30:00 -0800)
+
+- **موعد المغرب ضد موزمبيق والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82)
+- **اتحاد الكرة الموزمبيقية يشيد بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82%D9%8A%D8%A9-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1655477.html)
+- **طنجة ستسجل أكبر حضور في تاريخ مباريات الأسود**: [Link](https://www.almountakhab.com/node/13219593)
+
+
+### match maroc (N/A, Fri, 14 Nov 2025 05:20:00 -0800)
+
+- **Pour le meilleur et (surtout pas) pour le pire**: [Link](https://mobile.telquel.ma/2025/11/13/pour-le-meilleur-et-surtout-pas-pour-le-pire_1960781)
+- **Maroc-Mozambique: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-mozambique-a-quelle-heure-et-sur-quelle-chaine_46GDYCQQMZFIVD6LNMTNNG7UBU/)
+- **Les Lions de l’Atlas affûtent leurs armes à Maâmora avant de mettre le cap sur Tanger**: [Link](https://lematin.ma/sports/lequipe-du-maroc-affute-ses-armes-a-maamora-avant-le-depart-a-tanger/313270)
+
+
 ### matches amicaux (N/A, Fri, 14 Nov 2025 05:10:00 -0800)
 
 - **Ce que les Bleus savent déjà sur ce que va leur réserver le tirage au sort de la Coupe du monde 2026**: [Link](https://www.lequipe.fr/Football/Actualites/Les-bleus-seront-tete-de-serie-lors-du-tirage-de-la-coupe-du-monde-2026-voici-ce-que-ca-change/1609676)
