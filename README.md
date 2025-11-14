@@ -1,3 +1,17 @@
+### المنتخب (N/A, Fri, 14 Nov 2025 10:40:00 -0800)
+
+- **تشكيلة المنتخب المغربي لمواجهة موزمبيق**: [Link](https://www.almountakhab.com/node/16219616)
+- **النسخة الإلكترونية لجريدة المنتخب يصيغة PDF - العدد 4025 ليوم 2025-11-06**: [Link](https://www.almountakhab.com/version-pdf/2351)
+- **التشكيل المتوقع للأسود أمام موزمبيق**: [Link](https://www.almountakhab.com/node/16219599)
+
+
+### السعودية ضد ساحل العاج (N/A, Fri, 14 Nov 2025 10:10:00 -0800)
+
+- **أفضل لاعب في المنتخب السعودي أمام ساحل العاج**: [Link](https://hihi2.com/2025/11/14/p3474520.html)
+- **أبو الشامات.. توهج مستمر بقميص الأخضر السعودي**: [Link](https://www.alyaum.com/articles/6627606/%D8%A7%D9%84%D9%85%D9%8A%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/%D8%A3%D8%A8%D9%88-%D8%A7%D9%84%D8%B4%D8%A7%D9%85%D8%A7%D8%AA-%D8%AA%D9%88%D9%87%D8%AC-%D9%85%D8%B3%D8%AA%D9%85%D8%B1-%D8%A8%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D8%A3%D8%AE%D8%B6%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A)
+- **السعودية vs ساحل العاج (0:1) .. ملخص نتيجة مباراة السعودية وساحل العاج ضمن استعدادات كأس العرب وتصفيات كأس العالم 2026.**: [Link](https://zahraa.mr/6087933/%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-vs-%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D8%AC-01-%D9%85%D9%84%D8%AE%D8%B5-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1/)
+
+
 ### mozambique (N/A, Fri, 14 Nov 2025 10:30:00 -0800)
 
 - **First Capital Bank lidera patrocínio do Beach Polo 2025**: [Link](https://idolo.co.mz/first-capital-bank-lidera-patrocinio-do-beach-polo-2025/)
