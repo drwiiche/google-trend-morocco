@@ -1,3 +1,10 @@
+### ufc 322 (N/A, Fri, 14 Nov 2025 14:40:00 -0800)
+
+- **Dustin Poirier breaks down UFC 322 main event between Jack Della Maddalena and Islam Makhachev**: [Link](https://www.mmafighting.com/ufc/454015/dustin-poirier-breaks-down-ufc-322-main-event-between-jack-della-maddalena-and-islam-makhachev)
+- **UFC 322 ultimate guide: All the big questions answered ahead of Aussie champ’s greatest test**: [Link](https://www.foxsports.com.au/ufc/ufc-322-jack-della-maddalena-vs-islam-makhachev-full-fight-preview-analysis-how-to-watch-the-fight-in-australia-start-time-full-fight-card/news-story/72f410359cf6162d0bbeb7837e2ec56e)
+- **Cold Open | VeChain UFC 322: Della Maddalena vs Makhachev**: [Link](https://www.ufc.com/video/152634)
+
+
 ### بسمة بوسيل (N/A, Fri, 14 Nov 2025 13:20:00 -0800)
 
 - **الفنانة بسمة بوسيل تكشف سبب تخليها عن الغناء بعد زواجها من الفنان تامر حسني وعن علاقتها به بعد الطلاق…في "رشيد شو"**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A8%D8%B3%D9%85%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A%D9%84-%D8%AA%D9%83%D8%B4%D9%81-%D8%B3%D8%A8%D8%A8-%D8%AA%D8%AE%D9%84%D9%8A%D9%87%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D8%BA%D9%86%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%B2%D9%88%D8%A7%D8%AC%D9%87%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-20251114)
