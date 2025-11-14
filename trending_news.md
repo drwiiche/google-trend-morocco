@@ -1,3 +1,10 @@
+### matches amicaux (N/A, Fri, 14 Nov 2025 05:10:00 -0800)
+
+- **Ce que les Bleus savent déjà sur ce que va leur réserver le tirage au sort de la Coupe du monde 2026**: [Link](https://www.lequipe.fr/Football/Actualites/Les-bleus-seront-tete-de-serie-lors-du-tirage-de-la-coupe-du-monde-2026-voici-ce-que-ca-change/1609676)
+- **Un groupe de la mort pour la France ?**: [Link](https://www.sports.fr/football/equipe-de-france/un-groupe-de-la-mort-pour-la-france-2-967058.html)
+- **La liste des 29 pays déjà qualifiés pour la Coupe du Monde 2026**: [Link](https://www.footmercato.net/a743931885906337218-la-liste-des-29-pays-deja-qualifies-pour-la-coupe-du-monde-2026)
+
+
 ### maroc vs usa u17 (N/A, Fri, 14 Nov 2025 03:50:00 -0800)
 
 - **"الفتيان" يواجهون أمريكا بالمونديال**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D8%AA%D9%8A%D8%A7%D9%86-%D9%8A%D9%88%D8%A7%D8%AC%D9%87%D9%88%D9%86-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-1654311.html)
