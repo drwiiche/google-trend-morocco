@@ -1,3 +1,45 @@
+### yalla shoot (N/A, Fri, 14 Nov 2025 08:00:00 -0800)
+
+- **موعد مباراة مصر وأوزبكستان الودية 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%A7%D9%94%D9%88%D8%B2%D8%A8%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt7b800b8e4f7ef02d)
+- **منتخب مصر يواجه 3 أزمات قبل كأس أمم أفريقيا 2025**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-3-%D8%A3%D8%B2%D9%85%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025)
+- **تفاصيل كأس العين الدولية.. وأبرز نجوم المنتخبات المونديالية**: [Link](https://24.ae/articleamp/929474/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A%D8%A9-%D9%88%D8%A3%D8%A8%D8%B1%D8%B2-%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A%D8%A9)
+
+
+### fifa+ (N/A, Fri, 14 Nov 2025 08:00:00 -0800)
+
+- **Africa’s history of World Cup play-off contests**: [Link](https://www.cafonline.com/news/africa-s-history-of-world-cup-play-off-contests/)
+- **Nigeria 4-1 Gabon AET: Super Eagles progress to African play-off final**: [Link](https://www.bbc.com/sport/football/live/c30vregzq7et)
+- **World Cup 2026: Eric Chelle awaits DR Congo before he can "smile"**: [Link](https://foot-africa.com/en/news/world-cup-2026-eric-chelle-awaits-dr-congo-before-he-can-smile-960395/)
+
+
+### angola – argentine (N/A, Fri, 14 Nov 2025 07:50:00 -0800)
+
+- **Atletico trio to miss Argentina's friendly with Angola over vaccine issue**: [Link](https://www.reuters.com/business/healthcare-pharmaceuticals/atletico-trio-miss-argentinas-friendly-with-angola-over-vaccine-issue-2025-11-11/)
+- **Report – Inter Milan Failed To Prevent Talismanic Striker From Joining Argentina Squad For Angola Friendly**: [Link](https://sempreinter.com/2025/11/12/inter-milan-failed-prevent-lautaro-joining-argentina-squad/)
+- **How Argentina's World Cup preparation is being impacted by vaccine requirements in Africa**: [Link](https://www.msn.com/en-us/health/other/how-argentina-s-world-cup-preparation-is-being-impacted-by-vaccine-requirements-in-africa/ar-AA1QkVYB)
+
+
+### bein sport (N/A, Fri, 14 Nov 2025 07:50:00 -0800)
+
+- **Argentina U17 vs Mexico U17 - live score, predicted lineups and H2H stats**: [Link](https://www.fotmob.com/matches/mexico-u17-vs-argentina-u17/1neqdtd)
+- **Mexico vs Argentina, U-17 World Cup Qatar 2025: FIFA confirms kickoff time for Round of 32 clash**: [Link](https://www.mundodeportivo.com/us/en/20251112/734422/mexico-vs-argentina-u-17-world-cup-qatar-2025-fifa-confirms-kickoff-time-for-round-of-32-clash.html)
+- **Argentina vs Mexico: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/argentina-vs-mexico-how-watch-u-17-world-cup-preview)
+
+
+### match maroc aujourd'hui (N/A, Fri, 14 Nov 2025 07:50:00 -0800)
+
+- **Jeux de la Solidarité Islamique (futsal): composition du Maroc face à l’Iran**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-23/)
+- **JSI Futsal : Les Lions lourdement battus par les Iraniens en finale**: [Link](https://www.lopinion.ma/JSI-Futsal-Les-Lions-lourdement-battus-par-les-Iraniens-en-finale_a73798.html)
+- **JSI 2025. Futsal: les Lions de l’Atlas dominent l’Afghanistan et filent en demi-finales**: [Link](https://sport.le360.ma/football/futsal/jsi-2025-futsal-les-lions-de-latlas-dominent-lafghanistan-et-filent-en-demi-finales_Q5V45FBW6RBEHGQ5URUMFQ7T7I/)
+
+
+### منتخب المغرب لكرة القدم (N/A, Fri, 14 Nov 2025 07:50:00 -0800)
+
+- **موعد المغرب ضد موزمبيق والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82)
+- **اتحاد الكرة الموزمبيقية يشيد بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82%D9%8A%D8%A9-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1655477.html)
+- **طنجة ستسجل أكبر حضور في تاريخ مباريات الأسود**: [Link](https://www.almountakhab.com/node/13219593)
+
+
 ### united states u-17 vs morocco u-17 (N/A, Fri, 14 Nov 2025 07:20:00 -0800)
 
 - **U17 World Cup: Nabil Baha Promises Intense Match Against US**: [Link](https://www.moroccoworldnews.com/2025/11/267827/u17-world-cup-nabil-baha-promises-intense-match-against-us/)
