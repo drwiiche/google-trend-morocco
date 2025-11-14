@@ -1,3 +1,10 @@
+### argentine foot (N/A, Fri, 14 Nov 2025 08:40:00 -0800)
+
+- **Messi, l'improbable match en Angola : "Que l'un des plus grands ait envie de venir à Luanda..."**: [Link](https://www.eurosport.fr/football/matches-amicaux/2025/match-amical-le-selectionneur-francais-patrice-beaumelle-et-langola-face-a-largentine-de-messi-tous-gagnant-gagnant-a-faire-venir-des-stars-ici_sto23240800/story.shtml)
+- **Lionel Messi et l’Argentine provoquent une indignation XXL en Angola**: [Link](https://www.footmercato.net/a5892095675594961143-lionel-messi-et-largentine-provoquent-une-indignation-xxl-en-angola)
+- **Le peuple angolais s’indigne de la venue de l’Argentine**: [Link](https://www.boursorama.com/actualite-economique/actualites/le-peuple-angolais-s-indigne-de-la-venue-de-l-argentine-dad13d8255b7292e2565707798e08a0c)
+
+
 ### arabie saoudite – côte d'ivoire (N/A, Fri, 14 Nov 2025 08:30:00 -0800)
 
 - **Amical: Arabie Saoudite – Côte d’Ivoire, les compositions officielles**: [Link](https://africafootunited.com/amical-arabie-saoudite-cote-divoire-les-compositions-officielles/)
