@@ -1,3 +1,24 @@
+### weather (N/A, Thu, 13 Nov 2025 22:10:00 -0800)
+
+- **Northallerton weather forecast: What will the weekend be like?**: [Link](https://www.darlingtonandstocktontimes.co.uk/news/25619686.met-office-weekend-weather-northallerton-area/)
+- **Northallerton weather forecast: What will the weekend be like?**: [Link](https://uk.news.yahoo.com/northallerton-weather-forecast-weekend-060000605.html)
+- **Northallerton weather forecast: What will the weekend be like?**: [Link](https://www.darlingtonandstocktontimes.co.uk/news/25601783.met-office-weekend-weather-northallerton-area/)
+
+
+### météo (N/A, Thu, 13 Nov 2025 21:50:00 -0800)
+
+- **Météo. La météo du vendredi 14 novembre 2025 à Alès et ses environs**: [Link](https://www.ouest-france.fr/meteo/region-occitanie/ales-30100/la-meteo-du-jour-a-ales-08577f99-a089-4af8-bf6f-d55ae9d4712d)
+- **Météo. Quel temps est-il prévu à Arles et ses environs le vendredi 14 novembre 2025 ?**: [Link](https://www.ouest-france.fr/meteo/provence-alpes-cote-dazur/arles-13200/la-meteo-du-jour-a-arles-f27e32f8-4da2-4b13-9d27-3d1f52078c67)
+- **Douceur remarquable sur le pays**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/douceur-remarquable-sur-le-pays)
+
+
+### الطقس (N/A, Thu, 13 Nov 2025 21:50:00 -0800)
+
+- **منخفض "كلوديا" يعيد التساقطات إلى المغرب بعد أسابيع من الانتظار**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D9%83%D9%84%D9%88%D8%AF%D9%8A%D8%A7-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA-1655142.html)
+- **توقعات الطقس في المملكة: أمطار وعواصف رملية ورياح قوية خلال اليومين القادمين**: [Link](https://2m.ma/ar/news/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D9%85%D9%84%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85%D9%8A%D9%86-20251112)
+- **أمطار الخير تهطل على أكادير بعد طول انتظار.. بداية مبشرة لفصل الشتاء وانتعاش الغطاء النباتي**: [Link](https://agadir24.info/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D9%8A%D8%B1-%D8%AA%D9%87%D8%B7%D9%84-%D8%B9%D9%84%D9%89-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%B7%D9%88%D9%84-%D8%A7%D9%86%D8%AA.html)
+
+
 ### الطقس اليوم (N/A, Thu, 13 Nov 2025 21:10:00 -0800)
 
 - **منخفض "كلوديا" يعيد التساقطات إلى المغرب بعد أسابيع من الانتظار**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D9%83%D9%84%D9%88%D8%AF%D9%8A%D8%A7-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA-1655142.html)
