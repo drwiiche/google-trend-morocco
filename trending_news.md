@@ -1,3 +1,10 @@
+### windy (N/A, Thu, 13 Nov 2025 23:40:00 -0800)
+
+- **Wind, rain and storms this weekend**: [Link](https://fox8.com/weather/forecast-temps-climb-ahead-of-rain/)
+- **Warming trend continues into weekend**: [Link](https://www.yahoo.com/news/articles/warming-trend-continues-weekend-110306914.html)
+- **The warmth is ramping up through the rest of the week**: [Link](https://www.kmbc.com/article/the-warmth-is-ramping-up-through-the-rest-of-the-week/69422862)
+
+
 ### jannik sinner (N/A, Fri, 14 Nov 2025 06:20:00 -0800)
 
 - **Tutte le news sul tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-finals-turin-atp-singolare-tennis-tracker-sinner-in-campo-contro-shelton-2-0-alcaraz-premiato-come-numero-1/INqbTacn/)
