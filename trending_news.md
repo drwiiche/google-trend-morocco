@@ -1,3 +1,17 @@
+### brésil – sénégal (N/A, Sat, 15 Nov 2025 07:40:00 -0800)
+
+- **Brésil – Sénégal : l’heure, la chaîne et les compos probables**: [Link](https://topfoot.com/2445-bresil-senegal-lheure-la-chaine-et-les-compos-probables/)
+- **Victime d'une lésion musculaire aux ischio-jambiers, l'attaquant du FC Metz Habib Diallo pourrait « être absent une à deux semaines »**: [Link](https://www.lequipe.fr/Football/Actualites/Victime-d-une-lesion-musculaire-aux-ischio-jambiers-l-attaquant-du-fc-metz-habib-diallo-pourrait-etre-absent-une-a-deux-semaines/1609999)
+- **Amical - Pape Thiaw : "On a des arguments à faire valoir"**: [Link](https://www.beinsports.com/fr-fr/football/articles-video/amical-pape-thiaw-on-a-des-arguments-%C3%A0-faire-valoir-2025-11-15)
+
+
+### brazil vs senegal (N/A, Sat, 15 Nov 2025 07:40:00 -0800)
+
+- **Brazil vs Senegal – Predicted lineup and team news**: [Link](https://thefootballfaithful.com/brazil-vs-senegal-predicted-lineup-and-team-news/)
+- **Emirates now level with the Maracanã – Brazil return to North London for ninth match of the century**: [Link](https://sportwitness.co.uk/emirates-now-level-with-the-maracana-brazil-return-to-north-london-for-ninth-match-of-the-century/)
+- **Brazil vs. Senegal: Livestream International Friendly Soccer From Anywhere For Free**: [Link](https://www.cnet.com/tech/services-and-software/brazil-vs-senegal-livestream-international-friendly-soccer-from-anywhere-for-free/)
+
+
 ### jannik sinner (N/A, Sat, 15 Nov 2025 06:10:00 -0800)
 
 - **Diretta Sinner-De Minaur oggi semifinale Atp Finals Torino. Live risultato e aggiornamenti**: [Link](https://www.adnkronos.com/sport/sinner-de-minaur-oggi-semifinale-atp-finals-torino-live-risultato-aggiornamenti_33rPk6zaikM3toGUTFoYHN)
