@@ -1,3 +1,10 @@
+### billetterie can 2025 (N/A, Fri, 14 Nov 2025 15:20:00 -0800)
+
+- **Ouverture le 15 novembre de la troisième phase de vente des billets de la TotalEnergies CAF AFCON Maroc 2025, dans un contexte de demande mondiale sans précédent**: [Link](https://www.cafonline.com/fr/can2025/infos/ouverture-le-15-novembre-de-la-troisieme-phase-de-vente-des-billets-de-la-totalenergies-caf-afcon-maroc-2025-dans-un-contexte-de-demande-mondiale-sans-precedent/)
+- **Dernière chance pour les supporters de la CAN, la CAF lance ce samedi la phase finale de vente des billets**: [Link](https://mobile.telquel.ma/instant-t/2025/11/14/derniere-chance-pour-les-supporters-de-la-can-la-caf-lance-ce-samedi-la-phase-finale-de-vente-des-billets_1961044/)
+- **« N7taflou Kamlin » : une caravane nationale sillonne le Maroc en prélude à la CAN 2025**: [Link](https://www.leconomiste.com/flash-infos/n7taflou-kamlin-une-caravane-nationale-sillonne-le-maroc-en-prelude-a-la-can-2025/)
+
+
 ### islam makhachev (N/A, Fri, 14 Nov 2025 16:50:00 -0800)
 
 - **Dustin Poirier breaks down UFC 322 main event between Jack Della Maddalena and Islam Makhachev**: [Link](https://www.mmafighting.com/ufc/454015/dustin-poirier-breaks-down-ufc-322-main-event-between-jack-della-maddalena-and-islam-makhachev)
