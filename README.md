@@ -1,3 +1,10 @@
+### incendie tipaza (N/A, Fri, 14 Nov 2025 17:50:00 -0800)
+
+- **Algérie: des dizaines de familles évacuées à cause de feux de forêt**: [Link](https://afrique.le360.ma/societe/algerie-des-dizaines-de-familles-evacuees-a-cause-de-feux-de-foret_HAXCWM4O7RDAXGVWGYJ7OSMI4Y/)
+- **Nationale - L’immense brasier de Tipasa maîtrisé**: [Link](https://www.lexpressiondz.com/nationale/l-immense-brasier-de-tipasa-maitrise-399915)
+- **QUI BRÛLE QUI EN ALGÉRIE ?… Par les incendies de forêts, la junte militaire passe « un message » à la population**: [Link](https://fr.le7tv.ma/2025/11/14/qui-brule-qui-en-algerie-par-les-incendies-de-forets-la-junte-militaire-passe-un-message-a-la-population-2/)
+
+
 ### الطقس (N/A, Fri, 14 Nov 2025 22:20:00 -0800)
 
 - **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-36-1656025.html)
