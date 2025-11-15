@@ -1,3 +1,10 @@
+### الطقس غدًا (N/A, Sat, 15 Nov 2025 11:40:00 -0800)
+
+- **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-36-1656025.html)
+- **نشرة إنذارية… زخات مطرية محليا قوية مرتقبة اليوم السبت وغدا الأحد بعدد من مناطق المملكة – اليوم 24**: [Link](https://alyaoum24.com/1994225.html)
+- **أمطار رعدية قوية… نشرة إنذارية تشمل طنجة وتطوان وعدة مناطق شمالية**: [Link](https://tanjanews.com/177497.html)
+
+
 ### agadir (N/A, Sat, 15 Nov 2025 10:40:00 -0800)
 
 - **Agadir: découverte du corps d’un touriste britannique dans la piscine d’un hôtel**: [Link](https://h24info.ma/maroc/agadir-decouverte-du-corps-dun-touriste-britannique-dans-la-piscine-dun-hotel/)
