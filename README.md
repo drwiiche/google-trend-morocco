@@ -1,3 +1,17 @@
+### alerte météo maroc nord (N/A, Sat, 15 Nov 2025 15:00:00 -0800)
+
+- **Météo: les couleurs du ciel ce samedi 15 novembre**: [Link](https://h24info.ma/maroc/meteo-les-couleurs-du-ciel-ce-samedi-15-novembre/)
+- **Alerte aux orages dans le nord du Maroc**: [Link](https://private-admin.medias24.com/2025/11/15/1578994/)
+- **Bulletin d'alerte météo: averses orageuses dans certaines provinces**: [Link](https://fr.hespress.com/449908-bulletin-dalerte-meteo-averses-orageuses-dans-certaines-provinces.html)
+
+
+### ufc (N/A, Sat, 15 Nov 2025 14:20:00 -0800)
+
+- **UFC 322: Live results and analysis for Della Maddalena-Makhachev, Shevchenko-Zhang**: [Link](https://www.espn.com/mma/story/_/id/46949041/ufc-322-live-results-analysis-jack-della-maddalena-islam-makhachev-valentina-shevchenko-zhang-weili)
+- **UFC 322 Della Maddalena vs. Makhachev: Predictions and best bets**: [Link](https://www.al.com/betting/2025/11/ufc-322-della-maddalena-vs-makhachev-predictions-and-best-bets.html)
+- **UFC Tonight: Fight By Fight Preview | VeChain UFC 322: Della Maddalena vs Makhachev**: [Link](https://www.ufc.com/news/ufc-tonight-fight-fight-preview-vechain-ufc-322-della-maddalena-vs-makhachev)
+
+
 ### streameast (N/A, Sat, 15 Nov 2025 13:50:00 -0800)
 
 - **StreamEast alternatives for free NFL streams today**: [Link](https://www.syracuse.com/tv/2025/11/streameast-alternatives-for-free-nfl-streams-today.html-2)
