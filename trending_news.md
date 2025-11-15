@@ -1,3 +1,10 @@
+### البرازيل ضد السنغال (N/A, Sat, 15 Nov 2025 08:00:00 -0800)
+
+- **موعد مباراة البرازيل والسنغال الودية 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt8355ad56be273636)
+- **البرازيل فى مواجهة قوية أمام السنغال ودياً اليوم**: [Link](https://www.youm7.com/story/2025/11/15/%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%81%D9%89-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%88%D8%AF%D9%8A%D8%A7%D9%8B-%D8%A7%D9%84%D9%8A%D9%88%D9%85/7197137)
+- **نزلها وشوف الماتش.. تردد قناة ابوظبي الرياضية 2 الناقلة لمباراة السنغال والبرازيل اليوم**: [Link](https://ghorbanews.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D8%A8%D9%88%D8%B8%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-2/)
+
+
 ### brésil – sénégal (N/A, Sat, 15 Nov 2025 07:40:00 -0800)
 
 - **Brésil – Sénégal : l’heure, la chaîne et les compos probables**: [Link](https://topfoot.com/2445-bresil-senegal-lheure-la-chaine-et-les-compos-probables/)
