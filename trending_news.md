@@ -1,3 +1,10 @@
+### lamine yamal (N/A, Fri, 14 Nov 2025 23:30:00 -0800)
+
+- **Barcelona and RFEF presidents to meet to ease tensions over Lamine Yamal issue**: [Link](https://barcauniversal.com/barcelona-and-rfef-presidents-to-meet-to-ease-tensions-over-lamine-yamal-issue/)
+- **‘Excessive & unnecessary’ – Real Madrid star defends teammate Vinícius Jr.**: [Link](https://getfootballnewsspain.com/excessive-unnecessary-real-madrid-star-defends-teammate-vinicius-jr/)
+- **“People talk too much about him. He’s just a kid…”: a rival opens up about Lamine Yamal**: [Link](https://foot-africa.com/en/news/people-talk-too-much-about-him-hes-just-a-kid-a-rival-opens-up-about-lamine-yamal-961622/)
+
+
 ### achkayen (N/A, Fri, 14 Nov 2025 22:40:00 -0800)
 
 
