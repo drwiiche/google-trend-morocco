@@ -1,3 +1,17 @@
+### georgia vs spain (N/A, Sat, 15 Nov 2025 08:30:00 -0800)
+
+- **Dean Huijsen to miss Spain match with groin issue, set for further scans - The Athletic**: [Link](https://www.nytimes.com/athletic/6809535/2025/11/15/dean-huijsen-spain-injury-update/)
+- **Georgia vs. Spain—2026 World Cup Qualifier: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/georgia-vs-spain-2026-world-cup-qualifier-preview-predictions-lineups-11-15-25)
+- **Georgia vs Spain: How to Watch, Odds, WCQ Preview**: [Link](https://www.foxnews.com/sports/georgia-vs-spain-how-watch-odds-wcq-preview)
+
+
+### autriche u-17 – tunisie u-17 (N/A, Sat, 15 Nov 2025 08:30:00 -0800)
+
+- **Coupe du monde U17 : maturité et gestion, la Belgique s’impose contre la Tunisie et file en seizièmes de finale**: [Link](https://www.rtbf.be/article/coupe-du-monde-u17-belgique-tunisie-les-diablotins-sur-un-boulevard-vers-les-16e-direct-video-13h20-11629079)
+- **Tunisie – Autriche : sur quelle chaîne suivre la rencontre en direct ?**: [Link](https://www.lapresse.tn/2025/11/15/tunisie-autriche-sur-quelle-chaine-suivre-la-rencontre-en-direct/)
+- **Foot - Mondial U17 : Résultats et suite du programme**: [Link](https://www.tap.info.tn/fr/Portail-Sports-FR/19474267-foot-mondial-u17)
+
+
 ### جورجيا ضد إسبانيا (N/A, Sat, 15 Nov 2025 08:20:00 -0800)
 
 - **توريس وأويارزابال يقودان هجوم إسبانيا ضد جورجيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-%D9%88%D8%A7%D9%94%D9%88%D9%8A%D8%A7%D8%B1%D8%B2%D8%A7%D8%A8%D8%A7%D9%84-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D8%A7/bltbec8925111f8533e)
