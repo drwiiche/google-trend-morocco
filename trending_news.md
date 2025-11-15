@@ -1,3 +1,10 @@
+### caf online (N/A, Fri, 14 Nov 2025 23:10:00 -0800)
+
+- **Sir Mohamed Mansour: “I am optimistic about the future of African football and deeply impressed by CAF’s development vision.”**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/sir-mohamed-mansour-i-am-optimistic-about-the-future-of-african-football-and-deeply-impressed-by-caf-s-development-vision/)
+- **MATCH STATS: ASEC Mimosas seek to keep hold of top spot in Group B**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/match-stats-asec-mimosas-seek-to-keep-hold-of-top-spot-in-group-b/)
+- **MATCH STATS: TP Mazembe, JKT Queens battle it out for semi-final place**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/match-stats-tp-mazembe-jkt-queens-battle-it-out-for-semi-final-place/)
+
+
 ### can tickets (N/A, Sat, 15 Nov 2025 01:30:00 -0800)
 
 - **You Can Now Buy Ticketmaster Tickets with Alexa+**: [Link](https://blog.ticketmaster.com/buy-ticketmaster-tickets-with-alexa/)
