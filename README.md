@@ -1,3 +1,15 @@
+### achkayen (N/A, Fri, 14 Nov 2025 22:40:00 -0800)
+
+
+
+
+### caf (N/A, Fri, 14 Nov 2025 15:20:00 -0800)
+
+- **Late DR Congo winner ends Cameroon's World Cup bid**: [Link](https://sports.yahoo.com/article/dr-congo-winner-ends-cameroons-210941276.html)
+- **Mbemba snatches late winner as Congolese march on in World Cup playoffs**: [Link](https://www.reuters.com/sports/soccer/mbemba-snatches-late-winner-congolese-march-world-cup-playoffs-2025-11-13/)
+- **Nigeria face DR Congo in winner-takes-all play-off final for 2026 World Cup pathway**: [Link](https://www.cafonline.com/fifa-world-cup/news/nigeria-face-dr-congo-in-winner-takes-all-play-off-final-for-2026-world-cup-pathway/)
+
+
 ### incendie tipaza (N/A, Fri, 14 Nov 2025 17:50:00 -0800)
 
 - **Algérie: des dizaines de familles évacuées à cause de feux de forêt**: [Link](https://afrique.le360.ma/societe/algerie-des-dizaines-de-familles-evacuees-a-cause-de-feux-de-foret_HAXCWM4O7RDAXGVWGYJ7OSMI4Y/)
