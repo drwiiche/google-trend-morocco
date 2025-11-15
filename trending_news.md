@@ -1,3 +1,10 @@
+### kazakhstan – belgique (N/A, Sat, 15 Nov 2025 05:50:00 -0800)
+
+- **La Belgique à une victoire face au Kazakhstan de se qualifier pour la Coupe du monde 2026**: [Link](https://www.lequipe.fr/Football/Actualites/La-belgique-a-une-victoire-face-au-kazakhstan-de-se-qualifier-pour-la-coupe-du-monde-2026/1609902)
+- **Matz Sels n'est plus le meilleur, mais il est loin d'être nul**: [Link](https://www.lalibre.be/sports/football/2025/11/15/matz-sels-nest-plus-le-meilleur-mais-il-est-loin-detre-nul-AFR7AYNHZBDGVGJI4JKJ5QGME4/)
+- **La diagonale de Manuel Jous : "steppe by steppe" vers l'Amérique**: [Link](https://www.rtbf.be/article/la-diagonale-de-manuel-jous-steppe-by-steppe-vers-l-amerique-11630851)
+
+
 ### japon u-17 – afrique du sud u-17 (N/A, Sat, 15 Nov 2025 05:10:00 -0800)
 
 - **Afrique du Sud – Japon : à quelle heure et sur quelle chaîne suivre le choc de la Coupe du Monde U17 en direct**: [Link](https://foot-africa.com/actualites/afrique-du-sud-japon-a-quelle-heure-et-sur-quelle-chaine-suivre-le-choc-de-la-coupe-du-monde-u17-en-direct-959267/)
