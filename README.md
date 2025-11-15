@@ -1,3 +1,10 @@
+### japon u-17 – afrique du sud u-17 (N/A, Sat, 15 Nov 2025 05:10:00 -0800)
+
+- **Afrique du Sud – Japon : à quelle heure et sur quelle chaîne suivre le choc de la Coupe du Monde U17 en direct**: [Link](https://foot-africa.com/actualites/afrique-du-sud-japon-a-quelle-heure-et-sur-quelle-chaine-suivre-le-choc-de-la-coupe-du-monde-u17-en-direct-959267/)
+- **Coupe du Monde U17 16es de finale : L’Afrique du Sud défie le Japon pour une place en 8e**: [Link](https://africafootunited.com/coupe-du-monde-u17-16es-de-finale-lafrique-du-sud-defie-le-japon-pour-une-place-en-8e/)
+- **Coupe du monde U17 : Japon vs Afrique du Sud, qui ira en huitièmes ?**: [Link](https://www.africatopsports.com/2025/11/15/coupe-du-monde-u17-japon-vs-afrique-du-sud-qui-ira-en-huitiemes/)
+
+
 ### caf online (N/A, Fri, 14 Nov 2025 23:10:00 -0800)
 
 - **Sir Mohamed Mansour: “I am optimistic about the future of African football and deeply impressed by CAF’s development vision.”**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/sir-mohamed-mansour-i-am-optimistic-about-the-future-of-african-football-and-deeply-impressed-by-caf-s-development-vision/)
