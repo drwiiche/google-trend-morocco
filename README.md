@@ -1,3 +1,10 @@
+### islam makhachev (N/A, Fri, 14 Nov 2025 16:50:00 -0800)
+
+- **Dustin Poirier breaks down UFC 322 main event between Jack Della Maddalena and Islam Makhachev**: [Link](https://www.mmafighting.com/ufc/454015/dustin-poirier-breaks-down-ufc-322-main-event-between-jack-della-maddalena-and-islam-makhachev)
+- **‘Bro looks terrible’ — Fight fans react to Islam Makhachev’s welterweight transformation at UFC 322 weigh ins**: [Link](https://sports.yahoo.com/article/bro-looks-terrible-fight-fans-013000394.html)
+- **Faceoffs | VeChain UFC 322: Della Maddalena vs Makhachev**: [Link](https://www.ufc.com/video/152641)
+
+
 ### ticket cafonline (N/A, Fri, 14 Nov 2025 14:20:00 -0800)
 
 - **Ouverture le 15 novembre de la troisième phase de vente des billets de la TotalEnergies CAF AFCON Maroc 2025, dans un contexte de demande mondiale sans précédent**: [Link](https://www.cafonline.com/fr/can2025/infos/ouverture-le-15-novembre-de-la-troisieme-phase-de-vente-des-billets-de-la-totalenergies-caf-afcon-maroc-2025-dans-un-contexte-de-demande-mondiale-sans-precedent/)
