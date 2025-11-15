@@ -1,3 +1,31 @@
+### carlos alcaraz (N/A, Sat, 15 Nov 2025 12:10:00 -0800)
+
+- **Zverev se la pega con Aliassime, rival de Alcaraz en las semifinales de Turín**: [Link](https://www.marca.com/tenis/copa-masters/2025/11/14/zverev-pega-aliassime-rival-alcaraz-semifinales-turin.html)
+- **Rival sorpresa para Alcaraz en las 'semis' de las ATP Finals**: [Link](https://www.mundodeportivo.com/tenis/20251114/1002569522/rival-sorpresa-alcaraz-semis-atp-finals.html)
+- **Zverev - Auger-Aliassime: El último escollo de Alcaraz antes de la final 4-6 y 6-7(4)**: [Link](https://espanol.eurosport.com/tenis/atp-finals/2025/alexander-zverev-felix-auger-aliassime-video-resumen-mejores-puntos-y-resultado-del-partido-round-robin-hoy_vid60037379/video.shtml)
+
+
+### turquie – bulgarie (N/A, Sat, 15 Nov 2025 10:20:00 -0800)
+
+- **Pronostic Turquie - Bulgarie, Coupe du Monde**: [Link](https://www.sportytrader.com/pronostics/turquie-bulgarie-305083/)
+- **Le but d'Hakan Çalhanoğlu pour la Turquie - Foot - Qualif. Coupe du monde**: [Link](https://sports.orange.fr/videos/football/le-but-d-hakan-calhano-lu-pour-la-turquie-foot-qualif-coupe-du-monde-CNT000002lJRMB.html)
+- **Football - Qualif. Coupe du monde : Le résumé de Turquie - Bulgarie**: [Link](https://www.lequipe.fr/Football/Video/Qualif-coupe-du-monde-le-resume-de-turquie-bulgarie/20220811)
+
+
+### brazil fc (N/A, Sat, 15 Nov 2025 10:00:00 -0800)
+
+- **Arsenal handed second huge injury scare as two defenders suffer blows**: [Link](https://www.standard.co.uk/sport/football/arsenal-fc-gabriel-injury-calafiori-b1258248.html)
+- **Arsenal's Gabriel goes off injured in Brazil game**: [Link](https://www.espn.co.uk/football/story/_/id/46976851/arsenal-gabriel-goes-injured-brazil-friendly-win)
+- **Carlo Ancelotti issues Gabriel injury update amid Arsenal concern and Liverpool title race**: [Link](https://www.liverpool.com/liverpool-fc-news/features/gabriel-injury-carlo-ancelotti-arsenal-32882098)
+
+
+### lamine yamal espagne (N/A, Sat, 15 Nov 2025 09:30:00 -0800)
+
+- **Espagne : le sarcasme de Luis De La Fuente sur le cas Lamine Yamal**: [Link](https://www.footmercato.net/a5573347003279820265-espagne-le-sarcasme-de-luis-de-la-fuente-sur-le-cas-lamine-yamal)
+- **Barça - Espagne, la sortie saignante de Dani Olmo sur Lamine Yamal**: [Link](https://www.goal.com/fr/listes/barca-espagne-la-sortie-saignante-de-dani-olmo-sur-lamine-yamal/blt289f6867ffe7e3b8)
+- **« On parle trop de lui. C’est un garçon… » : la vérité éclate sur Lamine Yamal**: [Link](https://foot-africa.com/actualites/on-parle-trop-de-lui-cest-un-garcon-un-rival-se-confie-sur-lamine-yamal-961622/)
+
+
 ### الطقس غدًا (N/A, Sat, 15 Nov 2025 11:40:00 -0800)
 
 - **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-36-1656025.html)
