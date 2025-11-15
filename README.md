@@ -1,3 +1,17 @@
+### brazil (N/A, Sat, 15 Nov 2025 10:00:00 -0800)
+
+- **COP30: Crowds march on doorstep of UN climate talks in Brazil**: [Link](https://www.bbc.com/news/articles/cy40z22qqwwo)
+- **Protesters block the main entrance to COP30 climate talks in Brazil**: [Link](https://www.cnn.com/2025/11/14/americas/brazil-protesters-cop30-climate-talks-intl-latam)
+- **Indigenous People Take the Stage at COP30 Climate Talks in Belém, Brazil**: [Link](https://www.nytimes.com/2025/11/14/climate/cop30-belem-indigenous-people.html)
+
+
+### tunisie u17 (N/A, Sat, 15 Nov 2025 09:00:00 -0800)
+
+- **Coupe du monde U17 : Pas de but entre la Tunisie et l’Autriche à la pause**: [Link](https://www.africatopsports.com/2025/11/15/coupe-du-monde-u17-pas-de-but-entre-la-tunisie-et-lautriche-a-la-pause/)
+- **Foot-Mondial U17: La Tunisie éliminée en 16es de finale**: [Link](https://www.tap.info.tn/fr/Portail-Sports-FR/19475572-foot-mondial-u17)
+- **Mondial U17 : Les arbitres du match Tunisie U17 - Autriche U17**: [Link](https://www.kawarji.com/actu-96124-mondial-u17-les-arbitres-du-match-tunisie-u17-autriche-u17.html)
+
+
 ### georgia - españa (N/A, Sat, 15 Nov 2025 09:50:00 -0800)
 
 
