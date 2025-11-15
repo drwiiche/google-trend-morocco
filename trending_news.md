@@ -1,3 +1,10 @@
+### agadir (N/A, Sat, 15 Nov 2025 10:40:00 -0800)
+
+- **Agadir: découverte du corps d’un touriste britannique dans la piscine d’un hôtel**: [Link](https://h24info.ma/maroc/agadir-decouverte-du-corps-dun-touriste-britannique-dans-la-piscine-dun-hotel/)
+- **Agadir : un jeune touriste britannique retrouvé mort dans la piscine d’un hôtel**: [Link](https://www.bladi.net/agadir-jeune-touriste-britannique-retrouve-mort-piscine-hotel,117862.html)
+- **Un touriste britannique retrouvé mort dans la piscine d'un hôtel à Agadir**: [Link](https://www.yabiladi.com/articles/details/180990/touriste-britannique-retrouve-mort-dans.html)
+
+
 ### brazil (N/A, Sat, 15 Nov 2025 10:00:00 -0800)
 
 - **COP30: Crowds march on doorstep of UN climate talks in Brazil**: [Link](https://www.bbc.com/news/articles/cy40z22qqwwo)
