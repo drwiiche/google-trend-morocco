@@ -1,3 +1,10 @@
+### football (N/A, Sat, 15 Nov 2025 00:40:00 -0800)
+
+- **High school football: All of the scores from Friday’s quarterfinals**: [Link](https://www.presstelegram.com/2025/11/14/high-school-football-early-look-at-the-scores-from-fridays-quarterfinals/)
+- **Live Coverage: Massachusetts High School Football, quarterfinal round of state tournament**: [Link](https://www.masslive.com/highschoolsports/2025/11/live-coverage-massachusetts-high-school-football-quarterfinal-round-of-state-tournament.html)
+- **South Shore high school football scores and highlights from MIAA quarterfinals**: [Link](https://www.enterprisenews.com/story/sports/high-school/football/2025/11/13/miaa-ma-high-school-football-south-shore-scores-and-highlights-from-playoffs/87123074007/)
+
+
 ### lamine yamal (N/A, Fri, 14 Nov 2025 23:30:00 -0800)
 
 - **Barcelona and RFEF presidents to meet to ease tensions over Lamine Yamal issue**: [Link](https://barcauniversal.com/barcelona-and-rfef-presidents-to-meet-to-ease-tensions-over-lamine-yamal-issue/)
