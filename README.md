@@ -1,3 +1,17 @@
+### جورجيا ضد إسبانيا (N/A, Sat, 15 Nov 2025 08:20:00 -0800)
+
+- **توريس وأويارزابال يقودان هجوم إسبانيا ضد جورجيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-%D9%88%D8%A7%D9%94%D9%88%D9%8A%D8%A7%D8%B1%D8%B2%D8%A7%D8%A8%D8%A7%D9%84-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D8%A7/bltbec8925111f8533e)
+- **تصفيات مونديال 2026: مدرب إسبانيا يرى منتخب بلاده في طريقه لمضاهاة الجيل الأسطوري**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251114-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D8%B1%D9%89-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A8%D9%84%D8%A7%D8%AF%D9%87-%D9%81%D9%8A-%D8%B7%D8%B1%D9%8A%D9%82%D9%87-%D9%84%D9%85%D8%B6%D8%A7%D9%87%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%A3%D8%B3%D8%B7%D9%88%D8%B1%D9%8A)
+- **دي لا فوينتي: منتخب إسبانيا يسير نحو استعادة أمجاد الجيل الذهبي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A-%D9%84%D8%A7-%D9%81%D9%88%D9%8A%D9%86%D8%AA%D9%8A-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D8%B3%D9%8A%D8%B1-%D9%86%D8%AD%D9%88-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A3%D9%85%D8%AC%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A/11685)
+
+
+### géorgie – espagne (N/A, Sat, 15 Nov 2025 08:10:00 -0800)
+
+- **Yamal fait parler, les Mikel s'occupent de marquer**: [Link](https://www.eurosport.fr/football/qualif-coupe-du-monde/2026/qualifications-coupe-du-mode-2026-i-georgie-espagne-i-lamine-yamal-fait-parler-les-mikel-oyarzabal-et-merino-soccupent-de-marquer_sto23241120/story.shtml)
+- **Dean Huijsen forfait avec l’Espagne !**: [Link](https://www.footmercato.net/a8512483542852290185-dean-huijsen-forfait-avec-lespagne)
+- **Real Madrid : inquiétude, un cadre de Xabi Alonso déclare forfait en sélection !**: [Link](https://www.onzemondial.com/liga/real-madrid-inquietude-un-cadre-de-xabi-alonso-declare-forfait-en-selection-971872)
+
+
 ### البرازيل ضد السنغال (N/A, Sat, 15 Nov 2025 08:00:00 -0800)
 
 - **موعد مباراة البرازيل والسنغال الودية 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt8355ad56be273636)
