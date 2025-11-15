@@ -1,3 +1,10 @@
+### météo demain (N/A, Sat, 15 Nov 2025 11:40:00 -0800)
+
+- **Arrivée du gel et de la neige à basse altitude : une semaine prochaine hivernale**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-11-13/arrivee-du-gel-et-de-la-neige-a-basse-altitude-une-semaine-prochaine-hivernale-83128)
+- **"La vague de froid arrive" : vent glacial, -12°C et neige attendus la semaine prochaine, voici les régions concernées**: [Link](https://www.pleinevie.fr/actualites/la-vague-de-froid-arrive-vent-glacial-12c-et-neige-attendus-la-semaine-prochaine-voici-les-regions-concernees-177603.html)
+- **"Une totale bascule du flux d'air" : on vous explique pourquoi les températures vont chuter dans les prochains jours**: [Link](https://www.franceinfo.fr/environnement/meteo/une-totale-bascule-du-flux-d-air-on-vous-explique-pourquoi-les-temperatures-vont-chuter-dans-les-prochains-jours_7616099.html)
+
+
 ### carlos alcaraz (N/A, Sat, 15 Nov 2025 12:10:00 -0800)
 
 - **Zverev se la pega con Aliassime, rival de Alcaraz en las semifinales de Turín**: [Link](https://www.marca.com/tenis/copa-masters/2025/11/14/zverev-pega-aliassime-rival-alcaraz-semifinales-turin.html)
