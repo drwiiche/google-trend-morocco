@@ -1,3 +1,10 @@
+### الطقس (N/A, Fri, 14 Nov 2025 22:20:00 -0800)
+
+- **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-36-1656025.html)
+- **مقاييس الأمطار المسجلة بالمملكة خلال الـ24 ساعة الماضية**: [Link](https://2m.ma/ar/news/%D9%85%D9%82%D8%A7%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%8024-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A%D8%A9-20251114)
+- **أمطار وزخات رعدية ورياح قوية تضرب المغرب لعدة أيام**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA-969111.html)
+
+
 ### billetterie can 2025 (N/A, Fri, 14 Nov 2025 15:20:00 -0800)
 
 - **Ouverture le 15 novembre de la troisième phase de vente des billets de la TotalEnergies CAF AFCON Maroc 2025, dans un contexte de demande mondiale sans précédent**: [Link](https://www.cafonline.com/fr/can2025/infos/ouverture-le-15-novembre-de-la-troisieme-phase-de-vente-des-billets-de-la-totalenergies-caf-afcon-maroc-2025-dans-un-contexte-de-demande-mondiale-sans-precedent/)
