@@ -1,3 +1,10 @@
+### can tickets (N/A, Sat, 15 Nov 2025 01:30:00 -0800)
+
+- **You Can Now Buy Ticketmaster Tickets with Alexa+**: [Link](https://blog.ticketmaster.com/buy-ticketmaster-tickets-with-alexa/)
+- **Amazon’s Alexa+ Now Helps Users Find and Purchase Event Tickets Through Ticketmaster**: [Link](https://news.ssbcrack.com/amazons-alexa-now-helps-users-find-and-purchase-event-tickets-through-ticketmaster/)
+- **How much are the cheapest tickets for Hayley Williams’ 2026 solo tour?**: [Link](https://nypost.com/2025/11/14/ticket-sales/hayley-williams-at-a-bachelorette-party-solo-tour-where-to-buy-tickets-best-prices/)
+
+
 ### football (N/A, Sat, 15 Nov 2025 00:40:00 -0800)
 
 - **High school football: All of the scores from Friday’s quarterfinals**: [Link](https://www.presstelegram.com/2025/11/14/high-school-football-early-look-at-the-scores-from-fridays-quarterfinals/)
