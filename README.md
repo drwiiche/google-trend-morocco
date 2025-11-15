@@ -1,3 +1,8 @@
+### georgia - españa (N/A, Sat, 15 Nov 2025 09:50:00 -0800)
+
+
+
+
 ### georgia vs spain (N/A, Sat, 15 Nov 2025 08:30:00 -0800)
 
 - **Dean Huijsen to miss Spain match with groin issue, set for further scans - The Athletic**: [Link](https://www.nytimes.com/athletic/6809535/2025/11/15/dean-huijsen-spain-injury-update/)
