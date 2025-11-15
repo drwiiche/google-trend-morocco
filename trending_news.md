@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Sat, 15 Nov 2025 06:10:00 -0800)
+
+- **Diretta Sinner-De Minaur oggi semifinale Atp Finals Torino. Live risultato e aggiornamenti**: [Link](https://www.adnkronos.com/sport/sinner-de-minaur-oggi-semifinale-atp-finals-torino-live-risultato-aggiornamenti_33rPk6zaikM3toGUTFoYHN)
+- **Sinner-Alcaraz, i carissimi nemici e l’eterna finale. Jannik: «Lui al numero 1? Sono felice, ma non troppo»**: [Link](https://www.ilmessaggero.it/sport/tennis/sinner_alcaraz_eterna_finale_nemici_amici_atp_finals_torino_ultime_notizie-9189228.html)
+- **Duemila euro per un posto all’Inalpi Arena: Sinner verso la finale scatena la caccia ai biglietti**: [Link](https://torino.repubblica.it/cronaca/2025/11/15/news/duemila_euro_per_un_posto_all_inalpi_arena_sinner_verso_la_finale_scatena_la_caccia_ai_biglietti-424982207/?ref=-BH-I0-P-S1-T1)
+
+
 ### kazakhstan – belgique (N/A, Sat, 15 Nov 2025 05:50:00 -0800)
 
 - **La Belgique à une victoire face au Kazakhstan de se qualifier pour la Coupe du monde 2026**: [Link](https://www.lequipe.fr/Football/Actualites/La-belgique-a-une-victoire-face-au-kazakhstan-de-se-qualifier-pour-la-coupe-du-monde-2026/1609902)
