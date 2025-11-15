@@ -1,3 +1,10 @@
+### streameast (N/A, Sat, 15 Nov 2025 13:50:00 -0800)
+
+- **StreamEast alternatives for free NFL streams today**: [Link](https://www.syracuse.com/tv/2025/11/streameast-alternatives-for-free-nfl-streams-today.html-2)
+- **Streameast: How the authorities took down the world’s largest illegal sports streaming platform**: [Link](https://www.nytimes.com/athletic/6742754/2025/11/11/streameast-illegal-streaming-raid/)
+- **StreamEast: The price of piracy**: [Link](https://westerngazette.ca/sports/streameast-the-price-of-piracy/article_89791034-a188-41dc-bb18-38afbe2acb64.html)
+
+
 ### météo demain (N/A, Sat, 15 Nov 2025 11:40:00 -0800)
 
 - **Arrivée du gel et de la neige à basse altitude : une semaine prochaine hivernale**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-11-13/arrivee-du-gel-et-de-la-neige-a-basse-altitude-une-semaine-prochaine-hivernale-83128)
