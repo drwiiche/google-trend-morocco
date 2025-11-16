@@ -1,3 +1,10 @@
+### الطقس (N/A, Sat, 15 Nov 2025 22:00:00 -0800)
+
+- **24 ساعة أمطار.. بيان مهم بشأن حالة الطقس اليوم: «الخريف يُكشر عن أنيابه»**: [Link](https://www.almasryalyoum.com/news/details/4129183)
+- **ظاهرة مناخية مقلقة تتسبب في ارتفاع درجات الحرارة بشكل غير معتاد في حالة الطقس لهذا الأحد**: [Link](https://harammissr.com/47644/%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D9%85%D9%86%D8%A7%D8%AE%D9%8A%D8%A9-%D9%85%D9%82%D9%84%D9%82%D8%A9-%D8%AA%D8%AA%D8%B3%D8%A8%D8%A8-%D9%81%D9%8A-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AF%D8%B1%D8%AC/)
+- **حالة طقس اليوم الأحد 16-11-2025 في مصر**: [Link](https://almashhadalaraby.com/news/537940)
+
+
 ### islam makhachev vs jack della maddalena (N/A, Sat, 15 Nov 2025 15:10:00 -0800)
 
 - **UFC 322 live: Shevchenko thwarts Zhang, keeps the flyweight title**: [Link](https://www.espn.com/mma/story/_/id/46949041/ufc-322-live-results-analysis-jack-della-maddalena-islam-makhachev-valentina-shevchenko-zhang-weili)
