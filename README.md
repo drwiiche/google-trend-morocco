@@ -1,3 +1,17 @@
+### البرتغال ضد أرمينيا (N/A, Sun, 16 Nov 2025 05:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة البرتغال وأرمينيا في التصفيات المؤهلة إلى كأس العالم 2026 أوروبا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D8%A3%D8%B1%D9%85%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt0f741e1b574d3dd6)
+- **أفضل 10 لاعبين من البرتغال في تصفيات كأس العالم**: [Link](https://hihi2.com/2025/11/16/p3515196.html)
+- **كريستيانو رونالدو يوجّه رسالة تحفيزية للمنتخب قبل مباراة أرمينيا الحاسمة**: [Link](https://source-7.com/uncategorized/12491.html)
+
+
+### portugal vs armenia (N/A, Sun, 16 Nov 2025 05:20:00 -0800)
+
+- **Cristiano Ronaldo: Without their talisman, who will step up and score Portugal’s goals?**: [Link](https://www.flashscore.com/news/soccer-world-cup-without-cristiano-ronaldo-who-will-step-up-and-score-portugal-s-goals/04luPTGb/)
+- **Bosnian refereeing team appointed for Portugal vs Armenia match**: [Link](https://sportaran.com/en/post/bosnijskaya-brigada-arbitrov-naznachena-na-match-portugaliya-armeniya/)
+- **Cristiano Ronaldo, his first reaction after his red**: [Link](https://frenchfootballweekly.com/2025/11/16/cristiano-ronaldo-his-first-reaction-after-his-red/)
+
+
 ### portugal – arménie (N/A, Sun, 16 Nov 2025 05:10:00 -0800)
 
 - **Portugal : Roberto Martínez encense Gonçalo Ramos**: [Link](https://www.footmercato.net/a714805103834956042-portugal-roberto-martinez-encense-goncalo-ramos)
