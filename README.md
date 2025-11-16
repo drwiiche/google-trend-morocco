@@ -1,3 +1,10 @@
+### nigeria – rd congo (N/A, Sun, 16 Nov 2025 12:40:00 -0800)
+
+- **Nigeria-RD Congo : à quelle heure et sur quelle chaîne suivre la finale des barrages africains pour la Coupe du monde 2026 ?**: [Link](https://www.lequipe.fr/Football/Actualites/Nigeria-rd-congo-a-quelle-heure-et-sur-quelle-chaine-suivre-la-finale-des-barrages-africains-pour-la-coupe-du-monde-2026/1609777)
+- **Mondial 2026 - barrages africains : au bout des tirs au but, la RD Congo l'emporte contre le Nigeria**: [Link](https://www.france24.com/fr/sports/20251116-mondial-2026-barrages-africains-nigeria-rd-congo-resume)
+- **Qualifs CdM 2026 : la RDC élimine le Nigéria et se rapproche du Mondial !**: [Link](https://www.footmercato.net/a2895383602061945599-qualifs-cdm-2026-la-rdc-elimine-le-nigeria-et-se-rapproche-du-mondial)
+
+
 ### الملحق العالمي لكأس العالم 2026 (N/A, Sun, 16 Nov 2025 14:40:00 -0800)
 
 - **الكونغو الديمقراطية في ملحق المونديال**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7-1656983.html)
