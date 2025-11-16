@@ -1,3 +1,10 @@
+### portugal (N/A, Sun, 16 Nov 2025 06:30:00 -0800)
+
+- **Mundial2026: Gonçalo Ramos rende Ronaldo em ‘onze’ com cinco alterações**: [Link](https://www.correiodamanhacanada.com/mundial2026-goncalo-ramos-rende-ronaldo-em-onze-com-cinco-alteracoes/)
+- **Renato Veiga estreia-se a marcar e coloca Portugal na frente (vídeo)**: [Link](https://www.abola.pt/noticias/renato-veiga-estreia-se-a-marcar-e-coloca-portugal-na-frente-video-2025111614165107038)
+- **Portugal x Armênia ao vivo: onde assistir ao jogo das Eliminatórias**: [Link](https://www.365scores.com/pt-br/news/magazine/portugal-x-armenia-vivo-jogo/)
+
+
 ### alerte a la bombe bfmtv (N/A, Sun, 16 Nov 2025 04:10:00 -0800)
 
 - **Fausse alerte à la bombe chez BFMTV : le direct interrompu pendant près de 2h30**: [Link](https://www.leparisien.fr/culture-loisirs/tv/alerte-a-la-bombe-chez-bfmtv-le-direct-interrompu-15-11-2025-2E2KSLBGZNBGTJ6MHEJ4G73WD4.php)
