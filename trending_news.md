@@ -1,3 +1,17 @@
+### sinner (N/A, Sun, 16 Nov 2025 10:10:00 -0800)
+
+- **ATP Finals tennis: Carlos Alcaraz v Jannik Sinner in the final – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/16/atp-finals-tennis-carlos-alcaraz-v-jannik-sinner-in-the-final-live)
+- **The unexpected role of Joao Sousa in these ATP Finals 2025**: [Link](https://www.puntodebreak.com/en/2025/11/16/the-unexpected-role-of-joao-sousa-in-these-atp-finals-2025)
+- **ATP Finals prize money: How much is on the line as Alcaraz and Sinner clash for year-end prize?**: [Link](https://www.independent.co.uk/sport/football/atp-finals-prize-money-winner-undefeated-singles-doubles-b2866198.html)
+
+
+### coupe arabe de la fifa (N/A, Sun, 16 Nov 2025 09:00:00 -0800)
+
+- **Coupe Arabe de la FIFA (préparation): L’équipe nationale A’ s’impose face à Djibouti**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%AF%D8%AC%D9%8A%D8%A8%D9%88%D8%AA/)
+- **Préparatifs de la Coupe arabe : les Lions de l’Atlas dominent Djibouti en amical**: [Link](https://lematin.ma/sports/preparatifs-de-la-coupe-arabe-les-lions-de-latlas-dominent-djibouti/313905)
+- **Belhanda : « Rejoindre la sélection marocaine est un grand honneur en vue de la Coupe Arabe**: [Link](https://m.elbotola.com/fr/article/2025-11-15-19-04-674.html)
+
+
 ### albania vs england (N/A, Sun, 16 Nov 2025 10:00:00 -0800)
 
 - **Albania vs England LIVE: World Cup 2026 Qualifier score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cq6z1jgjyn4t)
