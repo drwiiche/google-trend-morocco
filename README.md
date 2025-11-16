@@ -1,3 +1,17 @@
+### alerte météo maroc (N/A, Sat, 15 Nov 2025 22:30:00 -0800)
+
+- **Météo: les couleurs du ciel ce samedi 15 novembre**: [Link](https://h24info.ma/maroc/meteo-les-couleurs-du-ciel-ce-samedi-15-novembre/)
+- **Nord du Maroc : un week-end marqué par des averses orageuses**: [Link](https://www.leconomiste.com/flash-infos/nord-du-maroc-un-week-end-marque-par-des-averses-orageuses/)
+- **Alerte aux orages dans le nord du Maroc**: [Link](https://private-admin.medias24.com/2025/11/15/1578994/)
+
+
+### météo (N/A, Sat, 15 Nov 2025 22:10:00 -0800)
+
+- **Arrivée du gel et de la neige à basse altitude : une semaine prochaine hivernale**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-11-13/arrivee-du-gel-et-de-la-neige-a-basse-altitude-une-semaine-prochaine-hivernale-83128)
+- **"La vague de froid arrive" : vent glacial, -12°C et neige attendus la semaine prochaine, voici les régions concernées**: [Link](https://www.pleinevie.fr/actualites/la-vague-de-froid-arrive-vent-glacial-12c-et-neige-attendus-la-semaine-prochaine-voici-les-regions-concernees-177603.html)
+- **Retour du froid en France : est-ce que cette météo va perdurer dans le temps ?**: [Link](https://www.tameteo.com/actualites/previsions/retour-du-froid-en-france-est-ce-que-cette-meteo-va-perdurer-dans-le-temps-risque-intemperies-automne-hiver.html)
+
+
 ### الطقس (N/A, Sat, 15 Nov 2025 22:00:00 -0800)
 
 - **24 ساعة أمطار.. بيان مهم بشأن حالة الطقس اليوم: «الخريف يُكشر عن أنيابه»**: [Link](https://www.almasryalyoum.com/news/details/4129183)
