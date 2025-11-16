@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Sun, 16 Nov 2025 09:40:00 -0800)
+
+- **Punti Atp e un montepremi da sogno: ecco quanto guadagna chi vince le Finals**: [Link](https://www.gazzetta.it/Tennis/ATP/16-11-2025/atp-finals-punti-atp-e-quanto-guadagna-chi-vince-il-torneo.shtml)
+- **Sinner-Alcaraz l'intervista doppia, Jannik: «Il nostro rapporto è migliorato». Carlos: «La rivalità è solo in campo»**: [Link](https://www.leggo.it/schede/16_novembre_2025_sinner_alcaraz_intervista_doppia_cnn_cosa_hanno_detto-9192680.html)
+- **Rassegna stampa – La finale più bella**: [Link](https://www.ubitennis.com/blog/2025/11/16/rassegna-stampa-la-finale-piu-bella/)
+
+
 ### carlos alcaraz (N/A, Sun, 16 Nov 2025 09:30:00 -0800)
 
 - **Alcaraz - Sinner hoy, en directo: final de las ATP Finals 2025, última hora en vivo online**: [Link](https://as.com/tenis/final_atp/alcaraz-sinner-en-directo-final-de-las-atp-finals-en-turin-hoy-en-vivo-f202511-n/)
