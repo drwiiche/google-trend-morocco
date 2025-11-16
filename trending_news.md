@@ -1,3 +1,10 @@
+### éliminatoires pour la coupe du monde (N/A, Sun, 16 Nov 2025 06:40:00 -0800)
+
+- **Le calendrier de l'équipe de France féminine pour les qualifications pour la Coupe du monde 2027 est connu**: [Link](https://www.lequipe.fr/Football/Actualites/Le-calendrier-de-l-equipe-de-france-feminine-pour-les-qualifications-pour-la-coupe-du-monde-2027-est-connu/1609959)
+- **Équipes de France féminine et espoirs : on connaît les affiches des deux matchs internationaux à l'Abbé-Deschamps, au printemps 2026**: [Link](https://www.lyonne.fr/auxerre-89000/sports/equipes-de-france-feminine-et-espoirs-on-connait-les-affiches-des-deux-matchs-internationaux-a-l-abbe-deschamps-au-printemps-2026_14781916/)
+- **Les Bleues face aux Pays-Bas à l’Abbé Deschamps**: [Link](https://www.aja.fr/les-bleues-face-aux-pays-bas-a-labbe-deschamps/)
+
+
 ### portugal (N/A, Sun, 16 Nov 2025 06:30:00 -0800)
 
 - **Mundial2026: Gonçalo Ramos rende Ronaldo em ‘onze’ com cinco alterações**: [Link](https://www.correiodamanhacanada.com/mundial2026-goncalo-ramos-rende-ronaldo-em-onze-com-cinco-alteracoes/)
