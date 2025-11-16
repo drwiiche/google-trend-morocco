@@ -1,3 +1,10 @@
+### albania vs england (N/A, Sun, 16 Nov 2025 10:00:00 -0800)
+
+- **Albania vs England LIVE: World Cup 2026 Qualifier score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cq6z1jgjyn4t)
+- **🚨Breaking news: Kane and Bellingham start in Albania**: [Link](https://ca.sports.yahoo.com/news/breaking-news-kane-bellingham-start-154000959.html)
+- **Tuchel: Albania is difficult to break, we have the solution for Armando Broja**: [Link](https://telegrafi.com/en/Tuchel-Albania-is-hard-to-break-and-we-have-the-solution-for-Armando-Broj/)
+
+
 ### jannik sinner (N/A, Sun, 16 Nov 2025 09:40:00 -0800)
 
 - **Punti Atp e un montepremi da sogno: ecco quanto guadagna chi vince le Finals**: [Link](https://www.gazzetta.it/Tennis/ATP/16-11-2025/atp-finals-punti-atp-e-quanto-guadagna-chi-vince-il-torneo.shtml)
