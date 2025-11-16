@@ -1,3 +1,17 @@
+### star academy (N/A, Sun, 16 Nov 2025 09:10:00 -0800)
+
+- **Léna Situations à la "Star Academy" : la réaction des élèves sous le choc devient virale, l’influenceuse les recadre illico**: [Link](https://www.public.fr/lena-situations-a-la-star-academy-la-reaction-des-eleves-sous-le-choc-devient-virale-linfluenceuse-les-recadre-illico)
+- **Léna Situations laisse planer le doute sur la fin de ses célèbres vlogs d’août**: [Link](https://stephanelarue.com/lena-situations-laisse-planer-le-doute-sur-la-fin-de-ses-celebres-vlogs-daout/)
+- **Voici pourquoi Lena Situations a rencontré les élèves de la « Star Academy » (vidéo)**: [Link](https://soirmag.lesoir.be/711172/article/2025-11-16/voici-pourquoi-lena-situations-rencontre-les-eleves-de-la-star-academy-video)
+
+
+### عيد الاستقلال (N/A, Sun, 16 Nov 2025 09:10:00 -0800)
+
+- **تفاصيل عطلة جديدة في انتظار المغاربة**: [Link](https://m.alayam24.com/articles-598270.html)
+- **المغاربة يستفيدون من عطلة عيد الاستقلال**: [Link](https://agadir24.info/%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D8%B3%D8%AA%D9%81%D9%8A%D8%AF%D9%88%D9%86-%D9%85%D9%86-%D8%B9%D8%B7%D9%84%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84.html)
+- **المغاربة يستفيدون من يوم عطلة وطنية بمناسبة عيد الاستقلال يوم 18 نونبر**: [Link](https://alakhbar55.ma/%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D8%B3%D8%AA%D9%81%D9%8A%D8%AF%D9%88%D9%86-%D9%85%D9%86-%D9%8A%D9%88%D9%85-%D8%B9%D8%B7%D9%84%D8%A9-%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A8%D9%85/)
+
+
 ### azerbaijan vs france (N/A, Sun, 16 Nov 2025 08:50:00 -0800)
 
 - **France predicted XI v Azerbaijan: Didier Deschamps to fully rotate, Lucas Chevalier set for debut**: [Link](https://www.getfootballnewsfrance.com/2025/france-predicted-xi-v-azerbaijan-didier-deschamps-to-fully-rotate-lucas-chevalier-set-for-debut/)
