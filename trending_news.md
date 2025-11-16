@@ -1,3 +1,10 @@
+### italie vs norvège (N/A, Sun, 16 Nov 2025 12:30:00 -0800)
+
+- **Qualifs CdM 2026 : l’Italie jouera les barrages, Israël termine avec une victoire**: [Link](https://www.footmercato.net/a4477209892321242131-qualifs-cdm-2026-litalie-jouera-les-barrages-israel-termine-avec-une-victoire)
+- **Mondial-2026 : "Battre la Norvège 9-0, c'est impensable", admet Gennaro Gattuso, sélec tionneur de l'Italie**: [Link](https://www.eurosport.fr/football/qualif-coupe-du-monde/2026/mondial-2026-battre-la-norvege-9-0-cest-impensable-admet-gennaro-gattuso-selec-tionneur-de-litalie_sto23241400/story.shtml)
+- **Coupe du monde 2026: la Norvège se qualifie aux dépens de l'Italie, qui jouera les barrages**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/direct-coupe-du-monde-2026-portugal-armenie-hongrie-irlande-italie-norvege-les-qualifications-en-live_LS-202511160253.html)
+
+
 ### فهد المولد (N/A, Sun, 16 Nov 2025 14:20:00 -0800)
 
 - **صدمة كروية تهز الشارع الرياضي السعودي.. تقارير طبية: فهد المولد في خطر والجماهير تعيش حالة ذعر**: [Link](https://yemen-press.net/news148458.html)
