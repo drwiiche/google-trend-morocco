@@ -1,3 +1,10 @@
+### hungary vs ireland (N/A, Sun, 16 Nov 2025 08:00:00 -0800)
+
+- **Where to stream Hungary vs. Ireland FIFA World Cup Qualifying match today**: [Link](https://www.mlive.com/tv/2025/11/where-to-stream-hungary-vs-ireland-fifa-world-cup-qualifying-match-today.html)
+- **Hallgrimsson makes just one change for Ireland's must-win clash in Hungary**: [Link](https://www.the42.ie/ireland-team-to-face-portugal-4-6876391-Nov2025/)
+- **Ireland head to Hungary in crucial WC qualifier; Portugal host Armenia**: [Link](https://ca.sports.yahoo.com/news/ireland-head-hungary-crucial-wc-133900553.html)
+
+
 ### portugal fc (N/A, Sun, 16 Nov 2025 07:10:00 -0800)
 
 - **Farioli volta a chamar Nikolov e vários da equipa B na preparação para o Sintrense**: [Link](https://www.ojogo.pt/futebol/artigo/farioli-volta-a-chamar-nikolov-e-varios-da-equipa-b-na-preparacao-para-o-sintrense/18020476)
