@@ -1,3 +1,10 @@
+### maroc vs mali u17 (N/A, Sun, 16 Nov 2025 04:20:00 -0800)
+
+- **Coupe du monde U17 de la FIFA (Maroc-Mali): séance d’entraînement des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D9%82%D8%A7-9/)
+- **Mondial U17 : Les Lionceaux de l'Atlas renversent les États-Unis et se qualifient aux 8es de finale**: [Link](https://lematin.ma/sports/mondial-u17-les-lionceaux-de-latlas-qualifies-pour-les-8es-de-finale/313712)
+- **Regragui : « Le public doit toujours être derrière la sélection, quel que soit le résultat… Il y a 15 jours, on disait que les U17 ne feraient rien, et aujourd'hui ils sont qualifiés**: [Link](https://m.elbotola.com/fr/article/2025-11-14-22-52-133.html)
+
+
 ### nayef aguerd (N/A, Sun, 16 Nov 2025 02:50:00 -0800)
 
 - **OM : retour à La Commanderie anticipé pour Nayef Aguerd**: [Link](https://www.laprovence.com/article/om/25904065047318/om-retour-a-la-commanderie-anticipe-pour-nayef-aguerd)
