@@ -1,3 +1,17 @@
+### الملحق العالمي لكأس العالم 2026 (N/A, Sun, 16 Nov 2025 14:40:00 -0800)
+
+- **الكونغو الديمقراطية في ملحق المونديال**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7-1656983.html)
+- **نيجيريا ضد الكونغو الديمقراطية بالملحق الأفريقي.. الموعد والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/11/15/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9)
+- **الملحق الأفريقي: نيجيريا تسحق الجابون.. والكونغو الديمقراطية تقهر الكاميرون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AD%D9%82-%D8%A7%D9%84%D8%AC%D8%A7%D8%A8%D9%88%D9%86--%D9%88%D8%AA%D8%A8%D9%84%D8%BA-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A/blt9e033aae371e077d)
+
+
+### italy fc (N/A, Sun, 16 Nov 2025 13:20:00 -0800)
+
+- **🍔 After international win: Haaland treats teammates to burgers**: [Link](https://onefootball.com/en/news/after-international-win-haaland-treats-teammates-to-burgers-41956113)
+- **Italy 1-4 Norway: Report, result and goals as late Haaland brace downs Azzurri**: [Link](https://www.101greatgoals.com/football/internationals/italy-1-4-norway-report-result-goals/)
+- **Erling Haaland makes 'a lot on my shoulders' claim as part of Man City striker's 'great responsibility' to lead Norway to first World Cup in 28 years**: [Link](https://uk.sports.yahoo.com/news/erling-haaland-makes-lot-shoulders-095523360.html)
+
+
 ### italie vs norvège (N/A, Sun, 16 Nov 2025 12:30:00 -0800)
 
 - **Qualifs CdM 2026 : l’Italie jouera les barrages, Israël termine avec une victoire**: [Link](https://www.footmercato.net/a4477209892321242131-qualifs-cdm-2026-litalie-jouera-les-barrages-israel-termine-avec-une-victoire)
