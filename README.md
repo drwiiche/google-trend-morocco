@@ -1,3 +1,10 @@
+### albanie – angleterre (N/A, Sun, 16 Nov 2025 08:40:00 -0800)
+
+- **Résumé du match Albanie - Angleterre, 0h00 le 17 novembre : En quête d'un record à Tirana**: [Link](https://www.vietnam.vn/fr/nhan-dinh-tran-dau-albania-vs-anh-0h00-ngay-17-11-kiem-tim-ky-luc-o-tirana)
+- **Tuchel ne préfère pas s’intéresser au possible record de l’Angleterre**: [Link](https://www.flashscore.fr/actualites/football-coupe-du-monde-tuchel-ne-prefere-pas-s-interesser-au-possible-record-de-l-angleterre/W2q78qLc/)
+- **PRONOS PARIS RMC Le pari sûr du 16 novembre - Qualif. Coupe du Monde**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-16-novembre-qualif-coupe-du-monde_AN-202511150337.html)
+
+
 ### azerbaïdjan – france (N/A, Sun, 16 Nov 2025 08:10:00 -0800)
 
 - **Lucas Chevalier attendu au tournant, Robert Lewandowski ferme la porte à un départ**: [Link](https://www.footmercato.net/a2950172679485208146-lucas-chevalier-attendu-au-tournant-robert-lewandowski-ferme-la-porte-a-un-depart)
