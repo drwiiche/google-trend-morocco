@@ -1,3 +1,10 @@
+### alerte a la bombe bfmtv (N/A, Sun, 16 Nov 2025 04:10:00 -0800)
+
+- **Fausse alerte à la bombe chez BFMTV : le direct interrompu pendant près de 2h30**: [Link](https://www.leparisien.fr/culture-loisirs/tv/alerte-a-la-bombe-chez-bfmtv-le-direct-interrompu-15-11-2025-2E2KSLBGZNBGTJ6MHEJ4G73WD4.php)
+- **Le siège de RMC BFM à Paris évacué après une alerte à la bombe**: [Link](https://www.20minutes.fr/faits_divers/4185846-20251115-paris-siege-rmc-bfm-evacue-apres-alerte-bombe-directs-suspendus)
+- **Que s'est-il passé au siège de BFMTV? Les directs suspendus, la police intervient en masse pour évacuer les collaborateurs**: [Link](https://www.lalibre.be/international/europe/2025/11/15/que-se-passe-t-il-au-siege-de-bfmtv-les-directs-suspendus-la-police-intervient-en-masse-pour-evacuer-les-collaborateurs-Z7VHZV3SGZHRHN7F6HAIOSZE2I/)
+
+
 ### iphone 16 (N/A, Sun, 16 Nov 2025 05:30:00 -0800)
 
 - **iPhone16eはすでにオワコン扱い？リーカーが「失敗の廉価モデル」と酷評 - iPhone Mania**: [Link](https://iphone-mania.jp/iphone16-599008/)
