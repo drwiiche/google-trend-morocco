@@ -1,3 +1,10 @@
+### أمطار (N/A, Sat, 15 Nov 2025 16:40:00 -0800)
+
+- **أمطار رعدية ورياح قوية بعدة مناطق**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-1655802.html)
+- **نشرة إنذارية… زخات مطرية محليا قوية مرتقبة اليوم السبت وغدا الأحد بعدد من مناطق المملكة – اليوم 24**: [Link](https://alyaoum24.com/1994225.html)
+- **أمطار رعدية قوية… نشرة إنذارية تشمل طنجة وتطوان وعدة مناطق شمالية**: [Link](https://tanjanews.com/177497.html)
+
+
 ### alerte météo maroc nord (N/A, Sat, 15 Nov 2025 15:00:00 -0800)
 
 - **Météo: les couleurs du ciel ce samedi 15 novembre**: [Link](https://h24info.ma/maroc/meteo-les-couleurs-du-ciel-ce-samedi-15-novembre/)
