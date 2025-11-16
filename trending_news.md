@@ -1,3 +1,10 @@
+### turquie (N/A, Sun, 16 Nov 2025 06:50:00 -0800)
+
+- **Une touriste et ses deux enfants décèdent après un repas en Turquie**: [Link](https://www.20minutes.fr/monde/4185621-20251114-turquie-touriste-deux-enfants-decedent-apres-avoir-mange-moules-pommes-terre-farcies)
+- **Drame à Istanbul : une Allemande et ses deux enfants retrouvés morts, des membres du personnel de l’hôtel arrêtés**: [Link](https://www.rtl.be/actu/monde/international/drame-istanbul-une-allemande-et-ses-deux-enfants-retrouves-morts-des-membres-du/2025-11-16/article/770598)
+- **Turquie: une intoxication tue trois touristes, un hôtel évacué**: [Link](https://www.armenews.com/turquie-une-intoxication-tue-trois-touristes-un-hotel-evacue/)
+
+
 ### éliminatoires pour la coupe du monde (N/A, Sun, 16 Nov 2025 06:40:00 -0800)
 
 - **Le calendrier de l'équipe de France féminine pour les qualifications pour la Coupe du monde 2027 est connu**: [Link](https://www.lequipe.fr/Football/Actualites/Le-calendrier-de-l-equipe-de-france-feminine-pour-les-qualifications-pour-la-coupe-du-monde-2027-est-connu/1609959)
