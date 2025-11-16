@@ -1,3 +1,10 @@
+### فهد المولد (N/A, Sun, 16 Nov 2025 14:20:00 -0800)
+
+- **صدمة كروية تهز الشارع الرياضي السعودي.. تقارير طبية: فهد المولد في خطر والجماهير تعيش حالة ذعر**: [Link](https://yemen-press.net/news148458.html)
+- **بعد غيبوبة استمرت عامًا كاملًا .. وفاة اللاعب السعودي فهد المولد**: [Link](https://www.rumonline.net/article/751613)
+- **فهد المولد في رحمة الله.. طبيب المنتخب السعودي ينفجر باكياً ! (فيديو)**: [Link](https://yemen-press.net/news148062.html)
+
+
 ### florentino pérez (N/A, Sun, 16 Nov 2025 14:00:00 -0800)
 
 - **NFL en el Bernabéu: las caras VIP de una cita histórica en Madrid**: [Link](https://as.com/tikitakas/fotorrelato/nfl-en-el-bernabeu-los-famosos-que-asistieron-al-historico-debut-en-madrid-f202511-f/)
