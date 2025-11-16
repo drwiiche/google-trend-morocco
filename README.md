@@ -1,3 +1,17 @@
+### lamine yamal fc barcelone espagne (N/A, Sat, 15 Nov 2025 23:40:00 -0800)
+
+- **Espagne : le sarcasme de Luis De La Fuente sur le cas Lamine Yamal**: [Link](https://www.footmercato.net/a5573347003279820265-espagne-le-sarcasme-de-luis-de-la-fuente-sur-le-cas-lamine-yamal)
+- **Barça - Espagne, la sortie saignante de Dani Olmo sur Lamine Yamal**: [Link](https://www.goal.com/fr/listes/barca-espagne-la-sortie-saignante-de-dani-olmo-sur-lamine-yamal/blt289f6867ffe7e3b8)
+- **Lamine Yamal privé de Coupe du monde 2026 ?**: [Link](https://www.football.fr/coupe-du-monde-2026/lamine-yamal-prive-de-coupe-du-monde-2026-784440.html)
+
+
+### maroc football (N/A, Sat, 15 Nov 2025 23:40:00 -0800)
+
+- **Coupe du monde U17 de la FIFA (Maroc-Mali): séance d’entraînement des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D9%82%D8%A7-9/)
+- **Regragui : « Le public doit toujours être derrière la sélection, quel que soit le résultat… Il y a 15 jours, on disait que les U17 ne feraient rien, et aujourd'hui ils sont qualifiés**: [Link](https://m.elbotola.com/fr/article/2025-11-14-22-52-133.html)
+- **Mondial U17 : La victoire contre la Nouvelle-Calédonie a redonné confiance aux joueurs (Nabil Baha)**: [Link](https://lematin.ma/sports/mondial-u17-cest-un-nouveau-tournoi-qui-commence-pour-le-maroc-baha/313362)
+
+
 ### alerte météo maroc (N/A, Sat, 15 Nov 2025 22:30:00 -0800)
 
 - **Météo: les couleurs du ciel ce samedi 15 novembre**: [Link](https://h24info.ma/maroc/meteo-les-couleurs-du-ciel-ce-samedi-15-novembre/)
