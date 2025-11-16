@@ -1,3 +1,10 @@
+### شاهد (N/A, Sun, 16 Nov 2025 11:10:00 -0800)
+
+- **مباشر مباراة إيطاليا ضد النرويج في تصفيات كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/16/italy-vs-norway)
+- **ما القنوات الناقلة لمباراة إيطاليا والنرويج في التصفيات المؤهلة إلى كأس العالم 2026 أوروبا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/bltae346c385f3b59d7)
+- **"في السابق كان هناك منتخبان أفريقيان فقط".. غاتوزو يبرّر معاناة إيطاليا في تصفيات كأس العالم**: [Link](https://m.elbotola.com/article/2025-11-14-16-03-860.html)
+
+
 ### italy vs norway (N/A, Sun, 16 Nov 2025 11:20:00 -0800)
 
 - **Gattuso leaves three players out of Italy squad for Norway game**: [Link](https://football-italia.net/gattuso-3-players-out-italy-squad-norway/)
