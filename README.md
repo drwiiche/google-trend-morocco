@@ -1,3 +1,10 @@
+### islam makhachev vs jack della maddalena (N/A, Sat, 15 Nov 2025 15:10:00 -0800)
+
+- **UFC 322 live: Shevchenko thwarts Zhang, keeps the flyweight title**: [Link](https://www.espn.com/mma/story/_/id/46949041/ufc-322-live-results-analysis-jack-della-maddalena-islam-makhachev-valentina-shevchenko-zhang-weili)
+- **UFC 322 live blog: Jack Della Maddalena vs. Islam Makhachev**: [Link](https://www.mmafighting.com/ufc-events-ppv/456405/ufc-322-live-blog-jack-della-maddalena-vs-islam-makhachev)
+- **UFC Tonight: Fight By Fight Preview | VeChain UFC 322: Della Maddalena vs Makhachev**: [Link](https://www.ufc.com/news/ufc-tonight-fight-fight-preview-vechain-ufc-322-della-maddalena-vs-makhachev)
+
+
 ### ufc 322 live (N/A, Sat, 15 Nov 2025 19:30:00 -0800)
 
 - **Sean Brady | Grindin’**: [Link](https://www.ufc.com/news/sean-brady-grindin-vechain-ufc-322)
