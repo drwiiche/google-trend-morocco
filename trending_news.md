@@ -1,3 +1,10 @@
+### italy (N/A, Sun, 16 Nov 2025 13:20:00 -0800)
+
+- **Italy fighting to avoid another 'apocalyptic' World Cup failure**: [Link](https://www.bbc.com/sport/football/articles/clyzeydppzdo)
+- **AMAN - ANSA - Italy boss Gattuso hits back at jeerers after Moldova win**: [Link](https://www.aman-alliance.org/Home/ContentDetail/97329)
+- **Italy vs. Moldova Match Highlights Economic and Sporting Ties**: [Link](https://meyka.com/blog/italy-vs-moldova-match-highlights-economic-and-sporting-ties-1411/)
+
+
 ### نيجيريا ضد الكونغو الديمقراطية (N/A, Sun, 16 Nov 2025 11:50:00 -0800)
 
 - **نيجيريا ضد الكونغو الديمقراطية بالملحق الأفريقي.. الموعد والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/11/15/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9)
