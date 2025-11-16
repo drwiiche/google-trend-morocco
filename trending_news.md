@@ -1,3 +1,10 @@
+### ufc 322 live (N/A, Sat, 15 Nov 2025 19:30:00 -0800)
+
+- **Sean Brady | Grindin’**: [Link](https://www.ufc.com/news/sean-brady-grindin-vechain-ufc-322)
+- **Michael Morales calls for title shot Dana White promised after stopping contender at UFC 322**: [Link](https://bloodyelbow.com/2025/11/15/michael-morales-calls-for-title-shot-dana-white-promised-after-stopping-contender-at-ufc-322/)
+- **Morales Aims to Raise Ecuador’s Flag in UFC Title Fight**: [Link](https://news.ssbcrack.com/morales-aims-to-raise-ecuadors-flag-in-ufc-title-fight/)
+
+
 ### strikeout (N/A, Sat, 15 Nov 2025 18:10:00 -0800)
 
 - **Strikeout**: [Link](https://www.dailycal.org/lifestyle/strikeout/)
