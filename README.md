@@ -1,3 +1,10 @@
+### portugal – arménie (N/A, Sun, 16 Nov 2025 05:10:00 -0800)
+
+- **Portugal : Roberto Martínez encense Gonçalo Ramos**: [Link](https://www.footmercato.net/a714805103834956042-portugal-roberto-martinez-encense-goncalo-ramos)
+- **Cristiano Ronaldo : Son remplaçant trouvé au PSG ?**: [Link](https://le10sport.com/football/cristiano-ronaldo-son-remplacant-trouve-au-psg-765020)
+- **Foot mondial : sur quelles chaines voir les matches de dimanche ?**: [Link](https://www.tunisienumerique.com/foot-mondial-sur-quelles-chaines-voir-les-matches-de-dimanche-20/)
+
+
 ### maroc vs mali u17 (N/A, Sun, 16 Nov 2025 04:20:00 -0800)
 
 - **Coupe du monde U17 de la FIFA (Maroc-Mali): séance d’entraînement des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D9%82%D8%A7-9/)
