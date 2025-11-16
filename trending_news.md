@@ -1,3 +1,17 @@
+### portugal fc (N/A, Sun, 16 Nov 2025 07:10:00 -0800)
+
+- **Farioli volta a chamar Nikolov e vários da equipa B na preparação para o Sintrense**: [Link](https://www.ojogo.pt/futebol/artigo/farioli-volta-a-chamar-nikolov-e-varios-da-equipa-b-na-preparacao-para-o-sintrense/18020476)
+- **Dragões preparam encontro da Prova Rainha**: [Link](https://www.zerozero.pt/noticias/fc-porto-prepara-sintrense-sem-o-contributo-de-11-internacionais/977359)
+- **Joelho de Bednarek provoca apreensão no FC Porto**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/joelho-de-bednarek-provoca-apreensao-no-fc-porto)
+
+
+### world cup qualifiers (N/A, Sun, 16 Nov 2025 07:10:00 -0800)
+
+- **Heimir Hallgrímsson makes one change to Ireland team for decisive World Cup qualifier with Hungary**: [Link](https://www.irishexaminer.com/sport/soccer/arid-41743518.html)
+- **Hungary v Ireland: Mountain to climb for Ireland as Hungary lead 2-1 at half-time**: [Link](https://www.carlow-nationalist.ie/news/national-news/hungary-v-ireland-mountain-to-climb-for-ireland-as-hungary-lead-2-1-at-half-time_arid-77855.html)
+- **Live: World Cup qualifier: Hungary v Ireland updates**: [Link](https://www.rte.ie/sport/soccer/2025/1116/1544239-world-cup-qualifier-hungary-v-ireland-updates/)
+
+
 ### turquie (N/A, Sun, 16 Nov 2025 06:50:00 -0800)
 
 - **Une touriste et ses deux enfants décèdent après un repas en Turquie**: [Link](https://www.20minutes.fr/monde/4185621-20251114-turquie-touriste-deux-enfants-decedent-apres-avoir-mange-moules-pommes-terre-farcies)
