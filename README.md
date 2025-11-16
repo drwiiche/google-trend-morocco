@@ -1,3 +1,17 @@
+### shahid (N/A, Sun, 16 Nov 2025 11:00:00 -0800)
+
+- **Video | Fashion Meets AI: Shahid Kapoor And Tamannaah Bhatia Steal The Show At Event**: [Link](https://www.ndtv.com/video/fashion-meets-ai-shahid-kapoor-and-tamannaah-bhatia-steal-the-show-at-event-1023158)
+- **Priyanka Chopra Jonas, Tamannaah Bhatia & Alia Bhatt: How Bollywood's actresses are dominating the world of cinema and branding**: [Link](https://www.firstpost.com/entertainment/priyanka-chopra-jonas-tamannaah-bhatia-alia-bhatt-how-bollywoods-actresses-are-dominating-the-world-of-cinema-and-branding-13950899.html)
+- **Three Cities, One Vision: Blenders Pride Fashion Tour 2025 Arrives | Grazia India**: [Link](https://www.grazia.co.in/fashion/three-cities-one-vision-blenders-pride-fashion-tour-2025-arrives-14878.html)
+
+
+### italie foot (N/A, Sun, 16 Nov 2025 10:50:00 -0800)
+
+- **Mondial-2026 : "Battre la Norvège 9-0, c'est impensable", admet Gennaro Gattuso, sélec tionneur de l'Italie**: [Link](https://www.eurosport.fr/football/qualif-coupe-du-monde/2026/mondial-2026-battre-la-norvege-9-0-cest-impensable-admet-gennaro-gattuso-selec-tionneur-de-litalie_sto23241400/story.shtml)
+- **Italie : Gattuso monte au créneau après la réponse sèche d’Emiliano Martínez**: [Link](https://www.footmercato.net/a2748013940869324847-italie-gattuso-monte-au-creneau-apres-la-reponse-seche-demiliano-martinez)
+- **"Avant, il n'y avait que deux équipes africaines": Gattuso a trouvé une raison bien précise aux galères de l'Italie en qualifications**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/avant-il-n-y-avait-que-deux-equipes-africaines-gattuso-a-trouve-une-raison-bien-precise-aux-galeres-de-l-italie-en-qualifications_AV-202511140509.html)
+
+
 ### sinner (N/A, Sun, 16 Nov 2025 10:10:00 -0800)
 
 - **ATP Finals tennis: Carlos Alcaraz v Jannik Sinner in the final – live**: [Link](https://www.theguardian.com/sport/live/2025/nov/16/atp-finals-tennis-carlos-alcaraz-v-jannik-sinner-in-the-final-live)
