@@ -1,3 +1,10 @@
+### rdc vs nigeria (N/A, Sun, 16 Nov 2025 11:30:00 -0800)
+
+- **Mondial 2026 : Nigeria - RD Congo, une place pour les Barrages**: [Link](https://www.cafonline.com/fr/coupe-du-monde-de-la-fifa/news/mondial-2026-nigeria-rd-congo-une-place-pour-les-barrages/)
+- **DIRECT. Nigeria-RD Congo (1-1): le Congo se relance sur sa première occasion en finale des barrages africains au Mondial 2026**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/direct-nigeria-rd-congo-suivez-la-finale-des-barrages-africains-de-la-coupe-du-monde-2026-en-live_LS-202511160286.html)
+- **Barrages Mondial 2026: la RDC affronte le Nigeria pour faire un pas de plus vers l'Amérique**: [Link](https://www.rfi.fr/fr/afrique-foot/20251116-barrages-mondial-2026-la-rdc-affronte-le-nigeria-pour-faire-un-pas-de-plus-vers-l-am%C3%A9rique)
+
+
 ### شاهد (N/A, Sun, 16 Nov 2025 11:10:00 -0800)
 
 - **مباشر مباراة إيطاليا ضد النرويج في تصفيات كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/16/italy-vs-norway)
