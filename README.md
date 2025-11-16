@@ -1,3 +1,10 @@
+### ufc live (N/A, Sat, 15 Nov 2025 16:20:00 -0800)
+
+- **Prelim Results | VeChain UFC 322: Della Maddalena vs Makhachev**: [Link](https://www.ufc.com/news/prelim-results-vechain-ufc-322-della-maddalena-vs-makhachev-event-tonight-recaps-highlights-interviews)
+- **BetMGM Bonus Code FOXSPORTS Unlocks Bet $10, Get $150 Promo for Conor Benn vs Eubank Jr 2 and UFC 322**: [Link](https://www.foxsports.com/stories/betting/betmgm-bonus-code-foxsports-unlocks-bet-10-get-150-promo-conor-benn-vs-eubank-jr-2-ufc-322)
+- **Pic: Checkout Islam Makhachev’s side-by-side transformation ahead of UFC 322 Welterweight title fight debut**: [Link](https://sports.yahoo.com/article/pic-checkout-islam-makhachev-side-201500898.html)
+
+
 ### أمطار (N/A, Sat, 15 Nov 2025 16:40:00 -0800)
 
 - **أمطار رعدية ورياح قوية بعدة مناطق**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-1655802.html)
