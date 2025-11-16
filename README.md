@@ -1,3 +1,17 @@
+### الطقس غدًا (N/A, Sun, 16 Nov 2025 12:00:00 -0800)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-35-1656452.html)
+- **توقعات أحوال الطقس.. تشكل كتل ضبابية فوق هضاب الفوسفاط**: [Link](https://ar.telquel.ma/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%86%D8%B2%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%B7/)
+- **زخات مطرية محليا قوية مرتقبة اليوم السبت وغدا الأحد بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D9%88%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-20251115)
+
+
+### القنوات الناقلة لمباراة نيجيريا اليوم (N/A, Sun, 16 Nov 2025 11:20:00 -0800)
+
+- **نيجيريا ضد الكونغو الديمقراطية بالملحق الأفريقي.. الموعد والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/11/15/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9)
+- **الملحق الأفريقي: نيجيريا تسحق الجابون.. والكونغو الديمقراطية تقهر الكاميرون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AD%D9%82-%D8%A7%D9%84%D8%AC%D8%A7%D8%A8%D9%88%D9%86--%D9%88%D8%AA%D8%A8%D9%84%D8%BA-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A/blt9e033aae371e077d)
+- **الكونغو الديمقراطية تفاجئ الكاميرون**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9-%D8%AA%D9%81%D8%A7%D8%AC%D8%A6-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-1655574.html)
+
+
 ### rdc vs nigeria (N/A, Sun, 16 Nov 2025 11:30:00 -0800)
 
 - **Mondial 2026 : Nigeria - RD Congo, une place pour les Barrages**: [Link](https://www.cafonline.com/fr/coupe-du-monde-de-la-fifa/news/mondial-2026-nigeria-rd-congo-une-place-pour-les-barrages/)
