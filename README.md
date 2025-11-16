@@ -1,3 +1,10 @@
+### konami (N/A, Sun, 16 Nov 2025 12:50:00 -0800)
+
+- **Silent Hill F update adds ‘Casual’ difficulty and lets players skip part of a New Game+ playthrough**: [Link](https://www.videogameschronicle.com/news/silent-hill-f-update-adds-casual-difficulty-and-lets-players-skip-part-of-a-new-game-playthrough/)
+- **Silent Hill f's lead actor can't catch a break: As Konami announces new "casual mode," fans are naming it after Hinako's VO after she went viral for streaming the game in terror**: [Link](https://www.gamesradar.com/games/silent-hill/silent-hill-fs-lead-actor-cant-catch-a-break-as-konami-announces-new-casual-mode-fans-are-naming-it-after-hinakos-vo-after-she-went-viral-for-streaming-the-game-in-terror/)
+- **Silent Hill f lead actress’ tearful playthrough of the game may be what inspired new Casual mode, fans theorize**: [Link](https://automaton-media.com/en/news/silent-hill-f-lead-actress-tearful-playthrough-of-the-game-may-be-what-inspired-new-casual-mode-fans-theorize/)
+
+
 ### الطقس غدًا (N/A, Sun, 16 Nov 2025 12:00:00 -0800)
 
 - **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-35-1656452.html)
