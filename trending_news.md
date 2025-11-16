@@ -1,3 +1,17 @@
+### nayef aguerd (N/A, Sun, 16 Nov 2025 02:50:00 -0800)
+
+- **OM : retour à La Commanderie anticipé pour Nayef Aguerd**: [Link](https://www.laprovence.com/article/om/25904065047318/om-retour-a-la-commanderie-anticipe-pour-nayef-aguerd)
+- **OM, Maroc : Nayef Aguerd va rentrer à Marseille**: [Link](https://www.footmercato.net/a8940217910136047387-om-maroc-nayef-aguerd-va-rentrer-a-marseille)
+- **Initialement convoqué avec le Maroc et diminué par une pubalgie, Nayef Aguerd va rentrer à Marseille**: [Link](https://www.lequipe.fr/Football/Actualites/Initialement-convoque-avec-le-maroc-et-diminue-par-une-pubalgie-nayef-aguerd-va-rentrer-a-marseille/1610106)
+
+
+### dillon danis (N/A, Sun, 16 Nov 2025 02:00:00 -0800)
+
+- **Dillon Danis Ejected from UFC 322 After Massive Ringside Brawl in Crowd on Video**: [Link](https://bleacherreport.com/articles/25295211-dillon-danis-ejected-ufc-322-after-massive-ringside-brawl-crowd-video)
+- **Dana White blames himself for Dillon Danis UFC 322 brawl after 'stupid' decision**: [Link](https://www.the-express.com/sport/mma/190717/ufc-322-brawl-dillon-danis-dana-white)
+- **UFC 322: Dillon Danis and members of Team Khabib spark massive cageside brawl in UFC 229 redux**: [Link](https://bvmsports.com/2025/11/16/ufc-322-dillon-danis-and-members-of-team-khabib-spark-massive-cageside-brawl-in-ufc-229-redux/)
+
+
 ### pokrovsk (N/A, Sun, 16 Nov 2025 00:30:00 -0800)
 
 - **Что случилось с российской колонной, которая на ставшем вирусным видеоролике в тумане въезжает в Покровск?**: [Link](https://www.bbc.com/russian/articles/c3dn39nzj15o)
