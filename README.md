@@ -1,3 +1,10 @@
+### azerbaijan vs france (N/A, Sun, 16 Nov 2025 08:50:00 -0800)
+
+- **France predicted XI v Azerbaijan: Didier Deschamps to fully rotate, Lucas Chevalier set for debut**: [Link](https://www.getfootballnewsfrance.com/2025/france-predicted-xi-v-azerbaijan-didier-deschamps-to-fully-rotate-lucas-chevalier-set-for-debut/)
+- **Lucas Chevalier expected at the turn, Robert Lewandowski closes the door to a departure**: [Link](https://frenchfootballweekly.com/2025/11/16/lucas-chevalier-expected-at-the-turn-robert-lewandowski-closes-the-door-to-a-departure/)
+- **Azerbaijan vs. France—2026 World Cup Qualifier: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/azerbaijan-vs-france-2026-world-cup-qualifier-preview-predictions-lineups-11-16-25)
+
+
 ### albanie – angleterre (N/A, Sun, 16 Nov 2025 08:40:00 -0800)
 
 - **Résumé du match Albanie - Angleterre, 0h00 le 17 novembre : En quête d'un record à Tirana**: [Link](https://www.vietnam.vn/fr/nhan-dinh-tran-dau-albania-vs-anh-0h00-ngay-17-11-kiem-tim-ky-luc-o-tirana)
