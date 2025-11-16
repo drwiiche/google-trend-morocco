@@ -1,3 +1,17 @@
+### florentino pérez (N/A, Sun, 16 Nov 2025 14:00:00 -0800)
+
+- **NFL en el Bernabéu: las caras VIP de una cita histórica en Madrid**: [Link](https://as.com/tikitakas/fotorrelato/nfl-en-el-bernabeu-los-famosos-que-asistieron-al-historico-debut-en-madrid-f202511-f/)
+- **El mensaje de Javier Tebas en redes comparando el partido de la NFL en Madrid con el frustrado de LaLiga en Miami**: [Link](https://www.marca.com/futbol/primera-division/2025/11/16/mensaje-javier-tebas-redes-comparando-partido-nfl-madrid-frustrado-laliga-miami.html)
+- **El presidente, en el partido de la NFL en el Bernabéu**: [Link](https://www.realmadrid.com/es-ES/noticias/club/actualidad/el-presidente-asistio-al-historico-partido-de-la-nfl-en-el-bernabeu-16-11-2025)
+
+
+### إيطاليا ضد النرويج (N/A, Sun, 16 Nov 2025 13:50:00 -0800)
+
+- **مباشر مباراة إيطاليا ضد النرويج (1-4) في تصفيات كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/16/italy-vs-norway)
+- **مهمة مستحيلة.. ماذا تحتاج إيطاليا لبلوغ المونديال مباشرة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%87%D9%85%D8%A9-%D9%85%D8%B3%D8%AA%D8%AD%D9%8A%D9%84%D8%A9--%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%84%D8%A8%D9%84%D9%88%D8%BA-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9/blt8f5dcbdb65362094)
+- **"في السابق كان هناك منتخبان أفريقيان فقط".. غاتوزو يبرّر معاناة إيطاليا في تصفيات كأس العالم**: [Link](https://m.elbotola.com/article/2025-11-14-16-03-860.html)
+
+
 ### italy (N/A, Sun, 16 Nov 2025 13:20:00 -0800)
 
 - **Italy fighting to avoid another 'apocalyptic' World Cup failure**: [Link](https://www.bbc.com/sport/football/articles/clyzeydppzdo)
