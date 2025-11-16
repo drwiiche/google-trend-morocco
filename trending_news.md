@@ -1,3 +1,17 @@
+### carlos alcaraz (N/A, Sun, 16 Nov 2025 09:30:00 -0800)
+
+- **Alcaraz - Sinner hoy, en directo: final de las ATP Finals 2025, última hora en vivo online**: [Link](https://as.com/tenis/final_atp/alcaraz-sinner-en-directo-final-de-las-atp-finals-en-turin-hoy-en-vivo-f202511-n/)
+- **El encuentro entre Alcaraz y Sinner, en imágenes**: [Link](https://www.marca.com/tenis/masters-1000-cincinnati/album/2025/11/16/encuentro-alcaraz-sinner-imagenes.html)
+- **El último récord de Alcaraz: el más joven en alcanzar la final en todos los grandes títulos**: [Link](https://espanol.eurosport.com/tenis/atp-finals/2025/carlos-alcaraz-ultimo-record-mas-joven-todas-las-finales-grandes-torneos-hoy_sto23241539/story.shtml)
+
+
+### france (N/A, Sun, 16 Nov 2025 09:30:00 -0800)
+
+- **Grande-Bretagne, France, Allemagne : la calamité d’être une puissance « moyenne » – par Eric Le Boucher**: [Link](https://www.lopinion.fr/economie/grande-bretagne-france-allemagne-la-calamite-detre-une-puissance-moyenne-par-eric-le-boucher)
+- **Un nouveau panneau allemand intrigue : arrivera-t-il bientôt en France ?**: [Link](https://www.autoplus.fr/actualite/un-nouveau-panneau-allemande-intrigue-arrivera-t-il-bientot-en-france-1408598.html)
+- **Consommation. Pourquoi y a-t-il une pénurie d'oeufs dans les rayons ?**: [Link](https://www.ledauphine.com/economie/2025/11/16/pourquoi-y-a-t-il-une-penurie-d-oeufs-dans-les-rayons)
+
+
 ### star academy (N/A, Sun, 16 Nov 2025 09:10:00 -0800)
 
 - **Léna Situations à la "Star Academy" : la réaction des élèves sous le choc devient virale, l’influenceuse les recadre illico**: [Link](https://www.public.fr/lena-situations-a-la-star-academy-la-reaction-des-eleves-sous-le-choc-devient-virale-linfluenceuse-les-recadre-illico)
