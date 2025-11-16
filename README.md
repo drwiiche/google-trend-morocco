@@ -1,3 +1,10 @@
+### pokrovsk (N/A, Sun, 16 Nov 2025 00:30:00 -0800)
+
+- **Что случилось с российской колонной, которая на ставшем вирусным видеоролике в тумане въезжает в Покровск?**: [Link](https://www.bbc.com/russian/articles/c3dn39nzj15o)
+- **"АТЕШ" сообщает о дезертирстве и потерях России под Покровском**: [Link](https://www.rbc.ua/ukr/news/atesh-povidomlyae-dezertirstvo-i-vtrati-rosiyi-1763243454.html)
+- **Неделя СВО: покровский котел, наступление на Гуляйполе и новый род войск в России**: [Link](https://www.business-gazeta.ru/article/687707)
+
+
 ### lamine yamal fc barcelone espagne (N/A, Sat, 15 Nov 2025 23:40:00 -0800)
 
 - **Espagne : le sarcasme de Luis De La Fuente sur le cas Lamine Yamal**: [Link](https://www.footmercato.net/a5573347003279820265-espagne-le-sarcasme-de-luis-de-la-fuente-sur-le-cas-lamine-yamal)
