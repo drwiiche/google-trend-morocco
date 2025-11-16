@@ -1,3 +1,10 @@
+### italy vs norway (N/A, Sun, 16 Nov 2025 11:20:00 -0800)
+
+- **Gattuso leaves three players out of Italy squad for Norway game**: [Link](https://football-italia.net/gattuso-3-players-out-italy-squad-norway/)
+- **Newcastle suffer international break scare – New injury or player saved for Man City?**: [Link](https://www.nufcblog.co.uk/2025/11/16/newcastle-suffer-international-break-scare-new-injury-or-player-saved-for-man-city/)
+- **Football Bet Of The Day: Henry Hardwicke fancies Norway to complete a perfect qualifying campaign**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-henry-hardwicke-fancies-norway-to-complete-a-perfect-qualifying-campaign-aYD073c3qT60/)
+
+
 ### mbc action (N/A, Sun, 16 Nov 2025 11:00:00 -0800)
 
 - **نيجيريا ضد الكونغو الديمقراطية بالملحق الأفريقي.. الموعد والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/11/15/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9)
