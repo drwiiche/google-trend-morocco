@@ -1,3 +1,17 @@
+### iphone 16 (N/A, Sun, 16 Nov 2025 05:30:00 -0800)
+
+- **iPhone16eはすでにオワコン扱い？リーカーが「失敗の廉価モデル」と酷評 - iPhone Mania**: [Link](https://iphone-mania.jp/iphone16-599008/)
+- **iPhone Airレビュー：Appleの挑戦には拍手。けれど実用的とは言いにくい理由**: [Link](https://www.lifehacker.jp/article/2511-iphone-air-review/)
+- **アップルのiPhone Air、なぜ販売低迷？ 薄型スマホが伸び悩む背景とユーザーニーズの乖離（東洋経済オンライン）**: [Link](https://news.yahoo.co.jp/articles/57f1f28ddfd8a9d532d7adf0df278f32790f6762?page=5)
+
+
+### nigeria vs congo (N/A, Sun, 16 Nov 2025 05:30:00 -0800)
+
+- **Nigeria and DR Congo meet in the final of the African play-offs for the FIFA World Cup 26™ in Rabat**: [Link](https://www.cafonline.com/news/nigeria-and-dr-congo-meet-in-the-final-of-the-african-play-offs-for-the-fifa-world-cup-26-in-rabat/)
+- **FIFA World Cup Chancel Mbemba: Walking the Fine Line Between Hero and Heartbreak**: [Link](https://en.africatopsports.com/2025/11/15/chancel-mbemba-walking-the-fine-line-between-hero-and-heartbreak/)
+- **My boys will play better in final – Chelle**: [Link](https://punchng.com/my-boys-will-play-better-in-final-chelle/)
+
+
 ### البرتغال ضد أرمينيا (N/A, Sun, 16 Nov 2025 05:20:00 -0800)
 
 - **ما القنوات الناقلة لمباراة البرتغال وأرمينيا في التصفيات المؤهلة إلى كأس العالم 2026 أوروبا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D8%A3%D8%B1%D9%85%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt0f741e1b574d3dd6)
