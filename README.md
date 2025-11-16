@@ -1,3 +1,17 @@
+### azerbaïdjan – france (N/A, Sun, 16 Nov 2025 08:10:00 -0800)
+
+- **Lucas Chevalier attendu au tournant, Robert Lewandowski ferme la porte à un départ**: [Link](https://www.footmercato.net/a2950172679485208146-lucas-chevalier-attendu-au-tournant-robert-lewandowski-ferme-la-porte-a-un-depart)
+- **La compo probable des Bleus avec... onze changements attendus**: [Link](https://www.lequipe.fr/Football/Actualites/Didier-deschamps-devrait-changer-l-integralite-de-son-onze-de-depart-pour-affronter-l-azerbaidjan/1610018)
+- **DIRECT. Azerbaïdjan-France: suivez le dernier match des Bleus lors des qualifications pour la Coupe du monde 2026 en live**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/direct-azerbaidjan-france-suivez-le-dernier-match-des-bleus-lors-des-qualifications-pour-la-coupe-du-monde-2026-en-live_LS-202511160177.html)
+
+
+### hongrie – irlande (N/A, Sun, 16 Nov 2025 07:20:00 -0800)
+
+- **Coupe du monde : en vidéo, le but et la folie de l’Irlande qui renverse la Hongrie à la dernière minute**: [Link](https://www.lefigaro.fr/sports/football/coupe-du-monde/coupe-du-monde-en-video-le-but-et-la-folie-de-l-irlande-qui-renverse-la-hongrie-a-la-derniere-minute-20251116)
+- **LIVE - Suivez le match Hongrie-Irlande en direct**: [Link](https://www.football.fr/coupe-du-monde-2026/live-suivez-le-match-hongrie-irlande-en-direct-784602.html)
+- **Pronostic Hongrie-Irlande (qualification Coupe du Monde 2026)**: [Link](https://www.score.fr/football/articles/pronostic-hongrie-irlande-qualification-coupe-du-monde-2026/)
+
+
 ### hungary vs ireland (N/A, Sun, 16 Nov 2025 08:00:00 -0800)
 
 - **Where to stream Hungary vs. Ireland FIFA World Cup Qualifying match today**: [Link](https://www.mlive.com/tv/2025/11/where-to-stream-hungary-vs-ireland-fifa-world-cup-qualifying-match-today.html)
