@@ -1,3 +1,10 @@
+### maroc vs mali u17 (N/A, Mon, 17 Nov 2025 06:50:00 -0800)
+
+- **Coupe du monde U17 de la FIFA (Maroc-Mali): entraînement des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17%D8%B3%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF/)
+- **Match Maroc-Mali : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-mali-a-quelle-heure-et-sur-quelles-chaines/313955)
+- **Bellaarouch de l’enfer à la gloire par la force du mental - Dr Anwar Cherkaoui**: [Link](https://www.quid.ma/sport/bellaarouch-de-lenfer-a-la-gloire-par-la-force-du-mental---dr-anwar-cherkaoui)
+
+
 ### questions pour un champion (N/A, Mon, 17 Nov 2025 05:10:00 -0800)
 
 - **Questions pour un champion : la sanction est tombée pour Samuel Etienne**: [Link](https://toutelatele.ouest-france.fr/questions-pour-un-champion-la-sanction-est-tombee-pour-samuel-etienne-180969)
