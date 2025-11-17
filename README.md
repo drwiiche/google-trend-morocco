@@ -1,3 +1,16 @@
+### questions pour un champion (N/A, Mon, 17 Nov 2025 05:10:00 -0800)
+
+- **Questions pour un champion : la sanction est tombée pour Samuel Etienne**: [Link](https://toutelatele.ouest-france.fr/questions-pour-un-champion-la-sanction-est-tombee-pour-samuel-etienne-180969)
+- **France 3 HD - Questions pour un champion**: [Link](https://www.pickx.be/fr/television/programme-tv/UID0308_202511072116/questions-pour-un-champion)
+
+
+### zone turf (N/A, Mon, 17 Nov 2025 03:20:00 -0800)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 10 Karla de Banville**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-10-karla-de-banville-128495.html)
+- **Tiercé. Les pronostics de L'Alsace pour mardi 18 novembre - Prix de Beauvais**: [Link](https://www.lalsace.fr/actualite/2025/11/17/les-pronostics-de-l-alsace-pour-mardi-18-novembre-prix-de-beauvais)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 7 Josh Power**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-7-josh-power-128483.html)
+
+
 ### 18 novembre (N/A, Sun, 16 Nov 2025 23:50:00 -0800)
 
 - **Demain nous appartient (spoilers) : un coup de foudre et une sépa ...**: [Link](https://www.telestar.fr/serie_tv/demain-nous-appartient-spoilers-un-coup-de-foudre-et-une-separation-douloureuse-ce-qui-vous-attend-du-17-au-22-novembre-1745399)
