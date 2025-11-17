@@ -1,3 +1,38 @@
+### الطقس (N/A, Sun, 16 Nov 2025 22:00:00 -0800)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-35-1656452.html)
+- **نشرة إنذارية… زخات مطرية محليا قوية مرتقبة اليوم السبت وغدا الأحد بعدد من مناطق المملكة – اليوم 24**: [Link](https://alyaoum24.com/1994225.html)
+- **توقعات أحوال الطقس.. تشكل كتل ضبابية فوق هضاب الفوسفاط**: [Link](https://ar.telquel.ma/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%86%D8%B2%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%B7/)
+
+
+### weather (N/A, Sun, 16 Nov 2025 22:00:00 -0800)
+
+- **Today’s weather forecast – Monday, November 17**: [Link](https://fermanaghherald.com/2025/11/todays-weather-forecast-monday-november-17/)
+- **Today's weather: Overcast, tomorrow: Sunny**: [Link](https://www.okehampton-today.co.uk/weather-forecasts/overcast-with-patchy-showers-sunny-tomorrow-851956)
+- **Sunny morning: Patchy rain tomorrow**: [Link](https://www.monmouthshirebeacon.co.uk/weather-forecasts/sunny-skies-today-then-patchy-rain-tomorrow-852032)
+
+
+### météo (N/A, Sun, 16 Nov 2025 21:50:00 -0800)
+
+- **Météo. Les prévisions météorologiques du lundi 17 novembre 2025 à Bourg-en-Bresse et ses environs**: [Link](https://www.ouest-france.fr/meteo/auvergne-rhone-alpes/bourg-en-bresse-01000/la-meteo-du-jour-a-bourg-en-bresse-755c1f85-af83-49a3-957e-a7668f52795f)
+- **Météo. Quel temps est-il prévu à Bourges et ses environs le lundi 17 novembre 2025 ?**: [Link](https://www.ouest-france.fr/meteo/centre-val-de-loire/bourges-18000/la-meteo-du-jour-a-bourges-2cfe89e1-9011-4f74-b9c5-b78018b7efde)
+- **La météo à Biscarrosse du lundi 17 novembre 2025**: [Link](https://www.sudouest.fr/landes/biscarrosse/biscarrosse-meteo-du-lundi-17-novembre-2025-26750598.php)
+
+
+### الفجر (N/A, Sun, 16 Nov 2025 21:00:00 -0800)
+
+- **مواقيت الصلاة في محافظة السويس اليوم الأحد 16 نوفمبر المغرب 4:53م**: [Link](https://www.newsroom.info/208162)
+- **موعد أذان وصلاة الظهر اليوم الأحد 16 نوفمبر.. ومن صالح الدعاء بعد ختم الصلاة**: [Link](https://www.masrawy.com/islameyat/fatawa-3badat/details/2025/11/16/2891425/-%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D9%88%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B8%D9%87%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-16-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-%D9%88%D9%85%D9%86-%D8%B5%D8%A7%D9%84%D8%AD-%D8%A7%D9%84%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%AA%D9%85-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9)
+- **تعرف على مواقيت العشاء الدقيقة اليوم في 15 محافظة مصرية - ضبط ساعتك الآن!**: [Link](https://yemen-press.net/news148740.html)
+
+
+### gennaro gattuso (N/A, Sun, 16 Nov 2025 20:00:00 -0800)
+
+- **Italia ai playoff con una figuraccia: Haaland ce ne fa 2, poker Norvegia a S. Siro**: [Link](https://www.gazzetta.it/Calcio/Nazionale/16-11-2025/italia-norvegia-live-risultato-e-gol-in-diretta-qualificazioni-mondiali.shtml)
+- **Conferenza Gattuso: "Le parole non bastano più, dobbiamo passare ai fatti. Chiesa?..."**: [Link](https://onefootball.com/pt-br/noticias/conferenza-gattuso-le-parole-non-bastano-piu-dobbiamo-passare-ai-fatti-chiesa-41960859)
+- **Live Italia - Norvegia - Qualificazioni Mondiali Europa: Punteggi & Highlights Calcio - 16/11/2025**: [Link](https://www.eurosport.it/calcio/qualificazioni-mondiali-europa/2026/live-italia-norvegia_mtc1574754/live-commentary.shtml?page=3)
+
+
 ### nigeria vs (N/A, Sun, 16 Nov 2025 11:20:00 -0800)
 
 - **Watch: Nigeria dealt major injury blow as Osimhen substitution explained**: [Link](https://www.standard.co.uk/sport/football/nigeria-victor-osimhen-injury-update-chelle-galatasaray-b1258339.html)
