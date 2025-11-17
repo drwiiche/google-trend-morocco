@@ -1,3 +1,10 @@
+### lamine yamal espagne (N/A, Mon, 17 Nov 2025 07:10:00 -0800)
+
+- **L’Espagne estime ne plus avoir besoin de Lamine Yamal**: [Link](https://www.footmercato.net/a8635773401609989191-lespagne-estime-ne-plus-avoir-besoin-de-lamine-yamal)
+- **Une terrible sanction contre Lamine Yamal ?**: [Link](https://www.foot01.com/espagne/une-terrible-sanction-contre-lamine-yamal)
+- **Lamine Yamal et les Lions de l’Atlas, scénario juridiquement impossible ?**: [Link](https://lionsdelatlas.ma/lamine-yamal-et-les-lions-de-latlas-scenario-juridiquement-impossible/)
+
+
 ### maroc vs mali u17 (N/A, Mon, 17 Nov 2025 06:50:00 -0800)
 
 - **Coupe du monde U17 de la FIFA (Maroc-Mali): entraînement des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17%D8%B3%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF/)
