@@ -1,3 +1,8 @@
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Mon, 17 Nov 2025 10:50:00 -0800)
+
+
+
+
 ### allemagne – slovaquie (N/A, Mon, 17 Nov 2025 11:10:00 -0800)
 
 - **Coupe du monde 2026. L’Allemagne privée de qualification directe ce lundi si…**: [Link](https://www.ouest-france.fr/sport/football/equipe-allemagne/coupe-du-monde-2026-lallemagne-privee-de-qualification-directe-ce-lundi-si-b6b710a6-c3bb-11f0-8509-2c0807403e46)
