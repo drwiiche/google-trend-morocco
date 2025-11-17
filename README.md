@@ -1,3 +1,10 @@
+### nigeria vs (N/A, Sun, 16 Nov 2025 11:20:00 -0800)
+
+- **Watch: Nigeria dealt major injury blow as Osimhen substitution explained**: [Link](https://www.standard.co.uk/sport/football/nigeria-victor-osimhen-injury-update-chelle-galatasaray-b1258339.html)
+- **2026 WCQ playoffs: Osimhen's injury helped DR Congo - Sunderland defender, Noah Sadiki**: [Link](https://dailypost.ng/2025/11/17/2026-wcq-playoffs-osimhens-injury-helped-dr-congo-sunderland-defender-noah-sadiki/)
+- **Why Victor Osimhen Was Substituted in Nigeria’s World Cup Play-off**: [Link](https://bsnsports.com.ng/post/Why-Victor-Osimhen-Was-Substituted-in-Nigeria-s-World-Cup-Play-off)
+
+
 ### nigeria – rd congo (N/A, Sun, 16 Nov 2025 12:40:00 -0800)
 
 - **Nigeria-RD Congo : à quelle heure et sur quelle chaîne suivre la finale des barrages africains pour la Coupe du monde 2026 ?**: [Link](https://www.lequipe.fr/Football/Actualites/Nigeria-rd-congo-a-quelle-heure-et-sur-quelle-chaine-suivre-la-finale-des-barrages-africains-pour-la-coupe-du-monde-2026/1609777)
