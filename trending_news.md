@@ -1,3 +1,10 @@
+### 18 novembre (N/A, Sun, 16 Nov 2025 23:50:00 -0800)
+
+- **Demain nous appartient (spoilers) : un coup de foudre et une sépa ...**: [Link](https://www.telestar.fr/serie_tv/demain-nous-appartient-spoilers-un-coup-de-foudre-et-une-separation-douloureuse-ce-qui-vous-attend-du-17-au-22-novembre-1745399)
+- **Demain nous appartient en avance : alliance explosive entre Victor, Charles et Philippine pour la prise du Spoon dans l'épisode de mardi 18 novembre 2025**: [Link](https://www.nextplz.fr/serie/516633-demain-nous-appartient-en-avance-alliance-explosive-entre-victor-charles-et-philippine-pour-la-prise-du-spoon-dans-lepisode-de-mardi-18-novembre-2025)
+- **Demain nous appartient : sans nouvelles de Jordan, Audrey pense qu'il a disparu**: [Link](https://www.diverto.tv/actualites/series/demain-nous-appartient-sans-nouvelles-de-jordan-audrey-pense-qu-il-a-disparu)
+
+
 ### italie vs (N/A, Sun, 16 Nov 2025 13:40:00 -0800)
 
 - **DIRECT. Croatie (u17)-Ouzbékistan (u17) (Coupe du monde (-17) 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-monde-17/2025/croatie-u17-ouzbekistan-u17-live/686720)
