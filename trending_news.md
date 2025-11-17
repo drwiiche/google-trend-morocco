@@ -1,3 +1,10 @@
+### italie vs (N/A, Sun, 16 Nov 2025 13:40:00 -0800)
+
+- **DIRECT. Croatie (u17)-Ouzbékistan (u17) (Coupe du monde (-17) 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-monde-17/2025/croatie-u17-ouzbekistan-u17-live/686720)
+- **Italie - Ouzbékistan : à quelle heure et sur quelle chaîne suivre ce 8e de finale de la Coupe du Monde U17 2025**: [Link](https://quelleheurequellechaine.fr/football/international/regarder-italie-ouzbekistan-u17-8e-finale-coupe-du-monde-2025-diffusion-direct/)
+- **L'équipe asiatique crée la surprise face à la Croatie en Coupe du monde**: [Link](https://www.vietnam.vn/fr/doi-bong-chau-a-tao-dia-chan-truoc-croatia-o-world-cup)
+
+
 ### الطقس (N/A, Sun, 16 Nov 2025 22:00:00 -0800)
 
 - **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-35-1656452.html)
