@@ -1,3 +1,17 @@
+### allemagne – slovaquie (N/A, Mon, 17 Nov 2025 11:10:00 -0800)
+
+- **Coupe du monde 2026. L’Allemagne privée de qualification directe ce lundi si…**: [Link](https://www.ouest-france.fr/sport/football/equipe-allemagne/coupe-du-monde-2026-lallemagne-privee-de-qualification-directe-ce-lundi-si-b6b710a6-c3bb-11f0-8509-2c0807403e46)
+- **L'équipe allemande à l'heure de la vie et de la mort**: [Link](https://www.vietnam.vn/fr/tuyen-duc-truoc-gio-sinh-tu)
+- **ELIM-CM26-Zone EURO : Voici les affiches de lundi**: [Link](https://news.gnet.tn/elim-cm26-zone-euro-voici-les-affiches-de-lundi/)
+
+
+### monténégro – croatie (N/A, Mon, 17 Nov 2025 11:10:00 -0800)
+
+- **DIRECT. Monténégro-Croatie (Qualif. CM Europe 2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/qualif-cm-europe/2026/montenegro-croatie-live/669401)
+- **Les Firebirds disputent ce soir le dernier match, mais non des moindres, des qualifications pour la Coupe du monde 2026 ; voici où le regarder.**: [Link](https://www.portal.hr/fr/novosti/sport-hr/101765-vatreni-veceras-igraju-posljednju-ali-vrlo-vaznu-utakmicu-kvalifikacija-za-sp-2026-evo-gdje-gledati)
+- **Monténégro vs Croatie – Pronos, Analyse et Cotes le 17/11/2025**: [Link](https://paris-sportifs.lefigaro.fr/pronostics/montenegro-croatie-17-11-2025/)
+
+
 ### bouskoura (N/A, Mon, 17 Nov 2025 08:20:00 -0800)
 
 - **Démolition totale du Palais de Bouskoura**: [Link](https://fr.hespress.com/449797-demolition-totale-du-palais-de-bouskoura.html)
