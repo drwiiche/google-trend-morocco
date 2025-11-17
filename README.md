@@ -1,3 +1,17 @@
+### germany vs slovakia (N/A, Mon, 17 Nov 2025 12:20:00 -0800)
+
+- **Germany-Slovakia - World Cup Qualification UEFA 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1896688/preview/international-world-cup-qualification-uefa-2025-2026-germany-slovakia)
+- **Nagelsmann: “We can take a big step”**: [Link](https://www.dfb.de/news/nagelsmann-we-can-take-a-big-step)
+- **Nick Woltemade starts as NUFC teammates 90 minutes from World Cup finals with Germany**: [Link](https://onefootball.com/fr/news/nick-woltemade-starts-as-nufc-teammates-90-minutes-from-world-cup-finals-with-germany-41964404)
+
+
+### pays-bas – lituanie (N/A, Mon, 17 Nov 2025 12:10:00 -0800)
+
+- **Football - Qualif. Coupe du monde : L'ouverture du score de Reijnders face à la Lituanie**: [Link](https://www.lequipe.fr/Football/Video/Qualif-coupe-du-monde-l-ouverture-du-score-de-reijnders-face-a-la-lituanie/20220930)
+- **Commentaires sur le match entre les Pays-Bas et la Lituanie, 2h45 le 18 novembre : Les Oranje sont prêts à « faire pleuvoir les buts »**: [Link](https://www.vietnam.vn/fr/nhan-dinh-tran-dau-ha-lan-vs-lithuania-2h45-ngay-18-11-oranje-san-sang-doi-mua-ban-thang)
+- **Coupe du monde 2026. Les Pays-Bas qualifiés ce lundi si…**: [Link](https://www.ouest-france.fr/sport/football/equipe-pays-bas/coupe-du-monde-2026-les-pays-bas-qualifies-ce-lundi-si-9590ef1a-c3c9-11f0-8509-2c0807403e46)
+
+
 ### طقس اليوم (N/A, Sun, 16 Nov 2025 22:50:00 -0800)
 
 
