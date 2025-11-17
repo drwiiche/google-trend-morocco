@@ -1,3 +1,10 @@
+### bouskoura (N/A, Mon, 17 Nov 2025 08:20:00 -0800)
+
+- **Démolition totale du Palais de Bouskoura**: [Link](https://fr.hespress.com/449797-demolition-totale-du-palais-de-bouskoura.html)
+- **Non, le gouverneur de Nouaceur n’a pas été suspendu de ses fonctions**: [Link](https://www.lesiteinfo.com/maroc/660026-non-le-gouverneur-de-nouaceur-na-pas-ete-suspendu-de-ses-fonctions.html)
+- **Affaire du “Kremlin” de Bouskoura : un haut responsable suspendu par les autorités**: [Link](https://www.bladi.net/affaire-kremlin-bouskoura-haut-responsable-suspendu-autorites,117915.html)
+
+
 ### lamine yamal espagne (N/A, Mon, 17 Nov 2025 07:10:00 -0800)
 
 - **L’Espagne estime ne plus avoir besoin de Lamine Yamal**: [Link](https://www.footmercato.net/a8635773401609989191-lespagne-estime-ne-plus-avoir-besoin-de-lamine-yamal)
