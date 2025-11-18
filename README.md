@@ -1,3 +1,10 @@
+### morocco match (N/A, Tue, 18 Nov 2025 11:30:00 -0800)
+
+- **Morocco edge Mali in five-goal thriller as Burkina Faso win shootout to reach U-17 World Cup quarter-finals**: [Link](https://www.cafonline.com/caf-u-17-africa-cup-of-nations/news/morocco-edge-mali-in-five-goal-thriller-as-burkina-faso-win-shootout-to-reach-u-17-world-cup-quarter-finals/)
+- **Morocco U17 Edge Past Mali to Reach World Cup Quarter-Finals**: [Link](https://www.moroccoworldnews.com/2025/11/268444/morocco-u17-edge-past-mali-to-reach-world-cup-quarter-finals/)
+- **Morocco U17: Nabil Baha confident ahead of clash against Mali**: [Link](https://mountakhab.net/en/morocco-u17-nabil-baha-confident-ahead-of-clash-against-mali/)
+
+
 ### spain vs turkey (N/A, Tue, 18 Nov 2025 13:30:00 -0800)
 
 - **Grimaldo and De Frutos omitted from Spain squad for Turkey match**: [Link](https://www.besoccer.com/new/grimaldo-and-de-frutos-omitted-from-spain-squad-for-turkey-match-1381812)
