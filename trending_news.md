@@ -1,3 +1,52 @@
+### matches amicaux (N/A, Tue, 18 Nov 2025 10:30:00 -0800)
+
+- **Le Sénégal corrige le Kenya avec un Ibrahim Mbaye étincelant**: [Link](https://www.footmercato.net/a5366358404842808076-le-senegal-corrige-le-kenya-avec-un-ibrahim-mbaye-etincelant)
+- **Historique des confrontations Sénégal–Kenya : les “Lions” dominent 4 à 0**: [Link](https://www.pressafrik.com/Historique-des-confrontations-Senegal-Kenya-les-Lions-dominent-4-a-0_a297609.html)
+- **Sénégal vs Kenya : Pape Thiaw va faire tourner, ces joueurs qui auront leur chance ce mardi**: [Link](https://www.senenews.com/actualites/senegal-vs-kenya-pape-thiaw-va-faire-tourner-ces-joueurs-qui-auront-leur-chance-ce-mardi_566447.html)
+
+
+### maroc – ouganda (N/A, Tue, 18 Nov 2025 10:10:00 -0800)
+
+- **Maroc-Ouganda. Du flottement dans l’air - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2025/11/18/maroc-ouganda-du-flottement-dans-lair/)
+- **Les Lions de l’Atlas face à l’Ouganda pour faire le plein de confiance avant la CAN 2025**: [Link](https://lematin.ma/sports/les-lions-de-latlas-face-a-louganda-avant-la-can-2025/314097)
+- **Match amical Maroc-Ouganda à Tanger : la sélection nationale effectue sa dernière séance d'entraînement**: [Link](https://ledesk.ma/encontinu/match-amical-maroc-ouganda-a-tanger-la-selection-nationale-effectue-sa-derniere-seance-dentrainement/)
+
+
+### morocco vs uganda (N/A, Tue, 18 Nov 2025 10:10:00 -0800)
+
+- **Morocco-Uganda, on which channel to watch the match?**: [Link](https://frenchfootballweekly.com/2025/11/18/morocco-uganda-on-which-channel-to-watch-the-match/)
+- **Uganda arrive in Morocco for Chad, Morocco friendlies**: [Link](https://en.africatopsports.com/2025/11/10/uganda-arrive-in-morocco-for-chad-morocco-friendlies/)
+- **Uganda Cranes Face Ultimate AFCON Test Against Morocco in Tangier**: [Link](https://www.pulsesports.ug/football/story/uganda-cranes-face-ultimate-afcon-test-against-morocco-in-tangier-2025111810194489428)
+
+
+### jordanie – mali (N/A, Tue, 18 Nov 2025 10:10:00 -0800)
+
+- **Amical / Jordanie – Mali : Où suivre la rencontre en direct ?**: [Link](https://www.africatopsports.com/2025/11/18/amical-jordanie-mali-ou-suivre-la-rencontre-en-direct/)
+- **Journal De Match : Quelques Images De La Petite Marche Pour Réveiller Les Muscles**: [Link](https://maliactu.net/journal-de-match-quelques-images-de-la-petite-marche-pour-reveiller-les-muscles/)
+- **Le Mali affrontera la Jordanie à Rades avec des arbitres tunisiens**: [Link](https://www.kawarji.com/actu-96088-le-mali-affrontera-la-jordanie-a-rades-avec-des-arbitres-tunisiens.html)
+
+
+### iraq vs uae (N/A, Tue, 18 Nov 2025 10:10:00 -0800)
+
+- **How to watch Iraq vs UAE: Live streams for second leg of final AFC World Cup qualifier**: [Link](https://www.fourfourtwo.com/competition/how-to-watch-iraq-vs-uae-live-streams-for-second-leg-of-final-afc-world-cup-qualifier)
+- **Arnold: Iraqi Fans Will Make It Difficult for the UAE Team Tomorrow » Iraqi News Agency**: [Link](https://ina.iq/en/sport/43682-iraq-coach-the-fans-will-make-it-difficult-for-the-uae-team-tomorrow.html)
+- **Iraq beats UAE 2-1, advances to Fifa World Cup intercontinental playoff**: [Link](https://www.khaleejtimes.com/sports/fifa-world-cup-qualifiers-iraq-beats-uae)
+
+
+### fifa world cup u17 (N/A, Tue, 18 Nov 2025 09:50:00 -0800)
+
+- **Mexico vs Portugal: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/mexico-vs-portugal-how-watch-u-17-world-cup-preview)
+- **Mexico's U-17 team's participation in the 2025 World Cup in Qatar comes to an end**: [Link](https://onefootball.com/fr/news/mexicos-u-17-teams-participation-in-the-2025-world-cup-in-qatar-comes-to-an-end-41968679)
+- **Mexico sub-17 faces Portugal in FIFA World Cup knockout stage after penalty shootout win over Argentina**: [Link](https://www.red94.net/news/37508-mexico-sub-17-faces-portugal-in-fifa-world-cup-knockout-stage-after-penalty-shoo/)
+
+
+### irak – émirats arabes unis (N/A, Tue, 18 Nov 2025 09:10:00 -0800)
+
+- **Qualifs CdM 2026 : l’Irak décroche le barrage à la 90e+17 et élimine les Émirats arabes unis**: [Link](https://www.footmercato.net/a6788096144390662408-qualifs-cdm-2026-lirak-elimine-les-emirats-arabes-unis-et-file-aux-barrages)
+- **Iraq – Émirats : à quelle heure et sur quelle chaîne regarder le match du barrage asiatique en direct**: [Link](https://onefootball.com/de/news/iraq-emirats-a-quelle-heure-et-sur-quelle-chaine-regarder-le-match-du-barrage-asiatique-en-direct-41966071)
+- **Mondial : La rencontre retour du dernier tour du barrage asiatique se dispute ce jeudi**: [Link](https://www.tunisie-tribune.com/2025/11/18/mondial-la-rencontre-retour-du-dernier-tour-du-barrage-asiatique-se-dispute-ce-jeudi/)
+
+
 ### brazil u17 (N/A, Tue, 18 Nov 2025 10:00:00 -0800)
 
 - **🧤 Keeper hero again as Brazil reach U17 World Cup quarter-finals**: [Link](https://sports.yahoo.com/article/keeper-hero-again-brazil-reach-155500755.html)
