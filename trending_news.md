@@ -1,3 +1,64 @@
+### bet365 (N/A, Tue, 18 Nov 2025 05:30:00 -0800)
+
+- **bet365 Missouri Bonus Code LS365: Get $365 in pre-reg bonus bets**: [Link](https://www.livescore.com/en/news/nhl/promos/bet365-missouri-bonus-code-ls365-get-usd365-in-pre-reg-bonus-bets/)
+- **Why Caesars Entertainment (CZR) Stock Is Up Today**: [Link](https://finance.yahoo.com/news/why-caesars-entertainment-czr-stock-191048968.html)
+- **Missouri casino scene in good health ahead of sports betting launch**: [Link](https://www.independent.co.uk/games/missouri-casino-sports-betting-launch-gaming-commission-b2866645.html)
+
+
+### البطولة (N/A, Tue, 18 Nov 2025 05:30:00 -0800)
+
+- **كأس العالم تحت 17 سنة: ترتيب أفضل صانعي الألعاب الأفارقة في البطولة**: [Link](https://foot-africa.com/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AD%D8%AA-%D8%B3%D9%86%D8%A9-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A3%D9%81%D8%B6%D9%84-%D8%B5%D8%A7%D9%86%D8%B9%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84%D8%A3%D9%81%D8%A7%D8%B1%D9%82%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-966050/)
+- **كأس العالم تحت 17 عامًا: ترتيب أفضل الهدافين الأفارقة في البطولة**: [Link](https://onefootball.com/pt-br/noticias/17-41967243)
+- **كأس العالم تحت 17 عاما.. المواهب العربية على رادار الأندية الأوروبية**: [Link](https://al-sharq.com/article/17/11/2025/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AD%D8%AA-17-%D8%B9%D8%A7%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D9%87%D8%A8-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9)
+
+
+### مباريات اليوم (N/A, Tue, 18 Nov 2025 05:20:00 -0800)
+
+- **مواعيد مباريات اليوم.. جولة جديدة من تصفيات كأس العالم فى آسيا وأوروبا**: [Link](https://www.youm7.com/story/2025/11/18/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AC%D9%88%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%81%D9%89/7200922)
+- **مواعيد مباريات اليوم.. ألمانيا ضد سلوفاكيا ومصر مع الرأس الأخضر**: [Link](https://darelhilal.com/News/3125271.aspx)
+- **جدول مباريات اليوم الثلاثاء 18 نوفمبر 2025 والقنوات الناقلة والمعلقين**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-18-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt2671128d82af896d)
+
+
+### brésil u-17 – france u-17 (N/A, Tue, 18 Nov 2025 05:20:00 -0800)
+
+- **DIRECT. France-Brésil: suivez en direct le 8e de finale des Bleus à la Coupe du monde U17**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/direct-france-bresil-suivez-en-direct-le-8e-de-finale-des-bleus-a-la-coupe-du-monde-u17_LS-202511180538.html)
+- **Brésil-France : à quelle heure et sur quelle chaîne suivre le 8e de finale de la Coupe du monde U17 ?**: [Link](https://www.lequipe.fr/Football/Actualites/Bresil-france-a-quelle-heure-et-sur-quelle-chaine-suivre-le-8e-de-finale-de-la-coupe-du-monde-u17/1610404)
+- **Ilan Jourdren face à l’armada offensive brésilienne**: [Link](https://allezlens.fr/ilan-jourdren-face-a-larmada-offensive-bresilienne/)
+
+
+### ai (N/A, Tue, 18 Nov 2025 05:20:00 -0800)
+
+- **AI-generated evidence showing up in court alarms judges**: [Link](https://www.nbcnews.com/tech/tech-news/ai-generated-evidence-deepfake-use-law-judges-object-rcna235976)
+- **Law firm escapes sanctions over AI-generated case citations**: [Link](https://www.reuters.com/legal/government/law-firm-escapes-sanctions-over-ai-generated-case-citations-2025-11-13/)
+- **Two federal judges use AI to draft judicial decisions**: [Link](https://www.denisonforum.org/?p=523355)
+
+
+### مباراة المغرب اليوم مباشر أقل من 17 سنة (N/A, Tue, 18 Nov 2025 05:10:00 -0800)
+
+- **يوناني يدير لقاء "أشبال U17" ومالي**: [Link](https://www.hespress.com/%D9%8A%D9%88%D9%86%D8%A7%D9%86%D9%8A-%D9%8A%D8%AF%D9%8A%D8%B1-%D9%84%D9%82%D8%A7%D8%A1-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-u17-%D9%88%D9%85%D8%A7%D9%84%D9%8A-1657735.html)
+- **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء مالي**: [Link](https://frmf.ma/ar/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5/)
+- **موعد مباراة المغرب ضد مالي بثمن نهائي مونديال الناشئين والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/11/16/%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%A7%D9%84%D9%8A-%D8%A8%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+
+
+### chat (N/A, Tue, 18 Nov 2025 05:10:00 -0800)
+
+- **Roblox to block children from talking to adult strangers after string of lawsuits**: [Link](https://www.theguardian.com/games/2025/nov/18/roblox-facial-age-estimation-children-adults-chats-blocked)
+- **Roblox Requires Age Checks for Communication, Ushering in New Safety Standard**: [Link](https://corp.roblox.com/newsroom/2025/11/roblox-requires-age-checks-limits-minor-and-adult-chat)
+- **Lawsuits claim Roblox endangers kids. New AI age verification aims to block them from chatting with adults**: [Link](https://www.cnn.com/2025/11/18/tech/roblox-ai-age-verification-youth-safety)
+
+
+### elbotola (N/A, Tue, 18 Nov 2025 05:10:00 -0800)
+
+
+
+
+### mexique u-17 – portugal u-17 (N/A, Tue, 18 Nov 2025 05:00:00 -0800)
+
+- **Coupe du Monde U17, Mexique - Portugal : sur quelle chaîne et à quelle heure voir le match ?**: [Link](https://trivela.fr/coupe-du-monde-u17-mexique-portugal-chaine/)
+- **Coupe du Monde U17 : le Portugal face au piège mexicain en huitièmes de finale**: [Link](https://africafootunited.com/coupe-du-monde-u17-le-portugal-face-au-piege-mexicain-en-huitiemes-de-finale/)
+- **Mexique - Portugal : à quelle heure et sur quelle chaîne suivre ce choc en 8e de finale de la Coupe du Monde U17 2025**: [Link](https://quelleheurequellechaine.fr/football/international/regarder-mexique-portugal-u17-8e-finale-coupe-du-monde-2025-diffusion-direct/)
+
+
 ### gemini (N/A, Tue, 18 Nov 2025 04:40:00 -0800)
 
 - **Alphabet: Gemini 3.0 Is Coming, What's In Play (NASDAQ:GOOG)**: [Link](https://seekingalpha.com/article/4844555-alphabet-gemini-3-0-is-coming-whats-in-play)
