@@ -1,3 +1,10 @@
+### friendlies (N/A, Tue, 18 Nov 2025 11:10:00 -0800)
+
+- **Egypt vs Cape Verde: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cjd0vdm9de9t)
+- **Egypt clinches third place at Al Ain Tournament after penalty shootout win over Cape Verde**: [Link](https://www.egypttoday.com/Article/8/143541/Egypt-clinches-third-place-at-Al-Ain-Tournament-after-penalty)
+- **(Video) Omar Marmoush Scores as Egypt Equalise Against Cape Verde in UAE Friendly Ahead of AFCON 2025**: [Link](https://foot-africa.com/en/news/video-omar-marmoush-scores-as-egypt-equalise-against-cape-verde-in-uae-friendly-ahead-of-afcon-2025-964967/)
+
+
 ### espagne – turquie (N/A, Tue, 18 Nov 2025 11:00:00 -0800)
 
 - **"Il est indiscutable avec l'Espagne et le Real n'a pas voulu de lui"**: [Link](https://real-france.fr/il-est-indiscutable-avec-lespagne-et-le-real-na-pas-voulu-de-lui/)
