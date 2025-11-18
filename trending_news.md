@@ -1,3 +1,24 @@
+### belgique – liechtenstein (N/A, Tue, 18 Nov 2025 12:00:00 -0800)
+
+- **Belgique-Liechtenstein : quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/belgique-liechtenstein-quelle-chaine-diffuse-le-match-968214.html)
+- **LOSC : un défenseur se casse la main en sélection nationale**: [Link](https://le11hdf.fr/losc-defenseur-casse-la-main-selection-nationale/)
+- **Un choix lourd de sens : le statut de Maarten Vandevoordt est en grand danger**: [Link](https://www.walfoot.be/news/2025-11-18/un-choix-lourd-de-sens--le-statut-de-maarten-vandevoordt-est-en-grand-danger)
+
+
+### coupe arabe (N/A, Tue, 18 Nov 2025 11:50:00 -0800)
+
+- **Coupe Arabe de la FIFA (préparation): L’équipe nationale A’ s’impose face à Djibouti**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%AF%D8%AC%D9%8A%D8%A8%D9%88%D8%AA/)
+- **Large victoire du Maroc A' face à Djibouti (7-0)**: [Link](https://m.elbotola.com/fr/article/2025-11-17-20-07-414.html)
+- **Préparatifs de la Coupe arabe : les Lions de l’Atlas dominent Djibouti en amical**: [Link](https://lematin.ma/sports/preparatifs-de-la-coupe-arabe-les-lions-de-latlas-dominent-djibouti/313905)
+
+
+### snrt (N/A, Tue, 18 Nov 2025 11:20:00 -0800)
+
+- **بحضور المدير العام للأمن الوطني.. الرباط تحتضن حفل التميز السنوي احتفاءً بأبناء أسرة الشرطة والمتقاعدين في ذكرى الاستقلال**: [Link](https://achtari24.com/%D8%A8%D8%AD%D8%B6%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%84%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7.html)
+- **حموشي يترأس حفل التميز لمؤسسة محمد السادس للأعمال الاجتماعية للأمن الوطني بالرباط**: [Link](https://hounasahara.net/%D8%AD%D9%85%D9%88%D8%B4%D9%8A-%D9%8A%D8%AA%D8%B1%D8%A3%D8%B3-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-%D9%84%D9%85%D8%A4%D8%B3%D8%B3%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3/)
+- **حموشي يترأس حفل تميز أسرة الأمن الوطني**: [Link](https://www.mcg24.com/197992-%D8%AD%D9%85%D9%88%D8%B4%D9%8A-%D9%8A%D8%AA%D8%B1%D8%A3%D8%B3-%D8%AD%D9%81%D9%84-%D8%AA%D9%85%D9%8A%D8%B2-%D8%A3%D8%B3%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A)
+
+
 ### البرازيل ضد تونس (N/A, Tue, 18 Nov 2025 11:20:00 -0800)
 
 - **موعد مباراة البرازيل وتونس الودية 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2025-%D8%A2%D8%B3%D9%8A%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt73c3bca3bafb6aa5)
