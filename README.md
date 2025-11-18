@@ -1,3 +1,17 @@
+### corée du sud – ghana (N/A, Tue, 18 Nov 2025 03:10:00 -0800)
+
+- **A l'approche d'un match amical Corée-Ghana**: [Link](https://fr.yna.co.kr/view/PYH20251117159300884)
+- **Streaming Corée du Sud/Ghana : Où et comment voir le match ?**: [Link](https://www.parisfans.fr/autour-du-psg/streaming-coree-du-sud-ghana-ou-et-comment-voir-le-match-876028.html)
+- **Journées FIFA : Le Ghana veut se racheter face à la Corée du Sud**: [Link](https://africafootunited.com/journees-fifa-le-ghana-veut-se-racheter-face-a-la-coree-du-sud/)
+
+
+### zone turf (N/A, Tue, 18 Nov 2025 03:10:00 -0800)
+
+- **Tiercé. Les pronostics de L'Alsace pour mardi 18 novembre - Prix de Beauvais**: [Link](https://www.lalsace.fr/actualite/2025/11/17/les-pronostics-de-l-alsace-pour-mardi-18-novembre-prix-de-beauvais)
+- **Les pronos hippiques du mardi 18 novembre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-18-novembre-2025_AN-202511170914.html)
+- **Quinté du mardi 18 novembre 2025 à Chantilly : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-mardi-18-novembre-2025-a-chantilly-les-pronostics-7900567077)
+
+
 ### التعليم (N/A, Mon, 17 Nov 2025 15:50:00 -0800)
 
 - **النقابات التعليمية تلتقي بمسؤولي وزارة التربية وسط جدل "ساعات العمل"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85%D9%8A%D8%A9-%D8%AA%D9%84%D8%AA%D9%82%D9%8A-%D8%A8%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A-%D9%88%D8%B2%D8%A7-1657398.html)
