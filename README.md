@@ -1,3 +1,24 @@
+### المغرب تحت 17 سنة ضد مالي تحت 17 (N/A, Tue, 18 Nov 2025 07:10:00 -0800)
+
+- **تشكيلة "أشبال U17" أمام مالي**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-u17-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%84%D9%8A-1657936.html)
+- **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء مالي**: [Link](https://frmf.ma/ar/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5/)
+- **مباشر مباراة المغرب ضد مالي في كأس العالم للناشئين**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/18/morocco-vs-mali)
+
+
+### morocco u-17 vs mali u-17 (N/A, Tue, 18 Nov 2025 07:10:00 -0800)
+
+- **Morocco Resumes Training Ahead of Mali Clash in U-17 World Cup Round of 16**: [Link](https://m.elbotola.com/en/article/2025-11-15-17-50-42.html)
+- **Morocco U17: Nabil Baha confident ahead of clash against Mali**: [Link](https://mountakhab.net/en/morocco-u17-nabil-baha-confident-ahead-of-clash-against-mali/)
+- **U.S. knocked out of U-17 World Cup by Morocco on penalties - The Athletic**: [Link](https://www.nytimes.com/athletic/6808179/2025/11/14/us-under-17-world-cup-penalties-morroco/)
+
+
+### maroc u-17 – mali u-17 (N/A, Tue, 18 Nov 2025 07:00:00 -0800)
+
+- **Coupe du monde U17 de la FIFA (8ès de finale): entraînement de veille de match des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5/)
+- **Mondial U17 : les Lionceaux de l'Atlas défient le Mali pour une place en quarts**: [Link](https://lematin.ma/sports/mondial-u17-le-maroc-defie-le-mali-pour-une-place-en-quarts-de-finale/314073)
+- **Maroc U17-Mali U17: à quelle heure et sur quelles chaînes?**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-u17-mali-u17-a-quelle-heure-et-sur-quelles-chaines_QSO6DBYQXRAHREORCJP5POZ6TI/)
+
+
 ### men (N/A, Tue, 18 Nov 2025 07:00:00 -0800)
 
 - **Half of men admit they have ignored potentially worrying health issues**: [Link](https://www.richmondandtwickenhamtimes.co.uk/news/national/uk-today/25631454.half-men-ignored-potentially-worrying-health-issues/)
