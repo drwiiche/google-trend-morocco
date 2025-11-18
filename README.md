@@ -1,3 +1,17 @@
+### maroc (N/A, Tue, 18 Nov 2025 09:20:00 -0800)
+
+- **Ouverture le 15 novembre de la troisième phase de vente des billets de la TotalEnergies CAF AFCON Maroc 2025, dans un contexte de demande mondiale sans précédent**: [Link](https://www.cafonline.com/fr/can2025/infos/ouverture-le-15-novembre-de-la-troisieme-phase-de-vente-des-billets-de-la-totalenergies-caf-afcon-maroc-2025-dans-un-contexte-de-demande-mondiale-sans-precedent/)
+- **Les aéroports marocains aux couleurs de la CAN 2025**: [Link](https://mobile.telquel.ma/instant-t/2025/11/17/les-aeroports-marocains-aux-couleurs-de-la-can-2025_1961327/)
+- **CAN 2025 : L’ONMT met le paquet pour promouvoir la marque Maroc**: [Link](https://www.leconomiste.com/flash-infos/can-2025-lonmt-met-le-paquet-pour-promouvoir-la-marque-maroc/)
+
+
+### morocco vs (N/A, Tue, 18 Nov 2025 09:20:00 -0800)
+
+- **Uganda face true AFCON test as they battle Morocco in Tangier**: [Link](https://www.panafricafootball.com/post/uganda-afcon-morocco-tangier/)
+- **In-form Lions test Cranes progress**: [Link](https://www.monitor.co.ug/uganda/sports/soccer/in-form-lions-test-cranes-progress-5267646)
+- **Paul Put and Jordan Obita Pick Positives from Cranes’ Win Over Chad Ahead of Major Test Against Morocco**: [Link](https://www.pulsesports.ug/football/story/paul-put-and-jordan-obita-pick-positives-from-cranes-win-over-chad-ahead-of-major-test-against-morocco-2025111512422536436)
+
+
 ### saudi arabia vs algeria (N/A, Tue, 18 Nov 2025 08:50:00 -0800)
 
 - **Preview:Saudi Arabia vs Algeria - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/saudi-arabia/preview/saudi-arabia-vs-algeria-prediction-team-news-lineups_585837.html)
