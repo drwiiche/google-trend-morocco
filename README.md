@@ -1,3 +1,10 @@
+### طقس اليوم (N/A, Mon, 17 Nov 2025 22:30:00 -0800)
+
+- **الأرصاد الجوية تتوقع تساقطات مطرية وثلجية بعدد من مناطق المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%AB-1657174.html)
+- **أجواء غائمة وممطرة متوقعة اليوم الأربعاء**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D8%B4%D9%85%D8%A7%D9%84-%D9%88%D8%B4/)
+- **الطقس غدا الثلاثاء.. أمطار رعدية وثلوج فوق الأطلس الكبير - هبة بريس**: [Link](https://ar.hibapress.com/details-676781.html)
+
+
 ### stake (N/A, Mon, 17 Nov 2025 17:00:00 -0800)
 
 - **Peter Thiel's fund offloaded Nvidia stake in third quarter, filing shows**: [Link](https://www.reuters.com/business/media-telecom/peter-thiels-fund-offloaded-nvidia-stake-third-quarter-filing-shows-2025-11-17/)
