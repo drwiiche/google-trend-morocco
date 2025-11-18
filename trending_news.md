@@ -1,3 +1,10 @@
+### sgtm (N/A, Mon, 17 Nov 2025 23:50:00 -0800)
+
+- **SGTM s’introduit à la Bourse de Casablanca, ouverture des souscriptions le 1er décembre**: [Link](https://boursenews.ma/article/marches/SGTM-introduction-bourse-casa)
+- **Bourse. SGTM: la date et les conditions de l'IPO sont connues**: [Link](https://medias24.com/2025/11/18/bourse-sgtm-la-date-et-les-conditions-de-lipo-sont-connues/)
+- **SGTM: Interview croisée avec deux générations au service d’un Maroc qui avance**: [Link](https://www.challenge.ma/sgtm-interview-croisee-avec-deux-generations-au-service-dun-maroc-qui-avance-313278/)
+
+
 ### palais kremlin bouskoura (N/A, Tue, 18 Nov 2025 01:00:00 -0800)
 
 - **Bouskoura : un célèbre édifice démoli pour violations graves de l'urbanisme**: [Link](https://medias24.com/2025/11/17/bouskoura-un-celebre-edifice-demoli-pour-violations-graves-de-lurbanisme/)
