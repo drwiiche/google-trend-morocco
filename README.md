@@ -1,3 +1,10 @@
+### fc barcelone (N/A, Mon, 17 Nov 2025 23:10:00 -0800)
+
+- **Barça : le nouveau prix délirant des places au Camp Nou**: [Link](https://www.footmercato.net/a1568875659140845980-barca-le-nouveau-prix-delirant-des-places-au-camp-nou)
+- **Communiqué du FC Barcelone**: [Link](https://www.fcbarcelona.fr/fr/club/actualites/4404004/communique-du-fc-barcelone)
+- **Lamine Yamal, la grande promesse**: [Link](https://www.football365.fr/lamine-yamal-la-grande-promesse-10265400.html)
+
+
 ### طقس اليوم (N/A, Mon, 17 Nov 2025 22:30:00 -0800)
 
 - **الأرصاد الجوية تتوقع تساقطات مطرية وثلجية بعدد من مناطق المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%AB-1657174.html)
