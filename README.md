@@ -1,3 +1,15 @@
+### hervé renard (N/A, Tue, 18 Nov 2025 02:20:00 -0800)
+
+
+
+
+### 18 نونبر في المغرب (N/A, Mon, 17 Nov 2025 23:10:00 -0800)
+
+- **الأرصاد الجوية تتوقع تساقطات مطرية وثلجية بعدد من مناطق المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%AB-1657174.html)
+- **الطقس غدًا الإثنين: أمطار وزخات رعدية مع ارتفاع طفيف في درجات الحرارة - هبة بريس**: [Link](https://ar.hibapress.com/details-676424.html)
+- **نشرة إنذارية: رياح محليا قوية وزخات مطرية رعدية مرتقبة بعدد من مناطق المملكة**: [Link](https://barlamane.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1/)
+
+
 ### sgtm (N/A, Mon, 17 Nov 2025 23:50:00 -0800)
 
 - **SGTM s’introduit à la Bourse de Casablanca, ouverture des souscriptions le 1er décembre**: [Link](https://boursenews.ma/article/marches/SGTM-introduction-bourse-casa)
