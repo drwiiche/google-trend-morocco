@@ -1,3 +1,10 @@
+### can (N/A, Tue, 18 Nov 2025 12:40:00 -0800)
+
+- **Epstein files latest: US House votes to make justice department release Epstein files**: [Link](https://www.bbc.com/news/live/cvgmrrrrlvmt)
+- **The One House Republican Who Voted Against Releasing the Epstein Files**: [Link](https://time.com/7334984/clay-higgins-epstein-files-house-vote/)
+- **Clay Higgins was the only Republican to vote against the Epstein files release. Here’s what he said**: [Link](https://www.cnn.com/2025/11/18/politics/clay-higgins-against-epstein-files-release)
+
+
 ### morocco match (N/A, Tue, 18 Nov 2025 11:30:00 -0800)
 
 - **Morocco edge Mali in five-goal thriller as Burkina Faso win shootout to reach U-17 World Cup quarter-finals**: [Link](https://www.cafonline.com/caf-u-17-africa-cup-of-nations/news/morocco-edge-mali-in-five-goal-thriller-as-burkina-faso-win-shootout-to-reach-u-17-world-cup-quarter-finals/)
