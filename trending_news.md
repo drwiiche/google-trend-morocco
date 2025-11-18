@@ -1,3 +1,10 @@
+### التعليم (N/A, Mon, 17 Nov 2025 15:50:00 -0800)
+
+- **النقابات التعليمية تلتقي بمسؤولي وزارة التربية وسط جدل "ساعات العمل"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85%D9%8A%D8%A9-%D8%AA%D9%84%D8%AA%D9%82%D9%8A-%D8%A8%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A-%D9%88%D8%B2%D8%A7-1657398.html)
+- **جامعة التعليم: القانون يقطع الطريق أمام أي زيادة في ساعات عمل الأساتذة**: [Link](https://al3omk.com/1117424.html)
+- **وزير التربية الوطنية في خروج غير موفق يثير زوبعة من الغضب والسخرية**: [Link](https://www.achpress.com/?p=396156)
+
+
 ### trump (N/A, Tue, 18 Nov 2025 02:40:00 -0800)
 
 - **Epstein wrote that Trump knew of sexual abuse but didn’t participate**: [Link](https://www.washingtonpost.com/politics/2025/11/12/house-democrats-release-epstein-email-that-claimed-trump-spent-hours-with-victim/)
