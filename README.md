@@ -1,3 +1,24 @@
+### men (N/A, Tue, 18 Nov 2025 07:00:00 -0800)
+
+- **Half of men admit they have ignored potentially worrying health issues**: [Link](https://www.richmondandtwickenhamtimes.co.uk/news/national/uk-today/25631454.half-men-ignored-potentially-worrying-health-issues/)
+- **Six men arrested over body found in burnt-out car near Langford**: [Link](https://www.bbc.co.uk/news/articles/c93d097wdwqo)
+- **Six arrested in connection with suspected murder of Letchworth man**: [Link](https://www.thecomet.net/news/25630471.langford-6-arrested-connection-suspected-murder/)
+
+
+### stella li maroc (N/A, Tue, 18 Nov 2025 07:00:00 -0800)
+
+- **Stella Li, vice-présidente de BYD, s'explique sur l'échec de l'usine de bus promise à Mohammed VI et le casse-tête des bornes**: [Link](https://mobile.telquel.ma/2025/11/17/stella-li-deballe-lusine-de-bus-promise-a-mohammed-vi-et-le-casse-tete-des-bornes_1961258)
+- **Automobile: Stella Li explique le phénomène BYD**: [Link](https://www.leconomiste.com/automobile-stella-li-explique-le-phenomene-byd/)
+- **Véhicules électriques : La vice-présidente exécutive de BYD en visite au Maroc**: [Link](https://www.yabiladi.com/articles/details/181426/vehicules-electriques-vice-presidente-executive-visite.html)
+
+
+### maroc vs ouganda (N/A, Tue, 18 Nov 2025 06:50:00 -0800)
+
+- **Maroc-Ouganda: entrainement ouvert aux médias au Stade de la Cité sportive de Tanger**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%85%D9%81%D8%AA%D9%88%D8%AD-2/)
+- **Les Lions de l’Atlas face à l’Ouganda pour faire le plein de confiance avant la CAN 2025**: [Link](https://lematin.ma/sports/les-lions-de-latlas-face-a-louganda-avant-la-can-2025/314097)
+- **L'équipe nationale marocaine effectue sa dernière séance d'entraînement avant d'affronter l'Ouganda**: [Link](https://m.elbotola.com/fr/article/2025-11-17-22-11-582.html)
+
+
 ### 500 (N/A, Tue, 18 Nov 2025 05:40:00 -0800)
 
 - **Stock Market Today: Dow Futures, Home Depot Shares Fall— Live Updates**: [Link](https://www.wsj.com/livecoverage/stock-market-today-dow-sp-500-nasdaq-11-18-2025?gaa_at=eafs&gaa_n=AWEtsqeELja0_O3dXuKAQrAzG9_F3YRDGw6gSu-sgFsl3ZpB3ZcveA8OHOrm&gaa_ts=691c8a10&gaa_sig=MgBokwnjOgnVF5cKZoPkHQHIbkzc6IGskc-FjK1X9bsAq6P3tHNu6kg3lVnfzRWBF6YdtHZtciZhLlmTHc3aaw%3D%3D)
