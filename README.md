@@ -1,3 +1,10 @@
+### ezzalzouli (N/A, Mon, 17 Nov 2025 23:10:00 -0800)
+
+- **Abde bajo observación médica por molestias en el tobillo antes del Marruecos-Uganda**: [Link](https://es.rue20.com/2025/11/17/abde-bajo-observacion-medica-por-molestias-en-el-tobillo-antes-del-marruecos-uganda/)
+- **الزلزولي يخوض تداريب انفرادية في آخر حصة للمنتخب المغربي قبل مواجهة أوغندا**: [Link](https://m.elbotola.com/article/2025-11-17-19-07-582.html)
+- **عاجل. نقل نجم منتخب المغرب من التداريب إلى مصحة خاصة في طنجة**: [Link](https://le12.ma/%D8%B9%D8%A7%D8%AC%D9%84-%D9%86%D9%82%D9%84-%D9%86%D8%AC%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%8A%D8%A8-%D8%A5/)
+
+
 ### fc barcelone (N/A, Mon, 17 Nov 2025 23:10:00 -0800)
 
 - **Barça : le nouveau prix délirant des places au Camp Nou**: [Link](https://www.footmercato.net/a1568875659140845980-barca-le-nouveau-prix-delirant-des-places-au-camp-nou)
