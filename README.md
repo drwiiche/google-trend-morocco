@@ -1,3 +1,10 @@
+### palais kremlin bouskoura (N/A, Tue, 18 Nov 2025 01:00:00 -0800)
+
+- **Bouskoura : un célèbre édifice démoli pour violations graves de l'urbanisme**: [Link](https://medias24.com/2025/11/17/bouskoura-un-celebre-edifice-demoli-pour-violations-graves-de-lurbanisme/)
+- **Démolition totale du Palais de Bouskoura**: [Link](https://fr.hespress.com/449797-demolition-totale-du-palais-de-bouskoura.html)
+- **Non, le gouverneur de Nouaceur n’a pas été suspendu de ses fonctions**: [Link](https://www.lesiteinfo.com/maroc/660026-non-le-gouverneur-de-nouaceur-na-pas-ete-suspendu-de-ses-fonctions.html)
+
+
 ### ezzalzouli (N/A, Mon, 17 Nov 2025 23:10:00 -0800)
 
 - **Abde bajo observación médica por molestias en el tobillo antes del Marruecos-Uganda**: [Link](https://es.rue20.com/2025/11/17/abde-bajo-observacion-medica-por-molestias-en-el-tobillo-antes-del-marruecos-uganda/)
