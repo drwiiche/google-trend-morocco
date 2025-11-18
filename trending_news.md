@@ -1,3 +1,31 @@
+### brazil u17 (N/A, Tue, 18 Nov 2025 10:00:00 -0800)
+
+- **🧤 Keeper hero again as Brazil reach U17 World Cup quarter-finals**: [Link](https://sports.yahoo.com/article/keeper-hero-again-brazil-reach-155500755.html)
+- **Cruzeiro starlet nets late, sends Brazil to U17 World Cup quarters**: [Link](https://onefootball.com/en/news/cruzeiro-starlet-nets-late-sends-brazil-to-u17-world-cup-quarters-41968249)
+- **Brazil defeats France in U-17 World Cup Round of 16 thriller**: [Link](https://www.red94.net/news/94963-brazil-defeats-france-in-u-17-world-cup-round-of-16-thriller/)
+
+
+### morocco (N/A, Tue, 18 Nov 2025 10:00:00 -0800)
+
+- **Morocco Hits High-Tech Manufacturing Target 11 Years Early**: [Link](https://www.moroccoworldnews.com/2025/11/268402/morocco-hits-high-tech-manufacturing-target-11-years-early/)
+- **Morocco’s high-tech industrial value surpasses 50% milestone**: [Link](https://northafricapost.com/92416-moroccos-high-tech-industrial-value-surpasses-50-milestone.html)
+- **Morocco’s Industrial Equipment Imports Surge 132% Amid High-Tech Shift**: [Link](https://www.moroccoworldnews.com/2025/11/267411/moroccos-industrial-equipment-imports-surge-132-amid-high-tech-shift/)
+
+
+### u17 world cup 2025 (N/A, Tue, 18 Nov 2025 09:50:00 -0800)
+
+- **FIFA U-17 World Cup: 4 African countries qualify for Round of 16 [Full Fixtures]**: [Link](https://www.vanguardngr.com/2025/11/fifa-u-17-world-cup-4-african-countries-qualify-for-round-of-16-full-fixtures/)
+- **Talent, pathways and political economy of youth football**: [Link](https://thepeninsulaqatar.com/opinion/18/11/2025/talent-pathways-and-political-economy-of-youth-football)
+- **U17 World Cup Round of 16 set: Four African nations advance as Morocco & Mali collide in blockbuster clash**: [Link](https://foot-africa.com/en/news/u17-world-cup-round-of-16-set-four-african-nations-advance-as-morocco-mali-collide-in-blockbuster-clash-963725/)
+
+
+### maroc vs (N/A, Tue, 18 Nov 2025 09:00:00 -0800)
+
+- **Le Maroc marque un peu plus l’histoire**: [Link](https://www.football.fr/international/le-maroc-marque-un-peu-plus-lhistoire-784701.html)
+- **Maroc-Ouganda: entrainement ouvert aux médias au Stade de la Cité sportive de Tanger**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%85%D9%81%D8%AA%D9%88%D8%AD-2/)
+- **Les Lions de l’Atlas face à l’Ouganda pour faire le plein de confiance avant la CAN 2025**: [Link](https://lematin.ma/sports/les-lions-de-latlas-face-a-louganda-avant-la-can-2025/314097)
+
+
 ### maroc foot (N/A, Tue, 18 Nov 2025 09:30:00 -0800)
 
 - **Tirage de la Coupe du monde, le Maroc est fixé**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/tirage-de-la-coupe-du-monde-le-maroc-est-fixe-968190.html)
