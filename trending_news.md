@@ -1,3 +1,10 @@
+### trump (N/A, Tue, 18 Nov 2025 02:40:00 -0800)
+
+- **Epstein wrote that Trump knew of sexual abuse but didn’t participate**: [Link](https://www.washingtonpost.com/politics/2025/11/12/house-democrats-release-epstein-email-that-claimed-trump-spent-hours-with-victim/)
+- **Epstein Alleged in Emails That Trump Knew of His Conduct**: [Link](https://www.nytimes.com/2025/11/12/us/politics/trump-epstein-emails.html)
+- **Jeffrey Epstein claimed he gave Russians insight into Trump**: [Link](https://www.politico.com/news/2025/11/12/jeffrey-epstein-donald-trump-russia-emails-00648919)
+
+
 ### hervé renard (N/A, Tue, 18 Nov 2025 02:20:00 -0800)
 
 
