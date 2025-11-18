@@ -1,3 +1,10 @@
+### stake (N/A, Mon, 17 Nov 2025 17:00:00 -0800)
+
+- **Peter Thiel's fund offloaded Nvidia stake in third quarter, filing shows**: [Link](https://www.reuters.com/business/media-telecom/peter-thiels-fund-offloaded-nvidia-stake-third-quarter-filing-shows-2025-11-17/)
+- **Peter Thiel dumps top AI stock, stirring bubble fears**: [Link](https://finance.yahoo.com/news/peter-thiel-dumps-top-ai-143300737.html)
+- **Peter Thiel's hedge fund dumps Nvidia stake, cuts back Tesla position**: [Link](https://www.cnbc.com/2025/11/17/peter-thiels-hedge-fund-dumps-nvidia-stake-cuts-back-tesla-position.html)
+
+
 ### germany vs slovakia (N/A, Mon, 17 Nov 2025 12:20:00 -0800)
 
 - **Germany-Slovakia - World Cup Qualification UEFA 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1896688/preview/international-world-cup-qualification-uefa-2025-2026-germany-slovakia)
