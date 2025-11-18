@@ -1,3 +1,17 @@
+### bein sport (N/A, Tue, 18 Nov 2025 07:40:00 -0800)
+
+- **The Greatest Football Legends Who Never Played a World Cup**: [Link](https://www.beinsports.com/en-us/soccer/world-cup/articles/the-greatest-football-legends-who-never-played-a-world-cup-2025-11-18)
+- **Five of the greatest footballers who never played in a World Cup**: [Link](https://thefootballfaithful.com/five-of-the-greatest-footballers-who-never-played-in-a-world-cup/)
+- **The 2026 World Cup Loses Its Champions League Top Scorer: Victor Osimhen**: [Link](https://www.beinsports.com/en-us/soccer/articles/the-2026-world-cup-loses-the-champions-league-top-scorer-victor-osimhen-2025-11-17)
+
+
+### kooora tv (N/A, Tue, 18 Nov 2025 07:30:00 -0800)
+
+- **ليفاندوفسكي: لن أضغط على برشلونة من أجل التجديد.. والعمر يجعلني أقل توترا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A-%D9%84%D9%86-%D8%A7%D9%94%D8%B6%D8%BA%D8%B7-%D8%B9%D9%84%D9%89-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%86-%D8%A7%D9%94%D8%AC%D9%84-%D8%A7%D9%84%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF--%D9%88%D8%A7%D9%84%D8%B9%D9%85%D8%B1-%D9%8A%D8%AC%D8%B9%D9%84%D9%86%D9%8A-%D8%A7%D9%94%D9%82%D9%84-%D8%AA%D9%88%D8%AA%D8%B1%D8%A7/blt385be92914476d98)
+- **ميلان يريد تكرار تجربة مودريتش للتعاقد مع ليفاندوفسكي**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D8%B1%D9%8A%D8%AF-%D8%AA%D9%83%D8%B1%D8%A7%D8%B1-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D8%AF%D8%B1%D9%8A%D8%AA%D8%B4-%D9%84%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A)
+- **برشلونة يستبعد تماماً فكرة رحيل في يناير عن...**: [Link](https://foot-africa.com/ar/news/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D8%A8%D8%B9%D8%AF-%D8%AA%D9%85%D8%A7%D9%85%D8%A7-%D9%81%D9%83%D8%B1%D8%A9-%D8%B1%D8%AD%D9%8A%D9%84-%D9%81%D9%8A-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-%D8%B9%D9%86-963296/)
+
+
 ### المغرب تحت 17 سنة ضد مالي تحت 17 (N/A, Tue, 18 Nov 2025 07:10:00 -0800)
 
 - **تشكيلة "أشبال U17" أمام مالي**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-u17-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%84%D9%8A-1657936.html)
