@@ -1,3 +1,10 @@
+### 500 (N/A, Tue, 18 Nov 2025 05:40:00 -0800)
+
+- **Stock Market Today: Dow Futures, Home Depot Shares Fall— Live Updates**: [Link](https://www.wsj.com/livecoverage/stock-market-today-dow-sp-500-nasdaq-11-18-2025?gaa_at=eafs&gaa_n=AWEtsqeELja0_O3dXuKAQrAzG9_F3YRDGw6gSu-sgFsl3ZpB3ZcveA8OHOrm&gaa_ts=691c8a10&gaa_sig=MgBokwnjOgnVF5cKZoPkHQHIbkzc6IGskc-FjK1X9bsAq6P3tHNu6kg3lVnfzRWBF6YdtHZtciZhLlmTHc3aaw%3D%3D)
+- **AI doubts extend Wall Street sell-off and Home Depot profit falls short for 3rd time**: [Link](https://www.post-gazette.com/business/money/2025/11/18/stock-market-today-november-18-2025/stories/202511180048)
+- **Global stocks sell-off as AI valuation concerns persist ahead of Nvidia earnings**: [Link](https://www.cnbc.com/2025/11/18/global-stocks-slide-as-valuation-fears-grow-ahead-of-nvidia-earnings.html)
+
+
 ### مباريات اليوم المغرب (N/A, Tue, 18 Nov 2025 05:30:00 -0800)
 
 - **موعد مباراة المغرب الودية ضد أوغندا والتشكيلة المتوقعة والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/17/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9)
