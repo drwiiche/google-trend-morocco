@@ -1,3 +1,10 @@
+### المغرب مالي (N/A, Tue, 18 Nov 2025 03:50:00 -0800)
+
+- **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء مالي**: [Link](https://frmf.ma/ar/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5/)
+- **"الفتيان" يستعدّون بثقة لمواجهة مالي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF%D9%91%D9%88%D9%86-%D8%A8%D8%AB%D9%82%D8%A9-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%85%D8%A7%D9%84%D9%8A-1657424.html)
+- **لاعبو مالي قبل مباراة المغرب: "سننقاتل من أجل التأهل وإسعاد شعبنا"**: [Link](https://m.elbotola.com/article/2025-11-17-21-15-635.html)
+
+
 ### corée du sud – ghana (N/A, Tue, 18 Nov 2025 03:10:00 -0800)
 
 - **A l'approche d'un match amical Corée-Ghana**: [Link](https://fr.yna.co.kr/view/PYH20251117159300884)
