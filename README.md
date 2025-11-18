@@ -1,3 +1,38 @@
+### saudi arabia vs algeria (N/A, Tue, 18 Nov 2025 08:50:00 -0800)
+
+- **Preview:Saudi Arabia vs Algeria - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/saudi-arabia/preview/saudi-arabia-vs-algeria-prediction-team-news-lineups_585837.html)
+- **Renard: Proud to Coach Salem Al-Dawsari.. I Will Return to Africa After My Experience with Saudi Arabia**: [Link](https://www.ysscores.com/en/news/13857155/Renard:-Proud-to-Coach-Salem-Al-Dawsari..-I-Will-Return-to-Africa-After-My-Experience-with-Saudi-Arabia)
+- **Saudi Arabia-Algeria, on which channel to watch the match?**: [Link](https://frenchfootballweekly.com/2025/11/18/saudi-arabia-algeria-on-which-channel-to-watch-the-match/)
+
+
+### fifa u-17 world cup (N/A, Tue, 18 Nov 2025 08:50:00 -0800)
+
+- **Austria vs England: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/austria-vs-england-how-watch-u-17-world-cup-preview)
+- **Austria and England clash in FIFA U-17 World Cup Round of 16**: [Link](https://news.ssbcrack.com/austria-and-england-clash-in-fifa-u-17-world-cup-round-of-16/)
+- **Watch Austria vs England: U-17 World Cup Preview and Guide**: [Link](https://www.el-balad.com/6770767)
+
+
+### السعودية ضد الجزائر (N/A, Tue, 18 Nov 2025 08:40:00 -0800)
+
+- **قبل مواجهة الجزائر.. سجل متوازن للمنتخب السعودي أمام عرب أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1--%D8%B3%D8%AC%D9%84-%D9%85%D8%AA%D9%88%D8%A7%D8%B2%D9%86-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B9%D8%B1%D8%A8-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt3981a8cd64c1cccb)
+- **مباشر.. مباراة السعودية ضد الجزائر الودية (0-0)**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/18/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **موعد مباراة السعودية ضد الجزائر والقنوات الناقلة**: [Link](https://www.eremnews.com/sports/r5og2g6)
+
+
+### u17 (N/A, Tue, 18 Nov 2025 08:40:00 -0800)
+
+- **Brazil 1-1 France (18 Nov, 2025) Final Score**: [Link](https://www.espn.in/football/match/_/gameId/761291/france-u17-brazil-u17)
+- **Goals and Highlights: Brazil vs France in U-17 World Cup (1-1)**: [Link](https://www.vavel.com/en-us/soccer/2025/11/18/1241602-brazil-vs-france-live-score-u-17-world-cup.html)
+- **How to watch today's Brazil vs France U17 World Cup last-16 game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-brazil-vs-france-u17-world-cup-last-16-live-stream-tv/blt819f241195535434)
+
+
+### radio mars (N/A, Tue, 18 Nov 2025 08:40:00 -0800)
+
+- **اتحاد طنجة ينفصل عن المدرب الطاير**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D9%86%D9%81%D8%B5%D9%84-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%8A%D8%B1-1657954.html)
+- **اتحاد طنجة يُنهي ارتباطه بالمدرب هلال الطير**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/457332.html)
+- **احمد القنطاري يقترب من تدريب اتحاد طنجة وسط مفاوضات متقدمة وحسم مرتقب**: [Link](https://tanja24.com/%D8%A7%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%82%D9%86%D8%B7%D8%A7%D8%B1%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC/)
+
+
 ### match maroc (N/A, Tue, 18 Nov 2025 08:30:00 -0800)
 
 - **Maroc-Ouganda: entrainement ouvert aux médias au Stade de la Cité sportive de Tanger**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%85%D9%81%D8%AA%D9%88%D8%AD-2/)
