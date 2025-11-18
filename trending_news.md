@@ -1,3 +1,17 @@
+### maroc foot (N/A, Tue, 18 Nov 2025 09:30:00 -0800)
+
+- **Tirage de la Coupe du monde, le Maroc est fixé**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/tirage-de-la-coupe-du-monde-le-maroc-est-fixe-968190.html)
+- **Mondial 2026 : 34 pays assurent leur ticket pour une édition inédite**: [Link](https://lematin.ma/sports/mondial-2026-34-pays-assurent-leur-ticket-pour-une-edition-inedite/314159)
+- **Qui sont les qualifiés et les barragistes? Le bilan des éliminatoires de la zone Europe pour la Coupe du monde 2026**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/qualifications/qui-sont-les-qualifies-et-les-barragistes-le-bilan-des-eliminatoires-de-la-zone-europe-pour-la-coupe-du-monde-2026_AV-202511160377.html)
+
+
+### coupe du monde u17 2025 (N/A, Tue, 18 Nov 2025 09:30:00 -0800)
+
+- **Croatie (u17) 1-1 Ouzbékistan (u17), Coupe du monde (-17) : résumé du match (15/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-monde-17/2025/croatie-u17-ouzbekistan-u17-live/686720)
+- **Coupe du Monde U17 2025 – Huitièmes de finale : l’Italie résiste à l’Ouzbékistan et file en quarts**: [Link](https://africafootunited.com/coupe-du-monde-u17-2025-huitiemes-de-finale-litalie-resiste-a-louzbekistan-et-file-en-quarts/)
+- **Où voir Italie U17 vs Ouzbekistan U17, sur quelle chaîne en streaming ?**: [Link](https://www.footix.fr/ou-voir-italie-u17-vs-ouzbekistan-u17-sur-quelle-chaine-en-streaming/)
+
+
 ### maroc (N/A, Tue, 18 Nov 2025 09:20:00 -0800)
 
 - **Ouverture le 15 novembre de la troisième phase de vente des billets de la TotalEnergies CAF AFCON Maroc 2025, dans un contexte de demande mondiale sans précédent**: [Link](https://www.cafonline.com/fr/can2025/infos/ouverture-le-15-novembre-de-la-troisieme-phase-de-vente-des-billets-de-la-totalenergies-caf-afcon-maroc-2025-dans-un-contexte-de-demande-mondiale-sans-precedent/)
