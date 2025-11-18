@@ -1,3 +1,17 @@
+### المغرب ضد أوغندا (N/A, Tue, 18 Nov 2025 10:50:00 -0800)
+
+- **تشكيلة "الأسود" لمواجهة أوغندا وديا**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%88%D8%AF%D9%8A%D8%A7-1658044.html)
+- **موعد مباراة المغرب الودية ضد أوغندا والتشكيلة المتوقعة والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/17/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9)
+- **تشكيلة المغرب ضد أوغندا.. الركراكي يعتمد على الصيباري وإيغامان منذ البداية**: [Link](https://m.elbotola.com/article/2025-11-18-18-10-162.html)
+
+
+### fifa u17 (N/A, Tue, 18 Nov 2025 10:00:00 -0800)
+
+- **Full-length Replay: Round of 16: Mexico vs Portugal**: [Link](https://www.foxsports.com/replay/fmc-z46ne16ej1wdqzf3)
+- **Mexico's U-17 team's participation in the 2025 World Cup in Qatar comes to an end**: [Link](https://onefootball.com/fr/news/mexicos-u-17-teams-participation-in-the-2025-world-cup-in-qatar-comes-to-an-end-41968679)
+- **How to watch Mexico U17 vs Portugal U17 in the USA: Live Stream and TV for 2025 U17 World Cup**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-mexico-u17-vs-portugal-u17-in-the-usa-live-stream-and-tv-for-2025-u17-world-cup/)
+
+
 ### matches amicaux (N/A, Tue, 18 Nov 2025 10:30:00 -0800)
 
 - **Le Sénégal corrige le Kenya avec un Ibrahim Mbaye étincelant**: [Link](https://www.footmercato.net/a5366358404842808076-le-senegal-corrige-le-kenya-avec-un-ibrahim-mbaye-etincelant)
