@@ -1,3 +1,17 @@
+### وزارة التربية والتعليم (N/A, Tue, 18 Nov 2025 05:50:00 -0800)
+
+- **مدير "تعليم الجيزة" يتفقد مدارس الهرم وبولاق ويشدد على الارتقاء بمستوى الطلاب**: [Link](https://www.dostor.org/5310830)
+- **مدير تعليم الجيزة يشدد على تطبيق لائحة الانضباط المدرسى**: [Link](https://www.youm7.com/story/2025/11/17/%D9%85%D8%AF%D9%8A%D8%B1-%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B2%D8%A9-%D9%8A%D8%B4%D8%AF%D8%AF-%D8%B9%D9%84%D9%89-%D8%AA%D8%B7%D8%A8%D9%8A%D9%82-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%B6%D8%A8%D8%A7%D8%B7-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%89/7200449)
+- **«تعليم الجيزة»: المتابعة اليومية بالمدراس رؤية عمل لا إجراء شكلي**: [Link](https://m.akhbarelyom.com/news/newdetails/4725639/1/%D8%AC%D9%88%D9%84%D8%A9-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D8%A7%D9%86%D8%B6%D8%A8%D8%A7%D8%B7-%D9%88%D8%A7%D9%84%D8%AC%D9%88%D8%AF%D8%A9/amp)
+
+
+### riot (N/A, Tue, 18 Nov 2025 05:50:00 -0800)
+
+- **Cancelled Minecraft-Like Game Hytale Is Saved; Early Access Release Imminent**: [Link](https://comicbook.com/gaming/news/cancelled-minecraft-like-game-hytale-is-saved-early-access-release-imminent/)
+- **Canceled Minecraft Competitor Hytale Isn't Canceled After All**: [Link](https://www.gamespot.com/articles/canceled-minecraft-competitor-hytale-isnt-canceled-after-all/1100-6536298/)
+- **Hytale Development Resumes After Riot Games Sells Game Back to Co-Founder**: [Link](https://news.ssbcrack.com/hytale-development-resumes-after-riot-games-sells-game-back-to-co-founder/)
+
+
 ### المدينة البعيدة (N/A, Tue, 18 Nov 2025 05:40:00 -0800)
 
 - **موعد عرض مسلسل المدينة البعيدة الحلقة 38 والقنوات الناقلة**: [Link](https://www.almasryalyoum.com/news/details/4130517)
