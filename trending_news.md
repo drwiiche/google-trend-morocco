@@ -1,3 +1,10 @@
+### المدينة البعيدة (N/A, Tue, 18 Nov 2025 05:40:00 -0800)
+
+- **موعد عرض مسلسل المدينة البعيدة الحلقة 38 والقنوات الناقلة**: [Link](https://www.almasryalyoum.com/news/details/4130517)
+- **مسلسل المدينة البعيدة الحلقة 38 .. مستمر في الصدارة**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A8%D8%B9%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-38-%D9%85%D8%B3%D8%AA%D9%85%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9)
+- **مسلسل المدينة البعيدة الحلقة 39.. جيهان يعترف بحبه لعليا ورد فعل مفاجئ لبوران**: [Link](https://aboutmsr.com/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A8%D8%B9%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-39-%D8%AC%D9%8A%D9%87%D8%A7%D9%86-%D9%8A/)
+
+
 ### bet365 (N/A, Tue, 18 Nov 2025 05:30:00 -0800)
 
 - **bet365 Missouri Bonus Code LS365: Get $365 in pre-reg bonus bets**: [Link](https://www.livescore.com/en/news/nhl/promos/bet365-missouri-bonus-code-ls365-get-usd365-in-pre-reg-bonus-bets/)
