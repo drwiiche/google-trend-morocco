@@ -1,3 +1,31 @@
+### gemini (N/A, Tue, 18 Nov 2025 04:40:00 -0800)
+
+- **Alphabet: Gemini 3.0 Is Coming, What's In Play (NASDAQ:GOOG)**: [Link](https://seekingalpha.com/article/4844555-alphabet-gemini-3-0-is-coming-whats-in-play)
+- **Google's Gemini 3 is imminent. It could reshape the AI race.**: [Link](https://www.businessinsider.com/gemini-3-launch-google-ai-race-chatgpt-2025-11)
+- **Google CEO Responds to Polymarket Bet: Are Prediction Markets Vulnerable To Celebrity Manipulation?**: [Link](https://finance.yahoo.com/news/google-ceo-responds-polymarket-bet-163028006.html)
+
+
+### openai (N/A, Tue, 18 Nov 2025 04:40:00 -0800)
+
+- **Trouble in Toyland 2025: A.I. bots and toxics present hidden dangers**: [Link](https://pirg.org/edfund/resources/trouble-in-toyland-2025-a-i-bots-and-toxics-represent-hidden-dangers/)
+- **What did that teddy bear say? Study warns parents about AI toys**: [Link](https://www.kron4.com/news/technology-ai/what-did-that-teddy-bear-say-study-warns-parents-about-ai-toys/)
+- **AI-Powered Teddy Bear Caught Talking About Sexual Fetishes and Instructing Kids How to Find Knives**: [Link](https://gizmodo.com/ai-powered-teddy-bear-caught-talking-about-sexual-fetishes-and-instructing-kids-how-to-find-knives-2000687140)
+
+
+### chatgpt (N/A, Tue, 18 Nov 2025 04:00:00 -0800)
+
+- **Parts of the internet just stopped working**: [Link](https://www.independent.co.uk/tech/cloudflare-down-twitter-not-working-outage-b2867367.html)
+- **Cloudflare Outage Disrupts Access to Websites Worldwide, Including Morocco**: [Link](https://www.moroccoworldnews.com/2025/11/268346/cloudflare-outage-disrupts-access-to-websites-worldwide-including-morocco/)
+- **Elon Musk’s X goes down for desktop users: What’s happening?**: [Link](https://www.wionews.com/world/elon-musk-s-x-goes-down-for-desktop-users-what-s-happening-1763467581333)
+
+
+### roblox (N/A, Tue, 18 Nov 2025 01:10:00 -0800)
+
+- **Roblox to block children from talking to adult strangers after string of lawsuits**: [Link](https://www.theguardian.com/games/2025/nov/18/roblox-facial-age-estimation-children-adults-chats-blocked)
+- **Roblox Requires Age Checks for Communication, Ushering in New Safety Standard**: [Link](https://corp.roblox.com/newsroom/2025/11/roblox-requires-age-checks-limits-minor-and-adult-chat)
+- **Lawsuits claim Roblox endangers kids. New AI age verification aims to block them from chatting with adults**: [Link](https://www.cnn.com/2025/11/18/tech/roblox-ai-age-verification-youth-safety)
+
+
 ### المغرب مالي (N/A, Tue, 18 Nov 2025 03:50:00 -0800)
 
 - **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء مالي**: [Link](https://frmf.ma/ar/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5/)
