@@ -1,3 +1,16 @@
+### arabie saoudite – algérie (N/A, Tue, 18 Nov 2025 08:00:00 -0800)
+
+- **Hervé Renard interrompt sa conférence de presse quelques minutes pendant l'appel à la prière**: [Link](https://www.lequipe.fr/Football/Actualites/Quand-herve-renard-interrompt-sa-conference-de-presse-trois-minutes-pendant-l-appel-a-la-priere/1610531)
+- **Arabie saoudite : Hervé Renard interrompt sa conférence de presse pendant l’appel à la prière**: [Link](https://www.footmercato.net/a2906558587119402902-arabie-saoudite-herve-renard-interrompt-sa-conference-de-presse-pendant-lappel-a-la-priere)
+- **Sports - Petkovic prépare son plan face à Renard**: [Link](https://www.lexpressiondz.com/sports/petkovic-prepare-son-plan-face-a-renard-399973)
+
+
+### maroc vs mali u17 aujourd'hui (N/A, Tue, 18 Nov 2025 07:30:00 -0800)
+
+- **Officiel : L’équipe marocaine U17 connaît son adversaire en huitièmes de finale de la Coupe du Monde**: [Link](https://chamaly.ma/2025/11/11/officiel-lequipe-marocaine-u17-connait-son-adversaire-en-huitiemes-de-finale-de-la-coupe-du-monde/)
+- **En direct : Maroc vs Mali en huitièmes de finale de la Coupe du Monde U17**: [Link](https://chamaly.ma/2025/11/18/en-direct-maroc-vs-mali-en-huitiemes-de-finale-de-la-coupe-du-monde-u17/)
+
+
 ### bein sport (N/A, Tue, 18 Nov 2025 07:40:00 -0800)
 
 - **The Greatest Football Legends Who Never Played a World Cup**: [Link](https://www.beinsports.com/en-us/soccer/world-cup/articles/the-greatest-football-legends-who-never-played-a-world-cup-2025-11-18)
