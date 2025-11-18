@@ -1,3 +1,24 @@
+### espagne – turquie (N/A, Tue, 18 Nov 2025 11:00:00 -0800)
+
+- **"Il est indiscutable avec l'Espagne et le Real n'a pas voulu de lui"**: [Link](https://real-france.fr/il-est-indiscutable-avec-lespagne-et-le-real-na-pas-voulu-de-lui/)
+- **PRONOS PARIS RMC Le pari du jour du 18 novembre – Qualifs CDM 2026**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-18-novembre-qualifs-cdm-2026_AN-202511170629.html)
+- **"Nous voulons rester les premiers au monde", assure Luis de la Fuente**: [Link](https://www.flashscore.fr/actualites/football-coupe-du-monde-nous-voulons-rester-les-premiers-au-monde-assure-luis-de-la-fuente/2krgFqZj/)
+
+
+### brésil – tunisie (N/A, Tue, 18 Nov 2025 11:00:00 -0800)
+
+- **La Tunisie peut-elle être la surprise de la prochaine CAN ?**: [Link](https://www.eurosport.fr/football/matches-amicaux/2025/la-tunisie-peut-elle-etre-la-surprise-de-la-prochaine-can_sto23241997/story.shtml)
+- **Sélections : Brésil/Tunisie : chaîne et compos probables avec Marquinhos et un ancien du PSG**: [Link](https://www.culturepsg.com/news/selections/bresil-tunisie-chaine-et-compos-probables-avec-marquinhos-et-un-ancien-du-psg/57677)
+- **Brésil : Vinicius Jr copieusement hué par les supporters tunisiens**: [Link](https://www.footmercato.net/a6811252314205607203-bresil-vinicius-jr-copieusement-hue-par-les-supporters-tunisiens)
+
+
+### uganda (N/A, Tue, 18 Nov 2025 11:00:00 -0800)
+
+- **U-17 World Cup Round of 16: All-African tests as Uganda face Burkina Faso, Morocco meet Mali**: [Link](https://www.cafonline.com/caf-u-17-africa-cup-of-nations/news/u-17-world-cup-round-of-16-all-african-tests-as-uganda-face-burkina-faso-morocco-meet-mali/)
+- **Cubs fall with honour in Qatar**: [Link](https://www.monitor.co.ug/uganda/sports/soccer/cubs-fall-with-honour-in-qatar-5269248)
+- **U17 World Cup: Probable lineups for Germany vs Burkina Faso**: [Link](https://foot-africa.com/en/news/u17-world-cup-probable-lineups-for-germany-vs-burkina-faso-961901/)
+
+
 ### المغرب ضد أوغندا (N/A, Tue, 18 Nov 2025 10:50:00 -0800)
 
 - **تشكيلة "الأسود" لمواجهة أوغندا وديا**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%88%D8%AF%D9%8A%D8%A7-1658044.html)
