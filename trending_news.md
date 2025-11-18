@@ -1,3 +1,45 @@
+### spain vs turkey (N/A, Tue, 18 Nov 2025 13:30:00 -0800)
+
+- **Grimaldo and De Frutos omitted from Spain squad for Turkey match**: [Link](https://www.besoccer.com/new/grimaldo-and-de-frutos-omitted-from-spain-squad-for-turkey-match-1381812)
+- **LIVE: Spain vs Turkiye – UEFA qualifier World Cup 2026**: [Link](https://www.aljazeera.com/sports/liveblog/2025/11/18/live-spain-vs-turkiye-uefa-qualifier-world-cup-2026?update=4115582)
+- **Spain Turkey WCup Soccer**: [Link](https://www.chronicleonline.com/sports/soccer/spain-turkey-wcup-soccer/image_f4d07e81-da00-5e8e-b60e-d20acc179840.html)
+
+
+### endrick (N/A, Tue, 18 Nov 2025 13:30:00 -0800)
+
+- **Inside Real Madrid: What’s the latest with Endrick’s Lyon move? Plus: ownership updates**: [Link](https://www.nytimes.com/athletic/6814042/2025/11/17/inside-real-madrid-endrick-injuries/)
+- **Perez Considers Sale of Real Madrid Stake But Tax Bill Looms**: [Link](https://www.bloomberg.com/news/newsletters/2025-11-14/real-madrid-s-plan-to-sell-stake-shed-nonprofit-status)
+- **Florentino Perez looking to sell 5-10% of Real Madrid equity to outside investors**: [Link](https://ca.finance.yahoo.com/news/florentino-perez-looking-sell-5-153200937.html)
+
+
+### brazil fc (N/A, Tue, 18 Nov 2025 13:10:00 -0800)
+
+- **Estevao Willian makes claim that should absolutely terrify Chelsea’s rivals**: [Link](https://www.thechelseachronicle.com/news/estevao-willian-makes-claim-that-should-absolutely-terrify-chelseas-rivals/)
+- **‘The most important player…’: Ancelotti thinks Amorim has a star in his ranks who’s so ‘tactically intelligent’**: [Link](https://strettynews.com/2025/11/17/carlo-ancelotti-casemiro-ruben-amorim-manchester-united/)
+- **Report: Brazil 2-0 Senegal**: [Link](https://www.arsenal.com/news/report-brazil-2-0-senegal)
+
+
+### españa - turquía (N/A, Tue, 18 Nov 2025 13:10:00 -0800)
+
+- **España - Turquía hoy, en directo: fase de clasificación Mundial 2026, última hora en vivo**: [Link](https://as.com/futbol/seleccion/espana-turquia-en-directo-ultima-hora-de-la-clasificacion-para-el-mundial-2026-de-la-seleccion-hoy-en-vivo-f202511-d/)
+- **Sorpresa de lujo para España en el último entrenamiento en Sevilla**: [Link](https://www.mundodeportivo.com/seleccion-espanola/20251117/1002570997/sorpresa-lujo-espana-ultimo-entrenamiento-sevilla.html)
+- **Todos los récords que tiene a tiro España hoy en La Cartuja**: [Link](https://mundobetis.com/2025/11/18/todos-los-records-que-tiene-a-tiro-espana-hoy-en-la-cartuja/)
+
+
+### can 2025 (N/A, Tue, 18 Nov 2025 12:50:00 -0800)
+
+- **Afcon 2025: Which Premier League teams will lose most players to Afcon?**: [Link](https://www.bbc.com/sport/football/articles/c3w9vv22xx0o)
+- **Rob Edwards set for early Wolves blow with up to five players missing during festive period**: [Link](https://www.expressandstar.com/sport/2025/11/18/why-wolves-and-rob-edwards-are-set-to-feel-afcon-impact-more-than-most-premier-league-clubs/)
+- **Chelsea receive major AFCON boost as six fixtures set to be impacted**: [Link](https://www.football.london/chelsea-fc/news/chelsea-receive-major-afcon-boost-32866441)
+
+
+### brazil (N/A, Tue, 18 Nov 2025 12:20:00 -0800)
+
+- **Brazil creates new Indigenous territories during protest-hit COP30**: [Link](https://www.bbc.com/news/articles/c1d0vekq12ro)
+- **Nia Tero Celebrates Indigenous-Led Victory in the Demarcation of Kaxuyana-Tunayana and Additional Territories**: [Link](https://www.wowktv.com/business/press-releases/cision/20251118SF27871/nia-tero-celebrates-indigenous-led-victory-in-the-demarcation-of-kaxuyana-tunayana-and-additional-territories)
+- **Brazil creates new Indigenous territories after COP30 protests**: [Link](https://feeds.bbci.co.uk/news/articles/c1d0vekq12ro)
+
+
 ### belgique – liechtenstein (N/A, Tue, 18 Nov 2025 12:00:00 -0800)
 
 - **Belgique-Liechtenstein : quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/belgique-liechtenstein-quelle-chaine-diffuse-le-match-968214.html)
