@@ -1,3 +1,10 @@
+### كاس افريقيا 2025 (N/A, Tue, 18 Nov 2025 12:50:00 -0800)
+
+- **ما هي فرق البريميرليج الاكثر تضررا من كأس افريقيا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D9%87%D9%8A-%D9%81%D8%B1%D9%82-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D8%A7%D9%84%D8%A7%D9%94%D9%83%D8%AB%D8%B1-%D8%AA%D8%B6%D8%B1%D8%B1%D8%A7-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt812dfe5316f6d75d)
+- **الدوري الإنكليزي مهدد بخسارة 47 لاعباً بسبب كأس أمم أفريقيا**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D9%83%D9%84%D9%8A%D8%B2%D9%8A-%D9%85%D9%87%D8%AF%D8%AF-%D8%A8%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-47-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7%D9%8B-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **صلاح ومرموش بينهم.. 17 ناديًا إنجليزيا يخسرون نجومهم بسبب كأس الأمم الأفريقية**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2025/11/18/2893028/%D8%B5%D9%84%D8%A7%D8%AD-%D9%88%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D8%A8%D9%8A%D9%86%D9%87%D9%85-17-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7-%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A7-%D9%8A%D8%AE%D8%B3%D8%B1%D9%88%D9%86-%D9%86%D8%AC%D9%88%D9%85%D9%87%D9%85-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9)
+
+
 ### can (N/A, Tue, 18 Nov 2025 12:40:00 -0800)
 
 - **Epstein files latest: US House votes to make justice department release Epstein files**: [Link](https://www.bbc.com/news/live/cvgmrrrrlvmt)
