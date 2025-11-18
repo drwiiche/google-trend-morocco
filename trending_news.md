@@ -1,3 +1,31 @@
+### match maroc (N/A, Tue, 18 Nov 2025 08:30:00 -0800)
+
+- **Maroc-Ouganda: entrainement ouvert aux médias au Stade de la Cité sportive de Tanger**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%85%D9%81%D8%AA%D9%88%D8%AD-2/)
+- **Les Lions de l’Atlas face à l’Ouganda pour faire le plein de confiance avant la CAN 2025**: [Link](https://lematin.ma/sports/les-lions-de-latlas-face-a-louganda-avant-la-can-2025/314097)
+- **L'équipe nationale marocaine effectue sa dernière séance d'entraînement avant d'affronter l'Ouganda**: [Link](https://m.elbotola.com/fr/article/2025-11-17-22-11-582.html)
+
+
+### u17 world cup (N/A, Tue, 18 Nov 2025 08:30:00 -0800)
+
+- **🧤 Keeper the hero again, Brazil reach U17 World Cup quarter-finals**: [Link](https://sports.yahoo.com/article/keeper-hero-again-brazil-reach-155500755.html)
+- **Cruzeiro starlet nets late, sends Brazil to U17 World Cup quarters**: [Link](https://onefootball.com/en/news/cruzeiro-starlet-nets-late-sends-brazil-to-u17-world-cup-quarters-41968249)
+- **Brazil defeats France in U-17 World Cup Round of 16 thriller**: [Link](https://www.red94.net/news/94963-brazil-defeats-france-in-u-17-world-cup-round-of-16-thriller/)
+
+
+### senegal vs kenya (N/A, Tue, 18 Nov 2025 08:30:00 -0800)
+
+- **Senegal vs Kenya: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c891njlxkevt)
+- **Wounded Harambee Stars seek to close year with statement win over 2021 AFCON champions**: [Link](https://www.mozzartsport.co.ke/football/news/wounded-harambee-stars-seek-to-close-year-with-statement-win-over-2021-afcon-champions/59832)
+- **Kenya vs Senegal predictions: Senegal expected to bounce back**: [Link](https://www.goal.com/en-ke/betting/kenya-vs-senegal-predictions-18-11-2025/blt5779e8f05974661f)
+
+
+### sports (N/A, Tue, 18 Nov 2025 08:20:00 -0800)
+
+- **What makes a great women’s sports city? We ranked the top 10 in the U.S.**: [Link](https://www.nytimes.com/athletic/6807524/2025/11/18/womens-sports-cities-top-ranked-fans/)
+- **Have your say: What is the top women’s sports city in the U.S.?**: [Link](https://www.nytimes.com/athletic/6814036/2025/11/18/top-womens-sports-city-us-ranking-poll/)
+- **Early bets for Week 12: Bears to cover at home, Saints to pull off upset among plays**: [Link](https://www.espn.com/espn/betting/story/_/id/46941540/2025-nfl-week-12-games-betting-odds-props-early-pick-predictions-first-bet)
+
+
 ### arabie saoudite – algérie (N/A, Tue, 18 Nov 2025 08:00:00 -0800)
 
 - **Hervé Renard interrompt sa conférence de presse quelques minutes pendant l'appel à la prière**: [Link](https://www.lequipe.fr/Football/Actualites/Quand-herve-renard-interrompt-sa-conference-de-presse-trois-minutes-pendant-l-appel-a-la-priere/1610531)
