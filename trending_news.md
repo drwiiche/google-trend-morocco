@@ -1,3 +1,10 @@
+### bein sport live (N/A, Wed, 19 Nov 2025 10:50:00 -0800)
+
+- **Where to watch the CAF Awards 2025 ceremony live on Wednesday**: [Link](https://www.cafonline.com/news/where-to-watch-the-caf-awards-2025-ceremony-live-on-wednesday/)
+- **Achraf Hakimi Wins African Lion d’Or 2025**: [Link](https://www.moroccoworldnews.com/2025/11/268364/achraf-hakimi-wins-african-lion-dor-2025/)
+- **Regragui: "No Reason Hakimi Shouldn't Win African Player of the Year, But Surprises Happen"**: [Link](http://m.elbotola.com/en/article/2025-11-18-22-03-245.html)
+
+
 ### جوائز الكاف 2025 (N/A, Wed, 19 Nov 2025 08:50:00 -0800)
 
 - **بث مباشر.. شاهد حفل جوائز كاف الأفضل في إفريقيا 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1--%D8%AD%D9%81%D9%84-%D8%AC%D9%88%D8%A7%D9%8A%D9%94%D8%B2-%D9%83%D8%A7%D9%81-2025/blta381f832062d375c)
