@@ -1,3 +1,17 @@
+### brahim diaz (N/A, Tue, 18 Nov 2025 12:00:00 -0800)
+
+- **Regragui: "Diaz Delivered His Best Performance Despite Not Scoring; I Told Him 'The Most Important Thing Is to Score in the Africa Cup of Nations'"**: [Link](https://m.elbotola.com/en/article/2025-11-18-21-59-337.html)
+- **Arsenal officials 'travel to Spain for La Liga player', as move for wonderkid compared to Pedri ramps up: report**: [Link](https://www.fourfourtwo.com/transfer/arsenal-officials-travel-to-spain-for-la-liga-player-as-move-for-wonderkid-compared-to-pedri-ramps-up-report)
+- **Manchester City, Real Madrid in transfer tussle to sign Rodrigo Mendoza**: [Link](https://thehardtackle.com/transfer-news/2025/11/17/manchester-city-real-madrid-in-transfer-tussle-to-sign-rodrigo-mendoza/)
+
+
+### morocco football (N/A, Tue, 18 Nov 2025 11:50:00 -0800)
+
+- **Third phase of TotalEnergies CAF AFCON Morocco 2025 ticket sales opens on 15 November amid unprecedented global demand**: [Link](https://www.cafonline.com/afcon2025/news/third-phase-of-totalenergies-caf-afcon-morocco-2025-ticket-sales-opens-on-15-november-amid-unprecedented-global-demand/)
+- **‘Land of Football’: ONMT Unveils Strategic Campaign for AFCON 2025**: [Link](https://www.moroccoworldnews.com/2025/11/268411/land-of-football-onmt-unveils-strategic-campaign-for-afcon-2025/)
+- **How will AFCON 2025 impact the Bundesliga?**: [Link](https://www.bundesliga.com/en/bundesliga/news/2025-africa-cup-of-nations-afcon-morocco-dates-teams-format-impact-34752)
+
+
 ### كاس افريقيا 2025 (N/A, Tue, 18 Nov 2025 12:50:00 -0800)
 
 - **ما هي فرق البريميرليج الاكثر تضررا من كأس افريقيا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D9%87%D9%8A-%D9%81%D8%B1%D9%82-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D8%A7%D9%84%D8%A7%D9%94%D9%83%D8%AB%D8%B1-%D8%AA%D8%B6%D8%B1%D8%B1%D8%A7-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt812dfe5316f6d75d)
