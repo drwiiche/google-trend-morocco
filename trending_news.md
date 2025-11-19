@@ -1,3 +1,10 @@
+### caf (N/A, Wed, 19 Nov 2025 11:20:00 -0800)
+
+- **Mustapha Hadji, Gervinho, Janine van Wyk and Desire Oparanozie among African Legends to attend CAF Awards 2025 in Rabat**: [Link](https://www.cafonline.com/news/mustapha-hadji-gervinho-janine-van-wyk-and-desire-oparanozie-among-african-legends-to-attend-caf-awards-2025-in-rabat/)
+- **FULL LIST: African men’s best player award winners from 1992 to 2024**: [Link](https://punchng.com/full-list-african-mens-best-player-award-winners-from-1992-to-2024/)
+- **Tylon Smith: The QPR defender shortlisted for African Youth Player of the Year**: [Link](https://www.skysports.com/football/news/11095/13471774/tylon-smith-the-qpr-defender-shortlisted-for-african-youth-player-of-the-year)
+
+
 ### bein sport live (N/A, Wed, 19 Nov 2025 10:50:00 -0800)
 
 - **Where to watch the CAF Awards 2025 ceremony live on Wednesday**: [Link](https://www.cafonline.com/news/where-to-watch-the-caf-awards-2025-ceremony-live-on-wednesday/)
