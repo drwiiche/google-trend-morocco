@@ -1,3 +1,24 @@
+### email (N/A, Wed, 19 Nov 2025 00:40:00 -0800)
+
+- **How well did Bill Clinton know Jeffrey Epstein?**: [Link](https://abcnews.go.com/Politics/bill-clinton-jeffrey-epstein/story?id=127629827)
+- **The Epstein files are just the latest fracture in Trump's MAGA coalition**: [Link](https://www.npr.org/2025/11/18/nx-s1-5611107/epstein-files-mtg-trump-maga-gop)
+- **Jeffrey Epstein's brother says the 'Bubba' in viral email is not Bill Clinton - Truth or Fake**: [Link](https://www.france24.com/en/tv-shows/truth-or-fake/20251118-jeffrey-epstein-s-brother-says-the-bubba-in-viral-email-is-not-bill-clinton)
+
+
+### sgtm (N/A, Wed, 19 Nov 2025 00:00:00 -0800)
+
+- **SGTM : l'IPO qui confirme la montée en puissance du BTP marocain**: [Link](https://fr.hespress.com/450285-sgtm-lipo-qui-confirme-la-montee-en-puissance-du-btp-marocain.html)
+- **Bourse. SGTM: la date et les conditions de l'IPO sont connues**: [Link](https://medias24.com/2025/11/18/bourse-sgtm-la-date-et-les-conditions-de-lipo-sont-connues/)
+- **SGTM s’introduit à la Bourse de Casablanca au prix de 420 Dh par action**: [Link](https://lematin.ma/economie/sgtm-sintroduit-a-la-bourse-de-casablanca-au-prix-de-420-dh-par-action/314155)
+
+
+### bresil foot (N/A, Tue, 18 Nov 2025 13:20:00 -0800)
+
+- **Real Madrid, Brésil : la blessure de Militão se précise**: [Link](https://www.footmercato.net/a1332669240097940599-real-madrid-bresil-la-blessure-de-militao-se-precise)
+- **Coup dur pour le Real Madrid, un taulier se blesse avec sa sélection !**: [Link](https://www.onzemondial.com/liga/coup-dur-pour-le-real-madrid-un-taulier-se-blesse-avec-sa-selection-972124)
+- **Brésil – Tunisie : le Real Madrid retient son souffle après un coup dur**: [Link](https://foot-africa.com/actualites/bresil-tunisie-le-real-madrid-retient-son-souffle-apres-un-coup-dur-967136/)
+
+
 ### whatsapp (N/A, Wed, 19 Nov 2025 00:20:00 -0800)
 
 - **Meta Did Not Violate the Law When It Bought Instagram and WhatsApp, a Judge Rules**: [Link](https://www.nytimes.com/2025/11/18/technology/meta-antitrust-monopoly-ruling.html)
