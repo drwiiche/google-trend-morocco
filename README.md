@@ -1,3 +1,10 @@
+### patrick drahi (N/A, Wed, 19 Nov 2025 14:30:00 -0800)
+
+- **En parallèle du désengagement programmé de Patrick Drahi, Intelcia s’étend en Égypte**: [Link](https://ledesk.ma/encontinu/en-parallele-du-desengagement-programme-de-patrick-drahi-intelcia-setend-en-egypte/)
+- **Intelcia accélère son expansion en Égypte avec deux sites et 5 000 postes prévus d’ici 2026**: [Link](https://lematin.ma/economie/intelcia-accelere-son-expansion-en-egypte-5000-postes-prevus-dici-2026/314319)
+- **Intelcia amorce une nouvelle phase de croissance en Egypte**: [Link](https://www.leconomiste.com/flash-infos/intelcia-amorce-une-nouvelle-phase-de-croissance-en-egypte/)
+
+
 ### ballon d'or 2025 (N/A, Wed, 19 Nov 2025 12:20:00 -0800)
 
 - **Lamine Yamal, Ousmane Dembélé Get Strong Ballon d’Or Take From Real Madrid Icon**: [Link](https://sports.yahoo.com/article/lamine-yamal-ousmane-demb-l-223200387.html)
