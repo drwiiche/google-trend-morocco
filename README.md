@@ -1,3 +1,10 @@
+### caf awards 2025 (N/A, Wed, 19 Nov 2025 07:40:00 -0800)
+
+- **Achraf Hakimi remporte le prix Lion d’Or pour la deuxième année consécutive**: [Link](https://lematin.ma/sports/achraf-hakimi-remporte-le-prix-lion-dor-pour-la-2eme-annee-consecutive/314242)
+- **Regragui : « Aucune raison pour qu'Hakimi ne remporte pas le Ballon d'Or, mais les surprises sont toujours possibles**: [Link](https://m.elbotola.com/fr/article/2025-11-18-22-03-486.html)
+- **Foot : Achraf Hakimi remporte le prix Lion d’Or pour la deuxième année consécutive**: [Link](https://mobile.telquel.ma/instant-t/2025/11/18/foot-achraf-hakimi-remporte-le-prix-lion-dor-pour-la-deuxieme-annee-consecutive_1961483/)
+
+
 ### joakim noah (N/A, Wed, 19 Nov 2025 06:10:00 -0800)
 
 - **"I thought we had no shot" - Joakim Noah was ecstatic that the Bulls won the Gasol sweepstakes**: [Link](https://www.basketballnetwork.net/old-school/joakim-noah-was-ecstatic-that-the-chicago-bulls-won-the-pau-gasol-sweepstakes)
