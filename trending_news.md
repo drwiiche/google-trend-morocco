@@ -1,3 +1,10 @@
+### tunisie vs brazil (N/A, Tue, 18 Nov 2025 12:10:00 -0800)
+
+- **Tunisia National Team Draws Friendly Against Brazil (1-1)**: [Link](https://m.elbotola.com/en/article/2025-11-18-21-30-498.html)
+- **1-1: Vini Jr., Rodrygo and Militão involved in Brazil's draw with Tunisia**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/1-1-vini-jr-rodrygo-y-militao-participan-en-el-empate-de-brasil-frente-a-tunez-18-11-2025)
+- **France Brazil Tunisia Soccer**: [Link](https://www.chronicleonline.com/sports/soccer/france-brazil-tunisia-soccer/image_2ad553f2-10e6-5f76-8e49-89865470a6d6.html)
+
+
 ### nba (N/A, Tue, 18 Nov 2025 22:10:00 -0800)
 
 - **Sources: No effects for LeBron after practices**: [Link](https://www.espn.com/nba/story/_/id/46958284/sources-lebron-james-practices-g-league-affiliate-again)
