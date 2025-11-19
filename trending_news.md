@@ -1,3 +1,10 @@
+### ghizlane chebbak (N/A, Wed, 19 Nov 2025 11:40:00 -0800)
+
+- **Where to watch the CAF Awards 2025 ceremony live on Wednesday**: [Link](https://www.cafonline.com/news/where-to-watch-the-caf-awards-2025-ceremony-live-on-wednesday/)
+- **Achraf Hakimi Wins African Lion d’Or 2025**: [Link](https://www.moroccoworldnews.com/2025/11/268364/achraf-hakimi-wins-african-lion-dor-2025/)
+- **Regragui: "No Reason Hakimi Shouldn't Win African Player of the Year, But Surprises Happen"**: [Link](http://m.elbotola.com/en/article/2025-11-18-22-03-245.html)
+
+
 ### caf (N/A, Wed, 19 Nov 2025 11:20:00 -0800)
 
 - **Mustapha Hadji, Gervinho, Janine van Wyk and Desire Oparanozie among African Legends to attend CAF Awards 2025 in Rabat**: [Link](https://www.cafonline.com/news/mustapha-hadji-gervinho-janine-van-wyk-and-desire-oparanozie-among-african-legends-to-attend-caf-awards-2025-in-rabat/)
