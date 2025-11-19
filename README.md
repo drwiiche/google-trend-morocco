@@ -1,3 +1,10 @@
+### maroc sahara occidental (N/A, Wed, 19 Nov 2025 06:00:00 -0800)
+
+- **Sahara occidental : Alger prête à soutenir «toute médiation» entre le Polisario et Rabat**: [Link](https://www.lefigaro.fr/international/sahara-occidental-alger-prete-a-soutenir-toute-mediation-entre-le-polisario-et-rabat-20251118)
+- **Autonomie: une deuxième chance pour les populations de Tindouf**: [Link](https://fr.le360.ma/politique/autonomie-une-deuxieme-chance-pour-les-populations-de-tindouf_4L3DXNU2UFHIZPPWHVD5SXW6JY/)
+- **Sahara : Alger tente le coup de la médiation entre le Maroc et le Polisario**: [Link](https://telquel.ma/instant-t/2025/11/19/sahara-alger-continue-dignorer-lonu-et-se-presente-comme-mediateur-entre-le-maroc-et-le-polisario_1961570/)
+
+
 ### spain vs (N/A, Tue, 18 Nov 2025 13:40:00 -0800)
 
 - **These are the reasons for optimism in the Spanish Davis Cup team for 2025**: [Link](https://www.puntodebreak.com/en/2025/11/19/these-are-the-reasons-for-optimism-in-the-spanish-davis-cup-team-for-2025)
