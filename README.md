@@ -1,3 +1,10 @@
+### spain vs (N/A, Tue, 18 Nov 2025 13:40:00 -0800)
+
+- **These are the reasons for optimism in the Spanish Davis Cup team for 2025**: [Link](https://www.puntodebreak.com/en/2025/11/19/these-are-the-reasons-for-optimism-in-the-spanish-davis-cup-team-for-2025)
+- **Davis Cup Spain vs Czech Republic Best Bets**: [Link](https://lastwordonsports.com/tennis/2025/11/19/davis-cup-spain-vs-czech-republic-best-bets/)
+- **Spain 2-2 Turkey: Spain secure World Cup spot despite draw**: [Link](https://www.bbc.com/sport/football/live/cddrjv46v0nt)
+
+
 ### sahara occidental (N/A, Wed, 19 Nov 2025 02:00:00 -0800)
 
 - **Sahara occidental : Alger prête à soutenir «toute médiation» entre le Polisario et Rabat**: [Link](https://www.lefigaro.fr/international/sahara-occidental-alger-prete-a-soutenir-toute-mediation-entre-le-polisario-et-rabat-20251118)
