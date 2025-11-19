@@ -1,3 +1,10 @@
+### ballon d'or 2025 (N/A, Wed, 19 Nov 2025 12:20:00 -0800)
+
+- **Lamine Yamal, Ousmane Dembélé Get Strong Ballon d’Or Take From Real Madrid Icon**: [Link](https://sports.yahoo.com/article/lamine-yamal-ousmane-demb-l-223200387.html)
+- **Ballon d'Or 2025: Benzema's powerful words for Dembélé**: [Link](https://foot-africa.com/en/news/ballon-dor-2025-benzemas-powerful-words-for-dembele-965723/)
+- **Ex-Barcelona Star Doesn’t Hold Back on PSG’s Ousmane Dembélé**: [Link](https://psgtalk.com/2025/11/barcelona-ousmane-dembele-psg/)
+
+
 ### achraf hakimi (N/A, Wed, 19 Nov 2025 11:50:00 -0800)
 
 - **Motsepe agradece al Rey Mohamed VI y destaca el liderazgo de Marruecos en la gala de estrellas africanas**: [Link](https://es.rue20.com/2025/11/19/motsepe-agradece-al-rey-mohamed-vi-y-destaca-el-liderazgo-de-marruecos-en-la-gala-de-estrellas-africanas/)
