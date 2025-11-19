@@ -1,3 +1,17 @@
+### جوائز الكاف 2025 (N/A, Wed, 19 Nov 2025 08:50:00 -0800)
+
+- **بث مباشر.. شاهد حفل جوائز كاف الأفضل في إفريقيا 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1--%D8%AD%D9%81%D9%84-%D8%AC%D9%88%D8%A7%D9%8A%D9%94%D8%B2-%D9%83%D8%A7%D9%81-2025/blta381f832062d375c)
+- **حكيمي يصل لسلا لتسلم الكرة الذهبية**: [Link](https://www.almountakhab.com/node/13219779)
+- **نجوم إفريقيا يحيون حفل "الكاف"‎**: [Link](https://www.hespress.com/%D9%86%D8%AC%D9%88%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%8A%D8%AD%D9%8A%D9%88%D9%86-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D9%81-1658134.html)
+
+
+### bourse de casablanca (N/A, Wed, 19 Nov 2025 02:10:00 -0800)
+
+- **MASI : Le marché teste un seuil majeur à 18.200 points**: [Link](https://boursenews.ma/article/graphiques-et-analyse-technique/masi-test-seuil-majeur-analyse-technique)
+- **Bourse de Casablanca. Le MASI termine en baisse de 1,5%**: [Link](https://medias24.com/2025/11/19/bourse-de-casablanca-le-masi-termine-en-baisse-de-15/)
+- **Flash Momentum: Scoring technique des valeurs du MASI 20**: [Link](https://boursenews.ma/article/graphiques-et-analyse-technique/Flash-Momentum-17-novembre-2025)
+
+
 ### حفل الكرة الذهبية 2025 (N/A, Wed, 19 Nov 2025 09:40:00 -0800)
 
 - **نجوم إفريقيا يحيون حفل "الكاف"‎**: [Link](https://www.hespress.com/%D9%86%D8%AC%D9%88%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%8A%D8%AD%D9%8A%D9%88%D9%86-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D9%81-1658134.html)
