@@ -1,3 +1,16 @@
+### achraf hakimi (N/A, Wed, 19 Nov 2025 11:50:00 -0800)
+
+- **Motsepe agradece al Rey Mohamed VI y destaca el liderazgo de Marruecos en la gala de estrellas africanas**: [Link](https://es.rue20.com/2025/11/19/motsepe-agradece-al-rey-mohamed-vi-y-destaca-el-liderazgo-de-marruecos-en-la-gala-de-estrellas-africanas/)
+- **CAF Awards 2025: Destacada presencia marroquí en las listas finales de nominados**: [Link](https://ar.yabiladi.com/articles/details/181367/awards-2025-destacada-presencia-marroqui.html)
+- **Achraf, Balón de Oro Africano**: [Link](https://as.com/futbol/internacional/achraf-balon-de-oro-africano-f202511-n/)
+
+
+### bubista (N/A, Wed, 19 Nov 2025 11:10:00 -0800)
+
+- **How did a nation of 500,000 produce Africa’s Coach of the Year?**: [Link](https://ca.sports.yahoo.com/news/did-nation-500-000-produce-195000178.html)
+- **Cape Verde’s Bubista named 2025 CAF Men’s Coach of the Year**: [Link](https://ghanasoccernet.com/cape-verdes-bubista-named-2025-caf-mens-coach-of-the-year)
+
+
 ### ghizlane chebbak (N/A, Wed, 19 Nov 2025 11:40:00 -0800)
 
 - **Where to watch the CAF Awards 2025 ceremony live on Wednesday**: [Link](https://www.cafonline.com/news/where-to-watch-the-caf-awards-2025-ceremony-live-on-wednesday/)
