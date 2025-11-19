@@ -1,3 +1,9 @@
+### joakim noah (N/A, Wed, 19 Nov 2025 06:10:00 -0800)
+
+- **"I thought we had no shot" - Joakim Noah was ecstatic that the Bulls won the Gasol sweepstakes**: [Link](https://www.basketballnetwork.net/old-school/joakim-noah-was-ecstatic-that-the-chicago-bulls-won-the-pau-gasol-sweepstakes)
+- **Joakim Noah: “I think the guys are just definitely …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2025/11/18/joakim-noah-i-think-the-guys-are-just-definitely/87332445007/)
+
+
 ### maroc sahara occidental (N/A, Wed, 19 Nov 2025 06:00:00 -0800)
 
 - **Sahara occidental : Alger prête à soutenir «toute médiation» entre le Polisario et Rabat**: [Link](https://www.lefigaro.fr/international/sahara-occidental-alger-prete-a-soutenir-toute-mediation-entre-le-polisario-et-rabat-20251118)
