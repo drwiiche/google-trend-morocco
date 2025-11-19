@@ -1,3 +1,10 @@
+### a (N/A, Tue, 18 Nov 2025 19:50:00 -0800)
+
+- **Clay Higgins was the only Republican to vote against the Epstein files release. Here’s what he said**: [Link](https://www.cnn.com/2025/11/18/politics/clay-higgins-against-epstein-files-release)
+- **Congress approves bill to release Epstein files that will head to Trump's desk**: [Link](https://www.bbc.com/news/articles/cdxr1r34ev9o)
+- **For Trump, Epstein Is the Story That Won’t Go Away**: [Link](https://www.nytimes.com/2025/11/18/us/politics/trump-epstein-files.html)
+
+
 ### brahim diaz (N/A, Tue, 18 Nov 2025 12:00:00 -0800)
 
 - **Regragui: "Diaz Delivered His Best Performance Despite Not Scoring; I Told Him 'The Most Important Thing Is to Score in the Africa Cup of Nations'"**: [Link](https://m.elbotola.com/en/article/2025-11-18-21-59-337.html)
