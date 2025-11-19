@@ -1,3 +1,10 @@
+### nba (N/A, Tue, 18 Nov 2025 22:10:00 -0800)
+
+- **Sources: No effects for LeBron after practices**: [Link](https://www.espn.com/nba/story/_/id/46958284/sources-lebron-james-practices-g-league-affiliate-again)
+- **NBA roundup: Detroit Pistons make it 11 wins in a row as LeBron James returns to the court**: [Link](https://www.flashscore.com/news/basketball-nba-nba-roundup-detroit-pistons-make-it-11-wins-in-a-row-as-lebron-james-returns-to-the-court/b9Fgfhw9/)
+- **Three Takeaways From Jazz's Loss vs. Lakers in LeBron's Debut**: [Link](https://www.si.com/nba/jazz/onsi/news/three-takeaways-utah-jazz-loss-los-angeles-lakers-lebron-james-debut)
+
+
 ### a (N/A, Tue, 18 Nov 2025 19:50:00 -0800)
 
 - **Clay Higgins was the only Republican to vote against the Epstein files release. Here’s what he said**: [Link](https://www.cnn.com/2025/11/18/politics/clay-higgins-against-epstein-files-release)
