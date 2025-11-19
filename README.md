@@ -1,3 +1,10 @@
+### sahara occidental (N/A, Wed, 19 Nov 2025 02:00:00 -0800)
+
+- **Sahara occidental : Alger prête à soutenir «toute médiation» entre le Polisario et Rabat**: [Link](https://www.lefigaro.fr/international/sahara-occidental-alger-prete-a-soutenir-toute-mediation-entre-le-polisario-et-rabat-20251118)
+- **Autonomie: une deuxième chance pour les populations de Tindouf**: [Link](https://fr.le360.ma/politique/autonomie-une-deuxieme-chance-pour-les-populations-de-tindouf_4L3DXNU2UFHIZPPWHVD5SXW6JY/)
+- **Document. Le pv intégral de la réunion historique sur le Sahara au Conseil de sécurité**: [Link](https://private-admin.medias24.com/2025/11/18/document-le-pv-integral-de-la-reunion-historique-sur-le-sahara-au-conseil-de-securite/)
+
+
 ### email (N/A, Wed, 19 Nov 2025 00:40:00 -0800)
 
 - **How well did Bill Clinton know Jeffrey Epstein?**: [Link](https://abcnews.go.com/Politics/bill-clinton-jeffrey-epstein/story?id=127629827)
