@@ -1,3 +1,17 @@
+### whatsapp (N/A, Wed, 19 Nov 2025 00:20:00 -0800)
+
+- **Meta Did Not Violate the Law When It Bought Instagram and WhatsApp, a Judge Rules**: [Link](https://www.nytimes.com/2025/11/18/technology/meta-antitrust-monopoly-ruling.html)
+- **Meta's big antitrust win, Salesforce's deal closure, and iPhone's popularity in China**: [Link](https://www.cnbc.com/2025/11/18/meta-antitrust-win-salesforce-deal-closure-and-iphone-popularity-in-china-apple.html)
+- **News Wrap: Federal judge rules Meta does not have illegal monopoly**: [Link](https://www.pbs.org/newshour/show/news-wrap-federal-judge-rules-meta-does-not-have-illegal-monopoly)
+
+
+### محاكم (N/A, Wed, 19 Nov 2025 00:20:00 -0800)
+
+- **10 سنوات دون تأجيل دعوى واحدة بـ «محاكم دبي المالي»**: [Link](https://www.emaratalyoum.com/local-section/other/2025-11-19-1.1989276)
+- **محاكم دبي تستعرض تجربتها في الابتكار القضائي والإدارة الذكية**: [Link](https://www.albayan.ae/news/uae/dubai/914605)
+- **62 متحدثاً من 40 دولة في المؤتمر الدولي لإدارة المحاكم بدبي**: [Link](https://25h.app/2025/11/18/62-%D9%85%D8%AA%D8%AD%D8%AF%D8%AB%D8%A7%D9%8B-%D9%85%D9%86-40-%D8%AF%D9%88%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D8%A5%D8%AF/)
+
+
 ### tunisie vs brazil (N/A, Tue, 18 Nov 2025 12:10:00 -0800)
 
 - **Tunisia National Team Draws Friendly Against Brazil (1-1)**: [Link](https://m.elbotola.com/en/article/2025-11-18-21-30-498.html)
