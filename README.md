@@ -1,3 +1,10 @@
+### algérie sahara occidental (N/A, Thu, 20 Nov 2025 03:40:00 -0800)
+
+- **Autonomie: une deuxième chance pour les populations de Tindouf**: [Link](https://fr.le360.ma/politique/autonomie-une-deuxieme-chance-pour-les-populations-de-tindouf_4L3DXNU2UFHIZPPWHVD5SXW6JY/)
+- **Neila Tazi : “Le Maroc, fidélité et constance au service de la nation”**: [Link](https://mobile.telquel.ma/2025/11/19/neila-tazi-le-maroc-fidelite-et-constance-au-service-de-la-nation_1961678)
+- **Sahara: Le Malawi salue l’adoption de la résolution 2797 qui consacre le plan marocain d'autonomie**: [Link](https://lematin.ma/nation/sahara-le-malawi-salue-ladoption-de-la-resolution-2797/314350)
+
+
 ### كأس العرب (N/A, Thu, 20 Nov 2025 11:20:00 -0800)
 
 - **رينارد يستدعي 23 لاعبا بقائمة السعودية لكأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-23-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7-%D9%84%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D9%88%D9%8A%D8%B3%D8%AA%D8%A8%D8%B9%D8%AF-%D8%B3%D8%B9%D9%88%D8%AF-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%AD%D9%85%D9%8A%D8%AF/blta02be208e01f71ac)
