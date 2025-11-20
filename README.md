@@ -1,3 +1,10 @@
+### غزلان الشباك (N/A, Wed, 19 Nov 2025 12:00:00 -0800)
+
+- **أشرف حكيمي وغزلان الشباك يتصدّران الليلة الذهبية للمغرب في حفل "جوائز الكاف" 2025**: [Link](https://www.cafonline.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%BA%D8%B2%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D9%83-%D9%8A%D8%AA%D8%B5%D8%AF-%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D8%AC%D9%88%D8%A7%D8%A6%D8%B2-%D8%A7%D9%84%D9%83%D8%A7%D9%81-2025/)
+- **بوبيستا يتوج بجائزة أفضل مدرب**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%A8%D9%8A%D8%B3%D8%AA%D8%A7-%D9%8A%D8%AA%D9%88%D8%AC-%D8%A8%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D8%A3%D9%81%D8%B6%D9%84-%D9%85%D8%AF%D8%B1%D8%A8-1658537.html)
+- **نبيل باها يعلق على فوز حكيمي و الشباك بالكرة الذهبية الأفريقية ⚽🗣**: [Link](https://m.elbotola.com/video/details/691f358fe4b18b4430e71de0/)
+
+
 ### maroc vs brazil u17 (N/A, Thu, 20 Nov 2025 07:10:00 -0800)
 
 - **Morocco U17 Set to Face Brazil in the World Cup Quarter Finals**: [Link](https://www.moroccoworldnews.com/2025/11/268525/morocco-u17-set-to-face-brazil-in-the-world-cup-quarter-finals/)
