@@ -1,3 +1,17 @@
+### حمزة الفيلالي (N/A, Thu, 20 Nov 2025 07:10:00 -0800)
+
+- **مشروع "حرام" يقود الكوميدي حمزة الفيلالي إلى السجن**: [Link](https://www.akhbarona.com/culture/416825.html)
+- **الكوميدي صويلح يعلن اعتقال الفنان حمزة الفيلالي بسبب شيكات بدون رصيد - هبة بريس**: [Link](https://ar.hibapress.com/details-677515.html)
+- **الأمن يوقف حمزة الفيلالي بتهمة إصدار شيكات بدون رصيد -فيديو**: [Link](https://ar.lesiteinfo.com/cultures/%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D9%8A%D9%88%D9%82%D9%81-%D8%AD%D9%85%D8%B2%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D9%84%D8%A7%D9%84%D9%8A-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A5%D8%B5%D8%AF%D8%A7%D8%B1-%D8%B4-970205.html)
+
+
+### ballon d'or africain 2025 (N/A, Wed, 19 Nov 2025 08:20:00 -0800)
+
+- **CAF Awards 2025: Achraf Hakimi et Ghizlane Chebbak lauréats**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7%D9%86-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%B4%D8%A8%D8%A7%D9%83-%D8%A7%D8%AD%D8%B3%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7%D9%86-%D9%81%D9%8A-%D8%A5/)
+- **Draji félicite Hakimi après avoir remporté le Ballon d’Or africain |**: [Link](https://fr.hibapress.com/news-219159.html)
+- **CAF Awards 2025 à Rabat : le Maroc consacre son modèle et s’offre une moisson historique**: [Link](https://ledesk.ma/2025/11/19/caf-awards-2025-a-rabat-le-maroc-consacre-son-modele-et-soffre-une-moisson-historique/)
+
+
 ### fabien mandon (N/A, Thu, 20 Nov 2025 04:40:00 -0800)
 
 - **"Il faut accepter de perdre nos enfants": les propos chocs du chef d'état-major des armées suscitent de nombreuses critiques**: [Link](https://www.bfmtv.com/politique/la-france-insoumise/accepter-de-perdre-nos-enfants-jean-luc-melenchon-exprime-son-desaccord-total-avec-les-propos-du-chef-d-etat-major-des-armees_AN-202511190943.html)
