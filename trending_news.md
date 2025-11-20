@@ -1,3 +1,10 @@
+### fabien mandon (N/A, Thu, 20 Nov 2025 04:40:00 -0800)
+
+- **"Il faut accepter de perdre nos enfants": les propos chocs du chef d'état-major des armées suscitent de nombreuses critiques**: [Link](https://www.bfmtv.com/politique/la-france-insoumise/accepter-de-perdre-nos-enfants-jean-luc-melenchon-exprime-son-desaccord-total-avec-les-propos-du-chef-d-etat-major-des-armees_AN-202511190943.html)
+- **Mélenchon s’oppose vertement au chef d’état-major des Armées sur la Russie**: [Link](https://www.20minutes.fr/politique/4186751-20251120-guerre-ukraine-melenchon-oppose-frontalement-chef-etat-major-armees-russie)
+- **La France doit «accepter de perdre ses enfants» : Jean-Luc Mélenchon évoque «un désaccord total» avec le général Mandon, chef d'état-major des Armées**: [Link](https://www.lefigaro.fr/politique/melenchon-evoque-un-desaccord-total-avec-le-chef-d-etat-major-des-armees-qui-avait-estime-que-la-france-devait-accepter-de-perdre-ses-enfants-20251119)
+
+
 ### radio mars (N/A, Wed, 19 Nov 2025 23:20:00 -0800)
 
 - **فاخر يقترب من قيادة نهضة الزمامرة**: [Link](https://www.hespress.com/%D9%81%D8%A7%D8%AE%D8%B1-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%85%D8%B1%D8%A9-1658364.html)
