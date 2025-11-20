@@ -1,3 +1,17 @@
+### maroc vs brazil u17 (N/A, Thu, 20 Nov 2025 07:10:00 -0800)
+
+- **Morocco U17 Set to Face Brazil in the World Cup Quarter Finals**: [Link](https://www.moroccoworldnews.com/2025/11/268525/morocco-u17-set-to-face-brazil-in-the-world-cup-quarter-finals/)
+- **Nabil Baha: "No Pressure on Us Against Mali; We'll Be a Tough Opponent"**: [Link](https://m.elbotola.com/en/article/2025-11-17-16-43-301.html)
+- **Atlas Lion Cubs eye World Cup semifinals after thrilling win over Mali**: [Link](https://en.yabiladi.com/articles/details/181522/atlas-lion-cubs-world-semifinals.html)
+
+
+### ballon d'or africain (N/A, Wed, 19 Nov 2025 09:50:00 -0800)
+
+- **CAF Awards 2025: Achraf Hakimi et Ghizlane Chebbak lauréats**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7%D9%86-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%B4%D8%A8%D8%A7%D9%83-%D8%A7%D8%AD%D8%B3%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7%D9%86-%D9%81%D9%8A-%D8%A5/)
+- **Draji félicite Hakimi après avoir remporté le Ballon d’Or africain |**: [Link](https://fr.hibapress.com/news-219159.html)
+- **CAF Awards 2025 à Rabat : le Maroc consacre son modèle et s’offre une moisson historique**: [Link](https://ledesk.ma/2025/11/19/caf-awards-2025-a-rabat-le-maroc-consacre-son-modele-et-soffre-une-moisson-historique/)
+
+
 ### حمزة الفيلالي (N/A, Thu, 20 Nov 2025 07:10:00 -0800)
 
 - **مشروع "حرام" يقود الكوميدي حمزة الفيلالي إلى السجن**: [Link](https://www.akhbarona.com/culture/416825.html)
