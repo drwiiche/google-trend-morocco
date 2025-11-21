@@ -1,3 +1,10 @@
+### marruecos sub-17 - brasil sub-17 (N/A, Fri, 21 Nov 2025 08:50:00 -0800)
+
+- **En Vivo: Marruecos Sub-17 vs Brasil Sub-17 en los Cuartos de Final del Mundial U17**: [Link](https://chamaly.ma/2025/11/21/en-vivo-marruecos-sub-17-vs-brasil-sub-17-en-los-cuartos-de-final-del-mundial-u17/)
+- **Direto… Marrocos vs Brasil nas quartas de final da Copa do Mundo Sub-17**: [Link](https://chamaly.ma/2025/11/21/direto-marrocos-vs-brasil-nas-quartas-de-final-da-copa-do-mundo-sub-17/)
+- **Marruecos - Brasil, en vivo: última hora del Mundial Sub 17, hoy en directo**: [Link](https://as.com/futbol/internacional/marruecos-brasil-en-vivo-ultima-hora-del-mundial-sub-17-hoy-en-directo-f202511-n/)
+
+
 ### flashscore (N/A, Fri, 21 Nov 2025 08:40:00 -0800)
 
 - **Paul Pogba set for playing return with Monaco after doping ban**: [Link](https://www.bbc.com/sport/football/articles/cly3w2k0pnno)
