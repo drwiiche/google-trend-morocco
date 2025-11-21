@@ -1,3 +1,10 @@
+### portugal u-17 – suisse u-17 (N/A, Fri, 21 Nov 2025 06:30:00 -0800)
+
+- **Coupe du Monde U17, Portugal - Suisse : sur quelle chaîne et à quelle heure voir le match ?**: [Link](https://trivela.fr/coupe-du-monde-u17-portugal-suisse-chaine-heure/)
+- **Luigi Pisino, le grand talent des M17 est peut-être sur le banc**: [Link](https://www.letemps.ch/sport/luigi-pisino-le-grand-talent-des-m17-est-peut-etre-sur-le-banc)
+- **Association Suisse de Football - Coupe du monde U-17 : victoire 3-1 contre l'Égypte**: [Link](https://www.football.ch/fr/asf/equipes-nationales/m18/news/coupe-du-monde-u-17-victoire-3-1-contre-l-%C3%A9gypte.aspx)
+
+
 ### al ittihad – al riyad (N/A, Fri, 21 Nov 2025 07:10:00 -0800)
 
 - **Al Ittihad vs Al Riyadh: Live streaming, TV channel, kick-off time & where to watch Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ittihad-vs-al-riyadh-where-to-watch-202511)
