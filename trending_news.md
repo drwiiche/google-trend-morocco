@@ -1,3 +1,10 @@
+### miss universe 2025 (N/A, Thu, 20 Nov 2025 16:40:00 -0800)
+
+- **Miss Universe: Mexico's Fatima Bosch, who walked out on organisers, wins pageant**: [Link](https://www.bbc.com/news/articles/cgmxmxljg8mo)
+- **Miss Mexico is crowned Miss Universe at a pageant where she stood up to a host's bullying**: [Link](https://www.clickondetroit.com/entertainment/2025/11/21/miss-mexico-is-crowned-miss-universe-at-a-pageant-where-she-stood-up-to-a-hosts-bullying/)
+- **Mexico’s Fatima Bosch crowned Miss Universe winner in glittering finale of scandal-hit pageant**: [Link](https://www.cnn.com/2025/11/20/style/miss-universe-2025-finale-winner-intl-hnk)
+
+
 ### black friday (N/A, Thu, 20 Nov 2025 16:00:00 -0800)
 
 - **The best Black Friday deals under $50 to shop early: Amazon, Kate Spade, Lululemon and more**: [Link](https://www.yahoo.com/lifestyle/deals/article/the-best-black-friday-deals-under-50-to-shop-early-amazon-kate-spade-lululemon-and-more-143140423.html)
