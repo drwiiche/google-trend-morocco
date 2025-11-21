@@ -1,3 +1,15 @@
+### bangladesh (N/A, Fri, 21 Nov 2025 13:20:00 -0800)
+
+- **Earthquake jolts Bangladesh, killing five and injuring around 100**: [Link](https://www.reuters.com/business/environment/earthquake-magnitude-57-strikes-bangladesh-gfz-says-2025-11-21/)
+- **Bangladesh 5.5-magnitude earthquake – what we know so far**: [Link](https://www.aljazeera.com/news/2025/11/21/bangladesh-5-5-magnitude-earthquake-what-we-know-so-far)
+- **Bangladesh v Ireland: Second Test interrupted by earthquake in Dhaka**: [Link](https://www.bbc.com/sport/cricket/articles/cy95ej2z4vyo)
+
+
+### الصندوق الوطني للضمان الاجتماعي (N/A, Fri, 21 Nov 2025 12:10:00 -0800)
+
+
+
+
 ### atlético clube de portugal – benfica (N/A, Fri, 21 Nov 2025 12:40:00 -0800)
 
 - **Atlético CP x Benfica Palpite – Onde Assistir, Hora e Escalações 21-11**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/atletico-cp-x-benfica-21-11-2025)
