@@ -1,3 +1,10 @@
+### bein sport live (N/A, Fri, 21 Nov 2025 07:40:00 -0800)
+
+- **Achraf Hakimi, Ghizlane Chebbak lead Morocco’s Golden Night at CAF Awards 2025**: [Link](https://www.cafonline.com/news/achraf-hakimi-ghizlane-chebbak-lead-morocco-s-golden-night-at-caf-awards-2025/)
+- **CAF Awards 2025: Infantino Says African Football Matches the World’s Best**: [Link](https://www.moroccoworldnews.com/2025/11/268670/caf-awards-2025-infantino-says-african-football-matches-the-worlds-best/)
+- **Al-Khelaifi: "Hakimi is the best in Africa and among the world's best players"**: [Link](https://m.elbotola.com/en/article/2025-11-19-18-21-919.html)
+
+
 ### portugal u-17 – suisse u-17 (N/A, Fri, 21 Nov 2025 06:30:00 -0800)
 
 - **Coupe du Monde U17, Portugal - Suisse : sur quelle chaîne et à quelle heure voir le match ?**: [Link](https://trivela.fr/coupe-du-monde-u17-portugal-suisse-chaine-heure/)
