@@ -1,3 +1,10 @@
+### فالنسيا ضد ليفانتي (N/A, Fri, 21 Nov 2025 12:00:00 -0800)
+
+- **عجلة الدوري الإسباني تعود للدوران بمواجهة بين فالنسيا وضيفه ليفانتي (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2025/11/valenia-levante-j13-laliga-pronostic.html)
+- **مواعيد مباريات الجولة 13 من الدوري الإسباني**: [Link](https://www.vetogate.com/5538265)
+- **مبابي في الصدارة.. صراع هدافي الدوري الإسباني يشتعل قبل انطلاق الجولة 13**: [Link](https://www.algomhor.com/316566)
+
+
 ### match (N/A, Fri, 21 Nov 2025 08:50:00 -0800)
 
 - **Just In CASE You Were Wondering, This Biglaw Firm Is Also Matching**: [Link](https://abovethelaw.com/2025/11/just-in-case-you-were-wondering-this-biglaw-firm-is-also-matching/)
