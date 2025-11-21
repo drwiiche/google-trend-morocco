@@ -1,3 +1,17 @@
+### bein sports (N/A, Fri, 21 Nov 2025 09:20:00 -0800)
+
+- **رسمياً : معلق يمني ينضم إلى شبكة قنوات beIN SPORTS**: [Link](https://www.khlaasa.net/1400822.html)
+- **المغرب "علامة من ذهب" في الكرة الإفريقية.. المنجزات تتوج الاستثمارات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D9%85%D9%86-%D8%B0%D9%87%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-1659061.html)
+- **حكيمي أم صلاح؟ جدل على المنصات بعد إعلان أفضل لاعب أفريقي**: [Link](https://www.aljazeera.net/sport/2025/11/20/%D8%A3%D9%81%D8%B6%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A3%D9%85-%D8%B5%D9%84%D8%A7%D8%AD)
+
+
+### u17 world cup (N/A, Fri, 21 Nov 2025 08:10:00 -0800)
+
+- **Italy U17's World Cup Quest**: [Link](https://www.ilmessaggero.it/en/italy_u17_s_world_cup_quest-9202454.html?next_page=3)
+- **U17 World Cup: Italy set up historic semi-final against Austria**: [Link](https://football-italia.net/u17-world-cup-italy-set-up-historic-semi-final/)
+- **U17 World Cup (Quarter-finals): Probable line-ups Burkina Faso vs Italy**: [Link](https://foot-africa.com/en/news/u17-world-cup-quarter-finals-probable-line-ups-burkina-faso-vs-italy-969347/)
+
+
 ### marruecos sub-17 - brasil sub-17 (N/A, Fri, 21 Nov 2025 08:50:00 -0800)
 
 - **En Vivo: Marruecos Sub-17 vs Brasil Sub-17 en los Cuartos de Final del Mundial U17**: [Link](https://chamaly.ma/2025/11/21/en-vivo-marruecos-sub-17-vs-brasil-sub-17-en-los-cuartos-de-final-del-mundial-u17/)
