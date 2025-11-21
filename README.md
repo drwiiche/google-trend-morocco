@@ -1,3 +1,10 @@
+### fifa (N/A, Fri, 21 Nov 2025 02:20:00 -0800)
+
+- **Morocco Climbs to 11th in FIFA Rankings**: [Link](https://www.moroccoworldnews.com/2025/11/268674/morocco-climbs-to-11th-in-fifa-rankings/)
+- **Official: Italy drop out of World Rankings top 10; slip below Germany, Croatia & Morocco**: [Link](https://football-italia.net/official-italy-drop-out-of-world-rankings/)
+- **FIFA Ranking: Morocco National Team Climbs to 11th Globally, Maintains African and Arab Leadership**: [Link](https://m.elbotola.com/en/article/2025-11-19-16-48-350.html)
+
+
 ### buzz movie (N/A, Thu, 20 Nov 2025 19:50:00 -0800)
 
 - **Letterboxd to Launch New ‘Video’ Store in a Clever Take on TVOD**: [Link](https://www.indiewire.com/news/general-news/letterboxd-video-store-pvod-1235161600/)
