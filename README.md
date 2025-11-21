@@ -1,3 +1,17 @@
+### maroc bresil u17 (N/A, Fri, 21 Nov 2025 05:30:00 -0800)
+
+- **Mondial U17 de la FIFA (Maroc-Brésil): entraînement de veille de match des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5-2/)
+- **Mondial U17 : Lionceaux de l'Atlas défient la Seleção pour une place en demi-finale**: [Link](https://lematin.ma/sports/mondial-u17-le-maroc-defie-le-bresil-pour-une-place-en-demi-finale/314585)
+- **Mondial U17 : le Maroc retrouve le Brésil pour un choc au sommet en quarts de finale**: [Link](https://mobile.telquel.ma/2025/11/20/mondial-u17-le-maroc-retrouve-le-bresil-pour-un-choc-au-sommet-en-quarts-de-finale_1961792)
+
+
+### المغرب ضد البرازيل (N/A, Fri, 21 Nov 2025 05:20:00 -0800)
+
+- **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء البرازيل**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5-2/)
+- **إيطالي حكما لمباراة المغرب والبرازيل**: [Link](https://www.hespress.com/%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%AD%D9%83%D9%85%D8%A7-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-1659040.html)
+- **المغرب ضد البرازيل بربع نهائي كأس العالم للناشئين.. الموعد والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/19/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86)
+
+
 ### autriche u-17 – japon u-17 (N/A, Fri, 21 Nov 2025 04:40:00 -0800)
 
 - **CDM U17 - La prestation cauchemardesque d'Alejandro Gomes Rodriguez avec l'Angleterre face à l'Autriche**: [Link](https://madeingones.ouest-france.fr/infos/article-cdm-u17-la-prestation-cauchemardesque-d-alejandro-gomes-rodriguez-avec-l-angleterre-face-a-l-autriche-503366.html)
