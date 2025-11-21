@@ -1,3 +1,10 @@
+### habous (N/A, Thu, 20 Nov 2025 21:40:00 -0800)
+
+- **Habous : En 2025, les indemnités des préposés religieux ont coûté 2,64 MMDH**: [Link](https://fr.hespress.com/450323-habous-en-2025-les-indemnites-des-preposes-religieux-ont-coute-264-mmdh.html)
+- **Lancement du Prix Mohammed VI des études islamiques**: [Link](https://lematin.ma/nation/lancement-du-prix-mohammed-vi-des-etudes-islamiques/314461)
+- **Maroc: Prix Mohammed VI en études islamiques lancé par les Habous**: [Link](https://fr.apanews.net/society/maroc-prix-mohammed-vi-des-etudes-islamiques-lance-par-les-habous/)
+
+
 ### fifa (N/A, Fri, 21 Nov 2025 02:20:00 -0800)
 
 - **Morocco Climbs to 11th in FIFA Rankings**: [Link](https://www.moroccoworldnews.com/2025/11/268674/morocco-climbs-to-11th-in-fifa-rankings/)
