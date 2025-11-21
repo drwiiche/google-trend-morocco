@@ -1,3 +1,24 @@
+### maroc u-17 – brésil u-17 (N/A, Fri, 21 Nov 2025 07:00:00 -0800)
+
+- **Mondial U17 de la FIFA (Maroc-Brésil): entraînement de veille de match des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5-2/)
+- **Mondial U17 : Lionceaux de l'Atlas défient la Seleção pour une place en demi-finale**: [Link](https://lematin.ma/sports/mondial-u17-le-maroc-defie-le-bresil-pour-une-place-en-demi-finale/314585)
+- **Mondial U17 : le Maroc retrouve le Brésil pour un choc au sommet en quarts de finale**: [Link](https://mobile.telquel.ma/2025/11/20/mondial-u17-le-maroc-retrouve-le-bresil-pour-un-choc-au-sommet-en-quarts-de-finale_1961792)
+
+
+### morocco u-17 vs brazil u-17 (N/A, Fri, 21 Nov 2025 07:00:00 -0800)
+
+- **Morocco to Face Brazil in U17 World Cup Quarter-Final on Friday (16:45 GMT+1)**: [Link](https://m.elbotola.com/en/article/2025-11-19-10-56-411.html)
+- **Atlas Lion Cubs eye World Cup semifinals after thrilling win over Mali**: [Link](https://en.yabiladi.com/articles/details/181522/atlas-lion-cubs-world-semifinals.html)
+- **MENA Sports Wrap: Morocco U17s make history with 16–0 win**: [Link](https://www.newarab.com/news/mena-sports-wrap-morocco-u17s-make-history-16-0-win)
+
+
+### séisme (N/A, Fri, 21 Nov 2025 06:50:00 -0800)
+
+- **Un tremblement de terre de 5,7 degrés frappe le Bangladesh**: [Link](https://www.sadanews.ps/fr/news/251544.html)
+- **Seismic-like event, possible earthquake, reported few minutes ago near Rangpur, Rangpur Division, Bangladesh**: [Link](https://www.volcanodiscovery.com/fr/seismes/news/287402/Seismic-like-event-possible-earthquake-reported-few-minutes-ago-near-Rangpur-Rangpur-Division-Bangla.html)
+- **Dacca: Un séisme de 5,5 fait des victimes et des blessés**: [Link](https://www.20min.ch/fr/video/bangladesh-les-secondes-ou-tout-bascule-a-dacca-les-images-du-seisme-103454772)
+
+
 ### maroc bresil u17 (N/A, Fri, 21 Nov 2025 05:30:00 -0800)
 
 - **Mondial U17 de la FIFA (Maroc-Brésil): entraînement de veille de match des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5-2/)
