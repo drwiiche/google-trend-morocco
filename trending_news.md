@@ -1,3 +1,24 @@
+### flashscore (N/A, Fri, 21 Nov 2025 08:40:00 -0800)
+
+- **Paul Pogba set for playing return with Monaco after doping ban**: [Link](https://www.bbc.com/sport/football/articles/cly3w2k0pnno)
+- **Paul Pogba named in Monaco squad to face Rennes after more than two years out**: [Link](https://www.nytimes.com/athletic/6760347/2025/11/21/paul-pogba-return-monaco-rennes/)
+- **Sources: Pogba set for return after doping ban**: [Link](https://www.espn.com/soccer/story/_/id/47035642/paul-pogba-set-football-return-two-years-sources)
+
+
+### u17 (N/A, Fri, 21 Nov 2025 08:30:00 -0800)
+
+- **Highlights and goal of Austria 1–0 Japan in U-17 World Cup 2025**: [Link](https://www.vavel.com/en-us/soccer/2025/11/21/1241964-austria-vs-japan-live-score-u17-world-cup.html)
+- **How to watch today's Austria vs Japan U17 World Cup quarter-final game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/where-to-watch-austria-u17-v-japan-u17-live-stream-online-tv/blt296a7f575c09bace)
+- **Austria vs Japan: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/austria-vs-japan-how-watch-u-17-world-cup-preview)
+
+
+### bein sports live (N/A, Fri, 21 Nov 2025 08:00:00 -0800)
+
+- **Where to Watch AFCON 2025: Full Tournament Live on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/where-to-watch-afcon-2025-full-tournament-live-on-bein-sports-2025-11-21)
+- **2025 Africa Cup of Nations preview**: [Link](https://thepoint.gm/africa/gambia/sports/2025-africa-cup-of-nations-preview)
+- **EAGLE EYE: Our Eagles Must Win This Upcoming AFCON!**: [Link](https://www.sports247.ng/eagle-eye-our-eagles-must-win-this-upcoming-afcon/)
+
+
 ### sports (N/A, Fri, 21 Nov 2025 08:20:00 -0800)
 
 - **FOX Sports’ FIFA World Cup 2026™ Final Draw Presentation Features Unprecedented 3 ½ Hours of Live Coverage on Broadcast Television - Fox Sports Press Pass**: [Link](https://www.foxsports.com/presspass/blog/2025/11/21/fox-sports-fifa-world-cup-2026-final-draw-presentation-features-unprecedented-3-%C2%BD-hours-of-live-coverage-on-broadcast-television/)
