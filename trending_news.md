@@ -1,3 +1,10 @@
+### black friday (N/A, Thu, 20 Nov 2025 16:00:00 -0800)
+
+- **The best Black Friday deals under $50 to shop early: Amazon, Kate Spade, Lululemon and more**: [Link](https://www.yahoo.com/lifestyle/deals/article/the-best-black-friday-deals-under-50-to-shop-early-amazon-kate-spade-lululemon-and-more-143140423.html)
+- **87 of Amazon's best Black Friday Week deals to shop now**: [Link](https://www.aboutamazon.com/news/retail/amazon-black-friday-best-deals-shop-2025-us)
+- **Amazon’s Black Friday Sale Is Already Happening: 37+ Deals We’re Shopping**: [Link](https://www.nbcnews.com/select/shopping/best-early-amazon-black-friday-deals-2025-rcna244834)
+
+
 ### algérie sahara occidental (N/A, Thu, 20 Nov 2025 03:40:00 -0800)
 
 - **Autonomie: une deuxième chance pour les populations de Tindouf**: [Link](https://fr.le360.ma/politique/autonomie-une-deuxieme-chance-pour-les-populations-de-tindouf_4L3DXNU2UFHIZPPWHVD5SXW6JY/)
