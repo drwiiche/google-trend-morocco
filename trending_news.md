@@ -1,3 +1,10 @@
+### autriche u-17 – japon u-17 (N/A, Fri, 21 Nov 2025 04:40:00 -0800)
+
+- **CDM U17 - La prestation cauchemardesque d'Alejandro Gomes Rodriguez avec l'Angleterre face à l'Autriche**: [Link](https://madeingones.ouest-france.fr/infos/article-cdm-u17-la-prestation-cauchemardesque-d-alejandro-gomes-rodriguez-avec-l-angleterre-face-a-l-autriche-503366.html)
+- **Coupe du Monde U17 2025 – Quarts de finale : Parcours, forces actuelles, focus sur Autriche - Japon**: [Link](https://africafootunited.com/coupe-du-monde-u17-2025-quarts-de-finale-parcours-forces-actuelles-fucus-sur-autriche-japon/)
+- **Autriche - Angleterre : à quelle heure et sur quelle chaîne suivre ce choc européen en 8e de finale de la Coupe du Monde U17**: [Link](https://quelleheurequellechaine.fr/football/international/regarder-autriche-angleterre-u17-8e-finale-coupe-du-monde-2025-diffusion-direct/)
+
+
 ### habous (N/A, Thu, 20 Nov 2025 21:40:00 -0800)
 
 - **Habous : En 2025, les indemnités des préposés religieux ont coûté 2,64 MMDH**: [Link](https://fr.hespress.com/450323-habous-en-2025-les-indemnites-des-preposes-religieux-ont-coute-264-mmdh.html)
