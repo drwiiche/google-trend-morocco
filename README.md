@@ -1,3 +1,17 @@
+### al ittihad – al riyad (N/A, Fri, 21 Nov 2025 07:10:00 -0800)
+
+- **Al Ittihad vs Al Riyadh: Live streaming, TV channel, kick-off time & where to watch Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ittihad-vs-al-riyadh-where-to-watch-202511)
+- **Reports Confirm Delay in Sharahili's Return and Increase Defensive Ittihad's Worries**: [Link](https://www.ysscores.com/en/news/13858108/Reports-Confirm-Delay-in-Sharahili's-Return-and-Increase-Defensive-Ittihad's-Worries)
+- **Where to Watch Al Ittihad vs Al Riyadh Live? Streaming & TV Channels Info**: [Link](https://www.sportsdunia.com/football-news/al-ittihad-vs-al-riyadh-live-stream-saudi-pro-league-21st-november-2025)
+
+
+### المغرب تحت 17 سنة ضد البرازيل تحت 17 (N/A, Fri, 21 Nov 2025 07:00:00 -0800)
+
+- **تشكيلة الفريق الوطني لمواجهة البرازيل**: [Link](https://www.almountakhab.com/node/16219862)
+- **إيطالي حكما لمباراة المغرب والبرازيل**: [Link](https://www.hespress.com/%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%AD%D9%83%D9%85%D8%A7-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-1659040.html)
+- **خالد عبد الله البنعلي: المجلس من تقاليد العرب وسنفوز غدا على البرازيل وديما ديما مغرب 🎙🇲🇦**: [Link](https://m.elbotola.com/video/details/691f7f44c7dfe91343ac24ec/)
+
+
 ### maroc u-17 – brésil u-17 (N/A, Fri, 21 Nov 2025 07:00:00 -0800)
 
 - **Mondial U17 de la FIFA (Maroc-Brésil): entraînement de veille de match des Lionceaux de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5-2/)
