@@ -1,3 +1,10 @@
+### match (N/A, Fri, 21 Nov 2025 08:50:00 -0800)
+
+- **Just In CASE You Were Wondering, This Biglaw Firm Is Also Matching**: [Link](https://abovethelaw.com/2025/11/just-in-case-you-were-wondering-this-biglaw-firm-is-also-matching/)
+- **Cravath sets pace for US law firm bonuses, promising associates up to $140K**: [Link](https://www.reuters.com/legal/legalindustry/cravath-sets-pace-us-law-firm-bonuses-promising-associates-up-140k-2025-11-18/)
+- **Milbank Stays Quiet as Big Law Bonus Season Revs Up (2)**: [Link](https://news.bloomberglaw.com/business-and-practice/milbanks-move-big-law-pay-leader-quiet-as-bonus-season-revs-up)
+
+
 ### nice – marseille (N/A, Fri, 21 Nov 2025 11:00:00 -0800)
 
 - **Nice-OM, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/ligue-1/nice-om-sur-quelle-chaine-voir-le-match-785259.html)
