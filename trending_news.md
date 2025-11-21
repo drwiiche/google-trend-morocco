@@ -1,3 +1,17 @@
+### nice – marseille (N/A, Fri, 21 Nov 2025 11:00:00 -0800)
+
+- **Nice-OM, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/ligue-1/nice-om-sur-quelle-chaine-voir-le-match-785259.html)
+- **Le groupe de l’OM contre Nice avec un forfait de dernière minute mais deux grands retours**: [Link](https://www.footmercato.net/a6980542897508311314-le-groupe-de-lom-contre-nice-avec-un-forfait-de-derniere-minute-mais-deux-grands-retours)
+- **Derby Nice-Marseille : les restrictions de sécurité**: [Link](https://www.bfmtv.com/cote-d-azur/replay-emissions/bonjour-cote-d-azur/video-derby-nice-marseille-les-restrictions-de-securite_VN-202511210343.html)
+
+
+### كاس العرب (N/A, Fri, 21 Nov 2025 10:10:00 -0800)
+
+- **السكتيوي يتفادى نقاش استبعاد زياش**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%8A%D8%AA%D9%81%D8%A7%D8%AF%D9%89-%D9%86%D9%82%D8%A7%D8%B4-%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%B2%D9%8A%D8%A7%D8%B4-1659458.html)
+- **السكتيوي يسقط أسماء ثلاثة لاعبين من قائمة المنتخب الرديف في كأس العرب بعد مشاركتهم في المعسكر الأخير الأسبوع الماضي**: [Link](https://m.elbotola.com/article/2025-11-21-15-28-375.html)
+- **حمد الله وبن شرقي يتصدران قائمة المغرب لكأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%88%D8%A8%D9%86-%D8%B4%D8%B1%D9%82%D9%8A-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1%D8%A7%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/bltb8c2b1a349d5dfa5)
+
+
 ### kooora (N/A, Fri, 21 Nov 2025 08:10:00 -0800)
 
 - **فليك: لن أدرب ميسي في برشلونة.. واستبعاد يامال قرار صائب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%84%D9%86-%D8%A7%D9%94%D8%AF%D8%B1%D8%A8-%D9%85%D9%8A%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9--%D9%88%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%82%D8%B1%D8%A7%D8%B1-%D8%B5%D8%A7%D9%8A%D9%94%D8%A8/blt1eff91b0c07f07fc)
