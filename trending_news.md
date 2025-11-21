@@ -1,3 +1,10 @@
+### buzz movie (N/A, Thu, 20 Nov 2025 19:50:00 -0800)
+
+- **Letterboxd to Launch New ‘Video’ Store in a Clever Take on TVOD**: [Link](https://www.indiewire.com/news/general-news/letterboxd-video-store-pvod-1235161600/)
+- **Letterboxd to launch new movie rental feature in December**: [Link](https://techcrunch.com/2025/11/20/letterboxd-to-launch-new-movie-rental-feature-in-december/)
+- **Letterboxd Just Opened a ‘Video Store’—and It's a Lifeline for Indie Filmmakers**: [Link](https://nofilmschool.com/letterboxd-video-store)
+
+
 ### miss universe 2025 (N/A, Thu, 20 Nov 2025 16:40:00 -0800)
 
 - **Miss Universe: Mexico's Fatima Bosch, who walked out on organisers, wins pageant**: [Link](https://www.bbc.com/news/articles/cgmxmxljg8mo)
