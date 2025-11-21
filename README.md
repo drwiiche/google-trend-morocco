@@ -1,3 +1,24 @@
+### morocco u17 (N/A, Fri, 21 Nov 2025 08:00:00 -0800)
+
+- **U17-WM: Bellahsen und Marokko im Viertelfinale**: [Link](https://www.borussia.de/news/u17-wm-bellahsen-und-marokko-im-viertelfinale)
+- **Marokko vs. Brasilien heute im Live Stream und TV: Wer zeigt / überträgt die U17 WM live?**: [Link](https://www.goal.com/de/listen/marokko-vs-brasilien-heute-im-live-stream-und-tv-wer-zeigt-uebertraegt-die-u17-wm-live/blta981c9eb54260adb)
+- **Joseph Bellahsen trifft bei U17-WM mit Marokko auf Brasilien**: [Link](https://www.fupa.net/news/joseph-bellahsen-trifft-bei-u17-wm-mit-marokko-auf-brasilien-3147379)
+
+
+### kooora مباريات اليوم (N/A, Fri, 21 Nov 2025 08:00:00 -0800)
+
+- **جدول مباريات اليوم الجمعة 21 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-21-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt9c1e6b070bb442b3)
+- **مواعيد مباريات اليوم.. انطلاق دوري أبطال أفريقيا والاتحاد مع الرياض**: [Link](https://www.youm7.com/story/2025/11/21/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6/7204576)
+- **مواعيد مباريات اليوم الجمعة 21-11-2025 والقنوات الناقلة.. المغرب يواجه البرازيل في كأس العالم تحت 17 عامًا**: [Link](https://www.btolat.com/news/385566)
+
+
+### yalla kora (N/A, Fri, 21 Nov 2025 07:50:00 -0800)
+
+- **أفضل 4 لاعبين للجولة الثانية عشر من فانتازي الدوري الإنجليزي**: [Link](https://news.egydreampro.com/%D8%A3%D9%81%D8%B6%D9%84-4-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%84%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%B9%D8%B4%D8%B1-%D9%85%D9%86-%D9%81%D8%A7%D9%86%D8%AA/)
+- **أسباب تجعلك تختار محمد صلاح قائد تشكيل الفانتازي في الجولة القادمة**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%AA%D8%AC%D8%B9%D9%84%D9%83-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%82%D8%A7%D8%A6%D8%AF-%D8%AA%D8%B4%D9%83%D9%8A%D9%84/)
+- **فانتازي يلا كورة.. موقف صلاح من قائمة الأكثر مبيعا في بريميرليج**: [Link](https://www.yallakora.com/epl/2968/news/530945/%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D9%8A%D9%84%D8%A7-%D9%83%D9%88%D8%B1%D8%A9-%D9%85%D9%88%D9%82%D9%81-%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D8%A8%D9%8A%D8%B9%D8%A7-%D9%81%D9%8A-%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC)
+
+
 ### bein sport live (N/A, Fri, 21 Nov 2025 07:40:00 -0800)
 
 - **Achraf Hakimi, Ghizlane Chebbak lead Morocco’s Golden Night at CAF Awards 2025**: [Link](https://www.cafonline.com/news/achraf-hakimi-ghizlane-chebbak-lead-morocco-s-golden-night-at-caf-awards-2025/)
