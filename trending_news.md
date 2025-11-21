@@ -1,3 +1,31 @@
+### sports (N/A, Fri, 21 Nov 2025 08:20:00 -0800)
+
+- **FOX Sports’ FIFA World Cup 2026™ Final Draw Presentation Features Unprecedented 3 ½ Hours of Live Coverage on Broadcast Television - Fox Sports Press Pass**: [Link](https://www.foxsports.com/presspass/blog/2025/11/21/fox-sports-fifa-world-cup-2026-final-draw-presentation-features-unprecedented-3-%C2%BD-hours-of-live-coverage-on-broadcast-television/)
+- **FIFA to hold World Cup Draw event at Billy Bob’s. Here’s how fans can attend**: [Link](https://www.star-telegram.com/sports/fifa-world-cup/article313007988.html)
+- **Milei plans new US trip to meet Trump, attend 2026 World Cup draw**: [Link](https://www.batimes.com.ar/news/argentina/milei-plans-new-us-trip-to-meet-trump-and-attend-2026-world-cup-draw.phtml)
+
+
+### radio mars (N/A, Fri, 21 Nov 2025 08:10:00 -0800)
+
+- **كل ما تود معرفته عن بطولة كأس العرب 2025.. المنتخبات والموعد والمكان والقنوات**: [Link](https://www.almarrakchia.net/%D9%83%D9%84-%D9%85%D8%A7-%D8%AA%D9%88%D8%AF-%D9%85%D8%B9%D8%B1%D9%81%D8%AA%D9%87-%D8%B9%D9%86-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D8%A7%D9%84/)
+- **يهم منتخب الرديف .. المنتخبات المشاركة في تصفيات كأس العرب تعلن عن قوائمها الرسمية**: [Link](https://ar.sport.le360.ma/football/ZBUA6J6YFVCSLLCHBVYJUVD34A/)
+- **بحضور النني والسولية.. منتخب مصر الرديف يكشف قائمته النهائية لكأس العر**: [Link](https://infosports.ma/205084/)
+
+
+### snrt (N/A, Fri, 21 Nov 2025 08:10:00 -0800)
+
+- **Barrages : malgré les récentes pluies, l'impact sur les réserves reste relatif**: [Link](https://medias24.com/2025/11/20/barrages-malgre-les-recentes-pluies-limpact-sur-les-reserves-reste-relatif/)
+- **L’œil de Carlos. Premières pluies: espoir d’une bonne saison agricole**: [Link](https://fr.le360.ma/medias/loeil-de-carlos-premieres-pluies-espoir-dune-bonne-saison-agricole_GUC5OEKPE5FBRF6HP6XCNL6GCE/)
+- **Les premières neiges ravivent l’espoir d’une saison agricole fertile**: [Link](https://lematin.ma/regions/les-premieres-neiges-ravivent-lespoir-dune-saison-agricole-fertile/314616)
+
+
+### portugal u17 (N/A, Fri, 21 Nov 2025 08:10:00 -0800)
+
+- **Portgual goes one better after the break - can Switzerland respond again?**: [Link](https://www.bluewin.ch/en/sport/football/portgual-goes-one-better-after-the-break-can-switzerland-respond-again-2973926.html)
+- **How to Watch Portugal U17 vs Switzerland U17? TV Channels & Streaming Info**: [Link](https://www.sportsdunia.com/football-news/how-to-watch-portugal-u17-vs-switzerland-u17-live-stream-tv-channels-21st-november-2025)
+- **Live ticker: Can the Swiss U17 team defeat favorites Portugal in the World Cup quarter-finals? | blue News**: [Link](https://www.bluewin.ch/en/sport/football/can-the-swiss-u17-team-defeat-favorites-portugal-in-the-world-cup-quarter-finals-2973926.html)
+
+
 ### morocco u17 (N/A, Fri, 21 Nov 2025 08:00:00 -0800)
 
 - **U17-WM: Bellahsen und Marokko im Viertelfinale**: [Link](https://www.borussia.de/news/u17-wm-bellahsen-und-marokko-im-viertelfinale)
