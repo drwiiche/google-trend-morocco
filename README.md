@@ -1,3 +1,24 @@
+### atlético clube de portugal – benfica (N/A, Fri, 21 Nov 2025 12:40:00 -0800)
+
+- **Atlético CP x Benfica Palpite – Onde Assistir, Hora e Escalações 21-11**: [Link](https://onefootball.com/pt-br/apostas/palpites/futebol/atletico-cp-x-benfica-21-11-2025)
+- **Quem é Rodrigo Rêgo, o jovem que vai fazer a estreia pelo Benfica contra o Atlético?**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/quem-e-rodrigo-rego-o-jovem-que-vai-fazer-a-estreia-pelo-benfica-contra-o-atletico/)
+- **Sporting, Porto e Benfica: Quem Tem o Jogo Mais Fácil?**: [Link](https://observador.pt/prognosticos/sporting-porto-e-benfica-na-taca-quem-tem-o-jogo-mais-facil/)
+
+
+### game of thrones (N/A, Fri, 21 Nov 2025 12:40:00 -0800)
+
+- **‘The Beatles’ Movies Cast ‘Game of Thrones’ Star Harry Lloyd as Producer George Martin (EXCLUSIVE)**: [Link](https://variety.com/2025/film/global/the-beatles-movies-harry-lloyd-george-martin-1236587938/)
+- **‘The Beatles’ Movies Cast ‘Game of Thrones’ Star Harry Lloyd as Producer George Martin (Exclusive)**: [Link](https://www.imdb.com/es-es/news/ni65583985/?ref_=nwc_art_perm)
+- **Harry Lloyd Joins Sam Mendes’ Beatles Biopics as ‘Fifth Beatle’ George Martin**: [Link](https://www.rollingstone.com/tv-movies/tv-movie-news/beatles-biopic-harry-loyd-cast-producer-george-martin-1235470411/)
+
+
+### بث مباشر المغرب (N/A, Fri, 21 Nov 2025 08:20:00 -0800)
+
+- **الإعلام الهولندي يتابع تألق صيباري**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D9%87%D9%88%D9%84%D9%86%D8%AF%D9%8A-%D9%8A%D8%AA%D8%A7%D8%A8%D8%B9-%D8%AA%D8%A3%D9%84%D9%82-%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-1658366.html)
+- **أسود الأطلس يهزمون الموزمبيق في أول اختبار داخل ملعب طنجة الجديد بمواصفات مونديال 2030**: [Link](https://ar.telquel.ma/%D8%AA%D8%B5%D9%86%D9%8A%D9%81-%D9%81%D9%8A%D9%81%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D9%81%D8%B2-%D9%85%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%88%D9%8A%D8%B9%D8%B2%D8%B2-%D9%85/)
+- **الفوز 18.. المغرب يعزز سلسلة انتصاراته**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%81%D9%88%D8%B2-18--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA%D9%87/bltb90ca2b4728489d9)
+
+
 ### نيس ضد أولمبيك مارسيليا (N/A, Fri, 21 Nov 2025 12:10:00 -0800)
 
 - **باريس سان جيرمان يسعى لتعزيز صدارته... ومارسيليا يخوض اختبارا صعبا في معقل نيس بالدوري الفرنسي**: [Link](https://gate.ahram.org.eg/News/5337173.aspx)
