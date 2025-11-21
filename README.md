@@ -1,3 +1,10 @@
+### وزارة الأوقاف والشؤون الإسلامية (N/A, Fri, 21 Nov 2025 10:40:00 -0800)
+
+- **فاتح شهر جمادى الآخرة السبت بالمغرب**: [Link](https://www.hespress.com/%D9%81%D8%A7%D8%AA%D8%AD-%D8%B4%D9%87%D8%B1-%D8%AC%D9%85%D8%A7%D8%AF%D9%89-%D8%A7%D9%84%D8%A2%D8%AE%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1659623.html)
+- **وزارة الأوقاف تعلن السبت أول أيام جمادى الآخرة في المغرب**: [Link](https://lakome2.com/flash-infos/400069/)
+- **أول أيام شهر جمادى الأخرة 1447 -2025 في الدول العربية**: [Link](https://newsy.elsob7.com/news/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%AC%D9%85%D8%A7%D8%AF%D9%89-%D8%A7%D9%84%D8%A3%D8%AE%D8%B1%D8%A9-1447-2025-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84/)
+
+
 ### bangladesh (N/A, Fri, 21 Nov 2025 13:20:00 -0800)
 
 - **Earthquake jolts Bangladesh, killing five and injuring around 100**: [Link](https://www.reuters.com/business/environment/earthquake-magnitude-57-strikes-bangladesh-gfz-says-2025-11-21/)
