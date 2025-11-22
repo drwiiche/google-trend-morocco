@@ -1,3 +1,10 @@
+### ufc fight night (N/A, Sat, 22 Nov 2025 10:20:00 -0800)
+
+- **‘He’s just a mouthy little rich pr*ck’: Dan Hooker explains why he dislikes Arman Tsarukyan so much**: [Link](https://www.mmafighting.com/ufc/457205/hes-just-a-mouthy-little-rich-prick-dan-hooker-explains-why-he-dislikes-arman-tsarukyan-so-much)
+- **Khamzat Chimaev says he'll fight Ilia Topuria's team if altercation with Arman Tsarukyan breaks out**: [Link](https://bloodyelbow.com/2025/11/21/khamzat-chimaev-says-hell-fight-ilia-topurias-team-if-altercation-with-arman-tsarukyan-breaks-out/)
+- **Arman Tsarukyan on Choosing MMA Greatness Over 9-to-5 Stability**: [Link](https://bvmsports.com/2025/11/22/arman-tsarukyan-on-choosing-mma-greatness-over-9-to-5-stability/)
+
+
 ### arman tsarukyan (N/A, Sat, 22 Nov 2025 10:00:00 -0800)
 
 - **‘He’s just a mouthy little rich pr*ck’: Dan Hooker explains why he dislikes Arman Tsarukyan so much**: [Link](https://www.mmafighting.com/ufc/457205/hes-just-a-mouthy-little-rich-prick-dan-hooker-explains-why-he-dislikes-arman-tsarukyan-so-much)
