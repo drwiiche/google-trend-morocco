@@ -1,3 +1,10 @@
+### monaco fc (N/A, Sat, 22 Nov 2025 12:30:00 -0800)
+
+- **Rennes thrash 10-man Monaco to move into Ligue 1 top five as Pogba makes return**: [Link](https://www.flashscore.com/news/soccer-ligue-1-rennes-monaco-report-22-nov/SC7HCKcE/)
+- **Rennes vs Monaco: Monaco favored with 7 wins in last 9 meetings, averages 3.75 goals per game**: [Link](https://www.red94.net/news/83386-rennes-vs-monaco-monaco-favored-with-7-wins-in-last-9-meetings-averages-3-75-goa/)
+- **Rennes predicted XI v Monaco: Seko Fofana out**: [Link](https://www.getfootballnewsfrance.com/2025/rennes-predicted-xi-v-monaco-seko-fofana-out/)
+
+
 ### naples – atalanta (N/A, Sat, 22 Nov 2025 11:30:00 -0800)
 
 - **Serie A : à quelle heure et sur quelle chaîne suivre Napoli – Atalanta Bergame**: [Link](https://onefootball.com/en/news/serie-a-a-quelle-heure-et-sur-quelle-chaine-suivre-napoli-atalanta-bergame-41982001)
