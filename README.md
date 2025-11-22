@@ -1,3 +1,17 @@
+### liga (N/A, Sat, 22 Nov 2025 08:20:00 -0800)
+
+- **Football: Spanish La Liga**: [Link](https://www.barrons.com/news/football-spanish-la-liga-3df00426)
+- **Spain La Liga Soccer**: [Link](https://www.couriernews.com/sports/spain-la-liga-soccer/image_c1353c9a-d9c5-52a1-b30a-d278be65dc1f.html)
+- **Spain La Liga Soccer**: [Link](https://www.idahopress.com/sports/national/spain-la-liga-soccer/image_700b3dce-bb72-5a74-8d4f-467566e49ab5.html)
+
+
+### match barca (N/A, Sat, 22 Nov 2025 08:00:00 -0800)
+
+- **Barcelona vs Athletic Club – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269050/barcelona-vs-athletic-club-match-preview-prediction/)
+- **Barça return home: how Spotify Camp Nou has been transformed**: [Link](https://www.euronews.com/culture/2025/11/22/barca-return-home-new-camp-nou-reopens-after-900-days-with-a-big-party)
+- **When assists turn into art: Lamine Yamal sets up Ferran Torres for second Barcelona goal**: [Link](https://tribuna.com/en/blogs/when-assists-turn-into-art-lamine-yamal-sets-up-ferran-torre/)
+
+
 ### نيوكاسل يونايتد ضد مان سيتي (N/A, Sat, 22 Nov 2025 09:10:00 -0800)
 
 - **هالاند على أعتاب المئوية… هل يكتب التاريخ في سانت جيمس بارك؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B9%D8%AA%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%8A%D9%94%D9%88%D9%8A%D8%A9--%D9%87%D9%84-%D9%8A%D9%83%D8%AA%D8%A8-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%81%D9%8A-%D8%B3%D8%A7%D9%86%D8%AA-%D8%AC%D9%8A%D9%85%D8%B3-%D8%A8%D8%A7%D8%B1%D9%83/blt8f2aba98badab12b)
