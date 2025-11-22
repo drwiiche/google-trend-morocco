@@ -1,3 +1,17 @@
+### arman tsarukyan (N/A, Sat, 22 Nov 2025 10:00:00 -0800)
+
+- **‘He’s just a mouthy little rich pr*ck’: Dan Hooker explains why he dislikes Arman Tsarukyan so much**: [Link](https://www.mmafighting.com/ufc/457205/hes-just-a-mouthy-little-rich-prick-dan-hooker-explains-why-he-dislikes-arman-tsarukyan-so-much)
+- **Khamzat Chimaev says he'll fight Ilia Topuria's team if altercation with Arman Tsarukyan breaks out**: [Link](https://bloodyelbow.com/2025/11/21/khamzat-chimaev-says-hell-fight-ilia-topurias-team-if-altercation-with-arman-tsarukyan-breaks-out/)
+- **Arman Tsarukyan on Choosing MMA Greatness Over 9-to-5 Stability**: [Link](https://bvmsports.com/2025/11/22/arman-tsarukyan-on-choosing-mma-greatness-over-9-to-5-stability/)
+
+
+### lens – strasbourg (N/A, Sat, 22 Nov 2025 09:10:00 -0800)
+
+- **Lens 1-0 Strasbourg, Ligue 1 : résumé du match (22/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/lens-strasbourg-live/675902)
+- **RC Lens - Strasbourg en direct - Ligue 1 : Football Scores & Résultats - 22/11/2025**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-rc-lens-strasbourg_mtc1609273/live-commentary.shtml)
+- **La 3e affluence de la saison à Bollaert pour le “match de la mémoire”, un bel hommage aux Sang et Or disparus**: [Link](https://onefootball.com/pt-br/noticias/la-3e-affluence-de-la-saison-a-bollaert-pour-le-match-de-la-memoire-un-bel-hommage-aux-sang-et-or-disparus-41988184)
+
+
 ### rennes – monaco (N/A, Sat, 22 Nov 2025 10:00:00 -0800)
 
 - **PRONOS PARIS RMC Les paris sur Rennes - Monaco du 22 novembre - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-22-novembre-ligue-1_AN-202511210914.html)
