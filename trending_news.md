@@ -1,3 +1,10 @@
+### as far (N/A, Sat, 22 Nov 2025 05:00:00 -0800)
+
+- **AS FAR and ASEC Mimosas set for blockbuster CAF Women’s Champions League Final on Friday**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/as-far-and-asec-mimosas-set-for-blockbuster-caf-women-s-champions-league-final-on-friday/)
+- **IFFHS News**: [Link](https://iffhs.com/posts/4761)
+- **ASFAR Women Reach CAF Semifinals Fifth Time in a Row**: [Link](https://www.moroccoworldnews.com/2025/11/268126/asfar-women-reach-caf-semifinals-fifth-time-in-a-row/)
+
+
 ### بيرنلي ضد تشيلسي (N/A, Sat, 22 Nov 2025 04:40:00 -0800)
 
 - **تشيلسي يقترب من رقم قياسي تاريخي في "تورف مور"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%81%D9%8A-%D8%AA%D9%88%D8%B1%D9%81-%D9%85%D9%88%D8%B1/blt123ce46d20ac3e4a)
