@@ -1,3 +1,17 @@
+### fc barcelone (N/A, Sat, 22 Nov 2025 07:20:00 -0800)
+
+- **Barcelona vs Athletic Club – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269050/barcelona-vs-athletic-club-match-preview-prediction/)
+- **Barça return home: how Spotify Camp Nou has been transformed**: [Link](https://www.euronews.com/culture/2025/11/22/barca-return-home-new-camp-nou-reopens-after-900-days-with-a-big-party)
+- **BARCA RETURN TO CAMP NOU! POSSIBLE LINEUPS**: [Link](https://www.besoccer.com/new/live-barcelona-v-athletic-1382456)
+
+
+### barca vs (N/A, Sat, 22 Nov 2025 07:20:00 -0800)
+
+- **El Chelsea recibirá al Barça lanzado**: [Link](https://www.mundodeportivo.com/futbol/premier-league/20251122/1002573850/chelsea-recibira-barca-lanzado.html)
+- **La conversación entre Irene Paredes, Alexia Putellas y Graham que define la ambición de un Barça en alerta**: [Link](https://www.articulo14.es/deportes/la-conversacion-entre-irene-paredes-alexia-putellas-y-graham-que-define-la-ambicion-de-un-barca-en-alerta-20251121.html)
+- **El Barça femenino catapulta a TV3 al liderazgo: ¿qué han hecho los rivales?**: [Link](https://elmon.cat/es/comunicacion/las-chicas-del-barca-todo-un-exito-para-tv3-mientras-gran-hermano-se-hunde-1084883/)
+
+
 ### fulham – sunderland (N/A, Sat, 22 Nov 2025 07:10:00 -0800)
 
 - **Score Predictions: Can We “Gan Canny” Down At The Cottage?**: [Link](https://rokerreport.sbnation.com/match-previews/115075/score-predictions-can-we-gan-canny-down-at-the-cottage)
