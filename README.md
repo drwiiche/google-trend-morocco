@@ -1,3 +1,17 @@
+### bayern – fribourg (N/A, Sat, 22 Nov 2025 05:50:00 -0800)
+
+- **Preview: FC Bayern vs. SC Freiburg, Bundesliga**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/fc-bayern-muenchen-sport-club-freiburg-22-11-2025/preview)
+- **Kompany confirms Bayern Munich's two stars are doubtful for Arsenal clash**: [Link](https://telegrafi.com/en/Kompany-confirms-two-Bayern-Munich-stars-are-doubtful-for-Arsenal-clash/)
+- **🚨Breaking: Neuer brings good news for Bayern**: [Link](https://sports.yahoo.com/article/breaking-neuer-brings-good-news-084500267.html)
+
+
+### dortmund – stuttgart (N/A, Sat, 22 Nov 2025 05:50:00 -0800)
+
+- **Entscheidung bei Bensebaini und Süle gefallen – Adeyemi im Fokus BVB-Kader gegen Stuttgart**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-kader-gegen-stuttgart-entscheidung-bei-bensebaini-und-suele-gefallen-w1108265-2001884161/)
+- **Hoeneß beobachtet Zagadou mit Vorsicht: „Es ist weniger geworden“**: [Link](https://www.absolutfussball.com/deutschland/vfb-stuttgart/hoeness-beobachtet-zagadou-mit-vorsicht-es-ist-weniger-geworden-94048443.html)
+- **Niko Kovac stellt klar: Bei Niklas Süle ist keine Besserung zu erwarten**: [Link](https://tribuna.com/de/news/2025-11-22-niko-kovac-stellt-klar-bei-niklas-sule-ist-keine-besserung-zu-erwarten/)
+
+
 ### الجيش الملكي (N/A, Sat, 22 Nov 2025 05:30:00 -0800)
 
 - **للمرة الثانية .. سيدات الجيش الملكي يتوجن بلقب دوري أبطال إفريقيا**: [Link](https://www.hespress.com/%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%AA%D9%88%D8%AC-1659586.html)
