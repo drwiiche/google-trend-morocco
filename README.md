@@ -1,3 +1,17 @@
+### بيرنلي ضد تشيلسي (N/A, Sat, 22 Nov 2025 04:40:00 -0800)
+
+- **تشيلسي يقترب من رقم قياسي تاريخي في "تورف مور"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%81%D9%8A-%D8%AA%D9%88%D8%B1%D9%81-%D9%85%D9%88%D8%B1/blt123ce46d20ac3e4a)
+- **أرقام مميزة لـ جواو بيدرو في الدوري الانجليزي هذا الموسم**: [Link](https://hihi2.com/2025/11/22/p3523403.html)
+- **🔥بث مباشر: بيرنلي يواجه تشيلسي في الدوري الإنجليزي الممتاز**: [Link](https://tanja7.com/175758/)
+
+
+### deportivo alavés – celta vigo (N/A, Sat, 22 Nov 2025 04:20:00 -0800)
+
+- **Preview:Alaves vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/alaves/preview/alaves-vs-celta-vigo-prediction-team-news-lineups_586028.html)
+- **Facundo Tenaglia vs. RC Celta de Vigo – Player props & odds to score a goal on November 22**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/21/facundo-tenaglia-soccer-player-props-11-22-2025/87413045007/)
+- **PREVIEW | Alavés vs Celta de Vigo - team news, lineups, predictions**: [Link](https://www.playmakerstats.com/news/preview-alaves-vs-celta-de-vigo-team-news-lineups-predictions/980382)
+
+
 ### burnley – chelsea (N/A, Sat, 22 Nov 2025 03:40:00 -0800)
 
 - **Confirmed Chelsea line up vs Burnley | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-burnley-22112025)
