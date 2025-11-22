@@ -1,3 +1,10 @@
+### bayern vs sc freiburg (N/A, Sat, 22 Nov 2025 06:50:00 -0800)
+
+- **Längste Tabellenführung: FC Bayern stellt eigenen Rekord aus 70er Jahren ein**: [Link](https://www.transfermarkt.ch/langste-tabellenfuhrung-fc-bayern-stellt-eigenen-rekord-aus-70er-jahren-ein/view/news/463265)
+- **Kompany mit großem Respekt vor Freiburg**: [Link](https://onefootball.com/de/news/kompany-mit-grossem-respekt-vor-freiburg-41985185)
+- **FC Bayern München in der Bundesliga live sehen: Das Duell gegen Freiburg**: [Link](https://www.dazn.com/de-AT/news/fussball/fc-bayern-muenchen-bundesliga-live-sehen-duell-freiburg/1gf2flp3mxxb01wy9x2e4lqr3v)
+
+
 ### barcelona - athletic (N/A, Sat, 22 Nov 2025 06:40:00 -0800)
 
 - **Spotify Camp Nou: un estadio que regresa al futuro**: [Link](https://as.com/futbol/reportajes/spotify-camp-nou-un-estadio-que-regresa-al-futuro-f202511-n/)
