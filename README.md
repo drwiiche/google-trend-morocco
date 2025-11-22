@@ -1,3 +1,31 @@
+### newcastle – manchester city (N/A, Sat, 22 Nov 2025 08:40:00 -0800)
+
+- **Latest. Howe: Gordon and Livramento 'very close' to Magpies return**: [Link](https://www.newcastleunited.com/en/news/howe-gordon-and-livramento-very-close-to-magpies-return)
+- **Preview: Manchester City head to the Toon**: [Link](https://www.fotmob.com/fi/topnews/24035-preview-manchester-city-head-toon?utm_source=fotmob)
+- **Paul Merson releases Newcastle prediction as Man City arrive on Tyneside**: [Link](https://www.nufcblog.co.uk/2025/11/22/paul-merson-releases-newcastle-prediction-as-man-city-arrive-on-tyneside/)
+
+
+### nac breda – psv eindhoven (N/A, Sat, 22 Nov 2025 08:30:00 -0800)
+
+- **Live Eredivisie | NAC mist kansen in duel met PSV, later Ajax-Excelsior**: [Link](https://www.nu.nl/voetbal/6376866/live-eredivisie-nac-mist-kansen-in-duel-met-psv-later-ajax-excelsior.html)
+- **LIVE | Eerste kans is voor NAC: Valerius schiet over t**: [Link](https://www.bndestem.nl/nac/live-eerste-kans-is-voor-nac-valerius-schiet-over-t~a5d86991/)
+- **LIVE | Koploper PSV met captain Schouten in hart van defensie op bezoek bij NAC**: [Link](https://www.bd.nl/eindhoven/live-koploper-psv-met-captain-schouten-in-hart-van-defensie-op-bezoek-bij-nac~a3746a87/)
+
+
+### yalla shoot live (N/A, Sat, 22 Nov 2025 07:40:00 -0800)
+
+- **هزيمة أمام البرازيل .. فتيان المغرب يغادرون "المونديال" مرفوعي الرأس**: [Link](https://www.hespress.com/%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%81%D8%AA%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%B1%D8%AC-1659341.html)
+- **سوء التنظيم وفوضى في المدرجات.. أحداث رافقت إقصاء المنتخب المغربي من كأس العالم لأقل من 17 سنة أمام البرازيل**: [Link](https://m.elbotola.com/article/2025-11-22-11-10-912.html)
+- **هدف برازيلي قاتل ينهي مغامرة المغرب في مونديال الناشئين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%AF%D9%81-%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D9%82%D8%A7%D8%AA%D9%84-%D9%8A%D9%86%D9%87%D9%8A-%D9%85%D8%BA%D8%A7%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D9%8A%D9%94%D9%8A%D9%86/bltd501dec78fa46564)
+
+
+### fcb (N/A, Sat, 22 Nov 2025 07:30:00 -0800)
+
+- **Barcelona homegrown star set to reach special milestone on Spotify Camp Nou homecoming**: [Link](https://sports.yahoo.com/article/barcelona-homegrown-star-set-reach-083000948.html)
+- **Camp Nou return could mark a special occasion for 22-year-old Barcelona star**: [Link](https://semprebarca.com/camp-nou-return-could-mark-a-special-occasion-for-22-year-old-barcelona-star/)
+- **Barcelona homegrown star set to reach special milestone on Spotify Camp Nou homecoming**: [Link](https://barcauniversal.com/barcelona-homegrown-star-to-hit-special-milestone-on-spotify-camp-nou-homecoming/)
+
+
 ### fiorentina – juventus (N/A, Sat, 22 Nov 2025 08:20:00 -0800)
 
 - **LIVE Alle 18 Fiorentina-Juve: Kean contro Vlahovic. Anche Fagioli e Kelly dal 1'**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/22-11-2025/fiorentina-juve-live-risultato-e-gol-in-diretta-serie-a.shtml)
