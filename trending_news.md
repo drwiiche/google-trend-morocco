@@ -1,3 +1,10 @@
+### fiorentina – juventus (N/A, Sat, 22 Nov 2025 08:20:00 -0800)
+
+- **LIVE Alle 18 Fiorentina-Juve: Kean contro Vlahovic. Anche Fagioli e Kelly dal 1'**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/22-11-2025/fiorentina-juve-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **La spinta di tutta la città. Dai fischi alla rivoluzione. Primo sold out dell’anno. Il Franchi sarà una bolgia**: [Link](https://sport.quotidiano.net/calcio/fiorentina/la-spinta-di-tutta-la-f7960499)
+- **Serie A | Le formazioni ufficiali di Fiorentina-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-fiorentina-juventus-formazioni-ufficiali)
+
+
 ### général fabien mandon (N/A, Sat, 22 Nov 2025 07:50:00 -0800)
 
 - **L’inquiétude du chef d’état-major des armées français partagée par ses homologues européens**: [Link](https://www.lemonde.fr/international/article/2025/11/22/l-inquietude-du-chef-d-etat-major-des-armees-francais-partagee-par-ses-homologues-europeens_6654401_3210.html)
