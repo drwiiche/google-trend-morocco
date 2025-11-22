@@ -1,3 +1,10 @@
+### paris-sg – le havre (N/A, Sat, 22 Nov 2025 11:20:00 -0800)
+
+- **Le groupe du PSG pour la réception du Havre avec un grand retour**: [Link](https://www.footmercato.net/a4467039828851667251-le-groupe-du-psg-pour-la-reception-du-havre-avec-un-grand-retour)
+- **Les individualités du PSG récompensées, Luis Enrique agacé : « Je suis un peu préoccupé, parce qu'il y a beaucoup de bruit autour de l'équipe »**: [Link](https://www.lequipe.fr/Football/Actualites/Les-individualites-du-psg-recompensees-luis-enrique-agace-je-suis-un-peu-preoccupe-parce-qu-il-y-a-beaucoup-de-bruit-autour-de-l-equipe/1611222)
+- **Luis Enrique casse les codes : la compo qui surprend Paris**: [Link](https://www.football365.fr/luis-enrique-casse-les-codes-la-compo-qui-surprend-paris-10266115.html)
+
+
 ### ufc fight night (N/A, Sat, 22 Nov 2025 10:20:00 -0800)
 
 - **‘He’s just a mouthy little rich pr*ck’: Dan Hooker explains why he dislikes Arman Tsarukyan so much**: [Link](https://www.mmafighting.com/ufc/457205/hes-just-a-mouthy-little-rich-prick-dan-hooker-explains-why-he-dislikes-arman-tsarukyan-so-much)
