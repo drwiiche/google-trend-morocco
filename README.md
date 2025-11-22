@@ -1,3 +1,17 @@
+### بي اس جي ضد لوهافر (N/A, Sat, 22 Nov 2025 11:30:00 -0800)
+
+- **غيابات مدوية في باريس.. إنريكي يفقد أبرز نجومه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AE%D9%84%D8%A7%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A--%D9%84%D8%A7%D8%B9%D8%A8-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D8%B1%D8%A8%D9%83-%D8%AE%D8%B7%D8%B7-%D9%84%D9%88%D9%8A%D8%B3-%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A/blt7a70f9883c2123e6)
+- **هذا ما قاله لويس إنريكي بعد فوز حكيمي ب "البالون دور"**: [Link](https://www.almountakhab.com/node/16219869)
+- **القنوات الناقلة لمباراة باريس سان جيرمان ضد لوهافر اليوم في الدوري الفرنسي مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/483604225855863-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B6%D8%AF-%D9%84%D9%88%D9%87%D8%A7%D9%81%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### strikeout (N/A, Sat, 22 Nov 2025 11:30:00 -0800)
+
+- **MLB Hitters that Are Currently the Hardest to Strike Out**: [Link](https://en.albat.com/lista/mlb-hitters-that-are-currently-the-hardest-to-strike-out-20251120-0005.html)
+- **Could Mariners land one of the 2 Japanese sluggers heading to MLB?**: [Link](https://www.seattletimes.com/sports/mariners/will-japanese-sluggers-munetaka-murakami-or-kazuma-okamoto-end-up-with-mariners/)
+- **Dodgers Predicted To Sign Star Slugger To Huge 4-Year, $75 Million Deal**: [Link](https://www.newsweek.com/dodgers-predicted-to-sign-star-slugger-to-huge-4-year-75-million-deal-11083624)
+
+
 ### paris-sg – le havre (N/A, Sat, 22 Nov 2025 11:20:00 -0800)
 
 - **Le groupe du PSG pour la réception du Havre avec un grand retour**: [Link](https://www.footmercato.net/a4467039828851667251-le-groupe-du-psg-pour-la-reception-du-havre-avec-un-grand-retour)
