@@ -1,3 +1,17 @@
+### osasuna – real sociedad (N/A, Sat, 22 Nov 2025 09:00:00 -0800)
+
+- **Los colores txuri urdin se dejan ver desde la mañana en Iruña**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20251122/1002573779/colores-txuri-urdin-dejan-ver-manana-iruna.html)
+- **'Tenemos recursos para plantar cara': Sergio Francisco confía en romper la sequía en El Sadar**: [Link](https://tribuna.com/es/news/2025-11-22-tenemos-recursos-para-plantar-cara-sergio-francisco-confia-en-romper-la-sequia-en-el-sada/)
+- **Osasuna - Real Sociedad, en directo: Moncayola y Torró entran en el once; Budimir, al banquillo**: [Link](https://www.diariodenavarra.es/noticias/deportes/futbol/osasuna/2025/11/22/osasuna-real-sociedad-directo-moncayola-torro-entran-once-budimir-banquillo-801066-32.html)
+
+
+### barcelona (N/A, Sat, 22 Nov 2025 07:30:00 -0800)
+
+- **Barcelona - Athletic hoy, en directo: jornada 13 de LaLiga EA Sports, última hora en vivo**: [Link](https://as.com/futbol/primera/barcelona-athletic-hoy-en-directo-jornada-13-de-laliga-ea-sports-ultima-hora-en-vivo-f202511-d/)
+- **Barcelona - Athletic Club hoy en directo: resultado y goles en el Spotify Camp Nou | LaLiga EA Sports de fútbol**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251122/1002571130/barcelona-athletic-club-directo-partido-laliga-ea-sports-futbol-spotify-camp-nou.html)
+- **Laporta desliza quién hará el saque de honor en el Spotify Camp Nou**: [Link](https://www.sport.es/es/noticias/barca/laporta-desliza-hara-saque-honor-124001266)
+
+
 ### newcastle – manchester city (N/A, Sat, 22 Nov 2025 08:40:00 -0800)
 
 - **Latest. Howe: Gordon and Livramento 'very close' to Magpies return**: [Link](https://www.newcastleunited.com/en/news/howe-gordon-and-livramento-very-close-to-magpies-return)
