@@ -1,3 +1,17 @@
+### ليفربول ضد نوتينغهام فورست (N/A, Sat, 22 Nov 2025 06:20:00 -0800)
+
+- **صلاح يلامس التاريخ في مواجهة نوتنجهام النارية على الأنفيلد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%84%D8%A7%D9%85%D8%B3-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%86%D9%88%D8%AA%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%94%D9%86%D9%81%D9%8A%D9%84%D8%AF/blt46d00c026e9767f7)
+- **ليفربول يستعيد حارسه أليسون بعد غياب طويل... عودة في توقيت مناسب**: [Link](https://www.alaraby.co.uk/sport/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%AD%D8%A7%D8%B1%D8%B3%D9%87-%D8%A3%D9%84%D9%8A%D8%B3%D9%88%D9%86-%D8%A8%D8%B9%D8%AF-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B7%D9%88%D9%8A%D9%84-%D8%B9%D9%88%D8%AF%D8%A9-%D9%81%D9%8A-%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D9%85%D9%86%D8%A7%D8%B3%D8%A8)
+- **فان دايك : نحن لا نخشى قول الحقيقة في هذا النادي**: [Link](https://hihi2.com/2025/11/21/p3522386.html)
+
+
+### liverpool – nottm forest (N/A, Sat, 22 Nov 2025 06:10:00 -0800)
+
+- **LFC fitness update: Alisson, Wirtz, Isak, Bradley, Frimpong, Gomez and more**: [Link](https://www.liverpoolfc.com/news/lfc-fitness-update-alisson-wirtz-isak-bradley-frimpong-gomez-and-more)
+- **Arne Slot delivers terrifying injury update ahead of festive fixtures**: [Link](https://www.empireofthekop.com/2025/11/21/arne-slot-injury-update-wirtz-bradley/)
+- **Liverpool vs Nottingham Forest Preview, Betting Odds and Predictions – 22/11/25**: [Link](https://theplayoffs.news/en/liverpool-vs-nottingham-forest-preview-betting-odds-predictions/)
+
+
 ### bayern – fribourg (N/A, Sat, 22 Nov 2025 05:50:00 -0800)
 
 - **Preview: FC Bayern vs. SC Freiburg, Bundesliga**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/fc-bayern-muenchen-sport-club-freiburg-22-11-2025/preview)
