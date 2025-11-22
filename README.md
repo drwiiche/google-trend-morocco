@@ -1,3 +1,24 @@
+### yalla kora (N/A, Sat, 22 Nov 2025 07:30:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الأهلي وشبيبة القبائل في دوري أبطال إفريقيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D9%8A%D9%94%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte33bcd73a14354f0)
+- **الأهلي المصري يبحث عن حلول قبيل مواجهة شبيبة القبائل**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%AD%D9%84%D9%88%D9%84-%D9%82%D8%A8%D9%8A%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D8%A6%D9%84)
+- **القنوات الناقلة وموعد مباراة الأهلي وشبيبة القبائل في أفريقيا**: [Link](https://arabic.sport360.com/article/football/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A/1352894/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88-12)
+
+
+### brighton – brentford (N/A, Sat, 22 Nov 2025 07:30:00 -0800)
+
+- **How things stand with Mitoma as Albion winger recovers from injury**: [Link](https://www.theargus.co.uk/sport/25640576.fabian-hurzeler-kaoru-mitoma-injury-recovery/)
+- **Welbeck to skipper Brighton and Hove Albion at home to Brentford**: [Link](https://www.brightonandhovenews.org/2025/11/22/welbeck-to-skipper-brighton-and-hove-albion-at-home-to-brentford/)
+- **Brentford's away from not a concern for Andrews ahead of Brighton test**: [Link](https://www.ealingtimes.co.uk/sport/brentford/25641518.away-not-concern-andrews-ahead-brighton-test/)
+
+
+### wolves – crystal palace (N/A, Sat, 22 Nov 2025 07:30:00 -0800)
+
+- **Preview | Wolves vs Crystal Palace | Features | News**: [Link](https://www.wolves.co.uk/news/features/20251120-preview-wolves-vs-crystal-palace/)
+- **Football Bet Of The Day: James Milton has an even-money selection from the Premier League**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-bet-of-the-day-james-milton-has-an-even-money-selection-from-the-premier-league-aDPbd7G73gIc/)
+- **Guehi + Palace injury latest for FPL Gameweek 12**: [Link](https://www.fantasyfootballscout.co.uk/2025/11/21/guehi-palace-injury-latest-for-fpl-gameweek-12/)
+
+
 ### fc barcelone (N/A, Sat, 22 Nov 2025 07:20:00 -0800)
 
 - **Barcelona vs Athletic Club – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269050/barcelona-vs-athletic-club-match-preview-prediction/)
