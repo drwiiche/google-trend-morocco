@@ -1,3 +1,10 @@
+### burnley – chelsea (N/A, Sat, 22 Nov 2025 03:40:00 -0800)
+
+- **Confirmed Chelsea line up vs Burnley | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-burnley-22112025)
+- **Maresca’s already making specific excuses for tomorrow’s Burnley “tough game”**: [Link](https://chelsea.news/2025/11/maresca-tough-game-burnley/)
+- **EPL football back with Chelsea Facing Burnley in an Early Kick-off Match**: [Link](https://www.dawan.africa/news/epl-football-back-with-chelsea-facing-burnley-in-an-early-kick-off-match)
+
+
 ### coupe arabe (N/A, Fri, 21 Nov 2025 23:20:00 -0800)
 
 - **Coupe Arabe de la FIFA Qatar-2025: Tarik Sektioui dévoile la liste finale des joueurs**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D8%B7%D8%A7%D8%B1%D9%82-%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D9%84%D8%A7/)
