@@ -1,3 +1,31 @@
+### barcelona - athletic (N/A, Sat, 22 Nov 2025 06:40:00 -0800)
+
+- **Spotify Camp Nou: un estadio que regresa al futuro**: [Link](https://as.com/futbol/reportajes/spotify-camp-nou-un-estadio-que-regresa-al-futuro-f202511-n/)
+- **El posible once del Barça ante el Athletic en el partido del regreso, del morbo y del liderato**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251122/1002573550/posible-once-barca-athletic-partido-regreso-morbo-liderato.html)
+- **Laporta desliza quién hará el saque de honor en el Spotify Camp Nou**: [Link](https://www.sport.es/es/noticias/barca/laporta-desliza-hara-saque-honor-124001266)
+
+
+### البايرن ضد فرايبورغ (N/A, Sat, 22 Nov 2025 06:40:00 -0800)
+
+- **كين في المهمة الهجومية.. وكيميتش ضحية المفاجآت أمام فرايبورج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85%D9%8A%D8%A9--%D9%88%D9%83%D9%8A%D9%85%D9%8A%D8%AA%D8%B4-%D8%B6%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%93%D8%AA-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%81%D8%B1%D8%A7%D9%8A%D8%A8%D9%88%D8%B1%D8%AC/blt81ee45de7d36be4c)
+- **صور – بايرن ميونخ يستعد لفرايبورغ في أجواء ثلجية**: [Link](https://hihi2.com/2025/11/22/p3522551.html)
+- **كومباني يكشف آخر مستجدات إصابات البايرن**: [Link](https://tembah.net/news?nid=79844)
+
+
+### wolfsbourg – leverkusen (N/A, Sat, 22 Nov 2025 06:40:00 -0800)
+
+- **VfL Wolfsburg – Bayer Leverkusen im TV und Livestream: Hier siehst du das Spiel live**: [Link](https://www.derwesten.de/sport/fussball/bayer-04-leverkusen-tv-livestream-sky-dazn-wolfsburg-id300790552.html)
+- **Mit den Glücksschuhen zum langersehnten Heimsieg?**: [Link](https://www.sport1.de/tv-video/video/mit-den-gluecksschuhen-zum-langersehnten-heimsieg-__20CAC576-AEB7-4075-A3B9-71367DAC908B)
+- **Mit alten Schuhen und neuen Abläufen aus der Wolfsburg-Krise**: [Link](https://www.mv-online.de/articles/360470?trk=organization_guest_main-feed-card-text&sort=Newest&take=10&skip=0)
+
+
+### al-hilal – al-fateh (N/A, Sat, 22 Nov 2025 06:10:00 -0800)
+
+- **We will face a strong opponent tomorrow evening, and the international break helped us to improve our work... Coach Inzaghi’s thoughts ahead of our match against Al-Fateh**: [Link](https://alhilal.com/en/news/we-will-face-a-strong-opponent-tomorrow-evening-and-the-international-break)
+- **Preview:Al-Hilal vs Al Fateh - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/preview/al-hilal-vs-al-fateh-prediction-team-news-lineups_586081.html)
+- **Inzaghi Shocks Al Hilal Fans Over Right-Back Crisis Before Facing Al Fateh**: [Link](https://www.ysscores.com/en/news/13858337/Inzaghi-Shocks-Al-Hilal-Fans-Over-Right-Back-Crisis-Before-Facing-Al-Fateh)
+
+
 ### برشلونة ضد أتلتيك بيلباو (N/A, Sat, 22 Nov 2025 06:30:00 -0800)
 
 - **قبل مواجهة بيلباو.. لابورتا يكشف سرا في افتتاح كامب نو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88--%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1%D8%A7-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88/blt1c8817163e24a620)
