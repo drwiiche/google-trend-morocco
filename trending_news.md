@@ -1,3 +1,10 @@
+### الجيش الملكي (N/A, Sat, 22 Nov 2025 05:30:00 -0800)
+
+- **للمرة الثانية .. سيدات الجيش الملكي يتوجن بلقب دوري أبطال إفريقيا**: [Link](https://www.hespress.com/%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%AA%D9%88%D8%AC-1659586.html)
+- **تهنئة**: [Link](https://frmf.ma/%D8%AA%D9%87%D9%86%D8%A6%D8%A9-32/)
+- **الجيش الملكي للسيدات يتوج بطلا لدوري أبطال أفريقيا للمرة الثانية في تاريخه**: [Link](https://m.elbotola.com/article/2025-11-21-18-56-57.html)
+
+
 ### as far (N/A, Sat, 22 Nov 2025 05:00:00 -0800)
 
 - **AS FAR and ASEC Mimosas set for blockbuster CAF Women’s Champions League Final on Friday**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/as-far-and-asec-mimosas-set-for-blockbuster-caf-women-s-champions-league-final-on-friday/)
