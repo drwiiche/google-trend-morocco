@@ -1,3 +1,10 @@
+### rennes – monaco (N/A, Sat, 22 Nov 2025 10:00:00 -0800)
+
+- **PRONOS PARIS RMC Les paris sur Rennes - Monaco du 22 novembre - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-22-novembre-ligue-1_AN-202511210914.html)
+- **SRFC-ASM : Les compositions**: [Link](https://asm-supporters.fr/actualites/64265-srfc-asm-les-compositions-7)
+- **Retour en forme, Habib Beye, jeunes talents… Tout savoir sur le Stade Rennais**: [Link](https://www.asmonaco.com/retour-en-forme-habib-beye-jeunes-talents-tout-savoir-sur-le-stade-rennais/)
+
+
 ### liga (N/A, Sat, 22 Nov 2025 08:20:00 -0800)
 
 - **Football: Spanish La Liga**: [Link](https://www.barrons.com/news/football-spanish-la-liga-3df00426)
