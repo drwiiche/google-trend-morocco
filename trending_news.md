@@ -1,3 +1,24 @@
+### général fabien mandon (N/A, Sat, 22 Nov 2025 07:50:00 -0800)
+
+- **L’inquiétude du chef d’état-major des armées français partagée par ses homologues européens**: [Link](https://www.lemonde.fr/international/article/2025/11/22/l-inquietude-du-chef-d-etat-major-des-armees-francais-partagee-par-ses-homologues-europeens_6654401_3210.html)
+- **"Une période critique pour la paix en Europe": pourquoi l’armée s’inquiète d’un conflit avec la Russie "à l'horizon 2030"**: [Link](https://www.bfmtv.com/international/asie/russie/une-periode-critique-pour-la-paix-en-europe-pourquoi-l-armee-s-inquiete-d-un-conflit-avec-la-russie-a-l-horizon-2030_AV-202511210088.html)
+- **«Accepter de perdre nos enfants» : les propos du chef des armées font bondir au sein de la classe politique**: [Link](https://www.liberation.fr/politique/accepter-de-perdre-nos-enfants-les-propos-du-chef-des-armees-font-bondir-au-sein-de-la-classe-politique-20251120_XU37DA34K5CUFDDLUKOC27VWNY/)
+
+
+### barca (N/A, Sat, 22 Nov 2025 07:30:00 -0800)
+
+- **Fico, ormeggio superscontato per la barca (non dichiarata)**: [Link](https://www.laverita.info/fico-ormeggio-superscontato-barca-2674332280.html)
+- **Polemiche sulla barca di Fico, Crosetto: «Ormeggio da 550 euro all’anno»**: [Link](https://www.ilsole24ore.com/art/polemiche-barca-fico-crosetto-ormeggio-550-euro-all-anno-AHky3zsD)
+- **Il Tempo di Osho, la vignetta di oggi: Crosetto e la verità sul gozzo di Fico (sabato 22 novembre)**: [Link](https://www.iltempo.it/tempodiosh/2025/11/22/news/osho-vignetta-oggi-roberto-fico-gozzo-ormeggio-nisida-guido-crosetto-verita-sabato-22-novembre-45094403/)
+
+
+### بث مباشر (N/A, Sat, 22 Nov 2025 07:30:00 -0800)
+
+- **تشيلسي يقتنص الوصافة بثنائية في بيرنلي.. ويشعل البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D9%82%D8%AA%D9%86%D8%B5-%D8%A7%D9%84%D9%88%D8%B5%D8%A7%D9%81%D8%A9-%D8%A8%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A8%D9%8A%D8%B1%D9%86%D9%84%D9%8A--%D9%88%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/blt70e3de368b122454)
+- **بطولة إنكلترا: تشلسي يقفز موقتا إلى الوصافة بهدفين على أرض بورنلي**: [Link](https://www.almountakhab.com/node/13219898)
+- **أرقام مميزة لـ جواو بيدرو في الدوري الانجليزي هذا الموسم**: [Link](https://hihi2.com/2025/11/22/p3523403.html)
+
+
 ### yalla shoot (N/A, Sat, 22 Nov 2025 07:30:00 -0800)
 
 - **ما القنوات الناقلة لمباراة الأهلي وشبيبة القبائل في دوري أبطال إفريقيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D9%8A%D9%94%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte33bcd73a14354f0)
