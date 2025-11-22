@@ -1,3 +1,25 @@
+### fulham – sunderland (N/A, Sat, 22 Nov 2025 07:10:00 -0800)
+
+- **Score Predictions: Can We “Gan Canny” Down At The Cottage?**: [Link](https://rokerreport.sbnation.com/match-previews/115075/score-predictions-can-we-gan-canny-down-at-the-cottage)
+- **Matchday Preview: Sunderland**: [Link](https://www.fulhamfc.com/news/2025/november/21/matchday-preview-sunderland/)
+- **Marco Silva acknowledges the ‘good vibes’ and ‘individual quality’ of
+Sunderland**: [Link](https://www.vavel.com/en/football/2025/11/21/fulham/1242063-marco-silva-acknowledges-the-good-vibes-and-individual-quality-ofsunderland.html)
+
+
+### الهلال ضد الفتح (N/A, Sat, 22 Nov 2025 07:10:00 -0800)
+
+- **فيسنيك يدخل دوري روشن من بوابة الهلال والفتح**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%B3%D9%86%D9%8A%D9%83-%D9%8A%D8%AF%D8%AE%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D9%85%D9%86-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%81%D8%AA%D8%AD/blt7e858711b1cdfe59)
+- **مباشر.. مباراة الهلال ضد الفتح في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/22/al-hilal-vs-al-fateh)
+- **إنزاغي مدرب الهلال السعودي يكشف حقيقة غياب بونو عن مباراة الفتح**: [Link](https://www.hesport.com/%D8%A5%D9%86%D8%B2%D8%A7%D8%BA%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-414023.html)
+
+
+### bournemouth – west ham (N/A, Sat, 22 Nov 2025 07:10:00 -0800)
+
+- **As It Happened | Nuno Espírito Santo's pre-AFC Bournemouth press conference**: [Link](https://www.whufc.com/en/news/live-stream-or-nuno-espirito-santos-pre-afc-bournemouth-press-conference)
+- **Predicted: Nuno makes big call on Lucas Paqueta replacement as West Ham duo declared fit to face Bournemouth**: [Link](https://www.hammers.news/match-report/predicted-nuno-makes-big-call-on-lucas-paqueta-replacement-as-west-ham-duo-declared-fit-to-face-bournemouth/)
+- **Premier League Soccer: Stream Bournemouth vs. West Ham Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-bournemouth-vs-west-ham-live-from-anywhere/)
+
+
 ### bayern vs sc freiburg (N/A, Sat, 22 Nov 2025 06:50:00 -0800)
 
 - **Längste Tabellenführung: FC Bayern stellt eigenen Rekord aus 70er Jahren ein**: [Link](https://www.transfermarkt.ch/langste-tabellenfuhrung-fc-bayern-stellt-eigenen-rekord-aus-70er-jahren-ein/view/news/463265)
