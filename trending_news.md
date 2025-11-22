@@ -1,3 +1,17 @@
+### برشلونة ضد أتلتيك بيلباو (N/A, Sat, 22 Nov 2025 06:30:00 -0800)
+
+- **قبل مواجهة بيلباو.. لابورتا يكشف سرا في افتتاح كامب نو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88--%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1%D8%A7-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88/blt1c8817163e24a620)
+- **بعد غياب دام قرابة شهرين.. رافينيا يعود في مباراة افتتاح "كامب نو"**: [Link](https://m.elbotola.com/article/2025-11-20-16-16-719.html)
+- **بطولة إسبانيا: برشلونة يعوّل على عودته إلى "كامب نو" لتحفيز مشوار الدفاع عن اللقب**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251121-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B9%D9%88%D9%91%D9%84-%D8%B9%D9%84%D9%89-%D8%B9%D9%88%D8%AF%D8%AA%D9%87-%D8%A5%D9%84%D9%89-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D9%84%D8%AA%D8%AD%D9%81%D9%8A%D8%B2-%D9%85%D8%B4%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%B9%D9%86-%D8%A7%D9%84%D9%84%D9%82%D8%A8)
+
+
+### barcelona vs athletic club (N/A, Sat, 22 Nov 2025 06:30:00 -0800)
+
+- **Barcelona vs Athletic Club – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269050/barcelona-vs-athletic-club-match-preview-prediction/)
+- **Hansi Flick: 'The stadium could help a lot'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4406740/hansi-flick-the-stadium-could-help-a-lot)
+- **From Clasico heroics to La Liga glory: Barcelona’s five defining moments at Montjuic as Camp Nou comeback nears**: [Link](https://barcauniversal.com/from-clasico-heroics-to-la-liga-glory-barcelonas-five-defining-moments-at-montjuic-as-camp-nou-comeback-nears/)
+
+
 ### ليفربول ضد نوتينغهام فورست (N/A, Sat, 22 Nov 2025 06:20:00 -0800)
 
 - **صلاح يلامس التاريخ في مواجهة نوتنجهام النارية على الأنفيلد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%84%D8%A7%D9%85%D8%B3-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%86%D9%88%D8%AA%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%94%D9%86%D9%81%D9%8A%D9%84%D8%AF/blt46d00c026e9767f7)
