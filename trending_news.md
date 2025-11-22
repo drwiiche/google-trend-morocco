@@ -1,3 +1,10 @@
+### naples – atalanta (N/A, Sat, 22 Nov 2025 11:30:00 -0800)
+
+- **Serie A : à quelle heure et sur quelle chaîne suivre Napoli – Atalanta Bergame**: [Link](https://onefootball.com/en/news/serie-a-a-quelle-heure-et-sur-quelle-chaine-suivre-napoli-atalanta-bergame-41982001)
+- **Palladino: ‘Destiny that my Atalanta debut is in hometown’**: [Link](https://football-italia.net/palladino-destiny-atalanta-debut-in-hometown/)
+- **Atalanta New Coach Banks on Ademola Lookman to Steer Club Back to Reckoning**: [Link](https://www.thisdaylive.com/2025/11/21/atalanta-new-coach-banks-on-ademola-lookman-to-steer-club-back-to-reckoning/)
+
+
 ### psg (N/A, Sat, 22 Nov 2025 12:00:00 -0800)
 
 - **PSG : la déclaration inquiétante de l’agent d’Achraf Hakimi**: [Link](https://www.footmercato.net/a366842814216665688-psg-la-declaration-inquietante-de-lagent-dachraf-hakimi)
