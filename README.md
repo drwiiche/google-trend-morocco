@@ -1,3 +1,38 @@
+### elche – real madrid (N/A, Sun, 23 Nov 2025 11:10:00 -0800)
+
+- **Alineación posible del Real Madrid hoy ante el Elche en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-ante-el-elche-en-laliga-ea-sports-f202511-n/)
+- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20251123/1002574132/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
+- **Posiciones de Real Madrid en La Liga: Diferencia con Barcelona**: [Link](https://www.365scores.com/es/news/posiciones-de-real-madrid-la-liga-elche/)
+
+
+### إلتشيه ضد الريال (N/A, Sun, 23 Nov 2025 11:10:00 -0800)
+
+- **6 غيابات تضرب قائمة ريال مدريد أمام إلتشي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/6-%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%84%D8%AA%D8%B4%D9%8A/blte0f314ca94a19b76)
+- **مدرب ريال مدريد يكشف حالة روديجر وموقفه من مباراة إلتشي**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/1353007/%D9%85%D8%AF%D8%B1%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%83%D8%B4%D9%81-%D8%AD%D8%A7%D9%84%D8%A9-%D8%B1%D9%88%D8%AF%D9%8A%D8%AC%D8%B1-%D9%88%D9%85%D9%88%D9%82%D9%81)
+- **إصابة ألابا تزيد متاعب الريال.. قائمة طويلة من الغائبين أمام إلتشي**: [Link](https://24.ae/article/931283/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A3%D9%84%D8%A7%D8%A8%D8%A7-%D8%AA%D8%B2%D9%8A%D8%AF-%D9%85%D8%AA%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%B7%D9%88%D9%8A%D9%84%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D8%A7%D8%A6%D8%A8%D9%8A%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D9%84%D8%AA%D8%B4%D9%8A)
+
+
+### inter – ac milan (N/A, Sun, 23 Nov 2025 11:00:00 -0800)
+
+- **Gazzetta: Allegri pushes his group ahead of the derby**: [Link](https://milanreports.com/2025/11/23/allegri-pushes-his-group-ahead-derby/)
+- **Shevchenko says the "Derby della Madonnina" is more important for Milan than Inter**: [Link](https://www.gazetaexpress.com/en/Shevchenko-says-the-Derby-della-Madonnina-is-more-important-for-Milan-than-Inter/)
+- **Inter Milan Vs AC Milan – Strength In Depth: Cristian Chivu Boasts Intimidating Firepower On The Bench**: [Link](https://sempreinter.com/2025/11/23/inter-ac-milan-bonny-esposito-start-bench/)
+
+
+### الوداد (N/A, Sun, 23 Nov 2025 11:00:00 -0800)
+
+- **تشكيلة الوداد أمام نيروبي.. مايرز وفيريرا يشكلان ثنائية الدفاع والهنوري يقود الجبهة الهجومية رفقة أمرابط ولورش**: [Link](https://m.elbotola.com/article/2025-11-23-17-17-308.html)
+- **بنهاشم "متفائل" بهزم نيروبي الكيني**: [Link](https://www.hespress.com/%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85-%D8%AF%D8%B1%D8%B3%D9%86%D8%A7-%D9%81%D8%B1%D9%8A%D9%82-%D9%86%D9%8A%D8%B1%D9%88%D8%A8%D9%8A-%D8%A7%D9%84%D9%83%D9%8A%D9%86%D9%8A-%D8%AC%D9%8A%D8%AF%D8%A7-1660007.html)
+- **كأس الكونفدرالية: الفرسان حددوا الرهان واللقب هو العنوان**: [Link](https://www.almountakhab.com/node/13219933)
+
+
+### wydad (N/A, Sun, 23 Nov 2025 10:50:00 -0800)
+
+- **Le Wydad débute son parcours continental ce dimanche en accueillant Nairobi United en Coupe de la Confédération**: [Link](https://m.elbotola.com/fr/article/2025-11-23-09-26-349.html)
+- **Nairobi United promet de bousculer le Wydad à Casablanca**: [Link](https://mountakhab.net/nairobi-united-promet-de-bousculer-le-wydad-a-casablanca/)
+- **Le Wydad met en vente les billets pour son match contre Nairobi United en Coupe de la Confédération**: [Link](https://www.ysscores.com/fr/news/13856964/Le-Wydad-met-en-vente-les-billets-pour-son-match-contre-Nairobi-United-en-Coupe-de-la-Conf%C3%A9d%C3%A9ration)
+
+
 ### classement premier league (N/A, Sun, 23 Nov 2025 10:40:00 -0800)
 
 - **DIRECT. Arsenal-Tottenham (Premier League 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/arsenal-tottenham-live/673613)
