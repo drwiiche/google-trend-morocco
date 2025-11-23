@@ -1,3 +1,24 @@
+### fabien mandon enfants (N/A, Sun, 23 Nov 2025 01:10:00 -0800)
+
+- **"Accepter de perdre ses enfants": Emmanuel Macron affirme que le chef d'état-major des armées a "toute sa confiance" après ses propos "sortis de leur contexte pour faire peur"**: [Link](https://www.bfmtv.com/politique/elysee/accepter-de-perdre-ses-enfants-emmanuel-macron-affirme-que-le-chef-d-etat-major-des-armees-a-toute-sa-confiance-apres-ses-propos-sortis-de-leur-contexte-pour-faire-peur_AN-202511220334.html)
+- **Lutte contre le narcotrafic : «Il faut reprendre le système à zéro, c'est un fléau national», estime Romain Simmarano**: [Link](https://www.europe1.fr/emissions/L-invite-de/lutte-contre-le-narcotrafic-il-faut-reprendre-le-systeme-a-zero-cest-un-fleau-national-estime-romain-simmarano-872350)
+- **Les Français doivent-ils se préparer à la guerre ?: "Bien sûr", déclare Vincent Desportes, ancien directeur de l'École de guerre**: [Link](https://actu.orange.fr/videos/france/les-francais-doivent-ils-se-preparer-a-la-guerre-bien-sur-declare-vincent-desportes-ancien-directeur-de-l-ecole-de-guerre-CNT000002lPtEN.html)
+
+
+### bls (N/A, Sun, 23 Nov 2025 00:50:00 -0800)
+
+- **US data agency cancels October inflation report as Fed considers whether to cut rates**: [Link](https://www.theguardian.com/business/2025/nov/21/october-inflation-report-cancelled-fed-rate)
+- **Key US Economic Reports Face Delays And Data Gaps**: [Link](https://finimize.com/content/key-us-economic-reports-face-delays-and-data-gaps)
+- **US Inflation Traders to Use Untested Fallbacks for Missing CPI**: [Link](https://www.bloomberg.com/news/articles/2025-11-21/us-inflation-traders-to-use-untested-fallbacks-for-missing-cpi)
+
+
+### x (N/A, Sat, 22 Nov 2025 20:50:00 -0800)
+
+- **X begins rolling out the ‘About this account’ feature to users’ profiles**: [Link](https://techcrunch.com/2025/11/21/x-begins-rolling-out-the-about-this-account-feature-to-users-profiles/)
+- **Elon Musk's X rolls out feature that shows users' country of origin – then suddenly removes it**: [Link](https://mashable.com/article/elon-musk-x-rolls-out-country-of-origin-profiles-then-removes-it)
+- **X Adds Country Location Estimates to User Profiles**: [Link](https://x.com/i/trending/1992366340292886726)
+
+
 ### eve gilles miss univers (N/A, Sat, 22 Nov 2025 10:30:00 -0800)
 
 - **Miss Guadeloupe surclasse Miss France au classement final Miss Univers**: [Link](https://www.20minutes.fr/arts-stars/television/4187031-20251121-miss-univers-2025-miss-guadeloupe-finit-loin-devant-miss-france-classement-final)
