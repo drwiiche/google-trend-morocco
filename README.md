@@ -1,3 +1,10 @@
+### leeds united – aston villa (N/A, Sun, 23 Nov 2025 05:30:00 -0800)
+
+- **Leeds, Aston Villa starting lineups confirmed! Farke, Emery**: [Link](https://www.sportsmole.co.uk/football/leeds-united/news/leeds-aston-villa-starting-lineups-confirmed-farke-emery-make-key-decisions-for-elland-road-game_586279.html)
+- **Quick starters, midfield advantage and more: OPTA look at the numbers behind #LEEAVL**: [Link](https://onefootball.com/en/news/quick-starters-midfield-advantage-and-more-opta-look-at-the-numbers-behind-leeavl-41989718)
+- **Where to stream Leeds vs. Aston Villa Premier League match today for free**: [Link](https://www.mlive.com/tv/2025/11/where-to-stream-leeds-vs-aston-villa-premier-league-match-today-for-free.html)
+
+
 ### ريال أوفييدو ضد رايو فاليكانو (N/A, Sun, 23 Nov 2025 05:20:00 -0800)
 
 - **بعد رفض عرض رحيله.. تطور مفاجئ في قيمة لاعب ريال أوفييدو هيثم حسن**: [Link](https://www.msn.com/ar-eg/news/other/%D8%A8%D8%B9%D8%AF-%D8%B1%D9%81%D8%B6-%D8%B9%D8%B1%D8%B6-%D8%B1%D8%AD%D9%8A%D9%84%D9%87-%D8%AA%D8%B7%D9%88%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%81%D9%8A-%D9%82%D9%8A%D9%85%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A3%D9%88%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D9%87%D9%8A%D8%AB%D9%85-%D8%AD%D8%B3%D9%86/ar-AA1QS5Vc)
