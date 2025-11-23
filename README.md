@@ -1,3 +1,24 @@
+### النصر ضد الخليج (N/A, Sun, 23 Nov 2025 10:00:00 -0800)
+
+- **رحيل وشيك.. جيسوس يتمسك باستبعاد محترف النصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%AD%D9%8A%D9%84-%D9%88%D8%B4%D9%8A%D9%83--%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%85%D8%AD%D8%AA%D8%B1%D9%81-%D8%A7%D9%84%D9%86%D8%B5%D8%B1/blt3b7babc1b0c2fdb6)
+- **مباشر.. مباراة النصر ضد الخليج في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/23/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86)
+- **هدافو النصر في الدوري قبل موقعة الخليج**: [Link](https://hihi2.com/2025/11/23/p3525113.html)
+
+
+### wac (N/A, Sun, 23 Nov 2025 10:00:00 -0800)
+
+- **ACU Wildcats fall to Utah Valley in WAC semifinals, ending season with 13 wins**: [Link](https://ktxs.com/sports/college-sports/acu-wildcats-fall-to-utah-valley-in-wac-semifinals-ending-season-with-13-wins)
+- **UT Arlington volleyball to compete in Western Athletic Conference tournament**: [Link](https://www.theshorthorn.com/sports/volleyball/ut-arlington-volleyball-to-compete-in-western-athletic-conference-tournament/article_9491d272-d68f-4ea3-a6eb-db1057f0652b.html)
+- **Utah Valley Sweeps Abilene Christian to Reach WAC Championship**: [Link](https://gouvu.com/news/2025/11/21/womens-volleyball-utah-valley-sweeps-abilene-christian-to-reach-wac-championship.aspx)
+
+
+### al-nassr vs al-khaleej (N/A, Sun, 23 Nov 2025 09:50:00 -0800)
+
+- **Al-Nassr heavily favored over Al-Khaleej with 76% win probability, lead Saudi Pro League by 1 point**: [Link](https://www.red94.net/news/23421-al-nassr-heavily-favored-over-al-khaleej-with-76-win-probability-lead-saudi-pro/)
+- **Al-Nassr vs Al-Khaleej LIVE Score Updates in Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/23/1242218-al-nassr-vs-al-khaleej-live-score-saudi-pro-league.html)
+- **“Should never start”, “Goodbye” - Al-Nassr fans furious about 20-year-old star playing alongside Cristiano Ronaldo in line-up to face Al-Khaleej**: [Link](https://www.sportskeeda.com/football/news-should-never-start-goodbye-al-nassr-fans-furious-20-year-old-star-playing-alongside-cristiano-ronaldo-line-up-face-al-khaleej)
+
+
 ### خيتافي ضد أتلتيكو مدريد (N/A, Sun, 23 Nov 2025 09:20:00 -0800)
 
 - **نتيجة آخر مباراة بين أتلتيكو مدريد وخيتافي**: [Link](https://hihi2.com/2025/11/23/p3524994.html)
