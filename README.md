@@ -1,3 +1,24 @@
+### real madrid (N/A, Sun, 23 Nov 2025 10:30:00 -0800)
+
+- **“No es normal que el Barça haya pagado al vicepresidente del CTA, cualquiera que sea el motivo...”**: [Link](https://as.com/futbol/primera/no-es-normal-que-el-barca-haya-pagado-al-vicepresidente-del-cta-cualquiera-que-sea-el-motivo-f202511-n/)
+- **Iturralde González: "Florentino Pérez ha mentido"**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20251123/1002574586/iturralde-gonzalez-florentino-perez-mentido.html)
+- **Florentino Pérez, sin piedad contra UEFA, Tebas, el Barça y los árbitros: "No es normal..."**: [Link](https://www.marca.com/futbol/real-madrid/2025/11/23/florentino-perez-piedad-uefa-tebas-barca-arbitros-normal.html)
+
+
+### atletico madrid (N/A, Sun, 23 Nov 2025 10:20:00 -0800)
+
+- **Atlético Madrid pair to miss Getafe clash**: [Link](https://getfootballnewsspain.com/atletico-madrid-pair-to-miss-getafe-clash/)
+- **Getafe - Atletico live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/getafe-atletico/2025/11/23/01_0101_20251123_1450_175-live.html)
+- **Diego Simeone explains importance of competition ahead of Getafe trip**: [Link](https://sports.yahoo.com/article/diego-simeone-explains-importance-competition-192054637.html)
+
+
+### gta 6 (N/A, Sun, 23 Nov 2025 10:10:00 -0800)
+
+- **Own the Extravagant Residence of Your Dreams in GTA Online: A Safehouse in the Hills**: [Link](https://www.rockstargames.com/newswire/article/179a291k799984/own-the-extravagant-residence-of-your-dreams-in-gta-online-a-safehouse)
+- **GTA 5 Mansions DLC: How to start missions & earn GTA $2,000,000 off luxury listings; step-by-step guide to claim them**: [Link](https://www.indiatimes.com/trending/gta-5-mansions-dlc-how-to-start-missions-earn-gta-2000000-off-luxury-listings-step-by-step-guide-to-claim-them/articleshow/125362059.html)
+- **Rockstar Launch Special GTA Online Offer Ahead Of Mansions Update**: [Link](https://rockstarintel.com/rockstar-launch-special-gta-online-offer-ahead-of-mansions-update/)
+
+
 ### النصر ضد الخليج (N/A, Sun, 23 Nov 2025 10:00:00 -0800)
 
 - **رحيل وشيك.. جيسوس يتمسك باستبعاد محترف النصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%AD%D9%8A%D9%84-%D9%88%D8%B4%D9%8A%D9%83--%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%85%D8%AD%D8%AA%D8%B1%D9%81-%D8%A7%D9%84%D9%86%D8%B5%D8%B1/blt3b7babc1b0c2fdb6)
