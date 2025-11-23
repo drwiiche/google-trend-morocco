@@ -1,3 +1,10 @@
+### يوتيوب (N/A, Sun, 23 Nov 2025 01:50:00 -0800)
+
+- **تقرير: يوتيوب تختبر ميزة جديدة للرسائل المباشرة داخل التطبيق**: [Link](https://barlamane.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8-%D8%AA%D8%AE%D8%AA%D8%A8%D8%B1-%D9%85%D9%8A%D8%B2%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D8%B1%D8%B3%D8%A7%D8%A6%D9%84/)
+- **يوتيوب يختبر ميزة التراسل داخل المنصة**: [Link](https://technologianews.com/64160/%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1-%D9%85%D9%8A%D8%B2%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%B3%D9%84-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D8%A9/)
+- **بعدما توقفت منذ 2019.. يوتيوب يختبر ميزة الرسائل الخاصة داخل التطبيق**: [Link](https://www.sayidaty.net/%D9%84%D8%A7%D9%8A%D9%81-%D8%B3%D8%AA%D8%A7%D9%8A%D9%84/%D8%AA%D9%83%D9%86%D9%88%D9%84%D9%88%D8%AC%D9%8A%D8%A7/1824490-%D9%85%D9%8A%D8%B2%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D8%A7%D8%A6%D9%84-%D8%A7%D9%84%D8%AE%D8%A7%D8%B5%D8%A9-%D8%A8%D8%A7%D9%84%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8)
+
+
 ### formula 1 (N/A, Sat, 22 Nov 2025 20:30:00 -0800)
 
 - **Formula 1 News: Red Bull hit by fresh Verstappen engineer exists for 2026**: [Link](https://bvmsports.com/2025/11/23/formula-1-news-red-bull-hit-by-fresh-verstappen-engineer-exists-for-2026/)
