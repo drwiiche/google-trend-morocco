@@ -1,3 +1,10 @@
+### interpol marrakech (N/A, Sat, 22 Nov 2025 19:40:00 -0800)
+
+- **Ifrane, nouvelle capitale de la formation policière**: [Link](https://fr.hespress.com/450803-ifrane-nouvelle-capitale-de-la-formation-policiere.html)
+- **Sommet d’Interpol à Marrakech : la coopération sécuritaire entre le Nord et le Sud s'accentue**: [Link](https://www.lejdd.fr/International/sommet-dinterpol-a-marrakech-la-cooperation-securitaire-entre-le-nord-et-le-sud-saccentue-164298)
+- **Interpol à Marrakech: le président Ahmed Naser Al-Raisi présente les enjeux de la 93ᵉ Assemblée générale**: [Link](https://fr.le360.ma/politique/interpol-a-marrakech-le-president-ahmed-naser-al-raisi-presente-les-enjeux-de-la-93-assemblee_PFUYIQ4A5VGWVF3QMZKSCHDCUE/)
+
+
 ### paul pogba (N/A, Sat, 22 Nov 2025 23:50:00 -0800)
 
 - **Aït-Boudlal Shines Again as Rennes Defeat Monaco and Climb the Table**: [Link](https://mountakhab.net/en/ait-boudlal-brille-encore-rennes-simpose-et-monaco-senfonce/)
