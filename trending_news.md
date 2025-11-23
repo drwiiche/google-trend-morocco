@@ -1,3 +1,17 @@
+### ريال أوفييدو ضد رايو فاليكانو (N/A, Sun, 23 Nov 2025 05:20:00 -0800)
+
+- **بعد رفض عرض رحيله.. تطور مفاجئ في قيمة لاعب ريال أوفييدو هيثم حسن**: [Link](https://www.msn.com/ar-eg/news/other/%D8%A8%D8%B9%D8%AF-%D8%B1%D9%81%D8%B6-%D8%B9%D8%B1%D8%B6-%D8%B1%D8%AD%D9%8A%D9%84%D9%87-%D8%AA%D8%B7%D9%88%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%81%D9%8A-%D9%82%D9%8A%D9%85%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A3%D9%88%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D9%87%D9%8A%D8%AB%D9%85-%D8%AD%D8%B3%D9%86/ar-AA1QS5Vc)
+- **هيثم حسن في مهمة جديدة مع ريال أوفييدو بالدوري الإسباني**: [Link](https://www.cairo24.com/2322231)
+- **بث مباشر.. شاهد مباراة رايو فاليكانو وريال أوفييدو في الدوري الإسباني**: [Link](https://www.khaligyoun.com/605254/)
+
+
+### byd (N/A, Sun, 23 Nov 2025 05:20:00 -0800)
+
+- **2026 BYD Han L EV hits 701 km range, 2.7 s 0‑100 km/h from 27,400 USD**: [Link](https://carnewschina.com/2025/11/22/2026-byd-han-l-ev-hits-701-km-range-2-7-s-0%E2%80%91100-km-h-from-27400-usd/)
+- **BYD Atto 8 confirmed, find out when the SUV arrives.**: [Link](https://en.clickpetroleoegas.com.br/byd-atto-8-e-confirmado-saiba-quando-o-suv-chega-sima00/)
+- **2026 BYD Atto 8 (Sealion 8) launched with 3.9‑second 0–100 km/h, and 1,000 kW fast charging, from 30,250 USD in China**: [Link](https://carnewschina.com/2025/11/22/2026-byd-atto-8-sealion-8-launched-with-3-9%E2%80%91second-0-100-km-h-and-1000-kw-fast-charging-from-30250-usd-in-china/)
+
+
 ### real oviedo – rayo (N/A, Sun, 23 Nov 2025 04:10:00 -0800)
 
 - **Previa del Real Oviedo-Rayo: urge más que nunca la victoria azul**: [Link](https://www.lavozdeasturias.es/noticia/azulcarbayon/2025/11/23/previa-real-oviedo-rayo-urge-nunca-victoria-azul/00031763885964161106344.htm)
