@@ -1,3 +1,10 @@
+### real oviedo – rayo (N/A, Sun, 23 Nov 2025 04:10:00 -0800)
+
+- **Previa del Real Oviedo-Rayo: urge más que nunca la victoria azul**: [Link](https://www.lavozdeasturias.es/noticia/azulcarbayon/2025/11/23/previa-real-oviedo-rayo-urge-nunca-victoria-azul/00031763885964161106344.htm)
+- **Contra el martillo de Alemão, la magia de Santi Cazorla**: [Link](https://as.com/futbol/primera/contra-el-martillo-de-alemao-la-magia-de-santi-cazorla-f202511-n/)
+- **Carrión: “Tengo la confianza al 100%”**: [Link](https://www.marca.com/futbol/oviedo/2025/11/22/carrion-confianza-100.html)
+
+
 ### يوتيوب (N/A, Sun, 23 Nov 2025 01:50:00 -0800)
 
 - **تقرير: يوتيوب تختبر ميزة جديدة للرسائل المباشرة داخل التطبيق**: [Link](https://barlamane.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8-%D8%AA%D8%AE%D8%AA%D8%A8%D8%B1-%D9%85%D9%8A%D8%B2%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D8%B1%D8%B3%D8%A7%D8%A6%D9%84/)
