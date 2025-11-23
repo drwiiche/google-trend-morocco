@@ -1,3 +1,10 @@
+### eve gilles miss univers (N/A, Sat, 22 Nov 2025 10:30:00 -0800)
+
+- **Miss Guadeloupe surclasse Miss France au classement final Miss Univers**: [Link](https://www.20minutes.fr/arts-stars/television/4187031-20251121-miss-univers-2025-miss-guadeloupe-finit-loin-devant-miss-france-classement-final)
+- **Fátima Bosch – Miss Univers 2025 : Biographie et actualités**: [Link](https://www.gala.fr/stars_et_gotha/fatima-bosch-nbsp-miss-univers-2025)
+- **Miss Univers 2025 : Fatima Bosch du Mexique remporte le concours**: [Link](https://www.bbc.com/afrique/articles/c2lv1ny5qe5o)
+
+
 ### interpol marrakech (N/A, Sat, 22 Nov 2025 19:40:00 -0800)
 
 - **Ifrane, nouvelle capitale de la formation policière**: [Link](https://fr.hespress.com/450803-ifrane-nouvelle-capitale-de-la-formation-policiere.html)
