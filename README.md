@@ -1,3 +1,10 @@
+### yalla shoot live (N/A, Sun, 23 Nov 2025 12:30:00 -0800)
+
+- **شاهد نتيجة وملخص مباراة المغرب ضد البرازيل في ربع نهائي مونديال الناشئين**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AD%D8%AA17)
+- **سوء التنظيم وفوضى في المدرجات.. أحداث رافقت إقصاء المنتخب المغربي من كأس العالم لأقل من 17 سنة أمام البرازيل**: [Link](https://m.elbotola.com/article/2025-11-22-11-10-912.html)
+- **هزيمة أمام البرازيل .. فتيان المغرب يغادرون "المونديال" مرفوعي الرأس**: [Link](https://www.hespress.com/%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%81%D8%AA%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%B1%D8%AC-1659341.html)
+
+
 ### la liga classement (N/A, Sun, 23 Nov 2025 14:00:00 -0800)
 
 - **Getafe 0-1 Atlético de Madrid, La Liga : résumé du match (23/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/getafe-atletico-de-madrid-live/676839)
