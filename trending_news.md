@@ -1,3 +1,10 @@
+### inter miami (N/A, Sun, 23 Nov 2025 14:40:00 -0800)
+
+- **FC Cincinnati midfielder launches challenge ahead of clash against Lionel Messi's Inter Miami**: [Link](https://www.marca.com/en/football/mls/2025/11/23/6922e565e2704eba728b45a9.html)
+- **Inter Miami MLS Playoff Format: Key Change From First Round**: [Link](https://www.newsweek.com/sports/inter-miami-cincinnati-mls-cup-playoffs-format-key-change-11094943)
+- **'Not in my head to think about elimination' - Inter Miami's Javier Mascherano insists Lionel Messi's Herons are 'well-prepared' to avoid playoffs disappointment against FC Cincinnati**: [Link](https://www.goal.com/en-gb/lists/not-in-my-head-to-think-about-elimination-inter-miami-s-javier-mascherano-insists-lionel-messi-s-herons-are-well-prepared-to-avoid-playoffs-disappointment-against-fc-cincinnati/blt82d40aebb37c16e5)
+
+
 ### classement liga (N/A, Sun, 23 Nov 2025 13:50:00 -0800)
 
 - **Barça : Robert Lewandowski très ému après son but au Camp Nou**: [Link](https://www.footmercato.net/a968816568614932621-barca-robert-lewandowski-tres-emu-apres-son-but-au-camp-nou)
