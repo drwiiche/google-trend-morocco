@@ -1,3 +1,22 @@
+### lalla meryem (N/A, Sat, 22 Nov 2025 15:50:00 -0800)
+
+- **Le 1er Forum Africain du Parlement de l'Enfant adopte la "Déclaration de Rabat"**: [Link](https://fr.hespress.com/450876-le-1er-forum-africain-du-parlement-de-lenfant-adopte-la-declaration-de-rabat.html)
+- **S.A.R. la Princesse Lalla Meryem préside la cérémonie officielle de clôture du 1er Forum Africain du Parlement de l’Enfant**: [Link](https://lematin.ma/nation/cloture-du-1er-forum-africain-du-parlement-de-lenfant/314877)
+- **Ouverture à Rabat de la première édition du Forum Africain du Parlement de l’Enfant**: [Link](https://www.maroc.ma/fr/actualites/ouverture-rabat-de-la-premiere-edition-du-forum-africain-du-parlement-de-lenfant)
+
+
+### meteo paris (N/A, Sat, 22 Nov 2025 15:50:00 -0800)
+
+
+
+
+### la liga (N/A, Sat, 22 Nov 2025 09:20:00 -0800)
+
+- **Trent, Camavinga start in a 4-2-3-1 – How Real Madrid can line up against Elche**: [Link](https://madriduniversal.com/trent-camavinga-start-in-a-4-2-3-1-how-real-madrid-can-line-up-against-elche/)
+- **Elche president talks Mbappe, Vinicius, Florentino Perez, Laporta ahead of Real Madrid clash**: [Link](https://sports.yahoo.com/article/elche-president-talks-mbappe-vinicius-121200387.html)
+- **Tchouameni rejoins Real Madrid group in training**: [Link](https://www.managingmadrid.com/100836/tchouameni-real-madrid-2025-training)
+
+
 ### monaco fc (N/A, Sat, 22 Nov 2025 12:30:00 -0800)
 
 - **Rennes thrash 10-man Monaco to move into Ligue 1 top five as Pogba makes return**: [Link](https://www.flashscore.com/news/soccer-ligue-1-rennes-monaco-report-22-nov/SC7HCKcE/)
