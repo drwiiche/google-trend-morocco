@@ -1,3 +1,29 @@
+### auxerre – lyon (N/A, Sun, 23 Nov 2025 05:50:00 -0800)
+
+- **Miracle à l'OL, ce Brésilien croise les doigts**: [Link](https://www.foot01.com/ol/miracle-a-lol-ce-bresilien-croise-les-doigts)
+- **PRONOS PARIS RMC Le pari à l’extérieur du 23 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-23-novembre-ligue-1_AN-202511220329.html)
+- **DIRECT - Ligue 1 : opération maintien à lancer pour les Auxerrois, suivez AJA-Lyon en intégralité sur ICI Auxerre !**: [Link](https://www.francebleu.fr/sports/football/direct-ligue-1-operation-maintien-a-lancer-pour-les-auxerrois-suivez-aja-lyon-en-integralite-sur-ici-auxerre-7551257)
+
+
+### cremonese – roma (N/A, Sun, 23 Nov 2025 05:50:00 -0800)
+
+
+
+
+### jair bolsonaro (N/A, Sun, 23 Nov 2025 05:50:00 -0800)
+
+- **Bolsonaristas minimizam tornozeleira e focam em 'perseguição religiosa'**: [Link](https://noticias.uol.com.br/politica/ultimas-noticias/2025/11/23/bolsonaristas-focam-perseguicao-religiosa-prisao-jair-bolsonaro.htm)
+- **Bolsonaro passa por audiência de custódia neste domingo**: [Link](https://agenciabrasil.ebc.com.br/justica/noticia/2025-11/bolsonaro-passa-por-audiencia-de-custodia-neste-domingo)
+- **Prisão de Bolsonaro aumenta pressão sobre Messias no Senado**: [Link](https://www.metropoles.com/colunas/igor-gadelha/prisao-de-bolsonaro-aumenta-pressao-sobre-messias-no-senado)
+
+
+### hamid el mahdaoui (N/A, Sun, 23 Nov 2025 04:10:00 -0800)
+
+- **Moroccan Press Syndicate Calls for Accountability After Confidential Meeting Leaks**: [Link](https://barlamantoday.com/2025/11/23/moroccan-press-syndicate-calls-for-accountability-after-confidential-meeting-leaks/)
+- **Hamid El Mahdaoui's video release prompts PJD call for urgent investigation**: [Link](https://en.yabiladi.com/articles/details/181847/hamid-mahdaoui-s-video-release-prompts.html)
+- **Morocco press council leak prompts calls for judicial probe**: [Link](https://www.turkiyetoday.com/region/morocco-press-council-leak-sparks-calls-for-judicial-investigation-3210250)
+
+
 ### leeds united – aston villa (N/A, Sun, 23 Nov 2025 05:30:00 -0800)
 
 - **Leeds, Aston Villa starting lineups confirmed! Farke, Emery**: [Link](https://www.sportsmole.co.uk/football/leeds-united/news/leeds-aston-villa-starting-lineups-confirmed-farke-emery-make-key-decisions-for-elland-road-game_586279.html)
