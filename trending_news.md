@@ -1,3 +1,10 @@
+### formula 1 (N/A, Sat, 22 Nov 2025 20:30:00 -0800)
+
+- **Formula 1 News: Red Bull hit by fresh Verstappen engineer exists for 2026**: [Link](https://bvmsports.com/2025/11/23/formula-1-news-red-bull-hit-by-fresh-verstappen-engineer-exists-for-2026/)
+- **'Verstappen parts ways with three of his four engineers at Red Bull'**: [Link](https://www.msn.com/en-gb/sport/motorsports/verstappen-parts-ways-with-three-of-his-four-engineers-at-red-bull/ar-AA1QW2aR)
+- **Max Verstappen suffers major Red Bull blow with three key departures**: [Link](https://racingnews365.com/max-verstappen-suffers-major-red-bull-blow-with-three-key-departures)
+
+
 ### fabien mandon enfants (N/A, Sun, 23 Nov 2025 01:10:00 -0800)
 
 - **"Accepter de perdre ses enfants": Emmanuel Macron affirme que le chef d'état-major des armées a "toute sa confiance" après ses propos "sortis de leur contexte pour faire peur"**: [Link](https://www.bfmtv.com/politique/elysee/accepter-de-perdre-ses-enfants-emmanuel-macron-affirme-que-le-chef-d-etat-major-des-armees-a-toute-sa-confiance-apres-ses-propos-sortis-de-leur-contexte-pour-faire-peur_AN-202511220334.html)
