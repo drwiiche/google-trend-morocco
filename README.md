@@ -1,3 +1,24 @@
+### lille – paris fc (N/A, Sun, 23 Nov 2025 11:20:00 -0800)
+
+- **Olivier Giroud doit-il devenir remplaçant au LOSC ? - Ligue 1 - J13 - Lille-Paris FC**: [Link](https://www.sofoot.com/articles/ligue-1-lille-paris-fc-olivier-giroud-doit-il-devenir-remplacant-au-losc)
+- **PRONOS PARIS RMC Le pari du jour du 23 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-23-novembre-ligue-1_AN-202511220332.html)
+- **Lille - Paris FC : à quelle heure et sur quelle chaîne suivre le match ?**: [Link](https://www.lequipe.fr/Football/Actualites/Lille-paris-fc-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match/1610874)
+
+
+### الإنتر ضد ميلان (N/A, Sun, 23 Nov 2025 11:20:00 -0800)
+
+- **ديربي الغضب .. ما القنوات الناقلة لمباراة إنتر وميلان في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%BA%D8%B6%D8%A8-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt19ff40dace396d92)
+- **بطولة إيطاليا: مينيان يستعيد سحره قبل ديربي ميلانو**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251122-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%85%D9%8A%D9%86%D9%8A%D8%A7%D9%86-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B3%D8%AD%D8%B1%D9%87-%D9%82%D8%A8%D9%84-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%85%D9%8A%D9%84%D8%A7%D9%86%D9%88)
+- **أليغري: كنت قريبًا من تدريب إنتر وريال مدريد**: [Link](https://sport.lesiteinfo.com/monde/481661.html)
+
+
+### wydad ac – nairobi united (N/A, Sun, 23 Nov 2025 11:20:00 -0800)
+
+- **Coupe de la CAF: où et quand suivre Djoliba AC-OCS et Wydad-Nairobi United**: [Link](https://sport.le360.ma/football/coupe-caf/coupe-de-la-caf-ou-et-quand-suivre-djoliba-ac-ocs-et-wydad-nairobi-united_3M4BLCXVW5FNLKX5SAKD7RPCSM/)
+- **Coupes africaines : Les équipes marocaines en quête d’une bonne entame**: [Link](https://lematin.ma/sports/coupes-africaines-les-equipes-marocaines-en-quete-dune-bonne-entame/314874)
+- **Coupe de la Confédération : Les cinq entraîneurs à suivre**: [Link](https://www.cafonline.com/fr/coupe-de-la-confederation/news/coupe-de-la-confederation-les-cinq-entraineurs-a-suivre/)
+
+
 ### elche – real madrid (N/A, Sun, 23 Nov 2025 11:10:00 -0800)
 
 - **Alineación posible del Real Madrid hoy ante el Elche en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-ante-el-elche-en-laliga-ea-sports-f202511-n/)
