@@ -1,3 +1,17 @@
+### kooora tv (N/A, Sun, 23 Nov 2025 12:00:00 -0800)
+
+- **جدول مباريات اليوم الأحد 23 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-23-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltd4187f57b0db50e8)
+- **مباريات اليوم السبت 22 نوفمبر 2025.. مواجهات نارية في إنجلترا وإسبانيا**: [Link](https://www.arrajol.com/content/389894/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-22-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7)
+- **ابرز الاحداث الرياضية ليوم الاحد في 23-11-2025**: [Link](https://www.elsport.com/news/show/801353/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF-23-11-2025)
+
+
+### nairobi (N/A, Sun, 23 Nov 2025 11:50:00 -0800)
+
+- **High-rise living in Nairobi’s Pipeline estate is stressful – how men and women cope**: [Link](https://theconversation.com/high-rise-living-in-nairobis-pipeline-estate-is-stressful-how-men-and-women-cope-265499)
+- **Diana Wanza Clinches Double Victory at BingwaFest Nairobi**: [Link](https://www.athletics.co.ke/diana-wanza-clinches-double-victory-at-bingwafest-nairobi/)
+- **Nairobi's KICC to host crucial international cancer summit in 2027**: [Link](https://www.the-star.co.ke/counties/nairobi/2025-11-23-kicc-to-host-crucial-international-cancer-summit)
+
+
 ### lille – paris fc (N/A, Sun, 23 Nov 2025 11:20:00 -0800)
 
 - **Olivier Giroud doit-il devenir remplaçant au LOSC ? - Ligue 1 - J13 - Lille-Paris FC**: [Link](https://www.sofoot.com/articles/ligue-1-lille-paris-fc-olivier-giroud-doit-il-devenir-remplacant-au-losc)
