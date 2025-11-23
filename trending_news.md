@@ -1,3 +1,10 @@
+### real betis vs girona (N/A, Sun, 23 Nov 2025 07:40:00 -0800)
+
+- **Preview:Betis vs Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/betis-vs-girona-prediction-team-news-lineups_586194.html)
+- **Real Betis set for Isco boost vs Girona**: [Link](https://getfootballnewsspain.com/real-betis-set-for-isco-boost-vs-girona/)
+- **🚨 All set at La Cartuja: line-ups confirmed for Betis v Girona**: [Link](https://sports.yahoo.com/article/set-la-cartuja-line-ups-140800644.html)
+
+
 ### betis – girona (N/A, Sun, 23 Nov 2025 06:30:00 -0800)
 
 - **Apuestas y pronósticos Betis y Girona**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/22/apuestas-pronosticos-betis-girona.html)
