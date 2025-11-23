@@ -1,3 +1,10 @@
+### hibapress (N/A, Sat, 22 Nov 2025 23:10:00 -0800)
+
+- **فضيحة تسجيلات لجنة الأخلاقيات.. النقابة الوطنية للصحافة تدعو لفتح تحقيق وكشف المسؤوليات**: [Link](https://www.pjd.ma/222411-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84%D8%A7%D8%AA-%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%84%D8%A7%D9%82%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%A8.html)
+- **الصحافة المغربية في لحظة تحدٍّ.. مسؤولية المهنة وحماية الديمقراطية - هبة بريس**: [Link](https://ar.hibapress.com/details-678262.html)
+- **"لجنة تسيير الصحافة" تقاضي المهداوي**: [Link](https://www.hespress.com/%D9%84%D8%AC%D9%86%D8%A9-%D8%AA%D8%B3%D9%8A%D9%8A%D8%B1-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%AA%D9%82%D8%A7%D8%B6%D9%8A-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D8%A7%D9%88%D9%8A-1659525.html)
+
+
 ### f1 (N/A, Sat, 22 Nov 2025 20:00:00 -0800)
 
 - **F1 LIVE: Las Vegas Grand Prix 2025 times, radio & latest race updates**: [Link](https://www.bbc.com/sport/formula1/live/c5yk91ypz5lt)
