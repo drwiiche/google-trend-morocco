@@ -1,3 +1,31 @@
+### yalla shoot (N/A, Sun, 23 Nov 2025 12:20:00 -0800)
+
+- **مدرب الأهلي: "الطبيعي كان هو أن نفوز على شبيبة القبائل بـ 6 أو 7 أهداف.. أمامنا 6 أيام للتحضير لمباراة الجيش الملكي"**: [Link](https://m.elbotola.com/article/2025-11-22-20-42-967.html)
+- **فوز كبير للأهلي وتعادل مخيب للترجي بدوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/2025/11/22/%D9%81%D9%88%D8%B2-%D9%83%D8%A8%D9%8A%D8%B1-%D9%84%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%AE%D9%8A%D8%A8-%D9%84%D9%84%D8%AA%D8%B1%D8%AC%D9%8A)
+- **ما القنوات الناقلة لمباراة الأهلي وشبيبة القبائل في دوري أبطال إفريقيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D9%8A%D9%94%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte33bcd73a14354f0)
+
+
+### match real (N/A, Sun, 23 Nov 2025 12:20:00 -0800)
+
+- **Elche CF - Real Madrid en direct - La Liga : Football Scores & Résultats - 23/11/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-elche-cf-real-madrid_mtc1610504/live-commentary.shtml)
+- **La compo du Real Madrid avec une énorme surprise**: [Link](https://www.football.fr/real-madrid/la-compo-du-real-madrid-avec-une-enorme-surprise-785752.html)
+- **DIRECT. Elche-Real Madrid (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/elche-real-madrid-live/676834)
+
+
+### real (N/A, Sun, 23 Nov 2025 12:10:00 -0800)
+
+- **Real Madrid vs Elche – Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269171/real-madrid-vs-elche-preview-prediction/)
+- **Eder Sarabia Believes Elche Can “Make History” Against Real Madrid**: [Link](https://www.managingmadrid.com/scouting-real-madrid-competition/100866/eder-sarabia-believes-elche-can-make-history-against-real-madrid)
+- **Real Madrid missing six players for Elche contest - is**: [Link](https://www.sportsmole.co.uk/football/real-madrid/injury-news/news/real-madrid-missing-six-players-for-elche-contest-is-mbappe-available_586237.html)
+
+
+### ريال مدريد (N/A, Sun, 23 Nov 2025 11:50:00 -0800)
+
+- **بيريز: جيل برشلونة الذهبي تزامن مع دفع الأموال للحكام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2-%D8%AD%D9%82%D8%A8%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B2%D8%A7%D9%85%D9%86%D8%AA-%D9%85%D8%B9-%D8%AF%D9%81%D8%B9-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%88%D8%A7%D9%84-%D9%84%D9%86%D9%8A%D8%AC%D8%B1%D9%8A%D8%B1%D8%A7/blt1ee6f803c14d7322)
+- **رئيس ريال مدريد يهاجم التحكيم وبرشلونة ويويفا وفيفا**: [Link](https://www.aljazeera.net/sport/2025/11/23/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **بيريز يصفي حساباته مع "الليغا" وبرشلونة: "مستوى التحكيم الإسباني غير مقبول!".. ويؤكد متابعة "اليويفا" قضائيا**: [Link](https://m.elbotola.com/article/2025-11-23-17-38-531.html)
+
+
 ### kooora tv (N/A, Sun, 23 Nov 2025 12:00:00 -0800)
 
 - **جدول مباريات اليوم الأحد 23 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-23-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltd4187f57b0db50e8)
