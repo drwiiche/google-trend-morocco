@@ -1,3 +1,10 @@
+### paul pogba (N/A, Sat, 22 Nov 2025 23:50:00 -0800)
+
+- **Aït-Boudlal Shines Again as Rennes Defeat Monaco and Climb the Table**: [Link](https://mountakhab.net/en/ait-boudlal-brille-encore-rennes-simpose-et-monaco-senfonce/)
+- **Paris Saint-Germain Overcome Le Havre and Regain Top Spot**: [Link](https://www.beinsports.com/en-mena/football/ligue-1/articles-video/paris-saint-germain-overcome-le-havre-and-regain-top-spot-2025-11-22)
+- **Cheeky no-look pass, gorgeous long ball & more: what Paul Pogba showed in 10 minutes of his dream comeback to football**: [Link](https://tribuna.com/en/blogs/cheeky-nolook-pass-gorgeous-long-ball-more-what-paul-pogba-s/)
+
+
 ### hibapress (N/A, Sat, 22 Nov 2025 23:10:00 -0800)
 
 - **فضيحة تسجيلات لجنة الأخلاقيات.. النقابة الوطنية للصحافة تدعو لفتح تحقيق وكشف المسؤوليات**: [Link](https://www.pjd.ma/222411-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84%D8%A7%D8%AA-%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%84%D8%A7%D9%82%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%A8.html)
