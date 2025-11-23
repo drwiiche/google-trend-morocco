@@ -1,3 +1,10 @@
+### betis – girona (N/A, Sun, 23 Nov 2025 06:30:00 -0800)
+
+- **Apuestas y pronósticos Betis y Girona**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/11/22/apuestas-pronosticos-betis-girona.html)
+- **El Betis, a romper el ciclo de empates tras los parones**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/betis-romper-ciclo-empates-tras-parones-20251122124526-nts.html)
+- **La reaparición de Isco marca un partido trampa para el Betis**: [Link](https://www.canalsur.es/noticias/andalucia/sevilla/la-reaparicion-de-isco-marca-un-partido-trampa-para-el-betis/2219604.html)
+
+
 ### auxerre – lyon (N/A, Sun, 23 Nov 2025 05:50:00 -0800)
 
 - **Miracle à l'OL, ce Brésilien croise les doigts**: [Link](https://www.foot01.com/ol/miracle-a-lol-ce-bresilien-croise-les-doigts)
