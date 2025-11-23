@@ -1,3 +1,31 @@
+### ترتيب الدوري الاسباني (N/A, Sun, 23 Nov 2025 13:40:00 -0800)
+
+- **مفاجأة فليك وسلاح الهتافات.. لحظات لا تُنسى في افتتاح كامب نو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%81%D9%84%D9%8A%D9%83-%D9%88%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%87%D8%AA%D8%A7%D9%81%D8%A7%D8%AA--%D9%84%D8%AD%D8%B8%D8%A7%D8%AA-%D9%84%D8%A7-%D8%AA%D9%8F%D9%86%D8%B3%D9%89-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88/blt7236c89d722ff8ce)
+- **برشلونة يحتفل بعودته إلى ملعبه " سبوتيفاي كامب نو" برباعية في شباك أتليتيك بيلباو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%B9%D9%88%D8%AF%D8%AA%D9%87-%D8%A5%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8%D9%87-%D8%B3%D8%A8%D9%88%D8%AA%D9%8A%D9%81%D8%A7%D9%8A-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%A8%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B4%D8%A8%D8%A7%D9%83-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-2025-11-22)
+- **شاهد نتيجة وملخص مباراة برشلونة ضد بلباو في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/22/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88?update=8285659)
+
+
+### classement la liga (N/A, Sun, 23 Nov 2025 13:40:00 -0800)
+
+- **Getafe 0-1 Atlético de Madrid, La Liga : résumé du match (23/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/getafe-atletico-de-madrid-live/676839)
+- **Betis Séville 1-1 Gérone, La Liga : résumé du match (23/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/betis-seville-girona-live/676833)
+- **Cremonese 1-3 AS Rome, Serie A : résumé du match (23/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/cremonese-as-rome-live/672713)
+
+
+### laliga (N/A, Sun, 23 Nov 2025 13:40:00 -0800)
+
+- **Barcelona and Real Madrid relationship on the brink of total collapse following Perez's statements**: [Link](https://barcauniversal.com/barcelona-and-real-madrid-relationship-on-the-brink-of-total-collapse-following-perezs-statements/)
+- **Florentino Pérez vs UEFA: Why He Says Football Should Be Free for Fans**: [Link](https://www.dawan.africa/news/florentino-perez-vs-uefa-why-he-says-football-should-be-free-for-fans)
+- **Florentino Pérez Attacks La Liga And Calls For Free Broadcasting At Real Madrid AGM**: [Link](https://www.forbes.com/sites/samleveridge/2025/11/23/florentino-prez-attacks-la-liga-and-calls-for-free-broadcasting-at-real-madrid-agm/)
+
+
+### liga (N/A, Sun, 23 Nov 2025 13:40:00 -0800)
+
+- **Sports minister meets La Liga rep to advance football talent discovery**: [Link](https://egyptian-gazette.com/sports/sports-minister-meets-la-liga-rep-to-advance-football-talent-discovery/)
+- **Barcelona and Real Madrid relationship on the brink of total collapse following Perez's statements**: [Link](https://barcauniversal.com/barcelona-and-real-madrid-relationship-on-the-brink-of-total-collapse-following-perezs-statements/)
+- **Florentino Pérez vs UEFA: Why He Says Football Should Be Free for Fans**: [Link](https://www.dawan.africa/news/florentino-perez-vs-uefa-why-he-says-football-should-be-free-for-fans)
+
+
 ### lille fc (N/A, Sun, 23 Nov 2025 13:20:00 -0800)
 
 - **Where to Watch Lille OSC vs. Paris FC: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/11/22/where-to-watch-lille-osc-vs-paris-fc-tv-channel-start-time-and-live-stream/)
