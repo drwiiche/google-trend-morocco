@@ -1,3 +1,10 @@
+### man city (N/A, Sat, 22 Nov 2025 09:30:00 -0800)
+
+- **'We are used to it' - should Man City have been awarded a penalty?**: [Link](https://www.bbc.com/sport/football/articles/ce8617ryprro)
+- **'There is a long, long, long way to go', Guardiola warns Man City's title rivals**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/there-is-a-long-long-long-way-to-go-guardiola-warns-man-citys-title-rivals-2025-11-22)
+- **Newcastle assistant confronts Gianluigi Donnarumma in fiery Man City scenes**: [Link](https://www.express.co.uk/sport/football/2137433/newcastle-gianluigi-donnarumma-man-city)
+
+
 ### lalla meryem (N/A, Sat, 22 Nov 2025 15:50:00 -0800)
 
 - **Le 1er Forum Africain du Parlement de l'Enfant adopte la "Déclaration de Rabat"**: [Link](https://fr.hespress.com/450876-le-1er-forum-africain-du-parlement-de-lenfant-adopte-la-declaration-de-rabat.html)
