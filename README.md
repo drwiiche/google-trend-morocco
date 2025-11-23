@@ -1,3 +1,24 @@
+### آرسنال ضد توتنهام (N/A, Sun, 23 Nov 2025 08:00:00 -0800)
+
+- **رغم سطوة الماضي والحاضر.. الأرقام تبرر قلق أرتيتا قبل موقعة توتنهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%B3%D8%B7%D9%88%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A-%D9%88%D8%A7%D9%84%D8%AD%D8%A7%D8%B6%D8%B1--%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85-%D8%AA%D8%A8%D8%B1%D8%B1-%D9%82%D9%84%D9%82-%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85/bltd7fd886dfe0805a6)
+- **بطولة إنكلترا: أرسنال لتعزيز صدارته على وقع ضغوط سيتي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251121-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%84%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87-%D8%B9%D9%84%D9%89-%D9%88%D9%82%D8%B9-%D8%B6%D8%BA%D9%88%D8%B7-%D8%B3%D9%8A%D8%AA%D9%8A)
+- **موقف ريتشارلسون من مباراة ارسنال**: [Link](https://hihi2.com/2025/11/23/p3525527.html)
+
+
+### arsenal (N/A, Sun, 23 Nov 2025 08:00:00 -0800)
+
+- **Karim Adeyemi tells Dortmund he wants Arsenal as Man Utd dealt transfer blow**: [Link](https://www.mirror.co.uk/sport/football/transfer-news/karim-adeyemi-man-united-arsenal-36290019)
+- **Football gossip: Adeyemi, Sancho, Lewandowski, Mandas, Janelt, Abdullahi, Mokio**: [Link](https://www.bbc.com/sport/football/articles/cx2eg1zl54yo)
+- **Global Super Agent Offers Borussia Dortmund Star To Inter Milan & Manchester United**: [Link](https://sports.yahoo.com/article/global-super-agent-offers-borussia-101500867.html)
+
+
+### arsenal – tottenham (N/A, Sun, 23 Nov 2025 07:50:00 -0800)
+
+- **Arsenal vs Tottenham LIVE: Premier League score, stats & updates from North London Derby**: [Link](https://www.bbc.com/sport/football/live/c70j2y8pk44t)
+- **Preview: Arsenal v Tottenham | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-arsenal-v-tottenham-0)
+- **North London Derby: Arsenal Poised to Widen Title Lead as City, Liverpool Stumble**: [Link](https://www.dawan.africa/news/north-london-derby-arsenal-poised-to-widen-title-lead-as-city-liverpool-stumble)
+
+
 ### real betis vs girona (N/A, Sun, 23 Nov 2025 07:40:00 -0800)
 
 - **Preview:Betis vs Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/betis-vs-girona-prediction-team-news-lineups_586194.html)
