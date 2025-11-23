@@ -1,3 +1,17 @@
+### lille fc (N/A, Sun, 23 Nov 2025 13:20:00 -0800)
+
+- **Where to Watch Lille OSC vs. Paris FC: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/11/22/where-to-watch-lille-osc-vs-paris-fc-tv-channel-start-time-and-live-stream/)
+- **Lille vs Paris FC Prediction and Betting Tips | November 23rd 2025**: [Link](https://www.sportskeeda.com/football/lille-vs-paris-fc-prediction-betting-tips-november-23rd-2025)
+- **Lille-Paris FC: streaming, TV channel and compositions**: [Link](https://frenchfootballweekly.com/2025/11/23/lille-paris-fc-streaming-tv-channel-and-compositions/)
+
+
+### النصر (N/A, Sun, 23 Nov 2025 12:10:00 -0800)
+
+- **عانده قائم بونو.. رونالدو يكرر لدغة بوفون التاريخية بعد 2791 يوما**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A7%D9%86%D8%AF%D9%87-%D9%82%D8%A7%D9%8A%D9%94%D9%85-%D8%A8%D9%88%D9%86%D9%88--%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D9%83%D8%B1%D8%B1-%D9%84%D8%AF%D8%BA%D8%A9-%D8%A8%D9%88%D9%81%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-2791-%D9%8A%D9%88%D9%85%D8%A7/blta75b39ed9ba0ab8c)
+- **الصمت في حرم الجمال جمال.. تعليق ناري من طارق ذياب على هدف رونالدو (فيديو)**: [Link](https://www.eremnews.com/sports/df5vly9)
+- **المشهد سبورتس: إيبريتشي إيزي يسجل "هاتريك" تاريخيا.. وهدف مذهل لرونالدو مع النصر - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/864834920061439-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%A5%D9%8A%D8%A8%D8%B1%D9%8A%D8%AA%D8%B4%D9%8A-%D8%A5%D9%8A%D8%B2%D9%8A-%D9%8A%D8%B3%D8%AC%D9%84-%D9%87%D8%A7%D8%AA%D8%B1%D9%8A%D9%83-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A7-%D9%88%D9%87%D8%AF%D9%81-%D9%85%D8%B0%D9%87%D9%84-%D9%84%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%85%D8%B9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1/)
+
+
 ### ليل ضد باريس (N/A, Sun, 23 Nov 2025 12:50:00 -0800)
 
 - **إنريكي يرفض التشكيك في صفقات باريس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%83-%D9%81%D9%8A-%D8%B5%D9%81%D9%82%D8%A7%D8%AA-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3/blta315b3ef7cf624e2)
