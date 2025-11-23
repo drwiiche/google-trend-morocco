@@ -1,3 +1,10 @@
+### classement premier league (N/A, Sun, 23 Nov 2025 10:40:00 -0800)
+
+- **DIRECT. Arsenal-Tottenham (Premier League 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/arsenal-tottenham-live/673613)
+- **Arsenal - Tottenham en direct - Premier League : Football Scores & Résultats - 23/11/2025**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-arsenal-tottenham_mtc1602281/live-commentary.shtml)
+- **LIVE - Suivez le match Arsenal-Tottenham en direct**: [Link](https://www.football.fr/angleterre/live-suivez-le-match-arsenal-tottenham-en-direct-785700.html)
+
+
 ### real madrid (N/A, Sun, 23 Nov 2025 10:30:00 -0800)
 
 - **“No es normal que el Barça haya pagado al vicepresidente del CTA, cualquiera que sea el motivo...”**: [Link](https://as.com/futbol/primera/no-es-normal-que-el-barca-haya-pagado-al-vicepresidente-del-cta-cualquiera-que-sea-el-motivo-f202511-n/)
