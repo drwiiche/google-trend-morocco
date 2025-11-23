@@ -1,3 +1,10 @@
+### classement liga (N/A, Sun, 23 Nov 2025 13:50:00 -0800)
+
+- **Barça : Robert Lewandowski très ému après son but au Camp Nou**: [Link](https://www.footmercato.net/a968816568614932621-barca-robert-lewandowski-tres-emu-apres-son-but-au-camp-nou)
+- **Liga: le FC Barcelone surclasse l’Athletic Bilbao**: [Link](https://www.lesiteinfo.com/sport/660541-liga-le-fc-barcelone-surclasse-lathletic-bilbao.html)
+- **Vidéo. Le Camp Nou rouvre : les supporters du Barça de retour après deux ans**: [Link](https://fr.euronews.com/video/2025/11/23/le-camp-nou-rouvre-les-supporters-du-barca-de-retour-apres-deux-ans)
+
+
 ### yalla shoot live (N/A, Sun, 23 Nov 2025 12:30:00 -0800)
 
 - **شاهد نتيجة وملخص مباراة المغرب ضد البرازيل في ربع نهائي مونديال الناشئين**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AD%D8%AA17)
