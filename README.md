@@ -1,3 +1,24 @@
+### rizespor – fenerbahçe (N/A, Sun, 23 Nov 2025 08:40:00 -0800)
+
+- **Tedesco'dan Rizespor yorumu: "Bize karşı yüzde 200 ile oynayacaklar"**: [Link](https://www.ntvspor.net/futbol/tedescodan-rizespor-yorumu-bize-karsi-yuzde-200-ile-oynayacaklar-413283)
+- **Fenerbahçe’ye Rize’de coşkulu karşılama**: [Link](https://bolgeninsesigazetesi.com/fenerbahceye-rizede-coskulu-karsilama)
+- **Sadettin Saran: İnşallah sizden aldığımız moralle 3 puanla döneceğiz**: [Link](https://m.duzcetv.com/egitim-spor-haberleri/222685-sadettin-saran-insallah-sizden-aldigimiz-moralle-3-puanla-donecegiz)
+
+
+### getafe – atlético madrid (N/A, Sun, 23 Nov 2025 08:40:00 -0800)
+
+- **Getafe - Atlético, en directo hoy: jornada 13 de LaLiga EA Sport**: [Link](https://www.larazon.es/deportes/futbol/getafe-atletico-directo-hoy-jornada-13-laliga-sport_20251123691c4508360d0840bce675f9.html)
+- **La pesadilla ya no lo es tanto**: [Link](https://as.com/futbol/primera/la-pesadilla-ya-no-lo-es-tanto-f202511-n/)
+- **El Atlético de Madrid vuelve al lugar de su último derrumbe**: [Link](https://www.europapress.es/deportes/futbol-00162/noticia-atletico-madrid-vuelve-lugar-ultimo-derrumbe-20251122183140.html)
+
+
+### brest – metz (N/A, Sun, 23 Nov 2025 08:40:00 -0800)
+
+- **Brest-Metz en direct**: [Link](https://www.sports.fr/football/ligue-1/brest-metz-en-direct-969360.html)
+- **Stade Brestois : Un gros retour dans le groupe brestois pour le match face au FC Metz**: [Link](https://madeinfoot.ouest-france.fr/infos/article-stade-brestois-un-gros-retour-dans-le-groupe-brestois-pour-le-match-face-au-fc-metz-503787.html)
+- **Brest - Metz, la conférence de Stéphane Le Mignan**: [Link](https://www.fcmetz.com/2025-2026/actualites/equipe-pro/brest-metz-la-conference-de-stephane-le-mignan)
+
+
 ### آرسنال ضد توتنهام (N/A, Sun, 23 Nov 2025 08:00:00 -0800)
 
 - **رغم سطوة الماضي والحاضر.. الأرقام تبرر قلق أرتيتا قبل موقعة توتنهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%B3%D8%B7%D9%88%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A-%D9%88%D8%A7%D9%84%D8%AD%D8%A7%D8%B6%D8%B1--%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85-%D8%AA%D8%A8%D8%B1%D8%B1-%D9%82%D9%84%D9%82-%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85/bltd7fd886dfe0805a6)
