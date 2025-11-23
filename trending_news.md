@@ -1,3 +1,45 @@
+### la liga classement (N/A, Sun, 23 Nov 2025 14:00:00 -0800)
+
+- **Getafe 0-1 Atlético de Madrid, La Liga : résumé du match (23/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/getafe-atletico-de-madrid-live/676839)
+- **Betis Séville 1-1 Gérone, La Liga : résumé du match (23/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/betis-seville-girona-live/676833)
+- **Cremonese 1-3 AS Rome, Serie A : résumé du match (23/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/cremonese-as-rome-live/672713)
+
+
+### milan ac (N/A, Sun, 23 Nov 2025 14:00:00 -0800)
+
+- **Inter Milan - Milan AC en direct - Serie A : Football Scores & Résultats - 23/11/2025**: [Link](https://www.eurosport.fr/football/serie-a/2025-2026/live-inter-milan-milan-ac_mtc1598671/live.shtml)
+- **Inter - Milan AC : sur quelle chaîne et à quelle heure regarder le match de la Serie A en direct ?**: [Link](https://rmcsport.bfmtv.com/football/serie-a/inter-milan-ac-sur-quelle-chaine-et-a-quelle-heure-regarder-le-match-de-la-serie-a-en-direct_AN-202511230054.html)
+- **Un derby pour son retour comme titulaire : Marcus Thuram, l'attaquant de l'Inter Milan, entame son itinéraire vers l'Amérique**: [Link](https://www.lequipe.fr/Football/Article/Un-derby-pour-son-retour-comme-titulaire-marcus-thuram-l-attaquant-de-l-inter-milan-entame-son-itineraire-vers-l-amerique/1611592)
+
+
+### cincinnati – inter miami (N/A, Sun, 23 Nov 2025 13:50:00 -0800)
+
+- **FC Cincinnati midfielder launches challenge ahead of clash against Lionel Messi's Inter Miami**: [Link](https://www.marca.com/en/football/mls/2025/11/23/6922e565e2704eba728b45a9.html)
+- **Inter Miami MLS Playoff Format: Key Change From First Round**: [Link](https://www.newsweek.com/sports/inter-miami-cincinnati-mls-cup-playoffs-format-key-change-11094943)
+- **Messi on alert: Suarez and 11 others who could leave if Inter Miami lose to Cincinnati in MLS playoffs on S...**: [Link](https://worldsoccertalk.com/news/messi-on-alert-suarez-and-11-others-who-could-leave-if-inter-miami-lose-to-cincinnati-in-mls-playoffs-on-sunday/)
+
+
+### serie a (N/A, Sun, 23 Nov 2025 13:50:00 -0800)
+
+- **Pulisic-gol, Maignan eroe dei rigori: il Milan gode! Inter, due pali e la maledizione derby continua**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/23-11-2025/inter-milan-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Un derby per il primato cittadino e per puntare allo scudetto**: [Link](https://www.rainews.it/tgr/lombardia/articoli/2025/11/un-derby-per-il-primato-cittadino-e-per-puntare-allo-scudetto-6416327f-c932-4faf-956b-48f1665cc6c4.html)
+- **Sommer e Akanji hanno il gol sulla coscienza, Maignan eroe assoluto, Modric leader in tutto**: [Link](https://www.sportmediaset.mediaset.it/calcio/sommer-e-akanji-hanno-il-gol-sulla-coscienza-maignan-eroe-assoluto-modric-leader-in-tutto_106362804-202502k.shtml)
+
+
+### la liga (N/A, Sun, 23 Nov 2025 13:40:00 -0800)
+
+- **How to Watch Elche vs. Real Madrid on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-elche-vs-real-madrid-tv-live-stream-11-23-25)
+- **CONFIRMED lineups: Elche vs Real Madrid, 2025 La Liga**: [Link](https://www.managingmadrid.com/100886/elche-vs-real-madrid-2025-la-liga-live-online-stream)
+- **Elche 2-2 Real Madrid: Goals and highlights - LaLiga 25/26**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/elche-r-madrid/2025/11/23/01_0101_20251123_954_186-live.html)
+
+
+### لا ليغا (N/A, Sun, 23 Nov 2025 13:40:00 -0800)
+
+- **بيريز: جيل برشلونة الذهبي تزامن مع دفع الأموال للحكام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2-%D8%AD%D9%82%D8%A8%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B2%D8%A7%D9%85%D9%86%D8%AA-%D9%85%D8%B9-%D8%AF%D9%81%D8%B9-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%88%D8%A7%D9%84-%D9%84%D9%86%D9%8A%D8%AC%D8%B1%D9%8A%D8%B1%D8%A7/blt1ee6f803c14d7322)
+- **رئيس ريال مدريد يهاجم التحكيم وبرشلونة ويويفا وفيفا**: [Link](https://www.aljazeera.net/sport/2025/11/23/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **قدم.. رئيس ريال مدريد يهاجم الليغا و"يويفا" وبرشلونة**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D9%88%D9%8A%D9%88%D9%8A%D9%81%D8%A7-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/3751825)
+
+
 ### ترتيب الدوري الاسباني (N/A, Sun, 23 Nov 2025 13:40:00 -0800)
 
 - **مفاجأة فليك وسلاح الهتافات.. لحظات لا تُنسى في افتتاح كامب نو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%81%D9%84%D9%8A%D9%83-%D9%88%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%87%D8%AA%D8%A7%D9%81%D8%A7%D8%AA--%D9%84%D8%AD%D8%B8%D8%A7%D8%AA-%D9%84%D8%A7-%D8%AA%D9%8F%D9%86%D8%B3%D9%89-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88/blt7236c89d722ff8ce)
