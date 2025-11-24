@@ -1,3 +1,24 @@
+### brazil vs portugal u17 (N/A, Mon, 24 Nov 2025 09:40:00 -0800)
+
+- **Portugal vs Brazil: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/portugal-vs-brazil-how-watch-u-17-world-cup-preview)
+- **Qatar U17 WCup Soccer**: [Link](https://www.wvnews.com/sports/pro/qatar-u17-wcup-soccer/image_5594f8fc-8e47-5f44-9f7b-5f27d3c148b2.html)
+- **Where to Watch Portugal U17 vs Brazil U17 LIVE? Live Stream & TV Channels Info**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-portugal-u17-vs-brazil-u17-live-stream-tv-channels-24th-november-2025)
+
+
+### الدحيل ضد الاتحاد (N/A, Mon, 24 Nov 2025 09:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الدحيل والاتحاد في دوري أبطال آسيا للنخبة 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AF%D8%AD%D9%8A%D9%84-%D9%88%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt16af9bebd418c8c2)
+- **أهمية فوز الاتحاد على الدحيل**: [Link](https://hihi2.com/2025/11/24/p3526766.html)
+- **تشكيل الاتحاد المتوقع ضد الدحيل في دوري أبطال آسيا للنخبة**: [Link](https://arabic.sport360.com/article/football/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%8A%D9%88%D9%8A%D8%A9/1353270/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AF%D8%AD%D9%8A%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1)
+
+
+### mls (N/A, Sun, 23 Nov 2025 15:50:00 -0800)
+
+- **NYCFC pull off another playoff upset: "We can beat anybody"**: [Link](https://www.mlssoccer.com/playoffs/2025/news/nycfc-pull-off-another-playoff-upset-we-can-beat-anybody)
+- **Philadelphia Union 0-1 New York City: Supporters' Shield winners humbled as Moralez tees up Miami clash**: [Link](https://www.beinsports.com/en-au/football/mls/articles/philadelphia-union-0-1-new-york-city-supporters-shield-winners-humbled-as-moralez-tees-up-miami-clash-2025-11-24)
+- **USA's Matt Freese Helps NYCFC Set Up MLS East Final Showdown with Messi, Miami**: [Link](https://www.foxsports.com/stories/soccer/morales-freese-help-nycfc-beat-no-1-seed-union-10-advance-to-conference-finals)
+
+
 ### cincinnati – inter miami (N/A, Mon, 24 Nov 2025 09:20:00 -0800)
 
 - **Cincinnati 0-4 Inter Miami: Lionel Messi set MLS record in Eastern Conference semi-final**: [Link](https://www.bbc.com/sport/football/live/cjr0eg2wzg4t)
