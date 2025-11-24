@@ -1,3 +1,30 @@
+### manchester united – everton (N/A, Mon, 24 Nov 2025 11:10:00 -0800)
+
+- **Manchester United v Everton: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/nov/24/manchester-united-v-everton-premier-league-live)
+- **LIVE: Manchester United vs Everton – Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2025/11/24/live-manchester-united-vs-everton-english-premier-league?update=4128167)
+- **Pundit Predictions: Who starts v Everton?**: [Link](https://www.manutd.com/en/news/detail/predict-man-utd-v-everton-line-up-score-and-key-players-in-united-predictions-game)
+
+
+### espanyol – séville (N/A, Mon, 24 Nov 2025 11:10:00 -0800)
+
+- **Pronostic Espanyol - Séville, Liga**: [Link](https://www.sportytrader.com/pronostics/espanyol-seville-307190/)
+- **Espanyol – FC Séville : à quelle heure et sur quelle chaîne regarder le match de la 13e journée de Liga 2025-2026**: [Link](https://quelleheurequellechaine.fr/football/championnats-etrangers/liga/espanyol-fc-seville-diffusion-tv-13e-journee-liga-2025-2026/)
+
+
+### portugal u-17 – brésil u-17 (N/A, Mon, 24 Nov 2025 11:10:00 -0800)
+
+- **Mondial U17: Un plateau relevé aux demi-finales**: [Link](https://maroc-diplomatique.net/mondial-u17-un-plateau-releve-aux-demi-finales/)
+- **Coupe du Monde U17, Portugal – Brésil, sur quelle chaîne et à quelle heure voir le match ?**: [Link](https://trivela.fr/coupe-du-monde-u17-portugal-bresil-chaine/)
+- **Coupe du monde U17 2025 : le programme des demi-finales !**: [Link](https://foot-africa.com/actualites/coupe-du-monde-u17-2025-le-programme-des-demi-finales-973364/)
+
+
+### achraf hakimi real madrid (N/A, Mon, 24 Nov 2025 11:10:00 -0800)
+
+- **Camaño reabre la puerta al regreso de Hakimi al Madrid: En el fútbol no hay nada imposible**: [Link](https://es.rue20.com/2025/11/23/camano-reabre-la-puerta-al-regreso-de-hakimi-al-madrid-en-el-futbol-no-hay-nada-imposible/)
+- **El movimiento inesperado del Real Madrid por Achraf tras lo que dijo su agente**: [Link](https://defensacentral.com/fichajes/movimiento-inesperado-real-madrid-por-achraf-dijo-su-agente_325430_102.html)
+- **Hakimi, en la grada del Martínez Valero, dispara los rumores sobre su futuro**: [Link](https://www.planetarealmadrid.com/ultima-hora/hakimi-en-grada-martinez-valero-dispara-rumores-sobre-su-futuro_325569_102.html)
+
+
 ### al-ahli saudi – al sharjah (N/A, Mon, 24 Nov 2025 10:30:00 -0800)
 
 - **Al-Ahli vs Sharjah: Live streaming, TV channel, kick-off time & where to watch AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-sharjah-where-to-watch-202511)
