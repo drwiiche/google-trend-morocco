@@ -1,3 +1,17 @@
+### مان يونايتد ضد إيفرتون (N/A, Mon, 24 Nov 2025 11:20:00 -0800)
+
+- **مبويمو يسعى لكسر نحسه أمام إيفرتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%83%D8%B3%D8%B1-%D9%86%D8%AD%D8%B3%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86/bltbcdbb6e008c1bb1d)
+- **برونو فرنانديز يتصدر قائمة مميزة مع مانشستر يونايتد في الدوري**: [Link](https://hihi2.com/2025/11/23/p3525759.html)
+- **أخبار سيئة لمانشستر يونايتد... أموريم يعلن إصابة ماتيوس كونيا!**: [Link](https://foot-africa.com/ar/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B3%D9%8A%D8%A6%D8%A9-%D9%84%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A3%D9%85%D9%88%D8%B1%D9%8A%D9%85-%D9%8A%D8%B9%D9%84%D9%86-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A7%D8%AA%D9%8A%D9%88%D8%B3-%D9%83%D9%88%D9%86%D9%8A%D8%A7-973409/)
+
+
+### volcan hayli gubbi (N/A, Mon, 24 Nov 2025 11:20:00 -0800)
+
+- **Ethiopian volcano erupts for first time in 12,000 years**: [Link](https://www.theguardian.com/world/2025/nov/24/ethiopian-volcano-hayli-gubbi-erupts-first-time-12000-years)
+- **Volcanic eruption at Ethiopia’s Mount Erta Ale**: [Link](https://apanews.net/volcanic-eruption-at-ethiopias-at-mount-erta-ale/)
+- **India Regulator Orders Airlines To Avoid Altitudes, Regions Affected By Volcanic Ash, Conduct Post-Flight Checks If Operating Near Affected Regions, Government Order Shows**: [Link](https://www.tradingview.com/news/reuters.com,2025:newsml_FWN3X004I:0-india-regulator-orders-airlines-to-avoid-altitudes-regions-affected-by-volcanic-ash-conduct-post-flight-checks-if-operating-near-affected-regions-government-order-shows/)
+
+
 ### manchester united – everton (N/A, Mon, 24 Nov 2025 11:10:00 -0800)
 
 - **Manchester United v Everton: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/nov/24/manchester-united-v-everton-premier-league-live)
