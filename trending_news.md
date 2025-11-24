@@ -1,3 +1,9 @@
+### al-ahli saudi – al sharjah (N/A, Mon, 24 Nov 2025 10:30:00 -0800)
+
+- **Al-Ahli vs Sharjah: Live streaming, TV channel, kick-off time & where to watch AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-sharjah-where-to-watch-202511)
+- **Al Ahli vs Sharjah Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-sharjah-preview-202511)
+
+
 ### torino – côme (N/A, Mon, 24 Nov 2025 10:30:00 -0800)
 
 - **LIVE Torino-Como 1-1 Serie A 2025/2026: Torino Attento, Como Impreciso**: [Link](https://sport.virgilio.it/dirette/live/serie-a/24-11-2025/torino-como/2558625/)
