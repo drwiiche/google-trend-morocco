@@ -1,3 +1,10 @@
+### tatiana schlossberg (N/A, Mon, 24 Nov 2025 08:00:00 -0800)
+
+- **Tatiana Schlossberg, JFK’s granddaughter, reveals terminal cancer diagnosis**: [Link](https://www.cnn.com/2025/11/22/politics/tatiana-schlossberg-terminal-cancer-kennedy)
+- **Tatianna Schlossberg has acute myeloid leukemia. What is that?**: [Link](https://www.usatoday.com/story/life/health-wellness/2025/11/24/tatianna-schlossberg-acute-myeloid-leukemia/87445422007/)
+- **Taylor Swifts Ronan co-writer sends moving message to cancer warriors**: [Link](https://www.geo.tv/latest/635225-taylor-swifts-ronan-co-writer-sends-moving-message-to-cancer-warriors)
+
+
 ### fifa (N/A, Mon, 24 Nov 2025 05:10:00 -0800)
 
 - **FIFA’s Miami office helps bridge the gap between Swiss HQ and North American World Cup host cities**: [Link](https://www.sportsbusinessjournal.com/Articles/2025/11/24/inside-fifas-miami-office/)
