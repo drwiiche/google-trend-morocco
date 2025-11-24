@@ -1,3 +1,17 @@
+### الدوري الاسباني (N/A, Sun, 23 Nov 2025 14:00:00 -0800)
+
+- **مفاجأة فليك وسلاح الهتافات.. لحظات لا تُنسى في افتتاح كامب نو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%81%D9%84%D9%8A%D9%83-%D9%88%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%87%D8%AA%D8%A7%D9%81%D8%A7%D8%AA--%D9%84%D8%AD%D8%B8%D8%A7%D8%AA-%D9%84%D8%A7-%D8%AA%D9%8F%D9%86%D8%B3%D9%89-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88/blt7236c89d722ff8ce)
+- **برشلونة يحتفل بعودته إلى ملعبه " سبوتيفاي كامب نو" برباعية في شباك أتليتيك بيلباو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%B9%D9%88%D8%AF%D8%AA%D9%87-%D8%A5%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8%D9%87-%D8%B3%D8%A8%D9%88%D8%AA%D9%8A%D9%81%D8%A7%D9%8A-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%A8%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B4%D8%A8%D8%A7%D9%83-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-2025-11-22)
+- **شاهد نتيجة وملخص مباراة برشلونة ضد بلباو في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/22/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88?update=8285659)
+
+
+### rma (N/A, Sun, 23 Nov 2025 13:50:00 -0800)
+
+- **Waikato pig farm faces record $437k fine for discharging effluent to land, water**: [Link](https://www.rnz.co.nz/news/country/579848/waikato-pig-farm-faces-record-437k-fine-for-discharging-effluent-to-land-water)
+- **Piggery fined $430,000 for ‘appalling’ pollution**: [Link](https://www.farmersweekly.co.nz/news/piggery-fined-430000-for-appalling-pollution/)
+- **Pig farm hit with $430k fine for 'appalling' effluent pollution**: [Link](https://www.1news.co.nz/2025/11/24/pig-farm-hit-with-430k-fine-for-appalling-effluent-pollution/)
+
+
 ### بث مباشر (N/A, Sun, 23 Nov 2025 12:30:00 -0800)
 
 - **رابطة الأبطال الأفريقية: بيترو اتليتيكو يفوز على سيمبا**: [Link](https://www.mosaiquefm.net/ar/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/1482289/%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A8%D9%8A%D8%AA%D8%B1%D9%88-%D8%A7%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%B3%D9%8A%D9%85%D8%A8%D8%A7)
