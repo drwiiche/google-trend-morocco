@@ -1,3 +1,17 @@
+### fifa (N/A, Mon, 24 Nov 2025 05:10:00 -0800)
+
+- **FIFA’s Miami office helps bridge the gap between Swiss HQ and North American World Cup host cities**: [Link](https://www.sportsbusinessjournal.com/Articles/2025/11/24/inside-fifas-miami-office/)
+- **FIFA adds Ronaldo to World Cup promotional poster after controversy**: [Link](https://e.vnexpress.net/news/sports/football/fifa-adds-ronaldo-to-world-cup-promotional-poster-after-controversy-4975117.html)
+- **Jordan Ayew In, Cristiano Ronaldo Out as FIFA unveils 2026 World Cup Poster**: [Link](https://citisportsonline.com/2025/11/jordan-ayew-in-cristiano-ronaldo-out-as-fifa-unveils-2026-world-cup-poster/)
+
+
+### liga classement (N/A, Sun, 23 Nov 2025 14:00:00 -0800)
+
+- **Affluences et taux d’occupation de la 13e journée de Ligue 1**: [Link](https://sportune.20minutes.fr/affluences-et-taux-doccupation-de-la-13e-journee-de-ligue-1-385984)
+- **Toulouse, Brest, Nantes ... Les compos officielles du Multiplex !**: [Link](https://www.onzemondial.com/ligue-1/toulouse-brest-nantes-les-compos-officielles-du-multiplex-972508)
+- **SOUS LE SIGNE DES COUPES !**: [Link](https://mediterranee.fff.fr/simple/sous-le-signe-des-coupes-2/)
+
+
 ### elche cf (N/A, Sun, 23 Nov 2025 14:00:00 -0800)
 
 - **El Elche multiplica su valor de marca gracias a su capacidad para atraer eventos de interés mundial**: [Link](https://www.elchecf.es/noticias/el-elche-cf-cuadruplica-su-presencia-mediatica-y-refuerza-su-marca-en-mas-de-20-paises)
