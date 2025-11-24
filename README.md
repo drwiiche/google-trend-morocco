@@ -1,3 +1,10 @@
+### vinicius júnior (N/A, Mon, 24 Nov 2025 12:30:00 -0800)
+
+- **Liverpool, Manchester City e PSG: três destinos para Vinicius Jr seguir com protagonismo na Europa**: [Link](https://somosfanaticos.fans/br/futebol-europeu/real-madrid/liverpool-manchester-city-e-psg-tres-destinos-para-vinicius-jr-seguir-com-protagonismo-na-europa)
+- **'Bomba' em Espanha: Vinícius Júnior ameaça sair do Real Madrid**: [Link](https://sapo.pt/artigo/bomba-em-espanha-vinicius-junior-ameaca-sair-do-real-madrid-692489114e8ed9ee903952e8)
+- **Vini Jr. diz que não quer renovar e relação com Alonso continua «tensa»**: [Link](https://www.abola.pt/noticias/vini-jr-diz-que-nao-quer-renovar-e-relacao-com-alonso-continua-tensa-2025112417451691885)
+
+
 ### إسبانيول ضد إشبيلية (N/A, Mon, 24 Nov 2025 12:10:00 -0800)
 
 - **مدرب اسبانيول يهاجم رابطة الليغا بسبب مواعيد المباريات المتأخرة**: [Link](https://www.elsport.com/news/show/801530/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%85%D8%A8%D8%A7)
