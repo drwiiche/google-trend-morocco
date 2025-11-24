@@ -1,3 +1,10 @@
+### manchester united (N/A, Mon, 24 Nov 2025 12:20:00 -0800)
+
+- **Man Utd 0-1 Everton LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cp8e8d252n2t)
+- **Team news: United v Everton**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-everton-on-monday-24-november-2025)
+- **Preview: Monday Night Football from Old Trafford**: [Link](https://www.fotmob.com/sw/topnews/24068-preview-monday-night-football-from-old-trafford?utm_source=fotmob)
+
+
 ### man united vs everton (N/A, Mon, 24 Nov 2025 11:20:00 -0800)
 
 - **Man Utd vs Everton LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cp8e8d252n2t)
