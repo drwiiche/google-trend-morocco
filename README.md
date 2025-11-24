@@ -1,3 +1,10 @@
+### elche cf (N/A, Sun, 23 Nov 2025 14:00:00 -0800)
+
+- **El Elche multiplica su valor de marca gracias a su capacidad para atraer eventos de interés mundial**: [Link](https://www.elchecf.es/noticias/el-elche-cf-cuadruplica-su-presencia-mediatica-y-refuerza-su-marca-en-mas-de-20-paises)
+- **El Elche pone en juego su fortín del Martínez Valero**: [Link](https://www.flashscore.com.ar/noticias/futbol-laliga-ea-sports-el-elche-busca-dar-un-paso-mas-en-su-crecimiento/ENKwaTbB/)
+- **Elche CF capitaliza el ‘efecto Messi’: dispara su impacto mediático hasta más de veinte países**: [Link](https://palco23.mundodeportivo.com/clubes/elche-cf-capitaliza-el-efecto-messi-dispara-su-impacto-mediatico-y-llega-a-mas-de-veinte-paises)
+
+
 ### g (N/A, Mon, 24 Nov 2025 00:10:00 -0800)
 
 - **Lakers guard Bronny James heading to play for South Bay Lakers in the G League**: [Link](https://sports.yahoo.com/nba/breaking-news/article/lakers-guard-bronny-james-heading-to-play-for-south-bay-lakers-in-the-g-league-215433904.html)
