@@ -1,3 +1,10 @@
+### man united (N/A, Mon, 24 Nov 2025 12:40:00 -0800)
+
+- **Sources: Chelsea & Arsenal enter race for Premier League defender with serious intent**: [Link](https://www.caughtoffside.com/2025/11/23/sources-chelsea-arsenal-race-defender/)
+- **Football gossip: Murillo, Casemiro, Semenyo, Guehi, Konate, Upamecano, Chiesa, Osula, Neto, Schar**: [Link](https://www.bbc.com/sport/football/articles/c0kdjzn0vr7o)
+- **Enzo Maresca already has 'key' centre-back target, Chelsea's defensive record could get even better**: [Link](https://www.thechelseachronicle.com/transfer-news/enzo-maresca-already-has-key-centre-back-target-chelseas-defensive-record-could-get-even-better/)
+
+
 ### vinicius júnior (N/A, Mon, 24 Nov 2025 12:30:00 -0800)
 
 - **Liverpool, Manchester City e PSG: três destinos para Vinicius Jr seguir com protagonismo na Europa**: [Link](https://somosfanaticos.fans/br/futebol-europeu/real-madrid/liverpool-manchester-city-e-psg-tres-destinos-para-vinicius-jr-seguir-com-protagonismo-na-europa)
