@@ -1,3 +1,10 @@
+### cincinnati – inter miami (N/A, Mon, 24 Nov 2025 09:20:00 -0800)
+
+- **Cincinnati 0-4 Inter Miami: Lionel Messi set MLS record in Eastern Conference semi-final**: [Link](https://www.bbc.com/sport/football/live/cjr0eg2wzg4t)
+- **How & Where to Watch FC Cincinnati vs Inter Miami? Live Streaming & TV Channels for MLS Playoff Matches**: [Link](https://athlonsports.com/soccer/how-where-watch-cincinnati-inter-miami-live-streaming-tv-channels-mls-playoff)
+- **Supporters' Shield curse? Why Philadelphia Union faltered vs. NYCFC**: [Link](https://www.mlssoccer.com/video/supporters-shield-curse-why-philadelphia-union-faltered-vs-nycfc)
+
+
 ### tatiana schlossberg (N/A, Mon, 24 Nov 2025 08:00:00 -0800)
 
 - **Tatiana Schlossberg, JFK’s granddaughter, reveals terminal cancer diagnosis**: [Link](https://www.cnn.com/2025/11/22/politics/tatiana-schlossberg-terminal-cancer-kennedy)
