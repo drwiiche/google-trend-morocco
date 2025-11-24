@@ -1,3 +1,10 @@
+### g (N/A, Mon, 24 Nov 2025 00:10:00 -0800)
+
+- **Lakers guard Bronny James heading to play for South Bay Lakers in the G League**: [Link](https://sports.yahoo.com/nba/breaking-news/article/lakers-guard-bronny-james-heading-to-play-for-south-bay-lakers-in-the-g-league-215433904.html)
+- **How Did Bronny James Play in Lakers' G League? Top Highlights and Stats from Friday**: [Link](https://bleacherreport.com/articles/25302183-how-did-bronny-james-play-lakers-g-league-top-highlights-and-stats-friday)
+- **South Bay Lakers recap: Bronny James helps Lakers improve to 4-1**: [Link](https://lebronwire.usatoday.com/story/sports/nba/2025/11/21/south-bay-lakers-recap-bronny-james-helps-lakers-improve-to-4-1/87412968007/)
+
+
 ### الريال (N/A, Sun, 23 Nov 2025 13:30:00 -0800)
 
 - **إبراهم دياز يضاعف الجهد مع الريال**: [Link](https://www.hespress.com/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D8%B6%D8%A7%D8%B9%D9%81-%D8%A7%D9%84%D8%AC%D9%87%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-1660386.html)
