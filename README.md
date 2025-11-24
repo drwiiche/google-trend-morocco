@@ -1,3 +1,10 @@
+### بث مباشر (N/A, Sun, 23 Nov 2025 12:30:00 -0800)
+
+- **رابطة الأبطال الأفريقية: بيترو اتليتيكو يفوز على سيمبا**: [Link](https://www.mosaiquefm.net/ar/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/1482289/%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A8%D9%8A%D8%AA%D8%B1%D9%88-%D8%A7%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%B3%D9%8A%D9%85%D8%A8%D8%A7)
+- **فاز خارج ملعبه.. بترو أتلتيكو يخطف الأضواء في الجولة الأولى بدوري أبطال أفريقيا**: [Link](https://www.yallakora.com/african-champions-league/2965/news/531262/%D9%81%D8%A7%D8%B2-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%85%D9%84%D8%B9%D8%A8%D9%87-%D8%A8%D8%AA%D8%B1%D9%88-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D8%B6%D9%88%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **بث مباشر.. شاهد مباراة سيمبا وبيترو أتلتيكو في دوري أبطال أفريقيا**: [Link](https://www.khaligyoun.com/605257/)
+
+
 ### inter miami (N/A, Sun, 23 Nov 2025 14:40:00 -0800)
 
 - **FC Cincinnati midfielder launches challenge ahead of clash against Lionel Messi's Inter Miami**: [Link](https://www.marca.com/en/football/mls/2025/11/23/6922e565e2704eba728b45a9.html)
