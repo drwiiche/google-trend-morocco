@@ -1,3 +1,17 @@
+### torino – côme (N/A, Mon, 24 Nov 2025 10:30:00 -0800)
+
+- **LIVE Torino-Como 1-1 Serie A 2025/2026: Torino Attento, Como Impreciso**: [Link](https://sport.virgilio.it/dirette/live/serie-a/24-11-2025/torino-como/2558625/)
+- **La sfida all'Olimpico: una vittoria con il Toro per scavalcare la Juve al sesto posto**: [Link](https://www.quicomo.it/sport/calcio/serie-a-torino-como-probabili-formazioni-dove-vederla.html)
+- **Serie A, Torino-Como 1-1 dopo 45’: gol di Addai e pareggio di Vlasic su rigore 📌 Olimpico Grande Torino Tutti gli aggiornamenti in tempo reale qui 👉🏻 https://www.rainews.it/maratona/2025/11/calcio-serie-a-giornata-12-risultati-cronaca-aggiornamenti-diretta-**: [Link](https://www.facebook.com/RaiNews/photos/serie-a-torino-como-1-1-dopo-45-gol-di-addai-e-pareggio-di-vlasic-su-rigore-olim/1320468940119623/)
+
+
+### al-duhail – al ittihad (N/A, Mon, 24 Nov 2025 07:30:00 -0800)
+
+- **Al-Duhail vs Al-Ittihad LIVE Streaming, AFC Champions League Elite LIVE Telecast: When And Where To ..**: [Link](https://sports.ndtv.com/football/al-duhail-vs-al-ittihad-live-streaming-afc-champions-league-elite-live-telecast-when-and-where-to-watch-9693131)
+- **Al Duhail Eye Win Over Al Ittihad To Boost Knockout Hopes**: [Link](https://menafn.com/1110387663/Al-Duhail-Eye-Win-Over-Al-Ittihad-To-Boost-Knockout-Hopes)
+- **Doha gears up to host defending Saudi champions Al Ittihad in ACL Elite clash**: [Link](https://news.ssbcrack.com/doha-gears-up-to-host-defending-saudi-champions-al-ittihad-in-acl-elite-clash/)
+
+
 ### brazil vs portugal u17 (N/A, Mon, 24 Nov 2025 09:40:00 -0800)
 
 - **Portugal vs Brazil: How to Watch, U-17 World Cup Preview**: [Link](https://www.foxsports.com/stories/soccer/portugal-vs-brazil-how-watch-u-17-world-cup-preview)
