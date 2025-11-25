@@ -1,3 +1,10 @@
+### match barca (N/A, Tue, 25 Nov 2025 09:40:00 -0800)
+
+- **Barça will wear their 'Black Mamba' jersey at Stamford Bridge**: [Link](https://www.fcbarcelonanoticias.com/en/champions-league/barcelona-will-wear-their-black-mamba-jersey-at-stamford-bridge_315324_102.html)
+- **Predicted XI: Enzo Maresca to disappoint fans by picking legs over talent in solid Chelsea selection**: [Link](https://chelsea.news/2025/11/predicted-xi-chelsea-barcelona-enzo-maresca-fans-runners/)
+- **Dinner and reception in London ahead of Chelsea match**: [Link](https://www.fcbarcelona.com/en/news/4408633/dinner-and-reception-in-london-ahead-of-chelsea-match)
+
+
 ### galatasaray – union saint-gilloise (N/A, Tue, 25 Nov 2025 09:30:00 -0800)
 
 - **Preview:Galatasaray vs Union SG - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/champions-league/preview/galatasaray-vs-union-sg-prediction-team-news-lineups_586288.html)
