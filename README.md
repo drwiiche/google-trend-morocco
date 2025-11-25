@@ -1,3 +1,38 @@
+### marseille – newcastle (N/A, Tue, 25 Nov 2025 11:20:00 -0800)
+
+- **De Zerbi: Aguerd Unavailable for Newcastle Clash**: [Link](https://m.elbotola.com/en/article/2025-11-24-15-40-686.html)
+- **Olympique de Marseille vs Newcastle LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/25/1242455-marseille-vs-newcastle-live-score-champions-league.html)
+- **Marseille v Newcastle prediction, betting tips and bet builder - Can Magpies continue European win streak?**: [Link](https://talksport.com/betting/3764758/marseille-newcastle-prediction-betting-tips-bet-builder-free-bets/)
+
+
+### dortmund – villarreal (N/A, Tue, 25 Nov 2025 11:20:00 -0800)
+
+- **El Villarreal se pone el traje del drama en el Westfalenstadion**: [Link](https://elpais.com/deportes/futbol/2025-11-25/el-villarreal-se-pone-el-traje-del-drama-en-el-westfalenstadion.html)
+- **Dortmund: talento y descontrol**: [Link](https://as.com/opinion/dortmund-talento-y-descontrol-f202511-n/)
+- **Marcelino: “Estoy seguro de que ofreceremos un buen nivel competitivo ante el Dortmund”**: [Link](https://es-us.noticias.yahoo.com/deportes/marcelino-seguro-ofreceremos-nivel-competitivo-201923087.html)
+
+
+### bodø/glimt – juventus (N/A, Tue, 25 Nov 2025 11:20:00 -0800)
+
+- **Aspmyra Stadion: History, Atmosphere and the Iconic Home of Bodø/Glimt**: [Link](https://www.nss-sports.com/en/lifestyle/43451/bodo-glimt-stadium-champions-league)
+- **Low temperatures and synthetic pitch, Spalletti: Juventus at a disadvantage against Bodo/Glimt**: [Link](https://www.gazetaexpress.com/en/low-temperatures-and-synthetic-pitch-Spalletti-Juventus-at-a-disadvantage-against-Bodo-Glimt/)
+- **Champions League Challenges Await**: [Link](https://www.ilmessaggero.it/en/champions_league_challenges_await-9206691.html)
+
+
+### manchester city – leverkusen (N/A, Tue, 25 Nov 2025 11:10:00 -0800)
+
+- **‘Some at Man City will remember me but I don’t expect hero’s welcome’**: [Link](https://www.thetimes.com/sport/football/article/manchester-city-bayer-leverkusen-champions-league-x66kcqt29)
+- **Champions League - Man City: Pep Guardiola talks about a final against Bayer Leverkusen**: [Link](https://foot-africa.com/en/news/champions-league-man-city-pep-guardiola-talks-about-a-final-against-bayer-leverkusen-976157/)
+- **Erling Haaland dropped as Man City make TEN changes to team for Leverkusen clash - with fans calling out Pep Guardiola for naming 'Carabao Cup' lineup**: [Link](https://www.goal.com/en-sa/lists/erling-haaland-dropped-man-city-ten-changes-leverkusen-fans-pep-guardiola-carabao-cup-lineup-champions-league/bltb322809f98d31abe)
+
+
+### slavia prague – ath. bilbao (N/A, Tue, 25 Nov 2025 11:10:00 -0800)
+
+- **Preview:Slavia Prague vs Athletic Bilbao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/slavia-prague/champions-league/preview/slavia-prague-vs-athletic-bilbao-prediction-team-news-lineups_586280.html)
+- **Slavia Praha vs Athletic Club: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.coral.co.uk/en/news/match-preview-slavia-praha-athletic-club-uefa-champions-league-league-gameweek-5/)
+- **'If you don't want one cup, take two': Valverde admits he wanted to avoid Slavia Prague at all costs**: [Link](https://tribuna.com/en/news/2025-11-25-if-you-dont-want-one-cup-take-two-valverde-admits-he-wanted-to-avoid-slavia-prague-at-all/)
+
+
 ### chelsea – barcelone (N/A, Tue, 25 Nov 2025 11:10:00 -0800)
 
 - **Chelsea - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a344677133893304030-chelsea-fc-barcelone-les-compositions-officielles)
