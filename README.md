@@ -1,3 +1,24 @@
+### chelsea – barcelone (N/A, Tue, 25 Nov 2025 11:10:00 -0800)
+
+- **Chelsea - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a344677133893304030-chelsea-fc-barcelone-les-compositions-officielles)
+- **Gros coup dur confirmé pour le Barça**: [Link](https://www.sports.fr/football/ligue-des-champions-football/gros-coup-dur-confirme-pour-le-barca-969592.html)
+- **Chelsea - Barcelone : sur quelle chaîne et à quelle heure regarder le match de Ligue des Champions en direct ?**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/chelsea-barcelone-sur-quelle-chaine-et-a-quelle-heure-regarder-le-match-de-ligue-des-champions-en-direct_AN-202511250109.html)
+
+
+### تشيلسي ضد برشلونة (N/A, Tue, 25 Nov 2025 11:10:00 -0800)
+
+- **فليك: ما قاله ماريسكا عن جوارديولا طبيعي.. وأخطأنا مع رافينيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%85%D8%A7-%D9%82%D8%A7%D9%84%D9%87-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D8%B9%D9%86-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A--%D9%88%D8%A7%D9%94%D8%AE%D8%B7%D8%A7%D9%94%D9%86%D8%A7-%D9%85%D8%B9-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7/bltc3f9adde4d7e1582)
+- **موعد مباراة تشلسي ضد برشلونة بأبطال أوروبا والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/24/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **تشكيلة برشلونة الرسمية للقاء تشيلسي في دوري الأبطال**: [Link](https://hihi2.com/2025/11/25/p3528789.html)
+
+
+### rayane bounida (N/A, Tue, 25 Nov 2025 11:10:00 -0800)
+
+- **Slordig Ajax al na vijf minuten achter tegen Benfica • Straks Barcelona en Man City**: [Link](https://nos.nl/liveblog/2591988-slordig-ajax-al-na-vijf-minuten-achter-tegen-benfica-straks-barcelona-en-man-city)
+- **Live Champions League | Davy Klaassen mist opnieuw gigantische kans na heerlijke aanval Ajax**: [Link](https://sportnieuws.nl/voetbal/nieuws/live-champions-league-davy-klaassen-mist-opnieuw-gigantische-kans-na-heerlijke-aanval-ajax-2025112512080734907/)
+- **Grim legt tegenover Ziggo Sport uit waarom hij kiest voor, Bounida, Jaros en Itakura als 'zes'**: [Link](https://www.ajaxshowtime.com/hoofdnieuws/grim-legt-tegenover-ziggo-sport-uit-waarom-hij-kiest-voor-bounida-jaros-en-itakura-als-zes)
+
+
 ### barca (N/A, Tue, 25 Nov 2025 11:00:00 -0800)
 
 - **San Felice Circeo, barca a vela si spiaggia sull’arenile per il forte vento**: [Link](https://www.latinatoday.it/cronaca/barca-vela-spiaggiata-san-felice-circeo.html)
