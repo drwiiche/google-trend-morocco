@@ -1,3 +1,31 @@
+### flashscore (N/A, Tue, 25 Nov 2025 12:50:00 -0800)
+
+- **Arteta gives update on Havertz and Gyokeres | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-gives-update-havertz-and-gyokeres)
+- **Arsenal's Martin Ødegaard could return against Bayern Munich**: [Link](https://www.espn.com/soccer/story/_/id/47096834/arsenal-martin-odegaard-return-bayern-munich)
+- **Champions League news conferences: Arteta with Havertz & Gyokeres latest**: [Link](https://www.bbc.com/sport/football/live/c23e8gdg172t)
+
+
+### أولمبيك مارسيليا ضد نيوكاسل يونايتد (N/A, Tue, 25 Nov 2025 12:50:00 -0800)
+
+- **مارسيليا يسعى لقطع سلسلة سلبية من بوابة نيوكاسل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%82%D8%B7%D8%B9-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%B3%D9%84%D8%A8%D9%8A%D8%A9-%D9%85%D9%86-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84/blt6b43f550b077cd62)
+- **إحصائيات نصف ساعة من مباراة نيوكاسل ومارسيليا**: [Link](https://hihi2.com/2025/11/25/p3528936.html)
+- **«أبطال أوروبا»: هاو يطالب لاعبي نيوكاسل بالفوز على مرسيليا**: [Link](https://www.albiladpress.com/news/2025/6252/sport/958545.html)
+
+
+### dortmund (N/A, Tue, 25 Nov 2025 12:50:00 -0800)
+
+- **Die Fakten zum ersten Duell zwischen Borussia und Villarreal**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2025/11/24/Die-Fakten-zum-ersten-Duell-zwischen-Borussia-und-Villarreal.html)
+- **Niko Kovac vor Champions-League-Heimspiel mit klarem Ziel**: [Link](https://regionalupdate.de/2025/11/25/niko-kovac-vor-champions-league-heimspiel-mit-klarem-ziel/)
+- **"Wenn wir uns der Spitze nähern, sind wir dem Sieg näher": Marcelino analysiert die Herausforderung gegen Dortmund**: [Link](https://tribuna.com/de/news/2025-11-25-wenn-wir-uns-der-spitze-nahern-sind-wir-dem-sieg-naher-marcelino-analysiert-die-herausfor/)
+
+
+### bet 365 (N/A, Tue, 25 Nov 2025 12:50:00 -0800)
+
+- **Circa Sportsbook Review: Expert Rating for November 2025**: [Link](https://next.io/betting-sites-us/circa/)
+- **DraftKings moves toward December mobile sports betting launch in Missouri**: [Link](https://www.yogonet.com/international/news/2025/11/25/116466-draftkings-moves-toward-december-mobile-sports-betting-launch-in-missouri)
+- **FanDuel Missouri Promo Code: $400 In Bonus Bets Guaranteed With Early Sign Up**: [Link](https://ftw.usatoday.com/story/sports/2025/11/25/fanduel-missouri-promo-code-400-bonus-bets/87360121007/)
+
+
 ### بودو/ غليمت ضد يوفنتوس (N/A, Tue, 25 Nov 2025 12:40:00 -0800)
 
 - **سباليتي وكامبياسو يتفقان: الملعب والمناخ عيبان أمام بودو جليمت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A8%D8%A7%D9%84%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D9%84%D9%8A%D8%AF%D9%8A%D8%A9/blt91051f5fe8ec89c0)
