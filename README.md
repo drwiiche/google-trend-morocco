@@ -1,3 +1,10 @@
+### classement ligue des champions (N/A, Tue, 25 Nov 2025 13:40:00 -0800)
+
+- **Denis Zakaria, capitaine de Monaco, à la veille du match de Ligue des champions contre Paphos : « L'équipe était un peu décimée »**: [Link](https://www.lequipe.fr/Football/Actualites/Denis-zakaria-capitaine-de-monaco-a-la-veille-du-match-de-ligue-des-champions-contre-paphos-l-equipe-etait-un-peu-decimee/1612320)
+- **David Luiz sur le terrain, un ex-adjoint d'Emery sur le banc: à la découverte du Pafos FC, l’équipe surprise que va défier Monaco en Ligue des champions**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/david-luiz-sur-le-terrain-un-ex-adjoint-d-emery-sur-le-banc-a-la-decouverte-du-pafos-fc-l-equipe-surprise-que-va-defier-monaco-en-ligue-des-champions_AV-202511250926.html)
+- **Sébastien Pocognoli : "Une obligation d’avoir l’attitude et l’envie de gagner à Pafos"**: [Link](https://www.asmonaco.com/conference-de-presse-pafos-monaco-sebastien-pocognoli-une-obligation-davoir-lattitude-et-lenvie-de-gagner-a-pafos/)
+
+
 ### delap (N/A, Tue, 25 Nov 2025 13:30:00 -0800)
 
 - **Sources: Chelsea move ahead of Arsenal in transfer race by contacting attacker’s agent**: [Link](https://www.caughtoffside.com/2025/11/24/sources-chelsea-move-ahead-arsenal-transfer-race/)
