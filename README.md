@@ -1,3 +1,24 @@
+### chelsea - barcelona (N/A, Tue, 25 Nov 2025 11:30:00 -0800)
+
+- **Chelsea - Barcelona, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/chelsea-barcelona-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202511-d/)
+- **Araujo, titular ante el Chelsea**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251125/1002575925/araujo-titular-chelsea.html)
+- **Eric Garcia y diez más contra el Chelsea**: [Link](https://www.sport.es/es/noticias/barca/eric-garcia-diez-chelsea-124069635)
+
+
+### مان سيتي ضد ليفركوزن (N/A, Tue, 25 Nov 2025 11:30:00 -0800)
+
+- **ليفركوزن يبحث عن مفاجأة في مانشستر: هجوم متجدد وزخم تحت قيادة هيولماند**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%81%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1--%D9%87%D8%AC%D9%88%D9%85-%D9%85%D8%AA%D8%AC%D8%AF%D8%AF-%D9%88%D8%B2%D8%AE%D9%85-%D8%AA%D8%AD%D8%AA-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%87%D9%8A%D9%88%D9%84%D9%85%D8%A7%D9%86%D8%AF/blt780f8fe8259dbfef)
+- **غوارديولا عن مباراته المئة في دوري الأبطال كمدرب لسيتي: "أدرك أني أتقدم في العمر"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251124-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B9%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%83%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A3%D8%AF%D8%B1%D9%83-%D8%A3%D9%86%D9%8A-%D8%A3%D8%AA%D9%82%D8%AF%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D9%85%D8%B1)
+- **جوارديولا يسير على خطى فيرجسون وأرسين فينجر**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/1353508/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%B3%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%AE%D8%B7%D9%89-%D9%81%D9%8A%D8%B1%D8%AC%D8%B3%D9%88%D9%86-%D9%88%D8%A3%D8%B1%D8%B3%D9%8A%D9%86)
+
+
+### eau minérale naturelle (N/A, Tue, 25 Nov 2025 11:30:00 -0800)
+
+- **Rappel produit : ne consommez pas ces bouteilles d'eau minérale**: [Link](https://www.allodocteurs.fr/rappel-produit-ne-consommez-pas-ces-bouteilles-deau-minerale-45726.html)
+- **Peyrline, Rosalyne, Munzur, Mevlana : ces eaux minérales naturelles sont non conformes**: [Link](https://www.60millions-mag.com/2025/11/24/peyrline-rosalyne-munzur-mevlana-ces-eaux-minerales-naturelles-sont-non-conformes-25210)
+- **Rappel massif : ne consommez pas ces eaux minérales vendues chez Leclerc, Auchan, Intermarché...**: [Link](https://econostrum.info/rappel-massif-eaux-minerales-leclerc-auchan/)
+
+
 ### marseille – newcastle (N/A, Tue, 25 Nov 2025 11:20:00 -0800)
 
 - **De Zerbi: Aguerd Unavailable for Newcastle Clash**: [Link](https://m.elbotola.com/en/article/2025-11-24-15-40-686.html)
