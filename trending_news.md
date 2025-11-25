@@ -1,3 +1,10 @@
+### facebook (N/A, Tue, 25 Nov 2025 07:00:00 -0800)
+
+- **Facebook Will Now Let You Use a Nickname When Posting in Groups**: [Link](https://www.socialmediatoday.com/news/facebook-will-now-let-you-use-a-nickname-when-posting-in-groups/806330/)
+- **Facebook takes on Reddit with launch of nicknames for Facebook Groups**: [Link](https://techcrunch.com/2025/11/24/facebook-takes-on-reddit-with-launch-of-nicknames-for-facebook-groups/)
+- **Meta is bringing usernames to Facebook Groups**: [Link](https://www.engadget.com/social-media/meta-is-bringing-usernames-to-facebook-groups-231405698.html)
+
+
 ### طقس (N/A, Tue, 25 Nov 2025 08:10:00 -0800)
 
 - **موجة برد وأمطار متفرقة بعدة مناطق**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AC%D8%A9-%D8%A8%D8%B1%D8%AF-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%B1%D9%82%D8%A9-%D8%A8%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-1661148.html)
