@@ -1,3 +1,43 @@
+### bein sport (N/A, Tue, 25 Nov 2025 12:20:00 -0800)
+
+- **Where Can I Watch the Premier Padel Mexico Major Semifinals and Finals?**: [Link](https://www.beinsports.com/en-us/padel-padel/padel/articles/where-can-i-watch-the-premier-padel-mexico-major-semifinals-and-finals-2025-11-25)
+- **KRG orders internet providers to block unauthorized streaming of beIN Sports channels**: [Link](https://en.964media.com/42559//?amp=1)
+- **Kurdistan moves against illegal beIN SPORTS channels - Shafaq News**: [Link](https://shafaq.com/en/Kurdistan/Kurdistan-moves-against-illegal-beIN-SPORTS-channels)
+
+
+### bein sport live (N/A, Tue, 25 Nov 2025 12:20:00 -0800)
+
+
+
+
+### barcelona (N/A, Tue, 25 Nov 2025 12:10:00 -0800)
+
+- **Chelsea - Barcelona hoy, en directo: fase liga de Champions League, en vivo**: [Link](https://as.com/futbol/champions/chelsea-barcelona-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202511-d/)
+- **Las cuentas del Barça para entrar en el top-8 de la Champions**: [Link](https://www.sport.es/es/noticias/barca/cuentas-barcelona-entrar-top-8-champions-league-chelsea-stamford-bridge-124071302)
+- **Del Horno, Messi, Iniesta…: “teatro” (y fútbol) del bueno**: [Link](https://onefootball.com/pt-br/noticias/del-horno-messi-iniesta-teatro-y-futbol-del-bueno-42000123)
+
+
+### مباراة برشلونة (N/A, Tue, 25 Nov 2025 12:10:00 -0800)
+
+- **فليك على خط النار: هل يستطيع برشلونة الفوز بدفاع "انتحاري"؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/hansi-flick-under-fire-barcelona-high-defensive-line-criticism/blt30a29a515433f99d)
+- **«برشلونة يتألق».. 12 هدفاً تثبت التفوق الهجومي على ريال مدريد | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-11-24/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-12-%D9%87%D8%AF%D9%81%D8%A7%D9%8B-%D8%AA%D8%AB%D8%A8%D8%AA-%D8%A7%D9%84%D8%AA%D9%81%D9%88%D9%82-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85%D9%8A-%D8%B9%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-6191951/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+- **"برشلونة يشعل سباق الليجا".. انتفاضة نارية تقلب موازين الصدارة بعد تعثر ريال مدريد**: [Link](https://zahraa.mr/6109259/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B4%D8%B9%D9%84-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7-%D8%A7%D9%86%D8%AA%D9%81%D8%A7%D8%B6%D8%A9-%D9%86%D8%A7%D8%B1/)
+
+
+### دورتموند ضد فياريال (N/A, Tue, 25 Nov 2025 12:10:00 -0800)
+
+- **كوفاتش يحذر لاعبي دورتموند من الخصم الأوروبي ذي الوجهين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D9%81%D8%A7%D8%AA%D8%B4-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%AE%D8%B5%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%B0%D9%8A-%D8%A7%D9%84%D9%88%D8%AC%D9%87%D9%8A%D9%86/blt9c0ccf9ac0161739)
+- **شاهد الأن.. بث مباشر لمباراة بورسيا دوتموند وفياريال في دوري أبطال أوروبا**: [Link](https://www.khaligyoun.com/606509/)
+- **تشكيل مباراة بوروسيا دورتموند ضد فياريال فى دورى أبطال أوروبا**: [Link](https://www.youm7.com/story/2025/11/25/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%B6%D8%AF-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%81%D9%89-%D8%AF%D9%88%D8%B1%D9%89-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/7211590)
+
+
+### naples – fk qarabag (N/A, Tue, 25 Nov 2025 12:10:00 -0800)
+
+- **Champions League: Qarabağ vs Napoli**: [Link](https://anewz.tv/world/sport/15647/champions-league-qarabag-vs-napoli/news)
+- **A Cordial Pre-Match Gathering in Naples**: [Link](https://www.ilmattino.it/en/a_cordial_pre_match_gathering_in_naples-9210465.html?next_page=1)
+- **Napoli's Pivotal Encounter with Qarabag**: [Link](https://www.ilmessaggero.it/en/napoli_s_pivotal_encounter_with_qarabag-9208602.html)
+
+
 ### yalla shoot (N/A, Tue, 25 Nov 2025 12:00:00 -0800)
 
 - **شجار كين وجاي يفتح ملف اشتباكات الزملاء.. ريبيري وإبراهيموفيتش في صدارة القائمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/most-infamous-football-fights-team-mates/blt74d2c40256a02823)
