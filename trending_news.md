@@ -1,3 +1,17 @@
+### ajax – benfica (N/A, Tue, 25 Nov 2025 09:10:00 -0800)
+
+- **Preview:Ajax vs Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/champions-league/preview/ajax-vs-benfica-prediction-team-news-lineups_586309.html)
+- **Where to stream Ajax vs. Benfica Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-ajax-vs-benfica-champions-league-match-free-today.html)
+- **Ajax Amsterdam-Benfica, at what time and on which channel to watch the match?**: [Link](https://frenchfootballweekly.com/2025/11/25/ajax-amsterdam-benfica-at-what-time-and-on-which-channel-to-watch-the-match/)
+
+
+### ligue des champions (N/A, Tue, 25 Nov 2025 09:00:00 -0800)
+
+- **PSG, la haute trahison**: [Link](https://www.sports.fr/football/ligue-des-champions-football/psg-la-haute-trahison-969576.html)
+- **PSG-Tottenham : l’Angleterre se paie Thomas Frank, le coach qui a peur face aux cadors**: [Link](https://www.footmercato.net/a6407961261839316787-psg-tottenham-langleterre-se-paie-thomas-frank-le-coach-qui-a-peur-face-aux-cadors)
+- **"On est bien sûr plus attentif que d'habitude" : Luis Enrique évoque la gestion de la situation sanitaire d'Ousmane Dembélé**: [Link](https://tribuna.com/fr/news/2025-11-25-on-est-bien-sur-plus-attentif-que-dhabitude-luis-enrique-evoque-la-gestion-de-la-situatio/)
+
+
 ### hespress (N/A, Tue, 25 Nov 2025 08:10:00 -0800)
 
 
