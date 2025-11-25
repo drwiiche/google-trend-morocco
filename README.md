@@ -1,3 +1,10 @@
+### inter miami (N/A, Tue, 25 Nov 2025 06:50:00 -0800)
+
+- **Messi Surpasses Cristiano with 1,300 Career Contributions**: [Link](https://www.moroccoworldnews.com/2025/11/269362/messi-surpasses-cristiano-with-1300-career-contributions/)
+- **Inter Miami CF Advances to First Eastern Conference Final in Club History**: [Link](https://news.ssbcrack.com/inter-miami-cf-advances-to-first-eastern-conference-final-in-club-history/)
+- **Lionel Messi is carrying Inter Miami to the MLS Cup - can anyone stop them after their demolition of FC Cincinnati?**: [Link](https://www.goal.com/en/lists/fc-cincinnati-battering-showed-lionel-messi-is-in-a-world-class-mood-can-anyone-beat-inter-miami-from-here/bltee2214174e862d21)
+
+
 ### كأس العرب (N/A, Tue, 25 Nov 2025 05:20:00 -0800)
 
 - **مدربا الكويت وموريتانيا يؤكدان الجاهزية للقاء الفاصل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AF%D8%B1%D8%A8%D8%A7-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%88%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D9%88%D9%94%D9%83%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%81%D8%A7%D8%B5%D9%84/blt8f3e34041600a7d1)
