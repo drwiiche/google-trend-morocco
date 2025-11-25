@@ -1,3 +1,10 @@
+### ترتيب دوري ابطال اوروبا (N/A, Tue, 25 Nov 2025 13:20:00 -0800)
+
+- **جدول مباريات اليوم الأربعاء 26 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-26-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt91f89c08c240dfc9)
+- **أبرز المباريات العربية والعالمية اليوم الثلاثاء**: [Link](https://24.ae/article/931880/)
+- **مواعيد مباريات الثلاثاء 25 نوفمبر.. تصفيات كأس العرب وبيراميدز وأبطال أوروبا**: [Link](https://www.filgoal.com/articles/517827/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-25-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%88%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%88%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+
+
 ### marseille foot (N/A, Tue, 25 Nov 2025 14:00:00 -0800)
 
 - **DIRECT. OM-Newcastle (Ligue des champions 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/om-newcastle-live/685567)
