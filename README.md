@@ -1,3 +1,10 @@
+### طقس طنجة (N/A, Mon, 24 Nov 2025 21:10:00 -0800)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-45-1660288.html)
+- **أحوال الطقس المرتقبة اليوم الثلاثاء**: [Link](https://ar.le360.ma/societe/OU56T3CKGJBA3LIMUZZMWLNE74/)
+- **تحذير.. انخفاض في درجات الحرارة في المغرب خلال الأيام المقبلة - تليكسبريس**: [Link](https://telexpresse.com/438138.html)
+
+
 ### manchester united (N/A, Mon, 24 Nov 2025 12:20:00 -0800)
 
 - **Man Utd 0-1 Everton LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cp8e8d252n2t)
