@@ -1,3 +1,38 @@
+### yalla shoot (N/A, Tue, 25 Nov 2025 12:00:00 -0800)
+
+- **شجار كين وجاي يفتح ملف اشتباكات الزملاء.. ريبيري وإبراهيموفيتش في صدارة القائمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/most-infamous-football-fights-team-mates/blt74d2c40256a02823)
+- **حادثة غريبة في الدوري الإنجليزي.. طرد لاعب لاشتباكه مع زميله**: [Link](https://www.skynewsarabia.com/sport/1836091-%D8%AD%D8%A7%D8%AF%D8%AB%D8%A9-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%B7%D8%B1%D8%AF-%D9%84%D8%A7%D8%B9%D8%A8-%D9%84%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D9%87-%D8%B2%D9%85%D9%8A%D9%84%D9%87)
+- **قدم.. إيفرتون ينهي عقدة تفوق اليونايتد بملعب "أولد ترافورد"**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D9%8A%D9%86%D9%87%D9%8A-%D8%B9%D9%82%D8%AF%D8%A9-%D8%AA%D9%81%D9%88%D9%82-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A8%D9%85%D9%84%D8%B9%D8%A8-%D8%A3%D9%88%D9%84%D8%AF-%D8%AA%D8%B1%D8%A7%D9%81%D9%88%D8%B1%D8%AF/3753112)
+
+
+### yalla kora (N/A, Tue, 25 Nov 2025 12:00:00 -0800)
+
+- **بيان غاضب من الاتحاد السكندري بعد لقاء الجونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%A7%D9%86-%D8%BA%D8%A7%D8%B6%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D9%83%D9%86%D8%AF%D8%B1%D9%8A-%D8%A8%D8%B9%D8%AF-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D9%88%D9%86%D8%A9/blt955c0eab0bbc0db5)
+- **جائزة أفضل لاعب تذهب لمحمد علاء بعد تألقه أمام الاتحاد السكندري**: [Link](https://eahelqesa.com/18081/%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D8%A3%D9%81%D8%B6%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D8%AA%D8%B0%D9%87%D8%A8-%D9%84%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D9%84%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%A3%D9%84/)
+- **الجونة يتقدم والاتحاد يتراجع**: [Link](https://gate.ahram.org.eg/Massai/News/5340006.aspx)
+
+
+### chelsea (N/A, Tue, 25 Nov 2025 12:00:00 -0800)
+
+- **Champions League: Watch Frank news conference, before Chelsea, Man City & Newcastle play**: [Link](https://www.bbc.com/sport/football/live/c8jr13mzk8xt)
+- **Champions League Betting Tips: Macca's Best Bets for Tuesday's Matches**: [Link](https://www.oddschecker.com/tips/football/20251125-champions-league-betting-tips-maccas-best-bets-for-tuesdays-matches)
+- **How to stream Champions League free today: Matchday 5**: [Link](https://www.masslive.com/tv/2025/11/how-to-stream-champions-league-free-today-matchday-5.html)
+
+
+### kooora tv (N/A, Tue, 25 Nov 2025 12:00:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 25 نوفمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-25-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt39c818c1fe905902)
+- **أبرز المباريات العربية والعالمية اليوم الثلاثاء**: [Link](https://24.ae/article/931880/)
+- **مع انتصاف مرحلة الدوري.. كم نقطة تحتاجها أندية أبطال أوروبا لبلوغ الستة عشر**: [Link](https://www.eremnews.com/sports/5a22xsq)
+
+
+### man city vs leverkusen (N/A, Tue, 25 Nov 2025 11:50:00 -0800)
+
+- **Champions League: Guardiola verzichtet gegen Leverkusen auf Haaland**: [Link](https://www.sportschau.de/fussball/championsleague/guardiola-verzichtet-gegen-leverkusen-auf-haaland,spielbericht-manchester-city-bayer-leverkusen-100.html)
+- **"Der Trainer, der das Spiel massiv verändert hat"**: [Link](https://www.sport1.de/tv-video/video/-der-trainer-der-das-spiel-massiv-veraendert-hat-__3974334F-79C7-4B61-A174-3D8E8EC6C4D6)
+- **Kurzpässe vor #MCIB04: Erstes Duell gegen ungeschlagenes Man City**: [Link](https://www.bayer04.de/de-de/news/champions-league/kurzpaesse-vor-mcib04-erstes-duell-gegen-ungeschlagenes-man-city)
+
+
 ### chelsea - barcelona (N/A, Tue, 25 Nov 2025 11:30:00 -0800)
 
 - **Chelsea - Barcelona, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/chelsea-barcelona-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202511-d/)
