@@ -1,3 +1,10 @@
+### barca vs chelsea (N/A, Tue, 25 Nov 2025 07:20:00 -0800)
+
+- **Messi, Yamal, Hazard & Co - The most valuable Chelsea vs Barcelona combined XI in history**: [Link](https://www.transfermarkt.com/messi-yamal-hazard-amp-co-the-most-valuable-chelsea-vs-barcelona-combined-xi-in-history/view/news/463361)
+- **Predicted XI: Enzo Maresca to disappoint fans by picking legs over talent in solid Chelsea selection**: [Link](https://chelsea.news/2025/11/predicted-xi-chelsea-barcelona-enzo-maresca-fans-runners/)
+- **Big games for Spanish trio in Champions League**: [Link](http://www.china.org.cn/2025-11/25/content_118193663.shtml)
+
+
 ### inter miami (N/A, Tue, 25 Nov 2025 06:50:00 -0800)
 
 - **Messi Surpasses Cristiano with 1,300 Career Contributions**: [Link](https://www.moroccoworldnews.com/2025/11/269362/messi-surpasses-cristiano-with-1300-career-contributions/)
