@@ -1,3 +1,24 @@
+### طقس (N/A, Tue, 25 Nov 2025 08:10:00 -0800)
+
+- **موجة برد وأمطار متفرقة بعدة مناطق**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AC%D8%A9-%D8%A8%D8%B1%D8%AF-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%B1%D9%82%D8%A9-%D8%A8%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-1661148.html)
+- **تحذير.. انخفاض في درجات الحرارة في المغرب خلال الأيام المقبلة - تليكسبريس**: [Link](https://telexpresse.com/438138.html)
+- **طقس اليوم.. قطرات مطرية ورياح قوية مرتقبة ببعض المناطق - هبة بريس**: [Link](https://ar.hibapress.com/details-678467.html)
+
+
+### coupe arabe (N/A, Tue, 25 Nov 2025 07:50:00 -0800)
+
+- **Coupe Arabe Qatar 2025 : "Joha", la mascotte officielle inspirée d'un personnage emblématique, dévoilée**: [Link](https://m.elbotola.com/fr/article/2025-11-23-12-29-862.html)
+- **KUNA : Le Koweït se qualifie pour la phase finale de la Coupe arabe en battant la Mauritanie - Sport - 25/11/2025**: [Link](https://www.kuna.net.kw/ArticleDetails.aspx?id=3262044&language=fr)
+- **Coupe arabe de la FIFA 2025 : le programme TV des barrages**: [Link](https://foot-africa.com/actualites/coupe-arabe-de-la-fifa-2025-le-programme-tv-des-barrages-975935/)
+
+
+### كاس العرب (N/A, Tue, 25 Nov 2025 05:20:00 -0800)
+
+- **الكويت تجتاز موريتانيا.. وتضرب موعدا مع مصر في انطلاقة كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%AA%D8%AC%D8%AA%D8%A7%D8%B2-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7--%D9%88%D8%AA%D8%B6%D8%B1%D8%A8-%D9%85%D9%88%D8%B9%D8%AF%D8%A7-%D9%85%D8%B9-%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blt69969c746e25d3b6)
+- **منتخب الكويت يتأهل رسميا لكأس العرب**: [Link](https://www.hesport.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-414661.html)
+- **اهداف مباراة الكويت وموريتانيا (2-0) كأس العرب**: [Link](https://www.btolat.com/video/89232)
+
+
 ### barca vs chelsea (N/A, Tue, 25 Nov 2025 07:20:00 -0800)
 
 - **Messi, Yamal, Hazard & Co - The most valuable Chelsea vs Barcelona combined XI in history**: [Link](https://www.transfermarkt.com/messi-yamal-hazard-amp-co-the-most-valuable-chelsea-vs-barcelona-combined-xi-in-history/view/news/463361)
