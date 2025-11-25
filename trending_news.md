@@ -1,3 +1,17 @@
+### galatasaray – union saint-gilloise (N/A, Tue, 25 Nov 2025 09:30:00 -0800)
+
+- **Preview:Galatasaray vs Union SG - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/galatasaray/champions-league/preview/galatasaray-vs-union-sg-prediction-team-news-lineups_586288.html)
+- **Galatasaray Targets Club History Against Union SG Despite Osimhen Absence**: [Link](https://turkish-football.com/galatasaray-targets-club-history-against-union-sg-despite-osimhen-absence/)
+- **Galatasaray vs Union Saint-Gilloise LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/25/1242436-galatasaray-vs-union-sg-live-score-champions-league.html)
+
+
+### uefa champions league (N/A, Tue, 25 Nov 2025 08:00:00 -0800)
+
+- **De Zerbi: Aguerd Unavailable for Newcastle Clash**: [Link](https://m.elbotola.com/en/article/2025-11-24-15-40-686.html)
+- **Howe drops big rotation hint and reveals two late calls ahead of Marseille clash**: [Link](https://www.nufcblog.co.uk/2025/11/25/howe-drops-big-rotation-hint-and-reveals-two-late-calls-ahead-of-marseille-clash/)
+- **Olympique de Marseille vs Newcastle LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/25/1242455-marseille-vs-newcastle-live-score-champions-league.html)
+
+
 ### ajax – benfica (N/A, Tue, 25 Nov 2025 09:10:00 -0800)
 
 - **Preview:Ajax vs Benfica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ajax/champions-league/preview/ajax-vs-benfica-prediction-team-news-lineups_586309.html)
