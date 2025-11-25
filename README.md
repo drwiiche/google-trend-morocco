@@ -1,3 +1,17 @@
+### الهلال ضد الشرطة (N/A, Tue, 25 Nov 2025 10:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الهلال والشرطة في دوري أبطال آسيا النخبة 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1e1399fa3051cacc)
+- **جماهير الهلال تستعد لتقديم عروض مذهلة أمام الشرطة**: [Link](https://hihi2.com/2025/11/25/p3528347.html)
+- **بونو يسعى لقيادة الهلال لتحقيق العلامة الكاملة في كأس آسيا للنخبة**: [Link](https://ar.sport.le360.ma/football/autres-championnats/X2424RIJVVHA7NJ4HI6ZFTMDWU/)
+
+
+### benfica (N/A, Tue, 25 Nov 2025 10:40:00 -0800)
+
+- **Ajax–Benfica: Vertonghen vê “pressão prejudicial” e jogo de tudo ou nada**: [Link](https://onefootball.com/en/news/ajaxbenfica-vertonghen-ve-pressao-prejudicial-e-jogo-de-tudo-ou-nada-42000809)
+- **AO VIVO: António Silva volta a um onze de miolo recheado em Amesterdão**: [Link](https://www.flashscore.pt/noticias/futebol-liga-dos-campeoes-ao-vivo-antonio-silva-volta-a-um-onze-de-miolo-recheado-em-amesterdao/4pk9atGU/)
+- **VÍDEO: Dahl assina golaço e Benfica já vence em Amesterdão**: [Link](https://tvi.iol.pt/noticias/liga-campeoes/champions/video-dahl-assina-golaco-e-benfica-ja-vence-em-amesterdao)
+
+
 ### دوري الأبطال (N/A, Tue, 25 Nov 2025 10:20:00 -0800)
 
 - **فليك: ما قاله ماريسكا عن جوارديولا طبيعي.. وأخطأنا مع رافينيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%85%D8%A7-%D9%82%D8%A7%D9%84%D9%87-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D8%B9%D9%86-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A--%D9%88%D8%A7%D9%94%D8%AE%D8%B7%D8%A7%D9%94%D9%86%D8%A7-%D9%85%D8%B9-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7/bltc3f9adde4d7e1582)
