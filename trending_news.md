@@ -1,3 +1,10 @@
+### marseille foot (N/A, Tue, 25 Nov 2025 14:00:00 -0800)
+
+- **DIRECT. OM-Newcastle (Ligue des champions 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/om-newcastle-live/685567)
+- **EN DIRECT | OM-Newcastle : mené à la pause, Marseille renverse les Magpies dès le retour des vestiaires**: [Link](https://www.lemonde.fr/sport/live/2025/11/25/en-direct-om-newcastle-suivez-la-5-journee-de-la-ligue-des-champions_6654804_3242.html)
+- **OM-Newcastle : Roberto De Zerbi explique le choix Darryl Bakola**: [Link](https://www.footmercato.net/a7061145643822360-om-newcastle-roberto-de-zerbi-explique-le-choix-darryl-bakola)
+
+
 ### classement ligue des champions (N/A, Tue, 25 Nov 2025 13:40:00 -0800)
 
 - **Denis Zakaria, capitaine de Monaco, à la veille du match de Ligue des champions contre Paphos : « L'équipe était un peu décimée »**: [Link](https://www.lequipe.fr/Football/Actualites/Denis-zakaria-capitaine-de-monaco-a-la-veille-du-match-de-ligue-des-champions-contre-paphos-l-equipe-etait-un-peu-decimee/1612320)
