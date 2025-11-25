@@ -1,3 +1,17 @@
+### delap (N/A, Tue, 25 Nov 2025 13:30:00 -0800)
+
+- **Sources: Chelsea move ahead of Arsenal in transfer race by contacting attacker’s agent**: [Link](https://www.caughtoffside.com/2025/11/24/sources-chelsea-move-ahead-arsenal-transfer-race/)
+- **Chelsea & Arsenal 'set sights' on wonderkid as Liverpool eye £175m Salah replacement**: [Link](https://www.3addedminutes.com/sport/football/chelsea/chelsea-arsenal-liverpool-olise-transfer-rumours-5415658)
+- **Chelsea Begin Push to Seal January Signing From Marseille: Reports**: [Link](https://chelseafconline.com/2025/11/chelsea-begin-push-to-seal-january-signing-from-marseille-reports/)
+
+
+### om (N/A, Tue, 25 Nov 2025 13:30:00 -0800)
+
+- **Jermak is na Zelensky machtigste man van Oekraïne, maar de roep om zijn vertrek groeit**: [Link](https://www.trouw.nl/politiek/jermak-is-na-zelensky-machtigste-man-van-oekraine-maar-de-roep-om-zijn-vertrek-groeit~b1befd90/)
+- **Circus Mourinho: ’Geen idee waarom ik altijd van Ajax win’**: [Link](https://www.telegraaf.nl/sport/voetbal/circus-mourinho-geen-idee-waarom-ik-altijd-van-ajax-win/107398381.html)
+- **Mourinho uit zijn 'liefde' voor Ajax: 'Veel respect, als kleine jongen al'**: [Link](https://www.voetbalprimeur.nl/videos/1715169/mourinho-uit-zijn-liefde-voor-ajax-veel-respect-als-kleine-jongen-al.html)
+
+
 ### estevao (N/A, Tue, 25 Nov 2025 13:20:00 -0800)
 
 - **Manchester City x Bayer e Chelsea x Barcelona: Destaques da Champions League hoje (25)**: [Link](https://somosfanaticos.fans/br/champions-league/manchester-city-x-bayer-e-chelsea-x-barcelona-destaques-da-champions-league-hoje-25)
