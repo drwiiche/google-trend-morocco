@@ -1,3 +1,24 @@
+### barca (N/A, Tue, 25 Nov 2025 11:00:00 -0800)
+
+- **San Felice Circeo, barca a vela si spiaggia sull’arenile per il forte vento**: [Link](https://www.latinatoday.it/cronaca/barca-vela-spiaggiata-san-felice-circeo.html)
+- **Vela francese urta la barra sabbiosa e finisce spiaggiata al Circeo**: [Link](https://www.latinaoggi.eu/news/home/313137/vela-francese-urta-la-barra-sabbiosa-e-finisce-spiaggiata-al-circeo.html)
+- **Mare mosso, barca a vela rimane incagliata all’ingresso del porto**: [Link](https://laziotv.it/cronaca/mare-mosso-barca-a-vela-rimane-incagliata-allingresso-del-porto/)
+
+
+### ajax (N/A, Tue, 25 Nov 2025 11:00:00 -0800)
+
+- **Waarom Ajax in het Champions League-duel met Benfica in het derde tenue speelt**: [Link](https://www.vi.nl/nieuws/waarom-ajax-in-het-champions-league-duel-met-benfica-in-het-derde-tenue-speelt)
+- **Live Champions League | Davy Klaassen mist opnieuw gigantische kans na heerlijke aanval Ajax**: [Link](https://sportnieuws.nl/voetbal/nieuws/live-champions-league-davy-klaassen-mist-opnieuw-gigantische-kans-na-heerlijke-aanval-ajax-2025112512080734907/)
+- **Grim legt tegenover Ziggo Sport uit waarom hij kiest voor, Bounida, Jaros en Itakura als 'zes'**: [Link](https://www.ajaxshowtime.com/hoofdnieuws/grim-legt-tegenover-ziggo-sport-uit-waarom-hij-kiest-voor-bounida-jaros-en-itakura-als-zes)
+
+
+### barça (N/A, Tue, 25 Nov 2025 10:50:00 -0800)
+
+- **Chelsea - Barcelona, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/chelsea-barcelona-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202511-d/)
+- **Araujo, titular ante el Chelsea**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251125/1002575925/araujo-titular-chelsea.html)
+- **Las cuentas del Barça para entrar en el top-8 de la Champions**: [Link](https://www.sport.es/es/noticias/barca/cuentas-barcelona-entrar-top-8-champions-league-chelsea-stamford-bridge-124071302)
+
+
 ### الهلال ضد الشرطة (N/A, Tue, 25 Nov 2025 10:40:00 -0800)
 
 - **ما القنوات الناقلة لمباراة الهلال والشرطة في دوري أبطال آسيا النخبة 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1e1399fa3051cacc)
