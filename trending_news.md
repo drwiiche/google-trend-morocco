@@ -1,3 +1,10 @@
+### بودو/ غليمت ضد يوفنتوس (N/A, Tue, 25 Nov 2025 12:40:00 -0800)
+
+- **سباليتي وكامبياسو يتفقان: الملعب والمناخ عيبان أمام بودو جليمت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A8%D8%A7%D9%84%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D9%84%D9%8A%D8%AF%D9%8A%D8%A9/blt91051f5fe8ec89c0)
+- **موعد مباراة يوفنتوس وبودو/غليمت في دوري أبطال أوربا**: [Link](https://chamaly.ma/2025/11/25/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%88%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1/)
+- **كامبياسو: لم ألعب على أرضية صناعية منذ أن كنت في السابعة عشرة**: [Link](https://www.elsport.com/news/show/801578/%D9%83%D8%A7%D9%85%D8%A8%D9%8A%D8%A7%D8%B3%D9%88-%D8%A3%D9%84%D8%B9%D8%A8-%D8%B9%D9%84%D9%89-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%B5%D9%86%D8%A7%D8%B9%D9%8A%D8%A9-%D9%85%D9%86%D8%B0-%D9%83%D9%86%D8%AA-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D8%B9%D8%A9-%D8%B9%D8%B4%D8%B1)
+
+
 ### juventus (N/A, Tue, 25 Nov 2025 12:40:00 -0800)
 
 - **Bodo, nevicata senza sosta: aeroporto bloccato, poi riaperto. Chiellini e Comolli raggiungono la Juve in auto**: [Link](https://www.gazzetta.it/Calcio/Champions-League/25-11-2025/bodo-sotto-la-neve-juve-alla-prova-piu-gelida.shtml)
