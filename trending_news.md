@@ -1,3 +1,10 @@
+### champions league (N/A, Mon, 24 Nov 2025 22:50:00 -0800)
+
+- **Marseille Coach De Zerbi on Aguerd's Absence: "He is an Irreplaceable Defender"**: [Link](https://m.elbotola.com/en/article/2025-11-20-14-01-573.html)
+- **Massacre for OM before Newcastle, the big disaster**: [Link](https://frenchfootballweekly.com/2025/11/24/massacre-for-om-before-newcastle-the-big-disaster/)
+- **Nayef Aguerd on Custom Recovery Plan Ahead of Atlas Lions Return**: [Link](https://www.moroccoworldnews.com/2025/11/268711/nayef-aguerd-on-custom-recovery-plan-ahead-of-atlas-lions-return/)
+
+
 ### weather (N/A, Mon, 24 Nov 2025 22:40:00 -0800)
 
 - **Warning of even bigger storms to come in SA**: [Link](https://www.citizen.co.za/news/warning-even-bigger-storms-sa/)
