@@ -1,3 +1,10 @@
+### biyouna (N/A, Tue, 25 Nov 2025 04:20:00 -0800)
+
+- **La star algérienne Baya Bouzar, connue sous le nom de Biyouna, est morte à l’âge de 73 ans**: [Link](https://www.lemonde.fr/disparitions/article/2025/11/25/la-star-algerienne-baya-bouzar-connue-sous-le-nom-de-biyouna-est-morte-a-l-age-de-73-ans_6654758_3382.html)
+- **Cette figure du cinéma français nous a quittés à l'âge de 73 ans, elle avait donné la réplique à Didier Bourdon, Valérie Lemercier, Elie Semoun et bien d'autres...**: [Link](https://www.purepeople.com/article/cette-figure-du-cinema-francais-nous-a-quittes-a-lage-73-ans-elle-avait-donne-la-replique-a-didier-bourdon-valerie-lemercier-elie-semoun-et-bien-dautres_a544941/1)
+- **L’actrice algérienne Biyouna (Viva Laldjérie, Délice Paloma) est morte**: [Link](https://www.konbini.com/popculture/lactrice-algerienne-biyouna-viva-laldjerie-delice-paloma-est-morte/)
+
+
 ### الياس المالكي (N/A, Mon, 24 Nov 2025 22:10:00 -0800)
 
 - **الشرطة القضائية توقف إلياس المالكي بالجديدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D8%AA%D9%88%D9%82%D9%81-%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D8%A8%D8%A7-1660931.html)
