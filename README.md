@@ -1,3 +1,17 @@
+### كأس العرب (N/A, Tue, 25 Nov 2025 05:20:00 -0800)
+
+- **مدربا الكويت وموريتانيا يؤكدان الجاهزية للقاء الفاصل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AF%D8%B1%D8%A8%D8%A7-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%88%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D9%88%D9%94%D9%83%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%81%D8%A7%D8%B5%D9%84/blt8f3e34041600a7d1)
+- **جارية الآن.. تردد قناة الكأس 1 Al Kass Sports على نايل سات وعرب سات الناقلة لمباراة الكويت ضد موريتانيا في كأس العرب 2025**: [Link](https://zahraa.mr/6111913/%D8%AC%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A2%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-1-al-kass-sports-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D9%8A%D9%84-2/)
+- **منافس مصر في كأس العرب.. موريتانيا 0 - 0 الكويت**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2025/11/25/2896841/%D9%85%D9%86%D8%A7%D9%81%D8%B3-%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-0-1-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA)
+
+
+### كأس العرب 2025 (N/A, Tue, 25 Nov 2025 05:20:00 -0800)
+
+- **جدول مباريات ملحق كأس العرب والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/11/24/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%85%D9%84%D8%AD%D9%82-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA)
+- **من المحيط للخليج.. سلاح هوية يرسم معالم كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%AD%D9%8A%D8%B7-%D9%84%D9%84%D8%AE%D9%84%D9%8A%D8%AC--%D8%B3%D9%84%D8%A7%D8%AD-%D9%87%D9%88%D9%8A%D8%A9-%D9%8A%D8%B1%D8%B3%D9%85-%D9%85%D8%B9%D8%A7%D9%84%D9%85-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blt7ca5e404907e6916)
+- **"جحا" تعويذة كأس العرب بدولة قطر**: [Link](https://www.hespress.com/%D8%AC%D8%AD%D8%A7-%D8%AA%D8%B9%D9%88%D9%8A%D8%B0%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A8%D8%AF%D9%88%D9%84%D8%A9-%D9%82%D8%B7%D8%B1-1660201.html)
+
+
 ### biyouna (N/A, Tue, 25 Nov 2025 04:20:00 -0800)
 
 - **La star algérienne Baya Bouzar, connue sous le nom de Biyouna, est morte à l’âge de 73 ans**: [Link](https://www.lemonde.fr/disparitions/article/2025/11/25/la-star-algerienne-baya-bouzar-connue-sous-le-nom-de-biyouna-est-morte-a-l-age-de-73-ans_6654758_3382.html)
