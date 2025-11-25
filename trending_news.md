@@ -1,3 +1,10 @@
+### الياس المالكي (N/A, Mon, 24 Nov 2025 22:10:00 -0800)
+
+- **الشرطة القضائية توقف إلياس المالكي بالجديدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D8%AA%D9%88%D9%82%D9%81-%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D8%A8%D8%A7-1660931.html)
+- **سبب إيقاف إلياس المالكي.. التفاصيل الكاملة للقبض على اليوتيوبر المثير للجدل - المشهد**: [Link](https://almashhad.com/article/459217420284850-entertainment/878605883288045-%D8%B3%D8%A8%D8%A8-%D8%A5%D9%8A%D9%82%D8%A7%D9%81-%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%84%D9%84%D9%82%D8%A8%D8%B6-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%AC%D8%AF%D9%84/)
+- **مصادر : إلياس المالكي قدم نفسه للسلطات الأمنية.. والشكايات ضده تقترب من ''تنازلات ''**: [Link](http://www.eljadida24.com/ar/1213437.html)
+
+
 ### champions league (N/A, Mon, 24 Nov 2025 22:50:00 -0800)
 
 - **Marseille Coach De Zerbi on Aguerd's Absence: "He is an Irreplaceable Defender"**: [Link](https://m.elbotola.com/en/article/2025-11-20-14-01-573.html)
