@@ -1,3 +1,31 @@
+### estevao (N/A, Tue, 25 Nov 2025 13:20:00 -0800)
+
+- **Manchester City x Bayer e Chelsea x Barcelona: Destaques da Champions League hoje (25)**: [Link](https://somosfanaticos.fans/br/champions-league/manchester-city-x-bayer-e-chelsea-x-barcelona-destaques-da-champions-league-hoje-25)
+- **Partidas da UEFA Champions League na terça e quarta-feira: Chelsea x Barça, Arsenal x Bayern, Atleti x Inter...**: [Link](https://www.gamereactor.pt/partidas-da-liga-dos-campeoes-da-uefa-na-terca-e-quarta-feira-chelsea-x-barca-arsenal-x-bayern-atlevi-x-inter-1510473/)
+- **Estêvão e Yamal: prodígios de 2007 se enfrentam na Champions League e reacendem tensão entre Chelsea e Barcelona**: [Link](https://www.mixvale.com.br/2025/11/25/estevao-e-yamal-prodigios-de-2007-se-enfrentam-na-champions-league-e-reacendem-tensao-entre-chelsea-e-barcelona/)
+
+
+### cucurella (N/A, Tue, 25 Nov 2025 13:20:00 -0800)
+
+- **Enzo Maresca delivers Chelsea team news ahead of Barcelona | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-delivers-chelsea-team-news-ahead-of-barcelona)
+- **Cole Palmer given specially adapted boot by Chelsea to aid recovery from freak injury**: [Link](https://www.telegraph.co.uk/football/2025/11/21/chelsea-cole-palmer-injury-special-boot-arsenal-barcelona/)
+- **Marc Cucurella Reveals the Real Cause Behind Cole Palmer’s Injury**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/marc-cucurella-reveals-the-real-cause-behind-cole-palmer-s-injury-2025-11-24)
+
+
+### dortmund vs villarreal (N/A, Tue, 25 Nov 2025 13:20:00 -0800)
+
+- **Kovač confirms doubts over Beier ahead of Villarreal duel**: [Link](https://bulinews.com/kova-confirms-doubts-over-beier-ahead-villarreal-duel)
+- **'If we get closer to the top, we'll be closer to victory': Marcelino analyses the challenge against Dortmund**: [Link](https://tribuna.com/en/news/2025-11-25-if-we-get-closer-to-the-top-well-be-closer-to-victory-marcelino-analyses-the-challenge-ag/)
+- **Where to stream Borussia Dortmund vs. Villarreal Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-borussia-dortmund-vs-villarreal-champions-league-match-free-today.html)
+
+
+### champions league 2025 (N/A, Tue, 25 Nov 2025 13:20:00 -0800)
+
+- **Training photos: Liverpool prepare for UCL tie with PSV Eindhoven**: [Link](https://www.liverpoolfc.com/news/training-photos-liverpool-prepare-ucl-tie-psv-eindhoven)
+- **Florian Wirtz injury update as Liverpool draft unlikely man into training**: [Link](https://www.express.co.uk/sport/football/2138451/Liverpool-injury-news-Florian-Wirtz-PSV)
+- **Why PSV Eindhoven Is a Must-Win Game for Arne Slot**: [Link](https://www.si.com/soccer/why-psv-eindhoven-is-must-win-game-for-arne-slot)
+
+
 ### flashscore (N/A, Tue, 25 Nov 2025 12:50:00 -0800)
 
 - **Arteta gives update on Havertz and Gyokeres | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-gives-update-havertz-and-gyokeres)
