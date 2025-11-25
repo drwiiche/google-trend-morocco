@@ -1,3 +1,24 @@
+### al-hilal – al shorta (N/A, Tue, 25 Nov 2025 10:00:00 -0800)
+
+- **Al-Shorta faces critical test against Saudi giants Al-Hilal in AFC Champions League**: [Link](https://www.iraqinews.com/sports/al-shorta-vs-al-hilal-afc-champions-league-preview/)
+- **Al Hilal vs Al Shorta: Live streaming, TV channel, kick-off time & where to watch AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-hilal-vs-al-shorta-where-to-watch-202511)
+- **Al Hilal vs Al-Shorta Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-hilal-vs-al-shorta-preview-202511)
+
+
+### galatasaray (N/A, Tue, 25 Nov 2025 09:50:00 -0800)
+
+- **Galatasaray Union Saint-Gilloise ne zaman, saat kaçta ve hangi kanalda? Maç şifresiz kanalda mı yayınlanacak? GS Union Gilloise maçı yayın bilgileri**: [Link](https://www.yenisafak.com/foto-galeri/ozgun/galatasaray-union-saint-gilloise-ne-zaman-saat-kacta-ve-hangi-kanalda-mac-sifresiz-kanalda-mi-yayinlanacak-gs-union-gilloise-maci-yayin-bilgileri-4771961)
+- **Okan Buruk"tan Osimhen ve Lemina için net açıklama: Derbide sahada olacaklar mı?**: [Link](https://oxu.az/tr/spor/okan-buruk-tan-osimhen-ve-lemina-icin-net-aciklama-derbide-sahada-olacaklar-mi)
+- **Union SG’nin En Değerli Futbolcusu Promise David Kimdir? Promise David kaç yaşınd? Nereli?**: [Link](https://www.nobetcigazete.com/union-sgnin-en-degerli-futbolcusu-promise-david-kimdir-promise-david-kac-yasind-nereli)
+
+
+### arab cup (N/A, Tue, 25 Nov 2025 07:20:00 -0800)
+
+- **Football: FIFA Arab Cup 2025 - full match schedule, all results**: [Link](https://www.olympics.com/en/news/football-fifa-arab-cup-2025-full-schedule-results)
+- **Hundreds of fans come together at Old Doha Port for the FIFA Arab Cup Qatar 2025™ fan walk**: [Link](https://www.iloveqatar.net/news/sports/hundreds-fans-come-together-old-doha-port-fifa-arab-cup-qatar-2025-fan-walk)
+- **Arab Cup Qatar 2025: Platform Bolstering Arab Cultural, Historical Bonds**: [Link](https://al24news.dz/en/arab-cup-qatar-2025-platform-bolstering-arab-cultural-historical-bonds/)
+
+
 ### match barca (N/A, Tue, 25 Nov 2025 09:40:00 -0800)
 
 - **Barça will wear their 'Black Mamba' jersey at Stamford Bridge**: [Link](https://www.fcbarcelonanoticias.com/en/champions-league/barcelona-will-wear-their-black-mamba-jersey-at-stamford-bridge_315324_102.html)
