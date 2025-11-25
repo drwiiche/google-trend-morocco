@@ -1,3 +1,10 @@
+### دوري الأبطال (N/A, Tue, 25 Nov 2025 10:20:00 -0800)
+
+- **فليك: ما قاله ماريسكا عن جوارديولا طبيعي.. وأخطأنا مع رافينيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%85%D8%A7-%D9%82%D8%A7%D9%84%D9%87-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D8%B9%D9%86-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A--%D9%88%D8%A7%D9%94%D8%AE%D8%B7%D8%A7%D9%94%D9%86%D8%A7-%D9%85%D8%B9-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7/bltc3f9adde4d7e1582)
+- **موعد مباراة تشلسي ضد برشلونة بأبطال أوروبا والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/24/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **هانزي فليك: ماركوس راشفورد يتألق وسط أجواء برشلونة الإيجابية**: [Link](https://www.hesport.com/%D9%87%D8%A7%D9%86%D8%B2%D9%8A-%D9%81%D9%84%D9%8A%D9%83-%D9%85%D8%A7%D8%B1%D9%83%D9%88%D8%B3-%D8%B1%D8%A7%D8%B4%D9%81%D9%88%D8%B1%D8%AF-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-%D9%88%D8%B3%D8%B7-%D8%A3%D8%AC-414554.html)
+
+
 ### al-hilal – al shorta (N/A, Tue, 25 Nov 2025 10:00:00 -0800)
 
 - **Al-Shorta faces critical test against Saudi giants Al-Hilal in AFC Champions League**: [Link](https://www.iraqinews.com/sports/al-shorta-vs-al-hilal-afc-champions-league-preview/)
