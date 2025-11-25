@@ -1,3 +1,17 @@
+### juventus (N/A, Tue, 25 Nov 2025 12:40:00 -0800)
+
+- **Bodo, nevicata senza sosta: aeroporto bloccato, poi riaperto. Chiellini e Comolli raggiungono la Juve in auto**: [Link](https://www.gazzetta.it/Calcio/Champions-League/25-11-2025/bodo-sotto-la-neve-juve-alla-prova-piu-gelida.shtml)
+- **UCL | Le formazioni ufficiali di Bodo/Glimt-Juventus**: [Link](https://www.juventus.com/it/news/articoli/ucl-league-phase-2025-2026-bodo-glimt-juventus-formazioni-ufficiali)
+- **Aleesami, l’ex Palermo sfida la Juve con il Bodø: “Felice di affrontare la mia squadra del cuore”**: [Link](https://www.repubblica.it/sport/calcio/champions/2025/11/25/news/juve_bodo_champions_aleesami_ex_palermo-425003153/)
+
+
+### bet365 (N/A, Tue, 25 Nov 2025 12:30:00 -0800)
+
+- **Betfred Champions League Offer | Bet £10 Get £50 in Free Bets**: [Link](https://www.live-darts.com/betting-offers/betfred-ucl-offer-november-2025/)
+- **BOYLE Sports offer: Liverpool, Arsenal and Tottenham in the Champions League - Win 50% more with Bet Builder Boost**: [Link](https://www.squawka.com/en/betting-offers/boyle-sports-champions-league-50-bet-builder-boost/)
+- **Claim £50 in Free Bets for the Champions League This Week with talkSPORT BET**: [Link](https://www.oddschecker.com/insight/football/20251125-claim-50-in-free-bets-for-the-champions-league-this-week-with-talksport-bet)
+
+
 ### bein sport (N/A, Tue, 25 Nov 2025 12:20:00 -0800)
 
 - **Where Can I Watch the Premier Padel Mexico Major Semifinals and Finals?**: [Link](https://www.beinsports.com/en-us/padel-padel/padel/articles/where-can-i-watch-the-premier-padel-mexico-major-semifinals-and-finals-2025-11-25)
