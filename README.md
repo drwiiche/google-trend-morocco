@@ -1,3 +1,17 @@
+### classement champions league (N/A, Tue, 25 Nov 2025 13:50:00 -0800)
+
+- **LdC : le classement complet**: [Link](https://www.footmercato.net/a69496734458121474-ldc-le-classement-de-la-phase-de-ligue)
+- **Combien de points faudra-t-il au PSG, à l'OM et à Monaco pour se qualifier en huitièmes ou en play-offs de Ligue des champions ?**: [Link](https://www.lequipe.fr/Football/Actualites/Combien-de-points-faudra-t-il-au-psg-a-l-om-et-a-monaco-pour-se-qualifier-en-huitiemes-ou-en-barrages-de-ligue-des-champions/1612039)
+- **LdC : Man City, OM, Barcelone ... Voici le programme de ce mardi**: [Link](https://fr.hespress.com/451172-ldc-man-city-om-barcelone-voici-le-programme-de-ce-mardi.html)
+
+
+### ldc (N/A, Tue, 25 Nov 2025 13:50:00 -0800)
+
+- **Ligue des champions : choc Arsenal-Bayern, vieille revanche Chelsea-Barça**: [Link](https://lematin.ma/sports/ligue-des-champions-choc-arsenal-bayern-vieille-revanche-chelsea-barca/315459)
+- **PRONOS PARIS RMC Le nul du jour du 25 novembre – Ligue des Champions**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-25-novembre-ligue-des-champions_AN-202511250738.html)
+- **Bayern - Kompany : "Le Arsenal d'Arteta a très peu de faiblesses"**: [Link](https://sports.orange.fr/videos/football/bayern-kompany-le-arsenal-d-arteta-a-tres-peu-de-faiblesses-CNT000002lTgml.html)
+
+
 ### chelsea vs (N/A, Tue, 25 Nov 2025 13:20:00 -0800)
 
 - **Arsenal set for 'unpredictable' date with Chelsea**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/chelsea-v-arsenal-matchweek-13-preview-and-predictions)
