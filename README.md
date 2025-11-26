@@ -1,3 +1,17 @@
+### david luiz (N/A, Wed, 26 Nov 2025 10:50:00 -0800)
+
+- **Monaco ahead; Copenhagen lead; Arsenal take on Bayern later**: [Link](https://onefootball.com/it/notizie/monaco-ahead-copenhagen-lead-arsenal-take-on-bayern-later-42008591)
+- **First goal in eight years: CL legend powers back into the spotlight**: [Link](https://ca.sports.yahoo.com/news/first-goal-eight-years-cl-182300613.html)
+- **David Luiz scores first Champions League since 2017 at age 38 for Pafos**: [Link](https://www.thederrick.com/ap/sports/david-luiz-scores-first-champions-league-since-2017-at-age-38-for-pafos/article_5b0d14d8-beff-5681-8efd-7bef326b002e.html)
+
+
+### arsenal vs bayern (N/A, Wed, 26 Nov 2025 10:30:00 -0800)
+
+- **Rice, Cancelo, Neuer & Co. - The all-time most valuable Arsenal & Bayern Munich combined XI**: [Link](https://www.transfermarkt.com/rice-cancelo-neuer-amp-co-the-all-time-most-valuable-arsenal-amp-bayern-munich-combined-xi/view/news/463386)
+- **Preview: Arsenal v Bayern Munich | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-arsenal-v-bayern-munich-0)
+- **Jens Lehmann: Bayern Munich can emulate Arsenal’s Invincibles and go unbeaten this season**: [Link](https://www.bavarianfootballworks.com/bayern-munich-champions-league/150655/jens-lehmann-bayern-munich-can-emulate-arsenals-invincibles-and-go-unbeaten-this-season)
+
+
 ### coupe arabe (N/A, Wed, 26 Nov 2025 10:30:00 -0800)
 
 - **Coupe Arabe 2025 : la Palestine parmi les qualifiés**: [Link](https://www.footmercato.net/a3406450971309356870-coupe-arabe-2025-la-palestine-parmi-les-qualifies)
