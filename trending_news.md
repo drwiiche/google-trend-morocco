@@ -1,3 +1,15 @@
+### ayoub el kaabi (N/A, Wed, 26 Nov 2025 13:40:00 -0800)
+
+- **El récord de Ayoub El Kaabi en competiciones europeas**: [Link](https://ensenada.net/noticias/mencion.php?id=5859)
+
+
+### real madrid vs olympiakos (N/A, Wed, 26 Nov 2025 12:30:00 -0800)
+
+- **Kylian Mbappe's madness - scores hat-trick against Olympiacos in seven minutes**: [Link](https://telegrafi.com/en/Kylian-Mbappe%27s-crazy-hat-trick-against-Olympiacos-in-seven-minutes/)
+- **'He is absolutely ruthless': Real Madrid fans in AWE as Mbappe scores Champions League hat-trick in 7 minutes**: [Link](https://tribuna.com/en/blogs/he-is-absolutely-ruthless-real-madrid-fans-in-awe-as-mbappe/)
+- **Liverpool level with PSV; Mbappé sparks Madrid comeback; Bayern equalise**: [Link](https://onefootball.com/en/news/liverpool-level-with-psv-mbappe-sparks-madrid-comeback-bayern-equalise-42008591)
+
+
 ### paris (N/A, Wed, 26 Nov 2025 13:10:00 -0800)
 
 - **Crash du Rio-Paris: en appel, une condamnation requise contre Airbus et Air France face à l'"indécence"**: [Link](https://medias24.com/agence-presse/crash-du-rio-paris-en-appel-une-condamnation-requise-contre-airbus-et-air-france-face-a-lindecence/)
