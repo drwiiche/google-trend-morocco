@@ -1,3 +1,10 @@
+### paris (N/A, Wed, 26 Nov 2025 13:10:00 -0800)
+
+- **Crash du Rio-Paris: en appel, une condamnation requise contre Airbus et Air France face à l'"indécence"**: [Link](https://medias24.com/agence-presse/crash-du-rio-paris-en-appel-une-condamnation-requise-contre-airbus-et-air-france-face-a-lindecence/)
+- **Procès du crash du Rio-Paris en 2009 : en appel, le parquet général requiert une condamnation pour Airbus et Air France**: [Link](https://www.francebleu.fr/infos/faits-divers-justice/proces-du-crash-du-rio-paris-en-2009-en-appel-le-parquet-general-requiert-une-condamnation-pour-airbus-et-air-france-7717246)
+- **Vol Rio-Paris : le parquet requiert la condamnation d’Airbus et Air France dans le crash qui a fait plus de 220 morts en 2009**: [Link](https://www.midilibre.fr/2025/11/26/crash-du-vol-rio-paris-en-2009-le-parquet-requiert-la-condamnation-dairbus-et-air-france-13076008.php)
+
+
 ### lennart karl (N/A, Wed, 26 Nov 2025 13:00:00 -0800)
 
 - **Lennart Karl: Bayern teen who Lothar Matthaus wants at World Cup**: [Link](https://www.thetimes.com/sport/football/article/lennart-karl-bayern-munich-arsenal-l9np7l9ns)
