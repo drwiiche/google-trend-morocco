@@ -1,3 +1,10 @@
+### xabi alonso (N/A, Tue, 25 Nov 2025 22:40:00 -0800)
+
+- **El Real Madrid se aísla del ruido mediático**: [Link](https://as.com/futbol/el-real-madrid-se-aisla-del-ruido-mediatico-f202511-n/)
+- **El Madrid respalda a Xabi: "Es el jefe"**: [Link](https://www.marca.com/futbol/real-madrid/2025/11/25/madrid-respalda-xabi-jefe.html)
+- **Crece la tensión en el timón de Xabi Alonso: estrellas revueltas, críticas en voz baja y un examen pendiente**: [Link](https://www.elmundo.es/deportes/futbol/2025/11/24/692499dffc6c83e9288b4588.html)
+
+
 ### araujo (N/A, Tue, 25 Nov 2025 13:20:00 -0800)
 
 - **Hansi Flick 'positive about the future'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4408932/hansi-flick-positive-about-the-future)
