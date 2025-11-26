@@ -1,3 +1,10 @@
+### mohammed ziane (N/A, Wed, 26 Nov 2025 03:50:00 -0800)
+
+- **La prison d’Al-Arjat dément la grève de la faim de Mohamed Ziane**: [Link](https://mobile.telquel.ma/instant-t/2025/11/25/la-prison-dal-arjat-dement-la-greve-de-la-faim-de-mohamed-ziane_1962412/)
+- **Mohammed Ziane en grève de la faim, pour sa détention provisoire dans une autre affaire**: [Link](https://medias24.com/2025/11/25/mohammed-ziane-en-greve-de-la-faim-le-procureur-general-precise-sa-detention-provisoire-dans-une-seconde-affaire-1583727/)
+- **« La prison accuse le fils de Mohamed Ziann d’avoir poussé son père à la perdition et à se faire du mal. »**: [Link](https://tanja7.com/fr/6264)
+
+
 ### xabi alonso (N/A, Tue, 25 Nov 2025 22:40:00 -0800)
 
 - **El Real Madrid se aísla del ruido mediático**: [Link](https://as.com/futbol/el-real-madrid-se-aisla-del-ruido-mediatico-f202511-n/)
