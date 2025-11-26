@@ -1,3 +1,17 @@
+### psg tottenham (N/A, Wed, 26 Nov 2025 12:40:00 -0800)
+
+- **Champions League LIVE: Arsenal vs Bayern Munich, Liverpool vs PSV & PSG v Tottenham scores & updates**: [Link](https://www.bbc.com/sport/football/live/c93dkvzgn8et)
+- **PSG v Tottenham, Liverpool v PSV, and more: Champions League – live**: [Link](https://www.theguardian.com/football/live/2025/nov/26/psg-v-tottenham-liverpool-v-psv-and-more-champions-league-live-clockwatch)
+- **Mbappé scores 4, PSG hits 5, Arsenal topples Bayern and teenage scorers shine in Champion League**: [Link](https://www.mankatofreepress.com/ap/sports/mbapp-scores-4-psg-hits-5-arsenal-topples-bayern-and-teenage-scorers-shine-in-champion/article_3d228d1d-8bad-5fcb-829d-3f437767af77.html)
+
+
+### الريال (N/A, Wed, 26 Nov 2025 12:40:00 -0800)
+
+- **تشكيلة ريال مدريد المتوقعة من صحيفة الــAS ..! “ بطيخ “**: [Link](https://hihi2.com/2025/11/26/p3529823.html)
+- **مورينتس: تشابي ألونسو يحتاج إلى حماية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D8%AA%D8%B3-%D8%AA%D8%B4%D8%A7%D8%A8%D9%8A-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A7%D9%95%D9%84%D9%89-%D8%AD%D9%85%D8%A7%D9%8A%D8%A9/blt97af547a157ea281)
+- **بينهم ابراهيم دياز.. 6 لاعبين من الريال غير راضين عن أسلوب مدربهم**: [Link](https://www.almountakhab.com/node/13220006)
+
+
 ### driouech (N/A, Wed, 26 Nov 2025 14:30:00 -0800)
 
 - **Uiterst pijnlijk spreekkoor over Arne Slot klinkt in minuut 87 heel erg duidelijk op Anfield**: [Link](https://www.voetbalzone.nl/nieuws/uiterst-pijnlijk-spreekkoor-over-arne-slot-klinkt-in-minuut-87-heel-erg-duidelijk-op-anfield/bltc0f9dab06fe6dcbd)
