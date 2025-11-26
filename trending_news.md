@@ -1,3 +1,10 @@
+### istiklol vs al-nassr (N/A, Wed, 26 Nov 2025 06:00:00 -0800)
+
+- **Istiklol vs Al-Nassr LIVE Score Updates in AFC Champions League Two Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/26/1242585-istiklol-vs-al-nassr-live-score-afc-champions-league-two.html)
+- **Is Cristiano Ronaldo Playing Tonight for Al Nassr vs FC Istiklol?**: [Link](https://athlonsports.com/soccer/is-cristiano-ronaldo-playing-tonight-for-al-nassr-vs-fc-istiklol)
+- **Istiklol vs Al-Nassr: Saudi powerhouses seek knockout stage clincher in Tajikistan showdown**: [Link](https://www.red94.net/news/92021-istiklol-vs-al-nassr-saudi-powerhouses-face-afc-champions-league-challenge-in-ta/)
+
+
 ### استقلال دوشنبه ضد النصر (N/A, Wed, 26 Nov 2025 05:40:00 -0800)
 
 - **ما القنوات الناقلة لمباراة جوا والنصر في دوري أبطال آسيا "2" 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D8%AF%D9%88%D8%B4%D9%86%D8%A8%D9%87-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-2-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt97ece6943448145f)
