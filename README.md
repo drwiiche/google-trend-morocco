@@ -1,3 +1,17 @@
+### bet 365 (N/A, Wed, 26 Nov 2025 12:40:00 -0800)
+
+- **Wagering Platforms Offering MO Promotions, Charitable Donations**: [Link](https://www.ingame.com/missouri-launch-plans-operators/)
+- **bet365 Missouri bonus code NYPBET: Pre-register for $365 in bonus bets**: [Link](https://nypost.com/2025/11/26/betting/bet365-missouri-bonus-code-nypbet-pre-register-for-365-in-bonus-bets/)
+- **FanDuel Missouri Promo Code: $400 In Bonus Bets Guaranteed With Early Sign Up**: [Link](https://ftw.usatoday.com/story/sports/2025/11/25/fanduel-missouri-promo-code-400-bonus-bets/87360121007/)
+
+
+### live (N/A, Wed, 26 Nov 2025 12:40:00 -0800)
+
+- **Join reporter Tom Silverstein for a live chat during Packers-Lions Thanksgiving game**: [Link](https://www.jsonline.com/story/sports/nfl/packers/2025/11/26/reporter-tom-silverstein-live-chats-during-packers-lions-thanksgiving/87470666007/)
+- **Champions League LIVE: Arsenal vs Bayern Munich, Liverpool vs PSV & PSG v Tottenham scores & updates**: [Link](https://www.bbc.com/sport/football/live/c93dkvzgn8et)
+- **Jens Lehmann: Bayern Munich can emulate Arsenal’s Invincibles and go unbeaten this season**: [Link](https://www.bavarianfootballworks.com/bayern-munich-champions-league/150655/jens-lehmann-bayern-munich-can-emulate-arsenals-invincibles-and-go-unbeaten-this-season)
+
+
 ### flashscore (N/A, Wed, 26 Nov 2025 12:30:00 -0800)
 
 - **Fifa to keep top seeds apart in World Cup draw**: [Link](https://www.bbc.com/sport/football/articles/cvg84knn2p5o)
