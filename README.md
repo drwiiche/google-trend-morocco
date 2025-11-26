@@ -1,3 +1,10 @@
+### maes rappeur (N/A, Wed, 26 Nov 2025 08:50:00 -0800)
+
+- **Le rappeur Maes condamné à 7 ans de prison ferme au Maroc**: [Link](https://www.liberation.fr/societe/police-justice/le-rappeur-maes-condamne-a-7-ans-de-prison-ferme-au-maroc-20251126_ISJRZCSOHZGVBJJW6AT5T64ZNM/)
+- **Le rappeur franco-marocain “Maes” condamné à 7 ans de prison ferme**: [Link](https://medias24.com/2025/11/26/le-rappeur-franco-marocain-maes-condamne-a-7-ans-de-prison-ferme-1584412/)
+- **Maroc : le rappeur Maes condamné à sept ans de prison selon la presse marocaine**: [Link](https://www.lefigaro.fr/actualite-france/maroc-le-rappeur-maes-condamne-a-sept-ans-de-prison-selon-la-presse-marocaine-20251126)
+
+
 ### bouchra karboubi (N/A, Wed, 26 Nov 2025 06:30:00 -0800)
 
 - **Bouchra Karboubi Retires Over ‘Harmful Practices’ in Arbitration Directorate**: [Link](https://www.moroccoworldnews.com/2025/11/269515/bouchra-karboubi-retires-over-harmful-practices-in-arbitration-directorate/)
