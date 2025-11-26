@@ -1,3 +1,31 @@
+### champions league standings (N/A, Wed, 26 Nov 2025 14:00:00 -0800)
+
+- **Champions League: Table, fixtures, results and which teams are on course for qualifying for the knockout phase**: [Link](https://www.skysports.com/football/news/11095/13474811/champions-league-table-fixtures-results-and-which-teams-are-on-course-for-qualifying-for-the-knockout-phase)
+- **Champions League: The number of points needed to qualify for the knockout stage**: [Link](https://foot-africa.com/en/news/champions-league-the-number-of-points-needed-to-qualify-for-the-knockout-stage-975854/)
+- **Champions League 2025/26: Standings and full league-phase table**: [Link](https://www.msn.com/en-gb/sport/football/champions-league-2025-26-standings-and-full-league-phase-table/ar-AA1RcZzl)
+
+
+### نتائج مباريات اليوم (N/A, Wed, 26 Nov 2025 14:00:00 -0800)
+
+- **اكتمال عقد مجموعة السعودية.. تفوق كبير على عمان ومنافس جديد يظهر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%83%D8%AA%D9%85%D8%A7%D9%84-%D8%B9%D9%82%D8%AF-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9--%D8%AA%D9%81%D9%88%D9%82-%D9%83%D8%A8%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%B8%D9%87%D9%88%D8%B1-%D9%85%D9%86%D8%A7%D9%81%D8%B3-%D8%AC%D8%AF%D9%8A%D8%AF/bltc455b8ccb2cc1a7e)
+- **تأهل 7 منتخبات إلى كأس العرب عبر التصفيات.. فما هي؟**: [Link](https://arabic.cnn.com/sport/article/2025/11/26/arab-cup-teams)
+- **كأس العرب - قطر 2025: مجموعة الأسود إكتملت**: [Link](https://www.almountakhab.com/node/13220043)
+
+
+### couhaib driouech (N/A, Wed, 26 Nov 2025 13:40:00 -0800)
+
+- **Na Napoli slacht PSV ook Liverpool op Anfield (1-4) • Vier goals Mbappé in Griekenland**: [Link](https://nos.nl/liveblog/2592127-na-napoli-slacht-psv-ook-liverpool-op-anfield-1-4-vier-goals-mbappe-in-griekenland)
+- **Perisic benut penalty voor PSV na domme handsbal Van Dijk**: [Link](https://www.ad.nl/videos/productie/perisic-benut-penalty-voor-psv-na-domme-handsbal-van-dijk-1989102)
+- **Bosz hoopt voordeel te halen uit situatie van Liverpool: 'Daar staat de druk erop'**: [Link](https://www.vi.nl/nieuws/bosz-hoopt-voordeel-te-halen-uit-situatie-van-liverpool-daar-staat-de-druk-erop)
+
+
+### madrid match (N/A, Wed, 26 Nov 2025 12:50:00 -0800)
+
+- **Real Madrid Player Ratings vs. Elche: Shock Lineup From Alonso Produces Shock Result**: [Link](https://www.si.com/soccer/real-madrid-player-ratings-vs-elche-11-23-25)
+- **Elche 2-2 Real Madrid: Jude Bellingham shines as visitors go top of La Liga**: [Link](https://www.bbc.com/sport/football/live/c7v82yep4z4t)
+- **DISCUSSION: Why Have Real Madrid Regressed?**: [Link](https://www.managingmadrid.com/videos/101042/discussion-why-have-real-madrid-regressed)
+
+
 ### ayoub el kaabi (N/A, Wed, 26 Nov 2025 13:40:00 -0800)
 
 - **El récord de Ayoub El Kaabi en competiciones europeas**: [Link](https://ensenada.net/noticias/mencion.php?id=5859)
