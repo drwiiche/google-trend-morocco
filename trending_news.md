@@ -1,3 +1,10 @@
+### real madrid vs (N/A, Wed, 26 Nov 2025 12:00:00 -0800)
+
+- **Olympiacos - Real Madrid, en directo: última hora de la fase liga de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/olympiacos-real-madrid-en-directo-ultima-hora-de-la-fase-liga-de-la-champions-league-hoy-en-vivo-f202511-d/)
+- **Convocatoria del Real Madrid contra el Olympiacos**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-olympiacos-25-11-2025)
+- **Olympiacos - Real Madrid: No quieren una tragedia griega**: [Link](https://www.marca.com/futbol/champions-league/2025/11/26/olympiacos-real-madrid-quieren-tragedia-griega.html)
+
+
 ### arsenal – bayern (N/A, Wed, 26 Nov 2025 11:20:00 -0800)
 
 - **Preview: Arsenal v Bayern Munich | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-arsenal-v-bayern-munich-0)
