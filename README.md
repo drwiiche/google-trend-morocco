@@ -1,3 +1,45 @@
+### olympiakos – real madrid (N/A, Wed, 26 Nov 2025 11:10:00 -0800)
+
+- **Three options for Real Madrid to partner Raul Asencio in defence vs Olympiacos amid injury crisis**: [Link](https://madriduniversal.com/three-options-for-real-madrid-to-partner-raul-asencio-in-defence-vs-olympiacos-amid-injury-crisis/)
+- **Preview: Real Madrid head to Greek champions Olympiacos in the Champions League**: [Link](https://www.fotmob.com/topnews/24107-preview-real-madrid-head-greek-champions-olympiacos-champions-league?utm_source=fotmob)
+- **Serious Blow for Real Madrid as Courtois Sidelined Amid Defensive Crisis**: [Link](https://zamin.uz/en/sport/171804-serious-blow-for-real-madrid-as-courtois-sidelined-amid-defensive-crisis.html)
+
+
+### أوليمبياكوس ضد الريال (N/A, Wed, 26 Nov 2025 11:10:00 -0800)
+
+- **لونين يعوض غياب كورتوا في التشكيل المتوقع لريال مدريد أمام أولمبياكوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%88%D9%86%D9%8A%D9%86-%D9%8A%D8%B9%D9%88%D8%B6-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D9%83%D9%88%D8%B3/blt481882dc294e2317)
+- **موعد مباراة ريال مدريد ضد أولمبياكوس بأبطال أوروبا والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/24/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D9%83%D9%88%D8%B3)
+- **ريال مدريد يستفيق على كابوس الإصابات... مُدافع واحد في كتيبة ألونسو**: [Link](https://www.alaraby.co.uk/sport/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%AA%D9%81%D9%8A%D9%82-%D8%B9%D9%84%D9%89-%D9%83%D8%A7%D8%A8%D9%88%D8%B3-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D9%85%D9%8F%D8%AF%D8%A7%D9%81%D8%B9-%D9%88%D8%A7%D8%AD%D8%AF-%D9%81%D9%8A-%D9%83%D8%AA%D9%8A%D8%A8%D8%A9-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88)
+
+
+### paris-sg – tottenham (N/A, Wed, 26 Nov 2025 11:10:00 -0800)
+
+- **Paris SG. Ousmane Dembélé présent dans le groupe parisien pour affronter Tottenham . Sport**: [Link](https://redon.maville.com/sport/detail_-paris-sg.-ousmane-dembele-present-dans-le-groupe-parisien-pour-affronter-tottenham-_-7079752_actu.Htm)
+- **Après l'accroc face au Bayern, le PSG reçoit Tottenham avec l'ambition d'éloigner pour de bon le suspense de la qualification**: [Link](https://www.lequipe.fr/Football/Article/Apres-l-accroc-face-au-bayern-le-psg-recoit-tottenham-avec-l-ambition-d-eloigner-pour-de-bon-le-suspense-de-la-qualification/1612285)
+- **Ousmane Dembélé, l’annonce inquiétante**: [Link](https://www.football.fr/ligue-des-champions/ousmane-dembele-lannonce-inquietante-786198.html)
+
+
+### liverpool – psv eindhoven (N/A, Wed, 26 Nov 2025 11:10:00 -0800)
+
+- **In full: Arne Slot's programme notes for Liverpool v PSV Eindhoven**: [Link](https://www.liverpoolfc.com/news/full-arne-slots-programme-notes-liverpool-v-psv-eindhoven)
+- **Liverpool must avoid 9-year low and why Anfield offers reason for optimism**: [Link](https://www.thisisanfield.com/2025/11/liverpool-must-avoid-9-year-low-psv/)
+- **Liverpool vs PSV: Lineups, Odds, and Bet Builder Tips**: [Link](https://www.oddschecker.com/tips/football/20251126-liverpool-vs-psv-lineups-odds-and-bet-builder-tips)
+
+
+### بي اس جي ضد توتنهام (N/A, Wed, 26 Nov 2025 11:10:00 -0800)
+
+- **بمهاجم وهمي.. إنريكي يرسم خطة باريس لإسقاط توتنهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D9%88%D9%87%D9%85%D9%8A--%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%B1%D8%B3%D9%85-%D8%AE%D8%B7%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%84%D8%A7%D9%95%D8%B3%D9%82%D8%A7%D8%B7-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85/bltbcf22590b16466af)
+- **دوري أبطال أوروبا: ديمبيليه قد يشارك مع سان جرمان في مواجهة توتنهام**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251125-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%AF%D9%8A%D9%85%D8%A8%D9%8A%D9%84%D9%8A%D9%87-%D9%82%D8%AF-%D9%8A%D8%B4%D8%A7%D8%B1%D9%83-%D9%85%D8%B9-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85)
+- **500 مباراة لـ"الكابيتانو" بقميص PSG**: [Link](https://24.ae/article/932022/500-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%80-%D8%A7%D9%84%D9%83%D8%A7%D8%A8%D9%8A%D8%AA%D8%A7%D9%86%D9%88-%D8%A8%D9%82%D9%85%D9%8A%D8%B5-psg)
+
+
+### pafos fc (N/A, Wed, 26 Nov 2025 10:40:00 -0800)
+
+- **Monaco ahead; Copenhagen lead; Arsenal take on Bayern later**: [Link](https://onefootball.com/it/notizie/monaco-ahead-copenhagen-lead-arsenal-take-on-bayern-later-42008591)
+- **David Luiz scores first Champions League since 2017 at age 38 for Pafos**: [Link](https://www.bastillepost.com/global/article/5405468-david-luiz-scores-first-champions-league-since-2017-at-age-38-for-pafos)
+- **First goal in eight years: CL legend powers back into the spotlight**: [Link](https://ca.sports.yahoo.com/news/first-goal-eight-years-cl-182300613.html)
+
+
 ### david luiz (N/A, Wed, 26 Nov 2025 10:50:00 -0800)
 
 - **Monaco ahead; Copenhagen lead; Arsenal take on Bayern later**: [Link](https://onefootball.com/it/notizie/monaco-ahead-copenhagen-lead-arsenal-take-on-bayern-later-42008591)
