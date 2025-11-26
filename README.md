@@ -1,3 +1,31 @@
+### paphos – monaco (N/A, Wed, 26 Nov 2025 09:10:00 -0800)
+
+- **UEFA Champions League (MD5): Where to watch Paphos vs AS Monaco today?**: [Link](https://foot-africa.com/en/news/uefa-champions-league-md5-where-to-watch-paphos-vs-as-monaco-today-977351/)
+- **Monaco predicted XI v Pafos: Denis Zakaria back, Krépin Diatta ineligible**: [Link](https://www.getfootballnewsfrance.com/2025/monaco-predicted-xi-v-pafos-denis-zakaria-back-krepin-diatta-ineligible/)
+- **Where to stream Pafos vs. AS Monaco Champions League match free today**: [Link](https://www.masslive.com/tv/2025/11/where-to-stream-pafos-vs-as-monaco-champions-league-match-free-today.html)
+
+
+### كأس العرب (N/A, Wed, 26 Nov 2025 09:10:00 -0800)
+
+- **رسميا.. قناة مفتوحة تنقل مباريات بطولة كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D9%82%D9%86%D8%A7%D8%A9-%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D8%AA%D9%86%D9%82%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/bltd28fdb43370b27c9)
+- **"زماني" و"مكاني" إطلاق الأغنيتين الرسميتين لبطولة كأس العرب**: [Link](https://www.aljazeera.net/sport/2025/11/26/%D9%85%D8%AD%D9%85%D8%AF-%D9%85%D9%86%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D8%BA%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **"جحا" تعويذة كأس العرب بدولة قطر**: [Link](https://www.hespress.com/%D8%AC%D8%AD%D8%A7-%D8%AA%D8%B9%D9%88%D9%8A%D8%B0%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A8%D8%AF%D9%88%D9%84%D8%A9-%D9%82%D8%B7%D8%B1-1660201.html)
+
+
+### غينيا بيساو (N/A, Wed, 26 Nov 2025 09:10:00 -0800)
+
+- **عسكريون يعلنون السيطرة الكاملة على غينيا بيساو**: [Link](https://www.aljazeera.net/news/2025/11/26/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D9%88%D9%86-%D9%8A%D8%B9%D9%84%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%B3%D9%8A%D8%B7%D8%B1%D8%A9)
+- **انقلاب عسكري في غينيا بيساو واعتقال الرئيس**: [Link](https://www.skynewsarabia.com/world/1836518-%D8%A7%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A8%D9%8A%D8%B3%D8%A7%D9%88-%D9%88%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D8%A7%D9%84%D8%B1%D9%8A%D9%94%D9%8A%D8%B3)
+- **غينيا بيساو: عسكريون يعلنون عزل الرئيس و"السيطرة الكاملة" على البلاد**: [Link](https://www.france24.com/ar/%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/20251126-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D9%86%D8%A7%D8%B1-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%82%D8%B5%D8%B1-%D8%A7%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D9%8A-%D8%A7%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A8%D9%8A%D8%B3%D8%A7%D9%88-%D8%B1%D8%B5%D8%A7%D8%B5-%D9%87%D9%84%D8%B9-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D9%8A%D8%A9)
+
+
+### guinée bissau (N/A, Wed, 26 Nov 2025 09:10:00 -0800)
+
+- **Guinée-Bissau : le président Embaló arrêté, des militaires disent « prendre le contrôle total du pays »**: [Link](https://www.jeuneafrique.com/1743734/politique/guinee-bissau-umaro-sissoco-embalo-se-dit-victime-dun-coup-detat/)
+- **Coup d'état en Guinée-Bissau, le président Embalo arrêté ?**: [Link](https://www.dw.com/fr/guinee-bissau/a-74908645)
+- **Présidentielle en Guinée-Bissau: des tirs entendus près du palais présidentiel**: [Link](https://afrique.le360.ma/politique/presidentielle-en-guinee-bissau-des-tirs-entendus-pres-du-palais-presidentiel_L47IGNUY4JHXFP5CAUROE3YQHM/)
+
+
 ### maes rappeur (N/A, Wed, 26 Nov 2025 08:50:00 -0800)
 
 - **Le rappeur Maes condamné à 7 ans de prison ferme au Maroc**: [Link](https://www.liberation.fr/societe/police-justice/le-rappeur-maes-condamne-a-7-ans-de-prison-ferme-au-maroc-20251126_ISJRZCSOHZGVBJJW6AT5T64ZNM/)
