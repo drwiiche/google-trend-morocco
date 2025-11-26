@@ -1,3 +1,31 @@
+### lennart karl (N/A, Wed, 26 Nov 2025 13:00:00 -0800)
+
+- **Lennart Karl: Bayern teen who Lothar Matthaus wants at World Cup**: [Link](https://www.thetimes.com/sport/football/article/lennart-karl-bayern-munich-arsenal-l9np7l9ns)
+- **Lothar Matthäus makes case for Bayern Munich and Germany to unleash Lennart Karl; Revenge game for Harry Kane?; Champions League predictions; and MORE!**: [Link](https://www.bavarianfootballworks.com/transfer-rumors/150482/matthaus-bayern-munich-germany-karl-kane-arsenal-champions-league-predictions)
+- **Arsenal transfer audition ready as German ‘gem’ breaks ANOTHER record – ‘Extraordinary stuff’**: [Link](https://onefootball.com/it/notizie/arsenal-transfer-audition-ready-as-german-gem-breaks-another-record-extraordinary-stuff-41996122)
+
+
+### ترتيب دوري ابطال اوروبا (N/A, Wed, 26 Nov 2025 13:00:00 -0800)
+
+- **سقوط مانشستر سيتي وفوز دورتموند ويوفنتوس ونابولي ومارسيليا بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2025/11/26/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **ماذا حدث في الجولة الأخيرة من دوري أبطال أوروبا؟ تعرف على صراعات الأقوياء**: [Link](https://alsaudia-365.com/news5024117.html)
+- **دوري الابطال: افضل لاعب في كل مباراة من اليوم الاول للجولة الخامسة**: [Link](https://www.elsport.com/news/show/801708/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%81%D8%B6%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%88%D9%84-%D9%84%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7)
+
+
+### kylian mbappé (N/A, Wed, 26 Nov 2025 12:50:00 -0800)
+
+- **Follow the Champions League's Matchday 5 LIVE here**: [Link](https://www.flashscore.com/news/champions-league-live-matchday-5-scores-results-team-news-and-more/Akp1dEEr/)
+- **Champions League: Kylian Mbappé scores the second-fastest hat-trick ever 🔥**: [Link](https://sports.yahoo.com/articles/champions-league-kylian-mbapp-scores-203800993.html)
+- **Kylian Mbappé manages feat for the first time with Real Madrid during Olympiacos clash**: [Link](https://getfootballnewsspain.com/kylian-mbappe-manages-feat-for-the-first-time-with-real-madrid-during-olympiacos-clash/)
+
+
+### psv (N/A, Wed, 26 Nov 2025 12:50:00 -0800)
+
+- **Liverpool begint zonder topaankoop Isak en zieke Alisson aan CL-duel met PSV**: [Link](https://www.nu.nl/voetbal/6377315/liverpool-begint-zonder-topaankoop-isak-en-zieke-alisson-aan-cl-duel-met-psv.html)
+- **Bizarre actie Virgil van Dijk zorgt voor complete gekte bij PSV-fans: Nederlander gaat volledig uit zijn plaat**: [Link](https://sportnieuws.nl/voetbal/nieuws/bizarre-actie-virgil-van-dijk-zorgt-voor-complete-gekte-bij-psv-fans-nederlander-gaat-volledig-uit-zijn-plaat-2025112620101370167/)
+- **Bosz wuift voorsprong op Slot resoluut weg: 'Daar ben ik helemaal niet mee bezig'**: [Link](https://www.voetbalzone.nl/nieuws/bosz-wuift-voorsprong-op-slot-resoluut-weg-daar-ben-ik-helemaal-niet-mee-bezig/blt33d4ad7198ec75a3)
+
+
 ### bet 365 (N/A, Wed, 26 Nov 2025 12:40:00 -0800)
 
 - **Wagering Platforms Offering MO Promotions, Charitable Donations**: [Link](https://www.ingame.com/missouri-launch-plans-operators/)
