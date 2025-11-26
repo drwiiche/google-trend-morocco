@@ -1,3 +1,17 @@
+### driouech (N/A, Wed, 26 Nov 2025 14:30:00 -0800)
+
+- **Uiterst pijnlijk spreekkoor over Arne Slot klinkt in minuut 87 heel erg duidelijk op Anfield**: [Link](https://www.voetbalzone.nl/nieuws/uiterst-pijnlijk-spreekkoor-over-arne-slot-klinkt-in-minuut-87-heel-erg-duidelijk-op-anfield/bltc0f9dab06fe6dcbd)
+- **PSV-fans schelden Arne Slot massaal uit en zingen pijnlijk lied**: [Link](https://www.fcupdate.nl/voetbalnieuws/2025/11/psv-fans-schelden-arne-slot-uit-en-zingen-lied-neem-je-rotzooi-mee)
+- **PSV'er Driouech 'droomt nog' na twee treffers tegen Liverpool**: [Link](https://www.rtl.nl/nieuws/sport/artikel/5541000/psver-driouech-droomt-nog-na-twee-treffers-tegen-liverpool)
+
+
+### stranger things (N/A, Wed, 26 Nov 2025 14:30:00 -0800)
+
+- **Stranger Things: All you need to know about season five**: [Link](https://www.bbc.com/news/articles/cx2evnd6zlyo)
+- **Stranger Things Creators Reveal the 4 Episodes They Recommend Rewatching Ahead of Season 5**: [Link](https://www.ign.com/articles/stranger-things-creators-reveal-the-4-episodes-they-recommend-rewatching-ahead-of-season-5)
+- **Get Hyped with One Last Fiery Trailer Before Stranger Things 5 Is Upon Us**: [Link](https://www.netflix.com/tudum/articles/stranger-things-5-hype-trailer)
+
+
 ### champions league standings (N/A, Wed, 26 Nov 2025 14:00:00 -0800)
 
 - **Champions League: Table, fixtures, results and which teams are on course for qualifying for the knockout phase**: [Link](https://www.skysports.com/football/news/11095/13474811/champions-league-table-fixtures-results-and-which-teams-are-on-course-for-qualifying-for-the-knockout-phase)
