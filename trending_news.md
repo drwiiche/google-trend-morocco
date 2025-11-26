@@ -1,3 +1,45 @@
+### arsenal – bayern (N/A, Wed, 26 Nov 2025 11:20:00 -0800)
+
+- **Preview: Arsenal v Bayern Munich | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-arsenal-v-bayern-munich-0)
+- **Harry Kane Aims Sly Dig at Arsenal Before Champions League Clash**: [Link](https://www.fotmob.com/embed/news/01kazsahxkah/harry-kane-aims-sly-dig-at-arsenal-before-champions-league-clash)
+- **Jens Lehmann: Bayern Munich can emulate Arsenal’s Invincibles and go unbeaten this season**: [Link](https://www.bavarianfootballworks.com/bayern-munich-champions-league/150655/jens-lehmann-bayern-munich-can-emulate-arsenals-invincibles-and-go-unbeaten-this-season)
+
+
+### atlético madrid – inter (N/A, Wed, 26 Nov 2025 11:20:00 -0800)
+
+- **Report – Atletico Madrid Manager Must Take Substantial Pay Cut To Take Charge Of Inter Milan In The Future**: [Link](https://sempreinter.com/2025/11/26/diego-simeone-massive-pay-cut-inter-milan/)
+- **Antoine Griezmann: Atletico Madrid’s Relentless Engine Ahead of Inter Showdown**: [Link](https://azat.tv/en/antoine-griezmann-atletico-madrid-engine-inter-champions-league/)
+- **Official Starting Lineups – Atletico Madrid Vs Inter Milan: Bonny & Zielinski Start**: [Link](https://onefootball.com/en/news/official-starting-lineups-atletico-madrid-vs-inter-milan-bonny-zielinski-start-42008983)
+
+
+### آرسنال ضد البايرن (N/A, Wed, 26 Nov 2025 11:20:00 -0800)
+
+- **الذكاء الاصطناعي يتوقع نتيجة قمة آرسنال وبايرن ميونخ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%82%D9%85%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE/blt0d69fce99d6e29e8)
+- **موعد مباراة أرسنال ضد بايرن ميونخ بأبطال أوروبا والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/25/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE)
+- **ملخص ما قدمه مارتينيللي في دوري الأبطال هذا الموسم**: [Link](https://hihi2.com/2025/11/26/p3530135.html)
+
+
+### ليفربول ضد بي اس في (N/A, Wed, 26 Nov 2025 11:20:00 -0800)
+
+- **جاكبو: سلوت يتحمل مسؤولية ما يحدث لليفربول.. وهذا موقف اللاعبين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%A7%D9%83%D8%A8%D9%88-%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D8%AA%D8%AD%D9%85%D9%84-%D9%85%D8%B3%D9%88%D9%94%D9%88%D9%84%D9%8A%D8%A9-%D9%85%D8%A7-%D9%8A%D8%AD%D8%AF%D8%AB-%D9%84%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt8232735416acb06a)
+- **ليفربول يسعى لتخطّي عقبة آيندهوفن**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%AA%D8%AE%D8%B7-%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D8%A2%D9%8A%D9%86%D8%AF%D9%87%D9%88%D9%81%D9%86-2025-11-26)
+- **محمد صلاح يطارد الأرقام القياسية قبل مواجهة آيندهوفن في دوري أبطال أوروبا**: [Link](https://www.algomhor.com/319562)
+
+
+### psg vs tottenham (N/A, Wed, 26 Nov 2025 11:20:00 -0800)
+
+- **Tottenham Get Revealing Words From PSG Boss Luis Enrique**: [Link](https://psgtalk.com/2025/11/tottenham-revealing-words-psg-luis-enrique/)
+- **UCL Preview: PSG welcome Spurs, Monaco head to Pafos**: [Link](https://ligue1.com/en/articles/l1_article_3729-ucl-preview-psg-welcome-spurs-monaco-head-to-pafos)
+- **Relive PSG's UEFA Super Cup victory over Tottenham ahead of the showdown in Paris**: [Link](https://tribuna.com/en/blogs/relive-psgs-uefa-super-cup-victory-over-tottenham-ahead-of-t/)
+
+
+### أتلتيكو مدريد ضد الإنتر (N/A, Wed, 26 Nov 2025 11:20:00 -0800)
+
+- **شبح الغيابات يحاصر إنتر قبل مواجهة أتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B4%D8%A8%D8%AD-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%8A%D8%AD%D8%A7%D8%B5%D8%B1-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt8fd170e8f2b938b6)
+- **دوري أبطال أوروبا: إنتر لتعويض هزيمة الديربي في أول اختبار قاري**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251125-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A5%D9%86%D8%AA%D8%B1-%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D9%82%D8%A7%D8%B1%D9%8A)
+- **قمم دوري أبطال أوروبا: صراع النقاط يشتعل بين الكبار**: [Link](https://www.alaraby.co.uk/sport/%D9%82%D9%85%D9%85-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D9%8A%D8%B4%D8%AA%D8%B9%D9%84-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%83%D8%A8%D8%A7%D8%B1)
+
+
 ### olympiakos – real madrid (N/A, Wed, 26 Nov 2025 11:10:00 -0800)
 
 - **Three options for Real Madrid to partner Raul Asencio in defence vs Olympiacos amid injury crisis**: [Link](https://madriduniversal.com/three-options-for-real-madrid-to-partner-raul-asencio-in-defence-vs-olympiacos-amid-injury-crisis/)
