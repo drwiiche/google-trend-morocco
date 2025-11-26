@@ -1,3 +1,10 @@
+### araujo (N/A, Tue, 25 Nov 2025 13:20:00 -0800)
+
+- **Hansi Flick 'positive about the future'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4408932/hansi-flick-positive-about-the-future)
+- **What Barcelona and Hansi Flick must learn from Champions League humbling against Chelsea**: [Link](https://www.barcablaugranes.com/barcelona-uefa-champions-league/106678/what-barcelona-and-hansi-flick-must-learn-from-champions-league-humbling-against-chelsea)
+- **Barcelona manager Hansi Flick critical of Ronald Araujo following red card against Chelsea – “Not the right move”**: [Link](https://www.football-espana.net/2025/11/25/chelsea-barcelona-champions-league-hansi-flick-reaction)
+
+
 ### classement champions league (N/A, Tue, 25 Nov 2025 13:50:00 -0800)
 
 - **LdC : le classement complet**: [Link](https://www.footmercato.net/a69496734458121474-ldc-le-classement-de-la-phase-de-ligue)
