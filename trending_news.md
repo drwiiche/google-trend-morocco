@@ -1,3 +1,24 @@
+### hong kong (N/A, Wed, 26 Nov 2025 14:50:00 -0800)
+
+- **Death toll in Hong Kong fire rises to 44 with 279 still missing, authorities say**: [Link](https://www.bbc.com/news/live/c2emg1kj1klt)
+- **Developing | 36 dead, 279 missing in Hong Kong housing estate blaze**: [Link](https://www.scmp.com/news/hong-kong/society/article/3334217/major-fire-hong-kongs-tai-po-leaves-2-severely-burned-residents-trapped)
+- **Hong Kong buildings blaze kills 36, nearly 300 missing**: [Link](https://www.reuters.com/world/china/fire-engulfs-residential-building-hong-kong-2025-11-26/)
+
+
+### real madrid vs olympiacos (N/A, Wed, 26 Nov 2025 13:30:00 -0800)
+
+- **Why Eduardo Camavinga was taken off at half-time in Real Madrid's meeting with Olympiacos**: [Link](https://getfootballnewsspain.com/why-eduardo-camavinga-was-taken-off-at-half-time-in-real-madrids-meeting-with-olympiacos/)
+- **Mbappe scores four as Real Madrid edge Olympiacos to end winless run**: [Link](https://www.france24.com/en/sport/20251126-mbappe-real-madrid-olympiacos)
+- **Mbappé, MVP of the match: “My teammates give me lots of great passes to score goals”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/mvp-del-partido-26-11-2025)
+
+
+### دوري ابطال اوروبا (N/A, Wed, 26 Nov 2025 12:40:00 -0800)
+
+- **مراكز خصوم برشلونة القادمين في دوري ابطال اوروبا**: [Link](https://hihi2.com/2025/11/27/p3530989.html)
+- **برشلونة ينظر في مرآة باريس لتجاوز أزمته**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1353684/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%86%D8%B8%D8%B1-%D9%81%D9%8A-%D9%85%D8%B1%D8%A2%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%84%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%A3%D8%B2%D9%85%D8%AA)
+- **ماركا: أخطاء متكررة يدفع ثمنها برشلونة في دوري أبطال أوروبا**: [Link](https://www.btolat.com/news/386079)
+
+
 ### psg tottenham (N/A, Wed, 26 Nov 2025 12:40:00 -0800)
 
 - **Champions League LIVE: Arsenal vs Bayern Munich, Liverpool vs PSV & PSG v Tottenham scores & updates**: [Link](https://www.bbc.com/sport/football/live/c93dkvzgn8et)
