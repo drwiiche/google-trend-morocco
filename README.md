@@ -1,3 +1,31 @@
+### flashscore (N/A, Wed, 26 Nov 2025 12:30:00 -0800)
+
+- **Fifa to keep top seeds apart in World Cup draw**: [Link](https://www.bbc.com/sport/football/articles/cvg84knn2p5o)
+- **Argentina and Messi can avoid Spain and Lamine Yamal until the World Cup final**: [Link](https://www.marca.com/en/world-cup/2025/11/26/6926fb1922601d5c0e8b45b7.html)
+- **Potential USMNT 2026 World Cup Group Would Destroy Confidence**: [Link](https://www.fotmob.com/embed/news/01kayrgm2mac/potential-usmnt-2026-world-cup-group-would-destroy-confidence)
+
+
+### liverpool (N/A, Wed, 26 Nov 2025 12:30:00 -0800)
+
+- **Liverpool FC statement**: [Link](https://www.liverpoolfc.com/news/liverpool-fc-statement-10)
+- **Paul Doyle pleads guilty to 31 Liverpool parade charges**: [Link](https://www.bbc.com/news/articles/cde6kne1ykno)
+- **Paul Doyle's life and career from Royal Marines to crypto scheme and 'ethical hacker'**: [Link](https://www.facebook.com/theliverpoolecho/posts/paul-doyles-life-and-career-from-royal-marines-to-crypto-scheme-and-ethical-hack/1190457489847192/)
+
+
+### sporting – club brugge (N/A, Wed, 26 Nov 2025 12:30:00 -0800)
+
+- **Sporting vs Club Brugge live tonight, Portuguese hosts refuse defeat after shocking prediction from bookmakers**: [Link](https://www.red94.net/news/58759-sporting-faces-club-brugge-tonight-in-crucial-champions-league-clash/)
+- **Live: Sporting de Portugal vs Brujas in UEFA Champions League Today**: [Link](https://www.el-balad.com/6777354)
+- **Sporting CP vs Club Brugge KV: Predictions, Betting odds, Lineups, Preview**: [Link](https://www.coral.co.uk/en/news/match-preview-sporting-cp-club-brugge-kv-uefa-champions-league-gameweek-5/)
+
+
+### rma (N/A, Wed, 26 Nov 2025 12:30:00 -0800)
+
+- **American Heart Association, IVI RMA, and AI by HER Launch Global Grant Programs for Women’s Health**: [Link](https://femtechinsider.com/american-heart-association-ivi-rma-and-ai-by-her-launch-grant-programs-for-womens-health/)
+- **Elche 2-2 Real Madrid: Jude Bellingham shines as visitors go top of La Liga**: [Link](https://www.bbc.com/sport/football/live/c7v82yep4z4t)
+- **DISCUSSION: Why Have Real Madrid Regressed?**: [Link](https://www.managingmadrid.com/videos/101042/discussion-why-have-real-madrid-regressed)
+
+
 ### yalla kora (N/A, Wed, 26 Nov 2025 12:20:00 -0800)
 
 - **تحولات سعرية مفاجئة لـ 10 نجوم بفانتازي يلا كورة بعد الجولة 12**: [Link](https://iqraa24.com/news/%D8%AA%D8%AD%D9%88%D9%84%D8%A7%D8%AA-%D8%B3%D8%B9%D8%B1%D9%8A%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D9%84%D9%80-10-%D9%86%D8%AC%D9%88%D9%85-%D8%A8%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A/)
