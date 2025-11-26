@@ -1,3 +1,66 @@
+### yalla kora (N/A, Wed, 26 Nov 2025 12:20:00 -0800)
+
+- **تحولات سعرية مفاجئة لـ 10 نجوم بفانتازي يلا كورة بعد الجولة 12**: [Link](https://iqraa24.com/news/%D8%AA%D8%AD%D9%88%D9%84%D8%A7%D8%AA-%D8%B3%D8%B9%D8%B1%D9%8A%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D9%84%D9%80-10-%D9%86%D8%AC%D9%88%D9%85-%D8%A8%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A/)
+- **الصالح نيوز : فانتازي يلا كورة.. تغير أسعار 10 لاعبين بعد الجولة 12**: [Link](https://ar.saleh13.com/6231/)
+- **مساحات سبورت : فانتازي يلا كورة.. موقف صلاح من قائمة الأكثر مبيعا في بريميرليج**: [Link](https://news.mes7at.com/60676/)
+
+
+### bet365 (N/A, Wed, 26 Nov 2025 12:20:00 -0800)
+
+- **Wagering Platforms Offering MO Promotions, Charitable Donations**: [Link](https://www.ingame.com/missouri-launch-plans-operators/)
+- **Missouri sports betting: Launch updates and the best sportsbooks for pre-registrations**: [Link](https://www.independent.co.uk/sport/us-sport/missouri-sports-betting-november-26-b2859136.html)
+- **FanDuel Missouri Promo Code: $400 In Bonus Bets Guaranteed With Early Sign Up**: [Link](https://ftw.usatoday.com/story/sports/2025/11/25/fanduel-missouri-promo-code-400-bonus-bets/87360121007/)
+
+
+### real madrid match (N/A, Wed, 26 Nov 2025 12:20:00 -0800)
+
+- **Olympiakos - Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a1948340164537714378-olympiakos-real-madrid-les-compositions-officielles)
+- **Brahim Díaz remplaçant, Ayoub El Kaabi mène l'attaque de l'Olympiacos contre le Real Madrid**: [Link](https://m.elbotola.com/fr/article/2025-11-26-18-58-600.html)
+- **LdC: Thibaut Courtois absent contre l’Olympiakos**: [Link](https://fr.hespress.com/451200-ldc-thibaut-courtois-absent-contre-lolympiakos.html)
+
+
+### eintracht francfort – atalanta (N/A, Wed, 26 Nov 2025 12:20:00 -0800)
+
+- **Lookman and Onyedika seek UCL survival for their clubs**: [Link](https://punchng.com/lookman-onyedika-seek-ucl-survival/)
+- **Eintracht Frankfurt faces Atalanta tonight and their entire Champions League fate depends on what happens next**: [Link](https://www.red94.net/news/94217-eintracht-frankfurt-faces-atalanta-tonight-in-crucial-champions-league-clash-as/)
+- **Palladino: ‘Attack is the best form of defence for Atalanta’**: [Link](https://football-italia.net/palladino-attack-best-form-of-defence-atalanta/)
+
+
+### ريال مدريد اليوم (N/A, Wed, 26 Nov 2025 12:20:00 -0800)
+
+- **تشكيلة ريال مدريد المتوقعة من صحيفة الــAS ..! “ بطيخ “**: [Link](https://hihi2.com/2025/11/26/p3529823.html)
+- **عقب موافقة اللاعب.. ريال مدريد يحسم أولى صفقات الصيف**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%85%D9%88%D8%A7%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AD%D8%B3%D9%85-%D8%B5%D9%81%D9%82%D8%AA%D9%87-%D8%A7%D9%84%D8%B5%D9%8A%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%89/bltb55db34ad9841ad7)
+- **إجمالي مساهمات نيكو باز مع كومو هذا الموسم**: [Link](https://hihi2.com/2025/11/25/p3527322.html)
+
+
+### bitcoin price (N/A, Wed, 26 Nov 2025 12:20:00 -0800)
+
+- **Bitcoin is a 'strong relative buy' with the sell-off nearly saturated, K33 says**: [Link](https://www.theblock.co/post/380537/bitcoin-strong-relative-buy-sell-off-near-saturation-area-k33)
+- **Correlation no more: Nasdaq’s comeback leaves bitcoin in the dust**: [Link](https://www.msn.com/en-us/money/savingandinvesting/correlation-no-more-nasdaq-s-comeback-leaves-bitcoin-in-the-dust/ar-AA1RcsW4)
+- **US Crypto News: Top Analyst Says Bitcoin Sell-Off Is Over**: [Link](https://beincrypto.com/bitcoin-sell-off-could-be-over-us-crypto-news/)
+
+
+### yalla shoot (N/A, Wed, 26 Nov 2025 12:10:00 -0800)
+
+- **جاكبو: سلوت يتحمل مسؤولية ما يحدث لليفربول.. وهذا موقف اللاعبين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%A7%D9%83%D8%A8%D9%88-%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D8%AA%D8%AD%D9%85%D9%84-%D9%85%D8%B3%D9%88%D9%94%D9%88%D9%84%D9%8A%D8%A9-%D9%85%D8%A7-%D9%8A%D8%AD%D8%AF%D8%AB-%D9%84%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt8232735416acb06a)
+- **سلوت قبل مواجهة أيندهوفن: ليفربول يعاني من أزمة دفاعية سخيفة**: [Link](https://www.hesport.com/%D8%B3%D9%84%D9%88%D8%AA-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%8A%D9%86%D8%AF%D9%87%D9%88%D9%81%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%B9%D8%A7%D9%86-414721.html)
+- **سلوت: لا أجد عذرًا كافيًا لأداء ليفربول والثقة ليست مشكلتنا**: [Link](https://arabic.sport360.com/article/football/%D9%83%D8%B1%D8%A9-%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9/1353502/%D8%B3%D9%84%D9%88%D8%AA-%D9%84%D8%A7-%D8%A3%D8%AC%D8%AF-%D8%B9%D8%B0%D8%B1%D9%8B%D8%A7-%D9%83%D8%A7%D9%81%D9%8A%D9%8B%D8%A7-%D9%84%D8%A3%D8%AF%D8%A7%D8%A1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84)
+
+
+### real madrid (N/A, Wed, 26 Nov 2025 12:10:00 -0800)
+
+- **Olympiacos - Real Madrid, en directo: última hora de la fase liga de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/olympiacos-real-madrid-en-directo-ultima-hora-de-la-fase-liga-de-la-champions-league-hoy-en-vivo-f202511-d/)
+- **Convocatoria del Real Madrid contra el Olympiacos**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-olympiacos-25-11-2025)
+- **Olympiacos - Real Madrid: No quieren una tragedia griega**: [Link](https://www.marca.com/futbol/champions-league/2025/11/26/olympiacos-real-madrid-quieren-tragedia-griega.html)
+
+
+### madrid vs (N/A, Wed, 26 Nov 2025 12:10:00 -0800)
+
+- **Atlético de Madrid - Inter de Milán en directo | Los rojiblancos buscan enderezarse en la Champions ante un Inter en racha**: [Link](https://elpais.com/deportes/2025-11-26/atletico-de-madrid-inter-de-milan-en-directo-el-partido-de-la-champions-league-en-vivo.html)
+- **Giuliano, Cardoso, Gallagher Y Ruggeri, En El Once De Simeone Contra El Inter**: [Link](https://www.lared1061.com/futbol-internacional/giuliano-cardoso-gallagher-y-ruggeri-en-el-once-de-simeone-contra-el-inter/)
+- **El algodón en casa**: [Link](https://onefootball.com/es/noticias/el-algodon-en-casa-42006171)
+
+
 ### real madrid vs (N/A, Wed, 26 Nov 2025 12:00:00 -0800)
 
 - **Olympiacos - Real Madrid, en directo: última hora de la fase liga de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/olympiacos-real-madrid-en-directo-ultima-hora-de-la-fase-liga-de-la-champions-league-hoy-en-vivo-f202511-d/)
