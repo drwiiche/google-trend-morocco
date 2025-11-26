@@ -1,3 +1,16 @@
+### bouchra karboubi (N/A, Wed, 26 Nov 2025 06:30:00 -0800)
+
+- **Bouchra Karboubi Retires Over ‘Harmful Practices’ in Arbitration Directorate**: [Link](https://www.moroccoworldnews.com/2025/11/269515/bouchra-karboubi-retires-over-harmful-practices-in-arbitration-directorate/)
+- **CAN 2025: CAF unveils list of selected referees**: [Link](https://foot-africa.com/en/news/can-2025-caf-unveils-list-of-selected-referees-977411/)
+- **AFCON 2025: Top African Referee Angrily Retires After Shock Exclusion**: [Link](https://bsnsports.com.ng/post/AFCON-2025--Top-African-Referee-Angrily-Retires-After-Shock-Exclusion)
+
+
+### maes (N/A, Wed, 26 Nov 2025 04:50:00 -0800)
+
+- **Morocco Sentences Rapper Maes to Seven-Year Prison Term**: [Link](https://www.moroccoworldnews.com/2025/11/269535/morocco-sentences-rapper-maes-to-seven-year-prison-term/)
+- **Morocco Jails French Rapper Maes For Kidnapping Bid**: [Link](https://www.channelstv.com/2025/11/26/morocco-jails-french-rapper-maes-for-kidnapping-bid/)
+
+
 ### un si grand soleil (N/A, Wed, 26 Nov 2025 06:40:00 -0800)
 
 
