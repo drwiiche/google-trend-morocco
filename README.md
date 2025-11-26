@@ -1,3 +1,10 @@
+### استقلال دوشنبه ضد النصر (N/A, Wed, 26 Nov 2025 05:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة جوا والنصر في دوري أبطال آسيا "2" 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D8%AF%D9%88%D8%B4%D9%86%D8%A8%D9%87-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-2-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt97ece6943448145f)
+- **النصر يحل ضيفاً على استقلال دوشنبة الطاجيكي**: [Link](https://www.al-jazirah.com/2025/20251126/sp8.htm)
+- **بقرار من مدرب النصر...رونالدو غائب بدوري أبطال آسيا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%86-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%86%D8%B5%D8%B1%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%BA%D8%A7%D8%A6%D8%A8-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7/12101)
+
+
 ### marouane chamakh (N/A, Wed, 26 Nov 2025 04:20:00 -0800)
 
 - **Quand le nouveau maire de New York Zohran Mamdani se réveille, il « pense à Sébastien Squillaci, Pascal Cygan et Marouane Chamakh »**: [Link](https://www.lequipe.fr/Football/Actualites/Quand-le-nouveau-maire-de-new-york-zohran-mamdani-se-reveille-il-pense-a-sebastien-squillaci-pascal-cygan-et-marouane-chamakh/1612261)
