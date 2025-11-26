@@ -1,3 +1,17 @@
+### coupe arabe (N/A, Wed, 26 Nov 2025 10:30:00 -0800)
+
+- **Coupe Arabe 2025 : la Palestine parmi les qualifiés**: [Link](https://www.footmercato.net/a3406450971309356870-coupe-arabe-2025-la-palestine-parmi-les-qualifies)
+- **Coupe arabe des Nations 2025: les Lions fixés sur tous leurs adversaires**: [Link](https://sport.le360.ma/football/lions-atlas/coupe-arabe-des-nations-2025-les-lions-fixes-sur-tous-leurs-adversaires_LFHGHVA3CBHA5GUSHKJRFTTGGU/)
+- **Une prime de 7.155.000 dollars pour le vainqueur de la Coupe arabe**: [Link](https://www.horizons.dz/?p=394300)
+
+
+### كاس العرب (N/A, Wed, 26 Nov 2025 09:40:00 -0800)
+
+- **رسميا.. قناة مفتوحة تنقل مباريات بطولة كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D9%82%D9%86%D8%A7%D8%A9-%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D8%AA%D9%86%D9%82%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/bltd28fdb43370b27c9)
+- **"زماني" و"مكاني" إطلاق الأغنيتين الرسميتين لبطولة كأس العرب**: [Link](https://www.aljazeera.net/sport/2025/11/26/%D9%85%D8%AD%D9%85%D8%AF-%D9%85%D9%86%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D8%BA%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **فاطمة النعيمي: بطولة كأس العرب ستحطم أرقاما قياسية على مستوى الحضور الجماهيري**: [Link](https://www.alquds.co.uk/%D9%81%D8%A7%D8%B7%D9%85%D8%A9-%D8%A7%D9%84%D9%86%D8%B9%D9%8A%D9%85%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%B3%D8%AA%D8%AD%D8%B7%D9%85-%D8%A3%D8%B1/)
+
+
 ### paphos – monaco (N/A, Wed, 26 Nov 2025 09:10:00 -0800)
 
 - **UEFA Champions League (MD5): Where to watch Paphos vs AS Monaco today?**: [Link](https://foot-africa.com/en/news/uefa-champions-league-md5-where-to-watch-paphos-vs-as-monaco-today-977351/)
