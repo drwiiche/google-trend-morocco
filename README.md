@@ -1,3 +1,17 @@
+### marouane chamakh (N/A, Wed, 26 Nov 2025 04:20:00 -0800)
+
+- **Quand le nouveau maire de New York Zohran Mamdani se réveille, il « pense à Sébastien Squillaci, Pascal Cygan et Marouane Chamakh »**: [Link](https://www.lequipe.fr/Football/Actualites/Quand-le-nouveau-maire-de-new-york-zohran-mamdani-se-reveille-il-pense-a-sebastien-squillaci-pascal-cygan-et-marouane-chamakh/1612261)
+- **"Quand je me lève, je pense à Squillacci et Cygan" : la drôle d'anecdote du nouveau maire de New York**: [Link](https://www.rtl.fr/sport/football/quand-je-me-leve-je-pense-a-squillacci-et-cygan-la-drole-d-anecdote-du-nouveau-maire-de-new-york-7900571158)
+- **"Tous les matins quand je me lève, je pense à eux" : la folle révélation du maire de New York à propos de trois ex-joueurs de Ligue 1**: [Link](https://www.petitbleu.fr/2025/11/25/tous-les-matins-quand-je-me-leve-je-pense-a-eux-la-folle-revelation-du-maire-de-new-york-a-propos-de-trois-ex-joueurs-de-ligue-1-13073785.php)
+
+
+### stranger things season 5 (N/A, Tue, 25 Nov 2025 19:00:00 -0800)
+
+- **Stranger Things: All you need to know about season five**: [Link](https://www.bbc.com/news/articles/cx2evnd6zlyo)
+- **‘Stranger Things’ Becomes Netflix’s First Series to Have Four Seasons in the Top 10 at Once**: [Link](https://variety.com/2025/tv/news/stranger-things-netflix-four-top-10-seasons-1236591977/)
+- **4 Key Stranger Things Episodes to Watch Before Season 5 Revealed**: [Link](https://www.superherohype.com/news/640882-stranger-things-season-5-episodes-to-watch-before)
+
+
 ### mohammed ziane (N/A, Wed, 26 Nov 2025 03:50:00 -0800)
 
 - **La prison d’Al-Arjat dément la grève de la faim de Mohamed Ziane**: [Link](https://mobile.telquel.ma/instant-t/2025/11/25/la-prison-dal-arjat-dement-la-greve-de-la-faim-de-mohamed-ziane_1962412/)
