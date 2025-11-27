@@ -1,3 +1,17 @@
+### fifa plus (N/A, Thu, 27 Nov 2025 03:20:00 -0800)
+
+- **Croatia at the FIFA World Cup: Team profile and history**: [Link](https://www.fifa.com/en/tournaments/mens/worldcup/canadamexicousa2026/articles/croatia-team-profile-history)
+- **2026 FIFA World Cup profile: Croatia**: [Link](https://www.tsn.ca/soccer/fifa-world-cup/article/2026-fifa-world-cup-profile-croatia/)
+- **Cristiano Ronaldo’s reduced ban is no surprise – a World Cup without him simply won’t do - The Athletic**: [Link](https://www.nytimes.com/athletic/6837146/2025/11/25/cristiano-ronaldo-world-cup-red-card/)
+
+
+### thanksgiving (N/A, Thu, 27 Nov 2025 01:10:00 -0800)
+
+- **NFL Week 13 picks: Upset and score predictions, matchup breakdowns for every game**: [Link](https://www.nfl.com/news/nfl-week-13-picks-upset-and-score-predictions-matchup-breakdowns-for-every-game)
+- **Ex-NFL star names which teams playing on Thanksgiving need to win the most**: [Link](https://www.foxnews.com/sports/ex-nfl-star-names-which-teams-playing-thanksgiving-need-win-most)
+- **NFL Thanksgiving Day betting: Odds, tips and best bets for Thursday**: [Link](https://www.espn.com/espn/betting/story/_/id/46943185/nfl-week-13-odds-lines-spread-betting-picks-thanksgiving-day-football-preview)
+
+
 ### champions (N/A, Wed, 26 Nov 2025 14:00:00 -0800)
 
 - **Ronaldo 3rd & Mbappé 8th: Players to score in most consecutive Champions League seasons**: [Link](https://www.transfermarkt.com/ronaldo-3rd-amp-mbappe-8th-players-to-score-in-most-consecutive-champions-league-seasons/view/news/463427)
