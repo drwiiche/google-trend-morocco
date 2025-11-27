@@ -1,3 +1,17 @@
+### ليل ضد دينامو زغرب (N/A, Thu, 27 Nov 2025 10:50:00 -0800)
+
+- **حمزة إيغامان يقود هجوم ليل في الدوري الأوروبي وغياب الصحراوي و بوعدي عن التشكيلة الأساسية**: [Link](https://infosports.ma/205615/)
+- **مدرب "ليل" يشيد بعيسى ماندي عشية مواجهة د"ينامو زغرب"**: [Link](https://www.dzair-tube.dz/%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D9%8A%D9%84-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%B9%D9%8A%D8%B3%D9%89-%D9%85%D8%A7%D9%86%D8%AF%D9%8A-%D8%B9%D8%B4%D9%8A%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9/)
+- **بث مباشر.. مشاهدة مباراة ليل ودينامو زغرب في الدوري الأوروبي**: [Link](https://www.khaligyoun.com/607365/)
+
+
+### ligue europa (N/A, Thu, 27 Nov 2025 10:20:00 -0800)
+
+- **Canal+ zappe Maccabi Tel Aviv-Lyon ! Sur quelle chaine voir le match ?**: [Link](https://www.football.fr/ligue-europa/canal-zappe-maccabi-tel-aviv-lyon-sur-quelle-chaine-voir-le-match-786475.html)
+- **L’OL change de gardien, c'est mérité**: [Link](https://www.foot01.com/ol/lol-change-de-gardien-cest-merite)
+- **Ligue Europa et Ligue Europa Conférence : les matchs des clubs français le 27 novembre 2025**: [Link](https://actus.sfr.fr/sport/football/ligue-europa-et-ligue-europa-conference-les-matchs-des-clubs-francais-le-27-novembre-2025_AN-202511270004.html)
+
+
 ### incendies hong kong (N/A, Thu, 27 Nov 2025 10:30:00 -0800)
 
 - **Les images du terrible incendie à Hong Kong qui a ravagé sept tours et fait au moins 55 morts**: [Link](https://www.20minutes.fr/diaporama/diaporama-4188262-images-terrible-incendie-hong-kong-ravage-sept-tours-fait-moins-55-morts)
