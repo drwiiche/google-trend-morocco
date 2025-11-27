@@ -1,3 +1,10 @@
+### netflix (N/A, Wed, 26 Nov 2025 17:00:00 -0800)
+
+- **Social media users report Netflix outage during 'Stranger Things' premiere**: [Link](https://www.cnbc.com/2025/11/26/netflix-outage-stranger-things.html)
+- **Stranger Things release crashes Netflix despite '30% bandwidth increase'**: [Link](https://www.themirror.com/entertainment/tv/breaking-stranger-things-netflix-crash-1529100)
+- **Stranger Things 5 might crash Netflix—and 1 change could save the day**: [Link](https://showsnob.com/stranger-things-5-might-crash-netflix-change-could-save-day)
+
+
 ### hong kong (N/A, Wed, 26 Nov 2025 14:50:00 -0800)
 
 - **Death toll in Hong Kong fire rises to 44 with 279 still missing, authorities say**: [Link](https://www.bbc.com/news/live/c2emg1kj1klt)
