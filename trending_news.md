@@ -1,3 +1,10 @@
+### bayern vs (N/A, Wed, 26 Nov 2025 13:10:00 -0800)
+
+- **Arsenal 3-1 Bayern Munich: Jurrien Timber, Noni Madueke & Gabriel Martinelli score as Gunners win**: [Link](https://www.bbc.com/sport/football/live/c14vzp70zl5t)
+- **Team news: Mosquera returns for Bayern clash**: [Link](https://www.arsenal.com/news/team-news-mosquera-returns-bayern-clash)
+- **Arsenal 3-1 Bayern Munich: Champions League – as it happened**: [Link](https://www.theguardian.com/football/live/2025/nov/26/arsenal-v-bayern-munich-champions-league-live)
+
+
 ### netflix (N/A, Wed, 26 Nov 2025 17:00:00 -0800)
 
 - **Social media users report Netflix outage during 'Stranger Things' premiere**: [Link](https://www.cnbc.com/2025/11/26/netflix-outage-stranger-things.html)
