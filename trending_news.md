@@ -1,3 +1,17 @@
+### betis (N/A, Thu, 27 Nov 2025 13:00:00 -0800)
+
+- **Isco se retira tocado ante el Utrecht por una patada... ¡de Amrabat!**: [Link](https://www.marca.com/futbol/betis/2025/11/27/isco-retira-tocado-utrecht-patada-amrabat.html)
+- **Alarma Isco: el malagueño dura 9 minutos tras un golpe fortuito de Amrabat**: [Link](https://as.com/futbol/uefa/alarma-isco-el-malagueno-dura-9-minutos-tras-un-golpe-fortuito-de-amrabat-f202511-n/)
+- **En directo, Betis 0-0 FC Utrecht: ¡Amrabat tampoco puede continuar!**: [Link](https://www.muchodeporte.com/real-betis/87864/en-directo-betis-00-fc-utrecht-amrabat-tampoco-puede-continuar/)
+
+
+### real betis (N/A, Thu, 27 Nov 2025 12:50:00 -0800)
+
+- **Real Betis - Utrecht, en directo: Europa League, hoy en vivo**: [Link](https://as.com/futbol/uefa/real-betis-utrecht-en-directo-europa-league-hoy-en-vivo-f202511-d/)
+- **Isco, titular por primera vez tras su lesión en un once bético con siete cambios**: [Link](https://es-us.noticias.yahoo.com/deportes/isco-titular-lesi%C3%B3n-once-b%C3%A9tico-191953662.html)
+- **Escoltados unos 3.500 hinchas del Utrecht hacia La Cartuja para el partido ante el Betis**: [Link](https://www.diariodesevilla.es/realbetis/escoltados-3-500-hinchas-utrecht_0_2005329334.html)
+
+
 ### ريال بتيس ضد أوترخت (N/A, Thu, 27 Nov 2025 12:00:00 -0800)
 
 - **أمرابط: أعيش فترة رائعة مع بيتيس**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D8%A3%D8%B9%D9%8A%D8%B4-%D9%81%D8%AA%D8%B1%D8%A9-%D8%B1%D8%A7%D8%A6%D8%B9%D8%A9-%D9%85%D8%B9-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-1662055.html)
