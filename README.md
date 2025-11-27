@@ -1,3 +1,10 @@
+### plus belle la vie encore plus belle (N/A, Thu, 27 Nov 2025 08:00:00 -0800)
+
+- **Louis poignardé, entre la vie et la mort : va-t-il survivre à cette folie destructrice ? - Plus belle la vie 1er décembre 2025 (épisode 475 - résumé complet PBLV)**: [Link](https://www.nouveautes-tele.com/329389-louis-poignarde-entre-la-vie-et-la-mort-va-t-il-survivre-a-cette-folie-destructrice-plus-belle-la-vie-1er-decembre-2025-episode-475-resume-complet-pblv.html)
+- **Plus belle la vie, encore plus belle : coup de théâtre sur TF1**: [Link](https://toutelatele.ouest-france.fr/plus-belle-la-vie-encore-plus-belle-coup-de-theatre-sur-tf1-181365)
+- **Plus belle la vie : "On va être unis pour l’éternité”... Audrey prend une décision qui pourrait coûter la vie à Louis**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000177649.html)
+
+
 ### roma – midtjylland (N/A, Thu, 27 Nov 2025 09:40:00 -0800)
 
 - **Europa League week five permutations as Premier League teams look to advance**: [Link](https://www.mirror.co.uk/sport/football/news/europa-league-standings-villa-forest-36316381)
