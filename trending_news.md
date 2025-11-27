@@ -1,3 +1,10 @@
+### livescore (N/A, Wed, 26 Nov 2025 13:00:00 -0800)
+
+- **Vermarkter des Kicker: Quarter Media übernimmt Vermarktung von LiveScore**: [Link](https://www.horizont.net/medien/nachrichten/vermarkter-des-kicker-quarter-media-uebernimmt-vermarktung-von-livescore-232053)
+- **LiveScore Bet launches Black Friday campaign**: [Link](https://africa.businessinsider.com/local/markets/livescore-bet-launches-black-friday-campaign/w2grq57)
+- **LiveScore Bet Launches Black Friday Campaign**: [Link](https://www.pulse.ng/story/livescore-bet-launches-black-friday-campaign-2025112513153341917)
+
+
 ### ارسنال (N/A, Wed, 26 Nov 2025 12:50:00 -0800)
 
 - **آرسنال يكبد بايرن الهزيمة الأولى في الموسم بثلاثية في دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D9%83%D8%A8%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85/blt22e0cef03557f546)
