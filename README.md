@@ -1,3 +1,10 @@
+### portugal u17 (N/A, Thu, 27 Nov 2025 08:40:00 -0800)
+
+- **Portugal Knock Out Brazil to Reach U17 World Cup Final**: [Link](https://m.elbotola.com/en/article/2025-11-24-18-42-28.html)
+- **How European nations have performed in the FIFA U17 World Cup finals**: [Link](https://www.flashscore.com/news/soccer-world-cup-u17-how-european-nations-have-performed-in-the-fifa-u17-world-cup-finals/rDkAMkGj/)
+- **How to watch Portugal U17 vs Austria U17 in the USA: Live Stream and TV for 2025 U17 World Cup**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-portugal-u17-vs-austria-u17-in-the-usa-live-stream-and-tv-for-2025-u17-world-cup/)
+
+
 ### uber maroc (N/A, Thu, 27 Nov 2025 04:30:00 -0800)
 
 
