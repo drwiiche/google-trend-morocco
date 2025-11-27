@@ -1,3 +1,10 @@
+### incendies hong kong (N/A, Thu, 27 Nov 2025 10:30:00 -0800)
+
+- **Les images du terrible incendie à Hong Kong qui a ravagé sept tours et fait au moins 55 morts**: [Link](https://www.20minutes.fr/diaporama/diaporama-4188262-images-terrible-incendie-hong-kong-ravage-sept-tours-fait-moins-55-morts)
+- **Au moins 75 morts et des centaines de disparus : ce que l’on sait sur l’incendie géant à Hongkong**: [Link](https://www.liberation.fr/international/asie-pacifique/victimes-causes-du-sinistre-operations-de-secours-ce-que-lon-sait-sur-lincendie-geant-a-hongkong-toujours-actif-20251127_ZIMG3TRCYBFMJJOWJCLERZQLLQ/)
+- **Incendie meurtrier à Hongkong : une vidéo montre l’évolution rapide du feu dans le complexe résidentiel**: [Link](https://www.lemonde.fr/international/video/2025/11/27/incendie-meurtrier-a-hongkong-une-video-montre-l-evolution-rapide-du-feu-dans-le-complexe-residentiel_6655078_3210.html)
+
+
 ### plus belle la vie encore plus belle (N/A, Thu, 27 Nov 2025 08:00:00 -0800)
 
 - **Louis poignardé, entre la vie et la mort : va-t-il survivre à cette folie destructrice ? - Plus belle la vie 1er décembre 2025 (épisode 475 - résumé complet PBLV)**: [Link](https://www.nouveautes-tele.com/329389-louis-poignarde-entre-la-vie-et-la-mort-va-t-il-survivre-a-cette-folie-destructrice-plus-belle-la-vie-1er-decembre-2025-episode-475-resume-complet-pblv.html)
