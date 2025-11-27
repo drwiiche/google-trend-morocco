@@ -1,3 +1,10 @@
+### black friday (N/A, Thu, 27 Nov 2025 15:40:00 -0800)
+
+- **Here’s when Black Friday starts at all the major U.S. retail stores**: [Link](https://fortune.com/2025/11/27/black-friday-start-time-walmart-target-lowes-kohls-home-depot-best-buy-costco/)
+- **What time do stores open on Black Friday? Hours for Best Buy, Kohl's, more**: [Link](https://www.usatoday.com/story/money/shopping/2025/11/24/what-time-do-stores-open-black-friday-2025/87354142007/)
+- **Black Friday 2025: What time Costco, Walmart, Home Depot, Target and more stores open**: [Link](https://www.axios.com/2025/11/26/black-friday-2025-hours-deals-store-doorbusters)
+
+
 ### الياس المالكي (N/A, Thu, 27 Nov 2025 13:30:00 -0800)
 
 - **إلياس المالكي يظفر بتنازل المشتكين**: [Link](https://www.hespress.com/%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D9%8A%D8%B8%D9%81%D8%B1-%D8%A8%D8%AA%D9%86%D8%A7%D8%B2%D9%84-%D8%A7%D9%84%D9%85%D8%B4%D8%AA%D9%83%D9%8A%D9%86-1662247.html)
