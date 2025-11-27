@@ -1,3 +1,10 @@
+### lille fc (N/A, Thu, 27 Nov 2025 11:40:00 -0800)
+
+- **Preview:Lille vs Paris FC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/preview/lille-vs-paris-fc-prediction-team-news-lineups_586117.html)
+- **Giroud finds the net again (video)**: [Link](https://frenchfootballweekly.com/2025/11/23/giroud-finds-the-net-again-video/)
+- **Olivier Giroud sets a stunning new record 👑**: [Link](https://sports.yahoo.com/article/olivier-giroud-sets-stunning-record-092800219.html)
+
+
 ### strasbourg – crystal palace (N/A, Thu, 27 Nov 2025 11:30:00 -0800)
 
 - **Crystal Palace 'genius' with seven duel wins and 100% pass completion vs Wolves key to downing Strasbourg**: [Link](https://www.footballinsider247.com/crystal-palace-genius-with-seven-duel-wins-and-100-pass-completion-vs-wolves-key-to-downing-strasbourg/)
