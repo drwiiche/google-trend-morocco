@@ -1,3 +1,17 @@
+### fifa (N/A, Thu, 27 Nov 2025 02:10:00 -0800)
+
+- **AFCON 2025 Countdown: Guidelines, Timelines on submitting National Team squads**: [Link](https://kawowo.com/2025/11/25/afcon-2025-countdown-new-guidelines-timelines-on-submitting-national-team-squads/)
+- **CAN 2025: FIFA sets deadline for clubs to release players!**: [Link](https://foot-africa.com/en/news/can-2025-fifa-sets-deadline-for-clubs-to-release-players-978494/)
+- **NFF technical committee meets, Super Eagles coach Eric Chelle in**: [Link](https://scorenigeria.com.ng/nff-technical-committee-meets-super-eagles-coach-eric-chelle-in/)
+
+
+### champions league 2025 (N/A, Wed, 26 Nov 2025 14:00:00 -0800)
+
+- **Champions League 2025/26: Standings and full league-phase table**: [Link](https://www.independent.co.uk/sport/football/champions-league-standings-table-2025-26-b2873084.html)
+- **Champions League Power Rankings: Bayern Munich Leads, Arsenal Shine**: [Link](https://bvmsports.com/2025/11/24/champions-league-power-rankings-bayern-munich-leads-arsenal-shine/)
+- **Champions League: The number of points needed to qualify for the knockout stage**: [Link](https://sports.yahoo.com/articles/champions-league-number-points-needed-123000251.html)
+
+
 ### هبة الزياد (N/A, Thu, 27 Nov 2025 01:20:00 -0800)
 
 - **بشكل مفاجئ.. وفاة إعلامية مصرية شابة**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2025/11/27/%D8%A8%D8%B4%D9%83%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D8%B9%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B4%D8%A7%D8%A8%D8%A9)
