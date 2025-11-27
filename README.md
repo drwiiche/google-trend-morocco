@@ -1,3 +1,10 @@
+### porto – nice (N/A, Thu, 27 Nov 2025 09:30:00 -0800)
+
+- **Porto-Nice: "Ça ne me pose aucun problème", Franck Haise assume de crisper le vestiaire pour le bien de Niçois**: [Link](https://rmcsport.bfmtv.com/football/europa-league/porto-nice-ca-ne-me-pose-aucun-probleme-franck-haise-assume-de-crisper-le-vestiaire-pour-le-bien-de-nicois_AV-202511270128.html)
+- **Brillant, novateur, obsédé par la tactique : comment le jeune entraîneur italien Francesco Farioli avait convaincu le staff niçois de le recruter en 2023**: [Link](https://www.lequipe.fr/Football/Article/Brillant-novateur-obsede-par-la-tactique-comment-le-jeune-entraineur-italien-francesco-farioli-avait-convaincu-le-staff-nicois-de-le-recruter-en-2023/1612517)
+- **L’OGC Nice en 3-4-3 avec Dante et Sanson dans le onze à Porto**: [Link](https://www.nicematin.com/sports/football/l-ogc-nice-en-3-4-3-avec-dante-et-sanson-dans-le-onze-a-porto-10658407)
+
+
 ### europa league (N/A, Thu, 27 Nov 2025 08:10:00 -0800)
 
 - **Gasperini previews Europa League match with Midtjylland: “Dybala and Bailey could play tomorrow.”**: [Link](https://romapress.net/gasperini-previews-europa-league-match-with-midtjylland-dybala-and-bailey-could-play-tomorrow/)
