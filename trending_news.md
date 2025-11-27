@@ -1,3 +1,10 @@
+### betis – utrecht (N/A, Thu, 27 Nov 2025 11:10:00 -0800)
+
+- **Real Betis vs Utrecht LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/27/1242691-real-betis-vs-utrecht-live-score-europa-league.html)
+- **Football: Betis have a vital European game ahead of big city derby**: [Link](https://www.lokmattimes.com/other-sports/football-betis-have-a-vital-european-game-ahead-of-big-city-derby/)
+- **Claudio giraldez: Latest News, Schedules, and Results**: [Link](https://www.cricketnmore.com/sports-topics/claudio-giraldez)
+
+
 ### ليل ضد دينامو زغرب (N/A, Thu, 27 Nov 2025 10:50:00 -0800)
 
 - **حمزة إيغامان يقود هجوم ليل في الدوري الأوروبي وغياب الصحراوي و بوعدي عن التشكيلة الأساسية**: [Link](https://infosports.ma/205615/)
