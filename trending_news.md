@@ -1,3 +1,17 @@
+### psg - tottenham (N/A, Wed, 26 Nov 2025 14:10:00 -0800)
+
+- **Olympiacos 3-4 Real Madrid: Kylian Mbappe scores four in Real win**: [Link](https://www.bbc.com/sport/football/live/c773lzd40j6t)
+- **PSG 5-3 Tottenham, Liverpool 1-4 PSV, and more: Champions League – as it happened**: [Link](https://www.theguardian.com/football/live/2025/nov/26/psg-v-tottenham-liverpool-v-psv-and-more-champions-league-live-clockwatch)
+- **Champions League 2025/26 — Matchday Review (27 November): Mbappé’s Four-Goal Masterclass, Vitinha’s Hat-Trick, Liverpool’s Collapse and Arsenal’s Power Statement**: [Link](https://sportaran.com/en/post/liga-chempionov-202526-obzor-matchej-27-noyabrya-poker-mbappe-het-trik-vitini-proval-liverpulya-i-mosh-arsenala/)
+
+
+### ترتيبات دوري أبطال أوروبا (N/A, Wed, 26 Nov 2025 14:00:00 -0800)
+
+- **بجودة hd.. تردد القنوات الناقلة لدوري أبطال أوروبا 2025 على جميع الأقمار الصناعية**: [Link](https://newsy.elsob7.com/news/%D8%A8%D8%AC%D9%88%D8%AF%D8%A9-hd-%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7/)
+- **كيفية مشاهدة مباريات دوري أبطال أوروبا 2025 مباشر دون تقطيع أو تشويش**: [Link](https://aboutmsr.com/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8/)
+- **ترتيبات دوري أبطال أوروبا 2025-2026 .. تعرف على جدول المباريات والقنوات الناقلة**: [Link](https://www.masrtimes.com/626391)
+
+
 ### fifa plus (N/A, Thu, 27 Nov 2025 03:20:00 -0800)
 
 - **Croatia at the FIFA World Cup: Team profile and history**: [Link](https://www.fifa.com/en/tournaments/mens/worldcup/canadamexicousa2026/articles/croatia-team-profile-history)
