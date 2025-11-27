@@ -1,3 +1,10 @@
+### roma – midtjylland (N/A, Thu, 27 Nov 2025 09:40:00 -0800)
+
+- **Europa League week five permutations as Premier League teams look to advance**: [Link](https://www.mirror.co.uk/sport/football/news/europa-league-standings-villa-forest-36316381)
+- **Flying in Serie A, Faltering in Europe: Roma Face Midtjylland With a Point to Prove**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/38428/flying-in-serie-a-faltering-in-europe-roma-face-midtjylland-with-a-point-to-prove)
+- **Gasperini's Squad Rebounds**: [Link](https://www.ilmessaggero.it/en/gasperini_s_squad_rebounds-9212738.html)
+
+
 ### porto – nice (N/A, Thu, 27 Nov 2025 09:30:00 -0800)
 
 - **Porto-Nice: "Ça ne me pose aucun problème", Franck Haise assume de crisper le vestiaire pour le bien de Niçois**: [Link](https://rmcsport.bfmtv.com/football/europa-league/porto-nice-ca-ne-me-pose-aucun-probleme-franck-haise-assume-de-crisper-le-vestiaire-pour-le-bien-de-nicois_AV-202511270128.html)
