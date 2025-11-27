@@ -1,3 +1,10 @@
+### champions (N/A, Wed, 26 Nov 2025 14:00:00 -0800)
+
+- **Ronaldo 3rd & Mbappé 8th: Players to score in most consecutive Champions League seasons**: [Link](https://www.transfermarkt.com/ronaldo-3rd-amp-mbappe-8th-players-to-score-in-most-consecutive-champions-league-seasons/view/news/463427)
+- **Today in Sports, Nov. 25, 2014 — Lionel Messi becomes the UEFA Champions League all-time scorer**: [Link](https://www.times-news.com/sports/today-in-sports-nov-25-2014-lionel-messi-becomes-the-uefa-champions-league-all-time/article_cb553839-0593-54e2-9f64-929a000c4bc2.html)
+- **Arsenal beat 'best team in Europe' so are they now Champions League contenders?**: [Link](https://www.bbc.com/sport/football/articles/cjez9l1qj59o)
+
+
 ### fifa (N/A, Thu, 27 Nov 2025 02:10:00 -0800)
 
 - **AFCON 2025 Countdown: Guidelines, Timelines on submitting National Team squads**: [Link](https://kawowo.com/2025/11/25/afcon-2025-countdown-new-guidelines-timelines-on-submitting-national-team-squads/)
