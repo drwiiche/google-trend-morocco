@@ -1,3 +1,10 @@
+### هبة الزياد (N/A, Thu, 27 Nov 2025 01:20:00 -0800)
+
+- **بشكل مفاجئ.. وفاة إعلامية مصرية شابة**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2025/11/27/%D8%A8%D8%B4%D9%83%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D8%B9%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B4%D8%A7%D8%A8%D8%A9)
+- **وفاة المذيعة هبة الزياد بشكل مفاجئ يصدم الوسط الإعلامي**: [Link](https://www.lahamag.com/article/232371-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%B0%D9%8A%D8%B9%D8%A9-%D9%87%D8%A8%D8%A9-%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF-%D8%A8%D8%B4%D9%83%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%8A%D8%B5%D9%8A%D8%A8-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A-%D8%A8%D8%B5%D8%AF%D9%85%D8%A9)
+- **«تهديد وابتزاز من مجهول».. تفاصيل الأيام الأخيرة في حياة هبة الزياد**: [Link](https://al-ain.com/article/threats-blackmail-heba-alziyad-departure)
+
+
 ### psv eindhoven (N/A, Wed, 26 Nov 2025 14:00:00 -0800)
 
 - **FC Volendam naar Eindhoven voor volgende test**: [Link](https://fcvolendam.nl/wedstrijdnieuws/fc-volendam-naar-eindhoven-voor-volgende-test/)
