@@ -1,3 +1,17 @@
+### ريال بتيس ضد أوترخت (N/A, Thu, 27 Nov 2025 12:00:00 -0800)
+
+- **أمرابط: أعيش فترة رائعة مع بيتيس**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D8%A3%D8%B9%D9%8A%D8%B4-%D9%81%D8%AA%D8%B1%D8%A9-%D8%B1%D8%A7%D8%A6%D8%B9%D8%A9-%D9%85%D8%B9-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-1662055.html)
+- **بيليغريني يعلن موقفه من مستقبل سفيان أمرابط!**: [Link](https://www.radiomars.ma/%D8%A8%D9%8A%D9%84%D9%8A%D8%BA%D8%B1%D9%8A%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A3/)
+- **أمرابط: الكرواني مرحب به في بيتيس**: [Link](https://www.almountakhab.com/node/16220055)
+
+
+### go ahead eagles – stuttgart (N/A, Thu, 27 Nov 2025 12:00:00 -0800)
+
+- **Go Ahead mikt op Europese stuntavond 2.0 in Deventer: 'Als het tegen Villa kan...'**: [Link](https://nos.nl/artikel/2592204-go-ahead-mikt-op-europese-stuntavond-2-0-in-deventer-als-het-tegen-villa-kan)
+- **Boel onder de indruk van Stuttgart: 'Hou van voetbal dat entertainment biedt'**: [Link](https://www.voetbalprimeur.nl/nieuws/1716228/melvin-boel-geniet-van-beelden-stuttgart-in-aanloop-naar-clash.html)
+- **LIVE | Gerrit Nauber: 'Het gaat iets beter na de zware eerste weken'**: [Link](https://www.oost.nl/sport/3591494/live-gerrit-nauber-het-gaat-iets-beter-na-de-zware-eerste-weken)
+
+
 ### lille fc (N/A, Thu, 27 Nov 2025 11:40:00 -0800)
 
 - **Preview:Lille vs Paris FC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lille/preview/lille-vs-paris-fc-prediction-team-news-lineups_586117.html)
