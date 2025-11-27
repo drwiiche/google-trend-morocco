@@ -1,3 +1,10 @@
+### psv eindhoven (N/A, Wed, 26 Nov 2025 14:00:00 -0800)
+
+- **FC Volendam naar Eindhoven voor volgende test**: [Link](https://fcvolendam.nl/wedstrijdnieuws/fc-volendam-naar-eindhoven-voor-volgende-test/)
+- **KNVB maakt scheidsrechter voor duel PSV tegen FC Volendam bekend**: [Link](https://www.psvfans.nl/knvb-maakt-scheidsrechter-voor-duel-psv-tegen-fc-volendam-bekend/)
+- **FC Volendam naar Eindhoven voor duel PSV**: [Link](https://www.nieuw-volendam.nl/fc-volendam-naar-eindhoven-voor-duel-psv/)
+
+
 ### livescore (N/A, Wed, 26 Nov 2025 13:00:00 -0800)
 
 - **Vermarkter des Kicker: Quarter Media übernimmt Vermarktung von LiveScore**: [Link](https://www.horizont.net/medien/nachrichten/vermarkter-des-kicker-quarter-media-uebernimmt-vermarktung-von-livescore-232053)
