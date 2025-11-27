@@ -1,3 +1,10 @@
+### europa league (N/A, Thu, 27 Nov 2025 08:10:00 -0800)
+
+- **Gasperini previews Europa League match with Midtjylland: “Dybala and Bailey could play tomorrow.”**: [Link](https://romapress.net/gasperini-previews-europa-league-match-with-midtjylland-dybala-and-bailey-could-play-tomorrow/)
+- **Gasperini's Squad Rebounds**: [Link](https://www.ilmessaggero.it/en/gasperini_s_squad_rebounds-9212738.html)
+- **Roma–Midtjylland: the official line-ups**: [Link](https://www.asroma.com/en/news/74371/romamidtjylland-the-official-line-ups)
+
+
 ### portugal u17 (N/A, Thu, 27 Nov 2025 08:40:00 -0800)
 
 - **Portugal Knock Out Brazil to Reach U17 World Cup Final**: [Link](https://m.elbotola.com/en/article/2025-11-24-18-42-28.html)
