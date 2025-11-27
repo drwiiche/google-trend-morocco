@@ -1,3 +1,10 @@
+### ارسنال (N/A, Wed, 26 Nov 2025 12:50:00 -0800)
+
+- **آرسنال يكبد بايرن الهزيمة الأولى في الموسم بثلاثية في دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D9%83%D8%A8%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85/blt22e0cef03557f546)
+- **مباشر مباراة أرسنال ضد بايرن ميونخ (3-1) بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2025/11/26/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE?update=8302982)
+- **آرسنال يظفر بالنقاط في لقاء القمة أمام بايرن ميونيخ**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B8%D9%81%D8%B1-%D8%A8%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D9%81%D9%8A-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-2025-11-26)
+
+
 ### bayern vs (N/A, Wed, 26 Nov 2025 13:10:00 -0800)
 
 - **Arsenal 3-1 Bayern Munich: Jurrien Timber, Noni Madueke & Gabriel Martinelli score as Gunners win**: [Link](https://www.bbc.com/sport/football/live/c14vzp70zl5t)
