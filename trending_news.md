@@ -1,3 +1,10 @@
+### strasbourg – crystal palace (N/A, Thu, 27 Nov 2025 11:30:00 -0800)
+
+- **Crystal Palace 'genius' with seven duel wins and 100% pass completion vs Wolves key to downing Strasbourg**: [Link](https://www.footballinsider247.com/crystal-palace-genius-with-seven-duel-wins-and-100-pass-completion-vs-wolves-key-to-downing-strasbourg/)
+- **Strasbourg v Crystal Palace betting offer: Bet £10 and get £50 in free bets with Betfred**: [Link](https://talksport.com/betting/3771669/strasbourg-crystal-palace-preview-betting-offer-free-bets-betfred/)
+- **Team News: Strasbourg vs. Crystal Palace injury, suspension list, predicted XIs**: [Link](https://www.sportsmole.co.uk/football/strasbourg/europa-conference-league/team-news/strasbourg-vs-crystal-palace-injury-suspension-list-predicted-xis_586404.html)
+
+
 ### betis – utrecht (N/A, Thu, 27 Nov 2025 11:10:00 -0800)
 
 - **Real Betis vs Utrecht LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/27/1242691-real-betis-vs-utrecht-live-score-europa-league.html)
