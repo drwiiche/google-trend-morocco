@@ -1,3 +1,10 @@
+### ملعب مولاي الحسن (N/A, Fri, 28 Nov 2025 11:10:00 -0800)
+
+- **بحضور بنشرقي.. توروب يكشف عن تشكيلة الأهلي ضد الجيش الملكي في دوري أبطال أفريقيا**: [Link](https://m.elbotola.com/article/2025-11-28-18-12-972.html)
+- **توروب: لا أعرف سببا لغياب "الفار" في مواجهة الجيش الملكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%88%D8%A8-%D9%84%D8%A7-%D8%A7%D9%94%D8%B9%D8%B1%D9%81-%D8%B3%D8%A8%D8%A8%D8%A7-%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A/bltdac826fd5b358eff)
+- **مدرب الأهلي: نحترم الجيش الملكي**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%86%D8%AD%D8%AA%D8%B1%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-1662651.html)
+
+
 ### getafe – elche (N/A, Fri, 28 Nov 2025 11:10:00 -0800)
 
 - **El equipo revelación de La Liga juega gratis y en abierto por televisión: horario, día, alineaciones probables y donde y cómo ver el partido en directo**: [Link](https://www.lasprovincias.es/deportes/futbol/equipo-revelacion-liga-juega-gratis-abierto-television-20251127195712-nt.html)
