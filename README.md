@@ -1,3 +1,10 @@
+### ram (N/A, Fri, 28 Nov 2025 02:10:00 -0800)
+
+- **Modi in Udupi: Hinting at Pakistan, PM says India knows how to maintain peace and protect itself**: [Link](https://www.thehindu.com/news/cities/Mangalore/modi-in-udupi-hinting-at-pakistan-pm-says-india-knows-how-to-maintain-peace-and-protect-itself/article70334109.ece)
+- **PM Modi Unveils Lord Ram Statue Live: Prime Minister reveals world's tallest Ram statue in Goa**: [Link](https://www.indiatoday.in/india/story/pm-modi-unveil-lord-ram-statue-live-udpates-in-goa-world-tallest-statue-shree-samsthan-gokarn-jeevottam-mutt-2827454-2025-11-28)
+- **PM Modi to attend Gita recital event at Udupi Krishna Mutt today**: [Link](https://www.deccanherald.com/india/karnataka/pm-modi-to-attend-gita-recital-event-at-udupi-krishna-mutt-today-3812715)
+
+
 ### royal air maroc (N/A, Fri, 28 Nov 2025 01:50:00 -0800)
 
 - **Le Diaspora Tour de la TotalEnergies CAF CAN Maroc 2025 mettra en lumière le football africain à Londres et Paris**: [Link](https://www.cafonline.com/fr/can2025/infos/le-diaspora-tour-de-la-totalenergies-caf-can-maroc-2025-mettra-en-lumiere-le-football-africain-a-londres-et-paris/)
