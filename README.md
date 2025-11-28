@@ -1,3 +1,10 @@
+### اولمبيك اسفي (N/A, Fri, 28 Nov 2025 13:10:00 -0800)
+
+- **كأس الكونفدرالية/ أولمبيك آسفي يسقط داخل ميدانه أمام اتحاد العاصمة (0-1)**: [Link](https://m.elbotola.com/article/2025-11-28-21-00-365.html)
+- **هزيمة قاتلة في الدقائق الأخيرة تُربك مسار أولمبيك آسفي في كأس الاتحاد الإفريقي – اليوم 24**: [Link](https://alyaoum24.com/1995973.html)
+- **آسفي ينهزم أمام العاصمة الجزائري**: [Link](https://www.hespress.com/%D8%A2%D8%B3%D9%81%D9%8A-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-1663214.html)
+
+
 ### match far (N/A, Fri, 28 Nov 2025 11:40:00 -0800)
 
 - **AS Far-Al Ahly : quelle heure, quelles chaînes - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2025/11/28/as-far-al-ahly-quelle-heure-quelles-chaines-1585928/)
