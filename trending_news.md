@@ -1,3 +1,10 @@
+### ctm (N/A, Fri, 28 Nov 2025 06:10:00 -0800)
+
+- **Travel company embroiled in overcharging scandal worth more than $100m**: [Link](https://www.abc.net.au/news/2025-11-28/corporate-travel-management-overcharging-scandal-100-million/106077806)
+- **Bibby Stockholm operator overcharged British customers by £80mn**: [Link](https://www.ft.com/content/6b6d95de-d178-41a2-8bae-aedc5e7df3b3)
+- **A month of corporate own goals on the ASX**: [Link](https://www.theaustralian.com.au/business/margin-call/asx-corporate-governance-crisis-deepens-as-major-travel-firm-admits-to-cooked-books/news-story/7dbb65f308cead5209f41bd9c21c8656)
+
+
 ### far vs ahly (N/A, Fri, 28 Nov 2025 05:30:00 -0800)
 
 - **Al Ahly Holds First Training Session in Rabat Ahead of AS FAR Clash**: [Link](https://m.elbotola.com/en/article/2025-11-26-17-41-856.html)
