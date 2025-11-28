@@ -1,3 +1,10 @@
+### brésil u-17 – italie u-17 (N/A, Thu, 27 Nov 2025 22:10:00 -0800)
+
+- **Coupe du Monde U17 : Deux arbitres marocains pour le match de classement Brésil-Italie**: [Link](https://m.elbotola.com/fr/article/2025-11-26-16-39-891.html)
+- **Officiel : L'Italie bat le Brésil et remporte la médaille de bronze historique de la Coupe du monde U17**: [Link](https://fr.football-italia.net/L%27Italie-remporte-la-m%C3%A9daille-de-bronze-chez-les-moins-de-17-ans./)
+- **Le défenseur du Stade de Reims Jean-Tryfose Mambuku se pare de bronze à la Coupe du monde U17**: [Link](https://www.lunion.fr/id767608/article/2025-11-27/le-defenseur-du-stade-de-reims-jean-tryfose-mambuku-se-pare-de-bronze-la-coupe)
+
+
 ### m. tel-aviv – lyon (N/A, Thu, 27 Nov 2025 11:50:00 -0800)
 
 
