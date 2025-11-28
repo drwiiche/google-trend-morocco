@@ -1,3 +1,17 @@
+### sgtm (N/A, Fri, 28 Nov 2025 04:20:00 -0800)
+
+- **SGTM : analyse de la valorisation à 25 milliards de DH du géant du BTP**: [Link](https://medias24.com/2025/11/27/sgtm-valorisation-1583723/)
+- **SGTM, Cash Plus, Dislog… Les dessous de l’euphorie boursière au Maroc**: [Link](https://www.jeuneafrique.com/1743901/economie-entreprises/sgtm-cash-plus-dislog-les-dessous-de-leuphorie-boursiere-au-maroc/)
+- **Cash Plus : engouement massif pour la première IPO d'une Fintech à la Bourse de Casablanca**: [Link](https://boursenews.ma/article/marches/Cash-Plus-engouement-massif-pour-la-premiere-IPO-d-une-Fintech-a-la-Bourse-de-Casablanca)
+
+
+### uber maroc casablanca (N/A, Thu, 27 Nov 2025 17:00:00 -0800)
+
+- **VTC: Uber de retour au Maroc, la réaction des taxis**: [Link](https://h24info.ma/maroc/vtc-uber-de-retour-au-maroc-la-reaction-des-taxis/)
+- **Uber revient au Maroc, à Casablanca et Marrakech pour commencer**: [Link](https://ledesk.ma/2025/11/27/uber-revient-au-maroc-a-casablanca-et-marrakech-pour-commencer/)
+- **Uber relance ses activités au Maroc en partenariat avec des transporteurs agréés**: [Link](https://lematin.ma/economie/uber-relance-ses-activites-au-maroc/315839)
+
+
 ### ram (N/A, Fri, 28 Nov 2025 02:10:00 -0800)
 
 - **Modi in Udupi: Hinting at Pakistan, PM says India knows how to maintain peace and protect itself**: [Link](https://www.thehindu.com/news/cities/Mangalore/modi-in-udupi-hinting-at-pakistan-pm-says-india-knows-how-to-maintain-peace-and-protect-itself/article70334109.ece)
