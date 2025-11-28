@@ -1,3 +1,10 @@
+### أبو عبيدة (N/A, Fri, 28 Nov 2025 02:00:00 -0800)
+
+- **صوت أبو عبيدة يعود إلى قلب إسرائيل ويثير الارتباك والذعر**: [Link](https://www.aljazeera.net/news/2025/11/27/%D8%B5%D9%88%D8%AA-%D8%A3%D8%A8%D9%88-%D8%B9%D8%A8%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%82%D9%84%D8%A8-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%88%D9%8A%D8%AB%D9%8A%D8%B1)
+- **"أبو عبيدة" يظهر في مستوطنة صهيونية.. وهذا ما حدث ! – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%A3%D8%A8%D9%88-%D8%B9%D8%A8%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B8%D9%87%D8%B1-%D9%81%D9%8A-%D9%85%D8%B3%D8%AA%D9%88%D8%B7%D9%86%D8%A9-%D8%B5%D9%87%D9%8A%D9%88%D9%86%D9%8A%D8%A9-%D9%88%D9%87%D8%B0)
+- **نشرة أهم الأخبار العالمية والعربية حتى منتصف الليل**: [Link](https://elkanananews.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A3%D9%87%D9%85-%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AD%D8%AA-59/)
+
+
 ### sgtm (N/A, Fri, 28 Nov 2025 04:20:00 -0800)
 
 - **SGTM : analyse de la valorisation à 25 milliards de DH du géant du BTP**: [Link](https://medias24.com/2025/11/27/sgtm-valorisation-1583723/)
