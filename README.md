@@ -1,3 +1,10 @@
+### widad (N/A, Fri, 28 Nov 2025 09:40:00 -0800)
+
+- **La chaîne Al Ahly met en lumière des sites marocains, dont la boutique du Wydad**: [Link](http://m.elbotola.com/fr/article/2025-11-28-15-31-349.html)
+- **الوداد يعود بفوز ثمين من زنجبار**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D9%81%D9%88%D8%B2-%D8%AB%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%B2%D9%86%D8%AC%D8%A8%D8%A7%D8%B1-1663057.html)
+- **تشكيلة الوداد أمام عزام.. بنهاشم يعتمد على فيريرا في الدفاع وأمرابط يقود الهجوم رفقة لورش وهنوري**: [Link](https://m.elbotola.com/article/2025-11-28-15-20-615.html)
+
+
 ### cash plus bourse casablanca (N/A, Fri, 28 Nov 2025 13:50:00 -0800)
 
 - **SGTM : analyse de la valorisation à 25 milliards de DH du géant du BTP**: [Link](https://medias24.com/2025/11/27/sgtm-valorisation-1583723/)
