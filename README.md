@@ -1,3 +1,10 @@
+### sonia dahmani (N/A, Fri, 28 Nov 2025 00:40:00 -0800)
+
+- **Tunisie: l'avocate Sonia Dahmani en liberté conditionnelle après 18 mois de détention**: [Link](https://information.tv5monde.com/afrique/tunisie-lavocate-sonia-dahmani-en-liberte-conditionnelle-apres-18-mois-de-detention-2799343)
+- **La Tunisie épinglée par le Parlement européen, Sonia Dahmani libérée**: [Link](https://www.jeuneafrique.com/1744158/politique/la-tunisie-epinglee-par-le-parlement-europeen-sonia-dahmani-liberee/)
+- **Justice : Une décision ministérielle a permis la libération conditionnelle de Sonia Dahmani**: [Link](https://www.lequotidien.com.tn/fr/societe/9082-justice-une-decision-ministerielle-a-permis-la-liberation-conditionnelle-de-sonia-dahmani)
+
+
 ### soukaina benjelloun (N/A, Thu, 27 Nov 2025 14:50:00 -0800)
 
 - **L'influenceuse « S. Benjelloun », surnommée « le divorce le plus cher du Maroc », placée en détention provisoire**: [Link](https://fr.hespress.com/451672-linfluenceuse-s-benjelloun-surnommee-le-divorce-le-plus-cher-du-maroc-placee-en-detention-provisoire.html)
