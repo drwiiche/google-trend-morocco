@@ -1,3 +1,17 @@
+### حسين فهمي (N/A, Fri, 28 Nov 2025 11:50:00 -0800)
+
+- **مهرجان مراكش 2025**: [Link](https://www.hespress.com/%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-2025-1662512.html)
+- **ريبورتاج..أطفال "مدينة النخيل" يكتشفون "سر الطيور المغردة" في افتتاح الدورة 22 للمهرجان الدولي للفيلم**: [Link](https://2m.ma/ar/news/%D8%B1%D9%8A%D8%A8%D9%88%D8%B1%D8%AA%D8%A7%D8%AC-%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D9%86%D8%AE%D9%8A%D9%84-%D9%8A%D9%83%D8%AA%D8%B4%D9%81%D9%88%D9%86-%D8%B3%D8%B1-%D8%A7%D9%84%D8%B7%D9%8A%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D8%A9-22-%D9%84%D9%84%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D9%84%D9%81%D9%8A%D9%84%D9%85--20251128)
+- **الأمير مولاي رشيد: السينما جسر للتقارب والحوار.. ومراكش منصة لإبراز الأصوات الجديدة**: [Link](https://al3omk.com/1119915.html)
+
+
+### metz – rennes (N/A, Fri, 28 Nov 2025 11:50:00 -0800)
+
+- **DIRECT. Metz-Rennes (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/metz-rennes-live/675915)
+- **L1 : Programme et résultats de la 14e journée**: [Link](https://www.msn.com/fr-fr/sport/football/l1-programme-et-r%C3%A9sultats-de-la-14e-journ%C3%A9e/ar-AA1RioG1)
+- **Beye et Le Mignan : symboles d’une stabilité nouvelle - Ligue 1 - J14 - Metz-Rennes**: [Link](https://www.sofoot.com/articles/metz-rennes-beye-le-mignan-symboles-dune-stabilite-nouvelle-sur-les-bancs-de-ligue-1)
+
+
 ### ملعب مولاي الحسن (N/A, Fri, 28 Nov 2025 11:10:00 -0800)
 
 - **بحضور بنشرقي.. توروب يكشف عن تشكيلة الأهلي ضد الجيش الملكي في دوري أبطال أفريقيا**: [Link](https://m.elbotola.com/article/2025-11-28-18-12-972.html)
