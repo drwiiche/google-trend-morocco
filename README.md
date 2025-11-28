@@ -1,3 +1,10 @@
+### caf champions league (N/A, Fri, 28 Nov 2025 10:10:00 -0800)
+
+- **TotalEnergies CAF Champions League: Pre-match quotes from the coaches and players**: [Link](https://www.cafonline.com/caf-champions-league/news/totalenergies-caf-champions-league-pre-match-quotes-from-the-coaches-and-players/)
+- **Chaabani: "Match Against Rivers United Will Be Difficult; They Are an Organized Team, We Aim for a Positive Result"**: [Link](https://m.elbotola.com/en/article/2025-11-27-19-08-647.html)
+- **Finidi George Optimistic as Rivers Utd Ambush RS Berkane in Uyo**: [Link](https://www.thisdaylive.com/2025/11/28/finidi-george-optimistic-as-rivers-utd-ambush-rs-berkane-in-uyo/)
+
+
 ### ligue des champions de la caf (N/A, Fri, 28 Nov 2025 09:30:00 -0800)
 
 - **JSK - Young Africans : sur quelles chaînes et à quelle voir le match en direct ?**: [Link](https://foot-africa.com/actualites/jsk-young-africans-sur-quelles-chaines-et-a-quelle-voir-le-match-en-direct-979097/)
