@@ -1,3 +1,9 @@
+### soukaina benjelloun (N/A, Thu, 27 Nov 2025 14:50:00 -0800)
+
+- **L'influenceuse « S. Benjelloun », surnommée « le divorce le plus cher du Maroc », placée en détention provisoire**: [Link](https://fr.hespress.com/451672-linfluenceuse-s-benjelloun-surnommee-le-divorce-le-plus-cher-du-maroc-placee-en-detention-provisoire.html)
+- **Arrestation de la tiktokeuse Sakina Benjelloun et son placement en détention à la prison d'(Oukacha)**: [Link](https://fr.hibapress.com/news-220727.html)
+
+
 ### brésil u-17 – italie u-17 (N/A, Thu, 27 Nov 2025 22:10:00 -0800)
 
 - **Coupe du Monde U17 : Deux arbitres marocains pour le match de classement Brésil-Italie**: [Link](https://m.elbotola.com/fr/article/2025-11-26-16-39-891.html)
