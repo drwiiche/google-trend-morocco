@@ -1,3 +1,10 @@
+### far vs ahly (N/A, Fri, 28 Nov 2025 05:30:00 -0800)
+
+- **Al Ahly Holds First Training Session in Rabat Ahead of AS FAR Clash**: [Link](https://m.elbotola.com/en/article/2025-11-26-17-41-856.html)
+- **Where and when to catch Ahly vs. AS FAR in the CAF Champions League**: [Link](https://www.egyptindependent.com/where-and-when-to-catch-ahly-vs-as-far-in-the-caf-champions-league/)
+- **CAF CAFCL : El-Shenawy Emerges as Major Doubt for Al Ahly Ahead of FAR Rabat Clash**: [Link](https://en.africatopsports.com/2025/11/25/cafcl-el-shenawy-emerges-as-major-doubt-for-al-ahly-ahead-of-far-rabat-clash/)
+
+
 ### application uber maroc (N/A, Thu, 27 Nov 2025 15:50:00 -0800)
 
 - **VTC: Uber de retour au Maroc, la réaction des taxis**: [Link](https://h24info.ma/maroc/vtc-uber-de-retour-au-maroc-la-reaction-des-taxis/)
