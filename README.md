@@ -1,3 +1,10 @@
+### match far (N/A, Fri, 28 Nov 2025 11:40:00 -0800)
+
+- **AS Far-Al Ahly : quelle heure, quelles chaînes - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2025/11/28/as-far-al-ahly-quelle-heure-quelles-chaines-1585928/)
+- **Santos : "Il est normal de traverser une période difficile, demain nous réagirons sur le terrain face à Al Ahly"**: [Link](https://m.elbotola.com/fr/article/2025-11-27-19-14-567.html)
+- **AS FAR–Al Ahly: les Militaires déploient un tifo spécial en hommage à leur histoire**: [Link](https://sport.le360.ma/football/ligue-des-champions-caf/as-faral-ahly-les-militaires-deploient-un-tifo-special-en-hommage-a-leur-histoire_TVEXKJJYB5FCRDGEFAAOB77NWE/)
+
+
 ### getafe vs elche (N/A, Fri, 28 Nov 2025 12:20:00 -0800)
 
 - **How to watch today's Getafe vs Elche La Liga game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-getafe-vs-elche-la-liga-game-live-stream-tv-channel-start-time/blt79b46174e47d77a6)
