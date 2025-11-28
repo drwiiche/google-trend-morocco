@@ -1,3 +1,17 @@
+### royal air maroc (N/A, Fri, 28 Nov 2025 01:50:00 -0800)
+
+- **Le Diaspora Tour de la TotalEnergies CAF CAN Maroc 2025 mettra en lumière le football africain à Londres et Paris**: [Link](https://www.cafonline.com/fr/can2025/infos/le-diaspora-tour-de-la-totalenergies-caf-can-maroc-2025-mettra-en-lumiere-le-football-africain-a-londres-et-paris/)
+- **Marché noir, Fan ID et arnaques : la fièvre dangereuse des billets de la CAN 2025**: [Link](https://mobile.telquel.ma/2025/11/27/marche-noir-fan-id-et-arnaques-la-fievre-dangereuse-des-billets-de-la-can-2025_1962828)
+- **Conseils pratiques pour vivre la CAN 2025 à Tanger**: [Link](https://medias24.com/2025/11/27/tanger-can-2025-guide-pratique-1580761/)
+
+
+### دول العالم الثالث (N/A, Fri, 28 Nov 2025 01:50:00 -0800)
+
+- **ترامب يسعى لوقف الهجرة من دول العالم الثالث بشكل دائم**: [Link](https://www.aljazeera.net/news/2025/11/28/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%88%D9%82%D9%81-%D8%A7%D9%84%D9%87%D8%AC%D8%B1%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **دونالد ترامب: الرئيس الأمريكي يعلن وقف الهجرة من "دول العالم الثالث" ويأمر بمراجعة شاملة للبطاقات الخضراء بعد هجوم في واشنطن**: [Link](https://www.bbc.com/arabic/articles/c0mp1v1z8j0o)
+- **منها 4 عربية.. إدارة ترامب ستراجع “كل” الإقامات الدائمة التي يحملها أشخاص من 19 دولة بعد حادث إطلاق النار في واشنطن**: [Link](https://www.raialyoum.com/%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%B3%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%83%D9%84-%D8%A7%D9%84%D8%A5%D9%82%D8%A7%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D8%A7%D8%A6/)
+
+
 ### sonia dahmani (N/A, Fri, 28 Nov 2025 00:40:00 -0800)
 
 - **Tunisie: l'avocate Sonia Dahmani en liberté conditionnelle après 18 mois de détention**: [Link](https://information.tv5monde.com/afrique/tunisie-lavocate-sonia-dahmani-en-liberte-conditionnelle-apres-18-mois-de-detention-2799343)
