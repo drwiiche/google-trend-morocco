@@ -1,3 +1,10 @@
+### ligue des champions de la caf (N/A, Fri, 28 Nov 2025 09:30:00 -0800)
+
+- **JSK - Young Africans : sur quelles chaînes et à quelle voir le match en direct ?**: [Link](https://foot-africa.com/actualites/jsk-young-africans-sur-quelles-chaines-et-a-quelle-voir-le-match-en-direct-979097/)
+- **Sports - Une victoire pour se relancer**: [Link](https://www.lexpressiondz.com/sports/une-victoire-pour-se-relancer-400326)
+- **Ligue des champions CAF : JS Kabylie – Young Africans, les compos officielles**: [Link](https://www.africatopsports.com/2025/11/28/ligue-des-champions-caf-js-kabylie-young-africans-les-compos-officielles/)
+
+
 ### coupe de la caf (N/A, Fri, 28 Nov 2025 08:30:00 -0800)
 
 - **Zesco - Masry (Coupe de la Confédération) - revivez les moments forts du match - Sports - Sports**: [Link](https://french.ahram.org.eg/News/75286.aspx)
