@@ -1,3 +1,17 @@
+### wydad (N/A, Fri, 28 Nov 2025 08:10:00 -0800)
+
+- **Azam FC-Wydad et OC Safi-USM Alger: à quelles heures et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/coupe-caf/azam-fc-wydad-et-oc-safi-usm-alger-a-quelles-heures-et-sur-quelle-chaine_HZWIKSYBNREJ3FMLTFNZBKTDQY/)
+- **Benhachem : « La mission sera difficile, mais nous sommes prêts à nous battre et à aller le plus loin possible en Coupe de la Confédération**: [Link](https://m.elbotola.com/fr/article/2025-11-27-17-09-403.html)
+- **Coupe de la CAF: billets gratuits pour les supporters d’Azam face au WAC**: [Link](https://www.lesiteinfo.com/sport/660967-coupe-de-la-caf-billets-gratuits-pour-les-supporters-dazam-face-au-wac.html)
+
+
+### الوداد (N/A, Fri, 28 Nov 2025 08:00:00 -0800)
+
+- **تشكيلة الوداد أمام عزام.. بنهاشم يعتمد على فيريرا في الدفاع وأمرابط يقود الهجوم رفقة لورش وهنوري**: [Link](https://m.elbotola.com/article/2025-11-28-15-20-615.html)
+- **تفاصيل أول حصة تدريبية للوداد في زنجبار**: [Link](https://www.radiomars.ma/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A3%D9%88%D9%84-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D8%B2%D9%86%D8%AC%D8%A8%D8%A7/)
+- **كأس ال"كاف" (دور المجموعات..الجولة الثانية) .. الوداد الرياضي وأولمبيك آسفي لتأكيد انطلاقتهما الجيدة**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84-%D9%83%D8%A7%D9%81-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%88%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-20251127)
+
+
 ### ctm (N/A, Fri, 28 Nov 2025 06:10:00 -0800)
 
 - **Travel company embroiled in overcharging scandal worth more than $100m**: [Link](https://www.abc.net.au/news/2025-11-28/corporate-travel-management-overcharging-scandal-100-million/106077806)
