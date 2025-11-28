@@ -1,3 +1,10 @@
+### نتائج الاختبارات الكتابية لمباراة التعليم 2025 (N/A, Thu, 27 Nov 2025 12:10:00 -0800)
+
+- **خبراء: "الاختبار الكندي" يوفّر منفذاً للغش .. والأسئلة المفتوحة البديل الأنسب**: [Link](https://www.hespress.com/%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D9%85%D8%AA%D8%B9%D8%AF%D8%AF%D8%A9-%D8%A7%D9%84%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-1660264.html)
+- **لوائح نتائج كتابي مباراة التعليم دورة نونبر 2025 قوائم المقبولين PDF لاجتياز الاختبارات الشفوية**: [Link](https://newsy.elsob7.com/news/listes-de-resultats-des-tests-ecrits/)
+- **السيد إدريس واحي يواكب انطلاق مباراة ولوج المراكز الجهوية للتربية والتكوين – سلك تأهيل أط**: [Link](https://sabahagadir.ma/416824.html)
+
+
 ### black friday (N/A, Thu, 27 Nov 2025 15:40:00 -0800)
 
 - **Here’s when Black Friday starts at all the major U.S. retail stores**: [Link](https://fortune.com/2025/11/27/black-friday-start-time-walmart-target-lowes-kohls-home-depot-best-buy-costco/)
