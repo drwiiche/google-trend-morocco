@@ -1,3 +1,10 @@
+### coupe de la caf (N/A, Fri, 28 Nov 2025 08:30:00 -0800)
+
+- **Zesco - Masry (Coupe de la Confédération) - revivez les moments forts du match - Sports - Sports**: [Link](https://french.ahram.org.eg/News/75286.aspx)
+- **[Expatriés] : Kouki fait briller Al Masry en Zambie**: [Link](https://tunisie-foot.com/2025/11/28/expatries-kouki-fait-briller-al-masry-en-zambie/)
+- **Coupe de la Confédération CAF (J2) : Al Masry enchaîne face à ZESCO United**: [Link](https://africafootunited.com/coupe-de-la-confederation-caf-j2-al-masry-enchaine-face-a-zesco-united/)
+
+
 ### wydad (N/A, Fri, 28 Nov 2025 08:10:00 -0800)
 
 - **Azam FC-Wydad et OC Safi-USM Alger: à quelles heures et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/coupe-caf/azam-fc-wydad-et-oc-safi-usm-alger-a-quelles-heures-et-sur-quelle-chaine_HZWIKSYBNREJ3FMLTFNZBKTDQY/)
