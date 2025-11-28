@@ -1,3 +1,10 @@
+### getafe vs elche (N/A, Fri, 28 Nov 2025 12:20:00 -0800)
+
+- **How to watch today's Getafe vs Elche La Liga game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/watch-getafe-vs-elche-la-liga-game-live-stream-tv-channel-start-time/blt79b46174e47d77a6)
+- **Elche CF vs. Getafe CF: Will Rodrigo Mendoza Martinez Moya Score?**: [Link](https://news.ssbcrack.com/elche-cf-vs-getafe-cf-will-rodrigo-mendoza-martinez-moya-score/)
+- **Getafe holds playoff dreams tonight, but Elche proves dangerous opponent as LaLiga showdown reaches critical point**: [Link](https://www.red94.net/news/80536-getafe-faces-elche-tonight-in-laliga-showdown-with-playoff-implications-at-stake/)
+
+
 ### حسين فهمي (N/A, Fri, 28 Nov 2025 11:50:00 -0800)
 
 - **مهرجان مراكش 2025**: [Link](https://www.hespress.com/%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-2025-1662512.html)
