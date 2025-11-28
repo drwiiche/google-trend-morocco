@@ -1,3 +1,10 @@
+### cash plus bourse casablanca (N/A, Fri, 28 Nov 2025 13:50:00 -0800)
+
+- **SGTM : analyse de la valorisation à 25 milliards de DH du géant du BTP**: [Link](https://medias24.com/2025/11/27/sgtm-valorisation-1583723/)
+- **SGTM : BMCE Capital recommande de souscrire à l'IPO avec un gros potentiel de gain**: [Link](https://lematin.ma/economie/sgtm-bmce-capital-recommande-de-souscrire-a-lipo/316099)
+- **SGTM, Cash Plus, Dislog… Les dessous de l’euphorie boursière au Maroc**: [Link](https://www.jeuneafrique.com/1743901/economie-entreprises/sgtm-cash-plus-dislog-les-dessous-de-leuphorie-boursiere-au-maroc/)
+
+
 ### اولمبيك اسفي (N/A, Fri, 28 Nov 2025 13:10:00 -0800)
 
 - **كأس الكونفدرالية/ أولمبيك آسفي يسقط داخل ميدانه أمام اتحاد العاصمة (0-1)**: [Link](https://m.elbotola.com/article/2025-11-28-21-00-365.html)
