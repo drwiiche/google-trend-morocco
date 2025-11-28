@@ -1,3 +1,17 @@
+### getafe – elche (N/A, Fri, 28 Nov 2025 11:10:00 -0800)
+
+- **El equipo revelación de La Liga juega gratis y en abierto por televisión: horario, día, alineaciones probables y donde y cómo ver el partido en directo**: [Link](https://www.lasprovincias.es/deportes/futbol/equipo-revelacion-liga-juega-gratis-abierto-television-20251127195712-nt.html)
+- **Getafe - Elche en directo | Vive el minuto a minuto del partidazo del día en MARCA**: [Link](https://www.marca.com/futbol/laliga-ea-sports/getafe-elche/2025/11/28/01_0101_20251128_1450_954-directo.html)
+- **Sigue todas las noticias del mundo del fútbol en nuestra sección Fútbol en directo**: [Link](https://www.flashscore.com.ar/noticias/futbol-en-directo-noticias-de-ultima-hora-laliga-jornada-14/UNzACNf4/)
+
+
+### دوري ابطال افريقيا (N/A, Fri, 28 Nov 2025 10:10:00 -0800)
+
+- **بركان يقلب الطاولة على ريفرز النيجيري**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%B9%D9%84%D9%89-%D8%B1%D9%8A%D9%81%D8%B1%D8%B2-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A-1663073.html)
+- **الشعباني: "مواجهة ريفرز يونايتد ستكون صعبة لأنهم فريق منظم ونهدف للعودة بنتيجة إيجابية"**: [Link](https://m.elbotola.com/article/2025-11-27-19-08-53.html)
+- **دوري أبطال إفريقيا.. "ريمونتادا" نهضة بركان في الرمق الأخير من المباراة تمنحه النقاط الثلاث أمام ريفرز يونايتد**: [Link](https://alyaoum24.com/1995951.html)
+
+
 ### الدعم المباشر (N/A, Fri, 28 Nov 2025 10:50:00 -0800)
 
 - **الزيادة الأولى في مبالغ الدعم الاجتماعي المباشر ستدخل حيز التنفيذ ابتداء من نهاية نونبر الجاري**: [Link](https://www.maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D9%84%D8%BA-%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B3%D8%AA%D8%AF%D8%AE%D9%84-%D8%AD%D9%8A%D8%B2-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D9%8A%D8%B0-%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A1-%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%86%D9%88%D9%86%D8%A8%D8%B1-%D8%A7%D9%84%D8%AC%D8%A7%D8%B1%D9%8A)
