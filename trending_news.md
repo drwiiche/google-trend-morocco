@@ -1,3 +1,10 @@
+### application uber maroc (N/A, Thu, 27 Nov 2025 15:50:00 -0800)
+
+- **VTC: Uber de retour au Maroc, la réaction des taxis**: [Link](https://h24info.ma/maroc/vtc-uber-de-retour-au-maroc-la-reaction-des-taxis/)
+- **Uber revient au Maroc, à Casablanca et Marrakech pour commencer**: [Link](https://ledesk.ma/2025/11/27/uber-revient-au-maroc-a-casablanca-et-marrakech-pour-commencer/)
+- **Uber relance ses activités au Maroc en partenariat avec des transporteurs agréés**: [Link](https://lematin.ma/economie/uber-relance-ses-activites-au-maroc/315839)
+
+
 ### أبو عبيدة (N/A, Fri, 28 Nov 2025 02:00:00 -0800)
 
 - **صوت أبو عبيدة يعود إلى قلب إسرائيل ويثير الارتباك والذعر**: [Link](https://www.aljazeera.net/news/2025/11/27/%D8%B5%D9%88%D8%AA-%D8%A3%D8%A8%D9%88-%D8%B9%D8%A8%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%82%D9%84%D8%A8-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%88%D9%8A%D8%AB%D9%8A%D8%B1)
