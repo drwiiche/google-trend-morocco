@@ -1,3 +1,17 @@
+### حسين فهمي (N/A, Sat, 29 Nov 2025 12:10:00 -0800)
+
+- **مهرجان مراكش يحتفي بسحر السينما ويكرم الفنان المصري حسين فهمي**: [Link](https://www.hespress.com/%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D8%B3%D8%AD%D8%B1-%D8%A7%D9%84%D8%B3%D9%8A%D9%86%D9%85%D8%A7-%D8%A7%D9%84%D8%B9%D8%A7%D9%84-1663202.html)
+- **حسين فهمي: عادل إمام في صحة جيدة وأنا الصندوق الأسود للفنانة يسرا - هبة بريس**: [Link](https://ar.hibapress.com/details-680166.html)
+- **أجواء افتتاح فعاليات الدورة الـ22 للمهرجان الدولي للفيلم بمراكش**: [Link](https://ar.le360.ma/culture/5URVMCG5MNHQLLQXOPLYE46H2U/)
+
+
+### ميلان ضد لاتسيو (N/A, Sat, 29 Nov 2025 12:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة ميلان ولاتسيو في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D9%84%D8%A7%D8%AA%D8%B3%D9%8A%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte823f32508087004)
+- **تشكيلة ميلان ضد لاتسيو في الدوري الإيطالي**: [Link](https://hihi2.com/2025/11/29/p3535378.html)
+- **لا جازيتا ديلو سبورت: استبعاد بوليسيتش من مواجهة بوليسيتش**: [Link](https://www.filgoal.com/articles/518080/%D9%84%D8%A7-%D8%AC%D8%A7%D8%B2%D9%8A%D8%AA%D8%A7-%D8%AF%D9%8A%D9%84%D9%88-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D9%8A%D8%AA%D8%B4-%D9%85%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D9%8A%D8%AA%D8%B4)
+
+
 ### venezuela (N/A, Sat, 29 Nov 2025 12:00:00 -0800)
 
 - **Trump anuncia el cierre total del espacio aéreo de Venezuela**: [Link](https://elpais.com/internacional/2025-11-29/trump-anuncia-el-cierre-total-del-espacio-aereo-de-venezuela.html)
