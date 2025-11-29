@@ -1,3 +1,10 @@
+### ahly (N/A, Fri, 28 Nov 2025 11:50:00 -0800)
+
+- **Sundowns and Al Ahly drop points as Wydad win again**: [Link](https://supersport.com/football/general/news/e09896a6-677c-425a-93ec-73a85171f355/sundowns-and-al-ahly-drop-points-as-wydad-win-again)
+- **What went wrong? Titans held by north Africa’s best**: [Link](https://www.africaninsider.com/sport/what-went-wrong-titans-held-by-north-africas-best/)
+- **Berkane, Wydad Extend Perfect Starts As Sundowns, Al Ahly Held To Group-Stage Draws**: [Link](https://bsnsports.com.ng/post/Berkane--Wydad-Extend-Perfect-Starts-As-Sundowns--Al-Ahly-Held-To-Group-Stage-Draws)
+
+
 ### airbus a320 (N/A, Fri, 28 Nov 2025 16:10:00 -0800)
 
 - **Flight disruption warning as Airbus requests modifications to 6,000 planes**: [Link](https://www.bbc.com/news/live/cvg4y6g74ert)
