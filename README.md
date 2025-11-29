@@ -1,3 +1,10 @@
+### sunderland vs bournemouth (N/A, Sat, 29 Nov 2025 08:00:00 -0800)
+
+- **USMNT star Adams scores from near halfway line**: [Link](https://www.espn.com/soccer/story/_/id/47137399/usmnt-star-tyler-adams-scores-halfway-line-bournemouth)
+- **Incredible moment Bournemouth star Tyler Adams lobs Sunderland keeper Robin Roefs from inside centre circle**: [Link](https://www.thesun.co.uk/sport/37482227/tyler-adams-goal-lob-sunderland-bournemouth/)
+- **Tyler Adams' screamer gives Bournemouth 2-0 lead over Sunderland**: [Link](https://www.nbcsports.com/watch/soccer/premier-league/tyler-adams-screamer-gives-bournemouth-2-0-lead-over-sunderland)
+
+
 ### monaco vs psg (N/A, Sat, 29 Nov 2025 07:40:00 -0800)
 
 - **Luis Enrique compares PSG star with former Barcelona player**: [Link](https://www.pulsesports.ng/football/story/luis-enrique-compares-psg-star-with-former-barcelona-player-2025112900332953971)
