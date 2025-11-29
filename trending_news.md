@@ -1,3 +1,17 @@
+### ac milan – lazio (N/A, Sat, 29 Nov 2025 11:10:00 -0800)
+
+- **CM: A ‘golden chance’ – pressure increases on Nkunku to start repaying €38m+ investment**: [Link](https://sempremilan.com/nkunku-golden-chance-repay-investment)
+- **Igli Tare Eyeing Reunion With Lazio Defender at AC Milan**: [Link](https://thelaziali.com/2025/11/27/igli-tare-reunion-lazio-mario-gila-milan/)
+- **Christian Pulisic injury latest as AC Milan faces decision on USMNT star**: [Link](https://www.msn.com/en-us/sports/other/christian-pulisic-injury-latest-as-ac-milan-faces-decision-on-usmnt-star/ar-AA1RmeKV)
+
+
+### city (N/A, Sat, 29 Nov 2025 08:30:00 -0800)
+
+- **First snow falls in Denver — second-latest on record for city**: [Link](https://www.denverpost.com/2025/11/29/denver-weather-snow-winter-snowfall/)
+- **Frisco eagerly awaits snowfall after a slow start to the winter season-**: [Link](https://www.denver7.com/news/local-news/frisco-eagerly-awaits-snowfall-after-a-slow-start-to-the-winter-season)
+- **Experts raise red flags as major US city is poised to set concerning record — here's what's happening**: [Link](https://www.yahoo.com/news/articles/experts-raise-red-flags-major-010500592.html)
+
+
 ### إيفرتون ضد نيوكاسل يونايتد (N/A, Sat, 29 Nov 2025 10:50:00 -0800)
 
 - **موعد مباراة إيفرتون ونيوكاسل يونايتد اليوم 2025-11-29 في إنجلترا, الدوري الإنجليزي والقناة الناقلة**: [Link](https://news.mes7at.com/matches/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/)
