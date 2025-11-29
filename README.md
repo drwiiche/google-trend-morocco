@@ -1,3 +1,10 @@
+### flamengo vs palmeiras (N/A, Sat, 29 Nov 2025 13:00:00 -0800)
+
+- **Danilo 'rouba' a terceira Libertadores a Abel Ferreira e Flamengo é campeão da América do Sul**: [Link](https://sportinforma.sapo.pt/futebol/copa-libertadores/artigos/danilo-rouba-a-terceira-libertadores-a-abel-ferreira-e-flamengo-e-campeao-da-america-do-sul)
+- **Caio Ribeiro critica jogador do Palmeiras em gol do Flamengo: 'É dele'**: [Link](https://www.lance.com.br/fora-de-campo/caio-ribeiro-critica-jogador-do-palmeiras-em-gol-do-flamengo-e-dele.html)
+- **Final da Libertadores começará com 15 minutos de atraso; entenda**: [Link](https://www.metropoles.com/esportes/final-da-libertadores-comecara-com-15-minutos-de-atraso-entenda)
+
+
 ### inter miami – new york city fc (N/A, Sat, 29 Nov 2025 14:20:00 -0800)
 
 - **2025 MLS playoffs conference finals preview: Can Müller lead the Caps to MLS Cup?**: [Link](https://www.espn.com/soccer/story/_/id/47119613/2025-mls-playoffs-conference-finals-preview-thomas-muller-lead-vancouver-whitecaps-mls-cup)
