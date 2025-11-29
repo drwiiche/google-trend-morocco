@@ -1,3 +1,10 @@
+### لا ليغا (N/A, Sat, 29 Nov 2025 07:30:00 -0800)
+
+- **بواتينج يورط ميسي بتصريح مثير عن تعاقده مع برشلونة**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1354120/%D8%A8%D9%88%D8%A7%D8%AA%D9%8A%D9%86%D8%AC-%D9%8A%D9%88%D8%B1%D8%B7-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D9%85%D8%AB%D9%8A%D8%B1-%D8%B9%D9%86-%D8%AA%D8%B9%D8%A7%D9%82%D8%AF)
+- **بواتينغ: ميسي كان صاحب الكلمة الحاسمة في انتقالي إلى برشلونة**: [Link](https://www.elsport.com/news/show/802147/%D8%A8%D9%88%D8%A7%D8%AA%D9%8A%D9%86%D8%BA-%D9%85%D9%8A%D8%B3%D9%8A-%D9%83%D8%A7%D9%86-%D8%B5%D8%A7%D8%AD%D8%A8-%D8%A7%D9%84%D9%83%D9%84%D9%85%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%8A-%D8%A5%D9%84%D9%89-%D8%A8)
+- **استرجاعًا لـ"كذبة الماضي" .. بواتينج يتغزل بميسي ويفضل رونالدو عليه ويؤكد: طلبوا إذنه قبل انضمامي لبرشلونة!**: [Link](https://www.msn.com/ar-eg/news/other/%D8%A7%D8%B3%D8%AA%D8%B1%D8%AC%D8%A7%D8%B9%D9%8B%D8%A7-%D9%84%D9%80-%D9%83%D8%B0%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A-%D8%A8%D9%88%D8%A7%D8%AA%D9%8A%D9%86%D8%AC-%D9%8A%D8%AA%D8%BA%D8%B2%D9%84-%D8%A8%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D9%8A%D9%81%D8%B6%D9%84-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%B9%D9%84%D9%8A%D9%87-%D9%88%D9%8A%D8%A4%D9%83%D8%AF-%D8%B7%D9%84%D8%A8%D9%88%D8%A7-%D8%A5%D8%B0%D9%86%D9%87-%D9%82%D8%A8%D9%84-%D8%A7%D9%86%D8%B6%D9%85%D8%A7%D9%85%D9%8A-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/ar-AA1RnNmf)
+
+
 ### juventus – cagliari (N/A, Sat, 29 Nov 2025 08:20:00 -0800)
 
 - **Serie A | Le formazioni ufficiali di Juventus-Cagliari**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-cagliari-formazioni-ufficiali)
