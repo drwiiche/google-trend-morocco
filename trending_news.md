@@ -1,3 +1,24 @@
+### atlético madrid – real oviedo (N/A, Sat, 29 Nov 2025 11:20:00 -0800)
+
+- **Un 1-0 para hacer historia en LaLiga**: [Link](https://www.marca.com/futbol/atletico/2025/11/29/1-0-historia-laliga.html)
+- **El oviedismo toma Madrid: "A ver si sacamos algo ante el Atlético"**: [Link](https://www.lne.es/real-oviedo/2025/11/29/oviedismo-toma-madrid-ver-sacamos-124265758.html)
+- **Simeone prepara un once impredecible del Atleti para enfrentar al Oviedo**: [Link](https://www.mundiario.com/articulo/deportes/simeone-prepara-once-impredecible-atleti-enfrentar-oviedo/20251129195226365065.html)
+
+
+### tottenham – fulham (N/A, Sat, 29 Nov 2025 11:20:00 -0800)
+
+- **Tottenham v Fulham: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/nov/29/tottenham-v-fulham-premier-league-live)
+- **Frank’s plausible XI: Prepare to be disappointed**: [Link](https://theboyhotspur.com/tottenham-fulham-team-news-odds-and-form-guide/)
+- **Fulham must act in January transfer window, demands Silva**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/fulham-must-act-in-january-transfer-window-demands-silva-2025-11-29)
+
+
+### marseille – toulouse (N/A, Sat, 29 Nov 2025 11:20:00 -0800)
+
+- **Coup de tonnerre avant OM-Toulouse !**: [Link](https://www.sports.fr/football/ligue-1/coup-de-tonnerre-avant-om-toulouse-970792.html)
+- **OM : Nayef Aguerd devrait faire son grand retour face à Toulouse**: [Link](https://www.footmercato.net/a7086475609077480036-om-nayef-aguerd-devrait-faire-son-grand-retour-face-a-toulouse)
+- **OM-Toulouse, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/ligue-1/om-toulouse-sur-quelle-chaine-voir-le-match-786749.html)
+
+
 ### ac milan – lazio (N/A, Sat, 29 Nov 2025 11:10:00 -0800)
 
 - **CM: A ‘golden chance’ – pressure increases on Nkunku to start repaying €38m+ investment**: [Link](https://sempremilan.com/nkunku-golden-chance-repay-investment)
