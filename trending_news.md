@@ -1,3 +1,10 @@
+### ocs vs usma (N/A, Fri, 28 Nov 2025 12:20:00 -0800)
+
+- **Draoui strike seals vital away win for USM Alger**: [Link](https://www.cafonline.com/caf-confederation-cup/news/draoui-strike-seals-vital-away-win-for-usm-alger/)
+- **CAF Confederation Cup: Olympic Safi Falls at Home to USM Alger (0-1)**: [Link](https://m.elbotola.com/en/article/2025-11-28-21-00-544.html)
+- **CAFCC: USM Alger pounce on late error to win at Olympique Safi**: [Link](https://www.panafricafootball.com/post/cafcc-usm-alger-v-olympique-de-safi/)
+
+
 ### nayef aguerd (N/A, Sat, 29 Nov 2025 01:40:00 -0800)
 
 - **OM : Nayef Aguerd devrait faire son grand retour face à Toulouse**: [Link](https://www.footmercato.net/a7086475609077480036-om-nayef-aguerd-devrait-faire-son-grand-retour-face-a-toulouse)
