@@ -1,3 +1,29 @@
+### barca (N/A, Sat, 29 Nov 2025 07:30:00 -0800)
+
+- **Soccorso dei Vigili del Fuoco sul Lago di Bolsena a causa del maltempo**: [Link](https://www.occhioviterbese.it/soccorso-dei-vigili-del-fuoco-sul-lago-di-bolsena-a-causa-del-maltempo/)
+- **Barca da pesca in balia delle onde al lago di Bolsena, 39enne a bordo**: [Link](https://www.viterbotoday.it/cronaca/barca-lago-bolsena-27-novembre-2025.html)
+- **Bolsena - Pescatore bloccato in mezzo al lago durante il maltempo: salvato dai vigili del fuoco**: [Link](https://www.lacronaca24.it/2025/11/28/bolsena-pescatore-bloccato-mezzo-al-lago-durante-il-maltempo-salvato-dai-vigili-del-fuoco/)
+
+
+### موناكو ضد بي اس جي (N/A, Sat, 29 Nov 2025 07:30:00 -0800)
+
+
+
+
+### fc barcelone (N/A, Sat, 29 Nov 2025 07:30:00 -0800)
+
+- **FC Barcelone - Deportivo Alavés en direct - La Liga : Football Scores & Résultats - 29/11/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-fc-barcelone-deportivo-alaves_mtc1610513/live-commentary.shtml)
+- **Dernière séance avant Barça - Alavés**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4410659/derniere-seance-avant-barca-alaves)
+- **Barcelone-Alaves, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/espagne/barcelone-alaves-sur-quelle-chaine-voir-le-match-786710.html)
+
+
+### barca match (N/A, Sat, 29 Nov 2025 07:30:00 -0800)
+
+- **Barcelona vs Deportivo Alaves – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269975/barcelona-vs-deportivo-alaves-match-preview-prediction/)
+- **Official: Barcelona learn referee appointment for Alavés clash**: [Link](https://getfootballnewsspain.com/official-barcelona-learn-referee-appointment-for-alaves-clash/)
+- **La Liga Soccer: Stream Barcelona vs. Alavés Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-barcelona-vs-alaves-live-from-anywhere/)
+
+
 ### monaco – paris-sg (N/A, Sat, 29 Nov 2025 07:20:00 -0800)
 
 - **Monaco-PSG, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/ligue-1/monaco-psg-sur-quelle-chaine-voir-le-match-786738.html)
