@@ -1,3 +1,10 @@
+### barca vs (N/A, Sat, 29 Nov 2025 07:40:00 -0800)
+
+- **Osasuna ‘inventa’ el antídoto contra el hombre tumbado en las barreras: vean el ‘truco’ de la falta del 2-1**: [Link](https://as.com/futbol/videos/osasuna-inventa-el-antidoto-contra-el-hombre-tumbado-en-las-barreras-vean-el-truco-de-la-falta-del-2-1-f202511-v/)
+- **Resumen y gol del AD Ceuta vs. Burgos CF, jornada 16 de LaLiga Hypermotion**: [Link](https://as.com/futbol/videos/resumen-y-gol-del-ad-ceuta-vs-burgos-cf-jornada-16-de-laliga-hypermotion-f202511-v/)
+- **Resumen y goles del Cultural Leonesa vs Granada, jornada 16 de LaLiga Hypermotion 25-26**: [Link](https://as.com/futbol/videos/resumen-y-goles-del-cultural-leonesa-vs-granada-jornada-16-de-laliga-hypermotion-25-26-f202511-v/)
+
+
 ### la liga (N/A, Sat, 29 Nov 2025 09:20:00 -0800)
 
 - **Barcelona vs Deportivo Alaves – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269975/barcelona-vs-deportivo-alaves-match-preview-prediction/)
