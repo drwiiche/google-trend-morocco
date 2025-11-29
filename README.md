@@ -1,3 +1,31 @@
+### levante – ath. bilbao (N/A, Sat, 29 Nov 2025 08:50:00 -0800)
+
+- **Los once elegidos por Julián Calero para enfrentarse al Athletic Club**: [Link](https://www.superdeporte.es/levante-ud/2025/11/29/once-elegidos-julian-calero-enfrentarse-124268752.html)
+- **Cita sin término medio: tres puntos de oro o un drama**: [Link](https://www.deia.eus/athletic/2025/11/29/cita-levante-athletic-termino-medio-tres-puntos-10412716.html)
+- **Así juega el Levante, el peor local de la Liga antes de recibir al Athletic**: [Link](https://www.elcorreo.com/athletic/juega-levante-peor-local-liga-recibir-athletic-20251128211420-nt.html)
+
+
+### leverkusen – dortmund (N/A, Sat, 29 Nov 2025 08:50:00 -0800)
+
+- **Andrich oder Maza? Hjulmand und die Frage der Frische**: [Link](https://www.kicker.de/andrich-oder-maza-hjulmand-und-die-frage-der-frische-1170415/artikel)
+- **BVB vs Bayer Leverkusen. Wer überträgt das DFB-Pokal-Achtelfinale im Free-TV?**: [Link](https://www.joyn.de/bts/themen/sport/dfb-pokal-achtelfinale-borussia-dortmund-bayer-leverkusen-im-kostenfreien-livestream-free-tv-36701)
+- **BVB: Aufstellung für Top-Spiel da! Niko Kovac tauscht diesen Star aus**: [Link](https://www.bild.de/sport/fussball/bvb-aufstellung-fuer-top-spiel-da-niko-kovac-tauscht-diesen-star-aus-692b2123083002b549fa736d)
+
+
+### everton – newcastle (N/A, Sat, 29 Nov 2025 08:50:00 -0800)
+
+- **Everton v Newcastle: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/nov/29/everton-v-newcastle-premier-league-live)
+- **TEAM NEWS: Ramsdale, Elanga and Burn start – Confirmed Newcastle XI vs Everton**: [Link](https://www.nufcblog.co.uk/2025/11/29/team-news-ramsdale-burn-and-woltemade-start-confirmed-newcastle-xi-vs-everton/)
+- **Everton vs Newcastle predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.com/sport/football/articles/c0kdvlz03nzo)
+
+
+### match barca (N/A, Sat, 29 Nov 2025 08:00:00 -0800)
+
+- **Hansi Flick Confirms Huge Barcelona Injury Boost Before Alaves Visit**: [Link](https://www.si.com/soccer/hansi-flick-huge-barcelona-injury-boost-alaves-visit)
+- **Pedri back with the group**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4409771/pedri-back-with-the-group)
+- **Why Frenkie de Jong has been ruled out of Barcelona’s clash with Alaves**: [Link](https://sports.yahoo.com/articles/why-frenkie-jong-ruled-barcelona-141522697.html)
+
+
 ### لا ليغا (N/A, Sat, 29 Nov 2025 07:30:00 -0800)
 
 - **بواتينج يورط ميسي بتصريح مثير عن تعاقده مع برشلونة**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1354120/%D8%A8%D9%88%D8%A7%D8%AA%D9%8A%D9%86%D8%AC-%D9%8A%D9%88%D8%B1%D8%B7-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D9%85%D8%AB%D9%8A%D8%B1-%D8%B9%D9%86-%D8%AA%D8%B9%D8%A7%D9%82%D8%AF)
