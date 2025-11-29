@@ -1,3 +1,17 @@
+### محمد هنيدي (N/A, Sat, 29 Nov 2025 14:00:00 -0800)
+
+- **في أجواء عائلية.. محمد هنيدي يحتفل بعقد قران ابنته (صور)**: [Link](https://www.almasryalyoum.com/news/details/4139621)
+- **محمد هنيدى.. "أبو العروسة" المحتفظ بروح الشباب**: [Link](https://www.youm7.com/story/2025/11/29/%D9%85%D8%AD%D9%85%D8%AF-%D9%87%D9%86%D9%8A%D8%AF%D9%89-%D8%A3%D8%A8%D9%88-%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B3%D8%A9-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D9%81%D8%B8-%D8%A8%D8%B1%D9%88%D8%AD-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/7215449)
+- **من هو حازم الدباح؟ كواليس مثيرة عن عريس ابنة محمد هنيدي وطبيعة عمله | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-11-29/%D9%85%D9%86-%D9%87%D9%88-%D8%AD%D8%A7%D8%B2%D9%85-%D8%A7%D9%84%D8%AF%D8%A8%D8%A7%D8%AD-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%B9%D9%86-%D8%B9%D8%B1%D9%8A%D8%B3-%D8%A7%D8%A8%D9%86%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D9%87%D9%86%D9%8A%D8%AF%D9%8A-%D9%88%D8%B7%D8%A8%D9%8A%D8%B9%D8%A9-%D8%B9%D9%85%D9%84%D9%87-6200341/%D9%81%D9%86%D9%88%D9%86/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
+
+
+### milan ac (N/A, Sat, 29 Nov 2025 13:50:00 -0800)
+
+- **Serie A : l’AC Milan bat la Lazio et prend provisoirement la tête**: [Link](https://www.footmercato.net/a6055982749726766325-serie-a-lac-milan-bat-la-lazio-et-prend-provisoirement-la-tete)
+- **Série A : La longue série noire de Maurizio Sarri à San Siro**: [Link](https://africafootunited.com/serie-a-la-longue-serie-noire-de-maurizio-sarri-a-san-siro/)
+- **Allegri salue la transformation de Leão: "Il participe davantage au jeu et aide l'équipe dans les tâches ingrates"**: [Link](https://tribuna.com/fr/news/2025-11-27-allegri-salue-la-transformation-de-leao-il-participe-davantage-au-jeu-et-aide-lequipe-dan/)
+
+
 ### palmeiras vs flamengo live (N/A, Sat, 29 Nov 2025 13:30:00 -0800)
 
 - **Peru Brazil Copa Libertadores Soccer**: [Link](https://www.chronicleonline.com/sports/soccer/peru-brazil-copa-libertadores-soccer/image_fc31ed39-23de-5c2d-9bb7-64e9d44b4cbf.html)
