@@ -1,3 +1,17 @@
+### البايرن ضد سانت باولي (N/A, Sat, 29 Nov 2025 06:40:00 -0800)
+
+- **هاري كين يقود هجوم بايرن ميونخ أمام سانت باولي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D8%A7%D9%86%D8%AA-%D8%A8%D8%A7%D9%88%D9%84%D9%8A/blt463dd2c5dfc5dfb7)
+- **أرقام استثنائية لبايرن ميونخ**: [Link](https://hihi2.com/2025/11/29/p3534334.html)
+- **كومباني: خسارة أرسنال درس مهم واستعدادنا لسانت باولي لا يختلف**: [Link](https://www.elsport.com/news/show/802039/%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%AF%D8%B1%D8%B3-%D9%85%D9%87%D9%85-%D9%88%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D9%86%D8%A7-%D9%84%D8%B3%D8%A7%D9%86%D8%AA-%D8%A8%D8%A7%D9%88%D9%84)
+
+
+### bayern vs fc st. pauli (N/A, Sat, 29 Nov 2025 06:40:00 -0800)
+
+- **Weltpokalsieger-Besieger: St. Paulis Coup gegen Bayern brachte Unglück**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/weltpokalsieger-besieger-st-paulis-coup-gegen-bayern-brachte-unglueck-zr-94059903.html)
+- **FC Bayern München gegen FC St. Pauli jetzt live im Ticker - Bundesliga - 12. Spieltag - Liveticker**: [Link](https://www.eurosport.de/fussball/bundesliga/2025-2026/live-fc-bayern-munchen-fc-st.-pauli_mtc1608927/live-commentary.shtml)
+- **Vincent Kompany: Darum kassiert der FC Bayern so viele Standardtore**: [Link](https://tribuna.com/de/news/2025-11-29-vincent-kompany-darum-kassiert-der-fc-bayern-so-viele-standardtore/)
+
+
 ### برشلونة ضد ألافيس (N/A, Sat, 29 Nov 2025 06:30:00 -0800)
 
 - **ما القنوات الناقلة لمباراة برشلونة وألافيس في الدوري الإسباني 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%94%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte24fd3c3fc5aa389)
