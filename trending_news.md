@@ -1,3 +1,10 @@
+### bayern – sankt pauli (N/A, Sat, 29 Nov 2025 05:50:00 -0800)
+
+- **Kurios! Bayern-Torhymne läuft bei St.-Pauli-Pressekonferenz**: [Link](https://sport.sky.de/fussball/artikel/kurios-bayern-torhymne-laeuft-bei-st-pauli-pressekonferenz/13476525/34128)
+- **Kuriose Aktion: Reporter spielt Bayern-Torhymne auf St.-Pauli-PK ab**: [Link](https://www.spox.com/fussball/news/kuriose-aktion-reporter-spielt-bayern-torhymne-auf-st-pauli-pk-ab/blt1f1bef75527abd55)
+- **"Fred Feuerstein oder was ist das?"**: [Link](https://www.sport1.de/tv-video/video/-fred-feuerstein-oder-was-ist-das-__F034F72F-4E27-49AA-BE3E-DB248E284E32)
+
+
 ### leicester – sheffield utd (N/A, Sat, 29 Nov 2025 05:10:00 -0800)
 
 - **Leicester v Blades - confirmed teams**: [Link](https://www.sufc.co.uk/news/2025/november/29/leicester-v-blades/)
