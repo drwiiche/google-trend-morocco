@@ -1,3 +1,10 @@
+### palmeiras vs flamengo live (N/A, Sat, 29 Nov 2025 13:30:00 -0800)
+
+- **Peru Brazil Copa Libertadores Soccer**: [Link](https://www.chronicleonline.com/sports/soccer/peru-brazil-copa-libertadores-soccer/image_fc31ed39-23de-5c2d-9bb7-64e9d44b4cbf.html)
+- **Why Was the Libertadores Final Between Palmeiras and Flamengo Delayed?**: [Link](https://www.beinsports.com/en-us/soccer/conmebol-libertadores/articles/why-was-the-libertadores-final-between-palmeiras-and-flamengo-delayed-2025-11-29)
+- **Live Updates: Palmeiras vs Flamengo Live Copa Libertadores Final 2025**: [Link](https://www.griceconnect.com/classifieds/buy-sell-and-services/wanted-to-buy/2057831?)
+
+
 ### copa libertadores (N/A, Sat, 29 Nov 2025 13:00:00 -0800)
 
 - **Bruno Henrique Y Danilo Titulares En Flamengo Y Carlos Miguel Ataja En Palmeiras**: [Link](https://www.barrons.com/news/spanish/bruno-henrique-y-danilo-titulares-en-flamengo-y-carlos-miguel-ataja-en-palmeiras-210f676c)
