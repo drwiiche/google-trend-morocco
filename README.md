@@ -1,3 +1,17 @@
+### leicester – sheffield utd (N/A, Sat, 29 Nov 2025 05:10:00 -0800)
+
+- **Leicester v Blades - confirmed teams**: [Link](https://www.sufc.co.uk/news/2025/november/29/leicester-v-blades/)
+- **SUFC News: Five changes and derby-day hero call in Blades predicted XI v Leicester**: [Link](https://www.thestar.co.uk/sport/football/sheffield-united/five-changes-and-derby-day-hero-call-in-sheffield-united-predicted-xi-for-leicester-city-clash-after-chris-wilder-verdict-5422728)
+- **Leicester vs Sheffield United LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2025/11/29/1243025-leicester-vs-sheffield-united-live-score-updates-in-efl-championship-match.html)
+
+
+### cnews (N/A, Sat, 29 Nov 2025 03:00:00 -0800)
+
+- **Temps de parole : l’Arcom démonte le réquisitoire de RSF contre CNews**: [Link](https://www.lepoint.fr/politique/temps-de-parole-l-arcom-demonte-le-requisitoire-de-rsf-contre-cnews-27-11-2025-2604163_20.php)
+- **Pluralisme en France : sur CNews, le grand contournement**: [Link](https://rsf.org/fr/pluralisme-en-france-sur-cnews-le-grand-contournement)
+- **Des infos ou désinfo ? La méthode CNews en replay - Complément d'enquête**: [Link](https://www.france.tv/france-2/complement-d-enquete/7768815-des-infos-ou-desinfo-la-methode-cnews.html)
+
+
 ### ocs vs usma (N/A, Fri, 28 Nov 2025 12:20:00 -0800)
 
 - **Draoui strike seals vital away win for USM Alger**: [Link](https://www.cafonline.com/caf-confederation-cup/news/draoui-strike-seals-vital-away-win-for-usm-alger/)
