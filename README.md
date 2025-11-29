@@ -1,3 +1,17 @@
+### cd nacional – benfica (N/A, Sat, 29 Nov 2025 10:40:00 -0800)
+
+- **AO VIVO: Kaique segura remate de Sudakov (33')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-kaique-segura-remate-de-sudakov-33/pMadrvPs/)
+- **José Mourinho aposta em Rodrigo Rêgo para o duelo frente ao Nacional**: [Link](https://www.jn.pt/desporto/artigo/jose-mourinho-aposta-em-rodrigo-rego-para-o-duelo-frente-ao-nacional/18025339)
+- **Ouça o Relato TSF: Nacional 0-0 Benfica (1.ª parte)**: [Link](https://www.tsf.pt/desporto/artigo/ouca-o-relato-tsf-conheca-os-onzes-de-nacional-e-benfica/18025332)
+
+
+### far rabat (N/A, Sat, 29 Nov 2025 10:40:00 -0800)
+
+- **Santos: "It's Natural to Go Through a Difficult Period, Tomorrow We Will Respond on the Field Against Al Ahly"**: [Link](https://m.elbotola.com/en/article/2025-11-27-19-14-906.html)
+- **AS FAR vs Al Ahly: How & Where to Watch**: [Link](https://www.moroccoworldnews.com/2025/11/269857/as-far-vs-al-ahly-how-where-to-watch/)
+- **Where and when to catch Ahly vs. AS FAR in the CAF Champions League**: [Link](https://www.egyptindependent.com/where-and-when-to-catch-ahly-vs-as-far-in-the-caf-champions-league/)
+
+
 ### laliga (N/A, Sat, 29 Nov 2025 09:10:00 -0800)
 
 - **Barcelona vs Deportivo Alaves – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269975/barcelona-vs-deportivo-alaves-match-preview-prediction/)
