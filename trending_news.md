@@ -1,3 +1,17 @@
+### برشلونة ضد ألافيس (N/A, Sat, 29 Nov 2025 06:30:00 -0800)
+
+- **ما القنوات الناقلة لمباراة برشلونة وألافيس في الدوري الإسباني 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%94%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte24fd3c3fc5aa389)
+- **موعد مباراة برشلونة ضد ألافيس بالدوري الإسباني والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/28/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B4-%D9%81%D9%8A)
+- **بيان رسمي.. إصابة جديدة في برشلونة**: [Link](https://hihi2.com/2025/11/29/p3534609.html)
+
+
+### barcelona vs alavés (N/A, Sat, 29 Nov 2025 06:30:00 -0800)
+
+- **Barcelona - Alavés en directo | LALIGA EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/barcelona-alaves/2025/11/29/01_0101_20251129_178_173-directo.html)
+- **Revolución en el once del Barça con Raphinha y Bernal y una baja de última hora**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251129/1002578110/revolucion-once-barca-raphinha-bernal-baja-ultima-hora.html)
+- **¡Frenkie de Jong, duda contra el Alavés!**: [Link](https://www.sport.es/es/noticias/barca/frenkie-jong-duda-alaves-124262037)
+
+
 ### مان سيتي ضد ليدز (N/A, Sat, 29 Nov 2025 06:20:00 -0800)
 
 - **جوارديولا: قراراتي سبب الهزيمة أمام ليفركوزن.. وأريد الأفضل لسيلفا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86--%D9%88%D8%A7%D9%94%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D9%84%D8%B3%D9%8A%D9%84%D9%81%D8%A7/blt05f7a1c1062d646e)
