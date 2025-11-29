@@ -1,3 +1,10 @@
+### إيفرتون ضد نيوكاسل يونايتد (N/A, Sat, 29 Nov 2025 10:50:00 -0800)
+
+- **موعد مباراة إيفرتون ونيوكاسل يونايتد اليوم 2025-11-29 في إنجلترا, الدوري الإنجليزي والقناة الناقلة**: [Link](https://news.mes7at.com/matches/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/)
+- **مواجهة صعبة.. التشكيلة المتوقعة ونسب الفوز في مباراة إيفرتون ونيوكاسل يونايتد**: [Link](https://eahelqesa.com/27708/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%88%D9%86%D8%B3%D8%A8-%D8%A7%D9%84/)
+- **Everton vs Newcastle.. نتيجة مباراة ايفرتون ضد نيوكاسل اليوم في الدوري الانجليزي**: [Link](https://zahraa.mr/6125350/everton-vs-newcastle-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D8%B6%D8%AF-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D8%A7/)
+
+
 ### cd nacional – benfica (N/A, Sat, 29 Nov 2025 10:40:00 -0800)
 
 - **AO VIVO: Kaique segura remate de Sudakov (33')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-kaique-segura-remate-de-sudakov-33/pMadrvPs/)
