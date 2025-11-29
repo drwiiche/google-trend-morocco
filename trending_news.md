@@ -1,3 +1,10 @@
+### airbus a320 (N/A, Fri, 28 Nov 2025 16:10:00 -0800)
+
+- **Flight disruption warning as Airbus requests modifications to 6,000 planes**: [Link](https://www.bbc.com/news/live/cvg4y6g74ert)
+- **Lufthansa Joins easyJet, Wizz Air, Air France-KLM, British Airways, Aer Lingus and Jet2.com as Airbus-Solar Flare Chaos Triggers Europe-Wide Flight Disruptions Across Germany, UK, France, Netherlands, Ireland and Hungary**: [Link](https://www.travelandtourworld.com/news/article/lufthansa-joins-easyjet-wizz-air-air-france-klm-british-airways-aer-lingus-and-jet2-com-as-airbus-solar-flare-chaos-triggers-europe-wide-flight-disruptions-across-germany-uk-france-netherlands/)
+- **American Airlines cuts number of jets needing Airbus software fix to 209**: [Link](https://www.tradingview.com/news/reuters.com,2025:newsml_L4N3X500B:0-american-airlines-cuts-number-of-jets-needing-airbus-software-fix-to-209/)
+
+
 ### widad (N/A, Fri, 28 Nov 2025 09:40:00 -0800)
 
 - **La chaîne Al Ahly met en lumière des sites marocains, dont la boutique du Wydad**: [Link](http://m.elbotola.com/fr/article/2025-11-28-15-31-349.html)
