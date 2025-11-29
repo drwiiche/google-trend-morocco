@@ -1,3 +1,10 @@
+### la liga (N/A, Sat, 29 Nov 2025 09:20:00 -0800)
+
+- **Barcelona vs Deportivo Alaves – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269975/barcelona-vs-deportivo-alaves-match-preview-prediction/)
+- **Lamine Yamal celebrates his first goal with Barça at Spotify Camp Nou**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/lamine-yamal-celebrates-his-1st-goal-at-camp-nou-against-alaves_315370_102.html)
+- **Hansi Flick set to deploy Garcia-Cubarsi in defence, Casado-De Jong pairing in midfield vs Alaves - Sport**: [Link](https://tribuna.com/en/news/2025-11-29-hansi-flick-set-to-deploy-garciacubarsi-in-defence-casadode-jong-pairing-in-midfield-vs-a/)
+
+
 ### levante – ath. bilbao (N/A, Sat, 29 Nov 2025 08:50:00 -0800)
 
 - **Los once elegidos por Julián Calero para enfrentarse al Athletic Club**: [Link](https://www.superdeporte.es/levante-ud/2025/11/29/once-elegidos-julian-calero-enfrentarse-124268752.html)
