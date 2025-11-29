@@ -1,3 +1,10 @@
+### inter miami – new york city fc (N/A, Sat, 29 Nov 2025 14:20:00 -0800)
+
+- **2025 MLS playoffs conference finals preview: Can Müller lead the Caps to MLS Cup?**: [Link](https://www.espn.com/soccer/story/_/id/47119613/2025-mls-playoffs-conference-finals-preview-thomas-muller-lead-vancouver-whitecaps-mls-cup)
+- **Inter Miami vs New York City FC LIVE streaming info: Where to watch Messi in action at Eastern Conference final?**: [Link](https://sportstar.thehindu.com/football/inter-miami-vs-new-york-city-fc-live-streaming-info-where-to-watch-messi-mls-eastern-conference-final-india/article70338826.ece)
+- **With a challenging video, New York City FC warms up for the final against Inter Miami and Leo Messi**: [Link](https://www.marca.com/en/football/mls/2025/11/29/692b30f846163f66448b456c.html)
+
+
 ### محمد هنيدي (N/A, Sat, 29 Nov 2025 14:00:00 -0800)
 
 - **في أجواء عائلية.. محمد هنيدي يحتفل بعقد قران ابنته (صور)**: [Link](https://www.almasryalyoum.com/news/details/4139621)
