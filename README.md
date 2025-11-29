@@ -1,3 +1,10 @@
+### laliga (N/A, Sat, 29 Nov 2025 09:10:00 -0800)
+
+- **Barcelona vs Deportivo Alaves – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/269975/barcelona-vs-deportivo-alaves-match-preview-prediction/)
+- **Barcelona’s likely starting XI against Alavés**: [Link](https://www.mundodeportivo.com/us/en/20251129/735429/barcelona-s-likely-starting-xi-against-alaves.html)
+- **Olmo double helps Barca take Liga lead with Alaves win**: [Link](https://www.beinsports.com/en-mena/football/la-liga/articles-video/olmo-double-helps-barca-take-liga-lead-with-alaves-win-2025-11-29)
+
+
 ### barca vs (N/A, Sat, 29 Nov 2025 07:40:00 -0800)
 
 - **Osasuna ‘inventa’ el antídoto contra el hombre tumbado en las barreras: vean el ‘truco’ de la falta del 2-1**: [Link](https://as.com/futbol/videos/osasuna-inventa-el-antidoto-contra-el-hombre-tumbado-en-las-barreras-vean-el-truco-de-la-falta-del-2-1-f202511-v/)
