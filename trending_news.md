@@ -1,3 +1,10 @@
+### nayef aguerd (N/A, Sat, 29 Nov 2025 01:40:00 -0800)
+
+- **OM : Nayef Aguerd devrait faire son grand retour face à Toulouse**: [Link](https://www.footmercato.net/a7086475609077480036-om-nayef-aguerd-devrait-faire-son-grand-retour-face-a-toulouse)
+- **OM – De Zerbi : « Il faut toujours garder les yeux ouverts »**: [Link](https://www.pierrotlefoot.com/actualites/om-de-zerbi-il-faut-toujours-garder-les-yeux-ouverts-99026.html)
+- **Ligue 1: Nayef Aguerd de retour avec l’OM face à Toulouse après trois semaines d’absence**: [Link](https://h24info.ma/sport/nayef-aguerd-de-retouf-toulouse/)
+
+
 ### ahly (N/A, Fri, 28 Nov 2025 11:50:00 -0800)
 
 - **Sundowns and Al Ahly drop points as Wydad win again**: [Link](https://supersport.com/football/general/news/e09896a6-677c-425a-93ec-73a85171f355/sundowns-and-al-ahly-drop-points-as-wydad-win-again)
