@@ -1,3 +1,10 @@
+### juventus – cagliari (N/A, Sat, 29 Nov 2025 08:20:00 -0800)
+
+- **Serie A | Le formazioni ufficiali di Juventus-Cagliari**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-cagliari-formazioni-ufficiali)
+- **Juve-Cagliari | ✅ UFFICIALI: fuori DiGre e Cambiaso! La scelta su Vlahovic**: [Link](https://onefootball.com/it/notizie/juve-cagliari-ufficiali-fuori-digre-e-cambiaso-la-scelta-su-vlahovic-42022541)
+- **Juve-Cagliari, la cronaca in diretta su Radiolina con Lele Casini**: [Link](https://www.unionesarda.it/multimedia/juve-cagliari-la-cronaca-in-diretta-su-radiolina-con-lele-casini-ft3kpcr4)
+
+
 ### sunderland vs bournemouth (N/A, Sat, 29 Nov 2025 08:00:00 -0800)
 
 - **USMNT star Adams scores from near halfway line**: [Link](https://www.espn.com/soccer/story/_/id/47137399/usmnt-star-tyler-adams-scores-halfway-line-bournemouth)
