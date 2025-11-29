@@ -1,3 +1,24 @@
+### copa libertadores (N/A, Sat, 29 Nov 2025 13:00:00 -0800)
+
+- **Bruno Henrique Y Danilo Titulares En Flamengo Y Carlos Miguel Ataja En Palmeiras**: [Link](https://www.barrons.com/news/spanish/bruno-henrique-y-danilo-titulares-en-flamengo-y-carlos-miguel-ataja-en-palmeiras-210f676c)
+- **La histórica marca que Gustavo Gómez puede superar en Lima**: [Link](https://onefootball.com/en/news/la-historica-marca-que-gustavo-gomez-puede-superar-en-lima-42021682)
+- **El inicio de la final de la Copa Libertadores se retrasa 15 minutos – Palmeiras se demoró por el tráfico**: [Link](https://tribuna.com/es/news/2025-11-29-el-inicio-de-la-final-de-la-copa-libertadores-se-retrasa-15-minutos-palmeiras-se-demoro-p/)
+
+
+### palmeiras vs flamengo (N/A, Sat, 29 Nov 2025 12:50:00 -0800)
+
+- **Lineup ya tabbatar da Flamengo X PALMEROUs a wasan karshe na ‘yan wasa a yau a 6pm**: [Link](https://www.mixvale.com.br/2025/11/29/lineup-ya-tabbatar-da-flamengo-x-palmerous-a-wasan-karshe-na-yan-wasa-a-yau-a-6pm-ha/)
+- **Veja a lista atualizada dos campeões da Libertadores**: [Link](https://www.nsctotal.com.br/noticias/veja-a-lista-atualizada-dos-campeoes-da-libertadores)
+- **Leila Pereira relata confusão na chegada do Palmeiras: 'Complicado'**: [Link](https://www.lance.com.br/palmeiras/leila-pereira-relata-confusao-na-chegada-do-palmeiras-complicado.html)
+
+
+### om (N/A, Sat, 29 Nov 2025 12:50:00 -0800)
+
+- **Vader bekent doden dochter Ryan (18), hij appte: ‘Heb plakband bij me voor handen en mond, ben er over een halfuur’**: [Link](https://www.ad.nl/binnenland/vader-bekent-doden-dochter-ryan-18-hij-appte-heb-plakband-bij-me-voor-handen-en-mond-ben-er-over-een-halfuur~a99f00ff/)
+- **IM easket 25 jier sel foar heit en 20 jier foar soannen foar moard op Ryan**: [Link](https://www.omropfryslan.nl/fy/nijs/17997645/im-easket-25-jier-sel-foar-heit-en-20-jier-foar-soannen-foar-moard-op-ryan)
+- **OM eist straffen van 25 en 20 jaar cel tegen vader en broers Ryan**: [Link](https://www.volkskrant.nl/binnenland/om-eist-straffen-van-25-en-20-jaar-cel-tegen-vader-en-broers-ryan~b01d4731/)
+
+
 ### atletico madrid (N/A, Sat, 29 Nov 2025 12:40:00 -0800)
 
 - **Who is Marc Pubill - Spain U21 Star Replacing Julian Alvarez in Atletico Madrid XI?**: [Link](https://www.sportsdunia.com/football-news/marc-pubill-julian-alvarez-replacement-atletico-madrid)
