@@ -1,3 +1,24 @@
+### مان سيتي ضد ليدز (N/A, Sat, 29 Nov 2025 06:20:00 -0800)
+
+- **جوارديولا: قراراتي سبب الهزيمة أمام ليفركوزن.. وأريد الأفضل لسيلفا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86--%D9%88%D8%A7%D9%94%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D9%84%D8%B3%D9%8A%D9%84%D9%81%D8%A7/blt05f7a1c1062d646e)
+- **ماذا قال غوارديولا عن قوة أرسنال هذا الموسم ..؟**: [Link](https://hihi2.com/2025/11/29/p3533717.html)
+- **التشكيل المتوقع لمانشستر سيتي أمام ليدز يونايتد.. هل يشارك عمر مرموش؟**: [Link](https://www.arrajol.com/content/390610/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D8%AF%D8%B2-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%87%D9%84-%D9%8A%D8%B4%D8%A7%D8%B1%D9%83-%D8%B9%D9%85%D8%B1-%D9%85%D8%B1%D9%85%D9%88%D8%B4%D8%9F)
+
+
+### sunderland – bournemouth (N/A, Sat, 29 Nov 2025 06:20:00 -0800)
+
+- **Le Bris urges consistency on Sunderland’s evolving journey**: [Link](https://www.safc.com/news/2025/november/27/le-bris-urges-consistency-on-sunderland-s-evolving-journey/)
+- **Haway The Podcast | MATCHDAY | What Will Sunderland’s XI Be v Bournemouth?**: [Link](https://rokerreport.sbnation.com/haway-the-podcast/115867/haway-the-podcast-matchday-what-will-sunderlands-xi-be-v-bournemouth)
+- **Injury update on Romaine Mundle & Habib Diarra - and Sunderland's talks with Senegal**: [Link](https://www.thenorthernecho.co.uk/sport/25655378.sunderland-injury-latest-romaine-mundle-habib-diarra/)
+
+
+### manchester city – leeds united (N/A, Sat, 29 Nov 2025 06:10:00 -0800)
+
+- **Rodri remains unavailable for Leeds, says Guardiola**: [Link](https://www.mancity.com/news/mens/pep-guardiola-leeds-premier-league-team-news-november-2025-63899916)
+- **Premier League: Build-up to Saturday's five games, as Man City host Leeds**: [Link](https://www.aol.com/articles/premier-league-build-saturdays-five-132134272.html)
+- **Manchester City vs Leeds United: Latest City injury news and predicted City starting eleven**: [Link](https://esteemedkompany.com/2025/11/29/manchester-city-vs-leeds-united-latest-city-injury-news-and-predicted-city-starting-eleven/)
+
+
 ### bayern – sankt pauli (N/A, Sat, 29 Nov 2025 05:50:00 -0800)
 
 - **Kurios! Bayern-Torhymne läuft bei St.-Pauli-Pressekonferenz**: [Link](https://sport.sky.de/fussball/artikel/kurios-bayern-torhymne-laeuft-bei-st-pauli-pressekonferenz/13476525/34128)
