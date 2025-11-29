@@ -1,3 +1,10 @@
+### brentford – burnley (N/A, Sat, 29 Nov 2025 06:50:00 -0800)
+
+- **Keith Andrews’ pre-match press conference: Brentford ‘in a good place’ ahead of Premier League meeting with Burnley**: [Link](https://www.brentfordfc.com/en/news/article/first-team-brentford-v-burnley-premier-league-team-news-29-11-2025)
+- **Football Bet Of The Day: James Milton has a 23-10 selection from the Premier League**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-a-23-10-selection-from-the-premier-league-aOtzW6u1Azhq/)
+- **Kyle Walker on Burnley's season so far, what survival would mean and son's academy progress**: [Link](https://www.burnleyexpress.net/sport/football/kyle-walker-on-burnleys-season-so-far-what-survival-would-mean-and-sons-academy-progress-5421237)
+
+
 ### البايرن ضد سانت باولي (N/A, Sat, 29 Nov 2025 06:40:00 -0800)
 
 - **هاري كين يقود هجوم بايرن ميونخ أمام سانت باولي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D8%A7%D9%86%D8%AA-%D8%A8%D8%A7%D9%88%D9%84%D9%8A/blt463dd2c5dfc5dfb7)
