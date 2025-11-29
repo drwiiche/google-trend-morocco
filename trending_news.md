@@ -1,3 +1,10 @@
+### atletico madrid (N/A, Sat, 29 Nov 2025 12:40:00 -0800)
+
+- **Who is Marc Pubill - Spain U21 Star Replacing Julian Alvarez in Atletico Madrid XI?**: [Link](https://www.sportsdunia.com/football-news/marc-pubill-julian-alvarez-replacement-atletico-madrid)
+- **Atlético Madrid chases tenth consecutive home win tonight against Real Oviedo, but one injury could change everything**: [Link](https://www.red94.net/news/59795-atletico-madrid-faces-real-oviedo-tonight-as-colchoneros-aim-to-extend-winning-s/)
+- **Diego Simeone addresses competition for places before Real Oviedo encounter**: [Link](https://sports.yahoo.com/articles/diego-simeone-addresses-competition-places-131432795.html)
+
+
 ### توتنهام ضد فولهام (N/A, Sat, 29 Nov 2025 12:30:00 -0800)
 
 - **الديربي يشهد تفوقا لتوتنهام على إيفرتون**: [Link](https://hihi2.com/2025/11/28/p3533388.html)
