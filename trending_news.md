@@ -1,3 +1,17 @@
+### monaco vs psg (N/A, Sat, 29 Nov 2025 07:40:00 -0800)
+
+- **Luis Enrique compares PSG star with former Barcelona player**: [Link](https://www.pulsesports.ng/football/story/luis-enrique-compares-psg-star-with-former-barcelona-player-2025112900332953971)
+- **Monaco vs PSG – Match preview and team news**: [Link](https://thefootballfaithful.com/monaco-vs-psg-match-preview-and-team-news/)
+- **Monaco vs PSG LIVE Score Updates in Ligue 1**: [Link](https://www.vavel.com/en-us/soccer/2025/11/29/1242985-monaco-vs-psg-live-score-ligue-1.html)
+
+
+### fcb (N/A, Sat, 29 Nov 2025 07:40:00 -0800)
+
+- **Wild Accusations Between Barcelona, Real Madrid Presidents Escalate**: [Link](https://www.si.com/soccer/wild-accusations-barcelona-real-madrid-presidents-escalate)
+- **Laporta responds to Perez: Barcelona have never bought a referee, they have always favored Real Madrid**: [Link](https://indeksonline.net/en/Laporta-responds-to-Perez%3A-Barcelona-has-never-bought-a-referee--they-have-always-favored-Real-Madrid/)
+- **Laporta Fires Back at Florentino: “Real Madrid Has Barcelonitis”**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/laporta-estalla-contra-florentino-el-madrid-tiene-barcelonitis-2025-11-28)
+
+
 ### barca (N/A, Sat, 29 Nov 2025 07:30:00 -0800)
 
 - **Soccorso dei Vigili del Fuoco sul Lago di Bolsena a causa del maltempo**: [Link](https://www.occhioviterbese.it/soccorso-dei-vigili-del-fuoco-sul-lago-di-bolsena-a-causa-del-maltempo/)
