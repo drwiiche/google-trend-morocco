@@ -1,3 +1,10 @@
+### weather tomorrow (N/A, Sat, 29 Nov 2025 11:30:00 -0800)
+
+- **Snow totals begin piling up as winter storm blasts Chicago area**: [Link](https://www.nbcchicago.com/weather/snow-totals-begin-piling-up-as-winter-storm-blasts-chicago-area/3856922/)
+- **Chicago weather forecast: Snowstorm this weekend to bring several inches of snow Saturday, Sunday | Winter Storm Warning in effect**: [Link](https://abc7chicago.com/post/chicago-weather-forecast-snowstorm-weekend-bring-several-inches-snow-saturday-sunday-winter-storm-warning-effect/18225516/)
+- **Snowfall increasing across Chicago area causing crashes, flight delays: Live updates**: [Link](https://www.fox32chicago.com/weather/live-updates-major-snowstorm)
+
+
 ### atlético madrid – real oviedo (N/A, Sat, 29 Nov 2025 11:20:00 -0800)
 
 - **Un 1-0 para hacer historia en LaLiga**: [Link](https://www.marca.com/futbol/atletico/2025/11/29/1-0-historia-laliga.html)
