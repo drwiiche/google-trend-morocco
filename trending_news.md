@@ -1,3 +1,31 @@
+### monaco – paris-sg (N/A, Sat, 29 Nov 2025 07:20:00 -0800)
+
+- **Monaco-PSG, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/ligue-1/monaco-psg-sur-quelle-chaine-voir-le-match-786738.html)
+- **Luis Enrique a désigné le grand objectif de la saison du PSG**: [Link](https://www.footmercato.net/a7709337014608550374-luis-enrique-a-designe-le-grand-objectif-dans-la-saison-du-psg)
+- **Paul Pogba face au PSG, la grande annonce !**: [Link](https://www.sports.fr/football/ligue-1/paul-pogba-face-au-psg-la-grande-annonce-970639.html)
+
+
+### الهلال ضد الفتح (N/A, Sat, 29 Nov 2025 07:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الهلال والفتح في كأس الملك السعودي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt039cf2c8d2935366)
+- **موعد مباراة الفتح ضد الهلال بكأس ملك السعودية والتشكيلتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/29/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%B6%D8%AF-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A8%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83)
+- **ماذا قدم الفتح في دوري روشن؟**: [Link](https://hihi2.com/2025/11/28/p3533141.html)
+
+
+### bayern (N/A, Sat, 29 Nov 2025 07:20:00 -0800)
+
+- **Kingsley Coman: Abschied und Rückkehr nach München**: [Link](https://fcbayern.com/de/news/2025/11/kingsley-coman-verabschiedet-sich-vom-fc-bayern)
+- **Merci für 10 Jahre, King!**: [Link](https://sport.sky.de/fussball/artikel/merci-fuer-10-jahre-king/13476946/35311)
+- **Nach zehn Jahren in München: FC Bayern verabschiedet sich feierlich von Kingsley Coman**: [Link](https://tribuna.com/de/blogs/nach-zehn-jahren-in-munchen-fc-bayern-verabschiedete-sich-fe/)
+
+
+### bayern munich (N/A, Sat, 29 Nov 2025 07:10:00 -0800)
+
+- **Preview: Bayer Leverkusen vs Borussia Dortmund - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/b-leverkusen-vs-dortmund-prediction-team-news-lineups_586631.html)
+- **Bundesliga: What time and channel is Leverkusen vs Dortmund on?**: [Link](https://foot-africa.com/en/news/bundesliga-what-time-and-channel-is-leverkusen-vs-dortmund-on-980204/)
+- **Kovac expecting an “interesting and important game” in Leverkusen**: [Link](https://onefootball.com/en/news/kovac-expecting-an-interesting-and-important-game-in-leverkusen-42020450)
+
+
 ### brentford – burnley (N/A, Sat, 29 Nov 2025 06:50:00 -0800)
 
 - **Keith Andrews’ pre-match press conference: Brentford ‘in a good place’ ahead of Premier League meeting with Burnley**: [Link](https://www.brentfordfc.com/en/news/article/first-team-brentford-v-burnley-premier-league-team-news-29-11-2025)
