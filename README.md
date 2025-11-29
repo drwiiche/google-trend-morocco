@@ -1,3 +1,24 @@
+### venezuela (N/A, Sat, 29 Nov 2025 12:00:00 -0800)
+
+- **Trump anuncia el cierre total del espacio aéreo de Venezuela**: [Link](https://elpais.com/internacional/2025-11-29/trump-anuncia-el-cierre-total-del-espacio-aereo-de-venezuela.html)
+- **COLOMBIA SE CONVIERTE EN LA RUTA DE SALIDA PARA PASAJEROS VARADOS EN VENEZUELA**: [Link](https://www.elminnesotadehoy.com/colombia-se-convierte-en-la-ruta-de-salida-para-pasajeros-varados-en-venezuela/)
+- **Navegación satelital falla en medio de tensión en el Caribe**: [Link](https://www.bloomberg.com/features/interferencia-gps-en-venezuela-crece-en-medio-de-actividad-militar/)
+
+
+### الطقس غدًا (N/A, Sat, 29 Nov 2025 11:50:00 -0800)
+
+- **مع التحذيرات من الطقس غدًا.. نصيحة للسائقين بوضع أكياس الشاى فى السيارات**: [Link](https://www.almasryalyoum.com/news/details/4138209)
+- **الأرصاد المصرية تحذر: موجة باردة اليوم وارتداء الملابس الشتوية ضرورة | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-11-29/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%88%D8%AC%D8%A9-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%88%D8%A7%D8%B1%D8%AA%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%A8%D8%B3-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D8%B6%D8%B1%D9%88%D8%B1%D8%A9-6200561/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
+- **انخفاض الحرارة اليوم السبت مع شبورة كثيفة وأمطار محدودة تضرب عدة مناطق**: [Link](https://www.altreeq.com/523585)
+
+
+### أتلتيكو مدريد ضد ريال أوفييدو (N/A, Sat, 29 Nov 2025 11:40:00 -0800)
+
+- **القنوات الناقلة لمباراة أتليتكو مدريد ضد ريال أوفييدو اليوم في الدوري الإسباني مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/402248227596032-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A3%D9%88%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **بث مباشر مباراة أتلتيكو مدريد وريال أوفييدو اليوم مع القنوات الناقلة في الدوري الإسباني**: [Link](https://www.cairo24.com/2326556)
+- **نتيجة آخر مباراة بين أتلتيكو مدريد وأوفييدو**: [Link](https://hihi2.com/2025/11/29/p3533623.html)
+
+
 ### weather tomorrow (N/A, Sat, 29 Nov 2025 11:30:00 -0800)
 
 - **Snow totals begin piling up as winter storm blasts Chicago area**: [Link](https://www.nbcchicago.com/weather/snow-totals-begin-piling-up-as-winter-storm-blasts-chicago-area/3856922/)
