@@ -1,3 +1,24 @@
+### azzedine ounahi (N/A, Sun, 30 Nov 2025 13:00:00 -0800)
+
+- **Azzedine Ounahi: «la Liga, le championnat qui me convient le mieux»**: [Link](https://sport.le360.ma/football/liga/azzedine-ounahi-la-liga-le-championnat-qui-me-convient-le-mieux_5MKIV3W4RBC6VB4ZSSZV7LIL5Q/)
+- **Le golazo d’Azzedine Ounahi contre le Real Madrid**: [Link](https://www.footmercato.net/a7547643196341593870-le-golazo-dazzedine-ounahi-contre-le-real-madrid)
+- **Ounahi menace le Real Madrid, l'ex de l'OM fait parler en Espagne**: [Link](https://www.onzemondial.com/liga/ounahi-menace-le-real-madrid-lex-de-lom-fait-parler-en-espagne-973111)
+
+
+### ounahi (N/A, Sun, 30 Nov 2025 12:40:00 -0800)
+
+- **Ounahi: "Girona Restored My Desire to Play Football; Lifestyle Change is the Secret to My Return to Form"**: [Link](https://m.elbotola.com/en/article/2025-11-29-17-12-939.html)
+- **Azzedine Ounahi says La Liga League Suits Him Best**: [Link](https://www.moroccoworldnews.com/2025/11/270015/azzedine-ounahi-says-la-liga-league-suits-him-best/)
+- **Real Madrid vs Girona – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/270086/real-madrid-vs-girona-match-preview-prediction/)
+
+
+### ajax (N/A, Sun, 30 Nov 2025 11:50:00 -0800)
+
+- **Belgen in het buitenland - Bounida en Godts zien wedstrijd met Ajax gestaakt worden door vuurwerk van eigen fans**: [Link](https://starsporttv.be/content/belgen-in-het-buitenland-bounida-en-godts-zien-wedstrijd-met-ajax-gestaakt-worden-door-vuurwerk-van-eigen-fans)
+- **Perez gruwelt van 'gijzeling' in de Johan Cruijff Arena**: [Link](https://www.vi.nl/nieuws/perez-gruwelt-van-gijzeling-in-de-johan-cruijff-arena)
+- **KNVB: vooral triest voor de echte supporters**: [Link](https://www.zeelandnet.nl/nieuws/knvb-vooral-triest-voor-de-echte-supporters)
+
+
 ### roma vs napoli (N/A, Sun, 30 Nov 2025 12:10:00 -0800)
 
 - **Serie A: in campo Roma-Napoli DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/11/30/serie-a-in-campo-roma-napoli-diretta-e-foto_e2151681-75b0-4952-90a0-a010a1ae5121.html)
