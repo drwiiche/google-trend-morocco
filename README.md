@@ -1,3 +1,10 @@
+### real madrid match (N/A, Sun, 30 Nov 2025 12:50:00 -0800)
+
+- **DIRECT. Gérone-Real Madrid (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/girona-real-madrid-live/676844)
+- **Girona-Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a4276185356928725427-girona-real-madrid-les-compositions-officielles)
+- **Xabi Alonso : "Nous avons besoin d'une victoire pour continuer à aller de trois points en trois points"**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/conference-de-presse/rueda-de-prensa-de-xabi-alonso-pre-girona-real-madrid-j14-liga-29-11-2025)
+
+
 ### azzedine ounahi (N/A, Sun, 30 Nov 2025 13:00:00 -0800)
 
 - **Azzedine Ounahi: «la Liga, le championnat qui me convient le mieux»**: [Link](https://sport.le360.ma/football/liga/azzedine-ounahi-la-liga-le-championnat-qui-me-convient-le-mieux_5MKIV3W4RBC6VB4ZSSZV7LIL5Q/)
