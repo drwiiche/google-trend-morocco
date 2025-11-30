@@ -1,3 +1,9 @@
+### rma (N/A, Sun, 30 Nov 2025 13:40:00 -0800)
+
+- **PNY Announces Local RMA Setup in India for NVIDIA GeForce and NVIDIA Professional GPUs in Partnership with...**: [Link](https://www.lokmattimes.com/business/pny-announces-local-rma-setup-in-india-for-nvidia-geforce-and-nvidia-professional-gpus-in-partnership-with-repair-return-technology-pvt-ltd/)
+- **RMA girls remain unbeaten with win over STMA**: [Link](https://www.rockymounttelegram.com/sports/high_schools/rma-girls-remain-unbeaten-with-win-over-stma/article_62d7b87e-398f-49b4-bd6f-00ea0605bdc3.html)
+
+
 ### classement la liga (N/A, Sun, 30 Nov 2025 13:30:00 -0800)
 
 - **DIRECT. Gérone-Real Madrid (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/girona-real-madrid-live/676844)
