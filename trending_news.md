@@ -1,3 +1,24 @@
+### aston villa – wolves (N/A, Sun, 30 Nov 2025 06:30:00 -0800)
+
+- **Why Aston Villa vs Wolves and Liverpool and Nottingham Forest are all kicking off at unusual time**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/aston-villa-vs-wolves-liverpool-32971894)
+- **[SITE-LOTI] Crystal Palace vs Man United: Live Stream Premier League, TV Channel**: [Link](https://yoursunsetcountry.ca/classifieds/listings/site-loti-crystal-palace-vs-man-united-live-stream-premier-league-tv-channel-2/)
+- **Villans close November against Wolves**: [Link](https://www.avfc.co.uk/news/2025/november/30/prematch-villans-close-november-against-wolves/)
+
+
+### premier league (N/A, Sun, 30 Nov 2025 06:30:00 -0800)
+
+- **Tottenham 1-2 Fulham: Fulham score two early goals as Spurs' poor home form in Premier League continues**: [Link](https://www.bbc.com/sport/football/live/c62d9z6w727t)
+- **Tottenham 1-2 Fulham: Premier League – as it happened**: [Link](https://www.theguardian.com/football/live/2025/nov/29/tottenham-v-fulham-premier-league-live)
+- **Wilson 'surprised' by poor Spurs defending during wonder goal for Fulham**: [Link](https://www.flashscore.com/news/soccer-premier-league-wilson-surprised-by-poor-spurs-defending-during-wonder-goal-for-fulham/db4we0jD/)
+
+
+### chelsea vs arsenal (N/A, Sun, 30 Nov 2025 06:20:00 -0800)
+
+- **Chelsea vs Arsenal: Are Blues genuine title contenders?**: [Link](https://www.bbc.com/sport/football/articles/clyd4j4gyn4o)
+- **Is the Chelsea project finally working? Football Weekly – video**: [Link](https://www.theguardian.com/football/video/2025/nov/26/is-the-chelsea-project-finally-working-football-weekly-video)
+- **Are Chelsea finally back?! Enzo Maresca's young guns might actually be Premier League title contenders - but Arsenal showdown is the ultimate test**: [Link](https://www.goal.com/en-us/lists/chelsea-enzo-maresca-young-guns-premier-league-title-contenders-arsenal-ultimate-test/blt04e7d99b9e74e15c)
+
+
 ### strasbourg – brest (N/A, Sun, 30 Nov 2025 06:20:00 -0800)
 
 - **La compo probable du Racing face à Brest !**: [Link](https://www.alsasports.fr/football/rc-strasbourg/la-compo-probable-du-racing-face-a-brest-3/77705/)
