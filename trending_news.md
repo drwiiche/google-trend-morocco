@@ -1,3 +1,24 @@
+### liverpool (N/A, Sun, 30 Nov 2025 06:40:00 -0800)
+
+- **West Ham United v Liverpool: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/nov/30/west-ham-united-v-liverpool-premier-league-live)
+- **Premier League live updates: Liverpool drop Salah**: [Link](https://www.espn.co.uk/football/story/_/id/47124740/premier-league-live-updates-crystal-palace-manchester-united-liverpool-west-ham-chelsea-arsenal)
+- **Premier League LIVE: Chelsea v Arsenal, West Ham v Liverpool, Palace v Man Utd, Villa v Wolves, Forest v Brighton**: [Link](https://www.bbc.co.uk/sport/football/articles/c4g7vqp09j4o)
+
+
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Sun, 30 Nov 2025 06:40:00 -0800)
+
+- **نقابة المتصرفين التربويين تعلن "القطيعة" مع وزارة التعليم وتدخل مرحلة التصعيد**: [Link](https://al3omk.com/1120118.html)
+- **وزارة التربية الوطنية تعلن عن إطلاق نظام جديد وموحد لتنظيم فروض المراقبة المستمرة داخل "مدارس**: [Link](https://agadir24.info/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D9%86%D8%B8.html)
+- **نقابة تعليمية تهاجم بشدة "خرجات" وزير التربية الوطنية الأخيرة**: [Link](https://www.akhbarona.com/education/417326.html)
+
+
+### séville – betis (N/A, Sun, 30 Nov 2025 06:30:00 -0800)
+
+- **Sevilla vs Real Betis tonight with European spot on line, but one team's injury crisis could change everything**: [Link](https://www.red94.net/news/98399-sevilla-faces-real-betis-in-seville-derby-showdown-tonight-with-european-spot-on/)
+- **Sevilla vs Betis Prediction, 11/30/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/sevilla-vs-betis-prediction-11-30-2025-soccer-pick-tips-and-odds.html)
+- **Andalucía se prepara para el emocionante derbi 144 entre Sevilla y Betis en La Liga**: [Link](https://news.ssbcrack.com/andalucia-se-prepara-para-el-emocionante-derbi-144-entre-sevilla-y-betis-en-la-liga/)
+
+
 ### aston villa – wolves (N/A, Sun, 30 Nov 2025 06:30:00 -0800)
 
 - **Why Aston Villa vs Wolves and Liverpool and Nottingham Forest are all kicking off at unusual time**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/aston-villa-vs-wolves-liverpool-32971894)
