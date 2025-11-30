@@ -1,3 +1,10 @@
+### نتائج مباراة التعليم 2025 pdf (N/A, Sat, 29 Nov 2025 23:20:00 -0800)
+
+- **"مباراة التعليم" تنهي المداولات اليوم**: [Link](https://www.hespress.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%AA%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-1663482.html)
+- **الإطلاع علي جميع التفاصيل الخاصة بـ لوائح المقبولين في مباراة التعليم الانتقاء الأولي 2025 – 2026**: [Link](https://www.5lejnews.com/worldnews/278378/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%8A/)
+- **تـابع اليـوم :: نتائج مباراة التعليم الكتابي دورة نونبر 2025 جميع الجهات بالمغـرب خلال موقع وزارة التربية الوطنية résultats de l’écrit**: [Link](https://newsy.elsob7.com/news/%D8%AA%D9%80%D8%A7%D8%A8%D8%B9-%D8%A7%D9%84%D9%8A%D9%80%D9%88%D9%85-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D9%83/)
+
+
 ### achraf hakimi (N/A, Sat, 29 Nov 2025 23:20:00 -0800)
 
 - **5ASIDE - Achraf Hakimi: lo que revela su premio al Mejor Jugador Africano sobre su estatus en el fútbol mundial**: [Link](https://www.beinsports.com/es-us/football/5aside/articles/5aside-achraf-hakimi-lo-que-revela-su-premio-al-mejor-jugador-africano-sobre-su-estatus-en-el-f%C3%BAtbol-mundial-2025-11-28)
