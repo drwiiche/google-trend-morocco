@@ -1,3 +1,24 @@
+### girona – real madrid (N/A, Sun, 30 Nov 2025 11:10:00 -0800)
+
+- **Alineaciones posibles de Girona y Real Madrid hoy en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineaciones-posibles-del-girona-real-madrid-de-laliga-ea-sports-f202511-n/)
+- **Raúl Asencio en el banquillo: Se filtra la alineación de Xabi Alonso para el partido del Girona**: [Link](https://tribuna.com/es/news/2025-11-30-raul-asencio-en-el-banquillo-se-filtra-la-alineacion-de-xabi-alonso-para-el-partido-del-g/)
+- **El pronóstico de la Inteligencia Artificial de Opta para el partido Girona vs Real Madrid**: [Link](https://www.si.com/es-us/futbol/el-pronostico-de-la-inteligencia-artificial-de-opta-para-el-partido-girona-vs-real-madrid-30-11-2025)
+
+
+### غيرونا ضد الريال (N/A, Sun, 30 Nov 2025 11:10:00 -0800)
+
+- **إصابة مفاجئة تضرب ريال مدريد قبل لقاء جيرونا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%82%D8%A8%D9%84-%D9%84%D9%82%D8%A7%D8%A1-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7/blt8527bb3d88acfdc1)
+- **ألونسو يرفض التشكيك في وحدة اللاعبين**: [Link](https://www.hesport.com/%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%83-%D9%81%D9%8A-%D9%88%D8%AD%D8%AF%D8%A9-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-415288.html)
+- **قفص الزوجية يحرم ريال مدريد من نجم سوبر!**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/1354194/%D9%82%D9%81%D8%B5-%D8%A7%D9%84%D8%B2%D9%88%D8%AC%D9%8A%D8%A9-%D9%8A%D8%AD%D8%B1%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%86-%D9%86%D8%AC%D9%85-%D8%B3%D9%88%D8%A8%D8%B1)
+
+
+### girona vs real madrid (N/A, Sun, 30 Nov 2025 11:10:00 -0800)
+
+- **Real Madrid vs Girona – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/270086/real-madrid-vs-girona-match-preview-prediction/)
+- **Real Madrid announce squad for La Liga match against Girona**: [Link](https://www.managingmadrid.com/101140/girona-real-madrid-2025-squad-list-news)
+- **Xabi Alonso Given Another Real Madrid Injury Headache Hours Before Girona Clash**: [Link](https://www.si.com/soccer/xabi-alonso-real-madrid-injury-headache-girona)
+
+
 ### ajax – groningen (N/A, Sun, 30 Nov 2025 10:50:00 -0800)
 
 - **Live Eredivisie | Ajax wil met Bouwman negatieve primeur voorkomen in ArenA**: [Link](https://www.nu.nl/voetbal/6377751/live-eredivisie-ajax-wil-met-bouwman-negatieve-primeur-voorkomen-in-arena.html)
