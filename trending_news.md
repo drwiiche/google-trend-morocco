@@ -1,3 +1,10 @@
+### achraf hakimi (N/A, Sat, 29 Nov 2025 23:20:00 -0800)
+
+- **5ASIDE - Achraf Hakimi: lo que revela su premio al Mejor Jugador Africano sobre su estatus en el fútbol mundial**: [Link](https://www.beinsports.com/es-us/football/5aside/articles/5aside-achraf-hakimi-lo-que-revela-su-premio-al-mejor-jugador-africano-sobre-su-estatus-en-el-f%C3%BAtbol-mundial-2025-11-28)
+- **Hakimi se alza con el máximo galardón del fútbol africano de 2025**: [Link](https://www.msn.com/es-cl/noticias/other/hakimi-se-alza-con-el-m%C3%A1ximo-galard%C3%B3n-del-f%C3%BAtbol-africano-de-2025/ar-AA1QN6PW)
+- **Larguet: "Hakimi Undergoes 6 Hours of Rehabilitation Daily to Return and Help Moroccan National Team"**: [Link](https://m.elbotola.com/en/article/2025-11-28-16-52-760.html)
+
+
 ### weather (N/A, Sat, 29 Nov 2025 22:10:00 -0800)
 
 - **Today's weather in Kenilworth - 30 November**: [Link](https://kenilworth.nub.news/news/weather-news/todays-weather-in-kenilworth-30-november-280628)
