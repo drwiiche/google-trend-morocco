@@ -1,3 +1,10 @@
+### weather (N/A, Sat, 29 Nov 2025 22:10:00 -0800)
+
+- **Today's weather in Kenilworth - 30 November**: [Link](https://kenilworth.nub.news/news/weather-news/todays-weather-in-kenilworth-30-november-280628)
+- **Today's weather in Warwick - 29 November**: [Link](https://warwick.nub.news/news/weather-news/todays-weather-in-warwick-29-november-280579)
+- **Weekend weather forecast for Kenilworth - 28 Nov to 30 Nov**: [Link](https://kenilworth.nub.news/news/weather-news/weekend-weather-forecast-for-kenilworth-28-nov-to-30-nov-280468)
+
+
 ### météo (N/A, Sat, 29 Nov 2025 22:00:00 -0800)
 
 - **Ce dimanche en France : une météo ensoleillée ou pluvieuse avant un coup de vent ? Voici les prévisions**: [Link](https://www.tameteo.com/actualites/previsions/ce-dimanche-en-france-une-meteo-ensoleillee-ou-pluvieuse-avant-un-coup-de-vent-voici-les-previsions-risque-intemperies.html)
