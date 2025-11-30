@@ -1,3 +1,29 @@
+### arryadia (N/A, Sun, 30 Nov 2025 09:20:00 -0800)
+
+- **بعثة الأهلي تطير غدا إلى المغرب وتوروب يكثف التحضيرات الفنية والبدنية**: [Link](https://www.korabia.net/news/32594/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%AA%D8%B7%D9%8A%D8%B1-%D8%BA%D8%AF%D8%A7-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AA%D9%88%D8%B1%D9%88%D8%A8-%D9%8A%D9%83%D8%AB%D9%81-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D9%86%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A8%D8%AF%D9%86%D9%8A%D8%A9/%D9%83%D8%B1%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)
+
+
+### police (N/A, Sun, 30 Nov 2025 09:20:00 -0800)
+
+- **Investigation underway after vehicle, home struck by gunfire in Pittsburgh**: [Link](https://www.wtae.com/article/police-home-vehicle-gunfire-pittsburgh-homewood-south/69585127)
+- **Glendale police cruiser overturns in two-car crash; 1 hospitalized**: [Link](https://ktla.com/news/local-news/glendale-police-cruiser-overturns-in-two-car-crash-1-hospitalized/)
+- **Police investigating stabbing in Lawrence**: [Link](https://www.nbcboston.com/news/local/police-investigating-stabbing-in-lawrence/3852546/)
+
+
+### kac (N/A, Sun, 30 Nov 2025 09:20:00 -0800)
+
+- **KAC coach Furey: “The victory is important for our self-confidence!”**: [Link](https://www.dubnetwork.ca/kac-coach-furey-the-victory-is-important-for-our-self-confidence/)
+- **The KAC is missing a quartet against the Vienna Capitals!**: [Link](https://www.dubnetwork.ca/the-kac-is-missing-a-quartet-against-the-vienna-capitals/)
+- **ICEHL: HC Innsbruck is hoping for a turnaround against KAC!**: [Link](https://www.dubnetwork.ca/icehl-hc-innsbruck-is-hoping-for-a-turnaround-against-kac/)
+
+
+### real betis (N/A, Sun, 30 Nov 2025 09:10:00 -0800)
+
+- **Sevilla - Betis, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/sevilla-betis-en-directo-laliga-ea-sports-en-vivo-hoy-f202511-d/)
+- **Sevilla - Betis, en directo | Sigue el derbi andaluz de LaLiga EA Sports, en vivo**: [Link](https://www.mundodeportivo.com/futbol/laliga/20251130/1002576093/sevilla-real-betis-directo-laliga-ea-sports-drca1.html)
+- **0-0. Tablas sin goles al descanso**: [Link](https://vivirediciones.es/destacado/0-0-tablas-sin-goles-al-descanso/)
+
+
 ### الامن الوطني (N/A, Sun, 30 Nov 2025 09:00:00 -0800)
 
 - **حفل التميز لفائدة أسرة الأمن بأكادير**: [Link](https://www.hespress.com/%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-%D9%84%D9%81%D8%A7%D8%A6%D8%AF%D8%A9-%D8%A3%D8%B3%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A8%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-1663690.html)
