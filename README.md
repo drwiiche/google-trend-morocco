@@ -1,3 +1,17 @@
+### وست هام ضد ليفربول (N/A, Sun, 30 Nov 2025 05:30:00 -0800)
+
+- **صلاح على دكة ليفربول أمام وست هام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D8%B9%D9%84%D9%89-%D8%AF%D9%83%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85/blteb58b56b736a4b0d)
+- **بطولة إنكلترا: ليفربول لوقف تدهوره وأرسنال لتعزيز صدارته أمام تشلسي المتألق**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251128-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D9%88%D9%82%D9%81-%D8%AA%D8%AF%D9%87%D9%88%D8%B1%D9%87-%D9%88%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%84%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%84%D9%82)
+- **تشكيل ليفربول ووست هام المتوقع.. هل يواصل "الريدز" نتائجه السلبية؟**: [Link](https://www.arrajol.com/content/390667/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%87%D9%84-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%B1%D9%8A%D8%AF%D8%B2-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC%D9%87-%D8%A7%D9%84%D8%B3%D9%84%D8%A8%D9%8A%D8%A9%D8%9F)
+
+
+### west ham – liverpool (N/A, Sun, 30 Nov 2025 05:20:00 -0800)
+
+- **Preview: West Ham United vs Liverpool - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/liverpool/preview/west-ham-vs-liverpool-prediction-team-news-lineups_586640.html)
+- **Bowen | Our home form is key**: [Link](https://www.whufc.com/en/news/bowen-or-our-home-form-is-key)
+- **~[TOTAL SPORTEK] Free Streams Liverpool vs West Ham United Totalsportek Soccer Streams**: [Link](https://yoursunsetcountry.ca/classifieds/listings/total-sportek-free-streams-liverpool-vs-west-ham-united-totalsportek-soccer-streams/)
+
+
 ### crystal palace (N/A, Sun, 30 Nov 2025 05:10:00 -0800)
 
 - **Why Jean-Philippe Mateta was forced to retake penalty against Man United**: [Link](https://www.independent.co.uk/bulletin/sport/jean-philippe-mateta-retake-penalty-man-united-b2875187.html)
