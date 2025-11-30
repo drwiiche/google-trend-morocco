@@ -1,3 +1,17 @@
+### men gov ma (N/A, Sun, 30 Nov 2025 06:50:00 -0800)
+
+- **"مباراة التعليم" تنهي المداولات اليوم**: [Link](https://www.hespress.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%AA%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-1663482.html)
+- **فضيحة تسريب جديدة تهز مباراة ولوج مهن التربية والتكوين**: [Link](https://presstetouan.com/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D9%87%D8%B2-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D9%84%D9%88%D8%AC-%D9%85%D9%87%D9%86-%D8%A7/)
+- **عاجل.. الإعلان عن لوائح المدعوين للاختبارات الشفوية لمباراة التعليم لسنة 2025**: [Link](https://chamaly.ma/2025/11/30/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%B9%D9%86-%D9%84%D9%88%D8%A7%D8%A6%D8%AD-%D8%A7%D9%84%D9%85%D8%AF%D8%B9%D9%88%D9%8A%D9%86-%D9%84%D9%84%D8%A7%D8%AE%D8%AA%D8%A8/)
+
+
+### r1c4 (N/A, Sun, 30 Nov 2025 06:40:00 -0800)
+
+- **PRIX DE SAINT-CENERI-LE GEREI**: [Link](https://www.equidia.fr/courses/2025-11-26/R1/C1)
+- **Pronostic Quinté du Dimanche 30 Novembre à Vincennes - Finale du Grand National du Trot - R1C4**: [Link](https://www.ruedesjoueurs.com/turf/pronostic-turf/pronostics-quinte/72359-pronostic-quinte-du-dimanche-30-novembre-a-vincennes-finale-du-grand-national-du-trot-r1c4.html)
+- **Les pronos hippiques du mercredi 26 novembre 2025**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mercredi-26-novembre-2025_AN-202511250753.html)
+
+
 ### liverpool (N/A, Sun, 30 Nov 2025 06:40:00 -0800)
 
 - **West Ham United v Liverpool: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/nov/30/west-ham-united-v-liverpool-premier-league-live)
