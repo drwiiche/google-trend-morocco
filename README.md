@@ -1,3 +1,10 @@
+### ياسمين عبد العزيز (N/A, Sun, 30 Nov 2025 03:50:00 -0800)
+
+- **إطلالة جذابة لـ ياسمين عبدالعزيز فى أحدث ظهور لها مع منى الشاذلي**: [Link](https://www.almasryalyoum.com/news/details/4140226)
+- **فيلم خلى بالك من نفسك**: [Link](https://www.elaosboa.com/tag/%D9%81%D9%8A%D9%84%D9%85-%D8%AE%D9%84%D9%89-%D8%A8%D8%A7%D9%84%D9%83-%D9%85%D9%86-%D9%86%D9%81%D8%B3%D9%83/)
+- **قبل العاصفة… ياسمين عبد العزيز تشعل الساحة بإطلالة لا تُقاوم**: [Link](https://ghorbanews.com/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7/)
+
+
 ### crystal palace – manchester united (N/A, Sun, 30 Nov 2025 03:20:00 -0800)
 
 - **Manchester United confirmed starting XI to face Crystal Palace as Lisandro Martinez decision made**: [Link](https://www.unitedinfocus.com/match-coverage/manchester-united-confirmed-starting-xi-to-face-crystal-palace-as-lisandro-martinez-decision-made/)
