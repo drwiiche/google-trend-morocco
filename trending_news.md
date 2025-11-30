@@ -1,3 +1,24 @@
+### حالة الطقس (N/A, Sun, 30 Nov 2025 00:00:00 -0800)
+
+- **بيان عاجل بشأن حالة الطقس اليوم.. أمطار وأولى الموجات الباردة**: [Link](https://www.msn.com/ar-eg/news/national/%D8%A8%D9%8A%D8%A7%D9%86-%D8%B9%D8%A7%D8%AC%D9%84-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%A3%D9%88%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%88%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9/ar-AA1RpOuz)
+- **طقس اليوم.. انخفاض ملحوظ في الحرارة وشبورة كثيفة صباحاً وتحذيرات للأهالي والمسافرين**: [Link](https://alfallahalyoum.news/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%85%D9%84%D8%AD%D9%88%D8%B8-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%B4%D8%A8%D9%88.html/)
+- **5 أيام من التقلبات.. الأرصاد تكشف خريطة الظواهر الجوية حتى نهاية الأسبوع**: [Link](https://m.akhbarelyom.com/news/newdetails/4733250/1/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3)
+
+
+### للا مريم (N/A, Sat, 29 Nov 2025 23:30:00 -0800)
+
+- **الأميرة للا مريم تدشن البازار الخيري**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D8%A9-%D9%84%D9%84%D8%A7-%D9%85%D8%B1%D9%8A%D9%85-%D8%AA%D8%AF%D8%B4%D9%86-%D8%A7%D9%84%D8%A8%D8%A7%D8%B2%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D9%8A%D8%B1%D9%8A-1663336.html)
+- **الأميرة للا مريم تدشّن البازار التضامني للنادي الدبلوماسي بالرباط**: [Link](https://www.raialyoum.com/%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D8%A9-%D9%84%D9%84%D8%A7-%D9%85%D8%B1%D9%8A%D9%85-%D8%AA%D8%AF%D8%B4%D9%91%D9%86-%D8%A7%D9%84%D8%A8%D8%A7%D8%B2%D8%A7%D8%B1-%D8%A7%D9%84%D8%AA%D8%B6%D8%A7%D9%85/)
+- **سفارة أدريبجان تتألق في بازار التضامن الدبلوماسي 2025**: [Link](https://www.hibazoom.com/article-195986/)
+
+
+### mls (N/A, Sat, 29 Nov 2025 17:20:00 -0800)
+
+- **Thomas Müller: MLS Cup vs. Lionel Messi’s Miami a “perfect situation”**: [Link](https://www.mlssoccer.com/playoffs/2025/news/thomas-muller-mls-cup-vs-lionel-messi-s-miami-a-perfect-situation)
+- **🎥 Clash of giants for the title: Müller joins Messi in the MLS final**: [Link](https://sports.yahoo.com/articles/clash-giants-title-m-ller-073000968.html)
+- **MLS Cup 2025: Your guide to Inter Miami vs. Vancouver Whitecaps**: [Link](https://bvmsports.com/2025/11/29/mls-cup-2025-your-guide-to-inter-miami-vs-vancouver-whitecaps/)
+
+
 ### نتائج مباراة التعليم 2025 pdf (N/A, Sat, 29 Nov 2025 23:20:00 -0800)
 
 - **"مباراة التعليم" تنهي المداولات اليوم**: [Link](https://www.hespress.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%AA%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-1663482.html)
