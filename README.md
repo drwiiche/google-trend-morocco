@@ -1,3 +1,10 @@
+### roma (N/A, Sun, 30 Nov 2025 12:40:00 -0800)
+
+- **Conte: "Momento da elmetto, è un messaggio per noi". E De Laurentiis: "Guidati da un condottiero"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Napoli/30-11-2025/conte-momento-da-elmetto-e-un-messaggio-per-noi-e-de-laurentiis.shtml)
+- **Koné: “Il Napoli ci ha limitato. Il fallo di Rrahmani? L’arbitro doveva rivederlo”**: [Link](https://www.forzaroma.info/news-as-roma/kone-il-napoli-ci-ha-limitato-il-fallo-di-rrahmani-larbitro-doveva-rivederlo/)
+- **Neres stende la Roma nello scontro d’alta classifica**: [Link](https://www.rsi.ch/sport/calcio/Neres-stende-la-Roma-nello-scontro-d%E2%80%99alta-classifica--3318839.html)
+
+
 ### الدوري الاسباني (N/A, Sun, 30 Nov 2025 13:50:00 -0800)
 
 - **شاهد.. غضب عارم وهتافات ضد لابورتا من جماهير برشلونة**: [Link](https://www.aljazeera.net/sport/2025/11/30/%D8%B4%D8%A7%D9%87%D8%AF-%D8%BA%D8%B6%D8%A8-%D8%B9%D8%A7%D8%B1%D9%85-%D9%88%D9%87%D8%AA%D8%A7%D9%81%D8%A7%D8%AA-%D8%B6%D8%AF-%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%85%D9%86)
