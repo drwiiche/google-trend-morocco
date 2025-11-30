@@ -1,3 +1,31 @@
+### lorient – nice (N/A, Sun, 30 Nov 2025 08:40:00 -0800)
+
+- **PRONOS PARIS RMC Le nul du jour du 30 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-30-novembre-ligue-1_AN-202511290385.html)
+- **« Être plus résilients, plus soudés, plus unis »**: [Link](https://www.ogcnice.com/fr/article/129560/etre-plus-resilients-plus-soudes-plus-unis.html)
+- **OGC Nice : Franck Haise défend ses joueurs face à une crise majeure traversée par le club**: [Link](https://www.mediasportif.fr/2025/11/30/ogc-nice-franck-haise-defend-ses-joueurs-face-a-une-crise-majeure-traversee-par-le-club/)
+
+
+### betis (N/A, Sun, 30 Nov 2025 08:40:00 -0800)
+
+- **Sevilla - Betis, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/sevilla-betis-en-directo-laliga-ea-sports-en-vivo-hoy-f202511-d/)
+- **0-0. Tablas sin goles al descanso**: [Link](https://vivirediciones.es/destacado/0-0-tablas-sin-goles-al-descanso/)
+- **Las distancias siempre se acortan con el derbi**: [Link](https://www.abc.es/deportes/orgullodenervion/noticias-sevilla-fc/distancias-siempre-acortan-derbi-20251130162214-nts.html)
+
+
+### arsenal (N/A, Sun, 30 Nov 2025 08:10:00 -0800)
+
+- **Team news: Mosquera and Hincapie start v Chelsea**: [Link](https://www.arsenal.com/news/team-news-mosquera-and-hincapie-start-v-chelsea)
+- **William Saliba injury update**: [Link](https://dailycannon.com/2025/11/william-saliba-injury-update/)
+- **Mikel Arteta provides latest update on William Saliba**: [Link](https://www.nowarsenal.com/latest-news/mikel-arteta-provides-latest-update-on-william-saliba/)
+
+
+### formula 1 (N/A, Sun, 30 Nov 2025 08:10:00 -0800)
+
+- **Qatar GP 2025: Lando Norris on F1 title chances against Piastri**: [Link](https://www.bbc.com/sport/formula1/articles/cx2e8444615o)
+- **A title decider, chaos at the start and a mandated two-stop: What to expect in the Qatar Grand Prix**: [Link](https://www.dive-bomb.com/article/a-title-decider-chaos-at-the-start-and-a-mandated-two-stop-what-to-expect-in-the-qatar-grand-prix)
+- **Formula 1 LIVE Result Updates in Qatar GP Race**: [Link](https://www.vavel.com/en-us/more-sports/2025/11/30/1242967-formula-1-live-result-qatar-gp-race.html)
+
+
 ### f1 (N/A, Sun, 30 Nov 2025 08:30:00 -0800)
 
 - **F1 LIVE: Qatar Grand Prix 2025 UK time, start time, grid, radio & updates**: [Link](https://www.bbc.com/sport/formula1/live/cqlz4e4gw94t)
