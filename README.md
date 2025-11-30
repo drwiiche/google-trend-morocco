@@ -1,3 +1,17 @@
+### f1 classement (N/A, Sun, 30 Nov 2025 10:00:00 -0800)
+
+- **Max Verstappen remporte le Grand Prix du Qatar devant Oscar Piastri, le titre se jouera à Abu Dhabi**: [Link](https://www.lequipe.fr/Formule-1/Actualites/Max-verstappen-remporte-le-grand-prix-du-qatar-devant-oscar-piastri-le-titre-se-jouera-a-abu-dhabi/1613495)
+- **Le suspense reste entier : Verstappen maintient la pression jusqu'au bout**: [Link](https://www.eurosport.fr/formule-1/grand-prix-du-qatar/2025/grand-prix-du-qatar-2025-le-suspense-reste-entier-verstappen-simpose-et-maintient-norris-et-piastri-sous-pression_sto23246106/story.shtml)
+- **Formule 1 : le classement complet des pilotes et des constructeurs après le Grand Prix du Qatar**: [Link](https://www.cnews.fr/sport/2025-11-30/formule-1-le-classement-complet-des-pilotes-et-des-constructeurs-apres-le-grand)
+
+
+### jordan bardella (N/A, Sun, 30 Nov 2025 10:00:00 -0800)
+
+- **INFO LA DÉPÊCHE. Œuf écrasé sur la tête de Jordan Bardella : qui est le septuagénaire qui a visé le président du Rassemblement national**: [Link](https://www.ladepeche.fr/2025/11/30/info-la-depeche-oeuf-ecrase-sur-la-tete-de-jordan-bardella-qui-est-le-septuagenaire-qui-a-vise-le-president-du-rassemblement-national-13082301.php)
+- **« Il n’est militant de rien du tout » : l’étonnant profil de l’agresseur de Jordan Bardella**: [Link](https://www.leparisien.fr/faits-divers/eric-zemmour-deja-pris-pour-cible-pere-dun-enfant-autiste-qui-est-lhomme-qui-a-jete-un-oeuf-sur-jordan-bardella-30-11-2025-TUIIRBFHXRDRTBMOIDP55SQ7XQ.php)
+- **Moissac : Jordan Bardella agressé lors d’une séance de dédicaces**: [Link](https://www.lejdd.fr/politique/moissac-jordan-bardella-agresse-lors-dune-seance-de-dedicaces-164511)
+
+
 ### atalanta – fiorentina (N/A, Sun, 30 Nov 2025 09:30:00 -0800)
 
 - **(DIRETTA TV)Atalanta-FiorentinaIn Diretta Streaming Gratis Serie A) 30/11/2025**: [Link](https://yoursunsetcountry.ca/classifieds/listings/diretta-tvatalanta-fiorentinain-diretta-streaming-gratis-serie-a-30-11-2025/)
