@@ -1,3 +1,17 @@
+### météo (N/A, Sat, 29 Nov 2025 22:00:00 -0800)
+
+- **Ce dimanche en France : une météo ensoleillée ou pluvieuse avant un coup de vent ? Voici les prévisions**: [Link](https://www.tameteo.com/actualites/previsions/ce-dimanche-en-france-une-meteo-ensoleillee-ou-pluvieuse-avant-un-coup-de-vent-voici-les-previsions-risque-intemperies.html)
+- **Météo, 30 Novembre, retour sur l’actualité locale avec le Cyrano Pressé**: [Link](https://www.ledemocratedebergerac.fr/meteo-30-novembre-locale-avec-le-cyrano-presse/)
+- **Météo de votre dimanche - Entre retour d'éclaircies et faibles pluies**: [Link](https://www.meteoetradar.com/actualites-meteo/meteo-de-votre-dimanche-entre-retour-declaircies-et-faibles-pluies--0787929f-53a1-4a0b-bfa3-93d3a0faeb7f)
+
+
+### الطقس (N/A, Sat, 29 Nov 2025 22:00:00 -0800)
+
+- **أمطار وثلوج مرتقبة بمناطق مغربية**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-1663495.html)
+- **طقس حار مع كتل منخفضة متوقع اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%AA%D8%B4%D9%83%D9%84-%D9%83%D8%AA%D9%84-%D8%B6%D8%A8%D8%A7%D8%A8%D9%8A%D8%A9-%D9%81%D9%88/)
+- **أمطار رعدية قوية و تساقطات ثلجية تضرب المغرب الأحد والإثنين (نشرة إنذارية برتقالية)**: [Link](https://agadir24.info/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%88-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7.html)
+
+
 ### نتائج مباراة التعليم 2025 (N/A, Sat, 29 Nov 2025 14:10:00 -0800)
 
 - **"مباراة التعليم" تنهي المداولات اليوم**: [Link](https://www.hespress.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%AA%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-1663482.html)
