@@ -1,3 +1,10 @@
+### crystal palace (N/A, Sun, 30 Nov 2025 05:10:00 -0800)
+
+- **Why Jean-Philippe Mateta was forced to retake penalty against Man United**: [Link](https://www.independent.co.uk/bulletin/sport/jean-philippe-mateta-retake-penalty-man-united-b2875187.html)
+- **Crystal Palace forced to retake penalty due to VAR ruling after 'clumsy' Man Utd foul**: [Link](https://www.dailystar.co.uk/sport/football/breaking-manchester-united-mateta-penalty-36329543)
+- **Jean-Philippe Mateta penalty sees Man Utd become first team to suffer from rule change**: [Link](https://www.mirror.co.uk/sport/football/news/mateta-penalty-man-utd-palace-36329563)
+
+
 ### star academy (N/A, Sun, 30 Nov 2025 04:50:00 -0800)
 
 - **"C'est dommage" : deux élèves de la "Star Academy" recadrés par Michael Goldman après une semaine difficile**: [Link](https://www.parismatch.be/culture/medias/2025/11/28/cest-dommage-deux-eleves-de-la-star-academy-recadre-par-michael-goldman-apres-une-semaine-difficile-RRS7SJHZLNFUHNWWCPXR77W3YY/)
