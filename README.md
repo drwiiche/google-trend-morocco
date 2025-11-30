@@ -1,3 +1,10 @@
+### chelsea – arsenal (N/A, Sun, 30 Nov 2025 07:40:00 -0800)
+
+- **Chelsea vs Arsenal: Are Blues genuine title contenders?**: [Link](https://www.bbc.com/sport/football/articles/clyd4j4gyn4o)
+- **Is the Chelsea project finally working? Football Weekly – video**: [Link](https://www.theguardian.com/football/video/2025/nov/26/is-the-chelsea-project-finally-working-football-weekly-video)
+- **Are Chelsea finally back?! Enzo Maresca's young guns might actually be Premier League title contenders - but Arsenal showdown is the ultimate test**: [Link](https://www.goal.com/en-us/lists/chelsea-enzo-maresca-young-guns-premier-league-title-contenders-arsenal-ultimate-test/blt04e7d99b9e74e15c)
+
+
 ### arsenal vs chelsea (N/A, Sun, 30 Nov 2025 06:20:00 -0800)
 
 - **Chelsea vs Arsenal: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm2v0meedrlt)
