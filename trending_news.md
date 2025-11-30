@@ -1,3 +1,10 @@
+### ajax – groningen (N/A, Sun, 30 Nov 2025 10:50:00 -0800)
+
+- **Live Eredivisie | Ajax wil met Bouwman negatieve primeur voorkomen in ArenA**: [Link](https://www.nu.nl/voetbal/6377751/live-eredivisie-ajax-wil-met-bouwman-negatieve-primeur-voorkomen-in-arena.html)
+- **Live: Ajax-FC Groningen | Dolend Ajax neemt het in Johan Cruijff Arena op tegen FC Groningen**: [Link](https://www.parool.nl/sport/live-ajax-fc-groningen-dolend-ajax-neemt-het-in-johan-cruijff-arena-op-tegen-fc-groningen~bd2b268c/)
+- **Basisplaats Bounida en Bouwman bij Ajax • Zeges voor PSV en Feyenoord**: [Link](https://nos.nl/liveblog/2592609-basisplaats-bounida-en-bouwman-bij-ajax-zeges-voor-psv-en-feyenoord)
+
+
 ### botola 2 (N/A, Sun, 30 Nov 2025 10:30:00 -0800)
 
 - **القسم الثاني/ الاتحاد الوجدي يفوز على الراسينغ البيضاوي والتعادل يحسم مبارتيْ أ.تزنيت ضد ا.البجعدي وو.فاس أمام س.المغربي**: [Link](https://m.elbotola.com/article/2025-11-30-17-46-649.html)
