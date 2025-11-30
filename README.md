@@ -1,3 +1,10 @@
+### ريال مدريد اليوم (N/A, Sun, 30 Nov 2025 13:20:00 -0800)
+
+- **مبابي يعتلي قمة الدوريات الكبرى في أوروبا برقم استثنائي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B9%D8%AA%D9%84%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89-%D9%81%D9%8A-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D8%B1%D9%82%D9%85-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A/bltfbc50bfb998ddba0)
+- **مبابي يهدد رقم رونالدو التاريخي... أفضل هداف في عام واحد**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D9%87%D8%AF%D8%AF-%D8%B1%D9%82%D9%85-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%A3%D9%81%D8%B6%D9%84-%D9%87%D8%AF%D8%A7%D9%81-%D9%81%D9%8A-%D8%B9%D8%A7%D9%85-%D9%88%D8%A7%D8%AD%D8%AF)
+- **هدف مبابي في مرمي جيرونا بالدوري الاسباني**: [Link](https://www.btolat.com/video/89422)
+
+
 ### kylian mbappé (N/A, Sun, 30 Nov 2025 14:20:00 -0800)
 
 - **Kylian Mbappé joins Cristiano Ronaldo in another exclusive Real Madrid club**: [Link](https://getfootballnewsspain.com/kylian-mbappe-joins-cristiano-ronaldo-in-another-exclusive-real-madrid-club/)
