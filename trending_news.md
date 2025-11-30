@@ -1,3 +1,10 @@
+### arsenal vs chelsea (N/A, Sun, 30 Nov 2025 06:20:00 -0800)
+
+- **Chelsea vs Arsenal: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm2v0meedrlt)
+- **Chelsea vs Arsenal: London Rivals Clash in High-Stakes Premier League Showdown**: [Link](https://www.dawan.africa/news/chelsea-vs-arsenal-london-rivals-clash-in-high-stakes-premier-league-showdown)
+- **LIVE: Chelsea vs Arsenal – English Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2025/11/30/live-chelsea-vs-arsenal-english-premier-league-2?update=4140857)
+
+
 ### إشبيلية ضد ريال بتيس (N/A, Sun, 30 Nov 2025 07:10:00 -0800)
 
 - **إشبيلية وريال بيتيس في الدوري الإسباني.. الموعد والقنوات الناقلة**: [Link](https://almashhadalaraby.com/news/540090)
