@@ -1,3 +1,10 @@
+### crystal palace – manchester united (N/A, Sun, 30 Nov 2025 03:20:00 -0800)
+
+- **Manchester United confirmed starting XI to face Crystal Palace as Lisandro Martinez decision made**: [Link](https://www.unitedinfocus.com/match-coverage/manchester-united-confirmed-starting-xi-to-face-crystal-palace-as-lisandro-martinez-decision-made/)
+- **Pre-Match Analysis: Man United set to travel to Selhurst Park**: [Link](https://www.vavel.com/en/football/2025/11/29/manchester-united/1243084-pre-match-analysis-man-united-set-to-travel-to-selhurst-park.html)
+- **Why Premier League games are kicking off at 2.05pm today – it’s not as rare as you might think - The Athletic**: [Link](https://www.nytimes.com/athletic/6844697/2025/11/30/premier-league-205-kick-off-time/)
+
+
 ### حالة الطقس اليوم (N/A, Sat, 29 Nov 2025 23:30:00 -0800)
 
 - **«الجو هيقلب 180 درجة».. بيان عاجل بشأن تغير حالة الطقس**: [Link](https://www.almasryalyoum.com/news/details/4139582)
