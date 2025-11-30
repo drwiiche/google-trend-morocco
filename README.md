@@ -1,3 +1,24 @@
+### le havre – lille (N/A, Sun, 30 Nov 2025 08:00:00 -0800)
+
+- **HAC – LOSC : Mbappé lancé, Fernandez-Pardo de retour ? Les compositions probables**: [Link](https://le11hdf.fr/hac-losc-mbappe-fernandez-pardo-compositions-probables/)
+- **Le Havre - Lille : à quelle heure et sur quelle chaîne suivre le match de la 14e journée de Ligue 1 ?**: [Link](https://www.lequipe.fr/Football/Actualites/Le-havre-lille-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-de-la-14e-journee-de-ligue-1/1613013)
+- **"La meilleure équipe pour notre plus gros test" : Les déclarations de Didier Digard avant Havre AC - LOSC**: [Link](https://lepetitlillois.com/2025/11/29/la-meilleure-equipe-pour-notre-plus-gros-test-les-declarations-de-didier-digard-avant-havre-ac-losc/)
+
+
+### dgsn (N/A, Sun, 30 Nov 2025 08:00:00 -0800)
+
+- **Fès: La préfecture de police célèbre l’excellence et rend hommage aux anciens policiers**: [Link](https://www.leconomiste.com/flash-infos/fes-la-prefecture-de-police-celebre-lexcellence-et-rend-hommage-aux-anciens-policiers/)
+- **Béni Mellal.. Célébration des élèves brillants et des retraités de la famille de la Sûreté nationale**: [Link](https://fr.hibapress.com/news-221150.html)
+- **Al Hoceima célèbre l’élite des excellents de la famille de la Sûreté nationale**: [Link](https://fr.hibapress.com/news-221049.html)
+
+
+### تشيلسي ضد آرسنال (N/A, Sun, 30 Nov 2025 07:50:00 -0800)
+
+- **بالمر وجيوكيريس على دكة البدلاء.. إعلان التشكيل الرسمي لقمة تشيلسي وآرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D9%88%D8%AC%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3-%D8%B9%D9%84%D9%89-%D8%AF%D9%83%D8%A9-%D8%A7%D9%84%D8%A8%D8%AF%D9%84%D8%A7%D8%A1--%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D9%82%D9%85%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt5788117ce1177cd7)
+- **موعد مباراة تشلسي ضد أرسنال في الدوري الإنجليزي والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/30/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84)
+- **بطولة إنكلترا: أرتيتا يؤكد أن رايس لديه "المزيد" ليقدمه**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251129-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%86-%D8%B1%D8%A7%D9%8A%D8%B3-%D9%84%D8%AF%D9%8A%D9%87-%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF-%D9%84%D9%8A%D9%82%D8%AF%D9%85%D9%87)
+
+
 ### chelsea – arsenal (N/A, Sun, 30 Nov 2025 07:40:00 -0800)
 
 - **Chelsea vs Arsenal: Are Blues genuine title contenders?**: [Link](https://www.bbc.com/sport/football/articles/clyd4j4gyn4o)
