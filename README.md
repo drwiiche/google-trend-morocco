@@ -1,3 +1,17 @@
+### star academy (N/A, Sun, 30 Nov 2025 04:50:00 -0800)
+
+- **"C'est dommage" : deux élèves de la "Star Academy" recadrés par Michael Goldman après une semaine difficile**: [Link](https://www.parismatch.be/culture/medias/2025/11/28/cest-dommage-deux-eleves-de-la-star-academy-recadre-par-michael-goldman-apres-une-semaine-difficile-RRS7SJHZLNFUHNWWCPXR77W3YY/)
+- **Star Academy 2025 : Quel élève a été éliminé lors du prime de ce samedi 29 novembre ?**: [Link](https://www.programme-tv.net/news/tv/393071-star-academy-2025-quel-eleve-a-ete-elimine-lors-du-prime-de-ce-samedi-29-novembre/)
+- **Star Academy : Anouk immunisée, "libérée"… et déjà en route pour la finale ? Voici ce que vous avez raté du prime des "Destins liés" !**: [Link](https://www.dhnet.be/medias/television/2025/11/29/star-academy-anouk-immunisee-liberee-et-deja-en-route-pour-la-finale-voici-ce-que-vous-avez-rate-du-prime-des-destins-lies-PB43MPXHKJAQTFOZYOR2QZTRZI/)
+
+
+### real sociedad – villarreal (N/A, Sun, 30 Nov 2025 04:20:00 -0800)
+
+- **Directo Real Sociedad-Villarreal: Gerard Moreno y Ayoze en la delantera titular**: [Link](https://www.elperiodicomediterraneo.com/villarreal-cf/2025/11/30/directo-real-sociedad-villarreal-gerard-124284794.html)
+- **Real Sociedad - Villareal, en directo hoy: sigue el partido de LaLiga EA Sports minuto a minuto**: [Link](https://www.europapress.es/deportes/partidos-en-directo/noticia-real-sociedad-villareal-directo-hoy-sigue-partido-laliga-ea-sports-minuto-minuto-20251130131552.html)
+- **A por lo más difícil**: [Link](https://www.realsociedad.eus/es/noticias/detalle/a-por-lo-mas-dificil)
+
+
 ### ياسمين عبد العزيز (N/A, Sun, 30 Nov 2025 03:50:00 -0800)
 
 - **إطلالة جذابة لـ ياسمين عبدالعزيز فى أحدث ظهور لها مع منى الشاذلي**: [Link](https://www.almasryalyoum.com/news/details/4140226)
