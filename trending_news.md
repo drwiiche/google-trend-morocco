@@ -1,3 +1,31 @@
+### لا ليغا (N/A, Sun, 30 Nov 2025 14:00:00 -0800)
+
+- **الزلزولي وبيتيس انتزعا فوزا كبيرا في ديربي الأندلس**: [Link](https://www.almountakhab.com/node/13220181)
+- **أحداث مواجهة الجيش الملكي والأهلي المصري تتكرر في الدوري الإسباني.. والحكم يوقف المباراة!**: [Link](https://www.akhbarona.com/sport/worldfoot/417406.html)
+- **بث مباشر.. مشاهدة مباراة إشبيلية وريال بيتيس في الدوري الإسباني**: [Link](https://www.khaligyoun.com/608645/)
+
+
+### ترتيب الدوري الإسباني (N/A, Sun, 30 Nov 2025 14:00:00 -0800)
+
+- **ترتيب هدافي الليغا بعد هدف مبابي أمام جيرونا**: [Link](https://hihi2.com/2025/12/01/p3537042.html)
+- **ترتيب الدوري الإسباني 2025/2026 بعد الأسبوع 14**: [Link](https://twaslnews.com/365scores/2232766/)
+- **احصائيات الدوري الاسباني، والتنبؤ، والتلفزيون، تيار**: [Link](https://albalad.news/sport/%D8%A7%D8%AD%D8%B5%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%8C-%D9%88%D8%A7%D9%84%D8%AA%D9%86%D8%A8%D8%A4%D8%8C-%D9%88/307126/)
+
+
+### moulay rachid (N/A, Sun, 30 Nov 2025 14:00:00 -0800)
+
+- **S.A.R. le Prince Moulay Rachid préside un dîner offert par S.M. le Roi à l'occasion de l'ouverture officielle de la 22e édition du FIFM**: [Link](https://lematin.ma/culture/fifm-sar-le-prince-moulay-rachid-preside-un-diner-offert-par-sm-le-roi/316243)
+- **FIFM : A Marrakech, Jodie Foster célèbre la révolution des femmes au cinéma**: [Link](https://fr.hespress.com/451992-fifm-a-marrakech-jodie-foster-celebre-la-revolution-des-femmes-au-cinema.html)
+- **Le Prince Moulay Rachid préside un dîner offert par le Roi à l'occasion de l'ouverture officielle du FIFM 2025**: [Link](https://medias24.com/2025/11/30/le-prince-moulay-rachid-preside-un-diner-offert-par-le-roi-a-loccasion-de-louverture-officielle-du-fifm-2025-1586809/)
+
+
+### real madrid cf (N/A, Sun, 30 Nov 2025 13:10:00 -0800)
+
+- **Real Madrid vs Girona – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/270086/real-madrid-vs-girona-match-preview-prediction/)
+- **Bellingham, Militao to start in a 4-3-1-2 – How Real Madrid can line up against Girona**: [Link](https://madriduniversal.com/bellingham-militao-to-start-in-a-4-3-1-2-how-real-madrid-can-line-up-against-girona/)
+- **Kylian Mbappé joins Cristiano Ronaldo in another exclusive Real Madrid club**: [Link](https://getfootballnewsspain.com/kylian-mbappe-joins-cristiano-ronaldo-in-another-exclusive-real-madrid-club/)
+
+
 ### rma (N/A, Sun, 30 Nov 2025 13:40:00 -0800)
 
 - **PNY Announces Local RMA Setup in India for NVIDIA GeForce and NVIDIA Professional GPUs in Partnership with...**: [Link](https://www.lokmattimes.com/business/pny-announces-local-rma-setup-in-india-for-nvidia-geforce-and-nvidia-professional-gpus-in-partnership-with-repair-return-technology-pvt-ltd/)
