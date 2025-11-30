@@ -1,3 +1,10 @@
+### atalanta – fiorentina (N/A, Sun, 30 Nov 2025 09:30:00 -0800)
+
+- **(DIRETTA TV)Atalanta-FiorentinaIn Diretta Streaming Gratis Serie A) 30/11/2025**: [Link](https://yoursunsetcountry.ca/classifieds/listings/diretta-tvatalanta-fiorentinain-diretta-streaming-gratis-serie-a-30-11-2025/)
+- **Hien: "Fiorentina in difficoltà ma sarà dura con loro. Duello con Kean sempre difficile"**: [Link](https://www.labaroviola.com/hien-fiorentina-in-difficolta-ma-sara-dura-con-loro-duello-con-kean-sempre-difficile/326905/)
+- **Una parte dello spogliatoio rivoleva Palladino, ma lui..**: [Link](https://www.quandofacundoroncaglia.it/una-parte-dello-spogliatoio-rivoleva-palladino-ma-lui/)
+
+
 ### arryadia (N/A, Sun, 30 Nov 2025 09:20:00 -0800)
 
 - **بعثة الأهلي تطير غدا إلى المغرب وتوروب يكثف التحضيرات الفنية والبدنية**: [Link](https://www.korabia.net/news/32594/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%AA%D8%B7%D9%8A%D8%B1-%D8%BA%D8%AF%D8%A7-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AA%D9%88%D8%B1%D9%88%D8%A8-%D9%8A%D9%83%D8%AB%D9%81-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D9%86%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A8%D8%AF%D9%86%D9%8A%D8%A9/%D9%83%D8%B1%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)
