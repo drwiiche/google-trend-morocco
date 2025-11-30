@@ -1,3 +1,38 @@
+### strasbourg – brest (N/A, Sun, 30 Nov 2025 06:20:00 -0800)
+
+- **La compo probable du Racing face à Brest !**: [Link](https://www.alsasports.fr/football/rc-strasbourg/la-compo-probable-du-racing-face-a-brest-3/77705/)
+- **Le Brestois Ludovic Ajorque avant son retour à Strasbourg : "C'est un club et une ville qui m'ont beaucoup donné"**: [Link](https://www.francebleu.fr/sports/football/le-brestois-ludovic-ajorque-avant-son-retour-a-strasbourg-c-est-un-club-et-une-ville-qui-m-ont-beaucoup-donne-3041717)
+- **PRONOS PARIS RMC Le pari à domicile du 30 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-30-novembre-ligue-1_AN-202511290382.html)
+
+
+### nottm forest – brighton (N/A, Sun, 30 Nov 2025 06:20:00 -0800)
+
+- **Why Nottingham Forest vs Brighton and Liverpool and Aston Villa are all kicking off at unusual time**: [Link](https://www.nottinghampost.com/sport/football/football-news/nottingham-forest-vs-brighton-liverpool-10678299)
+- **Kaoru Mitoma Injury Update Live Tracker**: [Link](https://www.wearebrighton.com/newsopinion/kaoru-mitoma-injury-update-live-tracker/)
+- **Dyche reveals his message for Gibbs-White after taking over at Nottingham Forest – and provides update on midfielder**: [Link](https://hayters.com/dyche-reveals-his-message-for-gibbs-white/)
+
+
+### بيزا ضد الإنتر (N/A, Sun, 30 Nov 2025 06:20:00 -0800)
+
+- **إنتر يفقد نجما ويستعيد آخر قبل مواجهة بيزا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%8A%D9%81%D9%82%D8%AF-%D9%86%D8%AC%D9%85%D8%A7-%D9%88%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%A7%D9%93%D8%AE%D8%B1-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%8A%D8%B2%D8%A7/bltff9f0d235ea81817)
+- **بث مباشر.. شاهد مباراة إنتر ميلان وبيزا في الدوري الإيطالي**: [Link](https://www.khaligyoun.com/608593/)
+- **يلا شووت - متابعة لحظية للمباريات**: [Link](https://www.ysscores.com/ar/news/13863585/%D8%A3%D9%83%D9%8A%D9%86%D8%B3%D8%A7%D9%86%D9%85%D9%8A%D8%B1%D9%88-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 30 Nov 2025 06:20:00 -0800)
+
+- **مقعد الصدارة يؤمن انتصار آرسنال.. وسلسلة تشيلسي مهددة بالخماسية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%82%D8%B9%D8%AF-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%8A%D9%88%D9%94%D9%85%D9%86-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84--%D9%88%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%85%D9%87%D8%AF%D8%AF%D8%A9-%D8%A8%D8%A7%D9%84%D8%AE%D9%85%D8%A7%D8%B3%D9%8A%D8%A9/blt2daa54b3c11b75d6)
+- **موعد مباراة تشلسي ضد أرسنال في الدوري الإنجليزي والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/11/30/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84)
+- **بطولة إنكلترا: أرتيتا يؤكد أن رايس لديه "المزيد" ليقدمه**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251129-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%86-%D8%B1%D8%A7%D9%8A%D8%B3-%D9%84%D8%AF%D9%8A%D9%87-%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF-%D9%84%D9%8A%D9%82%D8%AF%D9%85%D9%87)
+
+
+### coupe arabe (N/A, Sun, 30 Nov 2025 06:20:00 -0800)
+
+- **18 jours, 16 équipes, pays du Maghreb…qu’est-ce que la Coupe Arabe ?**: [Link](https://www.footmercato.net/a9061791193208693374-18-jours-16-equipes-pays-du-maghreb-quest-ce-que-la-coupe-arabe)
+- **Coupe arabe: duel footballistique renouvelé entre les sélections arabes d’Afrique et d’Asie**: [Link](https://sport.le360.ma/football/coupe-arabe-duel-footballistique-renouvele-entre-les-selections-arabes-dafrique-et-dasie_HNLGGGSBUBA5XDXLLGFWR46NYE/)
+- **L'équipe nationale palestinienne fin prête pour son entrée en lice face au Qatar en Coupe arabe 2025**: [Link](https://french.wafa.ps/Pages/Details/238901)
+
+
 ### وست هام ضد ليفربول (N/A, Sun, 30 Nov 2025 05:30:00 -0800)
 
 - **صلاح على دكة ليفربول أمام وست هام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D8%B9%D9%84%D9%89-%D8%AF%D9%83%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85/blteb58b56b736a4b0d)
