@@ -1,3 +1,10 @@
+### كاس العرب (N/A, Sun, 30 Nov 2025 11:20:00 -0800)
+
+- **جدول مباريات كأس العرب 2025 والقنوات الناقلة المفتوحة**: [Link](https://www.aljazeera.net/sport/2025/11/29/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9)
+- **ثلاثي يملك أفضلية على البقية .. أبرز المرشحين للتتويج بكأس العرب فيفا 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%81%D9%8A%D9%81%D8%A7-2025/blt5349cf0f368e4e15)
+- **تجريب قرار جديد في "كأس العرب"**: [Link](https://www.hespress.com/%D8%AA%D8%AC%D8%B1%D9%8A%D8%A8-%D9%82%D8%B1%D8%A7%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1663508.html)
+
+
 ### girona – real madrid (N/A, Sun, 30 Nov 2025 11:10:00 -0800)
 
 - **Alineaciones posibles de Girona y Real Madrid hoy en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineaciones-posibles-del-girona-real-madrid-de-laliga-ea-sports-f202511-n/)
