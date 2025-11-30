@@ -1,3 +1,17 @@
+### f1 (N/A, Sun, 30 Nov 2025 08:30:00 -0800)
+
+- **F1 LIVE: Qatar Grand Prix 2025 UK time, start time, grid, radio & updates**: [Link](https://www.bbc.com/sport/formula1/live/cqlz4e4gw94t)
+- **A title decider, chaos at the start and a mandated two-stop: What to expect in the Qatar Grand Prix**: [Link](https://www.dive-bomb.com/article/a-title-decider-chaos-at-the-start-and-a-mandated-two-stop-what-to-expect-in-the-qatar-grand-prix)
+- **Oscar Piastri names critical factor to deny Lando Norris F1 title glory**: [Link](https://racingnews365.com/oscar-piastri-names-critical-factor-to-deny-lando-norris-f1-title-glory)
+
+
+### arsenal vs (N/A, Sun, 30 Nov 2025 08:30:00 -0800)
+
+- **Chelsea vs Arsenal: Are Blues genuine title contenders?**: [Link](https://www.bbc.com/sport/football/articles/clyd4j4gyn4o)
+- **Is the Chelsea project finally working? Football Weekly – video**: [Link](https://www.theguardian.com/football/video/2025/nov/26/is-the-chelsea-project-finally-working-football-weekly-video)
+- **Are Chelsea finally back?! Enzo Maresca's young guns might actually be Premier League title contenders - but Arsenal showdown is the ultimate test**: [Link](https://www.goal.com/en-us/lists/chelsea-enzo-maresca-young-guns-premier-league-title-contenders-arsenal-ultimate-test/blt04e7d99b9e74e15c)
+
+
 ### le havre – lille (N/A, Sun, 30 Nov 2025 08:00:00 -0800)
 
 - **HAC – LOSC : Mbappé lancé, Fernandez-Pardo de retour ? Les compositions probables**: [Link](https://le11hdf.fr/hac-losc-mbappe-fernandez-pardo-compositions-probables/)
