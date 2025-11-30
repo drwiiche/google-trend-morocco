@@ -1,3 +1,17 @@
+### الدوري الاسباني (N/A, Sun, 30 Nov 2025 13:50:00 -0800)
+
+- **شاهد.. غضب عارم وهتافات ضد لابورتا من جماهير برشلونة**: [Link](https://www.aljazeera.net/sport/2025/11/30/%D8%B4%D8%A7%D9%87%D8%AF-%D8%BA%D8%B6%D8%A8-%D8%B9%D8%A7%D8%B1%D9%85-%D9%88%D9%87%D8%AA%D8%A7%D9%81%D8%A7%D8%AA-%D8%B6%D8%AF-%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%85%D9%86)
+- **قلق رغم الانتصار.. ماذا دار بين فليك ورافينيا بعد لقاء ألافيس؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D9%84%D9%82-%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1--%D9%85%D8%A7%D8%B0%D8%A7-%D8%AF%D8%A7%D8%B1-%D8%A8%D9%8A%D9%86-%D9%81%D9%84%D9%8A%D9%83-%D9%88%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%94%D9%84%D8%A7%D9%81%D9%8A%D8%B3/blt99a41869ba27db73)
+- **تفسير برشلونة لصورة فليك “المحبطة” مع رافينيا**: [Link](https://www.radiomars.ma/%D8%AA%D9%81%D8%B3%D9%8A%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%B5%D9%88%D8%B1%D8%A9-%D9%81%D9%84%D9%8A%D9%83-%D8%A7%D9%84%D9%85%D8%AD%D8%A8%D8%B7%D8%A9-%D9%85%D8%B9-%D8%B1/)
+
+
+### napoli (N/A, Sun, 30 Nov 2025 13:30:00 -0800)
+
+- **Conte: "Momento da elmetto, è un messaggio per noi". E De Laurentiis: "Guidati da un condottiero"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Napoli/30-11-2025/conte-momento-da-elmetto-e-un-messaggio-per-noi-e-de-laurentiis.shtml)
+- **Neres stende la Roma nello scontro d’alta classifica**: [Link](https://www.rsi.ch/sport/calcio/Neres-stende-la-Roma-nello-scontro-d%E2%80%99alta-classifica--3318839.html)
+- **Gasperini: "Il gol del Napoli? C'era fallo, ma ci abbiamo messo del nostro"**: [Link](https://www.sportmediaset.mediaset.it/calcio/roma/gasperini-roma_106616630-202502k.shtml)
+
+
 ### ريال مدريد اليوم (N/A, Sun, 30 Nov 2025 13:20:00 -0800)
 
 - **مبابي يعتلي قمة الدوريات الكبرى في أوروبا برقم استثنائي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B9%D8%AA%D9%84%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89-%D9%81%D9%8A-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D8%B1%D9%82%D9%85-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A/bltfbc50bfb998ddba0)
