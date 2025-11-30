@@ -1,3 +1,30 @@
+### الامن الوطني (N/A, Sun, 30 Nov 2025 09:00:00 -0800)
+
+- **حفل التميز لفائدة أسرة الأمن بأكادير**: [Link](https://www.hespress.com/%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-%D9%84%D9%81%D8%A7%D8%A6%D8%AF%D8%A9-%D8%A3%D8%B3%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A8%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-1663690.html)
+- **وجدة.. تكريم متفوقين ومتقاعدين في “حفل التميز والإبداع” لأسرة الأمن الوطني - هبة بريس**: [Link](https://ar.hibapress.com/details-680416.html)
+- **الأمن الإقليمي بالجديدة يحتفي بالمتفوّقين ويعانق الأرامل والمتقاعدين في لحظات إنسانية مؤثرة**: [Link](http://www.eljadida24.com/ar/1213449.html)
+
+
+### f1 live (N/A, Sun, 30 Nov 2025 09:00:00 -0800)
+
+- **LIVE: Qatar GP 2025 - Piastri leads, Norris 2nd after safety car**: [Link](https://www.espn.com/f1/story/_/id/47127631/f1-qatar-grand-prix-2025-latest-updates)
+- **What does Norris need to win the championship in Qatar?**: [Link](https://www.bbc.com/sport/formula1/articles/cvgrm2mek1ro)
+- **F1 Qatar Grand Prix live updates: Race latest as Piastri leads, Verstappen gets past title-hunting Norris**: [Link](https://www.nytimes.com/athletic/live-blogs/f1-qatar-live-updates-race-times-results/jjXEPvq91BfW/)
+
+
+### celta vigo – espanyol (N/A, Sun, 30 Nov 2025 08:50:00 -0800)
+
+- **Celta Vigo vs Espanyol Prediction and Betting Tips | November 30th 2025**: [Link](https://www.sportskeeda.com/football/celta-vigo-vs-espanyol-prediction-betting-tips-november-30th-2025)
+- **Pablo Duran vs. Espanyol – Player props & odds to score a goal on November 30**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/11/29/pablo-duran-soccer-player-props-11-30-2025/87531152007/)
+- **Post-game training set for Monday morning**: [Link](https://www.rcdespanyol.com/en/new/postgame-training-set-for-monday-morning/19478)
+
+
+### dgsn maroc (N/A, Sun, 30 Nov 2025 08:50:00 -0800)
+
+- **DGSN : Hammouchi nomme de nouveaux responsables dans plusieurs villes du Maroc**: [Link](https://lematin.ma/nation/hammouchi-nomme-de-nouveaux-responsables-dans-plusieurs-villes-du-maroc/316164)
+- **Nouvelles nominations au sein de la Sûreté nationale**: [Link](https://fr.le360.ma/politique/nouvelles-nominations-au-sein-de-la-surete-nationale_TVBSM3CSCJFHNJIOQ6RNL6FGEA/)
+
+
 ### lorient – nice (N/A, Sun, 30 Nov 2025 08:40:00 -0800)
 
 - **PRONOS PARIS RMC Le nul du jour du 30 novembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-30-novembre-ligue-1_AN-202511290385.html)
