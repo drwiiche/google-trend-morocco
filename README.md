@@ -1,3 +1,10 @@
+### psv eindhoven – volendam (N/A, Sun, 30 Nov 2025 02:40:00 -0800)
+
+- **PSV wacht na ‘gouden punten’ nieuwe opgave: eerst zes keer op het veld en dan in de directiekamer**: [Link](https://www.ed.nl/psv/psv-wacht-na-gouden-punten-nieuwe-opgave-eerst-zes-keer-op-het-veld-en-dan-in-de-directiekamer~af8d3470/)
+- **LIVE Eredivisie | PSV wil topweek goed afsluiten tegen FC Volendam; Feyenoord op bezoek bij Telstar**: [Link](https://www.ajaxshowtime.com/voetbalnieuws/live-eredivisie-psv-wil-topweek-goed-afsluiten-tegen-fc-volendam-feyenoord-op-bezoek-bij-telstar)
+- **Bosz gooit opstelling PSV op de schop bij absentie Perisic en Salah-Eddine**: [Link](https://www.vi.nl/nieuws/bosz-gooit-opstelling-psv-op-de-schop-bij-absentie-perisic-en-salah-eddine)
+
+
 ### حالة الطقس (N/A, Sun, 30 Nov 2025 00:00:00 -0800)
 
 - **بيان عاجل بشأن حالة الطقس اليوم.. أمطار وأولى الموجات الباردة**: [Link](https://www.msn.com/ar-eg/news/national/%D8%A8%D9%8A%D8%A7%D9%86-%D8%B9%D8%A7%D8%AC%D9%84-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%A3%D9%88%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%88%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9/ar-AA1RpOuz)
