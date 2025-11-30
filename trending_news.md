@@ -1,3 +1,10 @@
+### lyon – nantes (N/A, Sun, 30 Nov 2025 11:30:00 -0800)
+
+- **« J'aime beaucoup cette structure » : l'OL avec une défense à trois axiaux, une option tactique qui plaît à Paulo Fonseca**: [Link](https://www.lequipe.fr/Football/Article/-j-aime-beaucoup-cette-structure-l-ol-avec-une-defense-a-trois-axiaux-une-option-tactique-qui-plait-a-paulo-fonseca/1613432)
+- **El-Arabi (Nantes) : "Nos qualités sont très différentes du Maccabi"**: [Link](https://www.olympique-et-lyonnais.com/el-arabi-nantes-nos-qualites-sont-tres-differentes-du-maccabi,385647.html)
+- **Ligue 1. Le Clash du Dimanche soir : Dominik Greif x Anthony Lopez**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-le-clash-du-dimanche-soir-dominik-greif-x-anthony-lopez/SzbGXhzq/)
+
+
 ### كاس العرب (N/A, Sun, 30 Nov 2025 11:20:00 -0800)
 
 - **جدول مباريات كأس العرب 2025 والقنوات الناقلة المفتوحة**: [Link](https://www.aljazeera.net/sport/2025/11/29/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9)
