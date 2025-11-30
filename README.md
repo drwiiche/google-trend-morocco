@@ -1,3 +1,10 @@
+### roma vs napoli (N/A, Sun, 30 Nov 2025 12:10:00 -0800)
+
+- **Serie A: in campo Roma-Napoli DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/11/30/serie-a-in-campo-roma-napoli-diretta-e-foto_e2151681-75b0-4952-90a0-a010a1ae5121.html)
+- **!***HERE’S WAY TO WATCH Girona vs Real Madrid LIVE STREAMS LaLiga ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-girona-vs-real-madrid-live-streams-laliga-on-tv-channel-3/)
+- **Massara: 'Oggi verificheremo a che punto siamo. Mercato? L'organico è già molto buono'**: [Link](https://www.virgilio.it/italia/roma/notizielocali/massara_oggi_verificheremo_a_che_punto_siamo_mercato_l_organico_gi_molto_buono_-76101524.html)
+
+
 ### lyon – nantes (N/A, Sun, 30 Nov 2025 11:30:00 -0800)
 
 - **« J'aime beaucoup cette structure » : l'OL avec une défense à trois axiaux, une option tactique qui plaît à Paulo Fonseca**: [Link](https://www.lequipe.fr/Football/Article/-j-aime-beaucoup-cette-structure-l-ol-avec-une-defense-a-trois-axiaux-une-option-tactique-qui-plait-a-paulo-fonseca/1613432)
