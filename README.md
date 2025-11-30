@@ -1,3 +1,10 @@
+### kylian mbappé (N/A, Sun, 30 Nov 2025 14:20:00 -0800)
+
+- **Kylian Mbappé joins Cristiano Ronaldo in another exclusive Real Madrid club**: [Link](https://getfootballnewsspain.com/kylian-mbappe-joins-cristiano-ronaldo-in-another-exclusive-real-madrid-club/)
+- **Girona vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cgl64799xr3t)
+- **Real Madrid vs Girona – Match Preview & Prediction**: [Link](https://www.moroccoworldnews.com/2025/11/270086/real-madrid-vs-girona-match-preview-prediction/)
+
+
 ### لا ليغا (N/A, Sun, 30 Nov 2025 14:00:00 -0800)
 
 - **الزلزولي وبيتيس انتزعا فوزا كبيرا في ديربي الأندلس**: [Link](https://www.almountakhab.com/node/13220181)
