@@ -1,3 +1,10 @@
+### نتائج مباراة التعليم 2025 (N/A, Sat, 29 Nov 2025 14:10:00 -0800)
+
+- **"مباراة التعليم" تنهي المداولات اليوم**: [Link](https://www.hespress.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%AA%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-1663482.html)
+- **إعلان نتائج الاختبارات الكتابية لمباراة التعليم دورة نونبر 2025 وموعد إجراء الاختبارات الشفوية**: [Link](https://iqraa24.com/news/%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%AA%D8%A7%D8%A8%D9%8A%D8%A9-%D9%84%D9%85%D8%A8%D8%A7/)
+- **الإطلاع علي جميع التفاصيل الخاصة بـ لوائح المقبولين في مباراة التعليم الانتقاء الأولي 2025 – 2026**: [Link](https://www.5lejnews.com/worldnews/278378/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%8A/)
+
+
 ### flamengo vs palmeiras (N/A, Sat, 29 Nov 2025 13:00:00 -0800)
 
 - **Danilo 'rouba' a terceira Libertadores a Abel Ferreira e Flamengo é campeão da América do Sul**: [Link](https://sportinforma.sapo.pt/futebol/copa-libertadores/artigos/danilo-rouba-a-terceira-libertadores-a-abel-ferreira-e-flamengo-e-campeao-da-america-do-sul)
