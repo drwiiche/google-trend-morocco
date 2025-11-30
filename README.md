@@ -1,3 +1,17 @@
+### botola 2 (N/A, Sun, 30 Nov 2025 10:30:00 -0800)
+
+- **القسم الثاني/ الاتحاد الوجدي يفوز على الراسينغ البيضاوي والتعادل يحسم مبارتيْ أ.تزنيت ضد ا.البجعدي وو.فاس أمام س.المغربي**: [Link](https://m.elbotola.com/article/2025-11-30-17-46-649.html)
+- **نتائج القسم الثاني لكرة القدم بالمغرب**: [Link](https://www.hespress.com/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-17-1660411.html)
+- **تعثر مولودية وجدة يمنح المغرب التطواني فرصة الانفراد بصدارة القسم الثاني**: [Link](https://ar.sport.le360.ma/football/botola/FFE2ESKZFFHPPFN2INZNSYG5OE/)
+
+
+### angers – lens (N/A, Sun, 30 Nov 2025 10:20:00 -0800)
+
+- **DIRECT. Angers-Lens (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/angers-lens-live/675913)
+- **Football. Quand un joueur d’Angers Sco cite Johan Cruyff pour expliquer la bonne dynamique de son équipe**: [Link](https://www.ouest-france.fr/sport/football/angers-sco/football-quand-un-joueur-dangers-sco-cite-johan-cruyff-pour-expliquer-la-bonne-dynamique-de-son-equipe-23884eac-cd03-11f0-82ad-c76f6b87fd49)
+- **Ligue 1 : un grand Thauvin permet à Lens de dépasser le PSG, le bon coup de Lille, Nice coule à pic**: [Link](https://www.lefigaro.fr/sports/football/ligue-1/ligue-1-un-grand-thauvin-porte-lens-en-tete-le-bon-coup-de-lille-nice-coule-a-pic-20251130)
+
+
 ### f1 classement (N/A, Sun, 30 Nov 2025 10:00:00 -0800)
 
 - **Max Verstappen remporte le Grand Prix du Qatar devant Oscar Piastri, le titre se jouera à Abu Dhabi**: [Link](https://www.lequipe.fr/Formule-1/Actualites/Max-verstappen-remporte-le-grand-prix-du-qatar-devant-oscar-piastri-le-titre-se-jouera-a-abu-dhabi/1613495)
