@@ -1,3 +1,10 @@
+### حالة الطقس اليوم (N/A, Sat, 29 Nov 2025 23:30:00 -0800)
+
+- **«الجو هيقلب 180 درجة».. بيان عاجل بشأن تغير حالة الطقس**: [Link](https://www.almasryalyoum.com/news/details/4139582)
+- **طقس اليوم.. انخفاض ملحوظ في الحرارة وشبورة كثيفة صباحاً وتحذيرات للأهالي والمسافرين**: [Link](https://alfallahalyoum.news/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%85%D9%84%D8%AD%D9%88%D8%B8-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%B4%D8%A8%D9%88.html/)
+- **5 أيام من التقلبات.. الأرصاد تكشف خريطة الظواهر الجوية حتى نهاية الأسبوع**: [Link](https://m.akhbarelyom.com/news/newdetails/4733250/1/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3)
+
+
 ### psv eindhoven – volendam (N/A, Sun, 30 Nov 2025 02:40:00 -0800)
 
 - **PSV wacht na ‘gouden punten’ nieuwe opgave: eerst zes keer op het veld en dan in de directiekamer**: [Link](https://www.ed.nl/psv/psv-wacht-na-gouden-punten-nieuwe-opgave-eerst-zes-keer-op-het-veld-en-dan-in-de-directiekamer~af8d3470/)
