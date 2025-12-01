@@ -1,3 +1,15 @@
+### cyber monday (N/A, Mon, 1 Dec 2025 07:00:00 -0800)
+
+- **Psst... The Definitive List of the Best Cyber Monday Deals Is Right Here**: [Link](https://www.nytimes.com/wirecutter/money/best-cyber-monday-deals-2025-1201/)
+- **Cyber Monday’s steepest deals take at least 43% off Blink, Carhartt, Levi’s and more**: [Link](https://www.cnn.com/cnn-underscored/deals/biggest-price-drops-cyber-monday-2025-12-01)
+- **Cyber Monday 2025 Deals Are Live From Amazon, Apple and More: 317+ Top Sales**: [Link](https://www.nbcnews.com/select/shopping/best-cyber-monday-deals-sales-2025-rcna245873)
+
+
+### tunisie vs syrie (N/A, Mon, 1 Dec 2025 05:50:00 -0800)
+
+- **Direct… Match Tunisie vs Syrie en Coupe Arabe 2025**: [Link](https://chamaly.ma/2025/12/01/direct-match-tunisie-vs-syrie-en-coupe-arabe-2025/)
+
+
 ### coupe arabe 2025 (N/A, Mon, 1 Dec 2025 04:20:00 -0800)
 
 - **18 jours, 16 équipes, pays du Maghreb…qu’est-ce que la Coupe Arabe ?**: [Link](https://www.footmercato.net/a9061791193208693374-18-jours-16-equipes-pays-du-maghreb-quest-ce-que-la-coupe-arabe)
