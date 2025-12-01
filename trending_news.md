@@ -1,3 +1,10 @@
+### liga classement (N/A, Sun, 30 Nov 2025 14:00:00 -0800)
+
+- **Foot-Championnat dEspagne (14e journée): Real - Barça, le duel à distance continue**: [Link](https://www.tap.info.tn/fr/Portail-Titres-de-l-actualit%C3%A9/19526490-foot-championnat)
+- **FC Barcelone, Real Madrid : Quel sera le classement final de Liga selon l'I.A d'Opta après la 14ème journée**: [Link](https://www.90min.com/fr/fc-barcelone-real-madrid-quel-sera-le-classement-final-de-liga-selon-l-i-a-d-opta-apres-la-14eme-journee-2025)
+- **Le Real Madrid crie au complot total !**: [Link](https://www.footmercato.net/a2443003868532895484-le-real-madrid-crie-au-complot-total)
+
+
 ### laliga (N/A, Sun, 30 Nov 2025 14:00:00 -0800)
 
 - **La Liga sign record TV deal for 2027-2032 eclipsing €5b mark**: [Link](https://sports.yahoo.com/articles/la-liga-sign-record-tv-142400274.html)
