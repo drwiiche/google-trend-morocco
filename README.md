@@ -1,3 +1,24 @@
+### decembre (N/A, Mon, 1 Dec 2025 00:00:00 -0800)
+
+- **Horoscope de la semaine du 1er au 7 décembre 2025 par Sophie Hérolt-Petitpas**: [Link](https://www.femmeactuelle.fr/horoscope2/vos-previsions-astro/horoscope-de-la-semaine-du-1er-au-7-decembre-2025-par-sophie-herolt-petitpas-2201391)
+- **Astrologie : un JUSTE retour de karma le 1er décembre pour ces 3 signes du zodiaque**: [Link](https://www.melty.fr/divers/astrologie-un-juste-retour-de-karma-le-1er-decembre-pour-ces-3-signes-du-zodiaque-2278168.html)
+- **Astrologie. Votre horoscope signe par signe du 1 décembre**: [Link](https://www.lhebdo17.fr/actualite-8146-astrologie-votre-horoscope-signe-par-signe-du-1-decembre)
+
+
+### classement liga (N/A, Sun, 30 Nov 2025 13:50:00 -0800)
+
+- **Transformé par Pierre Sage et son recrutement malin, Lens est le leader inattendu d'une Ligue 1 bouleversée : « En début de saison, on ne s'imaginait pas dans cette position »**: [Link](https://www.lequipe.fr/Football/Article/Transforme-par-pierre-sage-et-son-recrutement-malin-lens-est-le-leader-inattendu-d-une-ligue-1-bouleversee-en-debut-de-saison-on-ne-s-imaginait-pas-dans-cette-position/1613585)
+- **Le RC Lens nouveau leader de la Ligue 1 grâce à un doublé de Florian Thauvin à Angers**: [Link](https://www.lemonde.fr/sport/article/2025/11/30/le-rc-lens-nouveau-leader-de-la-ligue-1-grace-a-un-double-de-florian-thauvin-a-angers_6655488_3242.html)
+- **Ligue 1 : Florian Thauvin envoie Lens en tête du classement, Lille se rapproche de l’OM, Nice continue sa mauvaise série à Lorient**: [Link](https://www.footmercato.net/a4292103752811925678-ligue-1-florian-thauvin-envoie-lens-en-tete-du-classement-lille-se-rapproche-de-lom-nice-continue-sa-mauvaise-serie-a-lorient)
+
+
+### real vs (N/A, Sun, 30 Nov 2025 12:50:00 -0800)
+
+- **O Tannenbaum…O Tannenbaum: Where Art Thou?**: [Link](https://therobinreport.com/o-tannenbaum-o-tannenbaum-where-art-thou/)
+- **Does inflation affect how you shop for Christmas trees?**: [Link](https://www.cbc.ca/player/play/video/9.6998178)
+- **Real Versus Artificial**: [Link](https://theorangetimes.com/real-versus-artificial/)
+
+
 ### طقس اليوم (N/A, Sun, 30 Nov 2025 22:40:00 -0800)
 
 - **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-46-1663853.html)
