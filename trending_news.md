@@ -1,3 +1,10 @@
+### prince moulay rachid (N/A, Sun, 30 Nov 2025 19:20:00 -0800)
+
+- **S.A.R. le Prince Moulay Rachid préside un dîner offert par S.M. le Roi à l'occasion de l'ouverture officielle de la 22e édition du FIFM**: [Link](https://lematin.ma/culture/fifm-sar-le-prince-moulay-rachid-preside-un-diner-offert-par-sm-le-roi/316243)
+- **FIFM : A Marrakech, Jodie Foster célèbre la révolution des femmes au cinéma**: [Link](https://fr.hespress.com/451992-fifm-a-marrakech-jodie-foster-celebre-la-revolution-des-femmes-au-cinema.html)
+- **Le Prince Moulay Rachid préside un dîner offert par le Roi à l'occasion de l'ouverture officielle du FIFM 2025**: [Link](https://medias24.com/2025/11/30/le-prince-moulay-rachid-preside-un-diner-offert-par-le-roi-a-loccasion-de-louverture-officielle-du-fifm-2025-1586809/)
+
+
 ### roma (N/A, Sun, 30 Nov 2025 12:40:00 -0800)
 
 - **Conte: "Momento da elmetto, è un messaggio per noi". E De Laurentiis: "Guidati da un condottiero"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Napoli/30-11-2025/conte-momento-da-elmetto-e-un-messaggio-per-noi-e-de-laurentiis.shtml)
