@@ -1,3 +1,10 @@
+### rayo – valence (N/A, Mon, 1 Dec 2025 11:20:00 -0800)
+
+- **DIRECT. Rayo Vallecano-Valence CF (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/rayo-vallecano-valence-cf-live/676846)
+- **PRONOS PARIS RMC Le pari du jour du 1er décembre – Liga – Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-1er-decembre-liga-espagne_AN-202511300268.html)
+- **Pronostic Rayo Vallecano - Valence - La Liga**: [Link](https://baonghean.vn/fr/nhan-dinh-rayo-vallecano-vs-valencia-la-liga-10313287.html)
+
+
 ### nicolás maduro (N/A, Mon, 1 Dec 2025 11:00:00 -0800)
 
 - **Trump administration news: White House meeting on Venezuela, Ukraine talks and immigration crackdown**: [Link](https://www.cnn.com/politics/live-news/trump-venezuela-ukraine-news-12-01-25)
