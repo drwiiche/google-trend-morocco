@@ -1,3 +1,17 @@
+### طقس اليوم (N/A, Sun, 30 Nov 2025 22:40:00 -0800)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-46-1663853.html)
+- **تساقطات مطرية وثلجية ابتداء من غد الأحد**: [Link](https://2m.ma/ar/news/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A1-%D9%85%D9%86-%D8%BA%D8%AF-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-20251129)
+- **بالصور: الأمطار تُضفي جمالا ساحرا على مدينة طنجة**: [Link](https://ar.le360.ma/societe/BGKMSWDMCVHK3JCXS75BO6XLXM/)
+
+
+### madrid (N/A, Sun, 30 Nov 2025 12:50:00 -0800)
+
+- **Así ha cambiado el Real Madrid de Xabi Alonso en seis meses: "El método ha variado"**: [Link](https://cadenaser.com/nacional/2025/11/28/asi-ha-cambiado-el-real-madrid-de-xabi-alonso-en-seis-meses-el-metodo-ha-variado-cadena-ser/)
+- **Si abrir la puerta al caos**: [Link](https://www.lagalerna.com/si-abrir-la-puerta-al-caos/)
+- **Raúl Varela avisa al Real Madrid: "A este Madrid le hacen falta más cosas que una charla"**: [Link](https://www.marca.com/radio/2025/12/01/raul-varela-avisa-real-madrid-madrid-le-falta-cosas-charla.html)
+
+
 ### sgtm (N/A, Sun, 30 Nov 2025 23:50:00 -0800)
 
 - **IPO SGTM : Pourquoi AGR recommande de souscrire**: [Link](https://www.leconomiste.com/flash-infos/ipo-sgtm-pourquoi-agr-recommande-de-souscrire/)
