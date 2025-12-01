@@ -1,3 +1,17 @@
+### qatar vs palestine (N/A, Mon, 1 Dec 2025 08:10:00 -0800)
+
+- **Palestine beats Libya to qualify for Arab Cup, ‘bringing joy’ to its people**: [Link](https://www.presstv.ir/Detail/2025/11/26/759517/Palestine-beats-Libya-to-qualify-for-Arab-Cup,-%E2%80%98bring-joy%E2%80%99-to-its-people)
+- **Qatar National Football Team vs Palestine National Football Team Lineups OUT**: [Link](https://www.sportsdunia.com/football-news/qatar-vs-palestine-lineups-confirmed-1st-december-2025)
+- **Live Updates: Qatar vs Palestine - FIFA Arab Cup Qatar 2025**: [Link](https://thepeninsulaqatar.com/article/01/12/2025/live-updates-qatar-vs-palestine-fifa-arab-cup-qatar-2025)
+
+
+### match futsal maroc espagne (N/A, Mon, 1 Dec 2025 08:00:00 -0800)
+
+- **CM féminine de Futsal: le Maroc joue demain les quarts de finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-49/)
+- **Mondial Futsal : Maroc-Espagne en 1/4 de finale, heure et chaîne de diffusion**: [Link](https://www.lesiteinfo.com/sport/661124-mondial-futsal-maroc-espagne-en-1-4-de-finale-heure-et-chaine-de-diffusion.html)
+- **Mondial féminin de futsal : les Lionnes de l'Atlas s'apprêtent à défier l'Espagne pour une place en demies**: [Link](https://lematin.ma/sports/mondial-futsal-les-lionnes-de-latlas-sappretent-a-defier-lespagne/316372)
+
+
 ### جزر القمر (N/A, Mon, 1 Dec 2025 06:10:00 -0800)
 
 - **ما القنوات الناقلة لمباراة المغرب وجزر القمر في كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt35c9aa3024af83e0)
