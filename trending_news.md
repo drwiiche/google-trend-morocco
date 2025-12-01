@@ -1,3 +1,10 @@
+### classement girona futbol club – real madrid (N/A, Sun, 30 Nov 2025 14:20:00 -0800)
+
+- **Gérone 1-1 Real Madrid, La Liga : résumé du match (30/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/girona-real-madrid-live/676844)
+- **Liga: Ounahi auteur d'un 3e match nul pour le Real Madrid**: [Link](https://fr.hespress.com/452039-liga-ounahi-auteur-dun-3e-match-nul-pour-le-real-madrid.html)
+- **Girona - Real : Madrid tombe dans le piège catalan, le résumé du match**: [Link](https://www.linternaute.com/sport/foot/9323717-direct-girona-real-suivez-le-match/)
+
+
 ### prince moulay rachid (N/A, Sun, 30 Nov 2025 19:20:00 -0800)
 
 - **S.A.R. le Prince Moulay Rachid préside un dîner offert par S.M. le Roi à l'occasion de l'ouverture officielle de la 22e édition du FIFM**: [Link](https://lematin.ma/culture/fifm-sar-le-prince-moulay-rachid-preside-un-diner-offert-par-sm-le-roi/316243)
