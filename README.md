@@ -1,3 +1,17 @@
+### nicolás maduro (N/A, Mon, 1 Dec 2025 11:00:00 -0800)
+
+- **Trump administration news: White House meeting on Venezuela, Ukraine talks and immigration crackdown**: [Link](https://www.cnn.com/politics/live-news/trump-venezuela-ukraine-news-12-01-25)
+- **Why is Trump threatening attacks? US-Venezuela tensions, explained**: [Link](https://www.usatoday.com/story/news/politics/2025/12/01/why-trump-venezuela-us/87551239007/)
+- **Trump to meet with Rubio, Hegseth, top aides on Venezuela, sources say**: [Link](https://www.cbsnews.com/news/trump-meeting-hegseth-rubio-venezuela-white-house/)
+
+
+### coupe d'arabe 2025 (N/A, Mon, 1 Dec 2025 07:10:00 -0800)
+
+- **Match Maroc-Comores : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-comores-a-quelle-heure-et-sur-quelles-chaines/316404)
+- **Coupe Arabe de la FIFA Qatar-2025: Oualid Azarou rempalce Youssef Mehri en sélection Nationale » A**: [Link](https://frmf.ma/fr/%D9%88%D9%84%D9%8A%D8%AF-%D8%A2%D8%B2%D8%B1%D9%88-%D9%8A%D8%B9%D9%88%D8%B6-%D9%8A%D9%88%D8%B3%D9%81-%D9%85%D9%8A%D9%87%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84/)
+- **Entrainement des Lions de l'Atlas A'**: [Link](https://sport.le360.ma/internal-gallery/entrainement-des-lions-de-latlas-a_VKHI67ZEMVFX3NTT64BQNV4Y6M/)
+
+
 ### shopify (N/A, Mon, 1 Dec 2025 06:50:00 -0800)
 
 - **Shopify down as outage reports pour in from around the world on Cyber Monday**: [Link](https://ca.news.yahoo.com/shopify-down-outage-reports-pour-165956040.html)
