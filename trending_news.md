@@ -1,3 +1,10 @@
+### maroc espagne futsal (N/A, Mon, 1 Dec 2025 05:40:00 -0800)
+
+- **CM féminine de Futsal: le Maroc joue demain les quarts de finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-49/)
+- **Mondial Futsal : Maroc-Espagne en 1/4 de finale, heure et chaîne de diffusion**: [Link](https://www.lesiteinfo.com/sport/661124-mondial-futsal-maroc-espagne-en-1-4-de-finale-heure-et-chaine-de-diffusion.html)
+- **Mondial féminin de futsal : les Lionnes de l'Atlas s'apprêtent à défier l'Espagne pour une place en demies**: [Link](https://lematin.ma/sports/mondial-futsal-les-lionnes-de-latlas-sappretent-a-defier-lespagne/316372)
+
+
 ### fifa + (N/A, Mon, 1 Dec 2025 05:20:00 -0800)
 
 - **World Cup draw 2026: Answering your questions about the tournament**: [Link](https://www.nytimes.com/athletic/6822692/2025/12/01/world-cup-draw-2026-explainer/)
