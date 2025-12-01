@@ -1,3 +1,10 @@
+### birmingham – watford (N/A, Mon, 1 Dec 2025 12:10:00 -0800)
+
+- **Birmingham City v Watford: Championship stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c62vw7ve7glt)
+- **Football Bet Of The Day: Alex Hilton has a 3-1 selection from the Championship**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-alex-hilton-has-a-3-1-selection-from-the-championship-anibS0K69bxf/)
+- **Birmingham City vs Watford: Hornets shotstopper Nathan Baxter relishing Blues battle**: [Link](https://www.theleaguepaper.com/latest-news/football-league-championship/watford/450497/were-relishing-battle-at-blues/)
+
+
 ### demain nous appartient (N/A, Mon, 1 Dec 2025 12:00:00 -0800)
 
 - **Demain nous appartient : Karim ne lâche pas Arthur, Georges et Mé ...**: [Link](https://www.telestar.fr/serie_tv/demain-nous-appartient-karim-ne-lache-pas-arthur-georges-et-melody-cest-fini-ce-qui-vous-attend-du-1er-au-5-decembre-2025-1746955)
