@@ -1,3 +1,17 @@
+### fenerbahçe – galatasaray (N/A, Mon, 1 Dec 2025 08:20:00 -0800)
+
+- **Yapay zekânın Fenerbahçe–Galatasaray derbisi için tahminleri**: [Link](https://www.rudaw.net/turkish/sports/011220251)
+- **İstanbul'da derbi trafiği: Yoğunluk yüzde 85'e dayandı!**: [Link](https://www.benguturk.com/istanbulda-derbi-trafigi-yogunluk-yuzde-85e-dayandi)
+- **Kadıköy'de derbi öncesi trafik durma noktasına geldi**: [Link](https://www.samsunsonhaber.com/haber/5586236/kadikoyde-derbi-oncesi-trafik-durma-noktasina-geldi)
+
+
+### arab cup 2025 (N/A, Mon, 1 Dec 2025 05:00:00 -0800)
+
+- **Tunisia vs. Syria - How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270130/tunisia-vs-syria-how-when-to-watch/)
+- **FIFA Arab Cup - Qatar 2025 - Group A - Tunisia v Syria**: [Link](https://www.reutersconnect.com/item/fifa-arab-cup-qatar-2025-group-a-tunisia-v-syria/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1VQMUVMQzExM0c4MEg)
+- **Tunisia National Football Team vs Syria National Football Team Lineups OUT; Man United STAR Called UP**: [Link](https://www.sportsdunia.com/football-news/tunisia-vs-syria-lineups-confirmed-1st-december-2025)
+
+
 ### qatar vs palestine (N/A, Mon, 1 Dec 2025 08:10:00 -0800)
 
 - **Palestine beats Libya to qualify for Arab Cup, ‘bringing joy’ to its people**: [Link](https://www.presstv.ir/Detail/2025/11/26/759517/Palestine-beats-Libya-to-qualify-for-Arab-Cup,-%E2%80%98bring-joy%E2%80%99-to-its-people)
