@@ -1,3 +1,24 @@
+### طقس طنجة (N/A, Sun, 30 Nov 2025 23:00:00 -0800)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-46-1663853.html)
+- **تساقطات مطرية وثلجية ابتداء من غد الأحد**: [Link](https://2m.ma/ar/news/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A1-%D9%85%D9%86-%D8%BA%D8%AF-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-20251129)
+- **بالصور: الأمطار تُضفي جمالا ساحرا على مدينة طنجة**: [Link](https://ar.le360.ma/societe/BGKMSWDMCVHK3JCXS75BO6XLXM/)
+
+
+### الريال (N/A, Sun, 30 Nov 2025 13:30:00 -0800)
+
+- **صحفي مدريدي يضع النقاط فوق الحروف … وسط الريال حاليًا يتكون من مجموعة أطفال!**: [Link](https://hihi2.com/2025/12/01/p3537369.html)
+- **الصدارة كتالونية.. ريال مدريد يواصل الترنح ويتعثر أمام جيرونا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A%D8%A9--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D9%86%D8%AD-%D9%88%D9%8A%D8%AA%D8%B9%D8%AB%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7/blt7d93358e6a4bd9e4)
+- **أوناحي يسجل في مرمى ريال مدريد**: [Link](https://www.hespress.com/%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D8%B3%D8%AC%D9%84-%D9%81%D9%8A-%D9%85%D8%B1%D9%85%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-1664233.html)
+
+
+### real madrid vs (N/A, Sun, 30 Nov 2025 12:50:00 -0800)
+
+- **¡¡¡El Barça, líder tras sacarle 6 puntos en 4 partidos al Madrid!!!**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251130/1002578889/barca-lider-empate-madrid.html)
+- **¡El Barça es el nuevo líder de LaLiga gracias a un equipo coterráneo!**: [Link](https://onefootball.com/es/noticias/el-barca-es-el-nuevo-lider-de-laliga-gracias-a-un-equipo-coterraneo-42029626)
+- **La profecía de Flick ya da réditos: el Barcelona vuelve al liderato**: [Link](https://www.lavanguardia.com/deportes/20251130/11317616/profecia-lider.html)
+
+
 ### احوال الطقس (N/A, Sun, 30 Nov 2025 22:20:00 -0800)
 
 - **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-37-1663597.html)
