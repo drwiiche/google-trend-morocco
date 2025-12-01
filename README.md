@@ -1,3 +1,10 @@
+### weather tomorrow (N/A, Mon, 1 Dec 2025 12:00:00 -0800)
+
+- **What to know ahead of Tuesday's winter storm**: [Link](https://www.nbcphiladelphia.com/news/local/philly-tuesday-winter-storm/4309368/)
+- **Winter weather advisory issued for Pittsburgh region, with up to 5 inches of snow possible**: [Link](https://www.post-gazette.com/news/weather-news/2025/12/01/pittsburgh-snow-winter-weather-updates/stories/202512010032)
+- **Season's 1st major snowfall to pound Western Pa. during morning rush hour**: [Link](https://triblive.com/local/regional/snow-to-impact-tuesday-mornings-commute-in-western-pa/)
+
+
 ### birmingham – watford (N/A, Mon, 1 Dec 2025 12:10:00 -0800)
 
 - **Birmingham City v Watford: Championship stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c62vw7ve7glt)
