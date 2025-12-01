@@ -1,3 +1,10 @@
+### qatar vs (N/A, Mon, 1 Dec 2025 09:40:00 -0800)
+
+- **Harris erupts, Qatar registers massive upset to conclude Group C, D action**: [Link](https://www.fiba.basketball/en/events/fiba-basketball-world-cup-2027-asian-qualifiers/news/wc-qualifiers-asia-gd2-30-november)
+- **HERE’S!* WAY TO WATCH Lebanon vs Qatar LIVE STREAMS Basketball ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-lebanon-vs-qatar-live-streams-basketball-on-tv-channel/)
+- **Qatar and Lebanon, which will meet South Korea in the second round, finished their first schedule wi..**: [Link](https://www.mk.co.kr/en/sports/11480849)
+
+
 ### الطقس غدًا (N/A, Mon, 1 Dec 2025 12:50:00 -0800)
 
 - **حالة الطقس.. غطاء سحابي وغياب لأشعة الشمس وأمطار الساعات المقبلة**: [Link](https://www.youm7.com/story/2025/12/1/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%B7%D8%A7%D8%A1-%D8%B3%D8%AD%D8%A7%D8%A8%D9%8A-%D9%88%D8%BA%D9%8A%D8%A7%D8%A8-%D9%84%D8%A3%D8%B4%D8%B9%D8%A9-%D8%A7%D9%84%D8%B4%D9%85%D8%B3-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9/7218096)
