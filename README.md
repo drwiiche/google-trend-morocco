@@ -1,3 +1,10 @@
+### flight radar (N/A, Sun, 30 Nov 2025 21:30:00 -0800)
+
+- **Trump maintains pressure campaign on Venezuela, saying its airspace should be considered closed**: [Link](https://www.cnn.com/2025/11/29/politics/venezuela-trump-pressure-campaign)
+- **Trump Declares Venezuelan Airspace Closed**: [Link](https://www.nytimes.com/2025/11/29/us/politics/trump-venezuela-maduro-airspace.html)
+- **What is driving US President’s Trump’s actions against Venezuela?**: [Link](https://www.aljazeera.com/video/inside-story/2025/11/30/what-is-driving-us-presidents-trumps-actions-against-venezuela)
+
+
 ### classement girona futbol club – real madrid (N/A, Sun, 30 Nov 2025 14:20:00 -0800)
 
 - **Gérone 1-1 Real Madrid, La Liga : résumé du match (30/11/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/girona-real-madrid-live/676844)
