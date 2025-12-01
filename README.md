@@ -1,3 +1,10 @@
+### shopify (N/A, Mon, 1 Dec 2025 06:50:00 -0800)
+
+- **Shopify down as outage reports pour in from around the world on Cyber Monday**: [Link](https://ca.news.yahoo.com/shopify-down-outage-reports-pour-165956040.html)
+- **Shopify down for thousands of users on Cyber Monday**: [Link](https://www.reuters.com/business/retail-consumer/shopify-down-thousands-users-cyber-monday-2025-12-01/)
+- **Shopify suffers Cyber Monday outage for some businesses**: [Link](https://www.nbcnews.com/business/business-news/shopify-cyber-monday-outage-rcna246818)
+
+
 ### فنربخشة ضد غلطة سراي (N/A, Mon, 1 Dec 2025 10:10:00 -0800)
 
 - **ما القنوات الناقلة لمباراة فنربخشة وجلطة سراي في الدوري التركي 2025-2026؟ وكيف أشاهدها عبر الإنترنت**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/fenerbahce-galatasaray-maci-nereden-izleyebilirim-tv-yayini-canli-yayin-ve-tum-detaylar/blt14ccd2610c46cf7d)
