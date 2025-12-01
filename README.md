@@ -1,3 +1,17 @@
+### fifa + (N/A, Mon, 1 Dec 2025 05:20:00 -0800)
+
+- **World Cup draw 2026: Answering your questions about the tournament**: [Link](https://www.nytimes.com/athletic/6822692/2025/12/01/world-cup-draw-2026-explainer/)
+- **FIFA alters WC draw so top sides won't meet early**: [Link](https://www.espn.com/soccer/story/_/id/47096853/fifa-sets-procedure-world-cup-draw-48-teams-4-pots)
+- **Fifa to keep top seeds apart in World Cup draw**: [Link](https://www.bbc.com/sport/football/articles/cvg84knn2p5o)
+
+
+### maduro venezuela (N/A, Mon, 1 Dec 2025 04:10:00 -0800)
+
+- **Trump’s threats bring war with Venezuela closer as contradictions and legal fears mount**: [Link](https://www.cnn.com/2025/12/01/politics/trump-venezuela-threats-pressure)
+- **Trump reportedly gave Maduro ultimatum to relinquish power in Venezuela**: [Link](https://www.theguardian.com/world/2025/dec/01/trump-maduro-ultimatum-relinquish-power-venezuela)
+- **CBS News poll finds most would oppose U.S. military action in Venezuela, say Trump hasn't explained**: [Link](https://www.cbsnews.com/news/poll-venezuela-u-s-military-action-trump/)
+
+
 ### كاس العرب (N/A, Mon, 1 Dec 2025 05:00:00 -0800)
 
 - **جدول مباريات اليوم الإثنين 1 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-1-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt2f17d278e7613013)
