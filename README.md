@@ -1,3 +1,10 @@
+### qatar (N/A, Mon, 1 Dec 2025 09:40:00 -0800)
+
+- **Verstappen wins Qatar GP as title battle goes to Abu Dhabi with Piastri second and Norris only P4**: [Link](https://www.formula1.com/en/latest/article/verstappen-wins-qatar-gp-as-title-battle-goes-to-abu-dhabi-with-piastri.5KlYT7q8OcrJ7AnMALjkxJ)
+- **F1 LIVE: Qatar Grand Prix 2025 UK time, start time, grid, radio & updates**: [Link](https://www.bbc.com/sport/formula1/live/cqlz4e4gw94t)
+- **Karun Chandhok and Damon Hill Trade Fiery Blows in Brutal Debate Over McLaren’s Qatar GP Disaster**: [Link](https://www.profootballnetwork.com/f1/karun-chandhok-and-damon-hill-brutal-debate-over-mclaren-qatar-gp-disaster/)
+
+
 ### fenerbahçe – galatasaray (N/A, Mon, 1 Dec 2025 08:20:00 -0800)
 
 - **Yapay zekânın Fenerbahçe–Galatasaray derbisi için tahminleri**: [Link](https://www.rudaw.net/turkish/sports/011220251)
