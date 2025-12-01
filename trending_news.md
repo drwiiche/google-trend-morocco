@@ -1,3 +1,31 @@
+### كاس العرب (N/A, Mon, 1 Dec 2025 05:00:00 -0800)
+
+- **جدول مباريات اليوم الإثنين 1 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-1-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt2f17d278e7613013)
+- **قطر وفلسطين تفتتحان "كأس العرب"**: [Link](https://www.hespress.com/%D9%82%D8%B7%D8%B1-%D9%88%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%AA%D9%81%D8%AA%D8%AA%D8%AD%D8%A7%D9%86-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1663965.html)
+- **مجموعات كأس العرب 2025 ونظام التأهل**: [Link](https://www.aljazeera.net/sport/2025/12/1/%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84)
+
+
+### كأس العرب (N/A, Mon, 1 Dec 2025 04:40:00 -0800)
+
+- **موعد مباراة المغرب وجزر القمر في كأس العرب 2025 والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt7f050d9223ea6169)
+- **السكتيوي: المنتخب المغربي الرديف يشهد إصابات قبل افتتاح "كأس العرب"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D8%B4%D9%87%D8%AF-1664304.html)
+- **"الأسود" يعودون إلى ملعب خليفة الدولي**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%8A%D8%B9%D9%88%D8%AF%D9%88%D9%86-%D8%A5%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-415548.html)
+
+
+### fifa (N/A, Mon, 1 Dec 2025 04:20:00 -0800)
+
+- **FIFA World Cup soccer final could be most expensive ticket in sports history: What are you willing to spend?**: [Link](https://nypost.com/2025/11/29/world-news/fifa-tix-prices-could-make-it-most-expensive-sporting-event-ever/)
+- **FIFA’s 2026 World Cup Is A Full-Blown Extortion Scheme Wrapped In A Soccer Tournament**: [Link](https://www.outkick.com/sports/fifa-2026-world-cup-ticket-prices-gouging-resale-scam)
+- **Soccer fans are being priced out of the first Men's World Cup in Canada**: [Link](https://www.cbc.ca/listen/live-radio/1-14-day-6/clip/16184582-soccer-fans-priced-mens-world-cup-canada)
+
+
+### arab cup (N/A, Mon, 1 Dec 2025 04:20:00 -0800)
+
+- **Tunisia vs Syria - How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270130/tunisia-vs-syria-how-when-to-watch/)
+- **How to watch Arab Cup 2025: FREE live streams, schedule, preview**: [Link](https://www.tomsguide.com/entertainment/sports/watch-arab-cup-2025-free)
+- **KAHRAMAA Announces Comprehensive Operational and Strategic Readiness to Support FIFA Arab Cup Qatar 2025**: [Link](https://qna.org.qa/en/News-Area/News/2025-12/1/kahramaa-announces-comprehensive-operational-and-strategic-readiness-to-support-fifa-arab-cup-qatar-2025)
+
+
 ### liga classement (N/A, Sun, 30 Nov 2025 14:00:00 -0800)
 
 - **Foot-Championnat dEspagne (14e journée): Real - Barça, le duel à distance continue**: [Link](https://www.tap.info.tn/fr/Portail-Titres-de-l-actualit%C3%A9/19526490-foot-championnat)
