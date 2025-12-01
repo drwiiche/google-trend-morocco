@@ -1,3 +1,10 @@
+### coupe arabe 2025 (N/A, Mon, 1 Dec 2025 04:20:00 -0800)
+
+- **18 jours, 16 équipes, pays du Maghreb…qu’est-ce que la Coupe Arabe ?**: [Link](https://www.footmercato.net/a9061791193208693374-18-jours-16-equipes-pays-du-maghreb-quest-ce-que-la-coupe-arabe)
+- **Coupe Arabe 2025: beIN Sports a décidé de diffuser toute la compétition et ses coulisses gratuitement, en clair**: [Link](https://fr.hibapress.com/news-220812.html)
+- **Coupe arabe de la FIFA. Équipes qualifiées, diffusion TV, format… Tout savoir sur la 2e édition au Qatar**: [Link](https://www.ouest-france.fr/sport/football/coupe-arabe/coupe-arabe-de-la-fifa-equipes-qualifiees-diffusion-tv-format-tout-savoir-sur-la-2e-edition-au-qatar-5ad68eda-adcf-11f0-a829-eb0d2e70677d)
+
+
 ### maroc espagne futsal (N/A, Mon, 1 Dec 2025 05:40:00 -0800)
 
 - **CM féminine de Futsal: le Maroc joue demain les quarts de finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-49/)
