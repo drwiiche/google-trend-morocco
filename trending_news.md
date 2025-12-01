@@ -1,3 +1,10 @@
+### sgtm (N/A, Sun, 30 Nov 2025 23:50:00 -0800)
+
+- **IPO SGTM : Pourquoi AGR recommande de souscrire**: [Link](https://www.leconomiste.com/flash-infos/ipo-sgtm-pourquoi-agr-recommande-de-souscrire/)
+- **SGTM : analyse de la valorisation à 25 milliards de DH du géant du BTP**: [Link](https://medias24.com/2025/11/27/sgtm-valorisation-1583723/)
+- **SGTM, Cash Plus, Dislog… Les dessous de l’euphorie boursière au Maroc**: [Link](https://www.jeuneafrique.com/1743901/economie-entreprises/sgtm-cash-plus-dislog-les-dessous-de-leuphorie-boursiere-au-maroc/)
+
+
 ### الطقس اليوم (N/A, Sun, 30 Nov 2025 21:30:00 -0800)
 
 - **مصر.. أمطار متوقعة وانخفاض حاد في درجات الحرارة**: [Link](https://al-ain.com/article/temperatures-egypt-1)
