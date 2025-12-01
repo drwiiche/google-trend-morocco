@@ -1,3 +1,10 @@
+### فيلم خلف أشجار النخيل (N/A, Mon, 1 Dec 2025 09:40:00 -0800)
+
+- **مهرجان مراكش السينمائي..العرض الأول لفيلم "خلف أشجار النخيل"**: [Link](https://2m.ma/ar/news/%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D8%A7%D9%84%D8%B3%D9%8A%D9%86%D9%85%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D9%81%D9%8A%D9%84%D9%85-%D8%AE%D9%84%D9%81-%D8%A3%D8%B4%D8%AC%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D8%AE%D9%8A%D9%84-20251130)
+- **المخرجة مريم بنمبارك تعيد طرح أسئلة الجسد والحرية "خلف أشجار النخيل"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AE%D8%B1%D8%AC%D8%A9-%D9%85%D8%B1%D9%8A%D9%85-%D8%A8%D9%86%D9%85%D8%A8%D8%A7%D8%B1%D9%83-%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B7%D8%B1%D8%AD-%D8%A3%D8%B3%D8%A6%D9%84%D8%A9-%D8%A7%D9%84-1664199.html)
+- **فضيحة مشاهد إباحية في فيلم ممول من المال العام بمهرجان مراكش تثير غضبًا واسعًا: “خلف أشجار النخيل” تحت نيران الانتقادات**: [Link](https://www.raialyoum.com/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF-%D8%A5%D8%A8%D8%A7%D8%AD%D9%8A%D8%A9-%D9%81%D9%8A-%D9%81%D9%8A%D9%84%D9%85-%D9%85%D9%85%D9%88%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%A7/)
+
+
 ### qatar vs (N/A, Mon, 1 Dec 2025 09:40:00 -0800)
 
 - **Harris erupts, Qatar registers massive upset to conclude Group C, D action**: [Link](https://www.fiba.basketball/en/events/fiba-basketball-world-cup-2027-asian-qualifiers/news/wc-qualifiers-asia-gd2-30-november)
