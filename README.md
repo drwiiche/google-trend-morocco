@@ -1,3 +1,10 @@
+### laliga (N/A, Sun, 30 Nov 2025 14:00:00 -0800)
+
+- **La Liga sign record TV deal for 2027-2032 eclipsing €5b mark**: [Link](https://sports.yahoo.com/articles/la-liga-sign-record-tv-142400274.html)
+- **LaLiga closes €6bn+ domestic TV rights deal with Telefonica and DAZN**: [Link](https://www.insideworldfootball.com/2025/12/01/laliga-closes-e6bn-domestic-tv-rights-deal-telefonica-dazn/)
+- **Telefonica Scores Provisional Rights to Spain’s Soccer League La Liga**: [Link](https://www.msn.com/en-us/sports/soccer/telefonica-scores-provisional-rights-to-spain-s-soccer-league-la-liga/ar-AA1RlaPP)
+
+
 ### decembre (N/A, Mon, 1 Dec 2025 00:00:00 -0800)
 
 - **Horoscope de la semaine du 1er au 7 décembre 2025 par Sophie Hérolt-Petitpas**: [Link](https://www.femmeactuelle.fr/horoscope2/vos-previsions-astro/horoscope-de-la-semaine-du-1er-au-7-decembre-2025-par-sophie-herolt-petitpas-2201391)
