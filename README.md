@@ -1,3 +1,10 @@
+### الطقس غدًا (N/A, Mon, 1 Dec 2025 12:50:00 -0800)
+
+- **حالة الطقس.. غطاء سحابي وغياب لأشعة الشمس وأمطار الساعات المقبلة**: [Link](https://www.youm7.com/story/2025/12/1/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%B7%D8%A7%D8%A1-%D8%B3%D8%AD%D8%A7%D8%A8%D9%8A-%D9%88%D8%BA%D9%8A%D8%A7%D8%A8-%D9%84%D8%A3%D8%B4%D8%B9%D8%A9-%D8%A7%D9%84%D8%B4%D9%85%D8%B3-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9/7218096)
+- **طقس معتدل نهارًا وبارد ليلًا غدًا في القاهرة بـ 23 درجة**: [Link](https://iq.onlylebanon.com/36752/%D8%B7%D9%82%D8%B3-%D9%85%D8%B9%D8%AA%D8%AF%D9%84-%D9%86%D9%87%D8%A7%D8%B1%D9%8B%D8%A7-%D9%88%D8%A8%D8%A7%D8%B1%D8%AF-%D9%84%D9%8A%D9%84%D9%8B%D8%A7-%D8%BA%D8%AF%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84/)
+- **مصر.. أمطار متوقعة وانخفاض حاد في درجات الحرارة**: [Link](https://al-ain.com/article/temperatures-egypt-1)
+
+
 ### weather tomorrow (N/A, Mon, 1 Dec 2025 12:00:00 -0800)
 
 - **What to know ahead of Tuesday's winter storm**: [Link](https://www.nbcphiladelphia.com/news/local/philly-tuesday-winter-storm/4309368/)
