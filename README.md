@@ -1,3 +1,31 @@
+### فنربخشة ضد غلطة سراي (N/A, Mon, 1 Dec 2025 10:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة فنربخشة وجلطة سراي في الدوري التركي 2025-2026؟ وكيف أشاهدها عبر الإنترنت**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/fenerbahce-galatasaray-maci-nereden-izleyebilirim-tv-yayini-canli-yayin-ve-tum-detaylar/blt14ccd2610c46cf7d)
+- **مدافع فنربخشة يعلن عن إستعدادات خاصة لمواجهة أوسيمين في ديربي اسطنبول**: [Link](https://mwlana.com/news/1144416/%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D9%81%D9%86%D8%B1%D8%A8%D8%AE%D8%B4%D8%A9-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%A5%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA-%D8%AE%D8%A7%D8%B5%D8%A9-%D9%84/)
+- **قبل الديربي.. اشتباكات بين لاعبي فنربخشة وجالاتا سراي على أرضية ملعب اللقاء**: [Link](https://www.yallakora.com/turkish-super-lig/2994/news/532161/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D8%A7%D8%AA-%D8%A8%D9%8A%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D9%81%D9%86%D8%B1%D8%A8%D8%AE%D8%B4%D8%A9-%D9%88%D8%AC%D8%A7%D9%84%D8%A7%D8%AA%D8%A7-%D8%B3%D8%B1%D8%A7%D9%8A-%D8%B9%D9%84%D9%89-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D9%84%D9%82%D8%A7%D8%A1-)
+
+
+### fenerbahçe vs galatasaray (N/A, Mon, 1 Dec 2025 09:50:00 -0800)
+
+- **HERE’S!* WAY TO WATCH Galatasaray vs Fenerbahce LIVE STREAMS Soccer ON TV CHANNEL**: [Link](https://yoursunsetcountry.ca/classifieds/listings/heres-way-to-watch-galatasaray-vs-fenerbahce-live-streams-soccer-on-tv-channel-2/)
+- **596 Million Euro Derby in Kadıköy: Probable Lineups Revealed**: [Link](https://emegypt.net/1042883)
+- **Tedesco says Fener has found its rhythm**: [Link](https://www.beinsports.com/en-nz/football/sper-lig/articles-video/tedesco-says-fener-has-found-its-rhythm-2025-11-30)
+
+
+### qatar foot (N/A, Mon, 1 Dec 2025 09:40:00 -0800)
+
+- **Qatar-Palestine : à quelle heure et sur quelle chaîne TV voir le match de la Coupe arabe ?**: [Link](https://www.leparisien.fr/sports/football/qatar-palestine-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-de-la-coupe-arabe-01-12-2025-D7PMAYJGERGJTH3E4TN7JH3MRU.php)
+- **Qatar vs Palestine : à quelle heure et sur quelles chaînes suivre le choc de la Coupe arabe 2025**: [Link](https://foot-africa.com/actualites/qatar-vs-palestine-a-quelle-heure-et-sur-quelles-chaines-suivre-le-choc-de-la-coupe-arabe-2025-984092/)
+- **Qatar – Palestine : chaînes TV gratuites du match en direct**: [Link](https://algeriezoom.com/qatar-palestine-chaines-tv-gratuites-du-match-en-direct/)
+
+
+### فيلم خلف اشجار النخيل (N/A, Mon, 1 Dec 2025 05:50:00 -0800)
+
+- **مهرجان مراكش السينمائي..العرض الأول لفيلم "خلف أشجار النخيل"**: [Link](https://2m.ma/ar/news/%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D8%A7%D9%84%D8%B3%D9%8A%D9%86%D9%85%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D9%81%D9%8A%D9%84%D9%85-%D8%AE%D9%84%D9%81-%D8%A3%D8%B4%D8%AC%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D8%AE%D9%8A%D9%84-20251130)
+- **المخرجة مريم بنمبارك تعيد طرح أسئلة الجسد والحرية "خلف أشجار النخيل"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AE%D8%B1%D8%AC%D8%A9-%D9%85%D8%B1%D9%8A%D9%85-%D8%A8%D9%86%D9%85%D8%A8%D8%A7%D8%B1%D9%83-%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B7%D8%B1%D8%AD-%D8%A3%D8%B3%D8%A6%D9%84%D8%A9-%D8%A7%D9%84-1664199.html)
+- **فضيحة مشاهد إباحية في فيلم ممول من المال العام بمهرجان مراكش تثير غضبًا واسعًا: “خلف أشجار النخيل” تحت نيران الانتقادات**: [Link](https://www.raialyoum.com/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF-%D8%A5%D8%A8%D8%A7%D8%AD%D9%8A%D8%A9-%D9%81%D9%8A-%D9%81%D9%8A%D9%84%D9%85-%D9%85%D9%85%D9%88%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%A7/)
+
+
 ### qatar (N/A, Mon, 1 Dec 2025 09:40:00 -0800)
 
 - **Verstappen wins Qatar GP as title battle goes to Abu Dhabi with Piastri second and Norris only P4**: [Link](https://www.formula1.com/en/latest/article/verstappen-wins-qatar-gp-as-title-battle-goes-to-abu-dhabi-with-piastri.5KlYT7q8OcrJ7AnMALjkxJ)
