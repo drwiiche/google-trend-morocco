@@ -1,3 +1,24 @@
+### manchester city (N/A, Tue, 2 Dec 2025 13:00:00 -0800)
+
+- **Premier League LIVE: Bournemouth v Everton, Fulham v Man City & Newcastle v Tottenham**: [Link](https://www.bbc.com/sport/football/live/crl2w584lr1t)
+- **Premier League preview: Tuesday's big talking points as Man City look to solve their away day blues**: [Link](https://www.dazn.com/en-US/news/soccer/premier-league-preview-tuesday-manchester-city-fulham-newcastle-tottenham/1iqcmxivxlgnr1s6a91nyjhaq4)
+- **Follow Tuesday's Premier League games live**: [Link](https://www.aol.com/articles/tuesdays-premier-league-games-live-180505375.html)
+
+
+### dortmund (N/A, Tue, 2 Dec 2025 12:50:00 -0800)
+
+- **Weihnachtsmarkt Dortmund 2025: Öffnungszeiten heute, Programm und Anfahrt zur Weihnachtsstadt**: [Link](https://www.augsburger-allgemeine.de/panorama/veranstaltungen/weihnachtsmarkt-dortmund-2025-heute-oeffnungszeiten-programm-und-anfahrt-2-12-2025-112798399)
+- **Noch ist der Rekordhalter brasilianisch: Hier steht noch der größte Weihnachtsbaum der Welt**: [Link](https://www.bild.de/news/ausland/noch-ist-der-rekordhalter-brasilianisch-hier-steht-noch-der-groesste-weihnachtsbaum-der-welt-692ede8f937203503697a513)
+- **Nun leuchtet die Weihnachtsstadt in vollem Glanz**: [Link](https://www.nordstadtblogger.de/nun-leuchtet-die-weihnachtsstadt-in-vollem-glanz/)
+
+
+### jafar panahi (N/A, Tue, 2 Dec 2025 12:50:00 -0800)
+
+- **See All the Stars at the Gotham Awards: Elle Fanning, Hugh Jackman and More**: [Link](https://www.nytimes.com/2025/12/02/style/gotham-awards-celebrities-winners.html)
+- **One Battle After Another Splits with Panahi in Repeat of Gothams at NYFCC**: [Link](https://www.awardsdaily.com/2025/12/02/new-york-film-critics-circle-announcing-live/)
+- **Jennifer Lawrence's Office Siren Outfit Includes an Unexpected Leg Slit That Goes All the Way Up to Her Hip**: [Link](https://www.instyle.com/jennifer-lawrence-office-siren-blazer-thigh-high-slit-skirt-gotham-awards-11860178)
+
+
 ### bet365 (N/A, Tue, 2 Dec 2025 12:40:00 -0800)
 
 - **Missouri launches sports betting as recent scandals shine a spotlight on the growing industry**: [Link](https://www.missourian.com/news/missouri-launches-sports-betting-as-recent-scandals-shine-a-spotlight-on-the-growing-industry/article_f3660379-5d8b-4069-80a3-46eb66b622e9.html)
