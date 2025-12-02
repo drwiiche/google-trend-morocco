@@ -1,3 +1,10 @@
+### fulham – manchester city (N/A, Tue, 2 Dec 2025 10:40:00 -0800)
+
+- **Guardiola expects a difficult encounter at Fulham**: [Link](https://www.mancity.com/news/mens/pep-guardiola-fulham-2-dec-written-preview-63900186)
+- **Fulham vs Manchester City Preview, Betting Odds and Predictions – 02/12/25**: [Link](https://theplayoffs.news/en/fulham-vs-manchester-city-preview-betting-odds-predictions/)
+- **Rodri's injury woes continue, set to miss Fulham clash**: [Link](https://www.besoccer.com/new/rodri-s-injury-woes-continue-set-to-miss-fulham-clash-1383849)
+
+
 ### venezuela (N/A, Tue, 2 Dec 2025 10:00:00 -0800)
 
 - **En medio de tensión en el Caribe: Maduro autoriza reanudar vuelos para repatriar migrantes desde EEUU**: [Link](https://www.biobiochile.cl/noticias/internacional/america-latina/2025/12/02/en-medio-de-tension-en-el-caribe-maduro-autoriza-reanudar-vuelos-para-repatriar-migrantes-desde-eeuu.shtml)
