@@ -1,3 +1,52 @@
+### maroc foot (N/A, Tue, 2 Dec 2025 04:10:00 -0800)
+
+- **CAN : Al-Hilal confie à Inzaghi le sort de Bounou et Koulibaly sur la liste locale**: [Link](https://m.elbotola.com/fr/article/2025-12-01-20-31-973.html)
+- **CAN 2025 : le Maroc ferme la porte pour Bounou**: [Link](https://foot-africa.com/actualites/can-2025-le-maroc-ferme-la-porte-pour-bounou-983990/)
+- **Yalla Shoot**: [Link](https://www.ysscores.com/fr/news/13864757/Al-Hilal-fait-pression-pour-conserver-Yassine-Bounou-et-l'emp%C3%AAcher-de-participer-%C3%A0-la-Coupe-d'Afrique-des-Nations-au-Maroc)
+
+
+### kooora مباريات اليوم (N/A, Tue, 2 Dec 2025 04:10:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 2 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-2-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blte07ff8f3dcbde210)
+- **أبرز المباريات العربية والعالمية اليوم الإثنين**: [Link](https://24.ae/article/932993/)
+- **كأس العرب| المغرب يواجه جزر القمر.. وقمة خليجية بين السعودية وعمان**: [Link](https://akhbarelyom.com/news/newdetails/4734534/1/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%88%D9%82%D9%85%D8%A9-%D8%AE%D9%84)
+
+
+### morocco match (N/A, Tue, 2 Dec 2025 04:10:00 -0800)
+
+- **Referees prepare for TotalEnergies CAF AFCON Morocco 2025**: [Link](https://www.cafonline.com/afcon2025/news/referees-prepare-for-totalenergies-caf-afcon-morocco-2025/)
+- **Bouchra Karboubi Retires Over ‘Harmful Practices’ in Arbitration Directorate**: [Link](https://www.moroccoworldnews.com/2025/11/269515/bouchra-karboubi-retires-over-harmful-practices-in-arbitration-directorate/)
+- **Nabadda flies Uganda’s flag high as sole referee for AFCON 2025**: [Link](https://www.panafricafootball.com/post/nabadda-uganda-afcon-2025/)
+
+
+### alkass (N/A, Tue, 2 Dec 2025 04:10:00 -0800)
+
+- **تردد قناة الكأس لـ مشاهدة مباريات كأس العرب مجانًا نايل سات**: [Link](https://aboutmsr.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-%D9%84%D9%80-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7/)
+- **تردد قناة الكأس 2 على نايل سات وعرب سات لمتابعة كأس العرب وخطوات تثبيتها بجودة HD**: [Link](https://www.arabsvoice.net/52143/)
+- **تردد قناة الكأس 1 الجديد AlKass الناقلة لمباراة مصر ضد الكويت اليوم hd بصوت وصورة واضحة**: [Link](https://www.iqraa.news/1497225/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-1-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-alkass-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1/)
+
+
+### match maroc aujourd'hui (N/A, Tue, 2 Dec 2025 04:00:00 -0800)
+
+- **Mondial féminin de futsal : les Lionnes de l'Atlas s'inclinent face à l'Espagne et quittent la compétition**: [Link](https://lematin.ma/sports/mondial-feminin-de-futsal-fin-de-laventure-pour-les-lionnes-de-latlas/316534)
+- **Futsal : défaite du Maroc face à l'Espagne lors des quarts de finale de la Coupe du monde féminine**: [Link](https://mobile.telquel.ma/instant-t/2025/12/01/futsal-defaite-du-maroc-face-a-lespagne-lors-des-quarts-de-finale-de-la-coupe-du-monde-feminine_1963284/)
+- **Maroc-Espagne: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/futsal/maroc-espagne-a-quelle-heure-et-sur-quelle-chaine_YOHOEDKXNFGUNCOKSAVUDGDSLE/)
+
+
+### bein sports live (N/A, Tue, 2 Dec 2025 04:00:00 -0800)
+
+- **Olmo double helps Barca take Liga lead with Alaves win**: [Link](https://www.beinsports.com/en-mena/football/la-liga/articles-video/olmo-double-helps-barca-take-liga-lead-with-alaves-win-2025-11-29)
+- **Hansi Flick fields third youngest Barcelona XI at Camp Nou in win over Alaves**: [Link](https://semprebarca.com/hansi-flick-fields-third-youngest-barcelona-xi-at-camp-nou-in-win-over-alaves/)
+- **Marc Bernal: 'It's a pride that there were nine Catalan starters at Barcelona'**: [Link](https://tribuna.com/en/news/2025-11-29-marc-bernal-its-a-pride-that-there-were-nine-catalan-starters-at-barcelona/)
+
+
+### morocco vs comoros (N/A, Tue, 2 Dec 2025 03:40:00 -0800)
+
+- **Hadji: "Why Not Morocco and Qatar in Arab Cup Final?"**: [Link](https://m.elbotola.com/en/article/2025-12-01-22-28-564.html)
+- **Arab Cup 2025 : Morocco–Comoros: Sektioui Remains Confident**: [Link](https://mountakhab.net/en/arab-cup-2025-morocco-comoros-sektioui-remains-confident/)
+- **Arab Cup 2025: Tarik Sektioui Calls Up Walid Azarou and Mounir Chouiar as Reinforcements for the Moroccan National Team**: [Link](https://fesnews.media/313765/2025/11/30/)
+
+
 ### maroc vs comores (N/A, Tue, 2 Dec 2025 01:00:00 -0800)
 
 - **Match Maroc-Comores : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-comores-a-quelle-heure-et-sur-quelles-chaines/316404)
