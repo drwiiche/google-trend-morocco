@@ -1,3 +1,24 @@
+### weather (N/A, Mon, 1 Dec 2025 22:10:00 -0800)
+
+- **Extreme Rain Alert For Chennai, School Shut Tomorrow**: [Link](https://www.ndtv.com/india-news/extreme-rain-alert-for-chennai-school-shut-tomorrow-9733410)
+- **Cyclone Ditwah: Deep depression of remnant cyclonic storm weakened to a depression on Tuesday**: [Link](https://www.dtnext.in/news/chennai/cyclone-ditwah-deep-depression-of-remnant-cyclonic-storm-weakened-to-a-depression-on-tuesday-855191)
+- **Heavy rains likely in Tamil Nadu, Andhra Pradesh; cold wave conditions to prevail in Delhi**: [Link](https://www.cnbctv18.com/india/environment/heavy-rains-likely-in-tamil-nadu-andhra-pradesh-cold-wave-conditions-to-prevail-in-delhi-19778217.htm)
+
+
+### طقس طنجة (N/A, Mon, 1 Dec 2025 22:10:00 -0800)
+
+- **الأرصاد الجوية تحذر من تقلبات جوية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-1664383.html)
+- **طقس غائم مع قطرات مطرية متوقع اليوم الأربعاء**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%85%D8%B9-%D8%B3%D9%85%D8%A7%D8%A1-%D8%BA%D8%A7%D8%A6%D9%85%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB/)
+- **الطقس غدا الثلاثاء.. أمطار ورياح وصقيع في يوم بارد يعم معظم مناطق المغرب - هبة بريس**: [Link](https://ar.hibapress.com/details-680824.html)
+
+
+### météo (N/A, Mon, 1 Dec 2025 22:00:00 -0800)
+
+- **Météo en Belgique : temps gris progressivement sec ce mardi**: [Link](https://www.rtbf.be/article/meteo-en-belgique-temps-gris-progressivement-sec-ce-mardi-11640856)
+- **Météo : nuages et faibles pluies au menu ce mardi**: [Link](https://bx1.be/categories/news/meteo-nuages-et-faibles-pluies-au-menu-ce-mardi/)
+- **Météo - Un début de semaine nuageux et venteux**: [Link](https://www.lalibre.be/dernieres-depeches/2025/12/01/meteo-un-debut-de-semaine-nuageux-et-venteux-NHFIND5YR5BZZB5HXJNLYY7ZPM/)
+
+
 ### watford (N/A, Mon, 1 Dec 2025 13:30:00 -0800)
 
 - **Birmingham City v Watford: Championship live text, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c62vw7ve7glt)
