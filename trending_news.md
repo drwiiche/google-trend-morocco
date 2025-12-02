@@ -1,3 +1,10 @@
+### barca match (N/A, Tue, 2 Dec 2025 12:30:00 -0800)
+
+- **Barcelona keeping a close eye on Cesc Fàbregas’ Como**: [Link](https://getfootballnewsspain.com/barcelona-keeping-a-close-eye-on-cesc-fabregas-como/)
+- **Barcelona eyeing Cesc Fabregas as Hansi Flick replacement**: [Link](https://thehardtackle.com/news/2025/12/01/barcelona-eyeing-cesc-fabregas-as-hansi-flick-replacement/)
+- **Bombshell! Luis Enrique sets 5 conditions to coach Barça: 'I want...'**: [Link](https://e-noticies.cat/en/soccer/bombshell-luis-enrique-sets-5-conditions-to-coach-barca-i-want-to)
+
+
 ### la liga (N/A, Tue, 2 Dec 2025 14:00:00 -0800)
 
 - **Barcelona vs Atletico Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cgr1wrrdev5t)
