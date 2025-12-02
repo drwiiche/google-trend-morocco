@@ -1,3 +1,38 @@
+### bet365 (N/A, Tue, 2 Dec 2025 12:40:00 -0800)
+
+- **Missouri launches sports betting as recent scandals shine a spotlight on the growing industry**: [Link](https://www.missourian.com/news/missouri-launches-sports-betting-as-recent-scandals-shine-a-spotlight-on-the-growing-industry/article_f3660379-5d8b-4069-80a3-46eb66b622e9.html)
+- **bet365 Missouri Bonus Code GOALBONUS: Get $365 in Bonus Bets for Mizzou Tigers, NBA & EPL**: [Link](https://www.goal.com/en-us/betting/bet365-missouri-bonus-code-goalbonus-get-365-bonus-bets-mizzou-tigers-nba-epl-12-2/bltf3d5934ae993b933)
+- **Fanatics Sportsbook Missouri promo code NYPOST: Bet and get up to $2,000 in FanCash for Chiefs vs. Texans**: [Link](https://nypost.com/2025/12/02/betting/fanatics-sportsbook-missouri-promo-code-nypost-bet-and-get-up-to-2000-in-fancash-for-chiefs-vs-texans/)
+
+
+### fcb (N/A, Tue, 2 Dec 2025 12:40:00 -0800)
+
+- **Farewell FCB: A look back at the creative renaissance of an agency sunsetted at its peak**: [Link](https://www.thedrum.com/news/a-look-at-fcb-s-advertising-legacy-as-omnicom-retires-the-ipg-agency-brand)
+- **Agencies behind ‘I love you Rasna’, ‘Utterly Butterly’ and ‘Daag Acche Hain’ sign off**: [Link](https://bestmediainfo.com/mediainfo/advertising/agencies-behind-i-love-you-rasna-utterly-butterly-and-daag-acche-hain-sign-off-10830522)
+- **RIP MAD MEN, Bye Bye Hold Co.s, Hello to the New Agency Models**: [Link](https://brandequity.economictimes.indiatimes.com/news/advertising/rip-mad-men-bye-bye-hold-co-s-hello-to-the-new-agency-models/125721791)
+
+
+### man city (N/A, Tue, 2 Dec 2025 12:40:00 -0800)
+
+- **SATURDAY 6 DECEMBER: Sunderland v City - Premier League 2**: [Link](https://www.mancity.com/citytv/city-plus/sunderland-v-city-premier-league-2-cityplus-watch-live-63899935)
+- **Trips To Liverpool And Manchester City Will Test Sunderland’s Mettle!**: [Link](https://rokerreport.sbnation.com/opinion/116076/trips-to-liverpool-and-manchester-city-will-test-sunderlands-mettle)
+- **Manchester City vs Sunderland Preview: Odds, Tips and Prediction**: [Link](https://www.sportsboom.co.uk/football/best-betting-sites-uk/premier-league/man-city-vs-sunderland-tips-odds-predictions)
+
+
+### match barca (N/A, Tue, 2 Dec 2025 12:30:00 -0800)
+
+- **Barcelona vs Atletico Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cgr1wrrdev5t)
+- **De Jong’s medical update: out again**: [Link](https://www.mundodeportivo.com/us/en/20251202/735627/jong-s-medical-update-out-again.html)
+- **Pedri, De Jong start in a 4-2-3-1 – How Barcelona can line up against Atletico Madrid**: [Link](https://barcauniversal.com/pedri-de-jong-start-in-a-4-2-3-1-how-barcelona-can-line-up-against-atletico-madrid/)
+
+
+### newcastle vs tottenham (N/A, Tue, 2 Dec 2025 12:30:00 -0800)
+
+- **Tottenham confirmed team vs Newcastle - Brennan Johnson in, Xavi Simons out again with Van de Ven**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/tottenham-confirmed-team-vs-newcastle-32987874)
+- **Newcastle vs Spurs: Lineups, Odds, Prediction, and 6/1 Betting Tip**: [Link](https://www.oddschecker.com/tips/football/20251202-newcastle-vs-spurs-lineups-odds-prediction-and-6-1-betting-tip)
+- **Paul Merson predicts Newcastle vs Spurs and confesses love for Nick Woltemade**: [Link](https://www.nufcblog.co.uk/2025/12/02/paul-merson-predicts-newcastle-vs-spurs-and-confesses-love-for-nick-woltemade/)
+
+
 ### fc barcelone (N/A, Tue, 2 Dec 2025 12:30:00 -0800)
 
 - **FC Barcelone - Atlético de Madrid en direct - La Liga : Football Scores & Résultats - 02/12/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-fc-barcelone-atletico-de-madrid_mtc1610565/live-commentary.shtml)
