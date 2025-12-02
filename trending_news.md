@@ -1,3 +1,24 @@
+### oblak (N/A, Tue, 2 Dec 2025 14:00:00 -0800)
+
+- **Raphinha definió con clase para su gol con Barcelona ante Atlético de Madrid por LaLiga**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/16036109/barcelona-vs-atletico-de-madrid-la-liga-gol-raphinha)
+- **Raphinha, el rey de las asistencias contra el Atlético**: [Link](https://www.marca.com/futbol/barcelona/2025/12/02/raphinha-rey-asistencias-atletico.html)
+- **Primer gol de Raphinha al Atleti con pase genial de Pedri**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251202/1002580065/primer-gol-raphinha-atleti-pase-genial-pedri.html)
+
+
+### pedri (N/A, Tue, 2 Dec 2025 13:40:00 -0800)
+
+- **¡Olmo marca y se lesiona!**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251202/1002580100/olmo-marca-lesiona.html)
+- **VIDEO: El golazo de Raphinha tras asistencia de Pedri para la igualdad de Barcelona ante Atlético de Madrid**: [Link](https://www.directvsports.com/futbol/video-el-golazo-de-raphinha-tras-asistencia-de-pedri-para-la-igualdad-de-barcelona-ante-atletico-de-madrid-20251202-0037.html)
+- **El gol que Dani Olmo no pudo ni celebrar**: [Link](https://www.sport.es/es/noticias/barca/gol-dani-olmo-pudo-celebrar-124378785)
+
+
+### برشلونه (N/A, Tue, 2 Dec 2025 13:30:00 -0800)
+
+- **تقارير: برشلونة يمنح أراوخو إجازة لأجل غير مسمى**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%85%D9%86%D8%AD-%D8%A3%D8%B1%D8%A7%D9%88%D8%AE%D9%88-%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9-%D9%84%D8%A3%D8%AC%D9%84-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D9%85%D9%89-2025-12-02)
+- **"لأسباب نفسية".. أراوخو يطلب الابتعاد عن المشاركة وبرشلونة يرد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D9%94%D8%B3%D8%A8%D8%A7%D8%A8-%D9%86%D9%81%D8%B3%D9%8A%D8%A9--%D8%A7%D9%94%D8%B1%D8%A7%D9%88%D8%AE%D9%88-%D9%8A%D8%B7%D9%84%D8%A8-%D8%A7%D9%84%D8%A7%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B1%D8%AF/blt91e0e50bf7e76554)
+- **أراوخو يطلب مهلة غير محددة من برشلونة للتعافي نفسيًا**: [Link](https://m.elbotola.com/article/2025-12-02-14-18-944.html)
+
+
 ### lewandowski (N/A, Tue, 2 Dec 2025 13:10:00 -0800)
 
 - **Robert Lewandowski gra w hicie La Liga! Barcelona – Atletico [LIVE]**: [Link](https://pilkanozna.pl/robert-lewandowski-gra-w-hicie-la-liga-barcelona-atletico-live/)
