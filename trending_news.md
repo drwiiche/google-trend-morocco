@@ -1,3 +1,10 @@
+### nicolás maduro (N/A, Tue, 2 Dec 2025 11:40:00 -0800)
+
+- **Trump struggles with Venezuelan dilemma as Maduro digs in and storm builds at home over potential ‘war crime’**: [Link](https://www.cnn.com/2025/12/02/politics/trump-venezuelan-dilemma-boat-strike-maduro)
+- **Trump Said US Will ‘Soon’ Do Land Strikes on Drug Traffickers**: [Link](https://www.bloomberg.com/news/articles/2025-12-02/trump-said-us-will-soon-do-land-strikes-on-drug-traffickers)
+- **Venezuela Accepts Migrant Repatriation Flight From U.S. Amid Airspace Tensions**: [Link](https://www.nytimes.com/2025/12/02/us/politics/venezuela-migrant-deportations-trump.html)
+
+
 ### newcastle – tottenham (N/A, Tue, 2 Dec 2025 11:30:00 -0800)
 
 - **Starting line-ups for Newcastle vs Spurs in the Premier League on Tuesday 2 December**: [Link](https://www.tottenhamhotspur.com/news/2025/december/confirmed-line-ups-newcastle-vs-spurs/)
