@@ -1,3 +1,24 @@
+### bournemouth – everton (N/A, Tue, 2 Dec 2025 10:50:00 -0800)
+
+- **Iraola insists 'we will need everyone' during busy fixture schedule**: [Link](https://www.afcb.co.uk/news/2025/december/01/iraola-/)
+- **Everton Team News For Bournemouth**: [Link](https://www.evertonfc.com/news/2025/december/01/everton-team-news-for-bournemouth/)
+- **Iliman Ndiaye may be set to face his toughest test yet vs Bournemouth, here’s why**: [Link](https://www.everton.news/iliman-ndiaye-may-be-set-to-face-his-toughest-test-yet-vs-bournemouth-heres-why/)
+
+
+### فولهام ضد مان سيتي (N/A, Tue, 2 Dec 2025 10:50:00 -0800)
+
+- **جوارديولا حائر بشان عودة رودري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%AD%D8%A7%D9%8A%D9%94%D8%B1-%D8%A8%D8%B4%D8%A7%D9%86-%D8%B9%D9%88%D8%AF%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A/blt08906c2777ab1794)
+- **هالاند يتصدر قائمة مميزة في تاريخ مواجهات مانشستر سيتي وفولهام**: [Link](https://hihi2.com/2025/12/01/p3538022.html)
+- **شاهد آخر 10 أهداف للسيتي أمام فولهام**: [Link](https://ar.mancity.com/citytv/mens/fulham-away-last-10-premier-league-goals-man-city-63900270)
+
+
+### saudi vs oman (N/A, Tue, 2 Dec 2025 10:40:00 -0800)
+
+- **Saudi Arabia vs Oman: Match Preview & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270317/saudi-arabia-vs-oman-match-preview-how-to-watch/)
+- **Arab Cup an important tournament for us, says Saudi Arabia coach Renard**: [Link](https://thepeninsulaqatar.com/article/02/12/2025/arab-cup-an-important-tournament-for-us-says-saudi-arabia-coach-renard)
+- **Bahrain, Comoros, Oman and Sudan advance to group stage| Gulf Times**: [Link](https://www.gulf-times.com/article/715911/sport/bahrain-comoros-oman-and-sudan-advance-to-group-stage)
+
+
 ### fulham – manchester city (N/A, Tue, 2 Dec 2025 10:40:00 -0800)
 
 - **Guardiola expects a difficult encounter at Fulham**: [Link](https://www.mancity.com/news/mens/pep-guardiola-fulham-2-dec-written-preview-63900186)
