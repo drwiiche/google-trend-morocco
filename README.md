@@ -1,3 +1,31 @@
+### dortmund – leverkusen (N/A, Tue, 2 Dec 2025 11:20:00 -0800)
+
+- **BVB-Aufstellung gegen Leverkusen: Nur ein Wechsel im Verfolgerduell**: [Link](https://www.absolutfussball.com/deutschland/borussia-dortmund/gegen-leverkusen-beier-fragezeichen-bleibt-bvb-aufstellung-94059939.html)
+- **Fußball heute live im TV und LIVE-STREAM: Die Übertragung zu Dortmund vs. Leverkusen**: [Link](https://www.dazn.com/de-DE/news/fussball/fussball-heute-live-tv-stream-uebertragung-dortmund-leverkusen-dfb-pokal/1sk5zma19inmq1k98amcwn4pds)
+- **Der Sieg und das Tor gegen Bayer: Karim Adeyemi schafft es in die kicker-Elf des Tages**: [Link](https://tribuna.com/de/news/2025-12-01-der-sieg-und-das-tor-gegen-bayer-karim-adeyemi-schafft-es-in-die-kickerelf-des-tages/)
+
+
+### juventus – udinese (N/A, Tue, 2 Dec 2025 11:20:00 -0800)
+
+- **Juve-Udinese, Inter, Vlahovic e Ligue 1: le ultimissime**: [Link](https://www.corrieredellosport.it/news/on-air/2025/12/02-144992466/juve-udinese_inter_vlahovic_e_ligue_1_le_ultimissime)
+- **Infortunio per Perin: quando torna il portiere della Juventus e quante partite salta**: [Link](https://www.goal.com/it/liste/infortunio-per-perin-quando-torna-il-portiere-della-juventus-e-quante-partite-salta/blt679ccb17cdc293f2)
+- **Coppa Italia | Le formazioni ufficiali di Juventus-Udinese**: [Link](https://www.juventus.com/it/news/articoli/coppa-italia-2025-2026-juventus-udinese-formazioni)
+
+
+### برشلونة ضد أتلتيكو مدريد (N/A, Tue, 2 Dec 2025 11:10:00 -0800)
+
+- **موعد مباراة برشلونة ضد أتلتيكو مدريد في الدوري الإسباني والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/12/2/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **قبل مباراة برشلونة وأتلتيكو مدريد.. سيميوني يعلق على لقطة فليك البائسة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9--%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D9%84%D9%82%D8%B7%D8%A9-%D9%81%D9%84%D9%8A%D9%83-%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D9%94%D8%B3%D8%A9/blt117e66195d0004cc)
+- **الاكثر صناعة للأهداف من برشلونة هذا الموسم**: [Link](https://hihi2.com/2025/12/02/p3539591.html)
+
+
+### barcelona vs atlético madrid (N/A, Tue, 2 Dec 2025 11:10:00 -0800)
+
+- **Posible alineación del Barça ante el Atlético: Pedri y Frenkie, ‘oxígeno’ para Flick**: [Link](https://as.com/futbol/posible-alineacion-del-barca-ante-el-atletico-pedri-y-frenkie-oxigeno-para-flick-f202512-n/)
+- **Qué canal pasa Barcelona vs Atlético de Madrid hoy: dónde ver gratis y EN VIVO de LaLiga**: [Link](https://www.365scores.com/es/news/barcelona-vs-atletico-donde-ver-gratis/)
+- **⁠Cuando los Atlético-Barça eran orgías de goles**: [Link](https://www.marca.com/apuestas-deportivas/pronosticos/2025/12/02/atletico-barca-orgias-goles.html)
+
+
 ### bournemouth – everton (N/A, Tue, 2 Dec 2025 10:50:00 -0800)
 
 - **Iraola insists 'we will need everyone' during busy fixture schedule**: [Link](https://www.afcb.co.uk/news/2025/december/01/iraola-/)
