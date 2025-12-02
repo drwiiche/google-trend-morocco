@@ -1,3 +1,17 @@
+### lewandowski (N/A, Tue, 2 Dec 2025 13:10:00 -0800)
+
+- **Robert Lewandowski gra w hicie La Liga! Barcelona – Atletico [LIVE]**: [Link](https://pilkanozna.pl/robert-lewandowski-gra-w-hicie-la-liga-barcelona-atletico-live/)
+- **HAALAND Z REKORDEM PREMIER LEAGUE!**: [Link](https://www.fangol.pl/post/70517/haaland-z-rekordem-premier)
+- **Złe wieści od Flicka. "Nie jest jeszcze w pełni zdrowy"**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1222902/zle-wiesci-od-flicka-nie-jest-jeszcze-w-pelni-zdrowy)
+
+
+### newcastle (N/A, Tue, 2 Dec 2025 13:00:00 -0800)
+
+- **"We'll see how close he is" - Eddie Howe provides update on Yoane Wissa's availability**: [Link](https://www.newcastleunited.com/en/news/well-see-how-close-he-is-eddie-howe-provides-update-on-yoane-wissas-availability)
+- **Newcastle Confidential: Craig Hope reveals huge Yoane Wissa boost**: [Link](https://www.dailymail.co.uk/sport/football/article-15332283/Newcastle-Confidential-Yoane-Wissa-Kieran-Trippier.html)
+- **Newcastle’s Kieran Trippier Facing Weeks-Long Absence with Injury: Report**: [Link](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/19568/newcastles-kieran-trippier-facing-weeks-long-absence-with-injury-report)
+
+
 ### manchester city (N/A, Tue, 2 Dec 2025 13:00:00 -0800)
 
 - **Premier League LIVE: Bournemouth v Everton, Fulham v Man City & Newcastle v Tottenham**: [Link](https://www.bbc.com/sport/football/live/crl2w584lr1t)
