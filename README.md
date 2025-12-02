@@ -1,3 +1,10 @@
+### la liga (N/A, Tue, 2 Dec 2025 14:00:00 -0800)
+
+- **Barcelona vs Atletico Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cgr1wrrdev5t)
+- **LIVE: Barcelona vs Atletico Madrid – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/2/live-barcelona-vs-atletico-madrid-la-liga)
+- **Barca make Atletico comeback to extend Liga lead**: [Link](https://www.france24.com/en/live-news/20251202-barca-make-atletico-comeback-to-extend-liga-lead)
+
+
 ### oblak (N/A, Tue, 2 Dec 2025 14:00:00 -0800)
 
 - **Raphinha definió con clase para su gol con Barcelona ante Atlético de Madrid por LaLiga**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/16036109/barcelona-vs-atletico-de-madrid-la-liga-gol-raphinha)
