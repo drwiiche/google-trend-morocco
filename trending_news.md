@@ -1,3 +1,17 @@
+### مجموعات كأس العرب 2025 (N/A, Tue, 2 Dec 2025 08:40:00 -0800)
+
+- **بث مباشر: شاهد مباراة المغرب وجزر القمر في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/bltfb47a323899883d1)
+- **القنوات الناقلة لمباراة مصر والكويت في كأس العرب 2025**: [Link](https://al-ain.com/article/egypt-kuwait-fifa-arab-cup-2025-match-channels)
+- **عقبتان أمام منتخب مصر قبيل مواجهة الكويت في كأس العرب**: [Link](https://www.alaraby.co.uk/sport/%D8%B9%D9%82%D8%A8%D8%AA%D8%A7%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%82%D8%A8%D9%8A%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+
+
+### barca vs atletico madrid (N/A, Tue, 2 Dec 2025 07:40:00 -0800)
+
+- **Barcelona - Atlético, en directo: última hora de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/barcelona-atletico-en-directo-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202512-d/)
+- **El posible once del Barça ante el Atlético, con una incógnita**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251202/1002579395/posible-once-barca-atletico-incognita.html)
+- **Alineación de la Liga FC Barcelona vs Atlético de Madrid**: [Link](https://noticiashuesca.com/economia/alineacion-de-la-liga-fc-barcelona-vs-atletico-de-madrid/150959/)
+
+
 ### egypt vs kuwait (N/A, Tue, 2 Dec 2025 07:50:00 -0800)
 
 - **Egypt vs Kuwait LIVE Score Updates in 2025 FIFA Arab Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/02/1243327-egypt-vs-kuwait-live-score-arab-cup.html)
