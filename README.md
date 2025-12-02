@@ -1,3 +1,38 @@
+### fc barcelone (N/A, Tue, 2 Dec 2025 12:30:00 -0800)
+
+- **FC Barcelone - Atlético de Madrid en direct - La Liga : Football Scores & Résultats - 02/12/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-fc-barcelone-atletico-de-madrid_mtc1610565/live-commentary.shtml)
+- **FC Barcelone - Atlético : les compositions officielles**: [Link](https://www.footmercato.net/a3543130438094960997-fc-barcelone-atletico-les-compositions-officielles)
+- **Barcelone - Atlético : à quelle heure et sur quelle chaîne regarder le match de Liga en direct ce soir ?**: [Link](https://rmcsport.bfmtv.com/football/liga/barcelone-atletico-a-quelle-heure-et-sur-quelle-chaine-regarder-le-match-de-liga-en-direct-ce-soir_AN-202512020011.html)
+
+
+### kooora tv (N/A, Tue, 2 Dec 2025 12:30:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 2 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-2-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blte07ff8f3dcbde210)
+- **أبرز المباريات العربية والعالمية اليوم الإثنين**: [Link](https://24.ae/article/932993/)
+- **كأس العرب| المغرب يواجه جزر القمر.. وقمة خليجية بين السعودية وعمان**: [Link](https://akhbarelyom.com/news/newdetails/4734534/1/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%88%D9%82%D9%85%D8%A9-%D8%AE%D9%84)
+
+
+### barca (N/A, Tue, 2 Dec 2025 12:20:00 -0800)
+
+- **Charter barche: il nuovo report GlobeSailor premia l’Italia e segnala il successo dei catamarani**: [Link](https://www.solovela.net/notizie/3/charter-barche-report-globesailor-crescita-prezzi-italia-primo-posto/1354198/)
+- **Vacanze in barca il bilancio del 2025**: [Link](https://www.bolina.it/news/vacanze-in-barca-il-bilancio-del-2025-2025)
+- **Ponza – Barca a vela in difficoltà alle prime luci dell’alba. Salvati dalla Guardia Costiera**: [Link](https://www.tuttogolfo.it/notizie/ponza-barca-a-vela-in-difficolta-alle-prime-luci-dellalba-salvati-dalla-guardia-costiera/)
+
+
+### atletico madrid (N/A, Tue, 2 Dec 2025 12:20:00 -0800)
+
+- **Pedri, De Jong start in a 4-2-3-1 – How Barcelona can line up against Atletico Madrid**: [Link](https://barcauniversal.com/pedri-de-jong-start-in-a-4-2-3-1-how-barcelona-can-line-up-against-atletico-madrid/)
+- **De Jong and Araujo set to miss Barcelona's crunch clash with Atletico**: [Link](https://www.flashscore.com/news/soccer-laliga-de-jong-and-araujo-set-to-miss-barcelona-s-crunch-clash-with-atletico/CYKt27lK/)
+- **'It’s normal, we’re human, we have emotions and feelings': Simeone on Flick's emotional chat with Raphinha**: [Link](https://tribuna.com/en/news/2025-12-02-its-normal-were-human-we-have-emotions-and-feelings-simeone-on-flicks-emotional-chat-with/)
+
+
+### نيوكاسل يونايتد ضد توتنهام (N/A, Tue, 2 Dec 2025 12:20:00 -0800)
+
+- **أرقام خاصة بحكم مباراة نيوكاسل وتوتنهام**: [Link](https://hihi2.com/2025/12/02/p3538767.html)
+- **بث مباشر.. شاهد مباراة توتنهام هوتسبر ونيوكاسل يونايتد في الدوري الإنجليزي**: [Link](https://www.khaligyoun.com/609797/)
+- **موعد مباراة نيوكاسل يونايتد وتوتنهام هوتسبير في الدوري الإنجليزي الممتاز والقنوات الناقلة والتشكيل المتوقع**: [Link](https://www.tahiamasr.com/1003224)
+
+
 ### دورتموند ضد ليفركوزن (N/A, Tue, 2 Dec 2025 12:00:00 -0800)
 
 - **كوفاتش قبل صدام ليفركوزن: الفوز الأخير لا يكفي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%83%D9%88%D9%81%D8%A7%D8%AA%D8%B4-%D9%82%D8%A8%D9%84-%D8%B5%D8%AF%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%8A%D8%B1-%D9%84%D8%A7-%D9%8A%D9%83%D9%81%D9%8A/blt4ec0415a5b890e3d)
