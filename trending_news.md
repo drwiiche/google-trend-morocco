@@ -1,3 +1,10 @@
+### neige maroc (N/A, Mon, 1 Dec 2025 21:10:00 -0800)
+
+- **Par province, voici les hauteurs de neige relevées au cours des dernières 24 heures**: [Link](https://medias24.com/2025/12/01/par-province-voici-les-hauteurs-de-neige-relevees-au-cours-des-dernieres-24-heures-1587065/)
+- **Chutes de neige et fortes rafales de vent mercredi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/chutes-de-neige-et-rafales-de-vent-mercredi-dans-plusieurs-regions-du-maroc/316475)
+- **Neige, pluies, orages : le Maroc placé en alerte dès dimanche !**: [Link](https://www.leconomiste.com/flash-infos/neige-pluies-orages-le-maroc-place-en-alerte-des-dimanche/)
+
+
 ### الطقس (N/A, Mon, 1 Dec 2025 22:20:00 -0800)
 
 - **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-62-1664727.html)
