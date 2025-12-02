@@ -1,3 +1,10 @@
+### raphinha (N/A, Tue, 2 Dec 2025 13:10:00 -0800)
+
+- **Raphinha scores his first goal since September**: [Link](https://zamin.uz/en/sport/173340-raphinha-scores-his-first-goal-since-september.html)
+- **Alex Baena outwits Barcelona high-line to score goal at Camp Nou - but which player played him onside?**: [Link](https://tribuna.com/en/blogs/alex-baena-outwits-barcelona-highline-to-score-goal-at-camp/)
+- **Raphinha breaks his LaLiga drought with a screamer against Atlético**: [Link](https://www.fcbarcelonanoticias.com/en/laliga/raphinha-breaks-his-liga-drought-with-screamer-against-atletico_315399_102.html)
+
+
 ### barca match (N/A, Tue, 2 Dec 2025 12:30:00 -0800)
 
 - **Barcelona keeping a close eye on Cesc Fàbregas’ Como**: [Link](https://getfootballnewsspain.com/barcelona-keeping-a-close-eye-on-cesc-fabregas-como/)
