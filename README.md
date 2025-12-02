@@ -1,3 +1,38 @@
+### arab cup 2025 (N/A, Tue, 2 Dec 2025 05:10:00 -0800)
+
+- **International Media Hail a Dazzling Opening to the 2025 FIFA Arab Cup in Doha**: [Link](https://www.moroccoworldnews.com/2025/12/270258/international-media-hail-a-dazzling-opening-to-the-2025-fifa-arab-cup-in-doha/)
+- **Can the Middle East solve FIFA’s World Cup chaos?**: [Link](https://insidersport.com/2025/12/02/beyond-arab-cup-middle-easts-world-cup/)
+- **Meet the Arab stars shining in the Arab Cup**: [Link](https://tembah.net/news?nid=80349)
+
+
+### coupe d'arabe (N/A, Tue, 2 Dec 2025 04:40:00 -0800)
+
+- **Coupe Arabe 2025 : beIN Sports diffusera gratuitement tous les matchs**: [Link](https://lematin.ma/sports/coupe-arabe-2025-bein-sports-diffusera-gratuitement-tous-les-matchs/315868)
+- **18 jours, 16 équipes, pays du Maghreb…qu’est-ce que la Coupe Arabe ?**: [Link](https://www.footmercato.net/a9061791193208693374-18-jours-16-equipes-pays-du-maghreb-quest-ce-que-la-coupe-arabe)
+- **La Tunisie débute la Coupe Arabe par une défaite face à la Syrie (0-1)**: [Link](https://m.elbotola.com/fr/article/2025-12-01-14-54-574.html)
+
+
+### yalla kora (N/A, Tue, 2 Dec 2025 04:30:00 -0800)
+
+- **ما القنوات الناقلة لمباراة مصر والكويت في كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blta94e88b61224c25a)
+- **عقبتان أمام منتخب مصر قبيل مواجهة الكويت في كأس العرب**: [Link](https://www.alaraby.co.uk/sport/%D8%B9%D9%82%D8%A8%D8%AA%D8%A7%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%82%D8%A8%D9%8A%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **منتخب مصر يتحدى طموح الكويت على ملعب لوسيل**: [Link](https://www.alarabiya.net/sport/2025/12/01/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%B7%D9%85%D9%88%D8%AD-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%B9%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D9%84%D9%88%D8%B3%D9%8A%D9%84)
+
+
+### maroc vs (N/A, Tue, 2 Dec 2025 04:10:00 -0800)
+
+- **Tournoi UNAF féminin U20: Le Maroc en finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AA%D8%A3/)
+- **Championnat UNAF Féminin U20 : Le Maroc en finale face à l'Égypte après avoir dominé la Jordanie (3-0)**: [Link](https://m.elbotola.com/fr/article/2025-11-30-17-00-35.html)
+- **Tournoi féminin U20 de l’UNAF: les Lioncelles surclassent la Jordanie et s’offrent une place en finale**: [Link](https://sport.le360.ma/football/lions-atlas/tournoi-feminin-u20-de-lunaf-les-lioncelles-surclassent-la-jordanie-et-soffrent-une-place-en-finale_TCJNKUUO6NHH5BOYMMZULG6XD4/)
+
+
+### maroc (N/A, Tue, 2 Dec 2025 04:00:00 -0800)
+
+- **Environ 23.500 personnes vivent avec le VIH au Maroc**: [Link](https://medias24.com/2025/12/01/environ-23-500-personnes-vivent-avec-le-vih-au-maroc-1587143/)
+- **VIH/SIDA : Baisse de 22% des cas d’infection au Maroc durant la dernière décennie**: [Link](https://www.leconomiste.com/flash-infos/vih-sida-baisse-de-22-des-cas-dinfection-au-maroc-durant-la-derniere-decennie/)
+- **Le Maroc enregistre une baisse de 22% des infections au VIH/SIDA sur dix ans**: [Link](https://lematin.ma/societe/le-maroc-reduit-les-infections-au-vih-de-22-et-les-deces-de-55/316559)
+
+
 ### maroc foot (N/A, Tue, 2 Dec 2025 04:10:00 -0800)
 
 - **CAN : Al-Hilal confie à Inzaghi le sort de Bounou et Koulibaly sur la liste locale**: [Link](https://m.elbotola.com/fr/article/2025-12-01-20-31-973.html)
