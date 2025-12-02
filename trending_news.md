@@ -1,3 +1,15 @@
+### maroc vs comores (N/A, Tue, 2 Dec 2025 01:00:00 -0800)
+
+- **Match Maroc-Comores : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-comores-a-quelle-heure-et-sur-quelles-chaines/316404)
+- **Coupe Arabe de la FIFA Qatar-2025: Oualid Azarou rempalce Youssef Mehri en sélection Nationale » A**: [Link](https://frmf.ma/fr/%D9%88%D9%84%D9%8A%D8%AF-%D8%A2%D8%B2%D8%B1%D9%88-%D9%8A%D8%B9%D9%88%D8%B6-%D9%8A%D9%88%D8%B3%D9%81-%D9%85%D9%8A%D9%87%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84/)
+- **Al-Ahly annonce une déchirure musculaire pour Bencharki, un retour au Caire envisagé pour son traitement**: [Link](https://m.elbotola.com/fr/article/2025-12-01-15-21-53.html)
+
+
+### lamine yamal maroc (N/A, Mon, 1 Dec 2025 23:30:00 -0800)
+
+
+
+
 ### neige maroc (N/A, Mon, 1 Dec 2025 21:10:00 -0800)
 
 - **Par province, voici les hauteurs de neige relevées au cours des dernières 24 heures**: [Link](https://medias24.com/2025/12/01/par-province-voici-les-hauteurs-de-neige-relevees-au-cours-des-dernieres-24-heures-1587065/)
