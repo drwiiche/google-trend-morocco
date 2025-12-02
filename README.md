@@ -1,3 +1,17 @@
+### egypt vs kuwait (N/A, Tue, 2 Dec 2025 07:50:00 -0800)
+
+- **Egypt vs Kuwait LIVE Score Updates in 2025 FIFA Arab Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/02/1243327-egypt-vs-kuwait-live-score-arab-cup.html)
+- **Toulan: Our ambitions are high in the Arab Cup, and we are ready to face Kuwait**: [Link](https://see.news/toulan-our-ambitions-are-high-in-the-arab-cup-and-we-are-ready-to-face-kuwait)
+- **FIFA Arab Cup: Egypt's history in the tournament**: [Link](https://foot-africa.com/en/news/fifa-arab-cup-egypts-history-in-the-tournament-977183/)
+
+
+### kooora (N/A, Tue, 2 Dec 2025 04:10:00 -0800)
+
+- **ريال مدريد يعلن إصابة فيرلاند ميندي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8%D9%87/bltfaefa76e297be218)
+- **ريال مدريد يدرس بيع نجمه في يناير**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/1354416/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%A8%D9%8A%D8%B9-%D9%86%D8%AC%D9%85%D9%87-%D9%81%D9%8A-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1)
+- **بعد 7 أشهر من الغياب بسبب الإصابة.. ألونسو "يضطر" لإشراك ميندي أساسيا بدون أي دقيقة منذ عودته!**: [Link](https://m.elbotola.com/article/2025-11-26-19-47-941.html)
+
+
 ### maroc comores (N/A, Tue, 2 Dec 2025 04:20:00 -0800)
 
 - **Le Premier ministre somalien visite Tanger Med et approfondit le dialogue portuaire avec le Maroc**: [Link](https://barlamane.com/fr/le-premier-ministre-somalien-visite-tanger-med-et-approfondit-le-dialogue-portuaire-avec-le-maroc/)
