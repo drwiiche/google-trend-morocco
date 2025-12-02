@@ -1,3 +1,17 @@
+### maroc comores (N/A, Tue, 2 Dec 2025 04:20:00 -0800)
+
+- **Le Premier ministre somalien visite Tanger Med et approfondit le dialogue portuaire avec le Maroc**: [Link](https://barlamane.com/fr/le-premier-ministre-somalien-visite-tanger-med-et-approfondit-le-dialogue-portuaire-avec-le-maroc/)
+- **La Somalie réaffirme son soutien à l’intégrité territoriale et à la souveraineté du Maroc, et salue la résolution 2797 du Conseil de sécurité de l’ONU**: [Link](https://maliactu.net/la-somalie-reaffirme-son-soutien-a-lintegrite-territoriale-et-a-la-souverainete-du-maroc-et-salue-la-resolution-2797-du-conseil-de-securite-de-lonu/)
+- **Rabat réaffirme son soutien à la souveraineté somalienne**: [Link](https://fr.apanews.net/diplomacy/maroc-somalie-rabat-reaffirme-son-soutien-a-la-souverainete-somalienne/)
+
+
+### بث مباشر (N/A, Tue, 2 Dec 2025 04:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة مصر والكويت في كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blta94e88b61224c25a)
+- **عقبتان أمام منتخب مصر قبيل مواجهة الكويت في كأس العرب**: [Link](https://www.alaraby.co.uk/sport/%D8%B9%D9%82%D8%A8%D8%AA%D8%A7%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%82%D8%A8%D9%8A%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **منتخب مصر يتحدى طموح الكويت على ملعب لوسيل**: [Link](https://www.alarabiya.net/sport/2025/12/01/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%B7%D9%85%D9%88%D8%AD-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%B9%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D9%84%D9%88%D8%B3%D9%8A%D9%84)
+
+
 ### مباريات كأس العرب (N/A, Tue, 2 Dec 2025 06:40:00 -0800)
 
 - **جدول مباريات اليوم الثلاثاء 2 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-2-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blte07ff8f3dcbde210)
