@@ -1,3 +1,10 @@
+### المغرب ضد جزر القمر (N/A, Tue, 2 Dec 2025 03:20:00 -0800)
+
+- **بث مباشر: شاهد مباراة المغرب وجزر القمر في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt961b4be813aba4c1)
+- **تشكيلة السكتيوي أمام جزر القمر**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-1664895.html)
+- **تشكيلة المنتخب الوطني الرديف امام جزر القمر**: [Link](https://frmf.ma/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D8%A7%D9%85%D8%A7%D9%85-%D8%AC%D8%B2%D8%B1/)
+
+
 ### arab cup 2025 (N/A, Tue, 2 Dec 2025 05:10:00 -0800)
 
 - **International Media Hail a Dazzling Opening to the 2025 FIFA Arab Cup in Doha**: [Link](https://www.moroccoworldnews.com/2025/12/270258/international-media-hail-a-dazzling-opening-to-the-2025-fifa-arab-cup-in-doha/)
