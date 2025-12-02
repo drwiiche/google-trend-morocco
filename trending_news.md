@@ -1,3 +1,10 @@
+### newcastle – tottenham (N/A, Tue, 2 Dec 2025 11:30:00 -0800)
+
+- **Starting line-ups for Newcastle vs Spurs in the Premier League on Tuesday 2 December**: [Link](https://www.tottenhamhotspur.com/news/2025/december/confirmed-line-ups-newcastle-vs-spurs/)
+- **Newcastle vs. Tottenham — Eddie Howe: Match Preview**: [Link](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/19599/newcastle-vs-tottenham-eddie-howe-match-preview)
+- **Spurs injury latest: Dominic Solanke, Dejan Kulusevski and more**: [Link](https://onefootball.com/de/news/spurs-injury-latest-dominic-solanke-dejan-kulusevski-and-more-42033934)
+
+
 ### dortmund – leverkusen (N/A, Tue, 2 Dec 2025 11:20:00 -0800)
 
 - **BVB-Aufstellung gegen Leverkusen: Nur ein Wechsel im Verfolgerduell**: [Link](https://www.absolutfussball.com/deutschland/borussia-dortmund/gegen-leverkusen-beier-fragezeichen-bleibt-bvb-aufstellung-94059939.html)
