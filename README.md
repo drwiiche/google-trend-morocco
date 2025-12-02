@@ -1,3 +1,10 @@
+### venezuela (N/A, Tue, 2 Dec 2025 10:00:00 -0800)
+
+- **En medio de tensión en el Caribe: Maduro autoriza reanudar vuelos para repatriar migrantes desde EEUU**: [Link](https://www.biobiochile.cl/noticias/internacional/america-latina/2025/12/02/en-medio-de-tension-en-el-caribe-maduro-autoriza-reanudar-vuelos-para-repatriar-migrantes-desde-eeuu.shtml)
+- **Logros alcanzados entre EE.UU. y Venezuela antes de la suspensión del acuerdo de repatriación**: [Link](https://efe.com/mundo/2025-12-02/venezuela-eeuu-crisis-acuerdo-migratorio/)
+- **Maduro da marcha atrás y reactiva repatriación de venezolanos deportados desde Estados Unidos**: [Link](https://www.laestrella.com.pa/mundo/maduro-da-marcha-atras-y-reactiva-repatriacion-de-venezolanos-deportados-desde-estados-unidos-AN18040660)
+
+
 ### مجموعات كأس العرب 2025 (N/A, Tue, 2 Dec 2025 08:40:00 -0800)
 
 - **بث مباشر: شاهد مباراة المغرب وجزر القمر في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/bltfb47a323899883d1)
