@@ -1,3 +1,10 @@
+### chelsea (N/A, Wed, 3 Dec 2025 13:10:00 -0800)
+
+- **How big a miss is Caicedo for Chelsea?**: [Link](https://www.bbc.com/sport/football/articles/c9vje1vjx47o)
+- **Reece James sent a loud message to Enzo Maresca in Arsenal draw**: [Link](https://theprideoflondon.com/reece-james-sent-loud-message-enzo-maresca-arsenal-draw)
+- **Santos 'ready' to replace 'key player' Caicedo**: [Link](https://sports.yahoo.com/articles/santos-ready-replace-key-player-115235753.html)
+
+
 ### الإنتر ضد فينيزيا (N/A, Wed, 3 Dec 2025 12:40:00 -0800)
 
 - **إنتر بالبدلاء في موقعة كأس إيطاليا أمام فينيزيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A8%D8%A7%D9%84%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D9%86%D9%8A%D8%B2%D9%8A%D8%A7/bltdfcfa11430812e63)
