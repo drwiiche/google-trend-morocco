@@ -1,3 +1,10 @@
+### algerie (N/A, Wed, 3 Dec 2025 06:20:00 -0800)
+
+- **Me Emmanuel Daoud : "Christophe [Gleizes] est debout, c'est un combattant, et il prépare activement sa défense"**: [Link](https://www.radiofrance.fr/franceinter/podcasts/l-invite-de-7h50/l-invite-de-7h50-du-lundi-01-decembre-2025-5780705)
+- **Algérie : «On a beaucoup d’espoir», souligne le frère du journaliste français Christophe Gleizes avant le verdict en appel**: [Link](https://www.lefigaro.fr/flash-actu/algerie-on-a-beaucoup-d-espoir-souligne-le-frere-du-journaliste-francais-christophe-gleizes-avant-le-verdict-en-appel-20251203)
+- **L’éditorial. Le métier d’informer**: [Link](https://www.dna.fr/societe/2025/12/03/christophe-gleizes-doit-etre-libere)
+
+
 ### مباريات كأس العرب (N/A, Wed, 3 Dec 2025 06:20:00 -0800)
 
 - **بث مباشر: شاهد مباراة العراق والبحرين في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%88%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/bltf485b4f33615f49e)
