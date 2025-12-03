@@ -1,3 +1,17 @@
+### federica mogherini (N/A, Wed, 3 Dec 2025 09:40:00 -0800)
+
+- **Belgium: EPPO conducts searches at College of Europe and European External Action Service**: [Link](https://www.eppo.europa.eu/en/media/news/belgium-eppo-conducts-searches-college-europe-and-european-external-action-service)
+- **Brussels in shock as ex-EU diplomat Mogherini arrested in tender-rigging probe**: [Link](https://www.euractiv.com/news/exclusive-police-raid-eu-external-action-service-college-of-europe-in-sweeping-fraud-probe/)
+- **Stefano Sannino exits Commission role amid fraud probe**: [Link](https://www.politico.eu/article/stefano-sannino-european-commission-fraud-probe-european-external-action-service/)
+
+
+### fifa arab cup (N/A, Wed, 3 Dec 2025 06:10:00 -0800)
+
+- **UAE face Jordan tonight in FIFA Arab Cup — Day two recap and today’s fixtures**: [Link](https://gulfnews.com/sport/football/uae-face-jordan-tonight-in-fifa-arab-cup-day-two-recap-and-todays-fixtures-1.500368011)
+- **Jordan vs United Arab Emirates LIVE Score Updates: Vibrant and exciting duel (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2025/12/03/1243449-jordan-vs-united-arab-emirates-live-score-arab-cup.html)
+- **Jordanians Turned Doha Into One Big Pre-Match Party**: [Link](https://lovin.co/amman/en/announcements/jordanians-turned-doha-into-one-big-pre-match-party/)
+
+
 ### ath. bilbao – real madrid (N/A, Wed, 3 Dec 2025 09:10:00 -0800)
 
 - **Posible alineación del Real Madrid contra el Athletic en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-athletic-en-laliga-ea-sports-f202512-n/)
