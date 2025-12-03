@@ -1,3 +1,10 @@
+### météo (N/A, Tue, 2 Dec 2025 23:00:00 -0800)
+
+- **Météo. Les prévisions météorologiques du mercredi 3 décembre 2025 aux Sables-d'Olonne et ses environs**: [Link](https://www.ouest-france.fr/meteo/pays-de-la-loire/les-sables-dolonne-85100/la-meteo-du-jour-aux-sables-d-olonne-ca67fdb5-f6f1-4d73-84da-900d69909e9d)
+- **Météo. La météo du mercredi 3 décembre 2025 aux Sables-d'Olonne et ses environs**: [Link](https://www.ouest-france.fr/meteo/pays-de-la-loire/les-sables-dolonne-85100/la-meteo-du-jour-aux-sables-d-olonne-062f25fc-b9ae-4b1b-aee6-dbf0d0941792)
+- **Mjegull, vranësira e riga lokale shiu sot**: [Link](https://reporteri.net/fr/nouvelles/Brouillard--ciel-nuageux-et-averses-locales-aujourd%27hui/)
+
+
 ### الطقس اليوم (N/A, Tue, 2 Dec 2025 22:30:00 -0800)
 
 - **درجات الحرارة اليوم الأربعاء 3- 12- 2025 تقترب من الصفر وشبورة كثيفة صباحا**: [Link](https://www.youm7.com/story/2025/12/3/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-3-12-2025-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%B5%D9%81%D8%B1/7219593)
