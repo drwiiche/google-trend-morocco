@@ -1,3 +1,10 @@
+### juventus (N/A, Tue, 2 Dec 2025 13:20:00 -0800)
+
+- **Juve, continua l'emergenza: Gatti sostituito per infortunio con l'Udinese**: [Link](https://www.gazzetta.it/calcio/fantanews/strumenti-fantacalcio/indisponibili/02-12-2025/gatti-infortunio-le-condizioni-del-difensore-della-juve.shtml)
+- **Juventus: Gatti in stampelle al J Medical, esami al ginocchio**: [Link](https://www.sportmediaset.mediaset.it/calcio/juventus-gatti-in-stampelle-al-j-medical-esami-al-ginocchio_106696361-202502k.shtml)
+- **FLASH - Infortunio Gatti: la Juventus svela la prima diagnosi. La situazione**: [Link](https://tribuna.com/it/news/2025-12-02-flash-infortunio-gatti-la-juventus-svela-la-prima-diagnosi-la-situazione/)
+
+
 ### liga (N/A, Tue, 2 Dec 2025 14:20:00 -0800)
 
 - **Real Madrid will recover homegrown star for Athletic Club clash, defender out – report**: [Link](https://madriduniversal.com/real-madrid-will-recover-homegrown-star-for-athletic-club-clash-defender-out-report/)
