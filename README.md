@@ -1,3 +1,17 @@
+### vfl bochum – stuttgart (N/A, Wed, 3 Dec 2025 08:50:00 -0800)
+
+- **Aufstellung im DFB-Pokal: Diese Startelf soll es beim VfB Stuttgart richten**: [Link](https://www.stimme.de/sport/vfb-stuttgart/dfb-pokal-aufstellung-startelf-vfl-bochum-sebastian-hoeness-entscheidung-abwehr-sturm-art-5118026)
+- **Titelverteidiger zu Gast in Bochum - Freiburg empfängt Darmstadt**: [Link](https://www.focus.de/sport/fussball/titelverteidiger-zu-gast-in-bochum-freiburg-empfaengt-darmstadt_c589ff1f-a7e6-4ef7-906f-02f9e2173e05.html)
+- **VfB Stuttgart im DFB-Pokal: Terodde spricht Klartext – und schwärmt von Hoeneß und Undav**: [Link](https://www.esslinger-zeitung.de/inhalt.vfb-stuttgart-im-dfb-pokal-terodde-spricht-klartext-und-schwaermt-von-hoeness-und-undav.640de224-dd1c-4272-8e2f-94cf1b8432ed.html)
+
+
+### naples – cagliari (N/A, Wed, 3 Dec 2025 08:40:00 -0800)
+
+- **Prepping for Cagliari clash**: [Link](https://sscnapoli.it/en/ssc-napoli-training-center-il-report-dellallenamento-di-oggi-28/)
+- **Napoli vs Cagliari LIVE Score Updates in Coppa Italia Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/03/1243487-napoli-vs-cagliari-live-score-coppa-italia.html)
+- **Coppa Italia: Napoli vs. Cagliari – probable line-ups and where to watch on TV**: [Link](https://football-italia.net/napoli-v-cagliari-probable-line-ups-watch-tv-3/)
+
+
 ### red dead redemption (N/A, Wed, 3 Dec 2025 08:30:00 -0800)
 
 - **Red Dead Redemption Out Now on Netflix, iOS, Android, PS5, Xbox Series, and Nintendo Switch 2**: [Link](https://www.rockstargames.com/newswire/article/9k3a83o3247a9k/red-dead-redemption-out-now-on-netflix-ios-android-ps5-xbox-series-and)
