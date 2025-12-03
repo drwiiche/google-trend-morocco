@@ -1,3 +1,31 @@
+### arab cup (N/A, Wed, 3 Dec 2025 06:00:00 -0800)
+
+- **UAE face Jordan tonight in FIFA Arab Cup — Day two recap and today’s fixtures**: [Link](https://gulfnews.com/sport/football/uae-face-jordan-tonight-in-fifa-arab-cup-day-two-recap-and-todays-fixtures-1.500368011)
+- **Jordanians Turned Doha Into One Big Pre-Match Party**: [Link](https://lovin.co/amman/en/announcements/jordanians-turned-doha-into-one-big-pre-match-party/)
+- **Jordan vs United Arab Emirates LIVE Score Updates in 2025 FIFA Arab Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/03/1243449-jordan-vs-united-arab-emirates-live-score-arab-cup.html)
+
+
+### الجزائر ضد السودان (N/A, Wed, 3 Dec 2025 06:00:00 -0800)
+
+- **بث مباشر: شاهد مباراة الجزائر والسودان في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%88%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt45056ec25a564d0a)
+- **مباشر مباراة الجزائر ضد السودان بكأس العرب 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/3/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **موعد مباراة الجزائر والسوادن في كأس العرب**: [Link](https://hihi2.com/2025/12/03/p3540573.html)
+
+
+### مجموعات كأس العرب 2025 (N/A, Wed, 3 Dec 2025 06:00:00 -0800)
+
+- **بث مباشر: شاهد مباراة العراق والبحرين في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%88%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/bltf485b4f33615f49e)
+- **موعد مباراة العراق ضد البحرين بكأس العرب والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/2/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3)
+- **منتخب العراق يكمل كأس العرب بـ22 لاعبا بعد رحيل ماركو فرج**: [Link](https://www.alquds.co.uk/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%8A%D9%83%D9%85%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A8%D9%8022-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7-%D8%A8/)
+
+
+### david rachline (N/A, Wed, 3 Dec 2025 06:00:00 -0800)
+
+- **Au RN, Marine Le Pen et une photo privée provoquent la chute de David Rachline**: [Link](https://www.lemonde.fr/politique/article/2025/12/02/au-rn-marine-le-pen-et-une-photo-privee-provoquent-la-chute-de-david-rachline_6655748_823448.html)
+- **Rencontre Poutine-Witkoff / David Rachline démissionne de la vice-présidence du RN / LGV Bordeaux-Toulouse**: [Link](https://www.sudradio.fr/emission/le-journal-de-6h-315)
+- **"Je souhaite qu'il ne soit plus vice-président du RN": pourquoi le parti de Marine Le Pen prend ses distances avec David Rachline**: [Link](https://www.bfmtv.com/politique/front-national/je-souhaite-qu-il-ne-soit-plus-vice-president-du-rn-pourquoi-le-parti-de-marine-le-pen-prend-ses-distances-avec-david-rachline_AN-202512020614.html)
+
+
 ### algeria vs sudan (N/A, Wed, 3 Dec 2025 05:50:00 -0800)
 
 - **Arab Cup 2025 / Algeria – Sudan: red card for Adam Ounas! (Video)**: [Link](https://foot-africa.com/en/news/arab-cup-2025-algeria-sudan-red-card-for-adam-ounas-video-987026/)
