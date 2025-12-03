@@ -1,3 +1,10 @@
+### liga (N/A, Tue, 2 Dec 2025 14:20:00 -0800)
+
+- **Real Madrid will recover homegrown star for Athletic Club clash, defender out – report**: [Link](https://madriduniversal.com/real-madrid-will-recover-homegrown-star-for-athletic-club-clash-defender-out-report/)
+- **Asencio back against Bilbao, Huijsen still out**: [Link](https://www.managingmadrid.com/101236/asencio-real-madrid-bilbao-2025-status)
+- **Nico Williams confirms his status for Athletic Club vs Real Madrid**: [Link](https://getfootballnewsspain.com/nico-williams-confirms-his-status-for-athletic-club-vs-real-madrid/)
+
+
 ### احوال الطقس (N/A, Tue, 2 Dec 2025 23:00:00 -0800)
 
 - **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-57-1665180.html)
