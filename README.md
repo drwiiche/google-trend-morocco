@@ -1,3 +1,10 @@
+### red dead redemption (N/A, Wed, 3 Dec 2025 08:30:00 -0800)
+
+- **Red Dead Redemption Out Now on Netflix, iOS, Android, PS5, Xbox Series, and Nintendo Switch 2**: [Link](https://www.rockstargames.com/newswire/article/9k3a83o3247a9k/red-dead-redemption-out-now-on-netflix-ios-android-ps5-xbox-series-and)
+- **Video: Check Out Red Dead Redemption's Switch 2 Improvements In This Side-By-Side Comparison**: [Link](https://www.nintendolife.com/news/2025/12/video-check-out-red-dead-redemptions-switch-2-improvements-in-this-side-by-side-comparison)
+- **Red Dead Redemption's New Modern Upgrade Shown Off In First Gameplay Footage**: [Link](https://currently.att.yahoo.com/att/red-dead-redemptions-modern-upgrade-192800257.html)
+
+
 ### kgm maroc (N/A, Wed, 3 Dec 2025 05:10:00 -0800)
 
 - **KGM revient au Maroc : une nouvelle ère automobile**: [Link](https://www.lebrief.ma/video-automobile-kgm-fait-son-retour-au-maroc-grace-a-m-automotiv-100132524/)
