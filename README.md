@@ -1,3 +1,38 @@
+### arsenal – brentford (N/A, Wed, 3 Dec 2025 11:10:00 -0800)
+
+- **Arsenal vs Brentford: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c8653v0gv4xt)
+- **Teams news: Odegaard one of three changes for Bees**: [Link](https://www.arsenal.com/news/teams-news-odegaard-one-three-changes-bees)
+- **Keith Andrews says their plan is to make Arsenal uncomfortable**: [Link](https://www.justarsenal.com/keith-andrews-says-their-plan-is-to-make-arsenal-uncomfortable/405165)
+
+
+### burnley – crystal palace (N/A, Wed, 3 Dec 2025 11:10:00 -0800)
+
+- **View from the Opposition: Scott Parker on the challenge Palace pose**: [Link](https://www.cpfc.co.uk/news/match-previews/view-from-the-opposition-scott-parker-on-palace-challenge/)
+- **Axel Tuanzebe absence explained as Burnley name starting XI for Crystal Palace**: [Link](https://www.burnleyexpress.net/sport/football/axel-tuanzebe-absence-explained-as-burnley-name-starting-xi-for-crystal-palace-5428841)
+- **Glasner confident that Palace will have another ‘great season’**: [Link](https://sporty.com/news/glasner-confident-that-palace-will-have-another-great-season/j71a06zcslee1r4t65qeisyk0)
+
+
+### union berlin – bayern (N/A, Wed, 3 Dec 2025 11:00:00 -0800)
+
+- **Union Berlin gegen FC Bayern live im TV und Stream: Hier läuft der DFB-Pokal**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/pokal-union-berlin-gegen-fc-bayern-live-im-tv-und-stream-hier-laeuft-der-dfb-94063603.html)
+- **Machen es die Eisernen im Pokal noch einmal?**: [Link](https://www.sport1.de/tv-video/video/machen-es-die-eisernen-im-pokal-noch-einmal__967f0173-6e40-4b64-b6c3-037c645b56a6)
+- **Geht der Fluch weiter?: DAS deutet auf Bayerns Pokal-Aus hin**: [Link](https://www.bild.de/sport/fussball/geht-der-fluch-weiter-das-deutet-auf-bayerns-pokal-aus-hin-693043c0c71d390e2ebcc8d4)
+
+
+### لا ليغا (N/A, Wed, 3 Dec 2025 11:00:00 -0800)
+
+- **برشلونة يعاقب أتلتيكو في كامب نو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%8A%D9%88%D8%B3%D8%B9-%D8%A7%D9%84%D9%81%D8%A7%D8%B1%D9%82-%D9%85%D8%B9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/blt6f909954f3e32787)
+- **برشلونة يتفوق على أتليتيكو مدريد باقتدار**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%A7%D9%82%D8%AA%D8%AF%D8%A7%D8%B1-2025-12-02)
+- **نتيجة وملخص مباراة برشلونة ضد أتلتيكو مدريد بالدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/2/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-3)
+
+
+### real madrid match (N/A, Wed, 3 Dec 2025 10:50:00 -0800)
+
+- **Athletic Bilbao - Real Madrid en direct - La Liga : Football Scores & Résultats - 03/12/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-athletic-bilbao-real-madrid_mtc1610562/live-commentary.shtml)
+- **DIRECT. Athletic Bilbao-Real Madrid: suivez en live le match de la 19e journée de Liga avec Mbappé**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-athletic-bilbao-real-madrid-suivez-en-live-le-match-de-la-19e-journee-de-liga-avec-mbappe_LS-202512030754.html)
+- **La composition du Real Madrid contre Bilbao a fuité, Xabi Alonso prend un risque**: [Link](https://www.goal.com/fr/listes/la-composition-du-real-madrid-contre-bilbao-a-fuite-xabi-alonso-prend-un-risque/bltb2d50ce8850f2848)
+
+
 ### kylian mbappé (N/A, Wed, 3 Dec 2025 10:50:00 -0800)
 
 - **‘With the way it’s going now…’ – Dutch icon backs Real Madrid forward to win Ballon d’Or next year**: [Link](https://sports.yahoo.com/articles/way-going-now-dutch-icon-141300919.html)
