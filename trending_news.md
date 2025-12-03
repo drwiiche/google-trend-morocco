@@ -1,3 +1,17 @@
+### chutes de neige maroc (N/A, Tue, 2 Dec 2025 15:30:00 -0800)
+
+- **Froid, pluies et neige : Voici à quoi s’attendre dans les prochains jours**: [Link](https://lematin.ma/regions/froid-pluies-et-neige-voici-a-quoi-sattendre-dans-les-prochains-jours/316638)
+- **Chutes de neige et fortes rafales de vent mercredi dans plusieurs provinces du Royaume**: [Link](https://mobile.telquel.ma/instant-t/2025/12/02/chutes-de-neige-et-fortes-rafales-de-vent-mercredi-dans-plusieurs-provinces-du-royaume-2_1963404/)
+- **Alerte neige et vents forts ce mercredi**: [Link](https://www.leconomiste.com/flash-infos/alerte-neige-et-vents-forts-ce-mercredi/)
+
+
+### samsung galaxy s26 ultra (N/A, Tue, 2 Dec 2025 15:10:00 -0800)
+
+- **Three Reasons To Wait For The Samsung Galaxy S26 Ultra**: [Link](https://www.forbes.com/sites/ewanspence/2025/11/29/samsung-galaxy-s26-ultra-leak-specs-release-date-charging-camera-galaxy-ai/)
+- **Hidden code reveals Samsung phones are in for a major wireless charging upgrade**: [Link](https://www.androidauthority.com/samsung-one-ui-8-5-super-fast-wireless-charging-apk-teardown-3620799/)
+- **Not to be the bearer of bad news, but you shouldn't expect the Galaxy S26 Ultra's display to excel**: [Link](https://www.phonearena.com/news/m14-on-galaxy-s26-ultra-new-rumors_id176272)
+
+
 ### raphinha (N/A, Tue, 2 Dec 2025 13:10:00 -0800)
 
 - **Raphinha scores his first goal since September**: [Link](https://zamin.uz/en/sport/173340-raphinha-scores-his-first-goal-since-september.html)
