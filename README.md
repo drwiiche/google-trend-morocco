@@ -1,3 +1,17 @@
+### bolivie (N/A, Wed, 3 Dec 2025 14:10:00 -0800)
+
+- **La Bolivie lève ses exigences de visa pour huit pays**: [Link](https://visasnews.com/la-bolivie-leve-ses-exigences-de-visa-pour-huit-pays/)
+- **Saar : La Bolivie supprime l’obligation de visa pour les Israéliens**: [Link](https://fr.timesofisrael.com/saar-la-bolivie-supprime-lobligation-de-visa-pour-les-israeliens/)
+- **La Bolivie supprime les visas pour 7 pays**: [Link](https://www.businesstravel.fr/la-bolivie-supprime-les-visas-pour-7-pays.html)
+
+
+### chemsdine talbi (N/A, Wed, 3 Dec 2025 14:00:00 -0800)
+
+- **Liverpool 1-1 Sunderland, Premier League : résumé du match (03/12/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/liverpool-sunderland-live/673639)
+- **Liverpool - Sunderland en direct - Premier League : Football Scores & Résultats - 03/12/2025**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-liverpool-sunderland_mtc1602256/live-commentary.shtml)
+- **Chemsdine Talbi s'offre la célébration "dodo" après avoir refroidi Anfield d'un but contre Liverpool – la réaction d'Arne Slot filmée**: [Link](https://tribuna.com/fr/blogs/chemsdine-talbi-soffre-la-celebration-dodo-apres-avoir-glace/)
+
+
 ### liverpool vs sunderland (N/A, Wed, 3 Dec 2025 11:50:00 -0800)
 
 - **Liverpool v Sunderland: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/03/liverpool-v-sunderland-premier-league-live)
