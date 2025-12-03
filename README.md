@@ -1,3 +1,10 @@
+### classement premier league (N/A, Wed, 3 Dec 2025 14:30:00 -0800)
+
+- **Arsenal 2-0 Brentford, Premier League : Arsenal bat Brentford 2-0 en leader**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/arsenal-brentford-live/673633)
+- **14e journée Premier League : Suivez Arsenal - Brentford EN DIRECT.**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-arsenal-brentford_mtc1602249/live-commentary.shtml)
+- **Equipe de France : Saliba blessé, grosse annonce sur son retour**: [Link](https://www.onzemondial.com/equipe-de-france/equipe-de-france-saliba-blesse-grosse-annonce-sur-son-retour-973312)
+
+
 ### bolivie (N/A, Wed, 3 Dec 2025 14:10:00 -0800)
 
 - **La Bolivie lève ses exigences de visa pour huit pays**: [Link](https://visasnews.com/la-bolivie-leve-ses-exigences-de-visa-pour-huit-pays/)
