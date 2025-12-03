@@ -1,3 +1,24 @@
+### ca antoniano – villarreal (N/A, Wed, 3 Dec 2025 12:00:00 -0800)
+
+- **Pedraza contra Pedraza: el sobrino frente al tío en el Atlético Antoniano, de Segunda Federación, ante el Villarreal**: [Link](https://www.elmundo.es/deportes/futbol/copa-del-rey/2025/12/02/692f17bbe9cf4af4068b456d.html)
+- **CD Cieza - Levante en directo - Copa del Rey: Resultados y resúmenes de Fútbol - 03/12/2025**: [Link](https://www.eurosport.es/futbol/copa-del-rey/2025-2026/live-cd-cieza-levante_mtc1646251/live-commentary.shtml)
+- **La visita de un rival de Champions, acontecimiento para el Atlético Antoniano en Lebrija**: [Link](https://www.diariodesevilla.es/deportes/visita-rival-champions-acontecimiento-atletico_0_2005370071.html)
+
+
+### brighton – aston villa (N/A, Wed, 3 Dec 2025 11:50:00 -0800)
+
+- **Unai Emery explains why Brighton are a ‘rival’ for Aston Villa**: [Link](https://www.vavel.com/en/football/2025/12/02/aston-villa/1243391-unai-emery-explains-why-brighton-are-a-rival-for-aston-villa.html)
+- **Debut for Tzimas as Brighton and Hove Albion host Aston Villa**: [Link](https://www.brightonandhovenews.org/2025/12/03/debut-for-tzimas-as-brighton-and-hove-albion-host-aston-villa/)
+- **Unai Emery reveals Ollie Watkins has been managing knee pain for over a year**: [Link](https://onefootball.com/en/news/unai-emery-reveals-ollie-watkins-has-been-managing-knee-pain-for-over-a-year-42043039)
+
+
+### union berlin vs bayern (N/A, Wed, 3 Dec 2025 11:50:00 -0800)
+
+- **Union Berlin vs Bayern Munich – Match preview and team news**: [Link](https://thefootballfaithful.com/union-berlin-vs-bayern-munich-match-preview-and-team-news-2/)
+- **Confirmed DFB Pokal lineups: Union Berlin vs. FC Bayern**: [Link](https://bulinews.com/fcb-union)
+- **Union Berlin’s Steffen Baumgart doesn’t see any weakness in Bayern Munich**: [Link](https://sports.yahoo.com/articles/union-berlin-steffen-baumgart-doesn-033000010.html)
+
+
 ### ليفربول ضد سندرلاند (N/A, Wed, 3 Dec 2025 11:40:00 -0800)
 
 - **صلاح على دكة بدلاء ليفربول للمباراة الثانية على التوالي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D8%B9%D9%84%D9%89-%D8%AF%D9%83%D8%A9-%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D9%84%D9%8A/blte0eaf5b1fb615c18)
