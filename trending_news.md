@@ -1,3 +1,31 @@
+### leeds united – chelsea (N/A, Wed, 3 Dec 2025 11:30:00 -0800)
+
+- **Cesar Azpilicueta became a true Chelsea hero with antics against old rivals Leeds United in 2021**: [Link](https://www.thechelseachronicle.com/throwbacks/cesar-azpilicueta-became-a-true-chelsea-hero-with-antics-against-old-rivals-leeds-united-in-2021/)
+- **Predicted XI: Enzo Maresca starts 3 Brazilians as Blues look to keep up hot form**: [Link](https://chelsea.news/2025/12/leeds-predicted-enzo-maresca-starts-brazilians/)
+- **“We have to match that” – John Terry sends warning to Chelsea ahead of Leeds clash**: [Link](https://onefootball.com/en/news/we-have-to-match-that-john-terry-sends-warning-to-chelsea-ahead-of-leeds-clash-42040408)
+
+
+### liverpool – sunderland (N/A, Wed, 3 Dec 2025 11:30:00 -0800)
+
+- **Liverpool vs Sunderland Confirmed Lineups for December 3**: [Link](https://lastwordonsports.com/football/2025/12/03/liverpool-vs-sunderland-confirmed-lineups-for-december-3/)
+- **Arne Slot: We have to remain humble, work hard and continue to fight**: [Link](https://www.liverpoolfc.com/news/arne-slot-we-have-remain-humble-work-hard-and-continue-fight)
+- **Paddy Power Betting Special: Liverpool vs Sunderland Over 0.5 Goals at 50/1**: [Link](https://www.compare.bet/news/paddy-power-betting-special-liverpool-vs-sunderland-over-0-5-goals-at-50-1)
+
+
+### inter – venezia (N/A, Wed, 3 Dec 2025 11:30:00 -0800)
+
+- **Le scelte di Chivu contro il Venezia: Luis Henrique e Diouf esterni, in porta si rivede Martinez**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/03-12-2025/ottavi-coppa-italia-l-inter-sfida-il-venezia-con-diuof-e-luis-henrique.shtml)
+- **Napoli-Cagliari, le formazioni ufficiali**: [Link](https://www.calciostyle.it/coppa-italia/napoli-cagliari-le-formazioni-ufficiali-4)
+- **Le formazioni ufficiali di Inter-Venezia**: [Link](https://www.inter.it/it/notizie/formazioni-ufficiali-inter-venezia-coppa-italia-25-26)
+
+
+### ليدز ضد تشيلسي (N/A, Wed, 3 Dec 2025 11:30:00 -0800)
+
+- **سلاح تشيلسي أمام ليدز**: [Link](https://hihi2.com/2025/12/03/p3541074.html)
+- **تشيلسي وليدز.. هل يواصل "البلوز" نتائجه الإيجابية؟**: [Link](https://www.arrajol.com/content/390976/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%84%D9%8A%D8%AF%D8%B2-%D9%87%D9%84-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%A8%D9%84%D9%88%D8%B2-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC%D9%87-%D8%A7%D9%84%D8%A5%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A%D8%A9%D8%9F)
+- **تشكيل تشيلسي المتوقع أمام ليدز يونايتد في البريميرليج**: [Link](https://akhbarelyom.com/news/newdetails/4735111/1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D8%AF%D8%B2-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81)
+
+
 ### يونيون برلين ضد البايرن (N/A, Wed, 3 Dec 2025 11:20:00 -0800)
 
 - **ليلة الانتقام.. بايرن ميونخ يخوض معركة كأس مصيرية في معقل يونيون برلين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%85--%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%8A%D8%AE%D9%88%D8%B6-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D9%85%D8%B5%D9%8A%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%B9%D9%82%D9%84-%D9%8A%D9%88%D9%86%D9%8A%D9%88%D9%86-%D8%A8%D8%B1%D9%84%D9%8A%D9%86/blt854d6d290cfc0349)
