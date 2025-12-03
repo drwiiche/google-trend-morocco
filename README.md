@@ -1,3 +1,24 @@
+### zootopie 2 (N/A, Wed, 3 Dec 2025 12:30:00 -0800)
+
+- **"Zootopia 2" de Disney, suite animée et rythmée qui explore les fondations de la ville**: [Link](https://www.rts.ch/info/culture/cinema/2025/article/zootopia-2-une-suite-animee-qui-plonge-dans-les-fondations-de-la-ville-29072159.html)
+- **Box-office hebdo : Zootopie 2 règne en maître**: [Link](https://www.boxofficepro.fr/box-office-france-zootopie-2-vie-privee/)
+- **Shakira cartonne avec "Zoo", son nouveau single en collaboration avec Ed Sheeran**: [Link](https://www.rtbf.be/article/shakira-cartonne-avec-zoo-son-nouveau-single-en-collaboration-avec-ed-sheeran-11640981)
+
+
+### coupe du roi (N/A, Wed, 3 Dec 2025 12:20:00 -0800)
+
+- **La fin de match de l’année en Coupe du Roi**: [Link](https://www.boursorama.com/actualite-economique/actualites/la-fin-de-match-de-l-annee-en-coupe-du-roi-e4e1f10bb5b9c6518b1be94ee301ef9d)
+- **Coupe du Roi : ça passe pour Osasuna, Majorque et Alavés**: [Link](https://www.footmercato.net/a5956046186602736212-coupe-du-roi-ca-passe-pour-osasuna-majorque-et-alaves)
+- **La fin de match de l’année en Coupe du Roi - Coupe du Roi - 2e tour - Ebro-Osasuna (3-5)**: [Link](https://www.sofoot.com/breves/ebro-osasuna-la-fin-de-match-de-lannee-en-coupe-du-roi)
+
+
+### ourense vs girona (N/A, Wed, 3 Dec 2025 12:10:00 -0800)
+
+- **Leeds vs. Chelsea (4 Dec, 2025) Live Score**: [Link](https://www.espn.com.au/football/match/_/gameId/740732)
+- **Girona visits an in-form Ourense**: [Link](https://ca.sports.yahoo.com/news/girona-visits-form-ourense-162500707.html)
+- **Preview: Ourense CF vs Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/ourense-cf/preview/ourense-vs-girona-prediction-team-news-lineups_586877.html)
+
+
 ### ca antoniano – villarreal (N/A, Wed, 3 Dec 2025 12:00:00 -0800)
 
 - **Pedraza contra Pedraza: el sobrino frente al tío en el Atlético Antoniano, de Segunda Federación, ante el Villarreal**: [Link](https://www.elmundo.es/deportes/futbol/copa-del-rey/2025/12/02/692f17bbe9cf4af4068b456d.html)
