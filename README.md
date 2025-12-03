@@ -1,3 +1,10 @@
+### نادي برشلونة (N/A, Tue, 2 Dec 2025 12:50:00 -0800)
+
+- **برشلونة يقترب من ضم موهبة مصرية لتعزيز الهجوم**: [Link](https://www.aljazeera.net/sport/2025/12/2/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D8%B6%D9%85-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85)
+- **"لا تقارنوه بصلاح".. مدرب حمزة عبد الكريم يكشف سر اهتمام برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7-%D8%AA%D9%82%D8%A7%D8%B1%D9%86%D9%88%D9%87-%D8%A8%D8%B5%D9%84%D8%A7%D8%AD--%D9%85%D8%AF%D8%B1%D8%A8-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D8%A7%D9%87%D8%AA%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt5f0948d56bfbbeb0)
+- **مدرب منتخب الناشئين: اكتشفنا 9 لاعبين مُسننين**: [Link](https://www.almasryalyoum.com/news/details/4141985)
+
+
 ### tottenham (N/A, Tue, 2 Dec 2025 13:00:00 -0800)
 
 - **Tottenham stars frustrated with Thomas Frank and confused by manager's tactics**: [Link](https://www.thesun.co.uk/sport/37492253/tottenham-stars-frustrated-thomas-frank-tactics-rant/)
