@@ -1,3 +1,10 @@
+### ترتيب الدوري الانجليزي (N/A, Wed, 3 Dec 2025 14:20:00 -0800)
+
+- **ترتيب الدوري الانجليزي بعد انتهاء مباريات اليوم**: [Link](https://hihi2.com/2025/12/04/p3541687.html)
+- **ترتيب الدوري الإنجليزي قبل مباراتي آرسنال وليفربول الأربعاء 3 ديسمبر 2025 | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-12-03/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-3-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-6206086/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+- **10 نقاط بارزة في الجولة الـ 13 من الدوري الإنجليزي**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5215672-10-%D9%86%D9%82%D8%A7%D8%B7-%D8%A8%D8%A7%D8%B1%D8%B2%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%80-13-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+
+
 ### classement premier league (N/A, Wed, 3 Dec 2025 14:30:00 -0800)
 
 - **Arsenal 2-0 Brentford, Premier League : Arsenal bat Brentford 2-0 en leader**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/arsenal-brentford-live/673633)
