@@ -1,3 +1,31 @@
+### napoli (N/A, Wed, 3 Dec 2025 10:40:00 -0800)
+
+- **Coppa Italia: il Cagliari si gioca il passaggio al Maradona di Napoli.**: [Link](https://www.sardegnagol.eu/coppa-italia-il-cagliari-si-gioca-il-passaggio-al-maradona-di-napoli/)
+- **NAPOLI-CAGLIARI, LE FORMAZIONI UFFICIALI: CONTE NE CAMBIA OTTO. VERGARA E AMBROSINO TITOLARI**: [Link](https://www.napolicalcionews.it/news-calcio-napoli/Napoli-Cagliari--le-formazioni-ufficiali--Conte-ne-cambia-otto--Vergara-e-Ambrosino-titolari-144340.aspx)
+- **Manna: «Il Napoli vuole essere in corsa per tutto»**: [Link](https://www.stylo24.it/manna-il-napoli-vuole-essere-in-corsa-per-tutto/)
+
+
+### match real (N/A, Wed, 3 Dec 2025 10:30:00 -0800)
+
+- **Bilbao - Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a6545420193495071529-bilbao-real-madrid-les-compositions-officielles)
+- **La composition du Real Madrid contre Bilbao a fuité, Xabi Alonso prend un risque**: [Link](https://www.goal.com/fr/listes/la-composition-du-real-madrid-contre-bilbao-a-fuite-xabi-alonso-prend-un-risque/bltb2d50ce8850f2848)
+- **Valverde : "On va devoir être un peu plus prudents avec Mbappé"**: [Link](https://real-france.fr/valverde-on-va-devoir-etre-un-peu-plus-prudents-avec-mbappe/)
+
+
+### مباراة ريال مدريد (N/A, Wed, 3 Dec 2025 10:30:00 -0800)
+
+- **ريال مدريد يعلن إصابة فيرلاند ميندي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8%D9%87/bltfaefa76e297be218)
+- **عودة قصيرة لميندي تتحول لانتكاسة جديدة أمام ألونسو**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/1354906/%D8%B9%D9%88%D8%AF%D8%A9-%D9%82%D8%B5%D9%8A%D8%B1%D8%A9-%D9%84%D9%85%D9%8A%D9%86%D8%AF%D9%8A-%D8%AA%D8%AA%D8%AD%D9%88%D9%84-%D9%84%D8%A7%D9%86%D8%AA%D9%83%D8%A7%D8%B3%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF)
+- **ريال مدريد يعلن إصابة "الزجاجي" قبل خوض أي مباراة في الليغا**: [Link](https://sports.asharq.com/football/93936/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B2%D8%AC%D8%A7%D8%AC%D9%8A-%D8%AF%D9%88%D9%86-%D8%A3%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7/)
+
+
+### real vs (N/A, Wed, 3 Dec 2025 10:20:00 -0800)
+
+- **Athletic Club vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c79xdrlq5w9t)
+- **Will trio Kylian Mbappe, Vinicius, and Jude Bellingham start? Projected lineups for Athletic Club vs. Real ...**: [Link](https://worldsoccertalk.com/news/will-trio-kylian-mbappe-vinicius-and-jude-bellingham-start-projected-lineups-for-athletic-club-vs-real-madrid-in-la-liga/)
+- **Asencio back against Bilbao, Huijsen still out**: [Link](https://www.managingmadrid.com/101236/asencio-real-madrid-bilbao-2025-status)
+
+
 ### federica mogherini (N/A, Wed, 3 Dec 2025 09:40:00 -0800)
 
 - **Belgium: EPPO conducts searches at College of Europe and European External Action Service**: [Link](https://www.eppo.europa.eu/en/media/news/belgium-eppo-conducts-searches-college-europe-and-european-external-action-service)
