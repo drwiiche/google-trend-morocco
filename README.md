@@ -1,3 +1,10 @@
+### tottenham (N/A, Tue, 2 Dec 2025 13:00:00 -0800)
+
+- **Tottenham stars frustrated with Thomas Frank and confused by manager's tactics**: [Link](https://www.thesun.co.uk/sport/37492253/tottenham-stars-frustrated-thomas-frank-tactics-rant/)
+- **Tottenham boss Thomas Frank 'very confident' of club owners' support**: [Link](https://www.bbc.com/sport/football/articles/c157v44x22zo)
+- **Thomas Frank 'lacks the balls' to be Tottenham manager and players do not respect him, claims ex-Spurs star**: [Link](https://talksport.com/football/3771788/thomas-frank-tottenham-tactics-ange-postecoglou-champions-league/)
+
+
 ### طقس طنجة (N/A, Tue, 2 Dec 2025 17:50:00 -0800)
 
 - **الأمطار تنقذ بداية الموسم الفلاحي وتبدّد شبح العطش في مناطق متضررة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D9%86%D9%82%D8%B0-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D9%8A-%D9%88%D8%AA%D8%A8-1664417.html)
