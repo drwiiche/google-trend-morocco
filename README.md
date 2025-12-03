@@ -1,3 +1,10 @@
+### kylian mbappé (N/A, Wed, 3 Dec 2025 10:50:00 -0800)
+
+- **‘With the way it’s going now…’ – Dutch icon backs Real Madrid forward to win Ballon d’Or next year**: [Link](https://sports.yahoo.com/articles/way-going-now-dutch-icon-141300919.html)
+- **Ballon d'Or 2026: Wesley Sneijder already hands the trophy to Kylian Mbappé**: [Link](https://foot-africa.com/en/news/ballon-dor-2026-wesley-sneijder-already-hands-the-trophy-to-kylian-mbappe-986879/)
+- **Sneijder on the Ballon d'Or: ‘Now they evaluate the season and achievements – that makes more senseʼ**: [Link](https://tribuna.com/en/news/2025-12-03-sneijder-on-the-ballon-dor-now-they-evaluate-the-season-and-achievements-that-makes-more/)
+
+
 ### napoli (N/A, Wed, 3 Dec 2025 10:40:00 -0800)
 
 - **Coppa Italia: il Cagliari si gioca il passaggio al Maradona di Napoli.**: [Link](https://www.sardegnagol.eu/coppa-italia-il-cagliari-si-gioca-il-passaggio-al-maradona-di-napoli/)
