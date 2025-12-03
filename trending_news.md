@@ -1,3 +1,10 @@
+### olmo (N/A, Wed, 3 Dec 2025 05:10:00 -0800)
+
+- **Barça's Olmo dislocates shoulder; out 1 month**: [Link](https://www.espn.com/soccer/story/_/id/47187825/barcelona-dani-olmo-dislocates-shoulder-miss-1-month)
+- **How Barcelona beat Atletico Madrid at Camp Nou to extend lead atop La Liga table**: [Link](https://www.nytimes.com/athletic/live-blogs/barcelona-vs-atletico-live-updates-la-liga-score-result/wjfO4vtiHkfy/)
+- **Raphinha leads comeback for Barcelona in victory against Atlético Madrid**: [Link](https://www.theguardian.com/football/2025/dec/02/barcelona-atletico-madrd-la-liga-match-report)
+
+
 ### spotify wrapped 2025 (N/A, Wed, 3 Dec 2025 04:30:00 -0800)
 
 - **When will Spotify Wrapped 2025 release? Spotify says it's coming soon**: [Link](https://www.usatoday.com/story/entertainment/music/2025/12/01/spotify-wrapped-2025-release-date/87554500007/)
