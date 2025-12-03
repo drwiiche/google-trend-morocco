@@ -1,3 +1,17 @@
+### طقس طنجة (N/A, Tue, 2 Dec 2025 17:50:00 -0800)
+
+- **الأمطار تنقذ بداية الموسم الفلاحي وتبدّد شبح العطش في مناطق متضررة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D9%86%D9%82%D8%B0-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D9%8A-%D9%88%D8%AA%D8%A8-1664417.html)
+- **تساقطات فكيك تُنعش المراعي.. والرحل ومربو المواشي يستبشرون بموسم رعوي واعد**: [Link](https://ar.le360.ma/economie/DTCB5GWNQVAO5BG5MFXCVHDRAU/)
+- **انطلاقة الموسم الفلاحي في المغرب: تساقطات مطرية وفرص جديدة للفلاحين**: [Link](https://2m.ma/ar/news/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D9%81%D8%B1%D8%B5-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D9%81%D9%84%D8%A7%D8%AD%D9%8A%D9%86-20251129)
+
+
+### dortmund vs leverkusen (N/A, Tue, 2 Dec 2025 12:50:00 -0800)
+
+- **Die Faninfos zum DFB-Pokalspiel bei Borussia Dortmund**: [Link](https://www.bayer04.de/de-de/news/fans/die-faninfos-zum-dfb-pokalspiel-bei-borussia-dortmund)
+- **Umgang mit Guirassy-Vorfall: Effenberg lobt BVB-Trainer Kovac**: [Link](https://www.absolutfussball.com/deutschland/borussia-dortmund/kovac-umgang-mit-guirassy-vorfall-effenberg-lobt-94062771.html)
+- **Guirassy steht im Pokal gegen Leverkusen im Fokus: Legt der BVB sein Pokal-Phlegma ab?**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-will-pokal-phlegma-gegen-leverkusen-ablegen-w1114083-2001895092/)
+
+
 ### chutes de neige maroc (N/A, Tue, 2 Dec 2025 15:30:00 -0800)
 
 - **Froid, pluies et neige : Voici à quoi s’attendre dans les prochains jours**: [Link](https://lematin.ma/regions/froid-pluies-et-neige-voici-a-quoi-sattendre-dans-les-prochains-jours/316638)
