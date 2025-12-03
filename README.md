@@ -1,3 +1,17 @@
+### ليفربول ضد سندرلاند (N/A, Wed, 3 Dec 2025 11:40:00 -0800)
+
+- **صلاح على دكة بدلاء ليفربول للمباراة الثانية على التوالي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D8%B9%D9%84%D9%89-%D8%AF%D9%83%D8%A9-%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D9%84%D9%8A/blte0eaf5b1fb615c18)
+- **تاريخ مواجهات ليفربول وسندرلاند في الدوري الإنجليزي**: [Link](https://hihi2.com/2025/12/02/p3539671.html)
+- **تشكيل ليفربول المتوقعة أمام سندرلاند.. هل تشهد المباراة عودة محمد صلاح؟**: [Link](https://www.arrajol.com/content/390973/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF-%D9%87%D9%84-%D8%AA%D8%B4%D9%87%D8%AF-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD%D8%9F)
+
+
+### wolves – nottm forest (N/A, Wed, 3 Dec 2025 11:40:00 -0800)
+
+- **Nottingham Forest team news vs Wolves confirmed as Sean Dyche makes selection decision**: [Link](https://www.nottinghampost.com/sport/football/football-news/nottingham-forest-team-news-wolves-10684217)
+- **Wolves v Nottm Forest prediction, betting tips and bet builder – Will Wolves’ woes continue?**: [Link](https://talksport.com/betting/3786925/wolves-nottingham-forest-prediction-betting-tips-bet-builder-preview/)
+- **Gallery | Wolves vs Nottingham Forest | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20251203-gallery-wolves-vs-nottingham-forest/)
+
+
 ### leeds united – chelsea (N/A, Wed, 3 Dec 2025 11:30:00 -0800)
 
 - **Cesar Azpilicueta became a true Chelsea hero with antics against old rivals Leeds United in 2021**: [Link](https://www.thechelseachronicle.com/throwbacks/cesar-azpilicueta-became-a-true-chelsea-hero-with-antics-against-old-rivals-leeds-united-in-2021/)
