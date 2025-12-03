@@ -1,3 +1,17 @@
+### kgm maroc (N/A, Wed, 3 Dec 2025 05:10:00 -0800)
+
+- **KGM revient au Maroc : une nouvelle ère automobile**: [Link](https://www.lebrief.ma/video-automobile-kgm-fait-son-retour-au-maroc-grace-a-m-automotiv-100132524/)
+- **KGM, ex-SsangYong, redébarque au Maroc via le réseau M‑AUTOMOTIV**: [Link](https://consonews.ma/62576.html)
+- **Automobile : M-Automotiv lance la marque KGM au Maroc**: [Link](https://laquotidienne.ma/article/economie/automobile-m-automotiv-lance-marque-kgm-maroc)
+
+
+### algerie foot (N/A, Wed, 3 Dec 2025 04:50:00 -0800)
+
+- **Sports - Les Verts prêts à défendre leur trône**: [Link](https://www.lexpressiondz.com/sports/les-verts-prets-a-defendre-leur-trone-400496)
+- **Coupe Arabe des Nations 2025/Algérie - Soudan : Live score**: [Link](https://www.kawarji.com/actu-96583-coupe-arabe-des-nations-2025-algerie-soudan-live-score.html)
+- **ALG : Bougherra : «Il faut être concentrés et très motivés»**: [Link](https://www.footafrique.com/bougherra-il-faut-etre-concentres-et-tres-motives/)
+
+
 ### algerie (N/A, Wed, 3 Dec 2025 06:20:00 -0800)
 
 - **Me Emmanuel Daoud : "Christophe [Gleizes] est debout, c'est un combattant, et il prépare activement sa défense"**: [Link](https://www.radiofrance.fr/franceinter/podcasts/l-invite-de-7h50/l-invite-de-7h50-du-lundi-01-decembre-2025-5780705)
