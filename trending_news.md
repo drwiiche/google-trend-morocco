@@ -1,3 +1,10 @@
+### liverpool vs sunderland (N/A, Wed, 3 Dec 2025 11:50:00 -0800)
+
+- **Liverpool v Sunderland: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/03/liverpool-v-sunderland-premier-league-live)
+- **Confirmed Liverpool line-up v Sunderland**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-sunderland)
+- **How to Watch Liverpool vs. Sunderland on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-liverpool-vs-sunderland-tv-live-stream-12-3-25)
+
+
 ### chelsea (N/A, Wed, 3 Dec 2025 13:10:00 -0800)
 
 - **How big a miss is Caicedo for Chelsea?**: [Link](https://www.bbc.com/sport/football/articles/c9vje1vjx47o)
