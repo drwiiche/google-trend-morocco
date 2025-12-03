@@ -1,3 +1,17 @@
+### algeria vs sudan (N/A, Wed, 3 Dec 2025 05:50:00 -0800)
+
+- **Arab Cup 2025 / Algeria – Sudan: red card for Adam Ounas! (Video)**: [Link](https://foot-africa.com/en/news/arab-cup-2025-algeria-sudan-red-card-for-adam-ounas-video-987026/)
+- **Bougherra Raises the Stakes: “We Will Not Give Up the Title.. and the Opponent Is No Push-Over”**: [Link](https://koorabreak.com/en/227032/)
+- **Once billed the 'next Benzema', Benzia bids to boost Algeria FIFA Arab Cup defence**: [Link](https://ca.sports.yahoo.com/news/once-billed-next-benzema-benzia-103000962.html)
+
+
+### spotify wrapped (N/A, Wed, 3 Dec 2025 04:40:00 -0800)
+
+- **Start Your Wrapped Party**: [Link](https://newsroom.spotify.com/2025-12-03/wrapped-party-how-to/)
+- **2025 Spotify Wrapped: How to see your personalized streaming recap**: [Link](https://www.kare11.com/article/news/nation-world/how-to-see-spotify-wrapped-2025/507-9200a00c-2f80-4c43-ba07-7023bd9ada55)
+- **It's time to unpack Spotify Wrapped. Here's how the music streamer compiled your 2025 recap**: [Link](https://apnews.com/article/spotify-wrapped-2025-release-music-tracking-8a7a7f08150eefd3a26020a4a9d046e1)
+
+
 ### olmo (N/A, Wed, 3 Dec 2025 05:10:00 -0800)
 
 - **Barça's Olmo dislocates shoulder; out 1 month**: [Link](https://www.espn.com/soccer/story/_/id/47187825/barcelona-dani-olmo-dislocates-shoulder-miss-1-month)
