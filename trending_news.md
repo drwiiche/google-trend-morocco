@@ -1,3 +1,17 @@
+### ath. bilbao – real madrid (N/A, Wed, 3 Dec 2025 09:10:00 -0800)
+
+- **Posible alineación del Real Madrid contra el Athletic en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-athletic-en-laliga-ea-sports-f202512-n/)
+- **Convocatoria del Real Madrid contra el Athletic Club**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-athletic-club-02-12-2025)
+- **Sinceramente tuyo**: [Link](https://onefootball.com/en/news/sinceramente-tuyo-42041365)
+
+
+### أتلتيك بيلباو ضد الريال (N/A, Wed, 3 Dec 2025 09:10:00 -0800)
+
+- **هل يحتاج ريال مدريد صفقات شتوية؟.. ألونسو يراوغ في رده**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B5%D9%81%D9%82%D8%A7%D8%AA-%D8%B4%D8%AA%D9%88%D9%8A%D8%A9--%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%B1%D8%A7%D9%88%D8%BA-%D9%81%D9%8A-%D8%B1%D8%AF%D9%87/bltfb67a6c93424aff3)
+- **موعد مباراة ريال مدريد ضد أتلتيك بلباو في الدوري الإسباني والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/12/2/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88)
+- **“التوتر والتمرد” عنوان غرفة ملابس ريال مدريد في عهد ألونسو!**: [Link](https://hihi2.com/2025/12/03/p3541005.html)
+
+
 ### vfl bochum – stuttgart (N/A, Wed, 3 Dec 2025 08:50:00 -0800)
 
 - **Aufstellung im DFB-Pokal: Diese Startelf soll es beim VfB Stuttgart richten**: [Link](https://www.stimme.de/sport/vfb-stuttgart/dfb-pokal-aufstellung-startelf-vfl-bochum-sebastian-hoeness-entscheidung-abwehr-sturm-art-5118026)
