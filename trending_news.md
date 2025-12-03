@@ -1,3 +1,10 @@
+### atalanta – genoa (N/A, Wed, 3 Dec 2025 06:10:00 -0800)
+
+- **🔴 LIVE! Atalanta-Genoa 1-0, tutti gli aggiornamenti in diretta**: [Link](https://www.bergamonews.it/2025/12/03/atalanta-genoa-ottavi-finale-coppa-italia-diretta-live/851912/)
+- **Coppa Italia, le probabili formazioni dei match di oggi**: [Link](https://www.corrieredellosport.it/video/on-air/2025/12/03-145007745/coppa_italia_le_probabili_formazioni_dei_match_di_oggi)
+- **Tutte le news sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-atalanta-genoa-0-0-in-campo-per-la-coppa-italia-piu-tardi-napoli-e-inter/GYiMC1d2/)
+
+
 ### arab cup (N/A, Wed, 3 Dec 2025 06:00:00 -0800)
 
 - **UAE face Jordan tonight in FIFA Arab Cup — Day two recap and today’s fixtures**: [Link](https://gulfnews.com/sport/football/uae-face-jordan-tonight-in-fifa-arab-cup-day-two-recap-and-todays-fixtures-1.500368011)
