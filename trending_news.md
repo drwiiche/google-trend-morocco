@@ -1,3 +1,10 @@
+### tunisie vs palestine (N/A, Thu, 4 Dec 2025 07:20:00 -0800)
+
+- **Live! Watch Palestine vs Tunisia in the FIFA Arab Cup Qatar 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-palestine-vs-tunisia-in-the-fifa-arab-cup-qatar-2025-on-bein-sports-2025-12-04)
+- **Palestine vs Tunisia LIVE: Tunisia take the lead! (0-1)**: [Link](https://www.vavel.com/en-us/soccer/2025/12/04/1243544-palestine-vs-tunisia-live-score-arab-cup.html)
+- **Expert opinion: What adjustments must Tunisia make before their match against Palestine?**: [Link](https://foot-africa.com/en/news/expert-opinion-what-adjustments-must-tunisia-make-before-their-match-against-palestine-985139/)
+
+
 ### قرعة كاس العالم 2026 (N/A, Thu, 4 Dec 2025 04:40:00 -0800)
 
 - **واشنطن تحتضن قرعة كأس العالم 2026**: [Link](https://www.hespress.com/%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AA%D8%AD%D8%AA%D8%B6%D9%86-%D9%82%D8%B1%D8%B9%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-1665859.html)
