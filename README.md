@@ -1,3 +1,17 @@
+### مباريات كاس العرب (N/A, Thu, 4 Dec 2025 04:50:00 -0800)
+
+- **معلول يفضح إخفاق تحضير تونس ويهاجم توقيت كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B9%D9%84%D9%88%D9%84-%D9%8A%D9%81%D8%B6%D8%AD-%D8%A7%D9%95%D8%AE%D9%81%D8%A7%D9%82-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blt6e99523ab9e43c9f)
+- **كأس العرب: مواجهة تونسية فلسطينية، وسوريا تسعى لمواصلة الانتصارات على حساب قطر**: [Link](https://www.bbc.com/arabic/articles/cvgrd9g2ypeo)
+- **نجوم منتخب تونس: نحبُّ فلسطين والمواجهة ضد الفدائي خاصة جداً**: [Link](https://www.alaraby.co.uk/sport/%D9%86%D8%AC%D9%88%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AA%D9%88%D9%86%D8%B3-%D9%86%D8%AD%D8%A8%D9%8F%D9%91-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%84%D9%81%D8%AF%D8%A7%D8%A6%D9%8A-%D8%AE%D8%A7%D8%B5%D8%A9-%D8%AC%D8%AF%D8%A7%D9%8B)
+
+
+### maroc vs oman (N/A, Thu, 4 Dec 2025 04:50:00 -0800)
+
+- **Match Maroc-Oman : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-oman-a-quelle-heure-et-sur-quelles-chaines/317103)
+- **Coupe arabe: les Lions de l’Atlas perdent deux joueurs sur blessure**: [Link](https://sport.le360.ma/football/autres-championnats/coupe-arabe-les-lions-de-latlas-perdent-deux-joueurs-sur-blessure_SZZYTOSGHNGDZG67BMQT5PNOV4/)
+- **Coupe Arabe de la FIFA: Karima Berkaoui « Meilleur joueur » du match Maroc-Iles Comores**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1/)
+
+
 ### مباريات كأس العرب (N/A, Thu, 4 Dec 2025 04:00:00 -0800)
 
 - **المغرب يواجه عمان لحسم التأهل المبكر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B9%D9%85%D8%A7%D9%86-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%85%D8%A8%D9%83%D8%B1-1665772.html)
