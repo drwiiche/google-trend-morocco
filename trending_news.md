@@ -1,3 +1,10 @@
+### fifa arab cup (N/A, Thu, 4 Dec 2025 08:40:00 -0800)
+
+- **Watch Live! Syria vs Qatar in the FIFA Arab Cup Qatar 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-syria-vs-qatar-in-the-fifa-arab-cup-qatar-2025-on-bein-sports-2025-12-04)
+- **Qatar eye win over Syria to get back on track**: [Link](https://thepeninsulaqatar.com/article/04/12/2025/qatar-eye-win-over-syria-to-get-back-on-track)
+- **Qatar seeks to regain momentum against Syria on Thursday, 4 December : FIFA Arab Cup Qatar 2025| Gulf Times**: [Link](https://www.gulf-times.com/article/716322/sport/qatar-seeks-to-regain-momentum-against-syria-on-thursday-4-december-fifa-arab-cup-qatar-2025)
+
+
 ### كاس العرب (N/A, Thu, 4 Dec 2025 08:40:00 -0800)
 
 - **بث مباشر: شاهد مباراة سوريا وقطر في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%88%D9%82%D8%B7%D8%B1-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt2eb84ac0a7b326d8)
