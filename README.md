@@ -1,3 +1,17 @@
+### qatar vs syria (N/A, Thu, 4 Dec 2025 10:50:00 -0800)
+
+- **Qatar eye win over Syria to get back on track**: [Link](https://thepeninsulaqatar.com/article/04/12/2025/qatar-eye-win-over-syria-to-get-back-on-track)
+- **Qatar seeks to regain momentum against Syria on Thursday, 4 December : FIFA Arab Cup Qatar 2025| Gulf Times**: [Link](https://www.gulf-times.com/article/716322/sport/qatar-seeks-to-regain-momentum-against-syria-on-thursday-4-december-fifa-arab-cup-qatar-2025)
+- **Syria vs Qatar LIVE Score Updates: The match is tie (0-1)**: [Link](https://www.vavel.com/en-us/soccer/2025/12/04/1243444-syria-vs-qatar-live-score-updates-arab-cup.html)
+
+
+### qatar (N/A, Thu, 4 Dec 2025 10:50:00 -0800)
+
+- **World Bank: GCC economies demonstrate resilience, advance diversification, and accelerate digital transformation**: [Link](https://economymiddleeast.com/news/world-bank-gcc-economies-demonstrate-resilience-advance-diversification-and-accelerate-digital-transformation/)
+- **World Bank forecasts 2.8 percent growth for Qatar's economy in 2025**: [Link](https://thepeninsulaqatar.com/article/04/12/2025/world-bank-forecasts-28-percent-growth-for-qatars-economy-in-2025)
+- **Qatar selects architect Frida Escobedo to design new headquarters complex for Ministry of Foreign Affairs**: [Link](https://thepeninsulaqatar.com/article/04/12/2025/qatar-selects-architect-frida-escobedo-to-design-a-new-headquarters-complex-for-the-ministry-of-foreign-affairs)
+
+
 ### atlético baleares – espanyol (N/A, Thu, 4 Dec 2025 10:00:00 -0800)
 
 - **Manolo González, sobre Claudio Giráldez: "Cada uno es dueño de su silencio y esclavo de sus palabras"**: [Link](https://www.mundodeportivo.com/futbol/rcd-espanyol/20251203/1002580531/manolo-gonzalez-sobre-claudio-giraldez-dueno-silencio-esclavo-palabras.html)
