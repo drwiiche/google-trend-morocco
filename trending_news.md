@@ -1,3 +1,10 @@
+### sant andreu – celta vigo (N/A, Thu, 4 Dec 2025 12:00:00 -0800)
+
+- **Once Sant Andreu - Celta | Solo repite Fran Beltrán respecto al último partido de Liga**: [Link](https://onefootball.com/es/noticias/once-sant-andreu-celta-solo-repite-fran-beltran-respecto-al-ultimo-partido-de-liga-42048886)
+- **Una vuelta a los orígenes**: [Link](https://www.atlantico.net/celtismo/vuelta-origenes_1_20251204-4081415.html)
+- **Fiesta en el Narcís Sala**: [Link](https://www.mundodeportivo.com/futbol/futbol-catala/20251204/1002580622/fiesta-narcis-sala.html)
+
+
 ### man united vs west ham (N/A, Thu, 4 Dec 2025 11:20:00 -0800)
 
 - **Man Utd vs West Ham LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c5yqm4lp65dt)
