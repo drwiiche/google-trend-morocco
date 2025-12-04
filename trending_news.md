@@ -1,3 +1,10 @@
+### journaliste christophe gleizes (N/A, Thu, 4 Dec 2025 09:40:00 -0800)
+
+- **Condamnation de Christophe Gleizes : Emmanuel Macron promet d’« agir auprès des autorités algériennes »**: [Link](https://www.lemonde.fr/afrique/article/2025/12/04/emmanuel-macron-promet-d-agir-aupres-des-autorites-algeriennes-pour-obtenir-la-liberation-du-journaliste-francais-christophe-gleizes_6655947_3212.html)
+- **“C’est une dictature” : Boualem Sansal dénonce sur RTL un “acharnement” de l’Algérie après la condamnation en appel du journaliste français Christophe Gleizes**: [Link](https://www.rtl.fr/actu/international/c-est-une-dictature-boualem-sansal-denonce-sur-rtl-un-acharnement-de-l-algerie-apres-la-condamnation-en-appel-du-journaliste-francais-christophe-gleizes-7900574020)
+- **Son frère Maxime appelle à la mobilisation de "tous les clubs" de football pour Christophe Gleizes**: [Link](https://www.radiofrance.fr/franceinter/podcasts/l-invite-de-7h50/l-invite-de-7h50-du-jeudi-04-decembre-2025-6004150)
+
+
 ### classement coupe arabe (N/A, Thu, 4 Dec 2025 08:30:00 -0800)
 
 - **Match Maroc-Oman : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-oman-a-quelle-heure-et-sur-quelles-chaines/317103)
