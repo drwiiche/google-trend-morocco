@@ -1,3 +1,10 @@
+### ourense – girona (N/A, Wed, 3 Dec 2025 11:50:00 -0800)
+
+- **Ourense 2-1 Girona: resumen, goles y resultado**: [Link](https://as.com/futbol/copa_del_rey/ourense-girona-en-directo-segunda-ronda-de-la-copa-del-rey-hoy-en-vivo-f202512-d/)
+- **El Ourense es el matagigantes**: [Link](https://www.marca.com/futbol/girona/2025/12/03/ourense-matagigantes.html)
+- **Míchel: "No estoy enfadado por el partido"**: [Link](https://www.mundodeportivo.com/futbol/girona-fc/20251204/1002580787/michel-enfadado-partido.html)
+
+
 ### christophe gleizes (N/A, Wed, 3 Dec 2025 20:20:00 -0800)
 
 - **En Algérie, le journaliste français Christophe Gleizes voit sa peine de sept ans de prison confirmée en appel**: [Link](https://www.lemonde.fr/afrique/article/2025/12/03/en-algerie-le-journaliste-francais-christophe-gleizes-voit-sa-peine-de-sept-ans-de-prison-confirmee-en-appel_6655887_3212.html)
