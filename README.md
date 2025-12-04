@@ -1,3 +1,10 @@
+### maroc football (N/A, Wed, 3 Dec 2025 20:50:00 -0800)
+
+- **Coupe arabe : Sektioui mise sur une préparation tactique ciblée avant d’affronter Oman**: [Link](https://lematin.ma/sports/coupe-arabe-une-preparation-ciblee-pour-le-maroc-avant-daffronter-oman/316979)
+- **Coupe Arabe de la FIFA Qatar-2025: victoire du Maroc face aux Iles Comores 3 à 1**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82/)
+- **Coupe arabe: entre victoire et couacs administratifs, une première journée mouvementée pour les Lions de l’Atlas**: [Link](https://sport.le360.ma/football/lions-atlas/coupe-arabe-entre-victoire-et-couacs-administratifs-une-premiere-journee-mouvementee-pour-les-lions_RR7KTEGORZHAJNTWZD56FAPNRA/)
+
+
 ### santos (N/A, Wed, 3 Dec 2025 17:40:00 -0800)
 
 - **Vojvoda se rende ao talento de Neymar: "Mesmo sem estar bem, ele resolve"**: [Link](https://jogada10.com.br/vojvoda-se-rende-ao-talento-de-neymar-mesmo-sem-estar-bem-ele-resolve/)
