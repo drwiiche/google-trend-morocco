@@ -1,3 +1,17 @@
+### atlético baleares – espanyol (N/A, Thu, 4 Dec 2025 10:00:00 -0800)
+
+- **Manolo González, sobre Claudio Giráldez: "Cada uno es dueño de su silencio y esclavo de sus palabras"**: [Link](https://www.mundodeportivo.com/futbol/rcd-espanyol/20251203/1002580531/manolo-gonzalez-sobre-claudio-giraldez-dueno-silencio-esclavo-palabras.html)
+- **El Espanyol apunta a la Copa: "Saldremos a ganar como si fuera la Liga, la Superbowl o la Meiland"**: [Link](https://www.elperiodico.com/es/deportes/20251203/espanyol-apunta-copa-saldremos-ganar-124413692)
+- **Cita de Primera en el Estadi Balear**: [Link](https://www.ultimahora.es/deportes/atletico-baleares/2025/12/04/2524789/cita-primera-estado-balear.html)
+
+
+### real ávila cf – rayo (N/A, Thu, 4 Dec 2025 09:50:00 -0800)
+
+- **El Rayo no quiere volver a helarse**: [Link](https://as.com/futbol/copa_del_rey/el-rayo-no-quiere-volver-a-helarse-f202512-n/)
+- **Rueda de prensa de Íñigo Pérez en la previa del Real Ávila CF - Rayo Vallecano de Copa del Rey.**: [Link](https://www.rayovallecano.es/noticias/inigo-perez-no-va-a-haber-ningun-tipo-de-confianza)
+- **"Tenemos que salir al campo pensando que podemos dar la sorpresa"**: [Link](https://www.tribunaavila.com/noticias/426472/tenemos-que-salir-al-campo-pensando-que-podemos-dar-la-sorpresa)
+
+
 ### journaliste christophe gleizes (N/A, Thu, 4 Dec 2025 09:40:00 -0800)
 
 - **Condamnation de Christophe Gleizes : Emmanuel Macron promet d’« agir auprès des autorités algériennes »**: [Link](https://www.lemonde.fr/afrique/article/2025/12/04/emmanuel-macron-promet-d-agir-aupres-des-autorites-algeriennes-pour-obtenir-la-liberation-du-journaliste-francais-christophe-gleizes_6655947_3212.html)
