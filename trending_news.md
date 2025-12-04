@@ -1,3 +1,24 @@
+### manchester united – west ham (N/A, Thu, 4 Dec 2025 11:10:00 -0800)
+
+- **Ruben Amorim's team news for Man Utd v West Ham | 4 Dec 2025**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-team-news-for-man-utd-v-west-ham-dec-2025)
+- **Man United ideal squad for Ruben Amorim vs West Ham as Bruno Fernandes concern emerges**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-united-squad-west-ham-33001366)
+- **Rúben Amorim admits ‘not happy’ Man Utd star will have to ‘fight’ to win his place back after “clever” display**: [Link](https://utddistrict.co.uk/ruben-amorim-admits-not-happy-man-utd-star-will-have-to-fight-to-win-his-place-back-after-clever-display/04/12/2025/)
+
+
+### lazio – ac milan (N/A, Thu, 4 Dec 2025 11:10:00 -0800)
+
+- **Lazio Could Make Six Changes to Their Lineup for Second AC Milan Meeting**: [Link](https://thelaziali.com/2025/12/03/lazio-could-make-six-changes-to-their-lineup-for-second-ac-milan-meeting/)
+- **Gazzetta: Castellanos vs Leao: hunger for goals**: [Link](https://milanreports.com/2025/12/04/castellanos-vs-leao-hunger-for-goals/)
+- **Italy's "chief" referee says decision not to award penalty in Milan-Lazio was correct**: [Link](https://www.gazetaexpress.com/en/Italy%27s-chief-referee-says-decision-not-to-award-penalty-in-Milan-Lazio-was-correct/)
+
+
+### ترتيب كأس العرب 2025 (N/A, Thu, 4 Dec 2025 11:00:00 -0800)
+
+- **سفيان البوفتيني ضمن التشكيلة المثالية للجولة الأولى من كأس العرب**: [Link](https://m.elbotola.com/article/2025-12-04-11-33-831.html)
+- **كأس العرب 2025.. لاعب المنتخب الجزائري ضمن التشكيلة المثالية للجولة الأولى – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%B6%D9%85%D9%86-%D8%A7)
+- **مباراة فريقي عمان و المغرب (ب) في بطولة كأس العرب - دور المجموعات**: [Link](https://www.filgoal.com/matches/369149)
+
+
 ### qatar vs syria (N/A, Thu, 4 Dec 2025 10:50:00 -0800)
 
 - **Qatar eye win over Syria to get back on track**: [Link](https://thepeninsulaqatar.com/article/04/12/2025/qatar-eye-win-over-syria-to-get-back-on-track)
