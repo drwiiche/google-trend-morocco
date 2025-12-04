@@ -1,3 +1,10 @@
+### christophe gleizes (N/A, Wed, 3 Dec 2025 20:20:00 -0800)
+
+- **En Algérie, le journaliste français Christophe Gleizes voit sa peine de sept ans de prison confirmée en appel**: [Link](https://www.lemonde.fr/afrique/article/2025/12/03/en-algerie-le-journaliste-francais-christophe-gleizes-voit-sa-peine-de-sept-ans-de-prison-confirmee-en-appel_6655887_3212.html)
+- **Algérie : dix ans de prison requis en appel contre le journaliste français Christophe Gleizes**: [Link](https://www.lefigaro.fr/international/algerie-juge-en-appel-en-presence-du-numero-3-de-la-fifa-le-journaliste-francais-christophe-gleizes-demande-la-clemence-20251203)
+- **Me Emmanuel Daoud : "Christophe [Gleizes] est debout, c'est un combattant, et il prépare activement sa défense"**: [Link](https://www.radiofrance.fr/franceinter/podcasts/l-invite-de-7h50/l-invite-de-7h50-du-lundi-01-decembre-2025-5780705)
+
+
 ### leeds united vs chelsea (N/A, Wed, 3 Dec 2025 11:50:00 -0800)
 
 - **Leeds 3-1 Chelsea: Struggling hosts dent Blues' title ambitions**: [Link](https://www.bbc.com/sport/football/live/ceq19zy71xdt)
