@@ -1,3 +1,10 @@
+### santos (N/A, Wed, 3 Dec 2025 17:40:00 -0800)
+
+- **Vojvoda se rende ao talento de Neymar: "Mesmo sem estar bem, ele resolve"**: [Link](https://jogada10.com.br/vojvoda-se-rende-ao-talento-de-neymar-mesmo-sem-estar-bem-ele-resolve/)
+- **Santos tenta encerrar longo jejum como visitante contra o Juventude**: [Link](https://www.terra.com.br/esportes/santos/santos-tenta-encerrar-longo-jejum-como-visitante-contra-o-juventude,f09b705409f209fad4c931462129dfe8fd5no9wq.html)
+- **Atuação de Neymar repercute entre torcedores europeus: 'Lenda'**: [Link](https://www.lance.com.br/fora-de-campo/atuacao-de-neymar-repercute-entre-torcedores-europeus-lenda.html)
+
+
 ### liverpool (N/A, Wed, 3 Dec 2025 13:20:00 -0800)
 
 - **Merino and Saka score as Arsenal comfortably beat Brentford**: [Link](https://www.bbc.com/sport/football/live/c8653v0gv4xt)
