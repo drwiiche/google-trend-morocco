@@ -1,3 +1,10 @@
+### liverpool (N/A, Wed, 3 Dec 2025 13:20:00 -0800)
+
+- **Merino and Saka score as Arsenal comfortably beat Brentford**: [Link](https://www.bbc.com/sport/football/live/c8653v0gv4xt)
+- **Arsenal 2-0 Brentford, Leeds 3-1 Chelsea, and more: Premier League – as it happened**: [Link](https://www.theguardian.com/football/live/2025/dec/03/arsenal-v-brentford-leeds-v-chelsea-and-more-premier-league-live)
+- **Matchday 14 of the EPL: Victories in intense competition!**: [Link](https://zamin.uz/en/sport/173550-matchday-14-of-the-epl-victories-in-intense-competition.html)
+
+
 ### ourense – girona (N/A, Wed, 3 Dec 2025 11:50:00 -0800)
 
 - **Ourense 2-1 Girona: resumen, goles y resultado**: [Link](https://as.com/futbol/copa_del_rey/ourense-girona-en-directo-segunda-ronda-de-la-copa-del-rey-hoy-en-vivo-f202512-d/)
