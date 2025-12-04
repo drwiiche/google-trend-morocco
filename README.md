@@ -1,3 +1,10 @@
+### manchester united (N/A, Thu, 4 Dec 2025 12:40:00 -0800)
+
+- **Ruben Amorim's team news for Man Utd v West Ham | 4 Dec 2025**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-team-news-for-man-utd-v-west-ham-dec-2025)
+- **Man United vs. West Ham: Matheus Cunha returns to XI but Red Devils missing key defender for Hammers battle**: [Link](https://www.sportsmole.co.uk/football/man-utd/injury-news/news/teams-are-in-cunha-back-but-man-united-have-key-defender-missing-for-west-ham-clash_587138.html)
+- **Man United predicted squad for West Ham as Bruno Fernandes concern emerges**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-united-squad-west-ham-33001366)
+
+
 ### man united (N/A, Thu, 4 Dec 2025 13:20:00 -0800)
 
 - **Ruben Amorim's team news for Man Utd v West Ham | 4 Dec 2025**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-team-news-for-man-utd-v-west-ham-dec-2025)
