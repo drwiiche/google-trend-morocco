@@ -1,3 +1,17 @@
+### man united vs west ham (N/A, Thu, 4 Dec 2025 11:20:00 -0800)
+
+- **Man Utd vs West Ham LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c5yqm4lp65dt)
+- **Manchester United vs West Ham live updates: Cunha, Heaven in line up for Premier League game - The Athletic**: [Link](https://www.nytimes.com/athletic/live-blogs/manchester-united-vs-west-ham-live-updates-premier-league-score-result/unxukY2MBwuV/)
+- **Jarrod Bowen Faces Toughest Spell Yet: Can West Ham’s Star Break His Drought Against Manchester United?**: [Link](https://azat.tv/en/jarrod-bowen-west-ham-form-manchester-united-2025/)
+
+
+### كأس العرب (N/A, Thu, 4 Dec 2025 08:50:00 -0800)
+
+- **نتيجة وملخص مباراة سوريا ضد قطر في كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/4/%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%B6%D8%AF-%D9%82%D8%B7%D8%B1-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **كأس العرب/ سوريا تحقق تعادلا "مثيرا" أمام قطر (1-1) وتحافظ على الوصافة**: [Link](https://m.elbotola.com/article/2025-12-04-18-58-769.html)
+- **خريبين يُهدي سورية تعادلاً بطعم الفوز أمام قطر ويعقّد مهمة العنابي**: [Link](https://www.alaraby.co.uk/sport/%D8%AE%D8%B1%D9%8A%D8%A8%D9%8A%D9%86-%D9%8A%D9%8F%D9%87%D8%AF%D9%8A-%D8%B3%D9%88%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D8%A7%D9%8B-%D8%A8%D8%B7%D8%B9%D9%85-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A3%D9%85%D8%A7%D9%85-%D9%82%D8%B7%D8%B1-%D9%88%D9%8A%D8%B9%D9%82%D9%91%D8%AF-%D9%85%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D9%86%D8%A7%D8%A8%D9%8A)
+
+
 ### مان يونايتد ضد وست هام (N/A, Thu, 4 Dec 2025 11:20:00 -0800)
 
 - **مفاجأة في دفاع مانشستر يونايتد أمام وست هام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%81%D9%8A-%D8%AF%D9%81%D8%A7%D8%B9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85/blt38707c22e4ff17e5)
