@@ -1,3 +1,52 @@
+### كاس العرب (N/A, Thu, 4 Dec 2025 08:40:00 -0800)
+
+- **بث مباشر: شاهد مباراة سوريا وقطر في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%88%D9%82%D8%B7%D8%B1-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt2eb84ac0a7b326d8)
+- **موعد مباراة قطر ضد سوريا بكأس العرب والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/3/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%82%D8%B7%D8%B1-%D8%B6%D8%AF-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **محروس يُحذر مدرب منتخب سورية قبل لقاء قطر: مباراة تونس ليست معياراً**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D8%AD%D8%B1%D9%88%D8%B3-%D9%8A%D9%8F%D8%AD%D8%B0%D8%B1-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B3%D9%88%D8%B1%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D9%84%D9%82%D8%A7%D8%A1-%D9%82%D8%B7%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D9%84%D9%8A%D8%B3%D8%AA-%D9%85%D8%B9%D9%8A%D8%A7%D8%B1%D8%A7%D9%8B)
+
+
+### cup arab (N/A, Thu, 4 Dec 2025 08:40:00 -0800)
+
+- **Al-Sakitioui Responds to Queiroz's Possession Strategy: "The 90 Minutes Will Dictate Our Approach"**: [Link](http://m.elbotola.com/en/article/2025-12-04-12-16-598.html)
+- **Sektioui : Only a win will keep Morocco alive in the Arab Cup**: [Link](https://en.yabiladi.com/articles/details/182777/sektioui-only-will-keep-morocco.html)
+- **Arab Cup 2025 / Oman - Morocco: Which channels will broadcast the match live and at what time?**: [Link](https://foot-africa.com/en/news/arab-cup-2025-oman-morocco-which-channels-will-broadcast-the-match-live-and-at-what-time-987137/)
+
+
+### arab cup 2025 (N/A, Thu, 4 Dec 2025 08:40:00 -0800)
+
+- **Arab Cup 2025: Who are the most decisive players so far**: [Link](https://sports.yahoo.com/articles/arab-cup-2025-most-decisive-141100965.html)
+- **Arab Cup 2025: Who are the most decisive players so far**: [Link](https://foot-africa.com/en/news/arab-cup-2025-who-are-the-most-decisive-players-so-far-988436/)
+- **Arab Cup: Sudan and Algeria Play Out Goalless Draw in Group D Opener**: [Link](https://m.elbotola.com/en/article/2025-12-03-13-58-198.html)
+
+
+### palestine vs tunisia (N/A, Thu, 4 Dec 2025 08:30:00 -0800)
+
+- **How to Watch Palestine vs Tunisia in the FIFA Arab Cup Qatar 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/how-to-watch-palestine-vs-tunisia-in-the-fifa-arab-cup-qatar-2025-on-bein-sports-2025-12-04)
+- **Ismail Elfath to Referee Tunisia vs. Palestine Arab Cup Match (Tomorrow 15:30 GMT+1)**: [Link](https://m.elbotola.com/en/article/2025-12-03-18-56-781.html)
+- **Expert opinion: What adjustments must Tunisia make before their match against Palestine?**: [Link](https://foot-africa.com/en/news/expert-opinion-what-adjustments-must-tunisia-make-before-their-match-against-palestine-985139/)
+
+
+### arab cup (N/A, Thu, 4 Dec 2025 08:30:00 -0800)
+
+- **Morocco Stands Out: Only African Team to Win and Lead a Group After Arab Cup Opening Round**: [Link](https://m.elbotola.com/en/article/2025-12-03-22-54-356.html)
+- **Administrative Issue Delays Morocco’s Arrival Before Comoros Match**: [Link](https://www.moroccoworldnews.com/2025/12/270453/administrative-issue-delays-moroccos-arrival-before-comoros-match/)
+- **Arab Cup 2025: Karim El Berkaoui named Man of the Match**: [Link](https://mountakhab.net/en/arab-cup-2025-karim-el-berkaoui-named-man-of-the-match/)
+
+
+### tunisie vs (N/A, Thu, 4 Dec 2025 08:30:00 -0800)
+
+- **Goal and Highlights for Tunisia 0-1 Syria in FIFA Arab Nations Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/01/1243232-tunisia-vs-syria-live-score-arab-cup.html)
+- **President al-Sharaa congratulates National Team after victory over Tunisia in Arab Cup**: [Link](https://sana.sy/en/presidency/2281054/)
+- **Live Updates: Tunisia Vs Syria - FIFA Arab Cup Qatar 2025**: [Link](https://menafn.com/1110421079/Live-Updates-Tunisia-Vs-Syria-FIFA-Arab-Cup-Qatar-2025)
+
+
+### tunisie (N/A, Thu, 4 Dec 2025 08:20:00 -0800)
+
+- **Coupe Arabe 2025 : La Tunisie ouvre déjà le score contre la Palestine !**: [Link](https://www.beinsports.com/fr-fr/football/coupe-arabe/articles-video/coupe-arabe-2025-la-tunisie-ouvre-d%C3%A9j%C3%A0-le-score-contre-la-palestine-2025-12-04?videopage=true)
+- **Ihab Abu Jazar: La défaite tunisienne face à la Syrie est trompeuse**: [Link](https://www.mosaiquefm.net/fr/football/1484721/ihab-abu-jazar-la-defaite-tunisienne-face-a-la-syrie-est-trompeuse)
+- **Ismail Elfath arbitrera Tunisie-Palestine en Coupe Arabe (demain 15h30 GMT+1)**: [Link](https://m.elbotola.com/fr/article/2025-12-03-18-56-420.html)
+
+
 ### tunisie vs palestine (N/A, Thu, 4 Dec 2025 07:20:00 -0800)
 
 - **Live! Watch Palestine vs Tunisia in the FIFA Arab Cup Qatar 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-palestine-vs-tunisia-in-the-fifa-arab-cup-qatar-2025-on-bein-sports-2025-12-04)
