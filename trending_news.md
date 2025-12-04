@@ -1,3 +1,10 @@
+### tirage coupe du monde 2026 (N/A, Thu, 4 Dec 2025 12:30:00 -0800)
+
+- **Mondial 2026 : équipes, chapeaux, mode d'emploi… tout savoir sur le tirage au sort**: [Link](https://lematin.ma/sports/mondial-2026-equipes-chapeaux-tout-savoir-sur-le-tirage-au-sort/317189)
+- **Mondial 2026: le pire et le meilleur tirage pour les Lions de l’Atlas**: [Link](https://sport.le360.ma/coupe-du-monde/mondial-2026-le-pire-et-le-meilleur-tirage-pour-les-lions-de-latlas_DEZIY32C5FBTRHZCFPM4AIKD4Y/)
+- **Trump assistera au tirage au sort de la Coupe du Monde 2026 vendredi à Washington**: [Link](https://m.elbotola.com/fr/article/2025-12-03-12-10-317.html)
+
+
 ### sant andreu – celta vigo (N/A, Thu, 4 Dec 2025 12:00:00 -0800)
 
 - **Once Sant Andreu - Celta | Solo repite Fran Beltrán respecto al último partido de Liga**: [Link](https://onefootball.com/es/noticias/once-sant-andreu-celta-solo-repite-fran-beltran-respecto-al-ultimo-partido-de-liga-42048886)
