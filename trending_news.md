@@ -1,3 +1,17 @@
+### man united (N/A, Thu, 4 Dec 2025 13:20:00 -0800)
+
+- **Ruben Amorim's team news for Man Utd v West Ham | 4 Dec 2025**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-team-news-for-man-utd-v-west-ham-dec-2025)
+- **Man United vs. West Ham: Matheus Cunha returns to XI but Red Devils missing key defender for Hammers battle**: [Link](https://www.sportsmole.co.uk/football/man-utd/injury-news/news/teams-are-in-cunha-back-but-man-united-have-key-defender-missing-for-west-ham-clash_587138.html)
+- **Man United predicted squad for West Ham as Bruno Fernandes concern emerges**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-united-squad-west-ham-33001366)
+
+
+### لاتسيو ضد ميلان (N/A, Thu, 4 Dec 2025 12:50:00 -0800)
+
+- **لياو وجاشاري يتصدران تشكيل ميلان ضد لاتسيو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%A7%D9%88-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%B5%D8%AF%D8%A7%D9%85-%D9%84%D8%A7%D8%AA%D8%B3%D9%8A%D9%88/blt7e3ffeecf819c2a3)
+- **أرقام مهمة قبل مباراة ميلان ولاتسيو**: [Link](https://hihi2.com/2025/12/04/p3541965.html)
+- **الكشف عن عقوبة اليغري بعد طرده**: [Link](https://www.elsport.com/news/show/802542/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%A7%D9%84%D9%8A%D8%BA%D8%B1%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%B7%D8%B1%D8%AF%D9%87)
+
+
 ### flashscore (N/A, Thu, 4 Dec 2025 13:20:00 -0800)
 
 - **Lionel Messi on historic run as Inter Miami host MLS Cup**: [Link](https://www.mlssoccer.com/playoffs/2025/news/lionel-messi-on-historic-run-as-inter-miami-host-mls-cup)
