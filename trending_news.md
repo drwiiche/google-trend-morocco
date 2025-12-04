@@ -1,3 +1,17 @@
+### flashscore (N/A, Thu, 4 Dec 2025 13:20:00 -0800)
+
+- **Lionel Messi on historic run as Inter Miami host MLS Cup**: [Link](https://www.mlssoccer.com/playoffs/2025/news/lionel-messi-on-historic-run-as-inter-miami-host-mls-cup)
+- **Alcaraz watches Messi & Inter Miami make history**: [Link](https://www.atptour.com/en/news/messi-alcaraz-november-2025-inter-miami)
+- **Inter Miami, hardened by past failure and a happy accident, hits peak for MLS Cup - The Athletic**: [Link](https://www.nytimes.com/athletic/6848447/2025/11/30/inter-miami-mls-cup-messi-mascherano-playoffs/)
+
+
+### cartagena – valence (N/A, Thu, 4 Dec 2025 12:00:00 -0800)
+
+- **Cartagena - Valencia en directo | Copa del Rey hoy en vivo**: [Link](https://www.marca.com/futbol/copa-del-rey/cartagena-valencia/2025/12/04/01_0105_20251204_3554_191-directo.html)
+- **Kike Mateu: Segunda oportunidad**: [Link](https://www.lasprovincias.es/valenciacf/kike-mateu-segunda-oportunidad-20251203014021-nt.html)
+- **Ramazani entra en la convocatoria para el partido de Copa contra el Cartagena**: [Link](https://tribunadeportivavalencia.com/ramazani-entra-en-la-convocatoria-para-el-partido-de-copa-contra-el-cartagena/)
+
+
 ### tirage coupe du monde 2026 (N/A, Thu, 4 Dec 2025 12:30:00 -0800)
 
 - **Mondial 2026 : équipes, chapeaux, mode d'emploi… tout savoir sur le tirage au sort**: [Link](https://lematin.ma/sports/mondial-2026-equipes-chapeaux-tout-savoir-sur-le-tirage-au-sort/317189)
