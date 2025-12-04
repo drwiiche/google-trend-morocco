@@ -1,3 +1,10 @@
+### lazio vs milan (N/A, Thu, 4 Dec 2025 13:10:00 -0800)
+
+- **Lazio Could Make Six Changes to Their Lineup for Second AC Milan Meeting**: [Link](https://thelaziali.com/2025/12/03/lazio-could-make-six-changes-to-their-lineup-for-second-ac-milan-meeting/)
+- **Gazzetta: Castellanos vs Leao: hunger for goals**: [Link](https://milanreports.com/2025/12/04/castellanos-vs-leao-hunger-for-goals/)
+- **The five key battles that could win or lose the game for Milan against Lazio**: [Link](https://sempremilan.com/five-key-battles-lazio-milan-coppa)
+
+
 ### manchester united (N/A, Thu, 4 Dec 2025 12:40:00 -0800)
 
 - **Ruben Amorim's team news for Man Utd v West Ham | 4 Dec 2025**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-team-news-for-man-utd-v-west-ham-dec-2025)
