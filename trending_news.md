@@ -1,3 +1,17 @@
+### vladimir poutine (N/A, Wed, 3 Dec 2025 23:50:00 -0800)
+
+- **EN DIRECT, guerre en Ukraine : Donald Trump salue une « très bonne rencontre » entre Steve Witkoff, Jared Kushner et Vladimir Poutine**: [Link](https://www.lemonde.fr/international/live/2025/12/03/en-direct-guerre-en-ukraine-l-allemagne-deploie-arrow-pour-renforcer-sa-defense-antimissiles-face-a-la-russie-et-securiser-le-ciel-europeen_6655415_3210.html)
+- **«Guerre avec l’Europe» : «Lorsque Poutine fait cette déclaration, il se garde bien de dire qu’elle a déjà commencé»**: [Link](https://www.lefigaro.fr/international/guerre-avec-l-europe-lorsque-poutine-fait-cette-declaration-il-se-garde-bien-de-dire-qu-elle-a-deja-commence-20251203)
+- **Réveil Courrier du 3 décembre 2025**: [Link](https://www.courrierinternational.com/reveil/2025-12-03)
+
+
+### الدوري الانجليزي (N/A, Wed, 3 Dec 2025 14:30:00 -0800)
+
+- **أموريم: ثنائي مانشستر يونايتد مهدد بالغياب.. وكونيا تحت الضغط**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%85%D9%88%D8%B1%D9%8A%D9%85-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%85%D9%87%D8%AF%D8%AF-%D8%A8%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8--%D9%88%D9%83%D9%88%D9%86%D9%8A%D8%A7-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7/blta3124cf51e16a7a1)
+- **موعد مباراة مانشستر يونايتد ووست هام يونايتد في الدوري الإنجليزي الممتاز والقنوات الناقلة والتشكيل المتوقع**: [Link](https://www.tahiamasr.com/1003929)
+- **كونيا يعود إلى التدريبات**: [Link](https://www.manutd.com/ar/news/detail/matheus-cunha-back-in-training-for-man-utd-ahead-of-west-ham)
+
+
 ### maroc football (N/A, Wed, 3 Dec 2025 20:50:00 -0800)
 
 - **Coupe arabe : Sektioui mise sur une préparation tactique ciblée avant d’affronter Oman**: [Link](https://lematin.ma/sports/coupe-arabe-une-preparation-ciblee-pour-le-maroc-avant-daffronter-oman/316979)
