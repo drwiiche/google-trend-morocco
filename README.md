@@ -1,3 +1,10 @@
+### ac milan (N/A, Thu, 4 Dec 2025 13:20:00 -0800)
+
+- **Curva Sud send message to AC Milan fans ahead of Lazio clash: “Raise your voice”**: [Link](https://sempremilan.com/curva-sud-message-lazio-clash-voice)
+- **Sarri Offers Var Suggestion as He Aims Dig at Allegri After Milan vs Lazio Debacle**: [Link](https://thelaziali.com/2025/12/03/maurizio-sarri-var-dig-massimiliano-allegri-milan-laziom/)
+- **Lazio knocks AC Milan out of Coppa Italia**: [Link](https://www.beinsports.com/en-nz/football/coppa-italia/articles-video/lazio-knocks-ac-milan-out-of-coppa-italia-2025-12-04)
+
+
 ### lazio vs milan (N/A, Thu, 4 Dec 2025 13:10:00 -0800)
 
 - **Lazio Could Make Six Changes to Their Lineup for Second AC Milan Meeting**: [Link](https://thelaziali.com/2025/12/03/lazio-could-make-six-changes-to-their-lineup-for-second-ac-milan-meeting/)
