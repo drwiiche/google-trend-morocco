@@ -1,3 +1,10 @@
+### aston villa (N/A, Wed, 3 Dec 2025 13:50:00 -0800)
+
+- **How to watch Aston Villa vs Arsenal live: Stream, TV channel, team news, prediction**: [Link](https://sports.yahoo.com/articles/watch-aston-villa-vs-arsenal-094720737.html)
+- **Premier League Matchweek 15 schedule, how to watch: Arsenal at Aston Villa**: [Link](https://www.nbcconnecticut.com/news/sports/soccer/premier-league-matchweek-15-schedule-tv-channel-stream-2025/3671139/)
+- **TAKE YOUR PICK: NBC Sports to show 20 Premier League matches over 7 days**: [Link](https://www.frontrowsoccer.com/2025/12/01/take-your-pick-nbc-sports-to-show-20-premier-league-matches-over-7-days/)
+
+
 ### ليفربول (N/A, Wed, 3 Dec 2025 13:50:00 -0800)
 
 - **من ملك الآنفيلد لمقاعد البدلاء.. هل انتهى عصر محمد صلاح في ليفربول؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%86-%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%A7%D9%93%D9%86%D9%81%D9%8A%D9%84%D8%AF-%D9%84%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%A8%D8%AF%D9%84%D8%A7%D8%A1--%D9%87%D9%84-%D8%A7%D9%86%D8%AA%D9%87%D9%89-%D8%B9%D8%B5%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%81%D9%8A-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt6976a83a1391feb6)
