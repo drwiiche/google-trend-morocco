@@ -1,3 +1,10 @@
+### ليفربول (N/A, Wed, 3 Dec 2025 13:50:00 -0800)
+
+- **من ملك الآنفيلد لمقاعد البدلاء.. هل انتهى عصر محمد صلاح في ليفربول؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%86-%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%A7%D9%93%D9%86%D9%81%D9%8A%D9%84%D8%AF-%D9%84%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%A8%D8%AF%D9%84%D8%A7%D8%A1--%D9%87%D9%84-%D8%A7%D9%86%D8%AA%D9%87%D9%89-%D8%B9%D8%B5%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%81%D9%8A-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt6976a83a1391feb6)
+- **الهلال الأقرب للتعاقد مع صلاح...**: [Link](https://alghad.com/Section-140/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%82%D8%B1%D8%A8-%D9%84%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%B5%D9%84%D8%A7%D8%AD-2057362)
+- **مستقبل محمد صلاح مع ليفربول.. غموض يحيط بالنجم المصري وسط شائعات الانتقالات**: [Link](https://www.arrajol.com/content/391053/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D8%B9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%BA%D9%85%D9%88%D8%B6-%D9%8A%D8%AD%D9%8A%D8%B7-%D8%A8%D8%A7%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%88%D8%B3%D8%B7-%D8%B4%D8%A7%D8%A6%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D8%A7%D8%AA)
+
+
 ### vladimir poutine (N/A, Wed, 3 Dec 2025 23:50:00 -0800)
 
 - **EN DIRECT, guerre en Ukraine : Donald Trump salue une « très bonne rencontre » entre Steve Witkoff, Jared Kushner et Vladimir Poutine**: [Link](https://www.lemonde.fr/international/live/2025/12/03/en-direct-guerre-en-ukraine-l-allemagne-deploie-arrow-pour-renforcer-sa-defense-antimissiles-face-a-la-russie-et-securiser-le-ciel-europeen_6655415_3210.html)
