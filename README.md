@@ -1,3 +1,10 @@
+### مباريات كأس العرب (N/A, Thu, 4 Dec 2025 04:00:00 -0800)
+
+- **المغرب يواجه عمان لحسم التأهل المبكر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B9%D9%85%D8%A7%D9%86-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%85%D8%A8%D9%83%D8%B1-1665772.html)
+- **السكتيوي: "في المباراة السابقة افتقدنا لـ10 لاعبين منهم بنشرقي والهنوري وميهري للإصابة والكرتي وبنتايك لتفادي الإرهاق"**: [Link](https://m.elbotola.com/article/2025-12-04-11-43-888.html)
+- **المغرب الاستثناء الأفريقي في افتتاحيات كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blt5d4bbc00ef0c4e8b)
+
+
 ### aston villa (N/A, Wed, 3 Dec 2025 13:50:00 -0800)
 
 - **How to watch Aston Villa vs Arsenal live: Stream, TV channel, team news, prediction**: [Link](https://sports.yahoo.com/articles/watch-aston-villa-vs-arsenal-094720737.html)
