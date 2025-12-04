@@ -1,3 +1,10 @@
+### classement coupe arabe (N/A, Thu, 4 Dec 2025 08:30:00 -0800)
+
+- **Match Maroc-Oman : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-oman-a-quelle-heure-et-sur-quelles-chaines/317103)
+- **Coupe arabe: les Lions de l’Atlas perdent deux joueurs sur blessure**: [Link](https://sport.le360.ma/football/autres-championnats/coupe-arabe-les-lions-de-latlas-perdent-deux-joueurs-sur-blessure_SZZYTOSGHNGDZG67BMQT5PNOV4/)
+- **Carlos Queiroz : « J'ai battu le Maroc deux fois, mais on ne gagne pas avec le passé »**: [Link](https://m.elbotola.com/fr/article/2025-12-04-11-22-929.html)
+
+
 ### fifa arab cup (N/A, Thu, 4 Dec 2025 08:40:00 -0800)
 
 - **Watch Live! Syria vs Qatar in the FIFA Arab Cup Qatar 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-syria-vs-qatar-in-the-fifa-arab-cup-qatar-2025-on-bein-sports-2025-12-04)
