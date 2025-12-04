@@ -1,3 +1,10 @@
+### مان يونايتد ضد وست هام (N/A, Thu, 4 Dec 2025 11:20:00 -0800)
+
+- **مفاجأة في دفاع مانشستر يونايتد أمام وست هام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%81%D9%8A-%D8%AF%D9%81%D8%A7%D8%B9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85/blt38707c22e4ff17e5)
+- **ملخص ما قدمه برونو فيرنانديز في الدوري الانجليزي هذا الموسم**: [Link](https://hihi2.com/2025/12/04/p3542439.html)
+- **دفعة معنوية لـ"الشياطين" بعودة رأس الحربة**: [Link](https://24.ae/article/933509/)
+
+
 ### manchester united – west ham (N/A, Thu, 4 Dec 2025 11:10:00 -0800)
 
 - **Ruben Amorim's team news for Man Utd v West Ham | 4 Dec 2025**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-team-news-for-man-utd-v-west-ham-dec-2025)
