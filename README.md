@@ -1,3 +1,10 @@
+### leeds united vs chelsea (N/A, Wed, 3 Dec 2025 11:50:00 -0800)
+
+- **Leeds 3-1 Chelsea: Struggling hosts dent Blues' title ambitions**: [Link](https://www.bbc.com/sport/football/live/ceq19zy71xdt)
+- **Tanaka, Japan's 12th Premier League scorer, contributes to EPL's debut goal against Chelsea → Leeds 31 victory**: [Link](https://en.sportschosun.com/sports/2025/12/tanaka-japans-12th-premier-league-scorer-contributes-to-130655)
+- **“The reason…” – Maresca explains half time change for second game in a row**: [Link](https://chelsea.news/2025/12/estevao-maresca-explains-half-time-change/)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Wed, 3 Dec 2025 14:20:00 -0800)
 
 - **ترتيب الدوري الانجليزي بعد انتهاء مباريات اليوم**: [Link](https://hihi2.com/2025/12/04/p3541687.html)
