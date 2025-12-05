@@ -1,3 +1,17 @@
+### hamza igamane (N/A, Fri, 5 Dec 2025 13:30:00 -0800)
+
+- **LOSC vs Marseille tonight, Lille's late heroics face Marseille's defensive crisis in crucial top-three clash**: [Link](https://www.red94.net/news/89056-losc-vs-marseille-faces-off-tonight-in-crucial-ligue-1-clash-both-teams-eyeing-t/)
+- **Marseille’s prolific attack faces in-form Lille in Ligue 1**: [Link](https://www.dailypioneer.com/2025/sports/marseille-s-prolific-attack-faces-in-form-lille-in-ligue-1.html)
+- **Where Can I Watch: Lille vs. Marseille On beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/where-can-i-watch-lille-vs-marseille-on-bein-sports-2025-12-05)
+
+
+### curaçao (N/A, Fri, 5 Dec 2025 11:20:00 -0800)
+
+- **LATAM Airlines Boosts Curaçao’s South American Access with New Routes to Lima and Bogotá**: [Link](https://www.travelandtourworld.com/news/article/latam-airlines-boosts-curacaos-south-american-access-with-new-routes-to-lima-and-bogota/)
+- **Curaçao receives first-ever LATAM flights from Bogotá, Lima**: [Link](https://www.caribbeannationalweekly.com/travel/curacao-receives-first-ever-latam-flights-from-bogota-lima/)
+- **New LATAM Flight Highlights Curacao Tourism Looks Towards Latin America**: [Link](https://eturbonews.com/new-latam-flight-highlights-curacao-tourism-looks-towards-latin-america/)
+
+
 ### saudi arabia (N/A, Fri, 5 Dec 2025 12:20:00 -0800)
 
 - **‘I’ve had all the luck you can get’: Michael Caine retires for the fourth time**: [Link](https://www.theguardian.com/film/2025/dec/05/michael-caine-actor-retires-for-fourth-time)
