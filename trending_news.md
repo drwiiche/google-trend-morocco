@@ -1,3 +1,10 @@
+### achraf hakimi (N/A, Thu, 4 Dec 2025 19:20:00 -0800)
+
+- **حكيمي يدخل مرحلة حاسمة من التأهيل**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%AF%D8%AE%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%8A%D9%84-1665957.html)
+- **"ليكيب"/حكيمي واثق من مشاركته في المباراة الافتتاحية لـ"الكان" وباريس سان جيرمان يتحفّظ**: [Link](https://m.elbotola.com/article/2025-12-03-10-49-923.html)
+- **أشرف حكيمي يبشر المغاربة وباريس سان جيرمان يصدر بيانا بشأنه**: [Link](https://sport.lesiteinfo.com/internationaux/482500.html)
+
+
 ### ac milan (N/A, Thu, 4 Dec 2025 13:20:00 -0800)
 
 - **Curva Sud send message to AC Milan fans ahead of Lazio clash: “Raise your voice”**: [Link](https://sempremilan.com/curva-sud-message-lazio-clash-voice)
