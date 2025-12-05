@@ -1,3 +1,10 @@
+### igamane (N/A, Fri, 5 Dec 2025 14:00:00 -0800)
+
+- **Lille 1-0 Marseille: Mbappe strike closes gap to Ligue 1 summit**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/lille-1-0-marseille-mbappe-strike-closes-gap-to-ligue-1-summit-2025-12-05)
+- **Marseille's prolific attack faces in-form Lille in Ligue 1**: [Link](https://www.hngnews.com/national_sports/marseilles-prolific-attack-faces-in-form-lille-in-ligue-1/article_f389f1e6-2030-5370-a616-b786dc778663.html)
+- **Ligue 1 Predictions | Round 15: Lille host Marseille as OGC Nice bid to exit crisis**: [Link](https://www.getfootballnewsfrance.com/2025/ligue-1-predictions-round-15-lille-host-marseille-as-ogc-nice-bid-to-exit-crisis/)
+
+
 ### اسكتلندا (N/A, Fri, 5 Dec 2025 12:00:00 -0800)
 
 - **جراح عديدة ومؤامرة.. ماذا ينتظر المغرب أمام البرازيل في كأس العالم؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D8%B1%D8%A7%D8%AD-%D8%B9%D8%AF%D9%8A%D8%AF%D8%A9-%D9%88%D9%85%D9%88%D9%94%D8%A7%D9%85%D8%B1%D8%A9--%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/blt2f5b50fef0d5824c)
