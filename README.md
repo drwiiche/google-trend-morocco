@@ -1,3 +1,10 @@
+### canva (N/A, Fri, 5 Dec 2025 01:00:00 -0800)
+
+- **Global websites back online as Cloudflare issues fix for dashboard issue**: [Link](https://www.cnbc.com/2025/12/05/cloudlfare-is-investigating-issues-with-dashboard-and-related-apps.html)
+- **CloudFlare Says It Fixed Outage That Slowed Banking Sites, Zoom**: [Link](https://www.bloomberg.com/news/articles/2025-12-05/cloudflare-says-it-fixed-outage-that-slowed-banking-sites-zoom)
+- **Cloudflare Down: Users Unable To Use Multiple Apps**: [Link](https://www.timesnownews.com/technology-science/cloudflare-down-users-unable-to-use-multiple-apps-article-153250255)
+
+
 ### cloudflare (N/A, Fri, 5 Dec 2025 00:50:00 -0800)
 
 - **Global websites back online as Cloudflare issues fix for dashboard issue**: [Link](https://www.cnbc.com/2025/12/05/cloudlfare-is-investigating-issues-with-dashboard-and-related-apps.html)
