@@ -1,3 +1,17 @@
+### kevin hart (N/A, Fri, 5 Dec 2025 09:10:00 -0800)
+
+- **How tall is Kevin Hart? The comedian isn’t shy about discussing his height: “Now if I put a boot on...”**: [Link](https://en.as.com/entertainment/how-tall-is-kevin-hart-the-comedian-isnt-shy-about-discussing-his-height-now-if-i-put-a-boot-on-f202512-n/)
+- **Inside Kevin Hart's net worth as he's announced as co-host of 2026 World Cup draw**: [Link](https://www.themirror.com/entertainment/celebrity-news/kevin-hart-net-worth-comedian-1544494)
+- **Michael Jordan’s Sons Want To Fight Kevin Hart Over Netflix Jokes**: [Link](https://www.hot97.com/news/michael-jordans-sons-want-to-fight-kevin-hart-over-netflix-jokes/)
+
+
+### ترتيب كأس العرب 2025 (N/A, Fri, 5 Dec 2025 08:40:00 -0800)
+
+- **جدول ترتيب هدافي كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blta0bcd0ef105564c9)
+- **نتائج مباريات الخميس بكأس العرب 2025**: [Link](https://www.aljazeera.net/sport/2025/12/4/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%AA%D9%88%D9%86%D8%B3)
+- **سفيان البوفتيني ضمن التشكيلة المثالية للجولة الأولى من كأس العرب**: [Link](https://m.elbotola.com/article/2025-12-04-11-33-831.html)
+
+
 ### arab cup 2025 (N/A, Fri, 5 Dec 2025 08:40:00 -0800)
 
 - **Arab Cup: Sudan and Algeria Play Out Goalless Draw in Group D Opener**: [Link](https://m.elbotola.com/en/article/2025-12-03-13-58-198.html)
