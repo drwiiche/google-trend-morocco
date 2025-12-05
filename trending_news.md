@@ -1,3 +1,17 @@
+### saudi arabia (N/A, Fri, 5 Dec 2025 12:20:00 -0800)
+
+- **‘I’ve had all the luck you can get’: Michael Caine retires for the fourth time**: [Link](https://www.theguardian.com/film/2025/dec/05/michael-caine-actor-retires-for-fourth-time)
+- **Vin Diesel Wheels Michael Caine Along Red Sea Film Festival Red Carpet**: [Link](https://variety.com/2025/film/awards/michael-caine-vin-diesel-red-sea-opening-night-1236600353/)
+- **With Hollywood strapped for cash, Saudi Arabia is re-emerging as a key financial backer**: [Link](https://www.nbcnews.com/pop-culture/pop-culture-news/hollywood-saudi-arabia-key-financial-backer-red-sea-film-festival-rcna246854)
+
+
+### ecosse (N/A, Fri, 5 Dec 2025 11:10:00 -0800)
+
+- **CdM 2026, Brésil : Carlo Ancelotti redoute le Maroc**: [Link](https://www.footmercato.net/a1561334077362885729-cdm-2026-bresil-carlo-ancelotti-redoute-le-maroc)
+- **Mondial-2026: le Maroc hérite du Brésil, de l’Ecosse et de Haiti**: [Link](https://www.challenge.ma/mondial-2026-le-maroc-herite-du-bresil-de-lecosse-et-de-haiti-314139/)
+- **Mondial 2026 : la sélection surprise que tout le monde veut éviter au premier tour**: [Link](https://www.football365.fr/mondial-2026-la-selection-surprise-que-tout-le-monde-veut-eviter-au-premier-tour-10267944.html)
+
+
 ### هايتي (N/A, Fri, 5 Dec 2025 11:00:00 -0800)
 
 - **هل تتراجع إيران عن المقاطعة وتحضر قرعة كأس العالم 2026؟**: [Link](https://www.aljazeera.net/sport/2025/12/4/%D9%87%D9%84-%D8%AA%D8%AD%D8%B6%D8%B1-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%82%D8%B1%D8%B9%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
