@@ -1,3 +1,17 @@
+### alkass (N/A, Fri, 5 Dec 2025 07:20:00 -0800)
+
+- **تابع البطولة أولًا بأول.. تردد قناة الكأس القطرية HD الناقلة لمباريات كأس العرب Arab Cup 2025 بدقة HD**: [Link](https://www.5lejnews.com/channels/291935/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A%D8%A9/)
+- **الان ماتش المغرب.. تردد قناة الكاس الرياضية الناقلة لمباراة عمان اليوم في كاس البطولة العربية 2025**: [Link](https://zahraa.mr/6143062/%D8%A7%D9%84%D8%A7%D9%86-%D9%85%D8%A7%D8%AA%D8%B4-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7/)
+- **شاهد مجاناً! استقبل الآن تردد قناة الكأس المفتوحة 2026 Al Kass HD الناقلة لكافة مباريات كأس العرب**: [Link](https://www.iqraa.news/1497901/%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%AC%D8%A7%D9%86%D8%A7%D9%8B-%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A2%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A3/)
+
+
+### carlos queiroz (N/A, Fri, 5 Dec 2025 07:10:00 -0800)
+
+- **Gols e melhores momentos para Arábia Saudita 2x1 Omã pela Copa das Nações Árabes**: [Link](https://www.vavel.com/br/futebol-internacional/2025/12/02/1243305-arabia-saudita-x-oma-ao-vivo-copa-arabe.html)
+- **Carlos Queiroz estreia-se com desaire na Taça Árabe**: [Link](https://golo.fm/destaque/carlos-queiroz-estreia-se-com-desaire-na-taca-arabe/)
+- **Onde assistir Arábia Saudita x Omã na Copa Árabe da FIFA: destaques e escalações prováveis**: [Link](https://www.mixvale.com.br/2025/12/02/onde-assistir-arabia-saudita-x-oma-na-copa-arabe-da-fifa-destaques-e-escalacoes-provaveis/)
+
+
 ### koora live 2025 (N/A, Fri, 5 Dec 2025 06:40:00 -0800)
 
 
