@@ -1,3 +1,10 @@
+### claude (N/A, Fri, 5 Dec 2025 01:00:00 -0800)
+
+- **Snowflake and Anthropic announce $200 million partnership to bring agentic AI to global enterprises**: [Link](https://www.anthropic.com/news/snowflake-anthropic-expanded-partnership)
+- **Anthropic signs $200M deal to bring its LLMs to Snowflake’s customers**: [Link](https://finance.yahoo.com/news/anthropic-signs-200m-deal-bring-142203425.html)
+- **Snowflake Announced a $200 Million Deal With Anthropic, but It Wasn't Enough for Investors. Here's Why.**: [Link](https://www.nasdaq.com/articles/snowflake-announced-200-million-deal-anthropic-it-wasnt-enough-investors-heres-why)
+
+
 ### canva (N/A, Fri, 5 Dec 2025 01:00:00 -0800)
 
 - **Global websites back online as Cloudflare issues fix for dashboard issue**: [Link](https://www.cnbc.com/2025/12/05/cloudlfare-is-investigating-issues-with-dashboard-and-related-apps.html)
