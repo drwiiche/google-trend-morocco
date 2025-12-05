@@ -1,3 +1,10 @@
+### austria (N/A, Fri, 5 Dec 2025 11:20:00 -0800)
+
+- **Asylum Transit Camp in Africa with Red-White-Red Participation?**: [Link](https://www.vol.at/asylum-transit-camp-in-africa-with-red-white-red-participation/9844664)
+- **Secret plan for east Africa: Austria looking to set up 'transit centres' for rejected asylum seekers**: [Link](https://euobserver.com/eu-and-the-world/arf8c5e934)
+- **Tirol: Where Every Resort Tells Its Own Alpine Story**: [Link](https://www.skiclub.co.uk/tirol-where-every-resort-tells-its-own-alpine-story/)
+
+
 ### haiti (N/A, Fri, 5 Dec 2025 11:00:00 -0800)
 
 - **Kenya begins withdrawal of police teams from Haiti after year-long mission**: [Link](https://www.the-star.co.ke/news/2025-12-05-kenya-begins-withdrawal-of-police-from-haiti)
