@@ -1,3 +1,24 @@
+### lille – marseille (N/A, Fri, 5 Dec 2025 11:30:00 -0800)
+
+- **Le groupe de l’OM avec 1 forfait face à Lille**: [Link](https://www.footmercato.net/a1297647168668693408-le-groupe-de-lom-avec-1-forfait-face-a-lille)
+- **Lille-OM, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/ligue-1/lille-om-sur-quelle-chaine-voir-le-match-787850.html)
+- **Lille-OM, compos : une énorme surprise dans le 11 marseillais !**: [Link](https://www.football365.fr/lille-om-compos-une-enorme-surprise-dans-le-11-marseillais-10268100.html)
+
+
+### haiti country (N/A, Fri, 5 Dec 2025 11:10:00 -0800)
+
+- **Haiti’s World Cup dreams collide with Trump’s immigration crackdown**: [Link](https://www.theglobeandmail.com/canada/article-haiti-2026-fifa-world-cup-trump-us-immigration-crackdown/)
+- **Haiti is in the World Cup after a half-century drought**: [Link](https://www.axios.com/2025/12/02/haiti-world-cup-appearance-52-years)
+- **Haiti’s 2026 World Cup journey: From qualification to kickoff**: [Link](https://haitiantimes.com/world-cup-haiti/)
+
+
+### world cup 2026 groups (N/A, Fri, 5 Dec 2025 10:00:00 -0800)
+
+- **The Sustainability Challenge and Sports in Morocco**: [Link](https://www.moroccoworldnews.com/2025/12/270724/the-sustainability-challenge-and-sports-in-morocco/)
+- **Sektioui: "What Prevents Arab and African Coaches from Excelling? We Must Change Our Inferiority Complex and Discard Colonial Mindsets."**: [Link](https://m.elbotola.com/en/article/2025-12-04-10-06-749.html)
+- **2026 World Cup: Morocco's group! (Official)**: [Link](https://foot-africa.com/en/news/2026-world-cup-moroccos-group-official-989981/)
+
+
 ### austria (N/A, Fri, 5 Dec 2025 11:20:00 -0800)
 
 - **Asylum Transit Camp in Africa with Red-White-Red Participation?**: [Link](https://www.vol.at/asylum-transit-camp-in-africa-with-red-white-red-participation/9844664)
