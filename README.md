@@ -1,3 +1,10 @@
+### maroc (N/A, Fri, 5 Dec 2025 05:40:00 -0800)
+
+- **Réunion de Haut Niveau Maroc-Espagne : signature de 14 accords de coopération**: [Link](https://lematin.ma/nation/reunion-de-haut-niveau-maroc-espagne-14-accords-de-cooperation-signes/317283)
+- **La coopération maroco-espagnole a atteint un niveau "sans précédent"**: [Link](https://www.leconomiste.com/flash-infos/la-cooperation-maroco-espagnole-a-atteint-un-niveau-sans-precedent/)
+- **Rencontre à Madrid entre les Premiers ministres espagnol et marocain avec le Sahara en toile de fond**: [Link](https://mobile.telquel.ma/instant-t/2025/12/04/rencontre-a-madrid-entre-les-premiers-ministres-espagnol-et-marocain-avec-le-sahara-en-toile-de-fond_1963784/)
+
+
 ### match maroc (N/A, Fri, 5 Dec 2025 05:20:00 -0800)
 
 - **Match Maroc-Oman : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-oman-a-quelle-heure-et-sur-quelles-chaines/317103)
