@@ -1,3 +1,10 @@
+### saudi arabia vs comoros (N/A, Fri, 5 Dec 2025 10:40:00 -0800)
+
+- **Saudi Arabia vs Comoros: When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270648/saudi-arabia-vs-comoros-when-how-to-watch/)
+- **Arab Cup 2025 / Comoros vs Saudi Arabia: What time and which channels?**: [Link](https://sports.yahoo.com/articles/arab-cup-2025-comoros-vs-152500211.html)
+- **Saudi Arabia and Comoros prepare for crucial Arab Cup group B clash**: [Link](https://www.africanews.com/2025/12/04/saudi-arabia-and-comoros-prepare-for-crucial-arab-cup-group-b-clash/)
+
+
 ### rio ferdinand (N/A, Fri, 5 Dec 2025 10:20:00 -0800)
 
 - **Who is Rio Ferdinand? Meet the World Cup draw conductor picking FIFA's groups**: [Link](https://www.sportingnews.com/in/football/news/rio-ferdinand-world-cup-draw-conductor/66b61bed929af533af200b11)
