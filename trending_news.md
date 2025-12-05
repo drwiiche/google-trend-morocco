@@ -1,3 +1,17 @@
+### brest – monaco (N/A, Fri, 5 Dec 2025 09:30:00 -0800)
+
+- **Ligue 1 : l'ASM doit dompter son éternelle irrégularité**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-l-as-monaco-n-a-pas-le-choix-que-de-dompter-son-eternelle-irregularite/tOoXMliD/)
+- **PRONOS PARIS RMC Le pari foot de Lionel Charbonnier du 5 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-lionel-charbonnier-du-5-decembre-ligue-1_AN-202512050723.html)
+- **Dynamique, Eric Roy, joueurs à suivre… Tout savoir sur le Stade Brestois**: [Link](https://www.asmonaco.com/dynamique-eric-roy-joueurs-a-suivre-tout-savoir-sur-le-stade-brestois/)
+
+
+### donald trump (N/A, Fri, 5 Dec 2025 09:30:00 -0800)
+
+- **What is the FIFA Peace Prize and why is Donald Trump expected to win?**: [Link](https://www.cnn.com/2025/12/04/sport/soccer-world-cup-peace-prize-trump-intl)
+- **Donald Trump & Gianni Infantino: 'World Cup draw will illustrate close relationship'**: [Link](https://www.bbc.com/sport/football/articles/c5yjgg0zljro)
+- **From The Athletic FC: When the World Cup draw takes place today, President Trump will take centre stage. No American president has taken such an interest in soccer and his relationship with FIFA has never been closer. https://nyti.ms/3MHp3c1**: [Link](https://www.facebook.com/nytimes/photos/from-the-athletic-fc-when-the-world-cup-draw-takes-place-today-president-trump-w/1243902500925544/)
+
+
 ### kevin hart (N/A, Fri, 5 Dec 2025 09:10:00 -0800)
 
 - **How tall is Kevin Hart? The comedian isn’t shy about discussing his height: “Now if I put a boot on...”**: [Link](https://en.as.com/entertainment/how-tall-is-kevin-hart-the-comedian-isnt-shy-about-discussing-his-height-now-if-i-put-a-boot-on-f202512-n/)
