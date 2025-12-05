@@ -1,3 +1,10 @@
+### maroc oman (N/A, Fri, 5 Dec 2025 04:10:00 -0800)
+
+- **Match Maroc-Oman : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-oman-a-quelle-heure-et-sur-quelles-chaines/317103)
+- **Nouvelle aventure au Qatar – مغامرة جديدة في قطر**: [Link](https://telquel.ma/2025/12/05/nouvelle-aventure-au-qatar-%D9%85%D8%BA%D8%A7%D9%85%D8%B1%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%82%D8%B7%D8%B1_1964046)
+- **Coupe arabe 2025. Maroc-Oman, les clés du match - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2025/12/04/coupe-arabe-2025-maroc-oman-les-cles-du-match-1589557/)
+
+
 ### مباريات كأس العرب (N/A, Fri, 5 Dec 2025 03:50:00 -0800)
 
 - **المغرب ضد عُمان والسعودية ضد جزر القمر.. الموعد والقنوات الناقلة المفتوحة**: [Link](https://www.aljazeera.net/sport/2025/12/4/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1)
