@@ -1,3 +1,24 @@
+### match maroc (N/A, Fri, 5 Dec 2025 05:20:00 -0800)
+
+- **Match Maroc-Oman : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-oman-a-quelle-heure-et-sur-quelles-chaines/317103)
+- **Nouvelle aventure au Qatar – مغامرة جديدة في قطر**: [Link](https://telquel.ma/2025/12/05/nouvelle-aventure-au-qatar-%D9%85%D8%BA%D8%A7%D9%85%D8%B1%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%82%D8%B7%D8%B1_1964046)
+- **Coupe Arabe de la FIFA Qatar 2025: Composition du Maroc face au Sultanat d’Oman**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D8%A7%D9%85%D8%A7%D9%85-%D8%B3%D9%84%D8%B7/)
+
+
+### المغرب ضد عمان (N/A, Fri, 5 Dec 2025 04:40:00 -0800)
+
+- **كيروش: منتخب المغرب اختبار قوي**: [Link](https://www.hespress.com/%D9%83%D9%8A%D8%B1%D9%88%D8%B4-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D9%82%D9%88%D9%8A-1666146.html)
+- **فحوصات مطمئنة.. وزان يلتحق بإقامة المنتخب المغربي بعد إصابته أمام أمريكا**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%8F%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%85%D9%88%D9%82/)
+- **حريمات: "نحن هنا رهن إشارة المنتخب سواء الرديف أو الأول ونسعى للتتويج بكأس العرب"**: [Link](https://m.elbotola.com/article/2025-12-04-15-21-335.html)
+
+
+### morocco vs oman (N/A, Fri, 5 Dec 2025 04:10:00 -0800)
+
+- **Al-Sakitioui Responds to Queiroz's Possession Strategy: "The 90 Minutes Will Dictate Our Approach"**: [Link](https://m.elbotola.com/en/article/2025-12-04-12-16-598.html)
+- **Morocco vs Oman: When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270650/morocco-vs-oman-when-how-to-watch/)
+- **Sektioui : Only a win will keep Morocco alive in the Arab Cup**: [Link](https://en.yabiladi.com/articles/details/182777/sektioui-only-will-keep-morocco.html)
+
+
 ### maroc oman (N/A, Fri, 5 Dec 2025 04:10:00 -0800)
 
 - **Match Maroc-Oman : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-oman-a-quelle-heure-et-sur-quelles-chaines/317103)
