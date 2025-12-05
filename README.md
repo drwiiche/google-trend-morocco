@@ -1,3 +1,10 @@
+### bein sport live (N/A, Fri, 5 Dec 2025 06:30:00 -0800)
+
+- **Where Can I Watch: Lille vs. Marseille On beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/where-can-i-watch-lille-vs-marseille-on-bein-sports-2025-12-05)
+- **Marseille’s prolific attack faces in-form Lille in Ligue 1**: [Link](https://www.dailypioneer.com/2025/sports/marseille-s-prolific-attack-faces-in-form-lille-in-ligue-1.html)
+- **Ligue 1 Predictions | Round 15: Lille host Marseille as OGC Nice bid to exit crisis**: [Link](https://www.getfootballnewsfrance.com/2025/ligue-1-predictions-round-15-lille-host-marseille-as-ogc-nice-bid-to-exit-crisis/)
+
+
 ### alkass (N/A, Fri, 5 Dec 2025 07:20:00 -0800)
 
 - **تابع البطولة أولًا بأول.. تردد قناة الكأس القطرية HD الناقلة لمباريات كأس العرب Arab Cup 2025 بدقة HD**: [Link](https://www.5lejnews.com/channels/291935/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A%D8%A9/)
