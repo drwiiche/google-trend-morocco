@@ -1,3 +1,10 @@
+### cloudflare (N/A, Fri, 5 Dec 2025 00:50:00 -0800)
+
+- **Global websites back online as Cloudflare issues fix for dashboard issue**: [Link](https://www.cnbc.com/2025/12/05/cloudlfare-is-investigating-issues-with-dashboard-and-related-apps.html)
+- **Cloudflare Down: Users Unable To Use Multiple Apps**: [Link](https://www.timesnownews.com/technology-science/cloudflare-down-users-unable-to-use-multiple-apps-article-153250255)
+- **Cloudflare Outage Hits Global Sites; Shopify Stores Down**: [Link](https://punemirror.com/viral/cloudflare-outage-shopify-stores-down-worldwide/)
+
+
 ### achraf hakimi (N/A, Thu, 4 Dec 2025 19:20:00 -0800)
 
 - **حكيمي يدخل مرحلة حاسمة من التأهيل**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%AF%D8%AE%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%8A%D9%84-1665957.html)
