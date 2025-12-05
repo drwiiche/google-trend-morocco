@@ -1,3 +1,31 @@
+### rio ferdinand (N/A, Fri, 5 Dec 2025 10:20:00 -0800)
+
+- **Who is Rio Ferdinand? Meet the World Cup draw conductor picking FIFA's groups**: [Link](https://www.sportingnews.com/in/football/news/rio-ferdinand-world-cup-draw-conductor/66b61bed929af533af200b11)
+- **Rio Ferdinand mocked by fans after claiming he is a 'man of the people' ahead of World Cup draw - despite moving to Dubai with wife Kate for a tax-free life**: [Link](https://www.dailymail.co.uk/sport/football/article-15352169/Rio-Ferdinand-FIFA-Dubai-World-Cup-man-people.html)
+- **Rio Ferdinand makes case for football knob award with World Cup tickets comments**: [Link](https://www.football365.com/news/man-of-the-people-rio-ferdinand-world-cup-ticket-prices-fifa)
+
+
+### السعودية ضد جزر القمر (N/A, Fri, 5 Dec 2025 10:20:00 -0800)
+
+- **فيفا يحسم الجدل حول رينارد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%AD%D9%88%D9%84-%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF/blt3b830822133e863a)
+- **مباشر.. مباراة السعودية ضد جزر القمر في كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/5/comoros-vs-saudi-arabia)
+- **مساعد مدرب المنتخب السعودي: "هيرفي رونار سيكون حاضرا في مواجهة المنتخب المغربي"**: [Link](https://m.elbotola.com/article/2025-12-04-14-40-446.html)
+
+
+### saudi vs (N/A, Fri, 5 Dec 2025 10:20:00 -0800)
+
+- **Comoros vs Saudi Arabia LIVE Score Updates in 2025 FIFA Arab Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/05/1243664-comoros-vs-saudi-arabia-live-score-arab-cup.html)
+- **Comoros in tough clash against Saudi Arabia as Oman take on Morocco » Iraqi News Agency**: [Link](https://ina.iq/en/international/44007-comoros-in-tough-clash-against-saudi-arabia-as-oman-take-on-morocco.html)
+- **Boushal Makes a Strong Statement Ahead of Comoros Match in Arab Cup**: [Link](https://www.ysscores.com/en/news/13866758/Boushal-Makes-a-Strong-Statement-Ahead-of-Comoros-Match-in-Arab-Cup)
+
+
+### trump (N/A, Fri, 5 Dec 2025 09:40:00 -0800)
+
+- **What is the FIFA Peace Prize and why is Donald Trump expected to win?**: [Link](https://www.cnn.com/2025/12/04/sport/soccer-world-cup-peace-prize-trump-intl)
+- **Donald Trump & Gianni Infantino: 'World Cup draw will illustrate close relationship'**: [Link](https://www.bbc.com/sport/football/articles/c5yjgg0zljro)
+- **President Donald Trump has arrived to the 2026 FIFA World Cup Draw**: [Link](https://www.foxsports.com/watch-vertical/fmc-c8yv7v3cpyzabhc4)
+
+
 ### hugo sanchez (N/A, Fri, 5 Dec 2025 10:00:00 -0800)
 
 - **Hugo Sánchez regala postales en lugar de autógrafos previo al sorteo del Mundial 2026**: [Link](https://www.tudn.com/mundial-2026/hugo-sanchez-regala-postales-en-lugar-autografos-previo-sorteo-mundial-2026)
