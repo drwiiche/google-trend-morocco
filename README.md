@@ -1,3 +1,10 @@
+### lille fc (N/A, Fri, 5 Dec 2025 13:50:00 -0800)
+
+- **Lille 1-0 Marseille: Mbappe strike closes gap to Ligue 1 summit**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/lille-1-0-marseille-mbappe-strike-closes-gap-to-ligue-1-summit-2025-12-05)
+- **LOSC vs Marseille tonight, Lille's late heroics face Marseille's defensive crisis in crucial top-three clash**: [Link](https://www.red94.net/news/89056-losc-vs-marseille-faces-off-tonight-in-crucial-ligue-1-clash-both-teams-eyeing-t/)
+- **Lille vs Marseille: Prediction, Team News, and Lineups**: [Link](https://www.el-balad.com/6785719)
+
+
 ### hamza igamane (N/A, Fri, 5 Dec 2025 13:30:00 -0800)
 
 - **LOSC vs Marseille tonight, Lille's late heroics face Marseille's defensive crisis in crucial top-three clash**: [Link](https://www.red94.net/news/89056-losc-vs-marseille-faces-off-tonight-in-crucial-ligue-1-clash-both-teams-eyeing-t/)
