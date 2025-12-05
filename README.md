@@ -1,3 +1,10 @@
+### shopify (N/A, Fri, 5 Dec 2025 01:00:00 -0800)
+
+- **Shopify Breaks Down on Busy Cyber Monday**: [Link](https://www.wsj.com/business/retail/shopify-breaks-down-on-busy-cyber-monday-4ce789e1?gaa_at=eafs&gaa_n=AWEtsqdaa3nIOeS5JCu53FcuYYAkEroqmCcpt0MxFSdYayfSj_c8W3koEMnY&gaa_ts=6932bb8e&gaa_sig=vJ0cIFdwipu2IjecvtDoHdmuleNqwOCxzWzBzcmO9Dgr38XvNExcAcc79ot3fDeqqCPd7Y2fLYImCOeSjXYWDQ%3D%3D)
+- **Shopify hit with hours-long outage on Cyber Monday**: [Link](https://www.cnbc.com/2025/12/01/shopify-outage-cyber-monday-shopping.html)
+- **Shopify outage disrupts some merchants on Cyber Monday**: [Link](https://www.cbsnews.com/news/shopify-outage-cyber-monday-shopping/)
+
+
 ### claude (N/A, Fri, 5 Dec 2025 01:00:00 -0800)
 
 - **Snowflake and Anthropic announce $200 million partnership to bring agentic AI to global enterprises**: [Link](https://www.anthropic.com/news/snowflake-anthropic-expanded-partnership)
