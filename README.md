@@ -1,3 +1,31 @@
+### haiti (N/A, Fri, 5 Dec 2025 11:00:00 -0800)
+
+- **Kenya begins withdrawal of police teams from Haiti after year-long mission**: [Link](https://www.the-star.co.ke/news/2025-12-05-kenya-begins-withdrawal-of-police-from-haiti)
+- **Haiti Needs Governance, Not Guns: New UN Haiti Force Risks Repeating Old Failures**: [Link](https://www.jurist.org/commentary/2025/11/haiti-needs-governance-not-guns/)
+- **US hails Kenya for spearheading gang crackdown in Haiti**: [Link](https://ntvkenya.co.ke/news/us-hails-kenya-for-spearheading-gang-crackdown-in-haiti/)
+
+
+### curacao (N/A, Fri, 5 Dec 2025 11:00:00 -0800)
+
+- **LATAM Airlines Boosts Curaçao’s South American Access with New Routes to Lima and Bogotá**: [Link](https://www.travelandtourworld.com/news/article/latam-airlines-boosts-curacaos-south-american-access-with-new-routes-to-lima-and-bogota/)
+- **Curaçao receives first-ever LATAM flights from Bogotá, Lima**: [Link](https://www.caribbeannationalweekly.com/travel/curacao-receives-first-ever-latam-flights-from-bogota-lima/)
+- **New LATAM Flight Highlights Curacao Tourism Looks Towards Latin America**: [Link](https://eturbonews.com/new-latam-flight-highlights-curacao-tourism-looks-towards-latin-america/)
+
+
+### scotland football (N/A, Fri, 5 Dec 2025 11:00:00 -0800)
+
+- **Should Harvey Barnes play for Scotland?**: [Link](https://sportsgazette.co.uk/should-harvey-barnes-play-for-scotland/)
+- **Newcastle United star Harvey 'Mc' Barnes for Scotland? Why it should be aye man**: [Link](https://www.thenational.scot/sport/25650198.harvey-mc-barnes-scotland-aye-man/)
+- **From the Arlington Bar to America, Scotland are back on the world stage**: [Link](https://news.stv.tv/sport/from-the-arlington-bar-to-america-scotland-are-back-on-the-world-stage)
+
+
+### scotland (N/A, Fri, 5 Dec 2025 10:50:00 -0800)
+
+- **From the Arlington Bar to America, Scotland are back on the world stage**: [Link](https://news.stv.tv/sport/from-the-arlington-bar-to-america-scotland-are-back-on-the-world-stage)
+- **Scotland's World Cup group presents tall task to overcoming 8-time FIFA streak**: [Link](https://www.sportingnews.com/ca/soccer/news/scotland-world-cup-group-8-time-fifa-streak/01e7737bf42bec75778807e5)
+- **Scotland’s World Cup 2026 fixtures: Group opponents, dates and venues after draw confirmed**: [Link](https://www.independent.co.uk/sport/football/scotland-world-cup-fixtures-dates-times-venues-b2878808.html)
+
+
 ### saudi arabia vs comoros (N/A, Fri, 5 Dec 2025 10:40:00 -0800)
 
 - **Saudi Arabia vs Comoros: When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270648/saudi-arabia-vs-comoros-when-how-to-watch/)
