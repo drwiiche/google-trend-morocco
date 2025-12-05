@@ -1,3 +1,10 @@
+### arab cup 2025 (N/A, Fri, 5 Dec 2025 08:40:00 -0800)
+
+- **Arab Cup: Sudan and Algeria Play Out Goalless Draw in Group D Opener**: [Link](https://m.elbotola.com/en/article/2025-12-03-13-58-198.html)
+- **FIFA Arab Cup helping Sudan prepare well for AFCON – Appiah**: [Link](https://cecafaonline.com/fifa-arab-cup-helping-sudan-prepare-well-for-afcon-appiah/)
+- **Arab Cup 2025 / Algeria – Bahrain: Madjid Bougherra's likely lineup**: [Link](https://foot-africa.com/en/news/arab-cup-2025-algeria-bahrain-madjid-bougherras-likely-lineup-989507/)
+
+
 ### galatasaray – samsunspor (N/A, Fri, 5 Dec 2025 08:30:00 -0800)
 
 - **Okan Buruk'tan taraftara çağrı ve şampiyonluk sözleri**: [Link](https://www.ntvspor.net/futbol/okan-buruktan-taraftara-cagri-ve-sampiyonluk-sozleri-413951)
