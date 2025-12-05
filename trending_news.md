@@ -1,3 +1,17 @@
+### جزر القمر (N/A, Fri, 5 Dec 2025 12:00:00 -0800)
+
+- **فيفا يحسم الجدل حول رينارد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%AD%D9%88%D9%84-%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF/blt3b830822133e863a)
+- **مباشر.. مباراة السعودية ضد جزر القمر (2-1) في كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/5/comoros-vs-saudi-arabia?update=8337071)
+- **مساعد مدرب المنتخب السعودي: "هيرفي رونار سيكون حاضرا في مواجهة المنتخب المغربي"**: [Link](https://m.elbotola.com/article/2025-12-04-14-40-446.html)
+
+
+### benfica – sporting (N/A, Fri, 5 Dec 2025 11:50:00 -0800)
+
+- **Benfica x Sporting AO VIVO: link para assistir online em direto (05/12)**: [Link](https://www.sportingnews.com/br/futebol/noticias/benfica-sporting-ao-vivo-link-assistir-jogo-online-em-direto-05-12/69532826c02f76eaca48b9ff)
+- **Ambiente na Luz começa a aquecer para o dérbi**: [Link](https://www.abola.pt/video/ambiente-na-luz-comeca-a-aquecer-para-o-derbi-2025120517522620314)
+- **Todas as incidências e os melhores lances do fim de semana desportivo**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-2-jornada-ao-vivo-onzes-oficiais-de-benfica-e-sporting-para-o-derbi/d8LPlsiL/)
+
+
 ### lille – marseille (N/A, Fri, 5 Dec 2025 11:30:00 -0800)
 
 - **Le groupe de l’OM avec 1 forfait face à Lille**: [Link](https://www.footmercato.net/a1297647168668693408-le-groupe-de-lom-avec-1-forfait-face-a-lille)
