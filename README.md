@@ -1,3 +1,10 @@
+### المغرب وعمان (N/A, Fri, 5 Dec 2025 07:20:00 -0800)
+
+- **بث مباشر: مباراة عمان والمغرب في كأس العرب 2025**: [Link](https://al-ain.com/article/oman-morocco-fifa-arab-cup-2025-match-live)
+- **تصرف مثير من عصام الحضري مع عمرو السولية بمباراة مصر والكويت**: [Link](https://arabic.cnn.com/sport/article/2025/12/02/essam-el-hadary-amr-el-solia-egypt-kuwait-match)
+- **مصر تخطف تعادلا صعبا من الكويت**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%B1-%D8%AA%D8%AE%D8%B7%D9%81-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D8%A7-%D8%B5%D8%B9%D8%A8%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-1665071.html)
+
+
 ### bein sport live (N/A, Fri, 5 Dec 2025 06:30:00 -0800)
 
 - **Where Can I Watch: Lille vs. Marseille On beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/where-can-i-watch-lille-vs-marseille-on-bein-sports-2025-12-05)
