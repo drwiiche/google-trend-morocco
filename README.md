@@ -1,3 +1,29 @@
+### galatasaray – samsunspor (N/A, Fri, 5 Dec 2025 08:30:00 -0800)
+
+- **Okan Buruk'tan taraftara çağrı ve şampiyonluk sözleri**: [Link](https://www.ntvspor.net/futbol/okan-buruktan-taraftara-cagri-ve-sampiyonluk-sozleri-413951)
+- **Galatasaray - Samsunspor maçı: İlk 11'ler belli oldu**: [Link](https://oxu.az/tr/spor/galatasaray-samsunspor-maci-ilk-11-ler-belli-oldu)
+- **Süper Lig puan durumu | 5 Aralık Süper Lig puan durumu tablosu nasıl?**: [Link](https://gdh.digital/haber/super-lig-puan-durumu-5-aralik-super-lig-puan-durumu-tablosu-nasil-zvp9bovm9ll)
+
+
+### ترتيب كاس العرب (N/A, Fri, 5 Dec 2025 08:30:00 -0800)
+
+- **جدول ترتيب هدافي كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blta0bcd0ef105564c9)
+- **نتائج مباريات الخميس بكأس العرب 2025**: [Link](https://www.aljazeera.net/sport/2025/12/4/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%AA%D9%88%D9%86%D8%B3)
+- **سفيان البوفتيني ضمن التشكيلة المثالية للجولة الأولى من كأس العرب**: [Link](https://m.elbotola.com/article/2025-12-04-11-33-831.html)
+
+
+### cup arab (N/A, Fri, 5 Dec 2025 08:30:00 -0800)
+
+
+
+
+### كاس العرب (N/A, Fri, 5 Dec 2025 08:20:00 -0800)
+
+- **"ريمونتادا" فلسطينية في كأس العرب**: [Link](https://www.hespress.com/%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1666116.html)
+- **نتيجة وملخص مباراة فلسطين ضد تونس بكأس العرب 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/4/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **الطرابلسي بعد مواجهة فلسطين: "تعادل بطعم الخسارة واستقبلنا هدفين من أخطاء ساذجة"**: [Link](https://m.elbotola.com/article/2025-12-04-19-07-347.html)
+
+
 ### المغرب وعمان (N/A, Fri, 5 Dec 2025 07:20:00 -0800)
 
 - **بث مباشر: مباراة عمان والمغرب في كأس العرب 2025**: [Link](https://al-ain.com/article/oman-morocco-fifa-arab-cup-2025-match-live)
