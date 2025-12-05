@@ -1,3 +1,17 @@
+### مباريات كأس العرب (N/A, Fri, 5 Dec 2025 03:50:00 -0800)
+
+- **المغرب ضد عُمان والسعودية ضد جزر القمر.. الموعد والقنوات الناقلة المفتوحة**: [Link](https://www.aljazeera.net/sport/2025/12/4/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1)
+- **كيروش: منتخب المغرب اختبار قوي**: [Link](https://www.hespress.com/%D9%83%D9%8A%D8%B1%D9%88%D8%B4-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D9%82%D9%88%D9%8A-1666146.html)
+- **فحوصات مطمئنة.. وزان يلتحق بإقامة المنتخب المغربي بعد إصابته أمام أمريكا**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%8F%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%85%D9%88%D9%82/)
+
+
+### world cup draw 2026 (N/A, Fri, 5 Dec 2025 03:00:00 -0800)
+
+- **FIFA World Cup Draw: Everything you need to know**: [Link](https://www.cnn.com/2025/12/05/sport/soccer-world-cup-draw-explainer)
+- **🤩 Brady, Shaq, Klum... the stars set to appear at the World Cup draw**: [Link](https://onefootball.com/en/news/brady-shaq-klum-the-stars-set-to-appear-at-the-world-cup-draw-42050865)
+- **World Cup draw buildup, Premier League news and more – football live**: [Link](https://www.theguardian.com/football/live/2025/dec/05/world-cup-draw-buildup-premier-league-news-and-more-football-live?filterKeyEvents=false&page=with%3Ablock-692f05268f083ad26c47a396)
+
+
 ### shopify (N/A, Fri, 5 Dec 2025 01:00:00 -0800)
 
 - **Shopify Breaks Down on Busy Cyber Monday**: [Link](https://www.wsj.com/business/retail/shopify-breaks-down-on-busy-cyber-monday-4ce789e1?gaa_at=eafs&gaa_n=AWEtsqdaa3nIOeS5JCu53FcuYYAkEroqmCcpt0MxFSdYayfSj_c8W3koEMnY&gaa_ts=6932bb8e&gaa_sig=vJ0cIFdwipu2IjecvtDoHdmuleNqwOCxzWzBzcmO9Dgr38XvNExcAcc79ot3fDeqqCPd7Y2fLYImCOeSjXYWDQ%3D%3D)
