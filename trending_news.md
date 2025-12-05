@@ -1,3 +1,15 @@
+### koora live 2025 (N/A, Fri, 5 Dec 2025 06:40:00 -0800)
+
+
+
+
+### morocco (N/A, Fri, 5 Dec 2025 06:40:00 -0800)
+
+- **GCC backs Morocco’s sovereignty over Western Sahara Amid UN endorsement**: [Link](http://www.africanews.com/2025/12/04/gcc-backs-moroccos-sovereignty-over-western-sahara-amid-un-endorsement/)
+- **Bourita: Self-Determination is Not Synonymous with a Referendum**: [Link](https://www.moroccoworldnews.com/2025/12/270682/bourita-self-determination-is-not-synonymous-with-a-referendum/)
+- **Burkina Faso Reiterates Firm Support for Morocco's Territorial Integrity, Welcomes Security Council's Resolution 2797**: [Link](https://www.newsghana.com.gh/burkina-faso-reiterates-firm-support-for-moroccos-territorial-integrity-welcomes-security-councils-resolution-2797/)
+
+
 ### yalla kora (N/A, Fri, 5 Dec 2025 06:30:00 -0800)
 
 - **ترقب صلاح ومرموش.. موعد قرعة الدور الثالث من كأس إنجلترا**: [Link](https://www.yallakora.com/fa-cup/3017/news/532614/%D8%AA%D8%B1%D9%82%D8%A8-%D8%B5%D9%84%D8%A7%D8%AD-%D9%88%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%85%D9%88%D8%B9%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7)
