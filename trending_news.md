@@ -1,3 +1,38 @@
+### yalla kora (N/A, Fri, 5 Dec 2025 06:30:00 -0800)
+
+- **ترقب صلاح ومرموش.. موعد قرعة الدور الثالث من كأس إنجلترا**: [Link](https://www.yallakora.com/fa-cup/3017/news/532614/%D8%AA%D8%B1%D9%82%D8%A8-%D8%B5%D9%84%D8%A7%D8%AD-%D9%88%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%85%D9%88%D8%B9%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7)
+- **كأس الاتحاد الإنجليزي 2025/2026**: [Link](https://www.yallakora.com/fa-cup/3017/tour-hp/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+- **موعد تفعيل Triple Captain وبنش بووست في فانتازي 2025**: [Link](https://sports-leb.com/278920/%D9%85%D9%88%D8%B9%D8%AF-%D8%AA%D9%81%D8%B9%D9%8A%D9%84-triple-captain-%D9%88%D8%A8%D9%86%D8%B4-%D8%A8%D9%88%D9%88%D8%B3%D8%AA-%D9%81%D9%8A-%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-2025/)
+
+
+### bein sports live (N/A, Fri, 5 Dec 2025 06:30:00 -0800)
+
+- **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-nz/football/articles-video/watch-live-this-week-on-bein-sports-2025-12-05)
+- **West Ham deny Man Utd top-five spot with late equaliser**: [Link](https://www.bbc.com/sport/football/live/c5yqm4lp65dt)
+- **Ruben Amorim names side to take on West Ham| 4 Dec**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-names-side-to-take-on-west-ham-on-4-dec)
+
+
+### النصر ضد العين (N/A, Fri, 5 Dec 2025 06:30:00 -0800)
+
+- **رحيمي يرفع راية التحدي: العين يتقدّم بثبات نحو النهائي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%8A%D8%B1%D9%81%D8%B9-%D8%B1%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%AF%D9%8A-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D9%8A%D8%AA%D9%82%D8%AF%D9%91%D9%85-%D8%A8%D8%AB%D8%A8%D8%A7%D8%AA-%D9%86%D8%AD%D9%88-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A/blt2dbd812f41c21ee1)
+- **رحيمي: مواجهة النصر تتطلب التركيز**: [Link](https://www.hesport.com/%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%AA%D8%AA%D8%B7%D9%84%D8%A8-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%B2-416164.html)
+- **رحيمي يرفع راية التحدي قبل « الكان »**: [Link](https://ar.sport.le360.ma/football/YJ73JJV2QREDVKPCEHX45RUA7E/)
+
+
+### bein sport (N/A, Fri, 5 Dec 2025 06:20:00 -0800)
+
+- **FIFA World Cup Draw: Everything you need to know**: [Link](https://www.cnn.com/2025/12/05/sport/soccer-world-cup-draw-explainer)
+- **Africa’s World Cup hopefuls await 2026 draw as historic 48-team tournament takes shape**: [Link](https://www.cafonline.com/fifa-world-cup/news/africa-s-world-cup-hopefuls-await-2026-draw-as-historic-48-team-tournament-takes-shape/)
+- **World Cup 2026 Draw: Date, Time, Location and Everything You Need To Know**: [Link](https://www.beinsports.com/en-us/soccer/world-cup/articles/world-cup-2026-draw-date-time-location-and-everything-you-need-to-know-2025-12-05)
+
+
+### مباراة المغرب اليوم (N/A, Fri, 5 Dec 2025 06:00:00 -0800)
+
+- **كأس العرب: كل ما يجب أن تعرفه عن مباريات اليوم الخامس**: [Link](https://www.bbc.com/arabic/articles/cdd52vp039vo)
+- **كأس العرب 2025: قطر وتونس في اختبار تصحيح المسار**: [Link](https://www.alaraby.co.uk/sport/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%82%D8%B7%D8%B1-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%AA%D8%B5%D8%AD%D9%8A%D8%AD-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%B1)
+- **جدول مباريات اليوم الجمعة 5 ديسمبر 2025 في كأس العرب وقرعة كأس العالم .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-5-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%88%D9%82%D8%B1%D8%B9%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt762168bd092cbc6a)
+
+
 ### maroc (N/A, Fri, 5 Dec 2025 05:40:00 -0800)
 
 - **Réunion de Haut Niveau Maroc-Espagne : signature de 14 accords de coopération**: [Link](https://lematin.ma/nation/reunion-de-haut-niveau-maroc-espagne-14-accords-de-cooperation-signes/317283)
