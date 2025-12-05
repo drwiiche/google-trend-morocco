@@ -1,3 +1,17 @@
+### hugo sanchez (N/A, Fri, 5 Dec 2025 10:00:00 -0800)
+
+- **Hugo Sánchez regala postales en lugar de autógrafos previo al sorteo del Mundial 2026**: [Link](https://www.tudn.com/mundial-2026/hugo-sanchez-regala-postales-en-lugar-autografos-previo-sorteo-mundial-2026)
+- **Landon Donovan quiere grupos fáciles para las selecciones anfitrionas del Mundial 2026**: [Link](https://www.record.com.mx/mundial-2026/landon-donovan-quiere-grupos-faciles-para-las-selecciones-anfitrionas-del-mundial-2026)
+- **Hugo Sánchez revela que en la Copa del Mundo, no hay rivales sencillos**: [Link](https://www.estadiodeportes.mx/mundial/hugo-sanchez-advierte-en-el-mundial-no-hay-rivales-faciles-20251205-0024.html)
+
+
+### heidi klum (N/A, Fri, 5 Dec 2025 09:10:00 -0800)
+
+- **How tall is Kevin Hart? Heidi Klum towering over World Cup draw co-host goes viral at ceremony**: [Link](https://sports.yahoo.com/articles/tall-kevin-hart-heidi-klum-173047268.html)
+- **How tall is Kevin Hart? The comedian isn’t shy about discussing his height: “Now if I put a boot on...”**: [Link](https://en.as.com/entertainment/how-tall-is-kevin-hart-the-comedian-isnt-shy-about-discussing-his-height-now-if-i-put-a-boot-on-f202512-n/)
+- **Kevin Hart getting panned as host of World Cup draw: ‘Cringe’**: [Link](https://nypost.com/2025/12/05/sports/kevin-hart-getting-panned-as-host-of-world-cup-draw-cringe/)
+
+
 ### brest – monaco (N/A, Fri, 5 Dec 2025 09:30:00 -0800)
 
 - **Ligue 1 : l'ASM doit dompter son éternelle irrégularité**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-l-as-monaco-n-a-pas-le-choix-que-de-dompter-son-eternelle-irregularite/tOoXMliD/)
