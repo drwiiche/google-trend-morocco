@@ -1,3 +1,10 @@
+### trump (N/A, Sat, 6 Dec 2025 01:30:00 -0800)
+
+- **US Supreme Court agrees to hear case challenging birthright citizenship**: [Link](https://www.bbc.com/news/articles/c208j0wrzrvo)
+- **Supreme Court Agrees to Review Trump Order Restricting Birthright Citizenship**: [Link](https://www.nytimes.com/2025/12/05/us/politics/supreme-court-trump-birthright-citizenship.html)
+- **"What does it mean to be American?": Panel debates SCOTUS decision to hear birthright citizenship case**: [Link](https://www.cnn.com/2025/12/05/politics/video/arena-panel-discuss-scotus-decision-to-hear-trump-birthright-citizenship-case)
+
+
 ### زكرياء حدراف (N/A, Fri, 5 Dec 2025 14:50:00 -0800)
 
 - **زكرياء حدراف يتحدث عن مساره الرياضي وعن ولعه بكرة القدم منذ صغره…في "رشيد شو"**: [Link](https://2m.ma/ar/news/%D8%B2%D9%83%D8%B1%D9%8A%D8%A7%D8%A1-%D8%AD%D8%AF%D8%B1%D8%A7%D9%81-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D9%85%D8%B3%D8%A7%D8%B1%D9%87-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%88%D9%8A%D8%B9%D8%A8%D8%B1-%D8%B9%D9%86-%D9%88%D9%84%D8%B9%D9%87-%D8%A8%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-20251205)
