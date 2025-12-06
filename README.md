@@ -1,3 +1,10 @@
+### egypte foot (N/A, Sat, 6 Dec 2025 12:30:00 -0800)
+
+- **Coupe Arabe 2025, 0-0 mi-temps : l'Égypte et les Émirats arabes unis se neutralisent à la pause**: [Link](https://africafootunited.com/coupe-arabe-2025-0-0-mi-temps-legypte-et-les-emirats-arabes-unis-se-neutralisent-a-la-pause/)
+- **Émirats Arabes Unis – Égypte en direct : où suivre le match ce soir**: [Link](https://algeriezoom.com/emirats-arabes-unis-egypte-en-direct-ou-suivre-le-match-ce-soir/)
+- **Les surprises continuent : l’Égypte échappe à la défaite (vidéo)**: [Link](https://www.elkhabar.com/fr/sports/les-surprises-continuent-l-egypte-echappe-a-la-defaite-video-261644)
+
+
 ### كاس العرب (N/A, Sat, 6 Dec 2025 12:20:00 -0800)
 
 - **المنتخب العراقي يعبر إلى دور الربع**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82%D9%8A-%D9%8A%D8%B9%D8%A8%D8%B1-%D8%A5%D9%84%D9%89-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%B1%D8%A8%D8%B9-1667228.html)
