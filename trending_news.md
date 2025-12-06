@@ -1,3 +1,10 @@
+### rb leipzig – eintracht francfort (N/A, Sat, 6 Dec 2025 11:30:00 -0800)
+
+- **Preview: RB Leipzig vs Eintracht Frankfurt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rb-leipzig/preview/rb-leipzig-vs-frankfurt-prediction-team-news-lineups_587163.html)
+- **Leipzig run riot as Diomande shines in statement win**: [Link](https://onefootball.com/es/noticias/leipzig-run-riot-as-diomande-shines-in-statement-win-42058486)
+- **RB Leipzig vs Eintracht Frankfurt Prediction, 12/6/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/rb-leipzig-vs-eintracht-frankfurt-prediction-12-6-2025-soccer-pick-tips-and-odds.html)
+
+
 ### paris-sg – rennes (N/A, Sat, 6 Dec 2025 11:20:00 -0800)
 
 - **DIRECT. PSG-Rennes (Ligue 1 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/psg-rennes-live/675928)
