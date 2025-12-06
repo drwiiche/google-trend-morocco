@@ -1,3 +1,10 @@
+### classement premier league (N/A, Sat, 6 Dec 2025 07:00:00 -0800)
+
+- **Premier League (15e journée) : Suivez Manchester City – Sunderland EN DIRECT**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-manchester-city-sunderland_mtc1602309/live-commentary.shtml)
+- **DIRECT. Manchester City-Sunderland (Premier League 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/manchester-city-sunderland-live/673649)
+- **Premier League : Le multiplex de la 15ᵉ journée à suivre en direct, avec Manchester City – Sunderland en affiche principale**: [Link](https://www.sport.fr/football/premier-league-le-multiplex-de-la-15%E1%B5%89-journee-a-suivre-en-direct-avec-manchester-city-sunderland-en-affiche-principale-1392201.shtm)
+
+
 ### algeria vs (N/A, Sat, 6 Dec 2025 07:40:00 -0800)
 
 - **Bahrain vs Algeria – How & Where to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270790/bahrain-vs-algeria-how-where-to-watch/)
