@@ -1,3 +1,10 @@
+### لونا الشبل (N/A, Sat, 6 Dec 2025 05:20:00 -0800)
+
+- **تسريبات حصرية للعربية تكشف أحاديث بين الأسد ولونا الشبل**: [Link](https://www.alarabiya.net/arab-and-world/syria/2025/12/06/%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%AD%D8%B5%D8%B1%D9%8A%D8%A9-%D9%84%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D8%AD%D8%A7%D8%AF%D9%8A%D8%AB-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AF-%D9%88%D9%84%D9%88%D9%86%D8%A7-%D8%A7%D9%84%D8%B4%D8%A8%D9%84)
+- **"يلعن أبو الغوطة".. تسريبات خطيرة لمحادثات بين بشار الاسد ولونا الشبل**: [Link](https://www.algomhor.com/324579)
+- **تقرير: تسجيلات خاصة لمحادثات بين الأسد ومستشارته لونا الشبل**: [Link](https://www.i24news.tv/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/middle-east/artc-087c4a8a)
+
+
 ### watford – norwich city (N/A, Sat, 6 Dec 2025 04:50:00 -0800)
 
 - **Watford face double-header that could decide the course of their season**: [Link](https://www.watfordobserver.co.uk/sport/25672890.watford-face-crucial-double-header-vicarage-road/)
