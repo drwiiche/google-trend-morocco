@@ -1,3 +1,31 @@
+### fcb (N/A, Sat, 6 Dec 2025 10:00:00 -0800)
+
+- **Barcelona squad named for Real Betis**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/107428/real-betis-barcelona-la-liga-team-news-squad-list)
+- **Barcelona’s fog-delayed trip to Seville adds late twist before Betis clash**: [Link](https://sports.yahoo.com/articles/barcelona-fog-delayed-trip-seville-145800389.html)
+- **Barcelona handed double injury boost for Real Betis clash**: [Link](https://getfootballnewsspain.com/barcelona-handed-double-injury-boost-for-real-betis-clash/)
+
+
+### classement coupe arabe (N/A, Sat, 6 Dec 2025 10:00:00 -0800)
+
+- **Coupe Arabe de la FIFA Qatar 2025 (2ème journée): Nul blanc entre le Maroc et Sultanat d’Oman**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%B3%D9%84%D8%B7%D9%86%D8%A9/)
+- **Coupe arabe 2025. Maroc-Oman : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/12/05/coupe-arabe-2025-maroc-oman-quelle-heure-quelles-chaines-1589991/)
+- **Coupe arabe : les Lions A' se contentent d’un match nul face à Oman**: [Link](https://lematin.ma/sports/coupe-arabe-les-lions-a-se-contentent-dun-match-nul-face-a-oman/317473)
+
+
+### barca (N/A, Sat, 6 Dec 2025 09:50:00 -0800)
+
+- **Ignoti danneggiano le attrezzature da pesca in dotazione al Parco del Delta del Po: la sdegno della Regione**: [Link](https://risveglioduemila.it/2025/12/ignoti-danneggiano-le-attrezzature-da-pesca-in-dotazione-al-parco-del-delta-del-po-la-sdegno-della-regione/)
+- **Barca rubata e reti tagliate nelle Valli di Comacchio, i sospetti cadono su giovanissimi**: [Link](https://www.gazzettadimodena.it/speciale/2025/12/06/news/barca-rubata-e-reti-tagliate-nelle-valli-di-comacchio-i-sospetti-cadono-su-giovanissimi-1.100801405)
+- **Vandali nel Parco del Delta del Po, ignoti danneggiano le attrezzature per la pesca**: [Link](https://www.ferraratoday.it/cronaca/vandali-attrezzature-danni-parco-delta-po-ferrarese.html)
+
+
+### koora tv (N/A, Sat, 6 Dec 2025 09:50:00 -0800)
+
+- **بث مباشر: شاهد مباراة الإمارات ومصر في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt623a47e197cf6c6f)
+- **تعرف على طاقم حكام مباراة مصر والإمارات فى كأس العرب الليلة**: [Link](https://www.youm7.com/story/2025/12/6/%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%B7%D8%A7%D9%82%D9%85-%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%89-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/7223759)
+- **حلمي طولان: لم أقصد الإساءة إلى منتخب الكويت وأعتذر عن سوء الفهم**: [Link](https://www.alaraby.co.uk/sport/%D8%AD%D9%84%D9%85%D9%8A-%D8%B7%D9%88%D9%84%D8%A7%D9%86-%D9%84%D9%85-%D8%A3%D9%82%D8%B5%D8%AF-%D8%A7%D9%84%D8%A5%D8%B3%D8%A7%D8%A1%D8%A9-%D8%A5%D9%84%D9%89-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%88%D8%A3%D8%B9%D8%AA%D8%B0%D8%B1-%D8%B9%D9%86-%D8%B3%D9%88%D8%A1-%D8%A7%D9%84%D9%81%D9%87%D9%85)
+
+
 ### ليدز ضد ليفربول (N/A, Sat, 6 Dec 2025 09:10:00 -0800)
 
 - **سلوت: أتفهم الجدل حول صلاح.. وثقة فيرتز تتحسن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B3%D9%84%D9%88%D8%AA-%D8%A7%D9%94%D8%AA%D9%81%D9%87%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%AD%D9%88%D9%84-%D8%B5%D9%84%D8%A7%D8%AD--%D9%88%D8%AB%D9%82%D8%A9-%D9%81%D9%8A%D8%B1%D8%AA%D8%B2-%D8%AA%D8%AA%D8%AD%D8%B3%D9%86/blt22f1ef4583a5308e)
