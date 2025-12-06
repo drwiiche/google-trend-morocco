@@ -1,3 +1,10 @@
+### miss france 2026 (N/A, Sat, 6 Dec 2025 10:40:00 -0800)
+
+- **EN IMAGES. Miss France 2026 : voici le portrait des 30 candidates… Ce qu’il faut savoir sur les prétendantes**: [Link](https://www.sudouest.fr/culture/programmes-tv/miss-france/en-images-miss-france-2026-voici-le-portrait-des-30-candidates-ce-qu-il-faut-savoir-sur-les-pretendantes-26953347.php)
+- **“De l’improvisation, mais préparée” : dans les coulisses des derniers préparatifs de la 96e édition de Miss France**: [Link](https://www.rtl.fr/culture/medias-people/de-l-improvisation-mais-preparee-dans-les-coulisses-des-derniers-preparatifs-de-la-96e-edition-de-miss-france-7900574806)
+- **D’Yves Derisbourg à Thierry Baumann, histoire des «Monsieur votes» du concours Miss France**: [Link](https://tvmag.lefigaro.fr/programme-tv/miss-france/d-yves-derisbourg-a-thierry-baumann-histoire-des-monsieur-votes-du-concours-miss-france-20251206)
+
+
 ### naïm qassem (N/A, Sat, 6 Dec 2025 10:20:00 -0800)
 
 - **Lebanese president, Hezbollah split over expanded talks with Israel**: [Link](https://www.reuters.com/world/middle-east/lebanon-says-ceasefire-talks-aim-primarily-halting-israels-hostilities-2025-12-05/)
