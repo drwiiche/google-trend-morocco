@@ -1,3 +1,24 @@
+### naïm qassem (N/A, Sat, 6 Dec 2025 10:20:00 -0800)
+
+- **Lebanese president, Hezbollah split over expanded talks with Israel**: [Link](https://www.reuters.com/world/middle-east/lebanon-says-ceasefire-talks-aim-primarily-halting-israels-hostilities-2025-12-05/)
+- **In message sent via Lebanese outlet, Israeli envoy to US calls for peace with Beirut**: [Link](https://www.timesofisrael.com/in-interview-with-lebanese-media-israeli-envoy-to-us-calls-for-peace-with-beirut/)
+- **U.S. brokers first direct Israel-Lebanon talks in decades**: [Link](https://www.axios.com/2025/12/03/israel-lebanon-talks-border-ceasefire)
+
+
+### roony bardghji (N/A, Sat, 6 Dec 2025 10:10:00 -0800)
+
+- **WATCH: Roony Bardghji scores first Barcelona goal to establish 3-1 lead against Real Betis**: [Link](https://sports.yahoo.com/articles/watch-roony-bardghji-scores-first-180900947.html)
+- **Barcelona star’s nickname returns during Real Betis clash**: [Link](https://getfootballnewsspain.com/barcelona-stars-nickname-returns-during-real-betis-clash/)
+- **WATCH: Antony scores early but Barcelona go 2-1 up as Ferran Torres strikes twice**: [Link](https://www.football-espana.net/2025/12/06/watch-real-betis-barcelona-la-liga-goals-antony-ferran-torres)
+
+
+### fc barcelone (N/A, Sat, 6 Dec 2025 10:10:00 -0800)
+
+- **DIRECT. Betis Séville-FC Barcelone (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/betis-seville-fc-barcelone-live/676856)
+- **La Liga - 15e journée : Bétis Séville - FC Barcelone en direct : mené 1-0 d'entrée, le Barça a déjà retourné le match (1-2)**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-betis-seville-fc-barcelone_mtc1610577/live-commentary.shtml)
+- **Betis - Barcelone : sur quelle chaîne et à quelle heure regarder le match de Liga en direct ?**: [Link](https://rmcsport.bfmtv.com/football/liga/betis-barcelone-sur-quelle-chaine-et-a-quelle-heure-regarder-le-match-de-liga-en-direct_AN-202512060025.html)
+
+
 ### fcb (N/A, Sat, 6 Dec 2025 10:00:00 -0800)
 
 - **Barcelona squad named for Real Betis**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/107428/real-betis-barcelona-la-liga-team-news-squad-list)
