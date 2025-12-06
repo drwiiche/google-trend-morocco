@@ -1,3 +1,30 @@
+### deportivo alavés – real sociedad (N/A, Sat, 6 Dec 2025 06:30:00 -0800)
+
+- **Sergio apuesta por Sadiq ante el Alavés y deja a un crack en el banquillo**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20251206/1002582242/sergio-apuesta-sadiq-alaves-deja-crack-banquillo.html)
+- **Las aficiones del Alavés y de la Real Sociedad inundan las calles de Vitoria**: [Link](https://www.elcorreo.com/alaves/aficiones-alaves-real-sociedad-inundan-calles-vitoria-20251206140310-nt.html)
+- **En busca del inicio de otra buena racha**: [Link](https://www.diariovasco.com/real-sociedad/busca-inicio-buena-racha-20251206071618-nt.html)
+
+
+### man city vs sunderland (N/A, Sat, 6 Dec 2025 06:30:00 -0800)
+
+- **Régis Le Bris on building confidence ahead of Manchester City trip**: [Link](https://www.safc.com/news/2025/december/05/r-gis-le-bris-on-building-confidence-ahead-of-manchester-city-trip/)
+- **🚨Guardiola goes all out to close the gap in the Premier League**: [Link](https://sports.yahoo.com/articles/guardiola-goes-close-gap-premier-134800833.html)
+- **Cherki starts in only change for Sunderland clash**: [Link](https://onefootball.com/en/news/cherki-starts-in-only-change-for-sunderland-clash-42056762)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sat, 6 Dec 2025 06:30:00 -0800)
+
+- **هدافو الدوري الإنجليزي حتى الآن**: [Link](https://hihi2.com/2025/12/06/p3544855.html)
+- **بطولة إنجلترا لكرة القدم – الجولة 14: النتائج والترتيب (النتائج)**: [Link](https://www.maroc24.com/219353-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-14-%D8%A7%D9%84%D9%86/)
+- **تغطية حية مباشر لمباراة فريقي فولام و مانشستر سيتي في بطولة الدوري الإنجليزي الممتاز - الأسبوع 14**: [Link](https://www.filgoal.com/articles/518341/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%81%D9%88%D9%84%D8%A7%D9%85-2-5-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%AA%D8%A8%D8%AF%D9%8A%D9%84-%D9%85%D8%B2%D8%AF%D9%88%D8%AC)
+
+
+### algerie vs (N/A, Sat, 6 Dec 2025 06:30:00 -0800)
+
+- **Watch Live: Algeria faces Bahrain in the Arab Cup 2025**: [Link](https://chamaly.ma/2025/12/06/watch-live-algeria-faces-bahrain-in-the-arab-cup-2025/)
+- **Suivez en direct la rencontre Algérie vs Bahreïn à la Coupe Arabe**: [Link](https://chamaly.ma/2025/12/06/suivez-en-direct-la-rencontre-algerie-vs-bahrein-a-la-coupe-arabe/)
+
+
 ### bournemouth – chelsea (N/A, Sat, 6 Dec 2025 06:20:00 -0800)
 
 - **Injury news: Doubt over Milosavljević ahead of Chelsea**: [Link](https://www.afcb.co.uk/news/2025/december/05/injury-news--/)
