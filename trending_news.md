@@ -1,3 +1,10 @@
+### psg vs rennes (N/A, Sat, 6 Dec 2025 11:40:00 -0800)
+
+- **PSG predicted XI v Rennes: Lucas Chevalier and Illia Zabarnyi out, Matvey Safonov to start**: [Link](https://www.getfootballnewsfrance.com/2025/psg-predicted-xi-v-rennes-lucas-chevalier-and-illia-zabarnyi-out-matvey-safonov-to-start/)
+- **Luis Enrique happy with the competition in Ligue 1**: [Link](https://www.gazetaexpress.com/en/luis-enrique-happy-with-the-competition-in-league-1/)
+- **PSG vs Rennes Prediction, 12/6/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/psg-vs-rennes-prediction-12-6-2025-soccer-pick-tips-and-odds.html)
+
+
 ### rb leipzig – eintracht francfort (N/A, Sat, 6 Dec 2025 11:30:00 -0800)
 
 - **Preview: RB Leipzig vs Eintracht Frankfurt - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rb-leipzig/preview/rb-leipzig-vs-frankfurt-prediction-team-news-lineups_587163.html)
