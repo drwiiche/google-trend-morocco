@@ -1,3 +1,17 @@
+### watford – norwich city (N/A, Sat, 6 Dec 2025 04:50:00 -0800)
+
+- **Watford face double-header that could decide the course of their season**: [Link](https://www.watfordobserver.co.uk/sport/25672890.watford-face-crucial-double-header-vicarage-road/)
+- **Watford vs Norwich City LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/06/1243768-watford-vs-norwich-city-live-efl-championship.html)
+- **Line-Ups: Chakvetadze Starts As Gracia Makes Two Changes**: [Link](https://www.watfordfc.com/news/2025/december/06/line-ups--chakvetadze-starts-as-gracia-makes-two-changes-/)
+
+
+### villarreal – getafe (N/A, Sat, 6 Dec 2025 04:20:00 -0800)
+
+- **Ayoze y Mikautadze, ataque del Villarreal ante un Getafe con Mayoral y Liso en punta**: [Link](https://www.infobae.com/espana/agencias/2025/12/06/ayoze-y-mikautadze-ataque-del-villarreal-ante-un-getafe-con-mayoral-y-liso-en-punta/)
+- **El duelo de la ambición en la Cerámica**: [Link](https://www.epe.es/es/madrid/20251206/duelo-ambicion-ceramica-124504898)
+- **La previa | El Villarreal, a desatar el 'nudo' de Bordalás y acechar al líder**: [Link](https://www.elperiodicomediterraneo.com/villarreal-cf/2025/12/06/previa-villarreal-desatar-nudo-bordalas-124495802.html)
+
+
 ### أستون فيلا ضد آرسنال (N/A, Sat, 6 Dec 2025 04:10:00 -0800)
 
 - **أرتيتا يرد على إيمري.. ويفتح باب المنافسة بين ميرينو وجيوكيريس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%95%D9%8A%D9%85%D8%B1%D9%8A--%D9%88%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D8%A8%D9%8A%D9%86-%D9%85%D9%8A%D8%B1%D9%8A%D9%86%D9%88-%D9%88%D8%AC%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3/blt438bff08229197fc)
