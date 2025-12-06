@@ -1,3 +1,38 @@
+### newcastle – burnley (N/A, Sat, 6 Dec 2025 07:00:00 -0800)
+
+- **Latest. Team news: Six changes for Clarets clash, Wissa on bench**: [Link](https://www.newcastleunited.com/en/news/team-news-six-changes-for-clarets-clash-wissa-on-bench)
+- **Read Eddie Howe's pre-Burnley programme notes**: [Link](https://onefootball.com/de/news/read-eddie-howes-pre-burnley-programme-notes-42055689)
+- **Burnley (H) – Pre-match thoughts, team news, possible XI and prediction**: [Link](https://www.nufcblog.co.uk/2025/12/05/burnley-h-pre-match-thoughts-team-news-possible-xi-and-prediction/)
+
+
+### everton – nottm forest (N/A, Sat, 6 Dec 2025 07:00:00 -0800)
+
+- **Keane Injury Update & Everton Team News For Forest Clash**: [Link](https://www.evertonfc.com/news/2025/december/05/everton-team-news-for-forest-clash/)
+- **Nottingham Forest news: Sean Dyche says reception may 'be good, bad or indifferent'**: [Link](https://www.bbc.com/sport/football/articles/czdgyz14376o)
+- **Injuries pile up for Everton with African duo about to depart**: [Link](https://princerupertstower.com/injuries-pile-up-for-everton-with-african-duo-about-to-depart-01kbk1rgzt8p)
+
+
+### heerenveen – psv eindhoven (N/A, Sat, 6 Dec 2025 07:00:00 -0800)
+
+- **Everything About | Exactly five years ago, PSV and sc Heerenveen played equal**: [Link](https://www.psv.nl/en/media/artikel/alles-over-precies-vijf-jaar-geleden-speelden-psv-en-sc-heerenveen-gelijk)
+- **Preview: Heerenveen vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/heerenveen/preview/heerenveen-vs-psv-prediction-team-news-lineups_587037.html)
+- **Heerenveen vs PSV Eindhoven Prediction and Betting Tips | December 6th 2025**: [Link](https://www.sportskeeda.com/football/heerenveen-vs-psv-eindhoven-prediction-betting-tips-december-6th-2025)
+
+
+### بورنموث ضد تشيلسي (N/A, Sat, 6 Dec 2025 06:50:00 -0800)
+
+- **هدافو تشيلسي في الدوري قبل مواجهة بورنموث**: [Link](https://hihi2.com/2025/12/06/p3544722.html)
+- **بجودة عالية.. بث مباشر مباراة تشيلسي وبورنموث (0-0) في الدوري الإنجليزي**: [Link](https://www.masrtimes.com/630888)
+- **بورنموث ضد تشيلسي: فريقان تعثران، طريقا خارج في ملعب فيتاليتي**: [Link](https://voi.id/ar/sports/540165)
+
+
+### pl (N/A, Sat, 6 Dec 2025 06:50:00 -0800)
+
+- **Czy piekarnie będą otwarte w Wigilię 2025? Gdzie kupić pieczywo 24 grudnia?**: [Link](https://wiadomosci.dziennik.pl/wydarzenia/artykuly/10599092,czy-piekarnie-beda-otwarte-w-wigilie-2025-gdzie-kupic-pieczywo-24-grudnia-czy-wigilia-2412-jest-pracujaca.html)
+- **W grudniu aż 3 handlowe niedziele! Niektóre sklepy będą pracować dłużej**: [Link](https://katowice.tvp.pl/90411647/w-grudniu-az-3-handlowe-niedziele-niektore-sklepy-beda-pracowac-dluzej)
+- **Tegoroczna Wigilia będzie nadzwyczajna dla wielu Polaków. Wszystko przez jeden podpis**: [Link](https://www.sadyogrody.pl/prawo_i_dotacje/104/tegoroczna_wigilia_bedzie_nadzwyczajna_dla_wielu_polakow_wszystko_przez_jeden_podpis,50175.html)
+
+
 ### شتوتغارت ضد البايرن (N/A, Sat, 6 Dec 2025 06:40:00 -0800)
 
 - **بايرن يدخل "القلعة الحديدية".. مهمة شديدة الخطورة في إم إتش بي أرينا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D9%84%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF%D9%8A%D8%A9--%D9%85%D9%87%D9%85%D8%A9-%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%AE%D8%B7%D9%88%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%95%D9%85-%D8%A7%D9%95%D8%AA%D8%B4-%D8%A8%D9%8A-%D8%A7%D9%94%D8%B1%D9%8A%D9%86%D8%A7/blta660f47ab5f3bf75)
