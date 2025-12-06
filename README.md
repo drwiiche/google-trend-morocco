@@ -1,3 +1,10 @@
+### ليدز ضد ليفربول (N/A, Sat, 6 Dec 2025 09:10:00 -0800)
+
+- **سلوت: أتفهم الجدل حول صلاح.. وثقة فيرتز تتحسن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B3%D9%84%D9%88%D8%AA-%D8%A7%D9%94%D8%AA%D9%81%D9%87%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%AD%D9%88%D9%84-%D8%B5%D9%84%D8%A7%D8%AD--%D9%88%D8%AB%D9%82%D8%A9-%D9%81%D9%8A%D8%B1%D8%AA%D8%B2-%D8%AA%D8%AA%D8%AD%D8%B3%D9%86/blt22f1ef4583a5308e)
+- **هدافي ليفربول في البريميرليغ قبل مواجهة ليدز**: [Link](https://hihi2.com/2025/12/06/p3544371.html)
+- **التشكيل المتوقع لقمة ليدز وليفربول في الدوري الإنجليزي**: [Link](https://www.arrajol.com/content/391261/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%82%D9%85%D8%A9-%D9%84%D9%8A%D8%AF%D8%B2-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+
+
 ### chelsea (N/A, Sat, 6 Dec 2025 09:00:00 -0800)
 
 - **Enzo Maresca confirms Chelsea team news for Bournemouth | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-confirms-chelsea-team-news-for-bournemouth)
