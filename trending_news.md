@@ -1,3 +1,17 @@
+### atletico madrid (N/A, Sat, 6 Dec 2025 12:50:00 -0800)
+
+- **Preview: Athletic Bilbao vs Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/race-for-the-la-liga-title/preview/athletic-bilbao-vs-atletico-prediction-team-news-lineups_587135.html)
+- **Valverde Implements Four Changes; Pubill, Gallagher, Almada in Simeone’s Lineup**: [Link](https://www.el-balad.com/6786939)
+- **Athletic Club vs Atletico Madrid Prediction, 12/6/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/athletic-club-vs-atletico-madrid-prediction-12-6-2025-soccer-pick-tips-and-odds.html)
+
+
+### egypte vs (N/A, Sat, 6 Dec 2025 12:30:00 -0800)
+
+- **Live Stream: Egypt vs Kuwait Match in the 2025 Arab Cup**: [Link](https://chamaly.ma/2025/12/02/live-stream-egypt-vs-kuwait-match-in-the-2025-arab-cup/)
+- **En direct : match Égypte vs Émirats arabes unis à la Coupe Arabe**: [Link](https://chamaly.ma/2025/12/06/en-direct-match-egypte-vs-emirats-arabes-unis-a-la-coupe-arabe/)
+- **En direct.. Jordanie vs Koweït à la Coupe Arabe FIFA 2025**: [Link](https://chamaly.ma/2025/12/06/en-direct-jordanie-vs-koweit-a-la-coupe-arabe-fifa-2025/)
+
+
 ### ترتيب كأس العرب 2025 (N/A, Sat, 6 Dec 2025 12:20:00 -0800)
 
 - **جدول ترتيب هدافي كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blta0bcd0ef105564c9)
