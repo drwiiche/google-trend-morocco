@@ -1,3 +1,10 @@
+### ath. bilbao – atlético madrid (N/A, Sat, 6 Dec 2025 11:10:00 -0800)
+
+- **Alineaciones probables hoy del Athletic - Atlético, en el partido de la Liga EASports**: [Link](https://www.marca.com/futbol/atletico/2025/12/06/alineaciones-probables-hoy-athletic-atletico-partido-liga-easports.html)
+- **Athletic Bilbao- Atlético de Madrid: Dos equipos que buscan oxígeno**: [Link](https://onefootball.com/pt-br/noticias/athletic-bilbao-atletico-de-madrid-dos-equipos-que-buscan-oxigeno-42055478)
+- **Mal enemigo para que el Athletic reaccione**: [Link](https://www.deia.eus/athletic/2025/12/06/atletico-madrid-mal-enemigo-athletic-reaccione-10441167.html)
+
+
 ### nantes – lens (N/A, Sat, 6 Dec 2025 10:00:00 -0800)
 
 - **Nantes 1-2 Lens, Ligue 1 : résumé du match (06/12/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/nantes-lens-live/675923)
