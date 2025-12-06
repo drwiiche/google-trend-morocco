@@ -1,3 +1,17 @@
+### fortuna sittard – ajax (N/A, Sat, 6 Dec 2025 11:40:00 -0800)
+
+- **🔴 Ajax op achterstand en Weghorst wedstrijd 'uitgeschopt' • Degradatieduel Telstar in Almelo**: [Link](https://www.nhnieuws.nl/nieuws/355038/ajax-op-achterstand-en-weghorst-wedstrijd-uitgeschopt-degradatieduel-telstar-in-almelo)
+- **Live Eredivisie | Ajax zonder Taylor in uitwedstrijd tegen Fortuna**: [Link](https://www.nu.nl/voetbal/6378527/live-eredivisie-ajax-zonder-taylor-in-uitwedstrijd-tegen-fortuna.html)
+- **Wijndal knalt Ajax naar 1-3 in Limburg • Faber debuteert bij Heracles**: [Link](https://nos.nl/liveblog/2593434-wijndal-knalt-ajax-naar-1-3-in-limburg-faber-debuteert-bij-heracles)
+
+
+### بي اس جي ضد رين (N/A, Sat, 6 Dec 2025 11:30:00 -0800)
+
+- **حكيمي يتصدر قائمة غيابات مؤثرة تضعف باريس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%85%D9%88%D9%94%D8%AB%D8%B1%D8%A9-%D8%AA%D8%B6%D8%B9%D9%81-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3/blt5456dce1ca64ab79)
+- **إنريكي : رين يسبب لنا المشاكل في ملعبنا**: [Link](https://hihi2.com/2025/12/06/p3544107.html)
+- **انريكي يبتكر فكرة جديدة في تدريبات باريس سان جيرمان**: [Link](https://www.elsport.com/news/show/802811/%D8%A7%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%A8%D8%AA%D9%83%D8%B1-%D9%81%D9%83%D8%B1%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+
+
 ### psg vs rennes (N/A, Sat, 6 Dec 2025 11:40:00 -0800)
 
 - **PSG predicted XI v Rennes: Lucas Chevalier and Illia Zabarnyi out, Matvey Safonov to start**: [Link](https://www.getfootballnewsfrance.com/2025/psg-predicted-xi-v-rennes-lucas-chevalier-and-illia-zabarnyi-out-matvey-safonov-to-start/)
