@@ -1,3 +1,24 @@
+### bournemouth – chelsea (N/A, Sat, 6 Dec 2025 06:20:00 -0800)
+
+- **Injury news: Doubt over Milosavljević ahead of Chelsea**: [Link](https://www.afcb.co.uk/news/2025/december/05/injury-news--/)
+- **Enzo Maresca provides concerning Romeo Lavia update ahead of Bournemouth clash**: [Link](https://chelsea.news/2025/12/enzo-maresca-romeo-lavia-latest/)
+- **Predicted XI: Cole Palmer benched for one more game as Enzo Maresca plays it safe**: [Link](https://sports.yahoo.com/articles/predicted-xi-cole-palmer-benched-131100605.html)
+
+
+### tottenham – brentford (N/A, Sat, 6 Dec 2025 06:20:00 -0800)
+
+- **Team news | No change ahead of Brentford - Thomas Frank's latest on Kulusevski and Solanke**: [Link](https://www.tottenhamhotspur.com/news/2025/december/team-news-no-change-ahead-of-brentford-thomas-franks-latest-on-dejan-kulusevski-and-dominic-solanke/)
+- **Thomas Frank hints at the Dominic Solanke and Dejan Kulusevski news Tottenham fans feared all along**: [Link](https://hotspurhq.com/thomas-frank-hints-at-the-dominic-solanke-and-dejan-kulusevski-news-tottenham-fans-feared-all-along-01kbp15cwenp)
+- **Brentford issues Thiago injury update ahead of Tottenham trip**: [Link](https://www.standard.co.uk/sport/football/igor-thiago-injury-update-brentford-tottenham-b1261356.html)
+
+
+### augsbourg – leverkusen (N/A, Sat, 6 Dec 2025 06:10:00 -0800)
+
+- **FC Augsburg vs. Bayer 04 Leverkusen heute live im Ticker: Augsburg will in Spiel eins nach Sandro Wagner die Wende**: [Link](https://www.eurosport.de/fussball/bundesliga/2025-2026/live-fc-augsburg-bayer-04-leverkusen_mtc1608931/live-commentary.shtml)
+- **Top-Fakten: Dauerbrenner und passsichere Leverkusener**: [Link](https://onefootball.com/id/berita/top-fakten-dauerbrenner-und-passsichere-leverkusener-42052333)
+- **FCA-Trainer Baum möchte sich „nicht in die Karten schauen lassen“**: [Link](https://www.fussballdaten.de/news/fca-trainer-baum-moechte-sich-nicht-in-die-karten-schauen-lassen-594b5aa2/)
+
+
 ### stuttgart – bayern (N/A, Sat, 6 Dec 2025 06:00:00 -0800)
 
 - **Rund um den nächsten Gegner: Im Gespräch mit Bayern-Fan Niklas**: [Link](https://onefootball.com/pt-br/noticias/rund-um-den-naechsten-gegner-im-gespraech-mit-bayern-fan-niklas-42054993)
