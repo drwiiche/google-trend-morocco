@@ -1,3 +1,24 @@
+### ترتيب كأس العرب 2025 (N/A, Sat, 6 Dec 2025 12:20:00 -0800)
+
+- **جدول ترتيب هدافي كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blta0bcd0ef105564c9)
+- **مفاجآت كأس العرب 2025..قراءة في أسباب بروز منتخبات غير مرشحة وتعثّر المرشحين.**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%AA%D9%82%D8%A7%D8%B1%D8%A8-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **ما المنتخبات المتأهلة إلى ربع نهائي كأس العرب 2025؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%87%D9%84%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt418a587d0d7c31d0)
+
+
+### ترتيب كاس العرب (N/A, Sat, 6 Dec 2025 12:20:00 -0800)
+
+- **الأردن يبلغ ربع نهائي "كأس العرب"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%8A%D8%A8%D9%84%D8%BA-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1667033.html)
+- **المنتخب الأردني يفوز على نظيره المنتخب الكويتي ويتأهل إلى ربع النهائي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA%D9%8A-%D9%88%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-2025-12-06)
+- **شاهد.. تأهل الأردن إلى ربع نهائي كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/6/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%A8%D9%83%D8%A3%D8%B3)
+
+
+### inter miami (N/A, Sat, 6 Dec 2025 11:40:00 -0800)
+
+- **MLS Cup final: Inter Miami v Vancouver Whitecaps – live**: [Link](https://www.theguardian.com/football/live/2025/dec/06/mls-cup-final-inter-miami-v-vancouver-whitecaps-live-build-up)
+- **[TOTAL SPORTEK]…! Soccer/MLS Cup Final Live Streams Free 06 December 2025**: [Link](https://www.goldderby.com/topic/total-sportek-soccer-mls-cup-final-live-streams-free-06-december-2025/)
+- **MLS 2025: Messi and Müller face off in the final**: [Link](https://foot-africa.com/en/news/mls-2025-messi-and-muller-face-off-in-the-final-991463/)
+
+
 ### egypte foot (N/A, Sat, 6 Dec 2025 12:30:00 -0800)
 
 - **Coupe Arabe 2025, 0-0 mi-temps : l'Égypte et les Émirats arabes unis se neutralisent à la pause**: [Link](https://africafootunited.com/coupe-arabe-2025-0-0-mi-temps-legypte-et-les-emirats-arabes-unis-se-neutralisent-a-la-pause/)
