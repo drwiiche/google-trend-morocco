@@ -1,3 +1,17 @@
+### أستون فيلا ضد آرسنال (N/A, Sat, 6 Dec 2025 04:10:00 -0800)
+
+- **أرتيتا يرد على إيمري.. ويفتح باب المنافسة بين ميرينو وجيوكيريس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%95%D9%8A%D9%85%D8%B1%D9%8A--%D9%88%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D8%A8%D9%8A%D9%86-%D9%85%D9%8A%D8%B1%D9%8A%D9%86%D9%88-%D9%88%D8%AC%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3/blt438bff08229197fc)
+- **بطولة إنكلترا: أوناي إيمري يرى في مواجهة أرسنال "الاختبار الحقيقي"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251205-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D9%88%D9%86%D8%A7%D9%8A-%D8%A5%D9%8A%D9%85%D8%B1%D9%8A-%D9%8A%D8%B1%D9%89-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D9%8A)
+- **هدافي أرسنال في البريميرليغ قبل مواجهة أستون فيلا**: [Link](https://hihi2.com/2025/12/06/p3544261.html)
+
+
+### aston villa – arsenal (N/A, Sat, 6 Dec 2025 03:50:00 -0800)
+
+- **Team news: Saka, Eze and Timber in for Villa game**: [Link](https://www.arsenal.com/news/team-news-saka-eze-and-timber-villa-game)
+- **The Big Question: Can Villa rival Arsenal in the title race?**: [Link](https://www.premierleague.com/en/news/4486721/the-big-question-can-villa-rival-arsenal-in-the-title-race)
+- **Team news for Arsenal encounter**: [Link](https://www.avfc.co.uk/news/2025/december/05/prematch-team-news-for-arsenal-encounter/)
+
+
 ### a (N/A, Fri, 5 Dec 2025 20:30:00 -0800)
 
 - **Frank Gehry’s Buildings Sound as Marvelous as They Look**: [Link](https://www.nytimes.com/2025/12/06/arts/music/frank-gehry-concert-halls-classical-music.html)
