@@ -1,3 +1,10 @@
+### nantes – lens (N/A, Sat, 6 Dec 2025 10:00:00 -0800)
+
+- **Nantes 1-2 Lens, Ligue 1 : résumé du match (06/12/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/nantes-lens-live/675923)
+- **15e journée Ligue 1 2025/2026 : Suivez Nantes - Lens EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-fc-nantes-rc-lens_mtc1609277/live-commentary.shtml)
+- **L1 : le classement provisoire**: [Link](https://news.maxifoot.fr/ligue-1/le-classement-provisoire-foot-445927.htm)
+
+
 ### miss france 2026 (N/A, Sat, 6 Dec 2025 10:40:00 -0800)
 
 - **EN IMAGES. Miss France 2026 : voici le portrait des 30 candidates… Ce qu’il faut savoir sur les prétendantes**: [Link](https://www.sudouest.fr/culture/programmes-tv/miss-france/en-images-miss-france-2026-voici-le-portrait-des-30-candidates-ce-qu-il-faut-savoir-sur-les-pretendantes-26953347.php)
