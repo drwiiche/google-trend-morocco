@@ -1,3 +1,17 @@
+### inter – côme (N/A, Sat, 6 Dec 2025 08:30:00 -0800)
+
+- **Giaccherini: "Alla Juve emozioni incredibili. Napoli, un rammarico. Ma non è dipeso solo da me"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/06-12-2025/emanuele-giaccherini-intervista.shtml)
+- **“Conte torna bianconero”: la frase che fa esplodere Napoli-Juve | Vigilia di fuoco, lo scenario ribalta tutto**: [Link](https://www.retesei.com/conte-torna-bianconero-la-frase-che-fa-esplodere-napoli-juve-vigilia-di-fuoco-lo-scenario-ribalta-tutto/)
+- **Giaccherini: ''Assenza di Lobotka pesa, ma il Napoli si ritrovando identità. Partita apertissima''**: [Link](https://www.napolicalcionews.it/news-calcio-napoli/Giaccherini---Assenza-di-Lobotka-pesa--ma-il-Napoli-si-ritrovando-identita--Partita-apertissima--144392.aspx)
+
+
+### algeria vs bahrain (N/A, Sat, 6 Dec 2025 08:10:00 -0800)
+
+- **Bahrain vs Algeria – How & Where to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270790/bahrain-vs-algeria-how-where-to-watch/)
+- **FIFA Arab Cup - Qatar 2025 - Group D - Bahrain v Algeria**: [Link](https://www.reutersconnect.com/item/fifa-arab-cup-qatar-2025-group-d-bahrain-v-algeria/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1VQMUVMQzYxMjRaUlA)
+- **Arab Cup 2025 / Algeria – Bahrain: Madjid Bougherra's likely lineup**: [Link](https://sports.yahoo.com/articles/arab-cup-2025-algeria-bahrain-094000861.html)
+
+
 ### classement premier league (N/A, Sat, 6 Dec 2025 07:00:00 -0800)
 
 - **Premier League (15e journée) : Suivez Manchester City – Sunderland EN DIRECT**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-manchester-city-sunderland_mtc1602309/live-commentary.shtml)
