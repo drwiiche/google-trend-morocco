@@ -1,3 +1,24 @@
+### stuttgart – bayern (N/A, Sat, 6 Dec 2025 06:00:00 -0800)
+
+- **Rund um den nächsten Gegner: Im Gespräch mit Bayern-Fan Niklas**: [Link](https://onefootball.com/pt-br/noticias/rund-um-den-naechsten-gegner-im-gespraech-mit-bayern-fan-niklas-42054993)
+- **»Die beste Bühne«**: [Link](https://www.gea.de/sport/vfb-stuttgart_artikel,-die-beste-b%C3%BChne-_arid,7102147.html)
+- **Bundesliga-Konferenz:Bayern muss zu gefährlichen Stuttgartern, St. Pauli in Köln**: [Link](https://www.focus.de/sport/fussball/bundesliga-konferenz-bayern-muss-zu-gefaehrlichen-stuttgartern-st-pauli-in-koeln_4632e145-0d1f-481e-8727-4c80b1969e3f.html)
+
+
+### فياريال ضد خيتافي (N/A, Sat, 6 Dec 2025 05:50:00 -0800)
+
+- **موعد مباراة فياريال وخيتافي في الدوري الإسباني 2025**: [Link](https://almashhadalaraby.com/news/540801)
+- **مباشر مباراة فياريال ضد خيتافي (0-0) في الدوري الإسباني اليوم**: [Link](https://www.masrtimes.com/631021)
+- **لا تفوت المتعة.. شاهد مباراة فياريال وخيتافي في الدوري الإسباني اليوم السبت 6 ديسمبر 2025**: [Link](https://eahelqesa.com/49902/%D9%84%D8%A7-%D8%AA%D9%81%D9%88%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%B9%D8%A9-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%AE%D9%8A/)
+
+
+### algerie foot (N/A, Sat, 6 Dec 2025 05:50:00 -0800)
+
+- **Coupe arabe FIFA 2025 : Bougherra : «L’expulsion d’Ounas a changé le cours du match» - Sports**: [Link](https://www.lesoirdalgerie.com/sports/bougherra-l-expulsion-d-ounas-a-change-le-cours-du-match-143633)
+- **«On veut donner de la joie au peuple !»**: [Link](https://www.lexpressiondz.com/sports/on-veut-donner-de-la-joie-au-peuple-400590)
+- **DIRECT Bahreïn – Algérie (0-0) : La frappe d’Adel Boulbina fuit le cadre (17′)**: [Link](https://africafootunited.com/direct-bahrein-algerie-0-0-la-frappe-dadel-boulbina-fuit-le-cadre-17/)
+
+
 ### لونا الشبل (N/A, Sat, 6 Dec 2025 05:20:00 -0800)
 
 - **تسريبات حصرية للعربية تكشف أحاديث بين الأسد ولونا الشبل**: [Link](https://www.alarabiya.net/arab-and-world/syria/2025/12/06/%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%AD%D8%B5%D8%B1%D9%8A%D8%A9-%D9%84%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D8%AD%D8%A7%D8%AF%D9%8A%D8%AB-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AF-%D9%88%D9%84%D9%88%D9%86%D8%A7-%D8%A7%D9%84%D8%B4%D8%A8%D9%84)
