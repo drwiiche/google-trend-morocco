@@ -1,3 +1,10 @@
+### oncf (N/A, Sat, 6 Dec 2025 15:30:00 -0800)
+
+- **L’ONCF propose une carte à –50% pour les voyageurs en situation de handicap**: [Link](https://lematin.ma/societe/carte-oncf-a-50-pour-les-personnes-handicapees/316821)
+- **Des réductions inédites au profit des personnes en situation de handicap**: [Link](https://mobile.telquel.ma/2025/12/03/des-reductions-inedites-au-profit-des-personnes-en-situation-de-handicap_1963588)
+- **La réduction des tarifs de transports ferroviaires pour les personnes en situation de handicap vise à renforcer l'intégration sociale de cette frange de la société (Mme Ben Yahia)**: [Link](https://www.maroc24.com/fr/113547-la-reduction-des-tarifs-de-transports-ferroviaires-pour-les-personnes-en-situation-de-handicap-vise-a-renforcer-lintegration-sociale-de-cette-frange-de-la-societe-mme-ben-yahia/)
+
+
 ### منى زكي (N/A, Sat, 6 Dec 2025 14:40:00 -0800)
 
 - **مروان حامد: مسيرة أم كلثوم ألهمتني لصناعة فيلم عن أسطورة لا تتكرر**: [Link](https://www.hespress.com/%D9%85%D8%B1%D9%88%D8%A7%D9%86-%D8%AD%D8%A7%D9%85%D8%AF-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A3%D9%85-%D9%83%D9%84%D8%AB%D9%88%D9%85-%D8%A3%D9%84%D9%87%D9%85%D8%AA%D9%86%D9%8A-%D9%84%D8%B5%D9%86%D8%A7-1666126.html)
