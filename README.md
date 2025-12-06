@@ -1,3 +1,17 @@
+### miss france 2025 (N/A, Sat, 6 Dec 2025 13:50:00 -0800)
+
+- **Exclu. Angélique Angari-Filopon (Miss France 2025) fait le bilan de son année : "N’importe qui à ma place aurait voulu tout abandonner" - Télé-Loisirs**: [Link](https://www.programme-tv.net/news/evenement/miss-france-miss-france/393041-exclu-angelique-angari-filopon-miss-france-2025-fait-le-bilan-de-son-annee-nimporte-qui-a-ma-place-aurait-voulu-tout-abandonner/)
+- **"Même 1 euro, ça peut avoir un impact" : des lycéens amiénois mobilisés pour le Téléthon avec Miss France 2025**: [Link](https://www.francebleu.fr/infos/societe/meme-1-euro-ca-peut-avoir-un-impact-des-lyceens-amienois-mobilises-pour-le-telethon-avec-miss-france-2025-1463900)
+- **EN DIRECT - Miss France 2026 : découvrez qui sont les 5 miss finalistes**: [Link](https://www.gala.fr/l_actu/news_de_stars/en-direct-miss-france-2026-preparations-des-miss-repetitions-coulisses-suivez-le-concours-sur-gala-fr-20251206)
+
+
+### metlife stadium (N/A, Sat, 6 Dec 2025 12:50:00 -0800)
+
+- **World Cup Final Scheduled for July 19 at MetLife Stadium**: [Link](https://news.ssbcrack.com/world-cup-final-scheduled-for-july-19-at-metlife-stadium/)
+- **Later kick-offs dominate at FIFA World Cup 2026 except for New Jersey final**: [Link](https://www.qatar-tribune.com/article/208167/sports/later-kick-offs-dominate-at-fifa-world-cup-2026-except-for-new-jersey-final)
+- **World Cup final to be afternoon match at MetLife, allowing prime-time viewing in Europe**: [Link](https://fredericksburg.com/sports/professional/article_93f352c5-34f1-581d-bc8e-5e17cfe8edb6.html)
+
+
 ### atletico madrid (N/A, Sat, 6 Dec 2025 12:50:00 -0800)
 
 - **Preview: Athletic Bilbao vs Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/race-for-the-la-liga-title/preview/athletic-bilbao-vs-atletico-prediction-team-news-lineups_587135.html)
