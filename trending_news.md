@@ -1,3 +1,24 @@
+### chelsea (N/A, Sat, 6 Dec 2025 09:00:00 -0800)
+
+- **Enzo Maresca confirms Chelsea team news for Bournemouth | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-confirms-chelsea-team-news-for-bournemouth)
+- **“One of the regrets” – Enzo Maresca names Chelsea player he wishes he played against Leeds**: [Link](https://chelsea.news/2025/12/enzo-maresca-acheampong-chelsea-leeds/)
+- **Tosin Adarabioyo serves as an example for Maresca: why Chelsea won't be buying experienced players**: [Link](https://112.ua/en/enzo-maresca-singles-out-experienced-chelsea-flop-after-leeds-horror-show-118388)
+
+
+### leeds united – liverpool (N/A, Sat, 6 Dec 2025 08:50:00 -0800)
+
+- **Leeds United vs Liverpool: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cg5mqv4nvj9t)
+- **Slot’s bold decision as Salah dropped for a third straight match: Leeds team news**: [Link](https://onefootball.com/en/news/slots-bold-decision-as-salah-dropped-for-a-third-straight-match-leeds-team-news-42057646)
+- **Daniel Farke outlines worrying Leeds team news with big decisions still pending before Liverpool**: [Link](https://www.empireofthekop.com/2025/12/06/daniel-farke-leeds-team-news/)
+
+
+### bournemouth vs chelsea (N/A, Sat, 6 Dec 2025 07:10:00 -0800)
+
+- **Liam Delap forced off against Bournemouth as Chelsea striker suffers suspected shoulder injury**: [Link](https://www.independent.co.uk/sport/football/liam-delap-shoulder-injury-chelsea-bournemouth-b2879389.html)
+- **BREAKING: Chelsea lose attacker to injury that could mean month out; replacement tells you a lot about Maresca’s thinking**: [Link](https://chelsea.news/2025/12/liam-delap-chelsea-injury-weeks-out-maresca/)
+- **AFC Bournemouth 0-0 Chelsea: Blues dealt Liam Delap injury blow in goalless draw**: [Link](https://onefootball.com/id/berita/afc-bournemouth-0-0-chelsea-blues-dealt-liam-delap-injury-blow-in-goalless-draw-42057689)
+
+
 ### ريال بتيس ضد برشلونة (N/A, Sat, 6 Dec 2025 08:40:00 -0800)
 
 - **عودة ثنائية.. فليك يحشد نجوم برشلونة في موقعة بيتيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AD%D8%B4%D8%AF-%D9%86%D8%AC%D9%88%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3/blt8dadb617f1127805)
