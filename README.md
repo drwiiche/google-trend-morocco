@@ -1,3 +1,10 @@
+### boycott israël eurovision 2026 (N/A, Fri, 5 Dec 2025 21:10:00 -0800)
+
+- **Ireland among countries boycotting Eurovision after Israel allowed to compete**: [Link](https://www.bbc.com/news/articles/cde6d8wyp79o)
+- **Austria to go ahead with Eurovision despite financial impact of boycott**: [Link](https://www.theguardian.com/tv-and-radio/2025/dec/05/austria-eurovision-boycott-over-israel-financial-impact)
+- **At least 4 countries pull out of 2026 Eurovision contest as Israel’s participation sows discord**: [Link](https://apnews.com/article/eurovision-israel-gaza-european-broadcasting-union-7c32ff44f0107aa7ffdcde8f670b6744)
+
+
 ### igamane (N/A, Fri, 5 Dec 2025 14:00:00 -0800)
 
 - **Lille 1-0 Marseille: Mbappe strike closes gap to Ligue 1 summit**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/lille-1-0-marseille-mbappe-strike-closes-gap-to-ligue-1-summit-2025-12-05)
