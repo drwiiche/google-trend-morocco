@@ -1,3 +1,17 @@
+### algeria vs (N/A, Sat, 6 Dec 2025 07:40:00 -0800)
+
+- **Bahrain vs Algeria – How & Where to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270790/bahrain-vs-algeria-how-where-to-watch/)
+- **FIFA Arab Cup - Qatar 2025 - Group D - Bahrain v Algeria**: [Link](https://www.reutersconnect.com/item/fifa-arab-cup-qatar-2025-group-d-bahrain-v-algeria/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1VQMUVMQzYxMjRaUlA)
+- **Arab Cup 2025 / Algeria - Bahrain: head-to-head history**: [Link](https://sports.yahoo.com/articles/arab-cup-2025-algeria-bahrain-093000379.html)
+
+
+### algerie vs bahrain (N/A, Sat, 6 Dec 2025 07:00:00 -0800)
+
+- **Watch Live: Algeria faces Bahrain in the Arab Cup 2025**: [Link](https://chamaly.ma/2025/12/06/watch-live-algeria-faces-bahrain-in-the-arab-cup-2025/)
+- **Suivez en direct la rencontre Algérie vs Bahreïn à la Coupe Arabe**: [Link](https://chamaly.ma/2025/12/06/suivez-en-direct-la-rencontre-algerie-vs-bahrein-a-la-coupe-arabe/)
+- **DIRECT. Bahreïn-Algérie: un match fou dans le groupe D de la Coupe arabe**: [Link](https://rmcsport.bfmtv.com/football/equipe-algerie/direct-bahrein-algerie-suivez-en-live-le-match-du-groupe-d-de-la-coupe-arabe_LS-202512060206.html)
+
+
 ### newcastle – burnley (N/A, Sat, 6 Dec 2025 07:00:00 -0800)
 
 - **Latest. Team news: Six changes for Clarets clash, Wissa on bench**: [Link](https://www.newcastleunited.com/en/news/team-news-six-changes-for-clarets-clash-wissa-on-bench)
