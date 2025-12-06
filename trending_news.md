@@ -1,3 +1,31 @@
+### paris-sg – rennes (N/A, Sat, 6 Dec 2025 11:20:00 -0800)
+
+- **DIRECT. PSG-Rennes (Ligue 1 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/psg-rennes-live/675928)
+- **PSG-Rennes : Zabarnyi malade et forfait de dernière minute**: [Link](https://www.leparisien.fr/sports/football/ligue-1/psg-rennes-zabarnyi-malade-et-forfait-de-derniere-minute-06-12-2025-7DZCRYU2DJA7JCNRXFVCPNTDVI.php)
+- **Paris SG - Stade Rennais. Les Rouge et Noir vont retrouver Ousmane Dembélé, pas Désiré Doué**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/paris-sg-stade-rennais-les-rouge-et-noir-vont-retrouver-ousmane-dembele-pas-desire-doue-b8b4d0f2-d1d8-11f0-9e33-11f0fa5dcfce)
+
+
+### inter miami – whitecaps (N/A, Sat, 6 Dec 2025 11:20:00 -0800)
+
+- **Three iPhone 17 Pros to be used during MLS League final broadcast**: [Link](https://telegrafi.com/en/Three-iPhone-17-Pros-will-be-used-during-the-broadcast-of-the-MLS-League-Finals/)
+- **The Final Boss: Messi vs. Müller One Last Time in the 2025 MLS Cup**: [Link](https://www.365scores.com/news/the-final-boss-messi-vs-muller-one-last-time-in-the-2025-mls-cup)
+- **Preview: Inter Miami and Vancouver Whitecaps meet in season decider**: [Link](https://www.fotmob.com/topnews/24357-preview-inter-miami-vancouver-whitecaps-meet-season-decider?utm_source=fotmob)
+
+
+### أتلتيك بيلباو ضد أتلتيكو مدريد (N/A, Sat, 6 Dec 2025 11:20:00 -0800)
+
+- **أتلتيكو مدريد.. الحصة الأخيرة**: [Link](https://arriyadiyah.com/879994/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF..-%D8%A7%D9%84%D8%AD%D8%B5%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9)
+- **القنوات الناقلة لمباراة أتليتكو مدريد ضد أتليتك بيلباو اليوم في الدوري الإسباني مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/376583845013372-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **هدافي أتلتيكو مدريد في الليغا قبل مواجهة بيلباو**: [Link](https://hihi2.com/2025/12/06/p3544420.html)
+
+
+### barca vs (N/A, Sat, 6 Dec 2025 10:10:00 -0800)
+
+- **El once del Barça contra el Betis con Roony y dos ausencias de peso**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251206/1002582295/once-barca-betis-roony-dos-ausencias-peso.html)
+- **La convocatoria del FC Barcelona para el partido contra el Real Betis**: [Link](https://www.sport.es/es/noticias/barca/convocatoria-fc-barcelona-partido-real-betis-barca-flick-fermin-de-jong-araujo-124476105)
+- **Flick cree que su equipo ha dado "un paso adelante enorme" tras la derrota ante el Chelsea**: [Link](https://es-us.noticias.yahoo.com/deportes/flick-cree-equipo-paso-enorme-154800076.html)
+
+
 ### ath. bilbao – atlético madrid (N/A, Sat, 6 Dec 2025 11:10:00 -0800)
 
 - **Alineaciones probables hoy del Athletic - Atlético, en el partido de la Liga EASports**: [Link](https://www.marca.com/futbol/atletico/2025/12/06/alineaciones-probables-hoy-athletic-atletico-partido-liga-easports.html)
