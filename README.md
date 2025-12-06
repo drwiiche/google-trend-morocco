@@ -1,3 +1,17 @@
+### ريال بتيس ضد برشلونة (N/A, Sat, 6 Dec 2025 08:40:00 -0800)
+
+- **عودة ثنائية.. فليك يحشد نجوم برشلونة في موقعة بيتيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AD%D8%B4%D8%AF-%D9%86%D8%AC%D9%88%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3/blt8dadb617f1127805)
+- **1800… برشلونة ينتظر رقما قياسيا من بوابة بيتيس**: [Link](https://hihi2.com/2025/12/05/p3543750.html)
+- **موعد مباراة ريال بيتيس ضد برشلونة بالدوري الإسباني والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/5/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
+### real betis vs barcelona (N/A, Sat, 6 Dec 2025 08:40:00 -0800)
+
+- **Betis - Barcelona hoy, en directo: LaLiga EA Sports, última hora en vivo**: [Link](https://as.com/futbol/primera/betis-barcelona-en-directo-laliga-ea-sports-en-vivo-y-online-f202512-d/)
+- **El once del Barça contra el Betis con Roony y dos ausencias de peso**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251206/1002582295/once-barca-betis-roony-dos-ausencias-peso.html)
+- **Flick, obligado a mover piezas en ataque contra el Betis**: [Link](https://www.sport.es/es/noticias/barca/flick-mueve-piezas-ataque-partido-olmo-de-jong-fermin-barca-barcelona-betis-124486300)
+
+
 ### inter – côme (N/A, Sat, 6 Dec 2025 08:30:00 -0800)
 
 - **Giaccherini: "Alla Juve emozioni incredibili. Napoli, un rammarico. Ma non è dipeso solo da me"**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/06-12-2025/emanuele-giaccherini-intervista.shtml)
