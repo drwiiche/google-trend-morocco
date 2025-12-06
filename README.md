@@ -1,3 +1,10 @@
+### a (N/A, Fri, 5 Dec 2025 20:30:00 -0800)
+
+- **Frank Gehry’s Buildings Sound as Marvelous as They Look**: [Link](https://www.nytimes.com/2025/12/06/arts/music/frank-gehry-concert-halls-classical-music.html)
+- **Frank Gehry, world renowned architect, dies at 96**: [Link](https://www.cnn.com/2025/12/05/style/architect-frank-gehry-dies)
+- **Column | Frank Gehry made us care about architecture. Even if you hated his buildings.**: [Link](https://www.washingtonpost.com/entertainment/art/2025/12/05/frank-gehry-architect-death-appreciation/)
+
+
 ### trump (N/A, Sat, 6 Dec 2025 01:30:00 -0800)
 
 - **US Supreme Court agrees to hear case challenging birthright citizenship**: [Link](https://www.bbc.com/news/articles/c208j0wrzrvo)
