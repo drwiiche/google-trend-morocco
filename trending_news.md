@@ -1,3 +1,31 @@
+### كاس العرب (N/A, Sat, 6 Dec 2025 12:20:00 -0800)
+
+- **المنتخب العراقي يعبر إلى دور الربع**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82%D9%8A-%D9%8A%D8%B9%D8%A8%D8%B1-%D8%A5%D9%84%D9%89-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%B1%D8%A8%D8%B9-1667228.html)
+- **مباشر مباراة السودان ضد العراق (0-2) في كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/6/sudan-vs-iraq?update=8340106)
+- **أرقام مهند علي في مباراة العراق والسودان**: [Link](https://hihi2.com/2025/12/06/p3545892.html)
+
+
+### مجموعات كأس العرب 2025 (N/A, Sat, 6 Dec 2025 12:20:00 -0800)
+
+- **بث مباشر: شاهد مباراة الإمارات ومصر في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt623a47e197cf6c6f)
+- **تعرف على طاقم حكام مباراة مصر والإمارات فى كأس العرب الليلة**: [Link](https://www.youm7.com/story/2025/12/6/%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%B7%D8%A7%D9%82%D9%85-%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%89-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/7223759)
+- **حلمي طولان: لم أقصد الإساءة إلى منتخب الكويت وأعتذر عن سوء الفهم**: [Link](https://www.alaraby.co.uk/sport/%D8%AD%D9%84%D9%85%D9%8A-%D8%B7%D9%88%D9%84%D8%A7%D9%86-%D9%84%D9%85-%D8%A3%D9%82%D8%B5%D8%AF-%D8%A7%D9%84%D8%A5%D8%B3%D8%A7%D8%A1%D8%A9-%D8%A5%D9%84%D9%89-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D9%88%D8%A3%D8%B9%D8%AA%D8%B0%D8%B1-%D8%B9%D9%86-%D8%B3%D9%88%D8%A1-%D8%A7%D9%84%D9%81%D9%87%D9%85)
+
+
+### ترتيب كأس العرب (N/A, Sat, 6 Dec 2025 12:10:00 -0800)
+
+- **جدول ترتيب هدافي كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blta0bcd0ef105564c9)
+- **مفاجآت كأس العرب 2025..قراءة في أسباب بروز منتخبات غير مرشحة وتعثّر المرشحين.**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%AA%D9%82%D8%A7%D8%B1%D8%A8-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **ما المنتخبات المتأهلة إلى ربع نهائي كأس العرب 2025؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%87%D9%84%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt418a587d0d7c31d0)
+
+
+### egypt vs (N/A, Sat, 6 Dec 2025 12:10:00 -0800)
+
+- **Hossam Hassan says Egypt must ‘show a better face’ at 2026 World Cup after favourable draw**: [Link](https://www.cafonline.com/fifa-world-cup/news/hossam-hassan-says-egypt-must-show-a-better-face-at-2026-world-cup-after-favourable-draw/)
+- **Here are the groups for the 2026 FIFA World Cup**: [Link](https://www.cnn.com/2025/12/05/sport/soccer-world-cup-2026-groups)
+- **FIFA World Cup 2026 draw – updates**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/5/live-fifa-2026-world-cup-draw)
+
+
 ### fortuna sittard – ajax (N/A, Sat, 6 Dec 2025 11:40:00 -0800)
 
 - **🔴 Ajax op achterstand en Weghorst wedstrijd 'uitgeschopt' • Degradatieduel Telstar in Almelo**: [Link](https://www.nhnieuws.nl/nieuws/355038/ajax-op-achterstand-en-weghorst-wedstrijd-uitgeschopt-degradatieduel-telstar-in-almelo)
