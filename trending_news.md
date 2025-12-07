@@ -1,3 +1,10 @@
+### formula 1 (N/A, Sun, 7 Dec 2025 02:50:00 -0800)
+
+- **What are the strategy options for the Abu Dhabi Grand Prix?**: [Link](https://www.formula1.com/en/latest/article/strategy-guide-what-are-the-tactical-options-for-the-title-decider-in-abu.01DgFSAQ4IkQPZezkARJjp)
+- **'F1 title decider could hardly be better set up'**: [Link](https://www.bbc.com/sport/formula1/articles/c2k4zd305z5o)
+- **F1 Abu Dhabi GP LIVE: Race, Qualifying, Practice title decider updates, stream, highlights in Lando Norris, Max Verstappen, Oscar Piastri fight**: [Link](https://www.skysports.com/f1/live-blog/12040/13478726/f1-abu-dhabi-gp-live-race-qualifying-practice-title-decider-updates-stream-highlights-in-lando-norris-max-verstappen-oscar-piastri-fight)
+
+
 ### hamza igamane blessure (N/A, Sun, 7 Dec 2025 00:30:00 -0800)
 
 - **Mauvaise nouvelle pour les Lions: Hamza Igamane sort sur blessure face à l’OM**: [Link](https://www.lesiteinfo.com/sport/661538-mauvaise-nouvelle-pour-les-lions-hamza-igamane-sort-sur-blessure-face-a-lom.html)
