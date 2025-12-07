@@ -1,3 +1,24 @@
+### valence – séville (N/A, Sun, 7 Dec 2025 06:30:00 -0800)
+
+- **DIRECT. Valence CF-Séville FC (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/valence-cf-seville-fc-live/676861)
+- **Commentaires et pronostics pour Valence - Séville : Un match serré**: [Link](https://baonghean.vn/fr/nhan-dinh-du-doan-valencia-vs-sevilla-the-tran-giang-co-10314117.html)
+- **Liga : Valence - FC Seville en streaming : A quelle heure et sur quelle chaîne TV voir le match en direct ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-liga-valence-fc-seville-en-streaming-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-en-direct-ij-504710.html)
+
+
+### lando norris (N/A, Sun, 7 Dec 2025 06:30:00 -0800)
+
+- **Toto Wolff issues apology to Red Bull as Mercedes fined after costly Abu Dhabi FP3 error**: [Link](https://www.motorsport.com/f1/news/toto-wolff-issues-apology-to-red-bull-after-costly-abu-dhabi-fp3-error/10782787/)
+- **FIA confirms double Yuki Tsunoda, Red Bull punishment after Lando Norris incident**: [Link](https://www.planetf1.com/news/fia-yuki-tsunoda-red-bull-lando-norris-abu-dhabi-grand-prix-fp3-decision)
+- **Kimi Antonelli set for Abu Dhabi penalty after pit-lane crash with Yuki Tsunoda**: [Link](https://racingnews365.com/kimi-antonelli-set-for-abu-dhabi-penalty-after-pit-lane-crash-with-yuki-tsunoda)
+
+
+### girona (N/A, Sun, 7 Dec 2025 06:20:00 -0800)
+
+- **Girona visits Elche in a match to strengthen feelings.**: [Link](https://sports.yahoo.com/articles/girona-visits-elche-match-strengthen-113000417.html)
+- **Where to Watch Elche CF vs. Girona FC: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/06/where-to-watch-elche-cf-vs-girona-fc-tv-channel-start-time-and-live-stream/)
+- **Elche C. F. faces crucial test against Girona with home fortress advantage, but one shocking statistic threatens their survival hopes**: [Link](https://www.red94.net/news/58144-elche-c-f-faces-girona-in-crucial-laliga-clash-as-both-teams-battle-for-league-p/)
+
+
 ### formula 1 live (N/A, Sun, 7 Dec 2025 06:10:00 -0800)
 
 - **Abu Dhabi Grand Prix: F1 title decider – live**: [Link](https://www.theguardian.com/sport/live/2025/dec/07/abu-dhabi-grand-prix-formula-one-f1-title-decider-norris-verstappen-piastri-live)
