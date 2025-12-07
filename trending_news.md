@@ -1,3 +1,24 @@
+### real madrid – celta vigo (N/A, Sun, 7 Dec 2025 11:10:00 -0800)
+
+- **Real Madrid star expected to return to starting XI vs Celta Vigo**: [Link](https://getfootballnewsspain.com/real-madrid-star-expected-to-return-to-starting-xi-vs-celta-vigo/)
+- **Relentless Real Madrid Hosts Celta Vigo as Title Push Intensifies**: [Link](https://dawan.africa/news/relentless-real-madrid-hosts-celta-vigo-as-title-push-intensifies)
+- **Matchday Edition | 7 December 2025**: [Link](https://sports.yahoo.com/articles/matchday-edition-7-december-2025-131204750.html)
+
+
+### الريال ضد سلتا فيغو (N/A, Sun, 7 Dec 2025 11:10:00 -0800)
+
+- **قبل موقعة السيتي.. ألونسو يرسم خريطة وسط الريال أمام سيلتا فيجو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A--%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%B1%D8%B3%D9%85-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%AC%D9%88/blt3efc22d5295a6d00)
+- **مباشر.. مباراة ريال مدريد ضد سيلتا فيغو في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/7/real-madrid-vs-celta-vigo-2)
+- **فرصة ذهبية لـ ” راموس الجديد ” مع ريال مدريد**: [Link](https://hihi2.com/2025/12/07/p3547391.html)
+
+
+### مجموعات كاس العرب (N/A, Sun, 7 Dec 2025 11:10:00 -0800)
+
+- **جدول مباريات اليوم الأحد 7 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-7-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt073881266aed1d75)
+- **أبرز المباريات العربية والعالمية اليوم الأحد**: [Link](https://24.ae/article/934017/)
+- **مواعيد مباريات اليوم.. المغرب مع عمان والسعودية ضد جزر القمر بكأس العرب 2025**: [Link](https://www.youm7.com/story/2025/12/5/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B9-%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1/7221677)
+
+
 ### كأس العرب (N/A, Sun, 7 Dec 2025 11:00:00 -0800)
 
 - **موعد مباراة قطر ضد تونس في كأس العرب 2025 والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%82%D8%B7%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025)
