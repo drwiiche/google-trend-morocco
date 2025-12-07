@@ -1,3 +1,24 @@
+### tunisie vs qatar (N/A, Sun, 7 Dec 2025 10:30:00 -0800)
+
+- **Palestinian coach gets hope, advice from mum in Gaza tent**: [Link](https://www.couriermail.com.au/news/breaking-news/palestinian-coach-gets-hope-advice-from-mum-in-gaza-tent/news-story/8d3c116b476d39a82bdc015827d66e61)
+- **FIFA Arab Cup: Palestine eye knockouts after draw with Tunisia, pressure mounts on hosts Qatar**: [Link](https://www.msn.com/en-ae/sports/other/fifa-arab-cup-palestine-eye-knockouts-after-draw-with-tunisia-pressure-mounts-on-hosts-qatar/ar-AA1RKWmk?cvid=6932c7024a9b467180e8762e02a51088&ocid=hpmsn)
+- **Palestinian football team ties with Tunisia in Arab Cup football tournament**: [Link](https://www.middleeasteye.net/live-blog/live-blog-update/palestinian-football-team-ties-tunisia-arab-cup-football-tournament)
+
+
+### ترتيب كاس العرب (N/A, Sun, 7 Dec 2025 10:20:00 -0800)
+
+- **لماذا ضاع الانتصار الأول من مصر والإمارات في كأس العرب؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%B6%D8%A7%D8%B9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D9%86-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blt8adeb57800f2d759)
+- **شاهد تعادل مصر والإمارات في كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **جدول ترتيب مجموعة مصر في كأس العرب 2025 بعد التعادل مع الإمارات**: [Link](https://www.almasryalyoum.com/news/details/4145613)
+
+
+### cup arab (N/A, Sun, 7 Dec 2025 10:10:00 -0800)
+
+- **Qatar vs. Tunisia – How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270883/qatar-vs-tunisia-how-when-to-watch/)
+- **Arab Cup 2025: Tunisia unveils official lineup against Qatar!**: [Link](https://foot-africa.com/en/news/arab-cup-2025-tunisia-unveils-official-lineup-against-qatar-992507/)
+- **LIVE UPDATE: Tunisia vs Qatar - FIFA Arab Cup Qatar 2025**: [Link](https://thepeninsulaqatar.com/article/07/12/2025/live-update-syria-vs-qatar-fifa-arab-cup-qatar-2025-1)
+
+
 ### qatar vs tunisie (N/A, Sun, 7 Dec 2025 10:00:00 -0800)
 
 - **Coupe Arabe 2025 : le calendrier complet et les résultats**: [Link](https://sportnewsafrica.com/articles/coupe-arabe-2025-le-calendrier-complet-et-les-resultats)
