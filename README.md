@@ -1,3 +1,10 @@
+### nice – angers (N/A, Sun, 7 Dec 2025 07:00:00 -0800)
+
+- **PRONOS PARIS RMC Le pari du jour du 7 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-7-decembre-ligue-1_AN-202512060295.html)
+- **Les joueurs de Nice portent le nom de Terem Moffi ou Jeremie Boga sur leur maillot face à Angers**: [Link](https://www.lequipe.fr/Football/Actualites/Les-joueurs-de-nice-portent-le-nom-de-terem-moffi-ou-jeremie-boga-sur-leur-maillot-face-a-angers/1615196)
+- **Angers Sco. Le grand retour de Jim Allevinah pour le déplacement à Nice, Biumla encore avec la réserve**: [Link](https://www.ouest-france.fr/sport/football/angers-sco/angers-sco-le-grand-retour-de-jim-allevinah-pour-le-deplacement-a-nice-biumla-encore-avec-la-reserve-62b750e0-d2b8-11f0-9e33-11f0fa5dcfce)
+
+
 ### valence – séville (N/A, Sun, 7 Dec 2025 06:30:00 -0800)
 
 - **DIRECT. Valence CF-Séville FC (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/valence-cf-seville-fc-live/676861)
