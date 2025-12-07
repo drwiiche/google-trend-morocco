@@ -1,3 +1,10 @@
+### benin (N/A, Sun, 7 Dec 2025 01:40:00 -0800)
+
+- **CFC connecte les économies du Bénin, du Togo et du Ghana**: [Link](https://www.republicoftogo.com/toutes-les-rubriques/eco-finance/cfc-connecte-les-economies-du-benin-du-togo-et-du-ghana)
+- **Casablanca Finance City lance la 2ᵉ édition de son Africa Tour : Le Bénin, première étape d’une tournée stratégique en Afrique de l’Ouest**: [Link](https://afriquinfos.com/casablanca-finance-city-lance-la-2%E1%B5%89-edition-de-son-africa-tour-le-benin-premiere-etape-dune-tournee-strategique-en-afrique-de-louest-2/)
+- **Bénin, Togo, Ghana : Casablanca Finance City renforce ses liens institutionnels et économiques en Afrique de l’Ouest avec la 2ᵉ édition de l’Africa Tour**: [Link](https://afriquinfos.com/casablanca-finance-city-lance-la-2%E1%B5%89-edition-de-son-africa-tour-le-benin-premiere-etape-dune-tournee-strategique-en-afrique-de-louest/)
+
+
 ### trump (N/A, Sun, 7 Dec 2025 00:40:00 -0800)
 
 - **Trump awards medals to the Kennedy Center honorees in an Oval Office ceremony**: [Link](https://apnews.com/article/trump-kennedy-center-honorees-awards-ceremony-medal-5f4b60fb514f978d34e3468a711f0132)
