@@ -1,3 +1,38 @@
+### napoli vs juventus (N/A, Sun, 7 Dec 2025 12:00:00 -0800)
+
+- **Serie A official line-ups: Napoli vs. Juventus**: [Link](https://football-italia.net/serie-a-official-line-ups-napoli-vs-juventus/)
+- **“Tremendous emotion” – Spalletti cherishes Napoli return, urges Juventus duo to improve**: [Link](https://www.juvefc.com/spalletti-napoli-juventus-david-openda/)
+- **Clash of the Titans at the Maradona – Napoli vs. Juventus**: [Link](https://www.365scores.com/news/clash-of-the-titans-at-the-maradona-napoli-vs-juventus?utm_source=365scores&utm_medium=%2524SCREEN&utm_campaign=%2524CONTEXT)
+
+
+### santos – cruzeiro (N/A, Sun, 7 Dec 2025 12:00:00 -0800)
+
+- **Promessa do Cruzeiro estreia no profissional como titular contra o Santos**: [Link](https://noataque.com.br/futebol/brasileirao-serie-a/time/cruzeiro/noticia/2025/12/07/promessa-do-cruzeiro-estreia-no-profissional-como-titular-contra-o-santos/)
+- **Aos 27 min do 1º tempo - gol de dentro da área de Thaciano do Santos contra o Cruzeiro**: [Link](https://ge.globo.com/futebol/video/aos-27-min-do-1o-tempo-gol-de-dentro-da-area-de-thaciano-do-santos-contra-o-cruzeiro-14160940.ghtml)
+- **Torcida do Santos faz ‘rua de fogo’ antes de jogo decisivo contra o Cruzeiro**: [Link](https://www.itatiaia.com.br/esportes/futebol/futebol-nacional/futebol-paulista/santos/torcida-do-santos-faz-rua-de-fogo-antes-de-jogo-decisivo-contra-o-cruzeiro)
+
+
+### نابولي ضد يوفنتوس (N/A, Sun, 7 Dec 2025 12:00:00 -0800)
+
+- **قائمة يوفنتوس.. سباليتي محروم من 5 نجوم أمام نابولي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3--%D8%B3%D8%A8%D8%A7%D9%84%D9%8A%D8%AA%D9%8A-%D9%85%D8%AD%D8%B1%D9%88%D9%85-%D9%85%D9%86-5-%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A/blt69cf22d73b63b986)
+- **بطولة إيطاليا: نابولي ويوفنتوس بمواجهة من العيار الثقيل**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251205-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D9%88%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D8%AB%D9%82%D9%8A%D9%84)
+- **جماهير نابولي لن تفرش الورود لسباليتي**: [Link](https://24.ae/article/934060/%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D9%84%D9%86-%D8%AA%D9%81%D8%B1%D8%B4-%D8%A7%D9%84%D9%88%D8%B1%D9%88%D8%AF-%D9%84%D8%B3%D8%A8%D8%A7%D9%84%D9%8A%D8%AA%D9%8A)
+
+
+### programme tv (N/A, Sun, 7 Dec 2025 11:50:00 -0800)
+
+- **Programme TV : Le règne animal, Noël Joyeux… que regarder à la télé ce soir ?**: [Link](https://www.programme-television.org/news/tv/selection-tele-7-jours/programme-tv-le-regne-animal-noel-joyeux-que-regarder-a-la-tele-ce-soir-4748023)
+- **Le règne animal (France 2) - Pourquoi faut-il regarder ce film fantastique avec Romain Duris**: [Link](https://fr.news.yahoo.com/r%C3%A8gne-animal-france-2-pourquoi-102200950.html)
+- **“Le Règne animal” : une fable sauvagement humaine… la preuve en cinq mutants fascinants**: [Link](https://www.telerama.fr/television/le-regne-animal-une-fable-sauvagement-humaine-la-preuve-en-cinq-mutants-fascinants-0314-7020035.php)
+
+
+### قطر ضد تونس (N/A, Sun, 7 Dec 2025 11:40:00 -0800)
+
+- **فلسطين وسوريا إلى ربع نهائي كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D9%88%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blte7f64e84977f8c0b)
+- **كأس العرب تشهد إقصاء تونس وقطر**: [Link](https://www.hespress.com/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%AA%D8%B4%D9%87%D8%AF-%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D9%82%D8%B7%D8%B1-1667671.html)
+- **موعد مباراة قطر ضد تونس في كأس العرب 2025 والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%82%D8%B7%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025)
+
+
 ### lorient – lyon (N/A, Sun, 7 Dec 2025 11:40:00 -0800)
 
 - **PRONOS PARIS RMC Le pari sûr du 7 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-7-decembre-ligue-1_AN-202512060391.html)
