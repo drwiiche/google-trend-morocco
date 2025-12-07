@@ -1,3 +1,10 @@
+### napoli (N/A, Sun, 7 Dec 2025 12:30:00 -0800)
+
+- **LIVE Alle 20.45 Napoli-Juve: Conte in emergenza, Spalletti senza attaccanti punta su Yildiz**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Napoli/07-12-2025/napoli-juventus-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Manna: «Il risultato di oggi è decisivo per loro più che per noi, a noi interessa dare continuità» A Dazn: «Spalletti ha detto che la maglia della Juve è cucita per vincere? Quella del Napoli allora per sognare. Mercato? Qualche uscita può dare spazio a qualche**: [Link](https://www.facebook.com/story.php?story_fbid=1372934391511879&id=100063859936263)
+- **Calcio Live News: in campo Napoli-Juventus (1-0), gol di Hojlund**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-napoli-juventus-1-0-gol-di-hojlund/Oz7d9Nje/)
+
+
 ### napoli vs juventus (N/A, Sun, 7 Dec 2025 12:00:00 -0800)
 
 - **Serie A official line-ups: Napoli vs. Juventus**: [Link](https://football-italia.net/serie-a-official-line-ups-napoli-vs-juventus/)
