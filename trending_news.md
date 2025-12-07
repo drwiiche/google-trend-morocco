@@ -1,3 +1,24 @@
+### فالنسيا ضد إشبيلية (N/A, Sun, 7 Dec 2025 08:00:00 -0800)
+
+- **فالنسيا وإشبيلية في الدوري الإسباني.. الموعد والقنوات الناقلة**: [Link](https://almashhadalaraby.com/news/541179)
+- **انتقاد لخافيير تيباس!**: [Link](https://hihi2.com/2025/12/07/p3547306.html)
+- **بث مباشر بجودة عالية 4k..مشاهدة مباراة فالنسيا ضد إشبيلية في الدوري الإسباني على ملعب ميستايا**: [Link](https://www.almashhad.news/456284)
+
+
+### dortmund – hoffenheim (N/A, Sun, 7 Dec 2025 07:50:00 -0800)
+
+- **Ist das Dortmunder 1:0 gegen Hoffenheim schon in Stein gemeißelt?**: [Link](https://www.kicker.de/ist-das-dortmunder-1-0-gegen-hoffenheim-schon-in-stein-gemeisselt-1172624/artikel)
+- **BVB: Guirassy zurück in der Startelf**: [Link](https://www.fussballtransfers.com/a749603777179075926-bvb-guirassy-zurueck-in-der-startelf)
+- **Bundesliga heute: Dortmund - Hoffenheim LIVE im TV, Liveticker & Livestream - Kovac fällt Guirassy-Entscheidung**: [Link](https://www.sport1.de/news/fussball/bundesliga/2025/12/bundesliga-heute-dortmund-hoffenheim-live-im-tv-liveticker-livestream)
+
+
+### fulham – crystal palace (N/A, Sun, 7 Dec 2025 07:50:00 -0800)
+
+- **Fulham aiming to end 20-year winless run in Crystal Palace meeting**: [Link](https://www.sportsmole.co.uk/football/fulham/news/fulham-out-to-end-20-year-winless-run-in-palace-meeting_587279.html)
+- **EPL: Chukwueze banks on home support to beat Crystal Palace**: [Link](https://dailypost.ng/2025/12/06/epl-chukwueze-banks-on-home-support-to-beat-crystal-palace/)
+- **Nigerian trio face another derby weekend**: [Link](https://punchng.com/nigerian-trio-face-another-derby-weekend/)
+
+
 ### nice – angers (N/A, Sun, 7 Dec 2025 07:00:00 -0800)
 
 - **PRONOS PARIS RMC Le pari du jour du 7 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-7-decembre-ligue-1_AN-202512060295.html)
