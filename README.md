@@ -1,3 +1,10 @@
+### real madrid (N/A, Sun, 7 Dec 2025 14:00:00 -0800)
+
+- **Real Madrid 0-2 Celta de Vigo: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/real-madrid-celta-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
+- **Real Madrid - Celta, en directo: Sigue en directo el partido de la Jornada 15 de LaLiga 2025/26, en vivo**: [Link](https://www.sport.es/es/noticias/real-madrid/real-madrid-celta-directo-alineaciones-narracion-goles-liga-124550402)
+- **Convocatoria del Real Madrid contra el Celta**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-celta-06-12-2025)
+
+
 ### real madrid – celta vigo composition (N/A, Sun, 7 Dec 2025 13:40:00 -0800)
 
 - **DIRECT. Real Madrid-Celta Vigo (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-madrid-celta-vigo-live/676857)
