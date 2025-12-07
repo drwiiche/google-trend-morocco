@@ -1,3 +1,10 @@
+### trump (N/A, Sun, 7 Dec 2025 00:40:00 -0800)
+
+- **Trump awards medals to the Kennedy Center honorees in an Oval Office ceremony**: [Link](https://apnews.com/article/trump-kennedy-center-honorees-awards-ceremony-medal-5f4b60fb514f978d34e3468a711f0132)
+- **The president said that he will do better than Jimmy Kimmel Read more below.**: [Link](https://www.facebook.com/deadline/posts/the-president-said-that-he-will-do-better-than-jimmy-kimmel-read-more-below/1213837877283217/)
+- **Sec. Rubio Attends Kennedy Center Honors Dinner**: [Link](https://www.miragenews.com/sec-rubio-attends-kennedy-center-honors-dinner-1584692/)
+
+
 ### مصر (N/A, Sat, 6 Dec 2025 12:30:00 -0800)
 
 - **From French fighter jets to Chinese drones, Egypt expands global supply chain footprint**: [Link](https://breakingdefense.com/2025/12/from-french-fighter-jets-to-chinese-drones-egypt-expands-global-supply-chain-footprint/)
