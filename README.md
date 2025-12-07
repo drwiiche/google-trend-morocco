@@ -1,3 +1,10 @@
+### cagliari – roma (N/A, Sun, 7 Dec 2025 05:50:00 -0800)
+
+- **Cagliari-Roma, orario e dove vederla in tv e streaming: Baldanzi centravanti, Dybala in panchina. Le formazioni ufficiali**: [Link](https://www.ilmessaggero.it/sport/schede/cagliari_roma_orario_dove_vederla_formazioni_ufficiali_arbitro_serie_a_14_giornata-9230773.html)
+- **Diretta Roma-Cagliari oggi, risultato live e classifica**: [Link](https://www.adnkronos.com/sport/roma-cagliari-oggi-il-match-in-diretta_4xPs5MA3UaudvJppLZAKHC)
+- **Cagliari-Roma, le formazioni ufficiali: confermato Rodriguez**: [Link](https://www.cagliaripad.it/662852/cagliari-roma-le-formazioni-ufficiali-confermato-rodriguez/)
+
+
 ### brighton – west ham (N/A, Sun, 7 Dec 2025 05:20:00 -0800)
 
 - **Brighton v West Ham: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/07/brighton-v-west-ham-premier-league-live)
