@@ -1,3 +1,24 @@
+### brighton – west ham (N/A, Sun, 7 Dec 2025 05:20:00 -0800)
+
+- **Brighton v West Ham: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/07/brighton-v-west-ham-premier-league-live)
+- **Premier League Tips: Six player prop bets for Sunday including Welbeck and Wilson shot shouts**: [Link](https://onefootball.com/pt-br/noticias/premier-league-tips-six-player-prop-bets-for-sunday-including-welbeck-and-wilson-shot-shouts-42055654)
+- **Matchday Gallery | Irons face Seagulls on the south coast**: [Link](https://www.whufc.com/en/news/matchday-gallery-or-irons-face-seagulls-on-the-south-coast)
+
+
+### bénin (N/A, Sun, 7 Dec 2025 05:20:00 -0800)
+
+- **Bénin : la tentative de coup d’Etat a été mise en « échec », affirme le ministre de l’intérieur**: [Link](https://www.lemonde.fr/afrique/article/2025/12/07/benin-des-militaires-annoncent-a-la-television-publique-demettre-de-ses-fonctions-le-president-patrice-talon_6656341_3212.html)
+- **Tentative de coup d'État au Bénin, le ministre de l'Intérieur évoque «l'échec» de la manoeuvre**: [Link](https://www.rfi.fr/fr/afrique/20251207-b%C3%A9nin-des-militaires-annoncent-%C3%A0-la-t%C3%A9l%C3%A9vision-publique-d%C3%A9mettre-de-ses-fonctions-le-pr%C3%A9sident-talon)
+- **Bénin : ce que l’on sait de la tentative de coup d’État à Cotonou**: [Link](https://www.jeuneafrique.com/1747191/politique/tentative-de-coup-detat-en-cours-a-cotonou/)
+
+
+### مباريات اليوم كاس العرب (N/A, Sun, 7 Dec 2025 04:30:00 -0800)
+
+- **جدول مباريات اليوم الأحد 7 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-7-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt073881266aed1d75)
+- **أبرز المباريات العربية والعالمية اليوم الأحد**: [Link](https://24.ae/article/934017/)
+- **مواعيد مباريات اليوم.. المغرب مع عمان والسعودية ضد جزر القمر بكأس العرب 2025**: [Link](https://www.youm7.com/story/2025/12/5/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B9-%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1/7221677)
+
+
 ### f1 (N/A, Sun, 7 Dec 2025 05:10:00 -0800)
 
 - **F1 LIVE: Abu Dhabi Grand Prix 2025 - Norris, Verstappen & Piastri aim for championship - times & radio**: [Link](https://www.bbc.com/sport/formula1/live/c2dnzd5ldy3t)
