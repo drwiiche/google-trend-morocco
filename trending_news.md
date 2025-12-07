@@ -1,3 +1,10 @@
+### formula 1 live (N/A, Sun, 7 Dec 2025 06:10:00 -0800)
+
+- **Abu Dhabi Grand Prix: F1 title decider – live**: [Link](https://www.theguardian.com/sport/live/2025/dec/07/abu-dhabi-grand-prix-formula-one-f1-title-decider-norris-verstappen-piastri-live)
+- **F1 Abu Dhabi Grand Prix live updates: Verstappen ahead of Piastri and Norris in title decider**: [Link](https://www.nytimes.com/athletic/live-blogs/f1-abu-dhabi-live-updates-race-results-standings/Y7VP4udoLtzY/)
+- **Watch the Abu Dhabi GP race start as Verstappen holds lead**: [Link](https://www.formula1.com/en/latest/article/race-start-watch-the-start-of-the-abu-dhabi-finale-as-verstappen-holds-lead.1j8n3EVJtCDfzHgNlSnSqe)
+
+
 ### cagliari – roma (N/A, Sun, 7 Dec 2025 05:50:00 -0800)
 
 - **Cagliari-Roma, orario e dove vederla in tv e streaming: Baldanzi centravanti, Dybala in panchina. Le formazioni ufficiali**: [Link](https://www.ilmessaggero.it/sport/schede/cagliari_roma_orario_dove_vederla_formazioni_ufficiali_arbitro_serie_a_14_giornata-9230773.html)
