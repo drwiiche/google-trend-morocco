@@ -1,3 +1,10 @@
+### fifa arab cup (N/A, Sun, 7 Dec 2025 11:00:00 -0800)
+
+- **Qatar vs. Tunisia – How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270883/qatar-vs-tunisia-how-when-to-watch/)
+- **LIVE UPDATE: Tunisia vs Qatar - FIFA Arab Cup Qatar 2025**: [Link](https://thepeninsulaqatar.com/article/07/12/2025/live-update-syria-vs-qatar-fifa-arab-cup-qatar-2025-1)
+- **Trabelsi urges Tunisia to fight for survival against Qatar**: [Link](https://www.panafricafootball.com/post/trabelsi-urges-tunisia-to-fight-for-survival-against-qatar/)
+
+
 ### real madrid – celta vigo (N/A, Sun, 7 Dec 2025 11:10:00 -0800)
 
 - **Real Madrid star expected to return to starting XI vs Celta Vigo**: [Link](https://getfootballnewsspain.com/real-madrid-star-expected-to-return-to-starting-xi-vs-celta-vigo/)
