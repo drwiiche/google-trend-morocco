@@ -1,3 +1,10 @@
+### ufc 323 (N/A, Sat, 6 Dec 2025 15:20:00 -0800)
+
+- **Israel Adesanya urges Petr Yan to do something 'completely out of the box' against Merab Dvalishvili**: [Link](https://bloodyelbow.com/2025/12/06/israel-adesanya-urges-petr-yan-to-do-something-completely-out-the-box-against-merab-dvalishvili/)
+- **Are YOU Buying UFC 323, Final PPV … Maybe Ever?**: [Link](https://www.mmamania.com/ufc-323-fight-card-start-time-live-results-merab-vs-yan-2-mma/407228/who-is-buying-ufc-323-tonight-the-final-ppv-before-groundbreaking-paramount-deal)
+- **BetMGM Bonus Code SI1500 Unlocks $1,500 Offer for UFC 323 Dvalishvili vs Yan**: [Link](https://www.si.com/betting-promo/betmgm-bonus-code-si1500-unlocks-1-500-offer-for-ufc-323-dvalishvili-vs-yan-01kbp4gkbgkt)
+
+
 ### oncf (N/A, Sat, 6 Dec 2025 15:30:00 -0800)
 
 - **L’ONCF propose une carte à –50% pour les voyageurs en situation de handicap**: [Link](https://lematin.ma/societe/carte-oncf-a-50-pour-les-personnes-handicapees/316821)
