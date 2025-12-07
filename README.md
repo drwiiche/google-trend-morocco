@@ -1,3 +1,10 @@
+### from (N/A, Sat, 6 Dec 2025 19:50:00 -0800)
+
+- **Inside Trump’s transformation of the Kennedy Center**: [Link](https://www.cnn.com/2025/12/06/politics/trump-kennedy-center-takeover)
+- **WATCH: Trump presents medals to 2025 Kennedy Center honorees at the Oval Office**: [Link](https://www.pbs.org/newshour/arts/watch-trump-presents-medals-to-2025-kennedy-center-honorees-at-the-oval-office)
+- **Trump Makes Prediction About Hosting Kennedy Center Honors: “If I Can’t Beat Out Jimmy Kimmel In Terms Of Talent, Then I Don’t Think I Should Be President”**: [Link](https://deadline.com/2025/12/trump-kennedy-center-honors-host-jimmy-kimmel-1236638766/)
+
+
 ### ufc 323 (N/A, Sat, 6 Dec 2025 15:20:00 -0800)
 
 - **Israel Adesanya urges Petr Yan to do something 'completely out of the box' against Merab Dvalishvili**: [Link](https://bloodyelbow.com/2025/12/06/israel-adesanya-urges-petr-yan-to-do-something-completely-out-the-box-against-merab-dvalishvili/)
