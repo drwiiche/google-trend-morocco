@@ -1,3 +1,10 @@
+### palestine vs syria (N/A, Sun, 7 Dec 2025 09:20:00 -0800)
+
+- **Syria vs. Palestine – How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270902/syria-vs-palestine-how-when-to-watch/)
+- **Abu Jazar: qualification is the primary objective for the Palestinian team in the Arab Cup**: [Link](https://www.thecanary.co/global/arab-cup-2025/2025/12/06/abu-jazar-palestine-arab-cup/)
+- **Is Syria vs Palestine Live on TV? FIFA Arab Cup LIVE STREAMING**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-syria-vs-palestine-fifa-arab-cup-live-stream-7th-december-2025)
+
+
 ### le havre – paris fc (N/A, Sun, 7 Dec 2025 09:00:00 -0800)
 
 - **« Il n'y a pas urgence, mais on doit prendre des points » : le Paris FC en quête de rachat au Havre**: [Link](https://www.lequipe.fr/Football/Actualites/-il-n-y-a-pas-urgence-mais-on-doit-prendre-des-points-le-paris-fc-en-quete-de-rachat-au-havre/1614969)
