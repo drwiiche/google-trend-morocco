@@ -1,3 +1,17 @@
+### as (N/A, Sun, 7 Dec 2025 14:20:00 -0800)
+
+- **Trump slams ‘lack of loyalty’ after pardoned Democrat says he won’t change party**: [Link](https://www.theguardian.com/us-news/2025/dec/07/trump-henry-cuellar-pardon-democrat-reelection-texas)
+- **Trump Blasts Henry Cuellar, Democrat Lawmaker, for Not Switching Parties After Pardon**: [Link](https://www.nytimes.com/2025/12/07/us/politics/trump-henry-cuellar-democrat-run-criticism.html)
+- **Trump slams Democratic congressman as disloyal for not switching parties after pardon**: [Link](https://fortune.com/2025/12/07/trump-pardon-democratic-congressman-henry-cuellar-democrat-republican-house-majority/)
+
+
+### cotonou bénin (N/A, Sun, 7 Dec 2025 13:00:00 -0800)
+
+- **Benin coup attempt: President Talon addresses nation over failed takeover**: [Link](https://www.bbc.com/news/articles/c62v7n9wzkyo)
+- **Troops and warplanes deployed in Benin after ‘failed coup attempt’**: [Link](https://www.theguardian.com/world/2025/dec/07/troops-and-warplanes-deployed-in-benin-after-failed-coup-attempt)
+- **Benin government says it has thwarted attempted military coup**: [Link](https://www.washingtonpost.com/world/2025/12/07/benin-coup-attempt/)
+
+
 ### real madrid (N/A, Sun, 7 Dec 2025 14:00:00 -0800)
 
 - **Real Madrid 0-2 Celta de Vigo: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/real-madrid-celta-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
