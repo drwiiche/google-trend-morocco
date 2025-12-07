@@ -1,3 +1,10 @@
+### qatar vs tunisie (N/A, Sun, 7 Dec 2025 10:00:00 -0800)
+
+- **Coupe Arabe 2025 : le calendrier complet et les résultats**: [Link](https://sportnewsafrica.com/articles/coupe-arabe-2025-le-calendrier-complet-et-les-resultats)
+- **Vidéo. Qatar : deuxième journée de la Coupe arabe de football, la fan zone en ébullition**: [Link](https://fr.euronews.com/video/2025/12/05/qatar-deuxieme-journee-de-la-coupe-arabe-de-football-la-fan-zone-en-ebullition)
+- **Qatar – Tunisie : l’heure et la chaîne du match de Coupe Arabe 2025**: [Link](https://topfoot.com/2800-qatar-tunisie-lheure-et-la-chaine-du-match-de-coupe-arabe-2025/)
+
+
 ### classement coupe arabe (N/A, Sun, 7 Dec 2025 09:40:00 -0800)
 
 - **Coupe arabe : les Lions A' se contentent d’un match nul face à Oman**: [Link](https://lematin.ma/sports/coupe-arabe-les-lions-a-se-contentent-dun-match-nul-face-a-oman/317473)
