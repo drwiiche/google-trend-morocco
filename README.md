@@ -1,3 +1,10 @@
+### hamza igamane blessure (N/A, Sun, 7 Dec 2025 00:30:00 -0800)
+
+- **Mauvaise nouvelle pour les Lions: Hamza Igamane sort sur blessure face à l’OM**: [Link](https://www.lesiteinfo.com/sport/661538-mauvaise-nouvelle-pour-les-lions-hamza-igamane-sort-sur-blessure-face-a-lom.html)
+- **Genesio (entraîneur de Lille) : « Ighaman a ressenti une petite gêne au niveau de l'adducteur, nous verrons comment les choses évoluent**: [Link](https://m.elbotola.com/fr/article/2025-12-06-11-35-128.html)
+- **Inquiétude autour d’Hamza Igamane, le Maroc retient son souffle avant la CAN**: [Link](https://mountakhab.net/inquietude-autour-dhamza-igamane-le-maroc-retient-son-souffle-avant-la-can/)
+
+
 ### إنتر ميامي ضد فانكوفر وايت كابس (N/A, Sat, 6 Dec 2025 13:20:00 -0800)
 
 - **ميسي يعزز رصيده التاريخي من البطولات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%B1%D8%B5%D9%8A%D8%AF%D9%87-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A7%D8%AA/bltc5cc3302d31f7bac)
