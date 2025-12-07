@@ -1,3 +1,38 @@
+### كاس العرب (N/A, Sun, 7 Dec 2025 10:40:00 -0800)
+
+- **موعد مباراة قطر ضد تونس في كأس العرب 2025 والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%82%D8%B7%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025)
+- **جولين لوبيتيغي مدرب منتخب قطر: " علينا أن نبذل جهدً كبيراً لتحقيق الفوز"**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AC%D9%88%D9%84%D9%8A%D9%86-%D9%84%D9%88%D8%A8%D9%8A%D8%AA%D9%8A%D8%BA%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%82%D8%B7%D8%B1-%D8%B9%D9%84%D9%8A%D9%86%D8%A7-%D8%A3%D9%86-%D9%86%D8%A8%D8%B0%D9%84-%D8%AC%D9%87%D8%AF-%D9%83%D8%A8%D9%8A%D8%B1%D8%A7-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2-2025-12-06)
+- **كأس العرب: قطر وتونس في مباراة كسر العظام**: [Link](https://www.almountakhab.com/node/13220435)
+
+
+### arab cup (N/A, Sun, 7 Dec 2025 10:40:00 -0800)
+
+- **Qatar vs. Tunisia – How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270883/qatar-vs-tunisia-how-when-to-watch/)
+- **Arab Cup 2025: Tunisia unveils official lineup against Qatar!**: [Link](https://foot-africa.com/en/news/arab-cup-2025-tunisia-unveils-official-lineup-against-qatar-992507/)
+- **LIVE UPDATE: Tunisia vs Qatar - FIFA Arab Cup Qatar 2025**: [Link](https://thepeninsulaqatar.com/article/07/12/2025/live-update-syria-vs-qatar-fifa-arab-cup-qatar-2025-1)
+
+
+### سوريا ضد فلسطين (N/A, Sun, 7 Dec 2025 10:40:00 -0800)
+
+- **بث مباشر: شاهد مباراة سوريا وفلسطين في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%88%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt955f79b5a18e1036)
+- **مباشر.. سوريا ضد فلسطين (0-0) وقطر ضد تونس (0-2) بكأس العرب 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/7/syria-vs-palestine)
+- **مشجع سوري يتغنّى بالإنجاز في كأس العرب: نحن وفلسطين واحد**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D8%B4%D8%AC%D8%B9-%D8%B3%D9%88%D8%B1%D9%8A-%D9%8A%D8%AA%D8%BA%D9%86%D9%91%D9%89-%D8%A8%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D8%A7%D8%B2-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%86%D8%AD%D9%86-%D9%88%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D9%88%D8%A7%D8%AD%D8%AF)
+
+
+### palestine foot (N/A, Sun, 7 Dec 2025 10:40:00 -0800)
+
+- **Syrie-Palestine : à quelle heure et sur quelle chaîne TV voir le match de la 3e journée de Coupe arabe**: [Link](https://www.leparisien.fr/sports/football/syrie-palestine-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-de-la-3e-journee-de-coupe-arabe-06-12-2025-7A2KVDSFQRFEDOQVVDIOFRJNT4.php)
+- **Coupe Arabe 2025 / groupe A : une J3 sous haute tension ce dimanche**: [Link](https://www.lopinion.ma/Coupe-Arabe-2025-groupe-A-une-J3-sous-haute-tension-ce-dimanche_a74698.html)
+- **Ehab Abou Jazar, l'entraineur de l'équipe de football palestinienne qui « apporte un peu d’air à la population gazaouie**: [Link](https://www.humanite.fr/monde/palestine/ehab-abou-jazar-lentraineur-de-lequipe-de-football-palestinienne-qui-apporte-un-peu-dair-a-la-population-gazaouie)
+
+
+### matchs de coupe arabe (N/A, Sun, 7 Dec 2025 10:40:00 -0800)
+
+- **Coupe arabe : les Lions locaux prêts à sortir les griffes face à l’Arabie saoudite**: [Link](https://lematin.ma/sports/les-lions-locaux-prets-a-sortir-les-griffes-face-a-larabie-saoudite/317717)
+- **Sektoui : « La plus grande erreur serait de jouer pour le nul contre l'Arabie Saoudite »**: [Link](https://m.elbotola.com/fr/article/2025-12-07-10-39-299.html)
+- **Coupe arabe : Sektioui "vise la victoire face à l’Arabie Saoudite afin d’assurer notre qualification"**: [Link](https://fr.hespress.com/452994-coupe-arabe-sektioui-vise-la-victoire-face-a-larabie-saoudite-afin-dassurer-notre-qualification.html)
+
+
 ### tunisie vs qatar (N/A, Sun, 7 Dec 2025 10:30:00 -0800)
 
 - **Palestinian coach gets hope, advice from mum in Gaza tent**: [Link](https://www.couriermail.com.au/news/breaking-news/palestinian-coach-gets-hope-advice-from-mum-in-gaza-tent/news-story/8d3c116b476d39a82bdc015827d66e61)
