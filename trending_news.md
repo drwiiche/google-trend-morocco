@@ -1,3 +1,10 @@
+### f1 (N/A, Sun, 7 Dec 2025 05:10:00 -0800)
+
+- **F1 LIVE: Abu Dhabi Grand Prix 2025 - Norris, Verstappen & Piastri aim for championship - times & radio**: [Link](https://www.bbc.com/sport/formula1/live/c2dnzd5ldy3t)
+- **What are the strategy options for the Abu Dhabi Grand Prix?**: [Link](https://www.formula1.com/en/latest/article/strategy-guide-what-are-the-tactical-options-for-the-title-decider-in-abu.01DgFSAQ4IkQPZezkARJjp)
+- **F1 Abu Dhabi GP LIVE: Race, Qualifying, Practice title decider updates, stream, highlights in Lando Norris, Max Verstappen, Oscar Piastri fight**: [Link](https://www.skysports.com/f1/live-blog/12040/13478726/f1-abu-dhabi-gp-live-race-qualifying-practice-title-decider-updates-stream-highlights-in-lando-norris-max-verstappen-oscar-piastri-fight)
+
+
 ### morocco vs saudi arabia (N/A, Sun, 7 Dec 2025 04:30:00 -0800)
 
 - **Morocco vs Saudi Arabia: What time and which channels will broadcast the FIFA Arab Cup 2025 showdown?**: [Link](https://sports.yahoo.com/articles/morocco-vs-saudi-arabia-time-054500667.html)
