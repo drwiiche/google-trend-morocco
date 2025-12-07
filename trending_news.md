@@ -1,3 +1,24 @@
+### lorient – lyon (N/A, Sun, 7 Dec 2025 11:40:00 -0800)
+
+- **PRONOS PARIS RMC Le pari sûr du 7 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-7-decembre-ligue-1_AN-202512060391.html)
+- **Retour de disgrâce pour Paulo Fonseca, l'entraîneur de l'OL : « Je continue à ressentir de l'injustice »**: [Link](https://www.lequipe.fr/Football/Article/Retour-de-disgrace-pour-paulo-fonseca-l-entraineur-de-l-ol-je-continue-a-ressentir-de-l-injustice/1614997)
+- **Comment regarder FC Lorient - Olympique lyonnais ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-fc-lorient-olympique-lyonnais-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/kwfzby913f4c1fmxalq7oi9ok)
+
+
+### ترتيبات كأس العرب (N/A, Sun, 7 Dec 2025 11:10:00 -0800)
+
+- **موعد مباراة مصر والأردن في كأس العرب 2025 .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt9e1295c9618cf36b)
+- **شاهد تعادل مصر والإمارات في كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **جدول ترتيب مجموعة مصر في كأس العرب 2025 بعد التعادل مع الإمارات**: [Link](https://www.almasryalyoum.com/news/details/4145613)
+
+
+### arab cup 2025 (N/A, Sun, 7 Dec 2025 11:00:00 -0800)
+
+- **Highlights and goals of Qatar 0-3 Tunisia in 2025 FIFA Arab Cup**: [Link](https://www.vavel.com/en-us/soccer/2025/12/07/1243843-qatar-vs-tunisia-live-score-arab-cup.html)
+- **LIVE UPDATE: Tunisia vs Qatar - FIFA Arab Cup Qatar 2025**: [Link](https://thepeninsulaqatar.com/article/07/12/2025/live-update-syria-vs-qatar-fifa-arab-cup-qatar-2025-1)
+- **Trabelsi urges Tunisia to fight for survival against Qatar**: [Link](https://www.panafricafootball.com/post/trabelsi-urges-tunisia-to-fight-for-survival-against-qatar/)
+
+
 ### real madrid - celta de vigo (N/A, Sun, 7 Dec 2025 11:30:00 -0800)
 
 - **Alineación posible del Real Madrid hoy contra el Celta de Vigo en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-celta-de-vigo-en-laliga-ea-sports-f202512-n/)
