@@ -1,3 +1,10 @@
+### مصر (N/A, Sat, 6 Dec 2025 12:30:00 -0800)
+
+- **From French fighter jets to Chinese drones, Egypt expands global supply chain footprint**: [Link](https://breakingdefense.com/2025/12/from-french-fighter-jets-to-chinese-drones-egypt-expands-global-supply-chain-footprint/)
+- **Air Force, AOI demonstrate power of joint manufacturing**: [Link](https://egyptian-gazette.com/egypt/air-force-aoi-demonstrate-power-of-joint-manufacturing/)
+- **Pacts signed to boost Industrial ties in aerospace anufacturing**: [Link](https://www.gulftoday.ae/business/2025/12/02/ammroc-signs-three-strategic-mous-with-arab-organisation-for-industrialisation-in-egypt-at-edex-2025)
+
+
 ### from (N/A, Sat, 6 Dec 2025 19:50:00 -0800)
 
 - **Inside Trump’s transformation of the Kennedy Center**: [Link](https://www.cnn.com/2025/12/06/politics/trump-kennedy-center-takeover)
