@@ -1,3 +1,31 @@
+### كأس العرب (N/A, Sun, 7 Dec 2025 11:00:00 -0800)
+
+- **موعد مباراة قطر ضد تونس في كأس العرب 2025 والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%82%D8%B7%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025)
+- **جولين لوبيتيغي مدرب منتخب قطر: " علينا أن نبذل جهدً كبيراً لتحقيق الفوز"**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AC%D9%88%D9%84%D9%8A%D9%86-%D9%84%D9%88%D8%A8%D9%8A%D8%AA%D9%8A%D8%BA%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%82%D8%B7%D8%B1-%D8%B9%D9%84%D9%8A%D9%86%D8%A7-%D8%A3%D9%86-%D9%86%D8%A8%D8%B0%D9%84-%D8%AC%D9%87%D8%AF-%D9%83%D8%A8%D9%8A%D8%B1%D8%A7-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2-2025-12-06)
+- **كأس العرب: قطر وتونس في مباراة كسر العظام**: [Link](https://www.almountakhab.com/node/13220435)
+
+
+### naples – juventus (N/A, Sun, 7 Dec 2025 11:00:00 -0800)
+
+- **Emanuele Giaccherini évoque le choc à venir entre la Juventus et Naples |**: [Link](https://www.juventus-fr.com/06/12/2025/emanuele-giaccherini-evoque-le-choc-a-venir-entre-la-juventus-et-naples/)
+- **Sur quelles chaînes et à quelle heure suivre Real Madrid-Celta Vigo et Naples-Juventus Turin ?**: [Link](https://www.diverto.tv/actualites/tele/sur-quelles-chaines-et-a-quelle-heure-suivre-real-madrid-celta-vigo-et-naples-juventus-turin)
+- **PRONOS PARIS RMC Le pari à domicile du 7 décembre – Série A - Italie**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-7-decembre-serie-a-italie_AN-202512060388.html)
+
+
+### coupe arabe (N/A, Sun, 7 Dec 2025 10:50:00 -0800)
+
+- **Coupe Arabe 2025 : le calendrier complet et les résultats**: [Link](https://sportnewsafrica.com/articles/coupe-arabe-2025-le-calendrier-complet-et-les-resultats)
+- **Qatar – Tunisie : l’heure et la chaîne du match de Coupe Arabe 2025**: [Link](https://topfoot.com/2800-qatar-tunisie-lheure-et-la-chaine-du-match-de-coupe-arabe-2025/)
+- **Vidéo. Qatar : deuxième journée de la Coupe arabe de football, la fan zone en ébullition**: [Link](https://fr.euronews.com/video/2025/12/05/qatar-deuxieme-journee-de-la-coupe-arabe-de-football-la-fan-zone-en-ebullition)
+
+
+### palestine (N/A, Sun, 7 Dec 2025 10:50:00 -0800)
+
+- **Why Palestine Matters So Much to Queer People**: [Link](https://www.thenation.com/article/society/palestine-queer-issue/)
+- **Queers for Palestine: A Gay Man’s Indictment**: [Link](https://blogs.timesofisrael.com/queers-for-palestine-a-gay-mans-indictment/)
+- **Pope's visit to Lebanon sparks hope but also frustration**: [Link](https://www.npr.org/2025/11/29/nx-s1-5623028/pope-leo-lebanon)
+
+
 ### كاس العرب (N/A, Sun, 7 Dec 2025 10:40:00 -0800)
 
 - **موعد مباراة قطر ضد تونس في كأس العرب 2025 والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%82%D8%B7%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025)
