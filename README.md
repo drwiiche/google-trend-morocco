@@ -1,3 +1,31 @@
+### morocco vs saudi arabia (N/A, Sun, 7 Dec 2025 04:30:00 -0800)
+
+- **Morocco vs Saudi Arabia: What time and which channels will broadcast the FIFA Arab Cup 2025 showdown?**: [Link](https://sports.yahoo.com/articles/morocco-vs-saudi-arabia-time-054500667.html)
+- **Al-Dawsari Before Morocco Clash: "We Don't Accept Defeat, We Want to Win"**: [Link](https://m.elbotola.com/en/article/2025-12-06-18-05-463.html)
+- **Saudi Assistant Coach Confirms Renard's Presence Against Morocco**: [Link](https://m.elbotola.com/en/article/2025-12-04-14-40-60.html)
+
+
+### elche – girona (N/A, Sun, 7 Dec 2025 04:20:00 -0800)
+
+- **Girona visits Elche in a match to strengthen feelings.**: [Link](https://sports.yahoo.com/articles/girona-visits-elche-match-strengthen-113000417.html)
+- **Where to Watch Elche CF vs. Girona FC: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/06/where-to-watch-elche-cf-vs-girona-fc-tv-channel-start-time-and-live-stream/)
+- **Elche C. F. faces crucial test against Girona with home fortress advantage, but one shocking statistic threatens their survival hopes**: [Link](https://www.red94.net/news/58144-elche-c-f-faces-girona-in-crucial-laliga-clash-as-both-teams-battle-for-league-p/)
+
+
+### طارق السويدان (N/A, Sun, 7 Dec 2025 03:50:00 -0800)
+
+- **الكويت تسحب جنسيتها من الداعية طارق السويدان**: [Link](https://www.aljazeera.net/news/2025/12/7/%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%AA%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9)
+- **طارق السويدان.. مرسوم أميري بسحب الجنسية الكويتية**: [Link](https://arabic.cnn.com/middle-east/article/2025/12/07/kuwait-tareq-al-suwaidan-citizenship-viral-emir-rule)
+- **ما هي جنسية طارق سويدان الحقيقية؟**: [Link](https://palsawa.com/post/432884/%D9%85%D8%A7-%D9%87%D9%8A-%D8%AC%D9%86%D8%B3%D9%8A%D8%A9-%D8%B7%D8%A7%D8%B1%D9%82-%D8%B3%D9%88%D9%8A%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D9%8A%D8%A9)
+
+
+### المغرب ضد السعودية (N/A, Sun, 7 Dec 2025 03:40:00 -0800)
+
+- **السكتيوي: مواجهة السعودية "صعبة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9-1667448.html)
+- **ما القنوات الناقلة لمباراة المنتخب السعودي والمغرب في كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltbd20cd523824be75)
+- **موعد مباراة السعودية ضد المغرب بكأس العرب 2025**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D9%83%D8%A3%D8%B3)
+
+
 ### formula 1 (N/A, Sun, 7 Dec 2025 02:50:00 -0800)
 
 - **What are the strategy options for the Abu Dhabi Grand Prix?**: [Link](https://www.formula1.com/en/latest/article/strategy-guide-what-are-the-tactical-options-for-the-title-decider-in-abu.01DgFSAQ4IkQPZezkARJjp)
