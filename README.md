@@ -1,3 +1,17 @@
+### le havre – paris fc (N/A, Sun, 7 Dec 2025 09:00:00 -0800)
+
+- **« Il n'y a pas urgence, mais on doit prendre des points » : le Paris FC en quête de rachat au Havre**: [Link](https://www.lequipe.fr/Football/Actualites/-il-n-y-a-pas-urgence-mais-on-doit-prendre-des-points-le-paris-fc-en-quete-de-rachat-au-havre/1614969)
+- **Comment regarder Le Havre - Paris FC ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-le-havre-paris-fc-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/o0bo3cmwubma19q6rhk3piy5w)
+- **Football – Ligue 1. Digard fait le choix du 4-3-3 : le « onze » du HAC dévoilé**: [Link](https://www.paris-normandie.fr/id680480/article/2025-12-07/football-ligue-1-digard-fait-le-choix-du-4-3-3-le-onze-du-hac-devoile)
+
+
+### espanyol – rayo (N/A, Sun, 7 Dec 2025 08:50:00 -0800)
+
+- **Espanyol - Rayo, en directo La Liga: resultado, goleadores y estadísticas en vivo**: [Link](https://www.elespanol.com/deportes/20251207/espanyol-rayo-directo-liga-resultado-goleadores-estadisticas-vivo/1003744046000_22.html)
+- **Lista de convocados**: [Link](https://www.rcdespanyol.com/es/noticia/lista-de-convocados/19519)
+- **Manolo González: "Hay que pasar página de la eliminación en la Copa"**: [Link](https://www.infobae.com/espana/agencias/2025/12/06/manolo-gonzalez-hay-que-pasar-pagina-de-la-eliminacion-en-la-copa/)
+
+
 ### فالنسيا ضد إشبيلية (N/A, Sun, 7 Dec 2025 08:00:00 -0800)
 
 - **فالنسيا وإشبيلية في الدوري الإسباني.. الموعد والقنوات الناقلة**: [Link](https://almashhadalaraby.com/news/541179)
