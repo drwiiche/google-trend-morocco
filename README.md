@@ -1,3 +1,10 @@
+### real madrid – celta vigo composition (N/A, Sun, 7 Dec 2025 13:40:00 -0800)
+
+- **DIRECT. Real Madrid-Celta Vigo (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-madrid-celta-vigo-live/676857)
+- **Real Madrid : Éder Militão sort sur blessure contre le Celta de Vigo**: [Link](https://www.footmercato.net/a1066401741005798563-real-madrid-eder-militao-sort-sur-blessure-contre-le-celta-de-vigo)
+- **DIRECT. Real Madrid-Celta Vigo: le Real puni par une merveilleuse inspiration, Militao sorti sur blessure**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-real-madrid-celta-vigo-suivez-le-match-de-la-15e-journee-de-liga-avec-kylian-mbappe-en-live_LS-202512070318.html)
+
+
 ### napoli (N/A, Sun, 7 Dec 2025 12:30:00 -0800)
 
 - **LIVE Alle 20.45 Napoli-Juve: Conte in emergenza, Spalletti senza attaccanti punta su Yildiz**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Napoli/07-12-2025/napoli-juventus-live-risultato-e-gol-in-diretta-serie-a.shtml)
