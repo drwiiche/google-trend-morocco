@@ -1,3 +1,10 @@
+### real madrid - celta de vigo (N/A, Sun, 7 Dec 2025 11:30:00 -0800)
+
+- **Alineación posible del Real Madrid hoy contra el Celta de Vigo en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-celta-de-vigo-en-laliga-ea-sports-f202512-n/)
+- **Convocatoria del Real Madrid contra el Celta**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-celta-06-12-2025)
+- **Fran García y Güler, novedades en un once con Carreras de central**: [Link](https://es-us.noticias.yahoo.com/deportes/fran-garc%C3%ADa-g%C3%BCler-novedades-once-190141135.html)
+
+
 ### fifa arab cup (N/A, Sun, 7 Dec 2025 11:00:00 -0800)
 
 - **Qatar vs. Tunisia – How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/270883/qatar-vs-tunisia-how-when-to-watch/)
