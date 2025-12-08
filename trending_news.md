@@ -1,3 +1,10 @@
+### maroc vs arabie saoudite (N/A, Mon, 8 Dec 2025 04:20:00 -0800)
+
+- **Coupe arabe : les Lions locaux prêts à sortir les griffes face à l’Arabie saoudite**: [Link](https://lematin.ma/sports/les-lions-locaux-prets-a-sortir-les-griffes-face-a-larabie-saoudite/317717)
+- **Maroc-Arabie Saoudite. Les clés du match (Coupe Arabe 2025)**: [Link](https://medias24.com/2025/12/08/maroc-arabie-saoudite-les-cles-du-match-coupe-arabe-2025-1590961/)
+- **El Mahdioui : « Nous ferons de mieux en mieux face à l'Arabie Saoudite… L'adversaire est fort, mais nous sommes prêts**: [Link](https://m.elbotola.com/fr/article/2025-12-07-20-24-454.html)
+
+
 ### توقيت مباراة المغرب (N/A, Mon, 8 Dec 2025 04:10:00 -0800)
 
 - **إنجاز غائب منذ 40 عاما يضع رينارد على حافة التاريخ مع السعودية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%BA%D8%A7%D9%8A%D9%94%D8%A8-%D9%85%D9%86%D8%B0-40-%D8%B9%D8%A7%D9%85%D8%A7-%D9%8A%D8%B6%D8%B9-%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%85%D8%B9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/blt78f1e212afd27fea)
