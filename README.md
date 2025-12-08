@@ -1,3 +1,10 @@
+### محاكم (N/A, Mon, 8 Dec 2025 01:30:00 -0800)
+
+- **لماذا يلجأ رجال إلى مساومة نسائهن بصورهن الخاصة؟**: [Link](https://www.bbc.com/arabic/articles/c2dzjn6ldz9o)
+- **إلغاء المواطنة بالولادة بأمريكا.. تعقيب للمحكمة عن طلب ترامب**: [Link](https://arabic.cnn.com/world/article/2025/12/06/supreme-court-agrees-to-decide-if-trump-may-end-birthright-citizenship)
+- **المحكمة العليا تحقق في دستورية تقييد ترامب لحق الجنسية بالولادة**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D9%8A%D8%A7-%D8%AA%D8%AD%D9%82%D9%82-%D9%81%D9%8A-%D8%AF%D8%B3%D8%AA%D9%88%D8%B1%D9%8A%D8%A9-%D8%AA%D9%82%D9%8A%D9%8A%D8%AF-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%88%D9%84%D8%A7%D8%AF%D8%A9/3763668)
+
+
 ### cash plus bourse (N/A, Mon, 8 Dec 2025 00:20:00 -0800)
 
 - **L'introduction en Bourse de Cash Plus explose avec 80.759 souscripteurs pour 48,82 milliards de DH**: [Link](https://telquel.ma/instant-t/2025/12/08/lintroduction-en-bourse-de-cash-plus-explose-avec-80-759-souscripteurs-pour-4882-milliards-de-dh_1964212/)
