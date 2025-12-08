@@ -1,3 +1,17 @@
+### mohamed salah liverpool (N/A, Mon, 8 Dec 2025 12:20:00 -0800)
+
+- **Mohamed Salah left out of Liverpool squad for Inter match - The Athletic**: [Link](https://www.nytimes.com/athletic/6872322/2025/12/08/salah-liverpool-future/)
+- **Liverpool board back Arne Slot amid Mohamed Salah's shock outburst**: [Link](https://talksport.com/football/3800039/liverpool-arne-slot-mohamed-salah-future/)
+- **If Mo Salah loves Liverpool why has he thrown hand grenade into season?**: [Link](https://www.thetimes.com/sport/football/article/mo-salah-arne-slot-liverpool-leeds-elland-road-cszqdgrk2)
+
+
+### تورينو ضد ميلان (N/A, Mon, 8 Dec 2025 12:10:00 -0800)
+
+- **رغم مخاوف المرض.. استدعاء نجم ميلان أمام تورينو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D9%85%D8%AE%D8%A7%D9%88%D9%81-%D8%A7%D9%84%D9%85%D8%B1%D8%B6--%D8%B6%D9%85-%D9%86%D8%AC%D9%85-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%84%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%B1%D9%8A%D9%86%D9%88/bltc1bd8f24d029c7f2)
+- **إحصائيات نصف ساعة من مباراة ميلان وتورينو**: [Link](https://hihi2.com/2025/12/08/p3549488.html)
+- **مؤتمر صحفي: أليجري يتحدث عن شكوك حول مشاركة بوليسيتش في مباراة ميلان ضد تورينو**: [Link](https://blinksport.net/%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%B5%D8%AD%D9%81%D9%8A-%D8%A3%D9%84%D9%8A%D8%AC%D8%B1%D9%8A-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D8%B4%D9%83%D9%88%D9%83-%D8%AD%D9%88%D9%84-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D9%8A%D8%AA%D8%B4-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B6%D8%AF-%D8%AA%D9%88%D8%B1%D9%8A%D9%86%D9%88)
+
+
 ### مباراة المغرب القادمة (N/A, Mon, 8 Dec 2025 11:10:00 -0800)
 
 - **المنتخب المغربي الرديف يصطدم بنظيره السوري في ربع نهائي كأس العرب يوم الخميس القادم على أرضية ملعب خليفة الدولي**: [Link](https://m.elbotola.com/article/2025-12-08-19-00-414.html)
