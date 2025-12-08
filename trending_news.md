@@ -1,3 +1,10 @@
+### mohamed salah (N/A, Sun, 7 Dec 2025 23:20:00 -0800)
+
+- **The inside story of Mohamed Salah’s incendiary interview – and what Liverpool do now - The Athletic**: [Link](https://www.nytimes.com/athletic/6870344/2025/12/08/mohamed-salah-transfer-liverpool-interview/)
+- **Mohamed Salah is destroying his legacy, says Wayne Rooney in latest podcast**: [Link](https://www.bbc.com/sport/football/articles/clyxdpl657eo)
+- **Liverpool board back Arne Slot amid Mohamed Salah's shock outburst**: [Link](https://talksport.com/football/3800039/liverpool-arne-slot-mohamed-salah-future/)
+
+
 ### match maroc arabie saoudite (N/A, Mon, 8 Dec 2025 05:20:00 -0800)
 
 - **Match Maroc-Arabie saoudite : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-arabie-saoudite-a-quelle-heure-et-sur-quelles-chaines/317768)
