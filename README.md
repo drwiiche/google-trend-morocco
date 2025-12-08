@@ -1,3 +1,52 @@
+### مباريات اليوم (N/A, Mon, 8 Dec 2025 09:30:00 -0800)
+
+- **جدول مباريات اليوم الإثنين 8 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-8-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt55296d2cc069d963)
+- **مواعيد مباريات اليوم.. قطر ضد تونس وريال مدريد فى مواجهة سيلتا فيجو**: [Link](https://www.youm7.com/story/2025/12/7/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%82%D8%B7%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%89-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9/7224388)
+- **جدول مباريات اليوم الأحد 7 ديسمبر 2025.. مواجهات حاسمة في كأس العرب**: [Link](https://www.arrajol.com/content/391359/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-7-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+
+
+### hervé renard (N/A, Mon, 8 Dec 2025 09:30:00 -0800)
+
+- **Petković backs Algeria to challenge in tough 2026 World Cup group despite Argentina test**: [Link](https://www.cafonline.com/fifa-world-cup/news/petkovic-backs-algeria-to-challenge-in-tough-2026-world-cup-group-despite-argentina-test/)
+- **Argentina’s World Cup draw only strengthens ‘favorite’ tag. How will they handle pressure? - The Athletic**: [Link](https://www.nytimes.com/athletic/6869311/2025/12/08/argentina-world-cup-draw-chances/)
+- **Greens to clear off Gijon match**: [Link](https://www.horizons.dz/?p=400243&lang=en)
+
+
+### oman vs (N/A, Mon, 8 Dec 2025 09:30:00 -0800)
+
+- **Oman to Face Comoros in High-Stakes Final Group Showdown for Arab Cup Quarter-Finals**: [Link](https://omannews.gov.om/topics/en/82/show/125875)
+- **Oman vs Comoros LIVE core Updates in 2025 FIFA Arab Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/08/1243967-oman-vs-comoros-live-score-arab-cup.html)
+- **Oman meet Comoros with faint hopes in their final group game**: [Link](https://www.qatar-tribune.com/article/208412/sports/oman-meet-comoros-with-faint-hopes-in-their-final-group-game)
+
+
+### kooora (N/A, Mon, 8 Dec 2025 09:20:00 -0800)
+
+- **تشكيلة السكتيوي لمواجهة السعودية**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-1667999.html)
+- **محمد مفيد يرد بقوة: ما كانخافو من حتى شي لاعب أمام السعودية**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D9%84%D8%AA%D9%8A%D9%85%D9%8A%D8%AF%D9%8A%D8%A7/%D9%85%D8%AD%D9%85%D8%AF-%D9%85%D9%81%D9%8A%D8%AF-%D9%8A%D8%B1%D8%AF-%D8%A8%D9%82%D9%88%D8%A9-%D9%85%D8%A7-%D9%83%D8%A7%D9%86%D8%AE%D8%A7%D9%81%D9%88-%D9%85%D9%86-%D8%AD%D8%AA%D9%89-%D8%B4%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/12785)
+- **بالفيديو.. المنتخب الوطني الرديف ينهي استعداداته لمواجهة المنتخب السعودي**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/459757.html)
+
+
+### syria live (N/A, Mon, 8 Dec 2025 09:20:00 -0800)
+
+- **Syria without Assad is lighter - but now there are new problems**: [Link](https://www.bbc.com/news/articles/cy7v53366ejo)
+- **With Fireworks and Parades, Syrians Celebrate Anniversary of al-Assad’s Fall**: [Link](https://www.nytimes.com/2025/12/08/world/middleeast/syria-anniversary-assad-fall.html)
+- **Can Syria’s president turn wave of global goodwill into tangible results at home?**: [Link](https://www.theguardian.com/world/2025/dec/08/can-syria-president-ahmed-al-sharaa-turn-goodwill-into-tangible-results)
+
+
+### match live (N/A, Mon, 8 Dec 2025 09:20:00 -0800)
+
+- **JSK – USMA: who dominates the history of their encounters?**: [Link](https://ca.sports.yahoo.com/news/jsk-usma-dominates-history-encounters-130000747.html)
+- **JSK - USMA: What time and on which channels can you watch the match live?**: [Link](https://foot-africa.com/en/news/jsk-usma-what-time-and-on-which-channels-can-you-watch-the-match-live-992153/)
+- **JSK – USMA: who dominates the history of their encounters?**: [Link](https://foot-africa.com/en/news/jsk-usma-who-dominates-the-history-of-their-encounters-992201/)
+
+
+### yalla chot (N/A, Mon, 8 Dec 2025 09:20:00 -0800)
+
+- **كأس العرب تشهد إقصاء تونس وقطر**: [Link](https://www.hespress.com/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%AA%D8%B4%D9%87%D8%AF-%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D9%82%D8%B7%D8%B1-1667671.html)
+- **فلسطين وسوريا إلى ربع نهائي كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D9%88%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blte7f64e84977f8c0b)
+- **المنتخب القطري.. مشاركة كارثية وخروج مهين من كأس العرب قبل أشهر قليلة من المشاركة في مونديال 2026**: [Link](https://m.elbotola.com/article/2025-12-07-19-54-478.html)
+
+
 ### مباراة اليوم (N/A, Mon, 8 Dec 2025 09:10:00 -0800)
 
 - **جدول مباريات اليوم الإثنين 8 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-8-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt55296d2cc069d963)
