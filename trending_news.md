@@ -1,3 +1,10 @@
+### flash score (N/A, Mon, 8 Dec 2025 10:50:00 -0800)
+
+- **MGM Slam tennis event returning to Las Vegas with 8-man field**: [Link](https://www.reviewjournal.com/sports/mgm-slam-tennis-event-returning-to-las-vegas-with-8-man-field-3592547/?utm_campaign=widget&utm_medium=latest&utm_source=sports&utm_term=MGM%20Slam%20tennis%20event%20returning%20to%20Las%20Vegas%20with%208-man%20field)
+- **Taylor Fritz, Nick Kyrgios, and Joao Fonseca sign up for exhibition event with $1-million on the line**: [Link](https://tennishead.net/taylor-fritz-nick-kyrgios-and-joao-fonseca-sign-up-for-exhibition-event-with-1-million-on-the-line/)
+- **Taylor Fritz Among Elite Pros To Play For $1 Million Prize Pool at “The MGM Slam Presented by Capital One”**: [Link](https://worldtennismagazine.com/taylor-fritz-among-elite-pros-to-play-for-1-million-prize-pool-at-the-mgm-slam-presented-by-capital-one/26787)
+
+
 ### نتائج مباريات اليوم (N/A, Mon, 8 Dec 2025 11:20:00 -0800)
 
 - **ما المنتخبات المتأهلة إلى ربع نهائي كأس العرب 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%87%D9%84%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blte9a7331fb51d743d)
