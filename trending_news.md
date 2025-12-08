@@ -1,3 +1,22 @@
+### bet365 (N/A, Mon, 8 Dec 2025 10:30:00 -0800)
+
+- **DraftKings Missouri promo: Bet $5 and get $300 in bonus bets for Blues vs. Bruins**: [Link](https://nypost.com/2025/12/08/betting/draftkings-missouri-promo-bet-5-get-300-in-bonus-bets-for-blues-vs-bruins/)
+- **Bet365 Missouri Bonus Code WTOP365: Claim $365 Bonus for NFL MNF Welcome Offer**: [Link](https://wtop.com/sports/2025/12/bet365-missouri-bonus-code-wtop365-claim-365-bonus-for-eagles-chargers-nba-games/)
+- **BetMGM Missouri Bonus Code GOALMAX1500: Get $1,500 in Bonuses for KC Chiefs, STL Blues & NBA**: [Link](https://www.goal.com/en-us/betting/betmgm-missouri-bonus-code-goalmax1500-get-usd1500-in-bonuses-kc-chiefs-stl-blues-nba/blt0a744cfbb33150b9)
+
+
+### ماتش اليوم (N/A, Mon, 8 Dec 2025 10:30:00 -0800)
+
+- **كأس العرب تشهد إقصاء تونس وقطر**: [Link](https://www.hespress.com/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%AA%D8%B4%D9%87%D8%AF-%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D9%82%D8%B7%D8%B1-1667671.html)
+- **فلسطين وسوريا إلى ربع نهائي كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D9%88%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blte7f64e84977f8c0b)
+- **المنتخب القطري.. مشاركة كارثية وخروج مهين من كأس العرب قبل أشهر قليلة من المشاركة في مونديال 2026**: [Link](https://m.elbotola.com/article/2025-12-07-19-54-478.html)
+
+
+### cup arab (N/A, Mon, 8 Dec 2025 10:00:00 -0800)
+
+
+
+
 ### ترتيب كأس العرب 2025 (N/A, Mon, 8 Dec 2025 10:00:00 -0800)
 
 - **المنتخبات المتأهلة إلى ربع نهائي كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%87%D9%84%D8%A9-%D8%A5%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3)
