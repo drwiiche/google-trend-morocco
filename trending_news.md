@@ -1,3 +1,24 @@
+### وولفرهامبتون ضد مان يونايتد (N/A, Mon, 8 Dec 2025 11:20:00 -0800)
+
+- **نجم خارج القائمة.. تشكيل مباراة مانشستر يونايتد ضد وولفرهامبتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A7%D9%84%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9--%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%B6%D8%AF-%D9%88%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86/blt9298d3d3ebaea0c7)
+- **هدافو مانشستر يونايتد في الدوري قبل مواجهة وولفرهامبتون**: [Link](https://hihi2.com/2025/12/07/p3547350.html)
+- **القنوات الناقلة لمباراة مانشستر يونايتد ضد ولفرهامبتون اليوم في الدوري الإنجليزي مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/210679685458006-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%B6%D8%AF-%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### osasuna – levante (N/A, Mon, 8 Dec 2025 11:20:00 -0800)
+
+- **Los once elegidos por Álvaro del Moral para enfrentarse a Osasuna**: [Link](https://www.superdeporte.es/levante-ud/2025/12/08/once-elegidos-alvaro-moral-enfrentarse-124579498.html)
+- **Pasado, presente y futuro de Lisci**: [Link](https://as.com/futbol/primera/pasado-presente-y-futuro-de-lisci-f202512-n/)
+- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20251208/1002583035/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
+
+
+### wolves – manchester united (N/A, Mon, 8 Dec 2025 11:10:00 -0800)
+
+- **Wolves star warns Ruben Amorim ahead of Man Utd’s trip, ‘We have been…’**: [Link](https://www.unitedinfocus.com/match-coverage/wolves-star-warns-ruben-amorim-ahead-of-man-utds-trip-we-have-been/)
+- **Edwards | 'Do you want to fade away, or fight?' | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20251206-edwards-do-you-want-to-fade-away-or-fight/)
+- **Prediction for Wolverhampton vs. Manchester United Match**: [Link](https://zamin.uz/en/sport/174477-prediction-for-wolverhampton-vs-manchester-united-match.html)
+
+
 ### torino – ac milan (N/A, Mon, 8 Dec 2025 11:00:00 -0800)
 
 - **A drought to end against seven-time victims: Zapata’s worrying record against Milan**: [Link](https://sempremilan.com/duvan-zapata-worrying-record-against-milan)
