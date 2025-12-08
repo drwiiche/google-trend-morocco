@@ -1,3 +1,24 @@
+### torino – ac milan (N/A, Mon, 8 Dec 2025 11:00:00 -0800)
+
+- **A drought to end against seven-time victims: Zapata’s worrying record against Milan**: [Link](https://sempremilan.com/duvan-zapata-worrying-record-against-milan)
+- **Serie A official Week 14 line-ups: Torino vs. AC Milan**: [Link](https://football-italia.net/serie-a-week-14-line-ups-torino-vs-milan/)
+- **Derby of friends: Torino’s Vlasic vs Milan’s Modric**: [Link](https://milanreports.com/2025/12/08/derby-friends-torino-vlasic-milan-modric/)
+
+
+### score live (N/A, Mon, 8 Dec 2025 11:00:00 -0800)
+
+- **Reid owns 4th-down flop as K.C. playoff hopes dim**: [Link](https://www.espn.com/nfl/story/_/id/47244348/andy-reid-owns-failed-fourth-calls-chiefs-playoff-hopes-fade-loss-texans)
+- **Texans beat Chiefs 20-10, Is the Kansas City Dynasty over? | The Herd**: [Link](https://www.foxnews.com/video/6386199362112)
+- **Patrick Mahomes on Chiefs' dwindling playoff hopes: 'We know the chances are getting lower and lower'**: [Link](https://www.nfl.com/news/patrick-mahomes-on-chiefs-dwindling-playoff-hopes-we-know-the-chances-are-getting-lower-and-lower)
+
+
+### bet 365 (N/A, Mon, 8 Dec 2025 10:30:00 -0800)
+
+- **Bet365 Missouri Bonus Code: Unlock $365 Bonus Bets Now**: [Link](https://www.independent.co.uk/sport/us-sport/bet365-missouri-bonus-code-december-8-2025-b2866580.html)
+- **Fanatics Sportsbook Missouri promo code NYPOST: Bet and get up to $2,000 in FanCash**: [Link](https://nypost.com/2025/12/08/betting/fanatics-sportsbook-missouri-promo-code-nypost-bet-and-get-up-to-2000-in-fancash-2/)
+- **BetMGM Missouri Bonus Code GOALMAX1500: Get $1,500 in Bonuses for KC Chiefs, STL Blues & NBA**: [Link](https://www.goal.com/en-us/betting/betmgm-missouri-bonus-code-goalmax1500-get-usd1500-in-bonuses-kc-chiefs-stl-blues-nba/blt0a744cfbb33150b9)
+
+
 ### كرة (N/A, Mon, 8 Dec 2025 10:10:00 -0800)
 
 - **التنمية على إيقاع كرة القدم .. المغرب يفتح نافذة لإصلاح المؤسسات والخدمات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D9%82%D8%A7%D8%B9-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%81-1666809.html)
