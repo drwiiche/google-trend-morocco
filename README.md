@@ -1,3 +1,10 @@
+### radio mars (N/A, Sun, 7 Dec 2025 23:30:00 -0800)
+
+- **بعد فسخ عقده مع الزمالك بنتايك يتوصل بعروض مغرية**: [Link](https://www.almountakhab.com/node/13220438)
+- **اهتمام خليجي وأوروبي بالمغربي محمود بنتايك**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/482761.html)
+- **محمود بنتايك غادي يتزوج ببنت مسؤول فـ الزمالك**: [Link](https://www.goud.ma/%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D8%A8%D9%86%D8%AA%D8%A7%D9%8A%D9%83-%D8%BA%D8%A7%D8%AF%D9%8A-%D9%8A%D8%AA%D8%B2%D9%88%D8%AC-%D8%A8%D8%A8%D9%86%D8%AA-%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D9%81%D9%80-%D8%A7-990810/)
+
+
 ### ayyoub bouaddi (N/A, Sun, 7 Dec 2025 21:10:00 -0800)
 
 
