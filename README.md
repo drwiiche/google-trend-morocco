@@ -1,3 +1,17 @@
+### morocco vs (N/A, Mon, 8 Dec 2025 08:10:00 -0800)
+
+- **Saktioui: 'Biggest Mistake Would Be Playing for a Draw Against Saudi Arabia'**: [Link](https://m.elbotola.com/en/article/2025-12-07-10-39-378.html)
+- **Morocco Aim to Confirm Dominance Over Saudi Arabia**: [Link](https://www.moroccoworldnews.com/2025/12/271034/morocco-aim-to-confirm-dominance-over/)
+- **Arab Cup : Sektioui targets win over Saudi Arabia to secure quarterfinal spot**: [Link](https://en.yabiladi.com/articles/details/182963/arab-sektioui-targets-over-saudi.html)
+
+
+### match aujourd'hui maroc (N/A, Mon, 8 Dec 2025 08:10:00 -0800)
+
+- **منتخب "الأسود" يتعادل مع سلطنة عمان في الجولة الثانية من كأس العرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D9%88%D9%86-%D9%85%D8%B9-%D8%B3%D9%84%D8%B7%D9%86%D8%A9-%D8%B9%D9%85%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88-1666626.html)
+- **المنتخب الوطني الرديف يتعادل مع سلطنة عمان**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%B3%D9%84%D8%B7%D9%86%D8%A9/)
+- **مجموعة "روسو فيردي" توجه نداء إلى الجالية المغربية في قطر بشأن المباراة الحاسمة أمام السعودية**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/482716.html)
+
+
 ### mohamed salah (N/A, Sun, 7 Dec 2025 23:20:00 -0800)
 
 - **The inside story of Mohamed Salah’s incendiary interview – and what Liverpool do now - The Athletic**: [Link](https://www.nytimes.com/athletic/6870344/2025/12/08/mohamed-salah-transfer-liverpool-interview/)
