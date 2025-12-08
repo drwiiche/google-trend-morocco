@@ -1,3 +1,10 @@
+### match maroc arabie saoudite (N/A, Mon, 8 Dec 2025 05:20:00 -0800)
+
+- **Match Maroc-Arabie saoudite : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-arabie-saoudite-a-quelle-heure-et-sur-quelles-chaines/317768)
+- **Maroc-Arabie Saoudite. Les clés du match (Coupe Arabe 2025)**: [Link](https://medias24.com/2025/12/08/maroc-arabie-saoudite-les-cles-du-match-coupe-arabe-2025-1590961/)
+- **Coupe arabe: Tarik Sektioui déterminé avant le choc face à l’Arabie Saoudite**: [Link](https://snrtnews.com/fr/article/coupe-arabe-tarik-sektioui-determine-avant-le-choc-face-a-larabie-saoudite-142502)
+
+
 ### maroc vs ksa (N/A, Mon, 8 Dec 2025 06:10:00 -0800)
 
 - **Sektioui: Morocco Must Beat Saudi Arabia to Qualify**: [Link](https://www.moroccoworldnews.com/2025/12/270910/sektioui-morocco-must-beat-saudi-arabia-to-qualify/)
