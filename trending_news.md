@@ -1,3 +1,10 @@
+### bein sport (N/A, Mon, 8 Dec 2025 08:50:00 -0800)
+
+- **Preview: Besiktas vs Gaziantep - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/besiktas/preview/besiktas-vs-gaziantep-prediction-team-news-lineups_587259.html)
+- **Beşiktaş vs Gaziantep FK Super Lig game on beIN Sports: Live stream, TV channel, and kick-off time**: [Link](https://www.goal.com/en-us/news/how-to-watch-besiktas-gaziantep-08122025/blt080d38ad5900263b)
+- **Besiktas vs Gaziantep Prediction: Be Our Guest And Ignore The Visitors At Your Own Peril!**: [Link](https://www.telecomasia.net/sports-betting/tips/football/turkey-super-league/besiktas-vs-gaziantep-prediction-for-the-match-on-december-08-2025/)
+
+
 ### morocco vs (N/A, Mon, 8 Dec 2025 08:10:00 -0800)
 
 - **Saktioui: 'Biggest Mistake Would Be Playing for a Draw Against Saudi Arabia'**: [Link](https://m.elbotola.com/en/article/2025-12-07-10-39-378.html)
