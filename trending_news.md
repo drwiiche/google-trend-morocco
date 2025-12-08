@@ -1,3 +1,10 @@
+### كرة (N/A, Mon, 8 Dec 2025 10:10:00 -0800)
+
+- **التنمية على إيقاع كرة القدم .. المغرب يفتح نافذة لإصلاح المؤسسات والخدمات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D9%82%D8%A7%D8%B9-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%81-1666809.html)
+- **لقجع: أوضاع كرة القدم في إفريقيا كارثية والبنيات التحتية المغربية تضاهي أفضل التجارب الأوروبية**: [Link](https://alyaoum24.com/1997387.html)
+- **هل تتحول الرياضة بالمغرب إلى رافعة للتنمية الترابية؟**: [Link](https://iktissadkom.ma/special-fichier/%D9%87%D9%84-%D8%AA%D8%AA%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A5%D9%84%D9%89-%D8%B1%D8%A7%D9%81%D8%B9%D8%A9-%D9%84%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9)
+
+
 ### bet365 (N/A, Mon, 8 Dec 2025 10:30:00 -0800)
 
 - **DraftKings Missouri promo: Bet $5 and get $300 in bonus bets for Blues vs. Bruins**: [Link](https://nypost.com/2025/12/08/betting/draftkings-missouri-promo-bet-5-get-300-in-bonus-bets-for-blues-vs-bruins/)
