@@ -1,3 +1,10 @@
+### madrid vs (N/A, Sun, 7 Dec 2025 14:00:00 -0800)
+
+- **Última hora sobre las lesiones de Giménez, Baena, Llorente y Cardoso**: [Link](https://www.comuniate.com/noticias/33737/ultima-hora-sobre-las-lesiones-de-gimenez-baena-llorente-y-cardoso)
+- **Pronóstico PSV vs Atlético de Madrid – Champions League (09/12/2025)**: [Link](https://www.hispanosnba.com/futbol/pronostico-psv-vs-atletico-de-madrid-09-12-2025/)
+- **El Atlético prepara el partido de Eindhoven sin los cuatro lesionados**: [Link](https://www.futbolfantasy.com/laliga/noticias/136748-el-atletico-prepara-el-partido-de-eindhoven-sin-los-cuatro-lesionados)
+
+
 ### hihi2 (N/A, Sun, 7 Dec 2025 14:20:00 -0800)
 
 
