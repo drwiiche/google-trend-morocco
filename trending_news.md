@@ -1,3 +1,10 @@
+### cash plus bourse (N/A, Mon, 8 Dec 2025 00:20:00 -0800)
+
+- **L'introduction en Bourse de Cash Plus explose avec 80.759 souscripteurs pour 48,82 milliards de DH**: [Link](https://telquel.ma/instant-t/2025/12/08/lintroduction-en-bourse-de-cash-plus-explose-avec-80-759-souscripteurs-pour-4882-milliards-de-dh_1964212/)
+- **Cash Plus : Les détails de l’IPO**: [Link](https://www.leconomiste.com/flash-infos/cash-plus-les-details-de-lipo/)
+- **Première cotation de Cash Plus - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/live/premiere-cotation-de-cash-plus/)
+
+
 ### nicolas sarkozy (N/A, Mon, 8 Dec 2025 02:40:00 -0800)
 
 - **Ce que raconte Sarkozy dans son livre**: [Link](https://www.latribune.fr/article/la-tribune-dimanche/politique/1058920330790714/ce-que-raconte-sarkozy-dans-son-livre)
