@@ -1,3 +1,10 @@
+### maroc vs ksa (N/A, Mon, 8 Dec 2025 06:10:00 -0800)
+
+- **Sektioui: Morocco Must Beat Saudi Arabia to Qualify**: [Link](https://www.moroccoworldnews.com/2025/12/270910/sektioui-morocco-must-beat-saudi-arabia-to-qualify/)
+- **“We’ll wait for the coach..”: Rodrigues drops cryptic hint ahead of Saudi’s clash with Morocco**: [Link](https://sports.yahoo.com/articles/ll-wait-coach-rodrigues-drops-133500720.html)
+- **Watch Live Morocco vs Saudi Arabia in the FIFA Arab Cup Qatar 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-morocco-vs-saudi-arabia-in-the-fifa-arab-cup-qatar-2025-on-bein-sports-2025-12-08)
+
+
 ### maroc vs arabie saoudite (N/A, Mon, 8 Dec 2025 04:20:00 -0800)
 
 - **Coupe arabe : les Lions locaux prêts à sortir les griffes face à l’Arabie saoudite**: [Link](https://lematin.ma/sports/les-lions-locaux-prets-a-sortir-les-griffes-face-a-larabie-saoudite/317717)
