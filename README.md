@@ -1,3 +1,17 @@
+### nicolas sarkozy (N/A, Mon, 8 Dec 2025 02:40:00 -0800)
+
+- **Ce que raconte Sarkozy dans son livre**: [Link](https://www.latribune.fr/article/la-tribune-dimanche/politique/1058920330790714/ce-que-raconte-sarkozy-dans-son-livre)
+- **Nicolas Sarkozy raconte ses trois semaines en prison : « Le gris dominait tout, dévorait tout »**: [Link](https://www.lemonde.fr/politique/article/2025/12/06/nicolas-sarkozy-raconte-ses-trois-semaines-en-prison-le-gris-dominait-tout-devorait-tout_6656260_823448.html)
+- **Dieu, la prison, la justice, la politique… Ce que contient le livre de Nicolas Sarkozy**: [Link](https://www.lefigaro.fr/politique/nicolas-sarkozy-au-figaro-de-l-elysee-a-la-prison-cette-vie-etrange-que-la-mienne-20251206)
+
+
+### ريال مدريد (N/A, Sun, 7 Dec 2025 14:00:00 -0800)
+
+- **موعد اتخاذ ريال مدريد قرار بشأن مستقبل تشابي ألونسو**: [Link](https://hihi2.com/2025/12/08/p3548849.html)
+- **حلٌّ "جنوني" يعيد زيدان إلى ريال مدريد فورًا**: [Link](https://www.eremnews.com/sports/q0njt0t)
+- **عقب دعم بيريز.. ألونسو يراهن على ديسمبر والسوبر لتعديل مسار ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%82%D8%A8-%D8%AF%D8%B9%D9%85-%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2--%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-%D9%88%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%84-%D9%85%D8%B3%D8%A7%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt36eec80d597e8554)
+
+
 ### bourse de casablanca (N/A, Sun, 7 Dec 2025 23:40:00 -0800)
 
 - **Bourse de Casablanca : le marché actions est-il cher ou abordable ?**: [Link](https://medias24.com/2025/12/03/bourse-de-casablanca-le-marche-actions-est-il-cher-ou-abordable-1588691/)
