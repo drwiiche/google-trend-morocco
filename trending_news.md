@@ -1,3 +1,10 @@
+### herve renard (N/A, Mon, 8 Dec 2025 11:00:00 -0800)
+
+- **'We're coming to do something great' - Saudi Arabia excited for 2026 FIFA World Cup test**: [Link](https://sports.yahoo.com/articles/were-coming-something-great-saudi-091500716.html)
+- **Saudi Arabia 2026 World Cup tickets and complete match schedule**: [Link](https://www.usatoday.com/story/sports/soccer/worldcup/2025/12/06/saudi-arabia-fifa-world-cup-tickets-how-to-buy-schedule/87629499007/)
+- **World Cup 2026: Renard- ‘Cape Verde want to show’**: [Link](https://www.panafricafootball.com/post/world-cup-2026-renard-cape-verde/)
+
+
 ### mohamed salah liverpool (N/A, Mon, 8 Dec 2025 12:20:00 -0800)
 
 - **Mohamed Salah left out of Liverpool squad for Inter match - The Athletic**: [Link](https://www.nytimes.com/athletic/6872322/2025/12/08/salah-liverpool-future/)
