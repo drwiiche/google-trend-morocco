@@ -1,3 +1,24 @@
+### عمان ضد جزر القمر (N/A, Mon, 8 Dec 2025 09:40:00 -0800)
+
+- **بث مباشر: شاهد مباراة عمان وجزر القمر في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/bltdc547ad6272e8863)
+- **قنوات الكأس الرياضية - الأخبار - كأس العرب FIFA قطر 2025.. منتخب عمان يتمسك بحظوظه أمام جزر القمر غدا**: [Link](https://www.alkass.net/news_details?news_id=178493)
+- **المنتخب العُماني يواجه منتخب جزر القمر وعينه على الفوز فقط**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B9-%D9%85%D8%A7%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%88%D8%B9%D9%8A%D9%86%D9%87-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D9%81%D9%82%D8%B7-2025-12-08)
+
+
+### flashscore (N/A, Mon, 8 Dec 2025 09:40:00 -0800)
+
+- **10 years after Warriors' record 73-9 run, OKC is on pace to rewrite history**: [Link](https://www.nba.com/news/okc-thunder-pursuit-73-wins-2025-26)
+- **How Red-Hot Thunder Are Pacing Compared to 73-Win Warriors, 72-Win Bulls**: [Link](https://www.si.com/nba/red-hot-thunder-pacing-compared-73-win-warriors-bulls)
+- **"Took years off my life" - Draymond Green predicts Thunder will NOT break Warriors' 73-win record**: [Link](https://www.basketballnetwork.net/latest-news/draymond-green-predicts-thunder-will-not-break-warriors-73-win-record)
+
+
+### oman (N/A, Mon, 8 Dec 2025 09:40:00 -0800)
+
+- **Sektioui: "Red Card Was Very Harsh, A Point Is Good"**: [Link](https://m.elbotola.com/en/article/2025-12-05-17-17-512.html)
+- **Arab Cup 2025: The Atlas Lions held to a draw by Oman**: [Link](https://mountakhab.net/en/arab-cup-2025-the-atlas-lions-held-to-a-draw-by-oman/)
+- **Sektioui : Only a win will keep Morocco alive in the Arab Cup**: [Link](https://en.yabiladi.com/articles/details/182777/sektioui-only-will-keep-morocco.html)
+
+
 ### مباريات اليوم (N/A, Mon, 8 Dec 2025 09:30:00 -0800)
 
 - **جدول مباريات اليوم الإثنين 8 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-8-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt55296d2cc069d963)
