@@ -1,3 +1,52 @@
+### مباراة اليوم (N/A, Mon, 8 Dec 2025 09:10:00 -0800)
+
+- **جدول مباريات اليوم الإثنين 8 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-8-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt55296d2cc069d963)
+- **مواعيد مباريات اليوم.. قطر ضد تونس وريال مدريد فى مواجهة سيلتا فيجو**: [Link](https://www.youm7.com/story/2025/12/7/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%82%D8%B7%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%89-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9/7224388)
+- **جدول مباريات اليوم الأحد 7 ديسمبر 2025.. مواجهات حاسمة في كأس العرب**: [Link](https://www.arrajol.com/content/391359/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-7-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+
+
+### bein sports (N/A, Mon, 8 Dec 2025 09:10:00 -0800)
+
+- **تردد قناة بي إن سبورت 1 المفتوحة لـ مشاهدة مباريات كأس العرب مباشر مجانا**: [Link](https://aboutmsr.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-1-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D9%84%D9%80-%D9%85%D8%B4%D8%A7%D9%87/)
+- **تجربة رياضية رائعة.. تردد قناة beIN SPORTS 1 HD واستمتع بأقوى البطولات العالمية من بيتك**: [Link](https://www.5lejnews.com/channels/297308/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-1-hd/)
+- **ثبتها الان.. تردد قناة bein sport المفتوحة الناقلة لمباراة السعودية والمغرب في كأس العرب.. مباراة التأهل**: [Link](https://newsy.elsob7.com/news/%D8%AB%D8%A8%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%A7%D9%86-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sport-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82/)
+
+
+### مباريات اليوم مباشر (N/A, Mon, 8 Dec 2025 09:10:00 -0800)
+
+- **رسائل من القدس للمنتخب الفلسطيني في كأس العرب**: [Link](https://www.aljazeera.net/video/2025/12/8/%D8%A7%D9%84%D9%82%D8%AF%D8%B3-%D8%AA%D8%A2%D8%B2%D8%B1-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+- **الفرحة فرحتين.. احتفالات مشتركة بين سوريا وفلسطين ببلوغ ربع نهائي كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%81%D8%B1%D8%AD%D8%A9-%D9%81%D8%B1%D8%AD%D8%AA%D9%8A%D9%86--%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D8%A7%D8%AA-%D9%85%D8%B4%D8%AA%D8%B1%D9%83%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%88%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%A8%D8%A8%D9%84%D9%88%D8%BA-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blt6fd5b92c047240e2)
+- **لم يرها منذ 3 سنوات.. مدرب فلسطين: "أمي تتابع مبارياتنا في خيمتها بغزة بصعوبة عبر توفير مولد ووقود لتشغيله"**: [Link](https://m.elbotola.com/article/2025-12-07-22-56-471.html)
+
+
+### live match (N/A, Mon, 8 Dec 2025 09:10:00 -0800)
+
+- **NXT Deadline 2025 results: Kendal Grey and Je'Von Evans win the 2025 Iron Survivor Challenges**: [Link](https://www.wwe.com/shows/nxtple/nxt-deadline-2025)
+- **WWE NXT Deadline 2025 Results: Winners, Live Grades, Reaction and Highlights**: [Link](https://bleacherreport.com/articles/25317853-wwe-nxt-deadline-2025-results-winners-live-grades-reaction-and-highlights)
+- **NXT Deadline Results: Grey Wins, Femi Captures Title**: [Link](https://athlonsports.com/wrestling/nxt-deadline-2025-kendal-grey-shocks-the-world-in-san-antonio)
+
+
+### match today (N/A, Mon, 8 Dec 2025 09:10:00 -0800)
+
+- **Nuts & Bolts: Lightning open the back-to-back in Toronto**: [Link](https://www.nhl.com/lightning/news/nuts-bolts-tampa-bay-lightning-open-the-back-to-back-in-toronto-dec-2025)
+- **Top Shelf Picks: NHL Best Bets Today (Predictions for Lightning-Maple Leafs, Kings-Mammoth, Sabres-Flames)**: [Link](https://www.si.com/betting/nhl-best-bets-today-predictions-for-lightning-maple-leafs-kings-mammoth-sabres-flames)
+- **NHL match today: Will Nikita Kucherov play against Toronto Maple Leafs tonight? Latest update on Tampa Ba**: [Link](https://timesofindia.indiatimes.com/sports/nhl/news/nhl-match-today-will-nikita-kucherov-play-against-toronto-maple-leafs-tonight-latest-update-on-tampa-bay-lightning-forward-for-december-8/articleshow/125835598.cms)
+
+
+### sports (N/A, Mon, 8 Dec 2025 09:10:00 -0800)
+
+- **Irish say no bowl after CFP snub, rankings 'farce'**: [Link](https://www.espn.com/college-football/story/_/id/47238381/notre-dame-ad-says-cfp-selection-committee-pulled-rug-farce)
+- **Joe Theismann describes 'disgusting' Notre Dame College Football Playoff decision, chides Alabama's entry**: [Link](https://www.cbssports.com/college-football/news/notre-dame-football-college-football-playoff-joe-theismann/)
+- **Notre Dame opts out of bowl game after getting ‘punched in the stomach’ by CFP**: [Link](https://apnews.com/article/notre-dame-cfp-snub-0162b8f4affc23370e3e191dd57bf4a1)
+
+
+### yalla kora (N/A, Mon, 8 Dec 2025 09:00:00 -0800)
+
+- **متى يتم إجراء قرعة الدور الثالث من كأس الاتحاد الإنجليزي لموسم 2025/26؟**: [Link](https://ar.mancity.com/news/mens/fa-cup-third-round-draw-details-1-63900705)
+- **ترقب صلاح ومرموش.. موعد قرعة الدور الثالث من كأس إنجلترا**: [Link](https://www.yallakora.com/fa-cup/3017/news/532614/%D8%AA%D8%B1%D9%82%D8%A8-%D8%B5%D9%84%D8%A7%D8%AD-%D9%88%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%85%D9%88%D8%B9%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7)
+- **متى ستقام قرعة كأس الاتحاد الإنجليزي؟**: [Link](https://ar.mancity.com/news/mens/fa-cup-third-round-draw-details-63900555)
+
+
 ### bein sport (N/A, Mon, 8 Dec 2025 08:50:00 -0800)
 
 - **Preview: Besiktas vs Gaziantep - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/besiktas/preview/besiktas-vs-gaziantep-prediction-team-news-lineups_587259.html)
