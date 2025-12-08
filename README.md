@@ -1,3 +1,24 @@
+### bourse de casablanca (N/A, Sun, 7 Dec 2025 23:40:00 -0800)
+
+- **Bourse de Casablanca : le marché actions est-il cher ou abordable ?**: [Link](https://medias24.com/2025/12/03/bourse-de-casablanca-le-marche-actions-est-il-cher-ou-abordable-1588691/)
+- **Clôture: La Bourse de Casablanca consolide ses gains**: [Link](https://www.lesiteinfo.com/economie/661497-cloture-la-bourse-de-casablanca-consolide-ses-gains-2.html)
+- **Bourse de Casablanca : comment accéder au marché et profiter des IPO ?**: [Link](https://fnh.ma/article/actualite-financiere-maroc/bourse-casablanca-ipo-marche-salon-epargne)
+
+
+### سعيد مختار (N/A, Sun, 7 Dec 2025 23:10:00 -0800)
+
+- **مقتل الفنان المصري سعيد مختار في مشاجرة**: [Link](https://www.skynewsarabia.com/varieties/1838550-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%B3%D8%B9%D9%8A%D8%AF-%D9%85%D8%AE%D8%AA%D8%A7%D8%B1-%D9%85%D8%B4%D8%A7%D8%AC%D8%B1%D8%A9)
+- **نهاية مأساوية لفنان مصري على يد زوج طليقته**: [Link](https://kech24.com/%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%85%D8%A3%D8%B3%D8%A7%D9%88%D9%8A%D8%A9-%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%B5%D8%B1%D9%8A-%D8%B9%D9%84%D9%89-%D9%8A%D8%AF-%D8%B2%D9%88%D8%AC-%D8%B7%D9%84%D9%8A%D9%82%D8%AA%D9%87.html)
+- **كاميرات المراقبة ترصد لحظة مقتل الفنان سعيد مختار.. واتهام زوج طليقته**: [Link](https://www.youm7.com/story/2025/12/7/%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%82%D8%A8%D8%A9-%D8%AA%D8%B1%D8%B5%D8%AF-%D9%84%D8%AD%D8%B8%D8%A9-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%B3%D8%B9%D9%8A%D8%AF-%D9%85%D8%AE%D8%AA%D8%A7%D8%B1-%D9%88%D8%A7%D8%AA%D9%87%D8%A7%D9%85-%D8%B2%D9%88%D8%AC/7225733)
+
+
+### real (N/A, Sun, 7 Dec 2025 14:00:00 -0800)
+
+- **Die wichtigsten News aus der weiten Welt des Sports**: [Link](https://www.watson.ch/sport/sport-news/195933263-sportnews-ticker-real-madrid-unterliegt-zuhause-celta-vigo)
+- **Schiri-Bericht löst auf: Wer die dritte Rote Karte sah**: [Link](https://www.realtotal.de/schiri-bericht-loest-auf-wer-bei-real-die-dritte-rote-karte-sah/)
+- **🚨 Von zwei Betreuern gestützt: Real-Star muss verletzt vom Platz**: [Link](https://onefootball.com/de/news/von-zwei-betreuern-gestuetzt-real-star-muss-verletzt-vom-platz-42063204)
+
+
 ### radio mars (N/A, Sun, 7 Dec 2025 23:30:00 -0800)
 
 - **بعد فسخ عقده مع الزمالك بنتايك يتوصل بعروض مغرية**: [Link](https://www.almountakhab.com/node/13220438)
