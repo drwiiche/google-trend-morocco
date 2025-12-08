@@ -1,3 +1,10 @@
+### jean luc mélenchon (N/A, Sun, 7 Dec 2025 19:40:00 -0800)
+
+- **« Entrisme religieux » : le passage sans encombre de Jean-Luc Mélenchon devant les parlementaires**: [Link](https://www.lemonde.fr/politique/article/2025/12/06/entrisme-religieux-le-passage-sans-encombre-de-jean-luc-melenchon-devant-les-parlementaires_6656302_823448.html)
+- **Accusation d’antisémitisme et de «clientélisme» pro-musulman : à l’Assemblée, la belle occasion offerte à Mélenchon**: [Link](https://www.liberation.fr/politique/accusation-dantisemitisme-et-de-clientelisme-pro-musulman-a-lassemblee-la-belle-occasion-offerte-a-melenchon-20251206_R5AFGGTJQJGVJJSZ5CEQXGH24M/)
+- **Commission d'enquête sur les liens entre partis et islamisme: "Il y a une puissance extérieure à la France qui manipule", alerte Jean-Luc Mélenchon (LFI) sur les luttes d'influence avec le Qatar**: [Link](https://www.bfmtv.com/politique/la-france-insoumise/video-commission-d-enquete-sur-les-liens-entre-partis-et-islamisme-il-y-a-une-puissance-exterieure-a-la-france-qui-manipule-alerte-jean-luc-melenchon-lfi-sur-les-luttes-d-influence-avec-le-qatar_VN-202512060255.html)
+
+
 ### madrid vs (N/A, Sun, 7 Dec 2025 14:00:00 -0800)
 
 - **Última hora sobre las lesiones de Giménez, Baena, Llorente y Cardoso**: [Link](https://www.comuniate.com/noticias/33737/ultima-hora-sobre-las-lesiones-de-gimenez-baena-llorente-y-cardoso)
