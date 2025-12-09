@@ -1,3 +1,24 @@
+### الطقس غدًا (N/A, Tue, 9 Dec 2025 11:40:00 -0800)
+
+- **طقس بارد نسبيا مع رياح متوقع اليوم الخميس**: [Link](https://ar.telquel.ma/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1/)
+- **أمطار رعدية وكرات ثلج.. الأرصاد تحذر: انخفاض الحرارة إلى 7 درجات**: [Link](https://www.almasryalyoum.com/news/details/4146300)
+- **أمطار متفاوتة الشدة تغطي مناطق متفرقة بمحافظات مصر**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2025/12/08/%D9%85%D8%B5%D8%B1-%D8%A7%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%A7%D9%88%D8%AA%D8%A9-%D8%A7%D9%84%D8%B4%D8%AF%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%85%D8%AA%D9%81%D8%B1%D9%82%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%81%D8%B8%D8%A7%D8%AA)
+
+
+### watford – sheffield wednesday (N/A, Tue, 9 Dec 2025 11:40:00 -0800)
+
+- **Back on the road**: [Link](https://www.swfc.co.uk/news/2025/december/08/back-on-the-road/)
+- **Watford aiming to end poor record after referee named for Wednesday clash**: [Link](https://www.watfordobserver.co.uk/sport/25681114.dean-whitestone-referee-watford-v-sheffield-wednesday/)
+- **What channel is Watford v Sheffield Wednesday Championship match on? TV coverage, live stream and kick-off time**: [Link](https://www.radiotimes.com/tv/sport/football/watford-sheffield-wednesday-championship-2025-26-preview/)
+
+
+### psv vs atlético madrid (N/A, Tue, 9 Dec 2025 11:40:00 -0800)
+
+- **PSV vs Atletico Madrid Match Prediction: Team News, Predicted Lineups & Where To Watch**: [Link](https://www.whoscored.com/articles/VFRbyJ-yp06lqG831epgKw/show/psv-vs-atletico-madrid-match-prediction-team-news-predicted-lineups-where-to-watch)
+- **Where to stream PSV Eindhoven vs. Atlético Madrid Champions League match free today**: [Link](https://www.masslive.com/tv/2025/12/where-to-stream-psv-eindhoven-vs-atletico-madrid-champions-league-match-free-today.html)
+- **PSV vs. Atletico Madrid Betting Odds and Free Pick**: [Link](https://www.gambyl.com/en/uefa-champions-league/psv-vs-atletico-madrid-2025/)
+
+
 ### monaco – galatasaray (N/A, Tue, 9 Dec 2025 11:30:00 -0800)
 
 - **Galatasaray'ın Monaco karşısındaki ilk 11'i belli oldu**: [Link](https://t24.com.tr/haber/galatasaray-in-monaco-karsisindaki-ilk-11-i-belli-oldu,1282423)
