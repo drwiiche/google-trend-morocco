@@ -1,3 +1,10 @@
+### manchester united (N/A, Mon, 8 Dec 2025 13:00:00 -0800)
+
+- **Man Utd 2-1 West Ham: Dominique Janssen hits free-kick winner**: [Link](https://www.bbc.com/sport/football/live/cn81v0l634xt)
+- **Match report | United Women 2 West Ham 1 | WSL | 7 December 2025**: [Link](https://www.manutd.com/en/news/detail/match-report-man-utd-women-west-ham-wsl-7-december-2025)
+- **Matchday Gallery | West Ham take on Manchester United**: [Link](https://whufc.com/en/news/matchday-gallery-or-west-ham-take-on-manchester-united)
+
+
 ### agadir24 (N/A, Mon, 8 Dec 2025 23:00:00 -0800)
 
 
