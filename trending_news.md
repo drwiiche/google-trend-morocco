@@ -1,3 +1,17 @@
+### monaco – galatasaray (N/A, Tue, 9 Dec 2025 11:30:00 -0800)
+
+- **Galatasaray'ın Monaco karşısındaki ilk 11'i belli oldu**: [Link](https://t24.com.tr/haber/galatasaray-in-monaco-karsisindaki-ilk-11-i-belli-oldu,1282423)
+- **UEFA Şampiyonlar Ligi'nde bu akşam hangi maçlar var? Karşılaşmalar hangi kanalda canlı yayınlanacak? İşte 9...**: [Link](https://www.yenisafak.com/uefa-sampiyonlar-liginde-bu-aksam-hangi-maclar-var-karsilasmalar-hangi-kanalda-canli-yayinlanacak-iste-9-aralik-2025-programi-h-4776945)
+- **Okan Buruk'tan Jakobs ve ilk 11 sözleri: Kadro seçenekleri için konuştu**: [Link](https://www.ntvspor.net/futbol/okan-buruktan-jakobs-ve-ilk-11-sozleri-kadro-secenekleri-icin-konustu-414204)
+
+
+### barcelona - frankfurt (N/A, Tue, 9 Dec 2025 11:30:00 -0800)
+
+- **Toppmöller nimmt vier Änderungen vor – Knauff in der Spitze**: [Link](https://www.sge4ever.de/toppmoeller-nimmt-vier-aenderungen-vor-knauff-in-der-spitze/)
+- **Champions League: Barcelona – Frankfurt hier im Live-Ticker**: [Link](https://www.bild.de/sport/fussball/champions-league-barcelona-frankfurt-hier-im-live-ticker-6936beb09f2b81ad2aca0348)
+- **Götze will Königsklassen-Auftritt im Camp Nou genießen**: [Link](https://www.traunsteiner-tagblatt.de/startseite_artikel,-goetze-will-koenigsklassenauftritt-im-camp-nou-geniessen-_arid,970954.html)
+
+
 ### atalanta – chelsea (N/A, Tue, 9 Dec 2025 11:20:00 -0800)
 
 - **Enzo Maresca delivers Chelsea team news ahead of Atalanta | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-delivers-chelsea-team-news-ahead-of-atalanta)
