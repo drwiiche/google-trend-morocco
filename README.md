@@ -1,3 +1,10 @@
+### egypte vs jordanie (N/A, Tue, 9 Dec 2025 07:20:00 -0800)
+
+- **Coupe arabe: l’Egypte et les Emirats arabes unis font match nul**: [Link](https://fr.hespress.com/452970-coupe-arabe-legypte-et-les-emirats-arabes-unis-font-match-nul.html)
+- **Coupe Arabe / L'Égypte et les Émirats se neutralisent (1-1)**: [Link](https://m.elbotola.com/fr/article/2025-12-06-20-32-809.html)
+- **En direct : Egypte - Jordanie (Coupe Arabe) - Sports - Sports**: [Link](https://french.ahram.org.eg/NewsContent/6/51/75717/Sports/Sports/En-direct--Egypte--Jordanie-Coupe-Arabe.aspx)
+
+
 ### egypt vs jordan (N/A, Tue, 9 Dec 2025 07:10:00 -0800)
 
 - **Egypt vs Jordan LIVE Score Updates: The match begins (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2025/12/09/1244051-egypt-vs-jordan-live-score-arab-cup.html)
