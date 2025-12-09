@@ -1,3 +1,10 @@
+### ترتيب دوري ابطال اوروبا (N/A, Tue, 9 Dec 2025 12:50:00 -0800)
+
+- **بايرن ميونيخ يقلب الطاولة على سبورتينغ ويقتنص فوزاً ثميناً**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-%D9%8A%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%B9%D9%84%D9%89-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D9%88%D9%8A%D9%82%D8%AA%D9%86%D8%B5-%D9%81%D9%88%D8%B2%D8%A7-%D8%AB%D9%85%D9%8A%D9%86%D8%A7-2025-12-09)
+- **مدرب لشبونة: بايرن ميونخ أفضل فريق في أوروبا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D8%B4%D8%A8%D9%88%D9%86%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D9%81%D8%B1%D9%8A%D9%82-%D9%81%D9%8A-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt33b82c77abd72332)
+- **بايرن ميونخ يحسمها في 12 دقيقة.. انتفاضة تقود "البافاري" لقلب الطاولة على سبورتينغ في دوري الأبطال**: [Link](https://m.elbotola.com/article/2025-12-09-21-04-445.html)
+
+
 ### classement ligue des champions (N/A, Tue, 9 Dec 2025 14:00:00 -0800)
 
 - **DIRECT. Union Saint-Gilloise-OM (Ligue des champions 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/union-saint-gilloise-om-live/685586)
