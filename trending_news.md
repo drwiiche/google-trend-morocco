@@ -1,3 +1,17 @@
+### كيرات ضد أوليمبياكوس (N/A, Tue, 9 Dec 2025 08:00:00 -0800)
+
+- **أول فوز لأولمبياكوس في العصبة بحضور رسمي للكعبي**: [Link](https://www.almountakhab.com/node/13220532)
+- **أولمبياكوس يحسم الانتصار أمام كايرات ألماتي في دوري أبطال أوروبا**: [Link](https://www.albawabhnews.com/5302389)
+- **أولمبياكوس يحقق فوزه الأول في دوري أبطال أوروبا**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=09122025&id=ae9d8ba3-f8c4-4f82-912e-215e5c7b9b72)
+
+
+### algerie vs irak (N/A, Tue, 9 Dec 2025 07:50:00 -0800)
+
+- **DIRECT. Algérie-Irak: carton rouge, larmes, penalty annulé... début de match dingue**: [Link](https://rmcsport.bfmtv.com/football/equipe-algerie/direct-algerie-irak-suivez-en-live-le-match-du-groupe-d-de-la-coupe-arabe_LS-202512090699.html)
+- **Sports - Les Verts visent la 1re place**: [Link](https://www.lexpressiondz.com/sports/les-verts-visent-la-1re-place-400700)
+- **Sur quelle chaîne et à quelle heure regarder St-Gilloise-OM, Monaco-Galatasaray et Algérie-Irak ?**: [Link](https://www.diverto.tv/actualites/tele/sur-quelle-chaine-et-a-quelle-heure-regarder-st-gilloise-om-monaco-galatasaray-et-algerie-irak)
+
+
 ### ترتيب مجموعات كأس العرب 2025 (N/A, Tue, 9 Dec 2025 09:40:00 -0800)
 
 - **ما المنتخبات المتأهلة إلى ربع نهائي كأس العرب 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%87%D9%84%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blte9a7331fb51d743d)
