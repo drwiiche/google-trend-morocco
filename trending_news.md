@@ -1,3 +1,10 @@
+### 365 (N/A, Mon, 8 Dec 2025 10:30:00 -0800)
+
+- **Webinar Replay: Proactively managing evergreen change in Microsoft 365**: [Link](https://legaltechnology.com/2025/12/08/webinar-replay-proactively-managing-evergreen-change-in-microsoft-365/)
+- **Microsoft sends harsh message to millions of Microsoft 365 customers**: [Link](https://finance.yahoo.com/news/microsoft-sends-harsh-message-millions-020300869.html)
+- **Microsoft Lowers Sales Staff’s Growth Targets For Newer AI Software**: [Link](https://www.theinformation.com/articles/microsoft-lowers-ai-software-sales-quotas-customers-resist-newer-products)
+
+
 ### wolves vs man united (N/A, Mon, 8 Dec 2025 11:20:00 -0800)
 
 - **Wolves 1-4 Man Utd: Visitors hit four to inflict eighth straight loss on hosts**: [Link](https://www.bbc.com/sport/football/live/c8jwgrwywljt)
