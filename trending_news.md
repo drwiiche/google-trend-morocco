@@ -1,3 +1,38 @@
+### barcelone – eintracht francfort (N/A, Tue, 9 Dec 2025 11:10:00 -0800)
+
+- **Le FC Barcelone est effrayé pour son retour au Camp Nou en Ligue des Champions**: [Link](https://www.footmercato.net/a9031209053402216091-le-fc-barcelone-est-effraye-pour-son-retour-au-camp-nou-en-ligue-des-champions)
+- **Hansi Flick : "Un match important"**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4416408/hansi-flick-un-match-important)
+- **Barcelone - Francfort : à quelle heure et sur quelle chaîne regarder le match de Ligue des Champions en direct ce soir ?**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/barcelone-francfort-a-quelle-heure-et-sur-quelle-chaine-regarder-le-match-de-ligue-des-champions-en-direct-ce-soir_AN-202512090024.html)
+
+
+### برشلونة ضد آينتراخت (N/A, Tue, 9 Dec 2025 11:10:00 -0800)
+
+- **نائب رئيس برشلونة: جوارديولا يعرف ما يجب عليه فعله أمام الريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%A7%D9%8A%D9%94%D8%A8-%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%B9%D8%B1%D9%81-%D9%85%D8%A7-%D9%8A%D8%AC%D8%A8-%D8%B9%D9%84%D9%8A%D9%87-%D9%81%D8%B9%D9%84%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/blt0f224bc7d0b3600f)
+- **برشلونة يلاحق باعة التذاكر لمنع تكرار "فضيحة" مباراة فرانكفورت في دوري الأبطال**: [Link](https://www.aljazeera.net/sport/2025/12/9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%84%D8%A7%D8%AD%D9%82-%D8%A8%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%84%D9%85%D9%86%D8%B9-%D8%AA%D9%83%D8%B1%D8%A7%D8%B1)
+- **ديفيد ماسا.. من غرف "الفار" إلى إدارة لقاء برشلونة في الأبطال**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%8A%D9%81%D9%8A%D8%AF-%D9%85%D8%A7%D8%B3%D8%A7-%D9%85%D9%86-%D8%BA%D8%B1%D9%81-%D8%A7%D9%84%D9%81%D8%A7%D8%B1-%D8%A5%D9%84%D9%89-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%84%D9%82%D8%A7%D8%A1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+
+
+### psv eindhoven – atlético madrid (N/A, Tue, 9 Dec 2025 11:10:00 -0800)
+
+- **Hancko maakt indruk: 'Zo’n voorbeeldprof niet vaak gezien'**: [Link](https://www.vi.nl/video/hancko-maakt-indruk-zo-n-voorbeeldprof-niet-vaak-gezien)
+- **Guus Til blikt lachend terug op ruzie tussen Arne Slot en Atlético-trainer Simeone**: [Link](https://www.psvinside.nl/nieuws/guus-til-blikt-lachend-terug-op-ruzie-tussen-arne-slot-en-atletico-trainer-simeone)
+- **PSV met Wanner en Driouech in de basis • Champions League-duel met Atlético Madrid**: [Link](https://nos.nl/liveblog/2593850-psv-met-wanner-en-driouech-in-de-basis-champions-league-duel-met-atletico-madrid)
+
+
+### inter – liverpool (N/A, Tue, 9 Dec 2025 11:10:00 -0800)
+
+- **Liverpool name 19-man squad for Inter fixture**: [Link](https://www.liverpoolfc.com/news/liverpool-name-19-man-squad-inter-fixture)
+- **Liverpool Travel to the San Siro Desperate to Revive UCL League Phase Hopes**: [Link](https://www.dawan.africa/news/liverpool-travel-to-the-san-siro-desperate-to-revive-ucl-league-phase-hopes)
+- **Inter Milan Vs Liverpool – Nerazzurri Establish Key Rule Ahead Of High-Stakes Champions League Showdown**: [Link](https://sempreinter.com/2025/12/09/inter-milan-liverpool-key-rule-established-ucl-classic/)
+
+
+### barcelona vs eintracht frankfurt (N/A, Tue, 9 Dec 2025 11:10:00 -0800)
+
+- **Barcelona uncover 500 illegal ticket sales by club members ahead of 'high risk' Frankfurt clash**: [Link](https://barcauniversal.com/barcelona-uncover-500-illegal-ticket-sales-by-club-members-ahead-of-high-risk-frankfurt-clash/)
+- **Hansi Flick reveals the secret behind Barcelona's return to form**: [Link](https://telegrafi.com/en/Hansi-Flick-reveals-the-secret-behind-Barcelona%27s-return-to-form/)
+- **🦅 Eintracht fans flood Barça’s office to become members**: [Link](https://onefootball.com/en/news/eintracht-fans-flood-barcas-office-to-become-members-42071331)
+
+
 ### ucl (N/A, Tue, 9 Dec 2025 10:50:00 -0800)
 
 - **Liverpool name 19-man squad for Inter fixture**: [Link](https://www.liverpoolfc.com/news/liverpool-name-19-man-squad-inter-fixture)
