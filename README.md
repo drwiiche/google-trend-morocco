@@ -1,3 +1,17 @@
+### ucl (N/A, Tue, 9 Dec 2025 10:50:00 -0800)
+
+- **Liverpool name 19-man squad for Inter fixture**: [Link](https://www.liverpoolfc.com/news/liverpool-name-19-man-squad-inter-fixture)
+- **Liverpool Travel to the San Siro Desperate to Revive UCL League Phase Hopes**: [Link](https://www.dawan.africa/news/liverpool-travel-to-the-san-siro-desperate-to-revive-ucl-league-phase-hopes)
+- **Inter vs Liverpool – Ince says ‘battle will be won in midfield’**: [Link](https://football-italia.net/inter-vs-liverpool-ince-says-battle-midfield/)
+
+
+### مجموعة الجزائر في كأس العرب 2025 (N/A, Tue, 9 Dec 2025 09:50:00 -0800)
+
+- **رضوان بركان للجزيرة نت: الفوز على البحرين مجرد بداية.. ونطمح لمجاراة الأرجنتين في كأس العالم**: [Link](https://www.aljazeera.net/sport/2025/12/7/%D8%B1%D8%B6%D9%88%D8%A7%D9%86-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%84%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%86%D8%AA-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89)
+- **كأس العرب 2025: الأردن والعراق إلى الدور الثاني والجزائر تصحح المسار بنتيجة عريضة**: [Link](https://www.bbc.com/arabic/articles/c5yq7189l79o)
+- **مدرب البحرين: "عندما قررت مواجهة المغرب وديًا قالوا إنني مجنون"**: [Link](https://m.elbotola.com/article/2025-12-06-10-00-893.html)
+
+
 ### bayern (N/A, Tue, 9 Dec 2025 10:30:00 -0800)
 
 - **FC Bayern München gegen Sporting Lissabon: Hier läuft die Champions League heute live im TV und Stream**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/stream-fc-bayern-muenchen-gegen-sporting-lissabon-hier-laeuft-das-duell-am-live-im-tv-und-94073515.html)
