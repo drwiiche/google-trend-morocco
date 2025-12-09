@@ -1,3 +1,45 @@
+### classement ligue des champions (N/A, Tue, 9 Dec 2025 14:00:00 -0800)
+
+- **DIRECT. Union Saint-Gilloise-OM (Ligue des champions 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/union-saint-gilloise-om-live/685586)
+- **Union Saint-Gilloise - OM : les compos sont là !**: [Link](https://www.footmercato.net/a1487056624295391347-union-saint-gilloise-om-les-compos-sont-la)
+- **Ligue des champions : Nayef Aguerd dans le groupe de l'OM contre l'Union Saint-Gilloise**: [Link](https://lematin.ma/sports/nayef-aguerd-dans-le-groupe-de-lom-contre-lunion-saint-gilloise/317995)
+
+
+### تشيلسي (N/A, Tue, 9 Dec 2025 14:00:00 -0800)
+
+- **دوري أبطال أوروبا: بالمر يغيب عن قائمة تشلسي أمام أتالانتا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251209-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7)
+- **تشكيلة تشيلسي الرسمية ضد أتالانتا في دوري الابطال**: [Link](https://hihi2.com/2025/12/09/p3551069.html)
+- **ماريسكا: نحاول التكيّف مع ضغط المباريات**: [Link](https://elsport.com/news/show/803302/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%86%D8%AD%D8%A7%D9%88%D9%84-%D8%A7%D9%84%D8%AA%D9%83%D9%8A%D9%91%D9%81-%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA)
+
+
+### om (N/A, Tue, 9 Dec 2025 14:00:00 -0800)
+
+- **Streep door plan om Oekraïense vluchtelingen op te vangen op oude tennisbanen in Losser**: [Link](https://www.ad.nl/losser/streep-door-plan-om-oekraiense-vluchtelingen-op-te-vangen-op-oude-tennisbanen-in-losser~a299e590/)
+- **Opvang Oekraïners op locatie Gildehauserweg in Losser gaat niet door**: [Link](https://www.1twente.nl/artikel/5906419/opvang-oekrainers-op-locatie-gildehauserweg-in-losser-gaat-niet-door)
+- **Opvang Oekraïners op locatie Gildehauserweg in Losser gaat niet door**: [Link](https://www.twentefm.nl/artikel/5906419/opvang-oekrainers-op-locatie-gildehauserweg-in-losser-gaat-niet-door)
+
+
+### lamine yamal (N/A, Tue, 9 Dec 2025 13:50:00 -0800)
+
+- **Lamine Yamal banned for Barcelona’s Champions League clash with Slavia Prague**: [Link](https://www.barcablaugranes.com/barcelona-uefa-champions-league/107676/lamine-yamal-banned-for-barcelonas-champions-league-clash-with-slavia-prague)
+- **The first half of Barça-Eintracht proves Deco right, Lamine Yamal gives the OK**: [Link](https://e-noticies.cat/en/soccer/first-half-barcelona-eintracht-reason-deco-lamine-yamal-ok)
+- **Live Blog! Barcelona vs Eintracht Frankfurt in the UEFA Champions League**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/live-blog-barcelona-vs-eintracht-frankfurt-in-the-uefa-champions-league-2025-12-09)
+
+
+### tottenham vs slavia praha (N/A, Tue, 9 Dec 2025 13:50:00 -0800)
+
+- **Tottenham před zápasem proti Slavii dopsal na soupisku dalšího útočníka**: [Link](https://www.sport.cz/clanek/fotbal-liga-mistru-tottenham-pred-zapasem-proti-slavii-dopsal-na-soupisku-dalsiho-utocnika-5353460)
+- **Proč je Tykač v Londýně: kvůli rozšíření Edenu. Tottenham jako inspirace**: [Link](https://isport.blesk.cz/clanek/fotbal-evropske-pohary-liga-mistru/469675/proc-je-tykac-v-londyne-kvuli-rozsireni-edenu-tottenham-jako-inspirace.html)
+- **Slavia bojovala, ale nestačilo to. V Londýně prohrála o tři branky**: [Link](https://www.seznamzpravy.cz/clanek/sport-fotbal-slavia-bojovala-ale-nestacilo-to-v-londyne-prohrala-o-tri-branky-293752)
+
+
+### champions league (N/A, Tue, 9 Dec 2025 11:50:00 -0800)
+
+- **Bayern Munich 3-1 Sporting: Teenager Lennart Karl puts hosts on brink of Champions League knockouts**: [Link](https://www.bbc.com/sport/football/live/c8xdve0k25nt)
+- **Bayern Munich's 12-Minute Comeback Stuns Sporting in Champions League**: [Link](https://m.elbotola.com/en/article/2025-12-09-21-04-766.html)
+- **Lennart Karl (17) makes Champions League history**: [Link](https://www.getfootballnewsgermany.com/2025/lennart-karl-ucl-history/)
+
+
 ### monaco fc (N/A, Tue, 9 Dec 2025 13:40:00 -0800)
 
 - **Champions League: Osimhen leads Galatasaray attack against Monaco**: [Link](https://www.vanguardngr.com/2025/12/champions-league-osimhen-leads-galatasaray-attack-against-monaco/)
