@@ -1,3 +1,38 @@
+### egypt vs jordan (N/A, Tue, 9 Dec 2025 07:10:00 -0800)
+
+- **Egypt vs Jordan LIVE Score Updates: The match begins (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2025/12/09/1244051-egypt-vs-jordan-live-score-arab-cup.html)
+- **Tolan: Barcelona and Real Madrid Do Not Do This**: [Link](https://www.ysscores.com/en/news/13868386/Tolan:-Barcelona-and-Real-Madrid-Do-Not-Do-This)
+- **How to watch today's Egypt vs Jordan FIFA Arab Cup game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/where-to-watch-egypt-v-jordan-live-stream-online-tv/bltafc875df4663c1ed)
+
+
+### egypte foot (N/A, Tue, 9 Dec 2025 07:10:00 -0800)
+
+- **L'Iran juge « irrationnelle » la désignation de sa rencontre de la Coupe du monde 2026 contre l'Égypte comme « match des fiertés »**: [Link](https://www.lequipe.fr/Football/Actualites/L-iran-juge-irrationnelle-la-designation-de-sa-rencontre-de-la-coupe-du-monde-2026-contre-l-egypte-comme-match-des-fiertes/1615642)
+- **Coupe du monde 2026 : «Nous et l’Égypte nous opposons à cette décision», l’Iran fou de rage après l’attribution du «Pride match»**: [Link](https://www.lefigaro.fr/sports/football/coupe-du-monde/coupe-du-monde-2026-nous-et-l-egypte-nous-opposons-a-cette-decision-l-iran-fou-de-rage-apres-l-attribution-du-pride-match-20251209)
+- **CdM 2026 : l’Iran et l’Egypte enragent suite à l’annonce du match des fiertés LGBTQ+**: [Link](https://www.footmercato.net/a4511244278973570414-cdm-2026-liran-et-legypte-enragent-suite-a-lannonce-du-match-des-fiertes-lgbtq)
+
+
+### egypte (N/A, Tue, 9 Dec 2025 07:10:00 -0800)
+
+- **Iran en Egypte maken bezwaar tegen 'Pride-wedstrijd' op WK voetbal**: [Link](https://www.nu.nl/voetbal/6378816/iran-en-egypte-maken-bezwaar-tegen-pride-wedstrijd-op-wk-voetbal.html)
+- **WK-stad Seattle organiseert 'pride-wedstrijd' bij duel tussen Iran en Egypte**: [Link](https://nos.nl/artikel/2593728-wk-stad-seattle-organiseert-pride-wedstrijd-bij-duel-tussen-iran-en-egypte)
+- **Twee landen waar homoseksualiteit strafbaar is spelen ‘Pride Match’ in Seattle**: [Link](https://www.demorgen.be/nieuws/twee-landen-waar-homoseksualiteit-strafbaar-is-spelen-pride-match-in-seattle~b7df6a2f/)
+
+
+### egypte vs (N/A, Tue, 9 Dec 2025 06:50:00 -0800)
+
+- **En direct.. Jordanie vs Koweït à la Coupe Arabe FIFA 2025**: [Link](https://chamaly.ma/2025/12/06/en-direct-jordanie-vs-koweit-a-la-coupe-arabe-fifa-2025/)
+- **Live Stream: Egypt vs UAE in the Arab Cup**: [Link](https://chamaly.ma/2025/12/06/live-stream-egypt-vs-uae-in-the-arab-cup/)
+- **Live Stream: Egypt vs Kuwait Match in the 2025 Arab Cup**: [Link](https://chamaly.ma/2025/12/02/live-stream-egypt-vs-kuwait-match-in-the-2025-arab-cup/)
+
+
+### xxl (N/A, Mon, 8 Dec 2025 19:20:00 -0800)
+
+- **Netflix’s Hit Diddy Documentary Makes Some Outrageous Insinuations. Here’s What You Need to Know.**: [Link](https://slate.com/culture/2025/12/diddy-documentary-50-cent-netflix-sean-combs-the-reckoning-tupac-biggie.html)
+- **Sean ‘Diddy’ Combs’ Mom Janice Reacts to New Netflix Docuseries About Her Son**: [Link](https://people.com/sean-diddy-combs-mom-janice-combs-reacts-to-new-netflix-docuseries-11863849)
+- **Who is Kirk Burrowes? Bad Boy Co-Founder Speaks His Truth In Sean Combs Documentary**: [Link](https://www.netflix.com/tudum/articles/sean-combs-the-reckoning-diddy-documentary-kirk-burrowes-tupac)
+
+
 ### ترتيب كأس العرب 2025 (N/A, Tue, 9 Dec 2025 06:50:00 -0800)
 
 - **جمهور غفير بلقاء السعودية والمغرب**: [Link](https://www.hespress.com/%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%BA%D9%81%D9%8A%D8%B1-%D8%A8%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1668158.html)
