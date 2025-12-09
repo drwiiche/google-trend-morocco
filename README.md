@@ -1,3 +1,10 @@
+### monaco fc (N/A, Tue, 9 Dec 2025 13:40:00 -0800)
+
+- **Champions League: Osimhen leads Galatasaray attack against Monaco**: [Link](https://www.vanguardngr.com/2025/12/champions-league-osimhen-leads-galatasaray-attack-against-monaco/)
+- **How has AS Monaco fared against Turkish teams?**: [Link](https://onefootball.com/pt-br/noticias/how-has-as-monaco-fared-against-turkish-teams-42068773)
+- **Monaco predicted XI v Galatasaray: Folarin Balogun to return, Ansu Fati out**: [Link](https://www.getfootballnewsfrance.com/2025/monaco-predicted-xi-v-galatasaray-folarin-balogun-to-return-ansu-fati-out/)
+
+
 ### barca vs frankfurt (N/A, Tue, 9 Dec 2025 12:00:00 -0800)
 
 - **Barcelona - Eintracht, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/barcelona-eintracht-en-directo-champions-league-hoy-en-vivo-f202512-d/)
