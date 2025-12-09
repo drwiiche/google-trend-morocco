@@ -1,3 +1,31 @@
+### algeria vs iraq (N/A, Tue, 9 Dec 2025 08:50:00 -0800)
+
+- **Algeria vs. Iraq - How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271139/algeria-vs-iraq-how-when-to-watch/)
+- **Arab Cup 2025 / Algeria – Iraq: a worrying observation for the Greens**: [Link](https://sports.yahoo.com/articles/arab-cup-2025-algeria-iraq-091500436.html)
+- **Algeria vs Iraq LIVE Score Updates in 2025 FIFA Arab Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/09/1244040-algeria-vs-iraq-live-score-arab-cup.html)
+
+
+### ترتيب كاس العرب (N/A, Tue, 9 Dec 2025 08:40:00 -0800)
+
+- **المنتخب المصري يتعادل مع الإمارات**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-1667270.html)
+- **منتخب مصر يعلن التحدي قبل مواجهة الأردن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B3%D9%86%D8%B5%D8%B9%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86--%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D8%AA%D8%AD%D8%AF%D9%8A-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/bltd437e025f11c6b47)
+- **القنوات الناقلة لمباراة الإمارات ومصر اليوم السبت في كأس العرب 2025**: [Link](https://www.youm7.com/story/2025/12/6/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/7222834)
+
+
+### مباراة الجزائر اليوم (N/A, Tue, 9 Dec 2025 08:30:00 -0800)
+
+- **موعد مباراة العراق ضد الجزائر في كأس العرب 2025 والقنوات المفتوحة الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/12/9/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3)
+- **ما القنوات الناقلة لمباراة الجزائر والعراق في كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%88%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt8ce2a5834112a008)
+- **قمة مرتقبة بين منتخبي الجزائر والعراق**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D9%8A-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-2025-12-08)
+
+
+### classement coupe arabe (N/A, Tue, 9 Dec 2025 07:20:00 -0800)
+
+- **Match Maroc-Syrie : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-syrie-a-quelle-heure-et-sur-quelles-chaines/317998)
+- **Tarik Sektioui : L'équipe s'est adaptée à toutes les circonstances et a réalisé l’essentiel**: [Link](https://fr.hespress.com/453188-tarik-sektioui-lequipe-sest-adaptee-a-toutes-les-circonstances-et-a-realise-lessentiel.html)
+- **Bouftini : « Les provocations des supporters adverses ne m'intéressent pas… Ce qui compte, c'est le public marocain**: [Link](https://m.elbotola.com/fr/article/2025-12-08-22-08-247.html)
+
+
 ### كاس العرب (N/A, Tue, 9 Dec 2025 08:30:00 -0800)
 
 - **موعد مباراة العراق ضد الجزائر في كأس العرب 2025 والقنوات المفتوحة الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/12/9/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3)
