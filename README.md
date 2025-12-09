@@ -1,3 +1,8 @@
+### agadir24 (N/A, Mon, 8 Dec 2025 23:00:00 -0800)
+
+
+
+
 ### cashplus bourse casablanca (N/A, Mon, 8 Dec 2025 14:20:00 -0800)
 
 - **Cash Plus réussit son introduction en bourse et entame sa cotation ce 8 décembre**: [Link](https://medias24.com/2025/12/08/cash-plus-reussit-son-introduction-en-bourse-et-entame-sa-cotation-ce-8-decembre-1590911/)
