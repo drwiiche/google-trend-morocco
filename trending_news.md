@@ -1,3 +1,15 @@
+### كاس العرب (N/A, Tue, 9 Dec 2025 08:30:00 -0800)
+
+- **موعد مباراة العراق ضد الجزائر في كأس العرب 2025 والقنوات المفتوحة الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/12/9/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3)
+- **ما القنوات الناقلة لمباراة الجزائر والعراق في كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%88%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt8ce2a5834112a008)
+- **قمة مرتقبة بين منتخبي الجزائر والعراق**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D9%8A-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-2025-12-08)
+
+
+### cup arab (N/A, Tue, 9 Dec 2025 08:30:00 -0800)
+
+
+
+
 ### algerie vs (N/A, Tue, 9 Dec 2025 08:10:00 -0800)
 
 - **Algérie-Irak: à quelle heure et sur quelle chaîne suivre le match de Coupe arabe?**: [Link](https://rmcsport.bfmtv.com/football/equipe-algerie/algerie-irak-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-de-coupe-arabe_AV-202512090474.html)
