@@ -1,3 +1,10 @@
+### cashplus bourse casablanca (N/A, Mon, 8 Dec 2025 14:20:00 -0800)
+
+- **Cash Plus réussit son introduction en bourse et entame sa cotation ce 8 décembre**: [Link](https://medias24.com/2025/12/08/cash-plus-reussit-son-introduction-en-bourse-et-entame-sa-cotation-ce-8-decembre-1590911/)
+- **Cash Plus : une IPO qui révèle une nouvelle génération de primo-investisseurs**: [Link](https://ledesk.ma/2025/12/08/cash-plus-une-ipo-qui-revele-une-nouvelle-generation-de-primo-investisseurs/)
+- **L'introduction en Bourse de Cash Plus explose avec 80.759 souscripteurs pour 48,82 milliards de DH**: [Link](https://telquel.ma/instant-t/2025/12/08/lintroduction-en-bourse-de-cash-plus-explose-avec-80-759-souscripteurs-pour-4882-milliards-de-dh_1964212/)
+
+
 ### 365 (N/A, Mon, 8 Dec 2025 10:30:00 -0800)
 
 - **Webinar Replay: Proactively managing evergreen change in Microsoft 365**: [Link](https://legaltechnology.com/2025/12/08/webinar-replay-proactively-managing-evergreen-change-in-microsoft-365/)
