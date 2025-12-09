@@ -1,3 +1,17 @@
+### مجموعات كأس العرب (N/A, Tue, 9 Dec 2025 09:10:00 -0800)
+
+- **ما المنتخبات المتأهلة إلى ربع نهائي كأس العرب 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%87%D9%84%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blte9a7331fb51d743d)
+- **المواجهات والمنتخبات المتأهلة إلى ربع نهائي كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/2025/12/6/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%87%D9%84%D8%A9-%D8%A5%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3)
+- **جدول مباريات ربع نهائي كأس العرب 2025 والقنوات الناقلة**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt8d66be0754141361)
+
+
+### bayern – sporting (N/A, Tue, 9 Dec 2025 09:00:00 -0800)
+
+- **Bayern Munich vs Sporting CP: Date, Time and Everything You Need to Know About This Champions League Clash**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/bayern-munich-vs-sporting-cp-date-time-and-everything-you-need-to-know-about-this-champions-league-clash-2025-12-09)
+- **Max Eberl admits he asked referee Tobias Stieler about Bayern Munich’s UCL opponent Sporting CP**: [Link](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/153326/max-eberl-admits-he-asked-referee-tobias-stieler-about-bayern-munichs-ucl-opponent-sporting-cp)
+- **Kane, Gnabry & Co. in high spirits ahead of Sporting**: [Link](https://sports.yahoo.com/videos/kane-gnabry-co-high-spirits-120801455.html)
+
+
 ### algeria vs iraq (N/A, Tue, 9 Dec 2025 08:50:00 -0800)
 
 - **Algeria vs. Iraq - How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271139/algeria-vs-iraq-how-when-to-watch/)
