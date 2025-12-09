@@ -1,3 +1,10 @@
+### wolves vs man united (N/A, Mon, 8 Dec 2025 11:20:00 -0800)
+
+- **Wolves 1-4 Man Utd: Visitors hit four to inflict eighth straight loss on hosts**: [Link](https://www.bbc.com/sport/football/live/c8jwgrwywljt)
+- **'I really enjoyed the way we played second half': Ruben Amorim**: [Link](https://tribuna.com/en/news/2025-12-08-i-really-enjoyed-the-way-we-played-second-half-ruben-amorim/)
+- **Mount ready to push on after overcoming Man Utd setbacks**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/mount-ready-to-push-on-after-overcoming-man-utd-setbacks-2025-12-08)
+
+
 ### maroc vs syrie (N/A, Mon, 8 Dec 2025 12:30:00 -0800)
 
 - **Maroc - Syrie EN DIRECT 11/12/2025 | Football**: [Link](https://www.flashscore.fr/match/football/maroc-IDKYO3R8/syrie-bDoeW1BH/)
