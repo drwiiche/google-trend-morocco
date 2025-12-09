@@ -1,3 +1,9 @@
+### maroc vs syrie (N/A, Mon, 8 Dec 2025 12:30:00 -0800)
+
+- **Maroc - Syrie EN DIRECT 11/12/2025 | Football**: [Link](https://www.flashscore.fr/match/football/maroc-IDKYO3R8/syrie-bDoeW1BH/)
+- **Maroc vs Syrie : date, heure et lieu confirmés pour le quart de finale de la Coupe arabe 2025**: [Link](https://foot-africa.com/actualites/maroc-vs-syrie-date-heure-et-lieu-confirmes-pour-le-quart-de-finale-de-la-coupe-arabe-2025-994133/)
+
+
 ### flash score (N/A, Mon, 8 Dec 2025 10:50:00 -0800)
 
 - **MGM Slam tennis event returning to Las Vegas with 8-man field**: [Link](https://www.reviewjournal.com/sports/mgm-slam-tennis-event-returning-to-las-vegas-with-8-man-field-3592547/?utm_campaign=widget&utm_medium=latest&utm_source=sports&utm_term=MGM%20Slam%20tennis%20event%20returning%20to%20Las%20Vegas%20with%208-man%20field)
