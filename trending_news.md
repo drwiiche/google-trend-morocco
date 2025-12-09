@@ -1,3 +1,31 @@
+### atalanta – chelsea (N/A, Tue, 9 Dec 2025 11:20:00 -0800)
+
+- **Enzo Maresca delivers Chelsea team news ahead of Atalanta | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-delivers-chelsea-team-news-ahead-of-atalanta)
+- **Chelsea’s Italian dentist appointment: Only 2 wins in 15 trips as Atalanta await**: [Link](https://www.besoccer.com/new/chelsea-rsquo-s-italian-dentist-appointment-only-2-wins-in-15-trips-as-atalanta-await-1384986)
+- **Why Cole Palmer is not in Chelsea squad for Champions League clash against Atalanta**: [Link](https://www.football.london/chelsea-fc/news/cole-palmer-chelsea-atalanta-squad-33029463)
+
+
+### بي اس في ضد أتلتيكو مدريد (N/A, Tue, 9 Dec 2025 11:20:00 -0800)
+
+- **قائمة أتلتيكو مدريد الرسمية لمواجهة آيندهوفن في دوري أبطال أوروبا**: [Link](https://hihi2.com/2025/12/08/p3548844.html)
+- **القنوات الناقلة لمباراة أتليتكو مدريد ضد أيندهوفن اليوم في دوري أبطال أوروبا مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/181584012682975-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A3%D9%8A%D9%86%D8%AF%D9%87%D9%88%D9%81%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **بث مباشر مباراة أتلتيكو مدريد وإيندهوفن في دوري أبطال أوروبا 2025-2026.. بجودة عالية**: [Link](https://www.almashhad.news/456848)
+
+
+### الإنتر ضد ليفربول (N/A, Tue, 9 Dec 2025 11:20:00 -0800)
+
+- **في غياب صلاح.. إيكيتيكي وإيزاك يقودان ليفربول أمام إنتر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B5%D9%84%D8%A7%D8%AD--%D8%A7%D9%95%D9%8A%D9%83%D9%8A%D8%AA%D9%8A%D9%83%D9%8A-%D9%88%D8%A7%D9%95%D9%8A%D8%B2%D8%A7%D9%83-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%86%D8%AA%D8%B1/bltc45d21d8a5af4b25)
+- **أبطال أوروبا: قمة بين إنتر وليفربول وبايرن وبرشلونة للفوز**: [Link](https://www.alaraby.co.uk/sport/%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%82%D9%85%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A5%D9%86%D8%AA%D8%B1-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%84%D9%81%D9%88%D8%B2)
+- **برنامج مباريات الجولة السادسة من دوري أبطال أوروبا ليوم الثلاثاء**: [Link](https://agadir24.info/%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-2.html)
+
+
+### tottenham – slavia prague (N/A, Tue, 9 Dec 2025 11:20:00 -0800)
+
+- **Starting line-ups for Spurs vs Slavia Prague in the Champions League on 9 December.**: [Link](https://www.tottenhamhotspur.com/news/2025/december/confirmed-line-ups-spurs-vs-slavia-prague/)
+- **Tottenham get relieving Randal Kolo Muani injury news at the cost of losing another forward**: [Link](https://hotspurhq.com/tottenham-get-relieving-randal-kolo-muani-injury-news-at-the-cost-of-losing-another-forward-01kc0ezxt6fj)
+- **Thomas Frank provides updates about the state of Tottenham’s squad**: [Link](https://www.vavel.com/en/football/2025/12/08/tottenham-hotspur/1244001-thomas-frank-provides-updates-about-the-state-of-tottenhams-squad.html)
+
+
 ### barcelone – eintracht francfort (N/A, Tue, 9 Dec 2025 11:10:00 -0800)
 
 - **Le FC Barcelone est effrayé pour son retour au Camp Nou en Ligue des Champions**: [Link](https://www.footmercato.net/a9031209053402216091-le-fc-barcelone-est-effraye-pour-son-retour-au-camp-nou-en-ligue-des-champions)
