@@ -1,3 +1,10 @@
+### tsunami japon (N/A, Tue, 9 Dec 2025 02:00:00 -0800)
+
+- **Au Japon, 30 blessés après un séisme de magnitude 7,5**: [Link](https://www.lemonde.fr/planete/article/2025/12/09/au-japon-30-blesses-apres-un-seisme-de-magnitude-7-6_6656496_3245.html)
+- **Un violent séisme et un tsunami font de nombreux blessés au Japon**: [Link](https://www.20minutes.fr/monde/japon/4190471-20251209-japon-violent-seisme-tsunami-font-nombreux-blesses)
+- **L'alerte au tsunami déclenchée au Japon après un important séisme au large des côtes**: [Link](https://www.bfmtv.com/international/asie/japon/l-alerte-au-tsunami-declenchee-au-japon-apres-un-important-seisme-au-large-des-cotes_AN-202512080599.html)
+
+
 ### programme coupe arabe 2025 (N/A, Mon, 8 Dec 2025 11:20:00 -0800)
 
 - **Coupe arabe: l’Egypte et les Emirats arabes unis font match nul**: [Link](https://fr.hespress.com/452970-coupe-arabe-legypte-et-les-emirats-arabes-unis-font-match-nul.html)
