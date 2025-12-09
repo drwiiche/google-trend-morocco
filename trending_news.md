@@ -1,3 +1,10 @@
+### programme coupe arabe 2025 (N/A, Mon, 8 Dec 2025 11:20:00 -0800)
+
+- **Coupe arabe: l’Egypte et les Emirats arabes unis font match nul**: [Link](https://fr.hespress.com/452970-coupe-arabe-legypte-et-les-emirats-arabes-unis-font-match-nul.html)
+- **Coupe Arabe / L'Égypte et les Émirats se neutralisent (1-1)**: [Link](https://m.elbotola.com/fr/article/2025-12-06-20-32-809.html)
+- **Égypte contre Jordanie : à quelle heure et sur quelle chaîne regarder en direct le choc de la Coupe arabe 2025**: [Link](https://foot-africa.com/actualites/gypte-contre-jordanie-a-quelle-heure-et-sur-quelle-chaine-regarder-en-direct-le-choc-de-la-coupe-arabe-2025-994241/)
+
+
 ### manchester united (N/A, Mon, 8 Dec 2025 13:00:00 -0800)
 
 - **Man Utd 2-1 West Ham: Dominique Janssen hits free-kick winner**: [Link](https://www.bbc.com/sport/football/live/cn81v0l634xt)
