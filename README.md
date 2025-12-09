@@ -1,3 +1,17 @@
+### algerie vs (N/A, Tue, 9 Dec 2025 08:10:00 -0800)
+
+- **Algérie-Irak: à quelle heure et sur quelle chaîne suivre le match de Coupe arabe?**: [Link](https://rmcsport.bfmtv.com/football/equipe-algerie/algerie-irak-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-de-coupe-arabe_AV-202512090474.html)
+- **Sports - Les Verts visent la 1re place**: [Link](https://www.lexpressiondz.com/sports/les-verts-visent-la-1re-place-400700)
+- **Coupe Arabe : Atal, « On fait tout pour être au top de notre forme »**: [Link](https://www.dzfoot.com/equipes-nationales/coupe-arabe-atal-on-fait-tout-pour-etre-au-top-de-notre-forme-287504.html)
+
+
+### مصر (N/A, Tue, 9 Dec 2025 08:10:00 -0800)
+
+- **كلينتون: الضغط على كييف لقبول وقف نار قد يعرضها مستقبلا لهجمات روسية**: [Link](https://www.alaraby.co.uk/politics/%D9%83%D9%84%D9%8A%D9%86%D8%AA%D9%88%D9%86-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-%D8%B9%D9%84%D9%89-%D9%83%D9%8A%D9%8A%D9%81-%D9%84%D9%82%D8%A8%D9%88%D9%84-%D9%88%D9%82%D9%81-%D9%86%D8%A7%D8%B1-%D9%82%D8%AF-%D9%8A%D8%B9%D8%B1%D8%B6%D9%87%D8%A7-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84%D8%A7-%D9%84%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%B1%D9%88%D8%B3%D9%8A%D8%A9)
+- **هيلاري كلنتون: التعامل مع مصر عسكريا خسرنا المعركة إذا تركناها خسرنا لا نعرف كيف نتعامل معها**: [Link](https://elbashayer.com/%D9%87%D9%8A%D9%84%D8%A7%D8%B1%D9%8A-%D9%83%D9%84%D9%86%D8%AA%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%85%D9%84-%D9%85%D8%B9-%D9%85%D8%B5%D8%B1-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A7-%D8%AE%D8%B3/)
+- **منتدى الدوحة 2025.. هيلاري كلينتون: الاستخدام المفرط للقوة خلال الأزمات الأخيرة في العالم ترك معاناة كبيرة**: [Link](https://al-sharq.com/article/08/12/2025/%D9%85%D9%86%D8%AA%D8%AF%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%AD%D8%A9-2025-%D9%87%D9%8A%D9%84%D8%A7%D8%B1%D9%8A-%D9%83%D9%84%D9%8A%D9%86%D8%AA%D9%88%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D9%81%D8%B1%D8%B7-%D9%84%D9%84%D9%82%D9%88%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%B2%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%B1%D9%83-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D9%83%D8%A8%D9%8A%D8%B1%D8%A9)
+
+
 ### egypte vs jordanie (N/A, Tue, 9 Dec 2025 07:20:00 -0800)
 
 - **Coupe arabe: l’Egypte et les Emirats arabes unis font match nul**: [Link](https://fr.hespress.com/452970-coupe-arabe-legypte-et-les-emirats-arabes-unis-font-match-nul.html)
