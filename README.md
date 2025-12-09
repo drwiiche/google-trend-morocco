@@ -1,3 +1,17 @@
+### bayern (N/A, Tue, 9 Dec 2025 10:30:00 -0800)
+
+- **FC Bayern München gegen Sporting Lissabon: Hier läuft die Champions League heute live im TV und Stream**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/stream-fc-bayern-muenchen-gegen-sporting-lissabon-hier-laeuft-das-duell-am-live-im-tv-und-94073515.html)
+- **Bahn-Chaos nach Fröttmaning! Kommen die Bayern-Fans pünktlich zum Anpfiff?**: [Link](https://www.abendzeitung-muenchen.de/sport/fcbayern/bahn-chaos-nach-froettmaning-kommen-die-bayern-fans-puenktlich-zum-anpfiff-art-1098581)
+- **Premiere für FC Bayern: Neuer Schiedsrichter in Champions League**: [Link](https://www.merkur.de/sport/fc-bayern/premiere-fuer-fc-bayern-neuer-schiedsrichter-in-champions-league-zr-94075117.html)
+
+
+### egypt vs (N/A, Tue, 9 Dec 2025 08:20:00 -0800)
+
+- **Salah confirms when he will leave Liverpool after talks over early release**: [Link](https://www.standard.co.uk/sport/football/salah-liverpool-afcon-release-egypt-b1261716.html)
+- **Sports - Talents Abroad**: [Link](https://english.ahram.org.eg/Category/6/53/Sports/Salah-turns-up-for-training-with-Liverpo.aspx)
+- **AFCON: Egyptian FA Confirms Salah Will Join National Team on Scheduled Date**: [Link](https://en.africatopsports.com/2025/12/08/afcon-egyptian-fa-confirms-salah-will-join-national-team-on-scheduled-date/)
+
+
 ### كيرات ضد أوليمبياكوس (N/A, Tue, 9 Dec 2025 08:00:00 -0800)
 
 - **أول فوز لأولمبياكوس في العصبة بحضور رسمي للكعبي**: [Link](https://www.almountakhab.com/node/13220532)
