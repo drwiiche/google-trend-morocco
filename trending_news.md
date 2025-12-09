@@ -1,3 +1,17 @@
+### barca vs frankfurt (N/A, Tue, 9 Dec 2025 12:00:00 -0800)
+
+- **Barcelona - Eintracht, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/barcelona-eintracht-en-directo-champions-league-hoy-en-vivo-f202512-d/)
+- **Barcelona vs Eintracht Frankfurt: cuotas y quién es el favorito por la Champions League**: [Link](https://www.365scores.com/es/news/barcelona-vs-eintracht-frankfurt-cuotas/)
+- **🦅 Hinchas del Eintracht colapsan la oficina del Barça para ser socios**: [Link](https://onefootball.com/en/news/hinchas-del-eintracht-colapsan-la-oficina-del-barca-para-ser-socios-42071330)
+
+
+### ligue des champions (N/A, Tue, 9 Dec 2025 11:50:00 -0800)
+
+- **DIRECT. Bilbao-PSG, J-1: "les adversaires sont plus motivés car on est les champions d'Europe", rappelle Luis Enrique**: [Link](https://rmcsport.bfmtv.com/football/clubs/paris-saint-germain/direct-bilbao-psg-j-1-suivez-en-live-toutes-les-declarations-et-infos-avant-le-match-de-ligue-des-champions_LN-202512090362.html)
+- **Malade, Ousmane Dembélé est absent du groupe du PSG face à l'Athletic Bilbao en Ligue des champions, Lucas Chevalier également forfait**: [Link](https://www.lequipe.fr/Football/Actualites/Malade-ousmane-dembele-est-absent-du-groupe-du-psg-face-a-l-athletic-bilbao-en-ligue-des-champions/1615623)
+- **LdC : les joueurs du PSG se sont fait une grosse frayeur en avion**: [Link](https://www.footmercato.net/a6638676459055992242-ldc-les-joueurs-du-psg-se-sont-fait-une-grosse-frayeur-en-avion)
+
+
 ### الطقس غدًا (N/A, Tue, 9 Dec 2025 11:40:00 -0800)
 
 - **طقس بارد نسبيا مع رياح متوقع اليوم الخميس**: [Link](https://ar.telquel.ma/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1/)
