@@ -1,3 +1,24 @@
+### dortmund – bodø/glimt (N/A, Wed, 10 Dec 2025 11:30:00 -0800)
+
+- **Borussia Dortmund vs. FK Bodø/Glimt Champions League preview: Team news and predicted lineups**: [Link](https://bulinews.com/borussia-dortmund-bodo/glimt-champions-league-preview-team-news-and-predicted-lineups)
+- **Los Angeles Rams vs Arizona Cardinals - December 7, 2025 - Picks, Odds & Stats - NFL**: [Link](https://www.bettingnews.com/nfl/matchup/2025-12-07-los_angeles_rams-arizona_cardinals-n-1/)
+- **Bodø Glimt Brings Echte Liebe for Arctic Football to Dortmund**: [Link](https://www.mynewsdesk.com/visitnorway/pressreleases/bodoe-glimt-brings-echte-liebe-for-arctic-football-to-dortmund-3421054)
+
+
+### كلوب بروج ضد آرسنال (N/A, Wed, 10 Dec 2025 11:30:00 -0800)
+
+- **لاعب آرسنال يغيب شهرين بسبب الإصابة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B4%D9%87%D8%B1%D9%8A%D9%86-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9/bltd876ea45692b224c)
+- **دوري أبطال أوروبا: إدراج جيزوس ضمن تشكيلة أرسنال**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251209-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A5%D8%AF%D8%B1%D8%A7%D8%AC-%D8%AC%D9%8A%D8%B2%D9%88%D8%B3-%D8%B6%D9%85%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84)
+- **هدافي أرسنال في دوري الأبطال قبل مواجهة كلوب بروج**: [Link](https://hihi2.com/2025/12/10/p3551257.html)
+
+
+### benfica – naples (N/A, Wed, 10 Dec 2025 11:30:00 -0800)
+
+- **Zola explains differences between Conte and Mourinho: ‘He’s the no.1 for communication’**: [Link](https://football-italia.net/zola-differences-between-conte-and-mourinho/)
+- **Macca's Betting Tips for Wednesday's Champions League Action**: [Link](https://www.oddschecker.com/tips/football/champions-league/20251210-maccas-betting-tips-for-wednesdays-champions-league-action)
+- **Neres: “We’ll find a fierce atmosphere, but we’ll be ready and confident”**: [Link](https://sscnapoli.it/en/neres-troveremo-un-clima-caldo-pero-siamo-pronti-alla-sfida-con-consapevolezza-e-fiducia/)
+
+
 ### athletic club vs psg (N/A, Wed, 10 Dec 2025 11:20:00 -0800)
 
 - **La llegada del Paris al Estadio de San Mamés**: [Link](https://es.uefa.com/uefachampionsleague/video/02a0-1f6829fd3021-c7604ceb7c77-1000--la-llegada-del-paris-al-estadio-de-san-mames/)
