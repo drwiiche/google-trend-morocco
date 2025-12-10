@@ -1,3 +1,24 @@
+### طقس (N/A, Tue, 9 Dec 2025 23:10:00 -0800)
+
+- **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-58-1668599.html)
+- **أمطار وثلوج مرتقبة بالمغرب لعدة أيام ومديرية الأرصاد توضح**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D8%B9%D8%AF%D8%A9-%D8%A3%D9%8A%D8%A7%D9%85-973899.html)
+- **طقس الثلاثاء.. قطرات مطرية بعدد من المناطق**: [Link](https://www.achkayen.com/?p=657528)
+
+
+### fes (N/A, Tue, 9 Dec 2025 18:00:00 -0800)
+
+- **Piscine couverte de Fès: une spoliation qui vire au scandale**: [Link](https://fr.le360.ma/politique/piscine-couverte-de-fes-une-spoliation-qui-vire-au-scandale_NAGCHENM4RHOZLZZFBGELDGARY/)
+- **Taroudant: Lancement de la 2ème caravane de l’urbanisme destinée au monde rural**: [Link](https://www.maroc.ma/fr/actualites/taroudant-lancement-de-la-2eme-caravane-de-lurbanisme-destinee-au-monde-rural)
+- **​Sidi Bennour: Les services d'urbanisme rapprochés des citoyens ruraux**: [Link](https://www.lopinion.ma/%E2%80%8BSidi-Bennour-Les-services-d-urbanisme-rapproches-des-citoyens-ruraux_a74745.html)
+
+
+### barcelone (N/A, Tue, 9 Dec 2025 14:00:00 -0800)
+
+- **Barça : Ronald Araujo est parti en Israël**: [Link](https://www.footmercato.net/a8644009095714972516-barca-ronald-araujo-est-parti-en-israel)
+- **Araujo se rend à Tel Aviv (Palestine occupée) pour un voyage religieux et spirituel afin de retrouver son équilibre psychologique**: [Link](https://m.elbotola.com/fr/article/2025-12-09-17-43-243.html)
+- **Barça : et si Araujo ne revenait pas ?**: [Link](https://news.maxifoot.fr/barca/et-si-araujo-ne-revenait-pas-foot-446091.htm)
+
+
 ### météo (N/A, Tue, 9 Dec 2025 22:00:00 -0800)
 
 - **Météo : entre aujourd’hui et demain il pourrait tomber près de 20 l/m² dans certaines zones de France !**: [Link](https://www.tameteo.com/actualites/previsions/meteo-entre-aujourd-hui-et-demain-il-pourrait-tomber-pres-de-20-l-m-dans-certaines-zones-de-france-cartes.html)
