@@ -1,3 +1,17 @@
+### leverkusen vs newcastle (N/A, Wed, 10 Dec 2025 13:20:00 -0800)
+
+- **Champions League: Leverkusen-Trainer muss aus persönlichen Gründen für Spiel absagen!**: [Link](https://www.bild.de/sport/fussball/champions-league-leverkusen-trainer-muss-aus-persoenlichen-gruenden-fuer-spiel-absagen-6939bee2c3b4893a9e2b4e2a)
+- **"Persönliche Gründe": Trainer Hjulmand fehlt gegen Newcastle**: [Link](https://www.zeit.de/news/2025-12/10/persoenliche-gruende-trainer-hjulmand-fehlt-gegen-newcastle)
+- **Leverkusen ohne Coach Hjulmand: Co-Trainer übernimmt gegen Newcastle**: [Link](https://www.eurosport.de/fussball/champions-league/2025-2026/kasper-hjulmand-ausfall-bayer-leverkusen-rogier-meijer-ersetzt-cheftrainer-gegen-newcastle-united-nick-woltemade_sto23249405/story.shtml)
+
+
+### napoli (N/A, Wed, 10 Dec 2025 13:10:00 -0800)
+
+- **Benfica-Napoli, Conte prima del match: «Infortuni a centrocampo? Ci vorrà ancora molto per recuperare tutti»**: [Link](https://www.ilmattino.it/sport/sscnapoli/benfica_napoli_conte_prima_del_match_infortuni_a_centrocampo_ci_vorra_ancora_molto_per_recuperare_tutti-9237830.html)
+- **IL COMMENTO - Vidigal: "Posso titubare contro lo Sporting, ma con il Benfica tifo Napoli"**: [Link](https://napolimagazine.com/in-evidenza/articolo/il-commento-vidigal-posso-titubare-contro-lo-sporting-ma-con-il-benfica-tifo-napoli-10-12-2025)
+- **Champions, le formazioni ufficiali di Benfica-Napoli: in mediana ancora Elmas-McTominay**: [Link](https://www.sportmediaset.mediaset.it/calcio/champions-le-formazioni-ufficiali-di-benfica-napoli-in-mediana-ancora-elmas-mctominay_106953120-202502k.shtml)
+
+
 ### psg vs (N/A, Wed, 10 Dec 2025 13:00:00 -0800)
 
 - **Athletic Club vs PSG: Date, Time and Everything You Need to Know About the Showdown in San Mamés**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/athletic-club-vs-psg-date-time-and-everything-you-need-to-know-about-the-showdown-in-san-mam%C3%A9s-2025-12-10)
