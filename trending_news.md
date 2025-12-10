@@ -1,3 +1,24 @@
+### الريال ضد مان سيتي (N/A, Wed, 10 Dec 2025 11:10:00 -0800)
+
+- **رغم الألم.. مبابي في قائمة ريال مدريد لموقعة السيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B2%D9%8A%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A/blt9f853e708849e16e)
+- **ريال مدريد x مانشستر سيتي: دياز احتياطي ومبابي بدوره يجلس في دكة البدلاء.. هالاند وشرقي ودوكو يقودون هجوم السيتي**: [Link](https://m.elbotola.com/article/2025-12-10-18-45-198.html)
+- **ريال مدريد ومانشستر سيتي...قمة ثقيلة تحت سحابة من الشك**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%82%D9%85%D8%A9-%D8%AB%D9%82%D9%8A%D9%84%D8%A9-%D8%AA%D8%AD%D8%AA-%D8%B3%D8%AD%D8%A7%D8%A8%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B4%D9%83-2025-12-10)
+
+
+### ath. bilbao – paris-sg (N/A, Wed, 10 Dec 2025 11:10:00 -0800)
+
+- **Le PSG qualifié si…**: [Link](https://www.football.fr/psg/le-psg-qualifie-si-8-788870.html)
+- **'The memories I have are unforgettable' - Berchiche set for PSG reunion**: [Link](https://www.besoccer.com/new/the-memories-i-have-are-unforgettable-berchiche-set-for-psg-reunion-1385167)
+- **PSG's opponents 'more motivated' to beat them in Champions League, says Luis Enrique**: [Link](https://www.fotmob.com/news/feasslbu0nqn1ht7ime7gvgcf-psgs-opponents-more-motivated-beat-them-champions-league-says-luis-enrique)
+
+
+### أتلتيك بيلباو ضد بي اس جي (N/A, Wed, 10 Dec 2025 11:10:00 -0800)
+
+- **إنريكي أمام ورطة في معقل بيلباو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%88%D8%B1%D8%B7%D8%A9-%D9%81%D9%8A-%D9%85%D8%B9%D9%82%D9%84-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88/blt25492ffbd0825dd9)
+- **ديمبيلي وشيفالييه يغيبان عن قائمة باريس في دوري الأبطال**: [Link](https://hihi2.com/2025/12/09/p3550618.html)
+- **سان جرمان يستعيد لاعبا بارزا ويخسر ديمبيليه وشوفالييه أمام بلباو في دوري الأبطال**: [Link](https://ar.sport.le360.ma/football/ligue-des-champions-uefa/AS726AEPSBAXPOL5AVBDQEM6IE/)
+
+
 ### match real (N/A, Wed, 10 Dec 2025 10:50:00 -0800)
 
 - **Ligue des champions - Real Madrid - Manchester City - Haaland - Mbappé, des stats folles mais quelle empreinte**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-real-madrid-manchester-city-haaland-mbappe-des-stats-folles-mais-quelle-empreinte_sto23248899/story.shtml)
