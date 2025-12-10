@@ -1,3 +1,10 @@
+### طقس اليوم (N/A, Wed, 10 Dec 2025 00:00:00 -0800)
+
+- **طقس بارد نسبيا مع رياح متوقع اليوم الخميس**: [Link](https://ar.telquel.ma/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1/)
+- **أمطار تضرب هذه المناطق خلال الساعات المقبلة.. والأرصاد تحذر المواطنين من هذه الظاهرة**: [Link](https://zahraa.mr/6159554/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84/)
+- **تحذيرات من العواصف الرعدية: هطول أمطار متوسطة إلى غزيرة متوقع في القاهرة خلال الساعات القادمة**: [Link](https://twaslnews.com/%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1/2242148/)
+
+
 ### séisme japon tsunami (N/A, Tue, 9 Dec 2025 23:50:00 -0800)
 
 - **Les images du violent séisme et du tsunami qui ont frappé le Japon**: [Link](https://www.20minutes.fr/diaporama/diaporama-4190531-images-violent-seisme-tsunami-frappe-japon)
