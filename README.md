@@ -1,3 +1,10 @@
+### real madrid – manchester city (N/A, Wed, 10 Dec 2025 06:00:00 -0800)
+
+- **Champions League: Pep Guardiola, Xabi Alonso & Eddie Howe speaking**: [Link](https://www.bbc.com/sport/football/live/cp8zjmgm14et)
+- **Real Madrid vs Manchester City 2025 live stream: Time, TV channels and how to watch Champions League online**: [Link](https://www.managingmadrid.com/101548/real-madrid-manchester-city-2025-live-stream-time-tv-channels-and-how-to-watch-champions-league-online)
+- **Man City’s Bernardo Silva: ‘Real Madrid are the king of Europe’**: [Link](https://madriduniversal.com/man-citys-bernardo-silva-real-madrid-are-the-king-of-europe/)
+
+
 ### المغرب ضد سوريا (N/A, Wed, 10 Dec 2025 05:10:00 -0800)
 
 - **ما القنوات الناقلة لمباراة المغرب وسوريا في كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt09318531eacd7aeb)
