@@ -1,3 +1,52 @@
+### ترتيب دوري أبطال أوروبا (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
+
+- **جدول مباريات اليوم الأربعاء 10 ديسمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-10-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltc8b00a2822ed8c2c)
+- **دوري أبطال أوروبا: مواجهات مهمة في انتظار الكبار**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%85%D9%87%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1-%D8%A7%D9%84%D9%83%D8%A8%D8%A7%D8%B1)
+- **أبرز نتائج اليوم في دوري أبطال أوروبا.. فوز ليفربول وهزيمة تشيلسي**: [Link](https://www.arrajol.com/content/391767/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A3%D8%A8%D8%B1%D8%B2-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%81%D9%88%D8%B2-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A)
+
+
+### ucl (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
+
+- **Atalanta 2-1 Chelsea: Blues beaten as Atalanta come from behind to win**: [Link](https://www.bbc.com/sport/football/live/cvg1832ym97t)
+- **De Ketelaere inspires Atalanta fightback to beat Chelsea**: [Link](https://www.beinsports.com/en-mena/football/uefa-champions-league/articles-video/de-ketelaere-inspires-atalanta-fightback-to-beat-chelsea-2025-12-09)
+- **Enzo Maresca: Focus must shift to Everton clash**: [Link](https://www.besoccer.com/new/enzo-maresca-focus-must-shift-to-everton-clash-1385180)
+
+
+### champions league standings (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
+
+- **PSV Eindhoven 2-3 Atletico Madrid: Visitors comeback boosts Champions League top eight chances**: [Link](https://www.bbc.com/sport/football/live/c3v1dkg42q7t)
+- **El Drouich Assists in PSV Eindhoven's 3-2 Champions League Loss to Atlético Madrid**: [Link](https://m.elbotola.com/en/article/2025-12-09-22-00-141.html)
+- **‘We weren’t good enough’: Peter Bosz reflects on PSV’s defeat to Atletico Madrid**: [Link](https://sports.yahoo.com/articles/weren-t-good-enough-peter-130300338.html)
+
+
+### champions league classement (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
+
+- **Inter Milan 0-1 Liverpool, Ligue des champions : Les Reds renouent avec la victoire**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/inter-milan-liverpool-live/685583)
+- **LdC : l’Inter Milan furieux après le penalty accordé à Liverpool**: [Link](https://www.footmercato.net/a7761652741576705184-ldc-linter-milan-furieux-apres-le-penalty-accorde-a-liverpool)
+- **Ligue des champions: le Barça et le Bayern renversants, Liverpool se rassure, l'OM se relance**: [Link](https://fr.hespress.com/453371-ligue-des-champions-le-barca-et-le-bayern-renversants-liverpool-se-rassure-lom-se-relance.html)
+
+
+### xabi alonso (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
+
+- **Así es Valdepeñas, el ‘tres de guardia’ de Xabi: “Va a sorprender”**: [Link](https://as.com/futbol/champions/asi-es-valdepenas-el-tres-de-guardia-de-xabi-va-a-sorprender-f202512-n/)
+- **Del Real Zaragoza a la Champions con el Real Madrid: "Es el mejor ‘6’ de España"**: [Link](https://www.sportaragon.com/articulo/real-zaragoza/real-zaragoza-champions-real-madrid-cestero/20251210162156143262.html)
+- **De Joan Martínez a Valdepeñas: los canteranos 'salvadores' para la defensa del Real Madrid**: [Link](https://www.marca.com/apuestas-deportivas/pronosticos/2025/12/10/joan-martinez-valdepenas-canteranos-salvadores-defensa-real-madrid.html)
+
+
+### paris (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
+
+- **"C'est une sanction" : des éducateurs rasent les cheveux d'un enfant placé dans un foyer à Paris et le filment**: [Link](https://www.franceinfo.fr/societe/enfance-et-adolescence/info-franceinfo-c-est-une-sanction-des-educateurs-rasent-les-cheveux-d-un-enfant-place-dans-un-foyer-a-paris-et-le-filment_7666297.html)
+- **Tondre un enfant pour le "punir" : la vidéo choc et l’alerte d'une pédopsychiatre sur un traumatisme majeur**: [Link](https://www.doctissimo.fr/famille/droit-de-la-famille/enfants-victimes-de-violence/tondre-un-enfant-pour-le-punir-la-video-choc-et-lalerte-dune-pedopsychiatre-sur-un-traumatisme-majeur-425022.htm)
+- **INFO RMC. Enfant rasé à l'ASE: la Défenseure des droits annonce "s'auto-saisir" de l'affaire**: [Link](https://rmc.bfmtv.com/actualites/police-justice/info-rmc-enfant-rase-a-l-ase-la-defenseure-des-droits-annonce-s-auto-saisir-de-l-affaire_AV-202512100219.html)
+
+
+### endrick (N/A, Wed, 10 Dec 2025 13:50:00 -0800)
+
+- **Official: 4 Real Madrid stars hit with La Liga bans**: [Link](https://getfootballnewsspain.com/official-4-real-madrid-stars-hit-with-la-liga-bans/)
+- **The disciplinary rulings for Carreras, Endrick, and Carvajal following their sendings off against Celta are now official**: [Link](https://www.mundodeportivo.com/us/en/20251210/736211/the-disciplinary-rulings-for-carreras-endrick-and-carvajal-following-their-sendings-off-against-celta-are-now-official.html)
+- **Real Madrid faces player suspensions following defeat to Celta Vigo**: [Link](https://news.ssbcrack.com/real-madrid-faces-player-suspensions-following-defeat-to-celta-vigo/)
+
+
 ### courtois (N/A, Wed, 10 Dec 2025 13:40:00 -0800)
 
 - **Thibaut Courtois makes shocking mistake leading to Man City's goal vs Real Madrid - two teammates were left stunned**: [Link](https://tribuna.com/en/blogs/thibaut-courtois-makes-shocking-mistake-leading-to-man-citys/)
