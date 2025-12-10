@@ -1,3 +1,31 @@
+### villarreal vs copenhagen (N/A, Wed, 10 Dec 2025 10:10:00 -0800)
+
+- **Villarreal vs. Copenhagen 2025 livestream: Watch Champions League for free**: [Link](https://mashable.com/article/villarreal-copenhagen-champions-league-2025-live-stream-for-free)
+- **'We know there's a lot at stake'**: [Link](https://www.besoccer.com/new/andquot-we-know-thereand-39-s-a-lot-at-stakeandquot-1385171)
+- **Villarreal vs Copenhagen LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/10/1244124-villarreal-vs-copenhagen-live-score-champions.html)
+
+
+### madrid vs city (N/A, Wed, 10 Dec 2025 09:50:00 -0800)
+
+- **Real Madrid - Manchester City hoy, en directo: previa y última hora de la Champions League, en vivo**: [Link](https://as.com/futbol/champions/real-madrid-manchester-city-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202512-n/)
+- **El equipo se está entrenando**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-09-12-2025)
+- **Rodrygo repasa su éxito contra el Manchester City: «Es el auténtico derbi de la Champions»**: [Link](https://okdiario.com/diariomadridista/real-madrid/rodrygo-repasa-exito-contra-manchester-city-autentico-derbi-champions-586227)
+
+
+### fk qarabag – ajax (N/A, Wed, 10 Dec 2025 09:40:00 -0800)
+
+- **Preview: Qarabag FK vs. Ajax - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/qarabag-fk/champions-league/preview/qarabag-vs-ajax-prediction-team-news-lineups_587405.html)
+- **Last training session before the Champions League match against Qarabağ FK.**: [Link](https://english.ajax.nl/articles/last-training-session-before-the-champions-league-match-against-qarabag-fk/)
+- **Qarabag vs Ajax Tips, Predictions and Bet Builder**: [Link](https://news.bet365.com/en-gb/article/football-qarabag-ajax-tips-and-predictions/2025120917243597716)
+
+
+### الوحدة ضد النصر (N/A, Wed, 10 Dec 2025 08:30:00 -0800)
+
+- **بالفيديو.. رونالدو يقود النصر إلى فوز مثير على الوحدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D9%81%D9%88%D8%B2-%D9%85%D8%AB%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9/bltca6982a5dd3b2855)
+- **النصر يواجه الوحدة الإماراتي وديا**: [Link](https://www.al-jazirah.com/2025/20251210/sp13.htm)
+- **تعرّض كومان لوعكة صحية تمنعه من المشاركة في تدريبات فريقه بأبوظبي**: [Link](https://elwatanplus.com/377310/%D8%AA%D8%B9%D8%B1%D9%91%D8%B6-%D9%83%D9%88%D9%85%D8%A7%D9%86-%D9%84%D9%88%D8%B9%D9%83%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9-%D8%AA%D9%85%D9%86%D8%B9%D9%87-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1/)
+
+
 ### al nassr (N/A, Wed, 10 Dec 2025 09:20:00 -0800)
 
 - **Watch Ronaldo score and deliver his iconic 'Siuuu' celebration in Abu Dhabi against Al Wahda**: [Link](https://gulfnews.com/sport/football/watch-ronaldo-score-and-deliver-his-iconic-suuui-celebration-in-abu-dhabi-against-al-wahda-1.500375677)
