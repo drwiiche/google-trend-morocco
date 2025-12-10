@@ -1,3 +1,10 @@
+### nicolas pépé (N/A, Wed, 10 Dec 2025 03:00:00 -0800)
+
+- **Fue campeón con Arsenal, juega en LaLiga y trató de frustrado a Cristiano Ronaldo: “Vegeta siempre hablaba ...**: [Link](https://bolavip.com/ar/europa/fue-campeon-con-arsenal-juega-en-laliga-y-trato-de-frustrado-a-cristiano-ronaldo-vegeta-siempre-hablaba-asi-de-goku)
+- **"Ronaldo es como Vegeta": Pépé hace una comparación rara con Messi**: [Link](https://onefootball.com/pt-br/noticias/ronaldo-es-como-vegeta-pepe-hace-una-comparacion-rara-con-messi-42070978)
+- **"¿Como sabes que Cristiano es el número 2? Porque habla siempre de Messi"**: [Link](https://www.corrienteshoy.com/deportes/como-sabes-que-cristiano-es-el-numero-2-porque-habla-siempre-de-messi.htm)
+
+
 ### طقس اليوم (N/A, Wed, 10 Dec 2025 00:00:00 -0800)
 
 - **طقس بارد نسبيا مع رياح متوقع اليوم الخميس**: [Link](https://ar.telquel.ma/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1/)
