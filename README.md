@@ -1,3 +1,17 @@
+### al nassr (N/A, Wed, 10 Dec 2025 09:20:00 -0800)
+
+- **Watch Ronaldo score and deliver his iconic 'Siuuu' celebration in Abu Dhabi against Al Wahda**: [Link](https://gulfnews.com/sport/football/watch-ronaldo-score-and-deliver-his-iconic-suuui-celebration-in-abu-dhabi-against-al-wahda-1.500375677)
+- **You can see Cristiano Ronaldo play in Abu Dhabi tonight**: [Link](https://www.timeoutabudhabi.com/news/cristiano-ronaldo-al-nassr)
+- **Video: Cristiano Ronaldo scores Al Nassr’s first goal vs Wahda Abu Dhabi**: [Link](https://bolavip.com/en/soccer/video-cristiano-ronaldo-scores-al-nassrs-first-goal-vs-wahda-abu-dhabi)
+
+
+### villarreal – copenhague (N/A, Wed, 10 Dec 2025 09:00:00 -0800)
+
+- **Pronostic Villarreal CF - FC Copenhague, Ligue Des Champions**: [Link](https://www.sportytrader.com/pronostics/villarreal-cf-fc-copenhague-310762/)
+- **Villarreal - Marcelino : "Nous sommes une meilleure équipe que Copenhague"**: [Link](https://sports.orange.fr/videos/football/villarreal-marcelino-nous-sommes-une-meilleure-equipe-que-copenhague-CNT000002m6As2.html)
+- **Villarreal - Copenhague en streaming : A quelle heure et sur quelle chaîne TV voir le match en direct ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ligue-des-champions-villarreal-copenhague-en-streaming-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-en-direct-ij-505421.html)
+
+
 ### al wahda vs al-nassr (N/A, Wed, 10 Dec 2025 08:30:00 -0800)
 
 - **Watch Ronaldo score and deliver his iconic 'Suuui' celebration in Abu Dhabi against Al Wahda**: [Link](https://gulfnews.com/sport/football/watch-ronaldo-score-and-deliver-his-iconic-suuui-celebration-in-abu-dhabi-against-al-wahda-1.500375677)
