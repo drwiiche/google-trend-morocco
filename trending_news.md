@@ -1,3 +1,10 @@
+### match real (N/A, Wed, 10 Dec 2025 10:50:00 -0800)
+
+- **Ligue des champions - Real Madrid - Manchester City - Haaland - Mbappé, des stats folles mais quelle empreinte**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-real-madrid-manchester-city-haaland-mbappe-des-stats-folles-mais-quelle-empreinte_sto23248899/story.shtml)
+- **Où regarder Athletic Bilbao-Paris SG et Real Madrid-Man City ?**: [Link](https://www.footmercato.net/a919685742306347405-ou-regarder-athletic-bilbao-paris-sg-et-real-madrid-man-city)
+- **Kylian Mbappé dans le groupe du Real Madrid contre Manchester City en Ligue des champions**: [Link](https://www.lequipe.fr/Football/Actualites/Kylian-mbappe-dans-le-groupe-du-real-madrid-contre-manchester-city-en-ligue-des-champions/1615937)
+
+
 ### ajax (N/A, Wed, 10 Dec 2025 10:40:00 -0800)
 
 - **Kieft en Janssen kraken Grim voorafgaand aan Qarabag - Ajax: 'Waanzin'**: [Link](https://www.voetbalprimeur.nl/nieuws/1720614/kieft-en-janssen-kraken-grim-voorafgaand-aan-qarabag-ajax-waanzin.html)
