@@ -1,3 +1,17 @@
+### cash plus bourse casablanca (N/A, Tue, 9 Dec 2025 16:40:00 -0800)
+
+- **Cash Plus : une IPO qui révèle une nouvelle génération de primo-investisseurs**: [Link](https://ledesk.ma/2025/12/08/cash-plus-une-ipo-qui-revele-une-nouvelle-generation-de-primo-investisseurs/)
+- **Ouverture à El Jadida de la 4ᵉ édition du Rail Industry Summit Morocco**: [Link](https://medias24.com/live/ouverture-a-el-jadida-de-la-4%E1%B5%89-edition-du-rail-industry-summit-morocco/)
+- **Bourse de Casablanca : l’IPO de Cash Plus dévoilée de l’intérieur**: [Link](https://telquel.ma/2025/12/09/bourse-de-casablanca-lipo-de-cash-plus-devoilee-de-linterieur_1964262)
+
+
+### ترتيب دوري أبطال أوروبا (N/A, Tue, 9 Dec 2025 13:20:00 -0800)
+
+- **رغم تعديل القانون.. لماذا ألغي هدف ليفربول أمام إنتر ميلان؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%AA%D8%B9%D8%AF%D9%8A%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88%D9%86--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D9%94%D9%84%D8%BA%D9%8A-%D9%87%D8%AF%D9%81-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86/bltb44f2db274fd3686)
+- **ليفربول يهزم إنتر وأتالانتا يطيح بتشلسي وفوز بايرن وأتلتيكو مدريد في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2025/12/10/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D9%87%D8%B2%D9%85-%D8%A5%D9%86%D8%AA%D8%B1-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **ليفربول يعود بفوز ثمين من أرض مستضيفه إنتر**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D9%81%D9%88%D8%B2-%D8%AB%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%A3%D8%B1%D8%B6-%D9%85%D8%B3%D8%AA%D8%B6%D9%8A%D9%81%D9%87-%D8%A5%D9%86%D8%AA%D8%B1-2025-12-09)
+
+
 ### تامر حسني (N/A, Tue, 9 Dec 2025 14:30:00 -0800)
 
 - **تامر حسني ومها فتوني على مسرح المجاز 17 يناير | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-12-07/%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D9%88%D9%85%D9%87%D8%A7-%D9%81%D8%AA%D9%88%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D9%85%D8%B3%D8%B1%D8%AD-%D8%A7%D9%84%D9%85%D8%AC%D8%A7%D8%B2-17-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-6212221/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
