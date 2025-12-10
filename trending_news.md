@@ -1,3 +1,52 @@
+### psg vs (N/A, Wed, 10 Dec 2025 13:00:00 -0800)
+
+- **Athletic Club vs PSG: Date, Time and Everything You Need to Know About the Showdown in San Mamés**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/athletic-club-vs-psg-date-time-and-everything-you-need-to-know-about-the-showdown-in-san-mam%C3%A9s-2025-12-10)
+- **'Budget differences aren't so significant on the pitch'**: [Link](https://www.besoccer.com/new/andquot-budget-differences-arenand-39-t-so-significant-on-the-pitchandquot-1385170)
+- **PSG's opponents 'more motivated' to beat them in Champions League, says Luis Enrique**: [Link](https://www.fotmob.com/news/feasslbu0nqn1ht7ime7gvgcf-psgs-opponents-more-motivated-beat-them-champions-league-says-luis-enrique)
+
+
+### gta 6 (N/A, Wed, 10 Dec 2025 13:00:00 -0800)
+
+- **UK Prime Minister describes Rockstar dismissals as "deeply concerning"**: [Link](https://www.gamesindustry.biz/uk-prime-minister-describes-rockstar-dismissals-as-deeply-concerning)
+- **‘Grand Theft, Not Wage Theft’: Rockstar Protest In NYC Draws Tech Workers, Members Of Multiple Unions**: [Link](https://aftermath.site/grand-theft-auto-6-rockstar-fired-workers-protest-nyc/)
+- **'Deeply Concerning': GTA Dev's Alleged Union Busting Has Now Reached the UK Prime Minister**: [Link](https://www.pushsquare.com/news/2025/12/deeply-concerning-gta-devs-alleged-union-busting-has-now-reached-the-uk-prime-minister)
+
+
+### real madrid (N/A, Wed, 10 Dec 2025 12:50:00 -0800)
+
+- **Real Madrid - Manchester City, en directo: última hora de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/real-madrid-manchester-city-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202512-n/)
+- **Real Madrid - Manchester City en directo | Champions League hoy en vivo: gol de Haaland**: [Link](https://www.marca.com/futbol/champions-league/r-madrid-m-city/2025/12/10/01_0103_20251210_186_43-directo.html)
+- **Desvelada la alineación del Manchester City para el partido contra el Real Madrid**: [Link](https://tribuna.com/es/news/2025-12-10-desvelada-la-alineacion-del-manchester-city-para-el-partido-contra-el-real-madrid/)
+
+
+### haaland (N/A, Wed, 10 Dec 2025 12:50:00 -0800)
+
+- **Erling Haaland reveals why he rejected Real Madrid for Manchester City - 'Guardiola told me...'**: [Link](https://madriduniversal.com/erling-haaland-reveals-why-he-rejected-real-madrid-for-manchester-city-guardiola-told-me/)
+- **Erling Haaland not interested in a transfer, England "is the best place to play football"**: [Link](https://www.gamereactor.eu/erling-haaland-not-interested-in-a-transfer-england-is-the-best-place-to-play-football-1646803/)
+- **Erling Haaland confirms truth behind Man City contract and Pep Guardiola's future**: [Link](https://www.mirror.co.uk/sport/football/news/erling-haaland-contract-pep-guardiola-36377972)
+
+
+### dortmund (N/A, Wed, 10 Dec 2025 12:50:00 -0800)
+
+- **Erstes Duell mit Bodø – BVB will den nächsten Heimsieg**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2025/12/9/Erstes-Duell-mit-Bod-BVB-will-den-naechsten-Heimsieg.html)
+- **Champions League LIVE: Dortmund mit Silva - Hjulmand fehlt kurzfristig bei Bayer**: [Link](https://www.flashscore.de/news/fu-ball-champions-league-champions-league-live-dortmund-mit-silva-hjulmand-fehlt-kurzfristig-bei-bayer/4QO1XTGi/)
+- **Champions League: "Wenn ich zurückdenke, würde ich sagen: Das ist nicht möglich"**: [Link](https://www.sport1.de/news/fussball/champions-league/2025/12/champions-league-die-exoten-vom-polarkreis)
+
+
+### juventus (N/A, Wed, 10 Dec 2025 12:50:00 -0800)
+
+- **Champions League, alle 21 Benfica-Napoli e Juve-Pafos: le formazioni**: [Link](https://tg24.sky.it/sport/2025/12/10/champions-league-risultati-partite-oggi)
+- **Juve: Tacconi, Brio e Bonini allo Stadium per la sfida con il Pafos**: [Link](https://www.sportmediaset.mediaset.it/calcio/juve-tacconi-brio-e-bonini-allo-stadium-per-la-sfida-con-il-pafos_106953609-202502k.shtml)
+- **Juventus-Pafos: dove vederla (tv e streaming), orario, formazioni ufficiali e classifica della Champions League**: [Link](https://www.ilmessaggero.it/sport/schede/juventus_pafos_dove_vederla_champions_league_sky_prime_video_orario_formazioni_ufficiali_classifica-9233782.html)
+
+
+### 365 (N/A, Wed, 10 Dec 2025 12:50:00 -0800)
+
+- **Microsoft Lowers Sales Staff’s Growth Targets For Newer AI Software**: [Link](https://www.theinformation.com/articles/microsoft-lowers-ai-software-sales-quotas-customers-resist-newer-products)
+- **Microsoft sends harsh message to millions of Microsoft 365 customers**: [Link](https://finance.yahoo.com/news/microsoft-sends-harsh-message-millions-020300869.html)
+- **Microsoft’s Attempts to Sell AI Agents Are Turning Into a Disaster**: [Link](https://futurism.com/artificial-intelligence/microsoft-sell-ai-agents-disaster)
+
+
 ### flashscore (N/A, Wed, 10 Dec 2025 12:40:00 -0800)
 
 - **Angola captain Fredy discusses AFCON 2025, playing Messi & bowing out - exclusive**: [Link](https://www.flashscore.com/news/soccer-africa-cup-of-nations-exclusive-angola-captain-fredy-discusses-afcon-2025-playing-messi-and-bowing-out/p4hu1m8l/)
