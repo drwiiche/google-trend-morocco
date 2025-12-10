@@ -1,3 +1,17 @@
+### المغرب ضد سوريا (N/A, Wed, 10 Dec 2025 05:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة المغرب وسوريا في كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt09318531eacd7aeb)
+- **المنتخب الرديف يختبر سوريا "العنيدة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%B9%D9%86%D9%8A%D8%AF%D8%A9-1668788.html)
+- **السكتيوي يمازح صحفيا مغربيا.. تسألني وكأنك صحفي سوري**: [Link](https://www.almountakhab.com/node/13220557)
+
+
+### الطقس اليوم (N/A, Tue, 9 Dec 2025 23:30:00 -0800)
+
+- **سيول وفيضانات وصواعق في مناطق متفرقة بالسعودية**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%B3%D9%8A%D9%88%D9%84-%D9%88%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA-%D9%88%D8%B5%D9%88%D8%A7%D8%B9%D9%82-%D9%81%D9%8A-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%85%D8%AA%D9%81%D8%B1%D9%82%D8%A9-%D8%A8%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/3767259)
+- **عاجل: تحذير خطير من الأرصاد... عواصف رعدية مدمرة تضرب السعودية غداً - الرؤية منعدمة!**: [Link](https://yemen-press.net/news152557.html)
+- **عاصفة واسعة تجتاح المملكة .. أمطار غزيرة وإنذارات حمراء في هذه المناطق**: [Link](https://gate-alsaudia.com/news56643.html)
+
+
 ### morocco vs syria (N/A, Wed, 10 Dec 2025 04:20:00 -0800)
 
 - **How to Watch Morocco vs Saudi Arabia in the FIFA Arab Cup Qatar 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/how-to-watch-morocco-vs-saudi-arabia-in-the-fifa-arab-cup-qatar-2025-on-bein-sports-2025-12-08)
