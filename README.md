@@ -1,3 +1,17 @@
+### ajax (N/A, Wed, 10 Dec 2025 10:40:00 -0800)
+
+- **Kieft en Janssen kraken Grim voorafgaand aan Qarabag - Ajax: 'Waanzin'**: [Link](https://www.voetbalprimeur.nl/nieuws/1720614/kieft-en-janssen-kraken-grim-voorafgaand-aan-qarabag-ajax-waanzin.html)
+- **Mokio aan de aftrap bij Ajax, Godts en Bounida beginnen op de bank**: [Link](https://www.hln.be/champions-league/mokio-aan-de-aftrap-bij-ajax-godts-en-bounida-beginnen-op-de-bank~abab3f00/)
+- **Laatkomer Rayane Bounida voor straf niet in basis Ajax: ‘Willen ook discipline buiten het veld’**: [Link](https://www.ad.nl/voetbal/laatkomer-rayane-bounida-voor-straf-niet-in-basis-ajax-willen-ook-discipline-buiten-het-veld~a7d4ae27/)
+
+
+### villarreal (N/A, Wed, 10 Dec 2025 10:20:00 -0800)
+
+- **Villarreal - Copenhague, en directo: Champions League, en vivo hoy**: [Link](https://as.com/futbol/champions/villarreal-copenhague-en-directo-champions-league-en-vivo-hoy-f202512-d/)
+- **VÍDEO: Lío con el himno de la Champions en La Cerámica: ¡Ojo a las caras!**: [Link](https://www.superdeporte.es/villarreal-cf/2025/12/10/lio-himno-champions-ceramica-villarreal-cf-124654064.html)
+- **Villarreal – Kobenhavn: horario y dónde ver hoy por TV el partido de fútbol de la Champions League**: [Link](https://www.lavanguardia.com/deportes/futbol/20251210/180152/horario-partido-ca-villarreal-kobenhavn-ctx.html)
+
+
 ### villarreal vs copenhagen (N/A, Wed, 10 Dec 2025 10:10:00 -0800)
 
 - **Villarreal vs. Copenhagen 2025 livestream: Watch Champions League for free**: [Link](https://mashable.com/article/villarreal-copenhagen-champions-league-2025-live-stream-for-free)
