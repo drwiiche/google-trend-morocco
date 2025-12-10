@@ -1,3 +1,10 @@
+### athletic club vs psg (N/A, Wed, 10 Dec 2025 11:20:00 -0800)
+
+- **La llegada del Paris al Estadio de San Mamés**: [Link](https://es.uefa.com/uefachampionsleague/video/02a0-1f6829fd3021-c7604ceb7c77-1000--la-llegada-del-paris-al-estadio-de-san-mames/)
+- **Athletic Club vs PSG: fecha, hora y todo lo que debes saber del partidazo de la Champions League**: [Link](https://www.beinsports.com/es-us/football/uefa-champions-league/articles/athletic-club-vs-psg-fecha-hora-y-todo-lo-que-debes-saber-del-partidazo-de-la-champions-league-2025-12-10)
+- **La Ertzaintza interviene a aficionados del PSG bengalas, palos y cuchillos en la frontera de Irún**: [Link](https://www.abc.es/espana/pais-vasco/ertzaintza-interviene-aficionados-psg-bengalas-palos-cuchillos-20251210183805-nt.html)
+
+
 ### الريال ضد مان سيتي (N/A, Wed, 10 Dec 2025 11:10:00 -0800)
 
 - **رغم الألم.. مبابي في قائمة ريال مدريد لموقعة السيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B2%D9%8A%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A/blt9f853e708849e16e)
