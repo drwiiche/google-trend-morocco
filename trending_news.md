@@ -1,3 +1,10 @@
+### effondrement immeuble fes (N/A, Wed, 10 Dec 2025 04:30:00 -0800)
+
+- **Deux immeubles s’effondrent à Fès, au Maroc, au moins 22 personnes tuées**: [Link](https://www.lemonde.fr/afrique/article/2025/12/10/au-maroc-19-personnes-sont-mortes-dans-l-effondrement-de-deux-immeubles-a-fes-selon-un-bilan-provisoire_6656729_3212.html)
+- **Au moins 22 morts dans l'effondrement de deux immeubles au Maroc**: [Link](https://www.bfmtv.com/international/afrique/au-moins-19-morts-dans-l-effondrement-de-deux-immeubles-au-maroc_AD-202512100339.html)
+- **«La faute à la qualité du bâti et au non respect de la loi»: désolation après la mort de 19 personnes dans l’effondrement de deux immeubles à Fès**: [Link](https://fr.le360.ma/societe/la-faute-a-la-qualite-du-bati-et-au-non-respect-de-la-loi-desolation-apres-la-mort-de-19-personnes_7H55WNBMIZCNHN6GMOQN6DDXMY/)
+
+
 ### real madrid – manchester city (N/A, Wed, 10 Dec 2025 06:00:00 -0800)
 
 - **Champions League: Pep Guardiola, Xabi Alonso & Eddie Howe speaking**: [Link](https://www.bbc.com/sport/football/live/cp8zjmgm14et)
