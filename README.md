@@ -1,3 +1,16 @@
+### sofascore (N/A, Wed, 10 Dec 2025 14:10:00 -0800)
+
+- **Most Opened Teams and Players on Sofascore 2025**: [Link](https://www.sofascore.com/news/sofascore-season-the-most-opened-players-teams-and-events-in-2025/)
+- **Sofascore Celebrates 15 Years: From a School Project in Klinča Sela to a Global Sports Platform**: [Link](https://www.media-marketing.com/en/news/sofascore-celebrates-15-years-from-a-school-project-in-klinca-sela-to-a-global-sports-platform/)
+
+
+### champions (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
+
+- **Ewa Pajor nears Champions League benchmark after latest goal in Barcelona win**: [Link](https://www.king5.com/article/syndication/associatedpress/ewa-pajor-nears-champions-league-benchmark-after-latest-goal-in-barcelona-win/616-b1765e0c-de23-4942-8da1-194e7d3898f6)
+- **Barcelona vs Benfica Women's Champions League clash could change everything for European title race**: [Link](https://www.red94.net/news/77140-barcelona-faces-benfica-in-women-s-champions-league-clash-blaugrana-look-to-cont/)
+- **Bayer Leverkusen vs Newcastle United: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqlk0704w4et)
+
+
 ### ترتيب دوري أبطال أوروبا (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
 
 - **جدول مباريات اليوم الأربعاء 10 ديسمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-10-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltc8b00a2822ed8c2c)
