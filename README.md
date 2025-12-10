@@ -1,3 +1,17 @@
+### classement champions league (N/A, Tue, 9 Dec 2025 13:50:00 -0800)
+
+- **Ligue des Champions : Voici le programme de ce mardi**: [Link](https://fr.hespress.com/453222-ligue-des-champions-voici-le-programme-de-ce-mardi-3.html)
+- **LdC : le classement après 6 journées**: [Link](https://www.footmercato.net/a4966242304628058254-ldc-le-classement-apres-6-journees)
+- **Ligue des champions : le Barça et le Bayern excellent, Liverpool se rassure, l'OM se relance**: [Link](https://www.france24.com/fr/info-en-continu/20251209-ligue-des-champions-le-bar%C3%A7a-et-le-bayern-renversants-liverpool-se-rassure-l-om-se-relance)
+
+
+### liverpool (N/A, Tue, 9 Dec 2025 12:50:00 -0800)
+
+- **How one extraordinary interview caused Liverpool great Mohamed Salah to fall out with the club**: [Link](https://www.cnn.com/2025/12/09/sport/soccer-mohamed-salah-liverpool-saga-explained)
+- **Alisson Becker: Read the goalkeeper's pre-Inter press conference in full**: [Link](https://www.liverpoolfc.com/news/alisson-becker-read-goalkeepers-pre-inter-press-conference-full)
+- **Mohamed Salah is destroying his legacy, says Wayne Rooney in latest podcast**: [Link](https://www.bbc.co.uk/sport/football/articles/clyxdpl657eo)
+
+
 ### marseille foot (N/A, Tue, 9 Dec 2025 14:10:00 -0800)
 
 - **Sauvé par le VAR à deux reprises, l'OM bat l'Union Saint-Gilloise et prend une option pour la qualification**: [Link](https://www.lequipe.fr/Football/Actualites/Sauve-par-le-var-a-deux-reprises-l-om-bat-l-union-saint-gilloise-et-prend-une-option-pour-la-qualification/1615825)
