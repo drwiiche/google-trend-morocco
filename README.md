@@ -1,3 +1,17 @@
+### marseille foot (N/A, Tue, 9 Dec 2025 14:10:00 -0800)
+
+- **Sauvé par le VAR à deux reprises, l'OM bat l'Union Saint-Gilloise et prend une option pour la qualification**: [Link](https://www.lequipe.fr/Football/Actualites/Sauve-par-le-var-a-deux-reprises-l-om-bat-l-union-saint-gilloise-et-prend-une-option-pour-la-qualification/1615825)
+- **Union Saint-Gilloise - OM : les notes du match**: [Link](https://www.footmercato.net/a9084351507913615445-union-saint-gilloise-om-les-notes-du-match)
+- **Ligue des champions : Nayef Aguerd dans le groupe de l'OM contre l'Union Saint-Gilloise**: [Link](https://lematin.ma/sports/nayef-aguerd-dans-le-groupe-de-lom-contre-lunion-saint-gilloise/317995)
+
+
+### دوري ابطال اوروبا (N/A, Tue, 9 Dec 2025 12:40:00 -0800)
+
+- **مبابي يثير مخاوف ألونسو في دوري الأبطال.. والسيتي يبتسم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/blt2ce1d2ac0db57646)
+- **موعد مباراة ريال مدريد ضد مانشستر سيتي بأبطال أوروبا والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/9/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
+- **تشواميني: "إذا خسرنا 0-2 فهذه مشكلتنا نحن اللاعبين وليست مشكلة المدرب"**: [Link](https://m.elbotola.com/article/2025-12-09-16-06-310.html)
+
+
 ### cash plus bourse casablanca (N/A, Tue, 9 Dec 2025 16:40:00 -0800)
 
 - **Cash Plus : une IPO qui révèle une nouvelle génération de primo-investisseurs**: [Link](https://ledesk.ma/2025/12/08/cash-plus-une-ipo-qui-revele-une-nouvelle-generation-de-primo-investisseurs/)
