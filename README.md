@@ -1,3 +1,17 @@
+### morocco vs syria (N/A, Wed, 10 Dec 2025 04:20:00 -0800)
+
+- **How to Watch Morocco vs Saudi Arabia in the FIFA Arab Cup Qatar 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/how-to-watch-morocco-vs-saudi-arabia-in-the-fifa-arab-cup-qatar-2025-on-bein-sports-2025-12-08)
+- **Mofid: 'Saudi Arabia Match Was Difficult, We Aim to Progress Step by Step'**: [Link](https://m.elbotola.com/en/article/2025-12-09-10-43-257.html)
+- **Herve Renard Hails Morocco After Arab Cup Match**: [Link](https://www.moroccoworldnews.com/2025/12/271205/herve-renard-hails-morocco-after-arab-cup-match/)
+
+
+### windy (N/A, Wed, 10 Dec 2025 00:20:00 -0800)
+
+- **See the Columbus-area weather forecast for Wednesday, Dec. 10**: [Link](https://www.yahoo.com/news/articles/see-columbus-area-weather-forecast-123503027.html)
+- **Breezy and chilly Tuesday with flurries and a mix of sun and clouds across the region**: [Link](https://abc6onyourside.com/news/local/breezy-columbus-ohio-weather-forecast-winter-chilly-tuesday-flurries-mix-sun-clouds-dec-december-9-2025)
+- **Wayne County weather forecast Tuesday calls for low clouds, breezy and chilly**: [Link](https://www.the-daily-record.com/story/news/local/2025/12/09/wayne-county-weather-forecast-tuesday-dec-09-2025/87682475007/)
+
+
 ### unesco (N/A, Wed, 10 Dec 2025 04:10:00 -0800)
 
 - **UNESCO Officially Adds Moroccan Caftan to World Heritage List**: [Link](https://www.moroccoworldnews.com/2025/12/271307/unesco-officially-adds-moroccan-caftan-to-world-heritage-list/)
