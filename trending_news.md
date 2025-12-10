@@ -1,3 +1,45 @@
+### flashscore (N/A, Wed, 10 Dec 2025 12:40:00 -0800)
+
+- **Angola captain Fredy discusses AFCON 2025, playing Messi & bowing out - exclusive**: [Link](https://www.flashscore.com/news/soccer-africa-cup-of-nations-exclusive-angola-captain-fredy-discusses-afcon-2025-playing-messi-and-bowing-out/p4hu1m8l/)
+- **Sports: Africa Cup of Nations: Angola factfile**: [Link](https://www.newvision.co.ug/category/sports/africa-cup-of-nations-angola-factfile-NV_224263)
+- **AFCON of stars: Mabululu, the guide of the Palancas Negras**: [Link](https://sportnewsafrica.com/en/posts/afcon-of-stars-mabululu-the-guide-of-the-palancas-negras)
+
+
+### bet365 (N/A, Wed, 10 Dec 2025 12:40:00 -0800)
+
+- **Fanatics Sportsbook Missouri Promo Code GOALBONUS: Get $300 in Bonus Bets for KC Chiefs, NHL & UCL**: [Link](https://www.goal.com/en-us/betting/fanatics-sportsbook-missouri-promo-code-goalbonus-get-300-bonus-bets-chiefs-nhl-ucl-12-10/blt75cfb2379c071c82)
+- **Bet365 bonus code SYRACUSE: Expanded $365 NBA Cup bonus in Missouri!**: [Link](https://www.syracuse.com/betting/2025/12/bet365-bonus-code-missouri-expanded-365-nba-bonus.html)
+- **Fanatics Sportsbook promo code NYPOST: Bet $30, get $300 FanCash for UVA vs. Missouri**: [Link](https://nypost.com/2025/12/10/betting/fanatics-sportsbook-promo-code-nypost-bet-30-get-300-fancash-for-uva-vs-missouri/)
+
+
+### bein sport live (N/A, Wed, 10 Dec 2025 12:40:00 -0800)
+
+- **Inter Milan 0-1 Liverpool - Dominik Szoboszlai's late penalty clinches victory for Reds**: [Link](https://www.bbc.com/sport/football/live/c0r9v8ke20yt)
+- **Champions League LIVE: Atalanta vs Chelsea, Inter vs Liverpool & Tottenham vs Slavia Prague**: [Link](https://www.bbc.co.uk/sport/football/live/cx2l4l55888t)
+- **Legend Capello: It wasn't a penalty, Wirtz threw himself to the ground...!**: [Link](https://indeksonline.net/en/Legend-Capello--after-the-penalty--Wirtz-threw-himself-to-the-ground/)
+
+
+### doku (N/A, Wed, 10 Dec 2025 12:40:00 -0800)
+
+- **50 Cent und Diddy: Alte Vorwürfe kommen ans Licht nach neuer Doku**: [Link](https://www.20min.ch/story/50-cent-konfrontiert-mit-seiner-gewalttaetigen-vergangenheit-nach-diddy-doku-103467323)
+- **Netflix-Charts: "Stranger Things 5" bricht in Woche 2 stark ein – und auch die "Yellowstone"-Konkurrenz von Netflix floppt!**: [Link](https://www.filmstarts.de/nachrichten/1000179897.html)
+- **„Sean Combs: The Reckoning“**: [Link](https://fm4.orf.at/stories/3051252/)
+
+
+### ليفركوزن ضد نيوكاسل يونايتد (N/A, Wed, 10 Dec 2025 12:40:00 -0800)
+
+- **تشكيلة نيوكاسل يونايتد ضد باير ليفركوزن في دوري أبطال أوروبا**: [Link](https://hihi2.com/2025/12/09/p3550837.html)
+- **أرقام وإحصائيات قبل مواجهة بايرليفركوزن و نيوكاسل في دوري أبطال أوروبا**: [Link](https://www.alwafd.news/5758533)
+- **بجودة عالية.. مباشر مباراة باير ليفركوزن ونيوكاسل يونايتد (0-0) في دوري أبطال أوروبا**: [Link](https://www.masrtimes.com/633211)
+
+
+### bein sport 1 live (N/A, Wed, 10 Dec 2025 12:20:00 -0800)
+
+- **اليوم.. مصر تواجه الأردن في مباراة حاسمة لضمان بطاقة التأهل**: [Link](https://www.maspero.eg/sport/2025/12/09/911688/%D8%A7%D9%84%D9%8A%D9%88%D9%85--%D9%85%D8%B5%D8%B1-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%84%D8%B6%D9%85%D8%A7%D9%86-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84)
+- **حلمي طولان يعتذر للجماهير المصرية ولا يتنصل من المسئولية**: [Link](https://www.korabia.net/news/33136/%D8%AD%D9%84%D9%85%D9%8A-%D8%B7%D9%88%D9%84%D8%A7%D9%86-%D9%8A%D8%B9%D8%AA%D8%B0%D8%B1-%D9%84%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D9%88%D9%84%D8%A7-%D9%8A%D8%AA%D9%86%D8%B5%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%A6%D9%88%D9%84%D9%8A%D8%A9/%D9%83%D8%B1%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)
+- **منتخب مصر الثاني يواصل استعداداته لمواجهة الأردن الحاسمة في كأس العرب**: [Link](https://www.korabia.net/news/33121/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/%D9%83%D8%B1%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)
+
+
 ### uefa champions league (N/A, Wed, 10 Dec 2025 12:30:00 -0800)
 
 - **Latest. Team news: Four changes for Bayer Leverkusen clash**: [Link](https://www.newcastleunited.com/en/news/team-news-four-changes-for-bayer-leverkusen-clash)
