@@ -1,3 +1,31 @@
+### courtois (N/A, Wed, 10 Dec 2025 13:40:00 -0800)
+
+- **Thibaut Courtois makes shocking mistake leading to Man City's goal vs Real Madrid - two teammates were left stunned**: [Link](https://tribuna.com/en/blogs/thibaut-courtois-makes-shocking-mistake-leading-to-man-citys/)
+- **Real Madrid: Thibaut Courtois delivers a firm message to his teammates**: [Link](https://foot-africa.com/en/news/real-madrid-thibaut-courtois-delivers-a-firm-message-to-his-teammates-994871/)
+- **Thibaut Courtois admits ‘better or worse’ moments with Xabi Alonso after Real Madrid earn crucial victory**: [Link](https://www.goal.com/en/lists/thibaut-courtois-admits-better-worse-moments-xabi-alonso-real-madrid-crucial-victory/blt9a9efdd8ea3c8ef1)
+
+
+### ترتيب دوري ابطال اوروبا (N/A, Wed, 10 Dec 2025 13:40:00 -0800)
+
+- **برشلونة ينتصر على ضيفه آينتراخت فرانكفورت**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%B6%D9%8A%D9%81%D9%87-%D8%A2%D9%8A%D9%86%D8%AA%D8%B1%D8%A7%D8%AE%D8%AA-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA-2025-12-09)
+- **بيدري: عانينا ضد فرانكفورت.. وكوندي لم يقصد التسجيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%AF%D8%B1%D9%8A-%D8%B9%D8%A7%D9%86%D9%8A%D9%86%D8%A7-%D8%B6%D8%AF-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA--%D9%88%D9%83%D9%88%D9%86%D8%AF%D9%8A-%D9%84%D9%85-%D9%8A%D9%82%D8%B5%D8%AF-%D8%A7%D9%84%D8%AA%D8%B3%D8%AC%D9%8A%D9%84/blt2e95b4c6e9405c17)
+- **مباشر.. برشلونة ضد فرانكفورت (2-1) وإنتر ضد ليفربول (0-0) في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/9/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA?update=8352678)
+
+
+### benfica (N/A, Wed, 10 Dec 2025 13:30:00 -0800)
+
+- **“Não me faça rir sobre quem eles estão perdendo!” José Mourinho continua cauteloso com o esgotado time do Napoli antes do confronto da Liga dos Campeões**: [Link](https://www.segundabase.com.br/competicoes/nao-me-faca-rir-sobre-quem-eles-estao-perdendo-jose-mourinho-continua-cauteloso-com-o-esgotado-time-do-napoli-antes-do-confronto-da-liga-dos-campeoes/2080/)
+- **Benfica x Napoli: Onde assistir o jogo pela Champions League hoje (10/12)**: [Link](https://www.mktesportivo.com/2025/12/benfica-x-napoli-onde-assistir-o-jogo-pela-champions-league-hoje-10-12/)
+- **«É importante tentar ver se não é um passo maior do que a perna para José Neto»**: [Link](https://www.abola.pt/video/e-importante-tentar-ver-se-nao-e-um-passo-maior-do-que-a-perna-para-jose-neto-2025121016301620952)
+
+
+### champions league (N/A, Wed, 10 Dec 2025 12:50:00 -0800)
+
+- **Real Madrid vs Manchester City - Champions League LIVE: Latest score and updates as Erling Haaland scores...**: [Link](https://www.dailymail.co.uk/sport/football/article-15370565/Real-Madrid-vs-Manchester-City-2025-26-Champions-League-LIVE-Result.html)
+- **Champions League LIVE SCORES: Arsenal vs Club Brugge and Real Madrid vs Man City**: [Link](https://www.thesun.co.uk/sport/37571516/champions-league-live-scores-arsenal-man-city-real-madrid-newcastle-updates/)
+- **Bayer Leverkusen vs Newcastle United: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqlk0704w4et)
+
+
 ### leverkusen vs newcastle (N/A, Wed, 10 Dec 2025 13:20:00 -0800)
 
 - **Champions League: Leverkusen-Trainer muss aus persönlichen Gründen für Spiel absagen!**: [Link](https://www.bild.de/sport/fussball/champions-league-leverkusen-trainer-muss-aus-persoenlichen-gruenden-fuer-spiel-absagen-6939bee2c3b4893a9e2b4e2a)
