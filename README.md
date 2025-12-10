@@ -1,3 +1,24 @@
+### météo (N/A, Tue, 9 Dec 2025 22:00:00 -0800)
+
+- **Météo : entre aujourd’hui et demain il pourrait tomber près de 20 l/m² dans certaines zones de France !**: [Link](https://www.tameteo.com/actualites/previsions/meteo-entre-aujourd-hui-et-demain-il-pourrait-tomber-pres-de-20-l-m-dans-certaines-zones-de-france-cartes.html)
+- **Coup de vent et pluie : une nouvelle perturbation touche la France ce dimanche, les départements en vigilance**: [Link](https://actu.fr/meteo/coup-de-vent-et-pluie-une-nouvelle-perturbation-touche-la-france-ce-dimanche-les-departements-en-vigilance_63540972.html)
+- **Météo week-end : nuages majoritaires, quelques ondées**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2025-10-22/meteo-week-end-nuages-majoritaires-quelques-ondees-82413)
+
+
+### الطقس (N/A, Tue, 9 Dec 2025 21:50:00 -0800)
+
+- **TNBTS تمدد إغلاق تسلق سيميرو توقعات الطقس القاسية**: [Link](https://voi.id/ar/news/541473)
+- **تساقط أمطار بهذه المناطق غدا الأربعاء**: [Link](https://www.ennaharonline.com/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1/)
+- **توقعات طقس غدا الأربعاء**: [Link](https://a5r5br.net/algeria/local-news/6974781-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1)
+
+
+### weather (N/A, Tue, 9 Dec 2025 21:50:00 -0800)
+
+- **What is jet stream, which bring cold weather to Madhya Pradesh?**: [Link](https://www.groundreport.in/latest/what-is-jet-stream-which-bring-cold-weather-to-madhya-pradesh/)
+- **Minimum temperatures dip sharply in northern divisions,Bhopal continues to experience mild daytime winter**: [Link](https://www.thehitavada.com/Encyc/2025/12/5/minimum-temperatures-dip-sharply-in-northern-divisions-bhopal-continues-to-experience-mild-daytime-winter-.html)
+- **‘Danger Bell’ of Cold in MP: Cold Wave–Cold Day Alert for Next Two Days, Several Districts Including the Capital in Grip**: [Link](https://english.dainikjagranmpcg.com/states/madhya-pradesh/%E2%80%98danger-bell%E2%80%99-of-cold-in-mp-cold-wave%E2%80%93cold-day-alert/article-9713)
+
+
 ### liverpool vs inter (N/A, Tue, 9 Dec 2025 14:10:00 -0800)
 
 - **Champions League LIVE: Atalanta vs Chelsea, Inter vs Liverpool & Tottenham vs Slavia Prague**: [Link](https://www.bbc.com/sport/football/live/cx2l4l55888t)
