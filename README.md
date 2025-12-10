@@ -1,3 +1,60 @@
+### uefa champions league (N/A, Wed, 10 Dec 2025 12:30:00 -0800)
+
+- **Latest. Team news: Four changes for Bayer Leverkusen clash**: [Link](https://www.newcastleunited.com/en/news/team-news-four-changes-for-bayer-leverkusen-clash)
+- **Our next opponents: 'Big Nick' delighting the Magpies' fans**: [Link](https://www.bayer04.de/pt-br/news/champions-league/analise-do-adversario-big-nick-encanta-os-torcedores-dos-magpies)
+- **Where to stream Bayer Leverkusen vs. Newcastle United Champions League match free today**: [Link](https://www.masslive.com/tv/2025/12/where-to-stream-bayer-leverkusen-vs-newcastle-united-champions-league-match-free-today.html)
+
+
+### real (N/A, Wed, 10 Dec 2025 12:30:00 -0800)
+
+- **Zahlencheck: Strauchelnder Alonso trifft erneut auf Guardiola, Mbappé gegen Haaland**: [Link](https://www.fotmob.com/news/18zqc8onicaqe1oy4cpb2ag0fb_de-zahlencheck-strauchelnder-alonso-trifft-erneut-auf-guardiola-mbappe-gegen-haaland?utm_source=fotmob)
+- **Real-Madrid-Ikone Guti wagt kühne Tor-Prognose für das Duell gegen Manchester City**: [Link](https://tribuna.com/de/blogs/realmadridikone-guti-wagt-kuhne-torprognose-fur-das-duell-ge/)
+- **Champions League LIVE: Dortmund will Europa-Gesicht zeigen – Mbappé im Real-Kader**: [Link](https://www.flashscore.de/news/fu-ball-champions-league-champions-league-live-dortmund-will-europa-gesicht-zeigen-mbappe-im-real-kader/4QO1XTGi/)
+
+
+### yallakora (N/A, Wed, 10 Dec 2025 12:20:00 -0800)
+
+- **وكيل بلعمري يعرض 650 مليون سنتيم لتجديد عقد اللاعب**: [Link](https://www.almountakhab.com/node/13220558)
+- **رئيس الرجاء جواد زيات يخرج عن صمته بخصوص يوسف بلعمري**: [Link](https://sport.lesiteinfo.com/elbotola/482969.html)
+- **تقرير .. يكشف عن قيمة العرض الرسمي لفريق الأهلي لخطف لاعب بارز في الرجاء**: [Link](https://ar.sport.le360.ma/football/botola/GRWG2SXC5ZG73OPE77E7AOHC5Y/)
+
+
+### يلا كورة (N/A, Wed, 10 Dec 2025 12:20:00 -0800)
+
+- **بيراميدز يوضح لكووورة موقف الكرتي والشيبي من المشاركة في كأس التحدي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%8A%D9%88%D8%B6%D8%AD-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D9%85%D9%88%D9%82%D9%81-%D8%A7%D9%84%D9%83%D8%B1%D8%AA%D9%8A-%D9%88%D8%A7%D9%84%D8%B4%D9%8A%D8%A8%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%AA%D8%AD%D8%AF%D9%8A/blt41a8ac5d47862bd4)
+- **beIN SPORTS تبث المباريات الثلاث النهائية لكأس القارات للأندية FIFA قطر 2025™ في 40 دولة حول العالم**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/bein-sports-%D8%AA%D8%A8%D8%AB-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-fifa-%D9%82%D8%B7%D8%B1-2025-%D9%81%D9%8A-40-%D8%AF%D9%88%D9%84%D8%A9-%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2025-12-10)
+- **فلامينغو يتجاوز كروز أزول ويضرب موعدا مع بيراميدز في نصف نهائي كأس الإنتركونتيننتال**: [Link](https://m.elbotola.com/article/2025-12-10-19-07-461.html)
+
+
+### rayan cherki (N/A, Wed, 10 Dec 2025 12:10:00 -0800)
+
+- **Rayan Cherki tipped to break Kevin De Bruyne record at Man City after "I am here moment"**: [Link](https://www.sportsmole.co.uk/football/man-city/news/cherki-tipped-to-break-de-bruyne-record-at-man-city-after-i-am-here-moment_587399.html)
+- **Regis Le Bris acknowledges the ‘relentless’
+quality of Man City**: [Link](https://www.vavel.com/en/football/2025/12/07/sunderland/1243903-regis-le-bris-acknowledges-the-relentlessquality-of-man-city.html)
+- **Analysing Sunderland ahead of Saturday’s Premier League clash**: [Link](https://www.mancity.com/news/mens/sunderland-home-premier-league-opta-analysis-63900455)
+
+
+### club brugge vs arsenal (N/A, Wed, 10 Dec 2025 12:10:00 -0800)
+
+- **Team news: Gyokeres starts against Club Brugge**: [Link](https://www.arsenal.com/news/team-news-gyokeres-starts-against-club-brugge)
+- **Arsenal latest: Nightmare scenario for Mikel Arteta as concerning Declan Rice update emerges**: [Link](https://www.football.london/arsenal-fc/news/arsenal-latest-nightmare-scenario-mikel-33029507)
+- **Arsenal injury report: Return dates and latest player updates**: [Link](https://paininthearsenal.com/arsenal-injury-report-return-dates-latest-player-updates)
+
+
+### yalla chot (N/A, Wed, 10 Dec 2025 12:10:00 -0800)
+
+- **القنوات الناقلة لمباراة عمان ضد اليمن اليوم في كأس الخليج تحت 23 سنة 2025 مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/466724497131613-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B9%D9%85%D8%A7%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D9%8A%D9%85%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%AA%D8%AD%D8%AA-23-%D8%B3%D9%86%D8%A9-2025-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **المنتخب الوطني تحت 23 عاما يغادر بطولة كأس الخليج بعد تعادله مع عمان**: [Link](https://a5r5br.net/yemen/local-news/6980516-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%AA%D8%AD%D8%AA-23-%D8%B9%D8%A7%D9%85%D8%A7-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D9%87-%D9%85%D8%B9-%D8%B9%D9%85%D8%A7%D9%86)
+- **بث مباشر.. مشاهدة مباراة العراق والإمارات في كأس الخليج**: [Link](https://www.khaligyoun.com/612823/)
+
+
+### mehdi ghezzar (N/A, Wed, 10 Dec 2025 12:10:00 -0800)
+
+- **Un proche du président algérien auditionné par la police française**: [Link](https://www.lepoint.fr/monde/mehdi-ghezzar-proche-du-president-tebboune-auditionne-par-la-police-francaise-10-12-2025-2605126_24.php)
+- **Mehdi Ghezzar interpellé à Paris : L’ex-chroniqueur anti-Maroc découvre qu’il est fiché S**: [Link](https://www.bladi.net/mehdi-ghezzar-interpelle-paris-chroniqueur-anti-maroc-decouvre-est,118347.html)
+- **Arrestation à Paris de Mehdi Ghezzar, agent d’influence algérien**: [Link](https://www.laverite.ma/arrestation-a-paris-de-mehdi-ghezzar-agent-dinfluence-algerien/)
+
+
 ### yalla kora (N/A, Wed, 10 Dec 2025 12:00:00 -0800)
 
 
