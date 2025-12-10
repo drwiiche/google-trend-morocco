@@ -1,3 +1,10 @@
+### liverpool vs inter (N/A, Tue, 9 Dec 2025 14:10:00 -0800)
+
+- **Champions League LIVE: Atalanta vs Chelsea, Inter vs Liverpool & Tottenham vs Slavia Prague**: [Link](https://www.bbc.com/sport/football/live/cx2l4l55888t)
+- **Inter Milan 0-1 Liverpool - Dominik Szoboszlai's late penalty clinches victory for Reds**: [Link](https://www.bbc.com/sport/football/live/c0r9v8ke20yt)
+- **Follow Matchday 6 in the Champions League live here**: [Link](https://www.flashscore.com/news/soccer-champions-league-champions-league-live-liverpool-pick-up-huge-win-over-inter-barca-see-off-frankfurt/ImLVTSOG/)
+
+
 ### classement champions league (N/A, Tue, 9 Dec 2025 13:50:00 -0800)
 
 - **Ligue des Champions : Voici le programme de ce mardi**: [Link](https://fr.hespress.com/453222-ligue-des-champions-voici-le-programme-de-ce-mardi-3.html)
