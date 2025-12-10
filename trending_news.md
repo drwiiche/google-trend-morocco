@@ -1,3 +1,10 @@
+### دوري ابطال اوروبا (N/A, Wed, 10 Dec 2025 13:30:00 -0800)
+
+- **أرسنال بالعلامة الكاملة وسان جيرمان يكتفي بالتعادل وفوز يوفنتوس وأياكس وبنفيكا**: [Link](https://www.aljazeera.net/sport/2025/12/11/%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+- **لاعب آرسنال يغيب شهرين بسبب الإصابة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B4%D9%87%D8%B1%D9%8A%D9%86-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9/bltd876ea45692b224c)
+- **دوري أبطال أوروبا: إدراج جيزوس ضمن تشكيلة أرسنال**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251209-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A5%D8%AF%D8%B1%D8%A7%D8%AC-%D8%AC%D9%8A%D8%B2%D9%88%D8%B3-%D8%B6%D9%85%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84)
+
+
 ### sofascore (N/A, Wed, 10 Dec 2025 14:10:00 -0800)
 
 - **Most Opened Teams and Players on Sofascore 2025**: [Link](https://www.sofascore.com/news/sofascore-season-the-most-opened-players-teams-and-events-in-2025/)
