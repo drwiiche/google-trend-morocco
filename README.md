@@ -1,3 +1,41 @@
+### yalla kora (N/A, Wed, 10 Dec 2025 12:00:00 -0800)
+
+
+
+
+### syria live (N/A, Wed, 10 Dec 2025 12:00:00 -0800)
+
+- **One year after the fall of al-Assad, a reporter returns to Damascus**: [Link](https://www.aljazeera.com/features/2025/12/10/one-year-after-the-fall-of-al-assad-a-reporter-returns-to-damascus)
+- **Syrians Celebrate Anniversary of Bashar al-Assad’s Fall**: [Link](https://www.nytimes.com/2025/12/08/world/middleeast/syria-anniversary-assad-fall.html)
+- **Syria without Assad is lighter - but now there are new problems**: [Link](https://www.bbc.com/news/articles/cy7v53366ejo)
+
+
+### bein sport 1 (N/A, Wed, 10 Dec 2025 12:00:00 -0800)
+
+
+
+
+### سوريا لايف (N/A, Wed, 10 Dec 2025 12:00:00 -0800)
+
+- **احتفالات سوريا وفلسطين تخطف الأنظار بعد تأهلهما إلى ربع نهائي كأس العرب**: [Link](https://www.aljazeera.net/news/2025/12/8/%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D8%A7%D8%AA-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%88%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%AA%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D9%86%D8%B8%D8%A7%D8%B1)
+- **حملة تونسية- فلسطينية لـ"وأد الفتنة".. والرجوب يطالب بعدم تسييس الرياضة- (تدوينات)**: [Link](https://www.alquds.co.uk/%D8%AD%D9%85%D9%84%D8%A9-%D8%AA%D9%88%D9%86%D8%B3%D9%8A%D8%A9-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D8%A9-%D9%84%D9%80%D9%88%D8%A3%D8%AF-%D8%A7%D9%84%D9%81%D8%AA%D9%86%D8%A9-%D9%88%D8%A7/)
+- **خريبين: ارتداء قميص فلسطين شرف.. وهذا رأي الدباغ في التأهل التاريخي**: [Link](https://www.alaraby.co.uk/sport/%D8%AE%D8%B1%D9%8A%D8%A8%D9%8A%D9%86-%D8%A7%D8%B1%D8%AA%D8%AF%D8%A7%D8%A1-%D9%82%D9%85%D9%8A%D8%B5-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%B4%D8%B1%D9%81-%D9%88%D9%87%D8%B0%D8%A7-%D8%B1%D8%A3%D9%8A-%D8%A7%D9%84%D8%AF%D8%A8%D8%A7%D8%BA-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A)
+
+
+### le caftan marocain unesco (N/A, Wed, 10 Dec 2025 12:00:00 -0800)
+
+- **Le Caftan marocain inscrit au patrimoine culturel immatériel de l’UNESCO**: [Link](https://ledesk.ma/encontinu/le-caftan-marocain-inscrit-au-patrimoine-culturel-immateriel-de-lunesco/)
+- **Documents. Voici le contenu du dossier du caftan marocain déposé à l’UNESCO**: [Link](https://medias24.com/2025/12/09/documents-voici-le-contenu-du-dossier-du-caftan-marocain-depose-a-lunesco-1592081/)
+- **Inscription du Caftan au patrimoine de l’UNESCO: quand Alger se ridiculise à New Delhi**: [Link](https://fr.le360.ma/politique/inscription-du-caftan-au-patrimoine-de-lunesco-quand-alger-se-ridiculise-a-new-delhi_C2MNZ37PVVC3PKJUM2RJD2YJLM/)
+
+
+### match maroc syrie (N/A, Wed, 10 Dec 2025 11:50:00 -0800)
+
+- **Coupe arabe: le tableau des quarts de finale avec une potentielle demie Maroc-Algérie**: [Link](https://rmcsport.bfmtv.com/football/coupe-arabe-le-tableau-des-quarts-de-finale-avec-une-potentielle-demie-maroc-algerie_AV-202512100162.html)
+- **Coupe arabe. Le programme des quarts de finale avec le Maroc, l’Algérie, la Palestine…**: [Link](https://www.ouest-france.fr/sport/football/coupe-arabe/coupe-arabe-le-programme-des-quarts-de-finale-avec-le-maroc-lalgerie-la-palestine-01614112-d59b-11f0-b394-5c54c9d4355d)
+- **Fracture à la main pour Kharbin, son absence face au Maroc "très probable"**: [Link](http://m.elbotola.com/fr/article/2025-12-10-17-06-71.html)
+
+
 ### dortmund – bodø/glimt (N/A, Wed, 10 Dec 2025 11:30:00 -0800)
 
 - **Borussia Dortmund vs. FK Bodø/Glimt Champions League preview: Team news and predicted lineups**: [Link](https://bulinews.com/borussia-dortmund-bodo/glimt-champions-league-preview-team-news-and-predicted-lineups)
