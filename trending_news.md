@@ -1,3 +1,10 @@
+### unesco (N/A, Wed, 10 Dec 2025 04:10:00 -0800)
+
+- **UNESCO Officially Adds Moroccan Caftan to World Heritage List**: [Link](https://www.moroccoworldnews.com/2025/12/271307/unesco-officially-adds-moroccan-caftan-to-world-heritage-list/)
+- **UNESCO Committee pushes back against Algerian caftan maneuver**: [Link](https://en.yabiladi.com/articles/details/183028/unesco-committee-pushes-back-against.html)
+- **Morocco’s centuries-old Caftan nears UNESCO recognition**: [Link](https://northafricapost.com/93011-moroccos-centuries-old-caftan-nears-unesco-recognition.html)
+
+
 ### nicolas pépé (N/A, Wed, 10 Dec 2025 03:00:00 -0800)
 
 - **Fue campeón con Arsenal, juega en LaLiga y trató de frustrado a Cristiano Ronaldo: “Vegeta siempre hablaba ...**: [Link](https://bolavip.com/ar/europa/fue-campeon-con-arsenal-juega-en-laliga-y-trato-de-frustrado-a-cristiano-ronaldo-vegeta-siempre-hablaba-asi-de-goku)
