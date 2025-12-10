@@ -1,3 +1,10 @@
+### séisme japon tsunami (N/A, Tue, 9 Dec 2025 23:50:00 -0800)
+
+- **Les images du violent séisme et du tsunami qui ont frappé le Japon**: [Link](https://www.20minutes.fr/diaporama/diaporama-4190531-images-violent-seisme-tsunami-frappe-japon)
+- **Japon : au moins 30 blessés après un fort séisme et un tsunami**: [Link](https://medias24.com/agence-presse/japon-au-moins-30-blesses-apres-un-fort-seisme-et-un-tsunami/)
+- **Japon : au moins 30 blessés après un séisme de magnitude 7,6 au nord du pays**: [Link](https://lematin.ma/monde/japon-au-moins-30-blesses-apres-un-seisme-de-magnitude-76-au-nord/317986)
+
+
 ### فاس (N/A, Tue, 9 Dec 2025 23:10:00 -0800)
 
 - **حصيلة أولية: 19 قتيلاً في انهيار بنايتين من أربعة طوابق بمدينة فاس**: [Link](https://www.hespress.com/%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%A3%D9%88%D9%84%D9%8A%D8%A9-19-%D9%82%D8%AA%D9%8A%D9%84%D8%A7%D9%8B-%D9%81%D9%8A-%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D8%A8%D9%86%D8%A7%D9%8A%D8%AA%D9%8A%D9%86-1668781.html)
