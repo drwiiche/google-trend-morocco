@@ -1,3 +1,23 @@
+### al wahda vs al-nassr (N/A, Wed, 10 Dec 2025 08:30:00 -0800)
+
+- **Watch Ronaldo score and deliver his iconic 'Suuui' celebration in Abu Dhabi against Al Wahda**: [Link](https://gulfnews.com/sport/football/watch-ronaldo-score-and-deliver-his-iconic-suuui-celebration-in-abu-dhabi-against-al-wahda-1.500375677)
+- **You can see Cristiano Ronaldo play in Abu Dhabi tonight**: [Link](https://www.timeoutabudhabi.com/news/cristiano-ronaldo-al-nassr)
+- **Video: Cristiano Ronaldo scores Al Nassr’s first goal vs Wahda Abu Dhabi**: [Link](https://bolavip.com/en/soccer/video-cristiano-ronaldo-scores-al-nassrs-first-goal-vs-wahda-abu-dhabi)
+
+
+### نشرة إنذارية (N/A, Wed, 10 Dec 2025 08:30:00 -0800)
+
+- **منخفض جوي أطلسي جديد يعيد الأمطار إلى عدد من مناطق المغرب**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D8%A3%D8%B7%D9%84%D8%B3%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A5%D9%84%D9%89-%D8%B9-1668863.html)
+- **طقس الأربعاء: مرور سحب كثيفة مصحوبة بأمطار قد تكون رعدية – اليوم 24**: [Link](https://alyaoum24.com/1997639.html)
+- **نشرة إنذارية: زخات رعدية وتساقطات ثلجية بعدد من مناطق المملكة**: [Link](https://ar.le360.ma/societe/CSQWHYPRKREOTN2AKU2S6SBNKM/)
+
+
+### iphone 15 (N/A, Wed, 10 Dec 2025 06:20:00 -0800)
+
+- **iPhone 15 Plusよ、いきなり過去最安で二度見しちまったよ‥**: [Link](https://www.gizmodo.jp/2025/12/amazon-timesale-2025-1209-1.html)
+- **iPhone 15 Plusよ、いきなり過去最安で二度見しちまったよ‥ (2025年12月9日掲載)**: [Link](https://news.livedoor.com/topics/detail/30168095/)
+
+
 ### effondrement immeuble fes (N/A, Wed, 10 Dec 2025 04:30:00 -0800)
 
 - **Deux immeubles s’effondrent à Fès, au Maroc, au moins 22 personnes tuées**: [Link](https://www.lemonde.fr/afrique/article/2025/12/10/au-maroc-19-personnes-sont-mortes-dans-l-effondrement-de-deux-immeubles-a-fes-selon-un-bilan-provisoire_6656729_3212.html)
