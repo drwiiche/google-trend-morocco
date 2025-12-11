@@ -1,3 +1,31 @@
+### palestine (N/A, Thu, 11 Dec 2025 09:30:00 -0800)
+
+- **Boys basketball wins home opener**: [Link](https://newpalestineathletics.com/Article/108975)
+- **New Pal prepares for new beginnings after record-setting season**: [Link](https://www.greenfieldreporter.com/2025/12/06/new-pal-prepares-for-new-beginnings-after-record-setting-season/)
+- **Boys basketball preview: Wednesday vs. Chatard/Friday vs. Greenfield-C.**: [Link](https://newpalestineathletics.com/Article/108852)
+
+
+### دينامو زغرب ضد ريال بتيس (N/A, Thu, 11 Dec 2025 09:20:00 -0800)
+
+- **بيتيس يفاوض للإبقاء على الزلزولي**: [Link](https://www.hespress.com/%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D9%81%D8%A7%D9%88%D8%B6-%D9%84%D9%84%D8%A5%D8%A8%D9%82%D8%A7%D8%A1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-1668054.html)
+- **أمم أفريقيا: أزمة في البريميرليج.. وهذا النادي الأكثر تضررًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC--%D9%88%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%83%D8%AB%D8%B1-%D8%AA%D8%B6%D8%B1%D8%B1%D9%8B%D8%A7/bltc51faf1bfec6de2d)
+- **رئيس بيتيس يدافع عن أمرابط: "سفيان حاول اللعب في الديربي رغم الإصابة ولا مجال للتشكيك في التزامه"**: [Link](https://m.elbotola.com/article/2025-12-10-09-49-352.html)
+
+
+### jagiellonia białystok – rayo (N/A, Thu, 11 Dec 2025 09:10:00 -0800)
+
+- **Jagiellonia Białystok - Rayo Vallecano [RELACJA NA ŻYWO]**: [Link](https://przegladsportowy.onet.pl/pilka-nozna/liga-konferencji-europy/jagiellonia-bialystok-rayo-vallecano-relacja-na-zywo-jagiellonia-pomsci-lecha-live/f4jnvcs)
+- **Liga Konferencji: gdzie oglądać za darmo? Transmisje 5. kolejki**: [Link](https://www.meczyki.pl/newsy/pilka-nozna/liga-konferencji-gdzie-ogladac-za-darmo-transmisje-5-kolejki/288472)
+- **Miliony euro leżą na boisku i czekają na piłkarzy Widzewa**: [Link](https://expressilustrowany.pl/miliony-euro-leza-na-boisku-i-czekaja-na-pilkarzy-widzewa/ar/c2p2-28254673)
+
+
+### مباراة الجزائر (N/A, Thu, 11 Dec 2025 08:40:00 -0800)
+
+- **وقائع المؤتمر الصحفي للمنتخب الإماراتي قبل مواجهة الجزائر في ربع نهائي كأس العرب FIFA قطر 2025**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%88%D9%82%D8%A7%D8%A6%D8%B9-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%B5%D8%AD%D9%81%D9%8A-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-fifa-%D9%82%D8%B7%D8%B1-2025-2025-12-11)
+- **ما القنوات الناقلة لمباراة الجزائر والإمارات في ربع نهائي كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf0b2102212dfbb49)
+- **موعد مباراة الجزائر ضد الإمارات في ربع نهائي كأس العرب والتشكيلتان والقنوات المفتوحة الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/11/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9)
+
+
 ### stuttgart – m. tel-aviv (N/A, Thu, 11 Dec 2025 09:10:00 -0800)
 
 - **German soccer club calls for 'respectful atmosphere' ahead of Maccabi match**: [Link](https://www.haaretz.com/israel-news/sports/2025-12-06/ty-article/.premium/german-soccer-club-calls-for-respectful-atmosphere-ahead-of-maccabi-match/0000019a-f0b8-db35-afbf-fbfc94e40000)
