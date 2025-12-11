@@ -1,3 +1,24 @@
+### arabie saoudite vs palestine (N/A, Thu, 11 Dec 2025 11:00:00 -0800)
+
+- **DIRECT. Coupe arabe: la Palestine répond à l'Arabie saoudite, le quart de finale devient fou**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
+- **CA FIFA 2025 / Palestine - Arabie saoudite : un quart de finale explosif pour une place dans le dernier carré**: [Link](https://www.lopinion.ma/CA-FIFA-2025-Palestine-Arabie-saoudite-un-quart-de-finale-explosif-pour-une-place-dans-le-dernier-carre_a74850.html)
+- **Palestine – Arabie Saoudite en direct : où voir le match**: [Link](https://algeriezoom.com/palestine-arabie-saoudite-en-direct-ou-voir-le-match/)
+
+
+### europa league (N/A, Thu, 11 Dec 2025 10:50:00 -0800)
+
+- **Team News: Two Changes For Gers Side In Hungary**: [Link](https://www.rangers.co.uk/article/team-news-two-changes-for-gers-side-in-hungary/5D4FxvmXMHplF7mIwxcqhh)
+- **Best bets: Champions League tips for 12 December 2025**: [Link](https://www.sportinglife.com/football/news/best-bets-champions-league-tips-for-12-december-2025/229160)
+- **Ferencvaros, what to expect: Robbie Keane on Rohl, surprising stat, standout threat**: [Link](https://www.rangersreview.co.uk/features/25687514.ferencvaros-vs-rangers-robbie-keane-rohl-europa-league-surprise/)
+
+
+### match saudi arabia (N/A, Thu, 11 Dec 2025 10:50:00 -0800)
+
+- **Tebas eyes Saudi Arabia as LaLiga continues to push for overseas match**: [Link](https://www.reuters.com/sports/soccer/tebas-eyes-saudi-arabia-laliga-continues-push-overseas-match-2025-12-10/)
+- **La Liga chief eyes match in Saudi Arabia after Barcelona’s Miami game was cancelled amid protests**: [Link](https://www.the-independent.com/sport/football/la-liga-saudi-arabia-barcelona-miami-cancelled-b2882119.html)
+- **You can follow all quarterfinal games of the FIFA Arab Cup live on beIN SPORTS.**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-palestine-vs-saudi-arabia-in-the-fifa-arab-cup-on-bein-sports-2025-12-11)
+
+
 ### palestine foot (N/A, Thu, 11 Dec 2025 10:00:00 -0800)
 
 - **DIRECT. Coupe arabe: suivez le quart de finale entre la Palestine et l'Arabie saoudite en live**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
