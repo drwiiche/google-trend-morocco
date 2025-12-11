@@ -1,3 +1,10 @@
+### la bataille (N/A, Thu, 11 Dec 2025 13:40:00 -0800)
+
+- **Tennis : Aryna Sabalenka juge «injuste» la présence de femmes transgenres sur le circuit WTA**: [Link](https://www.lefigaro.fr/sports/tennis/tennis-sabalenka-juge-injuste-la-presence-de-femmes-transgenres-sur-le-circuit-wta-20251210)
+- **« Je suis fier de la personne que je suis devenue » : Kyrgios se confie avant son duel inédit contre Sabalenka**: [Link](https://fr.tennistemple.com/actu/je-suis-fier-de-la-personne-que-je-suis/s1XT)
+- **Tennis. « Ce n’est pas la même chose » qu’en 1973, Billie Jean King pas convaincue par l’affiche Kyrgios - Sabalenka**: [Link](https://www.msn.com/fr-fr/sport/tennis/tennis-ce-n-est-pas-la-m%C3%AAme-chose-qu-en-1973-billie-jean-king-pas-convaincue-par-l-affiche-kyrgios-sabalenka/ar-AA1SapVz)
+
+
 ### nicolas sarkozy (N/A, Thu, 11 Dec 2025 15:00:00 -0800)
 
 - **"Le journal d’un prisonnier" : Nicolas Sarkozy revient sur sa détention et l'appel téléphonique du Roi Mohammed VI**: [Link](https://medias24.com/2025/12/10/le-journal-dun-prisonnier-nicolas-sarkozy-revient-sur-sa-detention-et-lappel-telephonique-du-roi-mohammed-vi-1593065/)
