@@ -1,3 +1,8 @@
+### brann – fenerbahçe (N/A, Thu, 11 Dec 2025 11:40:00 -0800)
+
+
+
+
 ### bâle – aston villa (N/A, Thu, 11 Dec 2025 11:30:00 -0800)
 
 - **DIRECT. FC Bâle-Aston Villa (Ligue Europa 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2025-2026/fc-bale-aston-villa-live/685732)
