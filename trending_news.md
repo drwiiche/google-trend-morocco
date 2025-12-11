@@ -1,3 +1,10 @@
+### sports (N/A, Thu, 11 Dec 2025 07:10:00 -0800)
+
+- **Fired Moore in custody, suspect in alleged assault**: [Link](https://www.espn.com/college-football/story/_/id/47271571/ex-michigan-coach-moore-custody-county-jail-firing)
+- **Joel Klatt: Timing of Sherrone Moore’s firing ‘a bit of a panic situation’**: [Link](https://www.mlive.com/wolverines/2025/12/joel-klatt-timing-of-sherrone-moores-firing-a-bit-of-a-panic-situation.html)
+- **‘I was not ready for this news’: John U. Bacon reacts to ex-Michigan football HC Sherrone Moore’s firing**: [Link](https://www.clickondetroit.com/news/local/2025/12/11/i-was-not-ready-for-this-news-john-u-bacon-reacts-to-ex-michigan-football-hc-sherrone-moores-firing/)
+
+
 ### yallakora (N/A, Thu, 11 Dec 2025 07:00:00 -0800)
 
 - **استبعاد زياش وتواجد حكيمي.. الركراكي يعلن قائمة المغرب لأمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%88%D8%AA%D9%88%D8%A7%D8%AC%D8%AF-%D8%AD%D9%83%D9%8A%D9%85%D9%8A--%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltfd167a9302f1f5c3)
