@@ -1,3 +1,17 @@
+### bâle – aston villa (N/A, Thu, 11 Dec 2025 11:30:00 -0800)
+
+- **DIRECT. FC Bâle-Aston Villa (Ligue Europa 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2025-2026/fc-bale-aston-villa-live/685732)
+- **Dans le duel de Ligue Europa contre Aston Villa, le FCB a l'occasion jeudi de s'assurer le titre non officiel de champion du monde des clubs. Les Bâlois ne seraient toutefois pas le premier champion du monde suisse. 👉 Retrouvez l'article complet : https://www.**: [Link](https://www.facebook.com/story.php?story_fbid=1229867939198463&id=100065258062044)
+- **La dernière fois qu'Aston Villa a affronté Bâle, ils ont remporté une compétition européenne — avec le PSG et Troyes. Quoi ?**: [Link](https://tribuna.com/fr/blogs/la-derniere-fois-quaston-villa-a-affronte-bale-ils-ont-rempo/)
+
+
+### مباراة الجزائر اليوم (N/A, Thu, 11 Dec 2025 09:20:00 -0800)
+
+- **شاهد.. الجزائر تنتزع الصدارة وترافق العراق في ربع نهائي كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/9/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%A8%D9%83%D8%A3%D8%B3?update=8351932)
+- **المنتخب الجزائري يتأهل إلى ربع نهائي كأس العرب بعد فوزه على العراق "المنقوص عدديا" (2-0)**: [Link](https://m.elbotola.com/article/2025-12-09-19-03-768.html)
+- **إصابة مهند علي تربك حسابات العراق في كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D9%87%D9%86%D8%AF-%D8%B9%D9%84%D9%8A-%D8%AA%D8%B1%D8%A8%D9%83-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/bltcfd1386aa5890dfa)
+
+
 ### palestine – arabie saoudite (N/A, Thu, 11 Dec 2025 11:10:00 -0800)
 
 - **DIRECT. Coupe arabe: la Palestine et l'Arabie saoudite filent en prolongation en quart de finale**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
