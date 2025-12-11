@@ -1,3 +1,29 @@
+### yallakora (N/A, Thu, 11 Dec 2025 07:00:00 -0800)
+
+- **استبعاد زياش وتواجد حكيمي.. الركراكي يعلن قائمة المغرب لأمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%88%D8%AA%D9%88%D8%A7%D8%AC%D8%AF-%D8%AD%D9%83%D9%8A%D9%85%D9%8A--%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltfd167a9302f1f5c3)
+- **هذه قائمة "الأسود" في كأس إفريقيا**: [Link](https://www.hespress.com/%D9%87%D8%B0%D9%87-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-1669529.html)
+- **لائحة المنتخب الوطني في "كان 2025" .. بين الإصابات والتألق والمفاجآت**: [Link](https://www.medi1news.com/ar/article/375465.html)
+
+
+### match (N/A, Thu, 11 Dec 2025 06:50:00 -0800)
+
+- **John Cena's Final Match Official Fan Fest**: [Link](https://eventsdc.com/events/john-cenas-final-match-official-fan-fest)
+- **WWE and Snapchat launch John Cena's final match gear for Bitmoji**: [Link](https://www.wwe.com/article/wwe-and-snapchat-launch-john-cena-s-final-match-gear)
+- **Thank you, John Cena, for reigniting my love for WWE. We will miss you**: [Link](https://www.usatoday.com/story/sports/2025/12/11/john-cena-retirement-love-letter-wwe/87693232007/)
+
+
+### live match (N/A, Thu, 11 Dec 2025 06:50:00 -0800)
+
+- **Real Madrid players back Xabi Alonso amid whistles, club pressure**: [Link](https://www.espn.com/soccer/story/_/id/47270992/real-madrid-players-back-xabi-alonso-amid-whistles-club-pressure)
+- **Inside Real Madrid: Is Xabi Alonso still facing the sack?**: [Link](https://www.nytimes.com/athletic/6881259/2025/12/11/real-madrid-alonso-sack-news-analysis/)
+- **Rodrygo: “We're frustrated because we played really well in the first half”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/declaraciones-jugador-1-post-real-madrid-manchester-city-j6-ucl-10-12-2025)
+
+
+### bein sport 1 live (N/A, Thu, 11 Dec 2025 06:40:00 -0800)
+
+
+
+
 ### kooora (N/A, Thu, 11 Dec 2025 06:40:00 -0800)
 
 
