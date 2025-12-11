@@ -1,3 +1,10 @@
+### frmf (N/A, Thu, 11 Dec 2025 01:30:00 -0800)
+
+- **Jeux olympiques 2028 : Mohamed Ouahbi, nommé à la tête de l’équipe olympique marocaine**: [Link](https://mobile.telquel.ma/instant-t/2025/12/08/jeux-olympiques-2028-mohamed-ouahbi-nomme-a-la-tete-de-lequipe-olympique-marocaine_1964296/)
+- **Lekjaa nomme Wahbi à la tête de l'équipe olympique marocaine pour Los Angeles 2028**: [Link](https://m.elbotola.com/fr/article/2025-12-08-12-02-788.html)
+- **Mohamed Ouahbi, le champion du monde U20, promu sélectionneur olympique**: [Link](https://sport.le360.ma/football/lions-atlas/mohamed-ouahbi-le-champion-du-monde-u20-promu-selectionneur-olympique_M7OFER2XVFB6LLRQP3JZAKS7UY/)
+
+
 ### محمد صبحي (N/A, Wed, 10 Dec 2025 23:00:00 -0800)
 
 - **تدوينة للفنان محمد صبحي بعد فيديو متداول له في حالة انفعال**: [Link](https://arabic.cnn.com/entertainment/article/2025/12/10/a-post-by-mohamed-sobhi-after-a-video-of-him-in-an-emotional-state-went-viral)
