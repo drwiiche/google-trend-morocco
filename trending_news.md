@@ -1,3 +1,59 @@
+### saudi vs palestine (N/A, Thu, 11 Dec 2025 08:40:00 -0800)
+
+- **You can follow all quarterfinal games of the FIFA Arab Cup live on beIN SPORTS.**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-palestine-vs-saudi-arabia-in-the-fifa-arab-cup-on-bein-sports-2025-12-11)
+- **Arab Cup 2025 / Palestine - Saudi Arabia: head-to-head history**: [Link](https://foot-africa.com/en/news/arab-cup-2025-palestine-saudi-arabia-head-to-head-history-997760/)
+- **Arab Cup 2025 / Palestine – Saudi Arabia: probable line-ups**: [Link](https://ca.sports.yahoo.com/news/arab-cup-2025-palestine-saudi-112500622.html)
+
+
+### flashscore (N/A, Thu, 11 Dec 2025 08:40:00 -0800)
+
+- **Why Amanda Anisimova will win Australian Open 2026**: [Link](https://ausopen.com/articles/news/why-amanda-anisimova-will-win-australian-open-2026)
+- **Five WTA youngsters who could enjoy a breakthrough year in 2026**: [Link](https://www.flashscore.com/news/tennis-wta-singles-five-wta-youngsters-who-could-enjoy-a-breakthrough-year-in-2026/fNDYipz8/)
+- **Amanda Anisimova Tipped for Australian Open Breakout As WTA Veteran Makes a Bold Prediction**: [Link](https://www.essentiallysports.com/tennis-news-amanda-anisimova-tipped-for-australian-open-breakout-as-wta-veteran-makes-a-bold-prediction/)
+
+
+### algeria vs (N/A, Thu, 11 Dec 2025 08:40:00 -0800)
+
+- **FIFA Arab Cup 2025: What starting eleven will Algeria field against the UAE?**: [Link](https://sports.yahoo.com/articles/fifa-arab-cup-2025-starting-084500058.html)
+- **FIFA Arab Cup 2025: Where to watch the Algeria vs Emirates match live and free?**: [Link](https://foot-africa.com/en/news/fifa-arab-cup-2025-where-to-watch-the-algeria-vs-emirates-match-live-and-free-997514/)
+- **Arab Cup 2025 / Algeria will face Morocco if…**: [Link](https://foot-africa.com/en/news/arab-cup-2025-algeria-will-face-morocco-if-996407/)
+
+
+### match algerie (N/A, Thu, 11 Dec 2025 08:30:00 -0800)
+
+- **L'Algérie en quarts de finale de la Coupe Arabe après avoir dominé l'Irak réduit à dix (2-0)**: [Link](https://m.elbotola.com/fr/article/2025-12-09-19-03-868.html)
+- **Live Algérie - EAU Quarts de finale de Coupe Arabe 2025 Qatar 12/12**: [Link](https://www.footmercato.net/live/2018070444567201420-algerie-vs-emirats-arabes-unis)
+- **Sports - Entre prétendants**: [Link](https://www.lexpressiondz.com/sports/entre-pretendants-400749)
+
+
+### coupe d'arabe (N/A, Thu, 11 Dec 2025 08:30:00 -0800)
+
+- **Coupe Arabe de la FIFA (3ème journée): Composition du Maroc face à l’Arabie Saoudite**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D8%A7%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B3/)
+- **Tarik Sektioui : L'équipe s'est adaptée à toutes les circonstances et a réalisé l’essentiel**: [Link](https://fr.hespress.com/453188-tarik-sektioui-lequipe-sest-adaptee-a-toutes-les-circonstances-et-a-realise-lessentiel.html)
+- **Maroc-Arabie saoudite. Les clés du match (Coupe arabe 2025)**: [Link](https://medias24.com/2025/12/08/maroc-arabie-saoudite-les-cles-du-match-coupe-arabe-2025-1590961/)
+
+
+### الجزائر (N/A, Thu, 11 Dec 2025 08:30:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الجزائر والإمارات في ربع نهائي كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf0b2102212dfbb49)
+- **موعد مباراة الجزائر ضد الإمارات في ربع نهائي كأس العرب والتشكيلتان والقنوات المفتوحة الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/11/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9)
+- **وقائع المؤتمر الصحفي للمنتخب الإماراتي قبل مواجهة الجزائر في ربع نهائي كأس العرب FIFA قطر 2025**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%88%D9%82%D8%A7%D8%A6%D8%B9-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%B5%D8%AD%D9%81%D9%8A-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-fifa-%D9%82%D8%B7%D8%B1-2025-2025-12-11)
+
+
+### bet365 (N/A, Thu, 11 Dec 2025 08:30:00 -0800)
+
+- **bet365 Missouri bonus code NYPBET: bet $10, get $365 in bonus bets for College Football bowl games**: [Link](https://nypost.com/2025/12/11/betting/bet365-missouri-bonus-code-nypbet-bet-10-get-365-in-bonus-bets-for-college-football-bowls/)
+- **FanDuel Missouri Promo Code – Sportsbook Bonus & Info**: [Link](https://sailgp.com/us-betting-promos/fanduel-sportsbook/missouri)
+- **Bet365 bonus code SYRACUSE now unlocks $365 for NBA**: [Link](https://www.syracuse.com/betting/2025/12/bet365-bonus-code-syracuse-now-unlocks-365-for-nba.html)
+
+
+### radio mars (N/A, Thu, 11 Dec 2025 08:20:00 -0800)
+
+- **استبعاد زياش وتواجد حكيمي.. الركراكي يعلن قائمة المغرب لأمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%88%D8%AA%D9%88%D8%A7%D8%AC%D8%AF-%D8%AD%D9%83%D9%8A%D9%85%D9%8A--%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltfd167a9302f1f5c3)
+- **الركراكي يكشف قائمة المنتخب المغربي لكأس الأمم الإفريقية 2025**: [Link](https://www.hespress.com/%D9%87%D8%B0%D9%87-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-1669529.html)
+- **الركراكي يكشف عن لائحة "المنتخب المغربي" في "الكان"**: [Link](https://ar.lesiteinfo.com/sport/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-974256.html)
+
+
 ### sofascore (N/A, Thu, 11 Dec 2025 08:10:00 -0800)
 
 - **Serie A Fantasy: Gameweek 15 team reveals – Sofascore**: [Link](https://www.fantasyfootballscout.co.uk/2025/12/09/serie-a-fantasy-gameweek-15-team-reveals-sofascore)
