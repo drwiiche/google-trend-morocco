@@ -1,3 +1,10 @@
+### nicolas sarkozy (N/A, Thu, 11 Dec 2025 15:00:00 -0800)
+
+- **"Le journal d’un prisonnier" : Nicolas Sarkozy revient sur sa détention et l'appel téléphonique du Roi Mohammed VI**: [Link](https://medias24.com/2025/12/10/le-journal-dun-prisonnier-nicolas-sarkozy-revient-sur-sa-detention-et-lappel-telephonique-du-roi-mohammed-vi-1593065/)
+- **«Ta place est en prison !»: deux Femen tentent de perturber la séance de dédicaces du nouveau livre de Nicolas Sarkozy**: [Link](https://www.lefigaro.fr/flash-actu/ta-place-est-en-prison-deux-femen-tentent-de-perturber-la-seance-de-dedicaces-du-nouveau-livre-de-nicolas-sarkozy-20251210)
+- **« Ingratitude » et « médiocrité » : Ce passage du livre de Sarkozy indigne ces avocats**: [Link](https://www.huffingtonpost.fr/politique/article/ingratitude-et-mediocrite-nicolas-sarkozy-indigne-ces-avocats-avec-ce-passage-sur-thierry-herzog_258111.html)
+
+
 ### مباراة السعودية اليوم (N/A, Thu, 11 Dec 2025 11:30:00 -0800)
 
 - **المغرب يهزم السعودية ويرافقها لربع النهائي وعمان تودع كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/8/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D9%83%D8%A3%D8%B3)
