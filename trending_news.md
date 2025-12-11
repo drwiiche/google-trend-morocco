@@ -1,3 +1,17 @@
+### fifa arab cup (N/A, Thu, 11 Dec 2025 07:30:00 -0800)
+
+- **You can follow all quarterfinal games of the FIFA Arab Cup live on beIN SPORTS.**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-palestine-vs-saudi-arabia-in-the-fifa-arab-cup-on-bein-sports-2025-12-11)
+- **Arab Cup 2025 / Palestine - Saudi Arabia: head-to-head history**: [Link](https://foot-africa.com/en/news/arab-cup-2025-palestine-saudi-arabia-head-to-head-history-997760/)
+- **Arab Cup 2025 / Palestine – Saudi Arabia: probable line-ups**: [Link](https://ca.sports.yahoo.com/news/arab-cup-2025-palestine-saudi-112500622.html)
+
+
+### morocco (N/A, Thu, 11 Dec 2025 06:30:00 -0800)
+
+- **Six Moroccan cities to discover during the TotalEnergies CAF AFCON 2025**: [Link](https://www.cafonline.com/afcon2025/news/six-moroccan-cities-to-discover-during-the-totalenergies-caf-afcon-2025/)
+- **CAF and ONCF Sign Agreement to Facilitate Fan Movement During AFCON Morocco 2025**: [Link](https://m.elbotola.com/en/article/2025-12-10-14-29-17.html)
+- **Walid Regragui Announces Squad for AFCON 2025**: [Link](https://www.moroccoworldnews.com/2025/12/271496/walid-regragui-announces-squad-for-afcon-2025/)
+
+
 ### sports (N/A, Thu, 11 Dec 2025 07:10:00 -0800)
 
 - **Fired Moore in custody, suspect in alleged assault**: [Link](https://www.espn.com/college-football/story/_/id/47271571/ex-michigan-coach-moore-custody-county-jail-firing)
