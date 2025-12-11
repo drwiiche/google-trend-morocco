@@ -1,3 +1,24 @@
+### palestine – arabie saoudite (N/A, Thu, 11 Dec 2025 11:10:00 -0800)
+
+- **DIRECT. Coupe arabe: la Palestine et l'Arabie saoudite filent en prolongation en quart de finale**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
+- **CA FIFA 2025 / Palestine - Arabie saoudite : un quart de finale explosif pour une place dans le dernier carré**: [Link](https://www.lopinion.ma/CA-FIFA-2025-Palestine-Arabie-saoudite-un-quart-de-finale-explosif-pour-une-place-dans-le-dernier-carre_a74850.html)
+- **Palestine – Arabie Saoudite en direct : où voir le match**: [Link](https://algeriezoom.com/palestine-arabie-saoudite-en-direct-ou-voir-le-match/)
+
+
+### ligue europa (N/A, Thu, 11 Dec 2025 11:10:00 -0800)
+
+- **OL, nouveau problème identifié**: [Link](https://www.sports.fr/football/olympique-lyonnais/ol-nouveau-probleme-identifie-973625.html)
+- **Lyon-Go Ahead Eagles : à quelle heure et sur quelle chaîne suivre le match de Ligue Europa ?**: [Link](https://www.lequipe.fr/Football/Actualites/Lyon-go-ahead-eagles-a-quelle-heure-et-sur-quelle-chaine-suivre-le-match-de-ligue-europa/1615921)
+- **"C’est fantastique" : les Go Ahead Eagles vont "savourer le match" contre l’OL**: [Link](https://www.lyonfoot.com/article/11622/c-est-fantastique-les-go-ahead-eagles-vont-savourer-le-match-contre-l-ol)
+
+
+### saudi arabia (N/A, Thu, 11 Dec 2025 10:30:00 -0800)
+
+- **Mohamed Salah: What we’re hearing about his future – and what would be best for his brand? - The Athletic**: [Link](https://www.nytimes.com/athletic/6878776/2025/12/11/mohamed-salah-transfer-options/)
+- **If Liverpool replace Salah, they have to go big and sign one of these guys**: [Link](https://www.espn.com/soccer/story/_/id/47256926/if-liverpool-want-replace-salah-only-options-match-vinicius-raphinha-olise-rafael-leao)
+- **Mohamed Salah: Liverpool forward should leave for Saudi Pro League, says ex-Egypt and Spurs striker Mido**: [Link](https://www.skysports.com/football/news/11095/13482078/mohamed-salah-liverpool-forward-should-leave-for-saudi-pro-league-says-ex-egypt-and-spurs-striker-mido)
+
+
 ### arabie saoudite vs palestine (N/A, Thu, 11 Dec 2025 11:00:00 -0800)
 
 - **DIRECT. Coupe arabe: la Palestine répond à l'Arabie saoudite, le quart de finale devient fou**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
