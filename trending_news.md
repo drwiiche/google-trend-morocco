@@ -1,3 +1,24 @@
+### palestine foot (N/A, Thu, 11 Dec 2025 10:00:00 -0800)
+
+- **DIRECT. Coupe arabe: suivez le quart de finale entre la Palestine et l'Arabie saoudite en live**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
+- **Palestine – Arabie Saoudite en direct : où voir le match**: [Link](https://algeriezoom.com/palestine-arabie-saoudite-en-direct-ou-voir-le-match/)
+- **Coupe Arabe 2025 / Palestine - Arabie Saoudite : historique des confrontations**: [Link](https://foot-africa.com/actualites/coupe-arabe-2025-palestine-arabie-saoudite-historique-des-confrontations-997760/)
+
+
+### caftan (N/A, Thu, 11 Dec 2025 09:40:00 -0800)
+
+- **Le caftan marocain inscrit au Patrimoine culturel immatériel de l’Unesco, au grand dam de l’Algérie**: [Link](https://www.lemonde.fr/culture/article/2025/12/10/le-caftan-marocain-inscrit-au-patrimoine-culturel-immateriel-de-l-unesco-au-grand-dam-de-l-algerie_6656812_3246.html)
+- **«Appropriation culturelle» : l’Algérie horrifiée de l’inscription du caftan marocain au patrimoine immatériel de l'Unesco**: [Link](https://www.lefigaro.fr/actualite-france/appropriation-culturelle-l-algerie-horrifiee-de-l-inscription-du-caftan-marocain-au-patrimoine-immateriel-de-l-unesco-20251211)
+- **L’Inde salue l’inscription du Caftan marocain à l’UNESCO lors de la célébration de Diwali à Rabat**: [Link](https://fr.le360.ma/politique/linde-salue-linscription-du-caftan-marocain-a-lunesco-lors-de-la-celebration-de-diwali-a-rabat_EYTJHYYX3BHNTBFNZRZJX3FUP4/)
+
+
+### algerie vs emirats arabes unis (N/A, Thu, 11 Dec 2025 09:00:00 -0800)
+
+- **Live Algérie - EAU Quarts de finale de Coupe Arabe 2025 Qatar 12/12**: [Link](https://www.footmercato.net/live/2018070444567201420-algerie-vs-emirats-arabes-unis)
+- **Sports - Entre prétendants**: [Link](https://www.lexpressiondz.com/sports/entre-pretendants-400749)
+- **Coupe Arabe 2025 : Avec Benzia et Brahimi décisifs, l'Algérie l'emporte sur l'Irak**: [Link](https://www.beinsports.com/fr-fr/football/coupe-arabe/articles-video/coupe-arabe-2025-avec-benzia-et-brahimi-d%C3%A9cisifs-l-alg%C3%A9rie-l-emporte-sur-l-irak-2025-12-09?videopage=true)
+
+
 ### utrecht – nottm forest (N/A, Thu, 11 Dec 2025 10:00:00 -0800)
 
 - **Ryan Yates misses Nottingham Forest training ahead of Utrecht but two players are back**: [Link](https://www.nottinghamforest.news/2025/12/10/ryan-yates-misses-nottingham-forest-training-ahead-of-utrecht-but-two-players-are-back/)
