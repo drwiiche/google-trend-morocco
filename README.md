@@ -1,3 +1,17 @@
+### maroc syrie (N/A, Thu, 11 Dec 2025 02:10:00 -0800)
+
+- **Coupe arabe 2025. Maroc-Syrie. Les clés du match - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2025/12/11/coupe-arabe-2025-maroc-syrie-les-cles-du-match-1593439/)
+- **Coupe arabe: le tableau des quarts de finale avec une potentielle demie Maroc-Algérie**: [Link](https://rmcsport.bfmtv.com/football/coupe-arabe-le-tableau-des-quarts-de-finale-avec-une-potentielle-demie-maroc-algerie_AV-202512100162.html)
+- **Maroc-Syrie : déclarations de Tarik Tissoudali et Marouane Louadni avant le match**: [Link](https://lematin.ma/videos/maroc-syrie-declarations-de-tissoudali-et-louadni-avant-le-match/318358)
+
+
+### unesco caftan marocain (N/A, Thu, 11 Dec 2025 02:10:00 -0800)
+
+- **Le Caftan marocain : art, traditions et savoir-faire**: [Link](https://ich.unesco.org/fr/RL/le-caftan-marocain-art-traditions-et-savoir-faire-02077)
+- **L’Inde salue l’inscription du Caftan marocain à l’UNESCO lors de la célébration de Diwali à Rabat**: [Link](https://fr.le360.ma/politique/linde-salue-linscription-du-caftan-marocain-a-lunesco-lors-de-la-celebration-de-diwali-a-rabat_EYTJHYYX3BHNTBFNZRZJX3FUP4/)
+- **Documents. Voici le contenu du dossier du caftan marocain déposé à l’UNESCO**: [Link](https://medias24.com/2025/12/09/documents-voici-le-contenu-du-dossier-du-caftan-marocain-depose-a-lunesco-1592081/)
+
+
 ### frmf (N/A, Thu, 11 Dec 2025 01:30:00 -0800)
 
 - **Jeux olympiques 2028 : Mohamed Ouahbi, nommé à la tête de l’équipe olympique marocaine**: [Link](https://mobile.telquel.ma/instant-t/2025/12/08/jeux-olympiques-2028-mohamed-ouahbi-nomme-a-la-tete-de-lequipe-olympique-marocaine_1964296/)
