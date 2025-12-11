@@ -1,3 +1,31 @@
+### stuttgart – m. tel-aviv (N/A, Thu, 11 Dec 2025 09:10:00 -0800)
+
+- **German soccer club calls for 'respectful atmosphere' ahead of Maccabi match**: [Link](https://www.haaretz.com/israel-news/sports/2025-12-06/ty-article/.premium/german-soccer-club-calls-for-respectful-atmosphere-ahead-of-maccabi-match/0000019a-f0b8-db35-afbf-fbfc94e40000)
+- **Stuttgart vs. Maccabi Tel Aviv: UEL betting odds, prediction, pick**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/11/stuttgart-vs-maccabi-tel-aviv-europa-league-betting-odds-prediction-pick/87709042007/)
+- **“Going ahead without us”: VfB ultras boycott Europa League match**: [Link](https://sports.yahoo.com/articles/going-ahead-without-us-vfb-123700337.html)
+
+
+### نتائج مباريات اليوم (N/A, Thu, 11 Dec 2025 09:10:00 -0800)
+
+- **الرابحون والخاسرون من دور مجموعات كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/2025/12/10/%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%AD%D9%88%D9%86-%D9%88%D8%A7%D9%84%D8%AE%D8%A7%D8%B3%D8%B1%D9%88%D9%86-%D9%85%D9%86-%D8%AF%D9%88%D8%B1-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3)
+- **6 نجوم سطعوا في مرحلة المجموعات بكأس العرب**: [Link](https://www.alquds.co.uk/6-%D9%86%D8%AC%D9%88%D9%85-%D8%B3%D8%B7%D8%B9%D9%88%D8%A7-%D9%81%D9%8A-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9/)
+- **كأس العرب| البركاوي يعلن نفسه منافسًا شرسًا على الحذاء الذهبي**: [Link](https://www.radiomars.ma/%D8%B9%D9%8A%D9%88%D9%86-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%AA%D8%AA%D8%AC%D9%87-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D9%83%D8%A7%D9%88%D9%8A/)
+
+
+### dinamo zagreb – betis (N/A, Thu, 11 Dec 2025 09:00:00 -0800)
+
+- **Preview: Dinamo Zagreb vs Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/dinamo-zagreb/europa-league/preview/dinamo-zagreb-vs-betis-prediction-team-news-lineups_587483.html)
+- **Dinamo Zagreb faces Real Betis tonight in crucial Europa League clash, qualification on the line at Stadion Maksimir**: [Link](https://www.red94.net/news/95126-dinamo-zagreb-faces-real-betis-tonight-in-crucial-europa-league-clash-at-stadion/)
+- **Where to Watch Dinamo Zagreb vs Real Betis for Free? Live Stream & TV Channels**: [Link](https://www.sportsdunia.com/football-news/where-to-watch-dinamo-zagreb-vs-real-betis-free-live-stream-europa-league-11th-december-2025)
+
+
+### algeria (N/A, Thu, 11 Dec 2025 08:50:00 -0800)
+
+- **Algeria: a starting player doubtful for AFCON 2025**: [Link](https://ca.sports.yahoo.com/news/algeria-starting-player-doubtful-afcon-133000515.html)
+- **UNESCO Officially Adds Moroccan Caftan to World Heritage List**: [Link](https://www.moroccoworldnews.com/2025/12/271307/unesco-officially-adds-moroccan-caftan-to-world-heritage-list/)
+- **UNESCO Committee pushes back against Algerian caftan maneuver**: [Link](https://en.yabiladi.com/articles/details/183028/unesco-committee-pushes-back-against.html)
+
+
 ### saudi vs palestine (N/A, Thu, 11 Dec 2025 08:40:00 -0800)
 
 - **You can follow all quarterfinal games of the FIFA Arab Cup live on beIN SPORTS.**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-palestine-vs-saudi-arabia-in-the-fifa-arab-cup-on-bein-sports-2025-12-11)
