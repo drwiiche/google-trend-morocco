@@ -1,3 +1,64 @@
+### كورة (N/A, Thu, 11 Dec 2025 06:30:00 -0800)
+
+- **سيناريو التأهل المباشر بدوري أبطال أوروبا: برشلونة لا يحتاج للفوز فقط**: [Link](https://www.aljazeera.net/sport/2025/12/10/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **حسابات الفرق الإسبانية للتأهل في دوري أبطال أوروبا**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D9%84%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A/)
+- **الذكاء الاصطناعي يتوقع مركز برشلونة في دوري الابطال**: [Link](https://hihi2.com/2025/12/10/p3552604.html)
+
+
+### bein sport live (N/A, Thu, 11 Dec 2025 06:20:00 -0800)
+
+- **Athletic Club 0-0 Paris St-Germain - Holders held in goalless draw**: [Link](https://www.bbc.com/sport/football/live/cy07w1w5270t)
+- **'Complacency at San Mames guarantees defeat,' warns Luis Enrique**: [Link](https://www.besoccer.com/new/andquot-complacency-at-san-mames-guarantees-defeat-andquot-warns-luis-enrique-1385165)
+- **Paris reaction: Khvicha Kvaratskhelia on draw in Bilbao**: [Link](https://www.uefa.com/uefachampionsleague/video/02a0-1f687e4ebfc9-b56d6167fa1a-1000--paris-reaction-khvicha-kvaratskhelia-on-draw-in-bilbao/)
+
+
+### المنتخب المغربي (N/A, Thu, 11 Dec 2025 06:20:00 -0800)
+
+- **السيد وليد الركراكي يعلن عن لائحة اللاعبين المشاركين في كأس إفريقيا للأمم بالمغرب**: [Link](https://frmf.ma/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D9%84%D8%A7/)
+- **هذه قائمة "الأسود" في كأس إفريقيا**: [Link](https://www.hespress.com/%D9%87%D8%B0%D9%87-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-1669529.html)
+- **استبعاد زياش وتواجد حكيمي.. الركراكي يعلن قائمة المغرب لأمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%88%D8%AA%D9%88%D8%A7%D8%AC%D8%AF-%D8%AD%D9%83%D9%8A%D9%85%D9%8A--%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltfd167a9302f1f5c3)
+
+
+### elbotola (N/A, Thu, 11 Dec 2025 06:20:00 -0800)
+
+
+
+
+### morocco match (N/A, Thu, 11 Dec 2025 06:20:00 -0800)
+
+- **Watch Live Morocco vs Saudi Arabia in the FIFA Arab Cup Qatar 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-morocco-vs-saudi-arabia-in-the-fifa-arab-cup-qatar-2025-on-bein-sports-2025-12-08)
+- **Mofid: 'Saudi Arabia Match Was Difficult, We Aim to Progress Step by Step'**: [Link](https://m.elbotola.com/en/article/2025-12-09-10-43-257.html)
+- **Herve Renard Hails Morocco After Arab Cup Match**: [Link](https://www.moroccoworldnews.com/2025/12/271205/herve-renard-hails-morocco-after-arab-cup-match/)
+
+
+### bein sport (N/A, Thu, 11 Dec 2025 06:10:00 -0800)
+
+- **الانتصارات مستمرة.. العلامة الكاملة تقرّب آرسنال من التأهل في دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%88%D8%B2-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%B3%D8%A7%D8%AF%D8%B3-%D8%AA%D9%88%D8%A7%D9%84%D9%8A%D8%A7-%D9%84%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D9%83%D9%84%D9%88%D8%A8-%D8%A8%D8%B1%D9%88%D8%AC/blt89847a6829accfda)
+- **آرسنال يحلّق في الصدارة بفوز على كلوب بروج**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%AD%D9%84-%D9%82-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A8%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%83%D9%84%D9%88%D8%A8-%D8%A8%D8%B1%D9%88%D8%AC-2025-12-10)
+- **أرسنال بالعلامة الكاملة وسان جيرمان يكتفي بالتعادل وفوز يوفنتوس وأياكس وبنفيكا**: [Link](https://www.aljazeera.net/sport/2025/12/11/%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+
+
+### مباريات اليوم (N/A, Thu, 11 Dec 2025 06:10:00 -0800)
+
+- **ترتيب دوري أبطال أوروبا.. نقطة واحدة تكفي أرسنال للتأهل إلى ثمن النهائي وبرشلونة يقترب من "طوب 8"**: [Link](https://m.elbotola.com/article/2025-12-10-21-52-759.html)
+- **جدول مباريات اليوم الأربعاء 10 ديسمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-10-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltc8b00a2822ed8c2c)
+- **دوري أبطال أوروبا: مواجهات مهمة في انتظار الكبار**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%85%D9%87%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1-%D8%A7%D9%84%D9%83%D8%A8%D8%A7%D8%B1)
+
+
+### syria vs morocco (N/A, Thu, 11 Dec 2025 06:00:00 -0800)
+
+- **Morocco A' Team Concludes Preparations for Syria Quarter-Final Clash**: [Link](https://m.elbotola.com/en/article/2025-12-10-15-35-704.html)
+- **Morocco aims for Arab Cup semi-finals against Syria**: [Link](https://en.yabiladi.com/articles/details/183172/morocco-aims-arab-semi-finals-against.html)
+- **Arab Cup 2025 Quarter-Finals confirmed: Full lineup, Match schedule and Kickoff times**: [Link](https://onefootball.com/de/news/arab-cup-2025-quarter-finals-confirmed-full-lineup-match-schedule-and-kickoff-times-42073274)
+
+
+### equipe maroc (N/A, Thu, 11 Dec 2025 05:50:00 -0800)
+
+- **CAN 2025: Walid Regragui dévoile la liste finale des 28 Lions de l’Atlas**: [Link](https://sport.le360.ma/football/can/can-2025-walid-regragui-devoile-la-liste-finale-des-28-lions-de-latlas_K6UZ6JLUZZEFFDSS5TFIKBUG2Q/)
+- **La CAF et l’ONCF s’associent pour faciliter les déplacements des supporters lors de la TotalEnergies CAF CAN Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/la-caf-et-l-oncf-s-associent-pour-faciliter-les-deplacements-des-supporters-lors-de-la-totalenergies-caf-can-maroc-2025/)
+- **Se déplacer pour la CAN 2025 : bien choisir son mode de transport**: [Link](https://medias24.com/2025/12/11/se-deplacer-pour-la-can-2025-bien-choisir-son-mode-de-transport-1590859/)
+
+
 ### مباراة المغرب اليوم (N/A, Thu, 11 Dec 2025 06:00:00 -0800)
 
 - **بث مباشر: شاهد مباراة المغرب وسوريا في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/bltfb05b6b788b6f533)
