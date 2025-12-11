@@ -1,3 +1,17 @@
+### can maroc (N/A, Thu, 11 Dec 2025 04:50:00 -0800)
+
+- **Les langues du Maroc : ce que les supporters doivent savoir avant la TotalEnergies CAF Coupe d’Afrique des Nations CAF Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/les-langues-du-maroc-ce-que-les-supporters-doivent-savoir-avant-la-totalenergies-caf-coupe-d-afrique-des-nations-caf-maroc-2025/)
+- **CAN 2025 : un programme de formation pour renforcer les compétences des professionnels du tourisme**: [Link](https://medias24.com/2025/12/11/can-2025-un-programme-de-formation-pour-renforcer-les-competences-des-professionnels-du-tourisme-1593797/)
+- **Ces officiels africains qui feront respecter les règles à la CAN**: [Link](https://www.leconomiste.com/flash-infos/ces-officiels-africains-qui-feront-respecter-les-regles-a-la-can/)
+
+
+### المغرب سوريا (N/A, Thu, 11 Dec 2025 04:20:00 -0800)
+
+- **حماس المغاربة يرتفع في كأس العرب**: [Link](https://www.hespress.com/%D8%AD%D9%85%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1669226.html)
+- **رئيس اللجنة المنظمة لكأس العرب يزور بعثة المنتخب المغربي قبل ساعات من مواجهة سوريا في ربع النهائي**: [Link](https://m.elbotola.com/article/2025-12-11-05-52-533.html)
+- **بث مباشر: شاهد مباراة المغرب وسوريا في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/bltfb05b6b788b6f533)
+
+
 ### maroc vs syria (N/A, Thu, 11 Dec 2025 03:00:00 -0800)
 
 - **FIFA Arab Cup 2025: What starting eleven for Morocco against Syria?**: [Link](https://sports.yahoo.com/articles/fifa-arab-cup-2025-starting-082500726.html)
