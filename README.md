@@ -1,3 +1,50 @@
+### kooora (N/A, Thu, 11 Dec 2025 06:40:00 -0800)
+
+
+
+
+### maroc (N/A, Thu, 11 Dec 2025 06:40:00 -0800)
+
+- **CAN 2025 : Walid Regragui dévoile sa liste - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2025/12/11/can-2025-walid-regragui-devoile-sa-liste-1593991/)
+- **La CAF et l’ONCF s’associent pour faciliter les déplacements des supporters lors de la TotalEnergies CAF CAN Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/la-caf-et-l-oncf-s-associent-pour-faciliter-les-deplacements-des-supporters-lors-de-la-totalenergies-caf-can-maroc-2025/)
+- **CAN 2025: Walid Regragui dévoile la liste finale des 28 Lions de l’Atlas**: [Link](https://sport.le360.ma/football/can/can-2025-walid-regragui-devoile-la-liste-finale-des-28-lions-de-latlas_K6UZ6JLUZZEFFDSS5TFIKBUG2Q/)
+
+
+### match live (N/A, Thu, 11 Dec 2025 06:40:00 -0800)
+
+- **Real Madrid players back Xabi Alonso amid whistles, club pressure**: [Link](https://www.espn.com/soccer/story/_/id/47270992/real-madrid-players-back-xabi-alonso-amid-whistles-club-pressure)
+- **Erling Haaland reveals how Kylian Mbappe gave Manchester City a ‘psychological boost’ ahead of Real Madrid win**: [Link](https://sports.yahoo.com/articles/erling-haaland-reveals-kylian-mbappe-140000530.html)
+- **Real Madrid show fight but another setback leaves Xabi Alonso’s future on knife-edge | Sid Lowe**: [Link](https://www.theguardian.com/football/2025/dec/10/real-madrid-fight-setback-xabi-alonso-future-champions-league)
+
+
+### مباريات اليوم مباشر (N/A, Thu, 11 Dec 2025 06:40:00 -0800)
+
+- **كأس العرب 2025.. جدول مباريات ومواعيد الدور ربع النهائي**: [Link](https://www.skynewsarabia.com/sport/1839123-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%88%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A)
+- **الرابحون والخاسرون من دور مجموعات كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/2025/12/10/%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%AD%D9%88%D9%86-%D9%88%D8%A7%D9%84%D8%AE%D8%A7%D8%B3%D8%B1%D9%88%D9%86-%D9%85%D9%86-%D8%AF%D9%88%D8%B1-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3)
+- **تقرير: أغنى 10% يسيطرون على ثلاثة أرباع الثروة العالمية… وعدم المساواة يزداد حدة**: [Link](https://ar.telquel.ma/%D8%A7%D9%83%D8%AA%D9%85%D9%84-%D8%B9%D9%82%D8%AF-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%87%D9%84%D9%8A%D9%86-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A/)
+
+
+### yalla kora (N/A, Thu, 11 Dec 2025 06:30:00 -0800)
+
+- **نزل بديلا.. ماذا قدم عمر مرموش في فوز مانشستر سيتي على ريال مدريد؟**: [Link](https://www.eremnews.com/sports/j2huli1)
+- **الريال ضد مان سيتى.. جوارديولا يدفع بعمر مرموش بدلا من هالاند فى الدقيقة 70**: [Link](https://www.youm7.com/story/2025/12/10/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%B6%D8%AF-%D9%85%D8%A7%D9%86-%D8%B3%D9%8A%D8%AA%D9%89-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A8%D8%B9%D9%85%D8%B1-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D8%A8%D8%AF%D9%84%D8%A7-%D9%85%D9%86/7229817)
+- **كل الطرق تؤدى إلى «روما»! هل يعيد مرموش قصة صلاح مع البلوز؟!**: [Link](https://gate.ahram.org.eg/daily/NewsPrint/1001396.aspx)
+
+
+### bein sports live (N/A, Thu, 11 Dec 2025 06:30:00 -0800)
+
+- **Morocco A' Team Concludes Preparations for Syria Quarter-Final Clash**: [Link](https://m.elbotola.com/en/article/2025-12-10-15-35-704.html)
+- **Morocco aims for Arab Cup semi-finals against Syria**: [Link](https://en.yabiladi.com/articles/details/183172/morocco-aims-arab-semi-finals-against.html)
+- **Arab Cup 2025 Quarter-Finals confirmed: Full lineup, Match schedule and Kickoff times**: [Link](https://onefootball.com/de/news/arab-cup-2025-quarter-finals-confirmed-full-lineup-match-schedule-and-kickoff-times-42073274)
+
+
+### bein sports (N/A, Thu, 11 Dec 2025 06:30:00 -0800)
+
+- **تردد قناة beIN Sports المفتوحة على نايل سات**: [Link](https://www.5lejnews.com/channels/307041/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9/)
+- **مشاهدة دور ربع النهائي لـ كأس العرب مجانا بث مباشر على نايل سات وعرب سات**: [Link](https://aboutmsr.com/%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%AF%D9%88%D8%B1-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%84%D9%80-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%85%D8%AC%D8%A7/)
+- **شاهد مباريات كأس العرب 2025 مجانًا.. تردد بين سبورت المفتوحة وطريقة ضبطه بسهولة**: [Link](https://www.almashhad.news/457167)
+
+
 ### كورة (N/A, Thu, 11 Dec 2025 06:30:00 -0800)
 
 - **سيناريو التأهل المباشر بدوري أبطال أوروبا: برشلونة لا يحتاج للفوز فقط**: [Link](https://www.aljazeera.net/sport/2025/12/10/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
