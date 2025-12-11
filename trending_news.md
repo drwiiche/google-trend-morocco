@@ -1,3 +1,17 @@
+### lyon – go ahead eagles (N/A, Thu, 11 Dec 2025 12:10:00 -0800)
+
+- **Lyon predicted XI v Go Ahead Eagles: Rémy Descamps and Martin Satriano to start**: [Link](https://sports.yahoo.com/articles/lyon-predicted-xi-v-ahead-093000630.html)
+- **Olympique de Lyon vs Go Ahead Eagles LIVE Score Updates in Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/10/1244226-lyon-vs-go-ahead-eagles-live-score-europa-league.html)
+- **Lyon Faces Injury Challenges Ahead of Europa League Clash with Go Ahead Eagles**: [Link](https://news.ssbcrack.com/lyon-faces-injury-challenges-ahead-of-europa-league-clash-with-go-ahead-eagles/)
+
+
+### سلتا فيغو ضد بولونيا (N/A, Thu, 11 Dec 2025 12:00:00 -0800)
+
+- **تشكيلة روما الرسمية امام سلتيك في الدوري الاوروبي**: [Link](https://hihi2.com/2025/12/11/p3554156.html)
+- **أستون فيلا أمام بازل: تغييرات متوقعة بعد انتصار مثير على آرسنال**: [Link](https://www.arrajol.com/content/391967/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%A7%D8%B2%D9%84-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%85%D8%AB%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84)
+- **يلا شوت.. بث مباشر لمباراة سيلتا فيغو أمام بولونيا في الجولة السادسة من الدوري الأوروبي**: [Link](https://www.almashhad.news/457308)
+
+
 ### saudi (N/A, Thu, 11 Dec 2025 12:00:00 -0800)
 
 - **A Single Mother’s Fight to Free Her Daughter From Saudi Arabia**: [Link](https://www.nytimes.com/2025/12/11/world/africa/saudi-arabia-unmarried-mothers.html)
