@@ -1,3 +1,10 @@
+### classement champions league (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
+
+- **Ligue des Champions : Voici le programme de ce mercredi**: [Link](https://fr.hespress.com/453393-ligue-des-champions-voici-le-programme-de-ce-mercredi-3.html)
+- **LdC : le classement complet après la 6e journée**: [Link](https://www.footmercato.net/a5142320059861456125-ldc-le-classement-complet-apres-la-6e-journee)
+- **Ligue des champions: le Barça et le Bayern renversants, Liverpool se rassure, l’OM se relance**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-le-barca-et-le-bayern-renversants-liverpool-se-rassure-lom-se-relance_RDCMUUPCQFBMXGZWF6ZYZTQEKE/)
+
+
 ### دوري ابطال اوروبا (N/A, Wed, 10 Dec 2025 13:30:00 -0800)
 
 - **أرسنال بالعلامة الكاملة وسان جيرمان يكتفي بالتعادل وفوز يوفنتوس وأياكس وبنفيكا**: [Link](https://www.aljazeera.net/sport/2025/12/11/%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
