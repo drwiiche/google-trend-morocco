@@ -1,3 +1,21 @@
+### sofascore (N/A, Thu, 11 Dec 2025 08:10:00 -0800)
+
+- **Serie A Fantasy: Gameweek 15 team reveals – Sofascore**: [Link](https://www.fantasyfootballscout.co.uk/2025/12/09/serie-a-fantasy-gameweek-15-team-reveals-sofascore)
+- **Sofascore Celebrates 15 Years: From a School Project in Klinča Sela to a Global Sports Platform**: [Link](https://www.media-marketing.com/en/news/sofascore-celebrates-15-years-from-a-school-project-in-klinca-sela-to-a-global-sports-platform/)
+
+
+### un si grand soleil (N/A, Thu, 11 Dec 2025 08:00:00 -0800)
+
+
+
+
+### yalla chot (N/A, Thu, 11 Dec 2025 07:00:00 -0800)
+
+- **تعادل سلبي وهدف ملغي في الشوط الأول بين المصري والاتحاد بكأس عاصمة مصر**: [Link](https://www.youm7.com/story/2025/12/11/%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B3%D9%84%D8%A8%D9%8A-%D9%88%D9%87%D8%AF%D9%81-%D9%85%D9%84%D8%BA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%88%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/7230803)
+- **الاتحاد السكندري يواجه المصري البورسعيدي في كأس عاصمة مصر**: [Link](https://m.akhbarelyom.com/news/newdetails/4739628/1/%D9%83%D8%A3%D8%B3-%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D9%85%D8%B5%D8%B1)
+- **صدام مبكر بين الاتحاد السكندري والمصري في كأس عاصمة مصر**: [Link](https://elcaptain.dostor.org/223261)
+
+
 ### fifa arab cup (N/A, Thu, 11 Dec 2025 07:30:00 -0800)
 
 - **You can follow all quarterfinal games of the FIFA Arab Cup live on beIN SPORTS.**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-palestine-vs-saudi-arabia-in-the-fifa-arab-cup-on-bein-sports-2025-12-11)
