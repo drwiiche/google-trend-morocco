@@ -1,3 +1,17 @@
+### goud (N/A, Thu, 11 Dec 2025 00:20:00 -0800)
+
+- **Brasschaats goudsmid Stefanie (39) erkend als ambachtsvrouw: “Ik hersmelt oude juwelen met emotionele waarde tot moderne creaties”**: [Link](https://www.hln.be/brasschaat/brasschaats-goudsmid-stefanie-39-erkend-als-ambachtsvrouw-ik-hersmelt-oude-juwelen-met-emotionele-waarde-tot-moderne-creaties~aaa69b90/)
+- **Goudsmid Stefanie Condes krijgt officieel ambachtslabel: “Klanten zijn zeker dat het goud niet uit conflictgebieden komt”**: [Link](https://www.nieuwsblad.be/regio/antwerpen/regio-antwerpen/brasschaat/goudsmid-stefanie-condes-krijgt-officieel-ambachtslabel-klanten-zijn-zeker-dat-het-goud-niet-uit-conflictgebieden-komt/111232165.html)
+- **Zilverprijs stijgt naar recordhoogte door verwachte rentedaling in VS**: [Link](https://www.nu.nl/economie/6378884/zilverprijs-stijgt-naar-recordhoogte-door-verwachte-rentedaling-in-vs.html)
+
+
+### hamza igamane (N/A, Wed, 10 Dec 2025 23:00:00 -0800)
+
+- **Lille Coach on Ighaman's Injury: AFCON Participation Decision to be Coordinated**: [Link](https://m.elbotola.com/en/article/2025-12-10-17-49-466.html)
+- **Hamza Igamane very doubtful for Morocco**: [Link](https://ca.sports.yahoo.com/news/hamza-igamane-very-doubtful-morocco-164500512.html)
+- **Genesio cautious about Hamza Igamane’s injury: “A decision will be made for the AFCON”**: [Link](https://mountakhab.net/en/genesio-cautious-about-hamza-igamanes-injury-a-decision-will-be-made-for-the-afcon/)
+
+
 ### هسبريس (N/A, Wed, 10 Dec 2025 22:50:00 -0800)
 
 - **"فاجعة فاس" تحيي المطالبة بمحاسبة صارمة وإجراءات وقائية عاجلة**: [Link](https://www.hespress.com/%D9%81%D8%A7%D8%AC%D8%B9%D8%A9-%D9%81%D8%A7%D8%B3-%D8%AA%D8%AD%D9%8A%D9%8A-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D9%84%D8%A8%D8%A9-%D8%A8%D9%85%D8%AD%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B5%D8%A7%D8%B1%D9%85-1669188.html)
