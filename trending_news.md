@@ -1,3 +1,10 @@
+### maroc vs syria (N/A, Thu, 11 Dec 2025 03:00:00 -0800)
+
+- **FIFA Arab Cup 2025: What starting eleven for Morocco against Syria?**: [Link](https://sports.yahoo.com/articles/fifa-arab-cup-2025-starting-082500726.html)
+- **Proto Victory Formula 146th Round Closing Soon**: [Link](https://www.chosun.com/english/sports-en/2025/12/11/GICA5MWIERC4VGWISHHQMO66Q4/)
+- **Korea Sports Leisure Co., Ltd., a trustee of Sports Toto, a sports promotion voting ticket issued by..**: [Link](https://www.mk.co.kr/en/sports/11489548)
+
+
 ### maroc syrie (N/A, Thu, 11 Dec 2025 02:10:00 -0800)
 
 - **Coupe arabe 2025. Maroc-Syrie. Les clés du match - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2025/12/11/coupe-arabe-2025-maroc-syrie-les-cles-du-match-1593439/)
