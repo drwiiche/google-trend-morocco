@@ -1,3 +1,10 @@
+### مباراة السعودية اليوم (N/A, Thu, 11 Dec 2025 11:30:00 -0800)
+
+- **المغرب يهزم السعودية ويرافقها لربع النهائي وعمان تودع كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/8/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D9%83%D8%A3%D8%B3)
+- **البركاوي عن احتفاله أمام السعودية: لم أقصد الإساءة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A8%D8%B1%D9%83%D8%A7%D9%88%D9%8A-%D8%B9%D9%86-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%84%D9%85-%D8%A7%D9%94%D9%82%D8%B5%D8%AF-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A7%D8%A1%D8%A9/blt34f21167fae2bd94)
+- **السكتيوي بعد مواجهة السعودية: "أنا راضٍ عن أداء اللاعبين وسعيد بما قدموه"**: [Link](https://m.elbotola.com/article/693727bc7e730878382f00c9/)
+
+
 ### lyon – go ahead eagles (N/A, Thu, 11 Dec 2025 12:10:00 -0800)
 
 - **Lyon predicted XI v Go Ahead Eagles: Rémy Descamps and Martin Satriano to start**: [Link](https://sports.yahoo.com/articles/lyon-predicted-xi-v-ahead-093000630.html)
