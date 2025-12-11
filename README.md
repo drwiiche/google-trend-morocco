@@ -1,3 +1,17 @@
+### مباراة المغرب اليوم (N/A, Thu, 11 Dec 2025 06:00:00 -0800)
+
+- **بث مباشر: شاهد مباراة المغرب وسوريا في كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/bltfb05b6b788b6f533)
+- **تشكيلة المنتخب المغربي أمام سوريا.. حضور أساسي للكرتي وطنان وتيسودالي يقود الهجوم رفقة البركاوي وزحزوح**: [Link](https://m.elbotola.com/article/2025-12-11-12-52-694.html)
+- **حماس المغاربة يرتفع في كأس العرب**: [Link](https://www.hespress.com/%D8%AD%D9%85%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1669226.html)
+
+
+### maroc foot (N/A, Thu, 11 Dec 2025 06:00:00 -0800)
+
+- **Live! Morocco vs Syria in the FIFA Arab Cup on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-morocco-vs-syria-in-the-fifa-arab-cup-on-bein-sports-2025-12-10)
+- **Proto Victory Formula 146th Round Closing Soon**: [Link](https://www.chosun.com/english/sports-en/2025/12/11/GICA5MWIERC4VGWISHHQMO66Q4/)
+- **Road to the Arab Cup Semi Finals Begins**: [Link](https://www.newsofbahrain.com/sports/123240.html)
+
+
 ### can maroc (N/A, Thu, 11 Dec 2025 04:50:00 -0800)
 
 - **Les langues du Maroc : ce que les supporters doivent savoir avant la TotalEnergies CAF Coupe d’Afrique des Nations CAF Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/les-langues-du-maroc-ce-que-les-supporters-doivent-savoir-avant-la-totalenergies-caf-coupe-d-afrique-des-nations-caf-maroc-2025/)
