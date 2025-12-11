@@ -1,3 +1,10 @@
+### utrecht – nottm forest (N/A, Thu, 11 Dec 2025 10:00:00 -0800)
+
+- **Ryan Yates misses Nottingham Forest training ahead of Utrecht but two players are back**: [Link](https://www.nottinghamforest.news/2025/12/10/ryan-yates-misses-nottingham-forest-training-ahead-of-utrecht-but-two-players-are-back/)
+- **GALLERY | REDS IN THE NETHERLANDS 🇳🇱**: [Link](https://www.nottinghamforest.co.uk/news/2025/december/11/gallery---reds-in-the-netherlands-----/)
+- **BetVictor: Get £40 in free bets for Utrecht vs Forest**: [Link](https://talksport.com/betting/3808803/betvictor-40-free-bets-utrecht-vs-forest/)
+
+
 ### palestine (N/A, Thu, 11 Dec 2025 09:30:00 -0800)
 
 - **Boys basketball wins home opener**: [Link](https://newpalestineathletics.com/Article/108975)
