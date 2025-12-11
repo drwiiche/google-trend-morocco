@@ -1,3 +1,17 @@
+### محمد صبحي (N/A, Wed, 10 Dec 2025 23:00:00 -0800)
+
+- **تدوينة للفنان محمد صبحي بعد فيديو متداول له في حالة انفعال**: [Link](https://arabic.cnn.com/entertainment/article/2025/12/10/a-post-by-mohamed-sobhi-after-a-video-of-him-in-an-emotional-state-went-viral)
+- **فنان مصري شهير يثير الجدل بفيديو مع سائقه**: [Link](https://www.tuniscope.com/ar/article/419468/arabe/star/sobhi-315218)
+- **مسرحية «شنب شرقي منقرض» تفوز بجائزة أفضل عرض متكامل في مهرجان آفاق مسرحية العربي**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=10122025&id=bcef5b91-5b30-4282-9941-d8ea547aa8ef)
+
+
+### sothema (N/A, Wed, 10 Dec 2025 22:30:00 -0800)
+
+- **Sothema obtient le feu vert pour son augmentation de capital de 630 MDH**: [Link](https://medias24.com/2025/12/10/sothema-obtient-le-feu-vert-pour-son-augmentation-de-capital-de-630-mdh-1592835/)
+- **Augmentation de capital de Sothema : Le closing prévu le 17 décembre**: [Link](https://www.leconomiste.com/flash-infos/augmentation-de-capital-de-sothema-le-closing-prevu-le-17-decembre/)
+- **Sothema : Augmentation de capital de 630 MDH pour financer l’acquisition de Soludia**: [Link](https://www.lavieeco.com/argent/sothema-augmentation-de-capital-de-630-mdh-pour-financer-lacquisition-de-soludia/)
+
+
 ### goud (N/A, Thu, 11 Dec 2025 00:20:00 -0800)
 
 - **Brasschaats goudsmid Stefanie (39) erkend als ambachtsvrouw: “Ik hersmelt oude juwelen met emotionele waarde tot moderne creaties”**: [Link](https://www.hln.be/brasschaat/brasschaats-goudsmid-stefanie-39-erkend-als-ambachtsvrouw-ik-hersmelt-oude-juwelen-met-emotionele-waarde-tot-moderne-creaties~aaa69b90/)
