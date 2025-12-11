@@ -1,3 +1,10 @@
+### carburant (N/A, Wed, 10 Dec 2025 21:20:00 -0800)
+
+- **Courcelles-lès-Montbéliard. Plus de carburant à la pompe sur l’aérodrome du Pays de Montbéliard**: [Link](https://www.estrepublicain.fr/transport/2025/12/11/plus-de-carburant-a-la-pompe-sur-l-aerodrome-du-pays-de-montbeliard)
+- **Les gendarmes de la Mayenne interceptent 750 kilos de bonbonnes de protoxyde d'azote au péage de La Gravelle**: [Link](https://www.francebleu.fr/infos/faits-divers-justice/les-gendarmes-de-la-mayenne-interceptent-750-kilos-de-bonbonnes-de-protoxyde-d-azote-au-peage-de-la-gravelle-7129310)
+- **Amiens prend un arrêté pour interdire le protoxyde d’azote**: [Link](https://www.evasionfm.com/amiens-prend-un-arrete-pour-interdire-le-protoxyde-d-azote)
+
+
 ### ترتيب دوري أبطال أوروبا 2025 (N/A, Wed, 10 Dec 2025 14:00:00 -0800)
 
 - **برشلونة ينتصر على ضيفه آينتراخت فرانكفورت**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%B6%D9%8A%D9%81%D9%87-%D8%A2%D9%8A%D9%86%D8%AA%D8%B1%D8%A7%D8%AE%D8%AA-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%81%D9%88%D8%B1%D8%AA-2025-12-09)
