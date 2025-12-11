@@ -1,3 +1,31 @@
+### saudi (N/A, Thu, 11 Dec 2025 12:00:00 -0800)
+
+- **A Single Mother’s Fight to Free Her Daughter From Saudi Arabia**: [Link](https://www.nytimes.com/2025/12/11/world/africa/saudi-arabia-unmarried-mothers.html)
+- **'All I want is my baby,' Kenyan mother’s agonising fight to bring daughter home from Saudi Arabia**: [Link](https://nation.africa/kenya/counties/nakuru/-all-i-want-is-my-baby-kenyan-mother-s-agonising-fight-to-bring-daughter-home-from-saudi-arabia-5294204)
+- **Kenyan embassy in Riyadh moves to document children amid stranded mothers in Saudi Arabia**: [Link](https://www.msn.com/en-us/news/world/kenyan-embassy-in-riyadh-moves-to-document-children-amid-stranded-mothers-in-saudi-arabia/ar-AA1S5mqv)
+
+
+### الطقس غدًا (N/A, Thu, 11 Dec 2025 11:50:00 -0800)
+
+- **استعدوا لـ أمطار رعدية.. تحذير من حالة الطقس غدًا: «أحكموا غلق النوافذ»**: [Link](https://www.almasryalyoum.com/news/details/4147145)
+- **إنذار جوي: أمطار غزيرة مع برق ورعد تهدد محافظات رئيسية اليوم**: [Link](https://sports-leb.com/296829/%D8%A5%D9%86%D8%B0%D8%A7%D8%B1-%D8%AC%D9%88%D9%8A-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D8%B9-%D8%A8%D8%B1%D9%82-%D9%88%D8%B1%D8%B9%D8%AF-%D8%AA%D9%87%D8%AF%D8%AF/)
+- **تحذير عاجل من الأرصاد الجوية "القيادة بحذر أثناء الأمطار لتجنب الحوادث على الطرق المبتلة"**: [Link](https://www.algomhor.com/327472)
+
+
+### celtic glasgow – roma (N/A, Thu, 11 Dec 2025 11:50:00 -0800)
+
+- **Celtic starting XI to face AS Roma at Paradise**: [Link](https://www.celticfc.com/news/2025/december/11/celtic-starting-xi-to-face-as-roma-at-paradise/)
+- **Nancy delivers Kelechi Iheanacho boost ahead of Roma challenge**: [Link](https://thecelticstar.com/nancy-delivers-kelechi-iheanacho-boost-ahead-of-roma-challenge/)
+- **Europa League line-ups: Celtic vs. Roma**: [Link](https://football-italia.net/celtic-vs-roma-europa-league-line-ups/)
+
+
+### فلسطين ضد السعودية (N/A, Thu, 11 Dec 2025 11:00:00 -0800)
+
+- **مباشر.. مباراة فلسطين ضد السعودية (1-1) بربع نهائي كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/11/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%A8%D8%B1%D8%A8%D8%B9)
+- **بث مباشر: شاهد مباراة المنتخب السعودي وفلسطين في ربع نهائي كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%88%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025/blt3814c5619a728e2f)
+- **مدرب فلسطين: "كأس العرب هو نافذة بالنسبة لنا للتعبير عن قضيتنا ونحن سعداء بما حققناه حتى الآن"**: [Link](https://m.elbotola.com/article/2025-12-10-13-05-195.html)
+
+
 ### brann – fenerbahçe (N/A, Thu, 11 Dec 2025 11:40:00 -0800)
 
 
