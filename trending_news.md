@@ -1,3 +1,17 @@
+### عموتة (N/A, Fri, 12 Dec 2025 06:50:00 -0800)
+
+- **عموتة يكشف سبب الرحيل عن الوداد**: [Link](https://www.hespress.com/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B9%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1669076.html)
+- **عموتة: "عانيت من تعامل غير احترافي مع المنتخب الأردني وقررت الرحيل لعدم شعوري بالراحة"**: [Link](https://m.elbotola.com/article/2025-12-10-14-14-97.html)
+- **البدري رداً على حسين عموتة: تصريحاتك كشفت ما بداخلك**: [Link](https://watananews.com/498946/)
+
+
+### jordan vs (N/A, Fri, 12 Dec 2025 05:30:00 -0800)
+
+- **Jordan's 23XI antitrust suit pushed dinosaurs out and NASCAR into the future**: [Link](https://www.espn.com/racing/nascar/story/_/id/47279899/michael-jordan-denny-hamlin-23xi-antitrust-suit-pushed-dinosaurs-nascar-future)
+- **What’s in the lawsuit settlement?**: [Link](https://www.jayski.com/2025/12/12/whats-in-the-lawsuit-settlement/)
+- **Joint statement from NASCAR, 23XI Racing and Front Row Motorsports**: [Link](https://www.nascar.com/news-media/2025/12/11/nascar-lawsuit-settlement-23xi-front-row/)
+
+
 ### algerie vs uae (N/A, Fri, 12 Dec 2025 03:20:00 -0800)
 
 - **Arab Cup: Algeria vs. UAE—How & Where to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271642/arab-cup-algeria-vs-uae-how-where-to-watch/)
