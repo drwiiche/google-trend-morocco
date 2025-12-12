@@ -1,3 +1,10 @@
+### jordan vs iraq (N/A, Fri, 12 Dec 2025 05:10:00 -0800)
+
+- **Jordan vs Iraq LIVE Score Updates in 2025 FIFA Arab Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/12/1244382-jordan-vs-iraq-live-score-arab-cup.html)
+- **Iraq coach praises fight in Algeria loss, shifts focus to quarterfinal**: [Link](https://en.964media.com/43166/)
+- **Arab Cup 2025 / Jordan - Iraq: history of their encounters**: [Link](https://ca.sports.yahoo.com/news/arab-cup-2025-jordan-iraq-120000524.html)
+
+
 ### algerie foot (N/A, Fri, 12 Dec 2025 05:30:00 -0800)
 
 - **Coupe Arabe 2025 : Le Maroc A’ évite le traquenard de la Syrie et file en demies**: [Link](https://lematin.ma/sports/coupe-arabe-le-maroc-a-evite-le-traquenard-de-la-syrie-et-file-en-demies/318582)
