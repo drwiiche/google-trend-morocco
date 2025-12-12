@@ -1,3 +1,10 @@
+### الأردن ضد العراق (N/A, Fri, 12 Dec 2025 08:30:00 -0800)
+
+- **شاهد.. الأردن يهزم العراق ويبلغ نصف نهائي كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/12/jordan-vs-iraq-1)
+- **بالفيديو: أبو ليلى يكشف لكووورة.. هل أُصيب يزن النعيمات بالرباط الصليبي؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%94%D8%A8%D9%88-%D9%84%D9%8A%D9%84%D9%89-%D9%8A%D9%83%D8%B4%D9%81-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9--%D9%87%D9%84-%D8%A7%D9%8F%D9%94%D8%B5%D9%8A%D8%A8-%D9%8A%D8%B2%D9%86-%D8%A7%D9%84%D9%86%D8%B9%D9%8A%D9%85%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%A7%D9%84%D8%B5%D9%84%D9%8A%D8%A8%D9%8A/blta55dd9ac098dd027)
+- **السلامي يوصل الأردن نصف النهائي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D9%8A%D9%88%D8%B5%D9%84-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-1670133.html)
+
+
 ### match d'algérie coupe d'arabe (N/A, Fri, 12 Dec 2025 09:20:00 -0800)
 
 - **Coupe Arabe 2025 : Le Maroc A’ évite le traquenard de la Syrie et file en demies**: [Link](https://lematin.ma/sports/coupe-arabe-le-maroc-a-evite-le-traquenard-de-la-syrie-et-file-en-demies/318582)
