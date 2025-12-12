@@ -1,3 +1,17 @@
+### الاردن ضد العراق (N/A, Fri, 12 Dec 2025 07:20:00 -0800)
+
+- **مباشر.. مباراة الأردن ضد العراق في ربع نهائي كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/12/jordan-vs-iraq-1)
+- **بالفيديو.. يزن النعيمات يغادر مباراة الأردن والعراق باكياً**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%8A%D8%B2%D9%86-%D8%A7%D9%84%D9%86%D8%B9%D9%8A%D9%85%D8%A7%D8%AA-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86-%D9%88%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%A8%D8%A7%D9%83%D9%8A%D8%A7%D9%8B/blt1977737725455616)
+- **مباراة الأردن والعراق فى كأس العرب.. الموعد والقنوات الناقلة**: [Link](https://www.almasryalyoum.com/news/details/4148762)
+
+
+### algeria (N/A, Fri, 12 Dec 2025 07:10:00 -0800)
+
+- **Algeria: a starting player doubtful for AFCON 2025**: [Link](https://ca.sports.yahoo.com/news/algeria-starting-player-doubtful-afcon-133000515.html)
+- **Moroccan Caftan Inscribed on UNESCO Intangible Cultural Heritage List**: [Link](https://www.maroc.ma/en/news/moroccan-caftan-inscribed-unesco-intangible-cultural-heritage-list)
+- **From martial dance to Argan magic and caftan: Morocco’s UNESCO all-stars**: [Link](https://en.yabiladi.com/articles/details/183274/from-martial-dance-argan-magic.html)
+
+
 ### عموتة (N/A, Fri, 12 Dec 2025 06:50:00 -0800)
 
 - **عموتة يكشف سبب الرحيل عن الوداد**: [Link](https://www.hespress.com/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B9%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1669076.html)
