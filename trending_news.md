@@ -1,3 +1,10 @@
+### iphone 18 (N/A, Thu, 11 Dec 2025 17:40:00 -0800)
+
+- **Apple Studio Display 2 leak reveals ProMotion, HDR, A19 chip upgrades**: [Link](https://www.macworld.com/article/3007295/apple-studio-display-2-leak-reveals-promotion-hdr-a19-chip-upgrades.html)
+- **Apple AirTag 2: Four New Features Found in iOS 26 Code**: [Link](https://www.macrumors.com/2025/12/11/ios-26-airtag-2-features/)
+- **Rumor Replay: AirTag 2, iPhone 18 upgrade, Studio Display 2**: [Link](https://9to5mac.com/2025/12/11/rumor-replay-airtag-2-iphone-18-upgrade-studio-display-2/)
+
+
 ### météo demain (N/A, Thu, 11 Dec 2025 11:50:00 -0800)
 
 - **Météo : poursuite d'un temps doux en France ! Le froid polaire peut-il rapidement revenir ? Que montrent nos cartes ?**: [Link](https://www.tameteo.com/actualites/previsions/meteo-poursuite-d-un-temps-doux-en-france-le-froid-polaire-peut-il-rapidement-revenir-que-montrent-nos-cartes-hiver-decembre.html)
