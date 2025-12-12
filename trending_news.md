@@ -1,3 +1,10 @@
+### algeria vs uae (N/A, Fri, 12 Dec 2025 04:40:00 -0800)
+
+- **Arab Cup: Algeria vs. UAE—How & Where to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271642/arab-cup-algeria-vs-uae-how-where-to-watch/)
+- **FIFA Arab Cup 2025: What starting eleven will Algeria field against the UAE?**: [Link](https://sports.yahoo.com/articles/fifa-arab-cup-2025-starting-084500058.html)
+- **FIFA Arab Cup 2025: Where to watch the Algeria vs Emirates match live and free?**: [Link](https://foot-africa.com/en/news/fifa-arab-cup-2025-where-to-watch-the-algeria-vs-emirates-match-live-and-free-997514/)
+
+
 ### um6p (N/A, Thu, 11 Dec 2025 15:30:00 -0800)
 
 - **L’UM6P inaugure « StartGate Rabat », hub d’accompagnement des startups**: [Link](https://lematin.ma/economie/um6p-inaugure-startgate-rabat-pour-les-startups/318634)
