@@ -1,3 +1,17 @@
+### sports (N/A, Fri, 12 Dec 2025 12:30:00 -0800)
+
+- **How Seattle became a mecca for professional women’s sports**: [Link](https://www.seattletimes.com/sports/how-seattle-became-a-mecca-for-professional-womens-sports/)
+- **Big 12 football grades: Evaluating the performance of all 16 teams in 2025 season**: [Link](https://www.cbssports.com/college-football/news/big-12-college-football-grades-analysis-2025-season/)
+- **ClutchPoints’ 2025 Final Big 12 Football Power Rankings**: [Link](https://sports.yahoo.com/articles/clutchpoints-2025-final-big-12-234410144.html)
+
+
+### match (N/A, Fri, 12 Dec 2025 12:30:00 -0800)
+
+- **John Cena will battle in his final match against Gunther**: [Link](https://www.wwe.com/shows/snme/saturday-nights-main-event-december-2025/john-cena-vs-gunther)
+- **John Cena to wrestle for last time. How to watch Main Event**: [Link](https://www.freep.com/story/entertainment/television/2025/12/12/john-cena-last-match-stream-peacock-main-event/87736596007/)
+- **Predictions for John Cena vs. Gunther and WWE Saturday Night's Main Event Match Card**: [Link](https://bleacherreport.com/articles/25322951-predictions-john-cena-vs-gunther-and-wwe-saturday-nights-main-event-match-card)
+
+
 ### كاس العرب (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
 
 - **بالفيديو.. السلامي باكياً: فوز الأردن بلا طعم بسبب النعيمات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%A8%D8%A7%D9%83%D9%8A%D9%8B%D8%A7-%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86-%D8%A8%D9%84%D8%A7-%D8%B7%D8%B9%D9%85-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%8A%D8%B2%D9%86-%D8%A7%D9%84%D9%86%D8%B9%D9%8A%D9%85%D8%A7%D8%AA/blt500706ff9752a8d6)
