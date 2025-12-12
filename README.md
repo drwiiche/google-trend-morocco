@@ -1,3 +1,24 @@
+### météo (N/A, Thu, 11 Dec 2025 22:10:00 -0800)
+
+- **Météo : Matante Rosina prévoit un vendredi maussade**: [Link](https://imazpress.com/meteo/meteo-30)
+- **Un ciel dégagé et quelques nuages ce vendredi dans les Alpes-Maritimes, voici la météo du jour**: [Link](https://www.nicematin.com/meteo/un-ciel-degage-et-quelques-nuages-ce-vendredi-dans-les-alpes-maritimes-voici-la-meteo-du-jour-10660616)
+- **La météo pour ce vendredi 12 décembre 2025**: [Link](https://www.bfmtv.com/meteo/video-la-meteo-pour-ce-vendredi-12-decembre-2025_VN-202512110636.html)
+
+
+### الطقس (N/A, Thu, 11 Dec 2025 22:10:00 -0800)
+
+- **طقس عاصف يخيّم على دول عربية والضباب يعطل مطار بغداد**: [Link](https://www.aljazeera.net/news/2025/12/11/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%81-%D9%8A%D8%AE%D9%8A%D9%85-%D8%B9%D9%84%D9%89-%D8%AF%D9%88%D9%84-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9)
+- **استئناف الرحلات الجوية في المطارات العراقية**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=11122025&id=2a0d4127-2fea-4953-8aa9-c9bce7fe56cb)
+- **إعادة فتح الأجواء في مطاري بغداد والنجف الأشرف الدوليين**: [Link](https://dijlah.tv/News/591468)
+
+
+### weather (N/A, Thu, 11 Dec 2025 22:00:00 -0800)
+
+- **Weather: Dry, fine and sunny weekend for New Zealand**: [Link](https://www.rnz.co.nz/news/national/581688/weather-dry-fine-and-sunny-weekend-for-new-zealand)
+- **Sunny weekend sizzler before heavy rain and wind move in next week**: [Link](https://www.nzherald.co.nz/nz/weather-sunny-and-warm-weekend-before-heavy-rain-and-wind-next-week/TMEQE2LK2VERJOERTW6A2CCG5M/)
+- **Warm temps ‘swept away’ for cooler and windier conditions**: [Link](https://www.stuff.co.nz/nz-news/360913223/warm-temps-swept-away-cooler-and-windier-conditions)
+
+
 ### holmarcom bmci (N/A, Thu, 11 Dec 2025 20:30:00 -0800)
 
 - **Holmarcom en négociation pour le rachat de la BMCI**: [Link](https://private-admin.medias24.com/2025/12/11/holmarcom-en-negociation-pour-la-reprise-de-la-bmci-1593769/)
