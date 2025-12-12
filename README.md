@@ -1,3 +1,45 @@
+### كاس العرب (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
+
+- **بالفيديو.. السلامي باكياً: فوز الأردن بلا طعم بسبب النعيمات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%A8%D8%A7%D9%83%D9%8A%D9%8B%D8%A7-%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86-%D8%A8%D9%84%D8%A7-%D8%B7%D8%B9%D9%85-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%8A%D8%B2%D9%86-%D8%A7%D9%84%D9%86%D8%B9%D9%8A%D9%85%D8%A7%D8%AA/blt500706ff9752a8d6)
+- **شاهد.. الأردن يهزم العراق ويبلغ نصف نهائي كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/12/jordan-vs-iraq-1)
+- **قنوات الكأس الرياضية - الأخبار - المنتخب الأردني يتأهل لنصف نهائي كأس العرب FIFA قطر 2025 بعد الفوز على نظيره العراقي**: [Link](https://www.alkass.net/news_details?news_id=178525)
+
+
+### مباراة المغرب القادمة (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
+
+- **بالفيديو: من يفضل المغرب في نصف نهائي العرب؟ أزارو يرد على سؤال كووورة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B2%D8%A7%D8%B1%D9%88-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D9%84%D8%A7-%D9%85%D9%86%D8%A7%D9%81%D8%B3-%D9%85%D9%81%D8%B6%D9%84-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blta67d10461aa4688c)
+- **السكتيوي: "شكرا للرجال على النّفْس"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D8%B4%D9%83%D8%B1%D8%A7-%D9%84%D9%84%D8%B1%D8%AC%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D9%91%D9%81%D9%92%D8%B3-1669662.html)
+- **كأس العرب "فيفا" 2025: المغرب يضمن مقعده في المربع الذهبي**: [Link](https://www.cafonline.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%81%D9%8A%D9%81%D8%A7-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B6%D9%85%D9%86-%D9%85%D9%82%D8%B9%D8%AF%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A/)
+
+
+### fifa arab cup games (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
+
+- **Morocco A' Team Concludes Preparations for Syria Quarter-Final Clash**: [Link](https://m.elbotola.com/en/article/2025-12-10-15-35-704.html)
+- **Live! Morocco vs Syria in the FIFA Arab Cup on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-morocco-vs-syria-in-the-fifa-arab-cup-on-bein-sports-2025-12-10)
+- **Arab Cup: Morocco A’ in the Semi-Finals**: [Link](https://mountakhab.net/en/arab-cup-morocco-a-in-the-semi-finals/)
+
+
+### score live (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
+
+- **Middle Creek @ Watauga Football Game Info**: [Link](https://www.maxpreps.com/games/12-12-2025/football-25/middle-creek-vs-watauga.htm?c=qTcjdpMK2ECXyOAroA9QDw)
+- **Roster Notes: Middle Creek Mustangs, 2025 6A East champions**: [Link](https://www.highschoolot.com/story/roster-notes-middle-creek-mustangs-2025-6a-east-champions/22283095/)
+- **Middle Creek (NC) vs. Watauga (NC): Live updates, score of North Carolina NCHSAA Class 6A championship game**: [Link](https://ca.sports.yahoo.com/news/middle-creek-nc-vs-watauga-194018810.html)
+
+
+### يزن النعيمات (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
+
+- **بالفيديو: رسميا.. إصابة يزن النعيمات بالرباط الصليبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%8A%D8%B2%D9%86-%D8%A7%D9%84%D9%86%D8%B9%D9%8A%D9%85%D8%A7%D8%AA-%D8%A8%D9%82%D8%B7%D8%B9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%A7%D9%84%D8%B5%D9%84%D9%8A%D8%A8%D9%8A/bltf914afc5343ce6a0)
+- **سلامي سعيد بتأهل المنتخب الأردني**: [Link](https://www.hespress.com/%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%B3%D8%B9%D9%8A%D8%AF-%D8%A8%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-1670232.html)
+- **جمال السلامي مدرفا الدموع :"كتبنا سطرا جديدا في التاريخ وإصابة يازن أبكتني"**: [Link](https://barlamanesport.com/%D8%AC%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D9%85%D8%AF%D8%B1%D9%81%D8%A7-%D8%A7%D9%84%D8%AF%D9%85%D9%88%D8%B9-%D9%83%D8%AA%D8%A8%D9%86%D8%A7-%D8%B3%D8%B7%D8%B1-%D8%AC/)
+
+
+### bet365 (N/A, Fri, 12 Dec 2025 12:10:00 -0800)
+
+- **Fanatics Sportsbook Missouri Promos Boost NFL Week 15 Action**: [Link](https://www.ingame.com/fanatics-sportsbook-missouri-promos-boost-nfl-week-15-action/)
+- **BetMGM Bonus Code TOPACTION: $1,500 Promo for NBA, Any Sport**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/betmgm-bonus-code-topaction-supplies-1500-first-bet-promo-timberwolves-warriors-nba-any-game)
+- **BetMGM Missouri Bonus Code ROTOSPORTS: $1,500 in Bonus Bets Back if You Lose (12/12)**: [Link](https://www.rotowire.com/news/betmgm-missouri-bonus-code-rotosports-1500-in-bonus-bets-if-you-lose-1212-100530)
+
+
 ### الطقس غدًا (N/A, Fri, 12 Dec 2025 12:00:00 -0800)
 
 - **«الزموا أماكنكم».. تحذير شديد بشأن حالة الطقس غدًا: أمطار رعدية تضرب البلاد**: [Link](https://www.almasryalyoum.com/news/details/4144856)
