@@ -1,3 +1,10 @@
+### um6p (N/A, Thu, 11 Dec 2025 15:30:00 -0800)
+
+- **L’UM6P inaugure « StartGate Rabat », hub d’accompagnement des startups**: [Link](https://lematin.ma/economie/um6p-inaugure-startgate-rabat-pour-les-startups/318634)
+- **StartGate Rabat renforce l’innovation entrepreneuriale au Maroc**: [Link](https://industries.ma/startgate-rabat-renforce-linnovation-entrepreneuriale-au-maroc/)
+- **Rabat: Inauguration de "StartGate Rabat", un nouveau hub pour accompagner les startups**: [Link](https://www.mapexpress.ma/actualite/economie-et-finance/rabat-inauguration-startgate-rabat-nouveau-hub-accompagner-les-startups/)
+
+
 ### game awards 2025 (N/A, Thu, 11 Dec 2025 20:00:00 -0800)
 
 - **The Game Awards 2025: All The Winners**: [Link](https://www.kakuchopurei.com/2025/12/the-game-awards-2025-all-the-winners/)
