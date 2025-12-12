@@ -1,3 +1,10 @@
+### holmarcom (N/A, Thu, 11 Dec 2025 23:30:00 -0800)
+
+- **Rachat de BMCI: Holmarcom confirme l’engagement de négociations avec BNP Paribas**: [Link](https://fr.le360.ma/economie/rachat-de-bmci-holmarcom-confirme-lengagement-de-negociations-avec-bnp-paribas_3NM3I6EW3BBWVBEMANV6KMLSRY/)
+- **Holmarcom confirme des discussions exclusives avec BNP Paribas autour du capital de la BMCI**: [Link](https://www.lesiteinfo.com/economie/662041-holmarcom-confirme-des-discussions-exclusives-avec-bnp-paribas-autour-du-capital-de-la-bmci.html)
+- **Holmarcom en négociation pour le rachat de la BMCI**: [Link](https://private-admin.medias24.com/2025/12/11/holmarcom-en-negociation-pour-la-reprise-de-la-bmci-1593769/)
+
+
 ### météo (N/A, Thu, 11 Dec 2025 22:10:00 -0800)
 
 - **Météo : Matante Rosina prévoit un vendredi maussade**: [Link](https://imazpress.com/meteo/meteo-30)
