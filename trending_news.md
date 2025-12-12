@@ -1,3 +1,10 @@
+### jordanie (N/A, Fri, 12 Dec 2025 07:30:00 -0800)
+
+- **Live Jordanie - Irak (0-0) Quarts de finale de Coupe Arabe 2025 Qatar 12/12**: [Link](https://www.footmercato.net/live/5823172159554725990-jordanie-vs-irak)
+- **Sellami : « Le sérieux commence maintenant, nous espérons poursuivre sur notre lancée »**: [Link](https://m.elbotola.com/fr/article/2025-12-09-17-52-46.html)
+- **Football: Toulan pointe un manque de coopération après l’élimination de l’Egypte à la Coupe arabe - Sports - Sports**: [Link](https://french.ahram.org.eg/News/75812.aspx)
+
+
 ### الاردن ضد العراق (N/A, Fri, 12 Dec 2025 07:20:00 -0800)
 
 - **مباشر.. مباراة الأردن ضد العراق في ربع نهائي كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/12/jordan-vs-iraq-1)
