@@ -1,3 +1,10 @@
+### météo demain (N/A, Thu, 11 Dec 2025 11:50:00 -0800)
+
+- **Météo : poursuite d'un temps doux en France ! Le froid polaire peut-il rapidement revenir ? Que montrent nos cartes ?**: [Link](https://www.tameteo.com/actualites/previsions/meteo-poursuite-d-un-temps-doux-en-france-le-froid-polaire-peut-il-rapidement-revenir-que-montrent-nos-cartes-hiver-decembre.html)
+- **Épisode de grande douceur cette semaine**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/episode-de-grande-douceur-cette-semaine)
+- **20 °C dans le Sud-Ouest, fonte des neiges à 3 000 m… Pourquoi le redoux attendu en France est exceptionnel**: [Link](https://www.leparisien.fr/meteo/20-c-dans-le-sud-ouest-fonte-des-neiges-a-3-000-m-pourquoi-le-redoux-attendu-en-france-est-exceptionnel-06-12-2025-CPQ7ROBEORCB3IIPAF2CSVB4G4.php)
+
+
 ### la bataille (N/A, Thu, 11 Dec 2025 13:40:00 -0800)
 
 - **Tennis : Aryna Sabalenka juge «injuste» la présence de femmes transgenres sur le circuit WTA**: [Link](https://www.lefigaro.fr/sports/tennis/tennis-sabalenka-juge-injuste-la-presence-de-femmes-transgenres-sur-le-circuit-wta-20251210)
