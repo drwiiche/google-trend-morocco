@@ -1,3 +1,17 @@
+### algerie foot (N/A, Fri, 12 Dec 2025 05:30:00 -0800)
+
+- **Coupe Arabe 2025 : Le Maroc A’ évite le traquenard de la Syrie et file en demies**: [Link](https://lematin.ma/sports/coupe-arabe-le-maroc-a-evite-le-traquenard-de-la-syrie-et-file-en-demies/318582)
+- **Le Marocain Walid Azaro, meilleur joueur du match du Maroc contre la Syrie.**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%88%D9%84%D9%8A%D8%AF-%D8%A3%D8%B2%D8%B1%D9%88-%D8%A7%D8%AD%D8%B3%D9%86-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%85/)
+- **Coupe arabe : le Maroc se qualifie pour les demi-finales en battant la Syrie (1-0)**: [Link](https://mobile.telquel.ma/instant-t/2025/12/11/coupe-arabe-le-maroc-se-qualifie-pour-les-demi-finales-en-battant-la-syrie-1-0_1965010/)
+
+
+### algeria vs (N/A, Fri, 12 Dec 2025 05:30:00 -0800)
+
+- **Arab Cup: Algeria vs. UAE—How & Where to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271642/arab-cup-algeria-vs-uae-how-where-to-watch/)
+- **FIFA Arab Cup 2025: What starting eleven will Algeria field against the UAE?**: [Link](https://sports.yahoo.com/articles/fifa-arab-cup-2025-starting-084500058.html)
+- **Watch Live! Algeria vs United Arab Emirates in the FIFA Arab Cup on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-algeria-vs-united-arab-emirates-in-the-fifa-arab-cup-on-bein-sports-2025-12-12)
+
+
 ### algeria vs uae (N/A, Fri, 12 Dec 2025 04:40:00 -0800)
 
 - **Arab Cup: Algeria vs. UAE—How & Where to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271642/arab-cup-algeria-vs-uae-how-where-to-watch/)
