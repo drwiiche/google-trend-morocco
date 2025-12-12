@@ -1,3 +1,10 @@
+### coupe d'arabe (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
+
+- **Coupe arabe: l'Arabie saoudite file en demi-finale après un match à suspense face à la Palestine**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
+- **Coupe Arabe : l’Arabie saoudite élimine la Palestine**: [Link](https://www.footmercato.net/a2542840592953093129-coupe-arabe-larabie-saoudite-elimine-la-palestine)
+- **Léquipe palestinienne quitte la Coupe arabe en quart de finale - Agence de Presse Sada**: [Link](https://www.sadanews.ps/fr/news/257227.html)
+
+
 ### 67 (N/A, Fri, 12 Dec 2025 13:10:00 -0800)
 
 - **In-N-Out Officially Removes Number '67' from Its Ordering System After Viral '6-7' Trend**: [Link](https://people.com/in-n-out-removes-67-from-orders-due-to-viral-6-7-trend-11864765)
