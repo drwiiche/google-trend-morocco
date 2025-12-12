@@ -1,3 +1,10 @@
+### real sociedad – girona (N/A, Fri, 12 Dec 2025 11:20:00 -0800)
+
+- **Información útil para hoy**: [Link](https://www.realsociedad.eus/es/noticias/detalle/informacion-util-para-hoy)
+- **La crisis vasca y catalana: La jornada de La Liga que define el descenso**: [Link](https://caribepeninsular.mx/la-crisis-vasca-y-catalana-la-jornada-de-la-liga-que-define-el-descenso/)
+- **Real Sociedad - Girona, en directo: LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/real-sociedad-girona-en-directo-laliga-ea-sports-en-vivo-f202512-d/)
+
+
 ### algeria match (N/A, Fri, 12 Dec 2025 10:30:00 -0800)
 
 - **Former Orlando Pirates coach stunned in Algeria**: [Link](https://ca.sports.yahoo.com/news/former-orlando-pirates-coach-stunned-183000579.html)
