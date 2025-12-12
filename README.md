@@ -1,3 +1,24 @@
+### 67 (N/A, Fri, 12 Dec 2025 13:10:00 -0800)
+
+- **In-N-Out Officially Removes Number '67' from Its Ordering System After Viral '6-7' Trend**: [Link](https://people.com/in-n-out-removes-67-from-orders-due-to-viral-6-7-trend-11864765)
+- **In-N-Out removes number 67 from order system due to viral 6-7 trend**: [Link](https://abc7.com/post/removes-number-67-order-system-due-viral-6-7-trend/18268599/)
+- **In-N-Out yanks 6-7 from its order system to avoid headaches**: [Link](https://qz.com/in-n-out-6-7-order-system-removal)
+
+
+### maroc vs emirats arabes unis (N/A, Fri, 12 Dec 2025 12:30:00 -0800)
+
+- **Coupe Arabe 2025 : Le Maroc A’ évite le traquenard de la Syrie et file en demies**: [Link](https://lematin.ma/sports/coupe-arabe-le-maroc-a-evite-le-traquenard-de-la-syrie-et-file-en-demies/318582)
+- **Coupe Arabe de la FIFA Qatar-2025: le Maroc joue face aux E.A.U en demi-finales**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/)
+- **Le Maroc premier qualifié pour les demi-finales de la Coupe Arabe**: [Link](https://www.aa.com.tr/fr/sport/le-maroc-premier-qualifi%C3%A9-pour-les-demi-finales-de-la-coupe-arabe/3768821)
+
+
+### weather tomorrow (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
+
+- **Brighter Friday, more snow this weekend**: [Link](https://www.mynbc5.com/article/a-little-brighter-on-friday-more-snow-showers-this-weekend-12-11-25/69703014)
+- **More ALERT DAY snow, gusty winds, and falling temperatures ahead! | Latest Weather Forecast**: [Link](https://www.channel3000.com/weather/forecast/tracking-alert-day-snow-wind-and-icy-roads/article_a1211afa-86c8-5443-b891-835dd6b621fd.html)
+- **Mass. weather: Snow, rain and 50 mph wind gusts in forecast**: [Link](https://www.masslive.com/weather/2025/12/mass-weather-snow-rain-and-50-mph-wind-gusts-in-forecast.html)
+
+
 ### نصف نهائي كاس العرب 2025 (N/A, Fri, 12 Dec 2025 10:40:00 -0800)
 
 - **كأس العرب "فيفا" 2025: المغرب يضمن مقعده في المربع الذهبي**: [Link](https://www.cafonline.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%81%D9%8A%D9%81%D8%A7-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B6%D9%85%D9%86-%D9%85%D9%82%D8%B9%D8%AF%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A/)
