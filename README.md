@@ -1,3 +1,17 @@
+### séisme japon (N/A, Fri, 12 Dec 2025 14:00:00 -0800)
+
+- **Les images du violent séisme et du tsunami qui ont frappé le Japon**: [Link](https://www.20minutes.fr/diaporama/diaporama-4190531-images-violent-seisme-tsunami-frappe-japon)
+- **Japon : Alerte au tsunami après un séisme de magnitude 6,7**: [Link](https://h24info.ma/monde/japon-alerte-au-tsunami-apres-un-seisme/)
+- **Japon : après le tremblement de terre, la crainte d’un "mégaséisme"**: [Link](https://www.france24.com/fr/vid%C3%A9o/20251210-japon-apr%C3%A8s-le-tremblement-de-terre-la-crainte-d-un-m%C3%A9gas%C3%A9isme)
+
+
+### المغرب ضد الامارات (N/A, Fri, 12 Dec 2025 12:50:00 -0800)
+
+- **السكتيوي: "شكرا للرجال على النّفْس"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D8%B4%D9%83%D8%B1%D8%A7-%D9%84%D9%84%D8%B1%D8%AC%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D9%91%D9%81%D9%92%D8%B3-1669662.html)
+- **كأس العرب "فيفا" 2025: المغرب يضمن مقعده في المربع الذهبي**: [Link](https://www.cafonline.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%81%D9%8A%D9%81%D8%A7-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B6%D9%85%D9%86-%D9%85%D9%82%D8%B9%D8%AF%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A/)
+- **مباشر.. مباراة المغرب ضد سوريا (1-0) في كأس العرب 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/11/morocco-vs-syria?update=8359308)
+
+
 ### coupe d'arabe (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
 
 - **Coupe arabe: l'Arabie saoudite file en demi-finale après un match à suspense face à la Palestine**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
