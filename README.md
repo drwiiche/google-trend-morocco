@@ -1,3 +1,10 @@
+### rca (N/A, Fri, 12 Dec 2025 08:30:00 -0800)
+
+- **Amenzile pentru lipsa RCA din noile reguli apărute în toamnă, inclusiv în cazul trotinetelor electrice, intră în vigoare sâmbătă**: [Link](https://www.avocatnet.ro/articol_70912/Amenzile-pentru-lipsa-RCA-din-noile-reguli-ap%C4%83rute-in-toamn%C4%83-inclusiv-in-cazul-trotinetelor-electrice-intr%C4%83-in-vigoare-samb%C4%83t%C4%83.html)
+- **RCA la trotinete. Controalele ar putea începe în câteva zile. Ce a rămas încă „în ceață”**: [Link](https://stirileprotv.ro/stiri/actualitate/rca-la-trotinete-controalele-ar-putea-incepe-in-cateva-zile-ce-a-ramas-inca-zin-ceata.html)
+- **Legislaţia privind circulaţia cu trotinete electrice. Vârsta minimă şi alte obligaţii**: [Link](https://observatornews.ro/social/legislatia-privind-circulatia-cu-trotinete-electrice-varsta-minimasi-alte-obligatii-639346.html)
+
+
 ### snrt (N/A, Fri, 12 Dec 2025 08:20:00 -0800)
 
 - **CAN 2025 : La SNRT sera "Host Broadcaster" de la compétition**: [Link](https://medias24.com/2025/12/12/can-2025-la-snrt-sera-host-broadcaster-de-la-competition-1594813/)
