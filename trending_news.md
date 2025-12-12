@@ -1,3 +1,17 @@
+### snrt (N/A, Fri, 12 Dec 2025 08:20:00 -0800)
+
+- **CAN 2025 : La SNRT sera "Host Broadcaster" de la compétition**: [Link](https://medias24.com/2025/12/12/can-2025-la-snrt-sera-host-broadcaster-de-la-competition-1594813/)
+- **Espagne : la plateforme Movistar Plus+ diffusera la CAN Maroc-2025**: [Link](https://mobile.telquel.ma/instant-t/2025/12/12/espagne-la-plateforme-movistar-plus-diffusera-la-can-maroc-2025_1965186/)
+- **Streaming sportif : La plateforme TOD se lance Maroc à la veille de la CAN**: [Link](https://www.leconomiste.com/flash-infos/streaming-sportif-la-plateforme-tod-se-lance-maroc-a-la-veille-de-la-can/)
+
+
+### iraq vs (N/A, Fri, 12 Dec 2025 07:20:00 -0800)
+
+- **UAE beat Kuwait 3-1 to book Quarter-Final spot**: [Link](https://www.beinsports.com/en-mena/football/arab-cup/articles-video/uae-beat-kuwait-3-1-to-book-quarter-final-spot-2025-12-09)
+- **Arab Cup: UAE set to face Algeria in quarter-finals**: [Link](https://sharjah24.ae/en/Articles/2025/12/11/Arab-Cup-UAE-set-to-face-Algeria-in-quarter-finals)
+- **UAE to face Algeria in the FIFA Arab Cup quarters as Al Ghassani reminds us what they missed in the World Cup play-offs**: [Link](https://gulfnews.com/sport/football/uae-to-face-algeria-in-the-fifa-arab-cup-quarters-as-al-ghassani-reminds-us-what-they-missed-in-the-world-cup-play-offs-1.500375473)
+
+
 ### jordanie vs irak (N/A, Fri, 12 Dec 2025 08:00:00 -0800)
 
 - **Live Jordanie - Irak (0-0) Quarts de finale de Coupe Arabe 2025 Qatar 12/12**: [Link](https://www.footmercato.net/live/5823172159554725990-jordanie-vs-irak)
