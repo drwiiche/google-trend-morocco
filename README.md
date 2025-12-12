@@ -1,3 +1,10 @@
+### algeria match (N/A, Fri, 12 Dec 2025 10:30:00 -0800)
+
+- **Former Orlando Pirates coach stunned in Algeria**: [Link](https://ca.sports.yahoo.com/news/former-orlando-pirates-coach-stunned-183000579.html)
+- **Ex-Orlando Pirates coach's woes continue in Algeria**: [Link](https://foot-africa.com/en/news/ex-orlando-pirates-coachs-woes-continue-in-algeria-994001/)
+- **Watch Live! Algeria vs United Arab Emirates in the FIFA Arab Cup on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-algeria-vs-united-arab-emirates-in-the-fifa-arab-cup-on-bein-sports-2025-12-12)
+
+
 ### الأردن ضد العراق (N/A, Fri, 12 Dec 2025 08:30:00 -0800)
 
 - **شاهد.. الأردن يهزم العراق ويبلغ نصف نهائي كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/12/jordan-vs-iraq-1)
