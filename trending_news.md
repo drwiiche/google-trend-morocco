@@ -1,3 +1,10 @@
+### algerie vs uae (N/A, Fri, 12 Dec 2025 03:20:00 -0800)
+
+- **Arab Cup: Algeria vs. UAE—How & Where to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271642/arab-cup-algeria-vs-uae-how-where-to-watch/)
+- **FIFA Arab Cup 2025: What starting eleven will Algeria field against the UAE?**: [Link](https://sports.yahoo.com/articles/fifa-arab-cup-2025-starting-084500058.html)
+- **FIFA Arab Cup 2025: Where to watch the Algeria vs Emirates match live and free?**: [Link](https://foot-africa.com/en/news/fifa-arab-cup-2025-where-to-watch-the-algeria-vs-emirates-match-live-and-free-997514/)
+
+
 ### مباريات اليوم كأس العرب (N/A, Fri, 12 Dec 2025 06:30:00 -0800)
 
 - **جدول مباريات اليوم الجمعة 12 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-12-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt5c85842ef622efb1)
