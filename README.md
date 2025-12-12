@@ -1,3 +1,10 @@
+### game awards 2025 (N/A, Thu, 11 Dec 2025 20:00:00 -0800)
+
+- **The Game Awards 2025: All The Winners**: [Link](https://www.kakuchopurei.com/2025/12/the-game-awards-2025-all-the-winners/)
+- **How to access the 'Thank You' update in Clair Obscur: Expedition 33**: [Link](https://www.polygon.com/clair-obscur-expedition-33-thank-you-update-versos-drafts-dlc/)
+- **Expedition 33 wins Game of the Year and drops new DLC**: [Link](https://xboxera.com/2025/12/12/expedition-33-wins-game-of-the-year-and-drops-new-dlc/)
+
+
 ### dr jimmy mohamed (N/A, Thu, 11 Dec 2025 23:00:00 -0800)
 
 - **L’épouse du Dr Jimmy Mohamed accuse son mari de violences psychologiques**: [Link](https://www.20minutes.fr/arts-stars/television/4190761-20251210-epouse-docteur-jimmy-mohamed-accuse-violences-psychologiques)
