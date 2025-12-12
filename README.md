@@ -1,3 +1,17 @@
+### مباريات اليوم كأس العرب (N/A, Fri, 12 Dec 2025 06:30:00 -0800)
+
+- **جدول مباريات اليوم الجمعة 12 ديسمبر 2025 في كأس العرب .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-12-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt5c85842ef622efb1)
+- **مواعيد مباريات اليوم.. الجزائر مع الإمارات وأنجييه أمام نانت**: [Link](https://www.youm7.com/story/2025/12/12/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%85%D8%B9-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D8%A3%D9%86%D8%AC%D9%8A%D9%8A%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D8%A7%D9%86%D8%AA/7231014)
+- **مواعيد مباريات اليوم الجمعة 12-12-2025 والقنوات الناقلة**: [Link](https://www.almasryalyoum.com/news/details/4149790)
+
+
+### مباراة الجزائر اليوم (N/A, Fri, 12 Dec 2025 05:00:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الجزائر والإمارات في ربع نهائي كأس العرب 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf0b2102212dfbb49)
+- **موعد مباراة الجزائر ضد الإمارات في ربع نهائي كأس العرب والتشكيلتان والقنوات المفتوحة الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/12/11/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9)
+- **الإمارات تستعد لاختبار صعب أمام الجزائر في ربع نهائي كأس العرب**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7/)
+
+
 ### algerie vs (N/A, Fri, 12 Dec 2025 05:20:00 -0800)
 
 - **Coupe arabe 2025 : à quelle heure et sur quelle chaîne suivre le quart de finale Algérie-Émirats arabes unis ?**: [Link](https://www.lequipe.fr/Football/Actualites/Coupe-arabe-2025-a-quelle-heure-et-sur-quelle-chaine-suivre-le-quart-de-finale-algerie-emirats-arabes-unis/1616215)
