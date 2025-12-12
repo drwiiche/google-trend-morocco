@@ -1,3 +1,10 @@
+### algerie vs (N/A, Fri, 12 Dec 2025 05:20:00 -0800)
+
+- **Coupe arabe 2025 : à quelle heure et sur quelle chaîne suivre le quart de finale Algérie-Émirats arabes unis ?**: [Link](https://www.lequipe.fr/Football/Actualites/Coupe-arabe-2025-a-quelle-heure-et-sur-quelle-chaine-suivre-le-quart-de-finale-algerie-emirats-arabes-unis/1616215)
+- **Algérie-Emirats arabes unis : à quelle heure et sur quelle chaîne TV voir le quart de Coupe arabe**: [Link](https://www.leparisien.fr/sports/football/algerie-emirats-arabes-unis-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-quart-de-coupe-arabe-11-12-2025-ZR2BI7KMDZBGHL3LTXJCYFXRX4.php)
+- **Algérie - EAU : Diffusion TV et en clair, streaming et compos probables**: [Link](https://www.goal.com/fr/news/algerie-eau-diffusion-tv-et-en-clair-streaming-et-compos-probables/blt4725aec609834918)
+
+
 ### الجزائر (N/A, Fri, 12 Dec 2025 05:10:00 -0800)
 
 - **سعيّد: تونس والجزائر عازمتان على تسريع تنفيذ المشاريع المشتركة**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%B3%D8%B9%D9%8A%D9%91%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B9%D8%A7%D8%B2%D9%85%D8%AA%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%AA%D8%B3%D8%B1%D9%8A%D8%B9-%D8%AA%D9%86%D9%81%D9%8A%D8%B0-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%8A%D8%B9-%D8%A7%D9%84%D9%85%D8%B4%D8%AA%D8%B1%D9%83%D8%A9/3768944)
