@@ -1,3 +1,10 @@
+### match d'algérie coupe d'arabe (N/A, Fri, 12 Dec 2025 09:20:00 -0800)
+
+- **Coupe Arabe 2025 : Le Maroc A’ évite le traquenard de la Syrie et file en demies**: [Link](https://lematin.ma/sports/coupe-arabe-le-maroc-a-evite-le-traquenard-de-la-syrie-et-file-en-demies/318582)
+- **Le Marocain Walid Azaro, meilleur joueur du match du Maroc contre la Syrie.**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%88%D9%84%D9%8A%D8%AF-%D8%A3%D8%B2%D8%B1%D9%88-%D8%A7%D8%AD%D8%B3%D9%86-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%85/)
+- **Le Maroc premier qualifié pour les demi-finales de la Coupe Arabe**: [Link](https://www.aa.com.tr/fr/sport/le-maroc-premier-qualifi%C3%A9-pour-les-demi-finales-de-la-coupe-arabe/3768821)
+
+
 ### rca (N/A, Fri, 12 Dec 2025 08:30:00 -0800)
 
 - **Amenzile pentru lipsa RCA din noile reguli apărute în toamnă, inclusiv în cazul trotinetelor electrice, intră în vigoare sâmbătă**: [Link](https://www.avocatnet.ro/articol_70912/Amenzile-pentru-lipsa-RCA-din-noile-reguli-ap%C4%83rute-in-toamn%C4%83-inclusiv-in-cazul-trotinetelor-electrice-intr%C4%83-in-vigoare-samb%C4%83t%C4%83.html)
