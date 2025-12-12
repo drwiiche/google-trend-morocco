@@ -1,3 +1,17 @@
+### union berlin – rb leipzig (N/A, Fri, 12 Dec 2025 11:40:00 -0800)
+
+- **Bundesliga LIVE: 14. Spieltag eröffnet - RB will Platz zwei festigen**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-live-14-spieltag-eroffnet-rb-will-platz-zwei-festigen/bDec9K15/)
+- **Union Berlin - RB Leipzig im Liveticker: Ostduell an der Alten Försterei – Leipzig ohne Nusa**: [Link](https://www.welt.de/sport/fussball/bundesliga/article693c5ed1f679420e000b2eca/union-berlin-rb-leipzig-im-liveticker-ostduell-an-der-alten-foersterei-leipzig-ohne-nusa.html)
+- **Donnerstag, ab 09.30 Uhr: Die PK mit Ole Werner vor Union vs. RBL**: [Link](https://rbleipzig.com/de/news/pressekonferenz-ole-werner-bundesliga-union-berlin-vs-rb-leipzig-am-12-dezember-2025)
+
+
+### real sociedad vs girona (N/A, Fri, 12 Dec 2025 11:40:00 -0800)
+
+- **Preview: Real Sociedad vs Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/real-sociedad-vs-girona-prediction-team-news-lineups_587512.html)
+- **Ander Barrenetxea vs. Girona FC – Player props & odds to score a goal on December 12**: [Link](https://prosoccerwire.usatoday.com/story/sports/2025/12/12/ander-barrenetxea-soccer-player-props-12-12-2025/87728893007/)
+- **Real Sociedad-Girona - LaLiga 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1914040/preview/spain-laliga-2025-2026-real-sociedad-girona)
+
+
 ### نتيجة مباراة الجزائر اليوم (N/A, Fri, 12 Dec 2025 11:30:00 -0800)
 
 - **بالفيديو: من يفضل المغرب في نصف نهائي العرب؟ أزارو يرد على سؤال كووورة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B2%D8%A7%D8%B1%D9%88-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D9%84%D8%A7-%D9%85%D9%86%D8%A7%D9%81%D8%B3-%D9%85%D9%81%D8%B6%D9%84-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blta67d10461aa4688c)
