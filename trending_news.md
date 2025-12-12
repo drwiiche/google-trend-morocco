@@ -1,3 +1,17 @@
+### angers – nantes (N/A, Fri, 12 Dec 2025 13:30:00 -0800)
+
+- **DIRECT. Angers-Nantes: les Canaris balayés dans le derby, première salée pour Kantari**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-angers-nantes-suivez-le-match-d-ouverture-de-la-16e-journee-de-ligue-1-en-live_LS-202512120747.html)
+- **« Je crois en nous » : Junior Mwanga garde espoir après la lourde défaite du FC Nantes à Angers**: [Link](https://tribunenantaise.fr/actus-fcnantes/je-crois-en-nous-junior-mwanga-garde-espoir-apres-la-lourde-defaite-du-fc-nantes-a-angers/)
+- **L1 : Angers-Nantes, les compos**: [Link](https://www.maxifoot.fr/ligue-1/angers-nantes-les-compos-foot-446334.htm)
+
+
+### كأس العرب 2025 (N/A, Fri, 12 Dec 2025 12:20:00 -0800)
+
+- **المنتخب الوطني الرديف يواجه الإمارات في نصف نهائي كاس العرب**: [Link](https://frmf.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/)
+- **السكتيوي: "شكرا للرجال على النّفْس"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D8%B4%D9%83%D8%B1%D8%A7-%D9%84%D9%84%D8%B1%D8%AC%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D9%91%D9%81%D9%92%D8%B3-1669662.html)
+- **كأس العرب "فيفا" 2025: المغرب يضمن مقعده في المربع الذهبي**: [Link](https://www.cafonline.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%81%D9%8A%D9%81%D8%A7-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B6%D9%85%D9%86-%D9%85%D9%82%D8%B9%D8%AF%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A/)
+
+
 ### séisme japon (N/A, Fri, 12 Dec 2025 14:00:00 -0800)
 
 - **Les images du violent séisme et du tsunami qui ont frappé le Japon**: [Link](https://www.20minutes.fr/diaporama/diaporama-4190531-images-violent-seisme-tsunami-frappe-japon)
