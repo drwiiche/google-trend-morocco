@@ -1,3 +1,10 @@
+### dr jimmy mohamed (N/A, Thu, 11 Dec 2025 23:00:00 -0800)
+
+- **L’épouse du Dr Jimmy Mohamed accuse son mari de violences psychologiques**: [Link](https://www.20minutes.fr/arts-stars/television/4190761-20251210-epouse-docteur-jimmy-mohamed-accuse-violences-psychologiques)
+- **«Je suis arrivée au bout du bout du rouleau» : l’épouse de Jimmy Mohamed règle ses problèmes conjugaux en public**: [Link](https://tvmag.lefigaro.fr/programme-tv/people/je-suis-arrivee-au-bout-du-bout-du-rouleau-l-epouse-de-jimmy-mohamed-regle-ses-problemes-conjugaux-en-public-20251210)
+- **Jimmy Mohamed, accusé par sa femme : sa réaction**: [Link](https://www.journaldesfemmes.fr/people/magazine/3249756-infos-people-scoops-france-decembre-semaine-lio-miss-france/3250304-jimmy-mohamed)
+
+
 ### holmarcom (N/A, Thu, 11 Dec 2025 23:30:00 -0800)
 
 - **Rachat de BMCI: Holmarcom confirme l’engagement de négociations avec BNP Paribas**: [Link](https://fr.le360.ma/economie/rachat-de-bmci-holmarcom-confirme-lengagement-de-negociations-avec-bnp-paribas_3NM3I6EW3BBWVBEMANV6KMLSRY/)
