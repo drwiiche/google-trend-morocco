@@ -1,3 +1,9 @@
+### holmarcom bmci (N/A, Thu, 11 Dec 2025 20:30:00 -0800)
+
+- **Holmarcom en négociation pour le rachat de la BMCI**: [Link](https://private-admin.medias24.com/2025/12/11/holmarcom-en-negociation-pour-la-reprise-de-la-bmci-1593769/)
+- **Holmarcom in talks to buy Morocco’s BMCI from BNP Paribas**: [Link](https://medias24.com/2025/12/11/holmarcom-in-talks-to-buy-moroccos-bmci-from-bnp-paribas-1593818/)
+
+
 ### iphone 18 (N/A, Thu, 11 Dec 2025 17:40:00 -0800)
 
 - **Apple Studio Display 2 leak reveals ProMotion, HDR, A19 chip upgrades**: [Link](https://www.macworld.com/article/3007295/apple-studio-display-2-leak-reveals-promotion-hdr-a19-chip-upgrades.html)
