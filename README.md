@@ -1,3 +1,10 @@
+### الجزائر (N/A, Fri, 12 Dec 2025 05:10:00 -0800)
+
+- **سعيّد: تونس والجزائر عازمتان على تسريع تنفيذ المشاريع المشتركة**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%B3%D8%B9%D9%8A%D9%91%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B9%D8%A7%D8%B2%D9%85%D8%AA%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%AA%D8%B3%D8%B1%D9%8A%D8%B9-%D8%AA%D9%86%D9%81%D9%8A%D8%B0-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%8A%D8%B9-%D8%A7%D9%84%D9%85%D8%B4%D8%AA%D8%B1%D9%83%D8%A9/3768944)
+- **ضيف اليوم - ما طبيعة العلاقات بين الجزائر وتونس؟**: [Link](https://www.france24.com/ar/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D8%B6%D9%8A%D9%81-%D8%A7%D9%84%D9%8A%D9%88%D9%85/20251212-%D9%85%D8%A7-%D8%B7%D8%A8%D9%8A%D8%B9%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%AA%D9%88%D9%86%D8%B3)
+- **النقل البري والبحري بين الجزائر وتونس.. هذا ما تم الاتفاق عليه – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%A7%D9%84%D9%86%D9%82%D9%84-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A-%D9%88%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%AA%D9%88%D9%86%D8%B3)
+
+
 ### jordan vs iraq (N/A, Fri, 12 Dec 2025 05:10:00 -0800)
 
 - **Jordan vs Iraq LIVE Score Updates in 2025 FIFA Arab Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/12/1244382-jordan-vs-iraq-live-score-arab-cup.html)
