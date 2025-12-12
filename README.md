@@ -1,3 +1,17 @@
+### الطقس غدًا (N/A, Fri, 12 Dec 2025 12:00:00 -0800)
+
+- **«الزموا أماكنكم».. تحذير شديد بشأن حالة الطقس غدًا: أمطار رعدية تضرب البلاد**: [Link](https://www.almasryalyoum.com/news/details/4144856)
+- **7 مدن أقل من 10 درجات.. انخفاض في درجات الحرارة الساعات المقبلة**: [Link](https://m.akhbarelyom.com/news/newdetails/4740331/1/7-%D9%85%D8%AF%D9%86-%D8%A3%D9%82%D9%84-%D9%85%D9%86-10-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA)
+- **الأرصاد تحذر: تدفق السحب وأمطار بعدة مناطق.. وتكشف موعد وصولها القاهرة**: [Link](https://www.youm7.com/story/2025/12/12/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%AA%D8%AF%D9%81%D9%82-%D8%A7%D9%84%D8%B3%D8%AD%D8%A8-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%88%D8%AA%D9%83%D8%B4%D9%81-%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%B5%D9%88%D9%84%D9%87%D8%A7/7231768)
+
+
+### uae (N/A, Fri, 12 Dec 2025 10:10:00 -0800)
+
+- **Forecast: UAE mobile service revenue to increase at 4% CAGR**: [Link](https://www.advanced-television.com/2025/12/12/forecast-uae-mobile-service-revenue-to-increase-at-4-cagr/)
+- **UAE's mobile market set for data-driven growth as 5G subscriptions surge**: [Link](https://www.khaleejtimes.com/business/telecom/uae-mobile-sector-set-for-growth-due-to-5g)
+- **Watch Live! Algeria vs United Arab Emirates in the FIFA Arab Cup on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/live-algeria-vs-united-arab-emirates-in-the-fifa-arab-cup-on-bein-sports-2025-12-12)
+
+
 ### union berlin – rb leipzig (N/A, Fri, 12 Dec 2025 11:40:00 -0800)
 
 - **Bundesliga LIVE: 14. Spieltag eröffnet - RB will Platz zwei festigen**: [Link](https://www.flashscore.de/news/fu-ball-bundesliga-bundesliga-live-14-spieltag-eroffnet-rb-will-platz-zwei-festigen/bDec9K15/)
