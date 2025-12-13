@@ -1,3 +1,10 @@
+### elon musk (N/A, Fri, 12 Dec 2025 18:50:00 -0800)
+
+- **After years of resisting it, SpaceX now plans to go public. Why?**: [Link](https://arstechnica.com/space/2025/12/after-years-of-resisting-it-spacex-now-plans-to-go-public-why/)
+- **SpaceX to Pursue 2026 IPO Raising Far Above $30 Billion**: [Link](https://www.bloomberg.com/news/articles/2025-12-09/spacex-said-to-pursue-2026-ipo-raising-far-above-30-billion)
+- **Exclusive | SpaceX in Talks for $800 Billion Valuation Ahead of Potential 2026 IPO**: [Link](https://www.wsj.com/business/spacex-in-talks-for-share-sale-that-would-boost-valuation-to-800-billion-b2852191)
+
+
 ### cup arab 2025 (N/A, Fri, 12 Dec 2025 12:50:00 -0800)
 
 - **Katara continues to shine with FIFA Arab Cup Qatar 2025 events**: [Link](https://thepeninsulaqatar.com/article/13/12/2025/katara-continues-to-shine-with-fifa-arab-cup-qatar-2025-events)
