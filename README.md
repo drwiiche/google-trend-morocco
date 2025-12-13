@@ -1,3 +1,24 @@
+### barcelone – osasuna (N/A, Sat, 13 Dec 2025 08:40:00 -0800)
+
+- **Official: Barcelona starting lineup against Osasuna | La Liga MD 16**: [Link](https://sports.yahoo.com/articles/official-barcelona-starting-lineup-against-162000892.html)
+- **Barcelona vs Osasuna, La Liga: Preview**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/107845/barcelona-osasuna-la-liga-team-news-match-preview-lineups-score-prediction)
+- **La Liga Soccer: Stream Barcelona vs. Osasuna Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/la-liga-soccer-stream-barcelona-vs-osasuna-live-from-anywhere/)
+
+
+### برشلونة ضد أوساسونا (N/A, Sat, 13 Dec 2025 08:40:00 -0800)
+
+- **مباشر.. مباراة برشلونة ضد أوساسونا في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/13/barcelona-vs-osasuna-2)
+- **التشكيل المتوقع.. فليك يخطط لفك شفرة أوساسونا ب4 مهاجمين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AE%D8%B7%D8%B7-%D9%84%D9%81%D9%83-%D8%B4%D9%81%D8%B1%D8%A9-%D8%A7%D9%94%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D8%A84-%D9%85%D9%87%D8%A7%D8%AC%D9%85%D9%8A%D9%86/blt0baf41976a2a29e2)
+- **رسمياً.. برشلونة يفقد حارسه في مباراة أوساسونا**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1357345/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%81%D9%82%D8%AF-%D8%AD%D8%A7%D8%B1%D8%B3%D9%87-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%88)
+
+
+### barcelona vs osasuna (N/A, Sat, 13 Dec 2025 08:40:00 -0800)
+
+- **La convocatoria del FC Barcelona para el partido contra Osasuna**: [Link](https://www.sport.es/es/noticias/barca/convocatoria-fc-barcelona-partido-osasuna-barca-flick-124719191)
+- **El once del Barça: poca rotación y mucha pólvora arriba**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251213/1002585815/once-barca-poca-rotacion-polvora.html)
+- **El Barça puede dormir a +7 del Real Madrid**: [Link](https://www.vavel.com/es/futbol/2025/12/13/fc-barcelona/1244504-el-barca-puede-dormir-a-7-del-real-madrid.html)
+
+
 ### les 12 coups de midi (N/A, Sat, 13 Dec 2025 08:00:00 -0800)
 
 - **"Il y a eu un avant et il y a aura un après" : la mère de Cyprien dévoile son passé secret dont les révélations surprennent les téléspectateurs**: [Link](https://www.pleinevie.fr/loisirs/tele-radio/il-y-a-eu-un-avant-et-il-y-a-aura-un-apres-la-mere-de-cyprien-devoile-son-passe-secret-dont-les-revelations-surprennent-les-telespectateurs-181360.html)
