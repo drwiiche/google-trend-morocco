@@ -1,3 +1,10 @@
+### burnley – fulham (N/A, Sat, 13 Dec 2025 09:10:00 -0800)
+
+- **Burnley vs Fulham LIVE! Premier League match updates, news, score, stream and highlights - live on Sky Sports**: [Link](https://www.skysports.com/football/live-blog/11681/13482218/burnley-vs-fulham-live-premier-league-match-updates-news-score-stream-and-highlights-live-on-sky-sports)
+- **From the Press Box: Sess out, but perhaps the Return of the Jedi?**: [Link](https://www.fulhamish.co.uk/p/from-the-press-box-sess-out-but-perhaps)
+- **Final One Standing: Gameweek 16 Predictions**: [Link](https://news.williamhill.com/football/final-one-standing-gameweek-16-predictions/)
+
+
 ### barcelone – osasuna (N/A, Sat, 13 Dec 2025 08:40:00 -0800)
 
 - **Official: Barcelona starting lineup against Osasuna | La Liga MD 16**: [Link](https://sports.yahoo.com/articles/official-barcelona-starting-lineup-against-162000892.html)
