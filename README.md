@@ -1,3 +1,17 @@
+### psv vs heracles (N/A, Sat, 13 Dec 2025 12:40:00 -0800)
+
+- **PSV vs. Heracles (14 Dec, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/741115)
+- **All About | PSV unbeaten for 61 years at home against Heracles Almelo**: [Link](https://www.psv.nl/en/media/artikel/alles-over-psv-al-61-jaar-ongeslagen-in-eigen-huis-tegen-heracles-almelo)
+- **Preview: PSV Eindhoven vs. Heracles - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/psv-vs-heracles-prediction-team-news-lineups_587592.html)
+
+
+### fcb (N/A, Sat, 13 Dec 2025 11:30:00 -0800)
+
+- **Hansi Flick’s Barcelona closes in on historic club scoring record**: [Link](https://barcauniversal.com/hansi-flicks-barcelona-closes-in-on-historic-club-scoring-record/)
+- **‘When things get complicated, give the ball to Pedri’ - Eric Garcia has epic response after Barcelona’s win over Osasuna**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/107901/when-things-get-complicated-give-the-ball-to-pedri-eric-garcia-has-epic-response-after-barcelonas-win-over-osasuna)
+- **Barcelona’s starting XI: minimal rotation and plenty of firepower up front**: [Link](https://www.mundodeportivo.com/us/en/20251213/736299/barcelona-s-starting-xi-minimal-rotation-and-plenty-of-firepower-up-front.html)
+
+
 ### atalanta – cagliari (N/A, Sat, 13 Dec 2025 12:20:00 -0800)
 
 - **LIVE Alle 20.45 Atalanta-Cagliari: Palladino si affida a Scamacca, Pisacane conferma Borrelli**: [Link](https://www.gazzetta.it/Calcio/Serie-A/13-12-2025/atalanta-cagliari-live-risultato-e-gol-in-diretta-serie-a.shtml)
