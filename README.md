@@ -1,3 +1,10 @@
+### rennes – brest (N/A, Sat, 13 Dec 2025 07:50:00 -0800)
+
+- **Rennes - Brest. « Il sera un joueur important » : Mama Baldé particulièrement attendu en l’absence de Ludovic Ajorque**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/rennes-brest-il-sera-un-joueur-important-mama-balde-particulierement-attendu-en-labsence-de-ludovic-ajorque-6312b616-d771-11f0-80ef-8245da08fa9b)
+- **Stade Rennais - Stade Brestois. Entre Habib Beye et Djaoui Cissé, un petit côté « je t’aime, moi non plus »**: [Link](https://angers.maville.com/sport/detail_-stade-rennais-stade-brestois.-entre-habib-beye-et-djaoui-cisse-un-petit-cote-je-t-aime-moi-non-plus-_-7107995_actu.Htm)
+- **L1 : Rennes-Brest, les compos**: [Link](https://news.maxifoot.fr/ligue-1/rennes-brest-les-compos-foot-446372.htm)
+
+
 ### wrexham – watford (N/A, Sat, 13 Dec 2025 07:20:00 -0800)
 
 - **Phil Parkinson: Wrexham manager relishing home return after away defeat**: [Link](https://www.bbc.com/sport/football/articles/cdxeeqyvjl5o)
