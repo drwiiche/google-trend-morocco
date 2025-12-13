@@ -1,3 +1,10 @@
+### ميتز ضد بي اس جي (N/A, Sat, 13 Dec 2025 09:40:00 -0800)
+
+- **بطولة فرنسا: سان جرمان ينتظر تعثر لنس ومرسيليا يسعى لإنعاش موسمه**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251212-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%AA%D8%B9%D8%AB%D8%B1-%D9%84%D9%86%D8%B3-%D9%88%D9%85%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%A5%D9%86%D8%B9%D8%A7%D8%B4-%D9%85%D9%88%D8%B3%D9%85%D9%87)
+- **إنريكي يدافع عن لاعب بوجهين في باريس!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D9%88%D8%AC%D9%87%D9%8A%D9%86-%D9%81%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3/blt9de443192373e10c)
+- **القنوات الناقلة لمباراة باريس سان جيرمان اليوم ضد ميتز في الدوري الإسباني مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/513886290868596-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B6%D8%AF-%D9%85%D9%8A%D8%AA%D8%B2-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
 ### metz – paris-sg (N/A, Sat, 13 Dec 2025 09:30:00 -0800)
 
 - **Football. FC Metz - PSG : violences entre supporters avant le match, la police intervient**: [Link](https://www.republicain-lorrain.fr/faits-divers-justice/2025/12/13/match-fc-metz-psg-violences-entre-supporters-la-police-intervient)
