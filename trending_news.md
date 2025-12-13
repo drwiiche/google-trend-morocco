@@ -1,3 +1,10 @@
+### flamengo vs pyramids (N/A, Sat, 13 Dec 2025 10:40:00 -0800)
+
+- **Pyramids Coach: "El Karti Will Not Be With Us Against Flamengo... I Feel No One Is Helping Us, As If We Are Being Punished"**: [Link](https://m.elbotola.com/en/article/2025-12-12-14-52-202.html)
+- **Jurčić: I Fully Recognize Flamengo's Strength... And I Call on Egyptian Fans to Support Us**: [Link](https://www.ysscores.com/en/news/13871024/Jur%C4%8Di%C4%87:-I-Fully-Recognize-Flamengo's-Strength...-And-I-Call-on-Egyptian-Fans-to-Support-Us)
+- **Flamengo announce line-up for Intercontinental semi-final with surprises**: [Link](https://sports.yahoo.com/articles/flamengo-announce-line-intercontinental-semi-153200137.html)
+
+
 ### psv eindhoven – heracles (N/A, Sat, 13 Dec 2025 10:30:00 -0800)
 
 - **PSV-Heracles ook in het teken van supporters die zijn overleden**: [Link](https://www.ed.nl/psv/psv-heracles-ook-in-het-teken-van-supporters-die-zijn-overleden~a3a9520a/)
