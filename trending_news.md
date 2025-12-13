@@ -1,3 +1,10 @@
+### psg (N/A, Sat, 13 Dec 2025 11:50:00 -0800)
+
+- **Flamengo écarte le Pyramids FC et rejoint le PSG en finale de la Coupe Intercontinentale**: [Link](https://www.lequipe.fr/Football/Actualites/Le-psg-connait-son-adversaire-pour-la-finale-de-la-coupe-intercontinentale-ce-sera-flamengo-tombeur-du-pyramids-fc/1616808)
+- **Coupe Intercontinentale : l’énorme sortie de Filipe Luis sur le PSG et Luis Enrique**: [Link](https://www.footmercato.net/a6077274913202142086-coupe-intercontinentale-lenorme-sortie-de-filipe-luis-sur-le-psg-et-luis-enrique)
+- **Avec El-Shibi titulaire, Pyramids échoue à se qualifier pour la finale de la Coupe Intercontinentale après sa défaite contre Flamengo (0-2)**: [Link](https://m.elbotola.com/fr/article/2025-12-13-19-26-55.html)
+
+
 ### classement fc barcelone – osasuna (N/A, Sat, 13 Dec 2025 13:30:00 -0800)
 
 - **Barcelone - Osasuna : sur quelle chaîne et à quelle heure regarder le match de Liga en direct ?**: [Link](https://rmcsport.bfmtv.com/football/liga/barcelone-osasuna-sur-quelle-chaine-et-a-quelle-heure-regarder-le-match-de-liga-en-direct_AN-202512130023.html)
