@@ -1,3 +1,17 @@
+### eintracht francfort – augsbourg (N/A, Sat, 13 Dec 2025 06:00:00 -0800)
+
+- **DIRECT. Eintracht Francfort-Augsbourg (Bundesliga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-allemagne/2025-2026/eintracht-francfort-augsbourg-live/676526)
+- **Pronostic : Frankfurt vs Augsburg | 13/12**: [Link](https://www.footix.fr/pronostic-frankfurt-vs-augsburg-13-12/)
+- **Composition Eintracht Frankfurt - FC Augsburg, Bundesliga, 14ème journée, match du samedi 13 décembre 2025**: [Link](https://rmcsport.bfmtv.com/football/bundesliga/live/2025/match-eintracht-frankfurt-fc-augsburg-journee-14_FM-250627556234.html)
+
+
+### atletico madrid (N/A, Sat, 13 Dec 2025 06:00:00 -0800)
+
+- **Valencia CF's last win away to Atletico Madrid**: [Link](https://www.valenciacf.com/en/17655285044259000)
+- **La Liga goalmachine opens up on Barcelona interest – ‘It does not bother me’**: [Link](https://barcauniversal.com/la-liga-goalmachine-opens-up-on-barcelona-interest-it-does-not-bother-me/)
+- **Julian Alvarez makes transfer admission after Liverpool claims - 'I know what's being said'**: [Link](https://www.liverpoolecho.co.uk/sport/football/transfer-news/liverpool-atletico-madrid-julian-alvarez-33047526)
+
+
 ### atlético madrid vs valencia (N/A, Sat, 13 Dec 2025 04:30:00 -0800)
 
 - **El reinicio del Atlético, el desafío del Valencia**: [Link](https://elineanoticias.com/el-reinicio-del-atletico-el-desafio-del-valencia/)
