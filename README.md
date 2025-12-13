@@ -1,3 +1,10 @@
+### arsenal – wolves (N/A, Sat, 13 Dec 2025 11:10:00 -0800)
+
+- **Team news: Saliba, Rice and Timber back for Wolves**: [Link](https://www.arsenal.com/news/team-news-saliba-rice-and-timber-back-wolves)
+- **What Mikel Arteta wouldn’t say about William Saliba’s fitness**: [Link](https://paininthearsenal.com/what-mikel-arteta-wouldn-t-say-about-william-saliba-fitness)
+- **Edwards | 'It's got to come, we've got to deliver' | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20251212-edwards-its-got-to-come-weve-got-to-deliver/)
+
+
 ### flamengo vs pyramids (N/A, Sat, 13 Dec 2025 10:40:00 -0800)
 
 - **Pyramids Coach: "El Karti Will Not Be With Us Against Flamengo... I Feel No One Is Helping Us, As If We Are Being Punished"**: [Link](https://m.elbotola.com/en/article/2025-12-12-14-52-202.html)
