@@ -1,3 +1,10 @@
+### wrexham – watford (N/A, Sat, 13 Dec 2025 07:20:00 -0800)
+
+- **Phil Parkinson: Wrexham manager relishing home return after away defeat**: [Link](https://www.bbc.com/sport/football/articles/cdxeeqyvjl5o)
+- **Gracia: 'I like that we are disappointed with results – it shows we want more'**: [Link](https://uk.sports.yahoo.com/news/gracia-disappointed-results-shows-want-110000808.html)
+- **Wrexham Association Football Club**: [Link](https://www.wrexhamafc.co.uk/news/2025/december/12/preview---wrexham-afc-vs-watford/)
+
+
 ### torino – cremonese (N/A, Sat, 13 Dec 2025 07:00:00 -0800)
 
 
