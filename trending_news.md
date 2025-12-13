@@ -1,3 +1,10 @@
+### atlético madrid – valence (N/A, Sat, 13 Dec 2025 04:10:00 -0800)
+
+- **PRONOS PARIS RMC Le buteur du jour du 13 décembre - Liga - Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-13-decembre-liga-espagne_AN-202512120842.html)
+- **DIRECT. Atlético de Madrid-Valence CF (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/atletico-de-madrid-valence-cf-live/676863)
+- **Pronostic Atlético Madrid vs Valence - La Liga**: [Link](https://baonghean.vn/fr/nhan-dinh-atletico-madrid-vs-valencia-la-liga-10315071.html)
+
+
 ### رقية ماغي (N/A, Fri, 12 Dec 2025 13:40:00 -0800)
 
 
