@@ -1,3 +1,24 @@
+### atalanta – cagliari (N/A, Sat, 13 Dec 2025 12:20:00 -0800)
+
+- **LIVE Alle 20.45 Atalanta-Cagliari: Palladino si affida a Scamacca, Pisacane conferma Borrelli**: [Link](https://www.gazzetta.it/Calcio/Serie-A/13-12-2025/atalanta-cagliari-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Serie A: Atalanta-Cagliari 1-0 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/12/13/serie-a-atalanta-cagliari-1-0-diretta-e-foto_c57b1c26-52d0-4f89-8228-5224d77324d7.html)
+- **Fantacalcio Atalanta, si ferma Hien: le sue condizioni**: [Link](https://www.lottomatica.sport/news/calcio/fantacalcio/fantacalcio-atalanta-si-ferma-hien-le-sue-condizioni/)
+
+
+### donald trump (N/A, Sat, 13 Dec 2025 12:20:00 -0800)
+
+- **Immigration in Europe: Pedro Sánchez goes it alone in the face of the general hardening of EU leaders**: [Link](https://entrevue.fr/en/monde/immigration-en-europe-pedro-sanchez-fait-cavalier-seul-face-au-durcissement-general-des-dirigeants-de-lue/)
+- **As Europe toughens migration stance, Spain charts path away from Trump line**: [Link](https://www.firstpost.com/world/as-europe-toughens-migration-stance-spain-charts-path-away-from-trump-line-13959530.html)
+- **Spain's Immigration Policy: Economic Growth Amid Political Tensions**: [Link](https://www.devdiscourse.com/article/politics/3729985-spains-immigration-policy-economic-growth-amid-political-tensions)
+
+
+### ياسمين عبدالعزيز (N/A, Sat, 13 Dec 2025 12:20:00 -0800)
+
+- **ياسمين عبد العزيز: تعلمت الدرس.. ولا وجود للحب إلا في الروايات**: [Link](https://www.alarabiya.net/culture-and-art/2025/12/12/%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%AA%D8%B9%D9%84%D9%85%D8%AA-%D8%A7%D9%84%D8%AF%D8%B1%D8%B3-%D9%88%D9%84%D8%A7-%D9%88%D8%AC%D9%88%D8%AF-%D9%84%D9%84%D8%AD%D8%A8)
+- **منى الشاذلى للجمهور: متتجوزوش من عائلة توكسيك.. وياسمين عبد العزيز: متتجوزوش خالص**: [Link](https://www.almasryalyoum.com/news/details/4149622)
+- **من إخفاء أولادها لمسلسلها مع العوضي.. ياسمين عبدالعزيز تتصدر الترند بتصريحات مثيرة**: [Link](https://24.ae/article/936019/%D9%85%D9%86-%D8%A5%D8%AE%D9%81%D8%A7%D8%A1-%D8%A3%D9%88%D9%84%D8%A7%D8%AF%D9%87%D8%A7-%D9%84%D9%85%D8%B3%D9%84%D8%B3%D9%84%D9%87%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D9%86%D8%AF-%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9)
+
+
 ### barca vs (N/A, Sat, 13 Dec 2025 11:30:00 -0800)
 
 - **Robert Lewandowski, suplente en Barcelona vs Osasuna: ¿Qué pasó?**: [Link](https://www.365scores.com/es/news/robert-lewandowski-suplente-barca-liga/)
