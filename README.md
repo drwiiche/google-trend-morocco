@@ -1,3 +1,17 @@
+### atlético madrid vs valencia (N/A, Sat, 13 Dec 2025 04:30:00 -0800)
+
+- **El reinicio del Atlético, el desafío del Valencia**: [Link](https://elineanoticias.com/el-reinicio-del-atletico-el-desafio-del-valencia/)
+- **🚨Simeone y Corberán no especulan**: [Link](https://onefootball.com/es/noticias/simeone-y-corberan-no-especulan-42090441)
+- **Con Giuliano, Julián, Nico González y Molina, el Atlético Madrid recibe al Valencia para seguir peleando arriba**: [Link](https://www.ole.com.ar/futbol-internacional/espana/atletico-madrid-vs-valencia-liga-julian-alvarez-cholo-simeone-giuliano-nico-gonzalez-nahuel-molina_0_I8UevBuaCk.html)
+
+
+### أتلتيكو مدريد ضد فالنسيا (N/A, Sat, 13 Dec 2025 04:20:00 -0800)
+
+- **التشكيل الرسمي لمباراة أتلتيكو مدريد ضد فالنسيا فى الدوري الإسباني**: [Link](https://www.youm7.com/story/2025/12/13/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A/7232638)
+- **القنوات الناقلة لمباراة أتلتيكو مدريد ضد فالنسيا اليوم في الدوري الإسباني مع الموعد - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/527253910939590-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF/)
+- **أتلتيكو مدريد ضد فالنسيا: أتلتي كسر الاتجاه السلبي في واندا متروبوليتانو**: [Link](https://voi.id/ar/olahraga/542533)
+
+
 ### atlético madrid – valence (N/A, Sat, 13 Dec 2025 04:10:00 -0800)
 
 - **PRONOS PARIS RMC Le buteur du jour du 13 décembre - Liga - Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-13-decembre-liga-espagne_AN-202512120842.html)
