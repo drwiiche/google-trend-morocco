@@ -1,3 +1,17 @@
+### metz – paris-sg (N/A, Sat, 13 Dec 2025 09:30:00 -0800)
+
+- **Football. FC Metz - PSG : violences entre supporters avant le match, la police intervient**: [Link](https://www.republicain-lorrain.fr/faits-divers-justice/2025/12/13/match-fc-metz-psg-violences-entre-supporters-la-police-intervient)
+- **Ligue 1 I Le PSG sans Ousmane Dembélé, mais avec Lucas Chevalier à Metz**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-i-le-psg-sans-ousmane-dembele-mais-avec-lucas-chevalier-a-metz_sto23250220/story.shtml)
+- **Marquinhos, Dembélé, Safonov, mercato : les vérités de Luis Enrique avant Metz/PSG**: [Link](https://www.msn.com/fr-ch/actualite/other/marquinhos-demb%C3%A9l%C3%A9-safonov-mercato-les-v%C3%A9rit%C3%A9s-de-luis-enrique-avant-metz-psg/ar-AA1Se01U)
+
+
+### antalyaspor – galatasaray (N/A, Sat, 13 Dec 2025 09:30:00 -0800)
+
+- **CANLI | Antalyaspor - Galatasaray maçı Canlı Anlatım - Antalyaspor - Galatasaray maçı kadrosu, skoru ve istatistikleri**: [Link](https://www.fanatik.com.tr/antalyaspor/live-antalyaspor-galatasaray-maci-canli-anlatim-antalyaspor-galatasaray-maci-kadrosu-skoru-ve-istatistikleri-2604518)
+- **Okan Buruk: "Milli aradan beri başımıza her şey geldi"**: [Link](https://www.ntvspor.net/futbol/okan-buruk-milli-aradan-beri-basimiza-her-sey-geldi-414398)
+- **CANLI YAYIN: Antalyaspor - Galatasaray CANLI ANLATIM | Trendyol Süper Lig 16. hafta mücadelesi**: [Link](https://www.cumhuriyet.com.tr/spor/canli-yayin-antalyaspor-galatasaray-canli-anlatim-trendyol-super-lig-16-hafta-mucadelesi-2461142)
+
+
 ### burnley – fulham (N/A, Sat, 13 Dec 2025 09:10:00 -0800)
 
 - **Burnley vs Fulham LIVE! Premier League match updates, news, score, stream and highlights - live on Sky Sports**: [Link](https://www.skysports.com/football/live-blog/11681/13482218/burnley-vs-fulham-live-premier-league-match-updates-news-score-stream-and-highlights-live-on-sky-sports)
