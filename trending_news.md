@@ -1,3 +1,17 @@
+### fc barcelone (N/A, Sat, 13 Dec 2025 11:20:00 -0800)
+
+- **DIRECT. FC Barcelone-Osasuna (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/fc-barcelone-osasuna-live/676864)
+- **Barcelone - Osasuna : sur quelle chaîne et à quelle heure regarder le match de Liga en direct ?**: [Link](https://rmcsport.bfmtv.com/football/liga/barcelone-osasuna-sur-quelle-chaine-et-a-quelle-heure-regarder-le-match-de-liga-en-direct_AN-202512130023.html)
+- **FC Barcelone - Osasuna en direct - La Liga : Football Scores & Résultats - 13/12/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-fc-barcelone-osasuna_mtc1610570/live-commentary.shtml)
+
+
+### getafe – espanyol (N/A, Sat, 13 Dec 2025 11:20:00 -0800)
+
+- **Getafe - Espanyol | La Navidad es más bonita en Europa: previa, análisis y posibles onces**: [Link](https://www.marca.com/futbol/primera-division/2025/12/12/getafe-espanyol-navidad-bonita-europa-previa-analisis-posibles-onces.html)
+- **Infiltrados en la fiesta**: [Link](https://as.com/futbol/primera/infiltrados-en-la-fiesta-f202512-n/)
+- **Getafe - Espanyol en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-ea-sports/getafe-espanyol/2025/12/13/01_0101_20251213_1450_177-directo.html)
+
+
 ### arsenal – wolves (N/A, Sat, 13 Dec 2025 11:10:00 -0800)
 
 - **Team news: Saliba, Rice and Timber back for Wolves**: [Link](https://www.arsenal.com/news/team-news-saliba-rice-and-timber-back-wolves)
