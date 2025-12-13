@@ -1,3 +1,10 @@
+### barca vs (N/A, Sat, 13 Dec 2025 11:30:00 -0800)
+
+- **Robert Lewandowski, suplente en Barcelona vs Osasuna: ¿Qué pasó?**: [Link](https://www.365scores.com/es/news/robert-lewandowski-suplente-barca-liga/)
+- **Gesto cómplice de Flick con Lewandowski tras dejarlo sin minutos**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251207/1002582767/gesto-complice-flick-lewandowski-dejarlo-minutos.html)
+- **Robert Lewandowski hoy: Por qué no juega en el Barcelona vs Betis por La Liga**: [Link](https://www.365scores.com/es/news/robert-lewandowki-no-juega-betis-barca/)
+
+
 ### barca (N/A, Sat, 13 Dec 2025 11:40:00 -0800)
 
 - **Schianto a Rialto, portata in carcere la donna alla guida della barca**: [Link](https://www.veneziatoday.it/cronaca/donna-barca-rialto-carcere.html)
