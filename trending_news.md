@@ -1,3 +1,15 @@
+### رقية ماغي (N/A, Fri, 12 Dec 2025 13:40:00 -0800)
+
+
+
+
+### maroc vs uae (N/A, Fri, 12 Dec 2025 12:30:00 -0800)
+
+- **Coupe Arabe : la nouvelle grosse désillusion de l’Algérie fait jaser !**: [Link](https://www.footmercato.net/a5465897741945916066-coupe-arabe-la-nouvelle-grosse-desillusion-de-lalgerie-fait-jaser)
+- **Coupe arabe: les Emirats arabes unis éliminent l'Algérie et défieront le Maroc en demi-finale, le sélectionneur des Fennecs démissionne**: [Link](https://rmcsport.bfmtv.com/football/direct-algerie-emirats-arabes-unis-suivez-le-quart-de-finale-des-fennecs-a-la-coupe-arabe-en-live_LS-202512120726.html)
+- **Football : Maroc–Émirats en demi-finales de la Coupe arabe**: [Link](https://www.leconomiste.com/flash-infos/football-maroc-emirats-en-demi-finales-de-la-coupe-arabe/)
+
+
 ### elon musk (N/A, Fri, 12 Dec 2025 18:50:00 -0800)
 
 - **After years of resisting it, SpaceX now plans to go public. Why?**: [Link](https://arstechnica.com/space/2025/12/after-years-of-resisting-it-spacex-now-plans-to-go-public-why/)
