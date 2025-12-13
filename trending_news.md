@@ -1,3 +1,17 @@
+### ليفربول ضد برايتون (N/A, Sat, 13 Dec 2025 06:30:00 -0800)
+
+- **محادثات الصلح تنهي الأزمة بين صلاح وليفربول**: [Link](https://www.aljazeera.net/sport/2025/12/12/%D9%85%D8%AD%D8%A7%D8%AF%D8%AB%D8%A7%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%AD-%D8%AA%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D8%A3%D8%B2%D9%85%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B5%D9%84%D8%A7%D8%AD)
+- **صلاح يعود لدكة بدلاء ليفربول أمام برايتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D8%AF%D9%83%D8%A9-%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86/blt036f5f4b5c73fc2e)
+- **مدرب برايتون: أتمنى مشاركة محمد صلاح أساسيًا أمامنا لهذا السبب**: [Link](https://www.btolat.com/news/387534)
+
+
+### orange (N/A, Sat, 13 Dec 2025 06:00:00 -0800)
+
+- **Dense fog advisory affecting Lane County Lowlands until Saturday morning – quarter mile visibility**: [Link](https://www.oregonlive.com/weather-alerts/2025/12/dense-fog-advisory-affecting-lane-county-lowlands-until-saturday-morning-quarter-mile-visibility.html)
+- **Weather Impact Alert for Dense Fog and a few storms early Saturday**: [Link](https://www.kiiitv.com/article/weather/weather-impact/weather-impact-alert-for-dense-fog-and-a-few-storms-early-saturday/503-5a1017f3-008a-446e-9436-b479cc0dc277)
+- **Dense fog advisory active for 5 Freeway through Grapevine until Saturday midday – visibility down to 1/4 mile**: [Link](https://www.dailybulletin.com/2025/12/12/dense-fog-advisory-active-for-5-freeway-through-grapevine-until-saturday-midday-visibility-down-to-1-4-mile-2/)
+
+
 ### liverpool – brighton (N/A, Sat, 13 Dec 2025 06:10:00 -0800)
 
 - **Premier League LIVE: Liverpool vs Brighton & Chelsea vs Everton - scores & updates**: [Link](https://www.bbc.com/sport/football/live/ce9d7d3pxk5t)
