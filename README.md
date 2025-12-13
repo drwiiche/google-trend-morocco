@@ -1,3 +1,10 @@
+### marsa maroc (N/A, Fri, 12 Dec 2025 16:30:00 -0800)
+
+- **Marsa Maroc conclut un accord social historique jusqu’en 2030**: [Link](https://ledesk.ma/encontinu/marsa-maroc-conclut-un-accord-social-historique-jusquen-2030/)
+- **Dialogue social : Marsa Maroc conclut un accord historique avec ses partenaires**: [Link](https://medias24.com/2025/12/12/dialogue-social-marsa-maroc-conclut-un-accord-historique-avec-ses-partenaires-1594744/)
+- **Marsa Maroc et ses partenaires sociaux signent un accord de paix sociale jusqu’en 2030**: [Link](https://telquel.ma/instant-t/2025/12/12/marsa-maroc-et-ses-partenaires-sociaux-signent-un-accord-de-paix-sociale-jusquen-2030_1965132/)
+
+
 ### الطقس (N/A, Fri, 12 Dec 2025 22:10:00 -0800)
 
 - **ثلوج وأمطار قوية بعدة أقاليم بالمغرب**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AB%D9%84%D9%88%D8%AC-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1669918.html)
