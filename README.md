@@ -1,3 +1,10 @@
+### cup arab 2025 (N/A, Fri, 12 Dec 2025 12:50:00 -0800)
+
+- **Katara continues to shine with FIFA Arab Cup Qatar 2025 events**: [Link](https://thepeninsulaqatar.com/article/13/12/2025/katara-continues-to-shine-with-fifa-arab-cup-qatar-2025-events)
+- **Qatar invites African countries for knowledge-sharing in tournament hosting**: [Link](https://ghanasoccernet.com/qatar-invites-african-countries-for-knowledge-sharing-in-tournament-hosting)
+- **Arab celebration of unity and culture in the fan zones of the FIFA Arab Cup Qatar 2025**: [Link](https://www.thecanary.co/global/arab-cup-2025/2025/12/12/arab-cup-how-qatar-2025/)
+
+
 ### marsa maroc (N/A, Fri, 12 Dec 2025 16:30:00 -0800)
 
 - **Marsa Maroc conclut un accord social historique jusqu’en 2030**: [Link](https://ledesk.ma/encontinu/marsa-maroc-conclut-un-accord-social-historique-jusquen-2030/)
