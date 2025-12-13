@@ -1,3 +1,17 @@
+### liverpool – brighton (N/A, Sat, 13 Dec 2025 06:10:00 -0800)
+
+- **Premier League LIVE: Liverpool vs Brighton & Chelsea vs Everton - scores & updates**: [Link](https://www.bbc.com/sport/football/live/ce9d7d3pxk5t)
+- **Mohamed Salah to be included in Liverpool squad against Brighton after Arne Slot talks - The Athletic**: [Link](https://www.nytimes.com/athletic/6885058/2025/12/12/mohamed-salah-liverpool-squad-brighton/)
+- **Romano shares what he heard from ‘sources close to Liverpool’ on ‘good meeting’ between Salah and Slot**: [Link](https://www.empireofthekop.com/2025/12/13/romano-salah-slot-good-meeting-liverpool/)
+
+
+### chelsea – everton (N/A, Sat, 13 Dec 2025 06:10:00 -0800)
+
+- **Maresca provides latest on Palmer, Fofana and Delap | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-delivers-chelsea-team-news-ahead-of-everton-december-2025)
+- **Cole Palmer: Chelsea forward's groin injury makes no 'sense', says Enzo Maresca**: [Link](https://www.bbc.com/sport/football/articles/cj4qq1wv914o)
+- **Chelsea Starting XI vs Everton: Confirmed Team News and Predicted Lineup**: [Link](https://onefootball.com/de/news/chelsea-starting-xi-vs-everton-confirmed-team-news-and-predicted-lineup-42090236)
+
+
 ### eintracht francfort – augsbourg (N/A, Sat, 13 Dec 2025 06:00:00 -0800)
 
 - **DIRECT. Eintracht Francfort-Augsbourg (Bundesliga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-allemagne/2025-2026/eintracht-francfort-augsbourg-live/676526)
