@@ -1,3 +1,10 @@
+### psv eindhoven – heracles (N/A, Sat, 13 Dec 2025 10:30:00 -0800)
+
+- **PSV-Heracles ook in het teken van supporters die zijn overleden**: [Link](https://www.ed.nl/psv/psv-heracles-ook-in-het-teken-van-supporters-die-zijn-overleden~a3a9520a/)
+- **LIVE eredivisie | Peter Bosz kiest voor Pepi in de spits tegen Heracles en geeft één verdediger rust**: [Link](https://www.pzc.nl/voetbal/live-eredivisie-peter-bosz-kiest-voor-pepi-in-de-spits-tegen-heracles-en-geeft-een-verdediger-rust~aecaef4c/)
+- **Grote lof voor 'PSV-clubman' Faber: 'Leidde tot doorbraak Gakpo en Saibari'**: [Link](https://www.voetbalprimeur.nl/nieuws/1721607/waterreus-geeft-lof-aan-faber-voor-psv-heracles.html)
+
+
 ### ميتز ضد بي اس جي (N/A, Sat, 13 Dec 2025 09:40:00 -0800)
 
 - **بطولة فرنسا: سان جرمان ينتظر تعثر لنس ومرسيليا يسعى لإنعاش موسمه**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251212-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%AA%D8%B9%D8%AB%D8%B1-%D9%84%D9%86%D8%B3-%D9%88%D9%85%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%A5%D9%86%D8%B9%D8%A7%D8%B4-%D9%85%D9%88%D8%B3%D9%85%D9%87)
