@@ -1,3 +1,10 @@
+### classement fc barcelone – osasuna (N/A, Sat, 13 Dec 2025 13:30:00 -0800)
+
+- **Barcelone - Osasuna : sur quelle chaîne et à quelle heure regarder le match de Liga en direct ?**: [Link](https://rmcsport.bfmtv.com/football/liga/barcelone-osasuna-sur-quelle-chaine-et-a-quelle-heure-regarder-le-match-de-liga-en-direct_AN-202512130023.html)
+- **Liga : grâce à Raphinha, le FC Barcelone devance Osasuna et prend le large**: [Link](https://www.footmercato.net/a8308959323034130017-liga-grace-a-raphinha-le-fc-barcelone-devance-osasuna-et-prend-le-large)
+- **Le FC Barcelone égale sa seconde série la plus prolifique en Liga**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4418084/le-fc-barcelone-egale-sa-seconde-serie-la-plus-prolifique-en-liga/featured)
+
+
 ### psv vs heracles (N/A, Sat, 13 Dec 2025 12:40:00 -0800)
 
 - **PSV vs. Heracles (14 Dec, 2025) Live Score**: [Link](https://www.espn.in/football/match/_/gameId/741115)
