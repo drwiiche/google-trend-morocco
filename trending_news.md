@@ -1,3 +1,24 @@
+### les 12 coups de midi (N/A, Sat, 13 Dec 2025 08:00:00 -0800)
+
+- **"Il y a eu un avant et il y a aura un après" : la mère de Cyprien dévoile son passé secret dont les révélations surprennent les téléspectateurs**: [Link](https://www.pleinevie.fr/loisirs/tele-radio/il-y-a-eu-un-avant-et-il-y-a-aura-un-apres-la-mere-de-cyprien-devoile-son-passe-secret-dont-les-revelations-surprennent-les-telespectateurs-181360.html)
+- **Les 12 Coups de Midi : comme Emilien, Cyprien est victime de moqueries et critiques sur les réseaux, "Le sentiment d'injustice"**: [Link](https://www.purebreak.com/news/les-12-coups-de-midi-comme-emilien-cyprien-est-victime-de-moqueries-et-critiques-sur-les-reseaux-le-sentiment-dinjustice/255418)
+- **Les 12 coups de midi : à combien s'élève la cagnotte de Cyprien ce 13 décembre ?**: [Link](https://www.telestar.fr/actu_tv/les-12-coups-de-midi-a-combien-seleve-la-cagnotte-de-cyprien-ce-13-decembre-1739126)
+
+
+### liverpool (N/A, Sat, 13 Dec 2025 07:50:00 -0800)
+
+- **Goal after 46 seconds, Ekitike on fire 🔥**: [Link](https://sports.yahoo.com/articles/goal-46-seconds-ekitike-fire-151900349.html)
+- **Football Tracker: Liverpool leading Brighton, Palmer puts Chelsea ahead against Everton**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-updates-results/nuyVS3Rq/)
+- **Hugo Ekitike smashes Liverpool ahead of Brighton in less than a minute**: [Link](https://www.nbcsports.com/watch/watch/premier-league/hugo-ekitike-smashes-liverpool-ahead-of-brighton-in-less-than-a-minute)
+
+
+### ios 26.2 (N/A, Sat, 13 Dec 2025 07:20:00 -0800)
+
+- **Apple iOS 26.2—1 Billion iPhone Users Must Install Next Update**: [Link](https://www.forbes.com/sites/zakdoffman/2025/12/09/apple-ios-262-1-billion-iphone-users-must-install-new-update/)
+- **PSA: iOS 26.2 Turns on Automatic Software Updates for Some Users**: [Link](https://www.macrumors.com/2025/12/12/ios-26-2-automatic-software-update/)
+- **These Two New iOS 26 Features Are Being Added To CarPlay In December 2025**: [Link](https://www.slashgear.com/2050767/ios-26-carplay-features-added-december-2025/)
+
+
 ### rennes – brest (N/A, Sat, 13 Dec 2025 07:50:00 -0800)
 
 - **Rennes - Brest. « Il sera un joueur important » : Mama Baldé particulièrement attendu en l’absence de Ludovic Ajorque**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/rennes-brest-il-sera-un-joueur-important-mama-balde-particulierement-attendu-en-labsence-de-ludovic-ajorque-6312b616-d771-11f0-80ef-8245da08fa9b)
