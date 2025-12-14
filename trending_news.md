@@ -1,3 +1,10 @@
+### arsenal vs (N/A, Sat, 13 Dec 2025 13:50:00 -0800)
+
+- **Arsenal get VAR verdict after red card controversy during Wolves clash**: [Link](https://www.football.london/arsenal-fc/news/breaking-arsenal-wolves-var-verdict-33053209)
+- **Premier League explain Arsenal vs Wolves decision ex-refs have slammed**: [Link](https://www.londonworld.com/sport/football/arsenal/premier-league-arsenal-wolves-decision-5441529)
+- **PGMOL break their silence after Bukayo Saka offside incident during Wolves vs Arsenal**: [Link](https://www.molineux.news/match/pgmol-break-their-silence-after-bukayo-saka-offside-incident-during-wolves-vs-arsenal/)
+
+
 ### ac milan – sassuolo (N/A, Sun, 14 Dec 2025 03:00:00 -0800)
 
 - **GdS: No rest for the Devils – Allegri set to field full strength team vs. Sassuolo**: [Link](https://sempremilan.com/allegri-field-full-strength-milan-sassuolo)
