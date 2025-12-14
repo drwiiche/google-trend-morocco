@@ -1,3 +1,17 @@
+### ميلان ضد ساسولو (N/A, Sun, 14 Dec 2025 04:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة ميلان وساسولو في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B3%D8%A7%D8%B3%D9%88%D9%84%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc35cc7fa4830f54f)
+- **نكونكو وبوليسيتش في هجوم ميلان أمام ساسولو بالدوري الإيطالي**: [Link](https://www.youm7.com/story/2025/12/14/%D9%86%D9%83%D9%88%D9%86%D9%83%D9%88-%D9%88%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D9%8A%D8%AA%D8%B4-%D9%81%D9%8A-%D9%87%D8%AC%D9%88%D9%85-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%A7%D8%B3%D9%88%D9%84%D9%88-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A/7233548)
+- **ماسيميليانو أليغري ينصح مهاجم ميلان بـ"الابتسام أكثر"**: [Link](https://sports.asharq.com/football/94824/%D9%85%D8%A7%D8%B3%D9%8A%D9%85%D9%8A%D9%84%D9%8A%D8%A7%D9%86%D9%88-%D8%A3%D9%84%D9%8A%D8%BA%D8%B1%D9%8A-%D9%8A%D9%86%D8%B5%D8%AD-%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A8-%D8%A7%D9%84%D8%A7%D8%A8%D8%AA%D8%B3%D8%A7%D9%85-%D8%A3%D9%83%D8%AB%D8%B1/)
+
+
+### bondi beach (N/A, Sun, 14 Dec 2025 04:00:00 -0800)
+
+- **Eleven killed in shooting targeting Jewish community at Australia's Bondi Beach, police say**: [Link](https://www.bbc.com/news/live/ckgk391yzm7t)
+- **Live: 'Horrifying' attack on Jewish community in Bondi leaves 12 dead, dozens injured**: [Link](https://www.abc.net.au/news/2025-12-14/bondi-beach-shooting-terrorist-attack-12-dead/106141580)
+- **Indications point to possible Iranian link to deadly Sydney attack, officials say**: [Link](https://www.ynetnews.com/article/hjhe8ghfbe)
+
+
 ### arsenal vs (N/A, Sat, 13 Dec 2025 13:50:00 -0800)
 
 - **Arsenal get VAR verdict after red card controversy during Wolves clash**: [Link](https://www.football.london/arsenal-fc/news/breaking-arsenal-wolves-var-verdict-33053209)
