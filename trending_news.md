@@ -1,3 +1,31 @@
+### werder – stuttgart (N/A, Sun, 14 Dec 2025 10:30:00 -0800)
+
+- **Preview: Werder Bremen vs Stuttgart - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/werder-bremen/preview/werder-bremen-vs-stuttgart-prediction-team-news-lineups_587737.html)
+- **Confirmed Lineups: Werder Bremen vs. VfB Stuttgart**: [Link](https://bulinews.com/confirmed-lineups-werder-bremen-vfb-stuttgart)
+- **Where to Watch Werder Bremen vs. VfB Stuttgart: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/13/where-to-watch-werder-bremen-vs-vfb-stuttgart-tv-channel-start-time-and-live-stream/)
+
+
+### bundesliga (N/A, Sun, 14 Dec 2025 10:30:00 -0800)
+
+- **Vorschau: SWR Sport • inkl. Bundesliga am Sonntag**: [Link](https://www.ardmediathek.de/tv-programm/6909d7b571461670ee56c879)
+- **Das Programm am heutigen Sonntag im Überblick – update 8 Uhr**: [Link](https://www.osthessen-zeitung.de/einzelansicht/news/2025/dezember/das-programm-am-sonntag-im-ueberblick-update-2130-uhr-10.html)
+- **Die Bundesliga-Konferenz im Live-Ticker**: [Link](https://web.de/magazine/sport/fussball/bundesliga/bundesliga-live-ticker-union-berlin-rb-leipzig-41292002)
+
+
+### moreirense – benfica (N/A, Sun, 14 Dec 2025 10:20:00 -0800)
+
+- **Moreirense-Benfica: Mourinho faz uma mudança no onze**: [Link](https://www.abola.pt/noticias/moreirense-benfica-mourinho-faz-uma-mudanca-no-onze-2025121416140336134)
+- **Dúvida no eixo defensivo e Pavlidis deve voltar: o onze provável do Benfica contra o Moreirense**: [Link](https://www.ojogo.pt/futebol/artigo/duvida-no-eixo-defensivo-e-pavlidis-deve-voltar-o-onze-provavel-do-benfica-contra-o-moreirense/18030124)
+- **Vasco Botelho da Costa à conversa com Simão Sabrosa antes do Moreirense-Benfica**: [Link](https://maisfutebol.iol.pt/videos/693eed940cf255913376341e/vasco-botelho-da-costa-a-conversa-com-simao-sabrosa-antes-do-moreirense-benfica)
+
+
+### bayern munich (N/A, Sun, 14 Dec 2025 10:20:00 -0800)
+
+- **Bayern Munich beats Mainz 3-0 to move eight points clear in title race**: [Link](https://www.red94.net/news/69612-bayern-munich-beats-mainz-3-0-to-keep-bundesliga-title-race-rolling/)
+- **Bundesliga Soccer Livestream: How to Watch Bayern Munich vs. Mainz**: [Link](https://www.cnet.com/tech/services-and-software/bundesliga-soccer-livestream-how-to-watch-bayern-munich-vs-mainz/)
+- **How will Bayern Munich vs. Mainz play out?**: [Link](https://www.bavarianfootballworks.com/question-of-the-day/154115/bundesliga-bayern-munich-vs-mainz-play-out)
+
+
 ### جنوى ضد الإنتر (N/A, Sun, 14 Dec 2025 09:50:00 -0800)
 
 - **4 تغييرات في تشكيل إنتر ميلان أمام جنوى**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/4-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%AC%D9%86%D9%88%D9%89/blt9e27dae50c3ddcc9)
