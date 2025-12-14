@@ -1,3 +1,17 @@
+### marseille – monaco (N/A, Sun, 14 Dec 2025 11:00:00 -0800)
+
+- **Nouveau coup dur pour Paul Pogba !**: [Link](https://www.footmercato.net/a6975188506784560536-nouveau-coup-dur-pour-paul-pogba)
+- **OM-Monaco, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/ligue-1/om-monaco-sur-quelle-chaine-voir-le-match-789719.html)
+- **Enorme bagarre entre joueurs à Marseille**: [Link](https://www.sports.fr/football/ligue-1/enorme-bagarre-entre-joueurs-a-marseille-974061.html)
+
+
+### اسفي (N/A, Sun, 14 Dec 2025 11:00:00 -0800)
+
+- **نادي أولمبيك آسفي يحتج على إمكانية منع تنقل جماهيره إلى خريبكة**: [Link](https://ar.telquel.ma/%D8%A2%D8%B3%D9%81%D9%8A-%D8%B3%D9%8A%D9%88%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D8%AA%D8%BA%D8%B1%D9%82-%D8%A3%D8%AD%D9%8A%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7/)
+- **فيضانات وأمطار غزيرة تُغرق أحياء في آسفي وتُخلّف خسائر مادية جسيمة – اليوم 24**: [Link](https://alyaoum24.com/1998356.html)
+- **آسفي تحت وطأة السيول الطوفانية: المدينة القديمة غارقة والسكان محاصرون (صور)**: [Link](https://www.akhbarona.com/society/418101.html)
+
+
 ### werder – stuttgart (N/A, Sun, 14 Dec 2025 10:30:00 -0800)
 
 - **Preview: Werder Bremen vs Stuttgart - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/werder-bremen/preview/werder-bremen-vs-stuttgart-prediction-team-news-lineups_587737.html)
