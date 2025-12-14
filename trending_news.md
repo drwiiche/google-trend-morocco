@@ -1,3 +1,17 @@
+### deportivo alavés – real madrid (N/A, Sun, 14 Dec 2025 11:10:00 -0800)
+
+- **Alineación posible del Real Madrid contra el Alavés en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-contra-el-alaves-en-laliga-ea-sports-f202512-n/)
+- **En Vitoria sigue el juicio blanco**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/14/alaves-real-madrid-vitoria-sigue-juicio-blanco.html)
+- **Un día inolvidable para el Glorioso**: [Link](https://nekodeportes.com/un-dia-inolvidable-para-el-glorioso/)
+
+
+### ألافيس ضد الريال (N/A, Sun, 14 Dec 2025 11:10:00 -0800)
+
+- **مبابي يعود لقيادة هجوم ريال مدريد أمام ألافيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%87%D8%AC%D9%88%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D9%84%D8%A7%D9%81%D9%8A%D8%B3/bltf665d07faa56a647)
+- **موعد مباراة ريال مدريد ضد ألافيس في الدوري الإسباني والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2025/12/13/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3)
+- **ريال مدريد يسعى إلى مصالحة أنصاره عندما يواجه ألافيس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D9%85%D8%B5%D8%A7%D9%84%D8%AD%D8%A9-%D8%A3%D9%86%D8%B5%D8%A7%D8%B1%D9%87-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-2025-12-14)
+
+
 ### marseille – monaco (N/A, Sun, 14 Dec 2025 11:00:00 -0800)
 
 - **Nouveau coup dur pour Paul Pogba !**: [Link](https://www.footmercato.net/a6975188506784560536-nouveau-coup-dur-pour-paul-pogba)
