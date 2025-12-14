@@ -1,3 +1,10 @@
+### manchester city (N/A, Sun, 14 Dec 2025 07:30:00 -0800)
+
+- **Manchester City 6-1 Aston Villa: Khadija Shaw hits four as WSL leaders Man City beat Villa**: [Link](https://www.bbc.com/sport/football/live/cx2d7y0kxjlt)
+- **Bunny Shaw breaks 100-goal milestone for Manchester City**: [Link](https://shekicks.net/manchester-city-bunny-shaw-aston-villa/)
+- **WSL LIVE: Brighton vs Chelsea, Man City vs Aston Villa & West Ham vs Liverpool radio, scores & updates**: [Link](https://www.bbc.co.uk/sport/football/live/ce9d71yg3zgt?page=3)
+
+
 ### indépendance kabylie (N/A, Sun, 14 Dec 2025 07:30:00 -0800)
 
 - **France : le rassemblement du Mak interdit par la préfecture des Yvelines**: [Link](https://www.tsa-algerie.com/france-le-rassemblement-du-mak-interdit-par-la-prefecture-des-yvelines/)
