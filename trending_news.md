@@ -1,3 +1,17 @@
+### bayern – mainz 05 (N/A, Sun, 14 Dec 2025 07:50:00 -0800)
+
+- **FC Bayern München - Mainz 05 live: Die Bundesliga im LIVE-TICKER**: [Link](https://www.dazn.com/de-AT/news/fussball/fc-bayern-muenchen-mainz-05-die-bundesliga-live-ticker-blog/1olstub8x7ape1f09ytauq4o7p)
+- **Bundesliga, FC Bayern – Mainz 05 live: Bayern mit drei Neuen in der Abwehr**: [Link](https://www.welt.de/sport/fussball/article693ebfbd629fc38b106a3497/bundesliga-fc-bayern-mainz-05-live-bayern-mit-drei-neuen-in-der-abwehr.html)
+- **Letztes Bayern-Heimspiel 2025: Die Rekordjagd geht weiter**: [Link](https://www.usinger-anzeiger.de/sport/fussball/letztes-bayern-heimspiel-2025-die-rekordjagd-geht-weiter-zr-94083402.html)
+
+
+### auxerre – lille (N/A, Sun, 14 Dec 2025 07:50:00 -0800)
+
+- **Ligue 1 : Auxerre – LOSC, les compos probables**: [Link](https://www.sport.fr/football/ligue-1-auxerre-losc-les-compos-probables-1396208.shtm)
+- **PRONOS PARIS RMC Le pari à l’extérieur du 14 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-14-decembre-ligue-1_AN-202512130346.html)
+- **AJA – LOSC accueillera la ministre des Sports, Marina Ferrari**: [Link](https://sportune.20minutes.fr/aja-losc-accueillera-la-ministre-des-sports-marina-ferrari-388523)
+
+
 ### manchester city (N/A, Sun, 14 Dec 2025 07:30:00 -0800)
 
 - **Manchester City 6-1 Aston Villa: Khadija Shaw hits four as WSL leaders Man City beat Villa**: [Link](https://www.bbc.com/sport/football/live/cx2d7y0kxjlt)
