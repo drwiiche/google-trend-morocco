@@ -1,3 +1,10 @@
+### أولمبيك مارسيليا ضد موناكو (N/A, Sun, 14 Dec 2025 12:30:00 -0800)
+
+- **بوجبا يتعرض لانتكاسة جديدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%88%D8%AC%D8%A8%D8%A7-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%A7%D9%86%D8%AA%D9%83%D8%A7%D8%B3%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/blta0ba61301b1b19bf)
+- **أولمبيك مارسيليا: نايف أكرد وأوباميانغ ضمن قائمة الفريق أمام موناكو قبل كأس أمم أفريقيا 2025**: [Link](https://foot-africa.com/ar/news/%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%86%D8%A7%D9%8A%D9%81-%D8%A3%D9%83%D8%B1%D8%AF-%D9%88%D8%A3%D9%88%D8%A8%D8%A7%D9%85%D9%8A%D8%A7%D9%86%D8%BA-%D8%B6%D9%85%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%82%D8%A8%D9%84-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-1001828/)
+- **انتكاسة تٌبعد بول بوغبا عن الملاعب مجدداً قبل قمة مارسيليا وموناكو**: [Link](https://sports.asharq.com/football/94890/%D8%A8%D9%88%D9%84-%D8%A8%D9%88%D8%BA%D8%A8%D8%A7-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D8%AC%D8%B9%D8%A9-%D9%88%D9%8A%D8%BA%D9%8A%D8%A8-%D9%85%D8%B1%D8%A9-%D8%A3%D8%AE%D8%B1%D9%89-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%B9%D8%A8/)
+
+
 ### alaves (N/A, Sun, 14 Dec 2025 12:20:00 -0800)
 
 - **All 9 Real Madrid players set to miss Alavés clash**: [Link](https://getfootballnewsspain.com/all-9-real-madrid-players-set-to-miss-alaves-clash/)
