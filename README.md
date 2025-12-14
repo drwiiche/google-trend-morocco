@@ -1,3 +1,17 @@
+### الطقس غدًا (N/A, Sun, 14 Dec 2025 12:00:00 -0800)
+
+- **عودة الأمطار بداية من الغد.. الأرصاد تحذر: انخفاض الحرارة إلى 10 درجات**: [Link](https://www.almasryalyoum.com/news/details/4150523)
+- **طقس الأحد.. القاهرة 21 درجة وتحذير من الشبورة وأمطار على هذه المناطق**: [Link](https://www.masrawy.com/news/news_egypt/details/2025/12/13/2907078/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-21-%D8%AF%D8%B1%D8%AC%D8%A9-%D9%88%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B9%D9%84%D9%89-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82)
+- **عاجل: الأرصاد تحذر من 3 ظواهر جوية خطيرة خلال 48 ساعة... هل تستعد مصر لموجة طقس قاسية؟**: [Link](https://yemen-press.net/news153341.html)
+
+
+### weather tomorrow (N/A, Sun, 14 Dec 2025 12:00:00 -0800)
+
+- **Arctic air takes over: Single-digit temperatures, negative wind chills settle in after snow**: [Link](https://www.wlwt.com/article/cincinnati-forecast-weather-arctic-air-temperatures-wind-chill/69719846)
+- **Snow keeps stacking up: See early city-by-city totals as parts of NE Ohio near 8 inches**: [Link](https://www.cleveland.com/weather/2025/12/snow-keeps-stacking-up-see-early-city-by-city-totals-as-parts-of-ne-ohio-near-8-inches.html)
+- **First Alert Weather Days: Morning low of zero ties 1901 record**: [Link](https://www.fox19.com/2025/12/14/first-alert-weather-days-morning-low-zero-ties-1901-record/)
+
+
 ### víctor valdepeñas (N/A, Sun, 14 Dec 2025 11:20:00 -0800)
 
 - **Valdepeñas, una bestia sin límites para Xabi Alonso**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/13/valdepenas-bestia-limites-xabi-alonso.html)
