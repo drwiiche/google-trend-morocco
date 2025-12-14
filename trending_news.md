@@ -1,3 +1,10 @@
+### psv (N/A, Sat, 13 Dec 2025 13:10:00 -0800)
+
+- **Peter Bosz baalt van terugval van PSV, maar prijst vermogen om tóch de drie punten te pakken**: [Link](https://www.telegraaf.nl/sport/voetbal/peter-bosz-baalt-van-terugval-van-psv-maar-prijst-vermogen-om-toch-de-drie-punten-te-pakken/113258362.html)
+- **Hornkamp verklaart hupje bij strafschop: 'Veel op getraind, kwam goed uit vandaag'**: [Link](https://nos.nl/video/2594470-hornkamp-verklaart-hupje-bij-strafschop-veel-op-getraind-kwam-goed-uit-vandaag)
+- **LIVE | Heracles-trainers terug op bekend terrein in Eindhoven**: [Link](https://www.tubantia.nl/heracles/live-heracles-trainers-terug-op-bekend-terrein-in-eindhoven~aa690a91/)
+
+
 ### psg (N/A, Sat, 13 Dec 2025 11:50:00 -0800)
 
 - **Flamengo écarte le Pyramids FC et rejoint le PSG en finale de la Coupe Intercontinentale**: [Link](https://www.lequipe.fr/Football/Actualites/Le-psg-connait-son-adversaire-pour-la-finale-de-la-coupe-intercontinentale-ce-sera-flamengo-tombeur-du-pyramids-fc/1616808)
