@@ -1,3 +1,24 @@
+### fribourg – dortmund (N/A, Sun, 14 Dec 2025 06:00:00 -0800)
+
+- **Preview: Freiburg vs Borussia Dortmund - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/freiburg/preview/freiburg-vs-dortmund-prediction-team-news-lineups_587747.html)
+- **Waldemar Anton and Aaron Anselmino reportedly to miss home game against Borussia Monchengladbach**: [Link](https://tribuna.com/en/news/2025-12-14-waldemar-anton-and-aaron-anselmino-reportedly-to-miss-home-game-against-borussia-moncheng/)
+- **Kovac before Freiburg: “We want to end the calendar year with two wins”**: [Link](https://www.bvb.de/de/en/news/news-overview/news.html/2025/12/11/Kovac-before-Freiburg-We-want-to-end-the-calendar-year-with-two-wins.html)
+
+
+### ajax – feyenoord (N/A, Sun, 14 Dec 2025 05:50:00 -0800)
+
+- **LIVE eredivisie | Prachtige openingsgoal Ajax in Klassieker: Davy Klaassen knalt van afstand raak**: [Link](https://www.ad.nl/voetbal/live-eredivisie-prachtige-openingsgoal-ajax-in-klassieker-davy-klaassen-knalt-van-afstand-raak~a6b26455/)
+- **Fred Grim en Robin van Persie kiezen voor deze opstellingen in De Klassieker!**: [Link](https://www.vandaaginside.nl/sport/binnenlands-voetbal/artikelen/fred-grim-en-robin-van-persie-kiezen-voor-deze-opstellingen-in-de-klassieke)
+- **Ajax-Feyenoord begonnen • Twente ontvangt Go Ahead**: [Link](https://nos.nl/liveblog/2594501-ajax-feyenoord-begonnen-twente-ontvangt-go-ahead)
+
+
+### star academy (N/A, Sun, 14 Dec 2025 05:50:00 -0800)
+
+- **Star Academy 2025 : Qui a été éliminé aux portes de la tournée ce samedi 13 décembre ?**: [Link](https://www.programme-tv.net/news/tv/394047-star-academy-2025-qui-a-ete-elimine-aux-portes-de-la-tournee-ce-samedi-13-decembre/)
+- **"Six mois que j'ai envie de lui faire un câlin !" : Michaël Goldman réconforte Léo (Star Academy) après son élimination**: [Link](https://www.programme.tv/news/emissions-tv/266267-six-mois-que-j-ai-envie-de-lui-faire-un-calin-michael-goldman-reconforte-leo-star-academy-apres-son-elimination/)
+- **Prime des face-à-face et “visites remarquables” : Michael Goldman annonce le programme à venir des élèves de la "Star Academy" 2025**: [Link](https://www.ozap.com/actu/prime-des-face-a-face-et-visites-remarquables-michael-goldman-annonce-le-programme-a-venir-des-eleves-de-la-star-academy-2025/652879)
+
+
 ### sunderland – newcastle (N/A, Sun, 14 Dec 2025 05:30:00 -0800)
 
 - **Latest. Team news: Miley and Elanga start on derby day**: [Link](https://www.newcastleunited.com/en/news/team-news-miley-and-elanga-start-on-derby-day)
