@@ -1,3 +1,10 @@
+### eurovision junior (N/A, Sun, 14 Dec 2025 06:10:00 -0800)
+
+- **Resultados Eurovisión Junior 2025: Francia, ganadora | Votación y así quedó España con Gonzalo Pinillos**: [Link](https://as.com/tikitakas/musica/eurovision-junior-2025-en-directo-espana-con-gonzalo-pinillos-canciones-actuaciones-y-ultima-hora-f202512-n/)
+- **Galería: “Unidos por la música” en Tiflis, repasa los mejores momentos de Eurovisión Junior 2025**: [Link](https://www.escplus.es/galeria/galeria-unidos-por-la-musica-en-tiflis-repasa-los-mejores-momentos-de-eurovision-junior-2025/)
+- **La audiencia de TVE reacciona a la actuación de España en Eurovisión Junior 2025: todos critican lo mismo**: [Link](https://www.msn.com/es-es/entretenimiento/musica/la-audiencia-de-tve-reacciona-a-la-actuaci%C3%B3n-de-espa%C3%B1a-en-eurovisi%C3%B3n-junior-2025-todos-critican-lo-mismo/ar-AA1Si2dN?cvid=693e74fa759f4c2980b20f356cb18990)
+
+
 ### lyon – le havre (N/A, Sun, 14 Dec 2025 06:40:00 -0800)
 
 - **OL : Tolisso, l’annonce inquiétante de Fonseca**: [Link](https://www.onzemondial.com/ligue-1/ol-tolisso-lannonce-inquietante-de-fonseca-974246)
