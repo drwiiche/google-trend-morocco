@@ -1,3 +1,17 @@
+### celta vigo – ath. bilbao (N/A, Sun, 14 Dec 2025 06:30:00 -0800)
+
+- **Athletic Bilbao 2025/26 Table & Standings: Full LaLiga & Champions League rankings**: [Link](https://blog.ke.sportpesa.com/2025/12/08/athletic-bilbao-2025-26-table/)
+- **Celta Vigo v Athletic Bilbao Match Stats**: [Link](https://andysbetclub.co.uk/football-fixtures/celta-vigo-v-athletic-bilbao/14122025/019b058f-d8da-70ea-85a7-8a947ebb1ef3/)
+- **Athletic Bilbao 2025/26 Fixtures: Full Season Schedule & Match Dates**: [Link](https://blog.ke.sportpesa.com/2025/12/08/athletic-bilbao-2025-26-fixtures/)
+
+
+### la kabylie (N/A, Sun, 14 Dec 2025 04:50:00 -0800)
+
+- **France : le rassemblement du Mak interdit par la préfecture des Yvelines**: [Link](https://www.tsa-algerie.com/france-le-rassemblement-du-mak-interdit-par-la-prefecture-des-yvelines/)
+- **Proclamation Indépendance Kabylie 2024: Analyse et Implications**: [Link](https://www.africatopsports.com/2025/12/14/proclamation-independance-kabylie-2024/)
+- **Selon des sources informées : Ferhat Mehenni s’apprête à s’enfuir au Maroc ou en Israël**: [Link](https://algeriepatriotique.com/2025/12/14/selon-des-sources-informees-ferhat-mehenni-sapprete-a-senfuir-au-maroc-ou-en-israel/)
+
+
 ### fribourg – dortmund (N/A, Sun, 14 Dec 2025 06:00:00 -0800)
 
 - **Preview: Freiburg vs Borussia Dortmund - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/freiburg/preview/freiburg-vs-dortmund-prediction-team-news-lineups_587747.html)
