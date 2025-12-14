@@ -1,3 +1,10 @@
+### víctor valdepeñas (N/A, Sun, 14 Dec 2025 11:20:00 -0800)
+
+- **Valdepeñas, una bestia sin límites para Xabi Alonso**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/13/valdepenas-bestia-limites-xabi-alonso.html)
+- **¿Quién es Valdepeñas, nuevo talento de Real Madrid?**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/16082358/real-madrid-vs-alaves-victor-valdepenas-debutaria-nuevo-talento)
+- **Quién es Víctor Valdepeñas, el canterano que puede debutar en la noche más tensa de Xabi Alonso**: [Link](https://onefootball.com/pt-br/noticias/quien-es-victor-valdepenas-el-canterano-que-puede-debutar-en-la-noche-mas-tensa-de-xabi-alonso-42094309)
+
+
 ### deportivo alavés – real madrid (N/A, Sun, 14 Dec 2025 11:10:00 -0800)
 
 - **Alineación posible del Real Madrid contra el Alavés en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-contra-el-alaves-en-laliga-ea-sports-f202512-n/)
