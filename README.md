@@ -1,3 +1,17 @@
+### juventus (N/A, Sun, 14 Dec 2025 13:00:00 -0800)
+
+- **LIVE Bologna-Juventus 0-1 Serie A 2025/2026: Cambiaghi serve Dallinga, Kelly chiude**: [Link](https://sport.virgilio.it/dirette/live/serie-a/14-12-2025/bologna-juventus/2558649/)
+- **Diretta Bologna-Juve, oggi Serie A. Live risultato e aggiornamenti**: [Link](https://www.adnkronos.com/sport/diretta-bologna-juventus-oggi-serie-a-live-risultato-aggiornamenti_41tOsb3gDQFXKNK5vwTXcc)
+- **Serie A | Le formazioni ufficiali di Bologna-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-bologna-juventus-formazioni)
+
+
+### marseille vs monaco (N/A, Sun, 14 Dec 2025 13:00:00 -0800)
+
+- **Ligue 1 Predictions | Round 16: Lens look hold hold top spot against Nice, OM host Monaco**: [Link](https://www.getfootballnewsfrance.com/2025/ligue-1-predictions-round-16-lens-look-hold-hold-top-spot-against-nice-om-host-monaco/)
+- **OM: Nayef Aguerd and Aubameyang included in squad to face AS Monaco ahead of AFCON 2025**: [Link](https://foot-africa.com/en/news/om-nayef-aguerd-and-aubameyang-included-in-squad-to-face-as-monaco-ahead-of-afcon-2025-1001828/)
+- **Marseille vs Monaco Prediction, 12/14/2025 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/marseille-vs-monaco-prediction-12-14-2025-soccer-pick-tips-and-odds.html)
+
+
 ### أولمبيك مارسيليا ضد موناكو (N/A, Sun, 14 Dec 2025 12:30:00 -0800)
 
 - **بوجبا يتعرض لانتكاسة جديدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%88%D8%AC%D8%A8%D8%A7-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%A7%D9%86%D8%AA%D9%83%D8%A7%D8%B3%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/blta0ba61301b1b19bf)
