@@ -1,3 +1,10 @@
+### lyon – le havre (N/A, Sun, 14 Dec 2025 06:40:00 -0800)
+
+- **OL : Tolisso, l’annonce inquiétante de Fonseca**: [Link](https://www.onzemondial.com/ligue-1/ol-tolisso-lannonce-inquietante-de-fonseca-974246)
+- **Abdoulaye Touré, Simon Ebonog et Reda Khadra blessés, Le Havre sera amputé de son milieu contre Lyon**: [Link](https://www.lequipe.fr/Football/Actualites/Abdoulaye-toure-simon-ebonog-et-reda-khadra-blesses-le-havre-sera-ampute-de-son-milieu-contre-lyon/1616767)
+- **PRONOS PARIS RMC Le pari à domicile du 14 décembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-14-decembre-ligue-1_AN-202512130347.html)
+
+
 ### celta vigo – ath. bilbao (N/A, Sun, 14 Dec 2025 06:30:00 -0800)
 
 - **Athletic Bilbao 2025/26 Table & Standings: Full LaLiga & Champions League rankings**: [Link](https://blog.ke.sportpesa.com/2025/12/08/athletic-bilbao-2025-26-table/)
