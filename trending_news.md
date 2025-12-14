@@ -1,3 +1,10 @@
+### brentford – leeds united (N/A, Sun, 14 Dec 2025 08:40:00 -0800)
+
+- **Brentford v Leeds United: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/14/brentford-v-leeds-united-premier-league-live)
+- **Brentford v Leeds prediction, betting tips and bet builder – Will Thiago be on target again?**: [Link](https://talksport.com/betting/3815832/brentford-leeds-prediction-betting-tips-bet-builder-free-bets/)
+- **Team news: Daniel Farke names XI to face Brentford**: [Link](https://www.leedsunited.com/en/news/team-news-daniel-farke-names-xi-to-face-brentford)
+
+
 ### genoa – inter (N/A, Sun, 14 Dec 2025 08:20:00 -0800)
 
 - **Genoa-Inter LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-15/genoa-inter/risultato-gol)
