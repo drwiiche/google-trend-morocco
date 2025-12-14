@@ -1,3 +1,17 @@
+### ac milan – sassuolo (N/A, Sun, 14 Dec 2025 03:00:00 -0800)
+
+- **GdS: No rest for the Devils – Allegri set to field full strength team vs. Sassuolo**: [Link](https://sempremilan.com/allegri-field-full-strength-milan-sassuolo)
+- **Serie A Preview: Milan vs Sassuolo – Team News, Lineups & Prediction**: [Link](https://cultofcalcio.com/serie-a-preview-milan-vs-sassuolo-team-news-lineups-prediction/)
+- **AC Milan Head Coach Claims ‘Inter & Napoli Are Favourites For The Scudetto’ As Serie A Title Race Heats Up**: [Link](https://sempreinter.com/2025/12/13/milan-allegri-inter-napoli-scudetto-favourites/)
+
+
+### john cena (N/A, Sat, 13 Dec 2025 17:40:00 -0800)
+
+- **John Cena last match: How he reached the top of WWE**: [Link](https://www.bbc.com/news/articles/cx2dp15zglxo)
+- **“Thank You, Cena”: John Cena Says Goodbye**: [Link](https://slamwrestling.net/report/thank-you-cena-john-cena-says-goodbye/)
+- **Gunther ends John Cena's career and sends a powerful message**: [Link](https://www.marca.com/en/wwe/2025/12/14/693e926f46163fad6e8b458c.html)
+
+
 ### revanth reddy (N/A, Sun, 14 Dec 2025 01:50:00 -0800)
 
 - **Anger at Lionel Messi 'GOAT' India tour as fans throw chairs and bottles at stadium event**: [Link](https://www.bbc.com/news/articles/c4g66nll48do)
