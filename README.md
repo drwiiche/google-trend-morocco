@@ -1,3 +1,10 @@
+### argentine (N/A, Sat, 13 Dec 2025 23:50:00 -0800)
+
+- **L'Albiceleste exclue de la Coupe du monde 2026? Ce scandale qui secoue la fédération de football argentine**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/l-albiceleste-exclue-de-la-coupe-du-monde-2026-ce-scandale-qui-secoue-la-federation-de-football-argentine_AV-202512130258.html)
+- **L’Argentine risque l’exclusion de la prochaine Coupe du Monde !**: [Link](https://www.footmercato.net/a6701707249056177666-largentine-risque-lexclusion-de-la-prochaine-coupe-du-monde)
+- **Mondial 2026, un scandale menace l’Argentine !**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/mondial-2026-un-scandale-menace-largentine-974343.html)
+
+
 ### fès (N/A, Sat, 13 Dec 2025 22:20:00 -0800)
 
 - **Fès, gloire et décadence d’une ville**: [Link](https://mobile.telquel.ma/2025/12/12/fes-gloire-et-decadence-dune-ville_1965022)
