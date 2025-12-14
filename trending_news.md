@@ -1,3 +1,10 @@
+### lionel messi (N/A, Sat, 13 Dec 2025 23:40:00 -0800)
+
+- **Anger at Lionel Messi 'GOAT' India tour as fans throw chairs and bottles at stadium event**: [Link](https://www.bbc.com/news/articles/c4g66nll48do)
+- **'Is this the way Bengal treats its governor?': Ananda Bose 'denied' entry to stadium after Messi event fi**: [Link](https://timesofindia.indiatimes.com/city/kolkata/is-this-the-way-bengal-treats-its-governor-ananda-bose-denied-entry-to-stadium-after-messi-event-fiasco-what-he-said/articleshow/125957153.cms)
+- **Bhaskar Morning Brief: Lionel Messi's event at Wankhede Stadium today; 20 US states file lawsuit against Tr...**: [Link](https://www.bhaskarenglish.in/national/news/bhaskar-morning-brief-14-12-2025-136664236.html)
+
+
 ### argentine (N/A, Sat, 13 Dec 2025 23:50:00 -0800)
 
 - **L'Albiceleste exclue de la Coupe du monde 2026? Ce scandale qui secoue la fédération de football argentine**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/l-albiceleste-exclue-de-la-coupe-du-monde-2026-ce-scandale-qui-secoue-la-federation-de-football-argentine_AV-202512130258.html)
