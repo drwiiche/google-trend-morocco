@@ -1,3 +1,10 @@
+### الطقس (N/A, Sat, 13 Dec 2025 23:00:00 -0800)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-39-1670690.html)
+- **أحوال الطقس.. تساقط الثلوج بكثافة فوق مرتفعات الأطلس**: [Link](https://ar.telquel.ma/%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%AB%D9%84%D9%88%D8%AC-%D8%A8%D9%83%D8%AB%D8%A7%D9%81%D8%A9-%D9%81%D9%88%D9%82-%D9%85%D8%B1/)
+- **منخفض جوي قوي: أمطار غزيرة وثلوج كثيفة على المرتفعات في مختلف مناطق المملكة**: [Link](https://2m.ma/ar/news/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%82%D9%88%D9%8A-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%81%D8%B9%D8%A7%D8%AA-%D9%81%D9%8A-%D9%85%D8%AE%D8%AA%D9%84%D9%81-20251213)
+
+
 ### peter greene (N/A, Sat, 13 Dec 2025 21:00:00 -0800)
 
 - **Peter Greene, a character actor known for role as the iconic villain in ‘Pulp Fiction,’ has died**: [Link](https://www.cnn.com/2025/12/13/entertainment/peter-greene-actor-death)
