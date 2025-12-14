@@ -1,3 +1,24 @@
+### كريستال بالاس ضد مان سيتي (N/A, Sun, 14 Dec 2025 05:20:00 -0800)
+
+- **هالاند يواجه ماتيتا في قمة السيتي وكريستال بالاس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D8%A7%D8%AA%D9%8A%D8%AA%D8%A7-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3/blt1cedac7518d3a266)
+- **رقم مميز لـ ريان شرقي في الدوري الانجليزي**: [Link](https://hihi2.com/2025/12/14/p3557732.html)
+- **غوارديولا يثير الجدل بخطوة مفاجئة قبل مواجهة كريستال بالاس ومساعده يوضح السبب**: [Link](https://www.hibasport.com/details-331587.html)
+
+
+### nottm forest – tottenham (N/A, Sun, 14 Dec 2025 05:20:00 -0800)
+
+- **Chris Sutton explains Sean Dyche 'problem' as Nottingham Forest take on Spurs**: [Link](https://www.nottinghampost.com/sport/football/football-news/nottingham-forest-spurs-team-news-10704073)
+- **FPL GW16 bonus points: See who's earned extras in Saturday's matches**: [Link](https://www.premierleague.com/en/news/4504022/fpl-gw16-bonus-points-see-whos-earned-extras-in-saturdays-matches)
+- **New-look Spurs attack faces first true test to prove corner has been turned**: [Link](https://www.standard.co.uk/sport/football/tottenham-attack-forest-frank-b1262365.html)
+
+
+### crystal palace – manchester city (N/A, Sun, 14 Dec 2025 05:10:00 -0800)
+
+- **Preview: Palace look to relive the highs against City**: [Link](https://www.fotmob.com/nl/topnews/24548-preview-palace-look-relive-highs-against-city?utm_source=fotmob)
+- **Manchester City XI vs Crystal Palace – Predicted lineup and team news**: [Link](https://thefootballfaithful.com/manchester-city-xi-vs-crystal-palace-predicted-lineup-and-team-news/)
+- **'Players have been coming in and out, but Crystal Palace remain dangerous': Ruben Dias**: [Link](https://tribuna.com/en/news/2025-12-14-players-have-been-coming-in-and-out-but-crystal-palace-remain-dangerous-ruben-dias/)
+
+
 ### ميلان ضد ساسولو (N/A, Sun, 14 Dec 2025 04:20:00 -0800)
 
 - **ما القنوات الناقلة لمباراة ميلان وساسولو في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B3%D8%A7%D8%B3%D9%88%D9%84%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc35cc7fa4830f54f)
