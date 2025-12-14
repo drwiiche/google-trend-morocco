@@ -1,3 +1,10 @@
+### indépendance kabylie (N/A, Sun, 14 Dec 2025 07:30:00 -0800)
+
+- **France : le rassemblement du Mak interdit par la préfecture des Yvelines**: [Link](https://www.tsa-algerie.com/france-le-rassemblement-du-mak-interdit-par-la-prefecture-des-yvelines/)
+- **Proclamation Indépendance Kabylie 2024: Analyse et Implications**: [Link](https://www.africatopsports.com/2025/12/14/proclamation-independance-kabylie-2024/)
+- **Selon des sources informées : Ferhat Mehenni s’apprête à s’enfuir au Maroc ou en Israël**: [Link](https://algeriepatriotique.com/2025/12/14/selon-des-sources-informees-ferhat-mehenni-sapprete-a-senfuir-au-maroc-ou-en-israel/)
+
+
 ### eurovision junior (N/A, Sun, 14 Dec 2025 06:10:00 -0800)
 
 - **Resultados Eurovisión Junior 2025: Francia, ganadora | Votación y así quedó España con Gonzalo Pinillos**: [Link](https://as.com/tikitakas/musica/eurovision-junior-2025-en-directo-espana-con-gonzalo-pinillos-canciones-actuaciones-y-ultima-hora-f202512-n/)
