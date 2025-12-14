@@ -1,3 +1,10 @@
+### جنوى ضد الإنتر (N/A, Sun, 14 Dec 2025 09:50:00 -0800)
+
+- **4 تغييرات في تشكيل إنتر ميلان أمام جنوى**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/4-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%AC%D9%86%D9%88%D9%89/blt9e27dae50c3ddcc9)
+- **ما القنوات الناقلة لمباراة جنوى وإنتر في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D9%86%D9%88%D9%89-%D8%A5%D9%86%D8%AA%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt565b8cb3b1625075)
+- **قبل موقعة الكأس.. إنتر ميلان في اختبار صعب أمام جنوي بالدوري الإيطالي**: [Link](https://m.akhbarelyom.com/news/newdetails/4741225/1/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A)
+
+
 ### levante – villarreal (N/A, Sun, 14 Dec 2025 08:50:00 -0800)
 
 - **El 7 o el 8 de enero, posible fecha para la disputa del Levante-Villarreal aplazado**: [Link](https://www.marca.com/futbol/levante/2025/12/14/7-8-enero-posible-fecha-disputa-levante-villarreal-aplazado.html)
