@@ -1,3 +1,10 @@
+### revanth reddy (N/A, Sun, 14 Dec 2025 01:50:00 -0800)
+
+- **Anger at Lionel Messi 'GOAT' India tour as fans throw chairs and bottles at stadium event**: [Link](https://www.bbc.com/news/articles/c4g66nll48do)
+- **Supriya Sule extends best wishes ahead of Lionel Messi's Mumbai event**: [Link](http://www.malaysiasun.com/news/278753719/supriya-sule-extends-best-wishes-ahead-of-lionel-messi-mumbai-event)
+- **Gone G.O.A.T : Anticipation turns to outrage as fans miss a glimpse**: [Link](https://timesofindia.indiatimes.com/entertainment/events/gone-g-o-a-t-anticipation-turns-to-outrage-as-fans-miss-a-glimpse/articleshow/125959598.cms)
+
+
 ### lionel messi (N/A, Sat, 13 Dec 2025 23:40:00 -0800)
 
 - **Anger at Lionel Messi 'GOAT' India tour as fans throw chairs and bottles at stadium event**: [Link](https://www.bbc.com/news/articles/c4g66nll48do)
