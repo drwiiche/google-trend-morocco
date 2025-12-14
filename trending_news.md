@@ -1,3 +1,10 @@
+### classement deportivo alavés – real madrid (N/A, Sun, 14 Dec 2025 15:30:00 -0800)
+
+- **Real ease pressure on Alonso with crucial Alaves win**: [Link](https://www.bbc.com/sport/football/live/cvgkdewnv95t)
+- **Xabi: Madrid 'unity' on display in win over Alavés**: [Link](https://www.espn.com/soccer/story/_/id/47307462/xabi-real-madrid-unity-display-win-alaves)
+- **Real Madrid Player Ratings vs. Alaves: Late Thriller Gives Alonso a Lifeline**: [Link](https://www.si.com/soccer/real-madrid-player-ratings-vs-alaves-12-14-25)
+
+
 ### om (N/A, Sun, 14 Dec 2025 13:10:00 -0800)
 
 - **Grim lijnrecht tegenover Van Persie: 'Daar gaat het volgens mij om'**: [Link](https://www.voetbalprimeur.nl/videos/1721996/grim-over-uitspraken-van-van-persie.html)
