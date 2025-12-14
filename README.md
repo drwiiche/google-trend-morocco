@@ -1,3 +1,17 @@
+### alaves (N/A, Sun, 14 Dec 2025 12:20:00 -0800)
+
+- **All 9 Real Madrid players set to miss Alavés clash**: [Link](https://getfootballnewsspain.com/all-9-real-madrid-players-set-to-miss-alaves-clash/)
+- **Xabi Alonso confirms Kylian Mbappe return, responds to Karim Benzema**: [Link](https://sports.yahoo.com/articles/xabi-alonso-confirms-kylian-mbappe-132900443.html)
+- **Alaves vs. Real Madrid: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/alaves-vs-real-madrid-preview-predictions-lineups-12-14-25)
+
+
+### asfi (N/A, Sun, 14 Dec 2025 11:50:00 -0800)
+
+- **Flash Floods Kill Seven People in Morocco's Safi**: [Link](https://www.usnews.com/news/world/articles/2025-12-14/flash-floods-kill-seven-people-in-moroccos-safi)
+- **Seven dead and 20 injured after violent flash floods in Safi**: [Link](https://en.yabiladi.com/articles/details/183426/seven-dead-injured-after-violent.html)
+- **Flash floods kill seven people in Morocco's Safi**: [Link](https://www.reuters.com/business/environment/flash-floods-kill-seven-people-moroccos-safi-2025-12-14/)
+
+
 ### الطقس غدًا (N/A, Sun, 14 Dec 2025 12:00:00 -0800)
 
 - **عودة الأمطار بداية من الغد.. الأرصاد تحذر: انخفاض الحرارة إلى 10 درجات**: [Link](https://www.almasryalyoum.com/news/details/4150523)
