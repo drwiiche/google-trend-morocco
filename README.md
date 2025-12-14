@@ -1,3 +1,10 @@
+### peter greene (N/A, Sat, 13 Dec 2025 21:00:00 -0800)
+
+- **Peter Greene, a character actor known for role as the iconic villain in ‘Pulp Fiction,’ has died**: [Link](https://www.cnn.com/2025/12/13/entertainment/peter-greene-actor-death)
+- **Peter Greene, ‘Pulp Fiction’ and ‘The Mask’ Actor, Dies at 60**: [Link](https://www.nytimes.com/2025/12/13/movies/peter-greene-dead.html)
+- **Peter Greene’s Manager Recalls Last Phone Call with Actor Days Before His Death**: [Link](https://people.com/peter-greene-manager-recalls-last-phone-call-with-actor-days-before-his-death-11868642)
+
+
 ### kick (N/A, Sat, 13 Dec 2025 19:20:00 -0800)
 
 - **France might ban Kick after a streamer died during a broadcast**: [Link](https://spilled.gg/court-france-ban-platform-kick-streamer-death-broadcast/)
