@@ -1,3 +1,10 @@
+### kick (N/A, Sat, 13 Dec 2025 19:20:00 -0800)
+
+- **France might ban Kick after a streamer died during a broadcast**: [Link](https://spilled.gg/court-france-ban-platform-kick-streamer-death-broadcast/)
+- **Kick faces critical court decision in France on December 19, could be blocked nationwide**: [Link](https://www.red94.net/news/78808-kick-faces-critical-court-decision-in-france-on-december-19-could-be-blocked-nat/)
+- **Everything to know about popular Kick streamer Drb7h**: [Link](https://win.gg/kick-streamer-drb7h/)
+
+
 ### psv (N/A, Sat, 13 Dec 2025 13:10:00 -0800)
 
 - **Peter Bosz baalt van terugval van PSV, maar prijst vermogen om tóch de drie punten te pakken**: [Link](https://www.telegraaf.nl/sport/voetbal/peter-bosz-baalt-van-terugval-van-psv-maar-prijst-vermogen-om-toch-de-drie-punten-te-pakken/113258362.html)
