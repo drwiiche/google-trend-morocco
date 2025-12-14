@@ -1,3 +1,17 @@
+### genoa – inter (N/A, Sun, 14 Dec 2025 08:20:00 -0800)
+
+- **Genoa-Inter LIVE**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-15/genoa-inter/risultato-gol)
+- **Visnadi: “Non solo orgoglio: ieri Chivu per la prima volta in stagione ha…”**: [Link](https://www.fcinter1908.it/news/rassegna-stampa/visnadi-orgoglio-chivu-prima-volta/)
+- **Tensione a Marassi, incidenti tra tifosi di Genoa e Inter**: [Link](https://www.repubblica.it/sport/calcio/2025/12/14/news/incidenti_marassi_tifosi_genoa_inter-425039219/)
+
+
+### dortmund (N/A, Sun, 14 Dec 2025 08:20:00 -0800)
+
+- **Bellingham sieht die Rote Karte**: [Link](https://www.ligainsider.de/jobe-bellingham_38153/bellingham-sieht-die-rote-karte-405768/)
+- **Fußball-Bundesliga: Borussia Dortmund verspielt in Unterzahl beim SC Freiburg die Chance auf Platz zwei**: [Link](https://www.spiegel.de/sport/fussball/fussball-bundesliga-borussia-dortmund-verspielt-in-unterzahl-beim-sc-freiburg-die-chance-auf-platz-zwei-a-93715c87-048f-4faf-bb0b-5b66eac46134)
+- **Freiburg vs. BVB 0:1 – Bensebaini macht’s, nicht die Doppelspitze…**: [Link](https://www.fussballdaten.de/news/freiburg-vs-bvb-0-1-bensebaini-macht-s-nicht-die-doppelspitze-a3ab1cf0/)
+
+
 ### bayern – mainz 05 (N/A, Sun, 14 Dec 2025 07:50:00 -0800)
 
 - **FC Bayern München - Mainz 05 live: Die Bundesliga im LIVE-TICKER**: [Link](https://www.dazn.com/de-AT/news/fussball/fc-bayern-muenchen-mainz-05-die-bundesliga-live-ticker-blog/1olstub8x7ape1f09ytauq4o7p)
