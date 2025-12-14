@@ -1,3 +1,17 @@
+### sunderland – newcastle (N/A, Sun, 14 Dec 2025 05:30:00 -0800)
+
+- **Latest. Team news: Miley and Elanga start on derby day**: [Link](https://www.newcastleunited.com/en/news/team-news-miley-and-elanga-start-on-derby-day)
+- **THE SPECIAL - Sunderland Away**: [Link](https://tf1892.substack.com/p/the-special-sunderland-away)
+- **Newcastle winger Gordon warns Sunderland: It's WAR!**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-newcastle-winger-gordon-warns-sunderland-it-s-war-91fcbcc3-f1a5-49e8-b937-18a16e9e22a4)
+
+
+### west ham – aston villa (N/A, Sun, 14 Dec 2025 05:30:00 -0800)
+
+- **Nuno raves about the ‘huge’ West Ham star he wants to play every single minute**: [Link](https://www.hammers.news/news/nuno-raves-about-the-huge-west-ham-star-he-wants-to-play-every-single-minute/)
+- **Emery encourages Villa to ‘enjoy each moment’ of winning run**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/emery-encourages-villa-to-enjoy-each-moment-of-winning-run-2025-12-13)
+- **Matchday Gallery | Irons take on Villans**: [Link](https://www.whufc.com/en/news/matchday-gallery-or-irons-take-on-villans)
+
+
 ### كريستال بالاس ضد مان سيتي (N/A, Sun, 14 Dec 2025 05:20:00 -0800)
 
 - **هالاند يواجه ماتيتا في قمة السيتي وكريستال بالاس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D8%A7%D8%AA%D9%8A%D8%AA%D8%A7-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3/blt1cedac7518d3a266)
