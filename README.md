@@ -1,3 +1,24 @@
+### levante – villarreal (N/A, Sun, 14 Dec 2025 08:50:00 -0800)
+
+- **El 7 o el 8 de enero, posible fecha para la disputa del Levante-Villarreal aplazado**: [Link](https://www.marca.com/futbol/levante/2025/12/14/7-8-enero-posible-fecha-disputa-levante-villarreal-aplazado.html)
+- **Suspendidos el Levante-Villarreal por la alerta roja en València y el Valencia Basket masculino**: [Link](https://www.sport.es/es/noticias/laliga/suspendidos-levante-villarreal-alerta-roja-valencia-124771882)
+- **Juan Carlos Valderrama, conseller de Emergencias: "Hay que evitar los desplazamientos y no confiarse"**: [Link](https://www.elperiodico.com/es/videos/sociedad/juan-carlos-valderrama-conseller-emergencias/124775939.shtml)
+
+
+### البايرن ضد ماينتس (N/A, Sun, 14 Dec 2025 08:50:00 -0800)
+
+- **كومباني يدفع بالبدلاء في دفاع بايرن أمام ماينز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A8%D8%A7%D9%84%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D9%81%D9%8A-%D8%AF%D9%81%D8%A7%D8%B9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%8A%D9%86%D8%B2/blt882baf49d66fc71e)
+- **أرقام خاصة بحكم مباراة البايرن وماينز**: [Link](https://hihi2.com/2025/12/14/p3557272.html)
+- **مشاهدة مباراة بايرن ميونخ وماينز بث مباشر اليوم والقنوات الناقلة في الدوري الألماني**: [Link](https://www.cairo24.com/2335290)
+
+
+### peter greene the mask (N/A, Sun, 14 Dec 2025 08:50:00 -0800)
+
+- **Peter Greene, ‘Pulp Fiction’ and ‘The Mask’ Actor, Dies at 60**: [Link](https://www.nytimes.com/2025/12/13/movies/peter-greene-dead.html)
+- **Peter Greene, actor known for 'Pulp Fiction' and 'The Mask,' dead at 60**: [Link](https://www.nbcnews.com/news/obituaries/peter-greene-actor-known-pulp-fiction-mask-dead-60-rcna248976)
+- **Peter Greene, a character actor known for role as the villain Zed in 'Pulp Fiction,' has died**: [Link](https://abcnews.go.com/Entertainment/wireStory/peter-greene-character-actor-role-iconic-villain-pulp-128369782)
+
+
 ### brentford – leeds united (N/A, Sun, 14 Dec 2025 08:40:00 -0800)
 
 - **Brentford v Leeds United: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/14/brentford-v-leeds-united-premier-league-live)
