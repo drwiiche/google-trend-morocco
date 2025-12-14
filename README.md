@@ -1,3 +1,10 @@
+### om (N/A, Sun, 14 Dec 2025 13:10:00 -0800)
+
+- **Grim lijnrecht tegenover Van Persie: 'Daar gaat het volgens mij om'**: [Link](https://www.voetbalprimeur.nl/videos/1721996/grim-over-uitspraken-van-van-persie.html)
+- **Valentijn Driessen gruwelt van spel Ajax: ’Zelfs Francesco Farioli maakte het niet zo bont als Fred Grim’**: [Link](https://www.telegraaf.nl/sport/voetbal/valentijn-driessen-gruwelt-van-spel-ajax-zelfs-francesco-farioli-maakte-het-niet-zo-bont-als-fred-grim/113349350.html)
+- **Grim komt met update over Berghuis en verklaart basisplaats 'brutale' Steur**: [Link](https://www.ajaxshowtime.com/hoofdnieuws/grim-komt-met-update-over-berghuis-en-verklaart-basisplaats-brutale-steur)
+
+
 ### juventus (N/A, Sun, 14 Dec 2025 13:00:00 -0800)
 
 - **LIVE Bologna-Juventus 0-1 Serie A 2025/2026: Cambiaghi serve Dallinga, Kelly chiude**: [Link](https://sport.virgilio.it/dirette/live/serie-a/14-12-2025/bologna-juventus/2558649/)
