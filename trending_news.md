@@ -1,3 +1,10 @@
+### مدرب الاردن (N/A, Mon, 15 Dec 2025 10:10:00 -0800)
+
+- **السلامي: خدعت المنتخب السعودي.. ولن أنس رينارد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%AE%D8%AF%D8%B9%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A--%D9%88%D9%84%D9%86-%D8%A7%D9%94%D9%86%D8%B3%D9%89-%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF/blt958c33399c00a3b4)
+- **سلامي: تأهل المنتخب الأردني مستحق.. وسعيد بملاقاة السكتيوي في النهائي**: [Link](https://www.hesport.com/%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-%D9%85%D8%B3%D8%AA%D8%AD%D9%82-%D9%88%D8%B3%D8%B9%D9%8A-418017.html)
+- **جمال السلامي يوجه حركة تحفيزية للجماهير الأردنية: "نتلاقاو في النهائي مع المغرب"**: [Link](https://m.elbotola.com/video/details/694072e433851393a15148c0/)
+
+
 ### man united (N/A, Mon, 15 Dec 2025 13:10:00 -0800)
 
 - **'Not good enough' - Amorim admits he and Man Utd are 'underachieving'**: [Link](https://www.bbc.com/sport/football/articles/c5yq2qydly7o)
