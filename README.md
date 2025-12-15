@@ -1,3 +1,17 @@
+### توقيت مباراة المغرب اليوم (N/A, Mon, 15 Dec 2025 04:40:00 -0800)
+
+- **بث مباشر: شاهد مباراة المغرب والإمارات في نصف نهائي كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/blt8fc5899901538281)
+- **بنعبيد يلامس التميز في كأس العرب**: [Link](https://www.hespress.com/%D8%A8%D9%86%D8%B9%D8%A8%D9%8A%D8%AF-%D9%8A%D9%84%D8%A7%D9%85%D8%B3-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1671099.html)
+- **الإمارات تصطدم بالمغرب في عامه المثالي والأردن يتحدى السعودية بكأس العرب**: [Link](https://www.aljazeera.net/sport/2025/12/14/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%83%D8%A3%D8%B3)
+
+
+### morocco vs uae (N/A, Mon, 15 Dec 2025 04:20:00 -0800)
+
+- **Al-Hosani: UAE Squad Fully Prepared for Morocco Clash, Aims for Final**: [Link](https://m.elbotola.com/en/article/2025-12-14-16-05-874.html)
+- **Morocco-Emirates: Matches Within the Match**: [Link](https://mountakhab.net/en/morocco-emirates-matches-within-the-match/)
+- **Arab Cup Chaos Sweeps Doha**: [Link](https://www.newsofbahrain.com/bahrain/123356.html)
+
+
 ### deportivo alavés (N/A, Sun, 14 Dec 2025 13:30:00 -0800)
 
 - **Los números del Alavés, a examen este martes**: [Link](https://www.noticiasdealava.eus/alaves/2025/12/15/numeros-alaves-examen-martes-asamblea-accionistas-10472733.html)
