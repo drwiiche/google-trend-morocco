@@ -1,3 +1,10 @@
+### deportivo alavés (N/A, Sun, 14 Dec 2025 13:30:00 -0800)
+
+- **Los números del Alavés, a examen este martes**: [Link](https://www.noticiasdealava.eus/alaves/2025/12/15/numeros-alaves-examen-martes-asamblea-accionistas-10472733.html)
+- **Accionistas Albiazules pedirá información sobre el futuro de Mendizorroza en la Junta General**: [Link](https://www.elcorreo.com/alaves/accionistas-albiazules-informacion-futuro-mendizorroza-reforma-nuevo-estadio-alaves-20251209115040-nt.html)
+- **El debate sobre un nuevo estadio para el Alavés vuelve a la palestra**: [Link](https://gasteizberri.com/2025/12/el-debate-sobre-un-nuevo-estadio-para-el-alaves-vuelve-a-la-palestra/)
+
+
 ### can 2025 (N/A, Mon, 15 Dec 2025 03:10:00 -0800)
 
 - **CAN 2025: CAF sets stadium rules in Morocco**: [Link](https://ca.sports.yahoo.com/news/2025-caf-sets-stadium-rules-103000276.html)
