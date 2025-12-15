@@ -1,3 +1,24 @@
+### arabie saoudite (N/A, Mon, 15 Dec 2025 10:30:00 -0800)
+
+- **L'Arabie saoudite a exécuté 340 personnes en 2025, un nouveau record**: [Link](https://www.franceinfo.fr/monde/moyen-orient/l-arabie-saoudite-a-execute-340-personnes-en-2025-un-nouveau-record_7680925.html)
+- **340 personnes condamnées à mort exécutées en 2025 en Arabie saoudite**: [Link](https://www.valeursactuelles.com/monde/arabie-saoudite-340-personnes-condamnees-a-mort-ont-ete-executees-en-2025)
+- **Arabie saoudite : 340 personnes ont été exécutées en 2025, un nouveau record**: [Link](https://www.cnews.fr/monde/2025-12-15/arabie-saoudite-340-personnes-ont-ete-executees-en-2025-un-nouveau-record-1786083)
+
+
+### cesc fabregas (N/A, Mon, 15 Dec 2025 09:50:00 -0800)
+
+- **CAN 2025: Assane Diao called up by Senegal, Cesc Fàbregas left fuming**: [Link](https://ca.sports.yahoo.com/news/2025-assane-diao-called-senegal-070000416.html)
+- **Como Coach Fabregas Upset Over Diaw's AFCON Call-Up**: [Link](https://m.elbotola.com/en/article/2025-12-13-21-33-620.html)
+- **CAN 2025: Cesc Fàbregas opposes Assane Diao's call-up**: [Link](https://foot-africa.com/en/news/can-2025-cesc-fabregas-opposes-assane-diaos-call-up-1001501/)
+
+
+### saudi arabia (N/A, Mon, 15 Dec 2025 08:30:00 -0800)
+
+- **Cardi B, Davido perform at Saudi Arabia’s Soundstorm festival**: [Link](https://punchng.com/cardi-b-davido-perform-at-saudi-arabias-soundstorm-festival/)
+- **Cardi B Says She Wasn't Paid for Saudi Arabia 'Promo' Des...**: [Link](https://www.complex.com/music/a/tracewilliamcowen/cardi-b-saudi-arabia-promo)
+- **Cardi B gave us a lesson in making modest fashion sexy during her recent visit to Saudi Arabia**: [Link](https://creators.yahoo.com/lifestyle/story/cardi-b-gave-us-a-lesson-in-making-modest-fashion-sexy-during-her-recent-visit-to-saudi-arabia-101300542.html)
+
+
 ### عموتة (N/A, Mon, 15 Dec 2025 09:40:00 -0800)
 
 - **عموتة يكشف سبب الرحيل عن الوداد**: [Link](https://www.hespress.com/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B9%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1669076.html)
