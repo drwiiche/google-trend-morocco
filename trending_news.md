@@ -1,3 +1,31 @@
+### الطقس (N/A, Sun, 14 Dec 2025 22:10:00 -0800)
+
+- **المغرب يسجل تساقطات ثلجية كثيفة .. ورزازات وتنغير في الصدارة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AC%D9%84-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D9%88%D8%B1%D8%B2%D8%A7%D8%B2-1670870.html)
+- **يوعابد: اضطرابات جوية وكتل باردة ستؤثر على أجواء المملكة خلال بداية الأسبوع**: [Link](https://ar.telquel.ma/%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D9%88%D9%83%D8%AA%D9%84-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D8%B3%D8%AA%D8%A4%D8%AB%D8%B1/)
+- **فيديو: طقس ممطر وتساقطات ثلجية مرتقبة بعدد من مناطق المملكة**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B7%D9%82%D8%B3-%D9%85%D9%85%D8%B7%D8%B1-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-20251214)
+
+
+### rob reiner (N/A, Sun, 14 Dec 2025 22:10:00 -0800)
+
+- **Rob Reiner, Legendary Comedic Actor and ‘Princess Bride’ Director, Found Dead in His Home**: [Link](https://variety.com/2025/film/news/rob-reiner-dead-princess-bride-spinal-tap-1236608541/)
+- **Director Rob Reiner and wife Michele Singer stabbed to death in Brentwood home, sources tell ABC News**: [Link](https://abc7.com/post/2-found-dead-brentwood-home-owned-director-rob-reiner-lapd-launches-murder-investigation/18287399/)
+- **Rob Reiner, wife confirmed dead in homicide at Brentwood home; police interview family member**: [Link](https://www.latimes.com/california/story/2025-12-14/2-found-dead-at-home-of-rob-reiner)
+
+
+### météo (N/A, Sun, 14 Dec 2025 22:00:00 -0800)
+
+- **Pluie, redoux persistant... Quelle météo cette semaine en Seine-Maritime ?**: [Link](https://actu.fr/meteo/pluie-redoux-persistant-quelle-meteo-cette-semaine-en-seine-maritime_63574621.html)
+- **MÉTÉO. Ce jeudi en Normandie, brouillard en matinée puis un après-midi souvent maussade**: [Link](https://france3-regions.franceinfo.fr/normandie/meteo-ce-jeudi-en-normandie-brouillard-en-matinee-puis-un-apres-midi-souvent-maussade-3264344.html)
+- **Météo. Après le redoux humide, à quel temps s’attendre ces prochains jours en Normandie ?**: [Link](https://saint-lo.maville.com/actu/actudet_-meteo.-apres-le-redoux-humide-a-quel-temps-s-attendre-ces-prochains-jours-en-normandie-_fil-7097882_actu.Htm)
+
+
+### weather (N/A, Sun, 14 Dec 2025 22:00:00 -0800)
+
+- **Fire danger warnings and extreme heat to affect parts of South Africa on Monday**: [Link](https://www.citizen.co.za/news/south-africa/weather/fire-danger-warnings-extreme-heat-south-africa-monday/)
+- **Monday’s weather: Heatwave conditions in Cape regions, isolated showers elsewhere**: [Link](https://www.news24.com/southafrica/weather/mondays-weather-heatwave-conditions-in-cape-regions-isolated-showers-elsewhere-20251214-0986)
+- **Warm along the coast today but hot as hell in the Karoo**: [Link](https://www.knysnaplettherald.com/News/Article/Local-News/hot-weather-along-the-coast-with-even-hotter-conditions-over-the-karoo-202512111157)
+
+
 ### حالة الطقس (N/A, Sun, 14 Dec 2025 21:30:00 -0800)
 
 - **«البيئة» ترصد هطول أمطار في 5 مناطق تتصدرها الرياض بكميات 12 ملم في شقراء**: [Link](https://www.al-jazirah.com/2025/20251214/ln10.htm)
