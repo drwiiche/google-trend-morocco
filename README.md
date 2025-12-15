@@ -1,3 +1,10 @@
+### match maroc uae (N/A, Mon, 15 Dec 2025 05:40:00 -0800)
+
+- **Coupe Arabe 2025. Maroc-EAU. Des remplaçants irremplaçables**: [Link](https://medias24.com/2025/12/15/coupe-arabe-2025-maroc-eau-des-remplacants-irremplacables-1595855/)
+- **DIRECT. Maroc-Émirats arabes unis: suivez la demi-finale de Coupe arabe en live**: [Link](https://rmcsport.bfmtv.com/football/equipe-maroc/direct-maroc-emirats-arabes-unis-suivez-la-demi-finale-de-coupe-arabe-en-live_LS-202512150435.html)
+- **Coupe arabe : les révélations de Tarik Sektioui avant la demi-finale face aux EAU**: [Link](https://lematin.ma/sports/coupe-arabe-les-revelations-de-tarik-sektioui-avant-la-demi-finale/319021)
+
+
 ### توقيت مباراة المغرب اليوم (N/A, Mon, 15 Dec 2025 04:40:00 -0800)
 
 - **بث مباشر: شاهد مباراة المغرب والإمارات في نصف نهائي كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/blt8fc5899901538281)
