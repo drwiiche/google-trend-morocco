@@ -1,3 +1,10 @@
+### franco mastantuono (N/A, Mon, 15 Dec 2025 00:40:00 -0800)
+
+- **Franco Mastantuono volvió a jugar en el Real Madrid tras un mes y medio: la reacción de los medios españoles**: [Link](https://tn.com.ar/deportes/futbol/2025/12/14/franco-mastantuono-volvio-a-jugar-en-el-real-madrid-tras-un-mes-y-medio-la-reaccion-de-los-medios-espanoles/)
+- **Atento, Scaloni: la última decisión de Xabi Alonso con Mastantuono en Real Madrid**: [Link](https://tntsports.com.ar/internacional/lionel-scaloni-decision-xabi-alonso-franco-mastantuono-real-madrid-20251214-0061.html)
+- **Sin minutos en el Real Madrid, la tajante decisión de Mastantuono**: [Link](https://www.corrienteshoy.com/deportes/sin-minutos-en-el-real-madrid-la-tajante-decision-de-mastantuono.htm)
+
+
 ### goud (N/A, Mon, 15 Dec 2025 00:30:00 -0800)
 
 - **De Zuid-Afrikaanse rand wint terrein nu goud glanst en beleggers hun blik richten op de laatste economische cijfers van het jaar**: [Link](https://nl.marketscreener.com/beursnieuws/de-zuid-afrikaanse-rand-wint-terrein-nu-goud-glanst-en-beleggers-hun-blik-richten-op-de-laatste-econ-ce7d50d8d08bff22)
