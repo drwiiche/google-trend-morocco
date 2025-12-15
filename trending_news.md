@@ -1,3 +1,73 @@
+### sports (N/A, Mon, 15 Dec 2025 07:20:00 -0800)
+
+- **Vikings, Timberwolves, Wild make Minnesota sports history not done since 2003**: [Link](https://sports.yahoo.com/articles/vikings-timberwolves-wild-minnesota-sports-142746232.html)
+- **Vikings Help Pull Off Trifecta Not Seen In 22 Years**: [Link](https://www.dailynorseman.com/minnesota-vikings-2025-season/93765/vikings-help-pull-off-trifecta-not-seen-in-22-years)
+- **Timberwolves, Wild, And Vikings All Win On The Same Day For The First Time Since 2003**: [Link](https://minnesotasnewcountry.com/timberwolves-wild-vikings-trifecta/)
+
+
+### flashscore (N/A, Mon, 15 Dec 2025 07:10:00 -0800)
+
+- **Messi: Football icon wraps up India tour with Delhi visit**: [Link](https://www.bbc.com/news/articles/cdxwg94v4veo)
+- **2 GOATS In 1 Frame! Wankhede Stands To Epic Lionel Messi, Sachin Tendulkar Meet**: [Link](https://sports.ndtv.com/football/2-goats-in-1-frame-wankhede-stands-to-epic-lionel-messi-sachin-tendulkar-meet-9808390)
+- **Crowd boos at Bollywood actors Tiger Shroff and Ajay Devgn at Lionel Messi's Mumbai event; take a look | Hindustan Times**: [Link](https://www.hindustantimes.com/htcity/leisure/crowd-boos-bollywood-actors-tiger-shroff-and-ajay-devgn-at-lionel-messis-mumbai-event-lionel-messi-india-tour-101765721814783.html)
+
+
+### bet365 (N/A, Mon, 15 Dec 2025 07:10:00 -0800)
+
+- **bet365 Bonus Code HANDLE: Get $150 in Bonus Bets for Monday Night Football**: [Link](https://sportshandle.com/bet365-bonus-code-handle-offers-150-in-bonus-bets-for-monday-night-football-dolphins-vs-steelers/)
+- **Bet365 Promo Code AMNY365: Claim $150 Bonus for Army-Navy, NCAAB, NBA Cup**: [Link](https://www.amny.com/sports/bet365-promo-code-amny365-claim-150-bonus-for-army-navy-ncaab-nba-cup/)
+- **Bet365 Bonus Code COVERS: Get $150 Betting Bonus for Lions vs. Rams**: [Link](https://www.covers.com/daily-promos/bet365-bonus-code-nfl-lions-rams-12-14-2025)
+
+
+### radio mars (N/A, Mon, 15 Dec 2025 07:10:00 -0800)
+
+- **كأس أفريقيا| قرار مفاجئ يُشعل الانتقادات في الكاميرون**: [Link](https://www.radiomars.ma/%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%8A%D9%8F%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF/)
+- **وصول أول فوج من لاعبي المنتخب الكاميروني إلى المغرب**: [Link](https://rue20.com/960585.html)
+- **الكاميرون على حافة الهاوية.. مدربان وقائمتان وفوضى علنية ق?...**: [Link](https://kech24.com/%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%B9%D9%84%D9%89-%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D9%87%D8%A7%D9%88%D9%8A%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8%D8%A7%D9%86-%D9%88%D9%82%D8%A7%D8%A6%D9%85%D8%AA%D8%A7%D9%86-%D9%88%D9%81%D9%88%D8%B6%D9%89-%D8%B9%D9%84%D9%86%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D9%80%D8%A7%D9%86.html)
+
+
+### match today (N/A, Mon, 15 Dec 2025 07:10:00 -0800)
+
+- **Panthers make final stop of encouraging road trip in Tampa against rival Lightning**: [Link](https://sports.yahoo.com/articles/panthers-final-stop-encouraging-road-120002436.html)
+- **Top Shelf Picks: NHL Best Bets Today (Predictions for Panthers-Lightning, Jets-Senators, Kings-Stars)**: [Link](https://www.si.com/betting/nhl-best-bets-today-predictions-for-panthers-lightning-jets-senators-kings-stars)
+- **The NHL's best this week: Get set for the next round of the Battle of Florida**: [Link](https://www.espn.com.au/nhl/story/_/id/47302404/nhl-2025-26-best-games-week-battle-florida-panthers-lightning-rivalry-matchup)
+
+
+### maroc (N/A, Mon, 15 Dec 2025 07:00:00 -0800)
+
+- **Intempéries à Safi : le bilan passe à 37 morts - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2025/12/15/intemperies-a-safi-le-bilan-passe-a-37-morts-1595917/)
+- **Inondations à Safi : le bilan monte à 37 morts et 14 blessés, les secours toujours à pied d’œuvre**: [Link](https://lematin.ma/regions/inondations-a-safi-le-bilan-monte-a-37-morts-et-14-blesses/319067)
+- **Intempéries : Suspension des cours pour trois jours dans l’ensemble des établissements scolaires de la province de Safi**: [Link](https://mobile.telquel.ma/instant-t/2025/12/15/intemperies-suspension-des-cours-pour-trois-jours-dans-lensemble-des-etablissements-scolaires-de-la-province-de-safi_1965378/)
+
+
+### كورة (N/A, Mon, 15 Dec 2025 07:00:00 -0800)
+
+- **قصة وعد فليك مدرب برشلونة بعد الخسارة أمام تشلسي في أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2025/12/14/%D9%82%D8%B5%D8%A9-%D9%88%D8%B9%D8%AF-%D9%81%D9%84%D9%8A%D9%83-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9)
+- **برقم تهديفي مذهل.. فليك يحيي ذكريات إنريكي مع برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D9%82%D9%85-%D8%AA%D9%87%D8%AF%D9%8A%D9%81%D9%8A-%D9%85%D8%B0%D9%87%D9%84--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AD%D9%8A%D9%8A-%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltdce5e932d7bb2063)
+- **هل برشلونة هذا الموسم مثل الموسم الماضي؟**: [Link](https://hihi2.com/2025/12/15/p3559489.html)
+
+
+### live (N/A, Mon, 15 Dec 2025 07:00:00 -0800)
+
+- **8 Comedy Stars Who Somehow Never Appeared on ‘Saturday Night Live’**: [Link](https://www.vice.com/en/article/comedy-stars-who-never-appeared-on-saturday-night-live/)
+- **Amazon has Nintendo Switch games up to 57% off after Black Friday — and they’ll arrive before Christmas**: [Link](https://www.nj.com/shopping-deals/2025/12/amazon-has-nintendo-switch-games-up-to-57-off-after-black-friday-and-theyll-arrive-before-christmas.html)
+- **Woot’s updated mega gaming sale live at up to 85% off peripherals, PS5/Xbox/Switch games, more from just $3**: [Link](https://9to5toys.com/2025/12/15/woot-updated-mega-gaming-sale-live-at-up-to-85-off/)
+
+
+### ماتش اليوم (N/A, Mon, 15 Dec 2025 07:00:00 -0800)
+
+- **موعد مباراة منتخبي المغرب والإمارات**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%88%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7-1670292.html)
+- **فيديو يكشف سر تألق حارس الإمارات في ليلة إقصاء الجزائر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D8%AA%D8%A7%D9%94%D9%84%D9%82-%D8%AD%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%95%D9%82%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1/blta6106850101a67bf)
+- **كأس العرب| إقصاء واستقالة في ليلة واحدة**: [Link](https://www.radiomars.ma/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D9%88%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9/)
+
+
+### match (N/A, Mon, 15 Dec 2025 06:50:00 -0800)
+
+- **WWE star John Cena retires from wrestling after submission loss**: [Link](https://www.espn.com/wwe/story/_/id/47299812/wwe-star-john-cena-retires-wrestling-submission-loss)
+- **‘Win or lose, it didn’t matter’: Fans react to John Cena’s final match in DC**: [Link](https://wtop.com/dc/2025/12/win-or-lose-it-didnt-matter-fans-react-to-john-cenas-final-match-in-dc/)
+- **John Cena loses to Gunther in final WWE match, stunning fans**: [Link](https://www.foxnews.com/sports/john-cena-loses-gunther-final-wwe-match-stunning-fans)
+
+
 ### alkass (N/A, Mon, 15 Dec 2025 06:50:00 -0800)
 
 - **عاجل: Al Kass تكسر الاحتكار... بث مجاني كامل لكأس العرب 2025 بجودة 4K!**: [Link](https://yemen-press.net/news152418.html)
