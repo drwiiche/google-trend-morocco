@@ -1,3 +1,10 @@
+### roma (N/A, Mon, 15 Dec 2025 12:20:00 -0800)
+
+- **I convocati giallorossi per Roma-Como**: [Link](https://www.asroma.com/it/notizie/74467/i-convocati-giallorossi-per-roma-como)
+- **Tutte le news sul calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-news-a-breve-in-campo-roma-como-dal-primo-ferguson-e-baturina/vNV8A0Sb/)
+- **Fabregas: “Gasperini una leggenda. Questo è un test per me e per la società”**: [Link](https://www.forzaroma.info/news-as-roma/fabregas-gasperini-una-leggenda-questo-e-un-test-per-me-e-per-la-societa/)
+
+
 ### الطقس غدًا (N/A, Mon, 15 Dec 2025 11:50:00 -0800)
 
 - **«الجو هيقلب».. تحذير من حالة الطقس اليوم: أمطار تصل لحد السيول**: [Link](https://www.almasryalyoum.com/news/details/4151589)
