@@ -1,3 +1,24 @@
+### مان يونايتد ضد بورنموث (N/A, Mon, 15 Dec 2025 11:30:00 -0800)
+
+- **مانشستر يونايتد يسعى إلى الفوز عندما يستقبل بورنموث**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-2025-12-15)
+- **كونيا يقود هجوم مانشستر يونايتد أمام بورنموث**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D9%86%D9%8A%D8%A7-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB/blt6e919689b9d86b9a)
+- **أموريم: سنضطر لتعديل طريقة لعبنا قليلًا بسبب رحيل اللاعبين إلى كأس أمم إفريقيا**: [Link](https://www.cairo24.com/2335682)
+
+
+### fifa arab cup final (N/A, Mon, 15 Dec 2025 11:30:00 -0800)
+
+- **MENA Sports Wrap: Arab Cup kicks off with Syria, Palestine wins**: [Link](https://www.newarab.com/news/mena-sports-wrap-arab-cup-kicks-syria-palestine-wins)
+- **Video. Arab Cup Matchday Two starts at Lusail Boulevard fan zone**: [Link](https://www.euronews.com/video/2025/12/04/arab-cup-matchday-two-kicks-off-at-lusail-boulevard-fan-zone)
+- **QIIB Signs Partnership With Al Kass Sports Channels For FIFA Arab Cup Qatar 2025**: [Link](https://menafn.com/1110423804/QIIB-Signs-Partnership-With-Al-Kass-Sports-Channels-For-FIFA-Arab-Cup-Qatar-2025)
+
+
+### saudi (N/A, Mon, 15 Dec 2025 10:30:00 -0800)
+
+- **Avents Plus Strengthens Presence in Saudi Arabia with Comprehensive Event, AV, and Interpretation Solutions**: [Link](https://natlawreview.com/press-releases/avents-plus-strengthens-presence-saudi-arabia-comprehensive-event-av-and)
+- **Avents Plus Strengthens Presence in Saudi Arabia with Comprehensive Event, AV, and Interpretation Solutions**: [Link](https://www.mywabashvalley.com/business/press-releases/ein-presswire/875327045/avents-plus-strengthens-presence-in-saudi-arabia-with-comprehensive-event-av-and-interpretation-solutions)
+- **‘Hijra’: Saudi Arabia’s 2026 International Feature Submission Is a Journey Through Generations, Landscapes and Identity**: [Link](https://variety.com/2025/biz/news/hijra-saudi-film-representing-saudi-arabia-awards-season-race-1236602810/)
+
+
 ### manchester united – bournemouth (N/A, Mon, 15 Dec 2025 11:20:00 -0800)
 
 - **Manchester United vs AFC Bournemouth LIVE: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c4g6jvj3d75t)
