@@ -1,3 +1,38 @@
+### alkass (N/A, Mon, 15 Dec 2025 06:50:00 -0800)
+
+- **عاجل: Al Kass تكسر الاحتكار... بث مجاني كامل لكأس العرب 2025 بجودة 4K!**: [Link](https://yemen-press.net/news152418.html)
+- **تردد قناة الكأس القطرية الرياضية ELKAAS 2026 على نايل سات وعرب سات وسهيل سات.. شاهد جميع المباريات مباشرة بجودة HD بنقرة واحدة**: [Link](https://jarida.onl/1192/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-elkaas-2026-%D8%B9%D9%84/)
+- **«تردد الكأس الجديد» لمتابعة أبرز الدوريات في الخليج وآسيا**: [Link](https://cias.uc.pt/ar/details/5958)
+
+
+### match live (N/A, Mon, 15 Dec 2025 06:40:00 -0800)
+
+- **WWE star John Cena retires from wrestling after submission loss**: [Link](https://www.espn.com/wwe/story/_/id/47299812/wwe-star-john-cena-retires-wrestling-submission-loss)
+- **‘Win or lose, it didn’t matter’: Fans react to John Cena’s final match in DC**: [Link](https://wtop.com/dc/2025/12/win-or-lose-it-didnt-matter-fans-react-to-john-cenas-final-match-in-dc/)
+- **John Cena loses to Gunther in final WWE match, stunning fans**: [Link](https://www.foxnews.com/sports/john-cena-loses-gunther-final-wwe-match-stunning-fans)
+
+
+### مباراة اليوم (N/A, Mon, 15 Dec 2025 06:40:00 -0800)
+
+- **بايرن ميونخ ودورتموند يواصلان مسلسل إهدار النقاط بالدوري الألماني**: [Link](https://www.aljazeera.net/sport/2025/12/14/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%88%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%8A%D9%88%D8%A7%D8%B5%D9%84%D8%A7%D9%86-%D9%85%D8%B3%D9%84%D8%B3%D9%84)
+- **بايرن ميونخ يدون رقمًا قياسيًا جديدًا في البوندسليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%8A%D8%AF%D9%88%D9%86-%D8%B1%D9%82%D9%85%D9%8B%D8%A7-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%88%D9%86%D8%AF%D8%B3%D9%84%D9%8A%D8%AC%D8%A7/bltb3ae4d0d4d54de96)
+- **قدم.. هاري كين ينقذ بايرن ميونخ من الخسارة أمام ماينز**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D9%8A%D9%86%D9%82%D8%B0-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%85%D9%86-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%8A%D9%86%D8%B2/3771266)
+
+
+### shahid (N/A, Mon, 15 Dec 2025 06:40:00 -0800)
+
+- **Kareena Kapoor, Ajay Devgn and Tiger Shroff meet Lionel Messi in Mumbai during packed GOAT India Tour stop**: [Link](https://www.easterneye.biz/kareena-kapoor-ajay-devgn-and-tiger-shroff-meet-lionel-messi-in-mumbai-during-packed-goat-india-tour-stop/)
+- **Kareena Kapoor Khan revisits an archival Valentino skirt set designed by Valentino Garavani himself**: [Link](https://www.vogue.in/content/kareena-kapoor-khan-revisits-an-archival-valentino-skirt-set-designed-by-valentino-garavani-himself)
+- **Jannat Zubair and Elvish Yadav meet Messi, call it an 'amazing day'**: [Link](https://www.cityairnews.com/content/jannat-zubair-and-elvish-yadav-meet-messi-call-it-an-amazing-day)
+
+
+### bein sport live (N/A, Mon, 15 Dec 2025 06:20:00 -0800)
+
+- **Greenwood nets Ligue 1 best 11th in Marseille win**: [Link](https://www.espn.com/soccer/story/_/id/47307745/mason-greenwood-nets-11th-ligue-1-goal-marseille-win)
+- **OM: Nayef Aguerd and Aubameyang included in squad to face AS Monaco ahead of AFCON 2025**: [Link](https://foot-africa.com/en/news/om-nayef-aguerd-and-aubameyang-included-in-squad-to-face-as-monaco-ahead-of-afcon-2025-1001828/)
+- **France League One Soccer**: [Link](https://lufkindailynews.com/anpa/sports/france-league-one-soccer/image_b75d7eea-9e1c-5123-ad98-8b64d751cfa6.html)
+
+
 ### yalla kora (N/A, Mon, 15 Dec 2025 06:30:00 -0800)
 
 
