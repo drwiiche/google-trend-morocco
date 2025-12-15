@@ -1,3 +1,10 @@
+### maroc vs jordanie (N/A, Mon, 15 Dec 2025 11:30:00 -0800)
+
+- **Coupe Arabe de la FIFA: Maroc-Jordanie en finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%81%D9%8A/)
+- **Renard, avec humour : « Al-Salmi est un de mes amis proches, mais son parcours en Coupe arabe doit s’arrêter là**: [Link](https://m.elbotola.com/fr/article/2025-12-14-18-33-447.html)
+- **Coupe Arabe 2025 : le Maroc fixé sur son adversaire en finale, la Jordanie élimine l’Arabie saoudite**: [Link](https://lematin.ma/sports/coupe-arabe-2025-le-maroc-fixe-sur-son-adversaire-en-finale/319253)
+
+
 ### roma (N/A, Mon, 15 Dec 2025 12:20:00 -0800)
 
 - **I convocati giallorossi per Roma-Como**: [Link](https://www.asroma.com/it/notizie/74467/i-convocati-giallorossi-per-roma-como)
