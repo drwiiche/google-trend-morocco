@@ -1,3 +1,10 @@
+### can 2025 (N/A, Mon, 15 Dec 2025 03:10:00 -0800)
+
+- **CAN 2025: CAF sets stadium rules in Morocco**: [Link](https://ca.sports.yahoo.com/news/2025-caf-sets-stadium-rules-103000276.html)
+- **FULL LIST: Alcohol, animals, other items prohibited inside AFCON 2025 stadiums**: [Link](https://punchng.com/full-list-alcohol-animals-other-items-prohibited-inside-afcon-2025-stadiums/)
+- **FULL LIST: Alcohol, Bags, Other Items Prohibited By CAF During AFCON 2025 Games**: [Link](https://www.tvcnews.tv/full-list-alcohol-bags-other-items-prohibited-by-caf-during-afcon-2025-games/)
+
+
 ### bmci (N/A, Mon, 15 Dec 2025 01:40:00 -0800)
 
 - **Ce que pèserait l’ensemble Crédit du Maroc-BMCI en cas de fusion**: [Link](https://lematin.ma/economie/ce-que-peserait-lensemble-credit-du-maroc-bmci-en-cas-de-fusion/319004)
