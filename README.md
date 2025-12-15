@@ -1,3 +1,24 @@
+### jordanie vs arabie saoudite (N/A, Mon, 15 Dec 2025 09:20:00 -0800)
+
+- **Renard, avec humour : « Al-Salmi est un de mes amis proches, mais son parcours en Coupe arabe doit s’arrêter là**: [Link](https://m.elbotola.com/fr/article/2025-12-14-18-33-447.html)
+- **Coupe arabe: l'Arabie saoudite file en demi-finale après un match à suspense face à la Palestine**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
+- **Où regarder en direct Arabie Saoudite – Jordanie ce lundi ?**: [Link](https://www.lapresse.tn/2025/12/15/ou-regarder-en-direct-arabie-saoudite-jordanie-ce-lundi/)
+
+
+### نشرة إنذارية للأرصاد الجوية (N/A, Mon, 15 Dec 2025 09:20:00 -0800)
+
+- **نشرة إنذارية: زخات رعدية وتساقطات ثلجية اليوم بعدد من مناطق المملكة**: [Link](https://ar.telquel.ma/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D9%85%D8%AA/)
+- **المديرية العامة للأرصاد الجوية تحذر من استمرار الأمطار والتساقطات الثلجية**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%84%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-20251215)
+- **نشرة إنذارية محينة: عواصف ثلجية وأمطار رعدية ورياح قوية في 30 إقليما بالمغرب**: [Link](https://al3omk.com/1124020.html)
+
+
+### السعودية ضد الاردن (N/A, Mon, 15 Dec 2025 08:30:00 -0800)
+
+- **مباشر مباراة الأردن ضد السعودية بنصف نهائي كأس العرب**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/15/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%83%D8%A3%D8%B3)
+- **وزير الرياضة يحفّز لاعبي السعودية لعبور الأردن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D9%8A%D8%AD%D9%81%D9%91%D8%B2-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%84%D8%B9%D8%A8%D9%88%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86/blt30042ed969f15834)
+- **رونار: السلامي صديقي لكن عليه التوقف**: [Link](https://www.hespress.com/%D8%B1%D9%88%D9%86%D8%A7%D8%B1-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%B5%D8%AF%D9%8A%D9%82%D9%8A-%D9%84%D9%83%D9%86-%D8%B9%D9%84%D9%8A%D9%87-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D9%81-1671033.html)
+
+
 ### fenerbahçe – konyaspor (N/A, Mon, 15 Dec 2025 08:30:00 -0800)
 
 - **Fenerbahçe–Konyaspor maçı: Nene, Semedo ve En-Nesyri neden yok?**: [Link](https://oxu.az/tr/spor/fenerbahce-konyaspor-maci-nene-semedo-ve-en-nesyri-neden-yok)
