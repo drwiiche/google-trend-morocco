@@ -1,3 +1,10 @@
+### man united (N/A, Mon, 15 Dec 2025 13:10:00 -0800)
+
+- **'Not good enough' - Amorim admits he and Man Utd are 'underachieving'**: [Link](https://www.bbc.com/sport/football/articles/c5yq2qydly7o)
+- **FOOTBALL DAILY | Amorim feeling the Manchester heat, Pep's London City-slickers, Rodgers off to Saudi and Bohs launch their Kneecap jersey**: [Link](https://www.offtheball.com/podcasts/otb-football/football-daily-amorim-feeling-the-manchester-heat-peps-london-city-slickers-rodgers-off-to-saudi-and-bohs-launch-their-kneecap-jersey)
+- **Scholes Claims Amorim ‘Isn’t the Right Man’ for Man United**: [Link](https://sports.yahoo.com/articles/scholes-claims-amorim-isn-t-185734748.html)
+
+
 ### maroc vs jordanie (N/A, Mon, 15 Dec 2025 11:30:00 -0800)
 
 - **Coupe Arabe de la FIFA: Maroc-Jordanie en finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%81%D9%8A/)
