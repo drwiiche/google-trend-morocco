@@ -1,3 +1,10 @@
+### match maroc aujourd'hui (N/A, Mon, 15 Dec 2025 06:00:00 -0800)
+
+- **Coupe Arabe 2025. Maroc-EAU. Des remplaçants irremplaçables**: [Link](https://medias24.com/2025/12/15/coupe-arabe-2025-maroc-eau-des-remplacants-irremplacables-1595855/)
+- **Coupe arabe : les révélations de Tarik Sektioui avant la demi-finale face aux EAU**: [Link](https://lematin.ma/sports/coupe-arabe-les-revelations-de-tarik-sektioui-avant-la-demi-finale/319021)
+- **Coupe Arabe de la FIFA Qatar-2025: le Maroc joue face aux E.A.U en demi-finales**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/)
+
+
 ### match maroc uae (N/A, Mon, 15 Dec 2025 05:40:00 -0800)
 
 - **Coupe Arabe 2025. Maroc-EAU. Des remplaçants irremplaçables**: [Link](https://medias24.com/2025/12/15/coupe-arabe-2025-maroc-eau-des-remplacants-irremplacables-1595855/)
