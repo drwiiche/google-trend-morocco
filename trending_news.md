@@ -1,3 +1,38 @@
+### fenerbahçe – konyaspor (N/A, Mon, 15 Dec 2025 08:30:00 -0800)
+
+- **Fenerbahçe–Konyaspor maçı: Nene, Semedo ve En-Nesyri neden yok?**: [Link](https://oxu.az/tr/spor/fenerbahce-konyaspor-maci-nene-semedo-ve-en-nesyri-neden-yok)
+- **Fenerbahçe farkı yeniden 3'e indirmek için sahada, ilk 11'ler belli oldu**: [Link](https://www.ntv.com.tr/sporskor/fenerbahce-farki-yeniden-3e-indirmek-icin-sahada-ilk-11-belli-oldu-1703207)
+- **Çağdaş Atan: "Fenerbahçe'nin biraz daha yıpranmasını beklerdik"**: [Link](https://beinsports.com.tr/haber/cagdas-atan-fenerbahcenin-biraz-daha-yipranmasini-beklerdik)
+
+
+### نتائج مباريات اليوم (N/A, Mon, 15 Dec 2025 08:30:00 -0800)
+
+- **مواعيد مباريات اليوم الإثنين 15-12-2025 والقنوات الناقلة.. المغرب ضد الإمارات والسعودية تواجه الأردن**: [Link](https://www.btolat.com/news/387781)
+- **ابرز الاحداث الرياضية ليوم الثلاثاء في 09-12-2025**: [Link](https://www.elsport.com/news/show/803326/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-09-12-2025)
+- **مواعيد مباريات اليوم الاثنين 15 ديسمبر.. نصف نهائي كأس العرب.. ومانشستر يونايتد**: [Link](https://www.filgoal.com/articles/519213)
+
+
+### jordan (N/A, Mon, 15 Dec 2025 08:30:00 -0800)
+
+- **Game Recap: Trail Blazers 136, Warriors 131**: [Link](https://www.nba.com/watch/video/game-recap-trail-blazers-136-warriors-131)
+- **Curry sizzles but Warriors fizzle and fall below .500 with loss in Portland**: [Link](https://www.sfchronicle.com/sports/warriors/article/curry-sizzles-warriors-fizzle-fall-500-portland-l-21242356.php)
+- **Blazers Survive Curry’s Big Night for Resilient Win: ‘We Needed It’**: [Link](https://www.blazersedge.com/from-press-row/106574/portland-trail-blazers-golden-state-warriors-recap-stephen-curry-jerami-grant-sharpe-nba-news)
+
+
+### score live (N/A, Mon, 15 Dec 2025 08:20:00 -0800)
+
+- **Preview: Porto vs Estrela Amadora - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/porto/preview/porto-vs-estrela-amadora-prediction-team-news-lineups_587767.html)
+- **João Nuno: “No one’s beaten FC Porto yet, we could be the first”**: [Link](https://onefootball.com/en/news/joao-nuno-no-ones-beaten-fc-porto-yet-we-could-be-the-first-42099884)
+- **Porto vs Estrela Amadora LIVE Score Updates in Portuguese League Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/15/1244614-porto-vs-estrela-amadora-live-score-portuguese-league.html)
+
+
+### match en direct aujourd'hui (N/A, Mon, 15 Dec 2025 08:20:00 -0800)
+
+- **Après Harlequins – Aviron Bayonnais : la pelle de Londres et l’appel au calme**: [Link](https://www.sudouest.fr/sport/rugby/aviron-bayonnais/apres-harlequins-aviron-bayonnais-la-pelle-de-londres-et-l-appel-au-calme-27100411.php)
+- **Champions Cup : Bayonne prend un énorme bouillon, Castres se lance**: [Link](https://www.eurosport.fr/rugby/investec-champions-cup/2025-2026/champions-cup-bayonne-prend-un-enorme-bouillon-castres-se-lance_sto23250643/story.shtml)
+- **OVALIE – Pau et Bayonne submergés. Dax avance, Biarritz et Mont de Marsan en panne**: [Link](https://presselib.com/article/ovalie-pau-et-bayonne-submerges-dax-avance-biarritz-et-mont-de-marsan-en-panne)
+
+
 ### morocco football (N/A, Mon, 15 Dec 2025 08:20:00 -0800)
 
 - **CAF launches The Ultimate Guide to the TotalEnergies CAF Africa Cup of Nations Morocco 2025 ahead of the continent’s biggest football celebration**: [Link](https://www.cafonline.com/afcon2025/news/caf-launches-the-ultimate-guide-to-the-totalenergies-caf-africa-cup-of-nations-morocco-2025-ahead-of-the-continent-s-biggest-football-celebration/)
