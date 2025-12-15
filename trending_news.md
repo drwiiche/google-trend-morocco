@@ -1,3 +1,24 @@
+### bourse de casablanca (N/A, Mon, 15 Dec 2025 01:10:00 -0800)
+
+- **Volume d’échanges à 2,24 MMDH, le MASI gagne du terrain**: [Link](https://www.leconomiste.com/flash-infos/volume-dechanges-a-224-mmdh-le-masi-gagne-du-terrain/)
+- **Bourse de Casablanca. Le MASI termine en hausse de 0,3%**: [Link](https://medias24.com/2025/12/12/bourse-de-casablanca-le-masi-termine-en-hausse-de-03-1595149/)
+- **La Bourse de Casablanca ouvre en baisse**: [Link](https://www.mapexpress.ma/actualite/economie-et-finance/bourse-casablanca-ouvre-en-baisse-29/)
+
+
+### alerte météo maroc (N/A, Mon, 15 Dec 2025 01:10:00 -0800)
+
+- **Fortes pluies, chutes de neige et vague de froid dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/alerte-meteo-fortes-pluies-et-vague-de-froid-dans-plusieurs-provinces/)
+- **Fortes pluies, chutes de neiges et fortes rafales de vent dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-et-chutes-de-neiges-des-ce-dimanche-dans-plusieurs-regions/319060)
+- **Alerte météo: pluies et chutes de neige jusqu'à mercredi**: [Link](https://medias24.com/2025/12/14/alerte-meteo-2-1595761/)
+
+
+### هسبريس (N/A, Mon, 15 Dec 2025 00:40:00 -0800)
+
+- **تحليل أمريكي: قراصنة مرتبطون بـ"حماس" يشنون هجمات على المغرب**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D9%84%D9%8A%D9%84-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%82%D8%B1%D8%A7%D8%B5%D9%86%D8%A9-%D9%85%D8%B1%D8%AA%D8%A8%D8%B7%D9%88%D9%86-%D8%A8%D9%80%D8%AD%D9%85%D8%A7%D8%B3-%D9%8A-1671051.html)
+- **مجموعة مرتبطة بحماس تشن هجمات سيبرانية على المغرب**: [Link](https://www.ariffino.net/%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9-%D9%88-%D9%85%D8%AC%D8%AA%D9%85%D8%B9/%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D9%85%D8%B1%D8%AA%D8%A8%D8%B7%D8%A9-%D8%A8%D8%AD%D9%85%D8%A7%D8%B3-%D8%AA%D8%B4%D9%86-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%B3%D9%8A%D8%A8%D8%B1%D8%A7%D9%86%D9%8A)
+- **جواسيس “حماس” بمؤسسات مغربية**: [Link](https://assabah.ma/888957.html)
+
+
 ### franco mastantuono (N/A, Mon, 15 Dec 2025 00:40:00 -0800)
 
 - **Franco Mastantuono volvió a jugar en el Real Madrid tras un mes y medio: la reacción de los medios españoles**: [Link](https://tn.com.ar/deportes/futbol/2025/12/14/franco-mastantuono-volvio-a-jugar-en-el-real-madrid-tras-un-mes-y-medio-la-reaccion-de-los-medios-espanoles/)
