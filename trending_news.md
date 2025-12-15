@@ -1,3 +1,17 @@
+### عموتة (N/A, Mon, 15 Dec 2025 09:40:00 -0800)
+
+- **عموتة يكشف سبب الرحيل عن الوداد**: [Link](https://www.hespress.com/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B9%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1669076.html)
+- **تصريحات عموتة واحترافية السلامي**: [Link](https://www.ammonnews.net/article/966822)
+- **البدري رداً على حسين عموتة: تصريحاتك كشفت ما بداخلك**: [Link](https://watananews.com/498946/)
+
+
+### arabie saoudite vs jordanie (N/A, Mon, 15 Dec 2025 09:30:00 -0800)
+
+- **Arabie saoudite-Jordanie, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/international/arabie-saoudite-jordanie-sur-quelle-chaine-voir-le-match-789991.html)
+- **Renard, avec humour : « Al-Salmi est un de mes amis proches, mais son parcours en Coupe arabe doit s’arrêter là**: [Link](https://m.elbotola.com/fr/article/2025-12-14-18-33-447.html)
+- **Coupe arabe: l'Arabie saoudite file en demi-finale après un match à suspense face à la Palestine**: [Link](https://rmcsport.bfmtv.com/football/direct-coupe-arabe-suivez-le-quart-de-finale-entre-la-palestine-et-l-arabie-saoudite-en-live_LS-202512110731.html)
+
+
 ### jordanie vs arabie saoudite (N/A, Mon, 15 Dec 2025 09:20:00 -0800)
 
 - **Renard, avec humour : « Al-Salmi est un de mes amis proches, mais son parcours en Coupe arabe doit s’arrêter là**: [Link](https://m.elbotola.com/fr/article/2025-12-14-18-33-447.html)
