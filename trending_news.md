@@ -1,3 +1,24 @@
+### manchester united – bournemouth (N/A, Mon, 15 Dec 2025 11:20:00 -0800)
+
+- **Manchester United vs AFC Bournemouth LIVE: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c4g6jvj3d75t)
+- **Manchester United’s Amad, Bryan Mbeumo available for Bournemouth game before AFCON - The Athletic**: [Link](https://www.nytimes.com/athletic/6875057/2025/12/15/amad-mbeumo-afcon-manchester-united-deadline/)
+- **Ref Watch: Was Bukayo Saka offside for Arsenal’s opener against Wolves?**: [Link](https://www.skysports.com/football/video/35798/13483593/ref-watch-was-bukayo-saka-offside-for-arsenal-s-opener-against-wolves)
+
+
+### rayo – betis (N/A, Mon, 15 Dec 2025 11:10:00 -0800)
+
+- **Martín Presa sí ataca a Pellegrini por Vallecas: «No está a la altura de él como entrenador»**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/martin-presa-ataca-pellegrini-vallecas-altura-entrenador-20251215173207-nts.html)
+- **Alineaciones confirmadas de Rayo Vallecano y Betis en la jornada 16 de LaLiga**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20251215/alineaciones-confirmadas-rayo-vallecano-betis-jornada-16-laliga_18_017867811.html)
+- **Íñigo Pérez: "¿Pellegrini? Es una absurdez quejarse de Vallecas"**: [Link](https://www.msn.com/es-es/noticias/videos/%C3%AD%C3%B1igo-p%C3%A9rez-pellegrini-es-una-absurdez-quejarse-de-vallecas/vi-AA1Sn3ff)
+
+
+### neil el aynaoui (N/A, Mon, 15 Dec 2025 10:20:00 -0800)
+
+- **CAN 2025 : Le Maroc récupère ses Lions de l’Atlas plus tôt**: [Link](https://lionsdelatlas.ma/can-2025-le-maroc-recupere-ses-lions-de-latlas-plus-tot/)
+- **El Aynaoui absent du match Roma-Como pour rejoindre le camp des "Lions" avant la CAN**: [Link](https://m.elbotola.com/fr/article/2025-12-15-11-15-235.html)
+- **Hugo Broos peu impressionné par la décision de la FIFA concernant la CAN**: [Link](https://foot-africa.com/actualites/hugo-broos-peu-impressionne-par-la-decision-de-la-fifa-concernant-la-can-1000628/)
+
+
 ### arabie saoudite (N/A, Mon, 15 Dec 2025 10:30:00 -0800)
 
 - **L'Arabie saoudite a exécuté 340 personnes en 2025, un nouveau record**: [Link](https://www.franceinfo.fr/monde/moyen-orient/l-arabie-saoudite-a-execute-340-personnes-en-2025-un-nouveau-record_7680925.html)
