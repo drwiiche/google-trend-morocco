@@ -1,3 +1,17 @@
+### saudi vs jordan (N/A, Mon, 15 Dec 2025 07:10:00 -0800)
+
+- **Salami: Not Thinking About Morocco Final Yet; Renard is a Respected Friend**: [Link](https://m.elbotola.com/en/article/2025-12-14-16-40-514.html)
+- **Saudi Arabia vs Jordan: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271886/saudi-arabia-vs-jordan-how-when-to-watch/)
+- **FIFA Arab Cup Qatar 2025™: Semi-Finals - Saudi Arabia vs Jordan**: [Link](https://www.iloveqatar.net/events/sports/fifa-arab-cup-qatar-2025-semi-finals-saudi-arabia-jordan)
+
+
+### uae (N/A, Mon, 15 Dec 2025 07:00:00 -0800)
+
+- **As Sudan burns, the NBA’s embrace of the UAE shows how sport enables atrocity**: [Link](https://www.theguardian.com/sport/2025/dec/13/nba-uae-sudan-sportswashing-rsf-war-crimes)
+- **The NBA Loves 'Social Justice' Until It's Time To Cash Checks From An Alleged Genocidal Regime**: [Link](https://www.outkick.com/sports/nba-emirates-sudan-genocide-allegations-refugees-international)
+- **The NBA’s Emirates Cup Has a Genocide Problem**: [Link](https://www.dailykos.com/stories/2025/12/12/2358134/-The-NBA-s-Emirates-Cup-Has-a-Genocide-Problem)
+
+
 ### sports (N/A, Mon, 15 Dec 2025 07:20:00 -0800)
 
 - **Vikings, Timberwolves, Wild make Minnesota sports history not done since 2003**: [Link](https://sports.yahoo.com/articles/vikings-timberwolves-wild-minnesota-sports-142746232.html)
