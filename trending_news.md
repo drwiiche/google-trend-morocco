@@ -1,3 +1,24 @@
+### goud (N/A, Mon, 15 Dec 2025 00:30:00 -0800)
+
+- **De Zuid-Afrikaanse rand wint terrein nu goud glanst en beleggers hun blik richten op de laatste economische cijfers van het jaar**: [Link](https://nl.marketscreener.com/beursnieuws/de-zuid-afrikaanse-rand-wint-terrein-nu-goud-glanst-en-beleggers-hun-blik-richten-op-de-laatste-econ-ce7d50d8d08bff22)
+- **Inflatieverwachtingen in Zuid-Afrika voor 2026 dalen na nieuwe doelstelling**: [Link](https://nl.investing.com/news/economic-indicators/inflatieverwachtingen-in-zuidafrika-voor-2026-dalen-na-nieuwe-doelstelling-93CH-669634)
+- **Sultan van Brunei betaalt $ 120 miljoen om zijn privéjet goud te maken**: [Link](https://www.pureluxe.nl/2025/12/sultan-brunei-privejet-goud/)
+
+
+### meteo maroc (N/A, Sun, 14 Dec 2025 23:40:00 -0800)
+
+- **Alerte météo : fortes pluies et vague de froid dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/alerte-meteo-fortes-pluies-et-vague-de-froid-dans-plusieurs-provinces/)
+- **Alerte météo: pluies et chutes de neige jusqu'à mercredi**: [Link](https://medias24.com/2025/12/14/alerte-meteo-2-1595761/)
+- **Fortes pluies, chutes de neiges et fortes rafales de vent dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-et-chutes-de-neiges-des-ce-dimanche-dans-plusieurs-regions/319060)
+
+
+### marouane chamakh (N/A, Sun, 14 Dec 2025 14:20:00 -0800)
+
+- **CAN 2025. Marouane Chamakh: «Je veux que le Maroc gagne, mais aussi un grand parcours de l’Algérie**: [Link](https://sport.le360.ma/football/can/can-2025-marouane-chamakh-je-veux-que-le-maroc-gagne-mais-aussi-un-grand-parcours-de-lalgerie_AX33XE4U45ETHJPAGLYQSPJPOU/)
+- **Coupe Arabe 2025 : Respect, échange de courtoisie, et soutien mutuel Algériens et Marocains solidaires**: [Link](https://africafootunited.com/coupe-arabe-2025-respect-echange-de-courtoisie-et-soutien-mutuel-algeriens-et-marocains-solidaires/)
+- **Entre l’Algérie et le Maroc, le football réussit là où la politique a échoué**: [Link](https://www.afrik-foot.com/entre-lalgerie-et-le-maroc-le-football-reussit-la-ou-la-politique-a-echoue)
+
+
 ### الطقس اليوم (N/A, Sun, 14 Dec 2025 23:00:00 -0800)
 
 - **عودة الأمطار بداية من الغد.. الأرصاد تحذر: انخفاض الحرارة إلى 10 درجات**: [Link](https://www.almasryalyoum.com/news/details/4150523)
