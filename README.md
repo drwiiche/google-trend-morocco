@@ -1,3 +1,10 @@
+### حالة الطقس (N/A, Sun, 14 Dec 2025 21:30:00 -0800)
+
+- **«البيئة» ترصد هطول أمطار في 5 مناطق تتصدرها الرياض بكميات 12 ملم في شقراء**: [Link](https://www.al-jazirah.com/2025/20251214/ln10.htm)
+- **الأرصاد تنبه: تحذيرات من أمطار غزيرة تستمر لـ "4 أيام متتالية" في المدينة المنورة**: [Link](https://gate-alsaudia.com/news56769.html)
+- **عاجل: نصف مليون مواطن في مواجهة "العاصفة المثالية" - الباحة تغرق والأرصاد تعلن أعلى درجات الخطر!**: [Link](https://yemen-press.net/news153387.html)
+
+
 ### classement deportivo alavés – real madrid (N/A, Sun, 14 Dec 2025 15:30:00 -0800)
 
 - **Real ease pressure on Alonso with crucial Alaves win**: [Link](https://www.bbc.com/sport/football/live/cvgkdewnv95t)
