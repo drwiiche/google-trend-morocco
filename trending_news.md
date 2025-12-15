@@ -1,3 +1,43 @@
+### yalla kora (N/A, Mon, 15 Dec 2025 06:30:00 -0800)
+
+
+
+
+### مباراة المغرب اليوم (N/A, Mon, 15 Dec 2025 06:20:00 -0800)
+
+- **بث مباشر: شاهد مباراة المغرب والإمارات في نصف نهائي كأس العرب 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/blt8fc5899901538281)
+- **بنعبيد يلامس التميز في كأس العرب**: [Link](https://www.hespress.com/%D8%A8%D9%86%D8%B9%D8%A8%D9%8A%D8%AF-%D9%8A%D9%84%D8%A7%D9%85%D8%B3-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D8%B2-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1671099.html)
+- **تشكيلة المنتخب المغربي أمام الإمارات.. حضور أساسي لباش وآزارو يقود الهجوم رفقة البركاوي**: [Link](https://m.elbotola.com/article/2025-12-15-12-40-250.html)
+
+
+### bein sports live (N/A, Mon, 15 Dec 2025 06:20:00 -0800)
+
+- **Greenwood nets Ligue 1 best 11th in Marseille win**: [Link](https://www.espn.com/soccer/story/_/id/47307745/mason-greenwood-nets-11th-ligue-1-goal-marseille-win)
+- **OM: Nayef Aguerd and Aubameyang included in squad to face AS Monaco ahead of AFCON 2025**: [Link](https://foot-africa.com/en/news/om-nayef-aguerd-and-aubameyang-included-in-squad-to-face-as-monaco-ahead-of-afcon-2025-1001828/)
+- **France League One Soccer**: [Link](https://lufkindailynews.com/anpa/sports/france-league-one-soccer/image_b75d7eea-9e1c-5123-ad98-8b64d751cfa6.html)
+
+
+### bein sports (N/A, Mon, 15 Dec 2025 06:20:00 -0800)
+
+- **مشاهدة دور ربع النهائي لـ كأس العرب مجانا بث مباشر على نايل سات وعرب سات**: [Link](https://aboutmsr.com/%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%AF%D9%88%D8%B1-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%84%D9%80-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%85%D8%AC%D8%A7/)
+- **لعشاق الرياضة".. تردد قناة بي إن سبورت المفتوحة لمتابعة تغطية رياضية متنوعة وبرامج تحليلية بدون تعقيد**: [Link](https://harammissr.com/16984/%D8%AA%D8%B1%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A7%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9/)
+- **نزلها وشوف الماتش.. تردد قناة beIN SPORTS المفتوحة 2025 على نايل سات وعرب سات وكيفية مشاهدة مباراة المغرب والإمارات أونلاين**: [Link](https://ghorbanews.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports/)
+
+
+### match maroc (N/A, Mon, 15 Dec 2025 06:10:00 -0800)
+
+- **DIRECT. Maroc-Émirats arabes unis: suivez la demi-finale de Coupe arabe en live**: [Link](https://rmcsport.bfmtv.com/football/equipe-maroc/direct-maroc-emirats-arabes-unis-suivez-la-demi-finale-de-coupe-arabe-en-live_LS-202512150435.html)
+- **Maroc-Émirats Arabes Unis, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/international/maroc-emirats-arabes-unis-quelle-chaine-diffuse-le-match-974910.html)
+- **Coupe arabe : les révélations de Tarik Sektioui avant la demi-finale face aux EAU**: [Link](https://lematin.ma/sports/coupe-arabe-les-revelations-de-tarik-sektioui-avant-la-demi-finale/319021)
+
+
+### bein sport (N/A, Mon, 15 Dec 2025 06:10:00 -0800)
+
+- **Salami: Not Thinking About Morocco Final Yet; Renard is a Respected Friend**: [Link](https://m.elbotola.com/en/article/2025-12-14-16-40-514.html)
+- **Saudi Arabia vs Jordan: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/271886/saudi-arabia-vs-jordan-how-when-to-watch/)
+- **FIFA Arab Cup Qatar 2025™: Semi-Finals - Saudi Arabia vs Jordan**: [Link](https://www.iloveqatar.net/events/sports/fifa-arab-cup-qatar-2025-semi-finals-saudi-arabia-jordan)
+
+
 ### match maroc aujourd'hui (N/A, Mon, 15 Dec 2025 06:00:00 -0800)
 
 - **Coupe Arabe 2025. Maroc-EAU. Des remplaçants irremplaçables**: [Link](https://medias24.com/2025/12/15/coupe-arabe-2025-maroc-eau-des-remplacants-irremplacables-1595855/)
