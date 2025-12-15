@@ -1,3 +1,10 @@
+### morocco football (N/A, Mon, 15 Dec 2025 08:20:00 -0800)
+
+- **CAF launches The Ultimate Guide to the TotalEnergies CAF Africa Cup of Nations Morocco 2025 ahead of the continent’s biggest football celebration**: [Link](https://www.cafonline.com/afcon2025/news/caf-launches-the-ultimate-guide-to-the-totalenergies-caf-africa-cup-of-nations-morocco-2025-ahead-of-the-continent-s-biggest-football-celebration/)
+- **How Morocco Plans to Turn AFCON 2025 Into a Tourism Boost**: [Link](https://www.moroccoworldnews.com/2025/12/271857/how-morocco-plans-to-turn-afcon-2025-into-a-tourism-boost/)
+- **Ait Boudlal Expresses Gratitude, Aims for AFCON Title**: [Link](https://m.elbotola.com/en/article/2025-12-13-17-03-528.html)
+
+
 ### saudi vs jordan (N/A, Mon, 15 Dec 2025 07:10:00 -0800)
 
 - **Salami: Not Thinking About Morocco Final Yet; Renard is a Respected Friend**: [Link](https://m.elbotola.com/en/article/2025-12-14-16-40-514.html)
