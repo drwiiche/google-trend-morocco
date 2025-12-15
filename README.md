@@ -1,3 +1,17 @@
+### bmci (N/A, Mon, 15 Dec 2025 01:40:00 -0800)
+
+- **Ce que pèserait l’ensemble Crédit du Maroc-BMCI en cas de fusion**: [Link](https://lematin.ma/economie/ce-que-peserait-lensemble-credit-du-maroc-bmci-en-cas-de-fusion/319004)
+- **n°1140. Fusion potentielle BMCI–Crédit du Maroc : quel impact sur le paysage bancaire ?**: [Link](https://ledesk.ma/enclair/fusion-potentielle-bmci-credit-du-maroc-quel-impact-sur-le-paysage-bancaire/)
+- **BMCI, CDM et AtlantaSanad : les valeurs du périmètre Holmarcom augmentent en bourse**: [Link](https://medias24.com/2025/12/12/bmci-cdm-et-atlantasanad-les-valeurs-du-perimetre-holmarcom-augmentent-en-bourse-1594711/)
+
+
+### sgtm bourse (N/A, Mon, 15 Dec 2025 01:30:00 -0800)
+
+- **SGTM builds Casablanca bourse after $548m share offer IPO was 34x over-subscribed**: [Link](https://africancapitalmarketsnews.com/sgtm-builds-casablanca-bourse-after-548m-share-offer-ipo-was-34x-over-subscribed/)
+- **SGTM IPO Oversubscribed Ahead of Listing on Casablanca Stock Exchange**: [Link](https://www.dabafinance.com/en/news/sgtm-ipo-casablanca-record-subscription)
+- **SGTM IPO Breaks Casablanca Bourse Records with 173,000 Subscribers**: [Link](https://www.moroccoworldnews.com/2025/12/271524/sgtm-ipo-breaks-casablanca-bourse-records-with-173000-subscribers/)
+
+
 ### bourse de casablanca (N/A, Mon, 15 Dec 2025 01:10:00 -0800)
 
 - **Volume d’échanges à 2,24 MMDH, le MASI gagne du terrain**: [Link](https://www.leconomiste.com/flash-infos/volume-dechanges-a-224-mmdh-le-masi-gagne-du-terrain/)
