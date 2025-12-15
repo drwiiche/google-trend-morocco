@@ -1,3 +1,17 @@
+### الطقس غدًا (N/A, Mon, 15 Dec 2025 11:50:00 -0800)
+
+- **«الجو هيقلب».. تحذير من حالة الطقس اليوم: أمطار تصل لحد السيول**: [Link](https://www.almasryalyoum.com/news/details/4151589)
+- **أمطار تصل القاهرة.. الأرصاد تكشف خريطة الظواهر الجوية اليوم وحالة الطقس حتى الأسبوع المقبل**: [Link](https://darelhilal.com/News/3141856.aspx)
+- **الأرصاد: استمرار سقوط الأمطار حتى غد وتوقعات بشبورة كثيفة نهاية الأسبوع**: [Link](https://www.parlmany.com/News/6/593223/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AD%D8%AA%D9%89-%D8%BA%D8%AF-%D9%88%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D8%A9)
+
+
+### rayo vallecano vs real betis (N/A, Mon, 15 Dec 2025 11:50:00 -0800)
+
+- **Preview: Rayo Vallecano vs Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rayo-vallecano/preview/rayo-vallecano-vs-betis-prediction-team-news-lineups_587774.html)
+- **Contrasting profiles & shared philosophy as Betis visit Rayo**: [Link](https://www.besoccer.com/new/contrasting-profiles-shared-philosophy-as-betis-visit-rayo-1385863)
+- **Rayo Vallecano faces Real Betis seeking upset, but Betis' undefeated away record looks unstoppable**: [Link](https://www.red94.net/news/20021-rayo-vallecano-faces-real-betis-in-laliga-clash-betis-seeks-to-extend-winning-st/)
+
+
 ### رايو فاليكانو ضد ريال بتيس (N/A, Mon, 15 Dec 2025 11:40:00 -0800)
 
 - **الموعد والقنوات الناقلة لمباراة رايو فاليكانو و ريال بيتيس برسم الدوري الإسباني**: [Link](https://alamriyadi.com/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D8%A7%D9%8A%D9%88-30/)
