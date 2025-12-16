@@ -1,3 +1,10 @@
+### الكونغو الديمقراطية ضد زامبيا (N/A, Tue, 16 Dec 2025 07:40:00 -0800)
+
+- **خصم المغرب/ زامبيا تخوض مواجهتين وديتين أمام الكونغو الديمقراطية وكوت ديفوار في إسبانيا استعدادا للكان**: [Link](https://m.elbotola.com/article/2025-12-16-11-39-839.html)
+- **حوار بطولات | الزامبي كالابا يكشف لأول مرة سبب عدم انضمامه إلى الزمالك.. ويتوقع بطل أمم إفريقيا 2025**: [Link](https://www.btolat.com/news/387869)
+- **يهم الأسود...المنتخب الزامبي يحضر للكان بإسبانيا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%8A%D9%87%D9%85-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B2%D8%A7%D9%85%D8%A8%D9%8A-%D9%8A%D8%AD%D8%B6%D8%B1-%D9%84%D9%84%D9%83%D8%A7%D9%86-%D8%A8%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/12862)
+
+
 ### rd congo – zambie (N/A, Tue, 16 Dec 2025 06:50:00 -0800)
 
 - **CAN 2025. Présentation de la Zambie (Groupe A): entre mémoire et ambition**: [Link](https://sport.le360.ma/football/can/can-2025-presentation-de-la-zambie-groupe-a-entre-memoire-et-ambition_ZD6TWBV7K5DI5OCYQKFD2GA3PE/)
