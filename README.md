@@ -1,3 +1,8 @@
+### هسبريس (N/A, Mon, 15 Dec 2025 22:50:00 -0800)
+
+- **نشرة إنذارية.. زخات رعدية وتساقطات ثلجية**: [Link](https://lecollimateur.ma/ar/200354)
+
+
 ### météo demain (N/A, Mon, 15 Dec 2025 11:50:00 -0800)
 
 - **Dépression Emilia dans le sud-est : épisode de pluie intense**: [Link](https://actualite.lachainemeteo.com/alerte-meteo/8926-depression-emilia-dans-le-sud-est-episode-de-pluie-intense)
