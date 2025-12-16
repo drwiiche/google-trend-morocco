@@ -1,3 +1,10 @@
+### météo demain (N/A, Mon, 15 Dec 2025 11:50:00 -0800)
+
+- **Dépression Emilia dans le sud-est : épisode de pluie intense**: [Link](https://actualite.lachainemeteo.com/alerte-meteo/8926-depression-emilia-dans-le-sud-est-episode-de-pluie-intense)
+- **Une bombe météo se dirige vers l'Europe : gros coup de vent à venir en France cette semaine**: [Link](https://actu.fr/meteo/une-bombe-meteo-se-dirige-vers-l-europe-gros-coup-de-vent-a-venir-en-france-cette-semaine_63577250.html)
+- **Épisode méditerranéen dans le Sud-Est lundi 15 et mardi 16 décembre**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/episode-mediterraneen-dans-le-sud-est-lundi-15-et-mardi-16)
+
+
 ### sgtm bourse (N/A, Tue, 16 Dec 2025 00:00:00 -0800)
 
 - **Cash Plus : de 200 DH à plus de 320 DH en une semaine de cotation**: [Link](https://medias24.com/2025/12/15/cash-plus-de-200-dh-a-plus-de-320-dh-en-une-semaine-de-cotation-1596159/)
