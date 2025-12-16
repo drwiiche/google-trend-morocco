@@ -1,3 +1,24 @@
+### مصر ضد نيجيريا (N/A, Tue, 16 Dec 2025 09:50:00 -0800)
+
+- **موعد وملعب مباراة مصر ونيجيريا قبل كأس أمم إفريقيا 2025**: [Link](https://arabic.cnn.com/sport/article/2025/12/15/egypt-nigeria-match)
+- **منتخب مصر يعلن موقف تريزيجيه وإبراهيم عادل من مباراة زيمبابوي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%88%D9%82%D9%81-%D8%AA%D8%B1%D9%8A%D8%B2%D9%8A%D8%AC%D9%8A%D9%87-%D9%88%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A/bltacdcfb3895b424f8)
+- **موعد سفر منتخب مصر إلى المغرب لخوض كأس أمم إفريقيا**: [Link](https://www.btolat.com/news/387814)
+
+
+### egypt vs nigeria (N/A, Tue, 16 Dec 2025 09:50:00 -0800)
+
+- **Morocco 2025: Super Eagles battle Pharaohs in high-stake friendly today**: [Link](https://thenationonlineng.net/morocco-2025-super-eagles-battle-pharaohs-in-high-stake-friendly-today/)
+- **Nigeria, Pharaohs set for pre-AFCON showdown**: [Link](https://punchng.com/nigeria-pharaohs-set-for-pre-afcon-showdown/)
+- **Where to watch Egypt vs. Nigeria’s friendly football match on Tuesday**: [Link](https://ozarab.media/where-to-watch-egypt-vs-nigerias-friendly-football-match-on-tuesday/)
+
+
+### eibar – elche (N/A, Tue, 16 Dec 2025 09:50:00 -0800)
+
+- **Eibar-Elche: horario, cómo ver en directo en TV y cómo seguir online**: [Link](https://as.com/futbol/copa_del_rey/eibar-elche-horario-como-ver-en-directo-en-tv-y-como-seguir-online-f202512-n/)
+- **Sarabia: "Tenemos una preciosa oportunidad de mejorar y pasar la eliminatoria"**: [Link](https://alicanteplaza.es/alicanteplaza/deportesalicante/sarabia-tenemos-una-preciosa-oportunidad-de-mejorar-y-pasar-la-eliminatoria)
+- **Beñat San José: "Hemos traído la Copa a Ipurua y ahora queremos pasar"**: [Link](https://www.sdeibar.com/noticias/benat-san-jose-hemos-traido-la-copa-a-ipurua-y-ahora-queremos-pasar)
+
+
 ### action sgtm bourse casablanca (N/A, Tue, 16 Dec 2025 09:20:00 -0800)
 
 - **IPO SGTM : 171 MMDH de demande pour une offre de 4,8 MMDH**: [Link](https://medias24.com/2025/12/16/ipo-sgtm-171-mmdh-de-demande-pour-une-offre-de-504-mmdh-1596729/)
