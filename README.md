@@ -1,3 +1,17 @@
+### afcon (N/A, Tue, 16 Dec 2025 10:40:00 -0800)
+
+- **We are different: TotalEnergies CAF AFCON - Where culture and diversity come to life**: [Link](https://www.cafonline.com/afcon2025/news/we-are-different-totalenergies-caf-afcon-where-culture-and-diversity-come-to-life/)
+- **The Atlas Lions Start Final AFCON Preparations at Maâmora**: [Link](https://www.moroccoworldnews.com/2025/12/272026/the-atlas-lions-start-final-afcon-preparations-at-maamora/)
+- **AFCON 2025 : Fan zones set up in Morocco’s airports**: [Link](https://en.yabiladi.com/articles/details/183604/afcon-2025-zones-morocco-s-airports.html)
+
+
+### the best (N/A, Tue, 16 Dec 2025 10:00:00 -0800)
+
+- **Dembele wins Fifa Best men's player of the year**: [Link](https://www.bbc.com/sport/football/articles/c39pw89jlmjo)
+- **Best FIFA Men's Player: Dembélé beats Yamal, Mbappé to award**: [Link](https://www.espn.com/soccer/story/_/id/47324158/best-fifa-men-player-ousmane-dembele-lamine-yamal-kylian-mbappe)
+- **🤔 Did Dembélé deserve The Best, Mbappé and Raphinha snubbed?**: [Link](https://sports.yahoo.com/articles/did-demb-l-deserve-best-182500191.html)
+
+
 ### deportivo – majorque (N/A, Tue, 16 Dec 2025 10:10:00 -0800)
 
 - **DIRECT. La Corogne-Majorque (Coupe du Roi 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-roi/2025-2026/la-corogne-majorque-live/687023)
