@@ -1,3 +1,10 @@
+### guadalajara vs barcelona (N/A, Tue, 16 Dec 2025 11:30:00 -0800)
+
+- **El campeón vuelve a la Copa**: [Link](https://as.com/futbol/el-campeon-vuelve-a-la-copa-f202512-n/)
+- **El Guadalajara-Barça se retrasa 30 minutos**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251216/1002588082/guadalajara-barca-retrasa-30-minutos.html)
+- **Rotación masiva, pero con toda la artillería a Guadalajara**: [Link](https://www.sport.es/es/noticias/barca/rotacion-masiva-artilleria-guadalajara-124815654)
+
+
 ### sporting gijón – valence (N/A, Tue, 16 Dec 2025 11:20:00 -0800)
 
 - **DIRECT. Gijon-Valence CF (Coupe du Roi 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-roi/2025-2026/gijon-valence-cf-live/687019)
