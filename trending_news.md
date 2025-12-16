@@ -1,3 +1,31 @@
+### sporting gijón – valence (N/A, Tue, 16 Dec 2025 11:20:00 -0800)
+
+- **DIRECT. Gijon-Valence CF (Coupe du Roi 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-roi/2025-2026/gijon-valence-cf-live/687019)
+- **PRONOS PARIS RMC Le nul du jour du 16 décembre – Coupe du Roi - Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-16-decembre-coupe-du-roi_AN-202512150673.html)
+- **Coupe du Roi : Valence sans Eray Cömert et deux autres cadres face à Gijon**: [Link](https://africafootunited.com/coupe-du-roi-valence-sans-eray-comert-et-deux-autres-cadres-face-a-gijon/)
+
+
+### كارديف ضد تشيلسي (N/A, Tue, 16 Dec 2025 11:20:00 -0800)
+
+- **تشيلسي يستعيد كايسيدو ضد كارديف**: [Link](https://hihi2.com/2025/12/16/p3560243.html)
+- **التشكيلات والإحصائيات والمعاينة في كأس EFL**: [Link](https://albalad.news/sport/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D9%8A%D9%86%D8%A9-%D9%81%D9%8A-%D9%83/317848/)
+- **موعد قرعة نصف نهائي كأس كاراباو 2025/26**: [Link](https://www.btolat.com/news/387888)
+
+
+### guadalajara – barcelone (N/A, Tue, 16 Dec 2025 11:10:00 -0800)
+
+- **Sur quelle chaîne voir CD Guadalajara - FC Barcelone ?**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4419525/sur-quelle-chaine-voir-cd-guadalajara-fc-barcelone-x)
+- **Coupe du Roi : Hansi Flick dévoile la liste du Barça pour affronter Guadalajara**: [Link](https://www.tunisienumerique.com/coupe-du-roi-hansi-flick-devoile-la-liste-du-barca-pour-affronter-guadalajara/)
+- **Position de Lewandowski concernant sa participation au match contre Guadalajara**: [Link](https://www.ysscores.com/fr/news/13872377/Position-de-Lewandowski-concernant-sa-participation-au-match-contre-Guadalajara)
+
+
+### cardiff – chelsea (N/A, Tue, 16 Dec 2025 11:10:00 -0800)
+
+- **Chelsea fans’ preferred lineup against Cardiff City: Rotation time (even Tosin)!**: [Link](https://weaintgotnohistory.sbnation.com/chelsea-fc-league-cup/164362/chelsea-fans-preferred-lineup-against-cardiff-city-rotation-time-even-tosin)
+- **Three Chelsea players set for Carabao Cup chance against Cardiff**: [Link](https://www.inkl.com/news/three-chelsea-players-set-for-carabao-cup-chance-against-cardiff)
+- **Caicedo's return, Cucurella suspension: Maresca confirms Chelsea team news for Cardiff trip**: [Link](https://onefootball.com/de/news/caicedos-return-cucurella-suspension-maresca-confirms-chelsea-team-news-for-cardiff-trip-42104302)
+
+
 ### القنوات الناقلة لمباراة برشلونة اليوم (N/A, Tue, 16 Dec 2025 11:00:00 -0800)
 
 - **ما القنوات الناقلة لمباراة غوادالاخارا وبرشلونة في كأس ملك إسبانيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%BA%D9%88%D8%A7%D8%AF%D8%A7%D9%84%D8%A7%D8%AE%D8%A7%D8%B1%D8%A7-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltdeaa80284bcd67ee)
