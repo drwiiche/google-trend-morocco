@@ -1,3 +1,17 @@
+### احوال الطقس (N/A, Mon, 15 Dec 2025 15:40:00 -0800)
+
+- **وزارة التربية الوطنية تنبه الأكاديميات الجهوية بشأن مخاطر سوء الأحوال الجوية**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D9%86%D8%A8%D9%87-%D8%A7%D9%84%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D9%85%D9%8A-1671684.html)
+- **تطوان: تعليق الدراسة في أكثر من 270 مؤسسة تعليمية**: [Link](https://2m.ma/ar/news/%D8%AA%D8%B7%D9%88%D8%A7%D9%86-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D9%81%D9%8A-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-270-%D9%85%D8%A4%D8%B3%D8%B3%D8%A9-%D8%AA%D8%B9%D9%84%D9%8A%D9%85%D9%8A%D8%A9-20251215)
+- **تعليق الدراسة بالمضيق-الفنيدق والفحص-أنجرة بسبب اضطرابات جوية مرتقبة**: [Link](https://chouftv.ma/press/771012.html)
+
+
+### alerte météo maroc casablanca (N/A, Mon, 15 Dec 2025 14:10:00 -0800)
+
+- **Intempéries : appel à la vigilance dans plusieurs villes, dont Casablanca et Fès**: [Link](https://medias24.com/2025/12/15/intemperies-appel-a-la-vigilance-dans-plusieurs-villes-dont-casablanca-et-fes-1596325/)
+- **Perturbations météorologiques au Maroc : l’analyse de la DGM**: [Link](https://ledesk.ma/encontinu/perturbations-meteorologiques-au-maroc-lanalyse-de-la-dgm/)
+- **Fortes pluies, chutes de neiges et fortes rafales de vent dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-et-chutes-de-neiges-des-ce-dimanche-dans-plusieurs-regions/319060)
+
+
 ### جمال السلامي (N/A, Mon, 15 Dec 2025 09:50:00 -0800)
 
 - **السلامي: خدعت المنتخب السعودي.. ولن أنس رينارد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%AE%D8%AF%D8%B9%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A--%D9%88%D9%84%D9%86-%D8%A7%D9%94%D9%86%D8%B3%D9%89-%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF/blt958c33399c00a3b4)
