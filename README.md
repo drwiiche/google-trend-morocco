@@ -1,3 +1,38 @@
+### dazn (N/A, Tue, 16 Dec 2025 12:30:00 -0800)
+
+- **Exclusive | DAZN in Advanced Talks for Stake in Broadcaster Main Street Sports**: [Link](https://www.wsj.com/business/media/dazn-in-advanced-talks-for-stake-in-broadcaster-main-street-sports-ff9afcfa?gaa_at=eafs&gaa_n=AWEtsqeZOgP5wx4EhFIEmggsDpAtz0i8E3beZPeGVtJtfkKScqZ5Pk_fxpav&gaa_ts=6941c6a7&gaa_sig=xoCtnoI9wzT7uT0-N6LbNv4HRQ3-rDvWy71mjc1COERsR0KyPpVv1qGYBNB_FDgAd6w7guRJnJaczUE6xr8cXw%3D%3D)
+- **British sports streaming giant DAZN is in advanced …**: [Link](https://uk.sports.yahoo.com/news/british-sports-streaming-giant-dazn-194355917.html)
+- **DAZN in talks for majority stake in RSN owner Main Street Sports Group**: [Link](https://www.sportsmediawatch.com/2025/12/fanduel-sports-network-dazn-sale-talks/)
+
+
+### psv eindhoven – gvvv (N/A, Tue, 16 Dec 2025 12:20:00 -0800)
+
+- **Live KNVB-beker | PSV al na tien minuten op 2-0-voorsprong tegen GVVV**: [Link](https://www.nu.nl/voetbal/6379698/live-knvb-beker-psv-al-na-tien-minuten-op-2-0-voorsprong-tegen-gvvv.html)
+- **VI Live: Heracles breekt de ban tegen Hoogeveen, basisdebutant NEC**: [Link](https://www.vi.nl/nieuws/vi-live-heracles-breekt-de-ban-tegen-hoogeveen-basisdebutant-nec)
+- **LIVE KNVB-beker | Peter Bosz spaart enkele sterkhouders tegen GVVV, Nick Olij maakt debuut voor PSV**: [Link](https://www.ed.nl/voetbal/live-knvb-beker-peter-bosz-spaart-enkele-sterkhouders-tegen-gvvv-nick-olij-maakt-debuut-voor-psv~a58631d2/)
+
+
+### الطقس غدًا (N/A, Tue, 16 Dec 2025 12:10:00 -0800)
+
+- **أمطار تصل لسيول ودرجات الحرارة تسجل 1 ليلًا.. الأرصاد تكشف حالة الطقس غدًا الاثنين 15-12-2025**: [Link](https://www.almasryalyoum.com/news/details/4151370)
+- **الطقس في أسبوع.. أمطار متفاوتة الشدة مع نشاط الرياح**: [Link](https://darelhilal.com/News/3142495.aspx)
+- **فيديو.. الأرصاد توضح مناطق سقوط الأمطار اليوم وتحذر من البرودة ليلا**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=16122025&id=9f93f748-991e-4fac-94d2-2d3bd2a2029d)
+
+
+### shahid (N/A, Tue, 16 Dec 2025 12:10:00 -0800)
+
+- **Shahid Kapoor opens up about his next with Vishal Bharadwaj’s Oh Romeo | Filmfare.com**: [Link](https://www.filmfare.com/news/bollywood/shahid-kapoor-opens-up-about-his-next-with-vishal-bharadwajs-oh-romeo-80027.html)
+- **Tamannaah Bhatia bags a Bollywood biggie**: [Link](https://www.123telugu.com/mnews/tamannaah-bhatia-bags-a-bollywood-biggie-avd.html)
+- **Vikrant Massey and Tamannaah Bhatia join Shahid Kapoor in O Romeo**: [Link](https://www.mid-day.com/entertainment/bollywood-news/article/randeep-hooda-vikrant-massey-and-tamannaah-bhatia-join-o-romeo-cast-23607996)
+
+
+### météo demain (N/A, Tue, 16 Dec 2025 12:00:00 -0800)
+
+- **Tempête Emilia : une « bombe météorologique » va-t-elle toucher l’Europe cette semaine ?**: [Link](https://www.sudouest.fr/environnement/meteo/intemperies/tempetes/tempete-emilia-une-bombe-meteorologique-va-t-elle-toucher-l-europe-et-la-france-cette-semaine-27125506.php)
+- **Une bombe météo se dirige vers l'Europe : gros coup de vent à venir en France cette semaine**: [Link](https://actu.fr/meteo/une-bombe-meteo-se-dirige-vers-l-europe-gros-coup-de-vent-a-venir-en-france-cette-semaine_63577250.html)
+- **Une "bombe météorologique" en direction de l'Europe? La France relativement épargnée à ce stade**: [Link](https://www.bfmtv.com/meteo/intemperies/une-bombe-meteorologique-en-direction-de-l-europe-la-france-relativement-epargnee-a-ce-stade_AN-202512160617.html)
+
+
 ### eldense – real sociedad (N/A, Tue, 16 Dec 2025 12:00:00 -0800)
 
 - **Qué canal pasa Eldense vs Real Sociedad hoy: dónde ver gratis y EN VIVO la Copa del Rey**: [Link](https://www.365scores.com/es/news/eldense-vs-real-sociedad-donde-ver-vivo/)
