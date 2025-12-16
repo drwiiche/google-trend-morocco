@@ -1,3 +1,10 @@
+### guadalajara fc (N/A, Tue, 16 Dec 2025 12:50:00 -0800)
+
+- **When and where to watch CD Guadalajara v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4419525/when-and-where-to-watch-cd-guadalajara-v-fc-barcelona)
+- **Barcelona squad named for Guadalajara**: [Link](https://www.barcablaugranes.com/barcelona-copa-del-rey/108069/guadalajara-barcelona-copa-del-rey-team-news-squad-list)
+- **Official: Youngsters included as Barcelona name squad to face Guadalajara**: [Link](https://sports.yahoo.com/articles/official-youngsters-included-barcelona-name-145000237.html)
+
+
 ### dazn (N/A, Tue, 16 Dec 2025 12:30:00 -0800)
 
 - **Exclusive | DAZN in Advanced Talks for Stake in Broadcaster Main Street Sports**: [Link](https://www.wsj.com/business/media/dazn-in-advanced-talks-for-stake-in-broadcaster-main-street-sports-ff9afcfa?gaa_at=eafs&gaa_n=AWEtsqeZOgP5wx4EhFIEmggsDpAtz0i8E3beZPeGVtJtfkKScqZ5Pk_fxpav&gaa_ts=6941c6a7&gaa_sig=xoCtnoI9wzT7uT0-N6LbNv4HRQ3-rDvWy71mjc1COERsR0KyPpVv1qGYBNB_FDgAd6w7guRJnJaczUE6xr8cXw%3D%3D)
