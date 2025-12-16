@@ -1,3 +1,17 @@
+### assane diao (N/A, Tue, 16 Dec 2025 05:30:00 -0800)
+
+- **Como Coach Fabregas Upset Over Diaw's AFCON Call-Up**: [Link](https://m.elbotola.com/en/article/2025-12-13-21-33-620.html)
+- **AFCON Cesc Fàbregas Targeted by Online Abuse Following Assane Diao Injury**: [Link](https://en.africatopsports.com/2025/12/16/cesc-fabregas-targeted-by-online-abuse-following-assane-diao-injury/)
+- **CAN 2025: Assane Diao could miss out for Senegal?**: [Link](https://foot-africa.com/en/news/can-2025-assane-diao-could-miss-out-for-senegal-1003685/)
+
+
+### cafonline (N/A, Tue, 16 Dec 2025 05:20:00 -0800)
+
+- **AFCON begins at the airport as Morocco rolls out the red carpet for Africa**: [Link](https://www.cafonline.com/afcon2025/news/afcon-begins-at-the-airport-as-morocco-rolls-out-the-red-carpet-for-africa/)
+- **The Atlas Lions Start Final AFCON Preparations at Maâmora**: [Link](https://www.moroccoworldnews.com/2025/12/272026/the-atlas-lions-start-final-afcon-preparations-at-maamora/)
+- **Morocco National Team Holds First Training Session at Mohammed VI Complex Ahead of Africa Cup of Nations**: [Link](https://m.elbotola.com/en/article/2025-12-15-22-49-729.html)
+
+
 ### coupe du roi (N/A, Tue, 16 Dec 2025 04:50:00 -0800)
 
 - **Le groupe du Barça convoqué pour le 16e de finale de Coupe du Roi**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4420115/le-groupe-du-barca-convoque-pour-le-16e-de-finale-de-coupe-du-roi/featured)
