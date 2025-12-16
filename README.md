@@ -1,3 +1,17 @@
+### action sgtm bourse casablanca (N/A, Tue, 16 Dec 2025 09:20:00 -0800)
+
+- **IPO SGTM : 171 MMDH de demande pour une offre de 4,8 MMDH**: [Link](https://medias24.com/2025/12/16/ipo-sgtm-171-mmdh-de-demande-pour-une-offre-de-504-mmdh-1596729/)
+- **IPO de la SGTM : un jalon historique pour le financement boursier de l’économie réelle**: [Link](https://ledesk.ma/2025/12/16/ipo-de-la-sgtm-un-jalon-historique-pour-le-financement-boursier-de-leconomie-reelle/)
+- **L'IPO de SGTM signe un nouveau record pour le Bourse avec plus de 171.000 souscripteurs**: [Link](https://mobile.telquel.ma/instant-t/2025/12/16/lipo-de-sgtm-signe-un-nouveau-record-pour-le-bourse-avec-plus-de-171-000-souscripteurs_1965538/)
+
+
+### copa del rey (N/A, Tue, 16 Dec 2025 07:20:00 -0800)
+
+- **Provocación del Guadalajara al Barça antes de la Copa**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251216/1002587547/provocacion-guadalajara-barca-copa.html)
+- **Rotación masiva, pero con toda la artillería a Guadalajara**: [Link](https://www.sport.es/es/noticias/barca/rotacion-masiva-artilleria-guadalajara-124815654)
+- **El FC Barcelona anuncia la convocatoria para los dieciseisavos de final de la Copa del Rey frente a el Guadalajara**: [Link](https://bitacora.com.uy/el-fc-barcelona-anuncia-la-convocatoria-para-los-dieciseisavos-de-final-de-la-copa-del-rey-frente-a-el-guadalajara/)
+
+
 ### ent (N/A, Tue, 16 Dec 2025 08:50:00 -0800)
 
 - **Live updates: Rob and Michele Reiner’s son Nick ‘responsible’ for death, police say**: [Link](https://www.cnn.com/entertainment/live-news/rob-michele-reiner-death-investigation-12-16-25-hnk)
