@@ -1,3 +1,17 @@
+### deportivo – majorque (N/A, Tue, 16 Dec 2025 10:10:00 -0800)
+
+- **DIRECT. La Corogne-Majorque (Coupe du Roi 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-du-roi/2025-2026/la-corogne-majorque-live/687023)
+- **Comment regarder Deportivo - Majorque ? Date, heure, streaming et comment regarder la Copa del Rey sur DAZN**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-deportivo-majorque-date-heure-streaming-et-comment-regarder-la-copa-del-rey-sur-dazn/wizvupkj9ppn1st38kwwlx7r0)
+- **Pronostic Deportivo La Corogne - Majorque, Coupe Du Roi**: [Link](https://www.sportytrader.com/pronostics/deportivo-la-corogne-majorque-312256/)
+
+
+### matches amicaux (N/A, Tue, 16 Dec 2025 10:00:00 -0800)
+
+- **DIRECT. Égypte-Nigeria (Matches amicaux A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/egypte-nigeria-live/687044)
+- **Rayo Vallecano 0-0 Betis Séville, La Liga : résumé du match (15/12/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/rayo-vallecano-betis-seville-live/676867)
+- **AS Rome 1-0 Côme, Serie A : résumé du match (15/12/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/as-rome-come-live/673116)
+
+
 ### مصر ضد نيجيريا (N/A, Tue, 16 Dec 2025 09:50:00 -0800)
 
 - **موعد وملعب مباراة مصر ونيجيريا قبل كأس أمم إفريقيا 2025**: [Link](https://arabic.cnn.com/sport/article/2025/12/15/egypt-nigeria-match)
