@@ -1,3 +1,10 @@
+### rd congo – zambie (N/A, Tue, 16 Dec 2025 06:50:00 -0800)
+
+- **CAN 2025. Présentation de la Zambie (Groupe A): entre mémoire et ambition**: [Link](https://sport.le360.ma/football/can/can-2025-presentation-de-la-zambie-groupe-a-entre-memoire-et-ambition_ZD6TWBV7K5DI5OCYQKFD2GA3PE/)
+- **CAN 2025 : Le sélectionneur de la Zambie, adversaire du Maroc : « Une tâche difficile dans un délai court, mais des stades magnifiques**: [Link](https://m.elbotola.com/fr/article/2025-12-15-12-53-349.html)
+- **CAN 2025: Les Chipolopolos Boys, seul et unique test pour Les Léopards avant le grand saut**: [Link](https://actualite.cd/2025/12/15/can-2025-les-chipolopolos-boys-seul-et-unique-test-pour-les-leopards-avant-le-grand-saut)
+
+
 ### assane diao (N/A, Tue, 16 Dec 2025 05:30:00 -0800)
 
 - **Como Coach Fabregas Upset Over Diaw's AFCON Call-Up**: [Link](https://m.elbotola.com/en/article/2025-12-13-21-33-620.html)
