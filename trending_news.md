@@ -1,3 +1,10 @@
+### morocco vs jordan (N/A, Mon, 15 Dec 2025 11:30:00 -0800)
+
+- **Jordan Stun Saudi Arabia in Semifinals and Set Up Epic Showdown With Morocco in FIFA Arab Cup Final**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/jordan-stun-saudi-arabia-in-semifinals-and-set-up-epic-showdown-with-morocco-in-fifa-arab-cup-final-2025-12-15)
+- **Moroccan Coaches Face Off as Jordan Edge Saudi Arabia to reach the Arab Cup Final**: [Link](https://www.moroccoworldnews.com/2025/12/271991/moroccan-coaches-face-off-as-jordan-advance-past-saudi-to-play-arab-cup-final-against-morocco/)
+- **Salami: Not Thinking About Morocco Final Yet; Renard is a Respected Friend**: [Link](https://m.elbotola.com/en/article/2025-12-14-16-40-514.html)
+
+
 ### احوال الطقس (N/A, Mon, 15 Dec 2025 15:40:00 -0800)
 
 - **وزارة التربية الوطنية تنبه الأكاديميات الجهوية بشأن مخاطر سوء الأحوال الجوية**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D9%86%D8%A8%D9%87-%D8%A7%D9%84%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D9%85%D9%8A-1671684.html)
