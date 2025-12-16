@@ -1,3 +1,10 @@
+### real sociedad (N/A, Tue, 16 Dec 2025 14:10:00 -0800)
+
+- **Eldense 1-2 Real Sociedad (Dec 16, 2025) Final Score**: [Link](https://www.espn.com/soccer/match/_/gameId/762537/real-sociedad-eldense)
+- **CD Eldense faces Real Sociedad tonight in Copa del Rey, underdog seeks upset while Sociedad reels from managerial chaos**: [Link](https://www.red94.net/news/85921-cd-eldense-faces-real-sociedad-tonight-in-copa-del-rey-underdog-seeks-upset-in-c/)
+- **Eldense and Real Sociedad Clash in Copa del Rey Round of 32**: [Link](https://news.ssbcrack.com/eldense-and-real-sociedad-clash-in-copa-del-rey-round-of-32/)
+
+
 ### guadalajara fc (N/A, Tue, 16 Dec 2025 12:50:00 -0800)
 
 - **When and where to watch CD Guadalajara v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4419525/when-and-where-to-watch-cd-guadalajara-v-fc-barcelona)
