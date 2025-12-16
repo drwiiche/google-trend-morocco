@@ -1,3 +1,17 @@
+### météo (N/A, Mon, 15 Dec 2025 22:00:00 -0800)
+
+- **Intempéries : appel à la vigilance dans plusieurs villes, dont Casablanca et Fès**: [Link](https://medias24.com/2025/12/15/intemperies-appel-a-la-vigilance-dans-plusieurs-villes-dont-casablanca-et-fes-1596325/)
+- **Fortes pluies, chutes de neiges et fortes rafales de vent dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-et-chutes-de-neiges-des-ce-dimanche-dans-plusieurs-regions/319060)
+- **Sécurité routière: Appel à reporter les déplacements non essentiels**: [Link](https://fr.hespress.com/454209-securite-routiere-appel-a-reporter-les-deplacements-non-essentiels.html)
+
+
+### weather (N/A, Mon, 15 Dec 2025 21:50:00 -0800)
+
+- **Mostly mild week ahead with scattered showers in Greece**: [Link](https://www.ekathimerini.com/news/1289793/mostly-mild-week-ahead-with-scattered-showers-in-greece/)
+- **Excellent Weather Across Greece This Tuesday**: [Link](https://www.tovima.com/society/excellent-weather-across-greece-this-tuesday/)
+- **Mostly Sunny Weather Across Greece This Monday**: [Link](https://www.tovima.com/society/mostly-sunny-weather-across-greece-this-monday/)
+
+
 ### morocco vs jordan (N/A, Mon, 15 Dec 2025 11:30:00 -0800)
 
 - **Jordan Stun Saudi Arabia in Semifinals and Set Up Epic Showdown With Morocco in FIFA Arab Cup Final**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/jordan-stun-saudi-arabia-in-semifinals-and-set-up-epic-showdown-with-morocco-in-fifa-arab-cup-final-2025-12-15)
