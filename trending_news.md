@@ -1,3 +1,10 @@
+### القنوات الناقلة لمباراة برشلونة اليوم (N/A, Tue, 16 Dec 2025 11:00:00 -0800)
+
+- **ما القنوات الناقلة لمباراة غوادالاخارا وبرشلونة في كأس ملك إسبانيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%BA%D9%88%D8%A7%D8%AF%D8%A7%D9%84%D8%A7%D8%AE%D8%A7%D8%B1%D8%A7-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltdeaa80284bcd67ee)
+- **قائمة برشلونة لمواجهة جوادالاخارا في كأس ملك إسبانيا**: [Link](https://www.youm7.com/story/2025/12/16/%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AC%D9%88%D8%A7%D8%AF%D8%A7%D9%84%D8%A7%D8%AE%D8%A7%D8%B1%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/7235905)
+- **موعد مباراة برشلونة وجوادالاخارا في كأس ملك إسبانيا.. اعرف القنوات الناقلة**: [Link](https://www.cairo24.com/2336344)
+
+
 ### afcon (N/A, Tue, 16 Dec 2025 10:40:00 -0800)
 
 - **We are different: TotalEnergies CAF AFCON - Where culture and diversity come to life**: [Link](https://www.cafonline.com/afcon2025/news/we-are-different-totalenergies-caf-afcon-where-culture-and-diversity-come-to-life/)
