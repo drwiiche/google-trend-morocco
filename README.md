@@ -1,3 +1,17 @@
+### iphone 16 (N/A, Mon, 15 Dec 2025 18:40:00 -0800)
+
+- **結局、一番おいしいのは「無印iPhone 17」だった──ProでもAirでもなく17が売れている納得の理由**: [Link](https://gori.me/iphone/iphone17/162716)
+- **2025年第3四半期、世界で最も売れたスマホは「iPhone 16」　16 Proや16eも好調　カウンターポイント調べ - ITmedia Mobile**: [Link](https://www.itmedia.co.jp/mobile/articles/2512/09/news095.html)
+- **Apple、14年ぶり世界シェア首位奪還へ 「スーパーサイクル」が個別の課題を打ち消す**: [Link](https://jbpress.ismedia.jp/articles/-/92266)
+
+
+### royal air maroc (N/A, Mon, 15 Dec 2025 18:10:00 -0800)
+
+- **Royal Air Maroc annonce neuf nouvelles liaisons vers l’Europe, l’Afrique et l’Amérique en 2026**: [Link](https://ledesk.ma/encontinu/royal-air-maroc-annonce-dix-nouvelles-liaisons-vers-leurope-lafrique-et-lamerique-en-2026/)
+- **Connectivité aérienne en 2026: les logiques soutenant l’expansion africaine de Royal Air Maroc**: [Link](https://afrique.le360.ma/economie/connectivite-aerienne-en-2026-les-logiques-soutenant-lexpansion-africaine-de-royal-air-maroc_7QONKCUM3JHLVDCSYWIZ2ZRCFI/)
+- **RAM renforce ses dessertes vers l’Europe, l’Afrique et l’Amérique**: [Link](https://www.leconomiste.com/flash-infos/ram-renforce-ses-dessertes-vers-leurope-lafrique-et-lamerique/)
+
+
 ### الطقس (N/A, Mon, 15 Dec 2025 22:00:00 -0800)
 
 - **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-63-1671836.html)
