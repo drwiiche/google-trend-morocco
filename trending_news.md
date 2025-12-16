@@ -1,3 +1,17 @@
+### eldense – real sociedad (N/A, Tue, 16 Dec 2025 12:00:00 -0800)
+
+- **Qué canal pasa Eldense vs Real Sociedad hoy: dónde ver gratis y EN VIVO la Copa del Rey**: [Link](https://www.365scores.com/es/news/eldense-vs-real-sociedad-donde-ver-vivo/)
+- **Responsabilidad con la ilusión**: [Link](https://www.realsociedad.eus/es/noticias/detalle/responsabilidad-con-la-ilusion)
+- **Claudio Barragán, entrenador del Eldense: «Con técnico nuevo, los jugadores se ponen las pilas»**: [Link](https://www.diariovasco.com/real-sociedad/claudio-barragan-entrenador-eldense-tecnico-nuevo-jugadores-pilas-20251215160806-nt.html)
+
+
+### sénégal (N/A, Tue, 16 Dec 2025 12:00:00 -0800)
+
+- **Le Sénégal annonce un forfait pour la CAN 2025**: [Link](https://www.footmercato.net/a3431756093578642963-le-senegal-annonce-un-forfait-pour-la-can-2025)
+- **Officiellement : Eli Camara forfait pour la CAN avec le Sénégal en raison d'une blessure**: [Link](https://m.elbotola.com/fr/article/2025-12-16-10-45-659.html)
+- **Strasbourg : Mamadou Sarr touché à une cheville lors du match nul contre Lorient en Ligue 1**: [Link](https://www.lequipe.fr/Football/Actualites/Strasbourg-mamadou-sarr-touche-a-une-cheville-lors-du-match-nul-contre-lorient-en-ligue-1/1617021)
+
+
 ### guadalajara vs barcelona (N/A, Tue, 16 Dec 2025 11:30:00 -0800)
 
 - **El campeón vuelve a la Copa**: [Link](https://as.com/futbol/el-campeon-vuelve-a-la-copa-f202512-n/)
