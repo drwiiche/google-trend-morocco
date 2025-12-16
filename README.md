@@ -1,3 +1,10 @@
+### casablanca (N/A, Mon, 15 Dec 2025 19:40:00 -0800)
+
+- **Achraf Hakimi et Hassan Hajjaj inaugurent un café pop-store à Casablanca**: [Link](https://fr.le360.ma/lifestyle/achraf-hakimi-et-hassan-hajjaj-inaugurent-un-cafe-pop-store-a-casablanca_U5Y7W6KVLNFJBMTDWKXT3QPFJI/)
+- **Hakimi inaugure son nouveau restaurant à Casablanca en présence de stars et d'artistes (photos)**: [Link](https://fr.hibapress.com/news-224078.html)
+- **Hakimi et Hajjaj inaugurent "Juj", un café pop-store éphémère à Casablanca**: [Link](https://www.lenouvelliste.ma/hakimi-et-hajjaj-inaugurent-juj-un-cafe-pop-store-ephemere-a-casablanca/)
+
+
 ### حالة الطقس (N/A, Mon, 15 Dec 2025 22:50:00 -0800)
 
 - **أهم الأخبار اليوم أسعار الذهب والدولار وحالة الطقس التفاصيل كاملة بالفيديو**: [Link](https://www.iqraa24.com/news/%D8%A3%D9%87%D9%85-%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%88%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7/)
