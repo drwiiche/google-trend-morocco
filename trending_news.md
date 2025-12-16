@@ -1,3 +1,10 @@
+### dr congo vs zambia (N/A, Tue, 16 Dec 2025 07:50:00 -0800)
+
+- **Chipolopolo in DR Congo test ahead of AFCON**: [Link](https://zambianfootball.co.zm/chipolopolo-in-dr-congo-test-ahead-of-afcon/)
+- **DR Congo vs Zambia: What time and channel is the friendly match on?**: [Link](https://foot-africa.com/en/news/dr-congo-vs-zambia-what-time-and-channel-is-the-friendly-match-on-1004411/)
+- **Zambia, Congo DR renew rivalry**: [Link](https://diggers.news/goal-diggers/2025/12/16/zambia-congo-dr-renew-rivalry/)
+
+
 ### الكونغو الديمقراطية ضد زامبيا (N/A, Tue, 16 Dec 2025 07:40:00 -0800)
 
 - **خصم المغرب/ زامبيا تخوض مواجهتين وديتين أمام الكونغو الديمقراطية وكوت ديفوار في إسبانيا استعدادا للكان**: [Link](https://m.elbotola.com/article/2025-12-16-11-39-839.html)
