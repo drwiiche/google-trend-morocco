@@ -1,3 +1,15 @@
+### kech24 (N/A, Mon, 15 Dec 2025 22:40:00 -0800)
+
+
+
+
+### الطقس اليوم (N/A, Mon, 15 Dec 2025 20:50:00 -0800)
+
+- **«الجو هيقلب».. تحذير من حالة الطقس اليوم: أمطار تصل لحد السيول**: [Link](https://www.almasryalyoum.com/news/details/4151589)
+- **فيديو.. الأرصاد توضح مناطق سقوط الأمطار اليوم وتحذر من البرودة ليلا**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=16122025&id=9f93f748-991e-4fac-94d2-2d3bd2a2029d)
+- **حالة طقس اليوم الثلاثاء 16-12-2025 في مصر**: [Link](https://almashhadalaraby.com/news/542674)
+
+
 ### هسبريس (N/A, Mon, 15 Dec 2025 22:50:00 -0800)
 
 - **نشرة إنذارية.. زخات رعدية وتساقطات ثلجية**: [Link](https://lecollimateur.ma/ar/200354)
