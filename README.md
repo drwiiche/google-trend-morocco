@@ -1,3 +1,10 @@
+### ent (N/A, Tue, 16 Dec 2025 08:50:00 -0800)
+
+- **Live updates: Rob and Michele Reiner’s son Nick ‘responsible’ for death, police say**: [Link](https://www.cnn.com/entertainment/live-news/rob-michele-reiner-death-investigation-12-16-25-hnk)
+- **James Woods praises 'patriot' Rob Reiner, slams insults of slain director as 'infuriating'**: [Link](https://www.nbcnews.com/news/us-news/james-woods-praises-patriot-rob-reiner-slams-insults-slain-director-in-rcna249484)
+- **Jane Fonda Shares How Rob Reiner Acted on Final Night Before Death**: [Link](https://www.eonline.com/news/1426235/jane-fonda-saw-rob-reiner-before-his-murder)
+
+
 ### dr congo vs zambia (N/A, Tue, 16 Dec 2025 07:50:00 -0800)
 
 - **Chipolopolo in DR Congo test ahead of AFCON**: [Link](https://zambianfootball.co.zm/chipolopolo-in-dr-congo-test-ahead-of-afcon/)
