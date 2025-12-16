@@ -1,3 +1,17 @@
+### coupe du roi (N/A, Tue, 16 Dec 2025 04:50:00 -0800)
+
+- **Le groupe du Barça convoqué pour le 16e de finale de Coupe du Roi**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4420115/le-groupe-du-barca-convoque-pour-le-16e-de-finale-de-coupe-du-roi/featured)
+- **Guadalajara - FC Barcelone : Sur quelle chaîne TV et à quelle heure voir ce match de Coupe du Roi**: [Link](https://www.90min.com/fr/guadalajara-fc-barcelone-sur-quelle-chaine-tv-et-a-quelle-heure-voir-ce-match-de-coupe-du-roi-16-12-2025)
+- **Le trio de La Masia Torrents, Dro et Marques devrait jouer un rôle clé dans le match de Coupe du Roi contre Guadalajara – Mundo Deportivo**: [Link](https://tribuna.com/fr/news/2025-12-16-le-trio-de-la-masia-torrents-dro-et-marques-devrait-jouer-un-role-cle-dans-le-match-de-co/)
+
+
+### weather casablanca (N/A, Mon, 15 Dec 2025 19:20:00 -0800)
+
+- **Heavy Rainfall: School Wall Collapses in Casablanca, Kills Guard**: [Link](https://www.moroccoworldnews.com/2025/12/272065/heavy-rainfall-school-wall-collapses-in-casablanca-kills-guard/)
+- **School Wall Collapses in Casablanca Killing Guard, Injuring Teacher**: [Link](https://barlamantoday.com/2025/12/16/school-wall-collapses-in-casablanca-killing-guard-injuring-teacher/)
+- **Morocco floods: Dozens killed in port city of Safi after heavy rains**: [Link](https://www.bbc.com/news/articles/cjwyzlly6eno)
+
+
 ### casablanca (N/A, Mon, 15 Dec 2025 19:40:00 -0800)
 
 - **Achraf Hakimi et Hassan Hajjaj inaugurent un café pop-store à Casablanca**: [Link](https://fr.le360.ma/lifestyle/achraf-hakimi-et-hassan-hajjaj-inaugurent-un-cafe-pop-store-a-casablanca_U5Y7W6KVLNFJBMTDWKXT3QPFJI/)
