@@ -1,3 +1,10 @@
+### bourse de casablanca (N/A, Tue, 16 Dec 2025 00:50:00 -0800)
+
+- **Bourse de Casablanca. Le MASI quasi stable à 18.553,93 points**: [Link](https://medias24.com/2025/12/15/bourse-de-casablanca-le-masi-quasi-stable-a-18-55393-points-1596365/)
+- **Flash Momentum: Scoring technique des valeurs du MASI 20**: [Link](https://boursenews.ma/article/graphiques-et-analyse-technique/Flash-Momentum-15-decembre-2025)
+- **Capitalisation boursière : près de 989 MMDH à Casablanca**: [Link](https://www.leconomiste.com/flash-infos/capitalisation-boursiere-pres-de-989-mmdh-a-casablanca/)
+
+
 ### sgtm (N/A, Tue, 16 Dec 2025 00:40:00 -0800)
 
 - **Stade Moulay El Hassan : la SGTM pour poursuivre les travaux**: [Link](https://ledesk.ma/enoff/stade-moulay-el-hassan-la-sgtm-pour-poursuivre-les-travaux/)
