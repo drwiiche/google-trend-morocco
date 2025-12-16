@@ -1,3 +1,9 @@
+### sgtm (N/A, Tue, 16 Dec 2025 00:40:00 -0800)
+
+- **Stade Moulay El Hassan : la SGTM pour poursuivre les travaux**: [Link](https://ledesk.ma/enoff/stade-moulay-el-hassan-la-sgtm-pour-poursuivre-les-travaux/)
+- **Stade Moulay El Hassan : Les VRD confiés à SGTM pour 305 MDH**: [Link](https://www.lavieeco.com/affaires/stade-moulay-el-hassan-les-vrd-confies-a-sgtm-pour-305-mdh/)
+
+
 ### iphone 16 (N/A, Mon, 15 Dec 2025 18:40:00 -0800)
 
 - **結局、一番おいしいのは「無印iPhone 17」だった──ProでもAirでもなく17が売れている納得の理由**: [Link](https://gori.me/iphone/iphone17/162716)
