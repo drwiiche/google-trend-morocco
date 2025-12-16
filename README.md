@@ -1,3 +1,10 @@
+### sgtm bourse (N/A, Tue, 16 Dec 2025 00:00:00 -0800)
+
+- **Cash Plus : de 200 DH à plus de 320 DH en une semaine de cotation**: [Link](https://medias24.com/2025/12/15/cash-plus-de-200-dh-a-plus-de-320-dh-en-une-semaine-de-cotation-1596159/)
+- **Cash Plus gagne 61% pour sa première semaine en Bourse**: [Link](https://boursenews.ma/article/marches/cash-plus-gagne-61-premiere-semaine-bourse)
+- **Retour des IPOs africaines : deux fintechs lèvent 427 millions de dollars**: [Link](https://afriqueitnews.com/finance/retour-ipos-africaines-deux-fintechs-levent-427-millions-dollars/)
+
+
 ### bourse de casablanca (N/A, Tue, 16 Dec 2025 00:50:00 -0800)
 
 - **Bourse de Casablanca. Le MASI quasi stable à 18.553,93 points**: [Link](https://medias24.com/2025/12/15/bourse-de-casablanca-le-masi-quasi-stable-a-18-55393-points-1596365/)
