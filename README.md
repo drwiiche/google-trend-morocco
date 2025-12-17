@@ -1,3 +1,10 @@
+### psg vs flamengo (N/A, Wed, 17 Dec 2025 06:30:00 -0800)
+
+- **Sem Dembélé e com goleiro reserva, PSG divulga escalação para final contra o Flamengo**: [Link](https://oglobo.globo.com/esportes/noticia/2025/12/17/sem-dembele-e-com-goleiro-reserva-psg-divulga-escalacao-para-final-contra-o-flamengo.ghtml)
+- **CazéTV e GeTV adotam estratégias distintas para "duelo final" em decisão do Flamengo**: [Link](https://www.terra.com.br/esportes/flamengo/cazetv-e-getv-adotam-estrategias-distintas-para-duelo-final-em-decisao-do-flamengo,39accd4be195fef76e395450c4341310n4bc7959.html)
+- **Flamengo está escalado para enfrentar o PSG na decisão do Intercontinental**: [Link](https://odia.ig.com.br/esporte/flamengo/2025/12/7181146-flamengo-esta-escalado-para-enfrentar-o-psg-na-decisao-do-intercontinental.html)
+
+
 ### taux de remplissage des barrages maroc (N/A, Wed, 17 Dec 2025 05:00:00 -0800)
 
 - **Les dernières pluies dopent le niveau de remplissage des barrages au Maroc**: [Link](https://snrtnews.com/fr/article/les-dernieres-pluies-dopent-le-niveau-de-remplissage-des-barrages-au-maroc-142977)
