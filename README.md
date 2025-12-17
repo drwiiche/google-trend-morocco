@@ -1,3 +1,17 @@
+### shahid (N/A, Wed, 17 Dec 2025 12:30:00 -0800)
+
+- **Shahid Reveals Top 10 Most Watched Shows in Saudi**: [Link](https://cairoscene.com/Buzz/Shahid-Reveals-Top-10-Most-Watched-Shows-in-Saudi)
+- **Iran Opens First Specialized AI Center at Shahid Beheshti University**: [Link](https://wanaen.com/iran-opens-first-specialized-ai-center-at-shahid-beheshti-university/)
+- **Radhika Apte reveals she wants to forget her debut film, 'Vaah! Life Ho Toh Aisi!' starring Shahid Kapoor**: [Link](https://timesofindia.indiatimes.com/entertainment/hindi/bollywood/news/radhika-apte-reveals-she-wants-to-forget-her-debut-film-vaah-life-ho-toh-aisi-starring-shahid-kapoor-sanjay-dutt-and-amrita-rao-says-they-treated-us-horribly/articleshow/126042387.cms)
+
+
+### شاهد (N/A, Wed, 17 Dec 2025 12:30:00 -0800)
+
+- **شاهد: بالشاحنات والمسيّرات إسرائيل تسعى لإغراق غزة بالمخدرات**: [Link](https://www.aljazeera.net/news/2025/12/16/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A8%D8%A7%D9%84%D8%B4%D8%A7%D8%AD%D9%86%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **شهادات ووثائق حصرية.. الجزيرة مباشر تكشف مسارات تهريب المخدرات إلى غزة (فيديو)**: [Link](https://www.aljazeeramubasher.net/news/2025/12/17/%D8%B4%D9%87%D8%A7%D8%AF%D8%A7%D8%AA-%D9%88%D9%88%D8%AB%D8%A7%D8%A6%D9%82-%D8%AD%D8%B5%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **مسؤول العشائر في غزة: الاحتلال يستخدم سلاحا خفيا في حرب الإبادة**: [Link](https://sawaleif.com/%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B4%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%8A%D8%B3%D8%AA%D8%AE%D8%AF%D9%85-%D8%B3-1042048/)
+
+
 ### league cup (N/A, Wed, 17 Dec 2025 11:50:00 -0800)
 
 - **Carabao Cup quarter-final LIVE: Cardiff City 1-3 Chelsea - radio commentary, text updates, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c98nn371yllt)
