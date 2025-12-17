@@ -1,3 +1,10 @@
+### la france a un incroyable talent (N/A, Wed, 17 Dec 2025 03:20:00 -0800)
+
+- **Audiences : La finale de "La France a un incroyable talent" sur M6 a-t-elle réussi à détrôner "Tom et Lola" sur France 3 ?**: [Link](https://www.ozap.com/actu/audiences-la-finale-de-la-france-a-un-incroyable-talent-sur-m6-a-t-elle-reussi-a-detroner-tom-et-lola-sur-france-3/652923)
+- **Cet artiste d'un cabaret dieppois participe à la finale de "La France a un incroyable talent"**: [Link](https://www.francebleu.fr/infos/culture-loisirs/cet-artiste-d-un-cabaret-dieppois-participe-ce-soir-a-la-finale-de-la-france-a-un-incroyable-talent-4641900)
+- **"Allier performance et émotion artistique" : la troupe marseillaise Tataki en finale d'"Incroyable talent"**: [Link](https://www.laprovence.com/article/culture-loisirs/7057292973126514/allier-performance-et-emotion-artistique-la-troupe-marseillaise-tataki-en-finale-d-incroyable-talent)
+
+
 ### niveau des barrages maroc (N/A, Wed, 17 Dec 2025 03:00:00 -0800)
 
 - **Les dernières pluies dopent le niveau de remplissage des barrages au Maroc**: [Link](https://snrtnews.com/fr/article/les-dernieres-pluies-dopent-le-niveau-de-remplissage-des-barrages-au-maroc-142977)
