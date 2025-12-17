@@ -1,3 +1,10 @@
+### excelsior maassluis – ajax (N/A, Wed, 17 Dec 2025 10:30:00 -0800)
+
+- **‘Risicowedstrijd’ Excelsior Maassluis - Ajax in een halfleeg Kasteel: ‘Hadden twee keer zoveel kunnen verkopen’**: [Link](https://www.ad.nl/maassluis/risicowedstrijd-excelsior-maassluis-ajax-in-een-halfleeg-kasteel-hadden-twee-keer-zoveel-kunnen-verkopen~ab019c7e/)
+- **Bijzonder duel voor Pasveer: Ajax-routinier bereikt mooie mijlpaal in bekerduel**: [Link](https://www.voetbalnieuws.nl/nieuws/1723034/pasveer-bereikt-mooie-mijlpaal-in-bekerduel.html)
+- **Grim verrast na 'nieuws' van ESPN over Ajax-toekomst: 'Dat is mij niet verteld'**: [Link](https://www.voetbalprimeur.nl/nieuws/1723033/fred-grim-blijft-bij-zijn-lijn-als-ajax-coach-proces-levert-punten-op.html)
+
+
 ### توقيت مباراة المغرب والاردن (N/A, Wed, 17 Dec 2025 10:10:00 -0800)
 
 - **المغرب ضد الأردن.. من يتوج بكأس العرب 2025؟**: [Link](https://www.aljazeera.net/sport/2025/12/17/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%85%D9%86-%D9%8A%D8%AA%D9%88%D8%AC-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025%D8%9F)
