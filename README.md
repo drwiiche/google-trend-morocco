@@ -1,3 +1,10 @@
+### غوادالاخارا ضد برشلونة (N/A, Tue, 16 Dec 2025 11:40:00 -0800)
+
+- **برشلونة يفك شفرة جوادالاخار بصعوبة ويبلغ ثمن نهائي كأس الملك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%81%D9%83-%D8%B4%D9%81%D8%B1%D8%A9-%D8%AC%D9%88%D8%A7%D8%AF%D8%A7%D9%84%D8%A7%D8%AE%D8%A7%D8%B1-%D8%A8%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D9%88%D9%8A%D8%A8%D9%84%D8%BA-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83/blt4a16046e26e40a5d)
+- **نتيجة وملخص مباراة برشلونة ضد غوادالاخارا في كأس الملك**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/16/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%BA%D9%88%D8%A7%D8%AF%D8%A7%D9%84%D8%A7%D8%AE%D8%A7%D8%B1%D8%A7)
+- **جنون في جوادالاخارا بسبب برشلونة**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1357797/%D8%AC%D9%86%D9%88%D9%86-%D9%81%D9%8A-%D8%AC%D9%88%D8%A7%D8%AF%D8%A7%D9%84%D8%A7%D8%AE%D8%A7%D8%B1%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
 ### real sociedad (N/A, Tue, 16 Dec 2025 14:10:00 -0800)
 
 - **Eldense 1-2 Real Sociedad (Dec 16, 2025) Final Score**: [Link](https://www.espn.com/soccer/match/_/gameId/762537/real-sociedad-eldense)
