@@ -1,3 +1,10 @@
+### manchester city – brentford (N/A, Wed, 17 Dec 2025 11:00:00 -0800)
+
+- **A host of Manchester City fringe players must seize their opportunity against Brentford**: [Link](https://esteemedkompany.com/2025/12/16/a-host-of-manchester-city-fringe-players-must-seize-their-opportunity-against-brentford/)
+- **Man City Faces Tough Brentford Test in Carabao Cup Quarters**: [Link](https://www.dawan.africa/news/man-city-faces-tough-brentford-test-in-carabao-cup-quarters)
+- **Will Man City 'snub' the EFL Cup for a fifth straight year?**: [Link](https://www.besoccer.com/new/will-city-snub-the-efl-cup-for-a-fifth-straight-year-1386223)
+
+
 ### excelsior maassluis – ajax (N/A, Wed, 17 Dec 2025 10:30:00 -0800)
 
 - **‘Risicowedstrijd’ Excelsior Maassluis - Ajax in een halfleeg Kasteel: ‘Hadden twee keer zoveel kunnen verkopen’**: [Link](https://www.ad.nl/maassluis/risicowedstrijd-excelsior-maassluis-ajax-in-een-halfleeg-kasteel-hadden-twee-keer-zoveel-kunnen-verkopen~ab019c7e/)
