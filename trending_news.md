@@ -1,3 +1,10 @@
+### huesca – osasuna (N/A, Wed, 17 Dec 2025 09:10:00 -0800)
+
+- **Alineaciones confirmadas en el Huesca - Osasuna de Copa del Rey**: [Link](https://www.sportaragon.com/articulo/sd-huesca/alineaciones-confirmadas-huesca-osasuna-copa-rey/20251217175030143727.html)
+- **Racing - Villarreal: horario, canal de televisión y dónde ver online el partido de Copa del Rey hoy**: [Link](https://www.abc.es/espana/cantabria/racing-villarreal-horario-canal-television-donde-ver-copa-rey-20251217050000-nt.html)
+- **Bolo, con dudas hasta última hora por la gripe, hará cambios en su once para recibir a Osasuna**: [Link](https://www.eldiariodehuesca.com/deportes/bolo-con-dudas-hasta-ultima-hora-por-gripe-hara-cambios-en-su-once-recibir-osasuna_38933_102.html)
+
+
 ### psg vs (N/A, Wed, 17 Dec 2025 08:50:00 -0800)
 
 - **PSG predicted XI v Flamengo: Désiré Doué to start, Ousmane Dembélé benched**: [Link](https://www.getfootballnewsfrance.com/2025/psg-predicted-xi-v-flamengo-desire-doue-to-start-ousmane-dembele-benched/)
