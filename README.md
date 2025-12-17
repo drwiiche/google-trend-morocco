@@ -1,3 +1,17 @@
+### cultural leonesa – levante (N/A, Wed, 17 Dec 2025 08:30:00 -0800)
+
+- **Cultural Leonesa vs Levante - Pronóstico, dónde ver, horario y alineaciones 17-12-2025**: [Link](https://onefootball.com/es/apuestas/pronosticos/futbol/cultural-leonesa-vs-levante-17-12-2025)
+- **Conviértete en el jugador estrella de la Copa**: [Link](https://leon24horas.net/noticias/conviertete-en-el-jugador-estrella-de-la-copa/)
+- **Paco Cortés, enemigo íntimo**: [Link](https://as.com/futbol/copa_del_rey/paco-cortes-enemigo-intimo-f202512-n/)
+
+
+### psg (N/A, Wed, 17 Dec 2025 08:30:00 -0800)
+
+- **Live PSG - Flamengo Finale de Coupe intercontinentale de la FIFA 2025 17/12**: [Link](https://www.footmercato.net/live/746786559196633467-paris-saint-germain-vs-flamengo)
+- **Premier club français à disputer la Coupe Intercontinentale, le PSG aura l'occasion d'être encore un peu plus à jamais les pionniers**: [Link](https://www.lequipe.fr/Football/Article/Premier-club-francais-a-disputer-la-coupe-intercontinentale-le-psg-aura-l-occasion-d-etre-encore-un-peu-plus-a-jamais-les-pionniers/1617532)
+- **PSG-Flamengo, compos : 4 énormes surprises dans le 11 parisien**: [Link](https://www.football365.fr/psg-flamengo-compos-4-enormes-surprises-dans-le-11-parisien-10269898.html)
+
+
 ### psg vs flamengo (N/A, Wed, 17 Dec 2025 06:30:00 -0800)
 
 - **Sem Dembélé e com goleiro reserva, PSG divulga escalação para final contra o Flamengo**: [Link](https://oglobo.globo.com/esportes/noticia/2025/12/17/sem-dembele-e-com-goleiro-reserva-psg-divulga-escalacao-para-final-contra-o-flamengo.ghtml)
