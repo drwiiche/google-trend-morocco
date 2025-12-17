@@ -1,3 +1,10 @@
+### الطقس اليوم (N/A, Tue, 16 Dec 2025 23:10:00 -0800)
+
+- **درجات الحرارة اليوم الأربعاء 17-12-2025.. شبوره ونشاط الرياح واضطراب الملاحة**: [Link](https://www.youm7.com/story/2025/12/17/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-17-12-2025-%D8%B4%D8%A8%D9%88%D8%B1%D9%87-%D9%88%D9%86%D8%B4%D8%A7%D8%B7-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%AD/7236214)
+- **الأرصاد طقس معتدل مع فرصة لأمطار متفرقة والعظمى 19**: [Link](https://menafn.com/arabic/1110490181/%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B7%D9%82%D8%B3-%D9%85%D8%B9%D8%AA%D8%AF%D9%84-%D9%85%D8%B9-%D9%81%D8%B1%D8%B5%D8%A9-%D9%84%D8%A7%D9%94%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%B1%D9%82%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D9%89-19)
+- **تصل القاهرة الكبرى.. الأرصاد: أمطار متفاوتة الشدة على هذه المناطق اليوم**: [Link](https://akhbarelyom.com/news/newdetails/4742996/1/%D8%AA%D8%B5%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%A7%D9%88%D8%AA%D8%A9)
+
+
 ### météo casablanca (N/A, Tue, 16 Dec 2025 22:50:00 -0800)
 
 - **Casablanca-Settat : la SRM annonce le déploiement d’un dispositif d’intervention d’urgence**: [Link](https://ledesk.ma/encontinu/casablanca-settat-la-srm-annonce-le-deploiement-dun-dispositif-dintervention-durgence/)
