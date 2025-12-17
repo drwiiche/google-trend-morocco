@@ -1,3 +1,10 @@
+### niveau des barrages au maroc (N/A, Tue, 16 Dec 2025 18:20:00 -0800)
+
+- **Les dernières pluies dopent le niveau de remplissage des barrages au Maroc**: [Link](https://snrtnews.com/fr/article/les-dernieres-pluies-dopent-le-niveau-de-remplissage-des-barrages-au-maroc-142977)
+- **Les ressources en eau des barrages au Maroc s'améliorent grâce aux récentes précipitations**: [Link](https://ar.yabiladi.com/articles/details/183613/ressources-barrages-maroc-s-ameliorent-grace.html)
+- **Assurances hydriques**: [Link](https://www.lapresse.tn/2025/12/16/assurances-hydriques/)
+
+
 ### احوال الطقس (N/A, Tue, 16 Dec 2025 22:00:00 -0800)
 
 - **الشمال يستقبل أكبر كميات من الأمطار**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A3%D9%83%D8%A8%D8%B1-%D9%83%D9%85%D9%8A%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-1672124.html)
