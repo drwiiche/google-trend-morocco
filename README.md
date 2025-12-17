@@ -1,3 +1,10 @@
+### psg vs (N/A, Wed, 17 Dec 2025 08:50:00 -0800)
+
+- **PSG predicted XI v Flamengo: Désiré Doué to start, Ousmane Dembélé benched**: [Link](https://www.getfootballnewsfrance.com/2025/psg-predicted-xi-v-flamengo-desire-doue-to-start-ousmane-dembele-benched/)
+- **José Boto vs Luís Campos: The Intercontinental Final crafted in fluent Portuguese**: [Link](https://www.playmakerstats.com/news/jose-boto-vs-luis-campos-the-intercontinental-final-crafted-in-fluent-portuguese/1005812)
+- **An anticipated football summit brings together Paris Saint-Germain and Flamengo for the world title**: [Link](https://libyaupdate.com/an-anticipated-football-summit-brings-together-paris-saint-germain-and-flamengo-for-the-world-title/)
+
+
 ### cultural leonesa – levante (N/A, Wed, 17 Dec 2025 08:30:00 -0800)
 
 - **Cultural Leonesa vs Levante - Pronóstico, dónde ver, horario y alineaciones 17-12-2025**: [Link](https://onefootball.com/es/apuestas/pronosticos/futbol/cultural-leonesa-vs-levante-17-12-2025)
