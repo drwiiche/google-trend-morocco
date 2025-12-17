@@ -1,3 +1,10 @@
+### niveau des barrages maroc (N/A, Wed, 17 Dec 2025 03:00:00 -0800)
+
+- **Les dernières pluies dopent le niveau de remplissage des barrages au Maroc**: [Link](https://snrtnews.com/fr/article/les-dernieres-pluies-dopent-le-niveau-de-remplissage-des-barrages-au-maroc-142977)
+- **Les ressources en eau des barrages au Maroc s'améliorent grâce aux récentes précipitations**: [Link](https://ar.yabiladi.com/articles/details/183613/ressources-barrages-maroc-s-ameliorent-grace.html)
+- **Assurances hydriques**: [Link](https://www.lapresse.tn/2025/12/16/assurances-hydriques/)
+
+
 ### bim (N/A, Tue, 16 Dec 2025 16:10:00 -0800)
 
 - **BİM 17 Aralık 2025 Aktüel Ürünler Kataloğu! Masaj Koltuğu Geldi**: [Link](https://www.guraysalihoglu.com/bim-17-aralik-2025-aktuel-urunler-katalogu-masaj-koltugu-geldi/)
