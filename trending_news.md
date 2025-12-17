@@ -1,3 +1,24 @@
+### نيفين مندور (N/A, Wed, 17 Dec 2025 01:20:00 -0800)
+
+- **بطلة "اللي بالي بالك".. وفاة الفنانة المصرية نيفين مندور إثر حريق بمنزلها**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2025/12/17/%D8%A8%D8%B7%D9%84%D8%A9-%D8%A7%D9%84%D9%84%D9%8A-%D8%A8%D8%A7%D9%84%D9%8A-%D8%A8%D8%A7%D9%84%D9%83-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D9%86%D9%8A%D9%81%D9%8A%D9%86-%D9%85%D9%86%D8%AF%D9%88%D8%B1-%D8%A7%D8%AB%D8%B1-%D8%AD%D8%B1%D9%8A%D9%82-%D8%A8%D9%85%D9%86%D8%B2%D9%84%D9%87%D8%A7-)
+- **الدخان أخطر من النار.. تحذيرات لتفادى حرائق المنازل بعد مصرع نيفين مندور**: [Link](https://www.youm7.com/story/2025/12/17/%D8%A7%D9%84%D8%AF%D8%AE%D8%A7%D9%86-%D8%A3%D8%AE%D8%B7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%84%D8%AA%D9%81%D8%A7%D8%AF%D9%89-%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D8%A8%D8%B9%D8%AF-%D9%85%D8%B5%D8%B1%D8%B9/7237020)
+- **سر اختفاء بطلة «اللي بالي بالك» عن الفن.. من هي الفنانة نيفين مندور؟**: [Link](https://www.elwatannews.com/news/details/8191843)
+
+
+### bourse de casablanca (N/A, Wed, 17 Dec 2025 01:00:00 -0800)
+
+- **La Bourse de Casablanca termine en hausse**: [Link](https://fr.hespress.com/454308-la-bourse-de-casablanca-termine-en-hausse-35.html)
+- **Bourse de Casablanca. Le MASI termine en hausse et la capitalisation la capitalisation franchit les 1.000 MMDH**: [Link](https://medias24.com/2025/12/16/bourse-de-casablanca-le-masi-termine-en-hausse-et-la-capitalisation-la-capitalisation-franchit-les-1-000-mmdh-1597187/)
+- **Flash Momentum: Scoring technique des valeurs du MASI 20**: [Link](https://boursenews.ma/article/graphiques-et-analyse-technique/Flash-Momentum-15-decembre-2025)
+
+
+### شاهد (N/A, Tue, 16 Dec 2025 12:30:00 -0800)
+
+- **شاهد.. لابورتا يقر بالمدفوعات لنيغريرا وبيريز يتحدث عن فضيحة**: [Link](https://www.aljazeera.net/sport/2025/12/16/%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%8A%D9%82%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%AF%D9%81%D9%88%D8%B9%D8%A7%D8%AA-%D9%84%D9%86%D9%8A%D8%BA%D8%B1%D9%8A%D8%B1%D8%A7)
+- **بيان ناري من الحكام ضد بيريز: لا يمكن استخدامنا لتبرير النتائج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D9%8A%D8%A7%D9%86-%D9%86%D8%A7%D8%B1%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85-%D8%B6%D8%AF-%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2-%D9%84%D8%A7-%D9%8A%D9%85%D9%83%D9%86-%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D8%A7%D9%85%D9%86%D8%A7-%D9%84%D8%AA%D8%A8%D8%B1%D9%8A%D8%B1-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D9%8A%D9%94%D8%AC/bltafcb13b395106010)
+- **بيريز: "قضية نيغريرا هي أكبر فضيحة في تاريخ كرة القدم!"**: [Link](https://m.elbotola.com/article/2025-12-16-11-43-886.html)
+
+
 ### الطقس اليوم (N/A, Tue, 16 Dec 2025 23:10:00 -0800)
 
 - **درجات الحرارة اليوم الأربعاء 17-12-2025.. شبوره ونشاط الرياح واضطراب الملاحة**: [Link](https://www.youm7.com/story/2025/12/17/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-17-12-2025-%D8%B4%D8%A8%D9%88%D8%B1%D9%87-%D9%88%D9%86%D8%B4%D8%A7%D8%B7-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%AD/7236214)
