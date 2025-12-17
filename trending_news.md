@@ -1,3 +1,10 @@
+### bim (N/A, Tue, 16 Dec 2025 16:10:00 -0800)
+
+- **BİM 17 Aralık 2025 Aktüel Ürünler Kataloğu! Masaj Koltuğu Geldi**: [Link](https://www.guraysalihoglu.com/bim-17-aralik-2025-aktuel-urunler-katalogu-masaj-koltugu-geldi/)
+- **16-19 ARALIK 2025 BİM AKTÜEL ÜRÜNLER KATALOĞU | BİM’de bu hafta hangi ürünler indirimde?**: [Link](https://www.liderhaber.com.tr/bim-16-19-aralik-2025-aktuel-katalog-tam-liste)
+- **BİM 19 Aralık Cuma aktüel kataloğu! BİM markete bu hafta Cuma günü Led Işık Perde, 100'lü Led Şerit, Figürlü Sıcak Su Torbası, Squishmallows geliyor!**: [Link](https://www.milliyet.com.tr/galeri/bim-19-aralik-cuma-aktuel-katalogu-bim-markete-bu-hafta-cuma-gunu-led-isik-perde-100lu-led-serit-figurlu-sicak-su-torbasi-7503749)
+
+
 ### نيفين مندور (N/A, Wed, 17 Dec 2025 01:20:00 -0800)
 
 - **بطلة "اللي بالي بالك".. وفاة الفنانة المصرية نيفين مندور إثر حريق بمنزلها**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2025/12/17/%D8%A8%D8%B7%D9%84%D8%A9-%D8%A7%D9%84%D9%84%D9%8A-%D8%A8%D8%A7%D9%84%D9%8A-%D8%A8%D8%A7%D9%84%D9%83-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D9%86%D9%8A%D9%81%D9%8A%D9%86-%D9%85%D9%86%D8%AF%D9%88%D8%B1-%D8%A7%D8%AB%D8%B1-%D8%AD%D8%B1%D9%8A%D9%82-%D8%A8%D9%85%D9%86%D8%B2%D9%84%D9%87%D8%A7-)
