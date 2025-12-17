@@ -1,3 +1,10 @@
+### league cup (N/A, Wed, 17 Dec 2025 11:50:00 -0800)
+
+- **Carabao Cup quarter-final LIVE: Cardiff City 1-3 Chelsea - radio commentary, text updates, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c98nn371yllt)
+- **Why Maresca “fell in love” with his second string players despite bad performance**: [Link](https://onefootball.com/en/news/why-maresca-fell-in-love-with-his-second-string-players-despite-bad-performance-42107354)
+- **We want to win trophies- Pedro Neto states after Chelsea win in Carabao Cup**: [Link](https://citisportsonline.com/2025/12/we-want-to-win-trophies-pedro-neto-states-after-chelsea-win-in-carabao-cup/)
+
+
 ### newcastle – fulham (N/A, Wed, 17 Dec 2025 11:40:00 -0800)
 
 - **It’s time for Eddie Howe to give Nick Woltemade exactly what he wants vs Fulham**: [Link](https://www.geordiebootboys.com/opinion/its-time-for-eddie-howe-to-give-nick-woltemade-exactly-what-he-wants-vs-fulham/)
