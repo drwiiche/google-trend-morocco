@@ -1,3 +1,24 @@
+### ici tout commence (N/A, Wed, 17 Dec 2025 13:00:00 -0800)
+
+- **Ici tout commence en avance : le 18 décembre, Amaury est plus manipulateur que jamais et César passe à l’action**: [Link](https://www.telestar.fr/serie_tv/ici-tout-commence-en-avance-le-18-decembre-amaury-est-plus-manipulateur-que-jamais-et-cesar-passe-a-laction-1748731)
+- **Ici tout commence : ce qui vous attend dans l'épisode 1330 du jeudi 18 décembre 2025 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000181001.html)
+- **Ici tout commence : "Tu me dégoûtes !" Le résumé du 18 décembre (SPOILERS)**: [Link](https://www.programme-television.org/news/series/series-quotidiennes/ici-tout-commence-tu-me-degoutes-le-resume-du-18-decembre-spoilers-4748543)
+
+
+### real madrid live (N/A, Wed, 17 Dec 2025 12:50:00 -0800)
+
+- **CF Talavera - Real Madrid**: [Link](https://www.flashscore.com/match/football/cf-talavera-W0xBI7Xo/real-madrid-W8mj7MDD/)
+- **Xabi Alonso: “The Xabi who arrived in June is the not same as the one now”**: [Link](https://www.managingmadrid.com/coach/101791/xabi-alonso-the-xabi-who-arrived-in-june-is-the-not-same-as-the-one-now)
+- **Asencio withdrawn from the squad at the last minute**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/asencio-baja-de-ultima-hora-en-la-convocatoria-17-12-2025)
+
+
+### ألافيس ضد إشبيلية (N/A, Wed, 17 Dec 2025 12:50:00 -0800)
+
+- **الموعد والقنوات الناقلة لمباراة ديبورتيفو ألافيس و إشبيلية برسم كأس ملك إسبانيا**: [Link](https://alamriyadi.com/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AF%D9%8A%D8%A8%D9%88-29/)
+- **اتجاه معاكس.. لجنة الحكام الإسبانية تتخذ قرارا مفاجئا بشأن ركلة جزاء فينيسيوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D8%AA%D8%AC%D8%A7%D9%87-%D9%85%D8%B9%D8%A7%D9%83%D8%B3--%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AE%D8%B0-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94%D8%A7-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%B1%D9%83%D9%84%D8%A9-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3/blt4212dc73aa02d667)
+- **هل حُرم ريال مدريد من ركلة جزاء في مواجهة ألافيس؟**: [Link](https://www.aljazeera.net/sport/2025/12/15/%D9%87%D9%84-%D8%AD%D9%8F%D8%B1%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%86-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D9%81%D9%8A)
+
+
 ### shahid (N/A, Wed, 17 Dec 2025 12:30:00 -0800)
 
 - **Shahid Reveals Top 10 Most Watched Shows in Saudi**: [Link](https://cairoscene.com/Buzz/Shahid-Reveals-Top-10-Most-Watched-Shows-in-Saudi)
