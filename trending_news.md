@@ -1,3 +1,17 @@
+### farense – benfica (N/A, Wed, 17 Dec 2025 13:10:00 -0800)
+
+- **Farense x Benfica na Taça de Portugal: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/farense-x-benfica-na-taca-de-portugal-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
+- **12h30m Edição Valter Madureira**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/12h30m-edicao-valter-madureira_a1_1704877)
+- **Manu e mais dez: o onze provável do Benfica para o jogo com o Farense**: [Link](https://www.record.pt/multimedia/fotogalerias/detalhe/manu-e-mais-dez-o-onze-provavel-do-benfica-para-o-jogo-com-o-farense)
+
+
+### deportivo alavés – séville (N/A, Wed, 17 Dec 2025 11:20:00 -0800)
+
+- **How to watch today's Alaves vs Sevilla Copa del Rey game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/live-stream-online-tv-where-to-watch-deportivo-alaves-v-sevilla/blte96775b51e0f6442)
+- **Alavés hosts Sevilla tonight in Copa del Rey showdown, but Sevilla's injury crisis might make tonight different**: [Link](https://www.red94.net/news/29394-alaves-faces-sevilla-tonight-in-copa-del-rey-clash-vitoria-gasteiz-hosts-round-o/)
+- **Preview: Alaves vs Sevilla - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/alaves/copa-del-rey/preview/alaves-vs-sevilla-prediction-team-news-lineups_587869.html)
+
+
 ### ici tout commence (N/A, Wed, 17 Dec 2025 13:00:00 -0800)
 
 - **Ici tout commence en avance : le 18 décembre, Amaury est plus manipulateur que jamais et César passe à l’action**: [Link](https://www.telestar.fr/serie_tv/ici-tout-commence-en-avance-le-18-decembre-amaury-est-plus-manipulateur-que-jamais-et-cesar-passe-a-laction-1748731)
