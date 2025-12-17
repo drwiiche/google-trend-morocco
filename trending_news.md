@@ -1,3 +1,10 @@
+### paris (N/A, Wed, 17 Dec 2025 11:30:00 -0800)
+
+- **Notre sondage exclusif sur les municipales à Paris : un scrutin plus disputé que jamais et une percée inattendue**: [Link](https://www.leparisien.fr/elections/municipales/notre-sondage-exclusif-sur-les-municipales-a-paris-un-scrutin-plus-dispute-que-jamais-et-une-percee-inattendue-13-12-2025-AM3ZGW6HCJHGRFAXUROXV2RSDA.php)
+- **Municipales à Paris : vers un accord historique de premier tour entre socialistes, communistes et écologistes**: [Link](https://www.lemonde.fr/politique/article/2025/12/17/municipales-a-paris-vers-un-accord-historique-de-premier-tour-entre-socialistes-communistes-et-ecologistes_6658311_823448.html)
+- **Maud Gatel, présidente des élus MoDem parisiens : « Rachida Dati saura redonner son éclat à Paris »**: [Link](https://www.latribune.fr/article/la-tribune-dimanche/politique/3129915057017514/maud-gatel-presidente-des-elus-modem-parisiens-rachida-dati-saura-redonner-son-eclat-a-paris)
+
+
 ### talavera club de fútbol – real madrid (N/A, Wed, 17 Dec 2025 11:10:00 -0800)
 
 - **Posible alineación del Real Madrid contra el Talavera en Copa del Rey**: [Link](https://as.com/futbol/copa_del_rey/posible-alineacion-del-real-madrid-contra-el-talavera-en-copa-del-rey-f202512-n/)
