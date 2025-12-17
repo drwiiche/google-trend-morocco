@@ -1,3 +1,24 @@
+### taux de remplissage des barrages maroc (N/A, Wed, 17 Dec 2025 05:00:00 -0800)
+
+- **Les dernières pluies dopent le niveau de remplissage des barrages au Maroc**: [Link](https://snrtnews.com/fr/article/les-dernieres-pluies-dopent-le-niveau-de-remplissage-des-barrages-au-maroc-142977)
+- **Pluies et chutes de neige : légère hausse des réserves des barrages**: [Link](https://lematin.ma/nation/pluies-et-chutes-de-neige-legere-hausse-des-reserves-des-barrages/318927)
+- **Les ressources en eau des barrages au Maroc s'améliorent grâce aux récentes précipitations**: [Link](https://ar.yabiladi.com/articles/details/183613/ressources-barrages-maroc-s-ameliorent-grace.html)
+
+
+### match maroc jordanie (N/A, Wed, 17 Dec 2025 04:50:00 -0800)
+
+- **Coupe Arabe de la FIFA: Maroc-Jordanie en finale**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%81%D9%8A/)
+- **Coupe arabe : deux coachs marocains en finale, une première dans l’histoire du football national**: [Link](https://lematin.ma/sports/coupe-arabe-deux-coachs-marocains-en-finale/319421)
+- **Coupe Arabe : 4 victoires pour les Lions de l'Atlas contre un nul... L'histoire penche en faveur du Maroc avant la finale face à la Jordanie**: [Link](https://m.elbotola.com/fr/article/2025-12-16-15-10-646.html)
+
+
+### action sgtm maroc (N/A, Wed, 17 Dec 2025 04:30:00 -0800)
+
+- **Cash Plus : de 200 DH à plus de 320 DH en une semaine de cotation**: [Link](https://medias24.com/2025/12/15/cash-plus-de-200-dh-a-plus-de-320-dh-en-une-semaine-de-cotation-1596159/)
+- **IPO de la SGTM : un jalon historique pour le financement boursier de l’économie réelle**: [Link](https://ledesk.ma/2025/12/16/ipo-de-la-sgtm-un-jalon-historique-pour-le-financement-boursier-de-leconomie-reelle/)
+- **Bourse de Casablanca : un nouveau record avec l’IPO de SGTM**: [Link](https://mobile.telquel.ma/2025/12/16/bourse-de-casablanca-un-nouveau-record-avec-lipo-de-sgtm_1965643)
+
+
 ### la france a un incroyable talent (N/A, Wed, 17 Dec 2025 03:20:00 -0800)
 
 - **Audiences : La finale de "La France a un incroyable talent" sur M6 a-t-elle réussi à détrôner "Tom et Lola" sur France 3 ?**: [Link](https://www.ozap.com/actu/audiences-la-finale-de-la-france-a-un-incroyable-talent-sur-m6-a-t-elle-reussi-a-detroner-tom-et-lola-sur-france-3/652923)
