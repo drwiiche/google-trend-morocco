@@ -1,3 +1,10 @@
+### météo casablanca (N/A, Tue, 16 Dec 2025 22:50:00 -0800)
+
+- **Casablanca-Settat : la SRM annonce le déploiement d’un dispositif d’intervention d’urgence**: [Link](https://ledesk.ma/encontinu/casablanca-settat-la-srm-annonce-le-deploiement-dun-dispositif-dintervention-durgence/)
+- **Intempéries : appel à la prudence et au report des déplacements dans les provinces concernées**: [Link](https://lematin.ma/regions/intemperies-le-ministere-de-lequipement-appelle-a-reporter-les-voyages/319446)
+- **Intempéries : les opérations de déneigement se poursuivent à Midelt et Tinghir**: [Link](https://medias24.com/2025/12/16/intemperies-les-operations-de-deneigement-se-poursuivent-a-midelt-et-tinghir-1597259/)
+
+
 ### niveau des barrages au maroc (N/A, Tue, 16 Dec 2025 18:20:00 -0800)
 
 - **Les dernières pluies dopent le niveau de remplissage des barrages au Maroc**: [Link](https://snrtnews.com/fr/article/les-dernieres-pluies-dopent-le-niveau-de-remplissage-des-barrages-au-maroc-142977)
