@@ -1,3 +1,10 @@
+### newcastle – fulham (N/A, Wed, 17 Dec 2025 11:40:00 -0800)
+
+- **It’s time for Eddie Howe to give Nick Woltemade exactly what he wants vs Fulham**: [Link](https://www.geordiebootboys.com/opinion/its-time-for-eddie-howe-to-give-nick-woltemade-exactly-what-he-wants-vs-fulham/)
+- **Wissa starts, Miley at right-back – Confirmed Newcastle and Fulham team sheets**: [Link](https://www.nufcblog.co.uk/2025/12/17/wissa-starts-miley-at-right-back-confirmed-newcastle-and-fulham-team-sheets/)
+- **Newcastle v Fulham line-ups: Lecomte, Cuenca, Lukic and Kevin play**: [Link](https://www.westlondonsport.com/fulham/newcastle-v-fulham-line-ups-lecomte-cuenca-lukic-and-kevin-play)
+
+
 ### paris (N/A, Wed, 17 Dec 2025 11:30:00 -0800)
 
 - **Notre sondage exclusif sur les municipales à Paris : un scrutin plus disputé que jamais et une percée inattendue**: [Link](https://www.leparisien.fr/elections/municipales/notre-sondage-exclusif-sur-les-municipales-a-paris-un-scrutin-plus-dispute-que-jamais-et-une-percee-inattendue-13-12-2025-AM3ZGW6HCJHGRFAXUROXV2RSDA.php)
