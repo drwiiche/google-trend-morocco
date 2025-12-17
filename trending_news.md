@@ -1,3 +1,31 @@
+### باريس سان جيرمان (N/A, Wed, 17 Dec 2025 09:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة باريس سان جيرمان وفلامنجو في نهائي كأس القارات للأندية إنتركونتيننتال 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D9%81%D9%84%D8%A7%D9%85%D9%86%D8%AC%D9%88-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D8%A7%D9%94%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%83%D9%88%D9%86%D8%AA%D9%8A%D9%86%D9%86%D8%AA%D8%A7%D9%84-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte6a02110516f398f)
+- **الفتح حكما لنهائي كأس إنتر كونتيننتال**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%AD%D9%83%D9%85%D8%A7-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%86%D8%AA%D8%B1-%D9%83%D9%88%D9%86%D8%AA%D9%8A%D9%86%D9%86%D8%AA%D8%A7%D9%84-418050.html)
+- **قطر ونجاح تنظيم الأحداث الرياضية.. من جوائز الأفضل إلى كأس العرب**: [Link](https://www.alaraby.co.uk/sport/%D9%82%D8%B7%D8%B1-%D9%88%D9%86%D8%AC%D8%A7%D8%AD-%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%85%D9%86-%D8%AC%D9%88%D8%A7%D8%A6%D8%B2-%D8%A7%D9%84%D8%A3%D9%81%D8%B6%D9%84-%D8%A5%D9%84%D9%89-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8)
+
+
+### atlético baleares – atlético madrid (N/A, Wed, 17 Dec 2025 09:30:00 -0800)
+
+- **Un matagigantes vuelve a rondar a Simeone**: [Link](https://www.abc.es/deportes/atletico-madrid/matagigantes-vuelve-rondar-simeone-20251217022653-nt.html)
+- **Atlético Baleares - Atlético de Madrid, en directo: Copa del Rey, en vivo hoy**: [Link](https://as.com/futbol/copa_del_rey/atletico-baleares-atletico-de-madrid-en-directo-copa-del-rey-en-vivo-hoy-f202512-d/)
+- **Marc Juliá antes del partido ante el Atlético: "Los jugadores van a darlo todo como ante el Nàstic y el Espanyol, no es imposible"**: [Link](https://www.cope.es/emisoras/illes-balears/baleares/mallorca/deportes-mallorca/noticias/marc-julia-partido-atletico-jugadores-darlo-nastic-espanyol-imposible-20251217_3272900.html)
+
+
+### albacete – celta vigo (N/A, Wed, 17 Dec 2025 09:30:00 -0800)
+
+- **Albacete - Celta: Giráldez no se fía del Alba**: [Link](https://www.marca.com/futbol/copa-rey/2025/12/17/albacete-celta-giraldez-fia-alba.html)
+- **A esquivar la gripe albaceteña**: [Link](https://www.atlantico.net/celtismo/esquivar-gripe-albacetena_1_20251217-4097102.html)
+- **Alberto González confía en hacer saltar la sorpresa**: [Link](https://www.farodevigo.es/celta-de-vigo/2025/12/17/alberto-gonzalez-confia-saltar-sorpresa-124868793.html)
+
+
+### santander – villarreal (N/A, Wed, 17 Dec 2025 09:30:00 -0800)
+
+- **How to watch today's Racing Santander vs Villarreal Copa del Rey game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/live-stream-online-tv-where-to-watch-racing-santander-v-villarreal/bltfd0b381ffd9fb30f)
+- **Racing vs Villarreal tonight in Copa del Rey Round of 32 clash, but one shocking statistic could change everything**: [Link](https://www.red94.net/news/98897-racing-faces-villarreal-tonight-in-copa-del-rey-round-of-32-clash/)
+- **Preview: Racing Santander vs Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/racing-de-santander/copa-del-rey/preview/racing-santander-vs-villarrealprediction-team-news-lineups_587847.html)
+
+
 ### huesca – osasuna (N/A, Wed, 17 Dec 2025 09:10:00 -0800)
 
 - **Alineaciones confirmadas en el Huesca - Osasuna de Copa del Rey**: [Link](https://www.sportaragon.com/articulo/sd-huesca/alineaciones-confirmadas-huesca-osasuna-copa-rey/20251217175030143727.html)
