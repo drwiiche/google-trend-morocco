@@ -1,3 +1,24 @@
+### talavera club de fútbol – real madrid (N/A, Wed, 17 Dec 2025 11:10:00 -0800)
+
+- **Posible alineación del Real Madrid contra el Talavera en Copa del Rey**: [Link](https://as.com/futbol/copa_del_rey/posible-alineacion-del-real-madrid-contra-el-talavera-en-copa-del-rey-f202512-n/)
+- **Convocatoria del Real Madrid frente al Talavera**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-frente-al-talavera-16-12-2025)
+- **Sin Courtois, Fede y Rüdiger, pero con Mbappé para medirse al Talavera**: [Link](https://www.marca.com/futbol/real-madrid/2025/12/17/xabi-quiere-sustos-courtois-ruediger-mbappe-medirse-talavera.html)
+
+
+### talavera ضد الريال (N/A, Wed, 17 Dec 2025 11:10:00 -0800)
+
+- **الضربات تتوالى.. استبعاد كورتوا ومدافع ريال مدريد من قائمة مواجهة تالافيرا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B6%D8%B1%D8%A8%D8%A7%D8%AA-%D8%AA%D8%AA%D9%88%D8%A7%D9%84%D9%89--%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D9%88%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D8%A7%D9%84%D8%A7%D9%81%D9%8A%D8%B1%D8%A7/blt279a40535ae94f3b)
+- **مباشر.. مباراة ريال مدريد ضد تالافيرا في كأس ملك إسبانيا**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/17/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%AA%D8%A7%D9%84%D8%A7%D9%81%D9%8A%D8%B1%D8%A7)
+- **القنوات الناقلة لمباراة ريال مدريد وتالافيرا في كأس ملك إسبانيا 2026**: [Link](https://al-ain.com/article/talavera-real-madrid-copa-del-rey-2026-channels)
+
+
+### مان سيتي ضد برينتفورد (N/A, Wed, 17 Dec 2025 11:10:00 -0800)
+
+- **جوارديولا يدلي بتصريحات صادمة عن جيريمي دوكو.. ويحسم مصير ترافورد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%AF%D9%84%D9%8A-%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D8%B9%D9%86-%D8%AC%D9%8A%D8%B1%D9%8A%D9%85%D9%8A-%D8%AF%D9%88%D9%83%D9%88--%D9%88%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D8%B5%D9%8A%D8%B1-%D8%AA%D8%B1%D8%A7%D9%81%D9%88%D8%B1%D8%AF/blt8fa464d6fac15235)
+- **إنجاز تاريخي للسيتي في كأس الرابطة**: [Link](https://hihi2.com/2025/12/17/p3562332.html)
+- **أزمة غيابات تضرب مانشستر سيتي قبل مواجهة برينتفورد في كأس الرابطة**: [Link](https://www.albawaba.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A3%D8%B2%D9%85%D8%A9-%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-1618915)
+
+
 ### manchester city – brentford (N/A, Wed, 17 Dec 2025 11:00:00 -0800)
 
 - **A host of Manchester City fringe players must seize their opportunity against Brentford**: [Link](https://esteemedkompany.com/2025/12/16/a-host-of-manchester-city-fringe-players-must-seize-their-opportunity-against-brentford/)
