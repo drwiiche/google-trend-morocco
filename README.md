@@ -1,3 +1,10 @@
+### bein sport (N/A, Thu, 18 Dec 2025 07:40:00 -0800)
+
+- **القنوات الناقلة لمباريات كأس أمم أفريقيا 2025 بمشاركة منتخب مصر**: [Link](https://www.youm7.com/story/2025/12/15/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D8%A8%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1/7233898)
+- **القناة الثانية 2M تطلق تجربة رياضية جديدة مع برنامج "Planète Foot" لمواكبة أجواء كأس إفريقيا بالمغرب. يوميا ابتداء من 20 دجنبر في 10 والنصف ليلا**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-2M-%D8%AA%D8%B7%D9%84%D9%82-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D8%B9-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-Planet-Foot-20251218)
+- **الفرجة مجانًا.. تردد قناة TPA Angola الناقلة لبطولة كأس أمم إفريقيا في المغرب 2025**: [Link](https://www.sabaharabi.com/693237)
+
+
 ### bein sport live (N/A, Thu, 18 Dec 2025 07:20:00 -0800)
 
 - **Arab Cup Final: Morocco vs. Jordan—How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/272252/arab-cup-final-morocco-vs-jordan-how-when-to-watch/)
