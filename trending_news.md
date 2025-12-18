@@ -1,3 +1,52 @@
+### yalla kora (N/A, Thu, 18 Dec 2025 08:00:00 -0800)
+
+- **التشكيلة المثالية للجولة الـ16 من الدوري الإنجليزي**: [Link](https://hihi2.com/2025/12/15/p3559544.html)
+- **خبراء الفانتازي يقدمون نصائح قوية للجولة 17 للدوري الإنجليزي**: [Link](https://newturkpost.com/news/112943-%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D9%8A%D9%82%D8%AF%D9%85%D9%88%D9%86-%D9%86%D8%B5%D8%A7%D8%A6%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%84%D9%84%D8%AC%D9%88%D9%84%D8%A9-17-%D9%84%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+- **الجولة 17.. كيف تختار فريقك المثالي هذا الأسبوع في فانتازي الدوري الإنجليزي؟ - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/684279921326849-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-17-%D9%83%D9%8A%D9%81-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-%D9%81%D8%B1%D9%8A%D9%82%D9%83-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%81%D9%8A-%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/)
+
+
+### match (N/A, Thu, 18 Dec 2025 08:00:00 -0800)
+
+- **NIC Foundation Future 50 Legacy Match campaign spreading continuous holiday cheer**: [Link](https://www.mycomoxvalleynow.com/115585/news/education/north-island-college/nic-foundation-future-50-legacy-match-campaign-spreading-continuous-holiday-cheer/)
+- **NIC Foundation Launches Future 50 Legacy Match Campaign**: [Link](https://www.theraven.fm/news1/raven-country-news/nic-foundation-launches-future-50-legacy-match-campaign/)
+- **Thursday Caps Clips: Capitals vs. Maple Leafs Game Day**: [Link](https://www.japersrink.com/thursday-caps-clips-capitals-vs-maple-leafs-game-day/)
+
+
+### live match (N/A, Thu, 18 Dec 2025 08:00:00 -0800)
+
+- **PSG 1-1 Flamengo (Dec 17, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/759124)
+- **PSG win Intercontinental Cup: Matvey Safonov saves four penalties in shootout against Flamengo**: [Link](https://www.bbc.com/sport/football/live/c17xzryxyllt)
+- **PSG vs Flamengo: Intercontinental Cup final 2025 – team news, date, lineups**: [Link](https://www.aljazeera.com/sports/2025/12/14/fifa-intercontinental-cup-2025-final-psg-vs-flamengo-team-news-lineups)
+
+
+### محمد منير (N/A, Thu, 18 Dec 2025 07:50:00 -0800)
+
+- **محمد منير وعمر العبد اللات يحييان حفل ختام كأس العرب 2025 في قطر (فيديو)**: [Link](https://www.arrajol.com/content/392715/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D8%AD%D9%85%D8%AF-%D9%85%D9%86%D9%8A%D8%B1-%D9%88%D8%B9%D9%85%D8%B1-%D8%A7%D9%84%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D8%A7%D8%AA-%D9%8A%D8%AD%D9%8A%D9%8A%D8%A7%D9%86-%D8%AD%D9%81%D9%84-%D8%AE%D8%AA%D8%A7%D9%85-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-2025-%D9%81%D9%8A-%D9%82%D8%B7%D8%B1-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+- **العبداللات يمثل الأردن في الحفل الختامي لكأس العرب**: [Link](https://www.ammonnews.net/article/967816)
+- **كأس العرب.. انطلاق الحفل الختامي قبل مواجهة الأردن والمغرب**: [Link](https://darelhilal.com/News/3144145.aspx)
+
+
+### bein sports live (N/A, Thu, 18 Dec 2025 07:50:00 -0800)
+
+- **Morocco Advance to the FIFA Arab Cup Final With Win Over the United Arab Emirates**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/morocco-advance-to-the-fifa-arab-cup-final-with-win-over-the-united-arab-emirates-2025-12-15)
+- **Sectioui: 'Our Pressures Stem from a High Sense of National Duty'**: [Link](https://m.elbotola.com/en/article/2025-12-16-10-38-76.html)
+- **Arab Cup 2025: Morocco A’ in the Final**: [Link](https://mountakhab.net/en/arab-cup-2025-morocco-a-in-the-final/)
+
+
+### match maroc (N/A, Thu, 18 Dec 2025 07:40:00 -0800)
+
+- **DIRECT. Jordanie-Maroc: suivez le match de la finale de la Coupe arabe en live**: [Link](https://rmcsport.bfmtv.com/football/direct-jordanie-maroc-suivez-le-match-de-la-finale-de-la-coupe-arabe-en-live_LS-202512180608.html)
+- **Coupe arabe : à quelle heure et sur quelle chaîne voir la finale Jordanie - Maroc ?**: [Link](https://www.lequipe.fr/Football/Actualites/Coupe-arabe-a-quelle-heure-et-sur-quelle-chaine-voir-la-finale-jordanie-maroc/1617367)
+- **Coupe arabe 2025. Maroc-Jordanie : Tarik Sektioui, l’homme des finales**: [Link](https://medias24.com/2025/12/17/coupe-arabe-2025-maroc-jordanie-tarik-sektioui-lhomme-des-finales-1598107/)
+
+
+### jordan vs morocco (N/A, Thu, 18 Dec 2025 07:30:00 -0800)
+
+- **Watch Live! Jordan vs Morocco Final in the FIFA Arab Cup on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/watch-live-jordan-vs-morocco-final-in-the-fifa-arab-cup-on-bein-sports-2025-12-18)
+- **Jordan's Abu Zureiq: "Morocco is a Great Team, But We Have a Strong Coach; Hope We Learned from Asian Cup Final"**: [Link](https://m.elbotola.com/en/article/2025-12-17-20-50-734.html)
+- **Ayed: We’re capable of winning title**: [Link](https://thepeninsulaqatar.com/article/17/12/2025/ayed-were-capable-of-winning-title)
+
+
 ### bein sport (N/A, Thu, 18 Dec 2025 07:40:00 -0800)
 
 - **القنوات الناقلة لمباريات كأس أمم أفريقيا 2025 بمشاركة منتخب مصر**: [Link](https://www.youm7.com/story/2025/12/15/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D8%A8%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1/7233898)
