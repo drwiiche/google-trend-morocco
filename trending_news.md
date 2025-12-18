@@ -1,3 +1,10 @@
+### saudi vs emirates (N/A, Thu, 18 Dec 2025 03:10:00 -0800)
+
+- **FIFA Arab Cup Qatar 2025™: 3rd Place - Saudi Arabia vs UAE**: [Link](https://www.iloveqatar.net/events/sports/fifa-arab-cup-qatar-2025-3rd-place-saudi-arabia-vs-uae)
+- **Saudi Arabia, UAE seek Arab Cup consolation**: [Link](https://thepeninsulaqatar.com/article/18/12/2025/saudi-arabia-uae-seek-arab-cup-consolation)
+- **Saudi Arabia vs UAE: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/272253/saudi-arabia-vs-uae-how-when-to-watch/)
+
+
 ### wa (N/A, Thu, 18 Dec 2025 00:20:00 -0800)
 
 - **These were the top wind speeds recorded overnight in western Washington storm**: [Link](https://www.king5.com/article/weather/weather-impact/top-wind-speeds-recorded-overnight-western-washington-storm/281-2b2483e1-c9c4-4841-a983-91571dfe6127)
