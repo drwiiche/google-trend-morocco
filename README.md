@@ -1,3 +1,17 @@
+### copa árabe de la fifa (N/A, Thu, 18 Dec 2025 10:40:00 -0800)
+
+- **Sellami: “Enfrentar a Marruecos es una etapa clave de mi carrera”**: [Link](https://es.rue20.com/2025/12/17/sellami-enfrentar-a-marruecos-es-una-etapa-clave-de-mi-carrera/)
+- **El título traducido de manera literal y precisa es: "Fecha del partido entre Marruecos y Jordania".**: [Link](https://tanja7.com/es/6405)
+- **Cómo ver la Final de la Copa Árabe de la FIFA entre Marruecos y Jordania**: [Link](https://www.beinsports.com/es-us/football/arab-cup/articles/c%C3%B3mo-ver-la-final-de-la-copa-%C3%A1rabe-de-la-fifa-entre-marruecos-y-jordania-2025-12-16)
+
+
+### football (N/A, Thu, 18 Dec 2025 10:10:00 -0800)
+
+- **NFL Fantasy 2025 Start 'Em, Sit 'Em: Running backs for Week 16**: [Link](https://www.nfl.com/news/nfl-fantasy-2025-start-em-sit-em-running-backs-for-week-16)
+- **Shot Caller's Report: Week 14 Running Backs - Who to Start, Who to Sit**: [Link](https://www.fftoday.com/articles/schwarz/25_scr_wk16_rbs.html)
+- **TreVeyon Henderson, Omarion Hampton & Woody Marks BEST of rookie plays: WEEK 16 fantasy RB RANKINGS, lineup advice**: [Link](https://www.11alive.com/video/sports/locked-on/lo-national/fantasy-football-show/treveyon-henderson-omarion-hampton-woody-marks-best-of-rookie-plays-week-16-fantasy-rb-rankings-lineup-advice/535-ea5746ae-8c71-4e07-8a11-0428043a7c5f)
+
+
 ### live score (N/A, Thu, 18 Dec 2025 09:30:00 -0800)
 
 - **Porto vs Famalicao LIVE Score Updates in Portuguese Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/18/1244873-porto-vs-famalicao-live-score-portuguese-cup.html)
