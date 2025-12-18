@@ -1,3 +1,17 @@
+### qatar (N/A, Thu, 18 Dec 2025 05:40:00 -0800)
+
+- **Qatar’s PM says Israeli ceasefire violations ‘endanger’ entire Gaza process**: [Link](https://www.aljazeera.com/news/2025/12/18/qatars-pm-says-israeli-ceasefire-violations-endanger-entire-gaza-process)
+- **Secretary Rubio’s Meeting with Qatari Prime Minister and Minister of Foreign Affairs Al Thani**: [Link](https://www.state.gov/releases/office-of-the-spokesperson/2025/12/secretary-rubios-meeting-with-qatari-prime-minister-and-minister-of-foreign-affairs-al-thani)
+- **Qatar stresses Gaza stabilization force must remain neutral**: [Link](https://menafn.com/1110496143/Qatar-stresses-Gaza-stabilization-force-must-remain-neutral)
+
+
+### saudi vs uae (N/A, Thu, 18 Dec 2025 04:50:00 -0800)
+
+- **Arab Cup Final: Morocco vs. Jordan—How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/272252/arab-cup-final-morocco-vs-jordan-how-when-to-watch/)
+- **Jordan's Abu Zureiq: "Morocco is a Great Team, But We Have a Strong Coach; Hope We Learned from Asian Cup Final"**: [Link](https://m.elbotola.com/en/article/2025-12-17-20-50-734.html)
+- **Ayed: We’re capable of winning title**: [Link](https://thepeninsulaqatar.com/article/17/12/2025/ayed-were-capable-of-winning-title)
+
+
 ### arabie saoudite vs emirats arabes unis (N/A, Thu, 18 Dec 2025 05:20:00 -0800)
 
 - **Arabie Saoudite-Émirats Arabes Unis, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/international/arabie-saoudite-emirats-arabes-unis-sur-quelle-chaine-voir-le-match-790303.html)
