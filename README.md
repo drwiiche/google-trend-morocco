@@ -1,3 +1,10 @@
+### طقس اليوم (N/A, Wed, 17 Dec 2025 22:40:00 -0800)
+
+- **الطقس اليوم الخميس 18-12-2025.. أجواء شتوية باردة وشبورة كثيفة صباحا**: [Link](https://www.youm7.com/story/2025/12/18/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-18-12-2025-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D9%88%D8%B4%D8%A8%D9%88%D8%B1%D8%A9/7237474)
+- **الأرصاد: استقرار في الأحوال الجوية على أغلب الأنحاء اليوم الخميس**: [Link](https://www.nogoumfm.net/2025/12/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%B9%D9%84%D9%89/)
+- **أجواء شتوية مستقرة مع شبورة صباحية وبرودة ليلية على أغلب أنحاء مصر**: [Link](https://alfallahalyoum.news/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D9%85%D8%B3%D8%AA%D9%82%D8%B1%D8%A9-%D9%85%D8%B9-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D8%B5%D8%A8%D8%A7%D8%AD%D9%8A%D8%A9-%D9%88%D8%A8%D8%B1.html/)
+
+
 ### farense – benfica (N/A, Wed, 17 Dec 2025 13:10:00 -0800)
 
 - **Farense x Benfica na Taça de Portugal: onde assistir ao vivo, horário e escalação**: [Link](https://www.estadao.com.br/esportes/futebol/farense-x-benfica-na-taca-de-portugal-onde-assistir-ao-vivo-horario-e-escalacao-npres/)
