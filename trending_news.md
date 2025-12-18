@@ -1,3 +1,10 @@
+### barrages maroc (N/A, Thu, 18 Dec 2025 04:00:00 -0800)
+
+- **Les barrages gagnent près de 119 millions de m³ de réserves en deux jours**: [Link](https://medias24.com/2025/12/17/barrages-pres-de-119-mm%C2%B3-en-2-jours-1597737/)
+- **Barrages : les pluies font remonter les réserves d’eau à 5,4 milliards de m³**: [Link](https://lematin.ma/nation/barrages-les-pluies-font-remonter-les-reserves-deau-a-54-milliards-m/319720)
+- **Maroc : les précipitations récentes renforcent les réserves en eau des barrages**: [Link](https://2m.ma/fr/news/Maroc-les-pr%C3%A9cipitations-r%C3%A9centes-renforcent-les-r%C3%A9serves-en-20251217)
+
+
 ### saudi vs emirates (N/A, Thu, 18 Dec 2025 03:10:00 -0800)
 
 - **FIFA Arab Cup Qatar 2025™: 3rd Place - Saudi Arabia vs UAE**: [Link](https://www.iloveqatar.net/events/sports/fifa-arab-cup-qatar-2025-3rd-place-saudi-arabia-vs-uae)
