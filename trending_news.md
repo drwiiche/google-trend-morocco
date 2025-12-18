@@ -1,3 +1,17 @@
+### السكتيوي (N/A, Thu, 18 Dec 2025 11:50:00 -0800)
+
+- **السكتيوي يتحدث بتأثر عن والده والقبعة: "أتمنى أن نتوج غدا بكأس العرب بغض النظر عما إذا كنت سأرتديها**: [Link](https://m.elbotola.com/video/details/69429f16a5f1d7146735acd7/)
+- **طارق السكتيوي.. عندما يتحول المدرب الوطني إلى صانع أمجاد**: [Link](https://kifache.com/%D8%B7%D8%A7%D8%B1%D9%82-%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D8%AA%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%88%D8%B7/)
+- **السكتيوي ل"المنتخب": لم أفضل الإستمتاع بالحياة بعد الإعتزال**: [Link](https://www.almountakhab.com/node/16220749)
+
+
+### can (N/A, Thu, 18 Dec 2025 10:50:00 -0800)
+
+- **Iran’s President Says He Can’t Make ‘Miracles’ to Solve the Country’s Woes**: [Link](https://www.nytimes.com/2025/12/18/world/middleeast/iran-pezeshkian-domestic-foreign-crises.html)
+- **Trump Live Updates: President Signs Executive Order to Ease Cannabis Research**: [Link](https://www.nytimes.com/live/2025/12/18/us/trump-news)
+- **Trump signs executive order expediting marijuana reclassification after lobbying from cannabis industry**: [Link](https://www.cnn.com/2025/12/18/politics/trump-marijuana-reclassification-executive-order)
+
+
 ### chan (N/A, Thu, 18 Dec 2025 11:50:00 -0800)
 
 - **SuperSport opens festive football window for AFCON 2025**: [Link](https://thenationonlineng.net/supersport-opens-festive-football-window-for-afcon-2025/)
