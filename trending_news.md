@@ -1,3 +1,10 @@
+### score live (N/A, Thu, 18 Dec 2025 08:50:00 -0800)
+
+- **3A DI State Championship Preview: Grandview (13-2) vs. Yoakum (13-2)**: [Link](https://www.texasfootball.com/article/2025/12/14/2025-3a-di-state-preview)
+- **Grandview vs. Yoakum: Live score updates from Texas High School Football Class 3A Division I championship game**: [Link](https://www.si.com/high-school/texas/grandview-vs-yoakum-live-score-updates-from-texas-high-school-football-class-3a-division-i-championship-game-01kcs1adg583)
+- **Grandview vs Yoakum state championship game preview**: [Link](https://www.cleburnetimesreview.com/sports/grandview-vs-yoakum-state-championship-game-preview/article_1722b316-8c55-4ef9-8a8e-f2d80b1de719.html)
+
+
 ### flashscore (N/A, Thu, 18 Dec 2025 08:40:00 -0800)
 
 - **Man United's thriller against Bournemouth is advert for January transfer window**: [Link](https://www.espn.com/soccer/story/_/id/47318846/manchester-united-bournemouth-thriller-showcases-january-needs)
