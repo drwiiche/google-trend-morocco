@@ -1,3 +1,10 @@
+### wa (N/A, Thu, 18 Dec 2025 00:20:00 -0800)
+
+- **These were the top wind speeds recorded overnight in western Washington storm**: [Link](https://www.king5.com/article/weather/weather-impact/top-wind-speeds-recorded-overnight-western-washington-storm/281-2b2483e1-c9c4-4841-a983-91571dfe6127)
+- **Thousands still without power across the state**: [Link](https://www.kiro7.com/news/local/thousands-without-power-across-western-washington-damaging-winds-pick-up/HD6GXEGEIBGXPEGTCT44IT6BLI/)
+- **Breaking: Severe Winds Add To Washington Flood Disaster**: [Link](https://weather.com/news/weather/news/2025-12-17-winds-knock-out-power-in-flood-ravaged-washington-oregon)
+
+
 ### hervé renard (N/A, Thu, 18 Dec 2025 00:10:00 -0800)
 
 - **Saudi Football Association Weighs Dismissal of World Cup Coach Renard**: [Link](https://www.chosun.com/english/sports-en/2025/12/18/MPLWZXYTLFCGDC72VAVG5A2J2E/)
