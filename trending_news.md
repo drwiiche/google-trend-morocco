@@ -1,3 +1,16 @@
+### bein sport live (N/A, Thu, 18 Dec 2025 07:20:00 -0800)
+
+- **Arab Cup Final: Morocco vs. Jordan—How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/272252/arab-cup-final-morocco-vs-jordan-how-when-to-watch/)
+- **Jordan's Abu Zureiq: "Morocco is a Great Team, But We Have a Strong Coach; Hope We Learned from Asian Cup Final"**: [Link](https://m.elbotola.com/en/article/2025-12-17-20-50-734.html)
+- **Sektioui: Reaching the final is good, but winning the title is most important to us**: [Link](https://www.ysscores.com/en/news/13873537/Sektioui:-Reaching-the-final-is-good,-but-winning-the-title-is-most-important-to-us)
+
+
+### maroc vs jordan final (N/A, Thu, 18 Dec 2025 07:10:00 -0800)
+
+- **En direct : Maroc vs Jordanie, finale de la Coupe arabe**: [Link](https://chamaly.ma/2025/12/18/en-direct-maroc-vs-jordanie-finale-de-la-coupe-arabe/)
+- **Live: Morocco vs Jordan in the Arab Cup final**: [Link](https://chamaly.ma/2025/12/18/live-morocco-vs-jordan-in-the-arab-cup-final/)
+
+
 ### match today (N/A, Thu, 18 Dec 2025 07:10:00 -0800)
 
 - **Maple Leafs vs Capitals Prediction, Picks & Same-Game Parlay for Tonight’s NHL Game**: [Link](https://sports.yahoo.com/articles/maple-leafs-vs-capitals-prediction-131500308.html)
