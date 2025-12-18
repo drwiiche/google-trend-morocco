@@ -1,3 +1,17 @@
+### hervé renard (N/A, Thu, 18 Dec 2025 00:10:00 -0800)
+
+- **Saudi Football Association Weighs Dismissal of World Cup Coach Renard**: [Link](https://www.chosun.com/english/sports-en/2025/12/18/MPLWZXYTLFCGDC72VAVG5A2J2E/)
+- **Pre-Decision Phase.. The Saudi Federation Quietly Opens Renard's File**: [Link](https://www.ysscores.com/en/news/13873602/Pre-Decision-Phase..-The-Saudi-Federation-Quietly-Opens-Renard's-File)
+- **Saudi football authorities deny that Saudi national team manager Herve Renard has been sacked**: [Link](https://www.arabnews.com/node/2626641/sport)
+
+
+### adil rzal (N/A, Thu, 18 Dec 2025 00:00:00 -0800)
+
+- **Banque Centrale Populaire : Adil Rzal nommé nouveau directeur général**: [Link](https://medias24.com/2025/12/17/banque-centrale-populaire-adil-rzal-nomme-nouveau-directeur-general-1598157/)
+- **BCP : Adil Rzal nouveau DG en charge des Risques Groupe**: [Link](https://www.leconomiste.com/flash-infos/bcp-adil-rzal-nouveau-dg-en-charge-des-risques-groupe/)
+- **La Banque Populaire nomme Adil Rzal, Directeur général en charge des Risques**: [Link](https://lematin.ma/economie/la-banque-populaire-nomme-adil-rzal-dg-en-charge-des-risques/319632)
+
+
 ### niveau des barrages maroc (N/A, Wed, 17 Dec 2025 23:10:00 -0800)
 
 - **Les barrages gagnent près de 119 millions de m³ de réserves en deux jours**: [Link](https://medias24.com/2025/12/17/barrages-pres-de-119-mm%C2%B3-en-2-jours-1597737/)
