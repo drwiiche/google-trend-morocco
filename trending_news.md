@@ -1,3 +1,73 @@
+### flashscore (N/A, Thu, 18 Dec 2025 08:40:00 -0800)
+
+- **Man United's thriller against Bournemouth is advert for January transfer window**: [Link](https://www.espn.com/soccer/story/_/id/47318846/manchester-united-bournemouth-thriller-showcases-january-needs)
+- **Man Utd 4-4 Bournemouth: Where does 'best game' this term sit among Premier League's greatest games?**: [Link](https://www.bbc.com/sport/football/articles/cy47wj05xgqo)
+- **Man Utd Player Ratings vs. Bournemouth: Breathless Goal-Fest Leaves Both Teams Unhappy**: [Link](https://www.si.com/soccer/man-utd-player-ratings-vs-bournemouth-12-15-25)
+
+
+### عموتة (N/A, Thu, 18 Dec 2025 08:40:00 -0800)
+
+- **عموتة: "عانيت من تعامل غير احترافي مع المنتخب الأردني وقررت الرحيل لعدم شعوري بالراحة"**: [Link](https://m.elbotola.com/article/69398051db4dec73a4b44459/)
+- **تقارير خليجية تضع الحسين عموتة على رادار السعودية والإمارات**: [Link](https://infosports.ma/206791/)
+- **لن يتخطوا ربع النهائي.. تصريحات عموتة تعود للواجهة بعد تأهل النشامى لنهائي كأس العرب**: [Link](https://akhbarhayat.com/1140791/%D9%84%D9%86-%D9%8A%D8%AA%D8%AE%D8%B7%D9%88%D8%A7-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D8%AA%D8%B9)
+
+
+### يلا كورة (N/A, Thu, 18 Dec 2025 08:40:00 -0800)
+
+- **موعد مباراة ريال مدريد وإشبيلية في الدوري الإسباني 2025-2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt05e7b2ae967ed117)
+- **بارقة أمل في تدريبات ريال مدريد قبل مواجهة إشبيلية**: [Link](https://hihi2.com/2025/12/18/p3563790.html)
+- **ثلاثي ريال مدريد يعود للتدريبات قبل مواجهة إشبيلية**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/1358036/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D9%85%D9%88)
+
+
+### bet365 (N/A, Thu, 18 Dec 2025 08:30:00 -0800)
+
+- **Sam Darnold & Seahawks Offense Looking To Play Cleaner Game vs. Rams**: [Link](https://www.seahawks.com/news/sam-darnold-seahawks-offense-looking-to-play-cleaner-game-vs-rams)
+- **Who plays on Thursday Night Football tonight? Time, channel, matchup for Week 16**: [Link](https://www.usatoday.com/story/sports/nfl/2025/12/18/thursday-night-football-time-channel-seahawks-rams-week-16/87794815007/)
+- **Bet365 bonus code CBSBET365: Get $150 in bonus bets for Seahawks vs. Rams on Thursday Night Football**: [Link](https://www.cbssports.com/nfl/news/bet365-bonus-code-cbsbet365-get-150-bonus-bets-seahawks-rams-thursday-night-football/)
+
+
+### bet 365 (N/A, Thu, 18 Dec 2025 08:30:00 -0800)
+
+- **Is Fanatics Sportsbook Legal in Missouri? What You Need to Know**: [Link](https://www.thelines.com/is-fanatics-sportsbook-legal-in-missouri-what-you-need-to-know)
+- **$365 Bet365 bonus code SILIVE extended in MO for Thursday Night Football**: [Link](https://www.silive.com/betting/2025/12/365-bet365-bonus-code-silive-extended-in-mo-for-thursday-night-football.html)
+- **Missouri Sportsbook Promos: Get $4,715 in MO Sports Betting Bonuses**: [Link](https://www.rotowire.com/news/missouri-sportsbook-promos-get-4715-in-mo-sports-betting-bonuses-100909)
+
+
+### bien sport (N/A, Thu, 18 Dec 2025 08:20:00 -0800)
+
+- **beIN Sports, bonne nouvelle confirmée pour les abonnés**: [Link](https://www.sports.fr/medias/bein-sports-bonne-nouvelle-confirmee-pour-les-abonnes-975519.html)
+- **beIN Sports va reconduire son contrat de diffusion de la Coupe de France pour quatre ou cinq saisons**: [Link](https://www.lequipe.fr/Football/Actualites/Bein-sports-va-reconduire-son-contrat-de-diffusion-de-la-coupe-de-france-pour-quatre-ou-cinq-saisons/1617429)
+- **OFFICIEL : Le nouveau diffuseur de la Coupe de France est connu**: [Link](https://www.90min.com/fr/officiel-le-nouveau-diffuseur-de-la-coupe-de-france-est-connu)
+
+
+### alkass (N/A, Thu, 18 Dec 2025 08:20:00 -0800)
+
+- **الأخبار - الدكتور تركي العواد يؤكد دعم جياني ميرلو في إنتخابات الاتحاد الدولي للصحافة الرياضية القادمة**: [Link](https://www.alkass.net/news_details?news_id=178560)
+- **تكريم المعلق الرياضي الأردني أحمد جميل عبد القادر في قطر**: [Link](https://www.raialyoum.com/%D8%AA%D9%83%D8%B1%D9%8A%D9%85-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-%D8%A3%D8%AD%D9%85%D8%AF/)
+- **انتخاب الاستاذ بدر الدين الإدريسي نائبا لرئيس الاتحاد العربي للصحافة الرياضية**: [Link](https://www.alalam.ma/%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%A7%D8%B0-%D8%A8%D8%AF%D8%B1-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%A5%D8%AF%D8%B1%D9%8A%D8%B3%D9%8A-%D9%86%D8%A7%D8%A6%D8%A8%D8%A7-%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A_a31012.html)
+
+
+### morocco (N/A, Thu, 18 Dec 2025 08:10:00 -0800)
+
+- **CAF Announces Record European Broadcast Partnerships for TotalEnergies CAF Africa Cup of Nations Morocco 2025**: [Link](https://www.cafonline.com/news/caf-announces-record-european-broadcast-partnerships-for-totalenergies-caf-africa-cup-of-nations-morocco-2025/)
+- **Bounou: Morocco Are Ready and ‘Going to Win the Title’ at AFCON 2025**: [Link](https://www.moroccoworldnews.com/2025/12/272189/bounou-morocco-are-ready-and-going-to-win-the-title-at-afcon-2025/)
+- **Morocco airports upgrade passenger experience ahead of AFCON 2025**: [Link](https://en.yabiladi.com/articles/details/183663/morocco-airports-upgrade-passenger-experience.html)
+
+
+### sports (N/A, Thu, 18 Dec 2025 08:10:00 -0800)
+
+- **With Devin Neal, Devaughn Vele out, who steps up for the Saints?**: [Link](https://www.espn.com/nfl/story/_/id/47340863/with-devin-neal-devaughn-vele-steps-new-orleans-saints-running-back-wide-receiver)
+- **Jets at Saints: Wednesday injury reports for both teams**: [Link](https://sports.yahoo.com/articles/jets-saints-wednesday-injury-reports-150721150.html)
+- **Saints Wednesday Injury Report: 2025 Week 16 vs. New York Jets**: [Link](https://www.neworleanssaints.com/news/new-york-jets-vs-new-orleans-saints-wednesday-injury-report-2025-nfl-week-16)
+
+
+### radio mars (N/A, Thu, 18 Dec 2025 08:10:00 -0800)
+
+- **الوداد يستهدف التعاقد مع المدافع الشاب المهدي بوكامير**: [Link](https://www.africa4press.com/art-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%A7%D9%84%D8%B4%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D9%8A-%D8%A8%D9%88%D9%83%D8%A7%D9%85%D9%8A%D8%B1-africa4press-40148.html)
+- **سنغالي ولاعب من إفريقيا الوسطى على رادار الوداد قبل الميركاتو الشتوي**: [Link](https://ar.lesiteinfo.com/sport/%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A-%D9%88%D9%84%D8%A7%D8%B9%D8%A8-%D9%85%D9%86-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7%D9%89-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D8%AF-974740.html)
+- **الوداد يقترب من حسم « صفقة الموسم » والتعاقد مع مهاجم إفريقي مميز في الميركاتو الشتوي**: [Link](https://ar.sport.le360.ma/football/NIMNE6XT55B5ZOSO5TGI3NGE7E/)
+
+
 ### yalla kora (N/A, Thu, 18 Dec 2025 08:00:00 -0800)
 
 - **التشكيلة المثالية للجولة الـ16 من الدوري الإنجليزي**: [Link](https://hihi2.com/2025/12/15/p3559544.html)
