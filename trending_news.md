@@ -1,3 +1,24 @@
+### lusail stadium (N/A, Thu, 18 Dec 2025 04:30:00 -0800)
+
+- **Arab Cup Final: Morocco vs. Jordan—How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/272252/arab-cup-final-morocco-vs-jordan-how-when-to-watch/)
+- **Jordan's Abu Zureiq: "Morocco is a Great Team, But We Have a Strong Coach; Hope We Learned from Asian Cup Final"**: [Link](https://m.elbotola.com/en/article/2025-12-17-20-50-734.html)
+- **Ayed: We’re capable of winning title**: [Link](https://thepeninsulaqatar.com/article/17/12/2025/ayed-were-capable-of-winning-title)
+
+
+### السعودية ضد الامارات (N/A, Thu, 18 Dec 2025 04:20:00 -0800)
+
+- **بالفيديو.. الأمطار الغزيرة تُربك مواجهة السعودية والإمارات في كأس العرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D8%AA%D9%8F%D8%B1%D8%A8%D9%83-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/blt11a6b36e56b07740)
+- **مباشر.. رسميا تأجيل مباراة السعودية والإمارات في كأس العرب 2025 حتى إشعار آخر**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/18/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9)
+- **المطر يفسد الفرجة في "كأس العرب"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%B7%D8%B1-%D9%8A%D9%81%D8%B3%D8%AF-%D8%A7%D9%84%D9%81%D8%B1%D8%AC%D8%A9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1673180.html)
+
+
+### uae vs saudi arabia (N/A, Thu, 18 Dec 2025 03:50:00 -0800)
+
+- **Morocco Advance to the FIFA Arab Cup Final With Win Over the United Arab Emirates**: [Link](https://www.beinsports.com/en-us/soccer/fifa-arab-cup/articles/morocco-advance-to-the-fifa-arab-cup-final-with-win-over-the-united-arab-emirates-2025-12-15)
+- **Sectioui: 'Our Pressures Stem from a High Sense of National Duty'**: [Link](https://m.elbotola.com/en/article/2025-12-16-10-38-76.html)
+- **Arab Cup 2025: Morocco A’ in the Final**: [Link](https://mountakhab.net/en/arab-cup-2025-morocco-a-in-the-final/)
+
+
 ### barrages maroc (N/A, Thu, 18 Dec 2025 04:00:00 -0800)
 
 - **Les barrages gagnent près de 119 millions de m³ de réserves en deux jours**: [Link](https://medias24.com/2025/12/17/barrages-pres-de-119-mm%C2%B3-en-2-jours-1597737/)
