@@ -1,3 +1,10 @@
+### live score (N/A, Thu, 18 Dec 2025 09:30:00 -0800)
+
+- **Porto vs Famalicao LIVE Score Updates in Portuguese Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/18/1244873-porto-vs-famalicao-live-score-portuguese-cup.html)
+- **FC Porto have Yann Karamoh available for the clash with Famalicão**: [Link](https://onefootball.com/de/news/fc-porto-have-yann-karamoh-available-for-the-clash-with-famalicao-42114515)
+- **Porto vs. Famalicao - Taca de Portugal 5th Round - Football**: [Link](https://www.sportsmole.co.uk/football/taca-de-portugal/porto-vs-famalicao_game_235225.html)
+
+
 ### flash score (N/A, Thu, 18 Dec 2025 09:30:00 -0800)
 
 - **PDC World Darts Championship 2026: David Munyua stuns world number 18 Mike de Decker in first round**: [Link](https://www.bbc.com/sport/darts/articles/cwyvdygp0v7o)
