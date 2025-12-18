@@ -1,3 +1,17 @@
+### كاس افريقيا 2025 (N/A, Thu, 18 Dec 2025 11:40:00 -0800)
+
+- **"مغرب الآن" راعيا رسميا لـ"كان المغرب"**: [Link](https://www.hespress.com/%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A2%D9%86-%D8%B1%D8%A7%D8%B9%D9%8A%D8%A7-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%84%D9%80%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1673315.html)
+- **"الكاف" يُوقع اتفاقية شراكة مع الوكالة المغربية لتنمية الاستثمارات والصادرات لتصبح «Morocco Now» شريكًا رسميًا لكأس أمم إفريقيا توتال إنيرجيز المغرب 2025**: [Link](https://www.cafonline.com/ar/%D8%AF%D8%A7%D8%AE%D9%84-caf/news/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A-%D9%88%D9%82%D8%B9-%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A9-%D8%B4%D8%B1%D8%A7%D9%83%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D8%B5%D8%A7%D8%AF%D8%B1%D8%A7%D8%AA-%D9%84%D8%AA%D8%B5%D8%A8%D8%AD-morocco-now-%D8%B4%D8%B1%D9%8A%D9%83-%D8%A7-%D8%B1%D8%B3%D9%85%D9%8A-%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/)
+- **موتسيبي: المغرب استثنائي والكان القادمة تاريخية**: [Link](https://www.radiomars.ma/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%8A%D8%AD%D8%B1%D8%AC-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A/)
+
+
+### can 2025 (N/A, Thu, 18 Dec 2025 11:20:00 -0800)
+
+- **CAF Announces Record European Broadcast Partnerships for TotalEnergies CAF Africa Cup of Nations Morocco 2025**: [Link](https://www.cafonline.com/news/caf-announces-record-european-broadcast-partnerships-for-totalenergies-caf-africa-cup-of-nations-morocco-2025/)
+- **Bounou: Morocco Are Ready and ‘Going to Win the Title’ at AFCON 2025**: [Link](https://www.moroccoworldnews.com/2025/12/272189/bounou-morocco-are-ready-and-going-to-win-the-title-at-afcon-2025/)
+- **Morocco airports upgrade passenger experience ahead of AFCON 2025**: [Link](https://en.yabiladi.com/articles/details/183663/morocco-airports-upgrade-passenger-experience.html)
+
+
 ### benabid (N/A, Thu, 18 Dec 2025 11:10:00 -0800)
 
 - **بنعبيد أمام رقم تاريخي في كأس العرب**: [Link](https://www.hesport.com/%D8%A8%D9%86%D8%B9%D8%A8%D9%8A%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%B1%D9%82%D9%85-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-417739.html)
