@@ -1,3 +1,17 @@
+### chan (N/A, Thu, 18 Dec 2025 11:50:00 -0800)
+
+- **SuperSport opens festive football window for AFCON 2025**: [Link](https://thenationonlineng.net/supersport-opens-festive-football-window-for-afcon-2025/)
+- **Sports: Uganda Cranes fans’ campaign launched ahead of 2025**: [Link](https://www.newvision.co.ug/category/sports/uganda-cranes-fans-campaign-launched-ahead-of-NV_224470)
+- **AFCON 2025 :Nile Special, MultiChoice, MTN MoMo Launch Nationwide Fan Experience to Rally Behind Uganda Cranes**: [Link](https://nilepost.co.ug/sports/310268/afcon-2025-nile-special-multichoice-mtn-momo-launch-nationwide-fan-experience-to-rally-behind-uganda-cranes)
+
+
+### امير الاردن (N/A, Thu, 18 Dec 2025 11:20:00 -0800)
+
+- **من أهل الكويت إلى... كبيرهم**: [Link](https://www.alraimedia.com/article/1750427/%D8%A7%D9%84%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%8A%D8%A9/%D9%85%D9%86-%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%A5%D9%84%D9%89-%D9%83%D8%A8%D9%8A%D8%B1%D9%87%D9%85)
+- **سمعاً وطاعة... إنجازات وأمل مشرق**: [Link](https://www.msn.com/ar-ae/news/other/%D8%B3%D9%85%D8%B9%D8%A7%D9%8B-%D9%88%D8%B7%D8%A7%D8%B9%D8%A9-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2%D8%A7%D8%AA-%D9%88%D8%A3%D9%85%D9%84-%D9%85%D8%B4%D8%B1%D9%82/ar-AA1Skz8A)
+- **إنجازات طبية غير مسبوقة في عهد الأمير**: [Link](https://alqabas.com/article/5957323/)
+
+
 ### كاس افريقيا 2025 (N/A, Thu, 18 Dec 2025 11:40:00 -0800)
 
 - **"مغرب الآن" راعيا رسميا لـ"كان المغرب"**: [Link](https://www.hespress.com/%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A2%D9%86-%D8%B1%D8%A7%D8%B9%D9%8A%D8%A7-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%84%D9%80%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1673315.html)
