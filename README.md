@@ -1,3 +1,10 @@
+### arabie saoudite vs emirats arabes unis (N/A, Thu, 18 Dec 2025 05:20:00 -0800)
+
+- **Arabie Saoudite-Émirats Arabes Unis, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/international/arabie-saoudite-emirats-arabes-unis-sur-quelle-chaine-voir-le-match-790303.html)
+- **Dernière situation de Kanno et Al-Hawsawi avant le choc entre l'Arabie Saoudite et les Émirats**: [Link](https://www.ysscores.com/fr/news/13873761/Derni%C3%A8re-situation-de-Kanno-et-Al-Hawsawi-avant-le-choc-entre-l'Arabie-Saoudite-et-les-%C3%89mirats)
+- **Coupe Arabe des Nations 2025/Arabie Saoudite - Emirats Arabes Unis : Live score**: [Link](https://www.kawarji.com/actu-96940-coupe-arabe-des-nations-2025-arabie-saoudite-emirats-arabes-unis-live-score.html)
+
+
 ### lusail stadium (N/A, Thu, 18 Dec 2025 04:30:00 -0800)
 
 - **Arab Cup Final: Morocco vs. Jordan—How & When to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/272252/arab-cup-final-morocco-vs-jordan-how-when-to-watch/)
