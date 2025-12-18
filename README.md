@@ -1,3 +1,10 @@
+### niveau des barrages maroc (N/A, Wed, 17 Dec 2025 23:10:00 -0800)
+
+- **Les barrages gagnent près de 119 millions de m³ de réserves en deux jours**: [Link](https://medias24.com/2025/12/17/barrages-pres-de-119-mm%C2%B3-en-2-jours-1597737/)
+- **Maroc : les précipitations récentes renforcent les réserves en eau des barrages**: [Link](https://2m.ma/fr/news/Maroc-les-pr%C3%A9cipitations-r%C3%A9centes-renforcent-les-r%C3%A9serves-en-20251217)
+- **Les dernières pluies dopent le niveau de remplissage des barrages au Maroc**: [Link](https://snrtnews.com/fr/article/les-dernieres-pluies-dopent-le-niveau-de-remplissage-des-barrages-au-maroc-142977)
+
+
 ### طقس اليوم (N/A, Wed, 17 Dec 2025 22:40:00 -0800)
 
 - **الطقس اليوم الخميس 18-12-2025.. أجواء شتوية باردة وشبورة كثيفة صباحا**: [Link](https://www.youm7.com/story/2025/12/18/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-18-12-2025-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D9%88%D8%B4%D8%A8%D9%88%D8%B1%D8%A9/7237474)
