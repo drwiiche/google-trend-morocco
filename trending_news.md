@@ -1,3 +1,17 @@
+### flash score (N/A, Thu, 18 Dec 2025 09:30:00 -0800)
+
+- **PDC World Darts Championship 2026: David Munyua stuns world number 18 Mike de Decker in first round**: [Link](https://www.bbc.com/sport/darts/articles/cwyvdygp0v7o)
+- **World Darts Championship: Veterinarian David Munyua stuns 18th seed Mike De Decker**: [Link](https://www.espn.com/darts/story/_/id/47346504/veterinarian-david-munyua-stuns-18th-seed-mike-de-decker)
+- **Who is David Munyua? Full-time vet makes World Darts Championship history**: [Link](https://www.independent.co.uk/bulletin/sport/david-munyua-full-time-vet-world-darts-championship-b2887190.html)
+
+
+### sofascore (N/A, Thu, 18 Dec 2025 08:50:00 -0800)
+
+- **Paris Saint-Germain vs Flamengo live score, H2H and lineups**: [Link](https://www.sofascore.com/football/match/flamengo-paris-saint-germain/UHsGuc)
+- **PSG win Intercontinental Cup: Matvey Safonov saves four penalties in shootout against Flamengo**: [Link](https://www.bbc.com/sport/football/live/c17xzryxyllt)
+- **IFFHS News**: [Link](https://iffhs.com/posts/4809)
+
+
 ### نتائج مباريات اليوم (N/A, Thu, 18 Dec 2025 09:20:00 -0800)
 
 - **نتائج مباريات يوم الثلاثاء 16 ديسمبر 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-16-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/blt056d3f6578f29d3f)
