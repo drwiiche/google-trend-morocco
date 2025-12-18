@@ -1,3 +1,31 @@
+### match today (N/A, Thu, 18 Dec 2025 07:10:00 -0800)
+
+- **Maple Leafs vs Capitals Prediction, Picks & Same-Game Parlay for Tonight’s NHL Game**: [Link](https://sports.yahoo.com/articles/maple-leafs-vs-capitals-prediction-131500308.html)
+- **NHL match today: Will John Tavares play against Washington Capitals tonight? Latest update on Toronto Map**: [Link](https://timesofindia.indiatimes.com/sports/nhl/news/nhl-match-today-will-john-tavares-play-against-washington-capitals-tonight-latest-update-on-toronto-maple-leafs-forward-for-december-18/articleshow/126055536.cms)
+- **Thursday Caps Clips: Capitals vs. Maple Leafs Game Day**: [Link](https://www.japersrink.com/thursday-caps-clips-capitals-vs-maple-leafs-game-day/)
+
+
+### doha weather (N/A, Thu, 18 Dec 2025 06:50:00 -0800)
+
+- **QMD issues weather report for Qatar National Day**: [Link](https://thepeninsulaqatar.com/article/17/12/2025/qmd-issues-weather-report-for-qatar-national-day)
+- **Meteorology Department warns of thundery rain and strong winds| Gulf Times**: [Link](https://www.gulf-times.com/article/717111/qatar/meteorology-department-warns-of-thundery-rain-and-strong-winds)
+- **Meteorology Department Expects Cold Weather By Night, Warns Of Strong Wind**: [Link](https://menafn.com/1110495806/Meteorology-Department-Expects-Cold-Weather-By-Night-Warns-Of-Strong-Wind)
+
+
+### saudi vs (N/A, Thu, 18 Dec 2025 05:40:00 -0800)
+
+- **FIFA Arab Cup 2025: Sektioui vs Sellami... Moroccan coaching school in the spotlight!**: [Link](https://foot-africa.com/en/news/fifa-arab-cup-2025-sektioui-vs-sellami-moroccan-coaching-school-in-the-spotlight-1006940/)
+- **Ayed: We're Capable Of Winning Title**: [Link](https://menafn.com/1110489916/Ayed-Were-Capable-Of-Winning-Title)
+- **Renard Comments on Saudi Green's Loss to Jordan**: [Link](https://www.ysscores.com/en/news/13872776/Renard-Comments-on-Saudi-Green's-Loss-to-Jordan)
+
+
+### stade lusail (N/A, Thu, 18 Dec 2025 04:40:00 -0800)
+
+- **Coupe arabe 2025: la petite finale stoppée pendant des heures à cause des pluies torrentielles**: [Link](https://rmcsport.bfmtv.com/football/coupe-arabe-2025-la-petite-finale-stoppee-pendant-des-heures-a-cause-des-pluies-torrentielles_AV-202512180618.html)
+- **Coupe arabe : Le match entre l'Arabie saoudite et les Émirats arabes unis interrompu par la pluie.**: [Link](https://fr.hespress.com/454603-coupe-arabe-le-match-entre-larabie-saoudite-et-les-emirats-arabes-unis-interrompu-par-la-pluie.html)
+- **Coupe Arabe 2025 - Pluie diluvienne à Lusail, la finale Maroc Jordanie sous la menace d'un report**: [Link](https://africafootunited.com/coupe-arabe-2025-pluie-diluvienne-a-lusail-la-finale-maroc-jordanie-sous-la-menace-dun-report/)
+
+
 ### kooora (N/A, Thu, 18 Dec 2025 06:20:00 -0800)
 
 - **بعد عاصفة الأمطار.. موعد استئناف مباراة السعودية والإمارات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B7%D8%A7%D8%B1--%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D8%B3%D8%AA%D9%8A%D9%94%D9%86%D8%A7%D9%81-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/bltd186f9a8891281a7)
