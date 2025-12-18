@@ -1,3 +1,24 @@
+### coupe d'afrique (N/A, Thu, 18 Dec 2025 11:00:00 -0800)
+
+- **CAN 2025 : 6.000 caméras et 75 sites placés sous vidéosurveillance (DGSN)**: [Link](https://lematin.ma/nation/can-2025-6000-cameras-et-75-sites-places-sous-videosurveillance-dgsn/319640)
+- **Restauration dans les aéroports : arrivée de nouvelles enseignes, McDonald's et Bacha Coffee**: [Link](https://ledesk.ma/encontinu/restauration-dans-les-aeroports-arrivee-de-nouvelles-enseignes-mcdonalds-et-bacha-coffee/)
+- **CAN 2025. Des dotations financières attractives - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2025/12/18/can-2025-des-dotations-financieres-attractives-1596761/)
+
+
+### قيمة كأس العرب 2025 (N/A, Thu, 18 Dec 2025 10:50:00 -0800)
+
+- **كأس العرب 2025.. جوائز قياسية بـ36.5 مليون دولار تتفوق على بطولات قارية**: [Link](https://www.alarabiya.net/aswaq/special-stories/2025/12/16/%D8%A7%D9%84%D8%AC%D9%88%D8%A7%D8%A6%D8%B2-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-36-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%87%D8%B0%D8%A7-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8%D9%87%D8%A7-%D8%A8%D9%8A%D9%86-%D8%A8%D8%B7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7)
+- **المنتخب الرديف يضمن منحة مالية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B1%D8%AF%D9%8A%D9%81-%D9%8A%D8%B6%D9%85%D9%86-%D9%85%D9%86%D8%AD%D8%A9-%D9%85%D8%A7%D9%84%D9%8A%D8%A9-1672155.html)
+- **مقارنة الأرقام الرسمية تكشف الحقيقة.. هل حقا تبدو الكان بطولة فقيرة أمام جوائز كأس العرب أم أن الأمر مجرد البروباغندا؟**: [Link](https://www.assahifa.com/%D9%85%D9%82%D8%A7%D8%B1%D9%86%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%87/)
+
+
+### score (N/A, Thu, 18 Dec 2025 10:20:00 -0800)
+
+- **Muenster vs. Shiner: live score, updates, highlights from Texas UIL Class 2A Division II state championship game**: [Link](https://ca.sports.yahoo.com/news/muenster-vs-shiner-live-score-162027499.html)
+- **Comanches to face familiar foe in state title game**: [Link](https://victoriaadvocate.com/2025/12/17/comanches-to-face-familiar-foe-in-state-title-game/)
+- **Live updates: Muenster and Shiner clash in Class 2A Division II title game**: [Link](https://www.timesrecordnews.com/story/sports/high-school/football/2025/12/18/live-updates-2025-texas-uil-state-high-school-football-championships/87708401007/)
+
+
 ### copa árabe de la fifa (N/A, Thu, 18 Dec 2025 10:40:00 -0800)
 
 - **Sellami: “Enfrentar a Marruecos es una etapa clave de mi carrera”**: [Link](https://es.rue20.com/2025/12/17/sellami-enfrentar-a-marruecos-es-una-etapa-clave-de-mi-carrera/)
