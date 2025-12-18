@@ -1,3 +1,17 @@
+### napoli (N/A, Thu, 18 Dec 2025 13:10:00 -0800)
+
+- **Nulla da fare per Jashari e Athekame, in finale ci va il Napoli**: [Link](https://www.rsi.ch/sport/calcio/Nulla-da-fare-per-Jashari-e-Athekame-in-finale-ci-va-il-Napoli--3368904.html)
+- **Loftus-Cheek: «Il #Napoli è una grande squadra con calciatori molto pericolosi, ma abbiamo preparato bene il match» A Sport Mediaset: «Dobbiamo stare calmi con la testa. È difficile a volte in queste occasioni, ma siamo pronti adesso a giocare calcio» https:**: [Link](https://www.facebook.com/ilnapolista/photos/loftus-cheek-il-napoli-%C3%A8-una-grande-squadra-con-calciatori-molto-pericolosi-ma-a/1381893647282620/)
+- **Calcio Live News: tutte le notizie di giornata in diretta**: [Link](https://www.diretta.it/news/calcio-serie-a-calcio-live-news-in-supercoppa-napoli-milan-1-0-grazie-a-neres-alle-21-la-fiorentina-in-conference/fcAYlFdc/)
+
+
+### لفتيت (N/A, Thu, 18 Dec 2025 11:20:00 -0800)
+
+- **إعداد برامج التنمية الترابية المندمجة من الجيل الجديد يسير وفق مقاربة تشاركية (السيد كودار)**: [Link](https://2m.ma/ar/news/%D8%A5%D8%B9%D8%AF%D8%A7%D8%AF-%D8%A8%D8%B1%D8%A7%D9%85%D8%AC-%D8%A7%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AF%D9%85%D8%AC%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D8%B3%D9%8A%D8%B1-%D9%88%D9%81%D9%82-20251212)
+- **لفتيت يعقد اجتماعا مع رؤساء الجهات**: [Link](https://www.hespress.com/%D9%84%D9%81%D8%AA%D9%8A%D8%AA-%D9%8A%D8%B9%D9%82%D8%AF-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D8%A7-%D9%85%D8%B9-%D8%B1%D8%A4%D8%B3%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D9%87%D8%A7%D8%AA-1670225.html)
+- **بوعيدة.. الجهات منخرطة بقوة في الرؤية الملكية للجيل الجديد من برامج التنمية المندمجة**: [Link](https://le12.ma/%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%AC%D9%87%D8%A7%D8%AA-%D9%85%D9%86%D8%AE%D8%B1%D8%B7%D8%A9-%D8%A8%D9%82%D9%88%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D8%A4%D9%8A%D8%A9-%D8%A7%D9%84/)
+
+
 ### السكتيوي (N/A, Thu, 18 Dec 2025 11:50:00 -0800)
 
 - **السكتيوي يتحدث بتأثر عن والده والقبعة: "أتمنى أن نتوج غدا بكأس العرب بغض النظر عما إذا كنت سأرتديها**: [Link](https://m.elbotola.com/video/details/69429f16a5f1d7146735acd7/)
