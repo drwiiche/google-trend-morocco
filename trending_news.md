@@ -1,3 +1,10 @@
+### comment (N/A, Fri, 19 Dec 2025 14:20:00 -0800)
+
+- **NHL announcer suspended after hot mic catches inappropriate comment**: [Link](https://www.foxnews.com/sports/nhl-announcer-suspended-after-hot-mic-catches-inappropriate-comment)
+- **Philadelphia Flyers suspend radio broadcaster for inappropriate hot mic comment**: [Link](https://www.nbcnews.com/sports/nhl/philadelphia-flyers-suspend-radio-broadcaster-inappropriate-hot-mic-co-rcna250105)
+- **Flyers and 97.5 The Fanatic suspend play-by-play man Tim Saunders for two games after inappropriate comment**: [Link](https://www.inquirer.com/flyers/tim-saunders-radio-broadcast-suspension-hot-mic-inappropriate-comment-20251219.html)
+
+
 ### alerte météo maroc (N/A, Fri, 19 Dec 2025 14:30:00 -0800)
 
 - **Alerte météo. Chutes de neige, fortes pluies et temps froid ce week-end**: [Link](https://medias24.com/2025/12/19/alerte-meteo-chutes-de-neige-fortes-pluies-et-temps-froid-a-partir-de-ce-week-end-1599393/)
