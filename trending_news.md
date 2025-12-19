@@ -1,3 +1,15 @@
+### خطبة الجمعة اليوم (N/A, Fri, 19 Dec 2025 05:10:00 -0800)
+
+- **خطبة الجمعة اليوم 19 ديسمبر 2025 وعنوانها ” فظللتُ أستغفر الله منها ثلاثين سنة”**: [Link](https://belbalady.net/7373207)
+- **التعدي على المال العام والتفكك الأسري.. خطبة الجمعة اليوم**: [Link](https://www.egypttelegraph.com/article/205350/%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%88%D8%A7%D9%84%D8%AA%D9%81%D9%83%D9%83-%D8%A7%D9%84%D8%A3%D8%B3%D8%B1%D9%8A-%D8%AE%D8%B7%D8%A8%D8%A9)
+- **عاجل- موضوع خطبة الجمعة اليوم.. عبارة عجيبة قالها أحد الصالحين في القرن الثالث الهجري**: [Link](https://www.mobtada.com/egypt/1571244/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D9%88%D8%B6%D9%88%D8%B9-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B9%D8%A8%D8%A7%D8%B1%D8%A9-%D8%B9%D8%AC%D9%8A%D8%A8%D8%A9-%D9%82%D8%A7%D9%84%D9%87%D8%A7-%D8%A3%D8%AD%D8%AF-%D8%A7%D9%84%D8%B5%D8%A7%D9%84%D8%AD%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%B1%D9%86-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D8%A7%D9%84%D9%87%D8%AC%D8%B1%D9%8A)
+
+
+### emily in paris saison 5 (N/A, Fri, 19 Dec 2025 04:30:00 -0800)
+
+
+
+
 ### rachida dati (N/A, Fri, 19 Dec 2025 00:50:00 -0800)
 
 - **French culture minister under investigation for corruption**: [Link](https://www.ft.com/content/e1d749e6-2752-4fef-966c-3b4725976ecb)
