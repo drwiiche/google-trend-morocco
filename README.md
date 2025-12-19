@@ -1,3 +1,10 @@
+### tucker genal (N/A, Thu, 18 Dec 2025 12:30:00 -0800)
+
+- **Social media influencer Tucker Genal has died, family says**: [Link](https://abcnews.go.com/Entertainment/social-media-influencer-tucker-genal-died-family/story?id=128455737)
+- **TikTok influencer dies at 31: ‘We love you and will miss you eternally’**: [Link](https://www.masslive.com/news/2025/12/tiktok-influencer-dies-at-31-we-love-you-and-will-miss-you-eternally.html)
+- **Tucker Genal dies by suicide: Who is his ex-girlfriend Courtney Gibson, and was the TikTok star affected by their breakup?**: [Link](https://poprant.indiatimes.com/trending/tucker-genal-dies-by-suicide-who-is-his-ex-girlfriend-courtney-gibson-and-was-the-tiktok-star-affected-by-their-breakup-677293.html)
+
+
 ### مراكش (N/A, Thu, 18 Dec 2025 13:20:00 -0800)
 
 - **موعد مباراة المغرب ضد جزر القمر بكأس أمم أفريقيا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/18/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D8%A8%D9%83%D8%A3%D8%B3-2)
