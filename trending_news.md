@@ -1,3 +1,10 @@
+### programme can 2025 (N/A, Fri, 19 Dec 2025 11:10:00 -0800)
+
+- **CAN 2025 : tout ce qu’il faut savoir avant le coup d’envoi de la compétition**: [Link](https://ledesk.ma/datadesk/can-2025-tout-ce-quil-faut-savoir-avant-le-coup-denvoi-de-la-competition/)
+- **CAN 2025 : pourquoi la victoire du Maroc à la Coupe Arabe renforce encore plus la pression sur le sélectionneur Walid Regragui**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-pourquoi-la-victoire-du-maroc-a-la-coupe-arabe-renforce-encore-plus-la-pression-sur-le-selectionneur-walid-regragui-19-12-2025-4752YC7WQNCGLCOEVKF3KWTMI4.php)
+- **Un Main Media Center ultramoderne ouvre ses portes à Rabat à l’approche du coup d’envoi de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025**: [Link](https://www.cafonline.com/fr/infos/un-main-media-center-ultramoderne-ouvre-ses-portes-a-rabat-a-l-approche-du-coup-d-envoi-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025/)
+
+
 ### jake paul vs anthony joshua (N/A, Fri, 19 Dec 2025 10:00:00 -0800)
 
 - **'No fear' but spectacle and serious risk looms large over Paul v Joshua**: [Link](https://www.bbc.com/sport/boxing/articles/c87lq101j17o)
