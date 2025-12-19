@@ -1,3 +1,10 @@
+### rachida dati (N/A, Fri, 19 Dec 2025 00:50:00 -0800)
+
+- **French culture minister under investigation for corruption**: [Link](https://www.ft.com/content/e1d749e6-2752-4fef-966c-3b4725976ecb)
+- **Police search French culture minister's home and offices in corruption probe**: [Link](https://www.france24.com/en/france/20251218-police-search-french-culture-minister-rachida-dati-home-offices-corruption-probe)
+- **French financial prosecutor: These searches are linked to probe regarding the European Parliament mandate of Rachida Dati**: [Link](https://www.marketscreener.com/news/french-financial-prosecutor-these-searches-are-linked-to-probe-regarding-the-european-parliament-ma-ce7d50dcde88f424)
+
+
 ### coupe d'afrique des nations de football 2025 (N/A, Thu, 18 Dec 2025 11:50:00 -0800)
 
 - **Équipe de Guinée équatoriale**: [Link](https://sport.le360.ma/internal-gallery/equipe-de-guinee-equatoriale_HMS2R33CRVGNXGEXMYLXC63SJM/)
