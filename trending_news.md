@@ -1,3 +1,10 @@
+### alerte météo maroc (N/A, Fri, 19 Dec 2025 14:30:00 -0800)
+
+- **Alerte météo. Chutes de neige, fortes pluies et temps froid ce week-end**: [Link](https://medias24.com/2025/12/19/alerte-meteo-chutes-de-neige-fortes-pluies-et-temps-froid-a-partir-de-ce-week-end-1599393/)
+- **Opération “Grand Froid” : la Fondation Mohammed V pour la Solidarité distribue des aides au profit de 963 ménages d'Al Haouz**: [Link](https://mobile.telquel.ma/instant-t/2025/12/19/operation-grand-froid-la-fondation-mohammed-v-pour-la-solidarite-distribue-des-aides-au-profit-de-963-menages-dal-haouz_1966037/)
+- **Chutes de neiges, fortes pluies et temps froid, de vendredi à lundi, dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/chute-de-neiges-et-fortes-pluies-de-vendredi-a-lundi-dans-plusieurs-regions/320031)
+
+
 ### dortmund (N/A, Fri, 19 Dec 2025 13:40:00 -0800)
 
 - **BVB geht mit Arbeitssieg in die Weihnachtspause**: [Link](https://www.skysportaustria.at/bvb-geht-mit-arbeitssieg-in-die-weihnachtspause/)
