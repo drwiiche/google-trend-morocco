@@ -1,3 +1,10 @@
+### smig maroc 2026 (N/A, Fri, 19 Dec 2025 06:50:00 -0800)
+
+- **SMIG et SMAG : feu vert du gouvernement pour la seconde tranche de la revalorisation prévue en 2026**: [Link](https://medias24.com/2025/12/18/smig-et-smag-feu-vert-du-gouvernement-pour-la-seconde-tranche-de-la-revalorisation-prevue-en-2026-1598927/)
+- **Hausse de 5% du salaire minimum légal dans les activités agricoles et non agricoles à partir de 2026**: [Link](https://mobile.telquel.ma/instant-t/2025/12/19/hausse-de-5-du-salaire-minimum-legal-dans-les-activites-agricoles-et-non-agricoles-a-partir-de-2026_1966040/)
+- **SMIG et SMAG : une hausse de 5% adoptée par le Conseil de gouvernement**: [Link](https://www.leconomiste.com/flash-infos/smig-et-smag-une-hausse-de-5-adoptee-par-le-conseil-de-gouvernement/)
+
+
 ### يوتيوب (N/A, Fri, 19 Dec 2025 06:00:00 -0800)
 
 - **كيف يضع الذكاء الاصطناعي السم في الدسم على "يوتيوب"؟**: [Link](https://asharqbusiness.com/businessweek/109950/%D8%A7%D9%84%D8%B1%D8%B6%D8%B9-%D8%B5%D8%A7%D8%B1%D9%88%D8%A7-%D9%87%D8%AF%D9%81-%D9%85%D8%AD%D8%AA%D9%88%D9%89-%D8%B1%D8%AF%D9%8A%D8%A1-%D9%85%D9%86-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D8%B9%D8%A8%D8%B1-%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8/)
