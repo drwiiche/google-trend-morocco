@@ -1,3 +1,10 @@
+### ici tout commence (N/A, Fri, 19 Dec 2025 07:20:00 -0800)
+
+- **Ici tout commence en avance : le 18 décembre, Amaury est plus manipulateur que jamais et César passe à l’action**: [Link](https://www.telestar.fr/serie_tv/ici-tout-commence-en-avance-le-18-decembre-amaury-est-plus-manipulateur-que-jamais-et-cesar-passe-a-laction-1748731)
+- **Ici tout commence : ce qui vous attend dans l'épisode 1331 du vendredi 19 décembre 2025 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000181307.html)
+- **Bérénice en larmes : son mariage avec Carla est-il maudit ? - Ici tout commence (spoilers) épisode 1333**: [Link](https://www.nouveautes-tele.com/333777-berenice-en-larmes-son-mariage-avec-carla-est-il-maudit-ici-tout-commence-spoilers-episode-1333.html)
+
+
 ### smig maroc 2026 (N/A, Fri, 19 Dec 2025 06:50:00 -0800)
 
 - **SMIG et SMAG : feu vert du gouvernement pour la seconde tranche de la revalorisation prévue en 2026**: [Link](https://medias24.com/2025/12/18/smig-et-smag-feu-vert-du-gouvernement-pour-la-seconde-tranche-de-la-revalorisation-prevue-en-2026-1598927/)
