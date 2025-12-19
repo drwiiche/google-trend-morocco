@@ -1,3 +1,10 @@
+### dortmund (N/A, Fri, 19 Dec 2025 13:40:00 -0800)
+
+- **BVB geht mit Arbeitssieg in die Weihnachtspause**: [Link](https://www.skysportaustria.at/bvb-geht-mit-arbeitssieg-in-die-weihnachtspause/)
+- **Sabitzer von der Bank – Dortmund geht mit 2:0-Sieg in die Winterpause**: [Link](https://www.heute.at/s/dortmund-geht-mit-20-sieg-in-die-winterpause-120151243)
+- **Bundesliga im Ticker: Findet Kobels BVB gegen Elvedis Gladbach einen Weg aus der Mini-Krise? | blue News**: [Link](https://www.bluewin.ch/de/sport/bundesliga/findet-kobels-bvb-gegen-elvedis-gladbach-einen-weg-aus-der-mini-krise-3016379.html)
+
+
 ### inter (N/A, Fri, 19 Dec 2025 13:10:00 -0800)
 
 - **Preview: Bologna vs Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-inter-milan-prediction-team-news-lineups_587969.html)
