@@ -1,3 +1,10 @@
+### inter (N/A, Fri, 19 Dec 2025 13:10:00 -0800)
+
+- **Preview: Bologna vs Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/preview/bologna-vs-inter-milan-prediction-team-news-lineups_587969.html)
+- **Di Vaio: ‘Bologna tense and eager to enjoy’ first ever Supercoppa**: [Link](https://football-italia.net/di-vaio-bologna-tense-eager-enjoy-supercoppa/)
+- **Inter Milan Head Coach Praises ‘Improving’ Bologna Ahead Of Supercoppa Showdown**: [Link](https://sempreinter.com/2025/12/19/bologna-inter-milan-chivu-improving-supercoppa/)
+
+
 ### سليم عبيد (N/A, Fri, 19 Dec 2025 12:40:00 -0800)
 
 - **لاعبا الأردن يشرحا سبب "أزمة تحية مدرب المغرب"**: [Link](https://www.skynewsarabia.com/sport/1841245-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86-%D9%8A%D8%B4%D8%B1%D8%AD%D8%A7-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%AA%D8%AD%D9%8A%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
