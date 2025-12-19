@@ -1,3 +1,10 @@
+### jake paul vs anthony joshua (N/A, Fri, 19 Dec 2025 10:00:00 -0800)
+
+- **'No fear' but spectacle and serious risk looms large over Paul v Joshua**: [Link](https://www.bbc.com/sport/boxing/articles/c87lq101j17o)
+- **Jake Paul vs. Anthony Joshua Fight: start time, how to watch Jake Paul vs. Anthony Joshua on Netflix**: [Link](https://decider.com/2025/12/19/jake-paul-anthony-joshua-fight-start-time-how-to-watch-paul-joshua-fight-netflix/)
+- **Betfair Offer: 50/1 Anthony Joshua to Win + £10 Free Bet on Football**: [Link](https://www.squawka.com/en/betting-offers/betfair-offer-anthony-joshua-jake-paul-december-2025/)
+
+
 ### thierry henry (N/A, Fri, 19 Dec 2025 05:40:00 -0800)
 
 - **Thierry Henry makes a telling Trossard comparison Arsenal fans will recognise**: [Link](https://sports.yahoo.com/articles/thierry-henry-makes-telling-trossard-220207819.html)
