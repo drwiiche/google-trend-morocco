@@ -1,3 +1,10 @@
+### سليم عبيد (N/A, Fri, 19 Dec 2025 12:40:00 -0800)
+
+- **لاعبا الأردن يشرحا سبب "أزمة تحية مدرب المغرب"**: [Link](https://www.skynewsarabia.com/sport/1841245-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86-%D9%8A%D8%B4%D8%B1%D8%AD%D8%A7-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%AA%D8%AD%D9%8A%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **تسبب في خسارة الأردن.. كيف سقطت مثالية «أبو ليلى» في الممر الشرفي**: [Link](https://www.okaz.com.sa/sport/na/2227349)
+- **اللاعب الأردني سليم عبيد يعتذر عن واقعة عدم مصافحة مدرب منتخب المغرب**: [Link](https://www.aljazeera.net/sport/2025/12/19/%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-%D8%B3%D9%84%D9%8A%D9%85-%D8%B9%D8%A8%D9%8A%D8%AF-%D9%8A%D8%B9%D8%AA%D8%B0%D8%B1-%D8%B9%D9%86)
+
+
 ### programme can 2025 (N/A, Fri, 19 Dec 2025 11:10:00 -0800)
 
 - **CAN 2025 : tout ce qu’il faut savoir avant le coup d’envoi de la compétition**: [Link](https://ledesk.ma/datadesk/can-2025-tout-ce-quil-faut-savoir-avant-le-coup-denvoi-de-la-competition/)
