@@ -1,3 +1,10 @@
+### thierry henry (N/A, Fri, 19 Dec 2025 05:40:00 -0800)
+
+- **Thierry Henry makes a telling Trossard comparison Arsenal fans will recognise**: [Link](https://sports.yahoo.com/articles/thierry-henry-makes-telling-trossard-220207819.html)
+- **Thierry Henry Shares His Thoughts on Leandro Trossard**: [Link](https://zamin.uz/en/sport/177171-thierry-henry-shares-his-thoughts-on-leandro-trossard.html)
+- **Leandro Trossard compared to Arsenal cult hero by Thierry Henry as former Gunners star admits he's not been completely impressed with Belgium winger**: [Link](https://www.goal.com/en-ca/lists/leandro-trossard-thierry-henry-arsenal/bltffa2f00a25ab9cf8)
+
+
 ### ici tout commence (N/A, Fri, 19 Dec 2025 07:20:00 -0800)
 
 - **Ici tout commence en avance : le 18 décembre, Amaury est plus manipulateur que jamais et César passe à l’action**: [Link](https://www.telestar.fr/serie_tv/ici-tout-commence-en-avance-le-18-decembre-amaury-est-plus-manipulateur-que-jamais-et-cesar-passe-a-laction-1748731)
