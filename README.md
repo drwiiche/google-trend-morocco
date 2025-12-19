@@ -1,3 +1,10 @@
+### coupe d'afrique des nations de football 2025 (N/A, Thu, 18 Dec 2025 11:50:00 -0800)
+
+- **Équipe de Guinée équatoriale**: [Link](https://sport.le360.ma/internal-gallery/equipe-de-guinee-equatoriale_HMS2R33CRVGNXGEXMYLXC63SJM/)
+- **CAN 2025: le calendrier complet du groupe E avec l’Algérie, le Burkina Faso, la Guinée équatoriale et le Soudan**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-calendrier-complet-du-groupe-e-avec-l-algerie-le-burkina-faso-la-guinee-equatoriale-et-le-soudan_AN-202512190004.html)
+- **Guinée équatoriale – CAN 2025 : le Nzalang Nacional vise le sacre continental**: [Link](https://africa24tv.com/guinee-equatoriale-can-2025-le-nzalang-nacional-vise-le-sacre-continental)
+
+
 ### tucker genal (N/A, Thu, 18 Dec 2025 12:30:00 -0800)
 
 - **Social media influencer Tucker Genal has died, family says**: [Link](https://abcnews.go.com/Entertainment/social-media-influencer-tucker-genal-died-family/story?id=128455737)
