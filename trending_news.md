@@ -1,3 +1,10 @@
+### maroc football (N/A, Fri, 19 Dec 2025 15:30:00 -0800)
+
+- **CAN Maroc 2025 : à quelle heure et sur quelles chaines suivre le match Maroc-Comores ?**: [Link](https://lematin.ma/sports/match-maroc-comores-can-2025-a-quelle-heure-et-sur-quelles-chaines/319898)
+- **Moulay Abdellah Stadium (Rabat)**: [Link](https://www.cafonline.com/fr/can2025/stadiums/moulay-abdellah-stadium-rabat/)
+- **inwi déploie un dispositif exceptionnel pour soutenir l’équipe nationale lors de la CAN 2025**: [Link](https://telquel.ma/sponsors/inwi-deploie-un-dispositif-exceptionnel-pour-soutenir-lequipe-nationale-lors-de-la-can-2025_1966346)
+
+
 ### comment (N/A, Fri, 19 Dec 2025 14:20:00 -0800)
 
 - **NHL announcer suspended after hot mic catches inappropriate comment**: [Link](https://www.foxnews.com/sports/nhl-announcer-suspended-after-hot-mic-catches-inappropriate-comment)
