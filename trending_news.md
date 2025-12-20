@@ -1,3 +1,17 @@
+### المنتخب الجزائري (N/A, Sat, 20 Dec 2025 13:00:00 -0800)
+
+- **بعثة المنتخب الجزائري تحط رحالها في المغرب**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%AA%D8%AD%D8%B7-%D8%B1%D8%AD%D8%A7%D9%84%D9%87%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025-12-20)
+- **منتخب الجزائر يفقد خدمات حسام عوار في كأس أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/2025/12/19/%D8%B9%D9%88%D8%A7%D8%B1-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **مدرب المنتخب الجزائري تحت الضغط**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-1673050.html)
+
+
+### boeing 747 (N/A, Sat, 20 Dec 2025 10:20:00 -0800)
+
+- **Boeing's Long-Delayed Air Force One Jets Have A New Delivery Date**: [Link](https://www.slashgear.com/2054862/boeing-air-force-one-delay-2028-delivery-date/)
+- **US Air Force to buy two more 747-8s for presidential fleet support**: [Link](https://www.reuters.com/business/aerospace-defense/us-air-force-buy-two-more-747-8s-presidential-fleet-support-2025-12-17/)
+- **Trump's $400M Jet Surprise: Lufthansa's Old 747s Get a New Mission**: [Link](https://finance.yahoo.com/news/trumps-400m-jet-surprise-lufthansas-165856394.html)
+
+
 ### ريال مدريد (N/A, Sat, 20 Dec 2025 12:30:00 -0800)
 
 - **ريال مدريد يلاقي إشبيلية بالقوة الضاربة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%84%D8%A7%D9%82%D9%8A-%D8%A7%D9%95%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%B6%D8%A7%D8%B1%D8%A8%D8%A9/blt5346dfd6f1bdd032)
