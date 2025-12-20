@@ -1,3 +1,10 @@
+### tod (N/A, Sat, 20 Dec 2025 01:50:00 -0800)
+
+- **An weltberühmten Berg: Deutscher stürzt im Urlaub in den Tod**: [Link](https://www.fr.de/panorama/deutscher-wanderer-stuerzt-in-afrikanischer-urlaubsregion-in-den-tod-zr-94093092.html)
+- **Kapstadt: Deutscher Wanderer stürzt in den Tod**: [Link](https://www.bild.de/news/ausland/kapstadt-deutscher-wanderer-stuerzt-in-den-tod-69456aaef6fc544dba9add83)
+- **Jam Master Jay: Urteil nach Mord an Hip-Hop-Legende aufgehoben**: [Link](https://www.rnd.de/promis/jam-master-jay-urteil-nach-mord-an-hip-hop-legende-aufgehoben-WG37GNVQBBCY7NLCH6KXYDSFO4.html)
+
+
 ### سمية الالفي (N/A, Sat, 20 Dec 2025 02:00:00 -0800)
 
 - **وفاة الفنانة المصرية سمية الألفي**: [Link](https://www.alarabiya.net/culture-and-art/2025/12/20/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%84%D9%81%D9%8A-)
