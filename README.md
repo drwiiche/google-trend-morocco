@@ -1,3 +1,10 @@
+### ouverture can 2025 (N/A, Sat, 20 Dec 2025 02:00:00 -0800)
+
+- **CAN Maroc-2025: Communiqué (Comité d’organisation )**: [Link](https://frmf.ma/fr/%D8%A8%D9%84%D8%A7%D8%BA-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A/)
+- **CAN 2025: affluence record dans les aéroports marocains à la veille de la compétition**: [Link](https://fr.le360.ma/economie/can-2025-affluence-record-dans-les-aeroports-marocains-a-la-veille-de-la-competition_4TGMITO5X5EUFC76Z4G42CNUQM/)
+- **Moulay Abdellah Stadium (Rabat)**: [Link](https://www.cafonline.com/fr/can2025/stadiums/moulay-abdellah-stadium-rabat/)
+
+
 ### caf (N/A, Sat, 20 Dec 2025 03:20:00 -0800)
 
 - **AFCON 2025 Power Rankings for all 24 teams -- the pretenders and contenders**: [Link](https://www.espn.com/espn/story/_/id/47365633/afcon-2025-power-rankings-all-24-teams-pretenders-contenders)
