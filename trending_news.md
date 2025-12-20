@@ -1,3 +1,10 @@
+### الحد الأدنى للأجور في المغرب في القطاع الخاص 2026 (N/A, Fri, 19 Dec 2025 12:30:00 -0800)
+
+- **نقابات عمالية مغربية تنتقد الحد الأدنى للأجر في خضم الغلاء والتضخم**: [Link](https://www.hespress.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A7%D8%AA-%D8%B9%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%86%D8%AA%D9%82%D8%AF-%D8%A7%D9%84%D8%AD%D8%AF-%D8%A7%D9%84%D8%A3%D8%AF%D9%86-1673800.html)
+- **دراسة تكشف هشاشة مراكز النداء بالمغرب: الأجور تدنت من 7000 درهم سابقا إلى حدود 3800 درهم اليوم**: [Link](https://ar.telquel.ma/%D9%85%D8%B1%D8%A7%D8%B3%D9%8A%D9%85-%D8%AD%D9%83%D9%88%D9%85%D9%8A%D8%A9-%D9%84%D8%A5%D8%B5%D9%84%D8%A7%D8%AD-%D8%A3%D9%88%D8%B6%D8%A7%D8%B9-%D9%85%D9%87%D9%86%D9%8A%D9%8A-%D8%A7%D9%84%D8%B5%D8%AD/)
+- **مجلس الحكومة يصادق على زيادة الحد الأدنى للأجور في القطاعين الفلاحي وغير الفلاحي (فيديو)**: [Link](https://2m.ma/ar/news/%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D9%8A%D8%B5%D8%A7%D8%AF%D9%82-%D8%B9%D9%84%D9%89-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%AD%D8%AF-%D8%A7%D9%84%D8%A3%D8%AF%D9%86%D9%89-%D9%84%D9%84%D8%A3%D8%AC%D9%88%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%B7%D8%A7%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D9%8A-20251218)
+
+
 ### maroc football (N/A, Fri, 19 Dec 2025 15:30:00 -0800)
 
 - **CAN Maroc 2025 : à quelle heure et sur quelles chaines suivre le match Maroc-Comores ?**: [Link](https://lematin.ma/sports/match-maroc-comores-can-2025-a-quelle-heure-et-sur-quelles-chaines/319898)
