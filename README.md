@@ -1,3 +1,17 @@
+### real vs (N/A, Sat, 20 Dec 2025 12:50:00 -0800)
+
+- **Americans like artificial Christmas trees even though few are made in US and prices are up**: [Link](https://apnews.com/article/tariffs-christmas-trees-fake-artificial-china-balsam-hill-1ddac9237e03e3afad18759754131a4d)
+- **US forces stop a second sanctioned merchant vessel off the coast of Venezuela in international waters, US officials say**: [Link](https://www.goshennews.com/news/national_news/us-forces-stop-a-second-sanctioned-merchant-vessel-off-the-coast-of-venezuela-in-international/article_2ac505a9-45c4-5f43-99e7-f2833d3e2deb.html)
+- **Weighing sustainability of real vs. fake Christmas trees**: [Link](https://phys.org/news/2025-12-sustainability-real-fake-christmas-trees.html)
+
+
+### alexis sanchez (N/A, Sat, 20 Dec 2025 12:30:00 -0800)
+
+- **Así fue la chilena de Alexis Sánchez contra el Real Madrid**: [Link](https://www.t13.cl/noticia/deportes13/asi-fue-chilena-alexis-sanchez-contra-real-madrid-20-12-2025)
+- **El Sevilla FC sigue con su racha negativa en los estadios de Madrid, Barça y Atleti**: [Link](https://www.elsevillista.es/2025/12/el-sevilla-fc-sigue-con-su-racha.html)
+- **Nadie vio venir esta jugada magistral de Alexis Sánchez ante el Real Madrid: ¡Calidad intacta!**: [Link](https://chile.as.com/videos/nadie-vio-venir-esta-jugada-magistral-de-alexis-sanchez-ante-el-real-madrid-calidad-intacta-f202512-v/)
+
+
 ### crystal palace (N/A, Sat, 20 Dec 2025 13:30:00 -0800)
 
 - **Bijol says unpredictability can aid Leeds' survival bid ahead of Palace clash**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/bijol-says-unpredictability-can-aid-leeds-survival-bid-ahead-of-palace-clash-2025-12-19)
