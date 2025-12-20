@@ -1,3 +1,10 @@
+### coupe d'afrique des nations de football 2025 (N/A, Sat, 20 Dec 2025 01:40:00 -0800)
+
+- **CAN Maroc-2025: Communiqué (Comité d’organisation )**: [Link](https://frmf.ma/fr/%D8%A8%D9%84%D8%A7%D8%BA-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A/)
+- **"On va tous se chambrer, ça va être incroyable", l’humoriste Younes Depardieu s’attend à une CAN 2025 légendaire au Maroc**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/on-va-tous-se-chambrer-ca-va-etre-incroyable-l-humoriste-younes-depardieu-s-attend-a-une-can-2025-legendaire-au-maroc_AN-202512200019.html)
+- **Moulay Abdellah Stadium (Rabat)**: [Link](https://www.cafonline.com/fr/can2025/stadiums/moulay-abdellah-stadium-rabat/)
+
+
 ### حالة الطقس اليوم (N/A, Fri, 19 Dec 2025 23:30:00 -0800)
 
 - **انخفاض درجات الحرارة مستمر.. «الأرصاد» تعلن تفاصيل حالة الطقس في أسبوع**: [Link](https://darelhilal.com/News/3144863.aspx)
