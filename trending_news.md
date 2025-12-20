@@ -1,3 +1,10 @@
+### رجب 2025 (N/A, Sat, 20 Dec 2025 02:20:00 -0800)
+
+- **فضل شهر رجب 2025.. وأبرز الأعمال المستحبة**: [Link](https://al-ain.com/article/virtue-the-month-2025)
+- **فلكيًا.. الأحد بداية شهر رجب ورؤية الهلال ممكنة في سماء مصر**: [Link](https://www.alnaharegypt.com/1156927)
+- **بيان دار الإفتاء المصرية حول رؤية هلال شهر رجب لعام 1447هـ استطلعَت دارُ الإفتاءِ المصريةُ هلالَ شهرِ رجب لعام ألفٍ وأربعمائةٍ وسبعة وأربعين هجريًّا بعد غروب شمس يوم السبت التاسع والعشرين من شهر جمادى الآخرة لعام ألفٍ وأربعمائةٍ وسبعة وأربعين هجريًّا، الموافق العشرين من شه**: [Link](https://www.facebook.com/story.php?story_fbid=1344511947708417&id=100064488738150)
+
+
 ### afcon (N/A, Sat, 20 Dec 2025 08:00:00 -0800)
 
 - **Inside Morocco’s football revolution: The academy producing AFCON stars**: [Link](https://www.cafonline.com/afcon2025/news/inside-morocco-s-football-revolution-the-academy-producing-afcon-stars/)
