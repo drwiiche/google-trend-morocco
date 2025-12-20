@@ -1,3 +1,11 @@
+### crystal palace (N/A, Sat, 20 Dec 2025 13:30:00 -0800)
+
+- **Bijol says unpredictability can aid Leeds' survival bid ahead of Palace clash**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/bijol-says-unpredictability-can-aid-leeds-survival-bid-ahead-of-palace-clash-2025-12-19)
+- **Lucas Perri: It is important to keep steady**: [Link](https://sports.yahoo.com/articles/lucas-perri-important-keep-steady-025100455.html)
+- **Oliver Glasner talks about being ‘psychologically ready’ for the
+battle with Leeds**: [Link](https://www.vavel.com/en/football/2025/12/19/crystal-palace/1245066-oliver-glasner-talks-about-being-psychologically-ready-for-thebattle-with-leedsit-is-business-as-usual-for-the-flying-eagles-under-glasner.html)
+
+
 ### fan zone (N/A, Sat, 20 Dec 2025 11:30:00 -0800)
 
 - **National Tennis Center to transform into World Cup Fan Zone next summer**: [Link](https://qns.com/2025/12/national-tennis-center-world-cup-fan-zone/)
