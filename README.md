@@ -1,3 +1,10 @@
+### fan zone (N/A, Sat, 20 Dec 2025 11:30:00 -0800)
+
+- **National Tennis Center to transform into World Cup Fan Zone next summer**: [Link](https://qns.com/2025/12/national-tennis-center-world-cup-fan-zone/)
+- **New York New Jersey announces ticketed World Cup fan zone in Queens**: [Link](https://www.nytimes.com/athletic/6893282/2025/12/16/world-cup-fan-zone-queens-new-york/)
+- **Billie Jean King National Tennis Center to host 2026 World Cup festivities**: [Link](https://nypost.com/2025/12/16/sports/billie-jean-king-national-tennis-center-to-host-2026-world-cup-festivities/)
+
+
 ### المنتخب الجزائري (N/A, Sat, 20 Dec 2025 13:00:00 -0800)
 
 - **بعثة المنتخب الجزائري تحط رحالها في المغرب**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%AA%D8%AD%D8%B7-%D8%B1%D8%AD%D8%A7%D9%84%D9%87%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025-12-20)
