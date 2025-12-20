@@ -1,3 +1,24 @@
+### afcon (N/A, Sat, 20 Dec 2025 08:00:00 -0800)
+
+- **Inside Morocco’s football revolution: The academy producing AFCON stars**: [Link](https://www.cafonline.com/afcon2025/news/inside-morocco-s-football-revolution-the-academy-producing-afcon-stars/)
+- **Afcon 2025: Can Morocco seal African dominance on home soil?**: [Link](https://www.bbc.com/sport/football/articles/czj092k4zjgo)
+- **AFCON 2025: Jean-Jacques Ndala to Officiate Morocco–Comoros Opener**: [Link](https://www.moroccoworldnews.com/2025/12/272515/afcon-2025-jean-jacques-ndala-to-officiate-morocco-comoros-opener/)
+
+
+### newcastle (N/A, Sat, 20 Dec 2025 06:10:00 -0800)
+
+- **Newcastle United vs Chelsea: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c865y7y9x28t)
+- **Newcastle 2-2 Chelsea: Premier League – as it happened**: [Link](https://www.theguardian.com/football/live/2025/dec/20/newcastle-v-chelsea-premier-league-live)
+- **5 shots, 1 on target and 0/6 crosses: Chelsea’s inefficient winger frustrates fans**: [Link](https://chelsea.news/2025/12/garnacho-winger-inefficient-crosses-chelsea/)
+
+
+### طلال شاكر (N/A, Sat, 20 Dec 2025 05:40:00 -0800)
+
+- **طلال شاكر ناطقا رسميا باسم الوداد**: [Link](https://www.hesport.com/%D8%B7%D9%84%D8%A7%D9%84-%D8%B4%D8%A7%D9%83%D8%B1-%D9%86%D8%A7%D8%B7%D9%82%D8%A7-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A8%D8%A7%D8%B3%D9%85-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-418739.html)
+- **عودة الموقع الرسمي للوداد إلى الخدمة… والتنبيه لا يعني التشويش**: [Link](https://infosports.ma/206627/)
+- **طلال شاكر.. الوجه الجديد للتواصل الرسمي في الوداد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%B7%D9%84%D8%A7%D9%84-%D8%B4%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF/13261)
+
+
 ### مجموعات كاس افريقيا 2025 (N/A, Sat, 20 Dec 2025 05:50:00 -0800)
 
 - **منتخب مصر يحط الرحال بـ"تغازوت"**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%AD%D8%B7-%D8%A7%D9%84%D8%B1%D8%AD%D8%A7%D9%84-%D8%A8%D9%80%D8%AA%D8%BA%D8%A7%D8%B2%D9%88%D8%AA-1673065.html)
