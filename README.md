@@ -1,3 +1,31 @@
+### chelsea (N/A, Sat, 20 Dec 2025 05:00:00 -0800)
+
+- **Enzo Maresca delivers Chelsea team news ahead of Newcastle | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-delivers-chelsea-team-news-ahead-of-newcastle)
+- **Chelsea injury update: Estevao, Palmer and Delap latest return dates**: [Link](https://www.standard.co.uk/sport/football/chelsea-fc-injury-update-estevao-palmer-delap-latest-return-dates-b1262415.html)
+- **“Probably” – Maresca surprises journalists with update on injured star**: [Link](https://sports.yahoo.com/articles/probably-maresca-surprises-journalists-injured-150000436.html)
+
+
+### رجب (N/A, Sat, 20 Dec 2025 05:00:00 -0800)
+
+- **دار الإفتاء تعلن نتيجة رؤية هلال شهر رجب لعام 1447 هجريا بعد المغرب**: [Link](https://www.youm7.com/story/2025/12/20/%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A5%D9%81%D8%AA%D8%A7%D8%A1-%D8%AA%D8%B9%D9%84%D9%86-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%B1%D8%A4%D9%8A%D8%A9-%D9%87%D9%84%D8%A7%D9%84-%D8%B4%D9%87%D8%B1-%D8%B1%D8%AC%D8%A8-%D9%84%D8%B9%D8%A7%D9%85-1447/7240448)
+- **كلما أقبلتَ على القرآن بقلبٍ حاضر… فتح الله لك من أنواره ما يطمئن به قلبك وتستقيم به حياتك**: [Link](https://www.facebook.com/story.php?story_fbid=1331179739041638&id=100064488738150)
+- **أول رجب 2026.. موعد غرة شهر رجب فلكيا وفضله في الإسلام**: [Link](https://www.mobtada.com/misc/1571332/%D8%A3%D9%88%D9%84-%D8%B1%D8%AC%D8%A8-2026-%D9%85%D9%88%D8%B9%D8%AF-%D8%BA%D8%B1%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D8%AC%D8%A8-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%81%D8%B6%D9%84%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85)
+
+
+### افتتاح كأس افريقيا 2025 (N/A, Sat, 20 Dec 2025 03:30:00 -0800)
+
+- **كأس إفريقيا بالمغرب .. بوريطة ولقجع وموتسيبي يفتتحون فضاء للمشجعين**: [Link](https://www.hespress.com/%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D9%88%D8%B1%D9%8A%D8%B7%D8%A9-%D9%88%D9%84%D9%82%D8%AC%D8%B9-%D9%88%D9%85%D9%88%D8%AA-1674175.html)
+- **موعد المباراة الافتتاحية في كأس أمم إفريقيا 2025 بين المغرب وجزر القمر .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%8A%D8%A9-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/bltef9c2ffbfd41dc0b)
+- **افتتاح كأس إفريقيا للأمم 2025.. فتح أبواب ملعب مولاي عبد الله من الثانية ظهرًا وإحداث مكاتب قضائية بالملاعب**: [Link](https://lakome2.com/sport/402927/)
+
+
+### epstein files (N/A, Fri, 19 Dec 2025 19:40:00 -0800)
+
+- **FBI notes detail grim demands Epstein made for procurement of underage girls**: [Link](https://www.theguardian.com/us-news/2025/dec/19/epstein-fbi-underage-girls-investigation)
+- **Live Updates: Epstein Release Reveals New Photos but Many Files Are Withheld**: [Link](https://www.nytimes.com/live/2025/12/19/us/epstein-files-release)
+- **Blanche says DOJ won’t release full Epstein files by Friday deadline**: [Link](https://thehill.com/policy/national-security/5656765-blanche-says-doj-wont-release-full-esptein-files-to-congress-by-friday-deadline/)
+
+
 ### africa cup of nations (N/A, Sat, 20 Dec 2025 03:40:00 -0800)
 
 - **Regragui: Hakimi Can Play Tomorrow Against Comoros in AFCON Opener**: [Link](https://www.moroccoworldnews.com/2025/12/272502/regragui-hakimi-can-play-tomorrow-against-comoros-in-afcon-opener/)
