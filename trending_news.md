@@ -1,3 +1,30 @@
+### real madrid (N/A, Sat, 20 Dec 2025 12:20:00 -0800)
+
+- **Once inicial del Real Madrid contra el Sevilla**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/actualidad/once-inicial-del-real-madrid-contra-el-sevilla-20-12-2025)
+- **Alineación posible del Real Madrid hoy contra el Sevilla en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-probable-del-real-madrid-contra-el-sevilla-en-liga-f202512-n/)
+- **Real Madrid - Sevilla: Examen parcial... ¿o final?**: [Link](https://www.marca.com/futbol/primera-division/2025/12/19/real-madrid-sevilla-examen-parcial-final.html)
+
+
+### real madrid vs sevilla (N/A, Sat, 20 Dec 2025 12:10:00 -0800)
+
+- **Xabi Alonso: "We are halfway, and it's not the right time to evaluate things"**: [Link](https://m.elbotola.com/en/article/2025-12-19-15-51-926.html)
+- **Live Blog: Real Madrid vs Sevilla — All goals and final result**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/live-blog-real-madrid-vs-sevilla-in-laliga-2025-12-20)
+- **Real Madrid 0-0 Sevilla LIVE: Mbappe comes close to scoring - LaLiga EA Sports 25/26**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/r-madrid-sevilla/2025/12/20/01_0101_20251220_186_179-live.html)
+
+
+### afriquia (N/A, Sat, 20 Dec 2025 11:20:00 -0800)
+
+- **Afriquia alerte sur une tentative de fraude par usurpation de son identité**: [Link](https://medias24.com/2025/12/20/afriquia-alerte-sur-une-tentative-de-fraude-par-usurpation-de-son-identite-1600377/)
+- **Tentative de fraude par usurpation de l’identité d’Afriquia**: [Link](http://ledesk.ma/encontinu/tentative-de-fraude-par-usurpation-de-lidentite-dafriquia/)
+
+
+### habous (N/A, Sat, 20 Dec 2025 10:50:00 -0800)
+
+- **Cybersécurité religieuse: le ministère des Habous renforce son bouclier numérique**: [Link](https://fr.le360.ma/politique/cybersecurite-religieuse-le-ministere-des-habous-renforce-son-bouclier-numerique_GMYFBKVANVG7DKKTMSVQCRKJYE/)
+- **Demain, premier jour du mois de Rajab 1447 de l’Hégire**: [Link](https://www.lapresse.tn/2025/12/20/demain-premier-jour-du-mois-de-rajab-1447-de-lhegire/)
+- **Cité des Sciences annonce : dimanche 21 décembre pourrait être le 1er Rajab**: [Link](https://www.tuniscope.com/article/420128/actualites/tunisie/cite-des-sciences-1er-rajab-311373)
+
+
 ### فاتح رجب 2025 (N/A, Sat, 20 Dec 2025 09:20:00 -0800)
 
 - **فضل شهر رجب 2025.. وأبرز الأعمال المستحبة**: [Link](https://al-ain.com/article/virtue-the-month-2025)
