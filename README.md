@@ -1,3 +1,10 @@
+### caf (N/A, Sat, 20 Dec 2025 03:20:00 -0800)
+
+- **AFCON 2025 Power Rankings for all 24 teams -- the pretenders and contenders**: [Link](https://www.espn.com/espn/story/_/id/47365633/afcon-2025-power-rankings-all-24-teams-pretenders-contenders)
+- **Afcon 2025: Can Morocco seal African dominance on home soil?**: [Link](https://www.bbc.com/sport/football/articles/czj092k4zjgo)
+- **The Radar – The Athletic’s scouting guide to the 2025 Africa Cup of Nations**: [Link](https://www.nytimes.com/athletic/6896882/2025/12/19/the-radar-scouting-2025-afcon/)
+
+
 ### tod (N/A, Sat, 20 Dec 2025 01:50:00 -0800)
 
 - **An weltberühmten Berg: Deutscher stürzt im Urlaub in den Tod**: [Link](https://www.fr.de/panorama/deutscher-wanderer-stuerzt-in-afrikanischer-urlaubsregion-in-den-tod-zr-94093092.html)
