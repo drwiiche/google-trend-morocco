@@ -1,3 +1,17 @@
+### دعاء رجب (N/A, Sat, 20 Dec 2025 10:40:00 -0800)
+
+- **فضل شهر رجب 2025.. وأبرز الأعمال المستحبة**: [Link](https://al-ain.com/article/virtue-the-month-2025)
+- **تهنئة بمناسبة شهر رجب.. أجمل دعاء ورسائل لكل الحبايب**: [Link](https://www.cairo24.com/2338735)
+- **«الفلك الدولي» ينشر صورة لهلال شهر رجب من أبوظبي | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-12-20/%D8%A7%D9%84%D9%81%D9%84%D9%83-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%8A%D9%86%D8%B4%D8%B1-%D8%B5%D9%88%D8%B1%D8%A9-%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B4%D9%87%D8%B1-%D8%B1%D8%AC%D8%A8-%D9%85%D9%86-%D8%A3%D8%A8%D9%88%D8%B8%D8%A8%D9%8A-6231026/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1)
+
+
+### andrew tate vs chase demoor (N/A, Sat, 20 Dec 2025 10:30:00 -0800)
+
+- **Andrew Tate Vs. Chase DeMoor: What Time Does The Fight Start?**: [Link](https://www.forbes.com/sites/brianmazique/2025/12/20/andrew-tate-vs-chase-demoor-what-time-does-the-fight-start/)
+- **LIVE! Watch Paul Vs. Joshua Netflix Undercard Stream**: [Link](https://www.mmamania.com/boxing/411092/live-watch-misfits-boxing-23-official-undercard-stream-tate-vs-demoor)
+- **Misfits Mania Results – The Fight Before Christmas**: [Link](https://mmasucka.com/misfits-mania-results-the-fight-before-christmas/)
+
+
 ### رجب 2025 (N/A, Sat, 20 Dec 2025 02:20:00 -0800)
 
 - **فضل شهر رجب 2025.. وأبرز الأعمال المستحبة**: [Link](https://al-ain.com/article/virtue-the-month-2025)
