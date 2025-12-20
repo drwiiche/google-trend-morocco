@@ -1,3 +1,10 @@
+### مجموعات كاس افريقيا 2025 (N/A, Sat, 20 Dec 2025 05:50:00 -0800)
+
+- **منتخب مصر يحط الرحال بـ"تغازوت"**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%AD%D8%B7-%D8%A7%D9%84%D8%B1%D8%AD%D8%A7%D9%84-%D8%A8%D9%80%D8%AA%D8%BA%D8%A7%D8%B2%D9%88%D8%AA-1673065.html)
+- **لقطات من تواجد صلاح في مقر إقامة منتخب مصر قبل كأس إفريقيا**: [Link](https://arabic.cnn.com/sport/article/2025/12/17/mohamed-salah-egypt-national-team)
+- **أكادير تترقب الفراعنة… المنتخب المصري الأكثر متابعة قبل مباراته الأولى**: [Link](https://snrtnews.com/article/143311)
+
+
 ### caf ticket (N/A, Sat, 20 Dec 2025 05:20:00 -0800)
 
 - **Afcon 2025: Can Morocco seal African dominance on home soil?**: [Link](https://www.bbc.com/sport/football/articles/czj092k4zjgo)
