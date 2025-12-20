@@ -1,3 +1,10 @@
+### africa cup of nations (N/A, Sat, 20 Dec 2025 03:40:00 -0800)
+
+- **Regragui: Hakimi Can Play Tomorrow Against Comoros in AFCON Opener**: [Link](https://www.moroccoworldnews.com/2025/12/272502/regragui-hakimi-can-play-tomorrow-against-comoros-in-afcon-opener/)
+- **Lekjaa Reassures Fans: Hakimi Fully Recovered from Injury, Now at Full Fitness**: [Link](https://m.elbotola.com/en/article/2025-12-19-18-29-193.html)
+- **Achraf Hakimi: Morocco's Star Ready for Africa Cup of Nations Comeback**: [Link](https://www.devdiscourse.com/article/sports-games/3737229-achraf-hakimi-moroccos-star-ready-for-africa-cup-of-nations-comeback)
+
+
 ### ouverture can 2025 (N/A, Sat, 20 Dec 2025 02:00:00 -0800)
 
 - **CAN Maroc-2025: Communiqué (Comité d’organisation )**: [Link](https://frmf.ma/fr/%D8%A8%D9%84%D8%A7%D8%BA-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A/)
