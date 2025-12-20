@@ -1,3 +1,10 @@
+### ريال مدريد (N/A, Sat, 20 Dec 2025 12:30:00 -0800)
+
+- **ريال مدريد يلاقي إشبيلية بالقوة الضاربة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%84%D8%A7%D9%82%D9%8A-%D8%A7%D9%95%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%B6%D8%A7%D8%B1%D8%A8%D8%A9/blt5346dfd6f1bdd032)
+- **موعد مباراة ريال مدريد ضد إشبيلية في الدوري الإسباني والتشكيلتان المتوقعتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/19/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-2)
+- **أمام إشبيليه.. ريال مدريد يبحث عن نهاية سعيدة لعام 2025**: [Link](https://www.okaz.com.sa/sport/international/2227455)
+
+
 ### real madrid (N/A, Sat, 20 Dec 2025 12:20:00 -0800)
 
 - **Once inicial del Real Madrid contra el Sevilla**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/actualidad/once-inicial-del-real-madrid-contra-el-sevilla-20-12-2025)
