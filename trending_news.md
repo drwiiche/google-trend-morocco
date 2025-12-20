@@ -1,3 +1,10 @@
+### حالة الطقس اليوم (N/A, Fri, 19 Dec 2025 23:30:00 -0800)
+
+- **انخفاض درجات الحرارة مستمر.. «الأرصاد» تعلن تفاصيل حالة الطقس في أسبوع**: [Link](https://darelhilal.com/News/3144863.aspx)
+- **حالة طقس اليوم السبت 20-12-2025 في مصر**: [Link](https://almashhadalaraby.com/news/543300)
+- **تحذير من درجات الحرارة الصغرى، شمال الصعيد يسجل 5 درجات مئوية، عودة سقوط الأمطار على الوجه البحري والسواحل الشمالية، ورياح مثيرة للرمال والأتربة على هذه المدن**: [Link](https://www.vetogate.com/5557116)
+
+
 ### alerte meteo (N/A, Fri, 19 Dec 2025 23:50:00 -0800)
 
 - **Alerte météo. Chutes de neige, fortes pluies et temps froid ce week-end**: [Link](https://medias24.com/2025/12/19/alerte-meteo-chutes-de-neige-fortes-pluies-et-temps-froid-a-partir-de-ce-week-end-1599393/)
