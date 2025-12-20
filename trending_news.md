@@ -1,3 +1,17 @@
+### سمية الالفي (N/A, Sat, 20 Dec 2025 02:00:00 -0800)
+
+- **وفاة الفنانة المصرية سمية الألفي**: [Link](https://www.alarabiya.net/culture-and-art/2025/12/20/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%84%D9%81%D9%8A-)
+- **رحيل نجمة "ليالي الحلمية" الفنانة المصرية سمية الألفي بعد صراع مع المرض**: [Link](https://www.akhbarona.com/culture/418421.html)
+- **وفاة الفنانة المصرية سمية الألفي**: [Link](https://www.raialyoum.com/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%84%D9%81%D9%8A/)
+
+
+### the great flood (N/A, Fri, 19 Dec 2025 11:00:00 -0800)
+
+- **The Great Flood review – Korean apocalypse movie swerves into sinister sci-fi territory**: [Link](https://www.theguardian.com/film/2025/dec/15/the-great-flood-review-korean-apocalypse-movie-swerves-into-sinister-sci-fi-territory)
+- **‘The Great Flood’ Netflix Review: Stream It or Skip It?**: [Link](https://decider.com/2025/12/19/the-great-flood-netflix-review/)
+- **Seoul goes underwater in Netflix's latest Korean original**: [Link](https://www.koreaherald.com/article/10637850)
+
+
 ### coupe d'afrique des nations de football 2025 (N/A, Sat, 20 Dec 2025 01:40:00 -0800)
 
 - **CAN Maroc-2025: Communiqué (Comité d’organisation )**: [Link](https://frmf.ma/fr/%D8%A8%D9%84%D8%A7%D8%BA-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A/)
