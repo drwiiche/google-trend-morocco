@@ -1,3 +1,10 @@
+### real madrid vs (N/A, Sat, 20 Dec 2025 12:40:00 -0800)
+
+- **Un récord entre pitos**: [Link](https://as.com/futbol/primera/un-record-entre-pitos-f202512-n/)
+- **Real Madrid - Sevilla: resumen, resultado y goles**: [Link](https://www.marca.com/futbol/laliga-ea-sports/r-madrid-sevilla/2025/12/20/01_0101_20251220_186_179-directo.html)
+- **El flojo Real Madrid vence al Sevilla con polémica arbitral**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20251220/1002590366/flojo-real-madrid-vence-sevilla-polemica-arbitral.html)
+
+
 ### andrew tate (N/A, Sat, 20 Dec 2025 15:00:00 -0800)
 
 - **Who won Andrew Tate vs Chase Demoor? Social media reacts to ‘garbage fight’ with memes and jokes**: [Link](https://www.livemint.com/news/trends/who-won-andrew-tate-vs-chase-demoor-social-media-reacts-to-garbage-fight-with-memes-and-jokes-11766281272267.html)
