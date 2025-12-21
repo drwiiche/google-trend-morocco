@@ -1,3 +1,10 @@
+### كاس امم افريقيا (N/A, Sun, 21 Dec 2025 00:40:00 -0800)
+
+- **المغرب والجزر القمر.. التشكيل المتوقع للأسود في افتتاحية أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1--%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%84%D8%A7%D9%94%D8%B3%D9%88%D8%AF-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt8159427538540615)
+- **أرقام قياسية تتحطم بمطارات المغرب**: [Link](https://www.hespress.com/%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AD%D8%B7%D9%85-%D8%A8%D9%85%D8%B7%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1674297.html)
+- **استعراض بالرباط يسبق كأس إفريقيا**: [Link](https://www.hesport.com/%D8%A7%D8%B3%D8%AA%D8%B9%D8%B1%D8%A7%D8%B6-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D9%8A%D8%B3%D8%A8%D9%82-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-418828.html)
+
+
 ### madrid vs (N/A, Sat, 20 Dec 2025 12:40:00 -0800)
 
 - **Girona - Atlético de Madrid | Los onces probables**: [Link](https://www.fichajes.com/a6573662345244214819-girona-atletico-de-madrid-los-onces-probables)
