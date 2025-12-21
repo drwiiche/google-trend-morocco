@@ -1,3 +1,52 @@
+### patrice motsepe (N/A, Sun, 21 Dec 2025 10:00:00 -0800)
+
+- **CAF President Dr Patrice Motsepe announces 43% increase in Prize Money for winner of the TotalEnergies CAF Africa Cup of Nations Morocco 2025 to USD 10 Million**: [Link](https://www.cafonline.com/afcon2025/news/caf-president-dr-patrice-motsepe-announces-43-increase-in-prize-money-for-winner-of-the-totalenergies-caf-africa-cup-of-nations-morocco-2025-to-usd-10-million/)
+- **Africa Cup of Nations to be held every four years from 2028**: [Link](https://www.bbc.com/sport/football/articles/cgjnx6x4281o)
+- **Africa Cup of Nations springs surprise move to every four years**: [Link](https://www.theguardian.com/football/2025/dec/20/africa-cup-of-nations-springs-surprise-move-to-every-four-years)
+
+
+### girona – atlético madrid (N/A, Sun, 21 Dec 2025 10:00:00 -0800)
+
+- **Eterno Koke, extraterrestre Oblak**: [Link](https://as.com/futbol/primera/eterno-koke-extraterrestre-oblak-f202512-n/)
+- **El calendario con los cinco próximos encuentros del Atlético de Madrid tras enfrentarse al Girona**: [Link](https://www.si.com/es-us/futbol/el-calendario-con-los-cinco-proximos-encuentros-del-atletico-de-madrid-tras-vencer-3-0-al-girona)
+- **Girona de Solis y Asprilla se complica con el descenso**: [Link](https://revistalaliga.com/girona-de-solis-y-asprilla-se-complica-con-el-descenso/)
+
+
+### fifa (N/A, Sun, 21 Dec 2025 10:00:00 -0800)
+
+- **Cristiano Ronaldo's Al-Nassr hit by FIFA transfer ban**: [Link](https://www.besoccer.com/new/cristiano-ronaldo-s-al-nassr-hit-by-fifa-transfer-ban-1386636)
+- **Cristiano Ronaldo blow: Al-Nassr banned from signing players**: [Link](https://onefootball.com/en/news/cristiano-ronaldo-blow-al-nassr-banned-from-signing-players-42127610)
+- **Al Nasr (Saudi Arabia) has been banned from recruiting players by FIFA. Al-Nasr is the team that Cri..**: [Link](https://www.mk.co.kr/en/sports/11496871)
+
+
+### gianni infantino (N/A, Sun, 21 Dec 2025 09:50:00 -0800)
+
+- **FIFA prepares for a major move, aiming to equalize prize money at the men's and women's World Cups**: [Link](https://dailysports.net/news/fifa-prepares-for-a-major-move-aiming-to-equalize-prize-money-at-the-mens-and-womens-world-cups/)
+- **Uzbekistan to Earn at Least $10.5M at 2026 World Cup**: [Link](https://caspianpost.com/sport/uzbekistan-to-earn-at-least-10-5m-at-2026-world-cup)
+- **Breakingviews - FIFA’s World Cup payday has a big Trump caveat**: [Link](https://www.reuters.com/commentary/breakingviews/fifas-world-cup-payday-has-big-trump-caveat-2025-12-19/)
+
+
+### infantino (N/A, Sun, 21 Dec 2025 09:50:00 -0800)
+
+- **Infantino: Jordan fans displayed great passion, their beautiful culture (video)**: [Link](https://en.ammonnews.net/article/87608)
+- **World Cup Winner to Get $50 Million from Richer Prize Pool**: [Link](https://thevoiceslu.com/2025/12/world-cup-winner-to-get-50-million-from-richer-prize-pool/)
+- **Amid Controversy Over Rising Ticket Prices, FIFA Will Add a World Cup 2026 Winner's Prize**: [Link](https://voi.id/en/olahraga/544908)
+
+
+### heidenheim – bayern (N/A, Sun, 21 Dec 2025 09:50:00 -0800)
+
+- **Heidenheim - FC Bayern im Liveticker Olise erhöht auf 0:2**: [Link](https://www.focus.de/sport/fussball/kimmich-und-neuer-fehlen-verletzt-bayern-zum-jahresabschluss-in-heidenheim_6acc4045-157d-467d-b9d4-2b7fbd221099.html)
+- **Bundesliga heute: Heidenheim - Bayern LIVE im TV, Liveticker & Livestream - Bayern-Startelf mit fünf Änderungen**: [Link](https://www.sport1.de/news/fussball/bundesliga/2025/12/bundesliga-heute-heidenheim-bayern-live-im-tv-liveticker-livestream)
+- **(AZ+) FC-Bayern-Leihgabe Ibrahimovic spricht über seine Zukunftspläne**: [Link](https://www.abendzeitung-muenchen.de/sport/fcbayern/fc-bayern-leihgabe-ibrahimovic-spricht-ueber-seine-zukunftsplaene-art-1100759)
+
+
+### davido (N/A, Sun, 21 Dec 2025 09:50:00 -0800)
+
+- **AFCON 2025 kicks off with French Montana, Davido and RedOne lighting up opening ceremony in Rabat**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-kicks-off-with-french-montana-davido-and-redone-lighting-up-opening-ceremony-in-rabat/)
+- **Angélique Kidjo, Jaylann and L’Artiste to unveil TotalEnergies CAF AFCON Morocco 2025 official song at opening ceremony**: [Link](https://www.cafonline.com/afcon2025/news/angelique-kidjo-jaylann-and-l-artiste-to-unveil-totalenergies-caf-afcon-morocco-2025-official-song-at-opening-ceremony/)
+- **AFCON 2025 Gets a Festive Send-Off at OLM Souissi Fan Zone in Rabat**: [Link](https://www.moroccoworldnews.com/2025/12/272587/afcon-2025-gets-a-festive-send-off-at-olm-souissi-fan-zone-in-rabat/)
+
+
 ### 2m (N/A, Sun, 21 Dec 2025 09:40:00 -0800)
 
 
