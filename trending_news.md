@@ -1,3 +1,10 @@
+### match maroc afrique (N/A, Sat, 20 Dec 2025 14:30:00 -0800)
+
+- **CAN 2025: "La confiance est un peu ébranlée", pourquoi Walid Regragui est sous pression à la tête de l’équipe du Maroc**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-la-confiance-est-un-peu-ebranlee-pourquoi-walid-regragui-est-sous-pression-a-la-tete-de-l-equipe-du-maroc_AV-202512210013.html)
+- **DIRECT. Maroc-Comores (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/maroc-comores-live/670748)
+- **CAN 2025: somptueuse parade à Rabat aux rythmes et couleurs africains**: [Link](https://lematin.ma/sports/can-2025-somptueuse-parade-a-rabat-aux-rythmes-et-couleurs-africains/320156)
+
+
 ### real madrid – séville (N/A, Sat, 20 Dec 2025 11:40:00 -0800)
 
 
