@@ -1,3 +1,10 @@
+### vinicius júnior (N/A, Sun, 21 Dec 2025 03:30:00 -0800)
+
+- **Vinícius Júnior troca foto do Real Madrid nas redes sociais pela seleção brasileira | Ge**: [Link](https://ge.globo.com/futebol/futebol-internacional/futebol-espanhol/noticia/2025/12/20/vinicius-junior-troca-foto-do-real-madrid-nas-redes-sociais-pela-selecao-brasileira.ghtml)
+- **Nova polémica com Vinícius Júnior? Jogo apagado, braçadeira de capitão e mudança nas redes sociais**: [Link](https://www.flashscore.pt/noticias/futebol-laliga-nova-polemica-com-vinicius-junior-jogo-apagado-bracadeira-de-capitao-e-mudanca-nas-redes-sociais/tnOp7O4k/)
+- **Xabi Alonso mostra tranquilidade sobre momento conturbado de Vini Jr no Real Madrid**: [Link](https://somosfanaticos.fans/br/futebol-europeu/real-madrid/xabi-alonso-mostra-tranquilidade-sobre-momento-conturbado-de-vinicius-jr)
+
+
 ### كاس امم افريقيا (N/A, Sun, 21 Dec 2025 00:40:00 -0800)
 
 - **المغرب والجزر القمر.. التشكيل المتوقع للأسود في افتتاحية أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1--%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%84%D8%A7%D9%94%D8%B3%D9%88%D8%AF-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt8159427538540615)
