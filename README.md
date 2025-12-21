@@ -1,3 +1,10 @@
+### طقس الطقس (N/A, Sun, 21 Dec 2025 07:40:00 -0800)
+
+- **نشرة جوية إنذارية من الأحد إلى الأربعاء**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7-1674596.html)
+- **طقس بارد مع زخات رعدية متوقع اليوم الاثنين**: [Link](https://ar.telquel.ma/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-2/)
+- **تساقطات ثلجية وأمطار قوية أحيانا رعدية وطقس بارد من اليوم السبت إلى الاثنين المقبل بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D8%A3%D8%AD%D9%8A%D8%A7%D9%86%D8%A7-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-20251220)
+
+
 ### fcb (N/A, Sun, 21 Dec 2025 07:20:00 -0800)
 
 - **Villarreal midfielder insists Barcelona will fall - 'At some point they will lose and it will be today'**: [Link](https://barcauniversal.com/villarreal-midfielder-insists-barcelona-will-fall-at-some-point-they-will-lose-and-it-will-be-today/)
