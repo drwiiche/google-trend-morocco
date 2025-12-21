@@ -1,3 +1,24 @@
+### bein sport (N/A, Sun, 21 Dec 2025 09:20:00 -0800)
+
+- **Preview: Mali vs Zambia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mali/africa-cup-of-nations/preview/mali-vs-zambia-prediction-team-news-lineups_588240.html)
+- **Mali Poised To Light Up AFCON 2025—Could This Be Their Moment?**: [Link](https://www.forbesafrica.com/current-affairs/2025/12/21/mali-poised-to-light-up-afcon-2025-could-this-be-their-moment/)
+- **MATCH STATS: Mali vs Zambia – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group A**: [Link](https://zambianfootball.co.zm/match-stats-mali-vs-zambia-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-a/)
+
+
+### bein sport live (N/A, Sun, 21 Dec 2025 09:10:00 -0800)
+
+- **Morocco’s Arab Cup triumph ignites nationwide celebration ahead of AFCON kick-off**: [Link](https://www.cafonline.com/news/morocco-s-arab-cup-triumph-ignites-nationwide-celebration-ahead-of-afcon-kick-off/)
+- **Hamdallah Retires From Morocco National Team After Heroic Arab Cup Final Performance**: [Link](https://www.moroccoworldnews.com/2025/12/272483/hamdallah-retires-from-morocco-national-team-after-heroic-arab-cup-final-performance/)
+- **Jordan stun Saudi Arabia in semi-finals and set up showdown with Morocco**: [Link](https://www.beinsports.com/en-mena/football/arab-cup/articles-video/jordan-stun-saudi-arabia-in-semi-finals-and-set-up-showdown-with-morocco-2025-12-15)
+
+
+### bein sports live (N/A, Sun, 21 Dec 2025 09:10:00 -0800)
+
+- **Morocco’s Arab Cup triumph ignites nationwide celebration ahead of AFCON kick-off**: [Link](https://www.cafonline.com/news/morocco-s-arab-cup-triumph-ignites-nationwide-celebration-ahead-of-afcon-kick-off/)
+- **Hamdallah Retires From Morocco National Team After Heroic Arab Cup Final Performance**: [Link](https://www.moroccoworldnews.com/2025/12/272483/hamdallah-retires-from-morocco-national-team-after-heroic-arab-cup-final-performance/)
+- **Jordan stun Saudi Arabia in semi-finals and set up showdown with Morocco**: [Link](https://www.beinsports.com/en-mena/football/arab-cup/articles-video/jordan-stun-saudi-arabia-in-semi-finals-and-set-up-showdown-with-morocco-2025-12-15)
+
+
 ### match barca (N/A, Sun, 21 Dec 2025 07:50:00 -0800)
 
 - **Mbappé ties Ronaldo record for most Real Madrid goals in a year**: [Link](https://www.espn.com/soccer/story/_/id/47245759/kylian-mbappe-cristiano-ronaldo-record-real-madrid-goals-year)
