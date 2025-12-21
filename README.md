@@ -1,3 +1,17 @@
+### marokko - comoren (N/A, Sun, 21 Dec 2025 12:30:00 -0800)
+
+- **Marokko begint als grote favoriet aan Afrika Cup in eigen land, 50 jaar na laatste zege**: [Link](https://nos.nl/artikel/2595425-marokko-begint-als-grote-favoriet-aan-afrika-cup-in-eigen-land-50-jaar-na-laatste-zege)
+- **VI Live: Saibari en Salah-Eddine in basis, Marokko mist penalty**: [Link](https://www.vi.nl/nieuws/vi-live-saibari-en-salah-eddine-in-marokko-basis-rogers-doet-man-utd-w-r-pijn)
+- **Praat mee op VP: Marokko - Comoren**: [Link](https://www.voetbalprimeur.nl/nieuws/1722269/praat-mee-op-vp-marokko-comoren.html)
+
+
+### مباراه اليوم (N/A, Sun, 21 Dec 2025 12:00:00 -0800)
+
+- **جدول مباريات اليوم الأحد 21 ديسمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-21-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltd478687fe2aacdb9)
+- **أبرز المباريات العربية والعالمية اليوم السبت**: [Link](https://24.ae/article/937209/)
+- **السبت الكروي في أوروبا يشتعل بالقمة الإنجليزية والإسبانية.. أبرز مباريات اليوم**: [Link](https://www.arrajol.com/content/392860/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A7%D9%84%D9%83%D8%B1%D9%88%D9%8A-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%8A%D8%B4%D8%AA%D8%B9%D9%84-%D8%A8%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%A3%D8%A8%D8%B1%D8%B2-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85)
+
+
 ### diaz (N/A, Sun, 21 Dec 2025 12:20:00 -0800)
 
 - **Heidenheim 0-4 Bayern (Dec 21, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/746846)
