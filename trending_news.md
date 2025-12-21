@@ -1,3 +1,45 @@
+### sports (N/A, Sun, 21 Dec 2025 11:00:00 -0800)
+
+- **CFP first-round takeaways: Miami's run game, special teams woes and blowouts**: [Link](https://www.espn.com/college-football/story/_/id/47362658/college-football-playoff-2025-first-round-takeaways-every-game)
+- **College Football Playoff grades: Alabama earns 'A-' mark for rally, Texas A&M gets 'C-' on CFP report card**: [Link](https://www.cbssports.com/college-football/news/college-football-playoff-grades-scores-results-first-round-report-card/)
+- **Oregon, Miami and Ole Miss advance to the quarterfinals of the College Football Playoff**: [Link](https://www.cnn.com/2025/12/20/sport/football-ncaa-cfb-first-round-wrap)
+
+
+### yallakora (N/A, Sun, 21 Dec 2025 11:00:00 -0800)
+
+- **زيمبابوي تتسلح بـ"أربعيني" أمام صلاح**: [Link](https://www.alarabiya.net/sport/2025/12/21/%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A-%D8%AA%D8%AA%D8%B3%D9%84%D8%AD-%D8%A8%D9%80%D8%A7%D8%B1%D8%A8%D8%B9%D9%8A%D9%86%D9%8A-%D8%A7%D9%85%D8%A7%D9%85-%D8%B5%D9%84%D8%A7%D8%AD)
+- **مدرب زيمبابوي يرفع راية التحدي ضد مصر في كأس إفريقيا 2025**: [Link](https://www.albiladpress.com/news/2025/6278/sport/965527.html)
+- **تعرف على منتخب زيمبابوي أول خصم للفراعنة في كأس أمم إفريقيا**: [Link](https://ar.mqalat.nl/%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A-%D8%A3%D9%88%D9%84-%D8%AE%D8%B5%D9%85-%D9%84%D9%84%D9%81%D8%B1%D8%A7%D8%B9/)
+
+
+### nayef aguerd (N/A, Sun, 21 Dec 2025 11:00:00 -0800)
+
+- **Achraf Hakimi reçoit le Trophée FIFA « The Best Starting 11 »**: [Link](https://frmf.ma/fr/achraf-hakimi-recoit-le-trophee-fifa-the-best-starting-11/)
+- **Au Maroc, « l’obligation » de gagner la CAN 2025 et d’offrir une organisation parfaite**: [Link](https://www.lemonde.fr/afrique/article/2025/12/21/au-maroc-l-obligation-de-gagner-la-can-2025-et-d-offrir-une-organisation-parfaite_6659023_3212.html)
+- **CAN 2025. “La gestion des émotions sera cruciale” (Walid Regragui)**: [Link](https://medias24.com/2025/12/20/can-2025-la-gestion-des-emotions-sera-cruciale-walid-regragui-1600171/)
+
+
+### ko (N/A, Sun, 21 Dec 2025 11:00:00 -0800)
+
+- **'Clown show:' Anthony Joshua vs. Jake Paul — sports world erupts after bizarre, brutal fight**: [Link](https://sports.yahoo.com/boxing/breaking-news/article/clown-show-anthony-joshua-vs-jake-paul-sports-world-erupts-after-bizarre-brutal-fight-053737322.html)
+- **Jake Paul Says He Had 'Some Teeth Removed' After Breaking His Jaw During Heavyweight Fight: 'Lots of Pain'**: [Link](https://people.com/jake-paul-shares-health-update-after-breaking-his-jaw-during-heavyweight-fight-11874044)
+- **Jake Paul undergoes surgery for broken jaw after knockout loss to Anthony Joshua: 'Liquids for seven days'**: [Link](https://www.cbssports.com/boxing/news/jake-paul-anthony-joshua-results-knockout-injury-jaw/)
+
+
+### الرياضية tnt (N/A, Sun, 21 Dec 2025 10:50:00 -0800)
+
+- **تردد القنوات المجانية الناقلة لبطولة كأس أمم أفريقيا 2025**: [Link](https://www.youm7.com/story/2025/12/21/%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AC%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025/7241565)
+- **SNRT تكتب فصلًا جديدًا في تاريخ البث الأفريقي**: [Link](https://www.radiomars.ma/snrt-%D8%AA%D9%83%D8%AA%D8%A8-%D9%81%D8%B5%D9%84%D9%8B%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D9%8B%D8%A7-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D8%A3%D9%81%D8%B1/)
+- **القنوات الناقلة لكأس أمم أفريقيا 2025 بمشاركة منتخب مصر**: [Link](https://www.almasryalyoum.com/news/details/4155960)
+
+
+### koora (N/A, Sun, 21 Dec 2025 10:40:00 -0800)
+
+- **Agadir : Clôture du tournoi "Koora CAN " de football avec la participation de 10 pays africains**: [Link](https://2m.ma/fr/news/Agadir-Cl%C3%B4ture-du-tournoi-Koora-CAN-de-football-avec-la-participation-20251221)
+- **تشكيلة "أسود الأطلس" أمام جزر القمر**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-1674788.html)
+- **ما القنوات الناقلة للمباراة الافتتاحية في كأس أمم إفريقيا 2025 بين المغرب وجزر القمر؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%8A%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt75026326985744ff)
+
+
 ### yalla kora (N/A, Sun, 21 Dec 2025 10:40:00 -0800)
 
 - **أقطاي عبدالله**: [Link](https://www.yallakora.com/egyptian-league-cup/3012/player/82331/%D8%A3%D9%82%D8%B7%D8%A7%D9%8A-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D9%87)
