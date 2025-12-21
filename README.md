@@ -1,3 +1,10 @@
+### rumble (N/A, Sat, 20 Dec 2025 14:30:00 -0800)
+
+- **At least 16 files have disappeared from the DOJ webpage for documents related to Jeffrey Epstein**: [Link](https://www.journalgazette.net/news/national/at-least-16-files-have-disappeared-from-the-doj-webpage-for-documents-related-to-jeffrey/article_a56c239f-1f94-5ff8-8279-f04656403d3b.html)
+- **Gamester, Peterson win on first night of Rumble 27**: [Link](https://www.journalgazette.net/sports/gamester-peterson-win-on-first-night-of-rumble-27/article_a6d94507-43fc-4f74-ab63-d437f7bac694.html)
+- **Senators score 3 goals in third period of 6-4 win over Blackhawks**: [Link](https://www.journalgazette.net/sports/professional/nhl/senators-score-3-goals-in-third-period-of-6-4-win-over-blackhawks/article_b2481699-be62-585c-bc29-945dc4641325.html)
+
+
 ### real (N/A, Sat, 20 Dec 2025 13:00:00 -0800)
 
 - **Real Madrid vs Sevilla LIVE: Spanish La Liga score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cwyv8p8l4mmt)
