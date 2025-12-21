@@ -1,3 +1,10 @@
+### الريال ضد إشبيلية (N/A, Sat, 20 Dec 2025 12:40:00 -0800)
+
+- **"ملامح عبور إشبيلية" الكاميرات تنقذ رونالدو من مبابي.. وكورتوا يؤمن شوارع ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%B9%D8%A8%D9%88%D8%B1-%D8%A7%D9%95%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AA%D9%86%D9%82%D8%B0-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D9%88%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D9%8A%D9%88%D9%94%D9%85%D9%86-%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt656515dece1f96d7)
+- **نتيجة وملخص مباراة ريال مدريد ضد إشبيلية في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/20/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9)
+- **مدرب إشبيلية ألميدا يعلق على طرده ضد ريال مدريد: "الصمت خيانة وأنا لست خائنا أو بهلوانًا في سيرك"**: [Link](https://m.elbotola.com/article/2025-12-20-23-01-171.html)
+
+
 ### rayan cherki (N/A, Sun, 21 Dec 2025 00:40:00 -0800)
 
 - **Man City 3-0 West Ham: Haaland & Reijnders score as City win**: [Link](https://www.bbc.com/sport/football/live/cgex858yln0t)
