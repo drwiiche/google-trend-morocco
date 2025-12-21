@@ -1,3 +1,55 @@
+### morocco match today (N/A, Sun, 21 Dec 2025 11:20:00 -0800)
+
+- **Morocco’s Arab Cup triumph ignites nationwide celebration ahead of AFCON kick-off**: [Link](https://www.cafonline.com/news/morocco-s-arab-cup-triumph-ignites-nationwide-celebration-ahead-of-afcon-kick-off/)
+- **Hamdallah Retires From Morocco National Team After Heroic Arab Cup Final Performance**: [Link](https://www.moroccoworldnews.com/2025/12/272483/hamdallah-retires-from-morocco-national-team-after-heroic-arab-cup-final-performance/)
+- **Jordan stun Saudi Arabia in semi-finals and set up showdown with Morocco**: [Link](https://www.beinsports.com/en-mena/football/arab-cup/articles-video/jordan-stun-saudi-arabia-in-semi-finals-and-set-up-showdown-with-morocco-2025-12-15)
+
+
+### رومان سايس (N/A, Sun, 21 Dec 2025 11:20:00 -0800)
+
+- **من هي زوجة رومان سايس ويكيبيديا السيرة الذاتية**: [Link](https://www.hadutta.com/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D8%B4%D8%AE%D8%B5%D9%8A%D8%A7%D8%AA/%D9%85%D9%86-%D9%87%D9%8A-%D8%B2%D9%88%D8%AC%D8%A9-%D8%B1%D9%88%D9%85%D8%A7%D9%86-%D8%B3%D8%A7%D9%8A%D8%B3-%D9%88%D9%8A%D9%83%D9%8A%D8%A8%D9%8A%D8%AF%D9%8A%D8%A7-%D8%A7%D9%84%D8%B3%D9%8A%D8%B1%D8%A9/)
+- **مباشر.. مباراة المغرب ضد جزر القمر (0-0) في كأس أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1)
+- **ما القنوات الناقلة للمباراة الافتتاحية في كأس أمم إفريقيا 2025 بين المغرب وجزر القمر؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%8A%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt75026326985744ff)
+
+
+### marocco - comore (N/A, Sun, 21 Dec 2025 11:20:00 -0800)
+
+- **Hakimi, Abdelkader, Mazraoui. Il Marocco dei giocatori nati in Europa obbligato a vincere la Coppa d'Africa**: [Link](https://www.corriere.it/sport/calcio/25_dicembre_21/marocco-coppa-africa-f5839a79-7396-4626-bb6e-ba30d9421xlk.shtml)
+- **Coppa d'Africa 2025: i gironi, la formula, gli ‘italiani’, il calendario e dove vederla in tv**: [Link](https://www.repubblica.it/sport/calcio/2025/12/21/news/coppa_d_africa_formula_gironi_calendario_dove_vedere_tv-425053144/)
+- **Video. Al via l'Afcon 2025: Il Marocco pronto a ospitare il continente**: [Link](https://it.euronews.com/video/2025/12/21/al-via-lafcon-2025-il-marocco-pronto-ad-ospitare-il-continente)
+
+
+### live tv (N/A, Sun, 21 Dec 2025 11:20:00 -0800)
+
+- **Bayern thrash Heidenheim to end year on a high**: [Link](https://www.bbc.com/sport/football/live/c3d0le93e80t)
+- **Heidenheim 0-4 Bayern (Dec 21, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/746846)
+- **Heidenheim vs. Bayern Munich: Lineups, team news, injuries, and more!**: [Link](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/155098/heidenheim-vs-bayern-munich-lineups-team-news-injuries-and-more)
+
+
+### live football (N/A, Sun, 21 Dec 2025 11:20:00 -0800)
+
+- **Celtic vs Aberdeen LIVE: Scottish Premiership radio, team news, text, report, reaction & stats**: [Link](https://www.bbc.com/sport/football/live/c20g36redqzt)
+- **Wilfried Nancy Welcomes First ‘Normal Week’ at Celtic**: [Link](https://celtsarehere.com/celtic-fc-wilfried-nancy-normal-week/)
+- **Wilfried Nancy Breaks Celtic Duck, Hearts Beat Rangers**: [Link](https://sports.ndtv.com/football/wilfried-nancy-breaks-celtic-duck-hearts-beat-rangers-9861866)
+
+
+### koo (N/A, Sun, 21 Dec 2025 11:20:00 -0800)
+
+- **Why Giants have a new lefty kicker Ben Sauls instead of Younghoe Koo**: [Link](https://sports.yahoo.com/articles/why-giants-lefty-kicker-ben-185003917.html)
+- **Former Falcons kicker waived by New York Giants**: [Link](https://thefalconswire.usatoday.com/story/sports/nfl/falcons/2025/12/16/falcons-younghoe-koo-giants/87799997007/)
+- **Ben Sauls ‘excited’ for Giants debut and chance to be NFL’s first lefty kicker in seven years**: [Link](https://nypost.com/2025/12/19/sports/rookie-kicker-ben-sauls-excited-for-giants-debut-vs-vikings/)
+
+
+### مبارة اليوم (N/A, Sun, 21 Dec 2025 11:20:00 -0800)
+
+
+
+
+### match maroc aujourd'hui (N/A, Sun, 21 Dec 2025 11:00:00 -0800)
+
+
+
+
 ### بت مباشر (N/A, Sun, 21 Dec 2025 11:10:00 -0800)
 
 
