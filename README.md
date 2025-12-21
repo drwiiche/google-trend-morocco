@@ -1,3 +1,17 @@
+### match barca (N/A, Sun, 21 Dec 2025 07:50:00 -0800)
+
+- **Mbappé ties Ronaldo record for most Real Madrid goals in a year**: [Link](https://www.espn.com/soccer/story/_/id/47245759/kylian-mbappe-cristiano-ronaldo-record-real-madrid-goals-year)
+- **Cristiano Ronaldo Reacts As Kylian Mbappe Ties Famous Real Madrid Goal Record**: [Link](https://www.si.com/soccer/cristiano-ronaldo-reacts-kylian-mbappe-ties-famous-real-madrid-goal-record)
+- **Real Madrid vs Sevilla LIVE: Spanish La Liga score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cwyv8p8l4mmt)
+
+
+### fc barcelone (N/A, Sun, 21 Dec 2025 07:20:00 -0800)
+
+- **Villarreal - FC Barcelone en direct - La Liga : Football Scores & Résultats - 21/12/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-villarreal-fc-barcelone_mtc1610592/live-commentary.shtml)
+- **Comment voir Villarreal-Barça en Liga (chaîne, heure)**: [Link](https://www.20minutes.fr/sport/football/4192576-20251221-villarreal-barca-chaine-heure-voir-match-liga)
+- **Pedri forfait pour le choc Barça-Villarreal**: [Link](https://www.lesiteinfo.com/sport/662726-pedri-forfait-pour-le-choc-barca-villarreal.html)
+
+
 ### barca match (N/A, Sun, 21 Dec 2025 07:40:00 -0800)
 
 - **Why Is Pedri Not Playing Tonight for Barcelona vs Villarreal?**: [Link](https://athlonsports.com/soccer/why-is-pedri-not-playing-tonight-for-barcelona-vs-villarreal)
