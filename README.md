@@ -1,3 +1,24 @@
+### برشلونة (N/A, Sun, 21 Dec 2025 07:00:00 -0800)
+
+- **توريس يجاور يامال ورافينيا في هجوم برشلونة أمام فياريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-%D9%8A%D8%AC%D8%A7%D9%88%D8%B1-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84/blt2bdd33f31cc684c0)
+- **ليفاندوفسكي يعود لبرشلونة وغياب بيدري عن مواجهة فياريال**: [Link](https://www.alquds.co.uk/%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A8%D9%8A%D8%AF%D8%B1/)
+- **في غياب بيدري.. برشلونة يخشى الغرق أمام "الغواصات الصفراء"**: [Link](https://24.ae/article/937377/%D9%81%D9%8A-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A8%D9%8A%D8%AF%D8%B1%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AE%D8%B4%D9%89-%D8%A7%D9%84%D8%BA%D8%B1%D9%82-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%BA%D9%88%D8%A7%D8%B5%D8%A7%D8%AA-%D8%A7%D9%84%D8%B5%D9%81%D8%B1%D8%A7%D8%A1-)
+
+
+### barca vs (N/A, Sun, 21 Dec 2025 07:00:00 -0800)
+
+- **Barça - Joventut, en directo hoy: resultado de la jornada 11 de Liga Endesa, en vivo**: [Link](https://www.sport.es/es/noticias/barca/baloncesto/barca-joventut-directo-online-vivo-acb-liga-endesa-125003547)
+- **Dani Miret: "Hemos estado por debajo del nivel requerido para este derbi ante el Barça"**: [Link](https://www.mundodeportivo.com/baloncesto/acb/20251221/1002590562/dani-miret-hemos-debajo-nivel-requerido-derbi-barca.html)
+- **Xavi Pascual: “El desgaste físico y emocional que llevamos es enorme”**: [Link](https://as.com/baloncesto/acb/xavi-pascual-el-desgaste-fisico-y-emocional-que-llevamos-es-enorme-f202512-n/)
+
+
+### pedri (N/A, Sun, 21 Dec 2025 06:50:00 -0800)
+
+- **Flick apuesta por un once sin Lewandowski ante el Villarreal**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251221/1002590535/flick-apuesta-once-lewandowski-villarreal.html)
+- **Lesión Pedri: parte médico, qué tiene y cuántos partidos se perderá con el Barça**: [Link](https://www.sport.es/es/noticias/barca/lesion-pedri-parte-medico-partidos-124997017)
+- **Christensen se lesiona de gravedad: sufre una rotura parcial del ligamento cruzado de la rodilla izquierda**: [Link](https://www.marca.com/futbol/barcelona/2025/12/21/christensen-lesiona-gravedad-sufre-rotura-parcial-ligamento-cruzado-rodilla-izquierda.html)
+
+
 ### villarreal – barcelone (N/A, Sun, 21 Dec 2025 06:40:00 -0800)
 
 - **Villarreal midfielder insists Barcelona will fall - 'At some point they will lose and it will be today'**: [Link](https://barcauniversal.com/villarreal-midfielder-insists-barcelona-will-fall-at-some-point-they-will-lose-and-it-will-be-today/)
