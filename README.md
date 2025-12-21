@@ -1,3 +1,16 @@
+### maroc mali (N/A, Sun, 21 Dec 2025 13:00:00 -0800)
+
+- **Tom Saintfiet (Mali) : "J’ai confiance en mon équipe"**: [Link](https://www.cafonline.com/fr/can2025/infos/tom-saintfiet-mali-j-ai-confiance-en-mon-equipe/)
+- **Foot - CAN-2025 (1ère journée/Groupe A): le Mali et la Zambie déterminés à réussir leur entrée en lice**: [Link](https://www.tap.info.tn/fr/Portail-Sports-FR/19617867-foot-can-2025)
+- **Mali : Bissouma, Niakaté et H.Traoré forfaits pour la Zambie**: [Link](https://www.pierrotlefoot.com/actualites/mali-bissouma-niakate-et-h-traore-forfaits-pour-la-zambie-100386.html)
+
+
+### youssouf m'changama (N/A, Sun, 21 Dec 2025 13:00:00 -0800)
+
+- **Comores - M'Changama : “Le surnom Cantona me suit depuis petit, à Marseille, dans mon quartier”**: [Link](https://sports.orange.fr/videos/football/comores-m-changama-le-surnom-cantona-me-suit-depuis-petit-a-marseille-dans-mon-quartier-CNT000002mhkmx.html)
+- **Comores : Youssouf M'Changama - "Le surnom Cantona me suit depuis petit, à Marseille, dans mon quartier"**: [Link](https://madeinfoot.ouest-france.fr/infos/article-comores-youssouf-m-changama-le-surnom-cantona-me-suit-depuis-petit-a-marseille-dans-mon-quartier-506719.html)
+
+
 ### matchs de équipe du maroc de football (N/A, Sun, 21 Dec 2025 12:40:00 -0800)
 
 - **Coupe arabe 2025 : les Lions de l’Atlas au sommet au bout du suspense**: [Link](https://ledesk.ma/2025/12/18/coupe-arabe-2025-les-lions-de-latlas-au-sommet-au-bout-du-suspense/)
