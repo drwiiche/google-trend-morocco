@@ -1,3 +1,10 @@
+### barca match (N/A, Sun, 21 Dec 2025 07:40:00 -0800)
+
+- **Why Is Pedri Not Playing Tonight for Barcelona vs Villarreal?**: [Link](https://athlonsports.com/soccer/why-is-pedri-not-playing-tonight-for-barcelona-vs-villarreal)
+- **Hansi Flick: 'We have big goals this season'**: [Link](https://www.fcbarcelona.com/en/news/4422944/hansi-flick-we-have-big-goals-this-season)
+- **Pedri’s injury opens door for Barcelona captain to reclaim starting role against Villarreal**: [Link](https://barcauniversal.com/pedris-injury-opens-door-for-barcelona-captain-to-reclaim-starting-role-against-villarreal/)
+
+
 ### طقس الطقس (N/A, Sun, 21 Dec 2025 07:40:00 -0800)
 
 - **نشرة جوية إنذارية من الأحد إلى الأربعاء**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7-1674596.html)
