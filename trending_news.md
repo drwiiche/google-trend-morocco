@@ -1,3 +1,10 @@
+### matchs de équipe du maroc de football (N/A, Sun, 21 Dec 2025 12:40:00 -0800)
+
+- **Coupe arabe 2025 : les Lions de l’Atlas au sommet au bout du suspense**: [Link](https://ledesk.ma/2025/12/18/coupe-arabe-2025-les-lions-de-latlas-au-sommet-au-bout-du-suspense/)
+- **Du triomphe sportif au sursaut développemental**: [Link](https://fr.le360.ma/societe/du-triomphe-sportif-au-sursaut-developpemental_LYPHVEUUWJCJLOMJRWPV6KCHQY/)
+- **Coupe arabe : Rabie Hrimat meilleur joueur, Benabid meilleur gardien**: [Link](https://telquel.ma/instant-t/2025/12/19/coupe-arabe-rabie-hrimat-meilleur-joueur-benabid-meilleur-gardien_1966033/)
+
+
 ### marokko - comoren (N/A, Sun, 21 Dec 2025 12:30:00 -0800)
 
 - **Marokko begint als grote favoriet aan Afrika Cup in eigen land, 50 jaar na laatste zege**: [Link](https://nos.nl/artikel/2595425-marokko-begint-als-grote-favoriet-aan-afrika-cup-in-eigen-land-50-jaar-na-laatste-zege)
