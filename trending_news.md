@@ -1,3 +1,10 @@
+### rayan cherki (N/A, Sun, 21 Dec 2025 00:40:00 -0800)
+
+- **Man City 3-0 West Ham: Haaland & Reijnders score as City win**: [Link](https://www.bbc.com/sport/football/live/cgex858yln0t)
+- **Manchester City 3-0 West Ham, Brighton 0-0 Sunderland, and more – as it happened**: [Link](https://www.theguardian.com/football/live/2025/dec/20/manchester-city-v-west-ham-brighton-v-sunderland-and-more-football-live)
+- **Team News | Nuno issues squad update ahead of Manchester City trip**: [Link](https://www.whufc.com/en/news/team-news-or-nuno-issues-squad-update-ahead-of-manchester-city-trip)
+
+
 ### rumble (N/A, Sat, 20 Dec 2025 14:30:00 -0800)
 
 - **At least 16 files have disappeared from the DOJ webpage for documents related to Jeffrey Epstein**: [Link](https://www.journalgazette.net/news/national/at-least-16-files-have-disappeared-from-the-doj-webpage-for-documents-related-to-jeffrey/article_a56c239f-1f94-5ff8-8279-f04656403d3b.html)
