@@ -1,3 +1,31 @@
+### atalanta (N/A, Sun, 21 Dec 2025 13:30:00 -0800)
+
+- **✅ Genoa v Atalanta line-ups: Maldini, Ekuban in, Scalvini out ❌**: [Link](https://sports.yahoo.com/articles/genoa-atalanta-line-ups-maldini-185000970.html)
+- **Genoa 0-0 Atalanta: Post-match review, Stats, Key moments**: [Link](https://www.bwin.com/en/news/post-match-review-genoa-atalanta-serie-a-gameweek-16/)
+- **Where to Watch Genoa CFC vs. Atalanta: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/20/where-to-watch-genoa-cfc-vs-atalanta-tv-channel-start-time-and-live-stream-2/)
+
+
+### real betis vs getafe (N/A, Sun, 21 Dec 2025 13:30:00 -0800)
+
+- **Where to Watch Real Betis vs. Getafe CF: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/20/where-to-watch-real-betis-vs-getafe-cf-tv-channel-start-time-and-live-stream-2/)
+- **Getafe Look to Break Losing Streak Against Real Betis in La Liga Clash**: [Link](https://news.ssbcrack.com/getafe-look-to-break-losing-streak-against-real-betis-in-la-liga-clash/)
+- **Preview: Real Betis vs Getafe - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/betis-vs-getafe-prediction-team-news-lineups_588183.html)
+
+
+### ريال بتيس ضد خيتافي (N/A, Sun, 21 Dec 2025 13:30:00 -0800)
+
+- **بورجوس يفوز على خيتافي بثلاثية ويصعد لدور الـ16 بكأس ملك إسبانيا**: [Link](https://www.bna.bh/news?cms=q8FmFJgiscL2fwIzON1%2BDhb3mJbORiFC6SWkl4as%2Fws%3D)
+- **كأس اسبانيا: بلباو وبيتيس يتأهلان الى الدور ثمن النهائي**: [Link](https://ar.webmanagercenter.com/2025/12/19/413662/%D9%83%D8%A3%D8%B3-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%AA%D8%A3%D9%87%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D9%89-%D8%A7/)
+- **نتائج كأس ملك إسبانيا: تأهل درامي لأتلتيك بلباو وريال بيتيس**: [Link](https://alamriyadi.com/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%A3%D9%87%D9%84-%D8%AF%D8%B1%D8%A7%D9%85%D9%8A-%D9%84%D8%A3%D8%AA%D9%84%D8%AA/)
+
+
+### egypt vs (N/A, Sun, 21 Dec 2025 13:30:00 -0800)
+
+- **Seven titles later, Egypt return to AFCON as history’s benchmark and present contenders**: [Link](https://www.cafonline.com/afcon2025/news/seven-titles-later-egypt-return-to-afcon-as-history-s-benchmark-and-present-contenders/)
+- **Trezeguet: 'Focus on Zimbabwe, Aim to Win Africa Cup'**: [Link](https://m.elbotola.com/en/article/2025-12-21-14-44-331.html)
+- **'We will do everything possible to reach the top and lift the AFCON trophy again': Egypt coach Hossam Hassan**: [Link](https://english.ahram.org.eg/NewsAFCON2025/2025/559058.aspx)
+
+
 ### mali (N/A, Sun, 21 Dec 2025 13:20:00 -0800)
 
 
