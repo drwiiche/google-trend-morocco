@@ -1,3 +1,24 @@
+### fcb (N/A, Sun, 21 Dec 2025 07:20:00 -0800)
+
+- **Villarreal midfielder insists Barcelona will fall - 'At some point they will lose and it will be today'**: [Link](https://barcauniversal.com/villarreal-midfielder-insists-barcelona-will-fall-at-some-point-they-will-lose-and-it-will-be-today/)
+- **Villarreal's clean-sheet specialists meet Barcelona's perfect scorers**: [Link](https://www.besoccer.com/new/villarreal-s-clean-sheet-specialists-meet-barcelona-s-perfect-scorers-1386018)
+- **LIVE: Villarreal vs Barcelona – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/21/live-villarreal-vs-barcelona-la-liga?update=4188053)
+
+
+### barca (N/A, Sun, 21 Dec 2025 07:10:00 -0800)
+
+- **Esplosione in barca a Viareggio: grave 53enne**: [Link](https://luccatimes.it/esplosione-in-barca-a-viareggio-grave-53enne/)
+- **Rischia di morire nell'esplosione in barca: trasferito in ospedale in codice rosso**: [Link](https://www.lanazione.it/viareggio/cronaca/esplosione-barca-ib0n1syp)
+- **Resta ustionato nell'esplosione della sua barca**: [Link](https://www.toscanamedianews.it/massarosa-ustionato-nellesplosione-della-barca.htm)
+
+
+### barcelona (N/A, Sun, 21 Dec 2025 07:10:00 -0800)
+
+- **Villarreal - Barcelona, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/villarreal-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
+- **"Todos los entrenadores nos adaptamos a los futbolistas, muchas veces en contra de nuestra voluntad"**: [Link](https://www.marca.com/calendario-adviento/entrevista-marcelino.html)
+- **Un 'last dance' de altura para despedir el 2025**: [Link](https://www.sport.es/es/noticias/barca/last-dance-altura-despedir-2025-124997822)
+
+
 ### برشلونة (N/A, Sun, 21 Dec 2025 07:00:00 -0800)
 
 - **توريس يجاور يامال ورافينيا في هجوم برشلونة أمام فياريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-%D9%8A%D8%AC%D8%A7%D9%88%D8%B1-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84/blt2bdd33f31cc684c0)
