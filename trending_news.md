@@ -1,3 +1,10 @@
+### boufal (N/A, Sun, 21 Dec 2025 11:40:00 -0800)
+
+- **La fin pour Sofiane Boufal à l’Union ? « Il ne jouera plus en 2025 pour des raisons privées »**: [Link](https://www.lesoir.be/717867/article/2025-12-19/la-fin-pour-sofiane-boufal-lunion-il-ne-jouera-plus-en-2025-pour-des-raisons)
+- **Fin de l'aventure de Sofiane Boufal à l'Union ? Le joueur n'est plus sélectionné pour "raisons privées" en 2025, le flou autour de son futur au club**: [Link](https://www.dhnet.be/sports/football/division-1a/union-saint-gilloise/2025/12/19/fin-de-laventure-de-sofiane-boufal-a-lunion-le-joueur-nest-plus-selectionne-pour-raisons-privees-en-2025-le-flou-autour-de-son-futur-au-club-MM2LUQFVHVHL7O3P4TWBOOPQ24/)
+- **Boufal, incertitude à l’Union : une absence qui relance les questions**: [Link](https://mountakhab.net/boufal-incertitude-a-lunion-une-absence-qui-relance-les-questions/)
+
+
 ### live match en direct (N/A, Sun, 21 Dec 2025 11:30:00 -0800)
 
 - **Le Barça tient le choc**: [Link](https://www.sports.fr/football/fc-barcelone/le-barca-tient-le-choc-976398.html)
