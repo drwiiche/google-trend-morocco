@@ -1,3 +1,10 @@
+### madrid vs (N/A, Sat, 20 Dec 2025 12:40:00 -0800)
+
+- **Girona - Atlético de Madrid | Los onces probables**: [Link](https://www.fichajes.com/a6573662345244214819-girona-atletico-de-madrid-los-onces-probables)
+- **Montilivi se aferra a una noche de fe ante el Atlético**: [Link](https://www.mundodeportivo.com/futbol/girona-fc/20251221/1002590229/montilivi-aferra-noche-fe-atletico.html)
+- **Míchel: "Veníamos de la Champions y hemos estado por debajo de lo esperado"**: [Link](https://www.sport.es/es/noticias/girona/michel-veniamos-champions-hemos-debajo-124994271)
+
+
 ### الريال ضد إشبيلية (N/A, Sat, 20 Dec 2025 12:40:00 -0800)
 
 - **"ملامح عبور إشبيلية" الكاميرات تنقذ رونالدو من مبابي.. وكورتوا يؤمن شوارع ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%B9%D8%A8%D9%88%D8%B1-%D8%A7%D9%95%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AA%D9%86%D9%82%D8%B0-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D9%88%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D9%8A%D9%88%D9%94%D9%85%D9%86-%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt656515dece1f96d7)
