@@ -1,3 +1,10 @@
+### maroc vs mali (N/A, Sun, 21 Dec 2025 13:00:00 -0800)
+
+- **Tom Saintfiet (Mali) : "J’ai confiance en mon équipe"**: [Link](https://www.cafonline.com/fr/can2025/infos/tom-saintfiet-mali-j-ai-confiance-en-mon-equipe/)
+- **Mali, Afrique du Sud, Égypte : les outsiders de la CAN 2025 entrent en piste**: [Link](https://www.france24.com/fr/sports/20251221-mali-afrique-sud-egypte-outsiders-can-2025)
+- **Foot - CAN-2025 (1ère journée/Groupe A): le Mali et la Zambie déterminés à réussir leur entrée en lice**: [Link](https://www.tap.info.tn/fr/Portail-Sports-FR/19617867-foot-can-2025)
+
+
 ### james ransone (N/A, Sun, 21 Dec 2025 14:00:00 -0800)
 
 - **'The Wire' star James Ransone dead at 46**: [Link](https://www.foxnews.com/entertainment/the-wire-star-james-ransone-dead-46)
