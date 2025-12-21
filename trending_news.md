@@ -1,3 +1,10 @@
+### real (N/A, Sat, 20 Dec 2025 13:00:00 -0800)
+
+- **Real Madrid vs Sevilla LIVE: Spanish La Liga score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cwyv8p8l4mmt)
+- **Courtois: “The important thing was to win at home”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/declaraciones-jugador-20-12-2025)
+- **Honour to match idol Ronaldo's Real Madrid calendar year goal record: Mbappe**: [Link](https://www.rfi.fr/en/sports/20251220-honour-to-match-idol-ronaldo-s-real-madrid-calendar-year-goal-record-mbappe)
+
+
 ### match maroc afrique (N/A, Sat, 20 Dec 2025 14:30:00 -0800)
 
 - **CAN 2025: "La confiance est un peu ébranlée", pourquoi Walid Regragui est sous pression à la tête de l’équipe du Maroc**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-la-confiance-est-un-peu-ebranlee-pourquoi-walid-regragui-est-sous-pression-a-la-tete-de-l-equipe-du-maroc_AV-202512210013.html)
