@@ -1,3 +1,10 @@
+### james ransone (N/A, Sun, 21 Dec 2025 14:00:00 -0800)
+
+- **'The Wire' star James Ransone dead at 46**: [Link](https://www.foxnews.com/entertainment/the-wire-star-james-ransone-dead-46)
+- **'The Wire,' 'It: Chapter Two' actor James Ransone dies from apparent suicide at 46**: [Link](https://www.nbcnews.com/news/us-news/james-ransone-wire-actor-dies-apparent-suicide-rcna250345)
+- **James Ransone, US actor known for The Wire, dies aged 46**: [Link](https://www.theguardian.com/us-news/2025/dec/21/james-ransone-the-wire-actor-dead)
+
+
 ### algerie can (N/A, Sun, 21 Dec 2025 13:30:00 -0800)
 
 - **CAN 2025 : Les Verts débarquent à Rabat - Sports**: [Link](https://www.lesoirdalgerie.com/sports/les-verts-debarquent-a-rabat-144446)
