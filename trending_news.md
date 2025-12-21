@@ -1,3 +1,8 @@
+### mali (N/A, Sun, 21 Dec 2025 13:20:00 -0800)
+
+
+
+
 ### maroc mali (N/A, Sun, 21 Dec 2025 13:00:00 -0800)
 
 - **Tom Saintfiet (Mali) : "J’ai confiance en mon équipe"**: [Link](https://www.cafonline.com/fr/can2025/infos/tom-saintfiet-mali-j-ai-confiance-en-mon-equipe/)
