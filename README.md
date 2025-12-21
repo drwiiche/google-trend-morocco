@@ -1,3 +1,22 @@
+### arryadia tnt (N/A, Sun, 21 Dec 2025 05:20:00 -0800)
+
+
+
+
+### afcon (N/A, Sun, 21 Dec 2025 02:40:00 -0800)
+
+- **Morocco – Comoros: Hosts open their TotalEnergies CAF AFCON Morocco 2025 campaign in Rabat**: [Link](https://www.cafonline.com/afcon2025/news/morocco-comoros-hosts-open-their-totalenergies-caf-afcon-morocco-2025-campaign-in-rabat/)
+- **Saintfiet confident in his team as Mali seek first ever African victory dance**: [Link](https://www.cafonline.com/afcon2025/news/saintfiet-confident-in-his-team-as-mali-seek-first-ever-african-victory-dance/)
+- **Comoros President: "Morocco and Comoros are Sister Nations, But I Hope We Win; Tonight I'll Sleep Peacefully"**: [Link](https://m.elbotola.com/en/article/2025-12-20-19-12-315.html)
+
+
+### القنوات الناقلة لمباراة المغرب اليوم (N/A, Sun, 21 Dec 2025 02:30:00 -0800)
+
+- **سجل المواجهات بين المغرب وجزر القمر**: [Link](https://www.hespress.com/%D8%B3%D8%AC%D9%84-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-1674580.html)
+- **تفوق كاسح.. التاريخ يخفض سقف أحلام جزر القمر أمام المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%81%D9%88%D9%82-%D9%83%D8%A7%D8%B3%D8%AD--%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%8A%D8%AE%D9%81%D8%B6-%D8%B3%D9%82%D9%81-%D8%A7%D9%94%D8%AD%D9%84%D8%A7%D9%85-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blta8c0f4b54379c9c3)
+- **استعراض بالرباط يسبق كأس إفريقيا**: [Link](https://www.hesport.com/%D8%A7%D8%B3%D8%AA%D8%B9%D8%B1%D8%A7%D8%B6-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D9%8A%D8%B3%D8%A8%D9%82-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-418828.html)
+
+
 ### vinicius júnior (N/A, Sun, 21 Dec 2025 03:30:00 -0800)
 
 - **Vinícius Júnior troca foto do Real Madrid nas redes sociais pela seleção brasileira | Ge**: [Link](https://ge.globo.com/futebol/futebol-internacional/futebol-espanhol/noticia/2025/12/20/vinicius-junior-troca-foto-do-real-madrid-nas-redes-sociais-pela-selecao-brasileira.ghtml)
