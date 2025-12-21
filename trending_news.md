@@ -1,3 +1,17 @@
+### الفنانة سمية الألفي (N/A, Sun, 21 Dec 2025 13:40:00 -0800)
+
+- **قبل وفاتها بأيام.. سمية الألفي "ودعت" نجلها في موقع التصوير**: [Link](https://www.alarabiya.net/culture-and-art/2025/12/20/%D9%88%D8%AF%D8%B9%D8%AA-%D9%86%D8%AC%D9%84%D9%87%D8%A7-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%A7%D8%AE%D9%8A%D8%B1-%D9%84%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%84%D9%81%D9%8A-%D8%A8%D8%A7%D8%B3%D8%AA%D9%88%D8%AF%D9%8A%D9%88-%D8%AA%D8%B5%D9%88%D9%8A%D8%B1-%D8%B3%D9%81%D8%A7%D8%AD-%D8%A7%D9%84%D8%AA%D8%AC%D9%85%D8%B9)
+- **أحمد الفيشاوى يغيب عن جنازة والدته سمية الألفى.. اعرف السبب**: [Link](https://www.youm7.com/story/2025/12/20/%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%81%D9%8A%D8%B4%D8%A7%D9%88%D9%89-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%AC%D9%86%D8%A7%D8%B2%D8%A9-%D9%88%D8%A7%D9%84%D8%AF%D8%AA%D9%87-%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%84%D9%81%D9%89-%D8%A7%D8%B9%D8%B1%D9%81-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8/7240803)
+- **جنازة الفنانة المصرية سمية الألفي.. حضور فني وإعلامي ورسائل وداع مؤثرة**: [Link](https://www.aljazeera.net/arts/2025/12/20/%D8%AC%D9%86%D8%A7%D8%B2%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%84%D9%81%D9%8A)
+
+
+### ayoub el kaabi (N/A, Sun, 21 Dec 2025 12:40:00 -0800)
+
+- **¿Ayoub El Kaabi hizo gol para el Puskas en la Copa Africana 2025?**: [Link](https://www.beinsports.com/es-us/football/copa-africana-de-naciones/articles/-ayoub-el-kaabi-hizo-gol-para-el-puskas-en-la-copa-africana-2025-2025-12-21)
+- **Marruecos marca el que puede ser el gol de la Copa África: chilena de fantasía**: [Link](https://www.mundodeportivo.com/futbol/copa-africa/20251221/1002590771/marruecos-marca-gol-copa-africa-chilena-fantasia.html)
+- **Marruecos agita África**: [Link](https://as.com/futbol/internacional/marruecos-agita-africa-f202512-n/)
+
+
 ### atalanta (N/A, Sun, 21 Dec 2025 13:30:00 -0800)
 
 - **✅ Genoa v Atalanta line-ups: Maldini, Ekuban in, Scalvini out ❌**: [Link](https://sports.yahoo.com/articles/genoa-atalanta-line-ups-maldini-185000970.html)
