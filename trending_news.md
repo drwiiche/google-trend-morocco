@@ -1,3 +1,10 @@
+### aston villa – manchester united (N/A, Sun, 21 Dec 2025 09:10:00 -0800)
+
+- **Aston Villa vs Man Utd LIVE: Premier League score, team news, radio & updates**: [Link](https://www.bbc.com/sport/football/live/cm21rm3gzwrt)
+- **Man Utd boss Amorim pushed about Villa pair Sancho and Martinez**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-man-utd-boss-amorim-pushed-about-villa-pair-sancho-and-martinez-340171f9-95e1-452f-97c8-792f18470c3f)
+- **Aston Villa vs Manchester United Predictions: History beckons for the hosts**: [Link](https://www.goal.com/en-us/betting/aston-villa-vs-manchester-united-predictions-12-21/bltdcfca7933df2a1f6)
+
+
 ### bein sport (N/A, Sun, 21 Dec 2025 09:20:00 -0800)
 
 - **Preview: Mali vs Zambia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/mali/africa-cup-of-nations/preview/mali-vs-zambia-prediction-team-news-lineups_588240.html)
