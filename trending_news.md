@@ -1,3 +1,10 @@
+### andrew tate (N/A, Sat, 20 Dec 2025 15:00:00 -0800)
+
+- **Who won Andrew Tate vs Chase Demoor? Social media reacts to ‘garbage fight’ with memes and jokes**: [Link](https://www.livemint.com/news/trends/who-won-andrew-tate-vs-chase-demoor-social-media-reacts-to-garbage-fight-with-memes-and-jokes-11766281272267.html)
+- **Darren Till left Andrew Tate's shocking Misfits debut loss early as the fight he's been chasing faded**: [Link](https://bloodyelbow.com/2025/12/20/darren-till-left-andrew-tates-shocking-misfits-debut-loss-early-as-the-fight-hes-been-chasing-faded/)
+- **Andrew Tate fight stream problems leave boxing fans furious**: [Link](https://www.mirror.co.uk/sport/boxing/andrew-tate-fight-stream-problems-36435027)
+
+
 ### real vs (N/A, Sat, 20 Dec 2025 12:50:00 -0800)
 
 - **Americans like artificial Christmas trees even though few are made in US and prices are up**: [Link](https://apnews.com/article/tariffs-christmas-trees-fake-artificial-china-balsam-hill-1ddac9237e03e3afad18759754131a4d)
