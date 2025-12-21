@@ -1,3 +1,38 @@
+### marruecos - comoras (N/A, Sun, 21 Dec 2025 10:30:00 -0800)
+
+- **Marruecos agita África**: [Link](https://as.com/futbol/internacional/marruecos-agita-africa-f202512-n/)
+- **Una Copa África histórica: Marruecos favorita, el 10 de Brahim, el 'milagro' Hakimi, el lío en Camerún...**: [Link](https://www.marca.com/futbol/2025/12/21/copa-africa-historica-marruecos-favorita-10-brahim-milagro-hakimi-lio-camerun.html)
+- **AFCON 2025: Las puertas del estadio se abrirán a las 14h para el partido inaugural entre Marruecos y Comoras**: [Link](https://ar.yabiladi.com/articles/details/183931/afcon-2025-puertas-estadio-abriran.html)
+
+
+### live (N/A, Sun, 21 Dec 2025 10:30:00 -0800)
+
+- **HIGHLIGHTS FOR ‘ABC NEWS LIVE PRIME WITH LINSEY DAVIS,’ DEC. 22-26**: [Link](https://www.detpress.com/abcnews/pressrelease/highlights-for-abc-news-live-prime-with-linsey-davis-dec-22-26/)
+- **"ABC News Live Prime with Linsey Davis" Guest List: Simu Liu, Zara Larsson, and More to Appear Week of December 22nd**: [Link](https://www.laughingplace.com/disney-entertainment/abc-news-live-guests-week-of-december-22nd/)
+- **Zoe Saldana & Hugh Jackman To Appear On “ABC News Live Prime With Linsey Davis”**: [Link](https://whatsondisneyplus.com/zoe-saldana-hugh-jackman-to-appear-on-abc-news-live-prime-with-linsey-davis/)
+
+
+### hakimi (N/A, Sun, 21 Dec 2025 10:30:00 -0800)
+
+- **Achraf obra el milagro**: [Link](https://as.com/futbol/internacional/achraf-se-sacrifico-por-marruecos-f202512-n/)
+- **Hakimi: Los éxitos de las selecciones marroquíes impulsan a los ‘Leones’ de cara a la Copa África**: [Link](https://es.rue20.com/2025/12/20/hakimi-los-exitos-de-las-selecciones-marroquies-impulsan-a-los-leones-de-cara-a-la-copa-africa/)
+- **Revolución parcial en Marruecos: renovación y sorpresas que marcan la lista de la Copa Africana de Naciones**: [Link](https://www.atalayar.com/articulo/deportes/revolucion-parcial-marruecos-renovacion-sorpresas-que-marcan-lista-copa-africana-naciones/20251212090000221392.html)
+
+
+### elche – rayo (N/A, Sun, 21 Dec 2025 10:10:00 -0800)
+
+- **Alineaciones confirmadas de Elche y Rayo en la jornada 17 de LALIGA EA SPORTS**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20251221/elche-rayo-vallecano-alineaciones-laliga-ea-sports_18_017919186.html)
+- **Iñigo: “Lo del otro día fue histórico y debemos aprovechar esa inercia”**: [Link](https://as.com/futbol/primera/inigo-lo-del-otro-dia-fue-historico-y-debemos-aprovechar-esa-inercia-f202512-n/)
+- **Elche - Rayo Vallecano: horario, canal y dónde ver hoy en TV y online el partido de la jornada 17 de LaLiga**: [Link](https://www.estadiodeportivo.com/futbol/primera-division/elche-rayo-vallecano-horario-canal-donde-ver-hoy-online-partido-jornada-laliga-20251221-523882.html)
+
+
+### aston villa vs man united (N/A, Sun, 21 Dec 2025 10:00:00 -0800)
+
+- **Aston Villa vs Man Utd LIVE: Premier League score, team news, radio & updates**: [Link](https://www.bbc.com/sport/football/live/cm21rm3gzwrt)
+- **Football Tracker: Pisa leading Cagliari in Serie A, Atletico and Barca to follow**: [Link](https://www.flashscore.com/news/football-tracker-pisa-leading-cagliari-in-serie-a-atletico-and-barca-to-follow/p0SNiXEF/)
+- **Mainoo misses Villa game with injury**: [Link](https://therepublikofmancunia.com/mainoo-misses-villa-game-with-injury/)
+
+
 ### patrice motsepe (N/A, Sun, 21 Dec 2025 10:00:00 -0800)
 
 - **CAF President Dr Patrice Motsepe announces 43% increase in Prize Money for winner of the TotalEnergies CAF Africa Cup of Nations Morocco 2025 to USD 10 Million**: [Link](https://www.cafonline.com/afcon2025/news/caf-president-dr-patrice-motsepe-announces-43-increase-in-prize-money-for-winner-of-the-totalenergies-caf-africa-cup-of-nations-morocco-2025-to-usd-10-million/)
