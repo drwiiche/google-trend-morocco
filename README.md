@@ -1,3 +1,38 @@
+### live match en direct (N/A, Sun, 21 Dec 2025 11:30:00 -0800)
+
+- **Le Barça tient le choc**: [Link](https://www.sports.fr/football/fc-barcelone/le-barca-tient-le-choc-976398.html)
+- **Villarreal - FC Barcelone en direct - La Liga : Football Scores & Résultats - 21/12/2025**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-villarreal-fc-barcelone_mtc1610592/live-commentary.shtml)
+- **Barça : Hansi Flick annonce la blessure de Pedri**: [Link](https://www.footmercato.net/a1519962347371227819-fc-barcelone-hansi-flick-annonce-la-blessure-de-pedri)
+
+
+### betis – getafe (N/A, Sun, 21 Dec 2025 11:30:00 -0800)
+
+- **Alineaciones confirmadas de Betis y Getafe en la jornada 17 de LALIGA**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20251221/alineaciones-confirmadas-betis-getafe-laliga_18_017919397.html)
+- **Lo Celso y Milla, líderes silenciosos en La Cartuja**: [Link](https://as.com/futbol/primera/lo-celso-y-milla-lideres-silenciosos-en-la-cartuja-f202512-n/)
+- **Duelo de estilos en La Cartuja**: [Link](https://www.epe.es/es/madrid/20251221/duelo-estilos-cartuja-betis-getafe-124997458)
+
+
+### mazraoui (N/A, Sun, 21 Dec 2025 11:30:00 -0800)
+
+- **Morocco coach aims thinly veiled criticism at Man United after Mazraoui release spat**: [Link](https://www.espn.com/espn/story/_/id/47366991/morocco-coach-aims-thinly-veiled-criticism-man-united-mazraoui-release-spat)
+- **Morocco star Sofyan Amrabat looking forward to AFCON 2025**: [Link](https://www.panafricafootball.com/post/morocco-sofyan-amrabat-afcon-2025/)
+- **Mazraoui: I can handle the pressure**: [Link](https://www.manutd.com/en/news/detail/noussair-mazraoui-expects-morocco-to-live-up-to-top-billing-in-afcon)
+
+
+### match today (N/A, Sun, 21 Dec 2025 11:30:00 -0800)
+
+- **Atletico go third with comfortable win at Girona**: [Link](https://www.besoccer.com/new/atletico-go-third-with-comfortable-win-at-girona-1386783)
+- **Takeaways: Atlético show promising signs in final game of 2025**: [Link](https://www.intothecalderon.com/atletico-madrid-columns/20076/takeaways-girona-atletico-madrid-la-liga-champions-league-simeone-griezmann-alvarez-koke-marcos-llorente)
+- **Simeone: We Delivered a Complete Match, and the Most Important Thing is Helping the Team**: [Link](https://www.ysscores.com/en/news/13876144/Simeone:-We-Delivered-a-Complete-Match,-and-the-Most-Important-Thing-is-Helping-the-Team)
+
+
+### marokko – komoren (N/A, Sun, 21 Dec 2025 11:30:00 -0800)
+
+- **Marokko vs. Komoren heute im Live Stream und im TV: Wer zeigt / überträgt den Afrika Cup live?**: [Link](https://www.goal.com/de/meldungen/marokko-komoren-heute-live-stream-tv-wer-zeigt-uebertraegt-afrika-cup-live/blt810255964783dc7b)
+- **(k+) Viel Geld und eine königliche Akademie: Die Hintergründe zu Marokkos Aufschwung**: [Link](https://www.kicker.at/viel-geld-und-eine-koenigliche-akademie-die-hintergruende-zu-marokkos-aufschwung-1175033/artikel)
+- **Afrika-Cup 2025: Spielplan, Übertragung, Infos**: [Link](https://sport.sky.de/fussball/artikel/afrika-cup-live-spielplan-uebertragung-infos/13044623/34942)
+
+
 ### morocco match today (N/A, Sun, 21 Dec 2025 11:20:00 -0800)
 
 - **Morocco’s Arab Cup triumph ignites nationwide celebration ahead of AFCON kick-off**: [Link](https://www.cafonline.com/news/morocco-s-arab-cup-triumph-ignites-nationwide-celebration-ahead-of-afcon-kick-off/)
