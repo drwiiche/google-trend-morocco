@@ -1,3 +1,17 @@
+### villarreal – barcelone (N/A, Sun, 21 Dec 2025 06:40:00 -0800)
+
+- **Villarreal midfielder insists Barcelona will fall - 'At some point they will lose and it will be today'**: [Link](https://barcauniversal.com/villarreal-midfielder-insists-barcelona-will-fall-at-some-point-they-will-lose-and-it-will-be-today/)
+- **Villarreal's clean-sheet specialists meet Barcelona's perfect scorers**: [Link](https://www.besoccer.com/new/villarreal-s-clean-sheet-specialists-meet-barcelona-s-perfect-scorers-1386018)
+- **LIVE: Villarreal vs Barcelona – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2025/12/21/live-villarreal-vs-barcelona-la-liga?update=4188053)
+
+
+### tnt (N/A, Sun, 21 Dec 2025 05:40:00 -0800)
+
+- **How to watch holiday movies & sitcoms on TNT and TBS with Sling**: [Link](https://www.usatoday.com/story/shopping/2025/12/19/how-to-watch-tnt-tbs-holiday-programming-on-sling/87828783007/)
+- **TV Tinsel: 'Tis the season for Christmas favorites**: [Link](https://www.dailygazette.com/tribune/tv-tinsel-tis-the-season-for-christmas-favorites/article_850a73f3-f574-5674-9945-1d935a22680e.html)
+- **‘Tis the season to binge-watch Christmas movies — here’s how to on Sling TV**: [Link](https://www.sfgate.com/shopping/article/how-to-stream-christmas-movies-sling-tv-21195759.php)
+
+
 ### iptv (N/A, Sun, 21 Dec 2025 06:20:00 -0800)
 
 - **Internet Protocol Television Market Set for Rapid Expansion as Streaming Demand Accelerates Worldwide**: [Link](https://industrytoday.co.uk/it/internet-protocol-television-market-set-for-rapid-expansion-as-streaming-demand-accelerates-worldwide)
