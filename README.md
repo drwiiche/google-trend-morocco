@@ -1,3 +1,22 @@
+### بت مباشر (N/A, Sun, 21 Dec 2025 11:10:00 -0800)
+
+
+
+
+### بي ان سبورت (N/A, Sun, 21 Dec 2025 11:10:00 -0800)
+
+- **ما هو تردد قناة بي إن سبورت المفتوحة لمشاهدة مباريات كأس العرب حصريًا ومجانًا**: [Link](https://aboutmsr.com/%D9%85%D8%A7-%D9%87%D9%88-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D9%84%D9%85%D8%B4/)
+- **بدون تشفير ؟ حقيقة بث مباريات المنتخبات العربية على ”بي إن سبورت المفتوحة” مجانًا**: [Link](https://www.sabaharabi.com/693427)
+- **هتشوف الماتش بجودة Hd.. تردد قناة beIN Sports على نايل سات وعرب سات بجودة HD وتابع مباراة المغرب وجزر القمر**: [Link](https://ghorbanews.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-2/)
+
+
+### sir (N/A, Sun, 21 Dec 2025 11:10:00 -0800)
+
+- **Sir Alec Reed obituary**: [Link](https://www.theguardian.com/business/2025/dec/21/sir-alec-reed-obituary)
+- **Sir Alec Reed, founder of Reed Employment and philanthropist behind The Big Give and other projects**: [Link](https://www.telegraph.co.uk/obituaries/2025/12/17/sir-alec-reed-employment-charity-business-the-big-give/)
+- **School calendar goes haywire, SIR work may delay exam results**: [Link](https://timesofindia.indiatimes.com/city/kolkata/school-calendar-goes-haywire-sir-work-may-delay-exam-results/articleshow/126108483.cms)
+
+
 ### sports (N/A, Sun, 21 Dec 2025 11:00:00 -0800)
 
 - **CFP first-round takeaways: Miami's run game, special teams woes and blowouts**: [Link](https://www.espn.com/college-football/story/_/id/47362658/college-football-playoff-2025-first-round-takeaways-every-game)
