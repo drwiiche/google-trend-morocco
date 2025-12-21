@@ -1,3 +1,10 @@
+### diaz (N/A, Sun, 21 Dec 2025 12:20:00 -0800)
+
+- **Heidenheim 0-4 Bayern (Dec 21, 2025) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/746846)
+- **Vincent Kompany speaks on the second half of Bayern Munich’s season**: [Link](https://www.bavarianfootballworks.com/bayern-munich-coaches/155428/vincent-kompany-speaks-on-the-second-half-of-bayern-munichs-season)
+- **Bayern thrash Heidenheim to end year on a high**: [Link](https://www.bbc.com/sport/football/live/c3d0le93e80t)
+
+
 ### كوورة (N/A, Sun, 21 Dec 2025 12:00:00 -0800)
 
 - **أكادير.. اختتام دوري "كوراكان" في كرة القدم السباعية بمشاركة 10 دول إفريقية**: [Link](https://machahid.info/360341.html)
