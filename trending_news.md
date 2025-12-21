@@ -1,3 +1,17 @@
+### نشرة إنذارية (N/A, Sat, 20 Dec 2025 22:40:00 -0800)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-40-1674378.html)
+- **استمرار الوضعية الجوية غير المستقرة.. يوعابد: ناتجة عن تمركز منخفضات جوية نشطة في عرض المحيط الأطلسي**: [Link](https://ar.telquel.ma/%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D9%88%D8%B6%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%BA%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%82%D8%B1%D8%A9-%D9%8A/)
+- **الثلوج تغطي أزيد من 54 ألف كيلومتر مربع بالمغرب**: [Link](https://satv.ma/%D8%A7%D9%84%D8%AB%D9%84%D9%88%D8%AC-%D8%AA%D8%BA%D8%B7%D9%8A-%D8%A3%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-54-%D8%A3%D9%84%D9%81-%D9%83%D9%8A%D9%84%D9%88%D9%85%D8%AA%D8%B1-%D9%85%D8%B1%D8%A8%D8%B9-%D8%A8.html)
+
+
+### alerte météo maroc (N/A, Sat, 20 Dec 2025 21:00:00 -0800)
+
+- **Par ville, voici les hauteurs de pluies enregistrées au cours des dernières 24 heures**: [Link](https://medias24.com/2025/12/20/par-ville-voici-les-hauteurs-de-pluies-enregistrees-au-cours-des-dernieres-24-heures-1600151/)
+- **Neige, pluies intenses et froid glacial : la météo se dégrade dès ce week-end**: [Link](https://www.leconomiste.com/flash-infos/neige-pluies-intenses-et-froid-glacial-la-meteo-se-degrade-des-ce-week-end/)
+- **Midelt: images impressionnantes des opérations de déneigement**: [Link](https://fr.le360.ma/societe/midelt-images-impressionnantes-des-operations-de-deneigement_HOB7VZLVBRBWTPVBGRZCXR4TRM/)
+
+
 ### real madrid vs (N/A, Sat, 20 Dec 2025 12:40:00 -0800)
 
 - **Un récord entre pitos**: [Link](https://as.com/futbol/primera/un-record-entre-pitos-f202512-n/)
