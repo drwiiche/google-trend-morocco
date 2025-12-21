@@ -1,3 +1,10 @@
+### algerie can (N/A, Sun, 21 Dec 2025 13:30:00 -0800)
+
+- **CAN 2025 : Les Verts débarquent à Rabat - Sports**: [Link](https://www.lesoirdalgerie.com/sports/les-verts-debarquent-a-rabat-144446)
+- **CAN 2025: "On démarre un nouveau cycle", Mehdi Tahrat espère un retour de l’Algérie au premier plan**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-on-demarre-un-nouveau-cycle-mehdi-tahrat-espere-un-retour-de-l-algerie-au-premier-plan_AN-202512200020.html)
+- **CAN 2025: arrivée de la délégation algérienne à Rabat**: [Link](https://sport.le360.ma/football/can/can-2025-arrivee-de-la-delegation-algerienne-a-rabat_KOKGPME5FRHJRFBTU2KCNZ66AA/)
+
+
 ### الفنانة سمية الألفي (N/A, Sun, 21 Dec 2025 13:40:00 -0800)
 
 - **قبل وفاتها بأيام.. سمية الألفي "ودعت" نجلها في موقع التصوير**: [Link](https://www.alarabiya.net/culture-and-art/2025/12/20/%D9%88%D8%AF%D8%B9%D8%AA-%D9%86%D8%AC%D9%84%D9%87%D8%A7-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%A7%D8%AE%D9%8A%D8%B1-%D9%84%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%84%D9%81%D9%8A-%D8%A8%D8%A7%D8%B3%D8%AA%D9%88%D8%AF%D9%8A%D9%88-%D8%AA%D8%B5%D9%88%D9%8A%D8%B1-%D8%B3%D9%81%D8%A7%D8%AD-%D8%A7%D9%84%D8%AA%D8%AC%D9%85%D8%B9)
