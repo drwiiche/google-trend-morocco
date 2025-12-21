@@ -1,3 +1,17 @@
+### كوورة (N/A, Sun, 21 Dec 2025 12:00:00 -0800)
+
+- **أكادير.. اختتام دوري "كوراكان" في كرة القدم السباعية بمشاركة 10 دول إفريقية**: [Link](https://machahid.info/360341.html)
+- **أكادير.. المنتخب المغربي الجامعي يفوز بكأس إفريقيا الجامعية لكرة القدم في إطار الأنشطة الموازية لمنافسات الكان (بالصور)**: [Link](https://agadirinfo.ma/127541.html)
+- **بحضور والي جهة سوس ماسة.. المنتخب المغربي يتوج بلقب بطولة إفريقيا للأمم للطلبة في نسختها العشرين**: [Link](https://agadir24.info/%D8%A8%D8%AD%D8%B6%D9%88%D8%B1-%D9%88%D8%A7%D9%84%D9%8A-%D8%AC%D9%87%D8%A9-%D8%B3%D9%88%D8%B3-%D9%85%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8.html)
+
+
+### luka dončić (N/A, Sun, 21 Dec 2025 12:00:00 -0800)
+
+- **Luka Doncic exits Lakers loss with leg injury**: [Link](https://apnews.com/article/luka-doncic-hurt-lakers-03b8050cc7b45d4866b3fc66a22b1a4c)
+- **Doncic and Zubac hurt during LA clash, Jokic surrenders to Rockets**: [Link](https://www.eurohoops.net/en/nba-news/1910031/luka-doncic-left-leg-contusion-los-angeles-lakers-nba/)
+- **LeBron James: Lakers Need To Be Ready For Challenge Of Missing Key Players To Injury**: [Link](https://lakersnation.com/lebron-james-lakers-need-to-be-ready-for-challenge-of-missing-key-players-to-injury/)
+
+
 ### boufal (N/A, Sun, 21 Dec 2025 11:40:00 -0800)
 
 - **La fin pour Sofiane Boufal à l’Union ? « Il ne jouera plus en 2025 pour des raisons privées »**: [Link](https://www.lesoir.be/717867/article/2025-12-19/la-fin-pour-sofiane-boufal-lunion-il-ne-jouera-plus-en-2025-pour-des-raisons)
