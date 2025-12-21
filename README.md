@@ -1,3 +1,15 @@
+### yalla kora (N/A, Sun, 21 Dec 2025 10:40:00 -0800)
+
+- **أقطاي عبدالله**: [Link](https://www.yallakora.com/egyptian-league-cup/3012/player/82331/%D8%A3%D9%82%D8%B7%D8%A7%D9%8A-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D9%87)
+
+
+### بين سبورت (N/A, Sun, 21 Dec 2025 10:40:00 -0800)
+
+- **ما هو تردد قناة بي إن سبورت المفتوحة لمشاهدة مباريات كأس العرب حصريًا ومجانًا**: [Link](https://aboutmsr.com/%D9%85%D8%A7-%D9%87%D9%88-%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D9%84%D9%85%D8%B4/)
+- **بدون تشفير ؟ حقيقة بث مباريات المنتخبات العربية على ”بي إن سبورت المفتوحة” مجانًا**: [Link](https://www.sabaharabi.com/693427)
+- **هتشوف الماتش بجودة Hd.. تردد قناة beIN Sports على نايل سات وعرب سات بجودة HD وتابع مباراة المغرب وجزر القمر**: [Link](https://ghorbanews.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-bein-sports-2/)
+
+
 ### marruecos - comoras (N/A, Sun, 21 Dec 2025 10:30:00 -0800)
 
 - **Marruecos agita África**: [Link](https://as.com/futbol/internacional/marruecos-agita-africa-f202512-n/)
