@@ -1,3 +1,10 @@
+### salah (N/A, Mon, 22 Dec 2025 13:40:00 -0800)
+
+- **Salah in isolation**: [Link](https://africasacountry.com/2025/12/salah-in-isolation)
+- **Egypts head coach addresses Mohamed Salahs future and form**: [Link](https://www.geosuper.tv/latest/51658-egypts-head-coach-addresses-mohamed-salahs-future-and-form)
+- **Mo Salah: Why the AFCON will define the Egypt and Liverpool forward's legacy across Africa**: [Link](https://www.skysports.com/football/news/11095/13486598/mo-salah-why-the-afcon-will-define-the-egypt-and-liverpool-forwards-legacy-across-africa)
+
+
 ### يلا كورة (N/A, Mon, 22 Dec 2025 12:40:00 -0800)
 
 - **حقيقة الوضعية الصحية لسايس وأكرد**: [Link](https://www.hespress.com/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D9%88%D8%B6%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D8%B3%D8%A7%D9%8A%D8%B3-%D9%88%D8%A3%D9%83%D8%B1%D8%AF-1675258.html)
