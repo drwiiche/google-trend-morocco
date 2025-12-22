@@ -1,3 +1,10 @@
+### egypte foot (N/A, Mon, 22 Dec 2025 11:00:00 -0800)
+
+- **DIRECT. CAN 2025. Egypte-Zimbabwe: suivez le match du groupe B de la Coupe d’Afrique des nations en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-can-2025-egypte-zimbabwe-suivez-le-match-du-groupe-b-de-la-coupe-d-afrique-des-nations-en-live_LS-202512220610.html)
+- **L’Égypte, la référence éternelle de la Coupe d’Afrique des Nations**: [Link](https://www.cafonline.com/fr/can2025/infos/l-egypte-la-reference-eternelle-de-la-coupe-d-afrique-des-nations/)
+- **CAN 2025 : l’Égypte met déjà Mohamed Salah sous pression totale**: [Link](https://www.footmercato.net/a5488137005772390913-can-2025-legypte-met-deja-mohamed-salah-sous-pression-totale)
+
+
 ### جنوب افريقيا (N/A, Mon, 22 Dec 2025 09:50:00 -0800)
 
 - **منتخب جنوب إفريقيا يستهل مشواره القارّي بملاقاة نظيره منتخب أنغولا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D8%A7%D9%84%D9%82%D8%A7%D8%B1-%D9%8A-%D8%A8%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-2025-12-22)
