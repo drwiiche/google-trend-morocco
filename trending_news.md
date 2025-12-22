@@ -1,3 +1,24 @@
+### égypte – zimbabwe (N/A, Mon, 22 Dec 2025 11:20:00 -0800)
+
+- **DIRECT. CAN 2025. Egypte-Zimbabwe: suivez le match du groupe B de la Coupe d’Afrique des nations en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-can-2025-egypte-zimbabwe-suivez-le-match-du-groupe-b-de-la-coupe-d-afrique-des-nations-en-live_LS-202512220610.html)
+- **L’Égypte, la référence éternelle de la Coupe d’Afrique des Nations**: [Link](https://www.cafonline.com/fr/can2025/infos/l-egypte-la-reference-eternelle-de-la-coupe-d-afrique-des-nations/)
+- **CAN 2025 : l’Égypte met déjà Mohamed Salah sous pression totale**: [Link](https://www.footmercato.net/a5488137005772390913-can-2025-legypte-met-deja-mohamed-salah-sous-pression-totale)
+
+
+### fulham – nottm forest (N/A, Mon, 22 Dec 2025 11:20:00 -0800)
+
+- **Fulham v Nottingham Forest: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/22/fulham-v-nottingham-forest-premier-league-live)
+- **From the Press Box: Silva says everyone on same page ahead of window**: [Link](https://www.fulhamish.co.uk/p/from-the-press-box-silva-says-everyone)
+- **Alan joins Dore on Tour to preview Forest**: [Link](https://hammyend.com/index.php/2025/12/alan-joins-dore-on-tour-to-preview-forest/)
+
+
+### napoli (N/A, Mon, 22 Dec 2025 11:20:00 -0800)
+
+- **Napoli-Bologna | ✅ UFFICIALI: la scelta su Buongiorno, Elmas, Castro e Moro**: [Link](https://onefootball.com/en/news/napoli-bologna-ufficiali-la-scelta-su-buongiorno-elmas-castro-e-moro-42132588)
+- **Supercoppa, da Bologna a Riad: la finale che chiude il cerchio!**: [Link](https://www.diretta.it/news/calcio-supercoppa-supercoppa-napoli-bologna-a-riad-si-chiude-il-cerchio-aperto-il-9-novembre-al-dall-ara/E9qaSgce/)
+- **IL PARERE - Guardasole: "Il Napoli ha recuperato energie mentali, non solo fisiche"**: [Link](https://www.napolimagazine.com/calcio/articolo/il-parere-guardasole-il-napoli-ha-recuperato-energie-mentali-non-solo-fisiche-22-12-2025)
+
+
 ### egypte foot (N/A, Mon, 22 Dec 2025 11:00:00 -0800)
 
 - **DIRECT. CAN 2025. Egypte-Zimbabwe: suivez le match du groupe B de la Coupe d’Afrique des nations en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-can-2025-egypte-zimbabwe-suivez-le-match-du-groupe-b-de-la-coupe-d-afrique-des-nations-en-live_LS-202512220610.html)
