@@ -1,3 +1,24 @@
+### مروان الشماخ (N/A, Mon, 22 Dec 2025 14:30:00 -0800)
+
+- **دروس الكان: انتصار مغربي تحت الشبهات.. تأثير حكيمي.. والركراكي يصحح الخطأ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AF%D8%B1%D9%88%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B4%D8%A8%D9%87%D8%A7%D8%AA--%D8%AA%D8%A7%D9%94%D8%AB%D9%8A%D8%B1-%D8%AD%D9%83%D9%8A%D9%85%D9%8A--%D9%88%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B5%D8%AD%D8%AD-%D8%A7%D9%84%D8%AE%D8%B7%D8%A7%D9%94/blt8bb84f6f84db4656)
+- **شاهد.. أيوب الكعبي يبهر الجماهير بهدفه في مرمى جزر القمر**: [Link](https://www.aljazeera.net/sport/2025/12/22/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D9%8A%D8%A8%D9%87%D8%B1-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A8%D9%87%D8%AF%D9%81%D9%87)
+- **حقيقة الوضعية الصحية لسايس وأكرد**: [Link](https://www.hespress.com/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D9%88%D8%B6%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D8%B3%D8%A7%D9%8A%D8%B3-%D9%88%D8%A3%D9%83%D8%B1%D8%AF-1675258.html)
+
+
+### athletic - rcd espanyol (N/A, Mon, 22 Dec 2025 14:30:00 -0800)
+
+- **Athletic Club 1 - 2 Espanyol: resumen, resultado y goles**: [Link](https://as.com/futbol/primera/athletic-club-espanyol-en-directo-laliga-ea-sports-hoy-en-vivo-f202512-d/)
+- **Mal sabor de boca para terminar el año**: [Link](https://radiopopular.com/2025/12/mal-sabor-de-boca-para-terminar-el-ano)
+- **Olentzero y Mari Domingi traen carbón a un Athletic que ve cómo le remonta el Espanyol (1-2)**: [Link](https://www.naiz.eus/eu/info/noticia/20251222/olentzero-y-mari-domingi-traen-carbon-a-un-athletic-que-ve-como-le-remonta-el-espanyol-1-2)
+
+
+### عبد القادر التونسي (N/A, Mon, 22 Dec 2025 12:00:00 -0800)
+
+- **الملك يعزي أسرة البروفيسور التونسي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B9%D8%B2%D9%8A-%D8%A3%D8%B3%D8%B1%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%88%D9%81%D9%8A%D8%B3%D9%88%D8%B1-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A-1675227.html)
+- **وفاة البروفسور عبد القادر التونسي.. من يكون «رائد الجراحة» الذي وصفه الملك بـ«الطبيب المرموق»؟**: [Link](https://ar.le360.ma/societe/CXRSP7J5QVH37OKRTILM75LHYU/)
+- **تعزية من مجموعة محبي البروفيسور عبد القادر تونسي**: [Link](https://sabahagadir.ma/424423.html)
+
+
 ### نتائج مباريات اليوم (N/A, Mon, 22 Dec 2025 14:00:00 -0800)
 
 - **جدول مباريات اليوم الثلاثاء 23 ديسمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-23-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt62deae745656fad4)
