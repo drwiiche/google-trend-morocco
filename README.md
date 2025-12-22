@@ -1,3 +1,17 @@
+### angola (N/A, Mon, 22 Dec 2025 08:30:00 -0800)
+
+- **Angola x África do Sul, AFCON 2025 ao vivo: Quando e onde assistir ANG x ZAF na Copa das Nações Africanas?**: [Link](https://aeroagora.com.br/desporto/angola-x-africa-do-sul-afcon-2025-ao-vivo-quando-e-onde-assistir-ang-x-zaf-na-copa-das-nacoes-africanas/28578/)
+- **Jonathan Buatu: «Vamos lutar pelos três pontos frente à África do Sul»**: [Link](https://www.rfi.fr/pt/%C3%A1frica-lus%C3%B3fona/20251222-jonathan-buatu-vamos-lutar-pelos-tr%C3%AAs-pontos-frente-%C3%A0-%C3%A1frica-do-sul)
+- **Palpites África do Sul x Angola – Copa Africana de Nações**: [Link](https://trivela.com.br/apostas/palpites-de-futebol/africa-do-sul-x-angola/)
+
+
+### caf matches (N/A, Mon, 22 Dec 2025 08:10:00 -0800)
+
+- **MATCH STATS: Algeria vs Sudan – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-sudan-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
+- **2025 AFCON: The goal is not just to participate but to fight for the trophy- Kwesi Appiah**: [Link](https://cedirates.com/news/2025-afcon-the-goal-is-not-just-to-participate-but-to-fight-for-the-trophy--kwesi-appiah/)
+- **Preview: Algeria vs. Sudan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/algeria/africa-cup-of-nations/preview/algeria-vs-sudan-prediction-team-news-lineups_588286.html)
+
+
 ### south africa vs angola (N/A, Mon, 22 Dec 2025 08:30:00 -0800)
 
 - **South Africa vs Angola: AFCON 2025 group Opener Could Make or Break Dreams**: [Link](https://www.cafonline.com/afcon2025/news/south-africa-vs-angola-afcon-2025-group-opener-could-make-or-break-dreams/)
