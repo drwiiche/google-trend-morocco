@@ -1,3 +1,10 @@
+### al sharjah – al-hilal (N/A, Mon, 22 Dec 2025 07:20:00 -0800)
+
+- **Inzaghi and Al-Malki talk ahead of the game against Sharjah in ACLElite Champions League**: [Link](https://alhilal.com/en/news/inzaghi-and-al-malki-talk-ahead-of-the-game-against-sharjah-in-aclelite)
+- **Sharjah FC vs. Al-Hilal - AFC Champions League East - Football**: [Link](https://www.sportsmole.co.uk/football/afc-champions-league/al-sharjah-vs-al-hilal_game_235576.html)
+- **Inzaghi Issues a Clear Warning and Adds a Surprising Touch to Al Hilal’s Lineup**: [Link](https://www.ysscores.com/en/news/13876180/Inzaghi-Issues-a-Clear-Warning-and-Adds-a-Surprising-Touch-to-Al-Hilal%E2%80%99s-Lineup)
+
+
 ### cafonline (N/A, Mon, 22 Dec 2025 06:50:00 -0800)
 
 - **CAF launches exciting new African Nations League and guarantees that CAF will host, every year, a world class Senior National Team Competition in which the best African players will participate.**: [Link](https://www.cafonline.com/inside-caf/news/caf-launches-exciting-new-african-nations-league-and-guarantees-that-caf-will-host-every-year-a-world-class-senior-national-team-competition-in-which-the-best-african-players-will-participate/)
