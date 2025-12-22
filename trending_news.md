@@ -1,3 +1,17 @@
+### venezuela (N/A, Mon, 22 Dec 2025 09:10:00 -0800)
+
+- **What We Know About U.S. Interceptions of Oil Tankers in Venezuela**: [Link](https://www.nytimes.com/2025/12/22/us/politics/trump-oil-tankers-venezuela.html)
+- **Oil loading in Venezuela slows, more ships make U-turns after new US interceptions**: [Link](https://www.reuters.com/business/energy/oil-loading-venezuela-slows-more-ships-make-u-turns-after-new-us-interceptions-2025-12-22/)
+- **December 21, 2025 — Trump administration and Epstein files release news**: [Link](https://edition.cnn.com/politics/live-news/trump-epstein-news-12-21-25)
+
+
+### egypte (N/A, Mon, 22 Dec 2025 08:50:00 -0800)
+
+- **Egypte sluit nieuw olie- en gasexploratiecontract met het Britse Terra Petroleum**: [Link](https://nl.marketscreener.com/beursnieuws/egypte-sluit-nieuw-olie-en-gasexploratiecontract-met-het-britse-terra-petroleum-ce7d50d2d189f127)
+- **Afrika Cup - Tom Saintfiet blijft in opener met Mali in extremis op gelijkspel steken tegen Zambia**: [Link](https://starsporttv.be/content/afrika-cup-tom-saintfiet-blijft-in-opener-met-mali-in-extremis-op-gelijkspel-steken-tegen-zambia)
+- **Mali met invaller Diarra geeft zege op Zambia laat uit handen**: [Link](https://onefootball.com/de/news/mali-met-invaller-diarra-geeft-zege-op-zambia-laat-uit-handen-42132161)
+
+
 ### جنوب أفريقيا ضد أنغولا (N/A, Mon, 22 Dec 2025 09:10:00 -0800)
 
 - **رقم قياسي لبروس في "كان المغرب"**: [Link](https://www.hespress.com/%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D9%84%D8%A8%D8%B1%D9%88%D8%B3-%D9%81%D9%8A-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1674743.html)
