@@ -1,3 +1,10 @@
+### يلا كورة (N/A, Mon, 22 Dec 2025 12:40:00 -0800)
+
+- **حقيقة الوضعية الصحية لسايس وأكرد**: [Link](https://www.hespress.com/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D9%88%D8%B6%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D8%B3%D8%A7%D9%8A%D8%B3-%D9%88%D8%A3%D9%83%D8%B1%D8%AF-1675258.html)
+- **دروس الكان: انتصار مغربي تحت الشبهات.. تأثير حكيمي.. والركراكي يصحح الخطأ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AF%D8%B1%D9%88%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B4%D8%A8%D9%87%D8%A7%D8%AA--%D8%AA%D8%A7%D9%94%D8%AB%D9%8A%D8%B1-%D8%AD%D9%83%D9%8A%D9%85%D9%8A--%D9%88%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B5%D8%AD%D8%AD-%D8%A7%D9%84%D8%AE%D8%B7%D8%A7%D9%94/blt8bb84f6f84db4656)
+- **شاهد.. أيوب الكعبي يبهر الجماهير بهدفه في مرمى جزر القمر**: [Link](https://www.aljazeera.net/sport/2025/12/22/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D9%8A%D8%A8%D9%87%D8%B1-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A8%D9%87%D8%AF%D9%81%D9%87)
+
+
 ### benfica – famalicão (N/A, Mon, 22 Dec 2025 12:50:00 -0800)
 
 - **Prestianni titular: confira o onze do Benfica contra o Famalicão**: [Link](https://sapo.pt/artigo/prestianni-titular-confira-o-onze-do-benfica-contra-o-famalicao-69499ff12c7b75270a67791d)
