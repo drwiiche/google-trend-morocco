@@ -1,3 +1,17 @@
+### كأس إفريقيا 2025 (N/A, Mon, 22 Dec 2025 09:40:00 -0800)
+
+- **شاهد أجمل لحظات حفل افتتاح أمم أفريقيا 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AD%D9%81%D9%84-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **ولي العهد الأمير مولاي الحسن يخطف الأنظار في حفل افتتاح نهائيات "الكان"**: [Link](https://www.hespress.com/%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B9%D9%87%D8%AF-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1-%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%A7%D9%84%D8%AD%D8%B3%D9%86-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D9%86-1674827.html)
+- **سفير أمريكا يثني على افتتاح "الكان"**: [Link](https://www.hesport.com/%D8%B3%D9%81%D9%8A%D8%B1-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D9%8A%D8%AB%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D9%83%D8%A7%D9%86-418968.html)
+
+
+### south africa (N/A, Mon, 22 Dec 2025 09:20:00 -0800)
+
+- **Bekkersdal shooting: Gunmen kill nine in South Africa tavern attack**: [Link](https://www.bbc.com/news/articles/c79xyxdpzrxo)
+- **Nine killed, 10 injured in South Africa shooting, police hunt for suspects**: [Link](https://www.reuters.com/world/africa/10-killed-shooting-johannesburg-south-africa-sabc-news-says-2025-12-21/)
+- **Gunmen kill nine in Johannesburg township in South Africa’s second mass shooting within weeks**: [Link](https://www.theguardian.com/world/2025/dec/21/gunmen-kill-10-in-johannesburg-township-in-south-africas-second-mass-shooting-within-weeks)
+
+
 ### venezuela (N/A, Mon, 22 Dec 2025 09:10:00 -0800)
 
 - **What We Know About U.S. Interceptions of Oil Tankers in Venezuela**: [Link](https://www.nytimes.com/2025/12/22/us/politics/trump-oil-tankers-venezuela.html)
