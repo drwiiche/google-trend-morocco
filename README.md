@@ -1,3 +1,10 @@
+### كأس أمم افريقيا (N/A, Mon, 22 Dec 2025 10:50:00 -0800)
+
+- **جنوب إفريقيا تحقق فوزاً صعباً على أنغولا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D8%B5%D8%B9%D8%A8%D8%A7-%D8%B9%D9%84%D9%89-%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-2025-12-22)
+- **مجموعة مصر: جنوب أفريقيا تنهي صمود أنجولا بهدف متأخر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D9%85%D8%B5%D8%B1-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%86%D9%87%D9%8A-%D8%B5%D9%85%D9%88%D8%AF-%D8%A7%D9%94%D9%86%D8%AC%D9%88%D9%84%D8%A7-%D8%A8%D9%87%D8%AF%D9%81-%D9%85%D8%AA%D8%A7%D9%94%D8%AE%D8%B1/bltfdb478acebe4022b)
+- **رقم قياسي لبروس في "كان المغرب"**: [Link](https://www.hespress.com/%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D9%84%D8%A8%D8%B1%D9%88%D8%B3-%D9%81%D9%8A-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1674743.html)
+
+
 ### napoli vs bologna (N/A, Mon, 22 Dec 2025 11:50:00 -0800)
 
 - **Tonight is the Italian Super Cup final, a good opportunity for Rrahmani to end the year with a trophy**: [Link](https://indeksonline.net/en/Tonight-is-the-Italian-Super-Cup-final--a-good-opportunity-for-Rrahman-to-end-the-year-with-a-trophy./)
