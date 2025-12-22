@@ -1,3 +1,10 @@
+### cafonline (N/A, Mon, 22 Dec 2025 06:50:00 -0800)
+
+- **CAF launches exciting new African Nations League and guarantees that CAF will host, every year, a world class Senior National Team Competition in which the best African players will participate.**: [Link](https://www.cafonline.com/inside-caf/news/caf-launches-exciting-new-african-nations-league-and-guarantees-that-caf-will-host-every-year-a-world-class-senior-national-team-competition-in-which-the-best-african-players-will-participate/)
+- **AFCON to switch to four-year cycle**: [Link](https://www.ghanabusinessnews.com/2025/12/22/afcon-to-switch-to-four-year-cycle/)
+- **AFCON CAF President Dr Patrice Motsepe announces 43% increase in Prize Money**: [Link](https://en.africatopsports.com/2025/12/21/caf-president-dr-patrice-motsepe-announces-43-increase-in-prize-money/)
+
+
 ### مباراة مصر اليوم (N/A, Mon, 22 Dec 2025 06:10:00 -0800)
 
 - **مواجهة مرتقبة بين المنتخب المصري ونظيره منتخب زيمبابوي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%88%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A-2025-12-22)
