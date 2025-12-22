@@ -1,3 +1,10 @@
+### hakim ziyech (N/A, Sun, 21 Dec 2025 22:30:00 -0800)
+
+- **Ziyech Calls for Unified Moroccan Support Ahead of AFCON**: [Link](https://m.elbotola.com/en/article/2025-12-20-20-45-851.html)
+- **AFCON AFCON2025:Ziyech Calls for National Unity Ahead of Major Tournament**: [Link](https://en.africatopsports.com/2025/12/21/afcon2025ziyech-calls-for-national-unity-ahead-of-major-tournament/)
+- **Ighaman: 'My Health is Gradually Improving, We Will Only Accept Victory Tomorrow'**: [Link](https://m.elbotola.com/en/article/2025-12-20-18-30-70.html)
+
+
 ### التاريخ الهجري اليوم (N/A, Mon, 22 Dec 2025 00:10:00 -0800)
 
 - **فلكيًا.. موعد أول ايام شهر رجب 1447 هـ وبداية رمضان 2026 في مصر**: [Link](https://www.almasryalyoum.com/news/details/4150944)
