@@ -1,3 +1,17 @@
+### napoli vs bologna (N/A, Mon, 22 Dec 2025 11:50:00 -0800)
+
+- **Tonight is the Italian Super Cup final, a good opportunity for Rrahmani to end the year with a trophy**: [Link](https://indeksonline.net/en/Tonight-is-the-Italian-Super-Cup-final--a-good-opportunity-for-Rrahman-to-end-the-year-with-a-trophy./)
+- **Manna: ‘Napoli respect Bologna, but Lucca has to step up a gear’**: [Link](https://football-italia.net/manna-napoli-respect-bologna-lucca-step-up/)
+- **Conte: Reaching the Final Is Nice but Winners Are Remembered**: [Link](https://zamin.uz/en/sport/178047-conte-reaching-the-final-is-nice-but-winners-are-remembered.html)
+
+
+### مصر ضد زيمبابوي (N/A, Mon, 22 Dec 2025 11:00:00 -0800)
+
+- **مفاجآت في تشكيل منتخب مصر لمواجهة زيمبابوي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%93%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A/bltddce1ace7fe9a25d)
+- **مباشر: المنتخب المصري يواجه زيمبابوي في كأس أمم أفريقيا 2025**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20251222-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025)
+- **هل يقود حسام حسن "الفراعنة" لتحقيق اللقب الثامن؟**: [Link](https://www.aljazeera.net/sport/2025/12/21/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%87%D9%84-%D9%8A%D9%82%D9%88%D8%AF-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86)
+
+
 ### أتلتيك بيلباو ضد إسبانيول (N/A, Mon, 22 Dec 2025 11:40:00 -0800)
 
 - **الشرطة الإسبانية تتأهب لحماية جارسيا من بطش جماهير إسبانيول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AA%D8%A7%D9%94%D9%87%D8%A8-%D9%84%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D8%AC%D8%A7%D8%B1%D8%B3%D9%8A%D8%A7-%D9%85%D9%86-%D8%A8%D8%B7%D8%B4-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84/bltcbc00543d068324c)
