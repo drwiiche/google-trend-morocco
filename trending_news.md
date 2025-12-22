@@ -1,3 +1,10 @@
+### resultat can 2025 (N/A, Mon, 22 Dec 2025 14:40:00 -0800)
+
+- **CAN-2025 (Maroc-Comores) : Les Cœlacanthes reçoivent le soutien de leur Président avant le match d'ouverture**: [Link](https://2m.ma/fr/news/CAN-2025-Maroc-Comores-Les-C%C5%93lacanthes-re%C3%A7oivent-le-soutien-de-20251221)
+- **LA CAN 2025, l'occasion pour le Maroc de montrer qu'il est prêt à accueillir le Mondial (team-manager de la sélection comorienne)**: [Link](https://2m.ma/fr/news/LA-CAN-2025-l-occasion-pour-le-Maroc-de-montrer-qu-il-est-pr%C3%AAt-20251219)
+- **CAN 2025 : Bank Al-Maghrib émet une pièce et un billet commémoratifs**: [Link](https://ledesk.ma/encontinu/can-2025-bank-al-maghrib-emet-une-piece-et-un-billet-commemoratifs/)
+
+
 ### مروان الشماخ (N/A, Mon, 22 Dec 2025 14:30:00 -0800)
 
 - **دروس الكان: انتصار مغربي تحت الشبهات.. تأثير حكيمي.. والركراكي يصحح الخطأ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AF%D8%B1%D9%88%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B4%D8%A8%D9%87%D8%A7%D8%AA--%D8%AA%D8%A7%D9%94%D8%AB%D9%8A%D8%B1-%D8%AD%D9%83%D9%8A%D9%85%D9%8A--%D9%88%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B5%D8%AD%D8%AD-%D8%A7%D9%84%D8%AE%D8%B7%D8%A7%D9%94/blt8bb84f6f84db4656)
