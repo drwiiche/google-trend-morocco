@@ -1,3 +1,10 @@
+### air arabia (N/A, Mon, 22 Dec 2025 02:50:00 -0800)
+
+- **Air Arabia launches daily Sharjah–Prague flights, expanding European network**: [Link](https://www.aviation24.be/airlines/air-arabia/air-arabia-launches-daily-sharjah-prague-flights-expanding-european-network/)
+- **Air Arabia Launches Daily Flights Boosting UAE-Czech Tourism Connectivity: What You Need to Know**: [Link](https://www.travelandtourworld.com/news/article/air-arabia-launches-daily-flights-boosting-uae-czech-tourism-connectivity-what-you-need-to-know/)
+- **You can now fly direct from the UAE to Germany for under Dhs800**: [Link](https://www.timeoutdubai.com/news/air-arabia-munich-new)
+
+
 ### hakim ziyech (N/A, Sun, 21 Dec 2025 22:30:00 -0800)
 
 - **Ziyech Calls for Unified Moroccan Support Ahead of AFCON**: [Link](https://m.elbotola.com/en/article/2025-12-20-20-45-851.html)
