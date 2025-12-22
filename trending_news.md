@@ -1,3 +1,10 @@
+### virement bancaire (N/A, Mon, 22 Dec 2025 03:10:00 -0800)
+
+- **"Impossible d’envoyer de l’argent" : du 25 au 28 décembre vos virements bancaires seront bloqués, voici le plan B pour éviter les galères**: [Link](https://www.aufeminin.com/societe/dossiers/25-au-28-decembre-virements-bancaires-bloques-voici-plan-b-eviter-galeres-2686786.html)
+- **Mauvaise nouvelle en cette période d’étrennes et de 13ème mois : certains virements seront suspendus durant 4 jours cette semaine !**: [Link](https://www.sudinfo.be/id1086833/article/2025-12-22/mauvaise-nouvelle-en-cette-periode-detrennes-et-de-13eme-mois-certains-virements)
+- **Banques : Les virements bancaires bloqués à Noël, dates et solutions**: [Link](https://www.sortiraparis.com/actualites/a-paris/articles/338682-banques-les-virements-bancaires-bloques-a-noel-dates-et-solutions)
+
+
 ### air arabia (N/A, Mon, 22 Dec 2025 02:50:00 -0800)
 
 - **Air Arabia launches daily Sharjah–Prague flights, expanding European network**: [Link](https://www.aviation24.be/airlines/air-arabia/air-arabia-launches-daily-sharjah-prague-flights-expanding-european-network/)
