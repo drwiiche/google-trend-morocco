@@ -1,3 +1,10 @@
+### جنوب افريقيا (N/A, Mon, 22 Dec 2025 09:50:00 -0800)
+
+- **منتخب جنوب إفريقيا يستهل مشواره القارّي بملاقاة نظيره منتخب أنغولا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D8%A7%D9%84%D9%82%D8%A7%D8%B1-%D9%8A-%D8%A8%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-2025-12-22)
+- **رقم قياسي لبروس في "كان المغرب"**: [Link](https://www.hespress.com/%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D9%84%D8%A8%D8%B1%D9%88%D8%B3-%D9%81%D9%8A-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1674743.html)
+- **جنوب إفريقيا – أنغولا: مواجهة مبكرة لتحديد ملامح الطموح**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%A8%D9%83%D8%B1%D8%A9-%D9%84%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%A7%D9%84%D8%B7%D9%85%D9%88%D8%AD/)
+
+
 ### al shorta – al-ahli saudi (N/A, Mon, 22 Dec 2025 10:40:00 -0800)
 
 - **Al-Shorta face defending champions Al-Ahli in Asian Elite showdown in Baghdad**: [Link](https://www.iraqinews.com/sports/al-shorta-vs-al-ahli-asian-elite-baghdad/)
