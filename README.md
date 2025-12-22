@@ -1,3 +1,24 @@
+### benfica – famalicão (N/A, Mon, 22 Dec 2025 12:50:00 -0800)
+
+- **Prestianni titular: confira o onze do Benfica contra o Famalicão**: [Link](https://sapo.pt/artigo/prestianni-titular-confira-o-onze-do-benfica-contra-o-famalicao-69499ff12c7b75270a67791d)
+- **Mourinho surpreende no ataque ao Famalicão**: [Link](https://www.jn.pt/desporto/artigo/mourinho-surpreende-no-ataque-ao-famalicao/18033112)
+- **AO VIVO: Sudakov titular no Benfica e Barreiro fora da ficha, Zabiri e Sorriso regressam no Fama**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-sudakov-titular-no-benfica-e-barreiro-fora-da-ficha-zabiri-e-sorriso-regressam-no-fama/bXPYuSqo/)
+
+
+### athletic club vs espanyol (N/A, Mon, 22 Dec 2025 12:50:00 -0800)
+
+- **🚨 Confirmed XIs: Espanyol and Athletic wrap up the La Liga matchday**: [Link](https://sports.yahoo.com/articles/confirmed-xis-espanyol-athletic-wrap-185800510.html)
+- **Where to Watch Athletic Bilbao vs. Espanyol: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2025/12/21/where-to-watch-athletic-bilbao-vs-espanyol-tv-channel-start-time-and-live-stream-2/)
+- **Espanyol aims for fifth straight La Liga win against Athletic Bilbao**: [Link](https://news.ssbcrack.com/espanyol-aims-for-fifth-straight-la-liga-win-against-athletic-bilbao/)
+
+
+### mohamed salah (N/A, Mon, 22 Dec 2025 12:00:00 -0800)
+
+- **Salah in isolation**: [Link](https://africasacountry.com/2025/12/salah-in-isolation)
+- **Mo Salah: Why the AFCON will define the Egypt and Liverpool forward's legacy across Africa**: [Link](https://www.skysports.com/football/news/11095/13486598/mo-salah-why-the-afcon-will-define-the-egypt-and-liverpool-forwards-legacy-across-africa)
+- **Noise in Liverpool, Focus on Africa: Mohamed Salah arrives laser-focused for AFCON**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/noise-in-liverpool-focus-on-africa-mohamed-salah-arrives-laser-focused-for-afcon-2025-12-21)
+
+
 ### omar marmoush (N/A, Mon, 22 Dec 2025 12:40:00 -0800)
 
 - **Tottenham turn attention to £59m Premier League striker with only one goal this season**: [Link](https://www.spurs-web.com/spurs-news/tottenham-turn-attention-to-59m-premier-league-striker-with-only-one-goal-this-season/)
