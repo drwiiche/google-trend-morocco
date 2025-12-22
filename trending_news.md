@@ -1,3 +1,17 @@
+### egypt vs zimbabwe (N/A, Mon, 22 Dec 2025 04:40:00 -0800)
+
+- **AFCON Daily Live blog: Rolling updates of the day’s action, events and key moments (1)**: [Link](https://www.cafonline.com/afcon2025/news/afcon-daily-live-blog-rolling-updates-of-the-day-s-action-events-and-key-moments-1/)
+- **Record-champions Egypt start hunt for title number eight as Zimbabwe look to make statement**: [Link](https://www.cafonline.com/afcon2025/news/record-champions-egypt-start-hunt-for-title-number-eight-as-zimbabwe-look-to-make-statement/)
+- **Trezeguet: 'Focus on Zimbabwe, Aim to Win Africa Cup'**: [Link](https://m.elbotola.com/en/article/2025-12-21-14-44-331.html)
+
+
+### match can aujourd'hui (N/A, Mon, 22 Dec 2025 00:00:00 -0800)
+
+- **DIRECT. Mali-Zambie: suivez le match du groupe A de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-mali-zambie-suivez-le-match-du-groupe-a-de-la-can-2025-en-live_LS-202512220430.html)
+- **CAN 2025 : le programme des matchs de ce lundi 22 décembre**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matchs-de-ce-lundi-22-decembre-22-12-2025-EEWZIAV4FJGBTN56LXBWJOJG54.php)
+- **Mali, Afrique du Sud, Égypte : les outsiders de la CAN 2025 entrent en piste**: [Link](https://www.france24.com/fr/sports/20251221-mali-afrique-sud-egypte-outsiders-can-2025)
+
+
 ### mali vs zambia (N/A, Mon, 22 Dec 2025 03:50:00 -0800)
 
 - **Mali vs Zambia: Group A Meeting Promises Thrills in Casablanca**: [Link](https://www.cafonline.com/afcon2025/news/mali-vs-zambia-group-a-meeting-promises-thrills-in-casablanca/)
