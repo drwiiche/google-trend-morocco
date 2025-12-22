@@ -1,3 +1,16 @@
+### mali vs zambia (N/A, Mon, 22 Dec 2025 03:50:00 -0800)
+
+- **Mali vs Zambia: Group A Meeting Promises Thrills in Casablanca**: [Link](https://www.cafonline.com/afcon2025/news/mali-vs-zambia-group-a-meeting-promises-thrills-in-casablanca/)
+- **Tottenham player pulled out due to injury – Won’t even make next squad**: [Link](https://sportwitness.co.uk/tottenham-player-pulled-out-due-to-injury-wont-even-make-next-squad/)
+- **Bissouma to miss Mali's AFCON opener**: [Link](https://www.beinsports.com/en-nz/football/africa-cup-of-nations/articles-video/bissouma-to-miss-mali-s-afcon-opener-2025-12-22)
+
+
+### fifa ranking (N/A, Sun, 21 Dec 2025 15:00:00 -0800)
+
+- **FINAL FIFA RANKING: USMNT finishes in 15th place, Spain 1st**: [Link](https://www.frontrowsoccer.com/2025/12/22/final-fifa-ranking-usmnt-finishes-in-15th-place-spain-1st/)
+- **The Russian national team has risen one place in the FIFA ranking in a year**: [Link](https://www.oreanda-news.com/en/fizicheskaya_aktivnost/the-russian-national-team-has-risen-one-place-in-the-fifa-ranking-in-a-year/article1581360/)
+
+
 ### virement bancaire (N/A, Mon, 22 Dec 2025 03:10:00 -0800)
 
 - **"Impossible d’envoyer de l’argent" : du 25 au 28 décembre vos virements bancaires seront bloqués, voici le plan B pour éviter les galères**: [Link](https://www.aufeminin.com/societe/dossiers/25-au-28-decembre-virements-bancaires-bloques-voici-plan-b-eviter-galeres-2686786.html)
