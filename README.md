@@ -1,3 +1,10 @@
+### أتلتيك بيلباو ضد إسبانيول (N/A, Mon, 22 Dec 2025 11:40:00 -0800)
+
+- **الشرطة الإسبانية تتأهب لحماية جارسيا من بطش جماهير إسبانيول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AA%D8%A7%D9%94%D9%87%D8%A8-%D9%84%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D8%AC%D8%A7%D8%B1%D8%B3%D9%8A%D8%A7-%D9%85%D9%86-%D8%A8%D8%B7%D8%B4-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84/bltcbc00543d068324c)
+- **مدرب اسبانيول: لا نفكر في مباراة برشلونة**: [Link](https://hihi2.com/2025/12/22/p3569839.html)
+- **إلقاء فئران محنطة على غارسيا.. تقرير: حالة تأهب أمنية قبل دربي كتالونيا**: [Link](https://www.msn.com/ar-eg/sports/other/%D8%A5%D9%84%D9%82%D8%A7%D8%A1-%D9%81%D8%A6%D8%B1%D8%A7%D9%86-%D9%85%D8%AD%D9%86%D8%B7%D8%A9-%D8%B9%D9%84%D9%89-%D8%BA%D8%A7%D8%B1%D8%B3%D9%8A%D8%A7-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%AD%D8%A7%D9%84%D8%A9-%D8%AA%D8%A3%D9%87%D8%A8-%D8%A3%D9%85%D9%86%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D8%AF%D8%B1%D8%A8%D9%8A-%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A%D8%A7/ar-AA1SLi1R)
+
+
 ### égypte – zimbabwe (N/A, Mon, 22 Dec 2025 11:20:00 -0800)
 
 - **DIRECT. CAN 2025. Egypte-Zimbabwe: suivez le match du groupe B de la Coupe d’Afrique des nations en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-can-2025-egypte-zimbabwe-suivez-le-match-du-groupe-b-de-la-coupe-d-afrique-des-nations-en-live_LS-202512220610.html)
