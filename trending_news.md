@@ -1,3 +1,10 @@
+### egypt (N/A, Mon, 22 Dec 2025 07:30:00 -0800)
+
+- **Egypt's el-Sissi urges UN Security Council reforms for Africa's larger role**: [Link](https://abcnews.go.com/International/wireStory/egypts-el-sissi-urges-security-council-reforms-africas-128582569)
+- **Egypt's el-Sissi urges UN Security Council reforms for Africa's larger role**: [Link](http://www.livingstonenterprise.net/stories/egypts-el-sissi-urges-un-security-council-reforms-for-africas-larger-role,295975)
+- **Egypt's el-Sissi urges UN Security Council reforms for Africa's larger role**: [Link](https://www.thederrick.com/ap/world/egypts-el-sissi-urges-un-security-council-reforms-for-africas-larger-role/article_fc052d4e-2764-5317-b744-9c902dc2bac2.html)
+
+
 ### al sharjah – al-hilal (N/A, Mon, 22 Dec 2025 07:20:00 -0800)
 
 - **Inzaghi and Al-Malki talk ahead of the game against Sharjah in ACLElite Champions League**: [Link](https://alhilal.com/en/news/inzaghi-and-al-malki-talk-ahead-of-the-game-against-sharjah-in-aclelite)
