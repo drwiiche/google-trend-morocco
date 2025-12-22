@@ -1,3 +1,23 @@
+### al shorta – al-ahli saudi (N/A, Mon, 22 Dec 2025 10:40:00 -0800)
+
+- **Al-Shorta face defending champions Al-Ahli in Asian Elite showdown in Baghdad**: [Link](https://www.iraqinews.com/sports/al-shorta-vs-al-ahli-asian-elite-baghdad/)
+- **Al Shorta vs Al Ahli Preview, prediction, lineups, betting tips & odds | AFC Champions League Elite 2025-26**: [Link](https://khelnow.com/football/world-football-al-shorta-vs-al-ahli-preview-202512)
+
+
+### africa cup (N/A, Mon, 22 Dec 2025 10:30:00 -0800)
+
+- **HIGHLIGHTS | Morocco 🆚 Comoros | #TotalEnergiesAFCON2025 - Group A | ملخص مباراة المغرب وجزر القمر**: [Link](https://www.cafonline.com/afcon2025/videos/highlights-morocco-comoros-totalenergiesafcon2025-group-a-%D9%85%D9%84%D8%AE%D8%B5-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1/)
+- **AFCON 2025: Full schedule, results, scores, and standings at CAF Africa Cup of Nations in Morocco**: [Link](https://www.olympics.com/en/news/afcon-2025-schedule-result-scores-standings)
+- **Scotland: Scott McTominay-style finish in perfect start for Morocco**: [Link](https://www.bbc.com/sport/football/articles/cgke6v7mjxmo)
+
+
+### naples – bologne (N/A, Mon, 22 Dec 2025 10:20:00 -0800)
+
+- **Live Naples - Bologne Finale de Supercoupe d'Italie 2025/2026 22/12**: [Link](https://www.footmercato.net/live/1960147802071518471-naples-vs-bologne)
+- **« On a plus d'expérience qu'avant », souligne Vincenzo Italiano (Bologne) avant la finale de la Supercoupe d’Italie**: [Link](https://www.lequipe.fr/Football/Video/Supercoupe-d-italie-on-a-plus-d-experience-qu-avant-souligne-vincenzo-italiano-bologne-avant-la-finale-de-la-supercoupe-d-italie/20222892)
+- **Qui est le gardien italien de Bologne qui a écœuré l’Inter aux tirs aux buts en Supercoupe d’Italie ?**: [Link](https://www.calciomio.fr/qui-est-le-gardien-italien-de-bologne-qui-a-ecoeure-linter-aux-tirs-aux-buts-en-supercoupe-ditalie-id-171195)
+
+
 ### الشارقة ضد الهلال (N/A, Mon, 22 Dec 2025 09:10:00 -0800)
 
 - **لقاء بطموحات متباينة بين الشارقة والهلال**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/afc-champions-league/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%82%D8%A7%D8%A1-%D8%A8%D8%B7%D9%85%D9%88%D8%AD%D8%A7%D8%AA-%D9%85%D8%AA%D8%A8%D8%A7%D9%8A%D9%86%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B4%D8%A7%D8%B1%D9%82%D8%A9-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-2025-12-22)
