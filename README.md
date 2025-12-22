@@ -1,3 +1,24 @@
+### afcon tickets (N/A, Mon, 22 Dec 2025 05:30:00 -0800)
+
+- **«We’ll almost feel at home» : Algeria betting on Morocco's climate for AFCON**: [Link](https://www.yabiladi.com/articles/details/183858)
+- **Algerian National Team Delegation Travels to Morocco Ahead of Africa Cup of Nations**: [Link](https://m.elbotola.com/en/article/2025-12-19-18-36-628.html)
+- **AFCON Group E: Data, facts, and storylines behind the Nile-Sahara link**: [Link](https://www.zonalsports.com/matches/afcon-2025-group-e-preview-algeria-burkina-faso-stats)
+
+
+### mali – zambie (N/A, Mon, 22 Dec 2025 05:10:00 -0800)
+
+- **Premier choc, premières vérités entre Mali et Zambie**: [Link](https://www.cafonline.com/fr/can2025/infos/premier-choc-premieres-verites-entre-mali-et-zambie/)
+- **CAN 2025 : le programme des matchs de ce lundi 22 décembre**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matchs-de-ce-lundi-22-decembre-22-12-2025-EEWZIAV4FJGBTN56LXBWJOJG54.php)
+- **DIRECT. Mali-Zambie: suivez le match du groupe A de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-mali-zambie-suivez-le-match-du-groupe-a-de-la-can-2025-en-live_LS-202512220430.html)
+
+
+### loteria navidad 2025 (N/A, Mon, 22 Dec 2025 04:00:00 -0800)
+
+- **Premios Lotería de Navidad 2025, última hora: quedan seis grandes premios por repartir**: [Link](https://www.rtve.es/rtve/20251222/loteria-navidad-2025-ultima-hora-numeros-premiados/16862237.shtml)
+- **Sorteo Lotería de Navidad 2025: El Gordo, en directo | Empìeza el sorteo de Lotería de Navidad**: [Link](https://www.elmundo.es/loterias/loteria-de-navidad/2025/12/22/6948f8821ee97cbdb6ca2008-directo.html)
+- **Comprobar Lotería de Navidad 2025: consultar números y premios**: [Link](https://elpais.com/loteria-de-navidad/2025-12-22/comprobar-loteria-de-navidad-consulte-la-lista-de-numeros-premiados.html)
+
+
 ### egypt vs zimbabwe (N/A, Mon, 22 Dec 2025 04:40:00 -0800)
 
 - **AFCON Daily Live blog: Rolling updates of the day’s action, events and key moments (1)**: [Link](https://www.cafonline.com/afcon2025/news/afcon-daily-live-blog-rolling-updates-of-the-day-s-action-events-and-key-moments-1/)
