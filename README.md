@@ -1,3 +1,17 @@
+### weather (N/A, Sun, 21 Dec 2025 23:10:00 -0800)
+
+- **December 22: Warm Weather in Tashkent, Snowy Conditions in Regions**: [Link](https://zamin.uz/en/uzbekistan/177845-december-22-warm-weather-in-tashkent-snowy-conditions-in-regions.html)
+- **Avalanche risk declared in mountainous regions of Uzbekistan**: [Link](https://caliber.az/en/post/avalanche-risk-declared-in-mountainous-regions-of-uzbekistan)
+- **It has been announced where snow will fall tomorrow**: [Link](https://zamin.uz/en/uzbekistan/177764-it-has-been-announced-where-snow-will-fall-tomorrow.html)
+
+
+### الطقس اليوم (N/A, Sun, 21 Dec 2025 22:50:00 -0800)
+
+- **توقعات طقس اليوم الاثنين في المغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-3-1674711.html)
+- **تساقطات مطرية مهمة بالعاصمة تزامنا مع انطلاق “الكان”**: [Link](https://www.alayam24.com/articles-603886.html)
+- **مقاييس التساقطات الثلجية المسجلة بالمملكة خلال 24 ساعة الماضية**: [Link](https://www.ariffino.net/%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9-%D9%88-%D9%85%D8%AC%D8%AA%D9%85%D8%B9/%D9%85%D9%82%D8%A7%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D9%84%D8%A9-%D8%A8%D8%A7%D9%84-3)
+
+
 ### موعد اذان الفجر (N/A, Sun, 21 Dec 2025 21:10:00 -0800)
 
 - **«نداء الروح» دليلك اليومي لأوقات الصلاة الدقيقة اليوم**: [Link](https://www.iqraa24.com/news/%D9%86%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%88%D8%AD-%D8%AF%D9%84%D9%8A%D9%84%D9%83-%D8%A7%D9%84%D9%8A%D9%88%D9%85%D9%8A-%D9%84%D8%A3%D9%88%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D8%B5%D9%84/)
