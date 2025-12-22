@@ -1,3 +1,17 @@
+### omar marmoush (N/A, Mon, 22 Dec 2025 12:40:00 -0800)
+
+- **Tottenham turn attention to £59m Premier League striker with only one goal this season**: [Link](https://www.spurs-web.com/spurs-news/tottenham-turn-attention-to-59m-premier-league-striker-with-only-one-goal-this-season/)
+- **Interest in Umar Marmoush Growing as Manchester City Faces Key Decision**: [Link](https://zamin.uz/en/sport/177671-interest-in-umar-marmoush-growing-as-manchester-city-faces-key-decision.html)
+- **Best striker since Kane: Spurs prepare move to sign £63m Premier League star**: [Link](https://www.footballfancast.com/best-striker-since-kane-spurs-prepare-move-for-omar-marmoush/)
+
+
+### محمد صلاح (N/A, Mon, 22 Dec 2025 12:30:00 -0800)
+
+- **حسام حسن: صلاح سيكون من أفضل اللاعبين في كأس أمم إفريقيا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D8%B5%D9%84%D8%A7%D8%AD-%D8%B3%D9%8A%D9%83%D9%88%D9%86-%D9%85%D9%86-%D8%A3%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-12-21)
+- **الصالح نيوز : تريزيجيه وعاشور وزيزو.. ثلاثى المنتخب السحرى فى الكان بعيدًا عن المحترفين**: [Link](https://ar.saleh13.com/51149/)
+- **محاولة خامسة.. صلاح يبحث عن ميداليته المفقودة في المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A9-%D8%AE%D8%A7%D9%85%D8%B3%D8%A9--%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D9%85%D9%8A%D8%AF%D8%A7%D9%84%D9%8A%D8%AA%D9%87-%D8%A7%D9%84%D9%85%D9%81%D9%82%D9%88%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/bltb19b0df590f2a408)
+
+
 ### كأس أمم افريقيا (N/A, Mon, 22 Dec 2025 10:50:00 -0800)
 
 - **جنوب إفريقيا تحقق فوزاً صعباً على أنغولا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D8%B5%D8%B9%D8%A8%D8%A7-%D8%B9%D9%84%D9%89-%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-2025-12-22)
