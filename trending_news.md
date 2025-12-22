@@ -1,3 +1,10 @@
+### التاريخ الهجري اليوم (N/A, Mon, 22 Dec 2025 00:10:00 -0800)
+
+- **فلكيًا.. موعد أول ايام شهر رجب 1447 هـ وبداية رمضان 2026 في مصر**: [Link](https://www.almasryalyoum.com/news/details/4150944)
+- **حكم صيام أول أيام شهر رجب 1447هـ**: [Link](https://al-ain.com/article/fasting-first-day-rajab)
+- **افتتاح مجالس قراءة "صحيح البخاري" عبر مساجد الوطن هذا الاثنين**: [Link](https://elayem.news/%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%85%D8%AC%D8%A7%D9%84%D8%B3-%D9%82%D8%B1%D8%A7%D8%A1%D9%87-%D8%B5%D8%AD%D9%8A%D8%AD-%D8%A7%D9%84%D8%A8%D8%AE%D8%A7%D8%B1%D9%8A-%D8%B9%D8%A8%D8%B1-%D9%85%D8%B3%D8%A7%D8%AC%D8%AF-%D8%A7%D9%84%D9%88%D8%B7%D9%86-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86)
+
+
 ### weather (N/A, Sun, 21 Dec 2025 23:10:00 -0800)
 
 - **December 22: Warm Weather in Tashkent, Snowy Conditions in Regions**: [Link](https://zamin.uz/en/uzbekistan/177845-december-22-warm-weather-in-tashkent-snowy-conditions-in-regions.html)
