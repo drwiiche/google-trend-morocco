@@ -1,3 +1,17 @@
+### rd congo – bénin (N/A, Tue, 23 Dec 2025 03:50:00 -0800)
+
+- **RD Congo-Bénin, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/can/rd-congo-benin-quelle-chaine-diffuse-le-match-976727.html)
+- **RD Congo – Bénin : retrouvailles, mémoire et ambitions croisées à Rabat**: [Link](https://www.cafonline.com/fr/can2025/infos/rd-congo-benin-retrouvailles-memoire-et-ambitions-croisees-a-rabat/)
+- **CAN 2025 | Benin : Les fan zones de Cotonou pour suivre les Guépards**: [Link](https://www.africatopsports.com/2025/12/23/can-2025-benin-les-fan-zones-de-cotonou-pour-suivre-les-guepards/)
+
+
+### football maroc (N/A, Tue, 23 Dec 2025 03:50:00 -0800)
+
+- **CAN 2025 : Bank Al-Maghrib émet une pièce et un billet commémoratifs**: [Link](https://ledesk.ma/encontinu/can-2025-bank-al-maghrib-emet-une-piece-et-un-billet-commemoratifs/)
+- **CAN 2025 : comment la presse internationale a couvert la cérémonie d’ouverture**: [Link](https://medias24.com/2025/12/22/can-2025-comment-la-presse-internationale-a-couvert-la-ceremonie-douverture-1600920/)
+- **CAN 2025: déploiement de motocyclistes des forces spéciales pour renforcer le dispositif sécuritaire**: [Link](https://fr.le360.ma/societe/can-2025-deploiement-de-motocyclistes-des-forces-speciales-pour-renforcer-le-dispositif-securitaire_JVZTETYTORFJXNLZPCJ6TQ67HY/)
+
+
 ### كأس امم افريقيا (N/A, Tue, 23 Dec 2025 02:40:00 -0800)
 
 - **قائد الجزائر يشيد بحفاوة الاستقبال**: [Link](https://www.hespress.com/%D9%82%D8%A7%D8%A6%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%AD%D9%81%D8%A7%D9%88%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-1675625.html)
