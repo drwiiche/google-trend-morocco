@@ -1,3 +1,10 @@
+### idrissa gueye (N/A, Tue, 23 Dec 2025 08:20:00 -0800)
+
+- **AFCON Blues: Who, When And Where?**: [Link](https://www.evertonfc.com/news/2025/december/22/afcon-blues--who--when-and-where-/)
+- **How Everton’s Iliman Ndiaye and Idrissa Gueye performed in Senegal’s AFCON opener**: [Link](https://www.everton.news/how-iliman-ndiaye-and-idrissa-gueye-performed-in-senegals-afcon-opener/)
+- **Idrissa Gana Gueye opens up on ‘dream’ as Everton primed for lengthy absence**: [Link](https://www.goodisonnews.com/2025/12/18/idrissa-gana-gueye-opens-up-on-dream-as-everton-primed-for-lengthy-absence/)
+
+
 ### nigeria – tanzanie (N/A, Tue, 23 Dec 2025 08:50:00 -0800)
 
 - **Super Eagles Eye Strong Start Against Rising Taifa Stars**: [Link](https://www.cafonline.com/afcon2025/news/super-eagles-eye-strong-start-against-rising-taifa-stars/)
