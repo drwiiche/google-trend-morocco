@@ -1,3 +1,24 @@
+### congo (N/A, Tue, 23 Dec 2025 04:50:00 -0800)
+
+- **Tens of thousands flee DR Congo to Burundi amid rebel takeover of key city**: [Link](https://www.aljazeera.com/news/2025/12/19/tens-of-thousands-flee-dr-congo-to-burundi-after-rebel-takeover-of-key-city)
+- **WFP scaling up assistance to people displaced by violence in eastern DRC as resources risk running out**: [Link](https://www.wfp.org/news/wfp-scaling-assistance-people-displaced-violence-eastern-drc-resources-risk-running-out)
+- **Congolese refugees in Burundi in dire need of support**: [Link](https://www.msf.org/congolese-refugees-burundi-dire-need-support)
+
+
+### congo vs benin (N/A, Tue, 23 Dec 2025 04:40:00 -0800)
+
+- **DR Congo vs Benin: Reunion, memories and intersecting ambitions in Rabat**: [Link](https://www.cafonline.com/afcon2025/news/dr-congo-vs-benin-reunion-memories-and-intersecting-ambitions-in-rabat/)
+- **Sadiki ready to carry DR Congo’s AFCON hopes**: [Link](https://www.safc.com/news/2025/december/22/sadiki-ready-to-carry-dr-congo-s-afcon-hopes/)
+- **AFCON 2025: Great expectations of DRC supporters**: [Link](https://sportnewsafrica.com/en/posts/afcon-2025-great-expectations-of-drc-supporters)
+
+
+### tunisie vs (N/A, Tue, 23 Dec 2025 04:40:00 -0800)
+
+- **CAN 2025. Le programme des matches du mardi 23 décembre avec l’entrée en lice de la Tunisie**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matches-du-mardi-23-decembre-avec-lentree-en-lice-de-la-tunisie-1fb24f8a-df55-11f0-ae25-7dba037201f1)
+- **Tunisie – Ouganda : un choc crucial du groupe C à Rabat**: [Link](https://www.cafonline.com/fr/can2025/infos/tunisie-ouganda-un-choc-crucial-du-groupe-c-a-rabat/)
+- **CAN 2025: les Aigles de Carthage saluent l’accueil marocain avant d’affronter l’Ouganda**: [Link](https://sport.le360.ma/football/can/can-2025-les-aigles-de-carthage-saluent-laccueil-marocain-avant-daffronter-louganda_POWZI323ZFAPBC4U6NBT6A6O6Q/)
+
+
 ### rd congo – bénin (N/A, Tue, 23 Dec 2025 03:50:00 -0800)
 
 - **RD Congo-Bénin, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/can/rd-congo-benin-quelle-chaine-diffuse-le-match-976727.html)
