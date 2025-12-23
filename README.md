@@ -1,3 +1,31 @@
+### osimhen (N/A, Tue, 23 Dec 2025 10:40:00 -0800)
+
+- **How Nigeria superstar Victor Osimhen became one of the world's best strikers**: [Link](https://www.flashscore.com/news/soccer-super-lig-how-nigeria-superstar-victor-osimhen-became-one-of-the-world-s-best-strikers/AXp2OxCc/)
+- **CAN 2025: The schedule for Tuesday, December 23, 2025**: [Link](https://ca.sports.yahoo.com/news/2025-schedule-tuesday-december-23-083500505.html)
+- **Morocco 2025: After 2026 FIFA World Cup failure, Super Eagles pin hopes on AFCON success for redemption**: [Link](https://gazettengr.com/morocco-2025-after-2026-fifa-world-cup-failure-super-eagles-pin-hopes-on-afcon-success-for-redemption/)
+
+
+### مباراة تونس اليوم (N/A, Tue, 23 Dec 2025 10:10:00 -0800)
+
+- **المنتخب التونسي ينشد تخطّي عقبة منتخب أوغندا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A-%D9%8A%D9%86%D8%B4%D8%AF-%D8%AA%D8%AE%D8%B7-%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-2025-12-23)
+- **ما القنوات الناقلة لمباراة تونس وأوغندا في كأس أمم إفريقيا 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt324d68ff649b7d6e)
+- **مدرب أوغندا: نأمل في تحقيق المفاجأة**: [Link](https://www.hesport.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%86%D8%A3%D9%85%D9%84-%D9%81%D9%8A-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-419194.html)
+
+
+### حكيم زياش (N/A, Tue, 23 Dec 2025 10:00:00 -0800)
+
+- **الموت يفجع حكيم زياش**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D9%81%D8%AC%D8%B9-%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4/bltb4e881aaabe8b76a)
+- **الوداد ينعى شقيق حكيم زياش**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%86%D8%B9%D9%89-%D8%B4%D9%82%D9%8A%D9%82-%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4-419279.html)
+- **وفاة شقيق الدولي المغربي حكيم زياش..الوداد يقدم التعازي للاعب وعائلته**: [Link](https://www.akhbarona.com/sport/footmarocain/418639.html)
+
+
+### stade olympique rabat (N/A, Tue, 23 Dec 2025 10:00:00 -0800)
+
+- **L'avancement des travaux du futur Stade Hassan II de Casablanca (image satellite)**: [Link](https://medias24.com/2025/12/16/lavancement-des-travaux-du-futur-stade-hassan-ii-de-casablanca-image-satellite-1597035/)
+- **Stade Moulay El Hassan : Les VRD confiés à SGTM pour 305 MDH**: [Link](https://www.lavieeco.com/affaires/stade-moulay-el-hassan-les-vrd-confies-a-sgtm-pour-305-mdh/)
+- **Il accueillera le match Tunisie-Ouganda : à la découverte du Stade Olympique de Rabat**: [Link](https://www.lapresse.tn/2025/12/22/il-accueillera-le-match-tunisie-ouganda-a-la-decouverte-du-stade-olympique-de-rabat/)
+
+
 ### كأس افريقيا 2025 (N/A, Tue, 23 Dec 2025 10:00:00 -0800)
 
 - **المنتخب التونسي ينشد تخطّي عقبة منتخب أوغندا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A-%D9%8A%D9%86%D8%B4%D8%AF-%D8%AA%D8%AE%D8%B7-%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-2025-12-23)
