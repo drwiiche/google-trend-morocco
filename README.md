@@ -1,3 +1,18 @@
+### arsenal – crystal palace (N/A, Tue, 23 Dec 2025 11:10:00 -0800)
+
+- **Every word Mikel Arteta said on Arsenal vs Crystal Palace, striker dilemma and fixture chaos**: [Link](https://www.football.london/arsenal-fc/news/every-word-mikel-arteta-said-33102300)
+- **Oliver Glasner sees the Carabao Cup as the
+‘next opportunity’ for Palace to push the standards**: [Link](https://www.vavel.com/en/football/2025/12/22/crystal-palace/1245324-oliver-glasner-sees-the-carabao-cup-as-thenext-opportunity-for-palace-to-push-the-standards.html)
+- **bet365 bonus code: Score £30 bonus for Arsenal vs Crystal Palace with code SUN365**: [Link](https://www.thesun.co.uk/betting/37719711/bet365-bonus-code-arsenal-vs-crystal-palace-sun365/)
+
+
+### tunisia vs uganda (N/A, Tue, 23 Dec 2025 11:10:00 -0800)
+
+- **Tunisia and Uganda prepare for crucial Group C clash in Rabat**: [Link](https://www.cafonline.com/afcon2025/news/tunisia-and-uganda-prepare-for-crucial-group-c-clash-in-rabat/)
+- **AFCON 2025: Tunisia vs. Uganda—When & How to Watch**: [Link](https://www.moroccoworldnews.com/2025/12/272732/tunisia-vs-uganda-when-how-to-watch/)
+- **Trabelsi (Tunisia Coach): 'AFCON is a Different Story; We Saw How Comoros Troubled Morocco'**: [Link](https://m.elbotola.com/en/article/2025-12-22-16-31-584.html)
+
+
 ### نيجيريا (N/A, Tue, 23 Dec 2025 10:50:00 -0800)
 
 - **المنتخب النيجيري يسعى إلى تفادي المفاجآت عندما يواجه نظيره التنزاني**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%AA%D9%81%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A-2025-12-23)
