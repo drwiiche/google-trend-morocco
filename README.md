@@ -1,3 +1,17 @@
+### egypt can (N/A, Mon, 22 Dec 2025 13:30:00 -0800)
+
+- **Egypt says gas deal with Israel is ‘purely commercial’**: [Link](https://www.aljazeera.com/news/2025/12/18/egypt-says-gas-deal-with-israel-is-purely-commercial)
+- **Enterprise — Essential business, finance and policy news from the Arab world**: [Link](https://enterprise.news/egypt/en/news/edition/weekEnd/5de90cad-57fb-49c3-98eb-742cf7d29bae/for-the-foodies/446c8734-db69-4933-a5f1-411288139080)
+- **Oil companies ramping up production in Iraqi Kurdistan**: [Link](https://www.meed.com/oil-companies-ramping-up-production-in-iraqi-kurdistan)
+
+
+### مصر اليوم (N/A, Mon, 22 Dec 2025 12:30:00 -0800)
+
+- **سعر الذهب يواصل حصد مستويات قياسية جديدة - توقعات اليوم – 23-12-2025**: [Link](https://www.fxnewstoday.ae/commodities/gold-analysis/%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%AD%D8%B5%D8%AF-%D9%85%D8%B3%D8%AA%D9%88%D9%8A%D8%A7%D8%AA-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9---%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%E2%80%93-23-12-2025-262597)
+- **دليلك الشامل لأسعار الذهب بمصر اليوم وسعر الجنيه الذهب وتوقعات الشراء أو البيع في الفترة القادمة**: [Link](https://www.hadutta.com/%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%AF%D9%84%D9%8A%D9%84%D9%83-%D8%A7%D9%84%D8%B4%D8%A7%D9%85%D9%84-%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%A8%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%88/)
+- **الجنيه الذهب عند مستويات قياسية عقب قفزة عيار 21**: [Link](https://www.youm7.com/story/2025/12/23/%D8%A7%D9%84%D8%AC%D9%86%D9%8A%D9%87-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%B9%D9%86%D8%AF-%D9%85%D8%B3%D8%AA%D9%88%D9%8A%D8%A7%D8%AA-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D8%B9%D9%82%D8%A8-%D9%82%D9%81%D8%B2%D8%A9-%D8%B9%D9%8A%D8%A7%D8%B1-21/7243456)
+
+
 ### موعد اذان الفجر (N/A, Mon, 22 Dec 2025 21:30:00 -0800)
 
 - **مواقيت المغرب اليوم الأحد 21 ديسمبر في جميع محافظات مصر - أوقات دقيقة ومحدثة**: [Link](https://yemen-press.net/news154830.html)
