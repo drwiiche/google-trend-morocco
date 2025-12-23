@@ -1,3 +1,10 @@
+### موعد اذان الفجر (N/A, Mon, 22 Dec 2025 21:30:00 -0800)
+
+- **مواقيت المغرب اليوم الأحد 21 ديسمبر في جميع محافظات مصر - أوقات دقيقة ومحدثة**: [Link](https://yemen-press.net/news154830.html)
+- **موعد أذان وصلاة الفجر اليوم الثلاثاء 23 ديسمبر.. ودعاء بعد ختم الصلاة**: [Link](https://www.masrawy.com/islameyat/others-islamic_ppl_news/details/2025/12/23/2912523/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D9%88%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-23-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-%D9%88%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%AA%D9%85-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9)
+- **مواقيت الصلاه اليوم الأحد 21ديسمبر 2025 فى المنيا**: [Link](https://www.elfagr.org/5264459)
+
+
 ### egypt fc (N/A, Mon, 22 Dec 2025 12:20:00 -0800)
 
 - **Seven titles later, Egypt return to AFCON as history’s benchmark and present contenders**: [Link](https://www.cafonline.com/afcon2025/news/seven-titles-later-egypt-return-to-afcon-as-history-s-benchmark-and-present-contenders/)
