@@ -1,3 +1,10 @@
+### egypte zimbabwe (N/A, Mon, 22 Dec 2025 11:50:00 -0800)
+
+- **Dankzij ex-spits van Westerlo: Zuid-Afrika en Hugo Broos laten controverse achter zich met 1e zege op Afrika Cup**: [Link](https://sporza.be/nl/2025/12/22/dankzij-ex-spits-van-westerlo-zuid-afrika-en-hugo-broos-laten-controverse-achter-zich-met-1e-zege-op-afrika-cup~1766430722193/)
+- **Afrika Cup: officiële opstellingen Zuid-Afrika - Angola**: [Link](https://news.bet365.nl/nl-nl/article/afrika-cup-opstellingen-zuid-afrika-angola-22-december-2025/2025122209415388130)
+- **LIVE Afrika Cup | Egypte op jacht naar winnende goal na gelijkmaker tegen Zimbabwe**: [Link](https://www.ad.nl/voetbal/live-afrika-cup-egypte-op-jacht-naar-winnende-goal-na-gelijkmaker-tegen-zimbabwe~a9de755c/)
+
+
 ### مصطفى محمد (N/A, Mon, 22 Dec 2025 13:00:00 -0800)
 
 - **مصطفى محمد.. مهاجم "الفراعنة" الذي تحول إلى "ترند" مغربي مع انطلاقة كأس أمم إفريقيا**: [Link](https://www.assahifa.com/%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D9%85%D8%AD%D9%85%D8%AF-%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D8%A7%D9%84%D8%B0%D9%8A-%D8%AA%D8%AD%D9%88%D9%84/)
