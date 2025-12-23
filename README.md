@@ -1,3 +1,10 @@
+### sénégal – botswana (N/A, Tue, 23 Dec 2025 06:20:00 -0800)
+
+- **Sénégal-Botswana, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/can/senegal-botswana-quelle-chaine-diffuse-le-match-976771.html)
+- **Sénégal – Botswana : les Lions de la Teranga lancent leur CAN 2025 face à des Zèbres ambitieux**: [Link](https://www.cafonline.com/fr/can2025/infos/senegal-botswana-les-lions-de-la-teranga-lancent-leur-can-2025-face-a-des-zebres-ambitieux/)
+- **CAN 2025 : les premiers pas du Sénégal, de la Tunisie, de la RDC et du Nigeria en Coupe d’Afrique**: [Link](https://lematin.ma/sports/can-les-premiers-pas-du-senegal-de-la-tunisie-de-la-rdc-et-du-nigeria/320505)
+
+
 ### ملعب مولاي الحسن (N/A, Tue, 23 Dec 2025 04:50:00 -0800)
 
 - **عدد المغاربة العائدين عبر مينائي طنجة يرتفع مع انطلاق كأس إفريقيا**: [Link](https://www.hespress.com/%D8%B9%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D8%A6%D8%AF%D9%8A%D9%86-%D8%B9%D8%A8%D8%B1-%D9%85%D9%8A%D9%86%D8%A7%D8%A6%D9%8A-%D8%B7%D9%86%D8%AC%D8%A9-1675290.html)
