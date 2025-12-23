@@ -1,3 +1,10 @@
+### كأس امم افريقيا (N/A, Tue, 23 Dec 2025 02:40:00 -0800)
+
+- **قائد الجزائر يشيد بحفاوة الاستقبال**: [Link](https://www.hespress.com/%D9%82%D8%A7%D8%A6%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%AD%D9%81%D8%A7%D9%88%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-1675625.html)
+- **عمورة..أمل الجزائر في استعادة اللقب المفقود**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D9%85%D9%88%D8%B1%D8%A9-%D8%A7%D9%94%D9%85%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%81%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D9%85%D9%81%D9%82%D9%88%D8%AF/blt88f5f53fb38fa353)
+- **محرز: حظينا باستقبال جيد من المغاربة.. ومنتخب الجزائر متجانس**: [Link](https://www.skynewsarabia.com/sport/1841873-%D9%85%D8%AD%D8%B1%D8%B2-%D8%AD%D8%B8%D9%8A%D9%86%D8%A7-%D8%A8%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-%D8%AC%D9%8A%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%88%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%85%D8%AA%D8%AC%D8%A7%D9%86%D8%B3)
+
+
 ### afcon tickets (N/A, Tue, 23 Dec 2025 03:20:00 -0800)
 
 - **AFCON 2025: Full schedule, results, scores, and standings at CAF Africa Cup of Nations in Morocco**: [Link](https://www.olympics.com/en/news/afcon-2025-schedule-result-scores-standings)
