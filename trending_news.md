@@ -1,3 +1,17 @@
+### الكونغو الديمقراطية ضد بنين (N/A, Tue, 23 Dec 2025 05:10:00 -0800)
+
+- **بنين تلتقي الكونغو الديمقراطية بالرباط**: [Link](https://www.hespress.com/%D8%A8%D9%86%D9%8A%D9%86-%D8%AA%D9%84%D8%AA%D9%82%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8-1675020.html)
+- **ملعب البريد يحتضن معركة "الفهود" و"السناجب" في كأس أمم إفريقيا**: [Link](https://www.hesport.com/%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D9%81%D9%87%D9%88%D8%AF-%D9%88%D8%A7%D9%84%D8%B3%D9%86-419190.html)
+- **4 منتخبات تطارد فوزها الأول في كأس أفريقيا**: [Link](https://www.aljazeera.net/sport/2025/12/20/4-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B7%D8%A7%D8%B1%D8%AF-%D9%81%D9%88%D8%B2%D9%87%D8%A7-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A3%D9%85%D9%85)
+
+
+### senegal (N/A, Tue, 23 Dec 2025 03:40:00 -0800)
+
+- **Sunderland Could Face FIFA Sanction Over Delayed AFCON Release of Habib Diarra**: [Link](https://www.si.com/soccer/sunderland/sunderland-nation-news/sunderland-fifa-sanction-delayed-afcon-release-habib-diarra)
+- **“Decision of the heart” – Player on snubbing AC Milan and Atlético Madrid for Sunderland**: [Link](https://sportwitness.co.uk/decision-of-the-heart-player-on-snubbing-ac-milan-and-atletico-madrid-for-sunderland/)
+- **AFCON AFCON2025:Diarra Delay Raises Eyebrows as Senegal Prepare for Departure**: [Link](https://en.africatopsports.com/2025/12/19/afcon2025diarra-delay-raises-eyebrows-as-senegal-prepare-for-departure/)
+
+
 ### congo (N/A, Tue, 23 Dec 2025 04:50:00 -0800)
 
 - **Tens of thousands flee DR Congo to Burundi amid rebel takeover of key city**: [Link](https://www.aljazeera.com/news/2025/12/19/tens-of-thousands-flee-dr-congo-to-burundi-after-rebel-takeover-of-key-city)
