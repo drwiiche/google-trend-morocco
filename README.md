@@ -1,3 +1,10 @@
+### nigeria (N/A, Tue, 23 Dec 2025 08:00:00 -0800)
+
+- **Super Eagles Eye Strong Start Against Rising Taifa Stars**: [Link](https://www.cafonline.com/afcon2025/news/super-eagles-eye-strong-start-against-rising-taifa-stars/)
+- **Nigeria vs Tanzania live updates: AFCON 2025 game team news, predictions and more**: [Link](https://www.nytimes.com/athletic/live-blogs/nigeria-vs-tanzania-live-updates-afcon-2025-score-result/ZXzrGZTJtTHU/)
+- **Football AFCON 2025: Eric Chelle urges focus, not World Cup talk**: [Link](https://en.africatopsports.com/2025/12/23/afcon-2025-eric-chelle-urges-focus-not-world-cup-talk/)
+
+
 ### matchs can 2025 (N/A, Tue, 23 Dec 2025 07:10:00 -0800)
 
 - **CAN 2025 : la Zambie braque le Mali dans le temps additionnel**: [Link](https://www.beinsports.com/fr-fr/football/2025-coupe-d-afrique-des-nations/articles-video/can-2025-la-zambie-braque-le-mali-dans-le-temps-additionnel-2025-12-22)
