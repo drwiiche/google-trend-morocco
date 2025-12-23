@@ -1,3 +1,31 @@
+### fenerbahçe – besiktas (N/A, Tue, 23 Dec 2025 09:20:00 -0800)
+
+- **Fenerbahçe-Beşiktaş derbisinde 11'ler belli oldu**: [Link](https://www.ntv.com.tr/sporskor/fenerbahce-besiktas-derbisinde-11ler-belli-oldu-1704448)
+- **Eski yıldız Josef de Souza'dan Beşiktaş'a derbi öncesi duygusal destek**: [Link](https://oxu.az/tr/spor/eski-yildiz-josef-de-souza-dan-besiktas-a-derbi-oncesi-duygusal-destek)
+- **Fenerbahçe-Beşiktaş derbisinden notlar**: [Link](https://www.ensondakika.com.tr/fenerbahce-besiktas-derbisinden-notlar/559904/)
+
+
+### nigeria vs tanzania (N/A, Tue, 23 Dec 2025 08:50:00 -0800)
+
+- **Afcon 2025 LIVE: Nigeria vs Tanzania - text updates, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cyvg2erqj93t)
+- **Super Eagles Eye Strong Start Against Rising Taifa Stars**: [Link](https://www.cafonline.com/afcon2025/news/super-eagles-eye-strong-start-against-rising-taifa-stars/)
+- **Pre-match flash statement: We will neutralize Osimhen.**: [Link](https://en.haberler.com/pre-match-flash-statement-we-will-neutralize-2184470/)
+
+
+### لطيفة رأفت (N/A, Tue, 23 Dec 2025 08:30:00 -0800)
+
+- **خاص.. القضاء ينصف لطيفة رأفت**: [Link](https://www.belpresse.com/stars/604172.html)
+- **8 سنوات سجنا في حق مسرب التسجيلات الصوتية للفنانة لطيفة رأفت وغرامة قدرها 50 مليون سنتيم!**: [Link](https://www.akhbarona.com/society/418576.html)
+- **بعد 10 سنوات من التشهير.. القضاء يطوي ملف "تسجيلات لطيفة رأفت" بحكم ثقيل**: [Link](https://agadir24.info/%D8%A8%D8%B9%D8%AF-10-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%B4%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D9%8A%D8%B7%D9%88%D9%8A-%D9%85%D9%84%D9%81-%D8%AA.html)
+
+
+### مباراة اليوم كاس افريقيا (N/A, Tue, 23 Dec 2025 07:40:00 -0800)
+
+- **السيد وليد الركراكي يحضر المنتخب الوطني للقاء مالي**: [Link](https://frmf.ma/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AC%D9%87%D8%B2-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7/)
+- **الفائزون بجائزة رجل المباراة في كأس أفريقيا 2025**: [Link](https://www.aljazeera.net/sport/2025/12/23/%D8%B1%D8%AC%D9%84-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **دروس الكان: انتصار مغربي تحت الشبهات.. تأثير حكيمي.. والركراكي يصحح الخطأ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AF%D8%B1%D9%88%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B4%D8%A8%D9%87%D8%A7%D8%AA--%D8%AA%D8%A7%D9%94%D8%AB%D9%8A%D8%B1-%D8%AD%D9%83%D9%8A%D9%85%D9%8A--%D9%88%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B5%D8%AD%D8%AD-%D8%A7%D9%84%D8%AE%D8%B7%D8%A7%D9%94/blt8bb84f6f84db4656)
+
+
 ### idrissa gueye (N/A, Tue, 23 Dec 2025 08:20:00 -0800)
 
 - **AFCON Blues: Who, When And Where?**: [Link](https://www.evertonfc.com/news/2025/december/22/afcon-blues--who--when-and-where-/)
