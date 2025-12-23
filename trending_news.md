@@ -1,3 +1,10 @@
+### egypt fc (N/A, Mon, 22 Dec 2025 12:20:00 -0800)
+
+- **Seven titles later, Egypt return to AFCON as history’s benchmark and present contenders**: [Link](https://www.cafonline.com/afcon2025/news/seven-titles-later-egypt-return-to-afcon-as-history-s-benchmark-and-present-contenders/)
+- **Africa Cup of Nations latest news: AFCON results, scores, reports and standings**: [Link](https://www.skysports.com/football/live-blog/13968/13486625/africa-cup-of-nations-latest-news-afcon-results-scores-reports-and-standings)
+- **AFCON 2025: Egypt, South Africa... the projected Group B standings**: [Link](https://foot-africa.com/en/news/can-2025-first-second-the-likely-standings-in-group-b-1011122/)
+
+
 ### egypte zimbabwe (N/A, Mon, 22 Dec 2025 11:50:00 -0800)
 
 - **Dankzij ex-spits van Westerlo: Zuid-Afrika en Hugo Broos laten controverse achter zich met 1e zege op Afrika Cup**: [Link](https://sporza.be/nl/2025/12/22/dankzij-ex-spits-van-westerlo-zuid-afrika-en-hugo-broos-laten-controverse-achter-zich-met-1e-zege-op-afrika-cup~1766430722193/)
