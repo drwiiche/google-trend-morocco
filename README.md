@@ -1,3 +1,10 @@
+### vince zampella (N/A, Mon, 22 Dec 2025 23:20:00 -0800)
+
+- **Vince Zampella, video game developer behind ‘Call of Duty,' killed in Ferrari crash**: [Link](https://www.nbclosangeles.com/news/local/video-game-developer-vince-zampella-crash-call-of-duty/3819576/)
+- **Vince Zampella, Call of Duty co-creator, dies in California car crash**: [Link](https://www.bbc.com/news/articles/cx25rled0ylo)
+- **Vince Zampella, co-creator of Call of Duty video game series, dies aged 55 | Games**: [Link](https://www.theguardian.com/us-news/2025/dec/22/vince-zampella-co-creator-of-call-of-duty-video-game-series-dies-aged-55)
+
+
 ### gta 6 (N/A, Mon, 22 Dec 2025 22:40:00 -0800)
 
 - **GTA 6 Price Hike Would Be "Prudent," Analyst Says**: [Link](https://www.gamespot.com/articles/gta-6-price-hike-would-be-prudent-analyst-says/1100-6537108/)
