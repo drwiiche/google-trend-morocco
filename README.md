@@ -1,3 +1,17 @@
+### afcon tickets (N/A, Tue, 23 Dec 2025 03:20:00 -0800)
+
+- **AFCON 2025: Full schedule, results, scores, and standings at CAF Africa Cup of Nations in Morocco**: [Link](https://www.olympics.com/en/news/afcon-2025-schedule-result-scores-standings)
+- **Top stars to make their AFCON debut in Morocco**: [Link](https://www.cafonline.com/afcon2025/news/top-stars-to-make-their-afcon-debut-in-morocco/)
+- **Did Ayoub El Kaabi Score a Puskás Award–Worthy Goal at AFCON 2025?**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/did-ayoub-el-kaabi-score-a-pusk%C3%A1s-award-worthy-goal-at-afcon-2025-2025-12-21)
+
+
+### حسام حسن (N/A, Mon, 22 Dec 2025 13:30:00 -0800)
+
+- **حسام حسن يوضح سر تبديل إمام عاشور المبكر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%8A%D9%88%D8%B6%D8%AD-%D8%B3%D8%B1-%D8%AA%D8%A8%D8%AF%D9%8A%D9%84-%D8%A7%D9%95%D9%85%D8%A7%D9%85-%D8%B9%D8%A7%D8%B4%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D9%83%D8%B1/blt41e5b9064219203a)
+- **مصر وزيمبابوي: غرائب في التشكيل وواقعة مثيرة مع عاشور**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D8%B5%D8%B1-%D9%88%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A-%D8%BA%D8%B1%D8%A7%D8%A6%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%88%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%85%D8%B9-%D8%B9%D8%A7%D8%B4%D9%88%D8%B1)
+- **عمر مرموش يكشف رسالة حسام حسن للاعبي مصر بين الشوطين**: [Link](https://al-ain.com/article/hossam-hassan-message-egypt-zimbabwe)
+
+
 ### salaire minimum (N/A, Tue, 23 Dec 2025 02:20:00 -0800)
 
 - **Santé : le Conseil de gouvernement adopte trois décrets très attendus par les professionnels**: [Link](https://medias24.com/2025/12/22/sante-le-conseil-de-gouvernement-adopte-trois-decrets-tres-attendus-par-les-professionnels-1601019/)
