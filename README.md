@@ -1,3 +1,10 @@
+### benfica (N/A, Mon, 22 Dec 2025 14:00:00 -0800)
+
+- **José Mourinho diz que Tomás Araújo jogou doente: «Estava com tremores e a febre a subir...»**: [Link](https://sapo.pt/artigo/jose-mourinho-diz-que-tomas-araujo-jogou-doente-estava-com-tremores-e-a-febre-a-subir-6949ce7552dc24aee9d53350)
+- **«Não temos Mbappé, Vinicius ou Yamal, mas trabalhamos como equipa e ganhamos»**: [Link](https://cnnportugal.iol.pt/jose-mourinho/benfica/nao-temos-mbappe-vinicius-ou-yamal-mas-trabalhamos-como-equipa-e-ganhamos)
+- **Gil Dias e o regresso ao Estádio da Luz: " Sou amado no Famalicão"**: [Link](https://www.noticiasaominuto.com/desporto/2908716/gil-dias-e-o-regresso-ao-estadio-da-luz-sou-amado-no-famalicao)
+
+
 ### egypt can (N/A, Mon, 22 Dec 2025 13:30:00 -0800)
 
 - **Egypt says gas deal with Israel is ‘purely commercial’**: [Link](https://www.aljazeera.com/news/2025/12/18/egypt-says-gas-deal-with-israel-is-purely-commercial)
