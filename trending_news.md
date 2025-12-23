@@ -1,3 +1,10 @@
+### marmoush (N/A, Mon, 22 Dec 2025 13:20:00 -0800)
+
+- **Salah wird zum Helden, als Ägypten ein spannendes Auftaktspiel beim Afrika-Cup 2025 gewinnt.**: [Link](https://www.vietnam.vn/de/salah-hoa-nguoi-hung-ai-cap-thang-nghet-tho-tran-ra-quan-afcon-2025)
+- **Ägypten und Simbabwe eröffnen den Afrika-Cup 2025**: [Link](https://www.it-boltwise.de/aegypten-und-simbabwe-eroeffnen-den-afrika-cup-2025.html)
+- **Nach Fehlstart: Marmoush und später Salah entscheidend für Ägypten | Highlights by Sportdigital | Video**: [Link](https://www.kicker.de/nach-fehlstart-marmoush-und-spaeter-salah-entscheidend-fuer-aegypten-1178237/video)
+
+
 ### vince zampella (N/A, Mon, 22 Dec 2025 23:20:00 -0800)
 
 - **Vince Zampella, video game developer behind ‘Call of Duty,' killed in Ferrari crash**: [Link](https://www.nbclosangeles.com/news/local/video-game-developer-vince-zampella-crash-call-of-duty/3819576/)
