@@ -1,3 +1,24 @@
+### كأس افريقيا 2025 (N/A, Tue, 23 Dec 2025 10:00:00 -0800)
+
+- **المنتخب التونسي ينشد تخطّي عقبة منتخب أوغندا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A-%D9%8A%D9%86%D8%B4%D8%AF-%D8%AA%D8%AE%D8%B7-%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-2025-12-23)
+- **تونس ضد أوغندا بكأس أفريقيا.. الموعد والقنوات الناقلة للمباراة**: [Link](https://www.aljazeera.net/sport/2025/12/22/%D8%AA%D9%88%D9%86%D8%B3-%D8%B6%D8%AF-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **كأس أفريقيا: طرح دُفعة جديدة من تذاكر مباراة المنتخب ضد أوغندا**: [Link](https://www.mosaiquefm.net/ar/%D9%83%D8%A7%D9%86-2025/1488955/%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%B7%D8%B1%D8%AD-%D8%AF-%D9%81%D8%B9%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B6%D8%AF-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7)
+
+
+### tanzanie (N/A, Tue, 23 Dec 2025 10:00:00 -0800)
+
+- **DIRECT. CAN 2025. Nigeria-Tanzanie: les Super Eagles trouve la faille, ça se complique pour les Tanzaniens**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-can-2025-nigeria-tanzanie-suivez-le-match-du-groupe-c-de-la-coupe-d-afrique-des-nations-en-live_LS-202512230544.html)
+- **La Tanzanie veut capitaliser sur l’élan du CHAN avant la CAN TotalEnergies Maroc 2025, assure Feisal Salum**: [Link](https://www.cafonline.com/fr/can2025/infos/la-tanzanie-veut-capitaliser-sur-l-elan-du-chan-avant-la-can-totalenergies-maroc-2025-assure-feisal-salum/)
+- **CAN 2025 : ce qu’il faut savoir sur le groupe C pour briller en société**: [Link](https://mobile.telquel.ma/2025/12/23/can-2025-ce-quil-faut-savoir-sur-le-groupe-c-pour-briller-en-societe_1966261)
+
+
+### cyberattaque la banque postale (N/A, Tue, 23 Dec 2025 09:10:00 -0800)
+
+- **La cyberattaque à La Poste "se poursuit", indique Roland Lescure**: [Link](https://www.bfmtv.com/politique/video-la-cyberattaque-a-la-poste-se-poursuit-indique-roland-lescure_VN-202512230202.html)
+- **La Banque Postale, La Poste victimes d'une grave cyberattaque ce lundi (INFO CLUBIC)**: [Link](https://www.clubic.com/actualite-592468-la-banque-postale-la-poste-caisse-d-epargne-et-banque-populaire-victimes-d-une-cyberattaque-ce-lundi.html)
+- **Cyberattaque à La Poste : la distribution des colis et des courriers à domicile « perturbée »**: [Link](https://www.leparisien.fr/economie/cyberattaque-a-la-poste-la-distribution-des-colis-et-des-courriers-a-domicile-perturbee-22-12-2025-57KBMLHUUZHHVK7SBJ3TELREGA.php)
+
+
 ### fenerbahçe – besiktas (N/A, Tue, 23 Dec 2025 09:20:00 -0800)
 
 - **Fenerbahçe-Beşiktaş derbisinde 11'ler belli oldu**: [Link](https://www.ntv.com.tr/sporskor/fenerbahce-besiktas-derbisinde-11ler-belli-oldu-1704448)
