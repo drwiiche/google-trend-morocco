@@ -1,3 +1,17 @@
+### weather tomorrow (N/A, Tue, 23 Dec 2025 11:50:00 -0800)
+
+- **Christmas heat wave could break dozens of temperature records**: [Link](https://www.axios.com/2025/12/23/christmas-heat-wave-temperatures-map)
+- **Record-Breaking Warm Temperatures Forecast for Christmas Across the U.S.**: [Link](https://www.nytimes.com/2025/12/22/weather/warm-christmas-forecast.html)
+- **The warmth continues but colder air is coming**: [Link](https://www.kxan.com/weather/forecast/the-warmth-continues-but-colder-air-is-coming/)
+
+
+### listes électorales (N/A, Tue, 23 Dec 2025 11:40:00 -0800)
+
+- **Municipales 2026 : cette règle qui va tout changer au moment du vote lors des prochaines élections**: [Link](https://www.cnews.fr/france/2025-12-23/municipales-2026-cette-regle-qui-va-tout-changer-au-moment-du-vote-lors-des)
+- **Élections Municipales 2026 - les infos utiles**: [Link](https://www.deux-sevres.gouv.fr/Actions-de-l-Etat/Citoyennete-Elections/Elections-Politiques/Elections-Municipales-2026/Elections-Municipales-2026-les-infos-utiles)
+- **Elections municipales 2026 : bien préparer le scrutin d'un point de vue juridico-pratique**: [Link](https://www.courrierdesmaires.fr/article/elections-municipales-2026-bien-preparer-le-scrutin-d-un-point-de-vue-juridico-pratique.59531)
+
+
 ### uganda (N/A, Tue, 23 Dec 2025 12:00:00 -0800)
 
 - **Uganda restricts imports of Starlink equipment weeks before election**: [Link](https://www.reuters.com/sustainability/society-equity/uganda-restricts-imports-starlink-equipment-weeks-before-election-2025-12-23/)
