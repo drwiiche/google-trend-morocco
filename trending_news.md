@@ -1,3 +1,10 @@
+### salaire minimum (N/A, Tue, 23 Dec 2025 02:20:00 -0800)
+
+- **Santé : le Conseil de gouvernement adopte trois décrets très attendus par les professionnels**: [Link](https://medias24.com/2025/12/22/sante-le-conseil-de-gouvernement-adopte-trois-decrets-tres-attendus-par-les-professionnels-1601019/)
+- **Une nouvelle hausse du salaire minimum prévue au Maroc en 2026**: [Link](https://maroc-diplomatique.net/une-nouvelle-hausse-du-salaire-minimum-prevue-au-maroc-en-2026/)
+- **Smig: la hausse de 5% entérinée**: [Link](https://fr.le360.ma/economie/smig-la-hausse-de-5-enterinee_CZRAS5S4UFAALHXWYDM6GJZREE/)
+
+
 ### marmoush (N/A, Mon, 22 Dec 2025 13:20:00 -0800)
 
 - **Salah wird zum Helden, als Ägypten ein spannendes Auftaktspiel beim Afrika-Cup 2025 gewinnt.**: [Link](https://www.vietnam.vn/de/salah-hoa-nguoi-hung-ai-cap-thang-nghet-tho-tran-ra-quan-afcon-2025)
