@@ -1,3 +1,17 @@
+### تونس ضد أوغندا (N/A, Tue, 23 Dec 2025 11:20:00 -0800)
+
+- **المنتخب التونسي ينشد تخطّي عقبة منتخب أوغندا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A-%D9%8A%D9%86%D8%B4%D8%AF-%D8%AA%D8%AE%D8%B7-%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-2025-12-23)
+- **ما القنوات الناقلة لمباراة تونس وأوغندا في كأس أمم إفريقيا 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt324d68ff649b7d6e)
+- **سيحتضن مباراة تونس وأوغندا..تعرّف على الملعب الأولمبي بالرباط**: [Link](https://www.mosaiquefm.net/ar/%D9%83%D8%A7%D9%86-2025/1488933/%D8%B3%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D8%AA%D8%B9%D8%B1-%D9%81-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7)
+
+
+### tunisie – ouganda (N/A, Tue, 23 Dec 2025 11:10:00 -0800)
+
+- **DIRECT. Tunisie-Ouganda: suivez le match du groupe C de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-tunisie-ouganda-suivez-le-match-du-groupe-c-de-la-can-2025-en-live_LS-202512230603.html)
+- **CAN 2025: les supporters tunisiens en fête à Rabat**: [Link](https://sport.le360.ma/football/can/can-2025-les-supporters-tunisiens-en-fete-a-rabat_4BP6M4STONCQHKME2OAQFIN23E/)
+- **CAN 2025. Le programme des matches du mardi 23 décembre avec l’entrée en lice de la Tunisie**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matches-du-mardi-23-decembre-avec-lentree-en-lice-de-la-tunisie-1fb24f8a-df55-11f0-ae25-7dba037201f1)
+
+
 ### arsenal – crystal palace (N/A, Tue, 23 Dec 2025 11:10:00 -0800)
 
 - **Every word Mikel Arteta said on Arsenal vs Crystal Palace, striker dilemma and fixture chaos**: [Link](https://www.football.london/arsenal-fc/news/every-word-mikel-arteta-said-33102300)
