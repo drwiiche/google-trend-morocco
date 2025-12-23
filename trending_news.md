@@ -1,3 +1,10 @@
+### météo pour demain (N/A, Tue, 23 Dec 2025 11:50:00 -0800)
+
+- **Les prévisions météo pour ce mardi 23 décembre**: [Link](https://medias24.com/2025/12/22/les-previsions-meteo-pour-ce-mardi-23-decembre-1601331/)
+- **Météo. Fortes pluies sur le Nord-Ouest ce mardi 23 décembre, avec des chutes de neige sur les reliefs**: [Link](https://fr.le360.ma/societe/meteo-fortes-pluies-sur-le-nord-ouest-ce-mardi-23-decembre-avec-des-chutes-de-neige-sur-les-reliefs_M6HOMAEJKNDJ5JVXSWSIYBRGUU/)
+- **Voici le temps qu'il fera au Maroc ce lundi 22 décembre**: [Link](https://2m.ma/fr/news/Voici-le-temps-qu-il-fera-au-Maroc-ce-lundi-22-d%C3%A9cembre-20251222)
+
+
 ### weather tomorrow (N/A, Tue, 23 Dec 2025 11:50:00 -0800)
 
 - **Christmas heat wave could break dozens of temperature records**: [Link](https://www.axios.com/2025/12/23/christmas-heat-wave-temperatures-map)
