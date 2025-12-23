@@ -1,3 +1,10 @@
+### senegal vs botswana (N/A, Tue, 23 Dec 2025 05:40:00 -0800)
+
+- **Senegal vs Botswana: Teranga Lions open AFCON 2025 campaign against determined Zebras**: [Link](https://www.cafonline.com/afcon2025/news/senegal-vs-botswana-teranga-lions-open-afcon-2025-campaign-against-determined-zebras/)
+- **Tuesday's Africa Cup of Nations predictions including Sadio Mane's Senegal vs. Botswana**: [Link](https://www.sportsmole.co.uk/football/senegal/africa-cup-of-nations/feature/manes-senegal-start-with-a-win-tuesdays-afcon-predictions-and-previews_588293.html)
+- **Botswana's Ramoreboli is the only SA-born AFCON coach, amidst strong PSL club presence**: [Link](https://themercury.co.za/sport/soccer/africa/2025-12-21-botswanas-ramoreboli-is-the-only-sa-born-afcon-coach-amidst-strong-psl-club-presence/)
+
+
 ### الكونغو الديمقراطية ضد بنين (N/A, Tue, 23 Dec 2025 05:10:00 -0800)
 
 - **بنين تلتقي الكونغو الديمقراطية بالرباط**: [Link](https://www.hespress.com/%D8%A8%D9%86%D9%8A%D9%86-%D8%AA%D9%84%D8%AA%D9%82%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8-1675020.html)
