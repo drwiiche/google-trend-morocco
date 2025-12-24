@@ -1,3 +1,10 @@
+### thierry breton états unis (N/A, Wed, 24 Dec 2025 11:20:00 -0800)
+
+- **Thierry Breton interdit de séjour aux Etats-Unis : l’UE condamne les sanctions contre cinq personnalités pour leur rôle dans la régulation de la tech**: [Link](https://www.lemonde.fr/pixels/article/2025/12/24/thierry-breton-interdit-de-sejour-aux-etats-unis-l-ue-condamne-les-sanctions-contre-cinq-personnalites-pour-leur-role-dans-la-regulation-de-la-tech_6659324_4408996.html)
+- **On vous explique les sanctions américaines visant cinq Européens engagés contre la désinformation, dont le Français Thierry Breton**: [Link](https://www.franceinfo.fr/monde/usa/presidentielle/donald-trump/on-vous-explique-les-sanctions-americaines-contre-cinq-europeens-engages-contre-la-desinformation-dont-le-francais-thierry-breton_7699549.html)
+- **"De l'intimidation": Emmanuel Macron dénonce la sanction américaine qui interdit de visa l'ex-commissaire européen Thierry Breton**: [Link](https://www.bfmtv.com/politique/elysee/de-l-intimidation-emmanuel-macron-denonce-la-sanction-americaine-qui-interdit-de-visa-l-ex-commissaire-europeen-thierry-breton_AD-202512240346.html)
+
+
 ### mbeumo (N/A, Wed, 24 Dec 2025 12:40:00 -0800)
 
 - **CAN 2025 : Yoane Wissa et Bryan Mbeumo, une source d'inspiration pour » Dango Ouattara**: [Link](https://www.bbc.com/afrique/articles/cx2dz3vy1l1o)
