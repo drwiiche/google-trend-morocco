@@ -1,3 +1,10 @@
+### côte d'ivoire – mozambique (N/A, Wed, 24 Dec 2025 08:40:00 -0800)
+
+- **CAN 2025 : Bryan Mbeumo, une première avec beaucoup d’excitation**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-bryan-mbeumo-une-premiere-avec-beaucoup-d-excitation/)
+- **Côte d’Ivoire : Yahia Fofana vise un nouveau sacre à la CAN**: [Link](https://www.footmercato.net/a6796517145298416261-cote-divoire-yahia-fofana-vise-un-nouveau-sacre-a-la-can)
+- **CAN 2025. «Nous allons gagner cette Coupe»: Abidjan rêve d’une 4e étoile**: [Link](https://afrique.le360.ma/sports/can-2025-nous-allons-gagner-cette-coupe-abidjan-reve-dune-4e-etoile_66NQU2IEQZALLL3IHAHTCWYY3A/)
+
+
 ### النصر ضد الزوراء (N/A, Wed, 24 Dec 2025 08:20:00 -0800)
 
 - **رونالدو يتصدر تشكيل النصر أمام الزوراء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B2%D9%88%D8%B1%D8%A7%D8%A1/blt74db3f0e104105f0)
