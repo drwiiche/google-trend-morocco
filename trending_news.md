@@ -1,3 +1,17 @@
+### thierry breton (N/A, Tue, 23 Dec 2025 23:40:00 -0800)
+
+- **US denies visas to ex-EU commissioner and others over social media rules**: [Link](https://www.bbc.com/news/articles/cp39kngz008o)
+- **State Department imposes sanctions on former EU official, disinformation group leaders for ‘censorship’**: [Link](https://www.cnn.com/2025/12/23/politics/sanctions-censorship-state-rubio)
+- **Announcement of Actions to Combat the Global Censorship-Industrial Complex**: [Link](https://www.state.gov/releases/office-of-the-spokesperson/2025/12/announcement-of-actions-to-combat-the-global-censorship-industrial-complex)
+
+
+### arsenal vs crystal palace (N/A, Tue, 23 Dec 2025 11:20:00 -0800)
+
+- **Arsenal beat Palace on penalties for place in EFL Cup semi-final**: [Link](https://www.bbc.com/sport/football/live/c0582m4n108t)
+- **Arsenal 1-1 Crystal Palace (8-7 on pens): Carabao Cup quarter-final – as it happened**: [Link](https://www.theguardian.com/football/live/2025/dec/23/arsenal-v-crystal-palace-carabao-cup-quarter-final-live)
+- **It’s going to be tough- Kepa Arrizabalaga on meeting Chelsea in Carabao Cup**: [Link](https://citisportsonline.com/2025/12/its-going-to-be-tough-kepa-arrizabalaga-on-meeting-chelsea-in-carabao-cup/)
+
+
 ### fenerbahçe (N/A, Tue, 23 Dec 2025 11:40:00 -0800)
 
 - **Gazeteci Adnan Bulut'tan Fenerbahçe camiasına ve Sadettin Saran'a 'seçim' çağrısı**: [Link](https://www.babaocagi.com/gazeteci-adnan-buluttan-fenerbahce-camiasina-ve-sadettin-sarana-secim-cagrisi)
