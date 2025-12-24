@@ -1,3 +1,10 @@
+### crash avion ankara (N/A, Wed, 24 Dec 2025 10:30:00 -0800)
+
+- **Mohammed Ali Ahmed Al-Haddad, le chef d’état-major libyen, meurt dans un accident d’avion en Turquie**: [Link](https://www.lemonde.fr/international/article/2025/12/24/le-chef-d-etat-major-libyen-meurt-dans-un-accident-d-avion-en-turquie_6659265_3211.html)
+- **Turquie : l’avion du chef d’état-major libyen s’est écrasé mardi soir près d’Ankara peu après son décollage**: [Link](https://www.lefigaro.fr/international/turquie-un-avion-transportant-le-chef-d-etat-major-de-l-armee-libyenne-disparait-au-dessus-d-ankara-20251223)
+- **Le chef d'état-major libyen est mort dans un accident d'avion après une visite en Turquie**: [Link](https://www.france24.com/fr/asie-pacifique/20251223-mort-chef-etat-major-libye-%C3%A9pave-avion-mohamed-al-haddad-turquie)
+
+
 ### cameroun – gabon (N/A, Wed, 24 Dec 2025 11:10:00 -0800)
 
 - **Mouyouma affiche ses ambitions : le Gabon rêve du dernier carré**: [Link](https://www.cafonline.com/fr/can2025/infos/mouyouma-affiche-ses-ambitions-le-gabon-reve-du-dernier-carre/)
