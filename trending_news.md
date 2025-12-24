@@ -1,3 +1,30 @@
+### tremblement de terre (N/A, Wed, 24 Dec 2025 15:00:00 -0800)
+
+- **"C’était terrifiant" : un séisme de magnitude 6,1 vient de frapper, le tremblement de terre a ravagé un magasin**: [Link](https://www.midilibre.fr/2025/12/24/un-seisme-de-magnitude-61-vient-de-frapper-un-nouveau-tremblement-de-terre-enregistre-en-mer-13129331.php)
+- **Un séisme secoue des bâtiments à Taipei, capitale de Taïwan - selon des témoins de Reuters**: [Link](https://www.zonebourse.com/actualite-bourse/un-seisme-secoue-des-batiments-a-taipei-capitale-de-taiwan-selon-des-temoins-de-reuters-ce7e59dadb8ffe20)
+- **Taiwan : Un séisme de magnitude 6 frappe le pays**: [Link](https://www.aa.com.tr/fr/monde/taiwan-un-s%C3%A9isme-de-magnitude-6-frappe-le-pays/3779706)
+
+
+### meknes (N/A, Wed, 24 Dec 2025 15:00:00 -0800)
+
+- **CAN-Maroc 2025 : l'artisanat marocain présent en force**: [Link](https://fr.hespress.com/455199-can-maroc-2025-lartisanat-marocain-present-en-force.html)
+- **CAN 2025 : Casablanca déploie un dispositif de sécurité sans précédent sous le signe de l'excellence technologique**: [Link](https://medias24.com/2025/12/24/can-2025-casablanca-deploie-un-dispositif-de-securite-sans-precedent-sous-le-signe-de-lexcellence-technologique-1602045/)
+- **CAN 2025 : Bank Al-Maghrib émet une pièce et un billet commémoratifs**: [Link](https://ledesk.ma/encontinu/can-2025-bank-al-maghrib-emet-une-piece-et-un-billet-commemoratifs/)
+
+
+### earthquake (N/A, Wed, 24 Dec 2025 14:50:00 -0800)
+
+- **Light mag. 3.0 earthquake - Draa-Tafilalet, 5.4 km northwest of Meknes, Fes-Meknes, Morocco, on Wednesday, Dec 24, 2025, at 11:43 pm (GMT +1)**: [Link](https://www.volcanodiscovery.com/earthquakes/quake-info/22539025/quake-felt-Dec-24-2025-Near-Meknes-Fes-Meknes-Morocco.html)
+- **Weak mag. 2.8 earthquake - Alboran Sea, 19 km west of Al Hoceima, Tanger-Tetouan-Al Hoceima, Morocco, on Monday, Dec 22, 2025, at 11:36 pm (GMT +1)**: [Link](https://www.volcanodiscovery.com/earthquakes/quake-info/22532529/quake-felt-Dec-22-2025-Near-Malaga-Andalusia-Spain.html)
+
+
+### زلزال (N/A, Wed, 24 Dec 2025 14:50:00 -0800)
+
+- **زلزال بقوة 6.1 درجات يضرب تايوان**: [Link](https://www.hespress.com/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-6-1-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%AA%D8%A7%D9%8A%D9%88%D8%A7%D9%86-1676283.html)
+- **6 درجات على مقياس ريختر.. و10 درجات على مقياس الإهمال السياسي للأمن الزلزالي في تايوان**: [Link](https://elmanshar.com/2025/12/24/6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D9%8A%D8%A7%D8%B3-%D8%B1%D9%8A%D8%AE%D8%AA%D8%B1-%D9%8810-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D9%8A%D8%A7/)
+- **زلزال بقوة 6.1 درجات يضرب جنوب شرقي تايوان**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-61-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%AC%D9%86%D9%88%D8%A8-%D8%B4%D8%B1%D9%82%D9%8A-%D8%AA%D8%A7%D9%8A%D9%88%D8%A7%D9%86/3779726)
+
+
 ### thierry breton états unis (N/A, Wed, 24 Dec 2025 11:20:00 -0800)
 
 - **Thierry Breton interdit de séjour aux Etats-Unis : l’UE condamne les sanctions contre cinq personnalités pour leur rôle dans la régulation de la tech**: [Link](https://www.lemonde.fr/pixels/article/2025/12/24/thierry-breton-interdit-de-sejour-aux-etats-unis-l-ue-condamne-les-sanctions-contre-cinq-personnalites-pour-leur-role-dans-la-regulation-de-la-tech_6659324_4408996.html)
