@@ -1,3 +1,31 @@
+### النصر ضد الزوراء (N/A, Wed, 24 Dec 2025 08:20:00 -0800)
+
+- **رونالدو يتصدر تشكيل النصر أمام الزوراء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B2%D9%88%D8%B1%D8%A7%D8%A1/blt74db3f0e104105f0)
+- **جيسوس يشيد بمنشأة النصر ويعلن مشاركة رونالدو أمام الزوراء**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D9%85%D9%86%D8%B4%D8%A3%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B2%D9%88%D8%B1%D8%A7%D8%A1-103778)
+- **النصر ضد الزوراء بدوري أبطال آسيا.. الموعد والقنوات الناقلة والتشكيلتان المتوقعتان**: [Link](https://www.aljazeera.net/sport/2025/12/24/%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B2%D9%88%D8%B1%D8%A7%D8%A1-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7)
+
+
+### al-nassr vs al-zawraa (N/A, Wed, 24 Dec 2025 08:10:00 -0800)
+
+- **Is Cristiano Ronaldo playing today for Al Nassr vs Al Zawraa in 2025 AFC Champions League Two Matchday 6?**: [Link](https://bolavip.com/en/soccer/is-cristiano-ronaldo-playing-today-for-al-nassr-vs-al-zawraa-in-2025-afc-champions-league-two-matchday-6)
+- **Ronaldo doubtful for Al-Nassr's Christmas Eve clash amid injury concerns**: [Link](https://www.besoccer.com/new/ronaldo-doubtful-for-al-nassr-s-christmas-eve-clash-amid-injury-concerns-1387053)
+- **How & Where to Watch Al Nassr vs Al Zawraa? Live Streaming & TV Channels for AFC Champions League Two**: [Link](https://athlonsports.com/soccer/where-watch-al-nassr-al-zawraa-live-streaming-tv-channels-afc-champions-league-two)
+
+
+### listes électorales (N/A, Wed, 24 Dec 2025 08:10:00 -0800)
+
+- **Municipales 2026 : on connaît les dates pour déposer les candidatures dans la Manche**: [Link](https://www.francebleu.fr/infos/elections/municipales-2026-on-connait-les-dates-pour-deposer-les-candidatures-dans-la-manche-9271174)
+- **Citoyenneté : inscription sur les listes électorales**: [Link](https://www.expressions-venissieux.fr/2025-12-17-citoyennete-inscription-sur-les-listes-electorales/)
+- **Elections municipales 2026 : bien préparer le scrutin d'un point de vue juridico-pratique**: [Link](https://www.courrierdesmaires.fr/article/elections-municipales-2026-bien-preparer-le-scrutin-d-un-point-de-vue-juridico-pratique.59531)
+
+
+### mahrez (N/A, Wed, 24 Dec 2025 07:10:00 -0800)
+
+- **CAN 2025: Riyad Mahrez claims a new record with Algeria**: [Link](https://foot-africa.com/en/news/can-2025-riyad-mahrez-claims-a-new-record-with-algeria-1015688/)
+- **Algeria and Sudan to meet for the first time at TotalEnergies CAF AFCON finals on Wednesday**: [Link](https://www.cafonline.com/afcon2025/news/algeria-and-sudan-to-meet-for-the-first-time-at-totalenergies-caf-afcon-finals-on-wednesday/)
+- **Algeria vs Sudan: CAF Africa Cup of Nations stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cy072zkn8d3t)
+
+
 ### visa thierry breton (N/A, Wed, 24 Dec 2025 08:00:00 -0800)
 
 - **'Witch hunt': Ex-EU commissioner Breton denounces U.S. visa ban targeting 'censorship'**: [Link](https://www.cnbc.com/2025/12/24/us-bans-visas-for-ex-eu-commissioner-over-alleged-censorship.html)
