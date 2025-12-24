@@ -1,3 +1,37 @@
+### lucas zidane (N/A, Wed, 24 Dec 2025 07:20:00 -0800)
+
+- **"Mon père était derrière moi", Luca Zidane se confie sur le soutien de sa famille quant à son choix de représenter l'Algérie**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/mon-pere-etait-derriere-moi-luca-zidane-se-confie-sur-le-soutien-de-sa-famille-quant-a-son-choix-de-representer-l-algerie_AV-202512240396.html)
+- **Quelle CAN pour Luca Zidane ?**: [Link](https://www.beinsports.com/fr-fr/football/2025-coupe-d-afrique-des-nations/articles/quelle-can-pour-luca-zidane-2025-12-24)
+- **Algérie : Zidane, le gros pari de Petkovic**: [Link](https://www.football365.fr/algerie-zidane-le-gros-pari-de-petkovic-10271201.html)
+
+
+### football match maroc (N/A, Wed, 24 Dec 2025 07:20:00 -0800)
+
+- **CAN 2025 : la pluie, l’invité surprise qui agace les fans mais réjouit le peuple**: [Link](https://www.footmercato.net/a3015760954934588178-can-2025-la-pluie-linvite-surprise-qui-agace-les-fans-mais-rejouit-le-peuple)
+- **CAN 2025 : Bank Al-Maghrib émet une pièce et un billet commémoratifs**: [Link](https://ledesk.ma/encontinu/can-2025-bank-al-maghrib-emet-une-piece-et-un-billet-commemoratifs/)
+- **À Casablanca, ILOLI réinvente la CAN 2025 comme une expérience culturelle et gastronomique**: [Link](https://fr.le360.ma/lifestyle/a-casablanca-iloli-reinvente-la-can-2025-comme-une-experience-culturelle-et-gastronomique_HMHPQQNZY5FUZPVIDNKJURBOUU/)
+
+
+### argelia - sudán (N/A, Wed, 24 Dec 2025 07:10:00 -0800)
+
+- **Bounedjah elogia la acogida de Marruecos a la selección argelina en la Copa África**: [Link](https://es.rue20.com/2025/12/23/bounedjah-elogia-la-acogida-de-marruecos-a-la-seleccion-argelina-en-la-copa-africa/)
+- **Argelia comienza su camino en la Copa Africana de Naciones enfrentando a Sudán en Rabat**: [Link](https://www.tesaaworld.com/es/news/algeria-begins-its-journey-in-the-africa-cup-of-nations-against-sudan-in-rabat)
+- **Copa África: hoy, cuatro partidos en el calendario; abre Argelia-Sudán**: [Link](https://www.todomercadoweb.es/futbol-internacional/copa-africa-hoy-cuatro-partidos-en-el-calendario-abre-argelia-sudan-532290)
+
+
+### luca zidane (N/A, Wed, 24 Dec 2025 06:50:00 -0800)
+
+- **Why Does Zidane’s Son, Luca Zidane, Play for Algeria at AFCON 2025?**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/why-does-zidane-s-son-luca-zidane-play-for-algeria-at-afcon-2025-2025-12-24)
+- **CAN 2025 - Algeria: Luca Zidane makes a promise ahead of Sudan clash**: [Link](https://foot-africa.com/en/news/can-2025-algeria-luca-zidane-makes-a-promise-ahead-of-sudan-clash-1015478/)
+
+
+### cote d'ivoire (N/A, Wed, 24 Dec 2025 06:40:00 -0800)
+
+- **CAN 2025 : Bryan Mbeumo, une première avec beaucoup d’excitation**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-bryan-mbeumo-une-premiere-avec-beaucoup-d-excitation/)
+- **Côte d’Ivoire : Yahia Fofana vise un nouveau sacre à la CAN**: [Link](https://www.footmercato.net/a6796517145298416261-cote-divoire-yahia-fofana-vise-un-nouveau-sacre-a-la-can)
+- **CAN 2025. «Nous allons gagner cette Coupe»: Abidjan rêve d’une 4e étoile**: [Link](https://afrique.le360.ma/sports/can-2025-nous-allons-gagner-cette-coupe-abidjan-reve-dune-4e-etoile_66NQU2IEQZALLL3IHAHTCWYY3A/)
+
+
 ### بوركينا فاسو (N/A, Wed, 24 Dec 2025 06:40:00 -0800)
 
 - **بوركينا فاسو تستهل مشوارها بملاقاة غينيا الاستوائية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-%D8%AA%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87%D8%A7-%D8%A8%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%88%D8%A7%D8%A6%D9%8A%D8%A9-2025-12-24)
