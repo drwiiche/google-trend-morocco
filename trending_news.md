@@ -1,3 +1,10 @@
+### arsenal vs (N/A, Tue, 23 Dec 2025 14:40:00 -0800)
+
+- **Arsenal vs. Brighton & Hove Albion - Boxscore - Live Score - December 27, 2025**: [Link](https://www.foxsports.com/soccer/premier-league-arsenal-vs-brighton-dec-27-2025-game-boxscore-626857?tab=boxscore)
+- **Arsenal vs. Brighton EPL Picks: Gunners Favored to Extend Advantage at Summit (Dec 27)**: [Link](https://www.offshoresportsbooks.com/picks/soccer/2025/arsenal-vs-brighton-picks-odds-preview-dec-27/)
+- **Arsenal vs Brighton Prediction: Will Gunners’ Grip on Top Spot Be Tested?**: [Link](https://theanalyst.com/articles/arsenal-vs-brighton-prediction-premier-league-12-2025)
+
+
 ### thierry breton (N/A, Tue, 23 Dec 2025 23:40:00 -0800)
 
 - **US denies visas to ex-EU commissioner and others over social media rules**: [Link](https://www.bbc.com/news/articles/cp39kngz008o)
