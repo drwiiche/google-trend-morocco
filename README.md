@@ -1,3 +1,10 @@
+### الكاميرون ضد الغابون (N/A, Wed, 24 Dec 2025 12:30:00 -0800)
+
+- **مبومو يعيش حماسه الأول في كأس أمم إفريقيا: « لحظة انتظرتها طويلاً »**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D9%88%D9%85%D9%88-%D9%8A%D8%B9%D9%8A%D8%B4-%D8%AD%D9%85%D8%A7%D8%B3%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%86%D8%AA%D8%B8%D8%B1%D8%AA%D9%87%D8%A7-%D8%B7%D9%88%D9%8A%D9%84%D8%A7/)
+- **الكاميرون ضد الغابون بكأس أفريقيا.. الموعد والقنوات الناقلة والتشكيلتان المتوقعتان**: [Link](https://www.aljazeera.net/sport/2025/12/23/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86)
+- **مبومو يحمل آمال الكاميرون بالنهوض من كبوة المونديال نحو لقب إفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A8%D9%88%D9%85%D9%88-%D9%8A%D8%AD%D9%85%D9%84-%D8%A7%D9%93%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%A8%D8%A7%D9%84%D9%86%D9%87%D9%88%D8%B6-%D9%85%D9%86-%D9%83%D8%A8%D9%88%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%86%D8%AD%D9%88-%D9%84%D9%82%D8%A8-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt94a624e0ada54f9b)
+
+
 ### cameroon vs gabon (N/A, Wed, 24 Dec 2025 11:50:00 -0800)
 
 - **Cameroon vs Gabon: Central African rivals clash in Agadir**: [Link](https://www.cafonline.com/afcon2025/news/cameroon-vs-gabon-central-african-rivals-clash-in-agadir/)
