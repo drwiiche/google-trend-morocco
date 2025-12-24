@@ -1,3 +1,24 @@
+### burkina faso vs (N/A, Wed, 24 Dec 2025 05:30:00 -0800)
+
+- **Burkina Faso – Equatorial Guinea: An early clash among ambitious sides**: [Link](https://www.cafonline.com/afcon2025/news/burkina-faso-equatorial-guinea-an-early-clash-among-ambitious-sides/)
+- **Dan Childs fancies Burkina Faso to see off Equatorial Guinea in their Africa Cup of Nations clash**: [Link](https://www.racingpost.com/sport/football-tips/africa-cup-of-nations/football-bet-of-the-day-dan-childs-fancies-burkina-faso-to-see-off-equatorial-guinea-in-their-africa-cup-of-nations-clash-avBZR9C52EnC/)
+- **AFCON 2025 Preview: Burkina Faso vs Eq Guinea**: [Link](https://sportnewsafrica.com/en/posts/afcon-2025-preview-burkina-faso-vs-eq-guinea)
+
+
+### match d'algérie can (N/A, Wed, 24 Dec 2025 05:30:00 -0800)
+
+- **«On parle le même dialecte, on a la même culture, on se ressemble» : Algérie et Maroc, liés par le foot mais séparés par la politique**: [Link](https://www.lequipe.fr/Football/Article/Algeriens-et-marocains-lies-par-le-foot-et-la-culture-mais-separes-par-la-politique/1629201)
+- **Algérie-Soudan: à quelle heure et sur quelle chaîne voir le match du groupe E de la CAN 2025?**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/algerie-soudan-a-quelle-heure-et-sur-quelle-chaine-voir-le-match-du-groupe-e-de-la-can-2025_AV-202512240225.html)
+- **Pour les supporteurs algériens, difficile d’assister à la CAN au Maroc**: [Link](https://www.courrierinternational.com/article/football-pour-les-supporteurs-algeriens-difficile-d-assister-a-la-can-au-maroc_238769)
+
+
+### burkina faso – guinée équatoriale (N/A, Wed, 24 Dec 2025 03:50:00 -0800)
+
+- **DIRECT. Burkina Faso-Guinée équatoriale: les Etalons les plus dangereux grâce à Bertrand Traoré**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-can-2025-burkina-faso-guinee-equatoriale-suivez-en-live-le-match-du-groupe-e_LS-202512240338.html)
+- **Juan Micha : « La Guinée équatoriale vise une CAN réussie »**: [Link](https://www.cafonline.com/fr/can2025/infos/juan-micha-la-guinee-equatoriale-vise-une-can-reussie/)
+- **Dayo : « J'ai grandi en tant que joueur au Maroc et le destin a peut-être voulu que je vienne soulever la Coupe d'Afrique ici**: [Link](https://m.elbotola.com/fr/article/2025-12-23-16-59-679.html)
+
+
 ### burkina faso (N/A, Wed, 24 Dec 2025 04:10:00 -0800)
 
 - **Juan Micha : « La Guinée équatoriale vise une CAN réussie »**: [Link](https://www.cafonline.com/fr/can2025/infos/juan-micha-la-guinee-equatoriale-vise-une-can-reussie/)
