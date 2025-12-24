@@ -1,3 +1,10 @@
+### طقس طنجة (N/A, Tue, 23 Dec 2025 21:50:00 -0800)
+
+- **اضطراب جوي قوي يهم عدداً من مناطق المغرب والأرصاد تدعو إلى الحذر**: [Link](https://www.hespress.com/%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D8%AC%D9%88%D9%8A-%D9%82%D9%88%D9%8A-%D9%8A%D9%87%D9%85-%D8%B9%D8%AF%D8%AF%D8%A7%D9%8B-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1675589.html)
+- **أزيد من 54 ألف كيلومتر مربع.. المساحة الإجمالية للثلوج بالمغرب**: [Link](https://www.marrakechalaan.com/article-657449)
+- **الحسين يوعابد: التساقطات الثلجية غطّت أزيد من 50 ألف كيلومتر مربع وتشكل مخزونًا مائيًا حيويًا لتحسين الوضعية المائية**: [Link](https://www.anfaspress.com/index.php/news/voir/163111-2025-12-23-05-30-12)
+
+
 ### nigeria tanzanie (N/A, Tue, 23 Dec 2025 10:00:00 -0800)
 
 - **AFCON Matchday 3: Lookman’s swift reply seals Nigeria win, Senegal cruise past Botswana, DR Congo edge Benin**: [Link](https://www.cafonline.com/afcon2025/news/afcon-matchday-3-lookman-s-swift-reply-seals-nigeria-win-senegal-cruise-past-botswana-dr-congo-edge-benin/)
