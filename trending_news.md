@@ -1,3 +1,17 @@
+### cameroon vs gabon (N/A, Wed, 24 Dec 2025 11:50:00 -0800)
+
+- **Cameroon vs Gabon: Central African rivals clash in Agadir**: [Link](https://www.cafonline.com/afcon2025/news/cameroon-vs-gabon-central-african-rivals-clash-in-agadir/)
+- **United Star: My Family Feels Proud of My Participation in the Africa Cup**: [Link](https://www.sadanews.ps/en/news/260692.html)
+- **Cameroon vs Gabon: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/272851/cameroon-vs-gabon-when-and-how-to-watch-afcon-game/)
+
+
+### cameroun (N/A, Wed, 24 Dec 2025 11:30:00 -0800)
+
+- **CAN 2025 : le programme des matchs d’aujourd’hui mercredi 24 décembre avec l’Algérie, la Côte d’Ivoire et le Cameroun**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matchs-daujourdhui-mercredi-24-decembre-avec-lalgerie-la-cote-divoire-et-le-cameroun-24-12-2025-ATLAHJGZQJHEDJLBI2MHXQL5GY.php)
+- **CAN 2025 : les quatre affiches à suivre ce mercredi 24 décembre**: [Link](https://mobile.telquel.ma/2025/12/24/can-2025-les-quatre-affiches-a-suivre-ce-mercredi-24-decembre_1967034)
+- **Récap’ CAN - 23 décembre : journée de feu et d’instinct**: [Link](https://medias24.com/2025/12/24/recap-can-23-decembre-journee-de-feu-et-dinstinct-1601819/)
+
+
 ### crash avion ankara (N/A, Wed, 24 Dec 2025 10:30:00 -0800)
 
 - **Mohammed Ali Ahmed Al-Haddad, le chef d’état-major libyen, meurt dans un accident d’avion en Turquie**: [Link](https://www.lemonde.fr/international/article/2025/12/24/le-chef-d-etat-major-libyen-meurt-dans-un-accident-d-avion-en-turquie_6659265_3211.html)
