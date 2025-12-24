@@ -1,3 +1,10 @@
+### fenerbahçe (N/A, Tue, 23 Dec 2025 11:40:00 -0800)
+
+- **Gazeteci Adnan Bulut'tan Fenerbahçe camiasına ve Sadettin Saran'a 'seçim' çağrısı**: [Link](https://www.babaocagi.com/gazeteci-adnan-buluttan-fenerbahce-camiasina-ve-sadettin-sarana-secim-cagrisi)
+- **Cem Küçük uyuşturucu operasyonu için kilit ismi verdi: Türkiye’nin en büyüklerinin varislerine uzanacak**: [Link](https://aktifhaber.com/genel/cem-kucuk-uyusturucu-operasyonu-icin-kilit-ismi-verdi-turkiyenin-en-buyuklerinin-varislerine-uzanacak.html)
+- **Sadettin Saran’ın kokain testi pozitif çıktı**: [Link](https://medyascope.tv/2025/12/24/sadettin-saranin-kokain-testi-pozitif-cikti/)
+
+
 ### طقس تطوان (N/A, Tue, 23 Dec 2025 23:20:00 -0800)
 
 - **اضطراب جوي قوي يهم عدداً من مناطق المغرب والأرصاد تدعو إلى الحذر**: [Link](https://www.hespress.com/%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D8%AC%D9%88%D9%8A-%D9%82%D9%88%D9%8A-%D9%8A%D9%87%D9%85-%D8%B9%D8%AF%D8%AF%D8%A7%D9%8B-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1675589.html)
