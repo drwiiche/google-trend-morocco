@@ -1,3 +1,10 @@
+### algérie – soudan (N/A, Wed, 24 Dec 2025 06:10:00 -0800)
+
+- **«On parle le même dialecte, on a la même culture, on se ressemble» : Algérie et Maroc, liés par le foot mais séparés par la politique**: [Link](https://www.lequipe.fr/Football/Article/Algeriens-et-marocains-lies-par-le-foot-et-la-culture-mais-separes-par-la-politique/1629201)
+- **DIRECT. Algérie-Soudan: suivez le match du groupe E de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-algerie-soudan-suivez-le-match-du-groupe-e-de-la-can-2025-en-live_LS-202512240321.html)
+- **Pour les supporteurs algériens, difficile d’assister à la CAN au Maroc**: [Link](https://www.courrierinternational.com/article/football-pour-les-supporteurs-algeriens-difficile-d-assister-a-la-can-au-maroc_238769)
+
+
 ### match aujourd'hui can (N/A, Wed, 24 Dec 2025 05:50:00 -0800)
 
 - **CAN 2025 : qu’est-ce que la technologie SubAir qui permet au terrain de rester sec malgré les pluies torrentielles à Rabat**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-quest-ce-que-la-technologie-subair-qui-permet-au-terrain-de-rester-sec-malgre-les-pluies-torrentielles-a-rabat-24-12-2025-GAGCPEYDIVAAVJ5364B4SJJMVA.php)
