@@ -1,3 +1,17 @@
+### الزلزال (N/A, Wed, 24 Dec 2025 15:40:00 -0800)
+
+- **زلزال بقوة 6.1 درجات يضرب تايوان**: [Link](https://www.hespress.com/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-6-1-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%AA%D8%A7%D9%8A%D9%88%D8%A7%D9%86-1676283.html)
+- **6 درجات على مقياس ريختر.. و10 درجات على مقياس الإهمال السياسي للأمن الزلزالي في تايوان**: [Link](https://elmanshar.com/2025/12/24/6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D9%8A%D8%A7%D8%B3-%D8%B1%D9%8A%D8%AE%D8%AA%D8%B1-%D9%8810-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D9%8A%D8%A7/)
+- **زلزال بقوة 6.1 درجات يضرب جنوب شرقي تايوان**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-61-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%AC%D9%86%D9%88%D8%A8-%D8%B4%D8%B1%D9%82%D9%8A-%D8%AA%D8%A7%D9%8A%D9%88%D8%A7%D9%86/3779726)
+
+
+### séisme (N/A, Wed, 24 Dec 2025 15:40:00 -0800)
+
+- **Séisme au Maroc : secousse dans la région de Fès-Meknès**: [Link](https://industries.ma/seisme-au-maroc-secousse-dans-la-region-de-fes-meknes/)
+- **Une secousse sismique de magnitude 3 enregistrée près de Meknès**: [Link](https://fr.le360.ma/societe/une-secousse-sismique-de-magnitude-3-enregistree-pres-de-meknes_QHOAU3QDDVAATHPDMSAOP3WHTU/)
+- **"C’était terrifiant" : un séisme de magnitude 6,1 vient de frapper, le tremblement de terre a ravagé un magasin**: [Link](https://www.midilibre.fr/2025/12/24/un-seisme-de-magnitude-61-vient-de-frapper-un-nouveau-tremblement-de-terre-enregistre-en-mer-13129331.php)
+
+
 ### tremblement de terre (N/A, Wed, 24 Dec 2025 15:00:00 -0800)
 
 - **"C’était terrifiant" : un séisme de magnitude 6,1 vient de frapper, le tremblement de terre a ravagé un magasin**: [Link](https://www.midilibre.fr/2025/12/24/un-seisme-de-magnitude-61-vient-de-frapper-un-nouveau-tremblement-de-terre-enregistre-en-mer-13129331.php)
