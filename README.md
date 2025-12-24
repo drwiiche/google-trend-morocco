@@ -1,3 +1,10 @@
+### algeria (N/A, Wed, 24 Dec 2025 07:40:00 -0800)
+
+- **Algeria passes law declaring French colonisation a crime**: [Link](https://www.theguardian.com/world/2025/dec/24/algeria-passes-law-declaring-french-colonisation-crime)
+- **Algeria Advances Bill Demanding France Atone for 130-Year Occupation**: [Link](https://www.bloomberg.com/news/articles/2025-12-24/algeria-advances-bill-demanding-france-atone-for-130-year-occupation)
+- **Algeria bill seeks to criminalise French colonial rule: What to know**: [Link](https://www.aljazeera.com/news/2025/12/21/algeria-bill-seeks-to-criminalise-french-colonial-rule-what-to-know)
+
+
 ### لوكا زيدان (N/A, Wed, 24 Dec 2025 07:30:00 -0800)
 
 - **كيف سيؤدي لوكا زيدان مع الجزائر بكأس أفريقيا؟**: [Link](https://www.aljazeera.net/sport/2025/12/23/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
