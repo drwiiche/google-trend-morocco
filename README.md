@@ -1,3 +1,22 @@
+### لوكا زيدان (N/A, Wed, 24 Dec 2025 07:30:00 -0800)
+
+- **كيف سيؤدي لوكا زيدان مع الجزائر بكأس أفريقيا؟**: [Link](https://www.aljazeera.net/sport/2025/12/23/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **ماندريا حارس في الدرجة الثالثة وفريقه في المركز العاشر! – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D9%85%D8%A7%D9%86%D8%AF%D8%B1%D9%8A%D8%A7-%D8%AD%D8%A7%D8%B1%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%88%D9%81%D8%B1%D9%8A%D9%82%D9%87)
+- **فيديو - 📍موفد قناة البلاد "وليد رايسي": "لوكا زيدان سيكون الحارس الأساسي للخضر في مواجهة المنتخب السوداني"**: [Link](https://www.elbilad.net/videos/%F0%9F%93%8D%D9%85%D9%88%D9%81%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D9%88%D9%84%D9%8A%D8%AF-%D8%B1%D8%A7%D9%8A%D8%B3%D9%8A-%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D8%B3%D9%8A%D9%83%D9%88%D9%86-%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A-%D9%84%D9%84%D8%AE%D8%B6%D8%B1-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A)
+
+
+### bein sport max 1 (N/A, Wed, 24 Dec 2025 07:30:00 -0800)
+
+
+
+
+### sudan (N/A, Wed, 24 Dec 2025 07:20:00 -0800)
+
+- **The Secretary-General of the Arab League Welcomes the "Sudanese Peace Initiative"**: [Link](https://www.sadanews.ps/en/news/260634.html)
+- **France strongly condemns the systematic violence inflicted on civilians**: [Link](https://onu.delegfrance.org/france-strongly-condemns-the-systematic-violence-inflicted-on-civilians)
+- **CNN speaks to Sudan’s Prime Minister amid ceasefire push**: [Link](https://www.cnn.com/2025/12/23/world/video/sudan-latest-kamil-idris-intv-122312pseg1-cnni-world-fast)
+
+
 ### lucas zidane (N/A, Wed, 24 Dec 2025 07:20:00 -0800)
 
 - **"Mon père était derrière moi", Luca Zidane se confie sur le soutien de sa famille quant à son choix de représenter l'Algérie**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/mon-pere-etait-derriere-moi-luca-zidane-se-confie-sur-le-soutien-de-sa-famille-quant-a-son-choix-de-representer-l-algerie_AV-202512240396.html)
