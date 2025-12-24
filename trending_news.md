@@ -1,3 +1,10 @@
+### météo (N/A, Tue, 23 Dec 2025 22:50:00 -0800)
+
+- **Météo. La météo du mercredi 24 décembre 2025 à Beaupréau et ses environs**: [Link](https://www.ouest-france.fr/meteo/pays-de-la-loire/beaupreau-en-mauges-49600/la-meteo-du-jour-a-beaupreau-en-mauges-08624b20-ada0-471f-8619-03d409b0369c)
+- **Alerte météo: 12 provinces sont en alerte orange avec des pluies attendues (40 à 70 mm) entre mardi et mercredi**: [Link](https://medias24.com/2025/12/23/alerte-meteo-12-provinces-sont-en-alerte-orange-avec-des-pluies-attendues-40-a-70-mm-entre-mardi-et-mercredi-1601407/)
+- **Pluies, orages et neige : La DGM appelle à la prudence sur les routes**: [Link](https://fr.hespress.com/455237-pluies-orages-et-neige-la-dgm-appelle-a-la-prudence-sur-les-routes.html)
+
+
 ### آرسنال ضد كريستال بالاس (N/A, Tue, 23 Dec 2025 11:20:00 -0800)
 
 - **ركلات الترجيح تمنح آرسنال بطاقة دور الأربعة على حساب كريستال بالاس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B1%D9%83%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A%D8%AD-%D8%AA%D9%85%D9%86%D8%AD-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A9-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3/blta457adff0476fff3)
