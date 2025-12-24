@@ -1,3 +1,10 @@
+### christmas (N/A, Wed, 24 Dec 2025 10:30:00 -0800)
+
+- **Santa Claus flying across the globe to deliver gifts**: [Link](https://www.cnn.com/2025/12/24/world/video/norad-santa-tracker-maj-jennifer-derenzis-intv-122411aseg1-cnni-world-fast)
+- **We're chatting with NORAD as they track Santa’s progress around the globe!**: [Link](https://www.cbsnews.com/gooddaysacramento/video/were-chatting-with-norad-as-they-track-santas-progress-around-the-globe/)
+- **Santa tracker 2025: Follow his Christmas Eve trip using NORAD, Google**: [Link](https://www.usatoday.com/story/news/nation/2025/12/24/santa-tracker-2025-norad-google/87901243007/)
+
+
 ### amad diallo (N/A, Wed, 24 Dec 2025 10:10:00 -0800)
 
 - **AFCON2025: Amad Thrilled for First AFCON participation**: [Link](https://en.africatopsports.com/2025/12/18/afcon2025-amad-thrilled-for-first-afcon-participation/)
