@@ -1,3 +1,10 @@
+### visa thierry breton (N/A, Wed, 24 Dec 2025 08:00:00 -0800)
+
+- **'Witch hunt': Ex-EU commissioner Breton denounces U.S. visa ban targeting 'censorship'**: [Link](https://www.cnbc.com/2025/12/24/us-bans-visas-for-ex-eu-commissioner-over-alleged-censorship.html)
+- **‘Undermines free speech’: Labour MP hits back at US government over visa ban on UK campaigners**: [Link](https://www.theguardian.com/technology/2025/dec/24/undermines-free-speech-labour-mp-hits-back-at-us-government-over-visa-related-sanctions)
+- **UK campaigners among five denied US visas**: [Link](https://www.bbc.com/news/articles/cp39kngz008o)
+
+
 ### algeria (N/A, Wed, 24 Dec 2025 07:40:00 -0800)
 
 - **Algeria passes law declaring French colonisation a crime**: [Link](https://www.theguardian.com/world/2025/dec/24/algeria-passes-law-declaring-french-colonisation-crime)
