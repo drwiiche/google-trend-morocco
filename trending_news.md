@@ -1,3 +1,10 @@
+### matchs de coupe d'afrique des nations de football (N/A, Wed, 24 Dec 2025 09:40:00 -0800)
+
+- **CAN 2025 : la pluie, l’invité surprise qui agace les fans mais réjouit le peuple**: [Link](https://www.footmercato.net/a3015760954934588178-can-2025-la-pluie-linvite-surprise-qui-agace-les-fans-mais-rejouit-le-peuple)
+- **CAN 2025 : Casablanca déploie un dispositif de sécurité sans précédent sous le signe de l'excellence technologique**: [Link](https://medias24.com/2025/12/24/can-2025-casablanca-deploie-un-dispositif-de-securite-sans-precedent-sous-le-signe-de-lexcellence-technologique-1602045/)
+- **“AGL Moving Tour” : la logistique au service du sport pendant la CAN**: [Link](https://telquel.ma/sponsors/agl-moving-tour-la-logistique-au-service-du-sport-pendant-la-can_1966935)
+
+
 ### mozambique (N/A, Wed, 24 Dec 2025 09:30:00 -0800)
 
 - **Franck Kessié: “We are ready to defend our title”**: [Link](https://www.cafonline.com/afcon2025/news/franck-kessie-we-are-ready-to-defend-our-title/)
