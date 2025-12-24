@@ -1,3 +1,10 @@
+### nigeria tanzanie (N/A, Tue, 23 Dec 2025 10:00:00 -0800)
+
+- **AFCON Matchday 3: Lookman’s swift reply seals Nigeria win, Senegal cruise past Botswana, DR Congo edge Benin**: [Link](https://www.cafonline.com/afcon2025/news/afcon-matchday-3-lookman-s-swift-reply-seals-nigeria-win-senegal-cruise-past-botswana-dr-congo-edge-benin/)
+- **Nigeria 2-1 Tanzania: Ademola Lookman strike helps Super Eagles win Afcon 2025 opener**: [Link](https://www.bbc.com/sport/football/live/cyvg2erqj93t)
+- **Five things we learned on Day 3: Big cats growl as a birthday boy creeks**: [Link](https://www.rfi.fr/en/sports/20251224-five-things-we-learned-on-day-3-big-cats-growl-as-a-birthday-boy-creeks)
+
+
 ### météo pour demain (N/A, Tue, 23 Dec 2025 11:50:00 -0800)
 
 - **Les prévisions météo pour ce mardi 23 décembre**: [Link](https://medias24.com/2025/12/22/les-previsions-meteo-pour-ce-mardi-23-decembre-1601331/)
