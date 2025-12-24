@@ -1,3 +1,10 @@
+### algerie vs soudan (N/A, Wed, 24 Dec 2025 02:10:00 -0800)
+
+- **Vladimir Petkovic: “The past is an experience, not a burden”**: [Link](https://www.cafonline.com/afcon2025/news/vladimir-petkovic-the-past-is-an-experience-not-a-burden/)
+- **«We're happy to be in Morocco», says Algeria captain ahead of AFCON opener**: [Link](https://en.yabiladi.com/articles/details/184154/we-re-happy-morocco-says-algeria.html)
+- **CAN 2025: Four matches on Wednesday's schedule**: [Link](https://foot-africa.com/en/news/can-2025-four-matches-on-wednesdays-schedule-1015127/)
+
+
 ### arsenal vs (N/A, Tue, 23 Dec 2025 14:40:00 -0800)
 
 - **Arsenal vs. Brighton & Hove Albion - Boxscore - Live Score - December 27, 2025**: [Link](https://www.foxsports.com/soccer/premier-league-arsenal-vs-brighton-dec-27-2025-game-boxscore-626857?tab=boxscore)
