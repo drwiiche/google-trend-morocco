@@ -1,3 +1,10 @@
+### طقس تطوان (N/A, Tue, 23 Dec 2025 23:20:00 -0800)
+
+- **اضطراب جوي قوي يهم عدداً من مناطق المغرب والأرصاد تدعو إلى الحذر**: [Link](https://www.hespress.com/%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D8%AC%D9%88%D9%8A-%D9%82%D9%88%D9%8A-%D9%8A%D9%87%D9%85-%D8%B9%D8%AF%D8%AF%D8%A7%D9%8B-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1675589.html)
+- **مقاييس الأمطار المسجلة بالمغرب خلال الـ24 ساعة الماضية**: [Link](https://lakome2.com/flash-infos/403254/)
+- **الحسين يوعابد: التساقطات الثلجية غطّت أزيد من 50 ألف كيلومتر مربع وتشكل مخزونًا مائيًا حيويًا لتحسين الوضعية المائية**: [Link](https://www.anfaspress.com/index.php/news/voir/163111-2025-12-23-05-30-12)
+
+
 ### météo (N/A, Tue, 23 Dec 2025 22:50:00 -0800)
 
 - **Météo. La météo du mercredi 24 décembre 2025 à Beaupréau et ses environs**: [Link](https://www.ouest-france.fr/meteo/pays-de-la-loire/beaupreau-en-mauges-49600/la-meteo-du-jour-a-beaupreau-en-mauges-08624b20-ada0-471f-8619-03d409b0369c)
