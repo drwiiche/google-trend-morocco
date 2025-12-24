@@ -1,3 +1,24 @@
+### amad diallo (N/A, Wed, 24 Dec 2025 10:10:00 -0800)
+
+- **AFCON2025: Amad Thrilled for First AFCON participation**: [Link](https://en.africatopsports.com/2025/12/18/afcon2025-amad-thrilled-for-first-afcon-participation/)
+- **Morocco is on Amad time: Watch Diallo bringing the vibes to the national team**: [Link](https://tribuna.com/en/blogs/morocco-is-on-amad-time-watch-diallo-bringing-the-vibes-to-t/)
+- **MATCH STATS: Côte d’Ivoire vs Mozambique – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group F**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-cote-d-ivoire-vs-mozambique-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-f/)
+
+
+### ساحل العاج ضد موزمبيق (N/A, Wed, 24 Dec 2025 09:50:00 -0800)
+
+- **كوت ديفوار تسعى إلى تفادي المفاجآت عندما تواجه موزمبيق**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%83%D9%88%D8%AA-%D8%AF%D9%8A%D9%81%D9%88%D8%A7%D8%B1-%D8%AA%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%AA%D9%81%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82-2025-12-24)
+- **كوت ديفوار × موزمبيق: حامل اللقب يفتتح حملة الدفاع عن لقبه**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D8%AA-%D8%AF%D9%8A%D9%81%D9%88%D8%A7%D8%B1-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82-%D8%AD%D8%A7%D9%85%D9%84-%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%AD%D9%85%D9%84%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%B9%D9%86-%D9%84%D9%82%D8%A8%D9%87/)
+- **كأس إفريقيا 2025: يحيى فوفانا يرفع السقف… «نريد النجمة الرابعة»**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%8A%D8%AD%D9%8A%D9%89-%D9%81%D9%88%D9%81%D8%A7%D9%86%D8%A7-%D9%8A%D8%B1%D9%81%D8%B9-%D8%A7%D9%84%D8%B3%D9%82%D9%81-%D9%86%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%86%D8%AC%D9%85%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9/13446)
+
+
+### ibrahim maza (N/A, Wed, 24 Dec 2025 09:50:00 -0800)
+
+- **„Sein Name ist eine große Bürde“**: [Link](https://sportbild.bild.de/fussball/internationaler-fussball/afrika-cup-mit-zidane-sohn-mahrez-sein-name-ist-eine-grosse-buerde-694b2324ba368aa0126a2481)
+- **Afrikacup: Algerien nicht nur im Fokus der ÖFB-Scouts**: [Link](https://sport.orf.at/stories/3149196/)
+- **Algerien beginnt seinen Weg im Afrika-Cup mit einem Spiel gegen Sudan in Rabat**: [Link](https://www.tesaaworld.com/de/news/algeria-begins-its-journey-in-the-africa-cup-of-nations-against-sudan-in-rabat)
+
+
 ### matchs de coupe d'afrique des nations de football (N/A, Wed, 24 Dec 2025 09:40:00 -0800)
 
 - **CAN 2025 : la pluie, l’invité surprise qui agace les fans mais réjouit le peuple**: [Link](https://www.footmercato.net/a3015760954934588178-can-2025-la-pluie-linvite-surprise-qui-agace-les-fans-mais-rejouit-le-peuple)
