@@ -1,3 +1,17 @@
+### بوركينا فاسو ضد غينيا الاستوائية (N/A, Wed, 24 Dec 2025 06:30:00 -0800)
+
+- **بوركينا فاسو تستهل مشوارها بملاقاة غينيا الاستوائية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-%D8%AA%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87%D8%A7-%D8%A8%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%88%D8%A7%D8%A6%D9%8A%D8%A9-2025-12-24)
+- **دايو: "كبرت كلاعب في المغرب وربما يكون القدر قد شاء أن آتي لأرفع كأس أفريقيا هنا"**: [Link](https://m.elbotola.com/article/2025-12-23-16-59-145.html)
+- **مدرب بوركينا فاسو: نريد كتابة التاريخ**: [Link](https://www.hesport.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-%D9%86%D8%B1%D9%8A%D8%AF-%D9%83%D8%AA%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-419242.html)
+
+
+### algeria vs sudan (N/A, Wed, 24 Dec 2025 05:00:00 -0800)
+
+- **Algeria and Sudan to meet for the first time at TotalEnergies CAF AFCON finals on Wednesday**: [Link](https://www.cafonline.com/afcon2025/news/algeria-and-sudan-to-meet-for-the-first-time-at-totalenergies-caf-afcon-finals-on-wednesday/)
+- **Mahrez: "Happy to be in Morocco, We Feel a True Brotherly Spirit Here"**: [Link](https://m.elbotola.com/en/article/2025-12-23-10-13-279.html)
+- **LIVE: AFCON 2025 - 24 December 2025**: [Link](https://africanfootball.com/news/834377/LIVE-AFCON-2025-24-December-2025)
+
+
 ### algérie – soudan (N/A, Wed, 24 Dec 2025 06:10:00 -0800)
 
 - **«On parle le même dialecte, on a la même culture, on se ressemble» : Algérie et Maroc, liés par le foot mais séparés par la politique**: [Link](https://www.lequipe.fr/Football/Article/Algeriens-et-marocains-lies-par-le-foot-et-la-culture-mais-separes-par-la-politique/1629201)
