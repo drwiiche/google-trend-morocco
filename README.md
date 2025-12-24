@@ -1,3 +1,10 @@
+### mozambique (N/A, Wed, 24 Dec 2025 09:30:00 -0800)
+
+- **Franck Kessié: “We are ready to defend our title”**: [Link](https://www.cafonline.com/afcon2025/news/franck-kessie-we-are-ready-to-defend-our-title/)
+- **Ivory Coast v Mozambique live: Afcon 2025 updates**: [Link](https://www.independent.co.uk/sport/football/ivory-coast-mozambique-afcon-2025-live-updates-b2890079.html)
+- **CAN 2025 - Côte d'Ivoire: "We want that fourth star," says Yahia Fofana**: [Link](https://foot-africa.com/en/news/can-2025-cote-divoire-we-want-that-fourth-star-says-yahia-fofana-1015526/)
+
+
 ### côte d'ivoire – mozambique (N/A, Wed, 24 Dec 2025 08:40:00 -0800)
 
 - **CAN 2025 : Bryan Mbeumo, une première avec beaucoup d’excitation**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-bryan-mbeumo-une-premiere-avec-beaucoup-d-excitation/)
