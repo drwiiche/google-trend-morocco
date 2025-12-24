@@ -1,3 +1,10 @@
+### cameroun – gabon (N/A, Wed, 24 Dec 2025 11:10:00 -0800)
+
+- **Mouyouma affiche ses ambitions : le Gabon rêve du dernier carré**: [Link](https://www.cafonline.com/fr/can2025/infos/mouyouma-affiche-ses-ambitions-le-gabon-reve-du-dernier-carre/)
+- **Cameroun-Gabon, compos : le nouveau sélectionneur David Pagou change tout !**: [Link](https://www.football365.fr/cameroun-gabon-compos-le-nouveau-selectionneur-david-pagou-change-tout-10271270.html)
+- **PRONOS PARIS RMC Le pari du jour du 24 décembre – CAN**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-24-decembre-can_AN-202512240013.html)
+
+
 ### cameroun gabon (N/A, Wed, 24 Dec 2025 09:50:00 -0800)
 
 - **Mouyouma affiche ses ambitions : le Gabon rêve du dernier carré**: [Link](https://www.cafonline.com/fr/can2025/infos/mouyouma-affiche-ses-ambitions-le-gabon-reve-du-dernier-carre/)
