@@ -1,3 +1,17 @@
+### burkina faso (N/A, Wed, 24 Dec 2025 04:10:00 -0800)
+
+- **Juan Micha : « La Guinée équatoriale vise une CAN réussie »**: [Link](https://www.cafonline.com/fr/can2025/infos/juan-micha-la-guinee-equatoriale-vise-une-can-reussie/)
+- **Dayo : « J'ai grandi en tant que joueur au Maroc et le destin a peut-être voulu que je vienne soulever la Coupe d'Afrique ici**: [Link](https://m.elbotola.com/fr/article/2025-12-23-16-59-679.html)
+- **Burkina Faso - Guinée Équatoriale : heure, chaîne TV... Sur quelle chaîne regarder le match à la télévision ou en streaming ?**: [Link](https://www.onzemondial.com/can/burkina-faso-guinee-equatoriale-heure-chaine-tv-sur-quelle-chaine-regarder-le-match-a-la-television-ou-en-streaming-972384)
+
+
+### ملء السدود بالمغرب (N/A, Wed, 24 Dec 2025 01:10:00 -0800)
+
+- **ارتفاع الموارد المائية بعدد من سدود المملكة خلال الـ 24 ساعة الماضية**: [Link](https://www.maadialna.ma/ar/artfa-almward-almayyt-bdd-mn-sdwd-almmlkt-khlal-al-24-sat-almadyt-3)
+- **الأمطار تبشر بتحسين إنتاج الحبوب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%A8%D8%B4%D8%B1-%D8%A8%D8%AA%D8%AD%D8%B3%D9%8A%D9%86-%D8%A5%D9%86%D8%AA%D8%A7%D8%AC-%D8%A7%D9%84%D8%AD%D8%A8%D9%88%D8%A8-1675833.html)
+- **هل نجح موسم 2025 في كسر سلسلة الجفاف بالمغرب؟ العيسات مصطفى يجيب 2M.ma**: [Link](https://2m.ma/ar/news/%D9%87%D9%84-%D9%86%D8%AC%D8%AD-%D9%85%D9%88%D8%B3%D9%85-2025-%D9%81%D9%8A-%D9%83%D8%B3%D8%B1-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%A7%D9%84%D8%AC%D9%81%D8%A7%D9%81-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B9%D9%8A%D8%B3%D8%A7%D8%AA-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D9%8A%D8%AC%D9%8A%D8%A8-20251222)
+
+
 ### كأس امم افريقيا (N/A, Wed, 24 Dec 2025 02:50:00 -0800)
 
 - **رياض محرز: والدتي مغربية وهكذا سأرد على الانتقادات**: [Link](https://www.aljazeera.net/sport/2025/12/23/%D8%B1%D9%8A%D8%A7%D8%B6-%D9%85%D8%AD%D8%B1%D8%B2-%D9%88%D8%A7%D9%84%D8%AF%D8%AA%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%B3%D8%A3%D8%B1%D8%AF-%D8%B9%D9%84%D9%89)
