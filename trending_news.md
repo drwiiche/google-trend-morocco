@@ -1,3 +1,17 @@
+### match aujourd'hui can (N/A, Wed, 24 Dec 2025 05:50:00 -0800)
+
+- **CAN 2025 : qu’est-ce que la technologie SubAir qui permet au terrain de rester sec malgré les pluies torrentielles à Rabat**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-quest-ce-que-la-technologie-subair-qui-permet-au-terrain-de-rester-sec-malgre-les-pluies-torrentielles-a-rabat-24-12-2025-GAGCPEYDIVAAVJ5364B4SJJMVA.php)
+- **“AGL Moving Tour” : la logistique au service du sport pendant la CAN**: [Link](https://telquel.ma/sponsors/agl-moving-tour-la-logistique-au-service-du-sport-pendant-la-can_1966935)
+- **À Casablanca, ILOLI réinvente la CAN 2025 comme une expérience culturelle et gastronomique**: [Link](https://fr.le360.ma/lifestyle/a-casablanca-iloli-reinvente-la-can-2025-comme-une-experience-culturelle-et-gastronomique_HMHPQQNZY5FUZPVIDNKJURBOUU/)
+
+
+### algerie soudan (N/A, Wed, 24 Dec 2025 05:40:00 -0800)
+
+- **«On parle le même dialecte, on a la même culture, on se ressemble» : Algérie et Maroc, liés par le foot mais séparés par la politique**: [Link](https://www.lequipe.fr/Football/Article/Algeriens-et-marocains-lies-par-le-foot-et-la-culture-mais-separes-par-la-politique/1629201)
+- **DIRECT. Algérie-Soudan: suivez le match du groupe E de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-algerie-soudan-suivez-le-match-du-groupe-e-de-la-can-2025-en-live_LS-202512240321.html)
+- **Pour les supporteurs algériens, difficile d’assister à la CAN au Maroc**: [Link](https://www.courrierinternational.com/article/football-pour-les-supporteurs-algeriens-difficile-d-assister-a-la-can-au-maroc_238769)
+
+
 ### الجزائر ضد السودان (N/A, Wed, 24 Dec 2025 04:50:00 -0800)
 
 - **مواجهة مرتقبة بين الجزائر والسودان**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-2025-12-24)
