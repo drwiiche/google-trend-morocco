@@ -1,3 +1,17 @@
+### mbeumo (N/A, Wed, 24 Dec 2025 12:40:00 -0800)
+
+- **CAN 2025 : Yoane Wissa et Bryan Mbeumo, une source d'inspiration pour » Dango Ouattara**: [Link](https://www.bbc.com/afrique/articles/cx2dz3vy1l1o)
+- **Côte d'Ivoire-Mozambique: les Eléphants, tenants du titre, réussissent leur entrée en lice**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-cote-d-ivoire-mozambique-suivez-le-match-du-groupe-f-de-la-can-2025-en-live_LS-202512240444.html)
+- **CAN 2025 : Bryan Mbeumo, une première avec beaucoup d’excitation**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-bryan-mbeumo-une-premiere-avec-beaucoup-d-excitation/)
+
+
+### taux de remplissage des barrages maroc (N/A, Wed, 24 Dec 2025 12:40:00 -0800)
+
+- **Barrages : le taux de remplissage au 23 décembre**: [Link](https://ecoactu.ma/barrages-le-taux-de-remplissage-au-23-decembre/)
+- **Inondations : 482 millions de m³ en dix jours, 48 projets lancés ou réalisés, l’État accélère le tempo**: [Link](https://ledesk.ma/2025/12/23/inondations-482-millions-de-m%C2%B3-en-dix-jours-48-projets-lances-ou-realises-letat-accelere-le-tempo/)
+- **Barrages au 24 décembre 2025 : 113,66 Mm³ de plus en 24h**: [Link](https://medias24.com/2025/12/24/barrages-au-24-decembre-2025-11366-mm%C2%B3-de-plus-en-24h-1601895/)
+
+
 ### الكاميرون ضد الغابون (N/A, Wed, 24 Dec 2025 12:30:00 -0800)
 
 - **مبومو يعيش حماسه الأول في كأس أمم إفريقيا: « لحظة انتظرتها طويلاً »**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D9%88%D9%85%D9%88-%D9%8A%D8%B9%D9%8A%D8%B4-%D8%AD%D9%85%D8%A7%D8%B3%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%86%D8%AA%D8%B8%D8%B1%D8%AA%D9%87%D8%A7-%D8%B7%D9%88%D9%8A%D9%84%D8%A7/)
