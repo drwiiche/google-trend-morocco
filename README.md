@@ -1,3 +1,10 @@
+### احوال الطقس (N/A, Wed, 24 Dec 2025 23:00:00 -0800)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-60-1676635.html)
+- **أجواء شتوية غير مستقرة الى غاية يوم الأربعاء**: [Link](https://2m.ma/ar/news/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%AA%D9%82%D8%B1%D8%A9-%D8%A7%D9%84%D9%89-%D8%BA%D8%A7%D9%8A%D8%A9-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-20251223)
+- **مقاييس الأمطار المسجلة بالمغرب خلال الـ24 ساعة الماضية**: [Link](https://lakome2.com/flash-infos/403455/)
+
+
 ### bryan mbeumo (N/A, Wed, 24 Dec 2025 12:50:00 -0800)
 
 - **AFCON2025: Amad Thrilled for First AFCON participation**: [Link](https://en.africatopsports.com/2025/12/18/afcon2025-amad-thrilled-for-first-afcon-participation/)
