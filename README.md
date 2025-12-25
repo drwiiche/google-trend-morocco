@@ -1,3 +1,10 @@
+### listes électorales ma (N/A, Thu, 25 Dec 2025 02:20:00 -0800)
+
+- **Listes électorales générales 2026 : derniers jours pour s’inscrire ou mettre à jour sa situation**: [Link](https://medias24.com/2025/12/25/listes-electorales-generale-2026-derniers-jours-pour-sinscrire-ou-mettre-a-jour-sa-situation-1602451/)
+- **Révision des listes électorales: la participation menacée par les dysfonctionnements de la plateforme numérique**: [Link](https://fr.le360.ma/politique/revision-des-listes-electorales-la-participation-menacee-par-les-dysfonctionnements-de-la-plateforme_XKZ4JAOHEZFIRI45TG3N5GUXVE/)
+- **Listes électorales : Les démarches à connaître pour voter en 2026**: [Link](https://lematin.ma/videos/listes-electorales-les-demarches-a-connaitre-pour-voter-en-2026/321146)
+
+
 ### virements bancaires (N/A, Thu, 25 Dec 2025 13:30:00 -0800)
 
 - **Blocages des virements interbancaires : pourquoi vous ne pourrez pas faire de transferts jusqu’à lundi 29 décembre**: [Link](https://www.lemonde.fr/argent/article/2025/12/25/blocages-des-virements-interbancaires-pourquoi-vous-ne-pourrez-pas-faire-de-transferts-jusqu-a-lundi-29-decembre_6659367_1657007.html)
