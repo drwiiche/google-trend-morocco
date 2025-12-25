@@ -1,3 +1,10 @@
+### virements bancaires (N/A, Thu, 25 Dec 2025 13:30:00 -0800)
+
+- **Blocages des virements interbancaires : pourquoi vous ne pourrez pas faire de transferts jusqu’à lundi 29 décembre**: [Link](https://www.lemonde.fr/argent/article/2025/12/25/blocages-des-virements-interbancaires-pourquoi-vous-ne-pourrez-pas-faire-de-transferts-jusqu-a-lundi-29-decembre_6659367_1657007.html)
+- **Pourquoi votre salaire risque d'être versé avec du retard en cette fin de mois**: [Link](https://www.dhnet.be/actu/belgique/2025/12/25/pourquoi-votre-salaire-risque-detre-verse-avec-du-retard-en-cette-fin-de-mois-3FKLZ5DTJ5CRPCWUHX2U3IAFTA/)
+- **En Europe, les transferts bancaires classiques sont suspendus jusqu’à lundi.**: [Link](https://israelvalley.com/2025/12/25/en-europe-les-transferts-bancaires-classiques-sont-suspendus-jusqua-lundi/)
+
+
 ### demain nous appartient (N/A, Thu, 25 Dec 2025 08:20:00 -0800)
 
 - **Demain nous appartient (DNA)**: [Link](https://www.tf1.fr/tf1/demain-nous-appartient)
