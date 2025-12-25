@@ -1,3 +1,10 @@
+### ram (N/A, Thu, 25 Dec 2025 02:30:00 -0800)
+
+- **Sandeep Reddy Vanga Says Ranveer Singh's Dhurandhar Carries "Masculine Spine", Aditya Dhar Reacts**: [Link](https://www.ndtv.com/entertainment/sandeep-reddy-vanga-says-ranveer-singhs-dhurandhar-carries-masculine-spine-aditya-dhar-reacts-9853228)
+- **Ram Gopal Varma says industry ignoring 'Dhurnadhar' as it feels threatened by it | Bollywood**: [Link](https://www.hindustantimes.com/entertainment/bollywood/ram-gopal-varma-says-industry-ignoring-dhurnadhar-as-it-feels-threatened-by-it-101766651734349.html)
+- **Arjun Rampal REACTS to Preity Zinta’s ‘Dhurandhar’ praise; says, 'Will verbatim convey our conversation'**: [Link](https://timesofindia.indiatimes.com/entertainment/hindi/bollywood/news/arjun-rampal-reacts-to-preity-zintas-dhurandhar-praise-says-will-verbatim-convey-our-conversation/articleshow/126054900.cms)
+
+
 ### seisme fes meknes (N/A, Thu, 25 Dec 2025 02:10:00 -0800)
 
 - **Séisme au Maroc : secousse dans la région de Fès-Meknès**: [Link](https://industries.ma/seisme-au-maroc-secousse-dans-la-region-de-fes-meknes/)
