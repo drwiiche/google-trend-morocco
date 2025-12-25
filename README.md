@@ -1,3 +1,10 @@
+### مباريات اليوم كأس أفريقيا 2025 (N/A, Thu, 25 Dec 2025 05:50:00 -0800)
+
+- **مدافع "الأسود": جاهزون للتحدي القاري**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%AC%D8%A7%D9%87%D8%B2%D9%88%D9%86-%D9%84%D9%84%D8%AA%D8%AD%D8%AF%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A-1676882.html)
+- **الركراكي يتحدث عن إصابة أكرد ومشاركة حكيمي ضد مالي**: [Link](https://www.aljazeera.net/sport/2025/12/25/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%83%D8%B1%D8%AF-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **ما القنوات الناقلة لمباراة المغرب ومالي في كأس أمم إفريقيا 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%85%D8%A7%D9%84%D9%8A-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt79b40371f370b445)
+
+
 ### match maroc mali (N/A, Thu, 25 Dec 2025 05:50:00 -0800)
 
 - **CAN 2025, Maroc : Walid Regragui fait passer un gros message avant d’affronter le Mali**: [Link](https://www.footmercato.net/a6781944831724401516-can-2025-maroc-walid-regragui-fait-passer-un-gros-message-avant-daffronter-le-mali)
