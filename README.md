@@ -1,3 +1,10 @@
+### morocco vs mali (N/A, Thu, 25 Dec 2025 04:40:00 -0800)
+
+- **MATCH STATS: Morocco vs Mali – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group A**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-morocco-vs-mali-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-a/)
+- **Mbappe, Dembele Could Attend Morocco-Mali AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/272964/mbappe-dembele-could-attend-morocco-mali-afcon-game/)
+- **El Aynaoui: "We Made the Nation Proud in the Opening Match and Aim for a Good Result Against Mali"**: [Link](https://m.elbotola.com/en/article/2025-12-25-09-03-282.html)
+
+
 ### مباريات اليوم كأس أفريقيا 2025 (N/A, Thu, 25 Dec 2025 05:50:00 -0800)
 
 - **مدافع "الأسود": جاهزون للتحدي القاري**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%AC%D8%A7%D9%87%D8%B2%D9%88%D9%86-%D9%84%D9%84%D8%AA%D8%AD%D8%AF%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A-1676882.html)
