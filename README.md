@@ -1,3 +1,10 @@
+### الفنانة ريهام عبدالغفور (N/A, Thu, 25 Dec 2025 10:00:00 -0800)
+
+- **لقطة محرجة وتحرك رسمي.. تفريغ الكاميرات لكشف مصور ريهام عبد الغفور**: [Link](https://www.alarabiya.net/culture-and-art/2025/12/24/%D9%84%D9%82%D8%B7%D8%A9-%D9%85%D8%AD%D8%B1%D8%AC%D8%A9-%D9%88%D8%AA%D8%AD%D8%B1%D9%83-%D8%B1%D8%B3%D9%85%D9%8A-%D8%AA%D9%81%D8%B1%D9%8A%D8%BA-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D8%A7%D8%AA-%D9%84%D9%83%D8%B4%D9%81-%D9%85%D8%B5%D9%88%D8%B1-%D8%B1%D9%8A%D9%87%D8%A7%D9%85-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%BA%D9%81%D9%88%D8%B1-)
+- **في أول تعليق لها بعد الأزمة.. ريهام عبدالغفور: القانون يفرض ضوابط صارمة على تصوير الفنانين**: [Link](https://www.okaz.com.sa/culture/art/2228169)
+- **ريهام عبد الغفور.. صورة الفنانة المصرية تحدث جدلا ونقابة المهن التمثيلية تتحرك**: [Link](https://www.bbc.com/arabic/articles/cgexl9d3wlwo)
+
+
 ### iphone 18 pro max (N/A, Thu, 25 Dec 2025 09:40:00 -0800)
 
 - **iPhone 18 Release Date: Is It Really Just Weeks Away, As New Report Claims?**: [Link](https://www.forbes.com/sites/davidphelan/2025/12/25/iphone-18-release-date-months-sooner-than-expected-new-report-claims/)
