@@ -1,3 +1,10 @@
+### bryan mbeumo (N/A, Wed, 24 Dec 2025 12:50:00 -0800)
+
+- **AFCON2025: Amad Thrilled for First AFCON participation**: [Link](https://en.africatopsports.com/2025/12/18/afcon2025-amad-thrilled-for-first-afcon-participation/)
+- **Morocco is on Amad time: Watch Diallo bringing the vibes to the national team**: [Link](https://tribuna.com/en/blogs/morocco-is-on-amad-time-watch-diallo-bringing-the-vibes-to-t/)
+- **AFCON 2025 Matchday 4: Cameroon secure historic win, Cote d'Ivoire begin title defence with victory, Burkina late revival stuns Equatorial Guinea**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-matchday-4-cameroon-secure-historic-win-cote-divoire-begin-title-defence-with-victory-burkina-late-revival-stuns-equatorial-guinea/)
+
+
 ### طقس (N/A, Wed, 24 Dec 2025 22:50:00 -0800)
 
 - **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-60-1676635.html)
