@@ -1,3 +1,10 @@
+### stranger things season 5 (N/A, Thu, 25 Dec 2025 15:20:00 -0800)
+
+- **'Stranger Things' Episodes to Watch Before Volume II Arrives Tonight**: [Link](https://parade.com/tv/stranger-things-episodes-before-volume-2)
+- **Stranger Things 5 part 2 UK release date and time confusion, explained (when it really comes out)**: [Link](https://www.imdb.com/de/news/ni65633145/?ref_=nm_nwr_2)
+- **Returning to the Upside Down One Last Time: Stranger Things Fans’ Craziest Theories Volume Two**: [Link](https://enloenews.org/8781/features/returning-to-the-upside-down-one-last-time-stranger-things-fans-craziest-theories-volume-two/)
+
+
 ### listes électorales ma (N/A, Thu, 25 Dec 2025 02:20:00 -0800)
 
 - **Listes électorales générales 2026 : derniers jours pour s’inscrire ou mettre à jour sa situation**: [Link](https://medias24.com/2025/12/25/listes-electorales-generale-2026-derniers-jours-pour-sinscrire-ou-mettre-a-jour-sa-situation-1602451/)
