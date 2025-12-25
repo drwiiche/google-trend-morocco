@@ -1,3 +1,10 @@
+### جدول مباريات كأس أفريقيا 2025 pdf (N/A, Thu, 25 Dec 2025 04:10:00 -0800)
+
+- **جدول مباريات اليوم الإثنين 22 ديسمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-22-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt023ec502f6443702)
+- **ابرز الاحداث الرياضية ليوم الاحد في 21-12-2025**: [Link](https://www.elsport.com/news/show/804862/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF-21-12-2025)
+- **صدامات قوية في الليغا والبريميرليغ.. جدول مباريات اليوم الأحد 21 ديسمبر 2025**: [Link](https://www.arrajol.com/content/392941/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B5%D8%AF%D8%A7%D9%85%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D9%88%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-21-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025)
+
+
 ### ram (N/A, Thu, 25 Dec 2025 02:30:00 -0800)
 
 - **Sandeep Reddy Vanga Says Ranveer Singh's Dhurandhar Carries "Masculine Spine", Aditya Dhar Reacts**: [Link](https://www.ndtv.com/entertainment/sandeep-reddy-vanga-says-ranveer-singhs-dhurandhar-carries-masculine-spine-aditya-dhar-reacts-9853228)
