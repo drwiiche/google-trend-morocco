@@ -1,3 +1,10 @@
+### seisme meknes (N/A, Wed, 24 Dec 2025 15:20:00 -0800)
+
+- **Séisme au Maroc : secousse dans la région de Fès-Meknès**: [Link](https://industries.ma/seisme-au-maroc-secousse-dans-la-region-de-fes-meknes/)
+- **Séisme faible mag. 3.3 - Draa-Tafilalet, 15 km au nord de Meknès, Fes-Meknes, Maroc, mercredi, 24 déc. 2025, à 23:43 (GMT +1)**: [Link](https://www.volcanodiscovery.com/fr/seismes/info-seisme/22539025/quake-felt-Dec-24-2025-Near-Meknes-Fes-Meknes-Morocco.html)
+- **Une secousse sismique de magnitude 3 enregistrée près de Meknès**: [Link](https://fr.le360.ma/societe/une-secousse-sismique-de-magnitude-3-enregistree-pres-de-meknes_QHOAU3QDDVAATHPDMSAOP3WHTU/)
+
+
 ### زلزال اليوم المغرب (N/A, Wed, 24 Dec 2025 14:50:00 -0800)
 
 - **عاجل/ هزة أرضية خفيفة بمكناس ونواحيها**: [Link](https://madar21.com/395169.html)
