@@ -1,3 +1,17 @@
+### seisme fes meknes (N/A, Thu, 25 Dec 2025 02:10:00 -0800)
+
+- **Séisme au Maroc : secousse dans la région de Fès-Meknès**: [Link](https://industries.ma/seisme-au-maroc-secousse-dans-la-region-de-fes-meknes/)
+- **Une secousse de 4,1 degrés ressentie à Meknès, l’Institut de géophysique rassure**: [Link](https://telquel.ma/instant-t/2025/12/25/une-secousse-de-41-degres-ressentie-a-meknes-linstitut-de-geophysique-rassure_1967246/)
+- **La terre a tremblé ce jeudi à Meknès**: [Link](https://www.lesiteinfo.com/maroc/663127-la-terre-a-tremble-ce-jeudi-a-meknes.html)
+
+
+### pluribus (N/A, Thu, 25 Dec 2025 01:40:00 -0800)
+
+- **'Pluribus' Finale Explained; Vince Gilligan Details Original Ending**: [Link](https://variety.com/2025/tv/news/pluribus-finale-explained-vince-gilligan-original-ending-1236616824/)
+- **Zosia Said ‘I’ in ‘Pluribus’ Episode 8… And It Changes Everything About Season 2**: [Link](https://www.fanbolt.com/162401/zosia-said-i-in-pluribus-episode-8-and-it-changes-everything-about-season-2/)
+- **‘Pluribus’ producer on the ‘heartbreaking’ finale, Carol and Zosia’s ‘ship name,’ and being ‘in a heated rivalry’ with ‘Heated Rivalry’ in the queer zeitgeist**: [Link](https://www.goldderby.com/tv/2025/gordon-smith-interview-pluribus-finale-carol-zosia-ship/)
+
+
 ### secousse sismique (N/A, Thu, 25 Dec 2025 00:00:00 -0800)
 
 - **Séisme au Maroc : secousse dans la région de Fès-Meknès**: [Link](https://industries.ma/seisme-au-maroc-secousse-dans-la-region-de-fes-meknes/)
