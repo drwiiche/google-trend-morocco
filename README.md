@@ -1,3 +1,10 @@
+### zinédine zidane (N/A, Wed, 24 Dec 2025 20:40:00 -0800)
+
+- **Zinédine Zidane présent en tribune pour assister aux débuts de son fils Luca à la CAN avec l'Algérie**: [Link](https://www.lequipe.fr/Football/Actualites/Can-2025-zinedine-zidane-present-en-tribunes-a-rabat-pour-assister-aux-debuts-de-son-fils-luca-avec-l-algerie-face-au-soudan/1629351)
+- **CAN 2025, Algérie : Luca Zidane a choqué tout le monde**: [Link](https://www.footmercato.net/a1845637560785724980-can-2025-algerie-luca-zidane-a-choque-tout-le-monde)
+- **"Zizou, Zizou!" Zinédine Zidane, star malgré lui d'Algérie-Soudan**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/zizou-zizou-zinedine-zidane-star-malgre-lui-d-algerie-soudan_AV-202512240473.html)
+
+
 ### seisme meknes (N/A, Wed, 24 Dec 2025 15:20:00 -0800)
 
 - **Séisme au Maroc : secousse dans la région de Fès-Meknès**: [Link](https://industries.ma/seisme-au-maroc-secousse-dans-la-region-de-fes-meknes/)
