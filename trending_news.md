@@ -1,3 +1,10 @@
+### iphone 18 pro max (N/A, Thu, 25 Dec 2025 09:40:00 -0800)
+
+- **iPhone 18 Release Date: Is It Really Just Weeks Away, As New Report Claims?**: [Link](https://www.forbes.com/sites/davidphelan/2025/12/25/iphone-18-release-date-months-sooner-than-expected-new-report-claims/)
+- **iPhone 18 Pro Max vs iPhone 18: Launch Date, Price, Specs, Design, Camera, and All Leaks**: [Link](https://www.indiaherald.com/Breaking/Read/994869618/iPhone-Pro-Max-vs-iPhone-Launch-Date-Price-Specs-Design-Camera-and-All-Leaks)
+- **Apple may bring these upgrades to iPhone 18 Pro next year: Check details**: [Link](https://www.business-standard.com/technology/tech-news/apple-may-bring-these-upgrades-to-iphone-18-pro-next-year-check-details-apple-18-pro-specs-125122400747_1.html)
+
+
 ### morocco vs mali (N/A, Thu, 25 Dec 2025 04:40:00 -0800)
 
 - **MATCH STATS: Morocco vs Mali – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group A**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-morocco-vs-mali-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-a/)
