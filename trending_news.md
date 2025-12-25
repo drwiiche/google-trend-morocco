@@ -1,3 +1,17 @@
+### match maroc mali (N/A, Thu, 25 Dec 2025 05:50:00 -0800)
+
+- **CAN 2025, Maroc : Walid Regragui fait passer un gros message avant d’affronter le Mali**: [Link](https://www.footmercato.net/a6781944831724401516-can-2025-maroc-walid-regragui-fait-passer-un-gros-message-avant-daffronter-le-mali)
+- **CAN 2025: Kylian Mbappé à Rabat pour Maroc-Mali?**: [Link](https://sport.le360.ma/football/can/can-2025-kylian-mbappe-a-rabat-pour-maroc-mali_PSJYAR5IG5C2VHDUFDBSUPBPQM/)
+- **CAN MAROC-2025: les Lions de l’Atlas intensifient le rythme de la préparation**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%84%D9%82%D8%A7-17/)
+
+
+### algérie football (N/A, Thu, 25 Dec 2025 00:20:00 -0800)
+
+- **CAN 2025. Échauffourées devant l’hôtel de l’Algérie suite à des distributions de billets gratuits**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-echauffourees-devant-lhotel-de-lalgerie-suite-a-des-distributions-de-billets-gratuits-1c9a29e6-e0e3-11f0-8231-0b73c898c870)
+- **« On est venus soutenir nos frères algériens » : à la CAN, loin des tensions politiques, la communion des Marocains avec les Fennecs**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/on-est-venus-soutenir-nos-freres-algeriens-loin-des-tensions-politiques-la-communion-des-marocains-avec-les-fennecs-24-12-2025-QMJ6GOD66JD63KWFH34W6CEHKI.php)
+- **Algérie : Maghnes Akliouche a célébré la victoire**: [Link](https://www.footmercato.net/a2538515915075693849-algerie-maghnes-akliouche-a-celebre-la-victoire)
+
+
 ### جدول مباريات كأس أفريقيا 2025 pdf (N/A, Thu, 25 Dec 2025 04:10:00 -0800)
 
 - **جدول مباريات اليوم الإثنين 22 ديسمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-22-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt023ec502f6443702)
