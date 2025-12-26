@@ -1,3 +1,24 @@
+### zambie – comores (N/A, Fri, 26 Dec 2025 08:40:00 -0800)
+
+- **DIRECT. Zambie-Comores (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/zambie-comores-live/670751)
+- **PRONOS PARIS RMC Le buteur du jour du 26 décembre – CAN**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-26-decembre-can_AN-202512250354.html)
+- **Zambie – Comores : Pas le droit à l’erreur**: [Link](https://www.cafonline.com/fr/can2025/infos/zambie-comores-pas-le-droit-a-l-erreur/)
+
+
+### زامبيا ضد جزر القمر (N/A, Fri, 26 Dec 2025 08:40:00 -0800)
+
+- **مدرب مالي قبل لقاء المغرب: مصدوم من قرار الكاف**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%A7%D9%84%D9%8A-%D9%82%D8%A8%D9%84-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B5%D8%AF%D9%88%D9%85-%D9%85%D9%86-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D9%83%D8%A7%D9%81/blt001f3aaf4af387da)
+- **زامبيا - جزر القمر: مباراة مُثيرة بشعار الخسارة ممنوعة**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D8%A7-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85-%D8%AB%D9%8A%D8%B1%D8%A9-%D8%A8%D8%B4%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%85%D9%85%D9%86%D9%88%D8%B9%D8%A9/)
+- **المنتخب الزامبي يفرض التعادل على نظيره المالي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B2%D8%A7%D9%85%D8%A8%D9%8A-%D9%8A%D9%81%D8%B1%D8%B6-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B9%D9%84%D9%89-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A-2025-12-22)
+
+
+### zambia vs comoros (N/A, Fri, 26 Dec 2025 08:40:00 -0800)
+
+- **Comoros look to revive Cameroon 2021 ‘magic’ against Zambia**: [Link](https://www.cafonline.com/afcon2025/news/comoros-look-to-revive-cameroon-2021-magic-against-zambia/)
+- **Comoros Coach: 'Morocco Had Only One Shot on Target in First Half; We Couldn't Play Brazilian Football Against Them'**: [Link](https://m.elbotola.com/en/article/2025-12-25-21-08-411.html)
+- **We want to progress to the next round – MaFasho**: [Link](https://zambianfootball.co.zm/we-want-to-progress-to-the-next-round-mafasho/)
+
+
 ### egypt fc (N/A, Fri, 26 Dec 2025 08:30:00 -0800)
 
 - **Barcelona face fresh resistance in negotiations to sign 17-year-old gem**: [Link](https://barcauniversal.com/barcelona-face-fresh-resistance-in-negotiations-to-sign-17-year-old-gem/)
