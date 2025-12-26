@@ -1,3 +1,23 @@
+### matchs de coupe d'afrique des nations de football (N/A, Fri, 26 Dec 2025 06:00:00 -0800)
+
+- **Maroc–Mali : un choc d’équilibres, entre maîtrise attendue et défi malien**: [Link](https://www.cafonline.com/fr/can2025/infos/maroc-mali-un-choc-d-equilibres-entre-maitrise-attendue-et-defi-malien/)
+- **En visite à la CAN, Kylian Mbappé est arrivé à Rabat**: [Link](https://www.lequipe.fr/Football/Actualites/En-visite-a-la-can-kylian-mbappe-est-arrive-a-rabat/1629418)
+- **CAN 2025: Kylian Mbappé à Rabat pour Maroc-Mali?**: [Link](https://sport.le360.ma/football/can/can-2025-kylian-mbappe-a-rabat-pour-maroc-mali_PSJYAR5IG5C2VHDUFDBSUPBPQM/)
+
+
+### afcon 2025 (N/A, Fri, 26 Dec 2025 06:00:00 -0800)
+
+- **Qatar Honors Morocco’s Security Efforts During 2025 Arab Cup Tournament**: [Link](https://www.moroccoworldnews.com/2025/12/272452/qatar-honors-moroccos-security-efforts-during-2025-arab-cup-tournament/)
+- **Morocco Inaugurates On-Site Judicial Offices at AFCON Stadiums**: [Link](https://www.assahifa.com/english/sport/morocco-inaugurates-on-site-judicial-offices-at-afcon-stadiums/)
+- **Interior Minister Meets Moroccan Counterpart**: [Link](https://menafn.com/1110502048/Interior-Minister-Meets-Moroccan-Counterpart)
+
+
+### al-fateh – al-ahli saudi (N/A, Fri, 26 Dec 2025 05:50:00 -0800)
+
+- **Al-Fateh vs Al-Ahli Saudi Prediction: Betting Tips and Match Preview: 26/12/2025**: [Link](https://dailystar.com.lb/al-fateh-vs-al-ahli-saudi-prediction-tips-preview/)
+- **Al Fateh vs Al Ahli Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-fateh-vs-al-ahli-preview-202512)
+
+
 ### mali vs maroc (N/A, Fri, 26 Dec 2025 05:30:00 -0800)
 
 - **En visite à la CAN, Kylian Mbappé est arrivé à Rabat**: [Link](https://www.lequipe.fr/Football/Actualites/En-visite-a-la-can-kylian-mbappe-est-arrive-a-rabat/1629418)
