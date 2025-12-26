@@ -1,3 +1,36 @@
+### ابراهيم دياز (N/A, Fri, 26 Dec 2025 12:50:00 -0800)
+
+- **إبراهيم دياز... رمز منتخب المغرب الواثق من قوته**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%B1%D9%85%D8%B2-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%88%D8%A7%D8%AB%D9%82-%D9%85%D9%86-%D9%82%D9%88%D8%AA%D9%87/)
+- **دياز: أتطلع لرد الجميل للجماهير المغربية**: [Link](https://www.hesport.com/%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A3%D8%AA%D8%B7%D9%84%D8%B9-%D9%84%D8%B1%D8%AF-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D9%84-%D9%84%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1-419611.html)
+- **دياز ينشر صورة مع المنتخب المغربي رفقة الأمير مولاي الحسن ويعلق: "حلم واحد.. وطن واحد"**: [Link](https://m.elbotola.com/article/2025-12-24-20-18-62.html)
+
+
+### 365 (N/A, Fri, 26 Dec 2025 12:50:00 -0800)
+
+- **'You can develop a lot in 365 days' | JMA Trojans' journey from losing record to state championship**: [Link](https://www.13wmaz.com/article/sports/high-school/hs-football/jma-trojans-journey-from-losing-record-to-state-championship/93-7536135d-e76d-4bda-9836-9a41992412a7)
+- **New Attack Technique "ConsentFix" Hijacks OAuth Consent Grants**: [Link](https://arcticwolf.com/resources/blog/new-attack-technique-consentfix-hijacks-oauth-consent-grants/)
+- **Russia-Linked Hackers Use Microsoft 365 Device Code Phishing for Account Takeovers**: [Link](https://thehackernews.com/2025/12/russia-linked-hackers-use-microsoft-365.html)
+
+
+### مبارة اليوم (N/A, Fri, 26 Dec 2025 12:50:00 -0800)
+
+
+
+
+### sir (N/A, Fri, 26 Dec 2025 12:50:00 -0800)
+
+- **Uttar Pradesh SIR: 2.89 crore voters to be deleted from electoral rolls**: [Link](https://www.newindianexpress.com/nation/2025/Dec/26/uttar-pradesh-sir-289-crore-names-to-be-deleted-from-electoral-rolls)
+- **Uttar Pradesh: BLO dies by suicide, family alleges work pressure linked to voter roll revision**: [Link](https://scroll.in/latest/1089597/uttar-pradesh-blo-dies-by-suicide-family-alleges-work-pressure-linked-to-voter-roll-revision)
+- **Powerlessness of the powerful bureaucrat | Hindustan Times**: [Link](https://www.hindustantimes.com/opinion/powerlessness-of-the-powerful-bureaucrat-101766501589408.html)
+
+
+### كورة (N/A, Fri, 26 Dec 2025 12:30:00 -0800)
+
+- **غوارديولا يؤكد تحسن حالة رودري ويحذر أرسنال: "نحن موجودون"**: [Link](https://m.elbotola.com/article/2025-12-26-20-24-976.html)
+- **هل يأكل كالدب؟ فيديو هالاند يفجر سخرية لاذعة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D9%84-%D9%8A%D8%A7%D9%94%D9%83%D9%84-%D9%83%D8%A7%D9%84%D8%AF%D8%A8-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D9%81%D8%AC%D8%B1-%D8%B3%D8%AE%D8%B1%D9%8A%D8%A9-%D9%84%D8%A7%D8%B0%D8%B9%D8%A9/blt1d9dfc7907698234)
+- **هدافو مانشستر سيتي و نوتنغهام فوريست**: [Link](https://hihi2.com/2025/12/26/p3573931.html)
+
+
 ### diaz (N/A, Fri, 26 Dec 2025 12:40:00 -0800)
 
 - **Bundesliga team of the season so far**: [Link](https://sports.yahoo.com/articles/bundesliga-team-season-far-131900579.html)
