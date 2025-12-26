@@ -1,3 +1,17 @@
+### حالة الطقس (N/A, Thu, 25 Dec 2025 22:40:00 -0800)
+
+- **درجات الحرارة اليوم الجمعة 26 ديسمبر.. أجواء شديدة البرودة وشبورة كثيفة**: [Link](https://www.youm7.com/story/2025/12/26/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-26-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%88%D8%B4%D8%A8%D9%88%D8%B1%D8%A9/7246784)
+- **أقل من 2 مئوية.. الأرصاد تحذر من طقس شديد البرودة وانخفاض ملحوظ في درجات الحرارة ليلاً**: [Link](https://www.msn.com/ar-eg/news/featured/%D8%A3%D9%82%D9%84-%D9%85%D9%86-2-%D9%85%D8%A6%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B7%D9%82%D8%B3-%D8%B4%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%88%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%85%D9%84%D8%AD%D9%88%D8%B8-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%84%D9%8A%D9%84%D8%A7%D9%8B/ar-AA1T1trp)
+- **تحذير شديد بشأن حالة الطقس اليوم : «افتحوا شبابيك العربية»**: [Link](https://www.almasryalyoum.com/news/details/4160341)
+
+
+### طقس مراكش (N/A, Thu, 25 Dec 2025 22:40:00 -0800)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-53-1677064.html)
+- **مقاييس الأمطار المسجلة بالمملكة خلال الـ 24 ساعة الماضية**: [Link](https://2m.ma/ar/news/%D9%85%D9%82%D8%A7%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%80-24-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A%D8%A9-20251225)
+- **أكثر من 41 ألف كلم مربع بالمغرب مغطاة بالثلوج البيضاء – اليوم 24**: [Link](https://alyaoum24.com/2000516.html)
+
+
 ### netflix (N/A, Thu, 25 Dec 2025 17:30:00 -0800)
 
 - **There have been 39 new Netflix movies in 2025 — here’s the 7 worth watching**: [Link](https://www.tomsguide.com/entertainment/netflix/there-have-been-39-new-netflix-movies-in-2025-heres-the-7-worth-watching)
