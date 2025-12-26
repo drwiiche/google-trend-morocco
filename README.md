@@ -1,3 +1,31 @@
+### saibari (N/A, Fri, 26 Dec 2025 12:30:00 -0800)
+
+- **OM Mercato : Gros Rebondissement Dans Le Dossier Saibari**: [Link](https://www.butfootballclub.fr/1637044-om-mercato-gros-rebondissement-dans-le-dossier-saibari/)
+- **CAN 2025 Maroc-Mali : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/12/26/maroc-mali-quelle-heure-quelles-chaines-1602911/)
+- **CAN 2025 : Kylian Mbappé présent en tribune à Rabat avec le maillot du Maroc floqué Hakimi pour assister au match face au Mali**: [Link](https://www.lequipe.fr/Football/Actualites/Can-2025-kylian-mbappe-present-en-tribune-a-rabat-avec-le-maillot-du-maroc-floque-hakimi-pour-assister-au-match-face-au-mali/1629613)
+
+
+### live tv (N/A, Fri, 26 Dec 2025 12:30:00 -0800)
+
+- **Celtics at Pacers preview: Boston pays a visit to Indiana, loser of six straight**: [Link](https://www.bostonglobe.com/2025/12/26/sports/celtics-pacers-december-26-2025/)
+- **Boston Celtics @ Indiana Pacers Odds**: [Link](https://sportsbook.fanduel.com/basketball/nba/boston-celtics-@-indiana-pacers-35084962)
+- **Celtics vs. Pacers Prediction, Odds, Picks - Dec. 26**: [Link](https://www.foxsports.com/articles/nba/celtics-vs-pacers-prediction-odds-picks-dec-26)
+
+
+### يلا كورة (N/A, Fri, 26 Dec 2025 12:10:00 -0800)
+
+- **صلاح يعادل دروجبا.. ويهدد حسام حسن من جهتين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%B9%D8%A7%D8%AF%D9%84-%D8%AF%D8%B1%D9%88%D8%AC%D8%A8%D8%A7--%D9%88%D9%8A%D9%87%D8%AF%D8%AF-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%85%D9%86-%D8%AC%D9%87%D8%AA%D9%8A%D9%86/blt240e625a2622a56f)
+- **أهداف يبحث عنها محمد صلاح في المغرب.. اللقب والهداف التاريخي**: [Link](https://www.youm7.com/story/2025/12/25/%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86%D9%87%D8%A7-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D9%88%D8%A7%D9%84%D9%87%D8%AF%D8%A7%D9%81-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A/7246411)
+- **مبروك للفراعنة.. مصر أول المتأهلين لثمن نهائي بأمم إفريقيا بفوز ثمين على جنوب افريقيا**: [Link](https://tatweeg.news/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-50/)
+
+
+### morocco vs mali live (N/A, Fri, 26 Dec 2025 12:00:00 -0800)
+
+- **Morocco–Mali: a clash of balance, between expected control and the Malian challenge**: [Link](https://www.cafonline.com/afcon2025/news/morocco-mali-a-clash-of-balance-between-expected-control-and-the-malian-challenge/)
+- **Morocco vs Mali: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/272994/morocco-vs-mali-when-and-how-to-watch-afcon-game/)
+- **Ait Boudlal: "We Need Someone to Wake Us Up on the Pitch," Regragui Responds: "We Are Not Asleep"**: [Link](https://m.elbotola.com/en/article/2025-12-25-19-31-128.html)
+
+
 ### snrt (N/A, Fri, 26 Dec 2025 12:20:00 -0800)
 
 - **CAN 2025 : un premier acte prolifique avant une deuxième journée sous haute tension**: [Link](https://medias24.com/2025/12/26/can-2025-un-premier-acte-prolifique-avant-une-deuxieme-journee-sous-haute-tension-1602995/)
