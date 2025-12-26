@@ -1,3 +1,10 @@
+### tod (N/A, Fri, 26 Dec 2025 07:50:00 -0800)
+
+- **Biathlon: Tod von Bakken - Verband und Familie schalten Anwälte ein**: [Link](https://www.sportschau.de/wintersport/biathlon/tod-von-bakken-verband-und-familie-schalten-anwaelte-ein,biathlon-tod-von-bakken-gibt-weiter-raetsel-auf-100.html)
+- **Oberhof plant Gedenken an verstorbenen norwegischen Biathleten**: [Link](https://www.thueringer-allgemeine.de/sport/article410794070/oberhof-plant-gedenken-an-verstorbenen-norwegischen-biathleten.html)
+- **Nach Tod von Bakken: Skiverband und Familie schalten Anwalt ein**: [Link](https://www.eurosport.de/biathlon/biathlet-sivert-guttorm-bakken-plotzlich-in-italien-verstorben-skiverband-und-familie-schalten-anwalt-ein_sto23253667/story.shtml)
+
+
 ### egypte (N/A, Fri, 26 Dec 2025 07:40:00 -0800)
 
 - **Hugo Broos voor duel tegen het Egypte van Mohamed Salah: “Waarom zouden we ons op één speler focussen?”**: [Link](https://www.hln.be/africa-cup/hugo-broos-voor-duel-tegen-het-egypte-van-mohamed-salah-waarom-zouden-we-ons-op-een-speler-focussen~aa8f5cf9/)
