@@ -1,3 +1,17 @@
+### égypte – afrique du sud (N/A, Fri, 26 Dec 2025 06:10:00 -0800)
+
+- **Égypte - Afrique du Sud : zoom sur un classique africain**: [Link](https://www.cafonline.com/fr/can2025/infos/egypte-afrique-du-sud-zoom-sur-un-classique-africain/)
+- **Égypte - Afrique du Sud: la météo du match, ce vendredi 26 décembre**: [Link](https://medias24.com/2025/12/26/egypte-afrique-du-sud-la-meteo-du-match-ce-vendredi-26-decembre-1602975/)
+- **CAN 2025 : à Agadir, une première qui invite à la vigilance**: [Link](https://mobile.telquel.ma/2025/12/23/can-2025-a-agadir-une-premiere-qui-invite-a-la-vigilance_1966814)
+
+
+### مصر ضد جنوب أفريقيا (N/A, Fri, 26 Dec 2025 06:10:00 -0800)
+
+- **المنتخب المصري يسعى إلى الانفراد بصدارة المجموعة الثانية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%86%D9%81%D8%B1%D8%A7%D8%AF-%D8%A8%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-2025-12-26)
+- **مباشر.. مباراة مصر ضد جنوب أفريقيا في كأس الأمم الأفريقية 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/26/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%AC%D9%86%D9%88%D8%A8-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%81%D9%8A)
+- **مدرب جنوب أفريقيا يطلق تصريحا استفزازيا عن منتخب مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AF%D8%B1%D8%A8-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%8A%D8%B7%D9%84%D9%82-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7-%D8%A7%D8%B3%D8%AA%D9%81%D8%B2%D8%A7%D8%B2%D9%8A%D8%A7-%D8%B9%D9%86-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1/bltecaa9bf4abaa9207)
+
+
 ### matchs de coupe d'afrique des nations de football (N/A, Fri, 26 Dec 2025 06:00:00 -0800)
 
 - **Maroc–Mali : un choc d’équilibres, entre maîtrise attendue et défi malien**: [Link](https://www.cafonline.com/fr/can2025/infos/maroc-mali-un-choc-d-equilibres-entre-maitrise-attendue-et-defi-malien/)
