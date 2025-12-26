@@ -1,3 +1,31 @@
+### copa africana de naciones (N/A, Fri, 26 Dec 2025 13:20:00 -0800)
+
+- **Salah... y polémica**: [Link](https://as.com/futbol/internacional/salah-y-polemica-f202512-n/)
+- **Egipto le muestra el camino a México: Los ‘Faraones’ vencen a Sudáfrica y le cortan una racha de 12 partidos sin conocer la derrota**: [Link](https://latinus.us/deportes/futbol-internacional/2025/12/26/egipto-muestra-camino-mexico-faraones-vencen-sudafrica-cortan-racha-12-partidos-invictos-160368.html)
+- **ÚLTIMA HORA: Rival de México en el Mundial 2026 cayó en torneo internacional**: [Link](https://www.tvazteca.com/aztecadeportes/ultima-hora-rival-mexico-mundial-2026-cayo-en-torneo-internacional/)
+
+
+### إبراهيم دياز (N/A, Fri, 26 Dec 2025 12:50:00 -0800)
+
+- **إبراهيم دياز... رمز منتخب المغرب الواثق من قوته**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%B1%D9%85%D8%B2-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%88%D8%A7%D8%AB%D9%82-%D9%85%D9%86-%D9%82%D9%88%D8%AA%D9%87/)
+- **دياز: أتطلع لرد الجميل للجماهير المغربية**: [Link](https://www.hesport.com/%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A3%D8%AA%D8%B7%D9%84%D8%B9-%D9%84%D8%B1%D8%AF-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D9%84-%D9%84%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1-419611.html)
+- **دياز ينشر صورة مع المنتخب المغربي رفقة الأمير مولاي الحسن ويعلق: "حلم واحد.. وطن واحد"**: [Link](https://m.elbotola.com/article/2025-12-24-20-18-62.html)
+
+
+### bein sport live maroc (N/A, Fri, 26 Dec 2025 12:40:00 -0800)
+
+- **La CAN 2025, racontée en musique**: [Link](https://lematin.ma/culture/la-can-2025-racontee-en-musique/321133)
+- **CAN 2025 : L'hymne du Maroc avant le match de la qualification !**: [Link](https://www.beinsports.com/fr-fr/football/2025-coupe-d-afrique-des-nations/articles-video/can-2025-l-hymne-du-maroc-avant-le-match-de-la-qualification-2025-12-26)
+- **Aminox défend RedOne et souligne la valeur de son expérience artistique mondiale (photo)**: [Link](https://fr.hibapress.com/news-226223.html)
+
+
+### hakimi (N/A, Fri, 26 Dec 2025 12:30:00 -0800)
+
+- **Mbappé ‘cazado’ con la camiseta de Marruecos en plena Copa Africana**: [Link](https://as.com/futbol/videos/mbappe-cazado-con-la-camiseta-de-marruecos-en-la-copa-africana-f202512-v/)
+- **Mbappé, espectador de lujo en el partido de Marruecos con el 2 de Achraf**: [Link](https://www.marca.com/futbol/copa-africa/2025/12/26/mbappe-espectador-lujo-partido-marruecos-2-achraf-video.html)
+- **El Real Madrid encarga a Mbappé el fichaje de este crack en su viaje a Marruecos**: [Link](https://www.realmadridexclusivo.com/lo-mas-visto/real-madrid-encarga-mbappe-fichaje-este-crack-en-su-viaje-marruecos_328046_102.html)
+
+
 ### ابراهيم دياز (N/A, Fri, 26 Dec 2025 12:50:00 -0800)
 
 - **إبراهيم دياز... رمز منتخب المغرب الواثق من قوته**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%B1%D9%85%D8%B2-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%88%D8%A7%D8%AB%D9%82-%D9%85%D9%86-%D9%82%D9%88%D8%AA%D9%87/)
