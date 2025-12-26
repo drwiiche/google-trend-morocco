@@ -1,3 +1,10 @@
+### mali vs maroc (N/A, Fri, 26 Dec 2025 05:30:00 -0800)
+
+- **En visite à la CAN, Kylian Mbappé est arrivé à Rabat**: [Link](https://www.lequipe.fr/Football/Actualites/En-visite-a-la-can-kylian-mbappe-est-arrive-a-rabat/1629418)
+- **CAN 2025: Kylian Mbappé à Rabat pour Maroc-Mali?**: [Link](https://sport.le360.ma/football/can/can-2025-kylian-mbappe-a-rabat-pour-maroc-mali_PSJYAR5IG5C2VHDUFDBSUPBPQM/)
+- **CAN 2025 : Maroc-Mali, un test de vérité pour les Lions de l’Atlas**: [Link](https://ledesk.ma/2025/12/26/can-2025-maroc-mali-un-test-de-verite-pour-les-lions-de-latlas/)
+
+
 ### jean louis gasset (N/A, Fri, 26 Dec 2025 05:20:00 -0800)
 
 - **Figure emblématique du foot français, Jean-Louis Gasset est mort à 72 ans**: [Link](https://www.lequipe.fr/Football/Actualites/Figure-emblematique-du-foot-francais-jean-louis-gasset-est-mort/1629519)
