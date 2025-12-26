@@ -1,3 +1,17 @@
+### tnt (N/A, Fri, 26 Dec 2025 10:50:00 -0800)
+
+- **AEW’s Tony Khan Talks TV Future, ‘Worlds End’ & ‘Die Hard’ Family Tradition**: [Link](https://www.tvinsider.com/1235259/aew-tony-khan-interview-worlds-end-die-hard/)
+- **Tony Khan Acknowledges Mistake That Led To AEW Creative Process Overhaul (Exclusive)**: [Link](https://www.si.com/fannation/wrestling/features/tony-khan-acknowledges-mistake-that-led-to-aew-creative-process-overhaul-exclusive)
+- **AEW-Warner Bros. Discovery Partnership Expected to Continue Despite Potential Network Sales**: [Link](https://411mania.com/wrestling/aew-wbd-partnership/)
+
+
+### maroc – mali (N/A, Fri, 26 Dec 2025 09:30:00 -0800)
+
+- **CAN 2025 Maroc-Mali : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/12/26/maroc-mali-quelle-heure-quelles-chaines-1602911/)
+- **CAN 2025 : Kylian Mbappé répond présent à l’invitation d’Hakimi pour Maroc-Mali à Rabat**: [Link](https://mobile.telquel.ma/instant-t/2025/12/26/can-2025-kylian-mbappe-repond-present-a-linvitation-dhakimi-pour-maroc-mali-a-rabat_1967372/)
+- **CAN MAROC-2025: Dernier entraînement des Lions de l’Atlas avant le match face au Mali**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%82-15/)
+
+
 ### can 2025 (N/A, Fri, 26 Dec 2025 09:00:00 -0800)
 
 - **Qatar Honors Morocco’s Security Efforts During 2025 Arab Cup Tournament**: [Link](https://www.moroccoworldnews.com/2025/12/272452/qatar-honors-moroccos-security-efforts-during-2025-arab-cup-tournament/)
