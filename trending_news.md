@@ -1,3 +1,31 @@
+### marocco - mali (N/A, Fri, 26 Dec 2025 11:20:00 -0800)
+
+- **Dove vedere Marocco-Mali in tv? Sportitalia o Dazn, orario**: [Link](https://www.corrieredellosport.it/news/calcio/coppa-africa/2025/12/26-145468315/dove_vedere_marocco-mali_in_tv_sportitalia_o_dazn_orario)
+- **Coppa d’Africa, Marocco-Mali: El Aynaoui è titolare**: [Link](https://www.forzaroma.info/news-as-roma/coppa-dafrica-marocco-mali-el-aynaoui-e-titolare/)
+- **Torino, oggi in campo il Marocco: Masina affronta il Mali**: [Link](https://www.toro.it/toro/primo-piano/programma-coppa-d-africa-26-dicembre-marocco-di-masina/1408667/)
+
+
+### yves bissouma (N/A, Fri, 26 Dec 2025 11:20:00 -0800)
+
+- **Morocco–Mali: a clash of balance, between expected control and the Malian challenge**: [Link](https://www.cafonline.com/afcon2025/news/morocco-mali-a-clash-of-balance-between-expected-control-and-the-malian-challenge/)
+- **Morocco vs Mali: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/272994/morocco-vs-mali-when-and-how-to-watch-afcon-game/)
+- **Ait Boudlal: "We Need Someone to Wake Us Up on the Pitch," Regragui Responds: "We Are Not Asleep"**: [Link](https://m.elbotola.com/en/article/2025-12-25-19-31-128.html)
+
+
+### manchester united – newcastle (N/A, Fri, 26 Dec 2025 11:10:00 -0800)
+
+- **Premier League LIVE: Manchester United vs Newcastle - text commentary, score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/c3w706e7nd4t)
+- **Man Utd set to take on Newcastle in Old Trafford Boxing Day bout**: [Link](https://sports.yahoo.com/articles/man-utd-set-newcastle-old-190200146.html)
+- **Newcastle Coach Howe Comments on the Condition of Three Players**: [Link](https://zamin.uz/en/sport/178717-newcastle-coach-howe-comments-on-the-condition-of-three-players.html)
+
+
+### marruecos - malí (N/A, Fri, 26 Dec 2025 11:10:00 -0800)
+
+- **Apuestas y pronósticos Marruecos vs Mali**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/25/apuestas-pronosticos-marruecos-vs-mali.html)
+- **CAN 2025: Mbappé podría asistir al partido de Marruecos contra Malí**: [Link](https://ar.yabiladi.com/articles/details/184316/2025-mbappe-podria-asistir-partido.html)
+- **Ait Boudlal antes del Marruecos-Mali: “Somos conscientes de la responsabilidad de cada partido de la CAN”**: [Link](https://es.rue20.com/2025/12/25/ait-boudlal-antes-del-marruecos-mali-somos-conscientes-de-la-responsabilidad-de-cada-partido-de-la-can/)
+
+
 ### tnt (N/A, Fri, 26 Dec 2025 10:50:00 -0800)
 
 - **AEW’s Tony Khan Talks TV Future, ‘Worlds End’ & ‘Die Hard’ Family Tradition**: [Link](https://www.tvinsider.com/1235259/aew-tony-khan-interview-worlds-end-die-hard/)
