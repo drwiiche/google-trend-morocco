@@ -1,3 +1,10 @@
+### egypte (N/A, Fri, 26 Dec 2025 07:40:00 -0800)
+
+- **Hugo Broos voor duel tegen het Egypte van Mohamed Salah: “Waarom zouden we ons op één speler focussen?”**: [Link](https://www.hln.be/africa-cup/hugo-broos-voor-duel-tegen-het-egypte-van-mohamed-salah-waarom-zouden-we-ons-op-een-speler-focussen~aa8f5cf9/)
+- **Egypte - Zimbabwe op Afrika Cup: informatie, opstellingen, tv-gids, h2h, vorm, voorspellingen en meer**: [Link](https://news.bet365.nl/nl-nl/article/egypte-zimbabwe-op-afrika-cup-informatie-opstellingen-tv-gids-h2h-vorm-voorspellingen-en-meer/2025122016363030579)
+- **Erling Haaland reageert met deze twee woorden op overwinning van Mohamed Salah met Egypte**: [Link](https://www.voetbalzone.nl/nieuws/erling-haaland-reageert-met-deze-twee-woorden-op-overwinning-van-mohamed-salah-met-egypte/blt5a56cefa352f13f4)
+
+
 ### yalla kora (N/A, Fri, 26 Dec 2025 07:20:00 -0800)
 
 - **بورصة فانتازي الدوري الإنجليزي.. إرتفاع قيمة رايس وفودين وهبوط سوبوسلاي**: [Link](https://www.youm7.com/story/2025/12/24/%D8%A8%D9%88%D8%B1%D8%B5%D8%A9-%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A5%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%82%D9%8A%D9%85%D8%A9-%D8%B1%D8%A7%D9%8A%D8%B3-%D9%88%D9%81%D9%88%D8%AF%D9%8A%D9%86-%D9%88%D9%87%D8%A8%D9%88%D8%B7-%D8%B3%D9%88%D8%A8%D9%88%D8%B3%D9%84%D8%A7%D9%8A/7245142)
