@@ -1,3 +1,17 @@
+### match maroc zambie (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
+
+- **Zambie–Comores : 0–0, l’Égypte déjà qualifiée, le Maroc attendu**: [Link](https://www.cafonline.com/fr/can2025/infos/zambie-comores-0-0-l-egypte-deja-qualifiee-le-maroc-attendu/)
+- **CAN 2025: Angola-Zimbabwe, un match, deux perdants**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-angola-zimbabwe-suivez-le-match-de-la-deuxieme-journee-du-groupe-b-de-la-can-2025-en-live_LS-202512260194.html)
+- **CAN: L’Angola et le Zimbabwe se neutralisent (1-1)**: [Link](https://mobile.telquel.ma/instant-t/2025/12/26/can-langola-et-le-zimbabwe-se-neutralisent-1-1_1967531/)
+
+
+### el aynaoui (N/A, Fri, 26 Dec 2025 13:10:00 -0800)
+
+- **العيناوي: أحببت كرة القدم على التنس وأحلم بمواجهة البرازيل**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D8%A3%D8%AD%D8%A8%D8%A8%D8%AA-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%86%D8%B3-%D9%88%D8%A3%D8%AD%D9%84%D9%85-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84/13391)
+- **العيناوي .. جوكر التوازن في تشكيلة الأسود**: [Link](https://snrtnews.com/article/143550)
+- **نائل العيناوي يتوج بجائزة أفضل لاعب في مباراة المغرب ومالي**: [Link](https://www.telegraphe.ma/%D9%86%D8%A7%D8%A6%D9%84-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D9%8A%D8%AA%D9%88%D8%AC-%D8%A8%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D8%A3%D9%81%D8%B6%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%85%D8%A7%D9%84%D9%8A)
+
+
 ### ترتيب كاس افريقيا 2025 (N/A, Fri, 26 Dec 2025 14:40:00 -0800)
 
 - **"ملوك صناعة الأهداف" بكأس أفريقيا 2025**: [Link](https://www.aljazeera.net/sport/2025/12/25/%D8%B5%D9%86%D8%A7%D8%B9-%D8%A7%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025)
