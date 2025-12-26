@@ -1,3 +1,17 @@
+### saliba (N/A, Fri, 26 Dec 2025 13:40:00 -0800)
+
+- **Saliba issues bold Arsenal title prediction with historic quadruple in reach**: [Link](https://www.standard.co.uk/sport/football/arsenal-fc-saliba-quadruple-prediction-b1263974.html)
+- **Saliba eyeing quadruple with Arsenal**: [Link](https://www.beinsports.com/en-nz/football/premier-league/articles/saliba-eyeing-quadruple-with-arsenal-2025-12-26)
+- **Arsenal mentality shift revealed by Saliba remarks**: [Link](https://sports.yahoo.com/articles/arsenal-mentality-shift-revealed-saliba-120500454.html)
+
+
+### man united (N/A, Fri, 26 Dec 2025 13:40:00 -0800)
+
+- **Ruben Amorim team news update Newcastle Boxing Day home**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-team-news-update-newcastle-boxing-day-home)
+- **Bruno Fernandes faces month out after injury in Man Utd’s defeat at Villa**: [Link](https://www.telegraph.co.uk/football/2025/12/21/manchester-united-captain-bruno-fernandes-injury-month/)
+- **EPL on Citi: We can win any game even without several players- Ruben Amorim**: [Link](https://citisportsonline.com/2025/12/epl-on-citi-we-can-win-any-game-even-without-several-players-ruben-amorim/)
+
+
 ### bet365 (N/A, Fri, 26 Dec 2025 13:30:00 -0800)
 
 - **$150 Bet365 Bonus Code WTOP365: Claim $150 Bonus for NBA, NFL Week 17**: [Link](https://wtop.com/sports/2025/12/150-bet365-bonus-code-wtop365-claim-150-bonus-for-nba-nfl-week-17/)
