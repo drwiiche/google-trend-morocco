@@ -1,3 +1,10 @@
+### ترتيب كاس افريقيا 2025 (N/A, Fri, 26 Dec 2025 14:40:00 -0800)
+
+- **"ملوك صناعة الأهداف" بكأس أفريقيا 2025**: [Link](https://www.aljazeera.net/sport/2025/12/25/%D8%B5%D9%86%D8%A7%D8%B9-%D8%A7%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025)
+- **بفضل صلاح ومرموش.. مصر تحقق رقماً هجومياً مذهلاً في كأس إفريقيا**: [Link](https://sports.asharq.com/football/95887/%D8%A8%D9%81%D8%B6%D9%84-%D8%B5%D9%84%D8%A7%D8%AD-%D9%88%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%85%D8%B5%D8%B1-%D8%AA%D8%AD%D9%82%D9%82-%D8%B1%D9%82%D9%85%D8%A7-%D9%87%D8%AC%D9%88%D9%85%D9%8A%D8%A7-%D9%85%D8%B0%D9%87%D9%84%D8%A7-%D9%81%D9%8A-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/)
+- **بعد التأهل إلى دور الـ16، أرقام قياسية لمنتخب مصر في أمم إفريقيا**: [Link](https://www.vetogate.com/5561330)
+
+
 ### maroc zambie (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
 
 - **Zambie–Comores : 0–0, l’Égypte déjà qualifiée, le Maroc attendu**: [Link](https://www.cafonline.com/fr/can2025/infos/zambie-comores-0-0-l-egypte-deja-qualifiee-le-maroc-attendu/)
