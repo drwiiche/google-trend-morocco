@@ -1,3 +1,10 @@
+### morocco vs zambia (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
+
+- **Afcon 2025: Morocco 1-1 Mali - Eagles claim draw against hosts in Rabat**: [Link](https://www.bbc.com/sport/football/live/ce86l1ng819t)
+- **Mali hold Morocco in Rabat ... Zambia and Comoros share the spoils, Salah leads Egypt to victory over South Africa and qualification for the knockout stage**: [Link](https://www.cafonline.com/afcon2025/news/mali-hold-morocco-in-rabat-zambia-and-comoros-share-the-spoils-salah-leads-egypt-to-victory-over-south-africa-and-qualification-for-the-knockout-stage/)
+- **Morocco vs Mali: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/272994/morocco-vs-mali-when-and-how-to-watch-afcon-game/)
+
+
 ### match maroc zambie (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
 
 - **Zambie–Comores : 0–0, l’Égypte déjà qualifiée, le Maroc attendu**: [Link](https://www.cafonline.com/fr/can2025/infos/zambie-comores-0-0-l-egypte-deja-qualifiee-le-maroc-attendu/)
