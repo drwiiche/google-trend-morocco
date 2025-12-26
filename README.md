@@ -1,3 +1,17 @@
+### jean louis gasset (N/A, Fri, 26 Dec 2025 05:20:00 -0800)
+
+- **Figure emblématique du foot français, Jean-Louis Gasset est mort à 72 ans**: [Link](https://www.lequipe.fr/Football/Actualites/Figure-emblematique-du-foot-francais-jean-louis-gasset-est-mort/1629519)
+- **Jean-Louis Gasset est mort**: [Link](https://www.footmercato.net/a7933367275048920760-jean-louis-gasset-est-mort)
+- **Carnet Noir : Jean-Louis Gasset est décédé ! - ASSE**: [Link](https://onefootball.com/de/news/carnet-noir-jean-louis-gasset-est-decede-asse-42145201)
+
+
+### orange (N/A, Fri, 26 Dec 2025 05:20:00 -0800)
+
+- **Teen killed in Christmas Eve shooting at Orange County condo complex**: [Link](https://www.wesh.com/article/deputies-respond-orange-county-apartment-complex/69860391)
+- **Teen found shot to death near condo complex, Orange County deputies say**: [Link](https://www.clickorlando.com/news/local/2025/12/24/teen-found-shot-to-death-near-condo-complex-orange-county-deputies-say/)
+- **17-year-old shot, killed in Orlando residential area, Orange County deputies investigate**: [Link](https://www.fox35orlando.com/news/orange-county-sheriff-investigates-orlando-shooting-one-teen-victim)
+
+
 ### genk – club brugge (N/A, Fri, 26 Dec 2025 04:50:00 -0800)
 
 - **Club Brugge krijgt volle laag: "Moesten zich schamen"**: [Link](https://www.voetbalnieuws.be/news/876670/club-brugge-krijgt-volle-laag-moesten-zich-schamen)
