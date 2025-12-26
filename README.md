@@ -1,3 +1,38 @@
+### genk – club brugge (N/A, Fri, 26 Dec 2025 04:50:00 -0800)
+
+- **Club Brugge krijgt volle laag: "Moesten zich schamen"**: [Link](https://www.voetbalnieuws.be/news/876670/club-brugge-krijgt-volle-laag-moesten-zich-schamen)
+- **Ex-wielrennen Bakelants en Boeckx viseren Bart Verhaeghe: "Ze moesten zich schamen"**: [Link](https://www.voetbalkrant.com/nieuws/2025-12-23/ex-wielrennen-bakelants-en-boeckx-viseren-bart-verhaeghe-ze-moesten-zich-schamen)
+- **Boeckx neemt het op voor Hayen: “Moeten zich schamen!”**: [Link](https://www.voetbalbelgie.be/artikel/boeckx-neemt-het-op-voor-hayen-moeten-zich-schamen)
+
+
+### angola (N/A, Fri, 26 Dec 2025 04:40:00 -0800)
+
+- **CAN 2025 / Angola – Zimbabué: história de confrontos diretos**: [Link](https://kalangoatomico.com.br/desporto/can-2025-angola-zimbabue-historia-de-confrontos-diretos/175092/)
+- **Kialonda Gaspar: «Tudo ainda depende nós neste CAN»**: [Link](https://www.rfi.fr/pt/%C3%A1frica-lus%C3%B3fona/20251226-kialonda-gaspar-tudo-ainda-depende-n%C3%B3s-neste-can)
+- **Angola x Zimbábue: onde assistir ao vivo e escalações do jogo hoje (26) pela Copa Africana de Nações | Futebol | O Liberal**: [Link](https://www.oliberal.com/esportes/futebol/angola-x-zimbabue-onde-assistir-ao-vivo-e-escalacoes-do-jogo-hoje-26-pela-copa-africana-de-nacoes-1.1064774)
+
+
+### أنغولا ضد زيمبابوي (N/A, Fri, 26 Dec 2025 04:20:00 -0800)
+
+- **زيمبابوي تصطدم بأنغولا في مراكش**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A-%D8%AA%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-%D9%81%D9%8A-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-1677046.html)
+- **المغربيان كشاف والفارق ضمن الطاقم التحكيمي لمباراة أنغولا وزيمبابوي في كأس أفريقيا**: [Link](https://m.elbotola.com/article/2025-12-26-11-56-435.html)
+- **مدرب زيمبابوي ماريو مارينيكا: "نراهن على الصرامة والتركيز في مواجهة أنغولا"**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/461864.html)
+
+
+### egypt vs south africa (N/A, Fri, 26 Dec 2025 04:20:00 -0800)
+
+- **Egypt, South Africa meet in blockbuster clash at the Grand Stade d’Agadir**: [Link](https://www.cafonline.com/afcon2025/news/egypt-south-africa-meet-in-blockbuster-clash-at-the-grand-stade-d-agadir/)
+- **AFCON 2025: South Africa Focuses on Team Tactics Against Egypt**: [Link](https://www.moroccoworldnews.com/2025/12/272980/afcon-2025-south-africa-focuses-on-team-tactics-against-egypt/)
+- **How Bafana Bafana have fared in their second pool game at past AFCONs**: [Link](https://www.flashscore.com/news/soccer-africa-cup-of-nations-how-bafana-bafana-have-fared-in-their-second-pool-game-at-past-afcons/6TBnDXht/)
+
+
+### المغرب ضد مالي (N/A, Fri, 26 Dec 2025 04:20:00 -0800)
+
+- **لاعبو المغرب يؤكدون الجاهزية للفوز**: [Link](https://www.hespress.com/%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%A4%D9%83%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D9%84%D9%84%D9%81%D9%88%D8%B2-1677234.html)
+- **المغرب – مالي: صدام التوازن بين السيطرة المنتظرة والتحدي المالي**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%A7%D9%84%D9%8A-%D8%B5%D8%AF%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B2%D9%86-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B3%D9%8A%D8%B7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%AD%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A/)
+- **بدعوة من حكيمي.. مبابي يحل بالرباط لحضور مواجهة المغرب ومالي**: [Link](https://www.hesport.com/%D8%A8%D8%AF%D8%B9%D9%88%D8%A9-%D9%85%D9%86-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AD%D9%84-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D9%84%D8%AD%D8%B6%D9%88%D8%B1-419629.html)
+
+
 ### angola – zimbabwe (N/A, Fri, 26 Dec 2025 03:50:00 -0800)
 
 - **High stakes in Marrakech as Angola and Zimbabwe chase first points**: [Link](https://www.cafonline.com/afcon2025/news/high-stakes-in-marrakech-as-angola-and-zimbabwe-chase-first-points/)
