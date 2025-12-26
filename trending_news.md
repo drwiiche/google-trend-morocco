@@ -1,3 +1,24 @@
+### maroc zambie (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
+
+- **Zambie–Comores : 0–0, l’Égypte déjà qualifiée, le Maroc attendu**: [Link](https://www.cafonline.com/fr/can2025/infos/zambie-comores-0-0-l-egypte-deja-qualifiee-le-maroc-attendu/)
+- **CAN 2025: Angola-Zimbabwe, un match, deux perdants**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-angola-zimbabwe-suivez-le-match-de-la-deuxieme-journee-du-groupe-b-de-la-can-2025-en-live_LS-202512260194.html)
+- **CAN: L’Angola et le Zimbabwe se neutralisent (1-1)**: [Link](https://mobile.telquel.ma/instant-t/2025/12/26/can-langola-et-le-zimbabwe-se-neutralisent-1-1_1967531/)
+
+
+### نتائج مباريات اليوم (N/A, Fri, 26 Dec 2025 13:50:00 -0800)
+
+- **كأس أمم أفريقيا 2025.. نتائج المباريات وترتيب المجموعات والهدافون**: [Link](https://www.aljazeera.net/sport/2025/12/24/%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%88%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8)
+- **كأس أمم أفريقيا: الجولة الأولى تنتهي بلا مفاجآت مع تفوق منتخبات شمال أفريقيا**: [Link](https://www.bbc.com/arabic/articles/c4g91l61yzyo)
+- **مواجهات نارية في مباريات الجمعة**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-1677379.html)
+
+
+### ترتيب كاس افريقيا (N/A, Fri, 26 Dec 2025 13:50:00 -0800)
+
+- **شاهد.. جماهير الجزائر تنظف الملعب بعد الفوز على السودان بكأس أفريقيا**: [Link](https://www.aljazeera.net/sport/2025/12/25/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%86%D8%B8%D9%81-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%83%D8%A3%D8%B3)
+- **بالصور: لوكا زيدان يوثق لحظته التاريخية مع الجزائر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D9%88%D8%AB%D9%82-%D9%84%D8%AD%D8%B8%D8%AA%D9%87-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1/bltc5d3088ea1330798)
+- **زيدان يدعم ابنه في "كان المغرب"**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D8%AF%D8%B9%D9%85-%D8%A7%D8%A8%D9%86%D9%87-%D9%81%D9%8A-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1676478.html)
+
+
 ### caf (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
 
 - **How and Where to Watch Senegal vs DR Congo in AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-senegal-vs-dr-congo-in-afcon-2025-on-bein-sports-2025-12-25)
