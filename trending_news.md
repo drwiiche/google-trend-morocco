@@ -1,3 +1,17 @@
+### محاكم (N/A, Fri, 26 Dec 2025 01:00:00 -0800)
+
+- **أوامر سحب جواز السفر وإغلاق الحدود ترتفع بنسبة 81 في المائة بالمغرب**: [Link](https://www.hespress.com/%D8%A3%D9%88%D8%A7%D9%85%D8%B1-%D8%B3%D8%AD%D8%A8-%D8%AC%D9%88%D8%A7%D8%B2-%D8%A7%D9%84%D8%B3%D9%81%D8%B1-%D9%88%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF-%D8%AA%D8%B1%D8%AA-1676971.html)
+- **الخط المباشر للتبليغ عن الرشوة: 86 ألف مكالمة و360 حالة تلبس خلال 12 شهرا**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AE%D8%B7-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%84%D8%AA%D8%A8%D9%84%D9%8A%D8%BA-%D8%B9%D9%86-%D8%A7%D9%84%D8%B1%D8%B4%D9%88%D8%A9-86-%D8%A3%D9%84%D9%81-%D9%85%D9%83/)
+- **النيابات العامة تمكنت من تصفية أزيد من 497 ألف شكاية سنة 2024**: [Link](https://ar.le360.ma/societe/4N3WZBQIVZHR3MWBXMXOJRRUTU/)
+
+
+### alerte météo neige maroc (N/A, Fri, 26 Dec 2025 01:00:00 -0800)
+
+- **Plus de 41.000 km² couverts de neige au Maroc, un bilan exceptionnel selon la DGM**: [Link](https://medias24.com/2025/12/25/plus-de-41-000-km%C2%B2-couverts-de-neige-au-maroc-un-bilan-exceptionnel-selon-la-dgm-1602717/)
+- **Les températures attendues ce vendredi 26 décembre 2025**: [Link](https://fr.hespress.com/455684-les-temperatures-attendues-ce-vendredi-26-decembre-2025.html)
+- **Alerte météo : fortes pluies, neige et froid dans plusieurs régions**: [Link](https://www.leconomiste.com/flash-infos/alerte-meteo-fortes-pluies-neige-et-froid-dans-plusieurs-regions/)
+
+
 ### طقس (N/A, Thu, 25 Dec 2025 22:50:00 -0800)
 
 - **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-53-1677064.html)
