@@ -1,3 +1,10 @@
+### cup d'afrique 2025 (N/A, Fri, 26 Dec 2025 06:30:00 -0800)
+
+- **DIRECT. Angola-Zimbabwe: Un match, deux perdants**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-angola-zimbabwe-suivez-le-match-de-la-deuxieme-journee-du-groupe-b-de-la-can-2025-en-live_LS-202512260194.html)
+- **Angola–Zimbabwe : un duel sous pression, entre nécessité de réagir et espoir de rebond**: [Link](https://www.cafonline.com/fr/can2025/infos/angola-zimbabwe-un-duel-sous-pression-entre-necessite-de-reagir-et-espoir-de-rebond/)
+- **DIRECT. Suivez Angola-Zimbabwe, Égypte-Afrique du Sud, Zambie-Comores et Maroc-Mali en live sur Flashscore**: [Link](https://www.flashscore.fr/actualites/football-can-direct-suivez-angola-zimbabwe-en-live-sur-flashscore-maroc-mali-a-21h00/WUByQpdS/)
+
+
 ### égypte – afrique du sud (N/A, Fri, 26 Dec 2025 06:10:00 -0800)
 
 - **Égypte - Afrique du Sud : zoom sur un classique africain**: [Link](https://www.cafonline.com/fr/can2025/infos/egypte-afrique-du-sud-zoom-sur-un-classique-africain/)
