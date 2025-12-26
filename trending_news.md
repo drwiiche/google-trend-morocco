@@ -1,3 +1,10 @@
+### angola – zimbabwe (N/A, Fri, 26 Dec 2025 03:50:00 -0800)
+
+- **High stakes in Marrakech as Angola and Zimbabwe chase first points**: [Link](https://www.cafonline.com/afcon2025/news/high-stakes-in-marrakech-as-angola-and-zimbabwe-chase-first-points/)
+- **Angola vs Zimbabwe: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273006/angola-vs-zimbabwe-when-and-how-to-watch-afcon-game/)
+- **AFCON Preview - Angola, Zimbabwe set for Southern African Derby tussle - 2025 Africa Cup of Nations - Angola**: [Link](https://africanfootball.com/news/834559/AFCON-Preview-Angola-Zimbabwe-set-for-Southern-African-Derby-tussle)
+
+
 ### محاكم (N/A, Fri, 26 Dec 2025 01:00:00 -0800)
 
 - **أوامر سحب جواز السفر وإغلاق الحدود ترتفع بنسبة 81 في المائة بالمغرب**: [Link](https://www.hespress.com/%D8%A3%D9%88%D8%A7%D9%85%D8%B1-%D8%B3%D8%AD%D8%A8-%D8%AC%D9%88%D8%A7%D8%B2-%D8%A7%D9%84%D8%B3%D9%81%D8%B1-%D9%88%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF-%D8%AA%D8%B1%D8%AA-1676971.html)
