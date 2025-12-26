@@ -1,3 +1,59 @@
+### arryadia tnt (N/A, Fri, 26 Dec 2025 12:00:00 -0800)
+
+- **قناة مجانية ناقلة لمباراة المغرب ومالي في كأس الأمم الإفريقية.. اعرف التردد**: [Link](https://www.elwatannews.com/news/details/8197015)
+- **تردد قناة TNT المغربية لـ مشاهدة مباريات كأس أمم أفريقيا مجانا أونلاين 2026**: [Link](https://aboutmsr.com/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-tnt-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%80-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA/)
+- **تردد قناة Arryadia الرياضية لمشاهدة كأس أمم أفريقيا حصريًا**: [Link](https://www.iqraa24.com/news/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-arryadia-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3-2/)
+
+
+### bein sport (N/A, Fri, 26 Dec 2025 12:00:00 -0800)
+
+- **How and Where to Watch Algeria vs Burkina Faso at the AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-algeria-vs-burkina-faso-at-the-afcon-2025-on-bein-sports-2025-12-26)
+- **CAN 2025 / Algeria – Burkina Faso: Petkovic prepares 3 changes**: [Link](https://foot-africa.com/en/news/can-2025-algeria-burkina-faso-petkovic-prepares-3-changes-1018097/)
+- **AFCON 2025 - Group E breakdown: Mahrez looks to replicate 2019 exploits in Morocco**: [Link](https://thestar.co.za/sport/soccer/africa/2025-12-18-afcon-2025-group-e-breakdown-mahrez-looks-to-replicate-2019-exploits-in-morocco/)
+
+
+### sports (N/A, Fri, 26 Dec 2025 12:00:00 -0800)
+
+- **2025-26 college football bowl game schedule, scores, TV channels, times**: [Link](https://www.ncaa.com/news/football/article/2025-12-24/2025-26-college-football-bowl-game-schedule-scores-tv-channels-times)
+- **Computer model reveals college football picks, best bets for Dec. 27**: [Link](https://www.cbssports.com/college-football/news/2025-college-football-bowl-picks-best-bets-betting-odds-model-backing-georgia-tech-missouri-dec-27/)
+- **Bowl game schedule today: Previewing the three college football bowls on Dec. 26**: [Link](https://www.usatoday.com/story/sports/ncaaf/2025/12/26/what-college-football-bowl-games-are-today-dec-26/87895060007/)
+
+
+### bein sport 1 مباشر (N/A, Fri, 26 Dec 2025 12:00:00 -0800)
+
+- **كأس أمم أفريقيا 2025: مصر تفوز على جنوب أفريقيا في مباريات الجولة الثانية من دور المجموعات**: [Link](https://www.bbc.com/arabic/articles/cwyvr8zdwe7o)
+- **شاهد نتيجة وملخص مباراة مصر ضد جنوب أفريقيا في كأس الأمم الأفريقية**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/26/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%AC%D9%86%D9%88%D8%A8-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%81%D9%8A)
+- **بالفيديو: محمد صلاح يحطم رقم أحمد حسن في كأس الأمم الأفريقية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%AD%D8%B7%D9%85-%D8%B1%D9%82%D9%85-%D8%A7%D9%94%D8%AD%D9%85%D8%AF-%D8%AD%D8%B3%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/blt974e4ee2ed45793f)
+
+
+### ko (N/A, Fri, 26 Dec 2025 12:00:00 -0800)
+
+- **CocaCola Company (The) $KO Shares Acquired by Yeomans Consulting Group Inc.**: [Link](https://www.marketbeat.com/instant-alerts/filing-cocacola-company-the-ko-shares-acquired-by-yeomans-consulting-group-inc-2025-12-26/)
+- **Institutional Investors Signal Confidence in Coca-Cola Shares ()**: [Link](https://www.aktiencheck.de/news/Artikel-Institutional_Investors_Signal_Confidence_Coca_Cola_Shares-19330251)
+- **Regent Peak Wealth Advisors LLC Takes $8.86 Million Position in CocaCola Company (The) $KO**: [Link](https://www.marketbeat.com/instant-alerts/filing-regent-peak-wealth-advisors-llc-takes-886-million-position-in-cocacola-company-the-ko-2025-12-26/)
+
+
+### azzedine ounahi (N/A, Fri, 26 Dec 2025 11:50:00 -0800)
+
+- **Azzedine Ounahi, le milieu globe-trotter qui a surtout le Maroc dans le coeur : « À chaque fois qu'il porte ce maillot, il est transformé »**: [Link](https://www.lequipe.fr/Football/Article/Azzedine-ounahi-le-milieu-globe-trotter-qui-a-surtout-le-maroc-dans-le-coeur/1629441)
+- **[Ils vont compter en 2026] : Walid Regragui sous pression**: [Link](https://mobile.telquel.ma/2025/12/26/ils-vont-compter-en-2026-walid-regragui-sous-pression_1967272)
+- **L'Équipe encense Ounahi, "le milieu globe-trotter qui a surtout le Maroc dans le cœur"**: [Link](https://fr.hespress.com/455749-lequipe-encense-ounahi-le-milieu-globe-trotter-qui-a-surtout-le-maroc-dans-le-coeur.html)
+
+
+### mbappe (N/A, Fri, 26 Dec 2025 11:40:00 -0800)
+
+- **Mbappé, a close friend of Hakimi, could attend Morocco–Mali clash**: [Link](https://en.yabiladi.com/articles/details/184298/mbappe-close-friend-hakimi-could.html)
+- **Mbappe Could Attend Morocco-Mali AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/272964/mbappe-dembele-could-attend-morocco-mali-afcon-game/)
+- **L'Equipe: Mbappé Arrives in Rabat to Attend Morocco vs. Mali Match at Hakimi's Invitation**: [Link](https://m.elbotola.com/en/article/2025-12-25-18-12-374.html)
+
+
+### anass salah-eddine (N/A, Fri, 26 Dec 2025 11:40:00 -0800)
+
+- **Transferupdates | PSV zou huurling Salah-Eddine definitief willen inlijven**: [Link](https://www.nu.nl/voetbal/6380515/transferupdates-psv-zou-huurling-salah-eddine-definitief-willen-inlijven.html)
+- **Fabrizio Romano komt met zorgwekkend nieuws voor PSV: meerdere clubs jagen op cruciale speler**: [Link](https://www.msn.com/nl-nl/sport/voetbal/fabrizio-romano-komt-met-zorgwekkend-nieuws-voor-psv-meerdere-clubs-jagen-op-cruciale-speler/ar-AA1SUnLo)
+- **‘Ajax deelt mee in naderende miljoenentransfer van PSV’**: [Link](https://www.voetbal4u.com/2025/12/24/ajax-deelt-mee-in-naderende-miljoenentransfer-van-psv/)
+
+
 ### مان يونايتد ضد نيوكاسل يونايتد (N/A, Fri, 26 Dec 2025 11:30:00 -0800)
 
 - **مفارقة تاريخية غريبة في موقعة مانشستر يونايتد ونيوكاسل!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%B1%D9%82%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A9-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84/blt6e7746a5b382f1e1)
