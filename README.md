@@ -1,3 +1,24 @@
+### egypt fc (N/A, Fri, 26 Dec 2025 08:30:00 -0800)
+
+- **Barcelona face fresh resistance in negotiations to sign 17-year-old gem**: [Link](https://barcauniversal.com/barcelona-face-fresh-resistance-in-negotiations-to-sign-17-year-old-gem/)
+- **Details: Barcelona’s offer for Hamza Abdelkarim**: [Link](https://getfootballnewsspain.com/details-barcelonas-offer-for-hamza-abdelkarim/)
+- **Barcelona confident an agreement will be reached for 17-year-old’s transfer despite financial differences**: [Link](https://sports.yahoo.com/articles/barcelona-confident-agreement-reached-17-082000947.html)
+
+
+### egipto - sudáfrica (N/A, Fri, 26 Dec 2025 08:10:00 -0800)
+
+- **Egipto - Sudáfrica, en directo**: [Link](https://as.com/futbol/internacional/egipto-sudafrica-en-directo-f202512-n/)
+- **AFCON 2025: No hay planes especiales para Salah o Marmoush, dice el entrenador de Sudáfrica, Broos, antes del partido contra Egipto**: [Link](https://www.ucvradio.pe/deporte/afcon-2025-no-hay-planes-especiales-para-salah-o-marmoush-dice-el-entrenador-de-sudafrica-broos-antes-del-partido-contra-egipto/86316/)
+- **Egipto vs Sudáfrica: resultado en vivo y estadísticas por la Copa Africana de Naciones**: [Link](https://www.365scores.com/es/news/egipto-vs-sudafrica-resultado-en-vivo/)
+
+
+### كاس افريقيا (N/A, Fri, 26 Dec 2025 08:00:00 -0800)
+
+- **تصريحات مدرب نيجيريا تُشعل التساؤلات قبل موقعة تونس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%85%D8%AF%D8%B1%D8%A8-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%AA%D9%8F%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%88%D9%94%D9%84%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%AA%D9%88%D9%86%D8%B3/bltd2c42a94ce723640)
+- **الطرابلسي يشيد بالبنية التحتية الرياضية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B7%D8%B1%D8%A7%D8%A8%D9%84%D8%B3%D9%8A-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D8%A8%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%AA%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7-1676304.html)
+- **شاهد.. لاعبو تونس ينزعون ستراتهم لحماية الأطفال قبل مباراة أوغندا**: [Link](https://www.aljazeera.net/sport/2025/12/24/%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D8%AA%D9%88%D9%86%D8%B3-%D9%8A%D9%86%D8%B2%D8%B9%D9%88%D9%86-%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%87%D9%85-%D9%84%D8%AD%D9%85%D8%A7%D9%8A%D8%A9)
+
+
 ### tod (N/A, Fri, 26 Dec 2025 07:50:00 -0800)
 
 - **Biathlon: Tod von Bakken - Verband und Familie schalten Anwälte ein**: [Link](https://www.sportschau.de/wintersport/biathlon/tod-von-bakken-verband-und-familie-schalten-anwaelte-ein,biathlon-tod-von-bakken-gibt-weiter-raetsel-auf-100.html)
