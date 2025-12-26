@@ -1,3 +1,10 @@
+### مصر جنوب افريقيا (N/A, Fri, 26 Dec 2025 07:30:00 -0800)
+
+- **أحمد حسن صاحب 4 ألقاب كأس أمم إفريقيا توتال إنيرجيز يدعم حظوظ مصر في استعادة اللقب القاري**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D8%AD%D9%85%D8%AF-%D8%AD%D8%B3%D9%86-%D8%B5%D8%A7%D8%AD%D8%A8-4-%D8%A3%D9%84%D9%82%D8%A7%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2-%D9%8A%D8%AF%D8%B9%D9%85-%D8%AD%D8%B8%D9%88%D8%B8-%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A/)
+- **أحمد حسن: تنظيم المغرب لكأس أمم إفريقيا 2025 "ممتاز"**: [Link](https://www.hesport.com/%D8%A3%D8%AD%D9%85%D8%AF-%D8%AD%D8%B3%D9%86-%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-419661.html)
+- **أحمد حسن (دولي مصري سابق): "التنظيم ممتاز وأشقاؤنا المغاربة قاموا بعمل رائع"**: [Link](https://m.elbotola.com/article/2025-12-25-20-34-884.html)
+
+
 ### zambie – comores (N/A, Fri, 26 Dec 2025 08:40:00 -0800)
 
 - **DIRECT. Zambie-Comores (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/zambie-comores-live/670751)
