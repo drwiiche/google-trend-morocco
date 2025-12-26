@@ -1,3 +1,17 @@
+### netflix (N/A, Thu, 25 Dec 2025 17:30:00 -0800)
+
+- **There have been 39 new Netflix movies in 2025 — here’s the 7 worth watching**: [Link](https://www.tomsguide.com/entertainment/netflix/there-have-been-39-new-netflix-movies-in-2025-heres-the-7-worth-watching)
+- **Top 10 streaming movies of 2025: 'Train Dreams,' 'Highest 2 Lowest,' more**: [Link](https://www.newsday.com/entertainment/tv/top-streaming-movies-2025-xoxzamyj)
+- **55 of the Best TV Shows on Netflix That Will Keep You Entertained**: [Link](https://www.cinetotal.com.br/tecnologia/55-of-the-best-tv-shows-on-netflix-that-will-keep-you-entertained-cinetotal-com-br/134584/)
+
+
+### barrages maroc (N/A, Thu, 25 Dec 2025 16:50:00 -0800)
+
+- **Barrages au 24 décembre 2025 : 113,66 Mm³ de plus en 24h**: [Link](https://medias24.com/2025/12/24/barrages-au-24-decembre-2025-11366-mm%C2%B3-de-plus-en-24h-1601895/)
+- **Barrages : le taux de remplissage au 23 décembre**: [Link](https://ecoactu.ma/barrages-le-taux-de-remplissage-au-23-decembre/)
+- **Inondations de Safi: L'Association nationale des médias et des éditeurs au chevet des victimes**: [Link](https://www.leconomiste.com/flash-infos/inondations-de-safi-lassociation-nationale-des-medias-et-des-editeurs-au-chevet-des-victimes/)
+
+
 ### كأس امم افريقيا (N/A, Thu, 25 Dec 2025 14:30:00 -0800)
 
 - **مواجهة "نسور مالي" تختبر جاهزية "الأسود" .. والعين على التأهل المبكر**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D8%B3%D9%88%D8%B1-%D9%85%D8%A7%D9%84%D9%8A-%D8%AA%D8%AE%D8%AA%D8%A8%D8%B1-%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-1676945.html)
