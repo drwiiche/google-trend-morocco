@@ -1,3 +1,10 @@
+### leicester – watford (N/A, Fri, 26 Dec 2025 07:00:00 -0800)
+
+- **Predicting Javi Gracia's Watford XI to take on Leicester City on Boxing Day**: [Link](https://www.watfordobserver.co.uk/sport/25721786.predicting-gracias-watford-xi-take-leicester-city/)
+- **Leicester vs Watford LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2025/12/26/1245535-leicester-vs-watford-live-score-efl-championship.html)
+- **Leicester City team news v Watford as Jannik Vestergaard misses out**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-team-news-v-10724533)
+
+
 ### cup d'afrique 2025 (N/A, Fri, 26 Dec 2025 06:30:00 -0800)
 
 - **DIRECT. Angola-Zimbabwe: Un match, deux perdants**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-angola-zimbabwe-suivez-le-match-de-la-deuxieme-journee-du-groupe-b-de-la-can-2025-en-live_LS-202512260194.html)
