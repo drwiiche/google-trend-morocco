@@ -1,3 +1,17 @@
+### bet365 (N/A, Fri, 26 Dec 2025 13:30:00 -0800)
+
+- **$150 Bet365 Bonus Code WTOP365: Claim $150 Bonus for NBA, NFL Week 17**: [Link](https://wtop.com/sports/2025/12/150-bet365-bonus-code-wtop365-claim-150-bonus-for-nba-nfl-week-17/)
+- **Bet365 bonus code CBSBET365: Get $150 in bonus bets for Lakers-Rockets, Warriors-Mavericks, NBA Christmas Day**: [Link](https://www.cbssports.com/nba/news/bet365-bonus-code-cbsbet365-get-150-bonus-bets-lakers-rockets-warriors-mavericks-nba-christmas/)
+- **bet365 Bonus Code TOPACTION: Claim $150 for CFB Games Today**: [Link](https://www.actionnetwork.com/legal-online-sports-betting/bet365-bonus-code-topaction-score-150-welcome-promo-for-ncaaf-bowl-games-today-friday-dec-26)
+
+
+### penalty (N/A, Fri, 26 Dec 2025 13:30:00 -0800)
+
+- **UPDATE: Mother of Melodee Buzzard booked on murder charge after child's body found in Utah**: [Link](https://www.ksby.com/lompoc-valley/mother-of-melodee-buzzard-taken-back-into-custody)
+- **Prosecutors rule out death penalty for mother accused of killing daughter on road trip**: [Link](https://kjzz.com/news/local/prosecutors-rule-out-death-penalty-for-california-mother-accused-of-killing-daughter-melodee-ashlee-buzzard)
+- **Courtroom erupts in anger, tears as calm Ashlee Buzzard pleads not guilty to murdering 9-year-old daughter**: [Link](https://nypost.com/2025/12/26/us-news/ashlee-buzzard-pleads-not-guilty-in-court-to-murdering-9-year-old-daughter-melodee/)
+
+
 ### copa africana de naciones (N/A, Fri, 26 Dec 2025 13:20:00 -0800)
 
 - **Salah... y polémica**: [Link](https://as.com/futbol/internacional/salah-y-polemica-f202512-n/)
