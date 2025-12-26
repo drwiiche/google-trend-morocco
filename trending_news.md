@@ -1,3 +1,24 @@
+### yalla kora (N/A, Fri, 26 Dec 2025 07:20:00 -0800)
+
+- **بورصة فانتازي الدوري الإنجليزي.. إرتفاع قيمة رايس وفودين وهبوط سوبوسلاي**: [Link](https://www.youm7.com/story/2025/12/24/%D8%A8%D9%88%D8%B1%D8%B5%D8%A9-%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A5%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%82%D9%8A%D9%85%D8%A9-%D8%B1%D8%A7%D9%8A%D8%B3-%D9%88%D9%81%D9%88%D8%AF%D9%8A%D9%86-%D9%88%D9%87%D8%A8%D9%88%D8%B7-%D8%B3%D9%88%D8%A8%D9%88%D8%B3%D9%84%D8%A7%D9%8A/7245142)
+- **فانتازي يلا كورة.. 13 تغييرا جديدا في أسعار اللاعبين**: [Link](https://www.yallakora.com/epl/2968/news/535100/%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D9%8A%D9%84%D8%A7-%D9%83%D9%88%D8%B1%D8%A9-13-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86)
+- **ارتفاع قيمة رايس وفودين وهبوط سوبوسلاي في بورصة فانتازي الدوري الإنجليزي**: [Link](https://ar.mqalat.nl/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%82%D9%8A%D9%85%D8%A9-%D8%B1%D8%A7%D9%8A%D8%B3-%D9%88%D9%81%D9%88%D8%AF%D9%8A%D9%86-%D9%88%D9%87%D8%A8%D9%88%D8%B7-%D8%B3%D9%88%D8%A8%D9%88%D8%B3%D9%84%D8%A7/)
+
+
+### egypte vs (N/A, Fri, 26 Dec 2025 07:20:00 -0800)
+
+- **Musée du Football Marocain: Immersion dans les sentiers de la gloire**: [Link](https://2m.ma/fr/news/Mus%C3%A9e-du-Football-Marocain-Immersion-dans-les-sentiers-de-la-20251223)
+- **Live.. Egypt vs South Africa in the Africa Cup of Nations**: [Link](https://chamaly.ma/2025/12/26/live-egypt-vs-south-africa-in-the-africa-cup-of-nations/)
+- **En direct.. Égypte vs Afrique du Sud en Coupe d’Afrique des Nations**: [Link](https://chamaly.ma/2025/12/26/en-direct-egypte-vs-afrique-du-sud-en-coupe-dafrique-des-nations/)
+
+
+### match can aujourd hui 2025 (N/A, Fri, 26 Dec 2025 07:10:00 -0800)
+
+- **En visite à la CAN, Kylian Mbappé est arrivé à Rabat**: [Link](https://www.lequipe.fr/Football/Actualites/En-visite-a-la-can-kylian-mbappe-est-arrive-a-rabat/1629418)
+- **CAN 2025: Kylian Mbappé à Rabat pour Maroc-Mali?**: [Link](https://sport.le360.ma/football/can/can-2025-kylian-mbappe-a-rabat-pour-maroc-mali_PSJYAR5IG5C2VHDUFDBSUPBPQM/)
+- **CAN MAROC-2025: Dernier entraînement des Lions de l’Atlas avant le match face au Mali**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%82-15/)
+
+
 ### leicester – watford (N/A, Fri, 26 Dec 2025 07:00:00 -0800)
 
 - **Predicting Javi Gracia's Watford XI to take on Leicester City on Boxing Day**: [Link](https://www.watfordobserver.co.uk/sport/25721786.predicting-gracias-watford-xi-take-leicester-city/)
