@@ -1,3 +1,17 @@
+### flashscore (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
+
+- **Liiga: Ilves put eight past Hameenlinna to continue winning run as leaders Tappara earn shutout win over Pelicans**: [Link](https://www.flashscore.com/news/hockey-liiga-liiga-roundup-top-three-all-win-as-eight-goal-ilves-continue-sparkling-form/AZLBdBI7/)
+- **SHL: Frolunda go 14 points clear by beating Rogle as Malmo breeze past Vaxjo to cement top-six place**: [Link](https://www.flashscore.com/news/hockey-shl-shl-roundup-frolunda-march-on-against-rogle-as-malmo-back-to-winning-ways/xMN3bXme/)
+- **'Unfair' MCG pitch has 'done too much' - Vaughan**: [Link](https://www.bbc.com/sport/cricket/articles/cly5397m30jo)
+
+
+### bono (N/A, Fri, 26 Dec 2025 13:50:00 -0800)
+
+- **Bono and Imelda May Bring ‘Christmas (Baby, Please Come Home)’ to the Streets of Dublin**: [Link](https://www.rollingstone.com/music/music-news/bono-imelda-may-christmas-baby-please-come-home-1235490532/)
+- **U2’s Bono performs at annual Christmas Eve Busk in Dublin**: [Link](https://www.yahoo.com/entertainment/music/articles/u2-bono-performs-annual-christmas-153000253.html)
+- **Bono joins annual Christmas Eve busking session in Dublin city centre**: [Link](https://www.irishtimes.com/ireland/dublin/2025/12/24/bono-joins-annual-christmas-eve-busking-session-in-dublin-city-centre/)
+
+
 ### saliba (N/A, Fri, 26 Dec 2025 13:40:00 -0800)
 
 - **Saliba issues bold Arsenal title prediction with historic quadruple in reach**: [Link](https://www.standard.co.uk/sport/football/arsenal-fc-saliba-quadruple-prediction-b1263974.html)
