@@ -1,3 +1,38 @@
+### caf (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
+
+- **How and Where to Watch Senegal vs DR Congo in AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-senegal-vs-dr-congo-in-afcon-2025-on-bein-sports-2025-12-25)
+- **CAN 2025: What time and on which channels to watch live the matches of the second matchday in Group D?**: [Link](https://foot-africa.com/en/news/can-2025-what-time-and-on-which-channels-to-watch-live-the-matches-of-the-second-matchday-in-group-d-1016606/)
+- **African giants Senegal and DRC ready to battle in Tangier**: [Link](https://supersport.com/football/general/news/1465d38b-e79e-4215-a849-192b5c794d6f/african-giants-senegal-and-drc-ready-to-battle-in-tangier)
+
+
+### radio mars (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
+
+- **كان 2025: غضب داخل مارسيليا بسبب مشاركة أوباميانغ**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%83%D8%A7%D9%86-2025-%D8%BA%D8%B6%D8%A8-%D8%AF%D8%A7%D8%AE%D9%84-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A3%D9%88%D8%A8%D8%A7%D9%85%D9%8A%D8%A7%D9%86%D8%BA/13496)
+- **أوباميانغ يصل المغرب وينضم للـ"فهود" قبل مباراة موزمبيق**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A3%D9%88%D8%A8%D8%A7%D9%85%D9%8A%D8%A7%D9%86%D8%BA-%D9%8A%D8%B5%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%8A%D9%86%D8%B6%D9%85-%D9%84%D9%84%D9%81%D9%87%D9%88%D8%AF-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82/13364)
+- **أوباميانغ يلعب رغم الإصابة.. كيف رد مارسيليا على مفاجأة الغابون؟**: [Link](https://www.hibasport.com/details-349014.html)
+
+
+### caf 2025 (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
+
+- **Afcon 2025: Morocco 1-1 Mali - Eagles claim draw against hosts in Rabat**: [Link](https://www.bbc.com/sport/football/live/ce86l1ng819t)
+- **Morocco–Mali: a clash of balance, between expected control and the Malian challenge**: [Link](https://www.cafonline.com/afcon2025/news/morocco-mali-a-clash-of-balance-between-expected-control-and-the-malian-challenge/)
+- **Morocco vs Mali: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/272994/morocco-vs-mali-when-and-how-to-watch-afcon-game/)
+
+
+### score live (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
+
+- **How to watch Bucks vs. Grizzlies: TV channel and streaming options for December 26**: [Link](https://www.nytimes.com/athletic/6920411/2025/12/26/bucks-vs-grizzlies-stream-how-to-watch-dec-26/)
+- **In Photos: Bucks shootaround in Memphis | 12.26.25**: [Link](https://www.nba.com/bucks/photos/in-photos-bucks-shootaround-in-memphis-12-26-25)
+- **Stacking Wins and Facing Adversity: Bucks Seek Momentum Amid Injuries and Eastern Conference Shake-Up**: [Link](https://www.firstcoastnews.com/video/sports/locked-on/lo-wisconsin/bucks-show/stacking-wins-and-facing-adversity-bucks-seek-momentum-amid-injuries-and-eastern-conference-shake-up/535-b62edd81-d573-4201-ba21-319a7f876891)
+
+
+### ترتيب مجموعة المغرب (N/A, Fri, 26 Dec 2025 13:50:00 -0800)
+
+- **كأس أمم أفريقيا 2025.. نتائج المباريات وترتيب المجموعات والهدافون**: [Link](https://www.aljazeera.net/sport/2025/12/24/%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%88%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8)
+- **كأس أمم أفريقيا: الجولة الأولى تنتهي بلا مفاجآت مع تفوق منتخبات شمال أفريقيا**: [Link](https://www.bbc.com/arabic/articles/c4g91l61yzyo)
+- **مواجهات نارية في مباريات الجمعة**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-1677379.html)
+
+
 ### flashscore (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
 
 - **Liiga: Ilves put eight past Hameenlinna to continue winning run as leaders Tappara earn shutout win over Pelicans**: [Link](https://www.flashscore.com/news/hockey-liiga-liiga-roundup-top-three-all-win-as-eight-goal-ilves-continue-sparkling-form/AZLBdBI7/)
