@@ -1,3 +1,24 @@
+### diaz (N/A, Fri, 26 Dec 2025 12:40:00 -0800)
+
+- **Bundesliga team of the season so far**: [Link](https://sports.yahoo.com/articles/bundesliga-team-season-far-131900579.html)
+- **🌟 Bundesliga team of the season so far: Kane, Luis Díaz...**: [Link](https://ca.sports.yahoo.com/news/bundesliga-team-season-far-kane-114600728.html)
+- **Bundesliga best XI so far: Olise, Díaz stand out in Bayern's dominance of 2025-26**: [Link](https://www.espn.co.uk/football/story/_/id/47406614/bundesliga-best-xi-far-michael-olise-luis-diaz-stand-bayern-munich-dominance-2025-26-season)
+
+
+### ounahi (N/A, Fri, 26 Dec 2025 12:40:00 -0800)
+
+- **CAN 2025 - Morocco: Walid Regragui comes to the rescue of Azzedine Ounahi**: [Link](https://foot-africa.com/en/news/can-2025-morocco-walid-regragui-comes-to-the-rescue-of-azzedine-ounahi-1016759/)
+- **Morocco's Regragui calls for Ounahi, the 'metronome', to rediscover World Cup levels**: [Link](https://www.msn.com/en-us/sports/soccer/morocco-s-regragui-calls-for-ounahi-the-metronome-to-rediscover-world-cup-levels/ar-AA1T30gU)
+- **Azzedine Ounahi Scout Report At Girona 2025/2026: Why His Profile Is Perfect For Míchel Tactics – Player Analysis**: [Link](https://totalfootballanalysis.com/player-analysis/azzedine-ounahi-scout-report-girona-2025-2026-analysis)
+
+
+### nayef aguerd (N/A, Fri, 26 Dec 2025 12:40:00 -0800)
+
+- **CAN 2025 : Hakimi, Aguerd, Saïss... Walid Regragui fait le point sur l’infirmerie du Maroc avant le match contre le Mali**: [Link](https://www.lefigaro.fr/sports/football/can-2025-hakimi-aguerd-saiss-walid-regragui-fait-le-point-sur-l-infirmerie-du-maroc-avant-le-match-contre-le-mali-20251225)
+- **CAN 2025. “Nayef Aguerd est apte pour le match du Mali”, Walid Regragui**: [Link](https://medias24.com/2025/12/25/can-2025-nayef-aguerd-est-apte-pour-le-match-du-mali-walid-regragui-1602405/)
+- **Drôme. La Coupe d’Afrique des nations d’un père et son fils… entre Romans-sur-Isère et Rabat**: [Link](https://www.ledauphine.com/sport/2025/12/25/la-coupe-d-afrique-des-nations-d-un-pere-et-son-fils-entre-romans-et-rabat)
+
+
 ### saibari (N/A, Fri, 26 Dec 2025 12:30:00 -0800)
 
 - **OM Mercato : Gros Rebondissement Dans Le Dossier Saibari**: [Link](https://www.butfootballclub.fr/1637044-om-mercato-gros-rebondissement-dans-le-dossier-saibari/)
