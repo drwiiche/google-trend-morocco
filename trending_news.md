@@ -1,3 +1,10 @@
+### can 2025 (N/A, Fri, 26 Dec 2025 09:00:00 -0800)
+
+- **Qatar Honors Morocco’s Security Efforts During 2025 Arab Cup Tournament**: [Link](https://www.moroccoworldnews.com/2025/12/272452/qatar-honors-moroccos-security-efforts-during-2025-arab-cup-tournament/)
+- **Morocco Inaugurates On-Site Judicial Offices at AFCON Stadiums**: [Link](https://www.assahifa.com/english/sport/morocco-inaugurates-on-site-judicial-offices-at-afcon-stadiums/)
+- **Qatari and Moroccan Interior Ministers discuss security cooperation in Doha**: [Link](https://en.yabiladi.com/articles/details/183862/qatari-moroccan-interior-ministers-discuss.html)
+
+
 ### مصر جنوب افريقيا (N/A, Fri, 26 Dec 2025 07:30:00 -0800)
 
 - **أحمد حسن صاحب 4 ألقاب كأس أمم إفريقيا توتال إنيرجيز يدعم حظوظ مصر في استعادة اللقب القاري**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D8%AD%D9%85%D8%AF-%D8%AD%D8%B3%D9%86-%D8%B5%D8%A7%D8%AD%D8%A8-4-%D8%A3%D9%84%D9%82%D8%A7%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2-%D9%8A%D8%AF%D8%B9%D9%85-%D8%AD%D8%B8%D9%88%D8%B8-%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A/)
