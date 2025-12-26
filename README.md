@@ -1,3 +1,52 @@
+### snrt (N/A, Fri, 26 Dec 2025 12:20:00 -0800)
+
+- **CAN 2025 : un premier acte prolifique avant une deuxième journée sous haute tension**: [Link](https://medias24.com/2025/12/26/can-2025-un-premier-acte-prolifique-avant-une-deuxieme-journee-sous-haute-tension-1602995/)
+- **CAN 2025 : Voici les prévisions météo des matchs du jour**: [Link](https://lematin.ma/sports/can-2025-voici-les-previsions-meteo-des-matchs-du-jour/321186)
+- **Une semaine au centre du monde**: [Link](https://mobile.telquel.ma/2025/12/26/une-semaine-au-centre-du-monde_1967431)
+
+
+### brahim diaz (N/A, Fri, 26 Dec 2025 12:20:00 -0800)
+
+- **Brahim Diaz feels at home as Morocco begin AFCON 2025 with statement win**: [Link](https://www.cafonline.com/afcon2025/news/brahim-diaz-feels-at-home-as-morocco-begin-afcon-2025-with-statement-win/)
+- **Morocco's consulate in Bordeaux celebrates AFCON 2025 kickoff with cultural event**: [Link](https://en.yabiladi.com/articles/details/184302/morocco-s-consulate-bordeaux-celebrates-afcon.html)
+- **Historic First: Morocco, Tunisia, and Algeria All Win Opening AFCON Matches**: [Link](https://m.elbotola.com/en/article/2025-12-24-21-42-599.html)
+
+
+### بين سبورت (N/A, Fri, 26 Dec 2025 12:20:00 -0800)
+
+- **تردد قناة بي إن سبورت 4 الجديد 2026 على النايل سات BeIN Sports 4 HD**: [Link](https://nl7za.com/frequencies2023/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-4-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-2026-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D8%A7%D9%8A/)
+- **تغطية استثنائية لمباريات ال"كان"2025**: [Link](https://i3lamtv.com/%D8%AA%D8%BA%D8%B7%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%862025/)
+- **تردد بين سبورت المفتوحة HD الجديد bein sports.. لمتابعة أبرز المباريات مجانا على مدار اليوم**: [Link](https://gateeg.com/news/%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A8%D9%8A%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-hd-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-bein-sports-%D9%84%D9%85%D8%AA/)
+
+
+### vs (N/A, Fri, 26 Dec 2025 12:20:00 -0800)
+
+- **CMU vs Northwestern preview and prediction for GameAbove Sports Bowl**: [Link](https://www.freep.com/story/sports/college/2025/12/26/central-michigan-northwestern-gameabove-sports-bowl-ford-field/87900168007/)
+- **Friday college football bowl picks, odds, best bets: Back Northwestern, Minnesota, UTSA on Dec. 26**: [Link](https://www.cbssports.com/college-football/news/friday-college-football-bowl-picks-odds-best-bets-back-northwestern-minnesota-utsa-dec-26/)
+- **What channel is Northwestern vs CMU today? Time, TV for GameAbove Sports Bowl**: [Link](https://www.usatoday.com/story/sports/ncaaf/2025/12/26/northwestern-cmu-channel-today-time-tv-schedule-streaming-info-gameabove-sports-bowl/87763311007/)
+
+
+### bein sport live (N/A, Fri, 26 Dec 2025 12:10:00 -0800)
+
+- **Morocco–Mali: a clash of balance, between expected control and the Malian challenge**: [Link](https://www.cafonline.com/afcon2025/news/morocco-mali-a-clash-of-balance-between-expected-control-and-the-malian-challenge/)
+- **Morocco vs Mali: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/272994/morocco-vs-mali-when-and-how-to-watch-afcon-game/)
+- **Ait Boudlal: "We Need Someone to Wake Us Up on the Pitch," Regragui Responds: "We Are Not Asleep"**: [Link](https://m.elbotola.com/en/article/2025-12-25-19-31-128.html)
+
+
+### live (N/A, Fri, 26 Dec 2025 12:10:00 -0800)
+
+- **Root of massive Coupang breach reportedly uncovered**: [Link](https://www.scworld.com/brief/root-of-massive-coupang-breach-reportedly-uncovered)
+- **An E-Commerce Stock Is Jumping Today After a Cyberattack Knocked It Down**: [Link](https://finance.yahoo.com/news/e-commerce-stock-jumping-today-154821275.html)
+- **South Korea to hold emergency meeting over Coupang data breach**: [Link](https://www.techinasia.com/news/south-korea-to-hold-emergency-meeting-over-coupang-data-breach)
+
+
+### koo (N/A, Fri, 26 Dec 2025 12:10:00 -0800)
+
+- **Bills Injury Report: Philips, Prater, and Poyer will not play in the game**: [Link](https://www.rochesterfirst.com/sports/buffalo-bills/bills-injury-report-philips-prater-and-poyer-will-not-play-in-the-game/)
+- **Bills tried out Younghoe Koo, two other kickers**: [Link](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/bills-tried-out-younghoe-koo-two-other-kickers)
+- **Three key Buffalo Bills players ruled out for Week 17 vs. Philadelphia Eagles**: [Link](https://www.si.com/nfl/bills/onsi/three-key-buffalo-bills-players-ruled-out-for-week-17-vs-philadelphia-eagles)
+
+
 ### arryadia tnt (N/A, Fri, 26 Dec 2025 12:00:00 -0800)
 
 - **قناة مجانية ناقلة لمباراة المغرب ومالي في كأس الأمم الإفريقية.. اعرف التردد**: [Link](https://www.elwatannews.com/news/details/8197015)
