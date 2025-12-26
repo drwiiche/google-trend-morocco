@@ -1,3 +1,17 @@
+### مان يونايتد ضد نيوكاسل يونايتد (N/A, Fri, 26 Dec 2025 11:30:00 -0800)
+
+- **مفارقة تاريخية غريبة في موقعة مانشستر يونايتد ونيوكاسل!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%B1%D9%82%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A9-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84/blt6e7746a5b382f1e1)
+- **ملخص ما قدمه برونو فيرنانديز في الدوري الانجليزي هذا الموسم**: [Link](https://hihi2.com/2025/12/25/p3573549.html)
+- **مان يونايتد يتحدى نيوكاسل في انطلاق جولة البوكسينغ داي اليوم**: [Link](https://menafn.com/arabic/1110525048/%D9%85%D8%A7%D9%86-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%81%D9%8A-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A8%D9%88%D9%83%D8%B3%D9%8A%D9%86%D8%BA-%D8%AF%D8%A7%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85)
+
+
+### lassine sinayoko (N/A, Fri, 26 Dec 2025 11:30:00 -0800)
+
+- **Manchester United en discussion avec Lassine Sinayoko**: [Link](https://africafoot.com/manchester-united-en-discussion-avec-lassine-sinayoko/)
+- **AJ Auxerre : Lassine Sinayoko fait rêver la Liga !**: [Link](https://foot11.com/news/aj-auxerre-lassine-sinayoko-fait-rever-la-liga-916662)
+- **Manchester United s’intéresse au recrutement de Lassine Sinayoko : le transfert va-t-il aboutir**: [Link](https://foot-africa.com/actualites/manchester-united-sinteresse-au-recrutement-de-lassine-sinayoko-le-transfert-va-t-il-aboutir-1018469/)
+
+
 ### marocco - mali (N/A, Fri, 26 Dec 2025 11:20:00 -0800)
 
 - **Dove vedere Marocco-Mali in tv? Sportitalia o Dazn, orario**: [Link](https://www.corrieredellosport.it/news/calcio/coppa-africa/2025/12/26-145468315/dove_vedere_marocco-mali_in_tv_sportitalia_o_dazn_orario)
