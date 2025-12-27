@@ -1,3 +1,10 @@
+### al ittihad – al shabab (N/A, Sat, 27 Dec 2025 09:40:00 -0800)
+
+- **Broncos 20-13 Chiefs (Dec 25, 2025) Box Score**: [Link](https://www.espn.com/nfl/boxscore/_/gameId/401772622)
+- **Oregon vs. Texas Tech (1 Jan, 2026) Live Score**: [Link](https://www.espn.co.uk/college-football/game/_/gameId/401769071/oregon-texas-tech)
+- **Fiery Statements from Alguacil Ahead of Al-Ittihad Clash in the Roshn League**: [Link](https://koorabreak.com/en/235867/)
+
+
 ### تشيلسي ضد أستون فيلا (N/A, Sat, 27 Dec 2025 09:30:00 -0800)
 
 - **هل تستبدل بالمر بروجرز؟.. ماريسكا يرد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%AA%D8%B3%D8%AA%D8%A8%D8%AF%D9%84-%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D8%A8%D8%B1%D9%88%D8%AC%D8%B1%D8%B2--%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%8A%D8%B1%D8%AF/blt7af1cb1e508ee957)
