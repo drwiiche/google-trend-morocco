@@ -1,3 +1,17 @@
+### senegal vs congo (N/A, Sat, 27 Dec 2025 02:30:00 -0800)
+
+- **MATCH STATS: Senegal vs DR Congo – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group D**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-senegal-vs-dr-congo-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-d/)
+- **CAN 2025: What time and on which channels to watch live the matches of the second matchday in Group D?**: [Link](https://foot-africa.com/en/news/can-2025-what-time-and-on-which-channels-to-watch-live-the-matches-of-the-second-matchday-in-group-d-1016606/)
+- **AFCON: Senegal coach Thiaw braces for difficult DRC**: [Link](https://www.panafricafootball.com/post/senegal-coach-thiaw-before-drc/)
+
+
+### كاس افريقيا 2025 (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
+
+- **تونس ضد نيجيريا في كأس أفريقيا.. الموعد والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/26/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D8%B6%D8%AF-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **الطرابلسي: جاهزون لتحدي نيجيريا.. مدرب نيجيريا: منتخب تونس يمتلك خبرة كبيرة**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%B7%D8%B1%D8%A7%D8%A8%D9%84%D8%B3%D9%8A-%D8%AC%D8%A7%D9%87%D8%B2%D9%88%D9%86-%D9%84%D8%AA%D8%AD%D8%AF%D9%8A-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%85%D8%AF%D8%B1%D8%A8-%D9%86-419694.html)
+- **كأس أمم إفريقيا: صراع الصدارة والتأهل ينطلق مبكرا – اليوم 24**: [Link](https://alyaoum24.com/2000665.html)
+
+
 ### prochain match maroc (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
 
 - **CAN 2025 : Kylian Mbappé présent en tribune à Rabat avec le maillot du Maroc floqué Hakimi pour assister au match face au Mali**: [Link](https://www.lequipe.fr/Football/Actualites/Can-2025-kylian-mbappe-present-en-tribune-a-rabat-avec-le-maillot-du-maroc-floque-hakimi-pour-assister-au-match-face-au-mali/1629613)
