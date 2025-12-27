@@ -1,3 +1,10 @@
+### somaliland israel (N/A, Fri, 26 Dec 2025 23:30:00 -0800)
+
+- **Israel recognises Somaliland as independent state, Netanyahu says**: [Link](https://www.bbc.com/news/articles/c4g417md05go)
+- **Israel becomes first country to recognise Somaliland as sovereign state**: [Link](https://www.theguardian.com/world/2025/dec/26/israel-first-country-to-recognise-somaliland-sovereign-state)
+- **Turkey, Egypt, Djibouti, Somalia Reject Israel’s Recognition of Somaliland**: [Link](https://dawan.africa/news/turkey-egypt-djibouti-somalia-reject-israels-recognition-of-somaliland)
+
+
 ### flash score (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
 
 - **Bulls 109-102 76ers (Dec 26, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401810282)
