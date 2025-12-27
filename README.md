@@ -1,3 +1,24 @@
+### السنغال ضد الكونغو الديمقراطية (N/A, Sat, 27 Dec 2025 06:30:00 -0800)
+
+- **ملعب طنجة يحتضن "مباراة ثأرية"**: [Link](https://www.hespress.com/%D9%85%D9%84%D8%B9%D8%A8-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AB%D8%A3%D8%B1%D9%8A%D8%A9-1677767.html)
+- **المنتخب السنغالي يخوض اختباراً صعباً أمام الكونغو الديمقراطية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A-%D9%8A%D8%AE%D9%88%D8%B6-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1%D8%A7-%D8%B5%D8%B9%D8%A8%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9-2025-12-27)
+- **مباشر.. مباراة السنغال ضد الكونغو الديموقراطية في كأس أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/27/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88)
+
+
+### perry bamonte (N/A, Sat, 27 Dec 2025 06:30:00 -0800)
+
+- **Perry Bamonte, Guitarist and Keyboardist for the Cure, Dies at 65**: [Link](https://variety.com/2025/music/news/perry-bamonte-dead-the-cure-guitarist-keyboardist-1236617778/)
+- **Perry Bamonte, guitarist and keyboardist for the Cure, dies aged 65**: [Link](https://www.theguardian.com/music/2025/dec/26/perry-bamonte-guitarist-the-cure-dies)
+- **Emma Vardy Delivers Tragic News on BBC Breakfast: Remembering Perry Bamonte and Devon Swimmers**: [Link](https://azat.tv/en/emma-vardy-bbc-breakfast-tragic-news-2025/)
+
+
+### manchester city (N/A, Sat, 27 Dec 2025 05:30:00 -0800)
+
+- **Nottingham Forest 1-2 Manchester City: Rayan Cherki winner sends City top of Premier League**: [Link](https://www.bbc.com/sport/football/live/cgjnewwlyl3t)
+- **We’ll decide on Rodri fitness today, says Guardiola**: [Link](https://www.mancity.com/news/mens/pep-guardiola-rodri-update-nottingham-forest-63902351)
+- **“I’d prefer” – Pep Guardiola insists Manchester City are not where he wants to be**: [Link](https://onefootball.com/de/news/id-prefer-pep-guardiola-insists-manchester-city-are-not-where-he-wants-to-be-42147800)
+
+
 ### sénégal – rd congo (N/A, Sat, 27 Dec 2025 06:20:00 -0800)
 
 - **CAN 2025 : pour la RD Congo, le 3e duel contre le Sénégal sera-t-il le bon ?**: [Link](https://www.france24.com/fr/sports/20251226-can-2025-rd-congo-3e-duel-senegal)
