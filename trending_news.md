@@ -1,3 +1,10 @@
+### nigeria vs tunisia (N/A, Sat, 27 Dec 2025 11:10:00 -0800)
+
+- **Nigeria and Tunisia ooze confidence ahead of high-stakes Group C showdown in Fès**: [Link](https://www.cafonline.com/afcon2025/news/nigeria-and-tunisia-ooze-confidence-ahead-of-high-stakes-group-c-showdown-in-fes/)
+- **AFCON 2025: Trabelsi Promises Total Team Involvement Against Super Eagles**: [Link](https://en.africatopsports.com/2025/12/27/afcon-2025-trabelsi-promises-total-team-involvement-against-super-eagles/)
+- **CAN 2025: Free channels to watch Nigeria vs Tunisia live**: [Link](https://sports.yahoo.com/articles/2025-free-channels-watch-nigeria-120000273.html)
+
+
 ### maroc mali football (N/A, Sat, 27 Dec 2025 11:00:00 -0800)
 
 - **Le Maroc accroché par le Mali**: [Link](https://www.cafonline.com/fr/can2025/infos/le-maroc-accroche-par-le-mali/)
