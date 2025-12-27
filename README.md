@@ -1,3 +1,17 @@
+### can 2025 (N/A, Sat, 27 Dec 2025 14:00:00 -0800)
+
+- **Tanzania 1-1 Uganda: East African derby finishes all square at Afcon 2025**: [Link](https://www.bbc.com/sport/football/live/ckgl3kkxyyxt)
+- **Uganda, Tanzania renew East African rivalry in TotalEnergies CAF AFCON Morocco 2025 Group C clash on Saturday**: [Link](https://www.cafonline.com/afcon2025/news/uganda-tanzania-renew-east-african-rivalry-in-totalenergies-caf-afcon-morocco-2025-group-c-clash-on-saturday/)
+- **Must-win for Uganda Cranes**: [Link](https://www.monitor.co.ug/uganda/sports/soccer/must-win-for-uganda-cranes-5309478)
+
+
+### tunis (N/A, Sat, 27 Dec 2025 14:00:00 -0800)
+
+- **Transport : le premier lot de bus chinois arrive bientôt en Tunisie**: [Link](https://www.lapresse.tn/2025/12/27/transport-le-premier-lot-de-bus-chinois-arrive-bientot-en-tunisie/)
+- **Renforcement et modernisation de la flotte de la STS**: [Link](https://realites.com.tn/fr/renforcement-et-modernisation-de-la-flotte-de-la-sts/)
+- **Vieillissement du parc : l’État mise sur 461 bus chinois pour relancer le transport public**: [Link](https://businessnews.com.tn/2025/12/27/vieillissement-du-parc-letat-mise-sur-461-bus-chinois-pour-relancer-le-transport-public/1380537/)
+
+
 ### ترتيب كاس افريقيا (N/A, Sat, 27 Dec 2025 13:40:00 -0800)
 
 - **التعادل مع مالي في "الكان" يفتح باب القراءات النقدية لأداء المنتخب المغربي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D9%85%D8%A7%D9%84%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%82%D8%B1-1677845.html)
