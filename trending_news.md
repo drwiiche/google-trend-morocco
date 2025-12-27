@@ -1,3 +1,17 @@
+### طقس اكادير (N/A, Fri, 26 Dec 2025 15:50:00 -0800)
+
+- **نشرة إنذارية: تساقطات ثلجية وأمطار قوية من اليوم الجمعة إلى الاثنين المقبل**: [Link](https://ar.yabiladi.com/articles/details/183896/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1.html)
+- **التساقطات الثلجية تنعش الفرشة المائية وتعيد الأمل في نفوس المغاربة - تليكسبريس**: [Link](https://telexpresse.com/444083.html)
+- **طنجة تسجل أعلى نسبة من التساقطات خلال 24 ساعة الأخيرة - تليكسبريس**: [Link](https://telexpresse.com/444124.html)
+
+
+### maroc vs zambie (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
+
+- **CAN 2025 : un premier acte prolifique avant une deuxième journée sous haute tension**: [Link](https://medias24.com/2025/12/26/can-2025-un-premier-acte-prolifique-avant-une-deuxieme-journee-sous-haute-tension-1602995/)
+- **CAN 2025 : Voici les prévisions météo des matchs du jour**: [Link](https://lematin.ma/sports/can-2025-voici-les-previsions-meteo-des-matchs-du-jour/321186)
+- **Une semaine au centre du monde**: [Link](https://mobile.telquel.ma/2025/12/26/une-semaine-au-centre-du-monde_1967431)
+
+
 ### morocco vs zambia (N/A, Fri, 26 Dec 2025 14:10:00 -0800)
 
 - **Afcon 2025: Morocco 1-1 Mali - Eagles claim draw against hosts in Rabat**: [Link](https://www.bbc.com/sport/football/live/ce86l1ng819t)
