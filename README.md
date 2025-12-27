@@ -1,3 +1,10 @@
+### benin vs botswana (N/A, Sat, 27 Dec 2025 04:00:00 -0800)
+
+- **Live score: Benin v Botswana (AFCON 2025)**: [Link](https://english.ahram.org.eg/NewsAFCON2025/2025/559391.aspx)
+- **AFCON preview - Wounded Benin, Botswana to battle for crucial win - 2025 Africa Cup of Nations - Botswana**: [Link](https://africanfootball.com/news/834580/AFCON-preview-Wounded-Benin-Botswana-to-battle-for-crucial-win)
+- **AFCON 2025 : Benin and Botswana Confirmed Lineups**: [Link](https://en.africatopsports.com/2025/12/27/afcon-2025-benin-and-botswana-confirmed-lineups/)
+
+
 ### bénin – botswana (N/A, Sat, 27 Dec 2025 04:00:00 -0800)
 
 - **Les quatre affiches du samedi 27 décembre**: [Link](https://mobile.telquel.ma/2025/12/27/les-quatre-affiches-du-samedi-27-decembre_1967649)
