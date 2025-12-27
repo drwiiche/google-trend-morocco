@@ -1,3 +1,10 @@
+### النصر ضد الأخدود (N/A, Sat, 27 Dec 2025 07:20:00 -0800)
+
+- **رونالدو وكومان في الواجهة.. جيسوس يكشف أوراق النصر أمام الأخدود**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D9%83%D9%88%D9%85%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9--%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%94%D9%88%D8%B1%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D8%AF%D9%88%D8%AF/blt1e7e46bc80726bd1)
+- **قلق في النصر !**: [Link](https://hihi2.com/2025/12/26/p3574391.html)
+- **«جيسوس»: عدم تأهل المنتخب لنهائي كأس العرب أمر محبط**: [Link](https://arabsnew.com/news/%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D8%B9%D8%AF%D9%85-%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84/)
+
+
 ### al-nassr vs al akhdoud (N/A, Sat, 27 Dec 2025 07:30:00 -0800)
 
 - **Al-Nassr vs Al-Akhdoud today: Unbeaten leaders aim to extend perfect home record against outmatched rivals**: [Link](https://www.red94.net/news/80970-al-nassr-faces-al-akhdoud-in-saudi-pro-league-clash-riyadh-side-aims-for-dominan/)
