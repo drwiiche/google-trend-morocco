@@ -1,3 +1,17 @@
+### al-nassr vs al akhdoud (N/A, Sat, 27 Dec 2025 07:30:00 -0800)
+
+- **Al-Nassr vs Al-Akhdoud today: Unbeaten leaders aim to extend perfect home record against outmatched rivals**: [Link](https://www.red94.net/news/80970-al-nassr-faces-al-akhdoud-in-saudi-pro-league-clash-riyadh-side-aims-for-dominan/)
+- **Will Cristiano Ronaldo Play Tonight in Al-Nassr vs Al-Okhdood Saudi Pro League 2025-26 Match? Here’s the**: [Link](https://www.latestly.com/sports/football/will-cristiano-ronaldo-play-tonight-in-al-nassr-vs-al-okhdood-saudi-pro-league-2025-26-match-heres-the-possibility-of-cr7-featuring-in-starting-xi-7253520.html)
+- **Al Nassr vs Al Okhdood Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-fooball-al-nassr-vs-al-okhdood-preview-202512)
+
+
+### burnley – everton (N/A, Sat, 27 Dec 2025 07:30:00 -0800)
+
+- **Why Jack Grealish is absent for Everton against Burnley as David Moyes explains**: [Link](https://www.liverpoolworld.uk/sport/football/everton/why-jack-grealish-is-absent-for-everton-against-burnley-as-david-moyes-explains-5456215)
+- **'Different energy': Scott Parker discusses significance of Burnley's upcoming run of home games**: [Link](https://www.burnleyexpress.net/sport/football/different-energy-scott-parker-discusses-significance-of-burnleys-upcoming-run-of-home-games-5454560)
+- **Where To Go For Live Show, Commentary & Highlights Of Burnley v Everton**: [Link](https://www.evertonfc.com/news/2025/december/26/where-to-go-for-live-show--commentary---highlights-of-burnley-v-everton/)
+
+
 ### sadio mané (N/A, Sat, 27 Dec 2025 07:20:00 -0800)
 
 - **How many goals does Erling Haaland need to match Sadio Mane's Premier League total?**: [Link](https://www.espn.co.uk/football/story/_/id/47186931/how-many-goals-does-erling-haaland-need-match-sadio-mane-premier-league-total)
