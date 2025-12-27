@@ -1,3 +1,10 @@
+### al nassr (N/A, Sat, 27 Dec 2025 07:50:00 -0800)
+
+- **Cristiano Ronaldo Powers Al Nassr Past Al Okhdood With Historic Double**: [Link](https://www.beinsports.com/en-us/soccer/articles/cristiano-ronaldo-powers-al-nassr-past-al-okhdood-with-historic-double-2025-12-27)
+- **Cristiano Ronaldo scores career goal number 955**: [Link](https://tribuna.com/en/news/2025-12-27-cristiano-ronaldo-scores-career-goal-number-955/)
+- **Al Nassr vs Al Akhdoud LIVE streaming info, Saudi Pro League: Where to watch Ronaldo play? Predicted lineups**: [Link](https://sportstar.thehindu.com/football/al-nassr-vs-al-akhdoud-live-streaming-info-where-to-watch-cristiano-ronaldo-play-saudi-pro-league-predicted-lineups-news/article70441037.ece)
+
+
 ### al ittihad – al shabab (N/A, Sat, 27 Dec 2025 09:40:00 -0800)
 
 - **Broncos 20-13 Chiefs (Dec 25, 2025) Box Score**: [Link](https://www.espn.com/nfl/boxscore/_/gameId/401772622)
