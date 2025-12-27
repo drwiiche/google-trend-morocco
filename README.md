@@ -1,3 +1,10 @@
+### arsenal (N/A, Sat, 27 Dec 2025 08:00:00 -0800)
+
+- **Arsenal v Brighton, Liverpool v Wolves, Senegal v DR Congo, and more – football live**: [Link](https://www.theguardian.com/football/live/2025/dec/27/arsenal-v-brighton-liverpool-v-wolves-senegal-v-dr-congo-and-more-football-live)
+- **Premier League LIVE: Six games to come, including Liverpool v Wolves and Arsenal v Brighton**: [Link](https://www.bbc.co.uk/sport/football/live/cdrz7gn6k2et?page=2)
+- **Premier League live updates: Arsenal must beat Brighton to regain top spot; Liverpool in action**: [Link](https://www.espn.com/soccer/story/_/id/47327288/premier-league-live-updates-nottingham-forest-manchester-city-arsenal-brighton-liverpool-wolves-chelsea-aston-villa)
+
+
 ### النصر ضد الأخدود (N/A, Sat, 27 Dec 2025 07:20:00 -0800)
 
 - **رونالدو وكومان في الواجهة.. جيسوس يكشف أوراق النصر أمام الأخدود**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D9%83%D9%88%D9%85%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9--%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%94%D9%88%D8%B1%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D8%AF%D9%88%D8%AF/blt1e7e46bc80726bd1)
