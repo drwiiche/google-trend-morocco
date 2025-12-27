@@ -1,3 +1,10 @@
+### chelsea – aston villa (N/A, Sat, 27 Dec 2025 08:40:00 -0800)
+
+- **Maresca updates on duo and the need to rotate | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/maresca-updates-on-duo-and-the-need-to-rotate)
+- **Chelsea fans’ preferred lineup against Aston Villa: The usual suspects**: [Link](https://weaintgotnohistory.sbnation.com/premier-league/164623/chelsea-fans-preferred-lineup-against-aston-villa-the-usual-suspects)
+- **Enzo Maresca Confirms Chelsea Injury Blow Before Aston Villa Visit**: [Link](https://www.fotmob.com/embed/news/01kdfp015bzz/enzo-maresca-confirms-chelsea-injury-blow-before-aston-villa-visit)
+
+
 ### arsenal (N/A, Sat, 27 Dec 2025 08:00:00 -0800)
 
 - **Arsenal v Brighton, Liverpool v Wolves, Senegal v DR Congo, and more – football live**: [Link](https://www.theguardian.com/football/live/2025/dec/27/arsenal-v-brighton-liverpool-v-wolves-senegal-v-dr-congo-and-more-football-live)
