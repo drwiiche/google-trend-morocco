@@ -1,3 +1,10 @@
+### tirage euromillions (N/A, Sat, 27 Dec 2025 04:40:00 -0800)
+
+- **EuroMillions : le jackpot est tombé, un joueur remporte plus de 50 millions d’euros**: [Link](https://www.rtl.be/actu/conso/euromillions-le-jackpot-est-tombe-un-joueur-remporte-plus-de-50-millions-deuros/2025-12-26/article/774737)
+- **Pour Noël, un Espagnol gagne le gros lot à l'Euro Millions**: [Link](https://www.blick.ch/fr/suisse/loteries-la-cagnotte-de-l-euro-millions-est-tombee-id21550635.html)
+- **EuroMillions FDJ : les résultats du tirage du vendredi 26 décembre**: [Link](https://www.diverto.tv/actualites/tele/euromillions-fdj-les-resultats-du-tirage-du-vendredi-26-decembre)
+
+
 ### السنغال ضد الكونغو الديمقراطية (N/A, Sat, 27 Dec 2025 06:30:00 -0800)
 
 - **ملعب طنجة يحتضن "مباراة ثأرية"**: [Link](https://www.hespress.com/%D9%85%D9%84%D8%B9%D8%A8-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AB%D8%A3%D8%B1%D9%8A%D8%A9-1677767.html)
