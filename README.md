@@ -1,3 +1,24 @@
+### sénégal – rd congo (N/A, Sat, 27 Dec 2025 06:20:00 -0800)
+
+- **CAN 2025 : pour la RD Congo, le 3e duel contre le Sénégal sera-t-il le bon ?**: [Link](https://www.france24.com/fr/sports/20251226-can-2025-rd-congo-3e-duel-senegal)
+- **CAN 2025. Le programme des matches du 27 décembre avec la Tunisie, la RD Congo…**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matches-du-27-decembre-avec-la-tunisie-la-rd-congo-eaecc0ec-e22d-11f0-a9bd-152366d1babb)
+- **CAN : Sénégal-RD Congo, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/can/senegal-rd-congo-sur-quelle-chaine-voir-le-match-791821.html)
+
+
+### arsenal – brighton (N/A, Sat, 27 Dec 2025 06:20:00 -0800)
+
+- **Team news: Hincapie returns for Brighton**: [Link](https://www.arsenal.com/news/team-news-hincapie-returns-brighton)
+- **BREAKING: Arsenal make Jurrien Timber decision for Brighton as Mikel Arteta handed injury boosts**: [Link](https://www.football.london/arsenal-fc/news/breaking-arsenal-make-jurrien-timber-33127675)
+- **Arsenal captain explains how players stay fit over busy festive period**: [Link](https://dailycannon.com/2025/12/arsenal-festive-fixtures/)
+
+
+### liverpool – wolves (N/A, Sat, 27 Dec 2025 06:10:00 -0800)
+
+- **Diogo Jota's sons to join mascots for Liverpool v Wolves at Anfield**: [Link](https://www.bbc.com/sport/football/articles/c80xz1ke2n8o)
+- **Jurgen Klopp reveals how tragic Diogo Jota death tested fundamental life belief**: [Link](https://www.liverpool.com/liverpool-fc-news/features/diogo-jota-jurgen-klopp-tribute-33126708)
+- **Liverpool Echo News added a new photo. - Liverpool Echo News**: [Link](https://www.facebook.com/theliverpoolecho/photos/d41d8cd9/1212906474268960/)
+
+
 ### tunisie vs nigeria (N/A, Sat, 27 Dec 2025 03:40:00 -0800)
 
 - **CAN 2025. Le Nigeria qualifié pour les 8es de finale après la Tunisie si…**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-le-nigeria-qualifie-pour-les-8es-de-finale-apres-la-tunisie-si-5534e6a8-e19a-11f0-ba14-a010db31b80d)
