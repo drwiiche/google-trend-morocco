@@ -1,3 +1,10 @@
+### classement can (N/A, Sat, 27 Dec 2025 14:00:00 -0800)
+
+- **La CAN vue depuis le siège avant : klaxons, pourboires et stratégies de survie à Casablanca, Rabat et Marrakech**: [Link](https://lematin.ma/societe/la-can-vue-depuis-le-siege-avant-klaxons-pourboires/321320)
+- **CAN 2025 – Abdou Diop : « Le record de la CAN ivoirienne va être largement battu »**: [Link](https://mobile.telquel.ma/2025/12/26/can-2025-abdou-diop-le-record-de-la-can-ivoirienne-va-etre-largement-battu_1967592)
+- **El Español: le Maroc, une puissance montante du football mondial**: [Link](https://fr.hespress.com/455729-el-espanol-le-maroc-une-puissance-montante-du-football-mondial.html)
+
+
 ### can 2025 (N/A, Sat, 27 Dec 2025 14:00:00 -0800)
 
 - **Tanzania 1-1 Uganda: East African derby finishes all square at Afcon 2025**: [Link](https://www.bbc.com/sport/football/live/ckgl3kkxyyxt)
