@@ -1,3 +1,10 @@
+### flash score (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
+
+- **Bulls 109-102 76ers (Dec 26, 2025) Game Recap**: [Link](https://www.espn.com/nba/recap/_/gameId/401810282)
+- **NBA Predictions, Odds and Betting Lines - December 26**: [Link](https://www.fanduel.com/research/nba-predictions-odds-12-26-2025)
+- **Instant observations: Diving into Joel Embiid's progress and obstacles on both ends of the floor after Sixers fall to Bulls**: [Link](https://www.phillyvoice.com/sixers-vs-bulls-box-score-highlights-news-joel-embiid-vj-edgecombe-tyrese-maxey-paul-george-nick-nurse-nba-rumors/)
+
+
 ### coupe d'afrique des nations de football 2025 (N/A, Fri, 26 Dec 2025 14:20:00 -0800)
 
 - **Nigeria–Tunisie, duel à haute tension pour la tête du groupe C**: [Link](https://www.cafonline.com/fr/can2025/infos/nigeria-tunisie-duel-a-haute-tension-pour-la-tete-du-groupe-c/)
