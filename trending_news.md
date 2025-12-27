@@ -1,3 +1,17 @@
+### tremblement de terre rabat (N/A, Sat, 27 Dec 2025 12:20:00 -0800)
+
+- **Séisme au Maroc : secousse dans la région de Fès-Meknès**: [Link](https://industries.ma/seisme-au-maroc-secousse-dans-la-region-de-fes-meknes/)
+- **Un séisme de magnitude 3 ressenti à Rabat le 27 décembre 2025**: [Link](https://lematin.ma/regions/un-seisme-de-magnitude-3-ressenti-a-rabat-le-27-decembre-2025/321389)
+- **Un léger tremblement de terre signalé à Rabat sans dégâts ni victimes**: [Link](https://maroc-diplomatique.net/un-leger-tremblement-de-terre-signale-a-rabat-sans-degats-ni-victimes/)
+
+
+### tunisia (N/A, Sat, 27 Dec 2025 12:10:00 -0800)
+
+- **Moroccan group acquires Tunisian health operator for $90m**: [Link](https://apanews.net/moroccan-group-acquires-tunisian-health-operator-for-90m/)
+- **Morocco's Akdital to acquire Tunisia's Taoufik Hospitals Group**: [Link](https://www.marketscreener.com/news/morocco-s-akdital-to-acquire-tunisia-s-taoufik-hospitals-group-ce7d50d3dc8aff2c)
+- **Morocco’s Akdital to Acquire Tunisia’s Taoufik Hospitals for $90 Million**: [Link](https://barlamantoday.com/2025/12/27/moroccos-akdital-to-acquire-tunisias-taoufik-hospitals-for-90-million/)
+
+
 ### nigeria (N/A, Sat, 27 Dec 2025 12:00:00 -0800)
 
 - **Trump’s Claims About Nigeria Strike Belie a Complex Situation on the Ground**: [Link](https://www.nytimes.com/2025/12/26/world/africa/trump-isis-strikes-nigeria-christians-facts.html)
