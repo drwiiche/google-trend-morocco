@@ -1,3 +1,10 @@
+### nottm forest – manchester city (N/A, Sat, 27 Dec 2025 03:40:00 -0800)
+
+- **We’ll decide on Rodri fitness today, says Guardiola**: [Link](https://www.mancity.com/news/mens/pep-guardiola-rodri-update-nottingham-forest-63902351)
+- **Rodri closing in on return as Man City target trophies**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/rodri-closing-in-on-return-as-man-city-target-trophies-2025-12-26)
+- **Preview: Forest vs. City kicks off Saturday in the Premier League**: [Link](https://www.fotmob.com/topnews/24790-preview-forest-vs-city-kicks-off-saturday-premier-league?utm_source=fotmob)
+
+
 ### senegal vs congo (N/A, Sat, 27 Dec 2025 02:30:00 -0800)
 
 - **MATCH STATS: Senegal vs DR Congo – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group D**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-senegal-vs-dr-congo-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-d/)
