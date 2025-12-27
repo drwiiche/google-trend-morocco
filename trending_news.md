@@ -1,3 +1,10 @@
+### tunisie vs nigeria (N/A, Sat, 27 Dec 2025 03:40:00 -0800)
+
+- **CAN 2025. Le Nigeria qualifié pour les 8es de finale après la Tunisie si…**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-le-nigeria-qualifie-pour-les-8es-de-finale-apres-la-tunisie-si-5534e6a8-e19a-11f0-ba14-a010db31b80d)
+- **Nigeria–Tunisie, duel à haute tension pour la tête du groupe C**: [Link](https://www.cafonline.com/fr/can2025/infos/nigeria-tunisie-duel-a-haute-tension-pour-la-tete-du-groupe-c/)
+- **CAN 2025 : à quelle heure et sur quelle chaîne voir le match Nigeria-Tunisie ?**: [Link](https://www.lequipe.fr/Football/Actualites/Can-2025-a-quelle-heure-et-sur-quelle-chaine-voir-le-match-nigeria-tunisie/1629495)
+
+
 ### benin vs botswana (N/A, Sat, 27 Dec 2025 04:00:00 -0800)
 
 - **Live score: Benin v Botswana (AFCON 2025)**: [Link](https://english.ahram.org.eg/NewsAFCON2025/2025/559391.aspx)
