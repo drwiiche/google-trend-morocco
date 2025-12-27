@@ -1,3 +1,24 @@
+### تشيلسي ضد أستون فيلا (N/A, Sat, 27 Dec 2025 09:30:00 -0800)
+
+- **هل تستبدل بالمر بروجرز؟.. ماريسكا يرد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%AA%D8%B3%D8%AA%D8%A8%D8%AF%D9%84-%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D8%A8%D8%B1%D9%88%D8%AC%D8%B1%D8%B2--%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%8A%D8%B1%D8%AF/blt7af1cb1e508ee957)
+- **كيفية مشاهدة مباراة تشيلسي وأستون فيلا في الدوري الإنجليزي | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-12-27/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-6239781/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+- **أستون فيلا يطارد قمة «البريميرليج» ومعادلة رقم قياسي بعد 128 عاماً!**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4632874/%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D9%82%D9%85%D8%A9--%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC--%D9%88%D9%85%D8%B9%D8%A7%D8%AF%D9%84%D8%A9-%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%A8%D8%B9%D8%AF-128)
+
+
+### أوغندا ضد تنزانيا (N/A, Sat, 27 Dec 2025 09:30:00 -0800)
+
+- **أوغندا وتنزانيا تجددان صراع شرق إفريقيا في مواجهة حاسمة بالمجموعة الثالثة ضمن كأس أمم إفريقيا توتال إنيرجيز المغرب 2025**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%88%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%AC%D8%AF%D8%AF%D8%A7%D9%86-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%B4%D8%B1%D9%82-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D8%B6%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/)
+- **"كان 2025"/ طاقم تحكيمي مغربي بقيادة جلال جيد يدير مباراة أوغندا وتنزانيا والفارق في غرفة "الفار"**: [Link](https://m.elbotola.com/article/2025-12-27-12-55-418.html)
+- **غاموندي: نسعى لكتابة تاريخ تنزانيا**: [Link](https://www.hesport.com/%D8%BA%D8%A7%D9%85%D9%88%D9%86%D8%AF%D9%8A-%D9%86%D8%B3%D8%B9%D9%89-%D9%84%D9%83%D8%AA%D8%A7%D8%A8%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-419824.html)
+
+
+### uganda vs tanzania (N/A, Sat, 27 Dec 2025 09:30:00 -0800)
+
+- **Uganda, Tanzania renew East African rivalry in TotalEnergies CAF AFCON Morocco 2025 Group C clash on Saturday**: [Link](https://www.cafonline.com/afcon2025/news/uganda-tanzania-renew-east-african-rivalry-in-totalenergies-caf-afcon-morocco-2025-group-c-clash-on-saturday/)
+- **Must-win for Uganda Cranes**: [Link](https://www.monitor.co.ug/uganda/sports/soccer/must-win-for-uganda-cranes-5309478)
+- **Live score: Uganda v Tanzania (AFCON 2025)**: [Link](https://english.ahram.org.eg/NewsAFCON2025/2025/559393.aspx)
+
+
 ### ouganda – tanzanie (N/A, Sat, 27 Dec 2025 08:50:00 -0800)
 
 - **DIRECT. Ouganda-Tanzanie (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/ouganda-tanzanie-live/670763)
