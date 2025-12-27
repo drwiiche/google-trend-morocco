@@ -1,3 +1,17 @@
+### ouganda – tanzanie (N/A, Sat, 27 Dec 2025 08:50:00 -0800)
+
+- **DIRECT. Ouganda-Tanzanie (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/ouganda-tanzanie-live/670763)
+- **Retrouvailles est-africaines entre l’Ouganda et la Tanzanie dans le choc du groupe C de la CAN TotalEnergies Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/retrouvailles-est-africaines-entre-l-ouganda-et-la-tanzanie-dans-le-choc-du-groupe-c-de-la-can-totalenergies-maroc-2025/)
+- **L’Ouganda et la Tanzanie préparent déjà une CAN 2027 spectaculaire**: [Link](https://www.footmercato.net/a1698378388675761658-louganda-et-la-tanzanie-preparent-deja-une-can-2027-spectaculaire)
+
+
+### crash avion turquie (N/A, Sat, 27 Dec 2025 08:50:00 -0800)
+
+- **Deux Français tués dans le crash de l’avion qui transportait le chef d’état-major libyen en Turquie**: [Link](https://www.lemonde.fr/international/article/2025/12/26/deux-francais-tues-dans-le-crash-de-l-avion-qui-transportait-le-chef-d-etat-major-libyen-en-turquie_6659518_3210.html)
+- **Deux victimes françaises identifiées après le crash de l’avion qui transportait le chef d’état-major libyen en Turquie**: [Link](https://www.lefigaro.fr/international/deux-victimes-francaises-identifiees-apres-le-crash-de-l-avion-qui-transportait-le-chef-d-etat-major-libyen-en-turquie-20251226)
+- **Achèvement des procédures médico-légales pour le transfert des dépouilles du chef d'état-major libyen et de ses compagnons**: [Link](https://www.sadanews.ps/fr/news/261300.html)
+
+
 ### chelsea – aston villa (N/A, Sat, 27 Dec 2025 08:40:00 -0800)
 
 - **Maresca updates on duo and the need to rotate | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/maresca-updates-on-duo-and-the-need-to-rotate)
