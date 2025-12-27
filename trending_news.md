@@ -1,3 +1,10 @@
+### coupe d'afrique des nations de football 2025 (N/A, Fri, 26 Dec 2025 14:20:00 -0800)
+
+- **Nigeria–Tunisie, duel à haute tension pour la tête du groupe C**: [Link](https://www.cafonline.com/fr/can2025/infos/nigeria-tunisie-duel-a-haute-tension-pour-la-tete-du-groupe-c/)
+- **L’équipe nationale met le cap aujourd’hui sur Fès : L’euphorie, ce vilain défaut…**: [Link](https://www.lapresse.tn/2025/12/26/lequipe-nationale-met-le-cap-aujourdhui-sur-fes-leuphorie-ce-vilain-defaut/)
+- **Sami Trabelsi: 'On ne change pas une équipe qui gagne'**: [Link](https://www.mosaiquefm.net/fr/can-2025/1490180/sami-trabelsi-on-ne-change-pas-une-equipe-qui-gagne)
+
+
 ### الطقس (N/A, Fri, 26 Dec 2025 22:20:00 -0800)
 
 - **الجو هيقلب 180 درجة.. بيان مهم بشأن حالة الطقس اليوم: عودة الأمطار بقوة**: [Link](https://www.almasryalyoum.com/news/details/4160874)
