@@ -1,3 +1,10 @@
+### mcdonald's (N/A, Fri, 26 Dec 2025 16:10:00 -0800)
+
+- **Man dies in ‘freak accident’ in McDonald’s drive thru in Grand Island**: [Link](https://www.ksnblocal4.com/2025/12/23/man-dies-freak-accident-mcdonalds-drive-thru-grand-island/)
+- **Nebraska man killed in McDonald’s drive-thru 'freak accident'**: [Link](https://www.livenowfox.com/news/man-killed-mcdonalds-drive-thru-accident)
+- **Man dies in ‘freak accident’ while in McDonald’s drive-thru, police say**: [Link](https://www.foxcarolina.com/2025/12/24/man-dies-freak-accident-while-mcdonalds-drive-thru-police-say/)
+
+
 ### طقس اكادير (N/A, Fri, 26 Dec 2025 15:50:00 -0800)
 
 - **نشرة إنذارية: تساقطات ثلجية وأمطار قوية من اليوم الجمعة إلى الاثنين المقبل**: [Link](https://ar.yabiladi.com/articles/details/183896/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1.html)
