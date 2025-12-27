@@ -1,3 +1,10 @@
+### lookman (N/A, Sat, 27 Dec 2025 12:50:00 -0800)
+
+- **Inter non perfetta, ma Chivu soddisfatto dei progressi verso il finale del 2025**: [Link](https://www.fotmob.com/it/news/cl66rsayjmve1bxry3xr9i7fd_it-inter-non-perfetta-ma-chivu-soddisfatto-dei-progressi-verso-il-finale-del-2025)
+- **Eve of Atalanta vs. Inter, the Nerazzurri's training session**: [Link](https://www.inter.it/en/news/eve-atalanta-inter-training-session-27-december-2025)
+- **Frattesi esterno destro, Chivu categorico. Poi il tecnico fa capire che non tutta la verità è nota**: [Link](https://www.msn.com/it-it/sport/calcio/frattesi-esterno-destro-chivu-categorico-poi-il-tecnico-fa-capire-che-non-tutta-la-verit%C3%A0-%C3%A8-nota/ar-AA1T7pXv)
+
+
 ### hannibal mejbri (N/A, Sat, 27 Dec 2025 12:40:00 -0800)
 
 - **AFCON Matchday 3: Tunisia defeats Uganda, Lookman’s swift reply seals Nigeria win, Senegal cruise past Botswana, DR Congo edge Benin**: [Link](https://www.cafonline.com/afcon2025/news/afcon-matchday-3-tunisia-defeats-uganda-lookman-s-swift-reply-seals-nigeria-win-senegal-cruise-past-botswana-dr-congo-edge-benin/)
