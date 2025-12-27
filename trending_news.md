@@ -1,3 +1,10 @@
+### maroc mali football (N/A, Sat, 27 Dec 2025 11:00:00 -0800)
+
+- **Le Maroc accroché par le Mali**: [Link](https://www.cafonline.com/fr/can2025/infos/le-maroc-accroche-par-le-mali/)
+- **CAN 2025. Maroc-Mali. Les principaux enseignements tactiques (vidéo)**: [Link](https://medias24.com/2025/12/27/can-2025-maroc-mali-les-principaux-enseignements-tactiques-video-1603399/)
+- **CAN Maroc-2025: Nael El Aynaoui « Meilleur joueur » (CAF)**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%86%D8%A7%D8%A6%D9%84-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D8%A7%D8%AD%D8%B3/)
+
+
 ### al nassr (N/A, Sat, 27 Dec 2025 07:50:00 -0800)
 
 - **Cristiano Ronaldo Powers Al Nassr Past Al Okhdood With Historic Double**: [Link](https://www.beinsports.com/en-us/soccer/articles/cristiano-ronaldo-powers-al-nassr-past-al-okhdood-with-historic-double-2025-12-27)
