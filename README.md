@@ -1,3 +1,24 @@
+### hannibal mejbri (N/A, Sat, 27 Dec 2025 12:40:00 -0800)
+
+- **AFCON Matchday 3: Tunisia defeats Uganda, Lookman’s swift reply seals Nigeria win, Senegal cruise past Botswana, DR Congo edge Benin**: [Link](https://www.cafonline.com/afcon2025/news/afcon-matchday-3-tunisia-defeats-uganda-lookman-s-swift-reply-seals-nigeria-win-senegal-cruise-past-botswana-dr-congo-edge-benin/)
+- **Tunisia too strong for Uganda**: [Link](https://www.beinsports.com/en-au/football/africa-cup-of-nations/articles-video/tunisia-too-strong-for-uganda-2025-12-24)
+- **AFCON 2025: James Bogere’s Historic Feat During Uganda Cranes’ Loss to Tunisia**: [Link](https://www.pulsesports.ug/afcon-2025/story/afcon-2025-james-bogeres-historic-feat-during-uganda-cranes-loss-to-tunisia-2025122509475332262)
+
+
+### eric chelle (N/A, Sat, 27 Dec 2025 12:40:00 -0800)
+
+- **Éric Chelle: « Cette CAN 2025 est meilleure que les championnats européens »**: [Link](https://beninwebtv.com/eric-chelle-cette-can-2025-est-meilleure-que-les-championnats-europeens/)
+- **DIRECT. Nigeria-Tunisie (CAN 2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/nigeria-tunisie-live/670762)
+- **DIRECT. Nigeria-Tunisie: Osimhen concrétise la domination des Super Eagles avant la pause**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-nigeria-tunisie-suivez-le-match-du-groupe-c-de-la-can-2025-en-live_LS-202512270192.html)
+
+
+### juventus (N/A, Sat, 27 Dec 2025 12:40:00 -0800)
+
+- **Serie A: in campo Pisa-Juventus 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2025/12/27/serie-a-in-campo-pisa-juventus-0-0-diretta_a8dd1f0a-3e08-41d2-b345-7b044cab2d97.html)
+- **Serie A | Le formazioni ufficiali di Pisa-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-pisa-juventus-formazioni-ufficiali)
+- **Perché Meister non gioca Pisa-Juventus e non è nemmeno in panchina: infortunio o scelta tecnica?**: [Link](https://www.goal.com/it/liste/perche-meister-non-gioca-pisa-juventus-e-non-e-nemmeno-in-panchina-infortunio-o-scelta-tecnica/blt481d9f043f446b2a)
+
+
 ### tremblement de terre rabat (N/A, Sat, 27 Dec 2025 12:20:00 -0800)
 
 - **Séisme au Maroc : secousse dans la région de Fès-Meknès**: [Link](https://industries.ma/seisme-au-maroc-secousse-dans-la-region-de-fes-meknes/)
