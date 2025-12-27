@@ -1,3 +1,10 @@
+### prochain match maroc (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
+
+- **CAN 2025 : Kylian Mbappé présent en tribune à Rabat avec le maillot du Maroc floqué Hakimi pour assister au match face au Mali**: [Link](https://www.lequipe.fr/Football/Actualites/Can-2025-kylian-mbappe-present-en-tribune-a-rabat-avec-le-maillot-du-maroc-floque-hakimi-pour-assister-au-match-face-au-mali/1629613)
+- **CAN 2025, Maroc-Mali: les images de Kylian Mbappé dans les tribunes avec le maillot d'Achraf Hakimi**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-maroc-mali-les-images-de-kylian-mbappe-dans-les-tribunes-avec-le-maillot-d-achraf-hakimi_AP-202512260415.html)
+- **CAN 2025 : Kylian Mbappé répond présent à l’invitation d’Hakimi pour Maroc-Mali à Rabat**: [Link](https://mobile.telquel.ma/instant-t/2025/12/26/can-2025-kylian-mbappe-repond-present-a-linvitation-dhakimi-pour-maroc-mali-a-rabat_1967372/)
+
+
 ### cup africa (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
 
 - **CAF Media Ticketing Platform Operational for TotalEnergies CAF Africa Cup of Nations Morocco 2025**: [Link](https://www.cafonline.com/afcon2025/news/caf-media-ticketing-platform-operational-for-totalenergies-caf-africa-cup-of-nations-morocco-2025/)
