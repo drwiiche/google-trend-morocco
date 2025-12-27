@@ -1,3 +1,10 @@
+### ademola lookman (N/A, Sat, 27 Dec 2025 13:30:00 -0800)
+
+- **AFCON 2025: Lookman, Akinsanmiro top Serie A stars to shine in Morocco**: [Link](https://thenationonlineng.net/afcon-2025-lookman-akinsanmiro-top-serie-a-stars-to-shine-in-morocco/)
+- **‘This can't be the same guy’ - Nigerians shocked by Lookman’s Man-of-the-Match performance against Tunisia**: [Link](https://www.pulsesports.ng/afcon-2025/story/this-cant-be-the-same-guy-nigerians-shocked-by-lookmans-man-of-the-match-performance-against-tunisia-2025122722082111767)
+- **Man of Match Ademola Lookman says Super Eagles on right track**: [Link](https://scorenigeria.com.ng/man-of-match-ademola-lookman-says-super-eagles-on-right-track/)
+
+
 ### classement can (N/A, Sat, 27 Dec 2025 14:00:00 -0800)
 
 - **La CAN vue depuis le siège avant : klaxons, pourboires et stratégies de survie à Casablanca, Rabat et Marrakech**: [Link](https://lematin.ma/societe/la-can-vue-depuis-le-siege-avant-klaxons-pourboires/321320)
