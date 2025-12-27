@@ -1,3 +1,45 @@
+### آرسنال ضد برايتون (N/A, Sat, 27 Dec 2025 07:00:00 -0800)
+
+- **ساكا وجيوكيريس على رأس تشكيل آرسنال لمواجهة برايتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A7%D9%83%D8%A7-%D9%88%D8%AC%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D9%94%D8%B3-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86/blt42c5d92b8a54fe20)
+- **أرتيتا يخشى من تكرار واقعة "طرد ديكلان رايس"**: [Link](https://24.ae/article/938233/%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%AE%D8%B4%D9%89-%D9%85%D9%86-%D8%AA%D9%83%D8%B1%D8%A7%D8%B1-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%B7%D8%B1%D8%AF-%D8%AF%D9%8A%D9%83%D9%84%D8%A7%D9%86-%D8%B1%D8%A7%D9%8A%D8%B3-)
+- **موقف غابرييل من مباراة أرسنال وبرايتون**: [Link](https://hihi2.com/2025/12/27/p3575570.html)
+
+
+### west ham – fulham (N/A, Sat, 27 Dec 2025 06:50:00 -0800)
+
+- **Talking Points | Nuno on targeting a clean sheet, Fulham and January**: [Link](https://whufc.com/en/news/talking-points-or-nuno-on-targeting-a-clean-sheet-fulham-and-january)
+- **Both teams to score tips and predictions: Our 6-1 acca for Saturday's action**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/both-teams-to-score-tips-and-predictions-our-6-1-acca-for-saturdays-action-avUhL7U4XecX/)
+- **“Big call” | Early Team News | West Ham vs Fulham**: [Link](https://www.thewesthamway.com/2025/12/27/big-call-early-team-news-west-ham-vs-fulham/)
+
+
+### brentford – bournemouth (N/A, Sat, 27 Dec 2025 06:50:00 -0800)
+
+- **Brentford vs Bournemouth LIVE! Team news, live blog, score updates, free highlights and match report**: [Link](https://www.skysports.com/football/live-blog/11743/13486658/brentford-vs-bournemouth-live-team-news-live-blog-score-updates-free-highlights-and-match-report)
+- **Football Bet of the Day: Cherries to continue to entertain on the road**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-cherries-to-continue-to-entertain-on-the-road/)
+- **Use Midnite promo code to snag £30 in bonus bets ahead of Brentford v Bournemouth**: [Link](https://talksport.com/betting/3846875/brentford-vs-bournemouth-midnite-free-bets/)
+
+
+### virements bancaires (N/A, Sat, 27 Dec 2025 06:50:00 -0800)
+
+- **Pourquoi les virements interbancaires sont suspendus jusqu’au 29 décembre**: [Link](https://www.lemonde.fr/argent/article/2025/12/25/blocages-des-virements-interbancaires-pourquoi-vous-ne-pourrez-pas-faire-de-transferts-jusqu-a-lundi-29-decembre_6659367_1657007.html)
+- **Virements bancaires en suspens : pourquoi il sera impossible de faire certains versements entre le 25 et le 29 décembre**: [Link](https://www.liberation.fr/international/europe/virements-bancaires-en-suspens-pourquoi-il-sera-impossible-de-faire-certains-versements-entre-le-25-et-le-29-decembre-20251225_AORM6VRJ7NFCHMO2SOSDAFGJJY/)
+- **Virement bancaire en pause un jour férié : pourquoi votre argent peut rester bloqué plus longtemps que prévu**: [Link](https://journaldesseniors.20minutes.fr/argent/virement-bancaire-en-pause-un-jour-ferie-pourquoi-votre-argent-peut-rester-bloque-plus-longtemps-que-prevu/)
+
+
+### liverpool vs wolves (N/A, Sat, 27 Dec 2025 06:30:00 -0800)
+
+- **How To Watch Liverpool vs. Wolves: Live Streams And TV Channels**: [Link](https://www.thisisanfield.com/2025/12/how-to-watch-liverpool-vs-wolves-live-streams-and-tv-channels/)
+- **Premier League / Liverpool - Wolverhampton: the official lineups are in!**: [Link](https://foot-africa.com/en/news/premier-league-liverpool-wolverhampton-the-official-lineups-are-in-1019384/)
+- **Cody Gakpo injury latest for Liverpool vs Wolves**: [Link](https://metro.co.uk/2025/12/26/cody-gakpo-injury-latest-for-liverpool-vs-wolves-25826181/)
+
+
+### nottingham forest - manchester city (N/A, Sat, 27 Dec 2025 06:30:00 -0800)
+
+- **Premier League LIVE: Liverpool v Wolves and Arsenal v Brighton among games under way**: [Link](https://www.bbc.com/sport/football/live/cdrz7gn6k2et)
+- **Nottingham Forest 1-2 Manchester City: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/27/nottingam-forest-v-manchester-city-premier-league-live)
+- **We’ll decide on Rodri fitness today, says Guardiola**: [Link](https://www.mancity.com/news/mens/pep-guardiola-rodri-update-nottingham-forest-63902351)
+
+
 ### tirage euromillions (N/A, Sat, 27 Dec 2025 04:40:00 -0800)
 
 - **EuroMillions : le jackpot est tombé, un joueur remporte plus de 50 millions d’euros**: [Link](https://www.rtl.be/actu/conso/euromillions-le-jackpot-est-tombe-un-joueur-remporte-plus-de-50-millions-deuros/2025-12-26/article/774737)
