@@ -1,3 +1,22 @@
+### مجموعة تونس (N/A, Sat, 27 Dec 2025 13:30:00 -0800)
+
+- **أوغندا وتنزانيا يقتسمان نقط اللقاء**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%AB%D9%8A%D8%B1-%D8%A8%D9%8A%D9%86-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%88%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-1677996.html)
+- **مجموعة تونس.. تنزانيا تنجو من انتفاضة أوغندا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%AA%D9%88%D9%86%D8%B3--%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D8%A7%D9%86%D8%AA%D9%81%D8%A7%D8%B6%D8%A9-%D8%A7%D9%94%D9%88%D8%BA%D9%86%D8%AF%D8%A7/blt08484a269eb504ea)
+- **أمم إفريقيا: أوكيلي يهدر ركلة جزاء في الوقت القاتل ويحرم اوغندا من فوز ثمين على تنزانيا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251227-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A3%D9%88%D9%83%D9%8A%D9%84%D9%8A-%D9%8A%D9%87%D8%AF%D8%B1-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D8%A7%D9%84%D9%82%D8%A7%D8%AA%D9%84-%D9%88%D9%8A%D8%AD%D8%B1%D9%85-%D8%A7%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%85%D9%86-%D9%81%D9%88%D8%B2-%D8%AB%D9%85%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7)
+
+
+### akor adams (N/A, Sat, 27 Dec 2025 13:30:00 -0800)
+
+- **Adams: Osimhen and I will only get better for Nigeria**: [Link](https://www.espn.com/video/clip/_/id/47401967)
+- **AFCON: He’s remained the same – Amuneke names natural leader in Super Eagles squad**: [Link](https://ng.headtopics.com/news/afcon-he-s-remained-the-same-amuneke-names-natural-77686225)
+- **AFCON 2025: Jose Mourinho shares what Nigeria must do to win competition**: [Link](https://www.legit.ng/sports/football/1689878-jose-mourinho-chelsea-coach-reveals-what-nigeria-win-afcon-2025/)
+
+
+### classement coupe d'afrique des nations de football 2025 (N/A, Sat, 27 Dec 2025 13:30:00 -0800)
+
+
+
+
 ### lookman (N/A, Sat, 27 Dec 2025 12:50:00 -0800)
 
 - **Inter non perfetta, ma Chivu soddisfatto dei progressi verso il finale del 2025**: [Link](https://www.fotmob.com/it/news/cl66rsayjmve1bxry3xr9i7fd_it-inter-non-perfetta-ma-chivu-soddisfatto-dei-progressi-verso-il-finale-del-2025)
