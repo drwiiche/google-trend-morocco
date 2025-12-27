@@ -1,3 +1,10 @@
+### cup africa (N/A, Fri, 26 Dec 2025 14:00:00 -0800)
+
+- **CAF Media Ticketing Platform Operational for TotalEnergies CAF Africa Cup of Nations Morocco 2025**: [Link](https://www.cafonline.com/afcon2025/news/caf-media-ticketing-platform-operational-for-totalenergies-caf-africa-cup-of-nations-morocco-2025/)
+- **AFCON 2025: Full schedule, results, scores, and standings at CAF Africa Cup of Nations in Morocco**: [Link](https://www.olympics.com/en/news/afcon-2025-schedule-result-scores-standings)
+- **How to watch AFCON 2025 on Channel 4 — it's *FREE***: [Link](https://sports.yahoo.com/articles/watch-afcon-2025-channel-4-070000432.html)
+
+
 ### stranger things (N/A, Sat, 27 Dec 2025 02:00:00 -0800)
 
 - **Six Pressing Questions Heading Into the ‘Stranger Things’ Finale**: [Link](https://www.theringer.com/2025/12/26/stranger-things/stranger-things-finale-questions-predictions-eleven-vecna-upside-down)
