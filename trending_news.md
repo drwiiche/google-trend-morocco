@@ -1,3 +1,24 @@
+### bénin – botswana (N/A, Sat, 27 Dec 2025 04:00:00 -0800)
+
+- **Les quatre affiches du samedi 27 décembre**: [Link](https://mobile.telquel.ma/2025/12/27/les-quatre-affiches-du-samedi-27-decembre_1967649)
+- **CAN 2025: le programme de ce samedi 27 décembre, avec Sénégal–RD Congo et Nigeria–Tunisie au sommet**: [Link](https://sport.le360.ma/football/can/can-2025-le-programme-de-ce-samedi-27-decembre-avec-senegalrd-congo-et-nigeriatunisie-au-sommet_AXFQR3Q4QFANLE22CVCMOA74KU/)
+- **Match ce soir : Le programme TV foot du jour (27 Décembre 2025)**: [Link](https://madeinfoot.ouest-france.fr/infos/article-match-ce-soir-le-programme-tv-foot-du-jour-27-decembre-2025-507225.html)
+
+
+### نوتينغهام فورست ضد مان سيتي (N/A, Sat, 27 Dec 2025 03:50:00 -0800)
+
+- **غوارديولا يؤكد تحسن حالة رودري ويحذر أرسنال: "نحن موجودون"**: [Link](https://m.elbotola.com/article/2025-12-26-20-24-976.html)
+- **هل يأكل كالدب؟ فيديو هالاند يفجر سخرية لاذعة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D9%84-%D9%8A%D8%A7%D9%94%D9%83%D9%84-%D9%83%D8%A7%D9%84%D8%AF%D8%A8-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D9%81%D8%AC%D8%B1-%D8%B3%D8%AE%D8%B1%D9%8A%D8%A9-%D9%84%D8%A7%D8%B0%D8%B9%D8%A9/blt1d9dfc7907698234)
+- **جوارديولا يرد على إمكانية إبرام السيتي صفقات في يناير**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/1359208/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A5%D9%85%D9%83%D8%A7%D9%86%D9%8A%D8%A9-%D8%A5%D8%A8%D8%B1%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA)
+
+
+### watford (N/A, Sat, 27 Dec 2025 03:10:00 -0800)
+
+- **Leicester City 1-2 Watford: Hornets fight back to beat Foxes**: [Link](https://www.bbc.com/sport/football/live/ckgk4wxkvp2t)
+- **Gracia hails Watford 'solidarity' and spirit**: [Link](https://sports.yahoo.com/articles/gracia-hails-watford-solidarity-spirit-185608333.html)
+- **Leicester boss Marti Cifuentes says ’emotionally, it’s not easy’ after home loss**: [Link](https://www.corklive.ie/news/sport/1975843/leicester-boss-marti-cifuentes-says-emotionally-its-not-easy-after-home-loss.html)
+
+
 ### nottm forest – manchester city (N/A, Sat, 27 Dec 2025 03:40:00 -0800)
 
 - **We’ll decide on Rodri fitness today, says Guardiola**: [Link](https://www.mancity.com/news/mens/pep-guardiola-rodri-update-nottingham-forest-63902351)
