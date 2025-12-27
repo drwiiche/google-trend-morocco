@@ -1,3 +1,10 @@
+### stranger things (N/A, Sat, 27 Dec 2025 02:00:00 -0800)
+
+- **Six Pressing Questions Heading Into the ‘Stranger Things’ Finale**: [Link](https://www.theringer.com/2025/12/26/stranger-things/stranger-things-finale-questions-predictions-eleven-vecna-upside-down)
+- **Could Stranger Things Give Butthole Surfers (Or The Replacements) Their Kate Bush Moment?**: [Link](https://stereogum.com/2483691/stranger-things-butthole-surfers-the-replacements/news)
+- **Stranger Things 5 , Volume 2 Ending Explained: Let’s Unpack That Explosive Finish**: [Link](https://www.netflix.com/tudum/articles/stranger-things-season-5-episode-7-ending-explained)
+
+
 ### somaliland israel (N/A, Fri, 26 Dec 2025 23:30:00 -0800)
 
 - **Israel recognises Somaliland as independent state, Netanyahu says**: [Link](https://www.bbc.com/news/articles/c4g417md05go)
