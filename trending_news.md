@@ -1,3 +1,17 @@
+### نيجيريا ضد تونس (N/A, Sat, 27 Dec 2025 11:20:00 -0800)
+
+- **المنتخب التونسي يتأهب لخوض صدام مرتقب أمام نيجيريا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A-%D9%8A%D8%AA%D8%A3%D9%87%D8%A8-%D9%84%D8%AE%D9%88%D8%B6-%D8%B5%D8%AF%D8%A7%D9%85-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-2025-12-27)
+- **تونس ضد نيجيريا في كأس أفريقيا.. الموعد والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/26/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D8%B6%D8%AF-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **نيجيريا – تونس: قمة واعدة بين "النسور"**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%AA%D9%88%D9%86%D8%B3-%D9%82%D9%85%D8%A9-%D9%88%D8%A7%D8%B9%D8%AF%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D8%B1/)
+
+
+### nigeria – tunisie (N/A, Sat, 27 Dec 2025 11:10:00 -0800)
+
+- **DIRECT. Nigeria-Tunisie: suivez le match du groupe C de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-nigeria-tunisie-suivez-le-match-du-groupe-c-de-la-can-2025-en-live_LS-202512270192.html)
+- **CAN 2025 : le programme des matchs d’aujourd’hui vendredi 26 décembre avec le Maroc, l’Égypte et les Comores**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matchs-daujourdhui-vendredi-26-decembre-avec-le-maroc-legypte-et-les-comores-26-12-2025-D46GX5KDLNHUPFWQQKASJQNCMQ.php)
+- **Les quatre affiches du samedi 27 décembre**: [Link](https://mobile.telquel.ma/2025/12/27/les-quatre-affiches-du-samedi-27-decembre_1967649)
+
+
 ### nigeria vs tunisia (N/A, Sat, 27 Dec 2025 11:10:00 -0800)
 
 - **Nigeria and Tunisia ooze confidence ahead of high-stakes Group C showdown in Fès**: [Link](https://www.cafonline.com/afcon2025/news/nigeria-and-tunisia-ooze-confidence-ahead-of-high-stakes-group-c-showdown-in-fes/)
