@@ -1,3 +1,24 @@
+### sadio mané (N/A, Sat, 27 Dec 2025 07:20:00 -0800)
+
+- **How many goals does Erling Haaland need to match Sadio Mane's Premier League total?**: [Link](https://www.espn.co.uk/football/story/_/id/47186931/how-many-goals-does-erling-haaland-need-match-sadio-mane-premier-league-total)
+- **Haaland breaks Ronaldo’s Premier League goal record in Man City win**: [Link](https://www.hungamaexpress.com/news/37862-haaland-breaks-ronaldos-premier-league-goal-record-in-man-city-win)
+- **MATCH STATS: Senegal vs DR Congo – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group D**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-senegal-vs-dr-congo-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-d/)
+
+
+### nicolas jackson (N/A, Sat, 27 Dec 2025 07:20:00 -0800)
+
+- **Sources: “Chelsea will certainly…” – major update on potential Blues transfer deal**: [Link](https://www.caughtoffside.com/2025/12/20/nicolas-jackson-transfer-exclusive/)
+- **Aston Villa, Newcastle, Everton, and Napoli all interested in signing Chelsea player**: [Link](https://www.yardbarker.com/soccer/articles/aston_villa_newcastle_everton_and_napoli_all_interested_in_signing_chelsea_player/s1_15956_43236876)
+- **Bayern Munich chief comments on future of Nicolas Jackson**: [Link](https://bayernstrikes.com/bayern-munich-chief-comments-on-future-of-nicolas-jackson)
+
+
+### ليفربول ضد وولفرهامبتون (N/A, Sat, 27 Dec 2025 07:10:00 -0800)
+
+- **كييزا وفيرتز يقودان ليفربول أمام وولفرهامبتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%8A%D9%8A%D8%B2%D8%A7-%D9%88%D9%81%D9%8A%D8%B1%D8%AA%D8%B2-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%88%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86/bltf22d8caa2d943d64)
+- **تكريم جوتا.. طفلاه يحضران في ملعب "أنفيلد" قبل مباراة ليفربول ضد ولفرهامبتون**: [Link](https://m.elbotola.com/article/2025-12-26-01-06-683.html)
+- **أخبار ليفربول - يورغن كلوب يوجه رسالة مؤثرة إلى ديوغو جوتا قبل مباراة ولفرهامبتون - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/833262932450787-%D9%8A%D9%88%D8%B1%D8%BA%D9%86-%D9%83%D9%84%D9%88%D8%A8-%D9%8A%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%A5%D9%84%D9%89-%D8%AF%D9%8A%D9%88%D8%BA%D9%88-%D8%AC%D9%88%D8%AA%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86/)
+
+
 ### آرسنال ضد برايتون (N/A, Sat, 27 Dec 2025 07:00:00 -0800)
 
 - **ساكا وجيوكيريس على رأس تشكيل آرسنال لمواجهة برايتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A7%D9%83%D8%A7-%D9%88%D8%AC%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D9%94%D8%B3-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86/blt42c5d92b8a54fe20)
