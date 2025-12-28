@@ -1,3 +1,17 @@
+### zaha (N/A, Sun, 28 Dec 2025 13:50:00 -0800)
+
+- **Zaha Hadid Architects Explores AI-Driven Design at “Architecture of Possibility” Exhibition in Shenzhen, China**: [Link](https://www.archdaily.com/1037409/zaha-hadid-architects-explores-ai-driven-design-at-architecture-of-possibility-exhibition-in-shenzhen-china/694ddc2e5f86cb4db25114b1-zaha-hadid-architects-explores-ai-driven-design-at-architecture-of-possibility-exhibition-in-shenzhen-china-image)
+- **"Architecture of Possibility": ZHA Exhibition at MOCAPU, Shenzhen**: [Link](https://parametric-architecture.com/architecture-of-possibility-zha/)
+- **Zaha Hadid Architects Explores AI-Driven Design at “Architecture of Possibility” Exhibition in Shenzhen, China**: [Link](https://www.archdaily.com/1037409/zaha-hadid-architects-explores-ai-driven-design-at-architecture-of-possibility-exhibition-in-shenzhen-china)
+
+
+### retraite 2026 (N/A, Sun, 28 Dec 2025 13:40:00 -0800)
+
+- **Retraite Agirc-Arrco : il n'y aura pas de revalorisation des pensions au 1er janvier 2026, voici pourquoi**: [Link](https://www.pleinevie.fr/retraite-travail/retraite/retraite-agirc-arrco-il-ny-aura-pas-de-revalorisation-des-pensions-au-1er-janvier-2026-voici-pourquoi-183650.html)
+- **Retraites : tout ce qui change en 2026**: [Link](https://www.moneyvox.fr/retraite/actualites/106844/retraites-tout-ce-qui-change-en-2026)
+- **Calendrier des paiements 2026 de l’assurance retraite : quoi retenir pour votre pension**: [Link](https://vonews.net/calendrier-des-paiements-2026-de-l-assurance-retraite-quoi-retenir-pour-votre-pension/)
+
+
 ### cote d'ivoire vs (N/A, Sun, 28 Dec 2025 12:50:00 -0800)
 
 - **CAN 2025 : Kylian Mbappé a tranché entre l’Algérie et le Cameroun**: [Link](https://www.footmercato.net/a6871337842250935721-can-2025-kylian-mbappe-present-a-marrakech-pour-cameroun-cote-divoire)
