@@ -1,3 +1,10 @@
+### gessime yassine (N/A, Sat, 27 Dec 2025 22:30:00 -0800)
+
+- **Mercato L1 : ça s’accélère pour Gessime Yassine**: [Link](https://www.footmercato.net/a1632643117530189111-mercato-l1-ca-saccelere-pour-gessime-yassine)
+- **Mercato : Gessime Yassine au cœur des convoitises**: [Link](https://www.yabiladi.com/articles/details/184479/mercato-gessime-yassine-coeur-convoitises.html)
+- **Un joueur affole la Ligue 1 : Le PSG dit non !**: [Link](https://le10sport.com/football/mercato/un-joueur-affole-la-ligue-1-le-psg-dit-non-769702)
+
+
 ### football maroc mali (N/A, Sun, 28 Dec 2025 01:00:00 -0800)
 
 - **CAN 2025. Maroc-Mali. Les principaux enseignements tactiques (vidéo)**: [Link](https://medias24.com/2025/12/27/can-2025-maroc-mali-les-principaux-enseignements-tactiques-video-1603399/)
