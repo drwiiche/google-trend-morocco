@@ -1,3 +1,17 @@
+### الجزائر (N/A, Sun, 28 Dec 2025 08:20:00 -0800)
+
+- **المنتخب الجزائري يسعى إلى حسم تأهله عندما يوجه بوركينا فاسو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%AD%D8%B3%D9%85-%D8%AA%D8%A3%D9%87%D9%84%D9%87-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D9%88%D8%AC%D9%87-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-2025-12-28)
+- **شاهد.. لاعب بوركينا فاسو يمازح الصحافة باللهجة الجزائرية**: [Link](https://www.aljazeera.net/sport/2025/12/28/%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7%D9%81%D8%A7%D8%B3%D9%88-%D9%8A%D9%85%D8%A7%D8%B2%D8%AD-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9)
+- **نجم الجزائر: لا يوجد ما يُقال عن تنظيم المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%84%D8%A7-%D9%8A%D9%88%D8%AC%D8%AF-%D9%85%D8%A7-%D9%8A%D9%8F%D9%82%D8%A7%D9%84-%D8%B9%D9%86-%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/bltc366cd96c6412e77)
+
+
+### match gabon mozambique (N/A, Sun, 28 Dec 2025 06:30:00 -0800)
+
+- **Gabon-Mozambique: victoire historique des Mambas face à des Panthères proches de l'élimination à la CAN 2025**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-gabon-mozambique-suivez-le-match-du-groupe-f-de-la-can-2025-en-live_LS-202512280111.html)
+- **CAN 2025 : le Gabon proche de l’élimination après sa défaite contre le Mozambique**: [Link](https://www.footmercato.net/a674455886910116668-can-2025-le-gabon-proche-de-lelimination-apres-sa-defaite-contre-le-mozambique)
+- **CAN: Le Mozambique s’impose face au Gabon (3-2)**: [Link](https://telquel.ma/instant-t/2025/12/28/can-le-mozambique-simpose-face-au-gabon-3-2_1967751/)
+
+
 ### crystal palace – tottenham (N/A, Sun, 28 Dec 2025 07:40:00 -0800)
 
 - **Tottenham confirmed team vs Crystal Palace - Richarlison and Danso start with Kota Takai on bench**: [Link](https://www.football.london/tottenham-hotspur-fc/news/tottenham-confirmed-team-vs-crystal-33130559)
