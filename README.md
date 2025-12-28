@@ -1,3 +1,10 @@
+### gabon – mozambique (N/A, Sun, 28 Dec 2025 03:50:00 -0800)
+
+- **MATCH STATS: Gabon vs Mozambique – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group F**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-gabon-vs-mozambique-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-f/)
+- **Gabon vs Mozambique: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273132/gabon-vs-mozambique-when-and-how-to-watch-afcon-game/)
+- **AFCON: Mozambique’s Kambala expects Gabon’s open game**: [Link](https://www.panafricafootball.com/post/afcon-kambala-on-gabon-s-open-game/)
+
+
 ### algerie vs burkina faso (N/A, Sun, 28 Dec 2025 03:10:00 -0800)
 
 - **MATCH STATS: Algeria vs Burkina Faso – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-burkina-faso-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
