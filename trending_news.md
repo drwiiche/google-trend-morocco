@@ -1,3 +1,10 @@
+### algerie vs burkina faso (N/A, Sun, 28 Dec 2025 03:10:00 -0800)
+
+- **MATCH STATS: Algeria vs Burkina Faso – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-burkina-faso-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
+- **Algeria vs Burkina Faso: Ghanaian referee to officiate AFCON 2025 top liner**: [Link](https://yen.com.gh/sports/football/297079-afcon-2025-ghanaian-referee-daniel-laryea-officiate-algeria-burkina-faso/)
+- **Algeria vs Burkina Faso Match Prediction: Team News, Predicted Lineups & Where To Watch**: [Link](https://www.whoscored.com/articles/6P-Dee_ihUm6GEmCLIlAbA/show/algeria-vs-burkina-faso-match-prediction-team-news-predicted-lineups-where-to-watch)
+
+
 ### match maroc zambie (N/A, Sun, 28 Dec 2025 03:10:00 -0800)
 
 - **El Español: le Maroc, une puissance montante du football mondial**: [Link](https://fr.hespress.com/455729-el-espanol-le-maroc-une-puissance-montante-du-football-mondial.html)
