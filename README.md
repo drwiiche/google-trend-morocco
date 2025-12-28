@@ -1,3 +1,24 @@
+### aubameyang (N/A, Sun, 28 Dec 2025 05:20:00 -0800)
+
+- **AFCON 2025: Tensions between OM and Gabon on the Aubameyang case**: [Link](https://sportnewsafrica.com/en/alerts/afcon-2025-tensions-between-om-and-gabon-on-the-aubameyang-case)
+- **Aubameyang launches recovery bid at Gabon’s AFCON training camp**: [Link](https://apanews.net/aubameyang-launches-recovery-bid-at-gabons-afcon-training-camp/)
+- **Ambitious Mouyouma targets semi-final stage with Gabon’s Panthers**: [Link](https://www.cafonline.com/afcon2025/news/ambitious-mouyouma-targets-semi-final-stage-with-gabon-s-panthers/)
+
+
+### ميلان ضد هيلاس فيرونا (N/A, Sun, 28 Dec 2025 05:10:00 -0800)
+
+- **احتفال البالونة.. نكونكو يطلق صرخته الأولى مع ميلان بالكالتشيو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84-%D8%A7%D9%84%D8%A8%D8%A7%D9%84%D9%88%D9%86%D8%A9--%D9%86%D9%83%D9%88%D9%86%D9%83%D9%88-%D9%8A%D8%B7%D9%84%D9%82-%D8%B5%D8%B1%D8%AE%D8%AA%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%89-%D9%85%D8%B9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D9%83%D8%A7%D9%84%D8%AA%D8%B4%D9%8A%D9%88/blt32bdcc34d482c800)
+- **يلا شووت - متابعة لحظية للمباريات**: [Link](https://www.ysscores.com/ar/news/13879765/%D8%A3%D9%84%D9%8A%D8%AC%D8%B1%D9%8A-%D9%86%D8%AD%D8%AA%D8%A7%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D8%B1%D9%88%D9%86%D8%A7%D8%8C-%D9%88%D9%86%D9%83%D9%88%D9%86%D9%83%D9%88-%D8%AC%D8%A7%D9%87%D8%B2)
+- **ميلان ضد فيرونا.. بوليسيتش يتقدم للروسونيري بهدف فى الشوط الأول.. فيديو**: [Link](https://www.alshbaka.net/sport/348944.html)
+
+
+### gabon (N/A, Sun, 28 Dec 2025 05:00:00 -0800)
+
+- **Gabon-Mozambique, comment voir le match ?**: [Link](https://www.sports.fr/football/can/gabon-mozambique-comment-voir-le-match-977748.html)
+- **Gabon - Mozambique en direct : les Panthères au pied du mur pour rallier les 8es de finale**: [Link](https://www.france24.com/fr/sports/20251228-can-2025-gabon-mozambique-direct)
+- **PRONOS PARIS RMC Le buteur du jour du 28 décembre - CAN**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-28-decembre-can_AN-202512270234.html)
+
+
 ### كأس أمم أفريقيا (N/A, Sun, 28 Dec 2025 01:40:00 -0800)
 
 - **الركراكي يؤكد مشاركة حكيمي أمام زامبيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%B2%D8%A7%D9%85%D8%A8%D9%8A-1678345.html)
