@@ -1,3 +1,10 @@
+### guinée équatoriale – soudan (N/A, Sun, 28 Dec 2025 06:20:00 -0800)
+
+- **DIRECT. Guinée équatoriale-Soudan (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/guinee-equatoriale-soudan-live/670775)
+- **FC Nantes. Jour décisif pour José Ondó avec la Guinée équatoriale à la CAN face au Soudan**: [Link](https://tribunenantaise.fr/actus-fcnantes/fc-nantes-jour-decisif-pour-jose-ondo-avec-la-guinee-equatoriale-a-la-can-face-au-soudan/)
+- **Guinée Equatoriale - Soudan: Score en direct, Stream et résultats H2H 28/12/2025**: [Link](https://tribuna.com/fr/match/102667577/)
+
+
 ### sunderland – leeds united (N/A, Sun, 28 Dec 2025 05:50:00 -0800)
 
 - **Sunderland v Leeds United: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/28/sunderland-v-leeds-united-premier-league-live)
