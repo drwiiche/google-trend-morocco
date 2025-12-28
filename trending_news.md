@@ -1,3 +1,10 @@
+### algeria vs burkina faso (N/A, Sun, 28 Dec 2025 07:30:00 -0800)
+
+- **MATCH STATS: Algeria vs Burkina Faso – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-burkina-faso-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
+- **Algeria vs Burkina Faso: When & How to Watch AFCON 2025**: [Link](https://www.moroccoworldnews.com/2025/12/273152/algeria-vs-burkina-faso-when-how-to-watch-afcon-2025/)
+- **Preview: Algeria vs Burkina Faso - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/algeria/africa-cup-of-nations/preview/algeria-vs-burkina-faso-prediction-team-news-lineups_588526.html)
+
+
 ### algerie (N/A, Sun, 28 Dec 2025 09:00:00 -0800)
 
 - **"Khoya, Khoya !" Les supporters algériens savourent la CAN au Maroc**: [Link](https://www.france24.com/fr/sports/20251228-can-2025-khaya-supporters-algerie-savourent-maroc)
