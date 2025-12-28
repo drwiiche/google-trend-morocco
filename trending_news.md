@@ -1,3 +1,24 @@
+### أتالانتا ضد الإنتر (N/A, Sun, 28 Dec 2025 11:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة أتالانتا وإنتر في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4d3ddaa9165ea468)
+- **بطولة إيطاليا: اختبار صعب لإنتر وفي المتناول لميلان ونابولي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20251226-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8-%D9%84%D8%A5%D9%86%D8%AA%D8%B1-%D9%88%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AA%D9%86%D8%A7%D9%88%D9%84-%D9%84%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A)
+- **القنوات الناقلة لمباراة إنتر ميلان ضد أتالانتا اليوم في الدوري الإيطالي مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/624896213176723-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B6%D8%AF-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### classement coupe d'afrique des nations de football 2025 (N/A, Sun, 28 Dec 2025 11:40:00 -0800)
+
+- **CAN : Nigeria-Tunisie en direct**: [Link](https://www.football.fr/can/nigeria-tunisie-en-direct-2-791877.html)
+- **CAN 2025 : «On en a marre, réveillez-vous !», le message passionné de l’humoriste Hakim Jemili après la défaite de la Tunisie**: [Link](https://www.lefigaro.fr/sports/football/can-2025-on-en-a-marre-reveillez-vous-le-message-passionne-de-l-humoriste-hakim-jemili-apres-la-defaite-de-la-tunisie-20251228)
+- **Nigeria–Tunisie, duel à haute tension pour la tête du groupe C**: [Link](https://www.cafonline.com/fr/can2025/infos/nigeria-tunisie-duel-a-haute-tension-pour-la-tete-du-groupe-c/)
+
+
+### ترتيب كاس افريقيا (N/A, Sun, 28 Dec 2025 11:40:00 -0800)
+
+- **الجمهور يطالب الركراكي بـ"التصحيح"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A8%D9%80%D8%A7%D9%84%D8%AA%D8%B5%D8%AD%D9%8A%D8%AD-1678104.html)
+- **سايس يكشف ما غاب عن المباراة مالي.. ويوضح جديد حالته الصحية**: [Link](https://www.radiomars.ma/%D8%B3%D8%A7%D9%8A%D8%B3-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D8%A7-%D8%BA%D8%A7%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%84%D9%8A-%D9%88%D9%8A%D9%88%D8%B6/)
+- **العيناوي يحدد العدو الأول للمغرب في أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D9%8A%D8%AD%D8%AF%D8%AF-%D8%A7%D9%84%D8%B9%D8%AF%D9%88-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt5a2a89027641a85b)
+
+
 ### ivory coast vs cameroon (N/A, Sun, 28 Dec 2025 11:30:00 -0800)
 
 - **MATCH STATS: Côte d’Ivoire vs Cameroon – TotalEnergies CAF Africa Cup of Nations Morocco 2025, Group F**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-cote-d-ivoire-vs-cameroon-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-f/)
