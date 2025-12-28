@@ -1,3 +1,10 @@
+### sunderland – leeds united (N/A, Sun, 28 Dec 2025 05:50:00 -0800)
+
+- **Sunderland v Leeds United: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/28/sunderland-v-leeds-united-premier-league-live)
+- **Football accumulator tips for Sunday December 28: Back our acca at 20-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-sunday-december-28-back-our-acca-at-20-1-with-bet365-avDz55h5uir1/)
+- **Use Midnite promo code - net £30 in free bets for Sunderland vs Leeds**: [Link](https://talksport.com/betting/3848791/sunderland-leeds-midnite-free-bets/)
+
+
 ### aubameyang (N/A, Sun, 28 Dec 2025 05:20:00 -0800)
 
 - **AFCON 2025: Tensions between OM and Gabon on the Aubameyang case**: [Link](https://sportnewsafrica.com/en/alerts/afcon-2025-tensions-between-om-and-gabon-on-the-aubameyang-case)
