@@ -1,3 +1,10 @@
+### can classement (N/A, Sat, 27 Dec 2025 14:00:00 -0800)
+
+- **El Español: le Maroc, une puissance montante du football mondial**: [Link](https://fr.hespress.com/455729-el-espanol-le-maroc-une-puissance-montante-du-football-mondial.html)
+- **CAN 2025: les Lions de l’Atlas à l’entraînement pour préparer la Zambie**: [Link](https://sport.le360.ma/football/can/can-2025-les-lions-de-latlas-a-lentrainement-pour-preparer-la-zambie_QAFX4GOKPNBGBDQN7LLOAMFLBQ/)
+- **Récap’ CAN – 26 décembre : tension contenue, équilibres sous pression**: [Link](https://medias24.com/2025/12/27/recap-can-26-decembre-tension-contenue-equilibres-sous-pression-1603337/)
+
+
 ### البطولة (N/A, Sat, 27 Dec 2025 22:10:00 -0800)
 
 - **لوكا زيدان.. شباك نظيفة أمام السودان تعني ضغوطا أكبر ضد بوركينا فاسو**: [Link](https://www.aljazeera.net/sport/2025/12/27/%D8%B2%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%83%D8%A3%D8%B3)
