@@ -1,3 +1,10 @@
+### crystal palace – tottenham (N/A, Sun, 28 Dec 2025 07:40:00 -0800)
+
+- **Tottenham confirmed team vs Crystal Palace - Richarlison and Danso start with Kota Takai on bench**: [Link](https://www.football.london/tottenham-hotspur-fc/news/tottenham-confirmed-team-vs-crystal-33130559)
+- **STAR FOOTBALL PREVIEW Sun: Crystal Palace v Tottenham**: [Link](https://www.starsportsbet.co.uk/star-football-preview-sun-crystal-palace-v-tottenham/)
+- **Use bet365 bonus code TSPORT to unlock £30 for Crystal Palace vs Spurs on Sunday**: [Link](https://talksport.com/betting/3848736/palace-spurs-bet365-bonus-code/)
+
+
 ### algerie foot (N/A, Sun, 28 Dec 2025 07:30:00 -0800)
 
 - **DIRECT. Algérie-Burkina Faso: suivre le match du groupe E de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-algerie-burkina-faso-suivre-le-match-du-groupe-e-de-la-can-2025-en-live_LS-202512280163.html)
