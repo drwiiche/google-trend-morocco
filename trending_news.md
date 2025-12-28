@@ -1,3 +1,24 @@
+### ivory coast vs cameroon (N/A, Sun, 28 Dec 2025 11:30:00 -0800)
+
+- **MATCH STATS: Côte d’Ivoire vs Cameroon – TotalEnergies CAF Africa Cup of Nations Morocco 2025, Group F**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-cote-d-ivoire-vs-cameroon-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-f/)
+- **Ivory Coast and Cameroon Set for Blockbuster All-Star Clash**: [Link](https://www.dawan.africa/news/ivory-coast-and-cameroon-set-for-blockbuster-all-star-clash)
+- **🌍 AFCON: big derby ahead as Algeria start second matchday**: [Link](https://sports.yahoo.com/articles/afcon-big-derby-ahead-algeria-095700452.html)
+
+
+### ساحل العاج ضد الكاميرون (N/A, Sun, 28 Dec 2025 11:30:00 -0800)
+
+- **كان 2025: قنوات مجانية لمشاهدة ساحل العاج - الكاميرون بث مباشر**: [Link](https://foot-africa.com/ar/news/%D9%83%D8%A7%D9%86-%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D9%85%D8%AC%D8%A7%D9%86%D9%8A%D8%A9-%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D8%AC-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-1020587/)
+- **بطولة كأس أمم أفريقيا.. مدرب الأفيال الإيفوارية يرد على منتقديه**: [Link](https://al-sharq.com/article/24/12/2025/%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A3%D9%81%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%A5%D9%8A%D9%81%D9%88%D8%A7%D8%B1%D9%8A%D8%A9-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%AA%D9%82%D8%AF%D9%8A%D9%87)
+- **كان المغرب 2025.. المنتخب الايفواري يبدأ رحلة الحفاظ على لقبه من مراكش - تليكسبريس**: [Link](https://telexpresse.com/444295.html)
+
+
+### morocco vs zambia (N/A, Sun, 28 Dec 2025 11:30:00 -0800)
+
+- **Achraf Hakimi set to debut in Africa Cup of Nations against Zambia**: [Link](https://en.yabiladi.com/articles/details/184507/achraf-hakimi-debut-africa-nations.html)
+- **Regragui Confident in Himself as Morocco’s Coach**: [Link](https://www.moroccoworldnews.com/2025/12/273143/regragui-confident-in-himself-as-moroccos-coach/)
+- **Zambia Coach: 'In Morocco, We Feel Like We're in Europe; Players Must Show Skills to Win'**: [Link](https://m.elbotola.com/en/article/2025-12-28-10-26-832.html)
+
+
 ### côte d'ivoire – cameroun (N/A, Sun, 28 Dec 2025 11:10:00 -0800)
 
 - **CAN 2025 : le programme des matchs d’aujourd’hui dimanche 28 décembre avec l’Algérie, la Côte d’Ivoire et le Cameroun**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matchs-daujourdhui-dimanche-28-decembre-avec-lalgerie-la-cote-divoire-et-le-cameroun-28-12-2025-FGNSZX232ZGUTG7773MBVWEE5U.php)
