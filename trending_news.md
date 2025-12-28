@@ -1,3 +1,10 @@
+### cote d'ivoire vs cameroun (N/A, Sun, 28 Dec 2025 06:30:00 -0800)
+
+- **CAN 2025 : le programme des matchs d’aujourd’hui dimanche 28 décembre avec l’Algérie, la Côte d’Ivoire et le Cameroun**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matchs-daujourdhui-dimanche-28-decembre-avec-lalgerie-la-cote-divoire-et-le-cameroun-28-12-2025-FGNSZX232ZGUTG7773MBVWEE5U.php)
+- **CAN 2025 : Cameroun vs Côte d'Ivoire, un derby africain intense (sélectionneur)**: [Link](https://lematin.ma/sports/can-2025-cameroun-vs-cote-divoire-un-derby-africain-intense/321379)
+- **"C'est la belle famille" : à la CAN 2025, la tension monte à l'approche du match Cameroun-Côte d'Ivoire**: [Link](https://information.tv5monde.com/afrique/cest-la-belle-famille-la-can-2025-la-tension-monte-lapproche-du-match-cameroun-cote-divoire-2802943)
+
+
 ### guinée équatoriale – soudan (N/A, Sun, 28 Dec 2025 06:20:00 -0800)
 
 - **DIRECT. Guinée équatoriale-Soudan (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/guinee-equatoriale-soudan-live/670775)
