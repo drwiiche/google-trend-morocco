@@ -1,3 +1,17 @@
+### البطولة (N/A, Sat, 27 Dec 2025 22:10:00 -0800)
+
+- **لوكا زيدان.. شباك نظيفة أمام السودان تعني ضغوطا أكبر ضد بوركينا فاسو**: [Link](https://www.aljazeera.net/sport/2025/12/27/%D8%B2%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%83%D8%A3%D8%B3)
+- **زيدان يخطف الأضواء في المغرب**: [Link](https://www.alaraby.co.uk/sport/%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D8%B6%D9%88%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **ايت العريف: محرز لاعب جزائري من المستوى الكبير 🎙🇩🇿**: [Link](https://m.elbotola.com/video/details/694d84e90f37c9163ecdf83b/)
+
+
+### météo maroc alerte neige (N/A, Sat, 27 Dec 2025 20:50:00 -0800)
+
+- **Fortes averses orageuses, chutes de neige, rafales de vent et temps froid de samedi à lundi dans plusieurs régions (alerte météo)**: [Link](https://lematin.ma/regions/averses-orageuses-chutes-de-neige-et-rafales-de-vent-de-samedi-a-lundi/321376)
+- **Alerte météo : 38 provinces en vigilance orange – averses orageuses, chutes de neige et vents violents**: [Link](https://medias24.com/2025/12/26/alerte-meteo-38-provinces-en-vigilance-orange-averses-orageuses-chutes-de-neige-et-vents-violents-1602927/)
+- **Vigilance orange : orages, chutes de neige et vents violents annoncés jusqu’à lundi**: [Link](https://www.leconomiste.com/flash-infos/vigilance-orange-orages-chutes-de-neige-et-vents-violents-annonces-jusqua-lundi/)
+
+
 ### somaliland (N/A, Sat, 27 Dec 2025 23:10:00 -0800)
 
 - **More countries reject Israel’s recognition of Somaliland**: [Link](https://apnews.com/article/somalia-somaliland-recognition-israel-0643e819cc043163d7a81c91617232a9)
