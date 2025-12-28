@@ -1,3 +1,10 @@
+### côte d'ivoire – cameroun (N/A, Sun, 28 Dec 2025 11:10:00 -0800)
+
+- **CAN 2025 : le programme des matchs d’aujourd’hui dimanche 28 décembre avec l’Algérie, la Côte d’Ivoire et le Cameroun**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matchs-daujourdhui-dimanche-28-decembre-avec-lalgerie-la-cote-divoire-et-le-cameroun-28-12-2025-FGNSZX232ZGUTG7773MBVWEE5U.php)
+- **CAN 2025 : Cameroun vs Côte d'Ivoire, un derby africain intense (sélectionneur)**: [Link](https://lematin.ma/sports/can-2025-cameroun-vs-cote-divoire-un-derby-africain-intense/321379)
+- **Pourquoi c’est toujours le bordel chez le Cameroun lors des grands tournois ?**: [Link](https://www.20minutes.fr/sport/football/4192071-20251228-cote-ivoire-cameroun-pourquoi-toujours-bordel-chez-lions-indomptables-lors-grandes-competitions)
+
+
 ### atalanta – inter (N/A, Sun, 28 Dec 2025 11:00:00 -0800)
 
 - **Official liine-ups for Atalanta-Inter**: [Link](https://www.inter.it/en/news/official-lineups-atalanta-inter-serie-a-25-26)
