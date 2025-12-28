@@ -1,3 +1,31 @@
+### algérie – burkina faso (N/A, Sun, 28 Dec 2025 08:40:00 -0800)
+
+- **DIRECT. Algérie-Burkina Faso: suivre le match du groupe E de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-algerie-burkina-faso-suivre-le-match-du-groupe-e-de-la-can-2025-en-live_LS-202512280163.html)
+- **CAN 2025 : Petkovic, « Nous ferons tout pour gagner » (vidéo)**: [Link](https://www.dzfoot.com/equipes-nationales/can-2025-petkovic-nous-ferons-tout-pour-gagner-video-288397.html)
+- **Entre ambition et vigilance : les attentes des fans algériens avant le Burkina Faso**: [Link](https://fr.hespress.com/456092-entre-ambition-et-vigilance-les-attentes-des-fans-algeriens-avant-le-burkina-faso.html)
+
+
+### الجزائر ضد بوركينا فاسو (N/A, Sun, 28 Dec 2025 08:40:00 -0800)
+
+- **المنتخب الجزائري يسعى إلى حسم تأهله عندما يوجه بوركينا فاسو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%AD%D8%B3%D9%85-%D8%AA%D8%A3%D9%87%D9%84%D9%87-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D9%88%D8%AC%D9%87-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-2025-12-28)
+- **شاهد.. لاعب بوركينا فاسو يمازح الصحافة باللهجة الجزائرية**: [Link](https://www.aljazeera.net/sport/2025/12/28/%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7%D9%81%D8%A7%D8%B3%D9%88-%D9%8A%D9%85%D8%A7%D8%B2%D8%AD-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9)
+- **نجم الجزائر: لا يوجد ما يُقال عن تنظيم المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%84%D8%A7-%D9%8A%D9%88%D8%AC%D8%AF-%D9%85%D8%A7-%D9%8A%D9%8F%D9%82%D8%A7%D9%84-%D8%B9%D9%86-%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/bltc366cd96c6412e77)
+
+
+### كريستال بالاس ضد توتنهام (N/A, Sun, 28 Dec 2025 08:40:00 -0800)
+
+- **هدافو توتنهام هذا الموسم في الدوري الانجليزي**: [Link](https://hihi2.com/2025/12/28/p3577477.html)
+- **فرانك يثق في تغيير الأمور في توتنهام هوتسبير**: [Link](https://www.reuters.com/ar/sports/XNKE7H663VM2PI3KTUNY6FN4F4-2025-12-28/)
+- **صدام جريحين في لندن.. كريستال بالاس يستضيف توتنهام لتفادي الهزيمة الثالثة تواليًا**: [Link](https://koraplus.com/Article/109939/%D8%B5%D8%AF%D8%A7%D9%85-%D8%AC%D8%B1%D9%8A%D8%AD%D9%8A%D9%86-%D9%81%D9%8A-%D9%84%D9%86%D8%AF%D9%86-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%84%D8%AA%D9%81%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9)
+
+
+### غينيا الاستوائية (N/A, Sun, 28 Dec 2025 08:40:00 -0800)
+
+- **مباشر.. مباراة السودان ضد غينيا الاستوائية 1-0 في كأس أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/28/%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%88%D8%A7%D8%A6%D9%8A%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **صقور الجديان يسعون لتصحيح الأوضاع عند مواجهة غينيا الاستوائية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B5%D9%82%D9%88%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%A7%D9%86-%D9%8A%D8%B3%D8%B9%D9%88%D9%86-%D9%84%D8%AA%D8%B5%D8%AD%D9%8A%D8%AD-%D8%A7%D9%84%D8%A3%D9%88%D8%B6%D8%A7%D8%B9-%D8%B9%D9%86%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%88%D8%A7%D8%A6%D9%8A%D8%A9-2025-12-28)
+- **الحكم ميسي يثير الضجة.. من أزمة حسام حسن لقيادة لقاء السودان وغينيا**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%B6%D8%AC%D8%A9-%D9%85%D9%86-%D8%A3%D8%B2%D9%85%D8%A9-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%88%D8%BA%D9%8A%D9%86%D9%8A%D8%A7)
+
+
 ### الجزائر (N/A, Sun, 28 Dec 2025 08:20:00 -0800)
 
 - **المنتخب الجزائري يسعى إلى حسم تأهله عندما يوجه بوركينا فاسو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D8%A5%D9%84%D9%89-%D8%AD%D8%B3%D9%85-%D8%AA%D8%A3%D9%87%D9%84%D9%87-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D9%88%D8%AC%D9%87-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-2025-12-28)
