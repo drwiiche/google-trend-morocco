@@ -1,3 +1,10 @@
+### algerie match (N/A, Sun, 28 Dec 2025 06:50:00 -0800)
+
+- **DIRECT. Algérie-Burkina Faso: suivre le match du groupe E de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-algerie-burkina-faso-suivre-le-match-du-groupe-e-de-la-can-2025-en-live_LS-202512280163.html)
+- **CAN : Algérie-Burkina Faso, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/can/algerie-burkina-faso-sur-quelle-chaine-voir-le-match-791948.html)
+- **CAN 2025 : Brama Traoré, « Nous allons jouer contre une grande équipe d'Algérie »**: [Link](https://www.dzfoot.com/declarations/can-2025-brama-traore-nous-allons-jouer-contre-une-grande-equipe-dalgerie-288412.html)
+
+
 ### equatorial guinea vs sudan (N/A, Sun, 28 Dec 2025 06:40:00 -0800)
 
 - **MATCH STATS: Equatorial Guinea vs Sudan – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-equatorial-guinea-vs-sudan-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
