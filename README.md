@@ -1,3 +1,17 @@
+### ibrahim maza (N/A, Sun, 28 Dec 2025 10:40:00 -0800)
+
+- **RB Leipzig: Diomande mit erfolgreichem Auftakt beim Afrika-Cup - News vom 28.12.2025**: [Link](https://www.lvz.de/sport/regional/rb-leipzig-diomande-mit-erfolgreichem-auftakt-beim-afrika-cup-news-vom-28-12-2025-FEUNU4PZA4TRPOCCO5RAO35JFA.html)
+- **Elfenbeinküste – Kamerun Tipp, Quoten & Prognose | 28.12.2025**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/elfenbeinkueste-kamerun-tipp-quoten-prognose-28-12-2025)
+- **Elfenbeinküste gegen Mosambik – Prognose, 25. Dezember, 00:30 Uhr: Die Königsklasse**: [Link](https://www.vietnam.vn/de/nhan-dinh-bo-bien-nga-vs-mozambique-00h30-ngay-25-12-dang-cap-nha-vua)
+
+
+### ملعب مولاي الحسن (N/A, Sun, 28 Dec 2025 10:00:00 -0800)
+
+- **الشاب خالد حاضر في ملعب مولاي الحسن لمساندة منتخب الجزائر**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/462242.html)
+- **لوكا زيدان.. حامل الإرث بين القفّازين**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D8%AD%D8%A7%D9%85%D9%84-%D8%A7%D9%84%D8%A5%D8%B1%D8%AB-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%82%D9%81-%D8%A7%D8%B2%D9%8A%D9%86/)
+- **زيدان يخطف الأضواء في المغرب**: [Link](https://www.alaraby.co.uk/sport/%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D8%B6%D9%88%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+
+
 ### lucas zidane (N/A, Sun, 28 Dec 2025 10:20:00 -0800)
 
 - **Zidane in stands for son Luca's Algeria clean sheet**: [Link](https://www.espn.com/soccer/story/_/id/47407784/zidane-sees-son-luca-keep-clean-sheet-algeria-win)
