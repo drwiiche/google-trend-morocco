@@ -1,3 +1,10 @@
+### alerte météo neige maroc (N/A, Sun, 28 Dec 2025 15:20:00 -0800)
+
+- **Alerte météo: Averses orageuses, chutes de neige et fortes rafales de vent, dimanche et lundi dans plusieurs provinces**: [Link](https://medias24.com/2025/12/28/alerte-meteo-averses-orageuses-chutes-de-neige-et-fortes-rafales-de-vent-dimanche-et-lundi-dans-plusieurs-provinces-1603557/)
+- **Le temps qu'il fera ce dimanche 28 décembre 2025**: [Link](https://fr.hespress.com/453909-le-temps-quil-fera-ce-dimanche-28-decembre-2025.html)
+- **Vigilance orange : orages, chutes de neige et vents violents annoncés jusqu’à lundi**: [Link](https://www.leconomiste.com/flash-infos/vigilance-orange-orages-chutes-de-neige-et-vents-violents-annonces-jusqua-lundi/)
+
+
 ### zaha (N/A, Sun, 28 Dec 2025 13:50:00 -0800)
 
 - **Zaha Hadid Architects Explores AI-Driven Design at “Architecture of Possibility” Exhibition in Shenzhen, China**: [Link](https://www.archdaily.com/1037409/zaha-hadid-architects-explores-ai-driven-design-at-architecture-of-possibility-exhibition-in-shenzhen-china/694ddc2e5f86cb4db25114b1-zaha-hadid-architects-explores-ai-driven-design-at-architecture-of-possibility-exhibition-in-shenzhen-china-image)
