@@ -1,3 +1,17 @@
+### ac milan – hellas vérone (N/A, Sun, 28 Dec 2025 02:50:00 -0800)
+
+- **GdS: 73,000 and counting – Milan expected to end 2025 with a sell-out at San Siro**: [Link](https://sempremilan.com/milan-end-2025-sell-out-verona)
+- **No certainty that Leao will be able to return vs Cagliari on Friday**: [Link](https://milanreports.com/2025/12/28/no-certainty-leao-cagliari-friday/)
+- **LIVE: ALLEGRI'S PRESS CONFERENCE**: [Link](https://sports.yahoo.com/articles/live-allegris-press-conference-124500035.html)
+
+
+### مقاييس الأمطار بالمغرب (N/A, Sun, 28 Dec 2025 02:20:00 -0800)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-41-1678017.html)
+- **تفاصيل إسقاط القضاء الإداري لقرار فرض رسوم التسجيل بسلك الدكتوراه**: [Link](https://ar.telquel.ma/%D8%AA%D8%AC%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B9%D8%A7%D8%B5%D9%81%D9%8A%D8%A9-%D9%88%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D8%B7%D9%8A/)
+- **فيديو: نشرة إنذارية.. أمطار رعدية وثلوج ورياح قوية في عدة أقاليم بالمملكة**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B9%D8%AF%D8%A9-%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D8%A8%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-20251227)
+
+
 ### brigitte bardot (N/A, Sun, 28 Dec 2025 01:50:00 -0800)
 
 - **Brigitte Bardot est décédée à 91 ans**: [Link](https://www.lesoir.be/719169/article/2025-12-28/brigitte-bardot-est-decedee-91-ans)
