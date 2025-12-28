@@ -1,3 +1,10 @@
+### somaliland (N/A, Sat, 27 Dec 2025 23:10:00 -0800)
+
+- **More countries reject Israel’s recognition of Somaliland**: [Link](https://apnews.com/article/somalia-somaliland-recognition-israel-0643e819cc043163d7a81c91617232a9)
+- **African regional bodies reject Somaliland's recognition as independent nation by Israel**: [Link](https://www.pbs.org/newshour/world/african-regional-bodies-reject-somalilands-recognition-as-independent-nation-by-israel)
+- **EU backs Somalia after Israel recognizes Somaliland**: [Link](https://www.dw.com/en/eu-backs-somalia-after-israel-recognizes-somaliland/a-75318108)
+
+
 ### مطر (N/A, Sat, 27 Dec 2025 22:40:00 -0800)
 
 - **تفاصيل إسقاط القضاء الإداري لقرار فرض رسوم التسجيل بسلك الدكتوراه**: [Link](https://ar.telquel.ma/%D8%AA%D8%AC%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B9%D8%A7%D8%B5%D9%81%D9%8A%D8%A9-%D9%88%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D8%B7%D9%8A/)
