@@ -1,3 +1,10 @@
+### كأس أمم أفريقيا (N/A, Sun, 28 Dec 2025 01:40:00 -0800)
+
+- **الركراكي يؤكد مشاركة حكيمي أمام زامبيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%B2%D8%A7%D9%85%D8%A8%D9%8A-1678345.html)
+- **حكيمي: "نعلم أن الجماهير غير راضية.. مررت بوضع مشابه مع باريس سان جيرمان لكن في النهاية فزنا بدوري الأبطال"**: [Link](https://m.elbotola.com/article/2025-12-28-12-14-416.html)
+- **الركراكي يعتذر للجمهور المغربي**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D8%AA%D8%B0%D8%B1-%D9%84%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-420006.html)
+
+
 ### gabon – mozambique (N/A, Sun, 28 Dec 2025 03:50:00 -0800)
 
 - **MATCH STATS: Gabon vs Mozambique – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group F**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-gabon-vs-mozambique-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-f/)
