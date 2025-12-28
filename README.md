@@ -1,3 +1,15 @@
+### guéla doué (N/A, Sun, 28 Dec 2025 12:50:00 -0800)
+
+
+
+
+### amad diallo (N/A, Sun, 28 Dec 2025 12:30:00 -0800)
+
+- **Côte d’Ivoire v Cameroon: Afcon 2025 – live**: [Link](https://www.theguardian.com/football/live/2025/dec/28/cote-divoire-v-cameroon-afcon-2025-live)
+- **MATCH STATS: Côte d’Ivoire vs Cameroon – TotalEnergies CAF Africa Cup of Nations Morocco 2025, Group F**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-cote-d-ivoire-vs-cameroon-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-f/)
+- **Ivory Coast and Cameroon Set for Blockbuster All-Star Clash**: [Link](https://www.dawan.africa/news/ivory-coast-and-cameroon-set-for-blockbuster-all-star-clash)
+
+
 ### كوندي (N/A, Sun, 28 Dec 2025 12:40:00 -0800)
 
 - **شاهد.. كوندي يتخلى عن نجوميته ويلعب حافيا في شوارع بنين**: [Link](https://www.aljazeera.net/sport/2025/12/27/%D8%B4%D8%A7%D9%87%D8%AF-%D9%83%D9%88%D9%86%D8%AF%D9%8A-%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%84%D8%B9%D8%A8-%D8%AD%D8%A7%D9%81%D9%8A)
