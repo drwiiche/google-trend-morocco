@@ -1,3 +1,45 @@
+### jean louis gasset (N/A, Sun, 28 Dec 2025 12:00:00 -0800)
+
+- **Figure emblématique du foot français, Jean-Louis Gasset est mort à 72 ans**: [Link](https://www.lequipe.fr/Football/Actualites/Figure-emblematique-du-foot-francais-jean-louis-gasset-est-mort/1629519)
+- **Yoann Gourcuff, l’immense tristesse**: [Link](https://www.sports.fr/football/yoann-gourcuff-et-karine-ferri-limmense-tristesse-977561.html)
+- **« À notre carton rouge lunaire » : le clin d’œil plein d’humour de Will Still après la mort de Jean-Louis Gasset**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/a-notre-carton-rouge-lunaire-le-clin-doeil-plein-dhumour-de-will-still-apres-la-mort-de-jean-louis-gasset-27-12-2025-JGOOJPS52ZDQDGJHTLV3BUE4IE.php)
+
+
+### kounde (N/A, Sun, 28 Dec 2025 12:00:00 -0800)
+
+- **Descalzo, en pleno partido y desde África: la imagen de Koundé que se ha hecho viral**: [Link](https://as.com/futbol/videos/descalzo-en-pleno-partido-y-desde-africa-la-imagen-de-kounde-que-se-ha-hecho-viral-f202512-v/)
+- **Koundé, como Lamine en Dubai, jugando un 'partidillo' con chicos de Benín**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251227/1002592417/kounde-lamine-dubai-jugando-partidillo-chicos-benin.html)
+- **El verdadero fútbol: la humildad de Koundé en la vuelta a sus orígenes**: [Link](https://www.marca.com/futbol/barcelona/2025/12/26/verdadero-futbol-humildad-kounde-vuelta-origenes-video.html)
+
+
+### atalanta vs inter (N/A, Sun, 28 Dec 2025 12:00:00 -0800)
+
+- **Serie A official line-ups: Atalanta vs. Inter**: [Link](https://football-italia.net/serie-a-official-line-ups-atalanta-vs-inter-2/)
+- **Argentina Megastar Pivotal To Inter Milan Fortunes As Captain Leads From The Front**: [Link](https://ca.sports.yahoo.com/news/argentina-megastar-pivotal-inter-milan-121500460.html)
+- **Inter 'not perfect' but Chivu content with progress ahead of 2025 finale**: [Link](https://www.beinsports.com/en-asia/football/serie-a/articles/inter-not-perfect-but-chivu-content-with-progress-ahead-of-2025-finale-2025-12-27)
+
+
+### georgi minoungou (N/A, Sun, 28 Dec 2025 12:00:00 -0800)
+
+- **HIGHLIGHTS | Burkina Faso 🆚 Equatorial Guinea | #TotalEnergiesAFCON2025 - Group E**: [Link](https://www.cafonline.com/afcon2025/videos/highlights-burkina-faso-equatorial-guinea-totalenergiesafcon2025-group-e/)
+- **Africa Cup of Nations Morocco 2025: The incredible story of the Burkinabe striker who plays with only one eye**: [Link](https://seneweb.com/en/news/Sport/can-maroc-2025-lincroyable-histoire-de-lattaquant-burkinabe-qui-joue-avec-un-seul-oeil_n_478633.html)
+- **AFCON 2025: Tapsoba seals dramatic win, Amoura and Maza decisive for Algeria**: [Link](https://sports.yahoo.com/articles/afcon-2025-tapsoba-seals-dramatic-165800986.html)
+
+
+### matchs de coupe d'afrique des nations de football (N/A, Sun, 28 Dec 2025 11:50:00 -0800)
+
+- **CAN 2025 : 78% des Marocains comptent suivre la compétition**: [Link](https://fr.hespress.com/455293-can-2025-78-des-marocains-comptent-suivre-la-competition.html)
+- **CAN 2025 : TECNO déploie des pop-up stores et des fan zones à Rabat et Casablanca**: [Link](https://www.leconomiste.com/flash-infos/can-2025-tecno-deploie-des-pop-up-stores-et-des-fan-zones-a-rabat-et-casablanca/)
+- **Récap’ CAN – 26 décembre : tension contenue, équilibres sous pression**: [Link](https://medias24.com/2025/12/27/recap-can-26-decembre-tension-contenue-equilibres-sous-pression-1603337/)
+
+
+### المغرب ضد زامبيا (N/A, Sun, 28 Dec 2025 11:50:00 -0800)
+
+- **المغرب ضد زامبيا في كأس أفريقيا.. الموعد والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/28/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D8%A7-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **حكيمي: الركراكي غيّر عقلية اللاعبين ويستحق قيادة المغرب للتتويج القاري**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%BA%D9%8A%D9%91%D8%B1-%D8%B9%D9%82%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%88%D9%8A-1678371.html)
+- **أخوماش: "نتفق مع المدرب بنسبة 100% ونحن هنا لنُقاتل حتى النهاية"**: [Link](https://m.elbotola.com/article/2025-12-28-19-03-486.html)
+
+
 ### أتالانتا ضد الإنتر (N/A, Sun, 28 Dec 2025 11:40:00 -0800)
 
 - **ما القنوات الناقلة لمباراة أتالانتا وإنتر في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4d3ddaa9165ea468)
