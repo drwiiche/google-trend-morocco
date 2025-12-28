@@ -1,3 +1,17 @@
+### algerie (N/A, Sun, 28 Dec 2025 09:00:00 -0800)
+
+- **"Khoya, Khoya !" Les supporters algériens savourent la CAN au Maroc**: [Link](https://www.france24.com/fr/sports/20251228-can-2025-khaya-supporters-algerie-savourent-maroc)
+- **CAN 2025 : à Rabat, la fraternité maroco-algérienne défie le gel diplomatique**: [Link](https://www.lepoint.fr/afrique/can-2025-a-rabat-la-fraternite-maroco-algerienne-defie-le-gel-diplomatique-UO4JZM2RPRDV3HW3DDE57QY3SY/)
+- **Riyad Mahrez, la confirmation tombe avant Algérie-Burkina Faso**: [Link](https://www.sports.fr/football/can/riyad-mahrez-la-confirmation-tombe-avant-algerie-burkina-faso-977567.html)
+
+
+### sudan (N/A, Sun, 28 Dec 2025 09:00:00 -0800)
+
+- **Kwesi Appiah: We will fight to raise the flag of Sudan at AFCON 2025**: [Link](https://www.cafonline.com/afcon2025/news/kwesi-appiah-we-will-fight-to-raise-the-flag-of-sudan-at-afcon-2025/)
+- **Sudan's Soccer Triumph Amidst Turmoil: A Symbol of Hope and Unity**: [Link](https://www.devdiscourse.com/article/sports-games/3743556-sudans-soccer-triumph-amidst-turmoil-a-symbol-of-hope-and-unity)
+- **Sudanese FA President: "We Thank Morocco for its Excellent Hospitality; Our Ambition is to Go Far in AFCON"**: [Link](https://m.elbotola.com/en/article/2025-12-23-20-57-277.html)
+
+
 ### algérie – burkina faso (N/A, Sun, 28 Dec 2025 08:40:00 -0800)
 
 - **DIRECT. Algérie-Burkina Faso: suivre le match du groupe E de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-algerie-burkina-faso-suivre-le-match-du-groupe-e-de-la-can-2025-en-live_LS-202512280163.html)
