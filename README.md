@@ -1,3 +1,10 @@
+### cote d'ivoire vs (N/A, Sun, 28 Dec 2025 12:50:00 -0800)
+
+- **CAN 2025 : Kylian Mbappé a tranché entre l’Algérie et le Cameroun**: [Link](https://www.footmercato.net/a6871337842250935721-can-2025-kylian-mbappe-present-a-marrakech-pour-cameroun-cote-divoire)
+- **Hakimi-Mbappé, les retrouvailles se confirment**: [Link](https://www.sports.fr/football/can/hakimi-mbappe-les-retrouvailles-se-confirment-977752.html)
+- **CAN, Lions de l’Atlas et... nourriture marocaine: les confidences d’Hakimi sur la visite de son ami Mbappé au Maroc**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-lions-de-l-atlas-et-nourriture-marocaine-les-confidences-d-hakimi-sur-la-visite-de-son-ami-mbappe-au-maroc_AV-202512280149.html)
+
+
 ### guéla doué (N/A, Sun, 28 Dec 2025 12:50:00 -0800)
 
 
