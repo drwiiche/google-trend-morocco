@@ -1,3 +1,10 @@
+### brigitte bardot (N/A, Sun, 28 Dec 2025 01:50:00 -0800)
+
+- **Brigitte Bardot est décédée à 91 ans**: [Link](https://www.lesoir.be/719169/article/2025-12-28/brigitte-bardot-est-decedee-91-ans)
+- **L'actrice Brigitte Bardot est morte à 91 ans**: [Link](https://www.radiofrance.fr/franceinter/podcasts/l-info-de-france-inter/l-actrice-brigitte-bardot-est-morte-a-91-ans-7485984)
+- **La mort de Brigitte Bardot : et Dieu… reprit la femme**: [Link](https://www.lesechos.fr/weekend/cinema-series/la-mort-de-brigitte-bardot-et-dieu-reprit-la-femme-2206903)
+
+
 ### gessime yassine (N/A, Sat, 27 Dec 2025 22:30:00 -0800)
 
 - **Mercato L1 : ça s’accélère pour Gessime Yassine**: [Link](https://www.footmercato.net/a1632643117530189111-mercato-l1-ca-saccelere-pour-gessime-yassine)
