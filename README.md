@@ -1,3 +1,10 @@
+### atalanta – inter (N/A, Sun, 28 Dec 2025 11:00:00 -0800)
+
+- **Official liine-ups for Atalanta-Inter**: [Link](https://www.inter.it/en/news/official-lineups-atalanta-inter-serie-a-25-26)
+- **Le formazioni di Atalanta-Inter | Serie A Enilive 2025/26**: [Link](https://www.atalanta.it/news/le-formazioni-di-atalanta-inter-serie-a-enilive-2025-26)
+- **Chivu “Mai semplice affrontare l’Atalanta, dovremo essere coraggiosi”**: [Link](https://www.primaradio.net/chivu-mai-semplice-affrontare-latalanta-dovremo-essere-coraggiosi-2/)
+
+
 ### ibrahim maza (N/A, Sun, 28 Dec 2025 10:40:00 -0800)
 
 - **RB Leipzig: Diomande mit erfolgreichem Auftakt beim Afrika-Cup - News vom 28.12.2025**: [Link](https://www.lvz.de/sport/regional/rb-leipzig-diomande-mit-erfolgreichem-auftakt-beim-afrika-cup-news-vom-28-12-2025-FEUNU4PZA4TRPOCCO5RAO35JFA.html)
