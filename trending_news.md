@@ -1,3 +1,10 @@
+### luca zidane (N/A, Sun, 28 Dec 2025 10:00:00 -0800)
+
+- **Achraf Hakimi: Mbappe Loves Morocco and Moroccan Food**: [Link](https://www.moroccoworldnews.com/2025/12/273147/achraf-hakimi-mbappe-loves-morocco-and-moroccan-food/)
+- **AFCON 2025: Mbappé in the stands in Rabat for Morocco–Mali**: [Link](https://mountakhab.net/en/afcon-2025-mbappe-in-the-stands-in-rabat-for-morocco-mali/)
+- **CAN 2025: a surprise guest for Algeria – Burkina Faso**: [Link](https://ca.sports.yahoo.com/news/2025-surprise-guest-algeria-burkina-135500570.html)
+
+
 ### algeria vs burkina faso (N/A, Sun, 28 Dec 2025 07:30:00 -0800)
 
 - **MATCH STATS: Algeria vs Burkina Faso – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-burkina-faso-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
