@@ -1,3 +1,38 @@
+### كوندي (N/A, Sun, 28 Dec 2025 12:40:00 -0800)
+
+- **شاهد.. كوندي يتخلى عن نجوميته ويلعب حافيا في شوارع بنين**: [Link](https://www.aljazeera.net/sport/2025/12/27/%D8%B4%D8%A7%D9%87%D8%AF-%D9%83%D9%88%D9%86%D8%AF%D9%8A-%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%84%D8%B9%D8%A8-%D8%AD%D8%A7%D9%81%D9%8A)
+- **فيديو|على طريقة يامال..كوندي يلعب كرة الشواطئ مع الأطفال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B9%D9%84%D9%89-%D8%B7%D8%B1%D9%8A%D9%82%D8%A9-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%83%D9%88%D9%86%D8%AF%D9%8A-%D9%8A%D9%84%D8%B9%D8%A8-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D8%B7%D9%8A%D9%94-%D9%85%D8%B9-%D8%A7%D9%84%D8%A7%D9%94%D8%B7%D9%81%D8%A7%D9%84/bltce460f5142808fe4)
+- **كوندي يلعب كرة القدم في شوارع بنين**: [Link](https://hihi2.com/2025/12/26/p3574317.html)
+
+
+### مبابي (N/A, Sun, 28 Dec 2025 12:40:00 -0800)
+
+- **مبابي: المغرب يستطيع حصد لقب أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%B7%D9%8A%D8%B9-%D8%AD%D8%B5%D8%AF-%D9%84%D9%82%D8%A8-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blte31e036fac2b884f)
+- **حكيمي يلفت الأنظار بتقمص دور المدرب في مباراة المغرب مع مالي**: [Link](https://www.aljazeera.net/news/2025/12/28/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%84%D9%81%D8%AA-%D8%A7%D9%84%D8%A3%D9%86%D8%B8%D8%A7%D8%B1-%D8%A8%D8%AA%D9%88%D8%AC%D9%8A%D9%87%D8%A7%D8%AA%D9%87-%D9%84%D8%B2%D9%85%D9%84%D8%A7%D8%A6%D9%87)
+- **من المدرجات إلى المنصات الرقمية: مبابي يروج لصورة المغرب ويحول دعم حكيمي إلى لحظة تسويق ثقافي عالمي**: [Link](https://2m.ma/ar/news/%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B1%D9%88%D8%AC-%D9%84%D8%B5%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%8A%D8%AD%D9%88%D9%84-20251228)
+
+
+### kylian mbappé (N/A, Sun, 28 Dec 2025 12:30:00 -0800)
+
+- **Achraf Hakimi: Mbappe Loves Morocco and Moroccan Food**: [Link](https://www.moroccoworldnews.com/2025/12/273147/achraf-hakimi-mbappe-loves-morocco-and-moroccan-food/)
+- **AFCON 2025: Mbappé in the stands in Rabat for Morocco–Mali**: [Link](https://mountakhab.net/en/afcon-2025-mbappe-in-the-stands-in-rabat-for-morocco-mali/)
+- **[VIDEO] Kylian Mbappé Shows Support for Friend Achraf Hakimi at AFCON 2025**: [Link](https://nigerianbulletin.com/ams/video-kylian-mbapp%C3%A9-shows-support-for-friend-achraf-hakimi-at-afcon-2025.22606/)
+
+
+### mbappe (N/A, Sun, 28 Dec 2025 12:20:00 -0800)
+
+- **Achraf Hakimi: Mbappe Loves Morocco and Moroccan Food**: [Link](https://www.moroccoworldnews.com/2025/12/273147/achraf-hakimi-mbappe-loves-morocco-and-moroccan-food/)
+- **AFCON 2025: Mbappé in the stands in Rabat for Morocco–Mali**: [Link](https://mountakhab.net/en/afcon-2025-mbappe-in-the-stands-in-rabat-for-morocco-mali/)
+- **[VIDEO] Kylian Mbappé Shows Support for Friend Achraf Hakimi at AFCON 2025**: [Link](https://nigerianbulletin.com/ams/video-kylian-mbapp%C3%A9-shows-support-for-friend-achraf-hakimi-at-afcon-2025.22606/)
+
+
+### tchouameni (N/A, Sun, 28 Dec 2025 12:00:00 -0800)
+
+- **Pronóstico Costa de Marfil - Camerún - CAN**: [Link](https://www.sportytrader.es/pronosticos/costa-de-marfil-camerun-314200/)
+- **Boyomo juega en la Nochebuena**: [Link](https://www.diariodenavarra.es/noticias/deportes/futbol/osasuna/2025/12/24/boyomo-juega-nochebuena-804464-32.html)
+- **Enzo Boyomo busca sus primeros minutos en la Copa de África**: [Link](https://www.noticiasdenavarra.com/osasuna/2025/12/27/enzo-boyomo-busca-primeros-minutos-10517511.html)
+
+
 ### jean louis gasset (N/A, Sun, 28 Dec 2025 12:00:00 -0800)
 
 - **Figure emblématique du foot français, Jean-Louis Gasset est mort à 72 ans**: [Link](https://www.lequipe.fr/Football/Actualites/Figure-emblematique-du-foot-francais-jean-louis-gasset-est-mort/1629519)
