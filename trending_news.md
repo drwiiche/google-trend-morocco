@@ -1,3 +1,24 @@
+### lucas zidane (N/A, Sun, 28 Dec 2025 10:20:00 -0800)
+
+- **Zidane in stands for son Luca's Algeria clean sheet**: [Link](https://www.espn.com/soccer/story/_/id/47407784/zidane-sees-son-luca-keep-clean-sheet-algeria-win)
+- **Goals against Sudan not a response to critics, says Mahrez**: [Link](https://www.reuters.com/sports/soccer/goals-against-sudan-not-response-critics-says-mahrez-2025-12-24/)
+- **Luca Zidane: Algeria’s new number one eyes further exploits in Morocco**: [Link](https://www.cafonline.com/afcon2025/news/luca-zidane-algeria-s-new-number-one-eyes-further-exploits-in-morocco/)
+
+
+### لوكا زيدان (N/A, Sun, 28 Dec 2025 10:20:00 -0800)
+
+- **لوكا زيدان.. حامل الإرث بين القفّازين**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D8%AD%D8%A7%D9%85%D9%84-%D8%A7%D9%84%D8%A5%D8%B1%D8%AB-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%82%D9%81-%D8%A7%D8%B2%D9%8A%D9%86/)
+- **لوكا زيدان.. شباك نظيفة أمام السودان تعني ضغوطا أكبر ضد بوركينا فاسو**: [Link](https://www.aljazeera.net/sport/2025/12/27/%D8%B2%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%83%D8%A3%D8%B3)
+- **الجزائر تدك شباك السودان في "الكان"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%8F%D9%83%D9%92%D8%B1%D9%85-%D9%88%D9%81%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86-1676466.html)
+
+
+### braga – benfica (N/A, Sun, 28 Dec 2025 10:10:00 -0800)
+
+- **O onze provável do Benfica para o último jogo de 2025**: [Link](https://www.abola.pt/noticias/o-onze-provavel-do-benfica-para-o-ultimo-jogo-de-2025-2025122715170550483)
+- **AO VIVO: Otamendi abre o marcador (28')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-otamendi-abre-o-marcador-28/YDAmzHCr/)
+- **Braga-Benfica: confira os onzes iniciais de Vicens e Mourinho**: [Link](https://sapo.pt/artigo/braga-benfica-confira-os-onzes-iniciais-de-vicens-e-mourinho-695163ce52dc24aee90a130b)
+
+
 ### luca zidane (N/A, Sun, 28 Dec 2025 10:00:00 -0800)
 
 - **Achraf Hakimi: Mbappe Loves Morocco and Moroccan Food**: [Link](https://www.moroccoworldnews.com/2025/12/273147/achraf-hakimi-mbappe-loves-morocco-and-moroccan-food/)
