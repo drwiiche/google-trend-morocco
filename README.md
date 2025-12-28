@@ -1,3 +1,17 @@
+### football maroc mali (N/A, Sun, 28 Dec 2025 01:00:00 -0800)
+
+- **CAN 2025. Maroc-Mali. Les principaux enseignements tactiques (vidéo)**: [Link](https://medias24.com/2025/12/27/can-2025-maroc-mali-les-principaux-enseignements-tactiques-video-1603399/)
+- **Les Lions de l’Atlas, déjà tournés vers le rebond après le revers face au Mali**: [Link](https://lematin.ma/videos/les-lions-de-latlas-tournes-vers-le-rebond-apres-le-revers-face-au-mali/321421)
+- **CAN Maroc-2025: Nael El Aynaoui « Homme du match » (CAF)**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%86%D8%A7%D8%A6%D9%84-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D8%A7%D8%AD%D8%B3/)
+
+
+### مها الصغير (N/A, Sat, 27 Dec 2025 22:50:00 -0800)
+
+- **حبس وتغريم الإعلامية مها الصغير في قضية انتهاك حقوق الملكية الفكرية**: [Link](https://www.aljazeera.net/arts/2025/12/27/%D8%AD%D8%A8%D8%B3-%D9%88%D8%AA%D8%BA%D8%B1%D9%8A%D9%85-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D9%85%D9%87%D8%A7-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1-%D9%81%D9%8A)
+- **السجن وغرامة مالية لمها الصغير في قضية 'سرقة اللوحات'**: [Link](https://www.mosaiquefm.net/ar/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/1490456/%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D9%88%D8%BA%D8%B1%D8%A7%D9%85%D8%A9-%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D9%85%D9%87%D8%A7-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%B3%D8%B1%D9%82%D8%A9-%D8%A7%D9%84%D9%84%D9%88%D8%AD%D8%A7%D8%AA)
+- **من طليقة الفنان المصرى أحمد السقا إلى متهمة بسرقة لوحة حبس لمدة شهر : هل احترقت صورة مها الصغير إعلاميًا في عام واحد؟**: [Link](https://elmanshar.com/2025/12/28/%D9%85%D9%86-%D8%B7%D9%84%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%89-%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D9%82%D8%A7-%D8%A5%D9%84%D9%89-%D9%85/)
+
+
 ### can classement (N/A, Sat, 27 Dec 2025 14:00:00 -0800)
 
 - **El Español: le Maroc, une puissance montante du football mondial**: [Link](https://fr.hespress.com/455729-el-espanol-le-maroc-une-puissance-montante-du-football-mondial.html)
