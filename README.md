@@ -1,3 +1,10 @@
+### equatorial guinea vs sudan (N/A, Sun, 28 Dec 2025 06:40:00 -0800)
+
+- **MATCH STATS: Equatorial Guinea vs Sudan – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-equatorial-guinea-vs-sudan-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
+- **Equatorial Guinea vs Sudan - AFCON: TV channel, preview, prediction, team news and lineups**: [Link](https://playingfor90.com/equatorial-guinea-vs-sudan-afcon-tv-channel-prediction-team-news-and-lineups-01kd0xhf2ps7)
+- **CAN 2025 / Equatorial Guinea - Sudan: head-to-head history**: [Link](https://sports.yahoo.com/articles/2025-equatorial-guinea-sudan-head-095000573.html)
+
+
 ### cote d'ivoire vs cameroun (N/A, Sun, 28 Dec 2025 06:30:00 -0800)
 
 - **CAN 2025 : le programme des matchs d’aujourd’hui dimanche 28 décembre avec l’Algérie, la Côte d’Ivoire et le Cameroun**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matchs-daujourdhui-dimanche-28-decembre-avec-lalgerie-la-cote-divoire-et-le-cameroun-28-12-2025-FGNSZX232ZGUTG7773MBVWEE5U.php)
