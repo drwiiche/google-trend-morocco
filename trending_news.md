@@ -1,3 +1,52 @@
+### can 2025 (N/A, Mon, 29 Dec 2025 12:20:00 -0800)
+
+- **AFCON 2025: Final group games begin as knockout race tightens in Morocco**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-final-group-games-begin-as-knockout-race-tightens-in-morocco/)
+- **CAN 2025 battle: Make your predictions, challenge the editors and win Google Play cards**: [Link](https://foot-africa.com/en/news/can-2025-battle-make-your-predictions-challenge-the-editors-and-win-google-play-cards-1021232/)
+- **AFCON 2025: Cameroon, Côte d’Ivoire and Burkina Faso start strong on matchday one**: [Link](https://www.msn.com/en-ph/news/other/afcon-2025-cameroon-c%C3%B4te-d-ivoire-and-burkina-faso-start-strong-on-matchday-one/ar-AA1T13DM)
+
+
+### norwich city – watford (N/A, Mon, 29 Dec 2025 12:20:00 -0800)
+
+- **Preview: Sargent returns for Norwich as Watford aim for three straight wins**: [Link](https://www.watfordobserver.co.uk/sport/25726516.sargent-returns-watford-aim-three-straight-wins/)
+- **'The new manager is getting a tune out of them' - Ince on Carrow Road test**: [Link](https://www.pinkun.com/sport/interviews/25725795.tom-ince-interview-ahead-norwich-city-v-watford/)
+- **iFollow: Get Your Pass For Norwich Trip!**: [Link](https://www.watfordfc.com/news/2025/december/29/how-to-stream-norwich-watford/)
+
+
+### roma – genoa (N/A, Mon, 29 Dec 2025 12:10:00 -0800)
+
+- **Baldanzi to be ruled out vs Genoa due to flu symptoms**: [Link](https://romapress.net/baldanzi-to-be-ruled-out-vs-genoa-due-to-flu-symptoms/)
+- **De Rossi has 'no desire for revenge' ahead of Roma return**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/de-rossi-has-no-desire-for-revenge-ahead-of-roma-return-2025-12-28)
+- **Ferguson to start in Genoa showdown, Hermoso recovers**: [Link](https://sports.yahoo.com/articles/ferguson-start-genoa-showdown-hermoso-133700261.html)
+
+
+### el kaabi (N/A, Mon, 29 Dec 2025 11:50:00 -0800)
+
+- **Marruecos debuta en la AFCON con una victoria bajo la lluvia gracias a un gol acrobático de El Kaabi**: [Link](https://www.msn.com/es-co/noticias/other/marruecos-debuta-en-la-afcon-con-una-victoria-bajo-la-lluvia-gracias-a-un-gol-acrob%C3%A1tico-de-el-kaabi/ar-AA1SOJz0)
+- **El Kaabi entra en la historia de la Copa África con dos goles de chilena**: [Link](https://es.rue20.com/2025/12/29/el-kaabi-entra-en-la-historia-de-la-copa-africa-con-dos-goles-de-chilena/)
+- **Zambia - Marruecos, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/zambia-marruecos-en-directo-copa-africa-hoy-en-vivo-f202512-n/)
+
+
+### إبراهيم دياز (N/A, Mon, 29 Dec 2025 11:50:00 -0800)
+
+- **ما سر استبدال الركراكي لدياز ضد مالي؟**: [Link](https://www.aljazeera.net/sport/2025/12/27/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%A8%D8%B1%D8%B1-%D8%A7%D8%B3%D8%AA%D8%A8%D8%AF%D8%A7%D9%84-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%88%D8%B3%D8%B7-%D8%B3%D8%AE%D8%B7)
+- **دياز يقترب من رقم أسطورة “الأسود"**: [Link](https://www.hespress.com/%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D9%82%D9%85-%D8%A3%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-1678971.html)
+- **إبراهيم يتوق لوشاح الهداف**: [Link](https://www.almountakhab.com/node/16221216)
+
+
+### ابراهيم دياز (N/A, Mon, 29 Dec 2025 11:50:00 -0800)
+
+- **ابراهيم دياز.. المغربي الذي خرج من جلباب الإسبان**: [Link](https://thevoice.ma/%D8%A7%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B0%D9%8A-%D8%AE%D8%B1%D8%AC-%D9%85%D9%86-%D8%AC%D9%84%D8%A8%D8%A7%D8%A8/)
+- **سبب غياب صلاح الدين عن التشكيلة**: [Link](https://www.hespress.com/%D8%B3%D8%A8%D8%A8-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%B9%D9%86-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-1679045.html)
+- **مباشر مباراة المغرب ضد زامبيا (3-0) في كأس الأمم الأفريقية 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/29/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3?update=8463818)
+
+
+### كورة (N/A, Mon, 29 Dec 2025 11:40:00 -0800)
+
+- **بفرمان من فليك.. برشلونة يتحرك صوب فلاهوفيتش**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%81%D8%B1%D9%85%D8%A7%D9%86-%D9%85%D9%86-%D9%81%D9%84%D9%8A%D9%83--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D8%B5%D9%88%D8%A8-%D8%B5%D9%81%D9%82%D8%A9-%D9%85%D8%B1%D9%85%D9%88%D9%82%D8%A9/blt1511f4ab35f557aa)
+- **برشلونة يتحرك لضم هداف يوفنتوس**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1359636/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D8%B6%D9%85-%D9%87%D8%AF%D8%A7%D9%81-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3)
+- **خطة سرية من برشلونة تشعل سوق الميركاتو**: [Link](https://www.winwin.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%B7%D8%A9-%D8%B3%D8%B1%D9%8A%D8%A9-%D9%85%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88)
+
+
 ### hakimi (N/A, Mon, 29 Dec 2025 12:00:00 -0800)
 
 - **CAN 2025: Achraf Hakimi jugará con Marruecos contra Zambia**: [Link](https://en.yabiladi.com/articles/details/184505/2025-achraf-hakimi-jugara-marruecos.html)
