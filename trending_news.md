@@ -1,3 +1,17 @@
+### calendrier can 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **TotalEnergies CAF CAN Maroc 2025 : Cameroun et Côte d’Ivoire dos à dos dans un choc haletant**: [Link](https://www.cafonline.com/fr/can2025/infos/totalenergies-caf-can-maroc-2025-cameroun-et-cote-d-ivoire-dos-a-dos-dans-un-choc-haletant/)
+- **Kylian Mbappé, Jules Koundé et Aurélien Tchouaméni présents à Marrakech pour Côte d'Ivoire-Cameroun**: [Link](https://www.lequipe.fr/Football/Actualites/Kylian-mbappe-jules-kounde-et-aurelien-tchouameni-presents-a-marrakech-pour-cote-d-ivoire-cameroun/1629921)
+- **CAN 2025: calendrier, résultats et classement du groupe F avec la Côte d'Ivoire et le Cameroun**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-calendrier-resultats-et-classement-du-groupe-f-avec-la-cote-d-ivoire-et-le-cameroun_AV-202512290242.html)
+
+
+### africa cup of nations (N/A, Mon, 29 Dec 2025 12:00:00 -0800)
+
+- **Mohamed Salah rested as Egypt seal AFCON knockout spot**: [Link](https://www.foxsports.com/articles/soccer/mohamed-salah-rested-as-egypt-seal-afcon-knockout-spot)
+- **AFCON 2025: Morocco ease to victory as South Africa, Mali advance to knockout phase**: [Link](https://www.thecable.ng/afcon-2025-morocco-ease-to-victory-as-south-africa-mali-advance-to-knockout-phase/)
+- **Host Morocco and South Africa join Egypt in Africa Cup knockout stage. Mohamed Salah gets a rest**: [Link](https://www.eagletribune.com/host-morocco-and-south-africa-join-egypt-in-africa-cup-knockout-stage-mohamed-salah-gets/article_ef01c224-9458-5550-93de-1d0b9a578ad9.html)
+
+
 ### groupe can 2025 (N/A, Mon, 29 Dec 2025 12:00:00 -0800)
 
 - **CAN 2025: Maroc, Algérie, Nigéria… Le tableau complet des huitièmes de finale**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-maroc-algerie-nigeria-le-tableau-complet-des-huitiemes-de-finale_AV-202512290553.html)
