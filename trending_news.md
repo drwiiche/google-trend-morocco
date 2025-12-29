@@ -1,3 +1,17 @@
+### mali (N/A, Mon, 29 Dec 2025 11:40:00 -0800)
+
+- **MATCH STATS: Comoros vs Mali – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group A**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-comoros-vs-mali-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-a/)
+- **Preview: Comoros vs Mali - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/comoros/africa-cup-of-nations/preview/comoros-vs-mali-prediction-team-news-lineups_588599.html)
+- **How and Where to Watch Comoros vs. Mali at AFCON 2025**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-comoros-vs-mali-on-bein-sports-2025-12-28)
+
+
+### live match (N/A, Mon, 29 Dec 2025 11:20:00 -0800)
+
+- **AEW Worlds End 2025 results, grades, awards: MJF reclaims world title; Jon Moxley shocks Kazuchika Okada**: [Link](https://sports.yahoo.com/wrestling/breaking-news/live/aew-worlds-end-2025-live-results-updates-grades-and-highlights-for-tonights-ppv-060052614.html)
+- **AEW Worlds End: Match Card, Start Time, Preview, How to Watch, More**: [Link](https://www.allelitewrestling.com/post/aew-worlds-end-2025-preview)
+- **MJF, Real Winners and Losers of AEW Worlds End Match Card**: [Link](https://bleacherreport.com/articles/25340503-mjf-real-winners-and-losers-aew-worlds-end-match-card)
+
+
 ### brahim diaz (N/A, Mon, 29 Dec 2025 11:30:00 -0800)
 
 - **Brahim Diaz feels at home as Morocco begin AFCON 2025 with statement win**: [Link](https://www.cafonline.com/afcon2025/news/brahim-diaz-feels-at-home-as-morocco-begin-afcon-2025-with-statement-win/)
