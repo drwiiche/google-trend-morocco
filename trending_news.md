@@ -1,3 +1,43 @@
+### arryadia tnt (N/A, Mon, 29 Dec 2025 11:20:00 -0800)
+
+
+
+
+### live (N/A, Mon, 29 Dec 2025 11:20:00 -0800)
+
+- **Much-Deserved Success Finally Arrives For 3 Zodiac Signs In 2026**: [Link](https://www.yourtango.com/2025393050/success-zodiac-signs-2026)
+- **Year of the Red Fire Horse: how to live a year of luck, rapid changes, and great opportunities**: [Link](https://unn.ua/en/news/year-of-the-red-fire-horse-how-to-live-a-year-of-luck-rapid-changes-and-great-opportunities)
+- **Aries Horoscope 2026: Yearly Predictions for Career, Finance, Love, Family and Success**: [Link](https://www.moneycontrol.com/astrology/aries-horoscope-2026-yearly-predictions-for-career-finance-love-family-and-success-videoshow-13745303.html)
+
+
+### tnt (N/A, Mon, 29 Dec 2025 11:20:00 -0800)
+
+- **NHL reveals rendering of loanDepot park design for Winter Classic**: [Link](https://www.nhl.com/news/topic/winter-classic/nhl-rendering-of-loandepot-park-design-for-winter-classic)
+- **The NHL's best this week: Where should the next outdoor game be held?**: [Link](https://www.espn.com/nhl/story/_/id/47435773/nhl-2025-26-best-games-week-winter-classic-stadium-series-next-location)
+- **Panthers’ Brad Marchand reflects on outdoor experience before 2026 Winter Classic**: [Link](https://sports.yahoo.com/articles/panthers-brad-marchand-reflects-outdoor-145859549.html)
+
+
+### yalla kora (N/A, Mon, 29 Dec 2025 11:10:00 -0800)
+
+- **خاص لكووورة: إلغاء مفاجئ لمران الزمالك.. واتجاه لإقالة عبد الرؤوف**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%A7%D8%B5-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D8%A7%D9%95%D9%84%D8%BA%D8%A7%D8%A1-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%84%D9%85%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83--%D9%88%D8%A7%D8%AA%D8%AC%D8%A7%D9%87-%D9%84%D8%A7%D9%95%D9%82%D8%A7%D9%84%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B1%D9%88%D9%94%D9%88%D9%81/blt39c5a4454744cb38)
+- **إلغاء الحصة التدريبية للزمالك اليوم بسبب المستحقات المالية المتراكمة**: [Link](https://infosports.ma/207779/)
+- **معتمد جمال أبرز المرشحين لقيادة الزمالك في حال رحيل أحمد عبدالرؤوف**: [Link](https://kolelkoora.com/%D9%85%D8%B9%D8%AA%D9%85%D8%AF-%D8%AC%D9%85%D8%A7%D9%84-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7/)
+
+
+### sports (N/A, Mon, 29 Dec 2025 11:10:00 -0800)
+
+- **Can Texas Tech billionaire booster Cody Campbell fix college sports?**: [Link](https://www.espn.com/college-football/story/_/id/47412557/cody-campbell-booster-texas-tech-college-sports)
+- **Deep-pockets boost college football payrolls for Texas Tech, other schools**: [Link](https://www.dallasnews.com/business/2025/12/29/behind-deep-pocketed-boosters-college-football-payrolls-keep-escalating-who-can-keep-up/)
+- **Can Texas Tech billionaire booster Cody Campbell fix college sports?**: [Link](https://www.espnlacrosse.com/2025/12/29/can-texas-tech-billionaire-booster-cody-campbell-fix-college-sports/)
+
+
+### كورة ليف (N/A, Mon, 29 Dec 2025 11:10:00 -0800)
+
+- **تردد قناة الجزائرية الرياضية الناقلة لمباراة مصر وجنوب أفريقيا في كأس الأمم الأفريقية 2025**: [Link](https://www.almasryalyoum.com/news/details/4159299)
+- **كيفين جونسون في حوار لـ"كووورة": حسام حسن مدرب عاطفي.. وقراراته تهدد منتخب مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%83%D9%8A%D9%81%D9%8A%D9%86-%D8%AC%D9%88%D9%86%D8%B3%D9%88%D9%86-%D9%81%D9%8A-%D8%AD%D9%88%D8%A7%D8%B1-%D9%84%D9%80-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9--%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%85%D8%AF%D8%B1%D8%A8-%D8%B9%D8%A7%D8%B7%D9%81%D9%8A--%D9%88%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%AA%D9%87%D8%AF%D8%AF-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1/blta6a823ef0967c37c)
+- **مصر - جنوب إفريقيا: مباراة قوية بطموحات عالية**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B5%D8%B1-%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%B7%D9%85%D9%88%D8%AD%D8%A7%D8%AA-%D8%B9%D8%A7%D9%84%D9%8A%D8%A9/)
+
+
 ### bein sport max 1 (N/A, Mon, 29 Dec 2025 11:00:00 -0800)
 
 
