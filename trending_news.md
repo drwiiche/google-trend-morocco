@@ -1,3 +1,10 @@
+### jules koundé (N/A, Sun, 28 Dec 2025 12:30:00 -0800)
+
+- **Koundé, como Lamine en Dubai, jugando un 'partidillo' con chicos de Benín**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251227/1002592417/kounde-lamine-dubai-jugando-partidillo-chicos-benin.html)
+- **La lección de Koundé antes de regresar al Barça**: [Link](https://onefootball.com/pt-br/noticias/la-leccion-de-kounde-antes-de-regresar-al-barca-42148646)
+- **Descalzo, en pleno partido y desde África: la imagen de Koundé que se ha hecho viral**: [Link](https://as.com/futbol/videos/descalzo-en-pleno-partido-y-desde-africa-la-imagen-de-kounde-que-se-ha-hecho-viral-f202512-v/)
+
+
 ### achraf hakimi (N/A, Sun, 28 Dec 2025 16:30:00 -0800)
 
 - **CAN 2025: Achraf Hakimi jugará con Marruecos contra Zambia**: [Link](https://en.yabiladi.com/articles/details/184505/2025-achraf-hakimi-jugara-marruecos.html)
