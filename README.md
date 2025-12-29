@@ -1,3 +1,10 @@
+### kaabi (N/A, Mon, 29 Dec 2025 11:30:00 -0800)
+
+- **EN DIRECT, Zambie-Maroc : Ayoub El-Kaabi inscrit un nouveau but acrobatique, les Lions de l’Atlas se rapprochent des 8ᵉˢ de finale de la CAN 2025**: [Link](https://www.lemonde.fr/afrique/live/2025/12/29/en-direct-zambie-maroc-suivez-la-can-2025_6659750_3212.html)
+- **CAN 2025 : le roi de la bicyclette a encore frappé, son but en vidéo qui a fait chavirer le Maroc**: [Link](https://www.lefigaro.fr/sports/football/can-2025-en-video-les-deux-buts-du-maroc-face-a-la-zambie-20251229)
+- **CAN 2025, Maroc : le nouveau ciseau acrobatique inscrit par El Kaabi**: [Link](https://www.footmercato.net/a5575057820711371151-can-2025-maroc-le-nouveau-ciseau-acrobatique-inscrit-par-el-kaabi)
+
+
 ### can 2025 (N/A, Mon, 29 Dec 2025 12:20:00 -0800)
 
 - **AFCON 2025: Final group games begin as knockout race tightens in Morocco**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-final-group-games-begin-as-knockout-race-tightens-in-morocco/)
