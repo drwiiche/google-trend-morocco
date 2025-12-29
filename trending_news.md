@@ -1,3 +1,45 @@
+### زامبيا ضد المغرب (N/A, Mon, 29 Dec 2025 10:10:00 -0800)
+
+- **تغييرات في تشكيلة "الأسود" أمام زامبيا**: [Link](https://www.hespress.com/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D8%A7-1678999.html)
+- **"فريق منفوخ إعلاميا".. نجم زامبيا يقلل من شأن منتخب المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%B1%D9%8A%D9%82-%D9%85%D9%86%D9%81%D9%88%D8%AE-%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%85%D9%8A%D8%A7--%D9%86%D8%AC%D9%85-%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D8%A7-%D9%8A%D9%82%D9%84%D9%84-%D9%85%D9%86-%D8%B4%D8%A7%D9%94%D9%86-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/bltdd4ef375a45cb5be)
+- **تشكيلة المنتخب المغربي لمواجهة زامبيا**: [Link](https://www.almountakhab.com/node/16221225)
+
+
+### zambia - marruecos (N/A, Mon, 29 Dec 2025 10:10:00 -0800)
+
+- **Apuestas y pronósticos Zambia vs Marruecos**: [Link](https://www.marca.com/apuestas-deportivas/predicciones/2025/12/28/apuestas-pronosticos-zambia-vs-marruecos.html)
+- **Akhomach: “Estamos listos para Zambia y lucharemos hasta el final”**: [Link](https://es.rue20.com/2025/12/29/akhomach-estamos-listos-para-zambia-y-lucharemos-hasta-el-final/)
+- **Marruecos, con Amrabat y Abde aptos, a certificar ante Zambia su pase a los octavos de la Copa de África**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/marruecos-amrabat-abde-aptos-juega-ante-zambia-20251229163245-nts.html)
+
+
+### africa cup of nations standings (N/A, Mon, 29 Dec 2025 10:00:00 -0800)
+
+- **AFCON 2025: Final group games begin as knockout race tightens in Morocco**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-final-group-games-begin-as-knockout-race-tightens-in-morocco/)
+- **Calculators at the ready: What each nation needs to secure a spot in the AFCON knockout phase**: [Link](https://www.besoccer.com/new/calculators-at-the-ready-what-each-nation-needs-to-secure-a-spot-in-the-afcon-knockout-phase-1387733)
+- **2025 Africa Cup of Nations: A complete overview of the group stage**: [Link](https://www.africanews.com/2025/12/29/afcon-2025-cameroon-and-cote-divoire-draw-algeria-through/)
+
+
+### zambia vs morocco (N/A, Mon, 29 Dec 2025 09:50:00 -0800)
+
+- **MATCH STATS: Zambia vs Morocco – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group A**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-zambia-vs-morocco-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-a/)
+- **Achraf Hakimi set to debut in Africa Cup of Nations against Zambia**: [Link](https://en.yabiladi.com/articles/details/184507/achraf-hakimi-debut-africa-nations.html)
+- **Regragui Confident in Himself as Morocco’s Coach**: [Link](https://www.moroccoworldnews.com/2025/12/273143/regragui-confident-in-himself-as-moroccos-coach/)
+
+
+### egypte (N/A, Mon, 29 Dec 2025 09:50:00 -0800)
+
+- **LIVE Afrika Cup | Sadio Mané behoedt Senegal met doelpunt voor nederlaag tegen DR Congo**: [Link](https://www.ad.nl/voetbal/live-afrika-cup-bondscoach-broos-zuid-afrika-boos-op-arbitrage-wie-heeft-die-onzin-uitgevonden~a9de755c/)
+- **VI Live: Marokko start zonder Salah-Eddine én Hakimi tegen Zambia**: [Link](https://www.vi.nl/nieuws/vi-live-marokko-start-zonder-salah-eddine-n-hakimi-tegen-zambia)
+- **Angola - Egypte: Voorspellingen, Wedtips, Opstellingen, Vorm, TV-Gids en Odds**: [Link](https://news.bet365.nl/nl-nl/article/angola-egypte-voorspellingen-wedtips-opstellingen-vorm-tv-gids-en-odds/2025122702024690017)
+
+
+### matchs de coupe d'afrique des nations de football (N/A, Mon, 29 Dec 2025 09:50:00 -0800)
+
+- **Luca Zidane, la belle histoire d’amour confirmée !**: [Link](https://www.football.fr/can/luca-zidane-la-belle-histoire-damour-confirmee-792100.html)
+- **CAN 2025: les adversaires potentiels de l’Algérie en huitièmes de finale**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-les-adversaires-potentiels-de-l-algerie-en-huitiemes-de-finale_AV-202512290077.html)
+- **TotalEnergies CAF CAN Maroc 2025 : L'Algérie se qualifie pour les huitièmes de finale, le Soudan domine la Guinée équatoriale, victoire historique du Mozambique sur le Gabon**: [Link](https://www.cafonline.com/fr/can2025/infos/totalenergies-caf-can-maroc-2025-lalgerie-se-qualifie-pour-les-huitiemes-de-finale-le-soudan-domine-la-guinee-equatoriale-victoire-historique-du-mozambique-sur-le-gabon/)
+
+
 ### stade moulay abdellah (N/A, Mon, 29 Dec 2025 09:30:00 -0800)
 
 - **CAN 2025. Mbappé voit le Maroc comme l’un des candidats au titre, selon Hakimi**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-mbappe-voit-le-maroc-comme-lun-des-candidats-au-titre-selon-hakimi-842b5906-e3ed-11f0-8a75-c20b0b6b178b)
