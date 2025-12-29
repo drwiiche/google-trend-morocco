@@ -1,3 +1,10 @@
+### angola (N/A, Mon, 29 Dec 2025 08:40:00 -0800)
+
+- **Eddie Afonso: «Queremos mostrar uma outra Angola frente ao Egipto»**: [Link](https://www.rfi.fr/pt/%C3%A1frica-lus%C3%B3fona/20251229-eddie-afonso-queremos-mostrar-uma-outra-angola-frente-ao-egipto)
+- **Al-Ghandour: Hossam Assen considera excluir o Al-Ahly dois do jogo Egito-Angola**: [Link](https://www.segundabase.com.br/noticias/al-ghandour-hossam-assen-considera-excluir-o-al-ahly-dois-do-jogo-egito-angola/15921/)
+- **Angola x Egito: onde assistir, horário e odds da Copa Africana de Nações**: [Link](https://www.band.com.br/esportes/bandplacar/noticias/angola-x-egito-onde-assistir-ao-vivo-horario-e-odds-da-copa-africana-de-nacoes-202512271711)
+
+
 ### ترتيب كاس افريقيا (N/A, Mon, 29 Dec 2025 08:30:00 -0800)
 
 - **"ملوك صناعة الأهداف" بكأس أفريقيا 2025**: [Link](https://www.aljazeera.net/sport/2025/12/25/%D8%B5%D9%86%D8%A7%D8%B9-%D8%A7%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025)
