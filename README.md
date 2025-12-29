@@ -1,3 +1,52 @@
+### sambia – marokko (N/A, Mon, 29 Dec 2025 10:30:00 -0800)
+
+- **Ex-Herthaner Maolida jubelt zu früh: VAR verhindert Sieg der Komoren | Highlights by Sportdigital | Video**: [Link](https://www.kicker.de/ex-herthaner-maolida-jubelt-zu-frueh-var-verhindert-sieg-der-komoren-1178883/video)
+- **Marokko vs. Sambia heute im Livestream und live im TV: Wer zeigt / überträgt den Afrika Cup?**: [Link](https://www.goal.com/de/meldungen/marokko-vs-sambia-heute-im-livestream-und-live-im-tv-wer-zeigt-uebertraegt-den-afrika-cup/blt13290278073b8816)
+- **Sambia vs. Marokko Tipp, Quoten & Prognose | 29.12.2025**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/sambia-vs-marokko-tipp-quoten-prognose-29-12-2025)
+
+
+### comores – mali (N/A, Mon, 29 Dec 2025 10:20:00 -0800)
+
+- **DIRECT. Comores-Mali (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/comores-mali-live/670753)
+- **Comores–Mali : un choc décisif pour les phases finales**: [Link](https://www.cafonline.com/fr/can2025/infos/comores-mali-un-choc-decisif-pour-les-phases-finales/)
+- **Comores - Mali en direct : quitte ou double pour les Aigles, suivez le dénouement du groupe A**: [Link](https://www.france24.com/fr/sports/20251229-can-2025-comores-mali-direct)
+
+
+### جزر القمر ضد مالي (N/A, Mon, 29 Dec 2025 10:20:00 -0800)
+
+- **منتخب جزر القمر يتمسك بآمال التأهل عند مواجهة مالي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AC%D8%B2%D8%B1-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A2%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%B9%D9%86%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%A7%D9%84%D9%8A-2025-12-29)
+- **مدرب مالي: نسعى للثمن دون حسابات**: [Link](https://www.hesport.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%A7%D9%84%D9%8A-%D9%86%D8%B3%D8%B9%D9%89-%D9%84%D9%84%D8%AB%D9%85%D9%86-%D8%AF%D9%88%D9%86-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-420145.html)
+- **أجواء احتفالية وحضور جماهيري مميز في مباراة مالي وزامبيا بالدار البيضاء**: [Link](https://2m.ma/ar/news/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%AD%D8%B6%D9%88%D8%B1-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A-%D9%85%D9%85%D9%8A%D8%B2-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%84%D9%8A-%D9%88%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D8%A7-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-20251222)
+
+
+### comoros vs mali (N/A, Mon, 29 Dec 2025 10:20:00 -0800)
+
+- **MATCH STATS: Comoros vs Mali – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group A**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-comoros-vs-mali-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-a/)
+- **Preview: Comoros vs Mali - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/comoros/africa-cup-of-nations/preview/comoros-vs-mali-prediction-team-news-lineups_588599.html)
+- **How and Where to Watch Comoros vs. Mali at AFCON 2025**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-comoros-vs-mali-on-bein-sports-2025-12-28)
+
+
+### zambia - marocco (N/A, Mon, 29 Dec 2025 10:20:00 -0800)
+
+- **Dove vedere Zambia-Marocco oggi in tv: si chiude la fase a gironi, diretta gratis alle 20:00**: [Link](https://www.goal.com/it/liste/dove-vedere-zambia-marocco-oggi-in-tv-diretta-gratis-stasera/blt7dc4f9da49ce360a)
+- **Coppa d'Africa, formazioni ufficiali di Zambia-Marocco e Comore-Mali: due 'italiani' e Brahim Diaz**: [Link](https://www.tuttomercatoweb.com/calcio-estero/coppa-d-africa-formazioni-ufficiali-di-zambia-marocco-e-comore-mali-due-italiani-e-brahim-diaz-2184171)
+- **Torino, oggi in campo il Marocco: Masina affronta lo Zambia**: [Link](https://www.toro.it/toro/primo-piano/programma-coppa-d-africa-29-dicembre-zambia-marocco-di-masina/1409216/)
+
+
+### egypte angola (N/A, Mon, 29 Dec 2025 10:20:00 -0800)
+
+- **Zuid-Afrika stelt verlengd verblijf op Afrika Cup veilig, Egypte speelt gelijk in laatste groepsmatch**: [Link](https://sporza.be/nl/2025/12/29/zuid-afrika-stelt-verlengd-verblijf-op-afrika-cup-veilig-egypte-speelt-gelijk-in-laatste-groepsmatch~1767028965068/)
+- **VI Live: Marokko start zonder Salah-Eddine én Hakimi tegen Zambia**: [Link](https://www.vi.nl/nieuws/vi-live-marokko-start-zonder-salah-eddine-n-hakimi-tegen-zambia)
+- **Belgische coaches op Africa Cup kritisch voor strafschopregels**: [Link](https://www.hln.be/videos/productie/belgische-coaches-op-africa-cup-kritisch-voor-strafschopregels-10073761)
+
+
+### classement coupe d'afrique des nations de football 2025 (N/A, Mon, 29 Dec 2025 09:50:00 -0800)
+
+- **CAN 2025 : Bank Al-Maghrib émet une pièce et un billet commémoratifs**: [Link](https://ledesk.ma/encontinu/can-2025-bank-al-maghrib-emet-une-piece-et-un-billet-commemoratifs/)
+- **CAN 2025 : le programme complet des matchs**: [Link](https://lematin.ma/sports/can-2025-le-programme-complet-des-matchs/320820)
+- **CAN 2025 : Casablanca déploie un dispositif de sécurité sans précédent sous le signe de l'excellence technologique**: [Link](https://medias24.com/2025/12/24/can-2025-casablanca-deploie-un-dispositif-de-securite-sans-precedent-sous-le-signe-de-lexcellence-technologique-1602045/)
+
+
 ### زامبيا ضد المغرب (N/A, Mon, 29 Dec 2025 10:10:00 -0800)
 
 - **تغييرات في تشكيلة "الأسود" أمام زامبيا**: [Link](https://www.hespress.com/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D8%A7-1678999.html)
