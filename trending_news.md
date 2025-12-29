@@ -1,3 +1,10 @@
+### can africa (N/A, Mon, 29 Dec 2025 13:10:00 -0800)
+
+- **Senegal’s Idrissa Gueye Says Future AFCON Hosts Should Follow Morocco’s Example**: [Link](https://www.moroccoworldnews.com/2025/12/273138/senegals-idrissa-gueye-says-future-afcon-hosts-should-follow-moroccos-example/)
+- **Egypt's Hassan Advocates for Biennial Africa Cup Amid Team Readiness for Last 16**: [Link](https://www.devdiscourse.com/article/sports-games/3744797-egypts-hassan-advocates-for-biennial-africa-cup-amid-team-readiness-for-last-16)
+- **AFCON 2025: Egypt coach Hossam Hassan sends message to Moroccans**: [Link](https://foot-africa.com/en/news/afcon-2025-egypt-coach-hossam-hassan-sends-message-to-moroccans-1020920/)
+
+
 ### africa cup (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
 
 - **Afcon 2025: Lyle Foster scores as South Africa beat Zimbabwe 3-2 to reach last 16**: [Link](https://www.bbc.com/sport/football/live/c20kvy6yr3xt)
