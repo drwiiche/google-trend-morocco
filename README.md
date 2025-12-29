@@ -1,3 +1,17 @@
+### hakimi (N/A, Mon, 29 Dec 2025 12:00:00 -0800)
+
+- **CAN 2025: Achraf Hakimi jugará con Marruecos contra Zambia**: [Link](https://en.yabiladi.com/articles/details/184505/2025-achraf-hakimi-jugara-marruecos.html)
+- **Tenemos al mejor entrenador para ganar el título de la Copa de África**: [Link](https://tanja7.com/es/6698)
+- **Buenas noticias en Marruecos con Achraf y elogios a Mbappé y al PSG: “Nasser Al Khelaifi es un caballero”**: [Link](https://www.sport.es/es/noticias/futbol-internacional/buenas-noticias-marruecos-achraf-elogios-125199011)
+
+
+### tod (N/A, Mon, 29 Dec 2025 11:50:00 -0800)
+
+- **Unglück in Garmisch-Partenkirchen: 14-Jähriger stürzt bei Bergwanderung in den Tod**: [Link](https://www.spiegel.de/panorama/garmisch-partenkirchen-14-jaehriger-stuerzt-bei-bergwanderung-in-den-tod-a-a53302fc-d559-4070-87cb-999f5d0fae4a)
+- **Tödliche Bergtour: 14-Jähriger stürzt 150 Meter in die Tiefe**: [Link](https://www.augsburger-allgemeine.de/bayern/ammergauer-alpen-14-jaehriger-stuerzt-150-meter-in-die-tiefe-und-stirbt-113079238)
+- **Tragödie in Bayern: 14-Jähriger stürzt vor Augen seines Freundes in den Tod**: [Link](https://www.stol.it/artikel/chronik/tragoedie-in-bayern-14-jaehriger-stuerzt-vor-augen-seines-freundes-in-den-tod)
+
+
 ### mali (N/A, Mon, 29 Dec 2025 11:40:00 -0800)
 
 - **MATCH STATS: Comoros vs Mali – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group A**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-comoros-vs-mali-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-a/)
