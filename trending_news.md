@@ -1,3 +1,24 @@
+### cafonline (N/A, Mon, 29 Dec 2025 13:10:00 -0800)
+
+- **MATCH STATS: Tanzania vs Tunisia – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group C**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-tanzania-vs-tunisia-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-c/)
+- **CAN 2025: Round of 16 qualification scenarios for Tunisia**: [Link](https://webdo.tn/en/actualite/sport/can-2025-round-of-16-qualification-scenarios-for-tunisia/399863/)
+- **How and Where to Watch Tanzania vs Tunisia at the AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-tanzania-vs-tunisia-at-the-afcon-2025-on-bein-sports-2025-12-29)
+
+
+### cup africa (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **Afcon 2025: Lyle Foster scores as South Africa beat Zimbabwe 3-2 to reach last 16**: [Link](https://www.bbc.com/sport/football/live/c20kvy6yr3xt)
+- **South Africa vs Zimbabwe: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273208/south-africa-vs-zimbabwe-when-and-how-to-watch-afcon-game/)
+- **CAN 2025: South Africa advances to the round of 16**: [Link](https://foot-africa.com/en/news/can-2025-south-africa-advances-to-the-round-of-16-1022279/)
+
+
+### مباراة مالي (N/A, Mon, 29 Dec 2025 12:50:00 -0800)
+
+- **التشكيلة الأساسية للمنتخب الوطني**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-2/)
+- **الجمهور يطالب الركراكي بـ"التصحيح"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A8%D9%80%D8%A7%D9%84%D8%AA%D8%B5%D8%AD%D9%8A%D8%AD-1678104.html)
+- **حكيمي يلفت الأنظار بتقمص دور المدرب في مباراة المغرب مع مالي**: [Link](https://www.aljazeera.net/news/2025/12/28/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%84%D9%81%D8%AA-%D8%A7%D9%84%D8%A3%D9%86%D8%B8%D8%A7%D8%B1-%D8%A8%D8%AA%D9%88%D8%AC%D9%8A%D9%87%D8%A7%D8%AA%D9%87-%D9%84%D8%B2%D9%85%D9%84%D8%A7%D8%A6%D9%87)
+
+
 ### مجموعات كاس افريقيا 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
 
 - **ما المنتخبات المتأهلة إلى دور الـ 16 من كأس أمم إفريقيا 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%87%D9%84%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025/bltc9fa6463dbf6a05a)
