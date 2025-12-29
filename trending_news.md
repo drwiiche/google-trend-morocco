@@ -1,3 +1,10 @@
+### walid regragui (N/A, Mon, 29 Dec 2025 03:40:00 -0800)
+
+- **Walid Regragui : “J'ai dit aux joueurs que 95 % des Marocains vous aiment et sont contents, ce sont les 5 % qui crient le plus”**: [Link](https://mobile.telquel.ma/2025/12/29/walid-regragui-jai-dit-aux-joueurs-que-95-des-marocains-vous-aiment-et-sont-contents-ce-sont-les-5-qui-crient-le-plus_1967786)
+- **CAN Maroc-2025 (3ème journée): Entrainement de veille de match des Lions de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%82-17/)
+- **Maroc - Zambie : la météo du match, ce lundi 29 décembre**: [Link](https://medias24.com/2025/12/29/maroc-zambie-la-meteo-du-match-ce-lundi-29-decembre-1603655/)
+
+
 ### sgtm bourse (N/A, Mon, 29 Dec 2025 00:20:00 -0800)
 
 - **Bourse de Casablanca : une manipulation présumée autour de la cotation de SGTM**: [Link](https://ledesk.ma/2025/12/28/bourse-de-casablanca-une-manipulation-presumee-autour-de-la-cotation-de-sgtm/)
