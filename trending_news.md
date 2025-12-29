@@ -1,3 +1,45 @@
+### brahim diaz (N/A, Mon, 29 Dec 2025 11:30:00 -0800)
+
+- **Brahim Diaz feels at home as Morocco begin AFCON 2025 with statement win**: [Link](https://www.cafonline.com/afcon2025/news/brahim-diaz-feels-at-home-as-morocco-begin-afcon-2025-with-statement-win/)
+- **APTOPIX Emirates Battle of the Sexes Tennis**: [Link](https://www.couriernews.com/sports/aptopix-emirates-battle-of-the-sexes-tennis/image_9672d28a-b808-50bd-8e9c-63a290a470e9.html)
+- **Salah Eddine: "We Are Here to Win the Africa Cup of Nations"**: [Link](https://m.elbotola.com/en/article/2025-12-22-11-42-548.html)
+
+
+### booder (N/A, Mon, 29 Dec 2025 11:30:00 -0800)
+
+- **Audiences : La soirée événement "Le Roi Soleil à Versailles" sur M6 a-t-elle pris la tête face à "Booder fête ses 20 ans" et "Prodiges" ? - Puremédias**: [Link](https://www.ozap.com/actu/audiences-la-soiree-evenement-le-roi-soleil-a-versailles-sur-m6-a-t-elle-pris-la-tete-face-a-booder-fete-ses-20-ans-et-prodiges/652993)
+- **"Prodiges" : la Carpentrassienne Timéa qualifiée pour la finale**: [Link](https://www.ledauphine.com/culture-loisirs/2025/12/27/prodiges-timea-une-carpentrassienne-en-finale)
+- **À 14 ans, le Vannetais Tylan Le Bidre gagne sa place en finale de l’émission Prodiges sur France 2**: [Link](https://lorient.maville.com/actu/actudet_-a-14-ans-le-vannetais-tylan-le-bidre-gagne-sa-place-en-finale-de-l-emission-prodiges-sur-france-2-_dep-7124886_actu.Htm)
+
+
+### diaz (N/A, Mon, 29 Dec 2025 11:30:00 -0800)
+
+- **Luis Díaz is all about showing rather than telling when it comes to the UEFA Champions League**: [Link](https://www.bavarianfootballworks.com/bayern-munich-news-and-transfer-rumors/155290/luis-diaz-is-all-about-showing-rather-than-telling-when-it-comes-to-the-uefa-champions-league)
+- **Liverpool left red-faced as the best signing of 2025 in all of Europe is revealed**: [Link](https://www.rousingthekop.com/2025/12/29/liverpool-left-red-faced-as-the-best-signing-of-2025-in-all-of-europe-is-revealed/)
+- **Leeways Diaz: Bayern Munich’s Colombian superstar flourishing because of freedom in Vincent Kompany’s system**: [Link](https://sports.yahoo.com/articles/leeways-diaz-bayern-munich-colombian-093000385.html)
+
+
+### saibari (N/A, Mon, 29 Dec 2025 11:30:00 -0800)
+
+- **Mercato - OM : McCourt attend Benatia sur deux dossiers…**: [Link](https://www.footmarseillais.com/actualite/mercato-om-mccourt-attend-benatia-sur-deux-dossiers.html)
+- **Ulisses Garcia, Ruben Blanco, Neal Maupay ou Pol Lirola : les « Lofteurs » de l'OM toujours sans horizon**: [Link](https://www.lequipe.fr/Football/Article/Ulisses-garcia-ruben-blanco-neal-maupay-ou-pol-lirola-les-lofteurs-de-l-om-toujours-sans-horizon/1628995)
+- **Mercato OM : 4 Olympiens placés sur liste de transferts en janvier !**: [Link](https://www.score.fr/football/articles/mercato-om-4-olympiens-places-sur-liste-de-transferts-en-janvier/)
+
+
+### ياسين tv مباشر (N/A, Mon, 29 Dec 2025 11:30:00 -0800)
+
+- **تحميل برنامج الاسطورة تي في Ostora Tv Apk مهكر لبث المباريات للاندرويد والايفون اخر تحديث 2026 مجانا**: [Link](https://www.sumfak.unizg.hr/temp_uploads/blog/?p=24)
+- **ما هو تطبيق ياسين تي في وكيفية تحميل النسخة الأصلية منه 2026**: [Link](https://aboutmsr.com/%D9%85%D8%A7-%D9%87%D9%88-%D8%AA%D8%B7%D8%A8%D9%8A%D9%82-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%AA%D9%8A-%D9%81%D9%8A-%D9%88%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D8%AA%D8%AD%D9%85%D9%8A%D9%84-%D8%A7%D9%84%D9%86/)
+- **شاهد.. نتيجة وملخص مباراة تونس ضد نيجيريا في كأس الأمم الأفريقية**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/27/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D8%B6%D8%AF-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3?update=8454968)
+
+
+### يلا كورة (N/A, Mon, 29 Dec 2025 11:20:00 -0800)
+
+- **بفرمان من فليك.. برشلونة يتحرك صوب فلاهوفيتش**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%81%D8%B1%D9%85%D8%A7%D9%86-%D9%85%D9%86-%D9%81%D9%84%D9%8A%D9%83--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D8%B5%D9%88%D8%A8-%D8%B5%D9%81%D9%82%D8%A9-%D9%85%D8%B1%D9%85%D9%88%D9%82%D8%A9/blt1511f4ab35f557aa)
+- **برشلونة يتحرك لضم هداف يوفنتوس**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/1359636/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D8%B6%D9%85-%D9%87%D8%AF%D8%A7%D9%81-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3)
+- **خطة سرية من برشلونة تشعل سوق الميركاتو**: [Link](https://www.winwin.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%B7%D8%A9-%D8%B3%D8%B1%D9%8A%D8%A9-%D9%85%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88)
+
+
 ### arryadia tnt (N/A, Mon, 29 Dec 2025 11:20:00 -0800)
 
 
