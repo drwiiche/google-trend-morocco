@@ -1,3 +1,45 @@
+### angola vs egypt (N/A, Mon, 29 Dec 2025 07:20:00 -0800)
+
+- **MATCH STATS: Angola vs Egypt – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group B**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-angola-vs-egypt-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-b/)
+- **Why Angola Must Beat AFCON Giants Egypt If They Are To Qualify**: [Link](https://www.dawan.africa/news/why-angola-must-beat-afcon-giants-egypt-if-they-are-to-qualify)
+- **No weak teams at AFCON, Egypt's head coach says ahead of Angola match**: [Link](https://www.africanews.com/2025/12/28/no-weak-teams-at-afcon-egypts-head-coach-says-ahead-of-angola-match/)
+
+
+### أنغولا ضد مصر (N/A, Mon, 29 Dec 2025 07:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة مصر وأنجولا في كأس أمم إفريقيا 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%A3%D9%86%D8%AC%D9%88%D9%84%D8%A7-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt55772141913136c9)
+- **مصر ضد أنغولا في كأس أفريقيا.. الموعد والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/28/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **بوميل: التركيز سر الفوز على مصر**: [Link](https://www.hesport.com/%D8%A8%D9%88%D9%85%D9%8A%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%B2-%D8%B3%D8%B1-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%85%D8%B5%D8%B1-420073.html)
+
+
+### زيمبابوي ضد جنوب أفريقيا (N/A, Mon, 29 Dec 2025 07:20:00 -0800)
+
+- **مراكش تحسم بين "بافانا" وزيمبابوي**: [Link](https://www.hespress.com/%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D8%AA%D8%AD%D8%B3%D9%85-%D8%A8%D9%8A%D9%86-%D8%A8%D8%A7%D9%81%D8%A7%D9%86%D8%A7-%D9%88%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A-1678540.html)
+- **القنوات الناقلة لمباراة جنوب إفريقيا ضد زيمبابوي اليوم في كأس أمم إفريقيا 2025 مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/507755972493102-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **مدرب جنوب أفريقيا: آمل تصدر مصر لمجموعتنا في المركز الأول برصيد 9 نقط**: [Link](https://le12.ma/%D9%85%D8%AF%D8%B1%D8%A8-%D8%AC%D9%86%D9%88%D8%A8-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A2%D9%85%D9%84-%D8%AA%D8%B5%D8%AF%D8%B1-%D9%85%D8%B5%D8%B1-%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%AA/)
+
+
+### zimbabwe vs south africa (N/A, Mon, 29 Dec 2025 07:20:00 -0800)
+
+- **South Africa vs Zimbabwe: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273208/south-africa-vs-zimbabwe-when-and-how-to-watch-afcon-game/)
+- **Benedict Vilakazi offers some advice to Hugo Broos regarding some attacking and midfield positions!**: [Link](https://foot-africa.com/en/news/benedict-vilakazi-offers-some-advice-to-hugo-broos-regarding-some-attacking-and-midfield-positions-1021844/)
+- **Zindoga Has Seen This Movie Before**: [Link](https://www.heraldonline.co.zw/zindoga-has-seen-this-movie-before/)
+
+
+### zimbabwe – afrique du sud (N/A, Mon, 29 Dec 2025 07:10:00 -0800)
+
+- **Zimbabwe–Afrique du Sud : la qualification en jeu à Marrakech**: [Link](https://www.cafonline.com/fr/can2025/infos/zimbabwe-afrique-du-sud-la-qualification-en-jeu-a-marrakech/)
+- **DIRECT. Zimbabwe-Afrique du Sud (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/zimbabwe-afrique-du-sud-live/670759)
+- **Benedict Vilakazi donne des conseils à Hugo Broos concernant certains postes offensifs et au milieu de terrain**: [Link](https://foot-africa.com/actualites/benedict-vilakazi-donne-des-conseils-a-hugo-broos-concernant-certains-postes-offensifs-et-au-milieu-de-terrain-1021844/)
+
+
+### angola – égypte (N/A, Mon, 29 Dec 2025 07:10:00 -0800)
+
+- **DIRECT. Angola-Égypte (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/angola-egypte-live/670758)
+- **PRONOS PARIS RMC Le pari du jour du 29 décembre - CAN**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-29-decembre-can_AN-202512280220.html)
+- **Angola–Égypte: Patrice Beaumelle vise un résultat décisif pour rester en course**: [Link](https://sport.le360.ma/football/can/angolaegypte-patrice-beaumelle-vise-un-resultat-decisif-pour-rester-en-course_DYQGO66PPFH7VIHNYFAJ7MXALE/)
+
+
 ### أبو عبيدة (N/A, Mon, 29 Dec 2025 06:40:00 -0800)
 
 - **القسام تزف أبو عبيدة والسنوار وقادة بارزين**: [Link](https://www.aljazeera.net/news/2025/12/29/%D8%B9%D8%A7%D8%AC%D9%84-%D9%83%D9%84%D9%85%D8%A9-%D9%84%D9%84%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D9%84%D9%83%D8%AA%D8%A7%D8%A6%D8%A8-%D8%B9%D8%B2)
