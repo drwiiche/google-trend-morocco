@@ -1,3 +1,17 @@
+### match egypte aujourd'hui (N/A, Mon, 29 Dec 2025 09:20:00 -0800)
+
+- **CAN 2025 : « C’est le pays d’Afrique le plus européen », un dirigeant français en poste à Rabat juge le foot marocain**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-cest-le-pays-dafrique-le-plus-europeen-un-dirigeant-francais-en-poste-a-rabat-juge-le-foot-marocain-29-12-2025-3MV6IRC6PBDRBB4IOJYV75ZZVQ.php)
+- **Vivre l’Afrique au Maroc: quand le football devient langage africain**: [Link](https://fr.le360.ma/economie/vivre-lafrique-au-maroc-quand-le-football-devient-langage-africain_TPMCMZRR6ZFMZNYFYCIPFO2EOM/)
+- **CAN 2025 : l’heure des comptes**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-l-heure-des-comptes/)
+
+
+### afrique du sud (N/A, Mon, 29 Dec 2025 09:10:00 -0800)
+
+- **DIRECT. Zimbabwe-Afrique du Sud (CAN 2025) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/zimbabwe-afrique-du-sud-live/670759)
+- **Zimbabwe–Afrique du Sud : la qualification en jeu à Marrakech**: [Link](https://www.cafonline.com/fr/can2025/infos/zimbabwe-afrique-du-sud-la-qualification-en-jeu-a-marrakech/)
+- **DIRECT. CAN 2025: l'Afrique du Sud reprend l'avantage contre le Zimbabwe, l'Egypte bousculée**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-can-2025-suivez-en-multiplex-les-rencontres-zimbabwe-afrique-du-sud-et-angola-egypte_LS-202512290374.html)
+
+
 ### angola (N/A, Mon, 29 Dec 2025 08:40:00 -0800)
 
 - **Eddie Afonso: «Queremos mostrar uma outra Angola frente ao Egipto»**: [Link](https://www.rfi.fr/pt/%C3%A1frica-lus%C3%B3fona/20251229-eddie-afonso-queremos-mostrar-uma-outra-angola-frente-ao-egipto)
