@@ -1,3 +1,38 @@
+### مجموعات كاس افريقيا 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **ما المنتخبات المتأهلة إلى دور الـ 16 من كأس أمم إفريقيا 2025؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%87%D9%84%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025/bltc9fa6463dbf6a05a)
+- **من يتأهل إلى ثمن نهائي كأس أمم أفريقيا عند تساوي النقاط والأهداف؟**: [Link](https://www.aljazeera.net/sport/2025/12/28/%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%8016-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%88%D9%8A)
+- **المواجهات المباشرة والقرعة ترسم ملامح دور الـ 16 لكأس أمم إفريقيا**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D9%82%D8%B1%D8%B9%D8%A9-%D8%AA%D8%B1%D8%B3%D9%85-%D9%85%D9%84%D8%A7%D9%85/)
+
+
+### مباريات كاس افريقيا (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **الاثنين, 29 ديسمبر 2025**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2-2025-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D9%88%D8%A7%D8%AD%D8%AA%D8%AF%D8%A7%D9%85-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%86-%D8%B4%D8%B1-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-29-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025/)
+- **جدول مباريات اليوم الثلاثاء 30 ديسمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-30-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt55437da18fbd0710)
+- **أبرزها مباراة المغرب وزامبيا.. هذا هو برنامج اليوم الخاص بكأس أمم افريقيا 2025 - تليكسبريس**: [Link](https://telexpresse.com/445460.html)
+
+
+### can tickets (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **Dysart man claims $1 million lottery ticket**: [Link](https://www.kcrg.com/2025/12/27/dysart-man-claims-1-million-lottery-ticket/)
+- **Powerball numbers for Saturday, December 27, 2025: No jackpot winner**: [Link](https://www.freep.com/story/news/lottery/2025/12/27/powerball-winning-numbers-saturday-december-27-2025-results/87703136007/)
+- **Powerball numbers last night, December 27: Did anyone win the Powerball jackpot?**: [Link](https://www.indystar.com/story/news/2025/12/27/powerball-winning-numbers-last-night-dec-27-did-anyone-win-the-powerball-12-27-25-winner-results/87907186007/)
+
+
+### coup d'afrique (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **TotalEnergies CAF CAN Maroc 2025 : Cameroun et Côte d’Ivoire dos à dos dans un choc haletant**: [Link](https://www.cafonline.com/fr/can2025/infos/totalenergies-caf-can-maroc-2025-cameroun-et-cote-d-ivoire-dos-a-dos-dans-un-choc-haletant/)
+- **Kylian Mbappé, Jules Koundé et Aurélien Tchouaméni présents à Marrakech pour Côte d'Ivoire-Cameroun**: [Link](https://www.lequipe.fr/Football/Actualites/Kylian-mbappe-jules-kounde-et-aurelien-tchouameni-presents-a-marrakech-pour-cote-d-ivoire-cameroun/1629921)
+- **CAN 2025: calendrier, résultats et classement du groupe F avec la Côte d'Ivoire et le Cameroun**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-calendrier-resultats-et-classement-du-groupe-f-avec-la-cote-d-ivoire-et-le-cameroun_AV-202512290242.html)
+
+
+### prochain match maroc (N/A, Mon, 29 Dec 2025 12:20:00 -0800)
+
+- **CAN 2025 : l’heure des comptes**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-l-heure-des-comptes/)
+- **CAN 2025 : les enjeux de la troisième journée de la phase de groupes**: [Link](https://mobile.telquel.ma/instant-t/2025/12/29/can-2025-les-enjeux-de-la-troisieme-journee-de-la-phase-de-groupes_1967806/)
+- **CAN 2025 : sous la pluie, la technologie à l'œuvre pour protéger la pelouse des stades marocains**: [Link](https://ledesk.ma/datadesk/can-2025-sous-la-pluie-la-technologie-a-loeuvre-pour-proteger-la-pelouse-des-stades-marocains/)
+
+
 ### kaabi (N/A, Mon, 29 Dec 2025 11:30:00 -0800)
 
 - **EN DIRECT, Zambie-Maroc : Ayoub El-Kaabi inscrit un nouveau but acrobatique, les Lions de l’Atlas se rapprochent des 8ᵉˢ de finale de la CAN 2025**: [Link](https://www.lemonde.fr/afrique/live/2025/12/29/en-direct-zambie-maroc-suivez-la-can-2025_6659750_3212.html)
