@@ -1,3 +1,17 @@
+### bourse de casablanca (N/A, Mon, 29 Dec 2025 00:40:00 -0800)
+
+- **Bourse de Casablanca : une manipulation présumée autour de la cotation de SGTM**: [Link](https://ledesk.ma/2025/12/28/bourse-de-casablanca-une-manipulation-presumee-autour-de-la-cotation-de-sgtm/)
+- **Bourse : volume hebdomadaire au-delà de 11 MMDH**: [Link](https://www.leconomiste.com/flash-infos/bourse-volume-hebdomadaire-au-dela-de-11-mmdh/)
+- **Bourse de Casablanca : soupçons de window dressing ?**: [Link](https://www.lenouvelliste.ma/bourse-de-casablanca-soupcons-de-window-dressing/)
+
+
+### الدعم الاجتماعي المباشر (N/A, Mon, 29 Dec 2025 00:20:00 -0800)
+
+- **بفضل رقمنة المساطر.. أكثر من 386 ألف أرملة يستفدن من الدعم الاجتماعي**: [Link](https://kifache.com/%D8%A8%D9%81%D8%B6%D9%84-%D8%B1%D9%82%D9%85%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%B7%D8%B1-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-386-%D8%A3%D9%84%D9%81-%D8%A3%D8%B1%D9%85%D9%84%D8%A9-%D9%8A/)
+- **لقجع: كثر من 3,88 مليون اسرة استفدات من الدعم المباشر ف أكتوبر بمبلغ إجمالي فات 2 مليار درهم**: [Link](https://www.goud.ma/%D9%84%D9%82%D8%AC%D8%B9-%D9%83%D8%AB%D8%B1-%D9%85%D9%88-388-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%A7%D8%B3%D8%B1%D8%A9-%D8%A7%D8%B3%D8%AA%D9%81%D8%AF%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D8%B9-994725/)
+- **أزيد من 386 ألف أرملة تستفيد من الدعم الاجتماعي المباشر**: [Link](https://madar21.com/395819.html)
+
+
 ### نشرة الجوية (N/A, Sun, 28 Dec 2025 23:30:00 -0800)
 
 - **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-48-1678356.html)
