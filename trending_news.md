@@ -1,3 +1,10 @@
+### neil el aynaoui (N/A, Mon, 29 Dec 2025 10:50:00 -0800)
+
+- **Walid Regragui remplacé en pleine CAN, coup de tonnerre au Maroc ?**: [Link](https://www.sports.fr/football/can/walid-regragui-remplace-en-pleine-can-coup-de-tonnerre-annonce-977903.html)
+- **Retour sur le match Maroc-Mali à ILOLI, au cœur d’une programmation CAN élargie**: [Link](https://fr.le360.ma/lifestyle/retour-sur-le-match-maroc-mali-a-iloli-au-coeur-dune-programmation-can-elargie_P7WSA6HBNJG75EA4QG3C7CZTA4/)
+- **Les Lions de l’Atlas, déjà tournés vers le rebond après le revers face au Mali**: [Link](https://lematin.ma/videos/les-lions-de-latlas-tournes-vers-le-rebond-apres-le-revers-face-au-mali/321421)
+
+
 ### sambia – marokko (N/A, Mon, 29 Dec 2025 10:30:00 -0800)
 
 - **Ex-Herthaner Maolida jubelt zu früh: VAR verhindert Sieg der Komoren | Highlights by Sportdigital | Video**: [Link](https://www.kicker.de/ex-herthaner-maolida-jubelt-zu-frueh-var-verhindert-sieg-der-komoren-1178883/video)
