@@ -1,3 +1,10 @@
+### africa cup (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **Afcon 2025: Lyle Foster scores as South Africa beat Zimbabwe 3-2 to reach last 16**: [Link](https://www.bbc.com/sport/football/live/c20kvy6yr3xt)
+- **South Africa vs Zimbabwe: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273208/south-africa-vs-zimbabwe-when-and-how-to-watch-afcon-game/)
+- **CAN 2025: South Africa advances to the round of 16**: [Link](https://foot-africa.com/en/news/can-2025-south-africa-advances-to-the-round-of-16-1022279/)
+
+
 ### maroc prochain match (N/A, Mon, 29 Dec 2025 14:10:00 -0800)
 
 - **CAN Maroc : Pourquoi la phase de groupes ne fait pas le champion**: [Link](https://industries.ma/can-maroc-pourquoi-la-phase-de-groupes-ne-fait-pas-le-champion/)
