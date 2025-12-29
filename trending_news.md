@@ -1,3 +1,17 @@
+### maroc prochain match (N/A, Mon, 29 Dec 2025 14:10:00 -0800)
+
+- **CAN Maroc : Pourquoi la phase de groupes ne fait pas le champion**: [Link](https://industries.ma/can-maroc-pourquoi-la-phase-de-groupes-ne-fait-pas-le-champion/)
+- **Beautiful Game - Bilan de la première journée ! Le Mali peut-il gagner la CAN ?**: [Link](https://www.africaradio.com/podcasts/podcast-55-beautiful-game/episode-7546-beautiful-game-bilan-de-la-premiere-journee-le-mali-peut-il-gagner-la-can/)
+- **[Podcasts] Walid livre son équipe type de la première journée de la CAN. Zack Nani bluffé par l'entrée en lice du Cameroun. + Cédric Kanté revient sur ses expériences de CAN – 25/12**: [Link](https://rmcsport.bfmtv.com/replay-emissions/after-foot/walid-livre-son-equipe-type-de-la-premiere-journee-de-la-can-zack-nani-bluffe-par-l-entree-en-lice-du-cameroun-cedric-kante-revient-sur-ses-experiences-de-can-25-12_EN-202512250429.html)
+
+
+### caf match (N/A, Mon, 29 Dec 2025 13:20:00 -0800)
+
+- **Ayoub El-Kaabi, l'attaquant du Maroc roi des retournés acrobatiques**: [Link](https://www.lequipe.fr/Football/Actualites/Ayoub-el-kaabi-l-attaquant-du-maroc-roi-des-retournes-acrobatiques/1628828)
+- **Il l'a refait : le ciseau retourné magnifique de El-Kaabi en vidéo**: [Link](https://www.eurosport.fr/football/coupe-d-afrique-des-nations/2025/coupe-dafrique-des-nations-le-ciseau-magnifique-dayoub-el-kaabi-pour-offrir-la-victoire-au-maroc-en-video_sto23254468/story.shtml)
+- **CAN 2025 : le roi de la bicyclette a encore frappé, son but en vidéo qui a fait chavirer le Maroc**: [Link](https://www.lefigaro.fr/sports/football/can-2025-en-video-les-deux-buts-du-maroc-face-a-la-zambie-20251229)
+
+
 ### calendrier can 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
 
 - **TotalEnergies CAF CAN Maroc 2025 : Cameroun et Côte d’Ivoire dos à dos dans un choc haletant**: [Link](https://www.cafonline.com/fr/can2025/infos/totalenergies-caf-can-maroc-2025-cameroun-et-cote-d-ivoire-dos-a-dos-dans-un-choc-haletant/)
