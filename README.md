@@ -1,3 +1,10 @@
+### أبو عبيدة (N/A, Mon, 29 Dec 2025 06:40:00 -0800)
+
+- **القسام تزف أبو عبيدة والسنوار وقادة بارزين**: [Link](https://www.aljazeera.net/news/2025/12/29/%D8%B9%D8%A7%D8%AC%D9%84-%D9%83%D9%84%D9%85%D8%A9-%D9%84%D9%84%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D9%84%D9%83%D8%AA%D8%A7%D8%A6%D8%A8-%D8%B9%D8%B2)
+- **أبو عبيدة: حركة حماس تعلن مقتل الناطق باسم جناحها العسكري**: [Link](https://www.bbc.com/arabic/articles/c1e4ejddxe3o)
+- **"يأكلون مما نأكله".. أبو عبيدة: سنطلق سراح ضيوفنا الأجانب ونسعى لحمايتهم من العدوان**: [Link](https://ar.telquel.ma/%D9%83%D8%AA%D8%A7%D8%A6%D8%A8-%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D9%86%D8%B9%D9%89-%D8%A7%D9%84%D9%86%D8%A7%D8%B7%D9%82-%D8%A8%D8%A7%D8%B3%D9%85%D9%87%D8%A7-%D8%A3%D8%A8%D9%88-%D8%B9%D8%A8/)
+
+
 ### etna (N/A, Mon, 29 Dec 2025 02:10:00 -0800)
 
 - **Snow-capped Mount Etna erupts as skiers glide down slopes**: [Link](https://www.bbc.com/news/videos/cz7n4px7e41o)
