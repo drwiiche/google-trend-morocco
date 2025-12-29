@@ -1,3 +1,10 @@
+### lalla salma (N/A, Mon, 29 Dec 2025 15:30:00 -0800)
+
+- **« Il a laissé tomber le protocole » : comment le Prince héritier du Maroc profite de la CAN pour éclater en pleine lumière**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/le-plus-beau-moment-de-la-can-lapparition-du-prince-heritier-lors-du-match-douverture-enflamme-le-maroc-25-12-2025-BPPCEG3HLVDEDFUY5QVD2OARIU.php)
+- **Moulay El Hassan, au nom du Père**: [Link](https://www.lesechos.fr/idees-debats/en-vue/moulay-el-hassan-au-nom-du-pere-2206879)
+- **Les «pays crasseux» de Trump. La CAN et M6**: [Link](https://www.lesoirdalgerie.com/ce-monde-qui-bouge/les-pays-crasseux-de-trump-la-can-et-m6-81252)
+
+
 ### can africa (N/A, Mon, 29 Dec 2025 13:10:00 -0800)
 
 - **Senegal’s Idrissa Gueye Says Future AFCON Hosts Should Follow Morocco’s Example**: [Link](https://www.moroccoworldnews.com/2025/12/273138/senegals-idrissa-gueye-says-future-afcon-hosts-should-follow-moroccos-example/)
