@@ -1,3 +1,10 @@
+### rayan cherki (N/A, Mon, 29 Dec 2025 07:50:00 -0800)
+
+- **Nottingham Forest 1-2 Manchester City: Premier League – as it happened**: [Link](https://www.theguardian.com/football/live/2025/dec/27/nottingam-forest-v-manchester-city-premier-league-live?filterKeyEvents=false&page=with%3Ablock-694ff1a88f0883df52b59356)
+- **Cherki moves level with Fernandes at top of assists chart**: [Link](https://www.premierleague.com/en/news/4519034/cherki-moves-level-with-fernandes-at-top-of-assists-chart)
+- **Pep: This was a massive three points**: [Link](https://www.mancity.com/news/mens/nottingham-forest-1-2-man-city-pep-guardiola-reaction-63902447)
+
+
 ### angola vs egypt (N/A, Mon, 29 Dec 2025 07:20:00 -0800)
 
 - **MATCH STATS: Angola vs Egypt – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group B**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-angola-vs-egypt-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-b/)
