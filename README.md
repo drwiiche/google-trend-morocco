@@ -1,3 +1,10 @@
+### anthony joshua (N/A, Mon, 29 Dec 2025 05:40:00 -0800)
+
+- **BREAKING: Anthony Joshua in road crash, two die**: [Link](https://punchng.com/breaking-anthony-joshua-in-road-crash-two-die/)
+- **Anthony Joshua is 'injured in car crash' in Nigeria which killed two others**: [Link](https://www.dailymail.co.uk/news/article-15419405/Anthony-Joshua-injured-car-crash-Nigeria.html)
+- **Smiling Anthony Joshua seen playing table tennis in haunting post hours before car crash that left two passengers dead**: [Link](https://www.the-sun.com/sport/15704909/anthony-joshua-plays-table-tennis-hours-before-crash/)
+
+
 ### walid regragui (N/A, Mon, 29 Dec 2025 03:40:00 -0800)
 
 - **Walid Regragui : “J'ai dit aux joueurs que 95 % des Marocains vous aiment et sont contents, ce sont les 5 % qui crient le plus”**: [Link](https://mobile.telquel.ma/2025/12/29/walid-regragui-jai-dit-aux-joueurs-que-95-des-marocains-vous-aiment-et-sont-contents-ce-sont-les-5-qui-crient-le-plus_1967786)
