@@ -1,3 +1,22 @@
+### stade moulay abdellah (N/A, Mon, 29 Dec 2025 09:30:00 -0800)
+
+- **CAN 2025. Mbappé voit le Maroc comme l’un des candidats au titre, selon Hakimi**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-mbappe-voit-le-maroc-comme-lun-des-candidats-au-titre-selon-hakimi-842b5906-e3ed-11f0-8a75-c20b0b6b178b)
+- **CAN 2025 : Kylian Mbappé a tranché entre l’Algérie et le Cameroun**: [Link](https://www.footmercato.net/a6871337842250935721-can-2025-kylian-mbappe-present-a-marrakech-pour-cameroun-cote-divoire)
+- **CAN, Lions de l’Atlas et... nourriture marocaine: les confidences d’Hakimi sur la visite de son ami Mbappé au Maroc**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-lions-de-l-atlas-et-nourriture-marocaine-les-confidences-d-hakimi-sur-la-visite-de-son-ami-mbappe-au-maroc_AV-202512280149.html)
+
+
+### egypte match (N/A, Mon, 29 Dec 2025 09:20:00 -0800)
+
+
+
+
+### zambie – maroc (N/A, Mon, 29 Dec 2025 08:50:00 -0800)
+
+- **CAN Maroc-2025 (3ème journée): Entrainement de veille de match des Lions de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%82-17/)
+- **CAN 2025 Maroc-Zambie : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2025/12/29/can-2025-maroc-zambie-quelle-heure-quelles-chaines-1603649/)
+- **Walid Regragui : “J'ai dit aux joueurs que 95 % des Marocains vous aiment et sont contents, ce sont les 5 % qui crient le plus”**: [Link](https://mobile.telquel.ma/2025/12/29/walid-regragui-jai-dit-aux-joueurs-que-95-des-marocains-vous-aiment-et-sont-contents-ce-sont-les-5-qui-crient-le-plus_1967786)
+
+
 ### match egypte aujourd'hui (N/A, Mon, 29 Dec 2025 09:20:00 -0800)
 
 - **CAN 2025 : « C’est le pays d’Afrique le plus européen », un dirigeant français en poste à Rabat juge le foot marocain**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-cest-le-pays-dafrique-le-plus-europeen-un-dirigeant-francais-en-poste-a-rabat-juge-le-foot-marocain-29-12-2025-3MV6IRC6PBDRBB4IOJYV75ZZVQ.php)
