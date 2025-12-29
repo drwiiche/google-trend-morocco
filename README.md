@@ -1,3 +1,24 @@
+### نشرة الجوية (N/A, Sun, 28 Dec 2025 23:30:00 -0800)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-48-1678356.html)
+- **دول عربية تحت وطأة أجواء عاصفة وماطرة وباردة**: [Link](https://www.aljazeera.net/climate/2025/12/28/%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AA-%D9%88%D8%B7%D8%A3%D8%A9-%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A)
+- **استمرار التساقطات المطرية.. يوعابد لـ"تيلكيل عربي": سيبدأ الطقس في الاستقرار تدريجيًا بداية من السبت**: [Link](https://ar.telquel.ma/%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88/)
+
+
+### bryan mbeumo (N/A, Sun, 28 Dec 2025 13:30:00 -0800)
+
+- **What Amad and Mbeumo did at AFCON as Man United suffer potential double blow**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/gallery/amad-bryan-mbeumo-man-utd-33120850)
+- **Ruben Amorim has just learned how he can unleash the best of both Amad and Bryan Mbeumo at Man Utd**: [Link](https://www.unitedinfocus.com/opinion/ruben-amorim-has-just-learned-how-he-can-unleash-the-best-of-both-amad-and-bryan-mbeumo-at-man-utd/)
+- **Man United duo Mbeumo and Diallo scoop MOTM awards on international duty**: [Link](https://sportsview.co.uk/2025/12/man-united-duo-mbeumo-and-diallo-scoop-motm-awards-on-international-duty)
+
+
+### fofana (N/A, Sun, 28 Dec 2025 13:00:00 -0800)
+
+- **Maresca deserves criticism for this decision which cost Chelsea dearly**: [Link](https://ca.sports.yahoo.com/news/maresca-deserves-criticism-decision-cost-071500490.html)
+- **The one change Enzo Maresca will definitely make against Bournemouth after Aston Villa failure**: [Link](https://www.thechelseachronicle.com/columnist/the-one-change-enzo-maresca-will-definitely-make-against-bournemouth-after-aston-villa-failure/)
+- **Maresca explains line-up decision which will be controversial if it backfires**: [Link](https://onefootball.com/en/news/maresca-explains-line-up-decision-which-will-be-controversial-if-it-backfires-42150184)
+
+
 ### jules koundé (N/A, Sun, 28 Dec 2025 12:30:00 -0800)
 
 - **Koundé, como Lamine en Dubai, jugando un 'partidillo' con chicos de Benín**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251227/1002592417/kounde-lamine-dubai-jugando-partidillo-chicos-benin.html)
