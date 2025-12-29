@@ -1,3 +1,10 @@
+### sgtm bourse (N/A, Mon, 29 Dec 2025 00:20:00 -0800)
+
+- **Bourse de Casablanca : une manipulation présumée autour de la cotation de SGTM**: [Link](https://ledesk.ma/2025/12/28/bourse-de-casablanca-une-manipulation-presumee-autour-de-la-cotation-de-sgtm/)
+- **Bourse : volume hebdomadaire au-delà de 11 MMDH**: [Link](https://www.leconomiste.com/flash-infos/bourse-volume-hebdomadaire-au-dela-de-11-mmdh/)
+- **Bourse de Casablanca : soupçons de window dressing ?**: [Link](https://www.lenouvelliste.ma/bourse-de-casablanca-soupcons-de-window-dressing/)
+
+
 ### bourse de casablanca (N/A, Mon, 29 Dec 2025 00:40:00 -0800)
 
 - **Bourse de Casablanca : une manipulation présumée autour de la cotation de SGTM**: [Link](https://ledesk.ma/2025/12/28/bourse-de-casablanca-une-manipulation-presumee-autour-de-la-cotation-de-sgtm/)
