@@ -1,3 +1,24 @@
+### achraf hakimi (N/A, Sun, 28 Dec 2025 16:30:00 -0800)
+
+- **CAN 2025: Achraf Hakimi jugará con Marruecos contra Zambia**: [Link](https://en.yabiladi.com/articles/details/184505/2025-achraf-hakimi-jugara-marruecos.html)
+- **Aviso de Achraf a la afición de Marruecos**: [Link](https://www.mundodeportivo.com/futbol/copa-africa/20251228/1002592848/aviso-achraf-aficion-marruecos.html)
+- **Capitán de Marruecos pide a aficionados dejar de silbarle al equipo en la Copa África**: [Link](https://www.msn.com/es-us/noticias/other/capit%C3%A1n-de-marruecos-pide-a-aficionados-dejar-de-silbarle-al-equipo-en-la-copa-%C3%A1frica/ar-AA1TavEW)
+
+
+### barrages maroc (N/A, Sun, 28 Dec 2025 15:50:00 -0800)
+
+- **Les barrages atteignent 6,04 milliards de m³ après un gain de 493 Mm³ en une semaine**: [Link](https://medias24.com/2025/12/26/les-barrages-atteignent-604-milliards-de-m%C2%B3-apres-un-gain-de-493-mm%C2%B3-en-une-semaine-1602875/)
+- **Diapo. Safi: état de préparation maximal des autorités face aux intempéries**: [Link](https://fr.le360.ma/societe/diapo-safi-etat-de-preparation-maximal-des-autorites-face-aux-intemperies_QDMOFGZMQZC63CV72VM3HDVUNQ/)
+- **Maroc : Après 7 ans de sécheresse, qu’apportent les pluies de la fin 2025 ?**: [Link](https://www.yabiladi.com/articles/details/184427/maroc-apres-secheresse-qu-apportent-pluies.html)
+
+
+### حالة الطقس غدا (N/A, Sun, 28 Dec 2025 15:40:00 -0800)
+
+- **سقوط أمطار غزيرة على 6 محافظات.. و«الأرصاد» تنصح بالابتعاد عن أعمدة الكهرباء**: [Link](https://www.elwatannews.com/news/details/8197808)
+- **الطقس غداً في مصر: الأرصاد تحذر من منخفض جوي شديد البرودة وتعلن خريطة الأمطار | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-12-28/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF%D8%A7%D9%8B-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D8%B4%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%88%D8%AA%D8%B9%D9%84%D9%86-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-6241091)
+- **تحذير من الأرصاد: تكاثر سحب وأمطار متفاوتة الشدة على هذه المناطق غدًا**: [Link](https://arqam.news/524539/)
+
+
 ### alerte météo neige maroc (N/A, Sun, 28 Dec 2025 15:20:00 -0800)
 
 - **Alerte météo: Averses orageuses, chutes de neige et fortes rafales de vent, dimanche et lundi dans plusieurs provinces**: [Link](https://medias24.com/2025/12/28/alerte-meteo-averses-orageuses-chutes-de-neige-et-fortes-rafales-de-vent-dimanche-et-lundi-dans-plusieurs-provinces-1603557/)
