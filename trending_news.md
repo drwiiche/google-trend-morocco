@@ -1,3 +1,10 @@
+### groupe can 2025 (N/A, Mon, 29 Dec 2025 12:00:00 -0800)
+
+- **CAN 2025: Maroc, Algérie, Nigéria… Le tableau complet des huitièmes de finale**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-maroc-algerie-nigeria-le-tableau-complet-des-huitiemes-de-finale_AV-202512290553.html)
+- **CAN 2025 : l’heure des comptes**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-l-heure-des-comptes/)
+- **CAN 2025 : « C’est le pays d’Afrique le plus européen », un dirigeant français en poste à Rabat juge le foot marocain**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-cest-le-pays-dafrique-le-plus-europeen-un-dirigeant-francais-en-poste-a-rabat-juge-le-foot-marocain-29-12-2025-3MV6IRC6PBDRBB4IOJYV75ZZVQ.php)
+
+
 ### cafonline (N/A, Mon, 29 Dec 2025 13:10:00 -0800)
 
 - **MATCH STATS: Tanzania vs Tunisia – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group C**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-tanzania-vs-tunisia-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-c/)
