@@ -1,3 +1,10 @@
+### etna (N/A, Mon, 29 Dec 2025 02:10:00 -0800)
+
+- **Snow-capped Mount Etna erupts as skiers glide down slopes**: [Link](https://www.bbc.com/news/videos/cz7n4px7e41o)
+- **Snow-covered Mount Etna erupts spewing lava and ash – video**: [Link](https://www.theguardian.com/world/video/2025/dec/28/snow-covered-mount-etna-erupts-spewing-lava-and-ash-video)
+- **Best photos of December 29: Volcanic eruption in Sicily to parade rehearsal in India**: [Link](https://www.thenationalnews.com/news/2025/12/29/best-photos-of-december-29-volcanic-eruption-in-sicily-to-parade-rehearsal-in-india/)
+
+
 ### anthony joshua (N/A, Mon, 29 Dec 2025 05:40:00 -0800)
 
 - **BREAKING: Anthony Joshua in road crash, two die**: [Link](https://punchng.com/breaking-anthony-joshua-in-road-crash-two-die/)
