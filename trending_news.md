@@ -1,3 +1,38 @@
+### dirham marocain (N/A, Mon, 29 Dec 2025 15:40:00 -0800)
+
+- **Marché des changes: Le dirham porté par l’amélioration de sa liquidité**: [Link](https://www.leconomiste.com/marche-des-changes-le-dirham-porte-par-lamelioration-de-sa-liquidite/)
+- **Dirham, réserves, Bourse : les indicateurs de BAM au vert en fin décembre**: [Link](https://h24info.ma/economie/dirham-reserves-bourse-bam-au-vert-decembre/)
+- **Cours des devises du mardi**: [Link](https://le12.ma/fr/cours-des-devises-du-mardi-2/)
+
+
+### جدول مباريات كأس أفريقيا 2025 (N/A, Mon, 29 Dec 2025 13:20:00 -0800)
+
+- **جدول مباريات دور الـ 16 من كأس أمم إفريقيا 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/bltb5e84d717f9a498b)
+- **قبل جولة الحسم.. هذا موقف مجموعات أمم إفريقيا**: [Link](https://www.skynewsarabia.com/sport/1842954-%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85-%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D9%82%D9%81-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **"أسوأ" سيناريو: المغرب- تونس... ما هي التوقعات بشأن مواجهات ثمن النهائي في كأس الأمم الأفريقية 2025؟**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20251229-%D8%A3%D8%B3%D9%88%D8%A3-%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D9%88%D9%86%D8%B3-%D9%85%D8%A7-%D9%87%D9%8A-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AB%D9%85%D9%86-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-2025)
+
+
+### africa cup of nations games (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **AFCON 2025: Final group games begin as knockout race tightens in Morocco**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-final-group-games-begin-as-knockout-race-tightens-in-morocco/)
+- **CAN 2025 battle: Make your predictions, challenge the editors and win Google Play cards**: [Link](https://foot-africa.com/en/news/can-2025-battle-make-your-predictions-challenge-the-editors-and-win-google-play-cards-1021232/)
+- **AFCON 2025: Cameroon, Côte d’Ivoire and Burkina Faso start strong on matchday one**: [Link](https://www.msn.com/en-ph/news/other/afcon-2025-cameroon-c%C3%B4te-d-ivoire-and-burkina-faso-start-strong-on-matchday-one/ar-AA1T13DM)
+
+
+### prochain match maroc can 2025 (N/A, Mon, 29 Dec 2025 12:50:00 -0800)
+
+- **C’est fini pour Regragui et le Maroc**: [Link](https://www.sports.fr/football/can/cest-fini-pour-regragui-et-le-maroc-977519.html)
+- **CAN 2025. Maroc-Mali. Les principaux enseignements tactiques (vidéo)**: [Link](https://medias24.com/2025/12/27/can-2025-maroc-mali-les-principaux-enseignements-tactiques-video-1603399/)
+- **CAN MAROC : les adversaires potentiels du Maroc connus**: [Link](https://industries.ma/can-maroc-les-adversaires-potentiels-du-maroc-connus/)
+
+
+### kaabi ayoub (N/A, Mon, 29 Dec 2025 12:50:00 -0800)
+
+- **Vidéo : le nouveau retourné acrobatique du spécialiste Ayoub El-Kaabi avec le Maroc contre la Zambie à la CAN 2025**: [Link](https://www.lequipe.fr/Football/Actualites/Video-le-nouveau-retourne-acrobatique-du-specialiste-ayoub-el-kaabi-avec-le-maroc-contre-la-zambie-a-la-can-2025/1630119)
+- **Il l'a refait : le ciseau retourné magnifique de El-Kaabi en vidéo**: [Link](https://www.eurosport.fr/football/coupe-d-afrique-des-nations/2025/coupe-dafrique-des-nations-le-ciseau-magnifique-dayoub-el-kaabi-pour-offrir-la-victoire-au-maroc-en-video_sto23254468/story.shtml)
+- **CAN 2025 : le roi de la bicyclette a encore frappé, son but en vidéo qui a fait chavirer le Maroc**: [Link](https://www.lefigaro.fr/sports/football/can-2025-en-video-les-deux-buts-du-maroc-face-a-la-zambie-20251229)
+
+
 ### lalla salma (N/A, Mon, 29 Dec 2025 15:30:00 -0800)
 
 - **« Il a laissé tomber le protocole » : comment le Prince héritier du Maroc profite de la CAN pour éclater en pleine lumière**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/le-plus-beau-moment-de-la-can-lapparition-du-prince-heritier-lors-du-match-douverture-enflamme-le-maroc-25-12-2025-BPPCEG3HLVDEDFUY5QVD2OARIU.php)
