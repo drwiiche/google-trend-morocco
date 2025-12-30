@@ -1,3 +1,59 @@
+### afcon (N/A, Tue, 30 Dec 2025 10:10:00 -0800)
+
+- **AFCON 2025 Fuels Optimism in Morocco, Survey Shows**: [Link](https://www.moroccoworldnews.com/2025/12/273381/afcon-2025-fuels-optimism-in-morocco-survey-shows/)
+- **Football Reshapes Moroccan Consumer Spending Patterns**: [Link](https://northafricapost.com/93632-football-reshapes-moroccan-consumer-spending-patterns.html)
+- **AFCON 2025: Casablanca Airport Surpasses Historic Milestone of 11 Million Passengers**: [Link](https://www.maroc.ma/en/news/afcon-2025-casablanca-airport-surpasses-historic-milestone-11-million-passengers)
+
+
+### bénin – sénégal (N/A, Tue, 30 Dec 2025 10:10:00 -0800)
+
+- **CAN. Le Sénégal qualifié pour les 8es de finale après son dernier match contre le Bénin si…**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-le-senegal-qualifie-pour-les-8es-de-finale-apres-son-dernier-match-contre-le-benin-si-029ea99a-e4bc-11f0-8a75-c20b0b6b178b)
+- **Sénégal–Bénin : l'ambition face à la conviction dans un choc décisif du Groupe D**: [Link](https://www.cafonline.com/fr/can2025/infos/senegal-benin-lambition-face-a-la-conviction-dans-un-choc-decisif-du-groupe-d/)
+- **CAN-Maroc 2025: Le Sénégal vise la tête du groupe pour rester à Tanger (sélectionneur)**: [Link](https://2m.ma/fr/news/CAN-Maroc-2025-Le-S%C3%A9n%C3%A9gal-vise-la-t%C3%AAte-du-groupe-pour-rester-20251229)
+
+
+### ترتيب كأس أفريقيا 2025 (N/A, Tue, 30 Dec 2025 10:00:00 -0800)
+
+- **ترتيب هدافي كأس أمم إفريقيا بعد هدفي إبراهيم دياز أيوب الكعبي أمام زامبيا**: [Link](https://www.btolat.com/news/389078)
+- **تنوع الأسماء يميز سباق الهدافين في نهائيات كأس إفريقيا**: [Link](https://kech24.com/%D8%AA%D9%86%D9%88%D8%B9-%D8%A7%D9%84%D8%A3%D8%B3%D9%85%D8%A7%D8%A1-%D9%8A%D9%85%D9%8A%D8%B2-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D9%87%D8%AF%D8%A7%D9%81%D9%8A%D9%86-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7.html)
+- **تشكيل الجولة الثانية المثالي من كأس أمم إفريقيا 2025 وفقًا لـ365Scores**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A-%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85/)
+
+
+### senegal vs benin (N/A, Tue, 30 Dec 2025 10:00:00 -0800)
+
+- **Senegal–Benin: ambition meets belief in decisive Group D clash**: [Link](https://www.cafonline.com/afcon2025/news/senegal-benin-ambition-meets-belief-in-decisive-group-d-clash/)
+- **Senegal vs Benin: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273396/senegal-vs-benin-when-and-how-to-watch-afcon-game/)
+- **Tuesday's Africa Cup of Nations predictions including Sadio Mane's Senegal vs. Benin**: [Link](https://www.sportsmole.co.uk/football/nigeria/africa-cup-of-nations/feature/manes-senegal-tussle-for-top-spot-tuesdays-afcon-predictions-and-previews_588698.html)
+
+
+### إلياس المالكي (N/A, Tue, 30 Dec 2025 10:00:00 -0800)
+
+- **الحكم على إلياس المالكي بـ 10 أشهر حبسا بسبب التحريض والتشهير**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%B9%D9%84%D9%89-%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%83%D9%8A-%D8%A8%D9%8010-%D8%A3%D8%B4%D9%87%D8%B1-%D8%AD%D8%A8%D8%B3%D8%A7-%D8%A8-1679360.html)
+- **إدانة اليوتوبر إلياس المالكي بالحبس 10 أشهر – اليوم 24**: [Link](https://alyaoum24.com/2001429.html)
+- **دفاع إلياس المالكي لـ”مدار21″: سيستفيد من عقوبة بديلة بعد الحكم النهائي**: [Link](https://madar21.com/396384.html)
+
+
+### al-ettifaq vs al-nassr (N/A, Tue, 30 Dec 2025 09:50:00 -0800)
+
+- **Preview: Al Ettifaq vs Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittifaq/preview/al-ettifaq-vs-al-nassr-prediction-team-news-lineups_588650.html)
+- **Al Ettifaq vs Al Nassr: Confirmed teams as Cristiano Ronaldo plays final game of 2025**: [Link](https://www.101greatgoals.com/football/al-ettifaq-vs-al-nassr-confirmed-teams-cristiano-ronaldo-2025/)
+- **How to watch Al Ittifaq vs Al Nassr in the USA: Live Stream and TV for 2025/2026 Saudi Pro League**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-al-ittifaq-vs-al-nassr-in-the-usa-live-stream-and-tv-for-2025-2026-saudi-pro-league/)
+
+
+### ترتيب مجموعات كاس افريقيا 2025 (N/A, Tue, 30 Dec 2025 09:50:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 30 ديسمبر 2025 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-30-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt55437da18fbd0710)
+- **الاثنين, 29 ديسمبر 2025**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2-2025-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D9%88%D8%A7%D8%AD%D8%AA%D8%AF%D8%A7%D9%85-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%86-%D8%B4%D8%B1-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-29-%D8%AF%D9%8A%D8%B3%D9%85%D8%A8%D8%B1-2025/)
+- **بنين ضد السنغال.. مواعيد مباريات اليوم في كأس الأمم الأفريقية والقنوات الناقلة**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2025/12/30/2916523/%D8%A8%D9%86%D9%8A%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-)
+
+
+### tanzania (N/A, Tue, 30 Dec 2025 09:50:00 -0800)
+
+- **New game reserves set to reshape rural life in Tanzania**: [Link](https://www.dw.com/en/new-game-reserves-set-to-reshape-rural-life-in-northern-tanzania/a-75332409)
+- **Afcon 2025: Tanzania 1-1 Tunisia: Both sides reach last 16 after draw**: [Link](https://www.bbc.com/sport/football/live/cgexlg4582nt)
+- **Tanzania vs. Tunisia 2025 livestream: Watch Africa Cup of Nations for free**: [Link](https://mashable.com/article/tanzania-tunisia-africa-cup-of-nations-2025-live-stream-for-free)
+
+
 ### الاتفاق ضد النصر (N/A, Tue, 30 Dec 2025 09:40:00 -0800)
 
 - **رونالدو وفيليكس يقودان تشكيل النصر أمام الاتفاق في دوري روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D9%81%D9%8A%D9%84%D9%8A%D9%83%D8%B3-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86/blt90c4a0f3eb57e829)
