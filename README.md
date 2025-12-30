@@ -1,3 +1,29 @@
+### premier league (N/A, Tue, 30 Dec 2025 13:00:00 -0800)
+
+- **'It's a mystery' - why Premier League teams haven't played every club yet**: [Link](https://www.bbc.com/sport/football/articles/c80x0zrmmk2o)
+- **Premier League reached out to Aston Villa ahead of fixture schedule complaints**: [Link](https://www.independent.co.uk/sport/football/premier-league-aston-villa-fixtures-row-b2892084.html)
+- **Aston Villa criticise Premier League over two trips to London in 75 hours**: [Link](https://www.thetimes.com/sport/football/article/aston-villa-hit-out-at-premier-league-over-mystery-fixture-scheduling-nfbl0lkb0)
+
+
+### match congo (N/A, Tue, 30 Dec 2025 12:50:00 -0800)
+
+- **Récap’ CAN - 27 décembre : tensions, réponses et espoirs relancés**: [Link](https://medias24.com/2025/12/28/recap-can-27-decembre-tensions-reponses-et-espoirs-relances-1603528/)
+- **TotalEnergies CAF Coupe d'Afrique des Nations Maroc 2025 : Yohan Roche offre au Bénin sa première victoire en CAN, match nul entre le Sénégal et la RD Congo, statu quo dans le derby est-africain**: [Link](https://www.cafonline.com/fr/can2025/infos/totalenergies-caf-coupe-dafrique-des-nations-maroc-2025-yohan-roche-offre-au-benin-sa-premiere-victoire-en-can-match-nul-entre-le-senegal-et-la-rd-congo-statu-quo-dans-le-derby-est-africain/)
+- **L’Ouganda et la Tanzanie préparent déjà une CAN 2027 spectaculaire**: [Link](https://www.footmercato.net/a1698378388675761658-louganda-et-la-tanzanie-preparent-deja-une-can-2027-spectaculaire)
+
+
+### rdc (N/A, Tue, 30 Dec 2025 12:50:00 -0800)
+
+- **Kkampeyini za kyagulanyi: RDC w’e Lwengo aliko obukwakkulizo bwatereddewo Kyagulanyi**: [Link](https://ntv.co.ug/news/kkampeyini-za-kyagulanyi-rdc-we-lwengo-aliko-obukwakkulizo-bwatereddewo-kyagulanyi)
+
+
+### congo foot (N/A, Tue, 30 Dec 2025 12:10:00 -0800)
+
+- **DIRECT. Botswana-RD Congo: les Léopards lancés à l'assaut de la première place du groupe D**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-botswana-rd-congo-suivez-le-match-du-groupe-d-de-la-can-2025-en-live_LS-202512300450.html)
+- **CAN 2025: Maitre Gims présent au stade El Medina pour le match RDC-Botswana**: [Link](https://sport.le360.ma/football/can/can-2025-maitre-gims-present-au-stade-el-medina-pour-le-match-rdc-botswana_PXDSOZJIUJGANFAAZE3AJD6ET4/)
+- **CAN 2025 : la RDC peut-elle être davantage qu’un outsider ?**: [Link](https://www.jeuneafrique.com/1753132/societe/can-2025-la-rdc-peut-elle-etre-davantage-quun-outsider/)
+
+
 ### rdc vs (N/A, Tue, 30 Dec 2025 12:40:00 -0800)
 
 - **CAN 2025: le Sénégal et la RDC veulent la tête du groupe, le Bénin, la qualification**: [Link](https://www.rfi.fr/fr/afrique-foot/20251230-can-2025-le-s%C3%A9n%C3%A9gal-et-la-rdc-veulent-la-t%C3%AAte-du-groupe-le-b%C3%A9nin-la-qualification)
