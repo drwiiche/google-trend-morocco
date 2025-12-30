@@ -1,3 +1,31 @@
+### new year's eve (N/A, Tue, 30 Dec 2025 15:20:00 -0800)
+
+- **Which fast food chains are open on New Year's Day 2026?**: [Link](https://www.marca.com/en/lifestyle/us-news/personal-finance/2025/12/30/69545025268e3e70498b458c.html)
+- **What restaurants are open New Year's Eve? Chipotle, Cava, Wendy's**: [Link](https://www.usatoday.com/story/money/food/2025/12/30/restaurants-open-new-years-eve-2025/87943769007/)
+- **LIST: Which restaurants are open for New Year’s Eve, Day?**: [Link](https://www.kxan.com/nyecoasttocoast/list-which-restaurants-are-open-for-new-years-eve-day/)
+
+
+### ليلة رأس السنة (N/A, Tue, 30 Dec 2025 15:20:00 -0800)
+
+- **منخفض جوي جديد.. الأرصاد تحذر من أمطار وسيول**: [Link](https://www.masrawy.com/news/news_egypt/details/2025/12/29/2916285/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B3%D9%8A%D9%88%D9%84)
+- **طقس ليلة رأس السنة 2026.. خريطة سقوط الأمطار والظواهر الجوية في مصر | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2025-12-30/%D8%B7%D9%82%D8%B3-%D9%84%D9%8A%D9%84%D8%A9-%D8%B1%D8%A3%D8%B3-%D8%A7%D9%84%D8%B3%D9%86%D8%A9-2026-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D8%B8%D9%88%D8%A7%D9%87%D8%B1-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-6243791/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
+- **أمطارر على هذه الأماكن.. بيان مهم من الأرصاد يكشف حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/4163922)
+
+
+### réveillon du nouvel an (N/A, Tue, 30 Dec 2025 15:10:00 -0800)
+
+- **Carburant au détail, alcool à emporter, lâcher de lanternes... Ce qui est interdit le soir du réveillon à La Réunion**: [Link](https://la1ere.franceinfo.fr/reunion/carburant-au-detail-alcool-a-emporter-lacher-de-lanternes-ce-qui-est-interdit-le-soir-du-reveillon-a-la-reunion-1657172.html)
+- **Réveillon du Nouvel An : pétards, feux d'artifices et déchets… le lagon et les poissons n'aiment pas ça**: [Link](https://imazpress.com/selection-de-la-redaction/nouvel-an-petards-feux-d-artifices-et-dechets-tres-peu-pour-le-lagon-et-les-poissons)
+- **Saint-André : opération de prévention anti hold-up en période de fêtes**: [Link](https://freedom.fr/saint-andre-operation-de-prevention-anti-hold-up-en-periode-de-fetes/)
+
+
+### congo match (N/A, Tue, 30 Dec 2025 12:50:00 -0800)
+
+- **Ouganda 1-3 Nigeria, CAN : résumé du match (30/12/2025)**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/ouganda-nigeria-live/670764)
+- **LeBron James : « Je me bats contre le temps et je suis en train de lui botter les fesses »**: [Link](https://www.basketusa.com/news/800757/lebron-james-je-me-bats-contre-le-temps-et-je-suis-en-train-de-lui-botter-les-fesses/)
+- **Les Lakers à la relance**: [Link](https://www.sports.fr/nba/les-lakers-a-la-relance-2-977921.html)
+
+
 ### aston villa (N/A, Tue, 30 Dec 2025 14:20:00 -0800)
 
 - **Premier League: Reaction as leaders Arsenal beat Aston Villa, Man Utd held by Wolves**: [Link](https://www.bbc.com/sport/football/live/cx2nz71d72jt)
