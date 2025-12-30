@@ -1,3 +1,17 @@
+### aston villa (N/A, Tue, 30 Dec 2025 14:20:00 -0800)
+
+- **Premier League: Reaction as leaders Arsenal beat Aston Villa, Man Utd held by Wolves**: [Link](https://www.bbc.com/sport/football/live/cx2nz71d72jt)
+- **Semenyo starts with Man City move imminent, Rice injured for Villa clash**: [Link](https://talksport.com/football/3797714/premier-league-live-arsenal-liverpool-man-united-man-city-tottenham-chelsea/page/28/)
+- **Premier League LIVE: Commentary, scores, results & updates including Chelsea vs Bournemouth**: [Link](https://www.bbc.com/sport/football/live/cx2nz71d72jt?page=2)
+
+
+### manchester united (N/A, Tue, 30 Dec 2025 14:10:00 -0800)
+
+- **Manchester United 1-1 Wolves: Premier League – live**: [Link](https://www.theguardian.com/football/live/2025/dec/30/chelsea-v-bournemouth-manchester-united-v-wolves-and-more-premier-league-live)
+- **Premier League live updates: Villa-Arsenal scoreless at halftime**: [Link](https://www.espn.com/soccer/story/_/id/47439115/premier-league-live-updates-chelsea-bournemouth-aston-villa-arsenal-man-united-wolverhampton-wanderers)
+- **Premier League LIVE: Commentary, scores, results & updates including Chelsea vs Bournemouth**: [Link](https://www.bbc.co.uk/sport/football/live/cx2nz71d72jt?page=2)
+
+
 ### africa cup of nations games (N/A, Tue, 30 Dec 2025 13:10:00 -0800)
 
 - **AFCON 2025: These teams have qualified for the Round of 16**: [Link](https://www.olympics.com/en/news/afcon-2025-teams-qualified-round-16)
