@@ -1,3 +1,10 @@
+### copa africana de naciones (N/A, Mon, 29 Dec 2025 12:50:00 -0800)
+
+- **Informe desde Rabat: Argelia vence a Burkina Faso y clasifica a octavos de final**: [Link](https://www.france24.com/es/video/20251228-informe-desde-rabat-argelia-vence-a-burkina-faso-y-clasifica-a-octavos-de-final)
+- **Atento Scaloni: un rival de la Selección en el Mundial 2026 ya está en octavos de la Copa de África**: [Link](https://tn.com.ar/deportes/futbol/2025/12/29/atento-scaloni-un-rival-de-la-seleccion-argentina-en-el-mundial-2026-ya-esta-en-octavos-de-la-copa-de-africa/)
+- **Atenta la Selección Argentina: victoria clave de un rival directo en el Mundial 2026**: [Link](https://www.eldestapeweb.com/deportes/seleccion-argentina/atenta-la-seleccion-argentina-victoria-clave-de-un-rival-directo-en-el-mundial-2026-2025122819546)
+
+
 ### caf 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
 
 - **AFCON 2025: Final group games begin as knockout race tightens in Morocco**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-final-group-games-begin-as-knockout-race-tightens-in-morocco/)
