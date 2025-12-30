@@ -1,3 +1,31 @@
+### ouganda – nigeria (N/A, Tue, 30 Dec 2025 07:20:00 -0800)
+
+- **DIRECT. Ouganda-Nigeria (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/ouganda-nigeria-live/670764)
+- **L'Ouganda se bat pour sa survie à la CAN 2025, le Nigeria en redemande**: [Link](https://www.cafonline.com/fr/can2025/infos/louganda-se-bat-pour-sa-survie-a-la-can-2025-le-nigeria-en-redemande/)
+- **PRONOS PARIS RMC Le buteur du jour du 30 décembre – CAN**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-30-decembre-can_AN-202512290394.html)
+
+
+### tanzania vs tunisia (N/A, Tue, 30 Dec 2025 07:20:00 -0800)
+
+- **Tanzania and Tunisia face off in decisive Group C clash**: [Link](https://www.cafonline.com/afcon2025/news/tanzania-and-tunisia-face-off-in-decisive-group-c-clash/)
+- **Tunisia Coach Trabelsi Hints at Resignation Before Tanzania Clash: "If I feel the conditions are unsuitable, I will withdraw"**: [Link](https://m.elbotola.com/en/article/2025-12-29-18-37-94.html)
+- **Preview: Tanzania vs Tunisia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/tanzania/africa-cup-of-nations/preview/tanzania-vs-tunisia-prediction-team-news-lineups_588636.html)
+
+
+### تنزانيا ضد تونس (N/A, Tue, 30 Dec 2025 07:20:00 -0800)
+
+- **المنتخب التونسي يخوض مواجهة مصيرية أمام تنزانيا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A-%D9%8A%D8%AE%D9%88%D8%B6-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B5%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-2025-12-30)
+- **مدرب منتخب تونس يلوّح بالاستقالة**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AA%D9%88%D9%86%D8%B3-%D9%8A%D9%84%D9%88%D9%91%D8%AD-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-1678861.html)
+- **غاموندي: لإفريقيا الفضل فيما وصلت له**: [Link](https://www.hesport.com/%D8%BA%D8%A7%D9%85%D9%88%D9%86%D8%AF%D9%8A-%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%81%D8%B6%D9%84-%D9%81%D9%8A%D9%85%D8%A7-%D9%88%D8%B5%D9%84%D8%AA-%D9%84%D9%87-420201.html)
+
+
+### tanzanie – tunisie (N/A, Tue, 30 Dec 2025 07:10:00 -0800)
+
+- **CAN. La Tunisie éliminée ce mardi après le match contre la Tanzanie si…**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-la-tunisie-eliminee-ce-mardi-apres-le-match-contre-la-tanzanie-si-13bd12e4-e4bb-11f0-a9bd-152366d1babb)
+- **CAN 2025 : Le sélectionneur tunisien ouvre la porte à un départ après les critiques**: [Link](https://fr.hespress.com/456228-can-2025-le-selectionneur-tunisien-ouvre-la-porte-a-un-depart-apres-les-critiques.html)
+- **Sami Trabelsi, sélectionneur de la Tunisie, menace de démissionner avant la Tanzanie : « Si je sens que les conditions ne sont pas propices, je me retirerai**: [Link](https://m.elbotola.com/fr/article/2025-12-29-18-37-288.html)
+
+
 ### les matchs de la can 2025 (N/A, Mon, 29 Dec 2025 13:20:00 -0800)
 
 - **Huitièmes de finale : Date et heure du prochain match du Maroc**: [Link](https://industries.ma/huitiemes-de-finale-date-et-heure-du-prochain-match-du-maroc/)
