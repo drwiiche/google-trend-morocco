@@ -1,3 +1,10 @@
+### programme can 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **Programme CAN 2025 : les matchs de ce mardi 30 décembre**: [Link](https://industries.ma/programme-can-2025-les-matchs-de-ce-mardi-30-decembre/)
+- **CAN. Le programme du mardi 30 décembre : la Tunisie vise la qualification**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-le-programme-du-mardi-30-decembre-la-tunisie-et-le-senegal-visent-la-qualification-6e15907c-e4bb-11f0-8a75-c20b0b6b178b)
+- **CAN 2025: le programme de ce mardi 30 décembre**: [Link](https://sport.le360.ma/football/can/can-2025-le-programme-de-ce-mardi-30-decembre-duel-sans-merci_EP2DDO5UZZGGZKBVY265WUWFCY/)
+
+
 ### cup d'afrique 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
 
 - **CAN. Quand aura lieu le huitième de finale du Maroc ?**: [Link](https://www.ouest-france.fr/sport/football/equipe-maroc/can-quand-aura-lieu-le-huitieme-de-finale-du-maroc-94098a00-e55a-11f0-91a5-1dde61cf54f7)
