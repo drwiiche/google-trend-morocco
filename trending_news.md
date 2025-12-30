@@ -1,3 +1,24 @@
+### أوغندا ضد نيجيريا (N/A, Tue, 30 Dec 2025 07:30:00 -0800)
+
+- **أوغندا تتحدى نيجيريا في ملعب فاس**: [Link](https://www.hespress.com/%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D8%AA%D8%AA%D8%AD%D8%AF%D9%89-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D9%85%D9%84%D8%B9%D8%A8-%D9%81%D8%A7%D8%B3-1679280.html)
+- **مدرب اوغندا يؤكد جاهزية فريقه لمواجهة نيجيريا الحاسمة**: [Link](https://www.elsport.com/news/show/805842/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%8A%D8%A4%D9%83%D8%AF-%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D9%81%D8%B1%D9%8A%D9%82%D9%87-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%AD%D8%A7)
+- **نيجيريا تواجه أوغندا.. وتونس تسعى للصعود أمام تنزانيا**: [Link](https://akhbarelyom.com/news/newdetails/4750034/1/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D8%AA%D8%B3%D8%B9%D9%89-%D9%84%D9%84%D8%B5%D8%B9%D9%88%D8%AF-%D8%A3)
+
+
+### uganda vs nigeria (N/A, Tue, 30 Dec 2025 07:30:00 -0800)
+
+- **Uganda Fight for TotalEnergies CAF AFCON 2025 survival, Nigeria hungry for more**: [Link](https://www.cafonline.com/afcon2025/news/uganda-fight-for-totalenergies-caf-afcon-2025-survival-nigeria-hungry-for-more/)
+- **AFCON 2025: Nigerian-Born Ikpeazu Aims to Help Uganda Beat Super Eagles**: [Link](https://www.okaynews.com/nigerian-born-ikpeazu-aims-to-help-uganda-beat-the-super-eagles/)
+- **Uganda v Nigeria: Africa Cup of Nations 2025 – live**: [Link](https://www.theguardian.com/football/live/2025/dec/30/uganda-v-nigeria-africa-cup-of-nations-2025-live)
+
+
+### prix gasoil maroc (N/A, Tue, 30 Dec 2025 07:30:00 -0800)
+
+- **Gasoil et essence : baisse des prix à partir du 30 décembre**: [Link](https://lematin.ma/economie/gasoil-et-essence-baisse-des-prix-a-partir-du-30-decembre/321775)
+- **Carburants: le gasoil sous les 10 dirhams pour la première fois depuis 2021**: [Link](https://fr.le360.ma/economie/carburants-le-gasoil-sous-les-10-dirhams-pour-la-premiere-fois-depuis-2021_QWUA2UM24RCZTPYUSJFHFFCUV4/)
+- **Carburant: baisse des prix à la pompe ce 30 décembre au Maroc**: [Link](https://h24info.ma/economie/carburant-baisse-des-prix-a-la-pompe-30-decembre/)
+
+
 ### ouganda – nigeria (N/A, Tue, 30 Dec 2025 07:20:00 -0800)
 
 - **DIRECT. Ouganda-Nigeria (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/ouganda-nigeria-live/670764)
