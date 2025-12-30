@@ -1,3 +1,17 @@
+### جدول مباريات كاس افريقيا (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **جدول مباريات دور الـ 16 من كأس أمم إفريقيا 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/bltb5e84d717f9a498b)
+- **قبل جولة الحسم.. هذا موقف مجموعات أمم إفريقيا**: [Link](https://www.skynewsarabia.com/sport/1842954-%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85-%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D9%82%D9%81-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **كان 2025: الفراعنة وأسود الأطلس في وضع مريح قبل الجولة الأخيرة من دور المجموعات**: [Link](https://www.mc-doualiya.com/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20251229-%D9%83%D8%A7%D9%86-2025-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D9%88%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%81%D9%8A-%D9%88%D8%B6%D8%B9-%D9%85%D8%B1%D9%8A%D8%AD-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA)
+
+
+### statistiques de coupe d'afrique des nations de football (N/A, Mon, 29 Dec 2025 12:50:00 -0800)
+
+- **Afcon 2025: Algeria 1-0 Burkina Faso - Mahrez penalty seals progress**: [Link](https://www.bbc.com/sport/football/live/c0l9rz88p57t)
+- **Algeria through, Sudan surprise, Mozambique make history**: [Link](https://www.cafonline.com/afcon2025/news/algeria-through-sudan-surprise-mozambique-make-history/)
+- **Ait-Nouri’s Algeria through to last-16 at AFCON following Burkina Faso win**: [Link](https://www.mancity.com/news/mens/rayan-ait-nouri-algeria-burkina-faso-afcon-round-up-63902547)
+
+
 ### copa africana de naciones (N/A, Mon, 29 Dec 2025 12:50:00 -0800)
 
 - **Informe desde Rabat: Argelia vence a Burkina Faso y clasifica a octavos de final**: [Link](https://www.france24.com/es/video/20251228-informe-desde-rabat-argelia-vence-a-burkina-faso-y-clasifica-a-octavos-de-final)
