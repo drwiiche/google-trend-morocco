@@ -1,3 +1,10 @@
+### cup d'afrique 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **CAN. Quand aura lieu le huitième de finale du Maroc ?**: [Link](https://www.ouest-france.fr/sport/football/equipe-maroc/can-quand-aura-lieu-le-huitieme-de-finale-du-maroc-94098a00-e55a-11f0-91a5-1dde61cf54f7)
+- **Walid Regragui après Maroc-Mali : “Le record valait mieux qu’il s’arrête aujourd’hui. On repart pour gagner, plus forts et unis”**: [Link](https://mobile.telquel.ma/2025/12/27/walid-regragui-apres-maroc-mali-le-record-valait-mieux-quil-sarrete-aujourdhui-on-repart-pour-gagner-plus-forts-et-unis_1967695)
+- **Retour sur le match Maroc-Mali à ILOLI, au cœur d’une programmation CAN élargie**: [Link](https://fr.le360.ma/lifestyle/retour-sur-le-match-maroc-mali-a-iloli-au-coeur-dune-programmation-can-elargie_P7WSA6HBNJG75EA4QG3C7CZTA4/)
+
+
 ### zoo ain sebaa (N/A, Tue, 30 Dec 2025 01:00:00 -0800)
 
 - **Le zoo de Aïn Sebaâ rouvre ses portes à Casablanca : tarifs, horaires et activités proposées**: [Link](https://lematin.ma/regions/ouverture-officielle-du-zoo-de-ain-sebaa-a-casablanca/321720)
