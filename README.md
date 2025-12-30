@@ -1,3 +1,17 @@
+### rdc vs botswana (N/A, Tue, 30 Dec 2025 12:20:00 -0800)
+
+- **DIRECT. Botswana-RD Congo: Kakuta signe déjà le break pour les Léopards**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-botswana-rd-congo-suivez-le-match-du-groupe-d-de-la-can-2025-en-live_LS-202512300450.html)
+- **CAN 2025 : la RDC peut-elle être davantage qu’un outsider ?**: [Link](https://www.jeuneafrique.com/1753132/societe/can-2025-la-rdc-peut-elle-etre-davantage-quun-outsider/)
+- **LIVE - Suivez le match Bénin-Sénégal en direct**: [Link](https://www.football.fr/can/live-suivez-le-match-benin-senegal-en-direct-792232.html)
+
+
+### مان يونايتد ضد وولفرهامبتون (N/A, Tue, 30 Dec 2025 12:10:00 -0800)
+
+- **15 لاعبا.. غيابات بالجملة تهدد يونايتد وولفرهامبتون في البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/15-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7--%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D8%AC%D9%85%D9%84%D8%A9-%D8%AA%D9%87%D8%AF%D8%AF-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/blt7b10d73f51e56a5b)
+- **موعد مباراة مانشستر يونايتد ووولفرهامبتون في الدوري الإنجليزي والقناة الناقلة**: [Link](https://sport.elwatannews.com/ar/1/2/1292187/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%88%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%88%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+- **كونيا يقود تشكيل مان يونايتد ضد وولفرهامبتون في الدوري الإنجليزي الممتاز**: [Link](https://www.almasryalyoum.com/news/details/4163858)
+
+
 ### nottm forest – everton (N/A, Tue, 30 Dec 2025 11:50:00 -0800)
 
 - **Nottingham Forest vs Everton: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cj01l961468t)
