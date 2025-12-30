@@ -1,3 +1,10 @@
+### تنزانيا (N/A, Tue, 30 Dec 2025 10:50:00 -0800)
+
+- **تعرف على منافس وموعد مباراة المغرب في ثمن نهائي أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%88%D8%A8%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF--%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltfc61105ccdbeee15)
+- **ما هي المنتخبات التي ستواجهها مصر والجزائر والمغرب في ثمن نهائي كأس الأمم الأفريقية؟**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20251230-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%85%D8%B5%D8%B1-%D8%AA%D9%88%D9%86%D8%B3-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9)
+- **المغرب يواجه تنزانيا في ثمن "الكان"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D8%A7%D9%84%D9%83%D8%A7%D9%86-1679511.html)
+
+
 ### west ham – brighton (N/A, Tue, 30 Dec 2025 11:00:00 -0800)
 
 - **Welbeck return isn't the only question ahead of West Ham trip**: [Link](https://www.theargus.co.uk/sport/25728420.brighton-team-options-west-ham-london-stadium/)
