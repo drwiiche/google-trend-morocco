@@ -1,3 +1,17 @@
+### رمضان صبحي (N/A, Tue, 30 Dec 2025 08:20:00 -0800)
+
+- **حبس رمضان صبحي نجم بيراميدز عاماً بسبب قضية تزوير**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%A8%D8%B3-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%B5%D8%A8%D8%AD%D9%8A-%D9%86%D8%AC%D9%85-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%B9%D8%A7%D9%85%D8%A7%D9%8B-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%82%D8%B6%D9%8A%D8%A9-%D8%AA%D8%B2%D9%88%D9%8A%D8%B1/bltbe55a48c726f48b8)
+- **مصر.. حبس رمضان صبحي سنة مع الشغل في قضية التزوير**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2025/12/30/%D8%AD%D8%A8%D8%B3-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%B5%D8%A8%D8%AD%D9%8A-%D8%B3%D9%86%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D8%B4%D8%BA%D9%84-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B2%D9%88%D9%8A%D8%B1)
+- **حبس لاعب بيراميدز في قضية تزوير**: [Link](https://www.hespress.com/%D8%AD%D8%A8%D8%B3-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%AA%D8%B2%D9%88%D9%8A%D8%B1-1679394.html)
+
+
+### tunisie vs tanzanie (N/A, Tue, 30 Dec 2025 07:50:00 -0800)
+
+- **DIRECT. Tanzanie-Tunisie : suivez le match décisif du groupe C dans la course aux 8es de finale**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/direct-tanzanie-tunisie-suivez-le-match-decisif-du-groupe-c-dans-la-course-aux-8es-de-finale-30-12-2025-ROXDQ3SMSZHCTJA6V6F27RMS7I.php)
+- **DIRECT. Tanzanie-Tunisie: sur penalty, Gharbi enlève une belle épine du pied des Tunisiens**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-tanzanie-tunisie-suivez-le-match-de-la-3e-journee-de-la-can-2025-en-live_LS-202512300408.html)
+- **CAN 2025 : Le sélectionneur tunisien ouvre la porte à un départ après les critiques**: [Link](https://fr.hespress.com/456228-can-2025-le-selectionneur-tunisien-ouvre-la-porte-a-un-depart-apres-les-critiques.html)
+
+
 ### donald trump (N/A, Tue, 30 Dec 2025 07:50:00 -0800)
 
 - **Trump’s Israel Prize nomination raises eligibility question**: [Link](https://www.jpost.com/israel-news/article-881750)
