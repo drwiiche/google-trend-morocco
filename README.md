@@ -1,3 +1,10 @@
+### africa cup of nations games (N/A, Tue, 30 Dec 2025 13:10:00 -0800)
+
+- **AFCON 2025: These teams have qualified for the Round of 16**: [Link](https://www.olympics.com/en/news/afcon-2025-teams-qualified-round-16)
+- **AFCON 2025: Final group games begin as knockout race tightens in Morocco**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-final-group-games-begin-as-knockout-race-tightens-in-morocco/)
+- **All 16 participants of AFCON's knockout phase confirmed but schedule not set**: [Link](https://www.flashscore.com/news/soccer-africa-cup-of-nations-all-16-participants-of-afcon-s-knockout-phase-confirmed-but-schedule-not-set/Mcq8Ko3b/)
+
+
 ### premier league (N/A, Tue, 30 Dec 2025 13:00:00 -0800)
 
 - **'It's a mystery' - why Premier League teams haven't played every club yet**: [Link](https://www.bbc.com/sport/football/articles/c80x0zrmmk2o)
