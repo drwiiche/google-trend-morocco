@@ -1,3 +1,22 @@
+### آرسنال ضد أستون فيلا (N/A, Tue, 30 Dec 2025 11:40:00 -0800)
+
+
+
+
+### تشيلسي ضد بورنموث (N/A, Tue, 30 Dec 2025 11:40:00 -0800)
+
+- **تشيلسي وبورنموث في مواجهة البحث عن الفوز الغائب بالدوري الإنجليزي**: [Link](https://www.arrajol.com/content/393928/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%BA%D8%A7%D8%A6%D8%A8-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+- **ماريسكا يتمسك بحلم دوري ابطال اوروبا**: [Link](https://www.elsport.com/news/show/805825/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%AD%D9%84%D9%85-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **تشيلسى يستضيف بورنموث لاستعادة الانتصارات فى الدورى الإنجليزى**: [Link](https://www.youm7.com/story/2025/12/30/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%89-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%89-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%89/7250751)
+
+
+### congo (N/A, Tue, 30 Dec 2025 11:40:00 -0800)
+
+- **UK restricts DR Congo visas over migrant return policy**: [Link](https://www.bbc.com/news/articles/c5y21xlxng2o)
+- **UK places visa sanctions on DR Congo over migrant returns**: [Link](https://www.ft.com/content/f6a57fad-fadc-4270-9bc3-77ca54ed28da)
+- **Labour imposes visa crackdown for country refusing deported migrants**: [Link](https://www.telegraph.co.uk/politics/2025/12/27/labour-imposes-visa-crackdown-refusing-deported-migrants/)
+
+
 ### arsenal – aston villa (N/A, Tue, 30 Dec 2025 11:30:00 -0800)
 
 - **Arsenal vs Aston Villa: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cdxewk0er1qt)
