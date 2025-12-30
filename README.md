@@ -1,3 +1,10 @@
+### donald trump (N/A, Tue, 30 Dec 2025 07:50:00 -0800)
+
+- **Trump’s Israel Prize nomination raises eligibility question**: [Link](https://www.jpost.com/israel-news/article-881750)
+- **Israeli Prime Minister Benjamin Netanyahu awards the “Israel Prize” to US President Donald Trump for his “tremendous contributions”.**: [Link](https://www.facebook.com/story.php?story_fbid=1311335481024047&id=100064428234085)
+- **Trump says ‘there’ll be hell to pay’ if Hamas does not disarm as he meets Netanyahu at Mar-a-Lago – as it happened**: [Link](https://www.theguardian.com/us-news/live/2025/dec/29/trump-netanyahu-israel-gaza-live?filterKeyEvents=false&page=with%3Ablock-6952cc998f089326d9f0ef90)
+
+
 ### أوغندا ضد نيجيريا (N/A, Tue, 30 Dec 2025 07:30:00 -0800)
 
 - **أوغندا تتحدى نيجيريا في ملعب فاس**: [Link](https://www.hespress.com/%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D8%AA%D8%AA%D8%AD%D8%AF%D9%89-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D9%85%D9%84%D8%B9%D8%A8-%D9%81%D8%A7%D8%B3-1679280.html)
