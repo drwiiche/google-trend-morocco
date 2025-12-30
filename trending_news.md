@@ -1,3 +1,10 @@
+### caf 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **AFCON 2025: Final group games begin as knockout race tightens in Morocco**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-final-group-games-begin-as-knockout-race-tightens-in-morocco/)
+- **2025 Africa Cup of Nations: A complete overview of the group stage**: [Link](https://www.africanews.com/2025/12/29/afcon-2025-cameroon-and-cote-divoire-draw-algeria-through//)
+- **CAN 2025 battle: Make your predictions, challenge the editors and win Google Play cards**: [Link](https://foot-africa.com/en/news/can-2025-battle-make-your-predictions-challenge-the-editors-and-win-google-play-cards-1021232/)
+
+
 ### dirham marocain (N/A, Mon, 29 Dec 2025 15:40:00 -0800)
 
 - **Marché des changes: Le dirham porté par l’amélioration de sa liquidité**: [Link](https://www.leconomiste.com/marche-des-changes-le-dirham-porte-par-lamelioration-de-sa-liquidite/)
