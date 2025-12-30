@@ -1,3 +1,10 @@
+### west ham – brighton (N/A, Tue, 30 Dec 2025 11:00:00 -0800)
+
+- **Welbeck return isn't the only question ahead of West Ham trip**: [Link](https://www.theargus.co.uk/sport/25728420.brighton-team-options-west-ham-london-stadium/)
+- **Nuno Espirito Santo says West Ham need to ‘rebalance’ squad in January transfer window**: [Link](https://www.nytimes.com/athletic/6924971/2025/12/29/nuno-west-ham-transfer-rebalance/)
+- **'A worry for Mr Sullivan' - Alan Pardew gives Nuno Espito Santo verdict and makes West Ham transfer prediction**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/west-ham-v-brighton-alan-pardew-gives-worrying-nuno-espito-santo-verdict-and-makes-january-transfer-prediction-5458999)
+
+
 ### burnley – newcastle (N/A, Tue, 30 Dec 2025 10:50:00 -0800)
 
 - **Eddie Howe's team news update: Botman, Trippier, Pope, Wissa and Alabi latest ahead of Burnley**: [Link](https://www.newcastleunited.com/en/news/eddie-howes-team-news-update-ahead-of-burnley)
