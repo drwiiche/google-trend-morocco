@@ -1,3 +1,17 @@
+### rdc vs (N/A, Tue, 30 Dec 2025 12:40:00 -0800)
+
+- **CAN 2025: le Sénégal et la RDC veulent la tête du groupe, le Bénin, la qualification**: [Link](https://www.rfi.fr/fr/afrique-foot/20251230-can-2025-le-s%C3%A9n%C3%A9gal-et-la-rdc-veulent-la-t%C3%AAte-du-groupe-le-b%C3%A9nin-la-qualification)
+- **CAN 2025 : à Tanger, pluie et ferveur pour un Sénégal-RDC au goût de phase finale**: [Link](https://mobile.telquel.ma/2025/12/28/can-2025-a-tanger-pluie-et-ferveur-pour-un-senegal-rdc-au-gout-de-phase-finale_1967733)
+- **CAN 2025: un Sénégal séduisant après deux matchs, mais plombé par ses occasions manquées**: [Link](https://afrique.le360.ma/sports/can-2025-un-senegal-seduisant-apres-deux-matchs-mais-plombe-par-ses-occasions-manquees_3RGZ5COMR5HFZCVM6KVMGC54AY/)
+
+
+### morocco vs tanzania (N/A, Tue, 30 Dec 2025 12:00:00 -0800)
+
+- **AFCON 2025: These teams have qualified for the Round of 16**: [Link](https://www.olympics.com/en/news/afcon-2025-teams-qualified-round-16)
+- **All 16 participants of AFCON's knockout phase confirmed but schedule not set**: [Link](https://www.flashscore.com/news/soccer-africa-cup-of-nations-all-16-participants-of-afcon-s-knockout-phase-confirmed-but-schedule-not-set/Mcq8Ko3b/)
+- **The Africa Cup of Nations already knows which teams have made it to the knockout stage**: [Link](https://www.thestar.com/sports/soccer/the-africa-cup-of-nations-already-knows-which-teams-have-made-it-to-the-knockout/article_ff083e60-a9a9-51d5-8c84-46f50df77583.html)
+
+
 ### rdc vs botswana (N/A, Tue, 30 Dec 2025 12:20:00 -0800)
 
 - **DIRECT. Botswana-RD Congo: Kakuta signe déjà le break pour les Léopards**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-botswana-rd-congo-suivez-le-match-du-groupe-d-de-la-can-2025-en-live_LS-202512300450.html)
