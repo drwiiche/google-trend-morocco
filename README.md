@@ -1,3 +1,24 @@
+### les groupes de la can 2025 (N/A, Mon, 29 Dec 2025 13:10:00 -0800)
+
+- **CAN 2025 : «On en a marre, réveillez-vous !», le message passionné de l’humoriste Hakim Jemili après la défaite de la Tunisie**: [Link](https://www.lefigaro.fr/sports/football/can-2025-on-en-a-marre-reveillez-vous-le-message-passionne-de-l-humoriste-hakim-jemili-apres-la-defaite-de-la-tunisie-20251228)
+- **CAN. Le programme du mardi 30 décembre : la Tunisie et le Sénégal visent la qualification**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-le-programme-du-mardi-30-decembre-la-tunisie-et-le-senegal-visent-la-qualification-6e15907c-e4bb-11f0-8a75-c20b0b6b178b)
+- **Contre le Nigeria, ''nous avons tardé à rentrer dans le match’’, déplore le sélectionneur de la Tunisie**: [Link](https://2m.ma/fr/news/Contre-le-Nigeria-nous-avons-tard%C3%A9-%C3%A0-rentrer-dans-le-match-d%C3%A9plore-20251228)
+
+
+### match can (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **CAN. La Tunisie éliminée ce mardi après le match contre la Tanzanie si…**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-la-tunisie-eliminee-ce-mardi-apres-le-match-contre-la-tanzanie-si-13bd12e4-e4bb-11f0-a9bd-152366d1babb)
+- **Le Grand Jeu de la CAN : Pronostics des matchs du 30 décembre (J9) ⬇️**: [Link](https://www.beinsports.com/fr-fr/football/2025-coupe-d-afrique-des-nations/articles/le-grand-jeu-de-la-can-pronostics-des-matchs-du-30-d%C3%A9cembre-j9-2025-12-29)
+- **CAN 2025 : Le sélectionneur tunisien ouvre la porte à un départ après les critiques**: [Link](https://fr.hespress.com/456228-can-2025-le-selectionneur-tunisien-ouvre-la-porte-a-un-depart-apres-les-critiques.html)
+
+
+### ايوب الكعبي (N/A, Mon, 29 Dec 2025 12:40:00 -0800)
+
+- **ترتيب هدافي كأس أمم إفريقيا بعد هدفي إبراهيم دياز أيوب الكعبي أمام زامبيا**: [Link](https://www.btolat.com/news/389078)
+- **على رأسهم مرموش وثلاثي اليونايتد.. نجوم البريميرليج يتوهجون في الجولة الأولى من أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D9%94%D8%B3%D9%87%D9%85-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%88%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF--%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D9%8A%D8%AA%D8%A7%D9%94%D9%84%D9%82%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%89-%D9%85%D9%86-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blte79035d0032a2df7)
+- **تنوع الأسماء يميز سباق الهدافين في نهائيات كأس إفريقيا**: [Link](https://kech24.com/%D8%AA%D9%86%D9%88%D8%B9-%D8%A7%D9%84%D8%A3%D8%B3%D9%85%D8%A7%D8%A1-%D9%8A%D9%85%D9%8A%D8%B2-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D9%87%D8%AF%D8%A7%D9%81%D9%8A%D9%86-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7.html)
+
+
 ### radio mars (N/A, Mon, 29 Dec 2025 23:20:00 -0800)
 
 - **مشاركة نجوم بقيمة حكيمي تمنح إشعاعاً إضافياً لأمم إفريقياً**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%86%D8%AC%D9%88%D9%85-%D8%A8%D9%82%D9%8A%D9%85%D8%A9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%AA%D9%85%D9%86%D8%AD-%D8%A5%D8%B4%D8%B9%D8%A7%D8%B9%D8%A7-%D8%A5%D8%B6%D8%A7%D9%81%D9%8A%D8%A7-%D9%84%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-12-29)
