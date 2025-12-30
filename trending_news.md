@@ -1,3 +1,17 @@
+### zoo ain sebaa (N/A, Tue, 30 Dec 2025 01:00:00 -0800)
+
+- **Le zoo de Aïn Sebaâ rouvre ses portes à Casablanca : tarifs, horaires et activités proposées**: [Link](https://lematin.ma/regions/ouverture-officielle-du-zoo-de-ain-sebaa-a-casablanca/321720)
+- **Casablanca : Le Parc Zoologique d’Aïn Sebâa rouvre ses portes**: [Link](https://www.leconomiste.com/video/casablanca-le-parc-zoologique-dain-sebaa-rouvre-ses-portes/)
+- **[Reportage] À Casablanca, le zoo d’Aïn Sebaa renaît de ses cendres**: [Link](https://mobile.telquel.ma/2025/12/30/reportage-a-casablanca-le-zoo-dain-sebaa-renait-de-ses-cendres_1968162)
+
+
+### groupes can 2025 (N/A, Mon, 29 Dec 2025 13:30:00 -0800)
+
+- **Programme CAN 2025 : les matchs de ce mardi 30 décembre**: [Link](https://industries.ma/programme-can-2025-les-matchs-de-ce-mardi-30-decembre/)
+- **CAN. Le programme du mardi 30 décembre : la Tunisie vise la qualification**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-le-programme-du-mardi-30-decembre-la-tunisie-et-le-senegal-visent-la-qualification-6e15907c-e4bb-11f0-8a75-c20b0b6b178b)
+- **Contre le Nigeria, ''nous avons tardé à rentrer dans le match’’, déplore le sélectionneur de la Tunisie**: [Link](https://2m.ma/fr/news/Contre-le-Nigeria-nous-avons-tard%C3%A9-%C3%A0-rentrer-dans-le-match-d%C3%A9plore-20251228)
+
+
 ### samsung (N/A, Tue, 30 Dec 2025 01:30:00 -0800)
 
 - **US approves Samsung, SK Hynix chipmaking tool shipments to China for 2026, sources say**: [Link](https://www.reuters.com/world/china/samsung-wins-us-annual-approval-chipmaking-tool-shipments-china-source-says-2025-12-30/)
