@@ -1,3 +1,10 @@
+### nottm forest – everton (N/A, Tue, 30 Dec 2025 11:50:00 -0800)
+
+- **Nottingham Forest vs Everton: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cj01l961468t)
+- **On Demand: Moyes' Pre-Forest Press Conference**: [Link](https://www.evertonfc.com/news/2025/december/28/on-demand--moyes--pre-forest-press/)
+- **David Moyes admits 'if I had my way' Jack Grealish wouldn't be in squad for Everton clash with Nottingham Forest**: [Link](https://www.thesun.co.uk/sport/37770612/jack-grealish-strip-club-party-david-moyes-everton-news/)
+
+
 ### آرسنال ضد أستون فيلا (N/A, Tue, 30 Dec 2025 11:40:00 -0800)
 
 
