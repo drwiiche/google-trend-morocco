@@ -1,3 +1,31 @@
+### arsenal – aston villa (N/A, Tue, 30 Dec 2025 11:30:00 -0800)
+
+- **Arsenal vs Aston Villa: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cdxewk0er1qt)
+- **Arteta relishing "beautiful game" against Villa | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-relishing-beautiful-game-against-villa)
+- **Odegaard says Arsenal could have won the first Villa game**: [Link](https://onefootball.com/pt-br/noticias/odegaard-says-arsenal-could-have-won-the-first-villa-game-42161268)
+
+
+### manchester united – wolves (N/A, Tue, 30 Dec 2025 11:30:00 -0800)
+
+- **Amorim's team news for United v Wolves**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-wolves-in-premier-league-30-dec-2025)
+- **Exclusive: Mason Mount blow for Manchester United vs Wolverhampton Wanderers**: [Link](https://centredevils.co.uk/news/exclusive-mason-mount-blow-for-manchester-united-vs-wolverhampton-wanderers/)
+- **Bruno Fernandes injury latest as Man Utd vs Wolves decision made amid FPL deadline**: [Link](https://www.mirror.co.uk/sport/bruno-fernandes-man-utd-injury-36473473)
+
+
+### congo vs (N/A, Tue, 30 Dec 2025 11:30:00 -0800)
+
+- **CAN 2025: le Sénégal et la RDC veulent la tête du groupe, le Bénin, la qualification**: [Link](https://www.rfi.fr/fr/afrique-foot/20251230-can-2025-le-s%C3%A9n%C3%A9gal-et-la-rdc-veulent-la-t%C3%AAte-du-groupe-le-b%C3%A9nin-la-qualification)
+- **CAN TotalEnergies Maroc 2025 : le Bénin a signé sa première victoire, le Sénégal et la RD Congo se sont neutralisés**: [Link](https://www.cafonline.com/fr/can2025/infos/can-totalenergies-maroc-2025-le-benin-a-signe-sa-premiere-victoire-le-senegal-et-la-rd-congo-se-sont-neutralises/)
+- **CAN 2025 : à Tanger, pluie et ferveur pour un Sénégal-RDC au goût de phase finale**: [Link](https://mobile.telquel.ma/2025/12/28/can-2025-a-tanger-pluie-et-ferveur-pour-un-senegal-rdc-au-gout-de-phase-finale_1967733)
+
+
+### botswana – rd congo (N/A, Tue, 30 Dec 2025 10:30:00 -0800)
+
+- **AFCON Preview - DR Congo eye last-16 place against winless Botswana - 2025 Africa Cup of Nations - Botswana**: [Link](https://africanfootball.com/news/835012/AFCON-Preview-DR-Congo-eye-last-16-place-against-winless-Botswana)
+- **News | DR Congo coach confirms AFCON injury for Sunderland defender Arthur Masuaku**: [Link](https://vodacomsoccer.com/news/dr-congo-coach-confirms-afcon-injury-for-sunderland-defender-arthur-masuaku)
+- **CAN 2025: Official line-ups for Botswana vs DR Congo**: [Link](https://foot-africa.com/en/news/can-2025-official-line-ups-for-botswana-vs-dr-congo-1023440/)
+
+
 ### تنزانيا (N/A, Tue, 30 Dec 2025 10:50:00 -0800)
 
 - **تعرف على منافس وموعد مباراة المغرب في ثمن نهائي أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%88%D8%A8%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF--%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltfc61105ccdbeee15)
