@@ -1,3 +1,10 @@
+### الاتفاق ضد النصر (N/A, Tue, 30 Dec 2025 09:40:00 -0800)
+
+- **رونالدو وفيليكس يقودان تشكيل النصر أمام الاتفاق في دوري روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D9%81%D9%8A%D9%84%D9%8A%D9%83%D8%B3-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86/blt90c4a0f3eb57e829)
+- **مباشر مباراة النصر ضد الاتفاق (0-0) في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/30/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9)
+- **لا تغييرات في تشكيلة النصر أمام الاتفاق**: [Link](https://www.al-jazirah.com/2025/20251230/sp6.htm)
+
+
 ### nigeria foot (N/A, Tue, 30 Dec 2025 08:40:00 -0800)
 
 - **Nigeria reach knock-out stage, Roche hands Benin first ever AFCON win, Senegal and DR Congo draw, stalemate in East African derby**: [Link](https://www.cafonline.com/afcon2025/news/nigeria-reach-knock-out-stage-roche-hands-benin-first-ever-afcon-win-senegal-and-dr-congo-draw-stalemate-in-east-african-derby/)
