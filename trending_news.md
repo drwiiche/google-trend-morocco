@@ -1,3 +1,24 @@
+### samsung (N/A, Tue, 30 Dec 2025 01:30:00 -0800)
+
+- **US approves Samsung, SK Hynix chipmaking tool shipments to China for 2026, sources say**: [Link](https://www.reuters.com/world/china/samsung-wins-us-annual-approval-chipmaking-tool-shipments-china-source-says-2025-12-30/)
+- **Samsung wins US annual approval on chipmaking tool shipments to China, source says By Reuters**: [Link](https://www.investing.com/news/stock-market-news/samsung-wins-us-annual-approval-on-chipmaking-tool-shipments-to-china-source-says-4424875)
+- **[News] Samsung, SK hynix Escape Worst-Case as China VEU Ends: Annual Review Risks Loom**: [Link](https://www.trendforce.com/news/2025/12/30/news-samsung-sk-hynix-escape-worst-case-as-china-veu-ends-annual-review-risks-loom/)
+
+
+### copa africa (N/A, Mon, 29 Dec 2025 13:10:00 -0800)
+
+- **Tanzania and Tunisia face off in decisive Group C clash**: [Link](https://www.cafonline.com/afcon2025/news/tanzania-and-tunisia-face-off-in-decisive-group-c-clash/)
+- **Preview: Tanzania vs Tunisia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/tanzania/africa-cup-of-nations/preview/tanzania-vs-tunisia-prediction-team-news-lineups_588636.html)
+- **AFCON 2025: Probable lineups, TV channels and head-to-head history of Tunisia vs Tanzania**: [Link](https://foot-africa.com/en/news/afcon-2025-probable-lineups-tv-channels-and-head-to-head-history-of-tunisia-vs-tanzania-1022705/)
+
+
+### caf (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **TECNO and CAF Elevate 'DreamOnTheField' to New Heights with "Future Star of Africa" Youth Sponsorship Initiative**: [Link](https://techeconomy.ng/tecno-and-caf-elevate-dreamonthefield/)
+- **TECNO and Confederation of African Football (CAF) Elevate Dream On The Field to New Heights with "Future Star of Africa" Youth Sponsorship Initiative**: [Link](https://www.zawya.com/en/press-release/africa-press-releases/tecno-and-confederation-of-african-football-caf-elevate-dream-on-the-field-to-new-heights-with-future-star-of-blvgeff8)
+- **Achraf Hakimi returns as Morocco seal AFCON knockouts**: [Link](https://www.espn.com/espn/story/_/id/47446867/achraf-hakimi-returns-morocco-afcon-knockouts)
+
+
 ### كاس افريقيا 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
 
 - **مدرب منتخب تونس يلوّح بالاستقالة**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AA%D9%88%D9%86%D8%B3-%D9%8A%D9%84%D9%88%D9%91%D8%AD-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-1678861.html)
