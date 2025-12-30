@@ -1,3 +1,59 @@
+### chelsea – bournemouth (N/A, Tue, 30 Dec 2025 10:40:00 -0800)
+
+- **Enzo Maresca confirms Chelsea team news for Bournemouth | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-chelsea-team-news-bournemouth-december-2025)
+- **Chelsea boss drops worrying Reece James and Cole Palmer update**: [Link](https://theprideoflondon.com/chelsea-boss-reece-james-cole-palmer-update)
+- **Joao Pedro has given Enzo Maresca an easy decision to make for Chelsea vs Bournemouth**: [Link](https://www.thechelseachronicle.com/columnist/joao-pedro-has-given-enzo-maresca-an-easy-decision-to-make-for-chelsea-vs-bournemouth/)
+
+
+### ترتيب مجموعات كاس افريقيا (N/A, Tue, 30 Dec 2025 10:40:00 -0800)
+
+- **جدول مباريات دور الـ 16 من كأس أمم إفريقيا 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/bltb5e84d717f9a498b)
+- **رسميًا.. المنتخبات المتأهلة لثمن نهائي كأس أمم أفريقيا 2025**: [Link](https://www.almasryalyoum.com/news/details/4163821)
+- **أمم إفريقيا.. ملامح دور الـ16 تتشكل بتأهل 14 منتخبا**: [Link](https://www.skynewsarabia.com/sport/1843177-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%8016-%D8%AA%D8%AA%D8%B4%D9%83%D9%84-%D8%A8%D8%AA%D8%A7%D9%94%D9%87%D9%84-14-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7)
+
+
+### دور 16 كاس امم افريقيا 2025 (N/A, Tue, 30 Dec 2025 10:30:00 -0800)
+
+- **المغرب يواجه تنزانيا في ثمن "الكان"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D8%A7%D9%84%D9%83%D8%A7%D9%86-1679511.html)
+- **ما هي المنتخبات التي ستواجهها مصر والجزائر والمغرب في ثمن نهائي كأس الأمم الأفريقية؟**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20251230-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%85%D8%B5%D8%B1-%D8%AA%D9%88%D9%86%D8%B3-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9)
+- **تعرف على منافس وموعد مباراة المغرب في ثمن نهائي أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%88%D8%A8%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF--%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltfc61105ccdbeee15)
+
+
+### can match aujourd hui (N/A, Tue, 30 Dec 2025 10:30:00 -0800)
+
+- **TotalEnergies CAF CAN Maroc 2025 : Cameroun et Côte d’Ivoire dos à dos dans un choc haletant**: [Link](https://www.cafonline.com/fr/can2025/infos/totalenergies-caf-can-maroc-2025-cameroun-et-cote-d-ivoire-dos-a-dos-dans-un-choc-haletant/)
+- **CAN 2025. Éléphants et Lions dos à dos: les supporters ivoiriens gagnent en confiance**: [Link](https://afrique.le360.ma/sports/can-2025-elephants-et-lions-dos-a-dos-les-supporters-ivoiriens-gagnent-en-confiance_APUX47AXZNGI3MFW75JTCWSIRM/)
+- **CAN 2025: calendrier, résultats et classement du groupe F avec la Côte d'Ivoire et le Cameroun**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-calendrier-resultats-et-classement-du-groupe-f-avec-la-cote-d-ivoire-et-le-cameroun_AV-202512290242.html)
+
+
+### بنين ضد السنغال (N/A, Tue, 30 Dec 2025 10:20:00 -0800)
+
+- **مواجهتان مرتقبتان لتحديد المراكز في المجموعة الرابعة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%AA%D8%A7%D9%86-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%AA%D8%A7%D9%86-%D9%84%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B2-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-2025-12-30)
+- **السنغال تتطلع لضمان البقاء في طنجة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D8%AA%D8%B7%D9%84%D8%B9-%D9%84%D8%B6%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%A8%D9%82%D8%A7%D8%A1-%D9%81%D9%8A-%D8%B7%D9%86%D8%AC%D8%A9-1678848.html)
+- **قائد بنين: سنلعب أمام السنغال بثقة**: [Link](https://www.hesport.com/%D9%82%D8%A7%D8%A6%D8%AF-%D8%A8%D9%86%D9%8A%D9%86-%D8%B3%D9%86%D9%84%D8%B9%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A8%D8%AB%D9%82%D8%A9-420211.html)
+
+
+### benin vs senegal (N/A, Tue, 30 Dec 2025 10:20:00 -0800)
+
+- **Senegal–Benin: ambition meets belief in decisive Group D clash**: [Link](https://www.cafonline.com/afcon2025/news/senegal-benin-ambition-meets-belief-in-decisive-group-d-clash/)
+- **Senegal vs Benin: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273396/senegal-vs-benin-when-and-how-to-watch-afcon-game/)
+- **Tuesday's Africa Cup of Nations predictions including Sadio Mane's Senegal vs. Benin**: [Link](https://www.sportsmole.co.uk/football/nigeria/africa-cup-of-nations/feature/manes-senegal-tussle-for-top-spot-tuesdays-afcon-predictions-and-previews_588698.html)
+
+
+### cup africa (N/A, Tue, 30 Dec 2025 10:20:00 -0800)
+
+- **Live! Zambia vs Morocco a the AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/live-zambia-vs-morocco-a-the-afcon-2025-on-bein-sports-2025-12-29)
+- **Afcon roundup: El Kaabi gets on his bike again as Morocco storm into last 16**: [Link](https://www.theguardian.com/football/2025/dec/29/africa-cup-of-nations-morocco-zambia-mali-comoros-south-africa-zimbabwe-egypt)
+- **Hakimi Expresses Delight to Return as Morocco Win Over Zambia**: [Link](https://www.moroccoworldnews.com/2025/12/273365/hakimi-expresses-delight-to-return-as-morocco-win-over-zambia/)
+
+
+### can 2025 (N/A, Tue, 30 Dec 2025 10:00:00 -0800)
+
+- **MATCH STATS: Sudan vs Burkina Faso – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Group E**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-sudan-vs-burkina-faso-totalenergies-caf-africa-cup-of-nations-morocco-2025-group-e/)
+- **AFCON Preview - Falcons of Jediane and Stallions vying for second place - 2025 Africa Cup of Nations - Burkina Faso**: [Link](https://africanfootball.com/news/835138/AFCON-Preview-Falcons-of-Jediane-and-Stallions-vying-for-second-place)
+- **How and Where to Watch Sudan vs Burkina Faso at AFCON 2025 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/how-and-where-to-watch-sudan-vs-burkina-faso-at-afcon-2025-on-bein-sports-2025-12-30)
+
+
 ### afcon (N/A, Tue, 30 Dec 2025 10:10:00 -0800)
 
 - **AFCON 2025 Fuels Optimism in Morocco, Survey Shows**: [Link](https://www.moroccoworldnews.com/2025/12/273381/afcon-2025-fuels-optimism-in-morocco-survey-shows/)
