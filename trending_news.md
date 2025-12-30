@@ -1,3 +1,10 @@
+### مباريات كأس أفريقيا 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **تعرف على المنتخبات المتأهلة رسميا إلى الدور الثاني من كأس أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%AA%D8%A7%D9%94%D9%87%D9%84-14-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7-%D8%A7%D9%95%D9%84%D9%89-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7--%D9%88%D9%88%D8%AF%D8%A7%D8%B9-%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A/blt7b3cf38276b10f9d)
+- **أمم إفريقيا.. ملامح دور الـ16 تتشكل بتأهل 14 منتخبا**: [Link](https://www.skynewsarabia.com/sport/1843177-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%8016-%D8%AA%D8%AA%D8%B4%D9%83%D9%84-%D8%A8%D8%AA%D8%A7%D9%94%D9%87%D9%84-14-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7)
+- **بعد تحديد المجموعة.. منافس مصر في دور الـ 16 من كأس أمم إفريقيا**: [Link](https://www.btolat.com/news/389090)
+
+
 ### les groupes de la can 2025 (N/A, Mon, 29 Dec 2025 13:10:00 -0800)
 
 - **CAN 2025 : «On en a marre, réveillez-vous !», le message passionné de l’humoriste Hakim Jemili après la défaite de la Tunisie**: [Link](https://www.lefigaro.fr/sports/football/can-2025-on-en-a-marre-reveillez-vous-le-message-passionne-de-l-humoriste-hakim-jemili-apres-la-defaite-de-la-tunisie-20251228)
