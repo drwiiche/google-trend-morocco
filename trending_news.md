@@ -1,3 +1,10 @@
+### كأس افريقيا (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
+
+- **"رواج الكان" يدفىء أوصال المقاولات المغربية.. الخدمات المستفيد الأكبر**: [Link](https://www.hespress.com/%D8%B1%D9%88%D8%A7%D8%AC-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D9%8A%D8%AF%D9%81%D9%89%D8%A1-%D8%A3%D9%88%D8%B5%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D9%82%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85-1679084.html)
+- **معقل الكرة المغربية.. الدار البيضاء تتزين بحلة كأس أفريقيا والكاف يمدحها**: [Link](https://www.aljazeera.net/sport/2025/12/30/%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D9%85%D8%B9%D9%82%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%83%D8%A7%D9%81)
+- **مبابي وزيدان.. أفريقيا تستعيد جذور نجومها في كان 2025 بالمغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%88%D8%B2%D9%8A%D8%AF%D8%A7%D9%86--%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%AC%D8%B0%D9%88%D8%B1-%D9%86%D8%AC%D9%88%D9%85%D9%87%D8%A7-%D9%81%D9%8A-%D9%83%D8%A7%D9%86-2025-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blte3b179b57583a129)
+
+
 ### programme can 2025 (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
 
 - **Programme CAN 2025 : les matchs de ce mardi 30 décembre**: [Link](https://industries.ma/programme-can-2025-les-matchs-de-ce-mardi-30-decembre/)
