@@ -1,3 +1,10 @@
+### les matchs de la can 2025 (N/A, Mon, 29 Dec 2025 13:20:00 -0800)
+
+- **Huitièmes de finale : Date et heure du prochain match du Maroc**: [Link](https://industries.ma/huitiemes-de-finale-date-et-heure-du-prochain-match-du-maroc/)
+- **Sénégal–Bénin : l'ambition face à la conviction dans un choc décisif du Groupe D**: [Link](https://www.cafonline.com/fr/can2025/infos/senegal-benin-lambition-face-a-la-conviction-dans-un-choc-decisif-du-groupe-d/)
+- **CAN 2025 : le Maroc connaît son adversaire en 8e de finale !**: [Link](https://www.footmercato.net/a4344655362869655683-can-2025-le-maroc-connait-son-adversaire-en-8e-de-finale)
+
+
 ### كأس افريقيا (N/A, Mon, 29 Dec 2025 13:00:00 -0800)
 
 - **"رواج الكان" يدفىء أوصال المقاولات المغربية.. الخدمات المستفيد الأكبر**: [Link](https://www.hespress.com/%D8%B1%D9%88%D8%A7%D8%AC-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D9%8A%D8%AF%D9%81%D9%89%D8%A1-%D8%A3%D9%88%D8%B5%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D9%82%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85-1679084.html)
