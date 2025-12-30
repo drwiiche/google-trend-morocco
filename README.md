@@ -1,3 +1,17 @@
+### burnley – newcastle (N/A, Tue, 30 Dec 2025 10:50:00 -0800)
+
+- **Eddie Howe's team news update: Botman, Trippier, Pope, Wissa and Alabi latest ahead of Burnley**: [Link](https://www.newcastleunited.com/en/news/eddie-howes-team-news-update-ahead-of-burnley)
+- **Alan Pace pens New Year's message ahead of Burnley's final game of 2025**: [Link](https://www.burnleyexpress.net/sport/football/alan-pace-pens-new-years-message-ahead-of-burnleys-final-game-of-2025-5458957)
+- **TF Preview - Burnley (a) 30 Dec 2025**: [Link](https://tf1892.substack.com/p/tf-preview-burnley-a-30-dec-2025)
+
+
+### maroc tanzanie (N/A, Tue, 30 Dec 2025 10:20:00 -0800)
+
+- **CAN 2025 : qui sera l’adversaire des Lions de l’Atlas en huitièmes de finale ?**: [Link](https://lematin.ma/sports/can-2025-qui-sera-ladversaire-des-lions-de-latlas-en-huitiemes/321911)
+- **CAN 2025: le Maroc affrontera la Tanzanie en huitièmes de finale**: [Link](https://sport.le360.ma/football/can/can-2025-le-maroc-affrontera-la-tanzanie-en-huitiemes-de-finale_6B3VEF7XPVASTOTXS2Z77XJNYU/)
+- **Walid Regragui après Maroc-Mali : “Le record valait mieux qu’il s’arrête aujourd’hui. On repart pour gagner, plus forts et unis”**: [Link](https://mobile.telquel.ma/2025/12/27/walid-regragui-apres-maroc-mali-le-record-valait-mieux-quil-sarrete-aujourdhui-on-repart-pour-gagner-plus-forts-et-unis_1967695)
+
+
 ### chelsea – bournemouth (N/A, Tue, 30 Dec 2025 10:40:00 -0800)
 
 - **Enzo Maresca confirms Chelsea team news for Bournemouth | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/enzo-maresca-chelsea-team-news-bournemouth-december-2025)
