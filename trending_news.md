@@ -1,3 +1,10 @@
+### nigeria foot (N/A, Tue, 30 Dec 2025 08:40:00 -0800)
+
+- **Nigeria reach knock-out stage, Roche hands Benin first ever AFCON win, Senegal and DR Congo draw, stalemate in East African derby**: [Link](https://www.cafonline.com/afcon2025/news/nigeria-reach-knock-out-stage-roche-hands-benin-first-ever-afcon-win-senegal-and-dr-congo-draw-stalemate-in-east-african-derby/)
+- **Sami Trabelsi says Tunisia showed they can compete despite Nigeria defeat**: [Link](https://www.flashscore.com/news/soccer-africa-cup-of-nations-sami-trabelsi-says-tunisia-showed-they-can-compete-despite-nigeria-defeat/6H5UoOdc/)
+- **Africa Cup of Nations latest news: AFCON results, scores, reports and standings**: [Link](https://www.skysports.com/football/live-blog/11669/13486625/africa-cup-of-nations-latest-news-afcon-results-scores-reports-and-standings)
+
+
 ### رمضان صبحي (N/A, Tue, 30 Dec 2025 08:20:00 -0800)
 
 - **حبس رمضان صبحي نجم بيراميدز عاماً بسبب قضية تزوير**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%A8%D8%B3-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%B5%D8%A8%D8%AD%D9%8A-%D9%86%D8%AC%D9%85-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%B9%D8%A7%D9%85%D8%A7%D9%8B-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%82%D8%B6%D9%8A%D8%A9-%D8%AA%D8%B2%D9%88%D9%8A%D8%B1/bltbe55a48c726f48b8)
