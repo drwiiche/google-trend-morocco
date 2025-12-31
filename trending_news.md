@@ -1,3 +1,10 @@
+### madonna (N/A, Wed, 31 Dec 2025 02:40:00 -0800)
+
+- **Madonna’s Private Visit Draws Global Attention to Fez**: [Link](https://www.moroccoworldnews.com/2025/12/273389/madonnas-private-visit-draws-global-attention-to-fez/)
+- **Madonna spends holiday time in Morocco**: [Link](https://www.arabnews.com/node/2627899/lifestyle)
+- **Madonna shares glimpses of her Moroccan getaway in Marrakech**: [Link](https://en.yabiladi.com/articles/details/184701/madonna-shares-glimpses-moroccan-getaway.html)
+
+
 ### حالة الطقس اليوم (N/A, Tue, 30 Dec 2025 22:50:00 -0800)
 
 - **منخفض جوي جديد.. الأرصاد تحذر من أمطار وسيول**: [Link](https://www.masrawy.com/news/news_egypt/details/2025/12/29/2916285/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B3%D9%8A%D9%88%D9%84)
