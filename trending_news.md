@@ -1,3 +1,10 @@
+### happy new year (N/A, Wed, 31 Dec 2025 01:20:00 -0800)
+
+- **Happy New Year from the LightSoundJournal Team**: [Link](https://www.lightsoundjournal.com/2025/12/31/happy-new-year-from-the-lightsoundjournal-team/)
+- **Happy New Year 2026 Wishes from Bognor Regis Golf Club**: [Link](https://www.golfpost.com/cms/happy-new-year-2026-wishes-from-bognor-regis-golf-club-ds6cxrzigcl-birdie)
+- **Wishing You All a Happy New Year!**: [Link](https://www.finews.asia/high-end/44510-happy-new-year-2026-finews-asia)
+
+
 ### سنة سعيدة 2026 (N/A, Tue, 30 Dec 2025 23:40:00 -0800)
 
 - **عبارات العام الجديد 2026 أجمل كلمات لبدء سنة جديدة**: [Link](https://www.sayidaty.net/%D8%A8%D9%84%D8%B3/%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D9%81%D9%86%D9%88%D9%86/1826853-%D8%A3%D8%AC%D9%85%D9%84-%D8%B9%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D8%AF%D8%A1-%D8%B3%D9%86%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
