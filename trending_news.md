@@ -1,3 +1,45 @@
+### السودان ضد بوركينا فاسو (N/A, Wed, 31 Dec 2025 07:20:00 -0800)
+
+- **المنتخب السوداني يختتم دور المجموعات بمواجهة بوركينا فاسو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-2025-12-31)
+- **مباشر.. مباراة السودان ضد بوركينا فاسو في كأس الأمم الأفريقية 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/31/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%88%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **السودان – بوركينافاسو: مواجهة قوية لحسم الوصافة**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7%D9%81%D8%A7%D8%B3%D9%88-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D9%88%D8%B5%D8%A7%D9%81%D8%A9/)
+
+
+### sudan vs burkina faso (N/A, Wed, 31 Dec 2025 07:20:00 -0800)
+
+- **Sudan vs Burkina Faso: A high-stakes battle for second place**: [Link](https://www.cafonline.com/afcon2025/news/sudan-vs-burkina-faso-a-high-stakes-battle-for-second-place/)
+- **Sudan vs Burkina Faso: When and How to Watch AFCON Match**: [Link](https://www.moroccoworldnews.com/2025/12/273453/sudan-vs-burkina-faso-when-and-how-to-watch-afcon-match/)
+- **CAN 2025 / Sudan - Burkina Faso: probable line-ups**: [Link](https://foot-africa.com/en/news/can-2025-sudan-burkina-faso-probable-line-ups-1024103/)
+
+
+### guinée équatoriale – algérie (N/A, Wed, 31 Dec 2025 07:10:00 -0800)
+
+- **Algérie – Guinée équatoriale : sérénité contre baroud d’honneur**: [Link](https://www.cafonline.com/fr/can2025/infos/algerie-guinee-equatoriale-serenite-contre-baroud-d-honneur/)
+- **CAN 2025 : le programme des matchs d’aujourd’hui mercredi 31 décembre avec Algérie, Cameroun et Côte d’Ivoire**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-programme-des-matchs-daujourdhui-mercredi-31-decembre-avec-algerie-cameroun-et-cote-divoire-31-12-2025-BOPIFSW6QNBLDJ4KSQPVA6HKCM.php)
+- **Guinée Équatoriale-Algérie, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/can/guinee-equatoriale-algerie-sur-quelle-chaine-voir-le-match-792318.html)
+
+
+### soudan – burkina faso (N/A, Wed, 31 Dec 2025 07:10:00 -0800)
+
+- **Soudan – Burkina Faso : un duel sous haute tension pour la deuxième place**: [Link](https://www.cafonline.com/fr/can2025/infos/soudan-burkina-faso-un-duel-sous-haute-tension-pour-la-deuxieme-place/)
+- **DIRECT. Soudan-Burkina Faso (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/soudan-burkina-faso-live/670777)
+- **PRONOS PARIS RMC Le buteur du jour du 31 décembre – CAN**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-31-decembre-can_AN-202512300008.html)
+
+
+### غينيا الاستوائية ضد الجزائر (N/A, Wed, 31 Dec 2025 07:10:00 -0800)
+
+- **بعد ضمانه الصدارة.. المنتخب الجزائري يواجه غينيا الاستوائية في الجولة الأخيرة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B9%D8%AF-%D8%B6%D9%85%D8%A7%D9%86%D9%87-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%BA%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%88%D8%A7%D8%A6%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-2025-12-31)
+- **مباشر.. مباراة الجزائر ضد غينيا الاستوائية في كأس الأمم الأفريقية**: [Link](https://www.aljazeera.net/sport/liveblog/2025/12/31/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **مدرب الجزائر يراهن على تشكيلة معدلة**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D9%85%D8%B9%D8%AF%D9%84%D8%A9-1679377.html)
+
+
+### equatorial guinea vs algeria (N/A, Wed, 31 Dec 2025 07:10:00 -0800)
+
+- **Algeria vs Equatorial Guinea: Calm assurance meets a fight for pride**: [Link](https://www.cafonline.com/afcon2025/news/algeria-vs-equatorial-guinea-calm-assurance-meets-a-fight-for-pride/)
+- **Algeria vs Equatorial Guinea: When and How to Watch AFCON Game**: [Link](https://www.moroccoworldnews.com/2025/12/273456/algeria-vs-equatorial-guinea-when-and-how-to-watch-afcon-game/)
+- **Dan Childs fancies Algeria to wrap up their AFCON group phase campaign with a victory over Equatorial Guinea**: [Link](https://www.racingpost.com/sport/football-tips/africa-cup-of-nations/football-bet-of-the-day-dan-childs-fancies-algeria-to-wrap-up-their-afcon-group-phase-campaign-with-a-victory-over-equatorial-guinea-aTSmr8e5ccIJ/)
+
+
 ### happy new year 2026 (N/A, Wed, 31 Dec 2025 01:50:00 -0800)
 
 - **180+ Happy New Year 2026 wishes: Messages, images, WhatsApp and Facebook status to share on December 31 and January 1 | Hindustan Times**: [Link](https://www.hindustantimes.com/lifestyle/festivals/happy-new-year-2026-50-wishes-images-greetings-messages-whatsapp-and-facebook-status-to-share-with-loved-ones-101767096119580.html)
