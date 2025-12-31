@@ -1,3 +1,17 @@
+### ibrahim maza (N/A, Wed, 31 Dec 2025 09:40:00 -0800)
+
+- **Afrika-Cup-Ticker: Maza überragt bei zweitem Sieg Algeriens – Kofane feiert Debüt für Kamerun**: [Link](https://www.bayer04.de/en-us/news/bayer04/afcon-blog-maza-shines-in-second-win-for-algeria-kofane-makes-debut-for-cameroon)
+- **Spieler des Spiels und Gruppensieg: Maza ist trotzdem "ein bisschen wütend"**: [Link](https://www.kicker.de/spieler-des-spiels-und-gruppensieg-maza-ist-trotzdem-ein-bisschen-wuetend-1179398/artikel)
+- **Bayer Leverkusen: Christian Kofane feiert Nationalmannschafts-Debüt!**: [Link](https://www.bild.de/sport/fussball/bayer-leverkusen-christian-kofane-feiert-nationalmannschafts-debuet-6952232a45876d161e2330ca)
+
+
+### algeria vs (N/A, Wed, 31 Dec 2025 08:40:00 -0800)
+
+- **Algeria to Face DR Congo in Africa Cup Round of 16 Next Tuesday (17:00 GMT+1)**: [Link](https://m.elbotola.com/en/article/2025-12-30-21-35-228.html)
+- **CAN 2025: What time and on which channels to watch Algeria vs DR Congo?**: [Link](https://foot-africa.com/en/news/can-2025-what-time-and-on-which-channels-to-watch-algeria-vs-dr-congo-1024490/)
+- **Moutoussamy urges Congo to prepare for Algeria AFCON clash**: [Link](https://www.panafricafootball.com/post/moutoussamy-on-algeria-afcon-clash/)
+
+
 ### algeria (N/A, Wed, 31 Dec 2025 09:10:00 -0800)
 
 - **CAN 2025 - Algeria: Samir Chergui doubtful for the rest of the tournament**: [Link](https://foot-africa.com/en/news/can-2025-algeria-samir-chergui-doubtful-for-the-rest-of-the-tournament-1022981/)
