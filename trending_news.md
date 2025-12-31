@@ -1,3 +1,31 @@
+### new year's day (N/A, Wed, 31 Dec 2025 15:20:00 -0800)
+
+- **Which gyms are open New Year's Day? Details on Gold's, Planet Fitness, more**: [Link](https://www.usatoday.com/story/money/2025/12/31/gyms-open-closed-new-years-day-2026/87971905007/)
+- **Is Vasa Open New Year's Day and New Year's Eve 2026?**: [Link](https://www.aol.com/articles/vasa-open-years-day-years-091000789.html)
+- **Can You Work Out at LA Fitness on New Year's Day? All About Their Holiday Hours**: [Link](https://www.yahoo.com/lifestyle/articles/la-fitness-years-day-holiday-115500457.html)
+
+
+### عيد رأس السنة (N/A, Wed, 31 Dec 2025 15:20:00 -0800)
+
+- **الداخلية تنهي استعداداتها لتأمين الاحتفالات ببداية العام الميلادي وعيد الميلاد.. (صور )**: [Link](https://www.altreeq.com/525114)
+- **فنادق ومنتجعات البحر الأحمر تتزين احتفالًا برأس السنة الميلادية**: [Link](https://www.elaosboa.com/2600762/)
+- **للاستمتاع بالأجواء الاحتفالية.. انتشار أمني مكثف في جميع محافظات مصر لتأمين احتفالات رأس السنة 2026**: [Link](https://www.awanmasr.com/%D9%84%D9%84%D8%A7%D8%B3%D8%AA%D9%85%D8%AA%D8%A7%D8%B9-%D8%A8%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%86%D8%AA%D8%B4%D8%A7/)
+
+
+### message de bonne année (N/A, Wed, 31 Dec 2025 15:00:00 -0800)
+
+- **Nouvel An : les 120 meilleurs messages de vœux pour 2026**: [Link](https://fr.euronews.com/2025/12/30/nouvel-an-les-120-meilleurs-messages-de-voeux-pour-2026)
+- **18 idées de messages de vœux originaux pour souhaiter une bonne année 2026**: [Link](https://www.bibamagazine.fr/lifestyle/societe/18-idees-de-messages-de-voeux-originaux-pour-souhaiter-une-bonne-annee-2026-499171.html)
+- **Hespress FR vous souhaite une bonne et heureuse année 2026**: [Link](https://fr.hespress.com/456576-hespress-fr-vous-souhaite-une-bonne-et-heureuse-annee-2026.html)
+
+
+### huitieme de final can 2025 (N/A, Wed, 31 Dec 2025 13:40:00 -0800)
+
+- **CAN Maroc-2025 (huitièmes de finale): le Maroc face à la Tanzanie dimanche prochain**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D9%86%D9%87/)
+- **CAN 2025: Carton plein pour les sélections maghrébines**: [Link](https://fr.hespress.com/456493-can-2025-carton-plein-pour-les-selections-maghrebines.html)
+- **CAN 2025 : Le Maroc valide son billet pour les phases finales**: [Link](https://lematin.ma/videos/can-2025-le-maroc-valide-son-billet-pour-les-phases-finales/321944)
+
+
 ### new year countdown (N/A, Wed, 31 Dec 2025 15:00:00 -0800)
 
 - **Minnesota weather: A chilling countdown to the New Year**: [Link](https://www.mprnews.org/story/2025/12/31/a-chilling-countdown-to-the-new-year)
