@@ -1,3 +1,17 @@
+### الغابون ضد ساحل العاج (N/A, Wed, 31 Dec 2025 10:50:00 -0800)
+
+- **مدرب الغابون قبل مواجهة الكوت ديفوار: "فريقنا سيقاتل من أجل العلم الوطني ومن الضروري إنهاء 'كان 2025' بكرامة"**: [Link](https://m.elbotola.com/article/2025-12-30-17-01-933.html)
+- **إيميرس فاييه" يحسمها من مراكش: صدارة المجموعة هدف الأفيال أمام الغابون"**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A5%D9%8A%D9%85%D9%8A%D8%B1%D8%B3-%D9%81%D8%A7%D9%8A%D9%8A%D9%87-%D9%8A%D8%AD%D8%B3%D9%85%D9%87%D8%A7-%D9%85%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D8%A3%D9%81%D9%8A%D8%A7%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86/13718)
+- **ما هو مصير مباراة ساحل العاج والجابون في كأس الأمم الأفريقية؟**: [Link](https://www.al-bayader.com/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/30908/%D9%85%D8%A7-%D9%87%D9%88-%D9%85%D8%B5%D9%8A%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D8%AC-%D9%88%D8%A7%D9%84%D8%AC%D8%A7%D8%A8%D9%88%D9%86-%D9%81/)
+
+
+### gabon vs ivory coast (N/A, Wed, 31 Dec 2025 10:40:00 -0800)
+
+- **Gabon vs Côte d’Ivoire: Pride at stake in Marrakech**: [Link](https://www.cafonline.com/afcon2025/news/gabon-vs-cote-d-ivoire-pride-at-stake-in-marrakech/)
+- **CAN 2025: probable line-ups, TV channels and match history of Côte d’Ivoire vs Gabon**: [Link](https://onefootball.com/de/news/can-2025-probable-line-ups-tv-channels-and-match-history-of-cote-divoire-vs-gabon-42163093)
+- **AFCON Preview - Diallo & Co brace up for Gabon clash - 2025 Africa Cup of Nations - Cote d'Ivoire**: [Link](https://africanfootball.com/news/835140/AFCON-Preview-Diallo-Co-brace-up-for-Gabon-clash)
+
+
 ### mozambique – cameroun (N/A, Wed, 31 Dec 2025 10:20:00 -0800)
 
 - **DIRECT. Mozambique-Cameroun (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/mozambique-cameroun-live/670783)
