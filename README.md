@@ -1,3 +1,10 @@
+### 2026 (N/A, Tue, 30 Dec 2025 16:20:00 -0800)
+
+- **15 modern-era players announced as finalists for Hall of Fame Class of 2026**: [Link](https://www.nfl.com/news/15-modern-era-players-announced-as-finalists-for-hall-of-fame-class-of-2026)
+- **Former Steelers WR Hines Ward misses final round of Hall of Fame voting**: [Link](https://www.post-gazette.com/sports/steelers/2025/12/30/pro-football-hall-of-fame-steelers-hines-ward-finalists/stories/202512300024)
+- **Pro Football Hall of Fame 2026 finalists: Drew Brees, Eli Manning among stars still in consideration for induction**: [Link](https://sports.yahoo.com/nfl/article/pro-football-hall-of-fame-2026-finalists-drew-brees-eli-manning-among-stars-still-in-consideration-for-induction-142618433.html)
+
+
 ### dooz kawa mort (N/A, Tue, 30 Dec 2025 14:00:00 -0800)
 
 - **Dooz Kawa : de quoi est mort le rappeur français ?**: [Link](https://www.linternaute.com/actualite/personnalites/9535256-dooz-kawa-de-quoi-est-mort-le-rappeur-francais/)
