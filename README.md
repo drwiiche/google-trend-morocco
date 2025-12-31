@@ -1,3 +1,24 @@
+### دور 16 كاس امم افريقيا 2025 (N/A, Wed, 31 Dec 2025 13:00:00 -0800)
+
+- **"تاريخ الركراكي" يتفوق على تنزانيا**: [Link](https://www.hespress.com/%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-1679730.html)
+- **مباراة تونس ضد مالي بكأس أفريقيا.. الموعد والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2025/12/31/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D8%B6%D8%AF-%D9%85%D8%A7%D9%84%D9%8A-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **تعرف على منافس وموعد مباراة المغرب في ثمن نهائي أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%88%D8%A8%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF--%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltfc61105ccdbeee15)
+
+
+### home alone (N/A, Wed, 31 Dec 2025 12:40:00 -0800)
+
+- **Macaulay Culkin Reveals the 3 Firm Rules He Has for Fans: 'I'm in Charge of the Interaction'**: [Link](https://people.com/macaulay-culkin-reveals-three-firm-rules-for-fans-11877355)
+- **Macaulay Culkin sets strict rules for fans who approach him in public with his children**: [Link](https://www.foxnews.com/entertainment/macaulay-culkin-sets-strict-rules-fans-who-approach-him-public-his-children)
+- **Macaulay Culkin has a strict set of rules for fans approaching him in public**: [Link](https://komonews.com/news/entertainment/macaulay-culkin-has-a-strict-set-of-rules-for-fans-approaching-him-in-public)
+
+
+### roberto carlos (N/A, Wed, 31 Dec 2025 11:10:00 -0800)
+
+- **Madrid great Roberto Carlos has heart surgery**: [Link](https://www.espn.com/soccer/story/_/id/47462746/real-madrid-great-roberto-carlos-preventive-heart-surgery)
+- **Real Madrid and Brazil icon rushed to hospital for emergency heart surgery**: [Link](https://www.independent.co.uk/bulletin/sport/roberto-carlos-emergency-heart-surgery-b2892738.html)
+- **Brazil Soccer Icon Recovering Following Successful Heart Surgery**: [Link](https://clutchpoints.com/soccer/brazil-legend-2002-world-cup-winner-roberto-carlos-recovering-heart-surgery)
+
+
 ### ترتيب المجموعات كاس افريقيا 2025 (N/A, Wed, 31 Dec 2025 11:50:00 -0800)
 
 - **مهمة شبه مستحيلة.. إنجاز غير مسبوق يشعل حماس تنزانيا أمام المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%87%D9%85%D8%A9-%D8%B4%D8%A8%D9%87-%D9%85%D8%B3%D8%AA%D8%AD%D9%8A%D9%84%D8%A9--%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82-%D9%8A%D8%B4%D8%B9%D9%84-%D8%AD%D9%85%D8%A7%D8%B3-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blta92cada9e8aafb47)
