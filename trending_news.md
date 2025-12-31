@@ -1,3 +1,17 @@
+### classement coupe d'afrique des nations de football 2025 (N/A, Wed, 31 Dec 2025 11:30:00 -0800)
+
+- **Huitièmes de finale de la CAN 2025 : le tableau provisoire**: [Link](https://medias24.com/2025/12/30/huitiemes-de-finale-de-la-can-2025-le-tableau-provisoire-1604103/)
+- **CAN 2025 : au Maroc, l’autre match se joue contre les intox**: [Link](https://lematin.ma/nation/can-2025-au-maroc-lautre-match-se-joue-contre-les-intox/321950)
+- **Abdou Diop : “Après le Mondial, il n‘y a pas de raison que le Maroc ne puisse pas organiser les Jeux Olympiques”**: [Link](https://mobile.telquel.ma/2025/12/30/abdou-diop-apres-le-mondial-il-ny-a-pas-de-raison-que-le-maroc-ne-puisse-pas-organiser-les-jeux-olympiques_1968287)
+
+
+### ترتيبات كاس امم افريقيا (N/A, Wed, 31 Dec 2025 11:30:00 -0800)
+
+- **محرز والكعبي وإبراهيم دياز.. ترتيب الهدافين في كأس أمم أفريقيا بالمغرب**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20251230-%D9%85%D8%AD%D8%B1%D8%B2-%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D9%87%D8%AF%D8%A7%D9%81%D9%8A%D9%86-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **ترتيب هدافي كأس أمم إفريقيا بعد هدفي إبراهيم دياز أيوب الكعبي أمام زامبيا**: [Link](https://www.btolat.com/news/389078)
+- **على رأسهم مرموش وثلاثي اليونايتد.. نجوم البريميرليج يتوهجون في الجولة الأولى من أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D9%94%D8%B3%D9%87%D9%85-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%88%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF--%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D9%8A%D8%AA%D8%A7%D9%94%D9%84%D9%82%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%89-%D9%85%D9%86-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blte79035d0032a2df7)
+
+
 ### aubameyang (N/A, Wed, 31 Dec 2025 11:20:00 -0800)
 
 - **Ex-Arsenal star Pierre-Emerick Aubameyang leaves Afcon with immediate effect**: [Link](https://www.thesun.co.uk/sport/37770076/aubameyang-leaves-afcon-group-stage/)
