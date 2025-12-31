@@ -1,3 +1,17 @@
+### silvester (N/A, Wed, 31 Dec 2025 01:30:00 -0800)
+
+- **GdP befürchtet "Hinterhalte" gegen Polizisten an Silvester**: [Link](https://www.tagesschau.de/inland/silvester-gdp-100.html)
+- **The same procedure as last year? – Polizei bereitet sich auf den Jahreswechsel 2025/26 vor**: [Link](https://www.wirindortmund.de/dortmund/the-same-procedure-as-last-year-polizei-bereitet-sich-auf-den-jahreswechsel-2025-26-vor-297664)
+- **Polizei in Leverkusen bereitet sich auf Silvesternacht vor**: [Link](https://www.radioleverkusen.de/artikel/polizei-in-leverkusen-bereitet-sich-auf-silvesternacht-vor-2534963.html)
+
+
+### samsung galaxy s26 ultra (N/A, Tue, 30 Dec 2025 18:00:00 -0800)
+
+- **Galaxy S26 Ultra Release Date: Samsung's Delay Bring Risks And Rewards**: [Link](https://www.forbes.com/sites/ewanspence/2025/12/27/samsung-galaxy-s26-ultra-release-date-launch-date-galaxy-unpacked-delay/)
+- **Galaxy S26 Ultra leak shows off new camera bump that’s sure to be annoying [Gallery]**: [Link](https://9to5google.com/2025/12/30/samsung-galaxy-s26-ultra-camera-bump-hardware-leak/)
+- **Everything we know about the Samsung Galaxy S26: Leaks, rumors, and release date**: [Link](https://mashable.com/article/everything-we-know-about-samsung-galaxy-s26-leaks-rumors-specifications)
+
+
 ### madonna (N/A, Wed, 31 Dec 2025 02:40:00 -0800)
 
 - **Madonna’s Private Visit Draws Global Attention to Fez**: [Link](https://www.moroccoworldnews.com/2025/12/273389/madonnas-private-visit-draws-global-attention-to-fez/)
