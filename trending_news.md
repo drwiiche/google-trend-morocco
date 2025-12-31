@@ -1,3 +1,17 @@
+### bonne année 2026 (N/A, Tue, 30 Dec 2025 23:40:00 -0800)
+
+- **Nouvel An : les 120 meilleurs messages de vœux pour 2026**: [Link](https://fr.euronews.com/2025/12/30/nouvel-an-les-120-meilleurs-messages-de-voeux-pour-2026)
+- **les pires vœux du nouvel an 2025 qu’on ait vus passer**: [Link](https://www.carnetdebord.info/les-pires-voeux-du-nouvel-an-2025-qu-on-ait-vus-passer/)
+- **Décompte de Bonne année : le temps qu'il reste (à la seconde près) jusqu'en 2026**: [Link](https://www.linternaute.com/actualite/societe/2530980-decompte-du-31-decembre-le-temps-qu-il-reste-a-la-seconde-pres-jusqu-en-2026/)
+
+
+### arabie saoudite émirats arabes unis (N/A, Tue, 30 Dec 2025 23:30:00 -0800)
+
+- **Yémen : les Emirats arabes unis annoncent le retrait de leurs troupes, sous la pression de l’Arabie saoudite**: [Link](https://www.lemonde.fr/international/article/2025/12/30/yemen-les-emirats-arabes-unis-annoncent-le-retrait-de-leurs-troupes-apres-une-escalade-des-tensions-avec-l-arabie-saoudite_6660019_3210.html)
+- **Yémen : l’Arabie saoudite dénonce une menace à sa sécurité, les Émirats se défendent**: [Link](https://medias24.com/2025/12/30/yemen-larabie-saoudite-denonce-une-menace-a-sa-securite-les-emirats-se-defendent-1604338/)
+- **Séparatistes au Yémen : qui sont-ils, que veulent-ils et pourquoi leur progression change la donne**: [Link](https://www.france24.com/fr/moyen-orient/20251231-yemen-separatistes-qui-sont-ils-que-veulent-ils-arabie-emirats)
+
+
 ### 2026 (N/A, Tue, 30 Dec 2025 16:20:00 -0800)
 
 - **15 modern-era players announced as finalists for Hall of Fame Class of 2026**: [Link](https://www.nfl.com/news/15-modern-era-players-announced-as-finalists-for-hall-of-fame-class-of-2026)
