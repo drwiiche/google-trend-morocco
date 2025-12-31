@@ -1,3 +1,10 @@
+### happy new year 2026 (N/A, Wed, 31 Dec 2025 01:50:00 -0800)
+
+- **180+ Happy New Year 2026 wishes: Messages, images, WhatsApp and Facebook status to share on December 31 and January 1 | Hindustan Times**: [Link](https://www.hindustantimes.com/lifestyle/festivals/happy-new-year-2026-50-wishes-images-greetings-messages-whatsapp-and-facebook-status-to-share-with-loved-ones-101767096119580.html)
+- **Happy New Year 2026: Wishes, Images, Quotes, Status, Photos, Whatsapp & Facebook Status, SMS, Messages,**: [Link](https://timesofindia.indiatimes.com/etimes/trending/happy-new-year-2026-wishes-images-quotes-status-photos-sms-messages-card-gifs-wallpaper-pics-and-greetings/articleshow/126233537.cms)
+- **Happy New Year from the LightSoundJournal Team**: [Link](https://www.lightsoundjournal.com/2025/12/31/happy-new-year-from-the-lightsoundjournal-team/)
+
+
 ### evelyne leclercq (N/A, Wed, 31 Dec 2025 04:00:00 -0800)
 
 - **Mort d’Évelyne Leclercq, la présentatrice de « Tournez manège ! »**: [Link](https://www.leparisien.fr/culture-loisirs/tv/mort-develyne-leclercq-la-presentatrice-de-tournez-manege-31-12-2025-EJ4TNQTCW5AZTOAX54HBCGRP3M.php)
