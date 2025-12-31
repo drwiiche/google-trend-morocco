@@ -1,3 +1,10 @@
+### algerie vs congo (N/A, Wed, 31 Dec 2025 08:40:00 -0800)
+
+- **Huitièmes de finale de la CAN 2025 : le tableau provisoire**: [Link](https://medias24.com/2025/12/30/huitiemes-de-finale-de-la-can-2025-le-tableau-provisoire-1604103/)
+- **Les affiches connues, celles qu'il reste à définir... Voici le programme des huitièmes de finale de la CAN**: [Link](https://www.lequipe.fr/Football/Actualites/Algerie-rdc-mali-tunisie-on-connait-les-premieres-affiches-des-huitiemes-de-finale-de-la-can/1630304)
+- **"On y va avec nos armes et notre fierté" : les Congolais n'ont pas peur de l'Algérie**: [Link](https://www.france24.com/fr/sports/20251231-can-2025-rd-congo-huitiemes-algerie-armes-fiert%C3%A9)
+
+
 ### wissam ben yedder (N/A, Wed, 31 Dec 2025 04:50:00 -0800)
 
 - **Former France international Wissam Ben Yedder set to join Wydad Casablanca**: [Link](https://en.yabiladi.com/articles/details/184751/former-france-international-wissam-yedder.html)
