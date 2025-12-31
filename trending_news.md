@@ -1,3 +1,8 @@
+### wissam ben yedder (N/A, Wed, 31 Dec 2025 04:50:00 -0800)
+
+- **Former France international Wissam Ben Yedder set to join Wydad Casablanca**: [Link](https://en.yabiladi.com/articles/details/184751/former-france-international-wissam-yedder.html)
+
+
 ### neom sports club – al ittihad (N/A, Wed, 31 Dec 2025 07:20:00 -0800)
 
 - **Preview: NEOM SC vs Al-Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittihad/preview/neom-sc-vs-al-ittihad-prediction-team-news-lineups_588704.html)
