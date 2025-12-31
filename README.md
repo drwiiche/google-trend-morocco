@@ -1,3 +1,10 @@
+### algeria (N/A, Wed, 31 Dec 2025 09:10:00 -0800)
+
+- **CAN 2025 - Algeria: Samir Chergui doubtful for the rest of the tournament**: [Link](https://foot-africa.com/en/news/can-2025-algeria-samir-chergui-doubtful-for-the-rest-of-the-tournament-1022981/)
+- **Algerian Dignity Party reiterates support for Sahrawi people and their just cause**: [Link](https://www.spsrasd.info/en/2025/12/27/13620.html)
+- **Algeria’s Regime Persists in Outdated Narrative Over Western Sahara**: [Link](https://www.moroccoworldnews.com/2025/12/273512/algerias-regime-persists-in-outdated-narrative-over-western-sahara/)
+
+
 ### al-kholood club – al-hilal (N/A, Wed, 31 Dec 2025 09:10:00 -0800)
 
 - **Preview: Al Kholood vs Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/al-kholood-vs-al-hilal-prediction-team-news-lineups_588709.html)
