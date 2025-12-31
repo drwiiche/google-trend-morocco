@@ -1,3 +1,10 @@
+### new year (N/A, Wed, 31 Dec 2025 15:00:00 -0800)
+
+- **New Year's Eve live: UK getting ready to welcome in 2026 with major firework displays**: [Link](https://www.bbc.com/news/live/cn8ee2zxjxnt)
+- **Preparations underway for London NYE fireworks**: [Link](https://www.itn.co.uk/news/preparations-underway-london-nye-fireworks-0)
+- **The Houses of Parliament are illuminated ahead of New Year's Eve celebrations, in London**: [Link](https://www.reutersconnect.com/item/the-houses-of-parliament-are-illuminated-ahead-of-new-years-eve-celebrations-in-london/dGFnOnJldXRlcnMuY29tLDIwMjU6bmV3c21sX1JDMlZSSUFBNzhBTg)
+
+
 ### new year's day (N/A, Wed, 31 Dec 2025 15:20:00 -0800)
 
 - **Which gyms are open New Year's Day? Details on Gold's, Planet Fitness, more**: [Link](https://www.usatoday.com/story/money/2025/12/31/gyms-open-closed-new-years-day-2026/87971905007/)
