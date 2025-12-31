@@ -1,3 +1,17 @@
+### mozambique – cameroun (N/A, Wed, 31 Dec 2025 10:20:00 -0800)
+
+- **DIRECT. Mozambique-Cameroun (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/mozambique-cameroun-live/670783)
+- **Cameroun – Mozambique : les Lions Indomptables veulent rugir face à des Mambas, avides d’histoire**: [Link](https://www.cafonline.com/fr/can2025/infos/cameroun-mozambique-les-lions-indomptables-veulent-rugir-face-a-des-mambas-avides-d-histoire/)
+- **La CAF désigne un trio arbitral marocain mené par Jalal Jayed pour Cameroun-Mozambique à la CAN 2025**: [Link](https://m.elbotola.com/fr/article/2025-12-31-11-34-717.html)
+
+
+### algerie congo (N/A, Wed, 31 Dec 2025 08:50:00 -0800)
+
+- **Huitièmes de finale de la CAN 2025 : le tableau provisoire**: [Link](https://medias24.com/2025/12/30/huitiemes-de-finale-de-la-can-2025-le-tableau-provisoire-1604103/)
+- **Les affiches connues, celles qu'il reste à définir... Voici le programme des huitièmes de finale de la CAN**: [Link](https://www.lequipe.fr/Football/Actualites/Algerie-rdc-mali-tunisie-on-connait-les-premieres-affiches-des-huitiemes-de-finale-de-la-can/1630304)
+- **Algérie, le verdict tombe avant la RD Congo**: [Link](https://www.sports.fr/football/can/algerie-le-verdict-tombe-avant-la-rd-congo-978400.html)
+
+
 ### gabon – côte d'ivoire (N/A, Wed, 31 Dec 2025 10:10:00 -0800)
 
 - **DIRECT. Gabon-Côte d'Ivoire (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/gabon-cote-d-ivoire-live/670782)
