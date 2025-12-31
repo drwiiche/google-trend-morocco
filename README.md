@@ -1,3 +1,24 @@
+### evelyne leclercq (N/A, Wed, 31 Dec 2025 04:00:00 -0800)
+
+- **Mort d’Évelyne Leclercq, la présentatrice de « Tournez manège ! »**: [Link](https://www.leparisien.fr/culture-loisirs/tv/mort-develyne-leclercq-la-presentatrice-de-tournez-manege-31-12-2025-EJ4TNQTCW5AZTOAX54HBCGRP3M.php)
+- **Évelyne Leclercq, emblématique animatrice de l'émission "Tournez manège !", est morte à 74 ans**: [Link](https://www.franceinfo.fr/culture/tv/evelyne-leclercq-ancienne-animatrice-de-l-emission-tournez-manege-est-morte-a-74-ans_7712617.html)
+- **Évelyne Leclercq, l'animatrice de "Tournez Manège" et "Intervilles" est morte à l'âge de 74 ans**: [Link](https://www.bfmtv.com/people/evelyne-leclercq-speakerine-et-animatrice-de-television-culte-est-morte-a-74-ans_AN-202512310291.html)
+
+
+### vigilia di capodanno (N/A, Wed, 31 Dec 2025 01:50:00 -0800)
+
+- **Previsioni meteo Abruzzo 31 dicembre e 1 gennaio**: [Link](https://www.rete8.it/cronaca/previsioni-meteo-abruzzo-31-dicembre-e-1-gennaio/)
+- **L’Aquila, ultimo giorno dell’anno tra sole e freddo**: [Link](https://www.ilcapoluogo.it/2025/12/30/laquila-ultimo-giorno-dellanno-tra-sole-e-freddo/)
+- **Capodanno con il freddo, non si escludono rovesci nevosi fino a quote collinari**: [Link](https://giornaledimontesilvano.com/39639-capodanno-con-il-freddo-non-si-escludono-rovesci-nevosi-fino-a-quote-collinari)
+
+
+### oudejaarsavond (N/A, Wed, 31 Dec 2025 00:50:00 -0800)
+
+- **Brazilianen kiezen Porto voor oudejaarsavond**: [Link](https://www.theportugalnews.com/nl/nieuws/2025-12-31/brazilianen-kiezen-porto-voor-oudejaarsavond/938227)
+- **2000 hotelkamers uitverkocht voor nieuwjaar**: [Link](https://www.theportugalnews.com/nl/nieuws/2025-12-30/2000-hotelkamers-uitverkocht-voor-nieuwjaar/937763)
+- **Alentejo verwacht "vloed" van nieuwjaarstoeristen**: [Link](https://www.theportugalnews.com/nl/nieuws/2025-12-23/alentejo-verwacht-vloed-van-nieuwjaarstoeristen/935331)
+
+
 ### silvester (N/A, Wed, 31 Dec 2025 01:30:00 -0800)
 
 - **GdP befürchtet "Hinterhalte" gegen Polizisten an Silvester**: [Link](https://www.tagesschau.de/inland/silvester-gdp-100.html)
