@@ -1,3 +1,17 @@
+### neom sports club – al ittihad (N/A, Wed, 31 Dec 2025 07:20:00 -0800)
+
+- **Preview: NEOM SC vs Al-Ittihad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittihad/preview/neom-sc-vs-al-ittihad-prediction-team-news-lineups_588704.html)
+- **Conceição Announces Al-Ittihad Squad for Match Against NEOM in the League**: [Link](https://www.ysscores.com/en/news/13881580/Concei%C3%A7%C3%A3o-Announces-Al-Ittihad-Squad-for-Match-Against-NEOM-in-the-League)
+- **Neom SC vs Al Ittihad Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-neom-sc-vs-al-ittihad-preview-202512)
+
+
+### وسام بن يدر (N/A, Wed, 31 Dec 2025 05:30:00 -0800)
+
+- **مسؤول يكشف لـ le360 الصفقة الجديدة للوداد في الميركاتو الشتوي**: [Link](https://ar.sport.le360.ma/football/ORW5WZP7LVBJXHLU2PDDDRD6GE/)
+- **اتفاق مبدئي ينقل وسام بن يدر للوداد المغربي**: [Link](https://transfermercato.com/%D9%88%D8%B3%D8%A7%D9%85-%D8%A8%D9%86-%D9%8A%D8%AF%D8%B1-%D9%8A%D9%88%D9%82%D8%B9-%D9%84%D9%84%D9%88%D8%AF%D8%A7%D8%AF/)
+- **فوت ميركاتو: الوداد الرياضي حسم التعاقد مع المهاجم الفرنسي وسام بن يدر**: [Link](https://alomksport.com/95094.html)
+
+
 ### guinea ecuatorial - argelia (N/A, Wed, 31 Dec 2025 07:40:00 -0800)
 
 - **Guinea Ecuatorial vs. Argelia: horario y cómo ver el partido por la Copa Africana de Naciones 2025-2026**: [Link](https://es-us.noticias.yahoo.com/deportes/guinea-ecuatorial-vs-argelia-horario-120000008.html)
