@@ -1,3 +1,15 @@
+### 8eme de finale can 2025 (N/A, Wed, 31 Dec 2025 13:10:00 -0800)
+
+- **Walid Regragui : "Pour être champion d’Afrique, il faut être l’équipe la plus efficace"**: [Link](https://medias24.com/2025/12/30/walid-regragui-pour-etre-champion-dafrique-il-faut-etre-lequipe-la-plus-efficace-1604083/)
+- **El-Kaabi, virtuose des retournés acrobatiques, marque déjà la CAN de son empreinte**: [Link](https://fr.hespress.com/456327-el-kaabi-virtuose-des-retournes-acrobatiques-marque-deja-la-can-de-son-empreinte.html)
+- **Tarik Skitioui amuse les supporters marocains sur réseaux**: [Link](https://industries.ma/tarik-skitioui-amuse-les-supporters-marocains-sur-reseaux/)
+
+
+### meilleurs voeux 2026 (N/A, Wed, 31 Dec 2025 12:50:00 -0800)
+
+
+
+
 ### africa cup of nations games (N/A, Wed, 31 Dec 2025 13:20:00 -0800)
 
 - **HIGHLIGHTS | Uganda 🆚 Nigeria | #TotalEnergiesAFCON2025 - Group C**: [Link](https://www.cafonline.com/afcon2025/videos/highlights-uganda-nigeria-totalenergiesafcon2025-group-c/)
