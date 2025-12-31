@@ -1,3 +1,10 @@
+### حالة الطقس اليوم (N/A, Tue, 30 Dec 2025 22:50:00 -0800)
+
+- **منخفض جوي جديد.. الأرصاد تحذر من أمطار وسيول**: [Link](https://www.masrawy.com/news/news_egypt/details/2025/12/29/2916285/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B3%D9%8A%D9%88%D9%84)
+- **الطقس اليوم الأربعاء 31-12-2025.. أجواء شديد البرودة ليلا وشبورة كثيفة**: [Link](https://www.youm7.com/story/2025/12/31/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-31-12-2025-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B4%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%84%D9%8A%D9%84%D8%A7/7252318)
+- **الأرصاد تحدد خرائط الأمطار وفرص حدوثها حتى نهاية اليوم**: [Link](https://afkarjadida.com/164427/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%AF%D8%AF-%D8%AE%D8%B1%D8%A7%D8%A6%D8%B7-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D9%81%D8%B1%D8%B5-%D8%AD%D8%AF%D9%88%D8%AB%D9%87/)
+
+
 ### happy new year (N/A, Wed, 31 Dec 2025 01:20:00 -0800)
 
 - **Happy New Year from the LightSoundJournal Team**: [Link](https://www.lightsoundjournal.com/2025/12/31/happy-new-year-from-the-lightsoundjournal-team/)
