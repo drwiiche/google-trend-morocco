@@ -1,3 +1,17 @@
+### kick (N/A, Wed, 31 Dec 2025 15:40:00 -0800)
+
+- **Mernuel signals Kick's dominance for Spanish-language streamers**: [Link](https://win.gg/mernuel-kick-spanish-language-streamers/)
+- **What Makes a Hit in ’26? These 20 Buzzy New Series Bet on the Answer**: [Link](https://theankler.com/p/what-makes-a-hit-in-26-these-20-buzzy)
+- **2026 TV preview: All the TV shows you need to know, and where to stream them**: [Link](https://mashable.com/article/2026-tv-preview)
+
+
+### jour de l'an (N/A, Wed, 31 Dec 2025 15:10:00 -0800)
+
+- **Le Nouvel An en images : la planète célèbre l'arrivée de 2026**: [Link](https://www.france24.com/fr/asie-pacifique/20251231-nouvel-an-c%C3%A9l%C3%A9brations-en-images-plan%C3%A8te-entr%C3%A9e-2026)
+- **Nouvel An : en images, ces pays qui célèbrent déjà le passage à 2026**: [Link](https://www.lefigaro.fr/international/nouvel-an-en-images-ces-pays-qui-celebrent-deja-le-passage-a-2026-20251231)
+- **EN DIRECT, Nouvel An 2026 | Paris célèbre la nouvelle année ; suivez les festivités dans le monde entier**: [Link](https://www.lemonde.fr/international/live/2025/12/31/en-direct-nouvel-an-2026-le-monde-continue-de-celebrer-le-passage-a-la-nouvelle-annee-suivez-les-festivites_6660171_3210.html)
+
+
 ### new year (N/A, Wed, 31 Dec 2025 15:00:00 -0800)
 
 - **New Year's Eve live: UK getting ready to welcome in 2026 with major firework displays**: [Link](https://www.bbc.com/news/live/cn8ee2zxjxnt)
