@@ -1,3 +1,17 @@
+### dooz kawa mort (N/A, Tue, 30 Dec 2025 14:00:00 -0800)
+
+- **Dooz Kawa : de quoi est mort le rappeur français ?**: [Link](https://www.linternaute.com/actualite/personnalites/9535256-dooz-kawa-de-quoi-est-mort-le-rappeur-francais/)
+- **Dooz Kawa est décédé le 29 décembre 2025**: [Link](https://generations.fr/news/musique/80830/dooz-kawa-est-decede-le-29-decembre-2025)
+- **"Il laisse derrière lui le rap en PLS" : mort de Dooz Kawa, rappeur à la poésie philosophique et engagée**: [Link](https://www.ladepeche.fr/2025/12/30/il-laisse-derriere-lui-le-rap-en-pls-mort-de-dooz-kawa-rappeur-a-la-poesie-philosophique-et-engagee-13136822.php)
+
+
+### arsenal (N/A, Tue, 30 Dec 2025 13:10:00 -0800)
+
+- **Live Commentary - Arsenal vs Aston Villa | 30.12.2025**: [Link](https://www.skysports.com/football/arsenal-vs-aston-villa/live/531309)
+- **Team news: Gabriel and Timber back to face Villa**: [Link](https://www.arsenal.com/news/team-news-gabriel-and-timber-back-face-villa)
+- **Premier League: Reaction as leaders Arsenal beat Aston Villa, Man Utd held by Wolves**: [Link](https://www.bbc.com/sport/football/live/cx2nz71d72jt)
+
+
 ### new year's eve (N/A, Tue, 30 Dec 2025 15:20:00 -0800)
 
 - **Which fast food chains are open on New Year's Day 2026?**: [Link](https://www.marca.com/en/lifestyle/us-news/personal-finance/2025/12/30/69545025268e3e70498b458c.html)
