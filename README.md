@@ -1,3 +1,29 @@
+### aubameyang (N/A, Wed, 31 Dec 2025 11:20:00 -0800)
+
+- **Ex-Arsenal star Pierre-Emerick Aubameyang leaves Afcon with immediate effect**: [Link](https://www.thesun.co.uk/sport/37770076/aubameyang-leaves-afcon-group-stage/)
+- **AFCON 2025: It's a wrap for Aubameyang**: [Link](https://sportnewsafrica.com/en/alerts/afcon-2025-its-a-wrap-for-aubameyang)
+- **News | Injured Pierre-Emerick Aubameyang sent home from AFCON**: [Link](https://vodacomsoccer.com/news/injured-pierre-emerick-aubameyang-sent-home-from-afcon)
+
+
+### la can (N/A, Wed, 31 Dec 2025 11:20:00 -0800)
+
+
+
+
+### ترتيب مجموعات أمم أفريقيا 2025 (N/A, Wed, 31 Dec 2025 11:20:00 -0800)
+
+- **تعرف على منافس وموعد مباراة المغرب في ثمن نهائي أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%88%D8%A8%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF--%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltfc61105ccdbeee15)
+- **"تاريخ الركراكي" يتفوق على تنزانيا**: [Link](https://www.hespress.com/%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-1679730.html)
+- **بمدربه غاموندي ونجمه مسوفا.. تعرف على منتخب تانزانيا خصم "الأسود" في ثمن "الكان"**: [Link](https://www.hesport.com/%D8%A8%D9%85%D8%AF%D8%B1%D8%A8%D9%87-%D8%BA%D8%A7%D9%85%D9%88%D9%86%D8%AF%D9%8A-%D9%88%D9%86%D8%AC%D9%85%D9%87-%D9%85%D8%B3%D9%88%D9%81%D8%A7-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D9%85%D9%86-420518.html)
+
+
+### mozambique vs cameroon (N/A, Wed, 31 Dec 2025 11:10:00 -0800)
+
+- **Cameroon v Mozambique: Indomitable Lions seek roar against history-frenzied Mambas**: [Link](https://www.cafonline.com/afcon2025/news/cameroon-v-mozambique-indomitable-lions-seek-roar-against-history-frenzied-mambas/)
+- **Mozambique vs Cameroon: When & How to Watch AFCON 2025**: [Link](https://www.moroccoworldnews.com/2025/12/273433/mozambique-vs-cameroon-when-how-to-watch-afcon-2025/)
+- **Football accumulator tips for Wednesday December 31: Back our acca at 7-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-wednesday-december-31-back-our-acca-at-7-1-with-bet365-a26h73n0s0Ex/)
+
+
 ### موزمبيق ضد الكاميرون (N/A, Wed, 31 Dec 2025 11:00:00 -0800)
 
 
