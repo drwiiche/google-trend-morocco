@@ -1,3 +1,17 @@
+### africa cup of nations games (N/A, Wed, 31 Dec 2025 13:20:00 -0800)
+
+- **HIGHLIGHTS | Uganda 🆚 Nigeria | #TotalEnergiesAFCON2025 - Group C**: [Link](https://www.cafonline.com/afcon2025/videos/highlights-uganda-nigeria-totalenergiesafcon2025-group-c/)
+- **Afcon 2025: Nigeria win 3-1 to sweep Group C as 10-man Uganda use three goalkeepers**: [Link](https://www.bbc.com/sport/football/live/c2k4eqwpyw2t)
+- **In pics: matches of CAF Africa Cup of Nations 2025**: [Link](http://english.news.cn/20251231/061ea40d3e644b75a58516424b1ea143/c.html)
+
+
+### africa cup of nations standings (N/A, Wed, 31 Dec 2025 12:00:00 -0800)
+
+- **Sudan vs Burkina Faso: A high-stakes battle for second place**: [Link](https://www.cafonline.com/afcon2025/news/sudan-vs-burkina-faso-a-high-stakes-battle-for-second-place/)
+- **Afcon 2025: Sudan 0-2 Burkina Faso - Stallions secure second place in Group E**: [Link](https://www.bbc.com/sport/football/live/ce86r72yk20t)
+- **Sudan vs Burkina Faso: When and How to Watch AFCON Match**: [Link](https://www.moroccoworldnews.com/2025/12/273453/sudan-vs-burkina-faso-when-and-how-to-watch-afcon-match/)
+
+
 ### دور 16 كاس امم افريقيا 2025 (N/A, Wed, 31 Dec 2025 13:00:00 -0800)
 
 - **"تاريخ الركراكي" يتفوق على تنزانيا**: [Link](https://www.hespress.com/%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-1679730.html)
