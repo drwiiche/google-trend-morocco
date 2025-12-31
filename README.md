@@ -1,3 +1,31 @@
+### new year countdown (N/A, Wed, 31 Dec 2025 15:00:00 -0800)
+
+- **Minnesota weather: A chilling countdown to the New Year**: [Link](https://www.mprnews.org/story/2025/12/31/a-chilling-countdown-to-the-new-year)
+- **A very cold New Years tonight**: [Link](https://www.superiortelegram.com/video/Usqcl5LX)
+- **Bitter Cold Tonight for New Year’s Eve then some Light Snow for New Year’s Day morning.**: [Link](https://kstp.com/kstp-news/weather-forecast/bitter-cold-tonight-for-new-years-eve-then-some-light-snow-for-new-years-day-morning/)
+
+
+### countdown (N/A, Wed, 31 Dec 2025 15:00:00 -0800)
+
+- **Nerd’s Eye View: 13 things you need to know about the New Year**: [Link](https://www.thenewworld.co.uk/jonn-elledge-nerds-eye-view-13-things-you-need-to-know-about-the-new-year/)
+- **Midnight Bridge: New Year’s Eve Around the World**: [Link](https://vocal.media/humans/midnight-bridge-new-year-s-eve-around-the-world)
+- **Happy New Year 2026: History, Significance, and Why We Celebrate New Year’s Day**: [Link](https://www.indiaherald.com/Breaking/Read/994871354/Happy-New-Year-History-Significance-and-Why-We-Celebrate-New-Years-Day)
+
+
+### countdown 2026 (N/A, Wed, 31 Dec 2025 15:00:00 -0800)
+
+- **When the Best New Year’s Plans Are No New Year’s Plans**: [Link](https://www.nytimes.com/2025/12/29/style/new-years-eve-no-plans.html)
+- **'The Five': Americans plan to avoid New Year's Eve parties 'like the plague'**: [Link](https://www.foxnews.com/video/6387117620112)
+- **Netflix over a New Year's night out - when did Brits become so boring?**: [Link](https://www.lbc.co.uk/article/new-years-eve-night-out-5HjdQ48_2/)
+
+
+### heure (N/A, Wed, 31 Dec 2025 15:00:00 -0800)
+
+- **"Stranger Things" saison 5 : à quoi s'attendre de l'épisode final ?**: [Link](https://www.nrj.fr/cine-series/stranger-things-saison-5-a-quoi-sattendre-de-lepisode-final-71365802)
+- **Allez, c’est bientôt fini : voici le dernier trailer du dernier épisode de la dernière saison de Stranger Things**: [Link](https://www.konbini.com/popculture/allez-cest-bientot-fini-voici-le-dernier-trailer-du-dernier-episode-de-la-derniere-saison-de-stranger-things/)
+- **Netflix corrige une erreur flagrante dans l’épisode du Volume 2 de Stranger Things 5**: [Link](https://www.begeek.fr/netflix-corrige-une-erreur-flagrante-dans-lepisode-du-volume-2-de-stranger-things-5-426207)
+
+
 ### matchs de coupe d'afrique des nations de football (N/A, Wed, 31 Dec 2025 13:10:00 -0800)
 
 - **Huitièmes de finale de la CAN 2025 : le tableau provisoire**: [Link](https://medias24.com/2025/12/30/huitiemes-de-finale-de-la-can-2025-le-tableau-provisoire-1604103/)
