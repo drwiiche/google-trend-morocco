@@ -1,3 +1,17 @@
+### guinea ecuatorial - argelia (N/A, Wed, 31 Dec 2025 07:40:00 -0800)
+
+- **Guinea Ecuatorial vs. Argelia: horario y cómo ver el partido por la Copa Africana de Naciones 2025-2026**: [Link](https://es-us.noticias.yahoo.com/deportes/guinea-ecuatorial-vs-argelia-horario-120000008.html)
+- **Guinea Ecuatorial - Argelia: alineaciones probables, horarios y dónde ver**: [Link](https://news.bet365.es/es-es/article/guinea-ecuatorial-argelia-alineaciones-probables-horarios-y-donde-ver/2025123109320155818)
+- **Guinea Ecuatorial - Argelia en directo - Copa de África: Resultados y resúmenes de Fútbol - 31/12/2025**: [Link](https://www.eurosport.es/futbol/copa-de-africa/2025/live-guinea-ecuatorial-argelia_mtc1584168/live-commentary.shtml)
+
+
+### réveillon du nouvel an 2026 (N/A, Wed, 31 Dec 2025 07:30:00 -0800)
+
+- **« Je m’en fous carrément ! » : ils préfèrent passer le réveillon du Nouvel An sous la couette**: [Link](https://www.leparisien.fr/societe/je-men-fous-carrement-ils-preferent-passer-le-reveillon-du-nouvel-an-sous-la-couette-31-12-2025-JH4AQVKXHJG7TBPSRIT73RBPNU.php)
+- **« Un moment où tout semble exagéré », « un concept que je n’ai jamais compris »… Ces Brestois n’aiment pas le réveillon du Nouvel An**: [Link](https://www.letelegramme.fr/finistere/brest-29200/un-moment-ou-tout-semble-exagere-un-concept-que-je-nai-jamais-compris-ces-brestois-naiment-pas-le-reveillon-du-nouvel-an-6955666.php)
+- **Pression, culpabilisation, solitude… comment célébrer le Nouvel An est devenu "une obligation sociale"**: [Link](https://www.midilibre.fr/2025/12/31/reveillon-du-31-decembre-pression-culpabilisation-deprime-solitude-comment-cette-soiree-est-devenue-une-obligation-sociale-13136895.php)
+
+
 ### السودان ضد بوركينا فاسو (N/A, Wed, 31 Dec 2025 07:20:00 -0800)
 
 - **المنتخب السوداني يختتم دور المجموعات بمواجهة بوركينا فاسو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-2025-12-31)
