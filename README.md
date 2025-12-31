@@ -1,3 +1,10 @@
+### gabon – côte d'ivoire (N/A, Wed, 31 Dec 2025 10:10:00 -0800)
+
+- **DIRECT. Gabon-Côte d'Ivoire (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/gabon-cote-d-ivoire-live/670782)
+- **PRONOS PARIS RMC Le pari sûr du 31 décembre – CAN**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-31-decembre-can_AN-202512300009.html)
+- **Gabon – Côte d’Ivoire : finir avec honneur face au champion d’Afrique à Marrakech**: [Link](https://www.cafonline.com/fr/can2025/infos/gabon-cote-d-ivoire-finir-avec-honneur-face-au-champion-d-afrique-a-marrakech/)
+
+
 ### ibrahim maza (N/A, Wed, 31 Dec 2025 09:40:00 -0800)
 
 - **Afrika-Cup-Ticker: Maza überragt bei zweitem Sieg Algeriens – Kofane feiert Debüt für Kamerun**: [Link](https://www.bayer04.de/en-us/news/bayer04/afcon-blog-maza-shines-in-second-win-for-algeria-kofane-makes-debut-for-cameroon)
