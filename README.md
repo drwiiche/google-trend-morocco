@@ -1,3 +1,10 @@
+### al-kholood club – al-hilal (N/A, Wed, 31 Dec 2025 09:10:00 -0800)
+
+- **Preview: Al Kholood vs Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/al-kholood-vs-al-hilal-prediction-team-news-lineups_588709.html)
+- **Al-Kholood Vs Al-Hilal LIVE Score, Saudi Pro League 2025-26: The Pride Of Ar Rass Welcome Blue Waves In Buraidah**: [Link](https://www.outlookindia.com/sports/football/al-kholood-vs-al-hilal-fc-live-score-saudi-pro-league-2025-26-matchday-12-updates-highlights)
+- **Al Kholood vs Al Hilal Preview, prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-kholood-vs-al-hilal-preview-202512)
+
+
 ### algerie vs congo (N/A, Wed, 31 Dec 2025 08:40:00 -0800)
 
 - **Huitièmes de finale de la CAN 2025 : le tableau provisoire**: [Link](https://medias24.com/2025/12/30/huitiemes-de-finale-de-la-can-2025-le-tableau-provisoire-1604103/)
