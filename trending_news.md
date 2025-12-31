@@ -1,3 +1,10 @@
+### matchs de coupe d'afrique des nations de football (N/A, Wed, 31 Dec 2025 13:10:00 -0800)
+
+- **Huitièmes de finale de la CAN 2025 : le tableau provisoire**: [Link](https://medias24.com/2025/12/30/huitiemes-de-finale-de-la-can-2025-le-tableau-provisoire-1604103/)
+- **CAN 2025 : le tableau complet des matchs de la phase finale avec les dates et les horaires**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-le-tableau-complet-des-matchs-de-la-phase-finale-avec-les-dates-et-les-horaires-31-12-2025-6UFVGQAHCJEABEPLG5HMGL2J2U.php)
+- **CAN 2025 : au Maroc, l’autre match se joue contre les intox**: [Link](https://lematin.ma/nation/can-2025-au-maroc-lautre-match-se-joue-contre-les-intox/321950)
+
+
 ### 8eme de finale can 2025 (N/A, Wed, 31 Dec 2025 13:10:00 -0800)
 
 - **Walid Regragui : "Pour être champion d’Afrique, il faut être l’équipe la plus efficace"**: [Link](https://medias24.com/2025/12/30/walid-regragui-pour-etre-champion-dafrique-il-faut-etre-lequipe-la-plus-efficace-1604083/)
