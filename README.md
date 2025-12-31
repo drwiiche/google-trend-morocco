@@ -1,3 +1,10 @@
+### سنة سعيدة 2026 (N/A, Tue, 30 Dec 2025 23:40:00 -0800)
+
+- **عبارات العام الجديد 2026 أجمل كلمات لبدء سنة جديدة**: [Link](https://www.sayidaty.net/%D8%A8%D9%84%D8%B3/%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D9%81%D9%86%D9%88%D9%86/1826853-%D8%A3%D8%AC%D9%85%D9%84-%D8%B9%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D8%AF%D8%A1-%D8%B3%D9%86%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+- **36 أمنية ملهمة في العام الجديد لإرسالها إلى أحبائك في عام 2022**: [Link](https://www.albiladpress.com/news/2025/6287/tourist/967523.html)
+- **20 رسالة تهنئة رسمية للمديرين والزملاء بمناسبة العام الجديد2026**: [Link](https://www.elwatannews.com/news/details/8199258)
+
+
 ### bonne année 2026 (N/A, Tue, 30 Dec 2025 23:40:00 -0800)
 
 - **Nouvel An : les 120 meilleurs messages de vœux pour 2026**: [Link](https://fr.euronews.com/2025/12/30/nouvel-an-les-120-meilleurs-messages-de-voeux-pour-2026)
