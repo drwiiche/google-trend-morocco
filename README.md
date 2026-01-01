@@ -1,3 +1,10 @@
+### neujahr (N/A, Thu, 1 Jan 2026 00:00:00 -0800)
+
+- **Silvester Hamburg 2025/26 live: Spektakuläres Feuerwerk bei ZDF-Silvesterparty – Polizei in Steilshoop bedrängt**: [Link](https://www.abendblatt.de/hamburg/article410805654/silvester-hamburg-202526-live-spektakulaeres-feuerwerk-bei-zdf-silvesterparty-polizei-in-steilshoop-bedraengt.html)
+- **TV-Programm an Neujahr: Sendetermine der Highlights am 1.1.2026**: [Link](https://www.rnd.de/medien/tv-programm-an-neujahr-sendetermine-der-highlights-am-1-1-2026-YHGP5ZDIAFFRZMUC7AP42A2H3U.html)
+- **«Willkommen 2026» verfehlt die Drei-Millionen-Marke**: [Link](https://www.quotenmeter.de/n/167684/willkommen-2026-verfehlt-die-drei-millionen-marke)
+
+
 ### crans montana (N/A, Thu, 1 Jan 2026 01:30:00 -0800)
 
 - **Fire at new year’s party in Swiss ski resort kills several people: Live updates**: [Link](https://www.cnn.com/world/live-news/switzerland-ski-resort-fire-live-intl-hnk)
