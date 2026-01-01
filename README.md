@@ -1,3 +1,17 @@
+### zeturf (N/A, Thu, 1 Jan 2026 06:30:00 -0800)
+
+- **Equidia met le feu au Quinté+ du mercredi 31 décembre à Vincennes**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-mercredi-31-decembre-a-vincennes)
+- **Tiercé. Les pronostics de L'Alsace pour mercredi 31 décembre - Prix de Poitiers**: [Link](https://www.lalsace.fr/actualite/2025/12/30/les-pronostics-de-l-alsace-pour-mercredi-31-decembre-prix-de-poitiers)
+- **Les pronostics Quinté du 31/12/2025 à Vincennes**: [Link](https://www.europe1.fr/emissions/Pronostics-hippiques/les-pronostics-quinte-du-31-12-2025-a-vincennes-876967)
+
+
+### code général des impôts (N/A, Thu, 1 Jan 2026 06:20:00 -0800)
+
+- **Fiscalité. La DGI publie une note synthétique des nouvelles mesures fiscales et le CGI 2026 (Documents)**: [Link](https://medias24.com/2025/12/31/fiscalite-mise-en-ligne-du-code-general-des-impots-2026-1604605/)
+- **La DGI publie l’édition 2026 du Code général des impôts**: [Link](https://mobile.telquel.ma/instant-t/2025/12/31/la-dgi-publie-ledition-2026-du-code-general-des-impots_1968431/)
+- **Le détail de la refonte de la fiscalité et des règles douanières prenant en effet au 1er janvier 2026**: [Link](https://ledesk.ma/2025/12/31/le-detail-de-la-refonte-de-la-fiscalite-et-des-regles-douanieres-prenant-en-effet-au-1er-janvier-2026/)
+
+
 ### netflix stranger things (N/A, Thu, 1 Jan 2026 05:20:00 -0800)
 
 - **Stranger Things 5 Finale Ending Explained: What Happens to the Hawkins Crew?**: [Link](https://www.netflix.com/tudum/articles/stranger-things-5-episode-8-ending-explained)
