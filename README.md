@@ -1,3 +1,17 @@
+### maroc football (N/A, Wed, 31 Dec 2025 23:00:00 -0800)
+
+- **Huitièmes de finale de la CAN 2025 : le tableau provisoire**: [Link](https://medias24.com/2025/12/30/huitiemes-de-finale-de-la-can-2025-le-tableau-provisoire-1604103/)
+- **Une alléchante affiche des huitièmes de finale pour la Coupe d’Afrique des Nations TotalEnergies CAF Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/une-allechante-affiche-des-huitiemes-de-finale-pour-la-coupe-d-afrique-des-nations-totalenergies-caf-maroc-2025/)
+- **Abdou Diop : “Après le Mondial, il n‘y a pas de raison que le Maroc ne puisse pas organiser les Jeux Olympiques”**: [Link](https://mobile.telquel.ma/2025/12/30/abdou-diop-apres-le-mondial-il-ny-a-pas-de-raison-que-le-maroc-ne-puisse-pas-organiser-les-jeux-olympiques_1968287)
+
+
+### date (N/A, Wed, 31 Dec 2025 15:40:00 -0800)
+
+- **BTS Eager For 2026 Comeback News To Drop, Tease 'Something Big' Coming**: [Link](https://www.forbes.com/sites/jeffbenjamin/2025/12/28/bts-are-just-as-eager-for-their-comeback-news-to-drop-as-we-are/)
+- **K-pop's biggest names set for full-group comebacks in 2026**: [Link](https://www.koreatimes.co.kr/entertainment/k-pop/20251229/k-pops-biggest-names-set-for-full-group-comebacks-in-2026)
+- **BTS to return with new album on March 20**: [Link](https://koreajoongangdaily.joins.com/news/2026-01-01/entertainment/kpop/BTS-to-return-with-new-album-on-March-20/2490855)
+
+
 ### stranger things season 5 episode 8 (N/A, Wed, 31 Dec 2025 17:00:00 -0800)
 
 - **5 Scenes That Made ‘Stranger Things’ a Cultural Phenomenon**: [Link](https://www.backstage.com/magazine/article/stranger-things-best-scenes-79684/)
