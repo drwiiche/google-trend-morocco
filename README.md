@@ -1,3 +1,10 @@
+### crans montana (N/A, Thu, 1 Jan 2026 01:30:00 -0800)
+
+- **Fire at new year’s party in Swiss ski resort kills several people: Live updates**: [Link](https://www.cnn.com/world/live-news/switzerland-ski-resort-fire-live-intl-hnk)
+- **‘Many dead and injured’ in blast at bar in Swiss ski resort of Crans-Montana**: [Link](https://www.theguardian.com/world/2026/jan/01/several-dead-and-injured-in-explosion-swiss-ski-resort-town-crans-montana-police-say)
+- **Several Dead After Explosion and Fire at New Year’s Party in Switzerland**: [Link](https://www.nytimes.com/2026/01/01/world/europe/switzerland-bar-fire-deaths.html)
+
+
 ### kech24 (N/A, Wed, 31 Dec 2025 23:30:00 -0800)
 
 - **بالفيديو.. تفاصيل انهيار عمارة “عين مزوار” بمراكش**: [Link](https://www.marrakechalaan.com/article-658835)
