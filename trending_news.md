@@ -1,3 +1,10 @@
+### netflix stranger things (N/A, Thu, 1 Jan 2026 05:20:00 -0800)
+
+- **Stranger Things 5 Finale Ending Explained: What Happens to the Hawkins Crew?**: [Link](https://www.netflix.com/tudum/articles/stranger-things-5-episode-8-ending-explained)
+- **Stranger Things draws to an epic and emotional close**: [Link](https://www.bbc.com/news/articles/ckgl2je05j0o)
+- **AMC Boss Adam Aron Says ‘Stranger Things’ Finale Success Has Resulted In “Many Sellouts”; Circuit Reps Third Of Pic’s Business**: [Link](https://www.imdb.com/de/news/ni65639892/?ref_=nm_nwr_1)
+
+
 ### zoo ain sebaa (N/A, Thu, 1 Jan 2026 02:40:00 -0800)
 
 - **Zoo de Aïn Sebaâ : 300 animaux répartis sur 13 hectares**: [Link](https://medias24.com/2025/12/31/zoo-de-ain-sebaa-300-animaux-repartis-sur-13-hectares-1604663/)
