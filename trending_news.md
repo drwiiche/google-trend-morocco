@@ -1,3 +1,17 @@
+### zoo ain sebaa (N/A, Thu, 1 Jan 2026 02:40:00 -0800)
+
+- **Zoo de Aïn Sebaâ : 300 animaux répartis sur 13 hectares**: [Link](https://medias24.com/2025/12/31/zoo-de-ain-sebaa-300-animaux-repartis-sur-13-hectares-1604663/)
+- **Casablanca: Le zoo d’Aïn Sebaâ rouvre enfin ses portes**: [Link](https://www.leconomiste.com/casablanca-le-zoo-dain-sebaa-rouvre-enfin-ses-portes/)
+- **[Diaporama] 300 animaux, 3 continents : le zoo d’Aïn Sebaa fait peau neuve**: [Link](https://mobile.telquel.ma/diaporamas/diaporama-300-animaux-3-continents-le-zoo-dain-sebaa-fait-peau-neuve)
+
+
+### nieuwjaarsdag (N/A, Thu, 1 Jan 2026 01:20:00 -0800)
+
+- **2026 beginnen met boodschappen? Pas op: alle supermarkten in Doesburg zijn nieuwjaarsdag dicht**: [Link](https://www.ad.nl/doesburg/2026-beginnen-met-boodschappen-pas-op-alle-supermarkten-in-doesburg-zijn-nieuwjaarsdag-dicht~a94defa4/)
+- **Openingstijden supermarkten met oud en nieuw**: [Link](https://west-maas-en-waal.nieuws.nl/nieuws/openingstijden-supermarkten-met-oud-en-nieuw-4449)
+- **2026 beginnen met boodschappen? Pas op: in Hank, Sleeuwijk, Veen, Wijk en Aalburg en Woudrichem op nieuwjaarsdag geen open supermarkt**: [Link](https://www.bd.nl/altena/2026-beginnen-met-boodschappen-pas-op-in-hank-sleeuwijk-veen-wijk-en-aalburg-en-woudrichem-op-nieuwjaarsdag-geen-open-supermarkt~a053ea13/)
+
+
 ### maroc can 2025 (N/A, Thu, 1 Jan 2026 04:10:00 -0800)
 
 - **CAN 2025. Le tableau définitif des huitièmes de finale - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://private-admin.medias24.com/2025/12/31/can-2025-le-tableau-definitif-des-huitiemes-de-finale-1605119/)
