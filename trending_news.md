@@ -1,3 +1,24 @@
+### crystal palace – fulham (N/A, Thu, 1 Jan 2026 08:50:00 -0800)
+
+- **Fulham boss Marco Silva out to create Premier League history in Crystal Palace fixture**: [Link](https://www.sportsmole.co.uk/football/fulham/news/silva-out-to-create-premier-league-history-in-palace-fixture_588857.html)
+- **Silva on togetherness, club ambition & Crystal Palace**: [Link](https://www.aol.com/articles/silva-togetherness-club-ambition-crystal-161444078.html)
+- **Berge relishing upcoming challenges with Fulham to start 2026**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/berge-relishing-upcoming-challenges-with-fulham-to-start-2026-2025-12-31)
+
+
+### liverpool – leeds united (N/A, Thu, 1 Jan 2026 08:40:00 -0800)
+
+- **How to Watch Liverpool vs. Leeds: Live Streams & TV Channels**: [Link](https://www.thisisanfield.com/2026/01/how-to-watch-liverpool-vs-leeds-live-streams-and-tv-channels/)
+- **Slot: Players like Wirtz need time to adapt to Premier League intensity**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/slot-players-like-wirtz-need-time-to-adapt-to-premier-league-intensity-2026-01-01)
+- **Arne Slot reacts to Florian Wirtz’s performance vs Wolves**: [Link](https://onefootball.com/de/news/arne-slot-reacts-to-florian-wirtzs-performance-vs-wolves-42166300)
+
+
+### kylian mbappé real madrid (N/A, Thu, 1 Jan 2026 07:40:00 -0800)
+
+- **Mbappé medical report**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/medical-reports/parte-medico-de-mbappe-31-12-2025)
+- **Mbappe ends the year badly, suffers new injury**: [Link](https://indeksonline.net/en/He-ends-the-year-badly-and-suffers-a-new-injury./)
+- **Kylian Mbappé injured: how many games could he miss for Real Madrid in January 2026?**: [Link](https://www.gamereactor.eu/kylian-mbappe-injured-how-many-games-could-he-miss-for-real-madrid-in-january-2026-1655103/)
+
+
 ### watford vs birmingham (N/A, Thu, 1 Jan 2026 08:10:00 -0800)
 
 - **TCU 72-48 BYU (Dec 31, 2025) Game Recap**: [Link](https://www.espn.com/ncw/recap?gameId=401827297)
