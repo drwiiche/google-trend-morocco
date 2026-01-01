@@ -1,3 +1,17 @@
+### watford – birmingham (N/A, Thu, 1 Jan 2026 06:50:00 -0800)
+
+- **Blind faith, a moment of magic and the rarest of changes - predicted Birmingham City XI vs Watford**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/birmingham-city-team-news-watford-33147745)
+- **Birmingham preview: Gracia believes Watford squad 'feel part of something'**: [Link](https://www.watfordobserver.co.uk/sport/25732639.gracia-believes-watford-squad-feel-part-something/)
+- **Football Bet Of The Day: Aaron Ashley has picked out an 11-8 selection from the Championship**: [Link](https://www.racingpost.com/sport/football-tips/efl/football-bet-of-the-day-aGEOz7t35YAx/)
+
+
+### lauriane doumbouya (N/A, Thu, 1 Jan 2026 06:50:00 -0800)
+
+- **Guinée: sacre sans surprise du putschiste Mamadi Doumbouya, élu président**: [Link](https://medias24.com/agence-presse/guinee-sacre-sans-surprise-du-putschiste-mamadi-doumbouya-elu-president/)
+- **Guinée. «Du travail, c’est ce que je veux»: la jeunesse réagit à l’élection de Mamadi Doumbouya**: [Link](https://afrique.le360.ma/afrique-de-louest/guinee/guinee-du-travail-cest-ce-que-je-veux-la-jeunesse-reagit-a-lelection-de-mamadi-doumbouya_QJIH2B5D5RHD3JYQKYM22DTIKM/)
+- **« Son attitude ici intrigue » : qui est Lauriane Doumbouya, la gendarme française devenue Première dame de Guinée ?**: [Link](https://www.leparisien.fr/international/son-attitude-ici-intrigue-qui-est-lauriane-doumbouya-la-gendarme-francaise-devenue-premiere-dame-de-guinee-31-12-2025-W4TYRC2L6ZECHJ243NPMHBTIYU.php)
+
+
 ### zeturf (N/A, Thu, 1 Jan 2026 06:30:00 -0800)
 
 - **Equidia met le feu au Quinté+ du mercredi 31 décembre à Vincennes**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-mercredi-31-decembre-a-vincennes)
