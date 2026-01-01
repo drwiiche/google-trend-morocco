@@ -1,3 +1,10 @@
+### stranger things saison 5 (N/A, Wed, 31 Dec 2025 17:10:00 -0800)
+
+- **Stranger Things saison 5 : Quand sort le dernier épisode et quelle est sa durée ?**: [Link](https://www.programme-tv.net/news/series-tv/394915-stranger-things-saison-5-quand-sort-le-dernier-episode-et-quelle-est-sa-duree/)
+- **Allez, c’est bientôt fini : voici le dernier trailer du dernier épisode de la dernière saison de Stranger Things**: [Link](https://www.konbini.com/popculture/allez-cest-bientot-fini-voici-le-dernier-trailer-du-dernier-episode-de-la-derniere-saison-de-stranger-things/)
+- **Ross et Matt Duffer, les frères qui ont retourné Netflix avec "Stranger Things"**: [Link](https://www.lecho.be/entreprises/medias-divertissement/ross-et-matt-duffer-les-freres-qui-ont-retourne-netflix-avec-stranger-things/10642285.html)
+
+
 ### stranger things (N/A, Wed, 31 Dec 2025 15:50:00 -0800)
 
 - **‘Stranger Things’ Finale Expands Theatrical Release With More Locations Added; 1.1M+ RSVPs To Date**: [Link](https://deadline.com/2025/12/stranger-things-finale-theatrical-release-locations-added-1236658345/)
