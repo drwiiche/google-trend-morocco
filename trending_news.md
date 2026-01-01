@@ -1,3 +1,10 @@
+### tottenham (N/A, Thu, 1 Jan 2026 12:40:00 -0800)
+
+- **Brennan Johnson: Tottenham winger agrees to £35m Crystal Palace move**: [Link](https://www.bbc.com/sport/football/articles/c0kej88zvplo)
+- **Tottenham transfer news: Crystal Palace close in on £35m Brennan Johnson**: [Link](https://www.telegraph.co.uk/football/2025/12/30/crystal-palace-rival-bournemouth-brennan-johnson/)
+- **'Everything is possible' in January transfer window, says Glasner amid Johnson speculation**: [Link](https://sporty.com/news/everything-is-possible-in-january-transfer-window-says-glasner-amid-johnson-speculation/aa30625o9jnx1vuv4919zrdst)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Thu, 1 Jan 2026 12:00:00 -0800)
 
 - **فوز ليفربول وخسارة تشيلسي.. نتائج مباريات أمس في الدوري الإنجليزي**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2025/12/28/2915299/%D9%81%D9%88%D8%B2-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A3%D9%85%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-)
