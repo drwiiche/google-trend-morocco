@@ -1,3 +1,15 @@
+### día de año nuevo (N/A, Wed, 31 Dec 2025 17:50:00 -0800)
+
+
+
+
+### netflix (N/A, Wed, 31 Dec 2025 17:00:00 -0800)
+
+- **Classic WWE Content Is Coming To Netflix**: [Link](https://wrestlingnews.co/wwe-news/classic-wwe-content-coming-netflix/)
+- **WWE archival content set to leave Peacock**: [Link](https://www.f4wonline.com/news/wwe/wwe-archival-content-set-to-leave-peacock/)
+- **WWE Network listed in The Hollywood Reporter’s Biggest Hollywood Bummers of 2025 list**: [Link](https://www.wrestling-online.com/wwe/wwe-network-listed-in-the-hollywood-reporters-biggest-hollywood-bummers-of-2025-list/)
+
+
 ### stranger things saison 5 (N/A, Wed, 31 Dec 2025 17:10:00 -0800)
 
 - **Stranger Things saison 5 : Quand sort le dernier épisode et quelle est sa durée ?**: [Link](https://www.programme-tv.net/news/series-tv/394915-stranger-things-saison-5-quand-sort-le-dernier-episode-et-quelle-est-sa-duree/)
