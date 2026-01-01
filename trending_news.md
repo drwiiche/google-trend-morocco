@@ -1,3 +1,10 @@
+### brahim diaz maroc (N/A, Thu, 1 Jan 2026 01:00:00 -0800)
+
+- **CAN 2025 : les médias espagnols font l'éloge de Brahim Diaz**: [Link](https://fr.hespress.com/456369-can-2025-les-medias-espagnols-font-leloge-de-brahim-diaz.html)
+- **Maroc : ça s’agite en coulisses entre Brahim Diaz et le Real Madrid**: [Link](https://www.footmercato.net/a1609898712350497428-maroc-ca-sagite-en-coulisses-entre-brahim-diaz-et-le-real-madrid)
+- **Voici le secret du remplacement de Diaz (CAN MAROC)**: [Link](https://industries.ma/voici-le-secret-du-remplacement-de-diaz-can-maroc/)
+
+
 ### neujahr (N/A, Thu, 1 Jan 2026 00:00:00 -0800)
 
 - **Silvester Hamburg 2025/26 live: Spektakuläres Feuerwerk bei ZDF-Silvesterparty – Polizei in Steilshoop bedrängt**: [Link](https://www.abendblatt.de/hamburg/article410805654/silvester-hamburg-202526-live-spektakulaeres-feuerwerk-bei-zdf-silvesterparty-polizei-in-steilshoop-bedraengt.html)
