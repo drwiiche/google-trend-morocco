@@ -1,3 +1,10 @@
+### suisse (N/A, Thu, 1 Jan 2026 03:20:00 -0800)
+
+- **La Suisse est entrée en 2026 au son des cloches et sous les feux d'artifice**: [Link](https://www.rts.ch/info/suisse/2026/article/la-suisse-fete-2026-avec-feux-d-artifice-et-cloches-malgre-restrictions-29104745.html)
+- **Les grandes villes suisses réduisent leurs feux d’artifice pour la Saint-Sylvestre, invoquant des raisons écologiques et le bien-être animal. A Genève et Zurich, les festivités lumineuses résistent, tandis que Lausanne mise sur un spectacle de lumière à la cathé**: [Link](https://www.facebook.com/blickfr/photos/les-grandes-villes-suisses-r%C3%A9duisent-leurs-feux-dartifice-pour-la-saint-sylvestr/1244009457784311/)
+- **Nuit du réveillon: des feux sur les quais au risotto de Plainpalais**: [Link](https://www.tdg.ch/geneve-des-milliers-de-personnes-fetent-le-reveillon-2026-535245446319)
+
+
 ### watford – birmingham (N/A, Thu, 1 Jan 2026 06:50:00 -0800)
 
 - **Blind faith, a moment of magic and the rarest of changes - predicted Birmingham City XI vs Watford**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/birmingham-city-team-news-watford-33147745)
