@@ -1,3 +1,10 @@
+### alerte météo maroc (N/A, Thu, 1 Jan 2026 00:30:00 -0800)
+
+- **Alerte météo : rafales de vent localement fortes dans plusieurs provinces, vendredi 2 janvier**: [Link](https://medias24.com/2025/12/31/alerte-meteo-rafales-de-vent-localement-fortes-dans-plusieurs-provinces-vendredi-2-janvier-1604801/)
+- **Météo : vigilance orange pour de fortes rafales de vent ce vendredi dans plusieurs régions**: [Link](https://lematin.ma/regions/meteo-vigilance-orange-pour-de-fortes-rafales-de-vent/322101)
+- **Pluies, neige et temps instable... À quelle météo faut-il s’attendre cette semaine?**: [Link](https://fr.le360.ma/societe/pluies-neige-et-temps-instable-a-quelle-meteo-faut-il-sattendre-cette-semaine_67L2CTGXH5HRRC2TAL7ILAIJ2I/)
+
+
 ### mamadi doumbouya (N/A, Wed, 31 Dec 2025 18:50:00 -0800)
 
 - **Guinée: sacre sans surprise du putschiste Mamadi Doumbouya, élu président**: [Link](https://medias24.com/agence-presse/guinee-sacre-sans-surprise-du-putschiste-mamadi-doumbouya-elu-president/)
