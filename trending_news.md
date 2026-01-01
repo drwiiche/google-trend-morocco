@@ -1,3 +1,10 @@
+### المديرية العامة للأرصاد الجوية (N/A, Thu, 1 Jan 2026 11:10:00 -0800)
+
+- **عاصفة “فرانسيس” تقترب من المغرب.. والأرصاد تحذر من اضطراب جوي**: [Link](https://www.hespress.com/%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D9%81%D8%B1%D8%A7%D9%86%D8%B3%D9%8A%D8%B3-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A3-1680377.html)
+- **طقس اليوم.. أمطار ورياح قوية بعدة مناطق - هبة بريس**: [Link](https://ar.hibapress.com/details-690062.html)
+- **نشرة إنذارية: هبات رياح أحيانا قوية بعد غد الجمعة بعدد من مناطق المملكة**: [Link](https://2m.ma/ar/news/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D8%A3%D8%AD%D9%8A%D8%A7%D9%86%D8%A7-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%BA%D8%AF-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-20251231)
+
+
 ### brentford – tottenham (N/A, Thu, 1 Jan 2026 11:20:00 -0800)
 
 - **Seven players at risk of suspension as Tottenham face Brentford clash**: [Link](https://www.standard.co.uk/sport/football/tottenham-brentford-five-players-suspension-risk-b1264617.html)
