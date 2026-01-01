@@ -1,3 +1,10 @@
+### liverpool (N/A, Thu, 1 Jan 2026 09:50:00 -0800)
+
+- **Football gossip: Ordonez, Salah, Mateta, Fernandes, Traore, Vinicius Jr**: [Link](https://www.bbc.com/sport/football/articles/c5yv3d5gp1vo)
+- **Ecuador defender set to join Liverpool**: [Link](https://www.daveockop.com/transfer-news/ecuador-defender-set-to-join-liverpool/)
+- **Liverpool 'close' to surprise signing as Real Madrid opt AGAINST Anfield raid - multiple reports**: [Link](https://www.teamtalk.com/liverpool/close-shock-signing-real-madrid-opt-against-anfield-raid-multiple-reports)
+
+
 ### tottenham (N/A, Thu, 1 Jan 2026 12:40:00 -0800)
 
 - **Brennan Johnson: Tottenham winger agrees to £35m Crystal Palace move**: [Link](https://www.bbc.com/sport/football/articles/c0kej88zvplo)
