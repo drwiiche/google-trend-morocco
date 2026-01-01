@@ -1,3 +1,10 @@
+### stranger things season 5 episode 8 (N/A, Wed, 31 Dec 2025 17:00:00 -0800)
+
+- **5 Scenes That Made ‘Stranger Things’ a Cultural Phenomenon**: [Link](https://www.backstage.com/magazine/article/stranger-things-best-scenes-79684/)
+- **Every Episode of Stranger Things 5, Ranked**: [Link](https://collider.com/stranger-things-5-episodes-ranked/)
+- **The Best Moments of Stranger Things**: [Link](https://reactormag.com/the-best-moments-in-stranger-things/)
+
+
 ### día de año nuevo (N/A, Wed, 31 Dec 2025 17:50:00 -0800)
 
 
