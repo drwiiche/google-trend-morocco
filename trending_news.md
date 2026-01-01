@@ -1,3 +1,10 @@
+### maroc can 2025 (N/A, Thu, 1 Jan 2026 04:10:00 -0800)
+
+- **CAN 2025. Le tableau définitif des huitièmes de finale - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://private-admin.medias24.com/2025/12/31/can-2025-le-tableau-definitif-des-huitiemes-de-finale-1605119/)
+- **2025, l’année où le Maroc a dominé les terrains de football !**: [Link](https://lematin.ma/sports/2025-lannee-du-football-marocain-au-sommet/322137)
+- **Quand la Coupe d'Afrique des Nations s’invite dans les foyers marocains**: [Link](https://www.maroc.ma/fr/actualites/quand-la-coupe-dafrique-des-nations-sinvite-dans-les-foyers-marocains)
+
+
 ### brahim diaz maroc (N/A, Thu, 1 Jan 2026 01:00:00 -0800)
 
 - **CAN 2025 : les médias espagnols font l'éloge de Brahim Diaz**: [Link](https://fr.hespress.com/456369-can-2025-les-medias-espagnols-font-leloge-de-brahim-diaz.html)
