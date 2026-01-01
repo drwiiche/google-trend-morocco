@@ -1,3 +1,10 @@
+### premier league (N/A, Thu, 1 Jan 2026 11:30:00 -0800)
+
+- **Premier League LIVE: Liverpool vs Leeds & Crystal Palace vs Fulham - scores & updates**: [Link](https://www.bbc.com/sport/football/live/c2k4dqen3qlt)
+- **EV Eagle Picks Four Betting Tips for New Year's Day PL Action**: [Link](https://www.oddschecker.com/tips/football/ev-eagle-picks-four-betting-tips-for-new-years-day-pl-action)
+- **Sky Bet Sign Up Offer: Bet £1 Get £50 - Plus our Premier League preview**: [Link](https://www.sportinglife.com/free-bets/news/sky-bet-sign-up-offer-and-premier-league-preview-01012026/205)
+
+
 ### المديرية العامة للأرصاد الجوية (N/A, Thu, 1 Jan 2026 11:10:00 -0800)
 
 - **عاصفة “فرانسيس” تقترب من المغرب.. والأرصاد تحذر من اضطراب جوي**: [Link](https://www.hespress.com/%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D9%81%D8%B1%D8%A7%D9%86%D8%B3%D9%8A%D8%B3-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A3-1680377.html)
