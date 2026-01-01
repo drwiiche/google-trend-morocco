@@ -1,3 +1,10 @@
+### mamadi doumbouya (N/A, Wed, 31 Dec 2025 18:50:00 -0800)
+
+- **Guinée: sacre sans surprise du putschiste Mamadi Doumbouya, élu président**: [Link](https://medias24.com/agence-presse/guinee-sacre-sans-surprise-du-putschiste-mamadi-doumbouya-elu-president/)
+- **Présidentielle en Guinée: premiers résultats partiels, large avance du chef de la junte**: [Link](https://afrique.le360.ma/politique/presidentielle-en-guinee-premiers-resultats-partiels-large-avance-du-chef-de-la-junte_3UWLMMXO2BCHVKZNXOGTU364XA/)
+- **« Son attitude ici intrigue » : qui est Lauriane Doumbouya, la gendarme française devenue Première dame de Guinée ?**: [Link](https://www.leparisien.fr/international/son-attitude-ici-intrigue-qui-est-lauriane-doumbouya-la-gendarme-francaise-devenue-premiere-dame-de-guinee-31-12-2025-W4TYRC2L6ZECHJ243NPMHBTIYU.php)
+
+
 ### maroc football (N/A, Wed, 31 Dec 2025 23:00:00 -0800)
 
 - **Huitièmes de finale de la CAN 2025 : le tableau provisoire**: [Link](https://medias24.com/2025/12/30/huitiemes-de-finale-de-la-can-2025-le-tableau-provisoire-1604103/)
