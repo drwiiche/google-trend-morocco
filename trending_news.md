@@ -1,3 +1,10 @@
+### man city (N/A, Thu, 1 Jan 2026 12:50:00 -0800)
+
+- **Premier League LIVE: Sunderland host Man City, Brentford face Tottenham**: [Link](https://www.bbc.com/sport/football/live/c2k4dqen3qlt)
+- **Liverpool 0-0 Leeds United: Hugo Ekitike misses sitter in goalless draw at Anfield**: [Link](https://www.bbc.com/sport/football/live/c5yj1p9lx8vt)
+- **Liverpool vs Leeds predictions: In-form strikers to fire at Anfield**: [Link](https://www.goal.com/en-ca/betting/liverpool-vs-leeds-predictions-01-01/blt5e3018e7e7538bb5)
+
+
 ### premier league (N/A, Thu, 1 Jan 2026 11:30:00 -0800)
 
 - **Premier League LIVE: Liverpool vs Leeds & Crystal Palace vs Fulham - scores & updates**: [Link](https://www.bbc.com/sport/football/live/c2k4dqen3qlt)
