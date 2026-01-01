@@ -1,3 +1,10 @@
+### watford vs birmingham (N/A, Thu, 1 Jan 2026 08:10:00 -0800)
+
+- **TCU 72-48 BYU (Dec 31, 2025) Game Recap**: [Link](https://www.espn.com/ncw/recap?gameId=401827297)
+- **Miami 24-14 Ohio State (Dec 31, 2025) Box Score**: [Link](https://www.espn.com/college-football/boxscore/_/gameId/401769070)
+- **Comoros 0-0 Mali (Dec 29, 2025) Final Score**: [Link](https://www.espn.com/soccer/match/_/gameId/732158)
+
+
 ### suisse (N/A, Thu, 1 Jan 2026 03:20:00 -0800)
 
 - **La Suisse est entrée en 2026 au son des cloches et sous les feux d'artifice**: [Link](https://www.rts.ch/info/suisse/2026/article/la-suisse-fete-2026-avec-feux-d-artifice-et-cloches-malgre-restrictions-29104745.html)
