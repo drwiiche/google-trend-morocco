@@ -1,3 +1,10 @@
+### stranger things (N/A, Wed, 31 Dec 2025 15:50:00 -0800)
+
+- **‘Stranger Things’ Finale Expands Theatrical Release With More Locations Added; 1.1M+ RSVPs To Date**: [Link](https://deadline.com/2025/12/stranger-things-finale-theatrical-release-locations-added-1236658345/)
+- **Fans Think They Caught a Brief Glimpse of [SPOILER] in the New 'Stranger Things' Trailer**: [Link](https://www.cosmopolitan.com/entertainment/tv/a69892955/mind-flayer-final-stranger-things-season-5-trailer/)
+- **‘Stranger Things’ Season 5 Vol. 2 Recap: What to Remember Before the Series Finale**: [Link](https://www.thewrap.com/creative-content/tv-shows/stranger-things-season-5-volume-2-recap/)
+
+
 ### kick (N/A, Wed, 31 Dec 2025 15:40:00 -0800)
 
 - **Mernuel signals Kick's dominance for Spanish-language streamers**: [Link](https://win.gg/mernuel-kick-spanish-language-streamers/)
