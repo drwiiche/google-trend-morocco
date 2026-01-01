@@ -1,3 +1,17 @@
+### brentford – tottenham (N/A, Thu, 1 Jan 2026 11:20:00 -0800)
+
+- **Seven players at risk of suspension as Tottenham face Brentford clash**: [Link](https://www.standard.co.uk/sport/football/tottenham-brentford-five-players-suspension-risk-b1264617.html)
+- **Brentford vs Tottenham Hotspur predictions: Premier League tips and odds**: [Link](https://www.telegraph.co.uk/betting/football/brentford-vs-tottenham-prediction-tips-2025/)
+- **Brentford vs Tottenham: Get £40 free bets and bonus when you stake £10 on football with Tote**: [Link](https://www.thesun.co.uk/sport/37765613/brentford-vs-tottenham-free-bets-bonus-football-tote/)
+
+
+### sunderland – manchester city (N/A, Thu, 1 Jan 2026 11:10:00 -0800)
+
+- **Watch: Guardiola's press conference before Sunderland trip**: [Link](https://www.mancity.com/citytv/mens/pep-guardiola-sunderland-away-premier-league-press-conference-63902771)
+- **Pep provides injury update ahead of Sunderland clash**: [Link](https://onefootball.com/en/news/pep-provides-injury-update-ahead-of-sunderland-clash-42167197)
+- **Sunderland vs Manchester City Lineups, Injuries, Live Streaming, How & Where to Watch on TV**: [Link](https://sports.yahoo.com/articles/sunderland-vs-manchester-city-lineups-150000073.html)
+
+
 ### كريستال بالاس ضد فولهام (N/A, Thu, 1 Jan 2026 11:00:00 -0800)
 
 - **ماركو سيلفا قد يدخل تاريخ البريمييرليغ الليلة مع فولهام**: [Link](https://elsport.com/news/show/806157/%D9%85%D8%A7%D8%B1%D9%83%D9%88-%D8%B3%D9%8A%D9%84%D9%81%D8%A7-%D9%8A%D8%AF%D8%AE%D9%84-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D8%A7%D9%84%D9%84%D9%8A%D9%84%D8%A9-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85)
