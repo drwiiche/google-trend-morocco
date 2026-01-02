@@ -1,3 +1,10 @@
+### sporting (N/A, Fri, 2 Jan 2026 12:50:00 -0800)
+
+- **Gil Vicente x Sporting AO VIVO em direto: link para assistir jogo da Liga Portugal**: [Link](https://www.sportingnews.com/br/futebol/noticias/gil-vicente-sporting-ao-vivo-em-direto-link-assistir-jogo-liga-portugal-02-01/89fdfca244a105909b0f84d3)
+- **AO VIVO: Murilo quase marca na sequência do livre que dita a expulsão de Inácio (82')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-murilo-quase-marca-na-sequencia-do-livro-que-dita-a-expulsao-de-inacio-82/x2FTjAat/)
+- **Gil Vicente e Sporting empatam**: [Link](https://www.fpf.pt/pt/News/Todas-as-not%C3%ADcias/Not%C3%ADcia/news/54501)
+
+
 ### toulouse – lens (N/A, Fri, 2 Jan 2026 12:10:00 -0800)
 
 
