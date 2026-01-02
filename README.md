@@ -1,3 +1,17 @@
+### pleine lune janvier 2026 (N/A, Thu, 1 Jan 2026 23:20:00 -0800)
+
+- **L'horoscope de la semaine du 2 au 8 janvier : la première Pleine Lune de 2026 secoue les émotions**: [Link](https://www.voici.fr/astrologie/l-horoscope-de-la-semaine-du-2-au-8-janvier-la-premiere-pleine-lune-de-2026-secoue-les-emotions-816888)
+- **6 rituels à mettre en place autour de la Pleine Lune en Cancer du 3 janvier 2026**: [Link](https://www.vogue.fr/article/rituels-pleine-lune-en-cancer-3-janvier-2026)
+- **Quadrantides : les premières étoiles filantes de l’année 2026 illuminent le ciel**: [Link](https://www.sciencesetavenir.fr/espace/systeme-solaire/quadrantides-les-premieres-etoiles-filantes-de-l-annee-2026-illuminent-le-ciel_190244)
+
+
+### tableau final can 2025 maroc (N/A, Thu, 1 Jan 2026 16:40:00 -0800)
+
+- **Une alléchante affiche des huitièmes de finale pour la Coupe d’Afrique des Nations TotalEnergies CAF Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/une-allechante-affiche-des-huitiemes-de-finale-pour-la-coupe-d-afrique-des-nations-totalenergies-caf-maroc-2025/)
+- **CAN-2025: tableau complet des 8èmes de finale**: [Link](https://information.tv5monde.com/afrique/video/can-2025-tableau-complet-des-8emes-de-finale-2803485)
+- **Coupe d’Afrique des Nations 2025 : place aux huitièmes**: [Link](https://lematin.ma/sports/coupe-dafrique-des-nations-2025-place-aux-huitiemes/322181)
+
+
 ### meteo neige (N/A, Fri, 2 Jan 2026 03:00:00 -0800)
 
 - **Intempéries : suspension exceptionnelle des cours à Essaouira et Agadir Ida-Outanane**: [Link](https://ledesk.ma/encontinu/intemperies-suspension-exceptionnelle-des-cours-a-essaouira-et-agadir-ida-outanane/)
