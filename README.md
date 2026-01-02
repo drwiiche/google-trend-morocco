@@ -1,3 +1,10 @@
+### les jours fériés 2026 (N/A, Fri, 2 Jan 2026 00:10:00 -0800)
+
+- **Maroc calendrier : tous les jours fériés civils et religieux en 2026**: [Link](https://industries.ma/maroc-calendrier-tous-les-jours-feries-civils-et-religieux-en-2026/)
+- **Jour férié au Maroc : le 14 janvier, une fête nationale officielle**: [Link](https://industries.ma/jour-ferie-au-maroc-le-14-janvier-une-fete-nationale-officielle/)
+- **Jours fériés 2026 : cette combinaison de dates offre 17 jours en famille sans griller tous vos congés**: [Link](https://www.nextplz.fr/lifestyle/525141-jours-feries-2026-cette-combinaison-de-dates-offre-17-jours-en-famille-sans-griller-tous-vos-conges)
+
+
 ### zohran mamdani (N/A, Fri, 2 Jan 2026 00:40:00 -0800)
 
 - **Mamdani pledges ‘new era’ for New York and vows to govern ‘audaciously’**: [Link](https://www.theguardian.com/us-news/2026/jan/01/zohran-mamdani-inauguration-speech)
