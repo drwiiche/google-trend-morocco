@@ -1,3 +1,17 @@
+### sgtm bourse (N/A, Fri, 2 Jan 2026 00:40:00 -0800)
+
+- **SGTM : bugs, fixing et forte correction le 26 décembre… retour sur une séance qui a enflammé la place**: [Link](https://medias24.com/2025/12/31/sgtm-bugs-fixing-et-forte-correction-le-26-decembre-retour-sur-une-seance-qui-a-enflamme-la-place-1604115/)
+- **SGTM : faut-il s’étonner de son succès boursier ?**: [Link](https://mobile.telquel.ma/2025/12/31/sgtm-faut-il-setonner-de-son-succes-boursier_1968454)
+- **Bourse de Casablanca : Les échanges à 29,86 milliards de DH en décembre 2025**: [Link](https://www.leconomiste.com/flash-infos/bourse-de-casablanca-les-echanges-a-2986-milliards-de-dh-en-decembre-2025/)
+
+
+### janvier (N/A, Fri, 2 Jan 2026 00:40:00 -0800)
+
+- **L'horoscope de la semaine du 2 au 8 janvier : la première Pleine Lune de 2026 secoue les émotions**: [Link](https://www.voici.fr/astrologie/l-horoscope-de-la-semaine-du-2-au-8-janvier-la-premiere-pleine-lune-de-2026-secoue-les-emotions-816888)
+- **Eclipse solaire, pluies d'étoiles filantes, "super Lune"... Les événements astronomiques à ne pas manquer en 2026**: [Link](https://www.franceinfo.fr/sciences/astronomie/eclipse-solaire-pluies-d-etoiles-filantes-super-lune-les-evenements-astronomiques-a-ne-pas-manquer-en-2026_7682701.html)
+- **Ces 4 signes astrologiques seront les plus chamboulés par la super pleine lune du 3 janvier 2026**: [Link](https://www.lardennais.fr/id776018/article/2026-01-01/ces-4-signes-astrologiques-seront-les-plus-chamboules-par-la-super-pleine-lune)
+
+
 ### can 2025 match (N/A, Thu, 1 Jan 2026 23:10:00 -0800)
 
 - **Une alléchante affiche des huitièmes de finale pour la Coupe d’Afrique des Nations TotalEnergies CAF Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/une-allechante-affiche-des-huitiemes-de-finale-pour-la-coupe-d-afrique-des-nations-totalenergies-caf-maroc-2025/)
