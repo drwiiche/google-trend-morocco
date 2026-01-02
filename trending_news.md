@@ -1,3 +1,17 @@
+### météo maroc pluies (N/A, Fri, 2 Jan 2026 08:20:00 -0800)
+
+- **Intempéries: trois provinces placées en vigilance rouge**: [Link](https://medias24.com/2026/01/02/intemperies-trois-provinces-placees-en-vigilance-rouge-1605383/)
+- **Tempête Francis : le Maroc affecté jusqu’au mercredi 7 janvier**: [Link](https://ledesk.ma/encontinu/tempete-francis-le-maroc-affecte-jusquau-7-janvier/)
+- **Fortes pluies, chutes de neige et fortes rafales de vent vendredi et samedi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-chutes-de-neige-et-fortes-rafales-de-vent-vendredi-et-samedi/322343)
+
+
+### gyrophare espagne (N/A, Fri, 2 Jan 2026 07:30:00 -0800)
+
+- **Si vous roulez en Espagne, le gyrophare désormais obligatoire à partir de ce 1er janvier 2026**: [Link](https://fr.le360.ma/societe/si-vous-roulez-en-espagne-le-gyrophare-desormais-obligatoire-a-partir-de-ce-1er-janvier-2026_ELSNAEL2UJAEVO5T45TQ26PX3U/)
+- **Voiture : un équipement devient obligatoire en Espagne au 1er janvier, les touristes français doivent-ils s’en munir en cas de déplacement**: [Link](https://www.larepubliquedespyrenees.fr/societe/securite-routiere/voiture-un-equipement-devient-obligatoire-en-espagne-au-1er-janvier-les-touristes-francais-doivent-ils-s-en-munir-en-cas-de-deplacement-27245427.php)
+- **Sécurité routière : les conducteurs outre-Pyrénées passent au gyrophare**: [Link](https://www.mediabask.eus/fr/info_mbsk/20251231/securite-routiere-les-conducteurs-outre-pyrenees-passent-au-gyrophare)
+
+
 ### jours fériés maroc 2026 (N/A, Thu, 1 Jan 2026 22:50:00 -0800)
 
 - **Jour férié au Maroc : le 14 janvier, une fête nationale officielle**: [Link](https://industries.ma/jour-ferie-au-maroc-le-14-janvier-une-fete-nationale-officielle/)
