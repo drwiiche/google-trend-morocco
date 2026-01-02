@@ -1,3 +1,10 @@
+### zohran mamdani (N/A, Fri, 2 Jan 2026 00:40:00 -0800)
+
+- **Mamdani pledges ‘new era’ for New York and vows to govern ‘audaciously’**: [Link](https://www.theguardian.com/us-news/2026/jan/01/zohran-mamdani-inauguration-speech)
+- **Will Zohran Mamdani Be the 111th or the 112th Mayor of New York? It Depends.**: [Link](https://www.nytimes.com/2025/12/25/nyregion/will-mamdani-be-the-111th-or-the-112th-mayor-of-new-york-it-depends.html)
+- **Zohran Mamdani chose a Quran full of symbolism for his mayoral oath**: [Link](https://apnews.com/article/zohran-mamdani-quran-mayor-swearing-f737b0faf9a6190ac757e60a566e688a)
+
+
 ### jour férié 2026 (N/A, Fri, 2 Jan 2026 01:20:00 -0800)
 
 - **Jours fériés 2026 : cette combinaison de dates offre 17 jours en famille sans griller tous vos congés**: [Link](https://www.nextplz.fr/lifestyle/525141-jours-feries-2026-cette-combinaison-de-dates-offre-17-jours-en-famille-sans-griller-tous-vos-conges)
