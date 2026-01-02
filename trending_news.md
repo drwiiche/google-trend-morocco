@@ -1,3 +1,10 @@
+### cagliari – ac milan (N/A, Fri, 2 Jan 2026 11:00:00 -0800)
+
+- **Cagliari v AC Milan, Serie A Enilive 2025/2026: the photogallery**: [Link](https://www.acmilan.com/en/news/photogallery/serie-a/2026-01-02/cagliari-v-ac-milan-serie-a-2025-26)
+- **Niclas Füllkrug, new signing of AC Milan's transfer market: the photogallery**: [Link](https://www.acmilan.com/en/news/photogallery/media/2026-01-02/niclas-fullkrug-s-first-steps-in-rossonero)
+- **Every Goal of 2025**: [Link](https://www.acmilan.com/en/news/videos/hotlist/2025-12-31/every-goal-of-2025)
+
+
 ### tempete francis (N/A, Fri, 2 Jan 2026 08:10:00 -0800)
 
 - **Tempête Francis : le Maroc affecté jusqu’au 7 janvier**: [Link](https://ledesk.ma/encontinu/tempete-francis-le-maroc-affecte-jusquau-7-janvier/)
