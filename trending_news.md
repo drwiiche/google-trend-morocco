@@ -1,3 +1,15 @@
+### toulouse – lens (N/A, Fri, 2 Jan 2026 12:10:00 -0800)
+
+
+
+
+### الطقس غدًا (N/A, Fri, 2 Jan 2026 11:50:00 -0800)
+
+- **أمطار وشبورة كثيفة.. تحذيرات من حالة الطقس في مصر**: [Link](https://al-ain.com/article/egypt-light-rain-fog-weather)
+- **الأرصاد: طقس الغد مائل للدفء نهارا شديد البرودة ليلا والعظمى بالقاهرة 19**: [Link](https://darelhilal.com/News/3152968.aspx)
+- **توقعات الضباب المتنقل وحالة الطقس ودرجات الحرارة في جميع مناطق المملكة اليوم الجمعة**: [Link](https://harammissr.com/37968/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B6%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%AA%D9%86%D9%82%D9%84-%D9%88%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%88%D8%AF%D8%B1/)
+
+
 ### championnat d'arabie saoudite (N/A, Fri, 2 Jan 2026 11:40:00 -0800)
 
 - **Cristiano Ronaldo, c’est fini !**: [Link](https://www.football.fr/etranger/arabie-saoudite/cristiano-ronaldo-cest-fini-3-792508.html)
