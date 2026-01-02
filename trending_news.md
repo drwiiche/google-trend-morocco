@@ -1,3 +1,10 @@
+### pleine lune janvier 2026 astrologie (N/A, Fri, 2 Jan 2026 11:30:00 -0800)
+
+- **L'horoscope de la semaine du 2 au 8 janvier : la première Pleine Lune de 2026 secoue les émotions**: [Link](https://www.voici.fr/astrologie/l-horoscope-de-la-semaine-du-2-au-8-janvier-la-premiere-pleine-lune-de-2026-secoue-les-emotions-816888)
+- **Eclipse solaire, pluies d'étoiles filantes, "super Lune"... Les événements astronomiques à ne pas manquer en 2026**: [Link](https://www.franceinfo.fr/sciences/astronomie/eclipse-solaire-pluies-d-etoiles-filantes-super-lune-les-evenements-astronomiques-a-ne-pas-manquer-en-2026_7682701.html)
+- **Si vous prévoyez d'assister à la pluie de météores Quadrantid ce week-end, sachez que la lumière de la lune va tout changer**: [Link](https://portosecreto.co/fr/pluie-de-meteores-quadrantides-janvier/)
+
+
 ### rayo – getafe (N/A, Fri, 2 Jan 2026 11:20:00 -0800)
 
 - **Rayo Vallecano - Getafe: horario, dónde ver en TV y canal del partido de LaLiga EA Sports**: [Link](https://www.marca.com/futbol/primera-division/2025/12/31/rayo-vallecano-getafe-horario-donde-ver-en-tv-y-canal-del-partido-de-laliga-ea-sports.html)
