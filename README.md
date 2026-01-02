@@ -1,3 +1,10 @@
+### tempete francis (N/A, Fri, 2 Jan 2026 08:10:00 -0800)
+
+- **Tempête Francis : le Maroc affecté jusqu’au 7 janvier**: [Link](https://ledesk.ma/encontinu/tempete-francis-le-maroc-affecte-jusquau-7-janvier/)
+- **Intempéries: trois provinces placées en vigilance rouge**: [Link](https://medias24.com/2026/01/02/intemperies-trois-provinces-placees-en-vigilance-rouge-1605383/)
+- **Fortes pluies, chutes de neige et fortes rafales de vent vendredi et samedi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-chutes-de-neige-et-fortes-rafales-de-vent-vendredi-et-samedi/322343)
+
+
 ### الأهلي ضد النصر (N/A, Fri, 2 Jan 2026 09:10:00 -0800)
 
 - **كلاسيكو الضربة القاضية.. هل يضع جيسوس حدًا لصدمات يايسله؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%B6%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A7%D8%B6%D9%8A%D8%A9--%D9%87%D9%84-%D9%8A%D8%B6%D8%B9-%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D8%AD%D8%AF%D9%8B%D8%A7-%D9%84%D8%B5%D8%AF%D9%85%D8%A7%D8%AA-%D9%8A%D8%A7%D9%8A%D8%B3%D9%84%D9%87/bltce734e4e3302bd05)
