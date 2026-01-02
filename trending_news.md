@@ -1,3 +1,10 @@
+### rayo – getafe (N/A, Fri, 2 Jan 2026 11:20:00 -0800)
+
+- **Rayo Vallecano - Getafe: horario, dónde ver en TV y canal del partido de LaLiga EA Sports**: [Link](https://www.marca.com/futbol/primera-division/2025/12/31/rayo-vallecano-getafe-horario-donde-ver-en-tv-y-canal-del-partido-de-laliga-ea-sports.html)
+- **Que el año nuevo acabe con la sequía**: [Link](https://www.pressreader.com/spain/marca-madridef1m/20260102/281698326114677)
+- **Noticias Deportes: Rayo y Getafe en derbi madrileño, Sainz busca su último Dakar y cambios en F1 2026**: [Link](https://www.madridactual.es/deportes/noticias-deportes-rayo-y-getafe-en-derbi-madrileno-sainz-busca-20260102-8076540.html)
+
+
 ### cagliari – ac milan (N/A, Fri, 2 Jan 2026 11:00:00 -0800)
 
 - **Cagliari v AC Milan, Serie A Enilive 2025/2026: the photogallery**: [Link](https://www.acmilan.com/en/news/photogallery/serie-a/2026-01-02/cagliari-v-ac-milan-serie-a-2025-26)
