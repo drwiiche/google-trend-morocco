@@ -1,3 +1,10 @@
+### al-ahli saudi – al-nassr fc (N/A, Fri, 2 Jan 2026 08:50:00 -0800)
+
+- **Preview: Al-Ahli vs Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ahli/preview/al-ahli-vs-al-nassr-prediction-team-news-lineups_588900.html)
+- **Portuguese coach Jorge Jesus studies left-back replacement for Al-Ahli clash**: [Link](https://www.ysscores.com/en/news/13882947/Portuguese-coach-Jorge-Jesus-studies-left-back-replacement-for-Al-Ahli-clash)
+- **Is Cristiano Ronaldo Playing Tonight for Al Nassr vs Al Ahli Saudi?**: [Link](https://www.yardbarker.com/soccer/articles/is_cristiano_ronaldo_playing_tonight_for_al_nassr_vs_al_ahli_saudi/s1_17615_43276292)
+
+
 ### météo maroc pluies (N/A, Fri, 2 Jan 2026 08:20:00 -0800)
 
 - **Intempéries: trois provinces placées en vigilance rouge**: [Link](https://medias24.com/2026/01/02/intemperies-trois-provinces-placees-en-vigilance-rouge-1605383/)
