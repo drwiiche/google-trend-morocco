@@ -1,3 +1,10 @@
+### milan ac (N/A, Fri, 2 Jan 2026 13:50:00 -0800)
+
+- **DIRECT. Cagliari-AC Milan (Serie A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/cagliari-ac-milan-live/673146)
+- **PRONOS PARIS RMC Le pari extérieur du 2 janvier – Série A - Italie**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-exterieur-du-2-janvier-serie-a-italie_AN-202601010361.html)
+- **AC Milan : coup dur pour Christopher Nkunku**: [Link](https://www.footmercato.net/a8472370219814103477-ac-milan-coup-dur-pour-christopher-nkunku)
+
+
 ### sporting (N/A, Fri, 2 Jan 2026 12:50:00 -0800)
 
 - **Gil Vicente x Sporting AO VIVO em direto: link para assistir jogo da Liga Portugal**: [Link](https://www.sportingnews.com/br/futebol/noticias/gil-vicente-sporting-ao-vivo-em-direto-link-assistir-jogo-liga-portugal-02-01/89fdfca244a105909b0f84d3)
