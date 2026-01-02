@@ -1,3 +1,10 @@
+### city (N/A, Thu, 1 Jan 2026 13:50:00 -0800)
+
+- **Portlanders continue decades-old tradition with New Year's Day bike ride**: [Link](https://katu.com/news/local/portlanders-continue-decades-old-tradition-with-new-years-day-bike-ride)
+- **Five rides to roll in the new year**: [Link](https://bikeportland.org/2025/12/30/five-rides-to-roll-in-the-new-year-398770)
+- **Portland’s annual New Year’s Day bike ride sees pugs, city councilor riding in the rain**: [Link](https://www.oregonlive.com/portland/2026/01/portlands-annual-new-years-day-bike-ride-sees-pugs-city-councilor-riding-in-the-rain.html)
+
+
 ### liverpool (N/A, Thu, 1 Jan 2026 09:50:00 -0800)
 
 - **Football gossip: Ordonez, Salah, Mateta, Fernandes, Traore, Vinicius Jr**: [Link](https://www.bbc.com/sport/football/articles/c5yv3d5gp1vo)
