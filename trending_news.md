@@ -1,3 +1,10 @@
+### jours fériés maroc 2026 (N/A, Thu, 1 Jan 2026 22:50:00 -0800)
+
+- **Jour férié au Maroc : le 14 janvier, une fête nationale officielle**: [Link](https://industries.ma/jour-ferie-au-maroc-le-14-janvier-une-fete-nationale-officielle/)
+- **Jours fériés et vacances scolaires : voici le calendrier complet de 2026**: [Link](https://www.lebrief.ma/jours-feries-et-vacances-scolaires-toutes-les-dates-a-connaitre-pour-2026-100136291/)
+- **Calendrier officiel des jours fériés 2026 en Tunisie**: [Link](https://businessnews.com.tn/2025/12/29/calendrier-officiel-des-jours-feries-2026-en-tunisie/1380768/)
+
+
 ### مباريات كاس افريقيا اليوم (N/A, Fri, 2 Jan 2026 05:30:00 -0800)
 
 - **لاعبون عرب يتصدرون نجوم مواجهات ثمن نهائي أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/2026/1/2/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%85%D8%AD%D8%B1%D8%B2-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
