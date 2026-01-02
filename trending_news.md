@@ -1,3 +1,17 @@
+### jour férié 2026 (N/A, Fri, 2 Jan 2026 01:20:00 -0800)
+
+- **Jours fériés 2026 : cette combinaison de dates offre 17 jours en famille sans griller tous vos congés**: [Link](https://www.nextplz.fr/lifestyle/525141-jours-feries-2026-cette-combinaison-de-dates-offre-17-jours-en-famille-sans-griller-tous-vos-conges)
+- **Vacances scolaires et jours fériés : découvrez les dates du calendrier pour 2026-2027, zone par zone**: [Link](https://www.sortiraparis.com/actualites/a-paris/articles/225458-vacances-scolaires-et-jours-feries-decouvrez-les-dates-du-calendrier-pour-2026-2027-zone-par-zone)
+- **Jours fériés 2026 à Barcelone : 8 longs week-ends avec 5 jours posés**: [Link](https://www.equinoxmagazine.fr/2026/01/02/jours-feries-2026-a-barcelone/)
+
+
+### calendrier 2026 (N/A, Fri, 2 Jan 2026 00:20:00 -0800)
+
+- **Calendrier des épreuves 2026**: [Link](https://www.cyclisme.bzh/calendrier-des-epreuves/)
+- **CC Moncontour calendrier 2026 des courses cyclistes**: [Link](https://velopressecollection.ouest-france.fr/actualites/34553-cc-moncontour-calendrier-2026-des-courses-cyclistes.html)
+- **Sports. Une année folle en ping, Quiberon, du trail et du cyclisme : les évènements sportifs dans le Morbihan en 2026**: [Link](https://vannes.maville.com/sport/detail_-sports.-une-annee-folle-en-ping-quiberon-du-trail-et-du-cyclisme-les-evenements-sportifs-dans-le-morbihan-en-2026-_loc-7128004_actu.Htm)
+
+
 ### sgtm bourse (N/A, Fri, 2 Jan 2026 00:40:00 -0800)
 
 - **SGTM : bugs, fixing et forte correction le 26 décembre… retour sur une séance qui a enflammé la place**: [Link](https://medias24.com/2025/12/31/sgtm-bugs-fixing-et-forte-correction-le-26-decembre-retour-sur-une-seance-qui-a-enflamme-la-place-1604115/)
