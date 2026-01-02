@@ -1,3 +1,10 @@
+### meteo neige (N/A, Fri, 2 Jan 2026 03:00:00 -0800)
+
+- **Intempéries : suspension exceptionnelle des cours à Essaouira et Agadir Ida-Outanane**: [Link](https://ledesk.ma/encontinu/intemperies-suspension-exceptionnelle-des-cours-a-essaouira-et-agadir-ida-outanane/)
+- **Pluies, neige et vent fort: la météo détaillée du vendredi**: [Link](https://industries.ma/pluies-neige-et-vent-fort-la-meteo-detaillee-du-vendredi/)
+- **Météo agitée: pluies, rafales de vent et refroidissement au programme à partir de ce vendredi**: [Link](https://fr.le360.ma/societe/meteo-agitee-pluies-rafales-de-vent-et-refroidissement-au-programme-a-partir-de-ce-vendredi_4JZMZ7IQBRGO7OUVVA4QX6CJN4/)
+
+
 ### les jours fériés 2026 (N/A, Fri, 2 Jan 2026 00:10:00 -0800)
 
 - **Maroc calendrier : tous les jours fériés civils et religieux en 2026**: [Link](https://industries.ma/maroc-calendrier-tous-les-jours-feries-civils-et-religieux-en-2026/)
