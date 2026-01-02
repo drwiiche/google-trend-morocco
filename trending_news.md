@@ -1,3 +1,10 @@
+### مباريات كاس افريقيا اليوم (N/A, Fri, 2 Jan 2026 05:30:00 -0800)
+
+- **لاعبون عرب يتصدرون نجوم مواجهات ثمن نهائي أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/2026/1/2/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%85%D8%AD%D8%B1%D8%B2-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **سيناريو مجنون يدفع العرب لحدث تاريخي في ربع نهائي أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D8%AC%D9%86%D9%88%D9%86%D9%8A--%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D8%AD%D8%AA%D9%85%D8%A7%D9%84-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82-%D9%81%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt5434a21a98ed60f8)
+- **اكتمال برنامج مباريات الدور ثمن النهائي لمنافسة كأس أمم إفريقيا توتال إنيرجيز المغرب 2025**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%83%D8%AA%D9%85%D8%A7%D9%84-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%AB%D9%85%D9%86-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/)
+
+
 ### pleine lune janvier 2026 (N/A, Thu, 1 Jan 2026 23:20:00 -0800)
 
 - **L'horoscope de la semaine du 2 au 8 janvier : la première Pleine Lune de 2026 secoue les émotions**: [Link](https://www.voici.fr/astrologie/l-horoscope-de-la-semaine-du-2-au-8-janvier-la-premiere-pleine-lune-de-2026-secoue-les-emotions-816888)
