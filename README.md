@@ -1,3 +1,10 @@
+### championnat d'arabie saoudite (N/A, Fri, 2 Jan 2026 11:40:00 -0800)
+
+- **Cristiano Ronaldo, c’est fini !**: [Link](https://www.football.fr/etranger/arabie-saoudite/cristiano-ronaldo-cest-fini-3-792508.html)
+- **Un 957e but chanceux pour Cristiano Ronaldo**: [Link](https://www.7sur7.be/football/un-957e-but-chanceux-pour-cristiano-ronaldo~aa8c3a3f/)
+- **Cristiano Ronaldo Atteint Les 1 300 Matches, Un Jalon Historique**: [Link](https://maliactu.net/cristiano-ronaldo-atteint-les-1-300-matches-un-jalon-historique/)
+
+
 ### pleine lune janvier 2026 astrologie (N/A, Fri, 2 Jan 2026 11:30:00 -0800)
 
 - **L'horoscope de la semaine du 2 au 8 janvier : la première Pleine Lune de 2026 secoue les émotions**: [Link](https://www.voici.fr/astrologie/l-horoscope-de-la-semaine-du-2-au-8-janvier-la-premiere-pleine-lune-de-2026-secoue-les-emotions-816888)
