@@ -1,3 +1,17 @@
+### rayo vallecano (N/A, Fri, 2 Jan 2026 14:20:00 -0800)
+
+- **🚨 Rayo Vallecano-Getafe: starting line-ups confirmed for the derby**: [Link](https://sports.yahoo.com/articles/rayo-vallecano-getafe-starting-line-190700127.html)
+- **Getafe and Rayo Vallecano unable to settle bout with cautious jabs**: [Link](https://www.football-espana.net/2026/01/02/rayo-vallecano-getafe)
+- **Rayo - Getafe live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/rayo-getafe/2026/01/02/01_0101_20260102_184_1450-live.html)
+
+
+### cagliari - milan (N/A, Fri, 2 Jan 2026 13:10:00 -0800)
+
+- **Al Milan basta un lampo di Leao per battere il Cagliari: Allegri torna al primo posto**: [Link](https://www.gazzetta.it/Calcio/Serie-A/02-01-2026/cagliari-milan-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-1-0-milan-a-cagliari-con-gol-di-leao-e-debutto-di-fullkrug-tris-del-lens-a-tolosa/SK1IN9Q9/)
+- **Tutti gli assist della 18a giornata LIVE: arriva il bonus per Rabiot contro il Cagliari**: [Link](https://www.sosfanta.com/assist-fantacalcio/tutti-gli-assist-della-18a-giornata-live-arriva-il-bonus-per-rabiot-contro-il-cagliari/)
+
+
 ### milan ac (N/A, Fri, 2 Jan 2026 13:50:00 -0800)
 
 - **DIRECT. Cagliari-AC Milan (Serie A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/cagliari-ac-milan-live/673146)
