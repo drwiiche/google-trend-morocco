@@ -1,3 +1,10 @@
+### الأهلي ضد النصر (N/A, Fri, 2 Jan 2026 09:10:00 -0800)
+
+- **كلاسيكو الضربة القاضية.. هل يضع جيسوس حدًا لصدمات يايسله؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%B6%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A7%D8%B6%D9%8A%D8%A9--%D9%87%D9%84-%D9%8A%D8%B6%D8%B9-%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D8%AD%D8%AF%D9%8B%D8%A7-%D9%84%D8%B5%D8%AF%D9%85%D8%A7%D8%AA-%D9%8A%D8%A7%D9%8A%D8%B3%D9%84%D9%87/bltce734e4e3302bd05)
+- **مباشر.. مباراة الأهلي ضد النصر في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/2/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A)
+- **الموعد والقنوات الناقلة لقمة الأهلي والنصر**: [Link](https://24.ae/article/939234/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D9%86%D8%B5%D8%B1)
+
+
 ### al-ahli saudi – al-nassr fc (N/A, Fri, 2 Jan 2026 08:50:00 -0800)
 
 - **Preview: Al-Ahli vs Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ahli/preview/al-ahli-vs-al-nassr-prediction-team-news-lineups_588900.html)
