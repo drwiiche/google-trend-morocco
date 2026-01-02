@@ -1,3 +1,10 @@
+### سندرلاند ضد مان سيتي (N/A, Thu, 1 Jan 2026 11:20:00 -0800)
+
+- **هدية لآرسنال.. سندرلاند يفرض التعادل على مانشستر سيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D8%AF%D9%8A%D8%A9-%D9%84%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84--%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D9%81%D8%B1%D8%B6-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B9%D9%84%D9%89-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/blt5b7edcaf45784bd4)
+- **مع بداية العام الجديد... السيتي يواجه سندرلاند لمواصلة الضغط على أرسنال**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%85%D8%B9-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-%D8%B9%D9%84%D9%89-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84/13794)
+- **دوناروما ينقذ السيتي من هدفين في دقيقة واحدة**: [Link](https://hihi2.com/2026/01/02/p3582730.html)
+
+
 ### city (N/A, Thu, 1 Jan 2026 13:50:00 -0800)
 
 - **Portlanders continue decades-old tradition with New Year's Day bike ride**: [Link](https://katu.com/news/local/portlanders-continue-decades-old-tradition-with-new-years-day-bike-ride)
