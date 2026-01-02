@@ -1,3 +1,17 @@
+### can 2025 match (N/A, Thu, 1 Jan 2026 23:10:00 -0800)
+
+- **Une alléchante affiche des huitièmes de finale pour la Coupe d’Afrique des Nations TotalEnergies CAF Maroc 2025**: [Link](https://www.cafonline.com/fr/can2025/infos/une-allechante-affiche-des-huitiemes-de-finale-pour-la-coupe-d-afrique-des-nations-totalenergies-caf-maroc-2025/)
+- **REPORTAGE. « On se supporte tous, jusqu’à ce qu’on se rencontre » : Maroc, Algérie, Tunisie main dans la main à la CAN**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/reportage-on-se-supporte-tous-jusqua-ce-quon-se-rencontre-maroc-algerie-tunisie-main-dans-la-main-a-la-can-6fd9f37c-e5c8-11f0-8be4-78ce20296472)
+- **CAN 2025. Le tableau définitif des huitièmes de finale - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://private-admin.medias24.com/2025/12/31/can-2025-le-tableau-definitif-des-huitiemes-de-finale-1605119/)
+
+
+### meteo maroc (N/A, Thu, 1 Jan 2026 22:50:00 -0800)
+
+- **Fortes pluies, chutes de neige et vent fort, vendredi et samedi, dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/fortes-pluies-chutes-de-neige-et-vent-fort-vendredi-et-samedi-dans-plusieurs-provinces/)
+- **Taroudant : Les cours suspendus vendredi et samedi en raisons de la météo**: [Link](https://www.leconomiste.com/flash-infos/taroudant-les-cours-suspendus-vendredi-et-samedi-en-raisons-de-la-meteo/)
+- **Alerte météo : rafales de vent localement fortes dans plusieurs provinces, vendredi 2 janvier**: [Link](https://medias24.com/2025/12/31/alerte-meteo-rafales-de-vent-localement-fortes-dans-plusieurs-provinces-vendredi-2-janvier-1604801/)
+
+
 ### سندرلاند ضد مان سيتي (N/A, Thu, 1 Jan 2026 11:20:00 -0800)
 
 - **هدية لآرسنال.. سندرلاند يفرض التعادل على مانشستر سيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D8%AF%D9%8A%D8%A9-%D9%84%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84--%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D9%81%D8%B1%D8%B6-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B9%D9%84%D9%89-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/blt5b7edcaf45784bd4)
