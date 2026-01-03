@@ -1,3 +1,10 @@
+### fcb (N/A, Sat, 3 Jan 2026 14:10:00 -0800)
+
+- **Why is fcb Trending in Google Trends on January, 04 2026: Check Latest News on fcb Today from Google and LatestLY**: [Link](https://www.latestly.com/google-trends/04012026/fcb/)
+- **Espanyol 0-2 Barcelona: Dani Olmo and Robert Lewandowski score as Barca extend lead at top of La Liga**: [Link](https://www.bbc.com/sport/football/live/cg5m54m1j2mt)
+- **Barcelona player ratings against Espanyol: Joan Garcia heroics on RCDE Stadium return**: [Link](https://www.football-espana.net/2026/01/03/espanyol-barcelona-la-liga-player-ratings-2026)
+
+
 ### magnitude séisme martinique (N/A, Sat, 3 Jan 2026 14:20:00 -0800)
 
 - **Un séisme de magnitude 5,7 a été enregistré ce vendredi**: [Link](https://la1ere.franceinfo.fr/guadeloupe/un-seisme-de-magnitude-5-4-a-ete-enregistre-ce-vendredi-1657988.html)
