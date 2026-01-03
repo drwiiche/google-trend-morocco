@@ -1,3 +1,10 @@
+### atalanta – roma (N/A, Sat, 3 Jan 2026 11:40:00 -0800)
+
+- **Diretta Atalanta-Roma, oggi Serie A. Live risultato e aggiornamenti**: [Link](https://www.adnkronos.com/sport/diretta-atalanta-roma-oggi-serie-a-live-risultato-aggiornamenti_6nEximv1xcjWHPouopfJUg)
+- **Gasperini e il retroscena sulla maglietta a Bergamo: c'entra la canzone di Emma**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/roma/2026/01/03-145610036/gasperini_e_il_retroscena_sulla_maglietta_a_bergamo_c_entra_la_canzone_di_emma)
+- **Le formazioni di Atalanta-Roma | Serie A Enilive 2025/26**: [Link](https://www.atalanta.it/news/le-formazioni-di-atalanta-roma-serie-a-enilive-2025-26)
+
+
 ### espanyol – barcelone (N/A, Sat, 3 Jan 2026 11:10:00 -0800)
 
 - **Espanyol ultras plan shocking act against Barcelona goalkeeper Joan Garcia**: [Link](https://barcauniversal.com/espanyol-ultras-plan-shocking-act-against-barcelona-goalkeeper-joan-garcia/)
