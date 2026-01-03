@@ -1,3 +1,10 @@
+### fc barcelona (N/A, Sat, 3 Jan 2026 13:30:00 -0800)
+
+- **El Barça dará facilidades a Ter Stegen**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251231/1002594240/barca-dara-facilidades-ter-stegen.html)
+- **Flick, primer día del año 2026, dos despidos, no volverán a jugar con el Barça**: [Link](https://www.msn.com/es-es/deportes/futbol/flick-primer-d%C3%ADa-del-a%C3%B1o-2026-dos-despidos-no-volver%C3%A1n-a-jugar-con-el-bar%C3%A7a/ar-AA1ToBuM)
+- **La ayuda de los hermanos Guardiola y el City Group al Barça con el caso Ter Stegen**: [Link](https://www.eldebate.com/deportes/futbol/la-liga/20251230/ayuda-hermanos-guardiola-city-group-barca-caso-ter-stegen_369819.html)
+
+
 ### tunis (N/A, Sat, 3 Jan 2026 13:20:00 -0800)
 
 - **Tunisie : les réserves en devises tombent à 25,1 milliards de dinars début 2026**: [Link](https://www.lapresse.tn/2026/01/03/tunisie-les-reserves-en-devises-tombent-a-251-milliards-de-dinars-debut-2026/)
