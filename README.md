@@ -1,3 +1,10 @@
+### طقس مراكش (N/A, Fri, 2 Jan 2026 21:10:00 -0800)
+
+- **"نشرة حمراء" ترفع التعبئة بأقاليم مغربية وتكثّف الدعوات للالتزام بالإرشادات**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%AA%D8%B1%D9%81%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D8%A8%D8%A6%D8%A9-%D8%A8%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D9%85%D8%BA%D8%B1%D8%A8-1680765.html)
+- **الاضطرابات الجوية تعلق الدراسة بعدد من المناطق بالمغرب**: [Link](https://aljarida24.ma/p/actualites/333643/)
+- **تحت وطأة “النشرة الحمراء”.. الصويرة تستقبل أولى الزخات العاصفية وسط استنفار وتوجس**: [Link](https://www.marrakechalaan.com/article-659163)
+
+
 ### christine lagarde (N/A, Fri, 2 Jan 2026 16:30:00 -0800)
 
 - **Christine Lagarde’s pay is 50% higher than disclosed by ECB**: [Link](https://www.ft.com/content/c7cd22f0-efe5-40de-a448-fa9075926a6a)
