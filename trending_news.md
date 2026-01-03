@@ -1,3 +1,10 @@
+### christine lagarde (N/A, Fri, 2 Jan 2026 16:30:00 -0800)
+
+- **Christine Lagarde’s pay is 50% higher than disclosed by ECB**: [Link](https://www.ft.com/content/c7cd22f0-efe5-40de-a448-fa9075926a6a)
+- **Lagarde is under fire for earning too much. Her ECB salary in 2024 will be €726, nearly four times that of Powell.**: [Link](https://www.firstonline.info/en/lagarde-sotto-accusa-guadagna-troppo-il-suo-stipendio-bce-nel-2024-arriva-a-726mila-euro-quasi-quattro-volte-powell/)
+- **"Financial Times": Lagarde's salary is 50 percent higher than reported.**: [Link](https://www.agenzianova.com/en/news/Financial-Times%3A-Lagarde%27s-salary-is-50-percent-higher-than-declared/)
+
+
 ### stranger things (N/A, Fri, 2 Jan 2026 16:10:00 -0800)
 
 - **The Duffer Brothers Dive Deep Into the Emotional Stranger Things Series Finale**: [Link](https://www.netflix.com/tudum/features/stranger-things-series-finale-duffer-brothers-interview)
