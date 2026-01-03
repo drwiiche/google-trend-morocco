@@ -1,3 +1,10 @@
+### brighton – burnley (N/A, Sat, 3 Jan 2026 06:40:00 -0800)
+
+- **Premier League: Wolves host West Ham & Burnley visit Brighton after Villa win**: [Link](https://www.bbc.com/sport/football/live/c30jnmj4ljmt)
+- **'The fight goes on' – Parker determined to turn Burnley's fortunes around**: [Link](https://www.beinsports.com/en-asia/football/premier-league/articles/the-fight-goes-on--parker-determined-to-turn-burnleys-fortunes-around-2026-01-02)
+- **Final One Standing: Gameweek 20 Predictions**: [Link](https://news.williamhill.com/football/final-one-standing-gameweek-20-predictions/)
+
+
 ### osasuna – ath. bilbao (N/A, Sat, 3 Jan 2026 06:30:00 -0800)
 
 - **XI Osasuna-Athletic: Javi Estrella y los dos Williams son titulares**: [Link](https://bitacora.com.uy/%F0%9F%9A%A8-xi-osasuna-athletic-javi-estrella-y-los-dos-williams-son-titulares/)
