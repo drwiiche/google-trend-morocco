@@ -1,3 +1,10 @@
+### venezuela (N/A, Fri, 2 Jan 2026 23:00:00 -0800)
+
+- **CNN team witnesses multiple explosions in Venezuela’s capital Caracas**: [Link](https://www.cnn.com/2026/01/03/americas/venezuela-explosions-intl-hnk)
+- **Column of smoke seen, loud noises heard in Venezuelan capital**: [Link](https://www.reuters.com/world/americas/loud-noises-heard-venezuela-capital-southern-area-without-electricity-2026-01-03/)
+- **At least 7 explosions and low-flying aircraft are heard in Venezuela’s Caracas**: [Link](https://apnews.com/article/venezuela-us-explosions-caracas-ca712a67aaefc30b1831f5bf0b50665e)
+
+
 ### ac milan (N/A, Fri, 2 Jan 2026 12:30:00 -0800)
 
 - **Serie A | Cagliari 0-1 Milan: Leao first goal of new year on Fullkrug debut**: [Link](https://football-italia.net/serie-a-cagliari-0-1-milan-leao-fullkrug-debut/)
