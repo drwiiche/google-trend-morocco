@@ -1,3 +1,24 @@
+### bet365 (N/A, Sat, 3 Jan 2026 13:40:00 -0800)
+
+- **bet365 Bonus Code GOALBET: Get $150 in Bonus Bets for Seahawks vs 49ers, NBA & NHL**: [Link](https://www.goal.com/en-us/betting/bet365-bonus-code-goalbet-get-150-bonus-bets-seahawks-vs-49ers-nba-nhl-1-3/blt44906066e48996ff)
+- **Must-have bet365 Missouri bonus code ORL365: Bet $10, get $365 bonus for NFL Saturday**: [Link](https://www.oregonlive.com/betting/2026/01/must-have-bet365-missouri-bonus-code-orl365-bet-10-get-365-bonus-for-nfl-saturday.html)
+- **Bet365 Bonus Code WTOP365: Claim $150 Bonus for NBA, NCAAF Bowl Games Friday**: [Link](https://wtop.com/sports/2026/01/bet365-bonus-code-wtop365-claim-150-bonus-for-nba-ncaaf-bowl-games-friday/)
+
+
+### flashscore (N/A, Sat, 3 Jan 2026 13:40:00 -0800)
+
+- **Finding value on lines and prop bets for Saturday's NFC doubleheader**: [Link](https://www.espn.com/espn/betting/story/_/id/47471213/nfl-week-18-odds-lines-spread-betting-picks-dfs-tips-saturday-football-preview-panthers-buccaneers-seahawks-49ers)
+- **49ers game chat: Panthers-Buccaneers winner could see San Fransisco soon**: [Link](https://www.ninersnation.com/san-francisco-49ers-discussion/154659/49ers-fan-discussion-panthers-buccaneers-winner-nfc-playoff-picture)
+- **How to watch, listen and follow: Carolina at Tampa Bay Buccaneers in Week 18**: [Link](https://www.panthers.com/news/how-to-watch-listen-and-follow-carolina-at-tampa-bay-buccaneers-in-week-18)
+
+
+### 365 (N/A, Sat, 3 Jan 2026 13:40:00 -0800)
+
+- **Celiveo Enhances Celiveo 365 with Enterprise AI Document Management for Up to 1000% ROI**: [Link](https://www.freep.com/press-release/story/138711/celiveo-enhances-celiveo-365-with-enterprise-ai-document-management-for-up-to-1000-roi/)
+- **Anthony Greene Says He Has 365 Days To Get Back To Where He Wants To Be**: [Link](https://pwponderings.com/2026/01/03/anthony-greene-says-he-has-365-days-to-get-back-to-where-he-wants-to-be/)
+- **HP Is Offloading 14″ Laptop Bundle to Its Lowest Price, Now Cheaper Than an Entry-Level iPad**: [Link](https://kotaku.com/hp-is-offloading-14%E2%80%B3-laptop-bundle-to-its-lowest-price-now-cheaper-than-an-entry-level-ipad-2000654516)
+
+
 ### fc barcelona (N/A, Sat, 3 Jan 2026 13:30:00 -0800)
 
 - **El Barça dará facilidades a Ter Stegen**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20251231/1002594240/barca-dara-facilidades-ter-stegen.html)
