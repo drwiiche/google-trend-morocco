@@ -1,3 +1,24 @@
+### bournemouth vs arsenal (N/A, Sat, 3 Jan 2026 09:00:00 -0800)
+
+- **Team news: Rice returns to face Bournemouth**: [Link](https://www.arsenal.com/news/team-news-rice-returns-face-bournemouth)
+- **“They control the games” Iraola expects a tough test from Arsenal**: [Link](https://onefootball.com/de/news/they-control-the-games-iraola-expects-a-tough-test-from-arsenal-42175356)
+- **10 players set to miss Bournemouth vs Arsenal after Mikel Arteta injury update**: [Link](https://www.football.london/arsenal-fc/news/gallery/arsenal-bournemouth-mikel-arteta-injury-33160385)
+
+
+### bournemouth – arsenal (N/A, Sat, 3 Jan 2026 08:50:00 -0800)
+
+- **Arteta's update on Rice, Calafiori and Mosquera | Press conference | News**: [Link](https://www.arsenal.com/news/artetas-update-rice-calafiori-and-mosquera)
+- **Declan Rice likely to miss Arsenal-Aston Villa due to knee injury - The Athletic**: [Link](https://www.nytimes.com/athletic/6929158/2025/12/30/declan-rice-arsenal-villa-injury/)
+- **Mikel Arteta emphasises discipline before the trip to Bournemouth**: [Link](https://www.vavel.com/en/football/2026/01/02/arsenal/1246026-mikel-arteta-emphasises-discipline-before-the-trip-to-bournemouth.html)
+
+
+### elche – villarreal (N/A, Sat, 3 Jan 2026 08:50:00 -0800)
+
+- **El fichaje que quiere cerrar el Elche en el mercado invernal**: [Link](https://www.larazon.es/deportes/laotraliga/fichaje-que-quiere-cerrar-elche-mercado-invernal_202601026957fb8322f0db7daf0385b9.html)
+- **Sarabia: “El Villarreal es uno de los mejores equipos de Europa”**: [Link](https://as.com/futbol/sarabia-el-villarreal-es-uno-de-los-mejores-equipos-de-europa-f202601-n/)
+- **En Directo, Marcador | Elche-Villarreal (0-0): el Elche estrena el 2026 con un duelo de altura ante el Villarreal**: [Link](https://teleelx.es/2026/01/03/el-elche-estrena-el-2026-el-sabado-ante-el-villarreal/)
+
+
 ### can 2025 calendrier (N/A, Sat, 3 Jan 2026 08:40:00 -0800)
 
 - **DATA CAN 2025. Le Maroc dans la cour des grands, mais avec des marges de progression**: [Link](https://medias24.com/2026/01/02/data-can-2025-le-maroc-dans-la-cour-des-grands-mais-avec-des-marges-de-progression-1605397/)
