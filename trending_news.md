@@ -1,3 +1,24 @@
+### magnitude séisme martinique (N/A, Sat, 3 Jan 2026 14:20:00 -0800)
+
+- **Un séisme de magnitude 5,7 a été enregistré ce vendredi**: [Link](https://la1ere.franceinfo.fr/guadeloupe/un-seisme-de-magnitude-5-4-a-ete-enregistre-ce-vendredi-1657988.html)
+- **La terre a tremblé dans cette zone française à haut risque sismique : un tremblement de terre de magnitude 5,7 ressenti**: [Link](https://www.midilibre.fr/2026/01/03/la-terre-a-tremble-dans-cette-zone-a-haut-risque-sismique-un-tremblement-de-terre-de-magnitude-57-ressenti-13141864.php)
+- **Seismic-like event, possible earthquake, reported few minutes ago near Fort-de-France, Martinique**: [Link](https://www.volcanodiscovery.com/fr/seismes/news/290918/Seismic-like-event-possible-earthquake-reported-few-minutes-ago-near-Fort-de-France-Martinique.html)
+
+
+### كووورة (N/A, Sat, 3 Jan 2026 14:10:00 -0800)
+
+- **خليفة صلاح.. ليفربول يراقب جوهرة مغربية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D8%B5%D9%84%D8%A7%D8%AD--%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%B1%D8%A7%D9%82%D8%A8-%D8%AC%D9%88%D9%87%D8%B1%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9/blt0766796b9ca4002f)
+- **معما في مفكرة عمالقة الدوري الإنجليزي الممتاز**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B9%D9%85%D8%A7-%D9%81%D9%8A-%D9%85%D9%81%D9%83%D8%B1%D8%A9-%D8%B9%D9%85%D8%A7%D9%84%D9%82%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/13898)
+- **مانشستر يونايتد ينضم لسباق التعاقد مع الموهبة المغربية الصاعدة عثمان معما - تليكسبريس**: [Link](https://telexpresse.com/446499.html)
+
+
+### sofascore (N/A, Sat, 3 Jan 2026 13:40:00 -0800)
+
+- **Former Kelantan players blast club for bullying over unpaid RM220,000 wages**: [Link](https://www.nst.com.my/newssummary/1349547)
+- **JDT's Arif Aiman ranked fourth among world's top dribblers**: [Link](https://www.nst.com.my/sports/football/2026/01/1349489/jdts-arif-aiman-ranked-fourth-among-worlds-top-dribblers)
+- **Football: Arif among world’s top dribblers, only Asian on Sofascore list**: [Link](https://www.thestar.com.my/sport/football/2026/01/03/arif-among-worlds-top-dribblers-only-asian-on-sofascore-list)
+
+
 ### barca (N/A, Sat, 3 Jan 2026 14:00:00 -0800)
 
 - **Monopattino elettrico in barca: regole 2026, obblighi di legge e modelli ideali per i marina**: [Link](https://www.solovela.net/articoli/3/monopattino-elettrico-in-barca-regole-2026-modelli-consigliati/1354292/)
