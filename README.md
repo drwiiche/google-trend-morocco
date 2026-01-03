@@ -1,3 +1,17 @@
+### aston villa – nottm forest (N/A, Sat, 3 Jan 2026 03:50:00 -0800)
+
+- **Team news for Forest fixture**: [Link](https://www.avfc.co.uk/news/2026/january/02/prematch-team-news-for-forest-fixture/)
+- **Premier League Soccer: Stream Aston Villa vs. Nottingham Forest Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-aston-villa-vs-nottingham-forest-live-from-anywhere/)
+- **FOREST TV, RADIO & TV CHANNEL | HOW TO FOLLOW THE REDS AGAINST ASTON VILLA**: [Link](https://www.nottinghamforest.co.uk/news/2026/january/02/forest-tv--radio---tv-channel---how-to-follow-the-reds-against-aston-villa/)
+
+
+### tremblement de terre (N/A, Sat, 3 Jan 2026 03:50:00 -0800)
+
+- **Un séisme de magnitude 5,7 a été enregistré ce vendredi**: [Link](https://la1ere.franceinfo.fr/guadeloupe/un-seisme-de-magnitude-5-4-a-ete-enregistre-ce-vendredi-1657988.html)
+- **La terre a tremblé dans cette zone française à haut risque sismique : un tremblement de terre de magnitude 5,7 ressenti**: [Link](https://www.midilibre.fr/2026/01/03/la-terre-a-tremble-dans-cette-zone-a-haut-risque-sismique-un-tremblement-de-terre-de-magnitude-57-ressenti-13141864.php)
+- **Un fort séisme ressenti en Guadeloupe et Martinique ce vendredi**: [Link](https://www.franceguyane.fr/actualite/environnement/un-fort-seisme-ressenti-en-guadeloupe-et-martinique-ce-vendredi-1063561.php)
+
+
 ### الجزيرة نت (N/A, Sat, 3 Jan 2026 02:40:00 -0800)
 
 - **دموع جاكي شان على أطفال غزة تلفت الأنظار**: [Link](https://www.aljazeera.net/news/2026/1/3/%D8%AF%D9%85%D9%88%D8%B9-%D8%AC%D8%A7%D9%83%D9%8A-%D8%B4%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D8%BA%D8%B2%D8%A9-%D8%AA%D9%84%D9%81%D8%AA)
