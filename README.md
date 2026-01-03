@@ -1,3 +1,10 @@
+### tunisie vs mali (N/A, Sat, 3 Jan 2026 04:40:00 -0800)
+
+- **DIRECT. Mali-Tunisie (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/mali-tunisie-live/670785)
+- **CAN 2025 : Tunisie - Mali, un choc d’Aigles sous haute pression**: [Link](https://www.france24.com/fr/sports/20260103-can-2025-tunisie-mali-choc-aigles-sous-haute-pression)
+- **CAN 2025: coup de chaud, cauchemar mondial, fiasco... Le lourd passif entre la Tunisie et le Mali**: [Link](https://www.rfi.fr/fr/afrique-foot/20260103-can-2025-coup-de-chaud-cauchemar-mondial-fiasco-le-lourd-passif-entre-la-tunisie-et-le-mali)
+
+
 ### أستون فيلا ضد نوتينغهام فورست (N/A, Sat, 3 Jan 2026 05:00:00 -0800)
 
 - **تشكيل مباراة أستون فيلا ضد نوتينجهام فورست فى الدوري الإنجليزي**: [Link](https://www.youm7.com/story/2026/1/3/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D8%B6%D8%AF-%D9%86%D9%88%D8%AA%D9%8A%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D9%81%D9%88%D8%B1%D8%B3%D8%AA-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/7256204)
