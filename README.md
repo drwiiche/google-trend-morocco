@@ -1,3 +1,17 @@
+### barca (N/A, Sat, 3 Jan 2026 14:00:00 -0800)
+
+- **Monopattino elettrico in barca: regole 2026, obblighi di legge e modelli ideali per i marina**: [Link](https://www.solovela.net/articoli/3/monopattino-elettrico-in-barca-regole-2026-modelli-consigliati/1354292/)
+- **Rapina violenta in tabaccheria, in carcere due 20enni**: [Link](https://trcbologna.it/rapina-violenta-in-tabaccheria-in-carcere-due-20enni)
+- **Tabaccaia aggredita alla Barca. Arrestati i giovani rapinatori**: [Link](https://www.ilrestodelcarlino.it/bologna/cronaca/tabaccaia-aggredita-alla-barca-arrestati-6e07658e)
+
+
+### score live (N/A, Sat, 3 Jan 2026 13:50:00 -0800)
+
+- **No. 6 Duke Starts Road Stretch at Florida State - Duke University**: [Link](https://goduke.com/news/2026/1/2/mens-basketball-no-6-duke-starts-road-stretch-at-florida-state)
+- **DBR Bites #130 - A Look Back At Duke’s Sun Bowl Triumph And A Look Ahead To FSU Saturday**: [Link](https://www.dukebasketballreport.com/main/84428/dbr-bites-130-sun-bowl-recap-fsu-preview)
+- **Florida State hosts Boozer and No. 6 Duke**: [Link](https://www.oskaloosa.com/sports/national_sports/florida-state-hosts-boozer-and-no-6-duke/article_9f839a14-43f0-57d4-ac23-2f9a483330e2.html)
+
+
 ### bet365 (N/A, Sat, 3 Jan 2026 13:40:00 -0800)
 
 - **bet365 Bonus Code GOALBET: Get $150 in Bonus Bets for Seahawks vs 49ers, NBA & NHL**: [Link](https://www.goal.com/en-us/betting/bet365-bonus-code-goalbet-get-150-bonus-bets-seahawks-vs-49ers-nba-nhl-1-3/blt44906066e48996ff)
