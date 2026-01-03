@@ -1,3 +1,10 @@
+### morocco vs tanzania (N/A, Sat, 3 Jan 2026 05:50:00 -0800)
+
+- **Regragui: Morocco Ready for Tough Tanzania Test, Update on Hakimi**: [Link](https://www.moroccoworldnews.com/2026/01/273770/regragui-morocco-ready-for-tough-tanzania-test-update-on-hakimi/)
+- **Walid Regragui and Ghanem Saiss to Hold Press Conference Tomorrow Ahead of Tanzania Clash**: [Link](https://m.elbotola.com/en/article/2026-01-02-18-30-781.html)
+- **Morocco enter Tanzania clash after winning seven of eight meetings**: [Link](https://en.yabiladi.com/articles/details/184842/morocco-enter-tanzania-clash-after.html)
+
+
 ### tunisie vs mali (N/A, Sat, 3 Jan 2026 04:40:00 -0800)
 
 - **DIRECT. Mali-Tunisie (CAN 2025) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/mali-tunisie-live/670785)
