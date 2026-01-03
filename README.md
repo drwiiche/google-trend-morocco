@@ -1,3 +1,10 @@
+### algerie vs congo (N/A, Sat, 3 Jan 2026 08:00:00 -0800)
+
+- **Live Algérie - Rép. Dém. Congo 8èmes de finale de Coupe d'Afrique des Nations 2025 Morocco 06/01**: [Link](https://www.footmercato.net/live/1180230871791261588-algerie-vs-rep-dem-congo)
+- **Entretien avec Rafael Hamidi, adjoint de Sébastien Desabre (RDC): «Je préfère affronter une Algérie en pleine forme plutôt qu’une équipe en difficulté**: [Link](https://sport.le360.ma/football/can/entretien-avec-rafael-hamidi-adjoint-de-sebastien-desabre-rdc-je-prefere-affronter-une-algerie-en_JHV44XXC2VELPHLNP65GXAOH7E/)
+- **CAN 2025 : La séance de de reprise des verts (vidéo)**: [Link](https://www.dzfoot.com/equipes-nationales/can-2025-la-seance-de-de-reprise-des-verts-video-288662.html)
+
+
 ### monaco – lyon (N/A, Sat, 3 Jan 2026 07:40:00 -0800)
 
 - **OL : le groupe pour affronter Monaco sans Endrick**: [Link](https://www.footmercato.net/a2414546776863845616-ol-le-groupe-pour-affronter-monaco-sans-endrick)
