@@ -1,3 +1,38 @@
+### benfica – estoril (N/A, Sat, 3 Jan 2026 10:30:00 -0800)
+
+- **AO VIVO: Enorme defesa de Trubin após perda de bola de Sudakov (17')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-enorme-defesa-de-trubin-apos-perda-de-bola-de-sudakov-17/KOPW1Cy8/)
+- **Muitas novidades no onze do Benfica para a receção ao Estoril**: [Link](https://sapo.pt/artigo/muitas-novidades-no-onze-do-benfica-para-a-rececao-ao-estoril-695948b152dc24aee9e0654b)
+- **Mourinho garante que não vai poupar jogadores antes da meia-final da Taça da Liga**: [Link](https://sicnoticias.pt/desporto/2026-01-02-video-mourinho-garante-que-nao-vai-poupar-jogadores-antes-da-meia-final-da-taca-da-liga-038cc8cd)
+
+
+### مالي ضد تونس (N/A, Sat, 3 Jan 2026 10:20:00 -0800)
+
+- **الفارق ضمن حكام مباراة تونس ومالي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D8%A7%D8%B1%D9%82-%D8%B6%D9%85%D9%86-%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D9%85%D8%A7%D9%84%D9%8A-1681065.html)
+- **مباشر.. مباراة تونس ضد مالي في ثمن نهائي كأس أفريقيا 2025**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/3/mali-vs-tunisia)
+- **المنتخب المغربي ينهي استعداداته قبل مواجهة مالي وسايس يخوض تداريب انفرادية**: [Link](https://ar.telquel.ma/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D9%86%D8%B3-%D8%AA%D8%B3%D8%B9%D9%89-%D9%84%D9%81%D9%83-%D8%B9%D9%82%D8%AF%D8%AA%D9%87%D8%A7-%D8%A3%D9%85/)
+
+
+### mali – tunisie (N/A, Sat, 3 Jan 2026 10:10:00 -0800)
+
+- **Live Mali - Tunisie 8èmes de finale de Coupe d'Afrique des Nations 2025 Morocco 03/01**: [Link](https://www.footmercato.net/live/1763447493341254441-mali-vs-tunisie)
+- **Mali - Tunisie : Sur quelle chaîne et à quelle heure voir le match de la CAN en direct ?**: [Link](https://www.lefigaro.fr/sports/football/mali-tunisie-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-la-can-en-direct-20260103)
+- **CAN 2025: coup de chaud, cauchemar mondial, fiasco... le lourd passif entre la Tunisie et le Mali**: [Link](https://www.rfi.fr/fr/afrique-foot/20260103-can-2025-coup-de-chaud-cauchemar-mondial-fiasco-le-lourd-passif-entre-la-tunisie-et-le-mali)
+
+
+### mali vs tunisia (N/A, Sat, 3 Jan 2026 10:10:00 -0800)
+
+- **MATCH STATS: Mali vs Tunisia – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-mali-vs-tunisia-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
+- **Mali vs Tunisia: When & How to Watch AFCON 2025**: [Link](https://www.moroccoworldnews.com/2026/01/273783/mali-vs-tunisia-when-how-to-watch-afcon-2025/)
+- **Ghandri (Tunisia National Team Player): "After the 2004 Title, We Will Do Our Utmost to Bring the Africa Cup Back Home"**: [Link](https://m.elbotola.com/en/article/2026-01-02-20-40-919.html)
+
+
+### juventus vs lecce (N/A, Sat, 3 Jan 2026 10:10:00 -0800)
+
+- **Preview: Juventus vs Lecce - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/juventus/preview/juventus-vs-lecce-prediction-team-news-lineups_588924.html)
+- **🚨 Confirmed XIs: Juve aiming to kick off the year with a win**: [Link](https://sports.yahoo.com/articles/confirmed-xis-juve-aiming-kick-160600869.html)
+- **Danilo to salute Juventus fans 1 year on from tense exit**: [Link](https://football-italia.net/danilo-to-salute-juventus-fans-1-year-on-exit/)
+
+
 ### موعد اذان المغرب (N/A, Sat, 3 Jan 2026 09:30:00 -0800)
 
 - **موعد أذان وصلاة العصر اليوم السبت 2 يناير.. ودعاء بعد ختم الصلاة**: [Link](https://www.masrawy.com/islameyat/others-islamic_ppl_news/details/2026/1/3/2918710/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D9%88%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-2-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-%D9%88%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%AA%D9%85-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9)
