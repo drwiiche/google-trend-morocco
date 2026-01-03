@@ -1,3 +1,17 @@
+### موعد اذان المغرب (N/A, Sat, 3 Jan 2026 09:30:00 -0800)
+
+- **موعد أذان وصلاة العصر اليوم السبت 2 يناير.. ودعاء بعد ختم الصلاة**: [Link](https://www.masrawy.com/islameyat/others-islamic_ppl_news/details/2026/1/3/2918710/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D9%88%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-2-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-%D9%88%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%AA%D9%85-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9)
+- **موعد أذان ‎المغرب في مصر اليوم السبت.. «خلي بالك»**: [Link](https://alestad.com/egypt/64815.html)
+- **تعرف على موعد اذان العشاء اليوم ومواقيت الصلاة والثواب العظيم في المسجد**: [Link](https://www.alsbbora.info/467739)
+
+
+### senegal national football team (N/A, Sat, 3 Jan 2026 08:50:00 -0800)
+
+- **Mohamed Eisa: “We are not scared of nobody”**: [Link](https://www.cafonline.com/afcon2025/news/mohamed-eisa-we-are-not-scared-of-nobody/)
+- **Sudan Become First Team to Qualify for AFCON Knockouts Without Scoring a Goal**: [Link](https://www.moroccoworldnews.com/2026/01/273627/sudan-become-first-team-to-qualify-for-afcon-knockouts-without-scoring-a-goal/)
+- **AFCON 2025: Sudan’s football nomads and their Ghanaian coach, Kwesi Appiah find hope in AFCON 2025 knockout qualification**: [Link](https://www.olympics.com/en/news/afcon-2025-sudan-s-football-nomads-and-their-ghanaian-coach-kwesi-appiah-find-hope-in-afcon-2025-knockout-qualification)
+
+
 ### بورنموث ضد آرسنال (N/A, Sat, 3 Jan 2026 09:20:00 -0800)
 
 - **سيمينيو وجيوكيريس وجهًا لوجه في تشكيل بورنموث وآرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%8A%D9%85%D9%8A%D9%86%D9%8A%D9%88-%D9%88%D8%AC%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3-%D9%88%D8%AC%D9%87%D9%8B%D8%A7-%D9%84%D9%88%D8%AC%D9%87-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-%D9%88%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/bltca42e015ef26043b)
