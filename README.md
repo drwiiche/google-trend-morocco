@@ -1,3 +1,17 @@
+### أستون فيلا ضد نوتينغهام فورست (N/A, Sat, 3 Jan 2026 05:00:00 -0800)
+
+- **تشكيل مباراة أستون فيلا ضد نوتينجهام فورست فى الدوري الإنجليزي**: [Link](https://www.youm7.com/story/2026/1/3/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D8%B6%D8%AF-%D9%86%D9%88%D8%AA%D9%8A%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D9%81%D9%88%D8%B1%D8%B3%D8%AA-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/7256204)
+- **الدوري الإنجليزي الممتاز لكرة القدم: بث مباشر لأستون فيلا vs نوتنغهام فورست من أي مكان**: [Link](https://albalad.news/electronics/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A8/330009/)
+- **نتيجة آخر مباراة بين أستون فيلا ونوتينغهام**: [Link](https://hihi2.com/2026/01/02/p3583010.html)
+
+
+### aston villa vs nottm forest (N/A, Sat, 3 Jan 2026 04:50:00 -0800)
+
+- **New Haven vs. Central Connecticut (Jan 4, 2026) Pregame**: [Link](https://www.espn.com/ncb/preview?gameId=401812653)
+- **TCU 72-48 BYU (Dec 31, 2025) Game Recap**: [Link](https://www.espn.com/ncw/recap?gameId=401827297)
+- **Kraken 4-3 Canucks (3 Jan, 2026) Game Recap**: [Link](https://africa.espn.com/nhl/recap?gameId=401802993)
+
+
 ### senegal vs soudan (N/A, Sat, 3 Jan 2026 02:50:00 -0800)
 
 - **CAN 2025. Sénégal-Soudan : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2026/01/03/can-2025-senegal-soudan-quelle-heure-quelles-chaines/)
