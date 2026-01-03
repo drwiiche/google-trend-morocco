@@ -1,3 +1,10 @@
+### essaouira (N/A, Sat, 3 Jan 2026 15:30:00 -0800)
+
+- **Ce qu’il faut savoir sur la tempête Francis qui va toucher le Maroc**: [Link](https://mobile.telquel.ma/2026/01/02/ce-quil-faut-savoir-sur-la-tempete-francis-qui-va-toucher-le-maroc_1968568)
+- **Météo. L'alerte rouge se poursuit au Souss-Massa de samedi à dimanche**: [Link](https://medias24.com/2026/01/03/meteo-lalerte-rouge-se-poursuit-au-souss-massa-de-samedi-a-dimanche-1605911/)
+- **Fortes pluies, rafales de vent et chutes de neige de samedi à lundi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-et-chutes-de-neige-de-samedi-a-lundi-dans-plusieurs-regions/322439)
+
+
 ### fcb (N/A, Sat, 3 Jan 2026 14:10:00 -0800)
 
 - **Why is fcb Trending in Google Trends on January, 04 2026: Check Latest News on fcb Today from Google and LatestLY**: [Link](https://www.latestly.com/google-trends/04012026/fcb/)
