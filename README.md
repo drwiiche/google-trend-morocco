@@ -1,3 +1,24 @@
+### osasuna – ath. bilbao (N/A, Sat, 3 Jan 2026 06:30:00 -0800)
+
+- **XI Osasuna-Athletic: Javi Estrella y los dos Williams son titulares**: [Link](https://bitacora.com.uy/%F0%9F%9A%A8-xi-osasuna-athletic-javi-estrella-y-los-dos-williams-son-titulares/)
+- **Primer derbi del año en El Sadar, entre Osasuna y el Athletic, síguelo desde Euskal Etxea**: [Link](https://www.euskalkultura.eus/espanol/agenda/primer-derbi-del-ano-en-el-sadar-entre-osasuna-y-el-athletic-siguelo-desde-euskal-etxea)
+- **Plato fuerte en el estadio iruindarra para retomar la competición**: [Link](https://www.naiz.eus/es/hemeroteca/gara/editions/2026-01-03/hemeroteca_articles/plato-fuerte-en-el-estadio-iruindarra-para-retomar-la-competicion)
+
+
+### wolves – west ham (N/A, Sat, 3 Jan 2026 06:30:00 -0800)
+
+- **Starting XI | Nuno makes two changes for Wolves**: [Link](https://www.whufc.com/en/news/starting-xi-or-nuno-makes-two-changes-for-wolves)
+- **Use Betfred promo code ‘B10G50’ to net £50 free bet haul ahead of Wolves vs West Ham**: [Link](https://talksport.com/betting/3858289/wolves-vs-west-ham-betfred-free-bets/)
+- **Big blow for West Ham as Lucas Paqueta a major doubt for Wolves clash**: [Link](https://sports.yahoo.com/articles/big-blow-west-ham-lucas-123100424.html)
+
+
+### maroc tanzanie (N/A, Sat, 3 Jan 2026 06:30:00 -0800)
+
+- **CAN 2025 : programme du samedi, huitièmes de finale et chaînes de diffusion**: [Link](https://industries.ma/can-2025-programme-du-samedi-huitiemes-de-finale-et-chaines-de-diffusion/)
+- **CAN 2025 : l’expérience des Ballons d’Or africains face à l’ambition de la relève**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-l-experience-des-ballons-d-or-africains-face-a-l-ambition-de-la-releve/)
+- **CAN 2025 : Algérie-RDC et Afrique du Sud-Cameroun, seuls chocs de huitièmes déséquilibrés**: [Link](https://mobile.telquel.ma/instant-t/2026/01/02/can-2025-algerie-rdc-et-afrique-du-sud-cameroun-seuls-chocs-de-huitiemes-desequilibres_1968515/)
+
+
 ### morocco vs tanzania (N/A, Sat, 3 Jan 2026 05:50:00 -0800)
 
 - **Regragui: Morocco Ready for Tough Tanzania Test, Update on Hakimi**: [Link](https://www.moroccoworldnews.com/2026/01/273770/regragui-morocco-ready-for-tough-tanzania-test-update-on-hakimi/)
