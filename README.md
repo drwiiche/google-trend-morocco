@@ -1,3 +1,10 @@
+### ac milan (N/A, Fri, 2 Jan 2026 12:30:00 -0800)
+
+- **Serie A | Cagliari 0-1 Milan: Leao first goal of new year on Fullkrug debut**: [Link](https://football-italia.net/serie-a-cagliari-0-1-milan-leao-fullkrug-debut/)
+- **Allegri gives thoughts on Leao’s position and bats away Scudetto talk: “It’s too early”**: [Link](https://sempremilan.com/allegri-leao-position-scudetto-talk-early)
+- **Cagliari 0 Milan 1 – Allegri’s press conference: “Cagliari caused us some problems”**: [Link](https://milanreports.com/2026/01/02/cagliari-0-milan-1-allegri-presser/)
+
+
 ### طقس مراكش (N/A, Fri, 2 Jan 2026 21:10:00 -0800)
 
 - **"نشرة حمراء" ترفع التعبئة بأقاليم مغربية وتكثّف الدعوات للالتزام بالإرشادات**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%AA%D8%B1%D9%81%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D8%A8%D8%A6%D8%A9-%D8%A8%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D9%85%D8%BA%D8%B1%D8%A8-1680765.html)
