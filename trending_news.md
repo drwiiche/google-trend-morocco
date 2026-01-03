@@ -1,3 +1,10 @@
+### senegal vs soudan (N/A, Sat, 3 Jan 2026 02:50:00 -0800)
+
+- **CAN 2025. Sénégal-Soudan : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2026/01/03/can-2025-senegal-soudan-quelle-heure-quelles-chaines/)
+- **Sénégal-Soudan : à quelle heure, sur quelle chaîne TV voir le match des 8es de finale de la CAN ce samedi**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/senegal-soudan-a-quelle-heure-sur-quelle-chaine-tv-voir-le-match-des-8es-de-finale-de-la-can-ce-samedi-03-01-2026-ZDWSUTV5MNDO5G4UORQB4OL3FA.php)
+- **CAN 2025 - Iliman Ndiaye : "Aider l’équipe à aller le plus haut possible"**: [Link](https://www.beinsports.com/fr-fr/football/2025-coupe-d-afrique-des-nations/articles-video/can-2025-iliman-ndiaye-aider-l-%C3%A9quipe-%C3%A0-aller-le-plus-haut-possible-2026-01-02)
+
+
 ### aston villa – nottm forest (N/A, Sat, 3 Jan 2026 03:50:00 -0800)
 
 - **Team news for Forest fixture**: [Link](https://www.avfc.co.uk/news/2026/january/02/prematch-team-news-for-forest-fixture/)
