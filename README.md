@@ -1,3 +1,10 @@
+### lille – rennes (N/A, Sat, 3 Jan 2026 12:00:00 -0800)
+
+- **LOSC – Stade Rennais. Les prédictions d’Opta**: [Link](https://sportune.20minutes.fr/losc-stade-rennais-les-predictions-dopta-389973)
+- **DIRECT. Lille-Rennes: suivez le match de la 17e journée de Ligue 1**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-lille-rennes-suivez-le-match-de-la-17e-journee-de-ligue-1_LS-202601030242.html)
+- **Alexsandro de retour après près de quatre mois sans jouer, Kader Meïté plutôt qu'Estéban Lepaul : les compos de Lille-Rennes**: [Link](https://www.lequipe.fr/Football/Actualites/Alexsandro-de-retour-apres-pres-de-quatre-mois-sans-jouer-kader-meite-plutot-qu-esteban-lepaul-les-compos-de-lille-rennes/1630970)
+
+
 ### atalanta – roma (N/A, Sat, 3 Jan 2026 11:40:00 -0800)
 
 - **Diretta Atalanta-Roma, oggi Serie A. Live risultato e aggiornamenti**: [Link](https://www.adnkronos.com/sport/diretta-atalanta-roma-oggi-serie-a-live-risultato-aggiornamenti_6nEximv1xcjWHPouopfJUg)
