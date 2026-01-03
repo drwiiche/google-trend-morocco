@@ -1,3 +1,10 @@
+### tunis (N/A, Sat, 3 Jan 2026 13:20:00 -0800)
+
+- **Tunisie : les réserves en devises tombent à 25,1 milliards de dinars début 2026**: [Link](https://www.lapresse.tn/2026/01/03/tunisie-les-reserves-en-devises-tombent-a-251-milliards-de-dinars-debut-2026/)
+- **Analyse de l'EUR/TND aujourd'hui 2/1: mensuelle (graphique)**: [Link](https://fr.dailyforex.com/forex-technical-analysis/2026/01/analyse-de-l-eurtnd-02-janvier-2025/239297)
+- **Evolution du dinar tunisien en 2025 : une progression inattendue**: [Link](https://www.tunisienumerique.com/evolution-du-dinar-tunisien-en-2025-une-progression-inattendue/)
+
+
 ### match fc barcelone (N/A, Sat, 3 Jan 2026 12:30:00 -0800)
 
 - **Espanyol - FC Barcelone en direct - La Liga : Football Scores & Résultats - 03/01/2026**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-espanyol-fc-barcelone_mtc1610556/live-commentary.shtml)
