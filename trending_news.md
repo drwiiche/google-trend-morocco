@@ -1,3 +1,24 @@
+### juventus – lecce (N/A, Sat, 3 Jan 2026 08:30:00 -0800)
+
+- **Spalletti alla vigilia del Lecce: "Conte ha ragione, noi avanti sul Napoli". Sul mercato: "Non ho bisogno di niente, ma..."**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/02-01-2026/juve-lecce-spalletti-in-conferenza-prima-del-match.shtml)
+- **Da Conceicao e Openda a David, Koopmeiners e Bremer: la probabile formazione della Juve**: [Link](https://www.sosfanta.com/probabili-formazioni/da-conceicao-e-openda-a-david-koopmeiners-e-bremer-la-probabile-formazione-della-juve/)
+- **Serie A | Le formazioni ufficiali di Juventus-Lecce**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-lecce-formazioni-ufficiali)
+
+
+### sadio mané (N/A, Sat, 3 Jan 2026 08:30:00 -0800)
+
+- **Mohamed Eisa: “We are not scared of nobody”**: [Link](https://www.cafonline.com/afcon2025/news/mohamed-eisa-we-are-not-scared-of-nobody/)
+- **Sudan Become First Team to Qualify for AFCON Knockouts Without Scoring a Goal**: [Link](https://www.moroccoworldnews.com/2026/01/273627/sudan-become-first-team-to-qualify-for-afcon-knockouts-without-scoring-a-goal/)
+- **AFCON 2025: Sudan’s football nomads and their Ghanaian coach, Kwesi Appiah find hope in AFCON 2025 knockout qualification**: [Link](https://www.olympics.com/en/news/afcon-2025-sudan-s-football-nomads-and-their-ghanaian-coach-kwesi-appiah-find-hope-in-afcon-2025-knockout-qualification)
+
+
+### can 2025 aujourd hui (N/A, Sat, 3 Jan 2026 08:20:00 -0800)
+
+- **DATA CAN 2025. Le Maroc dans la cour des grands, mais avec des marges de progression**: [Link](https://medias24.com/2026/01/02/data-can-2025-le-maroc-dans-la-cour-des-grands-mais-avec-des-marges-de-progression-1605397/)
+- **CAN 2025 : programme du samedi, huitièmes de finale et chaînes de diffusion**: [Link](https://industries.ma/can-2025-programme-du-samedi-huitiemes-de-finale-et-chaines-de-diffusion/)
+- **CAN 2025 : l’expérience des Ballons d’Or africains face à l’ambition de la relève**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-l-experience-des-ballons-d-or-africains-face-a-l-ambition-de-la-releve/)
+
+
 ### algerie vs congo (N/A, Sat, 3 Jan 2026 08:00:00 -0800)
 
 - **Live Algérie - Rép. Dém. Congo 8èmes de finale de Coupe d'Afrique des Nations 2025 Morocco 06/01**: [Link](https://www.footmercato.net/live/1180230871791261588-algerie-vs-rep-dem-congo)
