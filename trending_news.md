@@ -1,3 +1,17 @@
+### السنغال ضد السودان (N/A, Sat, 3 Jan 2026 07:30:00 -0800)
+
+- **السودان يتحدى الأفضلية السنغالية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D8%A3%D9%81%D8%B6%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-1680594.html)
+- **محمد عبد الرحمن: "فخورون لإسعاد الشعب السوداني الذي يتابعنا في كأس أمم إفريقيا رغم الحرب"**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B1%D8%AD%D9%85%D9%86-%D9%81%D8%AE%D9%88%D8%B1%D9%88%D9%86-%D9%84%D8%A5%D8%B3%D8%B9%D8%A7%D8%AF-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%B0%D9%8A-%D9%8A%D8%AA%D8%A7%D8%A8%D8%B9%D9%86%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8/)
+- **الاتحاد السنغالي يخرج عن صمته ويهاجم "الأخبار الزائفة"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A-%D9%8A%D8%AE%D8%B1%D8%AC-%D8%B9%D9%86-%D8%B5%D9%85%D8%AA%D9%87-%D9%88%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%B2%D8%A7%D9%8A%D9%94%D9%81%D8%A9/blt53a2537c1e5f6785)
+
+
+### sénégal – soudan (N/A, Sat, 3 Jan 2026 07:20:00 -0800)
+
+- **CAN : Sénégal-Soudan, sur quelle chaîne voir le match ?**: [Link](https://www.sports.fr/football/can/senegal-soudan-sur-quelle-chaine-voir-le-match-979017.html)
+- **CAN 2025. Sénégal-Soudan : quelle heure, quelles chaînes ?**: [Link](https://medias24.com/2026/01/03/can-2025-senegal-soudan-quelle-heure-quelles-chaines/)
+- **DIRECT. Sénégal-Soudan: suivez le premier match des huitièmes de finale de la CAN 2025 en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-senegal-soudan-suivez-le-premier-huitieme-de-finale-de-la-can-2025-en-live_LS-202601030031.html)
+
+
 ### senegal vs sudan (N/A, Sat, 3 Jan 2026 07:20:00 -0800)
 
 - **MATCH STATS: Senegal vs Sudan – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-senegal-vs-sudan-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
