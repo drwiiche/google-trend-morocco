@@ -1,3 +1,10 @@
+### cagliari vs milan (N/A, Fri, 2 Jan 2026 12:40:00 -0800)
+
+- **Al Milan basta un lampo di Leao per battere il Cagliari: Allegri torna al primo posto**: [Link](https://www.gazzetta.it/Calcio/Serie-A/02-01-2026/cagliari-milan-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Il Diavolo sta bene in vetta**: [Link](https://www.ilgiornale.it/news/sport/leao-sblocca-sesto-gol-milan-2-notti-capolista-attesa-domani-2590401.html)
+- **Tutto il calcio in Diretta**: [Link](https://www.diretta.it/news/calcio-live-le-formazioni-degli-scontri-di-oggi-il-milan-si-impone-a-cagliari/SK1IN9Q9/)
+
+
 ### فنزويلا (N/A, Sat, 3 Jan 2026 01:20:00 -0800)
 
 - **فنزويلا مباشر.. ضربات تستهدف كراكاس ومادورو يعلن الطوارئ**: [Link](https://www.aljazeera.net/news/liveblog/2026/1/3/%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D8%AA%D8%AD%D9%84%D9%8A%D9%82-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA)
