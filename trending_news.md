@@ -1,3 +1,10 @@
+### match fc barcelone (N/A, Sat, 3 Jan 2026 12:30:00 -0800)
+
+- **Espanyol - FC Barcelone en direct - La Liga : Football Scores & Résultats - 03/01/2026**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-espanyol-fc-barcelone_mtc1610556/live-commentary.shtml)
+- **Lancers de rats et billets de banque : les supporters de l’Espanyol promettent l’enfer à Joan Garcia**: [Link](https://www.footmercato.net/a827966367300097868-lancers-de-rats-et-billets-de-banque-les-supporters-de-lespanyol-promettent-lenfer-a-joan-garcia)
+- **Olmo et Pedri, nouveautés dans le groupe du Barça pour le derby**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4427021/olmo-et-pedri-nouveautes-dans-le-groupe-du-barca-pour-le-derby)
+
+
 ### lille – rennes (N/A, Sat, 3 Jan 2026 12:00:00 -0800)
 
 - **LOSC – Stade Rennais. Les prédictions d’Opta**: [Link](https://sportune.20minutes.fr/losc-stade-rennais-les-predictions-dopta-389973)
