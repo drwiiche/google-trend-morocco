@@ -1,3 +1,10 @@
+### monaco – lyon (N/A, Sat, 3 Jan 2026 07:40:00 -0800)
+
+- **OL : le groupe pour affronter Monaco sans Endrick**: [Link](https://www.footmercato.net/a2414546776863845616-ol-le-groupe-pour-affronter-monaco-sans-endrick)
+- **Début d'année, jeu vers l'avant, 150e… Les stats à connaître avant Lyon**: [Link](https://www.asmonaco.com/debut-dannee-jeu-vers-lavant-150e-les-stats-opta-a-connaitre-avant-monaco-lyon/)
+- **Brisard pour arbitrer le premier choc de l’année**: [Link](https://www.ladiagonale.net/index.php/2026/01/03/brisard-pour-arbitrer-le-premier-choc-de-lannee/)
+
+
 ### السنغال ضد السودان (N/A, Sat, 3 Jan 2026 07:30:00 -0800)
 
 - **السودان يتحدى الأفضلية السنغالية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D8%A3%D9%81%D8%B6%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-1680594.html)
