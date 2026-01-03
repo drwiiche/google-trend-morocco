@@ -1,3 +1,24 @@
+### espanyol – barcelone (N/A, Sat, 3 Jan 2026 11:10:00 -0800)
+
+- **Espanyol ultras plan shocking act against Barcelona goalkeeper Joan Garcia**: [Link](https://barcauniversal.com/espanyol-ultras-plan-shocking-act-against-barcelona-goalkeeper-joan-garcia/)
+- **Barcelona face a derby shaped by anger, memory and one explosive return**: [Link](https://playingfor90.com/barcelona-face-a-derby-shaped-by-anger-memory-and-one-explosive-return-01ke1pqd1vb1)
+- **Flick: Barcelona have enough quality to beat high-flying Espanyol**: [Link](https://www.beinsports.com/en-asia/football/primera-divisin/articles/flick-barcelona-have-enough-quality-to-beat-high-flying-espanyol-2026-01-02)
+
+
+### إسبانيول ضد برشلونة (N/A, Sat, 3 Jan 2026 11:10:00 -0800)
+
+- **"ديربي كتالونيا يتحول إلى حلبة حرب".. إسبانيول يواجه خيانة حارس برشلونة بـ"الفئران" وشباك واقية!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%85%D8%B5%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D9%94%D8%B1%D8%A7%D9%86--%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%8A%D8%AD%D9%85%D9%8A-%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%86-%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%BA%D8%B6%D8%A8/blt6b9b8e632fd5abab)
+- **يامال يقود هجوم برشلونة في الديربي بمعقل إسبانيول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A8%D9%85%D8%B9%D9%82%D9%84-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84/blt52a7c110f54a8e0c)
+- **بعد تصريح “الدهس”.. يامال يفجّر ديربي كتالونيا قبل صافرة البداية**: [Link](https://www.raialyoum.com/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D8%A7%D9%84%D8%AF%D9%87%D8%B3-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D9%81%D8%AC%D9%91%D8%B1-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%83%D8%AA%D8%A7/)
+
+
+### espanyol vs barcelona (N/A, Sat, 3 Jan 2026 11:10:00 -0800)
+
+- **El posible once del Barça ante el Espanyol contempla mínimo una sorpresa**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260103/1002595075/posible-once-barca-espanyol-contempla-minimo-sorpresa.html)
+- **⏰ ¡Falta poco! Te decimos a qué HORA y por DÓNDE VER el Espanyol vs Barcelona de LaLiga ⚽🇪🇸**: [Link](https://www.facebook.com/story.php?story_fbid=1349779557179512&id=100064424424683)
+- **Mucha seguridad y expectación en la previa al derbi catalán**: [Link](https://www.sport.es/es/videos/barca/20260103/seguridad-expectacion-previa-derbi-catalan/125345812.shtml)
+
+
 ### benfica – estoril (N/A, Sat, 3 Jan 2026 10:30:00 -0800)
 
 - **AO VIVO: Enorme defesa de Trubin após perda de bola de Sudakov (17')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-enorme-defesa-de-trubin-apos-perda-de-bola-de-sudakov-17/KOPW1Cy8/)
