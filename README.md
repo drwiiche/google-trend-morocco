@@ -1,3 +1,10 @@
+### stranger things (N/A, Fri, 2 Jan 2026 16:10:00 -0800)
+
+- **The Duffer Brothers Dive Deep Into the Emotional Stranger Things Series Finale**: [Link](https://www.netflix.com/tudum/features/stranger-things-series-finale-duffer-brothers-interview)
+- **‘Stranger Things’ Finale Spoiler Interview: Duffer Brothers on Whether Eleven Is Alive, Debating Who Got to Kill [SPOILER] and Why the Rock From the Briefcase Is Key to the Spinoff**: [Link](https://variety.com/2026/tv/news/stranger-things-finale-is-eleven-alive-vecna-killed-rock-spinoff-1236621528/)
+- **‘Stranger Things’ Finale Lights Up New Year’s Box Office With $20M-$25M Haul for Cinemas**: [Link](https://www.hollywoodreporter.com/movies/movie-news/stranger-things-finale-new-years-box-office-theaters-amc-1236462588/)
+
+
 ### عاصفة فرانسيس (N/A, Fri, 2 Jan 2026 14:30:00 -0800)
 
 - **"نشرة حمراء" ترفع التعبئة بأقاليم مغربية وتكثّف الدعوات للالتزام بالإرشادات**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%AA%D8%B1%D9%81%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D8%A8%D8%A6%D8%A9-%D8%A8%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D9%85%D8%BA%D8%B1%D8%A8-1680765.html)
