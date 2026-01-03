@@ -1,3 +1,17 @@
+### senegal vs sudan (N/A, Sat, 3 Jan 2026 07:20:00 -0800)
+
+- **MATCH STATS: Senegal vs Sudan – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-senegal-vs-sudan-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
+- **Senegal FA Denies 'Crisis' Ahead of Sudan Clash in AFCON 2025 Round of 16**: [Link](https://m.elbotola.com/en/article/2026-01-02-11-13-355.html)
+- **Senegal to Face Sudan in First AFCON Playoff as Mali Meet Tunisia Later**: [Link](https://www.dawan.africa/news/senegal-to-face-sudan-in-first-afcon-playoff-as-mali-meet-tunisia-later)
+
+
+### celta vigo – valence (N/A, Sat, 3 Jan 2026 04:20:00 -0800)
+
+- **Liga : le Celta de Vigo écrase Valence grâce à un Borja Iglesias double buteur**: [Link](https://www.footmercato.net/a7050575931992049889-liga-le-celta-de-vigo-ecrase-valence-grace-a-un-borja-iglesias-double-buteur)
+- **Prédiction Celta Vigo vs Valence – Un tour dramatique en Liga**: [Link](https://baonghean.vn/fr/nhan-dinh-celta-vigo-vs-valencia-vong-dau-kich-tinh-tai-la-liga-10318268.html)
+- **Celta Vigo – Valence en direct**: [Link](https://www.sport.fr/football/celta-vigo-valence-en-direct-1403687.shtm)
+
+
 ### brighton – burnley (N/A, Sat, 3 Jan 2026 06:40:00 -0800)
 
 - **Premier League: Wolves host West Ham & Burnley visit Brighton after Villa win**: [Link](https://www.bbc.com/sport/football/live/c30jnmj4ljmt)
