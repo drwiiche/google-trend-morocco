@@ -1,3 +1,17 @@
+### فنزويلا (N/A, Sat, 3 Jan 2026 01:20:00 -0800)
+
+- **فنزويلا مباشر.. ضربات تستهدف كراكاس ومادورو يعلن الطوارئ**: [Link](https://www.aljazeera.net/news/liveblog/2026/1/3/%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D8%AA%D8%AD%D9%84%D9%8A%D9%82-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA)
+- **الولايات المتحدة وفنزويلا: الولايات المتحدة تهاجم العاصمة الفنزويلية كاراكاس**: [Link](https://www.bbc.com/arabic/articles/c9qplj0l43do)
+- **انفجارات في كاراكاس وتحليق مقاتلات.. ومادورو يعلن التعبئة**: [Link](https://www.alarabiya.net/arab-and-world/2026/01/03/%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D8%AA%D9%88%D8%AA%D8%B1-%D9%85%D8%B9-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AF%D9%88%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D9%85%D8%B1%D9%8A%D8%A8%D8%A9-%D9%81%D9%8A-%D9%83%D8%A7%D8%B1%D9%83%D8%A7%D8%B3-)
+
+
+### طقس طنجة (N/A, Fri, 2 Jan 2026 23:00:00 -0800)
+
+- **توقعات أحوال الطقس اليوم السبت**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A/)
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-61-1680148.html)
+- **طقس الأربعاء.. جو بارد مع نزول أمطار وتساقط الثلوج**: [Link](https://www.ahdath.info/article/248139/%D9%85%D8%AC%D8%AA%D9%85%D8%B9/%D9%88%D9%82%D8%A7%D8%A6%D8%B9/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%AC%D9%88-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%85%D8%B9-%D9%86%D8%B2%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%AB%D9%84%D9%88%D8%AC)
+
+
 ### aljazeera (N/A, Fri, 2 Jan 2026 23:20:00 -0800)
 
 - **Updates: Fighting breaks out in east Yemen along border with Saudi Arabia**: [Link](https://www.aljazeera.com/news/liveblog/2026/1/2/live-fighting-breaks-out-in-eastern-yemen-along-border-with-saudi-arabia)
