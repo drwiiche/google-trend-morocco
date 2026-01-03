@@ -1,3 +1,10 @@
+### can 2025 calendrier (N/A, Sat, 3 Jan 2026 08:40:00 -0800)
+
+- **DATA CAN 2025. Le Maroc dans la cour des grands, mais avec des marges de progression**: [Link](https://medias24.com/2026/01/02/data-can-2025-le-maroc-dans-la-cour-des-grands-mais-avec-des-marges-de-progression-1605397/)
+- **CAN 2025 : programme du samedi, huitièmes de finale et chaînes de diffusion**: [Link](https://industries.ma/can-2025-programme-du-samedi-huitiemes-de-finale-et-chaines-de-diffusion/)
+- **CAN 2025 : l’expérience des Ballons d’Or africains face à l’ambition de la relève**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2025-l-experience-des-ballons-d-or-africains-face-a-l-ambition-de-la-releve/)
+
+
 ### juventus – lecce (N/A, Sat, 3 Jan 2026 08:30:00 -0800)
 
 - **Spalletti alla vigilia del Lecce: "Conte ha ragione, noi avanti sul Napoli". Sul mercato: "Non ho bisogno di niente, ma..."**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/02-01-2026/juve-lecce-spalletti-in-conferenza-prima-del-match.shtml)
