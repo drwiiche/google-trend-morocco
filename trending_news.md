@@ -1,3 +1,10 @@
+### الجزيرة (N/A, Fri, 2 Jan 2026 23:20:00 -0800)
+
+- **Updates: Fighting breaks out in east Yemen along border with Saudi Arabia**: [Link](https://www.aljazeera.com/news/liveblog/2026/1/2/live-fighting-breaks-out-in-eastern-yemen-along-border-with-saudi-arabia)
+- **Conflicting signals deepen Yemen’s political and military crisis**: [Link](https://en.annahar.com/en/region/gcc/266351/conflicting-signals-deepen-yemens-political-and-military-crisis)
+- **Press Statement – Ministry of Foreign Affairs of the Republic of IRAQ**: [Link](https://mofa.gov.iq/2026/60886/)
+
+
 ### venezuela (N/A, Fri, 2 Jan 2026 23:00:00 -0800)
 
 - **CNN team witnesses multiple explosions in Venezuela’s capital Caracas**: [Link](https://www.cnn.com/2026/01/03/americas/venezuela-explosions-intl-hnk)
