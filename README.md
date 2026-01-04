@@ -1,3 +1,9 @@
+### إشبيلية ضد ليفانتي (N/A, Sun, 4 Jan 2026 05:50:00 -0800)
+
+- **شوط أول | ليفانتي يتقدم على إشبيلية بهدف نظيف في الدوري الإسباني**: [Link](https://www.elbalad.news/6823560)
+- **تشكيل إشبيلية لمواجهة ليفانتي في الدوري الإسباني**: [Link](https://www.elbalad.news/6823456)
+
+
 ### marseille – nantes (N/A, Sun, 4 Jan 2026 05:30:00 -0800)
 
 - **Ligue 1 | Huit matches en 28 jours : avant d'affronter Nantes, l'OM réinvente le Boxing Day en janvier**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-huit-matches-en-28-jours-avant-daffronter-nantes-lom-reinvente-le-boxing-day-en-janvier_sto23255614/story.shtml)
