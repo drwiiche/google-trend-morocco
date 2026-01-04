@@ -1,3 +1,24 @@
+### atletico madrid (N/A, Sun, 4 Jan 2026 12:40:00 -0800)
+
+- **Real Sociedad vs Atletico Madrid – Match preview and team news**: [Link](https://sports.yahoo.com/articles/real-sociedad-vs-atletico-madrid-090900063.html)
+- **Atletico Madrid XI vs Real Sociedad – Predicted lineup and team news**: [Link](https://thefootballfaithful.com/atletico-madrid-xi-vs-real-sociedad-predicted-lineup-and-team-news/)
+- **Real Sociedad vs Atletico Madrid Prediction, 1/4/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2025/real-sociedad-vs-atletico-madrid-prediction-1-4-2026-soccer-pick-tips-and-odds.html)
+
+
+### danny namaso (N/A, Sun, 4 Jan 2026 12:40:00 -0800)
+
+- **Danny Namaso attracting interest in England and Spain**: [Link](https://onefootball.com/de/news/danny-namaso-attracting-interest-in-england-and-spain-42171912)
+- **Leeds United eye AFCON star Danny Namaso as fee for summer transfer already set**: [Link](https://motleedsnews.com/transfers/leeds-united-eye-afcon-star-danny-namaso-as-fee-for-summer-transfer-already-set/)
+- **Leeds United move in for FC Porto player – Agent utilising AFCON**: [Link](https://sportwitness.co.uk/leeds-united-in-picture-with-3-teams-for-signing-player-expected-to-leave-club-willing-to-sell-for-e5m/)
+
+
+### kick (N/A, Sun, 4 Jan 2026 12:30:00 -0800)
+
+- **Who were the most-watched Kick streamers of 2025?**: [Link](https://win.gg/most-watched-kick-streamers/)
+- **Watch Cam Little Add to Historic NFL Season with Epic FG Kick for Jaguars**: [Link](https://bleacherreport.com/articles/25348152-watch-cam-little-add-historic-nfl-season-epic-fg-kick-jaguars)
+- **Memory unlocked for Riley Leonard & his family ❤️**: [Link](https://www.foxsports.com/watch-vertical/fmc-b79oii3imszn0zh4)
+
+
 ### mbeumo (N/A, Sun, 4 Jan 2026 12:10:00 -0800)
 
 - **CAN 2025: au Cameroun, le risque d'une Mbeumo-dépendance ?**: [Link](https://www.rfi.fr/fr/afrique-foot/20251231-marbre-ne-pas-toucher-can-2025-au-cameroun-le-risque-d-une-mbeumo-d%C3%A9pendance)
