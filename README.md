@@ -1,3 +1,10 @@
+### barcelona (N/A, Sat, 3 Jan 2026 14:00:00 -0800)
+
+- **Mercado de fichajes, en directo: última hora de Real Madrid, Barcelona, Atlético de Madrid y fútbol internacional**: [Link](https://as.com/futbol/primera/mercado-de-fichajes-en-directo-ultima-hora-de-real-madrid-barcelona-atletico-de-madrid-y-futbol-internacional-f202601-d-4/)
+- **Mercado de fichajes de invierno, en directo: Los movimientos del Real Madrid, Barcelona, Atlético...**: [Link](https://www.marca.com/futbol/mercado-fichajes/2026/01/02/69577657f49425d14de2f5f5-directo.html)
+- **Mercado de fichajes del 30 de diciembre, en directo: Ter Stegen, Rüdiger...**: [Link](https://www.eldesmarque.com/futbol/mercado-de-fichajes/20251230/mercado-fichajes-30-diciembre-d1rect0_18_017962760.html)
+
+
 ### venezuela nicolas maduro (N/A, Sun, 4 Jan 2026 02:40:00 -0800)
 
 - **Live updates: Maduro, wife in US custody after Trump vows to ‘run’ Venezuela**: [Link](https://www.cnn.com/world/live-news/venezuela-trump-maduro-01-04-26)
