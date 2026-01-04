@@ -1,3 +1,10 @@
+### برشلونة (N/A, Sat, 3 Jan 2026 14:00:00 -0800)
+
+- **موعد انضمام موهبة الأهلي المصري إلى برشلونة**: [Link](https://www.aljazeera.net/sport/2026/1/3/%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **كورة يكشف حقيقة تجديد الاهلي لعقد حمزة عبدالكريم قبل رحلة برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%B9%D9%82%D8%AF-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D9%82%D8%A8%D9%84-%D8%B1%D8%AD%D9%84%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltc2d8610c7bf78b3f)
+- **تقارير - برشلونة على أعتاب ضمّ المصري حمزة عبد الكريم**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%A3%D8%B9%D8%AA%D8%A7%D8%A8-%D8%B6%D9%85-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-2026-01-02)
+
+
 ### roma (N/A, Sat, 3 Jan 2026 13:30:00 -0800)
 
 - **Calcio, risultati e classifica di Serie A, frenata Roma**: [Link](https://sport.tiscali.it/calcio/articoli/cd57fa9a-e93c-11f0-89cb-005056a86fbe/)
