@@ -1,3 +1,17 @@
+### caf match (N/A, Sun, 4 Jan 2026 10:30:00 -0800)
+
+- **MATCH STATS: Algeria vs DR Congo – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-dr-congo-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
+- **Moutoussamy urges Congo to prepare for Algeria AFCON clash**: [Link](https://www.panafricafootball.com/post/moutoussamy-on-algeria-afcon-clash/)
+- **AFCON2025 : Algeria to Face DR Congo in Round of 16**: [Link](https://al24news.dz/en/afcon2025-algeria-to-face-dr-congo-in-round-of-16/)
+
+
+### مباريات كاس افريقيا (N/A, Sun, 4 Jan 2026 10:10:00 -0800)
+
+- **جدول مباريات ربع نهائي كأس أمم إفريقيا 2025.. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blte7b25ee220755855)
+- **كأس أمم أفريقيا: المغرب ضد الجزائر أو مصر - تونس في نصف النهائي؟ "الأسود" أمام "الفراعنة" في الختام؟**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20260102-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D9%85%D8%B5%D8%B1-%D8%AA%D9%88%D9%86%D8%B3-%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9)
+- **انطلاق ثمن نهائي كأس أمم إفريقيا 2025.. المواعيد والقنوات الناقلة لمباريات اليوم**: [Link](https://24saa.com/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D8%A7%D9%84%D9%85%D9%88/)
+
+
 ### جنوب أفريقيا ضد الكاميرون (N/A, Sun, 4 Jan 2026 10:20:00 -0800)
 
 - **جنوب إفريقيا والكاميرون في صراع مثير لانتزاع بطاقة العبور**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D9%81%D9%8A-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D8%A7%D9%86%D8%AA%D8%B2%D8%A7%D8%B9-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D8%B9%D8%A8%D9%88%D8%B1-2026-01-04)
