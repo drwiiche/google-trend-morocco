@@ -1,3 +1,10 @@
+### barcelona vs (N/A, Sat, 3 Jan 2026 14:00:00 -0800)
+
+- **El Barça puede salir beneficiado de la lluvia de millones en la Supercopa**: [Link](https://www.sport.es/es/noticias/barca/barca-salir-beneficiado-lluvia-millones-125301839)
+- **FC Barcelona vs Athletic buscan la Final de la Supercopa de España 2026; fecha, hora y canal**: [Link](https://www.sdpnoticias.com/deportes/fc-barcelona-vs-athletic-fecha-horario-y-donde-ver-la-semifinal-de-la-supercopa-de-espana-2026/)
+- **Supercopa de España 2026: partidos, horarios y dónde ver por TV**: [Link](https://www.sportaragon.com/articulo/futbol-aragon/supercopa-espana-2026-partidos-horarios/20260102171708144552.html)
+
+
 ### مقاييس الأمطار بالمغرب (N/A, Sat, 3 Jan 2026 16:10:00 -0800)
 
 - **مقاييس الأمطار المسجلة بالمملكة خلال الـ24 ساعة الماضية – ChoufTV :: TV شوف**: [Link](https://chouftv.ma/press/772798.html)
