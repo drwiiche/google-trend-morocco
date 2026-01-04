@@ -1,3 +1,31 @@
+### ben seghir (N/A, Sun, 4 Jan 2026 09:40:00 -0800)
+
+- **« J’ai pleuré » : la déchirante confession d’Eliesse Ben Seghir**: [Link](https://www.bladi.net/pleure-dechirante-confession-eliesse-ben-seghir,118723.html)
+- **Bensghir : « J'ai pleuré quand on m'a dit que je n'irais pas à Marseille, et ma famille a préféré Monaco pour la sécurité**: [Link](https://m.elbotola.com/fr/article/2026-01-01-19-58-362.html)
+- **Transferts : L’OM tout proche de signer un phénomène!**: [Link](https://le10sport.com/football/mercato/transferts-lom-tout-proche-de-signer-un-phenomene-770286)
+
+
+### brahim diaz (N/A, Sun, 4 Jan 2026 09:30:00 -0800)
+
+- **0-3: Brahim scores again for Morocco in the Africa Cup of Nations**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/brahim-en-la-copa-de-africa-con-marruecos)
+- **Regragui: "Diaz Is Very Effective Today; If He Maintains This Level and Wins AFCON, I'll Be the Happiest Coach"**: [Link](https://m.elbotola.com/en/article/2026-01-03-10-51-825.html)
+- **Brahim Díaz Captivates Morocco and Sets His Sights on Xabi Alonso’s Real Madrid**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations/articles/brahim-d%C3%ADaz-captivates-morocco-and-sets-his-sights-on-xabi-alonso-s-real-madrid-2026-01-03)
+
+
+### liverpool (N/A, Sun, 4 Jan 2026 09:10:00 -0800)
+
+- **Premier League LIVE: Live text for four matches after Leeds draw with Man Utd - score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cdj8d4097k9t)
+- **Fulham 2-2 Liverpool: Player Ratings**: [Link](https://www.thisisanfield.com/2026/01/fulham-2-2-liverpool-player-ratings-2/)
+- **Reed’s Late Wonder Goal Seals 2-2 Draw Between Fulham and Liverpool**: [Link](https://www.dawan.africa/news/reeds-late-wonder-goal-seals-2-2-draw-between-fulham-and-liverpool)
+
+
+### hakimi (N/A, Sun, 4 Jan 2026 08:50:00 -0800)
+
+- **El hermoso gesto de Achraf Hakimi hacia Brahim Díaz durante el partido contra Marruecos en la Copa Africana de Naciones – visto**: [Link](https://tribuna.com/es/blogs/el-hermoso-gesto-de-achraf-hakimi-hacia-brahim-diaz-durante/)
+- **Marruecos - Tanzania, en directo: Copa África, hoy en vivo**: [Link](https://as.com/futbol/internacional/marruecos-tanzania-en-directo-copa-africa-hoy-en-vivo-f202601-n/)
+- **Marruecos - Tanzania en directo: Octavos de final de la Copa de Africa hoy en vivo**: [Link](https://www.marca.com/futbol/copa-de-africa/marruecos-tanzania/2026/01/04/01_0167_20260104_1057_1888-directo.html)
+
+
 ### إبراهيم دياز (N/A, Sun, 4 Jan 2026 09:30:00 -0800)
 
 - **دياز السلاح الفتاك لـ "أسود الأطلس"**: [Link](https://www.hespress.com/%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%81%D8%AA%D8%A7%D9%83-%D9%84%D9%80%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1681564.html)
