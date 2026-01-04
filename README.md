@@ -1,3 +1,38 @@
+### مان سيتي ضد تشيلسي (N/A, Sun, 4 Jan 2026 08:50:00 -0800)
+
+- **قمة مشوقة على ملعب الاتحاد: سيتي يستقبل تشلسي في حقبة ما بعد ماريسكا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D9%85%D8%B4%D9%88%D9%82%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%81%D9%8A-%D8%AD%D9%82%D8%A8%D8%A9-%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-2026-01-04)
+- **هالاند وبالمر وجهًا لوجه في موقعة السيتي وتشيلسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%88%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D9%88%D8%AC%D9%87%D9%8B%D8%A7-%D9%84%D9%88%D8%AC%D9%87-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/blt7fb6d4f382739c96)
+- **مانشستر سيتي ضد تشلسي في الدوري الإنجليزي.. الموعد والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/1/3/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B6%D8%AF-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+
+
+### gonzalo garcía (N/A, Sun, 4 Jan 2026 08:50:00 -0800)
+
+- **Gonzalo García marca su primer gol en LaLiga y rompe racha sin anotaciones**: [Link](https://www.si.com/es-us/futbol/gonzalo-garcia-se-estrena-como-goleador-en-laliga-real-madrid)
+- **Sigue en directo toda la información del mundo del fútbol en formato exprés**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-futbol-en-directo-gonzalo-golpea-tres-veces-y-avisa-a-xabi-alonso/O4QRt9MP/)
+- **En directo | Real Madrid - Betis**: [Link](https://www.elnortedecastilla.es/deportes/futbol/liga-primera/directo-real-madrid-betis-20260104155514-dirc.html)
+
+
+### live tv (N/A, Sun, 4 Jan 2026 08:50:00 -0800)
+
+- **Frndly TV vs Philo TV: What is The Best Discounted Live TV Streaming Service?**: [Link](https://cordcuttersnews.com/frndly-tv-vs-philo-tv-what-is-the-best-discounted-live-tv-streaming-service/)
+- **2025 NFL season Week 18: everything that can happen**: [Link](https://www.foxnews.com/sports/2025-nfl-season-week-18-everything-can-happen)
+- **NFL Week 18 inactives, scores, live updates: Texans, Jaguars face off for AFC South title; Saints-Falcons decides NFC South**: [Link](https://sports.yahoo.com/nfl/live/nfl-week-18-inactives-scores-live-updates-texans-jaguars-face-off-for-afc-south-title-saints-falcons-decides-nfc-south-163050055.html)
+
+
+### bein sport live (N/A, Sun, 4 Jan 2026 08:40:00 -0800)
+
+- **Djigui Diarra the hero as Mali edge Tunisia on penalties to reach the quarter-finals**: [Link](https://www.cafonline.com/afcon2025/news/djigui-diarra-the-hero-as-mali-edge-tunisia-on-penalties-to-reach-the-quarter-finals/)
+- **Afcon 2025: Mali 1-1 Tunisia (AET, 3-2 pens) - Eagles into quarter-finals**: [Link](https://www.bbc.com/sport/football/live/c0lx81l191et)
+- **Paranoia and Mali get the better of timid, tetchy Tunisia**: [Link](https://www.theguardian.com/football/2026/jan/03/paranoia-and-mali-get-the-better-of-timid-tetchy-tunisia)
+
+
+### match en direct (N/A, Sun, 4 Jan 2026 08:20:00 -0800)
+
+- **FC Lorient – FC Metz : Les informations pratiques**: [Link](https://www.fclorient.bzh/fc-lorient-fc-metz-les-informations-pratiques-2/)
+- **Le couteau suisse de Lorient a enfin trouvé sa place : Théo Le Bris, une mue qui ne doit rien au hasard**: [Link](https://www.lequipe.fr/Football/Article/Le-couteau-suisse-de-lorient-a-enfin-trouve-sa-place-theo-le-bris-une-mue-qui-ne-doit-rien-au-hasard/1630385)
+- **Lorient - Metz : sur quelle chaîne et à quelle heure voir le match de Ligue 1 en direct ?**: [Link](https://www.ouest-france.fr/sport/football/fc-lorient/lorient-metz-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-1-en-direct-94b4a1c6-e7ec-11f0-9b78-7c77e15311d5)
+
+
 ### manchester city – chelsea (N/A, Sun, 4 Jan 2026 08:40:00 -0800)
 
 - **Man City vs Chelsea LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/ce8r0m8mz24t)
