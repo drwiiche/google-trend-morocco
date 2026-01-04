@@ -1,3 +1,24 @@
+### marruecos - tanzania (N/A, Sun, 4 Jan 2026 07:20:00 -0800)
+
+- **Regragui comparece con Saïss ante la prensa antes de octavos de la Copa África**: [Link](https://es.rue20.com/2026/01/02/regragui-comparece-con-saiss-ante-la-prensa-antes-de-octavos-de-la-copa-africa/)
+- **CAF Designa a Bobo Traoré como Árbitro para el Partido entre Marruecos y Tanzania en Octavos de Final**: [Link](https://tanja24.com/es/2026/01/03/caf-designa-a-bobo-traore-como-arbitro-para-el-partido-entre-marruecos-y-tanzania-en-octavos-de-final/)
+- **Marruecos vs Tanzania: estadísticas, alineaciones probables y pronóstico de la Copa Africana de Naciones 2025**: [Link](https://www.williamhill.es/news/pronostico-marruecos-tanzania)
+
+
+### hull city – watford (N/A, Sun, 4 Jan 2026 07:20:00 -0800)
+
+- **Championship LIVE: Eight games remain after freeze hits schedule**: [Link](https://www.bbc.com/sport/football/live/cpd6e9v9zpxt)
+- **Predicting Javi Gracia's XI to round off festive period at Hull City**: [Link](https://www.watfordobserver.co.uk/sport/25737192.predicting-javi-gracias-xi-round-off-christmas-hull/)
+- **Championship game called off 20 minutes before KO despite blowtorch melting ice**: [Link](https://www.dailystar.co.uk/sport/football/breaking-hull-watford-postponed-championship-36495471)
+
+
+### everton – brentford (N/A, Sun, 4 Jan 2026 07:10:00 -0800)
+
+- **Everton line-ups for Brentford as Jack Grealish and Jake O'Brien decisions made**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/everton-line-ups-brentford-jack-33160765)
+- **⚽ Live updates from the Hill Dickinson Stadium as Everton take on Brentford**: [Link](https://www.facebook.com/theliverpoolecho/photos/-live-updates-from-the-hill-dickinson-stadium-as-everton-take-on-brentford/1218787647014176/)
+- **Moyes' Programme Notes For Visit Of Brentford**: [Link](https://www.evertonfc.com/news/2026/january/04/moyes--programme-notes-for-visit-of-brentford/)
+
+
 ### فولهام ضد ليفربول (N/A, Sun, 4 Jan 2026 07:00:00 -0800)
 
 - **17 عاما.. هل يغير ليفربول عادته على ملعب فولهام؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/17-%D8%B9%D8%A7%D9%85%D8%A7--%D9%87%D9%84-%D9%8A%D8%BA%D9%8A%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B9%D8%A7%D8%AF%D8%AA%D9%87-%D8%B9%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85/blt916ce1e15cae8796)
