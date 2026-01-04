@@ -1,3 +1,17 @@
+### vincennes (N/A, Sun, 4 Jan 2026 04:10:00 -0800)
+
+- **Quinté du dimanche 4 janvier 2026 à Vincennes : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-4-janvier-2026-a-vincennes-les-pronostics-7900584219)
+- **Quinté Plus PMU : Cobra Killer Gar devrait renouer avec le succès**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-cobra-killer-gar-devrait-renouer-avec-le-succes-128821.html)
+- **Les pronos hippiques du dimanche 4 janvier 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-4-janvier-2026_AN-202601030239.html)
+
+
+### leeds united – manchester united (N/A, Sun, 4 Jan 2026 03:50:00 -0800)
+
+- **Premier League LIVE: Leeds vs Man Utd - score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cdj8d4097k9t)
+- **Ruben Amorim explains why Joshua Zirkzee has been dropped for Manchester United vs Leeds**: [Link](https://www.manchestereveningnews.co.uk/sport/football/ruben-amorim-explains-joshua-zirkzee-33162855)
+- **Leeds vs Man Utd: Get £50 in football free bets when you join Betfred**: [Link](https://www.thesun.co.uk/sport/37776718/leeds-vs-man-utd-football-free-bets-betfred/)
+
+
 ### barcelona (N/A, Sat, 3 Jan 2026 14:00:00 -0800)
 
 - **Mercado de fichajes, en directo: última hora de Real Madrid, Barcelona, Atlético de Madrid y fútbol internacional**: [Link](https://as.com/futbol/primera/mercado-de-fichajes-en-directo-ultima-hora-de-real-madrid-barcelona-atletico-de-madrid-y-futbol-internacional-f202601-d-4/)
