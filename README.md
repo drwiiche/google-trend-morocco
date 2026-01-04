@@ -1,3 +1,10 @@
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Sun, 4 Jan 2026 11:50:00 -0800)
+
+- **مديرية التعليم بتزنيت تعلق الدراسة**: [Link](https://www.hespress.com/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A8%D8%AA%D8%B2%D9%86%D9%8A%D8%AA-%D8%AA%D8%B9%D9%84%D9%82-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-1681838.html)
+- **أكادير .. تعبئة ميدانية للتخفيف من آثار الاضطرابات الجوية**: [Link](https://2m.ma/ar/news/%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D8%AA%D8%B9%D8%A8%D8%A6%D8%A9-%D9%85%D9%8A%D8%AF%D8%A7%D9%86%D9%8A%D8%A9-%D9%84%D9%84%D8%AA%D8%AE%D9%81%D9%8A%D9%81-%D9%85%D9%86-%D8%A2%D8%AB%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-20260104)
+- **اشتوكة آيت باها: تدخلات استباقية ميدانية لمواجهة آثار التساقطات المطرية - هبة بريس**: [Link](https://ar.hibapress.com/details-690746.html)
+
+
 ### chan (N/A, Sun, 4 Jan 2026 13:00:00 -0800)
 
 - **Why the rise of Mateus Mane offers Wolves new hope in 2026 and beyond**: [Link](https://www.nytimes.com/athletic/6937957/2026/01/04/mateus-mane-wolves-rise/)
