@@ -1,3 +1,17 @@
+### fulham – liverpool (N/A, Sun, 4 Jan 2026 06:20:00 -0800)
+
+- **Fulham v Liverpool: Team news**: [Link](https://www.liverpoolfc.com/news/fulham-v-liverpool-team-news-1)
+- **“Too much of a risk” – Arne Slot lifts lid on Liverpool call that raised eyebrows**: [Link](https://www.empireofthekop.com/2026/01/04/liverpool-fulham-team-news/)
+- **Virgil van Dijk out to continue valuable 2025/26 record vs. Fulham**: [Link](https://www.thisisanfield.com/2026/01/virgil-van-dijk-out-to-continue-incredible-2025-26-record-vs-fulham/)
+
+
+### ounahi (N/A, Sun, 4 Jan 2026 06:00:00 -0800)
+
+- **MATCH STATS: Morocco vs Tanzania – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-morocco-vs-tanzania-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
+- **Mazraoui Urges Moroccan Fans to Back Team as AFCON Knockouts Begin**: [Link](https://www.moroccoworldnews.com/2026/01/273817/mazraoui-urges-moroccan-fans-to-back-team-as-afcon-knockouts-begin/)
+- **Saïss: "We Were Eliminated by Lesser Teams in the Past; We Must Not Repeat Those Mistakes"**: [Link](https://m.elbotola.com/en/article/2026-01-03-13-32-721.html)
+
+
 ### إشبيلية ضد ليفانتي (N/A, Sun, 4 Jan 2026 05:50:00 -0800)
 
 - **شوط أول | ليفانتي يتقدم على إشبيلية بهدف نظيف في الدوري الإسباني**: [Link](https://www.elbalad.news/6823560)
