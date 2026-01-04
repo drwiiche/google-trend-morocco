@@ -1,3 +1,10 @@
+### sinayoko (N/A, Sat, 3 Jan 2026 13:00:00 -0800)
+
+- **CAN 2025: le tableau complet des quarts de finale de la Coupe d'Afrique des nations**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-tableau-complet-des-quarts-de-finale-de-la-coupe-d-afrique-des-nations_AV-202601030273.html)
+- **Maroc-Algérie, c’est confirmé**: [Link](https://www.sports.fr/football/can/maroc-algerie-cest-confirme-979095.html)
+- **CAN 2025 : les affiches et le programme des huitièmes de finale**: [Link](https://www.bbc.com/afrique/articles/c23rk9vxe2no)
+
+
 ### barcelona vs (N/A, Sat, 3 Jan 2026 14:00:00 -0800)
 
 - **El Barça puede salir beneficiado de la lluvia de millones en la Supercopa**: [Link](https://www.sport.es/es/noticias/barca/barca-salir-beneficiado-lluvia-millones-125301839)
