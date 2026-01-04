@@ -1,3 +1,10 @@
+### achraf hakimi (N/A, Sun, 4 Jan 2026 07:30:00 -0800)
+
+- **El hermoso gesto de Achraf Hakimi hacia Brahim Díaz durante el partido contra Marruecos en la Copa Africana de Naciones – visto**: [Link](https://tribuna.com/es/blogs/el-hermoso-gesto-de-achraf-hakimi-hacia-brahim-diaz-durante/)
+- **Marruecos - Tanzania en directo: Octavos de final de la Copa de Africa**: [Link](https://www.marca.com/futbol/copa-de-africa/marruecos-tanzania/2026/01/04/01_0167_20260104_1057_1888-directo.html)
+- **Regragui comparece con Saïss ante la prensa antes de octavos de la Copa África**: [Link](https://es.rue20.com/2026/01/02/regragui-comparece-con-saiss-ante-la-prensa-antes-de-octavos-de-la-copa-africa/)
+
+
 ### marruecos - tanzania (N/A, Sun, 4 Jan 2026 07:20:00 -0800)
 
 - **Regragui comparece con Saïss ante la prensa antes de octavos de la Copa África**: [Link](https://es.rue20.com/2026/01/02/regragui-comparece-con-saiss-ante-la-prensa-antes-de-octavos-de-la-copa-africa/)
