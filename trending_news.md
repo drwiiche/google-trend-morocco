@@ -1,3 +1,24 @@
+### real sociedad – atlético madrid (N/A, Sun, 4 Jan 2026 11:20:00 -0800)
+
+- **La plantilla de Simeone para el Auténtico Sociedad-Gimnástico de Madrid**: [Link](https://bitacora.com.uy/%F0%9F%93%9C-la-plantilla-de-simeone-para-el-autentico-sociedad-gimnastico-de-madrid/)
+- **Alineaciones del Real Sociedad - Atlético de LaLiga EASports**: [Link](https://www.marca.com/futbol/atletico/2026/01/04/alineaciones-probables-real-sociedad-atletico-laliga-easports.html)
+- **Año nuevo, Real nueva**: [Link](https://www.realsociedad.eus/es/noticias/detalle/ano-nuevo-real-nueva)
+
+
+### inter – bologne (N/A, Sun, 4 Jan 2026 11:20:00 -0800)
+
+- **DIRECT. Inter Milan-Bologne (Serie A 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/inter-milan-bologne-live/673150)
+- **Serie A : Inter Milan - Bologne – Compositions probables et diffusion TV**: [Link](https://fr.football-italia.net/Compositions-probables-de-l%27Inter-Milan-et-de-Bologne-%28Serie-A%29/)
+- **Pronostic Inter Milan - Bologne, Serie A**: [Link](https://www.sportytrader.com/pronostics/inter-milan-bologne-315806/)
+
+
+### paris-sg – paris fc (N/A, Sun, 4 Jan 2026 11:10:00 -0800)
+
+- **PSG-Paris FC: Arnault-Al-Khelaïfi, deux présidents parisiens de plus en plus proches**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/psg-paris-fc-arnault-al-khelaifi-deux-presidents-parisiens-de-plus-en-plus-proches_AV-202601040029.html)
+- **PSG : le groupe pour affronter le PFC avec un nouveau visage**: [Link](https://www.footmercato.net/a2309087564722252929-psg-le-groupe-pour-affronter-le-pfc-avec-un-nouveau-visage)
+- **Quatre absents au Paris Saint-Germain pour le derby parisien**: [Link](https://m.elbotola.com/fr/article/2026-01-03-11-20-83.html)
+
+
 ### manchester city (N/A, Sun, 4 Jan 2026 10:20:00 -0800)
 
 - **Pep has always been my vision of football, says Cherki**: [Link](https://www.mancity.com/news/mens/rayan-cherki-premier-league-chelsea-preview-pep-guardiola-praise-63903048)
