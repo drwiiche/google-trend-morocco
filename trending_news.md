@@ -1,3 +1,10 @@
+### mbeumo (N/A, Sun, 4 Jan 2026 12:10:00 -0800)
+
+- **CAN 2025: au Cameroun, le risque d'une Mbeumo-dépendance ?**: [Link](https://www.rfi.fr/fr/afrique-foot/20251231-marbre-ne-pas-toucher-can-2025-au-cameroun-le-risque-d-une-mbeumo-d%C3%A9pendance)
+- **Amad Diallo porte le maillot du Cameroun de Bryan Mbeumo pour recevoir son prix d'Homme du Match**: [Link](https://tribuna.com/fr/blogs/amad-diallo-porte-le-maillot-du-cameroun-de-bryan-mbeumo-pou/)
+- **Pagou, sélectionneur du Cameroun : Mbeumo se met trop de pression pour offrir un sacre à la CAN**: [Link](https://www.fotmob.com/fr/news/1j7thleiqee831mlvchry6jzam_fr-pagou-selectionneur-du-cameroun-mbeumo-se-met-trop-de-pression-pour-offrir-un-sacre-la-can)
+
+
 ### وزارة التربية الوطنية (N/A, Sun, 4 Jan 2026 11:50:00 -0800)
 
 - **تمديد تعليق الدراسة باشتوكة آيت باها**: [Link](https://www.hespress.com/%D8%AA%D9%85%D8%AF%D9%8A%D8%AF-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%A8%D8%A7%D8%B4%D8%AA%D9%88%D9%83%D8%A9-%D8%A2%D9%8A%D8%AA-%D8%A8%D8%A7%D9%87%D8%A7-1681677.html)
