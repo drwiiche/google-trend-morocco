@@ -1,3 +1,17 @@
+### وزارة التربية الوطنية (N/A, Sun, 4 Jan 2026 11:50:00 -0800)
+
+- **تمديد تعليق الدراسة باشتوكة آيت باها**: [Link](https://www.hespress.com/%D8%AA%D9%85%D8%AF%D9%8A%D8%AF-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%A8%D8%A7%D8%B4%D8%AA%D9%88%D9%83%D8%A9-%D8%A2%D9%8A%D8%AA-%D8%A8%D8%A7%D9%87%D8%A7-1681677.html)
+- **أكادير..استنفار ميداني للتخفيف من آثار الاضطرابات الجوية والحد من مخاطر السيول – اليوم 24**: [Link](https://alyaoum24.com/2002303.html)
+- **سوس ماسة: تعليق الدراسة وإغلاق سوق الأحد…إجراءات احترازية تحسبا لأمطار قوية**: [Link](https://aljarida24.ma/p/actualites/333727/)
+
+
+### ريال سوسيداد ضد أتلتيكو مدريد (N/A, Sun, 4 Jan 2026 11:50:00 -0800)
+
+- **تشكيل أتلتيكو مدريد أمام ريال سوسيداد في الدوري الإسباني**: [Link](https://www.elbalad.news/6823946)
+- **أرقام مهمة قبل مباراة الأتليتي وسوسيداد**: [Link](https://hihi2.com/2026/01/04/p3585700.html)
+- **هدافي ريال سوسيداد في الليغا قبل مواجهة أتلتيكو مدريد**: [Link](https://hihi2.com/2026/01/04/p3585130.html)
+
+
 ### man city (N/A, Sun, 4 Jan 2026 10:20:00 -0800)
 
 - **Report: Man City face European rivals in race to sign 18-year-old star**: [Link](https://ca.sports.yahoo.com/news/report-man-city-face-european-165000729.html)
