@@ -1,3 +1,24 @@
+### man city (N/A, Sun, 4 Jan 2026 10:20:00 -0800)
+
+- **Report: Man City face European rivals in race to sign 18-year-old star**: [Link](https://ca.sports.yahoo.com/news/report-man-city-face-european-165000729.html)
+- **Hugo Viana in negotiations for French forward – Manchester City lead transfer race**: [Link](https://cityxtra.co.uk/39558/hugo-viana-in-negotiations-for-french-forward-manchester-city-lead-transfer-race/)
+- **Manchester City leading the race to sign Mathys Detourbet from Troyes**: [Link](https://www.getfootballnewsfrance.com/2026/manchester-city-leading-the-race-to-sign-mathys-detourbet-from-troyes/)
+
+
+### city (N/A, Sun, 4 Jan 2026 10:20:00 -0800)
+
+- **Manchester City defender suffers major injury blow in Chelsea clash**: [Link](https://sports.yahoo.com/articles/manchester-city-defender-suffers-major-185100609.html)
+- **Pep Guardiola reaction — What did Man City boss say after late draw with Chelsea, Gvardiol and Dias injuries?**: [Link](https://www.nbcsports.com/soccer/news/pep-guardiola-reaction-what-did-man-city-boss-say-on-win-over-chelsea-gvardiol-and-dias-injuries)
+- **Reece James' classy gesture to help injured Josko Gvardiol during Man City clash - spotted**: [Link](https://tribuna.com/en/blogs/reece-james-classy-gesture-to-help-injured-josko-gvardiol-du/)
+
+
+### caf 2025 (N/A, Sun, 4 Jan 2026 10:20:00 -0800)
+
+- **Invitation to TotalEnergies CAF AFCON Morocco 2025 Referees’ Open Day**: [Link](https://www.cafonline.com/afcon2025/news/invitation-to-totalenergies-caf-afcon-morocco-2025-referees-open-day/)
+- **AFCON 2025: Dear CAF, your referees can’t continue like this**: [Link](https://soccernet.ng/2026/01/afcon-2025-caf-super-eagles-nigeria.html)
+- **AFCON 2025: CAF takes drastic action against underperforming referees**: [Link](https://blueprint.ng/afcon-2025-caf-takes-drastic-action-against-underperforming-referees/)
+
+
 ### real sociedad – atlético madrid (N/A, Sun, 4 Jan 2026 11:20:00 -0800)
 
 - **La plantilla de Simeone para el Auténtico Sociedad-Gimnástico de Madrid**: [Link](https://bitacora.com.uy/%F0%9F%93%9C-la-plantilla-de-simeone-para-el-autentico-sociedad-gimnastico-de-madrid/)
