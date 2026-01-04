@@ -1,3 +1,50 @@
+### sports (N/A, Sun, 4 Jan 2026 08:20:00 -0800)
+
+- **The Pope, the Super Bowl and YouTube influencers: The wildest sports bets in 2025**: [Link](https://www.espn.com/espn/betting/story/_/id/47444724/2025-betting-wildest-bets-nfl-cfb-nba-mlb-golf-boxing)
+- **The Pope, the Super Bowl and YouTube influencers: The wildest sports bets in 2025**: [Link](https://www.espnlacrosse.com/2026/01/04/the-pope-the-super-bowl-and-youtube-influencers-the-wildest-sports-bets-in-2025/)
+- **DraftKings’ Johnny Avello Says Ontario Bettors Show Sophistication**: [Link](https://www.casino.org/news/draftkings-ontario-sportsbetting-2025/)
+
+
+### tnt (N/A, Sun, 4 Jan 2026 08:20:00 -0800)
+
+- **TNT Sports suffer another audio farce as Leeds United versus Man United is broadcast without SOUND for three minutes during the first half at Elland Road - leaving fans furious**: [Link](https://www.dailymail.co.uk/sport/football/article-15433077/TNT-Sports-suffer-audio-farce-Leeds-United-versus-Manchester-Uniteds-broadcast-without-sound-half-Elland-Road.html)
+- **Leeds vs Man Utd sound cuts out on TNT Sports as sickening fan chants silenced**: [Link](https://www.dailystar.co.uk/sport/football/breaking-man-utd-tnt-sound-36494979)
+- **TNT Sports Forced to Issue On-Air Apology After Error During Leeds vs Man Utd**: [Link](https://www.sportbible.com/football/football-news/tnt-sports-leeds-man-utd-error-apology-darren-fletcher-882060-20260104)
+
+
+### بت مباشر (N/A, Sun, 4 Jan 2026 08:20:00 -0800)
+
+
+
+
+### الرياضية tnt (N/A, Sun, 4 Jan 2026 08:20:00 -0800)
+
+- **تردد قناة المغربية الرياضية 2026 TNT Arryadia لمشاهدة مباريات كأس أمم أفريقيا مجانًا**: [Link](https://www.elaosboa.com/2594207/)
+- **hd".. تردد قناة المغربية الرياضية الجديد 2026 الناقلة لمباراة المغرب ضد تنزانيا في كأس أمم أفريقيا**: [Link](https://harammissr.com/40644/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1-%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A7/)
+- **تردد قناة tnt 4 لمشاهدة الأدوار الإقصائية في كأس أمم أفريقيا 2026**: [Link](https://www.sabaharabi.com/695271)
+
+
+### neil el aynaoui (N/A, Sun, 4 Jan 2026 08:10:00 -0800)
+
+- **CAN-2025: El Aynaoui, la plaque tournante du Maroc**: [Link](https://snrtnews.com/fr/article/can-2025-el-aynaoui-la-plaque-tournante-du-maroc-144140)
+- **Discret mais indispensable : comment Neil El Aynaoui structure le jeu marocain**: [Link](https://www.bladi.net/discret-mais-indispensable-comment-neil-aynaoui-structure-jeu,118722.html)
+- **CAN 2025 : Neil El Aynaoui, le métronome discret des Lions de l’Atlas**: [Link](https://fr.hespress.com/456882-can-2025-neil-el-aynaoui-le-metronome-discret-des-lions-de-latlas.html)
+
+
+### بث مباشر مباريات اليوم (N/A, Sun, 4 Jan 2026 08:00:00 -0800)
+
+- **جدول مباريات اليوم الأحد 4 يناير 2026.. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-4-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blted0a07aa2de7c7b3)
+- **مواعيد مباريات اليوم.. المغرب مع تنزانيا وقمة مان سيتي أمام تشيلسي**: [Link](https://www.youm7.com/story/2026/1/4/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B9-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D9%82%D9%85%D8%A9-%D9%85%D8%A7%D9%86-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A3%D9%85%D8%A7%D9%85/7256506)
+- **مواعيد مباريات الأحد 4 يناير 2026.. مواجهتان في أمم إفريقيا وقمة إنجليزية**: [Link](https://www.filgoal.com/articles/520517)
+
+
+### bein live (N/A, Sun, 4 Jan 2026 08:00:00 -0800)
+
+- **Djigui Diarra the hero as Mali edge Tunisia on penalties to reach the quarter-finals**: [Link](https://www.cafonline.com/afcon2025/news/djigui-diarra-the-hero-as-mali-edge-tunisia-on-penalties-to-reach-the-quarter-finals/)
+- **Afcon 2025: Mali 1-1 Tunisia (AET, 3-2 pens) - Eagles into quarter-finals**: [Link](https://www.bbc.com/sport/football/live/c0lx81l191et)
+- **Paranoia and Mali get the better of timid, tetchy Tunisia**: [Link](https://www.theguardian.com/football/2026/jan/03/paranoia-and-mali-get-the-better-of-timid-tetchy-tunisia)
+
+
 ### yalla kora (N/A, Sun, 4 Jan 2026 08:00:00 -0800)
 
 - **بالفيديو: الاتحاد يقسو على شباب الزمالك في كأس عاصمة مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D9%82%D8%B3%D9%88-%D8%B9%D9%84%D9%89-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D9%85%D8%B5%D8%B1/blt81a7784cd82381e2)
