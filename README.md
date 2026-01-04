@@ -1,3 +1,10 @@
+### manchester city (N/A, Sun, 4 Jan 2026 10:20:00 -0800)
+
+- **Pep has always been my vision of football, says Cherki**: [Link](https://www.mancity.com/news/mens/rayan-cherki-premier-league-chelsea-preview-pep-guardiola-praise-63903048)
+- **A supremely talented duo have blossomed playing together for Manchester City**: [Link](https://sports.yahoo.com/articles/supremely-talented-duo-blossomed-playing-074700591.html)
+- **'I like to be effective and give pleasure to the fans': Rayan Cherki on his style**: [Link](https://tribuna.com/en/news/2026-01-04-i-like-to-be-effective-and-give-pleasure-to-the-fans-rayan-cherki-on-his-style/)
+
+
 ### caf match (N/A, Sun, 4 Jan 2026 10:30:00 -0800)
 
 - **MATCH STATS: Algeria vs DR Congo – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-dr-congo-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
