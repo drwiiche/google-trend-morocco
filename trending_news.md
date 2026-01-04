@@ -1,3 +1,8 @@
+### eto (N/A, Sun, 4 Jan 2026 13:30:00 -0800)
+
+- **Samuel Eto’o spotted watching Cameroon’s AFCON clash vs South Africa from stands**: [Link](https://tribuna.com/en/blogs/samuel-etoo-spotted-watching-cameroons-afcon-clash-vs-south/)
+
+
 ### ملعب المدينة (N/A, Sun, 4 Jan 2026 11:40:00 -0800)
 
 - **شغف كرة القدم.. كيف يتابع المشجعون كأس أمم أفريقيا بالمغرب؟**: [Link](https://www.aljazeera.net/sport/2026/1/4/%D9%85%D8%B4%D8%AC%D8%B9%D9%88%D9%86-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B4%D8%BA%D9%81)
