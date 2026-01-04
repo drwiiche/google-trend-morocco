@@ -1,3 +1,10 @@
+### إبراهيم دياز (N/A, Sun, 4 Jan 2026 09:30:00 -0800)
+
+- **دياز السلاح الفتاك لـ "أسود الأطلس"**: [Link](https://www.hespress.com/%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%81%D8%AA%D8%A7%D9%83-%D9%84%D9%80%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1681564.html)
+- **الإصابات خصم الركراكي قبل مباراة تونس والبنين وطبيب المنتخب يوضح**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%B9%D9%86-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%B3%D8%A7%D9%81%D8%B1%D8%AA-%D9%85%D8%B1%D8%A7%D8%B1%D8%A7-%D8%A5%D9%84%D9%89-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/)
+- **هل يكون تألق إبراهيم في "الكان" الشرارة التي يحتاجها في الريال؟**: [Link](https://www.almountakhab.com/node/13221396)
+
+
 ### bet365 (N/A, Sun, 4 Jan 2026 09:20:00 -0800)
 
 - **bet365 Bonus Code GOALBET: Get $150 in Bonus Bets for Sunday's NFL, NBA & NHL Action**: [Link](https://www.goal.com/en-us/betting/bet365-bonus-code-goalbet-get-150-bonus-bets-nfl-nba-nhl-1-4/blt22dee2802dc31d25)
