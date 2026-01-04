@@ -1,3 +1,10 @@
+### حنبعل المجبري (N/A, Sat, 3 Jan 2026 13:00:00 -0800)
+
+- **فرحة مكونات المنتخب المالي بعد التأهل إلى ربع نهائي "الكان" 🇲🇱 🇹🇳**: [Link](https://m.elbotola.com/video/details/695997378ce9a734c7b47007/)
+- **هكذا غادر لاعبو تونس وهذا ما قاله حنبعل المجبري عن الإقصاء**: [Link](https://www.akhbarona.com/videos/419262.html)
+- **استياء جماهير تونسية**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D9%8A%D8%A7%D8%A1-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%AA%D9%88%D9%86%D8%B3%D9%8A%D8%A9-1679597.html)
+
+
 ### essaouira (N/A, Sat, 3 Jan 2026 15:30:00 -0800)
 
 - **Ce qu’il faut savoir sur la tempête Francis qui va toucher le Maroc**: [Link](https://mobile.telquel.ma/2026/01/02/ce-quil-faut-savoir-sur-la-tempete-francis-qui-va-toucher-le-maroc_1968568)
