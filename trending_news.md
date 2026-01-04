@@ -1,3 +1,52 @@
+### جنوب أفريقيا ضد الكاميرون (N/A, Sun, 4 Jan 2026 10:20:00 -0800)
+
+- **جنوب إفريقيا والكاميرون في صراع مثير لانتزاع بطاقة العبور**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D9%81%D9%8A-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D8%A7%D9%86%D8%AA%D8%B2%D8%A7%D8%B9-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D8%B9%D8%A8%D9%88%D8%B1-2026-01-04)
+- **استوديو "الكان": بروس يهاجم المغرب**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D9%88%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A8%D8%B1%D9%88%D8%B3-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1681485.html)
+- **جنوب إفريقيا – الكاميرون: بطاقة ربع النهائي على المحك في مواجهة بين "بافانا بافانا" و"الأسود غير المروضة"**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%AD%D9%83-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A8%D8%A7%D9%81%D8%A7%D9%86%D8%A7-%D8%A8%D8%A7%D9%81%D8%A7%D9%86%D8%A7-%D9%88%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%BA%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B1%D9%88%D8%B6%D8%A9/)
+
+
+### africa cup of nations games (N/A, Sun, 4 Jan 2026 10:20:00 -0800)
+
+- **Exciting Round of 16 line-up complete at TotalEnergies CAF Africa Cup of Nations Morocco 2025**: [Link](https://www.cafonline.com/afcon2025/news/exciting-round-of-16-line-up-complete-at-totalenergies-caf-africa-cup-of-nations-morocco-2025/)
+- **Video. Morocco welcomes 2026 as AFCON round of 16 takes shape**: [Link](https://www.euronews.com/video/2026/01/02/new-year-festivities-set-the-stage-for-afcon-round-of-16)
+- **The brief history of the Africa Cup of Nations Round of 16 with plenty of upsets**: [Link](https://www.flashscore.com/news/soccer-africa-cup-of-nations-the-brief-history-of-the-africa-cup-of-nations-round-of-16-with-plenty-of-upsets/Qu9cn9mK/)
+
+
+### afrique du sud – cameroun (N/A, Sun, 4 Jan 2026 10:10:00 -0800)
+
+- **DIRECT. Afrique du Sud-Cameroun : les Lions indomptables doivent confirmer pour une place en quarts de la CAN**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/direct-afrique-du-sud-cameroun-les-lions-indomptables-doivent-confirmer-pour-une-place-en-quarts-de-la-can-04-01-2026-TVMOI2DDX5GFDLPQ6B6S7WSK3M.php)
+- **CAN 2025. « Nous perdons 1h30 dans le bus » : le sélectionneur de l’Afrique du Sud démonte encore l’organisation**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-nous-perdons-1h30-dans-le-bus-le-selectionneur-de-lafrique-du-sud-demonte-encore-lorganisation-ab08469a-e8ae-11f0-9e1f-244d7f5629f7)
+- **Hugo Broos, sélectionneur de l'Afrique du Sud, retrouve le Cameroun qu'il avait guidé vers le titre en 2017 : « On était unanimes, il avait forgé un esprit d'équipe »**: [Link](https://www.lequipe.fr/Football/Article/Hugo-broos-selectionneur-de-l-afrique-du-sud-retrouve-le-cameroun-qu-il-avait-guide-vers-le-titre-en-2017-on-etait-unanimes-il-avait-forge-un-esprit-d-equipe/1630868)
+
+
+### caf (N/A, Sun, 4 Jan 2026 10:10:00 -0800)
+
+- **SA boss Broos bashes CAF over poor logistics at AFCON**: [Link](https://www.espn.com/espn/story/_/id/47490370/south-africa-coach-hugo-broos-lays-caf-poor-logistics-ahead-afcon-clash-cameroon)
+- **Morocco's Magical Solution to Fill the Seats for Africa Cup Soccer**: [Link](https://www.haaretz.com/world-news/asia-and-australia/2026-01-01/ty-article-magazine/.premium/moroccos-magical-solution-to-fill-the-seats-for-africa-cup-soccer/0000019b-7934-d379-a3bb-fb34c5e80000)
+- **South Africa coach Hugo Broos blasts lack of 'AFCON vibe' at Africa Cup in Morocco**: [Link](https://sports.yahoo.com/articles/south-africa-coach-hugo-broos-162356641.html)
+
+
+### penalty (N/A, Sun, 4 Jan 2026 10:10:00 -0800)
+
+- **Today’s Papers: David flop, Atalanta beat Roma, Pisacane brother shot**: [Link](https://football-italia.net/todays-papers-david-flop-atalanta-beat-roma/)
+- **Spalletti urges Juventus to improve decision-making in final third**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/spalletti-urges-juventus-to-improve-decision-making-in-final-third-2026-01-04)
+- **USMNT’s Weston McKennie Starts 2026 in Style As Mauricio Pochettino’s Bet Pays Off**: [Link](https://www.fotmob.com/embed/news/01ke367fxr5w/usmnts-weston-mckennie-starts-2026-style-mauricio-pochettinos-bet-pays-off)
+
+
+### copa africa (N/A, Sun, 4 Jan 2026 10:10:00 -0800)
+
+- **AFCON 2025: The Best XI of the Group Stage – Featuring Baleba, Mahrez, Mané, and More**: [Link](https://www.cafonline.com/afcon2025/news/afcon-2025-the-best-xi-of-the-group-stage-featuring-baleba-mahrez-mane-and-more/)
+- **Salah goals & Hakimi return - six things from Afcon 2025's group stage**: [Link](https://www.bbc.com/sport/football/articles/cd7z3zp94g1o)
+- **Brahim Díaz and Mazraoui named in CAF’s Group-Stage Best XI**: [Link](https://www.yabiladi.com/articles/details/184884/brahim-diaz-mazraoui-named-caf-s.html)
+
+
+### can (N/A, Sun, 4 Jan 2026 10:00:00 -0800)
+
+- **Trump’s Attack on Venezuela Could Change the World. Here’s How.**: [Link](https://www.politico.com/news/magazine/2026/01/04/us-venezuela-maduro-predictions-analysis-00710030)
+- **Rep. Donalds calls US operation in Venezuela a ‘reassertion of the Monroe Doctrine’**: [Link](https://www.foxnews.com/video/6387221200112)
+- **Trump's Maduro raid could set precedent for authoritarian powers across globe**: [Link](https://www.bbc.com/news/articles/c5y45nyz124o)
+
+
 ### can 2025 calendrier (N/A, Sun, 4 Jan 2026 10:00:00 -0800)
 
 - **CAN 2025: le tableau complet des quarts de finale de la Coupe d'Afrique des nations**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-tableau-complet-des-quarts-de-finale-de-la-coupe-d-afrique-des-nations_AV-202601030273.html)
