@@ -1,3 +1,17 @@
+### venezuela nicolas maduro (N/A, Sun, 4 Jan 2026 02:40:00 -0800)
+
+- **Live updates: Maduro, wife in US custody after Trump vows to ‘run’ Venezuela**: [Link](https://www.cnn.com/world/live-news/venezuela-trump-maduro-01-04-26)
+- **Live Updates: Questions Mount for U.S. and Venezuela After Maduro’s Capture**: [Link](https://www.nytimes.com/live/2026/01/04/world/trump-us-venezuela-maduro)
+- **Maybe Russia and China Should Sit This One Out**: [Link](https://www.theatlantic.com/international/2026/01/maybe-russia-and-china-should-sit-one-out/685490/)
+
+
+### المغرب ضد تنزانيا (N/A, Sun, 4 Jan 2026 01:30:00 -0800)
+
+- **الركراكي يزرع الرعب في قلوب التنزانيين ويكيل المديح لـ"نجار" منتخب المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%AB%D8%A7%D9%84-%D9%8A%D8%AD%D8%AA%D8%B0%D9%89-%D8%A8%D9%87--%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D9%82%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A/blt01c5ddef3b9e3b29)
+- **أمرابط يغيب عن تدريبات "الأسود"**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-1681439.html)
+- **المغرب يخشى سيناريو 2019 و2023 ضد تنزانيا بثمن نهائي كأس أفريقيا**: [Link](https://www.aljazeera.net/sport/2026/1/3/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%B4%D9%89-%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-2019-%D9%882023-%D8%B6%D8%AF-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7)
+
+
 ### برشلونة (N/A, Sat, 3 Jan 2026 14:00:00 -0800)
 
 - **موعد انضمام موهبة الأهلي المصري إلى برشلونة**: [Link](https://www.aljazeera.net/sport/2026/1/3/%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
