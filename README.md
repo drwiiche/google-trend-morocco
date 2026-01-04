@@ -1,3 +1,24 @@
+### فولهام ضد ليفربول (N/A, Sun, 4 Jan 2026 07:00:00 -0800)
+
+- **17 عاما.. هل يغير ليفربول عادته على ملعب فولهام؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/17-%D8%B9%D8%A7%D9%85%D8%A7--%D9%87%D9%84-%D9%8A%D8%BA%D9%8A%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B9%D8%A7%D8%AF%D8%AA%D9%87-%D8%B9%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85/blt916ce1e15cae8796)
+- **"الأمر مؤلم وهذا سر الانهيار".. ماك أليستر يتحدث عن أسباب "فشل" ليفربول: أفضل الاحتفاظ بذلك لنفسي!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A7%D9%83-%D8%A3%D9%84%D9%8A%D8%B3%D8%AA%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt2d57ec555b248cb7)
+- **تشكيل ليفربول المتوقع أمام فولهام في البريميرليج**: [Link](https://kolelkoora.com/48198-2/)
+
+
+### pluies maroc (N/A, Sun, 4 Jan 2026 07:00:00 -0800)
+
+- **Ce qu’il faut savoir sur la tempête Francis qui va toucher le Maroc**: [Link](https://mobile.telquel.ma/2026/01/02/ce-quil-faut-savoir-sur-la-tempete-francis-qui-va-toucher-le-maroc_1968568)
+- **Météo. L'alerte rouge se poursuit au Souss-Massa de samedi à dimanche**: [Link](https://medias24.com/2026/01/03/meteo-lalerte-rouge-se-poursuit-au-souss-massa-de-samedi-a-dimanche-1605911/)
+- **Eaux pluviales : La SRM Casablanca-Settat s’active à Berrechid**: [Link](https://www.leconomiste.com/flash-infos/eaux-pluviales-la-srm-casablanca-settat-sactive-a-berrechid/)
+
+
+### maroc – tanzanie (N/A, Sun, 4 Jan 2026 06:00:00 -0800)
+
+- **CAN Maroc-2025 (huitièmes de finale): entrainement de veille de match pour les Lions de l’Atlas**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%82-18/)
+- **Maroc - Tanzanie : les compositions officielles**: [Link](https://www.footmercato.net/a719026179318411792-maroc-tanzanie-les-compositions-officielles)
+- **Les hauteurs de pluie enregistrées entre samedi et dimanche**: [Link](https://medias24.com/2026/01/04/les-hauteurs-de-pluie-enregistrees-entre-samedi-et-dimanche-1606087/)
+
+
 ### real madrid – betis (N/A, Sun, 4 Jan 2026 06:30:00 -0800)
 
 - **Real Madrid - Betis hoy, en directo: LaLiga EA Sports en vivo, última hora en el Bernabéu**: [Link](https://as.com/futbol/primera/real-madrid-betis-en-directo-laliga-ea-sports-en-vivo-y-online-f202601-n/)
