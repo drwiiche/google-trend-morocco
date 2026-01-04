@@ -1,3 +1,59 @@
+### can 2025 calendrier (N/A, Sun, 4 Jan 2026 10:00:00 -0800)
+
+- **CAN 2025: le tableau complet des quarts de finale de la Coupe d'Afrique des nations**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-tableau-complet-des-quarts-de-finale-de-la-coupe-d-afrique-des-nations_AV-202601030273.html)
+- **DATA CAN 2025. Le Maroc dans la cour des grands, mais avec des marges de progression**: [Link](https://medias24.com/2026/01/02/data-can-2025-le-maroc-dans-la-cour-des-grands-mais-avec-des-marges-de-progression-1605397/)
+- **CAN 2025 : les affiches et le programme des huitièmes de finale**: [Link](https://www.bbc.com/afrique/articles/c23rk9vxe2no)
+
+
+### quart de finale can 2025 (N/A, Sun, 4 Jan 2026 10:00:00 -0800)
+
+- **CAN 2025: Premier qualifié pour les quarts, le Sénégal se défait du Soudan grâce à Gueye et Mbaye**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-senegal-soudan-suivez-le-premier-huitieme-de-finale-de-la-can-2025-en-live_LS-202601030031.html)
+- **Mohamed Eisa : « Nous n’avons peur de personne »**: [Link](https://www.cafonline.com/fr/can2025/infos/mohamed-eisa-nous-n-avons-peur-de-personne/)
+- **Sénégal 3-1 Soudan, CAN : Le Sénégal remercie Pape Gueye**: [Link](https://www.lequipe.fr/Football/match-direct/can/2025/senegal-soudan-live/670784)
+
+
+### south africa vs cameroon (N/A, Sun, 4 Jan 2026 10:00:00 -0800)
+
+- **South Africa – Cameroon: Quarter-Final place on the line as Bafana Bafana face Indomitable Lions**: [Link](https://www.cafonline.com/afcon2025/news/south-africa-cameroon-quarter-final-place-on-the-line-as-bafana-bafana-face-indomitable-lions/)
+- **Live score: South Africa v Cameroon (AFCON 2025 – Round of 16)**: [Link](https://english.ahram.org.eg/NewsAFCON2025/2025/559828.aspx)
+- **Ex-Bafana goalkeeper: It all boils down to who wants it the most**: [Link](https://novanews.co.za/ex-bafana-goalkeeper-it-all-boils-down-to-who-wants-it-the-most/)
+
+
+### algerie vs congo (N/A, Sun, 4 Jan 2026 10:00:00 -0800)
+
+- **Entretien avec Rafael Hamidi, adjoint de Sébastien Desabre (RDC): «Je préfère affronter une Algérie en pleine forme plutôt qu’une équipe en difficulté**: [Link](https://sport.le360.ma/football/can/entretien-avec-rafael-hamidi-adjoint-de-sebastien-desabre-rdc-je-prefere-affronter-une-algerie-en_JHV44XXC2VELPHLNP65GXAOH7E/)
+- **Algérie - RD Congo, la suprématie entre passé et présent !**: [Link](https://www.lesoirdalgerie.com/sports/algerie-rd-congo-la-suprematie-entre-passe-et-present-145056)
+- **Dîner de la délégation de l'équipe nationale algérienne aux environs de Rabat : l'hospitalité marocaine loin des caméras**: [Link](https://fr.hibapress.com/news-227606.html)
+
+
+### copa africana de naciones (N/A, Sun, 4 Jan 2026 10:00:00 -0800)
+
+- **Sudáfrica vs Camerún, en vivo: horario y dónde ver los octavos de final de la Copa Africana 2025**: [Link](https://www.clarosports.com/futbol/sudafrica-vs-camerun-en-vivo-horario-y-donde-ver-los-octavos-de-final-de-la-copa-africana-2025/)
+- **Copa Africana de Naciones: Horario y canales para ver EN VIVO el partido del Sudáfrica de este domingo 4 de enero**: [Link](https://www.de10.com.mx/actualidad-mundialista/copa-africana-de-naciones-horario-y-canales-para-ver-en-vivo-el-partido-del-sudafrica-de-este-domingo-4-de-enero/)
+- **Copa Africana: Sigue la actividad de este domingo**: [Link](https://eldiariodecoahuila.com.mx/2026/01/04/copa-africana-sigue-la-actividad-de-este-domingo/)
+
+
+### cameroun vs afrique du sud (N/A, Sun, 4 Jan 2026 09:50:00 -0800)
+
+- **CAN 2025. « Nous perdons 1h30 dans le bus » : le sélectionneur de l’Afrique du Sud démonte encore l’organisation**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/can-2025-nous-perdons-1h30-dans-le-bus-le-selectionneur-de-lafrique-du-sud-demonte-encore-lorganisation-ab08469a-e8ae-11f0-9e1f-244d7f5629f7)
+- **Hugo Broos, sélectionneur de l'Afrique du Sud, retrouve le Cameroun qu'il avait guidé vers le titre en 2017 : « On était unanimes, il avait forgé un esprit d'équipe »**: [Link](https://www.lequipe.fr/Football/Article/Hugo-broos-selectionneur-de-l-afrique-du-sud-retrouve-le-cameroun-qu-il-avait-guide-vers-le-titre-en-2017-on-etait-unanimes-il-avait-forge-un-esprit-d-equipe/1630868)
+- **Afrique du Sud – Cameroun : un quart de finale en jeu, un parfum d’histoire à Rabat**: [Link](https://www.cafonline.com/fr/can2025/infos/afrique-du-sud-cameroun-un-quart-de-finale-en-jeu-un-parfum-d-histoire-a-rabat/)
+
+
+### حقينة السدود بالمغرب (N/A, Sun, 4 Jan 2026 09:50:00 -0800)
+
+- **بعد سنوات من الجفاف .. سدود المغرب تدخل مرحلة التعافي التدريجي**: [Link](https://www.hespress.com/%D8%A8%D8%B9%D8%AF-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%81%D8%A7%D9%81-%D8%B3%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AF%D8%AE%D9%84-%D9%85-1680780.html)
+- **1770 مليون متر مكعب واردات مائية تعزز مخزون السدود وتحد من تصريف المياه نحو البحر**: [Link](https://2m.ma/ar/news/%D9%88%D8%A7%D8%B1%D8%AF%D8%A7%D8%AA-%D9%85%D8%A7%D8%A6%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%85%D8%AE%D8%B2%D9%88%D9%86-%D8%A7%D9%84%D8%B3%D8%AF%D9%88%D8%AF-%D9%88%D8%AA%D8%AD%D8%AF-%D9%85%D9%86-%D8%AA%D8%B5%D8%B1%D9%8A%D9%81-%D8%A7%D9%84%D9%85%D9%8A%D8%A7%D9%87-%D9%86%D8%AD%D9%88-20251230)
+- **ما التأثيرات الاقتصادية للأمطار الغزيرة بالمغرب؟**: [Link](https://www.aljazeera.net/ebusiness/2025/12/29/%D9%85%D8%A7-%D8%A7%D9%84%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D9%8A%D8%A9-%D9%84%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1)
+
+
+### diaz (N/A, Sun, 4 Jan 2026 09:30:00 -0800)
+
+- **Díaz-Canel's Bold Pledge to Sacrifice for Maduro Sparks Mixed Reactions Among Cubans**: [Link](https://www.cubaheadlines.com/articles/317878)
+- **Díaz-Canel promises to "give his blood and his life for Maduro" and Cubans react: "Let him keep his word!"**: [Link](https://en.cibercuba.com/noticias/2026-01-04-u1-e207888-s27061-nid317878-diaz-canel-promete-dar-sangre-vida-maduro-cubanos)
+- **Morocco vs Tanzania live updates: AFCON 2025 match goalless after Saibari header is ruled out**: [Link](https://www.nytimes.com/athletic/live-blogs/morocco-vs-tanzania-live-updates-afcon-2025-score-result/jkVZNkEIEdcW/)
+
+
 ### ben seghir (N/A, Sun, 4 Jan 2026 09:40:00 -0800)
 
 - **« J’ai pleuré » : la déchirante confession d’Eliesse Ben Seghir**: [Link](https://www.bladi.net/pleure-dechirante-confession-eliesse-ben-seghir,118723.html)
