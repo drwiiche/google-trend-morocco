@@ -1,3 +1,24 @@
+### bet365 (N/A, Sun, 4 Jan 2026 09:20:00 -0800)
+
+- **bet365 Bonus Code GOALBET: Get $150 in Bonus Bets for Sunday's NFL, NBA & NHL Action**: [Link](https://www.goal.com/en-us/betting/bet365-bonus-code-goalbet-get-150-bonus-bets-nfl-nba-nhl-1-4/blt22dee2802dc31d25)
+- **Betr Picks Promo COVERSBONUS: Get $210 Bonus for Panthers vs. Buccaneers**: [Link](https://www.covers.com/daily-promos/betr-picks-promo-code-nfl-panthers-bucs-1-3-2026)
+- **bet365 bonus code NYPBET: Bet $5, get $150 in bonus bets for Pistons vs. Cavaliers**: [Link](https://nypost.com/2026/01/04/betting/bet365-bonus-code-nypbet-bet-5-get-150-in-bonus-bets-for-pistons-vs-cavaliers/)
+
+
+### لا ليغا (N/A, Sun, 4 Jan 2026 09:20:00 -0800)
+
+- **الليغا تبرم صفقة حقوق بث قياسية بقيمة 6.14 مليار يورو**: [Link](https://m.elbotola.com/article/2026-01-03-15-20-467.html)
+- **ليس جارسيا ولا المسجلين.. بطل صامت لمباراة برشلونة وإسبانيول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D8%AC%D8%A7%D8%B1%D8%B3%D9%8A%D8%A7-%D9%88%D9%84%D8%A7-%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D9%84%D9%8A%D9%86--%D8%A8%D8%B7%D9%84-%D8%B5%D8%A7%D9%85%D8%AA-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84/blt6f8a2894ec9f75f1)
+- **مباشر.. مباراة برشلونة ضد إسبانيول (0-0) في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/3/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84?update=8484862)
+
+
+### damac – al-hilal (N/A, Sun, 4 Jan 2026 09:10:00 -0800)
+
+- **Preview: Damac vs Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/dhamk/preview/damac-vs-al-hilal-prediction-team-news-lineups_589061.html)
+- **Al-Bulayhi’s Status Ahead of Al-Hilal’s Defensive Line Against Damac in the Roshn League**: [Link](https://koorabreak.com/en/239535/)
+- **Damac vs Al-Hilal Prediction: 4/1/2026 – Saudi Pro League**: [Link](https://dailystar.com.lb/damac-vs-al-hilal-prediction-4-1-2026-saudi-pro-league/)
+
+
 ### مان سيتي ضد تشيلسي (N/A, Sun, 4 Jan 2026 08:50:00 -0800)
 
 - **قمة مشوقة على ملعب الاتحاد: سيتي يستقبل تشلسي في حقبة ما بعد ماريسكا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D9%85%D8%B4%D9%88%D9%82%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%81%D9%8A-%D8%AD%D9%82%D8%A8%D8%A9-%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-2026-01-04)
