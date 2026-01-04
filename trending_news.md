@@ -1,3 +1,10 @@
+### roma (N/A, Sat, 3 Jan 2026 13:30:00 -0800)
+
+- **Calcio, risultati e classifica di Serie A, frenata Roma**: [Link](https://sport.tiscali.it/calcio/articoli/cd57fa9a-e93c-11f0-89cb-005056a86fbe/)
+- **Ferguson sbaglia tutto. E per Gasperini una Bergamo amara**: [Link](https://laroma24.it/rubriche/la-penna-degli-altri/2026/01/ferguson-sbaglia-tutto-e-per-gasperini-una-bergamo-amara)
+- **Se Palladino fa la festa a Gasp**: [Link](https://www.forzaroma.info/rassegna-stampa/il-tempo/se-palladino-fa-la-festa-a-gasp/)
+
+
 ### sinayoko (N/A, Sat, 3 Jan 2026 13:00:00 -0800)
 
 - **CAN 2025: le tableau complet des quarts de finale de la Coupe d'Afrique des nations**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-tableau-complet-des-quarts-de-finale-de-la-coupe-d-afrique-des-nations_AV-202601030273.html)
