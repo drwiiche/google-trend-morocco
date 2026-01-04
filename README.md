@@ -1,3 +1,38 @@
+### manchester city – chelsea (N/A, Sun, 4 Jan 2026 08:40:00 -0800)
+
+- **Man City vs Chelsea LIVE: Premier League score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/ce8r0m8mz24t)
+- **Rodri starts as one of three changes for Chelsea clash**: [Link](https://onefootball.com/fr/news/rodri-starts-as-one-of-three-changes-for-chelsea-clash-42179633)
+- **Manchester City vs Chelsea Predictions: Hosts to boost title hopes**: [Link](https://www.goal.com/en-us/betting/manchester-city-vs-chelsea-predictions-01-04/bltd4e7f02f20f256de)
+
+
+### saibari (N/A, Sun, 4 Jan 2026 08:40:00 -0800)
+
+- **Le profil d’Ismaël Saibari étudié par le PSG**: [Link](https://fr.hespress.com/456685-le-profil-dismael-saibari-etudie-par-le-psg.html)
+- **Mercato OM : Un gros coup de l'hiver rendu impossible par… le PSG**: [Link](https://www.score.fr/football/articles/mercato-om-un-gros-coup-de-l-hiver-rendu-impossible-par-le-psg/)
+- **Formé en Belgique mais méconnu chez nous, il est la nouvelle cible de l'Atlético de Madrid**: [Link](https://www.walfoot.be/news/2026-01-02/forme-en-belgique-mais-meconnu-chez-nous-il-est-la-nouvelle-cible-de-latletico-de-madrid)
+
+
+### el aynaoui (N/A, Sun, 4 Jan 2026 08:40:00 -0800)
+
+- **نائل العيناوي.. لاعب الظل الذي أعاد التوازن لوسط أسود الأطلس**: [Link](https://snrtnews.com/article/143959)
+- **نايل العيناوي… حين يصبح الهدوء التكتيكي عنصر قوة في وسط ميدان المنتخب المغربي**: [Link](https://www.analkhabar.com/%D9%86%D8%A7%D9%8A%D9%84-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D8%AD%D9%8A%D9%86-%D9%8A%D8%B5%D8%A8%D8%AD-%D8%A7%D9%84%D9%87%D8%AF%D9%88%D8%A1.html)
+- **نائل العيناوي .. ورقة الركراكي الرابحة**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%A6%D9%84-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D9%88%D8%B1%D9%82%D8%A9-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%AD%D8%A9-1679796.html)
+
+
+### koor (N/A, Sun, 4 Jan 2026 08:40:00 -0800)
+
+- **Kom gezellig meezingen met het Hengelo’s Gemengd Koor**: [Link](https://www.achterhoeknieuws.nl/nieuws/muziek/537138/kom-gezellig-meezingen-met-het-hengelos-gemengd-koor)
+- **Open repetitie voor Oranjeconcert van Harderwijks Mannenkoor**: [Link](https://www.harderwijkercourant.nl/lokaal/muziek/1238888/open-repetitie-voor-oranjeconcert-van-harderwijks-mannenkoor)
+- **Koor start 2026 met open repetitie**: [Link](https://www.zeewolde-actueel.nl/agenda/2026/1/15/koor-start-2026-met-open-repetitie-351469)
+
+
+### kooora tv (N/A, Sun, 4 Jan 2026 08:10:00 -0800)
+
+- **جدول مباريات اليوم الأحد 4 يناير 2026.. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-4-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blted0a07aa2de7c7b3)
+- **مواعيد مباريات اليوم.. المغرب مع تنزانيا وقمة مان سيتي أمام تشيلسي**: [Link](https://www.youm7.com/story/2026/1/4/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B9-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D9%82%D9%85%D8%A9-%D9%85%D8%A7%D9%86-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A3%D9%85%D8%A7%D9%85/7256506)
+- **مواعيد مباريات الأحد 4 يناير 2026.. مواجهتان في أمم إفريقيا وقمة إنجليزية**: [Link](https://www.filgoal.com/articles/520517)
+
+
 ### sports (N/A, Sun, 4 Jan 2026 08:20:00 -0800)
 
 - **The Pope, the Super Bowl and YouTube influencers: The wildest sports bets in 2025**: [Link](https://www.espn.com/espn/betting/story/_/id/47444724/2025-betting-wildest-bets-nfl-cfb-nba-mlb-golf-boxing)
