@@ -1,3 +1,17 @@
+### séville – levante (N/A, Sun, 4 Jan 2026 04:20:00 -0800)
+
+- **DIRECT. Séville FC-Levante (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/seville-fc-levante-live/676891)
+- **Pronostic Séville - Levante, Liga**: [Link](https://www.sportytrader.com/pronostics/seville-levante-315600/)
+- **Séville vs Levante : pronostic, face-à-face et compositions probables – 4 janvier 2026**: [Link](https://dailysports.net/fr/predictions/seville-vs-levante-pronostic-face-a-face-et-compositions-probables-4-janvier-2026/)
+
+
+### ليدز ضد مان يونايتد (N/A, Sun, 4 Jan 2026 04:20:00 -0800)
+
+- **أفضل لاعبو مانشستر يونايتد هذا الموسم**: [Link](https://hihi2.com/2026/01/04/p3586249.html)
+- **leeds united vs man united.. مباراة ليدز ضد مان يونايتد الان في الدوري الإنجليزي 2026**: [Link](https://gateeg.com/news/leeds-united-vs-man-united-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D8%AF%D8%B2-%D8%B6%D8%AF-%D9%85%D8%A7%D9%86-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84%D8%A7%D9%86-%D9%81/)
+- **اختبر معلوماتك عن تاريخ مواجهات مانشستر يونايتد وليدز يونايتد**: [Link](https://almashhad.com/article/218257510540304-sports/206075170482997-%D8%A7%D8%AE%D8%AA%D8%A8%D8%B1-%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA%D9%83-%D8%B9%D9%86-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%84%D9%8A%D8%AF%D8%B2-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/)
+
+
 ### vincennes (N/A, Sun, 4 Jan 2026 04:10:00 -0800)
 
 - **Quinté du dimanche 4 janvier 2026 à Vincennes : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-4-janvier-2026-a-vincennes-les-pronostics-7900584219)
