@@ -1,3 +1,17 @@
+### marseille – nantes (N/A, Sun, 4 Jan 2026 05:30:00 -0800)
+
+- **Ligue 1 | Huit matches en 28 jours : avant d'affronter Nantes, l'OM réinvente le Boxing Day en janvier**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-huit-matches-en-28-jours-avant-daffronter-nantes-lom-reinvente-le-boxing-day-en-janvier_sto23255614/story.shtml)
+- **OM - Nantes : les compositions probables**: [Link](https://www.footmercato.net/a677045834416264966-om-nantes-les-compositions-probables)
+- **Marseille - Nantes. Les Canaris dans une défense à trois, Rémy Cabella sur le banc**: [Link](https://www.ouest-france.fr/sport/football/fc-nantes/marseille-nantes-les-canaris-dans-une-defense-a-trois-remy-cabella-sur-le-banc-89744cd0-e968-11f0-9b78-7c77e15311d5)
+
+
+### maroc vs tanzania (N/A, Sun, 4 Jan 2026 04:30:00 -0800)
+
+- **MATCH STATS: Morocco vs Tanzania – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-morocco-vs-tanzania-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
+- **Mazraoui Urges Moroccan Fans to Back Team as AFCON Knockouts Begin**: [Link](https://www.moroccoworldnews.com/2026/01/273817/mazraoui-urges-moroccan-fans-to-back-team-as-afcon-knockouts-begin/)
+- **Saïss: "We Were Eliminated by Lesser Teams in the Past; We Must Not Repeat Those Mistakes"**: [Link](https://m.elbotola.com/en/article/2026-01-03-13-32-721.html)
+
+
 ### séville – levante (N/A, Sun, 4 Jan 2026 04:20:00 -0800)
 
 - **DIRECT. Séville FC-Levante (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/seville-fc-levante-live/676891)
