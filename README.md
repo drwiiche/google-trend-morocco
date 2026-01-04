@@ -1,3 +1,45 @@
+### yalla kora (N/A, Sun, 4 Jan 2026 08:00:00 -0800)
+
+- **بالفيديو: الاتحاد يقسو على شباب الزمالك في كأس عاصمة مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D9%82%D8%B3%D9%88-%D8%B9%D9%84%D9%89-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D9%85%D8%B5%D8%B1/blt81a7784cd82381e2)
+- **لا يفعلها رؤساء الأندية.. رد فعل مفاجئ من جون إدوارد في مباراة الزمالك والاتحاد**: [Link](https://www.eremnews.com/sports/4y4iml1)
+- **تصعيد عمار ياسر للمشاركة في تدريبات الفريق الأول**: [Link](https://www.zamaleksc.com/post.html?id=7236)
+
+
+### ko (N/A, Sun, 4 Jan 2026 08:00:00 -0800)
+
+- **Coca-Cola plans to layoff employees at its Atlanta headquarters**: [Link](https://www.wabe.org/coca-cola-plans-to-layoff-employees-at-its-atlanta-headquarters/)
+- **Coca-Cola announces plans for corporate layoffs in Atlanta**: [Link](https://www.11alive.com/article/news/local/coca-cola-announces-plans-for-corporate-layoffs-in-atlanta/85-043a3b21-a30b-4c66-8603-0e9a953f8ced)
+- **Coca-Cola planning layoffs at its Atlanta headquarters**: [Link](https://www.fox5atlanta.com/news/coca-cola-planning-layoff-its-atlanta-headquarters)
+
+
+### sir (N/A, Sun, 4 Jan 2026 08:00:00 -0800)
+
+- **'Rectify the glitches, or ...': CM Mamata writes of CEC; urges to stop 'unplanned' Bengal SIR**: [Link](https://timesofindia.indiatimes.com/india/rectify-the-glitches-or-cm-mamata-writes-of-cec-urges-to-stop-unplanned-bengal-sir/articleshow/126335130.cms)
+- **Opinion | The Audacity Of Abhishek Banerjee's Yatra As A Political Revival**: [Link](https://www.ndtv.com/opinion/the-audacity-of-abhishek-banerjees-abar-jitbe-bangla-yatra-as-a-political-revival-ahead-of-2026-bengal-assembly-elections-10196845)
+- **West Bengal: Abhishek Banerjee calls BJP "snake", urges voters to "teach them lesson"**: [Link](http://www.malaysiasun.com/news/278788644/west-bengal-abhishek-banerjee-calls-bjp-snake-urges-voters-to-teach-them-lesson)
+
+
+### yalla shoot app (N/A, Sun, 4 Jan 2026 07:50:00 -0800)
+
+- **راموس يخطط لشراء ناديه السابق إشبيلية**: [Link](https://www.aljazeera.net/sport/2026/1/3/%D8%B3%D9%8A%D8%B1%D8%AC%D9%8A%D9%88-%D8%B1%D8%A7%D9%85%D9%88%D8%B3-%D8%B4%D8%B1%D8%A7%D8%A1-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9)
+- **تقارير - راموس يتصدّر مشهد الاستحواذ على نادي إشبيلية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%B1%D8%A7%D9%85%D9%88%D8%B3-%D9%8A%D8%AA%D8%B5%D8%AF-%D8%B1-%D9%85%D8%B4%D9%87%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AD%D9%88%D8%A7%D8%B0-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-2026-01-02)
+- **قرار راموس يحرمه من اللعب في الليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%B1%D8%A7%D9%85%D9%88%D8%B3-%D9%8A%D8%AD%D8%B1%D9%85%D9%87-%D9%85%D9%86-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7/blt4c9988082955ed3e)
+
+
+### marokko - tanzania (N/A, Sun, 4 Jan 2026 07:50:00 -0800)
+
+- **Praat mee op VP: Mazraoui en Saibari beginnen in de basis tegen Tanzania**: [Link](https://www.voetbalprimeur.nl/nieuws/1727318/praat-mee-op-vp-marokko-tanzania.html)
+- **‘Vlak voor Marokko-Tanzania slecht nieuws voor Salah-Eddine’**: [Link](https://www.soccernews.nl/news/vlak-voor-marokko-tanzania-slecht-nieuws-voor-salah-eddine/)
+- **PSV'er blinkt uit op de Afrika Cup: "Speelt geweldig toernooi"**: [Link](https://www.psvfans.nl/psver-blinkt-uit-op-de-afrika-cup-speelt-geweldig-toernooi/)
+
+
+### marokko – tansania (N/A, Sun, 4 Jan 2026 07:30:00 -0800)
+
+- **Afrika-Cup: Marokko-Trainer Regragui mit deutlicher Warnung**: [Link](https://sportbild.bild.de/fussball/internationaler-fussball/afrika-cup-marokko-trainer-regragui-mit-deutlicher-warnung-69591dabf6fc544dba9bb34d)
+- **Marokko vs. Tansania im Live Stream und live im TV: Wer zeigt / überträgt das Achtelfinale beim Afrika Cup heute live?**: [Link](https://www.goal.com/de/meldungen/marokko-vs-tansania-im-live-stream-und-live-im-tv-wer-zeigt-uebertraegt-das-achtelfinale-beim-afrika-cup-heute-live/bltfc8c4f97c193032a)
+- **Afrika-Cup mit VfB-Star: Hier läuft Marokko gegen Tansania heute live**: [Link](https://www.suedwest24.de/sport/vfb-stuttgart/afrika-cup-heute-live-tv-stream-marokko-tansania-bilal-el-khannouss-94107687.html)
+
+
 ### achraf hakimi (N/A, Sun, 4 Jan 2026 07:30:00 -0800)
 
 - **El hermoso gesto de Achraf Hakimi hacia Brahim Díaz durante el partido contra Marruecos en la Copa Africana de Naciones – visto**: [Link](https://tribuna.com/es/blogs/el-hermoso-gesto-de-achraf-hakimi-hacia-brahim-diaz-durante/)
