@@ -1,3 +1,31 @@
+### chan (N/A, Sun, 4 Jan 2026 13:00:00 -0800)
+
+- **Why the rise of Mateus Mane offers Wolves new hope in 2026 and beyond**: [Link](https://www.nytimes.com/athletic/6937957/2026/01/04/mateus-mane-wolves-rise/)
+- **'Got too much talent' - Top Premier League clubs urged to sign record-breaking 18-year-old who will be too good for the Championship**: [Link](https://talksport.com/football/3874522/premier-league-clubs-told-sign-mateus-mane-wolves/)
+- **Big Wolves boost as starlet and man of moment Mateus Mane extended Molineux deal**: [Link](https://www.expressandstar.com/sport/football/wolverhampton-wanderers-fc/2026/01/04/big-wolves-boost-as-starlet-and-man-of-moment-mateus-mane-extended-molineux-deal/)
+
+
+### inter milan (N/A, Sun, 4 Jan 2026 13:00:00 -0800)
+
+- **Preview: Inter Milan vs Bologna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/preview/inter-milan-vs-bologna-prediction-team-news-lineups_589013.html)
+- **Mkhitaryan Remains on the Bench in the First Match of 2026**: [Link](https://sportaran.com/en/post/mhitaryan-ostalsya-v-zapase-v-pervom-matche-2026-goda/)
+- **Argentina Megastar Hails French Teammate As Inter Milan Prepare For Tricky Bologna Test**: [Link](https://onefootball.com/de/news/argentina-megastar-hails-french-teammate-as-inter-milan-prepare-for-tricky-bologna-test-42180497)
+
+
+### carlos baleba (N/A, Sun, 4 Jan 2026 12:50:00 -0800)
+
+- **🚨 EXCL: Manchester United now face Liverpool competition for potential £100m-plus signing**: [Link](https://thedailybriefing.io/p/carlos-baleba-united-liverpool-transfer)
+- **Man Utd transfer news: Carlos Baleba signing conditions explored but no deal expected with Brighton in January transfer window**: [Link](https://www.skysports.com/football/news/11095/13489767/man-utd-transfer-news-carlos-baleba-signing-conditions-explored-but-no-deal-expected-with-brighton-in-january-transfer-window)
+- **Liverpool and West Ham eye January targets as Chelsea 'set sights' on Premier League ace**: [Link](https://www.3addedminutes.com/sport/football/liverpool/liverpool-carlos-baleba-west-ham-adama-traore-chelsea-sandro-tonali-january-window-5461601)
+
+
+### bryan mbeumo (N/A, Sun, 4 Jan 2026 11:50:00 -0800)
+
+- **When is Ruben's press conference?**: [Link](https://www.manutd.com/en/news/detail/when-will-ruben-amorim-speak-to-the-media-ahead-of-leeds-united-clash-2-january)
+- **Ruben Amorim names three players Manchester United can't do without**: [Link](https://www.manchestereveningnews.co.uk/sport/football/ruben-amorim-names-three-players-33157446)
+- **'We have all the data' - Ruben Amorim names three players Manchester United need the most**: [Link](https://www.manchesterworld.uk/sport/football/manchester-united/we-have-all-the-data-ruben-amorim-names-three-players-manchester-united-need-the-most-5461096)
+
+
 ### atletico madrid (N/A, Sun, 4 Jan 2026 12:40:00 -0800)
 
 - **Real Sociedad vs Atletico Madrid – Match preview and team news**: [Link](https://sports.yahoo.com/articles/real-sociedad-vs-atletico-madrid-090900063.html)
