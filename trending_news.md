@@ -1,3 +1,38 @@
+### real madrid – betis (N/A, Sun, 4 Jan 2026 06:30:00 -0800)
+
+- **Real Madrid - Betis hoy, en directo: LaLiga EA Sports en vivo, última hora en el Bernabéu**: [Link](https://as.com/futbol/primera/real-madrid-betis-en-directo-laliga-ea-sports-en-vivo-y-online-f202601-n/)
+- **Alineaciones del Real Madrid-Betis: Gonzalo hará de Mbappé y se cae Arda**: [Link](https://www.marca.com/futbol/real-madrid/2026/01/03/alineaciones-probables-real-madrid-betis.html)
+- **¿Por qué Isco no ha vuelto a jugar en el Bernabéu contra el Real Madrid?**: [Link](https://okdiario.com/diariomadridista/real-madrid/que-isco-no-vuelto-jugar-bernabeu-contra-real-madrid-591897)
+
+
+### الريال ضد ريال بتيس (N/A, Sun, 4 Jan 2026 06:30:00 -0800)
+
+- **عودة مميزة تزين قائمة ريال مدريد أمام ريال بيتيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%85%D9%8A%D8%B2%D8%A9-%D8%AA%D8%B2%D9%8A%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3/bltde15ae766070ef5e)
+- **قبل لقاء بيتيس.. ألونسو يصدم جماهير الريال بشأن إصابة مبابي**: [Link](https://24.ae/article/939427/%D9%82%D8%A8%D9%84-%D9%84%D9%82%D8%A7%D8%A1-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%B5%D8%AF%D9%85-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D8%B4%D8%A3%D9%86-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A)
+- **موقف هاوسن من المشاركة مع ريال مدريد ضد بيتيس**: [Link](https://arabic.sport360.com/article/%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/1360464/%D9%85%D9%88%D9%82%D9%81-%D9%87%D8%A7%D9%88%D8%B3%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF)
+
+
+### real madrid vs real betis (N/A, Sun, 4 Jan 2026 06:30:00 -0800)
+
+- **Real Madrid squad for Betis match**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/squad-call/convocatoria-del-real-madrid-contra-el-betis-03-01-2026)
+- **Pellegrini: “We’re Confident We Can Play Our Game at the Bernabéu”**: [Link](https://www.managingmadrid.com/real-madrid-cf-la-liga/102357/pellegrini-were-confident-we-can-play-our-game-at-the-bernabeu)
+- **LaLiga: Real Madrid's first official lineup of 2026**: [Link](https://foot-africa.com/en/news/laliga-real-madrids-first-official-lineup-of-2026-1028963/)
+
+
+### newcastle – crystal palace (N/A, Sun, 4 Jan 2026 06:30:00 -0800)
+
+- **Eddie Howe: This is make or break for Newcastle United**: [Link](https://www.nufcblog.co.uk/2026/01/04/eddie-howe-this-is-make-or-break-for-newcastle-united/)
+- **THE SPECIAL - Crystal Palace at home**: [Link](https://tf1892.substack.com/p/the-special-crystal-palace-at-home)
+- **Use Midnite promo code to net £30 in free bets ahead of Newcastle vs Crystal Palace**: [Link](https://talksport.com/betting/3858880/newcastle-vs-crystal-palace-midnite-free-bets/)
+
+
+### tottenham – sunderland (N/A, Sun, 4 Jan 2026 06:30:00 -0800)
+
+- **Premier League LIVE: Live text for four matches after Leeds draw with Man Utd - score, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cdj8d4097k9t)
+- **Starting XI: Will Regis Le Bris Make Changes For Sunderland’s Trip To Tottenham?**: [Link](https://rokerreport.sbnation.com/match-previews/120481/starting-xi-will-le-bris-make-changes-for-sunderlands-trip-to-tottenham)
+- **Where to go for live coverage and highlights of Tottenham Hotspur vs Sunderland**: [Link](https://www.safc.com/news/2026/january/04/where-to-go-for-live-coverage-and-highlights-of-tottenham-hotspur-vs-sunderland/)
+
+
 ### fulham – liverpool (N/A, Sun, 4 Jan 2026 06:20:00 -0800)
 
 - **Fulham v Liverpool: Team news**: [Link](https://www.liverpoolfc.com/news/fulham-v-liverpool-team-news-1)
