@@ -1,3 +1,10 @@
+### ramadan 2026 (N/A, Mon, 5 Jan 2026 01:20:00 -0800)
+
+- **When is Ramadan 2026? Date forecast by Emirates Astronomy Society**: [Link](https://www.thenationalnews.com/news/uae/2026/01/02/ramadan-2026-uae-public-holidays-eid-al-fitr/)
+- **When does Ramadan 2026 start in the UAE? Full calendar, prayer timings, and Eid al‑Fitr guide**: [Link](https://timesofindia.indiatimes.com/world/middle-east/when-does-ramadan-2026-start-in-the-uae-full-calendar-prayer-timings-and-eid-alfitr-guide/articleshow/126349375.cms)
+- **Ramazan likely to begin on Feb 19, Eidul Fitr on March 21**: [Link](https://tribune.com.pk/story/2585550/ramazan-likely-to-begin-on-feb-19-eidul-fitr-on-march-21)
+
+
 ### egypt vs benin (N/A, Sun, 4 Jan 2026 17:00:00 -0800)
 
 - **MATCH STATS: Egypt vs Benin – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-egypt-vs-benin-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
