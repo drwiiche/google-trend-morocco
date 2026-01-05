@@ -1,3 +1,10 @@
+### مصر ضد البنين (N/A, Mon, 5 Jan 2026 08:00:00 -0800)
+
+- **المنتخب المصري ينشد تخطّي عقبة نظيره منتخب بنين**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D9%86%D8%B4%D8%AF-%D8%AA%D8%AE%D8%B7-%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A8%D9%86%D9%8A%D9%86-2026-01-05)
+- **ما القنوات الناقلة لمباراة مصر وبنين في دور الـ16 من كأس أمم إفريقيا 2025؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D8%A8%D9%86%D9%8A%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt319a2a37ee0c1d95)
+- **مدرب بنين قبل مواجهة مصر في كأس أمم أفريقيا: "الدول الصغرى لا تعامل مثل الدول الكبرى"**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20260105-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D9%86%D9%8A%D9%86-%D8%BA%D9%8A%D8%B1%D9%86%D9%88%D8%AA-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B5%D8%B1-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89)
+
+
 ### donald trump maduro venezuela (N/A, Mon, 5 Jan 2026 07:20:00 -0800)
 
 - **Trump’s Move for Regime Change in Venezuela Threatens a New MAGA Rift**: [Link](https://www.nytimes.com/2026/01/04/us/politics/trump-republicans-venezuela.html)
