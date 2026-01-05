@@ -1,3 +1,10 @@
+### égypte – bénin (N/A, Mon, 5 Jan 2026 07:10:00 -0800)
+
+- **"La CAF avantage trop les grands pays" : le tacle de Gernot Rohr sur la CAN 2025**: [Link](https://www.france24.com/fr/sports/20260104-can-2025-benin-caf-avantage-grands-pays-tacle-gernot-rohr)
+- **Steve Mounie et le Bénin avancent avec détermination et conviction contre l’Egypte**: [Link](https://www.cafonline.com/fr/can2025/infos/steve-mounie-et-le-benin-avancent-avec-determination-et-conviction-contre-l-egypte/)
+- **Égypte-Bénin (CAN 2025) : quelle heure, quelles chaînes**: [Link](https://medias24.com/2026/01/05/egypte-benin-can-2025-quelle-heure-quelles-chaines-1606227/)
+
+
 ### marocains (N/A, Sun, 4 Jan 2026 20:10:00 -0800)
 
 - **Penalty ou non ? L’expert tranche la polémique Maroc–Tanzanie**: [Link](https://industries.ma/penalty-ou-non-lexpert-tranche-la-polemique-maroc-tanzanie/)
