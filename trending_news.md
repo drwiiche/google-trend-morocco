@@ -1,3 +1,10 @@
+### cameroon fc (N/A, Sun, 4 Jan 2026 12:50:00 -0800)
+
+- **Hugo Broos Stirs Controversy Again Over AFCON Travel Delays**: [Link](https://www.moroccoworldnews.com/2026/01/273820/hugo-broos-stirs-controversy-again-over-afcon-travel-delays/)
+- **Just touched down in Morocco**: [Link](https://africasacountry.com/2026/01/just-touched-down-in-morocco)
+- **South African Coach Criticizes Preparation Organization**: [Link](https://www.ysscores.com/en/news/13883801/South-African-Coach-Criticizes-Preparation-Organization)
+
+
 ### samuel eto'o (N/A, Sun, 4 Jan 2026 12:40:00 -0800)
 
 - **Serge Anthony Onguene: « Les Lions indomptables annoncent un septennat de lumière pour le Cameroun »**: [Link](https://actucameroun.com/2026/01/04/serge-anthony-onguene-les-lions-indomptables-annoncent-un-septennat-de-lumiere-pour-le-cameroun/)
