@@ -1,3 +1,10 @@
+### marocains (N/A, Sun, 4 Jan 2026 20:10:00 -0800)
+
+- **Penalty ou non ? L’expert tranche la polémique Maroc–Tanzanie**: [Link](https://industries.ma/penalty-ou-non-lexpert-tranche-la-polemique-maroc-tanzanie/)
+- **CAN Maroc-2025 (quart de finale): Les Lions de l’Atlas reprennent les entrainements**: [Link](https://frmf.ma/fr/can-maroc-2025-quart-de-finale-les-lions-de-latlas-reprennent-les-entrainements/)
+- **Walid Regragui: "Le football ne retient que les résultats"**: [Link](https://medias24.com/2026/01/05/walid-regragui-le-football-ne-retient-que-les-resultats-1606299/)
+
+
 ### amorim (N/A, Mon, 5 Jan 2026 04:30:00 -0800)
 
 - **Ruben Amorim sacked as Man United head coach after 14 months**: [Link](https://www.espn.com/soccer/story/_/id/46418438/ruben-amorim-sacked-man-united-head-coach)
