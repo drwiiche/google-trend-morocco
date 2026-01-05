@@ -1,3 +1,10 @@
+### alerte meteo (N/A, Mon, 5 Jan 2026 13:50:00 -0800)
+
+- **Alerte météo. Pluies pouvant atteindre 70 mm entre dimanche et lundi**: [Link](https://medias24.com/2026/01/04/alerte-meteo-pluies-pouvant-atteindre-70-mm-entre-dimanche-et-lundi-1606139/)
+- **Fortes pluies, chutes de neige et fortes rafales de vent, de lundi à jeudi (Bulletin d'alerte)**: [Link](https://lematin.ma/regions/fortes-pluies-chutes-de-neige-et-fortes-rafales-de-vent-de-lundi-a-jeudi/322746)
+- **Perturbations météo : appel à la vigilance dans plusieurs régions**: [Link](https://fr.hespress.com/456997-perturbations-meteo-appel-a-la-vigilance-dans-plusieurs-regions.html)
+
+
 ### cancelo (N/A, Mon, 5 Jan 2026 13:40:00 -0800)
 
 - **Serie A giants confirm they are in talks with Barcelona-linked defender - 'We are in negotiations'**: [Link](https://barcauniversal.com/serie-a-giants-confirm-they-are-in-talks-with-barcelona-linked-defender-we-are-in-negotiations/)
