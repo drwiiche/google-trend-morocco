@@ -1,3 +1,17 @@
+### محمد صلاح (N/A, Mon, 5 Jan 2026 10:20:00 -0800)
+
+- **موجة غضب بعد نشر صورة مهينة لصلاح.. ما القصة؟**: [Link](https://www.aljazeera.net/sport/2026/1/5/%D8%B5%D9%88%D8%B1%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%85%D9%87%D9%8A%D9%86%D8%A9-%D9%85%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A8%D9%86%D9%8A%D9%86)
+- **"عبيد وحثالة".. رسالة غامضة من وكيل صلاح تثير جدلاً**: [Link](https://www.alarabiya.net/sport/2026/01/05/%D8%B9%D8%A8%D9%8A%D8%AF-%D9%88%D8%AD%D8%AB%D8%A7%D9%84%D8%A9-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%BA%D8%A7%D9%85%D8%B5%D8%A9-%D9%85%D9%86-%D9%88%D9%83%D9%8A%D9%84-%D8%B5%D9%84%D8%A7%D8%AD-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%AC%D8%AF%D9%84%D8%A7-)
+- **صورة.. بنين تهين صلاح والفراعنة قبل مواجهة مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%88%D8%B1%D8%A9--%D8%A8%D9%86%D9%8A%D9%86-%D8%AA%D9%87%D9%8A%D9%86-%D8%B5%D9%84%D8%A7%D8%AD-%D9%88%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B5%D8%B1/blt482c365ccd2e4f3a)
+
+
+### egypt can (N/A, Mon, 5 Jan 2026 10:10:00 -0800)
+
+- **Egypt to Launch an Alternate Airport Passport Card System by the End of January**: [Link](https://egyptianstreets.com/2026/01/05/egypt-to-launch-an-alternate-airport-passport-card-system-by-the-end-of-january/)
+- **Egypt to phase out departure card system at airports: Minister**: [Link](https://www.egyptindependent.com/egypt-to-phase-out-departure-card-system-at-airports-minister/)
+- **Egypt to streamline airport arrivals and departures**: [Link](https://kz.kursiv.media/en/2026-01-05/engk-nknk-egypt-to-streamline-airport-arrivals-and-departures/)
+
+
 ### can 2025 calendrier (N/A, Mon, 5 Jan 2026 10:40:00 -0800)
 
 - **CAN 2025: le tableau complet des quarts de finale de la Coupe d'Afrique des nations**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-tableau-complet-des-quarts-de-finale-de-la-coupe-d-afrique-des-nations_AV-202601030273.html)
