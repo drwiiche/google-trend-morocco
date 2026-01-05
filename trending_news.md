@@ -1,3 +1,10 @@
+### egypt vs benin (N/A, Sun, 4 Jan 2026 17:00:00 -0800)
+
+- **MATCH STATS: Egypt vs Benin – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-egypt-vs-benin-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
+- **Trezeguet: "Every Match a Final, Our Goal is AFCON Title"**: [Link](https://m.elbotola.com/en/article/2026-01-04-12-48-930.html)
+- **Hossam Hassan: The Match between Egypt and Benin is Like an Early Final**: [Link](https://www.sadanews.ps/en/news/263553.html)
+
+
 ### jours fériés maroc 2026 (N/A, Sun, 4 Jan 2026 23:20:00 -0800)
 
 - **Maroc calendrier : tous les jours fériés civils et religieux en 2026**: [Link](https://industries.ma/maroc-calendrier-tous-les-jours-feries-civils-et-religieux-en-2026/)
