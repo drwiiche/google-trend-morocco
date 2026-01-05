@@ -1,3 +1,10 @@
+### nigeria match (N/A, Mon, 5 Jan 2026 11:30:00 -0800)
+
+- **Morocco 2025: Lookman dismisses on-field clash with Osimhen during Mozambique game**: [Link](https://gazettengr.com/morocco-2025-lookman-dismisses-on-field-clash-with-osimhen-during-mozambique-game/)
+- **Why Osimhen's Temper Could Halt Nigeria's AFCON Title Hopes**: [Link](https://bsnsports.com.ng/post/Why-Osimhen-s-Temper-Could-Halt-Nigeria-s-AFCON-Title-Hopes)
+- **Tension as Osimhen and Lookman clash during Nigeria vs Mozambique, video**: [Link](https://www.legit.ng/sports/football/1691066-tension-super-eagles-camp-osimhen-lookman-involved-heated-argument-r16-clash/)
+
+
 ### alerte meteo (N/A, Mon, 5 Jan 2026 13:50:00 -0800)
 
 - **Alerte météo. Pluies pouvant atteindre 70 mm entre dimanche et lundi**: [Link](https://medias24.com/2026/01/04/alerte-meteo-pluies-pouvant-atteindre-70-mm-entre-dimanche-et-lundi-1606139/)
