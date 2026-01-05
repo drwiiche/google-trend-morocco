@@ -1,3 +1,10 @@
+### amorim (N/A, Mon, 5 Jan 2026 04:30:00 -0800)
+
+- **Ruben Amorim sacked as Man United head coach after 14 months**: [Link](https://www.espn.com/soccer/story/_/id/46418438/ruben-amorim-sacked-man-united-head-coach)
+- **Next Manchester United manager: Fletcher, Carrick, Xavi, Southgate, Glasner, Pochettino?**: [Link](https://www.bbc.com/sport/football/articles/c4gw3zkkx32o)
+- **Ruben Amorim departs role as head coach of Man Utd**: [Link](https://www.manutd.com/en/news/detail/ruben-amorim-departs-role-as-head-coach-of-man-utd)
+
+
 ### calendrier 2026 (N/A, Mon, 5 Jan 2026 00:10:00 -0800)
 
 - **Vélo Club Les Herbiers calendrier 2026 des courses cyclistes**: [Link](https://velopressecollection.ouest-france.fr/actualites/34581-velo-club-les-herbiers-calendrier-2026-des-courses-cyclistes.html)
