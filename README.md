@@ -1,3 +1,16 @@
+### donald trump maduro venezuela (N/A, Mon, 5 Jan 2026 07:20:00 -0800)
+
+- **Trump’s Move for Regime Change in Venezuela Threatens a New MAGA Rift**: [Link](https://www.nytimes.com/2026/01/04/us/politics/trump-republicans-venezuela.html)
+- **Security Council LIVE: World powers confront a ‘dangerous’ turning point in Venezuela**: [Link](https://news.un.org/en/story/2026/01/1166700)
+- **US capture of Maduro tests limits of China's diplomatic push**: [Link](https://www.reuters.com/world/china/china-says-it-cannot-accept-countries-acting-world-judge-after-us-captures-2026-01-05/)
+
+
+### meteo paris (N/A, Mon, 5 Jan 2026 07:20:00 -0800)
+
+- **La nuit de la Saint-Sylvestre 2025 a été la plus froide en France depuis 1997 : jusqu’à -7,7 degrés relevés en Bretagne**: [Link](https://fougeres.maville.com/actu/actudet_-la-nuit-de-la-saint-sylvestre-2025-a-ete-la-plus-froide-en-france-depuis-1997-jusqu-a-7-7-degres-releves-en-bretagne-_fil-7129709_actu.Htm)
+- **À quoi s’attendre vraiment pour la nuit du 31 décembre ? La météo tranche**: [Link](https://sobusygirls.fr/2025/12/28/meteo-31-decembre-nouvel-an-2026/)
+
+
 ### égypte – bénin (N/A, Mon, 5 Jan 2026 07:10:00 -0800)
 
 - **"La CAF avantage trop les grands pays" : le tacle de Gernot Rohr sur la CAN 2025**: [Link](https://www.france24.com/fr/sports/20260104-can-2025-benin-caf-avantage-grands-pays-tacle-gernot-rohr)
