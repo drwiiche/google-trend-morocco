@@ -1,3 +1,17 @@
+### lookman (N/A, Mon, 5 Jan 2026 12:10:00 -0800)
+
+- **Quote Lookman Napoli: è il nigeriano il grande sogno di Conte**: [Link](https://www.gazzetta.it/scommesse/pronostici/calcio/serie-a/04-01-2026/quote-lookman-napoli-calciomercato-gennaio-69832.shtml)
+- **Serie A, gli arbitri della prossima giornata: Parma-Inter a Colombo**: [Link](https://www.calcionapoli1926.it/serie-a/serie-a-parma-inter-napoli/)
+- **Niente viaggio in Turchia: ecco dove era l'agente di Lang | FOTO**: [Link](https://www.calcionapoli24.it/notizie/niente-viaggio-in-turchia-ecco-dove-era-l-agente-di-lang-foto-n674210.html)
+
+
+### حسام حسن (N/A, Mon, 5 Jan 2026 10:40:00 -0800)
+
+- **الصليبي يضرب لاعب الفراعنة.. وإصابة قوية لتريزيجيه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B5%D9%84%D9%8A%D8%A8%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9--%D9%88%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%84%D8%AA%D8%B1%D9%8A%D8%B2%D9%8A%D8%AC%D9%8A%D9%87/bltf0b90314c116200f)
+- **الإصابة تنهي مشاركة محمد حمدي مع منتخب مصر وتبعده عن كأس العالم**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D9%86%D9%87%D9%8A-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%AD%D9%85%D8%AF%D9%8A-%D9%85%D8%B9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%88%D8%AA%D8%A8%D8%B9%D8%AF%D9%87-%D8%B9%D9%86-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-01-05)
+- **استئناف الدراسة في إقليم تزنيت بدءا من الثلاثاء بعد تحسن أحوال الطقس**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%AD%D9%85%D8%AF%D9%8A-%D9%8A%D8%AE%D8%B1%D8%AC-%D9%85%D8%B5%D8%A7%D8%A8%D8%A7-%D8%A8%D9%82%D8%B7%D8%B9-%D9%81%D9%8A-%D8%A7/)
+
+
 ### nigeria (N/A, Mon, 5 Jan 2026 11:30:00 -0800)
 
 - **Days After U.S. Strikes in Nigeria, Gunmen Kill Dozens of Villagers**: [Link](https://www.nytimes.com/2026/01/04/world/africa/nigeria-killings-niger-state.html)
