@@ -1,3 +1,10 @@
+### jour férié maroc 2026 (N/A, Mon, 5 Jan 2026 00:10:00 -0800)
+
+- **Maroc calendrier : tous les jours fériés civils et religieux en 2026**: [Link](https://industries.ma/maroc-calendrier-tous-les-jours-feries-civils-et-religieux-en-2026/)
+- **Congés 2026 : on vous explique comment transformer 25 jours posés en 56 jours de vacances**: [Link](https://www.larep.fr/france-monde/loisirs/conges-2026-on-vous-explique-comment-transformer-25-jours-poses-en-56-jours-de-vacances_14808591/)
+- **Le calendrier des vacances scolaires 2025-2026, zone par zone**: [Link](https://www.lemonde.fr/societe/article/2026/01/02/le-calendrier-des-vacances-scolaires-2025-2026-zone-par-zone_6618464_3225.html)
+
+
 ### ramadan 2026 (N/A, Mon, 5 Jan 2026 01:20:00 -0800)
 
 - **When is Ramadan 2026? Date forecast by Emirates Astronomy Society**: [Link](https://www.thenationalnews.com/news/uae/2026/01/02/ramadan-2026-uae-public-holidays-eid-al-fitr/)
