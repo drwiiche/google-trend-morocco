@@ -1,3 +1,17 @@
+### match nigeria aujourd'hui (N/A, Mon, 5 Jan 2026 12:40:00 -0800)
+
+- **DIRECT. Nigeria-Mozambique: sans pitié pour les Mambas, les Super Eagles attendent le vainqueur d'Algérie-RDC**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-nigeria-mozambique-suivez-le-match-des-huitiemes-de-finale-de-la-can-2025-en-live_LS-202601050691.html)
+- **DIRECT. Nigeria - Mozambique : les Super Eagles s’envolent grâce à Osimhen… Suivez le huitième de la CAN 2025 en live**: [Link](https://www.ouest-france.fr/sport/football/coupe-d-afrique-des-nations/direct/direct-nigeria-mozambique-suivez-le-8e-de-finale-de-la-can-2025-en-live-5e772f53-c037-4b0c-9e42-e261b25d14fd)
+- **DIRECT. Nigeria - Mozambique : suivez le huitième de finale des Super Eagles**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/direct-nigeria-mozambique-suivez-le-huitieme-de-finale-des-super-eagles-05-01-2026-AS7BXVVXEJGL3JBQ4HYJTIFFYA.php)
+
+
+### buteur can 2025 (N/A, Mon, 5 Jan 2026 12:10:00 -0800)
+
+- **CAN 2025: le tableau complet des quarts de finale de la Coupe d'Afrique des nations**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-tableau-complet-des-quarts-de-finale-de-la-coupe-d-afrique-des-nations_AV-202601030273.html)
+- **CAN 2025 : Maroc, Cameroun, Sénégal... le tableau des quarts de finale se dessine**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-maroc-cameroun-senegal-le-tableau-des-quarts-de-finale-se-dessine-04-01-2026-XTW2NX3NSNFPHEDOV5EUTQRZKY.php)
+- **CAN 2025 : les affiches et le programme des huitièmes de finale**: [Link](https://www.bbc.com/afrique/articles/c23rk9vxe2no)
+
+
 ### lookman (N/A, Mon, 5 Jan 2026 12:10:00 -0800)
 
 - **Quote Lookman Napoli: è il nigeriano il grande sogno di Conte**: [Link](https://www.gazzetta.it/scommesse/pronostici/calcio/serie-a/04-01-2026/quote-lookman-napoli-calciomercato-gennaio-69832.shtml)
