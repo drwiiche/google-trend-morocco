@@ -1,3 +1,10 @@
+### nigeria (N/A, Mon, 5 Jan 2026 11:30:00 -0800)
+
+- **Days After U.S. Strikes in Nigeria, Gunmen Kill Dozens of Villagers**: [Link](https://www.nytimes.com/2026/01/04/world/africa/nigeria-killings-niger-state.html)
+- **Gunmen raid village in northern Nigeria, killing at least 30 people and abducting others**: [Link](https://abcnews.go.com/International/wireStory/gunmen-raid-village-northern-nigeria-killing-30-people-128884984)
+- **Niger state: At least 30 killed in Kasuwan-Daji village attack in Nigeria**: [Link](https://www.bbc.com/news/articles/c0r4nwy7k48o)
+
+
 ### محمد صلاح (N/A, Mon, 5 Jan 2026 10:20:00 -0800)
 
 - **موجة غضب بعد نشر صورة مهينة لصلاح.. ما القصة؟**: [Link](https://www.aljazeera.net/sport/2026/1/5/%D8%B5%D9%88%D8%B1%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%85%D9%87%D9%8A%D9%86%D8%A9-%D9%85%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A8%D9%86%D9%8A%D9%86)
