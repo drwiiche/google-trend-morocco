@@ -1,3 +1,10 @@
+### galette des rois (N/A, Sun, 4 Jan 2026 17:10:00 -0800)
+
+- **Radines et rapides, protéinées, véganes, faciles : quelques recettes de galettes des rois dans l’époque**: [Link](https://www.liberation.fr/lifestyle/gastronomie/radines-et-rapides-proteinees-veganes-faciles-quelques-recettes-de-galettes-des-rois-dans-lepoque-20260104_ADBYHUORDRFHDI57V5V3DIBLUM/)
+- **Épiphanie : avez-vous trouvé la fève ?**: [Link](https://la1ere.franceinfo.fr/polynesie/tahiti/polynesie-francaise/epiphanie-avez-vous-trouve-la-feve-1658396.html)
+- **La galette, pour moi, c'est du sérieux !**: [Link](https://www.radiofrance.fr/franceculture/podcasts/le-dialogue-des-cuisines/la-galette-6892540)
+
+
 ### حالة الطقس اليوم (N/A, Sun, 4 Jan 2026 22:30:00 -0800)
 
 - **الأرصاد الجوية تحذر من أمطار وثلوج**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%AB%D9%84%D9%88%D8%AC-1681805.html)
