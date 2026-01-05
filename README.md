@@ -1,3 +1,10 @@
+### morocco vs cameroon (N/A, Sun, 4 Jan 2026 13:40:00 -0800)
+
+- **Cameroon charge into the quarter-finals, South Africa fall short (2-1)**: [Link](https://www.cafonline.com/afcon2025/news/cameroon-charge-into-the-quarter-finals-south-africa-fall-short-2-1/)
+- **Afcon 2025: South Africa 1-2 Cameroon - Indomitable Lions set up Morocco meeting**: [Link](https://www.bbc.com/sport/football/live/cm24nml25ept)
+- **South Africa vs Cameroon 1-2: AFCON 2025 – as it happened**: [Link](https://www.aljazeera.com/sports/liveblog/2026/1/4/live-south-africa-vs-cameroon-afcon-2025)
+
+
 ### rappeur calbo (N/A, Sun, 4 Jan 2026 15:30:00 -0800)
 
 - **Calbo, cofondateur d’Arsenik et figure du rap français, est mort à 53 ans**: [Link](https://www.lemonde.fr/disparitions/article/2026/01/04/calbo-cofondateur-d-arsenik-et-figure-du-rap-francais-est-mort-a-53-ans_6660551_3382.html)
