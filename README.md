@@ -1,3 +1,24 @@
+### rappeur calbo (N/A, Sun, 4 Jan 2026 15:30:00 -0800)
+
+- **Calbo, cofondateur d’Arsenik et figure du rap français, est mort à 53 ans**: [Link](https://www.lemonde.fr/disparitions/article/2026/01/04/calbo-cofondateur-d-arsenik-et-figure-du-rap-francais-est-mort-a-53-ans_6660551_3382.html)
+- **Le rappeur Calbo, membre du groupe français Ärsenik, est mort à l'âge de 53 ans**: [Link](https://www.franceinfo.fr/culture/musique/rap/le-rappeur-calbo-membre-du-groupe-francais-arsenik-est-mort_7720180.html)
+- **« Le rap français en deuil » : Calbo, cofondateur du groupe Ärsenik, est mort**: [Link](https://www.leparisien.fr/culture-loisirs/musique/le-rappeur-calbo-du-groupe-arsenik-est-mort-04-01-2026-G37SWWMDQBD4VHQAGZJ2JYRMCQ.php)
+
+
+### sophia chikirou (N/A, Sun, 4 Jan 2026 15:20:00 -0800)
+
+- **Sophia Chikirou, candidate LFI à la mairie de Paris, sera jugée en mai pour escroquerie**: [Link](https://www.lefigaro.fr/politique/sophia-chikirou-sera-jugee-en-mai-pour-escroquerie-20260104)
+- **Sophia Chikirou, candidate LFI à Paris, bientôt jugée pour escroquerie**: [Link](https://www.20minutes.fr/politique/4194206-20260104-elections-municipales-paris-sophia-chikirou-candidate-lfi-bientot-jugee-escroquerie)
+- **Sophia Chikirou, candidate de LFI à la mairie de Paris, sera jugée en mai pour escroquerie présumée au préjudice du site « Le Média »**: [Link](https://www.lemonde.fr/politique/article/2026/01/04/sophia-chikirou-candidate-lfi-a-la-mairie-de-paris-sera-jugee-en-mai-pour-escroquerie-presumee-au-prejudice-du-site-le-media_6660517_823448.html)
+
+
+### نتائج التعليم 2025 (N/A, Sun, 4 Jan 2026 12:50:00 -0800)
+
+- **وزارة التربية الوطنية تعلن عن النتائج النهائية لمباراة التعليم دورة 2025**: [Link](https://2m.ma/ar/news/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-20260104)
+- **وزارة برادة تضع أخر اللمسات للإعلان عن الناجحين في مباراة ولوج مهن التدريس**: [Link](https://www.achkayen.com/661809/.html)
+- **مباراة التعليم دورة نونبر 2025: تدقيق ترتيب مقرات التكوين**: [Link](https://www.dreamjob.ma/alwadifa/concours-taalim-novembre-2025-verification-ordre-classement-centres-formation/)
+
+
 ### eto (N/A, Sun, 4 Jan 2026 13:30:00 -0800)
 
 - **Samuel Eto’o spotted watching Cameroon’s AFCON clash vs South Africa from stands**: [Link](https://tribuna.com/en/blogs/samuel-etoo-spotted-watching-cameroons-afcon-clash-vs-south/)
