@@ -1,3 +1,22 @@
+### egypte (N/A, Mon, 5 Jan 2026 08:40:00 -0800)
+
+- **Beleggers naar rechter om fusieplan Nederlandse kunstmestmaker en Egyptisch bouwbedrijf**: [Link](https://nos.nl/artikel/2597080-beleggers-naar-rechter-om-fusieplan-nederlandse-kunstmestmaker-en-egyptisch-bouwbedrijf)
+- **Beleggersclub VEB neemt het op tegen Nassef Sawiris, de rijkste man van Egypte, om opslokken kunstmestbedrijf OCI uit Geleen**: [Link](https://www.volkskrant.nl/economie/beleggersclub-veb-neemt-het-op-tegen-nassef-sawiris-de-rijkste-man-van-egypte-om-opslokken-kunstmestbedrijf-oci-uit-geleen~b9a55ea7/)
+- **Verzet tegen fusie OCI naar hogere versnelling**: [Link](https://mena.nl/artikel/verzet-tegen-fusie-oci-naar-hogere-versnelling/)
+
+
+### bein sport max 1 (N/A, Mon, 5 Jan 2026 08:30:00 -0800)
+
+
+
+
+### algeria vs congo (N/A, Mon, 5 Jan 2026 08:20:00 -0800)
+
+- **MATCH STATS: Algeria vs DR Congo – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-algeria-vs-dr-congo-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
+- **Algeria's opening goal: The ultimate checkmate**: [Link](https://www.besoccer.com/new/algeriaand-39-s-opening-goal-the-ultimate-checkmate-1388422)
+- **Petković: A Knockout Match That Admits No Division**: [Link](https://www.ysscores.com/en/news/13885002/Petkovi%C4%87:-A-Knockout-Match-That-Admits-No-Division)
+
+
 ### مصر ضد البنين (N/A, Mon, 5 Jan 2026 08:00:00 -0800)
 
 - **المنتخب المصري ينشد تخطّي عقبة نظيره منتخب بنين**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D9%86%D8%B4%D8%AF-%D8%AA%D8%AE%D8%B7-%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A8%D9%86%D9%8A%D9%86-2026-01-05)
