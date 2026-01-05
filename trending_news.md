@@ -1,3 +1,10 @@
+### cancelo (N/A, Mon, 5 Jan 2026 13:40:00 -0800)
+
+- **Serie A giants confirm they are in talks with Barcelona-linked defender - 'We are in negotiations'**: [Link](https://barcauniversal.com/serie-a-giants-confirm-they-are-in-talks-with-barcelona-linked-defender-we-are-in-negotiations/)
+- **🚨 Deal agreed, Flick gives the green light for Cancelo’s arrival**: [Link](https://onefootball.com/fr/news/deal-agreed-flick-gives-the-green-light-for-cancelos-arrival-42185484)
+- **Key meeting to take place in Saudi Arabia over Cancelo, the most viable option**: [Link](https://www.mundodeportivo.com/us/en/20260105/737364/key-meeting-to-take-place-in-saudi-arabia-over-cancelo-the-most-viable-option.html)
+
+
 ### match nigeria aujourd'hui (N/A, Mon, 5 Jan 2026 12:40:00 -0800)
 
 - **DIRECT. Nigeria-Mozambique: sans pitié pour les Mambas, les Super Eagles attendent le vainqueur d'Algérie-RDC**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-nigeria-mozambique-suivez-le-match-des-huitiemes-de-finale-de-la-can-2025-en-live_LS-202601050691.html)
