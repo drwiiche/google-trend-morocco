@@ -1,3 +1,10 @@
+### حالة الطقس اليوم (N/A, Sun, 4 Jan 2026 22:30:00 -0800)
+
+- **الأرصاد الجوية تحذر من أمطار وثلوج**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%AB%D9%84%D9%88%D8%AC-1681805.html)
+- **استمرار الأجواء الباردة المصحوبة بالأمطار الرعدية اليوم الاثنين**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7/)
+- **طقس اليوم.. استمرار الأمطار والثلوج في بعض المناطق - هبة بريس**: [Link](https://ar.hibapress.com/details-689564.html)
+
+
 ### cameroon fc (N/A, Sun, 4 Jan 2026 12:50:00 -0800)
 
 - **Hugo Broos Stirs Controversy Again Over AFCON Travel Delays**: [Link](https://www.moroccoworldnews.com/2026/01/273820/hugo-broos-stirs-controversy-again-over-afcon-travel-delays/)
