@@ -1,3 +1,10 @@
+### samuel eto'o (N/A, Sun, 4 Jan 2026 12:40:00 -0800)
+
+- **Serge Anthony Onguene: « Les Lions indomptables annoncent un septennat de lumière pour le Cameroun »**: [Link](https://actucameroun.com/2026/01/04/serge-anthony-onguene-les-lions-indomptables-annoncent-un-septennat-de-lumiere-pour-le-cameroun/)
+- **Marc Brys encore piqué par son successeur au Cameroun : "Comment pouvez-vous contester Eto'o ?"**: [Link](https://www.walfoot.be/news/2026-01-02/marc-brys-encore-pique-par-son-successeur-au-cameroun--comment-pouvez-vous-contester-etoo)
+- **David Pagou, le nouveau dompteur**: [Link](https://www.boursorama.com/actualite-economique/actualites/david-pagou-le-nouveau-dompteur-3e4987e41dbca60daf116dc23d9b5103)
+
+
 ### morocco vs cameroon (N/A, Sun, 4 Jan 2026 13:40:00 -0800)
 
 - **Cameroon charge into the quarter-finals, South Africa fall short (2-1)**: [Link](https://www.cafonline.com/afcon2025/news/cameroon-charge-into-the-quarter-finals-south-africa-fall-short-2-1/)
