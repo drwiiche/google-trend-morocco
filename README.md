@@ -1,3 +1,10 @@
+### nigeria vs mozambique (N/A, Mon, 5 Jan 2026 09:40:00 -0800)
+
+- **MATCH STATS: Nigeria vs Mozambique – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-nigeria-vs-mozambique-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
+- **'We are ready for anything' - Chukwueze reveals Super Eagles practised penalties ahead of Mambas clash**: [Link](https://allnigeriasoccer.com/we-are-ready-for-anything-chukwueze-reveals-super-eagles-practised-penalties-ahead-of-mambas-clash)
+- **Victor Osimhen: "Nigeria can damage any opponent" | AFCON 2025 Nigeria vs Mozambique preview, head-to-head**: [Link](https://www.olympics.com/en/news/afcon-victor-osimhen-nigeria-vs-mozambique-preview-head-to-head)
+
+
 ### egipto - benín (N/A, Mon, 5 Jan 2026 08:50:00 -0800)
 
 - **Egipto - Benín, en directo: Copa de África, hoy en vivo**: [Link](https://as.com/futbol/internacional/egipto-benin-en-directo-copa-de-africa-hoy-en-vivo-f202601-n/)
