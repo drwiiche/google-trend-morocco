@@ -1,3 +1,52 @@
+### nigeria – mozambique (N/A, Mon, 5 Jan 2026 10:10:00 -0800)
+
+- **MATCH STATS: Nigeria vs Mozambique – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-nigeria-vs-mozambique-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
+- **AFCON: Gwamnati ta sa ladan N14m ga yan wasan Super Eagles a wasa da Mozambique**: [Link](https://hausa.legit.ng/wasanni/1691040-afcon-2025-saka-kudi-ga-yan-wasan-super-eagles-kan-zura-kwallo-a-wasansu-da-mozambique/)
+- **‘It's something Semi Ajayi and I talk about’ - Bassey claims Super Eagles working to avoid conceding goals**: [Link](https://www.pulsesports.ng/football/story/its-something-semi-ajayi-and-i-talk-about-bassey-claims-super-eagles-working-to-avoid-conceding-goals-2026010509330963712)
+
+
+### galatasaray – trabzonspor (N/A, Mon, 5 Jan 2026 10:10:00 -0800)
+
+- **Okan Buruk kadro tercihi nedenini bu sözlerle açıkladı: "Başlangıçta bizimle olmayacak"**: [Link](https://www.ntvspor.net/futbol/okan-buruk-kadro-tercihi-nedenini-bu-sozlerle-acikladi-baslangicta-bizimle-olmayacak-415589)
+- **Süper Kupa'da final mücadelesi: Galatasaray - Trabzonspor maçında ilk 11'ler belli oldu**: [Link](https://oxu.az/tr/spor/super-kupa-da-final-mucadelesi-galatasaray-trabzonspor-macinda-ilk-11-ler-belli-oldu)
+- **Osimhen, Galatasaray - Trabzonspor maçında yok mu, kadroda mı? Victor Osimhen, Türkiye Kupası Yarı Final maçında neden oynamıyor?**: [Link](https://www.hurriyet.com.tr/sporarena/galeri-osimhen-galatasaray-trabzonspor-macinda-yok-mu-kadroda-mi-43077525)
+
+
+### mohamed salah (N/A, Mon, 5 Jan 2026 10:00:00 -0800)
+
+- **Liverpool braced for Mo Salah to stay put with Saudi move in doubt**: [Link](https://inews.co.uk/sport/football/liverpool-mo-salah-saudi-arabia-transfer-4138932)
+- **Football transfer rumours: Mohamed Salah in line for Roma return?**: [Link](https://www.theguardian.com/football/2026/jan/02/football-transfer-rumour-mill-mohamed-salah-roma-return)
+- **'Mo Salah exposed Arne Slot weakness – he needs to take leaf out of Jurgen Klopp's book'**: [Link](https://www.mirror.co.uk/sport/football/news/liverpool-mo-salah-slot-klopp-36461257)
+
+
+### benin egypte (N/A, Mon, 5 Jan 2026 09:50:00 -0800)
+
+- **Scoort Mohamed Salah voor de derde wedstrijd op rij in de Afrika Cup?**: [Link](https://www.voetbalzone.nl/wedden/scoort-mohamed-salah-voor-de-derde-wedstrijd-op-rij-in-de-afrika-cup/blt32d2570af4866efa)
+- **Praat mee op VP: Egypte - Benin**: [Link](https://www.voetbalprimeur.nl/nieuws/1728085/praat-mee-op-vp-egypte-benin.html)
+- **Egyptisch Voetbalelftal - Benins Voetbalelftal: Opstellingen, Statistieken, Voorspelling & Odds**: [Link](https://www.squawka.com/nl/nieuws/egyptisch-voetbalelftal-benins-voetbalelftal-opstellingen-statistieken-voorspelling-odds/)
+
+
+### casino online (N/A, Mon, 5 Jan 2026 09:20:00 -0800)
+
+- **Best Brand New Online Casinos & New Casino Sites Ranked for January 2026**: [Link](https://ftw.usatoday.com/story/casinos/2026/01/02/brand-new-online-casinos-sites-apps-ranked-for-2026/87740883007/)
+- **Best Real money Harbors to experience On the internet in the 2025 Updated**: [Link](https://www.theartblog.org/2026/01/best-real-money-harbors-to-experience-on-the-internet-in-the-2025-updated/)
+- **Best Ports in the us Greatest Online slots games and you can Sites to possess 2025**: [Link](https://mediterraneinews.it/2026/01/04/best-ports-in-the-us-greatest-online-slots-games-and-you-can-sites-to-possess-2025/)
+
+
+### egypt (N/A, Mon, 5 Jan 2026 09:00:00 -0800)
+
+- **President El-Sisi Receives FIFA Delegation on Promotional Tour for 2026 World Cup**: [Link](https://www.presidency.eg/en/%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B1%D8%A6%D8%A7%D8%B3%D9%8A%D8%A9/news04012026-1/)
+- **FIFA World Cup Trophy lands in Cairo**: [Link](https://egyptian-gazette.com/sports/fifa-world-cup-trophy-lands-in-cairo/)
+- **Egyptian leader welcomes World Cup trophy tour in Cairo**: [Link](https://apanews.net/president-al-sisi-welcomes-fifa-delegation-to-cairo-for-world-cup-trophy-tour/)
+
+
+### yalla kora (N/A, Mon, 5 Jan 2026 08:30:00 -0800)
+
+- **أول تعليق رسمي من منتخب مصر حول إصابة محمد حمدي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%88%D9%84-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%B1%D8%B3%D9%85%D9%8A-%D9%85%D9%86-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D8%AD%D9%88%D9%84-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%AD%D9%85%D8%AF%D9%8A/bltae882e1d29a18081)
+- **استئناف الدراسة في إقليم تزنيت بدءا من الثلاثاء بعد تحسن أحوال الطقس**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%AD%D9%85%D8%AF%D9%8A-%D9%8A%D8%AE%D8%B1%D8%AC-%D9%85%D8%B5%D8%A7%D8%A8%D8%A7-%D8%A8%D9%82%D8%B7%D8%B9-%D9%81%D9%8A-%D8%A7/)
+- **ضربة ثانية.. إصابة قوية لتريزيجيه في مباراة مصر وبنين**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=05012026&id=80ee4898-b0fa-4dc4-813d-27209104c060)
+
+
 ### nigeria vs mozambique (N/A, Mon, 5 Jan 2026 09:40:00 -0800)
 
 - **MATCH STATS: Nigeria vs Mozambique – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-nigeria-vs-mozambique-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
