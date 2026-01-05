@@ -1,3 +1,17 @@
+### can 2025 calendrier (N/A, Mon, 5 Jan 2026 10:40:00 -0800)
+
+- **CAN 2025: le tableau complet des quarts de finale de la Coupe d'Afrique des nations**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-tableau-complet-des-quarts-de-finale-de-la-coupe-d-afrique-des-nations_AV-202601030273.html)
+- **CAN 2025 : Maroc, Cameroun, Sénégal... le tableau des quarts de finale se dessine**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/can-2025-maroc-cameroun-senegal-le-tableau-des-quarts-de-finale-se-dessine-04-01-2026-XTW2NX3NSNFPHEDOV5EUTQRZKY.php)
+- **CAN 2025 : les affiches et le programme des huitièmes de finale**: [Link](https://www.bbc.com/afrique/articles/c23rk9vxe2no)
+
+
+### نيجيريا ضد موزمبيق (N/A, Mon, 5 Jan 2026 10:20:00 -0800)
+
+- **مواجهة مرتقبة بين نيجيريا وموزمبيق**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%88%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82-2026-01-05)
+- **"كان المغرب".. منتخب موزمبيق ينقل تحضيراته إلى فاس**: [Link](https://ar.telquel.ma/%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82-%D9%8A%D9%86%D9%82%D9%84-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7/)
+- **نيجيريا في مهمة مواصلة الانتصارات أمام موزامبيق**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D9%85%D9%87%D9%85%D8%A9-%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%88%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D9%82/13968)
+
+
 ### nigeria – mozambique (N/A, Mon, 5 Jan 2026 10:10:00 -0800)
 
 - **MATCH STATS: Nigeria vs Mozambique – TotalEnergies CAF Africa Cup of Nations Morocco 2025 Round of 16**: [Link](https://www.cafonline.com/afcon2025/news/match-stats-nigeria-vs-mozambique-totalenergies-caf-africa-cup-of-nations-morocco-2025-round-of-16/)
