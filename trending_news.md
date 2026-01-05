@@ -1,3 +1,10 @@
+### egipto - benín (N/A, Mon, 5 Jan 2026 08:50:00 -0800)
+
+- **Egipto - Benín, en directo: Copa de África, hoy en vivo**: [Link](https://as.com/futbol/internacional/egipto-benin-en-directo-copa-de-africa-hoy-en-vivo-f202601-n/)
+- **Egipto vs Benin: Resultado EN VIVO, minuto a minuto y goles de la Copa Africana de Naciones**: [Link](https://www.365scores.com/es/news/egipto-vs-benin-resultado-vivo-goles/)
+- **Benín lanza una advertencia a Egipto antes del enfrentamiento en la Copa Africana de Naciones con una publicación polémica: muestra a Mo Salah a punto de recibir una paliza**: [Link](https://tribuna.com/es/blogs/benin-lanza-una-advertencia-a-egipto-antes-del-enfrentamient/)
+
+
 ### egypte (N/A, Mon, 5 Jan 2026 08:40:00 -0800)
 
 - **Beleggers naar rechter om fusieplan Nederlandse kunstmestmaker en Egyptisch bouwbedrijf**: [Link](https://nos.nl/artikel/2597080-beleggers-naar-rechter-om-fusieplan-nederlandse-kunstmestmaker-en-egyptisch-bouwbedrijf)
