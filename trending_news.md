@@ -1,3 +1,10 @@
+### osimhen (N/A, Mon, 5 Jan 2026 11:30:00 -0800)
+
+- **Osimhen closes in on Yekini’s goal record**: [Link](https://punchng.com/osimhen-closes-in-on-yekinis-goal-record/)
+- **AFCON 2025: Osimhen delighted to captain Super Eagles against Uganda**: [Link](https://dailypost.ng/2025/12/31/afcon-2025-osimhen-delighted-to-captain-super-eagles-against-uganda/)
+- **Osimhen Prioritises Team Success Over Rashidi Yekini’s Record**: [Link](https://von.gov.ng/osimhen-prioritises-team-success-over-rashidi-yekinis-record/)
+
+
 ### ademola lookman (N/A, Mon, 5 Jan 2026 12:30:00 -0800)
 
 - **Osimhen-Lookman Bust-up: Chelle to speak with Super Eagles players**: [Link](https://gazettengr.com/osimhen-lookman-bust-up-chelle-to-speak-with-super-eagles-players/)
