@@ -1,3 +1,10 @@
+### ademola lookman (N/A, Mon, 5 Jan 2026 12:30:00 -0800)
+
+- **Osimhen-Lookman Bust-up: Chelle to speak with Super Eagles players**: [Link](https://gazettengr.com/osimhen-lookman-bust-up-chelle-to-speak-with-super-eagles-players/)
+- **Why Osimhen's Temper Could Halt Nigeria's AFCON Title Hopes**: [Link](https://bsnsports.com.ng/post/Why-Osimhen-s-Temper-Could-Halt-Nigeria-s-AFCON-Title-Hopes)
+- **AFCON 2025: Lookman speaks on Osimhen’s outburst**: [Link](https://www.premiumtimesng.com/news/more-news/847805-afcon-2025-lookman-speaks-on-osimhens-outburst.html)
+
+
 ### can 2025 aujourd hui (N/A, Mon, 5 Jan 2026 10:20:00 -0800)
 
 - **CAN Maroc-2025 (quart de finale): Les Lions de l’Atlas reprennent les entrainements**: [Link](https://frmf.ma/fr/can-maroc-2025-quart-de-finale-les-lions-de-latlas-reprennent-les-entrainements/)
