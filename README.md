@@ -1,3 +1,10 @@
+### algeria vs dr congo (N/A, Tue, 6 Jan 2026 07:10:00 -0800)
+
+- **Algeria – DR Congo: High fliers Algeria, DR Congo battle for destiny (1)**: [Link](https://www.cafonline.com/afcon2025/news/algeria-dr-congo-high-fliers-algeria-dr-congo-battle-for-destiny-1/)
+- **Morocco’s DGSN Hosts FBI Delegation to Study AFCON 2025 Security Model**: [Link](https://www.moroccoworldnews.com/2026/01/273947/moroccos-dgsn-hosts-fbi-delegation-to-study-afcon-2025-security-model/)
+- **Petkovic (Algeria Coach): "We Have a Strong Desire to Stay in Rabat and Will Do Our Utmost to Achieve It"**: [Link](https://m.elbotola.com/en/article/2026-01-05-13-22-87.html)
+
+
 ### algérie – rd congo (N/A, Tue, 6 Jan 2026 07:10:00 -0800)
 
 - **Algérie-RD Congo: pourquoi le FBI sera présent à Rabat pour le 8e de finale de la CAN 2025**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/algerie-rd-congo-pourquoi-le-fbi-sera-present-a-rabat-pour-le-8e-de-finale-de-la-can-2025_AV-202601060443.html)
