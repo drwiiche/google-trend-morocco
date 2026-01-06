@@ -1,3 +1,10 @@
+### liam rosenior (N/A, Tue, 6 Jan 2026 01:10:00 -0800)
+
+- **Wayne Rooney Show: Liam Rosenior deserves Chelsea chance, says Rooney**: [Link](https://www.bbc.com/sport/football/articles/cp87nmpk8eko)
+- **Chelsea and Enzo Maresca part ways with immediate effect - The Athletic**: [Link](https://www.nytimes.com/athletic/6933487/2026/01/01/chelsea-enzo-maresca-leaves/)
+- **Rosenior confirms Chelsea deal to replace Maresca at Premier League club**: [Link](https://www.aljazeera.com/sports/2026/1/6/rosenior-confirms-chelsea-deal-to-replace-maresca-at-premier-league-club)
+
+
 ### nigeria can (N/A, Mon, 5 Jan 2026 12:50:00 -0800)
 
 - **Lagos APC Backs Tinubu’s New Year Address, Hails Tough Decisions for National Interest**: [Link](https://www.tv360nigeria.com/lagos-apc-backs-tinubus-new-year-address-hails-tough-decisions-for-national-interest/)
