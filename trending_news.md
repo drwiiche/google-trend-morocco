@@ -1,3 +1,10 @@
+### victor osimhen (N/A, Mon, 5 Jan 2026 12:10:00 -0800)
+
+- **Osimhen closes in on Yekini’s goal record**: [Link](https://punchng.com/osimhen-closes-in-on-yekinis-goal-record/)
+- **Nigeria handed major Osimhen boost for last 16 after clear AFCON risk**: [Link](https://www.standard.co.uk/sport/football/nigeria-victor-osimhen-afcon-b1264453.html)
+- **AFCON2025: Osimhen Shares His Experience at a First Time Super Eagles Captain**: [Link](https://brila.net/afcon2025-osimhen-shares-his-experience-at-a-first-time-super-eagles-captain/)
+
+
 ### هسبريس (N/A, Mon, 5 Jan 2026 23:20:00 -0800)
 
 
