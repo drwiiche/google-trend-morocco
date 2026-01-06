@@ -1,3 +1,10 @@
+### congo vs algerie (N/A, Tue, 6 Jan 2026 05:00:00 -0800)
+
+- **Le FBI étudie le dispositif sécuritaire marocain de la CAN 2025 en vue de la Coupe du monde 2026**: [Link](https://ledesk.ma/encontinu/le-fbi-etudie-le-dispositif-securitaire-marocain-de-la-can-2025-en-vue-de-la-coupe-du-monde-2026/)
+- **Algérie-RD Congo: pourquoi le FBI sera présent à Rabat pour le 8e de finale de la CAN 2025**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/algerie-rd-congo-pourquoi-le-fbi-sera-present-a-rabat-pour-le-8e-de-finale-de-la-can-2025_AV-202601060443.html)
+- **CAN 2025 : l’énorme coup de gueule de Claude Le Roy pour Algérie - RD Congo**: [Link](https://www.footmercato.net/a2427256995004439357-can-2025-lenorme-coup-de-gueule-de-claude-le-roy-pour-algerie-rd-congo)
+
+
 ### liam rosenior (N/A, Tue, 6 Jan 2026 01:10:00 -0800)
 
 - **Wayne Rooney Show: Liam Rosenior deserves Chelsea chance, says Rooney**: [Link](https://www.bbc.com/sport/football/articles/cp87nmpk8eko)
