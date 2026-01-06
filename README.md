@@ -1,3 +1,10 @@
+### nigeria can (N/A, Mon, 5 Jan 2026 12:50:00 -0800)
+
+- **Lagos APC Backs Tinubu’s New Year Address, Hails Tough Decisions for National Interest**: [Link](https://www.tv360nigeria.com/lagos-apc-backs-tinubus-new-year-address-hails-tough-decisions-for-national-interest/)
+- **Muda Yusuf: Nigeria Can Achieve 4–4.5% GDP Growth In 2026 With Realistic Budgeting, Structural Reforms**: [Link](https://www.arise.tv/muda-yusuf-nigeria-can-achieve-4-4-5-gdp-growth-in-2026-with-realistic-budgeting-structural-reforms/)
+- **2026 budget well-planned instrument to solidify Tinubu’s reform agenda – Minister**: [Link](https://www.vanguardngr.com/2026/01/2026-budget-well-planned-instrument-to-solidify-tinubus-reform-agenda-minister/)
+
+
 ### victor osimhen (N/A, Mon, 5 Jan 2026 12:10:00 -0800)
 
 - **Osimhen closes in on Yekini’s goal record**: [Link](https://punchng.com/osimhen-closes-in-on-yekinis-goal-record/)
