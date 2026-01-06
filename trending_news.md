@@ -1,3 +1,10 @@
+### rb salzburg – bayern (N/A, Tue, 6 Jan 2026 05:50:00 -0800)
+
+- **Eiskalt, aber fast ausverkauft: Salzburg bereit für die Bayern**: [Link](https://kurier.at/sport/fussball/red-bull-salzburg-bayern-muenchen-test-letsch-freund-laimer/403118824)
+- **Kracher-Test im Liveticker: Der FC Bayern gastiert bei RB Salzburg**: [Link](https://www.bundesliga.com/de/bundesliga/news/rb-salzburg-fc-bayern-munchen-testspiel-2025-26-35419)
+- **Wo läuft das Testspiel vom FC Bayern gegen Salzburg heute live?**: [Link](https://www.dazn.com/de-DE/news/fussball/wo-laeuft-das-testspiel-vom-fc-bayern-gegen-salzburg-heute-live-tv-stream/c5coilvrdka2zdaiq2k89y9n)
+
+
 ### congo vs algerie (N/A, Tue, 6 Jan 2026 05:00:00 -0800)
 
 - **Le FBI étudie le dispositif sécuritaire marocain de la CAN 2025 en vue de la Coupe du monde 2026**: [Link](https://ledesk.ma/encontinu/le-fbi-etudie-le-dispositif-securitaire-marocain-de-la-can-2025-en-vue-de-la-coupe-du-monde-2026/)
