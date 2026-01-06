@@ -1,3 +1,10 @@
+### can 2025 aujourd hui (N/A, Mon, 5 Jan 2026 10:20:00 -0800)
+
+- **CAN Maroc-2025 (quart de finale): Les Lions de l’Atlas reprennent les entrainements**: [Link](https://frmf.ma/fr/can-maroc-2025-quart-de-finale-les-lions-de-latlas-reprennent-les-entrainements/)
+- **Walid Regragui : "Le football ne retient que les résultats"**: [Link](https://medias24.com/2026/01/05/walid-regragui-le-football-ne-retient-que-les-resultats-1606299/)
+- **Souffrant d'une lésion musculaire, Ounahi bénéficie d'une prise en charge médicale appropriée (FRMF)**: [Link](https://ledesk.ma/encontinu/souffrant-dune-lesion-musculaire-ounahi-beneficie-dune-prise-en-charge-medicale-appropriee-frmf/)
+
+
 ### sofiane boufal (N/A, Mon, 5 Jan 2026 15:20:00 -0800)
 
 - **Union SG Announces Mutual Termination of Boufal's Contract**: [Link](https://m.elbotola.com/en/article/2026-01-05-17-38-490.html)
