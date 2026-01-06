@@ -1,3 +1,17 @@
+### algérie – rd congo (N/A, Tue, 6 Jan 2026 07:10:00 -0800)
+
+- **Algérie-RD Congo: pourquoi le FBI sera présent à Rabat pour le 8e de finale de la CAN 2025**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/algerie-rd-congo-pourquoi-le-fbi-sera-present-a-rabat-pour-le-8e-de-finale-de-la-can-2025_AV-202601060443.html)
+- **Le FBI étudie le dispositif sécuritaire marocain de la CAN 2025 en vue de la Coupe du monde 2026**: [Link](https://ledesk.ma/encontinu/le-fbi-etudie-le-dispositif-securitaire-marocain-de-la-can-2025-en-vue-de-la-coupe-du-monde-2026/)
+- **CAN 2025: Une délégation du FBI en mission d’observation au Maroc**: [Link](https://industries.ma/can-2025-une-delegation-du-fbi-en-mission-dobservation-au-maroc/)
+
+
+### الجزائر ضد الكونغو الديمقراطية (N/A, Tue, 6 Jan 2026 07:10:00 -0800)
+
+- **المنتخب الجزائري يتأهب لمواجهة الكونغو الديمقراطية المرتقبة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2025/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%8A%D8%AA%D8%A3%D9%87%D8%A8-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-2026-01-06)
+- **مدرب الجزائر يشيد بتنظيم المغرب**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1682101.html)
+- **كلود لوروا يتبنى وجهة نظر دراجي: مواجهة الجزائر والكونغو تفضح تناقضات الكاف**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%83%D9%84%D9%88%D8%AF-%D9%84%D9%88%D8%B1%D9%88%D8%A7-%D9%8A%D8%AA%D8%A8%D9%86%D9%89-%D9%88%D8%AC%D9%87%D8%A9-%D9%86%D8%B8%D8%B1-%D8%AF%D8%B1%D8%A7%D8%AC%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%AA%D9%81%D8%B6%D8%AD-%D8%AA%D9%86%D8%A7%D9%82%D8%B6%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%81/blt32be2d0c57fe0db8)
+
+
 ### rb salzburg – bayern (N/A, Tue, 6 Jan 2026 05:50:00 -0800)
 
 - **Eiskalt, aber fast ausverkauft: Salzburg bereit für die Bayern**: [Link](https://kurier.at/sport/fussball/red-bull-salzburg-bayern-muenchen-test-letsch-freund-laimer/403118824)
