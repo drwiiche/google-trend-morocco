@@ -1,3 +1,52 @@
+### juventus vs napoli (N/A, Sun, 25 Jan 2026 10:10:00 -0800)
+
+- **Milinkovic-Savic has new injury worry for Napoli against Juventus**: [Link](https://football-italia.net/milinkovic-savic-new-injury-worry-for-napoli/)
+- **No press conference, no answers: why did Conte and Spalletti stay silent?**: [Link](https://foot-africa.com/en/news/no-press-conference-no-answers-why-did-conte-and-spalletti-stay-silent-1057133/)
+- **Two Heavyweights, One Day: Serie A’s Season-Defining Sunday**: [Link](https://www.365scores.com/news/two-heavyweights-one-day-serie-as-season-defining-sunday)
+
+
+### classement premier league (N/A, Sun, 25 Jan 2026 09:50:00 -0800)
+
+- **DIRECT. Crystal Palace-Chelsea (Premier League 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/crystal-palace-chelsea-live/673727)
+- **Suivez Crystal Palace - Chelsea - EN DIRECT - 23e journée de Premier League 2025-2026**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-crystal-palace-chelsea_mtc1602535/live-commentary.shtml)
+- **João Pedro : Nous savions que le match serait difficile**: [Link](https://www.ysscores.com/fr/news/13897898/Jo%C3%A3o-Pedro-:-Nous-savions-que-le-match-serait-difficile)
+
+
+### juventus (N/A, Sun, 25 Jan 2026 09:50:00 -0800)
+
+- **Serie A: Juventus-Napoli DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/01/25/serie-a-juventus-napoli-diretta_0ba582dc-36ab-4797-b8be-6d519a1d322a.html)
+- **Quando i calciatori devono essere eroi**: [Link](https://napoli.repubblica.it/sport/2026/01/25/news/quando_i_calciatori_devono_essere_eroi-425116334/)
+- **Juventus - Napoli: le formazioni. Meret torna tra i pali**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/juventus_napoli_le_formazioni_meret_torna_tra_i_pali-76350149.html)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 25 Jan 2026 09:40:00 -0800)
+
+- **هدافو الدوري الانجليزي هذا الموسم**: [Link](https://hihi2.com/2026/01/24/p3617719.html)
+- **ترتيب هدافي الدوري الإنجليزي بعد هدف سيمينيو في مباراة مانشستر سيتي وولفرهامبتون**: [Link](https://www.btolat.com/news/391389)
+- **جدول ترتيب الدوري الإنجليزي قبل مباريات اليوم.. صدارة أرسنال في خطر**: [Link](https://www.almasryalyoum.com/news/details/4183029)
+
+
+### الرياض ضد الهلال (N/A, Sun, 25 Jan 2026 09:40:00 -0800)
+
+- **في غياب نيفيز.. 3 تغييرات على تشكيل الهلال أمام الرياض**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%86%D9%8A%D9%81%D9%8A%D8%B2--3-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6/blt0270ff4ca972888e)
+- **مباشر مباراة الهلال ضد الرياض (0-0) في الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/25/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A)
+- **إنزاغي يُعيد السيناريو ذاته مع البليهي !**: [Link](https://hihi2.com/2026/01/25/p3619117.html)
+
+
+### الدوري المغربي (N/A, Sun, 25 Jan 2026 09:30:00 -0800)
+
+- **النادي المكناسي يهزم نهضة الزمامرة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D9%86%D9%87%D8%B6%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%85%D8%B1%D8%A9-1692074.html)
+- **البطولة: « ريمونتادا » النادي المكناسي أمام نهضة الزمامرة تمنحه ثلاث نقاط في الوقت بدل الضائع – اليوم 24**: [Link](https://alyaoum24.com/2006399.html)
+- **البطولة الإحترافية 1.. الكوديم يفاجئ نهضة الزمامرة ويحقق فوزا ثمينا**: [Link](https://www.almountakhab.com/node/13222165)
+
+
+### neige maroc (N/A, Sun, 25 Jan 2026 09:20:00 -0800)
+
+- **Alerte météo : pluies intenses, orages, neige et froid de samedi à lundi**: [Link](https://ledesk.ma/encontinu/alerte-meteo-pluies-intenses-orages-neige-et-froid-de-samedi-a-lundi/)
+- **Les cumuls pluviométriques entre vendredi 23 et samedi 24 janvier**: [Link](https://medias24.com/2026/01/24/les-cumuls-pluviometriques-entre-vendredi-23-et-samedi-24-janvier-1616727/)
+- **Intempéries : La NARSA appelle à la vigilance et à reporter les déplacements non indispensables**: [Link](https://lematin.ma/regions/intemperies-la-narsa-appelle-a-la-plus-grande-vigilance/326060)
+
+
 ### fenerbahçe – göztepe (N/A, Sun, 25 Jan 2026 09:20:00 -0800)
 
 - **Fenerbahçe maçı öncesi Göztepe'de eksik sayısı 5'e çıktı**: [Link](https://www.ntvspor.net/futbol/son-dakika-fenerbahce-maci-oncesi-goztepede-eksik-sayisi-5e-cikti-416762)
