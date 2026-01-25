@@ -1,3 +1,43 @@
+### deportivo alavés – betis (N/A, Sun, 25 Jan 2026 11:10:00 -0800)
+
+- **Coudet: "Nos vamos enfrentar a un rival de mucha jerarquía que tiene un entrenador de gran nivel mundial"**: [Link](https://mundobetis.com/2026/01/24/coudet-nos-vamos-enfrentar-a-un-rival-de-mucha-jerarquia-que-tiene-un-entrenador-de-gran-nivel-mundial/)
+- **Europa y la tranquilidad, objetivos en Mendizorroza**: [Link](https://es-us.noticias.yahoo.com/deportes/europa-tranquilidad-objetivos-mendizorroza-174500348.html)
+- **🚨Alavés y Betis se juegan más que tres puntos**: [Link](https://onefootball.com/es/noticias/alaves-y-betis-se-juegan-mas-que-tres-puntos-42300716)
+
+
+### roma – ac milan (N/A, Sun, 25 Jan 2026 11:00:00 -0800)
+
+- **The Giallorossi squad for Roma v Milan**: [Link](https://www.asroma.com/en/news/74740/the-giallorossi-squad-for-roma-v-milan)
+- **Gallery: ‘Saelemaekers surprise’, ‘Allegri and Gasperini’ – Today’s front pages in Italy**: [Link](https://sempremilan.com/gallery-saelemaekers-allegri-gasperini-papers-italy)
+- **Cafu on Roma under Gasperini: "They can fight for the title."**: [Link](https://romapress.net/cafu-on-roma-under-gasperini-they-can-fight-for-the-title/)
+
+
+### gregory bovino (N/A, Sun, 25 Jan 2026 11:00:00 -0800)
+
+- **Casaco de comandante de ações anti-imigração vira símbolo de disputa nos EUA por semelhança com uniforme nazista**: [Link](https://oglobo.globo.com/mundo/noticia/2026/01/25/casaco-de-comandante-do-ice-vira-simbolo-de-batalha-por-imigracao-por-semelhanca-com-uniforme-nazista.ghtml)
+- **Gregory Bovino, o rosto da crueldade da perseguição aos imigrantes nos EUA**: [Link](https://www.publico.pt/2026/01/25/mundo/noticia/gregory-bovino-rosto-crueldade-perseguicao-imigrantes-eua-2162437)
+- **Casaco de Gregory Bovino, líder do ICE, comparado a "visual nazi"**: [Link](https://www.noticiasaominuto.com/mundo/2925855/casaco-de-gregory-bovino-lider-do-ice-comparado-a-visual-nazi)
+
+
+### caf confederation cup (N/A, Sun, 25 Jan 2026 11:00:00 -0800)
+
+- **CAFCC: ZESCO United has character to beat Chiefs—Mutafu**: [Link](https://www.panafricafootball.com/post/cafcc-zesco-united-chiefs-mutafu/)
+- **Chiefs bag first Caf Confed Cup victory**: [Link](https://supersport.com/football/general/news/3fecd53b-387f-4907-bc08-fa3f8416ddbb/chiefs-bag-first-caf-confed-cup-victory)
+- **ZESCO United v Kaizer Chiefs: Amakhosi seek First Confederation Cup win in Ndola**: [Link](https://dailynews.co.za/sport/soccer/africa/2026-01-25-game-day-zesco-united-v-kaizer-chiefs-amakhosi-seek-first-cafcc-win-in-ndola/)
+
+
+### elbotola (N/A, Sun, 25 Jan 2026 11:00:00 -0800)
+
+
+
+
+### نجيب السالمي (N/A, Sun, 25 Jan 2026 10:40:00 -0800)
+
+- **الإعلامي نجيب السالمي في ذمة الله**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A-%D9%86%D8%AC%D9%8A%D8%A8-%D8%A7%D9%84%D8%B3%D8%A7%D9%84%D9%85%D9%8A-%D9%81%D9%8A-%D8%B0%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D9%87-1692161.html)
+- **الصحافي الرياضي نجيب السالمي في ذمة الله**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%86%D8%AC%D9%8A%D8%A8-%D8%A7%D9%84%D8%B3%D8%A7%D9%84%D9%85%D9%8A-%D9%81%D9%8A-%D8%B0%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D9%87-20260125)
+- **الصحفي المغربي نجيب السالمي في ذمة الله**: [Link](https://le12.ma/%D8%A7%D9%84%D8%B5%D8%AD%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%86%D8%AC%D9%8A%D8%A8-%D8%A7%D9%84%D8%B3%D8%A7%D9%84%D9%85%D9%8A-%D9%81%D9%8A-%D8%B0%D9%85%D8%A9-%D8%A7%D9%84%D9%84/)
+
+
 ### serie a (N/A, Sun, 25 Jan 2026 10:40:00 -0800)
 
 - **Cafù difende Leao e torna sull'addio di Theo: "Il rammarico c'è, chissà cos'avrebbe fatto con Allegri"**: [Link](https://tribuna.com/it/news/2026-01-25-cafu-difende-leao-e-torna-sulladdio-di-theo-il-rammarico-ce-chissa-cosavrebbe-fatto-con-a/)
