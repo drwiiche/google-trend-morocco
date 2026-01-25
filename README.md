@@ -1,3 +1,10 @@
+### lille – strasbourg (N/A, Sun, 25 Jan 2026 11:20:00 -0800)
+
+- **Lille – Strasbourg : quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-1/lille-strasbourg-quelle-chaine-diffuse-le-match-984407.html)
+- **PRONOS PARIS RMC Le pari du jour du 25 janvier - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-25-janvier-ligue-1_AN-202601240289.html)
+- **Huit, ça suffit... Le Racing parviendra-t-il à s'imposer enfin à Lille ? Suivez la rencontre en direct à partir de 20h45**: [Link](https://www.dna.fr/sport/2026/01/25/huit-ca-suffit-le-racing-parviendra-t-il-a-s-imposer-enfin-a-lille-suivez-la-rencontre-en-direct-a-partir-de-20h45)
+
+
 ### deportivo alavés – betis (N/A, Sun, 25 Jan 2026 11:10:00 -0800)
 
 - **Coudet: "Nos vamos enfrentar a un rival de mucha jerarquía que tiene un entrenador de gran nivel mundial"**: [Link](https://mundobetis.com/2026/01/24/coudet-nos-vamos-enfrentar-a-un-rival-de-mucha-jerarquia-que-tiene-un-entrenador-de-gran-nivel-mundial/)
