@@ -1,3 +1,31 @@
+### juventus – naples (N/A, Sun, 25 Jan 2026 08:30:00 -0800)
+
+- **Pronostic Juventus – Naples J22 Serie A (25/01/2026)**: [Link](https://mvz-sports.com/fr/bookmakers/news/pronostic-juventus-naples-j22-serie-a-25-01-2026)
+- **Pas de conférence de presse, pas de réponses : pourquoi Conte et Spalletti sont-ils restés silencieux**: [Link](https://onefootball.com/es/noticias/pas-de-conference-de-presse-pas-de-reponses-pourquoi-conte-et-spalletti-sont-ils-restes-silencieux-42296237)
+- **Milinkovic-Savic a un nouveau souci de blessure pour Naples contre la Juventus**: [Link](https://fr.football-italia.net/Milinkovic-et-Savic--nouvelle-blessure-inqui%C3%A9tante-pour-Naples/)
+
+
+### metz – lyon (N/A, Sun, 25 Jan 2026 08:30:00 -0800)
+
+- **L'OL sans Pavel Sulc mais avec Khalis Merah pour affronter Metz**: [Link](https://www.lequipe.fr/Football/Actualites/L-ol-sans-pavel-sulc-mais-avec-khalis-merah-pour-affronter-metz/1636444)
+- **DIRECT. Ligue 1: Endrick lance déjà les Lyonnais, suivez le multiplex de la 19e journée en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-ligue-1-suivez-le-multiplex-de-la-19e-journee-en-live_LS-202601250255.html)
+- **OL : faire le trou derrière et garder le contact du podium**: [Link](https://www.olympique-et-lyonnais.com/ol-faire-le-trou-derriere-et-garder-le-contact-du-podium,389306.html)
+
+
+### مباراة الوداد اليوم (N/A, Sun, 25 Jan 2026 08:30:00 -0800)
+
+- **عودة يغلفها الحذر.. زياش جاهز للظهور الأول بقميص الوداد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D9%88%D8%AF%D8%A9-%D9%8A%D8%BA%D9%84%D9%81%D9%87%D8%A7-%D8%A7%D9%84%D8%AD%D8%B0%D8%B1--%D8%B2%D9%8A%D8%A7%D8%B4-%D8%AC%D8%A7%D9%87%D8%B2-%D9%84%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84-%D8%A8%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF/blteeb742ef48d5fd5d)
+- **"وينرز" تدعو الجماهير للحضور المكثف**: [Link](https://www.hesport.com/%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D9%84%D9%84%D8%AD%D8%B6%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D9%83%D8%AB%D9%81-424054.html)
+- **كأس الكونفدرالية: الوداد في مواجهة مانييما الكونغولي بحضور حكيم زياش وأولمبيك آسفي في مواجهة سان بيدرو الإيفواري**: [Link](https://alyaoum24.com/2005902.html)
+
+
+### real oviedo (N/A, Sun, 25 Jan 2026 08:10:00 -0800)
+
+- **Flick talks Araujo, Gavi, Cubarsi, Fermin, presidential election ahead of Barcelona vs Oviedo**: [Link](https://barcauniversal.com/flick-talks-araujo-gavi-cubarsi-fermin-presidential-election-ahead-of-barcelona-vs-oviedo/)
+- **FC Barcelona squad named for La Liga match against Real Oviedo**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/110950/barcelona-real-oviedo-la-liga-team-news-squad-list)
+- **Hansi Flick hoping for winning homecoming**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4438949/hansi-flick-hoping-for-winning-homecoming)
+
+
 ### آرسنال ضد مان يونايتد (N/A, Sun, 25 Jan 2026 07:50:00 -0800)
 
 - **أحدها منذ 124 عامًا.. آرسنال يهدد مانشستر يونايتد بأرقام نادرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D8%AD%D8%AF%D9%87%D8%A7-%D9%85%D9%86%D8%B0-124-%D8%B9%D8%A7%D9%85%D9%8B%D8%A7--%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D9%87%D8%AF%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A8%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85-%D9%86%D8%A7%D8%AF%D8%B1%D8%A9/blta4bab3cb7db6409a)
