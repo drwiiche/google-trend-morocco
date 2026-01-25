@@ -1,3 +1,10 @@
+### كأس الاتحاد الأفريقي (N/A, Sun, 25 Jan 2026 11:30:00 -0800)
+
+- **ماذا قال معتمد جمال والكوكي قبل موقعة الزمالك والمصري؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%A7%D9%84-%D9%85%D8%B9%D8%AA%D9%85%D8%AF-%D8%AC%D9%85%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%83%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%88%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A/bltf18a55320f4842a9)
+- **تصدي محمد عواد يحرم المصري من هدف بعد خطأ من ايشو**: [Link](https://www.btolat.com/video/90844)
+- **بالأرقام.. ماذا قدم نبيل الكوكي مع المصري قبل مواجهة الزمالك بالكونفدرالية؟**: [Link](https://www.youm7.com/story/2026/1/25/%D8%A8%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%AF%D9%85-%D9%86%D8%A8%D9%8A%D9%84-%D8%A7%D9%84%D9%83%D9%88%D9%83%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83/7281112)
+
+
 ### lille – strasbourg (N/A, Sun, 25 Jan 2026 11:20:00 -0800)
 
 - **Lille – Strasbourg : quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-1/lille-strasbourg-quelle-chaine-diffuse-le-match-984407.html)
