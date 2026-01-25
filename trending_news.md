@@ -1,3 +1,10 @@
+### roma vs milan (N/A, Sun, 25 Jan 2026 12:00:00 -0800)
+
+- **Serie A - AS Roma v AC Milan**: [Link](https://www.reutersconnect.com/item/serie-a-as-roma-v-ac-milan/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNMVAxTzVDQU8)
+- **Leao: "We have prepared well for this match"**: [Link](https://milanreports.com/2026/01/25/leao-we-prepared-well/)
+- **A stalemate that favors Inter**: [Link](https://www.besoccer.com/new/a-stalemate-that-favors-inter-1391447)
+
+
 ### xiaomi redmi note 15 (N/A, Sun, 25 Jan 2026 14:30:00 -0800)
 
 - **Xiaomi Expands Morocco Lineup With REDMI Note 15 Series**: [Link](https://www.moroccoworldnews.com/2026/01/276167/xiaomi-expands-morocco-lineup-with-redmi-note-15-series/)
