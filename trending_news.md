@@ -1,3 +1,17 @@
+### botola 2 (N/A, Sun, 25 Jan 2026 07:20:00 -0800)
+
+- **جولة حاسمة في بطولة القسم الثاني**: [Link](https://www.hespress.com/%D8%AC%D9%88%D9%84%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-1690932.html)
+- **دوري المحترفين 2...المغرب التطواني يعزز مكانته في الصدارة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D8%B1%D9%81%D9%8A%D9%86-2%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D9%85%D9%83%D8%A7%D9%86%D8%AA%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9/14944)
+- **البطولة الاحترافية 2: وداد تمارة يقفز موقتا الصدارة**: [Link](https://www.almountakhab.com/node/13222130)
+
+
+### star academy (N/A, Sun, 25 Jan 2026 07:10:00 -0800)
+
+- **Star Academy: voici le nom de la première finaliste**: [Link](https://www.lalibre.be/culture/medias-tele/2026/01/25/star-academy-voici-le-nom-de-la-premiere-finaliste-A5WPXRAP4FEKFFCG2DPA4TJ3CU/)
+- **EXCLUSIF. Star Academy : la date de la finale, c’est le 7 février 2026 sur TF1**: [Link](https://www.ouest-france.fr/medias/television/exclusif-la-finale-de-la-star-academy-aura-lieu-le-7-fevrier-2026-sur-tf1-6a4ab7fe-f2dc-11f0-9160-764ed90b3d12)
+- **"Il ne faut pas que ça devienne une habitude" : Nikos Aliagas fait une grande annonce pour le débrief de la Star Academy, Michael Goldman le met en garde**: [Link](https://www.programme-tv.net/news/tv/396494-il-ne-faut-pas-que-ca-devienne-une-habitude-nikos-aliagas-fait-une-grande-annonce-pour-le-debrief-de-la-star-academy-michael-goldman-le-met-en-garde/)
+
+
 ### mönchengladbach – stuttgart (N/A, Sun, 25 Jan 2026 06:50:00 -0800)
 
 - **Liveticker | Bor. Mönchengladbach - VfB Stuttgart : | 19. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/mgladbach-gegen-stuttgart-2026-bundesliga-5050917/ticker)
