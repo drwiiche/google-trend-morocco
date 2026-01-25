@@ -1,3 +1,17 @@
+### arsenal – manchester united (N/A, Sun, 25 Jan 2026 07:40:00 -0800)
+
+- **Premier League LIVE: Arsenal vs Manchester United - build-up, team news, live text & radio commentary**: [Link](https://www.bbc.com/sport/football/live/cr7jlmdg323t)
+- **Arsenal Host Manchester United in High-Stakes Premier League Showdown**: [Link](https://www.dawan.africa/news/arsenal-host-manchester-united-in-high-stakes-premier-league-showdown)
+- **Confidence After Manchester Derby, Carrick Ready to Shake the Gunners**: [Link](https://voi.id/en/olahraga/553669)
+
+
+### fc barcelone (N/A, Sun, 25 Jan 2026 07:40:00 -0800)
+
+- **Le PSG fait un joli cadeau au FC Barcelone pour Dro Fernandez**: [Link](https://www.footmercato.net/a2833674795567268503-le-psg-fait-un-joli-cadeau-au-fc-barcelone-pour-dro-fernandez)
+- **Mercato PSG : Dro Fernandez écarté de l’entraînement du FC Barcelone**: [Link](https://www.leparisien.fr/sports/football/mercato-psg-dro-fernandez-ecarte-de-lentrainement-du-fc-barcelone-19-01-2026-XN4TR5F3LBCAJAPXETWYWVEZIU.php)
+- **Mercato : le TFC à l’offensive pour un milieu international libyen ?**: [Link](https://www.lesviolets.com/actu/mercato-le-tfc-a-loffensive-pour-un-milieu-international-libyen,80940.html)
+
+
 ### botola 2 (N/A, Sun, 25 Jan 2026 07:20:00 -0800)
 
 - **جولة حاسمة في بطولة القسم الثاني**: [Link](https://www.hespress.com/%D8%AC%D9%88%D9%84%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-1690932.html)
