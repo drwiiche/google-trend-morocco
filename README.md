@@ -1,3 +1,10 @@
+### ألافيس ضد ريال بتيس (N/A, Sun, 25 Jan 2026 12:00:00 -0800)
+
+- **أزمة إصابات حادة تضرب ريال بيتيس قبل مواجهة ألافيس**: [Link](https://m.elbotola.com/article/2026-01-23-11-20-891.html)
+- **ألافيس يلدغ ريال بيتيس بثنائية في الدوري الإسباني**: [Link](https://www.yallakora.com/la-liga/2982/news/539420/%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%8A%D9%84%D8%AF%D8%BA-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A8%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A)
+- **تعرّف على تفاصيل مباراة ألافيس ضد ريال بيتيس في الدوري الإسباني بتاريخ 2026/01/25 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A8%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-20)
+
+
 ### lorch (N/A, Sun, 25 Jan 2026 12:50:00 -0800)
 
 - **Haushaltsoptimismus in Lorch: Gemeinderat beschließt Investitionen und Zuschüsse**: [Link](https://www.remszeitung.de/lokales/ostalbkreis/lorch/haushaltsoptimismus-in-lorch-gemeinderat-beschliesst-investitionen-und-zuschuesse-Z6FTR4ZRMFFIDPBACEK55JJK7Y.html)
