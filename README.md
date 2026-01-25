@@ -1,3 +1,38 @@
+### fenerbahçe – göztepe (N/A, Sun, 25 Jan 2026 09:20:00 -0800)
+
+- **Fenerbahçe maçı öncesi Göztepe'de eksik sayısı 5'e çıktı**: [Link](https://www.ntvspor.net/futbol/son-dakika-fenerbahce-maci-oncesi-goztepede-eksik-sayisi-5e-cikti-416762)
+- **Fenerbahçe, Göztepe’yi Kadıköy’de konuk ediyor**: [Link](https://hastaneplus.com/fenerbahce-goztepeyi-kadikoyde-konuk-ediyor)
+- **CANLI | Fenerbahçe - Göztepe maçı Canlı Anlatım - FB GÖZTEPE maçı kadroları, skoru ve istatistikleri**: [Link](https://www.fanatik.com.tr/fenerbahce/live-fenerbahce-goztepe-maci-canli-anlatim-fb-goztepe-maci-kadrolari-skoru-ve-istatistikleri-2609611)
+
+
+### snrt (N/A, Sun, 25 Jan 2026 09:20:00 -0800)
+
+- **يعقوب المنصور يستقبل في "الأولمبي"**: [Link](https://www.hespress.com/%D9%8A%D8%B9%D9%82%D9%88%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A-1690791.html)
+- **ثنائية الودغيري تمنح بيبي ميل بداية مثالية وفوزا هاما أمام يعقوب المنصور**: [Link](https://tanja24.com/%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%BA%D9%8A%D8%B1%D9%8A-%D8%AA%D9%85%D9%86%D8%AD-%D8%A8%D9%8A%D8%A8%D9%8A-%D9%85%D9%8A%D9%84-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D9%85%D8%AB/)
+- **اتحاد طنجة يعود بانتصار قاتل من قلب الرباط**: [Link](https://infosports.ma/210036/)
+
+
+### raja vs touarga (N/A, Sun, 25 Jan 2026 09:20:00 -0800)
+
+- **Raja Announce Official Lineup for Ittihad Touarga Clash**: [Link](https://m.elbotola.com/en/article/2026-01-25-16-19-303.html)
+- **League Announces Raja-Ittihad Touarga Match Relocation from 'City Stadium' to 'November 18 Stadium' in Khemisset**: [Link](https://m.elbotola.com/en/article/2026-01-23-17-01-955.html)
+- **Disorganization Plagues Belqshour's League After Raja-Ittihad Touarga Match Scheduling Confusion**: [Link](https://m.elbotola.com/en/article/2026-01-24-13-39-469.html)
+
+
+### raja club athletic (N/A, Sun, 25 Jan 2026 09:00:00 -0800)
+
+- **Le Raja officialise l'arrivée de Khammass, le WAC signe Moises Paniagua**: [Link](https://lematin.ma/sports/le-raja-officialise-larrivee-de-khammass-le-wac-signe-moises-paniagua/325957)
+- **Khammas : « Je suis venu au Raja pour l'aider à remporter des titres, ses supporters sont les numéros 1 mondiaux**: [Link](https://m.elbotola.com/fr/article/2026-01-23-02-29-971.html)
+- **Raja boucle le transfert d’Amine Khammas**: [Link](https://africafoot.com/raja-boucle-le-transfert-damine-khammas/)
+
+
+### manchester united (N/A, Sun, 25 Jan 2026 08:50:00 -0800)
+
+- **Football insiders think Adam Wharton deal could be on with Liverpool readying £80m offer**: [Link](https://www.rousingthekop.com/2026/01/23/football-insiders-think-adam-wharton-deal-could-be-on-with-liverpool-readying-80m-offer/)
+- **Liverpool's £80m transfer target would be the perfect signing - if Man Utd don't beat them to it**: [Link](https://www.3addedminutes.com/sport/football/liverpool/liverpool-transfer-manchester-united-wharton-5487968)
+- **Tottenham’s ‘dream’ midfield signing may be £30m cheaper than first thought**: [Link](https://www.spurs-web.com/spurs-news/tottenhams-dream-midfield-signing-may-be-30m-cheaper-than-first-thought/)
+
+
 ### الاتحاد التوركي ضد الرجاء (N/A, Sun, 25 Jan 2026 09:00:00 -0800)
 
 - **تغيير ملعب مباراة تواركة والرجاء**: [Link](https://www.hespress.com/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%85%D9%84%D8%B9%D8%A8-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%A7%D8%B1%D9%83%D8%A9-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-1691267.html)
