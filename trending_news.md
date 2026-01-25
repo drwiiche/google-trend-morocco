@@ -1,3 +1,10 @@
+### serie a (N/A, Sun, 25 Jan 2026 10:40:00 -0800)
+
+- **Cafù difende Leao e torna sull'addio di Theo: "Il rammarico c'è, chissà cos'avrebbe fatto con Allegri"**: [Link](https://tribuna.com/it/news/2026-01-25-cafu-difende-leao-e-torna-sulladdio-di-theo-il-rammarico-ce-chissa-cosavrebbe-fatto-con-a/)
+- **Roma-Milan, le formazioni ufficiali: Pulisic in panchina**: [Link](https://www.fantacalcio.it/news/calcio-italia/25_01_2026/roma-milan-formazioni-ufficiali-488069)
+- **LIVE Alle 20.45 Roma-Milan: Gasp ritrova Malen, sfida di lusso Dybala-Leao**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Roma/25-01-2026/roma-milan-live-risultato-e-gol-in-diretta-serie-a.shtml)
+
+
 ### benfica – estrela amadora (N/A, Sun, 25 Jan 2026 10:40:00 -0800)
 
 - **Benfica x Estrela Amadora: Onde assistir e como apostar na Liga Portugal com a Reals Bet (25/01)**: [Link](https://www.mktesportivo.com/2026/01/benfica-x-estrela-amadora-onde-assistir-e-como-apostar-na-liga-portugal-com-a-reals-bet-25-01/)
