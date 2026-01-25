@@ -1,3 +1,10 @@
+### mönchengladbach – stuttgart (N/A, Sun, 25 Jan 2026 06:50:00 -0800)
+
+- **Liveticker | Bor. Mönchengladbach - VfB Stuttgart : | 19. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/mgladbach-gegen-stuttgart-2026-bundesliga-5050917/ticker)
+- **Startelf-Debüt für Takai**: [Link](https://www.borussia.de/news/startelf-debuet-fuer-takai-ullrich-und-machino-starten)
+- **1. Liga: Tausende leere Plätze bei Traditionsduell**: [Link](https://www.diefalsche9.de/1-liga-tausende-leere-plaetze-bei-traditionsduell/)
+
+
 ### atletico madrid (N/A, Sun, 25 Jan 2026 06:40:00 -0800)
 
 - **Atletico Madrid-Mallorca - LaLiga 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1914084/preview/spain-laliga-2025-2026-atletico-madrid-mallorca)
