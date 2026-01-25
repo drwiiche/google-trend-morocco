@@ -1,3 +1,10 @@
+### barca match (N/A, Sun, 25 Jan 2026 08:10:00 -0800)
+
+- **Chelsea are prepared to offer €100 million to sign Barcelona midfield star – report**: [Link](https://semprebarca.com/chelsea-are-prepared-to-offer-e100-million-to-sign-barcelona-midfield-star-report/)
+- **Barça: Fermín López close to contract extension**: [Link](https://foot-africa.com/en/news/barca-fermin-lopez-close-to-contract-extension-1057442/)
+- **FC Barcelona Reacts To Interest In Fermin Lopez By Meeting Agents**: [Link](https://www.forbes.com/sites/tomsanderson/2026/01/23/fc-barcelona-reacts-to-interest-in-fermin-lopez-by-meeting-agents/)
+
+
 ### juventus – naples (N/A, Sun, 25 Jan 2026 08:30:00 -0800)
 
 - **Pronostic Juventus – Naples J22 Serie A (25/01/2026)**: [Link](https://mvz-sports.com/fr/bookmakers/news/pronostic-juventus-naples-j22-serie-a-25-01-2026)
