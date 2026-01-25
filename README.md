@@ -1,3 +1,31 @@
+### الاتحاد التوركي ضد الرجاء (N/A, Sun, 25 Jan 2026 09:00:00 -0800)
+
+- **تغيير ملعب مباراة تواركة والرجاء**: [Link](https://www.hespress.com/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%85%D9%84%D8%B9%D8%A8-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%A7%D8%B1%D9%83%D8%A9-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-1691267.html)
+- **بعد الاستقالة.. زمرات يقود تواركة أمام الرجاء**: [Link](https://www.hesport.com/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D8%B2%D9%85%D8%B1%D8%A7%D8%AA-%D9%8A%D9%82%D9%88%D8%AF-%D8%AA%D9%88%D8%A7%D8%B1%D9%83%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7-424193.html)
+- **العصبة الوطنية تعيد مباراة اتحاد تواركة والرجاء إلى الرباط**: [Link](https://www.radiomars.ma/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%84%D8%B9%D8%A8-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AA/)
+
+
+### barca (N/A, Sun, 25 Jan 2026 08:50:00 -0800)
+
+- **Hansi Flick backs Joan Laporta to be re-elected as Barcelona president**: [Link](https://www.football-espana.net/2026/01/24/hansi-flick-joan-laporta-barcelona-president)
+- **Hansi Flick hoping for winning homecoming**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4438949/hansi-flick-hoping-for-winning-homecoming)
+- **Dani Olmo Lifts Barcelona Over Real Oviedo At Camp Nou**: [Link](https://evrimagaci.org/gpt/dani-olmo-lifts-barcelona-over-real-oviedo-at-camp-nou-525424)
+
+
+### real sociedad – celta vigo (N/A, Sun, 25 Jan 2026 08:50:00 -0800)
+
+- **La cuesta puede ser un trampolín para el Celta**: [Link](https://www.lavozdegalicia.es/noticia/gradario/2026/01/25/cuesta-puede-trampolin/0003_202601V25P47991.htm)
+- **Al ataque**: [Link](http://www.realsociedad.eus/es/noticias/detalle/al-ataque)
+- **Giráldez: “Es el mejor momento de los dos equipos”**: [Link](https://www.atlantico.net/celtismo/giraldez-mejor-momento-equipos_1_20260125-4135576.html)
+
+
+### ترتيب الدوري الاسباني (N/A, Sun, 25 Jan 2026 08:50:00 -0800)
+
+- **ترتيب هدافي الدوري الإسباني بعد ثنائية مبابي في مباراة ريال مدريد وفياريال**: [Link](https://www.btolat.com/news/391447)
+- **رونالدو vs مبابى.. حصاد الأستاذ والتلميذ فى أول 20 لقاءً أوروبياً مع الريال**: [Link](https://www.youm7.com/story/2026/1/23/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-vs-%D9%85%D8%A8%D8%A7%D8%A8%D9%89-%D8%AD%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D8%B3%D8%AA%D8%A7%D8%B0-%D9%88%D8%A7%D9%84%D8%AA%D9%84%D9%85%D9%8A%D8%B0-%D9%81%D9%89-%D8%A3%D9%88%D9%84-20-%D9%84%D9%82%D8%A7%D8%A1%D9%8B/7279205)
+- **مبابي يتفوق على ريال مدريد في دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt79a084da352e0b6e)
+
+
 ### barca match (N/A, Sun, 25 Jan 2026 08:10:00 -0800)
 
 - **Chelsea are prepared to offer €100 million to sign Barcelona midfield star – report**: [Link](https://semprebarca.com/chelsea-are-prepared-to-offer-e100-million-to-sign-barcelona-midfield-star-report/)
