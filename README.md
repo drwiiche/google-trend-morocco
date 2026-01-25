@@ -1,3 +1,31 @@
+### روما ضد ميلان (N/A, Sun, 25 Jan 2026 12:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة روما وميلان في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%88%D9%85%D8%A7-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltbacbf61c13b8a5f4)
+- **بث مباشر لحظة بلحظة: مباراة ميلان وروما في الدوري الإيطالي 2026**: [Link](https://al-ain.com/article/milan-roma-serie-a-match-live-2026)
+- **مشاركة مانشيني في مواجهة ميلان مشكوك فيها**: [Link](https://www.elsport.com/news/show/809064/%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D9%8A%D9%86%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%85%D8%B4%D9%83%D9%88%D9%83-%D9%81%D9%8A%D9%87%D8%A7)
+
+
+### roma (N/A, Sun, 25 Jan 2026 12:20:00 -0800)
+
+- **LIVE Roma-Milan 0-0 Serie A 2025/2026: Un minuto di recupero**: [Link](https://sport.virgilio.it/dirette/live/serie-a/25-1-2026/roma-milan/2558725/)
+- **Soulé: “Partita fondamentale per la classifica. Malen ha già dimostrato il suo valore”**: [Link](https://www.forzaroma.info/news-as-roma/soule-partita-fondamentale-per-la-classifica-malen-ha-gia-dimostrato-il-suo-valore/)
+- **Roma-AC Milan, Serie A Enilive 2025/2026: formazioni ufficiali**: [Link](https://www.acmilan.com/it/news/articoli/serie-a/2026-01-25/roma-milan-le-formazioni-ufficiali)
+
+
+### alavés vs real betis (N/A, Sun, 25 Jan 2026 12:10:00 -0800)
+
+- **Preview: Alaves vs Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/alaves-vs-betis-prediction-team-news-lineups_590549.html)
+- **Where to Watch Deportivo Alaves vs. Real Betis: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/01/24/where-to-watch-deportivo-alaves-vs-real-betis-tv-channel-start-time-and-live-stream-2/)
+- **Guevara vs. Real Betis: Goal Scoring Odds & Player Props for Jan 25**: [Link](https://www.filmogaz.com/116607)
+
+
+### programme tv (N/A, Sun, 25 Jan 2026 12:10:00 -0800)
+
+- **Le 10h/12h du samedi 24 janvier 2026**: [Link](https://www.franceinfo.fr/replay-jt/franceinfo/le-10h-12h/jt-le-10h-12h-samedi-24-janvier-2026_7762583.html)
+- **Programme TV ce soir : notre sélection du samedi 24 janvier 2026**: [Link](https://tv-programme.com/news/programme-tv-ce-soir-notre-selection-du-samedi-24-janvier-2026-a03968)
+- **Sept à Huit (TF1) qui est l’invité du portrait d’Audrey Crespo-Mara ce 25 janvier ?**: [Link](https://www.telestar.fr/actu_tv/sept-a-huit-tf1-qui-est-linvite-du-portrait-daudrey-crespo-mara-ce-25-janvier-1750740)
+
+
 ### كأس الاتحاد الأفريقي (N/A, Sun, 25 Jan 2026 11:30:00 -0800)
 
 - **ماذا قال معتمد جمال والكوكي قبل موقعة الزمالك والمصري؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%A7%D9%84-%D9%85%D8%B9%D8%AA%D9%85%D8%AF-%D8%AC%D9%85%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%83%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%88%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A/bltf18a55320f4842a9)
