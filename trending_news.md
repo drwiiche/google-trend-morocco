@@ -1,3 +1,10 @@
+### lorch (N/A, Sun, 25 Jan 2026 12:50:00 -0800)
+
+- **Haushaltsoptimismus in Lorch: Gemeinderat beschließt Investitionen und Zuschüsse**: [Link](https://www.remszeitung.de/lokales/ostalbkreis/lorch/haushaltsoptimismus-in-lorch-gemeinderat-beschliesst-investitionen-und-zuschuesse-Z6FTR4ZRMFFIDPBACEK55JJK7Y.html)
+- **Geheimnis gelüftet: Lorcher zeigen Hexenmaske und Gardekostüm**: [Link](https://www.gmuender-tagespost.de/ostalb/lorch/stadt-lorch/geheimnis-gelueftet-lorcher-zeigen-hexenmaske-und-gardekostuem-94138332.html)
+- **Fasnet-Auftakt in Lorch: Vier neue Fetza Hexa am Narrenbaum**: [Link](https://www.gmuender-tagespost.de/ostalb/lorch/stadt-lorch/fasnet-auftakt-in-lorch-vier-neue-fetza-hexa-am-narrenbaum-94127651.html)
+
+
 ### روما ضد ميلان (N/A, Sun, 25 Jan 2026 12:20:00 -0800)
 
 - **ما القنوات الناقلة لمباراة روما وميلان في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%88%D9%85%D8%A7-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltbacbf61c13b8a5f4)
