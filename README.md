@@ -1,3 +1,59 @@
+### benfica – estrela amadora (N/A, Sun, 25 Jan 2026 10:40:00 -0800)
+
+- **Benfica x Estrela Amadora: Onde assistir e como apostar na Liga Portugal com a Reals Bet (25/01)**: [Link](https://www.mktesportivo.com/2026/01/benfica-x-estrela-amadora-onde-assistir-e-como-apostar-na-liga-portugal-com-a-reals-bet-25-01/)
+- **AO VIVO: Grande defesa de Renan após livre de Sidny (17')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-grande-defesa-de-renan-apos-livre-de-sidny-17/Wj3BoQq9/)
+- **Bruma e Manu Silva fora dos convocados de José Mourinho para a receção ao Estrela da Amadora**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/bruma-e-manu-silva-fora-dos-convocados-de-jose-mourinho-para-a-rececao-ao-estrela-da-amadora/)
+
+
+### premier league table (N/A, Sun, 25 Jan 2026 10:40:00 -0800)
+
+- **The wild Premier League table over the past 10 seasons since 2016: Man Utd 5th**: [Link](https://www.msn.com/en-xl/news/other/the-wild-premier-league-table-over-the-past-10-seasons-since-2016-man-utd-5th/ar-AA1UTfbQ)
+- **Premier League: Chelsea beat 10-man Palace, Villa and Forest win**: [Link](https://www.bbc.com/sport/football/live/c1j963g7xlgt)
+- **Estevao is close to a new record with the Blues, Chelsea!**: [Link](https://foot-africa.com/en/news/estevao-is-close-to-a-new-record-with-the-blues-chelsea-1057952/)
+
+
+### premier league classement (N/A, Sun, 25 Jan 2026 10:40:00 -0800)
+
+- **DIRECT. Arsenal-Manchester United (Premier League 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/arsenal-manchester-united-live/673723)
+- **Premier League (23e journée) : Suivez Arsenal – Manchester United EN DIRECT**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-arsenal-manchester-united_mtc1602528/live-commentary.shtml)
+- **Arsenal - Manchester United : quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/angleterre/arsenal-manchester-united-quelle-chaine-diffuse-le-match-984422.html)
+
+
+### futsal week (N/A, Sun, 25 Jan 2026 10:40:00 -0800)
+
+- **المغرب يلعب نهائي "ويك فوتسال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%84%D8%B9%D8%A8-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%88%D9%8A%D9%83-%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-1691389.html)
+- **أسود الفوتسال يهزمون اسكتلندا بحصة كبيرة في دوري دولي بكرواتيا**: [Link](https://www.ahdath.info/article/248860/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D9%8A%D9%87%D8%B2%D9%85%D9%88%D9%86-%D8%A7%D8%B3%D9%83%D8%AA%D9%84%D9%86%D8%AF%D8%A7-%D8%A8%D8%AD%D8%B5%D8%A9-%D9%83%D8%A8%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%AF%D9%88%D9%84%D9%8A-%D8%A8%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7)
+- **En direct… Maroc vs Roumanie dans le championnat international de futsal**: [Link](https://chamaly.ma/2026/01/25/en-direct-maroc-vs-roumanie-dans-le-championnat-international-de-futsal/)
+
+
+### البطولة (N/A, Sun, 25 Jan 2026 10:40:00 -0800)
+
+- **النادي المكناسي يهزم نهضة الزمامرة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D9%86%D9%87%D8%B6%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%85%D8%B1%D8%A9-1692074.html)
+- **البطولة: « ريمونتادا » النادي المكناسي أمام نهضة الزمامرة تمنحه ثلاث نقاط في الوقت بدل الضائع – اليوم 24**: [Link](https://alyaoum24.com/2006399.html)
+- **البطولة الإحترافية 1.. الكوديم يفاجئ نهضة الزمامرة ويحقق فوزا ثمينا**: [Link](https://www.almountakhab.com/node/13222165)
+
+
+### pl (N/A, Sun, 25 Jan 2026 10:30:00 -0800)
+
+- **Polska leci w kosmos. Znana jest lokalizacja pierwszego kosmodromu**: [Link](https://www.gazetaprawna.pl/wiadomosci/kraj/artykuly/10631170,polska-leci-w-kosmos-znana-jest-lokalizacja-pierwszego-kosmodromu.html)
+- **Sejmowe komisje za poprawkami do projektu ustawy kosmicznej**: [Link](https://space24.pl/polityka-kosmiczna/polska/sejmowe-komisje-za-poprawkami-do-projektu-ustawy-kosmicznej)
+- **Polska nie potrzebuje euro? Domański: nasza gospodarka radzi sobie lepiej**: [Link](https://businessinsider.com.pl/finanse/polska-nie-potrzebuje-euro-domanski-nasza-gospodarka-radzi-sobie-lepiej/dk7lsmr)
+
+
+### man utd (N/A, Sun, 25 Jan 2026 10:20:00 -0800)
+
+- **Arsenal vs Man United referee is 'banned' from officiating two teams as rules explained**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/arsenal-man-united-referee-pawson-33297437)
+- **Arsenal learn referee for Manchester United clash**: [Link](https://dailycannon.com/2026/01/arsenal-manchester-united-referee/)
+- **Referee Barred from Officiating Arsenal vs Man Utd Matches**: [Link](https://www.filmogaz.com/116482)
+
+
+### wydad ac – maniema union (N/A, Sun, 25 Jan 2026 10:10:00 -0800)
+
+- **Confederation Cup: What time and on which channel to watch Wydad AC vs Maniema Union?**: [Link](https://ca.sports.yahoo.com/news/confederation-cup-time-channel-watch-111500389.html)
+- **Benhashem: "First Match After Two-Month Absence Will Be Difficult, But We Aim for a Positive Result"**: [Link](https://m.elbotola.com/en/article/2026-01-24-12-47-975.html)
+- **CAF Confederation Cup: Wydad AC vs Maniema Union – Match Preview**: [Link](https://africasoccer.com/caf-confederation-cup-wydad-ac-vs-maniema-union-match-preview/)
+
+
 ### juventus vs napoli (N/A, Sun, 25 Jan 2026 10:10:00 -0800)
 
 - **Milinkovic-Savic has new injury worry for Napoli against Juventus**: [Link](https://football-italia.net/milinkovic-savic-new-injury-worry-for-napoli/)
