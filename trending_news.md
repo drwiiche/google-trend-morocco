@@ -1,3 +1,10 @@
+### كندا (N/A, Sun, 25 Jan 2026 15:40:00 -0800)
+
+- **كارني يدعو المواطنين لشراء المنتج الكندي ردا على تهديدات ترمب**: [Link](https://www.aljazeera.net/news/2026/1/25/%D8%B1%D8%A6%D9%8A%D8%B3-%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D9%83%D9%86%D8%AF%D8%A7-%D9%8A%D8%B9%D9%84%D9%86-%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+- **ترامب يهدد كندا بفرض رسوم 100 بالمئة إذا أبرمت اتفاقا مع الصين**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D9%87%D8%AF%D8%AF-%D9%83%D9%86%D8%AF%D8%A7-%D8%A8%D9%81%D8%B1%D8%B6-%D8%B1%D8%B3%D9%88%D9%85-100-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D8%A5%D8%B0%D8%A7-%D8%A3%D8%A8%D8%B1%D9%85%D8%AA-%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%B5%D9%8A%D9%86/3809871)
+- **ترامب: الصين تسيطر على كندا.. وبيسنت: كارني يتباهى أمام العولميين**: [Link](https://arabic.euronews.com/2026/01/25/trump-china-controls-canada-bessent-carney-is-showing-off-to-the-globalists)
+
+
 ### roma vs milan (N/A, Sun, 25 Jan 2026 12:00:00 -0800)
 
 - **Serie A - AS Roma v AC Milan**: [Link](https://www.reutersconnect.com/item/serie-a-as-roma-v-ac-milan/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNMVAxTzVDQU8)
