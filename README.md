@@ -1,3 +1,10 @@
+### xiaomi redmi note 15 (N/A, Sun, 25 Jan 2026 14:30:00 -0800)
+
+- **Xiaomi Expands Morocco Lineup With REDMI Note 15 Series**: [Link](https://www.moroccoworldnews.com/2026/01/276167/xiaomi-expands-morocco-lineup-with-redmi-note-15-series/)
+- **Redmi Note 15 5G Launched With 108MP Camera and Snapdragon 6 Gen 3**: [Link](https://www.sangritoday.com/redmi-note-15-5g-launched-with-108mp-camera-and-snapdragon-6-gen-3)
+- **Redmi Note 15 Pro 4G Review: This is the strangest phone I've tested this year**: [Link](https://www.phonearena.com/reviews/redmi-note-15-pro-4g-review_id7813)
+
+
 ### ألافيس ضد ريال بتيس (N/A, Sun, 25 Jan 2026 12:00:00 -0800)
 
 - **أزمة إصابات حادة تضرب ريال بيتيس قبل مواجهة ألافيس**: [Link](https://m.elbotola.com/article/2026-01-23-11-20-891.html)
