@@ -1,3 +1,31 @@
+### girona – getafe (N/A, Mon, 26 Jan 2026 11:20:00 -0800)
+
+- **Ter Stegen y Fran Beltrán debutan como titulares ante un Getafe con tres novedades**: [Link](https://es-us.noticias.yahoo.com/deportes/ter-stegen-fran-beltr%C3%A1n-debutan-191129374.html)
+- **Montilivi se prepara para el debut de sus nuevas caras**: [Link](https://www.vavel.com/es/futbol/2026/01/26/girona-fc/1248629-montilivi-se-prepara-para-el-debut-de-sus-nuevas-caras.html)
+- **Ganar o morir**: [Link](https://as.com/futbol/primera/ganar-o-morir-f202601-n/)
+
+
+### everton – leeds united (N/A, Mon, 26 Jan 2026 11:20:00 -0800)
+
+- **Moyes' Programme Notes For Leeds Visit**: [Link](https://www.evertonfc.com/news/2026/january/26/moyes--programme-notes-for-leeds-visit/)
+- **Everton Face Stiff Test at Hill Dickinson Stadium Against In-Form Leeds**: [Link](https://www.dawan.africa/news/everton-face-stiff-test-at-hill-dickinson-stadium-against-in-form-leeds)
+- **bet365 bonus code UK: Use MYBETCODE for Premier League free bets**: [Link](https://mybettingsites.co.uk/news/bet365-bonus-code-uk-use-mybetcode-for-premier-league-free-bets-january-26/)
+
+
+### وداد (N/A, Mon, 26 Jan 2026 11:20:00 -0800)
+
+- **الوداد يهزم مانييما في "كأس كاف"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%87%D8%B2%D9%85-%D9%85%D8%A7%D9%86%D9%8A%D9%8A%D9%85%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D9%83%D8%A7%D9%81-1692232.html)
+- **فيديو: بعد واقعة نهائي الكان.. حادثة المنشفة تظهر مجددا في لقاء الوداد ومانيما الكونغولي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D8%B9%D8%AF-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86--%D8%AD%D8%A7%D8%AF%D8%AB%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B4%D9%81%D8%A9-%D8%AA%D8%B8%D9%87%D8%B1-%D9%85%D8%AC%D8%AF%D8%AF%D8%A7-%D9%81%D9%8A-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D9%85%D8%A7%D9%86%D9%8A%D9%85%D8%A7-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88%D9%84%D9%8A/bltf5f68278248cf53f)
+- **مدرب الوداد يتحدث بصراحة عن أداء زياش**: [Link](https://www.radiomars.ma/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%A8%D8%B5%D8%B1%D8%A7%D8%AD%D8%A9-%D8%B9%D9%86-%D8%A3%D8%AF%D8%A7%D8%A1-%D8%B2%D9%8A%D8%A7%D8%B4/)
+
+
+### al-nassr fc – al taawon (N/A, Mon, 26 Jan 2026 09:00:00 -0800)
+
+- **Preview: Al-Nassr vs Al-Taawoun - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/al-nassr-vs-al-taawoun-prediction-team-news-lineups_590574.html)
+- **Cristiano Ronaldo skips another Al-Nassr training session due to physical fatigue as uncertainty looms: Wil...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-skips-another-al-nassr-training-session-due-to-physical-fatigue-as-uncertainty-looms-will-he-be-fit-to-face-al-taawoun-in-saudi-pro-league/)
+- **Jesus Excludes Al-Nassr Duo Against Al-Taawoun**: [Link](https://www.ysscores.com/en/news/13898045/Jesus-Excludes-Al-Nassr-Duo-Against-Al-Taawoun)
+
+
 ### ousmane sonko (N/A, Mon, 26 Jan 2026 10:10:00 -0800)
 
 - **Akhannouch reçoit le Premier ministre sénégalais - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/01/26/akhannouch-recoit-le-premier-ministre-senegalais-1617246/)
