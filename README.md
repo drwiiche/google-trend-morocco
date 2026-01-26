@@ -1,3 +1,10 @@
+### michael schumacher (N/A, Sun, 25 Jan 2026 23:10:00 -0800)
+
+- **Major Michael Schumacher health update as F1 legend 'is no longer bed-bound' 12 years after horror ski accident**: [Link](https://www.thesun.co.uk/sport/38017627/michael-schumacher-health-update-f1/)
+- **Rare Michael Schumacher Update Given 12 Years After Life-Changing Skiing Accident**: [Link](https://www.sportbible.com/f1/michael-schumacher-update-f1-ferrari-skiing-accident-873915-20260124)
+- **Michael Schumacher 'isn't bedridden and watches F1 races' as massive health update leaks**: [Link](https://www.dailystar.co.uk/sport/f1/michael-schumacher-health-update-f1-36611665)
+
+
 ### jannik sinner (N/A, Mon, 26 Jan 2026 01:40:00 -0800)
 
 - **Sinner-Darderi, il derby italiano agli ottavi degli Australian Open | La diretta**: [Link](https://www.ilfattoquotidiano.it/sport-miliardi/live-post/2026/01/26/sinner-darderi-il-derby-italiano-agli-ottavi-degli-australian-open-la-diretta/8268945/)
