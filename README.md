@@ -1,3 +1,10 @@
+### موعد اذان الفجر (N/A, Sun, 25 Jan 2026 21:20:00 -0800)
+
+- **مواقيت الصلاة|أذان العشاء اليوم الأحد في القاهرة والإسكندرية والمحافظات**: [Link](https://www.egyptke.com/166245)
+- **مواقيت الصلاة، موعد أذان الظهر اليوم الإثنين 26 - 1 - 2026 في القاهرة والمحافظات**: [Link](https://www.vetogate.com/5572333)
+- **مواقيت الصلاة اليوم الإثنين 26 يناير 2026 في القاهرة والمحافظات**: [Link](https://akhbarelyom.com/news/newdetails/4763321/1/%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-26-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-202)
+
+
 ### tiktok (N/A, Sun, 25 Jan 2026 19:20:00 -0800)
 
 - **TikTok issues, app login plague users days after US deal avoiding ban**: [Link](https://www.pnj.com/story/news/2026/01/25/tiktok-down-servers-outage-login-videos/88350809007/)
