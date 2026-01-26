@@ -1,3 +1,24 @@
+### النصر ضد التعاون (N/A, Mon, 26 Jan 2026 10:00:00 -0800)
+
+- **عودة البطل.. ساديو ماني يقود تشكيل النصر أمام التعاون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%A8%D8%B7%D9%84--%D8%B3%D8%A7%D8%AF%D9%8A%D9%88-%D9%85%D8%A7%D9%86%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86/bltb072eb7edc214b4e)
+- **مباشر مباراة النصر ضد التعاون (0-0) في الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/26/saudi-league-al-nassr-vs-taawoun)
+- **العارضة تحرم كريستيانو رونالدو من هدف تاريخي أمام التعاون (فيديو)**: [Link](https://www.eremnews.com/sports/7560omq)
+
+
+### al-nassr vs al-taawoun (N/A, Mon, 26 Jan 2026 10:00:00 -0800)
+
+- **Preview: Al-Nassr vs Al-Taawoun - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/al-nassr-vs-al-taawoun-prediction-team-news-lineups_590574.html)
+- **Cristiano Ronaldo skips another Al-Nassr training session due to physical fatigue as uncertainty looms: Wil...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-skips-another-al-nassr-training-session-due-to-physical-fatigue-as-uncertainty-looms-will-he-be-fit-to-face-al-taawoun-in-saudi-pro-league/)
+- **Mane Returns to Lead Al-Nassr's Attack Against Al-Taawoun in a Decisive Match**: [Link](https://www.ysscores.com/en/news/13897935/Mane-Returns-to-Lead-Al-Nassr's-Attack-Against-Al-Taawoun-in-a-Decisive-Match)
+
+
+### xm (N/A, Mon, 26 Jan 2026 10:00:00 -0800)
+
+- **Playlist: Sirius XM’s “Dark Wave” — hosted by Slicing Up Eyeballs (1/25/26)**: [Link](https://slicingupeyeballs.com/2026/01/25/dark-wave-playlist-jan-25-2026/)
+- **Playlist: Sirius XM’s “Dark Wave” — hosted by Slicing Up Eyeballs (1/18/26)**: [Link](https://slicingupeyeballs.com/2026/01/18/dark-wave-playlist-jan-18-2026/)
+- **XM supports ‘Woman Scientist of the Year’ award**: [Link](https://cyprus-mail.com/2026/01/26/xm-supports-woman-scientist-of-the-year-award)
+
+
 ### temps (N/A, Mon, 26 Jan 2026 08:40:00 -0800)
 
 - **Pluies intenses, froid et neige : le Maroc sous l’effet d’un scénario météo atypique selon la DGM**: [Link](https://ledesk.ma/encontinu/pluies-intenses-froid-et-neige-le-maroc-sous-leffet-dun-scenario-meteo-atypique-selon-la-dgm/)
