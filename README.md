@@ -1,3 +1,10 @@
+### sandrine josso (N/A, Mon, 26 Jan 2026 04:00:00 -0800)
+
+- **Soumission chimique : au-delà de la prise de conscience, quelles mesures pour endiguer ce fléau**: [Link](https://information.tv5monde.com/terriennes/soumission-chimique-au-dela-de-la-prise-de-conscience-quelles-mesures-pour-endiguer-ce-fleau-2766871)
+- **Affaire Joël Guerriau : l’ex-sénateur jugé lundi à Paris pour avoir drogué la députée Sandrine Josso afin de la violer**: [Link](https://www.lemonde.fr/societe/article/2026/01/26/affaire-joel-guerriau-l-ex-senateur-juge-lundi-a-paris-pour-avoir-drogue-la-deputee-sandrine-josso-afin-de-la-violer_6664127_3224.html)
+- **Procès d'un député, concours de beauté pour chat, carambolage mortel... L’info à midi en Île-de-France**: [Link](https://actu.fr/societe/proces-d-un-depute-concours-de-beaute-pour-chat-carambolage-mortel-l-info-a-midi-en-ile-de-france_63748071.html)
+
+
 ### michael schumacher (N/A, Sun, 25 Jan 2026 23:10:00 -0800)
 
 - **Major Michael Schumacher health update as F1 legend 'is no longer bed-bound' 12 years after horror ski accident**: [Link](https://www.thesun.co.uk/sport/38017627/michael-schumacher-health-update-f1/)
