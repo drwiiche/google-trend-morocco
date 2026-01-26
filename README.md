@@ -1,3 +1,17 @@
+### flotte fantôme russe (N/A, Sun, 25 Jan 2026 23:10:00 -0800)
+
+- **Détroit de Gibraltar : le Maroc intervient pour sécuriser un tanker à la dérive lié à la « flotte fantôme » russe**: [Link](https://ledesk.ma/encontinu/detroit-de-gibraltar-le-maroc-intervient-pour-securiser-un-tanker-a-la-derive-lie-a-la-flotte-fantome-russe/)
+- **Un deuxième pétrolier russe « hors de contrôle » secouru par le Maroc près du détroit de Gibraltar**: [Link](https://www.lavoixdunord.fr/1668303/article/2026-01-25/un-deuxieme-petrolier-russe-hors-de-controle-secouru-par-le-maroc-pres-du)
+- **Le pétrolier soupçonné d'appartenir à la flotte fantôme russe à disposition de la justice française**: [Link](https://medias24.com/agence-presse/le-petrolier-soupconne-dappartenir-a-la-flotte-fantome-russe-a-disposition-de-la-justice-francaise/)
+
+
+### barrages maroc (N/A, Sun, 25 Jan 2026 22:10:00 -0800)
+
+- **De la pluviométrie aux intempéries : quand le retour de l’eau expose à de nouveaux risques**: [Link](https://medias24.com/2026/01/23/de-la-pluviometrie-aux-intemperies-quand-le-retour-de-leau-expose-de-nouveaux-risques-1616141/)
+- **Barrages : Un taux de remplissage de 50,1% au 24 janvier**: [Link](https://www.leconomiste.com/flash-infos/barrages-un-taux-de-remplissage-de-501-au-24-janvier/)
+- **Expert: l’accalmie climatique ne met pas fin à la sécheresse**: [Link](https://fr.le360.ma/economie/expert-laccalmie-climatique-ne-met-pas-fin-a-la-secheresse_44N2F4X7URAEDML2232FIYN3SU/)
+
+
 ### موعد اذان المغرب (N/A, Sun, 25 Jan 2026 21:40:00 -0800)
 
 - **مواقيت الصلاة|أذان العشاء اليوم الأحد في القاهرة والإسكندرية والمحافظات**: [Link](https://www.egyptke.com/166245)
