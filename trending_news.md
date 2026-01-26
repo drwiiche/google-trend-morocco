@@ -1,3 +1,17 @@
+### en nesyri (N/A, Sun, 25 Jan 2026 23:00:00 -0800)
+
+- **En-Nesyri Turns Down Juventus Loan Offer**: [Link](https://www.moroccoworldnews.com/2026/01/276386/en-nesyri-turns-down-juventus-loan-offer/)
+- **Lopetegui: "En-Nesyri is a Very Religious Person Devoted to His Faith, and I Believe Italy is Much Better for Him Than Turkey"**: [Link](https://m.elbotola.com/en/article/2026-01-24-16-18-264.html)
+- **Giorgio Chiellini says talks for Youssef En-Nesyri are over: ‘The situation is pretty clear’**: [Link](https://www.blackwhitereadallover.com/juventus-transfer-rumours-news/35767/giorgio-chiellini-youssef-en-nesyri-juventus-fenerbahce-2026-serie-a-january-transfer-rumors)
+
+
+### real betis (N/A, Sun, 25 Jan 2026 14:30:00 -0800)
+
+- **Entradas: Mallorca – Real Betis, Son Moix (2026) LaLiga**: [Link](https://karlobag.eu/es/entradas/futbol/entradas-para-rcd-mallorca---real-betis-laliga-jornada-24-son-moix-en-palma-de-mallorca-guia-compra-zjant)
+- **El Feyenoord vence al Heracles (4-2) antes de visitar al Betis en la Cartuja**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/feyenoord-vence-heracles-visitar-betis-cartuja-20260126092953-nts.html)
+- **Feyenoord vs Heracles Almelo Pronóstico: Previa y Análisis del Partido | Eredivisie 25-01-2026**: [Link](https://betmines.com/es/analisis-partido/feyenoord-vs-heracles-almelo-pronostico-previa-y-analisis-del-partido-eredivisie-25-01-2026)
+
+
 ### flotte fantôme russe (N/A, Sun, 25 Jan 2026 23:10:00 -0800)
 
 - **Détroit de Gibraltar : le Maroc intervient pour sécuriser un tanker à la dérive lié à la « flotte fantôme » russe**: [Link](https://ledesk.ma/encontinu/detroit-de-gibraltar-le-maroc-intervient-pour-securiser-un-tanker-a-la-derive-lie-a-la-flotte-fantome-russe/)
