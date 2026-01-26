@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Mon, 26 Jan 2026 01:40:00 -0800)
+
+- **Sinner-Darderi, il derby italiano agli ottavi degli Australian Open | La diretta**: [Link](https://www.ilfattoquotidiano.it/sport-miliardi/live-post/2026/01/26/sinner-darderi-il-derby-italiano-agli-ottavi-degli-australian-open-la-diretta/8268945/)
+- **Tutto il tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-australian-open-wta-singolare-tennis-tracker-in-campo-sinner-darderi-6-1-6-3-4-4-musetti-vince-e-passa-ai-quarti/Uur39aU7/)
+- **Sport oggi in tv, la programmazione di lunedì 26 gennaio: Sinner agli Australian Open, posticipo di A, Italia-Croazia di pallanuoto**: [Link](https://sport.virgilio.it/sport-oggi-in-tv-la-programmazione-di-lunedi-26-gennaio-sinner-agli-australian-open-posticipo-di-a-italia-croazia-di-pallanuoto-940345)
+
+
 ### en nesyri (N/A, Sun, 25 Jan 2026 23:00:00 -0800)
 
 - **En-Nesyri Turns Down Juventus Loan Offer**: [Link](https://www.moroccoworldnews.com/2026/01/276386/en-nesyri-turns-down-juventus-loan-offer/)
