@@ -1,3 +1,10 @@
+### bim (N/A, Mon, 26 Jan 2026 15:40:00 -0800)
+
+- **27-30 Ocak BİM Aktüel Kataloğu: Stanley Termos ve Philips Süpürge Raflara İniyor!**: [Link](https://www.muglayenigun.com/27-30-ocak-bim-aktuel-katalogu-stanley-termos-ve-philips-supurge-raflara-iniyor/)
+- **BİM’DEN SALI VE CUMA İNDİRİMLERİ! 27-30 Ocak BİM aktüel kataloğu: termos, çaydanlık, midi fırın...**: [Link](https://www.sabah.com.tr/trend/galeri/yasam/bimden-sali-ve-cuma-indirimleri-27-30-ocak-bim-aktuel-katalogu-termos-caydanlik-midi-firin)
+- **BİM'e LG televizyon geliyor! 23 Ocak 2026 BİM katalog yayınlandı! - Vitrin**: [Link](https://finans.mynet.com/haber/detay/ekonomi/bim-e-lg-televizyon-geliyor-23-ocak-2026-bim-katalog-yayinlandi/531875/)
+
+
 ### girona (N/A, Mon, 26 Jan 2026 13:20:00 -0800)
 
 - **Girona - Getafe en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/girona-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-f202601-d/)
