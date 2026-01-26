@@ -1,3 +1,10 @@
+### temps (N/A, Mon, 26 Jan 2026 08:40:00 -0800)
+
+- **Pluies intenses, froid et neige : le Maroc sous l’effet d’un scénario météo atypique selon la DGM**: [Link](https://ledesk.ma/encontinu/pluies-intenses-froid-et-neige-le-maroc-sous-leffet-dun-scenario-meteo-atypique-selon-la-dgm/)
+- **Fortes pluies et rafales de vent mardi et mercredi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-et-rafales-de-vent-mardi-et-mercredi-dans-plusieurs-regions/326310)
+- **Fortes chutes de neige dans la province d’Ifrane: plusieurs axes routiers paralysés**: [Link](https://fr.le360.ma/societe/fortes-chutes-de-neige-dans-la-province-difrane-plusieurs-axes-routiers-paralyses_QWNYZ5TKNNGUTJE3Z5JHWPJTVM/)
+
+
 ### sandrine josso (N/A, Mon, 26 Jan 2026 04:00:00 -0800)
 
 - **Soumission chimique : au-delà de la prise de conscience, quelles mesures pour endiguer ce fléau**: [Link](https://information.tv5monde.com/terriennes/soumission-chimique-au-dela-de-la-prise-de-conscience-quelles-mesures-pour-endiguer-ce-fleau-2766871)
