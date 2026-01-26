@@ -1,3 +1,10 @@
+### xiaomi redmi note 15 (N/A, Mon, 26 Jan 2026 12:10:00 -0800)
+
+- **Smartphones launching in India this week: Redmi Note 15 Pro series, Vivo X200T and Realme P4 Power**: [Link](https://www.91mobiles.com/hub/smartphones-launching-this-week-january-26th-india-redmi-note-15-pro-series/)
+- **Xiaomi brings durability to $799 Note phones**: [Link](https://www.pickr.com.au/news/2026/xiaomi-brings-durability-to-799-note-phones/)
+- **Redmi Note 15 Pro 4G Review: This is the strangest phone I've tested this year**: [Link](https://www.phonearena.com/reviews/redmi-note-15-pro-4g-review_id7813)
+
+
 ### girona – getafe (N/A, Mon, 26 Jan 2026 11:20:00 -0800)
 
 - **Ter Stegen y Fran Beltrán debutan como titulares ante un Getafe con tres novedades**: [Link](https://es-us.noticias.yahoo.com/deportes/ter-stegen-fran-beltr%C3%A1n-debutan-191129374.html)
