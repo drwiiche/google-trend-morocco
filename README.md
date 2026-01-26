@@ -1,3 +1,10 @@
+### girona (N/A, Mon, 26 Jan 2026 13:20:00 -0800)
+
+- **Girona - Getafe en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/girona-getafe-en-directo-laliga-ea-sports-hoy-en-vivo-f202601-d/)
+- **Montilivi se prepara para el debut de sus nuevas caras**: [Link](https://www.vavel.com/es/futbol/2026/01/26/girona-fc/1248629-montilivi-se-prepara-para-el-debut-de-sus-nuevas-caras.html)
+- **DIRECTO | Girona 0 - 1 Getafe; El Girona intenta reaccionar al gol del Getafe**: [Link](https://www.cope.es/programas/tiempo-de-juego/cronica/directo-girona-getafe-primera-division-jornada-21-26-20260126_3294731.html)
+
+
 ### prix de marseille 2026 (N/A, Mon, 26 Jan 2026 11:10:00 -0800)
 
 - **Les pronos hippiques du lundi 26 janvier 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-lundi-26-janvier-2026_AN-202601240313.html)
