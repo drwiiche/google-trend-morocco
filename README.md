@@ -1,3 +1,17 @@
+### tiktok (N/A, Sun, 25 Jan 2026 19:20:00 -0800)
+
+- **TikTok issues, app login plague users days after US deal avoiding ban**: [Link](https://www.pnj.com/story/news/2026/01/25/tiktok-down-servers-outage-login-videos/88350809007/)
+- **TikTok Outage Hits US After Major Ownership Shift**: [Link](https://evrimagaci.org/gpt/tiktok-outage-hits-us-after-major-ownership-shift-525438)
+- **Tiktok down: Users claim outage, just days after Tiktok 'loses' its Chinese ownership in the US**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/tiktok-down-users-claim-outage-just-days-after-tiktok-loses-its-chinese-ownership-in-the-us/articleshow/127491071.cms)
+
+
+### caf maroc senegal (N/A, Sun, 25 Jan 2026 17:20:00 -0800)
+
+- **La commission de discipline de la CAF a entamé l'examen des réserves marocaines**: [Link](https://medias24.com/2026/01/25/la-commission-de-discipline-de-la-caf-a-entame-lexamen-des-reserves-marocaines-1616931/)
+- **Finale de la CAN 2025 : l’éclairage et les messages de l’Ambassadeur du Maroc au Sénégal**: [Link](https://lematin.ma/nation/finale-de-la-can-2025-leclairage-de-lambassadeur-du-maroc-au-senegal/326069)
+- **Sénégal-Maroc: "Non mais attends deux minutes Pape", l'échange tendu entre Thiaw et Regragui en finale de la CAN 2025**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/senegal-maroc-non-mais-attends-deux-minutes-pape-l-echange-tendu-entre-thiaw-et-regragui-en-finale-de-la-can-2025_AV-202601250155.html)
+
+
 ### أحوال الطقس (N/A, Sun, 25 Jan 2026 19:10:00 -0800)
 
 - **طقس بارد مع تساقط للثلوج متوقع اليوم الثلاثاء**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D8%A7%D8%A6%D9%85%D8%A9-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82/)
