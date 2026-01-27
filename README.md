@@ -1,3 +1,10 @@
+### أمطار (N/A, Tue, 27 Jan 2026 13:50:00 -0800)
+
+- **الأرصاد تحذر من أمطار تصل إلى 95 ملم**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-95-%D9%85%D9%84%D9%85-1692990.html)
+- **نشرة برتقالية.. ثلوج وأمطار رعدية تشمل 15 منطقة بالمغرب**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9/)
+- **مقاييس التساقطات المطرية المسجلة بالمملكة خلال الـ 24 ساعة الماضية**: [Link](https://ar.hibapress.com/details-696664.html)
+
+
 ### caf senegal maroc (N/A, Tue, 27 Jan 2026 13:50:00 -0800)
 
 - **Finale de la CAN 2025 : quelles sanctions disciplinaires la CAF peut-elle juridiquement prononcer contre le Sénégal**: [Link](https://ledesk.ma/enclair/finale-de-la-can-2025-quelles-sanctions-disciplinaires-la-caf-peut-elle-juridiquement-prononcer-contre-le-senegal/)
