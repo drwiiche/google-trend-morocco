@@ -1,3 +1,10 @@
+### endrick real madrid (N/A, Tue, 27 Jan 2026 02:30:00 -0800)
+
+- **Chelsea preparing £69m bid for "spectacular" star who's now a priority target**: [Link](https://www.footballfancast.com/chelsea-preparing-transfer-bid-endrick-real-madrid-priority-target/)
+- **Chelsea target €80m deal for Europe's most in-form striker**: [Link](https://www.footballtransfers.com/en/transfer-news/uk-premier-league/2026/01/chelsea-transfer-news-endrick-real-madrid-lyon-80m-summer-2026)
+- **Sources: Real Madrid turn down €65m Premier League offers for on-loan star**: [Link](https://madriduniversal.com/sources-real-madrid-turn-down-65m-premier-league-offers-for-on-loan-star/)
+
+
 ### girona fc (N/A, Mon, 26 Jan 2026 14:30:00 -0800)
 
 - **Ter Stegen puts FC Barcelona in a tough spot**: [Link](https://foot-africa.com/en/news/ter-stegen-puts-fc-barcelona-in-a-tough-spot-1060016/)
