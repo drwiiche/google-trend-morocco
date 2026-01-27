@@ -1,3 +1,10 @@
+### ici tout commence (N/A, Mon, 26 Jan 2026 21:00:00 -0800)
+
+- **EXCLU. Ici tout commence : Billie et Ferdinand bientôt en couple ? Cet énorme risque qu’il va prendre pour elle**: [Link](https://www.telestar.fr/serie_tv/exclu-ici-tout-commence-billie-et-ferdinand-bientot-en-couple-cet-enorme-risque-quil-va-prendre-pour-elle-1752025)
+- **Ici tout commence : ce qui vous attend dans l'épisode 1359 du mardi 27 janvier 2026 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000185618.html)
+- **Ici tout commence, le résumé en avance du mardi 27 janvier : Anaïs songe à démissionner, qui a humilié Romain Valdine ?**: [Link](https://www.diverto.tv/actualites/series/ici-tout-commence-le-resume-en-avance-du-mardi-27-janvier-anais-songe-a-demissionner-qui-a-humilie-romain-valdine)
+
+
 ### طقس (N/A, Mon, 26 Jan 2026 21:40:00 -0800)
 
 - **أمطار متفاوتة بالمملكة خلال 24 ساعة**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%A7%D9%88%D8%AA%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-24-%D8%B3%D8%A7%D8%B9%D8%A9-2-1692452.html)
