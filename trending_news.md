@@ -1,3 +1,10 @@
+### caf senegal maroc (N/A, Tue, 27 Jan 2026 13:50:00 -0800)
+
+- **Finale de la CAN 2025 : quelles sanctions disciplinaires la CAF peut-elle juridiquement prononcer contre le Sénégal**: [Link](https://ledesk.ma/enclair/finale-de-la-can-2025-quelles-sanctions-disciplinaires-la-caf-peut-elle-juridiquement-prononcer-contre-le-senegal/)
+- **CAF, arbitrage... le président de la Fédération sénégalaise attaque le Maroc**: [Link](https://medias24.com/2026/01/26/caf-arbitrage-le-president-de-la-federation-senegalaise-attaque-le-maroc-1617177/)
+- **CAN 2025: la commission de discipline réunie ce mardi, des premières sanctions déjà attendues après la folle finale Sénégal-Maroc?**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-la-commission-de-discipline-reunie-ce-mardi-des-premieres-sanctions-deja-attendues-apres-la-folle-finale-senegal-maroc_AV-202601270385.html)
+
+
 ### تامر حسني (N/A, Tue, 27 Jan 2026 11:50:00 -0800)
 
 - **حقيقة عودة تامر حسني وبسمة بوسيل الى الحياة الزوجية**: [Link](https://www.lahamag.com/article/234006-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%B9%D9%88%D8%AF%D8%A9-%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D9%88%D8%A8%D8%B3%D9%85%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A%D9%84-%D9%84%D9%84%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A7%D9%84%D8%B2%D9%88%D8%AC%D9%8A%D8%A9)
