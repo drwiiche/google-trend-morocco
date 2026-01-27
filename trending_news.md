@@ -1,3 +1,10 @@
+### champions league 2026 (N/A, Tue, 27 Jan 2026 11:00:00 -0800)
+
+- **Champions League Matchday 8 possible line-ups and team news**: [Link](https://www.uefa.com/uefachampionsleague/news/02a1-1fc6706b3151-cac6b072e78e-1000--champions-league-matchday-8-possible-line-ups-and-team-news/)
+- **Football accumulator tips for Wednesday January 28: Back our acca at 8-1 with bet365**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-wednesday-january-28-back-our-acca-at-8-1-with-bet365-axcsa5x12kkE/)
+- **PSG v Newcastle is highlight of Champions League damp squib**: [Link](https://www.football365.com/news/big-midweek-psg-v-newcastle-man-city-liam-rosenior-cristian-romero)
+
+
 ### كأس العالم 2030 (N/A, Tue, 27 Jan 2026 10:10:00 -0800)
 
 - **هل استغلت إسبانيا أحداث نهائي كأس أفريقيا في تنافسها مع المغرب على نهائي مونديال 2030؟**: [Link](https://www.aljazeera.net/sport/2026/1/27/%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2030-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7)
