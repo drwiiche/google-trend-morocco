@@ -1,3 +1,10 @@
+### zara boutayeb (N/A, Tue, 27 Jan 2026 08:50:00 -0800)
+
+- **Municipales 2026 : Zara Boutayeb, compagne de Jean-Pierre Rivère, rejoint à son tour Éric Ciotti**: [Link](https://www.lefigaro.fr/nice/municipales-2026-zara-boutayeb-compagne-de-jean-pierre-rivere-rejoint-a-son-tour-eric-ciotti-20260126)
+- **Les camps Estrosi et Ciotti s’accusent mutuellement d’inéligibilité à Nice**: [Link](https://www.20minutes.fr/politique/4198259-20260127-municipales-nice-equipes-estrosi-ciotti-accusent-mutuellement-ineligibilite)
+- **Municipales à Nice : "nous construirons un nouveau et vaste Stockfish pour continuer de rassembler les Niçois"**: [Link](https://nicepresse.com/municipales-a-nice-nous-construirons-un-nouveau-et-vaste-stockfish-pour-continuer-de-rassembler-les-nicois/)
+
+
 ### الأهلي ضد وادي دجلة (N/A, Tue, 27 Jan 2026 07:50:00 -0800)
 
 - **ما القنوات الناقلة لمباراة الأهلي ووادي دجلة في الدوري المصري 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D9%88%D8%A7%D8%AF%D9%8A-%D8%AF%D8%AC%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf91f38c6e8cac5b8)
