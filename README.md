@@ -1,3 +1,10 @@
+### fiorentina – côme (N/A, Tue, 27 Jan 2026 11:40:00 -0800)
+
+- **Indiscrezione F1, le scelte di Vanoli: un primavera ed Harrison dal primo minuto, confermato Piccoli**: [Link](https://onefootball.com/fr/news/indiscrezione-f1-le-scelte-di-vanoli-un-primavera-ed-harrison-dal-primo-minuto-confermato-piccoli-42311164)
+- **Fiorentina, chi è Luis Balbo: esordio col Como per il terzino. Già nazionale del Venezuela, lo voleva la Juventus**: [Link](https://www.calciomercato.com/liste/fiorentina-chi-e-luis-balbo-esordio-col-como-per-il-terzino-gia-nazionale-del-venezuela-lo-voleva-la-juventus/blt92b14de99a983480)
+- **Calcio Live News: le ufficiali di Fiorentina-Como, Barella non convocato in Champions**: [Link](https://www.diretta.it/news/calcio-live-news-le-ufficiali-di-fiorentina-como-barella-non-convocato-in-champions/O23xObq1/)
+
+
 ### champions league 2026 (N/A, Tue, 27 Jan 2026 11:00:00 -0800)
 
 - **Champions League Matchday 8 possible line-ups and team news**: [Link](https://www.uefa.com/uefachampionsleague/news/02a1-1fc6706b3151-cac6b072e78e-1000--champions-league-matchday-8-possible-line-ups-and-team-news/)
