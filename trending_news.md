@@ -1,3 +1,17 @@
+### al ahly – wadi degla (N/A, Tue, 27 Jan 2026 06:50:00 -0800)
+
+- **Youssef Belammari faces early tests as Al Ahly adventure begins**: [Link](https://africasoccer.com/youssef-belammari-faces-early-tests-as-al-ahly-adventure-begins/)
+- **Youssef Belamri Bids Farewell to Raja Fans with an Emotional Message**: [Link](https://www.ysscores.com/en/news/13895143/Youssef-Belamri-Bids-Farewell-to-Raja-Fans-with-an-Emotional-Message)
+- **Moroccan fullback Belammari proud to play for ‘World-reputed’ Ahly - Egyptian Football - Sports**: [Link](https://english.ahram.org.eg/News/561185.aspx)
+
+
+### barrages maroc (N/A, Tue, 27 Jan 2026 00:20:00 -0800)
+
+- **Barrages : les réserves atteignent 8,83 milliards de m³, un niveau inédit depuis juin 2019**: [Link](https://medias24.com/2026/01/26/barrages-au-maroc-les-reserves-atteignent-883-milliards-de-m%C2%B3-un-plus-haut-depuis-plus-de-six-ans-1617121/)
+- **Amélioration des réserves en eau: pourquoi l’euphorie doit rester mesurée, selon un expert**: [Link](https://fr.le360.ma/societe/amelioration-des-reserves-en-eau-pourquoi-leuphorie-doit-rester-mesuree-selon-un-expert_7GHZJOQWZFGOBJN4CULBVRBRQU/)
+- **Les barrages du bassin de Sebou affichent un taux de remplissage de 66,1%**: [Link](https://fr.hespress.com/459958-les-barrages-du-bassin-de-sebou-affichent-un-taux-de-remplissage-de-661.html)
+
+
 ### arrivée quinté (N/A, Tue, 27 Jan 2026 05:50:00 -0800)
 
 - **Cameron, l’outsider séduisant du Quinté+ du mardi 27 janvier à Vincennes**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/cameron-loutsider-seduisant-du-quinte-du-mardi-27-janvier-a-vincennes)
