@@ -1,3 +1,10 @@
+### كأس العالم 2030 (N/A, Tue, 27 Jan 2026 10:10:00 -0800)
+
+- **هل استغلت إسبانيا أحداث نهائي كأس أفريقيا في تنافسها مع المغرب على نهائي مونديال 2030؟**: [Link](https://www.aljazeera.net/sport/2026/1/27/%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2030-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7)
+- **الاتحاد الإسباني يكشف الدولة التي ستحتضن نهائي مونديال 2030**: [Link](https://www.skynewsarabia.com/sport/1848822-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%B3%D8%AA%D8%AD%D8%AA%D8%B6%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030)
+- **لماذا تفوق البرنابيو على معقل برشلونة في استضافة نهائي مونديال 2030؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D9%81%D9%88%D9%82-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88-%D8%B9%D9%84%D9%89-%D9%85%D8%B9%D9%82%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030/bltb7f471433186c562)
+
+
 ### 2m (N/A, Tue, 27 Jan 2026 09:40:00 -0800)
 
 - **PM Youth Chief announces 500,000 chromebooks for Madaris, 2M Jobs in tech export drive**: [Link](https://www.app.com.pk/national/pm-youth-chief-announces-500000-chromebooks-for-madaris-2m-jobs-in-tech-export-drive/)
