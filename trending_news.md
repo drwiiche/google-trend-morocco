@@ -1,3 +1,10 @@
+### sankt pauli – rb leipzig (N/A, Tue, 27 Jan 2026 12:10:00 -0800)
+
+- **Yan Diomande vs. FC St. Pauli – Player props & odds to score a goal on January 27**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/27/yan-diomande-soccer-player-props-1-27-2026/88373625007/)
+- **"We need to be prepared for that" - Ole Werner ahead of #FCSPRBL**: [Link](https://rbleipzig.com/en/news/press-conference-fc-st-pauli-vs-rb-leipzig-bundesliga-matchday-16-2025-26)
+- **Confirmed Lineups: St. Pauli vs. RB Leipzig**: [Link](https://bulinews.com/confirmed-lineups-pauli-leipzig)
+
+
 ### fiorentina – côme (N/A, Tue, 27 Jan 2026 11:40:00 -0800)
 
 - **Indiscrezione F1, le scelte di Vanoli: un primavera ed Harrison dal primo minuto, confermato Piccoli**: [Link](https://onefootball.com/fr/news/indiscrezione-f1-le-scelte-di-vanoli-un-primavera-ed-harrison-dal-primo-minuto-confermato-piccoli-42311164)
