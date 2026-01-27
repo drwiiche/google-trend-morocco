@@ -1,3 +1,10 @@
+### النصر (N/A, Mon, 26 Jan 2026 11:50:00 -0800)
+
+- **رسميًا.. النصر يعلن أولى صفقات الشتاء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%94%D9%88%D9%84%D9%89-%D8%B5%D9%81%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%AA%D8%A7%D8%A1/bltd925bbc54b0e382f)
+- **النصر السعودي يضم موهبة عراقية ونشأت أكرم يرحب به**: [Link](https://www.aljazeera.net/sport/2026/1/27/%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82%D9%8A-%D8%AD%D9%8A%D8%AF%D8%B1-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85)
+- **نصر يرفع من جاهزية حيدر عبدالكريم استعدادا للمواجهة المقبلة**: [Link](https://tawusal.com/9319/%D9%86%D8%B5%D8%B1-%D9%8A%D8%B1%D9%81%D8%B9-%D9%85%D9%86-%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D8%AD%D9%8A%D8%AF%D8%B1-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D8%A7%D8%B3%D8%AA%D8%B9/)
+
+
 ### halima gadji (N/A, Mon, 26 Jan 2026 22:40:00 -0800)
 
 - **L’actrice Halima Gadji décédée : Les causes de sa mort révélées**: [Link](https://www.senenews.com/actualites/lactrice-halima-gadji-decedee-les-causes-de-sa-mort-revelees_573992.html)
