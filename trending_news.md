@@ -1,3 +1,17 @@
+### تامر حسني (N/A, Tue, 27 Jan 2026 11:50:00 -0800)
+
+- **حقيقة عودة تامر حسني وبسمة بوسيل الى الحياة الزوجية**: [Link](https://www.lahamag.com/article/234006-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%B9%D9%88%D8%AF%D8%A9-%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D9%88%D8%A8%D8%B3%D9%85%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A%D9%84-%D9%84%D9%84%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A7%D9%84%D8%B2%D9%88%D8%AC%D9%8A%D8%A9)
+- **تامر حسني وبسمة بوسيل.. المخرجة سارة وفيق تحسم الجدل حول عودتهما**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1828591-%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%AD%D9%88%D9%84-%D8%B9%D9%88%D8%AF%D8%A9-%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D9%88%D8%A8%D8%B3%D9%85%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A%D9%84)
+- **هل عاد تامر حسني لطليقته بسمة بوسيل؟ توضيح يحسم الأمر**: [Link](https://www.aljadeed.tv/entertainment/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%81%D9%86%D9%8A%D8%A9/555987/%D9%87%D9%84-%D8%B9%D8%A7%D8%AF-%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D9%84%D8%B7%D9%84%D9%8A%D9%82%D8%AA%D9%87-%D8%A8%D8%B3%D9%85%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A%D9%84%D8%9F-%D8%AA%D9%88%D8%B6%D9%8A%D8%AD-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%A3%D9%85%D8%B1)
+
+
+### lait infantile (N/A, Tue, 27 Jan 2026 09:50:00 -0800)
+
+- **Après Lactalis, Danone et Nestlé, de nouveaux lots de lait infantile rappelés**: [Link](https://www.20minutes.fr/societe/4197884-20260125-apres-lactalis-danone-nestle-nouveaux-lots-lait-infantile-rappeles)
+- **L'essentiel sur le scandale du lait infantile qui secoue l'Europe**: [Link](https://fr.euronews.com/sante/2026/01/26/pourquoi-du-lait-infantile-est-rappele-en-europe-contamination-toxique-entreprises-en-aler)
+- **ENQUÊTE. Laits infantiles Picot : pourquoi a-t-il fallu attendre cinq jours avant le retrait des lots contaminés ?**: [Link](https://www.franceinfo.fr/enquetes-franceinfo/laits-infantiles-picot-pourquoi-a-t-il-fallu-attendre-cinq-jours-avant-le-retrait-des-lots-contamines_7756580.html)
+
+
 ### sankt pauli – rb leipzig (N/A, Tue, 27 Jan 2026 12:10:00 -0800)
 
 - **Yan Diomande vs. FC St. Pauli – Player props & odds to score a goal on January 27**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/01/27/yan-diomande-soccer-player-props-1-27-2026/88373625007/)
