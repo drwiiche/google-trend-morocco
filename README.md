@@ -1,3 +1,10 @@
+### 2m (N/A, Tue, 27 Jan 2026 09:40:00 -0800)
+
+- **PM Youth Chief announces 500,000 chromebooks for Madaris, 2M Jobs in tech export drive**: [Link](https://www.app.com.pk/national/pm-youth-chief-announces-500000-chromebooks-for-madaris-2m-jobs-in-tech-export-drive/)
+- **PM assures all possible steps to enhance youth's skills, capabilities**: [Link](https://dunyanews.tv/en/Pakistan/931911-pm-assures-all-possible-steps-to-enhance-youths-skills-capabilities)
+- **Prime Minister’s Laptop Scheme: Over 1900 students receive laptops at GCUF**: [Link](https://www.brecorder.com/news/40403042)
+
+
 ### zara boutayeb (N/A, Tue, 27 Jan 2026 08:50:00 -0800)
 
 - **Municipales 2026 : Zara Boutayeb, compagne de Jean-Pierre Rivère, rejoint à son tour Éric Ciotti**: [Link](https://www.lefigaro.fr/nice/municipales-2026-zara-boutayeb-compagne-de-jean-pierre-rivere-rejoint-a-son-tour-eric-ciotti-20260126)
