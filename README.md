@@ -1,3 +1,10 @@
+### girona fc (N/A, Mon, 26 Jan 2026 14:30:00 -0800)
+
+- **Ter Stegen puts FC Barcelona in a tough spot**: [Link](https://foot-africa.com/en/news/ter-stegen-puts-fc-barcelona-in-a-tough-spot-1060016/)
+- **Girona Aims to Extend Winning Streak at Montilivi**: [Link](https://www.filmogaz.com/118369)
+- **Girona’s head coach Michel reveals how many points need to secure by season’s end**: [Link](https://tribuna.com/en/news/2026-01-26-gironas-head-coach-michel-reveals-how-many-points-need-to-secure-by-seasons-end/)
+
+
 ### carlos alcaraz (N/A, Tue, 27 Jan 2026 02:10:00 -0800)
 
 - **Carlos Alcaraz, declarado enemigo nº 1 hoy en el Open de Australia**: [Link](https://www.mundodeportivo.com/tenis/open-australia/20260127/1002608774/carlos-alcaraz-declarado-enemigo-n-1-hoy-open-australia.html)
