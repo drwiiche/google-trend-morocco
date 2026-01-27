@@ -1,3 +1,17 @@
+### الأهلي ضد وادي دجلة (N/A, Tue, 27 Jan 2026 07:50:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الأهلي ووادي دجلة في الدوري المصري 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D9%88%D8%A7%D8%AF%D9%8A-%D8%AF%D8%AC%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf91f38c6e8cac5b8)
+- **بث مباشر لمباراة الأهلي ضد وادي دجلة بالدوري المصري**: [Link](https://www.eremnews.com/sports/la1nsmx)
+- **توروب يبحث عن الفوز العاشر مع الاهلى أمام وادى دجلة بالدوري.. إنفو جراف**: [Link](https://www.youm7.com/story/2026/1/27/%D8%AA%D9%88%D8%B1%D9%88%D8%A8-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%B9%D8%A7%D8%B4%D8%B1-%D9%85%D8%B9-%D8%A7%D9%84%D8%A7%D9%87%D9%84%D9%89-%D8%A3%D9%85%D8%A7%D9%85-%D9%88%D8%A7%D8%AF%D9%89-%D8%AF%D8%AC%D9%84%D8%A9/7283233)
+
+
+### emmanuel macron for sure (N/A, Tue, 27 Jan 2026 07:30:00 -0800)
+
+- **DOCUMENT RTL - "Des clients demandent le même modèle" : comment l'apparition d'Emmanuel Macron avec ses lunettes a fait exploser le carnet de commandes d'un fabricant basé dans le Jura**: [Link](https://www.rtl.fr/actu/politique/document-rtl-des-clients-qui-demandent-le-meme-modele-comment-macron-a-fait-exploser-le-carnet-de-commandes-du-lunetier-base-dans-le-jura-7900591567)
+- **Les lunettes de soleil de "dur à cuire" d'Emmanuel Macron sont fabriquées dans le Jura**: [Link](https://www.francebleu.fr/infos/medias-people/les-lunettes-soleil-dur-a-cuir-emmanuel-macron-qui-font-le-buzz-a-davos-fabriquees-juras-3384042)
+- **"For sure" : le discours d'Emmanuel Macron à Davos fait le buzz sur les réseaux sociaux**: [Link](https://fr.euronews.com/my-europe/2026/01/26/for-sure-le-discours-demmanuel-macron-a-davos-fait-le-buzz-sur-les-reseaux-sociaux)
+
+
 ### al ahly – wadi degla (N/A, Tue, 27 Jan 2026 06:50:00 -0800)
 
 - **Youssef Belammari faces early tests as Al Ahly adventure begins**: [Link](https://africasoccer.com/youssef-belammari-faces-early-tests-as-al-ahly-adventure-begins/)
