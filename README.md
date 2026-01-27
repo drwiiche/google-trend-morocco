@@ -1,3 +1,17 @@
+### carlos alcaraz (N/A, Tue, 27 Jan 2026 02:10:00 -0800)
+
+- **Carlos Alcaraz, declarado enemigo nº 1 hoy en el Open de Australia**: [Link](https://www.mundodeportivo.com/tenis/open-australia/20260127/1002608774/carlos-alcaraz-declarado-enemigo-n-1-hoy-open-australia.html)
+- **Alcaraz se pone a cubierto para no quemarse en el infierno australiano: evita los 45 grados de Melbourne**: [Link](https://www.marca.com/tenis/open-australia/2026/01/27/alcaraz-pone-cubierto-quemarse-infierno-australiano-evita-45-grados-melbourne.html)
+- **En directo | Carlos Alcaraz - Alex de Miñaur**: [Link](https://www.elnortedecastilla.es/deportes/tenis/open-australia/directo-carlos-alcaraz-alex-minaur-20260127164224-dirc.html)
+
+
+### clawdbot (N/A, Tue, 27 Jan 2026 00:10:00 -0800)
+
+- **What Is Clawdbot and Is It Actually Safe to Run on Your System?**: [Link](https://socradar.io/blog/clawdbot-is-it-safe/)
+- **Clawdbot is a viral AI assistant: What it is, how to try it**: [Link](https://mashable.com/article/what-is-clawdbot-how-to-try)
+- **Clawdbot is the new AI techies are buzzing about — and it's renewing interest in the Mac Mini**: [Link](https://www.businessinsider.com/clawdbot-ai-mac-mini-2026-1)
+
+
 ### النصر (N/A, Mon, 26 Jan 2026 11:50:00 -0800)
 
 - **رسميًا.. النصر يعلن أولى صفقات الشتاء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%94%D9%88%D9%84%D9%89-%D8%B5%D9%81%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%AA%D8%A7%D8%A1/bltd925bbc54b0e382f)
