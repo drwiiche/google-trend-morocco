@@ -1,3 +1,10 @@
+### arrivée quinté (N/A, Tue, 27 Jan 2026 05:50:00 -0800)
+
+- **Cameron, l’outsider séduisant du Quinté+ du mardi 27 janvier à Vincennes**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/cameron-loutsider-seduisant-du-quinte-du-mardi-27-janvier-a-vincennes)
+- **Quinté du mardi 27 janvier 2026 à Vincennes : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-mardi-27-janvier-2026-a-vincennes-les-pronostics-7900593442)
+- **Les pronos hippiques du mardi 27 janvier 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-27-janvier-2026_AN-202601260668.html)
+
+
 ### endrick real madrid (N/A, Tue, 27 Jan 2026 02:30:00 -0800)
 
 - **Chelsea preparing £69m bid for "spectacular" star who's now a priority target**: [Link](https://www.footballfancast.com/chelsea-preparing-transfer-bid-endrick-real-madrid-priority-target/)
