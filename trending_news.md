@@ -1,3 +1,24 @@
+### نشرة إنذارية (N/A, Mon, 26 Jan 2026 15:50:00 -0800)
+
+- **أمطار متفاوتة بالمملكة خلال 24 ساعة**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%A7%D9%88%D8%AA%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-24-%D8%B3%D8%A7%D8%B9%D8%A9-2-1692452.html)
+- **طقس الأربعاء.. أمطار متفرقة مع ثلوج وكتل ضبابية**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%85%D8%B9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9/)
+- **فيديو: استمرار الاضطرابات الجوية.. أمطار وثلوج ورياح قوية في عدد من مناطق المملكة**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-20260125)
+
+
+### girona vs getafe (N/A, Mon, 26 Jan 2026 12:40:00 -0800)
+
+- **Girona vs Getafe Berakhir Imbang**: [Link](https://www.metrotvnews.com/read/KYVCeVY5-girona-vs-getafe-berakhir-imbang)
+- **Girona Aims to Extend Winning Streak at Montilivi**: [Link](https://www.filmogaz.com/118369)
+- **Girona vs. Getafe: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/01/26/girona-vs-getafe-la-liga-betting-odds-prediction-pick/88355843007/)
+
+
+### météo pour demain (N/A, Mon, 26 Jan 2026 11:50:00 -0800)
+
+- **Neige, pluie, froid : la météo au Maroc sous l’effet d’un phénomène rare**: [Link](https://lematin.ma/nation/neige-pluie-froid-la-meteo-au-maroc-sous-leffet-dun-phenomene-rare/326270)
+- **Les prévisions météo pour lundi 26 janvier 2026 - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/01/25/les-previsions-meteo-pour-lundi-26-janvier-2026-1616921/)
+- **Alerte météo : fortes pluies, neige dès 1 600 m et rafales de vent jusqu’à mercredi**: [Link](https://ledesk.ma/encontinu/alerte-meteo-fortes-pluies-neige-des-1-600-m-et-rafales-de-vent-jusqua-mercredi/)
+
+
 ### bim (N/A, Mon, 26 Jan 2026 15:40:00 -0800)
 
 - **27-30 Ocak BİM Aktüel Kataloğu: Stanley Termos ve Philips Süpürge Raflara İniyor!**: [Link](https://www.muglayenigun.com/27-30-ocak-bim-aktuel-katalogu-stanley-termos-ve-philips-supurge-raflara-iniyor/)
