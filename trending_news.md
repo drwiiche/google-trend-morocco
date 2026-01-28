@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Wed, 28 Jan 2026 01:30:00 -0800)
+
+- **Sinner-Shelton, diretta Australian Open: commento e risultato**: [Link](https://www.ilfattoquotidiano.it/sport-miliardi/live-post/2026/01/28/sinner-contro-shelton-diretta-australian-open-risultato-commento/8271549/)
+- **Jannik Sinner regala spettacolo, magia di rovescio oltre il paletto nel match con Ben Shelton: riguardala**: [Link](https://www.eurosport.it/tennis/australian-open/2026/jannik-sinner-regala-spettacolo-magia-di-rovescio-oltre-il-paletto-nel-match-con-ben-shelton-riguardala_vid60050670/video.shtml)
+- **Australian Open 2026, Sinner contro Shelton: l’azzurro vince il primo set**: [Link](https://www.lapresse.it/sport/tennis/2026/01/28/australian-open-2026-sinner-contro-shelton-per-un-posto-in-semifinale/)
+
+
 ### australian open (N/A, Tue, 27 Jan 2026 20:40:00 -0800)
 
 - **Pegula defeats Anisimova in all-American affair to reach first Australian Open semifinal**: [Link](https://www.wtatennis.com/news/4440557/pegula-defeats-anisimova-in-all-american-affair-to-reach-first-australian-open-semifinal)
