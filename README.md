@@ -1,3 +1,31 @@
+### pronostics (N/A, Wed, 28 Jan 2026 07:30:00 -0800)
+
+- **PRIX DE CHATEAUROUX**: [Link](https://www.equidia.fr/courses/2026-01-27/R1/C1)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 2 Never Risk**: [Link](https://www.zone-turf.fr/actualite/obstacle/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-2-never-risk-128991.html)
+- **Quinté du mardi 27 janvier 2026 à Vincennes : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-mardi-27-janvier-2026-a-vincennes-les-pronostics-7900593442)
+
+
+### alerte météo (N/A, Wed, 28 Jan 2026 07:10:00 -0800)
+
+- **Alerte météo : fortes pluies et rafales de vent attendues de mardi à jeudi dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/alerte-meteo-fortes-pluies-et-rafales-de-vent-attendues-de-mardi-a-jeudi-dans-plusieurs-provinces/)
+- **Les prévisions météo pour le mercredi 28 janvier - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/01/27/les-previsions-meteo-pour-le-mercredi-28-janvier-1618077/)
+- **Neige, pluie, froid : la météo au Maroc sous l’effet d’un phénomène rare**: [Link](https://lematin.ma/nation/neige-pluie-froid-la-meteo-au-maroc-sous-leffet-dun-phenomene-rare/326270)
+
+
+### mohamed chaouki (N/A, Wed, 28 Jan 2026 07:00:00 -0800)
+
+- **Mohamed Chaouki adoubé par le bureau politique du RNI pour succéder à Akhannouch**: [Link](https://medias24.com/2026/01/28/mohamed-chaouki-adoube-par-le-bureau-politique-du-rni-pour-succeder-a-akhannouch-1618482/)
+- **Présidence du RNI : Chaouki adoubé, Aujjar renonce et Talbi Alami verrouille la succession d'Akhannouch**: [Link](https://ledesk.ma/2026/01/28/presidence-du-rni-chaouki-adoube-aujjar-renonce-et-talbi-alami-verrouille-la-succession-dakhannouch/)
+- **RNI, départ d’Akhannouch, bilan du gouvernement... la lecture de Zaïna Chahim**: [Link](https://lematin.ma/nation/rni-depart-dakhannouch-bilan-la-lecture-de-zaina-chahim/326644)
+
+
+### iran usa (N/A, Wed, 28 Jan 2026 03:30:00 -0800)
+
+- **Trump warns Iran 'time is running out' as US military builds up in Gulf**: [Link](https://www.bbc.com/news/articles/cly5pd459gko)
+- **Exclusive: Trump says Iran wants a deal as U.S. "armada" arrives**: [Link](https://www.axios.com/2026/01/26/trump-iran-deal-strike-protests)
+- **US aircraft carrier arrives in the Middle East as tensions with Iran remain high**: [Link](https://apnews.com/article/aircraft-carrier-iran-protests-us-military-58e6da912f9167df94f913d7dafe5af4)
+
+
 ### jannik sinner (N/A, Wed, 28 Jan 2026 01:30:00 -0800)
 
 - **Sinner-Shelton, diretta Australian Open: commento e risultato**: [Link](https://www.ilfattoquotidiano.it/sport-miliardi/live-post/2026/01/28/sinner-contro-shelton-diretta-australian-open-risultato-commento/8271549/)
