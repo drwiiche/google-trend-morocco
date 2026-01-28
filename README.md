@@ -1,3 +1,73 @@
+### liverpool (N/A, Wed, 28 Jan 2026 12:50:00 -0800)
+
+- **Why Jeremie Frimpong was withdrawn four minutes into Qarabag tie as Arne Slot in injury hell**: [Link](https://www.empireofthekop.com/2026/01/28/why-jeremie-frimpong-was-withdrawn-four-minutes-into-qarabag-tie-as-arne-slot-in-injury-hell/)
+- **Liverpool’s defensive injury crisis worsens as Jeremie Frimpong dealt another setback**: [Link](https://www.independent.co.uk/sport/football/jeremie-frimpong-injury-latest-liverpool-qarabag-b2909709.html)
+- **Jeremie Frimpong suffers early injury blow in Champions League clash with Qarabag**: [Link](https://ghanasoccernet.com/jeremie-frimpong-suffers-early-injury-blow-in-champions-league-clash-with-qarabag)
+
+
+### juventus (N/A, Wed, 28 Jan 2026 12:50:00 -0800)
+
+- **Spalletti risponde a Conte sui social. Poi in conferenza: "Pensavo fosse Ai, parliamo di Champions..."**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/27-01-2026/spalletti-risponde-a-conte-conferenza-alla-vigilia-di-monaco-juve.shtml)
+- **Da Openda e Koopmeiners a Cambiaso, Locatelli e Yildiz: la probabile formazione della Juve**: [Link](https://www.sosfanta.com/news/da-openda-e-koopmeiners-a-cambiaso-locatelli-e-yildiz-la-probabile-formazione-della-juve/)
+- **UCL | Le formazioni ufficiali di Monaco-Juventus**: [Link](https://www.juventus.com/it/news/articoli/ucl-2025-2026-monaco-juventus-formazioni-ufficiali)
+
+
+### bayern munich (N/A, Wed, 28 Jan 2026 12:40:00 -0800)
+
+- **Bayern Munich boss Vincent Kompany not giving hints on lineup, sees threat in PSV Eindhoven**: [Link](https://www.bavarianfootballworks.com/champions-league/162904/bayern-munich-boss-vincent-kompany-not-giving-hints-on-lineup-sees-threat-in-psv-eindhoven)
+- **Netherlands Champions League Soccer**: [Link](https://www.couriernews.com/sports/netherlands-champions-league-soccer/image_f5520cbf-407d-5c6d-b678-9e0732f2f84d.html)
+- **Right-back wanted: How Bayern could play in Eindhoven**: [Link](https://fcbinside.com/2026/01/28/right-back-wanted-how-bayern-could-play-in-eindhoven/)
+
+
+### bayern (N/A, Wed, 28 Jan 2026 12:40:00 -0800)
+
+- **FC Bayern: Aufstellung da! Kein Kane! Kein Neuer! Kein Olise!**: [Link](https://www.bild.de/sport/fussball/fc-bayern-aufstellung-da-kein-kane-kein-neuer-kein-olise-697a52f62c6b7a14efe1fe23)
+- **Startelf-Comeback für Musiala: Kompany rotiert fünf Mal**: [Link](https://www.ligaportal.at/international/champions-league/87578-startelf-comeback-fuer-musiala-kompany-rotiert-fuenf-mal)
+- **BR24 Sport: Urbig hält Remis gegen PSV fest jetzt live in der Radioreportage**: [Link](https://www.sportschau.de/regional/br/br-urbig-haelt-remis-gegen-psv-fest-jetzt-live-in-der-radioreportage-100.html)
+
+
+### koora goal (N/A, Wed, 28 Jan 2026 12:40:00 -0800)
+
+- **هل يطيح بمحمد صلاح؟ نجم يوفنتوس يشعل الصراع بين ليفربول وريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D9%84-%D9%8A%D8%B7%D9%8A%D8%AD-%D8%A8%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%86%D8%AC%D9%85-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A8%D9%8A%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/bltaaadead817275c95)
+- **ريال مدريد وليفربول من أبرز الأندية التي تراقب كينان يلدز عن كثب**: [Link](https://tribuna.com/ar/news/2026-01-28-ryl-mdryd-wlyfrbwl-mn-brz-lndy-lty-trqb-kynn-yldz-n-kthb/)
+- **يوفنتوس يقترب من تجديد عقد يلديز**: [Link](https://elsport.com/news/show/809702/%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%82%D8%AF-%D9%8A%D9%84%D8%AF%D9%8A%D8%B2)
+
+
+### ajax (N/A, Wed, 28 Jan 2026 12:40:00 -0800)
+
+- **Steven Berghuis ondanks hervatten groepstraining Ajax nog niet tegen Olympiakos, ook Ko Itakura ontbreekt**: [Link](https://www.ad.nl/voetbal/steven-berghuis-ondanks-hervatten-groepstraining-ajax-nog-niet-tegen-olympiakos-ook-ko-itakura-ontbreekt~aa6d55bb/)
+- **LIVE Champions League | Feestje in Arena van korte duur: openingsgoal Dolberg voor Ajax afgekeurd**: [Link](https://www.ed.nl/voetbal/feestje-in-arena-van-korte-duur-openingsgoal-dolberg-voor-ajax-afgekeurd~aa6e979d/)
+- **Ex-Ajacied Machlas: 'Nederlandse clubs lijken dat niet te willen'**: [Link](https://www.voetbalprimeur.nl/nieuws/1736414/machlas-geweldige-kans-olympiakos-tegen-ajax.html)
+
+
+### paris (N/A, Wed, 28 Jan 2026 12:40:00 -0800)
+
+- **Les jours du régime iranien «sont comptés» , affirme le chancelier allemand Merz**: [Link](https://www.lefigaro.fr/international/les-jours-du-regime-iranien-sont-comptes-affirme-le-chancelier-allemand-merz-20260128)
+- **Iran : Paris et Madrie soutiennent l'inscription des Gardiens de la révolution sur la liste des organisations terroristes**: [Link](https://fr.euronews.com/my-europe/2026/01/28/iran-paris-et-madrie-soutiennent-linscription-des-gardiens-de-la-revolution-sur-la-liste-d)
+- **Union européenne: une réunion pour décider quelles nouvelles sanctions appliquer à l'Iran**: [Link](https://www.rfi.fr/fr/europe/20260128-union-europ%C3%A9enne-une-r%C3%A9union-pour-d%C3%A9cider-quelles-nouvelles-sanctions-appliquer-%C3%A0-l-iran)
+
+
+### real madrid (N/A, Wed, 28 Jan 2026 12:30:00 -0800)
+
+- **Benfica - Real Madrid hoy, en directo: última jornada de la fase liga de Champions League, en vivo**: [Link](https://as.com/futbol/champions/benfica-real-madrid-en-directo-ultima-jornada-de-la-champions-league-en-vivo-y-online-f202601-d/)
+- **Convocatoria del Real Madrid contra el Benfica**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-benfica-27-01-2026)
+- **Arbeloa confía en el tridente Vini, Mbappé y Mastantuono**: [Link](https://quepasamedia.com/deportes/arbeloa-confia-en-el-tridente-vini-mbappe-y-mastantuono/)
+
+
+### barcelona (N/A, Wed, 28 Jan 2026 12:30:00 -0800)
+
+- **Barcelona - Copenhague, en directo: Champions League, en vivo hoy**: [Link](https://as.com/futbol/champions/barcelona-copenhague-en-directo-champions-league-en-vivo-hoy-f202601-d/)
+- **Lo que necesita el Barça para meterse directo en octavos de la Champions**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260128/1002610067/necesita-barca-meterse-directo-octavos-champions.html)
+- **"Si llueve, me mojaré": Joan Laporta se ríe de las filtraciones en el Camp Nou antes del choque de Copenhague**: [Link](https://tribuna.com/es/blogs/si-llueve-me-mojo-joan-laporta-se-rie-de-las-filtraciones-en/)
+
+
+### flashscore (N/A, Wed, 28 Jan 2026 12:30:00 -0800)
+
+- **Tottenham predicted team vs Frankfurt - Thomas Frank decides on Kolo Muani, Odobert and Sarr**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/tottenham-predicted-team-vs-frankfurt-33314033)
+- **Spurs boss Frank relishing chance to secure Champions League top eight finish**: [Link](https://www.beinsports.com/en-asia/football/uefa-champions-league/articles/spurs-boss-frank-relishing-chance-to-secure-champions-league-top-eight-finish-2026-01-28)
+- **Frank: Porro out a month with injury, Van de Ven did not travel to Germany**: [Link](https://cartilagefreecaptain.sbnation.com/champions-league-2025-26/68625/frank-porro-out-a-month-with-injury-van-de-ven-did-not-travel-to-germany)
+
+
 ### barca vs (N/A, Wed, 28 Jan 2026 12:20:00 -0800)
 
 - **Barcelona - Copenhague, en directo: Champions League, en vivo hoy**: [Link](https://as.com/futbol/champions/barcelona-copenhague-en-directo-champions-league-en-vivo-hoy-f202601-d/)
