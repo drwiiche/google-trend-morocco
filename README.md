@@ -1,3 +1,73 @@
+### barca vs (N/A, Wed, 28 Jan 2026 12:20:00 -0800)
+
+- **Barcelona - Copenhague, en directo: Champions League, en vivo hoy**: [Link](https://as.com/futbol/champions/barcelona-copenhague-en-directo-champions-league-en-vivo-hoy-f202601-d/)
+- **"Si llueve, me mojaré": Joan Laporta se ríe de las filtraciones en el Camp Nou antes del choque de Copenhague**: [Link](https://tribuna.com/es/blogs/si-llueve-me-mojo-joan-laporta-se-rie-de-las-filtraciones-en/)
+- **Flick: "Lo importante es ganar, no hablar de marcar, marcar y marcar"**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260128/1002610349/flick-importante-ganar-hablar-marcar-marcar-marcar.html)
+
+
+### bet365 (N/A, Wed, 28 Jan 2026 12:20:00 -0800)
+
+- **bet365 Bonus Code "LSBONUS" $200 for Wednesday Night NBA Games**: [Link](https://www.livescore.com/en/news/predictions/bet365-bonus-code-lsbonus-usd200-for-wednesday-night-nba-games/)
+- **bet365 bonus code NYPBET: bet $5, get $200 in bonus bets for Knicks vs. Kings**: [Link](https://nypost.com/2026/01/27/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-knicks-vs-kings/)
+- **Bet365 Bonus Code RSR365: Get $200 Bonus for Bucks vs. 76ers, NCAAB, NBA Games**: [Link](https://russellstreetreport.com/2026/01/27/sports-betting/bet365-bonus-code-rsr365-get-200-bonus-for-bucks-vs-76ers-ncaab-nba-games/)
+
+
+### match real (N/A, Wed, 28 Jan 2026 12:20:00 -0800)
+
+- **Arbeloa promet "un gros câlin" à Mourinho**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/jai-hate-de-lui-faire-un-gros-calin-mourinho-et-arbeloa-decrivent-une-relation-paternelle-avant-benfica-real-en-ligue-des-champions_sto23263855/story.shtml)
+- **Benfica-Real Madrid, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/ligue-des-champions/benfica-real-madrid-sur-quelle-chaine-voir-le-match-796886.html)
+- **"Tout ce que Mourinho a fait, c’est salir le football espagnol"**: [Link](https://real-france.fr/tout-ce-que-mourinho-a-fait-cest-salir-le-football-espagnol/)
+
+
+### yalla kora (N/A, Wed, 28 Jan 2026 12:10:00 -0800)
+
+- **شوبير: ما فعله توروب مع لاعب الأهلي يؤكد رحيله.. وصفقة وشيكة**: [Link](https://www.btolat.com/news/391739)
+- **ساهم في 17 هدف.. أرقام جراديشار بعد رحيله من الأهلي لـ أوبيست المجري**: [Link](https://kolelkoora.com/%D8%B3%D8%A7%D9%87%D9%85-%D9%81%D9%8A-17-%D9%87%D8%AF%D9%81-%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D8%AC%D8%B1%D8%A7%D8%AF%D9%8A%D8%B4%D8%A7%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%B1%D8%AD%D9%8A%D9%84%D9%87-%D9%85/)
+- **48 ساعة حاسمة.. تفاصيل غضب محترف الأهلي وطلبه الرحيل**: [Link](https://www.msn.com/ar-eg/sports/other/48-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%BA%D8%B6%D8%A8-%D9%85%D8%AD%D8%AA%D8%B1%D9%81-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%B7%D9%84%D8%A8%D9%87-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84/ar-AA1V4VMi)
+
+
+### ترتيب دوري أبطال أوروبا (N/A, Wed, 28 Jan 2026 12:10:00 -0800)
+
+- **جدول مباريات اليوم الأربعاء 28 يناير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-28-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt30e33864c98d6ed7)
+- **وصافة دوري أبطال أوروبا تشعل صراعا بين 3 عمالقة**: [Link](https://www.aljazeera.net/sport/2026/1/28/%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B1%D9%8A%D8%A7%D9%84)
+- **دوري أبطال أوروبا | مقاعد الإقصائيات على المحك في جولة الحسم**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D9%82%D8%B5%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%AD%D9%83-%D9%81%D9%8A-%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85)
+
+
+### آرسنال ضد كيرات (N/A, Wed, 28 Jan 2026 12:10:00 -0800)
+
+- **المتصدر ضد الأسوأ.. أرقام صادمة قبل مواجهة آرسنال وكايرات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%AA%D8%B5%D8%AF%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D8%B3%D9%88%D8%A7%D9%94--%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%83%D8%A7%D9%8A%D8%B1%D8%A7%D8%AA/bltfd633ec62e5d9ff2)
+- **أرسنال على وشك تحقيق إنجاز تاريخي غير مسبوق في دوري أبطال أوروبا.**: [Link](https://www.vietnam.vn/ar/arsenal-truoc-cot-moc-chua-tung-co-o-champions-league)
+- **أرتيتا يخفف التوتر من أرسنال بعد خسارة مانشستر يونايتد قبل دوري أبطال أوروبا**: [Link](https://voi.id/ar/olahraga/554518)
+
+
+### ترتيب دوري ابطال اوروبا (N/A, Wed, 28 Jan 2026 12:10:00 -0800)
+
+- **مبابي وكين يتصدران سباق الحذاء الذهبي في أوروبا**: [Link](https://www.aljazeera.net/sport/2026/1/28/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AD%D8%B0%D8%A7%D8%A1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%83%D9%8A%D9%86)
+- **ريال مدريد وبنفيكا: رقم رونالدو تحت تهديد مبابي.. ومورينيو يواجه عقدته الأزلية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7-%D8%B1%D9%82%D9%85-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%AA%D8%AD%D8%AA-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D9%88%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B9%D9%82%D8%AF%D8%AA%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D8%B2%D9%84%D9%8A%D8%A9/blt8f990db070db87f1)
+- **ترتيب هدافي دوري أبطال أوروبا قبل الجولة الأخيرة من مرحلة الدوري**: [Link](https://www.eremnews.com/sports/bzth1yy)
+
+
+### أتلتيكو مدريد ضد بودو/ غليمت (N/A, Wed, 28 Jan 2026 12:10:00 -0800)
+
+- **أفضل مراوغ في دوري أبطال أوروبا يهدد طموحات أتلتيكو مدريد**: [Link](https://www.aljazeera.net/sport/2026/1/28/%D8%A3%D9%81%D8%B6%D9%84-%D9%85%D8%B1%D8%A7%D9%88%D8%BA-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **أفضل مراوغ في دوري أبطال أوروبا يهدد طموحات أتلتيكو مدريد**: [Link](https://a5r5br.net/international/sports/7207017-%D8%A3%D9%81%D8%B6%D9%84-%D9%85%D8%B1%D8%A7%D9%88%D8%BA-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%8A%D9%87%D8%AF%D8%AF-%D8%B7%D9%85%D9%88%D8%AD%D8%A7%D8%AA-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **أرقام خاصة بحكم مباراة أتلتيكو مدريد وبودو غليمت**: [Link](https://hihi2.com/2026/01/27/p3622365.html)
+
+
+### psg vs (N/A, Wed, 28 Jan 2026 12:10:00 -0800)
+
+- **UEFA Champions League / PSG - Newcastle: history of their encounters**: [Link](https://foot-africa.com/en/news/uefa-champions-league-psg-newcastle-history-of-their-encounters-1061621/)
+- **Luis Enrique, the lunar words**: [Link](https://frenchfootballweekly.com/2026/01/28/luis-enrique-the-lunar-words/)
+- **Match Report. Paris Saint-Germain 1 Newcastle United 0**: [Link](https://www.newcastleunited.com/en/news/paris-saint-germain-1-newcastle-united-0)
+
+
+### سد الوحدة (N/A, Wed, 28 Jan 2026 12:10:00 -0800)
+
+- **تحسن في مخزون المياه بحوض سبو: نسبة ملء السدود تتجاوز 55% وسد الوحدة يقترب من 60%**: [Link](https://ar.telquel.ma/%D8%B3%D8%AF%D9%88%D8%AF-%D8%AD%D9%88%D8%B6-%D8%B3%D8%A8%D9%88-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-66-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%84%D8%A1-%D8%A8%D9%85%D8%AE%D8%B2%D9%88%D9%86-%D9%8A%D9%81/)
+- **ملء سدود المغرب يواصل الانتعاش**: [Link](https://www.hespress.com/%D9%85%D9%84%D8%A1-%D8%B3%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B9%D8%A7%D8%B4-1692867.html)
+- **بلغت 66%.. نسبة ملء قياسية لسد الوحدة أكبر سد بالمغرب**: [Link](https://2m.ma/ar/news/%D8%A8%D9%84%D8%BA%D8%AA-66-%D9%86%D8%B3%D8%A8%D8%A9-%D9%85%D9%84%D8%A1-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D9%84%D8%B3%D8%AF-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9-%D8%A3%D9%83%D8%A8%D8%B1-%D8%B3%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-20260125)
+
+
 ### man city vs galatasaray (N/A, Wed, 28 Jan 2026 11:50:00 -0800)
 
 - **Pep spells out City priority ahead of key Galatasaray clash**: [Link](https://www.mancity.com/news/mens/pep-guardiola-manchester-city-v-galatasaray-team-news-preview-63905111)
