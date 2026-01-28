@@ -1,3 +1,10 @@
+### gta 6 (N/A, Tue, 27 Jan 2026 16:40:00 -0800)
+
+- **Grand Theft Auto 6 may not have a physical version on day one to avoid leaks, report claims**: [Link](https://www.videogameschronicle.com/news/grand-theft-auto-6-may-not-have-a-physical-version-on-day-one-to-avoid-leaks-report-claims/)
+- **GTA 6 boxed version may be delayed to reduce leak risk**: [Link](https://videocardz.com/newz/gta-6-boxed-version-may-be-delayed-to-reduce-leak-risk)
+- **Rockstar Games may delay the disc version of GTA VI until 2027 to reduce the risk of leaks**: [Link](https://dev.ua/en/news/rockstar-games-mozhut-vidklasty-dyskovu-versiiu-gta-6-azh-do-2027-roku-shchob-zmenshyty-ryzyk-vytokiv-1769521965)
+
+
 ### أمطار (N/A, Tue, 27 Jan 2026 13:50:00 -0800)
 
 - **الأرصاد تحذر من أمطار تصل إلى 95 ملم**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-95-%D9%85%D9%84%D9%85-1692990.html)
