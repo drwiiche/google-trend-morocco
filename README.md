@@ -1,3 +1,45 @@
+### chelsea football club (N/A, Wed, 28 Jan 2026 13:40:00 -0800)
+
+- **Raheem Sterling leaves Chelsea by mutual consent**: [Link](https://www.bbc.com/sport/football/articles/cm2yp21zjzqo)
+- **Club Statement: Raheem Sterling | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/club-statement-raheem-sterling)
+- **One of Mikel Arteta's most questionable Arsenal transfers just hit free agency**: [Link](https://paininthearsenal.com/mikel-arteta-most-questionable-arsenal-transfers-hit-free-agency)
+
+
+### manchester city (N/A, Wed, 28 Jan 2026 13:40:00 -0800)
+
+- **Man City winger Doku injured after 2 first-half assists in Champions League game**: [Link](https://www.bozemandailychronicle.com/ap_news/sports/man-city-winger-doku-injured-after-2-first-half-assists-in-champions-league-game/article_003349c7-8f6e-5426-b02d-66967294255a.html)
+- **Man City dealt injury blow as Jeremy Doku forced off in Champions League tie**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-city-dealt-injury-blow-33321638)
+- **Jeremy Doku’s early exit against Galatasaray hits Man City with fresh injury blow**: [Link](https://www.aol.co.uk/articles/jeremy-doku-early-exit-against-212227330.html)
+
+
+### بايرن ميونخ (N/A, Wed, 28 Jan 2026 13:30:00 -0800)
+
+- **بث مباشر مباراة بايرن ميونخ وبي إس في آيندهوفن والقنوات الناقلة اليوم في دوري أبطال أوروبا**: [Link](https://www.cairo24.com/2361463)
+- **دوري أبطال أوروبا: التشكيلة المتوقعة لمباراة بي إس في آيندهوفن – بايرن ميونخ**: [Link](https://foot-africa.com/ar/news/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%8A-%D8%A5%D8%B3-%D9%81%D9%8A-%D8%A2%D9%8A%D9%86%D8%AF%D9%87%D9%88%D9%81%D9%86-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-1061561/)
+- **دوري أبطال أوروبا UEFA: متى وأين تشاهد مباراة بي إس في آيندهوفن – بايرن ميونخ؟**: [Link](https://onefootball.com/en/news/uefa-42316876)
+
+
+### psv (N/A, Wed, 28 Jan 2026 13:30:00 -0800)
+
+- **PSV op bloedstollende wijze uit de Champions League geknikkerd na chaotische slotfase tegen Bayern München**: [Link](https://www.ed.nl/psv/psv-op-bloedstollende-wijze-uit-de-champions-league-geknikkerd-na-chaotische-slotfase-tegen-bayern-munchen~aa852ebe/)
+- **Bosz over sparen van topspelers als Kane**: [Link](https://www.vi.nl/nieuws/bosz-over-sparen-van-topspelers-als-kane)
+- **Reglementswijziging in de hoofdrol: Arsenal en Bayern München gaan daarom ook op laatste speeldag voluit**: [Link](https://www.voetbalkrant.com/nieuws/2026-01-28/reglementswijziging-in-de-hoofdrol-arsenal-en-bayern-munchen-gaan-daarom-ook-op-laatste-speeldag-voluit)
+
+
+### 365 scores (N/A, Wed, 28 Jan 2026 13:30:00 -0800)
+
+- **Wrexham continuing to climb into Championship playoff spot**: [Link](https://www.newstribune.com/news/2026/jan/26/wrexham-continuing-to-climb-into-championship-playoff-spot/)
+- **Wrexham's dramatic performance overturns QPR in injury time, leaving Reynolds dreaming of the Premier League title.**: [Link](https://lamilano.it/en/by-the-media/Wrexham-overturns-QPR-in-stoppage-time-and-now-Reynolds-dreams-of-the-Premier-League/)
+- **Wrexham Association Football Club**: [Link](https://www.wrexhamafc.co.uk/news/2026/january/27/-wxmanorak---qpr-vs-wrexham-afc/)
+
+
+### lamine yamal (N/A, Wed, 28 Jan 2026 13:30:00 -0800)
+
+- **Dani Olmo puts the brakes on comparing Lamine Yamal to Messi: It's crazy**: [Link](https://www.soyfutbol.com/en/news/dani-olmo-puts-the-brakes-on-comparing-lamine-yamal-to-messi-its-crazy-20260127-0016.html)
+- **Comparing Lamine Yamal to Barcelona icon Lionel Messi is 'crazy', admits Dani Olmo**: [Link](https://www.goal.com/en-sa/lists/comparing-lamine-yamal-barcelona-lionel-messi-crazy-dani-olmo/bltf1173ff0c62cb476)
+- **Comparing Lamine Yamal to Messi 'crazy', insists Barcelona's Dani Olmo**: [Link](https://www.flashscore.com/news/soccer-laliga-comparing-lamine-yamal-to-messi-crazy-insists-barcelona-s-dani-olmo/EifU06bT/)
+
+
 ### kylian mbappé (N/A, Wed, 28 Jan 2026 13:20:00 -0800)
 
 - **WATCH: Kylian Mbappe heads Real Madrid in front against Benfica**: [Link](https://sports.yahoo.com/articles/watch-kylian-mbappe-heads-real-204000297.html)
