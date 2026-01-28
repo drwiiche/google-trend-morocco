@@ -1,3 +1,10 @@
+### ترتيب دوري ابطال (N/A, Wed, 28 Jan 2026 13:50:00 -0800)
+
+- **بالفيديو: إنجاز غير مسبوق.. مبابي يحطم رقم رونالدو في دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AD%D8%B7%D9%85-%D8%B1%D9%82%D9%85-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt19b45c652c03f566)
+- **ترتيب هدافي دوري أبطال أوروبا قبل الجولة الأخيرة من مرحلة الدوري**: [Link](https://www.eremnews.com/sports/bzth1yy)
+- **صراع الهدافين يشتعل في الدوريات الأوروبية**: [Link](https://tembah.net/news?nid=82865)
+
+
 ### champions league matches (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
 
 - **Bradley Barcola extends Champions League goal drought to 15 matches**: [Link](https://tribuna.com/en/news/2026-01-28-bradley-barcola-extends-champions-league-goal-drought-to-15-matches/)
