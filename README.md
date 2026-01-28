@@ -1,3 +1,38 @@
+### benfica – real madrid (N/A, Wed, 28 Jan 2026 11:10:00 -0800)
+
+- **Arbeloa: "This match is extremely difficult"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/arbeloa-rueda-de-prensa-27-01-2026)
+- **Benfica vs Real Madrid predictions: Mbappe to set up narrow away win**: [Link](https://www.goal.com/en-ca/betting/benfica-vs-real-madrid-predictions-01-28/blt68a67efbcf6e0ec8)
+- **Mourinho-Arbeloa, 13 years of loyalty, mobile changes and "a lot of influence": "He changed his life"**: [Link](https://www.mundoamerica.com/british/2026/01/28/6979ef6be85ecef8088b459e.html)
+
+
+### بنفيكا ضد الريال (N/A, Wed, 28 Jan 2026 11:10:00 -0800)
+
+- **التشكيل الرسمي.. مبابي وفينيسيوس يقودان ريال مدريد أمام بنفيكا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%88%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7/bltb5fde19f279aad71)
+- **مباشر مباراة ريال مدريد ضد بنفيكا في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/28/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **دوري أبطال أوروبا: أربيلوا "بمثابة ابن" بالنسبة لمورينيو**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260127-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88-%D8%A8%D9%85%D8%AB%D8%A7%D8%A8%D8%A9-%D8%A7%D8%A8%D9%86-%D8%A8%D8%A7%D9%84%D9%86%D8%B3%D8%A8%D8%A9-%D9%84%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88)
+
+
+### barcelone – copenhague (N/A, Wed, 28 Jan 2026 11:10:00 -0800)
+
+- **Hansi Flick : "Offrir notre meilleure version"**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4440110/hansi-flick--offrir-notre-meilleure-version)
+- **FC Barcelone : La compo probable des Blaugrana face au FC Copenhague en Ligue des Champions avec Lamine Yamal**: [Link](https://www.90min.com/fr/fc-barcelone-la-compo-probable-des-blaugrana-face-au-fc-copenhague-en-ligue-des-champions-avec-lamine-yamal-28-01-2026)
+- **Ligue des Champions (J8) : Elias Achouri, l’arme de Copenhague contre le Barça**: [Link](https://africafootunited.com/ligue-des-champions-j8-elias-achouri-larme-de-copenhague-contre-le-barca/)
+
+
+### برشلونة ضد كوبنهاغن (N/A, Wed, 28 Jan 2026 11:10:00 -0800)
+
+- **بالفيديو: لابورتا يحذر مشجعي برشلونة من حدث منتظر أمام كوبنهاجن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D8%B4%D8%AC%D8%B9%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%86-%D8%AD%D8%AF%D8%AB-%D9%85%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%83%D9%88%D8%A8%D9%86%D9%87%D8%A7%D8%AC%D9%86/blte257e4302621d17c)
+- **مباراة برشلونة ضد كوبنهاغن في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/28/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D9%83%D9%88%D8%A8%D9%86%D9%87%D8%A7%D8%BA%D9%86-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-2-fcbarcelona)
+- **3 عوامل تساعد برشلونة على التأهل من "توب 8" أبطال أوروبا**: [Link](https://www.alaraby.co.uk/sport/3-%D8%B9%D9%88%D8%A7%D9%85%D9%84-%D8%AA%D8%B3%D8%A7%D8%B9%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%85%D9%86-%D8%AA%D9%88%D8%A8-8-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+
+
+### sky sports (N/A, Wed, 28 Jan 2026 11:00:00 -0800)
+
+- **Chelsea’s January transfer plans could now be ruined all because of Manchester United**: [Link](https://www.thechelseachronicle.com/transfer-news/chelseas-january-transfer-plans-could-now-be-ruined-all-because-of-manchester-united/)
+- **Fabrizio Romano confirms Liverpool trying to get deal done NOW**: [Link](https://www.daveockop.com/transfer-news/fabrizio-romano-confirms-liverpool-trying-to-get-deal-done-now/)
+- **Report: Chelsea aiming to beat Bayern Munich to the punch on Jeremy Jacquet**: [Link](https://www.bavarianfootballworks.com/transfer-rumors/162922/report-chelsea-aiming-to-beat-bayern-munich-to-the-punch-on-jeremy-jacquet)
+
+
 ### fifa (N/A, Wed, 28 Jan 2026 10:40:00 -0800)
 
 - **Column | Clamor is growing in Europe to boycott Trump’s World Cup**: [Link](https://www.washingtonpost.com/world/2026/01/28/trump-world-cup-boycott-europe/)
