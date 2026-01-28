@@ -1,3 +1,52 @@
+### kylian mbappé (N/A, Wed, 28 Jan 2026 13:20:00 -0800)
+
+- **WATCH: Kylian Mbappe heads Real Madrid in front against Benfica**: [Link](https://sports.yahoo.com/articles/watch-kylian-mbappe-heads-real-204000297.html)
+- **Kylian Mbappe Chasing Cristiano Ronaldo’s Sensational Champions League Record**: [Link](https://www.si.com/soccer/kylian-mbappe-chasing-cristiano-ronaldo-sensational-champions-league-record)
+- **Kylian Mbappé dethrones Cristiano Ronaldo’s Champions League first-phase scoring record after ten years**: [Link](https://worldsoccertalk.com/news/kylian-mbappe-dethrones-cristiano-ronaldos-champions-league-first-phase-scoring-record-after-ten-years/)
+
+
+### city (N/A, Wed, 28 Jan 2026 13:20:00 -0800)
+
+- **Rome, the 'Eternal City' | Journey to Italy**: [Link](https://www.wthr.com/article/sports/olympics/journey-to-milan-cortina/rome-eternal-city-journey-to-milan-cortina-scott-swan-italy-olympics/531-3294767f-b800-4994-af5e-321510695e3f)
+- **Rome in a Day: What I Saw After Missing My Flight**: [Link](https://travelbinger.com/rome-in-a-day-what-i-saw-after-missing-my-flight)
+- **City of Dixon to launch new emergency alert service**: [Link](https://www.wifr.com/2026/01/28/city-dixon-launch-new-emergency-alert-service/)
+
+
+### napoli (N/A, Wed, 28 Jan 2026 13:20:00 -0800)
+
+- **Meret: “Non è un periodo facile, abbiamo tanti infortuni: daremo tutto per centrare la qualificazione”**: [Link](https://www.goldelnapoli.it/meret-non-e-un-periodo-facile-abbiamo-tanti-infortuni-e-pochi-cambi-daremo-tutto-per-centrare-la-qualificazione/)
+- **Napoli e Chelsea: il pranzo Uefa a Palazzo Petrucci**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/napoli_e_chelsea_il_pranzo_uefa_a_palazzo_petrucci-76365600.html)
+- **Vergara scatenato: le foto del primo gol con il Napoli che fa esplodere il Maradona**: [Link](https://www.corrieredellosport.it/foto/calcio/champions-league/2026/01/28-146184004/vergara_scatenato_le_foto_del_primo_gol_con_il_napoli_che_fa_esplodere_il_maradona)
+
+
+### dortmund (N/A, Wed, 28 Jan 2026 13:10:00 -0800)
+
+- **Inter Mailand zu Gast: Kaben: "Starke Offensive spricht für BVB"**: [Link](https://www.zdfheute.de/video/zdf-mittagsmagazin/champions-league-dortmund-inter-mailand-kaben-interview-100.html)
+- **Fußball heute live: Dortmund – Inter Mailand Übertragung im TV & Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-heute-live-dortmund-inter-mailand-uebertragung-im-tv-stream)
+- **Nach Sabitzer-Ausfall: Nächster Verletzungsschock für BVB**: [Link](https://www.laola1.at/de/red/fussball/champions-league/news/nach-sabitzer-ausfall--naechster-verletzungsschock-fuer-bvb/)
+
+
+### برشلونه (N/A, Wed, 28 Jan 2026 12:50:00 -0800)
+
+- **بالفيديو: ظهور الفئران في كامب نو يربك برشلونة أمام كوبنهاجن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D9%94%D8%B1%D8%A7%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D9%8A%D8%B1%D8%A8%D9%83-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%83%D9%88%D8%A8%D9%86%D9%87%D8%A7%D8%AC%D9%86/blt7ffc8f243698ca19)
+- **بالفيديو.. الجرذان تغزو ملعب كامب نو قبل مباراة برشلونة وكوبنهاغن**: [Link](https://www.aljazeera.net/sport/2026/1/28/%D8%A7%D9%84%D8%AC%D8%B1%D8%B0%D8%A7%D9%86-%D8%AA%D8%BA%D8%B2%D9%88-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%83%D9%88%D8%A8%D9%86%D9%87%D8%A7%D8%BA%D9%86)
+- **تسرب المياه يفضح هشاشة "كامب نو"**: [Link](https://www.hespress.com/%D8%AA%D8%B3%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%8A%D8%A7%D9%87-%D9%8A%D9%81%D8%B6%D8%AD-%D9%87%D8%B4%D8%A7%D8%B4%D8%A9-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-1692393.html)
+
+
+### tottenham (N/A, Wed, 28 Jan 2026 12:50:00 -0800)
+
+- **Frustrated Thomas Frank, the missing Tottenham wonderkid and strange Kinsky response**: [Link](https://www.football.london/tottenham-hotspur-fc/news/frustrated-thomas-frank-missing-tottenham-33314949)
+- **Tim Sherwood SLAMS Tottenham Hotspur: 'Not good enough all season' and 'no desire'**: [Link](https://www.skysports.com/football/video/37483/13500343/tim-sherwood-slams-tottenham-hotspur-not-good-enough-all-season-and-no-desire)
+- **Tottenham missed a chance to upset both West Ham and Arsenal with midfield solution**: [Link](https://www.spurs-web.com/spurs-news/tottenham-missed-a-chance-to-upset-both-west-ham-and-arsenal-with-midfield-solution/)
+
+
+### fcb (N/A, Wed, 28 Jan 2026 12:40:00 -0800)
+
+- **Lamine Yamal and what do his numbers say about his time at Barcelona?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/lamine-yamal-what-do-his-numbers-say-2026-01-28)
+- **Double trouble: Barcelona, Bayern dominate elite group in Europe**: [Link](https://sports.yahoo.com/articles/double-trouble-barcelona-bayern-dominate-014500068.html)
+- **Lamine Yamal overtaken in UEFA Champions League: Norway’s Erling Haaland-like sensation dominates dribbles ...**: [Link](https://worldsoccertalk.com/news/lamine-yamal-overtaken-in-uefa-champions-league-norways-erling-haaland-like-sensation-dominates-dribbles-in-new-shocking-2025-26-campaign-stat/)
+
+
 ### liverpool (N/A, Wed, 28 Jan 2026 12:50:00 -0800)
 
 - **Why Jeremie Frimpong was withdrawn four minutes into Qarabag tie as Arne Slot in injury hell**: [Link](https://www.empireofthekop.com/2026/01/28/why-jeremie-frimpong-was-withdrawn-four-minutes-into-qarabag-tie-as-arne-slot-in-injury-hell/)
