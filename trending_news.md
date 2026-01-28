@@ -1,3 +1,17 @@
+### al-ahli saudi – al-ettifaq (N/A, Wed, 28 Jan 2026 09:00:00 -0800)
+
+- **New Duo on Al-Ahli's Flanks Against Al-Ettifaq**: [Link](https://www.ysscores.com/en/news/13899342/New-Duo-on-Al-Ahli's-Flanks-Against-Al-Ettifaq)
+- **Al Ahli SFC Set to Face Al Ettifaq in Saudi Pro League Showdown on January 28, 2026**: [Link](https://news.ssbcrack.com/al-ahli-sfc-set-to-face-al-ettifaq-in-saudi-pro-league-showdown-on-january-28-2026/)
+- **Preview: Al Ahli vs Al Ettifaq Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ahli-vs-al-ettifaq-preview-202601)
+
+
+### عقوبات الكاف على منتخب السنغال (N/A, Wed, 28 Jan 2026 04:20:00 -0800)
+
+- **إفريقيا تترقب قرارات "نهائي الكان" .. وأدلة دامغة تقوي مواقف المغرب**: [Link](https://www.hespress.com/%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D8%AA%D8%B1%D9%82%D8%A8-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D9%88%D8%A3%D8%AF-1693318.html)
+- **رد حازم من المغرب على اتهامات رئيس اتحاد الكرة السنغالي**: [Link](https://www.aljazeera.net/sport/2026/1/28/%D8%B1%D8%AF-%D8%AD%D8%A7%D8%B2%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D8%A7%D8%AA-%D8%B1%D8%A6%D9%8A%D8%B3)
+- **حرمان من المونديال؟.. عقوبات الكاف تقلق السنغال بعد فضيحة نهائي الكان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%B1%D9%85%D8%A7%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84--%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%AA%D9%82%D9%84%D9%82-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A8%D8%B9%D8%AF-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86/blt759aee9c9ce9ef8b)
+
+
 ### far vs arsenal (N/A, Wed, 28 Jan 2026 07:30:00 -0800)
 
 - **African champions AS FAR handed stern test against Arsenal in global debut**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/african-champions-as-far-handed-stern-test-against-arsenal-in-global-debut/)
