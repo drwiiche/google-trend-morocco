@@ -1,3 +1,10 @@
+### australian open (N/A, Tue, 27 Jan 2026 20:40:00 -0800)
+
+- **Pegula defeats Anisimova in all-American affair to reach first Australian Open semifinal**: [Link](https://www.wtatennis.com/news/4440557/pegula-defeats-anisimova-in-all-american-affair-to-reach-first-australian-open-semifinal)
+- **Jessica Pegula vs. Amanda Anisimova: Predictions, How to Watch**: [Link](https://globelynews.com/sports/jessica-pegula-vs-amanda-anisimova-predictions-how-to-watch/)
+- **Australian Open Semifinal Predictions: Elena Rybakina vs Jessica Pegula**: [Link](https://lastwordonsports.com/tennis/2026/01/28/australian-open-semifinal-predictions-rybakina-pegula/)
+
+
 ### achraf hakimi (N/A, Tue, 27 Jan 2026 22:30:00 -0800)
 
 - **PSG recupera a Hakimi antes del duelo decisivo ante Newcastle**: [Link](https://es.rue20.com/2026/01/26/psg-recupera-a-hakimi-antes-del-duelo-decisivo-ante-newcastle/)
