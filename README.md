@@ -1,3 +1,10 @@
+### achraf hakimi (N/A, Tue, 27 Jan 2026 22:30:00 -0800)
+
+- **PSG recupera a Hakimi antes del duelo decisivo ante Newcastle**: [Link](https://es.rue20.com/2026/01/26/psg-recupera-a-hakimi-antes-del-duelo-decisivo-ante-newcastle/)
+- **Achraf Hakimi supera el estrés mental y regresa a los entrenamientos del PSG**: [Link](https://tribuna.com/es/news/2026-01-26-achraf-hakimi-supera-el-estres-mental-y-regresa-a-los-entrenamientos-del-psg/)
+- **Hakimi, duda para el PSG tras la CAN con Marruecos**: [Link](https://es.rue20.com/2026/01/23/hakimi-duda-para-el-psg-tras-la-can-con-marruecos/)
+
+
 ### novak djokovic (N/A, Tue, 27 Jan 2026 22:40:00 -0800)
 
 - **Australian Open 2026 LIVE: Novak Djokovic vs Lorenzo Musetti - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c0l7d3kdl52t)
