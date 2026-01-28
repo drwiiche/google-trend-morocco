@@ -1,3 +1,59 @@
+### sporting clube de portugal (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
+
+- **Rui Borges: «Esta noite foi a mais tranquila. Estou menos stressado e não tive grandes dúvidas para fazer o onze...»**: [Link](https://www.nowcanal.pt/ultimas/detalhe/rui-borges-esta-noite-foi-a-mais-tranquila-estou-menos-stressado-e-nao-tive-grandes-duvidas-para-fazer-o-onze)
+- **Fresneda: «Em Espanha não têm ideia da dimensão de um dérbi de Lisboa»**: [Link](https://cnnportugal.iol.pt/sporting/ivan-fresneda/fresneda-em-espanha-nao-tem-ideia-da-dimensao-de-um-derbi-de-lisboa)
+- **Sporting vence em Bilbau e está nos 'oitavos' da Liga dos Campeões**: [Link](https://sicnoticias.pt/especiais/liga-dos-campeoes/2026-01-28-sporting-vence-em-bilbau-e-esta-nos-oitavos-da-liga-dos-campeoes-69a02218?utm_source=sicnot&utm_medium=content&utm_campaign=WEB&utm_content=/especiais/liga-dos-campeoes/2026-01-28-sporting-vence-em-bilbau-e-esta-nos-oitavos-da-liga-dos-campeoes-69a02218)
+
+
+### classement real madrid (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
+
+- **FC Barcelone, Real Madrid, Atlético : Le classement de Liga sans la VAR dévoilé après la 21ème journée**: [Link](https://www.90min.com/fr/fc-barcelone-real-madrid-atletico-le-classement-de-liga-sans-la-var-devoile-apres-la-21eme-journee-26-01-2026)
+- **La Liga, 21e journée: Real Madrid et Barça toujours en tête**: [Link](https://www.yenisafak.com/fr/sports/la-liga-21e-journee-real-madrid-et-barca-toujours-en-tete-52591)
+- **Le classement de la Liga sans VAR jusqu’à 20 journées de la saison 2025/26 révélé : le Real Madrid en a pâti**: [Link](https://tribuna.com/fr/blogs/le-classement-de-la-liga-sans-var-jusqua-20-journees-de-la-s/)
+
+
+### olympique de marseille (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
+
+- **DIRECT. Club Bruges-OM (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/club-bruges-om-live/685622)
+- **Bruges-OM : les compos officielles**: [Link](https://www.footmercato.net/a7109120976412351071-bruges-om-les-compos-officielles)
+- **Nwaneri, coup de théâtre avant Bruges-OM !**: [Link](https://www.sports.fr/football/ligue-des-champions-football/nwaneri-coup-de-theatre-avant-bruges-om-985726.html)
+
+
+### club atlético de madrid (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
+
+- **Atlético de Madrid - Bodø/Glimt en directo | Champions League hoy en vivo**: [Link](https://www.marca.com/futbol/champions-league/atletico-bodglimt/2026/01/28/01_0103_20260128_175_2744-directo.html)
+- **Del horror al playoff**: [Link](https://as.com/futbol/champions/del-horror-al-playoff-f202601-n/)
+- **El Atlético se hace el harakiri por el ‘topocho’**: [Link](https://okdiario.com/deportes/atletico-hace-harakiri-topocho-16154080)
+
+
+### جدول (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
+
+- **جدول مباريات اليوم الخميس 29 يناير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-29-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltbfc1c58663d8fbc1)
+- **أبرز المباريات العالمية الخميس 29 يناير 2026**: [Link](http://alwatan.kuwait.tt/articledetails.aspx?id=818371&yearquarter=20261)
+- **مواعيد مباريات اليوم.. روما مع شتوتجارت وفنربخشة ضد أستون فيلا بالدوري الأوروبي**: [Link](https://www.youm7.com/story/2026/1/22/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B1%D9%88%D9%85%D8%A7-%D9%85%D8%B9-%D8%B4%D8%AA%D9%88%D8%AA%D8%AC%D8%A7%D8%B1%D8%AA-%D9%88%D9%81%D9%86%D8%B1%D8%A8%D8%AE%D8%B4%D8%A9-%D8%B6%D8%AF-%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7/7277079)
+
+
+### classement benfica – real madrid (N/A, Wed, 28 Jan 2026 13:50:00 -0800)
+
+- **LdC : Kylian Mbappé bat un record historique de Cristiano Ronaldo**: [Link](https://www.footmercato.net/a5888724657127041142-ldc-kylian-mbappe-bat-un-record-historique-de-cristiano-ronaldo)
+- **Benfica - Real : Arbeloa n'a pas été le meilleur joueur, mais...**: [Link](https://www.linternaute.com/sport/foot/9732754-direct-benfica-real-suivez-le-match/)
+- **Mbappé au Real Madrid, de ailier décisif à pur finisseur**: [Link](https://onefootball.com/fr/news/mbappe-au-real-madrid-de-ailier-decisif-a-pur-finisseur-42318129)
+
+
+### champions league table (N/A, Wed, 28 Jan 2026 13:40:00 -0800)
+
+- **Champions League key numbers: Szoboszlai’s form and Spurs’ strength in Europe**: [Link](https://www.nytimes.com/athletic/6996755/2026/01/27/champions-league-key-numbers-szoboszlais-form-and-spurs-strength-in-europe/)
+- **📈 Here’s how the Champions League table looks so far: what surprises!**: [Link](https://sports.yahoo.com/articles/champions-league-table-looks-far-205300997.html)
+- **Champions League: Man City, Liverpool, Spurs & Chelsea join Arsenal in last 16 - reaction**: [Link](https://www.bbc.com/sport/football/live/cy05p6j02l2t)
+
+
+### chelsea (N/A, Wed, 28 Jan 2026 13:40:00 -0800)
+
+- **Raheem Sterling leaves Chelsea by mutual consent**: [Link](https://www.bbc.com/sport/football/articles/cm2yp21zjzqo)
+- **Club Statement: Raheem Sterling | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/club-statement-raheem-sterling)
+- **One of Mikel Arteta's most questionable Arsenal transfers just hit free agency**: [Link](https://paininthearsenal.com/mikel-arteta-most-questionable-arsenal-transfers-hit-free-agency)
+
+
 ### chelsea football club (N/A, Wed, 28 Jan 2026 13:40:00 -0800)
 
 - **Raheem Sterling leaves Chelsea by mutual consent**: [Link](https://www.bbc.com/sport/football/articles/cm2yp21zjzqo)
