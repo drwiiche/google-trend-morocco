@@ -1,3 +1,44 @@
+### jose mourinho (N/A, Wed, 28 Jan 2026 14:30:00 -0800)
+
+- **Photo: José Mourinho left in awe at Real Madrid star’s moment of brilliance**: [Link](https://sports.yahoo.com/articles/photo-jos-mourinho-left-awe-205000895.html)
+- **Photo: José Mourinho left in awe at Real Madrid star’s moment of brilliance**: [Link](https://getfootballnewsspain.com/photo-jose-mourinho-left-in-awe-at-real-madrid-stars-moment-of-brilliance/)
+- **Benfica 4-2 Real Madrid: Goalkeeper Anatoliy Trubin's 98th-minute header puts Jose Mourinho's side into play-offs**: [Link](https://www.bbc.com/sport/football/live/c62rdzw6lzrt)
+
+
+### benfica vs real madrid standings (N/A, Wed, 28 Jan 2026 14:20:00 -0800)
+
+- **🛣️ Spanish clubs’ opponents in Champions League last 16 and play-offs**: [Link](https://sports.yahoo.com/articles/spanish-clubs-opponents-champions-league-223100639.html)
+- **The two potential opponents awaiting Real Madrid in the Champions League playoff**: [Link](https://www.mundodeportivo.com/us/en/20260128/739318/the-two-potential-opponents-awaiting-real-madrid-in-the-champions-league-playoff.html)
+- **Who are Real Madrid and Barcelona’s next possible opponents in 2025-26 UEFA Champions League knockout phase?**: [Link](https://bolavip.com/en/soccer/who-are-real-madrid-and-barcelonas-next-possible-opponents-in-2025-26-uefa-champions-league-knockout-phase)
+
+
+### 365 (N/A, Wed, 28 Jan 2026 14:10:00 -0800)
+
+- **BE IN THE CLOUD Launches Revolutionary Microsoft 365 Backup Solution**: [Link](https://markets.financialcontent.com/stocks/article/abnewswire-2026-1-28-be-in-the-cloud-launches-revolutionary-microsoft-365-backup-solution)
+- **CDCR, CCHCS staff March for the Dream**: [Link](https://www.cdcr.ca.gov/insidecdcr/2026/01/26/cdcr-cchcs-staff-march-for-the-dream/)
+- **MLK 365 March Urges Year-Round Action Through Campaign365**: [Link](https://sacobserver.com/newsletter/mlk-365-march-urges-year-round-action-through-campaign365/)
+
+
+### marca (N/A, Wed, 28 Jan 2026 14:10:00 -0800)
+
+- **What Real Madrid need to be in the top eight of the Champions League: The accounts to qualify**: [Link](https://www.marca.com/en/football/real-madrid/2026/01/28/6979e812e2704e2b438b45bb.html)
+- **Champions League superstars choose Team Cristiano Ronaldo or Team Lionel Messi**: [Link](https://www.marca.com/en/football/champions-league/2026/01/28/69796caf268e3e052e8b45a5.html)
+
+
+### koora (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
+
+- **جدول مباريات اليوم الخميس 29 يناير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-29-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltbfc1c58663d8fbc1)
+- **أبرز المباريات العالمية الخميس 29 يناير 2026**: [Link](http://alwatan.kuwait.tt/articledetails.aspx?id=818371&yearquarter=20261)
+- **مواعيد مباريات اليوم.. روما مع شتوتجارت وفنربخشة ضد أستون فيلا بالدوري الأوروبي**: [Link](https://www.youm7.com/story/2026/1/22/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B1%D9%88%D9%85%D8%A7-%D9%85%D8%B9-%D8%B4%D8%AA%D9%88%D8%AA%D8%AC%D8%A7%D8%B1%D8%AA-%D9%88%D9%81%D9%86%D8%B1%D8%A8%D8%AE%D8%B4%D8%A9-%D8%B6%D8%AF-%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7/7277079)
+
+
+### champion league (N/A, Wed, 28 Jan 2026 13:40:00 -0800)
+
+- **Watch Champions League highlights as five English clubs through & Mourinho's Benfica stun Real**: [Link](https://www.bbc.com/sport/football/live/cy05p6j02l2t)
+- **Champions League table in full as Chelsea scrape through but Newcastle miss out**: [Link](https://www.express.co.uk/sport/football/2163906/Champions-League-table)
+- **Powerhouse rocked in absurd 97-min goalie scenes; who survived cutthroat CL chaos — Wrap**: [Link](https://www.foxsports.com.au/football/powerhouse-rocked-in-absurd-97min-goalie-scenes-who-survived-cutthroat-cl-chaos-wrap/news-story/744569ca4907b9db481af4674c9cbf32)
+
+
 ### sporting clube de portugal (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
 
 - **Rui Borges: «Esta noite foi a mais tranquila. Estou menos stressado e não tive grandes dúvidas para fazer o onze...»**: [Link](https://www.nowcanal.pt/ultimas/detalhe/rui-borges-esta-noite-foi-a-mais-tranquila-estou-menos-stressado-e-nao-tive-grandes-duvidas-para-fazer-o-onze)
