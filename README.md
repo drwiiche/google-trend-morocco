@@ -1,3 +1,17 @@
+### fifa (N/A, Wed, 28 Jan 2026 10:40:00 -0800)
+
+- **Column | Clamor is growing in Europe to boycott Trump’s World Cup**: [Link](https://www.washingtonpost.com/world/2026/01/28/trump-world-cup-boycott-europe/)
+- **Removing US as World Cup host would be eminently sad – and entirely justified | Alexander Abnos**: [Link](https://www.theguardian.com/football/2026/jan/27/us-world-cup-hosting-duties-taken-away)
+- **Ex-FIFA president Sepp Blatter joins those calling for boycott of World Cup in U.S.**: [Link](https://www.npr.org/2026/01/27/g-s1-107571/fifa-sepp-blatter-boycott-world-cup)
+
+
+### الجيش الملكي ضد ارسنال (N/A, Wed, 28 Jan 2026 10:10:00 -0800)
+
+- **"سيدات الجيش" جاهزات للقاء أرسنال**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%AC%D8%A7%D9%87%D8%B2%D8%A7%D8%AA-%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-1693239.html)
+- **الكشف عن قوائم الفرق المشاركة في الدور النهائي لبطولة "كأس فيفا" للأندية البطلة للسيدات**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%82%D9%88%D8%A7%D8%A6%D9%85-%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-424515.html)
+- **الكرة المغربية تواصل التميز.. إناث الجيش الملكي أمام أرسنال في نصف نهائي كأس العالم للأندية**: [Link](https://ar.hibapress.com/details-696903.html)
+
+
 ### dazn live (N/A, Wed, 28 Jan 2026 10:00:00 -0800)
 
 - **Why Kurt Warner is excited for Seahawks-Patriots Super Bowl**: [Link](https://www.espn.com/video/clip/_/id/47755935)
