@@ -1,3 +1,31 @@
+### dazn live (N/A, Wed, 28 Jan 2026 10:00:00 -0800)
+
+- **Why Kurt Warner is excited for Seahawks-Patriots Super Bowl**: [Link](https://www.espn.com/video/clip/_/id/47755935)
+- **NFL Power Rankings: Which 10 legacies are most on the line in Super Bowl 2026?**: [Link](https://sports.yahoo.com/nfl/article/nfl-power-rankings-which-10-legacies-are-most-on-the-line-in-super-bowl-2026-163227660.html)
+- **Super Bowl LX: Here's how much it costs to attend, stay in Bay Area for big game**: [Link](https://abc7news.com/post/super-bowl-lx-heres-how-costs-attend-stay-bay-area-big-game/18487588/)
+
+
+### القنوات الناقلة لمباراة الجيش الملكي اليوم (N/A, Wed, 28 Jan 2026 10:00:00 -0800)
+
+- **"سيدات الجيش" جاهزات للقاء أرسنال**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%AC%D8%A7%D9%87%D8%B2%D8%A7%D8%AA-%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-1693239.html)
+- **الرميشي: "مباراة أرسنال مثل أي مواجهة.. لا يمكننا دخول اللقاء ونحن نفكر أننا مهزومات مسبقا"**: [Link](https://m.elbotola.com/article/2026-01-27-21-44-52.html)
+- **الكشف عن قوائم الفرق المشاركة في الدور النهائي لبطولة "كأس فيفا" للأندية البطلة للسيدات**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%82%D9%88%D8%A7%D8%A6%D9%85-%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-424515.html)
+
+
+### dazn (N/A, Wed, 28 Jan 2026 09:50:00 -0800)
+
+- **Victory+ waiting in the wings as Main Street nears DAZN decision**: [Link](https://www.sportsbusinessjournal.com/Articles/2026/01/28/victory-waiting-in-the-wings-as-main-street-nears-dazn-decision/)
+- **Main Street teams reportedly considering Victory+**: [Link](https://www.sportsmediawatch.com/2026/01/main-street-rsn-teams-considering-victory-report/)
+- **Cincinnati Reds Considering New Streaming Option for 2026 Season**: [Link](https://www.si.com/mlb/reds/onsi/news/cincinnati-reds-considering-new-streaming-option-for-2026-season-01kg2mb2x15s)
+
+
+### autorité marocaine du marché des capitaux (N/A, Wed, 28 Jan 2026 07:00:00 -0800)
+
+- **L'AMMC publie ses priorités d'action pour l’année 2026**: [Link](https://medias24.com/2026/01/27/lammc-publie-ses-priorites-dactions-pour-lannee-2026-1618017/)
+- **Le gendarme du marché des capitaux dévoile ses priorités d’actions pour 2026 (AMMC)**: [Link](https://lematin.ma/economie/lammc-devoile-ses-priorites-dactions-pour-2026/326593)
+- **Marchés des capitaux : Senhaji dévoile les priorités d’actions de l’AMMC pour 2026**: [Link](https://ledesk.ma/encontinu/marches-des-capitaux-senhaji-devoile-les-priorites-dactions-de-lammc-pour-2026/)
+
+
 ### al-ahli saudi – al-ettifaq (N/A, Wed, 28 Jan 2026 09:00:00 -0800)
 
 - **New Duo on Al-Ahli's Flanks Against Al-Ettifaq**: [Link](https://www.ysscores.com/en/news/13899342/New-Duo-on-Al-Ahli's-Flanks-Against-Al-Ettifaq)
