@@ -1,3 +1,24 @@
+### man city vs galatasaray (N/A, Wed, 28 Jan 2026 11:50:00 -0800)
+
+- **Pep spells out City priority ahead of key Galatasaray clash**: [Link](https://www.mancity.com/news/mens/pep-guardiola-manchester-city-v-galatasaray-team-news-preview-63905111)
+- **Haaland returns for Man City as Guardiola rings the changes ahead of must-win Champions League clash with Galatasaray**: [Link](https://onefootball.com/fr/news/haaland-returns-for-man-city-as-guardiola-rings-the-changes-ahead-of-must-win-champions-league-clash-with-galatasaray-42317805)
+- **What Does Manchester City Need to Do to Be In the Top 8 of the Champions League?**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/what-does-manchester-city-need-to-do-to-be-in-the-top-8-of-the-champions-league-2026-01-27)
+
+
+### classement ligue des champions (N/A, Wed, 28 Jan 2026 11:50:00 -0800)
+
+- **Suivez en direct l’avant-matchs de la dernière journée de Ligue des Champions**: [Link](https://www.footmercato.net/a5133993708570117896-suivez-en-direct-lavant-matchs-de-la-derniere-journee-de-ligue-des-champions)
+- **Quels sont les matches à surveiller pour le PSG, l'OM et Monaco lors de la dernière journée de phase de ligue de C1 ?**: [Link](https://www.lequipe.fr/Football/Actualites/Quels-sont-les-matches-a-surveiller-pour-le-psg-l-om-et-monaco-lors-de-la-derniere-journee-de-phase-de-ligue-de-c1/1636748)
+- **Ligue des champions - Mbappé > CR7, l’indécence de la Premier League : Les questions de la dernière journée**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-mbappe-cr7-lindecence-de-la-premier-league-les-questions-de-la-derniere-journee_sto23263711/story.shtml)
+
+
+### benfica (N/A, Wed, 28 Jan 2026 11:50:00 -0800)
+
+- **Benfica x Real Madrid: Veja onde assistir, horário e escalações**: [Link](https://www.infomoney.com.br/esportes/benfica-real-madrid-onde-assistir/)
+- **Carreras revela que um dia gostaria de ser treinado por Mourinho**: [Link](https://onefootball.com/de/news/carreras-revela-que-um-dia-gostaria-de-ser-treinado-por-mourinho-42314382)
+- **José Mourinho explica escolhas para o jogo com o Real Madrid e atira: «Espero que não haja receio...»**: [Link](https://sapo.pt/artigo/jose-mourinho-explica-escolhas-para-o-jogo-com-o-real-madrid-e-atira-espero-que-nao-haja-receio-697a5c118fe20590e5c80394)
+
+
 ### بي اس جي ضد نيوكاسل يونايتد (N/A, Wed, 28 Jan 2026 11:30:00 -0800)
 
 - **مباشر مباراة باريس سان جيرمان ضد نيوكاسل في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/28/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B6%D8%AF-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84)
