@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Tue, 27 Jan 2026 22:40:00 -0800)
+
+- **Australian Open 2026 LIVE: Novak Djokovic vs Lorenzo Musetti - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c0l7d3kdl52t)
+- **Australian Open 2026 LIVE updates: Djokovic two sets down after swipe at the chair umpire; Swiatek backs Gauff over racquet smash’You could have given me a heads-up’: Djokovic’s crack at chair umpire as Musetti leads; Swiatek backs Gauff over racquet s**: [Link](https://www.brisbanetimes.com.au/sport/tennis/australian-open-2026-live-updates-swiatek-anisimova-djokovic-sinner-in-star-studded-quarters-aussies-in-doubles-quarters-semis-action-20260127-p5nxf5.html?post=p59uvf)
+- **Novak Djokovic on the ropes as Musetti takes command in Melbourne**: [Link](https://humenglish.com/latest/novak-djokovic-on-the-ropes-as-musetti-takes-command-in-melbourne/)
+
+
 ### الفجر (N/A, Tue, 27 Jan 2026 21:00:00 -0800)
 
 - **مواقيت الصلاة في أسوان اليوم الأربعاء 28-1-2026**: [Link](https://www.almadinapress.com/sport/5804.html)
