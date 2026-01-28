@@ -1,3 +1,10 @@
+### far vs arsenal (N/A, Wed, 28 Jan 2026 07:30:00 -0800)
+
+- **African champions AS FAR handed stern test against Arsenal in global debut**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/african-champions-as-far-handed-stern-test-against-arsenal-in-global-debut/)
+- **Fifa Women's Champions Cup semi-final LIVE: Arsenal vs FAR Rabat - score & live text commentary**: [Link](https://www.bbc.com/sport/football/live/c2lgrzdd2rgt)
+- **Gotham 0-1 Corinthians (Jan 28, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401845659)
+
+
 ### map (N/A, Wed, 28 Jan 2026 07:50:00 -0800)
 
 - **An ultra-high-resolution map of (dark) matter**: [Link](https://www.nature.com/articles/s41550-025-02763-9)
