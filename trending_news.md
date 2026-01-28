@@ -1,3 +1,73 @@
+### بي اس جي ضد نيوكاسل يونايتد (N/A, Wed, 28 Jan 2026 11:30:00 -0800)
+
+- **مباشر مباراة باريس سان جيرمان ضد نيوكاسل في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/28/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B6%D8%AF-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84)
+- **حكيمي أساسيا.. التشكيلة الرسمية لمباراة سان جيرمان ونيوكاسل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D8%A7--%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84/blt515341bf159fff77)
+- **غوردون عن حكيمي: "هو أفضل لاعب واجهته في مسيرتي"**: [Link](https://m.elbotola.com/article/2026-01-28-14-41-325.html)
+
+
+### naples – chelsea (N/A, Wed, 28 Jan 2026 11:30:00 -0800)
+
+- **Conte warns Napoli ahead of Chelsea clash: Storm not ending ‘anytime soon’**: [Link](https://football-italia.net/conte-warns-napoli-chelsea-storm-not-over/)
+- **Antonio Conte: Ten years since Italian took over at Chelsea - what has changed?**: [Link](https://www.bbc.com/sport/football/articles/c0lx2z9e363o)
+- **Napoli vs Chelsea predictions: Napoli to avoid defeat on home turf**: [Link](https://www.goal.com/en-ca/betting/napoli-vs-chelsea-predictions-01-29/blt4a571bf6dc0d7c14)
+
+
+### dortmund – inter (N/A, Wed, 28 Jan 2026 11:30:00 -0800)
+
+- **Official Starting Lineups – Borussia Dortmund Vs Inter Milan: Petar Sucic & Luis Henrique Start**: [Link](https://sempreinter.com/2026/01/28/official-lineups-dortmund-inter-milan-sucic-henrique-start/)
+- **Opinion – Key Arsenal stars shouldn’t be on the plane to Italy**: [Link](https://www.yardbarker.com/soccer/articles/opinion_key_arsenal_stars_shouldnt_be_on_the_plane_to_italy/s1_15968_43351836)
+- **Inter Milan Vs Arsenal Preview: Big Match Curse, Calhanoglu Blow & Make-or-Break Night At San Siro**: [Link](https://sempreinter.com/2026/01/20/inter-milan-arsenal-preview-big-match-curse-calhanoglu/)
+
+
+### club brugge – marseille (N/A, Wed, 28 Jan 2026 11:30:00 -0800)
+
+- **Preview: Club Brugge vs Marseille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/club-brugge/champions-league/preview/brugge-vs-marseille-prediction-team-news-lineups_590721.html)
+- **Club Brugge-Marseille - Champions League 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1946449/preview/europe-champions-league-2025-2026-club-brugge-marseille)
+- **Belgian clubs face decisive Champions League night**: [Link](https://www.belganewsagency.eu/belgian-clubs-face-decisive-champions-league-night)
+
+
+### ath. bilbao – sporting (N/A, Wed, 28 Jan 2026 11:30:00 -0800)
+
+- **Athletic Club is facing a complicated situation with absences and injuries.**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/athletic-club-is-facing-a-complicated-situation-2026-01-27)
+- **Herri Harmaila to unveil tifo as San Mamés support moves inside for Sporting de Portugal**: [Link](https://onefootball.com/en/news/herri-harmaila-to-unveil-tifo-as-san-mames-support-moves-inside-for-sporting-de-portugal-42318571)
+- **Athletic Club vs Sporting CP Live 2026**: [Link](https://www.westernwheel.ca/classifieds/announcements-and-events/birth-notices/2088634)
+
+
+### مان سيتي ضد غلطة سراي (N/A, Wed, 28 Jan 2026 11:30:00 -0800)
+
+- **فيديو.. تصرف جنوني من ساني قبل موقعة مانشستر سيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%AA%D8%B5%D8%B1%D9%81-%D8%AC%D9%86%D9%88%D9%86%D9%8A-%D9%85%D9%86-%D8%B3%D8%A7%D9%86%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/blt01ede38625c426b1)
+- **غوندوغان: مانشستر سيتي سيخطف الدوري من أرسنال**: [Link](https://hihi2.com/2026/01/28/p3623784.html)
+- **التشكيل والغيابات وموعد المباراة: مانشستر سيتي وغلطة سراي في مواجهة مصيرية بدوري الأبطال**: [Link](https://www.arrajol.com/content/396973/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%88%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%88%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B5%D9%8A%D8%B1%D9%8A%D8%A9)
+
+
+### paris-sg – newcastle (N/A, Wed, 28 Jan 2026 11:20:00 -0800)
+
+- **"Achraf s’est sacrifié" pour le Maroc, que reste-t-il pour le PSG ?**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-psg-newcastle-achraf-hakimi-sest-sacrifie-pour-le-maroc-que-reste-t-il-pour-le-psg_sto23263786/story.shtml)
+- **PSG-Newcastle, quatre joueurs sous la menace d’une suspension**: [Link](https://www.sports.fr/football/ligue-des-champions-football/psg-newcastle-quatre-joueurs-sous-la-menace-dune-suspension-985851.html)
+- **PSG : Luis Enrique ouvre la porte à un retour d’Achraf Hakimi contre Newcastle**: [Link](https://fr.hespress.com/459991-psg-luis-enrique-ouvre-la-porte-a-un-retour-dachraf-hakimi-contre-newcastle.html)
+
+
+### barcelona vs copenhagen (N/A, Wed, 28 Jan 2026 11:20:00 -0800)
+
+- **Reason why Joao Cancelo cannot play for Barcelona in Champions League clash vs Copenhagen**: [Link](https://barcauniversal.com/reason-why-joao-cancelo-cannot-play-for-barcelona-in-champions-league-clash-vs-copenhagen/)
+- **Live Blog! Barcelona vs Copenhagen in the UEFA Champions League**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/live-blog-barcelona-vs-copenhagen-in-the-uefa-champions-league-2026-01-28)
+- **Preview: Barcelona need a result against FC København in final UCL round**: [Link](https://www.fotmob.com/ro/topnews/25552-preview-barcelona-need-result-against-fc-kbenhavn-final-ucl-round?utm_source=fotmob)
+
+
+### manchester city – galatasaray (N/A, Wed, 28 Jan 2026 11:20:00 -0800)
+
+- **Manchester City'de Galatasaray maçı öncesi ayrılık yaşanıyor**: [Link](https://www.yenicaggazetesi.com/manchester-cityde-galatasaray-maci-oncesi-ayrilik-yasaniyor-996293h.htm)
+- **Leroy Sane, Guardiola'nın üzerindeki etkisini açıkladı: "Beni sadece çalıştırmadı" » Irak Haber Ajansı**: [Link](https://ina.iq/tk/sport/58806-leroy-sane-guardiolann-uzerindeki-etkisini-acklad-beni-sadece-caltrmad.html)
+- **Galatasaray'da Okan Buruk açıkladı! Torreira'nın ilk 11'de olmama nedeni…**: [Link](https://www.fotomac.com.tr/galatasaray/2026/01/28/galatasarayda-okan-burukdan-torreira-aciklamasi)
+
+
+### arsenal – kairat (N/A, Wed, 28 Jan 2026 11:20:00 -0800)
+
+- **Arteta issues fitness update on Saliba and Timber | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-issues-fitness-update-saliba-and-timber)
+- **Confirmed Arsenal team v Kairat Almaty – Havertz starts, White captain**: [Link](https://onefootball.com/en/news/confirmed-arsenal-team-v-kairat-almaty-havertz-starts-white-captain-42319672)
+- **Brando Bailey-Joseph, Ife Ibrahim, Marli Salmon and Jack Porter with Arsenal first-team ahead of Kairat game**: [Link](https://arsenalyouth.wordpress.com/2026/01/28/brando-bailey-joseph-ife-ibrahim-marli-salmon-and-jack-porter-with-arsenal-first-team-ahead-of-kairat-game/)
+
+
 ### benfica – real madrid (N/A, Wed, 28 Jan 2026 11:10:00 -0800)
 
 - **Arbeloa: "This match is extremely difficult"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/arbeloa-rueda-de-prensa-27-01-2026)
