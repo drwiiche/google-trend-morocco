@@ -1,3 +1,10 @@
+### champions league matches (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
+
+- **Bradley Barcola extends Champions League goal drought to 15 matches**: [Link](https://tribuna.com/en/news/2026-01-28-bradley-barcola-extends-champions-league-goal-drought-to-15-matches/)
+- **Watch Champions League highlights as five English clubs through & Mourinho's Benfica stun Real**: [Link](https://www.bbc.com/sport/football/live/cy05p6j02l2t)
+- **Champions League: Benfica keeper earns playoff place; Liverpool, Spurs and City book top-eight spots – live**: [Link](https://www.theguardian.com/football/live/2026/jan/28/champions-league-clockwatch-psg-newcastle-manchester-city-galatasaray-live)
+
+
 ### jose mourinho (N/A, Wed, 28 Jan 2026 14:30:00 -0800)
 
 - **Photo: José Mourinho left in awe at Real Madrid star’s moment of brilliance**: [Link](https://sports.yahoo.com/articles/photo-jos-mourinho-left-awe-205000895.html)
