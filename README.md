@@ -1,3 +1,17 @@
+### can 2025 maroc sénégal caf (N/A, Thu, 29 Jan 2026 01:20:00 -0800)
+
+- **Finale de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 : le Jury Disciplinaire de la CAF prononce des sanctionsmarocaine de football (FRMF)**: [Link](https://www.cafonline.com/fr/infos/finale-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-le-jury-disciplinaire-de-la-caf-prononce-des-sanctionsmarocaine-de-football-frmf/)
+- **Maroc-Sénégal: la CAF rend un verdict injuste et incompréhensible**: [Link](https://medias24.com/2026/01/29/maroc-senegal-la-caf-rend-un-verdict-injuste-et-incomprehensible-1618782/)
+- **Cinq matches de suspension pour Thiaw, deux pour Hakimi, la demande du Maroc d'annuler la finale de la CAN rejetée**: [Link](https://www.lequipe.fr/Football/Actualites/Cinq-matches-de-suspension-pour-thiaw-deux-pour-hakimi-la-demande-du-maroc-d-annuler-la-finale-de-la-can-rejetee/1637473)
+
+
+### tottenham hotspur football club (N/A, Wed, 28 Jan 2026 14:10:00 -0800)
+
+- **Eintracht Frankfurt 0-2 Tottenham: Thomas Frank's side seal last-16 Champions League spot**: [Link](https://www.bbc.com/sport/football/live/cvg18p7mdp0t)
+- **Kolo Muani and Solanke send Spurs into Champions League last 16**: [Link](https://www.beinsports.com/en-mena/football/uefa-champions-league/articles-video/kolo-muani-and-solanke-send-spurs-into-champions-league-last-16-2026-01-28)
+- **UEFA Champions League football match: Eintracht Frankfurt vs. Tottenham Hotspur**: [Link](https://english.news.cn/20260129/d7fd4d1973fa42a7bc1ae80de4331d95/c.html)
+
+
 ### sanction senegal caf (N/A, Wed, 28 Jan 2026 23:50:00 -0800)
 
 - **Finale de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 : le Jury Disciplinaire de la CAF prononce des sanctionsmarocaine de football (FRMF)**: [Link](https://www.cafonline.com/fr/infos/finale-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-le-jury-disciplinaire-de-la-caf-prononce-des-sanctionsmarocaine-de-football-frmf/)
